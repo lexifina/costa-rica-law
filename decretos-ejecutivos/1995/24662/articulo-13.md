@@ -1,0 +1,2 @@
+Articulo 13.—Reconocimiento de INTECO
+Conforme a las disposiciones aquí establecidas y al decreto No 22970 del veinte de febrero de mil novecientos noventa y cuatro, se reconoce oficialmente a la Asociación instituto de Normas Técnicas de Costa Rica, INTF.CO, cédula jurídica número tres-cero cero dos-cero ochenta y siete mil cuatrocientos treinta y dos-veinticuatro, como el Ente Nacional Normalizador.

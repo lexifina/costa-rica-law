@@ -1,0 +1,5 @@
+CAPITULO 3. Del Subsistema de Reglamentación Técnica
+Artículo 14.—Ente responsable
+Se crea la Comisión Interministerial de Reglamentación Técnica será el Órgano Nacional de Reglamentación Técnica y que operará de lodo autónomo, bajo la supervisión de la Comisión Nacional de la Calidad.
+Son miembros de la Comisión Interministerial de Reglamentación Técnica representantes de los Ministerios de Economía, Industria y Comercio, de Comercio Exterior, de Agricultura y Ganadería, de Salud Pública, de Recursos Naturales, Energía y Minas, de Obras Públicas y Transpones. A través del respectivo Ministro rector, se participará a instituciones descentralizadas con competencia reglamentaria en las materias cubiertas por el presente decreto.
+Los reglamentos técnicos emitidos por la Comisión Interministerial serán de aplicación por igual a productos, procesos y servicios de origen nacional o importados, en materia de salud, seguridad, medio ambiente, protección al consumidor y cualquier otra área autorizada por los acuerdos internacionales.

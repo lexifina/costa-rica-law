@@ -1,0 +1,3 @@
+Artículo 10.—Misión y fines del Ente Nacional de Normalización
+1. La misión encomendada al ENN es la de contribuir, mediante el desarrollo de actividades de normalización, al ordenamiento y enriquecimiento tecnológico y a asegurar y elevar el nivel de la calidad de las actividades técnicas y de sus productos, de todo tipo. desarrolladas en el país.
+2. Entre sus fines generales se deberán encontrar: (1) asegurar que las necesidades nacionales de normalización dispongan de un cauce o infraestructura normalizadora acorde con las buenas prácticas internacionales en ese ámbito; (2) facilitar la información, el acceso y la disponibilidad de normas nacionales e internacionales; y (3) estimular la normalización en lodos los ámbitos tecnológicos del país.

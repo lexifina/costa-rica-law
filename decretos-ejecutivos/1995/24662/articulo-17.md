@@ -1,0 +1,4 @@
+Artículo 17.—Aspectos organizativos
+La Comisión Interministerial de Reglamentación Técnica, además de sus sesiones plenarias. operará mediante comités de reglamentación técnica específicos que, en cada caso, podrán ser coordinados por los respectivos ministerios o por las instituciones a que hace referencia el párrafo segundo del articulo 14. En estos comités se fomentará la participación del sector privado.
+En las reglamentaciones que impliquen requisitos y limitaciones concernientes a la salud, seguridad, medio ambiente y protección al consumidor se invitará a participar a representantes significativos del sector productivo implicado, incluidos consumidores, con lodos los que en cualquier caso se procurará llegar a un consenso, aunque no es requisito.
+La Oficina Nacional de Normas y Unidades de Medida será la Secretaría Técnica de la Comisión Interministerial.

@@ -1,0 +1,3 @@
+Artículo 42.—Misión y Fines Generales
+1. La misión encomendada al NME es la de contribuir, mediante el desarrollo de actividades de gestión metrológica, el aseguramiento de la calidad de las mediciones y calibraciones realizadas en el seno del Sistema Nacional de la Calidad.
+2. Entre los fines generales se deberán encontrar: (1) asegurar el apoyo y la trazabilidad a las necesidades metrológicas en los ámbitos de la Metrología Legal e Industrial; (2) facilitar apoyo formativo a usuarios de los servicios metrológicos; y (3) difundir las buenas prácticas metrológicas en todos los sectores productivos e institucionales del país.

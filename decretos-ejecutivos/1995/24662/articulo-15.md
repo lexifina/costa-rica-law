@@ -1,0 +1,3 @@
+Artículo 15.—Misión y fines
+1. La misión encomendada al Órgano Nacional de Reglamentación Técnica es la de contribuir, mediante el desarrollo de actividades de reglamentación, a asegurar y elevar el nivel de la calidad de las actividades técnicas de todo tipo desarrolladas en el país, así como de sus procesos y productos, en sus componentes de seguridad, salud y medio ambiente, y a través de ello mejorar el bienestar de la ciudadanía.
+2. Entre sus fines generales se deberán encontrar: (1) asegurar que las necesidades nacionales de regí amen (ación técnica sean adecuadamente trasladadas a tos reglamentos; y (2) facilitar el acceso y la disponibilidad de reglamentos nacionales e internacionales.

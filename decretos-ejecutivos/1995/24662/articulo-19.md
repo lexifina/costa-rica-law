@@ -1,0 +1,8 @@
+Artículo 19.—De la oficialización de los reglamentos técnicos
+Los reglamentos técnicos serán oficializados por el Ministerio de Economía. Industria y Comercio, a través de la Oficina Nacional de Normas y Unidades de Medida y publicados en "La Gaceta". Además deberán observarse las siguientes disposiciones:
+a) En cada reglamento técnico se dejará bien establecido el Ministerio según el ámbito de su competencia, que le corresponde verificar e inspeccionar que tos productos, procesos, métodos, instalaciones. servicios o actividades cumplan con los reglamentos técnicos (normas obligatorias).
+b) Los reglamentos técnicos que se expidan estarán firmados por el Ministro del Ministerio de Economía, Industria y Comercio (MEIC), y por los Ministros según el área de competencia que se trate.
+c) Se publicará un aviso en el Diario Oficial "La Gaceta" a efecto que dentro de los 60 días naturales los interesados presenten sus comentarios a los comités respectivos.
+d) Los ministerios según el área de su competencia deberán ordenar la publicación de las respuestas a los comentarios recibidos con anterioridad a la publicación del reglamento técnico oficial.
+e) Una vez aprobadas por la Comisión Interministerial, de Reglamentación Técnica, los reglamentos técnicos serán expedidos por la dependencia competente y publicados en el Diario Oficial "La Gacela", previa observación de tos procedimientos estipulados por ley, decreto o reglamento.
+f) Cuando dos o más Ministerios sean complementariamente competentes para regular un bien. servicio, proceso, actividad o materia deberán expedir los reglamentos técnicos conjuntamente, en lodo caso el Presidente de la Comisión Interministerial será el encargado de ordenar su publicación en el Diario Oficial "La Gaceta".

@@ -1,0 +1,27 @@
+N°24662-MEIC-S-MAG-MIRENEM-MOPT-PLAN
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE ECONOMÍA. INDUSTRIA Y
+COMERCIO, DE SALUD,
+DE AGRICULTURA Y GANADERÍA,
+DE RECURSOS NATURALES, ENERGÍA Y MINAS,
+DE OBRAS PUBLICAS Y TRANSPORTES,
+Y DE PLANIFICACIÓN NACIONAL Y POLÍTICA
+ECONÓMICA.
+En uso de las atribuciones que les confiere en el Artículo 140 de la Constitución Política en sus incisos 3) y 18), Artículo 28.2b de la Ley General de la Administración Pública, Ley de Normas Industriales, N° 1698 de 26 de noviembre de 1953, Ley de Sistema Internacional de Unidades, N° 5292 de 9 de agosto de 1973, Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor. No 7472 de 20 de diciembre de 1994, Ley Ejecución de los Acuerdos de la Ronda de Uruguay y de Negociaciones Comerciales Multilaterales, No 7473 de 20 de diciembre de 1994, Ley Aprobación Tratado de Libre Comercio Estados Unidos Mexicanos - Cosía Rica, N° 7474 de 20 de diciembre de 1994, Ley Aprobación del Acta Final en que se incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, N° 7475 de 20 de diciembre de 1994 y Ley Orgánica del Ministerio de Economía, Industria y Comercio, Ley 6054 de 7 de junio de 1977, y sus reformas.
+Considerando:
+1°—Que es función esencial del Estado velar por la protección del consumidor y que la calidad es un factor básico para el aseguramiento del bienestar de las personas, en particular en lo concerniente a salud, medio ambiente y seguridad;
+2°—Que el cumplimiento con estándares de calidad representa un elemento clave en el valor añadido y la competitividad de los productos y servicios y como tal, en la competitividad de los organismos - empresas e instituciones - involucrados en su fabricación, distribución y comercialización;
+3°—Que la Administración Pública del Estado tiene la responsabilidad de garantizar el bienestar de los ciudadanos, así como estimular y promover las condiciones de competitividad para el desenvolvimiento de la actividad económica del país;
+4°—Que es necesario armonizar las políticas y el Capítulo de Normas Técnicas para participar más activamente en los acuerdos bilaterales y multilaterales de integración.
+5°—Que la suscripción de acuerdos internacionales como !a Ronda de Uruguay, GATT, y el Tratado de Libre Comercio con México, obligan a reorganizar las responsabilidades relativas a la Normalización Técnica voluntaria y reglamentaria. Metrología. Pruebas y Gestión de la Calidad y fortalecer otras áreas, como la acreditación de laboratorios y la certificación de calidad y de la conformidad.
+6°—Que tales reorganización y definición deben ser referidas y estar respaldadas, por fas prácticas establecidas internacional mente para el funcionamiento de los sistemas de evaluación de la conformidad que sirven de referencia, puesto que de ello se deriva la credibilidad y reconocimiento internacional de los resultados de aquellas actividades;
+7°—Que la Administración Pública del Estado tiene la responsabilidad de elevar el nivel de metrología en el país mediante la creación del Subsistema Nacional de la Metrología como un medio para: a) desarrollar la competitividad y calidad de los sectores manufactureros y promover el comercio, b) identificar sectores y empresas individuales que puedan realizar actividades multinacionales específicas en apoyo de la metrología, c) utilizar pesos y medidas para la protección del medio ambiente, controlar el uso acelerado de los recursos y promover el bienestar general de la población.
+8°—Que el ámbito reglamentario concerniente a la calidad involucra responsabilidades de diferentes Ministerios e instituciones descentralizadas aún no suficientemente integradas ni completas de cara a la satisfacción de los requisitos internacionales;
+9°—Que el Ministerio de Economía. Industria y Comercio, el Ministerio de Salud Pública, el Ministerio de Agricultura y Ganadería, el Ministerio de Obras Públicas y Transportes, el Ministerio de Recursos Naturales Energía y Minas, tienen potestades de reglamentación técnica, particularmente en los campos de la salud, la seguridad, medio ambiente y la protección al consumidor.
+10.—Que en el área de normalización voluntaria el Instituto de Normas Técnicas de Costa Rica (INTECO) es el ente de normalización que cuenta con el reconocimiento nacional (Decreto No 22970-MF.IC del 20 de febrero de 1994) y que participa como miembro nacional en la Organización Internacional de Normalización (ISO) y en la Comisión Panamericana de Normas Técnicas (COPANT);
+11.—Que las actividades desarrolladas bajo los sistemas nacionales de la calidad constituyen potentes instrumentos de desarrollo del país, en cuanto que son fuente de confianza, que facilitan las exportaciones y que promueven un consumo interno consciente, selectivo y responsable.
+12.—Que las recomendaciones de los expertos internacionales de la Organización de las Naciones Unidas para el Desarrollo Industrial (ONUDI), del Instituto Físico Técnico Alemán (PTB), de la Organización de las Naciones Unidas para la Agricultura y la Alimentación (FAO), Organización Internacional de Normas (ISO) y del Banco Interamericano de Desarrollo (BID-Sectorial), constituyen guías útiles para la estructuración de un Sistema Nacional de la Calidad. Por tanto,
+DECRETAN:
+CAPITULO 1. GENERALlDADES
+Artículo 1°—Objetivo general
+El objetivo del presente Decreto es la definición y el establecimiento del Sistema Nacional de la Calidad y el ordenamiento y la articulación de las actividades relacionadas y enmarcadas en él.

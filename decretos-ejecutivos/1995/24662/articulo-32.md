@@ -1,0 +1,4 @@
+Artículo 32.—Requisitos exigibles a los Entes de Certificación Extranjeros
+1. Los criterios y requisitos exigibles con carácter general a los Entes de Certificación extranjeros serán los especificados en la normativa internacional, específicamente las normas europeas EN 45000 y las ISO/IEC aplicables, así como aquellos otros requisitos complementarios que el Ente Nacional de Acreditación considere oportunos.
+2. En ningún caso los requisitos complementarios desvirtuarán las exigencias de la normativa internacional de referencia.
+3. Los certificados emitidos por Entes de Certificación que no operen en el Sistema Nacional de la Calidad podrán ser reconocidos mediante mecanismos de entendimiento y reconocimiento a través del Ente Nacional de Acreditación y con la sanción de la Comisión Nacional.

@@ -1,0 +1,4 @@
+Artículo 26.—Requisitos Exigibles a los Laboratorios de Ensayo y de Calibración
+1. Los criterios y requisitos exigibles a los Laboratorios de Ensayo y de Calibración serán los especificados con carácter general en la normativa internacional, específicamente las normas europeas EN45000 aplicables y la Guía número 58 de la Organización Internacional para la Normalización (ISO) así como aquellos otros requisitos complementarios que el Ente Nacional de Acreditación considere oportunos.
+2. En ningún caso los requisitos complementarios desvirtuarán las exigencias de la normativa internacional de referencia.
+3. Los informes de resultados de ensayo emitidos por laboratorios que no operen en el Sistema Nacional de Garantía de la Calidad podrán ser reconocidos mediante mecanismos de entendimiento y reconocimiento a través del Ente Nacional de Acreditación.

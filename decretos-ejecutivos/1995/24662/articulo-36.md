@@ -1,0 +1,4 @@
+Articulo 36.—Entes de Inspección y de Control
+1. Las actividades de inspección y de control serán desarrolladas por entes de derecho privado acreditados específicamente para operar en determinada área de actividad y dentro del Sistema Nacional de la Calidad, sin menoscabo de la capacidad de la Administración Pública para ejercer funciones directas de control en el ámbito reglamentario.
+2. La acreditación de cada Ente de Inspección particular será otorgado por el Ente Nacional de Acreditación, de acuerdo con los procedimientos pertinentes en vigor.
+3. Los Entes de Inspección actuarán en el ámbito no reglamentario. Un Ente de Inspección acreditado adquirirá eventualmente estatus de Ente de Control, lo que facultará para operar en el ámbito reglamentario, cuando medie un convenio de reconocimiento expreso con la administración pública.

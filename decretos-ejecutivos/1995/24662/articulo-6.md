@@ -1,0 +1,4 @@
+Artículo 6°—Ámbito del Sistema Nacional de la Calidad. Se definen dos ámbitos de actuación, ambos insertos en el Sistema Nacional de la Calidad: el ámbito reglamentario y el ámbito no reglamentario.
+1) El ámbito reglamentario comprende los requisitos de aquellos productos, procesos y servicios que bien (a) afectan la seguridad, la salud de las personas y otros seres vivos o al medio ambiente, o (b) requieren una intervención de protección al consumidor.
+En este ámbito la Administración Publica del Estado reglamenta, actúa e interviene con legitimidad en lo referente a la Calidad.
+2) El ámbito no reglamentario, también denominado voluntario, comprende los requisitos para el restante grupo de productos, procesos o servicios, donde la iniciativa privada será la principal responsable de su desarrollo en aras de procurar un mayor nivel de calidad y de competitividad.
