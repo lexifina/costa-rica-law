@@ -1,0 +1,1 @@
+Artículo 21.—Uniformidad de vehículos. Para que los vehículos del INEC circulen dentro de las normas de seguridad y además ofrezcan una apariencia uniforme, se debe evitar la colocación de adornos, tanto en el exterior como en el interior de los mismos, o bien mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

@@ -1,0 +1,1 @@
+Artículo 16.—Alteración de la ruta. Cualquier alteración que se presente en el recorrido de la ruta programada para el servicio de transporte, será responsabilidad del funcionario que utilice el servicio. El Operador de Equipo Móvil o el conductor deberán informar al Encargado de Transportes la situación presentada al finalizar la gira y la justificación correspondiente.

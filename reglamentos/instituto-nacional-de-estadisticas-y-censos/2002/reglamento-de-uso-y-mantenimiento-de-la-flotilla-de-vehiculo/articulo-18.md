@@ -1,0 +1,5 @@
+Artículo 18.—Del uso de la flotilla de vehículos en casos excepcionales. En casos excepcionales, en virtud de que no haya disponibilidad de choferes y la realización de la actividad o gira no pueda postergarse por motivos debidamente justificados, se podrá autorizar a funcionarios del INEC para que conduzcan vehículos de uso administrativo, bajo su responsabilidad y la del Encargado de Transportes.
+Para estos efectos, el Proceso de Servicios y Mantenimiento, mediante el Encargado de Transportes, llevará un registro de los funcionarios del INEC que estén en disposición de la conducción de vehículos. Dicho registro deberá contener:
+a) Nombre, número de cédula, puesto que ocupa y lugar de trabajo del funcionario que solicita ser incluido en dicho registro.
+b) Fotocopia certificada de la licencia de conducir al día.
+c) Solicitud expresa del funcionario que está dispuesto a conducir vehículos oficiales, en donde conste además que se ajustará en todo a las disposiciones contempladas en este Reglamento y las leyes y reglamentos conexos.

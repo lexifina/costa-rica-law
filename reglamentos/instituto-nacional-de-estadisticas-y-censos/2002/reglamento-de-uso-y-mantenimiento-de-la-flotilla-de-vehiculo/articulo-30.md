@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Disposiciones finales
+Artículo 30.—Situaciones no previstas en el Reglamento. Para efectos de interpretación, lo no regulado en este Reglamento habrá de remitirse a las disposiciones contenidas en la Ley de Tránsito por Vías Públicas Terrestres vigente, en la Ley General de la Administración Pública, en el Código de Trabajo, en el Reglamento Autónomo de Servicios del INEC, en el Manual sobre Normas Técnicas de Control Interno relativas al Uso, Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República y demás normativa de derecho público aplicable.
+Así mismo, en lo que no está previsto en este Reglamento y en caso de ausencia de legislación supletoria, el Proceso de Servicios y Mantenimiento, resolverá las situaciones que se presenten mediante circulares de carácter general o mediante los procedimientos administrativos ordinarios; todo en observancia del debido proceso.
+Aprobado por el Consejo Directivo mediante Acuerdo 3 de fecha 15 de enero del 2002.

@@ -1,0 +1,1 @@
+Artículo 29.—De las sanciones. Las infracciones a la Ley de Tránsito por Vías Públicas Terrestres, al presente Reglamento y demás normativa conexa a la materia, serán sancionadas disciplinariamente de acuerdo a las disposiciones contenidas en el Reglamento Autónomo de Servicio del INEC, al Código de Trabajo y demás normativa atinente.

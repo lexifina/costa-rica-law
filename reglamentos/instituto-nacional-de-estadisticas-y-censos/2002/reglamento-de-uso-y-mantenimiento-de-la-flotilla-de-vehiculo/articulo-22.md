@@ -1,0 +1,1 @@
+Artículo 22.—Solicitud de cupones de gasolina. Para la solicitud de cupones de combustible, será necesario presentar la fórmula debidamente llena por parte del responsable del Área o Unidad solicitante. No se otorgarán los cupones de combustible solicitados hasta tanto no se haya liquidado las facturas pendientes.
