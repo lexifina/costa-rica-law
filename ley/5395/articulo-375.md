@@ -1,4 +1,4 @@
-Artículo 375.- Será reprimido con diez a sesenta días multa el que
+ARTICULO 375.- Será reprimido con diez a sesenta días multa el que
 importaré a sabiendas, elaborare, comerciare, distribuyere o suministrare
 a cualquier título, manipulare o tuviere para esos mismos fines,
 medicamentos o alimentos deteriorados, contaminados, adulterados o

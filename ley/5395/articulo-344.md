@@ -1,4 +1,4 @@
-Artículo 344.- Quedan, asimismo, sujetos a las normas y al control y
+ARTICULO 344.- Quedan, asimismo, sujetos a las normas y al control y
 supervigilancia, aludidos en el artículo anterior, los organismos
 públicos o semipúblicos de administración descentralizada o
 desconcentrada en cualquier grado que administren servicios de interés

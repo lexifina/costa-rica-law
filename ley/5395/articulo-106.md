@@ -1,4 +1,4 @@
-Artículo 106.- Se considera que un medicamento puede, legalmente,
+ARTICULO 106.- Se considera que un medicamento puede, legalmente,
 ser destinado al comercio, al uso y consumo públicos, cuando satisfaga
 las exigencias reglamentarias, o de la farmacopea declarada oficial por
 el Poder Ejecutivo en cuanto a su identidad y calidades, seguridad y

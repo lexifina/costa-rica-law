@@ -1,4 +1,4 @@
-Artículo 314.-Toda persona tiene obligación de velar por la higiene
+ARTICULO 314.- Toda persona tiene obligación de velar por la higiene
 y seguridad de su vivienda personal o familiar y deberá realizar las
 prácticas especiales de limpieza, desinfección y desinsectización que
 haya menester cuidando de cumplir las instrucciones y órdenes que para

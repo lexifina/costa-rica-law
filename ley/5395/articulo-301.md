@@ -1,4 +1,4 @@
-Artículo 301.- Se entiende por establecimiento industrial, para los
+ARTICULO 301.- Se entiende por establecimiento industrial, para los
 efectos de la presente ley y su reglamentación, todo lugar descubierto o
 cubierto destinado a la transformación, manipulación o utilización de
 productos naturales, o a la elaboración, manipulación, transformación o

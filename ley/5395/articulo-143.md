@@ -1,4 +1,4 @@
-Artículo 143.- Queda prohibida la importación, comercio y suministro
+ARTICULO 143.- Queda prohibida la importación, comercio y suministro
 de aparatos, equipos, instrumentos, o materiales médicos u odontológicos
 que por su mala calidad, mal estado de conservación o defectos de
 funcionamiento, no cumplan con las especificaciones reglamentarias

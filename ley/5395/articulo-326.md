@@ -1,4 +1,4 @@
-Artículo 326.- Son responsables de las infracciones sanitarias que
+ARTICULO 326.- Son responsables de las infracciones sanitarias que
 se cometan, los propietarios o administradores de tales edificaciones,
 instalaciones o establecimientos, quienes están obligados a cumplir con
 las medidas técnicas especiales que la autoridad de salud les señale, a

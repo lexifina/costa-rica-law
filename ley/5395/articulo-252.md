@@ -1,4 +1,4 @@
-Artículo 252.- En todo caso, el Ministerio, en resguardo de la salud
+ARTICULO 252.- En todo caso, el Ministerio, en resguardo de la salud
 de las personas, podrá negar el permiso para importar, fabricar,
 comerciar, o suministrar sustancias, mezclas de sustancias, productos o
 mezclas de productos excesivamente tóxicos o capaces de causar daños

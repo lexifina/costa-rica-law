@@ -1,4 +1,4 @@
-Artículo 84.- Para establecer y operar laboratorios de microbiología
+ARTICULO 84.- Para establecer y operar laboratorios de microbiología
 y química clínica, patológicos y de cualquier otro tipo que sirva para el
 diagnóstico, prevención o tratamiento de enfermedades o que informe sobre
 el estado de salud de las personas, ya sean de carácter público, privado,

@@ -1,4 +1,4 @@
-Artículo 354.- El laboratorio oficial fijará las normas y pautas
+ARTICULO 354.- El laboratorio oficial fijará las normas y pautas
 mínimas de los procedimientos técnicos a que deberán ceñirse los
 laboratorios clínicos y bromatológicos del país. Le corresponde,
 asimismo, fijar las normas y procedimientos mínimos para asegurar una

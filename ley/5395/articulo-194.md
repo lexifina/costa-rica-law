@@ -1,4 +1,4 @@
-Artículo 194.- Las personas naturales o jurídicas que se ocupen del
+ARTICULO 194.- Las personas naturales o jurídicas que se ocupen del
 transporte internacional de animales serán responsables del cumplimiento
 de las disposiciones reglamentarias pertinentes y si éstas no fueren
 cumplidas, estarán obligados a reembarcarlos de vueltas al lugar de

@@ -1,4 +1,4 @@
-Artículo 244.- Las personas naturales y jurídicas que importen,
+ARTICULO 244.- Las personas naturales y jurídicas que importen,
 fabriquen, manipulen, almacenen, transporten, comercien, suministren o
 apliquen sustancias, mezclas de sustancias o productos denominados
 plaguicidas por la ley de sanidad vegetal, quedarán sujetas a las

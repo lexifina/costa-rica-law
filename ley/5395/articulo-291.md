@@ -1,4 +1,4 @@
-Artículo 291.- Queda prohibido descargar residuos industriales y de
+ARTICULO 291.- Queda prohibido descargar residuos industriales y de
 establecimientos de salud en el alcantarillado sanitario sin autorización
 previa de la autoridad de salud y sin cumplir las instrucciones que ésta
 pueda ordenar para hacerlos inocuos, a fin de precaver cualquier daño al

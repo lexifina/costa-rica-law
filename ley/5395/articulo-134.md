@@ -1,4 +1,4 @@
-Artículo 134.- Quedan prohibidos la elaboración, el tránsito por la
+ARTICULO 134.- Quedan prohibidos la elaboración, el tránsito por la
 República, el tráfico o comercio, la tenencia para comerciar o distribuir
 y el suministro y administración, a cualquier título, de sustancias o
 productos estupefacientes y psicotrópicos declarados de uso restringido

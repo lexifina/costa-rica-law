@@ -1,4 +1,4 @@
-Artículo 70.- Todo establecimiento de atención médica deberá reunir
+ARTICULO 70.- Todo establecimiento de atención médica deberá reunir
 los requisitos que dispongan las normas generales que el Poder Ejecutivo
 dicte para cada categoría de éstos, en especial, normas técnicas de
 trabajo y organización; tipo de personal necesario; planta física,

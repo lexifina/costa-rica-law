@@ -1,4 +1,4 @@
-Artículo 192.- Las personas que internen animales al país deberán
+ARTICULO 192.- Las personas que internen animales al país deberán
 cumplir con todas las exigencias reglamentarias pertinentes y en especial
 las que se refieren a los certificados que las autoridades de salud
 exijan. En todo caso la internación de animales procedentes de países

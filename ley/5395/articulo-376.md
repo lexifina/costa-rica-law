@@ -1,4 +1,4 @@
-Artículo 376.- El que importare, exportare, vendiere, elaborare,
+ARTICULO 376.- El que importare, exportare, vendiere, elaborare,
 suministrare o traficare en cualquier forma, o poseyere para esos fines,
 medicamentos que contengan drogas estupefacientes de libre venta o de
 venta restringida por las autoridades de salud, sin las debidas

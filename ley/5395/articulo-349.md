@@ -1,4 +1,4 @@
-Artículo 349.- Tendrán carácter de autoridad de salud los
+ARTICULO 349.- Tendrán carácter de autoridad de salud los
 funcionarios del Ministerio que desempeñen cargos de inspección que hayan
 sido especialmente comisionados para la comprobación de infracciones a
 esta ley o a sus reglamentos, tendrán fe pública en cuanto a las

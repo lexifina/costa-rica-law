@@ -1,4 +1,4 @@
-Artículo 166.- Los propietarios y representantes, administradores y
+ARTICULO 166.- Los propietarios y representantes, administradores y
 encargados de empresas de transportes deberán mantener los vehículos y
 las estaciones terminales en buenas condiciones de aseo y procederán a su
 conveniente desinfección, desinsectización, desratización y a la

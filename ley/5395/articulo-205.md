@@ -1,4 +1,4 @@
-Artículo 205.- Queda permitida la elaboración y comercio de
+ARTICULO 205.- Queda permitida la elaboración y comercio de
 alimentos artificiales, entendiéndose por tal aquellos que imitan un
 alimento natural, siempre que los fabricantes, vendedores y expendedores
 cumplan estrictamente las exigencias reglamentarias pertinentes y

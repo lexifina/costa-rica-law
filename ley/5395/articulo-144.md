@@ -1,4 +1,4 @@
-Artículo 144.- Toda persona natural o jurídica que se ocupe de la
+ARTICULO 144.- Toda persona natural o jurídica que se ocupe de la
 importación, manufactura, reparación o venta de instrumentos ópticos,
 anteojos y lentes de contacto deberán solicitar permiso previo al
 Ministerio para actuar e instalar los establecimientos en que se realicen

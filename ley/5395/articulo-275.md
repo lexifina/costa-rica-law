@@ -1,4 +1,4 @@
-Artículo 275.- Queda prohibido a toda persona natural o jurídica
+ARTICULO 275.- Queda prohibido a toda persona natural o jurídica
 contaminar las aguas superficiales, subterráneas y marítimas
 territoriales, directa o indirectamente, mediante drenajes o la descarga
 o almacenamiento, voluntario o negligente, de residuos o desechos

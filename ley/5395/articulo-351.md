@@ -1,4 +1,4 @@
-Artículo 351.- Toda persona está obligada a entregar, en la forma
+ARTICULO 351.- Toda persona está obligada a entregar, en la forma
 que establezcan los reglamentos pertinentes, las muestras necesarias para
 realizar los análisis que técnicamente se requieran para el adecuado
 resguardo de la salud de las personas y como elementos de prueba para el

@@ -1,4 +1,4 @@
-Artículo 219.- Los propietarios o administradores de
+ARTICULO 219.- Los propietarios o administradores de
 establecimientos de alimentos, que hayan obtenido el permiso de
 instalación podrán iniciar la operación de éstos una vez que acrediten
 ante el Ministerio que han cumplido con las exigencias impuestas para

@@ -1,4 +1,4 @@
-Artículo 2º.- Es función esencial del Estado velar por la salud de
+ARTICULO 2º.- Es función esencial del Estado velar por la salud de
 la población. Corresponde al Poder Ejecutivo por medio del Ministerio de
 Salubridad Pública, al cual se referirá abreviadamente la presente ley
 como "Ministerio", la definición de la política nacional de salud, la
