@@ -197,84 +197,219 @@ Reserva Indígena Cabécar de Chirripó (Chirripó Alto)
 (Así adicionada la Reserva Indígena Cabécar de Chirripó (Chirripó Alto) anterior por el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, que dividió la Divídase la Reserva Indígena Cabécar de Chirripó, en dos reservas distintas. Esta reserva corresponde a las áreas relacionadas con el cantón de Turrialba)
 Reserva Indígena Cabécar de Bajo Chirripó
 (Así adicionada la Reserva Indígena Cabécar de Bajo Chirripó anterior por el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, que dividió la Divídase la Reserva Indígena Cabécar de Chirripó, en dos reservas distintas. Esta reserva corresponde a las áreas relacionadas con la provincia de Limón.)
-Límites de La Reserva Indígena Cabécar de Bajo Chirripó: la cual se entenderá localizada en las hojas del Instituto Geográfico Nacional, escala 1/50.000. Barbilla 3545 IV. Río Banano 3545 I. Chirripó 3545 III, Estrella 3545 II. La Reserva se delimita por los puntos cuyas coordenadas son: Partiendo de la catarata Ayil. desagüe del lago del mismo nombre, en coordenadas 209 400 N 606 160 E, el límite común entre las Reservas Indígenas de Bajo Chirripó y Chirripó sigue el río Moravia (Xara) aguas abajo, hasta su desembocadura en el río Chirripó (Duchii), en coordenadas 209 400 N 607 950 E. De este punto, sigue el río Chirripó aguas arriba hasta la confluencia de la quebrada Itocäläri (sin nombre en el mapa), en coordenadas 206 275 N 609 300 E.
-De este punto, el límite sigue, en dirección del este-sureste, la fila cumbre del Cerro Matama - Itocälä, divisoria de aguas entre los ríos Zent (Saseyn) e Itocäläri al norte, y los ríos Boyey (Bäyey), y Jactiti al sur. pasando por los puntos de coordenadas siguientes:
-205 190 N | 610 225 E | (Cerro, cota 1 240m)
-204 625 N | 610 975 E | (Cerro, 1 388m)
-204 000 N | 612425E | (Cerro, 1 612m)
-204 550 N | 613 800 E | (Cerro, 1 658m)
-203 900 N | 614 450 E | (Vértice IGN Katse. 1 855m)
+Límites de La Reserva Indígena Cabécar de Bajo Chirripó (DUCHII) la cual se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000: Cuerici 3444 I, Matama 3544 IV, Pejibaye 3445 II, Chirripó 3545 III, Tucurrique 3445 I, Barbilla 3445 IV.
+La Reserva se localiza por los puntos cuyas coordenadas son:
+Partiendo de la confluencia del río Moravia (Xara), con el río Chirripó (Duchii), en coordenadas 209 400 N 607 950 E, el límite común entre las Reservas de Chirripó y Bajo Chirripó sigue el río Chirripó aguas arriba hasta la confluencia de la quebrada Itocäläri (sin nombre en el mapa),en coordenadas 206 275 N 609 300 E.
+De este punto, el limite sigue, en dirección del este, la fila cumbre del cerro Matama- Itocälä, divisoria de aguas entre los ríos Zent (Saseyn) e Itocäläri al norte, y los ríos Bäyey (Bäyey) y Jactiti al sur pasando por los puntos de coordenadas siguientes:
+205 100 N | 610 225 E | (Cerro, cota 1240m. )
+204 625 N | 610 975 E | (Cerro. 1388m)
+204 000 N | 612 425 E | (Cerro. 1612m.)
+204 550 N | 613 800 E | (Cerro. 1658m. )
+203 900 N | 614 450 E | (Vértice IGN Katse. 1855m.)
 202 725 N | 614 350 E |
-202 350 N | 614 800 E | (Cima norte del Cerro Itocälä-Matama, 1 960m)
+202 350 N | 614 800 E | (Cima norte del cerro Itocälä-Matama, 1960m. )
 201 700 N | 615 500 E |
-201 675 N | 616 125 E | (Cerro Itocälä- Matama, 1 963m)
-201 380 N | 618 450 E | (Cerro Itocälä, 1 920m)
-En este punto finaliza el límite común con la Reserva Indígena Cabécar de Chirripó.
-Se continúa por la fila divisoria de aguas entre las cuencas del río Zent (Saseyn) del río Banano, pasando por los puntos de coordenadas:
-203 200 N | 620 280 E | (Cerro Mobata, 1 450m aprox)
-205 050N | 619 380 E | (Cerro Xulec 1 135m)
-205 950 N | 619 650 E | (Cerro Cälbilicä bata, 1 179m)
-206 450 N | 619 825 E |
-De allí una recta hasta la naciente del río Cälbilicäri (río Segundo), por coordenadas: 206 500 N 619 850 E
-Se continúa por el río Cälbilicäri (río Segundo) aguas abajo, hasta el punto de
-coordenadas: 207 750 N 622 425 E
-De ahí una recta al punto de coordenadas 208 600 N 622 550 E (río Peje o Tanari).
-De allí se sigue el río Peje (Tanari) aguas abajo hasta la confluencia con la Quebrada Nimari (sin nombre en el mapa), en coordenadas 211 100 N 621 150 E
-De allí continúa por rectas, por los puntos de coordenadas:
-211 400 N | 620 000 E
-211 680 N | 620 000E
-212 430N | 620 830 E
-212 700 N | 620 700 E
-De ahí una recta oeste franco hasta el punto de coordenadas:
-217 700 N | 618 900 E | (Cerro Sirac Bata, 305 m)
-De ahí el punto de coordinas 212 775 N 618 600 E (naciente en el mapa de la quebrada Zopilote u Olori). Se continua aguas abajo por la quebrada Zopilote (Olori) hasta el punto de coordenadas 215 000 N 616 500 E.
-Se sigue por una recta de dirección oeste franco, por el cerro Mitag Bata hasta el río Zent (Saseyn), en coordenadas 215 000 N615 300 E, frente a la desembocadura del río Tcucäläri o Sirinachi (Xirinachs). De este punto se sigue por el río Zent (Saseyn) aguas abajo hasta el punto de coordenadas 219 000 N613 500 E. De este punto, una recta oeste franco, hasta el río Chirripó. en coordenadas 219 000 N611 900 E. De ahí una recta, siempre oeste franco hasta la quebrada veinticinco (Jacsuleri), en coordenadas 219 000 N611 650 E. De este punto se sigue la quebrada veinticinco (Jacsuleri) aguas arriba, hasta el punto de coordenadas 218 250 N610 850 E. De este punto, se sigue por rectas por los puntos de coordenadas:
-218 500 N | 610 250 E
-218 850 N | 610 150 E
-218 850 N | 609 550 E
-219 350 N | 609 350 E
-219 450 N | 609 000 E
-219 200 N | 608 225 E
-219 425 N | 608 225 E
-219 425 N | 607 625 E
-219 000 N | 607 000 E
-218 750 N | 606 700 E
-218 750 N | 605 175 E
-A partir de este punto, el límite de la Reserva Indígena Cabécar de Bajo Chirripó es el límite común con la Reserva Biológica.
-Barbilla, y pasa por el punto de coordenadas: 218 150 N 605 350 E (fila divisoria de aguas entre los ríos Barbilla y Chirripó).
-De este punto, el límite sigue la fila divisoria de aguas entre los ríos Barbilla y Moravia por una parte, y Chirripó por otra parte, pasando por los puntos de coordenadas:
-217 675 N | 604 320 E | (Cerro, Cota 5 70m)
-217 425 N | 604 225 E |
-217 275 N | 603 750 E |
-216 650 N | 603 075 E |
-215 130 N | 604 380 E | (fila,920m)
-214 475 N | 604 300 E | (fila. 1 040m)
-213 780 N | 604 000 E | (Cerro Akata Bata, 1 200m)
-213 430 N | 604 900 E | (Cerro Sida Bata, 1 122m)
-211 500 N | 605 750 E | (Cerro Dolibata, 927m)
-210 120 N | 606 100 E | (Cerro. 805m, fila Doligichey)
-209 400 N | 606 160 E | (Catarata Ayil. río Moravia, a la salida del Lago Ayil),
-punto inicial de la descripción de los límites de la Reserva Indígena Cabécar de Bajo Chirripó.
+201 675 N | 616 125 E | (Cerro Itocälä- Matama. 1963m.)
+201 380 N | 618 450 E | (Cerro Itocälä . 1920m.)
+En este punto finaliza el limite común con la Reserva Indígena Cabécar de Bajo Chirripó y a partir de este punto. el limite sigue aproximadamente la fila Matama, fila divisoria de aguas entre la cuenca del río Chirripó y las cuencas de los ríos Estrella (Tay) y Telire siendo al mismo tiempo el limite común con el" Parque Nacional Cordillera de Talamanca (Parque Internacional La Amistad).
+El limite pasa por los puntos de coordenadas siguientes:
+197 650 | N | 619 750 | E | (Unión entre la fila de Matama Norte y la fila de Matama Bweco)
+196 525 | | 619 730 | | (Vértice Matama. 2251m.; Cerro Psara Bata).
+194 530 | | 617 625 | | (Vértice Tural 2193m Cerro Psara Bata.)
+190 600 | | 614 950 | | (Cerro Xinabla Bata, fila Matama)
+188 950 | | 613 050 | | (Cerro Tadyäcä, fila Matama)
+187 900 | | 613 150 | |
+187 500 | | 612 880 | | (Cima del Cerro Tadyäcä 1910m. )
+185 680 | | 612 530 | | (Paso de Jubol, Cerro Tapal Qicha)
+184 300 | | 611 600 | | (Cerro Jubol, Paso de Calsir)
+183 900 | | 610 880 | | (Cerro Jubol, 2185m.)
+Expresado en coordenadas del "Sistema Sur de Costa Rica", este último punto tiene las coordenadas siguientes:
+402 100 N 537 720 E. La descripción sigue con el "Sistema de Coordenadas Sur de Costa Rica".
+Se continua por el punto de coordinas: 401 300 N 536 800 E (Vértice Sinsal, 2394m. cerro Tsinsal Cabebata)
+A partir de este punto el lindero de la Reserva se aparta de la divisoria de aguas entre los ríos Chirripó y Telire y continúa por los puntos de coordenadas siguientes:
+399 925 | N | 530 350 | E | (Río Cuen, sitio Bakche)
+399 125 | N | 526 375 | E | (Vértice Shio cerro Bakábata l978m.)
+398 000 | N | 524 200 | E | (Fila Socoy Qichey).
+396 000 | N | 524 200 | E |
+En este punto termina el límite común entre la Reserva Indígena Cabécar de Chirripó y el Parque Nacional Cordillera de Talamanca (La Amistad), y se sigue por el limite común con el Parque Nacional Chirripó por una recta hasta el punto de coordenadas 396 000 N 518 000 E
+A partir de este punto, la Reserva Indígena de Chirripó colinda con la "Reserva Forestal Río Macho".pasando el limite por los puntos de coordenadas:
+398 400 | N | 517 000 | E | (quebrada Suco o Sweo).
+399 400 | N | 516 950 | E | (punto situado aproximadamente en el camino de Alto Chirripó a Alto Pacuare)
+399925 | N | 517 250 | E | (punto en el brazo norte de la quebrada Suco).
+De este punto, se sigue aguas arriba del brazo norte de la quebrada Suco hasta su naciente, en coordenadas: 401 050 N 517 800 E. De ahí se continúa por la fila Selico Qichey. divisoria de aguas entre los ríos Pacuare y Chirripó, hasta la cima meridional del Cerro Selico Bata, 2320m. en coordenadas 183 900 N 591 800 E (estas últimas coordenadas expresadas en el "Sistema Norte de Costa Rica"); la descripción sigue con las coordenadas del Sistema Norte de Costa Rica.)
+Se sigue la fila Buruy Qichey pasando por los puntos de coordenadas:
+184 630 | N | 590 300 | E | (Cerro Buruy, 2110m.).
+185 500 | N | 589 960 | E |
+185 750 | N | 589 075 | E |
+185 725 | N | 588 400 | E |
+De este punto, una recta hasta el punto de coordenadas:184 900 N 588 000 E (confluencia de dos brazos de la quebrada Tanari); de allí una recta hasta la confluencia del río Chuguari (Xocwari) con un afluente sin nombre en el mapa, en coordenadas 184 050 N 586 375 E. Se sigue aguas arriba por el afluente sin nombre hasta la confluencia de sus dos brazos principales, en coordenadas 183 900 N 585 750 E. De este punto se continúa por la fila divisoria de los dos brazos de esta quebrada pasando por los puntos de coordenadas:
+184 000 | N | 585 250 | E |
+183 675 | N | 584 400 | E | (cerro 1880m fila Sirbi o Cariblanco).
+De este punto se sigue un ramo de la fila Cariblanco hasta el punto de coordenadas 184 000 N 584 050 E. De allí una recta hasta la confluencia del río Boroi (Boroy) con un afluente sin nombre en el mapa, en coordenadas: 183 930 N 583 000 E. se continúa aguas abajo por el río Boroi (Boroy), hasta la confluencia con otro afluente sin nombre en el mapa coordenadas 184 850 N 582 600 E. De ahí se continúa por los puntos de coordenadas.
+184 900 | N | 581 500 | E | (fila Dipa).
+185 050 | N | 581 250 | E | (quebrada Kamagría o Tcamacäri).
+Se sigue la quebrada Kamagría (Tcamacäri) aguas abajo hasta su confluencia con el rio Pacuare (Jácuy), en coordenadas:
+186 300 | N | 580 250 | E
+De allí una recta prácticamente Norte franco hasta la confluencia del Río Simari (Tsimari) con su afluente, la quebrada Pasiri (sin nombre en el mapa), en coordenadas:
+188 710 | N | 580 275 | E
+Se continúa aguas arriba por el río Simari (Tsimari), hasta la confluencia de una quebradilla sin nombre ( y definida por las curvas de nivel), en coordenadas:
+189 550 | N | 579 600 | E
+Se continúa por la quebradilla aguas arriba hasta su naciente en coordenadas 190 850 N 580 450 E; de allí una recta hasta el punto de coordenadas 191 400 N 580 725 E (Cerro Mirador, 2025m.).
+A partir de este punto, el lindero continúa por la fila divisoria de aguas entre los ríos Pacuare (Jäcuy) Vereh (Bäré), pasando por los puntos de coordenadas siguientes:
+190 500 | N | 581 750 | E |
+191 150 | N | 582 300 | E |
+190 950 | N | 582 775 | E |
+191 200 | N | 584 025 | E |
+191 000 | N | 584 475 | E |
+190 580 | N | 584 850 | E | (Cerro Siru Bata. 2160m.)
+191 975 | N | 585 925 | E |
+192 340 | N | 586 750 | E |
+192 700 | N | 586 900 | E |
+193 410 | N | 587 925 | E | (fila Morado o Dyoldiqichey)
+De este punto, una recta a la naciente en el mapa de la quebrada Barreal (Doliri). en coordenadas 193 700 N 588 450E.
+De este punto, se sigue la quebrada Barreal aguas abajo hasta su confluencia con el rio Vereh (Báré). en coordenadas: 196 175 N 590 500 E.
+De allí se sigue aguas abajo el río Vereh (Báré), hasta la confluencia de la quebradilla Naqeri (sin nombre en el mapa y definida por curvas de nivel), en coordenadas 196 600 N 591 180 E.
+Se sigue la quebradilla Naqeri aguas arriba hasta su naciente y de allí al collado entre el Cerro Congo (Naqebata) y el alto "Los Naranjos", en San Rafael de Vereh, en coordenadas 197 600 N 590 400 E. De este punto, se sigue aguas abajo una quebradilla (sin nombre y definida por curvas de nivel), afluente del río San Rafael (Duchari) hasta su confluencia con este río, en coordenadas 198 250 N 590 050 E. de este punto se sigue el río San Rafael (Duchari) aguas abajo hasta su confluencia con el río Pacuare, en coordenadas 199 750 N 591 025 E. Se continúa aguas arriba por el río Pacuare hasta el punto de coordenadas 199 725 N 591 425 E.
+De allí a los puntos de coordenadas:
+200 125 | N | 591 425 | E |
+200 725 | N | 592 575 | E | (Carretera de La Suiza a Moravia)
+De este punto se sigue por la carretera de La Suiza a Moravia hasta un punto de Coordenadas 201 350 N 594 000 E. Se sigue con los puntos siguientes;
+201 000 | N | 594 100 | E |
+200 775 | N | 593 950 | E | (Naciente en el mapa de la quebrada Oso o Butsutsuri)
+Se sigue luego la quebrada Oso (Butsutsuri) aguas abajo hasta su confluencia con la quebrada Tiquires en coordenadas 199 675 N 593 575 E; se continúa por la quebrada Tiquires aguas arriba hasta su naciente en el mapa en coordenadas 200 400 N 594 575 E.
+De ahí al punto de coordenadas 200 290 M 595 050 E (fila divisoria de aguas entre los ríos Pacuare y Moravia). A partir de este punto, el límite de la reserva Indígena sigue una paralela a la línea divisoria de aguas entre los ríos Pacuare y Moravia (Xara), a veinticinco metros al norte y al este de esta línea divisoria, pasando por los puntos de coordenadas:
+200 110 | N | 595 250 | E
+199 725 | N | 595 200 | E
+199 150 | N | 595 360 | E
+198 375 | N | 596 725 | E
+De este punto, se aparta de la línea divisoria entre ríos Moravia y Pacuare, pasando por los puntos de coordenadas siguientes.
+198 160 | N | 597 650 | E |
+198 330 | N | 597 760 | E | (Río Shara o Xara)
+Se continúa aguas abajo por el río Shara (Xara), hasta la confluencia de la quebrada el Seis (Cälicuri), en coordenadas 198 825 N 597 300 E. Se sigue aguas arriba de la quebrada el Seis (Cälicuri). hasta el punto de coordenadas: 198 700 N 599 050 E.
+Se continúa por los puntos de coordenadas siguientes:
+199 175 | N | 599 225 | E |
+199 450 | N | 597 175 | E |
+200 540 | N | 597 325 | E |
+200 300 | N | 599 200 | E |
+200 500 | N | 599 300 | E | (Naciente en el mapa de un afluente de la quebrada Suita o Jugri)
+Se continua por este afluente aguas abajo hasta la confluencia con la quebrada Suita (Jugri), en coordenadas: 201 325 N 599 175 E.
+Se sigue aguas abajo por la quebrada Suita (Jugri), hasta el punto de coordenadas 201 550 N 598 890 E
+De este punto, se continua por los puntos de coordenadas siguientes:
+203 000 | N | 597 775 | E |
+203 000 | N | 596 600 | E |
+204 250 | N | 595 600 | E |
+204 100 | N | 594 800 | E |
+203 560 | N | 593 940 | E | (afluente del Rio Peje o Himari).
+Se sigue este afluente aguas abajo hasta el punto de coordenadas 203 675 N 593 500 E; se continúa por los puntos de coordenadas:
+203 150 | N | 592 425 | E |
+202 550 | N | 592 325 | E | (afluente de la quebrada Santubal)
+De allí se sigue el afluente aguas abajo hasta su confluencia con la quebrada Santubal, y luego continúa por la quebrada Santubal aguas-ábajo hasta su desembocadura en el río Pacuare (Jácuy), en coordenadas 203 650 N 589 225 E. De este punto se continua aguas abajo del rio Pacuare (Jácuy), hasta la confluencia de la quebrada Salpjuri o Gavilán (sin nombre en el mapa), en coordenadas 207 175 N 589 000 E.
+Se continúa aguas arriba por la quebrada Salpjuri hasta la desembocadura de una quebradilla sin nombre (definida por curva de nivel en el mapa, en coordenadas 208 460 N 590 600 E. Se sigue esta quebradilla aguas arriba hasta su naciente en la Fila Cartón (Namamey Dyulé). en coordenadas 209 300 N 590 525 E.
+De este punto se sigue la divisoria de aguas entre los ríos Pacuare y Barbilla (Fila Cartón), pasando por los puntos de coordenadas:
+209 675 | N | 590 425 | E | (Cerro, cota 1195m.)
+209 950 | N | 590 525 | E |
+De allí una recta hasta el punto de coordenadas 210 275 N 590 050 E. Luego se sigue una quebradilla (definida por curvas de nivel), hasta el punto de coordenadas 210 775 N 590 225 E (Cerro 1120m, Fila Cartón o Namaroey Dyulé)
+De este punto, se sigue exactamente por la fila divisoria de aguas entre los ríos Pacuare y Barbilla (Fila Cartón Namaroey Dyulé), pasando por los puntos de coordenadas:
+211 800 | N | 589 850 | E |
+211 800 | N | 589 625 | E |
+212 000 | N | 589 600 | E |
+212 350 | N | 589 700 | E | (Cerro1145m.)
+212 560 | N | 590 050 | E |
+212 900 | N | 589 950 | E |
+213 560 | N | 589 760 | E | (Cerro. 1169m.)
+A partir de este punto, el lindero es el limite común con la Reserva Indígena Cabécar de Nairi-Awari. y pasa por los puntos de coordenadas siguientes:
+214 050 | N | 591 125 | E | (Cerro.968m)
+214 430 | N | 591 850 | E | (Cerro Tsuli Bata, 1030m)
+214 450 | N | 593 075 | E | (Cerro Tsuli Bata. naciente del río Dantas o Nairi)
+A partir de este punto el limite de la Reserva Indígena Cabécar de Chirripó es el límite común con la Reserva Biológica de Barbilla.
+Se continúa con una recta hasta la naciente en el mapa de la quebrada Olotnina (Swewäri) en coordenadas 214 160 N 593 875 E
+De ahí se continua aguas abajo por la quebrada Olomina (Swewäri) hasta su confluencia con el río Barbilla, en coordenadas 212 900 N 596 450 E. De este punto, se sigue aguas arriba el río Barbilla hasta llegar a un punto de coordenadas 207 100 N 597 740 E.
+De allí una recta en dirección este franco, hasta el punto de coordenadas 207 100 N 599 040 E (Cerro.1180m). en la fila divisoria de aguas entre los ríos Moravia (Xara) y Barbilla.
+Se continúa por los puntos de coordenadas siguientes:
+207 325 | N | 598 950 | E |
+207 575 | N | 599 600 | E | ( Quebrada Qitarí).
+De allí se sigue la quebrada Qitari aguas abajo hasta su unión con el río Moravia (Xara), en coordenadas 207 200 M 600 625 E. De este punto, se sigue aguas abajo por el río Moravia (Xara) hasta el punto donde entra en el Lago Ayil. En coordenadas 209 500 N 604 600 E.
+De allí se sigue por la orilla Sur del Lago Ayil hasta el desagüe de este por la catarata Ayil, en coordenadas 209 400 N 606 160 E.
+Con este punto finaliza el limite común con la Reserva Biológica de Barbilla, y se inicia el límite común con la Reserva Indígena Cabécar de Bajo Chirripó.
+Se continúa aguas abajo por el río Moravia (Xara), hasta su confluencia con el rio Chirripó, en coordenadas 209 400 N 607 950 E, punto inicial de la descripción.
 (Así adicionados los límites de la Reserva Indígena Cabécar de Bajo Chirripó por el artículo 1° del decreto ejecutivo N° 21904 del 26 de diciembre de 1992)
+(Así reformado los límites de la Reserva Indígena Cabécar de Bajo Chirripó por el artículo 1° del decreto ejecutivo N° 21905 del 7 de enero de 1993)
 Para los efectos de la División Territorial Administrativa de la República, la Reserva Indígena Cabécar de Bajo Chirripó (Duchiiñac) se compone de los poblados, cuya lista oficial es la siguiente:
-1° NAMALDI
-Poblados: Namaldiñac. Jacsuleri, Cerro Azul, Tsäwitcäbe.
-2° PALMERA (CATSÄQIBI)
-Poblados: Bori, Mitagri.
-3° DYEY
-Poblados: Jalparcäri, Tjisbata
-4° TCUCÄLÄRI (Sirinachi)
-5° SASEYN
-Poblados: Dueri (Pozo azul), Olori, Jacagri, Saseyn Tawä
-6° NIMARI DE SASEYN
-Poblados: Tanaribla
+1- BÄYEY (o Boyey)
+Poblados: Bäyeyñac, Ñamatsä, Itöcala.
+2- XORDI (Alto Boyey)
+Poblados: Xinabla, Dyosbata, Conoari.
+3- XIQUIARI (Xiqiali)
+Poblados : Jaqiri, Tiritipey, Matsictey.
+4- ALIÜ XIQIARI (Xiqiari Tawä)
+Poblados: Jalärwäri, Calsir.
+5- ÑARI
+Poblados: Ñariftac, ñaritäwä, Jacsari.
+6- JÄBEY (Cucubäli)
+7- XULA DYÄCÄ
+8- BUCU (Tsutaubli)
+Poblados: Tsutsubii, Ducuri.
+9- SINOLI
+Poblados: Sinoli, Ñacläri.
+10-SIPEGRI
+Poblados: Sipegri, Pseclä
+11- CUEN DE ALTO CHIRRIPÓ
+Poblados: Bakche, Cwen.
+12- WIXCA BATA.
+Poblado: Joctäli.
+13- JAMO (Alto Chirripó)
+14- JAQI (Chirripó Arriba)
+Poblados: Jaqiñac, Calculäri, Dicariñac.
+15- TULESI
+16- BACABAO
+Poblados; Bacabao, Olori, Talari.
+17- XUQEBACHARI
+Poblados: Xuqebachari,' Sibova, Tcamacälä.
+18- JEDYUCUIARI
+19- ÑADOLORI
+Poblados: Talabata, Ñadolori, Koldi.
+20- BOLORI
+Poblados: Ineaqicha, Bichoctipey, Boloriftac.
+21- DIQECLÄRI
+Poblados: Ulutcäqicha, Dyoibe Tipey, Cobatey.
+22- TSIHECLÄRI
+Poblados, Tsiniqicha, Xafifey
+23- SARCÄLI
+Poblados: Sarcäli, Jonamari, Ulugri.
+24- JACPOPORI
+25- XARA-RYIL
+Poblados: Xara de Ayil, Ayil.
+26- TSIPIRI
+Poblados: Tsipiri, Cwari, Ducurdi, Cocotsacu.
+27- QUETZAL (Xara Täwä)
+Poblados: Namañactewäri. Cälicuri.
+28- XCWARI
+Poblados: Xcwariñac, Jacdolona. Jacqibi.
+29- NIMARI DE PACUARE
+Poblados: Nimariftac, Dorbata, Atimbata, Nait-sacuchichey.
+30- VALLE. ESCONDIDO (Cabäley Bälelewa).
+Poblados: Buqeri, Alto Barbilla.
+31- PACUARE O JÄCUY
+Poblados: Paso Marcos, Popodyäcäri, Simiri Sicbata, Dyari, Xarari, Bicolofitey, Dachari, Sabaktipey. Tipáká.
+32-PACUARE ARRIBA (Jäcuy Täwä)
+Poblados: Xaqeri, Talari, Dyodyori, Carar, Duclc, Casiriri, Nucheldi, Cunelwäqicha.
+33-ALTO PACUARE (Jäcuy Täwäsi)
+Poblados: Jalpa, Morao, Dyolibata, Payn, Xocwari, Boroy, Cucuri, Tsimari.
 (Así adicionados los poblados anteriores de la Reserva Indígena Cabécar de Bajo Chirripó por el artículo 1° del decreto ejecutivo N° 21904 del 26 de diciembre de 1992)
+(Así reformado los poblados de la Reserva Indígena Cabécar de Bajo Chirripó por el artículo 2° del decreto ejecutivo N° 21905 del 7 de enero de 1993)
 (*) Las áreas boscosas declaradas como "Zonas Protectoras" del bosque por el artículo 9° del Decreto 13391-G-A son parte integrante y propiedad de la Reserva Indígena Cabécar de Bajo Chirripó, y son sometidas al régimen forestal.
 Se trata del Cerro Itocälä (Matama), en el sur-sureste y la fila Doliqichey en el oeste (Colindante con Reserva Biológica Barbilla).
 Estas " Zonas Protectoras" constituyen Reservas Naturales Internas de la Reserva Indígena de Bajo Chirripó, destinadas a la protección de cuenca- hidrográficas, a servir de Reservas de Flora y Fauna, y como "Puentes" para la migración de animales entre las diferentes áreas de protección de la "Reserva de la Biósfera de la Amistad (R.B.A)"; no se podrá establecer fincas en estas áreas, ni alterar su carácter natural por prácticas inadecuadas tales como reforestaciones con especies no nativas.
 Los eventuales permisos de extracción maderera deberán contar con la debida autorización de la Dirección General Forestal, CONAI, y la comunidad indígena.
 (*) (Así adicionados los párrafos anteriores para la Reserva Indígena Cabécar de Bajo Chirripó por el artículo 4° del decreto ejecutivo N° 21904 del 26 de diciembre de 1992)
 (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 21904 del 26 de diciembre de 1992, e indicó que las fincas declaradas como Reserva Indígena por el artículo 6° del decreto 10706-G del 24 de octubre 1979 publicado en "La Gaceta" N° 210 de 8/11/1979, son parte de la Reserva Indígena Cabécar de Bajo Chirripó)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 21905 del 7 de enero de 1993, se estableció que las áreas boscosas declaradas como "Zonas Protectoras" del bosque por el artículo 9° del Decreto 13391-G-A, son parte integrante y propiedad de la Reserva Indígena de Chirripó, y son sometidas al régimen forestal.
+Se trata del cerro Itocälä (Matama), en el límite noreste de la Reserva; de los altos de la Fila de Hatama limítrofes con el parque Nacional La Amistad, a una altitud superior a 1600m. los cerros Ayil (Cerro Bola) y Balar Bata al noroeste; el Cerro Cabebata (Quetzal) y las cuencas del Xarari, en el centro de la Reserva, así como el bosque de Tsipiri- Vari cerca de Moravia.
+2- Además se agregan como " Zonas Protectoras" del bosque de la Reserva Indígena de Chirripó a las nuevas áreas siguientes:
+a) "Reserva forestal de Naqebata" (Cerro Congo), delimitada por el río Pacuare. el río Vereh, la Quebrada San Rafael y las dos quebradas que limitan la Reserva Indígena en el alto " Los Naranjos" en San Rafael de Vereh.
+b) "Reserva forestal de Selico Bata", área correspondiente a la fila entre los ríos Pacuare y Chirripó, a una altitud superior a los 1600m. y limitada al sur por la Fila del Cerro Burui y al norte por el Paso de Tulesi.
+c) Los cerros que rodean la llanura de Moravia (Cerros Cälbilicäbata. Tcamacälä, Cocotsacu, Cabebata).
+3- Todas estas "Zonas Protectoras" constituyen Reservas Naturales Internas de la Reserva Indígena de Chirripó, destinadas a la protección de cuencas hidrográficas, a servir de Reservas de Flora y Fauna, y como "Puentes" para la migración de animales entre las diferentes áreas de protección de la Reserva de la Biosfera de la Amistad (R.B.A.); no se podrá establecer fincas en estas áreas, ni alterar su carácter natural por prácticas inadecuadas tales como re forestaciones artificiales. Los eventuales permisos de extracción maderera deberán contar con la debida autorización de la Dirección General Forestal, CONAI y la comunidad indígena.)
 (*)Parcela No 1
 RESERVA INDÍGENA OSO - MOLEJONES (FINCA 5 CHIRRIPÓ)
 La Reserva Indígena Oso - Molejones se encuentra en la hoja del Instituto Geográfico Nacional, escala 1: 50 000, Chirripó 3545 III.
