@@ -1,8 +1,2 @@
-ARTICULO 12.- Corresponde al Ministerio de Recursos Naturales, Energía
-y Minas, fijar las pautas y las condiciones de cualquier naturaleza,
-tendentes a amparar el cumplimiento de los programas de control y
-recuperación ambiental de las centrales de limitada capacidad. En caso de
-que los concesionarios incumplan las condiciones fijadas por el Ministerio
-de Recursos Naturales, Energía y Minas, el Servicio Nacional de
-Electricidad, a solicitud de este ministerio, declarará la caducidad de la
-concesión.
+ARTICULO 12.- Corresponde al Ministerio de Recursos Naturales, Energía y Minas, fijar las pautas y las condiciones de cualquier naturaleza, tendentes a amparar el cumplimiento de los programas de control y recuperación ambiental de las centrales de limitada capacidad.
+En caso de que los concesionarios incumplan las condiciones fijadas por el Ministerio de Recursos Naturales, Energía y Minas, el Servicio Nacional de Electricidad, a solicitud de este ministerio, declarará la caducidad de la concesión.

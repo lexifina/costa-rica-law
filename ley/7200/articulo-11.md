@@ -1,25 +1,4 @@
-ARTICULO 11.- Para amparar el cumplimiento de los programas de control
-y de recuperación ambiental, el concesionario, al firmar el contrato de
-suministro, deberá acompañar una garantía incondicional de cumplimiento a
-favor del Ministerio de Recursos Naturales, Energía y Minas, equivalente al
-cuatro por ciento (4%) del valor del proyecto, durante el período de
-construcción de la obra, que se mantendrá vigente por un año contado a
-partir de la entrada en operación del proyecto.
-La garantía se reducirá a un monto equivalente a un uno por ciento
-(1%) del valor del proyecto y se mantendrá vigente durante todo el período
-de la concesión.
-Estos porcentajes podrán ser ajustados por el Ministerio de Recursos
-Naturales, Energía y Minas, de acuerdo con la cuantificación de daños
-potenciales que se determinen en el estudio del impacto ambiental.
-La garantía a que se refiere este artículo podrá ser emitida por
-cualquiera de los bancos del Sistema Bancario Nacional, o por el Instituto
-Nacional de Seguros, a satisfacción del Ministerio de Recursos Naturales,
-Energía y Minas, y podrá ser ejecutada, parcial o totalmente, por el citado
-ministerio, tan pronto se demuestre que se ha producido un daño y que éste
-no ha sido mitigado por el productor autónomo.
-El Ministerio de Recursos Naturales, Energía y Minas podrá efectuar
-correcciones, en forma directa y de oficio, o mediante contrato, en
-cualquier deterioro o daño ambiental que se origine con motivo de la
-concesión eléctrica otorgada.
-Si al término de la concesión la garantía no ha sido ejecutada, será
-devuelta parcial o totalmente, según corresponda.
+ARTICULO 11.- Para amparar el cumplimiento de los programas de control y de recuperación ambiental, el concesionario, al firmar el contrato de suministro, deberá acompañar una garantía incondicional de cumplimiento a favor del Ministerio de Recursos Naturales, Energía y Minas, equivalente al cuatro por ciento (4%) del valor del proyecto, durante el período de construcción de la obra, que se mantendrá vigente por un año contado a partir de la entrada en operación del proyecto. La garantía se reducirá a un monto equivalente a un uno por ciento (1%) del valor del proyecto y se mantendrá vigente durante todo el período de la concesión.
+Estos porcentajes podrán ser ajustados por el Ministerio de Recursos Naturales, Energía y Minas, de acuerdo con la cuantificación de daños potenciales que se determinen en el estudio del impacto ambiental. La garantía a que se refiere este artículo podrá ser emitida por cualquiera de los bancos del Sistema Bancario Nacional, o por el Instituto Nacional de Seguros, a satisfacción del Ministerio de Recursos Naturales, Energía y Minas, y podrá ser ejecutada, parcial o totalmente, por el citado ministerio, tan pronto se demuestre que se ha producido un daño y que éste no ha sido mitigado por el productor autónomo.
+El Ministerio de Recursos Naturales, Energía y Minas podrá efectuar correcciones, en forma directa y de oficio, o mediante contrato, en cualquier deterioro o daño ambiental que se origine con motivo de la concesión eléctrica otorgada.
+Si al término de la concesión la garantía no ha sido ejecutada, será devuelta parcial o totalmente, según corresponda.
