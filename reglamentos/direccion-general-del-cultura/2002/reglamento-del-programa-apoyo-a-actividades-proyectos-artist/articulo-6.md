@@ -1,0 +1,1 @@
+Artículo 6º—Las solicitudes de apoyo deben contar con el aval del Director Regional de Cultura correspondiente, según la ubicación geográfica del proyecto, la actividad o el grupo, con excepción de los proyectos o actividades de proyección nacional o internacional, que serán avalados directamente por la Dirección General de Cultura.

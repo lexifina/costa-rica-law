@@ -1,0 +1,1 @@
+Artículo 15.—El apoyo a las personas y grupos, por medio de transferencia se hará únicamente para el año 2002. Para el otorgamiento de apoyos en el futuro, la Dirección General de Cultura, estudiará el sistema a utilizar para el financiamiento del Programa.

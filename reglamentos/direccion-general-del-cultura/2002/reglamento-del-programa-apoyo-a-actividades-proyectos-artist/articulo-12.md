@@ -1,0 +1,2 @@
+Artículo 12.—Las personas y grupos pueden recibir apoyo sólo para un proyecto al año no podrán recibir apoyo por más de dos años consecutivos para la misma actividad o proyecto. lo anterior sin perjuicio de que, por su trascendencia y valor artístico-cultural, la Dirección General de Cultura, decida incluirlo en el Programa durante los periodos que estime oportuno y conveniente.
+Si un proyecto comprende varias actividades, se coordinará con los beneficiarios la asignación de los recursos para cada una de ellas.

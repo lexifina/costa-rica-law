@@ -1,0 +1,1 @@
+Artículo 9º—El apoyo se otorgará con cargo a la partida presupuestaria denominada Transferencias Corrientes, de tal manera que la transferencia de fondos se hará por medio de Factura de Gobierno. El participante deberá tener una cuenta en la entidad que se le indique, para el depósito de los fondos.

@@ -1,0 +1,1 @@
+Artículo 3º—Las personas físicas o grupos culturales interesados en recibir los beneficios del Programa Apoyo a Actividades y Proyectos Artístico-Culturales, deben presentar su solicitud por escrito, a la Dirección General de Cultura o a la Dirección Regional de Cultura. según la modalidad que corresponda.
