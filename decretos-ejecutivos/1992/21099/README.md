@@ -14,3 +14,4 @@ Crea Programa Nacional de Apoyo a la Micro y Pequeña Empresa (PRONAMYPE)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-03-20 | la propia norma |
+| 2 | 1992-03-30 | Decreto Ejecutivo 21188 (1992-03-30) |
