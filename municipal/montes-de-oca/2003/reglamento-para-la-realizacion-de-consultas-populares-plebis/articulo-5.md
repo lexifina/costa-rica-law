@@ -1,0 +1,4 @@
+Artículo 5º—Objetivo de la consulta popular. La consulta popular puede versar sobre cualquier asunto, siempre que se cumplan los siguientes requisitos:
+1. Que los asuntos a resolver sean de competencia municipal.
+2. Que el asunto a resolver no tenga un procedimiento debidamente reglado por la ley.
+3. Que el resultado de la consulta, pueda dar origen a un acto administrativo válido y eficaz de la autoridad municipal.
