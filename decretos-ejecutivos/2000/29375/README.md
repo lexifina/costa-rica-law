@@ -14,3 +14,4 @@ Reglamento a la Ley de Uso, Manejo y Conservación de Suelos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-21 | la propia norma |
+| 2 | 2001-08-21 | Decreto Ejecutivo 29884 (2001-08-21) |
