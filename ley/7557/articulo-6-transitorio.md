@@ -1,0 +1,1 @@
+TRANSITORIO VI.- El funcionario que, a la fecha de publicación de esta ley, tiene en propiedad el puesto de Director General de Aduanas, conservará los derechos adquiridos hasta tanto finalice su relación laboral con el Estado.
