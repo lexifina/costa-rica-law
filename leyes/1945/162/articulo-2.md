@@ -1,0 +1,1 @@
+Artículo 2º.- El párrafo final agregado al decreto Nº 80 de 13 de julio de 1944, al citar el Código de Trabajo, se refiere solamente a los casos de cesantía indemnizada y no afecta la vigencia del resto de las leyes que reforma.

@@ -1,0 +1,2 @@
+Artículo 3º.- Hasta el final del ejercicio fiscal corriente, y mientras no se dé el Presupuesto General que provea el servicio de pensiones de Correos, Telégrafos, Teléfonos y Radios Nacionales, amplíase en la suma necesaria para cubrir ese servicio, el presupuesto del Departamento de Gobernación, Partida 19.
+Casa Presidencial.-San José, a los diecisiete días del mes de agosto de mil novecientos cuarenta y cinco.
