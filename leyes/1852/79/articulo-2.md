@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-En consecuencia, los Alcaldes constitucionales, cuando conozcan de los delitos menores sobre injurias u otras faltas leves, se arreglarán a la ley de Administración de Justicia n° 41 de 4 de Noviembre de 1845, y a lo dispuesto en el Código general de la República.
