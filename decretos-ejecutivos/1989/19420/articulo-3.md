@@ -1,0 +1,1 @@
+Artículo 3°-Para acogerse a los beneficios de la Ley, las actividades del beneficiario sea este persona física o jurídica deben estar contempladas dentro de lo que se ha señalado en el artículo 2° de este Reglamento.

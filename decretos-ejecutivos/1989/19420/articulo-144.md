@@ -1,0 +1,1 @@
+Artículo 144.-EI Consejo Nacional de Producción incluirá en cada venta del maíz, sorgo u otros granos destinados a la fabricación de concentrados para animales. materias primas de origen nacional provenientes de aprovechamiento industrial de desechos o residuos agrícolas o pecuarios. siempre y cuando sea técnicamente viable para cada caso en particular.

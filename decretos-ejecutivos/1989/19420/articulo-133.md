@@ -1,0 +1,1 @@
+Artículo 133.-En aquellos cantones donde existan grupos organizados de productores agropecuarios, legalmente constituidos, estos podrán designar en conjunto hasta dos representantes para integrar la Junta Directiva del Centro Agrícola Cantonal. En el caso de existir un sólo grupo organizado, podrá designarse un solo representante ante la Junta Directiva del Centro Agrícola.

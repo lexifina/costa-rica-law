@@ -1,0 +1,1 @@
+Artículo 132.-Para la integración de la Junta Directiva de los Centros Agrícolas Cantonales, en aquellos cantones donde existan más de una agencia o sucursales de bancos comerciales del Estado, estos estarán obligados, para que de común acuerdo entre ellos, nombren el representante ante la Junta Directiva del Centro Agrícola Cantonal.

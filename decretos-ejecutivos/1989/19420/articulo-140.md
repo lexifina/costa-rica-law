@@ -1,0 +1,1 @@
+Artículo 140.-Los grupos organizados de productores serán beneficiarios de la extensión agrícola previa firma de convenios con el Ministerio de Agricultura y Ganadería, para concretar los alcances de la misma.

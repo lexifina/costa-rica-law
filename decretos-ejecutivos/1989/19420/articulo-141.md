@@ -1,0 +1,1 @@
+Artículo 141.-Para la ejecución de las actividades antes descritas el Ministerio podrá solicitar y recibir la colaboración de instituciones del sector público y coordinar asistencia técnica y tecnológica con organismos especializados en la materia de carácter internacional.

@@ -1,0 +1,2 @@
+Artículo 25.-El adiestramiento del personal de SEPSA es atribución exclusiva del Ministro de Agricultura y Ganadería y el Director Ejecutivo de SEPSA. Para tal fin SEPSA atenderá lo establecido por el Estatuto del Servicio Civil en esta materia.
+El personal técnico y administrativo de carácter regular de SEPSA será nombrado por el Ministro de Agricultura y Ganadería. atendiendo la recomendación del Director Ejecutivo de SEPSA.
