@@ -1,0 +1,1 @@
+Art. 3. En este momento se pasará conocimiento del presente decreto al Señor General en Jefe DEL Ejército, para que, á la mayor brevedad, se le dé el mas estricto cumplimiento. –Dado en San José, a tres de Enero de mil ochocientos cuarenta y tres. –José Maria Alfaro. –Al Ministro general del Despacho, Señor Doctor José María Castro.
