@@ -13,3 +13,4 @@ Poder Ejecutivo nombra Juntas Directivas de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1948-06-01 | la propia norma |
+| 2 | 1952-04-08 | Decreto Ejecutivo 389 (1952-04-08) |

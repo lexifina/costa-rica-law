@@ -1,4 +1,6 @@
+(Derogado)
 N° 106.- San José, 1 de junio de 1948
+(Este decreto fue derogado por el artículo 2° del decreto ejecutivo N° 389 del 8 de abril de 1952)
 EL PRESIDENTE DE LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Por Cuanto:
 Es preciso simplificar todo lo posible el mecanismo de las Juntas .de Protección Social, y de unificar el sistema en el nombramiento de las Juntas Directivas de estas Instituciones,
