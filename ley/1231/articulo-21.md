@@ -1,0 +1,1 @@
+Artículo 21.—Ocurrido el fallecimiento de un mutualista, el Presidente de la Directiva girará la suma de quinientos colones a la persona que hubiere designado el mutualista y a falta de designación, a la sucesión en la persona del albacea, pudiendo autorizar en algunos casos especiales un adelanto de doscientos colones.

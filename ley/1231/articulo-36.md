@@ -1,0 +1,1 @@
+Artículo 36.—Las penas de los incisos c), d) y e), sólo se impondrán a los reincidentes, y las señaladas en los incisos a) y b) quedan al prudente arbitrio del Tribunal de Honor según la gravedad de la falta cometida y las circunstancias del acusado.

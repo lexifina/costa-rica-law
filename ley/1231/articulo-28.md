@@ -1,0 +1,1 @@
+Artículo 28.—El cargo de colegiado consultor es gratuito, pero los dictámenes pueden excepcionalmente ser remunerados, y la Directiva del Colegio juzgará cuando sea el caso hacerlo, con los fondos de la Tesorería. Cuando el interesado sea un particular, deberá siempre costear el dictamen y depositar su valor adelantado, a indicación de la Directiva.
