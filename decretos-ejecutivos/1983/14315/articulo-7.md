@@ -1,0 +1,1 @@
+Artículo 7°-Cuando el beneficio por ocupar casa o habitación cedida por la Corte fuere igual o superior al monto de lo que corresponda al servidor por zonaje, no se le reconocerá suma alguna por este concepto.

@@ -1,0 +1,1 @@
+Artículo 2°-La suma por concepto de zonaje se pagará a los empleados o funcionarios judiciales que presten servicio en algunos de los lugares a que se refiere el mencionado articulo 8, siempre que, con motivo del cargo que desempeñan, hayan tenido que trasladar su residencia habitual a ese lugar.
