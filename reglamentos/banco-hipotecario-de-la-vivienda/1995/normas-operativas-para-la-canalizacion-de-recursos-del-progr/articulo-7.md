@@ -1,0 +1,1 @@
+Artículo 7°—El BANHVI remitirá con las observaciones que considere pertinentes, el pronunciamiento a que se hace referencia en el artículo anterior con el fin de que se proceda con la formulación del anteproyecto definitivo o se realicen las correcciones requeridas.

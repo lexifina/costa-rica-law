@@ -1,0 +1,1 @@
+Artículo 14.—Aprobado el crédito por el BCIE, se procederá a la suscripción de un convenio de financiamiento interinstitucional, BANHVI-BCIE en el que se establecerán las condiciones financieras del crédito según los lineamientos del BCIE.

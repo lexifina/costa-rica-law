@@ -1,0 +1,2 @@
+Artículo 20.— A partir del inicio de la ejecución de las obras y hasta su finalización. La entidad autorizada deberá presentar al BANHVI, informes trimestrales sobre el grados de ejecución de las obras del proyecto en desarrollo.
+Adicionalmente, luego de concluido e' proyecto la entidad autorizada deberá presentar informes con la misma periodicidad, de la recuperación que se esta llevando a cabo del crédito otorgado-

@@ -1,0 +1,1 @@
+Artículo 22.—En los casos en que existan cofinanciamiento para el desarrollo de los proyectos estos recursos deberán girarse en su totalidad, antes de girar los correspondientes a los fondos de PROMUNI.

@@ -1,0 +1,1 @@
+Artículo 13.—Cumplido satisfactoriamente el procedimiento descrito en el artículo anterior el BANHVI solicitará formalmente al BCIE, la totalidad del financiamiento requerido para la ejecución del proyecto.

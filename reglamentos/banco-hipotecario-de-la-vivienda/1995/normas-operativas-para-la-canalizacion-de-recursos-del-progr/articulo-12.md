@@ -1,0 +1,4 @@
+Artículo 12.—Para efectos de otorgar la elegibilidad corresponde al BANHVI la verificación de que exista evidencia razonable de:
+a) Que la entidad este protegida adecuadamente, de manera que cuente con garantías suficientes que la respalden ante un eventual incumplimiento en el pago de las obligaciones.
+b) Que en el caso de existir cofinanciamiento adicional por parte de la entidad autorizada, otras instituciones o la comunidad beneficiaría, se identifique claramente la fuente de los recursos.
+c) Que el proyecto cumple con la filosofía, objetivos y metas requeridas por el Programa, en cuanto a que se trata de una obra que satisfaga una necesidad de infraestructura, que la comunidad haya participado en la elección del proyecto y que no exista impacto ambiental negativo en el medio ambiente.

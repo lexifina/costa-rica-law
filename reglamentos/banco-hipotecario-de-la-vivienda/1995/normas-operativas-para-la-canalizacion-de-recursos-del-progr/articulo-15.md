@@ -1,0 +1,1 @@
+Artículo 15.—Paralelo al acto descrito en el artículo anterior, el BANHVI suscribirá otro convenio con la entidad autorizada respectiva, con el fin de pactar las condiciones de la operación que regirán la canalización de los recursos del BANHVI hacia la entidad.

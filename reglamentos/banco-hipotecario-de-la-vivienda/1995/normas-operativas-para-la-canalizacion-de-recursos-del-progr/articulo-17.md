@@ -1,0 +1,1 @@
+Artículo 17.—Corresponderá a la Junta Directiva del BANHVI, la definición de los márgenes de intermediación de este Banco y de las entidades autorizadas sobre los recursos del Programa. Asimismo, la determinación del sistema que regirá la canalización de recursos del BANHVI a las entidades autorizadas.

@@ -1,0 +1,1 @@
+Artículo 11.—El proyecto aprobado será presentado por la entidad autorizada, ante la Junta Directiva del BANHVI, con el propósito de que este determine su elegibilidad o no para optar al financiamiento del Programa PROMUNI-BANHVI.

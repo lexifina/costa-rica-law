@@ -1,0 +1,1 @@
+Artículo 10.—Los proyectos definitivos podrán ser presentados por cualquier entidad autorizada aún cuando no haya sido la entidad autorizada proponente la que aprobara el anteproyecto. Para estos efectos, la entidad autorizada proponente deberá demostrar la anuencia del ente que otorgó la preelegibilidad.

@@ -1,0 +1,1 @@
+Artículo 5°—Otorgada la preelegibilidad, la entidad autorizada comunicará al BANHVI las características generales del proyecto informándole del monto requerido de recursos y el plazo estimado en que se solicitarán.

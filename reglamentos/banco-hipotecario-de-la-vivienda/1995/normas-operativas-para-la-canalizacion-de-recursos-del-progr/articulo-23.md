@@ -1,0 +1,2 @@
+Artículo 23. —Corresponde a la entidad autorizada la obligación de llevar a cabo un adecuado seguimiento de la ejecución de los proyectos y el buen uso de los recursos.
+Aún cuando el BANHVI no tendrá una vinculación directa con los proyectos financiados esta situación no lo limitará a darles el seguimiento que considere oportuno y tomar las acciones que juzgue necesarias, de conformidad con las potestades que le otorgan la Ley del SFNV y sus Reglamentos.

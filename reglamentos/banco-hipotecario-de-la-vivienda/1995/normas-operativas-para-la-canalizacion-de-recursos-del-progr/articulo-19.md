@@ -1,0 +1,1 @@
+Artículo 19.—Con anterioridad a otorgar el financiamiento, el BCIE si así lo estima conveniente, solicitará al BANHVI la indicación de que no existe inconveniente de su parte, para financiar el proyecto por medio de la entidad que lo aprobó.

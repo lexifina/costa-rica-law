@@ -1,0 +1,1 @@
+Artículo 16.—El contrato que suscriba el BANHVI con la entidad autorizada es totalmente independiente, del que a su vez esta con la Municipalidad , de forma tal que !a entidad deberá cumplir sus obligaciones con el BANHVI, con entera independencia del resultado de su contrato con el Municipio.
