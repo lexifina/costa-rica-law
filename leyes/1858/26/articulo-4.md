@@ -1,0 +1,2 @@
+Art 4° En los términos consignados en los artículos anteriores queda formado el artículo 13 de la sección 3° del Reglamento de Hacienda, publicado en 30 de julio del corriente.
+Al Supremo Poder Ejecutivo. - Dado en el Salón de Sesiones en San José, a los diezsiete días del mes de Sesiones en San José, a los diezsiete días del mes de Setiembre de mil ochocientos cincuenta y ocho. Por tanto, Ejecútese.
