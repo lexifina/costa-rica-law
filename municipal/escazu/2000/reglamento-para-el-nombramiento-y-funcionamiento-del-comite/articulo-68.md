@@ -1,0 +1,1 @@
+Articulo 68.—Prohibiciones. Los concejales, el alcalde, los alcaldes suplentes, el director financiero, tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, están inhibidos para integrar estos comités.

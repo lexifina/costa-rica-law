@@ -1,0 +1,2 @@
+Articulo 73.—Clasificación de instalaciones. Las instalaciones deportivas serán clasificadas por el Comité Cantonal, en categorías de acuerdo con la infraestructura de éstas, también regulará el uso de las mismas por los usuarios, de acuerdo con el tipo de actividad que realicen.
+Con sustento en este ordenamiento se definirán las tarifas por derecho de uso de las instalaciones y el periodo que abarca dicha cuota.

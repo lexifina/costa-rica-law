@@ -1,0 +1,1 @@
+Articulo 26.—Superior Jerárquico. El Concejo Municipal es el órgano superior jerárquico de EL COMITÉ, excepto en las materias para las cuales el Comité Cantonal goce de personería instrumental, donde la Jerarquía impropia recaerá en el órgano o ente que disponga la Ley.

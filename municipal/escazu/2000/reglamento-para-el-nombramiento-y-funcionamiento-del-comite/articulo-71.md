@@ -1,0 +1,5 @@
+Articulo 71. —Presentación de los Planes de trabajo. En la segunda semana del mes de mayo de cada año, los Corniles Comunales harán entrega al Comité Cantonal del documento que contenga los planes de trabajo para el año inmediato posterior, los cuales, serán aprobados por el Comité Cantonal o devueltos sin aprobar en el lapso de cinco días al Comité Comunal para la Formulación de una nueva propuesta o para corregir el presentado inicialmente, según corresponda. Será competencia del Comité Cantonal implementar los procedimientos y controles para la ejecución de dichos planes.
+CAPÍTULO VI
+De las instalaciones
+Articulo 71.—Delegación de administración El Comité Cantonal será el administrador general de las instilaciones deportivas públicas del Cantón y podrá delegar en Juntas Administrativas, Comités Comunales y Asociaciones Deportivas; la administración y mantenimiento de campos o centros deportivos existentes en su jurisdicción.
+(NOTA DEL SINALEVI: En la publicación de este reglamento municipal, se consignó el artículo 71 dos veces.)

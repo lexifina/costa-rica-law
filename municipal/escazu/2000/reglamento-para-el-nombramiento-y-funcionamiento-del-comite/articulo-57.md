@@ -1,0 +1,1 @@
+Artículo 57.—Del destino de los recursos. Los recursos del Comité Cantonal solamente se podrán invertir en obras, actividades y/o servicios, de interés deportivo y/o recreativo para el Cantón de Escazú, así como en la capacitación, promoción y participación de atletas, entrenadores, árbitros y dirigentes escazuceños.

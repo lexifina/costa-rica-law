@@ -1,0 +1,1 @@
+Articulo 10. Personería Jurídica Instrumental. EL COMITÉ de conformidad con lo que establece el articulo 164 del Código Municipal, cuenta con personería jurídica únicamente para el cumplimiento de los fines que la Iey le otorgue. La certificación de personería será extendida por la Secretaría Municipal.

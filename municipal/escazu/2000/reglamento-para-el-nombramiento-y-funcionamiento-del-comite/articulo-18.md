@@ -1,0 +1,1 @@
+Artículo 18.—Selección y nombramiento. Una vez remitido el informe final de la Comisión de Cultura y Deportes, y en la sesión ordinaria inmediata siguiente, el Concejo Municipal conocerá del mismo, así como de las ternas recibidas, pudiendo acogerse o no a la recomendación de la Comisión, procediendo a seleccionar a aquellas personas que considere idóneas para integrar EL COMITÉ.

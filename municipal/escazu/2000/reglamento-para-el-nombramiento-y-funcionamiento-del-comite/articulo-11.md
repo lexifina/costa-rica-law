@@ -1,0 +1,1 @@
+Articulo 11.—Domicilio Legal. El domicilio legal de EL COMITÉ será su Oficina ubicada en los altos del Estadio Municipal Nicolás Macis, en el Distrito de San Amonio, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la Junta Directiva.

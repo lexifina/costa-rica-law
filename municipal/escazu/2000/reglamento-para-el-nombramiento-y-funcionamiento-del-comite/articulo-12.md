@@ -1,0 +1,1 @@
+Articulo 12.—De la responsabilidad. A los miembros de EL COMITÉ se les aplicarán las normas de responsabilidad establecidas en los articules 190 siguientes y concordantes de la Lev General de la Administración Pública.

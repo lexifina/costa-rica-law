@@ -1,0 +1,1 @@
+Articulo 40.—De las resoluciones. Las resoluciones que tome EL COMITÉ en las sesiones, se denominarán acuerdos o fallos. Son fallos todas aquellas resoluciones que resuelvan controversias o contengan un juicio de valor, siendo acuerdos lodos los demás.
