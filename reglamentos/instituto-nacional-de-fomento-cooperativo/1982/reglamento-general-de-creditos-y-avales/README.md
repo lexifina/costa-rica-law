@@ -14,3 +14,4 @@ Reglamento General de Créditos y Avales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-22 | la propia norma |
+| 2 | 1986-02-13 | Reglamento 1520 (1986-02-13) |
