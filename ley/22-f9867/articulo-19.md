@@ -1,0 +1,2 @@
+Art. 19.-El Capitán ó Sobrecargo de todo buque que quiera descargar, deberá pedir permiso al Administrador del Depósito, dentro de las primeras cuarenta y ocho horas de la llegada. Tanto la solicitud como la licencia deberán hacerse por escrito.
+§ único. Si el buque no ha de descargar, se notificará al Capitán que debe partir las setenta y dos horas contadas desde aquella en que hizo su entrada, exepto en los casos de arribada forzosa, avería evidente ú otra grave necesidad ó circunstancia, que exija mayor tiempo de permanencia, +á juicio del Administrador del Depósito.

@@ -1,0 +1,2 @@
+Art. 17.-Los buques que hallándose en las casos previstos en los artículos 10 y 11, no trajeren el sobordo del cargamento que intenten desembarcar, deberán formular por duplicado dicho documento, el cual será certificado por el Administrador del Depósito, quien exigirá del Capitán ó Sobrecargo diez pesos por cada certificación.
+Único. -El Administrador exigirá además al Capitán ó Sobrecargo, los documentos que determina el artículo 8°.

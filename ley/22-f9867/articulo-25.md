@@ -1,0 +1,1 @@
+Art. 25.-Cuando se compruebe fraude ó contrabando en algún cargamento pedido, además de las penas á que la Ley y por este reglamento están sujetos esos delitos, el Administrador del Depósito tomara nota del nombre del introductor del comisionista, para hacerle abrir en lo sucesivo todos sus cargamentos.

@@ -1,0 +1,1 @@
+Art. 10. Cuando un buque viniere de escala, para desembarcar sólo una parte de su cargamento, se cancelará al Capitán ó sobrecargo un término que no pase de veinticuatro horas, para que presente el manifiesto por mayor de lo que intenta desembarcar.

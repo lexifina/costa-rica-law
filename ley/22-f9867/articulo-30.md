@@ -1,0 +1,1 @@
+Art. 30. – La designación de 1°. Y 2°. Anotador no establece entre ellos categorías: ambos tienen iguales deberes; pero la distribución de sus quehaceres iguales deberes; pero la distribución de sus quehaceres, además de lo prevenido en este Reglamento, la fijará el Administrador. Otro tanto sucede con los Guardas.

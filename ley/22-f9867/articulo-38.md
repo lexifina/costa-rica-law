@@ -1,0 +1,1 @@
+Art. 38-Los casos de contrabando previstos serán castigados con declaración de comiso; y los casos de introducción, expendio internación de mercaderías de ilícito comercio serán castigados con las disposiciones generales que rigen sobre la materia, y las que en lo sucesivo rigieren.
