@@ -1,0 +1,138 @@
+Nº 31305-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las facultades que les confieren los artículos 140 incisos 3) y 18), y 146 de la Constitución Política; 27 de la "Ley General de la Administración Pública", así como lo dispuesto en las Leyes Nº 8131 "Ley de la Administración Financiera de la República y Presupuestos Públicos" del 18 de setiembre del 2001 y su reglamento y N° 8341 del 9 de diciembre del 2002, y el Decreto Ejecutivo Nº 30906-H del 12 de diciembre del 2002.
+Considerando:
+1º—Que el inciso b), del artículo 45º de la Ley Nº 8131 Ley de la Administración Financiera de la República y Presupuestos Públicos, publicada en La Gaceta Nº 198 del 16 de octubre del 2001, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo artículo, de acuerdo con la reglamentación que se dicte para tal efecto.
+2º—Que mediante Decreto Ejecutivo Nº 30906-H, publicado en La Gaceta Nº 251 del 30 de diciembre del 2002, se establece la normativa técnica, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3º—Que el Decreto en referencia, autoriza al Ministerio de Hacienda, a realizar modificaciones presupuestarias dentro de un mismo programa o subprograma, para atender la adecuación de los recursos presupuestarios a la programación, mediante traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratare, sin modificar el monto total de los recursos asignados al programa o subprograma.
+4º—Que el Ministerio de Seguridad Pública solicitó la confección del presente decreto, mediante oficios 1658-2003 DM y 1977-2003 DM del 24 de junio del 2003 y 11 de julio del 2003 respectivamente, para lo cual cumplió con lo dispuesto en la normativa técnica y legal vigente.
+5º—Que se hace necesario modificar el presupuesto del Ministerio, con el propósito de ajustarlo a sus necesidades presentes, para el mejor cumplimiento de sus objetivos y metas, así como para posibilitar su ejecución, sin que la modificación implique cambios en la programación presupuestaria. Por tanto:
+Decretan:
+Artículo 1º—Modifícase el artículo 2º de la Ley Nº 8341 publicada en La Gaceta Nº 251 Alcance Nº 93 del 30 de diciembre del 2002, en la forma que se indica a continuación:
+REBAJAR:
+TÍTULO: 108
+Ministerio de Seguridad Pública
+PROGRAMA: 089-00
+ACTIVIDAD CENTRAL
+Registro Contable: 108-089-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 215.000
+190 01 112 14 SERVICIOS ADUANEROS 215.000
+3 MAQUINARIA Y EQUIPO 3.826.028
+340 27 221 14 EQUIPO PARA COMUNICACIONES 500.000
+350 27 221 14 EQUIPO EDUCACIONAL. 3.326.028
+TOTAL REBAJA DEL PROGRAMA: 089-00 4.041.028
+PROGRAMA: 098-00
+POLICÍA ANTIDROGAS
+Registro Contable: 108-098-00
+1 SERVICIOS NO PERSONALES 2.675.000
+102 01 112 14 ALQUILER DE EDIF. Y TERRENOS 1.700.000
+132 01 112 14 GASTOS DE VIAJE EN EL EXTERIOR 600.000
+142 01 112 14 TRANSP. DE O PARA EL EXTERIOR 375.000
+2 MATERIALES Y SUMINISTROS 3.300.000
+254 01 112 14 PROD. METAL. PARA LA CONSTR. 285.000
+259 01 112 14 OTROS MATERIALES DE CONSTRUC. 1.315.000
+299 01 112 14 OTROS MATERIALES Y SUMINISTROS 1.700.000
+6 TRANSFERENCIAS CORRIENTES 1.000.000
+604 01 131 14 BECAS (PARA CAPACITAR Y
+PREPARAR AL PERSONAL DEL
+PROGRAMA EN LA LUCHA
+CONTRA EL NARCOTRÁFICO.
+ESTOS RECURSOS SERÁN UTILI-
+ZADOS ÚNICA Y EXCLUSIVAMENTE
+EN EL FINANCIAMIENTO DE BECAS
+APROBADAS ANTES DE
+LA VIGENCIA DE ESTA LEY,
+POR LO QUE NO SE
+FINANCIARAN NUEVAS BECAS
+A FUNCIONARIOS) 1.000.000
+TOTAL REBAJA DEL PROGRAMA: 098-00 6.975.000
+PROGRAMA: 107-00
+SEGURIDAD CIUDADANA
+Registro Contable: 108-107-00
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 87.000.000
+102 01 112 14 ALQUILER DE EDIF. Y TERRENOS 30.000.000
+172 01 112 14 MANTEN.Y REPAR.MOBIL.Y EQ.OFI. 10.000.000
+174 01 112 14 MANTEN. Y REPAR. MAQUIN.Y EQ. 22.000.000
+182 01 112 14 MANTEN. Y REPAR. DE EDIFICIOS 20.000.000
+199 01 112 14 OTROS SERVICIOS NO PERSONALES 5.000.000
+2 MATERIALES Y SUMINISTROS 38.500.000
+206 01 112 14 OTROS COMBUST. GRASAS Y LUBRIC. 8.000.000
+212 01 112 14 MEDICINAS 2.000.000
+252 01 112 14 CEMENTO 1.000.000
+258 01 112 14 MADERA 5.000.000
+259 01 112 14 OTROS MATERIALES DE CONSTRUC. 5.000.000
+260 01 112 14 INSTRUM. HERRAMIENT. Y OTROS 2.000.000
+282 01 112 14 ÚTILES Y MATERIALES DE OFICINA 1.500.000
+284 01 112 14 ÚTILES Y MATERIAL DE LIMPIEZA 4.000.000
+286 01 112 14 OTROS ÚTILES Y MATER. ESPECIF. 5.000.000
+299 01 112 14 OTROS MATERIALES Y SUMINISTROS 5.000.000
+6 TRANSFERENCIAS CORRIENTES 50.000.000
+602 01 131 14 PRESTACIONES LEGALES 50.000.000
+TOTAL REBAJA DEL PROGRAMA: 107-00 175.500.000
+PROGRAMA: 109-00
+SEGURIDAD TERRITORIAL
+SUBPROGRAMA/PROYECTO: 02
+VIGILANCIA AÉREA
+Registro Contable: 108-109-02
+2 MATERIALES Y SUMINISTROS 400.000
+254 01 112 14 PROD. METAL. PARA LA CONSTR. 400.000
+TOTAL REBAJA DEL SUB
+PROGRAMA/PROYECTO: 109-02 400.000
+TOTAL REBAJA DEL PROGRAMA: 109-00 400.000
+TOTAL REBAJA DEL TÍTULO: 108 186.916.028
+TOTAL REBAJAR 186.916.028
+AUMENTAR:
+TÍTULO: 108
+Ministerio de Seguridad Pública
+PROGRAMA: 089-00
+ACTIVIDAD CENTRAL
+Registro Contable: 108-089-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 15.000
+124 01 112 14 SERVICIO DE CORREOS 15.000
+2 MATERIALES Y SUMINISTROS 200.000
+299 01 112 14 OTROS MATERIALES Y SUMINISTROS 200.000
+3 MAQUINARIA Y EQUIPO 3.826.028
+310 27 221 14 EQUIPO Y MOBILIARIO DE OFICINA 3.826.028
+TOTAL AUMENTO DEL
+PROGRAMA: 089-00 4.041.028
+PROGRAMA: 098-00
+POLICÍA ANTIDROGAS
+Registro Contable: 108-098-00
+1 SERVICIOS NO PERSONALES 975.000
+134 01 112 14 GASTO DE VIAJE DENTRO DEL PAÍS 975.000
+2 MATERIALES Y SUMINISTROS 6.000.000
+202 01 112 14 GASOLINA 6.000.000
+TOTAL AUMENTO DEL
+PROGRAMA: 098-00 6.975.000
+PROGRAMA: 107-00
+SEGURIDAD CIUDADANA
+Registro Contable: 108-107-00
+1 SERVICIOS NO PERSONALES 20.000.000
+122 01 112 14 TELECOMUNICACIONES 10.000.000
+126 01 112 14 ENERGÍA ELÉCTRICA 10.000.000
+2 MATERIALES Y SUMINISTROS 155.500.000
+202 01 112 14 GASOLINA 128.500.000
+214 01 112 14 OTROS PRODUCTOS QUÍMICOS 5.000.000
+270 01 112 14 REPUESTOS 22.000.000
+TOTAL AUMENTO DEL
+PROGRAMA: 107-00 175.500.000
+PROGRAMA: 109-00
+SEGURIDAD TERRITORIAL
+SUBPROGRAMA/PROYECTO: 02
+VIGILANCIA AÉREA
+Registro Contable: 108-109-02
+G-O FF C-E CF I-P Concepto Monto en ¢
+2 MATERIALES Y SUMINISTROS 400.000
+259 01 112 14 OTROS MATERIALES DE CONSTRUC. 400.000
+TOTAL AUMENTO DEL
+SUBPROGRAMA/PROYECTO: 109-02 400.000
+TOTAL AUMENTO DEL
+PROGRAMA: 109-00 400.000
+TOTAL AUMENTO DEL TÍTULO: 108 186.916.028
+TOTAL AUMENTAR 186.916.028
