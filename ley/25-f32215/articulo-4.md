@@ -1,0 +1,1 @@
+Art. 4°. -Durante el día estará enarbolado, en todos los edificios públicos, el pabellón nacional; y se invitara al Cuerpo Diplomático y Consular para que sean enarbolados asimismo los pabellones de las diferentes naciones que representan los individuos que componen aquel Cuerpo, en las respectivas residencias de éstos.
