@@ -13,3 +13,4 @@ Reglamento sobre Manejo de Basuras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-07-07 | la propia norma |
+| 2 | 1989-07-07 | SINALEVI (sin norma nombrada) |
