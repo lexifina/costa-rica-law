@@ -1,0 +1,1 @@
+Art 3° Los terrenos de particulares que se encuentren dentro de esta área protegida serán adquiridos por el Estado, conforme con el monto que determinen los avalúas que al efecto realizará la Dirección General de Tributación Directa.
