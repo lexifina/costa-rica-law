@@ -1,0 +1,1 @@
+Artículo 12.—Los miembros del Tribunal de Elecciones con más de tres ausencias continuas a sesiones o cinco ausencias alternas que hayan sido debidamente convocadas, quedarán excluidos y serán sustituidos por el tiempo que le reste de su nombramiento.

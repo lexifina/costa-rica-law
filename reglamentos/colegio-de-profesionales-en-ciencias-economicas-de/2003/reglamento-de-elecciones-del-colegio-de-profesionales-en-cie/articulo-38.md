@@ -1,0 +1,1 @@
+Artículo 38.—Cada junta receptora recibirá del Tribunal de Elecciones, la papelería necesaria para el proceso electoral. Deberá llevar una acta electoral, donde se deberán consignar la apertura, votos públicos, entrega de papeletas adicionales, demás incidencias y el cierre de la votación.

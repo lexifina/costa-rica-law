@@ -1,0 +1,1 @@
+Artículo 16.—El padrón provisional deberá estar expuesto a los interesados por lo menos un mes calendario de antelación a la fecha de elecciones. Esta responsabilidad recaerá en la Dirección Ejecutiva del Colegio.

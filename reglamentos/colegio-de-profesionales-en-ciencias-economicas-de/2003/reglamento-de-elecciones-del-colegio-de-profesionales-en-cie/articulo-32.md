@@ -1,0 +1,1 @@
+Artículo 32.—Para cada situación que se suscite en la mesa, se resolverá por simple mayoría. El Presidente de la mesa en caso de empate tendrá que pedirle al Presidente del Tribunal de Elecciones que defina.

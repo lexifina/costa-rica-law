@@ -1,0 +1,1 @@
+Artículo 43.—Cerrado el período de elección, cada junta receptora procederá a anotar en el acta de la mesa, el número de papeletas recibidas, el número de electores que votaron y el número de papeletas que no fueron utilizadas. La junta receptora entregará todo este material al Tribunal de Elecciones para el escrutinio final.

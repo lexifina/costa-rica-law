@@ -1,0 +1,1 @@
+Artículo 25.—Los candidatos podrán realizar proselitismo y propaganda para su elección, tales como charlas, mesas redondas, reuniones y publicaciones en los diversos medios de comunicación colectiva, entre otros, de conformidad con las disposiciones que en cada caso emita el Tribunal de Elecciones.

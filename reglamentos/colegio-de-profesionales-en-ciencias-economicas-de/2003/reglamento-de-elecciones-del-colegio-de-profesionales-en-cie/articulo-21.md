@@ -1,0 +1,1 @@
+Artículo 21.—El Tribunal de Elecciones, en coordinación con la Oficina de Fiscalía, verificará que los aspirantes cumplan con los requisitos a que se refiere el artículo 5 de este Reglamento, para participar en el proceso electoral.

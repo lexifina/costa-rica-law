@@ -1,0 +1,1 @@
+Artículo 35.—Al ser la hora fijada para la conclusión de la votación, el Tribunal de Elecciones cerrará el recinto de votación y sólo se permitirá votar a los miembros activos que ya se encuentren dentro de éste.

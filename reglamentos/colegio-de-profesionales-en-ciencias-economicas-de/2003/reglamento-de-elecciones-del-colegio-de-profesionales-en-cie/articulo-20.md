@@ -1,0 +1,1 @@
+Artículo 20.—Las solicitudes de las candidaturas se presentarán dentro del plazo indicado ante el Tribunal de Elecciones, por medio de la Oficina de Fiscalía, por escrito, con nombre completo, fotografia reciente, número de cédula de identidad, número de carné, el puesto al que aspira y debidamente firmadas por los candidatos. Solo se puede aspirar a un puesto.

@@ -1,0 +1,1 @@
+Artículo 41.—Para ejercer el sufragio el elector se presentará con su cédula de identidad o carné de colegiado activo ante la junta receptora, la cual verificará y tachará su nombre en el padrón, se dirigirá al recinto de votación y tomará su decisión.

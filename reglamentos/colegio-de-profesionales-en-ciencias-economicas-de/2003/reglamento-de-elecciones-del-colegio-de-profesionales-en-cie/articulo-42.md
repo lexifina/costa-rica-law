@@ -1,0 +1,1 @@
+Artículo 42.—El miembro activo que por impedimento físico no pueda emitir su voto en la forma prevista por el Tribunal de Elecciones, lo hará públicamente y el Presidente de la junta receptora dejará constancia en la boleta de votación que corresponde y en el acta respectiva.

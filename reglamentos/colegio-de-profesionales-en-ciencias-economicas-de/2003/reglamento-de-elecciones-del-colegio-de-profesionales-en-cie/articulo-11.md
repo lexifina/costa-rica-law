@@ -1,0 +1,1 @@
+Artículo 11.—La Junta Directiva convocará al Tribunal de Elecciones en la primera quincena de marzo. Estará compuesto por siete miembros activos, entre los cuales cinco son propietarios y dos suplentes. Deberán estar al día con su colegiación, con al menos cinco años de incorporado y de reconocida solvencia moral y ética profesional.

@@ -1,0 +1,1 @@
+Artículo 30.—Cada junta receptora será integrada por al menos tres delegados designados por el Tribunal de Elecciones con sus respectivos suplentes y entre ellos designarán un presidente, un secretario y un vocal.

@@ -1,0 +1,1 @@
+Artículo 45.—La elección de entre los candidatos inscritos se hará en forma individual, para cada puesto que se encuentre en disputa, independientemente de que los candidatos se hayan presentado al Colegio de Electores, en forma individual o por medio de papeleta.

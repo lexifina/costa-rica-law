@@ -1,0 +1,1 @@
+Artículo 47.—Queda facultado el Tribunal de Elecciones para poner en conocimiento de la Fiscalía del Colegio, cualquier irregularidad que se presente durante el proceso electoral por parte de algún agremiado.

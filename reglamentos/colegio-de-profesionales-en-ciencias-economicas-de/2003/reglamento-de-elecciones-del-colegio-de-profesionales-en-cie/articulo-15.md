@@ -1,0 +1,1 @@
+Artículo 15.—Una vez aprobado formalmente el padrón por parte del Tribunal de Elecciones, se remitirá una copia a la Junta Directiva y estará a disposición de los candidatos a elección debidamente inscritos que así lo soliciten.

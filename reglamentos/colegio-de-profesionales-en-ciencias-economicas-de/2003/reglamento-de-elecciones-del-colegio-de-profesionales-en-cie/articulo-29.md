@@ -1,0 +1,1 @@
+Artículo 29.—El Tribunal de Elecciones, dispondrá y autorizará el lugar de cada recinto de votación, así como la cantidad de juntas receptoras que se necesitarán durante cada proceso electoral. Cada lugar deberá garantizar el secreto del voto.
