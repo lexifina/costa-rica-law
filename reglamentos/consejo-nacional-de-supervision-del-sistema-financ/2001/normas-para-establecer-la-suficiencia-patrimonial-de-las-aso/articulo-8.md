@@ -1,0 +1,1 @@
+8. Las entidades fiscalizadas sujetas a la aplicación de este Acuerdo, deben remitir en forma semestral a esta Dependencia el cálculo de la suficiencia patrimonial, en el formato que se anexa, con corte al último día de los meses de junio y diciembre de cada año. Este informe debe ser enviado a la SUGEF dentro de los 8 días hábiles siguientes a las fechas corte indicadas.

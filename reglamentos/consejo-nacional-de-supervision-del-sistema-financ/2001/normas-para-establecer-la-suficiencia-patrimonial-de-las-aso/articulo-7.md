@@ -1,0 +1,1 @@
+7. Para efectos de la calificación global de un supervisado, se regirá por aquella que muestre el mayor riesgo entre lo determinado a través de esta normativa y la que resulte de la aplicación del Acuerdo SUGEF 27-00 "Reglamento para Juzgar la Situación Económica y Financiera de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda".

@@ -1,0 +1,1 @@
+6. Se incluye la categoría denominada de operación normal para ubicar a los intermediarios que no se clasifiquen en categorías de inestabilidad o irregularidad financiera de grado uno, dos o tres, conforme lo establece la Ley 7558, en el Artículo 136, literales c) y d).
