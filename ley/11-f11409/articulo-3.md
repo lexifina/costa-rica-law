@@ -1,0 +1,1 @@
+Art. 3. Para que ni aún en las urgencias del tesoro general, se tome la cuarta de que habla el artículo anterior, aplicándola á otros objetos, ni con calidad de reintegro, se verificará la deducción cada vez que los terceristas hagan sus enteros en la administración del ramo, entregandose inmediatamente al tesorero de la Universidad la cantidad resultante.
