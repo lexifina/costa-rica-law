@@ -1,0 +1,1 @@
+Artículo 3°—La fórmula que establece la presente disposición únicamente se aplicará al cálculo del Impuesto Selectivo de Consumo sobre los combustibles, sin afectar cualesquiera otros tributos aplicables a esta mercancía.
