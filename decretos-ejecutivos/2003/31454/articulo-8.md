@@ -1,0 +1,1 @@
+Artículo 8°—Vigencia de la Dependencia Ejecutora. La vigencia de esta Dependencia será igual al período necesario para el desembolso total del financiamiento del préstamo del Banco de Reconstrucción de Alemania (KFW).
