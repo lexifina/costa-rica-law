@@ -1,0 +1,1 @@
+Art. 23.-Tanto la multa señalada en el artículo anterior, como la impuesta los carteros en el inciso 2°, artículo 14 de este Reglamento, ser exigida por el Fiscal de Hacienda, previo aviso del Administrador General, y enterada por éste en la oficina del Tesoro Nacional, para lo cual solicitar la orden correspondiente del Ministro respectivo.

@@ -1,0 +1,1 @@
+Art. 27.-Siendo el servicio de la correspondencia el primer cometido de la Administración General, están todos sus empleados en la obligación de permanecer en la oficina cuando se espere la del exterior.

@@ -1,0 +1,1 @@
+Art. 34.-Cuando se quiera retirar alguna carta que, para su trasporte haya sido depositada en alguna oficina postal, deberá el que lo solicite comprobar su identidad, escribiendo una dirección y una firma igual a la de la carta cuyo retiro solicita, y si, abierta ésta por el interesado, resultare de conformidad, se hará la devolución, inutilizando antes los sellos postales.

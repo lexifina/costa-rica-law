@@ -1,0 +1,1 @@
+Art. 55.-Es correspondencia privada, y por tanto debe franquearse con arreglo la tarifa, (fórmula N° 5), la que emane de personas que no tengan ningún carácter público, aunque vaya dirigida al Presidente de la República, Secretarios de Estado.

@@ -1,0 +1,1 @@
+Art. 36.-Con la correspondencia que por ilegible dirección no pueda dársele curso, se observará lo que provienen los incisos 2° y 4°, artículo 9 de este Reglamento, se indicar la fecha de su entrada la oficina respectiva, y se darán además todas las señas del envío, á fin de que la persona interesada se presente á aclarar su dirección.

@@ -1,0 +1,1 @@
+Art. 38.-No se dará curso á la correspondencia que contenga valores de cualquiera naturaleza, sin que esto se manifieste en la oficina encargada del despacho, á fin de certificarlos y exigir del destinatario el correspondiente recibo.

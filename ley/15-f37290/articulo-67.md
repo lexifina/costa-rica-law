@@ -1,0 +1,1 @@
+Art. 67.-El Gobierno no responde por el extravío ó pérdida de algún objeto certificado; mas si esto acaeciere alguna vez, se procederá de acuerdo con lo prevenido en el artículo 24 de este Reglamento.
