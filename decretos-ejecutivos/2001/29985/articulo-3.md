@@ -1,0 +1,1 @@
+Artículo 3º—La presente convocatoria será para el periodo comprendido entre las cero horas del día primero de noviembre del año dos mil uno a las veinticuatro horas del día ocho de mayo del dos mil dos.
