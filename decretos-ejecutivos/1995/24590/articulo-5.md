@@ -1,0 +1,5 @@
+Artículo 5º.- UNIDADES ADMINISTRATIVAS. Las Unidades Administrativas
+de MIDEPLAN y de la DEP serán las encargadas de ejecutar las medidas de
+conservación y control en cuanto al uso de los vehículos. Los jerarcas de
+estas unidades velarán porque las disposiciones contenidas en el presente
+Reglamento sean debidamente acatadas.
