@@ -1,0 +1,2 @@
+Artículo 16.-Normativa aplicable.
+Las infracciones al presente reglamento serán sancionadas de conformidad con lo dispuesto por la Ley General de Administración Pública, Código Municipal, Código de Trabajo y demás disposiciones vigentes y lo preceptuado a este Reglamento, sin perjuicio a la responsabilidad civiles o personales que deba asumir el infractor. Además proceden sanciones en el caso de que se cometan faltas en contra de la normativa técnica y jurídica vigente.
