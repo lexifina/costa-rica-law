@@ -1,0 +1,1 @@
+Artículo 5º—En el contrato en que se grave la concesión y los bienes y derechos, el Instituto Costarricense de Turismo podrá convenir lo necesario para salvaguardar los derechos del acreedor, en concordancia con su obligación de proteger el interés público y la naturaleza de la concesión.
