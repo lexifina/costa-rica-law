@@ -1,0 +1,11 @@
+ARTICULO 39
+Aplicación de Medidas Nacionales de Fiscalización más
+Estrictas que las Establecidas por esta Convención
+No obstante lo dispuesto en la presente Convención, no estará vedado
+a las Partes ni podrá presumirse que les esté vedado, adoptar medidas de
+fiscalización más estrictas o rigurosas que las previstas en la
+Convención, y, en especial, que exija que los preparados de la Lista 3 o
+los estupefacientes de la Lista 2 queden sujetos a todas las medidas de
+fiscalización aplicables a los estupefacientes de la Lista 1 o aquellas
+que, a juicio de la Parte interesada, sean necesarias o convenientes para
+proteger la salud pública.
