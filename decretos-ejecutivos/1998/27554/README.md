@@ -14,3 +14,4 @@ Reglamento al Plan Nacional de Atribución de Frecuencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-11 | la propia norma |
+| 2 | 2004-01-06 | Decreto Ejecutivo 31609 (2004-01-06) |
