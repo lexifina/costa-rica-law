@@ -21,7 +21,8 @@ Más de ¢ 2.500.000,00, hasta ¢ 5.000.000,00 al 15% de interés anual fijo (ii
 Para los efectos de esta disposición general se considerará casa nueva aquella que no haya sido habitada desde su construcción a la fecha de otorgamiento del préstamo y que no haya sido objeto de inscripción como tal en el Registro Público.
 g.— ¢ 5.000.000,00, para liberación de gravámenes hipotecarios parciales o totales. Ref. así sesión No 4153 del 17 de octubre de 1991.
 2.—DEROGADO por la Sesión N° 4491 de 15 de marzo de 1995, publicada en La Gaceta N° 65 de 31 de marzo de 1995.
-3.—Elevar el tope de anticipo por empleado del INVU, a ¢ 5.000.000,00, el anticipo podrá ser de doce meses máximo, siempre que el empleado deposite las cuotas de ahorro fallantes, manteniéndose las demás condiciones vigentes, así:
+3.—Elevar el tope de anticipo por empleado del INVU, a ¢ 5.000.000,00, el anticipo no podrá ser mayor de doce meses, siempre que el empleado deposite las cuotas de ahorro fallantes, manteniéndose las demás condiciones vigentes, así:
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 4587 de 13 de marzo de 1996, publicada en La Gaceta N° 68 de 09 de abril de 1996.)
 a) Hasta ¢ 2.000.000,00, al 9 % de interés anual fijo.
 b) Más de ¢ 2.000.000,00 hasta ¢ 5.000.000,00 al 15 % de interés anual fijo (ii).
 (ii). Esta tasa rige para el año 1994 y la tasa de interés será del 12% anual fijo para 1995 y a partir de 1996, la tasa será del 9% anual fijo. Lo anterior se aplicará para los préstamos que se aprueben en cada uno de esos años.
