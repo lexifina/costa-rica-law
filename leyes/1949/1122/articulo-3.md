@@ -1,0 +1,1 @@
+Artículo 3°.- Las autoridades de tránsito suspenderán el permiso de circulación de los vehículos cuyos propietarios o tenedores no acrediten, mediante presentación del correspondiente recibo, haber satisfecho el impuesto a que quedan sujetos.
