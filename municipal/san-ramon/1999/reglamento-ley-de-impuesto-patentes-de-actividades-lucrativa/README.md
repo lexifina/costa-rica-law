@@ -14,3 +14,4 @@ Reglamento Ley de Impuesto Patentes de Actividades Lucrativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-22 | la propia norma |
+| 2 | 1999-06-01 | Reglamento municipal 96 (1999-06-01) |

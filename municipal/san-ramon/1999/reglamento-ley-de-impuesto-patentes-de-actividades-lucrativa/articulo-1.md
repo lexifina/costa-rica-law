@@ -4,6 +4,7 @@ MUNICIPALIDAD DE SAN RAMON
 El Concejo Municipal de San Ramón, en sesión ordinaria Nº 73 del 9º de febrero de 1999; mediante artículo octavo, inciso noveno acordó por unanimidad y en firme; el Reglamento a la Ley de Impuestos de Patentes de Actividades Lucrativas Nº 7327 del 12 de diciembre de 1992, el cual fue publicado como Proyecto en "La Gaceta" del 27 de noviembre de 1998:
 REGLAMENTO A LA LEY DE IMPUESTO DE PATENTES DE ACTIVIDADES LUCRATIVAS Nº 7327
 DEL 12 DE DICIEMBRE DE 1992
+(Este Reglamento fue reformado en su totalidad por el Reglamento a la Ley de Impuesto de Patentes de Actividades Lucrativas, aprobado en Sesión Ordinaria de la Municipalidad de San Ramón N° 96 del 1 de junio de 1999)
 CAPITULO I
 Disposiciones generales
 Artículo 1º—Definiciones. Cuando en este Reglamento se empleen los términos y definiciones debe dársele las acepciones que se señalan a continuación:
