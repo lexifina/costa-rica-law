@@ -1,0 +1,5 @@
+Artículo 27
+Responsabilidades de la Secretaría
+1.- La Secretaría tendrá la responsabilidad de prestar asistencia a los grupos especiales, particularmente en los aspectos jurídicos, históricos y de procedimiento de los asuntos de que se trate, y de facilitar apoyo técnico y de secretaría.
+2.- Si bien la Secretaría presta ayuda en relación con la solución de diferencias a los Miembros que la solicitan, podría ser necesario también suministrar asesoramiento y asistencia jurídicos adicionales en relación con la solución de diferencias a los países en desarrollo Miembros. A tal efecto, la Secretaría pondrá a disposición de cualquier país en desarrollo Miembro que lo solicite un experto jurídico competente de los servicios de cooperación técnica de la OMC. Este experto ayudará al país en desarrollo Miembro de un modo que garantice la constante imparcialidad de la Secretaría.
+3.- La Secretaría organizará, para los Miembros interesados, cursos especiales de formación sobre estos procedimientos y prácticas de solución de diferencias, a fin de que los expertos de los Miembros puedan estar mejor informados en esta materia.

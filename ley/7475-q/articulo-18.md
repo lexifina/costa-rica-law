@@ -1,0 +1,4 @@
+Artículo 18
+Comunicaciones con el grupo especial o el Organo de Apelación
+1.- No habrá comunicaciones ex parte con el grupo especial o el Organo de Apelación en relación con asuntos sometidos a la consideración del grupo especial o del Organo de Apelación.
+2.- Las comunicaciones por escrito al grupo especial o al Organo de Apelación se considerarán confidenciales, pero se facilitarán a las partes en la diferencia. Ninguna de las disposiciones del presente Entendimiento impedirá a una parte en la diferencia hacer públicas sus posiciones. Los Miembros considerarán confidencial la información facilitada al grupo especial o al Organo de Apelación por otro Miembro a la que este haya atribuido tal carácter. A petición de un Miembro, una parte en la diferencia podrá también facilitar un resumen no confidencial de la información contenida en sus comunicaciones escritas que pueda hacerse público.
