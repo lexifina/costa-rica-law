@@ -1,0 +1,11 @@
+Tarifas
+Artículo 23.—Cuando se incumplan las obligaciones dispuestas en el articulado anterior, la Municipalidad cobrará de a cuerdo a las siguientes tarifas:
+a) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas, ni recortar la que perjudique el paso del as personas o lo dificulte, novecientos colones por metro lineal del frente de la propiedad.
+b) Por no cercar los lotes y limpiarlos donde no haya construcciones, o existan construcciones en estado de demolición, dos mil cien colones por cada metro lineal del frente del total de la propiedad.
+c) Por no separar, recolectar ni acumular, para el transporte y la disposición final, los desechos sólidos provenientes de las actividades personales, familiares, públicas, o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales y turísticas, solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, trescientos cincuenta colones por metro cuadrado del área total de la propiedad.
+d) Por no construir las aceras frente a las propiedades, ni darles mantenimiento tres mil doscientos colones por metro cuadrado de la acera a construir en el frente de la propiedad.
+e) Por no remover los objetos, materiales o similares de las aceras o lo predios de su propiedad que contaminen el ambiente u obstaculicen el paso, cuatrocientos colones por metro cuadrado del área total de la propiedad.
+f) Por obstaculizar el paso por las aceras con gradas de acceso a viviendas, retenes, cadenas, rótulos, materiales de construcción o artefactos de seguridad de entradas de garajes, mil colones por metro lineal del frente total de la propiedad.
+g) Por no instalar bajantes ni canoas para recoger las aguas pluviales de las edificaciones cuyas paredes externas colinden inmediatamente con la vía pública, mil trescientos colones por metro lineal del frente total de la propiedad.
+h) Por no ejecutar las obras de conservación de las fachadas de casas o edificios visibles desde la vía pública, cuando por motivos de interés turístico, arqueológico o patrimonial, lo exija la municipalidad, mil cien colones por metro cuadrado del frente del total de la propiedad (largo por ancho de la fachada).
+Procédase a su publicación, en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 9º—En toda construcción de acera, cerca y tapia, el propietario del inmueble o poseedor por cualquier título, deberá acatar las directrices de los funcionarios municipales en resguardo de la salubridad, seguridad y ornato, siguiendo las directrices que establece el Código Urbano.

@@ -1,0 +1,1 @@
+Artículo 4º—De conformidad con la topografía y nivel del terreno, es deber del propietario o poseedor por cualquier título del bien inmueble, recibir y dejar discurrir dentro de su propiedad las aguas de los caminos.

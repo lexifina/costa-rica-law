@@ -1,0 +1,1 @@
+Artículo 18.—Todo propietario o poseedor por cualquier título de bienes inmueble, en la construcción de aceras, deberá acatar las instrucciones emanadas de los funcionarios municipales respectivos, y de no se así se aplicará la multa correspondiente.

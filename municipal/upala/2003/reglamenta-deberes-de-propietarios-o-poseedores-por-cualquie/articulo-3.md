@@ -1,0 +1,1 @@
+Artículo 3º—Cuando el fundo se ubique inmediato a calles o caminos públicos o servidumbres, son deberes del propietario o poseedor mantener los desagües limpios y en perfecto estado de servicio, libre de obstáculos.
