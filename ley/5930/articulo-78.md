@@ -1,0 +1,1 @@
+Artículo 78.- Cuando por fuerza mayor un vehículo deba permanecer estacionado en una carretera, lo hará fuera de la calzada y se señalará su presencia, mediante luces de estacionamiento y avisos luminosos, de conformidad con esta ley y su reglamento. Si no hubiere espaldón, procurará hacerlo en un lugar apropiado, que signifique la menor peligrosidad para el tráfico de vehículos.

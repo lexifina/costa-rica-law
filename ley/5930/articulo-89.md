@@ -1,0 +1,1 @@
+Artículo 89.- Se prohíbe el estacionamiento en las vías públicas, de camiones, autobuses u otros vehículos de cualquier tipo, que tengan un peso bruto mayor de dos toneladas. Esta prohibición no se aplicará a las paradas para recoger o bajar pasajeros o carga, lo que regulará la Dirección General de Tránsito.

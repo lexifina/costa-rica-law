@@ -1,0 +1,1 @@
+Artículo 107.- La entrega de la boleta, al presunto infractor, por un Inspector de Tránsito o por cualquier otra autoridad constituye notificación de que debe pagar la multa por el hecho atribuido, o citación para que comparezca ante la autoridad judicial, de acuerdo con lo dispuesto en los artículos siguientes.

@@ -1,0 +1,1 @@
+Artículo 44.- Las personas físicas o jurídicas que tengan vehículos automotores, nuevos o usados, para la venta, o ensamblados en etapa de bien final, por dedicarse a esas actividades, deberán proveerse de una póliza global que cubra esos vehículos en los mismos términos del seguro obligatorio.

@@ -1,0 +1,1 @@
+Artículo 59.- Cuando, por cualquier motivo, la póliza esté al descubierto por no pago de la primera o cualesquiera otras circunstancias, el Instituto Nacional de Seguros dará aviso inmediato a la Dirección General de Tránsito, para que ésta proceda a retirar de la circulación el vehículo.

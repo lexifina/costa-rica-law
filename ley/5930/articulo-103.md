@@ -1,0 +1,1 @@
+Artículo 103.- Únicamente contra las sentencias y los autos, que tengan el carácter de sentencias, dictadas por las alcaldías, cabrá recurso de apelación para ante el juzgado penal correspondiente, siempre y cuando se interponga dentro del término de tres días.

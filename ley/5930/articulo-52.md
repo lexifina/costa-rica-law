@@ -1,0 +1,4 @@
+Exclusiones
+Artículo 52.- El Seguro Obligatorio para Vehículos Automotores no cubre las indemnizaciones amparadas por las disposiciones legales sobre Riesgos Profesionales, las cuales se satisfarán por separado. Cuando un asegurado de la Caja Costarricense de Seguro Social resultare lesionado, como consecuencia de un accidente de tránsito, el Instituto Nacional de Seguros deberá pagarle de preferencia las indemnizaciones por incapacidades totales y parciales permanentes, pago de medio salario -complementario que otorga la Caja-, e indemnizaciones a causahabientes en caso de muerte. Si queda remanente de la póliza, se girará a dicha institución el costo real de las prestaciones sanitarias que ella otorgue al perjudicado hasta por los límites de la póliza.
+Los beneficios de esta ley se otorgarán también en caso de lesión o muerte del conductor o propietario y demás ocupantes del vehículo.
+(Así reformado por el artículo 1º de la ley No. 6250 de 2 de mayo de 1978).

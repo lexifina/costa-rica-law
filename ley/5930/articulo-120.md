@@ -1,0 +1,1 @@
+Artículo 120.- Sin perjuicio de otras sanciones legales, que se puedan aplicar, se suspenderá, por un plazo de dos a cinco años, la licencia del conductor que ocasionare atropello de personas y se diere a la fuga con el objeto de evadir sus responsabilidades. El tribunal que establezca la sanción lo comunicará a la oficina correspondiente.

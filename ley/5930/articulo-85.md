@@ -1,0 +1,1 @@
+Artículo 85.- Se prohíbe detener vehículos en las calzadas de las carreteras, interrumpir el tránsito o afectar la visibilidad o, de cualquier manera, poner en peligro la seguridad del tránsito, salvo lo dispuesto en el artículo 78 de esta ley.

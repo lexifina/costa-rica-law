@@ -1,0 +1,1 @@
+Artículo 92.- Se prohíbe a los vehículos motorizados, cualquiera que sea su tipo o tamaño, incluyendo motocicletas, provocar ruido con propósito deliberado, fuera de lo aceptado por las normas y especificaciones técnicas de fabricación, así como la producción de gases que no estén debidamente carburados y que contaminen el ambiente con exceso de humo.
