@@ -8,18 +8,17 @@ c) Los gastos de cada delegación será sufragados por el gobierno que
 la haya designado.
 2) La Conferencia:
 i) discutirá las cuestiones de interés general en el campo de la
-propiedad intelectual y podrá adoptar recomendaciones relativas a
-esas cuestiones, respetando, en todo caso, la competencia y autonomía
-de las Uniones;
+propiedad intelectual y podrá adoptar recomendaciones relativas a esas
+cuestiones, respetando, en todo caso, la competencia y autonomía de las
+Uniones;
 ii) adoptará el presupuesto trienal de la Conferencia;
 iii) establecerá, dentro de los límites de dicho presupuesto, el
 programa trienal de asistencia técnico-jurídica;
 iv) adoptará las modificaciones al presente Convenio, según el
 procedimiento establecido en el Artículo 17;
 v) decidirá qué Estados no miembros de la Organización y qué
-organizaciones intergubernamentales e internacionales no
-gubernamentales, podrán ser admitidos en sus reuniones en calidad de
-observadores;
+organizaciones intergubernamentales e internacionales no gubernamentales,
+podrán ser admitidos en sus reuniones en calidad de observadores;
 vi) ejercerá las demás funciones que sean convenientes dentro del
 marco del presente Convenio.
 3) a) Cada Estado miembro dispondrá de un voto en la Conferencia.
@@ -34,9 +33,9 @@ e) La abstención no se considerará como un voto.
 f) Un delegado no podrá representar más que a un solo Estado y no
 podrá votar más que en nombre de dicho Estado.
 4) a) La Conferencia se reunirá en sesión ordinaria, mediante
-convocatoria del Director General, durante el mismo período y en el
-mismo lugar que la Asamblea General.
+convocatoria del Director General, durante el mismo período y en el mismo
+lugar que la Asamblea General.
 b) La Conferencia se reunirá en sesión extraordinaria, mediante
-convocatoria del Director General, a petición de la mayoría de los
-Estados miembros.
+convocatoria del Director General, a petición de la mayoría de los Estados
+miembros.
 5) La Conferencia adoptará su propio reglamento interior.
