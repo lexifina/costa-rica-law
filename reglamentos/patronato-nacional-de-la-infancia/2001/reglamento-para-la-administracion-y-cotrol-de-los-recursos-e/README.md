@@ -14,3 +14,4 @@ Reglamento para la administración y cotrol de los recursos económicos girados 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-12 | la propia norma |
+| 2 | 2001-10-01 | Reglamento 78 (2001-10-01) |
