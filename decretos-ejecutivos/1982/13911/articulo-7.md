@@ -1,0 +1,1 @@
+Artículo 7°-El Ministerio de Agricultura y Ganadería podrá modificar la lista de plagas y enfermedades que pueden combatirse con productos arsenicales y ampliar la lista de cultivos donde se pueden aplicar estos productos.
