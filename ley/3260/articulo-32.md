@@ -1,1 +1,0 @@
-Artículo 32.- La libertad asistida consistirá en confiar el menor a su familia o a un guardador, con la asistencia del Departamento de Trabajo Social del juzgado o de otro organismo, de acuerdo con las recomendaciones que el juez estime convenientes.

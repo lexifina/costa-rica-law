@@ -1,1 +1,0 @@
-Artículo 19.- Para ejercer el cargo de agente tutelar de menores, se requiere haber cursado el bachillerato de segunda enseñanza y se dará preferencia a quienes sean padres o madres de familia. Además de la aprehensión y la conducción de los menores, estos agentes deberán cumplir con cualquier otra diligencia que les encomiende el juzgado.

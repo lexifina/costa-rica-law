@@ -1,1 +1,0 @@
-Artículo 34.- El depósito en un hogar sustituto consistirá en la entrega del menor a otra familia, que no sea la propia, en las condiciones de asistencia indicadas en los artículos 32 y 33 de esta Ley. Los hogares sustitutos serán los recomendados y aprobados por el Patronato Nacional de la Infancia.

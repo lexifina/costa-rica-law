@@ -1,1 +1,0 @@
-Artículo 16.- Cada juzgado tutelar contará con un personal administrativo, un departamento de trabajo social y un departamento clínico. Además, el juez podrá requerir la cooperación de otras oficinas o instituciones públicas, cuyos servicios necesite.

@@ -1,1 +1,0 @@
-Artículo 73.- El auto que admita el recurso siempre contendrá el emplazamiento a las partes, para que acudena ante el superior a mantener su derecho, dentro de un término que les fijará el juez, entre tres y diez días, según el lugar de residencia.
