@@ -1,0 +1,6 @@
+Artículo 2
+Consentimiento para su vinculación
+i) El consentimiento de un estado o de una organización internacional para estar vinculado por este acuerdo, se debe expresar mediante una notificación escrita de un representante debidamente autorizado de dicho estado o de dicha organización internacional, estipulando que se ha cumplido con las formalidades requeridas por su legislación. Dicho consentimiento no implica ninguna obligación a proveer ayuda financiera que vaya más allá de las contribuciones voluntarias al IPGRI. Tampoco implica este consentimiento ninguna responsabilidad, individual o colectiva, por cualquier deuda, pasivo u obligación del Instituto.
+ii) Este acuerdo permanecerá abierto para que lo firmen los estados y organizaciones internacionales en el Ministerio de Relaciones Exteriores de Italia. Permanecerá abierto por un período de dos años a partir del 1 de junio de 1991, a no ser que dicho período sea extendido antes de su expiración por el depositario, a solicitud del Consejo de Administración del IPGRI.
+iii) El Gobierno de la República de Italia será el depositario de este acuerdo.
+iv) El consentimiento a la vinculación mediante este acuerdo será asumido por los suscritos de conformidad con sus propias leyes, regulaciones y procedimientos.
