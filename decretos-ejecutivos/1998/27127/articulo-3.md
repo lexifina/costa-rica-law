@@ -1,0 +1,1 @@
+Artículo 3°—Los miembros de la comisión desempeñarán sus funciones de forma ad honorem. La comisión se reunirá de la forma que ella determine y contara con un plazo de un mes para rendir su informe ante el Poder Ejecutivo.
