@@ -1,0 +1,1 @@
+Artículo 5°.-Dentro de los límites establecidos por esta Zona Protectora, a los ocupante de terrenos sin inscribir, no amparados por la posesión decenal, pero con derechos de posesión, se les reconocer únicamente las mejoras correspondientes.
