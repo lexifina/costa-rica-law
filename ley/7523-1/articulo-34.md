@@ -1,1 +1,3 @@
-Artículo 34.- (Derogado mediante el artículo 193 de la ley N° 7732 del 17 de diciembre de 1997).
+Artículo 34.- Presupuesto y régimen de servicio. El presupuesto y régimen de servicio de la Superintendencia se regirán por los artículos 174 a 177 de la Ley No. 7732, de 17 de diciembre de 1997.
+Autorízase al Banco Central de Costa Rica para que exceda del 80% de su aporte al presupuesto de la Superintendencia de Pensiones, en caso de que las contribuciones de los sujetos fiscalizados señaladas en el artículo 174 de la Ley Reguladora del Mercado de Valores, No. 7732, de 17 de diciembre de 1997, no alcancen el 20%.
+(Así reformado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

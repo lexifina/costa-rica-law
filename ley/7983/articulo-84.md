@@ -1,0 +1,1 @@
+ARTÍCULO 84.- Sustitución. Sustitúyese la frase "Consejo Nacional" por la palabra "Superintendente" en el encabezado del inciso b) del artículo 134; en el acápite iv del inciso b) del artículo 134; en el artículo 154 y en el artículo 155 de la Ley Orgánica del Banco Central de Costa Rica, No. 7558, de 3 de noviembre de 1995.

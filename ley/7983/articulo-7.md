@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Inversión de los recursos de capitalización laboral. Los recursos de los fondos de capitalización laboral serán invertidos de conformidad con las disposiciones establecidas en el título VI de la presente ley.

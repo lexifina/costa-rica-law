@@ -1,4 +1,6 @@
-CAPITULO VII
+CAPÍTULO VII
 Sanciones
-Artículo 40.- Datos falsos
-En caso de que los datos proporcionados por una operadora al ente regulador sean falsos o engañosos, a los responsables de tal falsedad o engaño se les aplicará lo estipulado en el artículo 358 del Código Penal, relativo a la falsedad ideológica. En caso de que el engaño sea dirigido a sus afiliados, cotizantes o al público en general, se aplicará a los responsables lo dispuesto en el segundo párrafo del artículo 216 del Código Penal.
+SECCIÓN I
+Medidas Precautorias
+Artículo 40.- Medidas precautorias. A la Superintendencia le corresponderá aplicar las medidas precautorias cuando constate algún incumplimiento del ente regulado que, en el ejercicio de sus actividades, pueda comprometer la integridad de los recursos que administra o para evitar a los afiliados daños de reparación imposible o difícil cuando tenga indicios de la comisión de un delito o en otros casos previstos por esta ley.
+(Así reformado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

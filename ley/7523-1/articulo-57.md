@@ -1,0 +1,3 @@
+Artículo 57.- Formas jurídicas. Las formas jurídicas adoptadas por los entes regulados no obligan a la Superintendencia, para efectos de sus potestades de fiscalización y sanción previstas en esta ley. La Superintendencia podrá atribuirles a las situaciones y los actos ocurridos una significación acorde con los hechos, atendiendo la realidad y no la forma jurídica.
+Lo dispuesto en el párrafo anterior será igualmente aplicable a la Superintendencia General de Entidades Financieras y a la Superintendencia General de Valores, en el ejercicio de sus potestades de fiscalización y sanción.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

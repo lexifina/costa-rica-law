@@ -1,0 +1,2 @@
+Artículo 53.- Faltas contra la confidencialidad. Quienes contravengan las prohibiciones citadas en el artículo 67 de la Ley de protección al trabajador serán sancionados con multa de uno a seis salarios base, que aplicará la Superintendencia en beneficio del propio fondo y con cargo a la operadora respectiva. Por salario base se entenderá el definido en la Ley No. 7337, de 5 de mayo de 1993.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

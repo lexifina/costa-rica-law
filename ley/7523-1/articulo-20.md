@@ -1,4 +1,3 @@
 CAPITULO IV
 Planes ofrecidos, términos y beneficios
-Artículo 20.- Afiliados
-Toda persona física podrá afiliarse a un fondo de pensiones. Quienes no estén cubiertos por la Caja Costarricense de Seguro Social también podrán participar en estos planes.
+Artículo 20.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

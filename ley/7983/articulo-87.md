@@ -1,0 +1,21 @@
+ARTÍCULO 87.- Adiciones a la Ley No. 17, de 22 de octubre de 1943. Adiciónanse a la Ley Orgánica de la Caja Costarricense de Seguro Social, No. 17, de 22 de octubre de 1943 y sus reformas, las siguientes disposiciones:
+a) Al artículo 3, un párrafo final cuyo texto dirá:
+"Artículo 3.-
+[...]
+Para los trabajadores independientes cuyo ingreso neto sea inferior al salario mínimo legal y que soliciten su afiliación al Régimen de Invalidez, Vejez y Muerte de la CCSS, la cuota del Estado se incrementará con el fin de subsanar parcialmente la ausencia de la cuota patronal. Para tales efectos, se creará un programa especial permanente a cargo del Fondo de Desarrollo Social y Asignaciones Familiares."
+b) Al artículo 31, los siguientes párrafos finales:
+"Artículo 31.-
+[...]
+Créase el Sistema Centralizado de Recaudación, para llevar el registro de los afiliados, ejercer el control de los aportes al Régimen de Invalidez, Vejez y Muerte, de Pensiones Complementarias, de Enfermedad y Maternidad; a los Fondos de Capitalización Laboral; además de las cargas sociales cuya recaudación ha sido encargada a la CCSS y cualquier otra que la ley establezca.
+Mediante decreto, el Poder Ejecutivo podrá encargar al Sistema Centralizado de Recaudación la recolección del impuesto de la renta establecido sobre los salarios. El Instituto Nacional de Seguros queda autorizado para recolectar por medio de este Sistema, las primas del seguro de riesgos del trabajo.El registro del Sistema Centralizado de Recaudación será administrado por la Caja.
+El Sistema Centralizado de Recaudación se regirá además por las siguientes disposiciones:
+a) La recaudación deberá ser efectuada por la Caja o por medio del sistema de pagos y transferencias del Sistema Financiero Nacional de manera tal que se garantice a los destinatarios finales, el giro de los recursos en forma directa.
+b) La Caja será responsable de realizar todas las gestiones administrativas y judiciales para controlar la evasión, subdeclaración o morosidad de los empleadores así como, de gestionar la recuperación de los aportes indebidamente retenidos por los patronos según lo establecido en la presente ley. Lo anterior, sin perjuicio de las gestiones que puedan realizar terceros de acuerdo con el artículo 564 del Código de Trabajo.
+El patrono girará las cuotas correspondientes a cada trabajador, dentro de un plazo hasta de veinte días naturales, siguientes al cierre mensual, por medio del sistema de recaudación de la Caja Costarricense de Seguro Social. Vencido dicho plazo, el patrono cancelará intereses conforme a la tasa básica pasiva calculada por el Banco Central, los cuales serán acreditados directamente a la cuenta de cada trabajador.
+El Régimen no Contributivo debe universalizar las pensiones para todos los adultos mayores en situación de pobreza y que no estén cubiertos por otros regímenes de pensiones. La pensión básica de quienes se encuentren en situación de extrema pobreza no deberá ser inferior a un cincuenta por ciento (50%), de la pensión mínima otorgada por vejez dentro del Régimen de Invalidez, Vejez y Muerte de la Caja. En los otros casos, la Caja definirá los montos correspondientes. En ambas situaciones, se atenderá en forma prioritaria a las personas adultas mayores amas de casa."
+c) Al artículo 39, tres párrafos finales cuyos textos dirán:
+"Artículo 39.-
+[...]
+Los fondos de reserva del Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social son propiedad de cotizantes y beneficiarios.
+La Superintendencia de Pensiones, sin perjuicio de sus obligaciones, contribuirá con la Junta Directiva a la definición de las políticas que afecten el funcionamiento del Régimen de Invalidez, Vejez y Muerte de la Caja, sugiriendo todas las medidas garantes de la rentabilidad y la seguridad de los fondos de este Régimen.
+De igual forma, se crea un Comité de Vigilancia, integrado por representantes democráticamente electos por los trabajadores y los patronos, siguiendo el procedimiento del Reglamento respectivo. La Caja le rendirá un informe anual sobre la situación actual y proyectada del Régimen. El Superintendente de Pensiones también presentará un informe con una evaluación del presentado por la Caja al Comité de Vigilancia. Estos informes serán de conocimiento público y dicho Comité emitirá recomendaciones a la Junta Directiva de la Caja."

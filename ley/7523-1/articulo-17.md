@@ -1,2 +1,1 @@
-Artículo 17.- Contabilidad de excesos
-Si, por cualquier razón, una inversión realizada con recursos del fondo de pensiones sobrepasa los límites o deja de cumplir con los requisitos establecidos para su procedencia, el exceso deberá ser contabilizado en una cuenta especial en el fondo afectado. Mientras esa situación se mantenga, la operadora correspondiente no podrá realizar nuevas inversiones en los mismos instrumentos, sin perjuicio de la facultad del ente regulador para aplicar las sanciones administrativas correspondientes, incluida la adopción de planes de reducción de riesgo que la operadora deberá cumplir.
+Artículo 17.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

@@ -1,5 +1,5 @@
-CAPITULO VI
+CAPÍTULO VI
 Superintendencia de Pensiones
-Artículo 33.- Regulación del régimen
-El Régimen de pensiones será regulado y fiscalizado por una Superintendencia de pensiones, como órgano de máxima desconcentración, con personalidad y capacidad jurídicas instrumentales, y adscrito al Banco Central de Costa Rica.
-(El párrafo segundo que contenía este artículo fue derogado mediante el artículo 193 de la ley N° 7732 del 17 de diciembre de 1997).
+Artículo 33.- Regulación del régimen. El Régimen de Pensiones será regulado y fiscalizado por una Superintendencia de Pensiones, como órgano de máxima desconcentración, con personalidad y capacidad jurídicas instrumentales, y adscrito al Banco Central de Costa Rica. La Superintendencia de Pensiones autorizará, regulará, supervisará y fiscalizará los planes, fondos y regímenes contemplados en esta ley, así como aquellos que le sean encomendados en virtud de otras leyes, y la actividad de las operadoras de pensiones, de los entes autorizados para administrar los fondos de capitalización laboral y de las personas físicas o jurídicas que intervengan, directa o indirectamente, en los actos o contratos relacionados con las disposiciones de esta ley.
+La Superintendencia de Pensiones contará con un Superintendente y un Intendente, nombrados por el Consejo, quienes se regirán por los artículos 172 y 173 de la Ley Reguladora del Mercado de Valores, No. 7732, de 17 de diciembre de 1997. Ambos deberán estar presentes en las sesiones donde el Consejo se reúna para tratar los asuntos de la Superintendencia de Pensiones.
+(Así reformado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

@@ -1,0 +1,1 @@
+ARTÍCULO 48.- Acreditación de los recursos. Los aportes y los rendimientos deberán acreditarse con la misma fecha valor del día en que ingresen al ente autorizado. La inversión se hará con base en las normas que la Superintendencia emita.

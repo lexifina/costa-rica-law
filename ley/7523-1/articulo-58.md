@@ -1,0 +1,4 @@
+SECCIÓN II
+Ejercicio de las Potestades de Fiscalización y Sanción
+Artículo 58.- Labores de supervisión. En las labores de supervisión y vigilancia de la Superintendencia sobre los entes sujetos a su fiscalización, el Superintendente, por sí o por medio de los funcionarios de la Superintendencia, podrá efectuar cualquier acción directa de supervisión, verificación, inspección o vigilancia en las entidades reguladas cuando lo considere oportuno, a fin de ejercer las facultades que le otorgan esta ley, leyes conexas y las demás normas; asimismo, deberá velar por el cumplimiento de los reglamentos y las normas de carácter general emitidas por el Consejo Nacional de Supervisión. Las entidades reguladas están obligadas a prestar total colaboración a la Superintendencia, para facilitar las labores que le faculta esta ley.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

@@ -1,0 +1,1 @@
+ARTÍCULO 38.- Deficiencia de capital. Si el capital de apertura, la reserva especial de patrimonio y el capital de funcionamiento de un ente autorizado se reducen a una cantidad inferior al mínimo exigido, deberá completarlo según el procedimiento y plazo que para el efecto, fije la Superintendencia, sin perjuicio de los casos en que proceda la intervención.

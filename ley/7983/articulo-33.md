@@ -1,0 +1,7 @@
+ARTÍCULO 33.- Requisitos para los miembros de la Junta Directiva. Las operadoras deberán constituirse como sociedades anónimas. Tendrán una Junta Directiva, integrada al menos por cinco miembros de reconocida honorabilidad; dos de ellos deberán contar con estudios y experiencia en operaciones financieras. Estas características deben ser documentadas ante el Superintendente. Para estos efectos, toda operadora ya autorizada deberá enviar también al Superintendente los nuevos nombramientos de directores que se realicen.
+Al menos el cuarenta por ciento (40%) de los miembros de la Junta Directiva de la operadora no podrán ser:
+a) Accionistas de la misma operadora.
+b) Parientes de los accionistas de la Sociedad, hasta el tercer grado de consanguinidad y afinidad.
+c) Miembros de la Junta Directiva o empleados de empresas del mismo grupo económico o financiero de la operadora.
+La Asamblea de Accionistas deberá nombrar a un fiscal, de conformidad con el Código de Comercio, quien, además de las facultades y obligaciones establecidas en dicho Código, deberá vigilar el estricto cumplimiento, por parte de la operadora, de los reglamentos y las disposiciones emitidos por el Consejo Nacional de Supervisión del Sistema Financiero o el Superintendente de Pensiones. Al fiscal se le aplicarán los requisitos y las prohibiciones establecidas en este artículo; todo lo anterior de acuerdo con el reglamento que la Superintendencia emita.
+Salvo lo dispuesto expresamente por esta ley, dichas sociedades anónimas se regirán por el Código de Comercio.

@@ -1,17 +1,2 @@
-ARTÍCULO 175.- Aparte de cada superintendencia al financiamiento de
-sus gastos
-Cada sujeto fiscalizado por la Superintendencia General de Entidades
-Financieras, la Superintendencia General de Valores y la Superintendencia
-de Pensiones contribuirán, hasta con un máximo del dos por ciento (2%) de
-sus ingresos brutos anuales, al financiamiento de los gastos efectivos de
-la respectiva Superintendencia. En el caso de los emisores no financieros,
-la contribución será de hasta un cero coma uno por ciento (0,1%) anual
-sobre el monto de la emisión. Mediante reglamento del Poder Ejecutivo, se
-especificarán los porcentajes de la contribución, según los diversos tipos
-de sujetos fiscalizados, dentro de los límites máximos antes indicados, de
-manera que se cubra el veinte por ciento (20%) de los gastos de cada una
-de las superintendencias. No se impondrá una contribución adicional cuando
-un mismo sujeto quede sometido a las supervisión de más de una
-superintendencia, sino que el sujeto de que se trate contribuirá
-únicamente al presupuesto de su supervisor natural o principal, conforme
-a los términos del reglamento.
+ARTÍCULO 175.- Aparte de cada superintendencia al financiamiento de sus gastos. Cada sujeto fiscalizado por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores y la Superintendencia de Pensiones contribuirán, hasta con un máximo del dos por ciento (2%) de sus ingresos brutos anuales, al financiamiento de los gastos efectivos de la respectiva Superintendencia. En el caso de los emisores no financieros, la contribución será de hasta un cero coma uno por ciento (0,1%) anual sobre el monto de la emisión. Mediante reglamento del Poder Ejecutivo, se especificarán los porcentajes de la contribución, según los diversos tipos de sujetos fiscalizados, dentro de los límites máximos antes indicados, de manera que se cubra el veinte por ciento (20%) de los gastos de cada una de las superintendencias. No se impondrá una contribución adicional cuando un mismo sujeto quede sometido a las supervisión de más de una superintendencia, sino que el sujeto de que se trate contribuirá únicamente al presupuesto de su supervisor natural o principal, conforme a los términos del reglamento.
+(NOTA DEL SINALEVI: Este artículo ha sido reglamentado mediante el Decreto Ejecutivo No. 27830, del 15 de abril de 1999.)
