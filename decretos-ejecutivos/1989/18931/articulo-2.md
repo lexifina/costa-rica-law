@@ -1,2 +1,0 @@
-Artículo 2°—Se le reconocerá un 40% sobre el salario base como incentivo por desarraigo, a los profesionales del Ministerio de Obras Públicas y Transportes, mientras se mantengan prestando servicios fuera de la “Gran Área Metropolitana” y no sea su lugar habitual de residencia. Además que se encuentra bajo el régimen de salida mensual.
-(Reformado mediante el Decreto Ejecutivo N° 19568 del 09 de marzo de 1990, publicado en La Gaceta N° 78 del 25 de abril de 1990.)
