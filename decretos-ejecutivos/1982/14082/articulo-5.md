@@ -81,6 +81,8 @@ Mero y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatad
 Pargo y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
 Bacalao seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
 Pescado seco y sus partes, fresco, en salmuera, salado o desecado (no envasado o enlatado)
+Crustáceos, moluscos y otros animales acuáticos invertebrados (frescos, refrigerados o congelados), siempre que se vendan en presentaciones mayores a 3 kg ; excepto los envasados o enlatados.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 26601 del 21 de noviembre de 1997)
 Chorizo, excepto enlatado o envasado
 Mortadela, excepto enlatado o envasado
 Paté, excepto enlatado o envasado

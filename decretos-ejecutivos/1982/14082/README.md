@@ -46,3 +46,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 31 | 1996-07-05 | Decreto Ejecutivo 25360 (1996-07-05) |
 | 32 | 1997-04-28 | Decreto Ejecutivo 26048 (1997-04-28) |
 | 33 | 1997-08-18 | Decreto Ejecutivo 26263 (1997-08-18) |
+| 34 | 1997-11-21 | Decreto Ejecutivo 26601 (1997-11-21) |
