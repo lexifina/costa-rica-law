@@ -1,0 +1,1 @@
+Art. 11.-El primer examen versará sobre el derecho civil y práctica del Notariado. Concluido el examen se procederá á la votación que se dará con la nota de aprobado ó de suspenso. De todo, el Secretario del Colegio, que debe asistir al examen, levantará una acta en que irá consignada la votación nominal y. que firmarán los examinadores r el mismo Secretario.

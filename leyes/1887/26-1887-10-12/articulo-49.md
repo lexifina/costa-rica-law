@@ -1,0 +1,2 @@
+Art. 49.-El Ministerio Público(*), los Jueces de 1ª Instancia y los Alcaldes están obligados á hacer las gestiones y tomar las providencias conducentes para que los protocolos, en caso de muerte, ausencia ó incapacidad de los Notarios á quienes pertenezcan, pasen á la oficina que corresponda con arreglo á la ley.
+(*)(Nota de Sinalevi: Mediante el artículo 30 de la Ley Orgánica de la Procuraduría General de la República, N° 3848 del 10 de enero de 1967, se establece que donde se mencione la palabra Ministerio Público se diga Procuraduría General de la República)

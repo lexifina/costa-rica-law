@@ -1,0 +1,1 @@
+Art. 14.-El diploma de Notario se extenderá en papel de la quinta clase, irá firmado por el Presidente y Se cr etario del Colegio y se entregará al interesado, previo pago de los siguientes derechos: diez pesos á del Colegio y cinco pesos en favor del Se cr etario.

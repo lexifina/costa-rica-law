@@ -1,0 +1,1 @@
+Art. 66.-Los días primero y quince de cada mes deberán los Notarios y Cartularios enviar al Archivero Judicial un índice de las escrituras que hubieren autorizado, con expresión de la fecha de otorgamiento, nombre de las partes y naturaleza del acto ó contrato.

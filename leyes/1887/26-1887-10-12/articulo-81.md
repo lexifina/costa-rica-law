@@ -1,0 +1,2 @@
+Art. 81.-Si se tratare de autenticar un testamento cerrado se hará constar consignando en el protocolo una razón semejante á la que lleve la cubierta del testamento.
+En este caso y en los del artículo anterior la constancia del protocolo será firmada por el Notario, el testador ó interesado y por los testigos instrumentaes; no podrá entregarse el testamento ó documento sin estar firmada la diligencia en el protocolo.

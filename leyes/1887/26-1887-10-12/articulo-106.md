@@ -1,0 +1,1 @@
+Art. 106.-Los Notarios y Cartularios deberán pagar al Erario Público por el ejercicio de la profesión la cuarta parte de los derechos que devenguen conforme este arancel, excluidos los que les corresponden por razón de tiempo y distancias.

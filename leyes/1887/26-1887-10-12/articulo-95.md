@@ -1,0 +1,1 @@
+Art. 95.-En el primer caso del artículo anterior, sólo podrá reclamar la nulidad la persona obligada á favor del Cartulario, del testigo ó de sus respectivos cónyuges ó parientes, y en el segundo caso sólo podrá reclamarse la nulidad contra el otorgante que al hacer la escritura conociera el impedimento.

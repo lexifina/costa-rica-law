@@ -1,0 +1,1 @@
+Art. 10.-Recibida la información se pasará el expediente al Fiscal del Colegio para que emita dictamen, y evacuado éste, se dará cuenta á la Junta Directiva para que resuelva si ha de procederse ó no al procederse examen y en caso afirmativo nombre por mayoría de votos, tres miembros del Colegio que lo practiquen.

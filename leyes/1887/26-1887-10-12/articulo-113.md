@@ -1,0 +1,2 @@
+Art. 113.-Esta ley comenzará á regir en cuanto á la adquisición del título de Notario y concesión de la licencia para ejercer el cargo, el día en que se publique; y en lo relativo al ejercicio de la profesión el día 15 de enero de 1888. Desde esta última fecha quedarán derogados todas las leyes y reglamentos sobre cartulación.
+Palacio Presidencial.-San José, á los doce días del mes de octubre de mil ochocientos ochenta y siete.

@@ -1,0 +1,1 @@
+Art. 43.- En el caso del artículo anterior el Notario no comenzará un nuevo protocolo, sino que continuará el del Juez ó Alcalde, pagando á quien le entregare el protocolo el valor del papel sellado que aun estuviere en blanco.

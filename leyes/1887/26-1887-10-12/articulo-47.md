@@ -1,0 +1,1 @@
+Art. 47.-A los protocolos que se tienen por concluidos son aplicables las disposiciones de los artículos: 33 y 34; y siempre que por alguna causa el dueño del protocolo no pueda extender y firmar la razón final, la extenderá el Juez respectivo firmándola con su Secretario.

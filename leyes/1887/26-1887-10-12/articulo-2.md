@@ -1,0 +1,1 @@
+Art. 2°- La fe pública concedida á los Notarios no se limitará por la importancia del acto ó contrato, ni por las personas ni por el lugar. Podrán cartular en toda clase de actos ó contratos, fuera de su oficina y aun fuera de su domicilio, en cualquier punto de la República.

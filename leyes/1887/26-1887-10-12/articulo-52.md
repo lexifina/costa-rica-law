@@ -1,0 +1,1 @@
+Art. 52.-A las personas conocidas que por la certificación del Registrador ó del Archivero, por el índice que desde el principio debe presentar el Notario ó funcionario á cuyo cargo estaba el protocolo ó por cualquier otro medio se supiere ser otorgantes de las escrituras que se trata de reponer, se les citará personalmente.

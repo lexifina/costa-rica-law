@@ -1,0 +1,1 @@
+Art. 8°- El que quisiere obtener el título de Notario se presentará solicitándolo ante la Junta Directiva del Colegio de Abogados. La solicitud debe hacerse por escrito en papel del sello correspondiente, expresar el nombre y generales del postulante é ir acompañada del título de bachiller y de documento que compruebe la mayor edad.

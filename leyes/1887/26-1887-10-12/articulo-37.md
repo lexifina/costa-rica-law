@@ -1,0 +1,1 @@
+Art. 37.-El Supremo Tribunal, en cualquiera época que lo estime conveniente, podrá disponer la visita de oficina y examen de protocolos de alguno, algunos ó de todos los Cartularios, por medio de uno de los Magistrados ó de cualquiera otro funcionario judicial.

@@ -1,0 +1,1 @@
+Art. 13.-Si en este segundo examen fuere también aprobado el sustentante, el Presidente, en la misma sesión ó en la inmediata, le conferirá el título de Notario, le recibirá el correspondiente juramento y dispondrá que se le expida el diploma.
