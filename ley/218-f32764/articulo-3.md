@@ -1,0 +1,1 @@
+Artículo 3º.- Dentro de la autorización de esta ley no se admitirán asociaciones de carácter político, ni religioso ni las que tengan por objeto un fin que fuere física o legalmente imposible en los términos previstos por el artículo 631 del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 31.- Las formalidades para la formación de esas federaciones y confederaciones serán las mismas que las determinadas en esta ley para las asociaciones y serán los estatutos de esas nuevas entidades los que determinarán la relación de unas con respecto a las otras.

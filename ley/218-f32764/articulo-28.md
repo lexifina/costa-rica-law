@@ -1,0 +1,1 @@
+Artículo 28.- Al Poder Ejecutivo corresponde decretar la disolución de la asociación en los casos que determina el artículo 34. Decretada esa disolución el Juez procederá en la forma que indica el artículo anterior.

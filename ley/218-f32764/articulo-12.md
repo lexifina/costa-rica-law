@@ -1,0 +1,1 @@
+Artículo 12.- Las filiales pueden adquirir personería jurídica distinta de la asociación principal, cuando los estatutos de ésta se lo permitan: en tal evento los estatutos de la filial expresarán con claridad las relaciones y responsabilidades que existen entre una y otra entidad, especialmente en el caso de disolución o extinción de la principal.
