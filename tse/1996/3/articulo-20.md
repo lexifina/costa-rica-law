@@ -1,0 +1,2 @@
+Artículo 20.—Para que no se aplique la sanción correspondiente establecida en el artículo 22 de este Reglamento, el trabajador deberá dentro de los ocho días hábiles siguientes y por escrito, justificar ante el jefe inmediato la ausencia, sin que esa justificación implique el pago del salario.
+Será requisito para justificar la ausencia, que el trabajador haya dado aviso por teléfono, por intermedio de algún compañero de trabajo o por algún otro medio adecuado.

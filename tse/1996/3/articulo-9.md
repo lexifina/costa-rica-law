@@ -1,0 +1,3 @@
+Artículo 9°—Los oficiales de seguridad laborarán seis días continuos en el siguiente horario:
+Dos días de las 6,00 a las 14,00 horas, dos días de las 14,00 a las 22,00 horas, y dos días de las 22,00 a las 6,00 horas. Después de cada jornada semanal, tendrán derecho a un día de descanso completo dicho horario podrá ser variado definitiva o temporalmente si a juicio del tribunal las circunstancias que se presenten así lo ameritan.
+Las horas extras que les generen las jornadas de las 14,00 a las 22,00 horas (una) y de las 22,00 a las 6,00 horas (dos) se les retribuirán según lo establece la ley, con base en el salario devengado durante el mes en que se trabajó el tiempo extraordinario.

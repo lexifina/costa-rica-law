@@ -1,0 +1,1 @@
+Artículo 67.—El patrono permitirá a los miembros de la Junta Directiva del Sindicato el uso de los medios de comunicación internos (rotafolio, pizarra, intercomunicadores, etc.), para el ejercicio de sus funciones; siempre que no se afecten las labores normales del Tribunal.

@@ -1,0 +1,1 @@
+Artículo 21.—Las ausencias por enfermedad se justificarán con la presentación del certificado médico correspondiente, extendido por la Caja Costarricense de Seguro Social, Instituto Nacional de Seguros o un médico particular.

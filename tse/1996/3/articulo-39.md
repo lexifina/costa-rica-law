@@ -1,0 +1,3 @@
+CAPITULO X
+Del periodo de prueba
+Artículo 39.—De conformidad con lo que establece el inciso d) del artículo segundo de la Ley de Salarios y Régimen de Méritos del Tribunal Supremo de Elecciones y Registro Civil, los trabajadores que ingresen a prestar servicios en la institución deberán pasar un período de prueba no menor de tres meses en el desempeño del cargo. Dentro de ese lapso, cualquiera de las partes puede ponerle fin al contrato de trabajo, sin previo aviso y sin responsabilidad de ningún tipo. igual periodo de prueba se aplicara para los casos de ascensos, permutas y traslados. El servidor qu no cumpla satisfactoriamente durante el mencionado periodo regresara a su ocupación anterior.

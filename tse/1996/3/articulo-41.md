@@ -1,0 +1,1 @@
+Artículo 41.—Por puesto se entenderá el conjunto de tareas y responsabilidades establecidos en el Manual Descriptivo de Puestos, que requieran la atención permanente de una persona durante la totalidad o una parte de la jornada de trabajo.

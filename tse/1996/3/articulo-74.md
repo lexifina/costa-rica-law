@@ -1,0 +1,1 @@
+Articulo 74.—En caso de que no exista acuerdo sobre algún asunto sometido a consideración de la Comisión de Salud Ocupacional, el mismo se someterá al Consejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social para su resolución definitiva.

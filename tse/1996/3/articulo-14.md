@@ -1,0 +1,1 @@
+Artículo 14.—Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta o carné de registro de asistencia, sea a la hora de entrada o de salida, será considerada como ausencia a la correspondiente fracción de jornada.

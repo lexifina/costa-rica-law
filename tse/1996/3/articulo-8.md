@@ -1,0 +1,3 @@
+Artículo 8°—Todo trabajo que se ejecute fuera de los límites señalados en el artículo anterior, o durante días feriados o de descanso semanal, será considerado extraordinario.
+El patrono se obliga a pagar o, si el trabajador así lo solicita, a compensar el tiempo extraordinario que corresponda a los funcionarios que por la índole de sus tareas y responsabilidades, o porque así lo amerite el servicio, deban trabajar tiempo extraordinario, de conformidad con lo establecido en el Código de Trabajo.
+No se reconocerá el trabajo extraordinario ejecutado sin previa autorización del tribunal, salvo casos excepcionales.

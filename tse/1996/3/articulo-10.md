@@ -1,0 +1,3 @@
+CAPITULO III
+Del horario de trabajo
+Artículo 10.—Los trabajadores podrán disfrutar de un período de descanso de quince minutos pagados durante el curso de la jornada, el cual será otorgado por el jefe de cada oficina, de forma tal que no se afecte o desmejore el servicio público, pero que en ningún caso podrá ser ni al inicio ni al final de cada jornada, ni acumulativo. Disfrutarán además de treinta minutos pagados para tomar el almuerzo, los cuales serán entre las once y treinta y las doce y treinta horas de cada día, de acuerdo con la programación que al efecto realice el jefe de la oficina.

@@ -1,0 +1,1 @@
+Artículo 62.—Sin perjuicio de normas más favorables o disposiciones que lleguen a adoptarse en otros convenios internacionales, el patrono suministrará al Sindicato un local adecuado en las instalaciones de la Sede Central, en la ciudad de San José, para la atención de sus afiliados y la realización de las reuniones de la Junta Directiva.

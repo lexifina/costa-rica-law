@@ -1,0 +1,1 @@
+Artículo 6°—Los trabajadores deben acatar las órdenes e instrucciones impartidas por sus superiores, con atribuciones y competencia para darlas, que tengan por objeto el cumplimiento de las funciones del trabajador y que no atonten contra su integridad física y moral. Las órdenes deben impartirse en forma clara, comedida y respetuosa.

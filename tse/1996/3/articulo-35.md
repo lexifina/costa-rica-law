@@ -1,0 +1,1 @@
+Artículo 35.—Sólo los estudiantes universitarios, en número no mayor de cinco en toda la institución, y no más de uno en cada sección, pueden disfrutar de un privilegio en cuanto a su asistencia irregular al Trabajo, con el fin de que puedan asistir a sus clases diarias, siempre que no exceda la ausencia de media jornada.

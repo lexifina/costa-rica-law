@@ -1,0 +1,1 @@
+Artículo 33.—Los permisos para ausentarse en horas de labores, no podrán exceder de cinco durante el mismo mes calendario, salvo que se tratare de un tratamiento médico y el interesado presentare la correspondiente justificación. Se exceptúan también los casos en que circunstancias especiales, debidamente comprobadas, justifiquen el permiso ajuicio del Tribunal.

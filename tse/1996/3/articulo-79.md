@@ -1,0 +1,2 @@
+Artículo 79.—Todas las quejas, peticiones o solicitudes que hagan trabajadores deberán ser por escrito y tramitadas en el más estricto orden jerárquico, salvo si de tratase de conflictos con el jefe inmediato superior.
+En todo caso, la tramitación de las actuaciones deberá quedar concluida a más tardar en los ocho días hábiles siguientes a su presentación ante quien corresponda. No obstante, en casos urgentes, las peticiones serán hechas verbalmente y resueltas de inmediato en la misma forma.

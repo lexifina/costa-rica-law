@@ -1,0 +1,1 @@
+Artículo 52.—En caso de un despido que sea declarado injustificado en la vía jurisdiccional, el trabajador podrá optar por la reinstalación a su cargo con el pago de los salarios dejados de percibir, o por el pago de los derechos y prestaciones legales establecidas en el Código de Trabajo, siempre y cuando la sentencia judicial respectiva así lo declare.

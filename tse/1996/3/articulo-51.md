@@ -1,0 +1,1 @@
+Artículo 51.—Cuando se investigue cualquier falta que implique causal de despido, la Institución podrá suspender al trabajador mientras se instruya el caso; durante el tiempo que dure la suspensión, el trabajador deberá recibir su salario en forma normal. En caso de no ser comprobadas la falta o faltas que se le atribuyan al trabajador, se dejará sin efecto la suspensión.

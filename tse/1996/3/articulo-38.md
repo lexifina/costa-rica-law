@@ -1,0 +1,5 @@
+CAPITULO IX
+De las incapacidades
+Artículo 38.—En todos los casos de incapacidad comprobada y amparada por la Caja Costarricense de Seguro Social, con motivo de enfermedad o maternidad, el patrono se compromete a pagar el salario completo al trabajador, quedando autorizado por éste para cobrar el subsidio a que tiene derecho en la institución aseguradora, todo con base lo que al efecto dispone la ley y reglamentos correspondientes.
+El subsidio se otorgará por todo el período de incapacidad otorgado la Caja Costarricense de Seguro Social.
+Cuando por causa de enfermedad o accidente, resultare una incapacidad parcial permanente del trabajador, pero que no obstante pueda desempeñar otro puesto en la institución, el patrono tratará en lo posible de ubicarlo en una función compatible con el nuevo estado de salud, sin que pueda reducirle el salario anterior al hecho incapacitante; además deberá seguirle otorgando los incrementos futuros del puesto anterior, si ese salario o puesto anterior fuere superior a) que desempeñare como efecto de la reubicación después del alta por enfermedad o accidente.

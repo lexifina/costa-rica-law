@@ -1,0 +1,1 @@
+Artículo 34.—Salvo el caso de incapacidad declarada por la Caja Costarricense de Seguro Social, no podrán solicitar licencia o permiso con roce de sueldo los empleados que no tengan, por lo menos, seis meses de laborar para la institución.

@@ -1,0 +1,1 @@
+Artículo 30.—Las licencias con goce de salario que no excedan de seis meses y las incapacidades que no excedan de tres meses, no interrumpirán la antigüedad del trabajo para los efectos de las vacaciones.

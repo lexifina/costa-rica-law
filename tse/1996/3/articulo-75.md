@@ -1,0 +1,1 @@
+Articulo 75.—La institución se compromete a cumplir las normas de seguridad e Higiene en el trabajo y a atender las sugerencias de la Comisión de Salud Ocupacional en tomo a las medidas que deben adoptarse para el cabal cumplimiento de lo que ordena al respecto las leyes y reglamentos correspondientes.

@@ -1,0 +1,1 @@
+Articulo 76.—La institución mantendrá el servicio de médico de empresa y en la medida que sus posibilidades presupuestarias lo permitan, procurará adquirir aquellos medicamentos que no estén disponibles en las farmacias de la Caja Costarricense de Seguro Social.

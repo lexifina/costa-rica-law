@@ -1,0 +1,1 @@
+Artículo 71.—Los representantes de los trabajadores serán nombrados por la Junta Directiva del Sindicato y los de la institución serán designados por el Tribunal Supremo de Elecciones. De la integración de esta comisión se informará, mediante la nota respectiva, al Concejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social.

@@ -1,0 +1,1 @@
+Artículo 56.—Las sanciones se impondrán por escrito y una copia constara en el expediente personal respectivo. Se llevara un registro de sanciones, que servirá de base respecto de sanciones posteriores. Las suspensiones se entienden sin goce de sueldo.
