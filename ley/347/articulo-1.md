@@ -1,4 +1,6 @@
+(Derogado)
 N° 347
+(Esta norma fue derogada por el artículo 47 de la Ley Orgánica del Instituto Costarricense de Turismo (ICT), N° 1917 del 30 de julio de 1955)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Por cuanto:
 Corresponde adaptar el contexto de la ley N° 91 de 16 de julio de 1931 a los propósitos actuales hacia el fomento del turismo, fuente importante en la economía nacional, ha llegado a ser necesaria la reforma a dicha ley, al objeto de adscribir al Ministerio de Gobernación la Junta que atiende a la dirección y fomento del mismo, así como variar la forma en que ella debe integrarse y circunscribir con mayor exactitud la órbita de sus actividades, separándola de los asuntos relativos a la inmigración,

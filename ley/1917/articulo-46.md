@@ -1,0 +1,3 @@
+Artículo 46.- Créanse los siguientes impuestos a fin de que se recauden ingresos suficientes que permitan al Estado atender debidamente la subvención que bebe serle asignada al Instituto según el artículo 7°, inciso b) de esta ley:
+a) Un impuesto del cinco por ciento del valor de los pasajes vendidos de Costa Rica, para cualquier clase de viajes internacionales; y
+b) Un impuesto de dos dólares, moneda corriente de los Estados Unidos de América, o su equivalente en colones al tipo corriente de cambio, por cada tarjeta de turismo que emita el Instituto, de conformidad con las disposiciones que al respecto contendrá el Reglamento de esta ley.
