@@ -1,1 +1,0 @@
-Artículo 6º—Se autoriza a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, para que en la atención del presente estado de emergencia utilice todos los fondos remanentes no comprometidos de declaraciones anteriores, que aún se encuentren vigentes, siempre que con ello no se afecten obras o proyectos actuales.
