@@ -1,1 +1,0 @@
-Art. 4. No podrá rematarse partido alguno sinó es con todos los Estanquillos que le correspondan, concurriendo el Administrador del ramo como Fiscal al acto de los remates. El Mineral del Aguacate formará partido bajo la base de dos Estanquillos y por el valor de quinientos pesos en todo el año.

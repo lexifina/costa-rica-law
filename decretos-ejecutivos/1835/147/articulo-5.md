@@ -1,1 +1,0 @@
-Art. 5. Los rematarios otorgarán la fianza de seguridad, á satisfaccion y responsabilidad del mismo Administrador, el dia inmediato al remate; pues celebrados estos no se admitiran ya mejoras de ninguna clase.

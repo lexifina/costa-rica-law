@@ -1,1 +1,0 @@
-Art. 2. Desde el dia de mañana se fijarán carteles en las cuatro ciudades principales convocando postores por el término de nueve dias, entre los cuales se darán los pregones de derecho en todas ellas, por el Intendente en el lugar de su residencia, y por los Jueces de 1ª Instancia en los demás.
