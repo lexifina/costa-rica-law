@@ -1,12 +1,9 @@
-Artículo 332.—Condiciones para la aceptación y tramitación del despacho mediante declaración anticipada.
-Para los efectos de aceptación de la declaración, la transmisión anticipada del manifiesto de carga debe haber sido recibida de conformidad por la aduana de ingreso. Previa a la aceptación de la declaración aduanera anticipada se deberá cancelar la obligación tributaria aduanera.
-La Dirección General de Aduanas mediante la aplicación de metodologías de análisis de riesgo, deberá establecer los sujetos y mercancías sobre los que se aplicarán las revisiones físicas para esta modalidad. Los Gerentes de Aduana deberán comunicar a la Dirección General el nivel de hallazgo obtenido, producto de las revisiones físicas practicadas.
-La Aduana competente dispondrá las zonas de operación aduanera en las que se deba realizar el reconocimiento físico de las mercancías; cuando no existan depositarios aduaneros bajo la competencia territorial de esa Aduana de control donde se puedan remitir las mercancías declaradas para su revisión.
-No será necesaria la remisión a esas instalaciones en los casos siguientes:
-a) Envíos urgentes.
-b) Envíos de socorro.
-c) Ingreso o salida de personas fallecidas.
-d) Muestras sin valor comercial.
-e) Importaciones no comerciales.
-f) En aquellos casos que disponga la Dirección General de Aduanas mediante resolución de alcance general.
-(Así reformado mediante Decreto Ejecutivo N° 31063 de 4 de febrero de 2003)
+Artículo 332.—Condiciones para la aceptación y tramitación del despacho mediante declaración anticipada. La Dirección General de Aduanas podrá disponer las condiciones de aceptación de la declaración de acuerdo con los requerimientos de infraestructura física y tecnología necesarios, para tramitar estas declaraciones y ejercer un control adecuado. La Aduana competente dispondrá las zonas de operación aduanera en las que se deba realizar el reconocimiento físico de las mercancías. Cuando no existan depositarios aduaneros bajo competencia territorial de esa Aduana de control donde se puedan remitir las mercancías declaradas para su revisión. No será necesaria la remisión a estas instalaciones en los casos siguientes:
+a. Envíos urgentes en razón de su naturaleza o por responder a una necesidad debidamente justificada.
+b. Envíos de socorro.
+c. Ingreso y salida de personas fallecidas.
+d. Muestras sin valor comercial.
+e. Importaciones no comerciales.
+f. En aquellos casos que disponga la Dirección General mediante
+resolución de alcance general.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

@@ -15,9 +15,12 @@ Desarrollar estrategias y controles a fin de evitar distintos usos y simulacione
 Informar a la Gerencia sobre las irregularidades que se deriven de la incorrecta aplicación de las normas que regulan los regímenes aduaneros.
 Registrar, actualizar en el Sistema de Información Aduanera datos sobre los regímenes aduaneros y comunicar los datos y formatos que demande el Sistema; registrar, actualizar y controlar los procesos concernientes a las operaciones de los regímenes no definitivos con las características y cualidades que correspondan.
 Velar porque se apliquen las modificaciones y sanciones que generen sobre la operación de los regímenes aduaneros.
-Comunicar en forma inmediata al Gerente de la aduana, la existencia de un saldo negativo o insuficiente en la cuenta comente de un agente aduanero, para los efectos del artículo 260 de este Reglamento.
+(DEROGADO, por el artículo 5° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
 Preparar en coordinación con el Departamento Administrativo, los roles y rotación de trabajo de los funcionarios de esa área.
 Coadyuvar con la División de Control y Fiscalización, suministrando la información requerida para la elaboración de Plan Anual de Fiscalización.
-Controlar la cuenta corriente de los agentes aduaneros.
-Otras que le encomiende la Gerencia.
+(DEROGADO, por el artículo 5° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+q. Aplicar las medidas de control correspondientes para la protección de los derechos relacionados con la propiedad industrial e intelectual, de conformidad con leyes especiales en la materia, en coordinación con las diferentes dependencias tanto administrativas como judiciales que tengan competencia en la materia.
+(Así adicionado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
+r. Otras que le encomiende la Gerencia.
+(Así corrido el inciso anterior por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004, que lo pasó de ser el inciso q) al r))..
 Para el cumplimiento de sus funciones el Departamento Técnico estará a cargo de un Jefe de Departamento y contará con las secciones de Verificación y de Supervisión e Investigación.

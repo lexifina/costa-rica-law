@@ -26,6 +26,6 @@ Establecer los mecanismos que garanticen la seguridad de los datos e informació
 Determinar y comunicar a la División de Informática, los niveles de acceso a los sistemas de información por parte de los funcionarios de la aduana.
 Velar por la aplicación de los planes de contingencia en la aduana.
 Incluir en los sistemas de información, los criterios y parámetros que para la aplicación de la selectividad y aleatoriedad, emita la División de Control y Fiscalización.
-Comunicar en forma inmediata y por el medio más expedito, a las demás aduanas del país, la existencia de un saldo negativo o insuficiente en la cuenta comente de un agente aduanero, para los efectos del artículo 260 de este Reglamento.
+(DEROGADO, por el artículo 5° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).
 Otras que le encomiende la Dirección General.
 La Gerencia de la aduana podrá tomar las medidas administrativas que estime convenientes, para el control de los regímenes, operaciones y trámites aduaneros que competan a la aduana a su cargo.

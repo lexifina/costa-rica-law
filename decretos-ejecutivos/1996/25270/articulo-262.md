@@ -1,2 +1,5 @@
-Artículo 262.—Responsabilidad del agente aduanero
-El agente aduanero está obligado a comunicar a la aduana de control, cualquier dato o información que incida en la veracidad del registro de la cuenta comente y presentar mensualmente a la aduana de jurisdicción, el estado de la cuenta, con indicación de los débitos y créditos debidamente conciliados.
+Artículo 262.—Solicitud, autorización y ejecución del reembarque. La solicitud de reembarque o retorno de las mercancías extranjeras desembarcadas por error, se presentará a la autoridad aduanera que corresponda por el transportista, el consignatario o su representante, en los formatos y mediante transmisión electrónica de datos u otros medios autorizados.
+La autoridad aduanera autorizará el reembarque solamente cuando las mercancías no se hubieran destinado a un régimen aduanero, no se encuentren en abandono o no se haya configurado respecto de ellas presunción fundada de infracción penal. Para conceder la autorización de reembarque, no se exigirá ninguna garantía.
+Una vez autorizado el reembarque, el mismo debe realizarse dentro de un plazo de diez días hábiles contados a partir de su autorización, salvo que por causas justificadas la autoridad aduanera otorgue un plazo mayor.
+De no efectuarse el reembarque dentro de ese plazo, conforme con el artículo 73 del RECAUCA, las mercancías se considerarán en abandono, sin perjuicio de otras responsabilidades que puedan deducirse.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

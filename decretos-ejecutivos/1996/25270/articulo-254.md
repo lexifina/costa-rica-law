@@ -1,2 +1,1 @@
-Artículo 254.—Determinación de faltantes, sobrantes, daños o irregularidades respecto de las mercancías y sus embalajes
-Cuando se determine la existencia de bultos o mercancías faltantes o sobrantes, o se determinen danos o irregularidades respecto de las mercancías o sus embalajes, quien hubiere realizado el examen previo lo comunicara en forma inmediata a la aduana, a efecto de que se adopten las medidas correspondientes. El depositario aduanero dejará constancia de la irregularidad detectada en los documentos o archivos que amparan las mercancías objeto del examen previo.
+Artículo 254.—(Derogado por el artículo 5° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

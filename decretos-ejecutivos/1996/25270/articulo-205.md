@@ -1,2 +1,3 @@
-Artículo 205.—Formalidades para retirar las mercancías rematadas
-Las mercancías deberán ser retiradas previo cumplimiento de las regulaciones no arancelarias que fueren aplicables y demás formalidades que establezca la Dirección General de Aduanas.
+Artículo 205.—Formalidades para retirar las mercancías rematadas. Las mercancías deberán ser retiradas previo cumplimiento de las regulaciones no arancelarias que fueren aplicables y demás formalidades que establezca la Dirección General de Aduanas.
+En la subasta de mercancías cuya importación esté restringida, limitada o que requiera de un permiso o autorización especial, sólo podrán ser adjudicadas a personas que legalmente puedan efectuar la importación de tales mercancías, para lo cual deberán presentar, los documentos, permisos, licencias, autorizaciones respectivas o dictámenes específicos de autoridades competentes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

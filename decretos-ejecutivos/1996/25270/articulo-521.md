@@ -1,3 +1,1 @@
-Artículo 521.—Ejecución del acto
-Los actos válidos o anulables dictados por los órganos competentes del Servicio serán ejecutorios desde el día siguiente a su notificación, salvo que contra ellos se interponga el incidente o excepción indicados en el artículo 195 de la Ley o el incidente de suspensión del acto administrativo establecido en el artículo 148 de la Ley General de la Administración Pública.
-El órgano instructor del procedimiento, deberá pronunciarse sobre los incidentes o excepciones interpuestas, de previo a conocer sobre el fondo de los recursos ordinarios establecidos en la Ley o de cualquier gestión interpuesta.
+Artículo 521.— (Derogado por el artículo 5° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

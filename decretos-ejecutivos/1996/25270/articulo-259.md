@@ -1,5 +1,3 @@
-Artículo 259.—Clases de créditos
-Los "créditos" constituyen:
-Aquellas sumas depositadas en las entidades autorizadas para recibir anticipos de rentas aduaneras, intereses, multas y demás cargos, cuando no se presenten bajo el procedimiento de autodeterminación y liquidación de tributos.
-Aquellas sumas de dinero cuya devolución se ordene mediante acto final y firme, por constituir un pago en exceso de tributos, hayan sido o no presentadas bajo el procedimiento de autodeterminación y liquidación de tributos.
-Los ajustes a que se refiere el literal b. de este artículo deberán ser comunicados a la Contabilidad Nacional.
+Artículo 259.—Consecuencia de la no justificación de sobrantes y destinación de los sobrantes justificados. En caso de que los sobrantes no se justifiquen, transcurrido el plazo de quince días hábiles, las mercancías excedentes quedarán a disposición de la autoridad aduanera para ser sometidas al proceso de subasta. Las mercancías o bultos sobrantes justificados en el plazo de quince días hábiles podrán ser reembarcados o destinados a un régimen aduanero.
+Si se optare por solicitar la operación de reembarque, la solicitud se presentará a la autoridad aduanera que corresponda por el transportista, el consignatario o su representante, en los formatos y mediante transmisión electrónica de datos u otros medios autorizados. Si se optare por un régimen aduanero, la solicitud deberá efectuarse de acuerdo con los procedimientos establecidos para ese régimen.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

@@ -1,5 +1,5 @@
-Artículo 7.—Funciones del Director
-En el ejercicio de su competencia, además de las funciones señaladas en el CAUCA y en la Ley, le corresponden al Director General, las siguientes funciones:
+Artículo 7º—Funciones del Director. En el ejercicio de su competencia, además de las funciones señaladas en el CAUCA, el RECAUCA y en la Ley, le corresponden al Director General, las siguientes funciones:
+(Así reformado por artículo 1° de Decreto Ejecutivo No.31667 de 5 de marzo de 2004)
 Definir, en coordinación con el Ministro y Viceministro, las políticas, directrices y disposiciones que regulen el Sistema Aduanero Nacional, de conformidad con lo que establece la legislación vigente y velar por su efectivo cumplimiento.
 Organizar y dirigir la función de las diferentes dependencias del Servicio Nacional de Aduanas, comunicar las políticas que se han de seguir y velar por su cumplimiento; aprobar y revisar periódicamente los planes establecidos, la estructura organizacional, el desarrollo del recurso humano, los procesos técnicos y administrativos y otras áreas relacionadas y con base en sus resultados, introducir los ajustes que se consideren necesarios.
 Coordinar y dar seguimiento a los servicios que brinda el Servicio, con el fin de mantener una calidad óptima en estos.
@@ -13,7 +13,11 @@ Revisar y estudiar informes y reportes sobre diferentes asuntos que involucra su
 Representar al Servicio Nacional de Aduanas en seminarios, congresos, reuniones técnicas y otras actividades similares, nacionales o internacionales y velar por el efectivo cumplimiento de los acuerdos adoptados en ellas.
 Solicitar el apoyo del Departamento Aduanero de la Policía de Control Fiscal cuando se considere oportuno para el cumplimiento de sus funciones. (Así reformado por el artículo 14 del Decreto Ejecutivo N° 25295 de 17 de junio de 1996)
 Conocer y resolver de los recursos de revisión jerárquicos interpuestos contra actos dictados por las aduanas y de los recursos de reconsideración interpuestos contra sus actos finales.
-Imponer sanciones administrativas y tributarias aduaneras, cuando le corresponda.
-Coordinar y colaborar con otros órganos del Ministerio en la materia de su competencia.
-Otras que le deleguen o encomienden sus superiores.
+n. Imponer sanciones administrativas y tributarias aduaneras, cuando le corresponda, como resultado de un procedimiento administrativo iniciado por la Dirección General y sus Divisiones.
+(Así reformado por artículo 1° de Decreto Ejecutivo No.31667 de 5 de marzo de 2004)
+o.Coordinar y colaborar con otros órganos del Ministerio en la materia de su competencia.
+p. Autorizar a los Auxiliares de la Función Pública Aduanera.
+(Así adicionado por artículo 1° de Decreto Ejecutivo No.31667 de 5 de marzo de 2004)
+q. Otras que le deleguen o encomienden sus superiores.
+(Así corrido el inciso anterior por el artículo 1° de Decreto Ejecutivo No.31667 de 5 de marzo de 2004, que lo pasó del inciso p) al q))
 Corresponde al Director General, la definición de la estructura organizacional de aquellas dependencias, que por su volumen o por tipo de servicio que prestan, no cuentan con una estructura mínima definida en este decreto.

@@ -1,12 +1,11 @@
-Artículo 2.—Abreviaturas
-Para los efectos de este reglamento se entenderá por:
-Auxiliar: el Auxiliar de la función pública aduanera.
-CAUCA: el Protocolo de Modificación del Código Aduanero Uniforme Centroamericano II., aprobado mediante Ley No.7485 de 6 de abril de 1995
-Dirección General: la Dirección General de Aduanas
-Director General: el Director General de Aduanas
-Ley: La Ley General de Aduanas, N° 7557 de 20 de octubre de 1995.
-Ministerio: el Ministerio de Hacienda
-Ministro: el Ministro de Hacienda
-Servicio: el Servicio Nacional de Aduanas
-Sistema: el Sistema Aduanero Nacional
-Viceministro: el Viceministro de Ingresos del Ministerio de Hacienda
+Artículo 2º—Abreviaturas. Para los efectos de este reglamento se entenderá por:
+Auxiliar: El Auxiliar de la función pública aduanera. CAUCA: El Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano, aprobado mediante Ley Nº 8360 de 24 de junio del 2003, publicada en La Gaceta Nº 130 de 8 de julio del 2003.
+Dirección General: La Dirección General de Aduanas.
+Director General: El Director General de Aduanas. Ley: La Ley General de Aduanas, N° 7557 de 20 de octubre de 1995 y sus reformas.
+Ministerio: El Ministerio de Hacienda.
+Ministro: El Ministro de Hacienda.
+RECAUCA: El Reglamento al Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano, Resolución Nº 101-2002, del Consejo Arancelario y Aduanero Centroamericano, aprobado mediante Decreto Ejecutivo Nº 31536-COMEX-H del 24 de noviembre del 2003.
+Servicio: El Servicio Nacional de Aduanas
+Sistema: El Sistema Aduanero Nacional
+Viceministro: El Viceministro de Ingresos del Ministerio de Hacienda.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

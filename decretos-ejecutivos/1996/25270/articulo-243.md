@@ -1,9 +1,9 @@
-Artículo 243.—Causales específicas de no aceptación de la Declaración Aduanera transmitida electrónicamente.
-La autoridad aduanera no aceptara la declaración aduanera si:
-Existen discrepancias entre el inventario de mercancías que se encuentra en el sistema informático de la aduana y el despacho solicitado.
-No se han llenado todos los espacios disponibles en la declaración aduanera cuando sea obligatorio completarlos, de conformidad con el régimen o modalidad solicitados.
-Existen contradicciones en la información declarada, entre los mismos datos de la declaración o de éstos en relación con los documentos adjuntos.
-No han sido cancelados mediante entero o separados de la cuenta corriente los tributos correspondientes.
-Otras que la Dirección General establezca mediante resolución razonada para cada Régimen.
+Artículo 243.—Causales de no aceptación. La declaración aduanera transmitida electrónicamente no se aceptará si presenta inconsistencias o errores, o en general, no se hubiere cumplido con los requisitos necesarios para la aplicación del régimen solicitado.
+Tampoco se aceptará si:
+a. Existe discrepancia entre el inventario o registro de mercancías que se encuentra en el sistema informático del servicio aduanero y el despacho solicitado.
+b. No se han llenado todos los espacios disponibles en la declaración aduanera cuando sea obligatorio completarlos, de conformidad con el régimen o modalidad solicitados.
+c. Existe contradicción en la información transmitida, entre los mismos datos de la declaración o de éstos en relación con la información registrada.
+d. No han sido cancelados o garantizados, cuando corresponda, los derechos e impuestos aplicables.
+e. Se dan otras causales de no aceptación que el Servicio establezca mediante resolución de alcance general debidamente publicadas en el Diario Oficial La Gaceta.
 De no aceptarse la declaración se señalaran los errores y defectos y se procederá de conformidad con el artículo 89 de la Ley.
-(Así reformado por el artículo 8 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

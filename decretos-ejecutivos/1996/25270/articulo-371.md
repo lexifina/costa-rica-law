@@ -1,4 +1,4 @@
-Artículo 371.—Prohibición
-No podrán gozar del beneficio señalado en el artículo anterior los viajeros que traigan consigo mercancías con carácter comercial.
-Este beneficio no será acumulativo y se considerará totalmente disfrutado para el periodo de seis meses con cualquier cantidad a que se le hubiere aplicado en un solo viaje.
+Artículo 371.—Condiciones para gozar de la exención. No podrán gozar del beneficio señalado en el artículo anterior los viajeros que traigan consigo mercancías con carácter comercial. Este beneficio no será acumulativo y se considerará totalmente disfrutado para el periodo de seis meses con cualquier cantidad a que se le hubiere aplicado en un solo viaje.
 Este beneficio tiene carácter personal e intransferible.
+Para que el viajero pueda gozar del beneficio a que se refiere el artículo 90 del CAUCA deberá cumplir además con las condiciones que establece el artículo 211 del RECAUCA. Asimismo, de acuerdo con este último artículo los capitanes, pilotos, conductores y tripulantes de los medios de transporte que efectúen el tráfico internacional de mercancías, sólo podrán traer del extranjero o llevar del territorio nacional, libres del pago de tributos, sus ropas y efectos personales.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

@@ -1,5 +1,5 @@
-Artículo 185.—Documentos que debe conservar las entidades publicas
-Las entidades públicas deberán conservar originales y copias de los siguientes documentos:
-Originales de las autorizaciones, licencias, permisos y otros documentos exigibles en las regulaciones no arancelarias.
-Originales de la factura comercial, declaración de valor y conocimiento de embarque y notas de exoneración.
-Copias de los Enteros de gobierno por pago de tributos.
+Artículo 185.—Documentos que deben conservar las entidades públicas. Las entidades públicas deberán conservar originales y copias de los siguientes documentos:
+a. Originales de las autorizaciones, licencias, permisos y otros documentos exigibles en las regulaciones no arancelarias.
+b. Originales de la factura comercial, conocimiento de embarque y notas de exoneración.
+c. Copias de los Enteros de gobierno por pago de tributos
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

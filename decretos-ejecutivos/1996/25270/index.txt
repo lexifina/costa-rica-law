@@ -219,6 +219,7 @@ articulo-218.md
 articulo-219.md
 articulo-220.md
 articulo-221.md
+articulo-221-bis.md
 articulo-222.md
 articulo-223.md
 articulo-224.md
@@ -244,6 +245,8 @@ articulo-243.md
 articulo-244.md
 articulo-245.md
 articulo-246.md
+articulo-246-bis.md
+articulo-246-ter.md
 articulo-247.md
 articulo-248.md
 articulo-249.md
@@ -315,6 +318,7 @@ articulo-312.md
 articulo-313.md
 articulo-314.md
 articulo-315.md
+articulo-315-bis.md
 articulo-316.md
 articulo-316-bis.md
 articulo-317.md
@@ -339,6 +343,7 @@ articulo-335.md
 articulo-336.md
 articulo-337.md
 articulo-338.md
+articulo-338-bis.md
 articulo-339.md
 articulo-340.md
 articulo-341.md
@@ -411,6 +416,7 @@ articulo-407.md
 articulo-408.md
 articulo-409.md
 articulo-410.md
+articulo-410-bis.md
 articulo-411.md
 articulo-412.md
 articulo-413.md
@@ -518,6 +524,8 @@ articulo-514.md
 articulo-515.md
 articulo-516.md
 articulo-517.md
+articulo-517-bis.md
+articulo-517-ter.md
 articulo-518.md
 articulo-519.md
 articulo-520.md

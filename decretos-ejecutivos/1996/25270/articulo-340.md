@@ -1,3 +1,2 @@
-Artículo 340.—Autorización de la solicitud
-Previo a la autorización, la Dirección General podrá ordenar las pruebas o inspecciones que considere pertinentes.
-En la autorización respectiva, la Dirección General dejará sin efecto la primera declaración y ordenará a la aduana que aplique el monto de los tributos canceladas a la declaración que ampare la mercancía sustituida.
+Artículo 340.—Autorización de la solicitud. Previo a la autorización, la Dirección General podrá ordenar las pruebas o inspecciones que considere pertinentes, a costa del interesado. En la autorización respectiva, la Dirección General ordenará dejar sin efecto la primera declaración y ordenará a la oficina competente que aplique el monto de los tributos cancelados a la declaración que ampare la mercancía sustituida.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

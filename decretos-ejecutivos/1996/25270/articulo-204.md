@@ -1,3 +1,2 @@
-Artículo 204.—No concurrencia de postores
-Si el día del remate no se presentaren postores para la totalidad o parte de las mercancías, la oficina competente de la aduana señalará nuevo día para la subasta de las mercancías no rematadas, diez días hábiles después con un descuento del veinticinco por ciento (25%) de su precio base.
-Si después de rematarse por segunda vez, las mercancías no fueren adjudicadas, se procederá de conformidad con lo establecido por el artículo 256 de la Ley.
+Artículo 204.—Mercancías no adjudicadas. En cuanto a las mercancías rematadas y no adjudicadas la Aduana procederá según lo dispuesto en los artículos 77 y 271 de la Ley y lo dispuesto en el artículo 36 de la Ley número 8000 de 5 de mayo del 2000, publicada en La Gaceta Nº 99 de 24 de mayo del 2000 (Ley de Creación del Servicio Nacional de Guardacostas).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

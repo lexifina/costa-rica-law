@@ -1,2 +1,2 @@
-Artículo 517.—Plazo de la exportación temporal para d perfeccionamiento pasivo
-El plazo de la exportación temporal para el perfeccionamiento pasivo será de seis meses con posibilidad de prórroga por otro plazo igual. Si transcurrido este plazo las mercancías no han retomado, se tendrá como exportación definitiva.
+Artículo 517.—Reimportación de mercancías. La reimportación de mercancías que se hubiesen exportado bajo el régimen de exportación temporal para perfeccionamiento pasivo, que se realice después del vencimiento del plazo de permanencia en el exterior establecido para dicho régimen, causará el pago de los derechos e impuestos respectivos, como si dichas mercancías se importaran por primera vez al territorio aduanero.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

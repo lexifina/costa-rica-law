@@ -15,5 +15,5 @@ TITULO I
 Disposiciones Generales
 CAPITULO I
 Objeto
-Artículo 1.—Objeto
-El presente Reglamento establece las disposiciones necesarias para la aplicación del Protocolo de Modificación del Código Aduanero Uniforme Centroamericano II, aprobado mediante Ley No. 7485 de 6 de abril de 1995, y la Ley General de Aduanas, Ley No. 7557 de 20 de octubre de 1995.
+Artículo 1º—Objeto. El presente Reglamento establece disposiciones para la aplicación del Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano, aprobado mediante Ley Nº 8360 de 24 de junio del 2003, del Reglamento al Segundo Protocolo de Modificación al Código Aduanero Uniforme Centroamericano, aprobado mediante Decreto Ejecutivo Nº 31536-COMEX-H de 24 de noviembre del 2003, y de la Ley General de Aduanas, Ley Nº 7557 de 20 de octubre de 1995, y sus reformas.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

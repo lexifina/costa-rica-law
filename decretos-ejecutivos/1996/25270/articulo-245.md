@@ -1,7 +1,5 @@
-Artículo 245.—Verificación de la Declaración Aduanera.
-Salvo disposición especial en contrario de este Reglamento, en cualquier régimen aduanero o modalidad la autoridad aduanera podrá comprobar la veracidad de la información declarada ya sea mediante su revisión documental, el reconocimiento físico, o ambos, de unidades de transporte, vehículos, bultos o mercancías, utilizando criterios selectivos y aleatorios.
-La revisión documental consistirá en el análisis de la información declarada y su cotejo con los documentos e información que se solicite al declarante o que conste en los
-archivos del Servicio.
-Cuando la aduana no disponga de la declaración aduanera y sus documentos adjuntos y corresponda efectuar una revisión documental o un reconocimiento físico, el declarante deberá
-presentarlos en un plazo máximo de veinticuatro horas a partir de la aceptación de la declaración.
-(Así reformado por el artículo 9 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
+Artículo 245.—Verificación de la Declaración Aduanera. En cualquier modalidad o régimen aduanero, la autoridad aduanera podrá utilizar criterios selectivos y aleatorios, para comprobar la veracidad de la información declarada de unidades de transporte, vehículos, bultos o mercancías, mediante su revisión documental, el reconocimiento físico, o ambos, salvo disposición especial en contrario de este Reglamento.
+La declaración aduanera autodeterminada, será sometida a un proceso selectivo y aleatorio, para precisar si corresponde efectuar la verificación inmediata de lo declarado, en caso de proceder la verificación inmediata, podrá ordenarse la verificación documental o el reconocimiento físico de las mercancías.
+La verificación documental, consistirá en el análisis de la información declarada y su cotejo con los documentos que sustentan la declaración y demás información que se solicite al declarante o agente aduanero y la que conste en los archivos o base de datos del Servicio.
+Cuando la Aduana no disponga de la declaración aduanera o de sus documentos adjuntos y corresponda efectuar una revisión documental o un reconocimiento físico, el declarante deberá presentarlos en un plazo máximo de veinticuatro horas a partir de la aceptación de la declaración.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

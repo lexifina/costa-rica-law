@@ -1,2 +1,1 @@
-Artículo 530.—Rechazo de pruebas
-El órgano instructor podrá rechazar las pruebas ofrecidas por la parte cuando resulten impertinentes, no conduzcan a probar algún elemento trascendente del asunto que se conoce o sean hechos públicos y notorios.
+Artículo 530.— (Derogado por el artículo 5° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

@@ -1,3 +1,4 @@
-Artículo 261.—Obligación de comunicación a las aduanas y a la División de Estadística, Registro y Divulgación
-La aduana de control tendrá la obligación de comunicar a las aduanas del país, en forma inmediata y por el medio más expedito, la existencia de un saldo negativo o insuficiente, con el fin de que se proceda de conformidad con lo establecido en el párrafo segundo del artículo 29 de la Ley, Igualmente, deberá comunicarlo a la División de Estadísticas.
-Registro y Divulgación, para los efectos de su competencia.
+Artículo 261.—Plazo para que la autoridad aduanera rectifique el manifiesto de carga. Presentadas y aceptadas las justificaciones de los faltantes y sobrantes, la autoridad aduanera a más tardar dentro del día hábil siguiente hará las rectificaciones en el respectivo manifiesto de carga u otro medio que haga sus veces. Justificado fehacientemente el faltante o sobrante de bultos, la autoridad aduanera rectificará en el manifiesto lo siguiente:
+a. Rebajará del correspondiente conocimiento o guía aérea los bultos cuya falta se haya justificado.
+b. Agregará, al manifiesto del medio de transporte en que llegaron al país, una nueva partida de orden comprensivo de los bultos sobrantes, debidamente justificados.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

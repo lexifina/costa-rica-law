@@ -1,4 +1,3 @@
-Artículo 258.—Clases de débitos
-Los "débitos" constituyen:
-Las sumas exigibles por tributos, intereses, multas, ajustes a la obligación tributaria aduanera y demás cargos que se generen en declaraciones a regímenes definitivos, cuando no se presenten bajo el procedimiento de autodeterminación y liquidación de tributos.
-Los tributos no pagados que se determinen en el ejercicio de las facultades de control y fiscalización.
+Artículo 258.—Momento y lugar donde se detecta el faltante y sobrante y plazo para justificar. Los sobrantes y faltantes de mercancías se detectarán en el ingreso al finalizar la descarga del medio de transporte o, en los depósitos aduaneros u otro auxiliar autorizado, al momento de la recepción al finalizar la descarga de la mercancía en sus instalaciones.
+El transportista o su representante, el exportador o embarcador y el consignatario, en su caso, deberán justificar los faltantes o sobrantes de mercancías en relación con la cantidad consignada en el manifiesto, dentro del plazo máximo de quince días hábiles contado a partir del día siguiente de la comunicación del documento de recepción de la carga, en el que se hará constar la diferencia detectada. Esta comunicación se efectuará al transportista o su representante o al consignatario.
+(Así reformado por artículo 2° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

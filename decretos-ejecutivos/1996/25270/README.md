@@ -23,3 +23,4 @@ Reglamento a la Ley General de Aduanas
 | 8 | 2002-09-10 | Decreto Ejecutivo 30721 (2002-09-10) |
 | 9 | 2002-09-16 | Decreto Ejecutivo 30817 (2002-09-16) |
 | 10 | 2003-02-04 | Decreto Ejecutivo 31063 (2003-02-04) |
+| 11 | 2004-03-05 | Decreto Ejecutivo 31667 (2004-03-05) |

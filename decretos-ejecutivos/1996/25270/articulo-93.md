@@ -1,2 +1,3 @@
-Artículo 93.—Otros instrumentos de garantía
-Además de los instrumentos contemplados en la Ley, los Auxiliares podrán garantizar sus operaciones mediante los siguientes instrumentos: bonos y certificados del Estado o de sus instituciones, cheque de gerencia a favor de la Dirección General, dinero en efectivo mediante depósito en un banco del Sistema Bancario Nacional a favor del Fisco.
+Artículo 93.—Otros instrumentos de garantía. Además de los instrumentos contemplados en la Ley, los Auxiliares podrán garantizar sus operaciones mediante los siguientes instrumentos: bonos y certificados del Estado o de sus instituciones, cheque de gerencia a favor de la Dirección General, dinero en efectivo mediante depósito en un banco del Sistema Bancario Nacional a favor del Fisco.
+Las garantías serán conservadas bajo custodia de la oficina competente, en una institución bancaria u otra institución que preste esos servicios de custodia en condiciones satisfactorias para el Servicio Aduanero.
+(Así reformado por artículo 1° del Decreto Ejecutivo No. 31667 de 5 de marzo de 2004).

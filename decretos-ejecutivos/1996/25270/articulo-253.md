@@ -1,3 +1,3 @@
-Artículo 253.—Extracción de muestras
-Se podrá extraer muestras de mercancías para cumplir con requisitos de inscripción o autorización de ingreso o para determinar su correcta clasificación arancelaria.
-Las muestras extraídas estarán sujetas el pago de los tributos respectivos y se limitarán estrictamente a la cantidad necesaria para efectuar los análisis correspondientes.
+Artículo 253.—Extracción de muestras. Se podrá extraer muestras de mercancías para cumplir con requisitos no arancelarios, de inscripción o autorización de ingreso o para determinar su correcta clasificación arancelaria.
+Las muestras extraídas estarán sujetas el pago de los tributos respectivos y se limitarán estrictamente a la cantidad necesaria para efectuar los análisis correspondientes. Corresponde al depositario aduanero, controlar y llevar registros de las mercancías que han salido de sus instalaciones bajo la calidad de muestras.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

@@ -1,2 +1,2 @@
-Artículo 430.—Importaciones comerciales
-Las personas físicas o jurídicas, que en virtud de su actividad realicen importaciones comerciales por la vía postal, deberán, además de cumplir con los requisitos arancelarios y no arancelarios exigibles, aportar factura comercial en las condiciones establecidas en el artículo 248 de la Ley.
+Artículo 430.—Importaciones de envíos postales comerciales. Las personas físicas o jurídicas, que en virtud de su actividad realicen importaciones comerciales por la vía postal, deberán, además de cumplir con los requisitos arancelarios y no arancelarios exigibles, presentar su declaración a través de un agente aduanero, de conformidad con el artículo 192 del RECAUCA. La autoridad aduanera no podrá practicar reconocimiento físico de los envíos postales sin la presencia del destinatario o su representante.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)

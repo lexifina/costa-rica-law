@@ -1,8 +1,6 @@
 SECCIÓN II
 Aceptación v verificación de la declaración aduanera
-Artículo 320.—Aceptación y verificación de la declaración aduanera.
-Para la aceptación, la declaración aduanera deberá transmitirse electrónicamente a la aduana, así como los documentos adjuntos que la Dirección General defina mediante resolución administrativa.
-Cuando no haya intervención de agente aduanero y consecuentemente la declaración aduanera no hubiere sido transmitida electrónicamente, previo a la aceptación, la aduana digitará la información que corresponda.
+Artículo 320.—Aceptación y verificación de la declaración aduanera. Para la aceptación, la declaración aduanera deberá transmitirse electrónicamente a la aduana con base en la información de los documentos que la sustentan.
+En los casos de excepción autorizados en este Reglamento en que la declaración aduanera se tramita de oficio, el funcionario aduanero competente digitará la información que corresponda en el sistema informático del Servicio.
 Aceptada la declaración aduanera, la aduana indicará si procede ordenar el acto inmediato de verificación o autorizar el levante de las mercancías.
-En ningún caso la aduana ordenará el levante de las mercancías sin haber cumplido con el proceso de control de pago.
-(Así reformado por el artículo 25 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31667 de 5 de marzo de 2004)
