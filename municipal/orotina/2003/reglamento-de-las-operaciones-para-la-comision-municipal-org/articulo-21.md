@@ -1,2 +1,2 @@
-Artículo 21.—Los activos que quedasen al finalizar la Feria Nacional de las Frutas, serán inventariados y entregados a la orden del Concejo Municipal de Orotina, indicando recomendaciones para su utilización.
-(REFORMADO mediante Sesión Extraordinaria N°149 del 7 de febrero de 2004)
+Artículo 21.—Los activos que quedasen al finalizar la Feria Nacional de las Frutas serán vendidos siguiendo el mismo trámite señalado en el artículo anterior.
+(NOTA DEL SINALEVI: Conforme a lo dispuesto mediante el Artículo III, aparte 20 del acta de sesión ordinaria No. 238, celebrada el día 1° de marzo del 2005, que deja sin efecto "cualquier otra norma establecida anteriormente a las reformas introducidas en la publicación en La Gaceta del viernes veintiocho de enero del dos mil cinco...", se mantiene en vigencia de forma integral el texto original del presente artículo,suprimiendose la reforma efectuada mediante el Reglamento Municipal No. 149 del 07 de febrero del 2004.).
