@@ -14,3 +14,4 @@ Reglamento para la Organización y Funcionamiento del Mercado Municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-09 | la propia norma |
+| 2 | 2001-10-31 | Reglamento municipal 0 (2001-10-31) |
