@@ -1,1 +1,1 @@
-Artículo 62.—La supresión de deudas incobrables también podrá aplicarse a aquellas obligaciones que, de conformidad con los criterios establecidos por la Contraloría General de la República, puedan considerarse como de monto exiguo.
+Artículo 62.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

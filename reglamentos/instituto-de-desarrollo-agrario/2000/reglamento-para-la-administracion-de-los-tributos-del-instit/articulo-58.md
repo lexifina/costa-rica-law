@@ -1,1 +1,1 @@
-Artículo 58.—El sujeto pasivo podrá solicitar la compensación, pero podrá aplicarla hasta que haya sido aceptada mediante resolución del Director de la Administración Tributaria, retrotrayéndose la compensación al momento del surgimiento del crédito.
+Artículo 58.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

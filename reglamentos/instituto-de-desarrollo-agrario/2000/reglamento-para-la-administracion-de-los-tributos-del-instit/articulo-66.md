@@ -1,3 +1,3 @@
 CAPÍTULO VIII
 Devolución de tributos
-Artículo 66.—Los contribuyentes que tengan saldos a favor, podrán solicitar su devolución dentro del término de ley, a menos que hayan sido objeto de un procedimiento de determinación, en cuyo caso se resolverá lo procedente una vez firme la resolución final.
+Artículo 66.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

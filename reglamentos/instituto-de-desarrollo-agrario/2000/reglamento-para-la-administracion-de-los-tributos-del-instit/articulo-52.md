@@ -1,1 +1,1 @@
-Artículo 52.—El pago efectuado voluntariamente por un tercero extinguirá la obligación tributaria y quien pague se subrogará en el crédito, sus garantías y privilegios, mas no en aquellas potestades que se deriven de la naturaleza pública del acreedor inicial.
+Artículo 52.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

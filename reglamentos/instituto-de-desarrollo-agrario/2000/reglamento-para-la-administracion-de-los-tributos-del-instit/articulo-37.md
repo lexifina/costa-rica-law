@@ -1,1 +1,1 @@
-Artículo 37.—Las actuaciones de fiscalización podrán efectuarse en el domicilio fiscal de la persona física, jurídica o ente público en cuyo poder se hallen los datos correspondientes, o en la sede de la Administración Tributaria a partir del requerimiento de remisión de datos o antecedentes.
+Artículo 37.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

@@ -1,2 +1,1 @@
-Artículo 13.—La función del Instituto de Desarrollo Rural(*) como Administración Tributaria, tendrá como objetivo la implantación y ejecución de sistemas y procedimientos eficientes de planificación, coordinación y control, tendientes a lograr el cumplimiento de los deberes y obligaciones tributarias por parte de los sujetos pasivos.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
+Artículo 13.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

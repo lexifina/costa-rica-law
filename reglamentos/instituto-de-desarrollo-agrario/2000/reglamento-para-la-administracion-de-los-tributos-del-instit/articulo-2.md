@@ -1,1 +1,1 @@
-Artículo 2º—El impuesto sobre el consumo de cigarrillos nacionales y extranjeros elaborados a máquina, creado en el artículo 1º de la Ley Nº 5792 reformado por el artículo 35 de Ley Nº 6735; tendrá una tarifa del 2,5% aplicable al precio de venta del artículo antes del impuesto de venta, en caso de cigarrillos nacionales, y del 2,5% aplicable al costo total de importación excluido el impuesto de ventas, en caso de cigarrillos importados.
+Artículo 2º—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

@@ -1,1 +1,1 @@
-Artículo 26.—La gestión tributaria será ejercida por la Dirección Administrativa Financiera, a través de la unidad asignada al efecto.
+Artículo 26.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

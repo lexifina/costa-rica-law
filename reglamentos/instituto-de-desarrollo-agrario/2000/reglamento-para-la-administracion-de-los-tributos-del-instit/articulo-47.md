@@ -1,1 +1,1 @@
-Artículo 47.—Corresponderá al interesado adjuntar con su solicitud de aplazamiento o facilidad de pago, los elementos probatorios necesarios y suficientes que justifiquen el otorgamiento de lo solicitado, así como el planteamiento de una propuesta de la forma en que atenderá sus obligaciones tributarias.
+Artículo 47.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

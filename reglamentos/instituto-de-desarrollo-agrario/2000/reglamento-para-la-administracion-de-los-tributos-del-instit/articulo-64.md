@@ -1,3 +1,3 @@
 CAPÍTULO VII
 Prescripción de las deudas tributarias
-Artículo 64.—La prescripción es la forma de extinción de la obligación tributaria que surge como consecuencia de la inactividad de la Administración Tributaria en el ejercicio de una acción cobratoria. Los plazos para que ésta opere, los casos en que se interrumpirá y demás aspectos sustanciales se regirán conforme con la ley.
+Artículo 64.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

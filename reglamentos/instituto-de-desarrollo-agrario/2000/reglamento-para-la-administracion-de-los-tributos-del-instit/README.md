@@ -14,3 +14,4 @@ Reglamento para la Administración de los Tributos del Instituto de Desarrollo R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-26 | la propia norma |
+| 2 | 2001-12-14 | SINALEVI (sin norma nombrada) |

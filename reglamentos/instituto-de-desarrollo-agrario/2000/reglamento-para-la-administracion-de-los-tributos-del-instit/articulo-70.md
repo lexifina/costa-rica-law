@@ -1,2 +1,1 @@
-Artículo 70.—Este reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
-Lic. Carlos Prendas Lépiz, Jefe Departamento Administrativo.
+Artículo 70.— Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

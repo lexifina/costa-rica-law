@@ -1,1 +1,1 @@
-Artículo 63.—La supresión de registro de deudas incobrables no implica condonación de las mismas.
+Artículo 63.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

@@ -1,1 +1,1 @@
-Artículo 46.—Las facilidades de pago pueden solicitarse en cualquier momento, pero solo se concederán si a juicio de la Administración Tributaria han sobrevenido circunstancias que tornen difícil el cumplimiento normal de la obligación, o que puedan dañar seriamente la economía del deudor si dicho cumplimiento se produce.
+Artículo 46.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).

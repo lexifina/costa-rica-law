@@ -1,1 +1,1 @@
-Artículo 69.—En cuanto a la devolución de impuestos generados en la importación de productos, si el reclamo se fundamentare en la clasificación arancelaria, faltante de mercancías, o en el tipo de cambio aplicable; de previo al envío del expediente la Dirección General de Aduanas deberá rendir un informe según corresponda, sobre los aspectos mencionados, a fin de que sirvan de base para la resolución procedente.
+Artículo 69.—Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 12823-01, del 14 de diciembre de 2001).
