@@ -1,10 +1,2 @@
-ARTÍCULO 52.- Ordenamiento territorial
-Los planes o las autorizaciones de uso y aprovechamiento de recursos
-minerales, suelo, flora, fauna, agua y otros recursos naturales, así como
-la ubicación de asentamientos humanos y de desarrollos industriales y
-agrícolas emitidos por cualquier ente público, sea del Gobierno central,
-las instituciones autónomas o los municipios, considerarán particularmente
-en su elaboración, aprobación e implementación, la conservación de la
-biodiversidad y su empleo sostenible, en especial cuando se trate de
-planes o permisos que afecten la biodiversidad de las áreas silvestres
-protegidas.
+ARTÍCULO 52.-
+Ordenamiento territorial Los planes o las autorizaciones de uso y aprovechamiento de recursos minerales, suelo, flora, fauna, agua y otros recursos naturales, así como la ubicación de asentamientos humanos y de desarrollos industriales y agrícolas emitidos por cualquier ente público, sea del Gobierno central, las instituciones autónomas o los municipios, considerarán particularmente en su elaboración, aprobación e implementación, la conservación de la biodiversidad y su empleo sostenible, en especial cuando se trate de planes o permisos que afecten la biodiversidad de las áreas silvestres protegidas.

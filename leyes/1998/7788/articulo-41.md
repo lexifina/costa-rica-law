@@ -1,10 +1,3 @@
-ARTÍCULO 41.- Fondos y recursos existentes
-Además, para el fiel cumplimiento de los fines y objetivos de la Ley
-de Conservación de la Vida Silvestre, No. 7317, de 30 de octubre de 1992;
-la Ley Forestal, No. 7575, de 13 de febrero de 1976; la Ley de Creación
-del Servicio de Parques Nacionales, No. 6084, de 24 de agosto de 1977, y
-la Ley Orgánica del Ambiente, No. 7554, de 4 de octubre de 1995, atender
-los gastos que deriven de ellas, el Sistema contará con los aportes de los
-presupuestos de la República y los recursos de los fondos ya existentes en
-el Sistema, los cuales podrán administrarse bajo la figura de un
-fideicomiso o con los instrumentos financieros que se definan.
+ARTÍCULO 41.-
+Fondos y recursos existentes Además, para el fiel cumplimiento de los fines y objetivos de la Ley de Conservación de la Vida Silvestre, No. 7317, de 30 de octubre de 1992;
+la Ley Forestal, No. 7575, de 13 de febrero de 1976; la Ley de Creación del Servicio de Parques Nacionales, No. 6084, de 24 de agosto de 1977, y la Ley Orgánica del Ambiente, No. 7554, de 4 de octubre de 1995, atender los gastos que deriven de ellas, el Sistema contará con los aportes de los presupuestos de la República y los recursos de los fondos ya existentes en el Sistema, los cuales podrán administrarse bajo la figura de un fideicomiso o con los instrumentos financieros que se definan.

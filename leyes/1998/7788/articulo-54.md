@@ -1,10 +1,2 @@
-ARTÍCULO 54.- Daño ambiental
-Cuando exista daño ambiental en un ecosistema, el Estado podrá tomar
-medidas para restaurarlo, recuperarlo y rehabilitarlo. Para ello, podrá
-suscribir todo tipo de contratos con instituciones de educación superior,
-privadas o públicas, empresas e instituciones científicas, nacionales o
-internacionales, con el fin de restaurar los elementos de la biodiversidad
-dañados. En áreas protegidas de propiedad estatal, esta decisión deberá
-provenir del Sistema Nacional de Áreas de Conservación del Ministerio del
-Ambiente y Energía. Para la restauración en terrenos privados se procederá
-según los artículos 51, 52 y 56 de esta ley.
+ARTÍCULO 54.-
+Daño ambiental Cuando exista daño ambiental en un ecosistema, el Estado podrá tomar medidas para restaurarlo, recuperarlo y rehabilitarlo. Para ello, podrá suscribir todo tipo de contratos con instituciones de educación superior, privadas o públicas, empresas e instituciones científicas, nacionales o internacionales, con el fin de restaurar los elementos de la biodiversidad dañados. En áreas protegidas de propiedad estatal, esta decisión deberá provenir del Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía. Para la restauración en terrenos privados se procederá según los artículos 51, 52 y 56 de esta ley.

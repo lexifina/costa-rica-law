@@ -1,9 +1,2 @@
-ARTÍCULO 35.- Financiamiento
-El Sistema Nacional de Áreas de Conservación deberá diseñar
-mecanismos de financiamiento que le permitan ejercer sus mandatos con
-agilidad y eficiencia. Dichos mecanismos incluirán transferencias de los
-presupuestos de la República, o de cualquier persona física o jurídica,
-así como los fondos propios que generen las áreas protegidas, incluyendo
-las tarifas de ingreso, el pago de servicios ambientales, los canjes de
-deuda, los cánones establecidos por ley, el pago por las actividades
-realizadas dentro de las áreas protegidas y las donaciones.
+ARTÍCULO 35.-
+Financiamiento El Sistema Nacional de Áreas de Conservación deberá diseñar mecanismos de financiamiento que le permitan ejercer sus mandatos con agilidad y eficiencia. Dichos mecanismos incluirán transferencias de los presupuestos de la República, o de cualquier persona física o jurídica, así como los fondos propios que generen las áreas protegidas, incluyendo las tarifas de ingreso, el pago de servicios ambientales, los canjes de deuda, los cánones establecidos por ley, el pago por las actividades realizadas dentro de las áreas protegidas y las donaciones.

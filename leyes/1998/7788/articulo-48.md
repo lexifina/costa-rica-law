@@ -1,10 +1,3 @@
-ARTÍCULO 48.- Revocatoria de permisos para manipulación genética
-Con base en criterios técnicos, científicos y de seguridad, la
-Oficina Técnica de la Comisión podrá modificar o revocar cualquier permiso
-otorgado de acuerdo con los artículos anteriores.
-Ante peligro inminente, situaciones imprevisibles o incumplimiento de
-disposiciones oficiales, la Oficina podrá retener, decomisar, destruir o
-reexpedir los organismos genéticamente modificados u otro tipo de
-organismos; además, prohibir su traslado, experimentación, liberación al
-ambiente, multiplicación y comercialización para proteger la salud humana
-y el ambiente.
+ARTÍCULO 48.-
+Revocatoria de permisos para manipulación genética Con base en criterios técnicos, científicos y de seguridad, la Oficina Técnica de la Comisión podrá modificar o revocar cualquier permiso otorgado de acuerdo con los artículos anteriores.
+Ante peligro inminente, situaciones imprevisibles o incumplimiento de disposiciones oficiales, la Oficina podrá retener, decomisar, destruir o reexpedir los organismos genéticamente modificados u otro tipo de organismos; además, prohibir su traslado, experimentación, liberación al ambiente, multiplicación y comercialización para proteger la salud humana y el ambiente.
