@@ -1,0 +1,1 @@
+Artículo 2°. —La inmigración debe ser de familias de agricultores, de raza de blanca, de nuestro propio idioma, si fuere posible, y de acuerdo con el decreto de cinco de junio de mil novecientos seis.
