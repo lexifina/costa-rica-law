@@ -14,3 +14,4 @@ Reglamento de Zonificación de Playa Espadilla (para la modificación propuesta 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-08 | la propia norma |
+| 2 | 2000-09-08 | Ley 8 |
