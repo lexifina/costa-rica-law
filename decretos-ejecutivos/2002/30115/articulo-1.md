@@ -1,0 +1,12 @@
+DECRETOS
+Nº 30115-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+De conformidad con las facultades establecidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, la Ley Nº 6227 de 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7536 de 14 de agosto de 1995, Ley de Liquidación del Fondo Nacional de Contingencias Agrícolas y su reforma mediante Ley Nº 7710 de 20 de octubre de 1997.
+Considerando:
+1º—Que mediante Ley Nº 7536 de 14 de agosto de 1995, publicada en La Gaceta Nº 170 del 7 de noviembre del mismo año, se estableció la Liquidación del Fondo Nacional de Contingencias Agrícolas, (creado mediante Ley Nº 6916 del 6 de noviembre de 1983), cuyo Capítulo IV define las etapas de la liquidación y en su artículo 18 se prevé la prórroga, por única vez y por un periodo igual, de cada una de esas etapas.
+2º—Que mediante Decreto Ejecutivo Nº 26876-MAG-MP, de 31 de marzo de 1998, publicado en La Gaceta Nº 91 del 13 de mayo del mismo año, se emitió el Reglamento de Selección, Integración y Pago de los Miembros de la Junta Liquidadora del Fondo de Contingencias Agrícolas, cuyo artículo 5 regula esa prórroga.
+3º—Que mediante Acuerdo Nº 57 del 30 de setiembre de 1998, publicado en La Gaceta Nº 213 del 3 de noviembre del mismo año, con fecha rige a partir de su publicación, se integró la Junta Liquidadora del Fondo Nacional de Contingencias Agrícolas, iniciando el proceso de Liquidación del indicado Fondo.
+4º—Que la Junta Liquidadora dentro de los plazos establecidos, ha solicitado y motivado al Poder Ejecutivo, la necesidad de prorrogar por un plazo igual al fijado por ley el término para la realización y finalización de la Quinta Etapa de Liquidación del Fondo, que corresponde a los procedimientos de pago a los acreedores, pues faltan todavía algunos recursos que recuperar y al contar la Quinta Etapa de pago, con un plazo solamente de dos meses, que incluyen los de diciembre y enero del año 2001 y 2002, en que el Poder Judicial mantendrá los Despachos cerrados, resulta imprescindible establecer la prórroga de esa última Etapa. Por tanto,
+Decretan:
+Artículo 1º—Se prorroga por única vez y por un término de dos meses calendario, contados a partir del 4 de enero del año 2002 y hasta el 4 de marzo del año 2002, el plazo para la finalización de la Quinta Etapa de la Liquidación del Fondo Nacional de Contingencias Agrícolas por parte de la Junta Liquidadora.
