@@ -13,3 +13,4 @@ Declara Emergencia Nacional Contaminación Ambiental Desechos Sólidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-06-05 | la propia norma |
+| 2 | 1991-06-05 | Decreto Ejecutivo 24096 (1995-03-02) |
