@@ -1,24 +1,37 @@
+Ley de Patentes de Invención, Dibujos y
+Modelos Industriales y Modelos de Utilidad
 CAPITULO I
 De las invenciones
 Artículo 1º.- Invenciones.
-1. Una invención podrá ser un producto, una máquina, una herramienta,
-o un procedimiento de fabricación, y estará protegida por la patente de
+1.- Invención es toda creación del intelecto humano, capaz de ser
+aplicada en la industria, que cumpla las condiciones de patentabilidad
+previstas en esta ley. Podrá ser un producto, una máquina, una herramienta
+o un procedimiento de fabricación y estará protegida por la patente de
 invención.
-2. Podrá solicitarse patente para mejoras introducidas en productos
-y procedimientos de fabricación ya patentados. El titular de la patente
-tendrá derecho exclusivo a introducir estas mejoras en el transcurso de
-un año, después de la concesión de la patente original.
-3. No se consideran invenciones para los efectos de esta ley:
+2.- Para los efectos de esta ley no se considerarán invenciones:
 a) Los descubrimientos, las teorías científicas, los métodos
-matemáticos y los programas de computación.
-b) Las variedades vegetales y las razas animales, los procedimientos
-esencialmente biológicos para la obtención de vegetales o animales, así
-como los procedimientos microbiológicos y los productos obtenidos de ellos.
-c) Los planes, principios o métodos económicos o de negocios, y los
-referidos a actividades puramente mentales o intelectuales y a reglas de
-juego.
-ch) Los métodos de tratamiento quirúrgico o terapéutico, y los métodos
-del diagnóstico aplicables al cuerpo humano o animal. Se exceptúan los
-productos y aparatos destinados a poner en práctica alguno de estos métodos.
-4. Quedan excluidas de la protección las invenciones contrarias a la
-salud, a la seguridad y, en general, al orden público y a la moral.
+matemáticos y los programas de ordenador considerados aisladamente.
+b) Las creaciones puramente estéticas, las obras literarias y
+artísticas.
+c) Los planes, principios o métodos económicos de publicidad o de
+negocios y los referidos a actividades puramente mentales, intelectuales
+o a materia de juego.
+d) La yuxtaposición de invenciones conocidas o mezclas de productos
+conocidos, su variación de forma o uso, dimensiones o materiales, salvo
+que se trate de una combinación o fusión tal que no puedan funcionar
+separadamente o que las cualidades o funciones características de ellas
+sean modificadas para obtener un resultado industrial no obvio para un
+técnico en la materia.
+3.- Las obtenciones vegetales tendrán protección mediante una ley
+especial.
+4.- Se excluyen de la patentabilidad:
+a) Las invenciones cuya explotación comercial deba impedirse objetiva
+y necesariamente para proteger el orden público, la moralidad, la salud o
+la vida de las personas o los animales o para preservar los vegetales o
+evitar daños graves al ambiente.
+b) Los métodos de diagnóstico, terapéuticos y quirúrgicos para el
+tratamiento de personas o animales.
+c) Las plantas y los animales.
+d) Los procedimientos esencialmente biológicos para la producción de
+plantas o animales.
+(Así reformado por Ley N° 7979 del 6 de enero del 2000)
