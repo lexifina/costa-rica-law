@@ -2,6 +2,7 @@ Artículo 7º.- Para la obtención de licencia será necesario llenar
 los siguientes requisitos:
 a) Ser ciudadano costarricense, o tratarse de una compañía o sociedad
 de las indicadas en el artículo 3º de la ley vigente en la materia;
+(Interpretado por resolución de la Sala Constitucional No. 2001-03060 de las 15:58 horas del 24 de abril de 2001 en el sentido de que es inaplicable al servicio de radiomensaje modalidad "beeper".
 b) Presentar una solicitud por escrito en papel sellado del valor
 correspondiente, con tres copias al Departamento de Control Nacional
 de Radio, expresando lo siguiente:
