@@ -1,0 +1,9 @@
+Artículo 55.-Protección del medio ambiente natural
+1. En la realización de la guerra se velará por la protección del medio
+ambiente natural contra daños extensos, duraderos y graves. Esta
+protección incluye la prohibición de emplear métodos o medios de hacer la
+guerra que hayan sido concebidos para causar o de los que quepa prever que
+causen tales daños al medio ambiente natural, comprometiendo así la salud o
+la supervivencia de la población.
+2. Quedan prohibidos los ataques contra el medio ambiente natural como
+represalias.

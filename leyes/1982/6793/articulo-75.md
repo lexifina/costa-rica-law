@@ -1,0 +1,95 @@
+Artículo 75.-Garantías fundamentales
+1. Cuando se encuentren en una de las situaciones a que hace referencia
+el artículo 1º del presente Protocolo, las personas que estén en poder de
+una Parte en conflicto y que no disfruten de un trato más favorable en
+virtud de los Convenios o del presente Protocolo serán tratadas en toda
+circunstancia con humanidad y se beneficiarán, como mínimo, de la
+protección prevista en el presente artículo, sin distinción alguna de
+carácter desfavorable basada en la raza, el color, el sexo, el idioma,
+la religión o las creencias, las opiniones políticas o de otro género, el
+origen nacional o social, la fortuna, el nacimiento u otra condición o
+cualesquiera otros criterios análogos. Cada Parte respetará la persona, el
+honor, las convicciones y las prácticas religiosas de todas esas personas.
+2. Están y quedarán prohibidos en todo tiempo y lugar los actos
+siguientes, ya sean realizados por agentes civiles o militares:
+a) Los atentados contra la vida, la salud y la integridad física o
+mental de las personas, en particular:
+i) El homicidio.
+ii) La tortura de cualquier clase, tanto física como mental.
+iii) Las penas corporales.
+iv) Las mutilaciones.
+b) Los atentados contra la dignidad personal, en especial los tratos
+humillantes y degradantes, la prostitución forzada y cualquier forma de
+atentado al pudor.
+c) La toma de rehenes.
+d) Las penas colectivas.
+e) Las amenazas de realizar los actos mencionados.
+3. Toda persona detenida, presa o internada por actos relacionados con el
+conflicto armado será informada sin demora, en un idioma que comprenda, de
+las razones que han motivado esas medidas. Salvo en los casos de detención
+o prisión por una infracción penal, esa persona será liberada lo antes
+posible y en todo caso en cuanto desaparezcan las circunstancias que hayan
+justificado la detención, la prisión o el internamiento.
+4. No se impondrá condena ni se ejecutará pena alguna respecto de una
+persona declarada culpable de una infracción penal relacionada con el
+conflicto armado, sino en virtud de sentencia de un tribunal imparcial,
+constituido con arreglo a la ley y que respete los principios generalmente
+reconocidos para el procedimiento judicial ordinario, y en particular los
+siguientes:
+a) El procedimiento dispondrá que el acusado sea informado sin demora
+de los detalles de la infracción que se le atribuya y garantizará al
+acusado, en las actuaciones que procedan al juicio y en el curso de éste,
+todos los derechos y medios de defensa necesarios.
+b) Nadie podrá ser condenado por una infracción si no es sobre la base
+de su responsabilidad penal individual.
+c) Nadie será acusado o condenado por actos u omisiones que no fueran
+delictivos según el derecho nacional o internacional que le fuera aplicable
+en el momento de cometerse. Tampoco se impondrá pena más grave que la
+aplicable en el momento de cometerse la infracción. Si con posterioridad a
+esa infracción, la ley dispusiera la aplicación de una pena más leve, el
+infractor se beneficiará de esa disposición.
+d) Toda persona acusada de una infracción se presumirá inocente
+mientras no se pruebe su culpabilidad conforme a la ley.
+e) Toda persona acusada de un infracción tendrá derecho a hallarse
+presente al ser juzgada.
+f) Nadie podrá ser obligado a declarar contra sí mismo ni a confesarse
+culpable.
+g) Toda persona acusada de una infracción tendrá derecho a interrogar
+o hacer interrogar a los testigos de cargo, a obtener la comparecencia de
+los testigos de descargo y a que éstos sean interrogados en las mismas
+condiciones que los testigos de cargo.
+h) Nadie podrá ser juzgado ni condenado por la misma Parte, de
+conformidad con la misma legislación y con el mismo procedimiento judicial,
+por un delito respecto al cual se haya dictado ya una sentencia firme,
+condenatoria o absolutoria.
+i) Toda persona juzgada por una infracción tendrá derecho a que la
+sentencia sea pronunciada públicamente.
+j) Toda persona condenada será informada, en el momento de su condena,
+de su derechos a interponer recurso judicial y todo tipo, así como de los
+plazos para ejercer esos derechos.
+5. Las mujeres privadas de libertad por razones relacionadas con el
+conflicto armado serán custodiadas en locales separados de los ocupados por
+los hombres. Su vigilancia inmediata estará a cargo de mujeres. No
+obstante las familias detenidas o internadas serán alojadas, siempre que
+sea posible, en un mismo lugar como unidad familiar.
+6. Las personas detenidas, presas o internadas, por razones relacionadas
+con el conflicto armado disfrutarán de la protección otorgada por el
+presente artículo, incluso después de la terminación del conflicto armado,
+hasta el momento de su liberación definitiva, repatriación o
+reasentamiento.
+7. A fin de evitar toda duda en cuanto al procesamiento y juicio de
+personas acusadas por crímenes de guerra o crímenes contra la humanidad, se
+aplicarán los siguientes principios:
+a) Las personas acusadas de tales crímenes deberán ser sometidas a
+procedimiento y juzgadas de conformidad con las normas aplicables del
+derecho internacional.
+b) Cualquiera de esas personas que no disfrute de un trato más
+favorable en virtud de los Convenios o del presente Protocolo, recibirá el
+trato previsto en el presente artículo, independientemente de que los
+crímenes de que se la acuse constituyan o no infracciones graves de los
+Convenios o del presente Protocolo.
+8. Ninguna de las disposiciones del presente artículo podrá interpretarse
+de manera que pueda limitar o infringir cualquier otra disposición más
+favorable y que ofrezca a las personas comprendidas en el párrafo 1 una
+mayor protección en virtud de otras normas aplicables del derecho
+internacional.

@@ -1,0 +1,7 @@
+Artículo 82.-Asesores jurídicos en las fuerzas armadas
+Las Altas Partes contratantes en todo tiempo, y las Partes en
+conflicto en tiempo de conflicto armado, cuidarán de que, cuando proceda,
+se disponga de asesores jurídicos que asesoren a los comandantes militares,
+al nivel apropiado, acerca de la aplicación de los Convenios y del presente
+Protocolo y de la enseñanza que deba darse al respecto a las fuerzas
+armadas.
