@@ -11,4 +11,7 @@ Para disfrutar de los beneficios que se conceden en este artículo, la empresa d
 2) Certificación sobre la aprobación de sus programas de exploración, emitida por el Consejo Nacional de Inversiones.
 3) Además deberá probar que ha cumplido con los controles y normas que establezcan el reglamento de esta ley.
 Comete el delito de defraudación fiscal el declarante que para obtener los incentivos señalados en este artículo, incurra en falsedades o en maniobras fraudulentas.
+También podrán recibir los beneficios del inciso b) otros contribuyentes que adquieran acciones en las mismas condiciones establecidas en el inciso citado.
+(Así adicionado el párrafo anterior por el artículo 8° de la ley N° 6999 del 3 de setiembre de 1985)
 (Así adicionado por el artículo 40 de la ley N° 6955 del 24 de febrero de 1984)
+(Nota de Sinalevi: Mediante el artículo 11 de la ley N° 6999 del 3 de setiembre de 1985 se interpretó este artículo en el sentido de que: “…pueden otorgarse a las organizaciones cooperativas certificados de abono tributario (CATS), certificados de incremento a las exportaciones (CIEX), e incentivos a la exportación, en tanto se reúnan los demás requisitos que señalan las leyes supracitadas:”)
