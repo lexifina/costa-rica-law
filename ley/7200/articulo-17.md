@@ -1,5 +1,2 @@
-ARTICULO 17.- Las empresas productoras de energía eléctrica autónoma o
-paralela gozarán de las mismas exoneraciones que el Instituto Costarricense
-de Electricidad, en la importación de maquinaria y equipo para conducción
-de agua, así como para "turbinar", generar, controlar, regular,
-transformar y transmitir energía eléctrica.
+ARTICULO 17.- Las empresas productoras de energía eléctrica autónoma o paralela gozarán de las mismas exoneraciones que el Instituto Costarricense de Electricidad, en la importación de maquinaria y equipo para conducción de agua, así como para "turbinar", generar, controlar, regular, transformar y transmitir energía eléctrica.
+(ADICIONADO TACITAMENTE por el artículo 2º, inc. c) de la Ley Derogatoria de Exoneraciones Nº7293 de 31 de marzo de 1992; véanse las Observaciones de la ley).
