@@ -1,0 +1,8 @@
+Artículo 12.- La Junta Directiva no podrá celebrar válidamente
+ningún contrato ni hacer operaciones, directa o indirectamente, con
+sus propios miembros o con sus cónyuges, padres, o hijos, por
+afinidad o consanguinidad. Ningún miembro de dicha Junta podrá
+intervenir en forma alguna o estar presente cuando se resuelvan
+asuntos en que esté interesado algún pariente suyo, hasta el cuarto
+grado inclusive o que interesen a sociedades comerciales en que
+sean socios sus parientes dichos.
