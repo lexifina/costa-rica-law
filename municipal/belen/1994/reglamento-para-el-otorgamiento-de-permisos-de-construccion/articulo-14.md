@@ -3,7 +3,8 @@ a. Solicitud de reparación, ampliación o construcción en el formulario que la
 b. Presentar una certificación del Registro de la Propiedad.
 c. Presentar fotocopia del plano catastrado de la propiedad.
 d. La solicitud debe venir con los respectivos timbres fiscales y municipales.
-e. Presentar constancia de que está al día con los impuestos municipales.
+e. No se tramitarán permisos municipales de construcción, reparación, ampliación, remodelación, demolición, excavación o relleno de un terreno, si el interesado no demuestra a la Oficina de Ingeniería Municipal, mediante constancia emitida por el Departamento de Rentas y Patentes, estar al día en el pago de los diferentes impuestos y tasas municipales, así como no tener ningún asunto pendiente con la Municipalidad, sea cual sea su naturaleza, como son: traspaso de bienes pendientes a la Municipalidad, desarrollo de urbanizaciones pendientes, entre otros.
+(Así reformado en sesión ordinaria N° 58 del 13 de octubre de 1998).
 f. Presentar planos de los trabajos debidamente firmados por un ingeniero responsable o arquitecto; si es menor de 70 metros cuadrados, sea construcción de vivienda nueva o ampliación hasta una segunda planta, deberá tramitarse previo a la aprobación municipal, la aprobación de:
 1. Colegio de Ingenieros y Arquitectos.
 2. Centro de Salud de Belén,
