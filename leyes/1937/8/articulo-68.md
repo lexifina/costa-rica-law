@@ -1,2 +1,1 @@
-Artículo 68
-( DEROGADO por el artículo 8º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 68.- Los miembros del Consejo, con excepción de los Magistrados que lo integren, tendrán el mismo salario base de los jueces superiores de casación.

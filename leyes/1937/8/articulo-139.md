@@ -1,2 +1,2 @@
-Artículo 139
-En cuanto a curadores y depositarios judiciales se estará a lo que sobre ellos dispone el Código Civil en los Títulos "Mandato y Depósito" y la Ley de Quiebras.
+Artículo 139.- Podrá haber en cada oficina, hasta dos servidores meritorios, nombrados por los respectivos jefes de Despacho. La relación creada bajo las previsiones de este artículo no crea derechos laborales en favor del meritorio, pero sí faculta para el ejercicio del régimen disciplinario.
+Cuando el jefe de la oficina considere inconveniente la presencia o actuación del meritorio, podrá prescindir de éste dando cuenta al Consejo.

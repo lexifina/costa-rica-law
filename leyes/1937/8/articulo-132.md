@@ -1,3 +1,1 @@
-Artículo 132
-La Corte dictará y publicará los acuerdos necesarios para la organización del Archivo Judicial.
-( Así reformado por el artículo 1º de la Ley Nº 4784 de 1º de julio de 1971 )
+Artículo 132.- No podrá ser árbitro de derecho, el que ha intervenido como abogado o procurador de una de las partes, en el asunto para el que fuere nombrado, salvo que las partes, en la escritura o exposición de compromiso, lo hayan elegido con conocimiento de causa y así lo expresen.

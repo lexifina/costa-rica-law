@@ -1,2 +1,1 @@
-Artículo 178
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 178.- Las inspecciones a las oficinas judiciales deberán realizarse por lo menos una vez cada tres meses y de ellas deberán elaborarse los informes correspondientes, para apreciar el funcionamiento de la administración de justicia en la respectiva circunscripción.

@@ -1,5 +1,2 @@
-CAPITULO VI
-De los Jueces ejecutores, Notarios receptores de prueba Curadores y Depositarios judiciales
-Artículo 137
-Los jueces ejecutores deben ser mayores de edad, ciudadanos costarricenses, de notoria probidad y con suficiente preparación para el desempeño del cargo.
-No podrán actuar fuera de la jurisdicción del Tribunal que los nombra, en el ejercicio de su comisión deberán hacerlo asistidos de dos testigos, observar las disposiciones legales que reglamentan el caso y obrar dentro de los límites que les señale el mandamiento en que se les confiere la comisión.
+Artículo 137.- Los secretarios y notificadores no podrán disfrutar de permiso para estudiar en horas laborales. Los prosecretarios y escribientes, que fueren estudiantes, podrán dejar de asistir a sus oficinas durante las horas que les fueren autorizadas para estar presentes en los cursos y exámenes, pero el resto del tiempo, así como durante las vacaciones y los días de asueto en la escuela, deberán asistir puntualmente al Despacho.
+El Consejo podrá cancelar el beneficio al que se refiere el párrafo anterior luego de comprobar, por los medios que tenga por convenientes, que el estudiante no asiste, con regularidad y sin justa causa, a los cursos correspondientes y que tampoco se presenta al desempeño de sus labores, o que por falta de interés en los estudios, se atrasa en la conclusión de la carrera profesional.

@@ -1,6 +1,9 @@
-CAPITULO II
-De los Secretarios
-Artículo 110
-La Secretaría de la Corte es el órgano de comunicación con los otros Poderes, así como con todos los funcionarios judiciales y administrativos. No obstante, el Presidente de la Corte podrá dirigirse a cualquier empleado o funcionario, en los casos en que lo considere necesario para la pronta y recta administración.
-El Secretario de la Corte tendrá a su cargo autenticar firmas de los notarios y funcionarios judiciales, en los documentos que deban enviarse al exterior, sin perjuicio de que también pueda hacerlo el Presidente de la Corte.
-( Así reformado por el artículo 2º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 110.- Los Juzgados de lo Contencioso-administrativo y Civil de Hacienda conocerán:
+1.- De los juicios contencioso-administrativos que se promuevan con el objeto de proteger a toda persona en el ejercicio de sus derechos administrativos, cuando estos fueren lesionados por disposiciones definitivas de cualquier naturaleza, dictadas por el Poder Ejecutivo o sus funcionarios, las municipalidades y toda institución autónoma o semiautónoma del Estado, actuando como personas de Derecho público y en uso de facultades regladas.
+2.- De los juicios ordinarios no comprendidos en el inciso anterior, en que sean parte o tengan interés directo, el Estado, sus bancos y demás instituciones, así como las empresas de economía mixta, aun cuando tales juicios tengan relación con Juicios Universales.
+3.- De todo otro asunto en que sean parte o tengan interés directo el Estado, sus bancos y demás instituciones, así como las empresas de economía mixta, aun cuando tales juicios tengan relación con Juicios Universales, salvo en los casos en que por norma expresa correspondan ser conocidos por una alcaldía civil de hacienda.
+4.- De todos los litigios que se establezcan contra las municipalidades y juntas de educación, siempre que el asunto por su cuantía no corresponda ser conocido por una alcaldía civil de hacienda.
+5.- De todos los asuntos referentes a denuncios de minas, tierras baldías, ventas judiciales y demás de índole administrativa con tramitación judicial, en que sean parte o tengan interés directo el Estado, sus bancos o sus instituciones, o empresas de economía mixta, salvo que leyes especiales dispongan lo contrario. En el caso de que sobreviniere contención, el mismo Juez tendrá competencia para conocer de ella y decidir lo que proceda, sea sumariamente, sea en la vía ordinaria.
+6.- En grado, de las resoluciones que dicten las alcaldías civiles de hacienda.
+7.- De los conflictos de competencia entre alcaldías de su materia.
+8.- De los demás asuntos que determine la ley.

@@ -1,2 +1,1 @@
-Artículo 187
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 187.- Habrá inspectores auxiliares, en el número y en los lugares que sean necesarios para el mejor servicio, según lo disponga la Corte. Estos inspectores tendrán las mismas funciones de vigilancia e investigación que tienen los inspectores generales; estarán subordinados a éstos y deberán tener el título de abogado. Informarán al Tribunal sobre la actividad que realicen en el ejercicio de sus funciones.

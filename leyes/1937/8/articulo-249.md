@@ -1,0 +1,1 @@
+Artículo 249.- Las funciones no jurisdiccionales asignadas a la Corte, mediante leyes promulgadas con anterioridad a ésta, son, en adelante, de competencia del Consejo, con las excepciones que esta Ley establece.

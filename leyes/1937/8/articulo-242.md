@@ -1,11 +1,2 @@
-CAPITULO II
-De las rentas
-Artículo 242
-Para atender al pago de las jubilaciones o pensiones, créase un fondo que será formado con los siguientes ingresos:
-1) El cinco por ciento 5%) de todos los sueldos de los funcionarios y empleados judiciales. Este porcentaje se retendrá mensualmente.
-2) La suma que cada año determine la Corte Suprema de Justicia del porcentaje que le corresponda al Poder Judicial en el Presupuesto ordinario de la República, para la atención de sus propias necesidades; la cuota respectiva será depositada, mensualmente, por la Administración General de Rentas en el Banco Nacional de Costa Rica, a la orden de la Corte Suprema de Justicia;
-3) Los intereses que produzca el fondo que se formare según los dos incisos anteriores;
-4) El dos por ciento (2%) mensual de las jubilaciones y pensiones, de acuerdo con lo dispuesto en el artículo 234;
-5) Los intereses que produzca la administración de los depósitos judiciales;
-6) Con carácter devolutivo, los depósitos judiciales pertenecientes a los negocios abandonados por más de diez años; y 7) Los demás ingresos que determine la ley.
-( Así reformado por el artículo 1º de la Ley Nº 2855 de 16 de noviembre de 1961 )
+Artículo 242.- Los Magistrados del Tribunal Supremo de Elecciones y el Director del Registro Civil que antes de su elección hayan sido abogados funcionarios judiciales, con un servicio mayor de cinco años, podrán permanecer protegidos con el Plan de Jubilaciones y Pensiones de esta Ley, y el tiempo que sirvieren en esos organismos se les computará como si lo fuera en el Poder Judicial. Continuarán esos funcionarios contribuyendo en la forma que lo exige el artículo 236 de esta Ley. Dichos Magistrados tendrán los mismos beneficios que los Magistrados de la Corte Suprema de Justicia, y el Director del Registro, los beneficios señalados para los jueces, en igualdad de circunstancias.
+El Estado, en esos casos, debe pagar por esos funcionarios la cuota que señala el inciso 2 del artículo 236 citado, sobre la suma destinada en el presupuesto general de gastos para atender sus sueldos en el Tribunal Supremo de Elecciones y en el Registro Civil. Esta cuota será depositada conforme se indica en el referido inciso 2.

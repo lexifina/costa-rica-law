@@ -1,0 +1,1 @@
+Transitorio III.- El Poder Ejecutivo, a solicitud de la Corte Suprema de Justicia, realizará las modificaciones presupuestarias que sean necesarias para darle contenido presupuestario a los órganos que se crean en la presente Ley.

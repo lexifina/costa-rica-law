@@ -1,3 +1,5 @@
-Artículo 224
-Las correcciones disciplinarias que conforme con el artículo 216 puedan imponer los alcaldes, actuarios, jueces, tribunales colegiados y salas, a sus respectivos secretarios y demás subalternos, las decretarán de plano en el proceso en el que se hubiere cometido la falta, y si ésta fuere ejecutada fuera del proceso, la corrección se impondrá por medio de resolución que se dictará en un libro de correcciones disciplinarias que cada tribunal deberá llevar.
-( Así reformado por el artículo 6º de la Ley Nº 7130 de 16 de agosto de 1989 )
+TITULO IX
+DE LAS JUBILACIONES Y PENSIONES JUDICIALES
+CAPITULO I
+DISPOSICIONES GENERALES
+Artículo 224.- Los servidores judiciales tendrán derecho a acogerse a una jubilación igual al salario promedio de los mejores doce salarios mensuales ordinarios, de entre los últimos veinticuatro salarios mensuales ordinarios devengados al servicio del Poder Judicial, siempre que el servidor haya cumplido sesenta años de edad y el número de años de servicio para la Administración Pública sea de treinta años o más. El monto de la jubilación en ningún momento podrá exceder una suma igual al salario base de un diputado.

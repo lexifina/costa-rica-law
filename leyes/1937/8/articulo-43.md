@@ -1,4 +1,2 @@
-Artículo 43
-Al formular el plan de vacaciones, la Corte Plena dictará todas las medidas que estime que estime necesarias, en lo que no contradiga lo dispuesto en los artículos anteriores y señalará cuáles Alcaldías o Agencias Judiciales deben sustituirse recíprocamente, según el caso.
-Cuando dos a más oficinas permanezcan abiertas en el mismo lugar durante el mes de febrero, la Corte Plena regulará la distribución de trabajo entre ellas.
-( Así reformado por el artículo 2º de la Ley Nº 4620 de 29 de julio de 1970 )
+Artículo 43.- Toda enfermedad que motive licencia con goce de sueldo deberá ser comprobada con documento en el que conste la incapacidad extendida por la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros, el servicio médico de los empleados del Poder Judicial, el médico de la respectiva localidad y, si no hubiere alguno de estos en el lugar, por el de cualquier otro médico.
+En todo caso, el documento médico se podrá mandar a ratificar o ampliar a costa del interesado, bien sea por el mismo médico que lo extendió, por su superior o por otro.

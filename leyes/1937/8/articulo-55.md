@@ -1,3 +1,6 @@
-Artículo 55
-La Corte Plena determinará, por acuerdo, los distintivos que puedan usar en forma exclusiva los Magistrados, Inspectores Judiciales, Secretario de la Corte, Jueces, Actuarios, Alcaldes y Agentes Judiciales, y lo comunicará al Poder Ejecutivo a efecto de que las autoridades dependientes de ese Poder les guarden las consideraciones propias de su posición y les faciliten el ejercicio de sus funciones.
-( Así reformado por el artículo 1º de la Ley Nº 3554 de 22 de octubre de 1965 )
+CAPITULO III
+DE LA SALA SEGUNDA
+Artículo 55.- La Sala Segunda conocerá:
+1.- De los recursos de casación y revisión que procedan, con arreglo a la ley, en juicios ordinarios o abreviados de familia o de derecho sucesorio y en Juicios Universales, o en las ejecuciones de sentencia en que el recurso no sea del conocimiento de la Sala Primera.
+2.- De la tercera instancia rogada en asuntos de la jurisdicción de trabajo, cuando el recurso tenga cabida de conformidad con la ley.
+3.- De las demandas de responsabilidad civil contra los jueces superiores de cualquier materia.

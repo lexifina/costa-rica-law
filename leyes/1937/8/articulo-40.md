@@ -1,3 +1,2 @@
-Artículo 40
-Las Salas de la Corte se cerrarán el primero de febrero y reanudarán sus funciones el primero de marzo de cada año. En el mismo período cerrarán los Tribunales Superiores que no sean de la materia de Trabajo, lo mismo que los Juzgados de la República, salvo cuando la Corte Plena disponga que algunos de esos Tribunales y Juzgados deban permanecer abiertos para el mejor servicio público, en cuyo caso señalará los asuntos de que conocerán durante las vacaciones y los recursos y consultas que al efecto se confíen a la Corte Interina.
-( Así reformado por el artículo 2º de la Ley Nº 4620 de 29 de julio de 1970 )
+Artículo 40.- El Consejo Superior del Poder Judicial dictará, anualmente, un plan de vacaciones en el que dispondrá las medidas que estime necesarias para que no se afecte el servicio público y procurará que los Despachos Judiciales no cierren por ese motivo.
+Con excepción de la Sala Constitucional, la Corte dictará el plan de vacaciones para las demás Salas.

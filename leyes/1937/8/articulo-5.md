@@ -1,5 +1,4 @@
-Artículo 5
-Los Tribunales no podrán ejercer su ministerio sino a petición de parte, a no ser en los casos en que la ley los faculte para proceder de oficio.
-Reclamada su intervención en forma legal y en negocios de su competencia, no podrán excusarse de ejercer su autoridad por falta de ley que resuelva la contienda sometida a su decisión.
-No habiendo norma escrita ni uso o costumbres aplicables al caso, fallarán con arreglo a los principios generales del Derecho.
-( Así reformado por el artículo 3º de la Ley Nº 7020 de 6 de enero de 1986 )
+Artículo 5.- Los tribunales no podrán ejercer su ministerio sino a petición de parte, a no ser en los casos exceptuados por la ley; pero, una vez requerida legalmente su intervención, deberán actuar de oficio y con la mayor celeridad, sin que puedan retardar el procedimiento valiéndose de la inercia de las partes, salvo cuando la actividad de éstas sea legalmente indispensable.
+Los tribunales no podrán excusarse de ejercer su autoridad o de fallar en los asuntos de su competencia por falta de norma que aplicar y deberán hacerlo de conformidad con las normas escritas y no escritas del ordenamiento, según la escala jerárquica de sus fuentes.
+Los principios generales del Derecho y la Jurisprudencia servirán para interpretar, integrar y delimitar el campo de aplicación del ordenamiento escrito y tendrán el rango de la norma que interpreten, integren o delimiten. Cuando se trate de suplir la ausencia y no la insuficiencia de las disposiciones que regulen una materia, dichas fuentes tendrán rango de ley.
+Los usos y costumbres tendrán carácter supletorio del Derecho escrito.

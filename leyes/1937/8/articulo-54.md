@@ -1,5 +1,11 @@
-Artículo 54
-Las personas que laboren en el Poder Judicial se denominan "servidores". Sin embargo, cuando en esta ley se hable de "funcionarios que administran justicia" ha de entenderse por tales a los Magistrados, Jueces Superiores, Jueces, Actuarios, miembros integrantes de los Tribunales Colegiados y Alcaldes; por "funcionarios" a los que, fuera de los antes dichos, tengan atribuciones y responsabilidades propias determinadas en esta ley; y por "empleados" a todas las demás personas que desempeñen puestos en el Poder Judicial remunerados por el sistema de sueldos.
-Las prohibiciones establecidas en esta ley se aplicarán tanto a los servidores que fueren nombrados en propiedad como a los interinos, salvo disposición legal en contrario.
-Cuando esta ley mencione "Corte" ha de entenderse Corte Plena y cuando en los Códigos Procesales se hable de "Ley Orgánica", sin especificación alguna, se alude a la presente ley.
-( Así reformado por el artículo 1º de la Ley Nº 6024 de 15 de diciembre de 1976 )
+CAPITULO II
+DE LA SALA PRIMERA
+Artículo 54.- La Sala Primera conocerá:
+1.- De los recursos de casación y revisión, que procedan conforme a la ley en los procesos ordinarios y abreviados, en las materias civil, comercial y contencioso-administrativa, con salvedad de los asuntos referentes al Derecho de Familia y a Juicios Universales.
+2.- Del cumplimiento de sentencias pronunciadas por tribunales extranjeros, con arreglo a los tratados y leyes vigentes y de los demás casos de exequatur.
+3.- De las competencias que se susciten en tribunales superiores civiles o entre estos y los de otra materia, siempre que aquellos hubieran prevenido en el conocimiento del asunto.
+4.- De las competencias entre juzgados civiles que pertenezcan a la jurisdicción de tribunales superiores diferentes, siempre que se trate de juicios ordinarios civiles o comerciales, excepto en Juicios Universales y en asuntos de familia y de Derecho Laboral.
+5.- De la tercera instancia rogada en asuntos de la jurisdicción agraria, cuando el recurso tenga cabida de conformidad con la ley.
+6.- De los conflictos en que se vean involucrados los juzgados de cualquier materia y los tribunales superiores de lo contencioso administrativo.
+7.- De los conflictos de competencia que se planteen respecto de autoridades judiciales y administrativas.
+8.- De los demás asuntos que indique la ley, cuando por su naturaleza no correspondan a otra de las Salas de la Corte.

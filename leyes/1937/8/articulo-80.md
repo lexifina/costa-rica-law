@@ -1,2 +1,2 @@
-Artículo 80
-Donde hubiere un Juzgado Civil habrá uno Penal; sin embargo, podrán reunirse en uno solo si el número de los negocios no exigiere mantener la separación de los Juzgados.
+Artículo 80.- El Consejo rendirá un informe anual a la Corte Suprema de Justicia, sobre su funcionamiento y el de los tribunales de la República y demás departamentos y oficinas del Poder Judicial. Incluirá, en dicho informe, las necesidades que, a su juicio, existan en materia de personal, instalaciones y recursos para el correcto desempeño de la función judicial.
+Previamente a elaborarlo, pedirá a los tribunales, juzgados, alcaldías y departamentos, un informe anual sobre la labor realizada y de las necesidades que tengan.

@@ -1,2 +1,1 @@
-Artículo 158
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 158.- El cargo de defensor público de tiempo completo es incompatible con el ejercicio privado de la profesión de abogado y del ejercicio del notariado.

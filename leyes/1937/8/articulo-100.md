@@ -1,6 +1,6 @@
-Artículo 100
-Los Arbitros que no sean funcionarios judiciales, una vez aceptado su encargo, quedan obligados a desempeñarlo, bajo la pena de responder de los daños y perjuicios.
-Esta obligación cesa:
-1º.- Por sobrevenir causa que implique impedimento para ejercer el cargo o constituya un motivo legal de excusa o de recusación;
-2º.- Si contrajeren enfermedad que les impida, seguir ejerciendo sus funciones; y
-3º.- Si por cualquier causa tuvieren que ausentarse del lugar donde se sigue el juicio, por más de un mes.
+Artículo 100.- Los Tribunales Superiores Agrarios conocerán:
+1.- En grado, de las resoluciones dictadas por los Juzgados Agrarios.
+2.- De los recursos que se interpongan contra las resoluciones del Instituto de Desarrollo Agrario, dictadas en materia de su competencia.
+3.- De los impedimentos, excusas y recusaciones de sus Jueces Superiores propietarios y suplentes.
+4.- De los conflictos de competencia en materia agraria.
+5.- De los demás asuntos que determine la ley.

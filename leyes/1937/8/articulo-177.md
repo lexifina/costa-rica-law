@@ -1,2 +1,1 @@
-Artículo 177
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 177.- Es obligación del Consejo Superior realizar visitas periódicas a todas las oficinas judiciales, lo que podrá hacer en pleno o delegándola en uno de sus miembros.

@@ -1,12 +1,4 @@
-CAPITULO III
-De la Sala Segunda
-(NOTA: El artículo 2º de la Ley Nº 6434, modificó el nombre de este epígrafe )
-Artículo 63
-La Sala Segunda estará integrada por cinco magistrados y conocerá:
-1) De los recursos de casación y revisión que procedan con arreglo a la ley, en juicios ordinarios de familia o de derecho sucesorio y en juicios universales, o en las ejecuciones de sentencias en que el recurso no sea de conocimiento de la Sala Primera.
-2) De la tercera instancia rogada en asuntos de la jurisdicciòn de trabajo cuando el recurso tenga cabida conforme al código de la materia.
-3) De las cuestiones de competencia que se susciten en asuntos de la jurisdicción laboral, cuando no corresponda resolverlos a otros tribunales de esa materia.
-4) De las competencias entre jueces civiles que pertenezcan a la jurisdicción de tribunales superiores de diferente territorio, en cualquier clase de asuntos, cuando no corresponda resolver la cuestión a la Sala Primera.
-5) De los conflictos de competencia que se planteen respecto de autoridades judiciales y administrativas.
-6) De las quejas y demandas de responsabilidad civil contra los Jueces Superiores Civiles, cuando no fueren de competencia de la Sala Primera, y de las demandas de esa índole que se interpongan contra los Jueces Superiores Penales o de Trabajo.
-( Así reformado por el artículo 2º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 63.- Los Magistrados suplentes, escogidos por sorteo para reponer la falta temporal de un propietario, desempeñarán sus funciones por el tiempo que dure ésta; los llamados para reponer una falta absoluta, por todo el tiempo que transcurre sin que la Asamblea Legislativa llene la vacante y dé posesión al Magistrado nuevamente electo.
+Sin embargo, si el Suplente estorbare el funcionamiento normal del tribunal, por su irregular asistencia o por cualquier otro motivo calificado, la Sala dará cuenta al Presidente de la Corte para que sea repuesto por nuevo sorteo.
+Cuando algún Magistrado suplente debiera ejercer la Magistratura por un lapso mayor de tres meses, entrará en receso de sus funciones de abogado y notario por todo el tiempo de ese ejercicio; pero al vencer su cargo recobrará, por el mismo hecho, las citadas funciones, sin necesidad de reponer la garantía vigente.
+Los Magistrados suplentes devengarán dietas por día de trabajo o sesión, proporcionales a la remuneración de los propietarios. Cuando fuesen pensionados o jubilados de cualquier régimen, el desempeño del cargo por más de un mes, suspenderá el goce de su pensión o jubilación.

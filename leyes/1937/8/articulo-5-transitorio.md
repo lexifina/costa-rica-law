@@ -1,0 +1,2 @@
+Transitorio V.- Los cambios que en materia de competencia jurisdiccional se establecen en la presente Ley, se aplicarán únicamente a los procesos iniciados con posterioridad a su vigencia.
+Sin embargo, cuando la competencia se atribuya a un nuevo tribunal, pasarán a su conocimiento todos los procesos pendientes a la fecha en que entre en funciones. En igual sentido, pasarán a conocimiento de los jueces penales todos los asuntos pendientes ante la Sala Tercera por delitos de imprenta.

@@ -1,2 +1,3 @@
-Artículo 202
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 202.- Si los hechos denunciados pudieren ser sancionados con revocatoria de nombramiento o suspensión, o si otras circunstancias lo hicieren aconsejable, el Tribunal de la Inspección podrá separar preventivamente al servidor del cargo hasta por tres meses, con goce de salario. En tal caso, esta medida no será compensable con la sanción que se llegare a imponer.
+La potestad disciplinaria de suspensión deberá ejercitarse en forma restringida y, como se señala en el párrafo final del artículo 195, cuando existan fundadas razones para sospechar que, si el servidor sigue en el desempeño de su puesto, podrá obstaculizar o hacer nugatoria la investigación iniciada en su contra o afectar el buen servicio público.
+La misma facultad tendrá la Corte y el Consejo respecto de los servidores sobre quienes ejerza el régimen disciplinario, o que sean de su nombramiento.

@@ -1,3 +1,4 @@
-Artículo 196
-Cuando no sea posible determinar la jurisdicción por razón del territorio o lugar en que el hecho se cometió total o parcialmente, o por la naturaleza del mismo, será competente para conocer de la infracción el juez en cuyo territorio se encontrare o fuere a la sazón habido el delincuente; y si éste no se encontrare en el territorio de la República, conocerán del proceso los Jueces Penales de la Capital.
-( Así reformado por el artículo 1º de la Ley Nº 372 de 22 de agosto de 1941 )
+Artículo 196.- Para los efectos del artículo 192 inciso 3) se establecen las siguientes reglas:
+1.- Los actuarios, si los hubiere, y secretarios de las oficinas judiciales tendrán la obligación de velar porque las providencias se dicten dentro de los plazos legales y que la tramitación o cualquier otra labor asignada al Despacho no se detenga o atrase sin motivo justificado.
+2.- El presidente, en órganos colegiados, o el jefe del Despacho serán responsables, conjuntamente con el secretario, de cualquier atraso de tramitación, salvo que demuestren que la falta no puede imputárseles. En caso de sentencias u otros proveídos, lo será el servidor a quien se asignó la redacción.
+3.- Se estimará como retardo injustificado el ordenar prueba para mejor proveer con el exclusivo propósito de extender los plazos.

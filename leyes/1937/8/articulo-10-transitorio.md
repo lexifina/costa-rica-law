@@ -1,0 +1,1 @@
+Transitorio X.- Las prohibiciones que estipula el párrafo tercero del artículo 12, no se aplicarán a los servidores que hubieran ingresado al Poder Judicial antes de la entrada en vigencia de esta Ley.

@@ -1,6 +1,2 @@
-Artículo 91
-En materia civil conocerán los Alcaldes:
-1) De los asuntos cuya cuantía no exceda la que establezca la Corte Plena como máxima, excepto los citados en los incisos 2) y 3) del artículo 86; y
-( Así reformado por el artículo 1º de la Ley Nº 6332 de 8 de junio de 1979 )
-2º.- De los asuntos a que aluden los artículos 81, inciso 2), y 86, inciso 4), cuando la cuantía no exceda la suma fijada por la Corte Plena.
-( Así reformado por el artículo 2º de la Ley Nº 7046 de 6 de octrubre de 1986 )
+Artículo 91.- En el caso de ausencia temporal del Auditor, sus funciones se recargarán en cualquier otro servidor de la Auditoría que tenga conocimientos contables, según lo disponga el Presidente del Consejo. Si la ausencia se prolongare por más de ocho días, el Consejo nombrará a un auditor interino.
+Los nombramientos que se realicen, de forma interina, podrán recaer en personas que no reúnan los requisitos establecidos en esta Ley, siempre que tales nombramientos no excedan de tres meses. Transcurrido este término, el Consejo deberá hacer el nombramiento de una persona que reúna los requisitos establecidos, previo concurso que convocará el Departamento de Personal.

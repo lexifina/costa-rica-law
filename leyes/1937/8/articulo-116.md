@@ -1,2 +1,1 @@
-Artículo 116
-Los Secretarios de las Salas deberán asistir a las vistas; pero si ocupaciones urgentes de la oficina lo impidieren, podrán ser reemplazadas para ese acto por los Prosecretarios.
+Artículo 116.- En materia de trabajo, conocerán las alcaldías de los procesos ordinarios de trabajo, cuya cuantía no exceda de la suma fijada por la Corte y de las infracciones a la legislación laboral; todo sin perjuicio de lo dispuesto por la ley para los tribunales de trabajo de menor cuantía.

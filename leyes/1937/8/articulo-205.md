@@ -1,2 +1,2 @@
-Artículo 205
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 205.- Si durante la tramitación de una queja surgieren otros hechos que puedan dar lugar a la aplicación del régimen disciplinario contra el mismo u otro servidor, se procederá a testimoniar piezas e iniciar un nuevo procedimiento.
+Las diligencias podrán acumularse siempre que se trate del mismo funcionario y no implique retardo grave de la instrucción en cuanto a la primera.

@@ -1,6 +1,1 @@
-TITULO VIII
-De las competencias
-CAPITULO I
-Disposiciones Generales
-Artículo 173
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 173.- A falta de norma expresa en esta Ley sobre jurisdicción y competencia, se aplicará lo dispuesto en los códigos y leyes procesales respectivos.

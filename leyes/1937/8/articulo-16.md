@@ -1,2 +1,1 @@
-Artículo 16
-( DEROGADO por el artículo 2º de la Ley Nº 6024 de 15 de diciembre de 1976 )
+Artículo 16.- Al efectuarse un nombramiento en propiedad, el Consejo puede disponer que la persona elegida sea ubicada en otro despacho por un período no mayor de tres meses, para que, bajo la dirección del titular de esa otra oficina, se capacite para el desempeño del cargo. Lo anterior se efectuará en coordinación con la Escuela Judicial.

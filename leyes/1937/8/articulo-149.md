@@ -1,2 +1,6 @@
-Artículo 149
-La suspensión o inhabilitación podrá pedirla el Ministerio Público, el Fiscal del Colegio o cualquier persona mayor de edad o emancipada, sea o no interesada, mas será privativo de ésta el derecho de solicitarla por los motivos 2º y 3º del artículo 145.
+TITULO VI
+DE LAS PERSONAS Y DEPENDENCIAS QUE
+AUXILIAN LA ADMINISTRACION DE JUSTICIA
+CAPITULO I
+DE LOS ORGANOS
+Artículo 149.- Además de otros órganos que establezcan la ley o el reglamento, actuarán como auxiliares de la administración de justicia: el Ministerio Público, el Organismo de Investigación Judicial, el Departamento de Defensores Públicos, la Escuela Judicial, el Digesto de Jurisprudencia y el Archivo y Registros Judiciales.

@@ -1,2 +1,1 @@
-Artículo 104
-( DEROGADO por el artículo 2º de la Ley Nº 6024 de 15 de diciembre de 1976 )
+Artículo 104.- Los Juzgados Civiles, Penales, de Trabajo, Agrarios, de Familia y Tutelar de Menores podrán ser mixtos, cuando el número de asuntos que deban conocer así lo justifique.

@@ -1,2 +1,1 @@
-Artículo 87
-( DEROGADO por el artículo 8º de la Ley Nº 6434 de 22 de mayo de 1980 )
+Artículo 87.- En la Dirección habrá un Subdirector, que estará subordinado al Director y colaborará con él en el desempeño de su cargo. Debe reunir los mismos requisitos que se exigen para el Director, a quien reemplazará en sus ausencias temporales. Se procurará, en todo caso, que no tenga la misma especialidad profesional del Director.

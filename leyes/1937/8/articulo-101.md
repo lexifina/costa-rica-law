@@ -1,2 +1,5 @@
-Artículo 101
-Los Arbitros juris han de tener iguales calidades y condiciones a las exigidas para ejercer un Juzgado; los Arbitros arbitradores no requieren condiciones especiales, sino el nombramiento de las partes.
+Artículo 101.- En los Tribunales Superiores de Casación y en los demás tribunales colegiados habrá las secciones que sean necesarias, cada una compuesta por tres jueces.
+En los tribunales colegiados, sus integrantes elegirán, entre ellos, a uno que se desempeñará como presidente, por un período de cuatro años, el cual podrá ser reelecto. Si el
+tribunal tuviere más de una sección, en las que no se desempeñe el presidente, se elegirá un coordinador. Ambos tendrán las funciones que señale la ley y la Corte. A falta de acuerdo entre los integrantes del tribunal, luego de realizadas cinco votaciones, la designación del presidente la hará la Corte Plena.
+Los tribunales podrán tener competencia en dos o más provincias y en cantones de diferentes provincias. El Consejo regulará la distribución de los asuntos, por razón de la materia o del territorio, entre esos tribunales, para equiparar el trabajo, con el objeto de mejorar el servicio.
+Las reglas relativas al funcionamiento de los tribunales superiores serán aplicables, en lo que corresponda, a los demás tribunales colegiados, incluidos los Tribunales Superiores de Casación.

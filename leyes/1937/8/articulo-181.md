@@ -1,2 +1,1 @@
-Artículo 181
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 181.- El Consejo podrá solicitar informes a otras oficinas judiciales, cuando lo estime conveniente, en cuyo caso señalará los extremos que le interesen.

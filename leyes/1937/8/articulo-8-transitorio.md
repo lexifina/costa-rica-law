@@ -1,0 +1,1 @@
+Transitorio VIII.- Mientras no se promulgue una ley que regule la carrera judicial, los nombramientos de los funcionarios que administran justicia se harán conforme al procedimiento establecido por el Estatuto del Servicio Judicial, excepto en cuanto al órgano competente para hacerlos.

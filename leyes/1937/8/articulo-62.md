@@ -1,7 +1,5 @@
-Artículo 62
-Para conocer del recurso de amparo, la Sala Primera deberá actuar con los siete magistrados que la componen.
-( DEROGADO TACITAMENTE por Ley Nº 7135 de 11 de octubre de 1989 )
-En los demás casos se integrará con cinco de sus miembros, quienes serán designados por turno o en la forma que la propia Sala considere más conveniente en cada asunto.
-En la primera resolución que se dicte en los casos a que se refiere el párrafo anterior, deberá expresarse cuáles magistrados integran la Sala en el respectivo asunto. Si por cualquier motivo se variare después esa integración, así se hará saber a las partes.
-Cuando alguno de los cinco integrantes fuere separado por excusa, impedimento o recusación, será sustituido por cualquiera de los otros dos magistrados, y si éstos tuvieren también causal de separación, se sustituirán por magistrados suplentes.
-( Así reformado por el artículo 2º de la Ley Nº 6434 de 22 de mayo de 1980 )
+CAPITULO IX
+DE LOS MAGISTRADOS SUPLENTES
+Artículo 62.- La Corte contará, al menos, con treinta y siete Magistrados suplentes, de los que doce lo serán de la Sala Constitucional, nueve de la Sala Primera y ocho de cada una de las restantes serán nombrados por la Asamblea Legislativa en la segunda quincena del mes de mayo en el que se inicie el respectivo período -salvo el de los doce de la Sala Constitucional que lo será en la segunda quincena del mes de octubre en que finalice su período- y en la forma que indica la Constitución Política; durarán en sus funciones cuatro años, prestarán juramento ante la misma Asamblea, a la hora y día que esta designe y deberán reunir los requisitos que señala el artículo 159 de la Constitución Política, excepto el de rendir garantía.
+La Asamblea Legislativa deberá escoger a los Suplentes de entre las nóminas de cincuenta y de veinticuatro candidatos, en su caso, que sean propuestas por la Corte.
+Transitorio.- Los actuales Magistrados suplentes de la Sala Constitucional desempeñarán el cargo hasta tanto no tomen posesión los que habrá de nombrar la Asamblea, en octubre de 1993, para el período que se iniciará ese año.

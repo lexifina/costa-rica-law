@@ -1,7 +1,6 @@
-TITULO V
-De los empleados subalternos en los Tribunales
-CAPITULO I
-Disposiciones Generales
-Artículo 102
-En cada tribunal habrá un secretario y los prosecretarios, notificadores y escribientes u oficinistas que fueren necesarios para el buen servicio. No obstante, no es indispensable que en las Alcaldías y Agencias Judiciales de los cantones menores haya prosecretario ni notificador.
-( Así reformado por el artículo 1º de la Ley Nº 1266 de 21 de febrero de 1951 )
+Artículo 102.- En las cuestiones de competencia, los Tribunales Superiores conocerán, según la materia:
+1.- De las que se susciten entre los Juzgados Civiles, Agrarios, Penales, de Trabajo, Tutelares de Menores, de Familia o Contencioso-administrativos y Civiles de Hacienda en su territorio.
+Si los juzgados pertenecieren a la jurisdicción de Tribunales Superiores de diferente territorio, tocará decidir la competencia al Tribunal Superior de Casación respectivo y de no haberlo, a la respectiva Sala de la Corte, para lo cual tomará en cuenta la materia o el territorio.
+2.- De los conflictos que se planteen entre juzgados o alcaldías de territorios diferentes pero de igual materia. En estos casos, resolverá la competencia el tribunal superior del territorio al que pertenezca el juzgado o la alcaldía ante quien se presentó el asunto o previno en su conocimiento.
+Si los juzgados y alcaldías fueren de diversa materia, del mismo o diferente territorio, tocará decidir al respectivo Tribunal de Casación. El asunto se tendrá como de la materia ante quien se presentó o previno en su conocimiento. Igual regla se aplicará si se tratare de conflicto entre tribunales superiores de distinta materia, fueren o no fueren de igual territorio.
+(Así reformado por el artículo 1° de la Ley N° 7333 de 5 de mayo de 1993)

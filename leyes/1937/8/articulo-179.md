@@ -1,2 +1,3 @@
-Artículo 179
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 179.- A los efectos de la inspección y vigilancia de los tribunales, en los primeros cinco días de los meses de enero, abril, julio y octubre, los jefes de Despacho deberán remitir al Consejo Superior la relación de los asuntos ingresados, pendientes y resueltos, en la forma que lo disponga el Consejo. También se indicarán las sentencias definitivas o interlocutorias dictadas en el señalado lapso, la justificación por los atrasos, si los hubiere, y cualquier otro dato que resulte de interés.
+A efecto de establecer el debido control, el Departamento de Planificación rendirá un informe general en el que se establezcan principalmente problemas detectados y se propongan las soluciones del caso.
+Además de los referidos informes, el Consejo podrá ordenar que se rindan otros, cuando así lo estime necesario.
