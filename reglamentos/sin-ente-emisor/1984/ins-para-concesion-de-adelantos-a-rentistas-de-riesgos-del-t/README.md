@@ -13,3 +13,4 @@ INS: Para Concesión de Adelantos a Rentistas de Riesgos del Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-03-27 | la propia norma |
+| 2 | 2001-12-10 | Reglamento 8503 (2001-12-10) |
