@@ -1,0 +1,1 @@
+Art. 7°- Son apelables para ante los Jueces del Crimen, las sentencias dietadas por los Alcaldes, y se concede recurso de revisión para ante los Gobernadores que pronunciaren los Agentes principales de policía y Jefes Políticos, cuando en ellas se impusiere multa mayor de diez pesos arresto que exceda de quince días.
