@@ -1,0 +1,4 @@
+CAPITULO II
+Servicios y horarios
+El mercado de feria funcionará en forma ordinaria los días jueves, sábados y domingos según los horarios ya establecidos y podrán ser cambiados cuando así lo considere con anterioridad el señor ejecutivo municipal, de ser posible consultando de previo al Concejo. La carga de estos puestos estará sujeta a las disposiciones .que al efecto dicte el Concejo, y los comerciantes que expenden estos artículos no podrán por ningún concepto despachar o vender mercaderías en horas y días que no son de feria, el que infrinja esta regla se considerará como persona que viola el reglamento y se hará acreedor de las sanciones que al efecto contiene el mismo.
+Articulo 4°-Tendrán la personería y calidad de usuario, quienes estén en las listas que al efecto serán levantadas .por la Administración del mercado y gocen de la aprobación del Concejo, sin esta aprobación tal personería carece de efectividad.
