@@ -1,4 +1,5 @@
-Articulo 16.—Orden del día: Las sesiones del Consejo Directivo se desarrollarán conforme con el orden del día previamente elaborado por el Presidente en conjunto con el Secretario.
+Articulo 16.—Orden del día: Las sesiones del Consejo Directivo se desarrollarán conforme con la orden del día previamente elaborada por el Presidente en conjunto con el Gerente.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 638 de 28 de noviembre de 1985, publicada en La Gaceta N° 58 de 25 de marzo de 1986.)
 El orden del día contendrá en lo posible los siguientes puntos:
 a) Aprobación del acta o actas anteriores.
 b) Informe de la Gerencia.
