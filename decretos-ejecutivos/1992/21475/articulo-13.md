@@ -1,0 +1,3 @@
+Artículo.13.—Los Consejos Etnicos se reunirán por lo menos una vez al año en el lugar y fecha acordados por sus miembros, en cada reunión anterior, o por lo menos con tres meses de anticipación. Las reuniones deben realizarse necesariamente en una de las Reservas Indígenas afiliadas a cada Consejo y de preferencia cada año en una Reserva diferente.
+Los gastos serán cubiertos por la Reserva anfitriona y por las Asociaciones de Desarrollo de las Reservas afiliadas, proporcionalmente al número de integrantes de estas Reservas en el Consejo.
+Las copias de las actas de cada sesión serán enviadas a las Asociaciones de Desarrollo afiliadas y facultativamente a CONAI.

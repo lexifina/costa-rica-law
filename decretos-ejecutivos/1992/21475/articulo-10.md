@@ -1,0 +1,2 @@
+Artículo 10.—Todos los miembros de todos los Consejos Etnicos deben obligadamente ser indígenas legítimos y residentes permanentes, de las Reservas Indígenas. En el caso de los Bribrís, Cabécares y Guaymíes, todos los miembros escogidos deben obligatoriamente dominar su idioma indígena nativo y conocer y respetar las costumbres de su etnia.
+Todos los miembros de los Consejos Etnicos deben ser mayores de treinta años y de honorabilidad reconocida.

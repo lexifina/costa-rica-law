@@ -1,0 +1,2 @@
+Artículo 4°—Para los efectos del artículo 3° del decreto N° 13573-G-C del 30 de abril de 1982, los Consejos Etnicos serán los que elaborarán el documento que expresa las características, costumbres y reglas de su etnia.
+Las costumbres heredadas de los tiempos precolombinos, tales como el respeto de los clanes en las etnias Bribrí y Cabécar tendrán valor y fuerza de ley (artículo 4° de la Ley Indígena).

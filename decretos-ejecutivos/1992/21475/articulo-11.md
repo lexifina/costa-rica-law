@@ -1,0 +1,3 @@
+Articulo 11.—CONSTITUCIÓN DE LOS CONSEJOS ETNICOS.
+Los integrantes de los futuros Consejos Étnicos, tal como fueron definidos en los artículos 5° al 10 del presente Decreto, deben realizar una reunión para constituirse formalmente en Consejo Etnico y nombrar los miembros adicionales; esta reunión se realizará en cualquier lugar a conveniencia de sus miembros; se levantará el acta de constitución y una copia de esta autenticada por un abogado, será comunicada a CONAI, quien abrirá un expediente especial para estos organismos, se enviará copia al Ministerio de Gobernación y a las diferentes Asociaciones de Desarrollo afiliadas al respectivo Consejo Étnico.
+El Consejo Etnico solo tendrá vigencia legal cuando haya cumplido el requisito antes mencionado.

@@ -1,0 +1,1 @@
+Artículo 9°—El Consejo Etnico Brunca, será constituido por cinco miembros, los Presidentes y Vicepresidentes (o sus delegados debidamente acreditados), de las Asociaciones de Desarrollo Integral de Boruca y Curré; el quinto miembro será designado por los anteriores.

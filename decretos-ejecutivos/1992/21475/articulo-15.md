@@ -1,0 +1,1 @@
+Artículo 15.—Los Consejos Etnicos vigentes podrán adquirir personería jurídica a través de la Ley de Asociaciones N° 218, serán inscritos como Asociaciones Etnicas (Asociaciones de Consejos Etnicos), de cada grupo indígena.

@@ -1,0 +1,3 @@
+Artículo 14.—MECANISMO DE NOMBRAMIENTO Y DE CESE DE FUNCIONES
+Los Presidentes y Vicepresidentes de Asociaciones de Desarrollo afiliadas (o sus representantes), son de nombramiento automático y desde luego son sustituidos automáticamente cuando dejen sus funciones como directivos de sus respectivas Asociaciones de Desarrollo.
+Los miembros de tipo tradicional (Sukia, Usecar, Cacique), serán nombrados conforme con las costumbres indígenas de cada etnia. Los miembros adicionales serán nombrados por dos años y reelectos o removidos cada dos años, a criterio de la mayoría de los otros miembros del Consejo.

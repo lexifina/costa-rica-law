@@ -1,0 +1,2 @@
+Artículo 7°—El Consejo Etnico Guaymí será integrado por siete miembros entre los cuales los presidentes (o sus delegados debidamente acreditados); de las Asociaciones de Desarrollo Integral de las Reservas de Guaymí de Coto Brus, Abrojo de Montezuma, Conteburica y Osa.
+Además incluirá el Cacique de los Guaymíes (actualmente residente en Coto Brus) o su representante debidamente acreditado; los dos miembros restantes serán nombrados por mayoría de los anteriores.

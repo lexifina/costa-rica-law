@@ -1,0 +1,1 @@
+Artículo 8°—El Consejo Etnico Huetar (Pacacua), será constituido por cinco miembros. Los Presidentes y Vicepresidentes (o sus representantes debidamente acreditados), de las Asociaciones de Desarrollo Integral de Quitirrisí y Zapatón. El quinto miembro será designado por los anteriores.
