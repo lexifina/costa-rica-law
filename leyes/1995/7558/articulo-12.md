@@ -1,4 +1,3 @@
-ARTICULO 12.- Exenciones
-Sin perjuicio de lo establecido por la Ley No. 2151, del 13 de
-agosto de 1957, el Banco Central está exento de cualquier contribución o
-impuesto en todo el territorio de la República.
+Artículo 12.-. Exenciones
+Sin perjuicio de lo establecido por la Ley No. 2151, del 13 de agosto de 1957, el Banco Central está exento de cualquier contribución o impuesto en todo el territorio de la República.
+(Nota de Sinalevi: Mediante el artículo 1° de la Ley de Sujeción de Instituciones Estatales al Pago de Impuesto sobre la Renta N° 7722 del 9 de diciembre de 1997, se estableció que el Banco Central de Costa Rica queda sujeto al pago del impuesto sobre la renta, establecido en la Ley de Impuesto sobre la Renta No.7092, de 21 de abril de 1988. Posteriormente, mediante el artículo 17 inciso i) de la Ley Simplificación y Eficiencia Tributaria, N° 8114 del 4 de julio de 2001, se indica que se deroga, para el Banco Central de Costa Rica, todas las exenciones del pago del impuesto sobre las ventas, excepto lo referente a monedas y billetes)
