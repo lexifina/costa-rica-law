@@ -12,3 +12,4 @@ Reglamento Importación y Fabricación Pirotécnicos Fines Espectaculares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1956-12-07 | la propia norma |
+| 2 | 1956-12-07 | SINALEVI (sin norma nombrada) |
