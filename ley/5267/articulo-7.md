@@ -1,0 +1,1 @@
+Articulo 7°-El Banco Central y los Bancos Comerciales del Estado celebrarán, conforme a sus respectivas leyes orgánicas, un convenio entre sí y con el Instituto Nacional de Seguros, a fin de garantizar la liquidez de las operaciones previstas en esta ley.

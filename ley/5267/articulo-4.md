@@ -1,0 +1,1 @@
+Articulo 4°-Los títulos a que esta ley se refiere, serán conservados en cartera por el Instituto Nacional de Seguros; hasta el momento en que las necesidades del Seguro de Cosechas ameriten su conversión en dinero efectivo.

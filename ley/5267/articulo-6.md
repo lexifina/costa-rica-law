@@ -1,0 +1,1 @@
+Articulo 6°-Para realizar las transacciones previstas en el articulo 5° anterior, el Instituto Nacional de Seguros deberá presentar a los Bancos Comerciales del Estado en cada oportunidad, la documentación que determine la necesidad de los recursos efectivos que solicita.
