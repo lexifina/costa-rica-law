@@ -14,3 +14,4 @@ Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, cre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-11 | la propia norma |
+| 2 | 2002-12-19 | Reglamento 346 (2002-12-19) |
