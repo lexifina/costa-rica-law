@@ -1,0 +1,1 @@
+Artículo 20.—Las sesiones del Consejo Director serán siempre privadas, pero sus miembros podrán acordar, por unanimidad de los presentes, que tengan acceso a ella el público en general o ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

@@ -1,0 +1,1 @@
+Artículo 13.—Los acuerdos se tomarán por mayoría de los directores asistentes, excepto en el caso de que se declare un acuerdo firme en la misma sesión, para lo cual se requerirá del voto de las dos terceras partes de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 19.—La convocatoria a sesiones extraordinarias deberá hacerse por escrito por lo menos con 24 horas de anticipación, salvo los casos de urgencia; a la convocatoria se acompañará copia del orden del día, salvo caso de urgencia, indicando el motivo.

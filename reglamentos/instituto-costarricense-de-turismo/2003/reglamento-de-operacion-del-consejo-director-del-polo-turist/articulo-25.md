@@ -1,0 +1,1 @@
+Artículo 25.—Los acuerdos tomados por el Consejo Director quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria, o al haberse declarado así por dos tercios de la totalidad de los miembros del Consejo.

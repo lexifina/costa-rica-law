@@ -1,0 +1,1 @@
+Artículo 18.—Los días y horas de las sesiones ordinarias serán fijados por el propio Consejo Director, mediante acuerdo específico. La convocatoria para sesiones extraordinarias, en ausencia del Presidente o su sustituto, podrán hacerla dos directores. Para reunirse en sesión ordinaria no hace falta convocatoria especial.

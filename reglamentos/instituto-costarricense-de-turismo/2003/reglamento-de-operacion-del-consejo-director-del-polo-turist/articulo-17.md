@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones del Consejo Director deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto conforme al reloj de la Institución. Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constancia en el acta que se levante al efecto, consignando el nombre de los directores presentes.

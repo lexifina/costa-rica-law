@@ -1,0 +1,1 @@
+Artículo 9º—En caso de ausencia del Director Ejecutivo, el Consejo Director nombrará un Director interino o recargará la función en alguno de los funcionarios de la Oficina Ejecutora, con los deberes y derechos del puesto.

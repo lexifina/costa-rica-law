@@ -1,0 +1,1 @@
+Artículo 21.—Las sesiones del Consejo Director se desarrollarán conforme a la orden del día previamente elaborada, la cual sólo podrá ser modificada o alterada en casos de urgencia, según los trámites establecidos en este Reglamento.
