@@ -1,0 +1,1 @@
+Artículo 5°-Las Municipalidades que hubieren formado un fondo de pensiones, y que no tuvieren trabajadores pensionados, o con derechos adquiridos, y no deben mantener su régimen según los términos de esta ley. quedan expresamente autorizadas para invertir las sumas de dinero con que han contribuido a ese fondo, en obras de interés comunal.
