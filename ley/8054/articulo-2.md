@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Autorízase a las instituciones públicas, centralizadas y descentralizadas, las instituciones de enseñanza pública y otros centros de educación técnica y profesional, para que, durante la semana que antecede el día de la conmemoración y el propio día, celebren actividades diversas tendientes a exaltar la diversidad étnica y lingüística así como sus valores.
