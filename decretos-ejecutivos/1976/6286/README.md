@@ -13,3 +13,4 @@ Exoneraciones a Concesionarios Transporte Personas Vehículos Taxis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-09-02 | la propia norma |
+| 2 | 1976-09-02 | SINALEVI (sin norma nombrada) |
