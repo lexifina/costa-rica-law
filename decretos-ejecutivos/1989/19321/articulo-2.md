@@ -1,5 +1,2 @@
-ARTÖCULO 2§.-El Centro Nacional de la Ciencia y la
-Tecnolog¡a ser considerado
-como un ente de inter‚s p£blico, fundamental para el desarrollo
-de nuestra poblaci¢n
-en estas reas.
+Artículo 2°- El Centro Nacional de Ciencia y Tecnología, será considerado como ente de interés público, fundamental para el desarrollo cultural de nuestra población y para despertar vocaciones en las áreas científicas, tecnológicas y técnicas. El Centro estará conformado por un conjunto de programas e instituciones de tipo desconcentrado y regional, adscritas al MICIT.
+(Así reformado por el artículo único del decreto ejecutivo N°19847 del 22 de junio de 1990)
