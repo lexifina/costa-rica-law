@@ -1,0 +1,1 @@
+Artículo 2°-En todo lo demás, se declara vigente el Decreto Ejecutivo N° 23 que aquí se modifica, así como el plano confeccionado por la Sección de Inventario de Tierras del Departamento de Tierras y Bosques del Institutito de Tierras y Colonización de fecha 30 de mayo de 1967, con las correcciones que se le hacen en el presente decreto.

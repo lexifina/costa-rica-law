@@ -1,0 +1,23 @@
+N° 19
+EL PRESIDNETE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Por cuanto:
+El Instituto de Tierras y Colonización, ha determinado la existencia de un error en la confección del plano de los terrenos que componen la Reserva Astúa Pirie-traspasados al ITCO en virtud del Decreto Ejecutivo número 23 de 19 de setiembre de 1967, publicado en “La Gaceta” número 224 de 5 de octubre del mismo año-al haberse comprendido en el área parte de los terrenos que forman la Colonia Cariari, inscrita originalmente como finca del mismo título,
+DECRETAN:
+Artículo 1°-Modificase el artículo segundo del Decreto Ejecutivo N° 23 de 19 de setiembre de 1967, a efecto de que se lea como sigue:
+“Artículo 2°-Terreno de montaña, situado en Pococí cantón segundo de la provincia de Limón, con una medida superficial de 26.400 hectáreas, delimitado por la línea que partiendo del punto de coordenadas 252: 540,00-596.210.00, localizado en la intersección de la margen izquierda del río Parismina, con la línea que demarca la faja de diez kilómetros paralela a la costa, establecida por Decreto Ejecutivo N° 12 de 29 de abril de 1956, sigue:
+a) Aguas arriba del río Parismina, sobre su margen izquierda, hasta el punto de coordenadas 252.450,00-594.230,00 en la confluencia con el río Jiménez y sobre la margen izquierda de este río;
+b) Aguas arriba del río Jiménez, sobre su margen izquierda hasta su confluencia con el río Indio en el punto de coordenadas 253.600, 00-583.490,00;
+c) Aguas arriba del río Indio, sobre su margen izquierda hasta encontrar la línea de tranvía del caserío la Esperanza, en el punto de coordenadas 258.660,00-577. 530,00;
+ch) De este punto por la línea de tranvía citada, con el siguiente derrotero: con rumbo N 01° 19E una distancia de 870.23 m, con rumbo N 30° 47 W, una distancia de 547.08 m. hasta el punto de coordenadas 260.000,00-577.270,00 sobre la margen izquierda del río Esperanza;
+d) Aguas arriba del río Esperanza sobre su margen izquierda hasta encontrar la línea tranvía a finca La Curia en el punto de coordenadas 258.2900,00-570.250,00;
+e) Por la línea de tranvía citada y la prolongación de la misma, consistente en un camino de tierra, con el siguiente derrotero: con rumbo N 52° 00 E, una distancia de 406.09 m con rumbo N 13° 50 E una distancia de 669.41 m. con rumbo N 15° 31 W una distancia de 560.43 m con rumbo N 05° 54” W una distancia de 291.55 m. con rumbo N 03° 06” E una distancia de 370.54 m . con rumbo N 10° 37” W, una distancia de 488.36 m. con rumbo N 07° 46” E una distancia de 325.16 m. con rumbo N° 16° 28” E una distancia de 599.60 m. hasta encontrar la confluencia de los ríos Guápiles y Tortuguero en el punto de coordenadas 261.770, 01-570. 660,20 sobre la margen derecha del río Tortuguero;
+f) Aguas abajo del río Tortuguero sobre su margen derecha hasta el punto de coordenadas 267.837,30-572.561,29:
+g) Del punto anterior con rumbo N 68° 03” W, una distancia de 5.864.61 m. hasta el punto de coordenadas 270.029,49-567.121,81;
+h) De este punto con rumbo N 21° 57” E. una distancia de 2.921.83 m hasta encontrar la línea que demarca el lindero Sur del Triángulo Romain en el punto de coordenadas 272.739.52-568.213.99;
+i) Por el lindero Sur del citado Triángulo con rumbo S 71° 31” E una distancia de 14.969,08 m. hasta el punto de coordenadas 267.993, 87-582,410,97;
+j) De este punto por el lindero Este del triángulo Romain con rumbo N 03° 31° W y una distancia de 3.610.00 m. hasta encontrar el punto de coordenadas 271.597.08-582.189,53 sobre la margen derecha del río Tortuguero;
+k) Aguas abajo del río Tortuguero, sobre su margen derecha, hasta la confluencia con el río Agua Fría, localizada en el punto de coordenadas 271.790,00-584.110.32, sobre la línea que demarca la faja de 10 kilómetros, paralela a la costa, a que antes se hizo referencia;
+l) Por la línea que demarca la expresada faja con rumbo S 28° 56” E y una distancia de 10.854,91 m. hasta encontrar el río Sierpe; y
+m) DE este punto sobre la misma línea demarcatoria con rumbo S 35° 05” E una distancia e 11.914,65 m. hasta encontrar el punto de partida.
+Se advierte que los rumbos indicados en la anterior descripción, están referidos al Norte de Cuadrícula de las Hojas Cartográficas del Instituto Geográfico de Costa Rica; las coordenadas también se refieren a las de esa misma cuadrícula y, en todos los casos, la primera cifra representa la latitud y la segunda la longitud. Se advierte igualmente que la expresión “margen derecha” o “margen izquierda” referida a los ríos citados en el presente decreto, debe entenderse siempre en el sentido de aguas debajo de los mismos”.
