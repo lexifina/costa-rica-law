@@ -49,7 +49,7 @@ Direc. Salud y Produc. Pecuaria | 637,0
 Dirección Ejecutora de Proyectos PL | 480 247,3
 Dirección General Archivo Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31134 de 21 de abril de 2003) | 537.42
 Dirección General Aviación Civil (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31292 de 15 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 6.609.7
-Editorial Costa Rica | 109,6
+Editorial Costa Rica (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31315 de 21 de julio de 2003, publicado en La Gaceta N° 158 de 19 de agosto de 2003.) | 122,6
 Escuela Centroamericana de Ganadería | 514,6
 Estaciones Experimentales MAG (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 173.0
 Fábrica Nacional de Licores (Así modificado por el artículo 1° del decreto ejecutivo N° 31131 de 3 de abril de 2003) | 1.936,6
@@ -108,6 +108,7 @@ Servicio Nacional de Guardacostas (Así AMPLIADO por el artículo 1º del Decret
 Sistema Nacional de Radio y Televisión SINART (Así reformado parcial y tácitamente por el artículo 1° del decreto ejecutivo N° 31234 de 06 de junio de 2003) | 861.10
 Teatro Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003) | 322.3
 Teatro Popular Melico Salazar (Así modificado por el artículo 1° del Decreto Ejecutivo No. 31201 de 12 de mayo de 2003, publicado en La Gaceta No. 11 de 11 de junio de 2003) | 570,6
+Tribunal Registral Administrativo (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 387.5
 Unidad Ejecutora PPZN MIDEPLAN | 10,3
 (Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
 (Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modifica para el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
