@@ -1,0 +1,1 @@
+Artículo 20.—Todas las disposiciones referentes a cambios se considerarán de orden público y cíe aplicación inmediata. El Banco Internacional procederá a integrar la Junta de Cambios a la mayor brevedad a fin de que ésta dicte su reglamento y entre en funciones dentro de los diez días naturales posteriores a la publicación de esta ley.

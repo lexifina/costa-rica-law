@@ -1,0 +1,1 @@
+Artículo 23. — Para disminuir la exportación de oro el Poder Ejecutivo enviará al Congreso, a la mayor brevedad posible, convocándolo extraordinariamente si fuere preciso, un proyecto de ley que grave fuertemente la importación de artículos que se consideren de lujo y la de aquellos que se puedan producir en el país.
