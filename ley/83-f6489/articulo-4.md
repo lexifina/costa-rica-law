@@ -1,0 +1,1 @@
+Art 4°.- La de Cartago eligiendo un Diputado propietario en lugar del Ciudadano Juan José Bonilla, y un suplente por el Ciudadano Presbísteros Nicolas Oreamuno, y conservando su Diputado propietaro Ciudadano Presbítero José Antonio Oreamuno.
