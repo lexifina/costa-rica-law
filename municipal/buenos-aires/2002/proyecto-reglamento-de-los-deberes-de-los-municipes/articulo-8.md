@@ -1,0 +1,1 @@
+Artículo 8º—Es obligación de todo propietario, el entubamiento de las aguas pluviales, no podrán enviarse aguas pluviales hacia las aceras, es necesario solicitar el visto bueno del Municipio para romper las aceras y entubar las aguas que se dirigen a los caños.

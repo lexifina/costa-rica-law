@@ -1,0 +1,2 @@
+Remoción de escombros en vías públicas
+Artículo 11.—Exclusivamente frente a la propiedad en donde se ejecute una obra, no será permitido dejar escombros, hacer excavaciones, o en forma alguna poner obstáculos al libre tránsito, o en la vía en forma provisional, para la cual deberá recurrir al resguardo de sus materiales en sacos. No se permitirá escombros que impidan el paso de los transeúntes por las aceras y en las calles.

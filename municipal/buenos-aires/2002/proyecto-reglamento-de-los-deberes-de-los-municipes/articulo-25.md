@@ -1,0 +1,1 @@
+Artículo 25.—Transcurrido el plazo señalado en el artículo anterior el Departamento Municipal a que corresponda realizará la obra, concluida ésta, remitirá un Informe escrito al Departamento de Rentas y Cobranzas para la realización de los cálculos del costo efectivo de la obra.

@@ -1,0 +1,1 @@
+Artículo 13.—Si el propietario no atendiere lo expresado en los artículos 11 y 12 del presente reglamento, la Municipalidad queda facultada, según corresponda, a suspender las obras o la eliminación de obstáculos.

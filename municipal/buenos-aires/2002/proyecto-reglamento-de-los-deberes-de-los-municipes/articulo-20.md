@@ -1,0 +1,1 @@
+Artículo 20.—En todo lo concerniente a la construcción de aceras el propietario del bien inmueble seguirá las instrucciones emanadas de los funcionarios municipales correspondientes. En el diseño de las aceras la Municipalidad tendrá en cuenta el ornato, la seguridad y la comodidad de los transeúntes.
