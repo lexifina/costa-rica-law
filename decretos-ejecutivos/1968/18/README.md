@@ -17,3 +17,4 @@ Establece Plazo para la Recepción de Ofertas para la Licitación Pública
 | 2 | 1969-09-10 | Decreto Ejecutivo 45 (1969-09-10) |
 | 3 | 1969-12-16 | Decreto Ejecutivo 76 (1969-12-16) |
 | 4 | 1973-08-03 | Decreto Ejecutivo 3106 (1973-08-03) |
+| 5 | 1973-12-06 | Decreto Ejecutivo 3422 (1973-12-06) |
