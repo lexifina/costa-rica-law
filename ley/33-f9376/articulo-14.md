@@ -1,0 +1,2 @@
+Art. 14.-La levita será de paño negro, entallada, cerrada al frente con nueve botones, con un faldón que alcance hasta la primera falanje del dedo pulgar, estando el brazo naturalmente caído, y no tendrá ningún bolsillo exterior.
+Las hombreras se colocarán como en la guerrera; pero los cordones no deberán torcerse, sino unirse por un pasador de diez y ocho milímetros de anchura. Las carteras del faldón tendrán cuatro botones grandes.

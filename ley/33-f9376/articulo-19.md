@@ -1,0 +1,1 @@
+Art. 19.-Los Generales sólo en campaña están obligados á llevar sable ó espada con el uniforme diario ó de gala; en cualquier otro caso podrán omitirlo, pero entonces es indispensable que hagan uso de bastón, el cual les queda reservado con exclusión de cualquier oficial inferior en grado.
