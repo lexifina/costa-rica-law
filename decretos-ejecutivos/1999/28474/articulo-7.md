@@ -1,0 +1,1 @@
+Artículo 7°-Previo a la aprobación del Plan de Manejo por el Área de Conservación encargada de la administración del manglar, deberá Ia Secretaría Técnica Nacional Ambiental determinar la viabilidad ambiental del proyecto por medio de los procedimientos establecidos por ese Organo en el decreto ejecutivo correspondiente.

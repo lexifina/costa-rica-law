@@ -1,0 +1,1 @@
+Artículo 13.-EI permiso de uso que otorgue el MINAE describirá las actividades permitidas para el desarrollo del Proyecto, o en su defecto remitirá al aparte del Plan de Manejo donde se establezcan las mismas.

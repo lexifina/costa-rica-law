@@ -1,0 +1,1 @@
+Artículo 10.-EI Plan de Manejo deberá incorporar aspectos de atención integral a las comunidades involucradas, el desarrollo de programas de capacitación y proyectos productivos alternos como un medio para mejorar las condiciones de vida de las comunidades y la conservación del ambiente y sus recursos, además, debe contemplar criterios de sostenibilidad.

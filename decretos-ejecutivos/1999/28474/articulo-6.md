@@ -1,0 +1,1 @@
+Artículo 6°-Los permisos de uso para el desarrollo de proyectos productivos de moluscos y/o de ecoturismo, solo se otorgarán a organizaciones de carácter comunal, aledañas a la zona solicitada y con personería jurídica.

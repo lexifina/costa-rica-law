@@ -1,0 +1,1 @@
+Artículo 17.-Se permitirá el desarrollo de actividades ecoturísticas en zonas de manglar, siempre que no modifiquen las condiciones naturales del mismo, para lo cual solo se autorizará el uso de las zonas que bordean el manglar y de canales naturales.

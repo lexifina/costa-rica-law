@@ -1,0 +1,1 @@
+Artículo 19.-Los Proyectos Ecoturísticos, se sujetarán a un Plan de Manejo donde se haga un inventario de los atractivos turísticos existentes y además se incluya el impacto que pueda ocasionar sobre el ambiente y sus correspondientes medidas de mitigación.
