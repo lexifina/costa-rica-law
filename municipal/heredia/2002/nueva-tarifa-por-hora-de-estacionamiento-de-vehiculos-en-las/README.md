@@ -14,3 +14,4 @@ Nueva tarifa por hora de estacionamiento de vehículos, en las vías públicas d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
+| 2 | 2003-04-03 | Acuerdo municipal 0 (2003-04-03) |
