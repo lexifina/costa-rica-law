@@ -14,3 +14,4 @@ MTURRIALBA: Oficial de Becas (En La Gaceta N° 80 del 29 de abril de 1991, se pu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-12 | la propia norma |
+| 2 | 1990-01-19 | Reglamento 429 (1990-01-19) |
