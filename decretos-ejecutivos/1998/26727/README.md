@@ -14,3 +14,4 @@ Acredita al Laboratorio de Análisis y Asesorías Farmacéuticas (LAYAFA) de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-18 | la propia norma |
+| 2 | 1998-02-18 | Ley 8 |
