@@ -1,6 +1,6 @@
 N° 27514-J
 EL PRESIDENTE DE LA REPUBLICA
-Y LA MINISTRA DE JUSTICIA Y GRACIA,
+Y LA MINISTRA DE JUSTICIA Y GRACIA
 Con fundamento en las disposiciones del artículo 140, incisos 3) y 18) de la Constitución Política, artículos 20 y 27 de la Ley Orgánica de la Procuraduría General de la República, Nº 6815 del 27 de setiembre de 1982, y el Código Procesal Penal,
 Considerando:
 1º-Que el Código Procesal Penal, ley Nº 7594 del 10 de abril de 1996, dispone de medios alternativos al proceso penal en la resolución de los conflictos.
