@@ -1,0 +1,1 @@
+Art. 3. El Catedrático de Farmácia, en cada uno de los dias que no fueren de asueto, deberá dar dos horas de clase y destinar otras dos mas a la enseñanza práctica cuando ésta debiere comenzar. Dicho Catedrático gozará por su trabajo el sueldo mensual de cuarenta pesos; pero si tuviere botica propia para proveer á la enseñanza práctica, aquel sueldo será de sesenta pesos.
