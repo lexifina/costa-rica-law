@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad de Supervisión se reunirá cuando el Presidente o al menos una tercera parte de la totalidad de sus miembros así lo soliciten. La convocatoria se realizará por escrito con veinticuatro horas de anticipación. El quórum de las sesiones se formará con mayoría simple y los acuerdos se tomarán de igual forma.

@@ -1,0 +1,2 @@
+Artículo 5º—Para lograr los objetivos propuestos, la Unidad de Supervisión estará facultada a través del PIMA, con aprobación de su Junta Directiva, para contratar los técnicos y asesores a nombre de la Institución, que en materia de administración y funcionamiento de la Red Frigorífica Nacional considere necesarios.
+Cuando lo estime oportuno, podrá constituir de su seno o con la participación de otras personas, comisiones especiales de trabajo.

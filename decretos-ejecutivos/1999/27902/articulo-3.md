@@ -1,0 +1,1 @@
+Artículo 3º—El Presidente de la Junta Directiva del PIMA o quien designe el Consejo Directivo del PIMA, será quien presida el Organo. La Secretaría la podrá ejercer una persona específicamente nombrada al efecto o alguno de los otros miembros del Organo con la aprobación de la mayoría absoluta.
