@@ -1,0 +1,1 @@
+Artículo 4°—Se faculta al Servicio de Parques Nacionales a cobrar por estacionamiento de vehículos en las áreas que poseen dicho servicio. Las tarifas serán las siguientes: ¢100,00 (vehículo liviano), ¢ 150,00 por microbús, y ¢ 200,00 por autobús, esa tarifa corresponde al estacionamiento por día.

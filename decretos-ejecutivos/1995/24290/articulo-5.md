@@ -1,0 +1,1 @@
+Artículo 5°—El presente Decreto se hace con el propósito de individualizar los terrenos que el Estado está autorizado para adquirir el informe las disposiciones y las leyes No 6084 y No 7174. Esta Declaratoria irá cobrando plena y absoluta eficacia conforme el Estado vaya adquiriendo los inmuebles que restan por comprar.

@@ -1,0 +1,1 @@
+Artículo 2°—Dentro de los límites del Parque Nacional, regirán las disposiciones establecidas en la Ley No 6084 de 24 agosto de 1977 y leyes conexas; así como las contenidas en la Ley Forestal No 7174.
