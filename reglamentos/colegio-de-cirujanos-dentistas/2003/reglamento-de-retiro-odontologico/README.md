@@ -14,3 +14,4 @@ Reglamento de Retiro Odontológico.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-10 | la propia norma |
+| 2 | 2004-10-14 | Reglamento 0 (2004-10-14) |
