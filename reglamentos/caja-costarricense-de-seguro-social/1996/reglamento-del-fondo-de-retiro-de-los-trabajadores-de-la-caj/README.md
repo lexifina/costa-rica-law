@@ -18,3 +18,4 @@ Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense de S
 | 3 | 1998-03-10 | SINALEVI (sin norma nombrada) |
 | 4 | 1998-07-14 | Reglamento 7240 (1998-07-14) |
 | 5 | 2000-06-15 | Reglamento 7450 (2000-06-15) |
+| 6 | 2000-08-03 | Reglamento 7465 (2000-08-03) |
