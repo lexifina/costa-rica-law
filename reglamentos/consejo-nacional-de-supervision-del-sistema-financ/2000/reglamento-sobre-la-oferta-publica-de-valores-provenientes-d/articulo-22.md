@@ -1,0 +1,2 @@
+Artículo 22. Plazo de redención
+Deberá mantenerse una relación razonable entre el plazo promedio de vencimiento de los valores emitidos y el plazo promedio de vencimiento de la cartera de activos, buscándose como principio que las captaciones de corto plazo se utilicen en el descuento de bienes de corto plazo y las captaciones de largo plazo se utilicen en el descuento de bienes de largo plazo, todo ello de conformidad con las instrucciones que emita el Superintendente.
