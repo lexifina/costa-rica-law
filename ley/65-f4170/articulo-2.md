@@ -1,0 +1,1 @@
+Art 2° Si el terreno fuere de expresada Cofradía o de otro dominio particular, el mismo Poder Ejecutivo dispondrá se justifique el interés público y resultado comprobado indemnizará su valor por cuenta del Tesoro Nacional declarando la propiedad a favor de los referidos pobladores.
