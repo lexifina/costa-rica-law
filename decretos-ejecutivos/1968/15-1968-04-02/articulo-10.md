@@ -1,2 +1,0 @@
-Artículo 10.-El Fiscal dentro de los cinco días posteriores a la recepción de los documentos enviará una nota al deudor, con copia a la Oficina de Cobros, apercibiéndole de su situación y concediéndole un término de quince días naturales para la cancelación de la deuda.
-Vencido este término sin que el contribuyente hubiere cancelado el crédito o llegado a un arreglo de pago, el Fiscal planteará la acción judicial de cobro dentro de los cinco días siguientes.

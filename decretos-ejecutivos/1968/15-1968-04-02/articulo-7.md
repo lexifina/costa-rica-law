@@ -1,1 +1,0 @@
-Artículo 7°-La Oficina de Cobros podrá apersonarse, por medio de sus funcionarios debidamente identificados, en las Oficinas que controlen ingresos a favor del Gobierno para hacer efectivo lo dispuesto en el artículo anterior.

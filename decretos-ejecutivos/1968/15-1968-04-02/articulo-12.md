@@ -1,3 +1,0 @@
-Artículo 12-Si el Fiscal contraviniere lo dispuesto en los artículos anteriores será sancionado con revocatoria de su nombramiento, excepto que fuere aquélla justificable a criterio del Director General de Hacienda.
-El Jefe de la Oficina informará por escrito al Director General de Hacienda dentro de los ocho días siguientes a la fecha en que tuvo conocimiento del incumplimiento por parte del Fiscal de lo ordenado por el artículo 10.
-También deberá informar en el mismo término cualesquiera infracciones a las disposiciones de la ley o al presente Reglamento por parte de Fiscales y los abogados de la Oficina.

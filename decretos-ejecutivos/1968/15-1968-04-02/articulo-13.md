@@ -1,1 +1,0 @@
-Artículo 13.-Sin perjuicio de las demás sanciones a que pueden ser acreedores los Fiscales, la Oficina de Cobros no entregará créditos a éstos cuando no se encuentren al día en la presentación correcta de los informes o no cumplan con las demás obligaciones que su condición de Fiscal conlleva.
