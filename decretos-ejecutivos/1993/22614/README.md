@@ -15,3 +15,4 @@ Reglamento para el Pago de Compensación Económica por concepto de Prohibición
 | --- | --- | --- |
 | 1 | 1993-11-02 | la propia norma |
 | 2 | 2002-05-14 | Decreto Ejecutivo 30684 (2002-05-14) |
+| 3 | 2002-12-03 | Decreto Ejecutivo 31094 (2002-12-03) |
