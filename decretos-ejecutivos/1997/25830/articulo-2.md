@@ -1,0 +1,1 @@
+ARTÍCULO 2°- Refórmase el artículo 7 y en su lugar léase: "El Juego Crea podrá ser vendido y distribuido por personas físicas y organizaciones sociales sin fines de lucro, legalmente constituidas e inscritas, pudiendo usar para tal fin máquinas electrónicas. Las autorizaciones respectivas serán otorgadas por la Junta Directiva de la Fundación."

@@ -1,0 +1,1 @@
+ARTÍCULO 3°- Agréguese un párrafo segundo al artículo 8 en los siguientes términos: "De conformidad con el artículo 15 de la Ley de Fundaciones N° 5338 del 28 de agosto de 1963 (sic: es 1973), la Fundación Hogares Crea deberá rendir un informe contable de sus actividades el primero de enero de cada año a la Contraloría General de la República."
