@@ -14,3 +14,4 @@ Reglamento sobre Requisitos para la Autorización de Oferta Pública Valores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-06 | la propia norma |
+| 2 | 2000-09-04 | Reglamento 175 (2000-09-04) |
