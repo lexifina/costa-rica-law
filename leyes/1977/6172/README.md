@@ -1,6 +1,6 @@
 # Ley Indígena
 
-Ley N° 6172 del 1977-11-29. SINALEVI, ficha 38110: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38110&param2=67003&param3=1>.
+Ley N° 6172 del 1977-11-29. SINALEVI, ficha 38110: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38110&param2=66993&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 11 | 1995-06-08 | Decreto Ejecutivo 20469 (1991-05-20) | 1991-05-20 |
 | 9 de 11 | 1995-06-08 | Ley 7293 | 1992-03-31 |
 | 10 de 11 | 2001-05-16 | Reglamento 29450 (2001-03-22) | 2001-03-22 |
+| 11 de 11 | 2001-11-16 | Decreto Ejecutivo 29960 (2001-10-26) | 2001-10-26 |
