@@ -19,3 +19,4 @@ Reglamento de Zonificación parcial de Áreas Industriales en La Gran Área Metr
 | 4 | 1987-02-23 | Reglamento 3801 (1987-02-23) |
 | 5 | 1987-04-06 | Reglamento 3817 (1987-04-06) |
 | 6 | 1987-09-03 | Reglamento 14 (1987-09-03) |
+| 7 | 1988-09-26 | Reglamento 3859 (1988-09-26) |
