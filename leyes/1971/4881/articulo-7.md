@@ -1,0 +1,1 @@
+Artículo 7°-Se derogan aquellas disposiciones impositivas de las Municipalidades afectadas que se refieran al cobro del servicio que por esta ley se traspasa a la Junta y a partir de la vigencia de esta ley.

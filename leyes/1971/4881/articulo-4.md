@@ -1,0 +1,2 @@
+Artículo 4°-La prestación del servicio será al costo, incluyéndose en este los gastos institucionales, administrativos y financieros, directos e indirectos, así corno un rédito para extensiones y mejoras.
+La tarifa respectiva será fijada por el Servicio Nacional de Electricidad, así como las modificaciones que resultaren procedentes de acuerdo con las revisiones periódicas contempladas por el artículo siguiente.
