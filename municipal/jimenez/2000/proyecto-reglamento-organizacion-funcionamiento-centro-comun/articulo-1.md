@@ -1,0 +1,4 @@
+MUNICIPALIDADES
+MUNICIPALIDAD DE JIMÉNEZ
+La Municipalidad de Jiménez, en sesión ordinaria N° 404 celebrada el día miércoles 23 de agosto del año en curso, acordó: Capítulo VII, lo siguiente:
+Artículo 1°—Este Concejo acordó por unanimidad: con base en lo estipulado en el artículo 43 del Código Municipal, someter a consulta pública no vinculante por un plazo de quince días hábiles el Proyecto de Reglamento de Organización y Funcionamiento del Centro Comunitario de Jiménez, el cual fue publicado en La Gaceta N ° 110 del martes 8 de Junio de 1999; transcurrido el plazo el Concejo se pronunciará sobre el fondo de la propuesta. Los interesados podrán hacer sus observaciones por escrito ante la Secretaría Municipal de Jiménez, sita en el edificio municipal. Publíquese en el Diario Oficial La Gaceta.
