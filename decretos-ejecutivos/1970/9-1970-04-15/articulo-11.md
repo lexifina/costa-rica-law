@@ -1,1 +1,0 @@
-Artículo 11.-La Subdirección de Sanidad Animal podrá importar y vender a precio de costo la vacuna Brucella abortus Cepa XIX cuando por razones especiales esto convenga para beneficio de la Ganadería.

@@ -1,1 +1,0 @@
-Artículo 5°-Los animales bovinos que resultaren con reacción positiva en la prueba de seroaglutinación o en las otras pruebas aceptadas oficialmente, serán marcadas en forma indeleble en las regiones escapulares (paletas).

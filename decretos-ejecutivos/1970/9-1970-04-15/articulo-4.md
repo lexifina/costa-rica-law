@@ -1,1 +1,0 @@
-Artículo 4°-Para la identificación correcta de cada muestra de sangre extraída, cada animal deberá estar marcado con número, letras, clave o cualquiera otra forma indeleble, en todos los hatos incluidos en el Programa.
