@@ -17,3 +17,4 @@ Reglamento para la Prestación de Servicios de Agua y Alcantarillado.
 | 2 | 1982-08-16 | Reglamento 0 (1982-08-16) |
 | 3 | 1983-03-30 | Reglamento 0 (1983-03-30) |
 | 4 | 1985-08-28 | Reglamento 878 (1985-08-28) |
+| 5 | 1987-03-11 | Reglamento 1013 (1987-03-11) |
