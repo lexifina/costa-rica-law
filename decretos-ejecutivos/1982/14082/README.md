@@ -32,3 +32,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 17 | 1990-10-22 | SINALEVI (sin norma nombrada) |
 | 18 | 1990-11-08 | SINALEVI (sin norma nombrada) |
 | 19 | 1991-03-05 | SINALEVI (sin norma nombrada) |
+| 20 | 1991-03-05 | SINALEVI (sin norma nombrada) |
