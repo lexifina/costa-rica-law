@@ -192,7 +192,11 @@ A partir de este punto, el límite de la Reserva Indígena se aparta del límite
 De este punto, se sigue aguas abajo la quebrada Veinticinco (Jacsuleri) hasta el punto de coordenadas 219 050 611 625.
 De allí con dirección este franco, cruzando el río Chirripó hasta el punto de coordenadas: 219 050 N 611 950 E, punto inicial de la descripción.
 Superficie de la Reserva Indígena Cabécar de Chirripó: 82 105 hectáreas.
-(Así reformada la Reserva Indígena de Chirripó anterior por el artículo 1° del decreto ejecutivo N° 13391 del 26 de febrero d 1982)
+(Así reformada la Reserva Indígena de Chirripó anterior por el artículo 1° del decreto ejecutivo N° 13391 del 26 de febrero de 1982)
+Reserva Indígena Cabécar de Chirripó (Chirripó Alto)
+(Así adicionada la Reserva Indígena Cabécar de Chirripó (Chirripó Alto) anterior por el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, que dividió la Divídase la Reserva Indígena Cabécar de Chirripó, en dos reservas distintas. Esta reserva corresponde a las áreas relacionadas con el cantón de Turrialba)
+Reserva Indígena Cabécar de Bajo Chirripó
+(Así adicionada la Reserva Indígena Cabécar de Bajo Chirripó anterior por el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, que dividió la Divídase la Reserva Indígena Cabécar de Chirripó, en dos reservas distintas. Esta reserva corresponde a las áreas relacionadas con la provincia de Limón.)
 (*)Parcela No 1
 RESERVA INDÍGENA OSO - MOLEJONES (FINCA 5 CHIRRIPÓ)
 La Reserva Indígena Oso - Molejones se encuentra en la hoja del Instituto Geográfico Nacional, escala 1: 50 000, Chirripó 3545 III.
