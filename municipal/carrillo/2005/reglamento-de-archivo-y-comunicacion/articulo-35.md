@@ -1,0 +1,1 @@
+Artículo 35.—Los préstamos de los documentos que pertenecen al archivo se harán únicamente mediante el formulario respectivo, debidamente firmado por el funcionario que retira los documentos, y en el que se indicará la fecha de devolución. Se llevarán dos registros: uno por fecha de vencimiento y otro alfabéticamente por nombre del prestario.

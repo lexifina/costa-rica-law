@@ -1,0 +1,1 @@
+Artículo 26.—Corresponderá a las diferentes Unidades Orgánicas definir cuando deben permanecer los documentos en sus oficinas lo que dependerá del asunto que traten, su complejidad o la conveniencia de tenerlo por determinado tiempo.

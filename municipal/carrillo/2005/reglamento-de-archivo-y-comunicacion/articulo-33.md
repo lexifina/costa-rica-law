@@ -1,0 +1,1 @@
+Artículo 33.—Los documentos que pertenecen al archivo se podrán prestar, para ser consultados fuera del recinto, únicamente a los Miembros del Concejo Municipal de Carrillo, Empleados Municipales. Los particulares deberán consultar la información en las instalaciones del archivo.

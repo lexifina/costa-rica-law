@@ -1,0 +1,1 @@
+Artículo 9º—En todos los oficiales se imprimirá el sello de recibido de la Institución preferiblemente en la parte superior derecha del documento, se anotará la fecha y hora de recepción, el número de ingreso, asimismo se le adjuntará debidamente lleno el formulario "Control de trámite de correspondencia".

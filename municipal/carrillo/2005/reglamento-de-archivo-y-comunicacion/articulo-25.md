@@ -1,0 +1,1 @@
+Artículo 25.—El local que se destine a Archivo Central, debe reunir las condiciones necesarias que garanticen la conservación óptima de los documentos. Se tendrán en cuenta el grado de humedad relativa del aire, temperatura, polución, luz e insectos, además medidas técnicas para la extinción y prevención de incendios y robos.

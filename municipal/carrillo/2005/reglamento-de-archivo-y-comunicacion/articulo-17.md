@@ -1,0 +1,1 @@
+Artículo 17.—Para mayor eficacia en las comunicaciones se contará con una guía telefónica interna y una guía externa de números telefónicos codificados. Corresponderá a la Operadora de la Central Telefónica efectuar todas aquellas llamadas oficiales que se soliciten, las cuales no se puedan realizar directamente.

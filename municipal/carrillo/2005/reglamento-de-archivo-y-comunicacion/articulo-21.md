@@ -1,0 +1,1 @@
+Artículo 21.—Toda correspondencia que se enviará por correo y la Unidad Orgánica, deberá indicar cual se manda en forma certificada. Lo anterior, con excepción de la correspondencia que va hacer notificada por el notificador municipal.

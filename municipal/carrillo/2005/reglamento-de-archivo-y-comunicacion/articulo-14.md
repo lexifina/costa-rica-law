@@ -1,0 +1,1 @@
+Artículo 14.—Toda la correspondencia que se tramite en la Institución, deberá contener el número consecutivo de despacho (número negro), en la parte superior derecha y el número interno de la unidad orgánica correspondiente además el número de ingreso en el lado inferior izquierdo del oficio.

@@ -1,0 +1,1 @@
+Artículo 30.—Para la eliminación de documentos se establecerá una tabla de plazos en consulta con las unidades orgánicas. Dicha Tabla debe ser aprobada por el Comité Institucional y por la Comisión Nacional de Selección y Eliminación de Documentos.

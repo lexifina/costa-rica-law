@@ -1,0 +1,1 @@
+Artículo 31.—La eliminación de documentos se hará con base al informe por la Comisión Nacional de Selección y Eliminación de Documentos, de lo cual se levantará un acta debidamente firmada por el Comité Institucional de Selección y Eliminación de Documentos.

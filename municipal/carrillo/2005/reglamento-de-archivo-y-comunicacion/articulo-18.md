@@ -1,0 +1,1 @@
+Artículo 18.—La Unidad de Archivo y Comunicaciones dispondrá de Mensajeros que distribuyan además de la correspondencia que se recibe y despacha, otros documentos que requieran trasladarse tanto interna como externamente de la Institución; y colaborar con el servicio médico trayendo los medicamentos de la Caja Costarricense de Seguro Social.

@@ -1,0 +1,1 @@
+Artículo 36.—Si un documento no ha sido devuelto dos días después de la fecha de vencimiento del préstamo, se remitirá un recordatorio al usuario respectivo. De no ser atendido el mismo y pasados dos días, dicha situación se hará del conocimiento del Alcalde Municipal y al Jefe Inmediato para los efectos pertinentes.

@@ -1,0 +1,1 @@
+Artículo 27.—No se mantendrá en archivo más de un ejemplar de cada documento, preferiblemente el original, salvo cuando por situaciones especiales así se requiera y esté debidamente autorizado por el Encargado de la Unidad de Archivo y Comunicación.

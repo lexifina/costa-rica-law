@@ -1,0 +1,1 @@
+Artículo 50.—Las disposiciones contenidas en el presente reglamento son de carácter obligatorio para los funcionarios de la Unidad de Archivo y Comunicaciones así como para aquellos que en virtud de su trabajo utilicen los servicios de esa.

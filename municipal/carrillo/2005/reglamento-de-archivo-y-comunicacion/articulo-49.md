@@ -1,0 +1,1 @@
+Artículo 49.—Las discrepancias de criterio que surjan de la aplicación del presente Reglamento entre los Usuarios y la Unidad de Archivo y Comunicaciones, serán resueltas por el Alcalde Municipal o en su lugar Encargado de Recursos Humanos de esta Municipalidad, este último cuando el primero no esté presente en la Institución.

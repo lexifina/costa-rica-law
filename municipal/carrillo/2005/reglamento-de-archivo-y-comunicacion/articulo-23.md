@@ -1,0 +1,1 @@
+Artículo 23.—Las diferentes Unidades Orgánicas deberán enviar al Archivo Central la documentación, debidamente ordenada y organizada en unidades archivísticas manejables, de manera que se puedan poner a disposición del usuario a la mayor brevedad, de acuerdo a la tabla de fechas de remisión que se haya establecido, y utilizando para ello el formulario de envío de documentos.

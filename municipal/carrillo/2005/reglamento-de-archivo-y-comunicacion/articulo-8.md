@@ -1,0 +1,1 @@
+Artículo 8º—La correspondencia oficial entregada en forma directa a los funcionarios de la Municipalidad de Carrillo, deberá ser trasladada de inmediato a la Unidad de Archivo y Comunicaciones para su registro y trámite, salvo lo indicado en el artículo Nº 7.

@@ -1,0 +1,1 @@
+Artículo 20.—Diariamente el mensajero deberá visitar todas las unidades orgánicas internas para entregar la correspondencia recibida y retirar la que se va a despachar. Igual se procederá con la correspondencia externa conforme al horario, las rutas y roles establecidos.

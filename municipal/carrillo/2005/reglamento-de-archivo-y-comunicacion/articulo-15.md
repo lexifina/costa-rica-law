@@ -1,0 +1,1 @@
+Artículo 15.—Las unidades orgánicas emitirán la correspondencia, tanto interna como externa y dos copias: el original para el destinatario, una copia para el archivo general y otra para el copiador de la Unidad que emitió el oficio. Si es necesario hacer otras copias para distribución interna, se les debe consignar el sello "para su información, no archivar".
