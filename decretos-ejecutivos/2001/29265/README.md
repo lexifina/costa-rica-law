@@ -14,3 +14,4 @@ Establece Impuesto General sobre las Ventas en al Comercialización de Vehículo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-07 | la propia norma |
+| 2 | 2001-03-02 | Decreto Ejecutivo 29346 (2001-03-02) |
