@@ -1,0 +1,7 @@
+DECRETO VII
+Concede a Don Joaquín Jiménez privilegio exclusivo, por el trámite de tres años, para usar carros de cuatro ruedas en la conducción de café a Puntarenas (1)
+“ Juan Rafael Mora, Presidente de la República de Costa Rica.
+Considerando: 1° que es muy conveniente promover la importación de carros extrangeros y estimular la conducción de los frutos del país a los puertos de la República por medio de vehículos cómodos, seguros y que garanticen la carga contra los riesgos de tránsito: 2 que ningún empresario quiere dar principio a tan importante obra por no tener seguridad de sacar beneficio alguno de semejante especulación, si es que cualquiera otra persona pudiera aprovecharse de los gastos que deba hacer previamente para desvanecer todos los obstáculos de una nueva empresa; y 3° finalmente, que el Gobierno ha esperado por mucho tiempo, que el interés individual promoviera esta mejora en favor del país en general y del comercio en particular, y se ha convencido con sentimiento que jamás se logrará tamaño bien si el no lo promueve por medio de concesiones especiales, decreto:
+Art 1°.- Se concede a Joaquín Jiménez por el termino de tres años, el derecho exclusivo de usar carros de cuatro ruedas para la conducción de café al puerto de Puntarenas o al Tárcoles, si este se habilitarse para el comercio del país.
+___
+(1) Sin efecto por falta de cumplimiento de parte del concesionario.

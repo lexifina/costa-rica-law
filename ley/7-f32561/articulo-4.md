@@ -1,0 +1,1 @@
+Art 4°.- El Gobierno concede además al referido Jimenez la gracia especial de apropiarse el derecho sobre exportación de café de apropiarse el derecho sobre exportación de café en toda la cantidad de este fruto que conduzca a Puntarenas o Tárcoles en sus propios carros, durante los tres años siguientes a la fecha en que se concluyen los tres primeros del privilegio exclusivo.
