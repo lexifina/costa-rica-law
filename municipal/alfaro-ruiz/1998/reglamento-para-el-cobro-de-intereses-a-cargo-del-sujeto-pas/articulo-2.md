@@ -1,0 +1,1 @@
+2°—Se establece el interés anual a cargo del sujeto pasivo en un veinticuatro punto por ciento (24%) anual. No procederá condonar el pago de estos intereses, excepto cuando se demuestre error de la Administración Municipal.
