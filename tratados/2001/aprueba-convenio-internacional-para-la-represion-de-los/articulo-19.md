@@ -1,0 +1,3 @@
+Artículo 19
+1. Nada de lo dispuesto en el presente Convenio menoscabará los derechos, las obligaciones y las responsabilidades de los Estados y de los individuos con arreglo al derecho internacional, en particular los propósitos y principios de la Carta de las Naciones Unidas y el derecho internacional humanitario.
+2. Las actividades de las fuerzas armadas durante un conflicto armado, según se entienden esos términos en el derecho internacional humanitario y que se rijan por ese derecho, no estarán sujetas al presente Convenio y tampoco lo estarán las actividades realizadas por las fuerzas militares de un Estado en el cumplimiento de sus funciones oficiales, en la medida en que se rijan por otras normas del derecho internacional.

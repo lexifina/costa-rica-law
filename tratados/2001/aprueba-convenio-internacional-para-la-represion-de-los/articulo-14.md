@@ -1,0 +1,2 @@
+Artículo 14
+Toda persona que se encuentre detenida o respecto de la cual se adopte cualquier medida o sea encausada con arreglo al presente Convenio gozará de un trato equitativo, incluido el goce de todos los derechos y garantías de conformidad con la legislación del Estado en cuyo territorio se encuentre y con las disposiciones pertinentes del derecho internacional, incluido el derecho internacional en materia de derechos humanos.
