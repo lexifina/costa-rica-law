@@ -14,3 +14,4 @@ Reglamento para Participantes en Acciones de Capacitación y Formación Profesio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-07 | la propia norma |
+| 2 | 2001-08-13 | Reglamento 3890 (2001-08-13) |
