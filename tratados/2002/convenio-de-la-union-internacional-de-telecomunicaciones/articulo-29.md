@@ -1,0 +1,5 @@
+ARTÍCULO 29
+Cambio de fechas o de lugar de una conferencia
+312 1. Las disposiciones de los artículos 26 y 27 del presente Convenio relativas a la convocación de una conferencia se aplicarán por analogía cuando, a petición de los Miembros de la Unión o a propuesta del Consejo, se trate de cambiar las fechas o el lugar de celebración de una conferencia. Sin embargo, dichos cambios podrán efectuarse únicamente cuando la mayoría de los Miembros interesados, determinada de acuerdo con lo establecido en el número 47 del presente Convenio, se haya pronunciado en su favor.
+313 2. Todo Miembro que proponga cambiar las fechas o el lugar de celebración de una conferencia deberá obtener el apoyo del número requerido de Miembros.
+314 3. El Secretario General hará conocer, llegado el caso, en la comunicación que prevé el número 301 del presente Convenio, las repercusiones financieras que pueda originar el cambio de fechas o de lugar, por ejemplo cuando ya se hubieran efectuado gastos para preparar la conferencia en el lugar previsto inicialmente.

@@ -1,0 +1,12 @@
+ARTÍCULO 30
+Plazos y modalidades para la presentación de
+propuestas e informes a las conferencias
+315 1. Las disposiciones del presente artículo se aplicarán a la Conferencia de Plenipotenciarios, las Conferencias Mundiales y Regionales de Radiocomunicaciones y las Conferencias Mundiales de Telecomunicaciones Internacionales.
+316 2. Enviadas las invitaciones, el Secretario General rogará inmediatamente a los Miembros que le remitan, por lo menos cuatro meses antes del comienzo de la conferencia, las propuestas relativas a los trabajos de la misma.
+317 3. Toda propuesta de enmienda al texto de la Constitución o del Convenio o de revisión de los Reglamentos Administrativos, deberá contener una referencia a los números del texto que hayan de ser objeto de enmienda o revisión. La propuesta irá acompañada de una concisa exposición de los motivos que la justifican.
+318 4. El Secretario General indicará junto a cada propuesta recibida de un Miembro de la Unión el origen de la misma mediante el símbolo establecido por la Unión para este Miembro. Si la propuesta fuera patrocinada por más de un Miembro, irá acompañada en la medida de lo posible del símbolo correspondiente a cada Miembro patrocinador.
+319 5. El Secretario General enviará las propuestas a todos los Miembros, a medida que las vaya recibiendo.
+320 6. El Secretario General reunirá y coordinará las propuestas recibidas de los Miembros, y las enviará a los Miembros a medida que las reciba, pero en todo caso con dos meses de antelación por lo menos a la apertura de la conferencia. Los funcionarios de elección y demás funcionarios de la Unión y los observadores y representantes que puedan asistir a conferencias de conformidad con las disposiciones pertinentes del presente Convenio no estarán facultados para presentar propuestas.
+321 7. El Secretario General reunirá también los informes recibidos de los Miembros, del Consejo y de los Sectores de la Unión, y las recomendaciones de las conferencias y los enviará, junto con un eventual informe propio, a los Miembros por lo menos cuatro meses antes de la apertura de la conferencia.
+322 8. El Secretario General enviará a todos los Miembros lo antes posible las propuestas recibidas después del plazo especificado en el número 316 anterior.
+323 9. Las disposiciones del presente artículo se aplicarán sin perjuicio de las que, en relación con las enmiendas, se contienen en el artículo 55 de la Constitución y en el artículo 42 del presente Convenio.

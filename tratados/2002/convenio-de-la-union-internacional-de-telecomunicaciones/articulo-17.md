@@ -1,0 +1,5 @@
+ARTÍCULO 17
+Las Comisiones de Estudio de desarrollo
+de las telecomunicaciones
+214 1. Las Comisiones de Estudio de desarrollo de las telecomunicaciones se ocuparán de cuestiones específicas de telecomunicaciones de interés general para los países en desarrollo, incluidas las indicadas en el número 211 del presente Convenio. El número y el período de actividad de estas Comisiones se limitarán en función de los recursos disponibles, y su mandato se concretará en cuestiones y temas prioritarios para los países en desarrollo y se orientará a tareas prácticas.
+215 2. Teniendo en cuenta lo dispuesto en el número 119 de la Constitución, los asuntos estudiados en los Sectores de Radiocomunicaciones, Normalización de las Telecomunicaciones y Desarrollo de las Telecomunicaciones, serán objeto de constante examen por los Sectores para llegar a un acuerdo sobre la distribución del trabajo, evitar duplicidad de esfuerzos y mejorar la coordinación. Los Sectores adoptarán los procedimientos necesarios para efectuar esos exámenes y llegar a esos acuerdos de un modo oportuno y eficaz.

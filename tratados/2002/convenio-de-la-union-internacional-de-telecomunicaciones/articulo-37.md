@@ -1,0 +1,5 @@
+ARTÍCULO 37
+Establecimiento y liquidación de cuentas
+497 1. La liquidación de cuentas internacionales será considerada como una transacción corriente, y se efectuará con sujeción a las obligaciones internacionales ordinarias de los Miembros interesados cuando los Gobiernos hayan celebrado arreglos sobre esta materia. En ausencia de arreglos de este género o de acuerdos particulares concertados en las condiciones previstas en el artículo 42 de la Constitución, estas liquidaciones de cuentas serán efectuadas conforme a los Reglamentos Administrativos.
+498 2. Las administraciones de los Miembros y las empresas de explotación reconocidas que exploten servicios internacionales de telecomunicaciones deberán ponerse de acuerdo sobre el importe de sus respectivos débitos y créditos.
+499 3. Las cuentas correspondientes a los débitos y créditos a que se refiere el número 498 anterior se establecerán de acuerdo con las disposiciones de los Reglamentos Administrativos, a menos que se hayan concertado acuerdos particulares entre las partes interesadas.

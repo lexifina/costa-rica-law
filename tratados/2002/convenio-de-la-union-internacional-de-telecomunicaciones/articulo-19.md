@@ -1,0 +1,24 @@
+SECCIÓN 8
+Disposiciones comunes a los tres Sectores
+ARTÍCULO 19
+Participación de entidades y organizaciones distintas de
+las administraciones en las actividades de la Unión
+228 1. El Secretario General y los Directores de las Oficinas fomentarán una mayor participación en las actividades de la Unión de las siguientes organizaciones y entidades:
+229
+a) las empresas de explotación reconocidas, los organismos científicos o industriales y las instituciones de financiación o de desarrollo autorizadas por el Miembro interesado;
+230
+b) otras entidades que se ocupen de cuestiones de telecomunicaciones, autorizadas por el Miembro interesado;
+231
+c) las organizaciones regionales y otras organizaciones internacionales de telecomunicación, de normalización, de financiación o de desarrollo.
+232 2. Los Directores de las Oficinas mantendrán estrechas relaciones de trabajo con las entidades y organizaciones autorizadas a participar en las actividades de uno o varios Sectores de la Unión.
+233 3. Toda solicitud de participación de cualquiera de las entidades a que se hace referencia en el número 229 anterior en los trabajos de un Sector, de conformidad con las disposiciones aplicables de la Constitución y del presente Convenio, aprobada por el Miembro correspondiente, será transmitida por este al Secretario General.
+234 4. Toda solicitud de cualquiera de las entidades a que se hace referencia en el número 230 anterior, presentada por el Miembro correspondiente, será tramitada de conformidad con el procedimiento que establezca al efecto el Consejo. Esa solicitud será examinada por el Consejo para cerciorarse de su conformidad con el procedimiento anterior.
+235 5. Toda solicitud de participación en los trabajos del Sector formulada por cualquiera de las entidades u organizaciones indicadas en el número 231 anterior con excepción de las mencionadas en los números 260 y 261 siguientes, deberá ser enviada al Secretario General y se tramitará con arreglo a los procedimientos establecidos por el Consejo.
+236 6. Toda solicitud de participación de cualquiera de las organizaciones a que se hace referencia en los números 260 a 262 del presente Convenio en los trabajos de un Sector se enviará al Secretario General y la organización correspondiente se incluirá en las listas a que se hace referencia en el número 237 siguiente.
+237 7. El Secretario General preparará y mantendrá listas actualizadas de las entidades y organizaciones a que se hace referencia en los números 229 a 231 así como en los números 260 a 262 del presente Convenio y que están autorizadas a participar en los anteriores trabajos de los Sectores y, a intervalos apropiados, publicará y distribuirá esas listas a todos los Miembros y al Director de la Oficina del Sector interesado, quien comunicará a las entidades y organizaciones interesadas el curso dado a su solicitud .
+238 8. Las organizaciones y entidades contenidas en las listas a que se hace referencia en el número 237 se considerarán también "miembros" de esos Sectores de la Unión; las condiciones de su participación en dichos Sectores se especifican en el presente artículo, en el artículo 33 y en otras disposiciones pertinentes del presente Convenio. Las disposiciones del artículo 3 de la Constitución no se aplican a estos "miembros".
+239 9. Toda empresa de explotación reconocida podrá actuar en nombre del Miembro que la haya reconocido, siempre que ese Miembro comunique al Director de la Oficina del Sector interesado la correspondiente autorización.
+(Nota de Sinalevi: Mediante el artículo 6° del Tratado Internacional "Protocolo Facultativo sobre la solución obligatoria de controversias relacionadas con la Constitución y el Convenio de la Unión Internacional de Telecomunicaciones y los reglamentose Instrumento de enmienda al convenio de la Unión Internacional de Telecomunicaciones" , N° 8100 del 4 de abril del 2011 se enmienda el punto anterior disponiendose lo siguiente:
+"MOD 239 9.- Las entidades u organizaciones citadas en los números 229 ó 230 anteriores podrán actuar en nombre del Miembro que las haya aprobado, siempre que ese Miembro comunique al Director de la Oficina del Sector interesado la correspondiente autorización.")
+240 10. Toda entidad u organización autorizada a participar en los trabajos de un Sector tendrá derecho a denunciar su participación en el mismo mediante notificación dirigida al Secretario General. Esta participación podrá ser también denunciada, en su caso, por el Miembro interesado. La denuncia surtirá efecto transcurrido un año desde el día de recepción de la notificación por el Secretario General.
+241 11. El Secretario General eliminará de la lista de entidades y organizaciones aquellas que ya no estén autorizadas a participar en los trabajos de un Sector, de conformidad con los criterios y procedimientos que determine el Consejo.
