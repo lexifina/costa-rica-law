@@ -1,5 +1,6 @@
 Artículo 62.-Para garantizar la recuperación o reposición del recurso, de conformidad con lo que dispone el artículo 49 de la Ley General Forestal, se fija la garantía equivalente a un 5% (cinco por ciento) del valor del metro cúbico de la madera en pie. Dicha garantía podrá rendirse de la siguiente manera:
-a) Mediante el depósito en dinero efectivo en la cuenta especial del Fondo Forestal, debiendo presentarse la boleta respectiva.
+a) Mediante el depósito en dinero en efectivo en la cuenta de Fondos en Custodia del Fondo Forestal, debiendo presentarse la boleta respectiva.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 24318 del 25 de abril de 1995)
 b) Mediante las establecidas en el artículo 61 del Reglamento a la Contratación Administrativa (decreto ejecutivo N° 7576-H), a saber:
 - Depósito de bono de Garantía del Instituto Nacional de Seguros o de uno de los bancos del Sistema Bancario Nacional.
 - Bonos del Estado o sus Instituciones.

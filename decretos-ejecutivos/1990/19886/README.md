@@ -33,3 +33,4 @@ Reglamento a la Ley Forestal
 | 18 | 1994-03-21 | Decreto Ejecutivo 23078 (1994-03-21) |
 | 19 | 1994-04-22 | Decreto Ejecutivo 23234 (1994-04-22) |
 | 20 | 1995-01-03 | SINALEVI (sin norma nombrada) |
+| 21 | 1995-04-25 | Decreto Ejecutivo 24318 (1995-04-25) |

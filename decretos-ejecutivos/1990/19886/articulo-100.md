@@ -8,4 +8,5 @@ e) Monto del certificado de Abono Forestal.
 f) Nombre del propietario del título.
 g) Identificación de la Ley que lo autoriza.
 h) Fecha de emisión, fecha de validez y fecha de caducidad.
-El monto máximo de cada certificado será por la suma de quinientos mil colones.
+El monto máximo de cada certificado será por la suma de un millón de colones.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 24318 del 25 de abril de 1995)
