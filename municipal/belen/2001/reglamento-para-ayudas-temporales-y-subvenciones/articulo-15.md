@@ -1,1 +1,0 @@
-Articulo 15.—En caso de que un acontecimiento de grandes proporciones afecte a varios vecinos de este cantón, la Municipalidad ayudará a tantos vecinos como lo permitan los recursos establecidos anualmente en el Presupuesto Ordinario destinados previamente para tales fines.
