@@ -1,1 +1,0 @@
-ARTICULO 109.- Cuando la falta de que habla el artículo anterior ocurra no hallándose reunido el Congreso, se convocará extraordinariamente; y entre tanto ejercerá el poder ejecutivo el que presida el senado.

@@ -1,1 +1,0 @@
-ARTICULO 143.- Deberá declararse que ha lugar a la formación de causa contra los representantes en el Congreso -por traición- venalidad- falta grave en el desempeño de sus funciones- y delitos comunes que merezcan penas mas que correccionales.

@@ -1,1 +1,0 @@
-ARTICULO 133.- Para ser individuo de la Suprema Corte se requiere se americano de origen con siete años de residencia no interrumpida a inmediata a la elección- ciudadano en el ejercicio de sus derechos- del estado seglar- y mayor de treinta años.

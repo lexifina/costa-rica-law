@@ -1,5 +1,0 @@
-TITULO II
-DEL GOBIERNO DE LA RELIGION Y DE LOS CIUDADANOS
-SECCION I
-DEL GOBIERNO Y DE LA RELIGION
-ARTICULO 8º.- El gobierno de la República: es popular, representativo, federal.

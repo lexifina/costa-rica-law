@@ -1,1 +1,0 @@
-ARTICULO 85.- Cuando la mayoría de los estados reclamare las resoluciones del Congreso en el caso del Artículo 83, deberán ser inmediatamente revisadas sin perjuicio de su observancia, y recibir nueva sanción por los trámites prevenidos en el mismo artículo, procediéndose en lo demás conforme al 84.

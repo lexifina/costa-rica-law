@@ -1,1 +1,0 @@
-ARTICULO 24.- Las juntas populares se componen de ciudadanos en el ejercicio de sus derechos: las juntas de distrito, de los electorales nombrados por las juntas populares; y las juntas de departamento, de los electores nombrados por las juntas de distrito.

@@ -1,1 +1,0 @@
-ARTICULO 16.- También son naturales los nacidos en país extranjero de ciudadanos de Centro-américa, siempre que sus padres estén al servicio de la República, o cuando su ausencia no pasare de cinco años y fuere con noticia del gobierno.
