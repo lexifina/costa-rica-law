@@ -1,0 +1,1 @@
+Artículo 3°—Las .Municipalidades dispondrán, sin perdida de tiempo, lo que fuere- oportuno para reforestar los terrenos de su propiedad que se encuentren en las condiciones que determina el artículo 1°.
