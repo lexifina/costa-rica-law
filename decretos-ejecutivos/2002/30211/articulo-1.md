@@ -1,0 +1,10 @@
+DECRETO
+Nº 30211-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en las facultades conferidas en los artículos 140, incisos 3) y 18) de la Constitución Política, la Ley Nº 7064 del 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería, la Ley Nº 6243 del 2 de mayo de 1978, Ley de Salud Animal, la Ley N° 6247 de 2 de mayo de 1978, Ley de Ganado y la Ley Nº 7473 del 20 de diciembre de 1994, Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales.
+Considerando:
+1º—Que es necesario adecuar a las nuevas exigencias del comercio la reglamentación emitida en torno a la evaluación y aprobación de productos y/o subproductos de origen animal importados por Costa Rica, emitido mediante Decreto Ejecutivo Nº 21858-MAG del 28 de setiembre de 1992, con el fin de hacer extensiva la aplicación de las disposiciones reglamentarias a los productos y/o subproductos de carne bovina.
+2º—Que la situación mencionada en el considerando anterior, se logra mediante la derogatoria del artículo 219 original, del Decreto Ejecutivo Nº 21858-MAG. Sin embargo, el artículo 219 bis, incorporado a dicho reglamento, mediante adición según lo dispuesto en el artículo 1º del Decreto Ejecutivo Nº 27200-MAG del 29 de julio de 1998, publicado en El Alcance Nº 49-A a La Gaceta Nº 153 del 7 de agosto de 1998, debe permanecer en su redacción actual, pues está referido a la excepción de la aplicación reglamentaria a las leches modificadas (maternizadas), enlatadas o envasadas, que son consideradas como medicamentos por el Ministerio de Salud. Por tanto,
+Decretan:
+Artículo 1º—Se deroga el artículo 219 del Decreto Nº 21858-MAG del 28 de setiembre de 1992, publicado en La Gaceta Nº 49 del 11 de marzo de 1993, permaneciendo vigente en todos sus extremos el artículo 219 bis de dicho Decreto, en los términos en que fue adicionado según lo dispuesto en el Decreto Ejecutivo Nº 27200-MAG del 29 de julio de 1998.
