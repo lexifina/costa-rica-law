@@ -13,3 +13,4 @@ Regula Realización de Técnicas de Reproducción Asistida In Vitro o FIV
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-03 | la propia norma |
+| 2 | 1995-03-03 | SINALEVI (sin norma nombrada) |
