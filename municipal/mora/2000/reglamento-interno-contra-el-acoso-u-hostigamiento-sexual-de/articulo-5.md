@@ -1,0 +1,1 @@
+Artículo 5°—Quien formule una denuncia por hostigamiento sexual, solo podrá ser despedido por causa justificada originada en falta grave a los deberes derivados de la relación laboral. De presentarse una de estas causales, el patrono tramitará el despido ante la Dirección Nacional de Inspección General del Trabajo, donde deberá demostrar la existencia de la falta.
