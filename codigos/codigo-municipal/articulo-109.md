@@ -1,0 +1,14 @@
+ARTÍCULO 109.- Los pagos municipales serán ordenados por el alcalde
+municipal y el funcionario responsable del área financiera, y se
+efectuarán por medio de cheque expedido por el contador, con la firma del
+tesorero y, al menos, la de otro funcionario autorizado. En la
+documentación de respaldo se acreditará el nombre del funcionario que
+ordenó el pago.
+El reglamento podrá contener los niveles de responsabilidad para la
+firma y autorización de cheques.
+Los Concejos podrán autorizar el funcionamiento de cajas chicas que
+se regularán por el reglamento que emitan para el efecto; estarán al
+cuidado del tesorero y por medio de ellas podrán adquirirse bienes y
+servicios, así como pagar viáticos y gastos de viaje. Los montos mensuales
+serán fijados por cada Concejo y todo egreso deberá ser autorizado por el
+alcalde municipal.

@@ -1,0 +1,10 @@
+ARTÍCULO 171.- La Dirección General de Deportes del Ministerio de
+Cultura, Juventud y Deportes, las municipalidades, las instituciones
+públicas y las organizaciones comunales podrán ceder en administración las
+instalaciones deportivas y recreativas de su propiedad, a los comités
+cantonales de la comunidad donde se ubiquen. Para ello, se elaborarán los
+convenios respectivos.
+Estos comités quedan facultados para gozar del usufructo de las
+instalaciones deportivas y recreativas bajo su administración y los
+recursos se aplicarán al mantenimiento, mejoras y construcción de las
+mismas instalaciones.

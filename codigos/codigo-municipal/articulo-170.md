@@ -1,0 +1,8 @@
+ARTÍCULO 170.- Los comités cantonales de deportes y recreación
+coordinarán con la municipalidad respectiva lo concerniente a inversiones
+y obras en el cantón. Las municipalidades deberán asignarles un mínimo de
+un tres por ciento (3%) como mínimo de los ingresos ordinarios anuales
+municipales, que se distribuirá en un diez por ciento (10%) máximo para
+gastos administrativos y el resto para programas deportivos y recreativos.
+Además, deberá proporcionarles local que será su sede y todas las
+facilidades para el cabal cumplimiento de sus fines.

@@ -1,0 +1,8 @@
+ARTÍCULO 163.- Contra todo acto no emanado del Concejo y de materia
+no laboral, cabrá recurso extraordinario de revisión, cuando no se hayan
+establecido oportunamente los recursos facultados por los artículos
+precedentes de este capítulo, siempre que no hayan transcurrido cinco años
+después de dictado el acto y este no haya agotado totalmente sus efectos,
+a fin de que no surta ni siga surtiendo efectos.
+El recurso se interpondrá ante el Concejo, lo acogerá sólo si el acto
+fuere absolutamente nulo.

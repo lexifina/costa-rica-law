@@ -1,0 +1,17 @@
+CAPÍTULO III
+MANUAL DESCRIPTIVO DE PUESTOS GENERAL,
+DE LOS SUELDOS Y SALARIOS
+ARTÍCULO 120.- Las municipalidades adecuarán y mantendrán actualizado
+el Manual Descriptivo de Puestos General, con base en un Manual
+descriptivo integral para el régimen municipal. Contendrá una descripción
+completa y sucinta de las tareas típicas y suplementarias de los puestos,
+los deberes, las responsabilidades y los requisitos mínimos de cada clase
+de puestos, así como otras condiciones ambientales y de organización. El
+diseño y la actualización del Manual descriptivo de puestos general estará
+bajo la responsabilidad de la Unión Nacional de Gobiernos Locales.
+Para elaborar y actualizar tanto el Manual general como las
+adecuaciones respectivas en cada municipalidad, tanto la Unión Nacional de
+Gobiernos Locales como las municipalidades podrán solicitar colaboración
+a la Dirección General de Servicio Civil.
+Las municipalidades no podrán crear plazas sin que estén incluidas,
+en dichos manuales, los perfiles ocupacionales correspondientes.

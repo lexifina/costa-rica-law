@@ -1,0 +1,13 @@
+ARTÍCULO 118.- Los servidores municipales interinos y el personal de
+confianza no quedarán amparados por los derechos y beneficios de la
+Carrera administrativa municipal, aunque desempeñen puestos comprendidos
+en ella.
+Para los efectos de este artículo, son funcionarios interinos los
+nombrados para cubrir las ausencias temporales de los funcionarios
+permanentes, contratados por la partida de suplencias o por contratos para
+cubrir necesidades temporales de plazo fijo u obra determinada y amparada
+a las partidas de sueldos por servicios especiales o jornales ocasionales.
+Por su parte, son funcionarios de confianza los contratados a plazo fijo
+por las partidas antes señaladas para brindar servicio directo al alcalde,
+el Presidente y Vicepresidente Municipales y a las fracciones políticas
+que conforman el Concejo Municipal.
