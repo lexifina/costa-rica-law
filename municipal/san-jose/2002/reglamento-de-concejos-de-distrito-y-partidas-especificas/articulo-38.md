@@ -1,0 +1,1 @@
+Artículo 38.—La precalificación no constituye ningún compromiso u obligación para la Municipalidad de San José, toda vez que se requiere la calificación de la Contraloría General de la República, así como el cumplimiento de los requisitos establecidos por ella y por la Ley Nº 7755.

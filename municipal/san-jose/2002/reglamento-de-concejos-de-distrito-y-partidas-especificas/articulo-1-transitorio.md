@@ -1,0 +1,1 @@
+Transitorio I.—Únicamente por el periodo en que los restantes miembros de los Concejos de Distrito no sean designados popularmente conforme al artículo 55 del Código Municipal y el Código Electoral, el suplente del Síndico fungirá como miembro propietario y Vicepresidente del Concejo de Distrito.

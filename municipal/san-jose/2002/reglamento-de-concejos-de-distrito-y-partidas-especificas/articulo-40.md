@@ -1,0 +1,1 @@
+Artículo 40.—Este Reglamento deroga el "Reglamento para la Precalificación de Organizaciones no Gubernamentales como Entidades Idóneas para Administrar Fondos Públicos Proveniente de las Partidas Específicas" de esta Municipalidad y cualquier otra disposición reglamentaria o acuerdo municipal que se le oponga.
