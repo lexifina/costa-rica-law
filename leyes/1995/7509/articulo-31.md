@@ -1,1 +1,3 @@
-ARTICULO 31.- Requisito para aprobar presupuestos municipales. La Contraloría General de la República improbará el presupuesto municipal anual que no contemple los porcentajes de lo recaudado por concepto del impuesto de bienes inmuebles, indicados en el artículo 28 y los transitorios I y II de esta Ley.
+ARTÍCULO 31.- Inversión de los recursos.
+(Derogado por el artículo 3º, inciso b), de la ley No.7729 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del 29 al 31)

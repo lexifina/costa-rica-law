@@ -1,5 +1,2 @@
-ARTICULO 34.- Derogaciones. Se deroga la siguiente normativa:
-a) La Ley sobre Impuesto Territorial, No. 27, del 2 de marzo de 1939 y sus reformas.
-b) La Ley No. 4340, del 30 de mayo de 1969, sus reformas e interpretaciones auténticas.
-c) El artículo 5 de la Ley sobre impuesto a las construcciones de alto valor, No. 7088.
-d) Cualquier otra disposición legal que se oponga a esta Ley.
+ARTÍCULO 34.- Traslado de información. Los valores establecidos en virtud de esta Ley servirán para actualizar los registro de que dispone la Dirección General de Tributación Directa, para cobrar el impuesto sobre traspasos de bienes inmuebles, establecido en el artículo 9 de la Ley No. 6999, de 3 de setiembre de 1985. Para tal efecto, las municipalidades deberán suministrar dicha información.
+(Así adicionado por el artículo 2º, inciso d), de la ley No.7729 de 15 de diciembre de 1997. Dicha ley hizo esta afectación al artículo 32 original pero, de acuerdo con el inciso c) del artículo 2º de la misma ley, se corrió la numeración en dos números, correspondiendo entonces al 34)
