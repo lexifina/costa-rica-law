@@ -1,0 +1,1 @@
+Artículo 3°—En lo que corresponda, será aplicable la equivalencia de cargos regulada en el Artículo 1° de este Decreto Ejecutivo a efecto de integrar la Comisión Técnica de Transportes conforme con el numeral 24 de la Ley N° 6324 del 25 de mayo de 1979.
