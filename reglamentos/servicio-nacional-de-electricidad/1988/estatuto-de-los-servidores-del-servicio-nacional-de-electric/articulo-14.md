@@ -1,0 +1,1 @@
+Artículo 14.-Todas las pruebas, referencias personales y demás documentos son confidenciales y ningún funcionario, con excepción del Director, Jefe Superior, Jefe de la Oficina de Recursos Humanos, el Auditor Interno y el propio interesado, tendrá acceso a ellos.

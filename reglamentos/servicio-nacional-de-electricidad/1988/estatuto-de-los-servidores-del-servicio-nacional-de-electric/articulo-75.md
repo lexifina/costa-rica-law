@@ -1,0 +1,1 @@
+Articulo 75.-El salario será liquidado por periodo mensual, efectuando el pago en forma quincenal, conforme con el programa de pagos que elabore la Oficina de Finanzas al principio de cada año, con la aprobación por parte de la Dirección.

@@ -1,0 +1,1 @@
+Artículo 7°-lmpugnación de las decisiones. Las decisiones del Director del SNE, en la administración de personal, tendrán recurso de revocatoria ante dicho funcionario y recurso de apelación ante la Junta. Directiva, cuya decisión agotará la vía administrativa

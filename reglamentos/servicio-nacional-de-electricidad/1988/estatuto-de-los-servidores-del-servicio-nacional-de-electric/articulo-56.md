@@ -1,0 +1,1 @@
+Artículo 56. -El derecho al disfrute de vacaciones prescribirá de conformidad con lo establecido en los artículos 155 y 607 del Código de Trabajo, salvo las excepciones previstas en el artículo 159 del citado Código en tal caso, se dejará testimonio por escrito de conformidad con lo establecido en el artículo 161 del mismo cuerpo legal.

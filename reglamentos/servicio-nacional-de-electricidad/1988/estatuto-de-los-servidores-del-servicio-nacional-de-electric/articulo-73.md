@@ -1,0 +1,1 @@
+Articulo 73.-Todo servidor comenzará devengando el salario base de la categoría que corresponde al puesto que ocupa y los otros beneficios contemplados por la Ley de Salarios de la Administración Pública y los establecidos por el Servicio Civil y la Autoridad Presupuestaria, conforme lo indican los respectivos Reglamentos.

@@ -1,0 +1,1 @@
+Artículo 49.-La omisión de una marca en la tarjeta a cualquiera de las horas de entrada o salida será considerada como ausencia a la correspondiente fracción de la jornada, salvo que el Jefe Superior o el Jefe Inmediato comprueben la asistencia al trabajo.

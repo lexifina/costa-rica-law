@@ -1,0 +1,2 @@
+Articulo 50.-El servidor que por dolo o complacencia marque tarjeta que no la corresponda, incurrirá en falta grave a sus obligaciones, haciéndose acreedor al despido del trabajo incurrirá en la misma falta el servidor a quien se pruebe haber consentido que otro marcara su tarjeta.
+No obstante lo dispuesto en el párrafo anterior, se dejará de imponer la sanción si el servidor que marcó la tarjeta, o al que le marcaron la misma informa del hecho a quien corresponda, como un error, a más tardar en el curso de la siguiente jornada de trabajo en que aquel hecho ocurrió.

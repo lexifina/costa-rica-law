@@ -1,0 +1,1 @@
+Articulo 55.-Los servidores gozarán sin interrupción del período de vacaciones, sin embargo, podrán dividirse en períodos no menores de cinco días cuando, habiendo convenido las partes al respecto, se trate de labores de índole tan especial que no permitan una ausencia muy prolongada del servidor.

@@ -1,0 +1,1 @@
+Artículo 48.-Las tarjetas de registro de asistencia deberán ser marcadas en el reloj con el debido cuidado, de manera que queden impresas con claridad y su presentación no podrá ser alterada con ningún distintivo o escritura.

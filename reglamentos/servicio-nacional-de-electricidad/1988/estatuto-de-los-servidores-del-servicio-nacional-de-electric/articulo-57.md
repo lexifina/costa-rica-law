@@ -1,0 +1,1 @@
+Articulo 57.-A los servidores del SNE se les podrá compensar en efectivo una parte de sus vacaciones en tal forma que siempre disfruten de un descanso anual no menor de 15 días hábiles por período de conformidad con lo establecido en el artículo 156 del Código de Trabajo.

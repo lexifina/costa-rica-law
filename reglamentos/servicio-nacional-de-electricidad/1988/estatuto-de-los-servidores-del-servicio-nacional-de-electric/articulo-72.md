@@ -1,0 +1,1 @@
+Articulo 72.-Los salarios de los servidores del SNE, serán los que se fijen en el Presupuesto debidamente aprobados por la Contraloría General de la República. Cuando se dictaren nuevas fijaciones mínimas por la autoridad competente, el SNE procederá de conformidad.

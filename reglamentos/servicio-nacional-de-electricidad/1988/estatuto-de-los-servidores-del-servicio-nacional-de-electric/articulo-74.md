@@ -1,0 +1,1 @@
+Articulo 74.-Todo salario cubre el pago mensual de la respectiva jornada normal de trabajo. Si se conviene en que el servidor trabaje menos tiempo del señalado en el horario oficial devengará un sueldo en proporción al mismo, con la salvedad de lo establecido en el Reglamento de Capacitación y Adiestramiento.

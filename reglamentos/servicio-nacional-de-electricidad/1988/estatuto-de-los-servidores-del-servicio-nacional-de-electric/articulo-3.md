@@ -1,0 +1,1 @@
+Artículo 3°-Relaciones que no son de servicio, Quedan exceptuadas de la aplicación de este Estatuto quienes fueren contratados por servicios profesionales conforme con el artículo 105 de la Ley de la Administración Financiera de la República y los directores vocales de la Junta Directiva.

@@ -1,0 +1,1 @@
+Articulo 61.-Todo servidor que sea nombrado para desempeñar interinamente un puesto superior en categoría por ausencia del titular mayor a un mes, tendrá derecho a devengar durante ese período, el salario básico que corresponda a la categoría del servidor sustituido, considerando las anualidades propias y el porcentaje de prohibición del sustituto.

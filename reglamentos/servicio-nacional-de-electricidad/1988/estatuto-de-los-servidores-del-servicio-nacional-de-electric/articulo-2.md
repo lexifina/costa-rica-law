@@ -1,0 +1,1 @@
+Artículo 2°-Naturaleza de la relación de servicio. La relación de servicio de los servidores del SNE, se regirá por el presente Estatuto. Dicha relación se considerará para todo efecto como de derecho público de conformidad con la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 30.-Las llegadas tardías injustificadas, mayores de quince minutos impedirán al servidor laborar en la respectiva fracción de jornada, lo cual se considerará como media ausencia para los efectos del artículo siguiente. No obstante, a juicio del jefe superior respectivo podrá desempeñar sus funciones, si así lo ameritan los intereses de la Institución.

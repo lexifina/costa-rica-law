@@ -1,0 +1,2 @@
+Articulo 43.-Son días hábiles para el trabajo todos los del año excepto los días feriados contemplados en el párrafo segundo del artículo 147 del Código de Trabajo y aquellos que el Poder Ejecutivo declare de asueto, salvo que la Junta Directiva. en cuanto a éste último caso se refiere disponga lo contrario en cada oportunidad.
+El día sábado, no obstante ser hábil no se considera laborable de acuerdo con lo que dispone el artículo 41 de este Estatuto, ni se considerará en el cómputo de las vacaciones.

@@ -1,0 +1,3 @@
+CAPITULO X
+Decimotercer mes, vacaciones, licencias y permisos
+Articulo 51.-Todo servidor tiene derecho a ser remunerado adicionalmente a más tardar el quince de diciembre de cada año, en la dozava parte del total de los salarios ordinarios y extraordinarios percibidos durante el período transcurrido entre el primero de diciembre del año anterior y el treinta de noviembre del año en curso. En el caso que el servidor cesare en sus labores por cualquier causa, tendrá derecho a ser remunerado en la dozava parte de los salarios percibidos hasta la fecha del retiro contados a partir del primero de diciembre del año anterior.

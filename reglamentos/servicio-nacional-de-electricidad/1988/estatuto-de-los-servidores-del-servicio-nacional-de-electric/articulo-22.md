@@ -1,0 +1,1 @@
+Artículo 22.-El trabajador que no esté de acuerdo con el resultado cualitativo de su calificación, dispondrá de cinco días hábiles después de recibido el informe oficial para plantear la apelación, la cual deberá ser por escrito, ante la Oficina de Recursos Humanos. Esta Oficina deberá pronunciarse dentro del término de 30 días naturales.

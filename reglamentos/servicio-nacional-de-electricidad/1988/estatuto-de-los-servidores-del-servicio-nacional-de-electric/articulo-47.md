@@ -1,0 +1,4 @@
+CAPITULO IX
+Registro de asistencia
+Artículo 47.-El personal está obligado a imprimir en un reloj marcador destinado a este efecto, las horas de entrada y salida, tanto en la mañana, como en la tarde. Se exceptúan de esta disposición aquellos servidores que a las horas reglamentarias de entrada y salida se encuentren ejerciendo sus funciones fuera del local del Servicio Nacional de Electricidad para lo cual se llevará el registro correspondiente.
+Asimismo se exceptúan de esta obligación los jefes y subjefes departamentales, el Auditor Interno, el Secretario Administrativo, los jefes de oficina, y todos aquellos servidores que expresamente señale el Director por haberse hecho acreedores a este beneficio debido a su comportamiento excepcional dentro de la Institución y con no menos de cinco años de servicios continuos. Es entendido que este beneficio puede ser suspendido si el servidor en alguna medida abusare de él.

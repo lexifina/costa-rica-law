@@ -1,0 +1,1 @@
+Artículo 39.-Será también motivo de despido, sin responsabilidad para el SNE el hecho de que el servidor haya sido suspendido por cuatro veces aunque la causa obedezca a faltas distintas entre sí e incurra en falta que amerite la suspensión por quinta vez, y las contravenciones fueren cometidas en un periodo de dos meses.

@@ -1,0 +1,1 @@
+Artículo 13.-Si el oferente satisface todos los requisitos, deberá demostrar su idoneidad sometiéndose a Ias pruebas teóricas y prácticas y el historial de experiencia que la jefatura superior respectiva establezca en coordinación con la Oficina de Recursos Humanos.

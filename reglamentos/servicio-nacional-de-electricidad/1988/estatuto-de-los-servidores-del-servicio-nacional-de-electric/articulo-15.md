@@ -1,0 +1,1 @@
+Artículo 15. -Los jefes superiores, o los subalternos que aquéllos señalen están obligados a colaborar con la Oficina de Administración de Recursos Humanos en la preparación y valoración de las pruebas y exámenes que han de rendir los aspirantes a un puesto.

@@ -1,0 +1,1 @@
+Artículo 4°-Leyes aplicables. Serán aplicables a los servidores del SNE las leyes especiales de derecho público que regulen aspectos de su relación de servicio y que no hayan quedado derogadas por la Ley General de la Administración Pública.
