@@ -14,3 +14,4 @@ Reglamento de Sesiones y Acuerdos del Consejo Municipal de La Unión y sus Comis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-28 | la propia norma |
+| 2 | 2000-07-28 | Reglamento municipal 175 (2000-06-29) |
