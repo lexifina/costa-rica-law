@@ -16,3 +16,4 @@ Reglamento de Operación del Comité y Subcomités de Licitaciones
 | 1 | 1999-01-15 | la propia norma |
 | 2 | 1999-10-26 | Reglamento 11004 (1999-10-26) |
 | 3 | 2000-05-09 | Reglamento 11031 (2000-05-09) |
+| 4 | 2001-01-30 | Reglamento 11073 (2001-01-30) |
