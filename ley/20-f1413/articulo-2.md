@@ -1,0 +1,1 @@
+Art 2° igualmente y desde ahora se convoca a éstas para el tercer Domingo de Setiembre próximo, a fin de que elijan Los Senadores y Representantes propietarios y suplentes que les correspondan, y respectivamente los Regidores que deben, reponer a los que por el mencionado decreto de 1° del corriente quedaron separados de este cargo.
