@@ -1,4 +1,7 @@
-Artículo 14.- El manejo de todos los bienes e ingresos del
-Instituto estará a cargo de un Departamento Financiero, que actuará y
-estará integrado de acuerdo con las disposiciones que sobre el
-particular dicte el Consejo Director.
+ARTICULO 14.- El Estatuto Orgánico del Instituto definirá los
+organismos que existirán dentro del mismo y, en especial, quien o quienes
+ejercerán su representación legal.
+Las normas a que se sujetarán sus estudiantes se establecerán
+mediante reglamentos especiales.
+Todos estos instrumentos deberán ser aprobados por la misma
+Institución.
