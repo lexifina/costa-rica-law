@@ -1,1 +1,0 @@
-Artículo 8º.- La Corporación podrá vender sus bienes inmuebles, mediante autorización de la Contraloría General de la República, la que podrá oponerse, tanto por razones de oportunidad, como de legalidad.

@@ -1,4 +1,0 @@
-Artículo 10.- Las empresas que se instalen en las zonas procesadoras de exportación, se clasificarán de la siguiente manera:
-a) Industrias procesadoras de exportación, que producen, procesan o ensamblan productos para la exportación o reexportación a terceros mercados, fuera del Mercado Común Centroamericano, con excepción de lo indicado en el artículo 15;
-b) Empresas comerciales de exportación, no productoras, que simplemente manipulan, reempacan o redistribuyen mercaderías no tradicionales y productos para la exportación o reexportación a terceros mercados fuera del Mercado Común Centroamericano; y
-c) Industrias y empresas conexas con las zonas procesadoras de exportación que proveen servicios a las empresas e industrias citadas, así como los servicios necesarios para la operación, administración y mantenimiento de las zonas procesadoras de exportación.
