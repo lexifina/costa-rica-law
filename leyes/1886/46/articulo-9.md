@@ -1,0 +1,2 @@
+Art. 9°-Quedan derogadas las leyes anteriores en cuanto se opongan á la presente.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintiún días del mes de julio de mil ochocientos ochenta y seis. -A. ESQUIVEL, Presidente. A. VENEGAS, Secretario. MÁXIMO FERNÁNDEZ, Secretario. -Palacio Presidencial.-San José, á veintidós de julio de mil ochocientos ochenta y seis. -Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Justicia, -ASCENSIÓN ESQUIVEL.

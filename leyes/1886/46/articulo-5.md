@@ -1,0 +1,1 @@
+Art. 5°-Si el impedimento no fuere allanado, el Juez elevará los autos, con informe, al superior. Caso de que el motivo de la excusa no fuere legal, así se declarará en tabla, y el Juez será condenado en costas.

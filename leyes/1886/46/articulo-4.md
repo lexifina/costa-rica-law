@@ -1,0 +1,1 @@
+Art. 4°-Cuando el Juez se creyere impedido lo hará saber á las partes, previniéndoles manifiesten en el acto de la notificación ó dentro de tercero día si allanan ó nó el impedimento. Si las partes lo allanaren, ó en su rebeldía se tuviere por allanado, el Juez continuará conociendo del negocio.

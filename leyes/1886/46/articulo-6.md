@@ -1,0 +1,1 @@
+Art. 6° -Siendo legal la causa del impedimento y no estando de acuerdo las partes sobre la certeza de la misma, se abrirá á prueba por ocho días con calidad de todos cargos, y al siguiente día de vencido el término debe quedar resuelto el incidente.

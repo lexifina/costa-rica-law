@@ -1,0 +1,1 @@
+Art. 8°-Si la residencia del Juez fuere distinta de la del Supremo Tribunal de Justicia, en la providencia en que manda elevar los autos al Tribunal, prevendrá á las partes que en el acto designen lugar para oir las notificaciones que ocurran en aquel Tribunal. En caso de no hacerse tal señalamiento, aquéllas se tendrán por renunciadas.
