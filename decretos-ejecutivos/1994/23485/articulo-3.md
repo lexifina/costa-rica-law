@@ -1,4 +1,2 @@
-Artículo 3º.-Deberán contar con la autorización que ordena la ley,
-locales como: centros turísticos, hoteles, salones de baile, salas
-conocidas como "discotheques" y aquellos otros locales frecuentados por
-el público en que se haga uso de obras musicales.
+Articulo 3º.- Deberán contar con la autorización que ordena la ley, locales como: Centros turísticos, hoteles, salones de baile, salas conocidas como: discoteques y aquellos otros locales frecuentados por el público en que se haga uso de obras musicales.
+(Texto modificado por Resolución de la Sala Constitucional Nº 364-98 del 21 de enero de 1998, que anuló la reforma que se hiciera mediante decreto ejecutivo N° 24410 del 19 de junio de 1995)

@@ -13,3 +13,4 @@ Reglamenta Artículo 50 de Ley de Derechos de Autor y Derechos Conexos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-07-26 | la propia norma |
+| 2 | 1994-07-26 | Decreto Ejecutivo 24410 (1995-06-19) |
