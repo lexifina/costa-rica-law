@@ -14,3 +14,4 @@ Reglamento para el manejo y control de los fondos de Caja Chica de la Superinten
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-01 | la propia norma |
+| 2 | 2002-02-11 | Reglamento 281 (2002-02-11) |
