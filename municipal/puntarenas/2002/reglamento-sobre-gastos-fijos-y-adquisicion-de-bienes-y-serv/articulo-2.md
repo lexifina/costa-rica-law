@@ -1,1 +1,2 @@
-Artículo 2º—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, convenios en los cuales la Municipalidad de Puntarenas actúe como parte, hasta por la suma de ¢1.100.000,00 (un millón cien mil colones netos).
+Artículo 2º—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, convenios en los cuales la Municipalidad de Puntarenas actúe como parte, hasta por la suma de ¢2.000.000,00 (dos millones de colones netos).
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 95 celebrada el 14 de mayo de 2003, publicada en La Gaceta N° 151 de 07 de agosto de 2003.)
