@@ -1,0 +1,1 @@
+Art. 11. El producto de la tierra donada por los indìgenas de aquel vecindario en el año de 23 ò 24 con el objeto de sostener la escuela de primeras letras, y eximirse del gravàmen que de otro modo les convenia, se pondrà al rèdito, el que ingresará para el efecto en la caja de dicho fondo.
