@@ -14,3 +14,4 @@ Normas de aplicación de tarifas de impuestos municipales de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-08 | la propia norma |
+| 2 | 2000-10-16 | SINALEVI (sin norma nombrada) |
