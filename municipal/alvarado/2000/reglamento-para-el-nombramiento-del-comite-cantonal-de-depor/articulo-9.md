@@ -1,0 +1,1 @@
+Artículo 9°-El presente Reglamento rige a partir de su publicación y deroga cualquier otra normativa referente a procedimiento para el nombramiento de miembros del Comité Cantonal de Deportes y Recreación de Alvarado.

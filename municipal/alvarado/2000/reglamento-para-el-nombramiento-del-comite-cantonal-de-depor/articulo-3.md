@@ -1,0 +1,1 @@
+Artículo 3°-No podrá integrar el Comité Cantonal de Deportes y Recreación conforme con la ley, los concejales, el alcalde, sus suplentes, el tesorero, auditor y contador municipales, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.

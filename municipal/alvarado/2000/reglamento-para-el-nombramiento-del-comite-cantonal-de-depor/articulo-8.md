@@ -1,0 +1,1 @@
+Artículo 8°-EI Concejo Municipal de Alvarado dictará el Reglamento de Funcionamiento que regirá el Comité Cantonal de Deportes y Recreación, en el cual se incluirá como capítulo el presente texto sobre el procedimiento de elección de los miembros del Comité. El Reglamento de funcionamiento en cuestión deberá publicarse en el término de ley.
