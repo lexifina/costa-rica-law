@@ -1,0 +1,1 @@
+Artículo 41.-Para el alquiler del gimnasio para eventos especiales la Junta Administrativa fijará la cuota según la naturaleza y magnitud del mismo, en todo caso no será menor a los quince mil colones exactos.

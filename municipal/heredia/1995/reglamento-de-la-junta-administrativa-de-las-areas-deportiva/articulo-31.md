@@ -1,0 +1,1 @@
+Artículo 31.-Si la actividad para la cual se solicitó las instalaciones requiere permiso de la Municipalidad y/o de la Gobernación, el interesado debe aportar a la Junta Administrativa, en los tres días hábiles anteriores al evento los permisos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 36.-Para el alquiler del gimnasio en actividades deportivas se fija la suma de dos mil quinientos colones exactos por partido. Dicha suma podrá ser actualizada por la Junta Directiva en cualquier momento.

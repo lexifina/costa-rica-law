@@ -1,0 +1,1 @@
+Artículo 40.-El gimnasio permanecerá abierto al público en forma gratuita los lunes y miércoles de 5 a.m. a las veintidós p.m. y la Junta Administrativa decidirá sobre la práctica de deporte en cada semana.

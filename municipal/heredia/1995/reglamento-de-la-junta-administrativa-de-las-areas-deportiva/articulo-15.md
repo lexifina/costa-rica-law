@@ -1,0 +1,1 @@
+Artículo 15.-Si por cualesquiera motivo el comité quedase con menos de cuatro miembros quedará disuelto de pleno derecho y sus funciones en forma interina las asumirá la Junta Directiva de la Asociación de desarrollo Integral de la Aurora, hasta tanto el Concejo Municipal nombre un nuevo comité.

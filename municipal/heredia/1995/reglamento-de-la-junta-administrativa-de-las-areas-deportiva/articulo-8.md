@@ -1,0 +1,1 @@
+Artículo 8°-Le corresponde en forma exclusiva al Concejo Municipal destituir a los miembros de la Junta Administrativa, y solamente podrá hacerlo cuando exista justa causa, la cual deberá demostrarse en el expediente que se levantará al efecto y por lo cual, se dará el más derecho de defensa al o a los miembros involucrados en el procedimiento.

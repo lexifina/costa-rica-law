@@ -1,0 +1,1 @@
+Artículo 28.-Para el trámite de préstamos ocasionales de las instalaciones deportivas se deben solicitar por escrito con un mínimo de quince días de anticipación. La Junta asignará su uso por orden de recepción de la respectiva solicitud.

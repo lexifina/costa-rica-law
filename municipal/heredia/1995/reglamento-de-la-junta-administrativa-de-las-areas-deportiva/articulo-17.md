@@ -1,0 +1,1 @@
+Artículo 17.-Los ingresos obtenidos por el comité serán invertidos en las áreas o instalaciones deportivas y en la promoción de actividades deportivas, educativas, culturales, sociales, artísticas y artesanales de la localidad.

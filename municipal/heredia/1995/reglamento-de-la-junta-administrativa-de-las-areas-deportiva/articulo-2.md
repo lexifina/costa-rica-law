@@ -1,0 +1,1 @@
+Artículo 2°-La Junta Administrativa fue creada mediante acuerdo de la Municipalidad de Heredia tomado en la sesión ordinaria 190-95 del 10 de octubre de 1995, para que administre y regule el uso de las áreas deportivas de la Aurora y que sean propiedad municipal.

@@ -1,0 +1,1 @@
+Artículo 27.-La plaza de fútbol y el gimnasio serán usados prioritariamente por el Colegio la Aurora, de lunes a viernes, en el horario lectivo; exclusivamente para la práctica de deportes o asambleas.

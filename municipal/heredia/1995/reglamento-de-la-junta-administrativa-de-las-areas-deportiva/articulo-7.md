@@ -1,0 +1,1 @@
+Artículo 7°-La conformación de la Junta Administrativa la hará los miembros nombrados por el Concejo Municipal. Dichos nombramientos se realizarán en la primera reunión ordinaria después de ser juramentados por el Concejo Municipal; y se deberá, por parte del Secretario designado, comunicar de inmediato al Concejo Municipal sobre la conformación resultante.

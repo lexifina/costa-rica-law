@@ -1,0 +1,1 @@
+Artículo 38.-Para la realización de los entrenamientos de las diferentes modalidades deportivas, la Junta Administrativa fijará los horarios en que pueden efectuarse, para lo cual los interesados deberán pagar mil colones exactos por hora. Se aplica en lo que corresponde el artículo 36 de este reglamento.
