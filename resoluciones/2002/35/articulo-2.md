@@ -1,0 +1,1 @@
+Artículo 2°—Se advierte que cualquier declaración rectificativa presentada posteriormente a la devolución del saldo acreedor y que disminuya el monto de dicho saldo, motivará el reintegro de la diferencia con el respectivo monto de intereses y el contribuyente podrá ser sujeto a la sanción que establece el artículo 81 del Código de Normas y Procedimientos Tributarios.
