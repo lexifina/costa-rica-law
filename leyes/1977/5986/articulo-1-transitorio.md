@@ -1,0 +1,8 @@
+Transitorio.- Las pensiones de las viudas que en el actualidad sólo perciben el cincuenta por ciento de la pensión que correspondía al beneficiario serán reajustadas con los derechos proporcionales de los hijos que ya no los perciban, hasta completar la pensión del beneficiario directo, si algunos o todos ellos han cumplido los dieciocho años o completado sus estudios. Igualmente serán reajustados, hasta el monto total de la pensión del beneficiario, los derechos proporcionales de los hijos menores o que realizan estudios si su madre ha contraído matrimonio de nuevo.
+Asamblea Legislativa.- San José, a los veintiocho días del mes de octubre de mil novecientos setenta y seis
+Casa Presidencia.- San José, a los quince días del mes de noviembre de mil novecientos setenta y seis.
+Por las razones que se exponen devuélvase este proyecto de ley sin la sanción correspondiente del Poder Ejecutivo, de conformidad con el artículo 125 de la Constitución Política.
+Asamblea Legislativa.- San José, a los veinticinco días del mes de octubre de mil novecientos setenta y siete.
+En sesión de esta fecha se concluyó el trámite de reconsideración en razón de veto, aprobándose nuevamente el anterior proyecto de ley por más de dos tercios del total de los miembros de la Asamblea Legislativa y, en consecuencia, de acuerdo con lo que dispone el artículo 127 de la Constitución Política, se sanciona, debiendo ejecutarse como ley de la República.
+Casa Presidencial.- San José, a los treinta y un días del mes de octubre de mil novecientos setenta y seis.
+En virtud del resello dado por la Asamblea Legislativa, al anterior proyecto de ley y de conformidad con los artículos 127 y 140, inciso 3) de la Constitución Política.
