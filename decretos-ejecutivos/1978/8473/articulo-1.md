@@ -5,22 +5,7 @@ DECRETAN :
 Artículo I°—Refórmese el Decreto Ejecutivo N° 5836-A del 16 de marzo de 1976, que crea la Reserva Forestal de la Cordillera Volcánica de Guanacaste, para que se modifique como sigue:
 Artículo 2°—Establécese la Reserva Forestal de la Cordillera Volcánica de Guanacaste, la cual estará dividida en tres áreas dentro de las que se encuentran los siguientes volcanes: Orosí, Miravalles y Tenorio. La delimitación de esta Reserva se encuentra en las hojas cartográficas Orosí 3149 III, Cacao 3148IV, Tierras Morenas 3147 I, Miravalles 3148 II, Guatuso 3248 III, Arenal 3247IV, del Instituto Geográfico Nacional a escala 1: 50000.
 SECCIÓN DEL VOLCAN OROSÍ
-La demarcación de esta área de reserva parte del punto cero (0) con coordenadas 332 000 N y 378 000 E, continúa con los siguientes rumbos, distancias y coordenadas.
-Estación | Distancia | Rumbo | Coordenadas
-| | | Norte | Este
-0-1 | 2828 | S 45° 00’ E | 330 | 000 | 380 | 000
-1-2 | 1000 | E Franco | 330 | 000 | 381 | 000
-2-3 | 4000 | S Franco | 326 | 000 | 381 | 000
-3-4 | 1414 | S 45° 00’ E | 325 | 000 | 382 | 000
-4-5 | 7000 | S Franco | 318 | 000 | 382 | 000
-5-6 | 3000 | W Franco | 318 | 000 | 379 | 000
-6-7 | 4661 | N 68° 56’ W | 319 | 675 | 374 | 650
-7-8 | 2147 | N 27° 46’ W | 321 | 675 | 373 | 650
-8-9 | 6457 | N 5° 47’ W | 328 | 000 | 373 | 000
-9-10 | 2000 | N Franco | 330 | 000 | 373 | 000
-10-11 | 2102 | N 18° 00’ E | 332 | 000 | 373 | 650
-11-0 | 4350 | E Franco | 332 | 000 | 378 | 000
-| | | | | |
+(Así derogada esta sección mediante el artículo 1° del decreto ejecutivo N° 17655 del 25 de julio de 1977)
 SECCIÓN DEL VOLCAN MIRA VALLES
 El punto cero (0) se encuentra ubicado en las coordenadas 305 000 y 407 000, continúa con los siguientes rumbos, distancias y coordenadas.
 Estación | Distancia | Rumbo | Coordenadas
