@@ -1,20 +1,6 @@
-ARTICULO 3º.- La Autoridad Presupuestaria y la Contraloría General
-de la República verificarán el cumplimiento de lo que dispone el artículo
-anterior.
-La Autoridad Presupuestaria preparará un reglamento, que será
-emitido por el Poder Ejecutivo, en el que se regularán los procedimientos
-de control, forma, montos y plazos con los que las instituciones
-realizarán el pago del tributo al Gobierno de la República.
-El pago del tributo se realizará en un número de cuotas mensuales
-iguales y deberá cancelarse en su totalidad a más tardar el 15 de
-diciembre de 1985 y de 1986, en su caso.
-No se dará trámite a presupuestos, o sus modificaciones, de las
-instituciones y empresas que no estén al día en el pago de los tributos.
-Para cumplir esta disposición, en cada trámite de presupuesto la
-Contraloría General de la República exigirá a las entidades citadas una
-certificación de la Contabilidad Nacional de estar al día en el pago del
-tributo.
-Se considera falta grave, por parte de los funcionarios
-responsables, el incumplimiento de lo que establece el presente título.
-Igual responsabilidad les incumbirá a las juntas directivas, presidentes
-ejecutivos, gerentes y administradores de la institución respectiva.
+ARTICULO 3º.- Inaplicable. (La Corte Suprema de Justicia, mediante resolución de las 11:00 horas del 8 de noviembre de 1988 (expediente N° 257-86, promovido por el B.N.C.R., B.A.C. y B.C.R.) declaró inconstitucional e inaplicable este artículo cuyo texto disponía textualmente: “La Autoridad Presupuestaria y la Contraloría General de la República verificarán el cumplimiento de lo que dispone el artículo anterior.
+La Autoridad Presupuestaria preparará un reglamento, que será emitido por el Poder Ejecutivo, en el que se regularán los procedimientos de control, forma, montos y plazos con los que las instituciones realizarán el pago del tributo al Gobierno de la República.
+El pago del tributo se realizará en un número de cuotas mensuales iguales y deberá cancelarse en su totalidad a más tardar el 15 de diciembre de 1985 y de 1986, en su caso.
+No se dará trámite a presupuestos, o sus modificaciones, de las instituciones y empresas que no estén al día en el pago de los tributos.
+Para cumplir esta disposición, en cada trámite de presupuesto la Contraloría General de la República exigirá a las entidades citadas una certificación de la Contabilidad Nacional de estar al día en el pago del Tributo
+Se considera falta grave, por parte de los funcionarios responsables, el incumplimiento de lo que establece el presente título. Igual responsabilidad les incumbirá a las juntas directivas, presidentes ejecutivos, gerentes y administradores de la institución respectiva.”).

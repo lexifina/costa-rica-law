@@ -11,5 +11,5 @@ de Desarrollo Social y Asignaciones Familiares y el Instituto Nacional de
 Seguros girarán cinco millones de colones, cada uno, a la Sociedad de
 Socorro Mutuo de los funcionarios de la Guardia de Asistencia Rural y
 Civil, para dar inicio a los programas que señala esta ley.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

@@ -5,5 +5,5 @@ futuras entre las tarifas reales y el precio fijado a los usuarios de
 autobuses. La asignación de fondos se efectuará de las partidas que
 RECOPE traslada a TRANSMESA de conformidad con la ley Nº 6588 del 30 de
 julio de 1981.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

@@ -2,149 +2,38 @@ TITULO SEGUNDO
 DE LAS MODIFICACIONES, EXENCIONES Y DEROGACIONES DE TRIBUTOS
 CAPITULO PRIMERO
 De las modificaciones a la Ley del Impuesto sobre la Renta
-ARTICULO 7º.- Modifícanse los artículos 63 y 64 de la Ley del
-Impuesto sobre la Renta, Nº 837 del 20 de diciembre de 1946 y sus
-reformas, para que digan así:
-"Artículo 63: Impuesto sobre los dividendos y rentas de títulos
-valores.
-El producto bruto de los beneficios o rentas señalados en los
-incisos 1) y 2) siguientes, estará gravado con impuestos especiales,
-únicos y definitivos, de acuerdo con los porcentajes y procedimientos que
-se indican:
-1º.- Los contribuyentes comprendidos en el inciso 2) del artículo
-14, que paguen o acrediten a sus socios, personas físicas domiciliadas en
-el país, dividendos de acciones de cualquier tipo, participaciones
-sociales y cualquier otra clase de beneficios asimilables a dividendos,
-están obligados a retener el quince por ciento (15%) de tales sumas, por
-concepto de impuesto. No corresponde practicar la retención ni pagar el
-impuesto cuando se distribuyan dividendos en acciones nominativas de la
-propia sociedad que los paga.
-2º.- Los emisores, agentes pagaderos, sociedades anónimas y otras
-entidades públicas o privadas, que paguen o acrediten intereses de toda
-clase de títulos valores, deben retener el quince por ciento (15%) de
-dichas rentas por concepto de impuesto.
-Se exceptúan de la disposición anterior, las rentas originadas de
-las letras de cambio, pagarés y cédulas hipotecarias. Esta clase de
-rentas serán consideradas renta ordinaria, sujeta al impuesto que
-establece el artículo 14 de esta ley.
-Si los títulos valores se inscriben en una bolsa de comercio
-reconocida oficialmente, o hubieren sido emitidos por entidades
-financieras debidamente registradas en la Auditoría General de Bancos a
-tenor de la ley Nº 5044 del 7 de setiembre de 1972 y sus reformas, por el
-Estado, sus instituciones o los bancos integrados al Sistema Bancario
-Nacional, el porcentaje por aplicar será el cinco por ciento (5%).
-No estarán afectos al impuesto sobre la renta, ni al establecido en
-este inciso, las rentas derivadas de títulos valores en moneda extranjera
-emitidos por el Estado o los bancos del Estado.
-Se faculta a la Dirección General de la Tributación Directa, para
-que en aquellos casos en que por la naturaleza del título se faculte la
-retención en la fuente, pueda autorizar, con carácter general, otra
-modalidad de pago.
-3º.- Las retenciones de los impuestos anteriores deben practicarse
-en la fecha en que se efectúa el pago o crédito, el acto que se realice
-primero. Asimismo, deben depositarse en el Banco Central de Costa Rica o
-en sus tesorerías auxiliares, dentro de los primeros quince días del mes
-siguiente de aquella fecha.
-Las rentas originadas en los intereses pagados por las
-organizaciones cooperativas a sus asociados no están afectas al impuesto
-que establece este artículo, pero sus montos deberán incluirse dentro de
-los ingresos gravables de sus perceptores, conforme lo establece el
-inciso 2) del artículo 5º de esta ley.
-Se mantiene vigente, durante 1985, el transitorio IV de la ley Nº
-6955 del 24 de febrero de 1984."
-"Artículo 64.- Salvo lo dispuesto en el artículo 63 de esta ley,
-toda persona natural o jurídica que pague o acredite rentas de fuentes
-costarricenses a personas domiciliadas en el exterior, debe retener sobre
-el producto bruto las cantidades que resulten de aplicar los porcentajes
-que se indican a continuación, como impuesto único y definitivo que le
-corresponde pagar al perceptor de tales rentas:
+ARTICULO 7º.- Modifícanse los artículos 63 y 64 de la Ley del Impuesto sobre la Renta, Nº 837 del 20 de diciembre de 1946 y sus reformas, para que digan así:
+"Artículo 63: Impuesto sobre los dividendos y rentas de títulos valores. El producto bruto de los beneficios o rentas señalados en los incisos 1) y 2) siguientes, estará gravado con impuestos especiales, únicos y definitivos, de acuerdo con los porcentajes y procedimientos que se indican:
+1º.- Los contribuyentes comprendidos en el inciso 2) del artículo 14, que paguen o acrediten a sus socios, personas físicas domiciliadas en el país, dividendos de acciones de cualquier tipo, participaciones sociales y cualquier otra clase de beneficios asimilables a dividendos, están obligados a retener el quince por ciento (15%) de tales sumas, por concepto de impuesto. No corresponde practicar la retención ni pagar el impuesto cuando se distribuyan dividendos en acciones nominativas de la propia sociedad que los paga.
+2º.- Los emisores, agentes pagaderos, sociedades anónimas y otras entidades públicas o privadas, que paguen o acrediten intereses de toda clase de títulos valores, deben retener el quince por ciento (15%) de dichas rentas por concepto de impuesto.
+Se exceptúan de la disposición anterior, las rentas originadas de las letras de cambio, pagarés y cédulas hipotecarias. Esta clase de rentas serán consideradas renta ordinaria, sujeta al impuesto que establece el artículo 14 de esta ley.
+Si los títulos valores se inscriben en una bolsa de comercio reconocida oficialmente, o hubieren sido emitidos por entidades financieras debidamente registradas en la Auditoría General de Bancos a tenor de la ley Nº 5044 del 7 de setiembre de 1972 y sus reformas, por el Estado, sus instituciones o los bancos integrados al Sistema Bancario Nacional, el porcentaje por aplicar será el cinco por ciento (5%).
+No estarán afectos al impuesto sobre la renta, ni al establecido en este inciso, las rentas derivadas de títulos valores en moneda extranjera emitidos por el Estado o los bancos del Estado.
+Se faculta a la Dirección General de la Tributación Directa, para que en aquellos casos en que por la naturaleza del título se faculte la retención en la fuente, pueda autorizar, con carácter general, otra modalidad de pago.
+3º.- Las retenciones de los impuestos anteriores deben practicarse en la fecha en que se efectúa el pago o crédito, el acto que se realice primero. Asimismo, deben depositarse en el Banco Central de Costa Rica o en sus tesorerías auxiliares, dentro de los primeros quince días del mes siguiente de aquella fecha.
+Las rentas originadas en los intereses pagados por las organizaciones cooperativas a sus asociados no están afectas al impuesto que establece este artículo, pero sus montos deberán incluirse dentro de los ingresos gravables de sus perceptores, conforme lo establece el inciso 2) del artículo 5º de esta ley.
+Se mantiene vigente, durante 1985, el transitorio IV de la ley Nº 6955 del 24 de febrero de 1984."
+"Artículo 64.- Salvo lo dispuesto en el artículo 63 de esta ley, toda persona natural o jurídica que pague o acredite rentas de fuentes costarricenses a personas domiciliadas en el exterior, debe retener sobre el producto bruto las cantidades que resulten de aplicar los porcentajes que se indican a continuación, como impuesto único y definitivo que le corresponde pagar al perceptor de tales rentas:
 1º.- Diez por ciento (10%) sobre:
-a) Los pagos o créditos de intereses de depósitos o de préstamos de
-dinero, de títulos o de bonos y de comisiones sobre préstamos. No se debe
-practicar retención ni pagar el impuesto, cuando el préstamo sea
-concedido por un banco oficial del exterior, o contratado directamente en
-el extranjero por empresas, negocios o explotaciones agropecuarias o
-industriales para ser utilizado en el giro normal de las mismas y siempre
-que haya sido concedido por un banco o una institución financiera
-debidamente reconocida por el Banco Central de Costa Rica. Tampoco
-procede retener ni pagar el impuesto cuando el prestatario del crédito
-extranjero sea un Banco del Sistema Bancario Nacional.
-b) Ingresos provenientes de la producción, de la distribución, de
-intermediar y de cualquier otra forma de negociar en el país de películas
-cinematográficas, películas para televisión, videotapes y radionovelas,
-con excepción de aquéllos que tengan carácter educativo, científico,
-cultural o deportivo con la debida autorización del Ministerio de
-Cultura, Juventud y Deportes.
-c) Remuneraciones, sueldos, comisiones, dietas y cualquier otra
-clase de rentas o beneficios que se paguen o acrediten a personas que
-actúen en el exterior, por servicios prestados a empresas o negocios de
-Costa Rica y que no tengan en esta ley un tratamiento distinto.
-d) Asesoramiento técnico, financiero, administrativo o de otra
-índole, prestado desde el exterior o por personas no domiciliadas en el
-país.
-2º.- Quince por ciento (15%) sobre los pagos o créditos por concepto
-de dividendos o participaciones sociales, independientemente del origen y
-procedencia de las utilidades distribuidas y sobre cualquier otra forma
-de retribución a capitales extranjeros que operen en el país, excepto las
-remesas por reaseguros cedidos. A los fines de esta disposición se
-asimilan a dividendos los créditos que sucursales radicadas en el país,
-efectúen a sus casas matrices del exterior por concepto de utilidades
-sobre las cuales ya ha sido pago el impuesto.
-En ningún caso corresponde practicar la retención ni pagar el
-impuesto, cuando se distribuyan dividendos en acciones nominativas o al
-portador de la propia sociedad que los paga.
-3º.- Veinte por ciento (20%) sobre los pagos o créditos que se
-realicen, entre otros, por los siguientes conceptos:
-a) Suministro de noticias por parte de agencias internacionales a
-personas radicadas o que actúen en el país.
-b) Producción, distribución, hacer de intermediario y cualquiera
-otra forma de negociación en el país, de discos fonográficos, tiras de
-historietas, fotonovelas y todo otro medio similar de proyección,
-transmisión o difusión de imágenes o sonidos.
-c) Uso de patentes, suministro de fórmulas, marcas de fábrica,
-privilegios, franquicias o regalías.
-4º.- Treinta por ciento (30%) sobre los pagos o créditos que se
-realicen por los siguientes conceptos:
-a) Remuneraciones, sueldos, comisiones, honorarios, dietas y
-cualquier otra clase de rentas que se paguen o abonen a personas miembros
-de directorios, consejos u otros organismos directivos que actúen en el
-exterior.
+a) Los pagos o créditos de intereses de depósitos o de préstamos de dinero, de títulos o de bonos y de comisiones sobre préstamos. No se debe practicar retención ni pagar el impuesto, cuando el préstamo sea concedido por un banco oficial del exterior, o contratado directamente en el extranjero por empresas, negocios o explotaciones agropecuarias o industriales para ser utilizado en el giro normal de las mismas y siempre que haya sido concedido por un banco o una institución financiera debidamente reconocida por el Banco Central de Costa Rica. Tampoco procede retener ni pagar el impuesto cuando el prestatario del crédito extranjero sea un Banco del Sistema Bancario Nacional.
+b) Ingresos provenientes de la producción, de la distribución, de intermediar y de cualquier otra forma de negociar en el país de películas cinematográficas, películas para televisión, videotapes y radionovelas, con excepción de aquéllos que tengan carácter educativo, científico, cultural o deportivo con la debida autorización del Ministerio de Cultura, Juventud y Deportes.
+c) Remuneraciones, sueldos, comisiones, dietas y cualquier otra clase de rentas o beneficios que se paguen o acrediten a personas que actúen en el exterior, por servicios prestados a empresas o negocios de Costa Rica y que no tengan en esta ley un tratamiento distinto.
+d) Asesoramiento técnico, financiero, administrativo o de otra índole, prestado desde el exterior o por personas no domiciliadas en el país.
+2º.- Quince por ciento (15%) sobre los pagos o créditos por concepto de dividendos o participaciones sociales, independientemente del origen y procedencia de las utilidades distribuidas y sobre cualquier otra forma de retribución a capitales extranjeros que operen en el país, excepto las remesas por reaseguros cedidos. A los fines de esta disposición se asimilan a dividendos los créditos que sucursales radicadas en el país, efectúen a sus casas matrices del exterior por concepto de utilidades sobre las cuales ya ha sido pago el impuesto.
+En ningún caso corresponde practicar la retención ni pagar el impuesto, cuando se distribuyan dividendos en acciones nominativas o al portador de la propia sociedad que los paga.
+3º.- Veinte por ciento (20%) sobre los pagos o créditos que se realicen, entre otros, por los siguientes conceptos:
+a) Suministro de noticias por parte de agencias internacionales a personas radicadas o que actúen en el país.
+b) Producción, distribución, hacer de intermediario y cualquiera otra forma de negociación en el país, de discos fonográficos, tiras de historietas, fotonovelas y todo otro medio similar de proyección, transmisión o difusión de imágenes o sonidos.
+c) Uso de patentes, suministro de fórmulas, marcas de fábrica, privilegios, franquicias o regalías.
+4º.- Treinta por ciento (30%) sobre los pagos o créditos que se realicen por los siguientes conceptos:
+a) Remuneraciones, sueldos, comisiones, honorarios, dietas y cualquier otra clase de rentas que se paguen o abonen a personas miembros de directorios, consejos u otros organismos directivos que actúen en el exterior.
 b) Intereses pagados o acreditados a favor de:
-i) Personas físicas domiciliadas en el exterior excepto que el pago
-o crédito se haya hecho por bancos constituidos de acuerdo con la Ley del
-Sistema Bancario Nacional y de sociedades de inversión o de crédito
-especial de carácter no bancario registradas en la Auditoría General de
-Bancos.
-ii) Casas matrices de la empresa o sociedad que los paga o acredita,
-subsidiarias, agencias o sucursales de tales casas matrices, excepto que
-se trate de bancos constituidos de acuerdo conla Ley del Sistema Bancario
-Nacional y de sociedades financieras deinversión y de crédito especial de
-carácter no bancario registradasen la Auditoría General de Bancos.
-iii) Sociedades o empresas financieras del exterior, cuando alguno
-de sus socios, dueños o los padres, cónyuge, hijos o hermanos de éstos
-por consanguinidad o afinidad, sean a su vez socios o dueños de la
-prestataria en Costa Rica.
-iv) Entidades financieras creadas por la empresa prestataria o que
-operen con capital de ésta.
-v) Sociedades o entidades financieras no reconocidas por el Banco
-Central de Costa Rica.
-Tratándose de dividendos, participaciones sociales y de las rentas a
-que se refiere el inciso 1) aparte de este artículo, la Administración
-Tributaria queda facultada para eximir total o parcialmente de la
-obligación de retener y pagar el impuesto cuando las personas que deban
-actuar como agentes de retención, o los propios interesados, comprueben a
-satisfacción de ésta, que a los perceptores de tales ingresos no les
-conceden crédito o deducción alguna en los países donde actúan, por el
-impuesto total así retenido y pagado en Costa Rica, o cuando el crédito
-que se les conceda sea inferior a dicho impuesto, en cuyo caso sólo se
-eximirá la parte del mismo no reconocida en el exterior.
-No procede eximir de la obligación de retener y pagar el impuesto a
-que se refiere el párrafo anterior, cuando los ingresos ahí mencionados
-no se graven en el país en que actúan sus perceptores con un impuesto
-similar al que establece la presente ley.
-Las retenciones a que se refiere este artículo deben practicarse y
-depositarse en los mismos términos del artículo 63 de esta ley.
-La Administración Tributaria queda facultada para no aceptar total o
-parcialmente, los pagos o créditos que se realicen por los conceptos a
-que se refiere este artículo, cuando determine que obedecen a una
-maniobra para disminuir el impuesto a pagar."
+i) Personas físicas domiciliadas en el exterior excepto que el pago o crédito se haya hecho por bancos constituidos de acuerdo con la Ley del Sistema Bancario Nacional y de sociedades de inversión o de crédito especial de carácter no bancario registradas en la Auditoría General de Bancos.
+ii) Casas matrices de la empresa o sociedad que los paga o acredita, subsidiarias, agencias o sucursales de tales casas matrices, excepto que se trate de bancos constituidos de acuerdo conla Ley del Sistema Bancario Nacional y de sociedades financieras deinversión y de crédito especial de carácter no bancario registradas en la Auditoría General de Bancos.
+iii) Sociedades o empresas financieras del exterior, cuando alguno de sus socios, dueños o los padres, cónyuge, hijos o hermanos de éstos por consanguinidad o afinidad, sean a su vez socios o dueños de la prestataria en Costa Rica.
+iv) Entidades financieras creadas por la empresa prestataria o que operen con capital de ésta.
+v) Sociedades o entidades financieras no reconocidas por el Banco Central de Costa Rica.
+Tratándose de dividendos, participaciones sociales y de las rentas a que se refiere el inciso 1) aparte de este artículo, la Administración Tributaria queda facultada para eximir total o parcialmente de la obligación de retener y pagar el impuesto cuando las personas que deban actuar como agentes de retención, o los propios interesados, comprueben a satisfacción de ésta, que a los perceptores de tales ingresos no les conceden crédito o deducción alguna en los países donde actúan, por el impuesto total así retenido y pagado en Costa Rica, o cuando el crédito que se les conceda sea inferior a dicho impuesto, en cuyo caso sólo se eximirá la parte del mismo no reconocida en el exterior.
+No procede eximir de la obligación de retener y pagar el impuesto a que se refiere el párrafo anterior, cuando los ingresos ahí mencionados no se graven en el país en que actúan sus perceptores con un impuesto similar al que establece la presente ley.
+Las retenciones a que se refiere este artículo deben practicarse y depositarse en los mismos términos del artículo 63 de esta ley.
+La Administración Tributaria queda facultada para no aceptar total o parcialmente, los pagos o créditos que se realicen por los conceptos a que se refiere este artículo, cuando determine que obedecen a una maniobra para disminuir el impuesto a pagar."
