@@ -14,3 +14,4 @@ Reglamento Comisión Calificadora Servicio Exterior de Costa Rica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-10-03 | la propia norma |
+| 2 | 1986-08-01 | Decreto Ejecutivo 17184 (1986-08-01) |
