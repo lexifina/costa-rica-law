@@ -13,3 +13,4 @@ Aprueba Norma Oficial para Salsa de Tomate
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-06-01 | la propia norma |
+| 2 | 1977-06-01 | SINALEVI (sin norma nombrada) |
