@@ -14,3 +14,4 @@ Reglamento para la Inatalación de Anuncios, Rótulos, Letreros o Avisos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-09 | la propia norma |
+| 2 | 2002-02-18 | Reglamento municipal 266 (2002-02-18) |
