@@ -13,3 +13,4 @@ Reglamento de Nuevas Estaciones de Expendio de Derivados de Petróleo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-21 | la propia norma |
+| 2 | 1989-09-21 | SINALEVI (sin norma nombrada) |
