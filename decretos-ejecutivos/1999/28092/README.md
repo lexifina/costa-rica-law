@@ -13,3 +13,4 @@ Declara de Interés Cultural Festival de Talento (FT Joven Vive)(Días 15 y 16 d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-23 | la propia norma |
+| 2 | 1999-09-23 | SINALEVI (sin norma nombrada) |
