@@ -1,0 +1,1 @@
+Articulo 42.—Los beneficios de la disponibilidad se suspenderán en el momento en que se incumpla cualquiera de los requisitos establecidos en el artículo 34 de este reglamento. En tal caso. la Alcaldía Municipal , deberá comunicar oficialmente a la Contraloría General de la República.

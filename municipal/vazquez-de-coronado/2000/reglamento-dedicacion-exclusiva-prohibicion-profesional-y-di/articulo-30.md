@@ -1,0 +1,1 @@
+Articulo 30.— La Municipalidad de Vázquez de Coronado, a través de la Auditoria Interna verificará cuando lo considere necesario y conveniente y de conformidad con los procedimientos que al respecto establece el fiel cumplimiento de todas las disposiciones de este Reglamento en cuanto a la prohibición

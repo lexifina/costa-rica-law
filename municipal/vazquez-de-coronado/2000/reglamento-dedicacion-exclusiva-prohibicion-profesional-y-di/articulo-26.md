@@ -1,0 +1,1 @@
+Articulo 26. —Los servidores acogidos a este régimen, continuaran disfrutando del mismo, en los casos en que se acolan a permisos con goce de salario total o parcial y en aquellos casos en que se encuentren capacitándose.
