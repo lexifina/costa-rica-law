@@ -1,0 +1,2 @@
+Artículo 6° El prospecto de emisión será redactado por los Banqueros y ese prospecto deberá llevar la firma del Ministro de la República de Costa Rica en París, el que deberá estar debidamente autorizado al efecto. La firma del Ministro deberá ir precedida por estas palabras
+“En nombre del Gobierno de la República de Costa Rica declaro exactos y conforme a las leyes de la República, los detalles enunciados en el presente prospecto.

@@ -1,0 +1,1 @@
+Articulo 11° Los gastos de inserción referentes al pago de cupones a los sorteos de amortización y al reembolso anticipado, serán soportados por la República. Lo mismo sucederá con los gastos de correspondencia y de telégrafo que necesitare el servicio del empréstito después de la emisión.

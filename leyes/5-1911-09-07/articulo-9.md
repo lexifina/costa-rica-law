@@ -1,0 +1,1 @@
+Artículo 9° Los títulos reembolsos deberán presentarse junto con todos los cupones no vencidos. Serán nulificados y devueltos a la República a sus expensas. En caso de que faltaren cupones, su importe será deducido del monto del reembolso.
