@@ -1,0 +1,6 @@
+Artículo 12.. Para los productos de esta clase, el tipo de em balaje
+tiene, frecuentemente, un efecto decisivo sobre el grado de riesgo y por
+lo tanto sobre la inclusión de un productos en una sub clase determinada.
+Como consecuencia determinados explosivos podrán aparecer más de una vez
+clasificados en una sub clase, en función del tipo de embalaje, por lo
+que debe ser objeto de especial atención.

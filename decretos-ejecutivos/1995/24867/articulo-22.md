@@ -1,0 +1,17 @@
+CAPITULO VII
+De la clase 5: Sustancias oxidantes, peróxidos orgánicos
+Artículo 22.. Los productos peligrosos de esta clase se dividen en
+las siguientes sub clases:
+Sub clase 5.1..Sustancias Oxidantes: Sustancias que no siendo
+propiamente combustibles pueden, en general por liberación de oxígeno,
+causar la combustión de otros materiales o contribuir a esto.
+Sub clase 5.2..Peróxidos Orgánicos: Sustancias orgánicas que
+contienen una estructura bivalente -0-0- y pueden ser consideradas
+derivados del peróxido de hidrógeno, en donde uno o ambos átomos de
+hidrógeno fueron sustituidos por radicales orgánicos. Los peróxidos
+orgánicos son sustancias térmicamente inestables y pueden sufrir una
+descomposición exotérmica y auto acelerable. Además de esto, pueden
+presentar descomposición exotérmica y auto acelerable. Pueden presentar
+una o más de las siguientes propiedades: ser sujetos a descomposición
+explosiva quemar rápidamente, ser sensible al choque o trato, reaccionar
+peligrosamente con otras sustancias, causar daños a los ojos.

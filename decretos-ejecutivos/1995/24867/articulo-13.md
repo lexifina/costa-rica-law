@@ -1,0 +1,7 @@
+Artículo 13.. La seguridad del transporte de productos y artículos
+peligrosos debe ser asegurada y separada de los diferentes tipos.
+Admítase, el transporte conjunto de explosivos de diferentes tipos
+siempre y cuando sean compatibles. Los productos de la Clase 1 son
+considerados compatibles y pueden ser transportados conjuntamente si no
+aumentan de forma significativa, la probabilidad de un accidente o la
+magnitud de los efectos del accidente.
