@@ -11,11 +11,13 @@ someterá al consejo.
 d) Vender, arrendar o prestar las películas del Instituto a personas
 físicas o jurídicas nacionales o extranjeras, previa autorización del
 Consejo.
-e) Vender, arrendar o prestar los servicios del Centro a cualquier
-entidad del sector público.
+e) Vender, arrendar o prestar servicios del Centro y participar en
+coproducciones cinematográficas con otras empresas públicas o privadas.
+(Así reformado por el artículo 9 de la Ley Nº 7056 de 9 de diciembre de
+1986).
 f) Tramitar el nombramiento y remoción del personal administrativo y
 técnico del Centro, conforme a lo establecido en el Estatuto y Reglamento
 del Servicio Civil.
 g) Asignar tareas y responsabilidades a los funcionarios técnicos y
-administrativosdel Centro, de conformidad con los reglamentos respectivos.
+administrativos del Centro, de conformidad con los reglamentos respectivos.
 h) Las otras que le señalen las leyes y reglamentos.
