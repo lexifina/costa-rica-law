@@ -1,0 +1,1 @@
+Artículo 12.—Para todas las donaciones que reciba el Ministerio se extenderán los comprobantes que se diseñen al efecto en original y copias. El original se le entregará al contribuyente y las copias quedarán archivadas en la Dirección General Financiera (OCIE, Departamento de Proveeduría).

@@ -1,0 +1,1 @@
+Artículo 9°—Ninguna donación que reciba el Ministerio podrá ser causa de ventajas, beneficios o privilegios para el donante, en los trámites y servicios que aquel debe prestar de manera regular bajo los principios de igualdad, gratuidad y, en general, del servicio público.

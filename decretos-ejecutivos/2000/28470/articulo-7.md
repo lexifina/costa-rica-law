@@ -1,0 +1,1 @@
+Artículo 7.—La asignación o distribución de bienes a los centros educativos o dependencias del Ministerio, deberán ser autorizados por el Ministro, o el funcionario que él designe y, una vez que se hubiese constatado la pertinencia y necesidad del trámite según los criterios de razonabilidad, necesidad, proporcionalidad y de la política educativa vigente.

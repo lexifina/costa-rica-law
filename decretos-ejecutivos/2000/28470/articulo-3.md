@@ -1,0 +1,2 @@
+Artículo 3°—Todo funcionario, órgano o dirección regional de educación que desee gestionar la donación de bienes o recursos por parte de las instituciones públicas o privadas, nacionales o extranjeras, deberá requerir la autorización del Ministro de Educación, acto que le otorgará oficialidad a la solicitud.
+Toda solicitud de donación de bienes o recursos que se lleve a cabo sin esta autorización es absolutamente nula.

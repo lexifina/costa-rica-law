@@ -1,0 +1,1 @@
+Artículo 11.—Todos los bienes y recursos que reciba el Ministerio por concepto de donación, solo se podrán destinar para fortalecer el servicio público propio del mismo, por lo que queda prohibido todo beneficio para sus funcionarios a título personal.

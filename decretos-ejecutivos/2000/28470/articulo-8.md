@@ -1,0 +1,1 @@
+Artículo 8°—Las donaciones de fondos (numerario) que reciba el Ministerio, se sujetarán a lo establecido en este reglamento y su presupuesto, control y administración se llevará a cabo a través de la Oficina de Cooperación Internacional para la Educación (OCIE).

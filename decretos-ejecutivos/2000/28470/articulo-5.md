@@ -1,0 +1,1 @@
+Artículo 5°—Los bienes que reciba el Ministerio por concepto de donación deberán ser reportados al Departamento de Proveeduría del Ministerio con el propósito de que se incorporen dentro de su patrimonio y con sujeción a los controles establecidos.

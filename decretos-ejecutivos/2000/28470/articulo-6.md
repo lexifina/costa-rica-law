@@ -1,0 +1,1 @@
+Artículo 6°—Ninguno de los bienes donados al Ministerio podrán ser, traspasados a su vez, a centros educativos o dependencias del mismo, si previamente no se han incorporado al patrimonio del Ministerio y se ha cumplido con los procedimientos que, para estos efectos, tiene establecidos el Departamento de Proveeduría y la legislación en general.

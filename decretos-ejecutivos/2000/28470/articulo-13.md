@@ -1,0 +1,1 @@
+Artículo 13.—Quedan excluidas de este Reglamento, las donaciones que reciban las Juntas de Educación y Administrativas que, por su condición de personas jurídicas, se rigen por su propio reglamento D. E. Nº 17763, publicado en "La Gaceta" el 3 de setiembre de 1987.
