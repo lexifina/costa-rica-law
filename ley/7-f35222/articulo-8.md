@@ -1,0 +1,1 @@
+Articulo 8°-Los Tesoreros Escolares de distrito están obligados o entregar antes del día diez de cada mes, al Tesorero Cantonal, los fondos manejados durante el mes anterior, acompañando los comprobantes de ingresos y gastos. La falta de cumplimiento de esta disposición será motivo para que pueda pedirse la remoción del Tesorero.

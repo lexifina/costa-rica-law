@@ -1,0 +1,2 @@
+Articulo 17.-Las autoridades judiciales, fiscales o de policía, no podrán bajo ningún concepto, recibir el valor de las multas que Impusieren.
+Firme la sentencia, el importe de la multa deberá ser satisfecho en la Tesorería Escolar, la que extenderá por duplicado el recibo correspondiente, entregará uno de los ejemplares al interesado y remitirá el otro, inmediatamente, a la autoridad que dicto la sentencia.
