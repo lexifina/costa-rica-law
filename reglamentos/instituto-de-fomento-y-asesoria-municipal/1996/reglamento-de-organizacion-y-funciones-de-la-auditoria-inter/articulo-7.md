@@ -1,6 +1,7 @@
 Articulo 7°—Para el cumplimiento de su objeto, la Auditoría Interna tiene los siguientes deberes y funciones:
 a) Evaluar en forma posterior las operaciones contables, financieras y administrativas, los registros, [os estados financieros y de ejecución y liquidación presupuestaria, mediante !a realización de intervenciones de auditoría o estudios especiales.
-b) Verificar el cumplimiento de las disposiciones legales, reglamentarios, y de otra naturaleza, que regulan las transacciones y operaciones en la Institución.
+b) Fiscalizar, verificar y evaluar el cumplimiento, la validez y suficiencia de los procedimientos de control interno, establecidos por la administración en relación con el seguimiento y cumplimiento de los acuerdos de Junta Directiva, de cuyos resultados se infomará a la Junta Directiva.
+(Así reformado parcialmente mediante sesión ordinaria N° 3396, celebrada el 28 de julio de 2004.)
 c) Evaluar los sistemas de control interno en relación con los aspectos contables, financieros y administrativos con el fin de comprobar su cumplimiento, suficiencia y validez, proponiendo las mejoras o
 ajustes necesarios.
 d) Verificar que tos bienes patrimoniales se hallen debidamente controlados, contabilizados y protegidos contra pérdida, deterioro o mal uso.
