@@ -1,0 +1,1 @@
+Art.2° En lo sucesivo se arreglará todo de conformidad con los artículos 5°,6°,7° y 8° de los Estatutos, verificándose el aniversario el 1° de Noviembre. –Dado en la Ciudad de San José á primero de Setiembre de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Ministro general del Despacho Señor Doctor José María Castro.”
