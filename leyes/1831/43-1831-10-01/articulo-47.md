@@ -1,0 +1,2 @@
+Art. 47. No podrà el Ministro del Despacho firmar órden alguna del Poder Ejecutivo sin que estè extendida en el expediente respectivo, y rubricada en el libro del caso; y será responsable por la autorizacion de órdenes contra la ley, y por la morosidad en el cumplimiento que toque al Gobierno de las establecidas ó que se establecieren, à no ser que haga constar lo contrario en el libro correspondiente; teniendo igual responsabilidad el Poder Ejecutivo. (1) . ,
+(1) Reformado por la ley de 31 de Marzo de 1845, y art. 9. de la de 26 de Junio de 1844, y 139 de la Constitucion.

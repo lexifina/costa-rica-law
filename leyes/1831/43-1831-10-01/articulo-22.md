@@ -1,0 +1,2 @@
+Art. 22. Nombrarà los Funcionarios que le competen por la ley á propuesta en terna del Consejo Representativo, y los demas subalternos de oficiales mayores, y de Subtenientes arriba à igual propuesta de sus Gefes; asi como los Catedràticos á propuesta del Rector en los extablecimientos literarios aprobados, debiendo extenderse el despacho correspondiente antes de la posesion del nombrado.(1)
+(1) Reformado por la fraccion 4a art. 110 de la Constitucion de 21 de Enero de 1847.

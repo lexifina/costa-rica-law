@@ -1,0 +1,2 @@
+Art. 48. El Ministro del Despacho darà à la Asamblea, con conocimiento del Ejecutivo, cuantos informes se le pidan, y asistirá á ella cuando se le llame por la misma, ó sea embiado por el Ejecutivo, ó crea conducente asistir, debiendo siempre dar razon de lo que se le pregunte acerca de las providencias del Gobierno siempre que no exijan secreto. (2)
+(2) Id, por el art. 140 de la Constitucion de 9 de Abril de 1844.

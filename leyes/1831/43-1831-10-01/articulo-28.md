@@ -1,0 +1,2 @@
+Art. 28. Suspenderà el curso de las Bulas, Rescriptos, Edictos, y Breves pontificos que no tengan el pase del Supremo Gobierno Nacional, debiendo los Eclesiasticos encargados de su cumplimiento, bajo la mas estrecha responsabilidad, dirigir desde el recibo los originales para obtener del Ejecutivo la resolucion conveniente. (3)
+[ 3 ] Alterado por la fraccion 13, art. 135 de la Constitucion de 9 de Abril de 1844

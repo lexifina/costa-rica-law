@@ -1,0 +1,1 @@
+Art. 35. Si los informes fuesen necesarios para exigir la responsabilidad del Gefe Supremo ò Vice-Gefe, no podràn rehusarse por ningun motivo, ni reservarse los documentos despues que se haya declarado haber lugar à formacion de causa.

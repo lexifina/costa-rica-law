@@ -1,0 +1,1 @@
+Art. 20. Exitarà á los otros Poderes à la observancia y ejecucion de la ley, representandolo por los órganos correspondientes, y dando cuenta à la Asambléa de Ias faltas que note en la administracion de justicia respecto de la Corte Superior, y à esta de las que observe en los Jueces inferiores.

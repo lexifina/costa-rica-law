@@ -1,0 +1,1 @@
+Art. 52. No podrà el Ministro del Despacho franquear en confianza ningun papel del archivo de Gobierno á persona alguna, ni dar testimonio ó certificaciones, sin que preceda órden in scriptis del Poder Ejecutivo.

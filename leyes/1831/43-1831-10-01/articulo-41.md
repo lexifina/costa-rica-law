@@ -1,0 +1,2 @@
+Art. 41. Si no hubiese Oficial Mayor, ó estuviese ausente, ó el Consejo haya discentido para autorizarlo, siendo urgente la provision del Ministro, autorizarà el Ejecutivo á uno de los tres Gefes Superiores, dandolo á reconocer como queda prevenido, y pidiendo al Consejo la terna respectiva para proveerlo interina ò propietariamente. (1)
+(1) Reformado por el art. 142 de la Constitucion de 9 de Abril de 1844.

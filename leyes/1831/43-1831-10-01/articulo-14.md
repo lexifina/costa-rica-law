@@ -1,0 +1,1 @@
+Art. 14. Publicará las leyes, resoluciones Legislativas, ò decretos de la Asamblèa bajo la fòrmula establecida por la Constitucion, y harà que se publiquen en todo el Estado en el perentorio término de un mes; à cayo fin los circulará por todos los Departamentos de la administracion, exigiendo el debido conocimiento de haberse en ellos recibido y dispuesto su ejecucion.

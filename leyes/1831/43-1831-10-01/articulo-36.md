@@ -1,0 +1,1 @@
+Art. 36. Propondrá à la Asambléa cuanto crea conveniente al bien del Estado, y que no esté en la órbita de sus atribuciones, sin que sea en forma de ley ó decreto, para que tomandolo en consideracion, dicte las resoluciones consiguientes.

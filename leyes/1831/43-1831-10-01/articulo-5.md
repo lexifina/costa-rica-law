@@ -1,0 +1,2 @@
+Art. 5. Para ser Geffe y segundo Gefe se requiere ser natural de la República, Ciudadano en el ejercicio de sus derechos, del estado seglar (sinó es que por algun evento recaigan las funciones del Poder Ejecutivo en el Presidente del Consejo y sea Eclesiastico) mayor de treinta años, y tener una propiedad que no baje de mil pesos, ó una renta annual de doscientos, ò ser profesor de alguna ciencia. (2) ’
+(2) Reformado por el art. 133 de la Constitucion citada y por el 107 de la de 21 de Enero de 1847.

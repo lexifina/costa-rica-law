@@ -1,0 +1,1 @@
+Art. 53. Los pliegos ò comunicaciones que se dirijan á los Supremos Poderes, deberàn conducirse por el Escribiente, asi como deberà hacerse por los de aquellos al Ejecutivo, llevandose conocimiento por el Oficial mayor ó Secretaria del que lo conduce, persona à quien se entrega, y hora en que se hizo.
