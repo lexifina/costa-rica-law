@@ -15,3 +15,4 @@ Reglamento Interior Trabajo Imprenta Nacional (Ver Observaciones)
 | --- | --- | --- |
 | 1 | 1979-11-29 | la propia norma |
 | 2 | 1989-11-16 | Decreto Ejecutivo 19422 (1989-11-16) |
+| 3 | 1990-02-22 | Decreto Ejecutivo 19624 (1990-02-22) |
