@@ -1,0 +1,5 @@
+AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+MODIFICACIÓN DEL ARTÍCULO 48
+DEL REGLAMENTO PARA CONTROL DE ACTIVO FIJOS
+“Artículo 48.—Levantamiento de actas para donar o para desechar activos.
+Una vez autorizada la donación o el desecho de los activos por parte del jerarca, se levantará un acta que contendrá como mínimo la descripción detallada de los activos a donar o a desechar, en el caso de la donación el nombre del destinatario, y de quien recibe a su nombre, la hora, la fecha y el día en que se levanta el acta y el nombre completo y firma del funcionario que la levanta y de los testigos, si los hubiese. El acta será levantada por el Departamento de Servicios Generales, que tendrá la obligación de enviar el original al Departamento Financiero para su custodia y una copia a la Proveeduría”.
