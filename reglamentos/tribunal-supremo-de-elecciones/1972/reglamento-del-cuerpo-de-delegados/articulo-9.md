@@ -1,1 +1,0 @@
-Artículo 9°—Excepto los miembros del Cuerpo Permanente de Delegado los demás Delegados cesan en sus funciones un mes después del día de las elecciones, salvo si se suscitara una convocatoria a segundas elecciones, en cuyo evento la cesación de su cargo será un mes después de realizadas las mismas.

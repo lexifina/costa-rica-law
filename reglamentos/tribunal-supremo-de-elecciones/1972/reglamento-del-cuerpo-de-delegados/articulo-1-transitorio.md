@@ -1,1 +1,0 @@
-Artículo Transitorio.—Los requisitos que se señalan en el articulo segundo del presente Reglamento para ser Delegado del Tribunal Supremo de Elecciones, no rigen para los nombramientos hechos hasta el día de hoy.
