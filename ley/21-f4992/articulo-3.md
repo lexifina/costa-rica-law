@@ -1,0 +1,3 @@
+Art. 3°-Establécese igualmente el servicio de encomiendas de 2a clase, cuyo franqueo se hará en la forma siguiente: de 1 á 100 gramos, 4 centavos; de 100 á 200, 7 centavos; de 200 á 300, 10 centavos; de 300 á 400, 13 centavos; y de 400 á 500, 16 centavos.
+Parágrafo único. -Considéranse como encomiendas de 2a clase los libros de giros, los de guías, los documentos en blanco, los papeles de música, libros en blanco y cualquiera otro objeto impreso que no tenga el carácter de folleto ó publicación periódica.
+Dado en el Palacio Presidencial, en San José, á los treinta días del mes de julio de mil ochocientos ochenta y seis. -BERNARDO SOTO. -El Secretario de Estado en el despacho de Gobernación,-LEÓN FERNÁNDEZ.
