@@ -1,1 +1,0 @@
-Artículo 19.—Si la parte gestionante desconoce el domicilio de la otra parte interesada, este deberá gestionar a su costa la publicación de la resolución de traslado de la solicitud de impedimento y la resolución final en uno de los diarios de más circulación, por una sola vez, así como por edicto en "La Gaceta".

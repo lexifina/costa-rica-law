@@ -1,1 +1,0 @@
-Artículo 20.—Contra la resolución final, proceden los recursos de revocatoria y apelación en subsidio que debe interponerse ante el funcionario que dicta la resolución, en el plazo de los tres días hábiles contados desde el siguiente al de la notificación.

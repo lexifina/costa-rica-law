@@ -1,1 +1,0 @@
-Artículo 3 °—Para el cumplimiento del artículo anterior, el Patronato llevará un registro actualizado día a día, de las gestiones de impedimento de salidas del país, que se presenten a la Institución, enviándose comunicación de ello, a la Oficina de Migración y a todas las oficinas competentes en esta materia de la Institución.

@@ -1,2 +1,0 @@
-Artículo 2°—Cuando el menor viaje en compañía de ambos padres o de quien ejerce en forma exclusiva la patria potestad, o de su tutor o representante legal, solo se requerirá una constancia del Patronato que informe que no existe declarado o en trámite un impedimento de salida del menor, presentando ante esta Institución.
-El interesado, personalmente o por medio de un tercero, deberá solicitar a la oficina encargada del Patronato, una constancia que indique que no existe impedimento de salida del país.

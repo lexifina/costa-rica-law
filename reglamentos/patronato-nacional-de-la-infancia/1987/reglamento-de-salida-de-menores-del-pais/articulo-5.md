@@ -1,1 +1,0 @@
-Artículo 5°—Cuando se trate de menores de nacionalidad extranjera o costarricenses residentes en otro país, que han permanecido en Costa Rica por más de treinta días naturales, en condición de turista comprobada, no será necesario trámite alguno adicional ante el Patronato, para efectos de su salida del país, salvo los que requiere al efecto la Dirección General de Migración.

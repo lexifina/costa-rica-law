@@ -1,1 +1,0 @@
-Artículo 11.—Si la solicitud cumple con todos los requisitos establecidos en este Reglamento, el funcionario lo indicará así por escrito en el documento correspondiente, que remitirá a la Dirección de Migración con el interesado, para que continúen los trámites respectivos.

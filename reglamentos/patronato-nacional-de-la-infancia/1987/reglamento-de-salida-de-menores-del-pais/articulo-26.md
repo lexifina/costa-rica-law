@@ -1,1 +1,0 @@
-Artículo 26.—Los casos no contemplados en este Reglamento, serán resueltos de conformidad con las facultades discrecionales indicadas en el artículo 15 de la Ley General de la Administración Pública No 6227 del 2 de mayo de 1978, por cualquiera de las siguientes oficinas: Dirección Ejecutiva, Secretaría General, representaciones y delegaciones en sus respectivas jurisdicciones.

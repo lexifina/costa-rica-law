@@ -1,1 +1,0 @@
-Artículo 23.—Los casos a los que refieren los artículos 8° y 9°, además del procedimiento de impedimento de salida del país, deberán ser tramitados necesariamente por un profesional en derecho de la oficina correspondiente.
