@@ -1,0 +1,1 @@
+Art. 3. Todas las dietas que anteriormente se han cobrado por los jueces y escribanos, cuando hayan de salir del lugar à ejercer sus funciones, se reducen al de dos pesos por cada una, conforme al art. 2 de la ley de 27 de Mayo de 1828.

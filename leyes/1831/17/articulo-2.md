@@ -1,0 +1,1 @@
+Art. 2. Todos los derechos comprendidos en los aranceles que la Real Audiencia de Guatemala expidiò en 14 de Octubre de 1779, seràn disminuidos en una cuarta parte; omitiendo los quebrados que resulten, y que bajen de medio real, ya sea en favor ò en perjuicio del juzgado.

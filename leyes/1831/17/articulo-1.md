@@ -1,0 +1,7 @@
+DECRETO XVII.
+Prohibe cobrar derechos dobles y triples, y da algunas
+reglas para el cobro de aquellos. (1)
+(1) Las disposiciones del presente decreto estàn refundidas en el arancel de 1° de Mayo do 1832.
+“El Jefe Supremo del Estado libre de Costa-Rica,—Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa-Rica; considerando que la exaccion de dobles y triples derechos que señala el arancel por los instrumentos pùblicos, y actos judiciales tocantes à comunidades, no puede apoyarse en razon alguna benéfica al pùblico, que debe ser el objeto de toda ley; y que ademas esta exaccion ha dado mérito, ù ocasion, no pocas veces, à graves perjuicios que han sufrido las partes por el tenor de ellas. En vista de que aun los derechos sencillos tasados por los aranceles que decretò la Real Audiencia de Guatemala, no son proporcionados à las escasas facultades de los Costarricenses en todos conceptos: con presencia de que innumerables veces uno de los litigantes obra de mala fé; y atendiendo á que en tales casos, condenar igualmente en costas à ambos litigantes no està en el órden de la equidad, ha venido en decretar y decreta.
+Art. 1° En lo sucesivo no se cobraràn derechos dobles, ni triples por los instrumentos de cualquiera clase que otorguen las partes, ni por los actos judiciales que se versen en los negocios pertenecientes à comunidades ó muchas personas.
