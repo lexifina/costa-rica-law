@@ -1,0 +1,2 @@
+Art 7° Los Receptores de las Provincias y en esta Capital los encargados de vender el papel sellado, pólvora y billetes de subvención del ganado que se mata en los rastros, harán sus enteros el viernes de cada semana en el Banco Nacional y sus agencias y pasarán a la Secretaría de Hacienda un estado especificado de los ramos que componen el entero que hayan verificado.
+Dado en el Palacio Nacional de San José, a treinta de junio de mil ochocientos sesenta y nueve.

@@ -1,0 +1,1 @@
+Art 3° El Administrador actual entregará por inventario formal al Receptor que se nombre en virtud de esta ley, todos los valores, enseres y útiles que tengan en su poder. La partida en que aquel se date dichos valores será la primera de cargo en que cuenta de este último.
