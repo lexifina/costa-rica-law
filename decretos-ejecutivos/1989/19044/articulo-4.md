@@ -1,0 +1,1 @@
+Artículo 4°— En el tanto no se agote la emisión de los CPU, cualquier incremento en los impuestos, derechos o timbres para trámites migratorios se ajustará con timbres fiscales o con los que señale la institución beneficiaria.
