@@ -1,0 +1,1 @@
+Artículo 4°—Conforme lo establece el Código Municipal, la Municipalidad cobrará tasas para el mantenimiento de parques y zonas verdes publicas, para cada uno de los distritos conforme con el costo de inversión para cada uno de ellos.

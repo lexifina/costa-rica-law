@@ -1,0 +1,1 @@
+Artículo 7°—Se prohíbe transitar dentro del parque o sus aceras en bicicleta o patineta, así como animales u otro tipo de objetos que puedan deteriorar las instalaciones y causar accidentes a los usuarios del mismo.

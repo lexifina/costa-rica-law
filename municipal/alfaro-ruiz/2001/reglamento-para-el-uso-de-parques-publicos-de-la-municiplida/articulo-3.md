@@ -1,0 +1,2 @@
+Artículo 3°—Los permisos para celebración de actos culturales u otro tipo en los parques, los otorgará la organización que por delegación el Concejo Municipal se le haya encomendado su administración. No obstante, mientras no se delegue la administración de éstos, los permisos los otorgara el Alcalde Municipal, en segunda instancia el Concejo Municipal. Para otorgar dichos permisos, deberá considerarse lo dispuesto en el presente Reglamento.
+Entiéndase como área de parque el terreno comprendido al interno de las aceras en el cuadrante.
