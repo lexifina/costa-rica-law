@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por gastos de representación dentro del país, las erogaciones en que incurran los funcionarios y directores con ocasión del ejercicio de sus funciones, con el objeto de brindar atención a personas físicas o representantes de instituciones o empresas, nacionales o extranjeras, cuya relación sea de evidente interés para el Banco.

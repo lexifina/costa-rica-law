@@ -1,0 +1,3 @@
+Artículo 6º—La Unidad de Pagos o las Unidades de Contabilidad, según sea el caso, en la liquidación de adelantos o en el reembolso de gastos incurridos, observará que se cumpla con lo siguiente:
+a) El Coordinador de la Unidad correspondiente, verificará que los justificantes cumplan con todos los requisitos indicados en el artículo 5º de este Reglamento; se asegurará que el pago es procedente y determinará si se trata de la liquidación de un adelanto o de un reembolso Epor gastos de representación incurridos.
+b) Verificado lo anterior y habiendo otorgado el visto bueno correspondiente, traslada las facturas o comprobantes a los funcionarios responsables del registro contable respectivo, siguiendo el procedimiento establecido para estos fines, según corresponda.

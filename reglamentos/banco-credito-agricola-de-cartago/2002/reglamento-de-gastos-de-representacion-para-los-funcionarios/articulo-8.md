@@ -1,0 +1,1 @@
+Artículo 8º—La Unidad de Pagos, en el caso de la Oficina Central, y las Unidades de Contabilidad, en los Centros de Negocios, serán las unidades administrativas responsables de velar por el cumplimiento de cada una de las disposiciones del presente reglamento y de establecer, además, los controles necesarios para evitar la eventual duplicidad de los cobros.
