@@ -1,0 +1,1 @@
+Artículo 6º—Borde vertical izquierdo de las papeletas. Las papeletas para la elección de Alcalde serán encoladas en talonarios que tendrán en su parte izquierda un talón donde se consigna el encabezado de la papeleta con la numeración, la que es en tamaño 24, de forma tal que al desprender la papeleta, este talón es el que queda adherido al talonario.

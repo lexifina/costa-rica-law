@@ -1,0 +1,1 @@
+Artículo 2º—Color y diseño de cada papeleta. Las papeletas para Alcalde serán de color blanco; para Síndico y Concejales de Distrito color celeste y, en los ocho distritos electorales donde se elegirán Síndico, Intendente y Concejales Municipales de Distrito, serán de color rosado. El color será el mismo por ambos lados de la papeleta.

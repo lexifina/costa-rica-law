@@ -1,0 +1,1 @@
+Artículo 5º—Casillas con candidatos. Cuando el número de partidos políticos que participan en esta elección sea mayor de cuatro, se ubicarán en dos filas, una bajo la otra, y el texto referido en el párrafo segundo del artículo anterior irá en el centro de la papeleta; si son cuatro o menos dicho texto irá en la parte superior de la papeleta.
