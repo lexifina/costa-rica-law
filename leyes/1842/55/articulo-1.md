@@ -1,0 +1,6 @@
+DECRETO LV.
+El Gobierno Provisorio reforma el reglamento 22 de Febrero de 1839. (1)
+(1) Aprobado por el artículo 11 del Decreto de la Asamblea Constituyente n° 14 de 24 de Agosto de este año.
+El General Jefe Supremo Provisorio del Estado de Costa Rica.
+Considerando: que el decreto expedido en 22 de febrero de 1839 por el Jefe de Estado, para el arreglo del presidio urbano que establece el de 2 de diciembre de 1835, obliga á los condenados á obras públicas á satisfacer el valor de sus alimentos y á continuar con tal objeto en los trabajos del mismo presidio después de cumplido el tiempo de su sentencia, de manera, que la pena que se les aplica resulta mayor de la que corresponde al delito porque fueron juzgados: que iguales vejaciones se les causan con respecto al vestuario que reciben, que se les obliga á trabajar en los días de guarda, contraviniendo á los preceptos de la religión católica que profesan los costarricenses: que las penas como medios coactivos para obligarlos al trabajo que se aplican á los mismos presidiarios, se hallan en abierta contradicción con leyes fundamentales del Estado. De acuerdo con el informe de la junta creada por decreto de 18 del próximo pasado Abril, decreta.
+Art. 1° Los reos condenados al presidio urbano no serán obligados á trabajar en los días de guarda según los preceptos de la Iglesia Católica.
