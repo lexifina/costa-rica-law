@@ -14,3 +14,4 @@ Establece Sistema Sectorial Industrial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-08-22 | la propia norma |
+| 2 | 1977-11-04 | Decreto Ejecutivo 7663 (1977-11-04) |
