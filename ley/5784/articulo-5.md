@@ -1,4 +1,4 @@
-Artículo 5º.- Forman el Colegio de Cirujanos Dentistas de Costa
+ARTICULO 5º.- Forman el Colegio de Cirujanos Dentistas de Costa
 Rica, a saber:
 a) Los cirujanos dentistas actualmente inscritos; y
 b) Aquellos profesionales que cumplan con los requisitos de

@@ -1,4 +1,4 @@
-Artículo 19.- Para que se verifique válidamente una asamblea
+ARTICULO 19.- Para que se verifique válidamente una asamblea
 ordinaria o extraordinaria es preciso que se convoque, mediante aviso que
 se publicará durante dos días consecutivos en los diarios de mayor
 circulación, debiendo mediar por lo menos cinco días naturales entre la

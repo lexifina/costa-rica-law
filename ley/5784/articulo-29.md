@@ -1,4 +1,4 @@
-Artículo 29.- Son atribuciones del secretario:
+ARTICULO 29.- Son atribuciones del secretario:
 a) Redactar las actas de las sesiones y firmarlas junto con el
 presidente;
 b) Llevar la correspondiencia del Colegio que no fuere exclusiva del

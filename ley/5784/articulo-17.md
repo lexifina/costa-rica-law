@@ -1,6 +1,6 @@
 CAPITULO IV
 De las Asambleas Generales del Colegio
-Artículo 17.- Son atribuciones de la asamblea general:
+ARTICULO 17.- Son atribuciones de la asamblea general:
 a) Dictar los reglamentos necesarios para que el Colegio cumpla
 debidamente su cometido;
 b) Conocer el informe económico anual y aprobar el presupuesto de
