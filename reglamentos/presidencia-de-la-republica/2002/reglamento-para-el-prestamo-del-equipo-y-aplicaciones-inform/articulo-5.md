@@ -1,0 +1,1 @@
+Artículo 5º—El Sistema asumirá la capacitación respectiva de los funcionarios de los Despachos de los organismos e instituciones adscritas, necesaria para un correcto uso de los equipos y aplicaciones objeto de este Reglamento.

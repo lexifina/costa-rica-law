@@ -1,0 +1,1 @@
+Artículo 8º—Ante una notificación de daño, el Técnico asignado del Sistema realizará una inspección detallada y profunda del mismo y confeccionará una boleta de reporte, la cual deberá ser firmada por el Técnico del Sistema que atendió la avería y por el encargado del Despacho del organismo o institución adscrita correspondiente.

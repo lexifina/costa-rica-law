@@ -1,0 +1,1 @@
+Artículo 7º—En el caso de falla o daño sufrido por el equipo o aplicación, el encargado del Despacho del organismo o institución adscrita correspondiente deberá notificar vía fax, a la mayor brevedad posible, al Supervisor de turno del Sistema sobre la falla o daño, quien a su vez deberá contactar al personal técnico para que resuelva el problema.
