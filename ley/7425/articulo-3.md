@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Requisitos de la orden de secuestro, registro o examen.
+La orden de secuestro, registro o examen deberá efectuarse, so pena de nulidad, mediante auto fundado en el que se individualicen, de ser posible, los documentos sobre los que se ejecutará la medida de registro, secuestro o examen, el nombre de la persona que los tenga en su poder y el lugar donde se encuentran.
+De ser secuestrados otros documentos que no se incluyan en la orden, deberán restituirse inmediatamente a quien se le secuestraron, salvo que el Juez los estime trascendentales para esa u otra investigación; si así fuera, el Juez deberá ampliar la orden para incluirlos y justificar el motivo por el cual se incluyeron.
