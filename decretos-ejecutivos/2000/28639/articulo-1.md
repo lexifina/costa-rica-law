@@ -136,3 +136,5 @@ para la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias )
 respecto de la Oficina de Cooperación Internacional de la Salud)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29369 de 15 de febrero del 2001,
 respecto de la Dirección General del Archivo Nacional)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29368 de 27 de febrero del 2001,
+para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud)
