@@ -1,1 +1,2 @@
 Art. 25.-Dentro del termino de cuarenta días de nacida una persona debe hacerse la declaración ante el Registrador del respectivo lugar donde se haya verificado el nacimiento.
+(Nota de Sinalevi. Mediante el artículo 1° del decreto ejecutivo N° 10 del 19 de diciembre de 1907, se dispone lo siguiente: "...La declaración de nacimiento, prevenida en el artículo 25 del Reglamento del Estado Civil, podrá hacerse por el padre o por la madre que, sin cumplir tal formalidad, hubieren variado de residencia, ante el registrador del lugar en donde se hallaren.")
