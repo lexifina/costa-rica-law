@@ -1,0 +1,1 @@
+Articulo 27.-De la destitución de los suplentes: Los votos necesarios para destituir al alcalde municipal, deberán sumar al menos dos tercios de los emitiendose en el plebiscito, el cual no podrá ser inferior al diez por ciento (10%) del total de los electores inscritos en el cantón.

@@ -1,0 +1,1 @@
+Articulo 7°-Comisión Coordinadora de la Consulta Popular. El Concejo Municipal nombrara una comisión especial, formada par Regidores y Síndicos y vecinos notables, que se encarguen de la organización y dirección de la consulta, a la cual deberá prever los recursos suficientes para el cumplimiento de su cometido.

@@ -1,0 +1,2 @@
+Artículo 37.-Del derecho a voz: Los ciudadanos participantes haran lIegar al Presidente, en forma escrita, su solicitud para utilizar la palabra. La cual deberá contener su nombre completo y número de cédula. Las mismas serán receptadas por el Secretario Municipal y concedidas por el Presidente Municipal en el orden numérico que el Secretario haya consignado en la misma solicitud.
+EI Derecho a voz será ejercido por todos los presentes mayores de dieciocho años.

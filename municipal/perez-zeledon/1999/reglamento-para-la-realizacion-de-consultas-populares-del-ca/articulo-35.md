@@ -1,0 +1,1 @@
+Artículo 35.-De propuestas escritas: Si el Concejo Municipal lo considerá pertinente, podrái establecer un término no menor de un mes natural a partir de la difusión de dicha convocatoria para recibir propuestas escritas de los ciudadanos, relacionadas con el tema a discutir.

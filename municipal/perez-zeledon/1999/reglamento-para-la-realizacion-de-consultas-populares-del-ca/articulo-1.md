@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE PEREZ ZELEDON
+El Concejo Municipal de Péerz zeledón, en session ordinaria número 077-99, artículo 6, inciso 4, celebrada el día 6 de Julio de 1999, aprobó ratificar la publicación realizada en “La Gaceta” número 114 del 14 de junio de 1999, en la cual se publicó Reglamento, para realización de consultas del canton de Pérez Zeledón, Proyecto de reglamento de los Concejos de Distrito del Cantón de Pérez Zeledón y el Proyecto de Reglamento Interior de Orden, Dirección, Comisiones y Debates del Concejo Municipal de Pérez zeledón.
+(Nota de Sinalevi: Tal y como se indica en el párrafo anterior, el texto del Reglamento, para realización de consultas del canton de Pérez Zeledón, fue publicado en La Gaceta N° 114 del 14 de junio de 1999)
+(Nota de Sinalevi: Por tener artículo propio los Proyecto de reglamento de los Concejos de Distrito del Cantón de Pérez Zeledón y el Proyecto de Reglamento Interior de Orden, Dirección, Comisiones y Debates del Concejo Municipal de Pérez zeledón, pueden consultarse en el sistema de forma independiente)
+EI Concejo Municipal de Pérez Zeledón, en sesión 68-99, en su articulo 6°, inciso 4), celebrada el día 4 de mayo de 1999, aprobó: EI Proyecto de Reglamento de los Consejos de Distrito del Cantón de Pérez Zeledón y el Proyecto de Reglamento para la Realización de Consultas Populares del Cantón de Pérez Zeledón.
+PROYECTO DE REGLAMENTO PARA LA REALIZACION DE
+CONSULTAS POPULARES DEL CANTON DE PEREZ ZELEDON
+EI Concejo Municipal del Cantón de Pérez Zeledón, con fundamento en la ley N° 7794, del 30 de abril de 1998, Código Municipal en sus artículos 4°, inciso g), 5°, 13, inciso j), 14, 57 y la ley N° 1536, del 3 de diciembre de 1952, Código Electoral, los reglamentos y disposiciones establecidos por el Tribunal Supremo de Elecciones al respecto; establece el presente Proyecto de Reglamento para la Realización de Consultas Populares del Cantón de Pérez Zeledón.
+CAPITULO I
+Definición y objetivos de las consultas
+Articulo 1°-Consulta Popular: Se entiende por consulta popular el mecanismo mediante el cual la Municipalidad de Pérez Zeledón somete a consideración de los ciudadanos un determinado asunto, a fin de obtener el criterio colectivo.

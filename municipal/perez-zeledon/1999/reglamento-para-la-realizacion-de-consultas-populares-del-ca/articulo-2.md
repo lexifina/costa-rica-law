@@ -1,0 +1,1 @@
+Articulo 2°-Plebiscito: Es la consulta popular mediante la cual los habitantes del Cantón se pronuncian sobre un asunto de trascendencia regional, o se manifiestan sobre la revocatoria del mandato del Alcalde Municipal.
