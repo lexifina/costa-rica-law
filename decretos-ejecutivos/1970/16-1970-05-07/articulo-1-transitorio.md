@@ -1,0 +1,1 @@
+Artículo Transitorio.- Los poderes actualmente inscritos constituidos para representar a las Temporalidades de las distintas Diócesis, seguirán surtiendo plenos efectos legales sin necesidad de nueva inscripción.

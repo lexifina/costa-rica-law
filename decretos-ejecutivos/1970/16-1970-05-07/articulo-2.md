@@ -1,0 +1,1 @@
+Artículo 2°- La Conferencia Episcopal Nacional de Costa Rica, podrá constituir igualmente apoderado o apoderados con las facultades que estime necesario conferirles para adquirir o disponer de los bienes muebles o inmuebles que pertenezcan a la Conferencia Episcopal o que ella adquiera de terceras personas.
