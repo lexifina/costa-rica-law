@@ -1,0 +1,1 @@
+Artículo 10.-EI pago de la compensación económica por concepto de disponibilidad, se suspenderá cuando la funcionaria no esté cumplen funciones de Tía Sustituta, esté disfrutando de una licencia sin goce salario, o de vacaciones.
