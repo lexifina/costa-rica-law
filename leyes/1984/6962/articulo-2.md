@@ -1,0 +1,2 @@
+Artículo 2º.- Modifíquese en la forma que se indica a continuación, los egresos aprobados en el artículo 4º de la Ley de Presupuesto Nacional de 1984, para reconocer, a partir del 1º de enero de 1984, el pago de los aumentos anuales a los servidores del Poder Judicial, de conformidad con lo que establece la ley Nº 6801 del 24 de agosto de 1982.
+Los gastos de representación asignados en este presupuesto formarán parte del salario del respectivo funcionario.

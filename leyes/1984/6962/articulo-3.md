@@ -1,0 +1,1 @@
+Artículo 3º.- Se autoriza a la Municipalidad de Moravia para que utilice la partida específica de ¢ 90.000,00 (para electrificación de la calle La Huesera), en la electrificación de la calle bis, a la entrada de la escuela La Isla de Moravia, y en dotar a esta escuela de sus instalaciones eléctricas.
