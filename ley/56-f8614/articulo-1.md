@@ -1,0 +1,6 @@
+DECRETO LVL.
+Suprime las cátedras de filosofía y latinidad en la Provincia de Guanacaste, y establece en su lugar una escuela de primeras Letras (1)
+(1) Refundido en el Reglamento de Instrucción Pública n° 10 de 26 de octubre1849.
+“El Vice-Jefe en ejercicio del Supremo Poder Ejecutivo del Estado Libre de Costa Rica.
+Considerando: que por el atraso en que está la educación primaria en el Departamento del Guanacaste a causa de no haber fondos municipales para sostenerla y fomentar la coma no hay un número competente de jóvenes que puedan cursar las clases de dichos Departamentos establecidos en virtud del art° 5 del decreto de 03 de mayo de1843, ni puede haberlo en adelante si continúan faltando los rudimentos de instrucción general; que en tal concepto, es inútil haya en aquella sección Cátedra de latinidad y filosofía; y que por tanto es conveniente sustituirlas, como lo han pedido al Gobierno aquellos pueblos, con una escuela de primeras letras formalmente planteada; de acuerdo con sus Ministros decreta.
+Art. 1° Se suprimen las Cátedras de latinidad y filosofía de la Ciudad del Guanacaste, y en su lugar se establece, bajo la inspección de aquella Municipalidad, una escuela de primeras letras cuyo director será nombrado por el Gobierno y gozará la dotación de veinte pesos mensuales que se pagarán del tesoro de la universidad.
