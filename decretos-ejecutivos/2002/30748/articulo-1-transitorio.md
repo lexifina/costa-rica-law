@@ -1,0 +1,1 @@
+Transitorio I.—Los vehículos actualmente inscritos con código de taxi, aún cuando continúen operando con la misma unidad, deberán gestionar el respectivo cambio de placa, conforme lo dispuesto en el punto 4 del artículo 3º de este Decreto.
