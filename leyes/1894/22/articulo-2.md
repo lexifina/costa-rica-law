@@ -1,0 +1,1 @@
+Artículo 2° Se concede una prima de veinticinco centavos por cada árbol de cacao a los que desde la publicación de esta ley se dediquen en la República a su cultivo, y que siembren por lo menos quinientos árboles. Esta prima se pagará cuando tenga la planta tres años de edad y esta bien cultivada.

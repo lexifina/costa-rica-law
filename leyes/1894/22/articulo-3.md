@@ -1,0 +1,1 @@
+Art 3° La prima concedida en el artículo anterior no comprende a las Empresas, compañías o particulares a quienes el Gobierno haya hecho especiales concesiones en contratos celebrados o que celebre para el desarrollo de la agricultura.
