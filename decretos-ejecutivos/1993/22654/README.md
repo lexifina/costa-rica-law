@@ -15,3 +15,4 @@ Addendum al Contrato de Dedicación Exclusiva decreto ejecutivo N° 20182
 | --- | --- | --- |
 | 1 | 1993-11-15 | la propia norma |
 | 2 | 1993-11-15 | SINALEVI (sin norma nombrada) |
+| 3 | 1994-03-25 | Decreto Ejecutivo 23103 (1994-03-25) |
