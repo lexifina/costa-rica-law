@@ -1,0 +1,1 @@
+Artículo 28.—Control de Auditoría. La Auditoría Interna está facultada para efectuar las verificaciones o arqueos sorpresivos totales en cualquiera de los fondos existentes y en el momento que así lo considere.

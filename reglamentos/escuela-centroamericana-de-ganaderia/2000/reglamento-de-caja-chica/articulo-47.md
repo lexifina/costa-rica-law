@@ -1,0 +1,1 @@
+Artículo 47.—Incumplimiento y trámite disciplinario. El incumplimiento de cualquiera de las obligaciones contenidas en el presente Reglamento se comunicará a la Unidad de Servicios de Personal, en un plazo no mayor de cinco días hábiles, desde que la Dirección Financiero-Contable tuvo conocimiento del hecho para la aplicación de las medidas disciplinarias correspondientes.

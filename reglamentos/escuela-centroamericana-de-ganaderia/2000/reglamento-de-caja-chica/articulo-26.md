@@ -1,0 +1,5 @@
+Artículo 26.—Arqueos. La Oficina de Contabilidad y de Tesorería, efectuará verificaciones o arqueos sorpresivos totales a la Caja Chica cuando lo considere conveniente.
+El responsable de la Caja Chica realizará diariamente un arqueo para el cierre de caja y en caso de detectar alguna inconsistencia emitirá un informe a la Oficina de Tesorería y a la Dirección Financiero-Contable.
+Cualquier faltante que se produzca al momento de practicarse el arqueo, deberá ser cubierto de inmediato por el responsable del manejo del fondo. En caso de sobrante, deberá confeccionarse el recibo correspondiente y depositar el dinero en la cuenta corriente bancaria.
+En ambos casos, el responsable del manejo de fondos, deberá informar por escrito a la Oficina de Tesorería y a la Dirección Financiero-Contable, con copia del documentos respectivo, en el transcurso de los siguientes tres días hábiles, sin perjuicio de las medidas disciplinarias que correspondan si se demuestra la existencia de una administración irregular de los fondos.
+El encargado de la operación de los fondos está obligado a brindar la información requerida para practicar los arqueos que sean necesarios.

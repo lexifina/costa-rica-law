@@ -1,0 +1,1 @@
+Artículo 14.—Aval presupuestario. Previo a efectuar el adelanto de dinero, se requiere que todo Vale de Caja Chica o Solicitud de Compra de Bienes o Servicios, tenga el aval de la Unidad de Planificación y Presupuesto, con el fin de garantizar la existencia de contenido presupuestario. De no cumplirse con este requisito, previo al gasto que se origine, no se girará el adelanto.

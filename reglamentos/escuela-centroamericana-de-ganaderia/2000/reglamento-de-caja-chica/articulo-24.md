@@ -1,0 +1,1 @@
+Artículo 24.—Prohibiciones sobre cheques. Los fondos de Caja Chica únicamente podrán recibir dinero en efectivo por conceptos de liquidación o devolución de anticipos. Es prohibido cambiar cheques personales con dineros de este fondo.

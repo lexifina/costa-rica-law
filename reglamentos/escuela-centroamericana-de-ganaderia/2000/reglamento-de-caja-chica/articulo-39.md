@@ -1,0 +1,1 @@
+Artículo 39.—Cese del Encargado del Fondo. Cuando el Encargado del Manejo de una Caja Chica, cese en sus funciones, o se ausente de su trabajo temporalmente y se requiera designar un nuevo funcionario, debe realizarse arqueo, el cual debe estar firmado por el funcionario que entrega y recibe los fondos.

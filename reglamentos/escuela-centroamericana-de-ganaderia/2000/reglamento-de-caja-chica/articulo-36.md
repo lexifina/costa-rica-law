@@ -1,0 +1,1 @@
+Artículo 36.—Reintegro de Caja Chica. Para el reembolso del fondo de Caja Chica debe utilizarse el formulario denominado "Solicitud de Reintegro de Caja Chica". El Encargado de Caja Chica es el único responsable de solicitar el reintegro semanalmente.

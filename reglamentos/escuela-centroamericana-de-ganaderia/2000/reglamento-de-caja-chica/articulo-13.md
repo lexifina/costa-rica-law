@@ -1,0 +1,1 @@
+Artículo 13.—Autorización. Los Vales de Caja Chica deberán ser firmados por el funcionario autorizado para tal fin. Para efectos de validez, dicha firma deberá ser confrontada con el registro de firmas.

@@ -1,0 +1,1 @@
+Artículo 50.—Derogatoria. El presente Reglamento deroga el "Reglamento para la Custodia y Manejo de la Caja Chica de la Escuela Centroamericana de Ganadería", aprobado por el Consejo Directivo de la ECAG en sesión ordinaria Nº 309, celebrada el 21 de mayo de 1985, así como cualquier otra disposición interna relativa a esta materia.

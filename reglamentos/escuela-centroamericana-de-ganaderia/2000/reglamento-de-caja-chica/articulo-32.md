@@ -1,0 +1,4 @@
+Artículo 32.—Liquidación del "Vale de Caja Chica. Toda liquidación de adelanto de dinero para compra de bienes y servicios debe hacerse mediante la presentación de los siguientes documentos:
+a. Original de la factura o comprobante de pago. En las facturas no se debe utilizar como descripción la palabra "varios", el detalle debe ser suficiente para su justificación y clasificación.
+b. Recepción de Bienes y Servicios. Toda factura deberá estar aprobada por el Jefe respectivo (firma y nombre completo), dando fe que el pago incurrido es correcto y necesario para el cumplimiento de los objetivos y metas de la Unidad a su cargo.
+c. Otros documentos o informaciones que se amerite. Cuando se trate de compras de repuestos, materiales y suministros deberá indicar, al dorso de la factura, el uso que se le dará a los mismos. En el caso de repuestos y servicios, se debe especificar el número de activo en el que se utilizará.
