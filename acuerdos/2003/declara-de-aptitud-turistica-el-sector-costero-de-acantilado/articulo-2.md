@@ -1,0 +1,4 @@
+B. Declarar de Aptitud Turística el sector costero comprendido desde la declaratoria de ciudad de Golfito, continuando hacia el sur bordeando el litoral en donde se incluyen Unidades Naturales de playa, Puntas como Mono Congo, Punta La Cerra, sectores aledaños a los Manglares que se identifican en la cartografía, los sectores de “rías” que se definan a ambos lados de la margen del Río Coto Colorado, los sectores aledaños a los esteros Esperanza, Colorado, Fonseca, Marchena, hasta el sector de Playa Zancudo, incluye en su totalidad el sector de “isla continental” conocido como Isla Segura, sita en el distrito de Golfito, cantón de Golfito, provincia de Puntarenas, ubicado entre las coordenadas Lambert Costa Rica Sur:
+Coordenadas: 284 000 N - 558 400 E
+274 200 N - 558 550 E
+Según la hoja cartográfica Golfito 3541 I a escala 1:50.000 del Instituto Geográfico Nacional, proyección Costa Rica Sur.
