@@ -14,3 +14,4 @@ Reglamento para el registro y control de los bienes muebles del Instituto de Des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-05 | la propia norma |
+| 2 | 2002-03-18 | Reglamento 22 (2002-03-18) |

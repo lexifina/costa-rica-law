@@ -5,3 +5,5 @@ C. Disminuciones del inventario: es la operación física y contable demostrativ
 D. El Instituto: el Instituto de Desarrollo Agrario, creado por Ley No 6735 del 29 de marzo de 1982.
 E. La contabilidad general: el área de contabilidad general del departamento - financiero del Instituto.
 F. Contratación y suministros: el área de contratación y suministros del Departamento Administrativo del Instituto.
+G. Control de Activos: Unidad que se encuentra adscrita a la Dirección del Departamento Administrativo.
+(Así adicionado este inciso por acuerdo tomado por la Junta Directiva en la sesión N° 022-02, celebrada el 18 de marzo de 2002)
