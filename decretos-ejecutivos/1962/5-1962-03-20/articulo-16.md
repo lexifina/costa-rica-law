@@ -1,2 +1,0 @@
-Artículo 16.-El Consejo Directivo será instalado por el Ministro de Economía, Industria y Comercio(*) o por su representante al iniciarse cada período bienal de labores; elegirá de su seno un Presidente, un Vicepresidente, un Secretario y un Tesorero que pueden ser reelectos.
-(*) (Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 19882 del 2 de agosto de 1990. Anteriormente se indicaba: “Ministerio de Economía y Hacienda”)

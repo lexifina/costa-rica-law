@@ -1,1 +1,0 @@
-Artículo 17.-Cuando alguno de los asistentes a las sesiones del Consejo Directivo tuviere interés personal en el trámite de una operación o lo tuvieren sus socios o parientes dentro del tercer grado de consanguinidad o segundo de afinidad inclusive, deberá retirarse de la respectiva sesión, mientras se discute y resuelve el asunto en que está interesado.

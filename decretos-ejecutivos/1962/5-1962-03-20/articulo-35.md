@@ -1,1 +1,0 @@
-Artículo 35.-Además de lo dispuesto en la ley N° 2072, la Junta se regirá por las leyes supletorias o conexas, por el presente Reglamento y por los reglamentos y acuerdos que dicte el Consejo Directivo.

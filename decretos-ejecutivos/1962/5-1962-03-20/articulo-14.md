@@ -1,2 +1,0 @@
-Artículo 14.-El Consejo Directivo se reunir en sesión ordinaria dos veces por mes, en el lugar, día y hora que él determine; en sesión extraordinaria, cuando sea convocado por su presidente, ya sea por determinación propia o cuando así lo soliciten dos o más de sus miembros. Tres miembros harán quórum para sesionar válidamente; los acuerdos se tomarán por mayoría absoluta de los votos presentes, salvo los casos en que la ley o los reglamentos exijan mayor número de votos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13910 del 5 de octubre de 1982)

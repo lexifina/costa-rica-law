@@ -1,1 +1,0 @@
-Artículo 22.-La Oficina Administrativa repartirá entre los miembros directores, a más tardar dos días hábiles antes del día de la sesión respectiva, copia de las actas que deberán ser aprobadas y de su exactitud se hace responsable.
