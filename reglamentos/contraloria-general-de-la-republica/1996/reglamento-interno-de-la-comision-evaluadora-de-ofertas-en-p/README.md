@@ -14,3 +14,4 @@ Reglamento Interno de la Comisión Evaluadora de Ofertas en Procedimientos de Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-03 | la propia norma |
+| 2 | 1997-01-21 | Resolución 2200 (1997-01-21) |
