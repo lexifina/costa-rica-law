@@ -10,3 +10,4 @@ Considerando:
 5º—Que para atender lo anterior, se hace necesario modificar el límite de gasto presupuestario y efectivo para el 2001 de la Junta de Protección Social de San José. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el límite de gasto presupuestario y efectivo establecido para la Junta de Protección Social de San José, en el artículo 1° del Decreto Ejecutivo N° 28639-H y sus reformas, fijándolo en ¢4.997.8 millones el presupuestario y ¢4.633.8 millones el efectivo.
+(Así modificado mediante artículo 1° del Decreto Ejecutivo 29867 de 24 de setiembre del 2001)

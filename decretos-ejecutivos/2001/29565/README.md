@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario y efectivo para la Junta de Protección
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-14 | la propia norma |
+| 2 | 2001-09-24 | Decreto Ejecutivo 29867 (2001-09-24) |
