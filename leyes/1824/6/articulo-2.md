@@ -1,0 +1,3 @@
+Art 2°.- Los Eclesiástico a quienes toque el cumplimiento del artículo anterior lo acreditarán con certificación de la respectiva Municipalidad que remitirán al Gobierno, y este lo hará al Congreso.
+Comuníquese al Gefe del Estado para execución publicación, y circulación= Dios Unión Libertad San José setiembre veinte y tres de mil ochocientos veinte y quatro=Agustin Gutierrez Lizaursabal Diputado Presidente=Manuel Alvarado Diputado Secretario=Al Superior del Estado.
+Por tanto mandamos se guarde, cumpla y execute en todas sus partes. Lo tendrá entendido el Secretario del despacho, y hará se publique y circule. San José Setiembre 24 de 1824.
