@@ -1,0 +1,8 @@
+Art 140° Incurrirá en la pena de presidio a deportación previa degradación en su caso.
+1° El que facilite al enemigo ya en tiempo de paz o de guerra, el Santo, Seña o Contraseña, planos, estados de fuerza, órdenes circuladas por las líneas telegráficas u otras datos o noticias que puedan favorecer sus operaciones o perjudicar las del Ejercito Nacional.
+2° El que malverse caudales o efectos del Ejercito en Campaña, con daño de las operaciones de guerra o perjuicio de las tropas.
+3° Que falsifique un documento referente al servicio militar o haga, a sabiendas, uso de él cuando se emplee para causar perturbaciones o quebrantos en las operaciones de la guerra, u ocasione la entrega de una Plaza o puesto militar.
+4° Que dé a sus superiores, maliciosamente noticias contrarias a las que supiere acerca de las operaciones de la guerra.
+5° Que en la Plaza sitiada o blanqueada o en operaciones de Campaña promueva algún complot, o seduzca alguna fuerza para obligar al que mande a rendirse, capitular o retirarse.
+Los individuos de las clases de tropa y las personas no militares que, en este caso, no sean jefes o promovedores, sufrirán la pena de uno a cinco años de presidio
+6° Que en Campaña o territorio declarado en estado de guerra inutilice, de propósito caminos, vías férreas, comunicaciones, telegráficas, telefónicas o de otra clase y sus aparatos cause averías que interrumpan el servicio destruya canales, puentes, obras de defensa, armas, municiones o cualquier otro material de guerra, o víveres para el aprovisionamiento del Ejercito, intercepte convoyes o correspondencia o de cualquier otro modo malicioso ponga entorpecimiento a las operaciones del Ejercito o facilite las del enemigo.

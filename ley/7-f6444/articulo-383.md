@@ -1,0 +1,1 @@
+Art 383° El registro se hará, siendo posible a presencia del interesado o de la persona que lo represente, y en su defecto, a presencia de un individuo de su familia, mayor de edad y sino lo hubiese de dos testigos vecinos del lugar.

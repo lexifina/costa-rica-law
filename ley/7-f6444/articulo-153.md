@@ -1,0 +1,1 @@
+Art 153° El militar que en la guerra despoje y se apropie del dinero o alhajas que sus compañeros de armas muertos en el campo llevaren sobre si, será castigado como reo de robo con violencia en las personas.

@@ -1,0 +1,1 @@
+Art 165° Asimismo, serán reputados culpables de sedición y tenidos como cabeza o promotores de ella, incurriendo en la misma pena señalada a éstos, los que seduzcan tropas para promover por cualesquiera actos directores la insubordinación en las filas del Ejército.

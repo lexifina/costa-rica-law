@@ -1,0 +1,1 @@
+Art 257° No llegando a un acuerdo las autoridades de Guerra, que sostengan cuestión de competencia, la someterán a la Comandancia en Jefe, con remisión de las actuaciones originales y testimonios del incidente.

@@ -1,0 +1,2 @@
+Art 218° El individuo de las clases de tropa que enajene o distraiga armas municiones, prendas del equipo u otros objetos que hubiere recibido para su uso en el servicio incurrirá en la pena de reclusión en celda, si el valor de lo defraudado no excede de diez pesos, y en la de presidio de uno a dos años si excediere.
+En la misma pena incurrirá el militar que enajene o distraiga aparatos o efectos de la estación telegráfica o telefónica en que preste sus servicios cualesquiera que sea el valor de lo defraudado a no constituir el hecho otro delito mas grave.

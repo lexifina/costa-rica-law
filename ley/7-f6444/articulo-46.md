@@ -1,0 +1,1 @@
+Art 46° Los testigos que sepan escribir firmarán el extracto de sus declaraciones después de leerlas, y de corregidas, si algo tuvieren que aclarar o hubiere sido mal puesto y todo será autorizado por el Fiscal y el Secretario firmando el defensor aquello en que hubiere intervenido.

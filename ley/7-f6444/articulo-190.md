@@ -1,0 +1,1 @@
+Art 190° Sufrirá la pena de presidio o de reclusión en celda el Oficial que, por negligencia u omisión en el cumplimiento de sus deberes, sea causa de daños considerables en las operaciones de guerra.

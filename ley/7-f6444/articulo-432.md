@@ -1,0 +1,1 @@
+Art 432° Cuando el procesado no se conforme con los cargos, o cuando siendo varios los procesados, unos se conformen y otros no continuará la tramitación de las actuaciones omitiéndose las diligencias de ampliación que se refieran a los que hubiesen manifestado en su conformidad.

@@ -1,0 +1,1 @@
+Art 91° La competencia del Teniente Coronel y Comandante de un Batallón o de algunas Compañías, se distingue de la del Capitán en que puede extender toda pena hasta ocho días más, e imponer a los Oficiales subalternos inmediatos, arresto de rigor hasta por ocho días.

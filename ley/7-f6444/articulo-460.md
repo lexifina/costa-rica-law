@@ -1,0 +1,1 @@
+Art 460° Fuerza del local en que se celebre el Consejo, estarán prontos los testigos que hayan de ser examinados, debiendo comparecer por separado y contestar las preguntas que se le dirijan, así por el Fiscal como por el defensor, siempre que el Presidente las juzgue admisibles.

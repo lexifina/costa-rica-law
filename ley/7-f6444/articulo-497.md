@@ -1,0 +1,1 @@
+Art 497° Recibido un proceso en apelación o consulta y vencido el término del emplazamiento, la Corte Superior Marcial correrá traslados a las partes por tres días y por su orden, y evacuados éstos, señalará día y hora para la vista.

@@ -1,0 +1,1 @@
+Art 427° Cuando varios procesados eligiesen un mismo defensor y hubiera incompatibilidad entre la defensa de unos y otros el nombramiento sólo a proveeduría al primero que lo eligió debiendo el Juez Instructor requerir a los demás para que hagan nueva elección.

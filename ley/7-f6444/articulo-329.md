@@ -1,0 +1,1 @@
+Art 329 No se harán al declarante preguntas capciosas ni sugestivas, ni con él se empleará coacción, engaño, promesa o artículo alguno para obligarle o inducirle a que se declare en determinado sentido.

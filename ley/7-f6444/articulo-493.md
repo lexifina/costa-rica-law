@@ -1,0 +1,3 @@
+Art 493° La autoridad o tribunal que conozca de la causa en que estuviere procesando el reo ausente en territorio extranjero, será competente para pedir su extradición y lo hará en forma de suplicatorio dirigido a la Secretaria de la Guerra.
+Se le exceptúa el caso en que, estuviere procesado el reo ausente en territorio extranjero, será competente para pedir su extradición y lo hará en forma de suplicatorio dirigido a la Secretaria de la Guerra.
+Se exceptúa el caso en que, por el tratado vigente con la nación en cuyo territorio se hallase el procesado, puede pedir directamente la extradición la autoridad o tribunal que conozca de la causa.

@@ -1,0 +1,1 @@
+Art 341° El Juez Instructor, antes de empezar la declaración, advertirá al testigo la obligación que tiene de decir verdad, haciéndole saber además si faltare a ella, incurrirá en la pena señalada por la ley al reo de falso testimonio.

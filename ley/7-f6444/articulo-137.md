@@ -1,0 +1,2 @@
+Art 137° La declaración de la responsabilidad civil que pueda resultar contra persona no sometidas al procedimiento criminal militar, corresponde a la jurisdicción ordinaria.
+Si dicha responsabilidad recae en individuos del Ejercito por actos u omisiones referentes al servicio militar, será apreciada y exigida gubernativamente por las autoridades militares, conforme a los Reglamentos u Ordenes Generales de la Comandancia en Jefe.

@@ -1,0 +1,1 @@
+Art 151° El militar que maliciosamente destruya inutilice o sustraiga libros, registros u otros documentos de interés que pertenezcan a las autoridades, cuerpos o dependencias del Ejercito, así como despachos telegráficos o cinta de la estación en que se halle de servicio u otra clase de correspondencia oficial, incurrirá en la pena de reclusión de celda.

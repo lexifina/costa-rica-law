@@ -1,0 +1,1 @@
+Art 174° El que de palabra, por escrito, o en otra forma equivalente, injurie u ofenda clara o encubiertamente al Ejercito o a instituciones, armas, clases o Cuerpos determinados del mismo, incurrirá en la pena de prisión militar.

@@ -1,0 +1,2 @@
+Art 99 En cuanto a los no combatientes, el derecho de imponer penas correccionales por faltas de disciplina, se observará como sigue:
+Todo funcionario o empleado en los Estados Mayores, en la Administración Militar, Cuerpo de Ingenieros, Jurídico Militar de Sanidad, servicio de tren, telégrafos, etc, etc, ejerce la competencia inherente al grado de cuyo rango, goza, respecto de todo militar de grado inferior, subordinados todos sin embargo al Superior combatiente en cuanto a orden y disciplina.

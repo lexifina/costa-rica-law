@@ -1,0 +1,1 @@
+Art 44° El nombramiento de defensor podrá, en este caso, recaer en cualquier Oficial franco, sea cual fuere su graduación, y no podrá excusarse sino por impedimento físico o por tener que desempeñar en el mismo día alguna función del servicio, respecto de la cual estimen los superiores que sea perjudicial revelarlo, como deberá hacerse en caso contrario.

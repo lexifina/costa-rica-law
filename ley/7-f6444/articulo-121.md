@@ -1,0 +1,1 @@
+Art 121° Toda pena impuesta a Oficial por delitos contra la propiedad llevará consigo, como accesoria, la de separación del servicio aun en los casos que por naturaleza o extensión no correspondiera ésta, con sujeción a las reglas generales.

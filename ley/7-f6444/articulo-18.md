@@ -1,0 +1,1 @@
+Art 18° En los casos en que deban conocer distintas jurisdicciones de delitos imputados a un mismo individuo, tendrá preferencia para seguir el procedimiento hasta su terminado por sentencia, la que haya de aplicar la pena mas grave, debiendo esperar las demás el oportuno testimonio de condena.

@@ -1,0 +1,1 @@
+Art 282° La persona citada, notificada o emplazada firmará la papeleta o diligencia, o lo hará un testigo si no supiese firmar o no se le encontrare. Sino quisiese, firmará un testigo buscado al efecto, a más del Secretario.

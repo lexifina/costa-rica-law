@@ -1,0 +1,2 @@
+Art 388° Puede el Juez Instructor decretar la intercepción de la correspondencia privada, postal y telegráfica que el procesado remitiese o recibiese, y su apertura y examen, si hubiere fundamento para obtener por este medio el descubrimiento para obtener y la comprobación de algún hecho o circunstancia importante de la causa.
+La orden se hará saber si al jefe para que hagan la detención y entrega de la correspondencia bajo recibo.

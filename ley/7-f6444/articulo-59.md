@@ -1,0 +1,2 @@
+Art 59° Cuando resultaren complicados en una misma causa individuos de diferentes categorías, dictará sentencia el Tribunal llamado a juzgar al más caracterizado.
+Cuando se trate de los delitos de traición, rebelión y sedición, cometidos en diferentes lugares, aunque medie concierto previo al efecto, podrá conocer de cada uno de dichos delitos la autoridad militar del Ejército, provincia o comarca en que se hubiesen cometido.

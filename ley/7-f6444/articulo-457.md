@@ -1,0 +1,1 @@
+Art 457° El Secretario del Juez instructor, o uno de los Vocales del Consejo designados por el Presidente, hará lectura de la causa, leyendo las actuaciones que sean esenciales, y dando suscita cuenta de las de mera sustanciación, a cuyo fin hará previamente el Secretario un rápido apuntamiento de los autos.

@@ -1,0 +1,2 @@
+Art 385° Sólo se suspenderá el acto del registro cuando por algún motivo, muy justificado no sea posible continuarlo.
+En caso de suspensión, además de las medidas de vigilancia de que trata el artículo 381, el local y se sellen los muebles no registrados, previniendo a los que se hallen en el edificio o lugar de la diligencia que no levanten los sellos, violenten las cerraduras ni permitan que lo hagan otras personas bajo la responsabilidad establecidas en las leyes comunes.

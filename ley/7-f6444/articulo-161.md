@@ -1,0 +1,2 @@
+Art 161° Será siempre considerado como promovedor del delito de sedición el militar veterano o miliciano que, estando la tropa sobre las armas, o reunida para tomarlas, levante la voz en sentido subversivo o de otro modo excite a la comisión de aquel delito.
+Cuando en el acto no se descubra al que dé la voz sufrirán la pena de prisión militar los individuos que los Jefes allí presentes conceptúen mas próximos al sitio de donde hubiere salido aquélla. Quedarán exentos de la pena si señala al verdadero culpable.
