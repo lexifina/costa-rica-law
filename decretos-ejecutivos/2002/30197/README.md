@@ -14,3 +14,4 @@ Reforma al Reglamento a la Ley de Productores, Beneficiadores y Exportadores de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-11 | la propia norma |
+| 2 | 2002-04-23 | Decreto Ejecutivo 30305 (2002-04-23) |
