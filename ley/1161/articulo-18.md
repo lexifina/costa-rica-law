@@ -1,1 +1,0 @@
-Artículo 18.- Si los actos u omisiones base del recurso de Amparo declarado procedente volvieren a repetirse en daño de la misma persona, de modo que dieren fundamento para que se acoja un nuevo recurso de Amparo, y si fuere su autor el mismo funcionario o empleado, éste será penado con prisión de una año a cuatro años.
