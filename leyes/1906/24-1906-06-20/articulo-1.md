@@ -1,4 +1,6 @@
+(Derogado)
 N° 24
+(Esta norma fue deorgada por el artículo 1° de la ley N° 7 del 15 de mayo de 1908)
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA,
 A iniciativa del Poder Ejecutivo y de conformidad con lo que dispone la fracción 13a del artículo 73 de la Constitución,
