@@ -1,0 +1,1 @@
+ARTICULO 4. Los ingresos brutos anuales producto de la actividad realizada determinaran el monto del impuesto de patentes, que Ie corresponde pagar a cada contribuyente. Se aplicara el uno coma cero (1 ,0) por mil sobre los ingresos brutos. Esa suma dividida entre cuatro, determinara el impuesto trimestral por pagar.
