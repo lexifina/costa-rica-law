@@ -1,0 +1,2 @@
+Artículo 37º. De la pérdida del derecho al pago de subsidios.
+El asegurado que incurra en fraude, adultere documentos o haya inducido a engaño al médico tratante, pierde el derecho al subsidio. Igual sanción rige respecto del asegurado que se ocupe de labores remuneradas durante el período de incapacidad, o se niegue a cumplir las prescripciones médicas que se le impartan. En estas dos últimas hipótesis, el pago, sin derecho al reintegro de los subsidios suspendidos, se reanudará en cuanto el asegurado haya modificado su conducta.

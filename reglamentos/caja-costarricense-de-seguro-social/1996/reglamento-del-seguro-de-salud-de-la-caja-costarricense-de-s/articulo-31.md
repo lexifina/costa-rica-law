@@ -1,0 +1,2 @@
+Artículo 31º. De la incompatibilidad del subsidio con otras prestaciones.
+El derecho al pago de subsidios aquí previsto es incompatible con otras prestaciones económicas contempladas en leyes especiales, con motivo de la misma enfermedad común. En el momento en que se dé la doble cobertura, el monto del subsidio se reducirá, de modo que el beneficio total que perciba el trabajador asalariado no sobrepase el 100% de su salario.

@@ -1,0 +1,2 @@
+Artículo 32º. De las incapacidades a cargo del I.N.S.
+No procede el pago de subsidios por enfermedad cuando se esté frente a los riesgos del trabajo o accidente de tránsito. En este último caso se actuará dentro de los límites de la póliza del Seguro Obligatorio de Vehículos, según convenio entre la Caja y el Instituto Nacional de Seguros. Con posterioridad al agotamiento de la póliza y en el evento de que la Caja otorgue nuevas incapacidades, éstas podrán pagarse según los plazos establecidos en este Reglamento, sumando para este efecto los días pagados por el I.N.S.

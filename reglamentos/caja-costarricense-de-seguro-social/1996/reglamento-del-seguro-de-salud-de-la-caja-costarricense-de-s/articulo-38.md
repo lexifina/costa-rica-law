@@ -1,0 +1,3 @@
+Artículo 38º. De las ayudas económicas por enfermedad.
+Cuando un trabajador no tiene derecho al subsidio, pero ha cotizado una ó dos cuotas por enfermedad, recibirá una ayuda económica hasta por un plazo máximo de 12 semanas. Si la cotización fuere de tres cuotas mensuales consecutivas inmediatamente anteriores a la fecha de inicio de la incapacidad, pero además ha cotizado menos de 6 cuotas en los últimos 12 meses, la ayuda económica se extenderá hasta por 26 semanas.
+El porcentaje y otras regulaciones de este Reglamento, relacionados con el pago de subsidios, le serán aplicables a este beneficio. Para el cálculo de la ayuda económica, se tomará como referencia el promedio de los salarios devengados con el actual patrono.

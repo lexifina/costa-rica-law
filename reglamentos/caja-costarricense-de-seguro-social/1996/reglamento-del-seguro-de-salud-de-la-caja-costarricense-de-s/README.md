@@ -1,0 +1,16 @@
+# Reglamento (1996-12-03)
+
+Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
+
+- Tipo: Reglamento
+- Número: 7082
+- Fecha: 1996-12-03
+- Ente emisor: Caja Costarricense de Seguro Social
+- Publicación: La Gaceta N° 25 del 1997-02-05
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43463&param2=45805&param3=1 (ficha 43463)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1997-01-01 | la propia norma |

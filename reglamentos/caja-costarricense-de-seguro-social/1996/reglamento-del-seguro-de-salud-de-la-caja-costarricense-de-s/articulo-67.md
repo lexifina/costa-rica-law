@@ -1,0 +1,2 @@
+Artículo 67º. Del cambio en la fecha por días feriados y de asueto.
+Cuando el día establecido para el pago de la planilla, coincida con un feriado o asueto declarado oficialmente, esa fecha se prorrogará en forma automática al primer día hábil siguiente. Frente a situaciones de fuerza mayor que hagan materialmente imposible el cumplimiento de la obligación establecida al efecto, la Gerencia de División Financiera podrá extender el plazo de pago hasta por cinco días hábiles. En caso de requerirse prórrogas mayores, su aprobación será competencia de la Junta Directiva.

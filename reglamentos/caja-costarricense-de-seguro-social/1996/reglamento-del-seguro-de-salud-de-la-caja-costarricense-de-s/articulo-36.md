@@ -1,0 +1,3 @@
+Artículo 36.—De la cuantía del subsidio por enfermedad
+El subsidio por incapacidad, es de hasta el 60% del promedio de los salarios consignados en las planillas procesadas por la Caja, en los tres meses inmediatamente anteriores a la incapacidad, o de los salarios que sirvieron de base a la cotización. El promedio de referencia para el cálculo, excluye cualquier pago que corresponda a períodos anteriores al indicada.
+Todo subsidio se paga por períodos vencidos dependiendo de la periodicidad del salario recibido por el asegurado directo activo asalariado, sin perjuicio de que pueda hacerse efectivo el pago completo al concluir el período total de la incapacidad o al concluir períodos mayores a los comprendidos en el pago salarial, ajuicio de la persona interesada.

@@ -1,0 +1,2 @@
+Artículo 50º. De la ayuda para hospedaje.
+Cuando por razones de distancia o de dolencia se haga indispensable la permanencia del asegurado directo en el lugar donde reciba la atención, este Seguro podrá suministrar el hospedaje o reconocer una ayuda por este concepto, equivalente al 30% de lo que establece el Reglamento de Pasajes y Viáticos de la Contraloría General de la República. El Instructivo establecerá los criterios y el procedimiento para el reconocimiento de este beneficio.

@@ -1,0 +1,2 @@
+Artículo 39º. De la obligación de investigar salarios en caso de duda.
+Si se dan indicios que permitan presumir algún intento de defraudación a la seguridad social, el funcionario encargado de autorizar el pago, deberá ordenar en forma previa una investigación para determinar la realidad salarial que deba tomarse en cuenta. El incumplimiento injustificado de esta obligación, constituye falta grave para los efectos disciplinarios laborales.

@@ -1,0 +1,3 @@
+Artículo 34.—De los plazos de calificación para el pago de subsidios
+Tendrá derecho al pago de subsidios por incapacidad el asegurado que haya cotizado con 6 cuotas mensuales dentro de los 12 meses anteriores a la fecha de inicio de la incapacidad, siempre que los últimos 3 meses sean continuos e inmediatamente anteriores a la fecha de inicio de la incapacidad. Los subsidios por incapacidad se pagarán hasta por un máximo de 52 semanas.
+No obstante, si el asegurado ha cotizado con 9 cuotas mensuales dentro de los 12 meses anteriores a la fecha de la incapacidad, se podrá prorrogar el pago de subsidios de acuerdo con el procedimiento que establecerá la Gerencia de División Médica para cubrir hasta 26 semanas adicionales.

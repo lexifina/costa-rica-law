@@ -1,0 +1,2 @@
+Artículo 42.—Del plazo de calificación para derecho a subsidios por licencia
+Para tener derecho a los subsidios en dinero por licencia, es necesario que la trabajadora haya aportado por o menos seis cuotas mensuales en los doce anteriores al inicio de la licencia o parto. En caso de incapacidad previa, este requisito debe entenderse en relación con el periodo anterior al inicio de dicha incapacidad.

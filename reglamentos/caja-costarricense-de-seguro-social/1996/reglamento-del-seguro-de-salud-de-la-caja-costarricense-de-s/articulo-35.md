@@ -1,0 +1,2 @@
+Artículo 35º. Del inicio del pago de subsidios.
+El pago de subsidio en dinero procede a partir del cuarto día de incapacidad. Si una incapacidad fuere extendida dentro de los treinta días posteriores a la precedente, el subsidio correspondiente a la nueva incapacidad se pagará desde el primer día. El cargo presupuestado por los pagos efectuados, corresponde al centro asistencial que extendió la incapacidad.

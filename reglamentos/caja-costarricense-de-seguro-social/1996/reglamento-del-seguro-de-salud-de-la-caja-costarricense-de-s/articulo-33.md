@@ -1,0 +1,2 @@
+Artículo 33º. De la complementariedad de las incapacidades Caja / I.N.S.
+Cuando una incapacidad otorgada por la Caja inicie o exceda a una del I.N.S., y no haya transcurrido un año desde que el asegurado dejó de cotizar por el riesgo laboral, se reconocerán los subsidios, en el entendido que el pago se inicia una vez terminada la incapacidad del I.N.S., siempre que se cumplan los plazos de espera indicados en el artículo 34º.

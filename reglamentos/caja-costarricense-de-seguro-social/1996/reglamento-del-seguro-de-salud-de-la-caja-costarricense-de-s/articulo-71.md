@@ -1,0 +1,3 @@
+Artículo 71º. De la facturación de oficio de las planillas.
+Si el patrono no cumple con la presentación oportuna de sus planillas, la Caja procederá a su levantamiento de oficio, sin perjuicio de las sanciones que determina la Ley Constitutiva.
+Cuando las planillas fueren facturadas de oficio por no presentación oportuna de la información a la Caja, se presumirán ciertos los datos que correspondan a la última planilla presentada, salvo prueba en contrario. Cuando se presuma que la no presentación de la planilla es maliciosa o fraudulenta, la Caja queda facultada para realizar cualquier investigación tendiente a determinar la realidad de las relaciones obrero-patronales y de los salarios pagados.

@@ -1,0 +1,2 @@
+Artículo 44º. De las obligaciones de las aseguradas con licencia por maternidad.
+Mientras la asegurada disfruta de su licencia por maternidad y percibe los subsidios correspondientes, está en la obligación de cumplir las prescripciones médicas que se le impartan, incluyendo la asistencia a consultas o actividades educativas, con la periodicidad indicada por el médico tratante o cuando fuere requerida para ello.

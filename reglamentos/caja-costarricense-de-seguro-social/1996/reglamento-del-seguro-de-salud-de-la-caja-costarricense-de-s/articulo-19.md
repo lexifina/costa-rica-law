@@ -1,0 +1,3 @@
+Artículo 19º. De la exclusión de responsabilidad
+La Caja no se responsabiliza por los servicios de salud que no sean otorgados por sus funcionarios autorizados, bajo su control directo y de acuerdo con las prescripciones del presente Reglamento.
+Cuando por circunstancias muy especiales, a juicio de la Caja, y dada la gravedad de la enfermedad, se demuestre la imposibilidad material en que estuvo el asegurado de solicitar los servicios médicos de la Institución, sin grave perjuicio para su salud por la demora, puede reconocer el costo de los servicios por la primera atención, con base en los costos institucionales.
