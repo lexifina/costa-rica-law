@@ -1,0 +1,1 @@
+Art 2°.- Las existencias de arroz adquirido por los industriales antes del 3 de enero de 1953, deberán ser traspasadas al Consejo Nacional de Producción, al precio de ¢755.87 el saco de 73.6 kilogramos de granza. Este traspaso se hará bajo la supervisión del Ministerio de Economía y Comercio, de acuerdo con los inventarios realizados por éste.

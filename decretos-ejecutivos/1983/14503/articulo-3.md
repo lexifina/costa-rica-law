@@ -1,0 +1,1 @@
+Art 3°.- El diferencial entre el precio de sustentación vigente, y el costo de arroz importado por los industriales autorizados por el Consejo Nacional de Producción, deberá ser trasladado a este último según convenio entre las partes.
