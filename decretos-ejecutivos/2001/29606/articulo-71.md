@@ -1,1 +1,1 @@
-Artículo 71.—En el caso de materias y mercancías procedentes del extranjero, los bultos deberán contener, además de las marcas y contramarcas de cada uno, un rótulo con la inscripción "Zona Franca, Costa Rica", salvo casos especiales en que resulte materialmente imposible. Caso contrario, la aduana debe iniciar las acciones sancionatorias pertinentes.
+Artículo 71.—(DEROGADO, por el artículo 4° del Decreto Ejecutivo N° 31715 de 2 de marzo de 2004).

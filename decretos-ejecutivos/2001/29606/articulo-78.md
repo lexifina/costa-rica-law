@@ -1,1 +1,1 @@
-Artículo 78.—Las ventas que se realicen a los beneficiarios del régimen de perfeccionamiento activo deben contar con la autorización de Procomer
+Artículo 78.—(DEROGADO, por el artículo 4° del Decreto Ejecutivo N° 31715 de 2 de marzo de 2004).

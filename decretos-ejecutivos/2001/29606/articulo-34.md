@@ -1,25 +1,16 @@
 Artículo 34.—Son obligaciones de los beneficiarios del régimen de zonas francas las siguientes:
-a) Cumplir con los requerimientos de Procomer y las autoridades tributarias y aduaneras para el ejercicio de sus funciones de control.
-b) Establecer sistemas contables y operativos que permitan en todo momento el control de la entrada, permanencia y salida de bienes.
-De sus sistemas contables o del registro de inventario permanente por mercancía deberá poder extraerse en cualquier momento al menos la siguiente información:
-- Número de cédula jurídica del proveedor y su razón social.
-- Número de orden de compra o documento equivalente emitido por la empresa de zona franca en su fecha.
-- Número de factura del proveedor local y su fecha.
-- Fecha de ingreso efectiva de la mercancía.
-- Cantidad ingresada.
-- Unidad de medida.
-- Número de orden de producción o retiro de mercancía.
-- Cantidad retirada.
-- Unidad de medida.
-- Saldo.
-c) Otorgar la mayor colaboración a Procomer y a las autoridades tributarias y aduaneras para el ejercicio de sus funciones de control.
-d) Mantener permanentemente un inventario actualizado de los bienes internados.
-e) Presentar un informe anual de operaciones a Procomer, en los términos establecidos en este reglamento, así como los demás informes que les solicite Procomer, Comex o las autoridades tributarias y aduaneras en ejercicio de sus funciones. El informe anual remitido a Procomer deberá ser auditado por un contador público autorizado. Procomer remitirá copia del mismo a la Dirección General de Aduanas, para lo que corresponda.
-f) Rendir y mantener permanentemente un depósito de garantía a favor de Procomer.
+a) Cumplir con los requerimientos de PROCOMER y las autoridades tributarias y aduaneras para el ejercicio de sus funciones de control.
+b) Establecer sistemas contables y operativos que permitan el control permanente de la entrada, permanencia y salida de materias y mercancías, propias o en consignación. De sus sistemas contables o del registro de inventario permanente, por mercancía deberá poder determinarse el uso, la transformación y ubicación de dichos bienes.
+c) Otorgar la mayor colaboración a PROCOMER y a las autoridades tributarias y aduaneras para el ejercicio de sus funciones de control.
+d) Mantener un inventario actualizado de los bienes internados.
+e) Presentar un informe anual de operaciones a PROCOMER, en los términos establecidos en este reglamento, así como los demás informes que les solicite PROCOMER, Comex o las autoridades tributarias y aduaneras en ejercicio de sus funciones. El informe anual de operaciones podrá ser presentado por el beneficiario del régimen ante PROCOMER, mediante transmisión por vía electrónica, según los formatos y procedimientos establecidos para tal efecto.
+En caso de que el informe sea presentado por vía electrónica, se aplicará lo dispuesto en el artículo 18 bis del presente reglamento.
+f) Rendir y mantener permanentemente un depósito de garantía a favor de PROCOMER.
 g) Cancelar puntualmente los derechos por el uso del régimen.
 h) Cumplir con las regulaciones ambientales, urbanísticas, sanitarias y demás aplicables según el tipo de actividad que desarrolle la empresa, y contar permanentemente con los permisos de operación correspondientes.
-i) Cumplir en todo momento con los niveles mínimos de inversión inicial, inversión proyectada, empleo y demás establecidos en el respectivo acuerdo ejecutivo.
-j) Suministrar a Procomer toda la información que esa entidad les solicite en relación con la administración del régimen, en forma oportuna.
-k) Transmitir electrónicamente el cien por ciento de las Declaraciones Aduaneras correspondientes a las diferentes transacciones de zonas francas, con las excepciones que establece este reglamento.
-l) Mantener debidamente archivadas las Declaraciones Aduaneras de Zona Franca y los documentos adjuntos, de conformidad con el artículo 30 inciso b) de la Ley General de Aduanas.
-m) Las demás que se establezcan en la ley 7210 y sus reformas, este reglamento y las demás leyes y reglamentos aplicables, así como en el acuerdo ejecutivo de otorgamiento del régimen y en el contrato de operaciones.
+i) Cumplir con los niveles mínimos de inversión inicial, inversión proyectada, empleo y demás establecidos en el respectivo acuerdo de otorgamiento.
+j) Suministrar a PROCOMER toda la información que esa entidad les solicite en relación con la administración del régimen, en forma oportuna.
+k) Mantener debidamente archivadas las Declaraciones Aduaneras de Zona Franca y los documentos adjuntos, el Libro de Control de Operaciones, el Informe Anual de Operaciones, de conformidad con el artículo 30 inciso b) de la Ley General de Aduanas.
+l) Las demás que se establezcan en la Ley Nº 7210 y sus reformas, este reglamento y las demás leyes y reglamentos aplicables, así como en el acuerdo de otorgamiento del régimen y en el contrato de operaciones.
+m) Llevar y anotar en libros y registros, manuales o electrónicos, según los formatos autorizados por PROCOMER, las operaciones de la empresa, relativas a los bienes que gozan de exenciones de impuestos autorizados por la Dirección General de Hacienda del Ministerio de Hacienda, los cuales estarán sujetos a la inspección de PROCOMER y de las autoridades fiscales.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 31715 de 2 de marzo de 2004).
