@@ -1,0 +1,1 @@
+Artículo 8°-La Comisión gozará de un plazo no mayor de quince días para estudiar y adjudicar las licitaciones de líneas de transporte conforme a lo establecido por la ley y este Reglamento. Los demás asuntos sometidos a su conocimiento los resolverá en un plazo no mayor de cinco días.

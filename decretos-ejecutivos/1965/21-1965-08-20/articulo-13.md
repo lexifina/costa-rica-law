@@ -1,0 +1,1 @@
+Artículo 13. -Admitida la apelación y una vez recibido el expediente respectivo, el Despacho del Ministro podrá ordenar a los organismos inferiores pruebas o informes para mejor proveer. Si con este objeto también considerara conveniente oír a las partes, podrá conferirles audiencia, procurando que, por estos trámites, no se dilate su pronunciamiento.

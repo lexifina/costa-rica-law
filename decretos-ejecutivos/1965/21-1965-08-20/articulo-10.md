@@ -1,0 +1,1 @@
+Artículo 10-Lo resuelto por la Comisión podrá ser objeto de alzada para ante el Ministro de Transportes. El recurso de apelación será interpuesto ante la Comisión, dentro de los cinco días siguientes al de la notificación personal al interesado o al de la publicación en el Diario Oficial de la Resolución recurrida, según fuere el caso.

@@ -1,0 +1,1 @@
+Artículo 7°-Las resoluciones se tomarán por simple mayoría, Cuando hubiere sólo dos miembros presentes, de acuerdo con el artículo 6°, deberá haber conformidad absoluta, si no se lograra, el asunto se votará en la próxima sesión.
