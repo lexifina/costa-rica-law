@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 7º del Decreto Ejecutivo Nº 31177-H-MOPT, para que en lo sucesivo se lea correctamente:
+"Artículo 7º—Los vehículos nuevos que utilicen la tecnología indicada en el inciso c) del artículo anterior solamente podrán ingresar al país si cumplen con los requerimientos de la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 y sus reformas, así como con la reglamentación específica en materia de emisiones en cuanto a la presentación del certificado de cumplimiento del fabricante."

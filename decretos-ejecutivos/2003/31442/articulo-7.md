@@ -1,0 +1,6 @@
+Artículo 7º—Modifíquese el artículo 13, incisos d), e), f), g).1 y h) del Decreto Ejecutivo Nº 31177-MOPT, para que en lo sucesivo se lean correctamente:
+"d) Certificación emitida por el Registro Público de la Propiedad de Bienes Muebles, indicando que no tiene vehículos exonerados en la modalidad taxi inscritos a su nombre.
+e) Certificación emitida por el Consejo de Seguridad Vial indicando que el concesionario se encuentra al día en el pago de las deudas por violación a la legislación de tránsito, de conformidad con el artículo 207 de la Ley Nº 7331 de fecha 13 de abril de 1993, publicada en el Alcance Nº 13 a La Gaceta Nº 76 de fecha 22 de abril de 1993.
+f) Oficio emitido por el Consejo de Transporte Público o instancia a quien este delegue, en la que se aprueba la recomendación de la exención, con indicación del porcentaje de exoneración a aplicar y acto administrativo que aprueba dicha recomendación.
+g) 1. Duplicado visado por el MOPT del certificado original de cumplimiento de emisiones extendido por el fabricante de los vehículos.
+h) Certificación del Consejo de Transporte Público del MOPT en donde se indique la condición de concesionario del gestionante, así como fecha en que expira la concesión."

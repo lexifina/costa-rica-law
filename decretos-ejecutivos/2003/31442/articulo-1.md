@@ -1,0 +1,13 @@
+Nº 31442-H-MOPT
+EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE HACIENDA Y DE OBRA PÚBLICA Y TRANSPORTES
+En uso de las facultades conferidas por los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi, Nº 7969 de fecha 22 de diciembre de 1999, la Ley Reguladora de todas las exoneraciones vigentes, su derogatoria y sus excepciones, Nº 7293 de fecha 31 de marzo de 1992, la Ley de Administración Vial Nº 6324 del 24 de mayo de 1979 y sus reformas y la Ley de Tránsito por Vías Públicas Terrestres, Nº 7331 de fecha 13 de abril de 1993 y sus reformas.
+Considerando:
+1º—Que en La Gaceta Nº 98 de fecha 23 de mayo del 2003 fue publicado el Decreto Ejecutivo Nº 31177-H-MOPT, denominado "Reglamento sobre las Exoneraciones a Vehículos de Transporte Público de Personas en la Modalidad Taxis."
+2º—Que como parte de dicha normativa se establece en su capítulo tercero, artículo cuarto, que los vehículos deberán cumplir con las características establecidas en el Decreto Ejecutivo Nº 28913-MOPT, de fecha 13 de septiembre del 2000, publicado en el Alcance Nº 62 a La Gaceta Nº 179, de fecha 19 de setiembre de 2000 y cualquier otro Decreto de tipo especial que se emita sobre el particular.
+3º—Que la Administración considera pertinente, para la seguridad de los importadores y distribuidores de vehículos nuevos y de aquellos concesionarios que se acojan al régimen de exoneración establecido en esa normativa, que se establezcan claramente las características que deberán tener los vehículos que se destinarán al servicio público de taxi.
+4º—Que en el mencionado Decreto Ejecutivo se omitió indicar que para aquellos adjudicatarios que formalizan por primera vez con la Administración, no será imprescindible la presentación de la copia del contrato debidamente firmado, siendo válida la presentación de una certificación en donde se indique su condición de concesionario; lo anterior por cuanto los detalles e información del vehículo con que se prestará el servicio son elementos básicos del contrato, aspectos que son materialmente imposibles de conocer previamente. Por tanto:
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 1º inciso h) del Decreto Ejecutivo Nº 31177-H-MOPT, para que en lo sucesivo se lea correctamente:
+"Artículo 1.- Definiciones. Para efectos del presente Reglamento se entiende por:
+(…)
+h) Vehículo nuevo: Vehículo automotor con año de comercialización del modelo igual, mayor o inmediatamente inferior al año vigente, que no ha sido inscrito ni utilizado por un usuario final anteriormente y cuenta con la garantía del fabricante y/o de su distribuidor autorizado."
