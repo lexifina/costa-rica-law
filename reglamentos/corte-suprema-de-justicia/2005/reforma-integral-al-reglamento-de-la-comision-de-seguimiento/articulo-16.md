@@ -1,0 +1,1 @@
+Artículo 16.—Los acuerdos se adoptarán por simple mayoría de votos de los magistrados (as) presentes y deberán ser debidamente motivados. En caso de empate, después de dos discusiones, se remitirá a la CSJ para que tome la decisión.

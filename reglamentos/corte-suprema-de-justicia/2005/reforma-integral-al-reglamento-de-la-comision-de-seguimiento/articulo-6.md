@@ -1,0 +1,1 @@
+Artículo 6º—Los Magistrados integrantes de la Comisión informarán de la labor de ésta a los demás Magistrados de las Salas a las que pertenecen e igualmente, la Comisión remitirá a conocimiento de la CSJ un informe semestral sobre la ejecución del Programa.

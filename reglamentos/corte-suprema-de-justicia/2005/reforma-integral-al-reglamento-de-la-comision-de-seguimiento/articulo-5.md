@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión conocerá los informes que prepare la UEP en materia de contratación administrativa y recomendará al Consejo Superior del Poder Judicial lo pertinente, para que éste resuelva en forma definitiva lo que corresponda.

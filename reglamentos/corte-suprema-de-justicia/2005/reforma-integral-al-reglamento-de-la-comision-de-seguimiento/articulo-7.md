@@ -1,0 +1,1 @@
+Artículo 7º—El Presidente de la CSJ será quien presida la Comisión y la represente oficialmente en toda actividad de ésta, salvo que en casos justificados, se autorice a otro de sus miembros para que actúe como su vocero.
