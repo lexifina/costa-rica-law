@@ -1,2 +1,1 @@
-Artículo 57.- Establécese un timbre municipal de cien colones, como impuesto, por cada troza de madera que se tale en las zonas productoras de madera. Este impuesto lo recaudarán, para su beneficio, las municipalidades en cuya jurisdicción se lleve a cabo la tala, las cuales quedan obligadas a girar un cinco por ciento de lo recaudado por este concepto, al fondo forestal, para ser utilizado por el Departamento de Pesca y Vida Silvestre.
-El timbre en mención deberá agregarse a los permisos de transporte de madera en trozas, que deberán portarse en los automotores dedicados a esa actividad.
+Artículo 57.- DEROGADO (Derogado por el artículo 3 de la ley No.7174 del 28 de junio de 1990 ).
