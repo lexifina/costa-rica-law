@@ -1,0 +1,1 @@
+Artículo 30.—En la línea de propiedad, en el espacio comprendido entre la línea de construcción, no se podrán construir tapias sólidas con una altura mayor de un metro. Por sobre esta altura se podrá continuar únicamente con elementos que permitan una buena visibilidad, tales como: rejas, verjas o mallas. Se excluye de esta disposición los muros de contención.

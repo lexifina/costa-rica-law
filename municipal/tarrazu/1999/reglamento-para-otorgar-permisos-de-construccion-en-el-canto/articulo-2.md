@@ -1,0 +1,1 @@
+Artículo 2º—Quien no respete las disposiciones de este reglamento se hará acreedor de las sanciones que se indican en el Capítulo IV del mismo.

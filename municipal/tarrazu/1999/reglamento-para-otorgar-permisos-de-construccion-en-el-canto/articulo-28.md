@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad está autorizada para colocar placas de numeración de calles y avenidas en las paredes de casas y edificios; en el caso requerido el propietario deberá dejar el espacio necesario en la fachada.

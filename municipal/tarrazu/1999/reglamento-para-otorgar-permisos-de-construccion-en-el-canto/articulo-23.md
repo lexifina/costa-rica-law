@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad garantizará la libertad para adoptar la arquitectura o diseño de las fachadas de las construcciones. Sin embargo, podrá hacer objeciones a las mismas a fin de que guarden una relación estética con la zona en la que se ubiquen: en caso de construcciones en las zonas de control especial deben de considerarse los requisitos establecidos para esta zona.
