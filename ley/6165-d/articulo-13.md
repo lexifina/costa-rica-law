@@ -1,6 +1,2 @@
-ARTÖCULO 13
-La presente Convenci¢n est sujeta a ratificaci¢n. Los
-instrumentos
-de ratificaci¢n se depositar n en la Secretar¡a General de la
-Organizaci¢n
-de los Estados Americanos.
+ARTICULO 13
+La presente Convención está sujeta a ratificación. Los instrumentos de ratificación se depositarán en la Secretaría General de la Organización de los Estados Americanos.

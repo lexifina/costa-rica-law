@@ -1,4 +1,2 @@
-ARTÖCULO 9
-Las disposiciones de los art¡culos anteriores son aplicables
-a los
-pagar‚s.
+ARTICULO 9
+Las disposiciones de los artículos anteriores son aplicables a los pagarés.

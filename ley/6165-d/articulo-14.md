@@ -1,6 +1,2 @@
-ARTÖCULO 14
-La presente Convenci¢n quedar abierta a la adhesi¢n de
-cualquier
-otro Estado. Los instrumentos de adhesi¢n se depositar n en la
-Secretar¡a
-General de la Organizaci¢n de los Estados Americanos.
+ARTÍCULO 14
+La presente Convención quedará abierta a la adhesión de cualquier otro Estado. Los instrumentos de adhesión se depositarán en la Secretaría General de Organización de los Estados Americanos.
