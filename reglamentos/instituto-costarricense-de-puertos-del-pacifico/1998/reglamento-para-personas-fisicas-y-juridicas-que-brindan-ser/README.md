@@ -14,3 +14,4 @@ Reglamento para personas físicas y jurídicas que brindan servicios o suministr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-02 | la propia norma |
+| 2 | 2003-02-13 | Reglamento 3148 (2003-02-13) |
