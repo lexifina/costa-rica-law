@@ -1,7 +1,7 @@
 CAPITULO II
 Finalidades del Colegio
 Artículo 3º.- El Colegio tiene por finalidad:
-a) Promover el desarrollo de la Ciencia Contable y proteger su
+a) Promover el desarrollo de las Ciencias Contables y proteger su
 ejercicio como profesión;
 b) Defender los derechos de sus integrantes y promover su mejoramiento
 económico; y

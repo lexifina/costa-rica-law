@@ -1,9 +1,8 @@
-Artículo 2º.- Serán sus miembros, siempre que lo soliciten:
-a) Los integrantes de agrupaciones de contabilistas, constituídas de
-conformidad con la Ley de Asociaciones;
-b) Los Contadores Públicos;
-c) Los egresados de la Universidad Nacional, que sean Licenciados en
-ciencias Económicas y Sociales, con especialización en administración y
-contabilidad; y
-d) Los graduados en establecimientos de enseñanza de contabilidad
-mercantil debidamente autorizados por el Estado.
+Artículo 2º.- Podrán ser miembros del Colegio:
+a) Los graduados con el título de Contador en establecimientos de
+enseñanza de Contabilidad Mercantil debidamente autorizados por el
+Estado;
+b) Los Licenciados en Ciencias Económicas y Sociales de la Universidad
+de Costa Rica, especializados en la rama de Administración de negocios;
+c) Los que hayan estado incorporados al Colegio al amparo de leyes
+anteriores.

@@ -1,2 +1,3 @@
-Artículo 25.- El Tribunal de Honor será integrado en su oportunidad
-por la Junta Directiva, y constará de cinco miembros del Colegio.
+Artículo 25.- Las diferencias de orden moral que se susciten entre los
+colegiados con motivo del ejercicio profesional exclusivamente, serán
+dirimidos por un Tribunal de Honor.

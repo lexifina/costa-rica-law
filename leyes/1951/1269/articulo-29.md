@@ -1,3 +1,3 @@
-Artículo 29.- El Fondo de Mutualidad y Subsidios será administrado
-por la Junta Directiva de acuerdo con lo que se establezca en el
-Reglamento respectivo.
+Artículo 29.- Los miembros del Colegio quedan obligados a pagar la
+cuota mensual que fije la Asamblea General, con el objeto de formar un
+fondo de mutualidad y subsidios.
