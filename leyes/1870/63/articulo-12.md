@@ -1,0 +1,1 @@
+Art 12° La Tesorería de Propios de la Provincia de Cartago, abrirá cuenta separada a cada una de las comunidades a que corresponden los terrenos vendidos bajo el rubro de “venta de terreno de la legua o ejidos”. El monto de los intereses que, a cada localidad resulte, se invertirá precisamente en objetos de utilidad del vecindario respectivo, conforme lo acuerde la Municipalidad.

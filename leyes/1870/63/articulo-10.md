@@ -1,0 +1,2 @@
+Art 10° Los costos de medida y de peritos, serán a cargo del poseedor o rematario; pero solo en la mitad conforme el Arancel, de suerte que la Municipalidad solo estará obligada a satisfacer el exceso, sobre la mitad conforme su contrato con el agrimensor y peritos. Todas las actuaciones en el Juzgado de Hacienda Municipal, no causarán derecho alguno.
+Los de cartulación serán solamente la mitad de los determinados en el arancel a cargo del poseedor o rematario.

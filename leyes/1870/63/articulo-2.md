@@ -1,0 +1,1 @@
+Art 2° A este efecto, la Municipalidad dispondrá la medida de dichos terrenos por lotes, o como no lo estime por conveniente, consultando los intereses de los poseedores y de la comunidad. El agrimensor será contratado por ella, y nombrará los testigos y medidores de cuerda, prestando estos últimos juramentos ante el Juez de Hacienda Municipal.

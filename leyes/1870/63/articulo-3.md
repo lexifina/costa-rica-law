@@ -1,0 +1,1 @@
+Art 3° Las medidas se verificarán con citación del Agente Fiscal y de los poseedores si los hubiese y verificado el cálculo, se levantará el plano correspondiente, el cual junto con el expediente será presentado a la Municipalidad con el nombre del poseedor del terreno, su extensión y clase a que corresponda.
