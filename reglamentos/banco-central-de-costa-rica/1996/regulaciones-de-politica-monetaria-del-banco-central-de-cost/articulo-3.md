@@ -22,21 +22,21 @@ Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos
 i. Las comisiones de confianza, los fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta.
 ii. Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales los intermediarios obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
 iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
-(*) C. Tasas de encaje
-Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-1. El 10,0% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
+(*) C. Tasas de Encaje
+Las tasas de Encajé Mínimo Legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
+1. El 12,0% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración.
+Dicha tasa se aplicará con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
-16 de enero del 2003 | 6,5%
-16 de febrero del 2003 | 8,0%
-16 de marzo del 2003 | 10,0%
-2. El 10,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
+01 de setiembre del 2004 | 11,0%
+01 de octubre del 2004 | 12,0%
+2. El 12,0% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración.
+Dicha tasa se aplicará con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
-16 de enero del 2003 | 6,5%
-16 de febrero del 2003 | 8,0%
-16 de marzo del 2003 | 10,0%
-(*) (Así reformado el literal C anterior en sesión N° 5143 del 18 de diciembre de 2002)
+01 de setiembre del 2004 | 11,0%
+01 de octubre del 2004 | 12,0%
+(*) (Así reformado el literal anterior en sesión N° 5208 del 26 de julio de 2004)
 D. Excepciones y deducciones
 (*) 1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos, los préstamos otorgados por e! Banco Central de Costa Rica y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
 (*) (Así reformado el numeral anterior en sesión N° 5029 del 15 de marzo de 2000)
