@@ -14,3 +14,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-21 | la propia norma |
+| 2 | 2002-04-03 | Reglamento 5 (2002-04-03) |
