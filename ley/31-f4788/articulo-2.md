@@ -1,0 +1,2 @@
+Art 2° Pasado el término de tres meses, es prohibido al Administrador dar las guías de que habla el artículo anterior sobre mercaderías registradas para la venta en los lugares dichos, sin que se paguen de nuevo los derechos establecidos por la ley.
+Único. –Están exceptuados de pagar nuevos derechos las mercaderías que, al concluir el indicado término, el comercio deposite en las bodegas nacionales o las que al entrar en la Aduana que dejen en depósito con objeto de sacarlas después para aquel consumo o ya para introducirlas.
