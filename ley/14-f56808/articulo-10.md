@@ -1,0 +1,3 @@
+Artículo X
+La presente Convención quedará sin ningún valor ni efecto y las cosas volverán al estado que tenían antes de su suscripción y perfeccionamiento, si Nicaragua no hubiere principiado la construcción de la obra, dentro de las condiciones aquí consignadas, en un plazo de cinco años a partir de la última ratificación.
+Igualmente, la presente Convención quedará sin ningún valor ni efecto, y en tal caso las cosas volverán al estado que tenían antes de su suscripción y perfeccionamiento, si Nicaragua no hubiese terminado la construcción de la obra, dentro de las condiciones aquí consignadas, en un plazo de cinco años después de comenzadas.
