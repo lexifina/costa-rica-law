@@ -1,0 +1,1 @@
+Artículo 2°—Encomendar y autorizar el más decidido apoyo de las Instituciones del sector descentralizado y de los órganos del Estado, en la medida de sus posibilidades materiales, financieras y de recursos humanos, para la implementación y efectiva conclusión del proyecto "Parque Marino en Puntarenas: Centro para la Educación y la Recreación".
