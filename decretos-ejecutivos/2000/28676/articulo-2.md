@@ -1,0 +1,1 @@
+Artículo 2°—La Comisión Reguladora de Turismo no otorgará en el futuro autorizaciones genéricas ni específicas para la venta de acciones al amparo del artículo 11 de la Ley N° 6990 del 15 de julio de 1985.
