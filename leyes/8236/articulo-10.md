@@ -1,0 +1,1 @@
+Artículo 10.—Confidencialidad de la información. La información contenida en la declaración jurada presentada a la Municipalidad por los contribuyentes, tiene el carácter confidencial referido en el artículo 117 del Código de Normas y Procedimientos Tributarios.

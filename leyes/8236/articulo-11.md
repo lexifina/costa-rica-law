@@ -1,0 +1,1 @@
+Artículo 11.—Reglamentación. Autorízase a la Municipalidad de Alajuela para que emita el reglamento de la presente Ley y adopte las medidas administrativas convenientes para una adecuada fiscalización.

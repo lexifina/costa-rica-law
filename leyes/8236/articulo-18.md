@@ -1,0 +1,2 @@
+Artículo 18.—Pago fuera de término. Todo atraso en el pago del impuesto que esta Ley establece, tendrá un recargo con carácter de multa del uno por ciento (1%) por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación, hasta la fecha efectiva del pago.
+El pago fuera de término produce la obligación del contribuyente de pagar, junto con el tributo adeudado, el interés que fije el Concejo, de conformidad con las reglas establecidas en el artículo 57 del Código de Normas y Procedimientos Tributarios.
