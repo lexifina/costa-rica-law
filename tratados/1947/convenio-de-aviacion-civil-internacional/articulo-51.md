@@ -1,7 +1,7 @@
-Artículo 51
-El Consejo elegirá su presidente para un término de tres años, el cual podrá ser reelegido. El presidente no tendrá voto.
-El Consejo elegirá entre sus miembros uno o más vicepresidentes, que conservarán su derecho al voto cuando actuaren como Presidente interino no será necesario elegir para Presidente a uno de los representantes de los miembros del Consejo, pero si se eligiere a uno de ellos se considerará vacante su puesto y lo llenará el listado al cual representaba.
-Serán funciones del Presidente:
-(a) Convocar las reuniones del Consejo, del Comité de Transporte aéreo y, de la Comisión de Navegación Aérea;
-(b) Servir como representante del Consejo; y
-(c) Desempeñar en representación del Consejo las funciones que éste le asignare.
+ARTÍCULO 51
+Presidente del Consejo
+El Consejo elegirá su Presidente por un período de tres años. Puede ser reelegido. No tendrá derecho a voto.
+El Consejo elegirá entre sus miembros uno o más vicepresidentes, quienes conservarán su derecho a voto cuando actúen como Presidente. No se requiere que el Presidente sea elegido entre los representantes de los miembros del Consejo pero si se elige a un representante su puesto se considerará vacante y será cubierto por el Estado que representaba. Las funciones del Presidente serán:
+a) Convocar las reuniones del Consejo, del Comité de Transporte Aéreo y de la Comisión de Aeronavegación;
+b) Actuar como representante del Consejo; y
+c) Desempeñar en nombre del Consejo las funciones que éste le asigne.

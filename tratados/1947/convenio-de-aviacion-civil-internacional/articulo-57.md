@@ -1,5 +1,6 @@
-Artículo 57
-Serán funciones de la Comisión de navegación Aérea;
-(a) Considerar las modificaciones a los Anexos de esta Convención y recomendarlas al Consejo para que las adopte;
-Establecer subcomisiones técnicas, en las cuales cualquier Estado contratante podrá estar representado si así lo desea;
-Asesorar al Consejo en cuanto a la recopilación y trasmisión a los Estado contratantes de cualesquiera informes que considere necesarios y útiles para el adelanto de la navegación aérea.
+ARTÍCULO 57
+Obligaciones de la Comisión
+La Comisión de Aeronavegación debe:
+a) Considerar y recomendar al Consejo, a efectos de adopción, modificaciones a los Anexos del presente Convenio;
+b) Establecer subcomisiones técnicas en las que podrá estar representado todo Estado contratante, si así lo desea;
+c) Asesorar al Consejo sobre la compilación y comunicación a los Estados contratantes de toda información que considere necesaria y útil para el progreso de la navegación aérea.

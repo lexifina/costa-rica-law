@@ -1,2 +1,3 @@
-Artículo 62
-La Asamblea podrá suspender el derecho de voto en la Asamblea y en el consejo a cualquier Estado contratante que dentro de un período de tiempo razonable, deje de cumplir sus obligaciones financieras para con el Organismo.
+ARTÍCULO 62
+Suspensión del derecho de voto
+La Asamblea puede suspender el derecho de voto en la Asamblea y en el Consejo a todo Estado contratante que, en un período razonable, no cumpla sus obligaciones financieras para con la Organización.

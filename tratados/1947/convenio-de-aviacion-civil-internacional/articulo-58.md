@@ -1,4 +1,5 @@
 CAPITULO XI
-EL PERSONAL
-Artículo 58
-Con sujeción a las reglas que dicte la Asamblea y a las disposiciones de esta Convención, el Consejo determinará, en cuanto al Secretario General y de más personal del Organismo, el método para hacer y terminar los nombramientos, el entrenamiento, los sueldos, emolumentos y otras condiciones de servicio, y podrá emplear o utilizar los servicios de nacionales de cualquiera de los Estados contratantes.
+PERSONAL
+ARTÍCULO 58
+Nombramiento del personal
+Con sujeción a los reglamentos establecidos por la Asamblea y a las disposiciones del presente Convenio, el Consejo determinará el método de nombramiento y cese en el servicio, la formación profesional, los sueldos, bonificaciones y condiciones de empleo del Secretario General y demás personal de la Organización, pudiendo emplear o utilizar los servicios de súbditos de cualquier Estado contratante.

@@ -1,2 +1,3 @@
-Artículo 18
-Ninguna aeronave podrá matricularse legalmente en más de un Estado; pero podrá cambiarse la matricula de un Estado al otro.
+ARTÍCULO 18
+Matriculación doble
+Ninguna aeronave puede estar válidamente matriculada en más de un Estado, pero su matrícula podrá cambiarse de un Estado a otro.

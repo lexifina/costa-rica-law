@@ -1,5 +1,7 @@
-Artículo 28
-Hasta donde le sea posible, cada uno de los Estados contratantes se compromete:
-(a) A proveer en su territorio aeropuertos, servicios de radio, servicios metereológicos y otras ayudas a la navegación aérea que faciliten la aeronavegación internacional, de conformidad con las normas y procedimientos que en su oportunidad se recomienden o se establezcan según esta Convención;
-(b) A adoptar y poner en vigor los sistemas uniformes adecuados en comunicaciones, claves, distintivos, señales, luces y otros procedimientos y reglamentos que en su oportunidad se recomienden o se establezcan de conformidad con esta Convención;
-(c) A colaborar en medidas de carácter internacional, a fin de garantizar la publicación de mapas y cartas aeronáuticas, conforme a las normas que en su oportunidad se recomienden o se establezcan según esta Convención.
+ARTÍCULO 28
+Instalaciones y servicios y sistemas
+normalizados para la navegación aérea.
+Cada Estado contratante se compromete, en la medida en que lo juzgue factible a:
+a) Proveer en su territorio aeropuertos, servicios de radio, servicios meteorológicos y otras instalaciones y servicios para la navegación aérea a fin de facilitar la navegación aérea internacional, de acuerdo con las normas y métodos recomendados o establecidos oportunamente en aplicación del presente convenio.
+b) Adoptar y aplicar los sistemas normalizados apropiados sobre procedimientos de comunicaciones, códigos, balizamiento, señales, iluminación y demás métodos y reglas de operación que se recomienden o establezcan oportunamente en aplicación del presente Convenio.
+c) Colaborar en las medidas internacionales tomadas para asegurar la publicación de mapas y cartas aeronáuticas, de conformidad con las normas que se recomienden o establezcan oportunamente, en aplicación del presente Convenio.

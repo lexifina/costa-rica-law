@@ -1,2 +1,3 @@
-Artículo 63
-Cada Estado contratante sufragará los gastos de su propia delegación en Ia Asamblea y los honorarios, gastos de viaje y otros de cualquier persona que nombrare para servir en el Consejo, y de las que designe para que lo representen en algún comité o comisión auxiliar del Organismo.
+ARTÍCULO 63
+Gastos de las delegaciones y otros representantes
+Cada Estado contratante sufragará los gastos de su propia delegación en la Asamblea y la remuneración, gastos de viaje y otros de toda persona que nombre para actuar en el Consejo, así como de las que representen o actúen por designación de tal Estado en cualquier comité o comisión subsidiaria de la Organización.

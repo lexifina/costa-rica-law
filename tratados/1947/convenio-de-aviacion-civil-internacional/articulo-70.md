@@ -1,2 +1,4 @@
-Artículo 70
-En circunstancias como las indicadas en al artícuIo 69, los Estados contratantes podrán concertar acuerdos con el Consejo para llevar a la práctica las recomendaciones suyas. El Estado podrá optar por sufragar el costo total que implique el acuerdo; y, en caso contrario, el Consejo, a petición del Estado, podrá acceder a sufragar la totalidad o parte de los gastos.
+ARTÍCULO 70
+Financiación de las instalaciones y servicios
+para la navegación aérea
+Un Estado contratante, en las circunstancias resultantes de las disposiciones del Artículo 69, puede concluir un arreglo con el Consejo para dar efecto a tales recomendaciones. El Estado podrá optar por hacerse cargo de todos los gastos que implique tal arreglo; en caso contrario el Consejo, puede convenir, a petición del Estado, en sufragar la totalidad o parte de los gastos.

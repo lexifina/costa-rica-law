@@ -1,2 +1,3 @@
-Artículo 13
-Las leyes y reglamentos de un Estado contratante sobre entrada y salida de su territorio de pasajeros, tripulaciones o carga de aeronaves, (v.g. reglamentos de entrada, despacho, inmigración, pasaportes, aduanas y cuarentena), deberán cumplirse por los pasajeros, tripulación o carga, o en su representación, tanto a la entrada como a la salida o mientras se encuentren en el territorio de dicho Estado.
+ARTÍCULO 13
+Disposiciones sobre entrada y despacho
+Las leyes y reglamentos de un Estado contratante relativos a la admisión o salida de su territorio de pasajeros, tripulación o carga transportados por aeronaves, tales como los relativos a entrada, despacho, inmigración, pasaportes, aduanas y sanidad serán cumplidos por o por cuenta de dichos pasajeros, tripulaciones y carga, ya sea a la entrada o la salida o mientras se encuentren dentro del territorio de ese Estado.

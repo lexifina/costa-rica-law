@@ -1,2 +1,3 @@
-Artículo 20
-Toda aeronave dedicada a la navegación aérea internacional llevará distintivos adecuados de su nacionalidad y matrícula.
+ARTÍCULO 20
+Ostentación de las marcas
+Toda aeronave empleada en la navegación aérea internacional deberá llevar las correspondientes marcas de nacionalidad y matrícula.

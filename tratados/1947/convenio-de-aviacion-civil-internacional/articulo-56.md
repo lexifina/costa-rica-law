@@ -1,4 +1,5 @@
 CAPITULO X
-COMISIÓN DE NAVEGACIÓN AÉREA
-Artículo 56
-La Comisión de Navegación Aérea estará integrada por doce miembros, nombrados por el Consejo entre personas que designen los Estados contratantes. Estas personas deberán poseer calificaciones y experiencias adecuadas en la ciencia y en la práctica de la aeronáutica. El Consejo solicitará de todos los Estados contratantes que presenten candidatos. El Consejo nombrará al Presidente de la Comisión de Navegación Aérea.
+LA COMISION DE AERONAVEGACION
+ARTÍCULO 56
+Nombramiento de la Comisión
+La Comisión de Aeronavegación se compondrá de doce miembros, nombrados por el Consejo entre las personas propuestas por los Estados contratantes. Dichas personas deberán poseer las calificaciones y experiencias apropiadas en la ciencia y práctica aeronáuticas. El Consejo invitará a todos los Estados contratantes a que presenten candidaturas. El Presidente de la Comisión de Aeronavegación será nombrado por el Consejo.

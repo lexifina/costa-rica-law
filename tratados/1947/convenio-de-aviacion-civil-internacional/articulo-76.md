@@ -1,2 +1,3 @@
-Artículo 76
-Los fondos que obtenga el Consejo por concepto de reembolsos de conformidad con el artículo 75 o de intereses y amortizaciones conforme al artículo 74, en el caso de adelantos hechos por los Estados de acuerdo con el artículo 75, se reembolsarán a los Estados entre los cuales se prorratearon originalmente y en proporción a ese prorrateo según lo determine el Consejo.
+ARTÍCULO 76
+Restitución de fondos
+Los fondos obtenidos por el Consejo, por reembolsos en virtud del Artículo 75 y por ingresos de intereses y amortizaciones según el Artículo 74 serán, en el caso de adelantos financiados originariamente por los Estados de acuerdo con el Artículo 73, restituidos a los Estados entre los cuales se prorratearon originariamente en proporción a sus contribuciones, según lo determinado por el Consejo.

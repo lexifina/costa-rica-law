@@ -1,2 +1,3 @@
-Artículo 83
-Sujeto a las disposiciones del artículo anterior, cualquier Estado contratante podrá concertar acuerdos que no sean incompatibles con las disposiciones de esta Convención. Todo acuerdo de ésta índole se registrará inmediatamente en el consejo, que lo hará publico a la brevedad posible.
+ARTÍCULO 83
+Registro de nuevos arreglos
+Con sujeción a lo dispuesto en el artículo precedente, todo Estado contratante puede concertar arreglos que no sean incompatibles con las disposiciones del presente Convenio. Todo arreglo de esta naturaleza se registrará inmediatamente en el Consejo, el cual lo hará público a la mayor brevedad posible.

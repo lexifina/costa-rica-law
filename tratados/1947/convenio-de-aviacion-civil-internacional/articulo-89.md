@@ -1,4 +1,5 @@
 CAPITULO XIX
 GUERRA
-Articulo 89
-En caso de guerra, las disposiciones de esta Convención no afectarán la libertad de acción de ninguno de los Estados contratantes afectados, bien sea como beligerantes o como neutrales. El mismo principio se aplicará en el caso de un Estado contratante que declare un estado de emergencia nacional y lo participe al Consejo.
+ARTÍCULO 89
+Estado de guerra y situaciones de emergencia
+En caso de guerra, las disposiciones del presente Convenio no afectarán la libertad de acción de los Estados contratantes afectados, ya sean beligerantes o neutrales. El mismo principio se aplicará cuando un Estado contratante declare estado de emergencia nacional y lo comunique al Consejo.

@@ -1,2 +1,3 @@
-Artículo 34
-Toda aeronave que se dedique a la navegación internacional, tendrá un diario de a bordo en que se asentarán los detalles acerca de la aeronave su tripulación y cada viaje en la forma que, en su oportunidad se prescriba de acuerdo con esta Convención.
+ARTÍCULO 34
+Diario de a bordo
+Por cada aeronave que se emplee en la navegación internacional se llevará un diario de a bordo, en el que se asentarán los datos relativos a la aeronave, a su tripulación y a cada viaje en la forma que oportunamente se prescriba en aplicación del presente Convenio.

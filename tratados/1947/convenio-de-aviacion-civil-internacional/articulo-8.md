@@ -1,2 +1,3 @@
-Artículo 8
-Ninguna nave capaz de volar sin piloto, lo hará sobre el territorio de Estado contratante sin autorización especial de dicho Estado y de acuerdo a los términos de la autorización. Todos los Estados contratantes se comprometen a velar por que el vuelo de aeronaves sin pilotos en las regiones abiertas al vuelo de aeronaves civiles, se regule de tal modo que evite todo peligro a las naves aéreas.
+ARTÍCULO 8
+Aeronaves sin piloto
+Ninguna aeronave capaz de volar sin piloto volará sin él sobre el territorio de un Estado contratante, a menos que se cuente con autorización especial de tal Estado y de conformidad con los términos de dicha autorización. Cada Estado contratante se compromete a asegurar que los vuelos de tales aeronaves sin piloto en las regiones abiertas a la navegación de las aeronaves civiles sean controlados de forma que se evite todo peligro a las aeronaves civiles.

@@ -1,4 +1,5 @@
 CAPITULO III
 NACIONALIDAD DE LAS AERONAVES
-Artículo 17
-Las aeronaves tendrán la nacionalidad del Estado en que estén matriculadas.
+ARTÍCULO 17
+Nacionalidad de las aeronaves
+Las aeronaves tienen la nacionalidad del Estado en el que estén matriculadas.

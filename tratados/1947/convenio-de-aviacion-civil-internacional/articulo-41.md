@@ -1,2 +1,3 @@
-Artículo 41
-Las disposiciones de este capítulo no se aplicarán, a las aeronaves y al equipo de aeronaves de los modelos cuyo prototipo se presente a las autoridades nacionales competentes para su certificación, antes de cumplirse tres años después de la fecha en que se adopte una norma Internacional de Navegabilidad para tal equipo.
+ARTÍCULO 41
+Reconocimiento de las normas de aeronavegabilidad existentes
+Las disposiciones del presente Capítulo no se aplicarán a las aeronaves ni al equipo de aeronaves de los tipos cuyo prototipo se someta a las autoridades nacionales competentes para su certificación antes de expirar los tres años siguientes a la fecha de adopción de una norma internacional de aeronavegabilidad para tal equipo.

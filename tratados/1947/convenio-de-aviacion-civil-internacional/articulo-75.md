@@ -1,2 +1,4 @@
-Articulo 75
-Un Estado contratante podrá cancelar, en cualquier momento, la obligación que haya asumido de conformidad con el artículo 70, y podrá entrar en posesión de aeropuertos y otras instalaciones que el Consejo haya previsto en su territorio en conformidad con las disposiciones de los artículos 71 y 72, y pagará al Consejo la suma que en opinión de éste sea razonable en tales circunstancias. Si el Estado considera que la cantidad que fija el Consejo no es razonable, podrá apelar de la decisión del Consejo ante la Asamblea, que podrá confirmar o enmendar la decisión del Consejo.
+ARTÍCULO 75
+Adquisición de las instalaciones y servicios
+suministrados por el Consejo
+Un Estado contratante puede en cualquier momento liberarse de toda obligación contraída en virtud del Artículo 70 y hacerse cargo de los aeropuertos y otras instalaciones y servicios provistos por el Consejo en su territorio según las disposiciones de los Artículos 71 y 72, mediante pago al Consejo de una suma que, en opinión de éste, sea razonable en tales circunstancias. Si el Estado considera que la suma fijada por el Consejo es irrazonable, puede apelar de la decisión del Consejo ante la Asamblea, la que podrá confirmar o enmendar tal decisión.

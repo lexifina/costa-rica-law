@@ -1,2 +1,3 @@
-Artículo 2
-Se considera como territorio de un Estado, para los fines de esta Convención la extensión terrestre y las aguas territoriales a ella adyacentes que estén bajo la soberanía, jurisdicción, protección o mandato de ese Estado.
+ARTÍCULO 2
+Territorio
+A los fines del presente Convenio se consideran como territorio de un Estado las áreas terrestres y las aguas territoriales adyacentes a ellas que se encuentren bajo la soberanía, dominio, protección o mandato de dicho Estado.

@@ -1,2 +1,3 @@
-Artículo 11
-De acuerdo con las disposiciones de esta Convención, las leyes y reglamentos de un Estado contratante, relativos a la entrada o salida de su territorio de aeronaves dedicadas a la navegación aérea internacional, o la circulación y navegación de esas naves aéreas mientras estén en su territorio, se aplicará a las de todos los Estados contratantes, sin distinción de nacionalidad, las cuales los observarán al entrar o salir del territorio de dicho Estado o mientras se encuentren en él.
+ARTÍCULO 11
+Aplicación de las reglamentaciones aéreas
+A reserva de lo dispuesto en el presente Convenio, las leyes y reglamentos de un Estado contratante relativos a la entrada y salida de su territorio de las aeronaves empleadas en la navegación aérea internacional o a la operación y navegación de dichas aeronaves, mientras se encuentren en su territorio, se aplicarán sin distinción de nacionalidad a las aeronaves de todos los Estados contratantes y dichas aeronaves deberán cumplir tales leyes y reglamentos a la entrada, a la salida y mientras se encuentren dentro del territorio de ese Estado.

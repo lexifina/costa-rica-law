@@ -1,2 +1,3 @@
-Artículo 33
-Los Estados contratantes aceptarán la validez de certificados de navegabilidad y certificados de competencia y licencias extendidos o declarados válidos por el Estado contratante en que esté matriculada la aeronave, siempre que los requisitos bajo los cuales se expidieron o se declararon válidos dichos certificados o licencias sean iguales o excedan a las normas mínimas que, en su oportunidad, se establezcan de conformidad con esta Convención.
+ARTÍCULO 33
+Reconocimiento de certificados y licencias
+Los certificados de aeronavegabilidad, los certificados de aptitud y las licencias expedidos o convalidados por el Estado contratante en el que esté matriculada la aeronave, se reconocerán como válidos por los demás Estados contratantes, siempre que los requisitos de acuerdo con los cuales se hayan expedido o convalidado dichos certificados o licencias sean iguales o superiores a las normas mínimas que oportunamente se establezcan en aplicación del presente Convenio.

@@ -1,3 +1,6 @@
-Artículo 95
-(a) Cualquiera de los Estados contratantes podrá denunciar esta Convención tres años después de que entrado en vigor, mediante una notificación al Gobierno de los Estados Unidos de América, el cual lo participará inmediatamente a los demás Estados contratantes.
-(b) La denuncia entrará en vigor un año después de la fecha en que se reciba la notificación y tendrá efecto solamente en cuanto al Estado que lo haga.
+ARTÍCULO 95
+Denuncia del Convenio
+a) Todo Estado contratante puede comunicar la denuncia del
+presente Convenio tres años después de su entrada en vigor, por notificación dirigida al Gobierno de los Estados Unidos de América, quien inmediatamente lo informará a cada uno de los Estados contratantes.
+b) La denuncia surtirá efecto un año después de la fecha de
+recibo de la notificación y sólo se aplicará al Estado que haya hecho tal denuncia.

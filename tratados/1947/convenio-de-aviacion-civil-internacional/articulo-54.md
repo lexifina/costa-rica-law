@@ -1,16 +1,18 @@
-Artículo 54
-El Consejo procederá a
-(a) Presentar informes anuales a la Asamblea;
-(b) Llevar a efecto las instrucciones de la Asamblea y desempeñar las funciones y asumir las obligaciones que le asigne esta Convención;
-(c) Determinar su propia organización y adoptar su reglamento;
-(d) Nombrar un Comité de Transporte aéreo y definir sus funciones el cual se elegirá de entre los representantes de los miembros del Consejo y será responsable ante él;
-(e) Establecer una Comisión de Navegación Aérea de acuerdo con las disposiciones del capítulo X;
-(f) Administrar los fondos del Organismo conforme a las disposiciones de los capítulos XII y XV;
-(g) Fijar los emolumentos del Presidente del Consejo;
-(h) Nombrar un jefe ejecutivo, el cual se denominará Secretario General y disponer el nombramiento del personal adicional necesario, de conformidad con las disposiciones del capítulo XI;
-(i) Solicitar, compilar, examinar y publicar los informes relativos al progreso de la navegación aérea y a la explotación de servicios aéreos internacionales, inclusive los de costo de operación y detalles sobre los subsidios pagados por el erario público a las líneas aéreas;
-(j) Informar a los Estados contrates respecto a cualquier infracción de esta Convención y omisión en que se incurra al dejar sin efecto las recomendaciones o determinaciones del Consejo;
-(k) Notificar a la Asamblea acerca de cualquier infracción de esta Convención en que haya incurrido un Estado contratante al no tomar la acción pertinente dentro de un período de tiempo razonable, después de habérsele notificado tal infracción;
-(l) Adoptar de acuerdo con las disposiciones del capítulo VI de esta Convención las normas internacionales y los procedimientos recomendados, que designará para mayor conveniencia como anexos a, esta Convención y notificar a los Estados contratantes la acción tomada;
-(m) Estudiar las recomendaciones de la Comisión de Navegación Aérea respecto a las enmiendas de los anexos y actuar de acuerdo con las disposiciones del capitulo XX;
-(n) Considerar cualquier asunto relativo a la Convención que le remita cualquiera de los Estados contratantes.
+ARTÍCULO 54
+Funciones obligatorias del Consejo
+El Consejo debe:
+a) Someter informes anuales a la Asamblea;
+b) Ejecutar las instrucciones de la Asamblea y cumplir con los deberes y obligaciones que le asigna el presente Convenio;
+c) Determinar su organización y reglamento interno;
+d) Nombrar y definir las funciones de un Comité de Transporte Aéreo, que será elegido entre los representantes de los miembros del Consejo y ante el cual será responsable el Comité;
+e) Establecer una Comisión de Aeronavegación, de acuerdo con las disposiciones del Capítulo X;
+f) Administrar los fondos de la Organización, de acuerdo con las disposiciones de los Capítulos XII y XV;
+g) Fijar los emolumentos del Presidente del Consejo;
+h) Nombrar un funcionario ejecutivo principal, que se denominará Secretario General, y adoptar medidas para el nombramiento del personal necesario, de acuerdo con las disposiciones del Capítulo XI;
+i) Solicitar, compilar, examinar y publicar información relativa al progreso de la navegación aérea y a la operación de los servicios aéreos internacionales, incluyendo información sobre los costos de explotación y datos sobre subvenciones pagadas por el erario público a las líneas aéreas;
+j) Comunicar a los Estados contratantes toda infracción del presente Convenio, así como toda inobservancia de las recomendaciones o decisiones del Consejo;
+k) Comunicar a la Asamblea toda infracción del presente
+Convenio, cuando un Estado contratante no haya tomado las medidas pertinentes en un lapso razonable, después de notificada la infracción;
+l) Adoptar, normas y métodos recomendados internacionales, de acuerdo con las disposiciones del Capítulo VI del presente Convenio, designándolos, por razones de conveniencia, como Anexos al presente Convenio, y notificar a todos los Estados contratantes las medidas adoptadas;
+m) Considerar las recomendaciones de la Comisión de Aeronavegación para enmendar los Anexos y tomar medidas de acuerdo con las disposiciones del Capítulo XX;
+n) Examinar todo asunto relativo al Convenio que le someta a su consideración un Estado contratante.

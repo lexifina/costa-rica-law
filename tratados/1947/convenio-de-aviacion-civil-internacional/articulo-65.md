@@ -1,2 +1,3 @@
-Artículo 65
-El Consejo, a nombre del Organismo, podrá celebrar acuerdos con otros organismos internacionales, para el mantenimiento de servicios comunes y para disposiciones comunes en lo relativo personal y, con la aprobación de la Asamblea, podrá celebrar cualesquiera otros acuerdos que faciliten la labor del Organismo.
+ARTÍCULO 65
+Arreglos con otros organismos internacionales
+El Consejo, en nombre de la Organización, podrá concluir acuerdos con otros organismos internacionales para el mantenimiento de servicios comunes y para arreglos comunes concernientes al personal y, con la aprobación de la Asamblea, podrá participar en todos aquellos arreglos susceptibles de facilitar la labor de la Organización.

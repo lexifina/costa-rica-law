@@ -1,6 +1,13 @@
 CAPITULO V
-CONDICIONES QUE DEBEN LLENERSE RESPECTO A LAS AERONAVES
-Artículo 29
-Toda aeronave de un Estado contratante que se dedique a la navegación internacional deberá llevar los siguientes documentos, de acuerdo con las disposiciones de esta Convención:
-(a) Certificado de matrícula; (b) Certificado de navegabilidad; (c) Las licencias del caso para cada tripulante; (d) Diario de a bordo; (e) La licencia correspondiente, si está provista de aparatos de radio; (f) Una lista de los nombres y lugares de embarque y destino, si lleva pasajeros; (g) manifiesto y declaración detallada de la carga, si lleva
-}
+CONDICIONES QUE DEBEN CUMPLIRSE
+CON RESPECTO A LAS AERONAVES
+ARTÍCULO 29
+Documentos que deben llevar las aeronaves.
+Toda aeronave de un Estado contratante que se emplee en la navegación internacional llevará los siguientes documentos, de conformidad con las condiciones prescritas en el presente Convenio:
+a) Certificado de matrícula;
+b) Certificado de aeronavegabilidad;
+c) Las licencias apropiadas para cada miembro de la tripulación;
+d) Diario de a bordo;
+e) Si está provista de aparatos de radio, la licencia de la estación de radio de la aeronave;
+f) Si lleva pasajeros, una lista de sus nombres y lugares de embarco y destino;
+g) Si transporta carga, un manifiesto y declaraciones detalladas de la carga.

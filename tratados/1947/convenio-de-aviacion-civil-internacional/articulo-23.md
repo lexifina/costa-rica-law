@@ -1,2 +1,3 @@
-Artículo 23
-Cada uno de los Estados contratantes se compromete, hasta donde le sea posible, a adoptar procedimientos de aduana y de inmigración que afecten a la navegación aérea internacional, en concordancia con los que se establezcan o recomienden en su oportunidad según esta Convención. No se interpretará ninguna disposición de esta Convención en el sentido de que impide el establecimiento de aeropuertos francos.
+ARTÍCULO 23
+Formalidades de aduanas y de inmigración
+Cada Estado contratante se compromete, en la medida en que lo juzgue factible, a establecer disposiciones de aduana y de inmigración relativas a la navegación aérea internacional, de acuerdo con los métodos que puedan establecerse o recomendarse oportunamente en aplicación del presente Convenio. Ninguna disposición del presente Convenio se interpretará en el sentido de que impide el establecimiento de aeropuertos francos.
