@@ -1,0 +1,1 @@
+Artículo 6º—Los órganos y entes públicos y las empresas del Estado deberán rendir ante el CE la información que éste razonablemente les pueda requerir para el cumplimiento de sus fines, así como brindar la colaboración que para ello resulte necesaria y conveniente.
