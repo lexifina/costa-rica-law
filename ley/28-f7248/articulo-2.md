@@ -1,0 +1,1 @@
+Art 2°.- Por consiguiente ningún tenedor de fondos publicaciones dados a interés, puede gozar del capital mas tiempo que el prevenido por la ley, y vencido éste deberá la responsabilidad del Tesorero o Administrador del capital.
