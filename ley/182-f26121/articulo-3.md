@@ -1,0 +1,1 @@
+3°.- Queda vigente el artículo primero de la Ley de tres de Agosto de ocho-cientos veinte y siete bajo el concepto de que transeúnte simple jornalero (llamados vulgarmente arganilleros) pagará medio real, y todos los demás pagarán un real.
