@@ -21,3 +21,4 @@ Reglamento para la Adjudicación de Vivienda del Instituto Nacional de Vivienda 
 | 6 | 1993-06-19 | Reglamento 4315 (1993-06-19) |
 | 7 | 1994-02-17 | Reglamento 4387 (1994-02-17) |
 | 8 | 1994-12-07 | Reglamento 4465 (1994-12-07) |
+| 9 | 1996-02-13 | SINALEVI (sin norma nombrada) |
