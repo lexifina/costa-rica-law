@@ -1,0 +1,1 @@
+Transitorio II.—En un plazo máximo de treinta días hábiles contados a partir de la publicación de la presente Ley, el Poder Ejecutivo realizará los cambios correspondientes al Reglamento de la Ley Nº 8147, de 24 de octubre de 2001, con el fin de readecuarlo a lo dispuesto en esta Ley.
