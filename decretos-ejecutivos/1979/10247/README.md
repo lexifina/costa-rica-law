@@ -14,3 +14,4 @@ Estatuto de los Servidores del Fondo del Plan Nacional de Desarrollo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-07-24 | la propia norma |
+| 2 | 1980-03-24 | Decreto Ejecutivo 11365 (1980-03-24) |
