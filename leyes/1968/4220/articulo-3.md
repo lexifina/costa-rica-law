@@ -1,0 +1,1 @@
+Articulo 3°-Modificase la Ley General de Aviación Civil y sus reformas. emitida .por Decreto-Ley N° 762 de 18 de octubre de 1949, en el sentido de que donde diga: "Ministerio de Gobernación", se lea: "Ministerio de Transportes".
