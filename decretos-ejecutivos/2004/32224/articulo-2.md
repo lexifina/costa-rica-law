@@ -1,0 +1,1 @@
+Artículo 2º—Descripción de la servidumbre: Se ubicará en dirección norte a sur, con una longitud de setecientos veintiocho metros, y el ancho de dos metros, para una extensión de 1 437,24 metros cuadrados.

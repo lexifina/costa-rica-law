@@ -1,0 +1,1 @@
+Artículo 3º—La indemnización se fija en la suma de ¢409.177,10 (cuatrocientos nueve mil ciento setenta y siete colones con diez céntimos), los cuales deben ser cancelados de inmediato por parte del señor Carlos Manuel Pérez Ramírez o de su apoderado el Licenciado Oscar Alberto Pérez Murillo.
