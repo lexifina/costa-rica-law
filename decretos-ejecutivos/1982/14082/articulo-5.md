@@ -59,6 +59,7 @@ Leche y crema (incluso sueros de mantequilla o de queso y leche descremada), des
 Leches medicinales y alimenticias, para infantes…………………………………………….. | 02-09-00-01
 Legumbres frescas y secas, no envasadas (incluye hortalizas, verduras, tubérculos, legumbres y raíces comestibles)……………... | 054
 Lentejas, no envasadas…………………………. | 054-02-02
+Levaduras (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14457 del 21 de marzo de 1983) | 099-09-03
 Maicena y otros almidones comestibles de maíz ………………………………………………. | 055-04-02
 Maíz en grano, no envasado…………………….. | 044-01-00
 Maicillo en grano, no envasado…………………. | 045-09-02
@@ -184,6 +185,7 @@ Energizadores (trnasformadores) para cercas eléctricas.........................
 Equipo para atomizar o espolvorear, manuales y de motor………………………………………… | 716-13-05-01
 Equipo para arroz inundado (fangueadoras y otros)………………………………………………… | 712
 Equipo para riesgos y accesorios exclusivos para los mismos…………………………………. | 716-13-05-01
+Grapas para cercas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14457 del 21 de marzo de 1983) | 699-07-01-01
 Jeringas…………………………………………….. | 861-03-02
 Máquinas picadoras de pasto…………………… | 712-09-03
 Máquinas moledoras de forraje…………………. | 712-09-03
