@@ -14,3 +14,4 @@ Reglamento emisión bonos refundición deuda interna 8% 1977, Serie A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-08-17 | la propia norma |
+| 2 | 1981-10-15 | Decreto Ejecutivo 13034 (1981-10-15) |
