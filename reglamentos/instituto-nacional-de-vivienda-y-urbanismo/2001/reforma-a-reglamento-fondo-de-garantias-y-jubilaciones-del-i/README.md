@@ -14,3 +14,4 @@ Reforma a Reglamento Fondo de Garantías y Jubilaciones del Instituto Nacional d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-24 | la propia norma |
+| 2 | 2004-11-23 | Reglamento 5427 (2004-11-23) |

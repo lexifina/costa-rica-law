@@ -1,5 +1,7 @@
+(Derogado)
 INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
 REGLAMENTO FONDO DE GARANTÍAS Y JUBILACIONES MODIFICACIONES
+(Así DEROGADO este reglamento mediante los artículos 43 del Reglamento del Fondo de Garantías y 35 del Reglamento del Fondo de Jubilación del INVU, ambos asentados en el artículo único de la sesión extraordinaria No. 5427, celebrada el día 23 de noviembre del 2004.)
 La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en Sesión No 5053, Artículo IV, inc. 1) del día, 24 de enero del año en curso, acordó:
 Modificar los artículos 17 y 36 del Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Instituto Nacional de Vivienda y Urbanismo, para que se lean de la siguiente forma:
 Artículo 17.—El Fondo se formará con los aportes de sus miembros y del Instituto en la siguiente forma:
