@@ -31,7 +31,8 @@ ii) Que autoriza al Ente Emisor a inmovilizar el monto ofrecido como garantía p
 iii) Que el intermediario acepta expresa e irrevocablemente ceder sus derechos sobre estos depósitos al BCCR en caso de incumplimiento total o parcial de dicho crédito por parte del deudor.
 2. Del otorgamiento del Crédito
 Para la concesión de esta facilidad crediticia el intermediario financiero deberá cumplir previamente los requerimientos establecidos en el Reglamento sobre operaciones especiales para enfrentar el problema del año 2000. Si esta condición no se cumple, será motivo suficiente para que la Autoridad Monetaria no conceda dicho crédito.
-La facilidad crediticia que la Autoridad Monetaria otorgue a un intermediario financiero para enfrentar el problema del año 2000, deberá ser formalizada por el representante legal del intermediario deudor a más tardar tres (3) días después que el BCCR desembolse los fondos. Para esto, el BCCR preparará, máximo veinticuatro (24) horas después del desembolso, un " documento ejecutivo en el que se estipule:
+La facilidad crediticia que la Autoridad Monetaria otorgue a un intermediario financiero para enfrentar el problema del año 2000, deberá ser formalizada por el representante legal del intermediario deudor simultáneamente y a más tardar tres (3) días después que el BCCR desembolse los fondos. No hará ningún desembolso adicional si no están debidamente formalizados de manera ejecutiva los desembolsos anteriores. El Banco Central preparará, máximo veinticuatro (24) horas después del desembolso, un documento ejecutivo en el que se estipule:
+(Así reformado el párrafo anterior mediante resolución N° 195 del 04 de noviembre de 1999).
 i) El concepto del préstamo,
 ii) El monto,
 iii) La tasa de interés corriente y moratoria.

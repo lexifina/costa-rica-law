@@ -14,3 +14,4 @@ Normativa para la línea de crédito especial del Banco Central de Costa Rica a 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-24 | la propia norma |
+| 2 | 1999-11-24 | Resolución 195 (1999-11-04) |
