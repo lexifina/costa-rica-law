@@ -14,3 +14,4 @@ Reglamento a la Ley para Autorizar al Estado, a los Bancos Comerciales del Estad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-16 | la propia norma |
+| 2 | 2003-03-19 | Decreto Ejecutivo 31075 (2003-03-19) |
