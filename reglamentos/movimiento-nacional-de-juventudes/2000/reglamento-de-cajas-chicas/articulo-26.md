@@ -1,0 +1,1 @@
+Artículo 26.—El incumplimiento de este Reglamento obligará a la administración a aplicar las sanciones disciplinarias que se establecen en la Ley General de la Administración Pública, Ley de Administración Financiera, Ley de Contratación Administrativa y su Reglamento y otros reglamentos y disposiciones de la Institución.

@@ -1,0 +1,1 @@
+Artículo 9°—Todo pago por medio de las cajas chicas deben contener su correspondiente contenido presupuestario y será responsabilidad del Contador o funcionario que haga las veces de éste, velar por el cumplimiento de esta disposición.
