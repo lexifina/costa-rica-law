@@ -1,2 +1,1 @@
-Artículo 6º.- El Poder Ejecutivo dictará el Reglamento necesario
-para la mejor ejecución de la presente ley.
+Artículo 6°- El poder Ejecutivo dictará el Reglamento necesario para la mejor ejecución de la presente ley.
