@@ -14,3 +14,4 @@ Designación de subordinados al Ministro-Director de la Oficina de Planificació
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-11-09 | la propia norma |
+| 2 | 1983-10-26 | Decreto Ejecutivo 14969 (1983-10-26) |
