@@ -1,0 +1,7 @@
+Revisión periódica de vehículos.
+1. El Jefe de Transportes elaborara trimestralmente un programa de revisión y mantenimiento de vehículos, que remitirá a la Jefatura de Servicios Generales para su aprobación. Deberá abarcar: lavado de chasis y moler, arrancador, asientos, balería, caja de cambios, carrocería, conjunto de clutch, compensadores, depurador de aire, dirección, llantas, motor, radiador, pintura y otros detalles que estimen necesarios, como el funcionamiento del equipo de comunicaciones.
+2. Los vehículos que presenten algún tipo de desperfecto o ajustes que se deben realizar, se enviarán al taller mecánico que esté prestando el servicio en ese momento.
+3. El Jefe de Transportes ¡levara un control estricto de cambios de aceite y lubricantes para motor, diferenciales, caja de velocidades y dirección, cambios de filtros lubricantes y otros, así como las fechas para realizar los correspondientes afinamientos.
+4. El Jefe de Transportes velara porque el servicio de limpieza de los vehículos se esté practicando debidamente por cada uno de los responsables del vehículo, dicho control lo realizará de forma periódica.
+5. Cada vez que se requiera, pero al menos una vez trimestralmente, se enviarán los vehículos al Departamento de Comunicaciones para la revisión del radio, remitiendo éste último a la Sección de Transportes por escrito la situación de la revisión para su información.
+6. El Jefe de Transportes deberá realizar el inventario regularmente también de las herramientas básicas del vehículo y equipo que tenga.
