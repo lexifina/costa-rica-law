@@ -1,6 +1,5 @@
-Artículo 8º.- Las infracciones al presente reglamento serán
-sancionadas en la siguiente forma:
-a) Conforme a los artículos 4º, 5º, 13, 22 y 25 de la Ley de
-Juegos, cuando se relacione con tales disposiciones; y
-b) Conforme a los artículos 25 y 29 de la Ley sobre Venta de
-Licores, en los casos a que a ella se refiere.
+Artículo 8º.- Las Autoridades de Policía, Representantes y Delegados
+del Patronato Nacional de la Infancia e Inspectores de Defensa Social,
+velarán por el cumplimiento de este reglamento y denunciarán a las
+autoridades respectivas, las infracciones que observen al mismo. Deberán
+actuar de oficio cuando comprueben alguno de esos incumplimientos.

@@ -1,3 +1,3 @@
-Artículo 10.- Por cada máquina de juegos se pagará la patente
-respectiva y deberán los administradores de estos negocios tener a la
-vista los recibos de pago.
+Artículo 10.- ANULADO
+(ANULADO por resolución de la Sala Constitucional Nº 3542-95 de las
+quince horas con treinta minutos del once de julio de 1995)

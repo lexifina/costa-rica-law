@@ -7,6 +7,7 @@ del artículo 140 de la Constitución Política,
 DECRETAN:
 El siguiente,
 Reglamento de Máquinas para Juegos
+(Reformado integralmente por decreto Nº 8722 de 13 de junio de 1978)
 Artículo 1º.- Son absolutamente prohibidos los juegos y diversiones
 que se realicen en máquinas en que la ganancia del jugador depende,
 únicamente de un mecanismo automático incontrolable o de la suerte.

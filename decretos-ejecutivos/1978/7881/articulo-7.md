@@ -1,5 +1,2 @@
-Artículo 7º.- Las autoridades de policía, representantes y delegados
-del Patronato Nacional de la Infancia e Inspectores de Defensa Social,
-velarán por el cumplimiento de este reglamento y denunciarán a las
-autoridades respectivas, las infracciones que observen al mismo. Deberán
-actuar de oficio cuando comprueben alguno de esos incumplimientos.
+Artículo 7º.- Es prohibida la instalación de máquinas para juegos de cualquier clase de las mencionadas en este reglamento, en lugares en donde se expendan licores.
+(La Sala Constitucional mediante resoluciones N° 11154-07 de las 14:48 horas del 01 de agosto del 2007 y 11627-07 de las 8:36 horas del 15 de agosto del 2007, interpretó el artículo 7° del Decreto Ejecutivo N° 8722, que reforma integralmente el presente, en el sentido que, no es inconstitucional este artículo, en tanto se interprete que no se aplica a los lugares donde sólo se expendan licores, como bares y cantinas.)

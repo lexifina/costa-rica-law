@@ -1,4 +1,3 @@
-Artículo 9º.- En caso de reincidencia en cualquiera de las
-infracciones señaladas se procederá a la cancelación de la patente de la
-máquina, sin que esto acarree responsabilidad alguna para el Estado o la
-Municipalidad respectiva.
+Artículo 9º.- ANULADO
+(ANULADO por resolución de la Sala Constitucional Nº 3542-95 de las
+quince horas con treinta minutos del once de julio de 1995)

@@ -13,3 +13,4 @@ Reglamento de Máquinas para Juegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-01-11 | la propia norma |
+| 2 | 1978-01-11 | Decreto Ejecutivo 8722 (1978-06-13) |
