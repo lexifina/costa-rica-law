@@ -1,0 +1,1 @@
+Artículo 2º—Esta Orden será conferida e impuesta por el Concejo Municipal cada dos años, el día primero de agosto en sesión solemne que se realice en celebración de la fundación de Orotina como cantón, el lugar será en el Parque Central José Martí de Orotina. La primera designación se hará el primero de agosto del dos mil cuatro.

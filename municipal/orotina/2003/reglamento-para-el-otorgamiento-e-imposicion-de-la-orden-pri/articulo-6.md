@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad puede reelegir a los miembros de la Comisión Especial con un máximo de tres designaciones de la Orden. Si no son reelectos los miembros, se realizará el trámite expresado en el artículo cuarto tras anterior, en la sesión ordinaria del Concejo Municipal posterior al día de la designación, se tomará el acuerdo para cumplir con este artículo mencionado.

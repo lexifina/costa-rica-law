@@ -1,0 +1,1 @@
+Artículo 5º—La juramentación de la primera Comisión se hará el martes 24 de junio del 2003, con catorce meses anteriores al de la designación del primer año del otorgamiento de la Orden. Justificando tal hecho por el artículo 3, párrafo primero de este Reglamento.
