@@ -1,0 +1,2 @@
+Art 5° _Los lotes de cinco manzanas tendrán siempre un frente de cien varas al camino que los limita; los de menos superficie guardarán esa proporción; entre cada dos lotes de cinco manzanas se dejará un espacio de veinte varas para la formación de calles que pongan en comunicación todos los terrenos.
+Dado en San José, en el Palacio Presidencial, á los veintitrés días del mes de abril de mil ochocientos ochenta y uno.-T. GUARDIA. El secretario de Estado en el Despacho de Hacienda. SALVADOR LARA.
