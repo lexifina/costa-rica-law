@@ -1,0 +1,1 @@
+Artículo 18.—Vigencia de los Permisos de Pesos y Dimensiones. Los Permisos de Pesos y Dimensiones que se emitan con base en lo dispuesto por el presente Reglamento tendrán una vigencia máxima de veinticuatro (24) meses, salvo los relativos al transporte de materias peligrosas cuya vigencia será como máximo de doce (12) meses.

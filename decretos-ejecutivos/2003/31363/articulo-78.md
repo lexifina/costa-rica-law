@@ -1,0 +1,1 @@
+Artículo 78.—Circulación con más de un remolque o semirremolque cuando se transportan materias peligrosas. En ningún caso se permitirá la circulación de vehículos que transportan materias peligrosas con más de un remolque o semirremolque.

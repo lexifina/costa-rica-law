@@ -1,0 +1,1 @@
+Transitorio IV.—En tanto el MOPT no resuelva, señale y demarque las rutas de paso para los vehículos afectados por el presente Reglamento regirá al respecto lo que esté dispuesto en la normativa vigente a la fecha.

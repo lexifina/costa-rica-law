@@ -1,0 +1,1 @@
+Transitorio VI.—Se concede un plazo hasta el 1° de enero del 2004 para que se adopten las medidas necesarias y se ponga en aplicación obligatoria lo estipulado en el artículo 30 del presente Reglamento.

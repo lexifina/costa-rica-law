@@ -1,0 +1,1 @@
+Artículo 55.—Calibración de otras básculas. Todas las básculas, oficiales o privadas, que se pretendan utilizar en el pesaje oficial de vehículos o para presentación de pruebas de descargo deberán ser calibradas cada seis meses por empresas debidamente acreditadas para este fin por el Ente Costarricense de Acreditación.

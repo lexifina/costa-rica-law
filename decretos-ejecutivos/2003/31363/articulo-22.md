@@ -1,0 +1,1 @@
+Artículo 22.—Obligatoriedad de portar tantos Permisos de Pesos y Dimensiones como combinaciones diferentes de vehículos puedan ponerse en circulación. El MOPT podrá extender tantos Permisos de Pesos y Dimensiones como combinaciones de vehículos puedan ponerse en circulación, y mediante sus autoridades podrá exigir su presentación en cualquier tiempo y lugar.

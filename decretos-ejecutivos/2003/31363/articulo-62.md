@@ -1,0 +1,3 @@
+Artículo 62.—Freno de servicio y de estacionamiento en remolques pesados y semirremolques. Los remolques pesados y los semirremolques deberán contar obligatoriamente como mínimo con freno de servicio y freno de estacionamiento.
+El freno de servicio deberá hacer posible el control de movimiento del vehículo y detenerlo en forma segura, rápida y efectiva, cualquiera sea la velocidad y la carga, ya sea en pendiente ascendente o descendente. Además, deberá posibilitar que se gradúe la acción de frenado y que el conductor logre la acción de frenado desde su asiento.
+El freno de estacionamiento deberá hacer posible que el vehículo quede detenido, ya sea en pendiente ascendente o descendente, aún en ausencia del conductor.

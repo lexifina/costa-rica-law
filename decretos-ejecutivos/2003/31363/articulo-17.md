@@ -1,0 +1,1 @@
+Artículo 17.—Otorgamiento de los Permisos de Pesos y Dimensiones. Los Permisos de Pesos y Dimensiones serán otorgados por la oficina respectiva conforme lo dispone el presente Reglamento y restantes disposiciones administrativas que al efecto se emitan.

@@ -1,0 +1,2 @@
+Artículo 87.—Diagrama de pesos máximos permitidos en tractocamión con doble semirremolques (B-Doble). Para los casos de vehículos que fueren tractocamiones con doble semirremolque se establecen, conforme a los términos del presente Reglamento, los siguientes pesos máximos permitidos:
+(Veáse Tabla N° 5 Tractocamión con Doble Semiremoleque (B-Doble), en La Gaceta N° 182 de 23 de setiembre de 2003, página 13.)

@@ -1,0 +1,1 @@
+Artículo 32.—Revisión de las cargas. El control técnico y administrativo de los vehículos en circulación afectados por las disposiciones del presente Reglamento será realizado por los funcionarios del MOPT capacitados para dicha tarea.

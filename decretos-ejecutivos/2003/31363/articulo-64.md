@@ -1,0 +1,1 @@
+Artículo 64.—Freno de servicio continuo o semicontinuo en remolques y semirremolques que superen las cuatro (4) toneladas de Peso Bruto. Los remolques pesados y los semirremolques que superen las 4 Toneladas de Peso Bruto vehicular, deberán estar equipados obligatoriamente con un sistema de freno de servicio del tipo continuo o semicontinuo.

@@ -1,0 +1,1 @@
+Artículo 74.—Horarios de circulación por Rutas Nacionales. Corresponderá al Ministerio de Obras Públicas y Transportes establecer por vía de resolución administrativa los horarios de circulación de los vehículos de carga en aquellos casos en los que técnicamente se justificare por razones de seguridad vial.

@@ -1,0 +1,3 @@
+SECCIÓN V
+Equipo de calibración
+Artículo 54.—Báscula de referencia para la calibración de pesos. El MOPT facilitará una báscula al Ministerio de Economía, Industria y Comercio (MEIC), para que el órgano metrológico adscrito a ese Ministerio cuente con una báscula de referencia para la calibración de pesos. Dicha báscula servirá para la calibración de las masas patrones y de los vehículos que transportan estas masas patrones, de tal manera que cualquier empresa, laboratorio, etc. que se dedique a este fin, pueda ser acreditado por dicho órgano metrológico. El mantenimiento de dicha báscula correrá por cuenta del órgano metrológico.

@@ -1,0 +1,1 @@
+Artículo 65.—Funcionamiento del freno de servicio. El sistema del freno de servicio deberá actuar sobre todas las llantas del remolque o semirremolque, y su acción se distribuirá entre las llantas de un mismo eje, simétricamente en relación al plano medio longitudinal del vehículo.

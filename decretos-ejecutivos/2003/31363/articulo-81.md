@@ -1,0 +1,1 @@
+Artículo 81.—Aplicación a vehículos de primera inscripción. El presente Reglamento es aplicable a los vehículos de carga y de transporte colectivo de personas que se quieran inscribir por primera vez en el país.

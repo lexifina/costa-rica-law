@@ -1,0 +1,3 @@
+Artículo 53.—Presentación del descargo. Para impugnar cualquier infracción a la ley en razón de la naturaleza de esta materia, será necesario presentar, además de lo que disponga la Ley de Tránsito por Vías Públicas Terrestres, los documentos descritos a continuación en el Juzgado de Tránsito correspondiente:
+a) Certificación emitida por el Órgano metrológico nacional que indique la vigencia del refrendo del Órgano de calibración acreditado que calibró la báscula del MOPT.
+b) Certificación emitida por el Órgano de calibración acreditado en la cual se indique la fecha de calibración de la báscula. La calibración no deberá tener más de seis meses de realizada.

@@ -1,0 +1,3 @@
+Transitorio VII.—En todos los casos en que los vehículos a que se refiere el presente Reglamento, estuvieren gravados como consecuencia de un accidente de tránsito, pendiente de resolución judicial, o por cualquier otra causa no finiquitada, el Registro Nacional emitirá a más tardar el 1° de enero del año 2004, su respectiva reglamentación con el fin de determinar la forma en que desde el punto de vista registral pueden solucionarse situaciones tales como la entrega y sustitución de placas de matrícula y cualquier otro asunto que fuere de interés y de su competencia.
+Dado en la Presidencia de la República.—San José, a los dos días del mes de junio del dos mil tres.
+Publíquese.

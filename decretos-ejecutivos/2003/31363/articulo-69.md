@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Prohibiciones
+Artículo 69.—Transporte de carga en el territorio nacional en vehículos con placas extranjeras. Ningún vehículo automotor, remolque y semirremolque con placas de matrícula extranjeras podrá dedicarse al transporte de carga en el territorio nacional. Tampoco podrá transportar carga procedente del exterior o hacia el exterior dentro del territorio nacional, excepto que porte la "Tarjeta Centroamericana para el Control de Pesos y Dimensiones para Vehículos de Carga Internacional", algún documento facultativo o que cuente con permisos aduanales de los diversos regímenes existentes, los cuales deberán portarse en el vehículo automotor en tanto se circule por el territorio nacional.

@@ -1,0 +1,1 @@
+Artículo 46.—En caso de duda de la materia peligrosa transportada. Cuando se tenga duda de la materia que es transportada se seguirá el procedimiento para casos de emergencia, accidente o avería descritos en el Decreto Ejecutivo Nº 24715-MOPT-MEIC-S.

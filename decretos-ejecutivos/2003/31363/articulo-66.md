@@ -1,0 +1,1 @@
+Artículo 66.—Freno de estacionamiento de los remolques pesados y semirremolques. Los remolques pesados y los semirremolques contarán con un freno de estacionamiento, aun cuando estos vehículos se encuentren separados del vehículo automotor.

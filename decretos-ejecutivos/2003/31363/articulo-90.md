@@ -1,0 +1,1 @@
+Artículo 90.—Vigencia. Rige a partir de su publicación y deroga el Decreto Ejecutivo Nº 10 del 15 de diciembre de 1963, denominado Reglamento de Vehículos de Carga, así como toda norma de igual o inferior rango o jerarquía en lo que se le oponga.

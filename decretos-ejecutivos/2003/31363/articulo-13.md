@@ -1,0 +1,1 @@
+Artículo 13.—Pesos Máximos Autorizados y Pesos por Eje de los vehículos de carga. Los pesos máximos permitidos por eje o conjunto de ejes, así como los Pesos Máximos Autorizados (PMA.) se muestran en los cuadros que al efecto se establecen en el presente reglamento.

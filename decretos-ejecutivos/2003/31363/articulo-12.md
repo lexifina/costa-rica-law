@@ -1,0 +1,8 @@
+SECCIÓN II
+Disposiciones relativas a los vehículos de carga
+Artículo 12.—Disposiciones aplicables a las dimensiones máximas de los vehículos. Las dimensiones máximas permitidas a los vehículos son las siguientes:
+a) La distancia máxima permitida entre el centro del eje delantero y el centro del eje trasero o conjunto de ejes de un tractocamión o cabezal deberá ser como máximo de 5 metros.
+b) La carga podrá sobresalir longitudinalmente hasta un metro por la parte posterior en proyección en planta del vehículo. Por la parte anterior no podrá sobresalir de la proyección vertical del parachoques delantero.
+c) En tiempos de cosecha de caña, café y otros productos agrícolas de estación, se permitirá el uso de chapulines como máximo con dos remolques en zonas agrícolas, pero siempre que la combinación de vehículos no supere los 18,50 metros, se utilice un acople secundario (cadena, soga de acero, o similares), según lo que se disponga en el presente Reglamento y la distancia de recorrido sobre vía pavimentada no supere los 5 Kilómetros.
+d) Se permitirán las combinaciones de automóviles con remolque liviano (Rl, R2, etc.) o casa rodante unida a su chasis que no excedan los 10 metros de longitud total.
+e) En el caso de que la dimensión menor de la carga sea superior al ancho del vehículo sin carga, ésta podrá sobresalir hasta 0,40 metros por cada borde lateral del vehículo, siempre que el ancho total del vehículo no sea superior a 2,60 metros. En los vehículos de carga de ancho inferior a 1,00 metro la carga no deberá sobresalir lateralmente más de 0,50 metros a cada lado con respecto al eje longitudinal del mismo.
