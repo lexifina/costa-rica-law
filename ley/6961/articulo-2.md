@@ -1,3 +1,3 @@
-Artículo 2º.- Por el desempeño de sus funciones, los diputados a la Asamblea Legislativa serán remunerados mediante el pago de una suma mensual de veintiséis mil doscientos cuarenta colones.
-La remuneración mensual del diputado Presidente de la Asamblea Legislativa será de veintiocho mil ochocientos colones, y la de los diputados Secretarios de veintisiete mil doscientos colones.
-Las remuneraciones fijada en este párrafo excluyen a las del párrafo primero de este artículo.
+Artículo 2º.- Por el desempeño de sus funciones, los diputados a la Asamblea Legislativa serán remunerados mediante el pago de una asignación mensual de ciento sesenta mil colones (160.000). Por concepto de gastos de representación, recibirán la suma de noventa mil colones (90.000).
+(Así reformado por el artículo 1º de la ley Nº 7204 de 4 de octubre de 1990)
+(Así por resolución de la Sala IV Nº 550-91 de las 18:50 horas del 15 de marzo de 1991)
