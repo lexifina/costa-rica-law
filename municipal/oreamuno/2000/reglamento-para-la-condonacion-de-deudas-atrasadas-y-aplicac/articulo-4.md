@@ -1,0 +1,1 @@
+Artículo 4°-De la multa. De comprobarse alguna fuga o desperdicio del agua causado por negligencia en el mantenimiento del sistema de distribución o el control del consumo, la Junta del Centro de Educación deberá pagar a la Municipalidad una multa hasta de diez veces la tarifa básica mensual especial, de conformidad a lo indicado en el artículo 3° de la Ley N° 798 .

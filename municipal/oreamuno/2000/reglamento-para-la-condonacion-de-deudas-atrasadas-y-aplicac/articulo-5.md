@@ -1,0 +1,1 @@
+Artículo 5°-Del pago de la facturación. A partir del 11 de marzo del 2000, las Juntas de Educación y Administrativas deben comprometerse a tener al día sus obligaciones con la Municipalidad de Oreamuno, pues el presente reglamento solo condona las deudas por agua potable.
