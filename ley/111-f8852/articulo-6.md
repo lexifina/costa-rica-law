@@ -1,0 +1,2 @@
+Art. 6. El licor que salgn de los almacenes para las administraciones respectivas debe ser custodiado por uno dos guardas volantes, y dirigido con una guia que darà el guarda vijilante expresando en ella el número de barriles botas que lo contengan, el nombre del conductor y el del guarda ó guardas que lo custodian: de esta guia dejará conocimiento el guarda vijilante en el libro que al efecto debe llevar. (3)
+(3) id. id. id. id.

@@ -1,0 +1,1 @@
+Art. 8. Las aprehensiones que los resguardos fijos ó volantes hagan de cualquiera clase de contrabando corresponden en el todo à los mismos resguardos; pero tendrán una tercera parte los denunciantes siempre que los haya. El juez competente hará la distribucion legal.
