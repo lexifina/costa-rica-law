@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 5665
+(Esta norma fue derogada por el artículo 70 (actual 73) de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 de 20 de diciembre de 1994)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 La siguiente
