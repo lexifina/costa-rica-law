@@ -1,0 +1,1 @@
+Artículo 5°—El departamento llevará su propia contabilidad, que será controlada por cuentas de enlace, conforme se dispone en el Capítulo VIII de este Reglamento, a efecto de que se puedan medir los resultados periódicos de su operación independiente.

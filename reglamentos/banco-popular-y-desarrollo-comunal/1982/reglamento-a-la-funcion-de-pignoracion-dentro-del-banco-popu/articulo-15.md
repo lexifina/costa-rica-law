@@ -1,0 +1,1 @@
+Artículo 15.—Los tipos de interés de los préstamos que se garanticen con pignoración de artículos, serán fijados por la Junta Directiva Nacional, de acuerdo a las líneas de crédito de carácter social o de desarrollo, conforme con su plan de inversión y los mismos serán calculados desde la fecha de formalización cobrándose el plazo vencido.

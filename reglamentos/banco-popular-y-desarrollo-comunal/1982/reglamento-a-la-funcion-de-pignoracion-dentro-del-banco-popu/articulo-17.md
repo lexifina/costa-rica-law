@@ -1,0 +1,1 @@
+Artículo 17.—Se podrán conceder ampliaciones a los plazos originales de los préstamos una vez vencidos, en razón de una nueva operación cuando la duración del bien en garantía prendaria sea suficiente para cubrir el nuevo plazo y su valor no vaya a sufrir disminución por el transcurso del tiempo.

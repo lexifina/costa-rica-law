@@ -1,0 +1,1 @@
+Articulo 8 °—El plazo para el reembolso de los préstamos sobre sueldos y el tipo de interés que rija para este tipo de préstamos, será el que fije la Junta Directiva Nacional, para los préstamos de carácter personal.

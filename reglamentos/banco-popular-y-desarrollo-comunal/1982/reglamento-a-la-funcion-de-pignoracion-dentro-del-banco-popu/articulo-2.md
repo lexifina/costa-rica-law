@@ -1,0 +1,4 @@
+CAPITULO II
+Objetivo
+Articulo 2°—El Departamento de Pignoración tendrá a su cargo la concesión de créditos garantizados con gravámenes prendarios, otorgados sobre artículos de trabajo, domésticos o personales en buen estado de uso y conservación, de conformidad con los objetivos enunciados en el artículo 34 de la Ley Orgánica del Banco Popular.
+Este Departamento podrá actuar como Agencia, según lo disponga la Junta Directiva Nacional, otorgando préstamos á los empleados públicos y de las instituciones autónomas y semiautónomas del Estado, con garantía fiduciaria de empleados públicos y de las referidas instituciones, cuyos salarios deberán estar libres de embargos y cubrir por lo menos un 40% del monto del préstamo incluyendo el salario del solicitante, pero en todo caso el o los fiadores deberán cubrir por lo menos un 25% de la garantía total.

@@ -1,0 +1,7 @@
+Artículo 6°—El Jefe del Departamento tendrá las siguientes funciones:
+a) Resolver las solicitudes de préstamo, sus plazos y .ampliaciones y el lugar de depósito de las cosas pignoradas, de conformidad con el presente reglamento y con las disposiciones de la Junta Directiva Nacional.
+Deberá excusarse del conocimiento y resolución de las solicitudes de préstamo en que esté personalmente interesado o de igual modo interesen a su cónyuge, ascendientes o descendientes suegro o yerno, hermanos, tíos o sobrinos hasta el tercer grado de consanguinidad o afinidad, Para tal efecto la División General de Crédito del Banco designará un funcionario sustituto.
+b) Examinar y valorar los artículos que se ofrezcan en garantía para lo cual podrá acudir al conocimiento especializado de los empleados del banco, según el caso, o someterlos al peritaje de especialistas externos.
+c) Ver que la Contabilidad del Departamento registre y salde diariamente todo el movimiento económico que origine su operación.
+d) Firmar las autorizaciones para que la tesorería a través de las cajas, haga los desembolsos por las operaciones de crédito aceptadas y formalizadas, así como los gastos que previamente le hayan sido autorizados por medio de las normas del Reglamento de Compras.
+e) Presentar a la División General de Crédito un informe mensual de las actividades del departamento, así como los balances y demás estados de contabilidad.

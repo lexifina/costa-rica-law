@@ -1,0 +1,1 @@
+Articulo 48.—Deberá hacerse contabilización de todas las operaciones y demás movimientos económicos realizados, enviando diariamente a la Contabilidad Central del Banco una copia de cada asiento efectuado, así como el balance de comprobación por saldos.

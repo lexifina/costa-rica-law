@@ -1,0 +1,2 @@
+Artículo 16.—El Banco podrá contratar con el Instituto Nacional de Seguros, a nombre de sus deudores pignoraticios, seguros colectivos contra incendio o robo de las prendas y alhajas dadas en garantía que cubran el monto del préstamo y permitan la liberación de los gravámenes del Banco.
+El Banco cancelará el remanente a los deudores en casos de la realización del evento asegurado. Dicho remanente se calculará tomando de la diferencia entre el avalúo dado por el Banco y el monto del préstamo.

@@ -1,0 +1,2 @@
+Artículo 28.—Los deudores podrán solicitar que se les muestren sus prendas, lo cual se hará contra la presentación del contrato de préstamos, con una frecuencia no mayor de una vez por mes, excepto en bienes que requieren cuidados especiales, en cuyo caso lo podrán hacer cuando se justifique.
+No se revelará el nombre de los deudores sin previa autorización de los mismos u orden emanada de autoridad judicial. A este respecto el departamento adquiere las obligaciones que la ley impone a los acreedores pignoraticios.

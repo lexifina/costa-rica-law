@@ -1,0 +1,1 @@
+Artículo 9°—E1 Director de Crédito, en su condición de superior jerárquico del jefe del departamento, está facultado para resolver cualquier apelación emanada de la tramitación de las solicitudes de crédito, siempre y cuando emita resolución razonada que así lo justifique.

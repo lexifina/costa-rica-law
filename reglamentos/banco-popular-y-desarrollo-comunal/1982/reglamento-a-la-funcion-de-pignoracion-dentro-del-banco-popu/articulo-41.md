@@ -1,0 +1,2 @@
+Artículo 41.—Cuando varios artículos pignorados responden por el pago de un mismo préstamo, el deudor tendrá derecho a que se le anuncien uno a uno o en lote.
+En ausencia del dueño el Jefe del Departamento puede disponer el sistema a seguir. Si con uno o varios de los artículos pignorados se alcanza lo necesario para cubrir la base del remate, se suspenderá el remate de los restantes y se devolverán al interesado a la presentación del contrato de préstamo.

@@ -1,0 +1,1 @@
+Artículo 43.—Una vez terminado el remate de todos los artículos previamente anunciados y no presentándose mejor postor para los artículos no vendidos en ese acto, el Jefe del Departamento dará por concluido el remate y levantará el acta respectiva.

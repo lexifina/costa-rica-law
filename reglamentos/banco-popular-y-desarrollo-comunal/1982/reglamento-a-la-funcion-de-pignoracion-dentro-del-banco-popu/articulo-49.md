@@ -1,0 +1,1 @@
+Articulo 49.—El aporte en dinero efectivo que se le gire para su operación será cargado a su cuenta bancaria, con crédito a la cuenta de la Oficina Central u Oficina Regional, según sea el caso, por su aporte para operación.

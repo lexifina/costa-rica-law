@@ -1,0 +1,1 @@
+Artículo 11.—Las operaciones crediticias estarán cubiertas por un seguro u otro medio que el banco establezca para cubrir a sus deudas en general. El Departamento de Pignoración deberá retener para efectos de su cancelación, los saldos en descubierto y deberá girar el remanente a los causahabientes del deudor fallecido.

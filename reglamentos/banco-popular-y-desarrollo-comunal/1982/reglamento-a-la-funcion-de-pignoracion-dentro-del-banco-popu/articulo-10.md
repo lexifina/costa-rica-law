@@ -1,0 +1,1 @@
+Artículo 10.—La falta de pago de una de las cuotas de abono o del saldo del préstamo, a su vencimiento, será causal para que el departamento inicie los trámites para el cobro judicial o para que se cobren administrativamente las cuotas de abono del préstamo, mediante deducción del salario del deudor y de los fiadores, previa autorización por escrito de los mismos.

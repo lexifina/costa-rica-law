@@ -1,0 +1,1 @@
+Artículo 25.—El monto del préstamo no podrá ser superior al 75% del valor que se estime al artículo ofrecido como garantía, salvo que por sus características sea presumible un aumento de su valor como consecuencia del transcurso del tiempo, en cuyo caso podrá prestarse el 100% del valor estimado.

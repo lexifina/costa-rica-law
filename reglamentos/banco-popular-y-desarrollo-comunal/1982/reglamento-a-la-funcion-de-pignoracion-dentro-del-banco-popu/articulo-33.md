@@ -1,0 +1,1 @@
+Artículo 33.—Los gastos administrativos en que incurriere el Departamento de Pignoración por la ejecución del remate respectivo, serán cobrados al deudor según porcentaje que fije la Junta Directiva Nacional.

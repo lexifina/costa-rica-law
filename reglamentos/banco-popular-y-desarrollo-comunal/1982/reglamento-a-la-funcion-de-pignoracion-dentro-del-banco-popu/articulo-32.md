@@ -1,0 +1,1 @@
+Artículo 32.—Los remates serán presididos por el Jefe del Departamento, ayudado por el contador del mismo y los demás empleados que sean necesarios. Se utilizarán los servicios de un Corredor Jurado, quien tendrá a su cargo el remate de las prendas, debiendo informar al Jefe del Departamento, de las personas a quienes se adjudiquen.

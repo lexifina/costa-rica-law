@@ -1,0 +1,1 @@
+Artículo 34.—El aviso de la fecha del remate se publicará una vez en Diario Oficial, con quince días de anticipación cuando menos, contados desde el primer aviso, incluyendo el día de éste y el del remate. Además se hará una publicación en uno de los diarios de circulación nacional.

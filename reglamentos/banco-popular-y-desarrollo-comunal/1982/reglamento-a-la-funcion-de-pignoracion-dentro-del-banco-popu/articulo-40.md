@@ -1,0 +1,2 @@
+Articulo 40.—Todo deudor tiene derecho de retracto para recuperar su prenda en la misma suma antes de haber sido adjudicada a otro.
+Para la eficacia de este derecho es preciso que el deudor o el portador del contrato de préstamo, lo haga saber por escrito al Jefe del Departamento antes del remate o antes de que el artículo se haya entregado a la persona a quien resultare adjudicataria. El importe del remate debe pagarse en el mismo acto.

@@ -1,0 +1,1 @@
+Articulo 36.—La base para el remate de un artículo será el valor asignado al bien al momento de hacer el préstamo, más los intereses acumulados, los gastos de avalúo y otros en que hubiere sido necesario incurrir para la conservación del mismo.

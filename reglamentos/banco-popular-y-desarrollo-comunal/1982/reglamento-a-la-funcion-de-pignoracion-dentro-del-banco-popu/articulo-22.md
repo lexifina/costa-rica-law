@@ -1,0 +1,1 @@
+Articulo 22.—Después de tres meses de permanecer en las bodegas del departamento los artículos recibidos en garantía, o desde el primer día si ocupara más de un metro cúbico de espacio, podrá cobrarse una tasa de almacenaje igual a la que cobran los almacenes de depósito, salvo que un estudio social informe al jefe del departamento la conveniencia de un almacenaje gratuito.

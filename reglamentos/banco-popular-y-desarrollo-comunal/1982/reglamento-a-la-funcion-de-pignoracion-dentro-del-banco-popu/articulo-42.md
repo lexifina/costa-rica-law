@@ -1,0 +1,2 @@
+Artículo 42.—El excedente de lo obtenido en el remate respecto de la deuda y sus accesorios, pertenece al deudor. Tales saldos se informarán en el Diario Oficial y en un periódico de circulación nacional con la única cita del número del contrato de préstamo, para que los interesados se presenten a hacer sus retiros, previa presentación del documento.
+Los saldos que no hubieren sido reclamados después del término de prescripción respectiva, pasarán definitivamente a ser propiedad del Banco.

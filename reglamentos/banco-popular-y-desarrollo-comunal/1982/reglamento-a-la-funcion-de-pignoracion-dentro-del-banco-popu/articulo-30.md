@@ -1,0 +1,1 @@
+Artículo 30.—Las prendas recibidas en el Departamento de Pignoración en garantía de préstamos, no podrán ser reinvindicadas, sin que a este se le haya cubierto el capital e intereses del préstamo, así como los gastos en los que se haya incurrido con el bien dado en garantía.

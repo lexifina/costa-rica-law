@@ -1,0 +1,1 @@
+Articulo 19.—No se aceptarán en garantía de préstamos, combustibles, líquidos o sustancias contenidas en envases cerrados, a menos que puedan abrirse sin que se dañen o desnaturalicen, ni en general los objetos que constituyan peligro para la conservación del edificio o de los bienes y personas que permanecen en el mismo.

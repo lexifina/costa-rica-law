@@ -1,0 +1,1 @@
+Articulo 23.—La cesión de la cosa pignorada deberá hacerse constar expresamente tanto en la copia en poder del deudor como en el documento original de contrato de préstamo. Las cesiones ordenadas por la Autoridad Judicial se consignarán en el documento original mediante cita de la resolución que así lo ordene.

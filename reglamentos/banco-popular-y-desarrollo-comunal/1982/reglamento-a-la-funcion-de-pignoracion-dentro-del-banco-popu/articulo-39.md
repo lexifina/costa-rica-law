@@ -1,0 +1,1 @@
+Articulo 39.—La prenda que no obtenga postor en el primer remate, será sacada por segunda vez en el próximo remate, con una rebaja de un 10% de la base del primero, y si en esta vez tampoco tuviese postor, el departamento procederá a su venta por justiprecio, dado por una comisión de funcionarios del Banco que designará la Junta Directiva Nacional.
