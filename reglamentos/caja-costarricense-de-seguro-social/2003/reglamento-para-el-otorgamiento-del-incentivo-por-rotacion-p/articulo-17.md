@@ -1,0 +1,1 @@
+Artículo 17.—La administración activa, será la responsable de proponer las modificaciones a este Reglamento ante Junta Directiva, cuando las circunstancias propias de la dinámica institucional así lo ameriten.

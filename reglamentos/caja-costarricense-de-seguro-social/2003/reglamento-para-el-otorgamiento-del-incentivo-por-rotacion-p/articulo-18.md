@@ -1,0 +1,1 @@
+Artículo 18.—Las modificaciones que se realicen como consecuencia de cambios trascendentales en la dinámica misma en los procesos, horarios o jornadas, podrían eliminar el reconocimiento que se hubiese concedido al funcionario(a), ya que el disfrute del Incentivo depende de la condición de rotación por los tres turnos.

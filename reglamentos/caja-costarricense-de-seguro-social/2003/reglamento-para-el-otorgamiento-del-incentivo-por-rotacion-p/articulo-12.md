@@ -1,0 +1,1 @@
+Artículo 12.—Las unidades que tengan o lleguen a tener funcionarios (as) con derecho al pago del Incentivo, deberán contar con el correspondiente contenido presupuestario, con el fin de hacer efectivo dicho pago.

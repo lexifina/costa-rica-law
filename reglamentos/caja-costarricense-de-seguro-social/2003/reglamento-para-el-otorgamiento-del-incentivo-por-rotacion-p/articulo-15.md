@@ -1,0 +1,1 @@
+Artículo 15.—La oficina de recursos humanos estará en la obligación de verificar previo al trámite, que se adjunte la correspondiente constancia de la jefatura inmediata del funcionario(a), en donde se especifica que el trabajador (a) cumple con la rotación por los tres turnos.
