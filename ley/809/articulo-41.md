@@ -1,0 +1,15 @@
+Artículo 41.- Están obligados los Médicos Oficiales a expresar en su
+informe, las causas inmediatas del fallecimiento y, cuando haya lesiones,
+a manifestar su número, apariencia, longitud, profundidad, localización,
+los órganos lesionados, y el instrumento con que han sido causadas,
+especificando:
+a) Si los caracteres de ellas indican de modo cierto o probable, que
+fueron obra del propio interfecto, o de otra persona;
+b) Si en este último caso las lesiones han producido la muerte como
+causa única de ella o como causa concurrente con otras inmediatas, que las
+lesiones determinaron directa o indirectamente, sea por razón de alguna
+circunstancia particular inherente a la persona, sea en fin, por efecto de
+circunstancias accidentales; y
+c) Si habría podido impedirse ese resultado con oportunas y eficaces
+intervenciones, y si éstas eran posibles en el lugar y en las demás
+circunstancias del suceso.
