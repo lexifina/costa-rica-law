@@ -1,0 +1,1 @@
+Articulo 3°-Autorízase al señor Procurador General de la República a comparecer ante la notaría del Estado con el objeto de hacer protocolizar en lo conducente este decreto y para traspasar en el mismo acto al Instituto de Tierras y Colonización los inmuebles descritos.
