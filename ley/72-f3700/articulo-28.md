@@ -1,0 +1,1 @@
+Artículo 28.-En el caso de pertenecer una finca a varios condueños, cada uno de éstos estará obligado solidariamente al pago total de la contribución sobre la propiedad entera, si la poseen en común, o sobre el valor del lote que posea en pago de sus derechos, si existiere división material de hecho.

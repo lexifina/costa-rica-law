@@ -1,0 +1,1 @@
+Artículo 26.-No se autorizará el en Registro de la Propiedad inscripción posterior alguna de los bienes inscritos, o la primera si se trata de no inscritos aún o de segregaciones, mientras no se demuestre haber sido satisfecho el impuesto correspondiente al trimestre último o corriente.

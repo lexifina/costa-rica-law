@@ -1,0 +1,1 @@
+Artículo19.-La obligación de pagar esta contribución es una carga real, que pesa, con preferencia a todo otro gravamen, sobre el inmueble afectado, además de ser una deuda personal del dueño, con el privilegio establecido respectivamente en los artículos 993 y 1000 del Código Civil.

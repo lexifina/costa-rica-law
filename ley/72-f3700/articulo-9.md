@@ -1,0 +1,1 @@
+Artículo 9°.-Sobre los datos declarados por el interesado, la Administración fijará provisionalmente el valor común en el sentido de esta ley-de cada propiedad, y la tasará para los efectos de la contribución de acuerdo con los artículos 11 y 12.

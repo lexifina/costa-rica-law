@@ -1,0 +1,1 @@
+Artículo15.-Los terrenos incultos menores de cien hectáreas, no gozan de la exención del artículo 12, si están situados a una distancia menor de mil metros de una calle pública o de alguna estación de ferrocarril, a menos que se trate de bosques o lagos en las inmediaciones de los centros de población, por el interés higiénico que para éstos tiene la conservación de aquellos.

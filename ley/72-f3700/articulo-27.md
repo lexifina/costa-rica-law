@@ -1,0 +1,1 @@
+Artículo 27.-Ningún Juzgado-una vez reglamentada esta contribución dará en adelante curso a solicitudes de títulos supletorios, si no comprueba el solicitante haber pagado la contribución territorial correspondiente.

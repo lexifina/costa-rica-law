@@ -1,0 +1,2 @@
+Artículo 29.-La totalidad del producto del impuesto territorial se destinará por el Poder Ejecutivo, única y exclusivamente, a la hechura, reparación y conservación de caminos y vías de comunicación.
+La Ley vigente de Contribución para Caminos de 8 de agosto de 1898, y sus reformas de 9 de agosto de 1899, quedará derogada en la fecha que señale el Reglamento que dicte el Poder Ejecutivo para comenzar la recaudación y pago del impuesto territorial.

@@ -1,0 +1,1 @@
+Artículo 5°.-Todo propietario o poseedor a título de dueño, de alguno o algunos inmuebles, está obligado a declararlos cada año ante la oficina que con ese objeto se señale, manifestando su valor y todos los detalles que se relacionen con ellos. La declaración se hará por escrito, en la forma y en la ‚poca que establezca el Reglamento respectivo.
