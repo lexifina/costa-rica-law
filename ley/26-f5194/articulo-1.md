@@ -1,0 +1,2 @@
+DECRETO XXVI
+Aprueba los actos del Poder Ejecutivo contenidos en la Memoria de Hacienda y Guerra, Marina y Caminos, ha dado cuenta al Congreso Nacional. Exceptuándose la orden número 274 de 4 de agosto de 1859 por ser arbitraria e ilegal, y porque ataca 8 de 26 de marzo del corriente año es nulo, por haber sido emitido por el Ejecutivo sin tener facultad, mas atendiendo a la utilidad decreto, y a las consecuencias que pudieran resultar de su derogatoria, queda rivalidad y con toda la fuerza de ley.
