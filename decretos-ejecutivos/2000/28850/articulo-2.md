@@ -1,0 +1,7 @@
+Artículo 2º—Los requisitos de los participantes:
+1. Podrá actuar como participante en el concurso cualquier persona, funcionario público o empresario privado, que tenga en ejecución o haya concebido un proyecto de alto contenido tecnológico que promueva la eficiencia de la administración pública y/o el mejoramiento de la calidad de sus servicios a los ciudadanos. El proyecto puede estar en proceso de desarrollo o ya en ejecución.
+2. El proyecto deberá contar con el patrocinio de las autoridades superiores de la o las instituciones en que deba implantarse o se haya implantado. Una de esas autoridades deberá actuar como proponente del proyecto, y su institución será quien reciba y administre los fondos destinados al proyecto mismo en el caso que resulte ganador.
+3. El funcionario público que actúe como participante debe tener el permiso de su superior inmediato para dedicarse al proyecto con la intensidad y tiempo indispensables para completar su diseño o implantación, según el caso.
+4. El participante deberá mencionar cualquier situación de conflicto de intereses en que se encuentre en relación con cualquiera de los miembros del jurado del concurso.
+5. Se entenderá que la presentación de un proyecto al concurso implica la aceptación total de sus normas y condiciones por sus participantes y proponente.
+6. La presentación se realizará por medios digitales, inscribiéndose en el formulario incluido dentro de la página http://www.casapres.go.cr/concurso, acatando las especificaciones dadas.
