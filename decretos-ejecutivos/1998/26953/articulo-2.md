@@ -1,0 +1,1 @@
+Artículo 2°—Para estos efectos únicamente, autorizar al Ministerio de Relaciones Exteriores y Culto, a efectuar pagos con cargo al citado fondo de Caja Chica, en cada caso, hasta por un monto de 6.000.000 (seis millones de colones).
