@@ -1,0 +1,1 @@
+Artículo 11.—Derogaciones. Deróganse todas las demás disposiciones tributarias que correspondan específicamente a los derechos que gravan la salida del territorio costarricense, incluso el derecho de la visa de salida; asimismo, se derogan cualesquiera otras disposiciones que se opongan a la presente Ley.
