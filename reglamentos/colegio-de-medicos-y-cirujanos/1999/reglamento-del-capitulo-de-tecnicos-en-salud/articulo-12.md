@@ -1,0 +1,1 @@
+12.—Convocatorias a la Asamblea General. La Asamblea General se reunirá ordinariamente una vez al año en el mes de enero para realizar la elección de la Junta Directiva y extraordinariamente cuando así se amerite.

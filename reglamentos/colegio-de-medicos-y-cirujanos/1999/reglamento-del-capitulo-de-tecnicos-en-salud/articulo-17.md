@@ -1,0 +1,1 @@
+17.—Del recurso de revocatoria. Los recursos en contra de resoluciones de la Asamblea General y la Junta Directiva, serán planteados y tramitados conforme a las disposiciones de la Ley Orgánica y el Reglamento del Colegio de Médicos y Cirujanos de Costa Rica.

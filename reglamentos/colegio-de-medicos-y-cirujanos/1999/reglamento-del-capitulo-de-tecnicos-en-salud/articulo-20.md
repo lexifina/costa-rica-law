@@ -1,0 +1,1 @@
+20.—La emisión de los votos. Los Asambleístas emitirán su voto en boletas diseñadas al efecto. Cada Asambleísta tiene derecho a un voto para cada uno de los puestos a elegir o asuntos a tratar. Los miembros de la Junta Directiva tendrán iguales derechos y obligaciones que los demás Asambleístas, con excepción del Presidente que en caso de un empate, tiene derecho al doble voto.
