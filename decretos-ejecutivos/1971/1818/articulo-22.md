@@ -1,1 +1,0 @@
-Artículo 22°-La llegada tardía que exceda 20 minutos, contados a partir de las horas de ingreso señaladas en el artículo 9° y que a juicio del jefe superior inmediato carezca de justificación acarreará al servidor la perdida de la fracción de jornada correspondiente.
