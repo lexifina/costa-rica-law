@@ -1,0 +1,1 @@
+Artículo 5º- Los boletos no vendidos y los retirados del mercado, por razones de conveniencia, deberán ser inutilizados y destruidos de manera que no dejen posibilidad de fraude. De esta operación se deberá levantar un acta que deberá ser suscrita por un notario público, un contador público autorizado y los representantes de la Fundación Hogares Crea Internacional de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 6º- Los boletos premiados serán pagados al portador a su presentación, cuando se trate de premios menores, por los mismos vendedores autorizados y si son premios mayores en las oficinas centrales de la Fundación en los lugares que esta designe.
