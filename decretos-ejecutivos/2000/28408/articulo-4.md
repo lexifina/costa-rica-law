@@ -1,0 +1,16 @@
+4º—Las actividades prioritarias a desarrollar durante el año 2000, declarado como el Año Nacional de la Salud Ocupacional serán:
+- Actualizar y ejecutar el Plan Nacional de Salud Ocupacional, publicado según Decreto Nº 26904-TSS.
+- Desarrollar acciones tendientes a lograr un cambio hacia la cultura preventiva en salud ocupacional de los patronos públicos y privados, así como trabajadores, sindicatos, asociaciones solidaristas, cooperativas, municipalidades y otros.
+- El Ministerio de Salud implementará un Sistema Nacional de Vigilancia de las Enfermedades y Accidentes del Trabajo, con el apoyo del CSO.
+- Las Instituciones Públicas relacionadas con la Salud Ocupacional coordinarán las acciones de inspección, articulación y administración de los registros de información sobre los centros de trabajo.
+- Se procederá por parte del CSO antes del término de este año, a revisar, actualizar y estandarizar las Tablas de enfermedades profesionales, según lo establecido en el Artículo 225 de laLey 6727.
+- Se crea el Premio Nacional en Salud Ocupacional, el cual será otorgado anualmente a partir del año 2000, durante las actividades oficiales del día Nacional de la Salud Ocupacional.
+- Deberán establecerse los mecanismos para desarrollar las Oficinas de Salud Ocupacional en cada Institución Pública y Privada, acorde con lo establecido en el Artículo 300 de la Ley 6727.
+- Creación de un Sistema Nacional de Información en Salud Ocupacional, con el apoyo del CSO.
+- Se hará una revisión de los procesos de importación de equipos de protección personal para simplificarlos.
+- Los equipos de protección personal deberán ser homologados por Entes acreditados, reconocidos por el CSO.
+- Se establecerá un mecanismo de coordinación de las acciones y recursos de los programas para la prevención y promoción de la salud ocupacional, que incluyen el Programa de Gestión Preventiva del INS, el Programa de Centros de Trabajo Saludables, el Programa de Médicos de Empresa de la CCSS y el Plan Nacional de Salud Ocupacional.
+- Revisión de las Normas de Atención Integral en Salud, de manera que se cumplan acciones básicas de salud ocupacional en los diferentes escenarios de atención de la salud, donde se brinda la oferta básica de servicios, incluyendo el Sistema de Medicina de Empresa.
+- Elaborar una propuesta para el establecimiento de una red de apoyo técnico en salud ocupacional en los diferentes niveles del modelo de atención integral de la CCSS.
+- Se dará énfasis al cumplimiento del Plan de Incorporación de la Salud Ocupacional al Sistema Educativo Formal.
+- El CSO deberá de crear una política nacional de investigación en temas relacionados con la Salud Ocupacional y su respectivo financiamiento.

@@ -1,0 +1,1 @@
+3º—El Ministerio de Trabajo y Seguridad Social, en su calidad de Rector de la Salud Ocupacional, a través del Consejo de Salud Ocupacional (CSO), acorde a la normativa establecida, coordinará todas las acciones que se generen a partir de este Decreto.
