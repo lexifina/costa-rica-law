@@ -1,0 +1,1 @@
+Artículo 20.—No se practicarán pruebas diagnósticas a los animales vacunados si no hasta que dependiendo de la vacuna utilizada se considere la desaparición de anticuerpos vacunales, salvo experimentación para evaluar vacuna u otros casos

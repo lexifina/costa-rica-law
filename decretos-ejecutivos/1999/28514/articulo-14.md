@@ -1,0 +1,1 @@
+Artículo 14.—Los procedimientos de diagnóstico serológico y bacteriológicos de la Brucelosis serán los que recomiende la Oficina Internacional de Epizootias (OIE) y la Organización Panamericana de la Salud (OPS).

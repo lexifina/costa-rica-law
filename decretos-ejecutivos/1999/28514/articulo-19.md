@@ -1,0 +1,1 @@
+Artículo 19.—Los animales a que se refiere el artículo anterior deben ser segregados en la finca y con la mayor brevedad enviarse a sacrificio. Salvo aquellas fincas en que la seropositividad sea considerablemente alta y bajo normativa técnica de la dirección del programa se acoja a un programa de saneamiento.

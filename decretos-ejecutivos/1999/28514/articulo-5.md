@@ -1,0 +1,1 @@
+Artículo 5º—La vacunación contra Brucelosis podrán hacerla técnicos y médicos veterinarios oficiales, así como técnicos y médicos veterinarios particulares acreditados para tal fin en la Dirección de Salud Animal, los que deberán cumplir con las directrices establecidas por ésta

@@ -1,0 +1,1 @@
+Artículo 15.—La Dirección de Salud Animal programará pruebas serológicas dirigidas a determinados hatos y áreas del país con el fin de evaluar la situación sanitaria y el avance del programa. En estos casos las pruebas serán de carácter obligatorio y gratuito por ser de interés nacional.

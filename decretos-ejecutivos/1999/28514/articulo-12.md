@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección de Salud Animal a través del LANASEVE será la única autorizada para importar o autorizar a otros laboratorios acreditados para que importen antígenos o reactivos de diagnóstico para la Brucelosis. En este caso estos deben cumplir con la legislación vigente en la materia.

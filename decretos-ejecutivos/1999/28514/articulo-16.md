@@ -1,0 +1,1 @@
+Artículo 16.—Los propietarios que así lo deseen podrán solicitar el saneamiento de su hato para obtener la credencial de hato libre en cuyo caso se practicarán pruebas diagnósticas y eliminación de los animales reactores con base en el convenio de prueba previamente firmado, sin responsabilidad alguna para el Ministerio de Agricultura y Ganadería.
