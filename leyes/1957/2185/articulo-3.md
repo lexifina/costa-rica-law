@@ -1,0 +1,1 @@
+Artículo 3°-Para garantizar el pago de la obligación consignada en el artículo anterior, el Estado hará entrega a la Caja de pagarés por el monto correspondiente. Tales valores deberán ser cancelados en un plazo de 20 años contados a partir del primero de enero de 1958 mediante cuotas mensuales vencidas de ¢110.311.40 que comprenden amortización e intereses al 6% anual efectivo.

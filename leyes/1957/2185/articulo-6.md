@@ -1,0 +1,1 @@
+Artículo 6°-Los impuestos creado por el artículo 24 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, N° 17 de 22 de octubre de 1943, para financiar la cuota del Estado como tal y como patrono, ingresarán directamente a la Administración General de Rentas del Estado.
