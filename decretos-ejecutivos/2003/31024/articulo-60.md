@@ -1,0 +1,1 @@
+Artículo 60.—No obstante lo indicado, para la adquisición y traspaso de inmuebles, remodelación, ampliación, construcción o demolición de edificaciones escolares, las Juntas deberán obtener un dictamen favorable del Centro Nacional de Infraestructura Física Educativa del Ministerio de Educación Pública.

@@ -1,0 +1,1 @@
+Artículo 14.—Las Juntas Administrativas serán nombradas directamente por el Concejo Municipal y cada integrante será elegido de cada una e cinco nóminas de no menos de cinco candidatos que propondrá el Director del Colegio, previa consulta con el Consejo de Profesores y con el Comité Ejecutivo del Gobierno Estudiantil.

@@ -1,0 +1,1 @@
+Artículo 77.—El Tesorero-Contador no podrá involucrarse en asuntos propios de la administración institucional y deberá rendir garantía a favor de la Hacienda Pública, para asegurar el correcto cumplimiento de sus deberes u obligaciones en los alcances que establece la Ley de la Administración Financiera de la República y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 54.—Las Direcciones Regionales de Enseñanza emitirán su resolución, referente a los proyectos de presupuesto extraordinario o de modificaciones presupuestarias, dentro del término de quince días posteriores a su presentación.

@@ -1,0 +1,1 @@
+Artículo 25.—Una vez concluida la investigación, el Asesor Supervisor de Educación pondrá el expediente en conocimiento del Director Regional de Enseñanza respectivo, con sus recomendaciones y observaciones.

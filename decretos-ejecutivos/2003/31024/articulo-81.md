@@ -1,0 +1,1 @@
+Artículo 81.—La oposición del Tesorero-Contador, cuando estimare que un acuerdo sea ilegal, deberá consignarse en actas si estuviere presente en el momento de su adopción o, a más tardar, en la sesión ordinaria siguiente, en cuyo caso hará sus observaciones por escrito.

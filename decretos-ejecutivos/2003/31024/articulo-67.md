@@ -1,0 +1,1 @@
+Artículo 67.—Cuando se trate de una institución unidocente, la Junta aplicará la modalidad de compra de servicios, para lo cual deberá escoger de entre al menos tres oferentes, un proveedor que venda los alimentos ya preparados.
