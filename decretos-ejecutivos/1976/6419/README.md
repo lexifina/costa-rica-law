@@ -13,3 +13,4 @@ Reglamento del Colegio de Geólogos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-11-06 | la propia norma |
+| 2 | 1976-11-06 | SINALEVI (sin norma nombrada) |
