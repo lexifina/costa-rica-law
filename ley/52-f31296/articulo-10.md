@@ -1,0 +1,1 @@
+Artículo 10.—Los préstamos que el Banco Internacional haga al Gobierno y al Crédito Hipotecario, de acuerdo con las prescripciones de esta ley, devengarán un interés no mayor de cuatro por ciento anual, que necesariamente será capitalizado al final del primer año y cuyas demás condiciones fijarán de mutuo acuerdo las partes contratantes.
