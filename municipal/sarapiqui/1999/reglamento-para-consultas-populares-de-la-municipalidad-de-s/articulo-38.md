@@ -1,0 +1,1 @@
+Artículo 38.—Vigencia. El presente reglamento, una vez aprobado por el Concejo Municipal, rige a partir de su publicación en el diario oficial "La Gaceta". Se da un plazo de un mes para escuchar objeciones, quedando posteriormente definitivamente aprobado.

@@ -1,0 +1,1 @@
+Artículo 26.—Requisito para destitución. Para destituir al Ale Municipal se requiere dos tercios del total de votos emitido para el plebiscito y que esos dos tercios no sean inferiores al diez por ciento del total de electores inscritos en el cantón. De igual forma se procederá en caso de la destitución de suplentes contemplado en el artículo veinticinco.

@@ -1,0 +1,1 @@
+Artículo 18.—Documentación Electoral. El Tribunal Supremo Elecciones asesorará a la Municipalidad en cuanto a las seguridad básicas de la confección y manejo de la documentación electoral que necesaria.

@@ -1,0 +1,1 @@
+Artículo 17.—Papeletas. El Concejo Municipal elaborara las papeletas que serán usadas en la votación de los plebiscitos y los referendos, las cuales contendrán la pregunta que se somete a consulta salvo si este fuere muy largo, caso en el cual deberá elaborarse un afiche con el articulado completo, que deberá ser pegado en la entrada de al recinto de votación.

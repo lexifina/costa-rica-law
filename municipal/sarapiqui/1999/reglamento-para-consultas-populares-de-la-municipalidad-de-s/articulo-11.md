@@ -1,0 +1,1 @@
+Artículo 11.—Ubicación de los Recintos de Votación. El Concejo deberá definir, dentro del mes inmediato siguiente a la convocatoria formal a consulta, los lugares que serán utilizados como centros de votación.
