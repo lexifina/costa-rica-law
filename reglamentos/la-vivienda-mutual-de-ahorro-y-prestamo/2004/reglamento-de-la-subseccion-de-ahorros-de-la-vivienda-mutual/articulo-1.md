@@ -1,0 +1,6 @@
+LA VIVIENDA MUTUAL DE AHORRO Y PRÉSTAMO
+REGLAMENTO DE LA SUBSECCIÓN DE AHORROS DE LA VIVIENDA MUTUAL DE AHORRO Y PRÉSTAMO
+Las presentes normas son lineamientos generales que regulan las relaciones entre el titular de las cuentas de ahorro tanto en colones como en dólares suscritos entre el ahorrante y La Vivienda Mutual de Ahorro y Préstamo, en adelante La Vivienda, sin perjuicio de las disposiciones contenidas en la Ley del Sistema Financiero Nacional para la Vivienda, en adelante la Ley y sus Reglamentos, y normas conexas
+Artículo 1º—Apertura generalidades. Las personas naturales o jurídicas, nacionales o extranjeras, podrán abrir en La Vivienda, cuentas de ahorro en colones o en dólares a la vista que se acreditarán en cuentas individuales a nombre del depositante, o bien, individual o mancomunada, si es en dólares.
+Se reconocerá el tipo de interés que La Mutual deberá fijar periódicamente.
+Los intereses deberán acreditarse, mensualmente en las cuentas en colones, y quincenalmente en las cuentas en dólares. Cada saldo de la cuenta ganará intereses solamente durante los meses calendario o quincenas completas en que se mantuvo la cuenta respectiva, y no se tomarán en consideración las fracciones de mes o de quincena.

@@ -1,0 +1,2 @@
+Artículo 3º—Apertura. Monto mínimo. El monto mínimo inicial de apertura de la cuenta en colones es de ¢500,00, ó bien, $50,00 si se trata de cuenta en dólares.
+Una misma persona podrá tener más de una cuenta de ahorros, sin embargo, para efectos de garantía e inembargabilidad, se tomarán como una sola, y se le aplicarán las condiciones establecidas en la Ley del Sistema Financiero Nacional para la Vivienda y su Reglamento.

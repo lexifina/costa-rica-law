@@ -1,0 +1,2 @@
+Artículo 14.—De la calidad de asociado. De conformidad con lo establecido en los Estatutos de La Vivienda, cada ahorrante de cuenta en colones tendrá derecho a un voto en las asamblea generales por cada ¢500,00 del saldo mínimo que haya tenido en su cuenta de ahorros durante los seis meses anteriores al mes en que se celebre la asamblea, hasta un total máximo de 50 votos.
+Ninguna persona podrá ejercer la representación de más de 50 votos además los propios que le correspondan en una asamblea.

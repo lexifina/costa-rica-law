@@ -1,0 +1,1 @@
+Artículo 10.—Monto mínimo por depósito. El monto mínimo a depositar será de ¢500,00, ó $1,00 si se trata de cuentas en dólares, monto éste que podrá ser modificado por la Administración de La Vivienda.
