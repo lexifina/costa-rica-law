@@ -1,0 +1,1 @@
+Artículo 11° ─ Las órdenes de pago serán libradas y firmadas por el Gobernador de la provincia y por el Secretario de la Comisión respectiva; harán mención del acuerdo de la Comisión que autorice el giro, salvo en cuanto se expidan para pago de sueldos de empleados detallados en el Presupuesto.

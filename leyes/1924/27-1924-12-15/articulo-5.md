@@ -1,0 +1,1 @@
+Artículo 5° ─ De los ingresos regulares u ordinarios que perciban las Comisiones, se aplicará siempre una cantidad adecuada, como fondo de reserva, a fin de atender a las necesidades, mejoras, reparaciones y ampliaciones de los servicios.
