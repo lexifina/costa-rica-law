@@ -1,0 +1,1 @@
+Artículo 4°— Tendrán líneas telefónicas con salida internacional, únicamente los miembros del Directorio ubicados en el Castillo Azul. los Jefes de Fracción y el Director Ejecutivo, quienes están sujetos a las limitaciones establecidas en este reglamento.

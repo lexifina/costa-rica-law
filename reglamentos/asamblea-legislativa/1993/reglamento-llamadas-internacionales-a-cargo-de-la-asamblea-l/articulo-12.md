@@ -1,0 +1,1 @@
+Artículo 12.—Los operadores de la central telefónica serán responsables de las llamadas internacionales que se hagan sin el visto bueno de las personas indicadas en el artículo 3 de este reglamento, lo cual se considera falta grave al contrato laboral y el responsable podrá ser suspendido del trabajo hasta por ocho días.

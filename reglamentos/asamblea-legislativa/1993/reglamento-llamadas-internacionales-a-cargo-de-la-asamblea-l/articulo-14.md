@@ -1,0 +1,1 @@
+Artículo 14.—Cuando el usuario autorizado se exceda en cuanto a la duración de la llamada, conforme con lo dispuesto en el numeral quinto del presente reglamento. de su propio peculio deberá pagar el exceso. Adema-», cuando viole cualquier otra disposición de este reglamento, tendrá que pagar la totalidad de la llamada.

@@ -1,0 +1,1 @@
+Artículo 11 .—La Dirección de Servicios Generales procederá a comprobar que "todos los documentos estén en orden y a firmar las facturas, para el respectivo trámite de pago. Si existieren anomalías, se informarán a la Dirección Ejecutiva para que ordene una investigación y se apliquen las sanciones correspondientes.
