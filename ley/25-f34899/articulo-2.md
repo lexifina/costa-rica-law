@@ -1,0 +1,1 @@
+Art. 2°-En esos casos, la sumaria será instruida por uno de los Consejeros comisionado por el mismo Consejo, observando los trámites establecidos por las leyes; pero no se precederá á la detención del indiciado si no es que el Consejo, al mandar instruir la sumaria, la decrete, desde luego, por motivo fundado de fuga ú otro grave.
