@@ -1,0 +1,16 @@
+ARTICULO 5º- Impuesto sobre las contrucciones de alto valor. Se establece un impuesto sobre las construcciones de alto valor, y sus mejoras, que se aplicarán de acuerdo con las siguientes disposiciones:
+a) Se establece un impuesto sobre las construcciones de alto valor, y sus mejoras, fijas y permanentes dedicadas al uso habitacional o a recreo.
+b) Para los efectos de esta ley, debe entenderse como construcciones de alto valor, y sus mejoras, las casas de habitación, las casas de recreo o veraneo, los apartamentos, los condominios y las instalaciones fijas y permanentes que en ellas existan y que aumenten su valor, cuyo monto registrado en la Dirección General de la Tributación Directa para determinar el impuesto territorial, sea igual o superior a cinco millones de colones (¢ 5.000.000,00).
+Para determinar el valor registrado de los edificios de departamentos y condominios, cada unidad habitacional se considerará como independiente.
+c) La tarifa del impuesto se aplicará sobre el valor de las construcciones de alto valor, y sus mejoras, fijas y permanentes, registrado en la Dirección General de la Tributación Directa, de acuerdo con la siguiente escala:
+De ¢ 5.000.000,00 a ¢ 10.000.000,00 1,0%
+Sobre el exceso de ¢ 10.000.000,00 1,5%
+ch) El impuesto establecido en este artículo es anual y su período fiscal se inicia el 1º de enero y termina el 31 de diciembre de cada año.
+El Registro Público de la Propiedad no inscribirá los documentos que den fe de un traspaso, a cualquier título, si no contienen la constancia de pago de este impuesto.
+d) El producto de este impuesto se destinará íntegramente a los programas del Gobierno referidos a la erradicación de tugurios. El Ministerio de Hacienda incorporará en el presupuesto ordinario de cada año, la partida con el destino específico.
+e) Los propietarios de bienes cuyo valor actual -estimado por ellos, o el registrado para efectos del impuesto territorial-, sea mayor de dos millones de colones (¢ 2.000.000), deberán presentar, en el plazo de noventa (90) días, contados a partir de la fecha de publicación del reglamento de esta ley, una declaración jurada de estos bienes, en la que se consignará la información establecida en dicho reglamento, declaración que sirvirá de antecedente para crear el registro de contribuyentes de este impuesto.
+f) La falta de presentación de la declaración mencionada en el inciso anterior se sancionará con una multa equivalente al doble de la suma dejada de pagar, con un mínimo de diez mil colones (¢ 10.000).
+Esta sanción será aplicada por la Dirección General de la Tributación Directa.
+g) El Poder Ejecutivo, mediante decreto, podrá modificar los tramos de la escala contenida en el inciso c) de esta ley, de acuerdo con los índices de precios que determine el Banco Central de Costa Rica, los de la construcción que fije la "Cámara Costarricense de la Construcción y los factores de actualización que utiliza la Dirección General de la Tributación Directa en la valoración de bienes inmuebles.
+h) Este impuesto será pagado en dos cuotas. en las fechas que el Poder Ejecutivo fije por decreto.
+i) Se exceptúan del impuesto establecido en este artículo las construcciones propiedad del Gobierno, de las municipalidades y de las misiones diplomáticas acreditadas en el país, siempre que tales construcciones estén destinadas para el uso propio.
