@@ -1,0 +1,1 @@
+Art. 2. El Gobernador Politico departamental acordara con el Sr. Cura Párroco todo lo conveniente para que tenga efecto lo prevenido en el artículo que precede, y convidará para el caso al vecindario de la capital.
