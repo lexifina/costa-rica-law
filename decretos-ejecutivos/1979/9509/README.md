@@ -14,3 +14,4 @@ Reglamento de Financiamiento Externo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-02-02 | la propia norma |
+| 2 | 1979-03-09 | Decreto Ejecutivo 9723 (1979-03-09) |
