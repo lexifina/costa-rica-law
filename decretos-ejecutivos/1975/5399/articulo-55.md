@@ -1,0 +1,1 @@
+Artículo 55.-La Junta, sus miembros y funcionarios no incurrirán en responsabilidad si mediante la actuación dolosa de un particular, se efectúa un traspaso, inhumación, exhumación o traslado de restos, contrario a lo dispuesto en este Reglamento o por las leyes que regulen la materia, siempre que tal actuación no haya sido de su conocimiento.

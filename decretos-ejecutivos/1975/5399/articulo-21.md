@@ -1,0 +1,1 @@
+Artículo 21.-En aquellos casos en que solamente haya una fosa o nicho disponible, si al inspeccionar se encuentra que hay una momia y el cadáver que se desea inhumar no cabe junto con ésta, se dará prioridad a la momia y el cadáver se inhumará en otro lugar.

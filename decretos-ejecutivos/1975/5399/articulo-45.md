@@ -1,0 +1,1 @@
+Artículo 45.-Los jardines deben mantenerse en buenas condiciones. Las plantas que dañen las construcciones adyacentes, o que ocasionen molestias a los visitantes, serán eliminadas sin responsabilidad para la Junta.

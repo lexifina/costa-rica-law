@@ -1,0 +1,3 @@
+De la Adquisición y Traspaso de Fosas
+Artículo 3°-Para obtener y conservar un derecho de propiedad en el Cementerio sobre fosas u otro tipo de construcciones, es necesario que los interesados cumplan los requisitos establecidos por el decreto N° 704 del 7 de setiembre de 1949 y el Reglamento General de Cementerios y sus reformas.
+En la consecución del comprador o vendedor y en la determinación del precio convenido entre las partes, esta Junta y ninguno de sus miembros intervendrá, ajustándose este Cuerpo Administrativo únicamente a estudiar si esa compra venta se ajusta a las obligaciones reglamentarias.

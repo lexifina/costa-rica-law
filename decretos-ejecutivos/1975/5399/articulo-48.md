@@ -1,0 +1,1 @@
+Artículo 48.-Dentro del cementerio no se permitirá el uso de ningún instrumento musical. Asimismo, es prohibido utilizar aparatos que transmitan música o cualquier clase de sonido. Cuando la importancia de algún acto así lo amerite y previo permiso de la Junta, podrá permitirse la música religiosa de tipo clásico.

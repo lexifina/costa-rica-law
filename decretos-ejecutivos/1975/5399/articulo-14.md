@@ -1,0 +1,1 @@
+Artículo 14.-En caso de urgencia por calamidad pública, o por motivos de salud pública debido al deterioro de una fosa, nicho o bóveda con restos, bastará una solicitud para realizar los trabajos necesarios, que hará la Junta al Ministerio de Salud.

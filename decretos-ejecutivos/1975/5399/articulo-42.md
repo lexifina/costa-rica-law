@@ -1,0 +1,1 @@
+Artículo 42.-A partir del momento en que los restos de una persona han salido de este cementerio, la Junta salva su responsabilidad, la cual será asumida por el solicitante y los propietarios de las bóvedas que participaron firmando las autorizaciones para el traslado.

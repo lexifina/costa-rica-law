@@ -1,0 +1,1 @@
+Artículo 33.-El contrato de arrendamiento sobre un nicho es intransferible. En consecuencia, es nulo cualquier acto o contrato realizado por el arrendamiento que implique subarriendo y así se hará constar en el contrato respectivo.

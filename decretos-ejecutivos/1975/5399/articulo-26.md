@@ -1,0 +1,1 @@
+Artículo 26. -Las inhumaciones se realizarán durante el lapso comprendido entre las ocho a. m. y las seis p. m. Para efectuar inhumaciones en horas diferentes, se requiere autorización de la autoridad competente.

@@ -1,0 +1,1 @@
+Artículo 30. -Transcurrido el plazo de cinco años "para inhumaciones, se podrán renovar por un año los contratos de arrendamiento de nichos, previa cancelación del importe respectivo por parte del interesado. Una vez renovado el contrato, éste podrá ser rescindido sin responsabilidad para la Junta, en el momento en que el nicho sea desocupado antes de su vencimiento.

@@ -1,0 +1,2 @@
+Artículo 19.-La presentación del permiso para la inhumación se hará dos horas antes de la misma, a fin de revisar los registros y determinar si hay campo en el nicho que se va a ocupar. Si no hubiere nicho vacío, se dará aviso al interesado.
+Al presentarse el interesado a la Oficina de la Junta, debe llamarse. al panteonero o a sus auxiliares para que vayan a constatar si hay algún nicho desocupado, ya que de las fosas, nichos o bóvedas o mausoleos de propiedad privada no pueden trasladarse restos al Osario General, ni a los nichos de alquiler.

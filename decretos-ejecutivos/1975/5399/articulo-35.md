@@ -1,0 +1,2 @@
+Artículo 35.-Las exhumaciones para el traslado de restos se realizarán en presencia del Administrador del Cementerio, si lo hubiere, o del panteonero o guardián y dos testigos de instrucción notoria; de preferencia familiares de la persona fallecida.
+Dichas personas levantarán un acta, copia de la cual quedará en los archivos de la Junta. Las fórmulas adecuadas serán facilitadas por la Junta a precio de costo.

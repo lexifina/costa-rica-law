@@ -1,0 +1,2 @@
+Artículo 7°-Si el propietario de fosa, bóveda o mausoleo desea vender los mismos a la Junta, ésta, previa aprobación y convenio del precio, la adquirirá ajustándose al trámite pertinente.
+En caso de que la bóveda vendida a la Junta estuviere ocupada, ésta en caso necesario .proveerá los osario s respectivos. Los restos que descansen en los osados mencionados, no podrán ser trasladados a ningún osario general, salvo mandamiento judicial al respecto.

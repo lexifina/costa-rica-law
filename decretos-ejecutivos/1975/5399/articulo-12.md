@@ -1,0 +1,1 @@
+Artículo 12.- Para toda reparación que modifique el estado de un nicho o mausoleo, es necesaria la autorización escrita de la Junta, previa solicitud al respecto. La Junta facilitará los formularios 'adecuados a precio de costo.

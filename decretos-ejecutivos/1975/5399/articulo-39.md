@@ -1,0 +1,1 @@
+Artículo 39. -Los parientes indicados en el artículo 1° del decreto N° 704 del 7,de setiembre de 1949, que se consideren con el derecho previsto en el artículo 4° del decreto referido, podrán hacer valer sus derechos con la anuencia del propietario, o mediante mandamiento judicial.

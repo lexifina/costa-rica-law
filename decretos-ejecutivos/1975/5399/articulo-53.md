@@ -1,0 +1,1 @@
+Artículo 53.-La Junta otorgará a partir de 1976, Diplomas de Reconocimiento y Diplomas Honoríficos a aquellas personas que por sus actos se hayan constituido en benefactores del Cementerio. Para tal efecto la Junta emitirá el Reglamento respectivo.

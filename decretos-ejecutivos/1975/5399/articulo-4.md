@@ -1,0 +1,2 @@
+Artículo 4°-Los traspasos permitidos se harán ante la oficina de la Junta, mediante testimonio de escritura pública, o de ejecutoria de sentencia judicial. En el caso de fosa,. nicho, bóveda, sepulcro o mausoleo que no estuviere completamente desocupado, los interesados en comprar, vender, ceder, o traspasar, comprobarán sus vínculos familiares en el mismo documento notarial.
+Todo traspaso que no llene este requisito será nulo.

@@ -1,0 +1,2 @@
+De la Reparación y Cuidado de las Fosas
+Artículo 11.-Para reparar y modificar el estado de una fosa, bóveda, sepultura o mausoleo, el propietario debe dirigirse por escrito a la Junta solicitando una inspección ocular por uno de sus miembros. Si la reparación o modificación perjudicare en alguna forma las construcciones limítrofes se denegará el permiso, pero sí podrá autorizarse el repello, pintura y adornos adecuados al Jugar.

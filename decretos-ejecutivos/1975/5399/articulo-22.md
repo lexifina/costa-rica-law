@@ -1,0 +1,1 @@
+Artículo 22.-Para toda inhumación en bóvedas o nichos de propiedad privada, cuyo cadáver se encuentra en caja de metal, debe comunicarse a la Junta para la anotación del' caso en el registro de la bóveda.

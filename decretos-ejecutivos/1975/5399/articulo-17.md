@@ -1,0 +1,2 @@
+Artículo 17.-Si el propietario que sea único dueño hubiere fallecido, no se autorizarán inhumaciones ni exhumaciones, hasta que en la mortuoria respectiva se dicte el auto que declare herederos del causante. Sin embargo, podrá aceptarse la solicitud del albacea de la sucesión para la inhumación de un familiar del causante, previa autorización de la Oficina Judicial donde ésta se tramita.
+En caso de no haber mortuoria, dos familiares acreditarán el parentesco y firmarán la solicitud escrita.
