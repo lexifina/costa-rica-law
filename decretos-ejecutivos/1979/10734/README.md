@@ -14,3 +14,4 @@ Constitución del Sector Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-11-07 | la propia norma |
+| 2 | 1982-04-12 | Decreto Ejecutivo 13532 (1982-04-12) |
