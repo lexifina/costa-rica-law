@@ -23,3 +23,4 @@ Reglamento del Teatro Nacional.
 | 8 | 1995-07-12 | Decreto Ejecutivo 24626 (1995-07-12) |
 | 9 | 1998-02-11 | Decreto Ejecutivo 26745 (1998-02-11) |
 | 10 | 1999-02-12 | Decreto Ejecutivo 27836 (1999-02-12) |
+| 11 | 2001-11-02 | Decreto Ejecutivo 29984 (2001-11-02) |
