@@ -1,0 +1,2 @@
+Artículo 10.-EI Profesional Responsable presentará los tantos originales de los Cuadernos de Bitácora que tenga en uso en las oficinas de la Fiscalía Ejecutiva del Colegio Federapo, para registrar su cierre, durante los treinta días siguientes a la finalización de la relación contractual, o los ocho siguientes al agotamiento de sus folios.
+El incumplimiento de este requisito impedirá a los profesionales del Colegio Federado la obtención de nuevos Cuadernos de Bitácora y le expondrá a medidas disciplinarias de acuerdo a los reglamentos vigentes.

@@ -1,0 +1,1 @@
+Artículo 14.-Cuando se agoten sus folios, el Profesional Responsable deberá cerrar el Cuaderno de Bitácora con una anotación en su último folio, firmada y sellada, que resuma la labor realizada e indique explícitamente que el Cuaderno de Bitácora se ha acabado.

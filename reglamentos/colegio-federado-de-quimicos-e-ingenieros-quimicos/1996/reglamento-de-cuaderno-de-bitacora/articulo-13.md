@@ -1,0 +1,1 @@
+Artículo 13.-Cuando el servicio para el que fue inscrito el Cuaderno de Bitácora haya terminado, el Profesional Responsable deberá terminarlo con una razón de cierre, firmada y sellada, que resuma la labor realizada e indique que el servicio llegó a su fin. Este cierre será escrito en el folio siguiente al último con anotaciones.

@@ -1,0 +1,1 @@
+Artículo 12.-En caso de extravío del Cuaderno de Bitácora, el Profesional Responsable reportará el hecho ante el Colegio Federado, y aportará documentación que establezca constancia del empleo a que destinó el mencionado Cuaderno, así como de haber reportado la pérdida ante las instituciones correspondientes.
