@@ -1,1 +1,0 @@
-Artículo 24.—Una vez presentado el nuevo plan de saneamiento el Superintendente contará con un plazo máximo ocho días naturales para pronunciarse sobre el mismo. En caso de que lo impruebe, la entidad financiera podrá interponer los recursos correspondientes dentro de los plazos y requisitos que exige la ley.

@@ -1,2 +1,0 @@
-Artículo 27.—Una entidad fiscalizada podrá ser sancionada por el Consejo Nacional de Supervisión con la prohibición para realizar operaciones activas por un período de 1 a 90 días, cuando altere los registros contables o presente información falsa o incompleta, con el propósito de ocultar la existencia de algún grado de inestabilidad o irregularidad financiera de acuerdo con lo establecido en este Reglamento.
-Lo anterior, según lo determinado en el Artículo 155, literal b), numeral i). de la Ley 7558.
