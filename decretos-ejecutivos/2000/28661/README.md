@@ -14,3 +14,4 @@ Modifica el monto asignado al pago de dietas de los miembros del Consejo de Salu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-01 | la propia norma |
+| 2 | 2001-01-19 | Decreto Ejecutivo 29359 (2001-01-19) |
