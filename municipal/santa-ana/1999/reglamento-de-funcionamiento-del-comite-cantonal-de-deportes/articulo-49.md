@@ -1,0 +1,1 @@
+Artículo 49.—La integración y distribución de puestos en el Comité Comunal será igual a la del Comité Cantonal, según su artículo 8º, los mismos que su vigencia y la posibilidad de ser reelectos, no recibirán dietas ni remuneración alguna.

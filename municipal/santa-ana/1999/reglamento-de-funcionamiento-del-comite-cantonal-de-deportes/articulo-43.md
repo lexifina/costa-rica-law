@@ -1,0 +1,1 @@
+Artículo 43.—En sus tres primeras sesiones, la comisión específica procederá a elaborar el plan anual de actividades, consignando en él los costos de cada una de ellas, y deberán presentarlo por escrito lo más detallado posible a la Comisión de Programación y Evaluación, con copias para el Comité Cantonal, para la comisión de finanzas y la comisión de Divulgación.

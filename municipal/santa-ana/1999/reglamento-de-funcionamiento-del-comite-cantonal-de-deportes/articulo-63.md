@@ -1,0 +1,1 @@
+Artículo 63.—Los Comités Comunales de Deportes y Recreación, deberán formar subcomités en los caseríos y barrios que así lo ameriten. Para el nombramiento de estos subcomités, el Comité Comunal seguirá el mismo procedimiento que para el nombramiento propio. Los Subcomités estarán sujetos a las normas establecidas en el presente Reglamento.

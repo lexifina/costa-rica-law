@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Cantonal de Deportes y Recreación podrá realizar en el respectivo Municipio, los planes nacionales que para el deporte y la recreación dicte la dirección General de Deportes, para lo cual le brindará a dicha dependencia toda la colaboración posible.

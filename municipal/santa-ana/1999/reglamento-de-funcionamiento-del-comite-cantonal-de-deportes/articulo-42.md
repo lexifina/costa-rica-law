@@ -1,0 +1,1 @@
+Artículo 42.—Cada comisión específica tendrá la misma vigencia del Comité Cantonal de Deportes y sus miembros podrán ser reelectos; no devengarán dietas ni ningún otro tipo de remuneración, deberán reunirse cuando menos dos veces al mes o más según sus necesidades.

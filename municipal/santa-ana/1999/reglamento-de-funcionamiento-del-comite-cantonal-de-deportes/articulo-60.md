@@ -1,0 +1,1 @@
+Artículo 60.—Los miembros del Concejo Municipal tendrán la potestad de reunirse con cualquier Comité Comunal de Deportes y Recreación cuando lo consideren necesario. Podrán hacer la visita acompañados de un miembro del Comité Cantonal de Deportes y Recreación o solos. Podrán solicitar los libros de actas y tesorería e informes de lo realizado.

@@ -1,0 +1,1 @@
+Artículo 56.—Cada tres meses, el comité Cantonal de Deportes y Recreación, convocará a todos los presidentes de los comités comunales del cantón, a una reunión conjunta. En esta oportunidad, los comités comunales presentarán un informe, con copia a la Comisión de Programación y Evaluación, indicando las actividades realizadas y por realizar de su aprobación.

@@ -1,0 +1,1 @@
+Artículo 45.—Si en el cantón se encuentra funcionando filiales debidamente organizadas de Asociaciones o Federaciones Nacionales, éstas deberán fungir como Comisión Específica de su disciplina deportiva.

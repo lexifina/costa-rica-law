@@ -1,0 +1,1 @@
+Artículo 71.—Los clubes deportivos del cantón, deben estar afiliados en su respectivo Comité Comunal y cuando realicen eventos a nivel distrital o cantonal, se ceñirán para su realización conforme a las reglas del juego, de su disciplina deportiva específica.

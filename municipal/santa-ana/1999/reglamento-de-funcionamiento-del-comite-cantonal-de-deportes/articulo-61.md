@@ -1,0 +1,1 @@
+Artículo 61.—El Comité Cantonal de Deportes y Recreación, previa comunicación y justificación al Concejo Municipal, podrá sustituir parcial o totalmente a los miembros de aquel Comité Comunal que se considere no funcional, o que no cumpla con los lineamientos emanados por el Comité Cantonal, el Concejo Municipal.

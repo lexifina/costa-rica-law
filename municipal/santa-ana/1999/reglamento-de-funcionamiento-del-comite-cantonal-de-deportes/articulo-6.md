@@ -1,0 +1,1 @@
+Artículo 6º—El Comité Cantonal de Deportes y Recreación coordinará con la Municipalidad, lo concerniente a sus inversiones y obras en el cantón. La Municipalidad deberá proporcionarles un funcionario administrativo, un local que será su sede y todas las facilidades para el cabal cumplimiento de sus fines.
