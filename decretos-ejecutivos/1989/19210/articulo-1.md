@@ -1,0 +1,13 @@
+DECRETOS
+N° 19210-S-TSS-MIDEPLAN
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE SALUD, DE TRABAJO Y SEGURIDAD SOCIAL
+Y DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA,
+En uso de las facultades que les confiere el artículo 140 inciso 18 de la Constitución Política y
+Considerando:
+1 °—Que el desarrollo, la producción y la distribución de productos alimenticios de alto valor nutritivo para consumo popular, constituyen actividades fundamentales para el bienestar social y el mejoramiento de los Índices de salud de la población del país.
+2°—Que para tal efecto, mediante los decretos ejecutivos Nos. 13990-H, 14318-H y 15503-H, se transfirieron recursos provenientes del programa PL- 480 a cargo del Ministerio de Planificación Nacional y Política Económica, a la Cooperativa Americana de Remesas al Exterior (CARE) para coadyuvar, junto con tos fondos aportados por el Ministerio de Trabajo y Seguridad Social por medio de la Dirección General de Asignaciones Familiares, a la construcción, equipamiento y puerta en operación de la Planta Productora Costarricense de Alimentos (PROCOA), en terrenos de propiedad del Ministerio de Salud, ubicados en Tirrases de Curridabat.
+3°—Que de conformidad con la evaluación realizada en 1988 sobre el funcionamiento y los servicios de la Planta Productora Costarricense de Alimentos, se hace necesario establecer una nueva modalidad de explotación de esta, congruente con la política del Gobierno de la República de aprovechar y racionalizar al máximo los recursos y la capacidad instalada con que actualmente cuenta el país en dicho campo.
+4°—Que la Planta Productora Costarricense de Alimentos (PROCOA), construida en terrenos propiedad del Ministerio de Salud en Tirrases de Curridabat, con la ayuda económica aportada tanto por el Ministerio de Trabajo y Seguridad Social, a través de la Dirección General de Asignaciones Familiares, por el Programa PL- 480 a cargo del Ministerio de Planificación Nacional y Política Económica y con la participación de la Cooperativa Americana de Remesas al Exterior (CARE), es un importante recurso en el campo de la producción alimentaria del país. Por tanto,
+DECRETAN:
+Artículo 1°—Autorizase a los Ministerios de Salud, de Trabajo y Seguridad Social y de Planificación Nacional y Política Económica, para otorgar en concesión la administración y operación de la Planta Productora Costarricense de Alimentos al Consejo Nacional de. la Producción , con la finalidad de que dicho Consejo la coloque en completo estado operacional y en lo sucesivo se encargue de su explotación, para logar el óptimo aprovechamiento de este importante recurso existente en materia alimentaria nacional.
