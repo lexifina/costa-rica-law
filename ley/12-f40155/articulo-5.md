@@ -1,0 +1,1 @@
+Art 5°.- Cuando en los asuntos de Enviados de los otros Estados, Ministros Plenipotenciarios y Cónsules extrangeros, se presenten asuntos o negociaciones interesantes que no pueda el Ejecutivo fenecerlas por si mismo.
