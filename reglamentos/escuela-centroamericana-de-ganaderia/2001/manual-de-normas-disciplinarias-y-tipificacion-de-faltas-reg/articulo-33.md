@@ -1,1 +1,0 @@
-Artículo 33.—La calificación final mínima para aprobar una asignatura, será de 7 (siete). Cuando el estudiante faltare a una prueba parcial o final en forma injustificada, tendrá una calificación de uno (1), en la prueba a la cual faltare.

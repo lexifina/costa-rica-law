@@ -1,1 +1,0 @@
-Articulo 10.—Todo postulante a quien se le hubiere denegado la admisión, podrá recurrir a tal resolución por razones de legalidad, mediante la vía de apelación ante el Director General, el que resolverá en forma definitiva.

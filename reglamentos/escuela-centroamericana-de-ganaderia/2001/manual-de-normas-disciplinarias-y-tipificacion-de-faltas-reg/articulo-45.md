@@ -1,2 +1,0 @@
-Articulo 45.—Adquiere la condición de aplazado en una materia el alumno que al finalizar el ciclo lectivo obtuviere una calificación inferior a siete (7). Asimismo cuando faltare a dos prácticas de campo o de laboratorio o tres sesiones teóricas de un mismo curso en forma injustificada durante el ciclo lectivo.
-El alumno aplazado tendrá derecho a ser evaluado mediante un único examen extraordinario por cada materia aplazada.

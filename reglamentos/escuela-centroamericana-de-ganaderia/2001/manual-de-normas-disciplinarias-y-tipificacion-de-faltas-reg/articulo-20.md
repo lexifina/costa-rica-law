@@ -1,1 +1,0 @@
-Artículo 20.—Con el acto de formalización de la matricula el alumno asume de pleno derecho las obligaciones económicas derivadas del costo de la carrera en general y de los cursos en particular en cada uno de los ciclos lectivos, así como los costos de graduación.
