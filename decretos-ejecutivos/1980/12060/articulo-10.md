@@ -1,0 +1,5 @@
+Artículo 10.- Todo regente deberá, durante los primeros cinco días hábiles de cada mes, enviar al Colegio el informe de visitas hechas al negocio regentado con las recomendaciones que formule. Para tal efecto, deberá adquirir en el Colegio un libro de fórmulas para informes. Cada fórmula vendrá en cuatro tantos y estarán debidamente selladas por el Colegio. Las copias de esas fórmulas se distribuirán así:
+El original del informe debe entregarse al propietario o representante legal del establecimiento para los fines del inicio a) del artículo 29 de la Ley de Sanidad Vegetal. Las recomendaciones en dicho documento consignadas, son de acatamiento obligatorio. En la eventualidad de que no sean acatadas, el regente informará a los organismos competentes para efectos de establecer en su oportunidad las responsabilidades correspondientes.
+La primera copia deberá remitirse al Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería para su confrontación con los informes de los inspectores.
+La segunda copia deberá enviarse a la Fiscalía del Colegio de Ingenieros Agrónomos.
+La tercera copia es para el regente.

@@ -1,0 +1,1 @@
+Artículo 19.- Queda autorizada la Junta Directiva del Colegio de Ingenieros Agrónomos para revisar todos los años los honorarios que sus miembros deben cobrar por los diferentes tipos de regencia establecidos en este reglamento, con tarifas que no serán nunca menores al salario mínimo establecido por la ley para el ejercicio de la profesión.

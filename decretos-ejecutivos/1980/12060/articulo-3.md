@@ -1,0 +1,1 @@
+Artículo 3º.- Las personas que importen, vendan, distribuyan, registren, fabriquen o mezclen plaguicidas, hormonas vegetales, fertilizantes y materiales empleados en la formulación de plaguicidas, deberán contar con los servicios de un regente, el cual ha de ser miembro del Colegio de Ingenieros Agrónomos.
