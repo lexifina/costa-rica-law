@@ -1,0 +1,1 @@
+Artículo 29.- El derecho de caza podrá ejercerse en los terrenos públicos. En los fundos de propiedad privada que estén debidamente cercados o amojonados, solamente podrá ejercerse la caza con permiso escrito del dueño. En ambos casos este derecho queda sujeto a las restricciones establecidas por esta ley y su reglamento.
