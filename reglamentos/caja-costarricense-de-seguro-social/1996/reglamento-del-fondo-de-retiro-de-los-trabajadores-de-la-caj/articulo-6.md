@@ -1,1 +1,1 @@
-Artículo 6°—Tendrá derecho a indemnización por invalidez o por muerte, el servidor que se encuentre en las hipótesis previstas en el artículo primero de este reglamento.
+Artículo 6°—(Derogado en sesión N° 7207 del 10 de marzo de 1998)
