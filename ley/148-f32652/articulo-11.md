@@ -1,0 +1,1 @@
+Artículo 11.- Los pagos se harán por medio de giros mensuales, extendidos y firmados por el Jefe de la Oficina respectiva, a la orden del beneficiario y contra la Administración del Tesoro Nacional, en la misma forma y por los mismos trámites usuales para el pago de sueldos.
