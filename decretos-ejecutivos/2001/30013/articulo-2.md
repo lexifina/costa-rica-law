@@ -1,0 +1,1 @@
+Artículo 2º—Desígnese en su lugar a la señora Ligia Sancho Carvajal, mayor, viuda, vecina de Siquirres, titular de la cédula de identidad número 6-153-504, como representante de la Unión Nacional de Gobiernos Locales ante el Consejo Nacional de Desarrollo Comunal.
