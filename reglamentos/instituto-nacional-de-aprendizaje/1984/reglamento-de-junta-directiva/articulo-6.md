@@ -11,4 +11,6 @@ e) Aprobar, o improbar la creación de comisiones asesoras y de comités consult
 g) Aprobar, reformar o improbar las adjudicación de las licitaciones públicas, de acuerdo con el respectivo reglamento.
 i) Conocer el informe anual del Presidente Ejecutivo.
 j) Dictar los actos que agoten la vía administrativa, salvo en materia laboral que corresponderá al Presidente Ejecutivo.
-k) Conocer los demás asuntos que señalen las leyes y reglamentos.
+k)Evacuar las consultas de la Asamblea legislativa sobre proyectos de ley que atañen al Instituto.
+(Así adicionado el inciso k) mediante acuerdo de Junta Directiva, tomado en sesión N° 3879 de 2 de julio del 2001)
+l) Conocer los demás asuntos que señalen las leyes y reglamentos.
