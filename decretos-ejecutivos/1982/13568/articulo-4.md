@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Las Asociaciones de Desarrollo Integral sean indígenas o no, deben de ajustarse en adelante a las disposiciones establecidas en los artículos 2º y 3º del presente decreto, en particular en cuanto a sus límites de jurisdicción.

@@ -1,0 +1,2 @@
+ARTÍCULO 5.- En caso de que existan actualmente varias Asociaciones de Desarrollo Integral en una misma Reserva Indígena, la Comisión Nacional de Asuntos Indígenas (CONAI) deberá tramitar ante el Poder Ejecutivo un proyecto de división de la reserva actual en un número de reservas igual al número de Asociaciones de Desarrollo Integral existentes.
+En caso de que lo anterior no se pueda realizar, las Asociaciones de Desarrollo deberán fusionarse, de tal manera que quede una sola reserva, conforme a las disposiciones anteriores.
