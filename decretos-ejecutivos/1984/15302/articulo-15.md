@@ -1,0 +1,1 @@
+ARTICULO 15.- Para el reconocimiento de cursos de adiestramiento y capacitación realizados fuera del país, se requerirá de parte del interesado, la presentación del programa de curso, el certificado obtenido y cualesquiera otros documentos que permitan avalar la capacitación recibida.

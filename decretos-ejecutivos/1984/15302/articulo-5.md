@@ -1,0 +1,1 @@
+ARTICULO 5º.- El Consejo de Adiestramiento de Personal estará integrado por cinco miembros elegidos entre los jefes de unidades de adiestramiento, en reunión que se efectuará en el mes de enero de cada año, con los jefes de dichas unidades de los diferentes ministerios e instituciones bajo el Régimen de Servicio Civil.

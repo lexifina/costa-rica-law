@@ -1,0 +1,1 @@
+ARTICULO 3º.- Operarán como órganos del subsistema, el Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil, el Consejo de Adiestramiento de Personal y las unidades de adiestramiento de los diferentes ministerios e instituciones.

@@ -1,0 +1,1 @@
+ARTICULO 13.- La institución patrocinadora y la Dirección General de Servicio Civil, otorgarán certificados de aprovechamiento o de participación a aquellos funcionarios que durante el período de adiestramiento, cumplan con los requisitos mínimos fijados mediante resolución, por la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+ARTICULO 4º.- El Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil, actuará como órgano central del subsistema y ejercerá las funciones emanadas del Estatuto de Servicio Civil y de su Reglamento, ley Nº 6362, Ley de Licencias para Adiestramiento de Servidores Públicos y las consignadas en el presente Reglamento.

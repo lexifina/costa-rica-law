@@ -1,0 +1,1 @@
+ARTICULO 17.- Los funcionarios que a solicitud de la unidad de adiestramiento respectiva, o del Departamento de Adiestramiento de Personal participen en calidad de instructores en las diferentes actividades de adiestramiento y capacitación, tendrán derecho en sus respectivas oficinas, a que se les conceda el tiempo necesario para la preparación de la materia a impartir.
