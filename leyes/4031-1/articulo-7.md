@@ -1,0 +1,2 @@
+Artículo VII
+Las tarifas que se cobren por la comunicaciones telefónicas de capital a capital, o por mensajes telegráficos de una capital a cualquier lugar del territorio de otro contratante quedarán íntegros en el país de origen; exceptuando el caso de las destinadas a San Pedro Sula, Honduras, que tendrán un recargo de 90% de la tarifa “Tegucigalpa San Pedro Sula”, y cuyo recargo mencionado será acreditado a la Administración hondureña.
