@@ -14,3 +14,4 @@ Reglamento para la Prestación de Servicios de Agua y Alcantarillado.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-08-30 | la propia norma |
+| 2 | 1982-08-16 | Reglamento 0 (1982-08-16) |
