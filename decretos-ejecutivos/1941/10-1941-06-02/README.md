@@ -13,3 +13,4 @@ Reglamento a la ley Prohibición vender café mezclado con cualquier otro produc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1941-07-01 | la propia norma |
+| 2 | 1946-04-12 | Decreto Ejecutivo 29 (1946-04-12) |
