@@ -1,0 +1,1 @@
+Artículo 3°-Dicha oficina llevará una cuenta especial a cada finca de bananos para saber el número de enfermos que envía mensualmente al hospital, el costo de hospitalización, lugares de residencia de los enfermos, duración del tratamiento y demás datos que permitan formar la estadística de morbosidad de cada finca, distrito y zona bananera.
