@@ -1,0 +1,1 @@
+Artículo 3°-Cuando por cualquier circunstancia la condenatoria por alguna de las faltas á que se refieren los artículos anteriores hubiere de recaer contra una mujer, se aplicará la pena de multa, debiendo fijarse el monto de ella, estableciendo su equivalencia con el arresto que al caso convendrá, sobre la relación proporcional estatuída por las leyes.
