@@ -1,3 +1,2 @@
-Artículo 3°-El Viceministro de Economía, Industria y Comercio será el Presidente de la Comisión; en su ausencia será sustituido en esta función por el Director General de Industrias que será el Vicepresidente.
-En defecto de ambos se nombrará un Presidente ad-hoc.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 5524 del 12 de diciembre de 1975).
+Artículo 3°-El Director General de Industrias, mientras conserve el rango de Viceministro de Industria será el Presidente de la Comisión; en su ausencia será sustituido en esta función por el Viceministro de Integración y Comercio quien será el Vicepresidente. En defecto de ambos se nombrará un Presidente ad-hoc.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 7689 del 08 de noviembre de 1977).
