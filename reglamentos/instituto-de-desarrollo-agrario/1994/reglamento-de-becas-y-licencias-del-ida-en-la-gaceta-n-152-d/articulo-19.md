@@ -1,0 +1,1 @@
+Artículo 19.-- Conocida las solicitudes por la comisión de Becas ésta procederá a realizar un informe a la Gerencia en el caso de Becas económicas y Licencias de Estudio y la Junta Directiva en el caso de Becas al Exterior para que estos órganos aprueben o no los beneficios solicitados.

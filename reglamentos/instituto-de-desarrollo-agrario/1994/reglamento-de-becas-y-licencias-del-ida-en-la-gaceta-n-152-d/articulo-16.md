@@ -1,0 +1,1 @@
+Artículo 16.--"Como trámite inicial para las Becas al exterior, el Departamento de Recursos Humanos, por medio de la Unidad de Capacitación y Desarrollo, le dará publicidad a éstas divulgándolas a nivel del Instituto por medio de avisos en los cuales se dará toda la información sobre la Beca y el plazo máximo para la recepción de las solicitudes.

@@ -1,0 +1,1 @@
+Artículo 7°—Los beneficios que por este reglamento se otorguen tendrán como únicos y exclusivos beneficiarios a los funcionarios que estén nombrado en propiedad, salvo las excepciones que establecen los laudos y cualquier otra normativa vigente.

@@ -1,0 +1,4 @@
+Artículo 3°—Dentro de la denominación de Becas se tendrán:
+A- Becas de Estudio: que es toda aquella ayuda económica que el Instituto otorga a los funcionarios que soliciten financiamiento para cubrir parte de los gastos en que incurrirá por cursar formalmente una carrera académica, que sea impartida por Centros Académicos Públicos o Privados, debidamente reconocidos por el Ministerio de Educación y/o por el Consejo Superior de Educación.
+B- Becas al Exterior: que es toda aquella capacitación que recibe un funcionario, ya sea mediante recursos económicos propios o por donaciones externas, fuera del país, en el tanto en que la misma haya sido propiciada por el Instituto y debidamente autorizada por la Presidencia o el órgano que esta designe y;
+C- Licencia para Estudiar: que son todos aquellos permisos superiores a siete horas semanales para atender necesidades de una carrera académica formalmente constituida.

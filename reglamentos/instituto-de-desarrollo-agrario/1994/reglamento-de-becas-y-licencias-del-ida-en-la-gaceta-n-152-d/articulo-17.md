@@ -1,0 +1,1 @@
+Artículo 17.—Hecha la publicación a que hace referencia el artículo anterior, la Unidad de Capacitación procederá al análisis de las solicitudes ampliando a ellas los factores y calificación indicados en el artículo 16 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.—Para el caso de Beca el Exterior, debe existir un Acuerdo de Junta Directiva que indique a quien se le concede el beneficio y especificando las condiciones y obligaciones a que están sujetos el o los becados.

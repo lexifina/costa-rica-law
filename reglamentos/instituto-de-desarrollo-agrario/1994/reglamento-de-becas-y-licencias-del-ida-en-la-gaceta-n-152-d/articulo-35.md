@@ -1,0 +1,1 @@
+Artículo 35.—La aprobación o no que haga la Comisión de alguno de los Beneficios otorgados por el presente Reglamento no es vinculante para la Administración, quien en última instancia es la que define si se aprueba o no el beneficio.

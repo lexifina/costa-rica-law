@@ -1,0 +1,1 @@
+Artículo 18.—Tanto para las Becas como para las Licencias, la Unidad de Capacitación, una vez hecho el análisis de las mismas, realizará un informe para someterlas a conocimientos de la Comisión de Becas.

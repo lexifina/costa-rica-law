@@ -1,0 +1,2 @@
+Del trámite de las becas y licencias de estudios
+Artículo 15.—Las solicitudes de Beca económica y Licencia de estudios deben hacerse en un formulario especial que a tal efecto tendrá la Unidad de Capacitación y Desarrollo, mismas que deben ser presentadas con un mínimo de 22 días de antelación a la fecha en que se va iniciar el período de estudio, salvo que exista causa Justificada, caso en el cual se permitirá hacer la solicitud en un plazo menor al indicado.

@@ -1,0 +1,1 @@
+Artículo 31.--La comisión de Becas estará formada por seis miembros de los cuales 3 serán nombrados por la Administración, 2 por el Sindicato UNEIDA y 1 por eI SIPTAIDA. Obligatoriamente cada miembro propietario tendrá un miembro suplente.

@@ -1,0 +1,1 @@
+Artículo 26.-—El incumplimiento de las obligaciones impuestas al beneficiar implicará la devolución de los dineros dados a título de beca, más un veinticinco por ciento de los mismos a título de daños y perjuicios.

@@ -1,0 +1,2 @@
+Artículo 27.--En el caso de pérdida de materia, exámenes de grado, coloquio y otros, el beneficiario deberá devolver el cien por ciento del monto otorgado para dicho rubro.
+La Comisión de Becas podrá eximir del pago del 25%, a que se hace referencia en el artículo anterior, en el tanto en que el beneficiario demuestre motivos de fuerza mayor que impidieron el cumplimiento de las obligaciones impuestas, tales como enfermedad, problemas personales o familiares, etc.
