@@ -1,7 +1,2 @@
 De la tramitación de la licencia
-Artículo 3º.- Para la tramitación de la licencia y antes de prestar
-el servicio a que se refiere el artículo 86 de la presente ley, la
-solicitud respectiva deberá ser presentada ante la Dirección del Servicio
-Privado de Seguridad, como órgano competente, la cual deberá cumplir con
-los requisitos señalados en el artículo citado y demás que se establezcan
-en el presente Reglamento.
+Artículo 3º.- Para la tramitación de la licencia y antes de prestar el servicio a que se refiere el artículo 86 de la presente ley, la solicitud respectiva deberá ser presentada ante la Dirección del Servicio Privado de Seguridad, como órgano competente, la cual deberá cumplir con los requisitos señalados en el artículo citado y demás que se establezcan en el presente Reglamento.

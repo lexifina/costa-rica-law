@@ -1,13 +1,3 @@
-Artículo 8º.- Los solicitantes deberán suscribir ante el Instituto
-Nacional de Seguros, una póliza de responsabilidad civil endosada a favor
-del Ministerio de Seguridad Pública. El monto de dicha póliza será según
-los siguientes casos:
-a) Para la persona física la cobertura de la póliza será el mínimo
-establecido por el Instituto Nacional de Seguros, o sea ¢
-1.000.000,00, monto que será ajustado por dicho Instituto según
-sus disposiciones.
-b) Para las personas jurídicas o físicas que contraten personal de
-vigilancia, el monto de cobertura de dicha póliza se incrementará
-en la suma de ¢ 200.000,00 por agente. Si el Instituto Nacional
-de Seguros aumenta los montos de las coberturas y las primas, el
-monto a cubrir por agente se aumentará en la misma proporción.
+Artículo 8º.- Los solicitantes deberán suscribir ante el Instituto Nacional de Seguros, una póliza de responsabilidad civil endosada a favor del Ministerio de Seguridad Pública. El monto de dicha póliza será según los siguientes casos:
+a) Para la persona física la cobertura de la póliza será el mínimo establecido por el Instituto Nacional de Seguros, o sea ¢ 1.000.000,00, monto que será ajustado por dicho Instituto según sus disposiciones.
+b) Para las personas jurídicas o físicas que contraten personal de vigilancia, el monto de cobertura de dicha póliza se incrementará en la suma de ¢ 200.000,00 por agente. Si el Instituto Nacional de Seguros aumenta los montos de las coberturas y las primas, el monto a cubrir por agente se aumentará en la misma proporción.

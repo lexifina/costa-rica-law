@@ -1,4 +1,1 @@
-Artículo 31.- Las personas físicas o jurídicas que brindan el
-Servicio Privado de Vigilancia Electrónica deberán inscribir ante la
-Dirección del Servicio Privado de Seguridad, los diagramas electrónicos
-de sus centrales de alarmas.
+Artículo 31.- Las personas físicas o jurídicas que brindan el Servicio Privado de Vigilancia Electrónica deberán inscribir ante la Dirección del Servicio Privado de Seguridad, los diagramas electrónicos de sus centrales de alarmas.

@@ -14,3 +14,4 @@ Reglamento del Servicio Privado de Seguridad (Reglamenta el Título IV de la Ley
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-06 | la propia norma |
+| 2 | 1995-01-06 | Decreto Ejecutivo 24928 (1996-01-16) |
