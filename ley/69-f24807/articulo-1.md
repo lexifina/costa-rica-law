@@ -1,0 +1,5 @@
+DECRETO LXIX
+Establece reglas para el cumplimiento de los contratos (1)
+“ El Jefe Supremo del Estado libre de Costa Rica:-Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Ordinaria del Estado libre de Costa Rica, considerando: que la fidelidad en el cumplimiento de los contratos es la que puede asegurar el intereses individual en las empresas de comercio, e industriales, y que estas no tendrían progreso sin aquella: que para afianzarla y reprimir la mala fé, solo será accequible por una ley que corrija sus faltas protegiendo la acción de los acreedores, y determinando el modo de proceder contra los deudores morosos; y con presencia de las disposiciones antiguas que son adaptables al caso, ha venido en decretar y decreta.
+Art 1°.- Todo convenio entre partes de cualesquiera clase, ya sea de artes, oficio o ejercicio, debe ser cumplido fielmente por lo mismo, con tal que en alguna de ellas no haya tacha por la ley; como la de menor edad, la de ser muger casada sin avenencia de su marido, u otras circunstancias que por las antiguas disposiciones anulan de hecho algunos contratos.

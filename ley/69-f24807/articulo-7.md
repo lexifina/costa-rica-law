@@ -1,0 +1,1 @@
+Art 7°.- Las mugeres se destinarán al servicio doméstico en las casas particulares, arreglando su salario al estilo del país, pudiendoseles dar para alimentos de su familia, las dos terceras partes de lo que devenguen semanalmente, y la mitad, no teniéndola.
