@@ -1,1 +1,0 @@
-Artículo 8°-El Estado podrá otorgar á las Empresas de ferrocarriles, subvenciones pecuniarias y ventajas ó privilegios particulares; pero la Compañía ó Empresa no podrá reclamar ninguna preeminencia ó ventaja que no conste en la concesión legislativa.

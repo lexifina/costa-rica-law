@@ -1,1 +1,0 @@
-Artículo 27.-La Empresa establecerá su domicilio en la ciudad de la República que fije la concesión, sin perjuicio de las Agencias que convenga á sus intereses tener en los diversos lugares del país ó en el exterior.

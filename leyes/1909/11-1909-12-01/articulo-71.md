@@ -1,1 +1,0 @@
-Artículo 71.-Si la declaración de caducidad no fuere impugnada ante el Tribunal competente en el término de un mes de hecho saber á la Empresa, se tendrá por consentida, y no habrá contra ella recurso ulterior.

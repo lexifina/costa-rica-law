@@ -1,1 +1,0 @@
-Artículo 33.-La inspección técnica se ejerce por medio de uno ó más ingenieros y la administrativa por medio de uno ó más comisarios inspectores, todos del libre nombramiento y remoción del Poder Ejecutivo.
