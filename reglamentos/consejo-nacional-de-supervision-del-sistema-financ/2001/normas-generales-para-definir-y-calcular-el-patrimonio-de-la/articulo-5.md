@@ -1,0 +1,1 @@
+5. El cálculo del patrimonio no redimible será hecho con la información remitida mensualmente por los fiscalizados. En los meses de cierre del ejercicio económico, el cálculo se efectuará con los estados financieros antes de cierre.
