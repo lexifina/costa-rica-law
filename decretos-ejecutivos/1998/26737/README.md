@@ -14,3 +14,4 @@ Convenio con el Gobierno de la Federación Rusa para la Supresión de Visas para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 1998-02-02 | Ley 8 |
