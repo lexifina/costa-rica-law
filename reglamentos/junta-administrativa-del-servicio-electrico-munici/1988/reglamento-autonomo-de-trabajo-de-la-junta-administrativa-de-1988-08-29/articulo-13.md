@@ -1,0 +1,3 @@
+Articulo 13—Todo servidor que reciba su pago del renglón de salarios fijos tendrá derecho a que se le reconozcan para efectos de aumentos anuales, el tiempo de servicio prestado en otras entidades y dependencias del sector público.
+La Junta Directiva de la institución será quien determine y apruebe en cada caso dicho reconocimiento, cuyo trámite lo realizará la Oficina de Personal a solicitud del interesado, aplicando el decreto No 18181-A del 14 de junio de 1988, publicado en "La Gaceta" N° 120 del 23 de junio de 1988.
+Este reconocimiento será efectivo a partir del mes inmediato siguiente de su comprobación y aprobación y se hará efectivo .su pago cuando se cuente con el contenido económico necesario.

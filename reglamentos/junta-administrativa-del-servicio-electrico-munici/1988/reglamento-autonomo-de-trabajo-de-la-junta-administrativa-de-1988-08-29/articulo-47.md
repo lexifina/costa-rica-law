@@ -1,0 +1,1 @@
+Artículo 47.—No estando de acuerdo el funcionario con lo dispuesto por el superior inmediato podrá elevar el asunto ante el administrador quien resaliera en un término no mayor a los tres días hábiles

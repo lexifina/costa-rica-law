@@ -1,0 +1,1 @@
+Articulo 59—Para los empleados y funcionarios que estén sujetos a trabajar en caso do emergencia y para evitar perjuicios al interés público y a !os activos de la Junta, así como reparar daños por fuerza mayor caso fortuito, tendrán derecho a rotación y hasta por un año como otros empleados y funcionarios de la Junta manteniendo su salario.

@@ -1,0 +1,1 @@
+Articulo 61 —El administrador podrá autorizar el retiro de la tarjeta de registro de asistencia como estimu'0 a funcionarios distinguidos La misma será con base en antigüedad, puntualidad, eficiencia, grados de creatividad, iniciativa e interés demostrado.

@@ -1,0 +1,1 @@
+Articulo 44.—La Junta de Relaciones Laborales se reunirá cada vez que sea necesario de acuerdo con lo estipulado en el articulo 48 de este reglamento. La convocatoria la hará el presidente o tres de sus miembros.

@@ -1,0 +1,1 @@
+Articulo 39—La Junta pagará los viáticos con los montos establecidos por la Contraloría General de la República Se reconocerá este pago fuera del área geográfica determinada por un radio de 15 kilómetros con origen en las oficinas centrales de la Junta Lo no contemplado en este articulo se regirá por lo establecido por el ente contralor.

@@ -1,0 +1,2 @@
+Articulo 87 —La servidora en época de lactancia, gozará de licencia con goce de salario hasta una hora diaria, con el objeto de amamantar a su hijo.
+Dicha licencia será obligatoriamente divisible en dos períodos iguales, debiéndose gozar de cada uno de ellos en la mañana y en la tarde. Para efectos de disfrutar de esta licencia, la interesada deberá presentar dictamen del médico tratante que determine la necesidad y el término por el cual el niño requiere el amamantamiento La Junta designará el lugar adecuado para el disfrute de este beneficio.

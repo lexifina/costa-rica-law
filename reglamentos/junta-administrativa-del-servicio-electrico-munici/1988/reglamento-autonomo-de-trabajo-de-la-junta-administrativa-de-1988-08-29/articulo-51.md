@@ -1,0 +1,1 @@
+Articulo 51.—Cuando por cualquier circunstancia se produzca empate en las votaciones de la Junta de Relaciones Laborales, se someterá de nuevo a votación De persistir tal situación se comunicará dicha circunstancia a la Junta Administrativa quien será la que en definitiva resuelva, todo de conformidad con lo estipulado en el articulo anterior.

@@ -1,0 +1,1 @@
+Articulo 85 —Los permisos concedidos por la Junta, de conformidad con lo dispuesto en el presente reglamento, no interrumpen la continuidad del servicio. y por lo tanto el beneficiario que los disfruta conserva plenamente todos los derechos establecidos en las leyes y reglamentos aplicables

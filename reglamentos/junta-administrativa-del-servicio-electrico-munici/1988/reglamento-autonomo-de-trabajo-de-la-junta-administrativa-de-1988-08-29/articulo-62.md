@@ -1,0 +1,2 @@
+Articulo 62.—Las marcas en lis tarjetas de asistencia, deberán hacerse con el debido cuidado y solamente por el servidor a quien corresponda, de manera que queden impresas con claridad toda vez que las marcas defectuosas, contusas o manchadas que no se deban a desperfecto del reloj se tendrán como no hechos
+Salvo prueba en contrario o en los casos previstos por este reglamento, la omisión de una marca en la tarjeta, hará presumir la inexistencia de la misma y se considerará como abandono de labores al inicio o al final de la jornada.

@@ -1,0 +1,1 @@
+Artículo 96.—La Junta proveerá en forma gratuita los elementos de seguridad necesarios para el cumplimiento de los acuerdos tomados por el Comité de Salud Ocupacional tales elementos y herramientas serán siempre propiedad de la JASEC y ésta los proveerá dentro de un plazo máximo de un mes.

@@ -1,0 +1,1 @@
+Transitorio articulo 41 —Paralelamente a la entrada en vigencia del presente reglamento, se les reconocerá este beneficio a los servidores de la Junta de la siguiente manera: el primer quinquenio con los servidores que tengan cinco años o más de labores y el segundo quinquenio hasta que hayan transcurrido cinco años después de haber recibido el primero.

@@ -1,0 +1,1 @@
+Artículo 48.—De estar en desacuerdo con la resolución del administrador. el o los trabajadores elevarán el asunto a conocimiento de la Junta de Relaciones Laborales, organismo que resolverá mediante investigación administrativa formal de documentos o pruebas, y de ser necesario con la comparecencia de las partes en conflicto, en un plazo no mayor de cinco días hábiles.

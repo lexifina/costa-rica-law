@@ -1,0 +1,2 @@
+Articulo 93 —En caso de fallecimiento de un trabajador, la Junta reconocerá por concepto de sepelio y gastos de funeral hasta la suma de veinte mil coIones: monto que deberá ser revisado y actualizadas cada año.
+Para los efectos anteriores la oficina de personal confeccionará una boleta donde cada funcionario reportará el o los nombres de los beneficiarios directos, así como c! porcentaje que les corresponde La Junta pagará el monto dicho a las personas autorizadas en la boleta respectiva.

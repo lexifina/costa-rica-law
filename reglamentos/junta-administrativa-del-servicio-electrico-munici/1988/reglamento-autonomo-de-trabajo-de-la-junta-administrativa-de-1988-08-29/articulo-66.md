@@ -1,0 +1,1 @@
+Articulo 66.—La oficina de personal elaborará en los primeros ocho días hábiles de cada mes el respectivo reporte de acuerdo con la información que disponga el último día del mes calendario con base en el cual procederá a aplicar las medidas disciplinarias correspondientes.

@@ -1,0 +1,1 @@
+Articulo 38 —La Junta proveerá dos uniformes por año a sus empleados; dichos uniformes deberán llevar con claridad las siglas de la Junta (JASEC) Será obligatorio el uso del uniforme completo durante el tiempo que presten sus servicios, siendo responsabilidad de cada trabajador el cuido del mismo.

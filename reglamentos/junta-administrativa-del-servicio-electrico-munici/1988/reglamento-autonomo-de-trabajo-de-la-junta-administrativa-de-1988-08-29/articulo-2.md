@@ -1,0 +1,1 @@
+Articulo 2°—Para los efectos de este reglamento se entenderá por organismo superior del ente a la Junta Directiva y como su jerarca administrativo al Administrador General de conformidad con su Ley Constitutiva

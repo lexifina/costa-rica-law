@@ -1,0 +1,2 @@
+Articulo 35 —Se procederá a la reducción forzosa de servicios solo en situaciones de falta de fondos o bien para conseguir un servicio público eficiente.
+Permanecerán en su puesto aquellos funcionarios que, hayan demostrado su capacidad y eficiencia, asimismo se tendrá en cuenta para los fines anteriores, la calidad, antigüedad y carácter, la conducta, las aptitudes y demás condiciones que resulten en la calificación de los servicios.

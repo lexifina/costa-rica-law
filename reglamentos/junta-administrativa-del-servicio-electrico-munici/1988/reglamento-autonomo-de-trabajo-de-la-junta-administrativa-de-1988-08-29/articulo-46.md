@@ -1,0 +1,1 @@
+Articulo 46.—Cuando un funcionario se encontrare inconforme por resoluciones o actuaciones de su superior inmediato, podrá elevar el asunto ante él, quien resolverá en un término no mayor a los tres días hábiles.

@@ -1,0 +1,1 @@
+Articulo 90—Los servidores que se acojan a la licencia con goce de anteriormente para estudios deben suscribir un contrato de conformidad con los término establecidos en el reglamento de becas y en el presente instrumento legal.

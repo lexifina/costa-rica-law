@@ -1,0 +1,16 @@
+# Reglamento (1988-08-29)
+
+Reglamento Autónomo de Trabajo de la Junta Administrativa de Servicio Eléctrico de Cartago.
+
+- Tipo: Reglamento
+- Número: 2334
+- Fecha: 1988-08-29
+- Ente emisor: Junta Administrativa del Servicio Eléctrico Municipal de Cartago
+- Publicación: La Gaceta N° 199 del 1988-10-20
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=51873&param2=56238&param3=1 (ficha 51873)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1988-10-30 | la propia norma |

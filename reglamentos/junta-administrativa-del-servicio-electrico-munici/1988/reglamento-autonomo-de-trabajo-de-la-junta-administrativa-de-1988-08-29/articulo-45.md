@@ -1,0 +1,1 @@
+Articulo 45.—La Junta de Relaciones Laborales conocerá sobre todos aquellos asuntos que le planteen los trabajadores, en forma individual o a través de sus organizaciones y que se refieran a violaciones expresas de sus derechos por parte de sus superiores inmediatos, al Reglamento Autónomo o a la legislación vigente.
