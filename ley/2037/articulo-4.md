@@ -1,0 +1,1 @@
+Artículo 4°-Corresponderá al Banco Central la formulación de los planes concretos y la elaboración de los reglamentos necesarios para obtener los mayores beneficios de las operaciones a que se refiere esta ley, con miras al aumento de la producción nacional y tomando en cuenta las necesidades de crédito de la industria, la agricultura y la ganadería.
