@@ -1,0 +1,1 @@
+Artículo 14. —Los servidores Judiciales que hagan uso de las instalaciones deportivas del Poder Judicial, deben colocar en el lugar correspondiente el equipo móvil que utilizaron, una vez finalizado el ejercicio (pesas, tablas, discos, etc).

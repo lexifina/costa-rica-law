@@ -1,0 +1,1 @@
+Artículo 19.—El usuario deberá abstenerse a ingresar en las instalaciones deportivas durante el tiempo que esté afectado de alguna enfermedad infecciosa y que pueda poner en peligro la salud de los demás usuarios.

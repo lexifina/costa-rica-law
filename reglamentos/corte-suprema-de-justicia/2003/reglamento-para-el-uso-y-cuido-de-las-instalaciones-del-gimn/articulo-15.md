@@ -1,0 +1,1 @@
+Articulo 15.—Los usuarios deben alternar las máquinas con los otros servidores, para lo cual se establece un tiempo máximo por usuario de veinte minutos en cada máquina. En caso de no ser necesitada por otro compañero, el tiempo puede extenderse ajuicio del encargado.

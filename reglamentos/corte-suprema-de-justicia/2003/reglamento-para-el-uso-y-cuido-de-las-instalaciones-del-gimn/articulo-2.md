@@ -1,0 +1,1 @@
+Articulo 2°—El Departamento de Seguridad será el encargado de velar por el cuido de las instalaciones, equipo deportivo y la asignación de los guardarropas existentes en el gimnasio, como parte del patrimonio institucional. Esta dependencia designará un servidor, en adelante Encargado, para la administración y cuido del mismo.

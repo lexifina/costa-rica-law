@@ -1,0 +1,1 @@
+Articulo 21.—Fuera de las horas y días indicados, el gimnasio permanecerá cerrado, con excepción de cursos, entrenamientos policiales programados o para aquellos usuarios con horarios alternos que hayan solicitado la autorización. Para tal efecto el coordinador de la actividad, solicitará previamente la autorización respectiva al Encargado.

@@ -1,0 +1,1 @@
+Artículo 4°—Todas las llaves del gimnasio, de las puertas de acceso, estantería que albergue implementos deportivos, guardarropas y otros, serán administradas por el Departamento de Seguridad a través del Encargado. Ningún servidor podrá portar llaves que no le han sido asignadas por el Departamento de Seguridad.

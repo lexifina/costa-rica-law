@@ -1,0 +1,1 @@
+Articulo 22.—El gimnasio deberá ser usado solo para actividades deportivas, acordes a las facilidades que las instalaciones ofrecen. Por tanto, no se permitirá el uso para otros fines ni prácticas de otros deportes que puedan dañar las instalaciones.

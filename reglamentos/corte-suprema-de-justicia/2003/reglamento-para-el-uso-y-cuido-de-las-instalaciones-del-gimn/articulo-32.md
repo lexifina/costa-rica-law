@@ -1,0 +1,1 @@
+Articulo 32.—Los servidores Judiciales pueden contratar los servicios privados de un instructor, asumiendo la erogación que corresponde- Previo a la contratación se debe obtener la autorización por parte del Departamento de Seguridad.

@@ -1,0 +1,1 @@
+Articulo 11.—Todo servidor judicial que haga uso del equipo y de las instalaciones del gimnasio, debe registrar el nombre completo, número de cédula, firma, nombre de la oficina de procedencia, teléfono y número de casillero asignado, en el acta de asistencia diaria.

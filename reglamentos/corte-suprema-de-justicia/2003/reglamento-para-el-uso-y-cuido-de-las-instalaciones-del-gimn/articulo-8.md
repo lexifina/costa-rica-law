@@ -1,0 +1,1 @@
+Artículo 8°—El Encargado está facultado para no permitir el ingreso al gimnasio cuando la vestimenta del servidor sea inadecuada para la práctica deportiva y cuando no observe las disposiciones sobre el aseo y mantenimiento de las instalaciones.

@@ -1,0 +1,1 @@
+Articulo 23.—Una vez desocupado el gimnasio, el Encargado deberá hacer una revisión del estado de las instalaciones, reportando cualquier anomalía al Departamento de Seguridad a Un de que sean definidas las medidas correctivas a tomar.

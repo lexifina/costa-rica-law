@@ -1,0 +1,1 @@
+Artículo 10. -Se prohibe a los usuarios del gimnasio del Poder Judicial, el ingreso y consumo de comidas y bebidas no autorizadas dentro de las instalaciones. La única bebida autorizada para consumir dentro del gimnasio es el agua o de tipo hidratante.

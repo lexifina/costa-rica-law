@@ -1,0 +1,1 @@
+Artículo 3°—La limpieza de las instalaciones deberá realizarla la Sección de Limpieza y Jardinería del Departamento de Servicios Generales. Se efectuará dos veces al día: de previo al inicio de la primera audiencia y en horas de la tarde.
