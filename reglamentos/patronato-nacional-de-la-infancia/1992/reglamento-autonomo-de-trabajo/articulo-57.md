@@ -1,0 +1,2 @@
+ARTICULO 57.
+La Junta Directiva podrá conceder licencia, con goce de salario, a los servidores regulares, para que realicen estudios dentro o fuera del país, a tiempo completo, de conformidad con lo estipulado en el Reglamento de capacitación, Adiestramiento y Becas.
