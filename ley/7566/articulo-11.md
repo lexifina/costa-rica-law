@@ -1,4 +1,5 @@
 ARTICULO 11.- Autorización para donar
-Autorízase a la Comisión Nacional de Emergencia y al Instituto
-Costarricense de Electricidad para donar, al órgano creado en esta ley,
-los bienes asignados al servicio actual del Sistema 9-1-1.
+Autorízase a las instituciones estatales para donar al órgano
+creado, los bienes asignados al servicio actual del Sistema 9-1-1.
+(Así reformado por el artículo 2º de la ley No.7740 de 19 de
+diciembre de 1997)
