@@ -1,0 +1,1 @@
+Art.2. Para proceder al juzgamiento de Villaseñor y Escalante se consultará al Congreso Federal, si el Tribunal que debe instruirles la causa, es el que establece el art. 35 de la Ley Nacional de 17 de Noviembre de 1832, ó el que de antemano tenía establecido para casos comunes la Constitución del Estado.
