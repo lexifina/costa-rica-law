@@ -120,3 +120,5 @@ Teatro Nacional: Transferencia a Compañía Nacional de Teatro, Museo de Arte Co
 (Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE): Recursos destinados a la atención de emergencias nacionales declaradas por el Poder Ejecutivo.
 (Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Junta Administradora del Servicio Eléctrico de Cartago (JASEC): Compra de Energía Eléctrica y Canon ARESEP.
+(Así adicionado por artículo 1° del Decreto Ejecutivo N° 31006 de 27 de enero de 2003)

@@ -22,3 +22,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 7 | 2002-10-24 | Decreto Ejecutivo 30822 (2002-10-24) |
 | 8 | 2002-11-12 | Decreto Ejecutivo 30889 (2002-11-12) |
 | 9 | 2002-12-09 | Decreto Ejecutivo 30907 (2002-12-09) |
+| 10 | 2003-01-27 | Decreto Ejecutivo 31006 (2003-01-27) |
