@@ -13,3 +13,4 @@ Reglam. Refaccionamiento Vehículos Transporte Remunerado de PersonasModalidades
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-10 | la propia norma |
+| 2 | 1999-08-10 | SINALEVI (sin norma nombrada) |
