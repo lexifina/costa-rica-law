@@ -1,0 +1,1 @@
+Artículo 9°—La Municipalidad creará una Comisión para atender en forma exclusiva los asuntos que les remitan los Consejos de Distrito. Esta Comisión será integrada en la forma y términos que establece el Código Municipal.

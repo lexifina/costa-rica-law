@@ -1,0 +1,1 @@
+Artículo 16.—El quórum para las sesiones se formará con tres (3) concejales entre los cuales siempre deberá estar presente el presidente o el vicepresidente. No se considera quórum la sola presencia del secretario, suplente de síndico y tesorero.
