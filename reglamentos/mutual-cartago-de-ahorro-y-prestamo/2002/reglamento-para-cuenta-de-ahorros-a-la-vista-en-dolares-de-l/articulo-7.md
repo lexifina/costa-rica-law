@@ -1,0 +1,2 @@
+Artículo 7º—El cuenta ahorrante. Toda persona física con capacidad de actuar, o persona jurídica cuyo plazo social, personería y cédula jurídica se encuentren vigentes, podrán constituir las clases y la cantidad de los contratos de ahorros que deseen.
+El representante de un menor de edad o de un incapaz judicialmente declarado, podrán constituir cuentas de ahorro a nombre de sus representados siguiendo los mismos procedimientos antes indicados.
