@@ -1,0 +1,1 @@
+Artículo 2º—Las entidades públicas y privadas podrán brindar, dentro de las medidas de sus posibilidades legales y económicas, las facilidades y cooperación logística o .nanciera para las actividades de preparación de la Delegación O.cial de Costa Rica.
