@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+Nº 001-SC.—San José, 14 de enero del 2005
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+· DG-001-2005, modifica el Manual Institucional de Clases de la Dirección General de Tributación, aprobado mediante la Resolución DG-157-98, para declarar atinente la Maestría en Valuación, siempre que haya sido obtenida a partir de otra carrera universitaria que se encuentre declarada como atinente, para varias clases y cargos.
+· DG-002-2005, modifica su homóloga la DG-278-2004 de las nueve horas del día doce de octubre del dos mil cuatro a .n de incluir la clase Trabajador Misceláneo 3, G. de E.: Atención de Menores.
+· DG-003-2005, se aprueba el Manual Institucional de Clases Especí.cas de la Dirección General de Migración y Extranjería.
+· DG-013-2005, modifica el anexo del artículo 2° de la Resolución DG-221-2004 con el .n de variar la especialidad Equipos Interdisciplinarios.
+· DG-014-2005, deja sin efecto la Resolución DG-045-1999 del 13 de abril de 1999 con la que se aprueba el Manual Institucional de Clases de la Dirección de Crédito Público del Ministerio de Hacienda.
+· DG-015-2005, modifica el Manual de Atinencias del Instituto Nacional de Aprendizaje, aprobado mediante su homóloga la DG-056-97 del 12 de junio de mil novecientos noventa y siete, incorporando la Maestría en Estudios de Psicología Grupal dentro de las atinencias académicas de la clase Formador para el Trabajo 1, cargos Orientador, Trabajador Social y Formador Técnico de los Núcleos de Gestión Tecnológica, siempre y cuando sea obtenida con base en el Bachillerato o Licenciatura en una carrera declarada como atinente para los cargos en mención.
+· DG-017-2005, modifica la resolución DG-492-2003 con rige 30 de diciembre del 2003, para eliminar -en los diversos artículos que la contemplan- la frase que indica: “Cualquier carrera o énfasis en el área de Administración cuya nomenclatura y contenido del plan de estudios, tenga una orientación similar a los énfasis mencionados...” y modi.ca el artículo 8º de su homóloga la DG-492-2003 con rige 30 de diciembre del 2003, referente al Manual Institucional del Área Administrativa del Ministerio de Hacienda, para excluir varios cargos.
+· DG-018-2005, modifica el artículo de su homóloga la DG-221-2004 para eliminar las subespecialidades indicadas para la especialidad Antropología, de manera que se consigne correctamente de la siguiente manera: Código 036, Especialidad Antropología.
