@@ -13,3 +13,4 @@ Reglamento de Caja Chica del Instituto de Costarricense de Puertos del Pacífico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-18 | la propia norma |
+| 2 | 2000-06-14 | Reglamento 2938 (2000-06-14) |
