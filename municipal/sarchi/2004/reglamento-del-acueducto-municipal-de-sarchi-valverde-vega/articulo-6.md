@@ -1,0 +1,1 @@
+Artículo 6º—Una paja de agua abastecerá la casa o local del propietario que la solicite. Las casas subdivididas en varias viviendas o locales, si solicitan agua, deberán instalar una paja de agua para cada vivienda o local. Si se localizaran instalaciones clandestinas que surtan de agua a casas vecinas se les cobrará como recargo el importe correspondiente a un año.

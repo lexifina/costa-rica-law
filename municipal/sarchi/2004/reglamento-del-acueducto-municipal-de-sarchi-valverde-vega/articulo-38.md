@@ -1,0 +1,1 @@
+Artículo 38.—Los encargados de hacer conexiones de pajas de agua que las lleven a cabo sin tener el permiso correspondiente del Alcalde Municipal, serán destituidos de su cargo por considerarse tal hecho como falta grave.

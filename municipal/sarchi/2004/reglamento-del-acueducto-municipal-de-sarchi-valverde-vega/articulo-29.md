@@ -1,0 +1,1 @@
+Artículo 29.—El usuario que incurra en desperdicio de agua en jardines, cultivos, tuberías defectuosas y otros que se considere como uso irracional, se le aplicará el debido proceso y si habiendo sido notificado hiciere caso omiso a éste, se procederá a la suspensión del servicio sin más trámite y dilación. Salvo que la medición se realice con hidrómetros.

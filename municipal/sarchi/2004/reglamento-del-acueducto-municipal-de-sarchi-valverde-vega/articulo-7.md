@@ -1,0 +1,1 @@
+Artículo 7º—El Fontanero Municipal inspeccionará y recomendará los casos en que física o técnicamente no sea factible la separación de las pajas, para lo cual el Alcalde Municipal autorizará la conexión de una sola paja de agua.

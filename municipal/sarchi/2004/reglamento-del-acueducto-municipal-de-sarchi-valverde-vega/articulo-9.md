@@ -1,0 +1,1 @@
+Artículo 9º—Es potestad de la Municipalidad, en el ejercicio de sus funciones, hacer extensiones, derivaciones, modificaciones y reparaciones a las redes e instalaciones de los sistemas públicos de su propiedad, así como las previstas y medidores en las conexiones privadas.

@@ -1,0 +1,1 @@
+Artículo 3º—El servicio de agua potable es para satisfacer sólo en su jurisdicción. Para brindarlo a otro municipio tiene que solicitarlo el municipio interesado, apoyado en estudio de factibilidad indicando si existe suficiencia en el cantón y bajo firma de convenio.

@@ -1,0 +1,1 @@
+Artículo 54.—Otorgado el permiso para la construcción del pozo, perforado este y realizadas las obras de infraestructura necesarias el urbanizador, mediante nota dirigida al Concejo Municipal, solicitará a la Municipalidad que sea esta quien administre este nuevo acueducto.

@@ -1,0 +1,1 @@
+Artículo 26.—La lectura de los hidrómetros corresponderá hacerla al Inspector de Servicios Municipales en asocio con el Fontanero Municipal, quienes deberán proceder a hacer la revisión de las pajas de agua para así comprobar desperfectos, daños y desperdicios de agua, en caso necesario.

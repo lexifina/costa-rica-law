@@ -1,0 +1,1 @@
+Artículo 21.—Cuando el uso de los servicios sea modificado por el cliente, este deberá notificarlo así a la Administración del acueducto, por medio de una solicitud de cambio de clase. La Municipalidad verificará la situación y si corresponde, hará el cambio necesario. La Municipalidad podrá también realizar de oficio el cambio de clase respectiva.

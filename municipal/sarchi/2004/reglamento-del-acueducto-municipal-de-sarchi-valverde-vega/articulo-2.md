@@ -1,0 +1,1 @@
+Artículo 2º—Los clientes deberán hacer buen uso de los servicios, dándole el destino exclusivo para el que fueron contratados. El agua potable es exclusiva para el consumo humano, salvo casos muy calificados se podrá utilizar en otra actividad, previa autorización del Alcalde Municipal y en su caso necesario, apoyado en un estudio de factibilidad.

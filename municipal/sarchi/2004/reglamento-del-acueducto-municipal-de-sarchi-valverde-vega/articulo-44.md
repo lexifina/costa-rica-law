@@ -1,0 +1,1 @@
+Artículo 44.—Cuando en una misma conexión existen unidades de consumo con diferente uso, se aplicará la tarifa más alta. Sin embargo, el propietario puede solicitar a la Municipalidad la individualización del servicio por clase, siempre y cuando sea técnicamente posible y el sistema interno permita esta separación.
