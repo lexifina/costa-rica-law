@@ -1,0 +1,1 @@
+Artículo 4º—El ICER estará sujeto a la fiscalización de la Auditoría Interna del MEP y de la Contraloría General de la República, en lo referente a lo dispuesto en el artículo 2 de esta Ley. Rige a partir de su publicación.
