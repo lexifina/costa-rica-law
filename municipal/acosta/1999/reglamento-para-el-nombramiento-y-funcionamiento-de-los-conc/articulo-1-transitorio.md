@@ -1,0 +1,2 @@
+Transitorio único.-Para el periodo 1998-2002 los miembros de los Concejos de distrito serán nombrados por el Concejo Municipal dentro del mes siguiente a la entrada en vigencia de este reglamento. Durarán en sus cargos hasta que tomen posesión los nuevos miembros nombrados conforme el artículo 55 del Código Municipal, podrán se reelectos y desempeñarán sus cargos en forma gratuita.
+San Ignacio de Acosta, 22 de enero de 1999.

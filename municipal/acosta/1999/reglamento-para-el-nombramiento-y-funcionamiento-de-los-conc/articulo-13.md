@@ -1,0 +1,1 @@
+Artículo 13.-El Concejo de distrito deberá reunirse ordinariamente cuando menos dos veces al mes, debiendo comunicar a la Municipalidad, el día, hora y lugar que designen para tal efecto, pudiendo celebrar sesiones extraordinarias previa convocatoria del presidente o cuando así lo convoquen tres de sus miembros, siempre con veinticuatro horas de anticipación.
