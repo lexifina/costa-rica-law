@@ -14,3 +14,4 @@ Reglamento de Transporte Internacional de Personas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1965-11-20 | la propia norma |
+| 2 | 1991-10-04 | Decreto Ejecutivo 20785 (1991-10-04) |
