@@ -1,1 +1,0 @@
-Artículo 27.- La Caja no podrá tomar a su cargo el servicio de ninguna obligación de las enumeradas en el inciso 1) del artículo 49 de esta ley, sin que previamente se le asignen y garanticen los recursos y fondos que la Junta considere necesarios y suficientes para satisfacer plenamente tal obligación.

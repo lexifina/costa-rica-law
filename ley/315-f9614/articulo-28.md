@@ -1,1 +1,0 @@
-Artículo 28.-Los créditos concedidos a la Caja par las instituciones bancarias y de seguros, de acuerdo con la presente ley, tendrán los mismos límites establecidos para el Estado en las leyes respectivas. Estos créditos no se considerarán como inversión en deuda pública o préstamo al Fisco.
