@@ -1,0 +1,3 @@
+Artículo 62.—Debe de indicarse claramente en la Solicitud de Materiales y Servicios, los objetivos, que deberán estar relacionados con las metas establecidas en el Plan Anual Operativo (PAO) del año a que se refiere la contratación.
+Asimismo, deberá indicarse expresamente en la Solicitud de Materiales y Servicios, el motivo por el cual se está desestimando la contratación en Costa Rica, siendo competencia de la Proveeduría corroborar y valorar el motivo alegado.
+(Así ADICIONADO por la Sesión Ordinaria N° 5267, celebrada el 16 de setiembre de 2003, publicada en La Gaceta N° 205 de 24 de octubre de 2003.)

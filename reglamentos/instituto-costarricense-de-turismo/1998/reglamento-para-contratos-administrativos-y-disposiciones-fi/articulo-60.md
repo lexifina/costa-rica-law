@@ -1,0 +1,3 @@
+Artículo 60.—La competencia para adjudicar en las contrataciones que se tramiten en aplicación de los artículos 2 incisos f) de la Ley y 80 del R.G.C.A., que en razón de su monto correspondería a una Licitación Pública, será de la Junta Directiva, previa recomendación técnica de la unidad solicitante.
+La competencia para adjudicar todas las demás contrataciones que se tramiten en aplicación de los artículos 2 incisos f) de la Ley y 80 del R.G.C.A., será de la Gerencia, previa recomendación técnica de la unidad solicitante.
+(Así ADICIONADO por la Sesión Ordinaria N° 5267, celebrada el 16 de setiembre de 2003, publicada en La Gaceta N° 205 de 24 de octubre de 2003.)
