@@ -1,0 +1,4 @@
+Artículo 13.—Modifíquese el artículo 26 para que se lea así:
+"Artículo 26.—A petición del abonado se elaborará en la Unidad de Servicio al Cliente un reporte de alto consumo, en el formulario destinado para tal fin. En caso de determinarse fugas no visibles dentro de la propiedad, de acuerdo con la inspección realizada, se procederá a informarlo de tal situación y a realizar un ajuste correspondiente al período previo a la citada inspección. Para tal fin se calculará el monto correspondiente con el promedio de consumo de los últimos seis meses. En caso de continuar la fuga no se realizarán más ajustes.
+El reporte respectivo se deberá realizar antes de finalizado el período de cobro correspondiente, en caso contrario no se realizará ningún ajuste.
+En el caso de fugas visibles en la propiedad no se realizará ningún ajuste."

@@ -1,0 +1,3 @@
+Artículo 2º—Adiciónese un segundo párrafo al inciso f) del artículo 6º para que se lea así:
+"f)...
+La Municipalidad quedará facultada para dictar políticas y procedimientos necesarios para regular el otorgamiento sobre la disponibilidad del agua en el cantón de Belén."

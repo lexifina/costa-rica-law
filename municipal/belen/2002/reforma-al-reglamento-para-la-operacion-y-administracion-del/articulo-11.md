@@ -1,0 +1,2 @@
+Artículo 11.—Modifíquese el artículo 18, para que se lea así:
+"Artículo 18.—De la determinación tarifaria. Para el sostenimiento del acueducto, la Municipalidad de Belén establecerá una tarifa básica por el servicio, previo estudio de costos de administración, operación, mantenimiento, desarrollo, inversión y servicio de deuda. Para tal fin se aplicará lo establecido en el artículo 74 del Código Municipal."
