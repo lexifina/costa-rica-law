@@ -19,3 +19,4 @@ Reglamento del Consejo Nacional de Salarios
 | 4 | 1983-01-27 | Decreto Ejecutivo 14317 (1983-01-27) |
 | 5 | 1983-04-07 | Decreto Ejecutivo 14426 (1983-04-07) |
 | 6 | 1984-01-31 | Decreto Ejecutivo 15262 (1984-01-31) |
+| 7 | 1985-03-11 | Decreto Ejecutivo 16099 (1985-03-11) |
