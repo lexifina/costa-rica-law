@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8047 del 24 de noviembre del 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-30 | la propia norma |
+| 2 | 2002-02-04 | Decreto Ejecutivo 30229 (2002-02-04) |
