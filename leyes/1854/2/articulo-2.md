@@ -1,0 +1,1 @@
+Art 2°.- En consideración a las cargas con que está gravado el comercio, y no obstante los dispuesto en el art´19, &5; sección 2° del Reglamento de Hacienda de 10 de diciembre de 1839, los libros de los comerciantes se formaran en papel común con las formalidades prescritas en el art 40 citado del Código de comercio.
