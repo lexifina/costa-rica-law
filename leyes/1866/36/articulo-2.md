@@ -1,0 +1,1 @@
+Art 2°- Todo recaudador pasará a la Municipalidad de que depende el 1° y 15 de cada mes un balance de la quincena anterior, llevará un libro de cargo y data con los respectivos comprobantes y devengará por su trabajo un cuatro por ciento de honorario sobre las cantidades que recaude.
