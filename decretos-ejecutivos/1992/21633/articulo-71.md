@@ -1,1 +1,2 @@
-Artículo 71.—Los servidores acogidos bajo el régimen de dedicación exclusiva continuarán gozando de este beneficio en los casos en que se acojan a permisos con de salario total o parcial para adiestramiento, siempre y cuando su contrato de dedicación exclusiva haya sido aprobado por el Ministro con un mínimo de tres meses de anticipación a la fecha en que empieza a regir el contrato de adiestramiento.
+Artículo 71.—Los contratos de Dedicación Exclusiva tendrán vigencia a partir del día en que sean suscritos por las partes.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

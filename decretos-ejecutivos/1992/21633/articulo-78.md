@@ -1,5 +1,6 @@
-Artículo 78.—Los servidores que se acojan al régimen de dedicación exclusiva están facultados para ejercer excepcionalmente sus profesiones en los siguientes casos:
-a) Cuando se trate de labores docentes en establecimientos de enseñanza superior públicos o privados, siempre y cuando no exista superposición horaria con respecto a la jornada de la UEP.
-b) Cuando se trate de impartir cursos de capacitación en instituciones públicas, siempre que sean auspiciados y organizados por dichas instituciones.
-c) Cuando se trate de asuntos personales, de su cónyuge, ascendientes o descendientes hasta tercer grado de consanguinidad o hasta segundo grado por afinidad, siempre y cuando no exista interés lucrativo por parte de los servidores o de sus familiares.
-d) Cuando fueren nombrados en cargos de juntas directivas, siempre y cuando no exista conflicto de intereses entre el puesto desempeñado y las funciones de la institución o empresa de que se trate.
+Artículo 78.—Habrá incumplimiento por parte de los servidores cuando realicen acciones contrarias a lo estipulado en el presente capítulo o en el Contrato de Dedicación Exclusiva, lo cual acarreará las siguientes sanciones.
+a) La resolución inmediata del contrato y el reintegro al Estado de las sumas otorgadas por concepto de Dedicación Exclusiva, cuando se incumpla lo establecido en el artículo 70. En estos casos, los servidores no podrán firmar nuevos contratos dentro de un período de dos años a partir de la fecha de dicha resolución.
+b) Amonestación por escrito, para los servidores que se acojan a las excepciones que se indican en el artículo 74, inciso c), y no cumplan con el procedimiento que para ello se establece en el artículo 75.
+c) Suspensión por ocho días en casos de que incurran por segunda vez en la falta señalada en el inciso anterior.
+d) El despido se aplicará, sin responsabilidad para el Estado, a los servidores que hagan incurrir en error al Departamento de Personal de MIDEPLAN en la recepción indebida de los requisitos que señala el artículo 65, inciso a) y cuando por segunda vez, infrinjan lo estipulado en el artículo 70, por considerarse faltas graves.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

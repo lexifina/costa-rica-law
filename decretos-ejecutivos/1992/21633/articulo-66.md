@@ -1,1 +1,2 @@
-Artículo 66.—El contrato de dedicación exclusiva debe constar en original, que conservará el Departamento de Personal de MIDEPLAN y una copia para el servidor.
+Artículo 66.—Los servidores que deseen acogerse al Régimen de Dedicación Exclusiva y que cumplan con los requisitos que señala el artículo anterior, deberán solicitarlo por escrito al Departamento de Personal de MIDEPLAN, adjuntando para ello originales y fotocopias que acrediten los grados académicos, las incorporaciones a los colegios profesionales respectivos y las justificaciones del Director.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

@@ -1,3 +1,2 @@
-Artículo 73.—Los servidores acogidos al régimen de dedicación exclusiva y que hayan disfrutado de una licencia sin goce de salario, al regresar a sus puestos en la UEP podrán seguir devengando el pago de dicho beneficio, cuando la correspondiente licencia haya sido otorgada para:
-a) Laborar con un organismo internacional, un gobierno extranjero, uno de los Poderes del Estado o una institución pública.
-b) Tratamiento médico, convalecencia, asuntos graves de familia y en general asuntos personales no ligados al ejercicio de la profesión, en cuyo caso, al regresar deberán presentar una declaración jurada de que no han ejercido en forma liberal las profesiones que ostenten ni actividades relacionadas con ellas.
+Artículo 73.—Cuando los servidores disfruten de permisos sin goce de sueldo, a sus regresos, seguirán acogidos a la Dedicación Exclusiva convenida previo al otorgamiento de esos permisos.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

@@ -1,1 +1,2 @@
-Artículo 68.—El Departamento de Personal de MIDEPLAN evaluará el cumplimiento de los requisitos establecidos en este capítulo para acogerse al beneficio de dedicación exclusiva dentro de un plazo máximo de diez días hábiles a partir de la fecha de su presentación. En casos especiales dicho plazo podrá prorrogarse por una sola vez.
+Artículo 68.—Una vez suscritos los contratos de Dedicación Exclusiva, el Departamento de Personal elaborará las Acciones de Personal correspondiente para hacer efectivos los pagos.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

@@ -1,5 +1,4 @@
 CAPÍTULO XVI
 De la dedicación exclusiva
-Artículo 62.—La UEP, de acuerdo con su disponibilidad presupuestaria podrá otorgar la correspondiente compensación económica a aquellos servidores que en razón de sus cargos se estime necesario y oportuno favorecer con el beneficio de dedicación exclusiva. La suma a reconocer se fija en la siguiente proporción:
-a) De un diez por ciento a un veinte por ciento, para los que posean el grado académico de bachiller universitario, y
-b) De un diez por ciento a un cincuenta y cinco por ciento, para los que posean el grado académico de licenciatura o grado superior.
+Artículo 62.—La Dedicación Exclusiva es el ejercicio profesional de los servidores únicamente para la UEP, por lo que no podrán ejercer de manera particular - remunerado o ad honorem - la profesión que sirve como requisito para desempeñar los puestos que ostentan, ni actividades relacionadas con éstas, con las excepciones que se señalan en el presente capítulo.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

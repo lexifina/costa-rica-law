@@ -11,7 +11,8 @@ Artículo 3°—Para los efectos legales que se deriven de la aplicación del pr
 "MINISTRO": El Ministro de Planificación Nacional y Política Económica.
 "PROHIBICIÓN": Obligación de los servidores de no ejercer liberalmente determinadas profesiones que ostenten, excepto en el campo de la docencia y en lo referente a sus asuntos personales y familiares, a cambio de un beneficio consistente en una retribución equivalente a un porcentaje de su salario base, de conformidad con las normas establecidas sobre el particular en la ley N° 5867 del 15 de diciembre de 1975 y sus reformas.
 "PROYECTO": El Proyecto de Crédito y Desarrollo Agrícola para Pequeños Productores de la Zona Norte del País.
-"REASIGNACIÓN": Acto formal que dispone el cambio en la clasificación de un puesto, con motivo de la variación sustancial y permanente de sus tareas.
+"REASIGNACIÓN": cambio que se opera en la clasificación de un puesto con motivo de variación sustancial y permanente en sus tareas y responsabilidades.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)
 "REESTRUCTURACIÓN": Cambio que afecta a puestos o clases al variarse la estructura ocupacional de una serie o la conformación de una clase y que tiene los mismos efectos de una reasignación.
 "REGLAMENTO": El presente Reglamento Autónomo de Servicio de la Unidad Ejecutora del Ministerio de Planificación Nacional y Política Económica para el Proyecto de Crédito y Desarrollo Agrícola para Pequeños Productores de la Zona Norte del País.
 "REVALORACIÓN": Acto que modifica los salarios base, como respuesta al aumento en el costo de la vida, relaciones de competencia y otras razones similares,
