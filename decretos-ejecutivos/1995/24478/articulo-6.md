@@ -1,0 +1,1 @@
+Artículo 6º.—La Comisión del Programa de Compensación Social tendrá a su cargo organizar la relación entre el Programa y los Organismos locales en las comunidades, para facilitar una adecuada Captación de la información, y procurar una comunicación oportuna a las personas a quienes se les conceden los beneficios.
