@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- Todos los miembros del Cuerpo de Investigación estarán sujetos a lo que prescriben los artículos 78 y 80 de la Ley de Organización General del Ejército y dependerán directamente del Secretario de Estado en el Despacho de Seguridad Pública.
