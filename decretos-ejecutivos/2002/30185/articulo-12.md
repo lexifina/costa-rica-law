@@ -1,0 +1,1 @@
+Artículo 12.—Vigencia. El presente Reglamento rige a partir de su publicación y regulará las fijaciones tarifarias que se realicen con posterioridad a la entrada en operaciones del Consorcio Riteve-S y C, sin perjuicio de lo dispuesto en el régimen transitorio siguiente, para efectos de la tarifa inicial.

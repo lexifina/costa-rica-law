@@ -1,0 +1,4 @@
+Artículo 10.—Responsabilidades. Será responsabilidad de los funcionarios públicos que elaboraron las fórmulas matemáticas y de la Junta Directiva del Consejo de Transporte Público, cualquier error que posteriormente se detectare en su formulación.
+El Ministerio de Obras Públicas y Transportes por medio de las dependencias técnicas competentes será responsable de tramitar con prontitud las gestiones para el reajuste tarifario que formule el Consorcio Riteve-S y C.
+Cuando el Consorcio Riteve-S y C incurriere en incumplimientos a los términos contractuales y a la legislación vigente, será acreedor de las sanciones que correspondan, previo cumplimiento del debido proceso.
+El Consejo de Transporte Público y sus dependencias deberán poner de inmediato en conocimiento del Ministro de Obras Públicas y Transportes cualquier situación anómala o irregular que detectare durante la ejecución del contrato con el Consorcio Riteve-SyC.
