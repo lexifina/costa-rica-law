@@ -1,8 +1,15 @@
-Artículo 72.- Quienes hagan solicitud para servir un puesto de
-Alcalde o Agente Judicial sin ser abogados, bachilleres en leyes o
-egresados en la Facultad de Derecho, deberán rendir pruebas de idoneidad
-ante el Departamento de Personal, cuando así lo disponga la Corte Plena
-con vista en las solicitudes presentadas. El Departamento tomará en
-cuenta el resultado de esas pruebas para dar el informe a que se refiere
-el artículo 70, y el término de ocho días se contarán desde la fecha en
-que se practiquen.
+Artículo 72.- Serán atribuciones del Consejo de la Judicatura:
+1.- Determinar los componentes que se calificarán para cada
+concurso, sin perjuicio de los que por ley deban incluirse, y realizar
+la calificación correspondiente.
+2.- Integrar los tribunales examinadores con abogados
+especializados o de reconocida trayectoria en su campo profesional, en
+la materia de que se trate.
+3.- Enviar a la Corte Suprema de Justicia o al Consejo Superior
+del Poder Judicial, según corresponda, las ternas de elegibles que le
+pidan.
+4.- Convocar a concursos para completar el registro de elegibles.
+5.- Recomendar al Consejo Directivo de la Escuela Judicial la
+implementación de cursos de capacitación.
+(Así reformado por el artículo 1º de la Ley Nº 7338 de 5 de mayo de
+1993).
