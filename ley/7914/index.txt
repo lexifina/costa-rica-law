@@ -46,3 +46,6 @@ articulo-45.md
 articulo-46.md
 articulo-47.md
 articulo-48.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
