@@ -1,0 +1,1 @@
+Artículo 9°-La Municipalidad de San José reconocerá una suma adicional de un treinta por ciento (30%) sobre el salario base, a aquellos profesionales que reuniendo los requisitos contemplados en el articulo 6° de este Reglamento no se acojan al Régimen de Dedicación Exclusiva sino al de Disponibilidad.

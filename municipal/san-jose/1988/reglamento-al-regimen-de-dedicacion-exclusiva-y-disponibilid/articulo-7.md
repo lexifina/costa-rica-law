@@ -1,0 +1,1 @@
+Artículo 7°-Como excepción a lo dicho en el artículo anterior, podrá acogerse a este Régimen el Ejecutivo Municipal por la índole de sus funciones y por ser el máximo jerarca de la Institución, aunque no reúna los requisitos antes señalados

@@ -1,0 +1,1 @@
+Artículo 10.-Para acogerse tanto al Régimen de la Dedicación Exclusiva como al de la Disponibilidad, los profesionales de la Municipalidad de San José, que opten por cada uno de ellos deberán firmar el contrato respectivo con esta Institución, el cual se insertará en su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.
