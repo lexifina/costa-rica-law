@@ -1,0 +1,1 @@
+Artículo 5°—Las becas para la realización de estudios académicos o de especialización técnica en el extranjero sólo se otorgarán o se promoverán cuando, a juicio del CONICIT, no existan en Costa Rica instituciones u organismos donde se puedan efectuar satisfactoriamente dichos estudios o cuando la prioridad de algún programa de desarrollo científico y tecnológico así lo amerite.

@@ -1,0 +1,1 @@
+Artículo 56.—En los casos en que el ex becario preste sus servicios parcialmente en dos o más de las instituciones de acuerdo con lo señalado en el artículo 55, pero que en conjunto equivalgan a una jornada de tiempo completo, podrá solicitar al CONICIT que determine el porcentaje máximo de bonificación correspondiente.

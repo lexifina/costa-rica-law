@@ -1,0 +1,1 @@
+Artículo 59.—El CONICIT podrá suspender o interrumpir total o parcialmente los beneficios de la beca, si encontrare que, a su juicio, el becario incumple las condiciones y obligaciones establecidas en este Reglamento o en el respectivo contrato de beca.

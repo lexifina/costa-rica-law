@@ -1,0 +1,1 @@
+Artículo 64.—En el caso del inciso b) del artículo anterior, el becario deberá comunicar al CONICIT por escrito, con un mes de anticipación su voluntad de dar por terminado su contrato de beca. En caso que se acepte la resolución del contrato, el becario deberá devolver al CONICIT el monto total girado hasta ese momento.

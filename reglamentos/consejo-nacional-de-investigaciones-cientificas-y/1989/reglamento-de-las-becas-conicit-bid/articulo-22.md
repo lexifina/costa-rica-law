@@ -1,0 +1,1 @@
+Artículo 22.—Los aspirantes a becas deberán presentar una solicitud a cuyo efecto llenarán correctamente el formulario oficial correspondiente, sin omitir datos. Esta solicitud tendrá carácter de declaración jurada.

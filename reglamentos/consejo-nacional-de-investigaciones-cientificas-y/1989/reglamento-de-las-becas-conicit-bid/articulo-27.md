@@ -1,0 +1,1 @@
+Artículo 27.—El solicitante deberá asegurarse de presentar, personalmente, todos los documentos e información que este Reglamento le indica; toda solicitud incompleta o recibida por correo será rechazada.

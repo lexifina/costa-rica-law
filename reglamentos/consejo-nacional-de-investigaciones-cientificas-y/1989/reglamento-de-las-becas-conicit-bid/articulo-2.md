@@ -1,0 +1,1 @@
+Artículo 2 °—Todas las becas que otorgue el CONICIT con recursos del préstamo se regirán por este Reglamento, el Reglamento de Bonificación de las Becas CONICIT-BID y las normas del Contrato de Préstamo N° 544/OC-CR y de sus anexos. En caso de conflicto entre las disposiciones de este Reglamento y las del contrato antes indicado prevalecerán las disposiciones de este último.

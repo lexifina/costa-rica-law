@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del otorgamiento de las beca
+Artículo 31.—Las solicitudes de becas que cumplan con todos los requisitos de este Reglamento serán evaluadas por el departamento quien emitirá una recomendación escrita en la que se indicarán las razones que justifican la aprobación o denegación de una beca; dicha recomendación será analizada por el Comité de Selección de Becarios quien emitirá su recomendación respectiva al Consejo Director. La decisión final para cada solicitud, será potestad del Consejo Director del CONICIT, previo conocimiento de las recomendaciones emitidas por las instancias anteriores. No obstante la Secretaría Ejecutiva podrá aprobar solicitudes de hasta dos mil dólares o su equivalente en colones al tipo de cambio oficial.

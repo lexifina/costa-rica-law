@@ -1,0 +1,1 @@
+Artículo 53.—El becario se obliga a difundir y aplicar los conocimientos y experiencias adquiridas en sus estudios mediante la forma que el becario, el CONICIT y la institución que lo apoyó lo consideren conveniente.

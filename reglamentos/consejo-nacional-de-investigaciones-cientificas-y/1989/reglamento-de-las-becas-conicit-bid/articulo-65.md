@@ -1,0 +1,1 @@
+Artículo 65.—En el caso del inciso c) del artículo 63. de este Reglamento, el CONICIT, previamente a la rescisión del contrato de beca, notificará al becario la causa de la misma, concediéndole un plazo de un mes para expresar ante el Consejo Director algún tipo de oposición si la tuviere.

@@ -1,0 +1,1 @@
+Artículo 19.—La beca académica incluirá por una sola vez, una ayuda financiera para gastos de tesis, siempre y cuando no reciban para este efecto asistencia de otros organismos. El beneficiario debe justificar a satisfacción del CONICIT los gastos de este renglón.

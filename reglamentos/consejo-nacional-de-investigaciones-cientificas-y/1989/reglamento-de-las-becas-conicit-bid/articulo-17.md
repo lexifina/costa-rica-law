@@ -1,0 +1,2 @@
+Artículo 17.—Como parte integrante de la beca concedida el CONICIT asumirá el pago de un seguro de gastos médicos, que tendrá vigencia durante el período de estudios, conforme con las exigencias de la universidad en que el becario estudie.
+Para las becas de especialización este seguro será cubierto en los cursos que tengan una duración mayor a los tres meses y su reintegro se hará previa presentación de los comprobantes de pago.

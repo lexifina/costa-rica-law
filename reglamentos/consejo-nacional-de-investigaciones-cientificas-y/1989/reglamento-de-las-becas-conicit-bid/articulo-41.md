@@ -1,0 +1,1 @@
+Artículo 41.—El becario estará obligado a informar al término de cada período académico sobre el aprovechamiento de los estudios, aportando certificaciones o constancias de las calificaciones y logros obtenidos. Asimismo el CONICIT podrá solicitar un nuevo informe o ampliación del presentado en el momento en que lo estime conveniente.

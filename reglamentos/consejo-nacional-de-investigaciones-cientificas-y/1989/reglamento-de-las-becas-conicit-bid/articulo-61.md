@@ -1,0 +1,1 @@
+Artículo 61.—Comprobado cualquiera de los extremos a que se refiere el artículo anterior o en caso de que el becario no asuma las funciones que le asigne la institución o empresa para la que labora al término de sus estudios, de acuerdo don el respectivo contrato de beca, se procederá con lo dispuesto en el artículo 58 de este Reglamento.

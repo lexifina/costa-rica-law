@@ -1,0 +1,1 @@
+Artículo 32.—El Comité estará integrado por el Jefe de la Oficina Ejecutora del Subprograma A, el Director de la Oficina de Planificación de la Educación Superior (OPES), un representante de la Cámara de Industrias, un representante de la Cámara de Agricultura y Agroindustria y el Jefe del Departamento de Formación de Recursos Humanos del CONICIT, que lo presidirá.
