@@ -1,0 +1,1 @@
+Art. 3. Se confina al Puerto de Puntarenas, por el término de un año y bajo la vijilancia especial de las autoridades de aquella comarca á los reos Blas Alpizar, Lorenzo Quiroz, Jesus Arias y Estevan Quiroz.
