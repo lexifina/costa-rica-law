@@ -1,1 +1,2 @@
-Artículo 3°-Por todo trabajo no cubierto por las disposiciones de los artículos 1° y 2° de este Decreto, todo patrono pagará un salario no menor de un mil quinientos setenta y nueve colones (¢1.579,00), por jornada ordinaria.¢ 1.579,00
+Artículo 3°-El 12% que por concepto de salario escolar se ha acumulado durante 1997, se pagará con la última quincena o semana del mes de enero de 1998. Con el 12% del año 1997, los aumentos decretados por concepto de salario escolar suman 72% de un salario mínimo.
+En caso de ruptura de la relación laboral antes de verificarse el pago del 12% acumulado por concepto de salario escolar, el trabajador tendrá derecho a que se le pague el porcentaje acumulado a la fecha de conclusión de su contrato de trabajo.

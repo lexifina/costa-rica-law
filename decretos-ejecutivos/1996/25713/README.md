@@ -14,3 +14,4 @@ Fijación de salarios mínimos para el año 1997
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-01 | la propia norma |
+| 2 | 1997-06-10 | Decreto Ejecutivo 26109 (1997-06-10) |
