@@ -6,3 +6,5 @@ c) Atender en forma principal al Adulto Mayor.
 d) Brindar atención, prevención y tratamiento a personas con problemas de alcoholismo y farmacodependencia.
 e) Fortalecer los programas existentes en estas áreas.
 f) Propiciar como uno de sus objetivos fundamentales la atención de programas médico asistenciales.
+g) El 5% de los recursos producidos por esta Ley para programas sociales, será destinado por la Junta a programas de promoción y capacitación al voluntariado que presta servicios en proyectos y programas de prevención, promoción y asistencias sociales; a programas de promoción, capacitación y atención del núcleo familiar, de las mujeres y de los jóvenes, y a programas de promoción del desarrollo humano.
+(Así adicionado el inciso g) por el artículo 2 del Decreto Ejecutivo N° 29615 de 13 de junio del 2001)

@@ -14,3 +14,4 @@ Reglamento a la Ley de Loterías.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-17 | la propia norma |
+| 2 | 2001-06-13 | Decreto Ejecutivo 29615 (2001-06-13) |
