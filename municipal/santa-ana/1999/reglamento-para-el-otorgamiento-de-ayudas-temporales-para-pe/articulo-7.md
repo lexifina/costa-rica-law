@@ -1,0 +1,2 @@
+Artículo 7º—Del monto de la ayuda: El monto de la ayuda será estipulado por la Comisión de Vivienda en cada caso en específico y aprobado por el Concejo Municipal, según las necesidades del (la) solicitante y según el criterio de la comisión, monto que no podrá ascender de cien mil colones (¢100.000,00).
+Para los desembolsos del dinero respectivo, deberá presentar el adjudicatario la factura proforma proveniente de una de las empresas o personas que se encuentran inscritas en el respectivo Registro de Proveedores de la Municipalidad.
