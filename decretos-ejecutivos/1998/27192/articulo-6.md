@@ -1,1 +1,0 @@
-Artículo 6°-La presente declaratoria de emergencia por estado de necesidad y urgencia, se mantendrá vigente hasta tanto no exista un pronunciamiento contrario de parte del Poder Ejecutivo, una vez que hayan cesado los efectos de la situación actual y la inminencia del desastre.
