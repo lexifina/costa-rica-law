@@ -1,0 +1,1 @@
+2°-El Profesor que se nombre tiene la obligación de hacer, por lo menos, dos visitas mensuales, é informar, cada día primero de mes, á la Secretaría de lo interior y Policía, del resultado de aquellas.
