@@ -1,13 +1,2 @@
-Artículo 20.—Al declararse la Obligación en No Seguimiento, el Centro de Administración de Crédito deberá realizar el trámite siguiente:
-a. El expediente se entregará al encargado de llevar las "Obligaciones en No Seguimiento", para los fines correspondientes. Se debe identificar y archivar estos expedientes en forma independiente.
-b. Dentro del expediente, como mínimo, se deben encontrar los documentos siguientes:
-- Carátula de aprobación del crédito
-- Copia del documento legal
-- Notificaciones y fallos del juzgado, de ser el caso.
-- Estudio de bienes a la fecha de la declaratoria.
-- Informe del abogado con su criterio profesional sobre el caso o justificación administrativa.
-- Inclusión en lista de códigos.
-- Avalúos
-- Pólizas
-- Copia de cheque o comprobante de pago por adjudicación de bienes, de ser el caso.
-- Acuerdo de Declaratoria de No Seguimiento dado por la Junta Directiva o por la persona facultada.
+Artículo 20.—El procedimiento administrativo para liquidar operaciones de créditos contra la estimación contiene las pautas y requisitos para declarar la incobrabilidad de los créditos y su castigo contra la estimación correspondiente. Las oficinas de crédito deberán mantener en el expediente de la operación a liquidar la documentación y los datos más relevantes que permita identificar la incobrabilidad del crédito.
+(Así reformado mediante Sesión 11305 del 11 de enero del 2005)

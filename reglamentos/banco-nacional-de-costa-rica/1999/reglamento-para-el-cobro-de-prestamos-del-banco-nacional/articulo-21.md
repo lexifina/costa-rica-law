@@ -1,1 +1,2 @@
-Artículo 21.—El Abogado Director no podrá suspender en forma definitiva el proceso judicial hasta que se le haya manifestado por escrito, la persona u órgano que autorizó el no-seguimiento, lo cual se tramitará por la vía del Centro de Administración de Crédito conforme a los artículos 79 y siguientes.
+Artículo 21.—El Abogado Director no podrá suspender en forma definitiva el proceso judicial a él asignado hasta que se le manifieste por escrito, que fue autorizada por el Banco la liquidación contra la estimación. El Centro de Administración de Crédito será la encargada de comunicar al Abogado Director la suspensión del proceso.
+(Así reformado mediante Sesión 11305 del 11 de enero del 2005)
