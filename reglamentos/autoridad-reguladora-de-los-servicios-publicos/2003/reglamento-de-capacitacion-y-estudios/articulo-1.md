@@ -1,3 +1,5 @@
+(Derogado)
+(Este Reglamento fue DEROGADO por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, mediante el artículo 14 del Reglamento de Capacitación y Estudios, aprobado en sesión extraordinaria número 14-2002 del 1º de marzo del 2005).
 LA JUNTA DIRECTIVA DE LA AUTORIDAD REGULADORA
 DE LOS SERVICIOS PÚBLICOS REGLAMENTO
 DE CAPACITACIÓN Y ESTUDIOS
