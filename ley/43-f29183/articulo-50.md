@@ -1,0 +1,1 @@
+Art. 50. Se hará repartimiento de negocios para su despacho en los dias de la semana, debiendo fijar en la puerta del edificio, cada Lunes, lista de lo practicado para la debida inteligencia, y publicarse por la imprenta en relacion lo despachado en el mes.

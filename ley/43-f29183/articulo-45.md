@@ -1,0 +1,2 @@
+Art. 45. Comprende al Ministro del Despacho, y es extensiva á los Gefes Político, Militar, y de Hacienda, y à los Ministros todos de rentas, la restriccion extablecida en el art. 12 de este reglamento.
+Art. 45. El Ministro del Despacho tendrá los libros necesarios para asentar, con separacion de ramos, las providencias, resoluciones, y comunicaciones del Ejecutivo y demas Poderes del Estado en el interior y exterior del mismo, y los copiadores respectivos que deberàn ser foliados y rubricados por el Gefe Supremo. Tendrá otro libro en que consten los negocios reservados.

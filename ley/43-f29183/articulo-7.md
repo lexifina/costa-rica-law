@@ -1,0 +1,1 @@
+Art. 7. Las tropas harán al Poder Ejecutivo los mismos honores que por ordenanza se hacian à los llamados infantes de España, dandole igual guardia que a la Asambléa del Estado; y en caso que fallezca la persona que le obtiene en el ejercicio de sus funciones, se le harán los honores funerales que à aquellos.

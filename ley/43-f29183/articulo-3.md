@@ -1,0 +1,3 @@
+Art° 3° En falta de ambos la Asambléa, nombrarà uno del número de los Consejeros ó Diputados, mandando hacer nueva eleccion, si el impedimento no fuere temporal, ó faltare mas de un año para la renovacion de aquellos oficios; mas si la Asambléa (1) no estuviese reunida, serà convocada extraordinariamente, ejerciendo, en el ínterin se reune, el Poder Ejecutivo el Presidente del Consejo. (2) . 1
+(1) Vease el art* 11 del decreto de 26 de Janio de 1844.
+(2) Reformado por los articulos 131 de la Constitucion de 9 de Abril de 1844 y 3. del decreto de 26 de Junio del mismo año, fraccion 1ª del art. 79 y art, 104 de-la Constitucion de 21 de Enero de 1847.

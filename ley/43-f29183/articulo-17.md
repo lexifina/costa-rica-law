@@ -1,0 +1,1 @@
+Art. 17. Cuidarà de que sus Funcionarios subalternos en toda la administracion del Estado cumplan puntualmente las leyes generales y particulares; y que sean exàctos en el ejercicio de sus destinos, pudiendo para el caso exigirles por una vez multas desde veinticinco á trescientos pesos aplicables al tesoro público.

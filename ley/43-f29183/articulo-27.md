@@ -1,0 +1,2 @@
+Art. 27. Sin su anuencia ó conocimiento no podrà proveerse beneficio alguno curado en el Estado, bien sea ó no en propiedad, y sin que conste su consentimiento por despacho expedido en la forma ordinaria, de que se hayan tomado las razones conducentes, no podrá darse posesion al Eclesiàstico nombrado para alguno de los Pueblos. (2)
+(2[ Esta facultad, fué ampliada por el Concordato celebrado con la Santa Sede en 7 de Octubre de 1852.

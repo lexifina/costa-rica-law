@@ -1,0 +1,1 @@
+Art. 34. Darà à la Asamblèa y al Consejo los informes que se le pidan por conducto del Ministerio, y siendo sobre asuntos reservados, lo expondrà asi para que se le dispense de su manifestacion, ò se la exijan, si fuese urjente, exceptuando los planes de guerra, ó negocios de alta polìtica que no es obligado á manifestar.
