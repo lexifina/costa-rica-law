@@ -1,0 +1,1 @@
+Artículo 9.—Si una Asamblea de representantes no se reúne o no se celebra dentro del plazo fijado por el artículo 7 de este reglamento o por cualquier otro motivo no elige en firme a su representante ante la Junta Directiva de la Caja Costarricense de Seguro Social, el Consejo de Gobierno lo nombrará libremente.

@@ -1,0 +1,1 @@
+Artículo 4º—El Consejo Nacional de Cooperativas determinará el procedimiento que se seguirá para el desarrollo de la Asamblea de Representantes del Cooperativismo y para la designación de su representante ante la Junta Directiva de la Caja Costarricense de Seguro Social, conforme a lo establecido en la Ley y este Reglamento.
