@@ -1,0 +1,1 @@
+Artículo 11°.- La naturalización de un extranjero queda sin efecto por la residencia en el país de su origen durante dos años consecutivos, a menos que sea motivada por desempeño de una comisión oficial del Gobierno de Costa Rica, o con permiso de éste.
