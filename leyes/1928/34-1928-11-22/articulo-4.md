@@ -1,0 +1,2 @@
+IV
+El Gobierno tendrá siempre a su disposición durante veinte años a partir de la fecha de la instalación del hotel, libre de todo pago y a su elección, dos apartamentos, cada uno compuesto de sala, dormitorio para dos camas y servicio sanitario, de los mejores del hotel destinados a habitación, para alojar representaciones diplomáticas extranjeras de carácter extraordinario para huéspedes del Gobierno así declarados por éste, cuya permanencia en el país sea transitorio. Esta obligación del contratista comprende el servicio corriente de hotel.
