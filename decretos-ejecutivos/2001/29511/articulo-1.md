@@ -141,3 +141,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificados los límites de gasto del Instituto de Desarrollo Agrario, por el artículo 1 del decreto ejecutivo N° 30284 de 4 de abril del 2002)
 (Modificados los límites de gasto del Instituto Costarricense de Puertos del Pacífico, por el artículo 1 del decreto ejecutivo N° 30374 de 15 de abril del 2002)
 (Ampliado los límites de gasto presupuestario y efectivo para el año 2002, de la Comisión de Energía Atómica, por el artículo 1 del Decreto Ejecutivo N° 30486 de 20 de mayo del 2002)
+(Modificados los límites de gasto presupuestario y efectivo para el 2002 del INFOCOOP, por el artículo 1 del decreto ejecutivo N° 30489 de 20 de mayo del 2002)
+(Modificados los límites de gasto total presupuestario y efectivo de Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, por el artículo 1 del decreto ejecutivo N° 30488 de 24 de mayo del 2002)
