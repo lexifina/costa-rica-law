@@ -1,0 +1,3 @@
+ARTÍCULO II
+Ámbito de Aplicación
+El presente Acuerdo se aplicará a las inversiones efectuadas antes o después de su entrada en vigor, por inversionistas de una Parte Contratante, conforme a las disposiciones legales de la otra Parte Contratante, en el territorio de esta última. Sin embargo, no se aplicará a divergencias o controversias que hubieran surgido con anterioridad a su vigencia o estén directamente relacionadas con acontecimientos producidos antes de su entrada en vigor. Asimismo, tampoco afectará derechos patrimoniales adquiridos o situaciones jurídicas consolidadas con anterioridad a la fecha de entrada en vigor del Acuerdo.
