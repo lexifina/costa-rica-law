@@ -1,4 +1,4 @@
-ARTICULO 6º.- En caso de disolución de sociedades o empresas
+ARTÍCULO 6º.- En caso de disolución de sociedades o empresas
 individuales de responsabilidad limitada o de adjudicación judicial o
 extrajudicial de bienes sucesorios, siempre que el causante fuere
 declarante, deben ponerse al día en el pago de cuotas adeudas del

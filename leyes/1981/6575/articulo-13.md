@@ -1,4 +1,4 @@
-ARTICULO 13.- Con motivo del ejercicio de la función pública que
+ARTÍCULO 13.- Con motivo del ejercicio de la función pública que
 desempeñan, los notarios tendrán derecho a ser atendidos de modo
 preferente en la Tributación Directa, el Registro Nacional y sus
 dependencias, así como en toda oficina pública. Para hacer efectiva esa

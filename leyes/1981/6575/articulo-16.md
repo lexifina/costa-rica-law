@@ -1,4 +1,4 @@
-ARTICULO 16.- Modifícase el artículo 34 de la Ley de Planificación
+ARTÍCULO 16.- Modifícase el artículo 34 de la Ley de Planificación
 Urbana, número 4240 del 15 de noviembre de 1968. Su texto será el
 siguiente:
 "Artículo 34.- El Registro Público suspenderá la inscripción de

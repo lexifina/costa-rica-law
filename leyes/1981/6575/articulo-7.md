@@ -1,4 +1,4 @@
-ARTICULO 7º.- Si se tratare de compra-venta, donación, permuta o
+ARTÍCULO 7º.- Si se tratare de compra-venta, donación, permuta o
 cambio, dación en pago, de inmuebles, capitulaciones matrimoniales, con
 aporte de inmuebles a la sociedad conyugal, información posesoria,
 localización de derechos indivisos, adjudicación de baldíos, denuncios y

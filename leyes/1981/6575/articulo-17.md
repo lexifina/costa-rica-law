@@ -1,4 +1,4 @@
-ARTICULO 17.- Refórmanse los artículos 2º, 7º y 8º de la Ley de
+ARTÍCULO 17.- Refórmanse los artículos 2º, 7º y 8º de la Ley de
 Aranceles del Registro Público, número 4564 del 29 de abril de 1970 y sus
 reformas. Sus textos dirán:
 "Artículo 2º.- A solicitud de cualquier persona, toda dependencia

@@ -1,4 +1,4 @@
-ARTICULO 4º.- Con el objeto de centralizar el trámite de los
+ARTÍCULO 4º.- Con el objeto de centralizar el trámite de los
 documentos, a que se refiere esta ley, la Tributación Directa mantendrá
 -en el Registro Público- las oficinas y el personal que fueren necesarios
 para los fines de la misma.

@@ -1,4 +1,4 @@
-ARTICULO 21.- Deróganse los artículos 9º y 10 y modifícanse los
+ARTÍCULO 21.- Deróganse los artículos 9º y 10 y modifícanse los
 artículos 7º, 11 y 14 de la Ley de Impuesto sobre Traspaso de Bienes
 Inmuebles, contenida en el artículo 3º de la Ley de Reforma Tributaria
 número 5909 del 10 de junio de 1976, reformada por la ley número 6153 del

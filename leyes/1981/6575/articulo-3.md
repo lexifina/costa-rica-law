@@ -1,4 +1,4 @@
-ARTICULO 3º.- Aunque de ello no tome nota, y para efectos de
+ARTÍCULO 3º.- Aunque de ello no tome nota, y para efectos de
 Tributación Directa, el Registro Público suspenderá la inscripción de
 toda escritura que omitiere la dirección exacta de los comparecientes,
 que actúen personalmente.

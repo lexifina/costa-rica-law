@@ -1,4 +1,4 @@
-ARTICULO 12.- En todos los casos en que las leyes actuales o futuras
+ARTÍCULO 12.- En todos los casos en que las leyes actuales o futuras
 se refieran al "anotado" de Tributación Directa, en documentos para
 comprobar el pago de impuestos o contribuciones, o el cumplimiento de
 requisitos para su inscripción en el Registro Público, se tendrán como
