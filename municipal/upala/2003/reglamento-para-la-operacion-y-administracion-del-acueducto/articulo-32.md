@@ -1,0 +1,2 @@
+Artículo 32.—Inicio de la gestión del cobro judicial. La
+Municipalidad de Upala procederá de inmediato al cobro judicial, para lo cual se aplicará el Reglamento correspondiente. El Departamento Legal coordinara con los asesores externos, previo a iniciar el trámite de cobro judicial ante el despacho judicial correspondiente, por una única vez emitirá una última carta de aviso, por un plazo de ocho días para la cancelación o para el arreglo de pago, pasado dicho término procederá al cobro judicial.

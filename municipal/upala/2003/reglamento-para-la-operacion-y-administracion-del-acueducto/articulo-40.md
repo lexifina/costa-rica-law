@@ -1,0 +1,7 @@
+CAPÍTULO VIII
+De las prohibiciones y sanciones
+Artículo 40.—De la denuncia a la instancia judicial correspondiente:
+La Oficina de Acueducto de Upala, en coordinación con el asesor y representante legal, procederá a recopilar las pruebas de rigor y realizar el informe y, a fin de que se considere la posibilidad de presentar una denuncia ante la instancia judicial correspondiente cuando proceda y cuando el abonado realice alguna de las siguientes acciones:
+a) Que interfiera en el mantenimiento, que manipule o usurpe los equipos o accesorios del sistema de acueducto de conformidad con las señaladas en el artículo 413 del Código Penal. Se procederá también a la suspensión del agua.
+b) El usuario que incurra en desperdicio de agua potable en jardines, lavado de vehículos, cultivos, tuberías defectuosas u otros que se consideren de conformidad con los artículos 14 y 15 de la Ley General de Agua Potable y demás disposiciones legales y reglamentarias concordantes. Se procederá a la suspensión del servicio de agua.
+c) Se prohíbe toda instalación, edificación o labor comprendida en las zonas cercanas a fuentes de abastecimiento, plantas purificadoras o cualquier otra parte del sistema que perjudique en forma alguna a los trabajos de operación, distribución, o bien las condiciones físicas, químicas o bacteriológicas del sistema que cause o pueda causar perjuicio al sistema o la salud pública. Se procederá.

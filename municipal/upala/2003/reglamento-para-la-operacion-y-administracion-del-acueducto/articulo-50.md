@@ -1,0 +1,1 @@
+Artículo 50.—De la organización de la Oficina de Acueducto Municipal. Se organizará de acuerdo al Reglamento específico que para tal efecto emitirá la Municipalidad de Upala en el plazo de 2 meses a partir de la publicación del presente Reglamento.

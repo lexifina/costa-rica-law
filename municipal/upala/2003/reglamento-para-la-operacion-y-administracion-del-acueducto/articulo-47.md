@@ -1,0 +1,1 @@
+Artículo 47.—La Municipalidad deberá estar a derecho, con respecto a la concesión de las nacientes de agua de su cantón, ante el Ministerio de Ambiente y Energía, con el fin de garantizar el servicio a los usuarios.

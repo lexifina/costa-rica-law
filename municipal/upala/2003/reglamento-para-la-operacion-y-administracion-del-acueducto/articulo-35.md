@@ -1,0 +1,1 @@
+Artículo 35.—Del plazo de la reconexión. El Jefe del Departamento respectivo, autorizará por escrito en el formulario diseñado para ello, a quien corresponda, la reconexión del servicio de agua potable dentro del menor plazo posible, y dentro del plazo de 2 días hábiles máximo, o bien de la suscripción del respectivo arreglo de pago.

@@ -1,0 +1,1 @@
+Artículo 43.—Si la Municipalidad de Upala no cuenta con personal capacitado para realizar estudios sobre la calidad del agua, podrá realizar convenios con otras instituciones, de conformidad con el Código Municipal para que se encarguen de realizarlos, por lo menos una vez al año, garantizando así la potabilidad del agua al usuario.

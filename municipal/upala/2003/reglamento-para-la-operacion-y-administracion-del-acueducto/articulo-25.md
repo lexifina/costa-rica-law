@@ -1,0 +1,1 @@
+Artículo 25.—De las fugas domiciliarias. En el caso en que por cualquier circunstancia el hidrómetro sufra desperfectos que impidan el registro de los consumos de agua, al abonado se le cobrará de acuerdo con el promedio de los consumos normales de los últimos tres meses.

@@ -1,0 +1,1 @@
+Artículo 31.—Del cobro Administrativo. La Municipalidad en el mismo traslado de cargos procederá a advertir que se pasará al cobro judicial en los siguientes cinco días hábiles, independientemente de la suspensión del servicio de agua. El contador Municipal procederá a emitir la certificación de lo adeudado para el cobro judicial una vez firme el traslado de cargos.

@@ -1,0 +1,7 @@
+Artículo Nº 6º—Del otorgamiento del servicio. La Municipalidad concederá el servicio de agua potable, observando lo siguiente, siempre y cuando tenga capacidad de abastecimiento:
+A) El agua potable es de uso domiciliar principalmente.
+B) No se concederá paja de agua para lotes que carezcan de edificaciones, excepto en los casos que sean para inicio de construcciones y siempre que exista suficiente recurso hídrico para disponerlo.
+C) Así mismo la Municipalidad está facultada para aprobar o derogar la prevista para las urbanizaciones o construcciones masivas de acuerdo a la capacidad del recurso hídrico. En el caso de urbanizaciones o construcciones masivas, el constructor o desarrollador deberá entregar el juego de planos constructivos de la red hídrica y el costo respectivo por componente, Ejemplo: tubería-diámetro, longitud; tanques, pozos, u otros. Debe entregarse de manera formal por donación de infraestructura (oficio).
+D) El otorgamiento del servicio se concederá de conformidad con las categorías establecidas en el artículo 3 inciso r).
+E) Para el otorgamiento del servicio de agua deberá contar con el visto bueno del Departamento de Desarrollo y Control Urbano y la Oficina de Acueducto. No se otorgarán permisos de construcción en zonas donde resulte técnicamente imposible otorgar el servicio, lo cual deberá coordinarse con los permisos municipales de construcción que se otorguen tanto para lotificar y construir.
+El usuario deberá hacer uso del servicio de acuerdo a la categoría en que se ha calificado y autorizado únicamente.

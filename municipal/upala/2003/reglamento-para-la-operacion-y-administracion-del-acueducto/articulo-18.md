@@ -1,0 +1,2 @@
+Artículo 18.—De la prohibición de exenciones y exoneraciones. La Municipalidad no suministrará en forma gratuita el agua, ni exonerará total o parcialmente el pago de reparación o cuenta que deba recaudar excepto si existiera disposición legal que lo autorice.
+Los funcionarios municipales están en la obligación de cobrar las sumas adeudadas por el concepto de agua potable. Por lo cual el incumplimiento de esta disposición se le aplicará lo establecido en el artículo 72 del Código Municipal.
