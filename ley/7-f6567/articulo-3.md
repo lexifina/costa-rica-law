@@ -1,0 +1,2 @@
+Art 3° Los billetes que se emitan en virtud de esta ley, gozarán del interés de uno por ciento mensual, desde el día en que los reciba la empresa del Ferrocarril, y serán amortizados con dinero efectivo, por sesta partes, en los días últimos de los meses de julio hasta diciembre del corriente año, por medio de sorteos.
+Único: El Gobierno puede llamar al pago de los mismos billetes en el todo, o en parte por la suerte aun antes del vencimiento de los plazos señalados.
