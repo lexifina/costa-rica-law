@@ -14,3 +14,4 @@ Crea Premio Nacional de Teatro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-15 | la propia norma |
+| 2 | 1997-03-05 | Decreto Ejecutivo 25914 (1997-03-05) |
