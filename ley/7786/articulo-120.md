@@ -1,0 +1,4 @@
+SECCIÓN V
+Unidad de Programas de Inteligencia
+Artículo 120.—La Unidad de Programas de Inteligencia se encargará de la coordinación de acciones en contra del tráfico ilícito de drogas, con las dependencias policiales, nacionales e internacionales. Proveerá información táctica y estratégica a los distintos cuerpos e instituciones involucrados en la lucha contra las drogas, con la finalidad de permitirles el logro de su propósito y recomendarles acciones y políticas. Asimismo, realizará la recolección y el análisis de la información relacionada con esta materia y los recopilará en una base de datos absolutamente confidencial, para el uso exclusivo de las policías y autoridades judiciales; también deberá conformar comisiones de asesores técnicos especializados en el campo de la investigación de los delitos contenidos en esta Ley.
+La estructura técnica y administrativa de la Unidad de Programas de Inteligencia se dispondrá reglamentariamente.

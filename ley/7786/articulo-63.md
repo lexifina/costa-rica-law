@@ -1,5 +1,1 @@
-ARTÍCULO 63.- Será sancionado con pena de prisión de cuatro a ocho
-años quien intimide o disuada, por cualquier medio, a otra persona para
-evitar la denuncia, el testimonio, la investigación, la promoción y el
-ejercicio de la acción penal o el juzgamiento de las actividades
-delictivas descritas en esta ley.
+Artículo 63.—Se impondrá pena de prisión de tres a ocho años e inhabilitación para el ejercicio de las funciones públicas hasta por cinco años, al servidor público o a los sujetos privados que laboran en el mercado bursátil y que, teniendo bajo su custodia información confidencial relacionada con narcotráfico o con investigaciones relativas a la legitimación de capitales, autorice o lleve a cabo la destrucción o desaparición de esta información, sin cumplir los requisitos legales.

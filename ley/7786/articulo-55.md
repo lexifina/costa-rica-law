@@ -1,3 +1,1 @@
-ARTÍCULO 55.- Asimismo, deberá informarse, a las autoridades
-competentes, de las pérdidas o desapariciones irregulares o excesivas de
-sustancias, máquinas y accesorios que se encuentren bajo su control.
+Artículo 55.—Los artículos precedentes de este capítulo se aplicarán también en los casos de tránsito aduanero y transbordo, en los cuales los funcionarios del Servicio Nacional de Aduanas del Ministerio de Hacienda, como responsables del control de estas transacciones, también estarán en la obligación de informar, a la unidad especializada del Instituto Costarricense sobre Drogas, sobre cualquier situación irregular detectada.

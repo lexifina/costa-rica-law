@@ -1,0 +1,1 @@
+Artículo 134.—El auditor solo podrá ser suspendido o destituido de su cargo por justa causa y por decisión emanada del Consejo Directivo, con observancia del debido proceso. Para la destitución se requerirá el mismo número de votos necesario para nombrarlo, de conformidad con lo dispuesto por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 158.—Serán deducibles del cálculo del impuesto sobre la renta, las donaciones de personas, físicas o jurídicas, en beneficio de los planes y programas que autorice el Instituto Costarricense sobre Drogas para la represión de los delitos y el consumo ilícito de las sustancias de uso no autorizado.

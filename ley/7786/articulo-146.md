@@ -1,0 +1,1 @@
+Artículo 146.—El Poder Ejecutivo suplirá las necesidades presupuestarias del Instituto; para dicho efecto, este último le presentará, en mayo de cada año, un anteproyecto de presupuesto para el ejercicio fiscal siguiente, en el cual se le garanticen los recursos necesarios para un eficiente servicio.

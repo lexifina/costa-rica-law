@@ -1,1 +1,2 @@
-ARTÍCULO 111.- Derógase la ley No. 7093 y la No. 7233.
+Artículo 111.—Para ser nombrados, el director general y el director general adjunto deberán ser mayores de edad, costarricenses, de reconocida solvencia moral, poseer el grado académico de licenciados y experiencia amplia y probada en el campo relacionado con las drogas.
+El Consejo Directivo designará una comisión especial, la cual analizará los atestados de los oferentes que opten por el puesto y elevará su recomendación al Consejo Directivo.

@@ -1,7 +1,4 @@
-CAPÍTULO XXI
-CONTRAVENCIONES
-ARTÍCULO 79.- Se impondrá pena de sesenta a ciento veinte días multa
-a quien, en los sitios públicos o de acceso público, consuma o utilice
-drogas de uso no autorizado. Cuando se trate de menores de edad, las
-autoridades los pondrán de inmediato a la orden del juez penal juvenil
-para lo que corresponda.
+CAPÍTULO II
+Medida de Seguridad
+Artículo 79.—Se promoverá y facilitará el internamiento o el tratamiento ambulatorio voluntario y gratuito con fines exclusivamente terapéuticos y de rehabilitación en un centro de salud público o privado, de quien, en las vías públicas o de acceso público, consuma o utilice drogas de uso no autorizado; esta disposición tiene el propósito de desintoxicar al adicto o eliminarle la adicción. Cuando se trate de personas menores de edad, las autoridades estarán obligadas a comunicar dicha situación al PANI, para que gestione las medidas de protección necesarias, conforme al Código de la Niñez y la Adolescencia y al artículo 3º de esta Ley.
+Si se trata de personas menores de edad consumidoras de drogas de uso no autorizado en un sitio privado, el PANI, de oficio o a petición de parte, deberá intervenir y gestionar la medida de protección necesaria, conforme a las facultades otorgadas en el Código de la Niñez y la Adolescencia.

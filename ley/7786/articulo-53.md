@@ -1,9 +1,1 @@
-CAPÍTULO XVII
-INFORMES
-ARTÍCULO 53.- Quienes se dediquen a alguna de las actividades
-señaladas en el artículo 39 deberán informar, de inmediato a las
-autoridades competentes, de las transacciones efectuadas o propuestas de
-que ellos sean parte cuando tengan motivos razonables para considerar que
-aquellas sustancias, máquinas y accesorios podrían utilizarse en la
-producción, fabricación, extracción o preparación ilícita de
-estupefacientes, sustancias psicotrópicas u otras de efectos semejantes.
+Artículo 53.—El informe referido en el artículo 50 de esta Ley deberá contener toda la información disponible y deberá ser proporcionado a la unidad especializada del Instituto Costarricense sobre Drogas, tan pronto como se conozcan las circunstancias que justifican la sospecha, por el medio más rápido y con la mayor antelación posible a la finalización de la transacción.

@@ -1,9 +1,1 @@
-ARTÍCULO 27.- Cuando la comunicación citada en el artículo anterior
-se efectúe de buena fe, las instituciones sometidas a las regulaciones
-establecidas en este capítulo, sus empleados, funcionarios directores,
-propietarios u otros representantes autorizados por la legislación,
-estarán exentos de responsabilidad penal, civil o administrativa, según
-corresponda, por incumplir este artículo o revelar información cuya
-restricción esté establecida por contrato o información emanada de
-cualquier otra disposición legislativa, reglamentaria o administrativa,
-cualquiera sea el resultado de la comunicación.
+Artículo 27.—Las instituciones financieras deberán designar a los funcionarios encargados de vigilar el cumplimiento de los programas y procedimientos internos, incluso el mantenimiento de registros adecuados y la comunicación de transacciones sospechosas. Estos funcionarios servirán de enlace con las autoridades competentes. La gerencia general o la administración de la institución financiera respectiva, proporcionará los canales de comunicación adecuados para facilitar que dichos funcionarios cumplan su labor; además, supervisará el trabajo de los encargados de desempeñarla.

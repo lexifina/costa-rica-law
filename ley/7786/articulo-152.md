@@ -1,0 +1,1 @@
+Artículo 152.—Para el manejo de los ingresos que se obtengan por la aplicación de esta Ley, el Instituto Costarricense sobre Drogas abrirá, en cualquiera de los bancos del Estado, dos cuentas: una general y otra especial para gastos confidenciales.

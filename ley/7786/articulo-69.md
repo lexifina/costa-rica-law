@@ -1,9 +1,4 @@
-ARTÍCULO 69.- Se impondrá pena de prisión de tres a ocho años a
-quien, directamente o por persona interpuesta, influya en un servidor
-público o autoridad pública, prevaliéndose del ejercicio de las facultades
-de su cargo o de cualquier otra situación derivada de su relación personal
-o jerárquica con él u otro funcionario o autoridad pública, real o
-simulada, para obtener licencias, permisos o gestiones administrativas que
-faciliten la comisión de los delitos establecidos en esta ley, a fin de
-lograr directa o indirectamente por ello un beneficio económico o ventaja
-indebida para sí o para otro.
+Artículo 69.—Será sancionado con pena de prisión de ocho a veinte años:
+a) Quien adquiera, convierta o transmita bienes de interés económico, sabiendo que estos se originan en un delito grave, o realice cualquier otro acto para ocultar o encubrir el origen ilícito o para ayudar, a la persona que haya participado en las infracciones, a eludir las consecuencias legales de sus actos.
+b) Quien oculte o encubra la verdadera naturaleza, el origen, la ubicación, el destino, el movimiento o los derechos sobre los bienes o la propiedad de estos, a sabiendas de que proceden, directa o indirectamente, de un delito grave.
+La pena será de diez a veinte años de prisión cuando los bienes de interés económico se originen en alguno de los delitos relacionados con el tráfico ilícito de estupefacientes, sustancias psicotrópicas, legitimación de capitales, desvío de precursores o sustancias químicas esenciales y delitos conexos

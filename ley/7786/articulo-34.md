@@ -1,4 +1,1 @@
-ARTÍCULO 34.- Las disposiciones legales referentes al secreto
-bancario o tributario no constituirán impedimento para cumplir las
-disposiciones del presente capítulo, cuando el tribunal encargado de la
-investigación de los delitos tipificados en esta ley solicite información.
+Artículo 34.—Los jueces también podrán ordenar que les sean entregados la documentación o los elementos de prueba que tengan en su poder las instituciones indicadas en los artículos 14 y 15 de esta Ley, cuando se requieran para una investigación. La resolución que acuerde lo anterior deberá fundamentar, debidamente, la necesidad del informe o el aporte del elemento probatorio.

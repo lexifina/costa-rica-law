@@ -1,7 +1,1 @@
-ARTÍCULO 32.- El Centro de Inteligencia Conjunto Antidrogas y los
-órganos dotados de potestades de fiscalización y supervisión sobre las
-instituciones sometidas a lo dispuesto en este capítulo, podrán prestar
-una estrecha cooperación con las autoridades competentes de otros Estados,
-en las investigaciones, los procesos y las actuaciones referentes a los
-delitos establecidos en esta ley o delitos conexos, y en las infracciones
-de las leyes o los reglamentos administrativos financieros.
+Artículo 32.—Las disposiciones legales referentes a la información bancaria, bursátil o tributaria, no constituirán impedimento para cumplir lo estipulado en la presente Ley, cuando las autoridades judiciales o administrativas encargadas de las investigaciones de los delitos tipificados en esta Ley soliciten información.

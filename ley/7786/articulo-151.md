@@ -1,0 +1,1 @@
+Artículo 151.—Autorízase al Instituto Costarricense sobre Drogas para que destine como máximo un veinte por ciento (20%) de sus recursos financieros a gastos confidenciales, en atención a la naturaleza de sus funciones en el área represiva.

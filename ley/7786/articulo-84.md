@@ -1,14 +1,2 @@
-ARTÍCULO 84.- Si en sentencia firme se ordenare el comiso, a favor
-del Centro Nacional de Prevención contra Drogas, de los bienes muebles e
-inmuebles, así como de los valores o el dinero en efectivo mencionados en
-los artículos anteriores, el Centro podrá conservarlos para el
-cumplimiento de sus objetivos, donarlos a entidades de interés público,
-prioritariamente a organismos cuyo fin sea la prevención o represión de
-las drogas o subastarlos.
-Cuando se trate de dinero en efectivo, valores o el producto de
-bienes subastados, el Centro Nacional de Prevención contra Drogas deberá
-destinar un cuarenta y cinco por ciento (45%) al cumplimiento de sus
-funciones, y otro cuarenta y cinco por ciento (45%) al Centro de
-Inteligencia Conjunto Antidrogas.
-Un diez por ciento (10%) de este monto se destinará al aseguramiento
-y mantenimiento de los bienes comisados.
+Artículo 84.—De ordenarse cualquiera de las medidas mencionadas en el artículo anterior, los bienes deberán ponerse en depósito judicial, en forma inmediata y exclusiva, a la orden del Instituto Costarricense sobre Drogas. Previo aseguramiento por el valor del bien, para garantizar un posible resarcimiento por deterioro o destrucción, el Instituto Costarricense sobre Drogas deberá destinar estos bienes, inmediatamente y en forma exclusiva, al cumplimiento de los fines descritos en la presente Ley, salvo casos muy calificados aprobados por el Consejo Directivo; asimismo, podrá administrarlos o entregarlos en fideicomiso a un banco estatal, según convenga a sus intereses. Si se trata de bienes inscritos en el Registro Nacional, la autoridad que conozca de la causa ordenará de inmediato la anotación respectiva y la comunicará al Instituto Costarricense sobre Drogas. Los beneficios de la administración o del fideicomiso se utilizarán para la consecución de los fines del Instituto.
+En caso de no ser posible proceder según el párrafo segundo del artículo 90 de esta Ley, el Instituto deberá publicar un aviso en el diario oficial, en el que se indicarán los objetos, las mercancías y los demás bienes en su poder. Vencido el término establecido en el artículo anterior sin que los interesados promuevan la acción correspondiente, siempre y cuando exista una resolución judicial, los bienes y objetos de valores decomisados pasarán, en forma definitiva, a propiedad del Instituto y deberán utilizarse para los fines establecidos en esta Ley.

@@ -1,0 +1,1 @@
+Artículo 161.—Los funcionarios del Instituto Costarricense sobre Drogas tendrán prohibición absoluta para desempeñar otras labores remuneradas en forma liberal; en compensación, serán remunerados de conformidad con lo dispuesto en la Ley Nº 5867 y sus reformas.
