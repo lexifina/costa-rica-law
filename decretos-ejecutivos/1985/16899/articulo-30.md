@@ -1,0 +1,1 @@
+Artículo 30.-Las autoridades del Registro, podrán solicitar el auxilio de la Fuerza Pública y de las otras autoridades administrativas, para llevar a cabo las actuaciones inherentes a su cargo para las cuales hayan sido especial. mente comisionados.

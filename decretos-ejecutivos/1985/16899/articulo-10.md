@@ -1,0 +1,12 @@
+CAPITULO IV
+Nombre del producto y/o especie animal y función para la que se destina
+Artículo 10.-La marca o nombres de los productos deben ser apropiados para el uso garantizado del producto y no deben ser engañosos:
+a) Si el nombre indica que el alimento es hecho para un uso específico y se expende como un alimento balanceado, las características del alimento deben estar de conformidad con ese uso, estableciéndose como requerimientos nutritivos de las di tintas especies animales, los requerimientos mínimos establecidos por la última edición anual del Consejo Nacional de Investigación de los Estados Unidos de América (NRC).
+b) El nombre de marcas o nombres comerciales registrados no se deben usar en la lista de materias primas de la etiqueta. En el listado de ingredientes de la etiqueta deberán usarse únicamente los nombres genéticos de las materias primas.
+c) El nombre de un alimento para animales no se debe derivar de una o más materias primas o una combinación de los nombres de éstas, omitiendo otras materias primas que componen el alimento para animales.
+d) La palabra proteína no se puede usar en el nombre comercial de un producto cuando éste contiene agregados de nitrógeno no proteico.
+e) Las materias primas que se distribuyen con fines comerciales deben llevar nombres oficiales definidos por el Registro.
+f) La palabra "vitamina" o cualquier otra palabra que sugiera vitaminas, se puede usar en el nombre de un alimento para animales cuando éste ha sido formulado como un suplemento vitamínico y debe ser etiquetado con el contenido mínimo de cada vitamina declarada, de acuerdo con el artículo 11, incisos f), g) y h) de este Reglamento.
+g) El término "mineralizado" no se puede usar en el nombre de un producto, excepto para sales minerales que contienen minerales trazas.
+Cuando esto sucede, el producto debe estar etiquetado con el contenido de cada mineral traza, de acuerdo con lo especificado en el artículo 11, incisos .c) y d) de este Reglamento.
+h) Queda prohibida toda propaganda que atribuya propiedades terapéuticas no demostradas a los alimentos para animales entendiéndose por éstas aquellas curativas, preventivas y mitigantes de enfermedades, además aquellas otras sustancias promotoras de crecimiento y de eficiencia alimenticia que no estén demostradas científicamente y que puedan inducir a error o engaño al público en cuanto a la naturaleza, calidad, propiedades u origen de los mismos.

@@ -1,0 +1,1 @@
+Artículo 44.-Cuando se trate de errores de formulación de los alimentos, las autoridades del Ministerio podrán permitir a los interesados proceder a la reformulación del alimento con el objeto de que se ajusten .a la garantía estipulada en la etiqueta.

@@ -1,0 +1,1 @@
+Artículo 25.-El Ministerio delegará en funcionarios del Registro, para el mejor servicio y aplicación de las disposiciones de la ley y sus reglamentos, atribuciones específicas o pertinentes a su cargo.

@@ -1,0 +1,1 @@
+Artículo 27.-Las autoridades del Ministerio dentro de las atribuciones que le confiere la ley y su reglamento podrán dictar resoluciones o circulares ordenando medidas de carácter general, según corresponda, para la mejor aplicación y cumplimiento.

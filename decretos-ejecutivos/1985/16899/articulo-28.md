@@ -1,0 +1,1 @@
+Artículo 28.-Podrán asimismo, dentro de las atribuciones mencionadas, ordenar y tomar las medidas precautorias que la ley faculta con el fin de evitar riesgos potenciales que pudieren generar daños a la salud animal y humana.

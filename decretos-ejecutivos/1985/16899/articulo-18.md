@@ -1,0 +1,10 @@
+Artículo 18.-Para los propósitos del artículo 5°, inciso b), de la ley se considera contaminado, un alimento para animales, cuando:
+a) El contenido de flúor de cualquier mineral o mezcla que se va a usar directamente para la alimentación de animales excede en 0,30% para bovinos, 0,35'% para ovejas, 0,45% para porcinos, 0,60% para aves y más de 0,50% para cualquier otra especie animal.
+b) Las materias primas que contengan flúor y al agregarse eleven el contenido de flúor del alimento para animales a más de 0,009% en bovinos, 0,01 % para ovejas, 0,14% para cerdos, 0,035% para aves y 0,016% para cualquier otra especie animal.
+c) Las materias primas de origen vegetal o animal que hayan sido extraídas con solventes clorinados o cualquier otro solvente que deje residuos en nivele.3 tóxicos para el animal y el hombre.
+d) Una materia prima o alimento para animales están constituidos por materiales de origen vegetal o animal que se sabe contiene compuestos tóxicos naturales o inhibidores nutricionales y éstos no hayan sido destruidos por un tratamiento especial, según la especie animal a que se destine, tales como las leguminosas, oleaginosas, yuca, malanga, pejibaye, que requieren un tratamiento térmico para su uso.
+e) Se utiliza pulpa de café en una ración y ésta eleva el contenido de cafeína en la ración por encima de: rumiantes 0,07'%, cerdos 0,02% o aves 0,015%.
+f) Contiene medicamentos, hormonas, aditivos o meta bolito s no autorizados por el correspondiente registro para su uso en la alimentación animal o siendo éstos autorizados sobrepasan la concentraciones permitidas.
+g) Contiene microorganismos patógenos, o sus esporas que indiquen contaminación y baja higiene.
+h) Contiene toxinas producidas por microorganismos a niveles que pueden causar daño al animal o a la salud del hombre que consume sus productos y derivados.
+i) Contiene productos químicos o productos de degradación de éstos, tales como metales pesados y agroquímicos a niveles que pueden causar daño al animal o microorganismos a la salud del hombre que consume sus productos y derivados.

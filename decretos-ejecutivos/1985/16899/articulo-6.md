@@ -1,0 +1,1 @@
+Artículo 6°-Todo alimento para animales y/o materia prima importado deberá etiquetarse en el idioma español, de acuerdo con lo establecido en los artículos 7°, 8°, 9°, 10, 11, 12, 13, 14 y 16 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 26.-Las autoridades mencionadas, podrán delegar en funcionarios de su dependencia, para el mejor servicio y aplicación de las disposiciones de la ley y su reglamento, atribuciones específicas o pertinentes a su cargo.
