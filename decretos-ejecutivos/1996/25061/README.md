@@ -14,3 +14,4 @@ Reforma Reglamento Importación de Precursores, Sustancias o Productos Químicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-22 | la propia norma |
+| 2 | 1996-04-22 | SINALEVI (sin norma nombrada) |

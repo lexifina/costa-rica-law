@@ -19,7 +19,4 @@ Artículo 1º.- Adiciónese el artículo 2 del Decreto Ejecutivo Nº 19032-S del
 50) Isosafrol
 51) Piperonal
 52) Acido lisérgico
-53) Las sales de las sustancias enlistadas en este artículo, siempre
-que la existencia de dichas sales sea posible, exceptuando las sales
-de los ácidos acético, clorhídrico y sulfúrico, a menos que estén
-expresamente incluidas en el listado."
+53) Las sales de las sustancias enlistadas en este artículo, siempre que la existencia de dichas sales sea posible, exceptuando las sales de los ácidos acético, clorhídrico y sulfúrico, a menos que estén expresamente incluidas en el listado."
