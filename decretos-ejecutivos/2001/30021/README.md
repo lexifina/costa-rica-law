@@ -14,3 +14,4 @@ Reglamento a la ley Nº 8147 de Creación de Fideicomiso para la Protección y e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-11 | la propia norma |
+| 2 | 2002-01-24 | Decreto Ejecutivo 30141 (2002-01-24) |

@@ -14,5 +14,5 @@ Crédito: Se define como tal los recursos que destine el Fideicomiso previa soli
 Deuda: Obligación económica o compromiso económico que establece el deudor–beneficiario con el banco originalmente y posteriormente con el Fideicomiso.
 Readecuación: Cambio en las condiciones originales de la operación, incluye ampliación de plazo, cambio en la forma de pago, cambio en la tasa de interés.
 Dirección Ejecutiva: Dirección Ejecutiva del Fideicomiso, cuya función y responsabilidad principal es la de coordinar la administración del Fideicomiso, estará a cargo de un Director Ejecutivo nombrado por el Comité del Fideicomiso.
-CAPÍTULO II
-De los recursos del fideicomiso
+Para efectos de aplicación del presente reglamento se tendrá para todos los efectos que lo agrícola o agropecuario comprende la pesca.
+(Así adicionado su parrafo último por el artículo 1 del Decreto Ejecutivo N° 30141 de 24 de nero del 2002)
