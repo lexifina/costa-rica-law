@@ -1,2 +1,3 @@
-Artículo 30.-Si el impuesto adeudado fuere mayor que el que resulte de la declaración, el saldo adeudado se cobrará con multa del 2% mensual o fracción de mes.
-(Así reformado por el artículo único de la ley N° 516 del 3 de mayo de 1949)
+Artículo 30.-Si el impuesto adeudado fuere mayor que el que resulte de la declaración, el saldo adeudado se cobrará con recargo del uno por ciento (1%) por mes o fracción de mes a partir del tercer mes que se contará desde la fecha en que la' Tributación establezca ese saldo y lo avise al interesado por carta certificada. Ese recargo en ningún caso podrá ser mayor del veinticuatro por ciento (24%) del total del impuesto a pagar.
+En casos muy calificados el Director General de la Tributación Directa podrá eximir a los contribuyentes del pago de los recargos establecidos en el artículo anterior y en éste.
+(Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
