@@ -15,3 +15,4 @@ Exime de la fiscalizacion de la Superintendencia General de Entidades Financiera
 | --- | --- | --- |
 | 1 | 1999-09-14 | la propia norma |
 | 2 | 2002-12-19 | Resolución 0 (2002-12-19) |
+| 3 | 2004-03-26 | Resolución 0 (2004-03-26) |
