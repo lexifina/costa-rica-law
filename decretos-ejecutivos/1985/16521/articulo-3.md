@@ -1,0 +1,1 @@
+Artículo 3°-Instar a las instituciones de gobierno a colaborar con el Ministerio de Planificación Nacional y Política Económica, cuando sea requerida su participación en el cumplimiento de los decretos citados.

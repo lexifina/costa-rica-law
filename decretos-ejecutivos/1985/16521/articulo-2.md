@@ -1,0 +1,1 @@
+Artículo 2°-Se faculta al Ministerio de Planificación Nacional y Política Económica para establecer conjuntamente con el Ministerio de Hacienda un orden prioritario de aplicación de los decretos antes mencionados en las instituciones de gobierno.
