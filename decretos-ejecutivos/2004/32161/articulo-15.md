@@ -1,0 +1,1 @@
+Artículo 15.—Las autoridades de salud del Ministerio (niveles central, regional y local), deberán velar por que la información derivada de los permisos sanitarios de funcionamiento, habilitación, acreditación, autorización o renovación, otorgados en sus áreas de atracción, ingresen a la base de datos implementada al efecto.

@@ -1,0 +1,1 @@
+Artículo 2º—Las Áreas Rectoras de Salud deberán contar con un sistema de información que contemple una base de datos relacionados con las solicitudes para el otorgamiento de permisos de funcionamiento, habilitación, acreditación, autorización o renovación que gestionen los administrados.

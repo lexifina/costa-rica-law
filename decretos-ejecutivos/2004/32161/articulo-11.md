@@ -1,0 +1,1 @@
+Artículo 11.—Por sí solo el pago del servicio, no es razón suficiente para el otorgamiento de los permisos sanitarios, autorizaciones, habilitaciones, acreditaciones, o renovaciones. El establecimiento debe cumplir con los requisitos físicos sanitarios requeridos para cada caso en particular, según la normativa vigente.

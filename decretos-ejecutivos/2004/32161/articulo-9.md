@@ -1,0 +1,1 @@
+Artículo 9º—Los administrados quedan sujetos al cumplimiento de las órdenes generales y particulares que dicten las autoridades de salud, con motivo de las solicitudes de permisos sanitarios, autorizaciones, habilitaciones, acreditaciones, renovaciones, que presenten.

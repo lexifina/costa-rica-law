@@ -1,0 +1,1 @@
+Artículo 3º—Las bases de datos de las Áreas Rectoras de Salud y de las Regiones de Salud, deberán alimentar el sistema de información del nivel central, el cual estará a cargo de la Dirección de Informática del Ministerio de Salud.

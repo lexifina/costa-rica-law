@@ -1,0 +1,1 @@
+Artículo 6º—Para efectos de control financiero del Ministerio, las bases de datos deberán contener un renglón para que se incluya información sobre el depósito del pago del servicio, a fin de que permita a cada nivel de gestión determinar los ingresos por ese concepto.
