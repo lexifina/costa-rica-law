@@ -6,3 +6,7 @@ c) En los casos en que se conozca y confirme por parte de las autoridades munici
 d) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en el inmuebles o inmuebles en que explota la licencia que están expresamente prohibidas de acuerdo a las normas jurídicas vigentes en el ordenamiento jurídico nacional.
 e) En los casos en que se conozca y confirme por parte de las autoridades municipales que el patentado está desarrollando actividades lucrativas en el inmuebles o inmuebles en que explota la licencia que están expresamente restringidas de acuerdo a las normas jurídicas vigentes en el ordenamiento jurídico nacional y en los casos en que se demuestre que no las realiza en las condiciones de la restricción impuesta.
 f) En los casos que establece el artículo 29 de la ley de Planificación Urbana.
+g) En los casos de que no exista o no se exhiba el certificado de la tenencia de la licencia municipal.
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
+h) En los casos de que se declare un acto de suspensión de patente según lo que se indica en el artículo siguiente.
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)

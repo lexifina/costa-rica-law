@@ -1,7 +1,8 @@
 CAPITULO IV
 Del procedimiento general para el tramite de otorgamiento de patentes municipales
 Articulo 23.—Solicitud de patente Municipal. Para el otorgamiento de patentes municipales para el ejercicio de actividades dentro del cantón de Pérez Zeledón se requiere, que al menos treinta días hábiles previos al inicio de operaciones de la actividad, el interesado cumpla con la presentación de lo siguiente:
-Deberá presentarse un escrito de solicitud dirigido al Departamento de Rentas y Cobranzas de esta Municipalidad. Esta solicitud deberá venir firmada por el representante judicial y extrajudicial de la Persona Jurídica o por la persona física que ejercerá la actividad. Este escrito deberá contener los siguientes requisitos, bajo pena de rechazo ad portas por falta de requisitos formales:
+Deberá presentarse un escrito de solicitud dirigido al Departamento de Subproceso de Licencias y Patentes de esta Municipalidad. Esta solicitud deberá venir firmada por el representante judicial y extrajudicial de la Persona Jurídica o por la persona física que ejercerá la actividad. Este escrito deberá contener los siguientes requisitos, bajo pena de rechazo ad portas por falta de requisitos formales:
+(Así reformado parcialmente mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
 a) Solicitud expresa y detallada del tipo de patente que solicita según se trate de la actividad que desea desarrollar y, en cada caso, si requiere además de patente para la venta de licores.
 b) Fecha a partir de la cual se realizará la actividad.
 c) Descripción sucinta de personal, horarios y procedimientos de los diferentes actos por realizar.

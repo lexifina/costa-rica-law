@@ -54,3 +54,33 @@ Categoría | Puntaje | Número Empleado | Ubicación | Inv. Inicial en colones
 10 | 10 | Hasta 2 | No aplica | Hasta 500 mil
 Una vez determinado el puntaje obtenido por la actividad se procederá a evaluar el monto resultante basado en la tabla de tarifas genéricas del artículo 15 de la Ley de Patentes. Si se confirma que el monto obtenido es excesivo en comparación al cancelado por otras actividades similares ubicadas en la misma zona; el monto calculado podrá ser revaluado, con la finalidad de cumplir con el principio de la justicia tributaria.
 (Así ampliado por el artículo 27 de la sesión ordinaria N° 3, celebrada el 2 de mayo del 2002)
+TABLA DE PORCENTAJES PARA LA DETERMINACIÓN
+DE IMPUESTOS DE PATENTES
+Empleados | Valoración Ubicación
+Inventario Categoría | Puntaje | 30% | 30% | 40%
+1 | 91 –100 | 30 | 30 | 40
+2 | 81 – 90 | 27 | 27 | 36
+3 | 71 – 80 | 24 | 24 | 32
+4 | 61 – 70 | 21 | 21 | 28
+5 | 51 – 60 | 18 | 18 | 24
+6 | 41 – 50 | 15 | 15 | 20
+7 | 34 – 40 | 12 | 12 | 16
+8 | 27 – 33 | 9 | 12 | 12
+9 | 20 – 26 | 6 | 12 | 8
+10 | 0 – 19 | 3 | 12 | 4
+TABLA DE MONTOS PARA LA DETERMINACIÓN
+DEL IMPUESTO DE VENTAS
+Categoría | Puntaje | Monto trimestral tasado
+1 | 91 –100 | 125.000,00
+2 | 81 – 90 | 100.000,00
+3 | 71 – 80 | 75.000,00
+4 | 61 – 70 | 50.000,00
+5 | 51 – 60 | 40.000,00
+6 | 41 – 50 | 30.000,00
+7 | 34 – 40 | 20.000,00
+8 | 27 – 33 | 15.000,00
+9 | 20 – 26 | 8.000,00
+10 | 0 – 19 | 5.000,00
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
+En ningún caso, el cobro trimestral del impuesto de patentes de una licencia, sea nueva o no, podrá ser menor a la tarifa mínima que corresponderá a un 5% (cinco por ciento) de un salario base.
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)

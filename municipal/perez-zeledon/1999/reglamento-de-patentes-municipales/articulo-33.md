@@ -1,5 +1,6 @@
 Artículo 33.—Renuncia al derecho de patente. Cuando el patentado no quiera o no pueda seguir disfrutando del derecho que se le otorgó para la explotación de la patente podrá renunciar a su derecho, cumpliendo con los siguientes requisitos:
-a) Llenar la solicitud que para tal efecto la Unidad de Rentas y Cobranzas proporcionará. Si esta solicitud es autenticada por un abogado, la Sección de Patentes Municipales podrá desactivar de oficio la licencia. Caso contrario (documento no autenticado), se deberá confirmar la renuncia mediante la firma del interesado en el documento de la Municipalidad.
+a) Llenar la solicitud que para tal efecto la Subproceso de Licencias y Patentes proporcionará. Si esta solicitud es autenticada por un abogado, la Sección de Patentes Municipales podrá desactivar de oficio la licencia. Caso contrario (documento no autenticado), se deberá confirmar la renuncia mediante la firma del interesado en el documento de la Municipalidad.
+(Así reformado parcialmente mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
 b) Demostrar la legitimación que se posee (copia cédula de identidad, certificaciones de representación de sociedades, poderes especiales o generalísimos, y otros similares).
 c) Presentar el certificado de la licencia que se posee.
 d) Deberán encontrarse al día en el pago de los impuestos.

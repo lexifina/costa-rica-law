@@ -1,5 +1,6 @@
 Artículo 32.—Cesión del derecho de patente. El patentado podrá ceder el derecho que le fue otorgado mediante licencia municipal a cualquier otra persona física o jurídica siempre y cuando cumpla con los siguientes requisitos:
-a) Llenar la solicitud que para tal efecto la Unidad de Rentas y Cobranzas proporcionara. Si esta solicitud es autenticada por un abogado, al momento de confirmar el traspaso en las oficinas municipales, se podrá obviar la firma de la persona que cede la licencia. Caso contrario (documento no autenticado), se deberá confirmar el traspaso mediante la firma de las partes en el documento de la Municipalidad.
+a) Llenar la solicitud que para tal efecto la Subproceso de Licencias y Patentes proporcionara. Si esta solicitud es autenticada por un abogado, al momento de confirmar el traspaso en las oficinas municipales, se podrá obviar la firma de la persona que cede la licencia. Caso contrario (documento no autenticado), se deberá confirmar el traspaso mediante la firma de las partes en el documento de la Municipalidad.
+(Así reformado parcialmente mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
 b) Demostrar la legitimación que se posee (copia cédula de identidad, certificaciones de representación de sociedades, poderes especiales o generalísimos, y otros similares).
 c) Presentar el certificado de la licencia que se posee.
 d) Las partes interesados deberán estar al día en el pago de los impuestos.

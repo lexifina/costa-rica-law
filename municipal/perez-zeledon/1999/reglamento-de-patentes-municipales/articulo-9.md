@@ -9,6 +9,8 @@ vi. Si fuere necesario el contrato de arrendamiento o el título de propiedad de
 vii.Los demás requisitos para el pago del Impuesto de Espectáculos Públicos que establecerá el Reglamento que para este fin elabore la Municipalidad.
 viii. Autorización del ACAM para el uso de los derechos de autores.
 (Así ampliado por el artículo 14 de la sesión ordinaria N° 3, celebrada el 2 de mayo del 2002)
+ix) Presentar el Permiso de la Comisión de Concentraciones Masivas.
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
 b) (Derogado por artículo 15 de la sesión ordinaria N° 3, celebrada el 2 de mayo del 2002)
 c) Cuando se tratare de licencias para expender licores, de acuerdo a las categorías que describe el artículo 2 de la Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas, las solicitudes deberán ser acompañadas de:
 i. Una declaración jurada de que no se encuentra en los supuestos de prohibición del artículo 19 de la Ley de Regulación de Horarios de Funcionamiento en Expendios de Bebidas Alcohólicas
@@ -37,3 +39,11 @@ q) Para la instalación de casinos se deberá, adicionalmente, aportar el dato d
 r) En la instalación de clínicas de salud, hospitales, así como los parques industriales se deberá presentar a la Municipalidad una "carta compromiso" con la institución en cuanto al manejo adecuado de los desechos, sean éstos basura orgánica o no, líquidos, aguas sucias y otros.
 s) En caso de ser una licencia para servicios profesionales, deberán presentarse copia de los títulos que los acredita ejercer la profesión, así como copia de la incorporación al Colegio Profesional respectivo.
 (Así ampliado por los artículos 19, 20, 21, 22 y 23 de la sesión ordinaria N° 3, celebrada el 2 de mayo del 2002)
+t) Para las revalidación bienal de los certificados de las licencias de licores, el administrado deberá presentar:
+1. Solicitud por escrito del trámite de revalidación.
+2. Original y copia del permiso de funcionamiento de la actividad.
+3. Certificado original vencido de la licencia de licores. De no poderse presentar tal certificado el administrado deberá indicarlo mediante una declaración jurada autenticada por un abogado.
+4. Original y copia del recibo de pago de la cerveza, extendido por las Juntas de Educación.
+5. Timbre de ¢20 Fiscales, ¢5 Archivo.
+6. Estar al día con el pago de los impuestos municipales
+(Así ampliado mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)

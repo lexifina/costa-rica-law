@@ -1,4 +1,5 @@
-Artículo 24.—La resolución administrativa. La Unidad de Rentas y Cobranzas de la Municipalidad resolverá en el término concedido por el artículo ochenta del Código Municipal, en concordancia con el artículo 6º de la Ley Nº 8220.
+Artículo 24.—La resolución administrativa. El Subproceso de Licencias y Patentes de la Municipalidad resolverá en el término concedido por el artículo ochenta del Código Municipal, en concordancia con el artículo 6º de la Ley Nº 8220.
+(Así reformado parcialmente mediante sesión ordinaria N° 117, celebrada el 27 de julio de 2004.)
 La resolución que concede o deniega la patente municipal deberá contener al menos los siguientes elementos, bajo sanción de invalidez:
 a) Un Encabezado: en que constará: la Unidad o Departamento de esta Municipalidad de que emana la resolución, el número de oficio o de resolución correspondiente, el nombre y las calidades del funcionario que resuelve, la hora, fecha y lugar en que se resuelve.
 b) Unos Resultandos: en los que se describirá, uno a uno, de manera estrictamente cronológica, los procedimientos realizados por las partes, las instituciones intervinientes en el proceso y las gestione internas realizadas por la municipalidad para resolver el asunto.
