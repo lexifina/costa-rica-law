@@ -1,0 +1,2 @@
+Artículo 3º—Las guías serán autorizadas mediante la funcionarios indicados en el artículo 1º anterior o para lo cual consignarán su firma o sello de la dependencia. Las guías serán emitidas en tres tantos: el original que lo mantendrá la persona que transporte, una copia para los funcionarios públicos que la autorizan y otra copia para entregar en el lugar de destino de los animales a los encargados del recibo de éstos.
+Los funcionarios policiales verificará que las guías que se porten no contengan tachaduras, borrones ni entrerrenglonaduras.

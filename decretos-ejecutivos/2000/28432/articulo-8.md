@@ -1,0 +1,1 @@
+Artículo 8º—Queda terminantemente prohibido el traslado de animales positivos de enfermedades declaradas de combate particular u oficial obligatorio, salvo que estén debidamente identificados como portadores de tales enfermedades y que su destino final inmediato sea el sacrificio (no para consumo humano). En estos casos también tendrán su paso regulado a través de una subasta.
