@@ -1,0 +1,1 @@
+Artículo 4°-Los beneficios otorgados por este decreto, quedan sujetos a las modificaciones que puedan provenir de llegarse a emitir una ley nacional o un protocolo centroamericano sobre régimen de industrias de ensamblaje.
