@@ -1,0 +1,2 @@
+Artículo 3°-esta ley rige desde su publicación.
+Casa Presidencial.-San José, a los treinta y un días del mes de julio de mil novecientos sesenta y cuatro.
