@@ -20,3 +20,4 @@ Reforma al decreto ejecutivo que establece el monto de dietas a la Junta Naciona
 | 5 | 1998-03-11 | Decreto Ejecutivo 26872 (1998-03-11) |
 | 6 | 1999-03-10 | Decreto Ejecutivo 27761 (1999-03-10) |
 | 7 | 1999-10-01 | Decreto Ejecutivo 28234 (1999-10-01) |
+| 8 | 2000-05-03 | Decreto Ejecutivo 28661 (2000-05-03) |
