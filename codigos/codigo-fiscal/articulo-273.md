@@ -22,7 +22,8 @@ Sin embargo, cuando tal obligación no exceda de cien colones, y en el documento
 (Así reformado el inciso anterior por el artículo único de la ley N° 73 del 30 de agosto de 1924)
 19.-Los certificados, recibos, vales o memorandums de depósitos a plazo pagarán un céntimo por cada diez colones o fracción;
 20.-Los poderes para negocios que excedan de doscientos cincuenta colones, y sus sustituciones, pagarán un colón de timbre; los poderes y sustituciones para negocios de menor cuantía,' y las cartas-poderes, pagarán veinticinco céntimos de timbre;
-21.-Los pasaportes que se expidan para salir de Costa Rica, pagarán timbre por valor de cincuenta céntimos cada uno;
+21.- Los pasaportes que se expidan o visen para salir del país pagarán timbre conforme al detalle siguiente: cada pasaporte que se expida, cinco colones; cada pasaporte que se vise, diez colones, excepto los de peones que hayan ingresado al país en razón de su trabajo, que pagarán un colón de timbre.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 60 del 11 de agosto de 1937)
 22.- Todo aviso, anuncio o edicto-en interés particular-que haya de publicarse en el periódico oficial, pagará diez céntimos de timbre;
 23.-Los documentos de toda acción en sociedades, compañías, empresas o establecimientos mercantiles o de carácter civil, pagarán el timbre de dos céntimos por cada diez colones o fracción que la acción represente;
 24.-Cada patente de establecimientos de comercio y todo arancel o tarifa autorizada que manifiesten las oficinas de Corredores Jurados, los hoteles, las fondas y hosterías; los coches, automóviles, carretones, etc., pagarán veinticinco céntimos de timbre;
