@@ -1,0 +1,3 @@
+Artículo 2º.- Dentro del término de un mes, a partir de la fecha de vigencia de esta ley, el Ministerio de Trabajo y Previsión Social procederá a reorganizar las Comisiones Mixtas de Salarios Mínimos de toda la República.
+Los patronos y trabajadores que deban integrar tales Comisiones, serán electos por sorteo. Para este efecto, el Gobernador de cada provincia enviará al citado Ministerio -en los quince días posteriores a la vigencia de este decreto-, una lista que contenga diez nombre de patronos agricultores o ganaderos de los trabajadores legalmente en funciones.
+Los representantes de los trabajadores serán electos entre los nombres propuestos por las Confederaciones de Trabajadores legalmente en funciones.
