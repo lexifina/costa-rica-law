@@ -1,4 +1,5 @@
-Artículo 21.- Los miembros de la Junta Directiva a que se refieren los incisos 1), 2), 3) y 4) del artículo 15, serán inamovibles mientras estén en el desempeño de sus respectivos cargos. Las personas a que se refieren los incisos 5), 6) y 7) del mismo artículo, serán removidas de sus cargos cuando:
+Artículo 21.- Las personas referidas en los incisos 7), 8), 9) y 10) del artículo 15 podrán ser removidas de sus cargos cuando:
+(Así reformado el párrafo anterior por el artículo 2° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
 a) Dejaren de llenar los requisitos establecidos en el inciso b) del artículo 18, o incurrieren en alguna de las prohibiciones establecidas en los artículos 19 y 30 de esta ley;
 b) Hubieran dejado de concurrir a tres sesiones ordinarias consecutivas por cualquier causa no justificada, se ausentaren de país por más de un mes sin autorización de la Junta, o cuando sobrepasen el permiso concedido por ella, que no podrá exceder de tres meses; c) Fueren responsables por sentencia firme, de la infracción de alguna de las disposiciones contenidas en las leyes, decretos o reglamentos aplicables al consejo;
 d) Fueren responsables por sentencia firme, de actos u operaciones fraudulentas o ilegales;

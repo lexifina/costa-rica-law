@@ -1,2 +1,1 @@
-Artículo 23.- Los miembros de la Junta Directiva, Gerente, Subgerente, Auditor y Subauditor, no podrán participar en actividades político-electorales, salvo la emisión de su voto o las que sean obligatorias por ley.
-Esta prohibición será aplicable a los otros funcionarios y empleados del Consejo con poder de decisión, a partir de su inicio de funciones, según lo determine la Junta Directiva en un plazo no mayor de noventa días.
+Artículo 23.- (Derogado por el artículo 5° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
