@@ -1,0 +1,2 @@
+Artículo 23.- Refórmase el artículo 107 de la Ley de Creación del Sistema Financiero Nacional para la Vivienda, Nº 7052 del 13 de noviembre de 1986, para que diga de la siguiente manera:
+"Artículo 107.- Cada préstamo hipotecario que otorguen las entidades autorizadas podrá contar con un compromiso de garantía hipotecaria emitido por el Banco, denominado garantía F.H.A. (Fomento de Hipotecas Aseguradas)".
