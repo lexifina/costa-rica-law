@@ -1,0 +1,4 @@
+Artículo 3º—Principios. La modalidad de contratación de servicios Instrucción Técnica se regirá por los siguientes principios:
+3.1 Principio de eficiencia: El registro de oferentes de servicios de instrucción Técnica, se conformará con aquellas personas físicas y jurídicas que satisfagan de la mejor forma el interés general y el cumplimiento de los fines del Instituto Nacional de Aprendizaje. En todas las etapas de la contratación, prevalecerá el contenido sobre la forma.
+3.2 Igualdad y libre competencia: Garantiza la igualdad de participación de potenciales oferentes, lo cual implicará la imposibilidad de imponer restricciones de la participación, salvo aquellas que sean técnicamente indispensables.
+3.3 Publicidad: Garantiza la difusión en medios de comunicación colectiva, el libre acceso a los expedientes y a la información complementaria.

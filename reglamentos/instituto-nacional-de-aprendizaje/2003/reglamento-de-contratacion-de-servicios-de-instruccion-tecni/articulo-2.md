@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento tiene por objeto establecer un sistema de contratación directa de servicios de instrucción técnica, con personas físicas y jurídicas previamente inscritas en el Registro de Oferentes de Servicios de Instrucción Técnica.

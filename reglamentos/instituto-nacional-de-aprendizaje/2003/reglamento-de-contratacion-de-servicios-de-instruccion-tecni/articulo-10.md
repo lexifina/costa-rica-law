@@ -1,0 +1,5 @@
+Artículo 10.—De los recursos ordinarios: La impugnación de las resoluciones estará sujeta a las siguientes disposiciones:
+10.1 Contra el acto que resuelve la inscripción de oferentes o instructores, así como el que resuelve la adjudicación del concurso y que pueda afectar los intereses o derechos del oferente de Servicios de Instrucción Técnica. Serán admisibles los recursos ordinarios de revocatoria y de apelación, los cuales se interpondrán ante la unidad que emita el acto, dentro del quinto día hábil siguiente al de la notificación efectuada.
+10.2 El recurso de revocatoria será conocido por la unidad que dicte la resolución, y el de apelación por la Presidencia Ejecutiva del Instituto Nacional de Aprendizaje.
+10.3 Será facultativo usar uno o ambos recursos. Se interponen ambos, se tramitará la apelación una vez declarada sin lugar la revocatoria.
+10.4 La unidad que resuelva en primera instancia dispone de ocho días para conocer el recurso, contados a partir del día siguiente a su presentación, y la Presidencia Ejecutiva resolverá el de apelación, dentro de los ocho días posteriores al recibo del expediente.

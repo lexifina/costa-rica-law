@@ -1,0 +1,2 @@
+Transitorio.—Para ajustar la calificación de los oferentes actualmente inscritos en el Registro, la Administración, de manera oficiosa, procederá a ponderar la calificación asignada en los puntos: Experiencia en capacitación y evaluación de servicios brindados a la Institución a los nuevos valores para lo cual la Administración contará con un plazo de un mes a partir de la publicación del presente Reglamento.
+Tanto los oferentes actualmente inscritos en el Registro, como los nuevos, deberán ajustarse a las nuevas especificaciones que se exijan para conformarlo.
