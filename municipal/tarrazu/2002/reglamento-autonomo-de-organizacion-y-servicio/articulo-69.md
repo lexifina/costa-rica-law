@@ -1,0 +1,1 @@
+Artículo 69.—Además de los salarios ordinarios, todo empleado recibirá por concepto de aguinaldo, dentro de los primeros veinte días del mes de diciembre de cada año, un salario adicional conforme a la Ley Nº 1981 del 7 de noviembre de 1955.

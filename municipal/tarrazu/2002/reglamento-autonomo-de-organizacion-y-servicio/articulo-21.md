@@ -1,0 +1,2 @@
+Artículo 21.—La municipalidad permitirá que sus servidores realicen actividades conmemorativas fuera de la jornada laboral, en los días de la madre y del padre, así como en los días asignados a las diversas profesiones como el día del abogado, el trabajador social, la secretaria, el contador, etc.
+Siempre que haya recursos suficientes, la municipalidad efectuará actividades alusivas en época de Navidad.

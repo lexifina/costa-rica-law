@@ -1,0 +1,1 @@
+Artículo 83.—Habiéndose cumplido lo expuesto en el epígrafe anterior, se procederá a poner en conocimiento de la denuncia a la persona denuciada, la cual tendrá un plazo de tres días hábiles para que objete lo que a bien tenga sobre los hechos que se le imputan.

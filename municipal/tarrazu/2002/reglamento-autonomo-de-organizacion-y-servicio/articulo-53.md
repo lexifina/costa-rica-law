@@ -1,0 +1,1 @@
+Artículo 53.—Se considerará abandono del trabajo, el haber dejado sin causa justificada dentro de la jornada de trabajo la labor objeto del contrato o relación de servicio. Para efectos de calificar el abandono no es necesario que el funcionario salga del lugar donde presta sus servicios, sino que basta que de modo evidente abandone la labor que le ha sido encomendada.

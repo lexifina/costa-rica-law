@@ -1,0 +1,4 @@
+CAPÍTULO XV
+De los expedientes de personal
+Artículo 70.—El Asistente del Alcalde, o en su caso el encargado de las planillas y asuntos de personal, llevará un expediente debidamente foliado de cada uno de los servidores de la Municipalidad, en el que conste el historial de sus servicios y atestados en la foma más exacta posible. Es obligación de cada servidor actualizar sus datos personales periódicamente, de acuerdo con los cambios ocurridos.
+Dicho funcionario también llevará un registro donde se anotarán las calificaciones periódicas, las ausencias y las llegadas tardías, indicándose su motivo cuando fueren justificadas, así como las correcciones disciplinarias y los datos más importantes de todas las acciones de personal. El registro se iniciará con el ingreso a labores del funcionario.

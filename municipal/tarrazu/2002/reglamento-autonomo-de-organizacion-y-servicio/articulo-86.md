@@ -1,0 +1,1 @@
+Artículo 86.—Efectuada la comparecencia, el Alcalde tendrá un plazo de 15 días para el dictado del acto final y notificará del mismo a la Defensoría de los Habitantes conforme lo dispone la Ley Nº 7476.

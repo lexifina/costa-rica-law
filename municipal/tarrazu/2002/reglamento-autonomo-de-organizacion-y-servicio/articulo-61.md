@@ -1,0 +1,1 @@
+Artículo 61.—La Municipalidad otorgará a sus trabajadores que así lo soliciten por escrito, permiso sin goce de sueldo hasta por un período de seis meses, el cual podrá ser prorrogado, acriterio de la administración, por un período igual. El conceder este tipo de permisos así como la prórroga respectiva es un acto meramente potestativo del Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 99.—Excepto que se trate del despido, en cuyo caso la gestión correspondiente estará a cargo del Alcalde, la aplicación por infracciones al registro de control de puntualidad y asistencia, por llegadas tardías o por ausencias injustificadas a labores, corresponde al encargado del manejo de las planillas.
+La suspensión disciplinaria se aplicará una vez levantado el expediente respectivo y otorgado el debido proceso al servidor de que se trate, de conformidad con los dispuesto por la Ley General de la Administración Pública.

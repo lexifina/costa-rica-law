@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad de Tarrazú es la persona jurídica responsable de las consecuencias resultantes entre la relación de esta y sus servidores, pero la representación inmediata estará delegada en el Alcalde Municipal.

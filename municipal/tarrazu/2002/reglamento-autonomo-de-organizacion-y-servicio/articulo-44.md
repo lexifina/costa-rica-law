@@ -1,0 +1,1 @@
+Artículo 44.—Salvo desperfecto del reloj marcador o del sistema que se utilice, según el caso, el registro defectuoso o confuso de la asistencia a labores se tendrá por no realizado, para los efectos legales correspondientes.

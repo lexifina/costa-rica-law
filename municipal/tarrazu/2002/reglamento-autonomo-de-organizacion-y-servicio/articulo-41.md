@@ -1,0 +1,1 @@
+Artículo 41.—No se acumularán vacaciones de diferentes períodos, salvo por una sola vez, cuando el trabajador desempeñe labores técnicas, de dirección, de confianza u otras análogas, que dificulten especialmente su reemplazo, o cuando la residencia de su familia quedase situada en un lugar muy distante de aquel donde presta sus servicios.

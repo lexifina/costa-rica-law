@@ -1,0 +1,1 @@
+Artículo 60.—Por razones especiales, como por ejemplo asistir a una cita médica o acompañar a un familiar cercano a una actividad especial, el Alcalde podrá conceder permiso a sus subalternos hasta por un día en un mes calendario, con goce de sueldo.

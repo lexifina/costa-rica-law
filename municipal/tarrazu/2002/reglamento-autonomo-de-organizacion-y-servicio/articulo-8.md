@@ -1,0 +1,2 @@
+Artículo 8º—En toda relación de servicio por tiempo indeterminado habrá un período de prueba de hasta tres meses.
+El período de prueba se aplicará también en los casos de ascenso o traslado. En consecuencia, el servidor podrá ser reintegrado a su anterior ocupación, cuando la Municipalidad estime que no reúne satisfactoriamente las condiciones requeridas para el normal desempeño del cargo en cuestión o bien cuando el propio servidor así lo solicite.

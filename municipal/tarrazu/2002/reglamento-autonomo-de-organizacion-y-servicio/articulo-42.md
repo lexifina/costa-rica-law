@@ -1,0 +1,1 @@
+Artículo 42.—Las vacaciones de todos los funcionarios, excepto la Secretaria Municipal o de Actas, serán autorizadas por el Alcalde Municipal; en tanto las vacaciones del Alcalde y la Secretaria Municipal serán concedidas por el Concejo Municipal.
