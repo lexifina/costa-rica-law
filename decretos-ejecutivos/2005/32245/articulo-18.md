@@ -1,0 +1,1 @@
+Artículo 18.—En caso de concederse la visa de ingreso, la autorización se notificará al Agente de Migración competente en el exterior, quien estampará el sello de visa en el pasaporte del extranjero interesado, cuyo ingreso haya autorizado la Dirección General de Migración y Extranjería, una vez cumplidos todos los requisitos.

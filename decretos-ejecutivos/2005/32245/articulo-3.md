@@ -1,0 +1,1 @@
+Artículo 3º—En todo documento o visa de ingreso que se emita se indicará el tipo de permiso que se otorga, el tiempo de permanencia y cualquier otro derecho, concesión, deber o restricción que de ella se deriven.

@@ -1,0 +1,1 @@
+Artículo 40.—El presente Reglamento deja sin efecto cualquier disposición existente de rango igual o inferior que se le oponga, en lo relacionado con el otorgamiento de visas de ingreso a personas de países con acceso restringido a Costa Rica.

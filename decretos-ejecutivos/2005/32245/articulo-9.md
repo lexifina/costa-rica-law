@@ -1,0 +1,1 @@
+Artículo 9º—Los requisitos adicionales y específicos para cada subcategoría migratoria de visa, se harán conforme a la Ley General de Migración y Extranjería, su Reglamento y las políticas del Consejo Nacional de Migración y Extranjería y del Poder Ejecutivo.

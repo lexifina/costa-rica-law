@@ -1,0 +1,1 @@
+Artículo 19.—Cuando la solicitud fuera presentada por un tercero ante la Dirección General de Migración y Extranjería, ésta únicamente indicará, mediante oficio al solicitante, que la petición presentada a favor del interesado fue concedida y remitida al Consulado, con indicación de la fecha en que se envió.

@@ -1,0 +1,1 @@
+Artículo 24.—La visa múltiple podrá ser prorrogada; para ello se deberá documentar y aportar la prueba mediante la cual se desprenda la necesidad de la prórroga. En caso de considerarlo necesario, la Comisión tendrá la facultad de solicitar documentación adicional o realizar otros actos destinados a comprobar la necesidad de la prórroga.

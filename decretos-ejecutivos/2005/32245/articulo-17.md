@@ -1,0 +1,1 @@
+Artículo 17.—Conocida la solicitud y emitida la recomendación por parte de la Comisión, la Dirección General de Migración y Extranjería, decidirá en última instancia sobre el otorgamiento de la visa. Dicha decisión deberá ser notificada al interesado en el lugar y medio señalados para tales efectos.

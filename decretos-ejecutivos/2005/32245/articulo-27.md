@@ -1,0 +1,1 @@
+Artículo 27.—Para otorgar visa a pasajeros en tránsito, la empresa de transporte internacional deberá asegurar que cubrirá la totalidad de los gastos de transporte, alojamiento y alimentación de los tripulantes y pasajeros, y de los funcionarios que deban acompañarlos.

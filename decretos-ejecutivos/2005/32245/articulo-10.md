@@ -1,0 +1,1 @@
+Artículo 10.—Toda solicitud deberá hacerse ante la Dirección General de Migración y Extranjería, con al menos dos meses de antelación, salvo casos de excepción cuyos motivos se encuentren plenamente justificados y demostrados.

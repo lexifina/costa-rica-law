@@ -1,0 +1,1 @@
+Artículo 38.—En lo no establecido expresamente en el presente Reglamento, se atenderá la normativa compatible para órganos colegiados, prevista en los artículos 49 a 58 de la Ley General de la Administración Pública.

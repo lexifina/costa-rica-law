@@ -1,0 +1,1 @@
+Artículo 32.—El Presidente deberá presidir las sesiones, hacer convocatorias, confeccionar el orden del día y ejecutar los acuerdos del Consejo. En casos especiales, podrá alterarse el orden del día por acuerdo tomado por el Presidente ó al menos dos miembros.

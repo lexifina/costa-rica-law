@@ -1,0 +1,1 @@
+Artículo 25.—Cuando el otorgamiento de visa restringida de cualquier tipo implique depósito de garantía, éste deberá hacerse de forma previa a la emisión del documento de visa, y según lo dispuesto por los cuerpos normativos y acuerdos establecidos.

@@ -1,0 +1,1 @@
+Artículo 7º—Todo documento expedido en el exterior que acompañe la solicitud de visa restringida, deberá cumplir con el requisito de legalización consular y la posterior autenticación por parte del Ministerio de Relaciones Exteriores y Culto Costarricense.

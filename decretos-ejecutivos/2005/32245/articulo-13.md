@@ -1,0 +1,1 @@
+Artículo 13.—Si la solicitud cumple con todos los requisitos y resulta acorde con las leyes y reglamentos, y con las políticas dictadas por el Consejo Nacional de Migración y el Poder Ejecutivo, la Comisión procederá a emitir la recomendación correspondiente, la cual no será vinculante para la Dirección General de Migración y Extranjería.

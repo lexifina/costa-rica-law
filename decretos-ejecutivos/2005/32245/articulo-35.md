@@ -1,0 +1,1 @@
+Artículo 35.—Las sesiones de la Comisión serán siempre privadas, pero por unanimidad se podrá disponer que tengan acceso otras personas, concediéndoles o no derecho de participar en las deliberaciones, con voz pero sin voto. Tendrán derecho a asistir con voz pero sin voto quienes ocupen las jefaturas de las dependencias representadas por los integrantes de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 33.—El Secretario deberá levantar las actas de las sesiones, llevar el control de asistencia, tramitar la correspondencia y comunicar las resoluciones de la Comisión, cuando ello no corresponda al Presidente.
