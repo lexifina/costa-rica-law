@@ -1,0 +1,1 @@
+Artículo 3°—Para los efectos del artículo anterior, quedan facultados para realizar las prevenciones, inspecciones, levantar actas, notificar a las partes interesadas y presentar ante las autoridades administrativas y judiciales las denuncias correspondientes establecidas en la Ley de Regulación del Uso Racional de la Energía, No 7447, y su Reglamento.
