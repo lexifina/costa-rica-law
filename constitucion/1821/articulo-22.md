@@ -1,0 +1,1 @@
+Artículo 22.- La Junta tendrá sesiones ordinarias todos los lunes y jueves de cada semana, a más de las extraordinarias que sean necesarias, y sentará sus acuerdos en un libro foliado y rubricado para el efecto.

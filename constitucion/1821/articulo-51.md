@@ -1,0 +1,1 @@
+Artículo 51.- Si hubiere lugar a la formación de la causa, la comisión antedicha nombrará de su seno, a pluralidad, los miembros del Gobierno que deban reponerse, contando para este caso con los tres suplentes delGobierno; y los individuos sobrantes de la Comisión, completándose con los suplentes respectivos, compondrán el Tribunal de residencia.

@@ -1,0 +1,1 @@
+Artículo 41.- En lo judicial, la Junta, como tribunal de protección únicamente, hará que los jueces constitucionales administren pronta y rectamente justicia conforme a la Constitución española y leyes existentes, singularmente la de 9 de octubre de 1812.

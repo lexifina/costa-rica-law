@@ -1,0 +1,1 @@
+Artículo 35.- Para combinar y determinar sobre datos exactos y aproximados las mejoras y reformas que en el sistema de hacienda reclama el interés público de la provincia y la justa libertad de los pueblos, la Junta exigirá de los empleados estados y presupuestos de entradas y salidas.

@@ -1,0 +1,7 @@
+PACTO SOCIAL FUNDAMENTAL INTERINO DE COSTA RICA
+1º de Diciembre de 1821
+En nombre de Dios Todopoderoso, Padre, Hijo y Espíritu Santo, Autor y Supremo Legislador de la Sociedad.
+La provincia de Costa Rica, libremente congregada y legítimamente representada por los legados reunidos en esta ciudad (Cartago) de todos los pueblos que la componen y suscriben, teniendo en consideración que por haberse jurado la independencia absoluta del Gobierno español en ésta y las demás provincias del reino y aún en toda la América Septentrional sobre diversas bases y principios, se hallan libres los pueblos para constituirse en nueva forma de gobierno; y deseando esta provincia conservarse libre, unida, segura y tranquila por un pacto de unión y concordia, ínterin que informándose las otras pueda concurrir al establecimiento de un gobierno supremo constitucional, se constituye éste provisional. Al efecto, después de haber conferenciado dichos legados cuanto ha parecido conveniente, en uso de sus respectivos poderes y representación, han concluido y celebrado el tratado siguiente:
+CAPITULO 1º
+De la provincia
+Artículo 1º.- La provincia de Costa Rica está en absoluta libertad y posesión exclusiva de sus derechos para constituirse en una nueva forma de gobierno y será dependiente o confederada de aquel Estado o potencia a que le convenga adherirse, bajo el preciso sistema de absoluta independencia del Gobierno español y de cualquiera otro que no sea americano.

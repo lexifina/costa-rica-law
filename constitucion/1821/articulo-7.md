@@ -1,0 +1,1 @@
+Artículo 7º.- Para obtener cualquier empleo, a más de estar en el ejercicio de la ciudadanía, debe el que lo obtenga ser mayor de veinticinco años, adicto decididamente a la Independencia americana y jurar la observancia de este Pacto.

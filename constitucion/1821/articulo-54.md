@@ -1,0 +1,1 @@
+Artículo 54.- Contra los que resulten culpados se procederá por la comisión, que se denominará Tribunal supremo de residencia, siguiendo la causa con fiscal nombrado al efecto; y concluido por los trámites legales, pronunciará sentencia que se ejecutará o no, conforme a lo dispuesto por el artículo 44.

@@ -1,0 +1,1 @@
+Artículo 18.- Hecha la elección anterior, nombrará la junta electoral una comisión de su seno de once individuos y cuatro suplentes, y esta comisión elegirá de su seno presidente y secretario para los fines que expresa el artículo 50, en cuyo caso será convocada por el presidente de ella.

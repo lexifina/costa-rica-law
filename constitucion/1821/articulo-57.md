@@ -1,0 +1,1 @@
+Artículo 57.- Si algún pueblo hiciese presente al Gobierno que conviene para su utilidad aumentar o disminuir el número de individuos de sus respectivos ayuntamientos, podrá hacer esta variación el Gobierno, siempre que lo calificare por justo.

@@ -1,0 +1,1 @@
+Artículo 46.- Si el arreglo definitivo de la Constitución del Estado a que la provincia se adhiere dilatase más de un año, la Junta se renovará por mitad en cada uno, saliendo el primero los cuatro últimos nombrados.

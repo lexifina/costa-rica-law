@@ -1,0 +1,1 @@
+Artículo 26.- La Junta se dividirá en tres secciones o comisiones para el mas pronto despacho de los negocios, con responsabilidad cada una a la misma Junta, por la que serán acordadas las providencias que por su naturaleza, gravedad y trascendencia general lo requieran.
