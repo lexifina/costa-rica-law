@@ -1,0 +1,1 @@
+Artículo 4º- Los acuerdos de destitución sin justa causa dictados por las instituciones autónomas, semiautónomas y por las municipalidades, si no se han pagado las prestaciones respectivas 45 días después, causarán la aplicación del artículo 2º de esta ley.
