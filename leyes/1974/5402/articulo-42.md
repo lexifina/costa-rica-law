@@ -5,5 +5,5 @@ compañeros para que se conozca de oficio el problema. Se levantará una
 información confidencial con la intervención del infractor y, en su caso,
 del denunciante y se fallará el caso, a conciencia, a la mayor brevedad
 posible. Si el Colegiado resultare absuelto se le entregará copia del
-fallo y si lo desea, se hará una publicación, a cargo del Colegio, para su
-satisfacción.
+fallo y si lo desea, se hará una publicación, a cargo del Colegio, para
+su satisfacción.
