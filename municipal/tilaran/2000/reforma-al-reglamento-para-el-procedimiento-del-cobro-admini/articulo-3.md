@@ -1,0 +1,1 @@
+III.—Modificar el inciso d) del artículo 18°, estableciéndose que en el escrito de la demanda inicial se señalará para notificaciones el sitio que facilite la gestión del abogado, pero que, de toda documentación que reciba o envíe el profesional, deberá dejar constancia en el expediente correspondiente, administrado por el Departamento de Rentas y Cobranzas.
