@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase al Instituto Nacional de Fomento Cooperativo para que done el lote segregado a las Temporalidades de la Arquidiócesis de San José; cédula jurídica Nº 3-010-045198, que lo destinará a la construcción de un salón parroquial multiuso contiguo a la Iglesia Parroquial de Santa Catalina.
