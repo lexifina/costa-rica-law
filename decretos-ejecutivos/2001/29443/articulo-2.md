@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a las instituciones y empresas del Estado para que, en la medida de sus posibilidades, brinden facilidades y cooperación en la materialización de la Revista, durante su planeamiento, publicación y difusión.
