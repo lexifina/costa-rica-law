@@ -14,3 +14,4 @@ Reglamento general a la Ley del Instituto Costarricense del Deporte y la Recreac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-22 | la propia norma |
+| 2 | 2004-02-23 | Decreto Ejecutivo 31738 (2004-02-23) |

@@ -1,0 +1,2 @@
+Artículo 36 bis. - Los permisos de trabajo a que tienen derecho los funcionarios públicos que sean convocados a una selección nacional o para representar a Costa Rica en una competencia deportiva internacional, en las condiciones establecidas en los artículos 36 y 37 de la Ley N°. 7800, serán invariablemente con goce de salario.
+(Así adicionado por el artículo 1° del decreto ejecutivo N°. 31738 de 23 de febrero de 2004)
