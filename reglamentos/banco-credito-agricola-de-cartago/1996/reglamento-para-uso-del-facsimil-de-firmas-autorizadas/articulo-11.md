@@ -1,0 +1,1 @@
+Artículo 11.-El retiro y la custodia de los sellos y troqueles de firmas, será efectuado por los funcionarios autorizados, debiendo quedar constancia de esa acción en el registro que lleva la custodia.

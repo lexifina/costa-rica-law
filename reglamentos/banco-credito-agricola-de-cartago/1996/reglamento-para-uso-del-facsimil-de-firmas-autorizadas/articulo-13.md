@@ -1,0 +1,1 @@
+Artículo 13.-La operación de la máquina facsímil, se realizará siguiendo las instrucciones de programación y operación de la misma, según el instructivo respectivo, debiendo velar cada responsable de oficina por mantener la máquina en óptimas condiciones.

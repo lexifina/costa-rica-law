@@ -1,0 +1,1 @@
+Artículo 14.-Las infracciones del presente reglamento, serán sancionadas de acuerdo con el Reglamento Interior de Trabajo en sus artículos 40,41,42 y/o por otras disposiciones que rijan para tales efectos y lo que establezca el Código de Trabajo en lo concerniente.

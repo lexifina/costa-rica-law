@@ -1,0 +1,1 @@
+Artículo 6°-Los funcionarios autorizados que emplean el sello o la máquina facsímil, utilizarán únicamente el sello o troquel correspondiente a su firma. Se prohíbe utilizar un sello o un troquel de otro funcionario.

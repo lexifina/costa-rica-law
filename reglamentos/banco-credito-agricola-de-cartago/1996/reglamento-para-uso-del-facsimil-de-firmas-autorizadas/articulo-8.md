@@ -1,0 +1,1 @@
+Artículo 8°-En el caso de que se requiera hacer duplicados de llaves de la máquina facsímil, por extravío, deterioro u otro motivo comprobado, el procedimiento de reposición debe ser efectuado formalmente por el jefe de cada oficina, dejándose evidencia en una acta que para tal efecto se levantará y archivará en orden cronológico en la oficina correspondiente.

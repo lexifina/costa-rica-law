@@ -1,0 +1,1 @@
+Artículo 12.-Cada funcionario responsable de la utilización del sello y máquina facsímil, deberá llevar un control estricto de los documentos firmados bajo este procedimiento, debiendo mantener a!4a. adecuado de dicho registro en cada oficina.

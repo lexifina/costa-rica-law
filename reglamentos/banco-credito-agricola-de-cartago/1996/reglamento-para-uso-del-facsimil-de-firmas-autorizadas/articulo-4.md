@@ -1,0 +1,1 @@
+Artículo 4°-Serán responsables de la utilización de la firma facsímil, los funcionarios debidamente autorizados en el Registro de Firmas para la emisión de cheques y de títulos valores, entendiéndose que deben laborar en las Secciones mencionadas en el artículo anterior.
