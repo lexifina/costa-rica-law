@@ -1,0 +1,1 @@
+Artículo 3°-Todo costarricense natural ó naturalizado puede adquirir en propiedad una de esas parcelas y no más, con sólo cultivar la mitad de su cabida con cultivos estables, dentro de los tres años de haber entrado en posesión de ella.

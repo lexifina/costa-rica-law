@@ -1,0 +1,1 @@
+Artículo 10°-Las tierras ó el derecho á las mismas, los frutos ó mejoras adquiridas en virtud de esta ley, no pueden enajenarse, hipotecarse, ni ser perseguidos ó embargados antes de la adjudicación definitiva, ni dentro de los diez años siguientes.
