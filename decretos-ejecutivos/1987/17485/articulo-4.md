@@ -1,0 +1,1 @@
+Artículo 4°—El área para la instalación de la torre se determinará únicamente con base en la altura de la misma. Únicamente podrá instalarse una torre en el área asignada a fin de que no haya interferencia. En todo caso, quedará a criterio de la Dirección General Forestal el permitir la instalación de más de una torre.

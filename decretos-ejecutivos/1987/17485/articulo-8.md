@@ -1,0 +1,1 @@
+Artículo 8°—La realización de cualquier actividad que no esté incluida en la solicitud deberá ser aprobada de previo por la Dirección General Forestal del Ministerio de Agricultura y Ganadería. Asimismo, la construcción de caminos y cercas, remodelación de torres y casetas.

@@ -1,0 +1,2 @@
+Artículo 5°—El cobro del canon respectivo, así como la garantía se hará de acuerdo con lo establecido en los artículos 64 y 65 del Reglamento a la Ley Forestal , Decreto Ejecutivo N° 16986-MAG de 7 de mayo de-1986.
+La cancelación del canon deberá hacerse mediante depósito a la cuenta del Fondo Forestal No 31844-4 del Banco Nacional de Costa Rica y la garantía de cumplimiento se depositará en la Cuenta de Fondos de Custodia N° 83991-0 del banco mencionado anteriormente.

@@ -1,0 +1,1 @@
+Artículo 9°—A partir de la promulgación de este decreto los permisionarios tendrán cinco meses para demarcar en el campo el área concedida y presentar ante la Dirección General Forestal del Ministerio de Agricultura y Ganadería los planos respectivos aprobados por un topógrafo.
