@@ -1,0 +1,5 @@
+DECRETO LX.
+La Camara de Representantes cierra sus sesiones ordinarias.
+El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica. Por cuanto la Cámara de Representantes ha decretado lo siguiente.
+La Cámara de Representantes del Estado libre de Costa Rica, considerando: que en este dia concluye su actual periodo ordinario prorogado por decreto de 14 del presente mes, ha venido en declarar y declara.
+Art. único. La Camara de Representantes del Estado de Costa Rica cierra hoy sus sesiones ordinarias.-_Comuniquese al Poder Ejecutivo para que lo haga imprimir, circular y publicar. –Dado en la ciudad de San José a los veinticuatro días del mes de noviembre de mil ochocientos cuarenta y cinco. José Maria Castro, Representante Presidente. -Rafael Reyes, Representante pro Secretario, -Ramon Gomez, Representante segundo Secretario:-Por tanto: EJECUTESE. San José noviembre veintisiete de mil ochocientos cuarenta y cinco. –José Rafael de Gallegos. -Al Ministro de relaciones y gobernacion.
