@@ -1,0 +1,1 @@
+Artículo 12.—El Departamento de Cobros deberá rendir informes trimestrales al Alcalde Municipal, sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentran las acciones de cada gestión. A esa fecha, el Alcalde puede solicitarle, cuando lo requiera a la Oficina de Cobros, un informe sobre alguna o todas las operaciones en Cobro Judicial.
