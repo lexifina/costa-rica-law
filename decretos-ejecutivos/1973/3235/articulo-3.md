@@ -1,0 +1,1 @@
+Artículo 3°-Es obligatorio para todo patrono que contrate trabajadores en las regiones del área malárica, exigir en el .momento de la contratación, la presentación de la "Tarjeta de Vigilancia de Malaria".
