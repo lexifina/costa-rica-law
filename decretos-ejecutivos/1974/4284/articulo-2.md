@@ -7,5 +7,6 @@ e) Ministerio de Economía, Industria y Comercio;
 f) Ministerio de Trabajo y Seguridad Social;
 g) Consejo Nacional de Producción;
 h) Instituto Costarricense de Puertos del Pacífico;
-i) Instituto Nacional de Fomento Cooperativo; y
+i) Municipalidad del cantón central de Puntarenas.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 5016 del 08 de julio de 1975)
 j) Instituto Nacional de Aprendizaje;

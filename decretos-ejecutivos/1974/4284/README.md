@@ -13,3 +13,4 @@ Crea Comisión Coordinadora del Programa de Desarrollo Pesquero para la Vertient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-10-31 | la propia norma |
+| 2 | 1975-07-08 | Decreto Ejecutivo 5016 (1975-07-08) |
