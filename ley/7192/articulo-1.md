@@ -50,19 +50,19 @@ ARTICULO II.- Se modifican los textos de los siguientes artículos de
 la Carta de la Organización de los Estados Americanos que quedarán
 redactados así:
 Artículo 1.- Los Estados Americanos consagran en esta Carta la
-organización internacional que han desarrollado para lograr un orden de paz
-y de justicia, fomentar su solidaridad, robustecer su colaboración y
-defender su soberanía, su integridad territorial y su independencia. Dentro
-de las Naciones Unidas, la Organización de los Estados Americanos
+organización internacional que han desarrollado para lograr un orden de
+paz y de justicia, fomentar su solidaridad, robustecer su colaboración y
+defender su soberanía, su integridad territorial y su independencia.
+Dentro de las Naciones Unidas, la Organización de los Estados Americanos
 constituye un organismo regional.
-La Organización de los Estados Americanos no tiene más facultades que
-aquellas que expresamente le confiere la presente Carta, ninguna de cuyas
-disposiciones la autoriza a intervenir en asuntos de la jurisdicción
-interna de los Estados Miembros.
-Artículo 2.- La Organización de los Estados Americanos, para realizar
-los principios en que se funda y cumplir sus obligaciones regionales de
-acuerdo con la Carta de las Naciones Unidas, establece los siguientes
-propósitos esenciales:
+La Organización de los Estados Americanos no tiene más facultades
+que aquellas que expresamente le confiere la presente Carta, ninguna de
+cuyas disposiciones la autoriza a intervenir en asuntos de la
+jurisdicción interna de los Estados Miembros.
+Artículo 2.- La Organización de los Estados Americanos, para
+realizar los principios en que se funda y cumplir sus obligaciones
+regionales de acuerdo con la Carta de las Naciones Unidas, establece los
+siguientes propósitos esenciales:
 a) Afianzar la paz y la seguridad del Continente;
 b) Promover y consolidar la democracia representativa dentro del
 respeto al principio de no intervención;
@@ -74,8 +74,8 @@ e) Procurar la solución de los problemas políticos, jurídicos y
 económicos que se susciten entre ellos;
 f) Promover, por medio de la acción cooperativa su desarrollo
 económico, social y cultural; y
-g) Alcanzar una efectiva limitación de armamentos convencionales
-que permita dedicar el mayor número de recursos al desarrollo económico
+g) Alcanzar una efectiva limitación de armamentos convencionales que
+permita dedicar el mayor número de recursos al desarrollo económico
 social de los Estados Miembros.
 Artículo 3.- Los Estados Americanos reafirman los siguientes
 principios:
@@ -86,21 +86,21 @@ respeto a la personalidad, soberanía e independencia de los Estados y por
 el fiel cumplimiento de las obligaciones emanadas de los tratados y de
 otras fuentes del derecho internacional.
 c) La buena fe debe regir las relaciones de los Estados entre sí.
-d) La solidaridad de los Estados Americanos y los altos fines que con
-ella se persiguen, requieren la organización política de los mismos sobre
-la base del ejercicio efectivo de la democracia representantiva.
+d) La solidaridad de los Estados Americanos y los altos fines que
+con ella se persiguen, requieren la organización política de los mismos
+sobre la base del ejercicio efectivo de la democracia representantiva.
 e) Todo Estado tiene derecho a elegir, sin injerencias externas, su
-sistema político, económico y social y a organizarse en la forma que más le
-convenga y tiene el deber de no intervenir en los asuntos de otro Estado.
-Con sujeción a lo arriba dispuesto, los Estados Miembros cooperarán
-ampliamente entre sí y con independencia de la naturaleza de sus sistemas
-políticos, económicos y sociales.
-f) Los Estados Americanos condenan la guerra de agresión: la victoria
-no da derechos.
+sistema político, económico y social y a organizarse en la forma que más
+le convenga y tiene el deber de no intervenir en los asuntos de otro
+Estado. Con sujeción a lo arriba dispuesto, los Estados Miembros
+cooperarán ampliamente entre sí y con independencia de la naturaleza de
+sus sistemas políticos, económicos y sociales.
+f) Los Estados Americanos condenan la guerra de agresión: la
+victoria no da derechos.
 g) La agresión a un Estado Americano constituye una agresión a todos
 los demás Estados Americanos.
-h) Las controversias de carácter internacional que surjan entre dos o
-más Estados Americanos deben ser resueltas por medio de procedimientos
+h) Las controversias de carácter internacional que surjan entre dos
+o más Estados Americanos deben ser resueltas por medio de procedimientos
 pacíficos.
 i) La justicia y la seguridad sociales son bases de una paz duradera.
 j) La cooperación económica es esencial para el bienestar y la
@@ -112,15 +112,15 @@ personalidad cultural de los países americanos y demanda su estrecha
 cooperación en las altas finalidades de la cultura humana.
 m) La educación de los pueblos debe orientarse hacia la justicia, la
 libertad y la paz.
-Artículo 8.- El Consejo Permanente no formulará ninguna recomendación
-ni la Asamblea tomará decisión alguna sobre la solicitud de admisión
-presentada por una entidad política cuyo territorio esté sujeto, total o
-parcialmente y con anterioridad a la fecha del 18 de diciembre de 1964,
-fijada por la Primera Conferencia Interamericana Extraordinaria, a litigio
-o reclamación entre un país extracontinental y uno o más Estados Miembros
-de la Organización, mientras no se haya puesto fin a la controversia
-mediante procedimiento pacífico. El presente Artículo regirá hasta el 10 de
-diciembre de 1990.
+Artículo 8.- El Consejo Permanente no formulará ninguna
+recomendación ni la Asamblea tomará decisión alguna sobre la solicitud de
+admisión presentada por una entidad política cuyo territorio esté sujeto,
+total o parcialmente y con anterioridad a la fecha del 18 de diciembre de
+1964, fijada por la Primera Conferencia Interamericana Extraordinaria, a
+litigio o reclamación entre un país extracontinental y uno o más Estados
+Miembros de la Organización, mientras no se haya puesto fin a la
+controversia mediante procedimiento pacífico. El presente Artículo regirá
+hasta el 10 de diciembre de 1990.
 Artículo 23.- Las controversias internacionales entre los Estados
 Miembros deben ser sometidas a los procedimientos de solución pacífica
 establecidos en esta Carta.
@@ -130,15 +130,16 @@ artículos 34 y 35 de la Carta de las Naciones Unidas.
 Artículo 26.- Un tratado especial establecerá los medios adecuados
 para resolver las controversias y determinará los procedimientos
 pertinentes a cada uno de los medios pacíficos, en forma de no dejar que
-controversia alguna entre los Estados Americanos pueda quedar sin solución
-definitiva dentro de un plazo razonable.
+controversia alguna entre los Estados Americanos pueda quedar sin
+solución definitiva dentro de un plazo razonable.
 Artículo 29.- Los Estados Miembros, inspirados en los principios de
-solidaridad y cooperación interamericanas, se comprometen a aunar esfuerzos
-para lograr que impere la justicia social internacional en sus relaciones y
-para que sus pueblos alcancen un desarrollo integral, como condiciones
-indispensables para la paz y la seguridad. Este desarrollo integral abarca
-los campos económico, social, educativo, cultural, científico y tecnológico
-en los cuales deben obtenerse las metas que cada país defina para lograrlo.
+solidaridad y cooperación interamericanas, se comprometen a aunar
+esfuerzos para lograr que impere la justicia social internacional en sus
+relaciones y para que sus pueblos alcancen un desarrollo integral, como
+condiciones indispensables para la paz y la seguridad. Este desarrollo
+integral abarca los campos económico, social, educativo, cultural,
+científico y tecnológico en los cuales deben obtenerse las metas que cada
+país defina para lograrlo.
 Artículo 34.- Los Estados Miembros deben abstenerse de ejercer
 políticas, acciones o medidas que tengan serios efectos adversos sobre el
 desarrollo de otros Estados Miembros.
@@ -149,60 +150,62 @@ con el fin de conseguir:
 a) El logro de condiciones favorables de acceso a los mercados
 mundiales para los productos de los países en desarrollo de la región,
 especialmente por medio de la reducción o eliminación, por parte de los
-países importadores, de barreras arancelarias y no arancelarias que afectan
-a las exportaciones de los Estados Miembros de la Organización, salvo
-cuando dichas barreras se apliquen para diversificar la estructura
+países importadores, de barreras arancelarias y no arancelarias que
+afectan a las exportaciones de los Estados Miembros de la Organización,
+salvo cuando dichas barreras se apliquen para diversificar la estructura
 económica, acelerar el desarrollo de los Estados Miembros menos
 desarrollados e intensificar su proceso de integración económica o cuando
 se relacionen con la seguridad nacional o las necesidades del equilibrio
 económico;
 b) El mantenimiento de la continuidad de su desarrollo económico y
 social mediante:
-i) Mejores condiciones para el comercio de productos básicos por medio
-de convenios internacionales, cuando fueren adecuados; procedimientos
-ordenados de comercialización que eviten la pertubación de los mercados, y
-otras medidas destinadas a promover la expansión de mercados, y a obtener
-ingresos seguros para los productores, suministros adecuados y seguros para
-los consumidores y precios estables que sean a la vez remunerativos para
-los productores y equitativos para los consumidores;
+i) Mejores condiciones para el comercio de productos básicos por
+medio de convenios internacionales, cuando fueren adecuados;
+procedimientos ordenados de comercialización que eviten la pertubación de
+los mercados, y otras medidas destinadas a promover la expansión de
+mercados, y a obtener ingresos seguros para los productores, suministros
+adecuados y seguros para los consumidores y precios estables que sean a
+la vez remunerativos para los productores y equitativos para los
+consumidores;
 ii) Mejor cooperación internacional en el campo financiero y la
 adopción de otros medios para aminorar los efectos adversos de las
-fluctuaciones acentuadas de los ingresos por concepto de exportaciones que
-experimenten los países exportadores de productos básicos;
+fluctuaciones acentuadas de los ingresos por concepto de exportaciones
+que experimenten los países exportadores de productos básicos;
 iii) Diversificación de las exportaciones y ampliación de las
 oportunidades para exportar productos manufacturados y semifacturados de
 países en desarrollo, y
 iv) La obtención de condiciones favorables al incremento de los
-ingresos reales provenientes de las exportaciones de los Estados Miembros,
-especialmente de los países en desarrollo de la región y al aumento de su
-participación en el comercio internacional.
+ingresos reales provenientes de las exportaciones de los Estados
+Miembros, especialmente de los países en desarrollo de la región y al
+aumento de su participación en el comercio internacional.
 Artículo 45.- Los Estados Miembros darán importancia primordial,
 dentro de sus planes de desarrollo, al estímulo de la educación, la
 ciencia, la tecnología y la cultura, orientadas hacia el mejoramiento
 integral de la persona humana y como fundamento de la democracia, la
 justicia social y el progreso.
-Artículo 46.- Los Estados Miembros cooperarán entre sí para satisfacer
-sus necesidades educativas, promover la investigación científica e impulsar
-el adelanto tecnológico para su desarrollo integral y se considerarán
-individual y solidariamente comprometidos a preservar y enriquecer el
-patrimonio cultural de los pueblos americanos.
+Artículo 46.- Los Estados Miembros cooperarán entre sí para
+satisfacer sus necesidades educativas, promover la investigación
+científica e impulsar el adelanto tecnológico para su desarrollo integral
+y se considerarán individual y solidariamente comprometidos a preservar y
+enriquecer el patrimonio cultural de los pueblos americanos.
 Artículo 49.- Los Estados Miembros fomentarán la ciencia y la
 tecnología mediante actividades de enseñanza, investigación y desarrollo
 tecnológico y programas de difusión y divulgación, estimularán las
 actividades en el campo de la tecnología con el propósito de adecuarla a
 las necesidades de su desarrollo integral, concertarán eficazmente su
-cooperación en estas materias, y extenderán sustancialmente el intercambio
-de conocimientos, de acuerdo con los objetivos y leyes nacionales y los
-tratados vigentes.
+cooperación en estas materias, y extenderán sustancialmente el
+intercambio de conocimientos, de acuerdo con los objetivos y leyes
+nacionales y los tratados vigentes.
 Artículo 52.- La Asamblea General es el órgano supremo de la
 Organización de los Estados Americanos. Tiene como atribuciones
 principales, además de las otras que le señala la Carta, las siguientes:
 a) Decidir la acción y la política generales de la Organización,
-determinar la estructura y funciones de sus órganos y considerar cualquier
-asunto relativo a la convivencia de los Estados Americanos;
-b) Dictar disposiciones para la coordinación de las actividades de los
-órganos, organismos y entidades de la Organización entre sí y de estas
-actividades con la de las otras instituciones del Sistema Interamericano;
+determinar la estructura y funciones de sus órganos y considerar
+cualquier asunto relativo a la convivencia de los Estados Americanos;
+b) Dictar disposiciones para la coordinación de las actividades de
+los órganos, organismos y entidades de la Organización entre sí y de
+estas actividades con la de las otras instituciones del Sistema
+Interamericano;
 c) Robustecer y armonizar la cooperación con las Naciones Unidas y
 sus organismos especializados;
 d) Promover la colaboración, especialmente en los campos económico,
@@ -216,29 +219,30 @@ respecto a los informes que deberán presentar los demás órganos y
 entidades, le eleve el Consejo Permanente, de conformidad con lo
 establecido en el párrafo f) del Artículo 91, así como los informes de
 cualquier órgano que la propia Asamblea requiera;
-g) Adoptar las normas generales que deben regir el funcionamiento
-de la Secretaría General; y
-h) Aprobar su reglamento y, por dos tercios de los votos, su temario.
+g) Adoptar las normas generales que deben regir el funcionamiento de
+la Secretaría General; y
+h) Aprobar su reglamento y, por dos tercios de los votos, su
+temario.
 La Asamblea General ejercerá sus atribuciones de acuerdo con lo
 dispuesto en la Carta y en otros tratados interamericanos.
 Artículo 63.- En caso de ataque armado al territorio de un Estado
 Americano o dentro de la región de seguridad que delimita el tratado
-vigente, el Presidente del Consejo Permanente reunirá al Consejo sin demora
-para determinar la convocatoria de la Reunión de Consulta, sin perjuicio de
-lo dispuesto en el Tratado Interamericano de Asistencia Recíproca por lo
-que atañe a los Estados Partes en dicho instrumento.
+vigente, el Presidente del Consejo Permanente reunirá al Consejo sin
+demora para determinar la convocatoria de la Reunión de Consulta, sin
+perjuicio de lo dispuesto en el Tratado Interamericano de Asistencia
+Recíproca por lo que atañe a los Estados Partes en dicho instrumento.
 Artículo 81.- El Consejo Permanente actuará provisionalmente como
-Organo de Consulta de conformidad con lo establecido en el tratado especial
-sobre la materia.
+Organo de Consulta de conformidad con lo establecido en el tratado
+especial sobre la materia.
 Artículo 90.- En el desempeño de sus funciones relativas al arreglo
 pacífico de controversias, el Consejo Permanente y la Comisión ad hoc
-respectiva, deberán observar las disposiciones de la Carta y los principios
-y normas del derecho internacional, así como tener en cuenta la existencia
-de los tratados vigentes entre las Partes.
+respectiva, deberán observar las disposiciones de la Carta y los
+principios y normas del derecho internacional, así como tener en cuenta
+la existencia de los tratados vigentes entre las Partes.
 Artículo 91.- Corresponde también al Consejo Permanente:
-a) Ejecutar aquellas decisiones de la Asamblea General o de la Reunión
-de Consulta de Ministros de Relaciones Exteriores cuyo cumplimiento no haya
-sido encomendado a ninguna otra entidad;
+a) Ejecutar aquellas decisiones de la Asamblea General o de la
+Reunión de Consulta de Ministros de Relaciones Exteriores cuyo
+cumplimiento no haya sido encomendado a ninguna otra entidad;
 b) Velar por la observancia de las normas que regulan el
 funcionamiento de la Secretaría General y, cuando la Asamblea General no
 estuviere reunida, adoptar las disposiciones de índole reglamentaria que
@@ -247,101 +251,102 @@ administrativas;
 c) Actuar como Comisión Preparatoria de la Asamblea General en las
 condiciones determinadas por el artículo 59 de la Carta, a menos que la
 Asamblea General lo decida en forma distinta;
-d) Preparar, a petición de los Estados Miembros, y con la cooperación
-de los órganos apropiados de la Organización, proyectos de acuerdo para
-promover y facilitar la colaboración entre la Organización de los Estados
-Americanos y las Naciones Unidas o entre la Organización y otros organismos
-americanos de reconocida autoridad internacional. Estos proyectos serán
-sometidos a la aprobación de la Asamblea General;
+d) Preparar, a petición de los Estados Miembros, y con la
+cooperación de los órganos apropiados de la Organización, proyectos de
+acuerdo para promover y facilitar la colaboración entre la Organización
+de los Estados Americanos y las Naciones Unidas o entre la Organización y
+otros organismos americanos de reconocida autoridad internacional. Estos
+proyectos serán sometidos a la aprobación de la Asamblea General;
 e) Formular recomendaciones a la Asamblea General sobre el
 funcionamiento de la Organización y la coordinación de sus órganos
 subsidiarios, organismos y comisiones;
-f) Considerar los informes de los otros Consejos, del Comité Jurídico
-Interamericano, de la Comisión Interamericana de Derechos Humanos, de la
-Secretaría General, de los organismos y conferencias especializadas y de
-los demás órganos y entidades, y presentar a la Asamblea General las
-observaciones y recomendaciones que estime del caso;
-g) Ejercer las demás atribuciones que le señale la Carta.
-El Consejo Permanente y la Secretaría General tendrán la misma sede.
-Artículo 107.- El Comité Jurídico Interamericano estará integrado por
-once juristas nacionales de los Estados Miembros, elegidos para un período
-de cuatro años, de ternas presentadas por dichos Estados. La Asamblea
-General hará la elección mediante un régimen que tenga en cuenta la
-renovación parcial y procure, en lo posible, una equitativa representación
-geográfica. En el Comité no podrá haber más de un miembro de la misma
-nacionalidad.
+f) Considerar los informes de los otros Consejos, del Comité
+Jurídico Interamericano, de la Comisión Interamericana de Derechos
+Humanos, de la Secretaría General, de los organismos y conferencias
+especializadas y de los demás órganos y entidades, y presentar a la
+Asamblea General las observaciones y recomendaciones que estime del caso;
+g) Ejercer las demás atribuciones que le señale la Carta. El Consejo
+Permanente y la Secretaría General tendrán la misma sede.
+Artículo 107.- El Comité Jurídico Interamericano estará integrado
+por once juristas nacionales de los Estados Miembros, elegidos para un
+período de cuatro años, de ternas presentadas por dichos Estados. La
+Asamblea General hará la elección mediante un régimen que tenga en cuenta
+la renovación parcial y procure, en lo posible, una equitativa
+representación geográfica. En el Comité no podrá haber más de un miembro
+de la misma nacionalidad.
 Las vacantes producidas por causas distintas de la expiración normal
 de los mandatos de los miembros del Comité, se llenarán por el Consejo
 Permanente de la Organización siguiendo los mismos criterios establecidos
 en el párrafo anterior.
 Artículo 116.- El Secretario General, o su representante, podrá
-participar con voz pero sin voto en todas las reuniones de la Organización.
+participar con voz pero sin voto en todas las reuniones de la
+Organización.
 El Secretario General podrá llevar a la atención de la Asamblea
 General o del Consejo Permanente cualquier asunto que, en su opinión,
-pudiese afectar la paz y la seguridad del Continente o el desarrollo de los
-Estados Miembros.
-Las atribuciones a que se refiere el párrafo anterior se ejercerán en
-conformidad con la presente Carta.
+pudiese afectar la paz y la seguridad del Continente o el desarrollo de
+los Estados Miembros.
+Las atribuciones a que se refiere el párrafo anterior se ejercerán
+en conformidad con la presente Carta.
 Artículo 127.- La Sede de la Secretaría General es la ciudad de
 Washington, D.C.
-ARTICULO III.- Se eliminan los siguientes artículos de la Carta de la
-Organización de los Estados Americanos: 30, 31, 32, 33, 83, 84, 85, 86, 87
-y 88.
-ARTICULO IV.- Se incorporan los siguientes nuevos artículos a la Carta
-de la Organización de los Estados Americanos, así enumerados:
+ARTICULO III.- Se eliminan los siguientes artículos de la Carta de
+la Organización de los Estados Americanos: 30, 31, 32, 33, 83, 84, 85,
+86, 87 y 88.
+ARTICULO IV.- Se incorporan los siguientes nuevos artículos a la
+Carta de la Organización de los Estados Americanos, así enumerados:
 Artículo 8.- La condición de miembro de la Organización estará
 restringida a los Estados Independientes del Continente que al 10 de
 diciembre de 1985 fueran miembros de las Naciones Unidas y a los
-territorios no autónomos mencionados en el documento AG/doc.1939/85 cuando
-alcancen su independencia.
+territorios no autónomos mencionados en el documento AG/doc.1939/85
+cuando alcancen su independencia.
 Artículo 30.- La Cooperación Interamericana para el Desarrollo
-Integral es responsabilidad común y solidaria de los Estados Miembros en el
-marco de los principios democráticos y de las instituciones del Sistema
-Interamericano. Ella debe comprender los campos económico, social,
-educativo, cultural, científico y tecnológico, apoyando el logro de los
-objetivos nacionales de los Estados Miembros y respetando las prioridades
-que se fije cada país en sus planes de desarrollo, sin ataduras ni
-condiciones de carácter político.
+Integral es responsabilidad común y solidaria de los Estados Miembros en
+el marco de los principios democráticos y de las instituciones del
+Sistema Interamericano. Ella debe comprender los campos económico,
+social, educativo, cultural, científico y tecnológico, apoyando el logro
+de los objetivos nacionales de los Estados Miembros y respetando las
+prioridades que se fije cada país en sus planes de desarrollo, sin
+ataduras ni condiciones de carácter político.
 Artículo 31.- La Cooperación Interamericana para el Desarrollo
 Integral debe ser continua y canalizarse preferentemente a través de
 organismos multilaterales, sin perjuicio de la cooperación bilateral
 convenida entre los Estados Miembros.
-Los Estados Miembros contribuirán a la Cooperación Interamericana para
-el Desarrollo Integral, de acuerdo con sus recursos, posibilidades y de
-conformidad con sus leyes.
+Los Estados Miembros contribuirán a la Cooperación Interamericana
+para el Desarrollo Integral, de acuerdo con sus recursos, posibilidades y
+de conformidad con sus leyes.
 Artículo 32.- El desarrollo es responsabilidad primordial de cada
 país y debe constituir un proceso integral y continuado para la creación
 de un orden económico y social justo que permita y contribuya a la plena
 realización de la persona humana.
 Artículo 33.- Los Estados Miembros convienen en que la igualdad de
 oportunidades, la distribución equitativa de la riqueza y del ingreso así
-como la plena participación de sus pueblos en las decisiones relativas a su
-propio desarrollo, entre otros, son objetivos básicos del desarrollo
+como la plena participación de sus pueblos en las decisiones relativas a
+su propio desarrollo, entre otros, son objetivos básicos del desarrollo
 integral. Para lograrlos, convienen asimismo en dedicar sus máximos
 esfuerzos en la obtención de las siguientes metas básicas:
 a) Incremento sustancial y autosostenido del producto nacional per
 cápita;
 b) Distribución equitativa del ingreso nacional;
 c) Sistemas impositivos adecuados y equitativos;
-d) Modernización de la vida rural y reformas que conduzcan a regímenes
-equitativos y eficaces de tenencia de la tierra, mayor productividad
-agrícola, expansión del uso de la tierra, diversificación de la producción
-y mejores sistemas para la industrialización y comercialización de
-productos agrícolas; y fortalecimiento y ampliación de los medios para
-alcanzar estos fines;
+d) Modernización de la vida rural y reformas que conduzcan a
+regímenes equitativos y eficaces de tenencia de la tierra, mayor
+productividad agrícola, expansión del uso de la tierra, diversificación
+de la producción y mejores sistemas para la industrialización y
+comercialización de productos agrícolas; y fortalecimiento y ampliación
+de los medios para alcanzar estos fines;
 e) Industrialización acelerada y diversificada, especialmente de
 bienes de capital e intermedios;
 f) Estabilidad del nivel de precios internos en armonía con el
 desarrollo económico sostenido y el logro de la justicia social;
 g) Salarios justos, oportunidades de empleo y condiciones de trabajo
 aceptables para todos;
-h) Erradicación rápida del analfabetismo y ampliación, para todos, de
-las oportunidades en el campo de la educación;
-i) Defensa del potencial humano mediante la extensión y aplicación de
-los modernos conocimientos de la ciencia médica;
-j) Nutrición adecuada, particularmente por medio de la aceleración de
-los esfuerzos nacionales para incrementar la producción y disponibilidad de
-alimentos;
+h) Erradicación rápida del analfabetismo y ampliación, para todos,
+de las oportunidades en el campo de la educación;
+i) Defensa del potencial humano mediante la extensión y aplicación
+de los modernos conocimientos de la ciencia médica;
+j) Nutrición adecuada, particularmente por medio de la aceleración
+de los esfuerzos nacionales para incrementar la producción y
+disponibilidad de alimentos;
 k) Vivienda adecuada para todos los sectores de la población;
 l) Condiciones urbanas que hagan posible una vida sana, productiva y
 digna;
@@ -350,26 +355,27 @@ la acción del sector público, y
 n) Expansión y diversificación de las exportaciones.
 Artículo 35.- Las empresas transnacionales y la inversión privada
 extranjera están sometidas a la legislación y a la jurisdicción de los
-tribunales nacionales competentes de los países receptores y a los tratados
-y convenios internacionales de los cuales éstos sean parte y además deben
-ajustarse a la política de desarrollo de los respectivos países.
+tribunales nacionales competentes de los países receptores y a los
+tratados y convenios internacionales de los cuales éstos sean parte y
+además deben ajustarse a la política de desarrollo de los respectivos
+países.
 Artículo 84.- Con arreglo a las disposiciones de la Carta, cualquier
 parte en una controversia en la que no se encuentre en trámite ninguno de
 los procedimientos pacíficos previstos en la Carta, podrá recurrir al
-Consejo Permanente, para obtener sus buenos oficios. El Consejo, de acuerdo
-con lo establecido en el artículo anterior, asistirá a las Partes y
-recomendará los procedimientos que considere adecuados para el arreglo
+Consejo Permanente, para obtener sus buenos oficios. El Consejo, de
+acuerdo con lo establecido en el artículo anterior, asistirá a las Partes
+y recomendará los procedimientos que considere adecuados para el arreglo
 pacífico de la controversia.
-Artículo 85.- El Consejo Permanente, en el ejercicio de sus funciones,
-con la anuencia de las Partes en la controversia, podrá establecer
-Comisiones ad hoc.
-Las Comisiones ad hoc tendrán la integración y el mandato que en cada
-caso acuerde el Consejo Permanente con el consentimiento de las Partes en
-la controversia.
-Artículo 86.- El Consejo Permanente podrá, asimismo, por el medio que
-estime conveniente, investigar los hechos relacionados con la controversia,
-inclusive en el territorio de cualquiera de las Partes, previo
-consentimiento del Gobierno respectivo.
+Artículo 85.- El Consejo Permanente, en el ejercicio de sus
+funciones, con la anuencia de las Partes en la controversia, podrá
+establecer Comisiones ad hoc.
+Las Comisiones ad hoc tendrán la integración y el mandato que en
+cada caso acuerde el Consejo Permanente con el consentimiento de las
+Partes en la controversia.
+Artículo 86.- El Consejo Permanente podrá, asimismo, por el medio
+que estime conveniente, investigar los hechos relacionados con la
+controversia, inclusive en el territorio de cualquiera de las Partes,
+previo consentimiento del Gobierno respectivo.
 Artículo 87.- Si el procedimiento de solución pacífica de
 controversias recomendado por el Consejo Permanente, o sugerido por la
 respectiva comisión ad hoc dentro de los términos de su mandato, no fuere
@@ -379,12 +385,13 @@ informará a la Asamblea General, sin perjuicio de llevar a cabo gestiones
 para el avenimiento entre las Partes o para la reanudación de las
 relaciones entre ellas.
 Artículo 141.- Los órganos competentes procurarán, dentro de las
-disposiciones de la presente Carta, una mayor colaboración de los países no
-miembros de la Organización en materia de cooperación para el desarrollo.
+disposiciones de la presente Carta, una mayor colaboración de los países
+no miembros de la Organización en materia de cooperación para el
+desarrollo.
 ARTICULO V.- Se sustituye la denominación del Capítulo VII de la
 Carta, "Normas Económicas", por la de "Desarrollo Integral".
-ARTICULO VI.- Se modifica la numeración de los siguientes artículos de
-la Carta de la Organización de los Estados Americanos, así:
+ARTICULO VI.- Se modifica la numeración de los siguientes artículos
+de la Carta de la Organización de los Estados Americanos, así:
 el 8 será el 151 (disposición transitoria) el 91 será el 90
 el 35 será el 36 el 92 será el 91
 el 36 será el 37 el 93 será el 92
@@ -413,4 +420,4 @@ el 58 será el 59 el 115 será el 114
 el 59 será el 60 el 116 será el 115
 el 60 será el 61 el 117 será el 116
 el 61 será el 62 el 118 será el 117
-el 62 será el 63 el 119 será el 118
+el 62 será
