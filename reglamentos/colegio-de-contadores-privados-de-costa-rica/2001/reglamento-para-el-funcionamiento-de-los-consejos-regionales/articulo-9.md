@@ -1,0 +1,1 @@
+Artículo 9°—A los integrantes del Consejo Directivo se les pagará la dieta por la sesión mensual ordinaria a la que asistan; y por las extraordinarias, cuando hayan sido convocadas por la Junta Directiva del Colegio.

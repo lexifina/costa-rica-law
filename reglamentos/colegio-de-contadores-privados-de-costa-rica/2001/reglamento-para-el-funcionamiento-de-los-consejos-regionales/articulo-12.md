@@ -1,0 +1,1 @@
+Artículo 12.—En caso de renuncia o ausencia injustificada a tres Sesiones consecutivas de dos o más de sus miembros, el Consejo convocará a Asamblea General en un término no superior a noventa días naturales para hacer el nombramiento del sustituto o sustitutos.

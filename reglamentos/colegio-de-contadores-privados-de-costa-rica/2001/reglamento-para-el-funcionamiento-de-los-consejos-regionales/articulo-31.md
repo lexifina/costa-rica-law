@@ -1,0 +1,1 @@
+Artículo 31.—En asamblea general ordinaria de cada Consejo, la nta Directiva informara a sus afiliados sobre el estado general de los :ursos financieros y económicos que provienen del fondo financiero.

@@ -1,0 +1,2 @@
+Artículo 6°—Dichos Consejos están constituidos por un Consejo Directivo, elegido en una asamblea de Colegiados de la Jurisdicción que representen. Dicho Consejo Directivo será integrado por seis miembros, que serán nombrados de su seno y distribuidos de la siguiente manera:
+presidente, secretario, tesorero, dos vocales y un fiscal, quienes permanecerán en sus cargos dos años y podrán ser reelegidos.
