@@ -1,0 +1,2 @@
+Artículo XI.4 Confidencialidad
+Nada de lo dispuesto en este Capítulo exigirá a una Parte o a su autoridad de competencia el suministro de información en contravención a sus leyes. Las Partes mantendrán, hasta donde sea posible, la confidencialidad de toda información que la otra Parte le haya comunicado en confianza. Cualquier información que se haya transmitido se utilizará solamente para los propósitos de ejecutar la acción que se haya comunicado.
