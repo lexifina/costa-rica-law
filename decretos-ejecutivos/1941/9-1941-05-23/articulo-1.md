@@ -1,0 +1,6 @@
+N°9
+(Nota de Sinalevi: Sobre este tema véase el decreto ejecutivo N° 26066 del 15 de mayo de 1997, "Designa Laboratorio Central de AyA como Laboratorio Nacional de Aguas". Asimismo, puede consultarse el Reglamento para la calidad del Agua Potable, aprobado mediante decreto ejecutivo N° 38924 del 12 de enero de 2015 y los reglamentos Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 38 del 3 de agosto del 2022, y la Norma técnica de AyA para emitir aval técnico para el aprovechamiento de agua para consumo humano en inmuebles que integran el patrimonio natural del Estado, aprobada en sesión N° 62 del 1° de octubre de 2020.)
+Para dar cumplimiento a lo dispuesto por el decreto N°3 de 8 de marzo de 1941 sobre aguas potables, en lo que se refiere a la Secretaría de Salubridad Pública y Protección Social, y a fin de cooperar con las Municipalidades para establecer un control científico sobre todas las aguas potables del país y en especial de las que abastecen a la ciudad de San José.
+EL PRESIDENTE DE LA REPÚBLICA
+Decreta:
+Artículo 1° - Créase un Laboratorio para el control de aguas potables dependiente del Instituto Nacional de Higiene.
