@@ -1,1 +1,0 @@
-Artículo 7º.- El Presidente será el representante legal de la Junta. El Director Nacional de Comunicaciones será su personero ejecutivo y coordinará con cada uno de los directores de las dependencias, en lo que a sus propias funciones se refiere.

@@ -1,1 +1,0 @@
-Artículo 21.- Se derogan los artículos 1º, 2º, 3º, 4º, 5º, 6º, 7º y 8º de la ley Nº 4365 de 11 de agosto de 1969, reformada a su vez por ley Nº 4428 de 2 de octubre de 1969, así como toda otra disposición que expresa o implícitamente se oponga a la presente ley.

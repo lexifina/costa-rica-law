@@ -1,1 +1,0 @@
-Transitorio V.- Debido a la renovación anual de un miembro del Patronato de Comunicaciones, cada año deberá hacerse un sorteo a fin de establecer cuál de ellos ha de ser sustituido, con el fin de dar cumplimiento a lo establecido por la ley, respetando al que se ha renovado; durante los primeros cuatro años de la vigencia de esta ley.

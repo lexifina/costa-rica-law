@@ -1,3 +1,0 @@
-Artículo 6º.- Los miembros de la Junta Administrativa de la Dirección Nacional de Comunicaciones devengarán dietas por cada sesión a la que asistan, con un máximo de ocho sesiones al mes. El monto lo determinará la ley que regula las dietas para las instituciones autónomas.
-( Así reformado por ley Nº 7018 de 20 de diciembre de 1985, artículo 14 inc. 15).
-Los acuerdos se tomarán por mayoría absoluta de votos presentes. En caso de empate, se repetirá la votación y de subsistir el empate, el asunto se tendrá por desechado. El quórum estará constituido por tres miembros. La Junta nombrará entre sus miembros un Vicepresidente, quien sustituirá al Presidente en los casos de ausencia o imposibilidad.
