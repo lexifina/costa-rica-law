@@ -1,0 +1,41 @@
+ARTICULO 62 bis a).- El notario que hubiera autorizado la escritura
+podrá, bajo su responsabilidad, subsanar al pie del testimonio, los
+siguientes defectos, errores u omisiones:
+a) Los relativos al tomo, folio, asiento de inscripciones, o
+elementos de identificación de la inscripción, a inscripciones que
+fueren autorizadas por las partes o que coincidan con las referencias
+indicadas en el documento, a la situación de inmuebles, a la suma de
+derechos indivisos o del resto de ellos al segregarse parte de los
+mismos, o a la indicación de la proporcionalidad de estos. Todo lo
+anterior, hecha la salvedad de la prohibición que establece el último
+párrafo de este artículo.
+b) Los referentes a las medidas de inmuebles, salvo que evidentemente
+pudiere resultar perjuicio para el adquirente o acreedor.
+c) Los relativos a la personería de los comparecientes y
+autorizaciones de entidades.
+ch) Los que se refieran a cancelaciones, vigencia de gravámenes de
+beneficencia, timbre universitario, cancelaciones de derechos o reservas
+por fallecimiento del titular o beneficiario.
+d) Los relativos a errores u omisiones en los nombres y apellidos de
+las partes, o de las personas referidas en la escritura, o al número y
+clase de sus documentos de identificación.
+e) Los referentes a declaraciones o manifestaciones que por ley
+correspondan al notario.
+f) Los relativos a errores de copia, omisiones, errores o
+transposición de palabras, frases o párrafos que constaran correctamente
+en la escritura original o que hayan sido salvados en ésta por nota y no
+en el testimonio.
+g) Los de orden material y cualesquiera otros, cuya corrección no
+altere la voluntad de las partes ni modifique la esencia del acto o
+contrato.
+En ningún caso, salvo que el dato aparezca correcto en la escritura
+original, o se haya corregido en la misma por nota, el notario podrá
+variar al pie del testimonio, el número de la finca, la naturaleza
+declarada por las partes en la escritura, el número del asiento
+hipotecario en las cancelaciones, el número del asiento de derechos
+indivisos; excepto, en los casos en que los demás datos que indica el
+documento coincidan en forma tal, que se deduzca con claridad que se
+trata de un simple error material. Tampoco podrá variarse el estado civil
+de las personas cuando fuere evidente que se puede causar perjuicio.
+(Así adicionado por el artículo 1º de la ley No. 6145 del 18 de
+noviembre 1977).

@@ -1,0 +1,26 @@
+ARTICULO 82 bis.- El notario también podrá extender, bajo su
+responsabilidad, certificaciones relativas a inscripciones o documentos
+existentes en registros y oficinas públicas, incluso piezas de
+expedientes, así como de libros, documentos y atestados particulares o
+privados, sin que fuere necesario levantar acta en el protocolo, haciendo
+constar si la certificación es literal, en lo conducente o en relación.
+Si se tratare de certificación literal podrá usarse el sistema de
+fotocopia.
+Para todos los efectos legales, esas certificaciones tendrán el
+valor que las leyes conceden a las extendidas por los funcionarios de
+aquellas dependencias mientras no se compruebe con certificación emanada
+de éstos que carecen de exactitud, sin que sea necesario en este caso
+argüir falsedad.
+El notario que en dichas certificaciones consignare datos falsos,
+aparte de las responsabilidades penales y civiles correspondientes, será
+sancionado de acuerdo con las disposiciones del capítulo V (Régimen
+Disciplinario) de esta ley conforme a la gravedad de la falta.
+Las certificaciones que expidan los notarios según lo autoriza este
+artículo deberán satisfacer las especies fiscales que corresponda pagar a
+las que extienda la Oficina o Registro de los cuales se certifiquen
+inscripciones o documentos.
+Pero si se tratare del Registro Público, deberán pagarse los
+derechos respectivos o agregarse su importe en timbres del Registro
+Nacional.
+(Así adicionado por el artículo 1º de la Ley Nº 6245 de 2 de mayo de 1978
+y reformado por el 19 de la Nº 6575 de 27 de abril de 1981).
