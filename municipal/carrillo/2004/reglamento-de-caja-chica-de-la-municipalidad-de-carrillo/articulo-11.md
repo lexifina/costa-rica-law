@@ -1,0 +1,1 @@
+Artículo 11.—El Alcalde Municipal firma y sella el original y la copia del comprobante luego de confirmar sí el gasto se ajusta a lo estipulado en el artículo 5 de este Reglamento, y lo remite a la Tesorería.

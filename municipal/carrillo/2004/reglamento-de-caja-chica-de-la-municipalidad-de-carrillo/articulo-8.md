@@ -1,0 +1,1 @@
+Artículo 8º—El Tesorero (a) encargado de Caja Chica no tramitará el adelanto sí existe incumplimiento en el detalle indicado anteriormente. En todos los casos, el encargado de la Caja Chica desde cerciorarse antes de entregar el adelanto, que cumple con el artículo 7º de este Reglamento.

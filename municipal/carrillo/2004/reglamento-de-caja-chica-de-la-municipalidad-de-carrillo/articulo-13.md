@@ -1,0 +1,2 @@
+Artículo 13.—Cumplidas las formalidades señaladas en el artículo 7º, el Tesorero (a) entrega el dinero a quien corresponda, se reserva el original del comprobante y remite la copia al Encargado de la Proveeduría y procede a darle el tratamiento que señala el artículo 8º del Reglamento General de la Proveeduría Municipal, el Encargado de la Proveeduría, recibirá la compra de bienes y servicios.
+Una vez hecha la compra, el Tesorero solicita a la persona que recibió el adelanto de caja chica, que los justificantes sean originales timbradas, cuando esto proceda.

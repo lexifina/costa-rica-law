@@ -1,0 +1,2 @@
+Artículo 9º—Los adelantos de Caja Chica deben liquidarse dos días hábiles siguientes a la fecha de entrega o retiro del adelanto de dinero para adquirir bienes y servicios, de no hacerse así se aplicará las sanciones correspondientes.
+Exceptuando por motivo de enfermedad o gira emergente y casos de fuerza mayor, no pudiese cancelar el adelanto en el término estipulado en este artículo, deberá notificar a su Jefe inmediato, para que éste, en forma escrita así lo indique el Encargado de Caja Chica.

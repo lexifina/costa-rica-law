@@ -1,0 +1,1 @@
+Artículo 18.—En el evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente de la Municipalidad de Carrillo, previo confección del recibo comprobante de ingreso en la Oficina del Servicio al Cliente de Contabilidad y cancelado en la Caja Recaudadora de esta Municipalidad.
