@@ -171,3 +171,4 @@ articulo-168.md
 articulo-169.md
 articulo-170.md
 articulo-66-bis.md
+articulo-67-bis.md
