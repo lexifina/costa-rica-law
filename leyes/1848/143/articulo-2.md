@@ -1,0 +1,1 @@
+Art 2. En consecuencia se formarà la liquidacion correspondiente hasta el 29 del próximo pasado y el Gobierno acordará lo que convenga á este respecto. -Dado en la eindad de San José á los trece dias del mes de setiembre de mil ochocientos cuarenta y ocho. - José Maria Castro.-El Ministro de relaciones y gobernacion, Joaquin Bernardo Calvo.”
