@@ -14,3 +14,4 @@ Reglamento Inscripción y Propaganda Medicamentos Cosméticos y Productos Sanita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-06 | la propia norma |
+| 2 | 1994-07-12 | Decreto Ejecutivo 23527 (1994-07-12) |

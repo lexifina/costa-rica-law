@@ -1,6 +1,7 @@
 Artículo 17°. - Deberá incluir los siguientes documentos:
 a.- Copia del certificado de inscripción del laboratorio fabricante.
-b.- Certificado del registro (libre venta) o certificado de la calidad tipo O.M.S.
+b.- Certificado de libre venta del país de origen o certificado de la calidad de tipo O.M.S.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23527 del 12 de julio de 1994)
 c.- Original y copia de la declaración extendida por el profesional responsable de la fabricación, en la que se haga constar la fórmula cuali-cuantitativa completa del producto, incluyendo principios activos, vehículos, colorantes, edulcorantes y otros aditivos. Este requisito no se exigirá cuando dicha fórmula se encuentre detallada en el certificado de registro (libre venta) o en certificado de la calidad tipo O.M.S.
 d.- Original y copia del método de análisis correspondiente al producto terminado que se pretende inscribir. Cuando el método no es oficial, se deberá adjuntar la documentación de validación del método.
 e.- Certificado de marca de fábrica y comercio o nombre comercial. No se exigirá para la inscripción de medicamentos genéricos.
