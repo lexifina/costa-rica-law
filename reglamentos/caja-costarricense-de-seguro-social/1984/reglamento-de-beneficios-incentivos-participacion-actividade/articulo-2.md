@@ -1,1 +1,0 @@
-Articulo 2°—Las solicitudes a que este Reglamento se refiere serán transmitidas por medio del Centro Nacional de Docencia e Investigación en Salud y Seguridad Social, el cual enviará la documentación con las recomendaciones pertinentes a la Gerencia de la División Médica. Esta examinará el caso y lo elevará a la Junta Directiva para su resolución final.

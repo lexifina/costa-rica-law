@@ -1,1 +1,0 @@
-Artículo 3°—El presupuesto que asigne la Institución para estos efectos se dividirá en partidas semestrales y se dará prioridad para el otorgamiento de las ayudas a aquellas destinadas a trabajos o presentaciones en congresos internacionales.

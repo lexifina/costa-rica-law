@@ -1,1 +1,0 @@
-Artículo 9°—Las recomendaciones del Centro Nacional de Docencia e Investigación en Salud v Seguridad Social y sus antecedentes, tendrán carácter confidencial y sobre tales extremos no se podrán dar detalles o datos a terceros.

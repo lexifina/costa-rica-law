@@ -1,1 +1,0 @@
-Artículo 6°—E1 Centro Nacional de Docencia e Investigación en Salud y Seguridad Social, de previo a extender la recomendación pertinente podrá pedir a los interesados o a las organizaciones involucradas en la actividad la información y los documentos que estime necesarios a fin de obtener mayores elementos de juicio.
