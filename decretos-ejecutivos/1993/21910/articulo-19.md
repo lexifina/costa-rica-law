@@ -1,0 +1,1 @@
+Artículo 19.-Si transcurriere el plazo indicado en el artículo 16, sin que se haga la publicación o la inscripción por culpa del petente, la tramitación quedará sin efecto, la solicitud se tendrá por no presentada y los antecedentes serán archivados.

@@ -1,0 +1,1 @@
+Artículo 11.-Todo aquel que tuviere en trámite o que le hubiese sido otorgada una concesión anterior sobre la misma área, o un derecho preferente, podrá interponer oposición a la solicitud dentro del plazo de quince días, contados a partir de la fecha de la última publicación en "La Gaceta".

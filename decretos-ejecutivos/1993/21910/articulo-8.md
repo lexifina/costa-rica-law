@@ -1,0 +1,1 @@
+Artículo 8º-Una vez aprobada la información a que hace referencia el inciso i) del artículo 5º, el solicitante está obligado a correr con los gastos de la correspondiente inspección de campo, a cuya realización queda supeditada la aprobación definitiva de dicha información.

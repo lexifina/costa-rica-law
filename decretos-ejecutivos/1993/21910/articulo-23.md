@@ -1,0 +1,1 @@
+Artículo 23.-Si la DGM considera que el plano de amojonamiento está incorrecto o incompleto, prevendrá al concesionario para que en un plazo no mayor de un mes presente las correcciones solicitadas. Caso de presentar nuevamente incorrecto el plano o de no cumplir con lo solicitado dentro del plazo otorgado, se procederá a la cancelación de la concesión sin más trámite.
