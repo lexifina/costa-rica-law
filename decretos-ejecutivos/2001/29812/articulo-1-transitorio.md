@@ -1,0 +1,3 @@
+Transitorio único.—La Dirección General de Tributación podrá disponer, mediante resolución de carácter general, la creación de las Subgerencias o Áreas de Gestión en aquellas Administraciones Tributarias que estime conveniente, conforme a los recursos disponibles.
+En tanto se crean dichas Subgerencias o Áreas, las funciones de Gestión y de Recaudación serán ejercidas por las actuales Subgerencias o Áreas de Recaudación y Atención al Contribuyente, cuya denominación variará a Subgerencias o Áreas de Recaudación y Gestión, a partir de la entrada en vigencia del presente decreto.
+Dado en la Casa Presidencial.—San José, a los cinco días del mes de setiembre del dos mil uno.
