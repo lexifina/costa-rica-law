@@ -1,0 +1,1 @@
+Artículo 3°— La Oficina de Planificación Nacional y Política Económica sólo aprobará aquellas compras o cambios de vehículos cuando fueran indispensables de acuerdo a las necesidades de la institución, debidamente justificadas.

@@ -1,0 +1,1 @@
+Artículo 6°—No podrá publicarse ningún cartel de licitación de compra o cambio de vehículos, sin que antes, en su caso, se haya obtenido la autorización de OFIPLAN y el refrendo de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Articulo 8°—Toda solicitud de autorización de compra o cambio de vehículos deberá presentarse en el formulario correspondiente establecido por la Oficina de Planificación Nacional y Política Económica.

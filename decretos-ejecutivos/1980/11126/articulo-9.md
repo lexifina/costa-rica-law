@@ -1,0 +1,1 @@
+Artículo 9°—Este Reglamento se aplicará sin perjuicio de lo dispuesto en el Decreto Ejecutivo número 9809-T del veintitrés de marzo de mil novecientos setenta y nueve y publicado en " La Gaceta " número 186 de 27 de marzo de 1979.

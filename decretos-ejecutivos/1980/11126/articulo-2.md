@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos' del presente Reglamento, se considerará como compra o cambio de vehículos la operación en la cual el Poder Ejecutivo, las instituciones autónomas y semiautónomas, adquieran vehículos automotores para transporte de personas o de uso mixto de transporte de personas y carga. Quedan excluidas las aceptaciones de donaciones.

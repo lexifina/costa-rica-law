@@ -1,0 +1,1 @@
+Artículo 5°—A juicio de la Oficina de Planificación Nacional y Política Económica, y en casos excepcionales de verdadera urgencia, OFIPLAN tramitará la solicitud de autorización a que se refiere el artículo 49 del presente Reglamento en un plazo menor.
