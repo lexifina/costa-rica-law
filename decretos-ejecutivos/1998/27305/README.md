@@ -14,3 +14,4 @@ Registro Genealógico de Ganado Simbrah y Simmental de Costa Rica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-25 | la propia norma |
+| 2 | 2003-07-08 | Decreto Ejecutivo 31355 (2003-07-08) |
