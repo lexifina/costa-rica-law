@@ -1,0 +1,1 @@
+Artículo 32.—El CONACOVIRENA es un acto convocado para el efecto, entregará un reconocimiento, consistente en una placa y un pergamino a las personas y grupos seleccionados y le dará al evento la publicidad necesaria, a fin de darle la suficiente notoriedad.
