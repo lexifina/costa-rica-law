@@ -1,2 +1,0 @@
-Artículo 69.—En caso de que la apelación planteada al Comité se relacione con uno de sus miembros, éste quedará inhibido de conocer el asunto y será necesario nombrar sustituto, el que durará en funciones hasta -que el Comité resuelva la situación. El nombramiento del sustituto lo hará el director del plantel o el supervisor escolar en los centros docentes con menos de tres educadores y en las escuelas de maestro único.
-[imagen]

@@ -1,1 +1,0 @@
-Artículo 59.—En el Tercer Ciclo, la no aprobación de las materias objeto de examen, una vez realizadas las dos convocatorias de que habla el artículo anterior, producirá la condición de reprobado en la respectiva asignatura o actividad.

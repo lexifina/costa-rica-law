@@ -1,1 +1,0 @@
-Artículo 13.—El Comité de Evaluación tendrá un presidente, un secretario y un vocal nombrados de su propio seno. Sus acuerdos tendrán validez cuando sean tomados por dos de sus miembros. El Comité de Evaluación podrá contar con la colaboración del orientador.

@@ -1,1 +1,0 @@
-Artículo 54.—Las decisiones de aprobado o reprobado tendrán carácter de acuerdos del Consejo, no pudiendo ser variadas posteriormente sino por el mismo Consejo, salvo en los casos de apelación ante el Comité de Evaluación.
