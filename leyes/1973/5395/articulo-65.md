@@ -1,0 +1,5 @@
+Artículo 65.- La investigación experimental científica que tenga
+como sujeto a seres humanos, sólo podrá ser realizada por profesionales
+especialmente calificados, quienes asumirán la absoluta responsabilidad
+de las experiencias, en establecimientos que el Ministerio haya
+autorizado para tales efectos.

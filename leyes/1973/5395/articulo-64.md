@@ -1,0 +1,5 @@
+Artículo 64.- Los profesionales en ciencias de la salud que
+intervengan en investigaciones experimentales científicas que tengan como
+sujeto a seres humanos, deberán inscribirse en el Ministerio declarando
+la naturaleza y fines de la investigación y el establecimiento en que se
+realizará.
