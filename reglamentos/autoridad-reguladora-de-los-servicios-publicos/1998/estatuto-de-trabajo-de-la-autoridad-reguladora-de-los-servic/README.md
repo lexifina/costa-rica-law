@@ -14,3 +14,4 @@ Estatuto de Trabajo de la Autoridad Reguladora de los Servicios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-15 | la propia norma |
+| 2 | 2001-08-22 | Reglamento 261 (2001-08-22) |
