@@ -1,1 +1,1 @@
-Artículo 4º°—El adjudicatario de una Patente Temporal de Licores deberá cancelar en la Tesorería Municipal antes del inicio de la actividad la suma hasta un máximo de ¢5.000 que el Alcalde Municipal establezca por concepto de recolección de basura producto de la operación de la patente y la cantidad de ¢1.000 diarios por concepto de gastos administrativos.
+Artículo 4°.- Se establece en ¢3.000,00 el pago por cada día de explotación de la patente.

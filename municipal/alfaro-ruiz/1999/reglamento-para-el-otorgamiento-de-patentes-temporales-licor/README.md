@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Patentes Temporales Licor en el Cantón de Al
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-07 | la propia norma |
+| 2 | 2000-09-01 | Reglamento municipal 34 (2000-09-01) |
