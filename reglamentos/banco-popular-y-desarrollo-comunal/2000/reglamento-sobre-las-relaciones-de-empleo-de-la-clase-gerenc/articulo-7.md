@@ -1,0 +1,1 @@
+Artículo 7°—Los Directores de Macroprocesos, Gerentes de Sucursales, Coordinadores de Proceso 2, serán nombrados por la Gerencia General, todo de conformidad con el presente Reglamento y las leyes aplicables. Su nombramiento se hará mediante concurso y la Junta Directiva Nacional aprobará los perfiles de los puestos.

@@ -1,0 +1,1 @@
+Artículo 11.—El Banco se compromete a brindar a estos funcionarios, cuando así lo requieran, los servicios médicos y de odontología en las mismas condiciones en que los reciben los demás funcionarios del Banco.

@@ -1,0 +1,1 @@
+Artículo 9°—En razón de la posición jerárquica, de alta dirección, responsabilidad y confianza propia de los cargos que regula este Reglamento, los funcionarios que ocupen tales puestos no se consideran sujetos al límite de la jornada laboral de conformidad con lo dispuesto en el artículo 143 del Código de Trabajo.

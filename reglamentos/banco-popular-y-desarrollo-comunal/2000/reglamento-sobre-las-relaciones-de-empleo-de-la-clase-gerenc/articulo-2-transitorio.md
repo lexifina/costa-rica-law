@@ -1,0 +1,1 @@
+Transitorio II.—Los funcionarios que actualmente ocupan los cargos de Gerente General y Subgerentes continuarán en sus cargos hasta que venza el período para el cual fueron nombrados inicialmente, sin perjuicio de ser reelectos.
