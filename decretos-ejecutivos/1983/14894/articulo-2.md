@@ -1,0 +1,1 @@
+Artículo 2°—La estimación del lote de terreno es de 2S 2.915.780,00 (dos millones novecientos quince mil setecientos ochenta colones) que corresponde al total de la suma a pagar de conformidad con el avalúo N° 77 del Ministerio de Obras Públicas y Transportes.
