@@ -1,0 +1,1 @@
+Artículo 2°.- Se autoriza a la indicada Junta de Educación para donar el inmueble número 24093, descrito en el artículo anterior, a la Municipalidad del Cantón Central de Alajuela, la cual lo destinará a Mercado de Dulce.
