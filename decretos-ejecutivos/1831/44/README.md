@@ -15,3 +15,4 @@ Reglamento de Aguardientes
 | 1 | 1831-10-05 | la propia norma |
 | 2 | 1833-10-26 | Decreto Ejecutivo 45 (1833-10-26) |
 | 3 | 1835-09-05 | Decreto Ejecutivo 136 (1835-09-05) |
+| 4 | 1836-12-20 | Decreto Ejecutivo 181 (1836-12-20) |
