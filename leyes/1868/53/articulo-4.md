@@ -1,0 +1,1 @@
+Art 4° Bajo las bases contenidas en el artículo anterior, se convocarán postores por el Juzgado de Hacienda dentro del término de treinta días, a contar de la fecha del cartel vencido el cual se procederá al remate.
