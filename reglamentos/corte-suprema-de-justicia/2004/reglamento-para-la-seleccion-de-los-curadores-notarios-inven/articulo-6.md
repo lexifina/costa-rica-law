@@ -1,0 +1,3 @@
+Artículo 6º—Concursos. Para las listas se publicará en el Boletín Judicial y en un periódico de circulación nacional un concurso cada dos años, en el cual se indicarán los requisitos legales, los atestados que deben presentarse y la fecha de cierre, que será de quince días a partir de la publicación.
+Las ofertas podrán hacerse mediante comunicación escrita remitidas por cualquier medio que resulte fidedigno, y serán absolutamente ineficaces las que se presenten fuera del plazo señalado.
+Las ofertas deberán presentarse en los términos que se indicarán en el respectivo cartel, y oportunamente podrán complementarse con algún atestado omitido dentro de los cinco días hábiles siguientes a la expiración del plazo. Caso contrario serán absolutamente ineficaces.

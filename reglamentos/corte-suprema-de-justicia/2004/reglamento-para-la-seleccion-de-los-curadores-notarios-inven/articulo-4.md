@@ -1,0 +1,1 @@
+Artículo 4º—Vigencia de la designación. Las personas que se escojan se mantendrán en las listas durante cinco años, a partir de la firmeza del acto de designación, pudiendo ser designadas para nuevos períodos.

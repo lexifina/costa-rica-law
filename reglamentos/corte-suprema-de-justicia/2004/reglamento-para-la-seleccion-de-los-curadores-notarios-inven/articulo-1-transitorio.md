@@ -1,0 +1,2 @@
+Artículo transitorio único. Las listas de curadores y notarios inventariadores existentes en la actualidad, quedarán sin efecto a partir del momento en que entre en vigencia este reglamento, sin perjuicio de que las personas que las integran puedan participar en los futuros concursos que se convoquen conforme al reglamento que se promulga. Pero, mientras se integran las nuevas listas, las designaciones que sea necesario hacer, podrán llevarse a cabo con la nómina existente actualmente, siempre en concordancia con lo dispuesto”.
+San José, 5 de octubre del 2004.

@@ -1,0 +1,4 @@
+Artículo 3º—Requisitos. Las personas interesadas en integrar las listas de curadores deberán reunir los requisitos señalados en los artículos 873 del Código de Comercio y 923 del Civil, según se trate de procesos de quiebra o de concurso civil, respectivamente.
+Las condiciones para servir como interventor se ajustarán a lo dispuesto por el artículo 720 del Código Procesal Civil.
+Los notarios inventariadores deberán tener una experiencia comprobada en el ejercicio de notariado de por lo menos cinco años.
+En todos los casos deberán ser personas de capacidad y honradez reconocidas y en la selección se le dará preferencia a quienes ostenten una mayor preparación académica y experiencia específica en el campo del derecho concursal o empresarial, según los atestados que se presenten con la oferta respectiva.

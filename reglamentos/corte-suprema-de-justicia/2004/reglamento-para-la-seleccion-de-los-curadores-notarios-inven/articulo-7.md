@@ -1,0 +1,1 @@
+Artículo 7º—Plazo para hacer la designación. El órgano administrativo, resolverá lo que corresponda dentro del mes siguiente a la expiración del plazo indicado en el párrafo final del artículo anterior.
