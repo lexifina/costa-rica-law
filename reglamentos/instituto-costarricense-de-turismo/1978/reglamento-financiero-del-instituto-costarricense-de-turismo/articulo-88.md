@@ -1,1 +1,0 @@
-Articulo 88.—La liquidación de los fondos de caja chica deberá hacerse, por lo menos, una vez al mes, en la fórmula editada al efecto, o cuando se hubiere gastado más del cincuenta por ciento de los fondos asignados.

@@ -1,1 +1,0 @@
-Artículo 63.—La Contabilidad confeccionará los cálculos durante los cuarto y quinto días hábiles del mes, previa consulta a la Oficina de Presupuesto sobre la disponibilidad de fondos y los pasará a la Auditoria para su revisión final.

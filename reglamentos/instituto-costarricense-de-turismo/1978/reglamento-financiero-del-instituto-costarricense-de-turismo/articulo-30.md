@@ -1,1 +1,0 @@
-Articulo 30.—La Proveeduría avisará inmediatamente al jefe de la unidad que haya requerido sus servicios para la adquisición de artículos de los cuales no haya existencia, tales como papelería y útiles y otros objetos similares.

@@ -1,1 +1,0 @@
-Articulo 72.— No obstante lo establecido por los artículos 68 y 76, se podrá reconocer justificantes provenientes del uso de tarjetas de crédito, a criterio de la Dirección Superior que deba autorizar los gastos respectivos.

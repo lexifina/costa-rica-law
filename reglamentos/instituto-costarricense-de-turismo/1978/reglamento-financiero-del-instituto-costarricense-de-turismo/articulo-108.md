@@ -1,1 +1,0 @@
-Artículo 108.—Se exceptúa de este fondo la prohibición establecida por el artículo 82, inciso a). Tampoco se requerirá la autorización previa de la Oficina de Presupuesto, los pagos tramitados con estos fondos.

@@ -1,1 +1,0 @@
-Artículo 52.—Los pagos que afectan el presupuesto se canalizarán a través de Servicios Generales que procederá a confeccionar la factura, obtener los refrendos que correspondan y enviar a la Oficina de Presupuesto los documentos.

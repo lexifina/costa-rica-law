@@ -1,2 +1,0 @@
-Artículo 22.—El adjudicatario deberá presentar una garantía de cumplimiento del 3% sobre el valor de la adjudicación dentro de un plazo de tres días hábiles al momento en que quede firme la adjudicación. Cuando se trate de ofertas hechas por personas físicas o jurídicas, en el exterior, ese término será de tres días hábiles.
-En todo lo conducente a las garantías, tanto de cumplimiento como de particulares se aplicará lo dispuesto por el capítulo cuarto, artículos 55 a 74 del Reglamento de la Contratación Administrativa.

@@ -1,1 +1,0 @@
-Articulo 80.—Los encargados de la custodia de los fondos asignados a cada caso en particular, responderán por el correcto manejo de los mismos ante sus 'superiores inmediatos, asi como ante la Auditoria del Instituto. Esta última, de acuerdo con lo que establece el articulo 35. inciso b), de la Ley Orgánica del ICT, realizará arqueos y verificaciones periódicas de estos fondos.

@@ -1,1 +1,0 @@
-Articulo 116.—El cuidado y manejo de esos fondos estará a cargo de la Secretaría de la Presidencia Ejecutiva, quien será responsable directa de su correcto manejo de acuerdo con lo que dispone este Reglamento.

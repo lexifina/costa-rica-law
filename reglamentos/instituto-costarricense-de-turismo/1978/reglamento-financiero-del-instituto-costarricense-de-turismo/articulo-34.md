@@ -1,1 +1,0 @@
-Artículo 34.—La Sección de Proveeduría enviará copia del inventario mensual de existencias de material promocional al Departamento de Mercadotecnia, a efecto de que éste ordene, si es del caso, la reposición de artículos que estén por . agotarse.

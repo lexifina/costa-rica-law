@@ -1,1 +1,0 @@
-Artículo 25.—Para los efectos no contemplados en este Reglamento, concernientes a trámites de licitaciones públicas, se aplicará lo dispuesto por la Ley de la Administración Financiera y el Reglamento para la Contratación Administrativa.

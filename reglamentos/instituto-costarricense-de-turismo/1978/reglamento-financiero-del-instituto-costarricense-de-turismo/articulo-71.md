@@ -1,1 +1,0 @@
-Articulo 71.—Cuando en los viajes que se realicen, tanto dentro como fuera del pais, se incurriera en "gastos de representación", deberá sujetarse a las disposiciones estipuladas por el capitulo XIV de este Reglamento.
