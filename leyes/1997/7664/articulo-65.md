@@ -9,5 +9,6 @@ del Sistema Bancario Nacional. Además, el Ministerio podrá establecer
 convenios con organismos internacionales de protección fitosanitaria, de
 los que Costa Rica sea miembro. La revisión y el control estarán a cargo
 de la Contraloría General de la República.
-Cuando la administración se realice mediante fideicomiso, el contrato
-se suscribirá con cualquiera de los bancos del Sistema Bancario Nacional.
+Cuando la administración se realice mediante fideicomiso, el
+contrato se suscribirá con cualquiera de los bancos del Sistema Bancario
+Nacional.

@@ -8,8 +8,8 @@ Ordinario y Extraordinario de la República.
 b) Los ingresos percibidos por concepto de multas o venta de
 productos decomisados de conformidad con la presente ley.
 c) Los legados y las donaciones de personas físicas o jurídicas,
-organizaciones nacionales o internacionales, privadas o públicas, y los
-aportes del Estado o sus instituciones.
+organizaciones nacionales o internacionales, privadas o públicas,
+y los aportes del Estado o sus instituciones.
 d) Ingresos por concepto de registro y certificación de productos
 orgánicos.
 e) Ingresos por concepto de servicios para la importación o

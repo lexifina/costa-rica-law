@@ -9,10 +9,10 @@ químicos destinados al uso agrícola, que se cancelará en cada
 solicitud de autorización de desalmacenaje que se presente ante
 el Servicio Fitosanitario del Estado."
 TRANSITORIO II.- Como estrategia para promover la producción
-orgánica, el Estado cubrirá los gastos de certificación durante un período
-hasta de dos años de los agricultores que demuestren, ante el Servicio
-Fitosanitario del Estado, ser pequeños productores orgánicos y no estar en
-capacidad financiera de pagar la certificación. Los parámetros para
-calificar como pequeños productores, serán desarrollados por el Ministerio
-mediante reglamento.
+orgánica, el Estado cubrirá los gastos de certificación durante un
+período hasta de dos años de los agricultores que demuestren, ante el
+Servicio Fitosanitario del Estado, ser pequeños productores orgánicos y
+no estar en capacidad financiera de pagar la certificación. Los
+parámetros para calificar como pequeños productores, serán desarrollados
+por el Ministerio mediante reglamento.
 Rige a partir de su publicación.
