@@ -1,0 +1,1 @@
+Artículo 2°—E1 monto a cancelar será de 105.019.076.000,00 y corresponde a los abonos numerados del 37 al 80 de la citada emisión, por lo cual la Tesorería Nacional procederá a ajustar Los cupones que vencen a partir del 1° de setiembre de 1998.
