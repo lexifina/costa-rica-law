@@ -31,3 +31,7 @@ Fuera de los determinados en las leyes vigentes, son motivo de utilidad pública
 No podrá el Instituto hacer donaciones de ninguna especie, pero esto no le impedirá traspasar a título gratuito las áreas públicas y comunales de sus programas a la entidad que corresponda, las que se tendrán como parte del porcentaje que debe cederse para parques y facilidades comunales según las leyes o reglamentos de fraccionamiento y urbanización.
 (Así reformado el inciso ñ) anterior por el artículo único de la ley N° 3349 del 7 de agosto de 1964)
 o) Dar información y ayuda técnica a las personas de pocos recursos, a fin de que puedan construir viviendas propias y debidamente planeadas, todo de acuerdo con el Reglamento que sobre el particular sea dictado.
+p) Dar asesoría a las cooperativas de vivienda y a las de ahorro que efectuaren préstamos para vivienda, cuando éstas lo soliciten, colaborando en la vigilancia de la construcción, según sus propias normas y especificaciones.
+(Así adicionado el inciso anterior por el artículo 4° de la ley N° 5185 del 20 de febrero de 1973)
+q) Entrar en diversos arreglos con las cooperativas citadas en el inciso anterior para el mejor beneficio de sus objetivos comunes.
+(Así adicionado el inciso anterior por el artículo 4° de la ley N° 5185 del 20 de febrero de 1973)
