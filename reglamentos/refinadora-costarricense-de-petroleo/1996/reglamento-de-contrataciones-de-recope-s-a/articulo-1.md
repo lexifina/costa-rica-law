@@ -8,14 +8,16 @@ Para los efectos del Presente Reglamento se entenderá por:
 1.1 Actividad Ordinaria: Conforme a lo dispuesto por la Ley General de la Administración Pública No 6227 del 2 de mayo de 1978. artículo 3.2, la Ley No 6588 del 30 de julio de 1981, artículo sexto, se define como actividad ordinaria de RECOPE.
 1.1.1. La venta de productos.
 1.1.2. La compra, venta, fletamento e inspección de petróleo crudo y sus derivados.
-(Así reformado estos dos puntos por Acuerdo de Sesión Nº 3089 del 31 de julio de 1996)
+(Así reformado estos los puntos 1.1; 1.1.1 y 1.1.2 por Acuerdo de Sesión Nº 3089 del 31 de julio de 1996)
 1.1.3 La compra de insumos requeridos en los procesos de importación, refinación y distribución de crudo y sus derivados.
 1.1.4 Las contrataciones de servicios para mantenimiento preventivo o correctivo de las instalaciones requeridas en los procesos de importación, refinación y distribución.
 1.2 Administración: Todo órgano o unidad administrativa de cualquier nivel de la estructura orgánica de Recope, con participación directa en alguna de las fases de los procedimientos de contratación regulados por este Reglamento.
 1.3 Administración Superior: Es la conformada por la Junta Directiva, Presidencia, Gerencia General y Auditoría General de la Empresa.
 1.4 Alquiler o arrendamiento con opción de compra: Aquella contratación por la cual se toma en arrendamiento un bien a un plazo determinado, con el derecho preferente por parte de Recope de proceder a su adquisición.
-1.5 Anticipo de pago: Es el monto correspondiente a un porcentaje del precio contractual que, debidamente autorizado en el cartel o documento que haga las veces de éste, se concede extraordinariamente al contratista al inicio de la ejecución contractual siempre que de esta forma se obtenga un beneficio para Recope y se satisfaga mejor el interés público. En los casos de contratos de obra éste se podrá otorgar para cubrir parte de los costos directos del monto de la obra, actividad o renglón de trabajo de ésta.
-1.6 Adelanto de pago: Es el monto que, en casos excepcionales en ' contratos de obra, se concede al contratista en forma adelantada durante la ejecución de ésta, para la adquisición de materiales y equipos a incorporar en un renglón de trabajo, siempre que de esta forma se obtenga un beneficio para Recope y se satisfaga mejor el interés público.
+1.5 Anticipo de pago: Es el monto correspondiente a un porcentaje del monto total adjudicado que, debidamente autorizado en el cartel o el documento que haga las veces de éste, se concede extraordinariamente al contratista al inicio de la ejecución contractual para atender un propósito específico, asociado con la cobertura de costos directos, cuyo efectivo cumplimiento será verificado por la inspección asignada por RECOPE, siempre que de esta forma se satisfaga mejor el interés público.
+(Así reformado el punto 1.5 por Acuerdo de Sesión Nº 3132 del 15 de enero de 1997)
+1.6. Adelanto de pago: ELIMINADO
+(Así eliminado por Acuerdo de Sesión Nº 3132 del 15 de enero de 1997)
 1.7 Bienes y servicios específicos: Aquellos propios de cada unidad administrativa, necesarios para garantizar el funcionamiento operativo de la misma.
 1.8 Bienes de inventario permanente: Aquellos que se consumen o requieren en forma normal, consecutiva y permanente para satisfacer las necesidades normales de la Empresa, de los cuales puede planificarse su consumo o requerimiento para determinado período.
 1.9 Bienes y servicios de proyectos: Son todos aquellos necesarios para la ejecución de los proyectos de inversión.
