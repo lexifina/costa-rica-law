@@ -1,1 +1,0 @@
-Artículo 9° —Se deroga parcialmente el Decreto Ejecutivo N° 22676-MOPT del 09 de noviembre de 1993, publicado en "La Gaceta" N° 232 del 03 de diciembre de 1993. Manteniéndose vigente únicamente en su numeral tercero.

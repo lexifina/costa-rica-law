@@ -1,1 +1,0 @@
-Artículo 8° — Se determina la necesidad de emitir a la brevedad posible el Reglamento de Organización y Servicio para la Policía de Tránsito del Ministerio de Obras Públicas y Transportes, mismo que deberá comprender los cambios que el Proceso de Reestructuración y Reorganización implementado conlleva.

@@ -1,1 +1,0 @@
-Artículo 7° — Los ajustes en cuanto a funciones nomenclativas y definición de procesos para la Policía de Tránsito, serán realizados por Planeamiento Administrativo del Ministerio de Obras Públicas y Transportes.
