@@ -1,0 +1,1 @@
+Art 2°.- El Gobierno, en subrogación de los enunciados diezmos, dará del Tesorero Nacional al Obispado la suma de diez mil pesos anuales, para los objetos que determina el art 5 citado del concordato y la escala a que se refiere.

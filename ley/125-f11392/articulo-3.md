@@ -1,0 +1,1 @@
+Art 3°.- La suma enunciada de diez mil pesos se pagará en la Administración Principal a la orden y disposición del ilustirsimo Señor Obispo, por mensualidades, de preferencia a cualquier otro gasto y sin interrupción alguna.
