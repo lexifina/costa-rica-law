@@ -13,3 +13,4 @@ Reglamento a la Ley de Trueque
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-01-11 | la propia norma |
+| 2 | 1983-01-11 | SINALEVI (sin norma nombrada) |
