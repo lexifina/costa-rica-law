@@ -1,0 +1,1 @@
+Articulo 131.—Usos condicionales. De la lista del anexo 1 los numerales 2, 4 y 5, 16, 19, 22, 24 y 25. Otros usos comerciales solo podrán ser autorizados como usos condicionales, previo estudio específico y ver anexo No 3.

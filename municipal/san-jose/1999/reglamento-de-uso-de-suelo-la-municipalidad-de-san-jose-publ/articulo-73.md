@@ -1,0 +1,2 @@
+Articulo 73-—Jerarquización. Corredores de Comercio y Servicios. CORREDOR URBANO NACIONAL (C.N.C.S.). Área urbana de forma lineal en la que se agrupan actividades de servicios y comercio, cuya área de servicio es de nivel nacional.
+CORREDOR URBANO LOCAL (C.L.C.S.). Arca urbana local desarrollada en forma lineal, con actividades comerciales y de servicios públicos y privados, cuya área de servicio abarca uno o varios distritos del cantón.

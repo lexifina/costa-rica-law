@@ -1,0 +1,1 @@
+Artículo 101.—Usos condicionales. De la lista del anexo 1 los numerales 12. 16 y 17. En el caso de vivienda la densidad será la indicada para la zona de uso residencial de alta densidad. (Articulo 56) cumpliendo los demás requisitos del articulo 102.

@@ -1,0 +1,1 @@
+Articulo 89.—Usos condicionales. De la lista del anexo 1 los numerales 8, 10, 12, 17. 18, 19. 20. En caso de vivienda la densidad será igual al indicado por la zona de uso residencial de media - alta densidad. (Artículo 58). Cumpliendo con los demás requisitos (Articulo 90). Anexo No 3.

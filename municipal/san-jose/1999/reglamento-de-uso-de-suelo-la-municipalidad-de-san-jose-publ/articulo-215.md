@@ -1,0 +1,2 @@
+Artículo 215.—Para proteger los sitios de valor Histórico y Cultural, la Municipalidad, gestionara la recaudación de los fondos necesarios. Podrá establecer convenios con organismos internacionales, países amigos, fundaciones y con los propietarios de los edificios u obras, motivándolos para que ellos continúen con la preservación de estos sitios.
+Nota: Este reglamento tiene como complemento doce mapas

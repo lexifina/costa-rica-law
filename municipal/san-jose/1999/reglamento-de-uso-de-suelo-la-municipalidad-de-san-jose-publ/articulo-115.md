@@ -1,0 +1,2 @@
+Artículo 115-—Áreas de parque y comunales. Todo lo relacionado con la cesión y el uso de estas áreas será regulado de conformidad con los artículos correspondiente al Articulo 40° de la Ley de Planificación Urbana y el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
+Cuando los proyectos de parques y áreas comunales conllevan acto de expropiación y este no se realiza, los usos potenciales de los terrenos en cuestión, estarán definidos en el Mapa de Contingencia que forma parte del P.D.U.

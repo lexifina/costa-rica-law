@@ -1,0 +1,1 @@
+Articulo 93.—Usos condicionales. De la lista del anexo 1 los numerales, 10, 12, 17, 24 y 25. En caso de vivienda la densidad será la de uso residencial de media - media densidad. (Articulo 60). Cumpliendo los demás requisitos descritos en el (Articulo 94), y ver anexo 3.

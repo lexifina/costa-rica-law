@@ -1,0 +1,1 @@
+Articulo 85.—Usos condicionales. De la lista del anexo 1, los numerales 7 al 11, 13. 17 y 20- En caso de vivienda la densidad será igual a lo indicado para uso residencial de media-alta densidad. (Articulo 58). Cumpliendo con los demás requisitos de la zona (articulo 86), y ver anexo 3.

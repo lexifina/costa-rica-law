@@ -1,0 +1,1 @@
+Articulo 109.—Jerarquización. AI igual que el comercio y servicios, los usos institucionales se ubicarán en los centros urbanos y corredores de comercio y servicio, atendiendo el radio de acción de los mismos. Por ello, se tendrán áreas Institucionales con rango: de Barrio, Local, Regional y Nacional.

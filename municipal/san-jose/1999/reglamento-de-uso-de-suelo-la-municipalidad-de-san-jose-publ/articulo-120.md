@@ -1,0 +1,1 @@
+Articulo 120.—Usos no permitidos. De la lista del anexo 1, los contemplados del 1 al 11 y del l 3 al 15, 18, 19, 20 al 23-En relación al uso correspondiente al numeral 20 de la lista del anexo 1. ver lo estipulado en el Reglamento de Espacios Públicos, Vialidad y Transporte del PDU.

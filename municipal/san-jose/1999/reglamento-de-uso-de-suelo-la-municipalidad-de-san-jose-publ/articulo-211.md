@@ -1,0 +1,1 @@
+Articulo 211.—La Municipalidad velara porque las disposiciones antes mencionadas sean cumplidas dentro de su jurisdicción, en especial, cuando los inmuebles hayan sido declarados bienes patrimoniales, bajo cualquiera de las categorías establecidas.

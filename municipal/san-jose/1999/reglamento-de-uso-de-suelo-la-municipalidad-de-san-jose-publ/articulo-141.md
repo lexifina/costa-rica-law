@@ -1,0 +1,1 @@
+Articulo 141.—Usos conformes. Son los indicados en el Reglamento de Zonificación parcial de Áreas Industriales en la Gran Área Metropolitana. De la lista del anexo No I el numeral 17 se autorizará en cumplimiento del Art. 29 de este Reglamento.

@@ -1,0 +1,6 @@
+TITULO VI
+Zona Residencial
+CAPITULO I
+Aspectos generales de las Zonas Residenciales
+Artículo 47.—Propósito. Es la zona necesaria para albergar a la población existente y futura, permitiendo su ordenada expansión. La zona residencial se divide, con fundamento en la densidad neta o inmobiliaria. que es la relación entre el número de viviendas y el área destinada a este uso con sus respectivos patios y servicios conexos, en ZONA RESIDENCIAL ALTA DENSIDAD. ZONA RESIDENCIAL MEDIA- ALTA DENSIDAD. ZONA RESIDENCIAL MEDIA-MEDIA DENSIDAD. ZONA RESIDENCIAL MEDIA-BAJA DENSIDAD Y ZONA RESIDENCIAL BAJA DENSIDAD.
+(Propiedad horizontal). Para los proyectos de residencia en condominio vertical o mixto, de interés social o no. así como públicos o privados podrá variar la densidad en virtud del artículo 8 y además conforme a la Ley de Condominios o Propiedad Horizontal No 367 y Reformas y Decretos. Su ubicación se detalla en el Mapa de Uso de Suelo Propuesto. La densidad será establecida por el diseño. El lote mínimo y la cantidad de viviendas por hectárea podrán ser mayores, siempre y cuando cumplan con el requisito de cobertura de la zona. En proyectos declarados de Renovación Urbana se podrán variar los requisitos según el diseño de la propuesta, siempre y cuando cumplan el artículo 8 de este reglamento.

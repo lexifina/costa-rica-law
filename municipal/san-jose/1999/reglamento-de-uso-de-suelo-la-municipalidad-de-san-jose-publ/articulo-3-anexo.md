@@ -1,0 +1,3 @@
+ANEXO # 3
+CONDICIONES PARA USO CONDICIONALES PARA LA LISTA DEL ANEXO # 1.
+(Véase Gaceta N° 186, Alcance 70 de 24 de setiembre de 1999, página 23.)

@@ -1,0 +1,3 @@
+ANEXO 5
+REQUISITOS PARA LOS CENTROS Y CORREDORES DE COMERCIO Y SERVICIO.
+(Véase Gaceta N° 186, Alcance 70 de 24 de setiembre de 1999, página 23.)

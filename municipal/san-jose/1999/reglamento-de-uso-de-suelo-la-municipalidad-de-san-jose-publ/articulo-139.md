@@ -1,0 +1,1 @@
+Articulo 139.—Lotes irregulares. Se permitirán lotes irregulares con un frente menor al mínimo, siempre que tengan un acceso no menor de 6 metros y un 10% más de área que el mínimo estipulado para la zona.

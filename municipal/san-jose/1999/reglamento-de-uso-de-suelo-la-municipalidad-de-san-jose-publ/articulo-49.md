@@ -1,0 +1,1 @@
+Articulo 49.—Usos no permitidos. En las zonas definidas como residenciales únicamente se aceptarán estos usos y los definidos en este reglamento como usos complementarios, quedando excluidos lodos los demás. (Ver anexo No 2 de este reglamento).

@@ -1,0 +1,1 @@
+Artículo 134.—Usos permitidos. Servicios de hospedaje, alimentación y bebidas estacionamientos de hasta 50 espacios, servicios funerarios, servicios de salud, patología forense, iglesias, floristería.

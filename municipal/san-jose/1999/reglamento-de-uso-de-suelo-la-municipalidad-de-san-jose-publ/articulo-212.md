@@ -1,0 +1,1 @@
+Articulo 212.—La Municipalidad, por medio de su cuerpo de inspectores (Sec. Inspección Urbana), velara porque un edificio u obra declarada patrimonio histórico cultural no sea demolida, ampliada o restaurada por su propietario, sin disponer previamente del respectivo permiso de demolición, ampliación o remodelación extendido por las dependencias públicas correspondientes.

@@ -1,0 +1,1 @@
+Articulo 97.—Usos condicionales. De la lista del anexo 1, del 7 al 9, 13, 14, 15 y 17. En caso de vivienda la densidad será la indicada para la zona de uso residencial de alta densidad. (Articulo 56). Cumpliendo los requisitos del articulo 98, ver anexo 3.

@@ -1,0 +1,1 @@
+2. Los anteproyectos que cuentan con un V° B° deben obtener el Certificado de Uso de Suelo, en los siguientes 90 días de entrado en vigencia este Reglamento. El mismo tendrá una vigencia de un año natural.

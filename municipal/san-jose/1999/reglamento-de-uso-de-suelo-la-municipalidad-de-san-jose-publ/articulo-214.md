@@ -1,0 +1,1 @@
+Articulo 214.—La Municipalidad sentara las bases para llevar a cabo un verdadero inventario del Patrimonio Histórico Cultural del Cantón proponiendo cuales edificios y sitios de valor histórico cultural, paisajístico y urbanístico deben ser protegidos.

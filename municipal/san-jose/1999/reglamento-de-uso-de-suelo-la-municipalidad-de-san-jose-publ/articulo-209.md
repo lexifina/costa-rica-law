@@ -1,0 +1,1 @@
+Artículo 209.—Limpieza. Todo edificio deberá disponer de una llave de cañería de fácil acceso para conectar una manguera y lavar las fachadas y aceras- Asimismo destinara un sitio protegido para dejar el depósito de basura mientras pasa el camión recolector, sin estorbar el paso de los peatones.

@@ -1,0 +1,1 @@
+Artículo 114.—Usos no permitidos. No se permitirá ningún tipo de urbanización, movimiento de tierras o edificación que no esté en concordancia con los usos permitidos, enumerados en el articulo anterior.

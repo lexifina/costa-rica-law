@@ -1,0 +1,1 @@
+Articulo 187.—Usos a fomentar. Vivienda, en pisos superiores, uso mixto de los edificios, tiendas de artesanía, restaurantes, oficinas de servicios profesionales, servicios personales, hoteles, instalaciones culturales servicios de educación superior, servicios turísticos, servicios empresariales, servicios aduanales y fiscales.

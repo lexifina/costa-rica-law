@@ -1,0 +1,1 @@
+Articulo 67.—Los requisitos que se exigen a las viviendas ubicada en zonas que permitan el uso mixto no residenciales serán los indicados en los articules que se refieren al uso No Residencial; salvo en la densidad que será de media baja. En conjuntos habitacionales o edificios se aplicará el articulo 8 de este reglamento.

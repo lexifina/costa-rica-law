@@ -1,0 +1,13 @@
+CAPITULO III
+Modificación y Actualización del Plan Director Urbano y Variación de los Requisitos
+Articulo 8°—Para la modificación del P.D.U., en forma global o parcial, es preciso seguir las disposiciones y procedimientos que señala el articulo diecisiete, de la Ley de Planificación Urbana.
+La variación y reducción de los requisitos de los Reglamentos del P.D.U: densidad, frente, retiros, alturas, áreas de lotes en no más del 15%, así como la extensión de la línea divisoria entre diferentes usos en no más de 25 metros, podrán hacerse vía Acuerdo Municipal previo dictamen y estudio técnico de la Dirección de Urbanismo de la Municipalidad (DIUR).
+Estos casos serán permitidos cuando el caso en cuestión se encuentre en una o varias de las siguientes circunstancias:
+a- Lotes mayores a 2 500 metros cuadrados o proyectos de 2 500 m2 de construcción, donde se pretende dar la oportunidad a un proyecto de diseño más integral y que ofrezca más ventajas que las permitidas en este reglamento yo reglamentos complementarios.
+Las áreas bajo esta disposición podrán pertenecer a varios propietarios y no será necesario la reunión de fincas para la aprobación del anteproyecto.
+b- Cuando existan características muy particulares del desarrollo de la zona o área objeto de control: topografía, geología, tenencia de la tierra, ubicación, tendencia de desarrollo y cambios de usos cercanos.
+c- Cuando el uso es comunitario y no contradice al Plan Director en su disposición de uso de la zona o el proyecto es de interés público.
+d- Cuando sean proyectos auspiciados por entidades públicas y privadas sin fines de lucro. Los proyectos de vivienda estatales o privados, proyectos de donación, beneficencia, catalogados de emergencia por catástrofe o interés nacional según su decreto ejecutivo.
+La aceptación de nuevos sistemas para el fraccionamiento y la urbanización de terrenos, no contemplados en este reglamento, podrá ser permitida, como experimental, cuando se estime aceptable la perspectiva de éxito a juicio conjunto del INVU y la Municipalidad, tal y como lo dispone el Reglamento Nacional de Fraccionamiento y Urbanización.
+La Municipalidad y la Dirección de Urbanismo del INVU en conjunto podrán variar los requisitos ya mencionados hasta un 25% y desplazar hasta 50 metros la línea divisoria entre usos si el caso en estudio lo amerita.
+Las normas en proyectos específicos, elaborados por la DIUR, que detallan las normas del P.D.U, sin contradecirlas, para ser aprobados contarán previamente con el Visto Bueno de la Dirección de Urbanismo del INVU. La DIUR consultara a los grupos comunales locales organizados, en todos las etapas de elaboración del proyecto. Los proyectos específicos contaran con los reglamentos específicos para su control y regulación.

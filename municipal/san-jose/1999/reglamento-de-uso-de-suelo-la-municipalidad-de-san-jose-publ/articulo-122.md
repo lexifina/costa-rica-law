@@ -1,0 +1,1 @@
+Artículo 122.—Requisitos: Los mismos que corresponden al Centro Nacional, señalados en el articulo 78 de este reglamento, salvo en lo referido a la cobertura, que será del 80%. Se exceptúan de estos requisitos los barrios San Bosco-San Francisco, Pitahaya, Amón-Otoya, que están reglamentados en los capítulos de las "Zonas de Control Especial".

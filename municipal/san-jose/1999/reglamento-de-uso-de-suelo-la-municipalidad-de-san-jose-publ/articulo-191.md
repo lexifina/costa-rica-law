@@ -1,0 +1,2 @@
+Articulo 191.—Delimitación. La planteada en el Mapa de Zonas de Control Especial, específicamente son las cuadras entre avenida 1 y avenida 2. desde la calle 20 hasta calle 42; ambas inclusive.
+Los establecimientos que gozarían de incentivos por parte de la Municipalidad son los que se ubican sobre el Paseo Colón, o tengan colindancia con las calles transversales a este. y estén dentro de la zona delimitada anteriormente.
