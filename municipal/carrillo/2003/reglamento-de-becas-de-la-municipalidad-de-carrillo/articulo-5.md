@@ -1,0 +1,1 @@
+Artículo 5º—El becado presentará trimestralmente constancias de sus notas ante la Tesorería de la Municipalidad, cuando se trate de estudiantes de secundaria y semestralmente en el caso de enseñanza superior, excepto los de primer ingreso a la universidad, quienes solo presentarán en el mes de julio, una constancia de que son alumnos regulares de esa institución.

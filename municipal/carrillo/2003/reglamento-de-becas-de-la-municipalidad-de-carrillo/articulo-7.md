@@ -1,0 +1,1 @@
+Artículo 7º—En el caso de que el becado no pueda retirar la beca personalmente, podrá hacerlo la persona a quién él autorice, siempre y cuando exponga en dicha autorización los motivos que lo impiden hacerlo.

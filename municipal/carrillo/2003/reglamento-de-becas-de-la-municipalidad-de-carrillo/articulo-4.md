@@ -1,0 +1,1 @@
+Artículo 4º—En el caso de estudiantes de enseñanza superior, para tener derecho a esta beca debe presentar un mínimo de doce (12) créditos por semestre, siempre y cuando se le ofrezca los cursos necesarios en la universidad y perderá la misma si tiene notas inferiores a siete (7).
