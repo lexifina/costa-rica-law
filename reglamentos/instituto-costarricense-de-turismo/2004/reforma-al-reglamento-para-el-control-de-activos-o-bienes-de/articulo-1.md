@@ -1,0 +1,4 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+En sesión ordinaria de junta directiva Nº 5304, artículo 5º, inciso IX, celebrada el día 18 de mayo del 2004. Se acuerda: a) Acoger recomendación de la Dirección Legal, dada mediante oficio DL-651-2004 y la Gerencia General, dada mediante oficio G-474-2004, y aprobar la modificación del último párrafo del artículo 24 del "Reglamento para el Control de Activos o Bienes del Instituto Costarricense de Turismo", en los siguientes términos.
+"En el caso de traslados, las personas encargadas del control de activos en cada unidad, deben usar y confeccionar el formulario denominado Fórmula de Registro y/o Traspaso de Activos, indicando los motivos del traslado y todos los detalles que se solicitan en éste y proceder a distribuir los tantos de acuerdo a lo indicado en ese mismo documento."
+Departamento Administrativo.—
