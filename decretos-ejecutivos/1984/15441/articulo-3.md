@@ -1,0 +1,1 @@
+Artículo 3°.-La Comisión establecerá sus propios procedimientos y normas de trabajo, los cuales deberán formularse mediante reglamento interno, el cual deberá ser aprobado dentro de los treinta días siguientes a la publicación de este Decreto.
