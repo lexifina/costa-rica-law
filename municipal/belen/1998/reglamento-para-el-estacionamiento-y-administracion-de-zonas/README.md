@@ -15,3 +15,4 @@ Reglamento para el Estacionamiento y Administración de Zonas Públicas de Estac
 | --- | --- | --- |
 | 1 | 1998-11-27 | la propia norma |
 | 2 | 1999-09-28 | Reglamento municipal 53 (1999-09-28) |
+| 3 | 1999-10-05 | Reglamento municipal 54 (1999-10-05) |

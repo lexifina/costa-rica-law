@@ -1,1 +1,1 @@
-Artículo 22.—Monto del arriendo: En la zona céntrica el monto por mes es de 6000 colones y la no céntrica el monto será de 5000 colones por mes. En ambos casos el pago deberá hacerse de forma anticipada por todo el plazo contratado.
+Artículo 22.—(Derogado mediante sesión N° 54 del 05 de octubre de 1999).

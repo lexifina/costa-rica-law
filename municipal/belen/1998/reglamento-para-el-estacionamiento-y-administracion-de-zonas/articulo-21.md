@@ -1,1 +1,1 @@
-Artículo 21.—Plazo de arriendo. Se podrá contratar por el plazo convenido entre el interesado y la Corporación Municipal, el cual podrá o no prorrogarse existiendo acuerdo de partes, este acuerdo debe manifestarse en forma expresa.
+Artículo 21.—(Derogado mediante sesión N° 54 del 05 de octubre de 1999).

@@ -1,1 +1,1 @@
-Artículo 24.—Trámite de la solicitud: Presentada la solicitud a la sección encargada de los estacionamientos se analizara su aprobación en un plazo de cinco días hábiles, plazo en el cual se determinará su aprobación o no. La resolución que deniegue la solicitud tendrá recurso de reconsideración ante el Alcalde Municipal.
+Artículo 24.—(Derogado mediante sesión N° 54 del 05 de octubre de 1999).
