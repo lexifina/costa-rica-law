@@ -1,0 +1,3 @@
+Art. 79.-Al efecto nombrar inteligentes y pasando abordo, dispondrá que estos lo reconozcan e informen si esta en disposición de navegar sin riesgo, o que reparos necesita. En este caso debe suspender la licencia hasta que se hagan, y por otros reconocimientos se declare en estado de marinero.
+Art. 79.-Cuando ocurran semejantes accidentes bastará comprobar con dos testigos la invasión del animal, y procedimiento inspección ocular, el Juez decretar la indemnización que corresponda por el daño ocasionado.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°79)

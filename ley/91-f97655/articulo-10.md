@@ -1,0 +1,3 @@
+Art. 10. En el distrito de poniente, la publicación de las leyes y bandos queda al cuidado del Comandante en caso de no tener otro Ayudante.
+Art. 10. Cuando venga el buque yendose a pique, y su Capitán pide al practico, ante testigos, que lo vare en puerto fuera de peligro, lo verificar asi sobre arena y en abrigo, de manera que sea fácil desvararlo en toda pleamar. Si viene desarbolado, no dirigir su maniobra, sino que, instruir al Capitan sobre la via que debe seguir, fuerza de vela, viradas orzadas, y arribadas necesarias. En los casos de este articulo, debe dar aviso al puerto para su auxilio.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°10)

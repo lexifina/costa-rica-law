@@ -1,0 +1,3 @@
+Art. 9. Desde que sea recibido por el buque, cuya direccion o salvamento v a dar, inexcusablemente debe ser obedecido en cuanto concierna a salvarlo y asegurarlo en abrigo, hasta dar la voz de fondo con las anclas que convenga: y por consiguiente, es responsable de las aver¡as o peligros que corra el buque; cesando esta responsabilidad, sino se le recibiere a bordo, o no es respetado y obedecido.
+Art. 9. En el distrito de Oriente fijar precisamente su domicilio un Ayudante aun cuando sea el único que excite en el puerto y ser de su cargo contener cualquier desorden: publicar y hacer guardar las leyes del Estado y los bancos que dictare la comandancia.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°9)

@@ -1,0 +1,3 @@
+Art. 55.-Los Comandantes, oficiales y gentes de los buques de guerra, deben considerar al Comandante del puerto, y auxiliarlo cuando el lo exija; y los Capitanes, oficialidad y tripulacion de buques mercantes debe respetarlo, obedeciendo y auxiliarlo de la propia manera.
+Art. 55.-Corresponde a la ronda hacer guardar el orden y disposicion de polic¡a que contiene el presente reglamento, y ocurrir a cualquier accidente o necesidad; vigilando especialmente para que se apaguen los fuegos en los hornos o cocinas.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°55)

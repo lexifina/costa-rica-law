@@ -1,0 +1,3 @@
+Art. 42.-Cualquiera que contravenga a estas disposiciones sufrir un peso de multa o trabajo por dos días; y la autoridad mandar limpiar, barrer y botar las basuras a costa del culpable.
+Art. 42.-Las embarcaciones que salgan en horas extraordinarias de la playa para los buques, atracarán precisamente al muelle de la aduana para que las reconozcan los empleados del resguardo que alli estuvieren vigilando, quienes en vista de la guia y cerciorados de no llevar contrabando les permitir n el pase. Igual reconocimiento practicar la lancha de ronda.
+(Nota de Sinalevi: En la publicación de este Reglamento se consignó dos veces el artículo N°42)
