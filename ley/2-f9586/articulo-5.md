@@ -1,0 +1,2 @@
+Art. 5°-El Gobierno se reserva el derecho de retirar inmediatamente la pensión á cualquiera de los jóvenes protegidos en virtud de esta ley, siempre que no sean satisfactorios los informes acerca de su conducta y aprovechamiento.
+Dado en el Palacio Presidencial, en San José, á catorce de enero de mil ochocientos ochenta y siete. BERNARDO SOTO. -El Secretario de Estado en el despacho de Instrucción Pública,-MAURO FERNÁNDEZ.
