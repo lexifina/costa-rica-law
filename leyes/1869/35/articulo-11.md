@@ -1,0 +1,1 @@
+Art 11° Cualquiera falta de los empleados al cumplimiento de alguna de las obligaciones aquí detalladas será castigada de las obligaciones aquí detallada, será castigada con la destitución del empleo, sin perjuicio de las demás penas a que sean acreedores según la gravedad del caso.

@@ -1,0 +1,1 @@
+Art 5° Además de las obligaciones impuestas a los oficiales, en el presente Reglamento, el de Puntarenas tendrá especialmente la de dar aviso inmediato de la entrada y salida de los vapores, bastando expresar el nombre del que entra o sale.
