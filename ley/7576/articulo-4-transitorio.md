@@ -1,0 +1,1 @@
+TRANSITORIO IV.- En los quince días posteriores a la publicación de esta ley, el Poder Ejecutivo deberá remitir a la Asamblea Legislativa un presupuesto extraordinario con las partidas que den contenido económico a los Poderes del Estado para ejecutar esta ley.
