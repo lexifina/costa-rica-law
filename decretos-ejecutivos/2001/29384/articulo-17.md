@@ -1,0 +1,1 @@
+Artículo 17.—El Departamento remitirá copia de todas las ofertas de becas y demás documentos que corresponda, a los Jefes de Departamento y Directores de Programa, quienes deberán hacerlo del conocimiento de los servidores.

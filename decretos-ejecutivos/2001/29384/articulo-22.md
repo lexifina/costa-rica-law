@@ -1,0 +1,1 @@
+Artículo 22.—Los parámetros para la selección de candidatos para becas u otras facilidades serán definidos, previamente, con criterios técnicos y objetivos por la Comisión, según el grupo ocupacional que se trate, el tipo de actividad que desarrolla al momento de presentar la solicitud y de conformidad con las necesidades imperantes en la institución.

@@ -1,0 +1,1 @@
+Artículo 28.—El Ministerio podrá cesar el auxilio económico cuando la conducta del estudiante no sea satisfactoria o haya faltado al cumplimiento de cualesquiera de las obligaciones establecidas en este Reglamento, o en su contrato de beca. En cualquiera de los casos, se le notificará al funcionario la decisión tomada.

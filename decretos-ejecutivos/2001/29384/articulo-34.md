@@ -1,0 +1,1 @@
+Artículo 34.—Las recomendaciones que brinde la Comisión a la Administración Superior, sobre el otorgamiento o denegatoria de una beca de estudios, no serán vinculantes, para ésta, quien podrá apartarse de ellas con un criterio razonado.

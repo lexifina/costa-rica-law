@@ -1,0 +1,1 @@
+Artículo 31.—No se otorgarán permisos a los funcionarios becados para que asistan a lecciones en el horario que tiene el Ministerio, es decir de 8,00 a. m., a 4,00 p. m., salvo en casos muy calificados a juicio de la Administración Superior, y según lo estipulado en el inciso c) del artículo 20 del presente Reglamento.

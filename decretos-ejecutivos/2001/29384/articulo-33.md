@@ -1,0 +1,1 @@
+Artículo 33.—El becario debe mantener comunicación permanente con la Comisión y el Departamento, con el fin de informar sobre la calidad y avance de los estudios que realiza, así como cualquier asunto o gestión sobre la que pueda opinar, interceder o participar en la Comisión de Becas.

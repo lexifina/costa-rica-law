@@ -1,0 +1,1 @@
+Artículo 27.—Todos los informes y documentos recibidos por la Comisión, referente a las actividades, comportamientos y resultados obtenidos por el funcionario, pasarán a formar parte del expediente de estudios que mantendrá el Departamento.

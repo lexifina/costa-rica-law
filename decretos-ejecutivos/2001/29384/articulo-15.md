@@ -1,0 +1,1 @@
+Artículo 15.—El Departamento fungirá como órgano de apoyo técnico y administrativo de la Comisión y brindará todo el apoyo logístico que ésta requiera en cumplimiento de los fines para la cual ha sido creada.

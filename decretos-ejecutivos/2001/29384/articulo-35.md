@@ -1,0 +1,1 @@
+Artículo 35.—En caso de muerte o de una enfermedad terminal de un funcionario acogido al beneficio de beca, si se produce en periodo de estudios o en época de cumplimiento del compromiso laboral, quedará excluido de las obligaciones que contrajo con el Ministerio de Trabajo y Seguridad Social.
