@@ -14,3 +14,4 @@ Somete a un 15% de requisito de encaje mínimo legal a los depósitos u obligaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-01 | la propia norma |
+| 2 | 1998-07-01 | Reglamento 4960 (1998-06-17) |

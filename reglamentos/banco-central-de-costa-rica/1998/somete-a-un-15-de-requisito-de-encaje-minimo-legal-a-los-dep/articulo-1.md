@@ -30,3 +30,22 @@ A partir del |
 1° noviembre, 1999 | 14,0%
 I° de diciembre, 1999 | 15,0%
 La presente disposición rige a partir del 1° de julio de 1998.
+NOTA: Mediante sesión N° 4960 del 17 de junio de 1998, se reforma lo referente a la gradualidad con que los departamentos hipotecarios de los bancos comerciales deben ajustarse a los requisitos de encaje mínimo legal, de la siguiente forma:
+Fecha | Tasa
+A partir del |
+01 de julio, 1998 | 0.5%
+01 de agosto, 1998 | 1,0%
+01 de setiembre, 1998 | 1,5%
+01 de octubre, 1998 | 2,0%
+01 de noviembre, 1998 | 2,5%
+01 de diciembre, 1998 | 3,0%
+01 de enero, 1999 | 3,5%.
+01 de febrero, 1999 | 4,0%
+01 de marzo, 1999 | 4,5%
+01 de abril, 1999 | 5,0%.
+01 de mayo, 1999 | 5,5%
+01 de junio, 1999 | 6,0%
+01 de julio, 1999 | 7,0%
+01 agosto, 1999 | 8,0%
+01 setiembre, 1999 | 9,0%
+01 octubre, 1999 | 10,0%
