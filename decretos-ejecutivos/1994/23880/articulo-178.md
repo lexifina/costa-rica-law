@@ -2,7 +2,8 @@ Artículo 178.—Competencia y atribuciones. El Departamento Disciplinario Legal
 1) Recibir las denuncias por hostigamiento sexual y tramitarlas de acuerdo con el procedimiento establecido en este Reglamento.
 2) Admitir, rechazar y evacuar las pruebas testimoniales y demás probanzas ofrecidas por las partes.
 3) Recomendar la aplicación de las medidas cautelares que sean necesarias.
-4) Emitir la resolución de recomendación o el proyecto de resolución del acto final del procedimiento, el cual será sometido a consideración del Viceministro o del Consejo de Personal en su caso, quien resolverá en primera instancia.
+4) Emitir la resolución de recomendación o el proyecto de resolución del acto final del procedimiento, el cual será sometido a consideración del Consejo de Personal, quien resolverá en primera instancia.
+(Así reformado el inciso anterior por el artículo 176 (actual 187) inciso f) del decreto ejecutivo N° 32177 del 1° de diciembre de 2004)
 5) Informar al jerarca de la Institución sobre las denuncias de hostigamiento sexual que se reciban y realizar el trámite respectivo ante la Defensoría de los Habitantes de la República.
 6) Velar para que se informe adecuadamente a la Defensoría de los Habitantes de la República sobre las denuncias de hostigamiento sexual que se reciban, así como su resolución final.
 7) Remitir copia de la resolución final en las causas por hostigamiento sexual a la Defensoría de los Habitantes de la República.
