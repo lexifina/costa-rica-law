@@ -1,2 +1,0 @@
-Artículo 13.- El Jefe de la oficina debe tramitar y resolver los impedimentos, excusas y recusaciones del Actuario, lo que hará con arreglo a la Ley Orgánica, y a los códigos procesales; pero si en la oficina hubiere otro Actuario, el trámite y la resolución estarán a cargo de éste. En caso de recusación deberá depositarse la misma suma exigida para recusar al Jefe de la oficina.
-Contra lo que se resuelva en definitiva con base en el presente artículo cabrá apelación en un solo efecto.
