@@ -7,3 +7,5 @@ exenciones parcialmente, hasta llegar al total señalado, dentro de un
 plazo máximo de 5 años desde que hubiere solicitado la primera exención.
 En cuanto a sociedades, las exenciones se concederán a aquéllas cuyo
 capital pertenezca en no menos del 60% a nacionales.
+( TACITAMENTE DEROGADO por el artículo 1º de la Ley Nº 7293 de 31 de
+marzo de 1992. Ver Observaciones).

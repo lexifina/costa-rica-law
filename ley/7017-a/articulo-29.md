@@ -1,0 +1,1 @@
+Articulo 29.- Los beneficios establecidos en la presente ley sólo se otorgarán a la unidad productiva a que se refiere la solicitud y no a intermediarios o terceras personas naturales o jurídicas, aún cuando tengan algún interés en la empresa respectiva.

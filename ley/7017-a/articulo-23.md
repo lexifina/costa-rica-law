@@ -1,0 +1,1 @@
+Articulo 23.- En cualquier caso el plazo máximo de duración de los beneficios, para una misma empresa no podrá exceder de diez años, con los ajustes y conforme con las condiciones que esta ley permite.

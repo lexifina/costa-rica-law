@@ -1,0 +1,1 @@
+Artículo 8.- Exóneranse de todo tributo y sobretasas las ambulancias, los vehículos que se convertirán en ambulancias, los coches bombas, los equipos y las refacciones que utilicen las ambulancias, que requieran el Instituto Nacional de Seguros, la Cruz Roja Costarricense y la Caja Costarricense de Seguro Social.

@@ -1,0 +1,1 @@
+Articulo 2.- Esta ley se aplicar a aquellas industrias manufactureras que, al utilizar procesos industriales adecuados, contribuyen al desarrollo del país, especialmente por la generación neta de divisas y por su alto contenido nacional. También se incluyen disposiciones de apoyo a otros sectores productivos.
