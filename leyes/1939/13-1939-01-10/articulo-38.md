@@ -1,0 +1,1 @@
+Artículo 38.—Para la tramitación de las diligencias en estos expedientes, las firmas de los solicitantes pueden ser autenticadas no solo por Notarios y Abogados, sino también por los Gobernadores y Jefes Políticos.

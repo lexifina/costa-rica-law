@@ -1,0 +1,1 @@
+Artículo 14.—No queda comprendida en la prohibición del articulo anterior, la extracción de leña, bejuco, palma, madera y otros productos para uso doméstico que hagan los labriegos, así como para la construcción de sus habitaciones, previa autorización de las autoridades fiscales.

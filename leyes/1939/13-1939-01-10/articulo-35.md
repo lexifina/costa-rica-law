@@ -1,0 +1,1 @@
+Artículo 35.—Caducará el denuncio si transcurrieren cinco años a partir de la fecha en que se notificó la autorización para ocupar, y el interesado no hubiere gestionado para que se le otorgue el respectivo título de propiedad.

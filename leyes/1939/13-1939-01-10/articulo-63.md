@@ -1,0 +1,1 @@
+Artículo 63.—El valor del arrendamiento será fijado por el Poder Ejecutivo, de acuerdo con la calidad y situación del terreno y la clase de cultivos a que vaya a dedicarse, oyendo previamente el dictamen de un perito de la Tributación Directa.

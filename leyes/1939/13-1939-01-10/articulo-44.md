@@ -1,0 +1,1 @@
+Artículo 44.—Para los efectos de esta ley son adjudicables los terrenos que posee el Estado en propiedad, a que se refiere el artículo 18 de la ley No 29 de 3 de diciembre de 1934, pero se adjudicarán como segregaciones de las fincas generales, de acuerdo con las inscripciones del Registro Público.

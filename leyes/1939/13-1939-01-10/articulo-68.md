@@ -1,0 +1,1 @@
+Artículo 68.—A fin de facilitar el control fiscal para el cobro del canon de arrendamiento, los arrendatarios de manglares que se exploten con destino a usos industriales, pagarán de acuerdo con el peso de la corteza que extraigan.
