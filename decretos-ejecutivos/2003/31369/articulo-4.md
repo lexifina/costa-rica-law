@@ -1,0 +1,1 @@
+Artículo 4º—El Frente Gubernamental contra la Pedofilia se reunirá ordinariamente cada quince días en la fecha que se fije en la primera sesión y extraordinariamente cuando sea convocada por el Presidente.

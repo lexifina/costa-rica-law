@@ -1,0 +1,1 @@
+Artículo 5º—En lo no contemplado en este Decreto, el Frente Gubernamental contra la Pedofilia, se regirá por las disposiciones que regulan a los Órganos Colegiados, contenidas en los artículos 49 y siguientes de la Ley General de la Administración Pública.
