@@ -1,0 +1,1 @@
+Artículo 7°—La ejecución, vigilancia y control de las disposiciones del presente Reglamento, estarán a cargo del Ministerio de Obras Públicas y Transportes a través de las Direcciones Generales de Policía de Tránsito, Ingeniería de Tránsito y Transporte Automotor, que contarán además con la colaboración de las autoridades del Ministerio de Segundad Pública.

@@ -1,0 +1,2 @@
+Artículo 9°—En los casos de las infracciones previstas en el artículo anterior a las leyes y reglamentos se estará en la sanción que indica la Ley de Tránsito o el articulo 29 de la Ley General de Caminos Públicos.
+El Ministerio de Obras Públicas y Transportes tomará todas las medidas pertinentes para ejercer un control efectivo con referencia al cumplimiento de las disposiciones de este Reglamento.

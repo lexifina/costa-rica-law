@@ -1,0 +1,1 @@
+Artículo 4°—Para el caso específico de vehículos cargados con frutas y/o hortalizas, queda prohibida la carga y descarga de vehículos con una capacidad de carga de más de tonelada y media (1,5 T.M.) en el área delimitada por el artículo 2° del presente Reglamento.

@@ -1,0 +1,1 @@
+Articulo 5°—Salvo lo descrito en el artículo 4° todas las operaciones de carga y descarga de mercancías que se efectúen en el sector a que se refiere el presento Reglamento, deberán ser realizadas en vehículos de reparto urbano, y las mercancías deberán ser unitarizadas en la medida en que sus características así lo permitan.
