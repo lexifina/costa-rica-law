@@ -1,0 +1,1 @@
+Artículo 4º.- La administración del Parque Nacional Braulio Carrillo estará a cargo del Servicio de Parques Nacionales, quien deberá preparar y ejecutar los planes de manejo y desarrollo. El Instituto Geográfico Nacional procederá a demarcar en el terreno los linderos de este Parque y el Servicio de Parques Nacionales ueda obligado a abrir y mantener los respectivos carriles.
