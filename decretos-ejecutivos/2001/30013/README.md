@@ -14,3 +14,4 @@ Deja sin efecto el nombramiento de la Señora Ana Cecilia Valería Pizarro, como
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-15 | la propia norma |
+| 2 | 2002-07-11 | Decreto Ejecutivo 30603 (2002-07-11) |
