@@ -12,5 +12,6 @@ En consecuencia, y conforme a lo dispuesto por los incisos 3) y 18) del artícul
 DECRETAN:
 El siguiente
 Reglamento para la Autorización de Viajes al Exterior de Funcionarios del Poder Ejecutivo y de las Instituciones Descentralizadas Estatales
+(NOTA DE SINALEVI: Mediante el artículo único del decreto ejecutivo N° 13257 del 6 de enero de 1982, se prorroga durante el año 1982, la vigencia del presente decreto)
 Artículo 1°- Todo viaje al exterior de los funcionarios del Poder Ejecutivo y de las instituciones descentralizadas estatales, deberá ser autorizado por la Oficina de Planificación Nacional y Política Económica. Dicho requisito deberá ser cumplido previamente a la realización del viaje.
 Quedan excluidos de la aplicación de este Reglamento, los viajes del Presidente de la República y de los funcionarios de las instituciones de educación superior señaladas en el artículo 84 de la Constitución Política.

@@ -14,3 +14,4 @@ Reglamento para la Autorización de Viajes al Exterior de Funcionarios del Poder
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-03-06 | la propia norma |
+| 2 | 1982-01-06 | Decreto Ejecutivo 13257 (1982-01-06) |
