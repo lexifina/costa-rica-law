@@ -1,3 +1,2 @@
-Artículo 18.-Los miembros del Consejo Directivo devengarán ochocientos colones por cada sesión ordinaria o extraordinaria.
-Unicamente podrán ser remuneradas dos sesiones extraordinarias por mes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 15439 del 22 de mayo de 1984)
+Artículo 18.-Los miembros propietarios y suplentes del Consejo Directivo devengarán por cada sesión celebrada a que asistan la cantidad de ochocientos colones en calidad de dieta. Unicamente serán remuneradas dos sesiones extraordinarias por mes. Los miembros suplentes estarán sometidos a lo que dispone el artículo 10 de este Reglamento."
+(Así reformado por el artículo 1° del decreto ejecutivo N° 16042 del 20 de febrero de 1985)
