@@ -13,3 +13,4 @@ Reglamento del Comité de Normas y Asistencia Técnica Industrial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1951-10-09 | la propia norma |
+| 2 | 1952-08-01 | Decreto Ejecutivo 17 (1952-08-01) |
