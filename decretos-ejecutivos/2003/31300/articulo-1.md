@@ -86,3 +86,7 @@ Expediente N° 14.813. Creación de la Empresa Científica Marina del Caribe S. 
 Expediente N° 14.523, Autorización a la Municipalidad de San Pablo de Heredia para traspasar a título de donación un lote a la Asociación de Educadores Pensionados de San Pablo de Heredia.
 Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31321 de 12 de agosto de 2003, publicado en La Gaceta N° 163 de 26 de agosto de 2003, en el siguiente sentido:
 Expediente N° 14.334. Reforma de los artículos 41, 42, 44, 222 y 224, Modificación del encabezado del capítulo III, del título IV y adición de dos artículos de la Ley General de Aviación Civil y sus reformas. Reforma del artículo 165, y adición de un inciso al artículo 166 de la Ley General de Aduanas y sus reformas.
+Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31325 de 13 de agosto de 2003, publicado en La Gaceta N° 163 de 26 de agosto de 2003, en el siguiente sentido:
+Expediente N° 14.751, Ley que autoriza a la Asamblea Legislativa de Costa Rica para que done vehículos de su propiedad al Patronato Nacional de la Infancia y al Consejo Nacional de Rehabilitación y Educación Especial.
+Expediente N° 15.322, Autorización al IFAM para que done quince millones de colones a la Municipalidad de Dota.
+Expediente N° 15.131, Ley para no sujetar las actividades para la construcción del proyecto de la nueva carretera a San Carlos, Sección Naranjo - Florencia a determinados tributos.
