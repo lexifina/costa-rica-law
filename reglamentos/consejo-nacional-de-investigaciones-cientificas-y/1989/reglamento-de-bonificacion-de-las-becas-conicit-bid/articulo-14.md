@@ -1,0 +1,1 @@
+Artículo 14.-La bonificación para funcionarios del CONICIT será total siempre cuando ejerzan funciones de tiempo completo para la investigación y cumplan con obligación de prestar sus servicios a la institución por un período mínimo que duplique el tiempo que duró la beca.

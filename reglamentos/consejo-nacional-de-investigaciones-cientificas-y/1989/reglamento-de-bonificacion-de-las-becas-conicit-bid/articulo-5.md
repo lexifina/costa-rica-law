@@ -1,0 +1,1 @@
+Artículo 5° --- Al término de la última beca, e! CONICIT entregará al becario el estado de cuenta definitivo y hará los ajustes necesarios de acuerdo con el monto real de la beca en el momento de la Liquidación, en el o los pagarés correspondientes, de conformidad con lo establecido en e! Reglamento de las Becas CONICIT-BID.

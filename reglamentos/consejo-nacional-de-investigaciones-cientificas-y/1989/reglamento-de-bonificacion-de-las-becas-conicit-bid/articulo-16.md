@@ -1,0 +1,1 @@
+Artículo 16.-En caso de existir diferencia entre el monto real de la beca al momento de la liquidación y las cantidades recibidas por concepto de su beca, el ex becario deberá hacer las aclaraciones pertinentes al Departamento en un plazo de quince (15) días naturales.

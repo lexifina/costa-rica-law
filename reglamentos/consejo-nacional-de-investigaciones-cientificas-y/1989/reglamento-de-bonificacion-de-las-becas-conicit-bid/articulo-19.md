@@ -1,0 +1,1 @@
+Artículo 19.-En caso de que el ex becario desee liquidar la totalidad de lo adeudado antes del vencimiento de los documentos de garantía, lo comunicará por escrito al Departamento, teniendo derecho a una bonificación extraordinaria de un 10% sobre el saldo total pendiente a liquidar.

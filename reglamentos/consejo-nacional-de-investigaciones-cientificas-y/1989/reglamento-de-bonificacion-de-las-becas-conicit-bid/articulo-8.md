@@ -1,0 +1,1 @@
+Artículo 8° -Una vez recibidas las solicitudes de bonificación, de conformidad con lo dispuesto por este reglamento, el Departamento procederá a su evaluación emitirá una recomendación escrita sobre el porcentaje de bonificación, de conformidad con el artículo 54 del Reglamento de Becas CONICIT-BID.
