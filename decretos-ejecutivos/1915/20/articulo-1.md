@@ -69,7 +69,7 @@ distritos
 CANTÓN 3°.—DESAMPARADOS
 Decreto de 7 de agosto de 1862
 distritos
-1°—Villa de Desamparados y caseríos de San Jerónimo, calle de Fallas y La Raya. .
+1°—Villa de Desamparados y caseríos de San Jerónimo, calle de Fallas y La Raya.
 2°—Barrio San Miguel y caseríos Higuito, El Llano y Jericó. Barrio Patarra y caserío Quebrada Honda.
 3°—Barrio San Juan de Dios y caserío Máquinas.
 4°—Barrio San Rafael Arriba.
@@ -94,7 +94,7 @@ Barrio San Antonio.
 CANTÓN 5°.—TARRAZÚ
 Decreto numero XXX de 7 de agosto de 1868
 distritos
-1°—Villa San marcos y caseríos Guadalupe, San Pedro, La Trinidad. El Rodeo, San Lorenzo, San Carlos, San Rafael, Ñapóles, Paquita, Naranjo, Savegre, Barú, Dominical, San Jerónimo y San Pedro.
+1°—Villa San marcos y caseríos Guadalupe, San Pedro, La Trinidad. El Rodeo, San Lorenzo, San Carlos, San Rafael, Ñapóles, Paquita, Naranjo, Savegre, Barú, Dominical, San Jerónimo y San Pedro
 2°—Barrio Santa María y caseríos Copey, Quebradillas, Cédral. Santa Catalina, San Pedro, San Rafael, Cabeceras de Tarrazú y San Lucas.
 3°—Barrio San Pablo y caseríos Quebrada Grande, San Rafael, La Angostura, Cuesta de Tarrazú, Tarrazú Arriba y Llano Bonito.
 Barrio San Andrés y caserío Santa Rosa, Los Tabacales y Bajo de Parrita.
@@ -167,7 +167,7 @@ Barrio Ortiga.
 Barrio Resbalón.
 2°—Barrio Guaitil.
 Barrio Ococa.
-Barrio Coyolar. .
+Barrio Coyolar.
 Barrio Toledo o Santa Juana.
 3°—Barrio Palmichal.
 Barrio Cacao o Sevilla.
@@ -525,10 +525,10 @@ Barrio Santa Bárbara y caseríos Las Lomitas, Guaitil, San Luis, Taburete y Los
 3°—Barrio Ventisiete de Abril y caseríos Paso Hondo, Los Jobos y Guapote.
 Barrio Río Seco y caseríos Ostional, Tabaco, Venado, Coyolito, Cañas Gordas y Níspero.
 Barrio Santa Rosa y caseríos Villa Real, Hernández, Caña Fístula, Cebadilla, San José, Pinilía, Cuajiniquil y El Tieso, San Francisco, Cebadilla y Hatillo.
-4°—Barrio Tempate y caseríos Potrero, Zapotal v La Lupita.
-Barrio Arenal y caseríos Zacatipe, Huacales y Los Horcones.
+(*)Caserío Cartagena y caseríos Zacatipe, Huacales y Los Horcones.
 Barrio Porte Golpe y caseríos El Llano, El Machete. El Chorro y Zopilote.
 Barrio Huacas y caseríos Mata Palo, Las Lajas y Puerto Viejo.
+(*)(Así reformado el punto anterior por decreto ejecutivo N° 26 del 11 de agosto de 1962)
 CANTÓN 4°.—BAGACES
 Decreto número XX de 11 de noviembre de 1824
 distrito único

@@ -13,3 +13,4 @@ División Territorial Administrativa de la República
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1915-10-18 | la propia norma |
+| 2 | 1962-08-11 | Decreto Ejecutivo 26 (1962-08-11) |
