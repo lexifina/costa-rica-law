@@ -5,3 +5,4 @@ Artículo 2: Apruébanse los siguientes egresos ordinarios y extraordinarios par
 (Modificado a efecto de distribuir los gastos de oficinas consulares y oficinas de cancillerías por el artículo 1 del Decreto Ejecutivo N° 30143 de 30 de enero del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30144 de 30 de enero del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30240 de 15 de marzo del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30385 de 20 de marzo del 2002)
