@@ -1,0 +1,3 @@
+Artículo 17°
+Las Altas Partes Contratantes, reconociendo la necesidad y la gran utilidad de promover y apoyar el establecimiento de las mejores vías de comunicación entre los respectivos Estados, convienen hacer, al efecto, según lo determine cada uno de ellos en cuanto á su propio territorio, las concesiones del caso para la construcción de vías férreas y el establecimiento de nuevas líneas de cable submarino y de telégrafos sin hilos.
+Así mismo, se comprometen á mejorar en lo posible sus comunicaciones telegráficas y telefónicas, quedando convenido que la correspondencia por telégrafo no estará sujeta á más altos derechos que los fijados en las tarifas establecidas para el interior de cada República.
