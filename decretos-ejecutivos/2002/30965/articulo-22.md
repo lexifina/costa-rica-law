@@ -1,0 +1,1 @@
+Artículo 22.—Los desechos anatomopatológicos deben ser inhumados o cremados, excepto aquellos que estén destinados a fines terapéuticos, de investigación y doc encia. La cremación se realizará en casos de alta patogenicidad y de restos no putrescibles (grasas) y será realizada en un lugar autorizado por el Ministerio de Salud.

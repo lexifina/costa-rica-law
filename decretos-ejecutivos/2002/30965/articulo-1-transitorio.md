@@ -1,0 +1,1 @@
+Transitorio Unico.—Los establecimientos generadores de desechos infecto-contagiosos deberán cumplir con la fase de manejo señalada en la Sección V, tres meses después de la entrada en vigor del presente Reglamento.

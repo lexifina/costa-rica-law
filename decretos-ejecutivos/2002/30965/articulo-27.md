@@ -1,0 +1,2 @@
+Artículo 27.—En situaciones extraordinarias se podrán disponer los desechos infectocontagiosos sin tratamiento, en celdas especiales, conforme a lo establecido en el Transitorio Unico y el artículo 15 del Decreto Ejecutivo Nº 27378-S publicado en La Gaceta Nº 206 del 23 de octubre de 1998 “Reglamento sobre Rellenos Sanitarios”.
+La ubicación, el diseño, la construcción y la operación de las celdas especiales serán autorizados por el Ministerio de Salud a través de la Dirección de Protección al Ambiente Humano.

@@ -1,0 +1,1 @@
+Artículo 24.—El tratamiento podrá realizarse dentro de los establecimientos indicados en el artículo 1 de esta Reglamento o en instalaciones específicas fuera del mismo. En ambos casos se requerirá la autorización del Ministerio de Salud a través de la Dirección de Protección al Ambiente Humano.

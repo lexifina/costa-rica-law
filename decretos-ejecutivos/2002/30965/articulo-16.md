@@ -1,0 +1,1 @@
+Artículo 16.—Los desechos infecto-contagiosos envasados deberán almacenarse en contenedores con tapa y rotulados con el símbolo universal de riesgo biológico, con la leyenda “PELIGRO, DESECHOS INFECTO-CONTAGIOSOS”, o equivalente.

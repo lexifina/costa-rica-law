@@ -1,0 +1,1 @@
+Artículo 9º—Los recipientes de los residuos peligrosos líquidos deben ser rígidos, con tapa hermética, etiquetados con una leyenda que indique “PELIGRO, RESIDUOS PELIGROSOS LIQUIDOS INFECTO-CONTAGIOSOS” y marcados con el símbolo universal de riesgo biológico (Anexo 1).

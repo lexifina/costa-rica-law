@@ -1,0 +1,1 @@
+Artículo 25.—Los establecimientos que presten atención en salud y las empresas que brinden el servicio de tratamiento deberán presentar un programa de contingencias en caso de derrames, fugas, incendios, explosiones, emisiones descontroladas o accidentes relacionados con el manejo de estos residuos.

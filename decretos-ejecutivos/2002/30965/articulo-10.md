@@ -1,0 +1,1 @@
+Artículo 10.—Los bombillos (todo tipo), tubos fluorescentes y todo tipo de grapas y bandas de metal y plástico deberán colocarse, previo a su disposición final, en cajas de cartón de doble pared debidamente etiquetadas, o devolverse al proveedor.

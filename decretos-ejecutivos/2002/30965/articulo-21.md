@@ -1,0 +1,3 @@
+Artículo 21.—Los métodos de tratamiento serán autorizados por el Ministerio de Salud a través de la Dirección de Protección al Ambiente Humano y deberán cumplir con el siguiente criterio general:
+a) Deberán garantizar la eliminación de microorganismos patógenos y contar con sistemas de control de la efectividad del proceso.
+b) No se exigirá la eliminación de microorganismos patógenos en los desechos infecto-contagiosos en aquellos Establecimientos de Salud que cumplan con lo dispuesto en el artículo 27 de este Reglamento y que cuenten con servicio de transporte de acuerdo a lo establecido en la Sección IV.

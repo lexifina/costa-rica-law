@@ -1,0 +1,1 @@
+Artículo 28.—La vigilancia del cumplimiento del presente Reglamento corresponde al Ministerio de Salud a través de la Dirección de Protección al Ambiente Humano. Las violaciones al Reglamento se sancionarán en los términos de la Ley General de Salud y demás ordenamientos jurídicos aplicables.

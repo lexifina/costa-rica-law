@@ -1,0 +1,4 @@
+Artículo 7º—Las bolsas para la recolección o segregación deberán ser de plástico, impermeables, de calibre mínimo 60 micras y deberán cumplir los valores mínimos de los parámetros indicados en el Cuadro 3 de este Reglamento aplicando los métodos de prueba de la American Society for Testing and Materials, (ASTM), correspondientes. Los materiales utilizados en su fabricación deberán provenir de materia prima virgen y estar libres de metales pesados y cloro, mientras que los colorantes deberán ser inocuos.
+Ver cuadro Nº3 en el Alcance Nº 8 de la Gaceta Nº 23 del 03 de febrero del 2003
+Especificaciones para las bolsas
+Las bolsas se llenarán hasta dos terceras partes de su capacidad, con un peso máximo de 8 a 10 kg, cerrándose antes de ser transportadas al sitio de almacenamiento y deberán tener la leyenda que indique “PELIGRO DESECHOS INFECTO-CONTAGIOSOS” y estar marcadas con el símbolo universal de riesgo biológico (Anexo 1).

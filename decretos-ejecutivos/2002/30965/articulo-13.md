@@ -1,0 +1,1 @@
+Artículo 13.—Se deberán establecer rutas exclusivas y horarios de recolección para su fácil movimiento hacia el área de almacenamiento, evitándose en lo posible la coincidencia con material limpio, visitas, personal o pacientes o con los alimentos. En el caso de utilizarse un ascensor común deberá desinfectarse después de transportar los desechos infecto-contagiosos.
