@@ -14,3 +14,4 @@ Reforma al Reglamento del Estatuto de Servicios de Enfermería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-01 | la propia norma |
+| 2 | 1991-06-27 | Decreto Ejecutivo 20545 (1991-06-27) |

@@ -13,7 +13,8 @@ Realiza el control de signos vitales como temperatura, presión arterial, frecue
 Toma peso, talla y medidas antropométricas de los pacientes, hace los reportes correspondientes.
 Realiza el control de ingesta y excreta, mediante mediciones vía oral, intravenosa, diuresis, de vómitos, drenos y hace los reportes correspondientes, según indicaciones.
 Prepara y suministra el equipo necesario.
-Ejecuta procedimientos relacionados con la administración de medicamentos, biológicos, tratamientos, aplicación y cuidado de catéteres, tubos y drenos, para lo cual su grado de participación estará dado por normas establecidas. Prepara medicamentos, pruebas, indicaciones médicas precisas, por las diferentes vías de administración.
+Ejecuta procedimientos relacionados con la administración de medicamentos, biólogos, tratamientos, aplicación y cuidado de catéteres, tubos y drenos, para lo cual su grado de participación estará dado por normas establecidas. Prepara medicamentos, pruebas, nebulizaciones, venoclisis, los administra siguiendo las indicaciones médicas precisas, por las diferentes vías de administración. Observa, mide y reporta reacciones según se le indique.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 20545 del 27 de junio de 1991)
 Observa, mide y reporta reacciones según se le indique.
 Participa en la oxigenación de pacientes, en la preparación y suministro del equipo siguiendo indicaciones del profesional. Asiste en la colocación del tubo endotraqueal y su cuidado, aplica ox¡geno, cambia humedecedores y agua en ventiladores, revisa cilindros de oxígeno y aire, prepara y coloca cámara de oxígeno, cuida y mantiene listo el equipo necesario.
 Realiza curaciones y participa en otras más complejas según instrucciones y supervisión del profesional. Mantiene estéril y prepara el equipo. Lava y cura heridas, prepara áreas para suturar y retira suturas.
@@ -35,7 +36,8 @@ Recibida:
 Trabaja siguiendo instrucciones generales o precisas, de conformidad con las normas y principios que rigen la actividad de enfermería.
 Su labor es evaluada por la jefatura inmediata superior, de acuerdo con la calidad del servicio que brinda y los resultados obtenidos.
 Ejercida:
-Por lo general no le corresponde ejercer supervisión administrativa. No obstante, en situaciones especiales le puede corresponder ejercer orientación técnica a personal de menor nivel.
+Por lo general no le corresponda ejercer supervisión administrativa. No obstante, en situaciones especiales le puede corresponder ejercer orientación y coordinación técnica a personal de menor nivel.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 20545 del 27 de junio de 1991)
 Responsabilidad:
 Por funciones:
 Es responsable de que los servicios y actividades encomendadas se cumplan con esmero, eficiencia y puntualidad.
