@@ -1,0 +1,1 @@
+Artículo 4°—El Consejo Directivo deberá elaborar un convenio en el que se estipule el procedimiento por el cual se dotará de recursos al Taller, convenio el cual deberá ser firmado por los tres Ministros en el término de 15 días a partir de la publicación de este Decreto.
