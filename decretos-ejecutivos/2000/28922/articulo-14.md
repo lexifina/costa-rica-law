@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones del Consejo Nacional del Deporte y la Recreación se regirán por la legislación vigente. El Consejo estará facultado para elaborar y poner en vigencia, mediante acuerdo de al menos dos tercios de sus integrantes, su propio reglamento de sesiones y debates.

@@ -1,0 +1,1 @@
+Artículo 62.—El Tribunal actuará según el procedimiento establecido en el Reglamento especifico que por Decreto Ejecutivo se dicte, y en lo referente al procedimiento administrativo se aplicará supletoriamente el Libro II de la Ley General de la Administración Pública.

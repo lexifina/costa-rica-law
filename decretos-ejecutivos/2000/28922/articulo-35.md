@@ -1,0 +1,6 @@
+Artículo 35.—Corresponde a la Comisión de Selecciones, entre otras, las siguientes funciones:
+a) Revisar los planes, proyectos y programas de selecciones nacionales que debe preparar y remitir cada Federación o Asociación Deportiva de Representación Nacional y remitirlos al Consejo para su aprobación definitiva. La Comisión podrá hacer objeciones y recomendaciones a la entidad respectiva en torno a esos planes, proyectos y programas, con el propósito de salvaguardar la salud de los atletas o procurar el éxito de la participación.
+b) Emitir opinión, si así se lo solicita el Consejo, cuando una asociación o federación deportiva solicite recursos del Fondo de Selecciones Nacionales.
+c) Elaborar y ejecutar un plan permanente de consecución de recursos para el fondo de selecciones.
+d) Velar por que los funcionarios públicos o estudiantes regulares de cualquier nivel del sistema educativo que sean convocados a una selección nacional o para representar a Costa Rica en una competencia internacional, puedan disfrutar de permiso para entrenarse, desplazarse y permanecer en concentración por el tiempo que corresponda, de conformidad con la ley.
+e) Verificar que la participación de los atletas en competencias nacionales e internacionales corresponda con criterios de estricto rendimiento deportivo.

@@ -1,0 +1,1 @@
+Artículo 2°—El Instituto tendrá libertad de acción para cumplir eficazmente con sus objetivos, atribuciones y funciones. En cumplimiento de lo anterior podrá dictar los actos administrativos y demás disposiciones compatibles con su naturaleza.

@@ -1,0 +1,1 @@
+Artículo 63.—El Tribunal sesionará hasta un total de seis veces en un mes, y sus integrantes de conformidad con el Artículo 70 de la Ley, serán remunerados mediante el sistema de dietas, las que se fijan en un 75% de las establecidas para los miembros del Consejo Nacional del Deporte y la Recreación.

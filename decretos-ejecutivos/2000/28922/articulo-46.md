@@ -1,0 +1,1 @@
+Artículo 46.—Las asociaciones de primer grado serán aquellas debidamente constituidas en su acto de fundación por un máximo de diez personas mayores de edad y cuyo fin sea la promoción, el apoyo, el estímulo o la práctica de un deporte o de la recreación o ambas actividades en conjunto.

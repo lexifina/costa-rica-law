@@ -1,0 +1,1 @@
+Artículo 34.—Además, de las Selecciones Nacionales del Ciclo Olímpico, solo las delegaciones deportivas autorizadas por la Comisión Permanente de Selecciones Nacionales del Instituto podrán utilizar el nombre de Costa Rica, los símbolos de la Patria y los colores de la Bandera de Costa Rica en sus uniformes.

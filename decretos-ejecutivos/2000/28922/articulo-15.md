@@ -1,0 +1,1 @@
+Artículo 15.—Se considerará vacante el puesto del miembro del Consejo Nacional del Deporte y la Recreación, que no sea Ministro o Viceministro, cuando acumule tres ausencias injustificadas consecutivas, o cinco alternas, en el lapso del primero de agosto de un año al treinta y uno de julio del año siguiente.

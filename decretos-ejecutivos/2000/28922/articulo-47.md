@@ -1,0 +1,1 @@
+Artículo 47.—El nombre de la Asociación de primer o segundo grado será propiedad de la misma. Ninguna asociación de primer o segundo grado podrá adoptar una denominación idéntica a la de otra ya registrada, o tan parecida que ambas puedan confundirse fácilmente.

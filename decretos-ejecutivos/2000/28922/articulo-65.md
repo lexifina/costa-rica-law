@@ -1,0 +1,1 @@
+Artículo 65.—Los Ministerios y las instituciones públicas prestarán toda la colaboración y recursos humanos y materiales a su alcance para que las comisiones nombradas funcionen de la mejor manera posible y alcancen sus objetivos.

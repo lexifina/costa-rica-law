@@ -1,0 +1,1 @@
+Artículo 79.—Las fórmulas que suministrará el Instituto para la constitución o modificación de los estatutos de las asociaciones deportivas podrán consistir en modelos con espacios en blanco para rellenar, o en guías acerca del contenido que por ley deben tener las actas en cuestión para que sean copiados por los interesados en limpio.

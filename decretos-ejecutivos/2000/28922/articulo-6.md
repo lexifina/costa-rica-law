@@ -1,0 +1,1 @@
+Artículo 6°—El Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Arte será el responsable de designar a los representantes de los profesores de educación física ante el Congreso Nacional del Deporte y la Recreación.

@@ -1,0 +1,1 @@
+Artículo 38.—Lo relativo al procedimiento de anulación de la elección del órgano directivo de una asociación o federación de representación nacional corresponde al Tribunal de Conflictos Deportivos, previo agotamiento de la vía interna.

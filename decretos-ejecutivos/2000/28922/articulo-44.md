@@ -1,0 +1,1 @@
+Artículo 44.—La revocatoria de la representación nacional surte efecto desde la firmeza del acto final que así lo determine. Toda entidad a la que le sea revocada la representación nacional, deberá sustituir o eliminar, en el plazo de treinta días hábiles, la denominación "Costarricense", "Nacional" o "de Costa Rica" de su nombre.

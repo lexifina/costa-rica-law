@@ -1,0 +1,1 @@
+Artículo 54.—Las disposiciones generales que emita el Consejo Nacional en relación con los regímenes disciplinarios de las asociaciones deportivas deberán ser publicadas en La Gaceta y comunicadas al Registro Nacional.

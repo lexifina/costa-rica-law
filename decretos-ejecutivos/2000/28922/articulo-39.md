@@ -1,0 +1,1 @@
+Artículo 39.—El plan anual que deben presentar las asociaciones y federaciones de representación nacional al Instituto, a más tardar el 31 de octubre de cada año, debe contener al menos lo siguiente: justificación, objetivos, cronograma de actividades nacionales e internacionales, presupuesto e indicadores de evaluación.

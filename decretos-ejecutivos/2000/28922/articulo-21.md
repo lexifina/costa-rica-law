@@ -1,0 +1,1 @@
+Artículo 21.—La Educación Física es una asignatura obligatoria en los planes de estudio de la educación preescolar, General Básica y Diversificada, educación especial y de adultos, ya se trate de educación pública o privada.

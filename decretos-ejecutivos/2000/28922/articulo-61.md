@@ -1,0 +1,1 @@
+Artículo 61.—Por acuerdo expreso formal de las partes involucradas, el Tribunal Administrativo de Conflictos Deportivos, podrá conocer y resolver, como arbitro de derecho, de los conflictos que surjan entre asociaciones, federaciones, sociedades anónimas deportivas y comités cantonales de deportes, a lo interno o entre ellos.

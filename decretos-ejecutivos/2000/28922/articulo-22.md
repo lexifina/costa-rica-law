@@ -1,0 +1,5 @@
+Artículo 22.—El Ministerio de Educación Pública, por medio del Departamento de Educación Física, deberá:
+a) Formular los programas de Educación Física en preescolar, primaria y secundaria, para lo cual deberá tomar en cuenta la opinión de las escuelas de Educación Física de las Universidades Públicas o Privadas que impartan dicha carrera debidamente reconocida.
+b) Dictar directrices en materia de procedimientos metodológicos y didácticos en la ejecución de sus programas de Educación Física.
+c) Ejecutar los Juegos Estudiantiles y otros programas deportivos y recreativos en coordinación con el instituto. Entre estos programas, y no como únicos, están: i) Generar planes de desarrollo en el campo de la educación Física. ii) Incentivar la práctica del deporte a nivel estudiantil, iii) Brindar orientaciones y crear mecanismos con la intención de que el talento deportivo en los estudiantes sea bien aprovechado.
+d) Colaborar en la elaboración del Plan Nacional anual de la Educación Física, para lo cual podrá consultar la opinión de las escuelas de educación superior dedicadas a la enseñanza de la educación física.

@@ -1,0 +1,1 @@
+Transitorio único.—El Instituto Costarricense del Deporte y la Recreación realizará las acciones administrativas necesarias, a fin de proceder a reconocer el pago de las dietas devengadas por los miembros del Tribunal Administrativo de Conflictos Deportivos, desde el inicio de sus funciones, de conformidad con el Artículo 63 de este Reglamento.
