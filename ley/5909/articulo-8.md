@@ -1,0 +1,2 @@
+ARTICULO 8º.- El uno por ciento (1%) de los ingresos generados por el Impuesto sobre la Renta y hasta por un máximo de cinco millones de colones anuales, se destinará al Instituto Nacional de Aprendizaje para la construcción, adquisición de equipo y funcionamiento de sus programas.
+Este tope podrá aumentarse periódicamente de conformidad con los planes de desarrollo de la Institución y previo refrendo de los mismos por la Oficina de Planificación Nacional y Política Económica y el Ministerio de Hacienda.
