@@ -1,0 +1,1 @@
+Artículo 13.—Si vencida la fecha establecida en el artículo 6 de este Reglamento no se hubieran presentado solicitudes de asignación de un determinado contingente, el mismo será asignado conforme al procedimiento establecido en el párrafo 2 del Artículo 9 de este Reglamento.

@@ -1,0 +1,1 @@
+Transitorio.—Para la asignación del contingente de exportación correspondiente al año 2002, no regirán los plazos estipulados en los artículos 4, 6 y 7 del presente Reglamento. Los plazos aplicables al proceso de asignación del contingente de exportación correspondiente al año 2002 serán los indicados en la convocatoria de COMEX para participar en este proceso.

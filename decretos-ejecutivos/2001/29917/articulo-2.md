@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento regula la asignación y administración del contingente de exportación de queso (en adelante "el contingente de exportación") que le corresponde a Costa Rica al amparo de los resultados de las negociaciones sobre agricultura de la Ronda Uruguay entre la República de Costa Rica y Estados Unidos de América.
+En lo no previsto expresamente en este Reglamento se aplicarán las normas y principios de los tratados comerciales suscritos por el país, la Ley General de la Administración Pública y demás leyes y reglamentos aplicables.

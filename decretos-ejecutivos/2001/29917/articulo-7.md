@@ -1,0 +1,1 @@
+Artículo 7º—Asignación del contingente. En un plazo no mayor a diez días hábiles contados a partir del vencimiento del plazo estipulado en el artículo 6 anterior, COMEX asignará conforme a los criterios estipulados en los artículos 8 al 11 de este Reglamento la totalidad del contingente de exportación entre los solicitantes.

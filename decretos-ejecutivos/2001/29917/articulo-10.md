@@ -1,0 +1,1 @@
+Artículo 10.—Ajustes por subutilización. A partir de la asignación del contingente correspondiente al año 2004, el Ministerio de Comercio Exterior ajustará la asignación del contingente que corresponda a cada exportador reduciendo en una proporción igual al 95% del volumen asignado y dejado de exportar por ese exportador en el año tras anterior.

@@ -1,0 +1,1 @@
+Artículo 19.—Plazos. Las exportaciones que se realicen al amparo de las asignaciones del contingente de exportación a que se refiere este Reglamento deberán efectuarse entre el 1 de enero y el 31 de diciembre del año inmediatamente siguiente a la fecha en que se hizo la asignación.

@@ -1,0 +1,1 @@
+Artículo 20º—Derechos de utilización del contingente. Los derechos de utilización del contingente de exportación adquiridos por la asignación que se realice conforme a este Reglamento no podrán ser cedidos, endosados o de cualquier otra forma transferidos.

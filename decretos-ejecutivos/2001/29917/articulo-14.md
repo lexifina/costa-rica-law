@@ -1,0 +1,1 @@
+Artículo 14.—Notificación al Gobierno de los Estados Unidos. COMEX notificará al Gobierno de los Estados Unidos de América y a la Embajada de Costa Rica en Washington D.C la distribución final del contingente y de exportación realizada de conformidad con este Reglamento e indicará los importadores preferentes que se hayan escogido para el periodo asignado.

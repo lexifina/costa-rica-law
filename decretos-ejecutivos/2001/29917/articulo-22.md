@@ -1,0 +1,1 @@
+Artículo 22.—Derogatorias. El presente Reglamento deroga el Decreto No 28201-COMEX, de 21 de octubre de 1999, publicado en la Gaceta No 210 del 29 de octubre de 1999, Reglamento sobre la asignación de contingentes de exportación de queso a Estados Unidos, y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 5º—Importador preferente. Los interesados en participar en la asignación del contingente de exportación deberán contar con un "importador preferente" en Estados Unidos. Las solicitudes para participar en la asignación de los remanentes deberán también incluir el nombre del importador preferente.
