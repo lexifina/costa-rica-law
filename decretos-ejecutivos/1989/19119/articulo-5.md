@@ -1,0 +1,1 @@
+Artículo 5°-El registro, control y fiscalización de los fondos y recursos del Programa serán realizados a través de los procedimientos contables, financieros, presupuestarios y administrativos, que se utilizan normalmente en el manejo de cuentas especiales del Ministerio de Agricultura y Ganadería, cuya supervisión estará a cargo del Departamento Financiero de ese Ministerio.

@@ -1,0 +1,1 @@
+Artículo 3°-Para el manejo de los fondos, el Programa contará con una cuenta principal, con la posibilidad de establecer sub cuentas para el mejor control y registro financiero de las operaciones administrativas del Programa, lo anterior en cualquiera de los bancos del Sistema Bancario Nacional.
