@@ -1,0 +1,1 @@
+Artículo 5°-Las sumas que obtenga el Poder Ejecutivo por arrendamiento de la manzana y venta de los materiales expresados, así como la contribución ofrecida para este fin por vecinos del distrito del Hospital, será distribuida, por Iguales partes, entre los hospitales de Cartago, Heredia, Alajuela, Liberia, Limón y Puntarenas.
