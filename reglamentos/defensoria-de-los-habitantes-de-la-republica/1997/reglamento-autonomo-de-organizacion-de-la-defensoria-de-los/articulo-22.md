@@ -1,2 +1,0 @@
-Artículo 22.—Dirección de Asuntos Económicos y de Administración
-Corresponde a la Dirección de Asuntos Económicos y de Administración conocer de los asuntos relacionados con la prestación de los servicios públicos, con los derechos de los habitantes como contrapartes del Estado, con los manejos económicos y financieros de las instituciones públicas y con el funcionamiento administrativo y financiero de los gobiernos locales.
