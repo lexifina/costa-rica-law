@@ -1,0 +1,1 @@
+Artículo 102. - ( La Corte Suprema de Justicia, mediante resolución de las 8:00 horas del 24 de enero de 1984 (expediente N° 0178-83, promovido por Rodrigo Chaves Arguedas) declaró inaplicable este artículo, por no ser el mismo de carácter presupuestario y por dictarse en contravención de los artículos 121 inciso 11), 176, 177 y 180 de la Constitución Política. )

@@ -1,0 +1,2 @@
+Artículo 4°-Apruébase los siguientes egresos ordinarios y extraordinarios para el ejercicio fiscal de 1983:
+(Nota de Sinalevi: Por lo extenso de su contenido consultar el Alcance N° 42 A a la Gaceta N° 249 del 28 de diciembre de 1982)

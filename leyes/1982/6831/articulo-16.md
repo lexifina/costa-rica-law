@@ -1,0 +1,1 @@
+Artículo 16. - (La Corte Suprema de Justicia, mediante resolución de las 9:00 horas del 17 de julio de 1984 (expediente N° 0131-83, promovido por Harry Zurcher Acuña y Harry Zurcher Blen) declaró inaplicable el párrafo segundo de este artículo, por ser contrario a los artículos 33 y 47 de la Constitución Política.)
