@@ -1,0 +1,1 @@
+Artículo 4°—El área de exhibición permanente al aire libre del Ecomuseo, se ubicará en propiedad con número de registro de la Municipalidad de Abangares, en el distrito de La Sierra , cantón de Abangares, provincia de Guanacaste.
