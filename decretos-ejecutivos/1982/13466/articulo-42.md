@@ -1,1 +1,3 @@
-Articulo 42.-El presente decreto entrará en vigor en la fecha de su publicación en el Diario Oficial.
+Artículo 42.- Los aprendices y estudiantes en general del Instituto Nacional de Aprendizaje, en cualquiera de sus modalidades de formación y capacitación profesional, estarán cubiertos por el Título IV del Código de Trabajo. En tal sentido gozarán de protección contra todo tipo de accidentes y enfermedades derivadas como consecuencia o con ocasión de su proceso de formación en cualquiera de sus etapas o prácticas didácticas relacionadas con el oficio que aprenden.
+Para tales efectos, bastará que el Instituto Nacional de Aprendizaje acredite la condición de estudiante del afectado debiendo comunicar al Instituto Nacional de Seguros el accidente o enfermedad que ocurra dentro de los términos señalados por la Ley.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 26086 del 17 de abril de 1997)

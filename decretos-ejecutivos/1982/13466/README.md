@@ -19,3 +19,4 @@ Reglamento General de los Riesgos del Trabajo
 | 4 | 1984-01-31 | Decreto Ejecutivo 15262 (1984-01-31) |
 | 5 | 1988-01-08 | Decreto Ejecutivo 17963 (1988-01-08) |
 | 6 | 1993-01-15 | Decreto Ejecutivo 21952 (1993-01-15) |
+| 7 | 1997-04-17 | Decreto Ejecutivo 26086 (1997-04-17) |

@@ -1,2 +1,1 @@
-Artículo 40.-Las sesiones que celebre el Consejo de Salud Ocupacional, serán cuatro ordinarias por mes aunque extraordinariamente sesionar cuando sea necesario. Sin embargo, sólo se remunerarán las sesiones ordinarias y dos sesiones extraordinarias al mes. Las dietas que devengarán los miembros de este Consejo, serán de mil cuatrocientos colones.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 17963 del 8 de enero de 1988)
+Artículo 40.-Las sesiones que celebre este Consejo serán cuatro ordinarias por mes y sólo se reunirán extraordinariamente cuando sea necesario. Las dietas que devengarán los integrantes de este Consejo serán de cuatrocientos colones por sesión. No podrán remunerarse más de seis sesiones mensuales.
