@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Las Cámaras Patronales, las Confederaciones Sindicales mayoritarias, las Cooperativas y el Movimiento Solidarista, dispondrán de 15 días hábiles, a partir de la fecha en que les solicitó integrar las ternas a que se refiere el artículo anterior, para enviar a la Secretaría del Consejo de Gobierno las listas de sus candidatos.

@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-En el caso de que el Consejo de Gobierno rechace alguna de las listas enviadas por los organismos anteriormente indicados, estos gozarán de quince días hábiles para enviar otra lista con los nombres de nuevos candidatos para ser conocidas por el Consejo de Gobierno.
