@@ -14,3 +14,4 @@ Adopta Norma Internacional de Contabilidad 21 "Efectos de las variaciones en tip
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-31 | la propia norma |
+| 2 | 1999-01-05 | Reglamento 1 (1999-01-05) |
