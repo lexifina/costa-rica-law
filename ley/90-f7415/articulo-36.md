@@ -1,0 +1,1 @@
+Artículo 36 al 778.-El cuerpo del delito o culpa, es la base y fundamento del juicio criminal, y sin que estuviere suficientemente comprobado por otros medios que la declaración del indiciado, o del que se presenta como autor del hecho, no podrá continuarse la instrucción, pena de nulidad.

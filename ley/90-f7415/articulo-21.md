@@ -1,0 +1,1 @@
+Artículo 21 al 258.-Se entregar n a los peritos las piezas necesarias, y su relación ser firmada por ellos, o por un testigo con autorización, en nombre de aquel que no pudiere firmar: toda pena de nulidad.

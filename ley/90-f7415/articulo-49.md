@@ -1,0 +1,1 @@
+Artículo 49 al 1084.-En cualesquiera otros casos de morosidad de parte del apelado en el uso de sus derechos, o en la ejecución de los actos que le corresponden, podrá acusársele rebeldía por el apelante, y el Tribunal deber declararla con solo que del informe del Secretario sobre el hecho en que se funda la acusación, parezca la morosidad.

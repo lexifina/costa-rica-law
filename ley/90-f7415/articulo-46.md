@@ -1,0 +1,1 @@
+Artículo 46.-No obstante, lo dispuesto en este Capítulo, las providencias que no decidan ninguna articulación, aunque convengan gravamen irreparable, se decidir n en apelación sin traslado, audiencia ni otra diligencia. Cuando decidan artículos se proceder como en la súplica, con solo audiencia verbal de las partes.

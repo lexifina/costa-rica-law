@@ -1,0 +1,1 @@
+Artículo 38 al 863.-Cuando el delito que se juzga puede repetirse muchas veces, como la embriaguez, el juego la calumnia y otros semejantes, tres testigos singulares hacen plena prueba, siempre que cada uno deponga de un acto distinto. Si se tratase de la embriaguez, los diferentes actos deben haberse verificado en los últimos seis meses.
