@@ -1,0 +1,1 @@
+Artículo 3°-Los beneficios que en virtud de este decreto se otorgan a "Químicas Ortho de California Limitada", podrán ser modificados o regulados en virtud de convenios, protocolos o resoluciones de los Organismos del Tratado General de Integración Económica Centroamericana.
