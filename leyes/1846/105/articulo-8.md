@@ -1,0 +1,1 @@
+Art. 8. El presente decreto no impide las escuelas particulares de los pueblos, que hoy existen planteadas o que se plantearen. -Dado en la ciudad de San José á trece de noviembre de mil ochocientos cuarenta y seis. José Maria Alfaro. Al Ministro de relaciones y gobernacion Sr. Doctor José Maria Castro.”
