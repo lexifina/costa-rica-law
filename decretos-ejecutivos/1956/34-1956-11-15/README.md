@@ -15,3 +15,4 @@ Declara y demarca zonas como Reservas Indígenas
 | --- | --- | --- |
 | 1 | 1957-01-05 | la propia norma |
 | 2 | 1973-07-11 | Ley 5251 |
+| 3 | 1982-04-30 | Decreto Ejecutivo 13571 (1982-04-30) |
