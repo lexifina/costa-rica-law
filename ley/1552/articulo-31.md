@@ -1,0 +1,2 @@
+Artículo 31.- El quórum de las sesiones ordinarias o extraordinarias se formará con cinco miembros de la Junta. Los acuerdos se tomarán, salvo disposición legal en contrario, por mayoría de votos. En caso de empate, el Presidente tendrá doble voto.
+No obstante lo dicho en los dos artículos siguientes, a juicio del Presidente de la Junta Directiva podrá sesionar estando presentes únicamente sus miembros.

@@ -1,0 +1,1 @@
+Artículo 148.- El Régimen de Garantías y Jubilaciones que cubra a los funcionarios y empleados del Banco, no resta vigencia a las disposiciones de seguridad social contenidas en la Ley de la Caja Costarricense de Seguro Social, en los casos en que les fueren aplicables.

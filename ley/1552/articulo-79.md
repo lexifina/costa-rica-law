@@ -1,0 +1,2 @@
+Artículo 79.- La Junta Directiva podrá someter a requerimiento de encaje cualesquiera otras cuentas del pasivo de los bancos del Sistema Bancario Nacional y de las sociedades financieras de inversión y de crédito especial de carácter no bancario que, a su juicio, fueren similares a las obligaciones constituidas como depósitos. También podrá fijar los encajes correspondientes, dentro de los límites establecidos en esta ley.
+(Así reformado por el artículo 1º de la ley No. 7107 de 4 de noviembre de 1988 )

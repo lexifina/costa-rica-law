@@ -1,0 +1,5 @@
+Artículo 33.- Con el objeto de que los otros bancos del país puedan manifestar sus opiniones en la Junta Directiva del Banco Central, sobre asuntos de su interés particular o general, estarán representados, conjuntamente por dos delegados de los bancos comerciales del Estado que serán designados por los miembros de la Comisión de Coordinación Bancaria.
+Estos delegados serán el medio oficial de relación entre la Junta Directiva del Banco Central y las de los otros bancos; tendrán voz, pero no voto; pudiendo, sin embargo, cuando lo consideren necesario, solicitar que sus opiniones sobre los asuntos que se debaten, consten en las actas respectivas.
+Los citados delegados serán designados por dichas instituciones, una institución cada año, por un período de dos años y podrán ser reelectos.
+Si los bancos no hicieren el nombramiento o la reposición de los delegados que les corresponden, eso no constituirá impedimento ni obstáculo para el funcionamiento de la Junta Directiva.
+(Así reformado por el artículo 2º de la Ley Nº 6789 de 3 de agosto de 1982 )

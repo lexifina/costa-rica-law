@@ -1,0 +1,1 @@
+Artículo 117.- En la ejecución de sus operaciones como agente fiscal, recaudador de rentas y cajero del Estado, el Banco Central podrá contratar los servicios de las agencias y sucursales de los bancos integrantes del Sistema Bancario Nacional.
