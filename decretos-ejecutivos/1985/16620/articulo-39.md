@@ -1,1 +1,2 @@
-Artículo 39.—Anualmente, en el mes de mayo, el Consejo deberá disponer una auditoría externa a cargo de un contador público autorizado, debiendo enviar copia de ésta a la Contraloría General de la República y al Ministro de Trabajo y Seguridad Social.
+Artículo 39.—El Consejo, por medio de la Auditoría del Ministerio de Trabajo, realizará un auditoraje financiero contable cada año, mismo que se deberá efectuar dentro de la segunda quincena del mes de abril. Si existiera la recomendación de la Auditoría del Ministerio, el Consejo podrá realizar la contratación para un auditoraje externo. Del auditoraje antes dicho, se deberá enviar copia a la Contraloría General de la República.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29656 del 13 de junio de 2001)

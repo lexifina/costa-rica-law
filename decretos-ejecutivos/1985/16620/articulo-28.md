@@ -1,1 +1,2 @@
-Artículo 28.—El personal administrativo y técnico del Consejo estará bajo la dirección y supervisión del Director Ejecutivo.
+Artículo 28.—La Dirección Ejecutiva será la que ostente la jefatura inmediata de todo el personal administrativo, profesional y técnico, tanto del Consejo como de otras dependencias públicas que brinden sus servicios temporal o permanente al Consejo, aunque presupuestariamente dependan de otras instituciones del Estado y estarán bajo su supervisión y subordinación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29656 del 13 de junio de 2001)
