@@ -1,0 +1,1 @@
+Art.4°—La franquicia contenida en el artículo 1°, surtirá sus efectos desde la publicación de esta ley; la reducción de impuestos de que habla el artículo 2° dentro de treinta días, y la del artículo 3° dentro de un año de la misma fecha.
