@@ -1,0 +1,1 @@
+ARTICULO 2°.-Los ingresos municipales, provenientes de patentes de licores y del impuesto sobre expendio de licores, serán utilizados, preferentemente, para el Plan Municipal de Desarrollo Urbano, y, subsidiariamente, serán destinados por los concejos para obras, servicios y cualesquiera necesidades que deban resolver dentro de su jurisdicción y competencia.
