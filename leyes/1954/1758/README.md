@@ -1,6 +1,6 @@
 # Ley de Radio (Servicios Inalámbricos)
 
-Ley N° 1758 del 1954-06-19. SINALEVI, ficha 36576: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36576&param2=38564&param3=1>.
+Ley N° 1758 del 1954-06-19. SINALEVI, ficha 36576: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36576&param2=102202&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 10 | 1954-06-19 | Ley 1758 | 1954-06-19 |
 | 2 de 10 | 1967-11-02 | SINALEVI (2 normas) | 1954-06-19 |
+| 3 de 10 | 1967-11-02 | Ley 3700 | 1966-06-22 |
