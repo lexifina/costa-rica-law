@@ -9,21 +9,14 @@ El Registrador anotará en el orden en que el título enuncie las fincas y hasta
 5º- Por cada millar más o fracción ........................................................ 0,25
 6º- Por cada nota marginal, excepto del Diario ..................................... 0,50
 7º- Por cada nota de referencia .............................................................. 0,50
-8º- Cancelación de cada derecho, inscripción o anotación,
-sea por asiento o por marginal ................................................................ 2,00
-9º- Certificación literal de cada asiento, primera
-página ..................................................................................................... 1,00
+8º- Cancelación de cada derecho, inscripción o anotación, sea por asiento o por marginal ................................................................ 2,00
+9º- Certificación literal de cada asiento, primera página ..................................................................................................... 1,00
 10- Por cada página siguiente o fracción ............................................... 0,25
-11- Certificación en relación de cada asiento de los que
-contenga la finca ...................................................................................... 1,25
+11- Certificación en relación de cada asiento de los que contenga la finca ...................................................................................... 1,25
 12- Certificación de existir o no algún asiento ....................................... 3,00
-13- Para poderes y sociedades se aplicará la anterior
-tarifa tomando como base la cuantía del mandato o el capital
-social. Los poderes extranjeros que no fijen la cuantía de su
-mandato pagarán ..................................................................................... 10,00
+13- Para poderes y sociedades se aplicará la anterior tarifa(*) tomando como base la cuantía del mandato o el capital social. Los poderes extranjeros que no fijen la cuantía de su mandato pagarán ..................................................................................... 10,00
+(*) (Nota de Sinalevi: De conformidad con el artículo 7° de la Ley de Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA, N° 7088 del 30 de noviembre de 1987, los montos de las tarifas y tributos incluidos en el Código Fiscal se incrementaron en un veinticinco por ciento (25%).)
 14- Cada uno de los demás asientos de personas..................................... 2,00
 15- Fianzas de haz o para fines benéficos, exentos.
-16- Por la constitución de una hipoteca de cédulas,
-por cada millar o fracción de millar del valor de la
-obligación................................................................................................ 2,00
+16- Por la constitución de una hipoteca de cédulas, por cada millar o fracción de millar del valor de la obligación................................................................................................ 2,00
 (Así reformado por Decreto Ejecutivo Nº 10 de 23 de octubre de 1914. Conforme con el Decreto Legislativo Nº 167 de 17 de agosto de 1923, esos derechos deben doblarse, cuando las transacciones pasen de mil colones).
