@@ -1,5 +1,5 @@
-Artículo 1º.- Las personas con incapacidad parcial permanente que, en
-la actualidad, disfrutan de los beneficios de la Ley de Pensiones e
+Artículo 1º.- Las personas con incapacidad parcial permanente que, en la
+actualidad, disfrutan de los beneficios de la Ley de Pensiones e
 Indemnizaciones de Guerra, número 1922 del 5 de agosto de 1955 y sus
 reformas, podrán presentar, en cualquier momento, solicitudes de revisión
 de los porcentajes de incapacidades establecidos; sin embargo, los
