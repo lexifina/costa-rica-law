@@ -1,5 +1,2 @@
-Artículo 3º.- Las disposiciones del artículo 1º se aplicarán, en lo
-conducente a las uniones nacionales, provincias o regionales de
-municipalidades que se establezcan en el futuro. En cada caso los
-respectivos estatutos que se dictan deberán ser aprobados por la
-Contraloría General de la República.
+ARTICULO 3º.- Las disposiciones del artículo 1º se aplicarán, en lo conducente a las uniones nacionales, provincias o regionales de municipalidades que se establezcan en el futuro. En cada caso los respectivos estatutos que se dictan deberán ser aprobados por la Contraloría General de la República.
+(Nota de Sinalevi: De acuerdo con la opinión jurídica N° OJ-075-2016 del 27 de junio del 2016, la derogación expresa sufrida por el Código Municipal No.4574 de 04 de mayo de 1970, por medio del artículo 183 inciso a) del Código Municipal No.7794 de 30 de abril de 1998, trajo como consecuencia la supresión de la potestad de tutela que tenía la Asamblea Legislativa para aprobar o no la constitución de las federaciones o ligas municipales. Tal derogación alcanzó también al artículo 3 de la Ley de la Liga de Municipalidades de Cartago N° 5119 del 20 de noviembre de 1972, pues esta ley extendió el efecto aprobatorio a las uniones nacionales, provinciales o regionales de municipalidades que se establecieran en el futuro a condición de que sus estatutos fueran aprobados por la Contraloría General.
