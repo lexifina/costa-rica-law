@@ -1,0 +1,1 @@
+Artículo 16.-Los beneficiarios de estos permisos deberán en todo caso permitir el acceso de los inspectores e investigadores que autorice el INCOPESCA, para realizar inspecciones periódicas sobre el desarrollo de la actividad acuícola.

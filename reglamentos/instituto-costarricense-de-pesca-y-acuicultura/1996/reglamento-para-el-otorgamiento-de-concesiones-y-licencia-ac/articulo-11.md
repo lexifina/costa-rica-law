@@ -1,0 +1,1 @@
+Artículo 11.-En caso de que el acuacultor desee importar semilla deberá garantizar que este se encuentra infértil y libre de patógenos, salvo aquellos casos en que se importa para reproducir la especie de nuestro país, en todo caso deberá respetar las disposiciones emanadas por las autoridades sanitarias del país para este particular.

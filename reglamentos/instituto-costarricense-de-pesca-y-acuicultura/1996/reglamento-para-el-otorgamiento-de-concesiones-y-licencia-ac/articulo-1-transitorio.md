@@ -1,0 +1,1 @@
+Transitorio uno.-Aquellas personas físicas o jurídicas que se encuentran realizando actividades acuícolas al momento de entrada en vigencia del presente reglamento, deberán ponerse a derecho para lo cual se establece un plazo de seis meses contados a partir del momento de la publicación de la presente resolución.

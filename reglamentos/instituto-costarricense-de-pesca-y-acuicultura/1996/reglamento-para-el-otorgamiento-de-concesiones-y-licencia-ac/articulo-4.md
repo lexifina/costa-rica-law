@@ -1,0 +1,1 @@
+Artículo 4°-Las licencias para acuacultura, son aquellas que se otorgan para permitir el desarrollo de la actividad acuícola en terrenos privados hacienda uso de las aguas del Estado, cuya producción sea dirigida a la comercialización.

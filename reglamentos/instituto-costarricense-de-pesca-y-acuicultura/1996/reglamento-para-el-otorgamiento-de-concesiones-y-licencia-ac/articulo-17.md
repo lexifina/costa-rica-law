@@ -1,0 +1,1 @@
+Artículo 17.-Las licencias y concesiones acuícolas no son negociables por cualquier título. Podrán tramitarse entre derechos únicamente con el consentimiento previo del Instituto, misma que deberá ser autorizado exclusivamente por el Presidente Ejecutivo del Instituto.

@@ -1,0 +1,1 @@
+Artículo 14.-Para renovar la licencia de concesión el permisionario deberá solicitarlo con seis meses de anticipación a su vencimiento, transcurridos treinta días después de su vencimiento se procederá a la cancelación administrativa respectiva de oficio, sin perjuicio contra el INCOPESCA, por lo actuado.

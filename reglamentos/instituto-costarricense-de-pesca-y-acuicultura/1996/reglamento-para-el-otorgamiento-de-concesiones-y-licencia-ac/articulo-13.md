@@ -1,0 +1,10 @@
+Artículo 13.-Para la obtención de la concesión o licencia acuícola se requieren que el solicitante presente ante el Departamento de Protección y Registro del lNCOPESCA lo siguiente:
+a) Solicitud formal, autenticada por Abogado, dirigida a la Presidencia Ejecutiva deI INCOPESCA, de la licencia o concesión de acuacultura, indicando:
+1. La actividad y especies que piensan desarrollar.
+2. Nombre completo y calidades del patente para el caso de personas físicas, las personas jurídicas deberán aportar además de las calidades de la sociedad certificación del capital social, personería y distribución de las acciones así como el nombre y calidades de sus propietarios en cumplimiento de lo establecido por el Código de Comercio para las sociedades mercantiles las cuales deberán ser nacionales con un 51 % de capital nacional.
+3. Planos con el levantamiento planimétrico y altimétrico indicando su área referida a un punto central con coordenadas de tercer orden geodésico y con la respectiva demarcación de la zona intermareal y sumergida solicitada.
+4. Estudio técnico realizado por un profesional reconocido en el campo de la acuacultura, que demuestren la factibilidad de realizar el proyecto en la zona solicitada, este estudio debe ser aprobado previamente por la Dirección Técnica del INCOPESCA.
+b) Publicación del edicto correspondiente.
+c) Una vez cumplidos los requisitos de ley el lNCOPESCA procederá a otorgar, solicitar, complementar o rechazar la solicitud para el desarrollo de la actividad, en todo caso deberá razonar los motivos por lo cuales se toma tal decisión.
+d) Cancelación del canon correspondiente establecido por el INCOPESCA para cualesquiera de estas actividades.
+e) El INCOPESCA se reserva la posibilidad de suspender el otorgamiento de licencias y concesiones acuícolas cuando por motivos de conveniencia para el medio ambiente se haga necesario la toma de tal decisión para ello se le deberá notificar con seis meses de anticipación al concesionario para reubicarlo, dándose tratamiento prioritario de parte del INCOPESCA.

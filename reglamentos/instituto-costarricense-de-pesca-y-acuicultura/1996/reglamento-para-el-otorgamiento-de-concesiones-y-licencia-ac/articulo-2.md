@@ -1,0 +1,1 @@
+Artículo 2°-De acuerdo con las atribuciones que otorga la Ley 7384, corresponde al INCOPESCA, el otorgar la licencia y concesiones el desarrollo de la acuacultura, tanto en aguas marinas como Continentales.

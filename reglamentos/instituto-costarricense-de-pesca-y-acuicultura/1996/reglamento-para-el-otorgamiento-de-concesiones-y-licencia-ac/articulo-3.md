@@ -1,0 +1,1 @@
+Artículo 3°-Para el desarrollo de actividades acuículas en general, las personas físicas o jurídicas que desean hacerlo requerirán obtener del INCOPESCA la concesión o licencia de acuacultura respectiva.
