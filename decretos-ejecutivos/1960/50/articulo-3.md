@@ -1,0 +1,1 @@
+Artículo 3°─ Los sueldos o salarios para los servidores de la Imprenta serán los que fija la Ley de Salarios de la Administración Pública, de conformidad con la clasificación y valoración del puesto que en cada caso haga la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 27°─ De acuerdo con el Código de Trabajo, el servidor que se presente en estado de ebriedad, que discuta asuntos políticos, religiosos o sociales dentro del taller o el que ofenda de palabra u obra a algún Jefe o compañero, será sancionado por primera vez con tres días de suspensión y si reincidiere se le despedirá del trabajo con justa causa.

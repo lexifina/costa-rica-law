@@ -1,0 +1,1 @@
+Artículo 32°─ Las plazas vacantes se llenarán, de preferencia, mediante ascensos de quienes ocupen los puestos de la clase inmediata inferior, para lo cual podrá celebrarse los concursos internos que a juicio del Director fueren necesarios. En todo caso se observarán las disposiciones del artículo 20 del Reglamento del Estatuto de Servicio Civil.

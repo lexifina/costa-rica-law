@@ -1,0 +1,1 @@
+Artículo 13°─ Al servidor que se sorprenda efectuando trabajos no autorizados por la Dirección, se le sancionará con suspensión del trabajo por tres días la primera vez y con despido si reincidiere en la falta.

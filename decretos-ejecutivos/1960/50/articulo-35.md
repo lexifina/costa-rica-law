@@ -1,0 +1,1 @@
+Artículo 35°─ Todo servidor deberá tener como incluidas en su contrato de trabajo las prevenciones del presente Reglamento y en los casos no contemplados por él, se estará a lo dispuesto en el Código de Trabajo y el Reglamento de Servicio Civil y demás leyes aplicables.

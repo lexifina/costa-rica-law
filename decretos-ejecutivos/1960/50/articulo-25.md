@@ -1,0 +1,1 @@
+Artículo 25°─ Toda ausencia imprevista deberá ser justificada ante el Director o el Subdirector, quien las hará llegar a la Oficina de la Contaduría en cuanto las estime correctas, para los fines correspondientes.

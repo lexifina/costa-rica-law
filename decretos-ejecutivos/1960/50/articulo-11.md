@@ -1,0 +1,1 @@
+Artículo 11°─ Después de las horas de labor, es terminantemente prohibido a los servidores de la Imprenta, entrar a las oficinas o talleres, a menos que tengan orden para hacer algún trabajo extraordinario.

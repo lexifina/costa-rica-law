@@ -1,0 +1,2 @@
+DE LAS VACACIONES
+Artículo 28°─ La Imprenta señalará la época en que los servidores gozarán de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores a que se cumplan las cincuenta de servicio continuo, tratando de que no se altere la buena marcha de las funciones del taller, ni la efectividad del descanso, salvo el caso de acumulación de conformidad con lo que dispone la ley.

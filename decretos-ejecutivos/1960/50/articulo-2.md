@@ -1,0 +1,1 @@
+Artículo 2°─ Se consideran servidores de la Imprenta Nacional para los efectos del presente Reglamento, a todas las personas, que de acuerdo con los trámites del Estatuto de Servicio Civil y su Reglamento, sean nombradas por acuerdo del Poder Ejecutivo y sus cargos figuren en la Relación de Puestos del correspondiente Presupuesto General.

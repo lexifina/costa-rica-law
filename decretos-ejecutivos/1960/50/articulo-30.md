@@ -1,0 +1,1 @@
+Artículo 30°─En caso de incapacidad decretada por la Caja Costarricense de Seguro Social, el empleado gozará de un subsidio en la proporción que señala el artículo 34 y con arreglo de las estipulaciones contenidas en el artículo 35, ambos del Reglamento del Estatuto de Servicio Civil.

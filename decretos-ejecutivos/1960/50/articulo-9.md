@@ -1,0 +1,1 @@
+Artículo 9°─ Los servidores de la Imprenta estarán obligados al desempeño de sus cargos todos los días hábiles y durante todas las horas reglamentarias y no se podrá por lo mismo, conceder privilegio, prerrogativa o licencia alguna que autorice una asistencia irregular.

@@ -1,0 +1,1 @@
+Artículo 26°─ Aparte de las sanciones disciplinarias, las llegadas tardías, abandonos del trabajo y ausencias o fracción de jornada o a día completo acarrearán la pérdida del salario correspondiente al tiempo no trabajado.

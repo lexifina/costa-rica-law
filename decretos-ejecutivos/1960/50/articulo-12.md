@@ -1,0 +1,1 @@
+Artículo 12°─ El servidor a quien se le comprobare que por descuido absolutamente inexcusable ha echado a perder un trabajo, se le sancionará: la primera vez con suspensión hasta de tres días, hasta de seis días la segunda y con despido la tercera.
