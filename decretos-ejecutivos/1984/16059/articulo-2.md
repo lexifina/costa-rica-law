@@ -1,0 +1,1 @@
+Artículo 2°.-Inclúyase en la Reserva Indígena Cabécar de Awari los caseríos de Nairi y Jameycäri, de tal manera que los límites de esta reserva sean en adelante los descritos en el artículo 4° de presente Decreto.

@@ -1,0 +1,1 @@
+Artículo 6°.-Los límites de la Reserva Indígena de Barbilla, definidos en el artículo 3° del presente Decreto, y los límites de la Reserva Indígena de Awari, definidos en el artículo 4° del presente Decreto, son los límites definitivos de estas reservas.
