@@ -1,1 +1,0 @@
-Artículo 6°-Para el cumplimiento de su cometido la Comisión contará con una secretaría que estará bajo la responsabilidad del Centro Agrícola Regional de la Meseta Central Oriental, Cartago, que mantendrá estrecha coordinación con la Oficina de Planificación y Coordinación del Ministerio de Agricultura y Ganadería.
