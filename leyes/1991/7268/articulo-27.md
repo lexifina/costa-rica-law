@@ -1,0 +1,6 @@
+Artículo 27.- La Junta de Pensiones y Jubilaciones del Magisterio
+Nacional establecerá la cuota de participación que corresponda para
+cumplir con la estructura de financiamiento establecida en el artículo
+11 de esta Ley, con base en el estudio actuarial que se realice cada
+dos años y en las recomendaciones de la comisión establecida en el
+artículo anterior.

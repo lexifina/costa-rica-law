@@ -1,0 +1,16 @@
+Artículo 9º.- El tope máximo por pensión o jubilación, dentro del
+Régimen del Magisterio Nacional, será el salario correspondiente a la
+clase de puesto de Director General de Educación con treinta aumentos
+anuales. Sin embargo, todos aquellos funcionarios que, una vez
+cumplidos los requisitos para obtener una jubilación ordinaria,
+decidieran mantenerse en sus funciones tendrán opción a mejorar el
+monto de la misma en un cinco coma seis por ciento (5,6%) por cada
+año natural de postergación, hasta por un período de siete años, sin
+que el monto final de la jubilación supere el salario de un
+catedrático universitario con dedicación exclusiva y treinta
+anualidades al momento de hacer efectivo su retiro laboral. En este
+caso, continuarán cotizando para el régimen de Pensiones y
+Jubilaciones del Magisterio Nacional durante estos años.
+En ningún caso, existirá pensión o jubilación por una suma
+inferior al monto del salario del puesto de clase mínima actualizado
+en la Administración Pública.

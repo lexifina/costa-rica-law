@@ -1,0 +1,14 @@
+Artículo 6º.- Nadie podrá devengar pensión o jubilación mientras
+desempeñe cargo o empleo remunerado en organismos del Estado o
+instituciones autónomas y municipales, excepto los miembros del
+Consejo Superior de Educación, regidores y síndicos municipales,
+quienes devengan dietas en juntas directivas de instituciones
+públicas y el personal académico al servicio de los centros de
+enseñanza superior universitaria estatal. Estos últimos podrán ser
+recontratados hasta por un máximo de medio tiempo, para programas de
+postgrado o investigaciones de alto nivel, de conformidad con los
+procedimientos y requisitos que cada entidad establecerá al efecto.
+Los montos devengados por estos conceptos no se reconocerán para
+efectos de la pensión. La condición de jubilado o pensionado se
+suspenderá por el tiempo en que el interesado desempeñe el empleo o
+cargo, salvo en los casos de excepción indicados.
