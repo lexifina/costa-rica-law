@@ -20,3 +20,4 @@ Reglamento Interior del Servicio Postal
 | 6 | 1944-01-07 | Decreto Ejecutivo 2 (1944-01-07) |
 | 7 | 1950-04-28 | Decreto Ejecutivo 37 (1950-04-28) |
 | 8 | 1974-03-30 | Decreto Ejecutivo 3660 (1974-03-30) |
+| 9 | 1987-11-30 | Ley 7088 |

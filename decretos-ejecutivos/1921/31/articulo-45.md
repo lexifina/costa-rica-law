@@ -1,1 +1,1 @@
-Artículo 45.- Se considera como correspondencia oficial, y por lo tanto exenta de porte, la del Presidente de la República, de los Secretarios de Estado y la de los empleados entre sí, civiles y militares, cuando tenga por objeto el servicio público y lleve el sello de la oficina de donde procede, sin cuya formalidad se considerará como privada.
+Artículo 45.- (Derogado por el artículo 17 de la ley N° 7088 del 30 de noviembre de 1987 “Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA”)
