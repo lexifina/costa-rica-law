@@ -1,0 +1,1 @@
+Artículo I°—En terrenos con pendientes mayores al 20% y a orillas de cauces de agua, el permiso de construcción estará condicionado a la presentación de estudios geológicos y de suelos que demuestren la estabilidad del terreno.

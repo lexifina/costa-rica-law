@@ -1,0 +1,1 @@
+Artículo 2°—Se prohibe realizar cualquier tipo de construcción a menos de 10 m de las márgenes de los ríos, medidos éstos en proyección horizontal a partir de la línea del lecho máximo perceptible del río y a 5 m en acequias y cauces de agua intermitentes.
