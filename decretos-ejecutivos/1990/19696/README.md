@@ -15,3 +15,4 @@ Declara Interés Arquitectónico Palacio Municipal Limón
 | --- | --- | --- |
 | 1 | 1990-06-04 | la propia norma |
 | 2 | 2002-05-09 | Decreto Ejecutivo 30581 (2002-05-09) |
+| 3 | 2002-05-09 | Ley 8 |
