@@ -1,0 +1,1 @@
+Artículo 6°.— La Red Nacional se reunirá ordinariamente una vez cada dos meses y extraordinariamente cuando sea convocada por el director ejecutivo o la mitad más uno de sus miembros en nota escrita dirigida a la coordinación.
