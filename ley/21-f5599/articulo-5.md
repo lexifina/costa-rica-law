@@ -1,0 +1,1 @@
+Art. 5°-Se reforma el artículo 6° como sigue: Art. 6°.-Los Comandantes de Provincias harán contribuir al Ejército de Operaciones con la mitad del turno, esto es, cuatro días de trabajo, ó cinco pesos á cada individuo de tropa, excepto los que se hallen en guarnicion, que no están obligados a prestar ese servicio. La oficialidad contribuirá como los demás ciudadanos.

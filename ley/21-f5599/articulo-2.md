@@ -1,0 +1,1 @@
+Art. 2°-El párrafo único del artículo 1° queda modificado así: Único.-Los capitalistas de uno y otro sexo, los varones aun cuando excedan de la edad de cincuenta años, deben contribuir también con aquel importante fin.
