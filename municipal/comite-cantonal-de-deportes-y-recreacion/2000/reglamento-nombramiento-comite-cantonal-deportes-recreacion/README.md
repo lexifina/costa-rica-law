@@ -14,3 +14,4 @@ Reglamento Nombramiento Comité Cantonal Deportes Recreación de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-12 | la propia norma |
+| 2 | 2000-07-26 | Reglamento municipal 219 (2000-07-26) |
