@@ -1,0 +1,1 @@
+Artículo 3º.- El aporte de los bancos comerciales se hará en la oportunidad, forma y porcentajes que rijan el Impuesto sobre la Renta y servirá de base para su cálculo la estimación que para efectos del mismo impuesto, hagan los bancos.
