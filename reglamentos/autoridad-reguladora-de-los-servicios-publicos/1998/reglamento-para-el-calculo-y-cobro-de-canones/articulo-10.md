@@ -1,0 +1,1 @@
+Artículo 10.-Obligación del agente recaudador de remitir fondos a la Autoridad Reguladora. Los prestatarios que participen en la recaudación remitirán a la Autoridad Reguladora con su respectivo detalle, los fondos recaudados, lo cual se hará en los primeros diez días naturales siguientes al último día del mes en que realizó el cobro.
