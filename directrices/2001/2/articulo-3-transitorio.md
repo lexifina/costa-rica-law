@@ -1,0 +1,2 @@
+TRANSITORIO III
+Dado que actualmente existe acción de inconstitucionalidad contra los artículos 9 y 143 inciso a), del Código Notarial, número 99-5921-007-CO, este reglamento será aplicable dentro del dimensionamiento establecido por la Sala Constitucional, en la resolución de las quince horas quince minutos del veintiuno de setiembre de mi novecientos noventa y nueve, hasta tanto sea resuelta dicha acción.

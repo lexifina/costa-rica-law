@@ -1,0 +1,3 @@
+ARTÍCULO 18
+TRÁMITE DEL EXPEDIENTE:
+Una vez comprobada por medios documentales, la legitimidad del gestionante, con arreglo a lo dispuesto en los artículos 13 y 14 del presente reglamento, la Dirección dispondrá la publicación de un edicto en el Boletín Judicial, dando cuenta de la pretensión formulada, concediendo el plazo de un mes, para que aquellos interesados en formular algún reclamo u oposición contra ésta, se apersonen al expediente. Al propio tiempo, se remitirá solicitud al Juzgado Notarial y al Registro Nacional de Notarios, a fin de que certifiquen si se tiene noticia de que contra el respectivo notario existen en trámite o en ejecución, procesos con pretensiones civiles resarcitorias, con indicación de los mismos, si los hubiere.

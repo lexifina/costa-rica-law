@@ -1,0 +1,3 @@
+ARTÍCULO 27
+PARTE CON INTERÉS LEGÍTIMO:
+Se considerará parte con interés legítimo aquélla persona física o jurídica a favor de quien la sentencia ordena el pago de la indemnización. En caso de personas físicas, podrá actuar por sí o a través de persona interpuesta, para lo cual se seguirán las reglas del mandado contenidas en el ordenamiento civil vigente; o su sucesión, si hubiere fallecido, todo lo cual deberá acreditarse por la vía documental idónea, a satisfacción de la Dirección. Si se tratare de personas jurídicas, ésta deberá estar representada por quien ostente facultades suficientes para el acto, para lo cual deberá acreditar la personería respectiva.
