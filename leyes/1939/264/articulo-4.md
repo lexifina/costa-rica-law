@@ -1,4 +1,5 @@
-Artículo 4°-Los empleados y obreros que se retiren del servicio, por enfermedad o incapacidad física que les impida continuar trabajando, de modo absoluto y permanente, serán jubilados de manera vitalicia, con derecho a cobrar por mes una pensión proporcional al tiempo servido, así:
-a) Si hubieren prestado servicios por más de 30 años, la pensión será igual a la mitad del sueldo o salario devengado en el último mes;
-b) Si la duración de servicios excediere de 35 años, la pensión será igual a las dos terceras partes del último sueldo o salario devengado;
-c) Si el tiempo servido no llegare a 30 años, siempre que pasaren de 10, la pensión será igual a la cantidad que resulte multiplicando el monto de las dos terceras partes del último sueldo o salario devengado por el número de años servido y partiendo el producto por 30.
+Artículo 4°-Los empleados y obreros que se retiren del servicio, por enfermedad o incapacidad física que les impida continuar trabajando, de modo absoluto y permanente, serán jubilados de manera vitalicia, con derecho a cobrar por mes una pensión proporcional al tiempo servido así:
+a) Si hubieren prestado servicios por más de treinta años, la pensión será igual a la mitad del sueldo o salario del promedio ganado en los últimos cinco años.
+b) Si la duración de servicios excediere de los treinta y cinco años, la pensión será igual a las dos terceras partes de los sueldos o salarios en promedio mensual devengados durante los últimos cinco años.
+c) Si el tiempo servido no llegare a treinta años, siempre que pasare de diez años, la pensión será igual a la cantidad que resulte multiplicando el monto de las dos terceras partes del promedio del sueldo o salario devengado durante los últimos cinco años, por el tiempo servido y partiendo el producto por treinta.
+(Así reformado por el artículo 3° de la ley N° 96 del 8 de julio de 1940)
