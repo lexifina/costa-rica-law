@@ -1,0 +1,2 @@
+Transitorio.- Los empleados municipales que se hubieren retirado de sus cargos antes de la promulgación de esta ley, y que estuvieren comprendidos en el régimen de pensiones municipales, podrán acogerse a los beneficios que por esta ley se acuerden, reintegrando las sumas que hubieren retirado del fondo de pensiones, dentro del año siguiente a la fecha de su promulgación, siempre y cuando hubieran vuelto a emplearse en la misma Municipalidad.
+Casa Presidencial.-San José, a los veintinueve días del mes de julio de mil novecientos cincuenta y cinco.
