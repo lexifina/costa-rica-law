@@ -1,0 +1,1 @@
+Articulo 26.— La Municipalidad se encuentra obligada a enviar al Departamento de Empleo del Ministerio de Trabajo y Seguridad Social, las listas actualizadas de las personas a la que se les haya otorgado licencia, para que dicho Departamento pueda ofrecerles cuando lo considere Oportuno, un empleo compatible con sus posibilidades en una actividad productiva.

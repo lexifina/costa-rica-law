@@ -1,0 +1,1 @@
+Articulo 23.—En caso de caducidad o renuncia de una licencia por cualquier motivo- La Municipalidad procederá a la adjudicación de la misma, de acuerdo al consecutivo de presentación de ¡as solicitudes pendientes.

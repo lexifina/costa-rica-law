@@ -1,0 +1,1 @@
+Articulo 25.— La Municipalidad se reserva el derecho de reubicar de forma unilateral los puestos o rutas, cuando las condiciones del tránsito de vehículos o peatones lo ameriten, o bien. cuando la construcción de obras nuevas lo requieran o de alguna otra causa justificada que hagan de la reubicación una medida oportuna y conveniente.

@@ -1,0 +1,1 @@
+Articulo 5°—La licencia tendrá una vigencia de un año, y podrán ser renovadas por periodos iguales, siempre que se cumplan con los requisitos establecidos en la Ley y el Reglamento y lo considere oportuno la Municipalidad.

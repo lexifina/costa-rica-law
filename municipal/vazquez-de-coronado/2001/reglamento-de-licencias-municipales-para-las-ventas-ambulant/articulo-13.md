@@ -1,0 +1,2 @@
+Articulo 13.—No podrán ubicarse puestos obstruyendo ventanas, entradas, esquinas donde converjan las zonas de seguridad peatonal, frente a monumentos nacionales o cantonales, ni fuera de la Feria del Agricultor.
+Los puestos deberán tener una distancia mínima de un metro con veinticinco centímetros de la línea de las paredes y las líneas de ascenso en las paradas de autobuses, autorizadas por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 15.—Únicamente se podrá ejercer la actividad que se indique en la solicitud. La Municipalidad , siguiendo las reglas de la discrecionalidad, determinará si la actividad es conveniente y guarda relación con el lugar en que se ubicará. La Municipalidad podrá rechazar cualquier actividad que no se ajuste al ornato y condiciones del lugar.

@@ -1,0 +1,1 @@
+Articulo 31.—A quien ejecute la actividad sin contar con licencia o con la misma suspendida, le serán aplicadas las multas establecidas en el articulo 81 bis del Código Municipal, así como se podrá proceder al decomiso de la mercadería que se encuentre en el lugar donde ilegítimamente se ejerza la actividad.

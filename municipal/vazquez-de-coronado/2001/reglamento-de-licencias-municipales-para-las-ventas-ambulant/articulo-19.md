@@ -1,0 +1,1 @@
+Articulo 19. —Los vendedores ambulantes no podrán permanecer estacionados en un mismo sitio, salvo el tiempo necesario que lo requiera e! servicio al cliente inmediatamente atendido. En cuanto a las demás regulaciones, se exigen los mismos requisitos que para los estacionarios, y en la licencia se definirá la rula comercial autorizada para la misma.

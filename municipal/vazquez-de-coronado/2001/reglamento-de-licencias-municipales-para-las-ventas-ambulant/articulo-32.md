@@ -1,0 +1,1 @@
+Articulo 32.—El no pago del impuesto de patentes ambulantes y estacionarias en los términos fijados en las leyes y el presente Reglamento, generará multas de un dos por ciento mensual, sin que puedan exceder las multas el cincuenta por ciento del monto adeudado.

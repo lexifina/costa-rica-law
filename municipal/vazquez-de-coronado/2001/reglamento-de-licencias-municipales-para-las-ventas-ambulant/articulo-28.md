@@ -1,0 +1,1 @@
+Articulo 28.—Las resoluciones de la Municipalidad que ordenen la caducidad de la patente por falta de pago, tendrán de igual forma los recursos ordinarios, pero únicamente podrá ser alegada la excepción de pago o la ilegalidad del cobro.

@@ -1,0 +1,1 @@
+Articulo 18.—El Instituto Costarricense de Electricidad y el Instituto Costarricense de Acueductos y Alcantarillados, no podrán suministrar fuerza eléctrica ni agua potable a los puestos estacionarlos, sin previa autorización escrita de la Municipalidad , la cual determinará si la actividad autorizada requiere de la prestación de tales servicios.
