@@ -1,0 +1,1 @@
+Artículo 5º—El Departamento de Recursos Humanos a través de la Unidad de Salud Ocupacional diseñará y aplicará un proceso permanente de educación a nivel preventivo y de rehabilitación para los casos que así lo ameriten, siendo su principal interés velar por la salud física y mental de cada uno de los trabajadores de la ESPHSA.

@@ -1,0 +1,1 @@
+Artículo 7º—Los jefes, sean inmediatos o superiores, están en la obligación de velar por la aplicación de la presente normativa, en fiel apego a las normas básicas de Salud Ocupacional implementadas por la ESPHSA, su incumplimiento será motivo de sanción, conforme al artículo 50, inciso 22) del Reglamento Autónomo de Servicio, antecitado.

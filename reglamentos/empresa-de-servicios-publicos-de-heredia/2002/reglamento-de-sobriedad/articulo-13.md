@@ -1,0 +1,1 @@
+Artículo 13.—Para todos los actos procedimentales dirigidos a un eventual despido y que se inicien en ejecución de este reglamento, se aplicará lo indicado por la Ley General de la administración Pública.

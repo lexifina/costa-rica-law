@@ -1,0 +1,1 @@
+Artículo 2º—Todo funcionario de la ESPHSA está obligado a denunciar ante el Departamento de Recursos Humanos, cualquier incumplimiento respecto de lo indicado en el artículo primero de este reglamento, para todos los casos que tenga conocimiento, sea en razón de jefatura o de compañero de trabajo de igual o inferior jerarquía.

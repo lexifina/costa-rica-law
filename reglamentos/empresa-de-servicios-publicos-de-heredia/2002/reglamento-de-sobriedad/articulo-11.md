@@ -1,0 +1,1 @@
+Artículo 11.—Será motivo de sanción el hecho de que un trabajador desobedezca una orden de asistir a grupos de terapia o tratamientos especiales, debidamente indicados por el médico de empresa, para lo cual el trabajador deberá presentar al Departamento de Recursos Humanos, constancia de su asistencia, extendido por el encargado del grupo o entidad a la cual asiste.

@@ -1,0 +1,1 @@
+Artículo 3º—Es obligación del Departamento de Recursos Humanos vigilar por el fiel cumplimiento de este reglamento, asimismo, a través de la Unidad de Salud Ocupacional se deberá realizar por lo menos una vez al mes una inspección en todos y cada uno de los centros de trabajo de la ESPH a fin de constatar su aplicación.
