@@ -1,0 +1,1 @@
+Artículo 15.-Los Delegados de las Uniones Cantonales deben firmar el acta, como constancia de su asistencia y participación en la Constitución de la Federación, y desde este momento, sus representantes se reputarán como Uniones fundadoras de la Federación.

@@ -1,0 +1,1 @@
+Artículo 37.-Las Federaciones podrán tomar uno o varios locales para el cumplimiento de sus actividades. Si estos locales son empleados para actos ilícitos , innobles o contrarios a las buenas costumbres, serán clausurados por las autoridades políticas, religiosas o inspiradas en motivos de orden sectarios.

@@ -1,0 +1,1 @@
+Artículo 11.-Para dar inicio a la Asamblea, el representante de la Dirección deberá verificar si el número de Uniones Cantonales y sus representantes concuerdan con lo establecido en el artículo anterior. Estando de conformidad se declara la Asamblea instalada y en funciones.

@@ -1,0 +1,2 @@
+Artículo 4°-Para solicitar el establecimiento de una Federación es necesario que la mitad o más de las Uniones Cantonales interesadas, que pertenezcan a un área geográfica de las establecidas en el artículo 3° de este Reglamento presenten a la Dirección un memorial firmado por los presidentes de las Uniones que quieren el establecimiento de la Federación, solicitando la convocatoria a una Asamblea General de representantes.
+A la solicitud deben Insertar copia del acuerdo de la Asamblea General autorizando el establecimiento de la Federación.

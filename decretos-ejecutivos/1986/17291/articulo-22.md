@@ -1,0 +1,1 @@
+Artículo 22.-La convocatoria deberá enviarse por correo certificado a cada uno de los presidentes de las Uniones integrantes para que acrediten sus delegados, con un mes por lo menos de anticipación, a la realización de la asamblea. La asamblea debe ser comunicada a la Dirección con la misma anticipación,

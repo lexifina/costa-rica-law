@@ -1,0 +1,1 @@
+Artículo 45.-Los bienes pasivos de las Asociaciones y Uniones Cantonales que hayan sido disueltas podrán ser distribuidos en las mismas conforme establece la Ley y Reglamento de Desarrollo de la Comunidad. En caso de que no existan estos organismos les serán asignados a la Federación.
