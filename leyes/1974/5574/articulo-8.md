@@ -1,4 +1,4 @@
-Artículo 8º.- Los banco tomarán las disposiciones necesarias para la
+Artículo 8º.- Los bancos tomarán las disposiciones necesarias para la
 percepción del impuesto y girarán a la Junta Administrativa del Archivo
 Nacional, seis céntimos de colón por cada fórmula de cheques, dentro de
 los primeros cinco días de cada mes. Los cuatro céntimos restantes se
