@@ -14,3 +14,4 @@ Modifica la Ley de Presupuesto Ordinario y Extraordinario de la República, para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-21 | la propia norma |
+| 2 | 2001-09-28 | Decreto Ejecutivo 29871 (2001-09-28) |

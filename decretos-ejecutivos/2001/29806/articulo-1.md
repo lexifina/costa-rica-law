@@ -46,3 +46,4 @@ CÉDULA JURÍDICA 3-014-185645 275.000.000
 Total Aumento del Programa 870-00 275.000.000
 Total Aumento del Título127 275.000.000
 Total Aumentar 275.000.000
+(Modificado por el artículo 1 del Decreto Ejecutivo 29806 del 13 de setiembre del 2001)
