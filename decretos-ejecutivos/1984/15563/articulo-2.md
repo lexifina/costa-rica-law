@@ -1,0 +1,2 @@
+Artículo 2° .-Se declaran como enfermedades infecciosas o contagiosas de las abejas y de más grave peligro para su extinción, entre otras las siguientes:
+Lo que Americana (Bacilus Larvae), Lo que Europea (Bacilus Alvei), cría calcificada (Aspergilus flavus), Acariosis (Acarapis woodi), Par lisis (virus), Varroasis (Varroa jacobsoni) y Tropilaelaps clavae. Dichas enfermedades son de denuncia obligatoria.
