@@ -12,3 +12,4 @@ Considerando:
 7º—Que el Consejo de Gobierno en la Sesión N° 086 celebrada el 18 de enero del 2000, en su artículo cuarto conoció esta directriz. Por tanto,
 Decretan:
 Artículo 1º—La Autoridad Presupuestaria no considerará solicitudes para la creación de plazas durante el periodo presupuestario del 2000. Por lo tanto los órganos y entidades públicas se abstendrán de solicitar la creación de nuevas plazas durante este período.
+(Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 28753 de 22 de junio de 2000, publicado en La Gaceta N° 135 de 13 de julio de 2000, Alcance 10, el cual exceptúa al Instituto Nacional de Seguros de la aplicación del presente Decreto, para crear 15 plazas de Bombero 1 y 5 de Bombero II.)
