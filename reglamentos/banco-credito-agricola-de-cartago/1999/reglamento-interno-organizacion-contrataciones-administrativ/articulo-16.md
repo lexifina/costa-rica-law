@@ -1,3 +1,0 @@
-SECCION OCTAVA
-Seguimiento de Contrataciones
-16.—Cada Oficina solicitante de bienes y servicios, será la responsable de establecer el seguimiento adecuado sobre la debida ejecución de las prestaciones a cargo de los contratistas y para tales efectos deberá designar un responsable supervisor de la ejecución contractual. Para los anteriores efectos, la oficina solicitante deberá adoptar, en cada caso, las previsiones que resulten necesarias para verificar el fiel cumplimiento del objeto de los contratos, estableciendo las medidas necesarias que permitan garantizar que el contratista asuma en debida forma, el cumplimiento de las prestaciones a su cargo.

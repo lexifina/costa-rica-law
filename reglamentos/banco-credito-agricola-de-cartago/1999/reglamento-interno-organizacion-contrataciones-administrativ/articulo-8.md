@@ -1,3 +1,0 @@
-SECCION QUINTA
-Contrataciones correspondientes a actividades no sujetas a concurso público. (Razones de seguridad, Proveedor único, Ayuda desinteresada, Situaciones imprevisibles, otras)
-8.—A excepción de la Contratación Directa por "Escasa Cuantía", en los casos de contrataciones que el funcionario solicitante presuma que se ajustan a alguno de los casos de excepción contemplados en la Ley de Contratación Administrativa y Reglamento General de Contratación Administrativa, deberá remitir los antecedentes y justificaciones del Area Legal, quien emitirá el criterio respectivo sobre la procedencia de que la contratación sea directa por excepción contemplada en la ley.

@@ -1,2 +1,0 @@
-19.—La Oficina de Gestión Institucional, de conformidad con el artículo 108.1 del Reglamento General de Contratación Administrativa, será la responsable de desplegar los actos de verificación necesarios para establecer que la Administración recibe los bienes, obras o servicios dentro de las condiciones de calidad, plazo y demás condiciones acordadas con el contratista.
-Los montos incluidos en este documento se ajustarán conforme la Contraloría General de la República, modifique los límites económicos para la utilización de los diversos procedimientos de contratación.
