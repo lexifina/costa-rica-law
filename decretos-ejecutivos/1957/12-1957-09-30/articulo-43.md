@@ -1,5 +1,2 @@
-Artículo XLIII.- Cuota mensual:
-a) Los Colegios deberán pagar una cuota mensual de ¢ 5.00 que se
-destinará al pago de los gastos que el Colegio ocasione; y
-b) Los que paguen la contribución estipulada en el Artículo XL,
-inciso c) no pagarán esa cuota.
+Artículo XLIII.- Cuota mensual: Las cuotas mensuales de colegiatura que pagarán los profesionales en Microbiología y Química Clínica se calcularán automáticamente y serán el equivalente al 2% del salario mínimo de un MQC-1 establecido por el Consejo Nacional de Salarios del Ministerio de Trabajo. El monto obtenido se redondeará a la centena y mitad de centena más próxima.
+(Así reformado parcialmente por el artículo 1° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)

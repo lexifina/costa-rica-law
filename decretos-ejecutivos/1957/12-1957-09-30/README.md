@@ -14,3 +14,4 @@ Reglamento Interno del Colegio de Microbiólogos
 | --- | --- | --- |
 | 1 | 1957-10-05 | la propia norma |
 | 2 | 1957-10-05 | SINALEVI (sin norma nombrada) |
+| 3 | 2004-05-04 | Decreto Ejecutivo 31955 (2004-05-04) |

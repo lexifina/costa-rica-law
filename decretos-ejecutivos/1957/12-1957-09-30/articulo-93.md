@@ -1,3 +1,1 @@
-Artículo XCIII.- En ningún momento podrá abrirse un Laboratorio
-Particular Convencional Rural en una comunidad en donde ya esté
-establecido un miembro del Colegio de Microbiólogos.
+Artículo XCIII.- (DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)

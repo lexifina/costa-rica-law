@@ -11,13 +11,8 @@ b) Estar incorporado debidamente al Colegio de Microbiólogos y en
 pleno derecho de sus facultades y al día en sus obligaciones,
 como miembro del mismo;
 c) Ser de reconocida solvencia moral;
-d) Ser costarricense de origen o naturalizado. Los extranjeros que
-poseen títulos académicos, atestados y estudios especiales en
-determinadas ciencias, comprendidas en las que cita el artículo
-2º, inciso b) de la Ley Constitutiva y Artículo LXXVIII del
-Reglamento Interno, podrán aspirar a su debida incorporación de
-acuerdo con los requisitos que para el efecto exige la
-Universidad Nacional; y
+d) Ser costarricense de origen o naturalizado. Los extranjeros que poseen títulos académicos, atestados y estudios en la ciencia, comprendidos en las que cita el artículo LXXVIII del presente reglamento, podrán aspirar a su debida incorporación de acuerdo con los requisitos que para el efecto exige la Universidad de Costa Rica por medio de su Departamento de Registro y oyendo el parecer de la Facultad de Microbiología.
+(Así reformado parcialmente por el artículo 1° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)
 e) Para poder ejercer la profesión según el Artículo LXXVIII, el
 Microbiólogo habrá de permanecer en el Laboratorio un tiempo
 mínimo de 6 horas diarias, comprendidas entre 6 a.m. y las 8

@@ -12,12 +12,9 @@ c) Los Microbiólogos se limitarán exclusivamente a practicar los
 exámenes requeridos por el médico o el paciente, no pudiendo
 bajo ningún concepto dar interpretación clínica de esos
 exámenes, o indicaciones terapéuticas al paciente;
-d) Los reportes de cada uno de los exámenes se harán siempre en las
-papeletas que apruebe la Asamblea General;
-e) Esos reportes no podrán llevar llamadas de ninguna especie
-(asteriscos, subrayados, cambios de tinta, etc.), en
-anotaciones, cifras o cantidad que el Microbiólogo considere
-anormales, pues corresponde al médico esas interpretaciones;
+d) Los reportes de cada uno de los exámenes se harán siempre en las papeletas que apruebe la junta Directiva;
+(Así reformado parcialmente por el artículo 1° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)
+e) (Así derogado por el artículo 2° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)
 f) Los Microbiólogos no podrán practicar extracciones de líquidos
 cefalorraquídeos, ascítico, pleural, sinovial, etc.; punciones
 esternal, esplénica, cisternal, etc.; extracción del líquido

@@ -1,3 +1,1 @@
-Artículo XCI.- Laboratorios Particulares ruralesserán aquellos cuyo
-regente sea miembro del Colegio de Microbiólogos. Tales Laboratorios se
-reglamentarán en forma idéntica que los urbanos.
+Artículo XCI.- (DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31955 de 04 de mayo de 2004.)
