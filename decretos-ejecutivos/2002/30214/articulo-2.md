@@ -124,3 +124,5 @@ Junta Administradora del Servicio Eléctrico de Cartago (JASEC): Compra de Energ
 (Así adicionado por artículo 1° del Decreto Ejecutivo N° 31006 de 27 de enero de 2003)
 Empresa de Servicios Públicos de Heredia Sociedad Anónima (ESPHSA): Compra de energía eléctrica.
 (Así adicionado por artículo 1° del Decreto Ejecutivo N° 31072 del 24 de febrero de 2003)
+Servicio Nacional de Aguas Subterráneas Riego y Avenamiento, destinada al Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria.
+(Así adicionado por artículo 1° del Decreto Ejecutivo N° 31265 del 23 de junio de 2003)
