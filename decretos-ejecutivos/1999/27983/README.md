@@ -14,3 +14,4 @@ Autoriza y Dotar de Investidura como Inspectores de Salud los Funcionarios del S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-26 | la propia norma |
+| 2 | 2000-01-21 | Decreto Ejecutivo 28433 (2000-01-21) |
