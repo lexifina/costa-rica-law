@@ -1,0 +1,10 @@
+De la creación de una instancia de coordinación de las vigilancias de
+edificios y barrios
+Artículo 16.- Creáse la Comisión para la Coordinación del Servicio
+Privado de Seguridad, la cual estará formada por los siguientes miembros:
+El Ministro de Seguridad Pública o su designado, los Directores de Radio
+Patrullas, Guardia Civil y Guardia Rural, un representante de las
+empresas que transportan valores, tres representantes de las empresas que
+brindan seguridad en edificios y barrios, un representante de las
+vigilancias de las instituciones públicas y cualquier otro que el
+Ministro considere necesario.

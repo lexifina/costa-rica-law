@@ -1,0 +1,7 @@
+De los reportes
+Artículo 33.- Las personas físicas y jurídicas que brindan el
+servicio de vigilancia electrónica deben enviar mensualmente a la
+Dirección del Servicio Privado de Seguridad del Ministerio de Seguridad
+Pública, una lista actualizada de las personas físicas o jurídicas que
+reciben este servicio, enviándose a dichos clientes, un reporte mensual
+de la prueba diaria del funcionamiento de la alarma monitoriada.

@@ -1,0 +1,7 @@
+Del registro
+Artículo 2º.- La oficina encargada del Servicio Privado de Seguridad
+inscribirá y llevará un registro actualizado de todas las personas
+físicas y jurídicas dedicadas a prestar este servicio. También se
+incluirán en este registro todos los trabajadores de empresas que
+realicen la función de vigilantes privados aunque su función se encuentre
+limitada a áreas privadas delimitados geográficamente.
