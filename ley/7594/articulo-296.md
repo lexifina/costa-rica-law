@@ -1,0 +1,14 @@
+ARTICULO 296.- Secreto de las actuaciones
+Si el imputado no está privado de su libertad, el Ministerio Público
+podrá disponer, sólo una vez y mediante resolución fundada, el secreto
+total o parcial de las actuaciones, por un plazo que no podrá superar los
+diez días consecutivos, siempre que la publicidad entorpezca el
+descubrimiento de la verdad. El plazo podrá prorrogarse hasta por otro
+tanto, pero, en este caso, cualquiera de los nombrados, sus defensores o
+mandatarios podrán solicitar al tribunal del procedimiento preparatorio,
+que examine los fundamentos de la disposición y ponga fin a la reserva.
+A pesar del vencimiento de los plazos establecidos, cuando la
+eficacia de un acto particular dependa de la reserva parcial de las
+actuaciones, el Ministerio Público podrá solicitar al juez que disponga
+realizarlo sin comunicación previa a las partes, las que serán informadas
+del resultado de la diligencia.
