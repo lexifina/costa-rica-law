@@ -1,0 +1,1 @@
+Articulo 2°—Del Área de Influencia. La precalificación se realizará para aquellas organizaciones no gubernamentales que se localicen territorial mente en el Cantón de Sarapiquí y que tengan programas" proyectos para ejecutar en los Distritos de Sarapiquí a través de la ley No 7755.

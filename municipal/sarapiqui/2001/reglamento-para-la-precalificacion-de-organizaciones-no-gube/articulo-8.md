@@ -1,0 +1,1 @@
+Artículo 8°—En el Acuerdo Municipal se indicará que la precalificación no constituye una garantía de que la organización recibirá los recursos públicos, ni de que la Contraloría General de la República le otorgará la calificación de idoneidad. Asimismo, se indicará que la vigencia de la precalificación es por el plazo de un año.

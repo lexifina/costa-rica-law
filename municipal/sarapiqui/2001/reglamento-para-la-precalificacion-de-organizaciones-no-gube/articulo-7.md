@@ -1,0 +1,1 @@
+Articulo 7°—Si la Comisión considera que la Organización cumple con los requisitos y que el proyecto es de interés y beneficio para la comunidad, enviará el expediente con el respectivo dictamen al Concejo Municipal, quien lomará el acuerdo que precalifica a la Organización como entidad privada idónea para administrar fondos públicos,
