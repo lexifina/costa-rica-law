@@ -1,0 +1,3 @@
+12. Retención en los pagos por servicios profesionales:
+De todo el pago que el INA realice, la Dirección Financiero Contable hará una retención de un 10% (diez por ciento), suma que responderá ante eventuales daños y perjuicios que el contratista ocasione a la Institución, durante la ejecución del contrato, o bien, por pérdida o reparación de equipo facilitado a este.
+Las sumas retenidas serán devueltas al contratista diez días hábiles después de que finalice el contrato, contra solicitud del departamento o dirección ejecutora, el cual deberá efectuar manifestación expresa en cuanto a los puntos señalados en el numeral 11.4 del presente instructivo.

@@ -1,0 +1,8 @@
+10. Pago de gastos de pasajes y de permanencia:
+Adicionalmente al pago de las horas profesionales, el INA podrá reconocer al contratista los gastos de pasajes y permanencia en el lugar en que este deba prestar sus servicios, siempre que no se trate de su lugar de domicilio, el cual se indicará en el contrato respectivo.
+Los gastos de permanencia se reconocerán únicamente cuando la continuidad del servicio así lo exija.
+La suma máxima diaria por este concepto no podrá exceder, en ningún caso, la suma que por concepto de gastos de viaje. e! INA reconoce a sus funcionarios regulares, de conformidad con el reglamento respectivo.
+Los gastos de pasajes se reconocerán siempre y cuando exista una distancia mínima de diez kilómetros entre el domicilio de! contratista y los lugares a donde deba desplazarse con motivo de la impartición del curso o del servicio a prestar. Para dicho reconocimiento se considerarán únicamente los medios de transporte más económicos.
+Cuando deben reconocerse gastos de permanencia o de pasajes e! jefe del departamento solicitante deberá solicitar el reconocimiento de estos conceptos en forma separada de las horas profesionales.
+El pago de estos conceptos se hará contra liquidación. aprobada por e! jefe del departamento o director solicitante, de acuerdo con la fórmula que para tal efecto suministrará la Secretaria de la Comisión.
+Para la aplicación de la presente disposición se entenderá por domicilio lo establecido por e! artículo 60 del Código Civil. Los pagos por concepto de gastos de pasajes y permanencia se cargarán a la misma partida correspondiente a la de pago por honorarios profesionales.
