@@ -1,0 +1,1 @@
+Artículo 21.- Facúltase a la Municipalidad del Cantón Central de Puntarenas para revisar cada dos años los montos indicados en los artículos 17 y 18. Estas revisiones deberán ser aprobadas por la Contraloría General de la República.
