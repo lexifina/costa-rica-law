@@ -1,0 +1,2 @@
+Transitorio único.-Se otorga un plazo de seis meses a partir de la vigencia del presente decreto ejecutivo, para que los productos registrados a la fecha, que contengan en su formulación CAPTAN, puedan ajustarse a lo dispuesto en este decreto y en el decreto Nº 24337-MAG-S (Reglamento sobre Registro, Uso y Control de Plaguicidas Agrícolas y Coadyuvantes), de conformidad con lo que al respecto determine la administración de los registros respectivos.
+Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de agosto de mil novecientos noventa y cinco.
