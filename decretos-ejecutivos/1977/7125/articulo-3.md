@@ -1,0 +1,1 @@
+Artículo 3°—Corresponderá a las Escuelas o Liceos Laboratorio trasmitir, a las otras instituciones educativas del país, los logros y descubrimientos realizados como un servicio permanente de difusión, mediante conferencia,, talleres pedagógicos, seminarios, boletines, libretos, circulares, etc.

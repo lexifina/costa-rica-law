@@ -1,0 +1,1 @@
+Artículo 10.—El Director del establecimiento será el responsable administrativo de la Institución. Coordinará el planeamiento de un trabajo con el Departamento de Capacitación del Ministerio de Educación Pública.

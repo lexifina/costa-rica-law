@@ -1,0 +1,5 @@
+Artículo 2°—En concordancia con los fines de la Educación Costarricense, las escuelas o Liceos Laboratorio, procurarán:
+a) Trabajar con él objeto de capacitar a los educandos en la vida democrática, mediante su participación constante en actividades que involucren los deberes y los derechos que corresponden a todo ciudadano responsable.
+b) Desarrollar investigaciones, aplicar métodos y utilizar técnicas basadas en los principios fundamentales de la psicología, la tecnología y la pedagogía y otras ciencias de la educación, con el propósito de que los educandos puedan desenvolver plenamente su personalidad y adquirir los conocimientos fundamentales en forma fácil y perdurable. Habrá en ellas centros de experimentación y documentación en Tecnología y otras disciplinas relacionadas con la educación.
+c) Lograr que los estudiantes investiguen por sí mismos, reflexionen y piensen objetivamente, teniendo en cuenta que en todo problema que se confronte, existe una relación de causa y efecto.
+d) Estimular el espíritu creador del educando, su capacidad para apreciar la belleza y la comprensión de los valores éticos y espirituales del grupo social al que pertenecemos.

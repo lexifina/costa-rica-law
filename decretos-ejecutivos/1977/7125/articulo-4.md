@@ -1,0 +1,1 @@
+Artículo 4°—Como establecimientos oficiales, dependerán técnica y administrativamente del Ministerio de Educación. Las escuelas y liceos laboratorio cumplirán con el plan de estudios y programas oficiales, sin perjuicio de las variantes que fueran necesarias introducir en razón de su condición de centros experimentales.
