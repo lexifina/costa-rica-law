@@ -1,0 +1,1 @@
+Art. 5 Los prestamistas á plazos fijados en el art. 1° deberán hacer los enteros en la Administración Principal, la cual les dará las certificaciones del caso con la toma de razón de la Contaduria Mayor.

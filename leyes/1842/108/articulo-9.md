@@ -1,0 +1,1 @@
+Art. 9. Queda refundido en el presente Decreto el expedido en 30 de noviembre próximo pasado y la lista de igual fecha que le acompaña sin valor ni efecto. –Dado en San José, á siete de Diciembre, de mil ochocientos cuarenta y dos –José María Alfaro –Al Ministro General del Despacho Señor Doctor José María Castro.”

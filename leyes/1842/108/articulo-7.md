@@ -1,0 +1,1 @@
+Art. 7 Estas certificaciones se reciben como dinero en la cuarta parte de la alcabala marítima; en el todo de la alcabala interior; en el íntegro valor de tierras valdías; y en la mitad de deuda por diezmos.
