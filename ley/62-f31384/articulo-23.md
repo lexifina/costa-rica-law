@@ -1,0 +1,1 @@
+Artículo 23°. En el caso de vista, el Consejo se impondrá de todo lo actuado y oídas las partes verbalmente si se presentar a alegar, dictar la sentencia que corresponda, observando todos los trámites y solemnidades establecidas por las leyes vigentes.

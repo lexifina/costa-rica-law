@@ -1,0 +1,1 @@
+Artículo 2° El Presidente del Consejo abrir la sesión a las doce del día y durar todo el tiempo suficiente, según la naturaleza de los negocios de que deba ocuparse el Consejo. Por acuerdo de este por disposición del Presidente de la República, podrá alterarse la hora en que se deban celebrar las sesiones.
