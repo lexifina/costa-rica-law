@@ -14,3 +14,4 @@ Reglamento de Arqueo de los Buques.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-23 | la propia norma |
+| 2 | 2000-03-23 | Ley 7 |
