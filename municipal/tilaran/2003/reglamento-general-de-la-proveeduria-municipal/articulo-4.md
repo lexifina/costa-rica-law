@@ -1,0 +1,1 @@
+Artículo 4°—Si la Proveeduría, no tiene en existencia el material pedido, procederá a la confección de la orden de compra respectiva, de acuerdo con el procedimiento de contratación contenido en la Ley de la Contratación Administrativa y su reglamento, siempre que las condiciones presupuestarias lo permitan.

@@ -1,0 +1,1 @@
+Artículo 10.—La bodega de materiales o en su defecto la Proveeduría, llevará un registro detallado de las existencias, de ser posible, en unidades y valores, separando los materiales de pedido específico de los inventarios.
