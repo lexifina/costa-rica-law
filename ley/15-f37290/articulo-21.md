@@ -1,0 +1,1 @@
+Art. 21.-Si un correo fuere atacado repentinamente por enfermedad durante su carrera, está en la obligación de avisarlo á la Administración más inmediata,á fin de que el respectivo Administrador haga salir la balija y no sufra interrupción el servicio.

@@ -1,0 +1,1 @@
+Art. 48.-La correspondencia que por cualquier incidente no se haya podido repartir, se entregará al oficial 2°, quien la archivar en la correspondiente casilla; y pasados ocho días proceder de la manera indicada en el inciso 2° del artículo 9 de este Reglamento.

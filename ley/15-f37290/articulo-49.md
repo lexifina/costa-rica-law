@@ -1,0 +1,1 @@
+Art. 49.-Las cartas que en la cubierta contengan la inscripción de "quede en el correo", se archivarán en la respectiva casilla y se anunciará su presencia por medio de la lista de correos. Si á los quince días no fuesen retiradas, se anunciarán en el Diario Oficial, después de cuya formalidad se procederá de acuerdo con lo que proviene el artículo siguiente.
