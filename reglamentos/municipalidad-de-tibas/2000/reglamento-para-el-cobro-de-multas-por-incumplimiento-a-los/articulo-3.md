@@ -1,0 +1,1 @@
+Articulo 3°—Si se trata de instituciones públicas la suma adeudada por concepto de multa se disminuirá en un veinticinco por ciento (25%); y para las demás propiedades en las cuales se desarrollen actividades agrícolas, ganaderas, industriales, comerciales y turísticas se aumentara un cincuenta por ciento (50%).

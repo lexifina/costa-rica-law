@@ -1,0 +1,1 @@
+Articulo 7°—Salvo lo ordenado en la Ley General de Salud, cuando los munícipes incumplan las obligaciones numeradas en el articulo 2 de este Reglamento, la Municipalidad de Tibás está facultada para suplir las obras o prestando los servicios correspondientes; previa prevención al munícipe conforme al debido proceso.

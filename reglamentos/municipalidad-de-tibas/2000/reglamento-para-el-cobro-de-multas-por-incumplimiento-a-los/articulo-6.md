@@ -1,0 +1,1 @@
+Articulo 6°—Las multas fijadas en el articulo 2, de este Reglamento se actualizarán anualmente, en el mismo porcentaje que aumente es salario base establecido en el articulo 2 de la Ley N ° 7337 del 5 de mayo de 1993.
