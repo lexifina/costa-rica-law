@@ -1,0 +1,1 @@
+Artículo 45.—La unidad competente para resolver un asunto,' deberá coordinar con las demás unidades de la Contraloría que tengan alguna injerencia en el asunto, aunque sea indirectamente, antes de dictar la decisión final, a efecto de que haya coherencia en todas las decisiones de fiscalización.

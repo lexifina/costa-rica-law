@@ -1,0 +1,1 @@
+Artículo 10.—Esta Dirección, conforme con sus necesidades, se subdividirá en Departamentos. Estará a cargo de un director asistido por un director adjunto y por los jefes y subjefes de departamento y contará con el personal técnico y administrativo que requiera para el cumplimiento de sus funciones.

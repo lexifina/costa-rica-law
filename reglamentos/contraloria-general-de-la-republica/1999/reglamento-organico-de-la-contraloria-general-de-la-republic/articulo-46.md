@@ -1,0 +1,1 @@
+Artículo 46.—Cuando se reciba en la Contraloría General gestión para que se revise un pronunciamiento emitido por una Dirección, este, salvo reconsideración, o que se haya agotado la vía administrativa, elevará dicha gestión con un informe al superior para que decida sobre el particular.

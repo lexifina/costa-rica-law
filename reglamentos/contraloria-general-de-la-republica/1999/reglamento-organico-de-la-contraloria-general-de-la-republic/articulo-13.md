@@ -1,0 +1,1 @@
+Artículo 13.—Las auditorías financieras estarán encaminadas fundamentalmente a verificar la razonabilidad de los estados financieros, a evaluar los controles internos y a determinar el cumplimiento de las disposiciones legales pertinentes.
