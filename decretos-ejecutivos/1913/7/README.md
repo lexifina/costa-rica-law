@@ -34,3 +34,4 @@ Reglamento del Registro del Estado Civil
 | 20 | 1984-03-14 | Decreto TSE 1 (1984-03-14) |
 | 21 | 1984-05-31 | Decreto TSE 2 (1984-05-31) |
 | 22 | 1996-02-23 | Decreto TSE 1 (1996-02-23) |
+| 23 | 1997-01-27 | Decreto TSE 1 (1997-01-27) |
