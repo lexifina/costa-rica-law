@@ -1,0 +1,1 @@
+Art 5°.- Los Gobernadores exigirán por cada pasaporte que expidan el derecho de dos reales, que depositará el respectivo Secretario escribante, con su cuenta, para alguno gastos menudos que acuerde el Gobernador en favor de la oficina.

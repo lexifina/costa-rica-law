@@ -1,0 +1,2 @@
+Art 6°.- Cada una de las oficinas donde se han de expedir pasaportes, hará imprimir cada año un número suficiente de ejemplares, siendo del cargo de la oficina el papel y del de la Imprenta Nacional la Impresión.
+& 1°.- El Ministro del Despacho dará los modelos por primera vez, y a los pasaportes que han de dar los Gobernadores serán de medio pliego, mientras que los que se libren en el Ministerio, se prepararán en papel ministro y pliego entero.

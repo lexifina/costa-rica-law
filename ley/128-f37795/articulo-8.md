@@ -1,0 +1,2 @@
+Art 8°.- Por lo demás, todos son libres para transitar en el interior de la República sin necesidad de pasaporte, y las autoridades locales velarán incesantemente por la conservación de las garantías individuales respecto de cualquiera persona, sin excepción, que llegue o pase por los pueblos de su jurisdicción, dándoles así mismo los auxilios que necesiten previa indemnización o gratis según las circunstancias.
+Dado en el Palacio Nacional, en San José, a los veintiocho días del mes de setiembre de mil ochocientos cincuenta y tres.

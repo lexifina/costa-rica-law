@@ -1,0 +1,1 @@
+Art 2°.- Los que pretendan salir del territorio de la República con destino a cualquiera otro de la América Central, son obligados a pedir pasaporte a la Gobernación de su residencia, que lo extenderá con la estampilla correspondiente.
