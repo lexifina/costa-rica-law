@@ -1,0 +1,2 @@
+Artículo XX
+Queda prohibido a los miembros del Tribunal el ejercicio de sus funciones en los asuntos en que tuvieren interés material o hubieren concurrido en cualquier concepto a la decisión de un Tribunal Nacional, de un Tribunal de Arbitraje o de otra índole, o de una Comisión de Investigación, o en los cuales hubieren figurado como Abogados o sido Consejeros de alguna de las Partes o emitido dictamen profesional.

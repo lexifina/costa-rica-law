@@ -1,0 +1,2 @@
+Artículo XI
+Una vez organizado el Tribunal en la forma dicha en el artículo VIII, la Parte interesada deberá presentar demanda que comprenda todos los puntos de hecho y de derecho relativos al asunto. El Tribunal comunicará, sin pérdida de tiempo, el libelo de demanda al Gobierno o Gobiernos demandados y los invitará que presenten sus alegaciones y probanzas dentro del término señalado por las ordenanzas. (Anexo B.)

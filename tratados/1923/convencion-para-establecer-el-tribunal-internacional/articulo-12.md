@@ -1,0 +1,3 @@
+Artículo XII
+El Tribunal se reunirá en el lugar convenido por las Partes que sostienen la controversia y, si no se llegare a un acuerdo a este respecto, en la capital de cualquiera de las Repúblicas de la América Central que no tenga interés en dicha controversia. La selección de esa capital se hará mediante sorteo por las Partes interesadas. A falta de acuerdo para tal sorteo se procederá como se dispone en el Artículo VIII.
+El Tribunal, cuando a su juicio, las circunstancias lo exigieren, podrá decretar su propia traslación a otro lugar fuera de del territorio de las Partes que sostienen la controversia.

@@ -1,0 +1,3 @@
+Artículo VI
+El cargo de Representante Diplomático ante una de las Repúblicas de Centro América será incompatible con el árbitro, si el Representante no fuere ciudadano de una República de Centro América. No existirá dicha incompatibilidad con ningún otro cargo público, cualquiera que éste sea.
+En las Repúblicas contratantes todos los miembros de la lista permanente tendrán el rango, los privilegios y las inmunidades de Ministros Plenipotenciarios, pero sólo desde que hayan sido designados para integrar el Tribunal establecido por esta Convención, hasta un mes después de terminadas las funciones de dicho Tribunal.

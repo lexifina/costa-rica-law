@@ -1,0 +1,2 @@
+Artículo XVIII
+Las Partes litigantes podrán ser representadas ante el Tribunal de Arbitraje por los agentes que tengan a bien; pero los miembros de la lista permanente de jurisconsultos no podrán intervenir con el carácter de consejeros o representantes de Partes ante el Tribunal constituido por esta Convención, sino en defensa de los intereses del país que los haya incluido en la lista permanente.

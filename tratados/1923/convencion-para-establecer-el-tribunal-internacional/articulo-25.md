@@ -1,0 +1,2 @@
+Artículo XXV
+El Tribunal aquí establecido podrá conocer de las cuestiones internacionales que por convención especial hayan dispuesto someterle alguno de los Gobiernos Centroamericanos y el de una nación extranjera. El hecho de que en el protocolo respectivo se convenga en que el árbitro nombrado por la Parte extranjera pueda ser escogido libremente, ni impide que en lo demás sean aplicables las cláusulas de la presente convención.

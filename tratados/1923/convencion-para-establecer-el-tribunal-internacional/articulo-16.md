@@ -1,0 +1,2 @@
+Artículo XVI
+También podrán las Partes que sostienen una controversia, después de que se haya organizado el Tribunal de Conformidad con el Artículo VIII, y antes de que una de ellas haya presentado su demanda, encomendar al Tribunal, por común acuerdo, la redacción de un protocolo en el cual se definan claramente la cuestión o cuestiones que son objeto de la controversia. Si el desacuerdo entre las Partes Hiciere imposible la negociación del Protocolo, cualquiera de ellas podrá presentar demanda inmediatamente, de conformidad con el artículo XI.

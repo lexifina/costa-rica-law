@@ -1,0 +1,3 @@
+Artículo XV
+La falta de concurrencia de cualquiera de los tres árbitros en los plazos fijados, será motivo para que sea reemplazado. Si fuere uno de los nombrados por una de las Partes, el reemplazante deberá estar en el lugar del arbitramento a más tardar treinta días después de su nombramiento. Si fuere el tercero, el plazo será de sesenta días.
+Si después de integrado el Tribunal alguno delos árbitros faltare por muerte, renuncia o cualquier otro motivo, su sucesor será nombrado en la misma forma prevista en esta Convención y deberá concurrir a integrar el Tribunal en los mismos plazos de que se acaba de hablar.
