@@ -14,3 +14,4 @@ Reforma a la fijación de tarifas de los servicios del Ministerio de Agricultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-06 | la propia norma |
+| 2 | 2002-10-24 | Decreto Ejecutivo 30818 (2002-10-24) |

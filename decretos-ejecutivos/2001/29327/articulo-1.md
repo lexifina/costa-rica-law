@@ -11,7 +11,7 @@ Artículo 1º—Modifíquese el artículo 4 del Decreto Ejecutivo Nº 27763-MAG 
 Las tarifas están fijadas en dólares norteamericanos y serán cobrados por el monto equivalente en colones, al tipo de cambio oficial del día.
 TARIFAS DE COBROS DE SERVICIOS DEL STF
 Cod | Descripción | Fumigación | Aspersión | Nebulización | Inmersión | Incineración
-1 | Trailer | 17,00 | 8,50 | 8,50 | |
+1 | Trailer | 17,00 | $ 5,95* | 8,50 | |
 2 | Camión de dos ejes | 14,00 | 7,50 | 7,50 | |
 3 | Camión de un eje | 14,00 | 6,50 | 6,50 | |
 4 | Buses | 10,50 | 5,50 | 5,50 | |
@@ -67,3 +67,4 @@ Cod | Descripción | Fumigación | Aspersión | Nebulización | Inmersión | Inc
 38 | Por cada kilo tratado de desechos de importancia | | | | |
 | Cuarentenaria (incineración) | | | | | 0,75
 Los montos que se obtengan por la aplicación del presente artículo serán administrados de conformidad con el acuerdo de Cooperación entre el Gobierno de Costa Rica por medio del Ministerio de Agricultura y Ganadería (MAG) y el Organismo Internacional Regional de Sanidad Agropecuaria (OIRSA) para el establecimiento y operación de un programa nacional e internacional de fumigación (SIF) de productos agropecuarios, suscrito en San José, Costa Rica el 15 de diciembre de 1998."
+(*Así reformada la tarifa del Cobro de Servicios del SIF para el código de servicio N° 1, mediante el artículo 1° del decreto ejecutivo N° 30818 del 24 de octubre de 2002)
