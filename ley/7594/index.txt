@@ -150,6 +150,7 @@ articulo-149.md
 articulo-150.md
 articulo-151.md
 articulo-152.md
+articulo-152-bis.md
 articulo-153.md
 articulo-154.md
 articulo-155.md
