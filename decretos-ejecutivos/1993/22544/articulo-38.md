@@ -1,0 +1,1 @@
+Artículo 38.- En caso de que en una misión diplomática u oficina consular solo cuente con un funcionario diplomático de carrera que ejerza de Jefe de Misión Diplomática u Oficina Consular, éste remitirá al Ministerio una declaración jurada notificando el monto de horas extra y comprobando debidamente las razones que las motivaron para su aprobación definitiva.

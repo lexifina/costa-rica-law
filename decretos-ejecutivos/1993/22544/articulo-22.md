@@ -1,0 +1,1 @@
+Artículo 22.—Cuando un funcionario de carrera, en virtud del principio de traslado, sea asignado a un nuevo destino, mantendrá un salario que le permita conservar, a él y su familia, un nivel de vida decoroso y acorde con la. dignidad diplomática de tal modo que la imagen y buen nombre de la República no se vean desmejorados.

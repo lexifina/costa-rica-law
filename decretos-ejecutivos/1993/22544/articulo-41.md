@@ -1,0 +1,2 @@
+Artículo 41.—El Ministerio concederá, a partir del envío de la circular, un mes calendario para que los funcionarios de carrera interesados en ocupar la plaza vacante, presenten sus solicitudes y atestados.
+En caso de que ninguno de los funcionarios manifieste interés en ocupar la plaza vacante, el Ministerio declarará la inopia y podrá efectuar un traslado cuando proceda o el nombramiento de un funcionario en comisión.

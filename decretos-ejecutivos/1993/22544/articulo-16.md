@@ -1,0 +1,1 @@
+Artículo 16.- Una vez concluida la presentación de documentos y pruebas, la Comisión Calificadora emitirá una resolución con indicación de la asignación de la plaza correspondiente al candidato que haya obtenido el mayor puntaje. El resultado del concurso deberá colocarse en el mismo lugar en donde se publicó la convocatoria.

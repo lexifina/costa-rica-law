@@ -1,0 +1,1 @@
+Artículo 47.—Los concursantes que no estén satisfechos con el resultado del concurso podrán presentar un recurso de revocatoria con apelación subidiaria de conformidad con lo establecido por la Ley General de Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 13.—Los años de estudio en el Instituto del Servicio Exterior de Costa Rica "Manuel María de Peralta" se contarán como de servicio interno a efectos de los artículos decimosexto, décimo sétimo y quincuagésimo octavo de la Ley del Estatuto del Servicio Exterior de la República. Estos dos años no se tomarán en cuenta para efectos de derechos laborales.

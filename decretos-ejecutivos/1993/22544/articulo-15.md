@@ -1,0 +1,1 @@
+Artículo 15.- Para los efectos del inciso a) del artículo 14 de este reglamento los egresados del Instituto de Servicio Exterior Manuel María de Peralta podrán sustituir con la nota final obtenida en esas materias a las que se refiere el inciso a) del artículo 10 de este reglamento.

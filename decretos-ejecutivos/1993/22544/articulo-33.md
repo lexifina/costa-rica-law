@@ -1,0 +1,2 @@
+Artículo 33.—Accidente de trabajo es toda lesión corporal que el funcionario diplomático de carrera sufra con ocasión o por consecuencia del trabajo y durante el tiempo que lo realice o debiera realizarlo. Dicha lesión ha de ser producida por la acción repentina y violenta de una causa exterior.
+La enfermedad profesional debe ser contraída como resultado, directo o ineludible, de la clase de labores que ejecuta el funcionario diplomático de carrera y por causa que haya actuado en forma lenta y continua en el organismo de este.

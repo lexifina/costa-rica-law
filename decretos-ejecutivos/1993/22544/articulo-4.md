@@ -1,0 +1,1 @@
+Artículo 4.—Tanto la Comisión Calificadora del Servicio Exterior como la Comisión Nacional de Profesionalización del Servicio Exterior podrán recomendarlas plazas que deberán sacarse a concurso de oposición al Ministro de Relaciones Exteriores y Culto, quien decidirá definitivamente sobre el particular.

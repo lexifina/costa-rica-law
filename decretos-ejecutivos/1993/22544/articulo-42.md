@@ -1,0 +1,2 @@
+Artículo 42.—La circular mensual de las plazas vacantes indicará el rango diplomático, el lugar de destino, el salario base y los gastos de representación asignados, los requisitos especiales para poder desempeñar la plaza y la fecha aproximada a partir de la cual deberá asumirse, así como la fecha límite para la presentación de solicitudes.
+La circular mensual constituirá la convocatoria a concurso interno para llenar las vacantes en él indicadas.
