@@ -14,3 +14,4 @@ Carácter Anual pago Canon Art. 27 Ley de Protección Fitosanitaria.Deroga Modif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-24 | la propia norma |
+| 2 | 2000-02-24 | Ley 7 |
