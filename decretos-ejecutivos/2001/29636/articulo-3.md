@@ -1,0 +1,1 @@
+Artículo 3º—En razón de la derogatoria e incorporaciones indicadas, las funciones y competencias de la Dirección de Investigación Agropecuarias, quedan establecidas de conformidad con las contenidas en el Decreto Ejecutivo Nº 26431-MAG del 2 de octubre de 1997, publicado en La Gaceta Nº 213 del 5 de noviembre del mismo año.

@@ -1,0 +1,9 @@
+Artículo 2º—Agréguese un inciso 9) al artículo 12, los incisos 7), 14) y 17), al artículo 16 y un inciso 17) al artículo 22 del Decreto Ejecutivo Nº 26431-MAG del 2 de octubre de 1997, publicado en La Gaceta Nº 213 del 5 de noviembre de 1997, los cuales se leerán de la siguiente manera:
+"Artículo 12.—...
+9. Mantener colecciones de germoplasma de especies estratégicas tendientes a la producción de genotipos de importancia para la producción agropecuaria".
+"Artículo 16.—...
+7. Asesorar el funcionamiento del servicio genealógico de animales de raza.
+14. Realizar investigación sobre razas y cruzamientos animales que conduzcan a un genotipo acorde a las condiciones agroclimáticas.
+17. Promover el mejoramiento genético del hato ganadero nacional mediante procesos de inseminación artificial y la selección de animales".
+"Artículo 22.—...
+17. Cualquier otra función que las autoridades superiores, leyes, reglamentos o disposiciones normativas le asignen".
