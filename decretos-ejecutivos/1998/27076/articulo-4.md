@@ -1,0 +1,1 @@
+Artículo 4°—Las comunidades del país identificarán sus necesidades, definirán sus prioridades, podrán ejecutar proyectos y ejercerán el papel de contralor ciudadano en todos los programas que se ejecuten en el marco del Triángulo de Solidaridad en estrecha coordinación con los Concejos de Distrito y en concordancia con el Código Municipal.
