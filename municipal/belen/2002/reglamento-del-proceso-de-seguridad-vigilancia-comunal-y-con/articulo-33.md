@@ -1,0 +1,1 @@
+Artículo 33.—El presente cuerpo normativo deja sin efecto y aplicación el Reglamento del Departamento de Seguridad y Vigilancia Comunal de la Municipalidad del Cantón de Belén, de la provincia de Heredia, publicado en La Gaceta No.184 del 22 de septiembre de 1998 y su reformas.

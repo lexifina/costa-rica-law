@@ -1,0 +1,3 @@
+Artículo 8°—Se prohibe la utilización del uniforme de modo incompleto, así como la colocación descuidada de las prendas y accesorios que lo componen. La debida presentación personal será indispensable en el Policía Municipal.
+Sobre el uniforme solo podrán, portar la placa de identificación, la placa policial, la insignia de la Policía Municipal, los distintivos específicos, armamento y demás equipo autorizado por las autoridades superiores. Dicho uniforme será suministrado por la Administración en forma discrecional, atendiendo las necesidades de cada policía.
+(Este artículo se corrigió mediante fe de erratada publicada en la Gaceta N° 107 de 5 de junio del 2002)
