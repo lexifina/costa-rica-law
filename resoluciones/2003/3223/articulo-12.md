@@ -1,0 +1,1 @@
+XII.—En futuras solicitudes de tarifas, la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, deberá presentar información contable, estadística y de otro tipo que sea congruente entre sí.

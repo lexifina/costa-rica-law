@@ -1,0 +1,1 @@
+XIV.—Presentar a la Autoridad Reguladora en el plazo máximo de 2 meses después de comunicada la resolución tarifaria, la gestión efectuada por la Administración Portuaria para resolver la pérdida del 20% del tiempo laboral en los operadores de montacargas.

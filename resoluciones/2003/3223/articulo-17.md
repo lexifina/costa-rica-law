@@ -1,0 +1,1 @@
+XVII.—Presentar un informe semestral con el detalle y avance de las obras o actividades, así como la preparación de manuales y procedimientos para cumplir con las normas establecidas en el Código Internacional para la Protección de los Buques y las Instalaciones Portuarias.
