@@ -1,0 +1,1 @@
+Artículo 5°—Responsabilidad de contador publico autorizado. Los contadores públicos autorizados que emitan una certificación pública que no cumpla con los requisitos señalados o que estos no son acorde con la realidad de los hechos del sujeto pasivo, será denunciado al Colegio de Contadores Públicos y ante los tribunales penales.
