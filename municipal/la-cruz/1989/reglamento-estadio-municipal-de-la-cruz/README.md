@@ -14,3 +14,4 @@ Reglamento Estadio Municipal de La Cruz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-03-29 | la propia norma |
+| 2 | 1996-10-21 | Reglamento municipal 55 (1996-10-21) |

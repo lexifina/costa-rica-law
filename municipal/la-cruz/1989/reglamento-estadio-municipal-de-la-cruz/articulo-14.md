@@ -12,8 +12,9 @@ a) No será permitido el expendio y consumo de bebidas alcohólicas, ni el fumad
 b) No será permitido la utilización de calzado inadecuado, ni el ejercicio de actividades que por su naturaleza propia causen daño.
 c) Considérese también lo expuesto en la ley N° 5817 del 2 de octubre de 1975 y el decreto ejecutivo N° 6666-G del 3 de diciembre de 1976.
 ch) Para el mantenimiento de las instalaciones, la Junta queda facultada para cobrar a los usuarios las siguientes tarifas:
--Equipo afiliado a la Comisión Cantonal de Fútbol en actividades de competencia amistosa……… ¢1.500,00.
--Equipo afiliado a la Comisión Cantonal de Fútbol en actividad de campeonato ……………….¢750,00.
+Equipo afiliado a la Comisión Cantonal de Fútbol en actividades de competencia amistosa: ¢3.000,00
+Equipo afiliado a la Comisión Cantonal de Fútbol en actividades de campeonato: ¢1.800,00.
+(Así reformado el inciso anterior mediante sesión N° 55 del 21 de octubre de 1996).
 d) Quedan exentos de estos pagos, todos los equipos de la Liga Menor, debidamente afiliados y aquellos equipos que representen al cantón afiliados a la Comisión de Fútbol.
 e) Las tarifas no incluyen la marcación de la cancha, ni la puesta de redes y banderolas, esto corre por cuenta del interesado.
 f) Los días sábado serán destinados durante la mañana, para las prácticas con el programa de escuelas deportivas y encuentros de la Liga Menor.
