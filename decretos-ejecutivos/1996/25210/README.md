@@ -13,3 +13,4 @@ Comisión Ejecutiva Control Supervisión Desarrollo Proyecto Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-17 | la propia norma |
+| 2 | 1996-06-17 | SINALEVI (sin norma nombrada) |
