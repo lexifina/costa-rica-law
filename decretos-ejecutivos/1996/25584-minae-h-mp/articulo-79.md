@@ -1,0 +1,6 @@
+Artículo 79.—Regulaciones vinculantes para el Instituto Nacional de Vivienda y Urbanismo
+El artículo 23 de la Ley indica que el Instituto Nacional de Vivienda y Urbanismo (INVU) debe acatar las disposiciones referentes al consumo energético en viviendas y edificaciones, que emita el Poder Ejecutivo por medio del MINAE. El INVU deberá incluir las normas y las condiciones para promover el uso racional y eficiente de la energía que indique el MINAE en los reglamentos de los planes reguladores.
+Los mecanismos para la aplicación de esta disposición son los siguientes;
+a) El INVU deberá incluir las disposiciones que indique el MINAE en los reglamentos de los planes reguladores, de conformidad con la ley N° 4240, del quince de noviembre de mil novecientos sesenta y ocho.
+La misma obligación indicada en el párrafo anterior es aplicable a la Oficina de Planeamiento del Área Metropolitana de San José, para elaborar o modificar el Plan regulador metropolitano, sus reglamentos y enmiendas.
+b) Asimismo el INVU deberá consultar al MINAE las modificaciones parciales o totales de los reglamentos que forman o formarán parte de los planes reguladores. El MINAE tendrá un plazo de dos meses para emitir su criterio, el cual será vinculante para el INVU en materia energética.

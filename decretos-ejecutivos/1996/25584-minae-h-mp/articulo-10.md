@@ -1,0 +1,4 @@
+Artículo 10.—Cuando la empresa ha presentado en repetidas ocasiones índices energéticos mayores a los fijados por el MINAE.
+Si la empresa en repetidas ocasiones ha presentado un índice mayor al fijado, debe proceder según las siguientes situaciones:
+a) Si la empresa está obligada a realizar un programa de uso racional de energía y no se ha cumplido el plazo otorgado para la ejecución de las medidas de bajo costo o inversión, entonces la empresa debe completar la ejecución del programa obligatorio quedando sometida al proceso de control establecido en los artículos 26 ó 27 de este reglamento.
+b) Si se han vencido los plazos otorgados a la empresa para la ejecución del programa obligatorio de uso racional de la energía, el MINAE deberá considerar además el índice meta indicado en el artículo 16, inciso g) y proceder según lo establecido en los artículos 11 y 12 de este reglamento.

@@ -1,0 +1,13 @@
+Artículo 97.—Presentación de documentos para la recomendación técnica del MINAE para la importación de equipos y materiales
+Una vez que el interesado obtenga su respectiva licencia, cada vez que desee tramitar una exoneración de materiales importados deberá presentar los siguientes documentos:
+1. Solicitud formal de exoneración ante la oficina encargada del MINAE.
+2. Factura original o copia debidamente certificada por un abogado.
+3. Información técnica que respalde la solicitud de exención, en la cual se indique claramente que cumple con los requisitos establecidos en los artículos 93 y 94 de este reglamento.
+4. Formulario EIF-001, SOLICITUD Y AUTORIZACIÓN DE EXONERACIÓN DE TRIBUTOS DE IMPORTACIÓN, del Departamento de Exoneraciones del Ministerio de Hacienda. En el formulario, en la casilla de descripción del bien, se debe indicar claramente el texto tal y como aparece en este reglamento.
+El MINAE dispondrá de diez días hábiles para revisar la solicitud y contestarla.
+Además de los requisitos que expresamente se señalan en el formulario EIF-001, en toda solicitud de exención para la importación de bienes, deberán observarse las indicaciones señaladas al dorso del mismo.
+El formulario deberá constar de original y 4 copias legibles. Las firmas que se consignen en dicha solicitud deberán efectuarse en los tantos correspondientes a: " Original: Aduana de Desalmacenaje " y "Copia: Expediente Beneficiario, Departamento de Exenciones ". En caso de resultar necesario utilizar hojas adicionales, deberá cumplirse con lo estipulado al dorso del formulario EIF-001, en Indicaciones, punto 3. En estos casos en que se utilicen hojas adicionales, el peso bruto total y el valor CIF no deberá consignarse en las mismas, esta información únicamente deberá consignarse en los espacios previstos para tal efecto, en el formulario de solicitud de exención.
+Estas hojas adicionales deberán venir en original y 4 copias, en las cuales deberán constar la firma del beneficiario y las firmas y sellos correspondientes, de las entidades que recomiendan la exención, al menos en el original y en una copia.
+Para efecto de destacar el número de licencia de importación o fabricación, éste deberá aparecer en forma clara en el formulario "Solicitud y Autorización de Exoneración de Tributos de Importación" del Ministerio de Hacienda, en la casilla correspondiente a N° de Contrato, (formulario EIF001).
+En cada solicitud debe indicarse expresamente el visto bueno de la Oficina Nacional de Normas y Unidades de Medida del Ministerio de Economía, Industria y Comercio.
+La solicitud de exención debe ser firmada por el Representante Legal de la Empresa, o la persona autorizada por éste ante el Departamento de Exenciones del Ministerio de Hacienda.

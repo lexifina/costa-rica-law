@@ -1,0 +1,7 @@
+Artículo 65.—Método de cálculo de las características energéticas
+Para el reporte de las características energéticas de los bienes indicados en el articulo 61 de este reglamento, el MINAE autoriza los siguientes métodos para la determinación de los datos de consumo de energía en orden sucesivo y por exclusión, los cuales son:
+a) Certificación otorgada por un ente reconocido en su país de origen, medido con base en una norma técnica nacional o internacional, en un laboratorio también reconocido.
+b) Catálogos o información de entes reconocidos.
+c) Medición realizada de acuerdo a una norma de empresa, nacional o internacional, en laboratorios que cuenten con los instrumentos y condiciones necesarias.
+Toda información no certificada en el exterior deberá ser firmada por un profesional con capacidad técnica debidamente incorporado al colegio respectivo.
+El MINAE publicará en el diario oficial con seis meses de anticipación, a cuáles de los bienes de la lista del capítulo IV y sus reformas, se les exigirá una certificación de las características en cuanto a su eficiencia energética realizadas por organismos nacionales o internacionales acreditados por el Ente Nacional de Acreditación, según Decreto 24662 MEIC-S MAG-MINAE-MOPT-Plan del Sistema Nacional de Calidad en cuanto al funcionamiento del Subsistema de Acreditación y sus reformas, con base en normas o procedimientos nacionales o internacionales aprobados a nivel nacional y realizados en laboratorios nacionales e internacionales igualmente acreditados.

@@ -1,0 +1,3 @@
+Artículo 37.—Mecanismos de garantía
+Se deberán establecer dentro de los contratos mecanismos que garanticen que los cambios realizados por el beneficiario permanezcan por al menos el período y las condiciones comprometidas en la evaluación que sirvió de base para el otorgamiento del beneficio. Y en caso que se compruebe lo contrario permitan la recuperación de los beneficios otorgados. La vigencia del contrato se establecerá con este criterio.
+Se establecerán dentro del contrato las cláusulas necesarias para dar el seguimiento a los proyectos. El costo de este seguimiento será cubierto por el beneficiario y formará parte de las obligaciones del contrato. Una copia de los informes de seguimiento se remitirá al MINAE.

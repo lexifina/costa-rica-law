@@ -1,0 +1,6 @@
+Artículo 90.—Verificación y control de las calderas de vapor
+Para las calderas que se instalen a partir de la vigencia de este reglamento, se deberá incluir dentro del informe de instalación y el informe anual de inspección de calderas, establecido en el Reglamento de Calderas Decreto Ejecutivo N° 6 del veintitrés de agosto de mil novecientos sesenta y nueve y sus reformas los siguientes puntos:
+a) Si la caldera cumple con las disposiciones del artículo 87 de este reglamento.
+b) Los datos de porcentaje de dióxido de carbono y nivel de hollín según se menciona en el artículo 88 de este reglamento.
+El Consejo de Salud Ocupacional del Ministerio de Trabajo y Seguridad Social entregará una copia del informe de instalación y del informe anual de inspección de cada caldera al MINAE.
+En caso de incumplimiento de los requisitos indicados en los artículos 87 y 88 de este reglamento, el MINAE apercibirá a la empresa responsable para que en un término que en ningún caso será inferior a un mes ni superior a tres meses, corrija las anomalías que se le señalen. De incumplir esta prevención, el MINAE le suspenderá el permiso de operación del sistema de combustión fijo, siguiendo para ello el proceso descrito en el artículo 37 de la Ley.

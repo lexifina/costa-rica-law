@@ -1,0 +1,5 @@
+Artículo 21.—Asesoría técnica del MINAE y auditoría energética y estudio técnico financiero
+En los casos en que la Ley y este Reglamento autoricen y obliguen a la empresa a solicitar la asesoría técnica del MINAE, para la elaboración de un programa obligatorio o voluntario, ésta debe enviar una solicitud formal al MINAE firmada por el representante legal de la empresa donde expresamente solicite la asesoría técnica del MINAE.
+En esta asesoría técnica el MINAE, determinará de acuerdo al grado de conocimiento del consumo y conservación de la energía, cuáles de los estudios técnicos indicados en este artículo debe realizar la empresa.
+Con base en lo establecido en este artículo y amparado en la Ley 7447, el MINAE ordenará realizar ya sea una auditoría energética o un estudio técnico financiero en un plazo de hasta seis meses, con los requisitos indicados en los artículos 22 y 23 de este reglamento.
+Si la empresa no acata la recomendación del MINAE en el plazo máximo de seis meses, estará sujeta al proceso sancionatorio indicado en los artículos 28 y SS de la ley 7447.

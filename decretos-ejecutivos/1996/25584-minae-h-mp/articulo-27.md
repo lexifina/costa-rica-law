@@ -1,0 +1,6 @@
+Artículo 27.—Control sin seguimiento
+Para todos los programas de uso racional de la energía de carácter obligatorio se debe aplicar al menos el procedimiento de control descrito a continuación:
+a) Cumplido el plazo de ejecución de seis meses para el programa y de uso racional de energía, la empresa tiene un plazo de un mes para entregar a satisfacción del MINAE un informe que permita comprobar la realización del mismo incluyendo documentos como registros o facturas que puedan demostrar tal situación.
+b) El MINAE dispondrá de un mes para analizar dicho informe. En caso de que el informe no permita emitir criterio alguno al respecto, el MINAE solicitará a la empresa completar la información fallante o que, en su defecto autorice al MINAE a realizar las visitas técnicas para verificar la instalación, construcción u operación de las medidas adoptadas.
+c) La empresa dispondrá de un mes para completar la información, o en su defecto, autorizar la realización de las visitas técnicas por parte del MINAE.
+d) En caso de que el MINAE no apruebe estos trámites, la empresa estará sujeta al proceso sancionatorio indicados en los artículos 28y SS de la Ley 7447. Además, la empresa quedará sujeta a las regulaciones indicadas en los artículos 10, 11 y 12 de este reglamento.

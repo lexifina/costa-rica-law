@@ -1,0 +1,3 @@
+Artículo 11.—Cuando el índice actual es menor o igual al índice meta
+Si el último índice reportado por la empresa es igual o menor al índice meta del programa, habiendo ejecutado el plan obligatorio de uso racional de energía con algún control por parte del MINAE, entonces la empresa estará exenta de obligaciones por lo que resta del año en cuestión y por un lapso de 5 años desde que el índice energético fue superior al fijado por el MINAE y que obligó a la ejecución de un programa de uso racional de la energía por parte de la empresa.
+Esto mientras el último índice presentado por la empresa se mantenga igual o menor al índice meta del programa, definido en el inciso g) del artículo 16 de este reglamento, ya que de lo contrario se aplicará artículo siguiente.

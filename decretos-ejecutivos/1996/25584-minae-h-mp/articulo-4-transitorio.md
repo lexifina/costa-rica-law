@@ -1,0 +1,3 @@
+Transitorio IV.—Aplicación de regulaciones por parte de la Dirección General de Aduanas y las Aduanas del país en la importación de bienes.
+Para la aplicación de las regulaciones indicadas en el párrafo primero artículo 44 de este reglamento, la Dirección General de Aduanas, con el apoyo del MINAE, procederá a realizar las aperturas en los incisos arancelarios en el Sistema Arancelario de los bienes indicados en el citado artículo en un plazo máximo de un mes a partir de la publicación de este reglamento.
+Para e) caso de las disposiciones indicadas en el artículo 63 de este reglamento, y para su correcta aplicación las Aduanas del país, con el apoyo del MINAE, dispondrán de un plazo máximo de dos meses para poner en ejecución los trámites indicados.

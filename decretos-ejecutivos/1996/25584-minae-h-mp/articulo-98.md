@@ -1,0 +1,5 @@
+Artículo 98.—Procedimiento para la compra de materiales a nivel local
+Para los fabricantes que deseen comprar las materias primas en el mercado nacional, deberán presentar el formulario EIF003-95: Solicitud y autorización de exoneración de tributos para adquisición en el mercado nacional y la factura debidamente cancelada. La factura debe cumplir con los requisitos establecidos en el artículo 18 del reglamento de la Ley de Impuesto General sobre las Ventas (Decreto Ejecutivo N° 14082-H del 29 de noviembre de 1982 y sus reformas).
+En la factura se debe consignar por separado los impuestos a exonerar respecto al valor de compra, asimismo el nombre del cliente debe corresponder al del beneficiario de la exención.
+Las facturas que se presenten para el trámite de exoneración, deberán estar debidamente autorizadas por la Dirección General de la Tributación Directa, mediante los mecanismos de timbraje, dispensa de timbraje u otro método preestablecido.
+Adicionalmente, se deberá cumplir con los demás requisitos que para este fin exija el Ministerio de Hacienda.
