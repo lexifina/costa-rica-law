@@ -1,0 +1,1 @@
+Artículo 45.—Los programas universitarios de extensión tendrán como propósito principal contribuir a la capacitación del personal al servicio de instituciones públicas y privadas, y servir de instancia permanente para quienes deseen continuar su educación.

@@ -1,0 +1,1 @@
+Artículo 42.—Las faltas disciplinarias en que incurran los estudiantes serán sancionadas, según su gravedad, mediante amonestación verbal, escrita, retiro parcial o total de la matrícula o expulsión de la Universidad. Todo lo relacionado con el régimen disciplinario será contemplado en el reglamento respectivo.

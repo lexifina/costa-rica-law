@@ -1,0 +1,1 @@
+Artículo 38.—Los requisitos de ingreso a la Universidad dependerán del nivel de exigencia de los estudios respectivos. Cuando se trate de cursos destinados a la obtención de grados o títulos, el requisito mínimo será el diploma de conclusión de educación diversificada o su equivalente.

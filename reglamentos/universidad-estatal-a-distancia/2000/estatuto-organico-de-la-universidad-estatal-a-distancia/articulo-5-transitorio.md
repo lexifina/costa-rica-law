@@ -1,0 +1,1 @@
+V. Los actuales Vicerrectores podrán, al finalizar el período del actual Rector o si éste lo propusiera y el Consejo Universitario aprobara su remoción, conforme con el inciso c) del artículo 25, acogerse al Régimen de Carrera Universitaria vigente o solicitar las prestaciones legales correspondientes.

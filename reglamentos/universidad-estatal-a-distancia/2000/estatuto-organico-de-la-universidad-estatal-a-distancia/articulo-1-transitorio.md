@@ -1,0 +1,2 @@
+TRANSITORIOS (17)
+A fin de completar el 35% a que se refiere el inciso b) del artículo 4º, dentro de los 45 días hábiles posteriores a la entrada en vigencia de este Estatuto, serán elegidos los miembros de la Asamblea Universitaria hasta completar 13 por la Vicerrectoría Académica, 6 por la Vicerrectoría Ejecutiva y 3 por la Vicerrectoría de Planificación. Los actuales miembros elegidos, durarán en sus cargos por el período por el cual fueron electos.

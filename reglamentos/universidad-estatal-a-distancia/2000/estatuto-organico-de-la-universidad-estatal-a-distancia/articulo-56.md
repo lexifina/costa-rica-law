@@ -1,0 +1,1 @@
+Artículo 56.—El Estatuto de Personal regulará lo atinente al régimen disciplinario. En ausencia de disposiciones en dicho Estatuto, se tendrán como supletorias las leyes sobre la materia que estén en vigencia.

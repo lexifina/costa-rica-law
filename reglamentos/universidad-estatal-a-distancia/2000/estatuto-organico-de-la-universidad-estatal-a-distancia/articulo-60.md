@@ -1,0 +1,1 @@
+Artículo 60.—Cabrá único recurso de apelación ante el superior inmediato de quien dictó la resolución recurrida. Las resoluciones de las comisiones permanentes de la administración, creadas por el Consejo Universitario, serán apelables ante el Consejo de Rectoría.

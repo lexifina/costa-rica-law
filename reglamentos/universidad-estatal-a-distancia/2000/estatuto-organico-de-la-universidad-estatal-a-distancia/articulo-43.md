@@ -1,0 +1,1 @@
+Artículo 43.—La investigación deberá regirse por un orden de prioridades que guarde relación con los problemas presentes en el primer plano de la atención nacional y en forma preferente, realizarse en estrecha coordinación con otras instituciones dedicadas a la investigación.

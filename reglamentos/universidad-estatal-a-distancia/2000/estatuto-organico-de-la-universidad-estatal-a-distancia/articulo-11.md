@@ -1,0 +1,1 @@
+Artículo 11.—El Congreso Universitario será convocado ordinariamente cada cinco años, por el Consejo Universitario y extraordinariamente las veces que éste juzgue conveniente, o a solicitud de por lo menos el 25% de los integrantes de la Asamblea Universitaria Representativa. Conocerá de los asuntos que le proponga la instancia que los convoca.

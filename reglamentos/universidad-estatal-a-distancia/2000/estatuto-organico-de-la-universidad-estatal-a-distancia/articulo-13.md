@@ -1,0 +1,1 @@
+Artículo 13.—La Comisión Organizadora del Congreso dará preferencia en los asuntos a tratar a todos aquellos que sean producto de una investigación de alta calidad, según criterios establecidos por la Comisión Organizadora; estos asuntos serán presentados en forma de ponencia.

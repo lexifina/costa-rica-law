@@ -1,0 +1,1 @@
+Artículo 41.—La escala de calificaciones, nota mínima de aprobación de los cursos y todo lo relativo a la evaluación, promoción y condición honorífica de los estudiantes se regirá por lo que establezca el Reglamento respectivo.

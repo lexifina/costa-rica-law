@@ -1,0 +1,1 @@
+Artículo 18.—En caso de que el Rector o alguno de los miembros del Consejo Universitario cese en sus funciones antes de finalizar el período para el que fue electo, el sucesor se elegirá por un período completo.(10)

@@ -1,0 +1,1 @@
+Artículo 39.—La Universidad conferirá los grados académicos de diplomado, bachillerato, licenciatura, maestría y doctorado y los títulos profesionales que el Consejo Universitario considere convenientes.

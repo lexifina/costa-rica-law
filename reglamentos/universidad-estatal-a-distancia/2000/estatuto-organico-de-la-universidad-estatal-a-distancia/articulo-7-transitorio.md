@@ -1,0 +1,1 @@
+VII. El Consejo Universitario deberá conocer y aprobar el Estatuto de Personal a que se refiere el artículo 35 del presente Estatuto Orgánico, dentro de los tres meses siguientes a la entrada en vigencia de éste.

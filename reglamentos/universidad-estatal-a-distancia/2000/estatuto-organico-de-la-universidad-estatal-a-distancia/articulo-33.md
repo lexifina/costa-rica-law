@@ -1,0 +1,2 @@
+De Otras Dependencias
+Artículo 33.—La Universidad contará con Vicerrectorías, Direcciones, Oficinas, Institutos, Centros, Secciones y las demás dependencias que los organismos competentes establezcan. Se ocuparán de las distintas tareas administrativas y académicas y serán creados o suprimidos de acuerdo con lo que establece este Estatuto. Funcionarán conforme al Manual de Organización y Funciones y los reglamentos que se dicten al respecto.

@@ -1,0 +1,1 @@
+Artículo 8.—La Asamblea Universitaria se reunirá por lo menos una vez al año y para que haya quórum deberán asistir, al menos, la mitad más uno de sus miembros. Se reunirá extraordinariamente cuando sea convocada de acuerdo con los procedimientos establecidos en este Estatuto. Se regirá por su propio reglamento.

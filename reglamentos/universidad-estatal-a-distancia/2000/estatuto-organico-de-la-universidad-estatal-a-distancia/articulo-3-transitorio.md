@@ -1,0 +1,1 @@
+III. Los actuales miembros electos del Consejo Universitario durarán en sus cargos el período que por sorteo verificado el 25 de marzo de 1982, les correspondió. Ningún miembro externo será sustituido excepto que el número llegare a ser menor de tres.

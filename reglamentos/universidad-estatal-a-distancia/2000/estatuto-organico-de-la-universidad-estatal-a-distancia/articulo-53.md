@@ -1,0 +1,2 @@
+Artículo 53.—El Tribunal estará integrado por cinco miembros titulares y dos suplentes, quienes no podrán ser candidatos a puestos de elección. Todos ellos serán nombrados por el Consejo Universitario, teniendo en cuenta que haya representación de las diferentes Vicerrectorías y durarán en sus cargos un período de cuatro años.
+Los miembros de TEUNED gozarán de plenas facilidades para el buen desempeño de sus funciones.

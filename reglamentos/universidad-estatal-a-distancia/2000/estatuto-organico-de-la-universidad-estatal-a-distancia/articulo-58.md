@@ -1,0 +1,1 @@
+Artículo 58.—El recurso de revocatoria y de apelación subsidiaria, deberá plantearse ante el órgano que tomó la resolución dentro de los ocho días hábiles siguientes a partir de la notificación legal al interesado.

@@ -1,0 +1,1 @@
+Artículo 37.—Los materiales didácticos deben favorecer el aprendizaje independiente del estudiante y deben cumplir normas de calidad mínimas en su diseño, estructura, promoción y edición. La Universidad debe garantizar, a través de la dependencia respectiva, el cumplimiento de esas normas.
