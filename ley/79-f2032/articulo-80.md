@@ -1,0 +1,2 @@
+ARTICULO 80
+A ningún ciudadano, en los días de votaciones, se exigir servicio forzoso que le impida sufragar. Los ciudadanos hábiles para votar, que se hallen en las cárceles, tendrán derecho a ser conducidos al lugar donde está‚ situada la junta a fin que ejerciten el derecho del sufragio; y así mismo los individuos del ejército, del Cuerpo de Policía o Resguardo Fiscal tienen derecho a que se les permita salir libremente, sin uniforme, ni en formación, con el objeto de emitir su voto por la candidatura que su voluntad independiente quiera.

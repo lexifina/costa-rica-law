@@ -1,0 +1,2 @@
+Artículo 50
+Si del escrutinio resultare que alguno de los candidatos ha reunido en su favor la mayoría absoluta de votos emitidos, lo expresar así el Presidente del Congreso, anunciado que se le va a declarar electo. Si no hubiere objeción o proposición en contrario o si ‚esta fuere desestimada, el Congreso declarar electo Presidente de la República al que haya obtenido dicha mayoría absoluta de votos.

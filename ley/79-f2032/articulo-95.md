@@ -1,0 +1,2 @@
+Artículo 95
+El clérigo o seglar, que en su propaganda política invoque motivos de religión o que excite a las muchedumbres en general o a los ciudadanos en particular, a que se adhieran a candidatos o partidos determinados, valiéndose -como medio-d‚ las creencias religiosas del pueblo ser reprimido con la multa de ciento uno a doscientos treinta y tres colones. (Art. 36, párrafo II de la Constitución Política).

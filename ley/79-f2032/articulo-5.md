@@ -1,0 +1,3 @@
+ARTÍCULO 5°
+La división territorial relativa a provincias, cantones y distritos que determina la ley para efectos administrativos, regirá también en materia electoral. El Poder Ejecutivo formulará cada cuatro años, en la última semana de junio del año precedente al de las elecciones presidenciales, la división territorial que corresponda, determinando también la población de cada distrito, cantón y provincia, según el censo y estadística demográfica más reciente.
+Transitorio. -Para las próximas elecciones de 1913, el Poder Ejecutivo formulará esa división territorial en la segunda quincena de agosto.
