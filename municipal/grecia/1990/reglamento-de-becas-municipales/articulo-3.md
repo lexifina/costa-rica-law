@@ -1,0 +1,1 @@
+Artículo 3°—Para el fin específico en el artículo 1°, cada año, durante el mes de febrero, la Comisión recibirá las solicitudes de becas, nuevas o de revalidación, de acuerdo con los requisitos del artículo 2° del presente reglamento.

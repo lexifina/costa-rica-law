@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión queda facultada para resolver según su criterio los casos de estudiantes que, teniendo los requisitos para optar por alguna beca municipal, reciban alguna otra ayuda económica.
