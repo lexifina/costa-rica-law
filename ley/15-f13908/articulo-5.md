@@ -1,0 +1,1 @@
+ART. 5°. -En los contratos ¢ negocios que se hagan constar por escritura pública, el valor del papel sellado para el primer testimonio, se computará como parte del derecho de timbre, y los contratantes solo tendrán que pagar lo que falte para completar el expresado derecho.
