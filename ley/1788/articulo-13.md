@@ -6,12 +6,14 @@ una Junta Directiva, integrada por cinco miembros, de la siguiente
 manera:
 a) El Ministro de Trabajo y Previsión Social, que será, ex-oficio,
 miembro de la Junta Directiva; y
-b) Cuatro personas que nombrará el Consejo de Gobierno y que han de ser
-de reconocida experiencia y preparación técnica en asuntos económicos y
-sociales o en otros aspectos relacionados con los programas de vivienda
+b) Cuatro personas que nombrará el Consejo de Gobierno y que han de
+ser de reconocida experiencia y preparación técnica en asuntos económicos
+y sociales o en otros aspectos relacionados con los programas de vivienda
 y urbanismo.
 El Consejo de Gobierno, a solicitud de la Junta Directiva, podrá
 efectuar nombramientos interinos para sustituir a los miembros que indica
 el inciso b) anterior, cuando éstos tuvieren que ausentarse
 justificadamente de las sesiones, en casos que no estuvieren previstos en
 el artículo 17.
+(NOTA: TACITAMENTE REFORMADO por el artículo 4 de la ley No.4646 de 20 de
+octubre de 1970. Ver Observaciones, Opción 3).

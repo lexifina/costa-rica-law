@@ -20,9 +20,11 @@ k) Establecer sistemas de ahorro o de préstamos que se destinarán exclusivamen
 2º.- Compra, ampliación o reparación de la vivienda;
 3º.- Cancelación de gravámenes que pesen sobre la casa propia; y
 4º.- Compra del terreno por el dueño de la vivienda; cuando ésta hubiere sido construída en la propiedad ajena;
+(Reglamentado mediante artículo 1 del Decreto Ejecutivo N° 19 de 16 de julio del 1955)
 l) Ceder descontar o dar garantía los títulos que procedan de los créditos otorgados;
 m) Emitir bonos y obtener empréstitos o créditos para llevar a cabo los fines de la presente ley, previo dictamen que deberá acatarse y será solicitado al Banco Central, de acuerdo con el artículo 122 y demás disposiciones afines de la Ley Orgánica de dicha Institución;
 n) Adquirir, conforme al derecho común o mediante expropiación, de acuerdo con la ley correspondiente, bienes muebles o inmuebles. Las expropiaciones las decretará el Poder Ejecutivo ante gestión expresa y motivada del Instituto y determinado las necesidades y condiciones de las mismas.
 Fuera de los determinados en las leyes vigentes, son motivo de utilidad pública o interés social para decretar la expropiación; la necesidad de efectuar obras de crecimiento o ensanche de ciudades o conglomerados urbanos; de seguridad; de saneamiento; de ornato; de embellecimiento; de construcción o modernización de barrios; de apertura o ampliación de calles, plazas, parques y jardines públicos;
+(Nota: véase además la Ley de Expropiaciones del INVU No.1882 de 7 de junio de 1955).
 ñ) Celebrar todos los contratos y realizar todos los actos administrativos, civiles industriales o comerciales que sean convenientes o necesarios para el mejor cumplimiento de sus fines, de acuerdo con lo que las leyes permiten a entidades civiles o mercantiles, sin reserva ni limitación alguna. No podrá el Instituto hacer donaciones de ninguna especie; y
 o) Dar información y ayuda técnica a las personas de pocos recursos, a fin de que puedan construir viviendas propias y debidamente planeadas, todo de acuerdo con el Reglamento que sobre el particular sea dictado.
