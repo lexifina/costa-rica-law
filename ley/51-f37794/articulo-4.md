@@ -1,0 +1,1 @@
+Art. 4. El presente decreto será sometido al alto conocimiento del Supremo Poder Legislativo, para su aprobacion. -Dado en la ciudad de San José, à veinticinco de setiembre de mil ochocientos cuarenta y siete. -José Maria Castro. -Al Jefe de Seccion encargado accidentalmente del Ministerio de la guerra Señor Don Juan de Dios Zespedes.
