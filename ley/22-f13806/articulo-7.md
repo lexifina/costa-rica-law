@@ -1,0 +1,1 @@
+Art. 7. Si algun extranjero introdujese los expresados libros con el correspondiente pase de la Aduana, y asi lo acreditase, se embargaràn por los jueces, y solo se devolverán empaquetados y sellados por la autoridad competente, bajo de la fianza de acreditar haberlos reembarcado en el término que el juez prudencialmente señale.

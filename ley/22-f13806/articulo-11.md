@@ -1,0 +1,1 @@
+Art. 11. Los impresores del Estado se arreglaràn en todas sus operaciones al tenor del presente decreto; debiendose entender prohibida la circulación de libros ò folletos voluptuosos y difamatorios que ataquen á la Sana moral.
