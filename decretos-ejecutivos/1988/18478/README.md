@@ -13,3 +13,4 @@ Reglamento Mejoramiento Estaciones Servicio Combustible
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-14 | la propia norma |
+| 2 | 1988-10-14 | SINALEVI (sin norma nombrada) |
