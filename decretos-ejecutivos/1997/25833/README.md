@@ -14,3 +14,4 @@ Reglamento Naves Acuáticas Dedicadas Transporte Turístico Pasajeros
 | --- | --- | --- |
 | 1 | 1997-02-26 | la propia norma |
 | 2 | 1997-02-26 | SINALEVI (sin norma nombrada) |
+| 3 | 1997-05-09 | Decreto Ejecutivo 26678 (1997-05-09) |
