@@ -1,0 +1,1 @@
+Artículo 4º—Es responsabilidad exclusiva de la Administración del MAG, establecer, mantener y perfeccionar el sistema de control interno, siendo específicamente responsable del mismo el titular o máxima autoridad y ante Él, con respecto a cada órgano componente del MAG, el funcionario encargado de su dirección.
