@@ -1,0 +1,1 @@
+Artículo 2º.- Refórmase el artículo 165 de la Ley de Asociaciones Cooperativas, Nº 6756 del 5 de mayo de 1982, a fin de que la Junta Directiva del INFOCOOP se rija, en lo referente al número de sesiones y al pago de dietas, de acuerdo con lo que establece la ley.
