@@ -1,0 +1,1 @@
+ARTICULO 2°.-Los laboratorios acreditados ante la ONNUM podrán expedir un dictamen analítico, que identifique las especificaciones de calidad de los productos de origen nacional y foráneo, según su rama de actividad.

@@ -1,0 +1,1 @@
+ARTICULO 11.-La Oficina Nacional de Normas y Unidades de Medida emitirá, dentro de los seis meses siguientes a la publicación de este decreto, el Manual de Procedimientos del Sistema Nacional de Acreditamiento de Laboratorios.

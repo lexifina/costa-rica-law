@@ -1,0 +1,1 @@
+ARTICULO 4°.-La Oficina Nacional de Normas y Unidades de Medida otorgará el acreditamiento a los laboratorios analíticos, en atención a su solicitud y previa comprobación de la idoneidad técnica, tecnológica y profesional del laboratorio solicitante, así como de la calidad analítica necesaria para emitir dictámenes técnicos en áreas específicas.

@@ -1,0 +1,1 @@
+ARTICULO 8°.-El informe de resultados de los análisis que realicen los laboratorios acreditados, se redactará de acuerdo con lo establecido en el Manual de Procedimientos del Sistema de Acreditamiento de Laboratorios y tendrá el carácter de documento público.

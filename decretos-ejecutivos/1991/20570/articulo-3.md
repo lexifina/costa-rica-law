@@ -1,0 +1,1 @@
+ARTICULO 3°.-El Ministerio de Economía, Industria y Comercio, a través de la Oficina Nacional de Normas y Unidades de Medida, otorgará el acreditamiento de conformidad con el presente decreto, y con el "Manual de Procedimientos del Sistema nacional de Acreditamiento de Laboratorios", previa cancelación de los derechos fijados por la ONNUM.

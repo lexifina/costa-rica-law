@@ -1,0 +1,1 @@
+ARTICULO 5°.-La oficina Nacional de Normas y Unidades de Medida conformará la Auditoría de Calidad Analítica, como órgano de apoyo y consulta al sistema. Esta auditoría estará integrada por profesionales calificados y de reconocida experiencia en el área específica, para el control que corresponde a la ONNUM ejercer.
