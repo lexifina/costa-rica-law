@@ -1,0 +1,13 @@
+N° 26600-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA,
+En el ejercicio de las facultades que les confieren los artículos 45, 140 inciso 3) de la Constitución Política y de conformidad con lo dispuesto en los artículos 6, 11, 25.1, y 27 de la Ley General de la Administración Pública , la Ley de Conservación de Vida Silvestre, N° 7317, Ley General del Ambiente.
+Considerando:
+1°—Que para el Ministerio del Ambiente y Energía, es importante la divulgación a nivel mundial y nacional que se haga de la riqueza biológica que posee nuestro país.
+2°—Que el Ministerio del Ambiente y Energía es el administrador de las áreas silvestres de Costa Rica, cuya competencia le otorga la ley.
+3°—Que la Ley No 7111, en el artículo 30, numeral quince, autoriza al MINAE para concertar convenio con entidades conservacionistas, con el fin de desarrollar actividades en conjunto en las áreas silvestres del país.
+4°—Que la Ley General del Ambiente, N° 7554, establece "... El Estado está obligado a propiciar un desarrollo económico y ambientalmente sostenible, entendiendo como el desarrollo que satisface las necesidades humanas básicas, sin comprometer las opciones de las generaciones futuras".
+5°—Que el Estado propiciará por medio de sus instituciones, la puesta en práctica de un sistema de información con indicadores ambientales, destinados a medir la evolución y la correlación de los indicadores económicos y sociales para el país.
+6°—Que para el Gobierno de la República , fiel a sus ideales y apegado a la declaratoria de Paz a la Naturaleza , dentro del marco del desarrollo sostenible, ha decidido apoyar y declarar de interés público "El Coloquio Internacional y Permanente Producción versus Medio Ambiente, Alternativas para Satisfacer las Necesidades Vitales de la Comunidad del Continente Americano", asimismo declarar de interés público, "El Primer Taller sobre Técnicas de Rescate y Readaptación de anímales silvestres, objeto de tráfico ilegal, a la luz de la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres y la Legislación Ambiental Costarricense”. Por tanto,
+DECRETAN:
+Artículo 1°—Declarar de interés público "El Coloquio Internacional y Permanente Producción versus Medio Ambiente. Alternativas para Satisfacer las Necesidades Vitales de la Comunidad del Continente Americano" y "El Primer Taller sobre Técnicas de Rescate de Animales Silvestres, Objeto de Tráfico Ilegal, a la luz de la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres y la Legislación Ambiental Costarricense".
