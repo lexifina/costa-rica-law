@@ -7,4 +7,5 @@ Considerando:
 2º—Que las actividades que se realizarán durante el Congreso indicado, se consideran de importancia en materia de Salud, toda vez que reunirán a Profesionales de las Ciencias de la Salud, tanto del sector público como del sector privado del país.
 3º—Que los organizadores del evento han solicitado al Ministerio de Salud la declaratoria de interés público y nacional de las actividades citadas. Por tanto,
 DECRETAN:
-Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación Costarricense de Cardiología, con motivo de la celebración del II Congreso Nacional de Cardiología y Premio Nacional de Investigación en Cardiología, que tendrá lugar en nuestro país del 9 al 10 de octubre del 2003.
+Artículo 1º—Se declaran de interés público y nacional, las actividades que llevará a cabo la Asociación Costarricense de Cardiología, con motivo de la celebración del II Congreso Nacional de Cardiología y Premio Nacional de Investigación en Cardiología, que tendrá lugar en nuestro país del 2 al 3 de octubre del 2003.
+(Así reformado por Decreto Ejecutivo N° 31140 de 24 de abril de 2003).

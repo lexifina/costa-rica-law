@@ -14,3 +14,4 @@ Declara de interés público y nacional las actividades de la Asociación Costar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-17 | la propia norma |
+| 2 | 2003-04-24 | Decreto Ejecutivo 31140 (2003-04-24) |
