@@ -15,3 +15,4 @@ Integración del Consejo de Seguridad Vial
 | --- | --- | --- |
 | 1 | 1986-09-10 | la propia norma |
 | 2 | 1987-07-29 | Decreto Ejecutivo 17684 (1987-07-29) |
+| 3 | 1988-06-13 | Decreto Ejecutivo 18179 (1988-06-13) |
