@@ -1,0 +1,2 @@
+Artículo 40:
+Las tasas y tarifas que la Municipalidad cobre a !os abonados por la prestación del servicio de agua potable se elaborarán tomando como base el principio de servicio al costo más un rédito de desarrollo, también deberá tomarse en cuenta los criterios de justicia social distributiva, de acuerdo con los artículos tercero y cuarto de la ley Constitutiva del Instituto Costarricense de Acueductos y Alcantarillados y del Artículo 87 del Código Municipal.

@@ -1,0 +1,2 @@
+Artículo 13:
+Las solicitudes para ser consideradas, deberán de disponer de vías públicas de acceso directo o por servidumbre, así como que el sistema pase por el frente de la propiedad que solicita el servicio.

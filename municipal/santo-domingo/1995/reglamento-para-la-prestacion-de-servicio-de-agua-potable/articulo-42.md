@@ -1,0 +1,2 @@
+Artículo 42:
+La Municipalidad deberá estar a derecho, con respecto a la concesión de las nacientes de agua de su cantón, ante el Organismo Regulador (SNE), con el fin de garantizar el servicio a los abonados.

@@ -1,0 +1,2 @@
+Artículo 9:
+Es responsabilidad y obligación del abonado mantener en buenas condiciones de funcionamiento los sistemas e instalaciones internas. De lo contrario la Municipalidad no asume ninguna responsabilidad por el mal funcionamiento del sistema mencionado.

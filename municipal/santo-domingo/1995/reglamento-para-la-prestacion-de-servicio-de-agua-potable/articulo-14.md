@@ -1,0 +1,3 @@
+Artículo 14:
+La petición de nuevos servicios presentada ante la Municipalidad debe hacerse mediante solicitud, escrita, fechada y firmada por el interesado, para ello el Gobierno Local contará con el respectivo formulario; de ser acogida la misma, se debe comunicar por escrito al patente para que proceda a cancelar él derecho por nueva conexión, así como el costo por conexión o prevista.
+Dichas solicitudes serán registradas y conferidas en forma cronológica cuando ello proceda.
