@@ -1,0 +1,1 @@
+Art 3°.- Los individuos nombrados para componer las comisiones tasadoras no podrán escusar de prestar este servicio por pretesto alguno; antes bien serán responsables de los daños que resultaren al país por consecuencia de su morosidad en el cumplimiento de sus deberes.
