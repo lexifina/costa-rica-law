@@ -1,0 +1,11 @@
+PRESIDENCIA DE LA REPÚBLICA
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+No 2-SC.—San José, 28 de enero del 2003
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+- DG-091 -2003, mediante la cual se modifica la Resolución DG-152-2002, del 28 de setiembre del 2002, en su artículo 1, incluyendo la Maestría en Administración de Negocios con énfasis en Empresas en las clases: Profesional de Proceso 2, Profesional de Proceso 3, Profesional de Proceso 5 y Coordinador General 2.
+- DG-092-2003, mediante la cual se modifica el requisito establecido para la clase Técnico Agropecuario, Grupo B y C, del Manual Institucional de Clases del Ministerio de Agricultura y Ganadería.
+- DG-117-2003 mediante la cual se incluyen como destinatarias del beneficio "incentivo para el Desarrollo de la Docencia" las clases Subdirector de Colegio, Bibliotecólogo de Centro Educativo 1 y Bibliotecólogo de Centro Educativo 2, así también se eliminan las clases de puesto Bibliotecario Asistente de Centro Educativo 1 y Bibliotecario Asistente de Centro Educativo 2.
+- DG-119-2003, mediante la cual se corrige la Resolución DG-248-2002 referente a las clases de Tribunal Fiscal Administrativo.
+- DG-120-2003, mediante el cual se modifica el artículo l° de la Resolución DG-191-2001, del 11 de diciembre del 2001, de manera que las carreras de "Administración de Empresas con énfasis en Recursos Humanos" y "Administración de Negocios con énfasis en Recursos Humanos" sean incluidas en el apartado de Atenencias Académicas del cargo Gestor de Recursos Humanos, perteneciente a la Clase Profesional Bachiller Administrativo, del Manual Institucional de Clases del Ministerio de Agricultura y Ganadería.
+- DG-121 -2003, mediante la cual se actualiza y modifican las Vías de Carrera Administrativa Docente y se derogan las anteriores resoluciones que existen sobre esta materia.
+- DG-129-2003, mediante la cual se modifica el Manual Institucional de Clases de la Secretaría Técnica de la Autoridad Presupuestaria, incluyendo en el apartado de "Requisitos" de las clases Técnico de Proceso, Profesional de Proceso y Coordinador de Proceso de la Secretaría Técnica de la Autoridad Presupuestaria, la carrera Administración de Empresas con énfasis en Contaduría.
