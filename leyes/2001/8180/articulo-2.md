@@ -16,3 +16,5 @@ Artículo 2: Apruébanse los siguientes egresos ordinarios y extraordinarios par
 (Así modificado por el artículo 3 del Decreto Ejecutivo N° 30552 del 25 de junio del 2002)
 (Así modificado por el artículo 1 del Decreto Ejecutivo N° 30551 del 25 de junio del 2002)
 (Modificado por los artículos 1 y 3 del Decreto Ejecutivo N° 30619 del 5 de agosto de 2002)
+(Modificado por los artículo 1 del Decreto Ejecutivo N° 30663 del 9 de agosto de 2002)
+(Modificado por los artículo 1 del Decreto Ejecutivo N° 30670 del 8 de agosto de 2002)
