@@ -1,0 +1,1 @@
+Artículo 17° Autorizase al Poder Ejecutivo para que tomando por las sumas votadas para el sostenimiento de la segunda enseñanza y la normar y prescindiendo en lo necesario de la distribución que acerca del particular contiene la Ley de Presupuesto, reorganice dichas enseñanzas del modo que juzgue mas conveniente a los intereses de la República.
