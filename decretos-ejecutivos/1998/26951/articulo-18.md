@@ -1,0 +1,1 @@
+Artículo 18.—Régimen de control y comunicación. Cada cuatro meses, el Departamento de Pasaportes confeccionará y enviará a la Auditoría Interna y a la Dirección General una lista de los pasaportes Diplomáticos y de Servicio expedidos, con el nombre del funcionario, el cargo que ocupa, la fecha de expedición y expiración del pasaporte, la de su visa o de la revalidación.

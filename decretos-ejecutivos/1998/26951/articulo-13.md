@@ -1,0 +1,1 @@
+Artículo 13.—Leyenda obligatoria. Poner un pasaporte diplomático o de servicio no le concede a su titular ningún privilegio discriminatorio, de carácter fiscal cuando ingrese al país. Esta disposición será consignada en el documento migratorio respectivo.

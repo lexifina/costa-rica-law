@@ -1,0 +1,1 @@
+Artículo 23.—Deterioro del pasaporte. Si la razón de la reposiciones el deterioro sufrido por el documento, deberá sin excepción, entregar el pasaporte deteriorado al Departamento de Pasaportes para su anulación y expedición de uno nuevo.

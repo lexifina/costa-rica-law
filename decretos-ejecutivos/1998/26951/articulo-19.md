@@ -1,0 +1,1 @@
+Artículo 19.—Control de las revalidaciones. El Departamento de Pasaportes deberá tener un tarjetero numerado en secuencia, debidamente sellado y rubricado, donde constarán las revalidaciones que se extiendan registrando dicho movimiento al margen de los asientos originales, donde en su oportunidad, se hará constar la incineración.

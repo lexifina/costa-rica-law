@@ -1,0 +1,1 @@
+Artículo 22.—Comunicación a la autoridad judicial. El titular de un pasaporte diplomático o de servicio, deberá acudir a la autoridad judicial del lugar a reportar el extravío, robo o hurto del pasaporte, cuya copia deberá adjuntar a su solicitud de reposición, además del requisito que indica el artículo anterior.
