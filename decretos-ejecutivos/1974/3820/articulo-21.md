@@ -1,0 +1,1 @@
+Artículo 21.-Utilización de Servicios Particulares. En casos especiales cuando resulte más ventajoso realizar un viaje utilizando servicios particulares de transporte de pasajeros, y su uso no perjudique la efectividad y oportunidad del trabajo a juicio de la Sección de Transportes, del Oficial Mayor o del Ministro, según el caso, no se hará uso del vehículo oficial.

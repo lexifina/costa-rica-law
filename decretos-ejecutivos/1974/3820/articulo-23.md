@@ -1,0 +1,1 @@
+Articulo 23.-Ministerios o Dependencias que no tienen Garaje. Los Ministerios o Dependencias con vehículos propios que no tengan garaje, deberán guardar sus vehículos en garajes de otros Ministerios o alquilar garajes privado, siempre que las circunstancias lo justifiquen.
