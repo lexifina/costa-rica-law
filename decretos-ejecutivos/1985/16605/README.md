@@ -17,3 +17,4 @@ Reglamento de la Ley de Incentivos para el Desarrollo Turístico
 | 2 | 1988-05-19 | Decreto Ejecutivo 18159 (1988-05-19) |
 | 3 | 1990-05-03 | Decreto Ejecutivo 19717 (1990-05-03) |
 | 4 | 1991-01-30 | Decreto Ejecutivo 20246 (1991-01-30) |
+| 5 | 1995-09-12 | Decreto Ejecutivo 24734 (1995-09-12) |
