@@ -1,0 +1,1 @@
+Art. 11. La administración de los fondos escolares de aquellos distritos en que se dificulte el nombramiento de Tesoreros responsables, y mientras se hace la provisión de estos empleos, la llevarán en cuenta separada las respectivas Tesorerías municipales de cantón.
