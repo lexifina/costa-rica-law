@@ -1,0 +1,2 @@
+Artículo 21.- El personal del Instituto tendrá derecho a ser renumerado adicionalmente en el mes de diciembre de cada año en la doceava parte del total de los salarios ordinarios percibidos durante el año transcurrido. En el caso de que el trabajador cesare en sus labores, por cualquier causa, tendrá derecho a ser gratificado con la doceava parte de los salarios ordinarios percibidos hasta la fecha de retiro, contados a partir del 1º de enero del mismo año.
+( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de setiembre de 1964).

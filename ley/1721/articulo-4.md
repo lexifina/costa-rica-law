@@ -1,0 +1,2 @@
+Artículo 4º.- El Instituto Costarricense de Puertos del Pacífico tendrá capacidad para celebrar toda clase de contratos, así como para realizar todos aquellos actos comerciales que sean necesarios para cumplir con las atribuciones que están a su cargo, de acuerdo con esta ley y dentro de las limitaciones señaladas en el artículo 121, inciso 14), Aparte C, de la Constitución Política.
+( Así reformado por el artículo 1º de la Ley Nº 1797 de 30 de setiembre de 1954 y 2º de la Nº 4964 de 21 de marzo de 1972).

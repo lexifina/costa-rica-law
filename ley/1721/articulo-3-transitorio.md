@@ -1,0 +1,1 @@
+Transitorio III.- El plan de escalafón a que se refiere el artículo 20 deberá estar aprobado por la Junta Directiva en el término de un año, a partir de la promulgación de la presente ley. Para su confección la Junta Directiva oirá el parecer de los empleados organizados por medio de sus personeros.

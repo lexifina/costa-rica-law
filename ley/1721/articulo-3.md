@@ -1,0 +1,2 @@
+Artículo 3º.- El domicilio del Instituto será la ciudad de Puntarenas, donde tendrá sus oficinas principales, pudiendo también mantener oficinas en la capital y organizar agencias, sucursales o representaciones en cualquier otro lugar de la República o fuera de ella, por simple acuerdo de Junta Directiva. Su duración, como organismo de derecho público, será indefinida.
+( Así reformado por el artículo 1º de la Ley Nº 4964 de 21 de marzo de 1972).
