@@ -1,0 +1,1 @@
+Artículo 27.—El tiempo máximo que se concede para cancelar un fraccionamiento, no excederá los seis meses calendario, contados a partir de la firma del documento respectivo. El Departamento de Cobro Administrativo elaborará una tabla donde se especificará el monto de los depósitos previstos en la formalización del fraccionamiento.

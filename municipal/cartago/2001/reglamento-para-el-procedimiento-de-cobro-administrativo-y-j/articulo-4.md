@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización y funcionamiento de la Oficina de Cobro
+Artículo 4º—Es atribución y obligación del Departamento de Cobro Administrativo crear e implementar los mecanismos y controles necesarios para hacer efectivo el cobro y correspondiente pago de las cuentas morosas, tanto administrativas como judicialmente. Las Jefaturas de Patentes, Urbanismo, Bienes Inmuebles y Administración del Mercado quedan facultadas para realizar la gestión de cobro inicial descrita en el apartado a) del artículo 5º siguiente, informando y coordinando de sus acciones al Departamento de Cobro Administrativo.

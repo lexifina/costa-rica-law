@@ -1,0 +1,1 @@
+Artículo 26.—El Departamento de Cobro Administrativo, será el encargado de realizar todos los trámites de fraccionamiento referido a todos los tributos (impuestos, tasas, servicios, alquileres, etc.) En el caso de impuestos deberá tener el visto bueno de la Jefatura respectiva.

@@ -1,0 +1,1 @@
+Artículo 12.—En caso de contratación directa, la designación de los abogados le será comunicada por escrito al profesional. El profesional designado deberá firmar el contrato correspondiente, que al efecto elaborará la Municipalidad, así mismo podrá utilizarse la contratación de los profesionales mediante concurso.

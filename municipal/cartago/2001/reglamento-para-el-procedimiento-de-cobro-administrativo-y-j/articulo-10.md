@@ -1,0 +1,1 @@
+Artículo 10.—El Jefe del Departamento de Cobro Administrativo deberá rendir informes trimestrales al Alcalde Municipal, o informe específico cuando este solicite, sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión, a esa fecha, tanto de Cobro Administrativo, como de Cobro Judicial.
