@@ -14,3 +14,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias, que se inician el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-08 | la propia norma |
+| 2 | 2002-02-27 | Decreto Ejecutivo 30191 (2002-02-27) |
