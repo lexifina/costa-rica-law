@@ -14,3 +14,4 @@ Reglamento para gastos de representación del Instituto Nacional de Vivienda y U
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-24 | la propia norma |
+| 2 | 2002-02-05 | Reglamento 0 (2002-02-05) |

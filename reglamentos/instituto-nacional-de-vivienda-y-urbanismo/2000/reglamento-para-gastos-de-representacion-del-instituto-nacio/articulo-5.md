@@ -1,3 +1,1 @@
-Artículo 5°—El gasto de representación será originado por la atención a funcionarios de instituciones o entidades ajenas al INVU a los cuales se la brinda la atención, como resultado de un evento de carácter netamente oficial y directamente relacionado con el cumplimiento del cargo.
-Para el reconocimiento de esos gastos, será indispensable la presentación de las correspondientes facturas, acompañadas de una justificación con el siguiente detalle, cargo y nombre de los funcionarios atendidos, nombre y firma del funcionario responsable del pago y motivo de la atención. El incumplimiento de este requisito obligará a reintegrar las sumas que se hubiesen girado como adelanto por ese concepto.
-En ningún caso el gasto de representación cubrirá pagos por el consumo de bebidas alcohólicas.
+Artículo 5°— DEROGADO mediante sesión de fecha 5 de febrero del 2002.
