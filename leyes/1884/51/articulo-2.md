@@ -1,0 +1,2 @@
+Art. 2°-Quedan derogados los artículos 2° y 3° de la ley de que se hace referencia.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de julio de mil ochocientos ochenta y cuatro. -JN. M. CARAZO, Presidente. -MAURO FERNÁNDEZ, Secretario.-AND. SÁENZ, Pro-secretario. Palacio Presidencial.-San José, á dos de agosto de mil ochocientos ochenta y cuatro. -Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Gobernación.-BERNARDO SOTO.
