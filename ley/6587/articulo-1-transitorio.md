@@ -1,0 +1,1 @@
+Transitorio 1.- En tanto no se establezcan las patentes, que esta ley autoriza, a los vendedores ambulantes y estacionarios se les aplicará la tarifa más baja, existente en la respectiva ley de patentes municipales. En cualquier caso, siempre deberán aplicarse los artículos 4º y 6º de esta ley.

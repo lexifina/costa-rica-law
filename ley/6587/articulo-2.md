@@ -1,0 +1,1 @@
+Artículo 2º.- Las patentes que se otorguen, de conformidad con esta ley, serán intransferibles por cualquier título y sólo podrán otorgarse a costarricenses por nacimiento o por naturalización con más de diez años de adquirida.

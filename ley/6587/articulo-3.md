@@ -1,0 +1,1 @@
+Artículo 3º.- Las municipalidades declararán la caducidad de la patente de ventas ambulantes o estacionarias, cuando la familia propietaria de ésta no la utilice, dentro del plazo que al efecto determinará el reglamento municipal correspondiente. En tal caso, no podrá volver a otorgarse una patente de esta naturaleza a la familia que la dejó caducar.
