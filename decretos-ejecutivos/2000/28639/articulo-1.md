@@ -121,3 +121,5 @@ de Protección Social de San José)
 con respecto de la Junta de Desarrollo de la Regional de la Zona Sur)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29123 de 21 de noviembre del 2000,
 respecto de la Junta de Administracion Portuaria y de Desarrollo Económico de la Vertiente Atlántica)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29233 de 13 de diciembre del 2000,
+para el Editorial Costa Rica)
