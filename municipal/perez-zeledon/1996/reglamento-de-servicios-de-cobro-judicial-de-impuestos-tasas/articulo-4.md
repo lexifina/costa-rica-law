@@ -1,0 +1,1 @@
+Artículo 4°-Queda terminantemente prohibido, a los abogados, hacer cualquier tipo de arreglo con el deudor, recibir pagos o abonos como amortización a la deuda, salvo los honorarios, cuando haya arreglos de conformidad con el artículo anterior.
