@@ -1,0 +1,1 @@
+Artículo 15.—Los ministerios a más tardar el 01 de julio y las entidades públicas a más tardar el 30 de setiembre, remitirán a la Dirección General de Presupuesto Nacional (DGPN) y a la STAP respectivamente, la estructura de PAO y el dictamen técnico emitido por MIDEPLAN sobre la vinculación con el PND.

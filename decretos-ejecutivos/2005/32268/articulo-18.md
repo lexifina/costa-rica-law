@@ -1,0 +1,1 @@
+Artículo 18.—Las entidades públicas, ministerios y demás órganos deberán brindar las facilidades para que MIDEPLAN verifique según los procedimientos metodológicos establecidos, los datos aportados en los informes.

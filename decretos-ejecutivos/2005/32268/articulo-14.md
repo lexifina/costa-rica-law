@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la programación y evaluación estratégica
+Artículo 14.—De acuerdo con el artículo 4° de la Ley Nº 8131 y elartículo 2° de la Ley Nº 5525, los ministerios a más tardar el 30 de abril del 2005 y las entidades públicas y demás órganos a más tardar el 16 de julio del 2005, deberán remitir al Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) la estructura de Plan Anual Operativo (PAO) para el año 2006, supeditada al Plan Nacional de Desarrollo (PND) 2002-2006. MIDEPLAN emitirá criterio sobre la vinculación del Plan Anual Operativo (PAO) con el PND, el cual deberá tomarse en cuenta para la asignación de los recursos públicos por los entes encargados.
