@@ -1,0 +1,4 @@
+CAPITULO SÉTIMO
+TITULO ÚNICO
+Disposiciones varias
+Artículo 23.—La Caja Recaudadora contará con un fondo fijo, por la suma de c10.000,00, para que el cajero pueda desenvolverse en su labor cotidiana, dicho saldo será revisado cada tres días por el tesorero y deberá estar correcto, en caso contrario el cajero incurre en responsabilidad patronal.
