@@ -1,0 +1,23 @@
+Artículo 83.- Refórmase el artículo 175 del Código Electoral para que
+diga:
+"Artículo 175.-El Poder Ejecutivo deberá tramitar en el término
+Máximo de diez días naturales, las solicitudes de mercancías y reservas de
+crédito formule el Tribunal Supremo de Elecciones, sin entrar a calificar
+la conveniencia u oportunidad del gasto.
+A juicio del Tribunal, la adquisiciones podrán mediante licitación
+privada de que hará la Proveeduría Nacional o la Proveeduría del Tribunal,
+cualquiera que sea el monto de la adquisición. La adjudicación se hará
+sin dilación y sin trámite, a la oferta que el Tribunal indique como la
+más conveniente y contra la resolución así recaída no cabrá recurso
+alguno.
+Para la adquisición de los materiales para preparar la documentación
+electoral de que trata el artículo 33, el Poder Ejecutivo, mediante
+decreto, traspasará al Tribunal de los respectivos presupuestos anuales y
+de las partidas que este indique, una suma global cuyo monto señalará el
+Tribunal para poder adquirir los bienes y servicios a que se refiere le
+citado artículo, por contratación directa, cualquiera que sea el monto de
+los mismos. En lo conducente, téngase por reformada la Ley de la
+Administración Financiera de la República.
+Tratándose de labor de propaganda por la prensa, radio televisión,
+folletos, carteles o afiches volantes, el Tribunal podrá contratar
+directamente."
