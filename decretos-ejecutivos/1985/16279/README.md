@@ -14,3 +14,4 @@ Autoriza al Servicio Nacional de Electricidad para realizar la correspondiente f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-05-29 | la propia norma |
+| 2 | 1985-05-29 | SINALEVI (sin norma nombrada) |
