@@ -1,0 +1,1 @@
+Artículo 2°—Invitar a que asistan al citado evento a los representantes de los siguientes países: México, Guatemala, Honduras, El Salvador. Panamá, Cuba y República Dominicana. Así como al del Centro Internacional de la Papa (CIP) de Perú.

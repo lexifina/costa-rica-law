@@ -1,0 +1,1 @@
+Artículo 3°—Los gastos de transporte (desde el país de origen hacia el país sede) y viáticos así como los de estadía y alimentación en el país, de los representantes extranjeras excepto para el representante del CIP de Perú serán cubiertos COB cargo a la Partida Estaciones Experimentales - Programa: Desarrollo Agrícola - Actividad N° 8: PRECODEPA.
