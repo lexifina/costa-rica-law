@@ -1,0 +1,1 @@
+Artículo 35.—La Jefatura de la Biblioteca podrá rechazar la solicitud de los servicios del despacho en general, a quienes incumplan estas normas y las disposiciones administrativas que se establezcan.

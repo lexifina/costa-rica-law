@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios judiciales y/o particulares a quienes se les facilitare libros, revistas, periódicos y cualquier otro material bibliográfico, serán responsables de los daños y pérdidas que éstos sufran.

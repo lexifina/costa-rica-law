@@ -1,0 +1,1 @@
+Artículo 32.—El incumplimiento de lo dispuesto en el presente Reglamento, será sancionado por la Ley Orgánica del Poder Judicial y demás ordenamiento jurídico según corresponda, aplicando el régimen disciplinario.

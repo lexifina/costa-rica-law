@@ -1,0 +1,1 @@
+Artículo 27.—La Jefatura de la Biblioteca conjuntamente con la Comisión de Publicaciones, serán los encargados de determinar a los destinatarios nacionales y extranjeros a quienes se les enviarán las publicaciones, tomando en cuenta para ello, la importancia y el prestigio así como la reprocidad que puedan tener para el Poder Judicial.

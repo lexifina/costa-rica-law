@@ -1,0 +1,1 @@
+Artículo 8°—El Jefe de la Biblioteca Judicial recomendará a la Dirección Ejecutiva la adquisición de nuevas obras y otros materiales bibliográficos según las prioridades y los recursos que se le asignen, ésta a su vez brindará la aprobación correspondiente.

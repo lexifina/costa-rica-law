@@ -1,0 +1,1 @@
+Artículo 38.—Este reglamento deroga el reglamento anterior aprobado en sesión de Corte Plena el 29 de agosto de 1966, así como cualquier otra disposición que se le oponga y rige a partir de su publicación en el Boletín Judicial.

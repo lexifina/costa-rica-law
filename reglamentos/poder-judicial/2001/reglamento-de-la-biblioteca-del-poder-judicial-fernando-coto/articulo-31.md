@@ -1,0 +1,1 @@
+Artículo 31.—Los Jefe de Despacho, Departamento y Sección serán responsables por el material bibliográfico que se les hubiese entregado, como soporte a la labor judicial que realiza cada uno de ellos, para lo cual deberá responder por la pérdida total o parcial, así como, por los daños que sufra, conforme el artículo 30.

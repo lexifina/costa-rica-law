@@ -1,0 +1,1 @@
+Artículo 34.—Cuando por situaciones de fuerza mayor o caso fortuito, los materiales bajo custodia de la Biblioteca sufrieran algún daño, debe levantarse un acta, con la presencia de algún Inspector Judicial. En situaciones donde el material dañado no pueda repararse por el deterioro en que se encuentra, se procederá a su destrucción, previa aprobación del Consejo Superior.

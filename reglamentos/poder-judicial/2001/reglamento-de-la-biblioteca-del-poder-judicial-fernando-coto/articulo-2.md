@@ -1,0 +1,5 @@
+Artículo 2°—Las funciones de la Biblioteca del Poder Judicial serán las siguientes:
+Mantener actualizadas las colecciones de obras, leyes, publicaciones periódicas y demás documentos relacionados con la materia jurídica y administrativa que se requieren para el buen funcionamiento de la institución.
+Promover la adquisición de nuevas obras y demás publicaciones bibliográficas en los campos del Derecho, Medicina Legal, Investigación Criminal, Administración y cualquier otra obra afín y necesaria, para cubrir las necesidades del Poder Judicial. Conservar debidamente clasificadas las obras y actualizadas las Bases de Datos necesarias, como las correspondientes a leyes, decretos y reglamentos.
+Brindar el servicio de préstamo del material bibliográfico a los funcionarios y Servidores Judiciales, abogados, estudiantes y público en general.
+Distribuir, supervisar y mantener actualizadas las Bibliotecas Básicas, ésta última en coordinación con los Jefes de las Unidades y Subunidades Administrativas Regionales.

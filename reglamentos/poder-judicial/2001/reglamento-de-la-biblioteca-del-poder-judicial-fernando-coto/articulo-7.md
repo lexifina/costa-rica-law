@@ -1,0 +1,1 @@
+Artículo 7°—Corresponderá a la Corte Plena, definir las políticas generales para el buen funcionamiento de la Biblioteca, y a la Dirección Ejecutiva aprobar o rechazar la asignación presupuestaria que presenta la jefatura, para la adquisición de nuevas obras.

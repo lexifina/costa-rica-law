@@ -1,0 +1,1 @@
+Artículo 12.—Al solicitar libros y publicaciones para consulta, es requisito indispensable para el usuario, llenar la boleta de préstamo y presentarla directamente al bibliotecario, junto con la identificación personal. Una vez finalizada la consulta por parte del lector, se le devolverá la identificación. El préstamo se limitará a tres tomos como máximo.

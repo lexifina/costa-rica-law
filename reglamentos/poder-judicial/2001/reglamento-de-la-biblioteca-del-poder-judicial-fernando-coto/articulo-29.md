@@ -1,0 +1,1 @@
+Artículo 29.—El usuario que deteriore el material bibliográfico que recibe para consulta, debe cubrir el valor de la reconstrucción correspondiente, en caso de pérdida está en la obligación de cancelar el importe respectivo, o reintegrar un ejemplar similar al extraviado.

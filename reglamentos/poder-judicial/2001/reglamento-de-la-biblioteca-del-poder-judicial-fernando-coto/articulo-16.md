@@ -1,0 +1,1 @@
+Artículo 16.—La duración del préstamo no podrá exceder de 8 días naturales, prorrogables como máximo por otro tanto cuando así lo solicite el interesado. El lector está en la obligación de devolver el material bibliográfico en la fecha de vencimiento del préstamo.

@@ -1,0 +1,1 @@
+Artículo 25.—Corresponderá a la Biblioteca Judicial remitir, semanalmente los comprobantes de depósitos al Departamento Financiero Contable, para que proceda a la actualización del libro de bancos y a la confección de la conciliación bancaria en forma mensual.

@@ -1,0 +1,1 @@
+Artículo 19.—Se prohibe el acceso al depósito de libros a las personas que no laboran en la Biblioteca y a los particulares, salvo que reciban la autorización de la Jefatura en cuyo caso serán acompañados por un servidor bibliotecario.

@@ -1,0 +1,1 @@
+Artículo 4°—La Biblioteca es la encargada de custodiar, ordenar, clasificar, y prestar los materiales que se le designen y velar por el buen estado y conservación de los mismos, para lo que desplegará las actividades, funciones y controles pertinentes.

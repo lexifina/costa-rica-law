@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los Servicios a los Despachos Judiciales y Oficinas Administrativas
+Artículo 20.—La Biblioteca del Poder Judicial es la encargada de suministrar a todas las Oficinas Judiciales del país para su uso exclusivo: códigos, diccionarios, leyes, decretos, reglamentos, revistas judiciales y cualquier otra publicación de interés y que puedan ayudar al correcto, eficaz y ágil desenvolvimiento de la oficina, cuando existan los recursos presupuestarios suficientes para su entrega. Sin perjuicio de los medios automatizados que estén a disposición de los usuarios, en las bases de datos que se incorporen a través de los medios tecnológicos utilizados por la Institución.

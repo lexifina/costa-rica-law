@@ -1,0 +1,1 @@
+Artículo 3°—La Biblioteca dispondrá de un espacio físico que reúna las condiciones ambientales y de seguridad necesarias para su buen funcionamiento y que garantice la debida custodia de las obras a su cargo.
