@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -Por consecuencia en ningún tiempo, ni por pretesto algunos sean cuales fueren las circunstancias del Estado, serán reconocidas las máximas del Decreto anunciado, ni el Gobierno a que por ellas se proclame. Los costarricenses no han tenido, ni tienen obligación de obedecer a un Gobierno semejante.
