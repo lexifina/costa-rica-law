@@ -237,6 +237,9 @@ III.3.12.2 En conjuntos con un número menor de lotes o viviendas se deberá ade
 III.3.13 Telecomunicaciones:
 III.3.13.1 La construcción de la red telefónica principal, cuyo diseño aprobará en cada caso el ICE, puede hacerse con empresas privadas o contratarse directamente con el ICE.
 III.3.13.2 En el proyecto deben estar contemplados los armarios de distribución telefónica cuya ubicación debe ser consultada al ICE a nivel de anteproyecto, a fin de que se reserven los espacios necesarios.
+III.3.13.3 Localización de redes: El paso de redes para servicios de electricidad, acueductos y alcantarillado u otros sistemas, deberá estar localizado preferiblemente en los derechos de vía y, en todo caso, a través o sobre áreas de uso público. Por lo tanto no serán aceptables servidumbres prediales en oposición a la norma indicada.
+Cuando la propiedad se encuentre ya afectada por servidumbre como las indicadas, estas deberán quedar igualmente en área pública pudiendo incorporarse en calles, parques o juegos infantiles.
+(Así ampliado por acuerdo de Junta Directiva, en su sesión N° 55 de 17 de febrero de 1988)
 III.3.14 Infraestructura y Acabados :
 Las entidades competentes determinarán las obras de infraestructura que requieran los fraccionamientos y urbanizaciones, considerando la localización y carácter de los mismos y atendiendo a las normas aplicables.
 Las municipalidades dictaminarán acerca de los acabados de pavimentos, drenajes pluviales, aceras y similares.
