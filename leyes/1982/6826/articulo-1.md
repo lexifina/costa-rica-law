@@ -23,6 +23,7 @@ k) Espectáculos públicos en general, excepto los deportivos, teatros y cines, 
 l) Servicios publicitarios prestados a través de la radio, la prensa y la televisión. (*)Estarán exentos de esta disposición las emisoras de radio y los periódicos rurales.
 (Así adicionado el inciso anterior por el artículo 3° de la Ley Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA, N° 7088 del 30 de noviembre de 1987)
 (*)(Así adicionada la frase anterior por el artículo 19 aparte 39) de la Ley de Presupuesto Extraordinario, N° 7097 del 18 de agosto de 1988)
+(Nota de Sinalevi: De conformidad con el artículo 37, aparte primero, de la Ley de Presupuesto Ordinario para el año 1989, N° 7111 del 12 de diciembre de 1988, se derogó el inciso l) anterior. No obstante, dicha abrogación fue vetada por el Poder Ejecutivo, manteniendo así dicho inciso su texto anterior la derogatoria indicada)
 ll) Transmisión de programas de televisión por cable, satélite u otros sistemas similares, así como la grabación de videos y pistas, y su arrendamiento.
 (Así adicionado el inciso anterior por el artículo 3° de la Ley Reajuste Tributario y Resolución 18ª Consejo Arancelario y Aduanero CA, N° 7088 del 30 de noviembre de 1987)
 m) Servicios de agencias aduanales.
