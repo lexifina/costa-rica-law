@@ -1,0 +1,1 @@
+Artículo 28.—El encargado de transportes realizará inventarios periódicos a los vehículos, a fin de verificar su estado físico y mecánico, además del control de las herramientas, repuestos y piezas complementarias.

@@ -1,0 +1,2 @@
+Artículo 22.—Unicamente en casos de excepción debidamente calificados, un vehículo de uso administrativo podrá ser guardado en casas de habitación de funcionarios o particulares, previa aprobación del Secretario Ejecutivo.
+En el caso de los vehículos de uso discrecional, el funcionario a quien se le haya asignado, deberá de guardarlo en un garaje o sitio similar que ofrezca todas las seguridades necesarias.

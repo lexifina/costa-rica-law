@@ -1,0 +1,1 @@
+Artículo 12.—Los coordinadores o encargados de las dependencias o unidades administrativas que utilicen vehículos conforme a lo dispuesto en el artículo anterior, deberán velar por el cumplimiento de las disposiciones del presente reglamento.

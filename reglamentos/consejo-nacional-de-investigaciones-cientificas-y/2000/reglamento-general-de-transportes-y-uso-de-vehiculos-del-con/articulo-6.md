@@ -1,0 +1,1 @@
+Artículo 6º—Todos los vehículos de la Institución deberán estar debidamente inscritos a nombre del CONICIT en el Registro Público de la Propiedad de Vehículos Automotores y asegurados con póliza obligatoria y voluntaria ante el Instituto Nacional de Seguros.

@@ -1,0 +1,1 @@
+Artículo 23.—Cuando el vehículo se encuentre en gira el responsable del mismo deberá asegurarse que el vehículo permanezca en lugar seguro durante la gira. En caso de que no se cuente con parqueo en el lugar donde pernocte, deberá buscar un lugar adecuado para su protección.

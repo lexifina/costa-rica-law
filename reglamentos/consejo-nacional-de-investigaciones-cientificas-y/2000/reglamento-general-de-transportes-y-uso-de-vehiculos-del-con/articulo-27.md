@@ -1,0 +1,1 @@
+Artículo 27.—La conducción de vehículos estará a cargo del personal que designe la Institución, quienes estarán obligados a portar la licencia de conducir al día y los documentos de autorización respectivos.
