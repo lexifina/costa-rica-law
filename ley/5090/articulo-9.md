@@ -1,0 +1,1 @@
+Artículo 9º.- La Comisión elaborará un reglamento de esta ley en el cual se tomarán en cuenta los programas establecidos enn convenciones internacionales que hayan sido ratificadas por nuestro país. Para que ese reglamento entre en vigencia deberá ser aprobado y mandado a publicar por el Poder Ejecutivo.
