@@ -1,0 +1,1 @@
+Articulo 2°-EI Refugio Nacional de Vida Silvestre Camaronal será administrado por la Dirección General de Vida Silvestre del Ministerio de Recursos Naturales, Energía y Minas de conformidad con las disposiciones de la Ley N° 7317.
