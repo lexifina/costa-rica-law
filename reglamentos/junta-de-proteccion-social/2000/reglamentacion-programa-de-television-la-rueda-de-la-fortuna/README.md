@@ -15,3 +15,4 @@ Reglamentación Programa de Televisión La Rueda de la Fortuna
 | --- | --- | --- |
 | 1 | 2000-09-11 | la propia norma |
 | 2 | 2000-09-11 | Ley 8 |
+| 3 | 2003-03-04 | Reglamento 80 (2003-03-04) |
