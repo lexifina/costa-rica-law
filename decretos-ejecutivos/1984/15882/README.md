@@ -14,3 +14,4 @@ Declara Emergencia Nacional Construcción Carretera San IsidroDominical
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-12-06 | la propia norma |
+| 2 | 1984-12-06 | SINALEVI (sin norma nombrada) |
