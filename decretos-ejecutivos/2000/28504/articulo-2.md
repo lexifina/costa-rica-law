@@ -1,0 +1,2 @@
+Artículo 2°—Todos aquellos funcionarios que ostenten grados de Coronel de Policía, Teniente de Policía, Subteniente de Policía, Sargento de Policía, Cabo de Policía y Distinguido de Policía, debidamente otorgados por Acuerdo Ejecutivo, serán acreedores a los grados de Comisario, Comisionado, Comandante, Capitán de Policía, Intendente, Subintendente, Sargento de Policía, Inspector y Agente, respectivamente.
+No obstante, para efectos estrictamente personales, no oficiales podrán mantener sus anteriores grados.
