@@ -1,0 +1,3 @@
+Artículo 7°.- Duración del Fondo
+El Fondo de Beneficio Social tendrá duración indefinida. Sin embargo, en caso de disolución o liquidación por insolvencia o quiebra, sus afiliados tendrán prelación sobre cualquier otro acreedor o deuda contraída por la organización. En el proceso de disolución o liquidación, los trabajadores poseerán el rango de acreedores privilegiados de primer grado.
+En la disolución o liquidación, se seguirán las regulaciones establecidas por el Código de Comercio y el Código Procesal Civil; pero siempre se dará prioridad a los trabajadores afiliados, como acreedores privilegiados de primer grado.
