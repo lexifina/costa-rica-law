@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase a las municipalidades para que consignen en sus presupuestos anuales subvenciones para estudiantes con discapacidad, matriculados en III y IV Ciclos de la educación regular, que requieran ayudas técnicas.

@@ -1,0 +1,1 @@
+Artículo 12.—Los recursos para atender las solicitudes aprobadas por la comisión técnica especializada, de conformidad con el artículo 1 de esta Ley, serán entregados por las juntas administrativas de las instituciones educativas, las cuales deberán utilizarlos exclusivamente para los fines autorizados y cumplir lo estipulado al respecto en el Reglamento de esta Ley.

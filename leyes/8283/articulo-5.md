@@ -1,0 +1,1 @@
+Artículo 5º—Los servicios de III y IV Ciclos de educación especial, tanto en las instituciones de educación secundaria como en los centros de educación especial cuando se requieran, contarán con recursos propios, además de los institucionales y de los asignados por las municipalidades, personas u organizaciones públicas y privadas.

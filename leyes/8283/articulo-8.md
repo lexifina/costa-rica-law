@@ -1,0 +1,1 @@
+Artículo 8º—Autorízase al Instituto Nacional de Aprendizaje (INA) para que destine recursos económicos, humanos, de equipo y materiales a favorecer la formación técnica de las personas con discapacidad.
