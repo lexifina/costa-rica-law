@@ -1,0 +1,1 @@
+Artículo 10.—A fin de preveer cualquier modificación en las condiciones emergentes, la Torre de Control y el Cuerpo de Bomberos mantendrán comunicación directa permanente, durante la atención de la situación.

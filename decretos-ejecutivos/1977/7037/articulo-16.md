@@ -1,0 +1,1 @@
+Artículo 16.—En el evento de que durante la atención de la emergencia se presentaren operaciones de aterrizaje en la pista del aeropuerto, la Torre de Control dará inmediato aviso al Superior del Cuerpo de Bomberos, a fin de que este órgano establezca las medidas de seguridad pertinentes.

@@ -1,0 +1,1 @@
+Artículo 2°—El propósito del presente Reglamento, lo es la prestación coordinada y eficiente de auxilio a las víctimas de los accidentes aéreos y la movilización rápida y eficaz del servicio de salvamento y extinción de incendios del Aeropuerto, así como de cualesquiera otros servicios dentro y fuera del mismo que constituyan fase de alerta o emergencia.

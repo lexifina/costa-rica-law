@@ -1,0 +1,1 @@
+Artículo 34.—Cuando una nave en emergencia aterrice y pase frente al lugar cíe espera a que se refiere el artículo anterior, las autobombas de bomberos podrán seguirla, previa autorización de la Torre de Control.

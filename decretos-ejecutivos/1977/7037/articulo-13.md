@@ -1,0 +1,1 @@
+Artículo 13.—El Superior del Cuerpo de Bomberos, una vez notificado de la emergencia, establecerá los servicios de ayuda requeridos y se lo hará saber a la Torre de Control y a la Administración, dependencias que procurarán su inclusión dentro de los servicios ordenados para los procedimientos.

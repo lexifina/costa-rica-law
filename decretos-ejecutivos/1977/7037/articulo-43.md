@@ -1,0 +1,1 @@
+Artículo 43.—En concordancia con las características propias de cada situación la administración se encuentra facultada para tomar las medidas extraordinarias que en el evento se consideren oportunas.

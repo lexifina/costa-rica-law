@@ -1,0 +1,1 @@
+Artículo 41.—La administración establecerá de inmediato en el lugar donde se presuma u ocurra un accidente un puesto de comando encargado de la vigilancia de la aplicación a cabalidad de los procedimientos. El puesto de comando estará a cargo del personal designado por la administración y se encontrará provisto del adecuado equipo de radiocomunicación.

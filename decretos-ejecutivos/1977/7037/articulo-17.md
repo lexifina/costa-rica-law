@@ -1,0 +1,1 @@
+Artículo 17.—Dependiendo del lugar del Aeropuerto en que se presentare la emergencia y de sus características, queda a discrecionalidad de la Torre de Control, el suspender el tráfico aéreo durante las operaciones del salvamento, para lo cual deberán darse instrucciones a las aeronaves en el circuito de realizar sus operaciones en los Aeropuertos alternos debidamente habilitados.

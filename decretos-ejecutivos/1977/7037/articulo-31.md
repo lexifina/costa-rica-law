@@ -1,0 +1,1 @@
+Artículo 31.—Una vez recibida la llamada de la Torre de Control, el Jefe de Servicios de Bomberos de turno asumirá la responsabilidad de todas las fases subsiguientes convirtiéndose en la máxima autoridad a cargo de las maniobras.

@@ -1,0 +1,4 @@
+Artículo 23.—El Superior del Cuerpo de Bomberos dispondrá, según su exclusivo criterio y considerando la distancia y acceso al lugar donde acaeciera el accidente, las unidades que atenderán la emergencia. A tal efecto, considerará también :
+a) La inconveniencia de exponer al Aeropuerto a escasa protección con motivo de la ausencia del equipo regular de extinción, a menos que el aeropuerto pueda ser clausurado a todo tráfico aéreo, mientras exista la situación emergente;
+b) Que normalmente sólo un vehículo de extinción debe atender esta clase de emergencias por lo que se destinará la unidad más maniobrable, rápida y mejor equipada para la atención de la situación que se presente; y
+c) Que el peligro de fuegos es en algunos casos, un resultado demorado por el impacto y que sólo personal calificado y convenientemente equipado es capaz de combatir con éxito el mismo y rescatar a los ocupantes de la aeronave.

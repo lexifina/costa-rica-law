@@ -1,0 +1,1 @@
+Artículo 22.—La Torre de Control notificará de inmediato, por medio del equipo de radiocomunicación o por vía telefónica, al Superior del Cuerpo de Bomberos, el lugar donde ocurrió el accidente, según lo haya determinado en el Plano de Localización.

@@ -1,0 +1,1 @@
+Artículo 42.—A responsabilidad del puesto de comando de la Administración queda el resguardo de los restos o huellas que hayan quedado después de socabada la emergencia y que sean útiles a los respectivos organismos de investigación.

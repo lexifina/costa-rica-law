@@ -1,0 +1,2 @@
+Artículo 18.—En cualquier situación emergente que se presentare dentro de las áreas del Aeropuerto, las autoridades civiles y la Fuerza Pública, destacados en el mismo, deberán impedir que los particulares con su presencia dificulten el movimiento y las labores que realicen los servicios de extinción y rescate.
+En consecuencia, únicamente podrán ingresar a la zona de movilización aquellas personas debidamente acreditadas y que cumplen una función específica en las operaciones de emergencia.

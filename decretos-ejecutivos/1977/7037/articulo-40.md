@@ -1,0 +1,1 @@
+Artículo 40.—En caso de accidente la Administración se constituirá en Centro Coordinador de las operaciones de emergencia, con la debida asistencia de los Funcionarios Técnicos de la Dirección General de Aviación Civil, compañía afectada, y todos aquellos que a juicio del Centro de Coordinación pudieran prestar efectiva cooperación.

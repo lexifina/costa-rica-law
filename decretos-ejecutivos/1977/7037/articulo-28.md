@@ -1,0 +1,1 @@
+Artículo 28.—En el momento en que el Piloto al mando de la aeronave proporcionare a la Torre de Control, cualquier información referente a la normalización y otros aspectos de la maniobra, este órgano deberá transmitirla de inmediato al Superior del Cuerpo de Bomberos.

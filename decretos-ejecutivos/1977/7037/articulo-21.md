@@ -1,0 +1,1 @@
+Artículo 21.—La Administración deberá designar un oficial calificado quien será el coordinador de las maniobras de rescate, dirigiendo las ambulancias y demás vehículos de extinción y salvamento al lugar del percance, así como tomando cualesquiera otras medidas pertinentes en el ejercicio de su función específica.

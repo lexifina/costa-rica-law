@@ -1,0 +1,1 @@
+Artículo 38.—La Cruz Roja efectuará la coordinación necesaria para que en caso de accidente en el Aeropuerto, las empresas que poseen ambulancias y los centros asistenciales presten inmediata colaboración

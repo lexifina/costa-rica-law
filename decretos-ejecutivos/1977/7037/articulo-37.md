@@ -1,0 +1,1 @@
+Artículo 37.—En sus desplazamientos por la Zona de Operación, en los casos de Alertas 2, 3 y 4, el conductor de la ambulancia, deberá acatar las instrucciones de la Torre de Control, emanadas de esta última por radio o por medio de destellos luminosos.

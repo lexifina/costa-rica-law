@@ -1,0 +1,1 @@
+Artículo 24.—Las autoridades civiles y de tránsito destacadas en el lugar clausurarán todas las vías de acceso al lugar del accidente a fin de permitir el libre tránsito de los vehículos de extinción y rescate.

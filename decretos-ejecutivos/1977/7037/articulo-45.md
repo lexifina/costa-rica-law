@@ -1,0 +1,2 @@
+Artículo 45.—En el caso de que la aeronave accidentada obstaculice el tránsito y pueda dar lugar a situaciones de peligro, la Administración podrá disponer la remoción de la misma, utilizando los medios disponibles y tratando de causar los menores daños secundarios posibles.
+Sin embargo, no podrá ordenarse la remoción de la aeronave hasta tanto no se tomen las medidas necesarias para preservar las evidencias para la investigación del accidente.

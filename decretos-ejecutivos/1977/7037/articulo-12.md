@@ -1,0 +1,1 @@
+Artículo 12.—En el lugar del accidente, el Jefe del Cuerpo de Bomberos constituyese en la autoridad al mando de las operaciones. Fuera del lugar del mismo y dentro del Aeropuerto, la autoridad a cargo de los procedimientos será el Administrador del Aeropuerto o su representante.

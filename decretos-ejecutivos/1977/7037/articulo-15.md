@@ -1,0 +1,1 @@
+Artículo 15.—El Superior de Bomberos indicará cuando el equipo deba ponerse en movimiento tras la aeronave en emergencia, aún cuando no se haya declarado fuego en ella y el aterrizaje haya sido aparentemente realizado sin que se concretare la emergencia prevista. La aeronave será escoltada hasta la zona de estacionamiento hasta que el Superior de bomberos cancele la emergencia.
