@@ -1,0 +1,1 @@
+Art 4°.- La obligación que impone al Consejo el artículo 15 de la ley organica tendrá su efecto en todo el mes de diciembre, y entonces también lo tendrá las disposiciones de la fracción 10° art 16 y del art° 21 de dicha ley.

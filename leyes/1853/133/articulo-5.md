@@ -1,0 +1,1 @@
+Art 5.- Los programas que se dieren, y los autores que se destinasen para texto en la enseñanza, serán designados por el Ministro de Instrucción pública, más para el estudio de ciencia eclesiáticas, canónicas y teologícas, el programa y autores serán designados por el Diocesano de San José, con arreglo al Concordato y disposiciones pontificias ulteriores.
