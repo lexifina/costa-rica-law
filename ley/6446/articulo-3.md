@@ -1,0 +1,1 @@
+Artículo 3°—Prohíbese al Banco Central y a las instituciones crediticias del Sistema Bancario Nacional, suministrar cualquier tipo de información financiera , tecnológica o industrial, que pueda ser utilizada, directa o indirectamente, en eventuales prácticas de competencia desleal en perjuicio de las industrias costarricenses.

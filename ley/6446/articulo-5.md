@@ -1,0 +1,1 @@
+Artículo 5°—No se entenderán incluidos como "activos públicos", susceptibles de responder de algún modo por las obligaciones contraídas, los bienes expresamente indicados en el párrafo final del inciso 14) del artículo 121 Constitución Política.
