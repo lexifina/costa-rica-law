@@ -1,0 +1,1 @@
+Artículo 31.-Se autoriza a la Junta Administrativa del Registro Nacional a contratar, por el resto del año de 1986, el Servicio de Guías para el Usuario, por medio de un concurso de antecedentes o licitación pública.

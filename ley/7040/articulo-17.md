@@ -1,0 +1,1 @@
+Artículo 17.-Se autoriza el traslado a la cuenta Depósitos Diversos 09-001 de los saldos de las siguientes partidas: 09-003,09-006,09-012, 09-014, 09-015, 09-016, 09-018, 09-019, 09-021, 09-022, 09-023, 09-032, 09-034, 09-043, y 09-046.

@@ -1,0 +1,1 @@
+Artículo 56.-La partida asignada a Construccop, para la construcción del Monumento al Trabajador, título 15, programa 715, transferencias varias códigos 475 30, por un monto de ¢ 1.130.000, deberá ser girada en su totalidad y no por mensualidades, para la ejecución de la obra.

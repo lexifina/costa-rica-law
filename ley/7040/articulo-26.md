@@ -1,0 +1,3 @@
+Artículo 26.-Modifícase el párrafo segundo del artículo 20 de la ley número 7013 del 18 de noviembre de 1985, a fin de que diga de la siguiente manera:
+"El primero de estos estudios deberá realizarse en un plazo máximo de nueve meses, contados a partir de la publicación de esta ley.
+El Ministerio de Hacienda, con la asesoría necesaria, deberá realizar, en un plazo de diez meses, un estudio actuarial de los regímenes de pensiones con cargo al Presupuesto de a República. El resultado de estudio deberá ser conocido por la Asamblea Legislativa y las recomendaciones deberán ser incorporadas a un proyecto de ley."

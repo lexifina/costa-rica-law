@@ -1,0 +1,1 @@
+Artículo 55.-La partida asignada al Liceo de Alajuelita, título 13, programa 517, códigos: 250 20, para concluir la construcción del gimnasio y para áreas deportivas, por un monto de ¢ 2.000.000, deberá ser girada en su totalidad y no por mensualidades, para la ejecución de la obra.

@@ -1,0 +1,1 @@
+Artículo 46.-El Ministerio de Hacienda deberá incluir en el próximo presupuesto extraordinario el contenido correspondiente para incluirles el pago de ¢ 1.000 (mil colones) por mes, por concepto de Riesgo Policial, a los empleados de la Guardia Civil y de la Guardia de Asistencia Rural. Rige a partir del 1º de mayo de 1986.

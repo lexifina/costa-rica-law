@@ -1,0 +1,3 @@
+Artículo 59.-Se autoriza a la Dirección Ejecutiva de la Asamblea Legislativa para girar los recursos que se incluyeron en el presupuesto para 1986, con el propósito de que a las clases de Director Ejecutivo, de Jefe Profesional y de Subjefe Profesional se les aplique a ley número 5867 y sus reformas.
+Se incrementa el salario de todos los funcionarios del Poder Legislativo en dos mil colones, por concepto da alza en el costo de la vida. Se autoriza a la Dirección Ejecutiva para que tome las mediadas correspondientes, que permitan materializar esta disposición.
+La Oficina Técnica Mecanizada dará curso a las planillas sin más trámites que la notificación, a fin de hacer efectivo el pago.

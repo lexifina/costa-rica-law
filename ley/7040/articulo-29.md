@@ -1,0 +1,2 @@
+Artículo 29.-Modifícase el texto consignado en la subpartida 142 Transporte de o al exterior del programa 081, Servicio Exterior, artículo 4º de la ley número 7018 del 20 de diciembre de 1985, para que diga de la siguiente forma:
+"Pago de transporte de funcionarios y menaje del exterior. No se autoriza egreso alguno por esta subpartida hasta tanto al funcionario sustituido no se le haya tramitado la cancelación de los gastos en que haya incurrido por este concepto. La Contraloría General de la República fiscalizará el fiel cumplimiento de esta disposición."
