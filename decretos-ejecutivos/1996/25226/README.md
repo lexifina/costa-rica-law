@@ -14,3 +14,4 @@ Reglamento de las Empresas y Actividades Turísticas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-26 | la propia norma |
+| 2 | 1998-03-02 | Decreto Ejecutivo 26843 (1998-03-02) |
