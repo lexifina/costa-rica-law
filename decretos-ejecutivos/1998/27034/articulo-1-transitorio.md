@@ -1,0 +1,1 @@
+Transitorio único.—Se concede un plazo de dos años, que rigen a partir de la publicación del presente Decreto, para que toda persona, sea física o jurídica, a que se refiere el numeral 2 obtenga el permiso de operación, previsto en el ordinal 1° de este mismo cuerpo legal.
