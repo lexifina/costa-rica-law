@@ -1,0 +1,2 @@
+Transitorio II.-Para hacer efectivo lo dispuesto en el artículo 1° de esta ley, el Consejo de Gobierno procederá a designar, en la primera sesión que celebre despúes de su promulgación, a los Ministros que representarán al Poder Ejecutivo en las diferentes Juntas Directivas de las Instituciones Autónomas, en las cuales actualmente tiene representación el Poder Ejecutivo, así como a designar a los funcionarios que habrán de sustituirlos en sus ausencias.
+Casa Presidencial.-San José, a los veinte días del mes de noviembre de mil novecientos sesenta y dos.
