@@ -1,0 +1,1 @@
+Art. 3. El Ministro de Gobernación queda encargado del cumplimiento del presente decreto. Dado en la hacienda de Frankiort en las Pavas á los treinta dias del mes de enero de mil ochocientos cincuenta y dos. -Juan Rafael Mora. -Al Ministro de Relaciones y Gobernación Sr. D° Joaquin Bernardo Calvo."
