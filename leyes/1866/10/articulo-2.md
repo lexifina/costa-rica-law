@@ -1,0 +1,1 @@
+Art 2°. – El Oficial Mayor de la Secretaría de la Cámara de Representantes que en los recesos del Congreso, asume el cargo de Contador 2° de Rezagos, será el único encargado de la visacion de los muy pocos que existen.
