@@ -1,0 +1,1 @@
+Artículo 12.—El beneficiario de la Caja Chica debe ser funcionario municipal, estar nombrado en la planilla municipal. Se girará caja chica a favor de los miembros del Concejo Municipal, servidores en calidad de interinos o personal nombrado por contrato, cuando exista acuerdo municipal.

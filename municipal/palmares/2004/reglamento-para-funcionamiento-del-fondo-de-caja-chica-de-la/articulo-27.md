@@ -1,0 +1,1 @@
+Artículo 27.—Periódicamente se realizará por parte de la Auditoría Interna o la persona que designe el Alcalde Municipal, arqueos en forma sorpresiva al fondo fijo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes y de las sanas prácticas de administración.

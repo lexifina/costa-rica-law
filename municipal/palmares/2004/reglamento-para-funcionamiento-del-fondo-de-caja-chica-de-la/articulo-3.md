@@ -1,0 +1,1 @@
+Artículo 3º—Se establece un fondo de caja chica cuyo monto inicial será de ¢50.000,00 (cincuenta mil colones) el cual podrá ser modificado, por el Concejo mediante acuerdo municipal, según las necesidades futuras de la Municipalidad, previo estudio elaborado por la Tesorería y avalado por el Alcalde.
