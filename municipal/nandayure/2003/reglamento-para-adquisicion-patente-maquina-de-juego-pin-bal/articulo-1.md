@@ -4,7 +4,7 @@
 4º—Respetar el Reglamento de Juegos.
 5º—Copia de documentación concerniente a ACAM, en cuanto a cancelación de los derechos de esta organización.
 6º—Copia de documentación concerniente al Teatro Nacional, en cuanto a cancelación de los derechos de esta organización.
-7º—Póliza del INS.
+7º—Derogado mediante aviso publicado en la Gaceta N° 231 del 25 de noviembre del 2004.
 8º—Exoneración del Ministerio de Salud, cuando el local cuente con el permiso.
 9º—Certificación de la CCSS de estar al día.
 10.—Fotocopia de los contratos de ubicación (el patentado debe estar al día con sus tributos municipales).

@@ -14,3 +14,4 @@ Reglamento para Adquisición Patente Máquina de Juego Pin Ball, Sacapeluches y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-19 | la propia norma |
+| 2 | 2004-11-04 | Reglamento municipal 0 (2004-11-04) |
