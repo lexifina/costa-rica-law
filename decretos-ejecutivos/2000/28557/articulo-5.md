@@ -1,0 +1,1 @@
+Art¡culo 5°-El Ministro de Educación Pública podr autorizar el uso del uniforme institucional en aquellos centros educativos que imparten el Tercer Ciclo de la Educación General Básica y la Educación Diversificada, que cumplan con los requisitos y el procedimiento que se indicar a continuación.

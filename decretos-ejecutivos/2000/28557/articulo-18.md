@@ -1,0 +1,1 @@
+Artículo 18.-Los uniformes institucionales que hubiesen sido autorizados por el Ministerio de Educación, conservarán plena validez y se le respetarán a los centros educativos correspondientes. No obstante, dentro del término de tres meses deberán ser reportados dichos uniformes a la Dirección Regional correspondiente con el propósito de llevar el registro de los mismos.

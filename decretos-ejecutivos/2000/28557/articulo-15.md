@@ -1,0 +1,1 @@
+Artículo 15.-En el caso de los colegios de Educación Técnica se permitir el uso de otra indumentaria propia para las labores de campo (agricultura, taller o laboratorio (Educación Familiar y Social, Industrial, Artesanal).

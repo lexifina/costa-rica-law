@@ -1,0 +1,1 @@
+Artículo 9°-Las futuras variaciones que se quisieran implementar al uniforme oficial o a los uniformes institucionales, deberán realizarse según los requisitos y procedimientos establecidos en el presente Reglamento.

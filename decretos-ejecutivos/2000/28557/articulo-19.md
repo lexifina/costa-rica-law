@@ -1,0 +1,1 @@
+Artículo 19.-El presente Decreto rige a partir de su publicación. Dado en la Presidencia de la República.-San José, a los quince días del mes de febrero del dos mil. MIGUEL µNGEL RODRÍGUEZ ECHEVERRÍA.-El Ministro de Educación Pública, Guillermo Vargas Salazar.-1 vez.-(Solicitud N° 19305).-C- 29250.-(21579).

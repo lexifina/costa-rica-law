@@ -1,0 +1,1 @@
+Artículo 10.-El uniforme oficial o el institucional debidamente autorizado, ser obligatorio para todos los alumnos que ingresen por primera vez a sétimo año, a los establecimientos públicos de la Educación Académica, Artística y Técnica, de todo el país.

@@ -1,0 +1,1 @@
+Artículo 17.-Tanto los directores de los liceos o colegios, como el personal administrativo de los mismos, que incumplan con el fiel acatamiento de la presente reglamentación, se har n acreedores a las sanciones disciplinarias que señala el Estatuto del Servicio Civil y la Ley General de Administración Pública.

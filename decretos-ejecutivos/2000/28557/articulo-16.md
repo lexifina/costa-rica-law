@@ -1,0 +1,1 @@
+Artículo 16.-El estudiante que no cumpla con las disposiciones relativas al uso del uniforme sea ‚ste el oficial o el institucional, se le impondrá la acción correctiva que corresponda y, se aplicar el rebajo de puntos en la nota de conducta, de acuerdo con lo establecido en el Reglamento de Evaluación de los Aprendizajes.
