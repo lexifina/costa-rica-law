@@ -1,5 +1,7 @@
-Artículo 3º.- La recaudación del Timbre Forense así tasado, se hará
-según las disposiciones del Código Fiscal para los derechos de registro,
-que en lo pertinente se hacen extensivas al impuesto de que se trata. Por
-ningún motivo se hará devolución de lo pagado por concepto de este
-impuesto.
+Artículo 3º.-El Registro Público cancelará el Timbre Forense
+agregado a todo documento sujeto a inscripción, o certificación que
+expida. Se considerará como defecto que impide la inscripción del
+documento o la expedición de la certificación, el no haberse agregado el
+timbre correspondiente de acuerdo con esta ley.
+(Así reformado por el artículo 1º de la Ley Nº 2545 de 17 de febrero de
+1960).

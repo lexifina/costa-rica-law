@@ -1,4 +1,2 @@
-Artículo 9º.- No se exigirá el Timbre Forense en el asunto principal
-cuando haya sido satisfecho en sus diligencias prejudiciales debidamente
-estimadas; pero si la cuantía de aquél fuere mayor que la de éstas, el
-impuesto se cubrirá en relación con la diferencia resultante.
+Artículo 9º.- DEROGADO
+(Derogado por el artículo 11 de la Ley Nº 3245 de 3 de diciembre de 1963)
