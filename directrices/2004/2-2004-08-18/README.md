@@ -13,3 +13,4 @@ Emisión de certificaciones por parte de los notarios públicos con el afán de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-18 | la propia norma |
+| 2 | 2004-10-27 | Directriz 3 (2004-10-27) |
