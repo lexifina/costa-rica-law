@@ -86,7 +86,7 @@ IMPLEMENTACIÓN DE LA POLÍTICA EDUCATIVA
 CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
 Sub Programa / Proyecto: 02
 III CICLO Y EDUC. DIV. ACADEM.
-Registro Contable: 113-573-03
+Registro Contable: 113-573-02
 G-O FF C-E CF I-P Concepto Monto en ¢
 0 SERVICIOS PERSONALES 70,518,335
 000 01 111 20 SUELDOS PARA CARGOS FIJOS 65,093,848
@@ -145,3 +145,4 @@ Sub Programa / Proyecto: 573-02 80,930,366
 Total Aumento del Programa: 573-00 80,930,366
 Total Aumento del Título: 113 80,930,366
 Total Aumentar 80,930,366
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 29992 de 19 deNoviembre del2001)
