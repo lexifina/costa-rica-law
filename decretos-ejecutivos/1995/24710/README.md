@@ -14,3 +14,4 @@ Reforma a los Reglamentos Autónomos de Servicio de MIDEPLAN, de la Dirección E
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-06 | la propia norma |
+| 2 | 1996-08-01 | Decreto Ejecutivo 25752 (1996-08-01) |
