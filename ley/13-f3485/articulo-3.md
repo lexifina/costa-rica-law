@@ -1,0 +1,1 @@
+Artículo 3°—El Poder Ejecutivo encargará y distribuirá en las Aduanas las emisiones de timbres consulares de diversos valores y llevara cuenta y control de las mismas en igual forma a la que emplea para las demás especies fiscales que se usan en la República.
