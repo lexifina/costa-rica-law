@@ -1,1 +1,2 @@
-Artículo 7°—Los miembros del Consejo Directivo .devengarán dietas no mayores de ¢400.00 por sesión. Celebrarán una sesión ordinaria quincenal y las extraordinarias que acuerden, pero no se remunerará en total más de cinco sesiones por mes.
+Artículo 7°—Los miembros del Consejo Directivo devengarán dietas por igual monto que el máximo establecido por la ley, para las instituciones autónomas. Celebrarán cuatro sesiones ordinarias mensuales y las extraordinarias que fueren necesarias. En ningún caso se remunerarán más sesiones, ordinarias o extraordinarias, de lo que permite la ley para las instituciones mencionadas.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 12424 del 23 de marzo de 1981).
