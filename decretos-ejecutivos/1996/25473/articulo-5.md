@@ -1,0 +1,2 @@
+Artículo 5°-Autorizar a CNFL para que destine los recursos necesarios para el funcionamiento adecuado de la Unidad Ejecutora. Asimismo, las entidades del Grupo Consultor podrán aportar recursos para el apoyo de las gestiones que realice ésta.
+La Unidad Ejecutora podrá también gestionar y coordinar con entidades extranjeras u otras entidades gubernamentales la obtención de recursos para llevar a un buen término sus objetivos.

@@ -1,0 +1,1 @@
+Artículo 6°-Las instituciones públicas que realicen funciones en la GAM relacionadas con los propósitos y objetivos de la Unidad Ejecutora, coordinarán sus actividades con ésta a fin de lograr un uso óptimo de los recursos disponibles y un resultado coherente e integral.
