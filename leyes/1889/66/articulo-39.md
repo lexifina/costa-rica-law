@@ -1,0 +1,1 @@
+Artículo 39. — La susodicha Junta con el resultado del escrutinio, declarará electores principales á los que hayan obtenido mayor número de votos, y suplentes á los que le siguieren hasta llegar al número que le corresponda á la respectiva provincia ó comarca; y dentro de veinticuatro horas, el Presidente de esa Junta comunicará los nombramientos á los electos.

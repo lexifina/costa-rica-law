@@ -1,0 +1,3 @@
+Artículo 36.-Las Juntas electorales de provincia comarca se reunirán dentro de los cinco días siguientes á aquel en que tuvieron lugar las votaciones, para verificar el escrutinio de los registros electorales que han debido enviarles las Juntas de distrito.
+Estas Juntas no procederán á formar el escrutinio mientras no tengan por lo menos las dos terceras partes de los expresados registros.
+Si el escrutinio no pudiere hacerse en sesión permanente, por tener que emplearse más de cinco horas de trabajo, la Junta se pondrá en receso, haciéndolo constar así, para continuar dicho escrutinio en la sesión del día siguiente en que será terminado.

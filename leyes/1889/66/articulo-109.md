@@ -1,0 +1,1 @@
+Artículo 109.-Ninguna tropa ó partida de fuerza armada puede situarse ni estacionarse en el recinto donde se practican las votaciones, sin acuerdo expreso de la Junta ó Asamblea Electoral. Si esa fuerza llegare á situarse, deberá retirarse á la primera intimación que el Presidente le hiciere.

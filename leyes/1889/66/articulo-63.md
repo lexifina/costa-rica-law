@@ -1,0 +1,1 @@
+Artículo 63.—En seguida se destruirán ó quemarán á presencia de los concurrentes las papeletas extraídas de la urna; pero aquéllas de que habla el artículo 57, y. las que hubieren sido objeto de reclamación por parte de algún elector, se unirán originales al acta, rubricadas al dorso por los Escrutadores para que puedan servir de comprobante ulterior.

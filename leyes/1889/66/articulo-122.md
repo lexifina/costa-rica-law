@@ -1,0 +1,1 @@
+Artículo 122.—El que se presentare armado en el lugar de las votaciones, incurrirá en la pena de diez días de arresto, será inmediatamente desarmado y perderá el arma que portare, la cual se adjudicará a la Municipalidad. —Si las personas que concurrieren armadas, constituyeren una asonada ó motín, sufrirán reclusión en su grado medio á máximo.

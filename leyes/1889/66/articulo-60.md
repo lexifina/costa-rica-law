@@ -1,0 +1,1 @@
+Artículo 60.—Cuando debiendo votarse por dos ó más candidatos, alguna papeleta repitiese el nombre de una misma persona, se prevendrá al elector firmante de la papeleta repita su voto en debida forma. Si aun así se renovase la falta, se tendrá por nulo el voto en cuanto repita el mismo nombre.

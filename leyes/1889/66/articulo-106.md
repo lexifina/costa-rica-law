@@ -1,0 +1,1 @@
+Artículo 106.— Los Presidentes de las Juntas Electorales tienen la facultad de imponer multas hasta por diez pesos, y arresto hasta por tres días, á los que irrespeten dichos Presidentes y Corporaciones, ó desobedezcan las órdenes y providencias que dictaren en el ejercicio de sus atribuciones legales.

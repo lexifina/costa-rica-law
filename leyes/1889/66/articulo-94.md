@@ -1,0 +1,1 @@
+Artículo 94.—El Presidente de la Electoral notificará á los Regidores electos su nombramiento, para que á las diez de la mañana del día 1° de enero presten ante el Gobernador de la provincia el juramento prevenido por la Constitución.
