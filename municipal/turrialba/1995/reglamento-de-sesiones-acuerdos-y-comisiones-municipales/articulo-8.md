@@ -1,0 +1,1 @@
+Artículo 8°—El quorum para las sesiones, será de cinco regidores. Ese número de Regidores deberá encontrarse presentes en el Salón de Sesiones, ocupando sus respectivas cumies al inicio de las sesiones, durante las deliberaciones y al efectuarse las votaciones.

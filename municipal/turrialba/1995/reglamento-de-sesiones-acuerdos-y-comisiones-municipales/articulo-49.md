@@ -1,0 +1,1 @@
+Artículo 49.—Si se presentaren memoriales que dirijan los particulares al Concejo, la Presidencia Municipal las examinará y si resulta, que lo solicitado es de competencia del Ejecutivo, lo enviará a dicho funcionario para que le dé trámite que le corresponda. De lo anterior se informará a los firmantes.

@@ -1,0 +1,1 @@
+Artículo 22.—Cuando concurrieren al Concejo miembros de los Supremos Poderes, invitados especiales, representantes de organismos oficiales o extranjeros, representantes de instituciones autónomas o semiautónomas, se les recibirá en el Salón de Sesiones a la hora fijada. El Presidente Municipal dará a nombre del Concejo la bienvenida a los visitantes.

@@ -1,0 +1,1 @@
+Artículo 47.—La Secretaría remitirá al Presidente Municipal, en orden de presentación, las solicitudes de particulares, el Presidente dará trámite a la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que considere pertinente.

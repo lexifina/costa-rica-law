@@ -1,0 +1,1 @@
+Artículo 38.—Toda comisión estará integrada por un mínimo de cinco miembros, tres de estos, deberán escogerse necesariamente de entre los miembros del Concejo Municipal. Podrán integrar estas comisiones funcionarios y empleados de las Municipalidad y personas ajenas a ella.
