@@ -1,0 +1,3 @@
+Art. 101. En la enseñanza de la lectura se cuidará que los niños comprendan bien el valor de los caractéres y que articulan con claridad y distincion: se cuidará así mismo de correjir el tono, no dejandolos adquirir ciertos vicios y defectos de pronunciacion y entonacion.
+Por medio de preguntas y de esplicaciones se hará comprender á los niños el significado de las frases y palabras, de manera que se den cuenta de lo que leen y puedan los ejercicios servir para el desarrollo de las ideas.
+Al comenzar el ejercicio, el maestro, para que sirva de leccion y de ejemplo, leerá un párrafo pausadamente, con pronunciacion correcta, y entonacion natural y apropiada al asunto.

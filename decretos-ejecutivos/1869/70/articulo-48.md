@@ -1,0 +1,1 @@
+Art. 48. Los maestros elementales que fueren reprobados, podrán no obstante ser admitidos como ayudantes, si el Tribunal los considera merecedores de servir este cargo. En igualdad de circunstancias podrán quedar como elementales los que fueren reprobados como superiores.

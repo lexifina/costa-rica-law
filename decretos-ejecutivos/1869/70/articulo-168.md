@@ -1,0 +1,1 @@
+Art. 168. Tambien se procurarán sus cr iciones á los periódicos notables, que sobre instruccion se publiquen, los cuales podrán poner á los maestros en aptitud de conocer los adelantos mejoras hechas en la enseñanza.

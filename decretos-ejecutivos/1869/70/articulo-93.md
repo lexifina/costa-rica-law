@@ -1,0 +1,1 @@
+Art. 93. En el espediente que debe formarse para aplicar alguna de las penas especificadas en los incisos 3°, 4°, 5° y 6° ya citados, deberá oirse el dictámen de una comision de tres vecinos notables escojídos por la Municipalidad. Esta comision tiene el derecho de pedir á la Municipalidad y al Gobernador, cuantos datos cr ea necesarios al esclarecimientos de los hechos,

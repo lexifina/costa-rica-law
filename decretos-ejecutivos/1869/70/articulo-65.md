@@ -1,0 +1,1 @@
+Art. 65. Los aspirantes á las escuelas que hayan de proveerse por oposicion, acompañarán á su solicitud el título profesional si lo tienen, el certificado de buena conducta y los demás documentos que justifiquen sus méritos y servicios.

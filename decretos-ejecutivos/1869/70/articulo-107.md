@@ -1,0 +1,1 @@
+Art. 107. Todas las enseñanzas de las escuela de párvulos, se darán por medio de repetidos ejemplos, preguntas y ejercicios de viva voz del maestro, sin que esceda ninguno de estos de quince ó veinte minutos, alternando con los cantos, ejercicios corporales y ocupaciones manuales.

@@ -1,0 +1,1 @@
+Art. 156. En todo el mes de Noviembre las Municipalidades acordarán el dia y la manera como deban celebrarse los exámenes, oyendo previamente á los maestros; y acordarán entre sí los temas es cr itos para el concurso y para el exámen.

@@ -1,0 +1,1 @@
+Art. 12. La sala de clase deberá ser de forma rectangular y de la capacidad proporcionada al número de alumnos que debe contener; con buena luz y ventilacion y deberá disponerse de tal modo que los niños no puedan distraerse con lo que pasa en el exterior.

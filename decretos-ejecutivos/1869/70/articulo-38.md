@@ -1,0 +1,1 @@
+Art. 38. Si el exámen fuere para maestros de párvulos , formará parte del Tribunal el maestro de esta escuela, en vez del regente de la práctica; y si es para maestra, la Directora, si la hubiere; y si no la hubiere, se subsanará la falta con dos maestros públicos de reconocido mérito nombrados por la Municipalidad.

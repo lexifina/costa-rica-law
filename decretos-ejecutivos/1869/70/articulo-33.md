@@ -1,0 +1,1 @@
+Art. 33. Los estudios para la carrera del Majisterio, abrazarán, por ahora, los ramos siguientes: Relijion y Moral, Lectura y Es cr itura: Aritmética: Algebra: Nociones de Geometría: Gramática castellana: Geografía; Historia: Pedagojía; y Dibujo natural, lineal y de adorno.

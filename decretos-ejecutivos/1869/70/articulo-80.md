@@ -1,0 +1,1 @@
+Art. 80. Para odtener el cargo de Inspector Provincial, se requiere: 1° Ser mayor de veintiun años: 2° instruccion conocida en los ramos, de instrucción pública; y 3° conducta y antecedentes recomendables. Cuando se presenten individuos que hubieren obtenido títulos honoríficos de maestros, deberán ser preferidos.

@@ -1,0 +1,1 @@
+Art. 59. Cuando ocurrieren dos ó mas oposiciones para una misma escuela, se procederá al exámen de todos los opositores, de uno en uno y bajo las reglas establecidas en el artículo 56, siendo preferido el que obtenga mejor calificacion; y en caso de igualdad, el que la Municipalidad designe.

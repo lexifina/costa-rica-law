@@ -1,0 +1,1 @@
+Art. 157. El resultado de los concursos y de los exámenes se anotará en el acta de la Municipalidad, y se mandará un certificado de ella á la Secretaría de Instruccion Pública para su publicacion en la Gaceta, y para que se anote en el espediente de cada Maestro.

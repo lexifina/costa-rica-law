@@ -1,0 +1,1 @@
+Art. 69. El sueldo fijo de los maestros y maestras elementales será el que determinen las Municipalidades; pero no deberá ser menor de trescientos pesos anuales- Los maestros y maestras de las escuelas superiores, gozarán de una tercera parte mas del sueldo señalado á los de las elementales.

@@ -1,0 +1,2 @@
+Art. 25. La edad requerida para ser admitido á la escuela de párbulos, cuando esta se establezca, será la de dos á seis años; en las de primera enseñanza, la de seis á trece, y las de adultos, de quince años, para adelante.
+En los pueblos en donde no haya escuelas de párbulos, podrán admitirse en las de primera enseñanza, niños desde cuatro años de edad, quedando en todo caso, á juicio de la Municipalidad, conceder dispensa de edad por exceso o defecto, previo motivo fundado.

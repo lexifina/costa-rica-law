@@ -1,0 +1,1 @@
+Art. 169. Cuando los adelantos y las circunstancias lo permitan, se publicará un periódico á cargo principalmente del maestro de la superior, y contribuyéndo los otros maestros y demas personas interesadas en la instruccion, como colaboradores. Se insertarán en este periódico para mejor conocimiento de los maestros, las disposiciones oficiales sobre la materia de enseñanza.

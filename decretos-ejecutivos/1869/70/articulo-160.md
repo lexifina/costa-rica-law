@@ -1,0 +1,1 @@
+Art. 160. Estás asociaciones se darán sus respectivos reglamentos que, luego que sean aprobados por la Municipalidad, servirán para determinar sus trabajos cooperando con la Corporacion en favor de la instruccion primaria y popular.

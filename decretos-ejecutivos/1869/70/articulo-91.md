@@ -1,0 +1,1 @@
+Árt. 91. Siempre que hubiere quejas contra un maestro por faltas cometidas y que estas fueren comprobadas, prévia audiencia del, acusado, la Municipalidad le impondrá la pena con arreglo á la gravedad de la falta; y si esta fuere de naturaleza sumamente grave y merezca la separación del Majisterio, dará cuenta al Poder Ejecutivo con el expediente formado.

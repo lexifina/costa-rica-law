@@ -1,0 +1,1 @@
+Art. 97. En todo caso de imposicion de las penas de suspension del sueldo, en todo ó en parte, suspension del Majisterio, ó traslacion á otra escuela, se dará inmediatamente cuenta al Poder Ejecutivo;

@@ -1,0 +1,1 @@
+Art. 55. Siempre que ocurriera vacante en alguna escuela, la Municipalidad lo avisará á la Secretaría de Instruccion Pública, indicando al mismo tiempo la persona que de ella se ha encargado interinamente.

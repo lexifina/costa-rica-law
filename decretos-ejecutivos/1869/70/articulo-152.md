@@ -1,0 +1,1 @@
+Art. 152. Terminado el ejercicio es cr ito, el encargado de vijilar el acto, recojerá los pliegos, anotando el nombre del alumno que haya ejecutado cada uno, y los presentará á la Municipalidad para el efecto de los ejercicios orales en la sesion pública del concurso.

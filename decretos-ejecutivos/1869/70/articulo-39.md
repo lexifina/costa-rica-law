@@ -1,0 +1,1 @@
+Art. 39. El exámen para los maestros de instruccion primaria elemental, se verificará reuniéndose los aspirantes en un salon; en donde habrán los útiles necesarios y el papel en que deberán escribir, el cual ha de estar marcado con el sello de la escuela, y rubricado por el Presidente Municipal.

@@ -1,0 +1,1 @@
+Art. 62. Las Municipalidades pueden tambien proveer de maestros las escuelas vacantes, sin necesidad de oposicion, siempre que el nombramiento recaiga en parona ya examinada y aprobada anteriormente y que hubiere prestado distinguidos servicios en el ramo de enseñanza; pero deberá dar cuenta al Poder Ejecutivo para su aprobacion.

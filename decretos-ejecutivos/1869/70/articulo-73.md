@@ -1,0 +1,1 @@
+Art. 73. En el caso de que no designe el sustituto, lo nombrará la misma Municipalidad y le señalará el sueldo de que deberá gozar, el que no deberá exceder de la mitad del señalado al propietario, reservando para éste la otra mitad.

@@ -1,0 +1,1 @@
+Art. 67. Los poseedores de títulos de que habla el articulo 65 quedan escentos del servicio militar y de toda carga consejil mientras ejerzan sus funciones; y si estas las continúan con honor y con provecho por ocho años no interrumpidos, la esencion será perpétua, y sus títulos honoríficos.

@@ -1,0 +1,1 @@
+Art. 174. Las bibliotecas populares estarán á cargo de los respectivos maestros y de sus ausiliares; y deben tenerlas abiertas por la noche á fin de que puedan concurrir á ellas los trabajadores que durante el dia. están ocupados en sus tareas.

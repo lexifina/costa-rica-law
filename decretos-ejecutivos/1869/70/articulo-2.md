@@ -1,0 +1,1 @@
+Art. 2° Los Gobernadores y Municipios podrán auxiliarse para estos trabajos de las personas que por su competencia ó conocimientos y amor á la enseñanza, sean o no maestros, crean convenientes, al efecto.

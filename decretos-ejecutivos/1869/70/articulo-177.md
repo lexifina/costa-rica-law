@@ -1,0 +1,1 @@
+Art. 177 Los Gobernadores pasarán mensualmente á la Se cr etaría de Instruccion Pública, la nómina de los gastos y sueldos, la cual serà cubierta por medio de cheques contra el Banco Nacional pagaderos á la vista. Pero esta nómina debe ser limitada a la suma de que cada Provincia pueda disponer.

@@ -1,0 +1,1 @@
+Art. 145. Corresponde esclusivamente á las Municipalidades penar á los maestros por los escesos en la imposicion de castigos; á no ser que de tales escesos resulten delitos de que deba conocer otra autoridad competente.

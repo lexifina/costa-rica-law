@@ -1,0 +1,1 @@
+Art. 175. Cuando haya el suficiente número de libros; podrán prestarse estos á las familias, dejando recibo y obligándose á devolverlos en buen estado ó á reponerlos si los perdieren ó inutilizaren. Tambien podrán cambiarse entre sí las bibliotecas de los pueblos y provincias cuando sean distintas las obras y cuando ya estén leidas las de su respectiva biblioteca.

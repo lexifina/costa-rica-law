@@ -1,0 +1,2 @@
+Art. 114. Los niños que tengan la instruccion y edad competente, se prepararán para la primera comunion con arreglo á las instrucciones del párroco, y pasaran á recibirla acompañados del maestro, el cual dará á este acto la mayor solemnidad posible. Los que hayan recibido este sa cr amento, lo volverán á recibir conforme á los preceptos de nuestra relijion.
+Los niños que pertenezcan á una relijion distinta de la católica romana, no están obligados á ninguno de estos actos.

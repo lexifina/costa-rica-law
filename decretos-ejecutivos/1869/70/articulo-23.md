@@ -1,0 +1,1 @@
+Art. 23. En el caso de trasladarse la escuela o colegio de un pueblo á otro de la misma Provincia, se concederá la autorizacion, despues de reconocido el nuevo local, y de saberse que reune las condiciones exigidas.

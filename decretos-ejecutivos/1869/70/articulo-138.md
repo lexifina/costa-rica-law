@@ -1,0 +1,1 @@
+Art. 138. Para estimular la buena conducta y aplicacion de los discípulos y para correjirlos en caso necesario, se apelará á los premios y castigos, empleando unos y otros con mucho discernimiento y dis cr ecion.

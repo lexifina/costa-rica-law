@@ -1,0 +1,1 @@
+Art.. 133. Al entrar y salir de la escuela, y cuantas veces mas se juzgue necesario, se pasará revista de aseo á las niños, cuidándose al mismo tiempo de la limpieza de los libros y demas utiles del establecimiento.

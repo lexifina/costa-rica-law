@@ -1,0 +1,1 @@
+Art. 135. Cuidará tambien el maestro, de que los niños guarden en la escuela la compostura debida, de que se traten entre sí con urbanidad y cortesía, de que saluden atentamente, esperando la respectiva indicacion, á Ias personas que visiten la escuela; y de que adquieran hábitos de respeto á las autoridades y á sus mayores.

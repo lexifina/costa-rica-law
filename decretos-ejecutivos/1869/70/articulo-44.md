@@ -1,0 +1,1 @@
+Art. 44. Si el exámen fuere para maestro de escuela primaria superior, los actos serán los mismos aunque mas detenidos y rigurosos, debiendo versar el exámen sobre las materias propias de esta enseñanza, y ocupar un pliego de papel en el discurso sobre el tema que le toque.

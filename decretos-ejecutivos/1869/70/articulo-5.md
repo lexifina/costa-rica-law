@@ -1,0 +1,1 @@
+Art. 5° Corresponde tambien á las Autoridades provinciales y municipales, la inspeccion de los edificios que se destinen á escuelas privadas; así como los títulos y requisitos de las personas que las dirigen, y todo cuanto tenga relacion con la moralidad y conveniencia de las costumbres y doctrinas.

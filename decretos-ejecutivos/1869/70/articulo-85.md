@@ -1,0 +1,1 @@
+Art. 84. Podrán optar á estos premios, no solo los maestros públicos, sino tambien los, privados que presenten exámenes anuales y se sometan en todo á las disposiciones que rijen para las escuelas públicas.

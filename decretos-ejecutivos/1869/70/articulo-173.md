@@ -1,0 +1,1 @@
+Art. 173. Las asociaciones de Señores podrán tomar una parte activa en estas escuelas y contribuir poderosamente á su desarrollo y perfeccion, jeneralizando al mismo tiempo las escuelas talleres que vendrán á completar tan benéfico pensamiento.

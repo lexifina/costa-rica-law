@@ -1,0 +1,1 @@
+Art. 141. Desde que los niños se hallen en disposicion de es cr ibir, aun cuando solo sea en los ejercicios preparatorios, una vez por lo menos cada mes, ejecutarán trabajo y lo llevarán a sus padres, tutores ó encargados, á fin de que puedan juzgar de sus progresos.

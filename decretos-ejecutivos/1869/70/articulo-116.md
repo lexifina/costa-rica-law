@@ -1,0 +1,1 @@
+Art. 116. Las lecciones no se suspenderán sino en los Domingos y fiestas de guardar: en la Semana Santa los dias Miércoles, Juéves, Viérnes y Sábado santos: en las fiestas nacionales ó populares: y en las vacaciones desde el dia 8 de Diciembre hasta el 7 de Enero.

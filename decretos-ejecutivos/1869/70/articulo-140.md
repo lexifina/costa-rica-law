@@ -1,0 +1,1 @@
+Art. 140. Tambien podrá darse corno premio á los alumnos pobres y que verdaderamente se distingan un vestido decente y sencillo para presentarse en el acto de la comunion ú otros solemnes, ó bien un socorro pecuniario que el mismo niño llevará á sus padres.

@@ -1,0 +1,1 @@
+Art. 105. En las escuelas de niñas las maestras cuidarán con especial esmero de la enseñanza de labores, dando lecciones, jenerales é individuales, recorriendo al efecto las bancas mientras dura el ejercicio. Se aprovechará esta ocupacion para dar otras enseñanzas compatibles con las mismas, por medio de lectura i esplicaciones de viva voz.

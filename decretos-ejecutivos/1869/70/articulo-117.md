@@ -1,0 +1,1 @@
+Art. 117. Para el caso de conceder vacaciones estraordinarms, las Municipalidades lo propondrán al Poder Ejecutivo, espresando los motivos, y una vez concedidas lo harán constar en el reglamento particular é interior de la escuela.

@@ -1,0 +1,1 @@
+Art. 144. Cuando se cometieren escesos en los castigos permitidos, la Municipalidad hará, por conducto del Gobernador, reconvenir privadamente al maestro, amonestándole para que se eviten en lo sucesivo; y si estas advertencias no bastasen, la Municipalidad tomará las medidas legales para remediar el mal.

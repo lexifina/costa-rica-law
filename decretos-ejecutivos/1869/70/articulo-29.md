@@ -1,0 +1,1 @@
+Art. 29. Los maestros y maestras de escuelas privadas, formarán y remitirán á la Municipalidad en los primeros dias del mes de Enero de cada año, una relacion de sus alumnos ó alumnas, con espresion de la edad y otra de niños ó niñas no concurrentes.

@@ -1,0 +1,1 @@
+Art. 94. Los Gobernadores cuidarán de activar el despacho de los espedientes relativos á las faltas de los maestros; y si pasare un mes sin haberse fenecido, darán avisó de ellos la Secretaría de lnstruccion Pública, con espresion de las causas que motivan el retardo.

@@ -1,0 +1,1 @@
+Art, 143 Los castigos violentos, los que tiendan; á ridiculizar y desanimar á los niños, así como aquellos que de cualquier, manera puedan influir á debilitar el sentimiento del honor, quedan absolutamente prohibidos; y si á pesar de esta prohibicion el maestro los aplica, se considerará esto de su parte como una falta grave.

@@ -1,0 +1,1 @@
+Art. 148. En las escuelas particulares se verificará tambien todos los años en el mes citado, el exámen jeneral y público. Se observarán en él las; mismas formalidades pres cr itas en el artículo anterior. De su resultado se dará cuenta en la sesion inmediata de la Municipalidad, y se hará conocer en los mismos términos que el de las escuelas públicas.

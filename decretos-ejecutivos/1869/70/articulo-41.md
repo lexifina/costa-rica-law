@@ -1,0 +1,1 @@
+Art. 41. En estos ejercicios deberán emplearse cuatro horas, distribuidas así: una á la es cr itura, segun está prevenido: otra á la resolucion de los problemas; y las dos restantes al discurso sobre Pedagojía, el cual deberá ocupar medio pliego de papel.

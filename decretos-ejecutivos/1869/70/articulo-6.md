@@ -1,0 +1,2 @@
+(*) Art. 5°: Las Autoridades antes dichas remitirán cada seis meses al Gobernador de la Provincia respectiva, los informes y datos estadísticos de que se habla en el párrafo XIII del artículo 1° con el fin de que este empleado pueda cumplir con lo que le está prevenido.
+(* )(En la publicación de este reglamento se triplica la numeración del artículo 5°, del análisis se deduce que en realidad corresponde al artículo N° 6).

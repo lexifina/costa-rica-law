@@ -1,0 +1,1 @@
+Art. 30. Las Municipalidades comparando las dos relaciones dichas, pasarán las de los no concurrentes al Gobernador é Inspector provincial, para que estos, llamando á sus padres ó encargados les exciten á cumplir con su obligacion. Si estos no cumplieron, no obstante esta excitacíon, en el término de un mes, obrarán aquellos en conformidad con la ley.

@@ -1,0 +1,1 @@
+Art. 85. Servirán de fundamento para obtener los premios: la buena conducta: el celo y la aptitud: los resultados prácticos obtenidos de la educacion y enseñanza que serán estimados en lenguaje, juegos y procederes de los niños, con todos los demas méritos y circunstancias que arrojen las notas de los rejistros en su favor.

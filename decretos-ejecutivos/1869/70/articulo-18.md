@@ -1,0 +1,1 @@
+Art. 18. Se mantendrán en la Municipalidad los inventarios de los muebles y enseres de cada escuela, así como de los objetos y medios materiales de enseñanza. Con oportunidad se suministrarán á los maestros, copias de estos inventarios. Se anotaran las alteraciones que sufra cada uno de los artículos en ellos comprendidos y las adquisiciones que se hagan de otros nuevos.

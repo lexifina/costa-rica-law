@@ -1,0 +1,1 @@
+Art. 45. El exámen para maestro de párvulos abrazará los mismos ejercicios escritos y orales que están prevenidos para los elementales; pero el ejercicio práctico en la escuela, deberá durar dos horas.

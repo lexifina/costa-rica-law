@@ -1,0 +1,1 @@
+Art. 96. Los maestros declarados inocentes, bien por resolucion de la Municipalidad ó por el Poder Ejecutivo, serán repuestos en sus destinos, reintegrados de los haberes que se les deban, y publicada su inociencia en la Gaceta Oficial.

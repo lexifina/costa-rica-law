@@ -1,0 +1,1 @@
+Art. 136. Los alumnos que por su conducta y aprovechamiento, lo merecieren, vigilaran, tanto el orden durante los ejercicios de la escuela, como el porte y maneras de los niños entre sí y con las personas con quienes tuvieren que entenderse.

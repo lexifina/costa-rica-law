@@ -1,0 +1,1 @@
+Art. 120. Las escuelas nocturnas de adultos se abrirán en Abril y se cerrarán en Noviembre de todos los años. En todo este período habrá una clase diaria que durará hora y media, y empezarán las lecciones á la hora mas cómoda para la concurrencia.

@@ -1,0 +1,1 @@
+Art. 49. Concluidos definitivamente los actos se entregará á los aspirantes que fueren aprobados un certificado que a cr edite esta circunstancia, firmado por el Se cr etario del Tribunal y con el "Visto Bueno" del que lo preside.

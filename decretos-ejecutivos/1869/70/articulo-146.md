@@ -1,0 +1,3 @@
+CAPITULO XVIII.
+De los exámenes y concursos en las escuelas.
+Art. 146. Ademas de los exámenes particulares que estén determinados conforme al sistema de enseñanza adoptado, se celebrará otro cada trimestre en todas las escuelas, presidido por un Munícipe ó por un delegado de la Municipalidad. Este exámen versará sobre todas las materias de enseñanza sin alterar el órden de la clase y sin preparacion alguna: deberá verificarse el dia señalado al efecto por ,el maestro, avisándolo con la debida anticipacion á la Municipalidad. Del resultado del exámen se dará cuenta á la Corporacion Municipal, y se hará mencion de éste en el espediente que se forma al maestro.

@@ -1,0 +1,1 @@
+Art. 42. El Tribunal reconocerá y clasificará estos ejercicios: si no fueren aprobados, el aspirante se retirará del acto, pudiéndose presentar á pedirlo, cuatro meses despues. Si no merecieren ser aprobados en esta repeticion, se les fijará el término de ocho meses; y si aun entonces no obtuvieren aprobacion, no podrán presentarse nuevamente.

@@ -1,0 +1,1 @@
+Art. 124. El cuidado de la enseñanza y órden que en ella debe guardarse, será distribuido entre el maestro y los auxiliares los hay; ó entre el maestro y las alumnos que considere aptas para ello., de tal manera que dia á dia pueda tener un conocimiento exacto de la marcha y progreso de la escuela. Cuidará el maestro muy particularmente, de que ningun niño permanezca ocioso.

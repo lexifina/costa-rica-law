@@ -1,0 +1,1 @@
+Art. 34. En las escuelas modelos de la normal, se ejercitarán en el conocimiento de los niños y en la práctica de la enseñanza, asistiendo primero como oyentes, enseñando en seguida como instructores, y concluyendo con desempeñar los cargos de ayudantes y maestros.

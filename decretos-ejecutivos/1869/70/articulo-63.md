@@ -1,0 +1,1 @@
+Art. 63. El Tribunal que debe conocer y decidir sobre las oposiciones para maestros, se compondrá: del Presidente Municipal: del Inspector Provincial; y de un maestro nombrado al efecto por la misma Municipalidad. Será Se cr etario de este Tribunal, el que lo sea de la Municipalidad.

@@ -1,0 +1,1 @@
+Art. 153. La sesion pública general tendrá lugar el dia designado por la Municipalidad, y será presidida por el miembro que esta designe: asistirán los examinadores que la misma nombre, y despues de un exámen de dos horas en unos y otros ejercicios, determinarán cuales son los mas sobresalientes y aprovechados de cada escuela y cada seccion.

@@ -1,0 +1,1 @@
+Art. 10. Las escuelas que se distingan por su organizacion, serán declaradas escuelas modelos y servirán para los ejercicios prácticos de los aspirantes al Majisterio de uno y otro sexo que hagan privadamente sus estudios. Esta declaratoria se hará por el Poder Ejecutivo á propuesta razonada del Inspector del ramo.

@@ -1,0 +1,2 @@
+Art. 104. En las horas de re cr eo, y como por entretenimiento, deberán prácticarse algunos ejercicios sencillos de jimnasia, que al propio tiempo que entretienen á los niños, sirven para desarrollar su organizacion. Así mismo y en las horas de re cr eo, se practicarán tambien ejercicios de agricultura combinados con oportunas esplicaciones, para fomentar en los niños la aficion á este estudio tan conveniente á los intereses de la Repdública.
+El canto podrá alternar, no solo en los ejercicios de la escuela, sinó tambien en las horas de re cr eo.

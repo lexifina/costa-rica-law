@@ -1,0 +1,1 @@
+Art. 88 Se distribuiran igualmente premios à los niños que hubieren sobresalido por su instruccion ó que hayan obtenido notas recomendables de aplicacion y buena conducta. Este acto tendrá lugar, con las mismas formalidades observadas para los maestros al concluir los exámenes públicos anuales.

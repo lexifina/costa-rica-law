@@ -1,0 +1,1 @@
+Art. 112. Habrá seccion diaria de doctrina cr istiana en todas las escuelas, y un repaso jeneral los Sábados de cada semana, con asistencia del párroco y conforme á las instrucciones de este, quien por medio de la lectura de algun libro aprobado al efecto, esplicará la estividad del dia siguiente, así como la manera de santificar las fiestas.

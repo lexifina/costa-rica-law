@@ -1,0 +1,1 @@
+Art. 122. Durante las horas de clase no podrá faltar el maestro de la escuela por motivo ni pretesto alguno, aun cuando tenga auxiliares, ni ocuparse en otra cosa que en la educacion y enseñanza de sus alumnos.

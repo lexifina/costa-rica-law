@@ -1,0 +1,1 @@
+Art. 125. En las escuelas en que hayan auxiliares autorizados, se establecerán salas distintas para los alumnos encomendados á cada uno de ellos; pero todos estarán bajo la inmediata víjilancia y responsabilidad del maestro.

@@ -1,0 +1,1 @@
+Art. 26. Los que asistan á las escuelas de instruccion primaria, con el fin de seguir la carrera del Majisterio, podrán continuar en la asistencia aun cuando excedan de la edad señalada; pero con el carácter de auxiliares.

@@ -1,0 +1,1 @@
+Art. 128. Para no fatigar á las niños deberán mediar breves ejercicios entre una y otra leccion, de tal manera que les sirvan de descanso, sin distraerlos en el estudio. En la clase de la mañana y á la mitad de las horas de su duración, se dedicará media hora al juego, canto ó ejercicios jimnásticos que no exijan aparatos: los juegos y ejercicios deberán verificarse en el patio.

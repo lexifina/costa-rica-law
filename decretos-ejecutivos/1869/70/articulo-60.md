@@ -1,0 +1,1 @@
+Art. 60. En el acta correspondiente se espresarán las circunstancias relativas al exámen y á la posesion dada al nombrado, ordenando en consecuencia la espidicion del correspondiente título, el cual deberá espedirse con arreglo al modelo numero 1.

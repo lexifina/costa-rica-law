@@ -1,0 +1,1 @@
+Art. 22. Con estos documentos y comprobada la circunstancia de que el local reune las condiciones del objeto á que está destinado, la Municipalidad procederá inmediatamente á autorizar la cr eacion de la escuela. Si esta hubiere de tener colegio con alumnos internos, el edificio deberá reunir las condiciones higiénicas necesarias.

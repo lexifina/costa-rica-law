@@ -1,0 +1,1 @@
+Art. 47. Concluidos estos ejercicios y clasificados por el Tribunal, pronunciará éste el resultado, definitivo que será de aprobacion ó improbacion. Todos estos procedimientos junto con el resultado definitivo se asentarán en un libro llevado al efecto.

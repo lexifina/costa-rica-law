@@ -1,0 +1,1 @@
+Art. 8° Las escuelas de cada poblacion se repartirán entre los diferentes barrios de ella, de la manera mas conveniente para facilitar la concurrencia y la distribucion proporcional de los alumnos entre todas.

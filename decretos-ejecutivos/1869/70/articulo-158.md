@@ -1,0 +1,3 @@
+CAPITULO XIX.
+Medios auxiliares de enseñanza
+Art. 158. Se procurará excitar el celo y patriotismo de las personas amantes de la enseñanza popular, á fin de que, constituyéndose en asociaciones filantrópicas, procuren, por cuantos medios estén á su alcance, promover los adelantos de la instruccion, yá proporcionando libros y útiles de enseñanza á los alumnos pobres, yá facilitándoles aquellos otros objetos indispensables, yá cooperando á la fundacion de bibliótecas populares, ó contribuyendo á la cr eacion de esposiciones escolares; y yá finalmente tomando una parte personal en el trabajo de las escuelas, y principalmente de las superiores y de artesanos.

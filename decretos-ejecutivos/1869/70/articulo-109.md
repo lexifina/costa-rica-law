@@ -1,0 +1,1 @@
+Art. 109. El maestro de pávulos cuidará de hacerse querer de los niños, y les inspirará confianza empleando en ellos cierta laxitud sin perjuicio de la vijilancia con que debe tenerlos, especialmente en las horas de recreo y de sus inocentes juegos.

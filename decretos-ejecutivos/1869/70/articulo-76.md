@@ -1,0 +1,1 @@
+Art. 76. Concurrirán los maestros á las academias y conferencias, cuando estas se establezcan; con el objeto de perfeccionar su instruccion, y atenderán las lecciones qué pueda darles el Inspector General en el acto de la visita.

@@ -1,0 +1,1 @@
+Art. 51. El Se cr etario del Tribunal, formará, concluidos los actos, una lista de los aspirantes examinados y del resultado del examen de cada uno, la cual será remitida al Ministerio be Instruccion pública, sus cr ita por el Se cr etario y con el "Visto Bueno" del Presidente.

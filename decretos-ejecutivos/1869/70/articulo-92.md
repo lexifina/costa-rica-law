@@ -1,0 +1,1 @@
+Art. 92. Los maestros á quíenes se hubiese impuesto alguna de las penas detalladas en los incisos 3°, 4°, 5° y 6° del artículo 89, tendrán derecho á ocurrir al Poder Ejecutivo; para la aprobacion, reforma y revocatoria. En todo caso, toda decisión que condene á un maestro á traslacion á una escuela dé inferior sueldo, deberá ser sometida á la aprobacion del Poder Ejecutivo.
