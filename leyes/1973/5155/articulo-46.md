@@ -1,13 +1,13 @@
-Artículo 46.- El servidor judicial que fuere removido de su puesto
-con base en los dos artículos anteriores, podrá pedir revisión a la Corte
-Plena dentro de ocho días hábiles a partir de la fecha en que se le haga
-saber el acuerdo, a fin de que se deje sin efecto la remoción y se le
-reinstale en su cargo.
-La Corte resolverá de inmediato lo que corresponda; y si ordenare
-ampliar la información que se hubiere practicado, dispondrá que la prueba
-se reciba dentro del menor tiempo posible. Una vez evacuada la prueba,
-la Corte deberá pronunciarse sobre la revisión en una de las dos
-siguientes sesiones ordinarias.
-Lo que la Corte resuelva con base en el presente artículo no tendrá
-recurso alguno, pero el interesado podrá acudir a la vía laboral de sus
-prestaciones legales.
+Artículo 46.- Para el traslado, permuta o remoción del servidor
+judicial, con base en los dos artículos anteriores, la Inspección Judicial
+levantará la información y resolverá en la forma prevista en los artículo
+123 y 124 de la Ley Orgánica del Poder Judicial. En cuanto a recursos, se
+estará a lo dispuesto en el mencionado artículo 124, pero cuando la
+remoción fuere decretada directamente por la Corte Plena en única
+instancia, el servidor judicial podrá pedir revisión dentro de los tres
+días hábiles siguientes a la fecha en que se le haga saber el acuerdo.
+Firme la resolución que ordena el traslado o la permuta, éstos se
+llevarán a cabo por parte de la Corte Plena o del Consejo Administrativo,
+según corresponda.
+(Así reformado por el artículo 2º de la Ley Nº 6761 de 31 de mayo de
+1982).
