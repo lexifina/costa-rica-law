@@ -1,0 +1,1 @@
+ARTICULO 15.-Para el caso en que según la ley deba abrirse la Causa pruebas en 2°, 3° instancia, tanto el Juez de apelaciones, como cada una de las Salas, asentar las que rindan las partes en el mismo expediente; y tanto ellas como sus procuradores abogados tienen en estas dos instancias el derecho que les concede el artículo 3° de esta ley.

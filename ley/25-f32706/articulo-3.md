@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Las partes, sus procuradores abogados tienen el derecho de escribir por s¡ mismos en el expediente los interrogatorios, conforme los cuales piden posiciones ¢ confesiones la contraria, declaración de testigos, cualquiera otra clase de pruebas.
