@@ -1,0 +1,1 @@
+Art. 5. Los Jefes Políticos provisionales indicados gozarán del sueldo de 25 $ mensuales cada uno, y sus escribientes el de 10 $cada uno. –Dado en San José á los doce días del mes de Abril de mil ochocientos cuarenta y cuatro. –Francisco María Oreamuno. –Al Ministro de Relaciones Sr. Doctor José María Castro.
