@@ -1,0 +1,1 @@
+Art 2°.- El Regente, estando en regla los documentos que acompañan el candidato a su presentación, mandará instruir una información de vita el moribus, haciendo que declaren tres vecinos notables de la ciudad que conozcan al presentado y a quienes no toquen las generales de la ley.

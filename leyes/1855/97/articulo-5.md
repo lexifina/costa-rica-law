@@ -1,0 +1,1 @@
+Art 5°.- La primera terna será la de los Abogados más antiguos, y cada una hará un examen en día distinto, preguntado los argüentes una hora cada uno, sobre materias diversas de las que ha tratado el anterior réplica.

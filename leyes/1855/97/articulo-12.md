@@ -1,0 +1,1 @@
+Art 12°.- Si el candidato reúne la mayoría de las bolaas blancas, se declará aprobado, y se señalará día para el juramento solemne y posesión; pero si fuere mayor el número de las bolas negras se repetirá el examen de la Corte seis meses después.
