@@ -1,0 +1,1 @@
+Artículo 2°.- Suprímense de la jurisdicción de la Dirección Regional de Enseñanza de Cartago, los circuitos V, VI, y VII, los que, con su misma delimitación territorial pasan a constituir la jurisdicción de la Dirección regional de Enseñanza que se crea en el artículo 1° de este decreto.
