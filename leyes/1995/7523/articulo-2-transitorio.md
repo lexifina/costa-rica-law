@@ -1,0 +1,2 @@
+Transitorio II.- La Superintendencia de pensiones deberá estar constituida y operando plenamente en un plazo improrrogable de un año, a partir de la publicación de esta Ley.
+Las funciones propias del ente regulador serán encargadas, durante ese plazo y en forma provisional, a la Auditoría General de Entidades Financieras (AGEF), la cual deberá crear un departamento especializado en su seno para tales fines. La AGEF deberá acatar lo dispuesto en esta Ley, en lo aplicable.

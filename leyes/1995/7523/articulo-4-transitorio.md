@@ -1,0 +1,4 @@
+Transitorio IV.- Las organizaciones sociales, sean asociaciones solidaristas, cooperativas, profesionales o sindicatos, podrán constituir, en forma individual o conjuntamente, operadoras de planes de pensiones, bajo la modalidad de una sociedad anónima, para lo cual deberán constituirse por mandato de sus respectivas Asambleas Generales y por mayoría calificada de por lo menos dos terceras partes de sus miembros.
+Deberán cumplir con todos los requisitos y disposiciones establecidos en esta Ley y podrán constituir la operadora, en un plazo de tres años a partir de la entrada en vigencia de esta Ley.
+Asamblea Legislativa.- San José, a los treinta días del mes de junio de mil novecientos noventa y cinco.
+Dado en la Presidencia de la República. San José, a los siete días del mes de julio del mil novecientos noventa y cinco.
