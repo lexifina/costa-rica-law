@@ -1,2 +1,0 @@
-ARTICULO 12.- Si el inmueble de cuya expropiación se trate, perteneciere a una sucesión o concurso que carezcan de representante o cuando éste se halle impedido, el Juez de la causa, a instancia del Agente Fiscal respectivo, nombrará representante ad hoc, para que con audiencia suya se tramiten las diligencias de expropiación antes enunciadas.
-El Juez, para este fin, oirá, si lo cree conveniente, a los interesados en junta o por un breve término común a todos, respecto de la persona en quien deba hacerse la elección.
