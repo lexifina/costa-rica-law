@@ -37,7 +37,7 @@ Compañía Nacional de Fuerza y Luz | 30.791,3
 Consejo de Salud Ocupacional | 74,2
 Consejo de Seguridad Vial (Así modificado por decreto ejecutivo N° 31138 de 7 de abril de 2003) | 5.983,0
 Consejo Nacional de Concesiones | 674,0
-Consejo Nacional para Investigaciones Científicas y T. | 344,1
+Consejo Nacional para Investigaciones Científicas y Tecnológicas (Así REFORMADO PARCIAL Y TACITAMENTE por el artículo 1 del Decreto Ejecutivo N° 31336-H del 28 de julio de 2003, publicado en La Gaceta N° 168 del 02 de setiembre de 2003.) | 896.5
 Consejo Nacional de Producción | 8.607,6
 Consejo Nacional de Rehabilitación (Así modificado por decreto ejecutivo N° 31162 de 5 de mayo de 2003) | 782,3
 Consejo Nacional Persona Adulto Mayor | 1.213,0

@@ -59,3 +59,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 44 | 2003-07-21 | Decreto Ejecutivo 31315 (2003-07-21) |
 | 45 | 2003-07-24 | Decreto Ejecutivo 31317 (2003-07-24) |
 | 46 | 2003-07-28 | Decreto Ejecutivo 31336 (2003-07-28) |
+| 47 | 2003-07-28 | Decreto Ejecutivo 31335 (2003-07-28) |
