@@ -1,0 +1,1 @@
+Artículo 9.—Descripción de los bienes y servicios. Los proveedores interesados en formar parle del Registro deberán aportar una descripción de las características de los bienes y servicios que ofrecen, para así poder clasificar los artículos o servicios dentro del respectivo sistema,

@@ -1,0 +1,10 @@
+Artículo 11.—Requisitos. Para formar parte del Registro de Proveedores los interesados estarán en la obligación de presentar en debida forma la ''solicitud de Inscripción" a que alude el artículo 7 de estas normas con los siguientes requisitos:
+11.1- La solicitud de inscripción deberé llenarse correctamente, sin tachaduras ni borrones. Las equivocaciones deberán ser salvadas mediante anotaciones al fin de dicho documento, las que también deberán calcarse con la firma de la persona que suscribe el formulario. Asimismo, la solicitud deberá cumplir con los siguientes requisitos:
+11.1.1.- Declaración jurada de no estar afectado por las prohibiciones establecidas en el artículo 22 de la Ley de Contratación Administrativa. En caso de haber logrado los levantamientos de incompatibilidad previsto en el artículo 23 de la citada ley, se aportará una copia certificada del levantamiento.
+11.1.1.2- Copia de la cédula jurídica y de la escritura constitutiva de la sociedad, con indicación del nombre del actual representante legal, cuando se trate de personas jurídicas. En caso de personas físicas con la cédula de identidad o documento oficial de identificación en caso de extranjeros.
+11.1.3- Aportar declaración, bajo te de juramento, de que la empresa o proveedor no ha sido sancionado administrativamente por incumplimiento de contratos administrativos.
+11.1.4- Para el caso de representante de casa extranjeras se acreditará una copia autenticada de la respectiva licencia sin perjuicio de que como sociedad costarricense cumpla con los presentes requisitos.
+11.1.5- Cuando el interesado en inscribirse actué como apoderado especial general o generalísimo, como distribuidor u otro debe establecer claramente y presentar las certificaciones correspondientes.
+11.1.6- Toda copia de documento que se adjunte debe venir, preferiblemente, autenticada conforme a la Iey.
+11.1.7- Indicar experiencia e historial de la empresa o proveedor.
+11.1.8- Los documentos requeridos deben presentarse, cuando así corresponda, según la calidad en que el interesado participe.

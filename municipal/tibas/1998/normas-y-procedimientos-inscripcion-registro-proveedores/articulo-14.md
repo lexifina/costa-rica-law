@@ -1,0 +1,1 @@
+Artículo 14.—Obligación de Actualización. Todo cambio que se produzca en los proveedores registrados deberá comunicarse a la Proveeduría mediante nota firmada conforme al artículo 12. En caso de que no produzca dicho comunicado, la Proveeduría y la Municipalidad salvarán su responsabilidad.

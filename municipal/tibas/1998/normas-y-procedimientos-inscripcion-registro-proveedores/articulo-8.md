@@ -1,0 +1,4 @@
+Artículo 8°—Historial del Proveedor.
+8.1- El registro incluye un detalle de las relaciones contractuales establecidas entre el proveedor y la Municipalidad de Tibás, cuando las haya, sin demérito de los antecedentes que aporte el proveedor o se le solicite en su relación con otra1! instituciones del Estado.
+8-2- Los Órganos Fiscalizadores de contratos celebrados por el Tribunal tan pronto como adviertan alguna irregularidad en la ejecución de los contratos que fiscali7an, deberán informarlo a la Proveeduría sin perjuicio de las acciones legales que puedan corresponder.
+8.3- En el historial se incluirán también los dalos de las resoluciones sancionatorias que le hayan sido impuestas al proveedor de conformidad con lo que disponen los artículos 106.1 y 106.5 del Reglamento General de la Contratación Administrativa.

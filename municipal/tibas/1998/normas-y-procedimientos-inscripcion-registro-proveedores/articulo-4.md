@@ -1,0 +1,1 @@
+Artículo 4°—Análisis de las Ofertas. En el análisis de las ofertas la información consignada en el Registro de Proveedores constituirá un parámetro válido, salvo que en las ofertas se acredite otra casa.

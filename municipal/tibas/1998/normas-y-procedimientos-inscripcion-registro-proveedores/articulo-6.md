@@ -1,0 +1,1 @@
+Articulo 6°—Invitación. La Municipalidad de Tibás, por medio de la Proveeduría, invitará a formar parte del Registro de Proveedores a inicios de cada año, para lo cual efectuará una publicación en el Diario Oficial y en dos medios escritos de circulación nacional.
