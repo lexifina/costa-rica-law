@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Los fondos de educacion pública pertenecientes la Universidad de Santo Tomas, sin embargo de la prevenido en el artículo anterior, continuarán percibiendo el doce por ciento por el espacio de cinco años.
