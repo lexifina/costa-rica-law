@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+La Municipalidad de Santa Bárbara de Heredia mediante acuerdo Nº 1900-02, artículo Nº 7, tomado en la sesión ordinaria Nº 216, celebrada el 16 de abril del 2002, por votación unánime acuerda reformar el artículo 38 del Reglamento a la Ley Nº 7180 Ley de Impuestos Municipales del cantón de Santa Bárbara de Heredia del 8 de agosto de 1990, publicado en La Gaceta Nº 210 del jueves 2 de noviembre del 2000, para que se lea como sigue:
+Artículo Nº 38.—Cada tres años y tomando como referencia la fecha de otorgamiento de la patente municipal, o en su defecto la que la Oficina de Rentas designe como fecha de inicio para estos efectos, deberán renovarse las patentes municipales; salvo aquellas actividades que por su desarrollo generen o se sospeche que podrían causar daño al medio ambiente, tales como talleres industriales, ebanisterías, etc., deberán renovarse cada año.
+Acuerdo definitivamente aprobado.
