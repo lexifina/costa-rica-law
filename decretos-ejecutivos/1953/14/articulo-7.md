@@ -1,0 +1,1 @@
+Artículo 7°—Cuando un miembro tenga impedimento para asistir a una sesión lo avisará al Oficial Mayor para los efectos correspondientes y podrá enviar opinión escrita sobre cualquier asunto en trámite.

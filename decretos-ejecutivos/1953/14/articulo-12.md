@@ -1,0 +1,4 @@
+Artículo 12.—El Consejo hará la designación de las Comisiones que estime necesarias, para que hagan el estudio de los asuntos que le sean sometidos a estudio y que son de su incumbencia.
+Esas Comisiones se compondrán de tres miembros, dentro de los cuales habrá un Presidente, un Secretario y un Vocal. Podrán presentar un solo dictamen cuando todos estén de acuerdo, pero si alguno no lo estuviere podrá presentar un dictamen por separado, el que leerá junto con el de mayoría, pero que será discutido solamente que sea desechado el de mayoría.
+Por excusa de un miembro de comisión, el Consejo designará quien lo sustituya.
+Si un proyecto o asunto contemplare aspectos que corresponden a más de una comisión, cada una podrá dictaminar por separado sobre el aspecto que le concierne, o si lo tienen a bien podrán ponerse de acuerdo para presentar un solo dictamen que los contemple todos, siempre dentro del plazo señalado en los artículos 22 y 23.

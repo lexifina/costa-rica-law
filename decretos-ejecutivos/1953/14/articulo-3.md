@@ -1,0 +1,1 @@
+Artículo 3°—De acuerdo con el artículo 3° de la ley N° 1362 de fecha ya citada, los miembros del Consejo durarán cuatro años en sus funciones y podrán ser reelectos indefinidamente. Las vacantes serán llenadas en la misma forma expuesta en el artículo anterior y por nuevos períodos completos.

@@ -1,0 +1,1 @@
+Artículo 10.—Si un miembro propietario llegare a una sesión después de 30 minutos de la hora señalada para iniciarla y ya ha sido sustituido, el suplente conservará los derechos de propietario para todos los efectos en dicha sesión.

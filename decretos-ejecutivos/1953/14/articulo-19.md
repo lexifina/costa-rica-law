@@ -1,0 +1,1 @@
+Artículo 19.—Para sustituir al Presidente en sus ausencias temporales, el Consejo designará en cada caso quién debe presidir pro-témpore. En las ausencias accidentales la sustitución la hará el propietario de más edad.

@@ -1,0 +1,1 @@
+Artículo 11.—Si no se hubiere completado el quorum reglamentario a los treinta minutos después de la hora señalada para iniciar la sesión, los miembros presentes podrán ausentarse y tendrán derecho al pago de la dieta.
