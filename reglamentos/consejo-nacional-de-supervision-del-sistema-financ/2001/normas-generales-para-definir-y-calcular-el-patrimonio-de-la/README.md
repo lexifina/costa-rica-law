@@ -14,3 +14,4 @@ Normas Generales para Definir y Calcular el Patrimonio de las Asociaciones Mutua
 | --- | --- | --- |
 | 1 | 2001-07-01 | la propia norma |
 | 2 | 2002-08-20 | Reglamento 320 (2002-08-20) |
+| 3 | 2003-06-10 | Reglamento 375 (2003-06-10) |
