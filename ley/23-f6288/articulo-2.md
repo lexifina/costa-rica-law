@@ -1,0 +1,1 @@
+Artículo 2°-En los delitos y faltas contra la agricultura, los juzgadores, habida cuenta de las circunstancias atenuantes o agravantes que concurran, determinarán en cada caso, a su prudente arbitrio, la pena aplicable dentro de los límites señalados por la ley, sin que puedan por ningún motivo traspasarlos.

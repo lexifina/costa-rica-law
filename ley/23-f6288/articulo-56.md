@@ -1,0 +1,4 @@
+CAPÍTULO V
+De la labor administrativa en prevención de los delitos y faltas contra la agricultura
+Artículo 56.-La campaña para combatir los delitos y faltas contra la agricultura, hasta exterminarlos, estará a cargo de la Inspección General de Hacienda, del cuerpo de Agentes de Investigación, de los representantes del Ministerio Público(*) y de las autoridades de policía, bajo la inmediata dirección de la Secretaría de Agricultura Ganadería, la cual queda autorizada para impartir esas dependencias administrativas las instrucciones que estime convenientes para el mejor éxito de la campaña, así como para dictar las órdenes reglamentos conducentes.
+(*)(Nota de Sinalevi: Mediante el artículo 30 de la Ley Orgánica de la Procuraduría General de la República, N° 3848 del 10 de enero de 1967, se establece que donde se mencione la palabra Ministerio Público se diga Procuraduría General de la República)

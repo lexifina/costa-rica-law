@@ -1,0 +1,6 @@
+Artículo 58.-Mientras no se cree la Guardia Rural, estarán a cargo de la Inspección General de Hacienda la vigilancia en los campos a efecto de evitar los delitos y faltas contra la agricultura y la captura de las personas que se dediquen a cometerlos.
+Esa vigilancia la ejercerá la Inspección por medio de los Resguardos Fiscales de la República.
+En sus actividades, los Resguardos podrán pedir el auxilio de las autoridades de policía y, en casos especiales, de la oficina de Agentes de Investigación.
+Los Guardas Fiscales tendrán libre acceso a todos los predios; pero observarán en su actuación la mayor discreción y prudencia, y procurarán causar las menores molestias posibles.
+Los Resguardos ajustarán su vigilancia a las instrucciones que de modo concreto reciban del Inspector General de Hacienda, quien las dará procurando que la acción preventiva resulte efectiva.
+Deberán también los Resguardos actuar de modo directo cuando reciban de los perjudicados denuncias de delitos o faltas contra la agricultura. En este caso, si se comprobare el hecho, los Guardas Fiscales procederán a la investigación a fin de localizar el autor, y en su caso ejercerán la vigilancia necesaria para ver si es posible sorprender in fraganti al delincuente.

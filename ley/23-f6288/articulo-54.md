@@ -1,0 +1,3 @@
+Artículo 54.-Es prohibida la venta ambulante de portones, alambres de cerca y demás enseres de fincas rústicas de los que se mencionan en esta ley.
+El infractor será penado con arresto de quince a treinta días o multa de treinta a sesenta colones, si prueba su legítima adquisición, pues en caso contrario será juzgado por merodeo.
+Los dueños de carretas y otros medios de transportes que los faciliten para el traslado de leñas, o de cualquier clase de productos o enseres de los previstos en esta ley tomados de fincas rústicas o huertas caseras, por cuenta de personas que no sean sus propietarios o legítimos explotadores, serán penados como autores de merodeo, si aquellas personas no comprueban la legítima propiedad de los objetos transportados.

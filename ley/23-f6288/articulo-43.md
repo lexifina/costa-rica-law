@@ -1,0 +1,8 @@
+Sección 3°,-De las medidas preventivas a que quedan sometidos los inscritos
+Artículo 43.-La inscripción en el Registro General de Sospechosos impone al inscrito las siguientes obligaciones:
+1°-Presentarse quincenalmente ante la Agencia Principal de Policía o Jefatura Política que hubiere hecho la inscripción, y en caso de cambio de domicilio, ante la autoridad de la nueva residencia, en el día y hora que al efecto se le señalen, debiendo explicar en cada oportunidad, y rendir las pruebas que al efecto se le pidan, acerca de los días que haya trabajado y si lo hizo por cuenta propia o ajena; y en este último supuesto, a quiénes trabajó y la remuneración recibida por sus servicios. En caso de no haber trabajado la quincena completa explicará los motivos que se lo impidieron;
+2°-Indicar, en el caso de cultivos propios, la clase de ellos, su extensión y el lugar donde los tiene;
+3°-Manifestar a la autoridad, con ocho días de anticipación por lo menos, cualquier cambio de domicilio. De este cambio se dará aviso a la autoridad del nuevo vecindario;
+4°- A no frecuentar, por seis meses, los lugares públicos o privados ni transitar por los caminos o senderos que le indique la autoridad de policía, atendiendo al propósito de apartado de los sitios donde su presencia sea peligrosa, a menos que asegure su buen comportamiento con la fianza personal de un propietario de finca rústica en explotación, situada en la localidad;
+5°-A evitar el trato asiduo con los delincuentes y sospechosos de merodeo que indique la autoridad; y
+6°- A no ejercer el comercio ambulante de productos agrícolas, salvo lo dispuesto en el párrafo tercero del artículo 52.

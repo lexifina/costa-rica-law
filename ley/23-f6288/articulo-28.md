@@ -1,0 +1,1 @@
+Artículo 28.-Las autoridades judiciales y de policía pondrán la mayor diligencia en la tramitación de los procesos por delitos o faltas contra la agricultura, dándoles preferencia, en cuanto fuere posible, sobre los demás asuntos de su despacho. La retardación de los procedimientos será penada con destitución.

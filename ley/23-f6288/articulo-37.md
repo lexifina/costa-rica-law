@@ -1,0 +1,2 @@
+Sección 2°- De la Inscripción
+Artículo 37.-Los Jefes Políticos y Agentes Principales de Policía que tengan conocimiento, por impresión personal, avisos confidenciales, pública voz, denuncia o acusación, de que una persona se dedica al merodeo u observa conducta reveladora de inclinación al merodeo, practicarán sin demora las diligencias de averiguación conducentes, y luego procederán como ordena el artículo 26.

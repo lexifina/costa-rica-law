@@ -1,0 +1,1 @@
+Articulo 50.-La inscripción provisional hecha de acuerdo con los artículos 40 y 52, si no ha sido cancelada antes de conformidad con el artículo anterior, caduca de pleno derecho a los cinco años de realizada.
