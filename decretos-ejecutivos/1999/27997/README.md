@@ -14,3 +14,4 @@ Crea Comisión Manejo Cuencas de los Ríos Bananito Banano y Estrella
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-28 | la propia norma |
+| 2 | 1999-07-28 | Ley 7 |

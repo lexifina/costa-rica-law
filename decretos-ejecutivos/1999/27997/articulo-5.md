@@ -1,0 +1,1 @@
+Artículo 5º—Comité Ejecutivo. La Comisión nombrará un Comité Ejecutivo compuesto por seis miembros (al menos tres de ellos de la sociedad civil), que tendrá como función principal organizar las reuniones de la Comisión y dar seguimiento a los acuerdos.
