@@ -1,0 +1,1 @@
+Art. 6. El Ministro de la guerra es encargado de la ejecucion de este decreto, y al intento lo hará imprimir, circular y publicar. Dado en la ciudad de San José a los treinta y un dias del mes de marzo de mil ochocientos cuarenta y ocho. -Juan Rafael Mora,--Al Ministro de hacienda y guerra Sr.Don Manuel José Carazo.

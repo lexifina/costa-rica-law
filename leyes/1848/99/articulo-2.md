@@ -1,0 +1,1 @@
+Art. 2. Los que no lo hiciesen en el término prevenido, incurrirán en la pena de cincuenta pesos teniendo bienes, y en caso contrario en seis meses de obras pùblicas, lo que se ejeentará inmediatamente despues que se averigüe la ocultacion.
