@@ -1,0 +1,1 @@
+Artículo 4.-Se faculta al Supremo Poder Ejecutivo para que nombre una Comisión de una dos personas dotadas convenientemente, a fin de que se ocupe de formar un proyecto de Ordenanzas Municipales, que deber ser sometido las Cámaras en los primeros días de su próxima reunión ordinaria.
