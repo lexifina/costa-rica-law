@@ -1,0 +1,3 @@
+Artículo 2°-El actual artículo 28, pasará a formar parte del artículo 30 y el 28 y 29 se reforman así:
+28-Estarán exentos del pago de derechos fiscales los títulos que se inscriban en el Registro Público a nombre de la Cooperativa, aquellos que extiendan ésta a favor de los adjudicatarios y toda certificación que emane de dicho registro comprobando la carencia de bienes raíces de los aspirantes a socios.
+29-Quien para conseguir los beneficios de esta ley diere falsas declaraciones, será penado por la respectiva autoridad de policía con arresto de tres a seis meses o con multa de cien a quinientos colones, y perderá las cuotas que hubiera satisfecho. Si el autor del fraude fuere cometido por una sociedad, soportarán la pena el Presidente y el Gerente.
