@@ -17,3 +17,4 @@ Reglamento General del Patronato y Junta Directiva de Protección Social de San 
 | 3 | 1952-04-08 | Acuerdo 390 (1952-04-08) |
 | 4 | 1953-09-29 | Acuerdo 762 (1953-09-29) |
 | 5 | 1956-03-26 | Decreto Ejecutivo 7 (1956-03-26) |
+| 6 | 1957-01-21 | Acuerdo 24 (1957-01-21) |
