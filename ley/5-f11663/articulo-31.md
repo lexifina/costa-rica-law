@@ -1,0 +1,1 @@
+Art. 31. – Cuando no se aprobare la medida practicada en un terreno baldío, por errores sustanciales ó por falta de formalidad en las operaciones practicadas, se mandará, á petición del interesado y á costa del agrimensor que la hubiere hecho, remedir el terreno ó subsanar las faltas cometidas.

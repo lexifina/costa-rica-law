@@ -1,0 +1,1 @@
+Art. 43.-Se prohibe destruir, tanto en los bosques nacionales como en los de particulares, los árboles situados á menos de setenta y cinco varas de los manantiales que nazcan en los cerros, ó á menos de cincuenta varas de los que nazcan en terrenos planos.

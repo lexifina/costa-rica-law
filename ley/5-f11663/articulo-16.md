@@ -1,0 +1,1 @@
+Art. 16.-Practicado y aprobado el valúo, el Juez señalará día para la pública, anunciándola con treinta días, por lo menos, venta, que se hará en asta de anticipación, por medio del periódico oficial.
