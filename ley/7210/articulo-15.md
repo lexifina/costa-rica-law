@@ -1,0 +1,5 @@
+ARTICULO 15.- El Ministerio de Salud resolverá, en un plazo de veinte
+días hábiles, las solicitudes para obtener los permisos sanitarios para la
+instalación y funcionamiento de las empresas acogidas al Régimen de Zona
+Franca. Si transcurrido ese plazo, dicho Ministerio no se hubiera
+pronunciado, la solicitud se considerará aprobada.

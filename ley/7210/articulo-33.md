@@ -1,0 +1,12 @@
+ARTICULO 33.- El Poder Ejecutivo, al tener conocimiento de alguna de
+las infracciones a que se refiere el artículo 32, levantará la información
+correspondiente y luego dará audiencia por tres días hábiles a la empresa
+infractora, a fin de que ofrezca la prueba de descargo, que se evacuará
+dentro de los ocho días hábiles siguientes. El Ministro resolverá dentro
+de los quince días hábiles siguientes a la recepción de la prueba.
+El acuerdo que imponga la revocatoria se notificará al infractor,
+quien podrá interponer, dentro de los tres días hábiles siguientes a la
+notificación, un recurso de reconsideración ante el Ministro, quien
+resolverá dentro de los ocho días hábiles después de presentado. Resuelto
+el recurso, se tendrá por agotada la vía administrativa y deberá procederse
+a la publicación del Acuerdo Ejecutivo que revoca la concesión.
