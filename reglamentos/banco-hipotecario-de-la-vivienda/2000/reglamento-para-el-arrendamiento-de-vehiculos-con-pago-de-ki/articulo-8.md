@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Procedimiento para el ingreso al sistema
+Artículo 8°—Solicitud de ingreso: Todo funcionario interesado en acogerse al pago de kilometraje previsto en la presente normativa, deberá formular la respectiva petición ante la Gerencia General del BANHVI para su conocimiento, aprobación o rechazo. La aprobación o rechazo de una solicitud de este tipo es un acto de carácter discrecional de la entidad, por lo que eventualmente su aprobación puede quedar sujeta a la aplicación de condiciones, términos y modos en la forma prevista en el artículo N° 132.4 de la Ley General de la Administración Pública. A la solicitud deberán adjuntarse los documentos previstos en el artículo N° 10 de las presentes normas

@@ -1,0 +1,4 @@
+CAPITULO QUINTO
+Sobre Prohibiciones y Sanciones
+Artículo 14.—Normas de conducta de los funcionarios: Los funcionarios del BANHVI que se acojan a la normativa del presente reglamento deberán cumplir en forma puntual y diligente con las disposiciones de las leyes de tránsito y no podrán realizar durante las giras funciones ajenas a aquellas vinculadas con el objetivo de sus labores. Es totalmente prohibido a los funcionarios cobrar o pretender el cobro de sumas por concepto de kilometraje cuando hubieren realizado la gira, total o parcialmente, utilizando vehículos de terceras personas o bien otros medios de transporte público remunerado de personas. Queda en igual forma prohibido iniciar una gira sin haber presentado los reportes de liquidación de la gira anterior.
+La violación de las presentes disposiciones será considerada falta grave para los efectos de la aplicación de las respectivas sanciones disciplinarias.

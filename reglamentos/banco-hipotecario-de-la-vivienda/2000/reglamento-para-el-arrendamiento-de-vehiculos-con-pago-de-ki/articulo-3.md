@@ -1,0 +1,1 @@
+Artículo 3°—Régimen de exclusión: Quedan excluidos de la posibilidad de acogerse a las disposiciones del presente reglamento los miembros de la Junta Directiva, Gerente y Subgerente General y Auditor Interno.

@@ -1,0 +1,1 @@
+Artículo 2°—Aplicación del Reglamento: Las disposiciones y beneficios del presente reglamento sólo serán aplicables a aquellos funcionarios del BANHVI que por decisión de la Gerencia General utilizaren su vehículo personal en las funciones propias de su cargo, sujetándose estrictamente a los principios y procedimientos regulados por esta normativa.

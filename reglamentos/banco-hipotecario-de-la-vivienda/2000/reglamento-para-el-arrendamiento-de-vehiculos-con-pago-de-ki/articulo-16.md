@@ -1,0 +1,1 @@
+Artículo 16.—Sanciones a funcionarios: El incumplimiento de las presentes disposiciones podrá dar lugar a la resolución contractual, sin perjuicio de la aplicación de las sanciones disciplinarias previstas en el Estatuto de Personal del BANHVI.

@@ -1,0 +1,1 @@
+Artículo 19.—Modificaciones: En cualquier tiempo podrá el BANHVI modificar las disposiciones del presente reglamento sin que para evadir o excusar su aplicación el funcionario pueda alegar derechos adquiridos o situaciones jurídicas consolidadas.

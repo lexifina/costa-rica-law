@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+Requisitos para el ingreso al sistema
+Artículo 5°—Requisitos del funcionario: Para ingresar al sistema de pago de kilometraje el funcionario correspondiente deberá ser propietario de un vehículo que cumpla las condiciones previstas en las presentes normas y en las leyes de tránsito, estar nombrado en propiedad, no contar con antecedentes de imposición de sanciones disciplinarias y no encontrarse inhabilitado para la conducción de vehículos de parte de las autoridades judiciales o administrativas. Asimismo, deberá cumplir con las normas que para la conducción de vehículos le impongan las leyes de tránsito.

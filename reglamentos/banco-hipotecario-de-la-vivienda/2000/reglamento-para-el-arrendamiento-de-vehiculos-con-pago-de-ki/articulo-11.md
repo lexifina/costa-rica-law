@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+Procedimiento de pago y ejecución del contrato
+Artículo 11.—Determinación de distancias y montos: Para los efectos de determinar las distancias recorridas y montos cancelados, se utilizarán como referencia las tablas preparadas por el Ministerio de Obras Públicas y Transportes y la Contraloría General de la República. La medición de las distancias se hará utilizando la respectiva tabla de kilometraje ubicando el cantón al cual se destine o destinen las giras en relación con el cantón en el cual se ubiquen las oficinas centrales del BANHVI. Se podrán aceptar distancias mayores a las indicadas en las respectivas tablas cuando haya sido necesario recorrer esas distancias en virtud de cierres de caminos y carreteras, bloqueos o mal estado de las vías.
