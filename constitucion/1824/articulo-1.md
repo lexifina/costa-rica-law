@@ -1,4 +1,6 @@
+(Derogado)
 CONSTITUCION DE LA REPUBLICA FEDERAL DE CENTROAMERICA
+(Derogada por la Constitución Federal de la República de Centroamérica, del 13 de febrero de 1835.)
 22 de noviembre de 1824
 EN EL NOMBRE DEL SER SUPREMO, AUTOR DE LAS SOCIEDADES Y
 LEGISLADOR DEL UNIVERSO
