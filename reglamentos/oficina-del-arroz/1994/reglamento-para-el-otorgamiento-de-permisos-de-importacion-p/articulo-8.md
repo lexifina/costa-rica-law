@@ -1,0 +1,1 @@
+Artículo 8°—No se otorgarán permisos a arroces pulido de grano largo, asimismo a ningún tipo de arroz en granza. La administración se reserva el derecho de otorgar total o parcialmente cada permiso solicitado; o bien denegarlo total o parcialmente si las solicitudes son contrarias al interés público.

@@ -1,0 +1,1 @@
+Artículo 4°—Para el caso de personas jurídicas deberá adjuntarse certificación reciente de personería jurídica, donde conste el poder ostentado por el representante legal. Asimismo fotocopia certificada de la cédula jurídica.

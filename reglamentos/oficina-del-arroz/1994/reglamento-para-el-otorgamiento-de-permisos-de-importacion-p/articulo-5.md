@@ -1,0 +1,1 @@
+Artículo 5°—La solicitud expresará el tipo, la calidad de grano, grado de proceso, cantidad, destino, tipo de envase y presentación, país de origen, puerto o aduana de ingreso y fecha definitiva del ingreso del grano al país.

@@ -1,0 +1,1 @@
+Artículo 9°— La Oficina del Arroz se reserva el derecho de inspeccionar la mercadería, cada vez que lo considere pertinente en el puerto o aduana de ingreso y supervisar que los permisos estén siendo utilizados en las condiciones y los plazos para los cuales fueron otorgados.
