@@ -14,3 +14,4 @@ Reglamento de Organización Administrativa de las Oficinas Centrales Ministerio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-10 | la propia norma |
+| 2 | 1993-10-13 | Decreto Ejecutivo 22612 (1993-10-13) |

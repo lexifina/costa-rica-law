@@ -1,7 +1,7 @@
-Artículo 59.—Corresponde al Departamento de Control de Gestión de las Regiones Educativas:
-a) Planear, dirigir, coordinar y supervisar las actividades inherentes al proceso de control en las Regiones Educativas.
-b) Ejercer las funciones controladoras de las políticas y determinaciones emanadas de las autoridades competentes para el desarrollo del proceso educativo de las Regiones Educativas.
-c) Velar por una adecuada racionalización de los recursos en cada Región Educativa.
-ch) Solicitar los informes relativos a los logros alcanzados en las instancias regional, zonal e institucional.
-d) Comunicar a sus superiores los logros, las deficiencias y los problemas encontrados.
-e) Recomendar sistemas ágiles y eficientes de información y comunicación tanto en el ámbito nacional como regional.
+Artículo 59. -Corresponde a la Subdirección:
+a) Participar en la elaboración de los planes de trabajo de la División.
+b) Asumir el control sobre ¡a correcta ejecución de los planes, programas, proyectos y actividades de la División de acuerdo con lineamientos del Director y mantenerlo debidamente informado.
+c) Contribuir con la Dirección en la supervisión administrativa y técnica de los funcionarios de la División.
+ch) Revisar informes, estudios y documentos generales que le sean encargados a la División para garantizar el cumplimiento del objetivo para el cual fueron solicitados.
+d) Propiciar actividades tendientes a lograr un ambiente de trabajo sano, creativo y armonioso.
+e) Recomendar ajustes en las normas y métodos de trabajo para mejorar los procedimientos administrativos y técnicos de la división.

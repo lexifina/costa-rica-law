@@ -1,4 +1,3 @@
-Artículo 55.—Para el cumplimiento de su cometido la División de Operaciones contará con:
-Una Subdirección
-El Departamento de Inspección de centros educativos privados.
-El Departamento de Control de Gestión de las Regiones Educativas.
+SECCIÓN III
+De la División de Operaciones
+Artículo 55.—Compete a la División de Operaciones elaborar procedimientos y sistemas de seguimiento, control y evaluación que le permitan conocer a satisfacción el desarrollo educativo en general y la eficiencia de las Direcciones de Regiones Educativas.

@@ -1,1 +1,4 @@
-Artículo 58.—Para el cabal cumplimiento de sus funciones, el Departamento de Inspección de Centros Educativos Privados contará con el número de inspectores y el personal técnico y administrativo requerido para la prestación de este servicio.
+Artículo 58.—Para el cumplimiento de su cometido la División de Operaciones contará con:
+- Una Subdirección.
+- El Departamento de Inspección de Centros Educativos Privados.
+- El Departamento de Control de Gestión de las Regiones Educativas.

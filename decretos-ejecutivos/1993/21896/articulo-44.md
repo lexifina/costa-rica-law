@@ -1,6 +1,9 @@
-Artículo 44.—Son funciones del Departamento de Educación académica:
-Dictar directrices, normas técnicas y regulaciones para el desarrollo curricular de la Educación General Básica y Educación Diversificada Académica, de acuerdo con la política educativa nacional y las decisiones del Consejo Superior de Educación.
-Ejecutar las políticas y acciones necesarias en el campo de la educación académica.
-Evaluar el desarrollo técnico de los programas de estudio de la Educación Académica en coordinación con el Departamento de Currículo de las Regiones Educativas y proponer las correcciones y los ajustes necesarios.
-ch) Elaborar los planes y programas de estudio de su competencia.
-Brindar asesoramiento sobre el desarrollo de los programas de estudio que conforman el curriculum nacional, en la rama académica.
+Artículo 44.—Son funciones del Departamento de Planificación, Diseño y Evaluación de los Aprendizajes:
+a) Proponer políticas de evaluación de los aprendizajes.
+b) Elaborar, revisar y actualizar los reglamentos e instructivos de evaluación.
+c) Apoyar al Departamento de Currículo de las Regiones Educativas en el asesoramiento a los docentes y a los Comités de Evaluación de los centros educativos.
+ch) Coordinar con el Departamento de Investigación Educativa de la División de Planeamiento y Desarrollo Educativo y los Departamentos de Currículo de las Regiones Educativas investigaciones en el campo de evaluación de los aprendizajes.
+d) Divulgar las políticas nacionales de evaluación, así como los reglamentos y demás instrumentos jurídicos.
+e) Promover el desarrollo de investigaciones curriculares, de tipo cualitativo en los ámbitos nacional, regional e institucional.
+f) Brindar lineamientos de tipo conceptual y metodológico para orientar la planificación y el diseño curricular.
+g) Brindar lineamientos para la adecuación curricular en el ámbito nacional, regional e institucional.

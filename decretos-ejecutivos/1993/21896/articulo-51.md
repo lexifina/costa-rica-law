@@ -1,6 +1,12 @@
-Artículo 51.—Son funciones del Departamento de Cooperativas Estudiantiles:
-a) Preparar programas de estudio, instructivos, guías y otros instrumentos para la enseñanza del cooperativismo en las instituciones educativas.
-b) Promover actividades de capacitación en cooperativismo.
-c) Impulsar el desarrollo de cooperativas y apoyar los estudios de factibilidad que garanticen el éxito de la inversión.
-ch) Evaluar los proyectos y actividades cooperativistas fomentada por el Ministerio de Educación Pública.
-d) Velar porque los recursos destinados al Programa de Cooperativas Estudiantiles, ingresen oportunamente y se les dé el destino que legalmente les corresponde.
+Artículo 51.—Son funciones del Departamento de Bibliotecas Escolares:
+a) Ejecutar la política y las normas que rigen los servicios bibliotecarios escolares.
+b) Desarrollar en los usuarios de las bibliotecas escolares habilidades para la selección y el análisis crítico de la información.
+c) Formular lineamientos para planear la adecuación de los servicios bibliotecarios escolares de acuerdo con las necesidades regionales.
+ch) Determinar los métodos y procedimientos adecuados para lograr la total integración de las bibliotecas escolares al curriculum.
+d) Estimular la utilización de los servicios bibliotecarios escolares como parte integral del proceso educativo.
+e) Propiciar investigaciones en las bibliotecas escolares de las distintas Regiones Educativas, comunidades y localidades del país, para proponer las necesarias acciones correctivas.
+f) Planear y dirigir proyectos pilotos para aplicar nuevos métodos, técnicas y servicios bibliotecológicos.
+g) Velar por el óptimo funcionamiento del sistema de bibliotecas escolares.
+h) Incorporar el sistema de bibliotecas escolares al sistema nacional de información.
+i) Estimular la ejecución de proyectos que propicien acciones tendientes a que las bibliotecas escolares se proyecten a la comunidad, atendiendo sus demandas.
+j) Contribuir a la superación profesional y a la actualización de los educadores del país.

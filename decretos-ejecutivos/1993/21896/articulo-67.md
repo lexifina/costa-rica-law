@@ -1,3 +1,3 @@
-Artículo 67.—Son funciones de la Sección Procesadora de Datos:
-Procesar datos provenientes de las Oficinas Centrales y de las Regiones Educativas.
-Preparar informes orientados a retroalimentar el proceso educativo en las diferentes instancias.
+CAPITULO VI
+Disposiciones finales
+Artículo 68.—Las decisiones y las acciones originadas en los órganos de las Oficinas Centrales, cuya ejecución deba cumplirse en los ámbitos regional o institucional serán canalizadas mediante la estructura regional.

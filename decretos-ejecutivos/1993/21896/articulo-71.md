@@ -1,1 +1,1 @@
-Artículo 71.—Los órganos del Ministerio que se contemplan en el presente decreto deberán actuar bajo los criterios de desconcentración o descentralización establecidos por el Ministro del ramo.
+Artículo 71 .—Además de la organización prevista en el presente Decreto, cada dependencia definirá las secciones o unidades que sus necesidades organizacionales y el servicio público demanden en el plazo máximo de tres meses a partir de la vigencia del presente decreto.

@@ -1,3 +1,5 @@
-Artículo 66.—Son funciones de la Sección de Informática de Gestión:
-Optimizar el uso de los equipos de computación y la aplicación de los programas de Informática, atinentes al área administrativa tanto de las Oficinas Centrales, como de las Regiones Educativas.
-Asesorar a las autoridades del Ministerio de Educación Pública en la adquisición y mantenimiento del equipo de cómputo.
+Artículo 66.—Son funciones de la Oficina de Educación Ecológica:
+a) Realizar investigaciones sobre los perfiles ecológicos de las Regiones Educativas.
+b) Coordinar con la División de Desarrollo Curricular la inserción de temas relacionados con la educación ecológica en los planes y programas de estudio.
+c) Promover programas de información y divulgación sobre temas relacionados con la educación ecológica.
+ch) Coordinar con el Centro Nacional de Didáctica (CENADI), la capacitación de los educadores en el desarrollo de temas de educación ecológica.

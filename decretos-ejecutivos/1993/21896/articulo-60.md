@@ -1,3 +1,1 @@
-CAPITULO V
-OTRAS DEPENDENCIAS
-Artículo 60.—Dependiendo del Despacho del Ministro de Educación Pública funcionarán las oficinas de Relaciones Públicas, la de Asuntos Internacionales y la de Educación Ecológica, las que tendrán por cometido apoyar las acciones del Ministro en sus respectivos ámbitos de competencia.
+Artículo 60.—El Departamento de Inspección de centros educativos privados es el encargado de ejercer la inspección constitucional que el Ministerio de Educación Publica debe ejercer sobre todo centro docente privado, así como otorgarles el reconocimiento oficial cuando así lo soliciten, previa comprobación del cumplimiento de los requisitos establecidos.

@@ -1,7 +1,9 @@
-Artículo 56.—Corresponde a la Subdirección:
-a) Participar en la elaboración de los planes de trabajo de la División.
-b) Asumir el control sobre la correcta ejecución de los planes, programas, proyectos y actividades de la División de acuerdo con lineamientos del director y mantenerlo debidamente informado.
-c) Contribuir con la dirección en la supervisión administrativa y técnica de los funcionarios de la División.
-ch) Revisar informes, estudios y documentos generales que le sean encargados a la División para garantizar el cumplimiento del objetivo para el cual fueron solicitados.
-d) Propiciar actividades tendientes a lograr un ambiente de trabajo sano, creativo y armonioso.
-e) Recomendar ajustes en las normas y métodos de trabajo para mejorar los procedimientos administrativos y técnicos de la División.
+Artículo 56.—Son funciones de la División de Operaciones:
+a) Realizar estudios que permitan conocer el grado de eficiencia y eficacia de las funciones que competen a las Direcciones de Regiones Educativas.
+b) Supervisar el desarrollo de los planes, programas y proyectos que se ejecutan en las Regiones Educativas.
+c) Establecer las directrices referentes a la supervisión de las acciones que deben cumplirse en las Regiones Educativas.
+ch) Recomendar a las autoridades superiores acciones correctivas que garanticen la eficiencia y eficacia del servicio que deben brindar las Regiones Educativas.
+d) Ejercer la inspección estatal en los centros privados de enseñanza.
+e) Garantizar el cumplimiento de las disposiciones y normas que deban observarse en el ámbito regional.
+f) Supervisar el cumplimiento de las normas, los procedimientos y la legislación a nivel regional y nacional.
+g) Solicitar informes periódicos a las Regiones Educativas sobre los logros alcanzados en la gestión educativa.

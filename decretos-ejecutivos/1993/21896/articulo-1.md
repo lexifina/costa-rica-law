@@ -14,9 +14,10 @@ Considerando:
 9°—Que el D.E. N° 16638MEP. del 10 de octubre de 1985 y sus reformas, define la organización administrativa de las oficinas centrales del Ministerio de Educación Pública, pero no responde a la realidad actual ni satisface las necesidades organizativas, administrativas, ni los objetivos de eficiencia, regionalización y modernización del Estado costarricense.
 10.—Que se impone, consecuentemente, revisar la organización de las oficinas centrales del Ministerio de Educación Pública, con el propósito fundamental de adecuarla al proceso de descentralización que se ha iniciado por medio de la regionalización educativa, ya en marcha, y a los cambios cualitativos que lleva a cabo el Ministerio de Educación Pública. Por tanto,
 En ejercicio de sus atribuciones constitucionales,
+NOTA DE SINALEVI: El texto de este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, mediante decreto ejecutivo N° 22612 del 13 de octubre de 1993, publicado en La Gaceta N° 210 del 3 de noviembre de 1993, por lo que su texto es el siguiente:
 DECRETAN:
 LA ORGANIZACIÓN ADMINISTRATIVA DE LAS ORCINAS CENTRAL
 DEL MINISTERIO DE EDUCACIÓN PUBLICA
 CAPITULO I
 De las generalidades
-Artículo 1°—E1 presente Decreto tiene por objeto definir y establece organización administrativa de las oficinas centrales del Ministerio de Educación Pública.
+Artículo 1°—El presente decreto tiene por objeto definir y establecer la organización administrativa de las oficinas centrales del Ministerio de Educación Pública.

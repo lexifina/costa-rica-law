@@ -1,1 +1,1 @@
-Artículo 3°—Al Área Determinativa le corresponde la dirección del Ministerio de Educación Pública, la conducción de políticas educativas, la ejecución de las directrices emanadas del Consejo Superior de Educación y el cumplimiento de las funciones técnico administrativas propias.
+Artículo 3°--- Al Área Determinativa le corresponde la dirección del Ministerio de Educación Pública, la conducción de políticas educativas, la ejecución de las directrices emanadas del Consejo Superior de Educación y el cumplimiento de las funciones técnico-administrativas propias.
