@@ -1,4 +1,5 @@
-Artículo 32.—Cuando por la naturaleza de la contratación o por estar sujeto el procedimiento al refrendo de la Contraloría, en aquellos casos que supere los dieciocho millones, corresponderá a la Proveeduría enviar para la confección del contrato el expediente con toda la documentación que se señala en el artículo 31 inciso 3) de este Manual, al Departamento de Asesoría Jurídica para que procediere conforme en un plazo de diez días hábiles para lo cual se seguirán los siguiente pasos:
+Artículo 32.—Cuando por la naturaleza de la contratación o que por su monto esté sujeto el procedimiento al refrendo de la Contraloría, corresponderá a la Proveeduría enviar para la confección del contrato el expediente con toda la documentación que se señala en el artículo 31 inciso 3) de este Manual, al Departamento de Asesoría Jurídica para que procediere conforme en un plazo de diez días hábiles para lo cual se seguirán los siguiente pasos:
+(Así reformado por acuerdo publicado en la Gaceta N° 31 del 13 de febrero del 2003).
 a) El Departamento de Asesoría Jurídica elaborará el Contrato el cual incluirá al menos la siguiente información:
 - Identificación de las partes contratantes.
 - Descripción amplia del objeto de la contratación.

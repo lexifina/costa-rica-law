@@ -15,3 +15,4 @@ Manual de Procedimientos de Compras Registro Nacional
 | --- | --- | --- |
 | 1 | 2002-04-08 | la propia norma |
 | 2 | 2002-10-24 | Reglamento 41 (2002-10-24) |
+| 3 | 2003-02-04 | Reglamento 0 (2003-02-04) |

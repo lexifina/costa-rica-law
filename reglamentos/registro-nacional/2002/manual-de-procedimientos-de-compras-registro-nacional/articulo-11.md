@@ -1,1 +1,2 @@
-Artículo 11.—La Proveeduría, a fin de mantener actualizado el Registro de Proveedores, invitará a los interesados en integrarlo, mediante publicación en el Diario Oficial y dos diarios de circulación nacional al menos una vez al año.
+Artículo 11.—La Proveeduría, a fin de mantener actualizado el Registro de Proveedores, invitará a los interesados en integrarlo, mediante publicación en el Diario Oficial La Gaceta y dos diarios de circulación nacional al menos tres veces al año en dicha publicación se indicarán las licitaciones próximas a realizarse.
+(Así reformado por acuerdo publicado en la Gaceta N° 31 del 13 de febrero del 2003).
