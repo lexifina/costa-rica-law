@@ -1,0 +1,1 @@
+Artículo 78.-Las vacantes que resulten en las Cámaras, se llenar n con los respectivos suplentes; y si el número de estos no alcanzare llenarlas, se nombrarán otros nuevos, quienes solamente durar n en sus destinos hasta la próxima renovación de la respectiva Cámara.

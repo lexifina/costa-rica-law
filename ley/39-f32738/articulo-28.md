@@ -1,0 +1,1 @@
+Artículo 28.-Para el último día de febrero, la Junta debe haber formado, y el Presidente fijado en copia, una lista complementaria de todos los sufragantes parroquiales que la Junta haya inscrito virtud de las reclamaciones de que trata el artículo anterior. Otra copia se remitir la Junta de cabecera de Canton.

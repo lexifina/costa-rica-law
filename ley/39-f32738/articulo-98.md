@@ -1,0 +1,1 @@
+Artículo 98.-Las nulidades espresadas en el artículo anterior, afectan individualmente cada uno de los votos contenidos en el mismo registro, y no porque alguno algunos de los votos sean nulos, lo son aquellos que no contienen las mismas u otras nulidades.

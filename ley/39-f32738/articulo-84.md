@@ -1,0 +1,1 @@
+Artículo 84.-Cualquier miembro del Congreso podrá entonces pedir que se declare que no hay elección, si creyere que el que ha reunido la expresada pluralidad de votos, no tiene las cualidades requeridas por la Constitución. En este caso se proceder como queda dispuesto en el artículo 80.

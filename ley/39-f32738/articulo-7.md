@@ -1,0 +1,1 @@
+Artículo 7°. -La Provincia de Guanacaste se compone de la ciudad de Liberia, su capital, y de las villas Nicoya, Santa Cruz, Bagaces y Cañas. Se divide en cuatro Cantones con los nombres de la ciudad y villas que se han dicho, que ser n la cabecera de Cantón; y quedando la última comprendida en la que le precede, y subdivididas en dos Distritos por cada Cantón.

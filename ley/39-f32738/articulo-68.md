@@ -1,0 +1,6 @@
+Artículo 68.-Las papeletas serán firmadas por los electores, pudiendo inscribirse en una sola el nombre de todos los Senadores, y en otra el de todos los Representantes que deban nombrarse.
+1°El Presidente de la Electoral recoger las papeletas en una urna y después las leer en voz alta de una en una, manifestándolas los Escrutadores, quienes llevarán cuenta de los votos que resulten favor de cada individuo y concluido el escrutinio publicarán su resultado.
+2°Si del escrutinio no resultare elección en favor de alguna persona para Senador Representante, se repetir la votación entre los que tengan mayor número de votos.
+3°Hecha la elección de Senadores y Representantes, el Presidente en seguida nombrar, de entre la Asamblea Electoral, dos individuos que adjuntos al Directorio, procedan calificar los electos, publicándose incontinenti presencia de la Asamblea Electoral, el resultado de la calificación. En caso de no ser calificado, alguno de los electos, se repondrá inmediatamente la elección.
+4°En seguida, el Presidente de la Asamblea Electoral, declarar electos para Senadores y Representantes principales y suplentes, de uno en uno, los que hubieren obtenido la pluralidad legal.
+5°El Secretario formar un legajo de todas las papeletas, y las archivar en la Secretaria Municipal para que en todo tiempo conste el voto de cada uno de los electores.

@@ -1,0 +1,1 @@
+Artículo 30.-Las funciones de las Juntas calificadoras, durar n hasta el aparecimiento de las que deban subrogarlas. Dichas Juntas cada año revisar n las listas de los sufragantes para adicionar los que, de nuevo, conforme la ley, deban inscribirse a testar los que según ella deban ser excluidos.

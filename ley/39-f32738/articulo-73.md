@@ -1,0 +1,1 @@
+Artículo 73.-Constituye el quórum legal de las Asambleas Electorales, las dos terceras partes por lo menos de sus electores que la ley previene; y la pluralidad legal, la mitad y uno más de los votos de los electores que hayan concurrido la elección.
