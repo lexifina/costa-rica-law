@@ -1,0 +1,2 @@
+Respecto de abogados y mandatarios judiciales
+Artículo 488.-Será reprimido con multa mayor en su grado primero e inhabilitación temporal para el ejercicio de profesiones titulares en su grado primero, el abogado o procurador judicial que defendiere o representaré partes contrarias en el mismo juicio, simultanea o sucesivamente, o que de cualquier otro modo perjudicare con malicia la causa que Ie estuviere confiada.

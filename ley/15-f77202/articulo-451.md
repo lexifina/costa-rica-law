@@ -1,0 +1,2 @@
+Hechos y traducción falsos
+Artículo 451.-El perito que al emitir un dictamen en materia judicial, adujere para fundarlo hechos evidentemente falsos, y el intérprete que maliciosamente tradujere con falsedad y con perjuicio para cualquiera de Ias partes contendientes, Ia declaración o documento de cuya versión esté encargado, serán castigados con multa mayor en sus grados primero a segundo e inhabilitación temporal para cargos y oficios públicos en sus grados primero a tercero.

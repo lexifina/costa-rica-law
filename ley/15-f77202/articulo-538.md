@@ -1,0 +1,2 @@
+Derogatoria de leyes
+Artículo 538.--Quedan derogadas todas las leyes punitivas referentes a los hechos previstos y penados en este Código, aun las que hayan especializado la represión de determinados delitos, con excepción de Ios que tengan el carácter de militares por referirse al servicio y disciplina del Ejército en paz o en guerra, y excluyendo también las infracciones que constituyan Ia materia exclusiva del Código Fiscal, sin perjuicio de Ias jurisdicciones instituidas por la Ley Orgánica de Tribunales y los Códigos de Procedimientos.

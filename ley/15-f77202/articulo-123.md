@@ -1,0 +1,2 @@
+Inhabilitación absoluta e inhabilitación especial
+Artículo 123.-Siempre que la ley emplee indeterminadamente la expresión de inhabilitación absoluta, debe estimarse que implica la incapacidad para el ejercicio de Ios derechos políticos, cargos u oficios públicos y profesiones titulares en general. Si la denominación empleada fuere Ia de inhabilitación especial, sin ningún complemento explicativo, debe entenderse que sólo estatuye la incapacidad para los cargos y oficios públicos que el culpable ejerza.

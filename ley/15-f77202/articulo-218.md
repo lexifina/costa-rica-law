@@ -1,0 +1,2 @@
+Insolvencia del reo
+Artículo 218.-En caso de insolvencia total o parcial del delincuente condenado a presidio, prisión o arresto, la reparación se hará con el producto del trabajo del penado según se establece en los artículos 91, 92 y 94, y en su caso con los fondos de la Caja de Indemnización a que se refiere el artículo 129, a los cuales se acudirá subsidiariamente, cada vez en que no haya otro medio para realizar la reparación civil.

@@ -1,0 +1,1 @@
+Artículo 329.-El subastador y su cómplice, que símularen pujas o posturas en un remate para elevar el precio de la cosa subastada, sufrirán multa mayor en cualquiera de sus grados e inhabilitación para el ejercicio de cargos y oficios públicos en sus grados primero a tercero.
