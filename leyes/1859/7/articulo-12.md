@@ -1,0 +1,1 @@
+ARTÍCULO 12°. -Practicada la liquidación de que habla el inciso 2° del artículo 10, la Contaduría del Crédito Público extender por los intereses vencidos hasta el 31 de agosto próximo, cédulas contra el Tesoro, que correr n a la par de los bonos u obligaciones que no devengan intereses.

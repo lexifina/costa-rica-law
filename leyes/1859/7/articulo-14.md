@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Cuando las ocupaciones de la oficina de la Contaduría del Crédito Público lo permitan, se ocupar bajo la misma dotación, de la visacion, glosa y fenecimiento de las cuentas rezagadas de que habla el capítulo 5°, sección 1° del Reglamento de Hacienda.

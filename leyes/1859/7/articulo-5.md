@@ -1,0 +1,2 @@
+ARTÍCULO 5°. -. -Las cantidades que en virtud de las disposiciones precedentes ingresen en dinero a la Aduana del Río grande, se dedican exclusivamente al pago de intereses de los documentos de la deuda pública que los tienen asignados.
+único. -En consecuencia, el Administrador de dicha Aduana pasará cada semestre a la oficina de la "Contaduría del Crédito público," que por el artículo 8° de la presente Ordenanza se crea, las cantidades que haya colectado.

@@ -1,0 +1,9 @@
+ARTÍCULO 10.-Son obligaciones de esta oficina:
+1° Tomar razón con la debida separación y con la mayor decisión y claridad, de todas las obligaciones del crédito público que actualmente circulan, de cualquiera naturaleza que sean.
+2° Liquidar los intereses de aquellas que los tengan asignados, hasta el último de agosto del presente año.
+3° Preparar, con presencia de estos conocimientos, cédulas de iguales valores a los de los 18 principales que aparezcan anotados, para cambiarlas por los bonos y documentos actuales contra el Tesoro. Estas cédulas se emitir n por valor de cinco hasta cien pesos voluntad del portador, tendrán la toma de razón de la Contaduría mayor, y dem s formalidades necesarias, y contendrán la especificación de si gozan no de interés, y cual sea este.
+4° Llevar cuenta exacta de las cédulas que se den en cambio; y agregar a ella, como comprobantes y con la debida cancelación, los bonos u obligaciones recibidas de los tenedores.
+5° Examinar escrupulosamente todas y cada una de las obligaciones que se le presenten; y en caso de que aparezcan algunas duplicadas falsificadas, dar parte inmediatamente al Juez de Hacienda para que este proceda la averiguación de cualquier fraude que perjudique la renta.
+6° Recibir, con la debida cuenta y razón, las cantidades que están destinadas al pago de los intereses de la deuda pública.
+7° Liquidar y pagar estos intereses en su debido tiempo, poniendo en las cédulas la razón de: "pagados los intereses hasta tal fecha."
+8° Presentar por duplicado la Secretaria de Hacienda, tan luego como espire el término que se fija para el cambio de los actuales bonos y obligaciones por cédulas del crédito público, un cuadrante exacto de las diversas cantidades que adeuda la Nación; especificando en ‚ las diferentes clasificaciones de la deuda.

@@ -1,0 +1,1 @@
+ARTICULO 22.-Los nuevos billetes se ir n poniendo en circulación en cantidades iguales las que vayan ingresando de los antiguos en la Administración principal, quien sentar la partida correspondiente de cargo, firmada por el Subsecretario de Hacienda.

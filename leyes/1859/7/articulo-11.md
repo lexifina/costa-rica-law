@@ -1,0 +1,1 @@
+ARTÍCULO 11°. -La oficina de la "Contaduría del Crédito Público" principiar desempeñar sus funciones el día 1° de Junio próximo; y los tenedores de cualquiera clase de obligaciones contra el Tesoro, las presentarán dicha oficina dentro de los sesenta días siguientes su apertura; en la inteligencia de que aquellas que no sean presentadas en este término, quedar n sin ningún valor.
