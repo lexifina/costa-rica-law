@@ -1,0 +1,1 @@
+Artículo 11.—El quorum de las sesiones se formará con cinco miembros. El gerente, Subgerente, Auditor y Asesor Legal, deberán asistir a las sesiones de la Junta, así como cualquier otro funcionario cuando fueren llamados, teniendo todos ellos voz pero no voto.
