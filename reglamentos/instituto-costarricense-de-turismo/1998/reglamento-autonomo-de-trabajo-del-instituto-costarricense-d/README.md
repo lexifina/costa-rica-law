@@ -15,3 +15,4 @@ Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
 | --- | --- | --- |
 | 1 | 1998-09-07 | la propia norma |
 | 2 | 2002-05-02 | Reglamento 5173 (2002-05-02) |
+| 3 | 2002-05-02 | Ley 8 |
