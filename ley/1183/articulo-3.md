@@ -1,0 +1,1 @@
+Artículo 3°.- La Municipalidad garantizará este crédito al Banco con las rentas que produzca el Mercado de Víveres Municipal, pudiendo el acreedor, como Administrador que es de las rentas de la Corporación, separar de los depósitos que ésta haga en su cuenta corriente, las sumas necesarias para cubrir los intereses y amortización dichos.

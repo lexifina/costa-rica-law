@@ -1,0 +1,2 @@
+Artículo 4°.- La Contraloría General de la República, y mientras esta Oficina no exista, la Inspección General de Hacienda Municipal, controlará la inversión del préstamo; y no aprobará los presupuestos anuales de dicha Corporación sin se hubieren determinado y apartado los fondos necesarios para cubrir las amortizaciones e intereses dichos, hasta su total cancelación.
+Casa Presidencial, San José, a los ocho días del mes de julio de mil novecientos cincuenta.
