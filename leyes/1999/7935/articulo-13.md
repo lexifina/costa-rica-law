@@ -1,10 +1,3 @@
 ARTÍCULO 13.- Atención preferencial
-Toda institución pública o privada que así lo acuerde que brinde
-servicios al público deberá mantener una infraestructura adecuada,
-asientos preferenciales y otras comodidades para el uso de las personas
-adultas mayores que los requieran; además, deberá ofrecerles los recursos
-humanos necesarios para que se realicen procedimientos alternativos en los
-trámites administrativos, cuando tengan alguna discapacidad.
-En el transporte público, el Estado deberá exigir la existencia de
-asientos preferenciales debidamente señalados para las personas adultas
-mayores, así como la eliminación de barreras arquitectónicas.
+Toda institución pública o privada que así lo acuerde que brinde servicios al público deberá mantener una infraestructura adecuada, asientos preferenciales y otras comodidades para el uso de las personas adultas mayores que los requieran; además, deberá ofrecerles los recursos humanos necesarios para que se realicen procedimientos alternativos en los trámites administrativos, cuando tengan alguna discapacidad.
+En el transporte público, el Estado deberá exigir la existencia de asientos preferenciales debidamente señalados para las personas adultas mayores, así como la eliminación de barreras arquitectónicas.

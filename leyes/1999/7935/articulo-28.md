@@ -1,7 +1,2 @@
 ARTÍCULO 28.- Previsiones especiales
-El Instituto Nacional de Vivienda y Urbanismo y las municipalidades
-exigirán que los planos de construcción de los establecimientos públicos,
-comerciales, de servicio o entretenimiento prevean los requerimientos de
-construcción adecuados para las personas adultas mayores, de acuerdo con
-las recomendaciones fijadas por el Consejo Nacional de la Persona Adulta
-Mayor.
+El Instituto Nacional de Vivienda y Urbanismo y las municipalidades exigirán que los planos de construcción de los establecimientos públicos, comerciales, de servicio o entretenimiento prevean los requerimientos de construcción adecuados para las personas adultas mayores, de acuerdo con las recomendaciones fijadas por el Consejo Nacional de la Persona Adulta Mayor.
