@@ -1,0 +1,1 @@
+Art 5°.- También podrán dichos Subdelegados oir las demandas que ocurran en la materia de que habla el art° anterior, por el mismo orden prevenido en el reglamento sobre-dicho, en el concepto de que no se hubiese establecido la Diputación.

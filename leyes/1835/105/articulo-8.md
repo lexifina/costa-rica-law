@@ -1,0 +1,1 @@
+Art 8.- En caso de vacante, y mientras se provea, o en caso de imposibilidad temporal de los Jefes Políticos departamentales, hará sus veces el Alcalde segundo del lugar de su permanencia, como en quien reside la autoridad Política de los pueblos, con el goce de las dos terceras aprtes del sueldo
