@@ -1,0 +1,1 @@
+Artículo 14.—Mientras el proveedor se mantenga incluido dentro de este Registro, la Caja, por medio del personal de la Sección de Nutrición de la Dirección Técnica de Servicios de Salud, podrá evaluar sin previo aviso, la veracidad de los documentos y el mantenimiento de las condiciones técnico-sanitarias documentadas por el proveedor o por el ente certificador externo aceptado.

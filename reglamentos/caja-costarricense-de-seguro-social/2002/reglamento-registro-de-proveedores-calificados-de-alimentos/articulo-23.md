@@ -1,0 +1,1 @@
+Artículo 23.—En todos los procesos citados en los artículos anteriores, es responsabilidad de los funcionarios de la Caja asegurarse ante el Departamento de Adquisiciones que el o los proveedores participantes están regularmente inscritos en el Registro de Proveedores Calificados.

@@ -1,0 +1,1 @@
+Artículo 10.—El Departamento de Adquisiciones, en coordinación con la Sección de Nutrición, procederá a evaluar la exactitud, concordancia y veracidad de la documentación presentada y comunicará al interesado el resultado de su solicitud de inscripción en el Registro de Proveedores, en un plazo máximo de 30 días naturales a partir de la fecha en que fue recibida.

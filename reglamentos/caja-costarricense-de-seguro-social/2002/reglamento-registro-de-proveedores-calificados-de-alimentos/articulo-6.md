@@ -1,0 +1,1 @@
+Artículo 6º—Los costos derivados de todas las acciones ejecutadas para cumplir con las especificaciones del presente reglamento, tales como: certificaciones, programas de capacitación, visitas de inspección y análisis de laboratorio, deberán ser cubiertos por el proveedor interesado en pertenecer al registro.

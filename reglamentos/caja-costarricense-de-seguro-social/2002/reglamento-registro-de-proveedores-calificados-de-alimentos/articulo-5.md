@@ -1,0 +1,1 @@
+Artículo 5º—Los proveedores incluidos en dicho registro serán los únicos que podrán participar en los diferentes procesos de compra de alimentos realizados por las diferentes unidades operativas de la Caja.

@@ -1,0 +1,1 @@
+Artículo 2º—El presente Reglamento se aplicará a los proveedores de todos los tipos de alimentos ofrecidos a los Servicios de Nutrición de la Caja Costarricense de Seguro Social y se utilizará en todos los procesos de compra de alimentos.
