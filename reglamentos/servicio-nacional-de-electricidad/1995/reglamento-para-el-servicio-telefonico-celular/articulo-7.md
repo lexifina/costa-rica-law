@@ -1,0 +1,3 @@
+Artículo N° 7 Áreas de Cobertura del Servicio Celular
+El servicio de telefonía celular tendrá las áreas de cobertura dentro de las cuales el LC.E. garantiza la propagación normal de las ondas de radio, desde las celdas o estaciones repetidoras que se instalen para brindar el servicio, las cuales se harán de conocimiento del cliente y del S.N.E.
+El I.C.E. no asume ninguna responsabilidad, ni el cliente el derecho a formular reclamo alguno, cuando no le sea posible comunicarse con zonas que no se encuentren cubiertas por la propagación normal de las ondas de radio, desde las celdas o estaciones repetidoras que se instalen para brindar el servicio.

@@ -1,0 +1,8 @@
+Artículo N° 4 Depósito de Garantía
+a. El depósito de garantía responderá por deudas que sobre el mismo servicio tenga pendientes el cliente, cuando se retire bajo cualquier circunstancia. Es entendido que el I.C.E. podrá cobrarle al cliente la suma pendiente que exceda del monto de esa garantía.
+b. El I.C.E. podrá exigir un depósito de garantía adicional que se sumará a los establecidos, cuando el consumo promedio mensual por el tráfico telefónico de un servicio celular, en el transcurso de tres facturaciones consecutivas, de acuerdo con el programa cíclico de facturación, duplique el monto de su depósito vigente.
+Este depósito adicional será fijado en un 25% del consumo promedio mensual por tráfico telefónico en esas tres facturaciones consecutivas y responderá por deudas que sobre el mismo servicio tenga pendientes.
+c. El valor del depósito de garantía le será devuelto al cliente en caso de que renuncie al servicio y se encuentre al día en sus obligaciones derivadas del i servicio celular. En el caso del depósito de garantía adicional, éste le será devuelto cuando el consumo del cliente en cuestión, disminuya a un comportamiento que el I.C.E. considere habitual y su devolución sea solicitada por dicho cliente.
+d. El I.C.E. deberá reintegrar el depósito de garantía en un plazo máximo de un mes, posterior a la liquidación contable del servicio celular o a la solicitud de devolución, en caso de un depósito adicional.
+El I.C.E. remitirá copia al S.N.E. de la documentación tramitada, en los casos que se aplique este inciso.
+El S.N.E. como Organismo Regulador, controlará las circunstancias de su aplicación.

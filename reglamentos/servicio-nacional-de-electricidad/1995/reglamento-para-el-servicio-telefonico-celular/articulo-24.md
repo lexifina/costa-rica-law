@@ -1,0 +1,2 @@
+Artículo N° 24 Responsabilidad por interferencias
+El I.C.E. no asume responsabilidad por interferencias o intervenciones dolosas derivadas de las limitaciones tecnológicas propias del Sistema Advance Movil Phone System (AMPS) o cualquier otro sistema que llegue a utilizar, siempre y cuando sea demostrable que técnicamente los sistemas celulares por sí solos carecen de los medios de seguridad para evitar estos eventos.
