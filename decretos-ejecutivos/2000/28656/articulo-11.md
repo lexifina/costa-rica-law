@@ -1,1 +1,0 @@
-Artículo 11.—Informe Trimestral. La Proveeduría Institucional de cada Ministerio mantendrá la obligación de remitir a la Proveeduría Nacional el informe estipulado por el artículo 107 del Reglamento General de Contratación Administrativa.
