@@ -14,3 +14,4 @@ Convenio de Financiación entre las Comunidades Europeas y las Repúblicas de Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-08-29 | la propia norma |
+| 2 | 1998-02-02 | Decreto Ejecutivo 26780 (1998-02-02) |
