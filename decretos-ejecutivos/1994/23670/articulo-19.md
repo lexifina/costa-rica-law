@@ -1,2 +1,0 @@
-Artículo 19.-Las unidades ejecutoras deberán separar los fondos recibidos en una cuenta especial, elaborar registros contables independientes y eficaces que permitan identificar y controlar los activos que se adquieran con recursos del Fondo.
-Tales bienes y suministros por utilizar para el desarrollo del programa, deberán mantenerse físicamente separados y deben ser llevados bajo el sistema de inventario permanente.

@@ -1,2 +1,0 @@
-Artículo 42.- Se derogan los decretos Nº 18466-TSS del 13 de setiembre de 1988 y el Nº 16898-TSS del 11 de febrero de 1986.
-Transitorio Unico.-Hasta tanto no se hagan los estudios pertinentes que sirvan para establecer la reglamentación general de beneficios y beneficiarios del Fondo, de acuerdo con los artículos 2º y 8º de la Ley, será facultad de la DESAF estudiar y aprobar con base a los lineamientos del Area Social los requisitos que las instituciones participantes deberán proponer, para definir los beneficios del programa correspondiente.
