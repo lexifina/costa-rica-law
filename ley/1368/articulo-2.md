@@ -1,0 +1,1 @@
+Artículo 2°.- Al elaborar casa presupuesto anual dicha municipalidad incluirá los auxilios que esta ley autoriza, sobra la base mínima de trescientos sesenta y dos colones (¢362.00), para la Escuela Complementaria, y de doscientos sesenta colones (¢270.00), para la de Adultos, siempre que las posibilidades presupuestales lo permitan.
