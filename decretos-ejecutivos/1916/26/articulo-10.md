@@ -1,0 +1,1 @@
+Artículo 10.—Para los efectos de la pensión, el tiempo servido en el magisterio no comenzará a contarse sino a partir de la fecha en que fue emitida la Ley General de Educación Común, que creó el Fondo de Pensiones (26 de febrero de 1886).

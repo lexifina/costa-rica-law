@@ -1,0 +1,1 @@
+Artículo 3°. — No será considerada la solicitud que no venga acompañada de alguno de estos documentos; tampoco lo será si en alguno de ellos faltare o apareciere confuso o ambiguo alguno de los datos que se exigen.

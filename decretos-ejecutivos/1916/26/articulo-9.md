@@ -1,0 +1,1 @@
+Artículo 9°.— También será motivo de preferencia a juicio de la Secretaría de Instrucción Pública, y, en este caso, atendiendo a los intereses de la enseñanza, la calidad de los servicios que el maestro solicitante haya prestado, según se desprenda de su expediente y del informe presentado por la Junta Calificadora.
