@@ -1,17 +1,5 @@
 SECCIÓN II
 SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
-ARTÍCULO 22.- Sistema Nacional de Áreas de Conservación
-Créase el Sistema Nacional de Áreas de Conservación, en adelante
-denominado Sistema, que tendrá personería jurídica propia; será un sistema
-de gestión y coordinación institucional, desconcentrado y participativo,
-que integrará las competencias en materia forestal, vida silvestre, áreas
-protegidas y el Ministerio del Ambiente y Energía, con el fin de dictar
-políticas, planificar y ejecutar procesos dirigidos a lograr la
-sostenibilidad en el manejo de los recursos naturales de Costa Rica.
-Conforme a lo anterior, la Dirección General de Vida Silvestre, la
-Administración Forestal del Estado y el Servicio de Parques Nacionales
-ejercerán sus funciones y competencias como una sola instancia, mediante
-la estructura administrativa del Sistema, sin perjuicio de los objetivos
-para los que fueron establecidos. Queda incluida como competencia del
-Sistema la protección y conservación del uso de cuencas hidrográficas y
-sistemas hídricos.
+ARTÍCULO 22.-
+Sistema Nacional de Áreas de Conservación Créase el Sistema Nacional de Áreas de Conservación, en adelante denominado Sistema, que tendrá personería jurídica propia; será un sistema de gestión y coordinación institucional, desconcentrado y participativo, que integrará las competencias en materia forestal, vida silvestre, áreas protegidas y el Ministerio del Ambiente y Energía, con el fin de dictar políticas, planificar y ejecutar procesos dirigidos a lograr la sostenibilidad en el manejo de los recursos naturales de Costa Rica.
+Conforme a lo anterior, la Dirección General de Vida Silvestre, la Administración Forestal del Estado y el Servicio de Parques Nacionales ejercerán sus funciones y competencias como una sola instancia, mediante la estructura administrativa del Sistema, sin perjuicio de los objetivos para los que fueron establecidos. Queda incluida como competencia del Sistema la protección y conservación del uso de cuencas hidrográficas y sistemas hídricos.
