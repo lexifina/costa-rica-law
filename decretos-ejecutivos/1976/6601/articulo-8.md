@@ -1,0 +1,1 @@
+Artículo 8°-El mejor trabajo de investigación, en los campos señalados en el artículo 1° de este decreto, será premiado con la suma de ¢ 20,000.00 (veinte mil colones), más un pergamino firmado por el Ministro de Cultura, Juventud y Deportes y el Presidente del Consejo Directivo del CONICIT.

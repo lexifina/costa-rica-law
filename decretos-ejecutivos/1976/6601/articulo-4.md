@@ -1,0 +1,1 @@
+Artículo 4°-Para la integración del jurado, las instituciones representadas en él deberán enviar las ternas respectivas al Ministerio de Cultura, Juventud y Deportes, a más tardar el último día del mes de enero de cada dos años.

@@ -1,0 +1,1 @@
+Artículo 5°-Nombrado mediante acuerdo del Ministerio de Cultura, Juventud y Deportes, el jurado se reunirá por lo menos bimestralmente, y deberá, en la primera reunión que celebre, nombrar de su propio seno y por simple mayoría de votos a un Presidente y a un Secretario de Actas.

@@ -1,0 +1,1 @@
+Artículo 6°-El jurado conocerá y considerará todas las publicaciones de investigación (libros, artículos de revistas y tesis), que hayan aparecido en el país o en el extranjero durante un período de dos años y que sean remitidas a éste por los interesados.
