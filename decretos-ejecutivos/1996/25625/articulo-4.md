@@ -1,0 +1,1 @@
+Artículo 4°-Los recursos financieros de cooperación, tanto locales como internacionales, destinados a impulsar y apoyar iniciativas en el área de violencia intrafamiliar, deberán ser conocidos por esta comisión y su uso y distribución deberá realizarse mediante acuerdo de la Comisión.
