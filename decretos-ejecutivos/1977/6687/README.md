@@ -16,3 +16,4 @@ Reglamento de Establecimientos Privados de Enseñanza
 | 1 | 1977-01-26 | la propia norma |
 | 2 | 1981-06-10 | Decreto Ejecutivo 12711 (1981-06-10) |
 | 3 | 1991-01-04 | Decreto Ejecutivo 20108 (1991-01-04) |
+| 4 | 1992-11-24 | SINALEVI (sin norma nombrada) |

@@ -1,6 +1,6 @@
 (Derogado)
 N° 6687
-(Este decreto fue derogado por el artículo 2° del Reglamento de Establecimientos Privados de Enseñanza, aprobado mediante decreto ejecutivo N° 20108 mediante publicación efectuada en La Gaceta N° 3 del 4 de enero de 1991).
+(Este decreto ejecutivo fue derogado por el artículo 2° del decreto ejecutivo N° 20108 mediante publicación efectuada en La Gaceta N° 3 del 4 de enero de 1991 y posteriormente por resolución de la Sala Constitucional N° 3550-92 del 24 de noviembre de 1992)
 EL PRESIDENTE DE LA REPUBLICA
 y EL MINISTRO DE EDUCACION PUBLICA,
 En ejercicio de sus atribuciones constitucionales, lo dispuesto por el artículo 81 de la Constitución Política y la Ley Orgánica del Ministerio de Educación Pública, y vistos los acuerdos tomados por el Consejo Superior de Educación en sus sesiones del 28 de junio, 17 de agosto y 16 de noviembre, todas de 1976,
