@@ -1,0 +1,5 @@
+Artículo 7º—Modifíquese el artículo 46 cuya numeración se cambia a 49 en este Decreto para que se lea:
+"Artículo 49.—De la Calificación de la Comisión: Transcurrido el plazo de un mes luego de planteada la gestión de calificación a la que se refiere el artículo 43 bis de este Reglamento, sin que la Comisión haya aprobado o improbado la calificación que el promovente planteó (autocalificación), éste podrá realizar la respectiva actividad, de conformidad con el artículo 330 de la Ley General de la Administración Pública, sin perjuicio de que la Comisión ejerza las funciones previstas en el artículo 11 de la Ley, cuando así proceda.
+En caso de que exista divergencia entre el criterio del promovente y el de la Comisión, se dará audiencia al primero de conformidad con el párrafo último del artículo 11 de la Ley, teniendo que pronunciarse la Comisión en el término de un mes. El procedimiento a seguir será el sumario de conformidad con lo establecido en la Ley General de la Administración Pública".
+Rige treinta días después de su publicación.
+Dado en la Presidencia de la República.—San José, a los doce días del mes de mayo del dos mil cuatro.
