@@ -1,3 +1,0 @@
-Artículo 20.- Con su declaración los contribuyentes deberán presentar sus balances y exposiciones explicativas que la comprueben o justifiquen, los cuales deberán coincidir con los libros de contabilidad que, de acuerdo con la ley, tengan obligación de llevar.
-Las personas que tengan actividades referidas a un periodo menor de seis meses, comprendido entre el día que se iniciaran los negocios y el treinta de setiembre próximo, estarán exentas de presentar los balances y estados explicativos de esas actividades, pero el movimiento referente a esa fracción formará parte del balance que deberá acompañarse a la declaración siguiente.
-(Así reformado por el artículo 1° de la ley N° 1407 del 22 de diciembre de 1951)
