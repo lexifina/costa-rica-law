@@ -1,0 +1,1 @@
+Artículo II.—Autorízase a la Secretaría de Educación para deducir de los giros por sueldo o pensión que se extiendan a los Maestros y Profesores en servicio o pensionados, la cuota que corresponda a la Asociación Nacional de Educadores conforme al artículo 4° anterior.
