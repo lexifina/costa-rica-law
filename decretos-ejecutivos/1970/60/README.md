@@ -14,3 +14,4 @@ Concede beneficios a "Metalin Limitada" para su planta industrial destinada a la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-14 | la propia norma |
+| 2 | 1970-06-19 | Decreto Ejecutivo 1049 (1970-06-19) |
