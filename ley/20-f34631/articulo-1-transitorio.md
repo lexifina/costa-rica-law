@@ -1,2 +1,0 @@
-Artículo Transitorio.-La distribución de los expedientes que paran en los Juzgados de lo Contencioso-Administrativo y que deban pasar a otros Jueces, se hará por el Magistrado que designe la Sala Primera en cuanto a los negocios civiles, y por el que designe la Sala Segunda respecto a los penales.
-Dado en el Salón de Sesiones del Congreso, Palacio Nacional, San José, al primer día de agosto de mil novecientos dieciseis.

@@ -1,2 +1,0 @@
-Artículo 6°.-El Juez de lo Contencioso-Administrativo ser el competente, además, para tramitar y resolver, conforme a las leyes, y mientras no haya contención todos los negocios que interesen al Estado o a los Municipios, en su condición civil, como personalidades jurídicas.
-Cuando en tales negocios se suscitare contención, su suspenderán los procedimientos de jurisdicción voluntaria, hasta que no sea resuelta la contienda por el Juez ordinario a quien corresponda conocer de ella.
