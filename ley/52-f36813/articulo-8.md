@@ -1,0 +1,1 @@
+Art. 8°. -De los impedimentos y excusas y de los negocios en que los Alcaldes de los cantones menores están impedidos ó excusados, conocerá el Alcalde del cantón inmediato designado de antemano por la Corte Plena.
