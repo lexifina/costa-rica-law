@@ -1,0 +1,1 @@
+Transitorio único.- Se concede un plazo de 20 días hábiles a partir de la publicación del presente decreto, para que aquellos pescadores del distrito primero del cantón central de Puntarenas, presenten solicitudes de permiso de pesca artesanal de camarón al amparo de lo dispuesto en el decreto número 16804- MAG , modificado por el decreto número 18972- MAG del 9 de enero de 1989.
