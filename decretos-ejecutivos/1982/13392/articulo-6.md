@@ -1,0 +1,1 @@
+Artículo 6°.-Para efecto de las compras eventuales de mejoras o de terrenos situados dentro de los límites de la Reserva Biológica de Barbilla, el Servicio de Parques Nacionales firmará un convenio con la Comisión de Emergencia Nacional Reservas Indígenas, CENRI, a fin de coordinar las acciones y de definir la participación y responsabilidad de las dos entidades.

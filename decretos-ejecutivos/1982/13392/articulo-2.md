@@ -1,0 +1,1 @@
+Artículo 2°.-Las Reservas Nacionales así como los terrenos reducidos a dominio particular que adquiera el Estado, comprendidos por la anterior demarcación, son inalienables y no son susceptibles de inscripción mediante información posesoria, según lo preceptuado por los artículos 25 y 76 de la Ley Forestal y 13 de la ley N° 6084 del 24 de agosto de 1977.

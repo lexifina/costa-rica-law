@@ -1,0 +1,1 @@
+Artículo 4°.-La administración de la reserva estar a cargo del Servicio de Parques Nacionales del Ministerio de Agricultura y Ganadería, MAG, que deberá preparar y ejecutar los planes de manejo y de desarrollo.
