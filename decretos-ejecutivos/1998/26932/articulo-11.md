@@ -1,0 +1,1 @@
+Artículo 11°—La Comisión Nacional de Análisis de la Mortalidad Infantil elaborará su propio reglamento, para fijar las normas de su funcionamiento interno, a más tardar 50 días después de la promulgación del presente Decreto.

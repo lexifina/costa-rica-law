@@ -1,0 +1,1 @@
+Artículo 9°—Los miembros duraran en sus cargos tres años. La elección de los miembros propietarios y suplentes deberá hacerse bajo criterios técnicos, académicos y de idoneidad, acordes con la labor a realizar.
