@@ -1,0 +1,3 @@
+Artículo IX
+Sistemas Computarizados y Electrónicos:
+Las transacciones que se realicen mediante la utilización de cualquier sistema computarizado o electrónico se regirán por lo previsto en los respectivos contratos y en las presentes normas.

@@ -1,0 +1,10 @@
+Artículo IV
+La Apertura de las Cuentas de Ahorros por Libreta:
+Identificación: Para la apertura de una cuenta de ahorros deberá presentar el ahorrante algún documento de identificación en el que se pueda constatar su nombre completo y su edad. Si el ahorrante se presenta con alguno de sus padres se podrá prescindir del documento de identificación y el padre o la madre brindará la información requerida.
+Con la apertura de la cuenta de ahorros se le entregará al ahorrante un carné de identificación.
+Representación:
+a) Ahorrantes menores de 7 años de edad: la cuenta de ahorros se abre a nombre del niño, quien deberá estar acompañado por uno de sus padres o tutor debidamente inscrito en el Registro Civil, quienes deberán identificarse plenamente.
+b) Ahorrantes de siete (7) a quince (15) años de edad que saben leer y escribir: la cuenta de ahorros se abre a nombre del ahorrante, pudiendo hacer depósitos y retiros sin necesidad de ser representados por ninguna otra persona, siempre y cuando los retiros no superen la suma de e 1.000,00 y no se realicen en días sucesivos.
+c) Ahorrantes de quince (15) a diecisiete (17) años de edad: la cuenta de ahorros se abre a nombre del ahorrante pudiendo hacer depósitos y retiros sin necesidad de ser representados por ninguna otra persona, siempre y cuando cada retiro no supere la suma de e 5.000.00 y no se realicen en días sucesivos.
+Cuando algún ahorrante realice depósitos o retiros de su cuenta de ahorros por montos altos a consideración de la Mutual: la Institución se reserva el derecho de solicitar información adicional, en aras de la protección del menor y la responsabilidad de la Mutual.
+En todo caso ya sea en el momento de la apertura o antes de que se realice el primer retiro, el padre o la madre del ahorrante, o el representante legal deben apersonarse a la Mutual a firmar la boleta de autorización correspondiente. Por medio de dicha boleta se podrá variar el monto máximo que pueda retirar el ahorrante, lo cual modifica en cada caso las sumas antes señaladas.
