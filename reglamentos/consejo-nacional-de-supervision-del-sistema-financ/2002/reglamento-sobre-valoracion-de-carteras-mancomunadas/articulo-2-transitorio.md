@@ -1,0 +1,2 @@
+Transitorio II.—Mecanismo de ajuste del valor de las participaciones.
+El ajuste inicial que deba hacerse producto del cambio de metodología de valoración, se realizará en términos de la cantidad de participaciones, cuotas o derechos de los inversionistas en las respectivas carteras, de tal manera que el valor de la participación, cuota o derecho no se vea afectado por el cambio de metodología y la estimación de los rendimientos pasados de la cartera sea consistente en el tiempo y comparable con las de los otros fondos.

@@ -1,0 +1,2 @@
+Artículo 16.—Comunicación de la valoración diaria.
+El resultado de la valoración de las carteras deberá estar disponible diariamente para los inversionistas de la cartera respectiva, en la forma y por los medios que establezca el Superintendente respectivo. Igualmente, deberá ser comunicado a la Superintendencia correspondiente, en la forma, por los medios y con la periodicidad que cada Superintendente establezca.

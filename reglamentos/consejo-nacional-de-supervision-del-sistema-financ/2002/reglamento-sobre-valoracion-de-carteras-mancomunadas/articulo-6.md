@@ -1,0 +1,5 @@
+Artículo 6º—Inscripción de metodologías.
+Las metodologías de valoración deberán inscribirse ante la Superintendencia General de Valores.
+Tanto los administradores de carteras, como las bolsas de valores y cualquier persona física o jurídica que desee ofrecer el servicio de venta de precios, podrán solicitar la autorización para la inscripción de una metodología determinada. Para ello deberán presentar la solicitud correspondiente ante el Superintendente General de Valores, a la cual adjuntarán la descripción de la metodología, así como la información adicional que determine el Superintendente General de Valores por vía de acuerdo.
+La autorización de inscripción estará condicionada a la verificación de que la metodología propuesta cumple con los principios generales establecidos en este Reglamento y con los lineamientos metodológicos que establezca el Superintendente General de Valores por vía de acuerdo.
+La metodología correspondiente podrá ser utilizada por los administradores de cartera a partir de la comunicación de la autorización de inscripción correspondiente.

@@ -1,0 +1,4 @@
+Artículo 2º—Valores sujetos a valoración a precios de mercado.
+La valoración a precios de mercado será obligatoria para los valores accionarios y para los valores de deuda cuyo plazo de vencimiento sea mayor o igual a ciento ochenta (180) días. En el caso de los valores de deuda cuyo plazo de vencimiento sea menor, la valoración a precios de mercado será facultativa.
+En el caso de valores de deuda cuya fecha de vencimiento sea menor a ciento ochenta (180) días y que no sean valorados a precios de mercado, el administrador deberá distribuir en línea recta los beneficios o pérdidas percibidos desde el momento en que dejó de valorarse a precios de mercado hasta su vencimiento.
+Las operaciones de recompra o de reporto no requerirán de valoración a precios de mercado, sin perjuicio de la valoración a mercado que debe realizarse sobre los subyacentes de tales operaciones para efectos de sus llamadas a margen.

@@ -1,0 +1,5 @@
+CAPÍTULO III
+Aplicación de la metodología
+Artículo 12.—Responsabilidad por la valoración y contratación de terceros.
+El administrador de carteras será responsable de realizar la valoración de las carteras que administre en forma diaria y de acuerdo con la metodología seleccionada. No obstante, podrá contratar los servicios de un tercero que le provea el vector de precios para la valoración o incluso que realice la valoración de la cartera, pero esta contratación no lo eximirá de su responsabilidad por la adecuada valoración de la cartera que administre y en ese sentido será responsable ante los inversionistas de los eventuales daños producidos por dolo, culpa o negligencia en la valoración. Lo anterior no excluye la eventual responsabilidad del tercero proveedor de precios o de la valoración ante el administrador de carteras, de conformidad con lo que se pacte contractualmente.
+En caso de que el administrador resolviera contratar los servicios de un tercero, deberá remitir el contrato respectivo a la Superintendencia que corresponda, en el momento que comunique la metodología seleccionada.
