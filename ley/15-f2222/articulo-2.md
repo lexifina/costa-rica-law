@@ -1,0 +1,1 @@
+Art. 2°. —La suma que en concepto de remuneración de sus servicios haya de pagarse á la Compañía de Trust, según el artículo 7°. del convenio, no bajará de quinientas libras anuales, pero será fijada por todos los beneficiarios, entendiéndose que el Gobierno y cada una de las compañía contratantes, tendrán para ese objeto un voto igual.

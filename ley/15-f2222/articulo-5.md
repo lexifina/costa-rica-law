@@ -1,0 +1,1 @@
+Art. 5°. —Los inmigrantes que en relación con el negocio envíe al país la Compañía de Trust no serán de raza asiática, ni africana; serán personas robustas y sanas, y de ningún modo se admitirá entre ellos á individuos que estén o hayan estado condenados en los tribunales comunes como reos de crímenes ó delitos graves.
