@@ -1,0 +1,2 @@
+Artículo 2°.- Los bienes destinados á este mismo objeto, igualmente que las enagenaciones que se hagan para el propio fin, quedan desde ahora esentos del pago de toda contribución establecida bajo cualesquiera denominación, o que en adelante se estableciera. Al Consejo Representativo.- Dado en la Ciudad de Alajuela á los veintiocho días del mes de Mayo de mil ochocientos treinta y cuatro.
+Sala del Consejo.- Alajuela Junio cinco de mil ochocientos treinta y cuatro.- Por tanto: Ejecútese: Alajuela Junio seis de mil ochocientos treinta y cuatro.
