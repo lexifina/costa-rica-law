@@ -1,0 +1,1 @@
+Art. 6, El comerciante almacenista que bajo la patente de almacen haga ventas al menudeo, sufrirá una multa de cien pesos por cada vez que se le pruebe la infraccion; y la mitad de esta pena sufrirá el mercader por menor, que en su establecimiento venda efectos extrangeros por mayor.
