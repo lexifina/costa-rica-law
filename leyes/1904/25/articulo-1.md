@@ -1,0 +1,8 @@
+N°25
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+En uso de la facultad que le concede la fracción 4° artículo 94 de la Constitución.
+Decreta:
+Apruebase los siguientes decretos emitidos por la Comisión Permanente número 2 de 7 de setiembre de 1903, referente a adicionar el Presupuesto General de 1903 a 1904, en las Carteras de Instrucción Pública y Justicia número 6 de 20 de octubre de 1903, realtivo a enajenación de solares desocupadas en la ciudad de Limón, número 14 de 20 de enero de 1904, acerca de la exención de derechos de Aduana y muellaje a la tela de alambre de tejido fino, tubos de barro y cemento romano, efectos destinados exclusivamente para el uso de la ciudad de Limón, número 15 de 3 de febrero de este año, tendiente a aumentar en quinientos colones (¢500-00) más, la subvención de que goza por ley de 18 de noviembre de 1902, la Junta de Caridad de Limón, número 17 de 16 de febrero de este año, encaminado a autorizar al Poder Ejecutivo1° Para aumentar el derecho actual que paga la importación del carburo de calcio y aceite minerales que se usan en el alumbrado y calefacción y 2° Para que exima de derechos a la introducción de lámpara y aparatos destinados a la aplicación del alcohol a usos domésticos e industriales y el número 18 de 2 de marzo de este año, por el cual se autoriza al Poder Ejecutivo para auxiliar con tres mil colones (¢3 000 00) a la Junta de Educación de Liberia, suma que dedicara a la construcción y equipo de las escuelas de aquella localidad.
+Al Poder Ejecutivo
+Dado en el Salón de Sesiones del Congreso, Palacio Nacional, San José a los treinta y un día del mes de mayo de mil novecientos cuatro.
+Casa Presidencial, San José, a los treinta y un día del mes de mayo de mil novecientos cuatro.
