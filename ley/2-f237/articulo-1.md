@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO N° 2
+(Esta norma fue derogada por el artículo 23° de la ley de imprenta, N° 32 del 12 de julio de 1902)
 (30 de agosto)
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 ___
