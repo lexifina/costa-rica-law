@@ -1,0 +1,165 @@
+Nº 31314-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, 27 de la Ley General de la Administración Pública, así como lo dispuesto en la Ley Nº 8131, Ley de Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001, Ley Nº 8341, Ley de Presupuesto Ordinario y Extraordinario de la República, para el Ejercicio Económico del 2003, del 9 de diciembre del 2002 y el Decreto Ejecutivo Nº 30906-H, del 12 de diciembre del 2002.
+Considerando:
+1º—Que el inciso b) del artículo 45 de la Ley Nº 8131, publicada en La Gaceta Nº 198 de 16 de octubre del 2001, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo artículo, de acuerdo con la reglamentación que se dicte para tal efecto.
+2º—Que mediante Decreto Ejecutivo Nº 30906-H, publicado en el Alcance Nº 94 a La Gaceta Nº 251 del 30 de diciembre del 2002, se establece la normativa técnica y legal, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3º—Que el artículo 1° del Decreto Ejecutivo precitado, autoriza para que, mediante decreto ejecutivo elaborado por el Ministerio de Hacienda, se realicen traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratare, sin modificar el monto total de los recursos asignados al programa o subprograma.
+4º—Que el Ministerio de Hacienda, mediante oficio Nº DM-1326 del 23 de julio del 2003, solicitó la confección de este decreto, cumpliendo en todos sus extremos con lo dispuesto en la normativa técnica y legal vigente.
+5º—Que las modificaciones presupuestarias incluidas en el presente decreto, no afectan la programación presupuestaria contenida en la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003.
+6º—Que se hace necesario realizar los ajustes presupuestarios contenidos en el presente decreto ejecutivo, con la finalidad de que el Ministerio de Hacienda pueda cumplir oportunamente con las metas y objetivos propuestos. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el artículo 2° de la Ley Nº 8341 del 9 de diciembre del 2002, "Ley de Presupuesto Ordinario y Extraordinario de la República, para el Ejercicio Económico del 2003", en la forma en que se indica a continuación:
+REBAJAR:
+TÍTULO 109
+Ministerio de Hacienda
+PROGRAMA 134-00
+ADMINISTRACIÓN DE INGRESOS
+SUBPROGRAMA/PROYECTO: 02
+GESTIÓN DE INGRESOS INTERNOS
+Registro Contable: 109-134-02
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto ¢
+6 TRANSFERENCIAS CORRIENTES 212.094.000
+606 01 131 12 PREMIOS
+(PARA PROGRAMA
+DE LOTERÍA FISCAL) 212.094.000
+TOTAL REBAJA DEL
+SUBPROGRAMA/PROYECTO: 134-02 212.094.000
+TOTAL REBAJA
+DEL PROGRAMA: 134-00 212.094.000
+PROGRAMA: 136-00
+ADMINISTRACIÓN FINANCIERA
+SUBPROGRAMA/PROYECTO: 05
+REGULACIÓN Y REGISTRO CONTABLE DE LA HACIENDA PÚBLICA
+Registro Contable: 109-136-05
+1 SERVICIOS NO PERSONALES 2.900.000
+199 01 112 12 OTROS SERVICIOS NO PERSONALES 2.900.000
+TOTAL REBAJA DEL
+SUBPROGRAMA/PROYECTO: 136-05 2.900.000
+TOTAL REBAJA
+DEL PROGRAMA: 136-00 2.900.000
+PROGRAMA: 138-00
+ADMINISTRACIÓN TECNOLÓGICA
+Registro Contable: 109-138-00
+2 MATERIALES Y SUMINISTROS 3.248.000
+214 01 112 10 OTROS PRODUCTOS QUÍMICOS 1.518.000
+232 01 112 10 PRODUCTOS DE PAPEL Y CARTÓN 500.000
+254 01 112 10 PROD. METAL. PARA LA CONSTR. 500.000
+260 01 112 10 INSTRUM., HERRAMIENT. Y OTROS 500.000
+282 01 112 10 ÚTILES Y MATERIALES DE OFICINA 200.000
+284 01 112 10 ÚTILES Y MATERIAL DE LIMPIEZ 30.000
+6 TRANSFERENCIAS CORRIENTES 10.270.000
+604 01 131 10 BECAS
+(PARA PAGO DE CURSOS
+A FUNCIONARIOS, EN
+PROGRAMA DE ESPECIA-
+LIZACIÓN DE DISEÑO DE
+REDES DE COMUNICACIÓN,
+BACHILLERATO EN
+INGENIERÍA DE SISTEMAS
+Y PROGRAMA DE LICEN-
+CIATURA EN INGENIERÍA
+DE SISTEMAS, ESTOS
+RECURSOS SERÁN UTILIZADOS
+ÚNICA Y EXCLUSI-
+VAMENTE EN EL FINANCIA-
+MIENTO DE BECAS APRO-
+BADAS ANTES DE LA VIGENCIA
+DE ESTA LEY, POR LO QUE
+NO SE FINANCIARÁN NUEVAS
+BECAS A FUNCIONARIOS) 10.270.000
+TOTAL REBAJA DEL
+PROGRAMA: 138-00 13.518.000
+TOTAL REBAJA
+DEL TÍTULO: 109 228.512.000
+TOTAL REBAJAR 228.512.000
+AUMENTAR:
+TÍTULO: 109
+Ministerio de Hacienda
+PROGRAMA: 134-00
+ADMINISTRACIÓN DE INGRESOS
+SUBPROGRAMA/PROYECTO: 02
+GESTIÓN DE INGRESOS INTERNOS
+Registro Contable: 109-134-02
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto ¢
+1 SERVICIOS NO PERSONALES 178.094.000
+102 01 112 12 ALQUILER DE EDIF. Y TERRENOS 54.844.000
+128 01 112 12 OTROS SERVICIOS PÚBLICOS 500.000
+132 01 112 12 GASTOS DE VIAJE EN EL EXTERIOR 5.000.000
+142 01 112 12 TRANSP. DE O PARA EL EXTERIOR 5.000.000
+144 01 112 12 TRANSPORTES DENTRO DEL PAÍS. 9.000.000
+162 01 112 12 CONSULTORÍAS
+(PARA DESARROLLO
+DE SOFTWARE PARA
+INTEGRAR PAGOS
+PARCIALES POR MEDIO
+DEL SISTEMA DE
+CONECTIVIDAD DE LOS BANCOS) 3.750.000
+172 01 112 12 MANTEN. Y REPAR.
+MOBIL. Y EQ. OFI 40.000.000
+174 01 112 12 MANTEN. Y REPAR.
+MAQUIN. Y EQ. 3.000.000
+199 01 112 12 OTROS SERVICIOS
+NO PERSONALES 57.000.000
+2 MATERIALES Y SUMINISTROS 8.000.000
+234 01 112 12 IMPRESOS Y OTROS 6.000.000
+270 01 112 12 REPUESTOS 2.000.000
+3 MAQUINARIA Y EQUIPO 22.000.000
+310 01 221 12 EQUIPO Y MOBILIARIO DE OFICINA 22.000.000
+6 TRANSFERENCIAS CORRIENTES 4.000.000
+681 CUOTAS A ORGAN. DE SIST. INTERAM. 4.000.000
+681 01 133 12 365 CENTRO INTERAMERICANO
+ADM. TRIBUTARIA -CIAT-
+(PAGO CUOTA ANUAL ORDINARIA)
+Ced. Jur.: 2-100-042005 4.000.000
+TOTAL AUMENTO DEL
+SUBPROGRAMA/PROYECTO: 134-02 212.094.000
+TOTAL AUMENTO
+DEL PROGRAMA: 134-00 212.094.000
+PROGRAMA: 136-00
+ADMINISTRACIÓN FINANCIERA
+SUBPROGRAMA/PROYECTO: 05
+REGULACIÓN Y REGISTRO CONTABLE DE LA HACIENDA PÚBLICA
+Registro Contable: 109-136-05
+1 SERVICIOS NO PERSONALES 2.900.000
+162 01 112 12 CONSULTORÍAS
+(PARA ASESORÍA LEGAL
+REQUERIDA PARA LA
+EMISIÓN DE ESTADOS
+FINANCIEROS CONSOLIDADOS) 2.900.000
+TOTAL AUMENTO DEL
+SUBPROGRAMA/PROYECTO: 136-05 2.900.000
+TOTAL AUMENTO DEL
+PROGRAMA: 136-00 2.900.000
+PROGRAMA: 138-00
+ADMINISTRACIÓN TECNOLÓGICA
+Registro Contable: 109-138-00
+1 SERVICIOS NO PERSONALES 12.518.000
+122 01 112 10 TELECOMUNICACIONES 3.518.000
+162 01 112 10 CONSULTORÍAS
+(PARA REALIZAR MEJORAS
+EN EL SISTEMA DE
+INFORMACIÓN DE ADMINIS-
+TRACIÓN DE CASOS DE LA
+POLICÍA FISCAL) 7.000.000
+199 01 112 10 OTROS SERVICIOS NO PERSONALES 2.000.000
+2 MATERIALES Y SUMINISTROS 500.000
+234 01 112 10 IMPRESOS Y OTROS 500.000
+6 TRANSFERENCIAS CORRIENTES 500.000
+603 01 131 10 AYUD. ECON. SEGÚN
+PROG. CAP. APREN
+(PARA CUBRIR COMPROMISOS
+CONTRACTUALES CON LA
+UNIVERSIDAD NACIONAL,
+POR LAS DIFERENTES
+CAPACITACIONES QUE SE
+IMPARTEN EN ESTE
+PROGRAMA) 500.000
+TOTAL AUMENTO DEL
+PROGRAMA: 138-00 13.518.000
+TOTAL AUMENTO DEL
+TÍTULO: 109 228.512.000
+TOTAL AUMENTAR 228.512.000
