@@ -146,3 +146,5 @@ para la Junta de Protección Social)
 respecto del Programa Integral de Mercadeo Agropecuario)
 (Modificado por el Decreto Ejecutivo N° 29434 de 5 de abril del 2001,
 respecto de la Fabrica Nacional de Licores)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29433 de 13 de abril del 2001,
+para el Instituto Costarricense de Pesca y Acuacultura)
