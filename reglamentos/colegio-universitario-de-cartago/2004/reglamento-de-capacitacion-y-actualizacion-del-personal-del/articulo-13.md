@@ -1,0 +1,1 @@
+Artículo 13.—El funcionario favorecido con la autorización para capacitación, está obligado a aplicar los conocimientos adquiridos en su puesto y a difundirlos entre sus compañeros de trabajo, según se establezca en el respectivo contrato.

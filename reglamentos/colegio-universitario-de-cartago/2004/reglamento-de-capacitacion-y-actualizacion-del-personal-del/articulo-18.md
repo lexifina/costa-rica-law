@@ -1,0 +1,1 @@
+Artículo 18.—Aquellos permisos de capacitación que no excedan de una semana, serán autorizados por la Comisión de Capacitación previo visto bueno de la Dirección correspondiente. Autorizaciones que excedan ese tiempo solo las autorizará el Consejo Directivo y por votación calificada.

@@ -1,0 +1,1 @@
+Artículo 15.—Por razones de continuidad en la prestación del servicio, las Jefaturas y la Comisión de Capacitación, velarán porque ninguna dependencia o curso académico se quede sin el personal necesario para brindar el servicio continuo y eficiente.

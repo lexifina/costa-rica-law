@@ -1,0 +1,1 @@
+Artículo 9º—Al finalizar la actividad que se le autorizó, el interesado deberá presentar al Servicio de Personal, un informe escrito con los atestados respectivos de asistencia y de aprovechamiento y que sean de entera satisfacción para la Comisión.

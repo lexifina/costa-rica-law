@@ -1,0 +1,1 @@
+Artículo 10.—El funcionario beneficiado tendrá la obligación de aprobar el curso –según sea el caso–. De lo contrario y si no media justificación a juicio de la Comisión, deberá reintegrar a las arcas del CUC la totalidad del costo de la actividad que se le autorizó.

@@ -1,0 +1,1 @@
+Artículo 19.—Para el trámite de permisos de capacitación en el extranjero, el interesado deberá presentar toda la documentación que justifique su petición, ante la Comisión de Capacitación quien la elevará debidamente documentada ante el Consejo Directivo y con el visto bueno de la Decanatura.

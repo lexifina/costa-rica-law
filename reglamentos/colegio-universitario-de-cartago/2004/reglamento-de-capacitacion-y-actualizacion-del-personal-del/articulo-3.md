@@ -1,0 +1,1 @@
+Artículo 3º—Se crea la Comisión de Capacitación del CUC, formada la Jefatura del Departamento de Recursos Humanos - quien la preside -, un funcionario administrativo y un funcionario docente, nombrados por los Directores Administrativo - Financiero y Académico, respectivamente.

@@ -1,0 +1,1 @@
+Artículo 20.—Todo funcionario favorecido con un permiso o autorización de capacitación en el exterior o dentro del país, deberá firmar un contrato según lo establece el artículo 14 del presente Reglamento.

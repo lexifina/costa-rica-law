@@ -1,0 +1,1 @@
+Artículo 2º—Capacitación es el proceso de transmisión y recepción de conocimientos y habilidades, necesarias para que una persona pueda desempeñar una determinada actividad, profesión, ocupación, arte u oficio.

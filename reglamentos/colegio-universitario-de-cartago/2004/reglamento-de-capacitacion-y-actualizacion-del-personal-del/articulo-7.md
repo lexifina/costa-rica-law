@@ -1,0 +1,1 @@
+Artículo 7º—La solicitud para capacitación la deberá presentar el interesado a su superior inmediato, quien la aprobará o improbará según sea el caso y la trasladará a la Comisión de Capacitación para su resolución final.
