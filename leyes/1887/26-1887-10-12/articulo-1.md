@@ -1,11 +1,13 @@
-DECRETO N° XXVL
+(Derogado)
+DECRETO N° XXVI
+(Esta ley fue Derogada por el artículo 100° de la Ley Orgánica de Notariado N° 39 del 05 de enero de 1943)
 (de 12 de octubre.)
 Ley Orgánica del Notariado.
 BERNARDO SOTO,
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA,
 De acuerdo con la ley de 19 de abril de 1885,
 decreta la siguiente
-Ley Orgánica del Notariado.
+Ley Orgánica del Notariado
 TITULO I
 Profesión y ejercicio del Notariado.
 CAPÍTULO l.
