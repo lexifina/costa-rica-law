@@ -1,0 +1,4 @@
+N° 3207
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo 1°-Ratificase en todas sus partes el Contrato de Préstamo que, de acuerdo con los principios de la Alianza para el Progreso, suscribieron en esta ciudad, el día veintitrés de julio del año en curso, el Banco Nacional de Costa Rica, el Gobierno de la República y el de los Estados Unidos de Norte América, este último actuando a través de la Agencia para el Desarrollo Internacional (A.I.D.), en virtud del cual esta Agencia acuerda prestar al Banco citado, en relación con la ley norteamericana de Asistencia al Extranjero de 1961 y sus modificaciones, hasta la suma de cinco millones de dólares, moneda de los Estados Unidos de América, para financiar el costo de bienes y servicios necesarios para el programa a que dicho contrato se refiere.
