@@ -14,3 +14,4 @@ Reglamento de la Galería del Deporte Cantón Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-01-22 | la propia norma |
+| 2 | 1988-04-06 | Reglamento municipal 0 (1988-04-06) |

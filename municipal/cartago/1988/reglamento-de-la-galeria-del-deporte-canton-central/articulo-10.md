@@ -1,5 +1,3 @@
 ARTÍCULO DECIMO
 De los candidatos electos
-El último domingo de marzo "Día del Deporte", en el recinto de la Galería, se develizará un retrato de los candidatos electos y se les entregará un pergamino alusivo a la asignación. Para tal efecto, el Concejo convocará a sesión en forma extraordinaria en "La Galería del Deporte del Cantón Central de Cartago".
-Publíquese en el Diario Oficial “la Gaceta”, de conformidad con el artículo 47 del Código Municipal.
-Cartago, noviembre de 1987.
+El último domingo de marzo “Día del deporte”, en el recinto de La Galería, se develizará un retrato de los candidatos electos y se les entregará un pergamino alusivo a la asignación. Para tal efecto, el Concejo convocará a sesión en forma extraordinaria en “La Galería del Deporte Cartaginés”.

@@ -1,3 +1,3 @@
 ARTÍCULO QUINTO
-De la regencia de la Galería del deporte del cantón central de Cartago
-"La Galería del deporte del cantón central de Cartago" estará regida por la Comisión Galería del Deporte del cantón central de Cartago. La integración de la Comisión estará a cargo del Presidente del Concejo.
+De la regencia de la galería del deporte Cartaginés
+“La Galería del deporte Cartaginés” estará regida por la Comisión Galería del deporte Cartaginés. La integración de la Comisión estará a cargo del presidente del Concejo.
