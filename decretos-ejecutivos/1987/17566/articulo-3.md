@@ -1,0 +1,1 @@
+Artículo 3°.- El ejercicio de la caza y pesca quedará sujeto a lo dispuesto en la Ley de Conservación de la Fauna Silvestre N° 6919 del 17 de noviembre de 1983, a su Reglamento y demás decretos derivados de su aplicación.

@@ -1,0 +1,1 @@
+Artículo 6°.- Cualquier otra actividad que se pretenda realizar dentro de esta área deberá ser previamente autorizada, por escrito por el Departamento de Vida Silvestre de la Dirección General Forestal.

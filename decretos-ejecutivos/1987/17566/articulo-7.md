@@ -1,0 +1,1 @@
+Artículo 7°.- El refugio que po este Decreto se crea comprende un área aproximada de 500 hectáreas; cuya demarcación se encuentra en la hoja cartográfica confeccionada por el Departamento de Vida Silvestre de la Dirección General Forestal.
