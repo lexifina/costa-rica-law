@@ -1,0 +1,16 @@
+Artículo 23.—Para el cumplimiento de sus deberes, la Auditor tendrá las siguientes funciones:
+a. Practicar Auditorias o estudios especiales de auditoria en cualesquiera de las unidades administrativas y operativas, sistemas, procesos, operaciones, funciones, programas o actividades en el momento que considere oportuno.
+b. Evaluar en forma regular el sistema de control interno, en relación con los aspectos contables, financieros, administrativos, operativos y de otra naturaleza, con el fin de determinar su cumplimiento, su eficiencia y validez.
+c. Verificar que los bienes patrimoniales se hallen debidamente controlados, contabilizados, protegidos contra pérdida, menoscabo, mal uso o desperdicio, e inscritos a nombre de la misma, cuando se trate de bienes inmuebles o de muebles sujetos a ese requisito.
+d. Verificar que los recursos financieros, materiales, humanos y tecnológicos de que dispone la Gerencia, sean administrados por los diferentes componentes de la organización, con eficiencia. economía y eficacia.
+e. Evaluar el contenido informativo, la integridad, la oportunidad y la confiabilidad de la información contable, financiera, administrativa, operativa y de otro tipo, producida por la Gerencia.
+f. Verificar el cumplimiento de las disposiciones legales y reglamentarias, de los objetivos y metas, de las políticas, de los planes, de los programas y actividades y de los procedimientos financieros, administrativos y otros que rigen a la Gerencia.
+g. Revisar en forma posterior las operaciones contables, financieras, administrativas, operativas y de cualquier otra naturaleza, así como los registros, los informes, los estados financieros y otro tipo de documentación e información cuando lo considere pertinente.
+h. Efectuar evaluaciones de los sistemas de planificación, presupuesto procesamiento electrónico de datos u otros sistemas de la Gerencia de acuerdo con las normas y las disposiciones legales y reglamentarias aplicables.
+i. Informar a la Junta Directiva para su resolución definitiva sobre aquellos casos en que la Auditoría no haya recibido respuesta de los diferentes componentes de la organización sobre sus recomendaciones y solicitudes de información, de asesoría o de colaboración necesarias para el mejor desempeño de su trabajo.
+j. Verificar que los responsables hayan tomado las medidas y acciones pertinentes para poner en practica las recomendaciones aceptadas por la Administración que contienen los informes de la Auditoría Interna, o de los auditores externos.
+Dará cuenta por escrito a la Junta Directiva de cualquier omisión que comprobare al respecto.
+k. Asesorar, en materia de su competencia a la Junta Directiva e igualmente advertir a los órganos pasivos que fiscaliza, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento. En este último caso deberá hacerse a través de la Gerencia General, con copia al trabajador respectivo.
+l. Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que, legal o reglamentariamente deben llevar los órganos sujetos a su jurisdicción institucional.
+m. Establecer los instrumentos administrativos y técnicos procedentes para el funcionamiento apropiado de la Auditoria Interna.
+n. Cualesquiera otras que sean concordantes con el objeto y las funciones que desempeña.

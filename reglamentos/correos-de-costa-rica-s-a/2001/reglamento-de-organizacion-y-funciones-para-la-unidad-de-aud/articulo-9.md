@@ -1,0 +1,1 @@
+Artículo 9°—Le corresponde a la Junta Directiva el nombramiento y remoción del auditor y subauditor, quienes ejercerán sus cargos en forma indefinida y responderán directamente ante aquella por su gestión.

@@ -1,0 +1,1 @@
+Artículo 7°—La Auditoría Interna estará bajo la responsabilidad y dirección del Auditor, y en su ausencia, del subauditor, quienes deberán reunir las condiciones de idoneidad profesional y moral requeridas para esos cargos.

@@ -1,0 +1,1 @@
+Artículo 4°—La administración activa de la Junta Directiva de Correos de Costa Rica, S. A.. es responsable de establecer, mantener y perfeccionar el sistema de control interno, y la imputación de esa responsabilidad, en lo personal, corresponde a los respectivos jerarcas, según cada estructura organizativa.

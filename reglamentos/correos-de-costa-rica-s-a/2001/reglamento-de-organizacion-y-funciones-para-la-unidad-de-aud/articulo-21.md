@@ -1,0 +1,4 @@
+Artículo 21.—Los objetivos principales que deberá alcanzar la Auditoría en el desarrollo de sus funciones, además de las que establecen las normas dictadas por la Contraloría serán:
+a. Asesorar a la Junta Directiva y a la Gerencia General por medio de análisis, conclusiones y recomendaciones, plasmadas en informes de Auditoría, con el fin de corregir debilidades, o introducir mejoras en el sistema de control interno.
+b. Ayudar a la Gerencia a lograr una administración más eficiente por medio del examen y evaluación a posteriori de las actividades administrativas, operativas, financieras, contables y de otra naturaleza proporcionando las recomendaciones respectivas.
+c. Comprobar la confiabilidad, suficiencia y oportunidad de los informes financieros y presupuestarios y la efectividad de los procedimientos de operación existentes.

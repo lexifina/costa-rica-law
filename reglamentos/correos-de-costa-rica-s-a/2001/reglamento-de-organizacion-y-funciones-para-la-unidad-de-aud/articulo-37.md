@@ -1,0 +1,1 @@
+Artículo 37.—La Auditoría Interna elaborara su anteproyecto de presupuesto anual, el cual se confeccionará de conformidad con el ordenamiento jurídico aplicable y será sometido a la Junta Directiva para su análisis y discusión con el Auditor Interno y posterior decisión.

@@ -1,0 +1,2 @@
+Artículo 31.—La Auditoría Interna solicitara audiencia para efectuar la conferencia final al funcionario ejecutivo responsable de disponer la puesta en operación de las recomendaciones, quien deberá dársela a la brevedad posible, a partir de su recibo, para concertar su realización. En dicha conferencia se establecerán los plazos para iniciar el cumplimiento de las recomendaciones.
+El resultado de la conferencia final debe constar por escrito en el acta respectiva donde se señalarán los aspectos más relevantes, casos de desacuerdos y compromisos asumidos.

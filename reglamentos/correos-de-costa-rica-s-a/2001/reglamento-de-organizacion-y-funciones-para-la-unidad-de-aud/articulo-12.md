@@ -1,0 +1,1 @@
+Artículo 12.—El auditor propondrá, debidamente justificada a la Junta Directiva como autoridad de la cual depende, la creación de plazas y servicios que considere indispensables para el buen funcionamiento de su unidad.

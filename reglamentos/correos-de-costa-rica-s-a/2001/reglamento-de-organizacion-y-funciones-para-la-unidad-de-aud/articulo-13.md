@@ -1,0 +1,2 @@
+Artículo 13.—El auditor actuara como jefe de su unidad y en esa condición ejercerá las funciones propias en la administración del personal, tales como: sanciones, promociones, permutas, traslados y concesión de licencias, todo de acuerdo con el marco jurídico que rige esta materia.
+Sin embargo, deberá contar con aprobación de la Gerencia General para el nombramiento, remoción y otros movimientos del personal de Auditoría. En caso de conflicto, el asunto se elevara a conocimiento de la Junta Directiva quien resolverá en definitiva.

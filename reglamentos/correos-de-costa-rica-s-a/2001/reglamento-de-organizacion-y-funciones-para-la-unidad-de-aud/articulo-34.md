@@ -1,0 +1,4 @@
+Artículo 34.—La Auditoría Interna dispondrá de un programa de seguimiento de las recomendaciones aceptadas por la Administración que hayan sido formuladas en sus informes de Auditoría o estudios especiales de Auditoria, en los de la Contraloría General de la República, y en los de Auditorías externas realizadas por firmas independientes de contadores públicos autorizados, con la finalidad de verificar si esas recomendaciones han sido puestas en practica. Para tales propósitos la Auditoria Interna podrá solicitar cuando estime conveniente, al responsable de la implantación de las recomendaciones oficialmente aceptadas, o a quien corresponda, referirse por escrito y en detalle sobre el cumplimiento de
+dichas recomendaciones y de los plazos para su efectiva, eficiente y
+oportuna aplicación, sin perjuicio de cualesquiera otras verificaciones y
+evaluaciones que lleve a cabo.
