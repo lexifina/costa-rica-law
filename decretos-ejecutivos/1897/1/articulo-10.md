@@ -1,1 +1,0 @@
-Artículo 10.—Cualquier Empresa que solicite concesión del Teatro, ya sea gratuitamente ó con remuneración, deberá dirigirse por escrito á la Secretaría de Fomento. En esta solicitud especificará el género de espectáculo que se propone dar, el elenco de los artistas, el repertorio de la compañía y la garantía o fianza que pueda rendir.

@@ -1,1 +1,0 @@
-Artículo 71.—Se prohibe en todas partes del edificio encender luces que no sean las lámparas eléctricas del Teatro. Cuando sea necesario entrar á los sótanos, durante el día, ó hacer la requisa de rigor después de cada función, sólo se podrán usar lámparas de seguridad.

@@ -1,1 +1,0 @@
-Artículo 20.—Es obligación de la Empresa tener el número suficiente de porteros, acomodadores y demás empleados necesarios para el servicio del público. Estos empleados deberán estar decentemente uniformados y llevarán en su vestido el distintivo de su empleo.

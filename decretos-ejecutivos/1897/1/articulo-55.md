@@ -1,1 +1,0 @@
-Artículo 55.—El Gobernador exigirá del Empresario, artistas y demás empleados del, Teatro, el exacto cumplimiento de sus respectivas obligaciones, y hará ejecutar las disposiciones y reglamentos dirigidos al mejor servicio del público y al mantenimiento del orden.

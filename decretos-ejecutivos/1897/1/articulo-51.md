@@ -1,1 +1,0 @@
-Artículo 51.—Las personas que causaren daños al edificio, muebles ó enseres del mismo, responderán á la Empresa de los daños causados, sin perjuicio de la pena que la autoridad aplicará, según los casos.

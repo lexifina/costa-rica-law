@@ -1,1 +1,0 @@
-Artículo 43.—No se permitirán los golpes, gritos ni otras demostraciones de aprobación ó reprobación extraordinarias que perturben el orden y el decoro. Se prohibe asimismo arrojar objetos al escenario.

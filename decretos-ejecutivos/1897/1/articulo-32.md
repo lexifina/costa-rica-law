@@ -1,1 +1,0 @@
-Artículo 32.—A la .conclusión del espectáculo, la Empresa está obligada á practicar, de acuerdo con e! conserje, una visita escrupulosa del edificio. Los objetos olvidados serán recogidos y depositados durante tres días, en la Contaduría, donde podrán reclamarlos sus dueños. Pasado este tiempo, el conserje los entregará á la Agencia ia Principal de Policía.

@@ -1,1 +1,0 @@
-Artículo 28.—Es absolutamente prohibida la venta de billetes que no correspondan á localidades numeradas y señaladas en el plano oficial dei Teatro. Se prohibe, asimismo, colocar asientos en los pasillos de la platea y en los Iugares destinados al libre acceso del público.

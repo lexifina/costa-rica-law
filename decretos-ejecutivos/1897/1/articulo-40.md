@@ -1,1 +1,0 @@
-Articulo 40.—Todas las diferencias que se susciten entre los actores y la Empresa, relativas á obligaciones contraídas para con el público, se someterán á la decisión del Gobernador; y el fallo de este funcionario será inapelable.
