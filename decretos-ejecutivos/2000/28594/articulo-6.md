@@ -1,0 +1,1 @@
+Artículo 6°.- Cuando el aporte y/o el crédito concedidos a la empresa beneficiaria con los dineros del Fondo se pague en su totalidad del capital social a su nombre, a la misma entidad beneficiaria y devolverá y destinará los recursos recuperados en la forma en que lo establecen las regulaciones del Fondo de Contingencias Bananeras.
