@@ -14,3 +14,4 @@ Reglamento para el Cobro Administrativo y Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-05 | la propia norma |
+| 2 | 2003-10-20 | Reglamento municipal 124 (2003-10-20) |
