@@ -1,0 +1,2 @@
+Artículo 32.- El Departamento de Cooperativas, en lo que se refiere a deberes y atribuciones señalados en esta ley, actuará con criterio eminentemente cooperativo, y en consecuencia no le serán aplicables las disposiciones de la ley Orgánica del Sistema Bancario Nacional, ni las reglamentaciones internas del Banco Nacional de Costa Rica sobre la actividad propiamente bancaria.
+Cuando se presente oposición entre las estipulaciones de la presente ley y las que regulen esta actividad, prevalecerán las primeras.

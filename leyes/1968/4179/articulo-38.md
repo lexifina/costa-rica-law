@@ -1,0 +1,1 @@
+Artículo 38.- Las cooperativas de suministros tienen por objeto principal impulsar el desarrollo de la agricultura, de la ganadería y de las industrias nacionales, mediante la adquisición y distribución de materias primas, enseres, maquinarias, equipo, accesorios, herramientas, semovientes, etc., o la distribución de productos naturales o elaborados.

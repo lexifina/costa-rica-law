@@ -1,0 +1,1 @@
+Transitorio III.- Se concede un término de seis meses, a partir de la promulgación de la presente ley, a todas las cooperativas, uniones, federaciones y confederaciones que existan en el país, a fin de que ajusten sus estatutos, reglamentos y funcionamiento a las disposiciones de la presente ley.

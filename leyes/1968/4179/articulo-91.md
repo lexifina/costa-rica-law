@@ -1,0 +1,1 @@
+Artículo 91.- Los certificados de aportación ganarán el interés que establezca la Asamblea, pero que en ningún caso podrá exceder del que establece el Banco Central de Costa Rica para los bonos bancarios. Se pagará únicamente sobre las sumas hechas efectivas por los asociados y sólo podrán cubrirse con cargo a los excedentes obtenidos por la cooperativa.

@@ -1,0 +1,2 @@
+Artículo 20.- Los miembros del Consejo Directivo se elegirán por períodos de dos años, y vencido ese plazo, podrán ser reelectos por periodos iguales.
+En caso de que las federaciones, confederaciones o uniones indicadas en el inciso c) del artículo anterior, no eligieren su representante dentro del plazo de 30 días, prorrogable por 30 días más, debidamente notificadas al efecto, el nombramiento lo hará la Junta Directiva General del Banco Nacional de Costa Rica y las personas así designadas, servirán el cargo por el período legal.

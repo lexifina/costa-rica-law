@@ -1,0 +1,1 @@
+Artículo 64.- En sesión que deberá celebrarse inmediatamente después de la elección de nuevos miembros del Consejo de Administración, elegirán un Presidente, un Vicepresidente, un Secretario, dos Vocales y las Comisiones de Trabajo.

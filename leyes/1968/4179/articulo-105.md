@@ -1,0 +1,1 @@
+Artículo 105.- Al concluirse el trámite de liquidación a que se refiere este capítulo, la Oficina de Cooperativas del Ministerio de Trabajo y Bienestar Social cancelará la inscripción correspondiente y procederá a publicar en el Diario Oficial, por tres veces consecutivas, la orden de cancelación.

@@ -1,0 +1,1 @@
+Transitorio IV.- Las cooperativas ya inscritas y en funcionamiento, para hacer el registro mencionado en el artículo 51, necesitarán tan solo la presentación de una certificación expedida por la Oficina respectiva de la cual se desprenda que está debidamente registrada.
