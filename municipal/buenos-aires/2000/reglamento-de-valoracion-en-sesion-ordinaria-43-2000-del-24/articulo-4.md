@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad debe recibir todas las declaraciones de los contribuyentes, aún cuando no se ajusten a los valores mínimos establecidos por el ONT. Estas declaraciones pasarán a formar parte del expediente del contribuyente.

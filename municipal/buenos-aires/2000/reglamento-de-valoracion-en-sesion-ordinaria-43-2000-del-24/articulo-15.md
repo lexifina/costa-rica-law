@@ -1,0 +1,1 @@
+Artículo 15.—En función de la cantidad de avalúos a realizar, y del personal disponible, la Municipalidad podrá establecer el orden en que éstos se llevarán a cabo. Tanto la categoría de omiso que se le aplique a los sujetos pasivos, como el orden en que se llevarán a cabo los avalúos, serán acciones que se definirán y formalizarán a través de la Oficina de Valoración.

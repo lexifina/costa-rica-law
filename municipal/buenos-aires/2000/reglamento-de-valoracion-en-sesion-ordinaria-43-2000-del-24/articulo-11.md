@@ -1,0 +1,1 @@
+Artículo 11.—Cuando un contribuyente presente su declaración antes del periodo indicando en el artículo 2, pero dentro de un periodo anteriormente establecido por la Municipalidad, no está en la obligación de presentar su declaración, siempre y cuando no hayan transcurrido cinco años desde su presentación de acuerdo con el artículo 16 de la Ley.

@@ -1,0 +1,1 @@
+Transitorio I.—La única excepción a lo indicado en el último párrafo del artículo tres se aplicará a aquellos contribuyentes que declararon antes del 19 del diciembre de 1997, fecha que se entró en vigencia la Ley, por lo que no estarán obligados a declarar si no han transcurrido cinco años desde la fecha que presentaron su declaración.

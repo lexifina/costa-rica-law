@@ -1,0 +1,1 @@
+Artículo 27.—Bajo ninguna circunstancia el o los funcionarios municipales que reciban declaraciones voluntarias podrán modificar tal documento, sin consentimiento y consecuente firma del contribuyente.

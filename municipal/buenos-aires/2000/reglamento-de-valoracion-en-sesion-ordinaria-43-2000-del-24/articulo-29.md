@@ -1,0 +1,1 @@
+Artículo 29.—La Municipalidad creará un respaldo en formato digital de toda la información relativa al impuesto sobre bienes inmuebles de cada uno de los contribuyentes y la mantendrá en custodia en un lugar físicamente separado de las instalaciones de la Municipalidad. Dicho lugar será definido por la Oficina de Valoraciones y aprobado por el Concejo Municipal.

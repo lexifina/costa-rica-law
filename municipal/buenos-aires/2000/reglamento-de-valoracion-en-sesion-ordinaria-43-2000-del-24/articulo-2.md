@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad establecerá el periodo durante el cual se recibirán las declaraciones del Impuesto sobre bienes Inmuebles, lo cual será publicado en el Diario Oficial. Esta acción será llevada a cabo por la Municipalidad cada cinco años.

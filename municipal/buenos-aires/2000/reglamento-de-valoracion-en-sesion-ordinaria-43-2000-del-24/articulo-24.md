@@ -1,0 +1,1 @@
+Artículo 24.—Cuando el contribuyente, en un plazo máximo de quince días hábiles después de haber sido notificado, no presente formal recurso de revocatoria ante la Oficina de Valoración, la Municipalidad dictará una resolución definitiva en lo referente a la base imponible, dentro de los tres meses siguientes al plazo para llevar tal revocatoria.

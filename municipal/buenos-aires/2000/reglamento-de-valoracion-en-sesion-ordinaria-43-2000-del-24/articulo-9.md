@@ -1,0 +1,1 @@
+Artículo 9º—Durante el periodo de recepción de declaraciones, la Oficina de Valoración podrá ampliar su horario normal de atención al público de lunes a viernes, pudiendo también habilitar los fines de semana y días feriados para facilidad del sujeto pasivo.
