@@ -1,0 +1,1 @@
+Artículo 13. Concluida la discusión, a juicio de la mayoría del Consejo, se proceder a la votación. Esta ser nominal manifestando cada individuo su opinión. Si alguno de los miembros discordantes quisiese consignar su voto particular, lo podrá hacer en la misma acta.
