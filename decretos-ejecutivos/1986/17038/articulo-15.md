@@ -1,0 +1,2 @@
+Artículo 15.-El Ministerio de Trabajo, el Consejo Nacional de Desarrollo de la Comunidad y la Dirección General de Pequeña Industria y Arte deberán convocar a los sectores bajo su competencia dentro de los ocho posteriores a la publicación del aviso que hace el Banco solicitando los respectivos nombramientos.
+La lista de delegados deberá ser presentada ante la Secretaría de la Junta Directiva, dentro de los 30 días posteriores a la publicación del aviso mencionado en el párrafo anterior.

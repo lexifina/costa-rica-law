@@ -1,0 +1,1 @@
+Articule 14.-Las organizaciones y grupos, a los que hace mención este Decreto, deberán presentar las listas de delegados ante la Secretaría de Junta Directiva del Banco Popular dentro de los 30 días naturales, posteriores a la publicación del aviso que hará el Banco solicitando los respectivos nombramientos.

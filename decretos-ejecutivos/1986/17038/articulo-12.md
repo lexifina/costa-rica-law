@@ -1,0 +1,1 @@
+Artículo 12.-El nombramiento de los 10 representantes del sector trabajadores independientes será coordinado por el Ministerio de Trabajo. Para tal efecto se solicitará el concurso de la Caja Costarricense de Seguro Social, para que facilite la información correspondiente sobre los trabajadores independientes que cotizan para ese ente.

@@ -1,0 +1,1 @@
+Artículo 7°-El nombramiento de los representantes de las cooperativas de autogestión corresponde al Consejo Nacional de Cooperativas, escogidas de una nómina de quince candidatos, presentada por la Comisión Permanente de Cooperativas de Autogestión.

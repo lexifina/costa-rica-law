@@ -1,0 +1,2 @@
+Artículo 8°-El nombramiento de los 40 representantes de las asociaciones de desarrollo comunal se efectuará por asambleas regionales, tomando como base la división regional utilizada por la Dirección General de Desarrollo de la Comunidad; corresponderá al Consejo Nacional de Desarrollo de Comunidades la organización del procero para su designación.
+Los representantes se distribuirán en forma proporcional al número de asociaciones que integren cada región.
