@@ -1,0 +1,4 @@
+Artículo 2°—Que en consecuencia se sustituyen los artículos 9° y 76 de los citados reglamentos por el siguiente texto:
+"Artículo 9°—Del Reglamento del Seguro Obligatorio para Vehículos Automotores y artículo 76 del Reglamento de la Ley de Tránsito:
+Cuando un asegurado de la Caja Costarricense de Seguro Social, resultare lesionado como consecuencia de un accidente de tránsito, el Instituto Nacional de Seguros deberá pagar a la Caja el costo real de las prestaciones de salud que dicha Institución otorgue al perjudicado.
+Cuando corresponda y según los términos de la respectiva Póliza del Seguro Obligatorio para Vehículos Automotores, el Instituto Nacional de Seguros pagará a la víctima la indemnización del caso como complemento a la prestación otorgada por la Caja Costarricense de Seguro Social".
