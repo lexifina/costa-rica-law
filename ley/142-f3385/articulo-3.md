@@ -1,0 +1,1 @@
+Artículo 3°—La Secretaría de Educación Pública, por cuantos medios estén a su alcance, constatará la eficiencia de las escuelas y colegios particulares, y en caso de ser ellos deficientes por razón de la cantidad y calidad de los conocimientos o por los métodos que usen, cancelará el permiso para su funcionamiento.
