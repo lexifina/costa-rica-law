@@ -1,0 +1,1 @@
+Artículo 11.—En las solicitudes de permisos para la exportación de reliquias arqueológicas precolombinas o coloniales, deberán citarse los números correspondientes a tales piezas en el catálogo general de Museos y colecciones particulares.

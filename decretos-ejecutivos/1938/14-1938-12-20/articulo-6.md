@@ -1,0 +1,1 @@
+Artículo 6°—Cuando los interesados presenten fórmulas de identificación de objetos arqueológicos, la Dirección del Museo señalará a cuál de las categorías establecidas en el artículo 12 de la ley corresponde cada uno de los objetos. En caso de duda se pueden solicitar esos objetos para su correspondiente estudio.

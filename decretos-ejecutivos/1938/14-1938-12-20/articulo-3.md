@@ -1,0 +1,1 @@
+Artículo 3°—En las fórmulas que distribuirá el Museo Nacional entre los particulares para la catalogación de las reliquias arqueológicas, habrá espacios donde se pueda anotar el número de orden dentro de la colección particular, la naturaleza del objeto, su procedencia, dimención, peso y los demás datos que fueren necesarios para su identificación.

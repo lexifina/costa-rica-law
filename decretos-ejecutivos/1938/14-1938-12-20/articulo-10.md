@@ -1,0 +1,1 @@
+Artículo 10.—Los permisos para visitar los yacimientos donde se practiquen excavaciones arqueológicas, serán extendidos por la Dirección del Museo a los estudiantes de los Colegios cuando a su inicio, a más de una simple curiosidad, exista un verdadero deseo de investigación de parte de los interesados

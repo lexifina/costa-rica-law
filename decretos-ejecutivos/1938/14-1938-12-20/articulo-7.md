@@ -1,0 +1,1 @@
+Artículo 7°—Cuando se trate de hallazgos se catalogarán igualmente a nombre de los interesados, los objetos de las dos últimas categorías indicadas en el artículo 12 de la ley. Las piezas únicas se ingresarán a las colecciones del Estado, con su respectiva inscripción en el catálogo.

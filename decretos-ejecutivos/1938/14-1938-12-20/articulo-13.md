@@ -1,0 +1,1 @@
+Artículo 13.—El propietario de un objeto arqueológico precolombino catalogado como "único", deberá antes proceder a la venta del mismo objeto, informar al Museo de dicha operación, a efecto de que esta dependencia lo adquiera, si está en condiciones para ello.

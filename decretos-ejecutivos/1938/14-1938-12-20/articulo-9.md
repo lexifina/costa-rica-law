@@ -1,0 +1,1 @@
+Artículo 9°—En el caso de que se solicite permiso para practicar excavaciones arqueológicas en un yacimiento de propiedad ajena, el solicitante deberá acompañar la autorización formal del propietario de la finca. Este hará constar, en dicho documento, que se somete a lo que dispone el artículo 26 de la ley

@@ -1,0 +1,1 @@
+Artículo 5°—Toda nueva adquisición de los coleccionistas deberá comunicarse al Museo Nacional, mediante el envío de las respectivas fórmulas originales numeradas de acuerdo con el catálogo, particular. De igual manera se informará de los traspasos de reliquias con indicación de sus números, para los efectos de la respectiva anotación.

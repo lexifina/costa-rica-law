@@ -1,0 +1,1 @@
+Artículo 15.—Una vez concedida la licencia de exportación de objetos arqueológicos, el despacho de los mismos deberá hacerse por medio del Museo Nacional. Para ese fin el exportador remitirá los objetos al Museo, junto con el valor del porte correspondiente y la dirección de la persona o institución destinataria.

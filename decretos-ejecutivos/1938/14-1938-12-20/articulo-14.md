@@ -1,0 +1,1 @@
+Artículo 14.—Todo traspaso o traslado de objetos arqueológicos de la segunda o tercera categoría, deberá comunicarse al Museo en la misma fecha de la operación, para los efectos de su "anotación en el catálogo general de Museos y Colecciones Particulares. Sin este requisito no serán válidos el traspaso o traslado.

@@ -1,0 +1,1 @@
+Artículo 8°—En igual forma se procederá con las nuevas colecciones que sean producto de excavaciones practicadas por corporaciones o individuos, nacionales o extranjeros. En este caso la catalogación se iniciará con una serie de mil o continuando la serie, si para tal corporación o persona hubiera una empezada.

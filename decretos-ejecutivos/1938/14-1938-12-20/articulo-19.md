@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección del Museo Nacional llevará un registro de los descubrimientos arqueológicos que le sean comunicados por las autoridades de la República, de acuerdo con el artículo 17; y efectuará, a la mayor brevedad, una investigación sobre tales descubrimientos.

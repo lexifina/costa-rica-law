@@ -1,0 +1,1 @@
+Artículo 18.—Todo permiso que se conceda para practicar excavaciones o exploraciones de yacimientos arqueológicos, será comunicado por la Dirección del Museo Nacional, a las autoridades bajo cuya jurisdicción ha de verificarse la excavación o exploración.

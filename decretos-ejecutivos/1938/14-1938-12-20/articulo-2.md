@@ -1,0 +1,1 @@
+Artículo 2°—El Museo Nacional formará, asimismo, el catálogo general de museos y colecciones particulares con los duplicados que de las respectivas fórmulas deberán entregar los interesados a la Dirección. Dichos duplicados deben ser coleccionados en series de mil.
