@@ -1,0 +1,1 @@
+Artículo 7°-Para los efectos del artículo anterior, el banco hará los arreglos pertinentes en sus libros, en cuanto a los deudores que se acojan a tal beneficio, sin más requisitos, y sin que sea necesaria anotación en el Registro Público.
