@@ -1,0 +1,1 @@
+Artículo 6°—Únicamente se suplirán combustibles, lubricantes, mantenimiento y reparaciones, repuestos y accesorios, a los vehículos propiedad del Instituto del Café de Costa Rica y de los programas cooperativos que éste mantenga, según se haya convenido.

@@ -1,0 +1,1 @@
+Articulo 12.— La Unidad de Servicios Generales establecerá el uso permanente de formularios numerados en forma consecutiva para toda aquella información generada por las actividades relativas al uso, control y mantenimiento de vehículos y equipos de tracción.

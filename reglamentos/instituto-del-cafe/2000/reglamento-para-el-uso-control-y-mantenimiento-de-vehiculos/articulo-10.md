@@ -1,0 +1,1 @@
+Artículo 10.— La Unidad de Servicios Generales emitirá manuales con los principales procedimientos para la autorización, registro y control de las operaciones administrativas necesarias para el uso, control y mantenimiento de los vehículos y equipos de tracción.

@@ -1,0 +1,1 @@
+Articulo 3°—La asignación de vehículos y equipo de tracción corresponderá a la Unidad de Servicios Generales a quien le corresponde ejercer las funciones relacionadas con el control sobre el uso, asignación y mantenimiento de la flotilla del ICAFÉ.

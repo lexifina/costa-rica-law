@@ -1,0 +1,1 @@
+Artículo 11.— La Unidad de Servicios Generales tendrá la documentación idónea que respalde y justifique toda la actividad relacionada con el uso, control y mantenimiento de los vehículos y equipo de tracción.

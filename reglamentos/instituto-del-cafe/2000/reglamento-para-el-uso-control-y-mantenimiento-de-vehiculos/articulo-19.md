@@ -1,0 +1,1 @@
+Articulo 19.—Para el mejor aprovechamiento de los recursos de transporte, la Unidad de Servicios Generales se reserva el derecho de agrupar en un sólo servicio, varias solicitudes a un mismo sitio o rula, siempre que las circunstancias lo permitan y coordinando oportunamente con los interesados.

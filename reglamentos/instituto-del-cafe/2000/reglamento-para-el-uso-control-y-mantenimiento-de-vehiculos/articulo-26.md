@@ -1,0 +1,4 @@
+Artículo 26.—Las sanciones por incumplimiento de este Reglamentó serán tramitadas y aplicadas por la Dirección Ejecutiva y serán las siguientes:
+a) Amonestación escrita, con copia para el expediente personal, por primera vez que, en el transcurso de un año, el conductor incumpliere alguno de los deberes o incurriere en alguna de las prohibiciones que establece este Reglamento, salvo que la falta diera mérito a una sanción más severa, según lo dispuesto en el Código de Trabajo y disposiciones conexas.
+b) Suspensión hasta por ocho días sin goce de sueldo, la segunda vez, que, en el transcurso de un año, se incumpla cualquier disposición de este Reglamento, salvo que la falta diera mérito al despido, según lo dispuesto en el Código de Trabajo y disposiciones conexas.
+c) Despido sin responsabilidad patronal, la tercera vez que, en el transcurso de un año, se incumpla cualquier disposición de este Reglamento.

@@ -1,0 +1,1 @@
+Articulo 28.—El Instituto del Café de Costa Rica podrá excepcionalmente, realizar con los demás sujetos componentes de la Hacienda Pública , convenios por escrito de préstamos de vehículos o equipos de tracción, previa justificación y autorización de los respectivos jerarcas.
