@@ -1,1 +1,2 @@
-ARTÍCULO 20.-Se podrán pagar las dietas correspondientes a las sesiones aunque los directores no hayan asistido a ellas, siempre y cuando las ausencias se deban a enfermedad o muerte de un miembro cercano de su familia o en caso fortuito o fuerza mayor que, a juicio de la Junta Directiva, pueda considerarse como tal. También devengarán dieta los Directores cuando la ausencia obedezca a cumplimiento de una misión que expresamente haya encomendado la Junta Directiva.
+Artículo 20.-La ausencia de los Directores a las sesiones de la Junta Directiva, por cualquier motivo de que se trate, implicará la pérdida de pago de las dietas respectivas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25495 del 04 de setiembre de 1996).
