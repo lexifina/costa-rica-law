@@ -1,0 +1,1 @@
+Artículo 4º.- Los caseríos que forman el nuevo distrito son: Pejibaye, como cabecera; Hacienda Joya, Yolanda, Chucuyo, Oriente, Juray, Omega, Tepemechín, Esperanza, Cantarrana, Ceiba, Gato, Humo, Alto de Humo, Taus, San Gerardo y Cacao.
