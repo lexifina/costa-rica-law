@@ -1,0 +1,1 @@
+Artículo V.—Todos los beneficiarios de una patente temporal de licores, deberán presentar a la Municipalidad , a más tardar 8 días después de finalizada la actividad, un informe del resultado económico obtenido.
