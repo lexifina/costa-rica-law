@@ -1,0 +1,2 @@
+Articulo 16.—Modifíquese el artículo 275 del Reglamento Ley General de Aduanas, para que se lea de la siguiente manera:
+"Artículo 275.—Llegada a las instalaciones del auxiliar receptor. A la llegada del vehículo y la unidad de transporte a las instalaciones habilitadas, el conductor presentará a auxiliar, la declaración de tránsito y sus anexos. El auxiliar receptor dejará impresa en la declaración de tránsito, la fecha y hora electiva de llegada de la unidad de transporte, utilizando mecanismos electrónicos."

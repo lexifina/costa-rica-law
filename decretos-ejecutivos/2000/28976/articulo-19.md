@@ -1,0 +1,3 @@
+Articulo 19.—Modifíquese el articulo 289 del Reglamento de la Ley General de Aduanas, para que se lea así:
+"Artículo 289.—Horario de trabajo del depósito. El depositario aduanero deberá proporcionar el servicio de recepción de vehículos y unidades de transporte las veinticuatro horas del día. Los servicios de depósito fiscal deberán ser prestados conforme los horarios de trabajo de la aduana bajo cuya jurisdicción operen.
+Cualquier ampliación a dicho horario deberá solicitarse a la aduana a erecto de que le sea debidamente autorizado. El horario autorizado será el habitual de operaciones y su incumplimiento se sancionará con las medidas correspondientes."

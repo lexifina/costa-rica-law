@@ -1,0 +1,2 @@
+Artículo 17.—Modifíquese el articulo 277 del Reglamento Ley General de Aduanas, para que se lea de la siguiente manera:
+"Articulo 277.—Comunicación de los vehículos y unidades de transporte recibidas. Cada auxiliar receptor de tránsito aduanero deberá transmitir inmediatamente a la aduana de control, el ingreso de los vehículos y unidades de transporte que reciba, así como el resultado de la recepción de la unidad de transporte, indicando el número y fecha de la respectiva declaración de tránsito que ampara el ingreso."

@@ -1,0 +1,2 @@
+Artículo 22.—Adiciónese el siguiente artículo:
+"Articulo 296 bis.—Ámbito de aplicación. Las disposiciones de la presente Sección, serán igualmente aplicables para la recepción de bultos por parte de los demás auxiliares de la función pública aduanera que reciben mercancías en sus instalaciones, tales como empresas de Zona Franca, Perfeccionamiento Activo, Despacho Domiciliario Comercial e Industrial."

@@ -1,0 +1,2 @@
+Articulo 15.—Modifíquese el artículo 273 del Reglamento a la Ley General de Aduanas, para que se lea de la siguiente manera:
+"Artículo 273.—Finalización del Tránsito. La operación de tránsito aduanero se tendrá por finalizada con la entrega por parte del transportista aduanero de las mercancías efectivamente descargadas y recibidas por el depositario aduanero o el auxiliar autorizado para recibir mercancías en sus instalaciones,"
