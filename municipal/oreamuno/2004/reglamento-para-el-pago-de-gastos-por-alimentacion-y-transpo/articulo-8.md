@@ -1,0 +1,1 @@
+Artículo 8º—El regidor o síndico acreedor a este derecho en las condiciones dichas, deberá presentar la liquidación de viáticos correspondiente en el formulario establecido para tales fines. Los pagos se podrán realizar por cada sesión o bien, en forma mensual, detallando las sesiones a que asistieron y su pago se hará efectivo al presentar dicha liquidación.

@@ -1,0 +1,1 @@
+Artículo 5º—Cuando la sesión dure más de cinco horas se reconocerá por concepto de alimentación, la suma establecida por la Contraloría General de la República en el Reglamento de Viajes y Transportes para funcionarios públicos.

@@ -1,0 +1,1 @@
+Artículo 9º—Las liquidaciones por este concepto deberán ser entregadas por el regidor o síndico debidamente firmadas, una vez concluida cada sesión o bien, en forma mensual, a la Secretaria del Concejo, quien con su firma y sello dará fe de la asistencia del Regidor o Síndico y remitirá los documentos a la Alcaldía Municipal para que ordene el respectivo pago.
