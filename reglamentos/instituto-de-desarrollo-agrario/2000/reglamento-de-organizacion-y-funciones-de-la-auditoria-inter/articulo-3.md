@@ -1,0 +1,1 @@
+Artículo 3º—La Auditoría Interna es parte integral y vital del sistema de control interno del IDA y tendrá como función principal la comprobación del cumplimiento, la suficiencia y la validez de dicho sistema.

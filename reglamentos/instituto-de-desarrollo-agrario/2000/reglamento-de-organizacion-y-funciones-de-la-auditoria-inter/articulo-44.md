@@ -1,0 +1,1 @@
+Artículo 44.—No obstante lo indicado en el artículo anterior, el Auditor Interno, al fenecimiento del término concedido a la Junta Directiva sin que ésta se hubiese pronunciado, le comunicará, que se tendrán como aceptadas las recomendaciones, solicitándole que ordene su puesta en práctica, e informándole la fecha en que verificará el acuerdo que ordena lo pertinente.

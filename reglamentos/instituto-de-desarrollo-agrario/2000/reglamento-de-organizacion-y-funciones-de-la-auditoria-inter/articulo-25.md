@@ -1,0 +1,15 @@
+Artículo 25.—Para el cumplimiento de sus deberes, la Auditoría Interna tendrá las siguientes funciones:
+a) Practicar auditorías o estudios especiales de auditoría en cualesquiera de las unidades administrativas y operativas, sistemas, procesos, operaciones, funciones, programas o actividades del IDA, en el momento que considere oportuno.
+b) Practicar auditorías tributarias para con los sujetos pasivos obligados al pago de los impuestos, en el momento que considere oportuno.
+c) Evaluar en forma regular el sistema de control interno, en relación con los aspectos contables, financieros y administrativos, y de otra naturaleza, con el fin de determinar su cumplimiento, su eficiencia y validez.
+d) Verificar que los bienes patrimoniales del IDA, tangibles e intangibles, estén protegidos contra pérdida, menoscabo, mal uso o desperdicio e inscritos a nombre del IDA, cuando se trate de bienes muebles o de muebles sujetos a ese requisito.
+e) Verificar que los recursos financieros, materiales, humanos y de información disponibles en el IDA, se utilicen por la Administración con eficiencia, economía y eficacia.
+f) Evaluar el contenido informativo, la razonabilidad, la integridad, la oportunidad y la confiabilidad de la información contable, financiera, administrativa y de otro tipo, producida en el IDA.
+g) Verificar el cumplimiento de las disposiciones legales y reglamentarias, de los objetivos y metas, de las políticas, de los planes, de los programas y de los procedimientos financieros, administrativos, informáticos y técnicos que rigen al IDA.
+h) Revisar en forma posterior las operaciones contables, financieras, administrativas, operativas, de sistemas y de otra naturaleza, así como los registros, los informes y otro tipo de documentación e información cuando lo considere pertinente.
+i) Comunicar los resultados de las auditorías o estudios especiales que realice por medio de informes escritos que contengan comentarios, conclusiones y recomendaciones.
+j) Verificar que los responsables hayan tomado las medidas y acciones pertinentes para poner en práctica las recomendaciones aceptadas por la Administración que contienen los informes de la Auditoría Interna, de los auditores externos, o de la Contraloría General.
+k) Asesorar, en asuntos de su competencia, a cualquier dependencia del IDA, e igualmente advertir a los órganos pasivos que fiscaliza, sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+l) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que, legal o reglamentariamente deben llevar los órganos sujetos a su jurisdicción institucional.
+m) Establecer los instrumentos administrativos y técnicos procedentes para el funcionamiento apropiado de la Auditoría Interna.
+n) Ejercer otras funciones de fiscalización inherentes a su competencia, de conformidad con lo que establece la Ley Nº 6735 del 29 de marzo de 1982 y dentro de los lineamientos dictados por la Contraloría General, o en cumplimiento de disposiciones legales.

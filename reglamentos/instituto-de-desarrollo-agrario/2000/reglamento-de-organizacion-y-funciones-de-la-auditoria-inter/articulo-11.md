@@ -1,0 +1,1 @@
+Artículo 11.—El Subauditor Interno depende del Auditor Interno y será directamente responsable ante éste por su actuación, o ante la Junta Directiva, cuando se encuentre ejerciendo temporalmente el cargo de Auditor Interno.

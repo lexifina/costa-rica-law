@@ -1,0 +1,1 @@
+Artículo 36.—El funcionario ejecutivo responsable de disponer la implantación de recomendaciones, comunicadas por la Auditoría Interna mediante informes, dispondrá de un plazo máximo de treinta días hábiles, contados a partir del día siguiente de su recibo, para informar a esa Unidad sobre la aceptación de tales recomendaciones.

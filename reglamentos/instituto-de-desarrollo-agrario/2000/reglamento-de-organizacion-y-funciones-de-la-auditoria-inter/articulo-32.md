@@ -1,0 +1,1 @@
+Artículo 32.—En cuanto a los requisitos, estructura, y revisión de los memorandos e informes, se aplicará lo dispuesto sobre el particular en el Manual para el Ejercicio de la Auditoría Interna, y en otras disposiciones externas aplicables.

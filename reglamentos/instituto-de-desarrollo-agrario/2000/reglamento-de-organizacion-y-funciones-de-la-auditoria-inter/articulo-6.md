@@ -1,0 +1,1 @@
+Artículo 6º—La Auditoría Interna realizará la fiscalización correspondiente sobre los sujetos pasivos y elaborará el traslado de cargos y observaciones de los impuestos sobre: cigarrillos, refrescos gaseosos, licores y cerveza tanto nacionales como extranjeros y del timbre agrario; que percibe el IDA, así como cualquier otro impuesto que se cree a su favor en el futuro.

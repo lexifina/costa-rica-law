@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Remisión de informes a la Junta Directiva
+Artículo 40.—Previo al envió de informes a la Junta Directiva, que sean de gran trascendencia institucional o que pudieran acarrear cualquier tipo de responsabilidad a la Junta Directiva, la Auditoría Interna debe constatar que se ha cumplido con la discusión del borrador del informe con el responsable de implantar las recomendaciones (conferencia final), que la confección del acta esté debidamente suscrita, que se adjunte al informe los argumentos y soluciones alternativas proporcionados por el responsable en casos de desacuerdo o indicar que no fueron aportados a pesar de existir desacuerdo.

@@ -1,0 +1,1 @@
+Artículo 17.—El Auditor Interno deberá contar con los recursos humanos, materiales, tecnológicos, asesoría técnica e instalaciones físicas necesarios para el adecuado cumplimiento de sus funciones. Para tales propósitos planteará sus necesidades de manera justificada ante la Junta Directiva.

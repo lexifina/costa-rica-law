@@ -1,0 +1,1 @@
+Artículo 16.—El Auditor Interno deberá proponer debidamente justificado a la Junta Directiva –de la cual depende- la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de Auditoría y en general, para el buen funcionamiento de su Unidad.

@@ -1,0 +1,1 @@
+Artículo 28.—Será estrictamente confidencial la información que el personal de la Auditoría Interna obtenga en el ejercicio de sus funciones, sin embargo, esa confidencialidad no se aplicará a los requerimientos de la Contraloría General en el ejercicio de su competencia fiscalizadora, ni a la Junta Directiva del IDA, ni cuando haya solicitud expresa de Autoridad Competente.
