@@ -1,0 +1,1 @@
+Artículo 3º—Si por su monto el premio obtenido requiere convalidación computarizada, deberá hacerse efectivo en las oficinas centrales de la Junta de Protección Social de San José. Si el premio es mayor o igual a ¢10.000 (diez mil colones), requiere convalidación computarizada.
