@@ -1,0 +1,1 @@
+Artículo 3- Los sueldos de los servidores del Ministerio, serán los que correspondan según Ley de Presupuesto General, Ley de Salarios de la Administración Pública o cualquier otra disposición autorizada por la Contraloría General de la República. Su pago se realizará en el local del Ministerio y en la fecha que establezca la Pagaduría Nacional.

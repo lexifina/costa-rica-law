@@ -1,0 +1,1 @@
+Artículo 12- Son días hábiles todos los del año, excepto los feriados todos los del año, excepto los feriados considerados con el artículo 147 del Código de Trabajo y aquello que el Poder Ejecutivo declare de asueto conforme el acuerdo correspondiente.

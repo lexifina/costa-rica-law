@@ -1,0 +1,1 @@
+Artículo 33°- El servidor que diera mérito para la aplicación de tres o más suspensiones, en un período de tres meses contados a partir del día en que se le impuso la primera de dichas sanciones, será despedido del trabajo considerándose la reincidencia como falta grave a sus obligaciones.

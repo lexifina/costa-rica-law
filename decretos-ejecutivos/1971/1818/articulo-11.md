@@ -1,0 +1,1 @@
+Artículo 11.- Los empleados del Ministerio estarán obligados al desempeño de sus funciones durante todos los días hábiles y durante todas las horas reglamentarias, y no se podrá por lo mismo conceder privilegio , prerrogativa o licencia alguna que autorice una asistencia irregular con excepción de los establecido específicamente en otras disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 53°- Los servidores del Ministerio que tengan que realizar labores fuera de la oficina o que la índole de su trabajo así lo amerite estarán protegidos por una póliza de riesgos profesionales.

@@ -1,0 +1,1 @@
+Artículo 36°- Las faltas no señaladas en este Reglamento serán sancionadas conforme la estimación que les dé el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes conexas y supletorias.

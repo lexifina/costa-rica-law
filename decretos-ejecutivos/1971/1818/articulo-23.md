@@ -1,0 +1,1 @@
+Artículo 23°-La llegadas tardías injustificadas se estimarán como faltas leves y se computarán al final de cada mes calendario a efecto de aplicar las sanciones establecidas en el artículo 30 de este Reglamento.

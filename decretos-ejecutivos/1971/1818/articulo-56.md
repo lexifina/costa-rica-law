@@ -1,0 +1,1 @@
+Artículo 56°- A falta de disposiciones en este Reglamento aplicables en un caso determinado, deben tenerse como normas supletorias al Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes y reglamentos supletorios conexos

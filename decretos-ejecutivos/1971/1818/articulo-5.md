@@ -1,0 +1,1 @@
+Artículo 5- El Ministro, el Oficial Mayor o por delegación hecha por éste el Director Administrativo, será quien tenga a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones del mismo con la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 26°-Cuando la enfermedad incapacite al servidor para el desempeño de sus labores hasta por cuatro días, podrán justificarse las ausencias por otro medio que no sea el certificado médico, a juicio del jefe correspondiente y con intervención y con intervención del jefe de la respectiva Dirección o Departamento.

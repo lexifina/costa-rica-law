@@ -1,0 +1,1 @@
+Artículo 20°-No obstante lo dispuesto en el artículo anterior, no se considerará como falta si el servidor que marcó la tarjeta de otro por error evidente, informa el hecho ante quien corresponda, a más tardar en la siguiente fracción de jornada que le tocare laborar.
