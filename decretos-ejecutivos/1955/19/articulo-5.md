@@ -1,3 +1,3 @@
-Artículo 5°— La vigencia del contrato dependerá de la voluntad del suscritor de manera que en cualquier momento podrá solicitar su rescisión, sin verse obligado a hacer pagos ulteriores y sin más requisitos que dar aviso por escrito al Instituto.
-El contrato podrá también traspasarse a cualquier persona que reúna las condiciones señaladas en este Reglamento.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 6 de 05 de mayo de 1960, publicado en La Gaceta N° 106 de 12 de mayo de 1960.)
+Articulo 5°—La vigencia del contrato dependerá de la voluntad del suscritor, quien podrá en cualquier momento solicitar su rescisión, sin más requisito que dar aviso por escrito al Instituto. También podrá ceder los derechos a cualquier persona física, excepto a los funcionarios y empleados del Instituto.
+Si la cesión se realiza en las oficinas del Instituto, se hará en presencia del Jefe de la respectiva Sección y ante dos testigos; si lo es. en otro lugar, deberá constar - en carta debidamente autenticada por un abogado, quien imprimirá su sello de uso personal para mejor identificación.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 6 de 21 de agosto de 1961, publicado en La Gaceta N° 196 de 30 de agosto de 1961.)
