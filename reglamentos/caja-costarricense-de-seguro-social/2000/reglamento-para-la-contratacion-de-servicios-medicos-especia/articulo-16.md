@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se ha contratado a personal de la institución tales contratistas no podrán desempeñarse por tiempo que supere la jornada extraordinaria de la entidad. Igual normativa se aplicará a las personas jurídicas en cuanto a los profesionales que laboran para la firma, debiendo señalar obligatoriamente en la oferta quiénes prestarán los servicios.

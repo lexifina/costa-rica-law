@@ -1,0 +1,1 @@
+Artículo 7°—Los documentos expedidos por los profesionales contratados bajo este régimen tendrán la misma eficacia que los emitidos por la institución conforme a las normas de la CCSS. Se exceptúan expresamente las incapacidades, todas las cuales necesitarán la autorización del director del hospital o de la clínica de que se trate.

@@ -1,0 +1,1 @@
+Artículo 14.—Cuando hubiere más de un adjudicatario se distribuirán las asignaciones de forma tal que se garantice la igualdad de oportunidades pero premiando la eficiencia mayor de cada prestatario del servicio.

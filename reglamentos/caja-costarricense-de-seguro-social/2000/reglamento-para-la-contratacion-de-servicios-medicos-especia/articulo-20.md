@@ -1,0 +1,1 @@
+Artículo 20.—Para efectos de dar cumplimiento al artículo 69 de la ley No 17 del 22 de octubre de 1943 y sus reformas, dentro del plazo de tres meses a partir de la entrada en vigencia de este Reglamento, la comisión nombrada al efecto presentará a la Junta Directiva de la Institución el proyecto de reglamento a esa disposición para su aprobación.

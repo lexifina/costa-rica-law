@@ -1,0 +1,1 @@
+Artículo 12.—Es prohibido para el contratista obtener o solicitar pago diferente al contractual o adicional por la prestación de las obligaciones derivadas de los contratos a que se refiere este Reglamento.

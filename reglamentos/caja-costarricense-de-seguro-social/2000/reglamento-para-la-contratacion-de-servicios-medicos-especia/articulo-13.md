@@ -1,0 +1,1 @@
+Artículo 13.—Además de las garantías de participación y de cumplimiento en los carteles se requerirán garantías por responsabilidad frente a terceros, todo a entera y discrecional satisfacción de la CCSS. Se exigirá, además, por montos que la Junta Directiva determinará, pólizas de responsabilidad civil general que incluya mala praxis.

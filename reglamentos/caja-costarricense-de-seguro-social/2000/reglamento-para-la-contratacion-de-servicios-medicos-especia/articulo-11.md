@@ -1,0 +1,1 @@
+Articulo 11.—Las instalaciones, equipo, materiales y suministros de la CCSS no pueden ser utilizados por el contratista para fines diferentes a los de la prestación de servicios de Salud contratados y la CCSS en todo caso podrá adoptar las medidas cautelares que pudieren corresponder.

@@ -1,0 +1,1 @@
+Artículo 22.—El incumplimiento por parte del oferente del contrato en algunos de sus puntos, permitirá a la Institución dar por terminado el mismo, sin perjuicio de las responsabilidades civiles y penales en que pueda incurrir, así como las medidas cautelares que se podrán adoptar en defensa de los intereses institucionales y de los asegurados.

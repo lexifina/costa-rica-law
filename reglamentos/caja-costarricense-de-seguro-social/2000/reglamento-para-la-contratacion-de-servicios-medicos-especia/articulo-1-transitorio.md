@@ -1,0 +1,1 @@
+Transitorio I.—Los actuales contratos vigentes así seguirán conforme a sus términos pactados hasta el vencimiento de su plazo y si tuvieren un plazo mayor a tres meses vencerán al cabo de seis meses: salvo que se trate de contratos derivados de procesos licitatorios debidamente adjudicados con anterioridad.

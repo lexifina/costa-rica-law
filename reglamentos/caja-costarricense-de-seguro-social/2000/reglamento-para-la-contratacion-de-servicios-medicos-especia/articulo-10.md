@@ -1,0 +1,1 @@
+Artículo 10.—El contratista podrá hacer uso de su propio equipo cuando ello fuere necesario por ausencia o insuficiencia del mismo en el centro en el cual se deba brindar el servicio, pero su uso no generará responsabilidad para la CCSS en cuanto a su reposición o a su mantenimiento.

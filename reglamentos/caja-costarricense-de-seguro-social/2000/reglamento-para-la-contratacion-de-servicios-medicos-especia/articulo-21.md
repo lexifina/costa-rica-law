@@ -1,0 +1,1 @@
+Artículo 21.—Las regulaciones establecidas en el contrato no podrán ser modificadas para justificar su ampliación o extensión en relación a otros servicios o en la cantidad de servicios requeridos, de manera que no se creen su propia demanda.

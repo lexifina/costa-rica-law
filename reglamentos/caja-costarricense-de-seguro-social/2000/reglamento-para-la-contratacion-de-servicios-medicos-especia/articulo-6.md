@@ -1,0 +1,1 @@
+Artículo 6°—La contratación de los servicios a que se refiere este Reglamento no generará relaciones laborales y es obligación del director de cada hospital o clínica ejecutar adecuadamente lo anterior, con el fin de que no se desnaturalice la contratación de servicios profesionales.
