@@ -14,3 +14,4 @@ Reglamento para la Creación de Distritos Electorales y Juntas Receptoras de Vot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1961-03-15 | la propia norma |
+| 2 | 1997-01-29 | Reglamento 2 (1997-01-29) |
