@@ -1,1 +1,2 @@
-Artículo 8°—El jefe superior inmediato del beneficiario será el responsable de velar porque el profesional que disfruta del presente concepto se encuentre permanentemente dentro de las exigencias de este reglamento; caso contrario, deberá informarlo a la Dirección General de Personal en el transcurso de los ocho días siguientes a partir del momento en que se presentó la irregularidad. El disfrute irregular y la omisión de comunicarlo a la Dirección General de Personal constituyen falta grave para efectos disciplinarios.
+Artículo 8°—El incentivo por desarraigo no excluye el pago por concepto de viático corrido.
+(Reformado mediante el Decreto Ejecutivo N° 19568 del 09 de marzo de 1990, publicado en La Gaceta N° 78 del 25 de abril de 1990.)

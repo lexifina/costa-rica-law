@@ -8,8 +8,10 @@ Considerando:
 Por tanto,
 Decretan:
 El siguiente,
-Reglamento de incentivo por regionalización para los profesionales del Ministerio de Obras Públicas y Transportes
-Artículo 1 °—Para los efectos del presente reglamento se entiende por:
-Profesional: Servidor con grado académico universitario mínimo de licenciatura.
-Incentivo por regionalización: El porcentaje salarial que se reconocerá a los profesionales que sean destacados y se mantengan prestando servicios fuera de la “Gran Área Metropolitana”.
-Gran Área Metropolitana: El área que comprende las cabeceras de provincia de San José, Heredia, Alajuela y Cartago y los lugares ubicados 25 kilómetros alrededor de cada una de estas.
+Reglamento de Incentivo por Desarraigo para los Profesionales del Ministerio de Obras Públicas y Transportes
+(Así modificada su denominación mediante el Decreto Ejecutivo N° 19568 del 09 de marzo de 1990, publicado en La Gaceta N° 78 del 25 de abril de 1990.)
+Artículo 1°—Para los efectos del presente Reglamento se entiende por:
+Profesional: Servidor del Ministerio de Obras Públicas y Transportes con grado académico universitario mínimo de licenciatura.
+Incentivo por desarraigo: El porcentaje salarial que se reconocerá a los profesionales que sean destacados y se mantengan prestando servicios fuera del “Gran Área Metropolitana”.
+Gran Área Metropolitana: Será el área que comprende las cabeceras de provincia de San José, Heredia, Alajuela y Cartago y los lugares ubicados 25 km alrededor de cada una de estas.
+(Reformado mediante el Decreto Ejecutivo N° 19568 del 09 de marzo de 1990, publicado en La Gaceta N° 78 del 25 de abril de 1990.)

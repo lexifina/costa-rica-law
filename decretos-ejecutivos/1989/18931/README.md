@@ -14,3 +14,4 @@ Reglamento de Incentivo por Regionalización para los Profesionales del Minister
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-04-26 | la propia norma |
+| 2 | 1990-03-09 | Decreto Ejecutivo 19568 (1990-03-09) |
