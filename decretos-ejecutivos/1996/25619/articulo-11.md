@@ -1,0 +1,3 @@
+Artículo 11.—Mediante votación secreta y por medio de mayoría simple, el Consejo elegirá de entre sus miembros propietarios, un presidente y un vicepresidente, quienes deberán representar a sectores diferentes.
+El vicepresidente ejercerá la presidencia durante las ausencias temporales del titular, con las mismas facultades, deberes y atribuciones de éste. La ausencia simultánea de ambos será suplida por un presidente ad hoc nombrado por mayoría simple.
+La duración de estos cargos será de un año. El Presidente se eligirá cada año de entre los miembros propietarios de cada sector, de manera que se permita en forma sucesiva a un representante de los trabajadores, de los patronos y del Estado, ejercer la presidencia del Consejo en forma alterna.

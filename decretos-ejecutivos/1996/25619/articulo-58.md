@@ -1,0 +1,1 @@
+Artículo 58.—Cualquier modificación o derogatoria que se haga en el Decreto de Salarios Mínimos vigentes, entrará a regir diez (10) días naturales después de la publicación del Decreto correspondiente.

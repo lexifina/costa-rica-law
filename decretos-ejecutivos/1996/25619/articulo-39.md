@@ -1,0 +1,1 @@
+Artículo 39.—Todas las empresas particulares del país quedan obligadas a suministrar los datos que les sean solicitados por la Oficina en relación con sus funciones, con las limitaciones que establece el ordenamiento jurídico aplicable.

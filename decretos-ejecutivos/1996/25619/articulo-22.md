@@ -1,0 +1,2 @@
+Artículo 22.—El quórum para que pueda sesionar válidamente el Consejo será de cinco de sus miembros.
+Si no hubiese quórum, el Consejo podrá sesionar válidamente en una segunda convocatoria, veinticuatro horas después de la señalada para la primera, salvo casos de urgencia, a juicio del presidente, en que podrá sesionar media hora después. Para ello será suficiente la asistencia de la tercera parte de sus miembros.

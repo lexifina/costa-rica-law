@@ -1,0 +1,3 @@
+Artículo 52.—El Consejo debe comunicar al Ministro inmediatamente la resolución de salarios mínimos que haya acordado, para que en el transcurso de un (1) mes posterior a su recibo, le dé su aprobación o la devuelva al Consejo con las observaciones pertinentes. En este último caso, la objeción puede fundamentarla el Ministro en razones de inconveniencia o por juzgar necesario hacerle reformas.
+El Consejo analizará las observaciones, las aprobará o rechazará y enviará la resolución al señor Ministro, para la publicación correspondiente.
+En caso que el Ministro no hiciere observaciones dentro del término establecido, la resolución quedará firme.

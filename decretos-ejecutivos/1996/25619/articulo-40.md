@@ -1,0 +1,1 @@
+Artículo 40.—El jefe del Departamento actuará como secretario del Consejo, con voz, pero sin derecho a voto. En sus ausencias será sustituido por un secretario ad hoc del seno del Consejo, nombrado por simple mayoría.

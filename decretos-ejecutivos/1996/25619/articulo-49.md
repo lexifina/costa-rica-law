@@ -1,0 +1,2 @@
+Artículo 49.—Cuando se trate de una fijación general de salarios mínimos, el Consejo no solo considerará las peticiones planteadas por los patronos y trabajadores o sus respectivas organizaciones, sino que, por su propia iniciativa, también puede fijar salarios para otras actividades ocupacionales no contempladas en el Decreto de Salarios Mínimos vigente.
+En todo caso, el Consejo conserva su facultad para fijar los salarios mínimos, calificar y ubicar las actividades productivas y renglones ocupacionales y establecer la nomenclatura que estime procedente.

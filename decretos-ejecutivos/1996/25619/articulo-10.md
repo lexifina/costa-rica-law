@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Consejo serán juramentados por el Ministro, de previo a la iniciación del respectivo período de labores o cuando corresponda, en el caso de que se trate de sustitución de otro miembro.

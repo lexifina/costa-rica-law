@@ -1,0 +1,1 @@
+Artículo 25.—Los acuerdos del Consejo podrán ser revocados. El recurso de revocatoria debe ser interpuesto por un tercero con interés y deberá ser resuelto en la sesión inmediata siguiente, a menos que sea necesaria prueba para mejor proveer.

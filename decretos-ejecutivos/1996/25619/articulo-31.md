@@ -1,0 +1,2 @@
+Artículo 31.—La ausencia justificada a sesiones de un miembro del Consejo no dará derecho al cobro de dieta, salvo cuando esté cumpliendo tareas o atendiendo actividades asignadas por el Consejo, según acuerdo previamente tomado, o bien cuando se presente el correspondiente certificado médico si la ausencia es motivada por razones de salud.
+Queda a juicio del presidente reconocer el pago de dietas a quienes se retiren antes de concluir la sesión, o a quienes llegaren tarde a ésta, tomando en cuenta las justificaciones aportadas al efecto.

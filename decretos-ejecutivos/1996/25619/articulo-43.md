@@ -1,0 +1,3 @@
+Artículo 43.—La Secretaría del Consejo no podrá suministrar datos sobre fijación, modificación o interpretación de salarios mínimos, mientras no se encuentren firmes los acuerdos respectivos.
+Queda prohibido, tanto a los miembros del Consejo, como a los funcionarios y empleados del Departamento, revelar cualquier dato o condiciones de trabajo de que conocieren, con motivo del desempeño de sus funciones.
+Por tratarse de asuntos de interés público, los documentos en que los interesados impugnen o defiendan la fijación, revisión e interpretación de acuerdos sobre salarios mínimos, quedan exceptuados de la indicada prohibición.

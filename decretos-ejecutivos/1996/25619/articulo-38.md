@@ -1,0 +1,1 @@
+Artículo 38.—Para mejor cumplir sus cometidos, el Consejo y el Departamento podrán requerir de las autoridades, empresas e instituciones públicas, la ayuda necesaria para los informes que necesitan y cualquier otra colaboración relacionada con sus funciones y actividades.

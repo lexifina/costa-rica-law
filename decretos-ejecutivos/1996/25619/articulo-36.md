@@ -1,0 +1,1 @@
+Artículo 36.—El Consejo contará con presupuesto y personal propios, debiendo figurar en el presupuesto del Ministerio de Trabajo y Seguridad Social como un programa debidamente identificado, que será administrado siguiendo las normas trazadas por el Consejo.

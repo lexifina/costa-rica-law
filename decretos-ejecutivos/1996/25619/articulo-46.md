@@ -1,0 +1,2 @@
+Artículo 46.—Para hacer la fijación de salarios mínimos, el Consejo contará con los resultados y datos que arrojen las encuestas, investigaciones y estudios realizados por el Departamento y otras dependencias competentes.
+Además, el Consejo procurara organizar un programa de audiencias con representantes del más alto nivel de instituciones del Estado y del Sector Privado, cámaras patronales y asociaciones de trabajadores, con la finalidad de conocer sus opiniones autorizadas, que habrán de contribuir a la determinación de una satisfactoria política sobre salarios mínimos.

@@ -1,0 +1,4 @@
+Artículo 57.—El Consejo debe comunicar al Ministro, inmediatamente la resolución que adopte sobre la solicitud de revisión de salarios mínimos o de inclusión de una nueva ocupación, para que en el lapso de diez (10) días le dé su aprobación o la devuelva al Consejo con las observaciones pertinentes.
+En este último caso, la objeción puede fundamentarse en razones de inconveniencia o por juzgar necesario hacerle reformas.
+Analizadas las observaciones enviadas por el Ministro, el Consejo las aprobará o rechazara y enviará la resolución a aquel para la publicación correspondiente. En caso de existir propuestas, éstas podrán ser acogidas total o parcialmente.
+En caso que el Ministro no hiciere observaciones dentro del término establecido en este artículo, la resolución correspondiente quedara firme.

@@ -1,0 +1,3 @@
+Artículo 21.—De conformidad con lo establecido en el artículo 10 del Decreto-Ley, los miembros del Consejo propietarios y suplentes, devengarán por cada sesión a la que asistan una dieta igual a la que reciban los miembros de las Juntas Directivas de las Instituciones Autónomas. En todo caso, únicamente serán remuneradas ocho (8) sesiones por mes, incluyendo ordinarias y extraordinarias.
+La partida correspondiente para el pago de las dietas del Secretario del Consejo, figurará en el Programa respectivo del presupuesto ordinario o extraordinario de la República.
+Los reajustes de las dietas se determinarán por Decreto Ejecutivo.

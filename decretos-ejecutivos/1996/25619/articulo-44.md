@@ -1,0 +1,1 @@
+Artículo 44.—La Secretaría del Consejo será el órgano de comunicación entre éste y las personas y entidades públicas y privadas, sin perjuicio de aquellas comunicaciones que por disposición del Consejo o por su propia iniciativa el presidente tenga a bien suscribir.

@@ -1,0 +1,1 @@
+Artículo 3°—El Consejo tendrá su sede en el Ministerio de Trabajo y Seguridad Social. Sin embargo, para el mejor cumplimiento de sus funciones, podrá sesionar válidamente en cualquier lugar del territorio nacional, previo acuerdo aprobado por mayoría simple.
