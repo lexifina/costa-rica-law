@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección General de Administración de Bienes continuará llevando los registros contables y la documentación correspondiente e informará de todos los movimientos contables a la Tesorería Nacional en forma mensual, hasta que la liquidación del fondo se haya operado.

@@ -1,0 +1,1 @@
+Artículo 6°—Todos los seguros actuales del Fondo Circulante, se mantendrán de conformidad con el contrato suscrito con el Instituto Nacional de Seguros, hasta la fecha última que se efectúe la liquidación total del mismo.

@@ -1,0 +1,1 @@
+Artículo 5°—La documentación física y lógica del Fondo Circulante, deberá ser trasladada bajo inventario a las oficinas centrales de la Dirección General de Administración de Bienes y Contratación Administrativa para su custodia y manejo.
