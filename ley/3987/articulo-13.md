@@ -1,4 +1,4 @@
-Artículo 13.- El producto total de la exportación bananera, deberá ser
+ARTICULO 13.- El producto total de la exportación bananera, deberá ser
 liquidado en el Banco Central, con excepción de lo dispuesto en
 contratos-leyes vigentes y conforme a la Ley Orgánica de dicha
 institución.

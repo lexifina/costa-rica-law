@@ -1,4 +1,4 @@
-Artículo 3º.- Los bancos del Sistema Bancario Nacional otorgarán
+ARTICULO 3º.- Los bancos del Sistema Bancario Nacional otorgarán
 créditos por el ciento por ciento para la financiación de plantaciones
 bananeras, ajustados a las reglamentaciones del Banco Central, el cual
 podrá descontar estos créditos y renovarlos anualmente por los saldos

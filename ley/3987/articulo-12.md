@@ -1,4 +1,4 @@
-Artículo 12.- Las parcelas adjudicadas en propiedad de acuerdo con el
+ARTICULO 12.- Las parcelas adjudicadas en propiedad de acuerdo con el
 artículo 11 de esta ley, no podrán ser enajenadas parcial ni totalmente,
 no gravadas ni aumentadas sin autorización previa y expresa del Instituto
 de Tierras y Colonización, a partir de la inscripción en el Registro, por

@@ -1,4 +1,4 @@
-Artículo 11.- Las instituciones públicas que sean dueñas, posean, o
+ARTICULO 11.- Las instituciones públicas que sean dueñas, posean, o
 administren tierras del Estado no podrán adjudicarlas, bajo concesión,
 arrendamiento o venta para el cultivo de banano, si no es a pequeños
 agricultores que participen en planes de colonización o cooperativismo,
