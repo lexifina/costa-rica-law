@@ -1,0 +1,1 @@
+Artículo 6°—El Concejo Municipal del Distrito, entre la primera y tercera sesión ordinaria, deberá nombrar a un Ejecutivo de Distrito, funcionario que requerirá para su elección de simple mayoría de los miembros de dicho Concejo y será el funcionario que represente legal y extrajudicialmente al Concejo Municipal del Distrito.

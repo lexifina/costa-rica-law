@@ -1,0 +1,1 @@
+Artículo 9°—El Concejo Municipal del Distrito sesionará ordinariamente una vez por semana y extraordinariamente cuando lo considere necesario. El día de las sesiones se fijará en la primera sesión del Concejo y se mandará a publicar en el Diario Oficial "La Gaceta".

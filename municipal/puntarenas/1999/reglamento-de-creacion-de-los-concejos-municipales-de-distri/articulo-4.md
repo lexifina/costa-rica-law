@@ -1,0 +1,1 @@
+Artículo 4°—Los presupuestos ordinarios y extraordinarios se ajustarán en fecha y limites contemplados por la ley para que puedan ser presentados al Concejo Municipal del cantón Central de Puntarenas, estando sujetos a las disposiciones de los artículos 177 y 179 del Código Municipal.
