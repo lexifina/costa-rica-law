@@ -1,0 +1,2 @@
+Artículo III.-Distancia media ponderada de transporte de las encomiendas en tránsito.
+El artículo 47, párrafo 2, última frase se aplicará a los siguientes países sólo a pedido de los mismos: República Socialista Soviética de Bielorrusia, República Popular de Bulgaria, República de Cuba, República Popular Húngara, República Popular de Mongolia, República Popular de Polonia, República Socialista de Rumania, República Socialista Checoslovaca, República Socialista Soviética de Ucrania y Unión de Repúblicas Socialistas Soviéticas.

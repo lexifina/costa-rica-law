@@ -1,0 +1,2 @@
+Articulo IX.- Excepciones al principio de la responsabilidad.
+Por derogación del articulo 39, la República de Irak, la República Democrática de Sudan, la República Democrática Popular de Yemen y la República de Zafre estarán autorizadas a no pagar indemnización alguna por la avería de las encomiendas originarias de cualquier país con destino a Irak, a Sudan, a Yemen (Rep. Dem. Pop.), o a Zaire, y que contengan líquidos y cuerpos fácilmente licuables, objetos de vidrio y artículos de naturaleza igualmente frágil.
