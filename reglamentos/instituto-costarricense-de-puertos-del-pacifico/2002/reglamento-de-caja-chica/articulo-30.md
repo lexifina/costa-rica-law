@@ -1,1 +1,0 @@
-Artículo 30.—No se tramitarán facturas de más de 30 días calendario de haberse efectuado la compra o servicio, así como tampoco facturas de fecha anterior de haberse recibido el vale.

@@ -1,1 +1,0 @@
-Artículo 25.—De la solicitud de adelantos. Los adelantos de fondos de caja chica deben solicitarse en la fórmula de adelanto para gastos de caja chica, con la previa autorización de aquellas personas indicadas en el Artículo 13 de este Reglamento y de la persona autorizada para retirar el dinero e indicar claramente el uso que se le dará a dicha compra.

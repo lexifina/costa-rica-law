@@ -1,1 +1,0 @@
-Artículo 33.—Del registro de firmas. La Sección Recaudación y los encargados de fondos deben mantener actualizado el registro de firmas que les permita verificar las firmas al realizar los trámites respectivos por caja. Los vales de caja chica que se presenten sin firmas autorizadas serán rechazados por la Sección Recaudación.
