@@ -15,3 +15,4 @@ Manual de Trámites, Requisitos y Formularios de la Municipalidad de San José
 | --- | --- | --- |
 | 1 | 2003-03-19 | la propia norma |
 | 2 | 2004-02-19 | Acuerdo municipal 0 (2004-02-19) |
+| 3 | 2005-02-22 | Acuerdo municipal 0 (2005-02-22) |
