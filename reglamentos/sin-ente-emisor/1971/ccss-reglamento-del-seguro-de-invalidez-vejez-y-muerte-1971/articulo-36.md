@@ -1,0 +1,1 @@
+Artículo 36.-El pensionado por invalidez está obligado a someterse a los tratamientos de rehabilitación o de readaptación profesionales que la Caja ordene. La renuncia a tales tratamientos motivará la suspensión de su pensión.

@@ -1,0 +1,1 @@
+Artículo 72.-La prueba de la existencia física de los beneficiarios corresponde a éstos, lo mismo que la de las demás condiciones que se establecen para el goce de las pensiones. No obstante, la Caja ayudará en lo posible en estas tramitaciones a través de su cuerpo de servidores sociales.
