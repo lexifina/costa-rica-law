@@ -1,0 +1,2 @@
+2) Se adiciona un párrafo segundo al artículo 14, en el siguiente sentido:
+“Los proveedores cuyas solicitudes cumplan técnica y legalmente se irán colocando en forma sucesiva, en una lista que al efecto se creará en cada actividad, y ese mismo orden es el que se utilizará para invitar a los diferentes concursos. Los proveedores nuevos que se vayan incorporando a este Registro se irán agregando a la citada lista”.

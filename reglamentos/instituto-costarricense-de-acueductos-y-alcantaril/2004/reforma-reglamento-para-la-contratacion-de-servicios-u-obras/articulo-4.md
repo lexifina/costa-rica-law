@@ -1,0 +1,1 @@
+4) Se aclara el artículo 41 en el sentido de que los contratos elaborados por los Notarios de planta del AyA no requieren ser protocolizados, pero sí deberá el Notario dar fe de la autenticidad de las firmas.
