@@ -1,0 +1,1 @@
+Artículo 25.—No se podrán efectuar modificaciones presupuestarias para la compra de estos recursos, salvo que el Área de Tecnología Informática Institucional, así lo apruebe. En este caso la compra también se efectuará por la Dirección de Suministros.

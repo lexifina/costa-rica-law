@@ -1,0 +1,1 @@
+Artículo 15.—Las compras de bienes que se consideren “Activos”, cuyos montos sean de Caja Chica, se realizarán por los Fondos de Trabajo, siguiendo el procedimiento establecido en SAP y deberán ajustarse a lo señalado en el Reglamento de Activos.

@@ -1,0 +1,1 @@
+Artículo 13.—Los Fondos de Trabajo también tramitarán las compras señaladas en el artículo 4 de este Reglamento mediante el Procedimiento Especial, establecido en el Manual de Procedimientos para la Adquisición de Bienes y Servicios.

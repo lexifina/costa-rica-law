@@ -1,0 +1,1 @@
+Artículo 12.—Los Fondos de Trabajo llevarán a cabo además los procedimientos de contratación directa, señalados como casos de excepción en el artículo 79 del Reglamento General de la Contratación Administrativa. Para ello deberán cumplir con el Procedimiento Ordinario establecido en el Manual de Procedimientos para la adquisición de bienes y servicios.

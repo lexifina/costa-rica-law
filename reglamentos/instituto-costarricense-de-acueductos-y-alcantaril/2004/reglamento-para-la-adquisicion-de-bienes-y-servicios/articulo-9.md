@@ -1,0 +1,1 @@
+Artículo 9º—Toda compra por Caja Chica deberá estar debidamente justificada por escrito por el técnico en la materia cuando proceda y avalada por el Director, Jefe Regional o Jefe Cantonal, según corresponda.
