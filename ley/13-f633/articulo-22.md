@@ -1,1 +1,0 @@
-Artículo 22.—Tanto los documentos a que se refiere el artículo anterior, como los demás que se necesiten para la obtención de esa gracia, así como las diligencias todas de la tramitación, se extenderán en papel común y libres de todo derecho fiscal, hasta su inscripción definitiva en el Registro Público.

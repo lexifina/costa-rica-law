@@ -1,1 +1,0 @@
-Artículo 72.—Las solicitudes de arrendamiento pendientes de tramitación, podrán continuarse cuando su extensión no exceda de la que determina el artículo 46; o si fuere mayor, cuando el solicitante reduzca el área de arrendamiento a los límites que dicho articulo permite. Les serán aplicables, en cuanto quepa, las disposiciones de los capítulos III y IV de la presente ley.

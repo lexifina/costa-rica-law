@@ -1,1 +1,0 @@
-Artículo 16.—Cuando el Estado determine deslindar un baldío, los dueños de propiedades limítrofes sufragarán la mitad de los gastos que ocasione la cerca, abra, ronda o camino que al efecto se levante o construya para servir de lindero entre dichas propiedades y los baldíos.

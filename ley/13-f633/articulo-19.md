@@ -1,1 +1,0 @@
-Artículo 19.—Las diferencias que resulten en más o menos, deberán ser protocolizadas en forma legal, a fin de que consten en el Registro Público las rectificaciones consiguientes, siendo a cargo del interesado todos los gastos de remedida e inscripción.

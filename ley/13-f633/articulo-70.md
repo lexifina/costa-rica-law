@@ -1,1 +1,0 @@
-Artículo 70.—El fondo de los lotes no podrá ser mayor de quince metros, veinticinco centímetros, dejando siempre en el frente, paralela a la línea férrea, una faja de terreno de igual extensión, a uno y otro lado de la línea exterior de los rieles.

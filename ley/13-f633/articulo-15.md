@@ -1,1 +1,0 @@
-Artículo 15.—Todo propietario de terrenos colindantes con los baldíos está obligado a tener cercada su finca, o cuando menos, hechos y limpios los carriles de ella, en toda la extensión que colinde con los baldíos, de modo que dichos carriles puedan ser siempre claramente reconocidos, para establecer con facilidad la línea divisoria de los baldíos.
