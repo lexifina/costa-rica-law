@@ -14,3 +14,4 @@ Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Reglamento Parcial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-07-02 | la propia norma |
+| 2 | 1983-04-20 | Reglamento 0 (1983-04-20) |

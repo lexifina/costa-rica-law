@@ -13,16 +13,16 @@ Requisitos:
 3°—Altura máxima de construcción:
 32 m.
 4°—Retiros mínimos:
-Retiro frontal: No menor de 5 m. Del áre-a o faja de terreno que quede frente al edificio deberá destinarse como mínimo un tercio a área ven el resto podrá utilizarse para actividades al aire libre tales como: sodas exhibición de artículos, venta de flores, etc.; en ningún caso podrá usa] para estacionar automóviles.
-Retiro lateral: No se exige.
-Retiro posterior: Un tercio de la altura del cuerpo más alto próximo a colindancia posterior, pero no menor de 5 m.
+a) Retiro frontal: no menor de 5 m para el Paseo Colón, calle 42 y parte correspondiente a avenida 10. En las calles secundarias rige el alineamiento municipal. Del área o faja de terreno que quede frente al edificio deberá destinarse como mínimo un tercio a área verde; el resto podrá utilizarse para actividades al aire libre tales como: sodas, exhibición de artículos, venta de flores, etc. y para estacionamiento siempre que tenga un solo acceso y una sola salida.
+b) Retiro lateral: No se exige.
+c) Retiro posterior: Un tercio de la altura del cuerpo más alto próximo a colindancia posterior, pero no menor de tres metros para edificios de uno o dos pisos y de cinco metros para edificios más altos.
 5°.—Cobertura máxima:
 75%.
 6°—Área máxima de construcción:
 Igual a Zona Urbana 1 (ZU-1).
-7°—Estacionamientos:
-Ver normas generales (artículo 22).
+7°—Estacionamientos:er normas generales (artículo 22).
 8°—Area de carga y descarga:
 Ver normas generales (artículo 22).
 9°—Marquesinas:
 Según el uso que se de al antejardín.
+(Así reformado por Acuerdo de la Junta Directiva del INVU, publicado en La Gaceta N° 74 de 20 de abril de 1983)

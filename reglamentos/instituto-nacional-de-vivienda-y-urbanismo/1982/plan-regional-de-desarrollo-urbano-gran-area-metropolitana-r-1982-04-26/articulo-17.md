@@ -25,15 +25,16 @@ de los 14 m hasta la altura máxima 50%.
 6°—Área máxima de construcción:
 4,7 veces la superficie del lote.
 7°—Estacionamientos:
-No se permiten.
+No se permiten en las calles que enfrentan al Teatro Nacional (Avenidas Central y Segunda, calles 3a y 5a), en el resto del área se aplicará lo indicado en el artículo 4°.
 8°—Área de carga y descarga:
 No se permiten en los lotes que enfrentan al Teatro Nacional (los 4 costados);
 en el resto de la zona, ver normas generales (artículo 22).
 9°—Marquesinas:
-IgualaZÜ-1.
+Igual a ZU-1, salvo en las áreas indicadas en el artículo siguiente:
 10.—Pórticos:
 Se exigirá en las calles 3 y 5 entre avenidas Central y 2a y sobre estas avenidas
 entre las calles 3 y 5.
 Deberá tener 3,5 m de ancho mínimo y la altura será de 5 m medidos sobre
 el centro de la esquina más alta de la cuadra.
 11.—Rótulos: Se prohiben perpendiculares al edificio. Se podrán poner paralelos a la fachada, el uso de letreros luminosos está sujeto a que no afecte la armonía del área, a juicio municipal.
+(Así reformado por Acuerdo de la Junta Directiva del INVU, publicado en La Gaceta N° 74 de 20 de abril de 1983)

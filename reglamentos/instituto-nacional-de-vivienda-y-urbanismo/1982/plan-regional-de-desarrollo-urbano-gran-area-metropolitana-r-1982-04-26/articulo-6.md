@@ -1,11 +1,11 @@
 Artículo 6°— Zona Urbana 2 (ZU-2):
-Propósitos:
+A) Propósitos:
 Permitir el desarrollo en ella de un sector de 'prestación de servicios (oficinas particulares) complementarias al área gubernamental y al centro comercial principal (Zona Urbana 1), sin perjuicio de que se continúe en ella el uso residencial y otros compatibles y complementarios.
-Usos no conformes:
+B) Usos no conformes:
 De la lista anexa, los enumerados 1 a 9.
-Usos condicionales:
+C) Usos condicionales:
 Los enumerados del 10 al 20 de la lista anexa.
-Requisitos:
+D) Requisitos:
 1°—Superficie mínima de lote:
 200 m2.
 2°—Frente mínimo de lote:
@@ -13,7 +13,7 @@ Requisitos:
 3°—Altura máxima:
 Igual que en la Zona Urbana 1. (ZU-1).
 4°—Retiros mínimos:
-Igual a Zona Urbana 1 (ZU-1).
+Igual a Zona Urbana 1 (ZU-1) salvo en casos de edificios de una o dos plantas que puede reducirse a tres metros o dejar patio equivalente y sobre la Calle José Martí en que el retiro frontal será de 5 m.
 5°—Cobertura:
 80%
 6°—Área máxima de construcción:
@@ -26,4 +26,5 @@ Hasta 200 | 4 3,5 3
 1000 y más | 6 5,5 4,5
 7°— Estacionamientos:
 Ver normas generales.
-Para efectos de cómputo se considerarán 24 m2 por vehículo. En esta zona se desea fomentar el estacionamiento de automóviles, por lo cual el área destinada a los estacionamientos que requiera el uso del edificio no se computará para efectos del cálculo del área máxima de construcción.
+Para efectos de cómputo en esta zona se considerarán 24 m2 por vehículo. En esta zona se desea fomentar el estacionamiento de automóviles, por lo cual el área destinada a los estacionamientos que requiera el uso el edificio no se computará para efectos del cálculo del área máxima de construcción.
+(Así reformado por Acuerdo de la Junta Directiva del INVU, publicado en La Gaceta N° 74 de 20 de abril de 1983)
