@@ -1,0 +1,1 @@
+Artículo 12.—Otras modalidades de administración de los recursos. El Infocoop podrá requerir al Organismo Cooperativo la constitución de un fideicomiso u otras modalidades para la administración de los recursos otorgados en crédito, si así lo considera necesario para salvaguardar sus intereses y los del proyecto cooperativo.

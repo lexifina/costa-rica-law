@@ -1,0 +1,2 @@
+Artículo 3º—Sujetos de crédito. Serán sujetos de crédito todos los Organismos Cooperativos cuyo funcionamiento se encuentra ajustado a las disposiciones de la Ley de Asociaciones Cooperativas y creación del Infocoop, vigente.
+Dentro del análisis técnico el Proceso de Operaciones debe verificar que el Organismo Cooperativo cumpla con las condiciones requeridas para ser considerado sujeto de crédito. Y en los casos que corresponda, de ser posible, se procurará que el Organismo Cooperativo cumpla las condiciones requeridas para que se ponga a derecho.

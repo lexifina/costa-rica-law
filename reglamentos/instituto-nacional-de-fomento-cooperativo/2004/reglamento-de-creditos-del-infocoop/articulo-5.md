@@ -1,0 +1,1 @@
+Artículo 5º—Del expediente del crédito. Para cada Organismo Cooperativo deudor se confeccionará un expediente particular en el cual se archiven todos los documentos que tengan relación con el crédito concedido, el cual será responsabilidad del Proceso de Operaciones.

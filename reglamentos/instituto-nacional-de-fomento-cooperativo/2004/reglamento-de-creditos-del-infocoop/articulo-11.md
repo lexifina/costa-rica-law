@@ -1,0 +1,1 @@
+Artículo 11.—Períodos de gracia. Se podrán otorgar períodos de gracia para los créditos destinados a financiar proyectos que por sus características demostradas en el estudio técnico así lo requieran. Los períodos de gracia son aplicables únicamente al pago de las amortizaciones.

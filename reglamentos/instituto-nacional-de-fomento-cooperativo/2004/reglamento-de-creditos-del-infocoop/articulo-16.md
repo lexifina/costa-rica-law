@@ -1,0 +1,2 @@
+Artículo 16.—Seguros. Todo deudor se obliga a mantener, según corresponda, el seguro o reaseguro de los bienes dados en garantía, con el fin de garantizar la recuperación de la inversión en caso de siniestro. Para cada caso concreto se definirá técnicamente, entre otros aspectos, la naturaleza, cobertura, plazos y forma de pago del seguro.
+En caso de que la cobertura del seguro o reaseguro no sea suficiente para abarcar el monto del crédito, se exigirán garantías adicionales. Todo seguro o reaseguro deberá indicar como acreedor al Infocoop.

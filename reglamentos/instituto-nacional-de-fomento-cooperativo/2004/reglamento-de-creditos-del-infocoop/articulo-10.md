@@ -1,0 +1,1 @@
+Artículo 10.—Fondos solidarios. Dentro de la estructura de tasas de interés podrá considerarse un esquema que permita a las Organismos Cooperativos estimular un proceso de creación de fondos solidarios, de acuerdo con la Política dictada por Junta Directiva y sujeta a la voluntad de la cooperativa de acuerdo con lo que se estipule en el contrato de crédito.
