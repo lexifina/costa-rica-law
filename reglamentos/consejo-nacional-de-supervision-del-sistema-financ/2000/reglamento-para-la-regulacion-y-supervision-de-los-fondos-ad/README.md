@@ -18,3 +18,4 @@ Reglamento para la regulación y supervisión de los fondos administrados median
 | 3 | 2000-07-24 | Reglamento 165 (2000-07-24) |
 | 4 | 2000-08-20 | Reglamento 172 (2000-08-20) |
 | 5 | 2000-08-28 | Reglamento 173 (2000-08-28) |
+| 6 | 2000-09-18 | Reglamento 177 (2000-09-18) |
