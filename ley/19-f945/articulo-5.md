@@ -1,0 +1,2 @@
+Artículo 5° La sentencia o auto definitivo recurrible que dicte la Sala Segunda de Apelaciones o la Corte Superior Marcial, y la que pronuncie el Juez del Crimen, condenatoria del reo o del alguno de los reos, deberá expresar claramente que hechos tiene por probados.
+Contra la apreciación de la prueba rendida, que haga en la sentencia o auto definitivo recurrible, el Juez o Tribunal sentenciador, no se puede recurrir en casación.
