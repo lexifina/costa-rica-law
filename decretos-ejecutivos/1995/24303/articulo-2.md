@@ -1,0 +1,3 @@
+Artículo 2º.- Modifícase el artículo 4º de la Ley Nº 7465 del
+6 de diciembre de 1994, en la forma que se indica a continuación:
+...
