@@ -1,0 +1,1 @@
+Artículo 83.-El desistimiento deberá presentarse ante la Dirección Ejecutiva o ante el MEIC, si la solicitud se encontrare ya ante éste. Deberá presentarse por escrito y la firma que lo ampare deberá ser autenticada por un abogado, o en su caso, debidamente legalizado el documento en que conste.

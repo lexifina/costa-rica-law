@@ -1,0 +1,1 @@
+Artículo 20.-Al Centro corresponde calificar inicialmente si las personas que exporten mercancías producidas o elaboradas total o parcialmente en el país, pueden gozar de los beneficios indicados en los artículos 6°, 8° y 10 de la Ley.

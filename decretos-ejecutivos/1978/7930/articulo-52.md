@@ -1,0 +1,1 @@
+Artículo 52.-Cuando se originen desechos en la producción, la Dirección General de Aduanas podrá autorizar por escrito, libre de derechos, su reembarque, destrucción, donación a instituciones públicas o de beneficencia, debidamente reconocidas por el Estado, o el traslado a otras empresas para ser incorporados en su producción que éstas destinen a la exportación.

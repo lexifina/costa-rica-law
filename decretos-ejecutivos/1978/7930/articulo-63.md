@@ -1,0 +1,1 @@
+Artículo 63.-La empresa beneficiaria está obligada a hacer el mejor uso de la cuota que se le hubiere asignado y no podrá traspasar a ningún título sin autorización del MEIC, quien tomará en cuenta la recomendación del Centro.

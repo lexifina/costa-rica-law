@@ -1,0 +1,1 @@
+Artículo 14.-EI CAT caducará veinticuatro meses después de la fecha de emisión. En caso de que dicha fecha correspondiera a un día inhábil, se tendrá como fecha de caducidad la del día hábil próximo siguiente.

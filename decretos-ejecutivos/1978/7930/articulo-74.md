@@ -1,0 +1,1 @@
+Artículo 74.-Para los efectos de lo establecido en el artículo anterior, los CIEX tendrán como fecha de emisión la misma de la venta de las divisas al Banco. Cuando la exportación se haya pagado en forma anticipada, sea mediante carta de crédito o remesa directa se tendrá como fecha de emisión la del embarque del producto.

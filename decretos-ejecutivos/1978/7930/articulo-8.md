@@ -1,0 +1,1 @@
+Artículo 8°-Corresponde al MEIC, tomando en consideración las recomendaciones del Centro, determinar cuáles son exportaciones a terceros mercados para los efectos de lo dispuesto en el artículo 3° de la Ley.

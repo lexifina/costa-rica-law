@@ -1,0 +1,1 @@
+Artículo 61.-Para determinar la bondad de la distribución, el Centro efectuará la evaluación, durante el año de vigencia, de la cuota que se le asignó a cada empresa. Si como resultado de tal evaluación se determina la necesidad de adecuar o ajustar la cuota asignada, lo comunicará así al MEIC con su recomendación para que éste proceda como lo considere necesario.

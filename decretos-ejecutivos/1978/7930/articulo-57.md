@@ -1,0 +1,1 @@
+Artículo 57.-La distribución de la cuota se efectuará con base en el promedio de las exportaciones de la respectiva empresa durante el año inmediato anterior, destinadas al país cuya cuota se distribuyó pero sin tomarse en cuenta las que se hubieren efectuado de la cuota fijada, si fuere el caso.

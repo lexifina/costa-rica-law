@@ -1,0 +1,1 @@
+Artículo 27.-El MEIC podrá solicitar para mejor resolver al Centro nuevos estudios o análisis, si considerare incompletos o insuficientes los que éste hubiere efectuado. En este caso, el plazo indicado en el artículo 5° de la Ley para que el MEIC resuelva en definitiva, empezará a contar a partir de la fecha en que el MEIC reciba del Centro los estudios o análisis adicionales.

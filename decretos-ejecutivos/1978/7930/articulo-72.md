@@ -1,0 +1,1 @@
+Artículo 72.-EI beneficio del CIEX se concederá para el incremento de las exportaciones correspondientes al período de un año calendario, quedando a juicio del Banco prorrogarlo por períodos iguales, para lo cual deberá contar con la recomendación previa del Centro.

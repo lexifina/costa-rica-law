@@ -1,0 +1,1 @@
+Artículo 56.-Para los efectos de esa distribución, las empresas exportadoras estarán obligadas a informar mensualmente al MEIC y al Centro el total de las exportaciones efectuadas al país cuya cuota se distribuyó y a suministrar cualquier otro dato o informe que se requiera.

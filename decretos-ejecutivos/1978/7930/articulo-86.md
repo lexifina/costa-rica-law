@@ -1,0 +1,1 @@
+Artículo 86.-Las personas que disfruten de los beneficios de la Ley quedarán obligados a suministrar al Ministerio de Hacienda, al MEIC y al Centro los informes y datos que le soliciten y a permitir las inspecciones que crean convenientes.

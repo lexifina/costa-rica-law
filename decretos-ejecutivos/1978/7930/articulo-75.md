@@ -1,0 +1,1 @@
+Artículo 75.-Todas aquellas situaciones no expresamente contempladas en este Reglamento, podrán ser resueltas por el Banco aplicando supletoriamente, en lo que corresponda, las disposiciones de la Ley y de este Reglamento.

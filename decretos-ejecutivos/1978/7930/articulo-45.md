@@ -1,0 +1,1 @@
+Artículo 45.-No pueden acogerse a los beneficios de este capítulo las importaciones de materias primas, productos semimanufacturados o productos terminados, que sean in sumos de alguna de las mercancías a que se refieren los artículos 2°, párrafo segundo de la Ley y 3° de este Reglamento.

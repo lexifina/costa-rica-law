@@ -1,0 +1,1 @@
+Artículo 46.-Pueden ingresar al país bajo el sistema previsto en este capítulo, por un plazo no mayor de ciento ochenta días, muestras, modelos, patrones y artículos similares para fines demostrativos, de investigación, de instrucción o de exposición en ferias nacionales o internacionales que se celebren en el país.

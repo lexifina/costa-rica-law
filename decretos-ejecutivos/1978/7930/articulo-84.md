@@ -1,0 +1,1 @@
+Artículo 84.-La resolución que admita e! desistimiento dará por terminadas las gestiones que tenga el solicitante, dejando la situación en el estado en que se hallaban antes de presentarse el escrito de desistimiento.

@@ -1,0 +1,1 @@
+Artículo 79.-En caso de que el MEIC apruebe la solicitud de beneficios, lo comunicará al Banco para que éste entregue al interesado los CAT previo el cumplimiento de los requisitos establecidos para tal efecto por el Banco. Si la solicitud de beneficios fuere denegada, el MEIC devolverá las diligencias al Centro y éste comunicará al interesado la denegatoria.

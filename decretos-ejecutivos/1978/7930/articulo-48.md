@@ -1,0 +1,1 @@
+Artículo 48.-Cuando la persona beneficiaria cese de sus operaciones, deberá reexportar las mercancías o maquinaria y equipo en su caso, dentro de los 180 días siguientes de la fecha de cese. De no reexportadas deberá pagar los impuestos correspondientes.

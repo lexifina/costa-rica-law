@@ -1,0 +1,1 @@
+Artículo 54.-Las solicitudes para acogerse al Capítulo IV de la Ley se presentarán al Centro y regirán los mismos trámites establecidos en los artículos 21 y 22 de este Reglamento en lo que fueren aplicables.

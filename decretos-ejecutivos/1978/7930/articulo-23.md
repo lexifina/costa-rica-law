@@ -1,0 +1,1 @@
+Artículo 23.-En el momento de la entrega de la solicitud, la Dirección Ejecutiva estampará al pie de aquélla una nota o sello en la que hará constar la fecha de su presentación y la numerará en orden ascendente. Deberá además, dar recibo de la solicitud y de los documentos que se le entreguen.

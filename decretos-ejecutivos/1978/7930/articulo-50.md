@@ -1,0 +1,1 @@
+Artículo 50.-Las personas que gocen de iguales beneficios bajo el sistema previsto en este capítulo podrán intercambiarse entre sí mercancías, libre de todo impuesto previa autorización del MEIC que debe ser comunicada a la Dirección General de Aduanas.

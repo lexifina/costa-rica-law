@@ -1,0 +1,1 @@
+Artículo 77.- Podrán solicitar los beneficios del CAT Automático las personas físicas de nacionalidad costarricense y las personas jurídicas cuyo capital sea nacional, que produzcan y exporten mercancías consideradas artesanías, conforme al artículo anterior.

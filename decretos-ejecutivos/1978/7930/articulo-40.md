@@ -1,0 +1,1 @@
+Artículo 40.-Las mercancías que se hayan importado sin pagar total o parcialmente los derechos de aduana aplicables, no podrán ser enajenadas a ningún título, o utilizadas para fines distintos de los que señale el correspondiente acuerdo o resolución, sin la previa autorización del MEIC.

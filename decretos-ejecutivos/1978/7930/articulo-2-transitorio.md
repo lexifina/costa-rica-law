@@ -1,0 +1,1 @@
+2.-Las solicitudes de CAT pendientes de resolución a la fecha de emisión de la ley N° 6075, se sujetarán a los trámites y requisitos establecidos en este Reglamento como lo establece el presente decreto.

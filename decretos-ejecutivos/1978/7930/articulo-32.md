@@ -1,0 +1,1 @@
+Artículo 32.-El Centro puede recomendar al MEIC que reforme de oficio las resoluciones, cuando la persona beneficiaria haya modificado las condiciones que sirvieron de base para emitir dicha resolución.

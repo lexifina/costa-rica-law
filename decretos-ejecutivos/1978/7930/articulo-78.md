@@ -1,0 +1,1 @@
+Artículo 78.-Para gozar de los beneficios del CAT al amparo de este capítulo los interesados deberán presentar su solicitud ante el Centro, el cual la remitirá con su recomendación al MEIC, para que se resuelva en definitiva.

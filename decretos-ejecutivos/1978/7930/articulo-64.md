@@ -1,0 +1,1 @@
+Artículo 64.-EI MEIC podrá cancelar la cuota de la empresa beneficiaria, si comprobare por cualquier medio que incurrió en violaciones a este Reglamento o que no hace uso adecuado de dicha cuota, tomando en cuenta la recomendación del Centro.

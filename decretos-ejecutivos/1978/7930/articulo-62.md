@@ -1,0 +1,1 @@
+Artículo 62.-La cuota asignada tendrá vigencia durante un año y deberá distribuirse a más tardar un mes antes de cobrar vigencia la siguiente. Si no fuere establecida en ese mes, la cuota será la misma del año inmediato anterior.

@@ -1,0 +1,1 @@
+Artículo 81.-Los artesanos no costarricenses y las personas jurídicas de capital extranjero, que se dediquen a la producción de artesanías, no podrán acogerse al régimen establecido en este capítulo para obtener los beneficios del CAT Automático. Sus solicitudes, si procedieran, deberán ceñirse a los trámites establecidos en los otros capítulos de este Reglamento.

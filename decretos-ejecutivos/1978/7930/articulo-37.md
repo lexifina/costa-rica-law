@@ -1,0 +1,1 @@
+Artículo 37.-Si la persona no hubiere sido calificada anteriormente para gozar de los beneficios del artículo 6° y pretendiera obtener los beneficios de los artículos 8° y 10, todos de la Ley , debe presentar al Centro la respectiva solicitud con los requisitos e informes que señalan los artículos 21 y 22 de este Reglamento.
