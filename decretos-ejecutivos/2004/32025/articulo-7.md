@@ -1,0 +1,1 @@
+Artículo 7°—Ninguna institución pública, ente descentralizado o empresa pública del Estado, podrán exceder en monto, porcentaje, ni vigencia el límite de aumento general definido en el presente decreto.
