@@ -1,1 +1,0 @@
-Articulo 2°—Facúltase a la Oficina de Control de Presupuesto del Ministerio de Hacienda, para que de común acuerdo con la Contraloría General de la República, modifique codificaciones. y adicione términos al Diccionario aprobado en el articulo anterior.
