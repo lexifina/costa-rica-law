@@ -1,0 +1,1 @@
+Artículo 26.-No podrá destinarse el todo o parte del detalle de un distrito en los caminos de otro distrito, excepto en el caso de que el Departamento de Caminos Vecinales considere que por las condiciones en que se encuentra un distrito con respecto a otro, sea necesario usar los fondos de uno para el arreglo de otro, previa consulta con ambas Juntas de Distrito.
