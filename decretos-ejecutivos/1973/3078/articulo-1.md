@@ -1,4 +1,6 @@
+(Derogado)
 Nº 3078-P
+(Derogado por acuerdo N° 217 del 6 de diciembre de 1974, "Crea Comisión Coordinadora para el Desarrollo Integral de la Cuenca del Río tempisque")
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE LA PRESIDENCIA,
 Considerando:

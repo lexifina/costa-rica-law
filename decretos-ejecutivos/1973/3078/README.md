@@ -15,3 +15,4 @@ Crea Comisión Coordinadora para estudios de Riego y Drenaje aprovechando las ag
 | --- | --- | --- |
 | 1 | 1973-07-17 | la propia norma |
 | 2 | 1974-03-08 | Decreto Ejecutivo 3574 (1974-03-08) |
+| 3 | 1974-12-06 | Acuerdo 217 (1974-12-06) |
