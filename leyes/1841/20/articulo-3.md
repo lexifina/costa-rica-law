@@ -1,0 +1,1 @@
+Art. 3. Se prohíbe la extracción de moneda de plata sellada en el Estado, ó habilitada en la forma prevenida en el artículo 1° bajo la pena de perder la cantidad que se intente extraer, y de tres meses de presidio por cada ciento pesos. – No se comprende en esta prohibición una cantidad menor de cien pesos destinada á gastos personales.
