@@ -1,0 +1,1 @@
+Art. 2 El Ministro de lo interior es encargado de la ejecucion de este decreto. -Dado en la ciudad de San José á los ocho dias del mes de enero de mil ochocientos cincuenta y dos. -Juan Ratael Mora,-AI Ministro de Estado en el Despacho de Gobernacion.- -Joaquin Beruardo Calvo."
