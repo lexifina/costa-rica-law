@@ -1,0 +1,1 @@
+Artículo 6°—La declaración a que se refiere el artículo anterior, deberá ser ratificada por el solicitante bajo juramento ante el Juez a quien se dirige, o ante el Juez o Alcalde del domicilio del petente, por comisión de aquel.

@@ -1,0 +1,1 @@
+Artículo 3°—En virtud de la presente ley no podrán adquirir más de cincuenta hectáreas ni podrán acogerse a sus disposiciones, aquellos que sean dueños de igual o mayor extensión de terreno en el territorio de la Republica.

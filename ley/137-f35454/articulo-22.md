@@ -1,0 +1,1 @@
+Artículo 22.—Si se declarare la caducidad, el que denunció el abandono, tendrá derecho preferente para entrar en posesión del terreno y sus mejoras, y adquirirlo de acuerdo con las prescripciones de esta ley.
