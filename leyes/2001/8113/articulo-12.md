@@ -1,0 +1,1 @@
+Artículo 12.—Sanción. A los contribuyentes que no presenten la declaración jurada municipal dentro del término fijado en el artículo 5 anterior, se les aplicará la multa equivalente al treinta por ciento (30%) del impuesto de patente correspondiente a todo el año anterior.

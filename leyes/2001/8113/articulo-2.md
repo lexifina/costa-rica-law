@@ -1,0 +1,1 @@
+Artículo 2º—Requisito para la licencia municipal. En toda solicitud de otorgamiento, traslado o traspaso de licencia municipal, será requisito indispensable que los interesados presenten certificación de estar al día en el pago de los tributos en favor de esta Municipalidad, así como los arreglos de pago.
