@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a los órganos y entes públicos para que colaboren con el Ministerio de Ambiente v Energía, el Fondo Nacional de Financiamiento Forestal y la Oficina Nacional Forestal, en la planeación y ejecución de esta Reunión Internacional de Expertos.
