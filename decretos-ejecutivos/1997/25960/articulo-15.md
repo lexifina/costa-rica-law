@@ -1,0 +1,2 @@
+DE LAS SOLICITUDES Y PERMISOS DE USO
+Artículo 15.-Las solicitudes y permisos de uso se tramitarán y otorgarán en formularios diseñados para tal fin, en los cuales se dejarán claramente establecidos los derechos y obligaciones del Administrador y la entidad y organización a la que se le ha otorgado el permiso, debiendo cumplir con todas las formalidades legales del caso y lo estipulado en el presente Reglamento.

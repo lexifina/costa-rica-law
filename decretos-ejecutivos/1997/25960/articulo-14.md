@@ -1,0 +1,4 @@
+FISCALIZACION
+Artículo 14.-Para la fiscalización del presente Reglamento se seguirán las siguientes reglas:
+a) El Consejo Nacional de Deportes por intermedio de la Dirección General de Educación Física y Deportes intervendrá, cuando el propietario administrador o el Administrador incumpla con lo establecido en el presente Reglamento o en el respectivo programa de trabajo, para lo cual la Dirección General de Educación Física y Deportes nombrará un órgano director del proceso que determinará las faltas en que se ha incurrido, de acuerdo a las disposiciones del ordenamiento jurídico vigente.
+b) El cumplimiento del Reglamento y del plan de mantenimiento será fiscalizado por el Consejo Nacional de Deportes por intermedio de la Dirección General de Educación Física y Deportes, la cual conocerá de las denuncias que se presenten contra el Administrador de las Instalaciones y se pronunciará con carácter vinculante en la recomendación de las acciones a seguir.

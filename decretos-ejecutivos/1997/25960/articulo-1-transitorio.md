@@ -1,0 +1,1 @@
+Transitorio l.-Las Asociaciones Deportivas organizadoras de la etapa final de los Juegos Deportivos Nacionales que en la actualidad se encuentren administrando instalaciones, deberán liquidar su patrimonio en el plazo máximo de tres meses a partir de la publicación de este Reglamento.

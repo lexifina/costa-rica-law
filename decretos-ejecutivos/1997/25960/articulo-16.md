@@ -1,0 +1,1 @@
+Artículo 16.- Todos los aspectos no contemplados en este Reglamento serán regulados por la Ley General de la Contratación Administrativa y sus reformas, la Ley General de la Administración Pública y demás disposiciones vigentes.

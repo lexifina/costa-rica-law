@@ -1,0 +1,1 @@
+Transitorio II.-El Consejo Nacional de Deportes realizará un inventario de los bienes muebles o inmuebles de dichas Instalaciones dentro de los tres meses posteriores a la publicación de este Reglamento y velará por la aplicación del mismo.

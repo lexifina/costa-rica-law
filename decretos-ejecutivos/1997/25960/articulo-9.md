@@ -1,0 +1,2 @@
+DEL ADMINISTRADOR
+Artículo 9°-El Administrador de las Instalaciones Deportivas podrá ser la Institución del Estado propietaria del terreno donde estas se encuentren, caso en que deberá formar un Comité Administrador. El Comité deberá aceptar las directrices generales que brinde el Consejo Nacional de Deportes por medio de la Dirección General de Educación Física y Deportes y serán responsables de dicha administración o bien será un Administrador nombrado bajo las directrices del artículo 10 de este Reglamento.
