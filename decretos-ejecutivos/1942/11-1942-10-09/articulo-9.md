@@ -1,0 +1,2 @@
+IX
+Para facilitar la permanencia y el perfeccionamiento de la obra de unificación a que este Convenio se refiere, se establecerá en San José de Costa Rica una Oficina Centroamericana de Educación que tendrá por misión recoger, conservar y distribuir toda clase de informaciones sobre planes de estudio, programas y textos de educación de los países representados, para dados a conocer a las Secretarías de Educación de los mismos.

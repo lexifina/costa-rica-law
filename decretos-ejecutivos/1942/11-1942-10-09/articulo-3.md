@@ -1,0 +1,6 @@
+III
+En relación con los factores principales del proceso educativo, la Escuela Centroamericana tendrá siempre presente:
+A) Que la educación es un proceso activo de crecimiento y de expresión y no pasivo de simple asimilación.
+B) Que el educando es el centro del proceso educativo y, por tanto, la educación debe inspirarse en sus capacidades, tendencias, intereses con el fin de obtener su eficiencia social; y considerar en todo caso que la escuela debe ser para el educando y no el educando para la escuela.
+C) Oue la Escuela Democrática Centroamericana debe ser el centro social de la colectividad v su influencia no debe confinarse dentro de las paredes escolares, sino trascender a la comunidad en general; y que, para ser eficaz, ha de fundamentarse en los principios de correlación y continuidad, y, además, ha de tener programas flexibles que dosifiquen los conocimientos.
+D) Que el maestro es un agente civilizador, no tan solo mero enseñador, pues su misión es la de dirigir el aprendizaje y las experiencias de los educandos, de acuerdo con las capacidades de éstos y las cambiantes posibilidades de cada región o comunidad, inspirándose en la disciplina de la libertad y en los métodos activos.

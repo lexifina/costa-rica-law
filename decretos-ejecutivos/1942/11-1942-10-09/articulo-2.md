@@ -1,0 +1,2 @@
+II
+Dentro de las normas democráticas y los principios pedagógicos de la Nueva Educación , la Escuela Centroamericana adoptará aquellas modalidades y características que requieran las necesidades peculiares cada país, región o comunidad, teniendo presente que la educación del pueblo es un derecho del cual deben disfrutar todos los ciudadanos y que los Estados Centroamericanos deben procurar ofrecer a todos sus habitantes lo que el mejor padre de familia desea para su hijo en materia de educación.
