@@ -1,1 +1,0 @@
-Artículo 4º.- Se asimilan al Grupo B del Escalafón Docente de la Enseñanza Media, para efectos de sueldo y estabilidad y hasta por tres años, a los alumnos de la Universidad de Costa Rica que cursen el Cuarto Año de los estudios para obtener el título de Profesor de Enseñanza Media, en cualquiera de sus especialidades.

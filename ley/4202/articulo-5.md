@@ -1,1 +1,0 @@
-Artículo 5º.- Para el sostenimiento económico de la Escuela, el Poder Ejecutivo deberá enviar en un presupuesto extraordinario, las partidas necesarias al efecto. En todo caso, los gastos que demande la Escuela, figurarán dentro del presupuesto que corresponde al Ministerio de Educación Pública.
