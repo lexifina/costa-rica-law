@@ -14,3 +14,4 @@ Reglamento para el pago de prohibición al personal de la administración tribut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-01-01 | la propia norma |
+| 2 | 1977-01-20 | Decreto Ejecutivo 6741 (1977-01-20) |
