@@ -1,4 +1,4 @@
-Artículo 12.- Los directores cesarán en sus funciones cuando
+ARTICULO 12.- Los directores cesarán en sus funciones cuando
 incurran en alguna de las siguientes causales:
 a) Renuncia expresa;
 b) Ausencia injustificada a cuatro sesiones consecutivas u ocho

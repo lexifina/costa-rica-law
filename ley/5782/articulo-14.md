@@ -1,4 +1,4 @@
-Artículo 14.- Todos los empleados del ramo de comunicaciones, ya
+ARTICULO 14.- Todos los empleados del ramo de comunicaciones, ya
 sean activos, pensionados o jubilados, deberán pertenecer a este régimen,
 con excepción de las personas, que disfrutan de pensión por haberles sido
 traspasada la que disfrutó de su deudo.
