@@ -1,0 +1,3 @@
+CAPÍTULO XII.
+De la contabilidad
+Art. 58. –La contabilidad de las oficinas telegráficas, se llevará en listas rayadas con divisiones verticales para siete columnas, destinadas á mostrar en la primera, el número; en la segunda, la fecha ion la primera, el número; en la segunda, la fecha; en la tercera, la destinación; en la cuarta, el número de palabras en la quinta, el valor de éstas; en la sexta, el nombre del que manda el aparte; y en la sétima, el nombre del que lo recibe. Se llevará una de estas listas para los que reciban, con la diferencia de que es la tercera columna de la lista que corresponda á estos, debe hacerse constar la procedencia.

@@ -1,0 +1,1 @@
+Art. 25. -Los telegramas dirigidos por ó para los funcionarios de que trata el art. 21, no se considerarán como oficiales, cuando su contenido sea de interés privado, con excepción de los dirigidos por el Presidente de la República y Secretarios de Estado, que en todo caso se considerarán como oficiales.

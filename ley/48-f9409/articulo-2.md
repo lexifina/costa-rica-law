@@ -1,0 +1,1 @@
+Art. 2°-Las actuales líneas telegráficas de la República se dividen en cuatro secciones: la primera de Cartago a Puntarenas; la segunda, de Esparta á Liberia; la tercera, de Liberia á la fronera con Nicaragua; y la cuarta, de esta capital al puerto de Iimón. Cada sección será provista de las oficinas y empleados que la seguridad y conveniencia pública demanden.

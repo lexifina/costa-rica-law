@@ -1,0 +1,1 @@
+Art. 23. -Los telegramas oficiales llevarán siempre el timbre ó sello del funcionario ú oficina que las dirija. Los partes oficiales serán concisos en su redacción, y no contendrán fórmulas ajenas al servicio telegráfico.

@@ -1,0 +1,1 @@
+Art. 43. -En los casos de interrupción de las líneas, los telegrafistas solamente podrán recibir partes ó despachos telegráficos, á condición de trasmitirlos cuando se restablezca la comunicación. Entretanto, los interesados podrán retirar de la oficina sus partes.
