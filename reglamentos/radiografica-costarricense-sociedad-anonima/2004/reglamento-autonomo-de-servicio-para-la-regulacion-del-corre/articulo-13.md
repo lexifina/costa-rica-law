@@ -1,0 +1,1 @@
+Artículo 13.—Para casos en los cuales el cliente presente problemas de relé o proxy abierto o de propagación masiva de correos infectados con virus, es responsabilidad del usuario solventar con la vulnerabilidad que su sistema haya presentado.

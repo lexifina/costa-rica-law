@@ -1,0 +1,1 @@
+Artículo 10.—Después que el cliente haya firmado su compromiso de no reincidir en la práctica de correo electrónico masivo o no deseado, RACSA dispondrá de dos días hábiles para desbloquear dicha cuenta o dirección IP. Si el cliente, en el plazo de un año, incumple nuevamente su declaración, la cuenta será retirada en forma definitiva.

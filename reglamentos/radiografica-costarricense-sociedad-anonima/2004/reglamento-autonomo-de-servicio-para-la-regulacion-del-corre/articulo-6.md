@@ -1,0 +1,1 @@
+Artículo 6º—Luego de recibir la denuncia, RACSA procederá a estudiarla y la declarará como correo electrónico masivo o no deseado si se ajusta a lo estipulado en el artículo 1 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—Los clientes a los que se les haya retirado el servicio definitivamente por incumplimiento de este Reglamento y que deseen adquirir un nuevo servicio de RACSA, deberán esperar un período de tres meses para su tramitación.

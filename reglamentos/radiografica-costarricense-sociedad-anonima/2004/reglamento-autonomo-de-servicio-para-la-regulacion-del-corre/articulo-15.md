@@ -1,0 +1,1 @@
+Artículo 15.—RACSA podrá iniciar de oficio el procedimiento establecido en el presente Reglamento y aplicar las sanciones correspondientes cuando compruebe la existencia de correo masivo o no deseado.
