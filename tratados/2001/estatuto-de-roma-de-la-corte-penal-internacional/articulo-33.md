@@ -1,0 +1,7 @@
+Artículo 33
+Órdenes superiores y disposiciones legales
+1.- Quien hubiere cometido un crimen de la competencia de la Corte en cumplimiento de una orden emitida por un gobierno o un superior, sea militar o civil, no será eximido de responsabilidad penal a menos que:
+a) Estuviere obligado por ley a obedecer órdenes emitidas por el gobierno o el superior de que se trate;
+b) No supiera que la orden era ilícita; y
+c) La orden no fuera manifiestamente ilícita.
+2.- A los efectos del presente artículo, se entenderá que las órdenes de cometer genocidio o crímenes de lesa humanidad son manifiestamente ilícitas.

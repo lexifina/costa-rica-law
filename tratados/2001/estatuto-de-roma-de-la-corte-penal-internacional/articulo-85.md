@@ -1,0 +1,5 @@
+Artículo 85
+Indemnización del detenido o condenado
+1.- El que haya sido ilegalmente detenido o recluido tendrá el derecho efectivo a ser indemnizado.
+2.- El que por decisión final hubiera sido condenado por un crimen y hubiere cumplido la pena correspondiente será indemnizado conforme a la ley de ser anulada posteriormente su condena en razón de hechos nuevos que demuestren concluyentemente que hubo un error judicial, salvo que la falta de conocimiento oportuno de esos hechos le fuera total o parcialmente imputable.
+3.- En circunstancias excepcionales, la Corte, si determina la existencia de hechos concluyentes que muestran que hubo un error judicial grave y manifiesto tendrá la facultad discrecional de otorgar una indemnización, de conformidad con los criterios establecidos en las Reglas de Procedimiento y Prueba, a quien hubiere sido puesto en libertad en virtud de una sentencia definitiva absolutoria o de un sobreseimiento de la causa por esa razón.

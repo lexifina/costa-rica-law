@@ -1,0 +1,4 @@
+Artículo 11
+Competencia temporal
+1.- La Corte tendrá competencia únicamente respecto de crímenes cometidos después de la entrada en vigor del presente Estatuto.
+2.- Si un Estado se hace Parte en el presente Estatuto después de su entrada en vigor, la Corte podrá ejercer su competencia únicamente con respecto a los crímenes cometidos después de la entrada en vigor del presente Estatuto respecto de ese Estado, a menos que este haya hecho una declaración de conformidad con el párrafo 3 del artículo 12.

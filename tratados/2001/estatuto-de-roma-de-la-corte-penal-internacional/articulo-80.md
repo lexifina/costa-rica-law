@@ -1,0 +1,4 @@
+Artículo 80
+El Estatuto, la aplicación de penas por
+los países y la legislación nacional
+Nada de lo dispuesto en la presente parte se entenderá en perjuicio de la aplicación por los Estados de las penas prescritas por su legislación nacional ni de la legislación de los Estados en que no existan las penas prescritas en la presente parte.

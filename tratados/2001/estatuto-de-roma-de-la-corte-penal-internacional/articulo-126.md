@@ -1,0 +1,4 @@
+Artículo 126
+Entrada en vigor
+1.- El presente Estatuto entrará en vigor el primer día del mes siguiente al sexagésimo día a partir de la fecha en que se deposite en poder del Secretario General de las Naciones Unidas el sexagésimo instrumento de ratificación, aceptación, aprobación o adhesión.
+2.- Respecto de cada Estado que ratifique, acepte o apruebe el Estatuto o se adhiera a él después de que sea depositado el sexagésimo instrumento de ratificación, aceptación, aprobación o adhesión, el Estatuto entrará en vigor el primer día del mes siguiente al sexagésimo día a partir de la fecha en que haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.

@@ -1,0 +1,4 @@
+Artículo 14
+Remisión de una situación por un Estado Parte
+1.- Todo Estado Parte podrá remitir al Fiscal una situación en que parezca haberse cometido uno o varios crímenes de la competencia de la Corte y pedir al Fiscal que investigue la situación a los fines de determinar si se ha de acusar de la comisión de tales crímenes a una o varias personas determinadas.
+2.- En la medida de lo posible, en la remisión se especificarán las circunstancias pertinentes y se adjuntará la documentación justificativa de que disponga el Estado denunciante.

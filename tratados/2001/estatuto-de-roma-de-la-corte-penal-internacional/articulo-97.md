@@ -1,0 +1,6 @@
+Artículo 97
+Consultas con la Corte
+El Estado Parte que reciba una solicitud de conformidad con la presente parte celebrará sin dilación consultas con la Corte si considera que la solicitud le plantea problemas que puedan obstaculizar o impedir su cumplimiento. Esos problemas podrían ser, entre otros:
+a) Que la información fuese insuficiente para cumplir la solicitud;
+b) Que, en el caso de una solicitud de entrega, la persona no pudiera ser localizada, pese a los intentos realizados, o que en la investigación realizada se hubiere determinado claramente que la persona en el Estado de detención no es la indicada en la solicitud; o
+c) Que el cumplimiento de la solicitud en su forma actual obligare al Estado requerido a no cumplir una obligación preexistente en virtud de un tratado con otro Estado.

@@ -1,0 +1,7 @@
+Artículo 125
+Firma, ratificación, aceptación, aprobación o adhesión
+1.- El presente Estatuto estará abierto a la firma de todos los Estados el 17 de julio de 1998 en Roma, en la sede de la Organización de las Naciones Unidas para la Agricultura y la Alimentación.
+Posteriormente, y hasta el 17 de octubre de 1998, seguirá abierto a la firma en Roma, en el Ministerio de Relaciones Exteriores de Italia.
+Después de esa fecha, el Estatuto estará abierto a la firma en Nueva York, en la Sede de las Naciones Unidas, hasta el 31 de diciembre del año 2000.
+2.- El presente Estatuto estará sujeto a la ratificación, aceptación o aprobación de los Estados signatarios. Los instrumentos de ratificación, aceptación o aprobación serán depositados en poder del Secretario General de las Naciones Unidas.
+3.- El presente Estatuto estará abierto a la adhesión de cualquier Estado. Los instrumentos de adhesión serán depositados en poder del Secretario General de las Naciones Unidas.

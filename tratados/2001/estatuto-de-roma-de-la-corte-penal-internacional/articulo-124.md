@@ -1,0 +1,3 @@
+Artículo 124
+Disposición de transición
+No obstante lo dispuesto en el párrafo 1 del artículo 12, un Estado, al hacerse parte en el Estatuto, podrá declarar que, durante un período de siete años contados a partir de la fecha en que el Estatuto entre en vigor a su respecto, no aceptará la competencia de la Corte sobre la categoría de crímenes a que se hace referencia en el artículo 8 cuando se denuncie la comisión de uno de esos crímenes por sus nacionales o en su territorio. La declaración formulada de conformidad con el presente artículo podrá ser retirada en cualquier momento. Lo dispuesto en el presente artículo será reconsiderado en la Conferencia de Revisión que se convoque de conformidad con el párrafo 1 del artículo 123.

@@ -1,0 +1,8 @@
+Artículo 74
+Requisitos para el fallo
+1.- Todos los magistrados de la Sala de Primera Instancia estarán presentes en cada fase del juicio y en todas sus deliberaciones.
+La Presidencia podrá designar para cada causa y según estén disponibles uno o varios magistrados suplentes para que asistan a todas las fases del juicio y sustituyan a cualquier miembro de la Sala de Primera Instancia que se vea imposibilitado para seguir participando en el juicio.
+2.- La Sala de Primera Instancia fundamentará su fallo en su evaluación de las pruebas y de la totalidad del juicio. El fallo se referirá únicamente a los hechos y las circunstancias descritos en los cargos o las modificaciones a los cargos, en su caso. La Corte podrá fundamentar su fallo únicamente en las pruebas presentadas y examinadas ante ella en el juicio.
+3.- Los magistrados procurarán adoptar su fallo por unanimidad pero, de no ser posible, este será adoptado por mayoría.
+4.- Las deliberaciones de la Sala de Primera Instancia serán secretas.
+5.- El fallo constará por escrito e incluirá una exposición fundada y completa de la evaluación de las pruebas y las conclusiones. La Sala de Primera Instancia dictará un fallo. Cuando no haya unanimidad, el fallo de la Sala de Primera Instancia incluirá las opiniones de la mayoría y de la minoría. La lectura del fallo o de un resumen de este se hará en sesión pública.

@@ -1,0 +1,6 @@
+Artículo 106
+Supervisión de la ejecución de la pena
+y condiciones de reclusión
+1.- La ejecución de una pena privativa de libertad estará sujeta a la supervisión de la Corte y se ajustará a las normas generalmente aceptadas de las convenciones internacionales sobre el tratamiento de los reclusos.
+2.- Las condiciones de reclusión se regirán por la legislación del Estado de ejecución y se ajustarán a las normas generalmente aceptadas de las convenciones internacionales sobre el tratamiento de los reclusos; en todo caso, no serán ni más ni menos favorables que las aplicadas a los reclusos condenados por delitos similares en el Estado de ejecución.
+3.- La comunicación entre el condenado y la Corte será irrestricta y confidencial.

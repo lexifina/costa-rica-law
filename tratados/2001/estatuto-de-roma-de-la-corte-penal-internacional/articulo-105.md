@@ -1,0 +1,4 @@
+Artículo 105
+Ejecución de la pena
+1.- Con sujeción a las condiciones que haya establecido un Estado de conformidad con el párrafo 1 b) del artículo 103, la pena privativa de libertad tendrá carácter obligatorio para los Estados Partes, los cuales no podrán modificarla en caso alguno.
+2.- La decisión relativa a cualquier solicitud de apelación o revisión incumbirá exclusivamente a la Corte. El Estado de ejecución no pondrá obstáculos para que el condenado presente una solicitud de esa índole.

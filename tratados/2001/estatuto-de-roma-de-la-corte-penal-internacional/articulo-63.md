@@ -1,0 +1,4 @@
+Artículo 63
+Presencia del acusado en el juicio
+1.- El acusado estará presente durante el juicio.
+2.- Si el acusado, estando presente en la Corte, perturbare continuamente el juicio, la Sala de Primera Instancia podrá disponer que salga de ella y observe el proceso y dé instrucciones a su defensor desde fuera, utilizando, en caso necesario, tecnologías de comunicación. Esas medidas se adoptarán únicamente en circunstancias excepcionales, después de que se haya demostrado que no hay otras posibilidades razonables y adecuadas, y únicamente durante el tiempo que sea estrictamente necesario.
