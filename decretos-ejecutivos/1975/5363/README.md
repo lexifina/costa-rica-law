@@ -13,3 +13,4 @@ Regulaciones Prestación de Servicios Públicos de AerotransportePasajeros y Car
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-11-05 | la propia norma |
+| 2 | 1975-11-05 | SINALEVI (sin norma nombrada) |
