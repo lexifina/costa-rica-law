@@ -14,3 +14,4 @@ Reforma al Reglamento del Fondo de Garantías y Jubilaciones de los Empleados de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-10-06 | la propia norma |
+| 2 | 2004-11-23 | Reglamento 5427 (2004-11-23) |
