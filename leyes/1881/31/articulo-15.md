@@ -1,0 +1,1 @@
+ART. 15.-Los accionistas pueden depositar sus títulos en la caja social, y reclamar un resguardo nominativo que acredite dicho depósito. El Consejo de Administración fija las condiciones y el modo de entrega, los gastos de resguardo y los del canje de los títulos.

@@ -1,0 +1,1 @@
+ART. 77.-Si la inscripción de la hipoteca, por motivos que en nada afectan la validez de las escrituras, no pudiere verificarse oportunamente, ni hubiese lugar purgar la hipoteca, queda cargo del propietario dar los pasos necesarios para remover aquellos obstáculos dentro de un tiempo equitativo, que se á por el Director-Administrador.

@@ -1,0 +1,1 @@
+ART. 4°. -A la Asamblea general de accionistas queda reservado el derecho de adoptar todo sistema que mejor llene el objeto de facilitar préstamos sobre fincas y promover en Costa-Rica el progreso de la agricultura.

@@ -1,0 +1,1 @@
+ART. 25.-El Consejo de Administración residen París y se reúne en las oficinas del Banco, tan á menudo como lo demande el interés de la Sociedad, y por lo menos una vez al mes. La presencia de tres miembros es necesaria para la validez de las deliberaciones.

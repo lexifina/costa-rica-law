@@ -1,0 +1,3 @@
+CAPITULO V.
+De la Junta Consultiva en Costa-Rica.
+ART. 38.-Habrá en la Sucursal de Costa-Rica una Junta Consultiva compuesta de tres miembros nombrados durante el primer año, por el Director-Administrador, y en los años siguientes, por los accionistas residentes en Costa-Rica, por mayoría de votos, entendiéndose que, para este efecto, cada accionista tiene un voto por una hasta diez acciones, y de este número en adelante tendrá un voto m s por cada veinte acciones. La convocatoria para elección de la Junta, será hecha oportunamente por el Director-Administrador, y la elección se realizará, cualquiera que sea el número de los accionistas concurrentes.

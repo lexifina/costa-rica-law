@@ -1,0 +1,1 @@
+ART. 64.-Toda anualidad que no sea satisfecha el día de su vencimiento, produce por el mismo hecho un interés de diez por ciento anual á favor de la Sociedad.-Lo mismo tendrá lugar respecto los gastos y costas del cobro, desde el día en que hayan sido causados.

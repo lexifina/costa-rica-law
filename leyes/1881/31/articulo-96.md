@@ -1,0 +1,3 @@
+CAPITULO XIII.
+Contestaciones.
+ART. 96.-En caso de contestación entre los accionistas, acerca de la ejecución de estos Estatutos, todo accionista elegirá domicilio en Paris; y toda notificación y citación será válidamente hecha en el domicilio electo, sin que sea tenido en cuenta el domicilio real del accionista. Si faltare la elección de domicilio, se tendrá electo por derecho, para las notificaciones judiciales, la oficina del Procurador de la República Francesa, cerca del Tribunal de 1a. Instancia del Departamento del Sena. La elección de domicilio hecha de cualquiera de las maneras indicadas en los dos párrafos que preceden, atribuir jurisdicción a los Tribunales competentes del Sena.

@@ -1,0 +1,1 @@
+ART. 36.-El Director-Administrador de Costa-Rica mandará cada mes al Consejo de Administración en París, un estado de las operaciones hechas durante el mes anterior, y dará conocimiento de las que están en perspectiva en el mes corriente.
