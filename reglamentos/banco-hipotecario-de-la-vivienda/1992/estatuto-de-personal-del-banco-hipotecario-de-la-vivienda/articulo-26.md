@@ -1,7 +1,3 @@
-Artículo 26.—Prestaciones legales: El Banco reconocerá las prestaciones legales a sus servidores considerando las siguientes normas:
-a) En caso de renuncia, el Banco reconocerá el pago del auxilio de cesantía a que se refiere el artículo 29 (veintinueve) del Código de Trabajo.
-b) En caso de despido con responsabilidad patronal, se reconocerá el pago de preaviso y cesantía.
-c) En caso de despido sin responsabilidad patronal, el servidor únicamente tendrá derecho a recibir el aporte patronal acumulado previsto en la Ley de Asociaciones Solidaristas, siempre y cuando estuviere afiliado a dicha Asociación.
-ch) Para el cálculo de la cesantía, se reconocerá el tiempo laborado en la Administración Pública, siempre y cuando no hubiere mediado pago de prestaciones y no se hubiere presentado interrupción en el servicio.
-d) El auxilio de cesantía se pagará a razón de un mes por cada año de servicio o fracción mayor a 6 (seis) meses, sin límite de años. A los servidores que tuvieren menos de un año de laborar, se les pagará el auxilio de cesantía según las reglas del artículo 29 (veintinueve), incisos a) y b) del Código de Trabajo.
-e) Además se utilizará como base de cálculo el sueldo promedio de los últimos 6 (seis) meses.
+Artículo 26.—Prestaciones legales: Para efectos de reconocimiento del pago de prestaciones legales, se aplicará en forma puntual, las disposiciones contenidas por el Código de Trabajo y sus reformas.
+Transitorio 1°—Esta reforma al Estatuto de Personal del Banco Hipotecario de la Vivienda, se aplicará a todos aquellos funcionarios que ingresen a esta Institución, en fecha posterior a la entrada en vigencia de esta reforma, de modo tal que a todo aquel personal nombrado con anterioridad a dicha fecha, se le respetarán los derechos adquiridos sobre la aplicación de la disposición anterior.
+(Así reformado por Acuerdo de Sesión Nº 29 del 24 de mayo de 2000)
