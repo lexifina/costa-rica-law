@@ -1,0 +1,14 @@
+CONSEJO NACIONAL DE PRODUCCIÓN
+Que en acuerdo No 33913, sesión No 2206, artículo 13, celebrada el 9 de agosto del 2000 se acordó:
+Acoger las modificaciones que se transcriben a continuación, propuestas por la Administración General de la Fábrica Nacional de Licores, mediante oficio ADG No 400 de fecha 3 de los corrientes, a los artículos 4 y 26 del Reglamento para la Venta de Licores Finos, en cumplimiento de lo solicitado por acuerdo de Junta Directiva No 33818, tomado en la sesión No 2188, artículo 7, celebrada el 31 de mayo, 2000. Dichas modificaciones consisten en lo siguiente:
+I.—Modificase el articulo 4 del Reglamento para la Venta de Licores Finos de la Fábrica Nacional de Licores, para incorporar un párrafo final, que textualmente diga así:
+"Las facturas correspondientes deberán ser canceladas dentro del plazo máximo de crédito otorgado, según las modalidades establecidas en el presente articulo. En caso de que la factura no sea cancelada en el plazo indicado se procederá al cobro de intereses moratorios correspondiente a dos puntos porcentuales arriba de la tasa activa para crédito comercial fijada por los Bancos del Estado.
+La Administración General esta autorizada en casos excepcionales y debidamente justificados a ampliar el crédito en ocho días adicionales, razón por la cual los intereses moratorios en este caso, correrán una vez vencido este plazo. Corresponderá al Departamento Financiero actualizar la tasa activa para el cobro de los intereses cada vez que ésta sea ajustada por los Bancos Comerciales, la cual comenzará a regir
+para estos efectos, a partir del mes siguiente de que dicha tasa haya sido variada por los Bancos Estatales".
+II.—Modificase el artículo 26 del Reglamento de Licores Finos de la Fábrica Nacional de Licores, a fin de agregar textualmente lo siguiente:
+"Para ello el Agente deberá cumplir con el siguiente procedimiento:
+1. Cobrar al cliente la factura correspondiente, dentro del plazo de crédito establecido.
+2. Vencido el plazo establecido y en caso de que las gestiones de cobro realizadas por el Agente resulten infructuosas, deberá el Agente de manera inmediata, comunicar por escrito a la Unidad de Créditos y Cobros quién deberá efectuar la gestión de cobro administrativo dentro del plazo de 8 días naturales, remitiendo en ese lapso, dos avisos de cobro al cliente.
+El Agente deberá trasladar el original de la factura a la Unidad de Créditos y Cobros, a más tardar ocho días después de la comunicación de que el cobro ha sido infructuoso.
+3. Si dentro del plazo indicado en el párrafo anterior el cliente no realiza la cancelación de la factura, la Unidad de Créditos y Cobros deberá remitir de inmediato la factura y la letra de cambio original a la Asesoría Legal para que se proceda al cobro judicial de la operación".
+San José, 8 de setiembre del 2000.—
