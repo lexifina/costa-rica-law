@@ -1,0 +1,1 @@
+Artículo 3°.- Autorizase a la Municipalidad del cantón central de la Provincia de Puntarenas para que otorgue título inscribible de propiedad sobre el área mencionada en el artículo anterior, a la Asociación Benéfica de Cristo Obrero, cuyo título no podrá ser traspasado por esta Sociedad sin autorización legislativa.

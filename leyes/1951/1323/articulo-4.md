@@ -1,0 +1,1 @@
+Artículo 4°.- La Municipalidad de Puntarenas podrá destinar a plaza de deportes y a otros usos de ornato público, los lotes que por ley N° 13 del 21 de noviembre de 1935 adquirió y destinó a Campo de Aviación.
