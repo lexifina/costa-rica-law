@@ -1,2 +1,0 @@
-Artículo 3°-Su restauración y mantenimiento correrá por cuenta del Ministerio de Obras Públicas y Transportes, bajo la supervisión del Departamento de patrimonio Histórico del Ministerio de Cultura, Juventud y deportes, y su uso será determinado por la Dirección General del Ministerio de Cultura, Juventud y deportes y el Ministerio de Educación Pública.
-Dado en la Presidencia de la República.-San José, a los tres días del mes de marzo de mil novecientos ochenta y uno.
