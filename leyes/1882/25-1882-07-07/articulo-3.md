@@ -1,0 +1,1 @@
+Art. 3° La función religiosa se verificará en la Santa Iglesia Catedral de la capital de la República en donde el cuerpo será expuesto por tres días; durante los cuales no hará la custodia del féretro por la Guardia de Honor,

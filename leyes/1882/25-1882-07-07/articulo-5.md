@@ -1,0 +1,1 @@
+Art. 5°-Contando con la aquiescencia del Ilustrísimo Señor Obispo, y en atención á que el Benemérito General Don Tomás Guardia fué durante su permanencia en el Poder, Patrono de la Iglesia, se exceptúa en su favor el cumplimiento de la ley que prohíbe dar sepultura en los templos, y se designará en la Santa Catedral un lugar para depositar sus réstos.
