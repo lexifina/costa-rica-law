@@ -15,3 +15,4 @@ Reforma total al Reglamento Constitución y Funcionamiento de Grupos Financieros
 | --- | --- | --- |
 | 1 | 1998-11-04 | la propia norma |
 | 2 | 1998-11-04 | Reglamento 48 (1998-10-29) |
+| 3 | 1999-09-27 | Reglamento 114 (1999-09-27) |
