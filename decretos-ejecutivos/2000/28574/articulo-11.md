@@ -1,1 +1,0 @@
-Artículo 11.—Con los ingresos percibidos por las contrataciones establecidas, se fortalecerán los fondos que financiarán los programas que desarrolle cada área de conservación donde se estableció la actividad o servicio.

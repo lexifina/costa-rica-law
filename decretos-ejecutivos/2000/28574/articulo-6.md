@@ -1,1 +1,0 @@
-Artículo 6º—Previo al establecimiento de las contrataciones administrativas, el área silvestre protegida deberá contar con un plan de manejo, planes operativos o un documento técnico aprobado por el comité técnico del área de conservación, oficializado.

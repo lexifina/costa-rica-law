@@ -1,1 +1,0 @@
-Artículo 8º—No se permitirá el otorgamiento de contrataciones de servicios en áreas silvestres protegidas que detenten la categoría de Reservas Biológicas, únicamente para actividades de investigación.
