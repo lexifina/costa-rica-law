@@ -1,0 +1,1 @@
+Artículo 6º.- Previamente el otorgamiento de estas patentes, la municipalidad respectiva coordinará con el Instituto Costarricense de Turismo, el diseño y la presentación de los puestos en que deberá ejercerse la actividad que se autoriza.
