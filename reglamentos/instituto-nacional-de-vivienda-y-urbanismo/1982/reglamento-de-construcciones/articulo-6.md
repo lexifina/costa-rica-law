@@ -47,12 +47,13 @@ Artículo VI. 9.—Escaleras de uso común.
 VI. 9.1. Los edificios de más de un piso tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores.
 VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso.
 VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general.
-VI.9.4. La huella no será menor de veintiséis centímetros (0,26 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+VI.9.4. La huella no será menor de veintiocho centímetros (0,28 m)*, ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+*(Reformado mediante sesión ordinaria N° 28, celebrada el 28 de agosto de 1987)
 Artículo VI. 10.—Escaleras y salidas de emergencia. Todos los edificios multifamillares con pisos a más de ocho metros medidos sobre el nivel de la acera, deberán contar con escalera de emergencia que desemboque a espacio público, con arreglo a las normas del artículo IV. 26.
 Las diferencias de niveles de piso en las salidas de emergencia deberán ser salvadas por rampa.
 Artículo VI. 11.—Instalaciones de agua. Todos los edificios destinados a vivienda estarán provistos de instalaciones de agua potable que tengan capacidad suficiente para abastecer ciento cincuenta (150 1) litros por habitante, por día.
 Los tanques de almacenamiento deberán ser construidos de tal forma que se evite la contaminación y el derrame de agua. Tendrán acceso fácil para su limpieza interior.
-Artículo VI. 12.—Fosas sépticas. Cuando no fuere posible conducir las aguas negras a un alcantarillado sanitario, será obligatorio disponer de ellas por medio de un tanque séptico con sus drenajes, o por algún otro sistema sanitario aprobado por el Ministerio de Salud
+Artículo VI. 12.—Fosas sépticas. Cuando no fuere posible conducir las aguas negras a un alcantarillado sanitario, será obligatorio disponer de ellas por medio de un tanque séptico con sus drenajes, o por algún otro sistema sanitario aprobado por el Ministerio de Salud.
 Artículo VI. 13.—Servicios sanitarios. Cada vivienda deberá contar con su propio servicio de baño, lavabo, inodoro, fregadero y pila de ropa.
 En zonas rurales en donde el Ministerio de Salud acepte la construcción de letrina, ésta deberá estar alejada de la vivienda ocho metros (8,00 m) como mínimo; si existiera pozo o tanque de almacenamiento de agua potable subterráneo, la letrina estará por lo menos a treinta metros (30,00 m) de aquéllos.
 Artículo VI. 14.—Desagües pluviales. Las aguas pluviales de techos, terrazas y patios, deberán ser conducidas a sistemas de alcantarillado pluvial o a cursos de aguas naturales.

@@ -16,3 +16,4 @@ Reglamento de Construcciones
 | 1 | 1983-03-22 | la propia norma |
 | 2 | 1987-05-04 | Reglamento 3822 (1987-05-04) |
 | 3 | 1987-08-03 | Reglamento 6 (1987-08-03) |
+| 4 | 1987-10-28 | Reglamento 28 (1987-10-28) |

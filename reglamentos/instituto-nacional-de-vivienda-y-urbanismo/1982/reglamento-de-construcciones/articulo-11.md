@@ -4,8 +4,7 @@ Artículo XI. 1.—Autorización y clasificación. Para otorgar licencia de cons
 Los sitios de reunión pública se clasificarán en:
 XI.1.1. Salas de espectáculos: teatros, cinematógrafos, salones de conciertos o conferencias y similares;
 XI.1.2. Centros sociales: casinos, cabarés, bares, restaurantes, salones de baile, clubes privados y similares;
-XI. 1.3. Edificios deportivos: estadios, gimnasios, hipódromos, plazas de toros y similares; y
-XI.1.4. Templos o locales de culto.
+XI. 1.3. Edificios deportivos: estadios, gimnasios, hipódromos, plazas de toros y similares; y XI.1.4. Templos o locales de culto.
 Artículo XI. 2.—Capacidad. La capacidad de los sitios de reunión pública se calculará así:
 XI. 2.1. Salas de espectáculos: un espectador por cada butaca o asiento;
 XI.2.2. Centros sociales: una persona por cada metro cuadrado de área de mesas o asientos descontándose en su caso, la superficie de la pista de baile; ésta deberá diseñarse considerando veinticinco decímetros cuadrados por persona (0,25 m2);
@@ -55,16 +54,23 @@ Mujeres: Dos inodoros y un lavabo por cada cuatrocientos/ (400) espectadoras o f
 XI. 22.3. Locales de culto:
 Hombres: Como mínimo, un inodoro, un orinal y lavabo.
 Mujeres: Como mínimo, un inodoro y un lavabo.
-Artículo XI. 23.—Previsiones contra incendio. Los sitios de reunión pública deberán construirse con materiales resistentes al fuego; esta resistencia deberá ser de 1 hora para edificaciones de una planta y 3 horas para aquellas de más de una hora, como mínimo. Deberán contar con sistema de combate de incendios cuyo caudal mínimo necesario e té dado por: Q == 134 (A) 1/2.
+Artículo XI. 23.—Previsiones contra incendio. Los sitios de reunión pública deberán construirse con materiales resistentes al fuego; esta resistencia deberá ser de 1 hora para edificaciones de una planta y 3 horas para aquellas de más de una planta como mínimo. Deberán contar con sistema de combate de incendios cuyo caudal mínimo necesario e té dado por: Q == 134 (A) 1/2.
 Q == Caudal, en litros por minuto.
 A = Superficie total en planta del edificio, en m2.
 La presión del sistema debe ser tal que permita operar dos mangueras de 38 mm colocadas en salidas opuestas para producir neblina a 7 kg/cm2, u otro sistema similar para el combate del fuego.
 Deberá colocarse como mínimo una manguera por piso, independientemente del área de éste.
 El sistema deberá tener su propia fuente de energía y el control necesario para el arranque automático; además debe contar con una o varias claves siamesas exteriores que permitan a los bomberos conectarse a ellas.
 Debe colocarse un sistema de detección y alarma contra incendios.
+(Así reformado mediante sesión ordinaria N° 28 del 28 de agosto de 1987)
 Artículo XI. 24.—Circulaciones en edificios deportivos. Las graderías para espectadores contarán con escaleras a cada nueve metros (9,00 m) como mínimo, con anchura mínima de noventa centímetros (0,90 m), huellas de treinta centímetros (0,30 m) y contrahuellas de veinte centímetros (0,20 m); estas escaleras se deben construir con peralte y con huella constantes.
 Cada diez filas habrá pasillos paralelos a las gradas con anchura mínima igual a la suma de las anchuras de las escaleras que desemboquen a ellos, entre dos puertas o salidas contiguas.
 Las puertas y salidas deberán construirse de acuerdo con las normas especificadas para los sitios de reunión pública.
 Artículo XI. 25.—Enfermería en edificios deportivos. Los edificios para espectáculos deportivos deberán contar con un local adecuado para enfermería.
-Artículo XI. 26.—Retiros en templos o locales de culto. Los edificios destinados a templos o locales de culto guardarán un retiro frontal de seis metros (6,00 m), y retiros laterales y posterior de tres metros (3,00 m).
-( Reformado mediante sesión ordinaria N° 3822, celebrada el 4 de mayo de 1987)
+Artículo XI. 26.—Templos o locales de culto. Los edificios destinados a templos o locales de culto guardarán un retiro frontal de seis metros (6,00 m), y retiros laterales y posterior de tres metros (3,00 m) y un frente mínimo a vía pública 16 metros
+Lotes regulares:
+XI.26.1 Retiros: posterior y lateral 3 m, frontal 6 m.
+XI.26.2 Tamaño del lote: frente mínimo requerido 16 m.
+XI.26.3 Usos: El uso de local para culto será considerado como Condicional en las zonas residenciales, excepto cuando enfrenten a vías principales.
+Lotes irregulares:
+Como vías de excepción se permitirán locales de culto en la parte posterior de lotes con forma irregular, cuyo callejón de acceso enfrente a vía pública, con un frente mínimo de 10 m y una longitud máxima de 50 m, área que no será apta para efectos de construcción, ya que su uso será únicamente como acceso, parqueo y áreas verdes, quedando el resto del lote para edificar, siempre y cuando cumplan con los retiros estipulados en el artículo XI.26.1.
+(Así reformado mediante sesión ordinaria N° 28, celebrada el 28 de agosto de 1987 y posteriormente, mediante sesión N° 4230, celebrada el 30 de julio de 1992).
