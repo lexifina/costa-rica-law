@@ -1,0 +1,2 @@
+ARTÍCULO XX
+Aunque una Parte Contratante haya dado por terminada la aplicación de la presente Convención por lo que a ella respecta de conformidad con lo dispuesto en el artículo XXV o la haya denunciado de conformidad con lo dispuesto en el artículo XXVI, sus disposiciones seguirán aplicándose a todos los daños nucleares causados por un accidente nuclear ocurrido antes de la fecha en que la presente Convención deje de aplicarse respecto de esa Parte Contratante.

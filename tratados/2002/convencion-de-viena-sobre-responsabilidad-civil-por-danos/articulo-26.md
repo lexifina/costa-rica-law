@@ -1,0 +1,4 @@
+ARTÍCULO XXVI
+1.—En cualquier momento después de haber expirado un plazo de cinco años a partir de la fecha en que la presente Convención haya entrado en vigor, el Director General del Organismo Internacional de Energía Atómica podrá convocar una conferencia para estudiar su revisión si un tercio de las Partes Contratantes manifestase el deseo de hacerlo.
+2.—Cada una de las Partes Contratantes podrá denunciar la presente Convención notificándolo al Director General del Organismo Internacional de Energía Atómica dentro de un plazo de doce meses a partir de la primera conferencia de revisión que se celebre de conformidad con lo dispuesto en el párrafo 1 del presente artículo.
+3.—La denuncia surtirá efecto un año después de la fecha en que el Director General del Organismo Internacional de Energía Atómica haya recibido la correspondiente notificación.

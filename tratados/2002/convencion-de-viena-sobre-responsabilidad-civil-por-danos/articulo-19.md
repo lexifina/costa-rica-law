@@ -1,0 +1,3 @@
+ARTÍCULO XIX
+1.—Las Partes Contratantes que concierten un acuerdo de conformidad con lo dispuesto en el apartado b) del párrafo 3 del artículo XI enviarán inmediatamente una copia del texto de tal acuerdo al Director General del Organismo Internacional de Energía Atómica para su conocimiento y para que se lo comunique a las demás Partes Contratantes.
+2.—Las Partes Contratantes pondrán en conocimiento del Director General del Organismo Internacional de Energía Atómica el texto de sus leyes y reglamentos referentes a las cuestiones que constituyen el objeto de la presente Convención, para que se lo comunique a las demás Partes Contratantes.

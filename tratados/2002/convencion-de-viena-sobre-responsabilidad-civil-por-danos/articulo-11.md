@@ -1,0 +1,6 @@
+ARTÍCULO XI
+1.—Sin perjuicio de lo dispuesto en el presente artículo, los únicos tribunales competentes para conocer de las acciones entabladas de conformidad con lo dispuesto en el artículo II serán los de la Parte Contratante en cuyo territorio haya tenido lugar el accidente nuclear.
+2.—Cuando el accidente nuclear haya tenido lugar fuera del territorio de cualquiera de las Partes Contratantes, o cuando no sea posible determinar con certeza el lugar del accidente nuclear, los tribunales competentes para conocer de esas acciones serán los del Estado de la instalación del explotador responsable.
+3.—Cuando, de conformidad con lo dispuesto en los párrafos 1 y 2 del presente artículo, sean competentes los tribunales de dos o más Partes Contratantes, la competencia se atribuirá:
+a) si el accidente nuclear ha ocurrido parcialmente fuera del territorio de toda Parte Contratante, y parcialmente en el de una sola Parte Contratante, a los tribunales de esta última;
+b) en todos los demás casos, a los tribunales de la Parte Contratante que determinen de común acuerdo las Partes Contratantes cuyos tribunales sean competentes de conformidad con lo dispuesto en los párrafos 1 y 2 del presente artículo.
