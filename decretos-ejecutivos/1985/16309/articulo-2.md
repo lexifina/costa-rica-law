@@ -1,0 +1,1 @@
+Artículo 2°—El sector de la Reserva Indígena Bribrí de Talamanca situado a la orilla del río Sixaola, al sur de Chase y al norte de la confluencia entre los ríos Telire y Yorkín se denominará en adelante Acberye (Piedra Grande) y es reconocido como uno de los caseríos indígenas de Talamanca.

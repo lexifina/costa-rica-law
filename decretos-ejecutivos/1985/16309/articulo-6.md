@@ -1,0 +1,1 @@
+Artículo 6°—En la toponimia indígena, se utilizará en adelante la "X", conforme con la costumbre establecida en los países de América Latina, y no la "sh" inglesa, quedando así Xiroles, Xwab, Xior, Xiragri y Xcuy, en lugar de Shiroles, Sheuab, Shior, Shiragri y Shcuy.
