@@ -1,1 +1,2 @@
-Artículo 3°-El pago del beneficio que aquí se establece estará condicionado a que el funcionario desempeñe sus labores al servicio efectivo de los programas señalados y sus plazas estén cubiertas por el presupuesto de los mismos.
+Artículo 3.-EI pago del beneficio que aquí se establece estará condicionado a que el funcionario desempeñe sus labores al servicio efectivo de los programas señalados y sus plazas estén cubiertas por el presupuesto de los mismos, en virtud de encontrarse en relación y al servicio directo del Presidente de la República.
+(Así reformado mediante el artículo 10 del decreto ejecutivo N0 27191 del 27 de julio de 1998).

@@ -14,3 +14,4 @@ Mantiene retribución económica por discrecionalidad y confidencialidad consist
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-08 | la propia norma |
+| 2 | 1998-07-27 | Decreto Ejecutivo 27191 (1998-07-27) |
