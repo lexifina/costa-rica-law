@@ -14,3 +14,4 @@ Reglamento Aplicación Beneficio Dedicación Exclusiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-12 | la propia norma |
+| 2 | 2000-01-12 | SINALEVI (sin norma nombrada) |
