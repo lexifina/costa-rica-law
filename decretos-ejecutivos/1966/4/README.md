@@ -14,3 +14,4 @@ Reglamento Pago Zonaje Servidores Ministerio Agricultura Ganadería
 | --- | --- | --- |
 | 1 | 1966-01-25 | la propia norma |
 | 2 | 1984-05-18 | Decreto Ejecutivo 15484 (1984-05-18) |
+| 3 | 1984-05-18 | Ley 8 |
