@@ -1,0 +1,1 @@
+2. El "Premio Acumulado" consiste en un premio adicional a los premios directos, que inicia con un importe de diez millones de colones (¢ 10.000.000). Cada semana en que se realice un sorteo ordinario de Lotería Nacional, se agrega la cantidad de tres millones de colones (¢ 3.000.000), para sumar al "Premio Acumulado" que jugará para la semana siguiente.

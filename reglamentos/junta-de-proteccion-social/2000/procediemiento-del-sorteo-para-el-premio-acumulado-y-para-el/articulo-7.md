@@ -1,0 +1,1 @@
+7. El no acierto del "Premio Acumulado" disponible en cada semana, implica que ese importe más el aporte semanal por tres millones de colones (¢ 3.000.000), constituya el nuevo monto del "Premio Acumulado" para el próximo sorteo.
