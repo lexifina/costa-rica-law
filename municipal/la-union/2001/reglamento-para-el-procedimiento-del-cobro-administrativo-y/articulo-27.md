@@ -1,0 +1,1 @@
+Articulo 27.—El cálculo de los honorarios profesionales debe ser realizado únicamente por el profesional en derecho, tomando como base el decreto de honorarios de abogado, que estuviere vigente y los mismos serán por el deudor.

@@ -1,0 +1,1 @@
+Articulo 5°—Es atribución y obligación de la Oficina de Cobro crear e implementar los mecanismos y controles necesarios para hacer efectivo el cobro correspondiente, pago de las cuentas morosas, tanto, administrativas como judicialmente.

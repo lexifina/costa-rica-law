@@ -1,0 +1,1 @@
+Articulo 31.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá lo seis meses calendario, contados a partir de la firma del documento respectivo, salvo autorización expresa del Alcalde.

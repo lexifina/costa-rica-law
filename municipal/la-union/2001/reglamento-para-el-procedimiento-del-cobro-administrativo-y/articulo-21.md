@@ -1,0 +1,1 @@
+Articulo 21.—Cuando un abogado tenga que retirarse de su bufete por un plazo mayor de ocho días hábiles deberá comunicarlo a su oficina de cobro previamente por escrito, e indicar el profesional en derecho que queda a cargo de los casos asignados para cualquier duda o consulta que se presente por parte de la Municipalidad.
