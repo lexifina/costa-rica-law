@@ -1,0 +1,4 @@
+Artículo III.6 Mercancías Reingresadas después de haber sido Reparadas o Alteradas
+1. Ninguna Parte podrá aplicar un arancel aduanero a una mercancía, independientemente de su origen, que sea reingresada a su territorio después de haber sido exportada desde su territorio al territorio de la otra Parte para ser reparada o alterada, sin importar si dichas reparaciones o alteraciones pudieron efectuarse en su territorio. (6)
+2. Ninguna Parte podrá aplicar aranceles aduaneros a las mercancías que, independientemente de su origen, sean importadas temporalmente de territorio de la otra Parte para ser reparadas o alteradas.
+(6) Este párrafo no cubre mercancías importadas bajo fianza, a una zona de comercio exterior o en condiciones similares que sean exportadas para reparación y no sean reintroducidas bajo fianza a una zona de comercio exterior o en condiciones similares.

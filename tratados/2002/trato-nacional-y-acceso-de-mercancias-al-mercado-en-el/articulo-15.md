@@ -1,0 +1,2 @@
+Artículo III.15 Acuerdo sobre Valoración Aduanera
+El Acuerdo sobre Valoración Aduanera, y cualquier acuerdo sucesor, regirá las reglas de valoración de aduana aplicadas por las Partes a su comercio recíproco. Las Partes acuerdan que ellas no harán uso en su comercio recíproco de las opciones y reservas permitidas bajo el Artículo 20 y párrafos 2, 3 y 4 del Anexo III del Acuerdo sobre Valoración Aduanera.

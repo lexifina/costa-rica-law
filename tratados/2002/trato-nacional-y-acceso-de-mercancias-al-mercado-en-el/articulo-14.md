@@ -1,0 +1,23 @@
+Sección IV – Consultas
+Artículo III.14 Consultas y el Comité de Comercio de Mercancías y Reglas de Origen
+1. Las Partes establecen un Comité de Comercio de Mercancías y Reglas de Origen integrado por representantes de cada Parte.
+2. El Comité se reunirá periodicamente y en cualquier otro momento a solicitud de una Parte o de la Comisión, para asegurar la efectiva ejecución y administración de este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) y las Reglamentaciones Uniformes. Al respecto el Comité deberá:
+(a) vigilar la ejecución y administración por las Partes de este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) y las Reglamentaciones Uniformes para asegurar su interpretación uniforme;
+(b) a solicitud de cualquiera de las Partes, revisar cualquier modificación propuesta, o enmienda propuesta a este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) o las Reglamentaciones Uniformes;
+(c) recomendar a la Comisión cualquier modificación o enmienda a este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) o a las Reglamentaciones Uniformes y a cualquier otra disposición de este Tratado que sea necesaria adecuarla a cualquier cambio en el Sistema Armonizado; y
+(d) considerar cualquier otra materia relacionada con la ejecución y administración por las Partes de este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) y las Reglamentaciones Uniformes referidas a ello por:
+(i) una Parte;
+(ii) el Subcomité de Aduanas establecido en el Artículo V.13 (Subcomité de Aduanas); o
+(iii) el Subcomité de Agricultura establecido en el párrafo 4.
+3. Si el Comité no resuelve una materia referida a él de acuerdo con el párrafo 2 (b) o (d) dentro de los 30 días de haber sido referida, cualquiera de las Partes podrá solicitar una reunión de la Comisión de conformidad con lo dispuesto en el Artículo XIII.1 (La Comisión de Libre Comercio).
+4. Las Partes establecen un Subcomité de Agricultura que deberá:
+(a) proporcionar a las Partes un foro de consulta en asuntos relacionados con acceso de mercado para productos agrícolas;
+(b) vigilar la ejecución y administración de este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) y las Reglamentaciones Uniformes en cuanto afecten a productos agrícolas;
+(c) reunirse anualmente o cuando lo solicite cualquiera de las Partes;
+(d) referir al Comité cualquier materia indicada en el inciso (b) sobre la cual no ha sido posible llegar a un acuerdo;
+(e) someter a consideración del Comité cualquier acuerdo obtenido de conformidad con este párrafo;
+(f) informar al Comité; y
+(g) hacer un seguimiento y promover la cooperación en materias relacionadas con productos agrícolas.
+5. Cada Parte, hasta donde le sea posible, tomará todas las medidas necesarias para ejecutar cualquier modificación o enmienda a este Capítulo, el Capítulo IV (Reglas de Origen), el Capítulo V (Procedimientos Aduaneros), el Capítulo VI (Medidas de Emergencia), el Capítulo IX (Facilitación de Comercio y Disposiciones Adicionales) y a las Reglamentaciones Uniformes dentro de los 180 días contados desde la fecha en que la Comisión acuerde la modificación o enmienda.
+6. Las Partes citarán, a requerimiento de cualquiera de ellas, a una reunión de sus autoridades responsables de aduanas, inmigración, inspección de productos agrícolas y alimenticios, instalaciones de inspección de fronteras y reglamentación de transporte, con el propósito de tratar asuntos específicos relacionados con el movimiento de mercancías, a través de los puertos de entrada de las Partes.
+7. Nada de lo dispuesto en este Capítulo se interpretará en el sentido de impedir a una Parte emitir una determinación de origen o una resolución anticipada, relacionada con una materia que está en consideración del Comité o de tomar cualquier otra acción que sea considerada necesaria, cuando esté pendiente la resolución de una materia de conformidad con este Tratado.
