@@ -1,0 +1,1 @@
+Transitorio VI.- El actual Director General del Servicio Nacional de Electricidad permanecerá en el cargo como Regulador General, por un plazo de diez meses a partir de la aprobación de esta ley. Vencido este lapso el Consejo de Gobierno nombrará al Regulador General, conforme al procedimiento fijado en la presente ley.

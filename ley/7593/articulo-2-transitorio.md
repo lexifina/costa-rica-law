@@ -1,0 +1,1 @@
+Transitorio II.- Los empleados y funcionarios del Servicio Nacional de Electricidad formarán parte del personal de la Autoridad Reguladora y conservarán los derechos laborales adquiridos. Serán cesados con responsabilidad patronal quienes actualmente cumplan funciones que la nueva institución no incluya dentro de sus competencias.

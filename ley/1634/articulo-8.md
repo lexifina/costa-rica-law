@@ -1,4 +1,4 @@
-Artículo 8º.- Solamente en los lugares donde exista servicio de
-fuentes públicas, las Municipalidades pueden ordenar la suspensión de los
-servicios de aguas potables por demora en el pago, previa notificación y
-plazo de cancelación de quince días.
+Artículo 8º.- DEROGADO
+(Derogado por el artículo 68 de la Ley Nº 7593 de 9 de agosto de
+1996). Nota: Esta derogatoria rige a partir del 5 de octubre de 1996,
+fecha en que entra a regir la supraindicada ley 7593.

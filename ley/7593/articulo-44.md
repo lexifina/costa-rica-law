@@ -1,0 +1,3 @@
+Artículo 44.- Cierre de empresas y remoción de equipo
+La Autoridad Reguladora procederá a ordenar, mediante resolución administrativa, el cierre inmediato de las empresas que utilicen sin autorización los servicios públicos o que sean proveedoras de un servicio público sin contar con la respectiva concesión o permiso. Igualmente, removerá cualquier equipo o instrumento que permita el uso abusivo e ilegal de los servicios regulados. Para ello, podrá contar con la ayuda de la fuerza pública.
+Las sanciones se aplicarán sin perjuicio de cualquier otra responsabilidad que pueda imputarse al prestatario del servicio público.
