@@ -1,0 +1,1 @@
+Artículo 13.-Se reconoce el idioma Cabécar como idioma local de la Reserva Indígena de Chirripó, así como de las otras reservas indígenas donde el cabecar es la lengua materna de la población, a saber Tayni, Telire, Talamanca oeste y Ujarrás.

@@ -1,0 +1,1 @@
+Artículo 2°.-Los límites establecidos en el artículo 1° del presente decreto son los que serán utilizados por el Instituto Geográfico Nacional para la nueva edición del mapa de Costa Rica, escala 1/50.000; el Instituto Geográfico Nacional comunicar a las instituciones interesadas los nuevos límites de la Reserva Indígena Cabécar de Chirripó, para los fines correspondientes.

@@ -1,0 +1,2 @@
+Artículo 10.-Procédase a actualizar la toponimia y corregir los errores y omisiones de localización y de ortografía de los nombres de los lugares correspondientes a la Reserva Indígena Cabécar de Chirripó.
+Este trabajo ser presentado por los geógrafos de la Sección de Asuntos Indígenas del Instituto de Tierras y Colonización y los lingüistas del Programa Educativo Bilingüe de CONAI, para su inclusión por el Instituto Geográfico Nacional en la próxima edición de los mapas 1/50.000 de Costa Rica.
