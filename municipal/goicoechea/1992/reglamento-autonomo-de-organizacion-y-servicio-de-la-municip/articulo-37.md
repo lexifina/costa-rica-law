@@ -23,3 +23,5 @@ r) Dañar, destruir, remover o alternar los avisos de advertencias sobre las con
 s) Manejar los vehículos municipales sin la debida autorización.
 t) Alterar las tarjetas de control de tiempo o los registros que se establezcan para el control de los vehículos.
 u) Solicitar, sugerir, exigir o recibir obsequios, recompensas o dádivas, como retribuciones por actos inherentes a sus cargos.
+v) Utilizar el equipo informático, líneas telefónicas, conexiones a satélite, claves de acceso a Internet, propietario de la Municipalidad, así como cualquier otro medio telemático, impreso o audiovisual para acceder y observar material pornográfico, erótico, así como contrario a la moral y las buenas costumbres.
+(Así adicionado el inciso anterior mediante sesión N° 46 del 19 de noviembre de 2001)
