@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Del departamento de patentes
+de la Municipalidad de Naranjo
+Artículo 26.—Atribúyase al Departamento de Patentes de la Municipalidad de Naranjo, como órgano encargado de la aprobación o rechazo en primera instancia de las patentes municipales, de su uso adecuado, gestión de cobro del impuesto sobre las patentes y los demás tributos que se establezcan a favor de la Municipalidad de Naranjo. Así como su registro, actualización y verificación de las Licencias que sean autorizadas. La revisión de las declaraciones y la correspondiente tasación estará a cargo del encargado y las personas que se designe para tal efecto. Para los efectos de reclamos administrativos sobre la tasación realizada, se aplicará lo establecido en la Ley del Impuesto de Patentes de la Municipalidad de Naranjo.

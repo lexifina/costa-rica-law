@@ -1,0 +1,1 @@
+Artículo 42.—De los requisitos para espectáculos públicos. Para toda actividad deberá contar con el permiso municipal, ya sea ocasional o permanente. Se aplicará lo establecido en los artículos 4º y 5º de este reglamento. En el caso específico de una entidad deportiva deberá presentar carta de autorización del comité Cantonal de Deportes y Recreación.

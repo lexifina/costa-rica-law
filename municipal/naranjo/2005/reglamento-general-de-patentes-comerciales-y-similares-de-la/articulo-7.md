@@ -1,0 +1,1 @@
+Artículo 7º—De la aprobación. Una vez realizada dicha diligencia, el Departamento de Patentes, solicitará al Departamento Legal su pronunciamiento y verificación de requisitos. Una vez con el visto bueno del Departamento legal se aprobará la patente en primer instancia.

@@ -1,0 +1,1 @@
+Artículo 39.—Del informe trimestral. El Departamento de Patentes de la Municipalidad de Naranjo efectuará las funciones relativas a la recaudación de este impuesto y dará un informe mensual sobre lo recaudado al Alcalde Municipal, en el cual indicará el tipo de actividad, nombre del negocio y el propietario, calidades, cantidad de tiquetes sellados y valor de éstos.
