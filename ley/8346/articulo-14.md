@@ -1,0 +1,1 @@
+Artículo 14.—Incompatibilidades. Los cargos del Consejo Ejecutivo serán incompatibles con el desempeño conjunto, directa o indirectamente, en empresas privadas, en las siguientes áreas: publicidad, producción o programas filmados, grabados o en magnetoscopio o radiofónicos, de radio o televisión.

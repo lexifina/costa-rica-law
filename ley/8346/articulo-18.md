@@ -1,0 +1,1 @@
+Artículo 18.—Donaciones y enajenaciones. Autorízase al SINART, S. A., para que reciba, a título gratuito u oneroso, donaciones y enajenaciones de toda clase; para ello, dos terceras partes de los miembros del Consejo Ejecutivo deberán tomar un acuerdo, del cual rendirán un informe escrito a la Contraloría General de la República.
