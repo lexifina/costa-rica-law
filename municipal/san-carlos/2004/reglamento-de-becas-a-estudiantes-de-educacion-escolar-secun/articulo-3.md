@@ -1,0 +1,1 @@
+Artículo 3º—De la divulgación: La divulgación de la existencia de Presupuesto Municipal, para la ayuda a estudiantes de escasos recursos, la realizará la Administración Municipal a los Concejos de Distrito.

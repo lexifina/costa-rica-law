@@ -1,0 +1,1 @@
+Artículo 5º—De las recomendaciones: Los beneficiarios de becas, serán recomendados por el Concejo del Distrito correspondiente, mediante acuerdo respectivo, que será trascrito a la Administración Municipal.
