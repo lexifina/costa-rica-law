@@ -1,0 +1,2 @@
+Artículo 12.—Llamadas internacionales. Tendrá acceso a llamadas telefónicas internacionales, tanto entrantes como salientes, la línea celular asignada al Director General, siempre y cuando sean realizadas para atender asuntos estrictamente relacionadas con la Imprenta.
+Las demás líneas celulares, únicamente tendrán derecho al acceso a llamadas internacionales entrantes, sin que esto genere ningún costo económico para la Junta.

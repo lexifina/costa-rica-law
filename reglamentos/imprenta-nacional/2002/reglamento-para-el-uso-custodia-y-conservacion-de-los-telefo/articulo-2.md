@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. Este Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares, pertenecientes a la Junta, asignados como una forma de facilitar el mejor desempeño de las funciones, tareas y actividades de los (as) servidores (as) y de los (as) usuarios (as).

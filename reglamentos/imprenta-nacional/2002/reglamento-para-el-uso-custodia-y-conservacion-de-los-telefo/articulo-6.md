@@ -1,0 +1,1 @@
+Artículo 6º—Cumplimiento de normas técnicas del proveedor de servicios de telefonía celular. Para la adquisición de teléfonos (aparatos) celulares se deberá cumplir con las normas técnicas establecidas por el proveedor de servicios de telefonía celular.
