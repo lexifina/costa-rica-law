@@ -1,0 +1,3 @@
+Artículo 2° El 912 del mismo Código se leerá como sigue:
+El Juez en el auto que admita la alzada en el efecto devolutivo, indicará las piezas que deben testimoniarse y cualquiera de las partes en el término de tres días, podrá pedir se agreguen a dicho testimonio las piezas que le parezcan convenientes. El Juez prevendrá a la parte, presente el papel necesario, pena de que se declará desierta la apelación si no lo verificarse en el término que se le señale.
+Concluido el testimonio de que hablan los dos artículos anteriores, se citará y emplazará a las partes en la forma que establece el artículo 908, para que comparezcan ante el Tribunal Superior dentro del término fijado en el mismo artículo.

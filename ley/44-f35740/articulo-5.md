@@ -1,0 +1,7 @@
+Artículo 5°. – El articulo 973 del mismo Código se leerá como sigue:
+Admitido el recurso ordenará el Tribunal de Casación al de segunda instancia que cite y emplace a las partes o a sus representantes para que se apersonen ante aquel dentro de tercero día.
+La citación y emplazamiento se hará a las partes por medio de notificación en la casa señalada para oír las de segunda instancia. Si no hubiere casa señalada para oír notificaciones se tendrán por citadas y emplazadas las partes que tendrán por citadas y emplazadas las partes que no hubieren hecho tal señalamiento por el simple transcurso de veinticuatro horas, a partir de aquella en que hubiere dictado el auto de citación y emplazamiento.
+Caso de que al recibirse la orden del Tribunal no se hubiere pedido la ejecución de la sentencia, la Sala apenas reciba la orden, prevendrá al victorioso que exprese, dentro del tercer día, si se propone pedir la ejecución de la sentencia. Si manifestare querer que se ejecute, ordenará la Sala que se certifiquen las piezas para este fin. Una vez determinada la certificación, se dictará la providencia de citación y emplazamiento. Si el victorioso dejare transcurrir el término de tres días dicho, sin pedir la certificación de piezas, la Sala sin mas trámite ni ulterior recurso, dictará la providencia de citación y emplazamiento.
+Al Poder Ejecutivo.
+Dado en el Salón de Sesiones del Congreso, Palacio Nacional, San José, a los siete días del mes de julio de mil ochocientos noventa y seis.
+Palacio Nacional, San José a nueve de julio de mil ochocientos noventa y seis.
