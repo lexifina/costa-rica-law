@@ -1,1 +1,1 @@
-Artículo 21.--La vida humana es inviolable.
+ARTÍCULO 21.- La vida humana es inviolable.

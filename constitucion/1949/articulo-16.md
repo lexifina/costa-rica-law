@@ -1,3 +1,2 @@
-Artículo 16.-- La calidad de costarricense se pierde:
-1) Por adopción de otra nacionalidad;
-2) Cuando el costarricense por naturalización, se ausente voluntariamente del territorio durante más de seis años consecutivos, salvo que de muestre haber permanecido vinculado al país.
+ARTÍCULO 16.- La calidad de costarricense no se pierde y es irrenunciable.
+(Así reformado por el artículo 1 de la ley N° 7514 de 6 de junio de 1995. Asimismo el transitorio único de dicha ley establece: “Las personas que hayan optado por otra nacionalidad y hayan perdido la costarricense, podrán recuperarla a tenor de lo dispuesto en el artículo 16 reformado, mediante simple solicitud, verbal o escrita, ante el Registro Civil. Este tomará nota de ello y efectuará los trámites correspondientes. La solicitud deberá plantearse dentro de los dos años posteriores a la vigencia de esta reforma”).

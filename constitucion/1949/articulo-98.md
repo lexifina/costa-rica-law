@@ -1,3 +1,3 @@
-Artículo 98.--Todos los ciudadanos tienen derecho de agruparse en partidos para intervenir en la política nacional
-Sin embargo, se prohíbe la formación o el funcionamiento de partidos que sus programas ideológicos, medios de acción o vinculaciones internacionales, tiendan a destruir los fundamentos de la organización democrática de Costa Rica, que atenten contra la soberanía del país, todo a juicio de la Asamblea Legislativa, por votación no menor a dos terceras partes de sus miembros y previo informe del Tribunal Supremo de Elecciones. (*)
-(*) Ver artículos transitorios.
+ARTÍCULO 98.- Los ciudadanos tendrán el derecho de agruparse en partidos para intervenir en la política nacional, siempre que los partidos se comprometan en sus programas a respetar el orden constitucional de la República.
+Los partidos políticos expresarán el pluralismo político, concurrirán a la formación y manifestación de la voluntad popular y serán instrumentos fundamentales para la participación política. Su creación y el ejercicio de su actividad serán libres dentro del respeto a la Constitución y la ley. Su estructura interna y funcionamiento deberán ser democráticos.
+(Así reformado por el artículo 1º de la Ley No.7675 de 2 de julio de 1997)

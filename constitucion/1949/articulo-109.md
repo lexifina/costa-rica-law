@@ -1,4 +1,4 @@
-Artículo 109.-No pueden ser elegidos Diputados, ni inscritos como candidatos para esa función:
+ARTÍCULO 109.- No pueden ser elegidos Diputados, ni inscritos como candidatos para esa función:
 1) El Presidente de la República o quien lo sustituya en el ejercicio de la Presidencia al tiempo de la elección;
 2) Los Ministros de Gobierno;
 3) Los Magistrados propietarios de la Corte Suprema de Justicia;

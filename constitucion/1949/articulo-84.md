@@ -1,1 +1,3 @@
-Artículo 84.--La Universidad de Costa Rica es una institución de cultura superior que goza de independencia para el desempeño de sus funciones, y de plena capacidad jurídica para adquirir derechos y contraer obligaciones, así como para darse su organización y gobierno propios.
+ARTÍCULO 84.- La Universidad de Costa Rica es una institución de cultura superior que goza de independencia para el desempeño de sus funciones y de plena capacidad jurídica para adquirir derechos y contraer obligaciones, así como para darse su organización y gobierno propios. Las demás instituciones de educación superior universitaria del Estado tendrán la misma independencia funcional e igual capacidad jurídica que la Universidad de Costa Rica.
+El Estado las dotará de patrimonio propio y colaborará en su financiación.
+(Así reformado por el artículo único de la ley N° 5697 de 9 de junio de 1975)

@@ -1,1 +1,4 @@
-Articulo 49.--Establécese la jurisdicción contencioso-administrativa, como función del Poder Judicial y con el objeto de proteger a toda persona en el ejercicio de sus derechos administrativos, cuando éstos fueren lesionados por disposiciones definitivas de cualquier naturaleza, dictadas por el Poder Ejecutivo o sus funcionarios, las Municipalidades y toda institución autónoma o semiautonoma del Estado, actuando como personas de derecho público y en uso de facultades regladas.
+ARTÍCULO 49.- Establécese la jurisdicción contencioso - administrativa como atribución del Poder Judicial, con el objeto de garantizar la legalidad de la función administrativa del Estado, de sus instituciones y de toda otra entidad de derecho público.
+La desviación de poder será motivo de impugnación de los actos administrativos.
+La ley protegerá, al menos, los derechos subjetivos y los intereses legítimos de los administrados.
+(Así reformado por el artículo único de la ley N° 3124 del 25 de junio de 1963)
