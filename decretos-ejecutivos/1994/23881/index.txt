@@ -14,6 +14,7 @@ articulo-13.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
+articulo-16-bis.md
 articulo-17.md
 articulo-18.md
 articulo-19.md
@@ -69,8 +70,8 @@ articulo-66.md
 articulo-67.md
 articulo-68.md
 articulo-69.md
-articulo-71.md
 articulo-70.md
+articulo-71.md
 articulo-72.md
 articulo-73.md
 articulo-74.md
