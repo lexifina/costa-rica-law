@@ -14,3 +14,4 @@ Reglamento de los riesgos de enfermerdad y maternidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1952-04-01 | la propia norma |
+| 2 | 1970-02-12 | Reglamento 4080 (1970-02-12) |
