@@ -1,0 +1,1 @@
+Artículo 21.—En todos los casos, los miembros de la Comisión de Becas y del Concejo Municipal, tomarán en consideración la situación socioeconómica del solicitante, para lo cual podrán ordenar cualquier otro estudio social que se estime conveniente.

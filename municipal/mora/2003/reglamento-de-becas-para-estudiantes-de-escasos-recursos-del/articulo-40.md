@@ -1,0 +1,1 @@
+Artículo 40.—La calificación de reprobado no significará el cese de la beca si se demuestra que la dificultad surgida para el estudio fue producida por enfermedad comprobada o por razones de fuerza mayor.

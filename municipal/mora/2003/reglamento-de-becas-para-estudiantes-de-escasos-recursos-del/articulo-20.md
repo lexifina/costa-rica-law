@@ -1,0 +1,1 @@
+Artículo 20.—La solicitud de la beca podrá hacerse en cualquier momento del año, y su otorgamiento dependerá de la aprobación por parte del Concejo Municipal, así como de la disponibilidad de recursos existentes en el fondo de becas.

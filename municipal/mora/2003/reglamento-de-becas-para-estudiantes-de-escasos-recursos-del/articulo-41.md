@@ -1,0 +1,1 @@
+Artículo 41.—En caso de renuncia justificada o que se le retire la beca a algún estudiante, en su lugar se otorgará a otra persona que se encuentre en lista de espera según previo estudio de la Comisión de Becas.

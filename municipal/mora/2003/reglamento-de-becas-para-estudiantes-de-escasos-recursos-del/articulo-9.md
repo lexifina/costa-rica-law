@@ -1,0 +1,3 @@
+TÍTULO II
+Del fondo de becas
+Artículo 9º—Dentro del presupuesto ordinario anual de la Municipalidad, se destinará un porcentaje que no será menor de 0,5% del total de dicho presupuesto el cual se utilizará para financiar el fondo de becas, sin perjuicio del porcentaje de lo recaudado por concepto de impuestos, lo anterior con el fin de permitirle a la Municipalidad contar con recursos suficientes para este fondo, acorde con los gastos educativos en que incurran los estudiantes regulares. Mediante acuerdo del Concejo, tal fondo podrá ser aumentado anualmente a criterio de éste y de conformidad con las variaciones que se produzcan en el costo de la vida.

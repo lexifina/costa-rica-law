@@ -1,0 +1,1 @@
+Artículo 11.—La Municipalidad podrá buscar financiamiento externo por medio de donaciones en efectivo o por medio de becas específicas, otorgadas por instituciones, para incrementar los recursos destinados a este programa de becas.

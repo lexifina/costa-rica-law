@@ -1,0 +1,1 @@
+Artículo 24.—El Concejo de Distrito respectivo elaborará un informe de recomendación que remitirá a la Comisión de Becas, el cual las aprobará o rechazará y que deberá resolver dentro de los quince días posteriores a su recibo.

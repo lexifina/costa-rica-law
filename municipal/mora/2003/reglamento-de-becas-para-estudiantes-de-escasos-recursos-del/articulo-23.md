@@ -1,0 +1,1 @@
+Artículo 23.—El Concejo de Distrito respectivo con base a las solicitudes presentadas seleccionará a los beneficiarios, dando prioridad en todo caso a los estudiantes de menores ingresos familiares y de mayor rendimiento académico.
