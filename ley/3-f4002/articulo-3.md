@@ -1,0 +1,1 @@
+Artículo 3° La introducción a que se refiere el artículo anterior, será permitida seis meses después de la fecha del presente decreto, término que podrá prorrogarse a tres meses mas a juicio del Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Art 4° Durante el término fijado para la introducción al país del tabaco breva y en rama, queda autorizado el Poder Ejecutivo para proveer el consumo público por los medios y en la forma establecidos.
