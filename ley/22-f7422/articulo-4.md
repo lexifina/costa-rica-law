@@ -1,0 +1,1 @@
+Art. 4. Tendrá lugar en la academia cada seis meses una exhibision pùblica de lo que hubiesen aprendido los alumnos, con objeto de conocer los progresos del establecimiento, juzgar de los trabajos del director y premiar á aquellos que hayan adquirido mayores conocimientos.

@@ -1,0 +1,1 @@
+Art. 2. Esta academia estará bajo la inspección de la Universidad; y el director profesor sujeto à las leyes del Instituto y á las providencias que en su virtud dictare la dirección de estudios; compitiéndole por tanto las exenciones de que gozan los Catedráticos de la misma Universidad, en cuya clase se considerará.
