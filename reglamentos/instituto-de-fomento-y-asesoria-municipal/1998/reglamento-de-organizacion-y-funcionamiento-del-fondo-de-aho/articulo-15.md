@@ -1,0 +1,2 @@
+Artículo 15: El afiliado tendrá derecho a la devolución del 70% de sus ahorros e intereses acumulados una vez retirado del FODEAP, siempre que no tenga obligaciones con el Fondo. De tener ese servidor obligaciones con FODEAP, el monto del ahorro y sus intereses acumulados se aplicarán a la deuda, en cuyo caso tendrá derecho a la devolución del excedente. La totalidad de los ahorros disponibles e intereses acumulados les serán devueltos al concluir su relación laboral.
+(Así reformado por acuerdo tomado en sesión N° 2865 de 9 de febrero de 1999)

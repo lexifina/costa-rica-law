@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo (El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-16 | la propia norma |
+| 2 | 1999-02-09 | Reglamento 2865 (1999-02-09) |
