@@ -1,0 +1,1 @@
+Artículo 13.—Vehículos para el transporte de servidores y recursos y de apoyo logístico de la Fuerza Pública. Están dentro de esta categoría los vehículos de uso de la Fuerza Pública que por sus características y destino, no pueden ser clasificados dentro de las dos categorías anteriores: por ejemplo autobuses, vehículos para el transporte de mercaderías, materiales, etc.

@@ -1,0 +1,1 @@
+Artículo 19.—Control del uso de los vehículos del Ministerio. Los jefes de cada una de las diferentes dependencias u oficinas administrativas así como de las unidades policiales a los cuales se les asignen vehículos, deberán ejercer los controles adecuados para que el uso de los automotores sea en forma adecuada y acorde con los fines públicos para los cuales han sido destinados.

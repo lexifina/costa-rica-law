@@ -1,0 +1,1 @@
+Artículo 26.—Responsabilidad del conductor en caso de accidente. Es responsabilidad del conductor al ocurrir un accidente de tránsito presentar la denuncia de accidente en un término máximo de veinticuatro horas ante la Sección de Colisiones, así como asumir la responsabilidad que por dolo, negligencia o culpa pueda corresponderle.

@@ -1,0 +1,1 @@
+Artículo 30.—De la responsabilidad del Ministerio. En aquellos casos en que algún vehículo perteneciente al Ministerio hubiere causado daños a terceros que no hayan participado en forma directa en el accidente los reclamos se tramitarán de conformidad con lo que establece el libro primero, título sétimo, capítulos primero y segundo de la Ley General de la Administración Pública.

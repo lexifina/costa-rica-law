@@ -1,0 +1,1 @@
+Artículo 9°—Vehículos destinados al servicio de vigilancia. Son aquellos vehículos de uso de la fuerza pública, destinados en forma exclusiva a prestar servicios relacionados con la seguridad ciudadana, el mantenimiento del orden público, la protección de los bienes y vidas de los habitantes y demás funciones de policía.

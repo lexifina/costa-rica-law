@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 26112
+
+Reglamento para Uso de Vehículos del Ministerio de Seguridad Pública
+
+- Tipo: Decreto Ejecutivo
+- Número: 26112
+- Fecha: 1997-05-09
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 125 del 1997-07-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40534&param2=42705&param3=1 (ficha 40534)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1997-07-01 | la propia norma |

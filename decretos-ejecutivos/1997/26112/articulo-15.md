@@ -1,0 +1,1 @@
+Artículo 15.—Control de los vehículos. Todos los vehículos estarán sometidos a los programas de mantenimiento, control, abastecimiento, kilometraje y diligencias en caso de accidente de trabajo y cualquier otro que establezca este Reglamento.
