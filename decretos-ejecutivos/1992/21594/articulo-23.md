@@ -1,0 +1,1 @@
+ARTICULO 23: Toda persona que realice algún tipo de mantenimiento, modificación, mantenimiento preventivo, en una Aeronave, Helicóptero, motor, hélice, sus partes o sus componentes, deberán utilizar las herramientas, equipo, aparatos de prueba y materiales de tal calidad que la condición de la aeronave sea como la original.

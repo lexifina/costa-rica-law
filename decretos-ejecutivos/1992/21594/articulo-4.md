@@ -1,0 +1,1 @@
+Artículo 4:_Toda Aeronave y Helicóptero de Policía que realice operaciones de vuelo debe mantener vigente su Certificado de aeronavegabilidad y estar debidamente registrada en el Registro de ves y Helicópteros de Policía.

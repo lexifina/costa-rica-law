@@ -1,0 +1,1 @@
+Articulo 3:_ Para otorgar el Certificado de Aeronavegabilidad a la aeronaves y Helicópteros de Policía, se debe tomar en cuenta que hayan sido diseñados, construidos, y ensayados de conformidad con el Anexo 8 del Convenio de Chicago de 1944 .

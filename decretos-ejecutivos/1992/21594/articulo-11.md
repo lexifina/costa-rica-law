@@ -1,0 +1,4 @@
+ARTICULO 11: Toda persona que realice las tareas de Mantenimiento Preventivo, reparación o modificación mayor de una aeronave, helicóptero, célula, motor, hélice, componente, o sus partes, debe realizar las siguientes anotaciones en el Registro de Mantenimiento:
+a. En caso de Mantenimiento Preventivo debe describir el trabajo realizado, la fecha en que completó el trabajo, la lectura del cuentahoras, y el tiempo total de la aeronave, así como el nombre de la persona que efectuó el trabajo.
+b. Cuando se trate de reparaciones o modificaciones mayores se requiere efectuar las anotaciones conforme al Anexo C de este Reglamento.
+c. Si el trabajo se llevó a cabo satisfactoriamente, debe incluirse la firma y numero de licencia de la persona que inspecciona y aprueba el trabajo, siendo esta la aprobación para el regreso a servicio de la aeronave.

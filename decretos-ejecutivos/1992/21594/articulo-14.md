@@ -1,0 +1,1 @@
+ARTICULO 14: El encargado de realizar una inspección de 100 horas debe utilizar un Formulario Gula mientras se ejecuta la inspección, el cual debe ser provisto por la entidad de diseño, o por la Dirección General del Servicio de Vigilancia Aérea, siempre que se incluya como mínimo los ítems y el detalle contenido en el Anexo B.

@@ -1,0 +1,1 @@
+ARTICULO 18: La persona competente para realizar la Inspección Progresiva debe ser un Técnico en Mecánica de Aviación, con Licencia Tipo 1 en Aeronaves o Helicópteros. Si el Inspector inicia con el Sistema de Inspección, debe realizarlo en forma completa, y posteriormente proseguir con la información detallada y de rutina conforme al Programa de Inspección.
