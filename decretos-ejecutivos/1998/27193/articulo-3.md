@@ -1,0 +1,1 @@
+Artículo 3°—El coordinador del Comité de Micotóxinas será el representante de la Oficina Nacional de Normas y Unidades de Medida, quien presidirá de acuerdo con lo que establece la Ley General de la Administración Pública.
