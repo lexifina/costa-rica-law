@@ -13,3 +13,4 @@ Aclaraciones al Formulario BANHVI 1-99 (Procedimiento para el Trámite y Concesi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-27 | la propia norma |
+| 2 | 2004-04-01 | Reglamento 19 (2004-04-01) |
