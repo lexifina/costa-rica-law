@@ -1,6 +1,2 @@
-Artículo 13.- Este impuesto se pagará en diez cuotas anuales
-sucesivas, equivalentes cada una a la décima parte del impuesto, debiendo
-cancelarse la primera en el mes de noviembre de 1948. Sin embargo, las
-referidas cuotas no podrán ser inferiores al 10% de la renta líquida
-gravable anual del contribuyente. Las personas que así lo deseen, podrán
-hacer sus pagos en cuotas mayores que las señaladas, o de una sola vez.
+Artículo 13.- Este impuesto se pagará en diez cuotas anuales sucesivas, equivalentes cada una, a la décima parte del impuesto, debiendo pagarse la primera cuota completa en el mes de noviembre de 1948. Las cuotas restantes se fraccionarán cada una en cuatro abonos trimestrales que deberán ser cancelados en los meses de marzo, junio, setiembre y diciembre de cada año. Las personas que así lo deseen, podrán hacer sus pagos en cuotas mayores que las señaladas, o de una sola vez.
+(Así reformado por el artículo 1° de la ley N° 679 del 31 de agosto de 1949)
