@@ -1,0 +1,1 @@
+Artículo 19.—La comisión informará a las instituciones cuáles de sus estudiantes reciben la beca municipal y le solicitará un seguimiento de los mismos, a fin de verificar si mantienen su condición de becarios.

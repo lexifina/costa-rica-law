@@ -1,0 +1,1 @@
+Artículo 22.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta y deroga la reglamentación anterior sobre materia de becas. Únicamente podrá ser modificado mediante acuerdo de mayoría simple del Concejo Municipal. Todo lo anterior según el artículo 43 del Código Municipal.

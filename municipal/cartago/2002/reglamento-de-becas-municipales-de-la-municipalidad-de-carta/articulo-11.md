@@ -1,0 +1,1 @@
+Artículo 11.—Los solicitantes deberán llenar el formulario confeccionado al efecto, garantizando la veracidad de la información brindada, y aportar los documentos que en él se soliciten. En caso de comprobarse que la información brindada no corresponde a la realidad, la solicitud no será tramitada y si la beca ya fue adjudicada, se suspenderá en forma inmediata.

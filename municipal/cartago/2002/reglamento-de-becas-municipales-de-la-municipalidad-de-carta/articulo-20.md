@@ -1,0 +1,3 @@
+Artículo 20.—El dictamen de la Comisión de Educación para la asignación de becas de cada año será conocido por el Concejo Municipal a más tardar en la cuarta sesión ordinaria de febrero, para lo cual la Comisión debe establecer el cronograma de presentación de documentos y estudios que lo haga posible.
+Además, de acuerdo con la disponibilidad de recursos, la Comisión podrá emitir dictámenes individuales o grupales para asignar nuevas becas durante el ejercicio presupuestario respectivo, los cuales requerirán, aprobación del Concejo Municipal para ser efectivos. En estos casos, la asignación será efectiva a partir del siguiente mes de la aprobación.
+Los acuerdos del Concejo que ratifiquen estos dictámenes sólo requieren mayoría simple.

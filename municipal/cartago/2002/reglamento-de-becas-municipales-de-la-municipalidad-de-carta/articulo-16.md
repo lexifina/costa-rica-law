@@ -1,0 +1,1 @@
+Artículo 16.—Con la finalidad de dar continuidad a los estudios de los becarios de escasos recursos con probada capacidad, las solicitudes de los estudiantes que hayan ostentado esta condición en el año anterior, serán consideradas preferencialmente en la asignación del beneficio, siempre y cuando continúen cumpliendo los requisitos establecidos.

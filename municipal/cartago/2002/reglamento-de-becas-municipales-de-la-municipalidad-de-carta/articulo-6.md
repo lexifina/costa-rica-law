@@ -1,0 +1,3 @@
+Artículo 6º—Las becas de los programas a, b y c, consistirán en una ayuda económica mensual y se acreditarán en forma directa y en efectivo, mediante el mecanismo que la Administración Municipal defina, a propuesta de la Comisión de Educación y Defensa de los Valores.
+Las ayudas del programa d, se asignarán por única vez, cuando existan recursos disponibles para casos de ayudas excepcionales relacionadas con necesidades educativas, de acuerdo con el criterio de la Comisión de Educación, ratificado por el Concejo Municipal, según el estudio de cada caso.
+El procedimiento de acreditación, en todos los casos, deberá contar con el visto bueno del Alcalde Municipal y hacerse del conocimiento del Concejo Municipal cada vez que se varíe.

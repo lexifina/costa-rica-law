@@ -1,0 +1,1 @@
+Artículo 13.—Las becas serán asignadas con base en el dictamen emitido por la Comisión de Educación de acuerdo a la tabla de criterios definida en este Reglamento. A este efecto la Comisión podrá solicitar la asesoría y colaboración de los entes internos y externos que considere idóneos.

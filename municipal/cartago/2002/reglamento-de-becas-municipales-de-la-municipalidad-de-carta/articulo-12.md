@@ -1,0 +1,1 @@
+Artículo 12.—En el caso de que alguna de las instituciones que deben emitir la documentación que requiere el solicitante se atrase en este trámite, se podrá asignar el tiempo prudencial de espera que esa institución señale, pero la solicitud de beca se tramitará hasta que la información haya sido completada.

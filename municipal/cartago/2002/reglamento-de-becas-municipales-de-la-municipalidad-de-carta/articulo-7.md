@@ -1,0 +1,1 @@
+Artículo 7º—En los programas a, b, y c las becas se asignarán para cada año lectivo hasta por un máximo de nueve meses, de marzo a noviembre de cada año. En el programa d, la ayuda se podrá conceder en el momento en que se requiera según cada caso.

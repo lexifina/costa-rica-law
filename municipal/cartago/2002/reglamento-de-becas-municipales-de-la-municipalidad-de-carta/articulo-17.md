@@ -1,0 +1,1 @@
+Artículo 17.—Al firmar el respectivo formulario de solicitud, los estudiantes mayores de edad o los padres o responsables de los menores de edad, autorizan a la Comisión de Educación para que realice las gestiones que considere pertinentes para verificar la información que proporcionan en el mismo.
