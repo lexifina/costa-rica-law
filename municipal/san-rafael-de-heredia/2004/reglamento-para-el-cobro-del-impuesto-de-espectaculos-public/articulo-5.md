@@ -1,0 +1,1 @@
+Artículo 5°—Tarifa. La Municipalidad del cantón de San Rafael de Heredia cobrará un impuesto del cinco por ciento (5%) sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos y de diversión no gratuitos señalados en el artículo 2° de este Reglamento.
