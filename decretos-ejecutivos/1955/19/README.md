@@ -14,3 +14,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-07-23 | la propia norma |
+| 2 | 1958-08-30 | Decreto Ejecutivo 13 (1958-08-30) |
