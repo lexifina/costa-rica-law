@@ -1,1 +1,0 @@
-Artículo 12.—Durante el transcurso de la sesión, el Presidente dispondrá discrecionalmente sobre lo relativo al uso de la palabra, tanto en lo referente el orden en que se conceda como número máximo de expositores que convenga para que el asunto quede suficientemente discutido, así como a la duración de las intervenciones.

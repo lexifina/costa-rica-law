@@ -1,3 +1,0 @@
-Artículo 22.—Lo dicho en el artículo anterior es aplicable también en lo que compete a los recursos ordinarios y extraordinarios que quepan contra los acuerdos de la Junta Directiva. No obstante, en todos los casos ésta resolverá primero sobre la admisibilidad formal de la impugnación, para entonces, en caso de estimarse procedente, entrar a conocer sobre su fondo.
-(Modificada tácitamente su numeración mediante acuerdo de sesión N° 1480 de 16 de agosto de 1990, que lo pasó del 14 al 15)
-(Modificada su numeración mediante acuerdo tomado en sesión N° 1649 de 2 de febrero de 1993, que lo pasó del 15 al 22)
