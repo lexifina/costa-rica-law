@@ -1,1 +1,0 @@
-Transitorio II.—Se concede un plazo de tres años a partir de la publicación del presente Reglamento, a todas las personas físicas o jurídicas, ya sean éstas: importadores, exportadores, fabricantes, formuladores, reempacadores, reenvasadores y vendedores de fertilizantes, material técnico y sustancias afines, para que ajusten sus etiquetas a las disposiciones aquí establecidas.
