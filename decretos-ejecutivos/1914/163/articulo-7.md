@@ -1,0 +1,3 @@
+Art. VII
+Con el fin de asegurar la pronta captura de los criminales que cometan actos delictuosos cerca de la frontera y que la traspasen para ponerse a salvo de la persecución de que sean objeto, las Repúblicas Contratantes convienen en que sus autoridades políticas o administrativas de los Departamentos fronterizos detengan provisionalmente a los prófugos mediante el simple requerimiento que al efecto les haga las de análoga categoría de la Nación reclamante.
+Ambas autoridades, la que pide la detención y la que la concede, deben dar inmediato aviso a la Cancillería respectiva para los efectos de que habla el artículo anterior.
