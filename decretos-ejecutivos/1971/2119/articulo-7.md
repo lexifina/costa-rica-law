@@ -1,0 +1,1 @@
+Artículo 7°.- Perderá su calidad de miembro de la Junta quien dejare de asistir sin justa causa a cuatro sesiones consecutivas o a seis no consecutivas en un período de seis meses. Esto no se aplicará a los miembros ex oficio. El Consejo decidirá sobre la periodicidad de sus sesiones.

@@ -1,0 +1,12 @@
+Artículo 8°.- Son funciones del Consejo:
+a) Escoger el repertorio anual de la Compañía Nacional de Teatro, que incluirá necesariamente una obra de autor costarricense y una obra del repertorio clásico. Se procurará cada año presentar una obra cuyo estudio esté previsto en los programas de enseñanza media, para representarla, de preferencia, en colegios o ante estudiantes. Además de la de autor costarricense, por lo menos una de las obras que se presenten cada año, deberá haber sido escrita en idioma español.
+b) Establecer, cuando las circunstancias lo aconsejen y permitan, una Sección de Teatro, Experimental en la Compañía, encargada de presentar obras contemporáneas y de vanguardia.
+c) Designar, a propuesta del Director Artístico, los directores escénicos que han de encargarse del montaje de las distintas obras.
+ch) Determinar, al final de cada año, cuales de las obras presentadas habrán de continuar activas en el repertorio de la compañía y cuales excluirse de él.
+d) Aprobar el plan de jiras que proponga el Director Administrativo, de acuerdo con el artículo 2° de este reglamento.
+e) Autorizar la contratación de actores supernumerarios a propuesta del Director Administrativo, o del director de escena respectivo, cuando las necesidades de la obra a representar así lo indiquen.
+f) Decidir por acuerdo expreso la presentación de obras cuyo montaje, costo de transporte u otras circunstancias, hagan aconsejable restringir su presentación a ciertos lugares o locales.
+g) Nombrar el personal administrativo y técnico que se requiera, y que no figure en el Presupuesto Nacional.
+h) Elaborar anualmente en el mes de noviembre, el presupuesto ordinario anual de la Compañía Nacional de Teatro, que deberá ser aprobado por la Contraloría General de la República, la cual vigilará y finiquitará su ejecución. Igual procedimiento se seguirá con los presupuestos extraordinarios y con las modificaciones que se introducen a unos y otros. Comunicar mensualmente al Ministerio de Cultura, Juventud y Deporte y a la Contraloría General de la República, sus estados de cuenta.
+i) Sancionar, de acuerdo con el Reglamento interior de Trabajo que elaborará, las faltas en que incurra el personal de su nombramiento, y elevar al Ministerio las gestiones respectivas en el caso del personal de nombramiento de éste.
+k) Elegir de su seno, cada año, un Secretario y un Tesorero. El Consejo estará presidido por el Ministro y el Viceministro será su Vicepresidente, con la función de suplir al Presidente en sus ausencias.

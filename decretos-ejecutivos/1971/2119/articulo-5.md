@@ -1,0 +1,1 @@
+Artículo 5°.- El gobierno de la Compañía Nacional de Teatro estará a cargo de un Consejo de Administración compuesto por el Ministro de Cultura, Juventud y Deporte, el Viceministro del ramo y tres miembros de libre nombramiento del Ministro, que durarán en sus cargos dos años y podrán ser reelectos.
