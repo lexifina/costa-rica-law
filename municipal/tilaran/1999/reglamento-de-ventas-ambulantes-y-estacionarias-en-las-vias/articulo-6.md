@@ -1,0 +1,1 @@
+Artículo 6°-Se concederá sólo una licencia para este tipo de actividad, por núcleo familiar, entendiéndose por familia a la pareja con sus hijos o sin sus hijos, o personas solas con problemas económicos, sociales o de otro tipo debidamente comprobados.

@@ -1,0 +1,1 @@
+Artículo 14.-EI diseño de los puestos deberá ser aprobado por la Municipalidad y será de carácter obligatorio, cuyas dimensiones máximas serán: 120 cms de ancho por 175 cms de largo; estos podrán ser rodantes. Ningún puesto podrá ampliarse de ninguna forma, ni siguiera con toldos o plásticos u otro objeto que tienda a la protección del mismo contra la luz solar.

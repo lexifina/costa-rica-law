@@ -1,0 +1,1 @@
+Artículo 16.-El I.C.E., Acueductos y Alcantarillados y demás instituciones, no podrán suministrar los servicios a ningún puesto estacionario, que no cumpla con el permiso, salvo en casos especiales autorizados por la Municipalidad.

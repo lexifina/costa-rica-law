@@ -1,0 +1,1 @@
+Artículo 3°-La licencia o patente deberá ser solicitada por escrito ante el Concejo Municipal, en papel corriente con ¢200,00 de timbres municipales, así como el permiso de funcionamiento sanitario correspondiente.

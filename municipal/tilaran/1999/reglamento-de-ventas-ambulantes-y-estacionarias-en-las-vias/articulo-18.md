@@ -1,0 +1,2 @@
+Artículo 18.-Los vendedores ambulantes no permanecerán estacionados en un mismo sitio, salvo el tiempo necesario que lo requiera el cliente. En cuanto a las demás regulaciones se exigen los requisitos para los estacionarios.
+Los camiones distribuidores de productos deberán cumplir con los requisitos establecidos en este Reglamento, y poseer la respectiva licencia y patente de esta Municipalidad para ejercer la actividad.
