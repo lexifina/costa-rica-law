@@ -1,0 +1,1 @@
+Art. 7-Toda orden de pago, por sueldos de oficialidad, pre y gastos diversos, se hará por medio del 2° jefe ó el proveedor del cuerpo, contra el Tesoro, dejando en el tronco el recibo citando en él el presupuesto, si lo hubiere.
