@@ -1,0 +1,1 @@
+Artículo 3º—Modifíquese el artículo N° 5 del Decreto Ejecutivo N° 10707- G, para que en adelante se lea: Los límites distritales se ajustarán a la delimitación de la Reserva Indígena de Quitirrisí, delimitada en el artículo N° 1 del presente Decreto.

@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el artículo N° 4 del Decreto Ejecutivo N° 10707- G para que en adelante se lea: La zona así delimitada en el artículo N° 1 del presente Decreto, corresponde al área geográfica y jurídica de acción de la Asociación de Desarrollo Integral Indígena de Quitirrisí.
