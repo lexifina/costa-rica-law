@@ -428,3 +428,5 @@ articulo-418.md
 articulo-419.md
 articulo-420.md
 articulo-421.md
+articulo-343-bis.md
+articulo-123-bis.md
