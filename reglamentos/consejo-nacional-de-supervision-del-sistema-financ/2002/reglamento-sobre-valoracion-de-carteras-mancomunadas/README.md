@@ -14,3 +14,4 @@ Reglamento sobre valoración de carteras mancomunadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-15 | la propia norma |
+| 2 | 2002-03-07 | Reglamento 286 (2002-03-07) |
