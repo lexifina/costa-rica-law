@@ -1,0 +1,1 @@
+Art. 7° -La Compañía se obliga á poner á disposición del Gobierno de Costa Rica, ocho pasajes anuales de ida y vuelta en primera clase, desde el puerto de Puntarenas hasta el de San Francisco de California y puertos intermedios, así como de Puntarenas hasta Panamá, y viceversa, siempre que para el efecto lo notifique el Gobierno á la Agencia de la Compañía en esta República.

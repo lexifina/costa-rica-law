@@ -1,0 +1,1 @@
+Art. 16.-El Gobierno de Costa Rica puedecontratar libremente con cualesquiera otros individuos ó Compañías, para el establecimiento de nuevas líneas de comunicación; pero se obliga el mismo á no conceder por el término de este contrato mejores condiciones ó mayores ventajas que las aquí estipuladas.

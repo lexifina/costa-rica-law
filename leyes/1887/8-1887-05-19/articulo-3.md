@@ -1,0 +1,1 @@
+Art. 3°-Los vapores de la Compañía continuarán haciendo además un viaje redondo por mes en la línea conocida y designada como la línea centroamericana, entre Panamá y Champerico, tocando á la ida y á la vuelta en Puntarenas y en los puertos principales de las demás repúblicas de Centro América.
