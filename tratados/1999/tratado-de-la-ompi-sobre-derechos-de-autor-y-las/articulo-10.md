@@ -1,25 +1,6 @@
 ARTÍCULO 10
 Limitaciones y excepciones
-1.- Las Partes Contratantes podrán prever, en sus legislaciones
-nacionales, limitaciones o excepciones impuestas a los derechos concedidos
-a los autores de obras literarias y artísticas en virtud del presente
-Tratado en ciertos casos especiales que no atenten a la explotación normal
-de la obra ni causen un perjuicio injustificado a los intereses legítimos
-del autor.
-2.- Al aplicar el Convenio de Berna, las Partes Contratantes
-restringirán cualquier limitación o excepción impuesta a los derechos
-previstos en dicho Convenio a ciertos casos especiales que no atenten a la
-explotación normal de la obra ni causen un perjuicio injustificado a los
-intereses legítimos del autor. (9)
-(9) (Declaración concertada respecto del Artículo 10:
-Queda entendido que las disposiciones del Artículo 10 permiten
-a las Partes Contratantes aplicar y ampliar debidamente las
-limitaciones y excepciones al entorno digital, en sus
-legislaciones nacionales, tal como las hayan considerado
-aceptables en virtud del Convenio de Berna. Igualmente, deberá
-entenderse que estas disposiciones permiten a las Partes
-Contratantes establecer nuevas excepciones y limitaciones que
-resulten adecuadas al entorno de red digital.
-También queda entendido que el Artículo 10.2) no reduce ni
-amplía el ámbito de aplicabilidad de las limitaciones y
-excepciones permitidas por el Convenio de Berna.)
+1.- Las Partes Contratantes podrán prever, en sus legislaciones nacionales, limitaciones o excepciones impuestas a los derechos concedidos a los autores de obras literarias y artísticas en virtud del presente Tratado en ciertos casos especiales que no atenten a la explotación normal de la obra ni causen un perjuicio injustificado a los intereses legítimos del autor.
+2.- Al aplicar el Convenio de Berna, las Partes Contratantes restringirán cualquier limitación o excepción impuesta a los derechos previstos en dicho Convenio a ciertos casos especiales que no atenten a la explotación normal de la obra ni causen un perjuicio injustificado a los intereses legítimos del autor. (9)
+(9) (Declaración concertada respecto del Artículo 10: Queda entendido que las disposiciones del Artículo 10 permiten a las Partes Contratantes aplicar y ampliar debidamente las limitaciones y excepciones al entorno digital, en sus legislaciones nacionales, tal como las hayan considerado aceptables en virtud del Convenio de Berna. Igualmente, deberá entenderse que estas disposiciones permiten a las Partes Contratantes establecer nuevas excepciones y limitaciones que resulten adecuadas al entorno de red digital.
+También queda entendido que el Artículo 10.2) no reduce ni amplía el ámbito de aplicabilidad de las limitaciones y excepciones permitidas por el Convenio de Berna.)

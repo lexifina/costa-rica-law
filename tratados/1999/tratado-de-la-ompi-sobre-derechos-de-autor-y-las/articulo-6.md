@@ -1,20 +1,5 @@
 ARTÍCULO 6
 Derecho de distribución
-1.- Los autores de obras literarias y artísticas gozarán del derecho
-exclusivo de autorizar la puesta a disposición del público del original y
-de los ejemplares de sus obras mediante venta u otra transferencia de
-propiedad.
-2.- Nada en el presente Tratado afectará la facultad de las Partes
-Contratantes de determinar las condiciones, si las hubiera, en las que se
-aplicará el agotamiento del derecho del párrafo 1) después de la primera
-venta u otra transferencia de propiedad del original o de un ejemplar de
-la obra con autorización del autor. (5)
-(5) (Declaración concertada respecto de los Artículos 6 y
-7: Tal como se utilizan en estos Artículos, las expresiones
-"copias" y "originales y copias" sujetas al derecho de
-distribución y al derecho de alquiler en virtud de dichos
-Artículos, se refieren exclusivamente a las copias fijadas que
-se pueden poner en circulación como objetos tangibles (en esta
-declaración concertada, la referencia a "copias" debe ser
-entendida como una referencia a "ejemplares", expresión
-utilizada en los Artículos mencionados).
+1.- Los autores de obras literarias y artísticas gozarán del derecho exclusivo de autorizar la puesta a disposición del público del original y de los ejemplares de sus obras mediante venta u otra transferencia de propiedad.
+2.- Nada en el presente Tratado afectará la facultad de las Partes Contratantes de determinar las condiciones, si las hubiera, en las que se aplicará el agotamiento del derecho del párrafo 1) después de la primera venta u otra transferencia de propiedad del original o de un ejemplar de la obra con autorización del autor. (5)
+(5) (Declaración concertada respecto de los Artículos 6 y 7: Tal como se utilizan en estos Artículos, las expresiones "copias" y "originales y copias" sujetas al derecho de distribución y al derecho de alquiler en virtud de dichos Artículos, se refieren exclusivamente a las copias fijadas que se pueden poner en circulación como objetos tangibles (en esta declaración concertada, la referencia a "copias" debe ser entendida como una referencia a "ejemplares", expresión utilizada en los Artículos mencionados).
