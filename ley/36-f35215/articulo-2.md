@@ -1,0 +1,2 @@
+Art. 2° Exceptúanse del pago de derechos de aduana y muellaje por el término de treinta años, las importaciones de las sustancias químicas que la empresa necesite para el consumo de dichas fábricas, y la exportación de las materias primas que la misma empresa prepare, y del papel que elabore.
+La exención del derecho de muellaje tendrá lugar cuando el señor Minor C. Keith haga entrega del muelle al Gobierno de la República.
