@@ -14,3 +14,4 @@ Reglamento para el Pago de Gastos de Representación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-26 | la propia norma |
+| 2 | 2001-10-31 | Reglamento 272 (2001-10-31) |
