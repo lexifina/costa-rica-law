@@ -1,0 +1,1 @@
+Artículo 2º-Esta Comisión estará integrada por representantes de la Oficina de Planificación Nacional, el Ministerio de Agricultura y Ganadería, el Instituto Costarricense de Electricidad, el Servicio Nacional de Electricidad y del Sector Privado. Los representantes no devengarán dietas por su labor en esta Comisión.
