@@ -13,3 +13,4 @@ Directriz sobre notariado, tipología, contratación y cobro de honorarios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-06 | la propia norma |
+| 2 | 2003-06-25 | SINALEVI (sin norma nombrada) |
