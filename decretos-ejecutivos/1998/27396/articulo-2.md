@@ -1,0 +1,1 @@
+Artículo 2°—El nuevo distrito tendrá por cabecera a la Villa de Nancite, siendo además parte del distrito los poblados de Bocana, Lagartero, Montero, Pilas, Pochote, Puerto Coloradito, Puerto Mauricio y Puerto Palito.
