@@ -1,0 +1,1 @@
+Artículo 7º—Para realizar las labores médicas por honorarios, el galeno siempre deberá ajustar su horario de trabajo al de las autoridades judiciales del circuito y, para ello, debe comunicar a cada oficina judicial el lugar y las horas en que realizará su labor.

@@ -1,0 +1,1 @@
+Artículo 15.—Para desempeñar su papel como consultor especialista, en asuntos médico-legales, tendrá que formar parte de una lista oficial que levantará la jefatura del Departamento de Medicina Legal, previo el cumplimiento de los trámites de rigor.

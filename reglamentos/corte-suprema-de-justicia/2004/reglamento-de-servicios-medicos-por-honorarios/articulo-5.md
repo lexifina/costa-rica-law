@@ -1,0 +1,1 @@
+Artículo 5º—Todos los médicos designados, por la naturaleza de su profesión, prestarán juramento y aunque no están sujetos a subordinación jurídica alguna, ni relación pública de servicios con la Corte Suprema de Justicia, sí quedan sujetos a la coordinación del Departamento de Medicina Legal.

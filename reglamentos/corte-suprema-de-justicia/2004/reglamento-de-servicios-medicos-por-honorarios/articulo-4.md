@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde al Consejo Administrativo o al órgano con competencia para ello, de acuerdo con la Ley, realizar la designación del médico en la modalidad de honorarios, previo concurso de antecedentes, integración de terna y recomendación del jefe del Departamento de Medicina Legal, la cual será obligatoria pero no vinculante.

@@ -1,0 +1,1 @@
+Artículo 3º—Para ser contratado como médico por honorarios, es necesario contar con título de médico-cirujano, estar incorporado al Colegio de Médicos y Cirujanos de Costa Rica, así como estar debidamente autorizado para el ejercicio de su profesión y ser de honorabilidad y competencia reconocidas.
