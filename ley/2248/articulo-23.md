@@ -1,0 +1,2 @@
+Artículo 23.- Las cuotas de las instituciones particulares, provenientes de las retenciones hechas a los servidores de esas instituciones, así como las particulares, serán depositadas mensualmente en la cuenta del Erario, las que se adicionarán a las retenciones hechas a los servidores de las instituciones oficiales.
+Al liquidarse el año fiscal el remanente de esta suma se depositará a favor de la Junta de Jubilaciones del Magisterio en su cuenta en el Banco del Sistema Bancario Nacional correspondiente.
