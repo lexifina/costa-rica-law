@@ -1,0 +1,11 @@
+Artículo 27°
+El monto mensual de la pensión por viudez, orfandad y a otros sobrevivientes, es proporcional a la pensión por invalidez o por vejez que recibía el pensionado al fallecer. Cuando ocurra la muerte de un trabajador no pensionado, pero con derecho a pensión por vejez, el monto de la pensión por viudez, orfandad y a otros sobrevivientes, será proporcional a la que hubiere sido su pensión por vejez. En los demás casos, el monto de pensión por viudez, orfandad y a otros sobrevivientes, será proporcional al monto que hubiere recibido el fallecido en caso de haber sido declarado inválido al momento de fallecer.
+Estas proporciones en caso de viudez y orfandad son:
+a. Un 70% para la pensión por viudez cuando la viuda o el viudo es mayor de 60 años de edad o se encuentre inválido.
+b. Un 60% para la pensión por viudez cuando la viuda o el viudo es mayor de 50 años y menor de 60 años de edad.
+c. Un 50% para la pensión por viudez cuando la viuda o el viudo son menores de 50 años de edad.
+d. Un 30% para cada pensión por orfandad.
+La pensión por viudez se incrementrá en el porcentaje correspondiente, conforme aumente la edad del beneficiario.
+Para los huérfanos de padre y madre el porcentaje de la pensión será del 60%. En el caso que ambos padres fueran asegurados y fallecieran generando derechos, la pensión será del 60% de una de ellas. según sea lo más conveniente para estos huérfanos.
+Si la suma total de las proporciones por viudez y orfandad que se concedan a los sobrevivientes de un mismo fallecido excediera el 100%, todas serán proporcionalmente reducidas de modo que la suma sea igual a dicho porcentaje. Si posteriormente, un beneficiario que recibió pensión reducida dejara de percibirla por cualquier motivo, tas pensiones de los demás beneficiarios se aumentarán proporcionalmente, sin que pudieran exceder los porcentajes fijados en este artículo.
+Si la suma total de las proporciones por viudez y orfandad que se concedan a los sobrevivientes de un mismo fallecido fuera o llegara a ser menor del 100%, podrá otorgarse o redistribuirse el remanente entre los padres del causante en partes iguales, sin que exceda el 20% por ascendiente. En ausencia de padres con derecho, podrá otorgarse o redistribuirse el remanente entre los hermanos en partes iguales, sin que exceda el 20% por hermano.

@@ -1,0 +1,2 @@
+Transitorio IV
+A todos los asegurados que al 1° de febrero de 1995 sean mayores de 65 a de edad, se les podrá acreditar hasta un máximo de 60 cotizaciones mensuales relativo al periodo anterior al 1° de julio de 1975, a fin de que puedan completar las 120 cotizaciones mensuales requeridas para tener derecho a pensión por vejez. La Dirección Actuarial y de Planificación Económica determinará el pasivo actuarial ocasionado por dicho reconocimiento, así como su forma de financiamiento.

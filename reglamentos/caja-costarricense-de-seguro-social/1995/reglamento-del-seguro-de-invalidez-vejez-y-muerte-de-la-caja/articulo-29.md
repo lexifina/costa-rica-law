@@ -1,0 +1,5 @@
+Topes mínimos y máximos de pensión
+Artículo 29°
+El monto de la pensión calculado conforme los artículos 24° y 25° deberá sujetarse a un tope mínimo y a un tope máximo, cuya cuantía fijará periódicamente la Junta Directiva.
+Se establece para aquellos asegurados con períodos prolongados de cotización, una cuantía mínima especial de pensión basada en el número de años completos cotizados Esta cuantía corresponde al tope mínimo de pensión por los primeros veinte años cotizados y aumentará por cada año adicional cotizado, hasta un máximo que establecerá periódicamente la Junta Directiva.
+El tope mínimo y la cuantía mínima de pensión para cada beneficiario en caso de muerte, estará determinada por la proporción que le corresponda según el artículo 27° de este Reglamento. En el caso de un solo beneficiario el monto de la pensión por otorgar, no podrá ser inferior al 70% del tope mínimo vigente para pensión por vejez o invalidez. En el caso de dos beneficiarios, la suma de los montos por otorgar no podrá ser inferior al 100% de este tope mínimo.

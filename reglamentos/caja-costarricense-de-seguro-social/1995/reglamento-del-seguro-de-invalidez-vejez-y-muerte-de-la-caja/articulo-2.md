@@ -1,0 +1,3 @@
+Artículo 2º
+El Seguro de Invalidez, Vejez y Muerte es obligatorio para los trabajadores asalariados de los sectores público y privado, con las excepciones hechas en los artículos 4º y 65º de la Ley Constitutiva de la Caja y voluntario para todos los habitantes no asalariados del país, según las condiciones que dicte el reglamento respectivo.
+Para todos los efectos del presente Reglamento, los trabajadores de ambos sexos, que cotizan o se encuentran pensionados en el Seguro de Invalidez, Vejez y Muerte, se denominan asegurados. La cotización o aporte que se efectúa mensualmente a este Seguro se denomina cuota. Se registrará una sola cuota por cada mes, ya sea que el aporte provenga de uno o varios patronos.

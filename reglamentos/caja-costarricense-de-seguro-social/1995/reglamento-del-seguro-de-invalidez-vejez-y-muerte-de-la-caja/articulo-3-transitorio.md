@@ -1,0 +1,2 @@
+Transitorio III
+Para la determinación de los cuarenta y ocho salarios mas altos a que se refiere el artículo 23°, cuando se trate de salarios anteriores al 1 ° de agosto de 1977 y se ha cotizado con el 1 % (uno por ciento) sobre los topes existentes, se tomará como salida adicional para efectos del promedio, el que resulte de aplicar dichos porcentaje exceso de salarios, dividiendo la suma resultante entre el 2.5 por ciento.

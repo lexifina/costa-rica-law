@@ -1,0 +1,2 @@
+Artículo 46º
+Este Régimen brindará protección a los trabajadores cubiertos por los regímenes contributivos de pensiones regulados por leyes especiales, que se trasladen al mismo voluntariamente o mediante disposición legal. El Estado proporcionará los recursos financieros necesarios para garantizar dicho traslado, según los resultados de los estudios actuariales que para tal efecto prepare la Dirección Actuarial y de Planificación Económica

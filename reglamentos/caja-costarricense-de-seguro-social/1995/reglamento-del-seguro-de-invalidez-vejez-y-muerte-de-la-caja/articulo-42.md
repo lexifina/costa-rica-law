@@ -1,0 +1,6 @@
+Artículo 42º
+La Caja podrá modificar las pensiones si se comprobara que éstas fueron asignadas contraviniendo disposiciones legales o reglamentarias, o que hubo errores de cálculo o falsedad en los datos.
+Si la modificación resultare favorable al asegurado, la Caja le reintegrará la suma que éste hubiera dejado de percibir más el respectivo interés actuarial.
+Cuando la modificación tuviera por consecuencia la reducción de las prestaciones, ésta tendrá efecto retroactivo respecto de los montos ya entregados y los pensionados devolverán lo indebidamente percibido, mediante cuotas mensuales iguales al 5% del monto de la pensión. Dichas cuotas serán deducidas por la Caja, de la misma pensión, con fundamento en resolución motivada que así lo ordene. La resolución será notificada al interesado para los efectos formales correspondientes.
+Si la concesión de las prestaciones se hubiera fundado en documentos falsos o declaraciones fraudulentas, la Caja procederá al rebajo inmediato de lo pagado de más, mediante la retención de un 50% de las pensiones futuras hasta completar el monto adeudado.
+Cuando hubiere que anular una pensión ya concedida, se seguirán los procedimientos previstos al efecto en la Ley General de la Administración Pública, quedando a salvo las acciones administrativas o judiciales necesarias para recuperar lo pagado indebidamente.

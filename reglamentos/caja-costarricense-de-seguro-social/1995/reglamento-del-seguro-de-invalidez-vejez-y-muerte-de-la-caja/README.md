@@ -1,0 +1,16 @@
+# Reglamento (1995-02-07)
+
+Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Seguro Social
+
+- Tipo: Reglamento
+- Número: 6898
+- Fecha: 1995-02-07
+- Ente emisor: Caja Costarricense de Seguro Social
+- Publicación: La Gaceta N° 50 del 1995-03-10
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26485&param2=28028&param3=1 (ficha 26485)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1995-03-10 | la propia norma |

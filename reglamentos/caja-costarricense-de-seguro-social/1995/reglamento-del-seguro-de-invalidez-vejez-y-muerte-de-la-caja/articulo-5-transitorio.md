@@ -1,0 +1,2 @@
+Transitorio V
+A los asegurados que hubiesen presentado su solicitud de pensión por invalidez antes del 1° de febrero de 1995 o que a esa fecha hubieren cumplido 60 a 62 años de edad en el caso de las mujeres y de los hombres respectivamente, les serán aplicables los requisitos, condiciones y procedimientos que para pensión por invalidez establecía el reglamento anterior que rigió hasta el 31 de enero de 1995.

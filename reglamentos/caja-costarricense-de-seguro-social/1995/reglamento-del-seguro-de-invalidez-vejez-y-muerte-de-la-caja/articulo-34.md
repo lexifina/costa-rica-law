@@ -1,0 +1,2 @@
+Artículo 34°
+Independientemente del monto del salario o ingreso que se anote en la planilla, la cotización mínima mensual debe corresponder a un ingreso de referencia superior a la suma o tope mínimo de pensión vigente, ya sea que se trate de asegurados obligatorios, de trabajadores por cuenta propia o de asegurados voluntarios que coticen para f este Seguro. El nivel mínimo de contribución lo establecerá anualmente la Junta Directiva, tomando en consideración las recomendaciones de la Dirección Actuarial y de Planificación Económica.

@@ -1,0 +1,2 @@
+Artículo 4°
+Si el asegurado fuere declarado inválido o falleciere cuando ha aportado un mínimo de 12 cuotas mensuales, pero menos de las requeridas para la respectiva pensión, el o sus derechohabientes, éstos últimos segun las proporciones establecidas en el artículo 27 de este reglamento, tendrá derecho a una indemnizacón equivalente a un doceavo del salario promedio mensual, por cada mes que el asegurado ubiere contribuido a este seguro. Este salario promedio se calculará utilizando los últimos doce meses registrados como contribuidos.

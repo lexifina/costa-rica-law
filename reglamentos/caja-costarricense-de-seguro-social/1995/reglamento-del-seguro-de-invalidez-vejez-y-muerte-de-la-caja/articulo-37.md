@@ -1,0 +1,4 @@
+Artículo 37º
+El Ministerio de Hacienda se encargará de deducir a los trabajadores del Estado los aportes correspondientes a las cuotas obreras. La Tesorería Nacional se encargará de realizar el pago de dichos aportes a la Caja Costarricense de Seguro Social dentro de los plazos que el presente Reglamento establece como obligatorios. Para tal efecto, la Tesorería de la Caja Costarricense de Seguro Social deberá diseñar los mecanismos de control necesarios.
+Por su parte, la Tesorería Nacional suministrará la información que requiere el ente asegurador.
+Para garantizar cumplidamente el pago de la contribución del Estado como tal y como patrono, el Ministerio de Hacienda incluirá oportunamente en el Presupuesto Nacional de la República, las sumas que corresponden según la información que, de conformidad con los cálculos realizados por la Dirección Actuarial y de Planificación Económica, suministrará la Presidencia Ejecutiva de la Caja a ese Ministerio.

@@ -1,0 +1,2 @@
+Artículo 31º
+La Junta Directiva de la Caja, determinará periódicamente los niveles de los fondos de reserva, el monto de las contribuciones, los niveles medio y mínimo de rendimiento de las inversiones, requeridos por este Seguro. Así como las demás especificaciones técnicas y cualquier otra medida necesaria para el adecuado control y financiamiento del mismo. Todo de acuerdo con las respectivas revisiones actuariales, la Sección V de la Ley Constitutiva de la Caja y el Reglamento de la Inversión de las Reservas de este Seguro.
