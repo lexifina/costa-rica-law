@@ -1,0 +1,1 @@
+Artículo 8°-La representación de la Procuraduría General de la República en los lugares que determine el Poder Ejecutivo, estará a cargo de un fiscal. En los cantones y distritos donde no exista representante de la Procuraduría, servirán como tales, ante los tribunales de justicia, los jefes políticos y agentes principales de policía.
