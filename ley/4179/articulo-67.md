@@ -1,3 +1,2 @@
-Artículo 67.- Corresponde al Comité de Educación y de Bienestar Social, cuyo número de miembros determinará el estatuto:
-a) Asegurar para los asociados de la cooperativa y personas que quieren ingresar en ellas, las facilidades necesarias para que reciban educación cooperativista y amplíen sus conocimientos sobre esta materia, por todos los medios que juzgue convenientes; y
-b) Redactar y someter a la aprobación del Consejo de Administración, proyectos y planes de obras sociales de los asociados de la cooperativa y de sus familias, y poner en práctica tales programas.
+Artículo 67.—El capital social estará compuesto por las aportaciones ordinarias en dinero efectivo, en bienes muebles e inmuebles, en derechos, en trabajo, industria, capacidad profesional o fuerza productiva que hagan los asociados y sus familiares, y estarán representados en certificados de aportación de igual valor nominal.
+Las aportaciones que no sean en dinero efectivo, se valuarán al tiempo de ingresar la persona a la cooperativa, de conformidad con lo que al respecto establecen los estatutos.

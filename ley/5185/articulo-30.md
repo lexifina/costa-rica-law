@@ -1,0 +1,1 @@
+Artículo 30.—Además de lo indicado en el artículo anterior, formará parte del patrimonio del INFOCOOP, las utilidades netas provenientes de las liquidaciones anuales de su Departamento de Financiamiento.

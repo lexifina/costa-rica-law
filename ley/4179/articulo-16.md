@@ -1,1 +1,1 @@
-Artículo 16.- El ejercicio económico del Departamento de Cooperativas se extenderá del 1º de enero al 31 de diciembre de cada año. Al final de cada ejercicio económico, se hará una liquidación completa de sus operaciones, que deberá someterse a conocimiento de la Junta Directiva del Banco Nacional de Costa Rica, y por su intermedio a la Contraloría General de la República.
+Artículo 16.—Las cooperativas de consumo tienen por objeto la adquisición, provisión y distribución de cualquier clase de bienes entre sus asociados, en calidad de consumidores, para su auxilio mutuo.

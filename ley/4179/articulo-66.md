@@ -1,3 +1,9 @@
-Artículo 66.- Corresponde al Comité de Vigilancia elegido por la Asamblea, que se integrará con un número no menor de tres asociados, el examen y fiscalización de todas las cuentas y operaciones realizadas por la cooperativa, e informar lo que corresponda ante la Asamblea.
-La responsabilidad solidaria de los miembros del Consejo de Administración y del Gerente alcanza a los miembros del Comité de Vigilancia por los actos que éste no hubiere objetado oportunamente.
-Quedan exentos de responsabilidad los miembros del Comité que salven expresamente su voto en el acto de tomarse la decisión respectiva.
+TITULO VI
+CAPITULO VI
+Del Patrimonio Social
+Artículo 66.—El patrimonio social de las cooperativas será variable e ilimitado y estará integrado en la siguiente forma:
+a) Con su capital social;
+b) Con los fondos y reservas de carácter permanente;
+c) Con las cuotas de admisión y solidaridad, una vez deducidos los gastos de constitución y organización;
+d) Con el porcentaje de los excedentes que se destinen para incrementarlo, de acuerdo con lo que disponga cada cooperativa en sus estatutos, o por disposición de la Asamblea; y
+e) Con las donaciones, herencias, legados, privilegios, derechos de suscripción o subvenciones que reciban.

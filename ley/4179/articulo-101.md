@@ -1,3 +1,1 @@
-Artículo 101.- Acordada la disolución de una cooperativa, ésta entrará en liquidación, conservando su personalidad jurídica para esos efectos.
-La liquidación estará a cargo de una comisión liquidadora integrada por tres miembros nombrados por el Ministerio de Trabajo y Bienestar Social, quienes actuarán en representación de la cooperativa, de los acreedores de ella y del Ministerio de Trabajo y Bienestar Social.
-El Presidente de la Comisión será el jefe de la Oficina de Cooperativas del Ministerio.
+Artículo 101.—El Banco Nacional de Costa Rica, por medio de sus Departamentos de Crédito, y los demás Bancos del Sistema Bancario Nacional, podrán conceder créditos de mediano y largo plazo a las Cooperativas formadas por asociados de escasos recursos, para que puedan hacer efectiva la inscripción de sus certificados de aportación en tales cooperativas.

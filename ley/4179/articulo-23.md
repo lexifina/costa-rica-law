@@ -1,12 +1,3 @@
-Artículo 23.- El Departamento de Cooperativas tendrá las siguientes atribuciones:
-a) Conceder crédito a las Asociaciones Cooperativas en condiciones y proporciones especialmente favorables al adecuado desarrollo de sus actividades, percibiendo por ello, como máximo, los tipos de interés autorizados por el Sistema Bancario Nacional;
-b) Fomentar la organización y desarrollo de toda clase de cooperativas y participar como asociado de las mismas en las condiciones indicadas en el artículo 18;
-c) Procurar la creación e incremento de organizaciones adecuadas para la explotación cooperativa de bienes que sean propiedad del Estado, de las municipalidades, instituciones autónomas y de otras entidades oficiales, coordinando su acción, si fuere necesario, con los organismos correpondientes;
-d) Proporcionar asistencia técnica a todo tipo de cooperativas, en su organización, estructura y funcionamiento, en los aspectos contables, de auditoría y divulgación;
-e) Fomentar la enseñanza y divulgación del cooperativismo en todas sus formas y manifestaciones;
-f) Tomar las medidas administrativas pertinentes para el mejor desarrollo de las cooperativas, y cuando lo estime oportuno, proponer las modificaciones que crea necesarias a la legislación respectiva;
-g) Fomentar la integración cooperativa en el país, a fin de lograr su fortalecimiento y desarrollo, a través de organismos de segundo y tercer grado;
-h) Servir como organismo consultivo nacional en materias relacionadas con la filosofía y métodos cooperativistas;
-i) Ejecutar y hacer cumplir las leyes, decretos y demás resoluciones sobre cooperativas y resolver las consultas relacionadas con dichas organizaciones;
-j) Llevar una estadística completa del movimiento cooperativo nacional; y
-k) Ejercer todas las demás funciones, facultades y deberes que le correspondan de acuerdo con las leyes.
+Artículo 23.—Las cooperativas de servicios tienen por finalidad la prestación de los mismos, para satisfacer necesidades específicas de sus asociados. Podrán llenar necesidades de asistencia y previsión social, tales como: asistencia médica o farmacéutica, de hospitalización, de restaurante, de educación, de recreación, de auxilio o pensiones para la vejez; de mutualidad ; de seguros, de protección contra el desempleo o accidente, de gastos de sepelio, o necesidades dentro del campo de la agricultura, la ganadería y la industria, tales como servicios eléctricos y telefónicos, transporte, inseminación artificial, mecanización agrícola, irrigación y suministro de combustible. Asimismo podrán satisfacer cualquier otra necesidad compatible con la doctrina y finalidad del sistema cooperativo.
+En el caso de cooperativas de servicio que tengan por finalidad suplir necesidades dentro del capo de la agricultura, la ganadería y la industria, pueden ser asociadas las personas jurídicas, siempre que no usen los servicios de la cooperativa con fines de lucro y previa autorización en cada caso del INFOCOP:
+Las cooperativas de electrificación rural gozarán de los mismos privilegios y las exenciones que la ley le confiere a las Juntas Administrativas de Servicios Eléctricos Municipales.

@@ -1,1 +1,2 @@
-Artículo 75.- A los empleados y trabajadores de las cooperativas se les hará facilidades especiales para ser admitidos en ellas como asociados.
+Artículo 75.—La Asamblea General de las cooperativas, con la aprobación del INFOCOOP, podrá emitir cuotas de inversión para destinar su producto al cumplimiento de objetivos determinados, tales como la adquisición de bienes o el otorgamiento de préstamos a los asociados, cuando éstos procedan.
+Estas cuotas serán representadas por certificados nominativos e intransferibles, con base en las normas que para este fin establezca el INFOCOOP.

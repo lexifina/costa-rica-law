@@ -1,0 +1,1 @@
+Artículo 20.—Cuando las circunstancias lo aconsejen la Junta Directiva podrá nombrar un Subdirector Ejecutivo, quien actuará subordinado al Director. En las ausencias temporales de éste, sus deberes y responsabilidades serán asumidas por el Subdirector. Son aplicables al Subdirector las normas sobre nombramiento y remoción, establecidas para el Director Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 24.—El Instituto tendrá un Auditor, nombrado por la Junta Directiva por un período de cuatro años, pudiendo ser reelecto. Son aplicadas al Auditor las normas sobre nombramiento y remoción establecidas para el Director Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 36.—El Consejo Nacional de Cooperativas elegirá de su seno un Presidente, Vicepresidente y Secretario y se reunirá ordinariamente cada tres meses y extraordinariamente cuando sea convocado por el Presidente del mismo. El quórum para las sesiones lo formará la mitad más uno de los delegados.
