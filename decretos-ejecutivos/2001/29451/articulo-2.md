@@ -1,0 +1,1 @@
+Artículo 2º—La Comunidad Indígena Guaymí, de la Reserva Indígena Guaymí de Altos de San Antonio, queda amparada por todas las disposiciones de la legislación indígena existentes y sus posibles reformas y el Convenio 169 de la O.I.T. Así como cualquier disposición que se considere para la población indígena costarricense.
