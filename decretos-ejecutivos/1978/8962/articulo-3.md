@@ -1,0 +1,1 @@
+Artículo 3°—La estimación del derecho de servidumbre es de c 3,844.35 (tres mil ochocientos cuarenta y cuatro colones, treinta y cinco céntimos) que corresponde al total de la suma a pagar de conformidad con el Avalúo No 13.619 Av. E., de la Sección de Avalúos Especiales de la Tributación Directa.
