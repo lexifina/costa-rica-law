@@ -1,0 +1,1 @@
+Artículo 2º—Dicho inmueble estará sometido a la categoría de Refugio de Vida Silvestre categoría Mixto, por un periodo de diez años, prorrogables por periodos iguales para la propietaria, deberá solicitar con seis meses de anticipación a la finalización de dicho periodo.
