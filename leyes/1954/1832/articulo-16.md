@@ -1,3 +1,2 @@
-ARTICULO 16
-1. El Director y el Director Adjunto serán nombrados por el Consejo mediante votación por mayoría de dos tercios, y cumplirán sus funciones de conformidad con el contenido de contratos aprobados por el Consejo y Firmados, en nombre del Comité, por el Presidente del Consejo.
-2. El Director será responsable ante el Consejo y ante el Comité Ejecutivo; administrará y dirigirá los servicios del Comité de conformidad con la presente Constitución, con la política y decisiones del Consejo y del Comité Ejecutivo y con los reglamentos por ellos adoptados y formulará proposiciones relativas a las medidas que deban ser adoptadas por el Consejo.
+Artículo 16
+El Comité Ejecutivo adoptará su propio reglamento interior.

@@ -1,2 +1,3 @@
-ARTICULO 4
-Todo Miembro podrá, por decisión, del Consejo tomada por mayoría de dos tercios, perder su calidad de Miembro si durante dos ejercicios anuales consecutivos no cumple sus obligaciones financieras respecto al Comité o si infringe persistentemente los principios enunciados en la presente Constitución.
+Artículo 4
+1. Si un Estado Miembro no cumple sus obligaciones financieras respecto a la Organización durante dos ejercicios anuales consecutivos, el Consejo, mediante decisión adoptada por mayoría de dos tercios, podrá suspender el derecho a voto y, total o parcialmente, los servicios a que dicho Estado Miembro sea acreedor. El Consejo tiene autoridad para restablecer tales derechos y servicios mediante decisión adoptada por mayoría simple.
+2. Todo Estado Miembro podrá, por decisión del Consejo tomada por mayoría de dos tercios, verse suspendido en su calidad de Miembro si infringe persistentemente los principios de la presente Constitución. El Consejo tiene autoridad para restablecer tal calidad de Miembro mediante decisión adoptada por mayoría simple.

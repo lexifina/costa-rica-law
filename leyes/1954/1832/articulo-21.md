@@ -1,5 +1,2 @@
-CAPITULO VII
-Sede Central
-ARTICULO 21
-1. El Comité tendrá su Sede Central en Ginebra. El Consejo podrá decidir el traslado de la Sede a otro sitio, mediante votación por mayoría de dos tercios.
-2. Las reuniones del Consejo y del Comité Ejecutivo tendrán lugar en la Sede Central del Comité a menos que dos tercios de los miembros del Consejo respectivamente, del Comité Ejecutivo hayan decidido reunirse en otro lugar.
+Artículo 21
+El Director General estará presente, o se hará representar por el Director General Adjunto o por otro funcionario que designe, en todas las reuniones del Consejo, del Comité Ejecutivo y de los Subcomités. El Director General o su representante podrán participar en los debates sin derecho de voto.

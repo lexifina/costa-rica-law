@@ -1,2 +1,2 @@
-ARTICULO 31
-A reserva de la aprobación por dos tercios de los Miembros del Consejo, el Comité podrá hacerse cargo de las actividades, recursos y obligaciones actuales de cualquier otra organización o institución internacional cuyos objetivos y actividades se hallen dentro de la esfera del Comité; actividades, recursos y obligaciones que podrán ser fijados mediante un acuerdo internacional o un arreglo convenido entre las autoridades competentes de las organizaciones respectivas.
+Artículo 31
+Toda diferencia relativa a la interpretación o aplicación de la presente Constitución, que no haya sido resuelta mediante negociación o mediante decisión del Consejo tomada por mayoría de dos tercios, será sometida a la Corte Internacional de Justicia, de conformidad con el Estatuto de dicha Corte, a menos que los Estados Miembros interesados convengan en otra forma de arreglo dentro de un intervalo razonable.

@@ -1,6 +1,4 @@
-CAPITULO XI
-Disposiciones de Índole Diversa
-ARTICULO 28
-1. Salvo disposiciones en contrario en la presente Constitución o en los reglamentos establecidos por el Consejo o por el Comité Ejecutivo, todas las decisiones del Consejo, del Comité Ejecutivo y de todos los subcomités, serán tomadas por simple mayoría.
-2. Las mayorías prevista en las disposiciones de la presente Constitución o de los reglamentos establecidos por el Comité Ejecutivo se refieren a los miembros presentes y votantes.
-3. Una votación será válida únicamente cuando la mayoría de los miembros del Consejo, del Comité Ejecutivo o del subcomité interesado se halle presente.
+Artículo 28
+1. La Organización gozará de los privilegios e inmunidades necesarios para ejercer sus funciones y alcanzar sus objetivos.
+2. Los representantes de los Estados Miembros, el Director General, el Director General Adjunto y el personal de la Administración gozarán igualmente de los privilegios e inmunidades necesarios para el libre ejercicio de sus funciones en conexión con la Organización.
+3. Dichos privilegios e inmunidades se definirán mediante acuerdos entre la Organización y los Estados interesados o mediante otras disposiciones adoptadas por dichos Estados.

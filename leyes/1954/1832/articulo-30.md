@@ -1,2 +1,3 @@
-ARTICULO 30
-Toda diferencia relativa a la interpretación o aplicación de la presente Constitución, que no haya sido resuelta mediante negociación o mediante decisión del Consejo tomada pro mayoría de dos tercios, será sometida a la Corte Internacional de Justicia de conformidad con el Estatuto de dicha Corte, a menos que los Gobiernos Miembros interesados convengan en otra forma de arreglo dentro de un intervalo razonable.
+Artículo 30
+1. Los textos de las enmiendas propuestas a la presente Constitución serán comunicados por el Director General a los Gobiernos de los Estados Miembros tres meses, por lo menos, antes de que sean examinados por el Consejo.
+2. Las enmiendas entrarán en vigor cuando hayan sido adoptadas por dos tercios de los miembros del Consejo y aceptadas por dos tercios de los Estados Miembros, de acuerdo con sus respectivas reglas constitucionales entendiéndose, no obstante, que las enmiendas que originen nuevas obligaciones para los Miembros no entrarán en vigor para cada Miembro en particular sino cuando éste las haya aceptado.

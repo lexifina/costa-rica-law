@@ -1,5 +1,11 @@
-ARTICULO 12
-1. El Comité Ejecutivo se compondrá de los representantes de nueve Gobiernos Miembros.
-2. Estos Gobiernos Miembros serán elegidos por el Consejo por un año, pudiendo ser reelegidos.
-3. Cada Miembro del Comité Ejecutivo desganará un representante, así como los suplentes y asesore que juzgue necesarios.
-4. Cada Miembro del Comité Ejecutivo tendrá derecho a un voto.
+CAPITULO V
+EL COMITE EJECUTIVO
+Artículo 12
+Las funciones del Comité Ejecutivo consistirán en:
+a) Examinar y revisar la política, los programas y las actividades de la Organización, los informes anuales del Director General y cualesquiera informes especiales;
+b) examinar toda cuestión financiera o presupuestaria que incumba al Consejo;
+c) considerar toda cuestión que le sea especialmente sometida por el Consejo, incluida la revisión del presupuesto, y adoptar a este respecto las medidas que juzgare necesarias;
+d) asesorar al Director General sobre toda cuestión que por éste le sea sometida;
+e) adoptar, entre las reuniones del Consejo, cualesquiera decisiones urgentes sobre cuestiones de la incumbencia del mismo, que serán sometidas a la aprobación del Consejo en su próxima reunión;
+f) presentar recomendaciones o propuestas al Consejo, o al Director General, por su propia iniciativa;
+g) someter al Consejo informes y/o recomendaciones sobre las cuestiones tratadas.

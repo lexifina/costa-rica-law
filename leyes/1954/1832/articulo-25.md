@@ -1,8 +1,9 @@
-CAPITULO IX
-Estatuto Jurídico
-ARTICULO 25
-El Comité poseerá personalidad jurídica y gozará de la capacidad jurídica necesaria para ejercer sus funciones y alcanzar sus objetivos, en especial de la capacidad, de acuerdo con las leyes del territorio de que se trate, de:
-a) contratar;
-b) adquirir bienes muebles e inmuebles, y disponer de ellos;
-c) recibir y desembolsar fondos públicos y privados, y
-d) iniciar procedimientos legales.
+Artículo 25
+1. Los recursos necesarios para sufragar los gastos de la Organización serán obtenidos:
+a) en lo que respecta a la Parte de Administración del Presupuesto, mediante las contribuciones en efectivo de los Estados Miembros, que serán pagaderas al comienzo del correspondiente ejercicio anual y deberán hacerse efectivas sin demora;
+b) en lo que respecta a la Parte de Operaciones del Presupuesto, mediante las contribuciones en efectivo, en especie o en forma de servicios de los Estados Miembros, de otros Estados, de organizaciones internacionales, gubernamentales o no gubernamentales, de otras entidades jurídicas o de personas privadas, que deberán aportarse tan pronto como sea posible e íntegramente antes del final del ejercicio anual correspondiente.
+2. Todo Estado Miembro deberá aportar para la Parte de Administración del Presupuesto de la Organización una contribución sobre la base de un porcentaje acordado entre el Consejo y el Estado Miembro concernido.
+3. Las contribuciones para los gastos de operaciones de la Organización serán voluntarias y todo contribuyente a la Parte de Operaciones del Presupuesto podrá acordar con la Organización las condiciones de empleo de su contribución, que deberán responder a los objetivos y funciones de la Organización.
+4. a) Los gastos de administración de la Sede y los restantes gastos de administración, excepto aquellos en que se incurra para ejercer las funciones enunciadas en el inciso 1) c) y d) del Artículo 1, se imputarán a la parte de Administración del Presupuesto;
+b) Los gastos de operaciones, así como los gastos de administración en que se incurra para ejercer las funciones enunciadas en el inciso 1) c) y d) del Artículo 1 se imputarán a la parte de Operaciones del Presupuesto.
+5. El Consejo velará porque la gestión administrativa sea asegurada de manera eficaz y económica.
