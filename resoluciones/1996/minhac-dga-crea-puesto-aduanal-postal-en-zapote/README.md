@@ -14,3 +14,4 @@ MINHAC DGA: Crea Puesto Aduanal Postal en Zapote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-23 | la propia norma |
+| 2 | 1996-08-23 | Ley 8 |
