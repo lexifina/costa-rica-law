@@ -13,3 +13,4 @@ Reglamento de Ética Profesional del Contador Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1963-07-18 | la propia norma |
+| 2 | 1995-11-07 | Acuerdo 75 (1995-11-07) |
