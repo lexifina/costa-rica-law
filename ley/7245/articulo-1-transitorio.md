@@ -1,0 +1,1 @@
+TRANSITORIO UNICO: Autorízase a la Municipalidad de Santa Ana a proceder a la reorganización administrativa pertinente, a fin de que pueda ejercer la mejor fiscalización y recaudación de los impuestos que contempla esta Ley.
