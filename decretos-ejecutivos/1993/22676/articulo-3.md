@@ -1,0 +1,9 @@
+Artículo 3°—Para facilitar y asegurar el desarrollo de los objetivos de la Dirección General de la Policía de Tránsito, se establecen las siguientes funciones:
+1. Controlar y vigilar las operaciones de tránsito terrestre en el territorio nacional, debiendo para tal efecto coordinar y colaborar para que se cumplan las disposiciones técnicas, legales y operacionales emanadas de la División de Transportes, el Consejo de Seguridad Vial, la Comisión Técnica de Transportes, la Dirección General de Ingeniería de Tránsito, la Dirección General de Transporte Público y la Dirección General de .Educación Vial siempre y cuando se encuentren en el ámbito de su competencia.
+2. Fomentar programas para la prevención de accidentes de tránsito y de las consecuencias que la circulación de vehículos o el tránsito, de personas y semovientes, puedan ocasionar a la salud, tranquilidad y bienestar de la población.
+3. Actuar coordinadamente con instituciones del Estado encargadas del planeamiento y ejecución de los programas de seguridad, con el fin de promover ésta entre los peatones y conductores en las vías públicas.
+4. Coordinar acciones con las instituciones de la Fuerza Pública para la realización de operaciones conjuntas a efecto de preservar los ámbitos de acción de vehículos y peatones.
+5. Velar por la correcta aplicación de la legislación nacional que regula el tránsito terrestre de vehículos y peatones.
+6. Planear los servicios ordinarios y especiales de vigilancia y de prevención de accidentes de tránsito.
+7. Fomentar programas de Educación Vial en coordinación con la Dirección General de Educación Vial, tendientes a mejorar el tránsito vehicular y peatonal por las vías públicas nacionales.
+8. Cumplir con todas aquellas funciones relativas al tránsito terrestre que le asigne la legislación vigente.
