@@ -1,1 +1,0 @@
-Artículo 6º.- No son susceptibles de venta, cesión, embargo, ni ninguna otra forma de enajenación o garantía, las pensiones o auxilios asignados en virtud de esta ley, y sus beneficios no dan derecho a ejercitar acción alguna judicial contra el Estado.
