@@ -1,0 +1,2 @@
+Artículo 14.—De persistir la insuficiencia de plazas, los aspirantes que no obtuvieron plaza en el Sorteo, previa certificación extendida en tal sentido por la Comisión, podrán incorporarse a sus respectivos colegios profesionales sin cumplir con el requisito de Servicio Social Obligatorio.
+Si el número de solicitantes fuere menor al número de plazas disponibles, serán excluidas del sorteo por la Comisión y a su juicio, las plazas que exceden, dando prioridad a las plazas del Sector Público en áreas de difícil acceso.

@@ -1,0 +1,1 @@
+Artículo 23,.—Los permisos para la educación continua u otras actividades de capacitación o formación, no impartida por las instituciones empleadoras, estarán limitados dependiendo del interés de cada institución al respecto y de que el servicio que se presta en la comunidad no se vea afectado.

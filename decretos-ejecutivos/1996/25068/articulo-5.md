@@ -1,0 +1,1 @@
+Articulo 5°—Las resoluciones de la Comisión se tomarán por mayoría simple de votos de los miembros presentes, en caso de empate el Presidente tendrá doble voto. Las resoluciones de la Comisión serán apelables ante el Ministro de Salud, dentro de los cinco días hábiles posteriores a su notificación.

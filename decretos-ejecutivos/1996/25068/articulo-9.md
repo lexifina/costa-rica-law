@@ -1,0 +1,7 @@
+Artículo 9°—Los interesados en la prestación del Servicio Social Obligatorio, deben solicitar por escrito ante la Dirección General de Salud, su inclusión en la lista oficial de participantes al próximo sorteo, adjuntando los siguientes requisitos:
+a) Fotocopia de la cédula de identidad o de pasaporte, en caso de ser extranjero.
+b) Certificación de la Universidad correspondiente de haber cumplido con el récord académico para esa clase de profesión. Cuando se trate de estudios realizados en el extranjero, las certificaciones deberán seguir los trámites de autenticación del Ministerio de Relaciones Exteriores y Culto, así como su respectiva certificación de reconocimiento extendido por la Escuela o Facultad correspondiente de la Universidad de Costa Rica.
+c) Autorización del colegio profesional respectivo.
+d) Los médicos graduados en universidades nacionales, deberán aportar certificación de haber realizado un año de internado rotatorio universitario. Los graduados en el extranjero, deberán aportar certificación de reconocimiento del internado extendido por la Facultad de Medicina de la Universidad de Costa Rica y el Colegio de Médicos Cirujanos.
+e) Lugar o número de fax donde oír notificaciones.
+f) Si el participante ha cursado alguna Especialidad y desea ejercerla durante el año de Servicio Social Obligatorio, deberá aportar la autorización del colegio profesional respectivo, siempre que exista interés de las instituciones involucradas y a juicio de la Comisión.
