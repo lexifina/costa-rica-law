@@ -1,1 +1,0 @@
-Artículo 5°—La administración del servicio público sobre el Río Tempisque, será efectuada provisionalmente por el órgano designado por este medio y hasta tanto no se cuente con un adjudicatario en firme de la concesión respectiva.

@@ -1,1 +1,0 @@
-Artículo 4°—La Unidad Ejecutora sesionara al menos cuatro veces al mes en forma ordinaria y en forma extraordinaria cuando sea convocada por su Presidente. El quórum lo formarán dos de sus miembros. Los acuerdos serán tomados por mayoría simple y en caso de empate el Presidente de la Junta conservará voto de calidad para la decisión final de los asuntos.
