@@ -118,3 +118,4 @@ Y que el caserío de Mojoncito no es parte de esta reserva, sino de la Reserva I
 13. | Coroma (incluyendo Bajo Coén).
 14. | Sepecue (Sepecwe).
 15. | Mojoncito).
+(4. Mediante el artículo 1° del decreto ejecutivo N° 29448 del 21 de marzo del 2001, se redefinen los límites de la Reserva Indígena Cabécar de Talamanca y artículo 3° modifica en lo conducente el presente decreto, de manera que los terrenos establecidos como reservas indígenas en este decreto y que han sido parte integrante de la Reserva Indígena Cabécar de Talamanca, se fusionan en una sola reserva indígena, que se llamará: Reserva Indígena Cabécar de Talamanca).
