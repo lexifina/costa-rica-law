@@ -14,3 +14,4 @@ Reglamento de capacitación y becas para el desarrollo del recurso humano (INAMU
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-13 | la propia norma |
+| 2 | 2004-04-26 | Reglamento 18 (2004-04-26) |
