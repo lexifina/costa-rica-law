@@ -1,0 +1,1 @@
+Artículo 4°—La solicitud para un Derecho Especial de Giro, se recibirá en la oficina de Cuentas Corrientes del Banco donde se origine la cuenta comente. El formulario que se use para esta finalidad debe ser uniforme para todas las oficinas del Banco.

@@ -1,0 +1,1 @@
+Artículo 15°—En caso de que la persona física o jurídica solicitante mantenga a su cargo, directa o indirectamente, operaciones crediticias con el Banco, previo a la formalización o renovación del Derecho Especial de Giro, deberán encontrarse al día en el pago de amortización e (o) intereses.

@@ -1,0 +1,1 @@
+Artículo 14°—Se podrán autorizar Derechos Especiales de Giro, a favor de Instituciones o Empresas de Derecho Público, siempre y cuando éstas se ajusten a lo que dispone el Banco Central de Costa Rica para este tipo de instituciones.

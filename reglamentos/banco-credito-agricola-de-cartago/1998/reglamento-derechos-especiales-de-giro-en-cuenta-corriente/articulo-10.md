@@ -1,0 +1,2 @@
+Artículo 10.—Los Derechos Especiales de Giro se concederán por un plazo máximo de un año.
+Se autoriza a los Niveles Resolutivos a mantener el beneficio de los Derechos Especiales de Giro, por plazos máximos de treinta días después de vencidos, siempre y cuando, exista un planteamiento de renovación correspondiente y en el tanto, la garantía se encuentre en custodia del Banco y/o a favor de éste en la CE VAL, S.A.

@@ -1,0 +1,1 @@
+Artículo 13.—Aquellas personas físicas o jurídicas a quienes se haya autorizado un Derecho Especial de Giro, no podrán disfrutar de estos beneficios simultáneamente en la misma moneda, a través de otras cuenta corrientes a su nombre que tengan en el Banco.

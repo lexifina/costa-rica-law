@@ -1,0 +1,2 @@
+Artículo 7°—Para los Derechos Especiales de Giro a la Bolsa Nacional de Valores S.A. y a los Puestos de Bolsa, cuando éstos aporte» garantías líquidas (títulos valores negociables), éstas pueden quedar custodiadas en la Central de Valores S.A. (CEVAL. S.A.), a favor del Banco Crédito Agrícola de Cartago en la cuenta respectiva, cuyo costo será asumido por el Cuentacorrentista respectivo.
+Para los efectos de este artículo, el Banco deberá mantener con la CEVAL, S.A., un convenio donde se establezcan los términos y condiciones del Banco como depositario.

@@ -1,0 +1,1 @@
+Artículo 9°—Los montos utilizados en el Derecho Especial de Giro deberán ser cancelados una vez al mes. Al vencimiento del Derecho Especial de Giro, el saldo total de la deuda deberá ser debidamente cancelado.
