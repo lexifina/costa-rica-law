@@ -52,7 +52,8 @@ Caja Costarricense de Seguro Social.
 Centro de Promoción de las Exportaciones e Inversiones.
 Consejo Nacional de Investigaciones Científicas y Tecnológicas.
 Consejo Nacional de Producción.
-Consejo Nacional de Rectores.
+(Excluido el Consejo Nacional de Rectores por Decreto Nº 12250 de 27 de
+enero de 1981, artículo 1º)
 Dirección General de Educación Física y Deportes.
 Editorial Costa Rica.
 Empresa de Servicios Públicos de Heredia.
@@ -72,31 +73,16 @@ Oficina del Café.
 Orquesta Sinfónica Nacional.
 Servicio Nacional de Aguas Subterráneas.
 Servicio Nacional de Electricidad.
-Teatro Nacional.
+(Excluido el Teatro Nacional por decreto Nº 12362 de 4 de marzo de 1981,
+artículo 1º)
 Municipalidades:
-Municipalidad de San José
-Municipalidad de Escazú.
-Municipalidad de Desamparados.
-Municipalidad de Goicoechea.
-Municipalidad de Tibás.
-Municipalidad de Moravia.
-Municipalidad de Montes de Oca.
-Municipalidad de Pérez Zeledón.
-Municipalidad de San Ramón.
-Municipalidad de Grecia.
-Municipalidad de San Carlos.
-Municipalidad de Alajuela.
-Municipalidad de Cartago.
-Municipalidad de Turrialba.
-Municipalidad de Heredia.
-Municipalidad de Liberia.
-Municipalidad de Nicoya.
-Municipalidad de Santa Cruz.
-Municipalidad de Puntarenas.
-Municipalidad de Limón.
+(Excluidas las Municipalidades del Sector Público No Financiero por
+Decreto Nº 12316 de 20 de febrero de 1981, artículo 1º)
 Otras Instituciones:
 Corporación Costarricense de Desarrollo, S. A.
-Consejo Nacional de Desarrollo de la Comunidad.
+(Excluido el Consejo Nacional de Desarrollo de la Comunidad por Decreto
+Nº 12668 de 25 de mayo de 1981, artículo 1º)
 Instituto de Fomento y Asesoría Municipal.
-Instituto Nacional de Seguros.
+(Excluido el Instituto Nacional de Seguros por Decreto Nº 12216 de 20 de
+enero de 1981, artículo 1º)
 Refinadora Costarricense de Petróleo.
