@@ -1,1 +1,0 @@
-Artículo 25.—Información suministrada por la SUGESS. Límites. La información que suministre la SUGESS será de carácter general, estadística, técnica y de calidad. La superintendencia respetará la confidencialidad de la información en el ejercicio de sus funciones.

@@ -1,2 +1,0 @@
-Articulo 11.—Remoción del Superintendente. Causales. La promoción del Superintendente general corresponde a la Junta Directiva.
-Solo podrá ser destituido por las causales de despido previstas en el ordenamiento Jurídico administrativo o subsidiariamente en el Derecho Laboral, como causa de despido sin responsabilidad patronal; previa comprobación de la comisión de la infracción siguiendo las reglas del debido proceso administrativo, previstas en la Ley General de la Administración Pública.

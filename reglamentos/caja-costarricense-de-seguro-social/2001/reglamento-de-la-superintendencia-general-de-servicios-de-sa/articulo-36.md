@@ -1,1 +1,0 @@
-Articulo 36.—Propuesta de reformas normativas. La SUGESS podrá proponer a la Junta Directiva las reformas reglamentarias que considere pertinentes para el mejoramiento de la calidad, oportunidad e inmediatez de los servicios de salud.

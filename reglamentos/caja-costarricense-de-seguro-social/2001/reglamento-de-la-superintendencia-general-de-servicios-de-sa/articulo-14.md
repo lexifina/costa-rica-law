@@ -1,3 +1,0 @@
-Articulo 14.—Intendencias Regionales. Atribuciones específicas. Las intendencias regionales serán responsables ante el Superintendente por el logro de los objetivos propuestos y por la aplicación de las atribuciones que le corresponden en el ámbito territorial de su competencia.
-Por delegación coordinarán, evaluarán y controlaran el desempeño de las contralorías de servicios. Deberán coordinar y colaborar con los órganos o grupos de supervisión y fiscalización externa de los servicios de salud de la Caja.
-El manual determinará las competencias específicas que en aplicación de esta normativa les corresponde.

@@ -1,1 +1,0 @@
-Artículo 29.—Publicidad de los resultados. La SUGESS deberá asegurarse que los resultados obtenidos en ejercicio de las potestades de supervisión y fiscalización sean del conocimiento del público, tanto del asegurado medio como de los órganos fiscalizados.
