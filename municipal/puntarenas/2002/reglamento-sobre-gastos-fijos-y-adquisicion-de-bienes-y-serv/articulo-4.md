@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza al Alcalde Municipal para que ejecute el Presupuesto Ordinario y efectúe todos los pagos por gastos fijos correspondiente a cada periódo en el entendido que el Presupuesto Ordinario se encuentre aprobado por el ente Contralor.

@@ -1,0 +1,1 @@
+Artículo 3º—Cuando el bien, servicio o convenio a contratar o comprar, supere el monto señalado en el numeral anterior, será necesario que el Alcalde Municipal obtenga la respectiva autorización por parte del Concejo, para lo cual dirigirá solicitud debidamente fundamentada, así como expresa mención de la partida presupuestaria con la que se cubrirá dicha adquisición.
