@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-El cantón de Orotina tendr el derecho de celebrar anualmente en el mes de abril la Feria Nacional de las Frutas, con el fin de promover, incentivar, capacitar y educar a los habitantes de la región en la actividad de la fruticultura.
