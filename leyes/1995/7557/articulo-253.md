@@ -1,14 +1,5 @@
-CAPITULO III
-AGENTES ADUANEROS PERSONAS JURIDICAS
-ARTICULO 253.- Régimen jurídico
-Las empresas que ostenten la condición de agentes aduaneros personas
-jurídicas en el momento de publicarse esta ley, deberán cumplir con las
-obligaciones y responsabilidades establecidas para el auxiliar de la
-función pública aduanera y con el régimen jurídico que esta ley impone
-para el agente aduanero persona física, conforme al Título III, Capítulos
-I y II de esta ley, incluyendo las disposiciones relativas a la rendición
-de garantía.
-Estas empresas deberán contar, por lo menos, con un agente aduanero
-en forma exclusiva y permanente para intervenir en regímenes y
-operaciones aduaneras. Estos agentes representarán a la persona jurídica
-ante el Servicio Nacional de Aduanas.
+Artículo 253.- Utilización del precio unitario de mercancías vendidas
+después de una transformación
+El método de valoración previsto en el segundo párrafo del
+artículo 5 del Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, podrá aplicarse según las disposiciones de la nota interpretativa correspondiente a dicho párrafo, lo solicite o no el importador.
+(Así adicionado y modificada su numeración por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)

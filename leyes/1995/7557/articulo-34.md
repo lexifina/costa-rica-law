@@ -2,11 +2,11 @@ ARTICULO 34.- Requisitos
 Además de los requisitos establecidos en el artículo 29 de esta ley,
 para ser autorizadas como agentes aduaneros, las personas físicas
 requieren haber obtenido como mínimo el grado universitario de
-bachillerato en administración aduanera. Igualmente, podrán serlo
-personas con el grado de licenciatura en comercio internacional, derecho
-o administración pública, previa aprobación de un examen de competencia
-en el área aduanera que el Ministerio de Hacienda deberá aplicar
-anualmente en coordinación con la Dirección General de Aduanas.
+bachillerato en administración aduanera. Igualmente, podrán serlo personas
+con el grado de licenciatura en comercio internacional, derecho o
+administración pública, previa aprobación de un examen de competencia en
+el área aduanera que el Ministerio de Hacienda deberá aplicar anualmente
+en coordinación con la Dirección General de Aduanas.
 Ninguna persona física será autorizada, reconocida ni podrá ejercer
 la correduría aduanera ante el Servicio Nacional de Aduanas, si no ha
 caucionado su responsabilidad con el fisco. La Dirección General de

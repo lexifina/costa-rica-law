@@ -13,6 +13,6 @@ Las mercancías destinadas a otro país y que por error hayan sido
 descargadas, podrán ser reexportadas en el vehículo que las trajo. Si el
 vehículo hubiera partido, las mercancías quedarán depositadas en zona de
 operación aduanera, a la orden del representante nacional del
-transportista, quien asumirá los gastos ocasionados por su permanencia;
-si no son retiradas en un mes a partir de la fecha de descarga, se
+transportista, quien asumirá los gastos ocasionados por su permanencia; si
+no son retiradas en un mes a partir de la fecha de descarga, se
 considerarán en abandono.

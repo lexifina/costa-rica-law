@@ -9,4 +9,4 @@ exportación, siempre que la exportación se realice dentro del plazo de
 doce meses contados a partir de la importación de esas mercancías. Los
 reglamentos establecerán las condiciones que deberán cumplir los
 interesados para acogerse a este régimen.
-(NOTA SINALEVI: Mediante Decreto Ejecutivo N° 26285 del 19 de agosto de 1997, se Reglamenta los artículos 190 y 191)
+(NOTA SINALEVI: Mediante Decreto Ejecutivo N° 26285 del 19 de agosto de 1997, se Reglamenta los artículos 190 a 191)

@@ -1,6 +1,6 @@
 ARTICULO 213.- Agravantes
-La pena será de tres a cinco años y la multa equivalente a tres
-veces el monto de los tributos dejados de percibir, con sus intereses y
+La pena será de tres a cinco años y la multa equivalente a tres veces
+el monto de los tributos dejados de percibir, con sus intereses y
 recargos, cuando en alguna de las circunstancias expuestas en los
 artículos 211 y 212, concurra, por lo menos, una de las siguientes
 circunstancias:

@@ -1,10 +1,9 @@
-ARTICULO 256.- Modificación
-Se modifica el inciso d) del artículo 1 de la Ley No. 6106, del 7 de
-noviembre de 1977, cuyo texto dirá:
-"...
-d) Cuando se trate de efectos rematados en las aduanas del
-país, que no fueron adjudicados en segundo remate, y de
-mercancías o vehículos caídos en comiso por las autoridades de
-investigación criminal o de tránsito, la donación o entrega se
-efectuará por medio del Instituto Mixto de Ayuda Social, en
-coordinación con las dependencias depositarias de esos bienes."
+Artículo 256.- Tratamiento de los intereses
+Los intereses devengados en virtud de un acuerdo de financiación concertado por el comprador y relativo a la compra de las mercancías importadas no se considerarán parte del valor en aduana siempre que:
+a) Los intereses se distingan del precio realmente pagado o del precio por pagar de dichas mercancías.
+b) El acuerdo de financiación se haya concertado por escrito.
+c) El comprador, cuando se le requiera, pueda demostrar que:
+i) Tales mercancías en realidad se venden al precio declarado con precio realmente pagado o por pagar.
+ii) El tipo de interés reclamado no excede del nivel aplicado en el país a este tipo de transacciones en el momento en que se haya facilitado la financiación.
+Lo dispuesto en el presente artículo se aplicará si el vendedor, una entidad bancaria u otra persona física o jurídica,facilitala financiación. También, se aplicará, si procede, cuando las mercancías se valoren con un método distinto del basado en el valor de transacción.
+(Así adicionado y modificada su numeración por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)

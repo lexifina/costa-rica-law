@@ -1,6 +1,6 @@
 ARTICULO 194.- Medios de notificación
-El Servicio Nacional de Aduanas podrá notificar por cualquiera de
-los siguientes medios:
+El Servicio Nacional de Aduanas podrá notificar por cualquiera de los
+siguientes medios:
 a) Transmisión electrónica de datos en la sede de la aduana o en el
 domicilio señalado por el auxiliar de la función pública
 aduanera. La notificación surtirá efectos veinticuatro horas

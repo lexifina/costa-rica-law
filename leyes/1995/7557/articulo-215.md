@@ -1,6 +1,6 @@
 ARTICULO 215.- Casos específicos de defraudación fiscal aduanera
-Incurrirá en las penas señaladas en el artículo anterior, siempre que el
-valor aduanero de las mercancías supere los cinco mil pesos
+Incurrirá en las penas señaladas en el artículo anterior, siempre que
+el valor aduanero de las mercancías supere los cinco mil pesos
 centroamericanos:
 a) Quien, sin autorización del órgano competente, dé un fin distinto
 del dispuesto en la norma autorizante, a mercancías beneficiadas

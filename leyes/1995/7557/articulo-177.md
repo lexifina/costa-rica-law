@@ -9,6 +9,6 @@ dentro del plazo de tres años, contados a partir de la aceptación de la
 declaración en el régimen. Además, es necesario probar que tales
 mercancías son las mismas que fueron exportadas y no fueron objeto de
 transformación.
-En el momento de la reimportación, el declarante deberá proceder a
-la devolución de las sumas percibidas por concepto de estímulos a la
+En el momento de la reimportación, el declarante deberá proceder a la
+devolución de las sumas percibidas por concepto de estímulos a la
 exportación.

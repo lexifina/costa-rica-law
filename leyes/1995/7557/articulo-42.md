@@ -1,8 +1,7 @@
 ARTICULO 42.- Obligaciones específicas
-Además de las obligaciones generales establecidas en el Capítulo I
-de este Título son obligaciones específicas de los transportistas
-aduaneros, en cuanto les sean aplicables de acuerdo con el giro de su
-actividad:
+Además de las obligaciones generales establecidas en el Capítulo I de
+este Título son obligaciones específicas de los transportistas aduaneros,
+en cuanto les sean aplicables de acuerdo con el giro de su actividad:
 a) Permitir y facilitar la inspección aduanera de mercancías,
 vehículos y unidades de transporte, sus cargas y la verificación
 de los documentos o las autorizaciones que las amparen.

@@ -10,8 +10,8 @@ responda ante el Estado por las eventuales responsabilidades
 tributarias derivadas de su operación como auxiliar.
 c) Cumplir con las disposiciones de organización, de procedimientos
 y de control que dicte la autoridad aduanera.
-La empresa autorizada para operar según esta modalidad podrá
-designar a un agente aduanero en forma permanente y exclusiva para que se
-encargue del despacho de sus mercancías. Este agente deberá tener
-relación laboral con la empresa, sin perjuicio de sus responsabilidades
-inherentes como agente aduanero.
+La empresa autorizada para operar según esta modalidad podrá designar
+a un agente aduanero en forma permanente y exclusiva para que se encargue
+del despacho de sus mercancías. Este agente deberá tener relación laboral
+con la empresa, sin perjuicio de sus responsabilidades inherentes como
+agente aduanero.

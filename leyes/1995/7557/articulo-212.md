@@ -1,6 +1,6 @@
 ARTICULO 212.- Casos específicos de contrabando
-Cometerá también delito de contrabando, y será sancionado con la
-pena prevista en el artículo anterior, quien:
+Cometerá también delito de contrabando, y será sancionado con la pena
+prevista en el artículo anterior, quien:
 a) Transporte o conduzca mercancías objeto de control aduanero sin
 autorización de la autoridad aduanera competente.
 b) Extraiga o permita extraer mercancías objeto de control aduanero
