@@ -13,3 +13,4 @@ Suspensión Temporal Norma General Etiquetado Alimentos Preenvasados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-11 | la propia norma |
+| 2 | 2002-01-15 | Decreto Ejecutivo 30256 (2002-01-15) |
