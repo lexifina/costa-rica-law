@@ -1,0 +1,1 @@
+Artículo 6°-Para la atención de la presente declaratoria emergencia, la Comisión Nacional de Emergencias, podrá destinar fondos contraer préstamos, otorgar avales y aceptar donaciones de institucionales autónomas, semiautónomas, privadas y organismos internacionales.
