@@ -1,1 +1,0 @@
-Artículo 2º.- La fauna silvestre objeto de regulación de la presente ley, está constituida por los animales que viven temporal o permanentemente en condiciones naturales, en el territorio nacional, y únicamente puede ser objeto de apropiación particular mediante las disposiciones contenidas en esta ley y sus reglamentos.

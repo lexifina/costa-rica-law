@@ -1,1 +1,0 @@
-Artículo 9º.- La tenencia de animales silvestres en cautiverio, adquiridos de acuerdo con las regulaciones de la presente ley y su reglamento, deberá contar con el permiso del Ministerio de Agricultura y Ganadería.

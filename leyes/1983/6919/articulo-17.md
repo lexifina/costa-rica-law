@@ -1,1 +1,0 @@
-Artículo 17.- En el reglamento de esta ley deberán establecerse las excepciones pertinentes para las personas con obligaciones familiares, que demuestren la necesidad de la caza o de pesca para su propia alimentación.

@@ -1,1 +1,0 @@
-Artículo 26.- Las licencias de caza serán expedidas por el Ministerio de Agricultura y Ganadería, previa presentación de la solicitud correspondiente, matrícula de armas o permisos del Ministerio de Seguridad Pública y previo pago del canon correspondiente establecido en esta ley.

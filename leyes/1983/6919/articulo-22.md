@@ -1,3 +1,0 @@
-Artículo 22.- La importación de animales silvestres exóticos estará regulada por el Ministerio de Agricultura y Ganadería, por medio del Departamento de Vida Silvestre de la Dirección General Forestal del Ministerio de Agricultura y Ganadería, y para ello el solicitante deberá presentar la solicitud respectiva con quince días de antelación a la fecha de ingreso de los animales. El otorgamiento del permiso será facultad de la Dirección antes citadas.
-El permiso se dará sólo en aquellos casos en que la importación no vaya en detrimento de la fauna silvestre del país, previa cancelación de mil colones (¢ 1.000,00) por el ingreso de cada animal.
-En el caso de peces exóticos, se pagarán dos colones (¢ 2,00) por espécimen.
