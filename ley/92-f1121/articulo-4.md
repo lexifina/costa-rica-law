@@ -1,0 +1,1 @@
+Art 4°.- Tanto el Intendente general como los Jueces de minas de cada distrito, cuando no puedan concurrir a dar la posesión de alguna mina, podrán nombrar el efecto un Juez específico, quien practicará esta diligencia con todas las formalidades legales.
