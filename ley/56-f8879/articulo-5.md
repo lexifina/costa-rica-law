@@ -1,0 +1,2 @@
+Art 5°.- Los estados comprenderán la fecha de entrada y salida de los buques, su nombre, los del Capitán i consignatarios, banderas, armadura, toneladas, número de tripulación i de pasajeros, procedencia y dirección, calidad, origen y valor del cargamento, y todo cuanto pueda dar un conocimiento exacto del comercio nacional y sus relaciones con los diversos países del mundo.
+Dado en San José, a los veinticuatro días del mes de noviembre de mil ochocientos cincuenta y cuatro.

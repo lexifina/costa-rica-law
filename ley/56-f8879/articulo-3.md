@@ -1,0 +1,1 @@
+Art 3°.- Cuando un buque entre con un cargamento, y deja tan solo una parte reexportando el resto no desembarcado o vendido, están en el deber su dueño o consignatario, al tiempo de la partida, de presentar otro manifiesto correjido, especificando la calidad y valor de las mercancías que han quedado en el puerto.

@@ -1,0 +1,1 @@
+Art 4°.- Los Administradores de Aduana dirijirán mensualmente al Ministerio de Hacienda, por conducto de la Intendencia general, un estado de las entradas y salidas de efectos extrangeros y productos del país, i cada días último del año uno general, para que sea publicado y conocido por todos.
