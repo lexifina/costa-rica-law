@@ -1,0 +1,10 @@
+Nº 31682-MSP
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE SEGURIDAD PÚBLICA
+Con fundamento en lo dispuesto en los artículos 140 inciso 18) y 146 de la Constitución Política; artículos 87, 88 y 89 de la Ley General de Policía.
+Considerando:
+1º—Que el carácter civilista de las fuerzas de policía en Costa Rica, conlleva la exigencia de profesionalización de los servidores policiales en aras de un mejor servicio a la comunidad siendo que existen servidores policiales que cuentan con cursos de especialización, promoción o perfeccionamiento policial, impartidos tanto por reconocidas instituciones extranjeras como nacional.
+2º—Que con la finalidad de evitar la migración del personal más capacitado a otras instituciones o empresas de seguridad y poder seguir contando con sus servicios en los cuerpos policiales adscritos al Ministerio de Seguridad Pública, se estima conveniente establecer la posibilidad de que los cursos que los servidores policiales acrediten, puedan ser reconocidos, convalidados o equiparados a los que imparte la Escuela Nacional de Policía Francisco J. Orlich. Por tanto:
+DECRETAN:
+Artículo 1º—Modifíquese el inciso a) del artículo 48 del Reglamento de Organización de los Cuerpos Policiales, Decreto Nº 23881-SP de 12 de diciembre de 1994, publicado en el Diario Oficial La Gaceta N° 6 del 9 de enero de 1995, para que en adelante se lea:
+“Artículo 48.—Son deberes y atribuciones de la Escuela Nacional de Policía, los siguientes:
+a) Planificar, desarrollar y evaluar programas de instrucción permanente a nivel básico, de especialización, promoción y de perfeccionamiento que garanticen la capacitación del recurso humano policial para el buen desempeño profesional, dentro del marco civilista y democrático de la institucionalidad costarricense. Podrá reconocer, convalidar o equiparar los cursos que los funcionarios policiales hubieren recibido en otras instituciones nacionales o del extranjero, a los cursos de especialización promoción y perfeccionamiento que se imparten en la Escuela Nacional de Policía”.
