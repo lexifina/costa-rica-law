@@ -1,4 +1,2 @@
 CAPITULO VI: Límites máximos de crédito.
-A. El límite máximo de crédito que los bancos comerciales pueden otorgar a cada persona natural o jurídica se rige conforme con lo estipulado en el artículo 85, numeral 1) inciso b) de la Ley Orgánica del Banco Central de Costa será de cuatrocientos setenta y tres millones de colones (¢ 473.000. en términos absolutos.
-B. El límite máximo de crédito que las empresas financieras no bancarias conceder a una persona física o jurídica se rige conforme con lo estipulado en el artículo 9° de la Ley Reguladora de Empresas Financieras no Bancarias, reformado por el artículo 8° de la ley 7107.
-C. Para la ejecución de las operaciones normales basadas en las necesidades financieras del Estado y de las demás instituciones de derecho público aplica lo establecido en el artículo 61, numeral 5), de la Ley Orgánica del Sistema Bancario Nacional.
+(Dejado sin efecto mediante sesión N° 4856-96 del 31 de enero de 1996).
