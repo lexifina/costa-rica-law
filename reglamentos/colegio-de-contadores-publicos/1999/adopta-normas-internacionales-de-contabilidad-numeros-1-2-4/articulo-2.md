@@ -1,1 +1,0 @@
-2°—Modificar el inciso A) del Artículo 1, del acuerdo número 6.6.8 Sesión Ordinaria 27-98 del 18 de agosto de 1998. publicado en La Gaceta N° 169 de 31 de agosto de 1998 en lo referente al párrafo 34 de la Norma Internacional de Contabilidad 21 y afecto de que se incluya en el mismo lo concerniente al NIC 27.

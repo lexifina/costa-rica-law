@@ -1,1 +1,0 @@
-6°—En caso de que no se reciban observaciones o no existiere oposición dentro del plazo concedido en el párrafo anterior, las presentes normas entrarán en vigor automáticamente y la derogatoria enunciada en el párrafo tercero se hará efectiva al término del mismo.

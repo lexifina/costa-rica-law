@@ -1,1 +1,0 @@
-4°—Señalar claramente, que el texto a utilizar para consulta, referente a las normas aquí aprobadas es la edición 1997 de las Normas Internacionales de Contabilidad del Centro de Investigaciones del Instituto Mexicano de Contadores Públicos A.C.
