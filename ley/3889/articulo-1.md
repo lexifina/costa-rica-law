@@ -13,3 +13,6 @@ La parte que no hubiere pagado el timbre, no será oída en las
 diligencias o actuaciones que deban llevarse a cabo en el expediente,
 tales como inspecciones oculares, pruebas de testigos o cualesquiera
 otras similares, mientras no se haya hecho el referido pago.
+(NOTA: Este artículo ha sido reformado tácitamente por la ley
+No.6955 de 24 de febrero de 1984, que a su vez reformó los artículos 270
+y siguientes del Código Fiscal, referentes al timbre fiscal)
