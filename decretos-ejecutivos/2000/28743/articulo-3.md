@@ -1,0 +1,1 @@
+Artículo 3º—Las tierras a que se refiere el artículo primero de este Decreto tienen una cabida de sesenta mil hectáreas y se dedican a la Agricultura y la Ganadería, sus linderos son norte, calle pública; sur, IDA y río Montaña; este, División cantonal entre Nicoya y Santa Cruz; oeste: IDA y Zona Inalienable del Océano Pacífico.

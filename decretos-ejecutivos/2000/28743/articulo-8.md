@@ -1,0 +1,1 @@
+Artículo 8º—Al segregarse las porciones adjudicadas de conformidad con el artículo segundo de la Ley número siete mil quinientos noventa y nueve, no será necesaria la descripción del resto que se reserve el Instituto de Desarrollo Agrario de la finca que se inscribirá conforme con lo descrito en el artículo primero de este Decreto.
