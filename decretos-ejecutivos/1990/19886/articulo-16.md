@@ -1,21 +1,23 @@
-Artículo 16.- El Departamento Financiamiento Forestal estará integrado por una Sección de Control y Registros y una Sección de Crédito y Proyectos.
-Son funciones del Departamento Financiamiento Forestal según sus secciones:
-1 .-SECCIÓN CONTROL Y REGISTROS
-a.- Administrar y mantener actualizados los presupuestos operativos de los Fideicomisos.
-b.- Controlar los estados financieros de las diferentes fuentes de financiamiento que se administran en coordinación con el Sistema Bancario Nacional u otras instituciones.
-e.- Tramitar la confección de desembolsos, cheques y otros títulos para los proyectos forestales financiados.
-d.- Establecer y mantener actualizado un banco de información sobre el estado y avance de las actividades financiadas.
-e.- Otras que la Dirección General y Subdirección le asignen.
-2-SECCION CRÉDITO Y PROYECTOS
-a.- Coordinar la formulación de estrategias para el financiamiento de proyectos de desarrollo forestal inclusive para el manejo de los Recursos Naturales.
-b.- Establecer los requisitos de presentación, así como los mecanismos de seguimiento evaluación y control de la actividad forestal financiada mediante el fondo forestal, los fideicomisos vigentes, así como de otras fuentes de financiamiento forestal (Manuales Operativos, Contratos, Convenios, Reglamentos).
-c.- Coordinar con las Oficinas Regionales la política a seguir en el Financiamiento Foresta!.
-d.- Promover el uso de los diferentes Recursos para financiar actividades forestales.
-e.- Preparar programas de información orientados a incentivar el uso y aplicación de los Recursos disponibles.
-f.- Asistir y asesorar al Director General y Subdirector Forestal en la ejecución de políticas y directrices de financiamiento dirigidas al Sector Forestal,
-g.- Asesorar a las organizaciones regionales no gubernamentales usuarios de los fideicomisos y otros, sobre la utilización del financiamiento de la DGF., en actividades forestales, de acuerdo con las políticas que dicte la Dirección , como prioridades en el sector.
-h.- Aprobar los proyectos y actividades forestales financiadas con el fondo de municipalidades y de organizaciones forestales, según el artículo 21 de la Ley Forestal.
-i. Coordinar, supervisar y evaluar las actividades que se ejecutan relacionadas con el crédito forestal, con el fondo de municipalidades y organizaciones forestales, y otros fondos de financiamiento destinado a las actividades forestales en coordinación con las oficinas regionales.
-j.- Recomendar la aprobación o no de las solicitudes de financiamiento forestal de las diferentes líneas de crédito que se administran a través del Depto.
-k.- Otras que la Dirección General y Subdirección le asignen.
-(Así reformado por el artículo 9° del decreto ejecutivo N° 22840 del 24 de enero de 1994)
+Artículo 16.- La Oficina Ejecutora de los Fideicomisos del Fondo Nacional de Financiamiento Forestal (FONAFIFO), es un órgano con desconcentración máxima, dentro de la estructura administrativa de la Dirección General Forestal. Esta Oficina tendrá las siguientes funciones:
+a) Coordinar y ejecutar acciones y decisiones tomadas por cada Comité Especial de Crédito de los Fideicomisos, respecto a la aprobación y trámite de créditos.
+b) Facilitar el proceso de gestión crediticia o de financiamiento de proyectos forestales y de conservación de la biodiversidad que debe seguir el solicitante.
+c) Analizar las solicitudes de financiamiento y someterlas a consideración del respectivo Comité Especial de Crédito, con las recomendaciones que la oficina considere pertinentes.
+d) Supervisar la ejecución de los programas en términos de utilización presupuestaria para el cumplimiento del plan de inversión de los financiamientos otorgados con cargo a los recursos fideicometidos.
+e) Gestionar la consecución de nuevos recursos, ya sea internos o externos, para el desarrollo de los diferentes programas de financiamiento.
+f) Supervisar el cumplimiento de metas formuladas para los programas o proyectos de financiamiento bajo su responsabilidad.
+g) Actuar de conciliador en la solución de conflictos que se lleguen a presentar entre los beneficiarios.
+h) Preparar los informes técnicos y administrativos que se deban presentar a los cooperantes, fiduciario, al MIRENEM y a los Comités Especiales de crédito, entre otros.
+i) Velar por el adecuado cumplimiento de los contratos de los fideicomisos, sus reglamentos y los convenios de cooperación financiera establecidos o por establecer.
+j) Preparar y tramitar las órdenes de desembolso y de crédito, ante el Banco Fiduciario o el organismo financiero pertinente.
+k) Tramitar la adquisición de recursos, bienes y servicios para el funcionamiento de la oficina.
+l) Elaborar con los Bancos Fiduciarios los manuales y reglamentos operativos tanto técnicos como administrativos, que se someterán a consideración de los Comités Especiales de Crédito.
+ll) Realizar avalúos de las propiedades o bienes dados en garantía, para los créditos o financiamientos.
+m) Establecer mecanismos de colocación, manejo, seguimiento y recuperación de los fondos otorgados, así como la ejecución de las garantía en caso de incumplimiento.
+n) Presentar a los Comités Especiales de Crédito los presupuestos operativos para el funcionamiento de la oficina.
+ñ) Brindar capacitación en aspectos relacionados con el quehacer de la oficina.
+o) Tramitar y emitir los Certificados de Protección del Bosque (CAFMA 2000), así como cualquier otro trámite relacionado con la ejecución de esta función.
+p) Asesorar a los jerarcas en la ejecución de políticas y directrices de financiamiento dirigidas al sector forestal.
+q) Definir estrategias para el financiamiento de proyectos forestales y de conservación de la biodiversidad.
+r) Mantener una base de datos actualizada de las operaciones y acciones que ejecuta la oficina.
+s) Otras que le asigne el Ministerio de Recursos Naturales, energía y Minas, o los Comités Especiales de Crédito. Esta oficina brindará su apoyo y servicio a los Fideicomisos 340-MIRENEM BANCO NACIONAL, al 19-91 y 04-87 MIRENEM BANCOOP, así como a otros que en el futuro deseen integrarse al FONAFIFO. Para cumplir con este objetivo utilizará y organizará los recursos humanos, materiales y financieros que existen en cada estructura de los fideicomisos citados.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)

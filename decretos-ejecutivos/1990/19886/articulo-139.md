@@ -1,1 +1,4 @@
-Artículo 139.-Para efectos del inciso a) del artículo 96 de la Ley, se entiende que una industria ha operado durante el último año, cuando ha funcionado al menos ciento ochenta días (jornada de 8 horas) durante el año. Podrá ser un período de tiempo menor cuando la DGF así lo considere.
+Artículo 139..Establecerse un premio anual para aquellas empresas líderes de la industria de la madera, que cumplan con todas las disposiciones establecidas en la Ley Forestal, su reglamento y disposiciones administrativas.
+Este premio consistirá en la entrega a las empresas líderes en la sostenibilidad del recurso forestal, de un reconocimiento (bandera de la Dirección General Forestal), la cual se ratificará anualmente.
+Para el reconocimiento de estas empresas la Dirección General Forestal podrá recurrir a todos los instrumentos de evaluación que considere pertinentes.
+(Así reformado por el artículo 11 del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)

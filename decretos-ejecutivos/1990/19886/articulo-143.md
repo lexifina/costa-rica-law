@@ -1,1 +1,1 @@
-Artículo 143.-Unicamente serán aplicables las disposiciones del artículo 98 de la Ley, a aquellas industrias que a juicio de la DGF, demuestren un aumento significativo del rendimiento industrial, el cual no debe ser en ningún caso menor de cinco puntos sobre una base mínima del cuarenta y siete por ciento para aserraderos. Para otro tipo de industrias la DGF definirá en vía administrativa, los criterios a tomar en cuenta.
+Artículo 143.- (Derogado por el artículo 15 del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)

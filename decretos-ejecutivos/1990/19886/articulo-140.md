@@ -1,1 +1,1 @@
-Artículo 140.-Toda industria forestal que no mantenga en vigencia el permiso de funcionamiento por dos años consecutivos, será considerada como una nueva industria y deberá cumplir con las disposiciones planteadas para tal efecto en la Ley y el presente reglamento.
+Artículo 140.- (Derogado por el artículo 15 del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)

@@ -11,7 +11,8 @@ f) Un Departamento de Reservas Forestales, Zonas Protectoras y Cuencas Hidrográ
 g) Un Departamento de Desarrollo Industrial.
 h) Un Departamento de Investigación Forestal.
 i) Un Departamento de Planificación.
-j) Un Departamento dé Financiamiento Forestal.
+j) Una Oficina Ejecutora de los Fideicomisos denominada Fondo Nacional de Financiamiento Forestal (FONAFIFO).
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)
 k) Un Departamento Administrativo.
 l) Oficinas Regionales Forestales.
 Cada uno de los Departamentos y Oficinas Regionales Forestales citados, contará con una jefatura y personal técnico auxiliar necesarios para el buen desempeño de sus funciones. Los departamentos, serán órganos planificadores, de supervisión, de apoyo técnico, y como regla dejarán la ejecución de las actividades de campo a las dependencias regionales, salvo las disposiciones que consideren pertinentes las autoridades superiores.

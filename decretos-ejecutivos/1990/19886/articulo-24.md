@@ -1,12 +1,5 @@
 Capítulo tercero
 Del fondo y otros medios de financiación
-Artículo 24.-La DGF conjuntamente con el CFN a más tarde el 1º de setiembre de cada año, fijará el valor mínimo del metro cúbico de madera en pie por especie o grupos de especies, de acuerdo con un estudio que contendrá al menos:
-a) Clasificación de las especies según las características del producto (calidad de la madera y usos entre otros).
-b) Valor de mercado de las especies o grupos de especies en trozas en patio e industria y de sus productos elaborados al nivel del consumidor.
-c) Costos de corta, extracción, transporte e industrialización de la especies o grupos de especies.
-ch) Rendimiento industriales generados por las diferentes especies.
-d) Origen y procedencia de las especies (región geográfica, bosque natural, potreros plantaciones y otros).
-e) Costos de reposición del bosque y su mantenimiento hasta su corta.
-f) Márgenes de utilidad que genera la especie o grupo de especies en los diferentes procesos de resolución del recurso, industrialización, distribución y comercialización.
-g) Topografía y volumen comercial generado por las diferentes asociaciones vegetales (bosques típicos)
-h) Los demás que consideren procedentes.
+Artículo 24..La Dirección General Forestal, conjuntamente con el Consejo Forestal Nacional, a más tardar el primero de setiembre de cada año, fijará el valor del metro cúbico de madera en pie, por especie o grupo de especies.
+Se tomará como base para el cálculo, el precio de mercado de la madera en pie y el incremento en el índice de precios al consumidor, calculado por el Banco Central o por el Ministerio de Economía, durante el período anterior. La Dirección General Forestal mantendrá datos actualizados, sobre el precio de mercado de madera en pie.
+(Así reformado por el artículo 5° del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)

@@ -1,4 +1,6 @@
 Artículo 123.-Todo proyecto de reforestación y/o manejo de bosque cualquiera que sea el área, deberá contar con los servicios de un Regente Forestal durante la vigencia del contrato forestal. Dicho Regente debe cumplir lo establecido en el artículo 64 del presente reglamento.
 Dicho Regente deberá rendir informes de la siguiente manera:
 Los dos primeros años los informes serán trimestrales, el tercer año será semestral y los años restantes hasta el final del proyecto serán anuales. Dichos informes versarán sobre el avance del proyecto y el estado de la plantación, debiendo elaborarse de acuerdo con la guía que para esos efectos establezca la DGF y serán remitidos al Departamento de Reforestación y Protección Forestal, por el beneficiario del contrato.
+En el caso del Certificado de Protección de Bosque (CAFMA 2000) los informes se presentaran en forma anual.
+(Así adicionado el párrafo anterior por el artículo 8° del decreto ejecutivo N° 24740 del 28 de setiembre de 1995)
 (Así reformado por el artículo 2° del decreto ejecutivo N° 22559 del 20 de setiembre de 1993)
