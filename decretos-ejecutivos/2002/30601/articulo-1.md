@@ -1,0 +1,11 @@
+Nº 30601-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades que les confieren el artículo 140 de la Constitución Política y la Ley Nº 5150 del 14 de mayo de 1973 y sus reformas.
+Considerando:
+1º—Que le compete a la Dirección General de Aviación Civil inspeccionar y vigilar los aeródromos y aeropuertos nacionales o locales y los denominados internacionales con que cuenta el país de acuerdo a la Ley General de Aviación Civil.
+2º—Que las labores de mantenimiento y operación de los aeródromos y aeropuertos internacionales, ocasiona que los funcionarios de la Dirección General de Aviación Civil deban trasladarse por espacio de varios días fuera del lugar donde fueron contratados para realizar sus labores.
+3º—Que de conformidad con lo dispuesto por los artículos 1º y 5º de la Ley Nº 3462 del 26 de noviembre de 1964, le corresponde a la Contraloría General de la República promulgar el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos. Éste establece las disposiciones generales a que deben someterse las erogaciones que, por concepto de gastos de viaje y de transporte (viáticos), deban realizar los funcionarios o empleados del Estado de las instituciones y empresas públicas en general, independientemente de cual sea su naturaleza jurídica, cuando deban desplazarse dentro o fuera del territorio nacional para el cumplimiento de sus funciones.
+4º—Que de acuerdo artículo 1º de la Ley Nº 3462 citada, relativa al Instituto de los Viáticos, explícitamente indica que deben regularse por un reglamento que compete elaborar a la Contraloría General de la República, por lo que no procede que cada institución, de forma independiente promulgue el suyo propio, ya que todas deben regirse por el Reglamento que al efecto ha emitido el Órgano Contralor. Por tanto,
+Decretan:
+Deróguese el Reglamento para el Pago de Viáticos y Zonaje a los servidores del Consejo Técnico de Aviación Civil, Decreto Nº 21748-MOPT, publicado en La Gaceta Nº 3 del miércoles 6 de enero de 1993. En adelante, los gastos de viaje y de transporte para funcionarios públicos cuando deban desplazarse dentro o fuera del territorio nacional para el cumplimiento de sus funciones, continuarán rigiéndose por las disposiciones del Reglamento que la Contraloría General de la República emita al efecto.
