@@ -26,6 +26,7 @@ Colegio Univ. para el Riego y el Desarrollo del Trópico Seco 144.7
 Colegio Universitario de Alajuela 619.3
 Colegio Universitario de Cartago 617.2
 Colegio Universitario de Puntarenas 367.1
+( Así modificado por el artículo primero del Decreto Ejecutivo N° 30371 del 26 de abril del 2002, con relación al límite de gasto presupuestario y efectivo del Colegio Universitario de Puntarenas para el año 2002, que lo estableció en 417.5 millones)
 Comisión de Energía Atómica 30.8
 Comisión Nacional de Asuntos Indígenas 143.6
 Comisión Nacional de Conmemoraciones Históricas 1.3
@@ -63,6 +64,7 @@ Instituto Costarricense de Pesca 778.9
 Instituto Costarricense de Puertos del Pacífico 4,555.2
 Instituto Costarricense de Turismo 3,420.4
 Instituto Costarricense del Deporte y la Recreación 1,131.3
+( Así modificado por el artículo primero del Decreto Ejecutivo N° 30379 del 02 de mayo del 2002, con relación al límite de gasto presupuestario y efectivo del Instituto Costarricense del Deporte y la Recreación, que lo estableció en 1446.3 millones)
 Instituto de Desarrollo Agrario 6,025.9
 Instituto de Fomento y Asesoría Municipal 1,051.8
 Instituto Geográfico Nacional 140.2
@@ -89,6 +91,7 @@ Museo Rafael A. Calderón Guardia 53.8
 OCIS DESAF 5,322.2
 Oficina de Cooperación Internacional de Educación 10,270.7
 Oficina del Arroz 131.4
+( Así modificado por el artículo primero del Decreto Ejecutivo N° 30378 del 29 de abril del 2002, con relación al límite de gasto presupuestario y efectivo de la Oficina del Arroz, que lo estableció en 163.60 millones)
 Oficina Nacional de Semillas 127.1
 Orquesta Sinfónica Nacional 562.8
 Patronato de Construcciones y Adquisición de Bienes 2,509.8
@@ -105,6 +108,7 @@ Refinadora Costarricense de Petróleo 23,447.0
 Secretaría Ejecutiva de Planificación Sector Agropecuario 20.8
 Servicio Nacional de Aguas Subterráneas Riego y A. 1,403.2
 Sistema Nacional de Radio y Televisión Cultural 630.9
+( Así modificado por el artículo primero del Decreto Ejecutivo N° 30376 del 23 de abril del 2002, con relación al límite de gasto presupuestario y efectivo del Sistema Nacional de Radio y Televisión Cultural para el año 2002, que lo estableció en 662,7 millones)
 Teatro Nacional 301.2
 Teatro Popular Melico Salazar 507.0
 Unidad Ejecutora PPZN MIDEPLAN 9.6

@@ -49,3 +49,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 34 | 2002-04-20 | Decreto Ejecutivo 30401 (2002-04-15) |
 | 35 | 2002-04-20 | Decreto Ejecutivo 30402 (2002-04-15) |
 | 36 | 2002-04-20 | Decreto Ejecutivo 30404 (2002-04-15) |
+| 37 | 2002-05-02 | Decreto Ejecutivo 30377 (2002-05-02) |
