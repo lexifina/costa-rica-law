@@ -1,0 +1,1 @@
+Artículo 2º—En consecuencia dicho Centro de Educativo podrá emitir los Certificados de Materno Infantil Interactivo II y Ciclo de Transición y certificación de Aprobación de Estudios del I y II ciclos de la Educación General Básica, los cuales se equiparan con los del sistema educativo estatal.
