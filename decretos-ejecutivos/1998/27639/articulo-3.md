@@ -1,0 +1,1 @@
+Artículo 3º-Para los subproductos Pieles, de las especies IGUANA IGUANA regirá una cuota anual de ocho mil unidades (8.000 u.) para comercio interno y de diez mil unidades (10.000 u.) para exportación; para el CAIMAN CROCODYLUS regirá una cuota anual de quinientas unidades (500 u.) para comercio interno y de cinco mil unidades (5.000 u.) para exportación.

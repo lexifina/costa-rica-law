@@ -1,0 +1,1 @@
+Artículo 2º-Para los subproductos carne de las especies IGUANA IGUANA regirá una cuota anual de tres mil kilos (3 000 kg.) para comercio interno y de tres mil kilos (3 000 kg.) para exportación; para el CAIMAN CROCODYLUS, regirá una cuota anual de doscientos kilos (200 kg.) para comercio interno y de cuatrocientos kilos (400 kg.) para exportación.

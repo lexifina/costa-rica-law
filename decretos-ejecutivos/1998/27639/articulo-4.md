@@ -1,0 +1,1 @@
+Artículo 4º-La Autoridad Administrativa CITES-COSTA RICA, del Sistema Nacional de Areas de Conservación asignará las cuotas a los exportadores autorizados, según orden de solicitud y producción de animales de cada criadero.
