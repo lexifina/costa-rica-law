@@ -1,0 +1,1 @@
+Artículo 22.- El pago de los impuestos señalados por esta ley deberá hacerse por trimestres adelantados y tal obligación implicará preferencia a cualesquiera otros gravámenes sobre las estaciones radiodifusoras afectadas.

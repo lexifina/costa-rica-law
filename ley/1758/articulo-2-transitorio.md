@@ -1,0 +1,1 @@
+Transitorio II.- Las licencias para operar estaciones que hubieren sido otorgadas antes de la promulgación de esta ley se cancelarán si, dentro de un año siguiente a la fecha de su vigencia, no se comprobare, a satisfacción del Departamento de Control Nacional de Radio, que tales licencias están siendo usadas efectivamente.
