@@ -1,0 +1,1 @@
+Artículo 2°-El vehículo importado al amparo de la presente ley no podrá ser traspasado ni vendido a terceros, bajo ningún título, sin previo pago de los impuestos exonerados, hasta que se cumplan cinco años desde la fecha de otorgamiento del beneficio.
