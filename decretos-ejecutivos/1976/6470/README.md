@@ -14,3 +14,4 @@ Reglamento para la emisión de los bonos Deuda Interna 8% 1976 Primera Edición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-11-11 | la propia norma |
+| 2 | 1981-10-15 | Decreto Ejecutivo 13034 (1981-10-15) |
