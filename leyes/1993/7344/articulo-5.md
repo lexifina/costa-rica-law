@@ -1,0 +1,1 @@
+ARTICULO 5.- El Ministerio de Recursos Naturales, Energía y Minas brindará la asesoría técnica necesaria que requiera la Municipalidad de Desamparados. En cualquier caso en que se vean involucrados aspectos técnicos, la Municipalidad de Desamparados deberá consultar el criterio técnico del MIRENEM.
