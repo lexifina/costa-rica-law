@@ -1,1 +1,1 @@
-Artículo 13.-El Consejo Nacional de Desarrollo Sostenible se reunirá ordinariamente cada tres meses y en forma extraordinaria cuando lo amerite y por convocatoria del secretario técnico.
+Artículo 13.-(Derogado mediante el artículo 15 del decreto ejecutivo N° 26814 del 25 de marzo de 1998).

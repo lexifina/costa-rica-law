@@ -1,3 +1,4 @@
+(Derogado)
 (Mediante el artículo 20 del decreto ejecutivo N° 26827 del 6 de marzo de 1998, se deroga este decreto ejecutivo, excepto el Capítulo V que contempla los artículos 6 al 13. Posteriormente mediante el artículo 15 del decreto ejecutivo N° 26814 del 25 de marzo de 1998, el Capítulo V fue derogado. Por lo cual el presente decreto ejecutivo está derogado)
 N° 23671
 EL PRESIDENTE DE LA REPUBLICA
