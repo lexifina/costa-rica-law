@@ -1,0 +1,1 @@
+Artículo 5°.-Para contratar y realizar los seguros del Estado se fundará una institución que se denominará BANCO NACIONAL DE SEGUROS, Y que tendrá su residencia principal en la capital con facultad para establecer sucursales o agencias en los lugares de la República que acuerde la Directiva con aprobación del Ejecutivo.

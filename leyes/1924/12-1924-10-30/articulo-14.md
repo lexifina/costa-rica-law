@@ -1,0 +1,1 @@
+Artículo 14.-La Directiva no personal, fijando las dotaciones de acuerdo con la Secretaría de Hacienda, pero tendrá amplias facultades para suspender, remover o sustituir a cualquiera de los empleados.

@@ -1,0 +1,1 @@
+Artículo 10.- Todo gasto que haga el Estado para la organización y funcionamiento del Banco, así como el servicio de amortización e intereses de los Bonos a que se refieren los artículos anteriores, será reintegrado por el Banco, con sus beneficios líquidos, una vez deducido el 25 % que según el artículo siguiente se destina al fondo acumulativo de reserva.

@@ -1,0 +1,1 @@
+Artículo 7°. - El capital que adquiera Banco, así como sus reservas, garantizan esencialmente sus operaciones de seguro, pero además todas esas operaciones tienen la garantía y responsabilidad plena del Estado.
