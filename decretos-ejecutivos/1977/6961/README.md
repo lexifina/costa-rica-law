@@ -13,3 +13,4 @@ Autoriza Acreditar Pagos por Derechos Arancelarios Repuestos a Taxisa Concesiona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-05-10 | la propia norma |
+| 2 | 1977-05-10 | SINALEVI (sin norma nombrada) |
