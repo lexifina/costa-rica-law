@@ -1,4 +1,4 @@
-Artículo 28.- Atribuciones, competencias y deberes
+Arículo 28.- Atribuciones, competencias y deberes
 La Junta Directiva del Banco Central tendrá las siguientes atribuciones, competencias y deberes:
 a) En materia cambiaria:
 i) Establecer, con el voto favorable de por lo menos cinco de sus miembros, el régimen cambiario que considere apropiado, ajustándose a las disposiciones legales.
@@ -15,13 +15,14 @@ i) Fijar las posiciones del Banco como representante, agente o depositario del E
 j) Fijar las posiciones del Banco en sus relaciones con las instituciones del Estado.
 k) Acordar y revocar la designación de corresponsales, dentro y fuera del país, y aceptar la corresponsalía de las instituciones que le permite la ley.
 l) Acordar, reformar e interpretar los reglamentos internos del Banco y regular sus servicios de organización y administración.
-m) Acordar el presupuesto anual de la Institución y los presupuestos extraordinarios. Ambos requerirán la aprobación de la Contraloría General de la República.
+m) Acordar el presupuesto anual de la Institución y los presupuestos extraordinarios. Ambos requerirán la aprobación de la Contraloría General de la República. Asimismo, podrá dictar sus propias políticas en materia de clasificación y valoración de puestos; para ello, tomará en cuenta las particularidades y necesidades específicas de las funciones realizadas por sus órganos, dependencias y órganos desconcentrados.
+(Así reformado por el artículo 188, inciso a), de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
 n) Nombrar y remover al Gerente, los Subgerentes, el Auditor Interno y el Subauditor Interno y asignarles sus funciones y deberes, dentro de las prescripciones de esta ley.
 ñ) Aprobar la memoria anual, los balances y las cuentas de ganancias y pérdidas, así como el destino de las utilidades, de acuerdo con los preceptos de ley.
-o) Nombrar y remover a los miembros del Consejo Directivo de la Superintendencia General de Entidades Financieras, al Superintendente e Intendente Generales de las Entidades Financieras. A los miembros del Consejo Directivo de la Superintendencia General de Entidades Financieras, se les aplicarán las disposiciones contenidas en los artículos 18, 19, 20 y 21 de esta ley.
-p) Conocer y resolver los asuntos que le sometan a su consideración el Consejo Directivo de la Superintendencia General de Entidades Financieras, el Consejo Directivo de la Superintendencia de Pensiones y la Junta Directiva de la Comisión Nacional de Valores. Estos asuntos deben ser resueltos por la Junta Directiva del Banco Central, dentro de los quince días naturales siguientes.
+o) (Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
+p) (Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
 q) Otorgar y revocar poderes a los funcionarios que determine, con las facultades y las limitaciones que ella establezca.
 r) Acordar la realización de concursos públicos para promover la investigación sobre temas propios de la competencia del Banco Central, así como el otorgamiento de premios dentro de estos concursos, todo conforme a las disposiciones reglamentarias que dicte la Junta Directiva.
-s) Resolver, en definitiva, los conflictos de competencia que puedan presentarse entre la Superintendencia General de Entidades Financieras, la Comisión Nacional de Valores y la Superintendencia de Pensiones, con arreglo a las disposiciones aplicables de la Ley General de la Administración Pública.
+s) (Derogado por el artículo 194 de la Ley Reguladora del Mercado de Valores No.7732 de 17 de diciembre de 1997)
 t) Dictar los presupuestos, ordinarios y extraordinarios, de los órganos desconcentrados encargados de la supervisión de las actividades financieras, así como el régimen de salarios y otras remuneraciones. Al establecer este régimen, se tendrán en cuenta las necesidades específicas de cada órgano.
 u) Ejercer las demás funciones, facultades y deberes que le correspondan, de acuerdo con las leyes.
