@@ -14,3 +14,4 @@ Reforma Tarifas y Derechos Postales Servicio de Correo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-09-07 | la propia norma |
+| 2 | 1975-01-08 | Decreto Ejecutivo 4463 (1975-01-08) |
