@@ -1,0 +1,4 @@
+ARTICULO 30.-Ninguno podrá ser detenido sin indicio de haber cometido delito y sin mandato escrito de juez o autoridad encargada del orden público, excepto si es reo declarado prófugo.
+El delincuente infraganti puede ser arrestado sin decreto y por cualquiera persona, para el único objeto de conducirlo ante la autoridad competente.
+Ningún arresto podrá exceder de tres días sin que venga un auto formal de detención, en el cual se exprese el delito que se imputa al detenido y el lugar, tiempo y circunstancias de su ejecución y los datos que arroje la sumaria.
+Los encargados de las prisiones no recibirán en ellas a nadie en calidad de preso, sin copiar en su registro la orden de arresto, emanada de autoridad que tenga facultad para ello. Pueden sí recibir, en calidad de detenidos, a los que fueren conducidos para ser presentados al juez o autoridad competente; pero tienen obligación de dar cuenta a ésta dentro de veinticuatro horas.

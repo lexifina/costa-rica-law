@@ -1,0 +1,2 @@
+ARTICULO 114.-A los funcionarios que sirvan juzgados o tribunales inferiores, no se les suspenderá de sus destinos, durante su período, sin que preceda declaratoria de haber lugar a formación de causa, ni se les depondrá sino en virtud de sentencia ejecutoriada.
+Sin embargo, la Corte Suprema, cuando hubiere un motivo grave podrá, por el voto de dos tercios del total de sus miembros, revocar administrativamente la elección de cualquiera de dichos funcionarios.

@@ -1,0 +1,9 @@
+ARTICULO 102.-El Presidente o quien lo reemplace y los Ministros de Estado, son responsables por los abusos que comentan en su conducta oficial:
+1º.-Cuando favorezcan los intereses de una nación extraña contra la independencia, integridad o libertad de Costa Rica.
+2º.-Cuando impidan directa o indirectamente las elecciones prevenidas en esta Constitución o coartes la libertad electoral de los ciudadanos o funcionarios que deban hacerlas.
+3º.-Cuando tiendan a impedir que las Cámaras se reúnan o hagan sesiones en las épocas señaladas por esta Constitución, o coartes la libertad o independencia de que deben gozar en todos sus actos o deliberaciones.
+4º.-Cuando se nieguen a publicar o ejecutar las leyes, en los casos en que según esta Constitución no pueden rehusarlo.
+5º.-Cuando impidan o estorben que los tribunales conozcan de los negocios que son de su competencia, o les coartes la libertad con que deban juzgar, o desacaten sus resoluciones.
+6º.-Cuando algún otro modo atentaren contra la Constitución o las leyes, contra el goce y ejercicio legal de los derechos políticos o individuales y contra la guarda y empleo constitucional de los dineros públicos. Por estos hechos serán juzgados por el Senado, una vez que de acuerdo con el artículo 77 la Cámara de Diputados haya declarado haber lugar a formación de causa.
+Los ministros son responsables de los actos de la Administración en sus respectivos ramos, conjuntamente con el Presidente. La responsabilidad de los actos acordados en Consejo de Ministro se extiende a todos los Ministros conjuntamente con el Presidente. No libra a los Ministros de su responsabilidad la orden verbal o escrita del Presidente, ni tampoco salvar su voto en los Consejos.
+La responsabilidad del Presidente o de quien haga sus veces, sólo podrá reclamarse mientras esté en el Poder y en el año siguiente al día que lo deje. La de los Ministros, mientras duren en funciones y en el semestre posterior a su separación del cargo.

@@ -1,0 +1,3 @@
+ARTICULO 16.-A nadie podrá impedirse que se dedique a la profesión, industria, comercio o trabajo que quiera, siendo lícitos. Esta facultad sólo podrá coartarse por resolución judicial, cuando se ataquen derechos de tercero, o por resolución administrativa, dictada en conformidad con la ley, cuando lo exijan la seguridad o la salubridad públicas o el interés nacional.
+La ley determinará cuáles profesiones requieren título para su ejercicio, así como las condiciones precisas para obtenerlo.
+Los extranjeros pueden ejercer las profesiones liberales, siempre que igual derecho tengan los costarricenses en los respectivos países.

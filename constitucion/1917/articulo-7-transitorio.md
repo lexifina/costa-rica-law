@@ -1,0 +1,1 @@
+ARTICULO 7º.-Para suplir las vacantes absolutas o temporales de Senadores, elegirán las Cámaras, de entre la de Diputados, prefiriendo los miembros de la misma provincia del suplido. Se entiende que sí la falta es temporal, el Diputado recobrará su puesto en su Cámara, cuando cese la ausencia del Senador propietario a quien repone.

@@ -1,0 +1,1 @@
+ARTICULO 2º.-La soberanía reside esencialmente y exclusivamente en la Nación y de ella emanan los poderes públicos, los cuales son limitados y deberán ejercerse con arreglo a lo que prescribe esta Constitución.

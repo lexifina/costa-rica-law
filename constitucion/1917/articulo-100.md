@@ -1,0 +1,2 @@
+ARTICULO 100.-El Presidente deberá presentar al Congreso, al abrir las sesiones ordinarias, un mensaje escrito en que dé cuenta del estado político de la República y del que tengan en general los diversos ramos de la Administración. Recomendará además las medidas que juzgue importantes para la buena marcha de la Nación y para su progreso y bienestar.
+Este documento, como esencialmente político, deberá ser aprobado en Consejo de Ministros.

@@ -1,0 +1,2 @@
+ARTICULO 8º.-La Religión Católica Apostólica Romana, es la del Estado, el cual contribuye a su mantenimiento sin impedir el libre ejercicio de ningún otro culto que no oponga a la moral universal ni a las buenas costumbres.
+La declaración a que se refiere el artículo no afecta la legislación existente, ni coarta en forma alguna la libertad de acción de los Poderes Públicos respecto de cualesquiera intereses nacionales.

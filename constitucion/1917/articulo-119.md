@@ -1,0 +1,1 @@
+ARTICULO 119.-La Municipalidad no funcionará sin la asistencia de dos tercios de sus miembros. Las decisiones se tomarán por mayoría de votos presentes. El Intendente presidirá las sesiones, sin voto. Lo establecido respecto de suplentes de Diputados en el artículo 63 es aplicable a Regidores.

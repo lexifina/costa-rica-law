@@ -1,0 +1,1 @@
+ARTICULO 3º.-La Asamblea Constituyente ratifica los nombramientos de Magistrados de la Corte Suprema de Justicia y Conjueces, a que se refieren, respectivamente, los decretos Nº 5 de 12 de abril y Nº 13 de 4 de junio del corriente año.

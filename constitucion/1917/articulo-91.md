@@ -1,0 +1,4 @@
+ARTICULO 91.-Si el Presidente muriere, entrará de hecho a ejercer el mando el Vicepresidente o quien deba suceder le en su defecto.
+Si renunciare el cargo y fuere admitida la renuncia, el Congreso llamará al Vicepresidente o a quien deba sucederle.
+Si el Presidente fuere suspenso o destituido conforme a esta Constitución, la Cámara de Diputados al suspenderlo o el Senado al destituirlo, llamará al Vicepresidente o a quien deba sucederlo, al ejercicio del Poder.
+Cuando el Presidente se incapacitare para el cargo, física o moralmente, el Congreso, si se hallare reunido, o si estuviere en receso, tan luego sea convocado al efecto por el Ministro de Gobernación dentro del plazo de tres días, considerará las circunstancias del caso y decidirá si debe tenerse por vacante la Presidencia. Caso afirmativo al Vicepresidente o a quien deba sustituirlo. Mientras no recarga esta resolución gobernará el Consejo de Ministros, presidido por el de Gobernación.
