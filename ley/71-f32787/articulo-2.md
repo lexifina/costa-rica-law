@@ -1,0 +1,1 @@
+Artículo 2° Un Jurado, compuesto de cinco personas, será el encargado de examinar los trabajos que se presenten, declarar los que se admiten y determinar las adjudicaciones de los premios entre los tres mejores.
