@@ -1,0 +1,2 @@
+DÉ LOS FISCALÉS ESPÉCÍFICOS
+Artículo 36.-Para ejercer el cargo de Fiscal Específico, se requieren las mismas condiciones indispensables para servir el cargo de Promotor Fiscal o Fiscal de Corte o el de Agente Fiscal, según sea la categoría del funcionario a quien haya que sustituir en determinado negocio, o la importancia que conforme a esta ley tenga la comisión que al Fiscal Específico se encomiende.
