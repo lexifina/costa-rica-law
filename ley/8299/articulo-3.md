@@ -1,0 +1,1 @@
+Artículo 3º—Autorízase a las instituciones públicas y a los órganos públicos para que negocien las tasas de interés y los plazos de vencimiento sobre una parte o la totalidad de los títulos de deuda pública interna y de los títulos del Banco Central en su poder.
