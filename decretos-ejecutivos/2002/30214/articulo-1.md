@@ -25,6 +25,7 @@ Centro Univ. Para el Desarrollo del Trópico Seco (Así modificado mediante art�
 Colegio de San Luis Gonzaga | 97,4
 Colegio Universitario de Alajuela | 917,7
 Colegio Universitario de Cartago ( Así modificado por el Decreto ejecutivo N° 31012 del 04 de febrero de 2003). | ¢ 722.7
+Colegio Universitario de Limón (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 271.5
 Colegio Universitario de Puntarenas | ¢ 446.2
 Comisión de Energía Atómica | 33,0
 Comisión Nacional de Asuntos Indígenas | 153,7
@@ -42,6 +43,7 @@ Consejo Nacional de Rehabilitación (Así modificado por decreto ejecutivo N° 3
 Consejo Nacional Persona Adulto Mayor | 1.213,0
 Consejo Técnico de Asistencia Médico Social CTAMS | 1.116.3
 Consejo Transporte Público | 628,5
+Dirección de Geología y Minas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 224.80
 Direc. Serv. de Protec. Fitosanitaria (Así modificado por decreto ejecutivo N° 31048 de 11 de febrero de 2003) | 1.600,0
 Direc. Salud y Produc. Pecuaria | 637,0
 Dirección Ejecutora de Proyectos PL | 480 247,3
@@ -62,6 +64,7 @@ Instituto Costarricense de Ferrocarriles (Así Reformado parcial y expresamente 
 Instituto Costarricense de Pesca | 833,4
 Instituto Costarricense de Puertos del Pacífico | 4.874,1
 Instituto Costarricense de Turismo (Así modificado por decreto ejecutivo N° 31057 de 26 de marzo de 2003) | 6.518,6
+Instituto Costarricense sobre Drogas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 609.7
 Instituto de Desarrollo Agrario | 6.447,7
 Instituto de Fomento y Asesoría Municipal (Así modificado por el artículo 1° del decreto ejecutivo N° 31129 de 3 de abril de 2003) | ¢1.573.8
 Instituto Geográfico Nacional | 150,0
@@ -69,6 +72,7 @@ Instituto Meteorológico Nacional | 272,0
 Instituto Mixto de Ayuda Social | 20.426,2
 Instituto Nacional de Estadística y Censos (Así Reformado parcial y tácitamente por artículo 1° del decreto ejecutivo N° 31239 de 03 de junio de 2003) | 1.213.5
 Instituto Nacional de Fomento Cooperativo | 1.012,5
+Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 860.0
 Instituto Nacional de las Mujeres (Así modificado por el artículo 1° del decreto ejecutivo N° 31067 de 20 de febrero de 2003) | 1062.0
 Instituto Nacional de Vivienda y Urbanismo | 6.102,0
 Instituto sobre Alcoholismo y Farmacodependencia IAFA (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 945.3
@@ -91,14 +95,16 @@ Patronato de Construcciones, Instalaciones y Adquisición de Bienes (Así adicio
 Patronato Nacional de Ciegos | 27,0
 Patronato Nacional de la Infancia (Así modificado por artículo 1° del decreto ejecutivo N° 31136 de 21 de abril de 2003) | 7.204,67
 Patronato Nacional de Rehabilitación | 153,3
+Programa de Mejoramiento de la Calidad de la Educación Preescolar y General Básica (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 4.273.0
 Programa Ganadero de Salud Animal PROGASA (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 7,1
 Programa Integral de Mercadeo Agropecuario | 1.458,7
-Proyecto Desarrollo Agrícola de Pen. Nicoya Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 530.9
+Proyecto Desarrollo Agrícola de Pen. Nicoya (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 530.9
 Proyecto Pequeños Productores Zona Norte MAG | 11,6
 Radiográfica Costarricense .S.A. | 4.152,9
 Refinadora Costarricense de Petróleo | 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario | 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. | 1.501,4
+Servicio Nacional de Guardacostas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 50.3
 Sistema Nacional de Radio y Televisión SINART (Así reformado parcial y tácitamente por el artículo 1° del decreto ejecutivo N° 31234 de 06 de junio de 2003) | 861.10
 Teatro Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003) | 322.3
 Teatro Popular Melico Salazar (Así modificado por el artículo 1° del Decreto Ejecutivo No. 31201 de 12 de mayo de 2003, publicado en La Gaceta No. 11 de 11 de junio de 2003) | 570,6
