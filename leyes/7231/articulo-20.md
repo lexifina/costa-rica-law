@@ -1,0 +1,1 @@
+ARTICULO 20.- La Dirección Ejecutiva estará a cargo del Director Ejecutivo, quien será nacional de uno de los Estados miembros, para un período de cuatro años. Podrá ser reelegido una sola vez y no podrá ser sucedido por persona de la misma nacionalidad.

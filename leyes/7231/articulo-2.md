@@ -1,0 +1,1 @@
+ARTICULO 2.- El objetivo del OIRSA es apoyar los esfuerzos de los Estados miembros, para lograr el desarrollo de sus planes de Salud Animal y Sanidad Vegetal, y el fortalecimiento de sus sistemas cuarentenarios.

@@ -1,0 +1,1 @@
+ARTICULO 29.- El Estado miembro que esté en mora en el pago de sus cuotas correspondientes a más de dos ejercicios fiscales, tendrá suspendido su derecho a voto en las reuniones del CIRSA. No obstante el CIRSA podrá permitirle votar si considera que la falta de pago se debe a circunstancias ajenas a la voluntad del Estado.

@@ -1,0 +1,1 @@
+ARTICULO 36.- Los Ministerios de Agricultura y/o Recursos Naturales de los Estados miembros, darán su apoyo al Organismo para el establecimiento de las Representaciones, de ser posible, en sus propias instalaciones, a efecto de que exista una estrecha colaboración y coordinación.

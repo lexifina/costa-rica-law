@@ -1,0 +1,1 @@
+ARTICULO 43.- El presente Convenio podrá ser modificado mediante la aprobación unánime de todos los miembros del CIRSA, quienes considerarán las reformas en Reunión Extraordinaria convocada al efecto.
