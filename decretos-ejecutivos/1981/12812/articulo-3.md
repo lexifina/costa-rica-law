@@ -1,0 +1,1 @@
+Artículo 3°—Dado a que esta área no tiene el carácter de "Reserva Indígena" no se procederá a ninguna expropiación obligatoria de fincas en posesión de no indígenas situadas en esta zona, pero los indígenas ya no podrán en adelante vender las tierras que actualmente poseen, conforme al artículo 3° de la ley número 6172.
