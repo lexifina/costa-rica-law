@@ -1,3 +1,5 @@
+(Derogado)
+(Mediante artículo 11 del Acuerdo AJDIP 109 del 4 de marzo del 2005 este acuerdo se dejó sin efecto)
 AJDIP/380.—Puntarenas, a los veinte días del mes de agosto del año dos mil cuatro.
 Considerando:
 1º—Que la Junta Directiva por medio del acuerdo AJDIP/064- 2003, dispuso modificar el acuerdo AJDIP/132-99, a efecto de permitir en casos excepcionales, debidamente demostrados ante esta Junta Directiva, el recibo y trámite de renovaciones de licencias de pesca comercial presentadas fuera del plazo de los 60 días calendario.

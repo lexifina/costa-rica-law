@@ -14,3 +14,4 @@ Valora prórrogas de inactividad o renovación extemporánea para la aplicación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-10 | la propia norma |
+| 2 | 2005-03-04 | Acuerdo 109 (2005-03-04) |
