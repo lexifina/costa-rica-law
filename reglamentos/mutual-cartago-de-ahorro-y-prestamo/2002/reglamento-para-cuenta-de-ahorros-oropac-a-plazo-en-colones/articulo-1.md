@@ -1,4 +1,6 @@
+(Derogado)
 REGLAMENTO PARA CUENTA DE AHORROS OROPAC A PLAZO EN COLONES
+(Este Reglamento fue derogado mediante sesión N° 2428 del 30 de marzo del 2005)
 El presente Reglamento establece las normas contractuales que regulan las obligaciones y derechos a través de las Cuentas de Ahorros a plazo en colones, entre el ahorrante, el gestor, y Mutual Cartago de Ahorro y Préstamo, en adelante llamada "MUCAP".
 CAPÍTULO I
 Disposiciones generales

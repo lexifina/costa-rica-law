@@ -14,3 +14,4 @@ Reglamento para cuenta de ahorros OROPAC a plazo en colones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-13 | la propia norma |
+| 2 | 2005-03-30 | Reglamento 2428 (2005-03-30) |
