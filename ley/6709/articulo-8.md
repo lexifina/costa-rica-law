@@ -1,8 +1,8 @@
 Artículo VIII.- Cada país deberá dar constancia de que el producto
 exportado es originario del mismo mediante la expedición de un Certificado
-de Origen, debidamente firmado por las autoridades gubernamentales
-señaladas para tal fin por los Gobiernos respectivos. Los Criterios para
-la expedición de este Certificado serán definidos por la Comisión Mixta
+de Origen, debidamente firmado por las autoridades gubernamentales señaladas
+para tal fin por los Gobiernos respectivos. Los Criterios para la
+expedición de este Certificado serán definidos por la Comisión Mixta
 Permanente.
 Antes de ponerse en vigencia la Lista de Libre Intercambio, cada país
 notificará los nombres y cargos de las autoridades encargadas de expedir el
