@@ -1,0 +1,1 @@
+Artículo 10.—Si por razones especiales no haya sido programado un servicio de transporte y este se requiere en horas y días no hábiles, este sólo podrá ser autorizado por el Director o Subdirector General.

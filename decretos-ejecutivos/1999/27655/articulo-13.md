@@ -1,0 +1,1 @@
+Artículo 13.—Una vez aparcados los vehículos de uso administrativo el conductor o chofer deberá entregar las respectivas llaves al GTABS, para su utilización en el transcurso de las horas laborales, por todas las Unidades de la Dirección, sin excepción.
