@@ -1,0 +1,1 @@
+Artículo 17.—En los casos de emergencia y desastres, los Policías Municipales deberán presentarse en el menor tiempo posible a su respectiva base y prestar sus funciones, aunque estuvieran libres de servicio.

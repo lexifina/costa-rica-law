@@ -1,0 +1,1 @@
+Artículo 28.—Los incentivos a que se refiere el artículo anterior en su inciso a), serán otorgados por el Jefe de la Unidad. La mención Honorífica la entregará el señor Alcalde Municipal. El Broche de Mérito y la Medalla de Policía la entregará el Honorable Concejo Municipal, previo dictamen de la Comisión de Policía Municipal.
