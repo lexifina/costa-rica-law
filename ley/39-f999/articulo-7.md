@@ -1,0 +1,1 @@
+Art. 7. El presente decreto se pondrá en conocimiento del Excelentísimo Congreso en sus próximas sesiones ordinarias. -Dado en el Palacio Nacional, en San José, à los seis dias del mes de noviembre de mil ochocientos cincuenta y uno. Juan Rafael Mora. -Al Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."
