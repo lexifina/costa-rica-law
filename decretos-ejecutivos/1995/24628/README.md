@@ -13,3 +13,4 @@ Reglamento Especial Uso de Instalaciones del Ministerio de Cultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-04 | la propia norma |
+| 2 | 2004-09-20 | Decreto Ejecutivo 32196 (2004-09-20) |
