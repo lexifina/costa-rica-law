@@ -1,0 +1,1 @@
+Artículo 76.—Exclusión de salarios en definición de tipo de contrato. Los costos que se mencionan para las distintas categorías, en los artículos 7º y 72 anteriores, no incluyen el valor de los salarios de los participantes.

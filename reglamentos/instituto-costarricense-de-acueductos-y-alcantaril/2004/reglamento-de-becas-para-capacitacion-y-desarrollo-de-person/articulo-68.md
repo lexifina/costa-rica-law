@@ -1,0 +1,2 @@
+Artículo 68.—Cálculo de obligaciones contractuales. Para el cálculo inicial de las obligaciones contractuales mencionadas en el artículo anterior, las variables o criterios por considerar para determinar el valor equivalente de los beneficios disfrutados serán: la duración del tiempo laboral concedido, y los demás gastos asociados al beneficio, convertidos en tiempo de beca.
+Esta última conversión se obtendrá de dividir el monto de dichos gastos entre el salario base de la clase a que pertenece el beneficiario, al momento de concederse la beca.

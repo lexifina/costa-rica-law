@@ -1,0 +1,1 @@
+Artículo 39.—Tipos de certificado. AyA otorgará o convalidará certificados de participación, aprobación o de instructor, según corresponda y defina el Área de Capacitación y Desarrollo del Recurso Humano. Los criterios en que se fundamentará para determinarlo serán la naturaleza y características de la actividad, su duración y el sistema de evaluación utilizado.

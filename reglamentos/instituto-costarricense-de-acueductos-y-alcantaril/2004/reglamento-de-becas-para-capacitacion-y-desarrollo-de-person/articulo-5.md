@@ -1,0 +1,1 @@
+Artículo 5º—Administrador de las becas. El Área de Capacitación y Desarrollo del Recurso Humano es la única dependencia facultada para administrar las becas en AyA en cualquiera de sus modalidades. Contará para ello, con la colaboración de todas las demás dependencias y, especialmente, de las regiones, a las que se delegará parte de la coordinación y ejecución de los programas.

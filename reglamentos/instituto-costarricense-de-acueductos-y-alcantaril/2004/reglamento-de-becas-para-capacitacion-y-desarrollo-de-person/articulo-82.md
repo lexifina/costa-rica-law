@@ -1,0 +1,7 @@
+Artículo 82.—De las sanciones en régimen de estudios no escolarizados. En el régimen de becas para estudios no escolarizados, la inasistencia, el bajo rendimiento o la desaprobación de la actividad, cuando sean imputables al funcionario por su irresponsabilidad o desidia, serán sancionados de la siguiente manera:
+a. Notificación al Área Penal-Laboral de la Dirección Jurídica, que servirá de base para iniciar el debido proceso para la eventual imposición de una amonestación verbal o escrita, en concordancia con la gravedad de la falta cometida.
+b. Exclusión por un plazo no menor a un año de toda actividad de capacitación o desarrollo.
+c. Congelamiento, por el mismo plazo, de cualquier movimiento de personal que favorezca al infractor.
+No se aplicarán los incisos b y c cuando las actividades o movimientos propuestos sean de estricto interés institucional, a juicio de la administración superior y previa recomendación del Comité Superior de Capacitación.
+d. La conducta inadecuada o el irrespeto a las normas y disposiciones por el funcionario, cuando la capacitación sea recibida en centros de estudio ajenos al Instituto, serán considerados como falta disciplinaria, la cual se comunicará al Área Penal-Laboral para lo que corresponda.
+e. Cobro de la proporción que corresponda de los costos de participación en la actividad según se establezca en el contrato de beca, el acuerdo de responsabilidad, o el compromiso previo.

@@ -1,0 +1,1 @@
+Artículo 58.—Suspensiones del contrato por licencias. La aprobación de licencias, otorgadas bajo las circunstancias señaladas en el artículo 56 anterior, suspenderá automáticamente la beca y con ella las responsabilidades concomitantes. Se exceptúan de esta norma, las becas concedidas para realizar estudios escolarizados.

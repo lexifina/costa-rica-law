@@ -1,0 +1,1 @@
+Artículo 2º—Definición de prioridades. La administración superior establecerá anualmente las áreas que, prioritariamente, deberán fortalecerse mediante las becas de AyA, y conforme las normas previstas someterá a conocimiento y aprobación de la Junta Directiva las políticas institucionales en la materia.

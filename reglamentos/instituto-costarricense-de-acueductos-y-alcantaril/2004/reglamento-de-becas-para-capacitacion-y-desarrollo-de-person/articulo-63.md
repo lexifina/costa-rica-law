@@ -1,0 +1,1 @@
+Artículo 63.—Prioridad de las actividades programadas. En caso de incompatibilidad de horarios, la asistencia a las actividades de capacitación programadas por la Unidad, tendrá prelación sobre cualquier otra actividad de capacitación no programada.

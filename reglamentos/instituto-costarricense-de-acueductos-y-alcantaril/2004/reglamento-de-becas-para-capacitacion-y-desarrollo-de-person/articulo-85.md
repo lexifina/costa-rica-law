@@ -1,0 +1,18 @@
+Artículo 85.—De los cobros relacionados con las sanciones. Además de las sanciones ya establecidas en este Reglamento, se aplicarán las otras siguientes en función de la falta:
+a. Cuando el becario sea suspendido o expulsado del centro donde cursa estudios por mala conducta, deberá reintegrarle al AyA el valor de todos los beneficios disfrutados durante los últimos dos años completos de beca, más el 15% por concepto de costos administrativos.
+b. Cuando el becario sea excluido del programa de becas para estudios escolarizados, por los motivos de bajo rendimiento que se señalan en el artículo 78, incisos f) y g), deberá reintegrar a AyA:
+i. En los casos de becas para capacitación: el 50% del valor de los beneficios disfrutados durante los dos últimos años completos de beca.
+ii. En los casos de beca para desarrollo y de categoría diecinueve: el 100% del valor de los beneficios disfrutados durante los dos últimos años completos de beca.
+c. Cuando el becario incurra en la falta señalada en el inciso h) del artículo 78 de este Reglamento, deberá reintegrar al Instituto:
+i. En los casos de becas para capacitación: el 50% del valor de los beneficios disfrutados durante el último año completo de beca.
+ii. En los casos de beca para desarrollo y de categoría diecinueve: el 100% del valor de los beneficios disfrutados durante el último año completo de beca.
+d. Cuando el becario abandone o no continúe el programa de estudios escolarizados para el cual obtuvo los beneficios de una beca, además del pago de las materias reprobadas por abandono, deberá reintegrar a AyA:
+i. En los casos de becas para capacitación: el 50% del valor de los beneficios disfrutados durante los últimos dos años completos de beca, más el 15% de recargo por concepto de costos administrativos.
+ii. En los casos de becas para desarrollo y de la categoría diecinueve: el 100% del valor de los beneficios disfrutados durante los últimos dos años completos de beca, más el 15% de recargo por concepto de costos administrativos. También, el abandono o no continuación de estos estudios, excluirá al becario de la posibilidad de disfrutar de cualquier otra beca para cursar programas del mismo carácter, como de cualquier beca para desarrollo, durante cinco años contados a partir de la determinación del hecho.
+Lo excluirá, igualmente, de cualquier actividad de capacitación no escolarizada por un año calendario, con excepción de aquéllas que sean de estricto interés institucional, a juicio de la administración superior.
+e. Cuando el becario abandone o desapruebe sin motivo justificado actividades de capacitación no escolarizadas, distintas de aquéllas que sólo requieren un compromiso del beneficiario ante el Área de Capacitación y Desarrollo de Recurso Humano y que se indican en el artículo 72, inciso c), deberán reintegrar al Instituto:
+i. En los casos de becas para capacitación: el 50% del valor de la actividad o programa, incluyendo todos los beneficios que suponen.
+ii. En los casos de becas para desarrollo: el 100% del valor de la actividad o programa, incluyendo todos los beneficios que suponen.
+Lo anterior sin perjuicio de lo establecido en el artículo 83.
+f. Cuando el becario, una vez concluidos los estudios, se negare a cumplir el compromiso laboral con el Instituto derivado de la beca y estipulado en el artículo 67 de este reglamento, deberá reintegrar al Instituto -en proporción a la parte no cumplida del compromiso laboral- el 100% de los beneficios disfrutados más el 15% del valor de los salarios que recibiría el servidor durante el período del compromiso laboral sin cumplir.
+Para este último efecto se tomará como base de cálculo, el salario total del servidor al momento de firmar el contrato de beca.

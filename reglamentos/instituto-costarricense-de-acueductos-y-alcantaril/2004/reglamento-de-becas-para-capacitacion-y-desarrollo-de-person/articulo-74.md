@@ -1,0 +1,1 @@
+Artículo 74.—De la obligación de completar el plan de estudios. Se entiende que, independientemente de la duración de cada contrato de beca, el becario está comprometido a seguir y culminar el programa de estudios pactado para concederle el beneficio, mientras AyA pueda mantenerlo becado, y según lo dispuesto en este Reglamento.

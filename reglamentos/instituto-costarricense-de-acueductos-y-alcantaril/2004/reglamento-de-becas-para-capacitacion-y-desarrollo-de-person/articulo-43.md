@@ -1,0 +1,1 @@
+Artículo 43.—Exclusión general de categorías y excepciones. Salvo las excepciones expresamente mencionadas en este reglamento y las becas de categoría cinco, ocho, nueve y dieciocho establecidas en elartículo 36 que pueden ser compatibles con las demás, el disfrute de una categoría de beca excluye del disfrute simultáneo de los beneficios de otra categoría.

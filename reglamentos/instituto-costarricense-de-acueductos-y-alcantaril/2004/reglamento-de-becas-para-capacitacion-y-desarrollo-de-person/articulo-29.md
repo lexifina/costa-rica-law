@@ -1,0 +1,2 @@
+Artículo 29.—Facilidades de tiempo. Salvo casos excepcionales, AyA brindará el tiempo necesario a sus funcionarios para que se trasladen y participen en las actividades de capacitación debidamente autorizadas; igualmente se compromete a no distraerlos con otras labores durante el tiempo de la capacitación.
+Cualquier incumplimiento de esta norma deberá ser debidamente justificado por el director de la Región o del Área a que pertenece el funcionario ante el Área de Capacitación y Desarrollo del Recurso Humano, dentro de los ocho días hábiles siguientes al suceso.

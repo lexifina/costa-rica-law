@@ -1,0 +1,1 @@
+Artículo 40.—Plazos de tramitación. La Unidad publicará los plazos y fechas límites para la recepción y trámite de solicitudes de becas y de los demás documentos referidos a ellas. La presentación extemporánea o incompleta de estos documentos por parte del funcionario originará la anulación del trámite, salvo que la Administración Superior justifique lo contrario.

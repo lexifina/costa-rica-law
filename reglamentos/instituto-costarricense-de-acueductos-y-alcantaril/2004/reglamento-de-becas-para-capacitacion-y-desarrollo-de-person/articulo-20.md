@@ -1,0 +1,1 @@
+Artículo 20.—Contratación de capacitación externa. AyA, por medio de la Unidad, podrá contratar instructores o actividades o programas completos de capacitación, ajenos de él, en la medida que en que no pueda realizarlas con instructores internos.

@@ -1,0 +1,16 @@
+Artículo 72.—De la firma de contratos según tipo de actividad. Previo al disfrute de una beca por conceder de parte de la Institución, el futuro beneficiario deberá firmar contrato ante las autoridades que se dirán, de acuerdo con el tipo o la categoría de la beca:
+a. Ante la Gerencia:
+i. Cuando sea para actividades escolarizadas no programadas por AyA, en las cuales el beneficio solicitado sea un permiso con goce de salario mayor a las 8 horas semanales, o un financiamiento mayor o igual a dos salarios base mensual mínimo vigente en AyA, o ambas.
+ii. Cuando sea para actividades no escolarizadas y no programadas por AyA, en las cuales el costo por participación individual sea igual o mayor que el salario base por mes de la clase ocupacional de menor categoría vigente en la Institución, o bien para actividades de esta misma naturaleza que tengan duración mayor de 80 horas lectivas dentro del tiempo laboral, o ambas.
+iii. Cuando se trate de becas de categoría cinco, siete, doce, catorce, dieciocho, diecinueve, o veintiuno establecidas en el articulo 36 de este Reglamento.
+iv. Cuando se trate de becas de categoría seis, once, trece o veinte, y los costos a financiar sean mayores o iguales que el salario base mínimo mensual vigente en AyA.
+b. Ante la Dirección de Recursos Humanos: En tratándose de los casos incluidos en este literal, la administración superior, como apoderada generalísima de AyA, delegará en la Dirección de Recursos Humanos, la firma de los contratos de beca, que se conocerán como “acuerdos de compromiso y responsabilidad por beca”:
+i. Cuando sea para actividades escolarizadas no programadas por AyA, en las cuales el beneficio solicitado sea un permiso con goce de salario menor o igual a 8 horas semanales, o un financiamiento menor a dos salarios base mensual mínimo vigente en AyA, o ambas.
+ii. Cuando sea para actividades no escolarizadas y no programadas por AyA con una duración menor o igual de 80 horas lectivas, o que tengan un costo en efectivo menor al salario base mensual mínimo vigente en AyA, o ambas.
+iii. Cuando sea para actividades no escolarizadas y programadas por AyA, con una duración de más de 80 horas, o con un costo en efectivo mayor o igual a un salario base mensual mínimo vigente en AyA o ambos.
+iv. Cuando sea para becas de categorías seis, once, trece o veinte, siempre que el monto del beneficio sea menor que el salario base mensual mínimo vigente en AyA.
+v. Cuando se trate de las becas diez y quince establecidas en elartículo 36 de este Reglamento.
+c. Ante el Área de Capacitación y Desarrollo del Recurso Humano: Un “compromiso de participación”:
+i. Para las actividades no escolarizadas y programadas por AyA en las cuales el costo por participación individual sea menor que el salario base por mes de la clase ocupacional de menor categoría vigente en la Institución, o que tengan una duración no mayor de 80 horas lectivas, o ambas.
+ii. Para las actividades no escolarizadas y no programadas por el Instituto, que tengan una duración menor o igual a las 40 horas lectivas dentro del tiempo laboral del servidor beneficiario, siempre que no signifiquen ningún otro costo en efectivo para AyA.
+Estos contratos suponen contenidas e incorporadas las normas de este Reglamento, y la firma de ellos obliga a cumplir éste en todos sus términos.

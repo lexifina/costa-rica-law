@@ -1,0 +1,1 @@
+Artículo 15.—Base técnica para decisiones. Las decisiones del comité deberán tomar en consideración el criterio técnico de la Unidad y remitirse a la instancia que corresponda, dentro de los plazos establecidos para cada situación.

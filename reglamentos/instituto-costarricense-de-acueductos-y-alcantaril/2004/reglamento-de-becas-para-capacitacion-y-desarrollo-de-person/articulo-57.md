@@ -1,0 +1,1 @@
+Artículo 57.—Del descuento del tiempo de vacaciones. En caso de que el funcionario acepte participar en actividades de capacitación no escolarizadas durante sus vacaciones, el tiempo efectivo de asistencia a lecciones no se le descontará como vacaciones disfrutadas, de las mismas a que tiene derecho.

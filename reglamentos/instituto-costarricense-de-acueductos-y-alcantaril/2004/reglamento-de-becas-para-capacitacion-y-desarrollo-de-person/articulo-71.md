@@ -1,0 +1,1 @@
+Artículo 71.—Responsabilidad por pérdida del material didáctico. El funcionario que extravíe o pierda, en forma injustificada a criterio de la Unidad, cualquier material didáctico que se le entregue para actividades de capacitación, deberá reintegrarlo a AyA de acuerdo con su valor de reposición.

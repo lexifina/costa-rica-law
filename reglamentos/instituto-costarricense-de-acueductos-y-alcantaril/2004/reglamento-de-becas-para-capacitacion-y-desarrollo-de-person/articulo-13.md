@@ -1,0 +1,1 @@
+Artículo 13.—Reglamento y quórum del Comité. El comité se dará su propio reglamento y podrá sesionar siempre que estén presentes más de la mitad de sus miembros. Para efectos de este quórum el número máximo de delegados de que habla el artículo 12 anterior será de dos.

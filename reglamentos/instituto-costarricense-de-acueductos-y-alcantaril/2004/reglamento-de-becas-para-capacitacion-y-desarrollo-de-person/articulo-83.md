@@ -1,0 +1,1 @@
+Artículo 83.—Del derecho al debido proceso. Previo a la aplicación de cualquier sanción establecida en este reglamento, se seguirá el debido proceso, respetando el legítimo derecho de defensa de los becarios, todo de conformidad con el Libro II de la Ley General de la Administración Pública.

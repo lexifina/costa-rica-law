@@ -1,0 +1,1 @@
+Artículo 12.—Acreditación de suplentes del Comité. Cada miembro del Comité Superior de Capacitación deberá designar y acreditar, ante el Área de Capacitación y Desarrollo del Recurso Humano, un delegado que pueda representarlo cuando así lo requiera.
