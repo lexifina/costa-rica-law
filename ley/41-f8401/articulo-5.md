@@ -1,0 +1,1 @@
+Art. 5. Tendrá el acusador ò perseguidor de falsarios ó cercenadores de moneda, el premio de cien pesos que se le satisfarán del erario público, y los delincuentes serán castigados con todo el rigor de la ley.
