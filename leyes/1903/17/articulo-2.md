@@ -1,0 +1,3 @@
+Artículo 2° El artículo 68 de la Constitución se leerá así:
+El Diputado es absolutamente irresponsable por las opiniones y votos que emita en la Cámara.
+Desde que fuere declarado electo, propietario o suplente, por la Asamblea Electoral, hasta que termine su periodo legal, no podrá ser detenido ni preso por motivo criminal o de Policía, sin que previamente haya sido suspenso por el Congreso. Esta inmunidad no tiene cabida en el caso de flagrante delito o falta, ni cuando el mismo Diputado manifieste renunciarla. Sin embargo, el Diputado detenido o preso, en el caso de flagrante delito o falta será, puesto en libertad si el Congreso lo ordenare.
