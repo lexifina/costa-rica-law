@@ -1,0 +1,2 @@
+Artículo 2º—Requisitos para obtener la licencia. En toda solicitud de otorgamiento de traslado, traspaso, renuncia y renovación de la licencia municipal, el gestionante deberá presentar la solicitud ante el Departamento de Patentes y cumplir todos los requisitos establecidos en esta Ley, el Código Municipal, las demás leyes y los reglamentos conexos y aplicables.
+Será requisito indispensable estar al día en el pago de los tributos a favor de la Municipalidad de Alfaro Ruiz.
