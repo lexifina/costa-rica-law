@@ -1,6 +1,6 @@
 # Crea Organismo Médico Forense
 
-Ley N° 3265 del 1964-02-06. SINALEVI, ficha 36672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36672&param2=76992&param3=1>.
+Ley N° 3265 del 1964-02-06. SINALEVI, ficha 36672: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36672&param2=76996&param3=1>.
 
 Publicada en La Gaceta N° 35 del 1964-02-12.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1964-02-22 | Ley 3265 | 1964-02-06 |
 | 2 de 4 | 1965-01-01 | Ley 3501 | 1965-04-23 |
 | 3 de 4 | 1965-11-23 | Ley 3588 | 1965-11-09 |
+| 4 de 4 | 1974-05-07 | Ley 5524 | 1974-05-07 |

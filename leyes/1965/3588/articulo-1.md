@@ -1,4 +1,6 @@
+(Derogado)
 N° 3588
+(Derogada por el artículo 64 de la ley Orgánica del Organismo de Investigación Judicial N° 5524 del 7 de mayo de 1974. El artículo afectante anteriormente era el 63 pero, por la adición efectuada por el numeral 245 de la ley de Tránsito N° 7331 del 30 de marzo de 1993, paso a ser el 64)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 Artículo único.- Adiciónase el artículo 6º de la ley Nº 3265 de 6 de febrero de 1964, la cual en lo sucesivo se leerá así:

@@ -1,9 +1,1 @@
-Artículo 39.- Es privativa del Colegio de Médicos y Cirujanos la
-atribución de resolver definitivamente sobre las cuestiones de medicina
-legal, cuando para ello sea requerido por la autoridad, de oficio o a
-solicitud del interesado, y aun sin la necesidad de tal requerimiento,
-cuando esa Institución, conocedora del asunto, creyere necesaria su
-intervención para revocar o modificar el dictamen del Médico Forense o del
-Laboratorio Químico. Pero la orden de oficio del Juez, y la intervención
-sin requerimiento sólo podrán efectuarse en causas penales por delito de
-acción pública.
+Artículo 39.-(Derogado por el artículo 64 de la ley Orgánica del Organismo de Investigación Judicial N° 5524 del 7 de mayo de 1974. El artículo afectante anteriormente era el 63 pero, por la adición efectuada por el numeral 245 de la ley de Tránsito N° 7331 del 30 de marzo de 1993, paso a ser el 64)
