@@ -1,0 +1,1 @@
+Artículo 31.—Las resoluciones de la Municipalidad y la Oficina de Rentas que ordenen la cancelación de la patente o la clausura del negocio por el vencimiento o la revocatoria de permisos de funcionamiento, no tendrán recurso alguno.

@@ -1,0 +1,1 @@
+Artículo 12.—Cuando resulte totalmente evidente el abandono de la actividad aún cuando el interesado no haya comunicado a la Municipalidad y a la Oficina de Rentas, la Municipalidad procederá a cancelar la licencia.

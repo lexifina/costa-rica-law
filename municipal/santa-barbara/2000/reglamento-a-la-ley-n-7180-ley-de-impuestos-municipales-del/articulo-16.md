@@ -1,0 +1,1 @@
+Artículo 16.—Cuando el permiso de funcionamiento esté condicionado a plazo fijo, el vencimiento del mismo obliga al interesado a la renovación de la licencia, según lo establecido en él capitulo VII del presente reglamento.
