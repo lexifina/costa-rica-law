@@ -1,0 +1,2 @@
+TRANSITORIO UNICO.- La preparación de los proyectos de resolución de los reclamos que interpongan los contribuyente, contra las actuaciones de fiscalización, determinación y demás, que realice la Dirección, serán atendidos por la Subdirección Técnica hasta tanto no se deleguen estas funciones en las Administraciones Regionales y la Administración de Grandes Contribuyentes.
+Dado en la Presidencia de la República.- San José, a los dos días del mes de julio de mil novecientos noventa y tres.
