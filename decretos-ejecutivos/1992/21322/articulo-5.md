@@ -1,0 +1,1 @@
+Artículo 5°—El Departamento de Exenciones de la Dirección General de Hacienda, procederá a autorizar las solicitudes recomendadas, previa comprobación de que los beneficiarios demuestren la solvencia tributaria a que se refiere el artículo 48, inciso ch), de la ley N° 7293, supracitada.
