@@ -1,0 +1,1 @@
+Artículo 26.—Obligatoriedad del Marcado de País de Origen. Las mercancías que de acuerdo con el presente Reglamento sean originarias de las Partes Contratantes, deberán ostentar cualquiera de las leyendas siguientes: "Producto centroamericano hecho (elaborado o impreso) en... (País de Origen)".

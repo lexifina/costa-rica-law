@@ -1,0 +1,1 @@
+Artículo 42.—Solicitud de prórroga. Durante el plazo establecido en el párrafo tercero del Artículo treinta y ocho (38), el productor o exportador podrá solicitar por escrito, a la Dirección de la Parle internadora, una prórroga que, de concederse, no será mayor de diez (10) días hábiles.

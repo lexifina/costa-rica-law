@@ -1,0 +1,1 @@
+Artículo 9°—Acumulación. Cuando en una mercancía se incorporen materias o productos originarios de cualquiera de las Partes Contratantes, estas materias o productos serán considerados para determinar el origen regional de esa mercancía. Sin embargo, la mercancía se considerará originaria de la Parte Contratante donde se lleve a cabo la última transformación sustancial.
