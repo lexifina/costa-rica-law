@@ -1,0 +1,1 @@
+Artículo 8º—Respecto a los tributos que gravan productos importados, en los términos de los artículos anteriores, el hecho generador ocurrirá al momento de aceptación de la declaración aduanera; asimismo, el hecho generador, en relación con los tributos que gravan productos nacionales, ocurrirá en el momento de la venta.

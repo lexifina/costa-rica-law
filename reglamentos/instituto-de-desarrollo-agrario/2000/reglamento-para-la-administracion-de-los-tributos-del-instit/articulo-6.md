@@ -1,0 +1,2 @@
+Artículo 6º—La emisión del timbre agrario, creado en el artículo 13 de la Ley Nº 5792 reformado por el artículo 35 de la Ley Nº 6735, estará a cargo del INDER(*), y su administración y recaudación a cargo del Banco Central, que lo girará al Instituto trimestralmente.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

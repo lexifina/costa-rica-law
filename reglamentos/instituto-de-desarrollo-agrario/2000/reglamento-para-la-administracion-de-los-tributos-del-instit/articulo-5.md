@@ -1,0 +1,3 @@
+Artículo 5º—El impuesto sobre la cerveza nacional y extranjera, creado en el artículo 10 de la Ley Nº 5792 reformado por el artículo 35 de la Ley Nº 6735, tendrá una tarifa del 5%, aplicable sobre el precio de venta de esos productos antes del impuesto de venta entratándose de cerveza nacional y sobre el costo total de importación, excluido el correspondiente impuesto de ventas, para la cerveza extranjera.
+El total recaudado por este impuesto será girado mensualmente por el Banco Central al INDER(*)
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

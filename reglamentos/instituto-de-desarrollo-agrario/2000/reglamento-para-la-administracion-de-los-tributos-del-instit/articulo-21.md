@@ -1,0 +1,1 @@
+Artículo 21.—Las actuaciones de la Administración Tributaria deberán consignarse en un expediente administrativo, el cual se conformará en el orden en que se obtengan o produzcan los distintos documentos, que deberán foliarse en orden secuencial, con el fin de garantizar adecuadamente su conservación.

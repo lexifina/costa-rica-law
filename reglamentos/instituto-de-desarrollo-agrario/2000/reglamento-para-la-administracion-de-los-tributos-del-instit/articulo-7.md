@@ -1,0 +1,1 @@
+Artículo 7º—Los impuestos sobre el consumo de cigarrillos nacionales y extranjeros por cajetilla, regulados en el artículo 6º de la Ley Nº 3021 del 21 de agosto de 1962 sus reformas, y en el artículo 11 de la Ley Nº 4630 del 4 de agosto de 1970, se aplicarán por cada cajetilla del producto.

@@ -1,0 +1,1 @@
+Artículo 35.—Las actuaciones de comprobación e investigación podrán tener carácter total o parcial, según tengan por objeto la verificación completa de la situación tributaria del sujeto pasivo en relación con los tributos administrados, o bien se trate de una parte de los impuestos o deberes del sujeto pasivo, o haga referencia a hechos imponibles determinados.

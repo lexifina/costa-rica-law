@@ -1,0 +1,1 @@
+Artículo 48.—La resolución del Director de la Administración Tributaria que deniegue el otorgamiento de aplazamientos o facilidades de pago carecerá de recurso alguno, no obstante deberá ser razonada.

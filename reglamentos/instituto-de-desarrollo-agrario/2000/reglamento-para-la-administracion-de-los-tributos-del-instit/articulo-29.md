@@ -1,0 +1,2 @@
+Artículo 29.—Las actuaciones de registro de información deben ser realizadas únicamente por los funcionarios debidamente autorizados para ello. De previo a la ejecución de esa labor, dichos servidores deben recibir la debida instrucción y tener asignada la correspondiente clave de acceso al sistema de información tributaria.
+El funcionario de gestión será responsable por el manejo inadecuado que le dé a la clave de acceso al sistema de información que le ha sido confiada.
