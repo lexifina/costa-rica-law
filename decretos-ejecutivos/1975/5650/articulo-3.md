@@ -1,0 +1,1 @@
+Artículo 3°─ Contra la cuenta bancaria a que se refiere el artículo 11 de la citada ley N° 5607 podrá girarse solo con las firmas del Ministro de Educación Pública, o en su ausencia con la del Viceministro Administrativo, y del Director del Departamento Financiero de ese Ministerio.

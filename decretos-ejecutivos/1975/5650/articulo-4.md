@@ -1,0 +1,1 @@
+Artículo 4°─ La Contabilidad del manejo del Fondo estará a cargo del Departamento Financiero del Ministerio de Educación Pública, el cual llevará por lo menos un Diario, un Mayor y un Libro de Banco, debidamente legalizados por la Contraloría General de la República.

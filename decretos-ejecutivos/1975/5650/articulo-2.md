@@ -1,0 +1,2 @@
+Artículo 2°─ El Ministerio de Educación Pública, dispondrá de dicho fondo mediante reintegros a las Juntas de Educación y Administrativas, del valor de aquellas compras efectuadas previa autorización del Ministerio.
+Las solicitudes de reintegro harán mención de la autorización dicha y se acompañarán con las facturas correspondientes, lo mismo que un comprobante de que las herramientas efectivamente están a disposición del centro respectivo, extendido por el Director de éste.
