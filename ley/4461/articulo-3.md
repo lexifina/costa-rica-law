@@ -1,0 +1,1 @@
+Artículo 3º.- Para los efectos de esta ley, las Agencias de Extensión Agrícola o las Agencias de los Bonos del Sistema Bancario Nacional, actuarán como agentes autorizados del Instituto Nacional de Seguros en las respectivas localidades, a solicitud de éste.

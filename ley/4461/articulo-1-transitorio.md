@@ -1,0 +1,2 @@
+Transitorio.- La contribución de los bancos, que corresponderá al período fiscal en que se apruebe esta ley, y a los siguientes, será hecha automáticamente y con independencia del monto total asegurado, mientras la reserva a que se refiere el artículo 6º no alcance el monto mínimo de cinco millones de colones.
+Casa Presidencial.-San José, a los diez días del mes de noviembre de mil novecientos sesenta y nueve.
