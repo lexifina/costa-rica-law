@@ -14,3 +14,4 @@ Reglamento para los Estudios de Estabilidad de Medicamentos Requeridos para su R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-19 | la propia norma |
+| 2 | 2004-01-27 | Decreto Ejecutivo 31690 (2004-01-27) |
