@@ -1,0 +1,1 @@
+Art. 3. Los Administradores de aduanas invertiran precisamente la enunciada quinta parte de dinero en el pago de sueldos de empleados y resguardos de la renta, y en los gastos de oficina que ocurran; pasando cada tres meses á la administracion principal las existencias que tengan.
