@@ -14,3 +14,4 @@ Reforma Art. 25 del Reglmento Interno de Gastos de Viaje del ICT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-11 | la propia norma |
+| 2 | 1997-06-11 | Ley 8 |
