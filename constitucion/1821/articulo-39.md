@@ -1,0 +1,1 @@
+Artículo 39.- En lo militar se proveerá el mando general solamente que sea amenazada la seguridad, libertad e independencia de la provincia, en cuyo caso el jefe de armas ha de tener las cualidades que se requieren por los artículos 7º y 17.

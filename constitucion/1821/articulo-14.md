@@ -1,0 +1,1 @@
+Artículo 14.- Si faltase alguno o algunos de los 31 electores de partido, como no exceda la falta de una cuarta parte, procederá la junta a elegir suplentes por los que faltan; mas si la falta excediese de siete, se suspenderá el acto y convocará a los que falten, hasta completar el número indicado.

@@ -1,0 +1,1 @@
+Artículo 52.- Para que el gobierno no pueda resistir este juicio de residencia, los comandantes militares y jefes políticos subalternos tendrán a disposición del Tribunal de residencia la fuerza armada, para el caso único de que trata el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 37.- Para el fomento de la provincia se permitirá, a juicio del Gobierno, el comercio libre de todos los artículos o efectos de consumo y la importación del numerario provisional de toda la América, regulándose su ley y valor.

@@ -1,0 +1,1 @@
+Artículo 13.- Los electores de partido celebrarán, el primer domingo 6 de enero próximo, junta de provincia en esta ciudad, y nombrando de su seno presidente, escrutadores y secretario, previas las demás formalidades establecidas en la Constitución (española), que igualmente se observarán en las juntas antedichas, se tendrá la junta por instalada.

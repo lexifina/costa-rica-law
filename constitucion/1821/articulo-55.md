@@ -1,0 +1,1 @@
+Artículo 55.- Interin se instala la Junta de gobierno, la Legación ordinaria nombrará de su seno una comisión de 7 individuos y 3 suplentes que desempeñe las atenciones que a aquélla se señalan en este Pacto, gozando de la misma pensión, con igual responsabilidad y sujeción a la residencia ya prevenida.

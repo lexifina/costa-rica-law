@@ -1,0 +1,1 @@
+Artículo 53.- La comisión citará al juicio a los acusados, y si alguno probare no haber sido miembro de la Junta que cometió el exceso, o que siéndolo salvó su voto en el libro que corresponde, éstos no se suspenderán de su oficio y rango, ni entrarán en el juicio promovido, y sí se restituirán a la Junta gubernativa, saliendo los últimos nombrados.

@@ -1,0 +1,1 @@
+Artículo 50.- El presidente, con el secretario, convocará a toda la comisión, entrando suplentes por falta de propietarios, para que vista la sumaria determine si ha lugar o no al juicio contra la Junta.

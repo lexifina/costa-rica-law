@@ -1,0 +1,1 @@
+Artículo 25.- En los asuntos o negocios de lo que era patronato, la Junta de gobierno consultará, conciliará y concordará con el Ilustrísimo señor obispo diocesano lo que exige el bien de la Iglesia y sostención del culto en esta provincia.
