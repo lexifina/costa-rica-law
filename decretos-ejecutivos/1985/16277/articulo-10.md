@@ -1,0 +1,4 @@
+Personal trasladado al SENARA:
+Artículo 10.—El personal que se traslade al SENARA conservará sus derechos adquiridos, a tenor de lo dispuesto en los transitorios II y V de la ley N° 6877/83, mantendrá los derechos consagrados en las normas que regían su relación anterior, pero administrados en lo sucesivo únicamente por la estructura orgánica del SENARA, sin perjuicio del recurso a la vía judicial.
+2) A los funcionarios trasladados en las condiciones anteriores no se les podrá en ningún caso afectar el salario por reorganización que se efectúen con motivo del traspaso. En tales casos el salario se congelará hasta tanto el sueldo del servidor se ajuste en su nueva situación a la valoración correspondiente.
+3) El personal que se traslade al SENARA procedente de otra administración pública y sin que esté protegido por los transitorios y respectivos decretos de traslado citados tendrá derecho a que se le reconozca la antigüedad que tenía, para todo efecto legal.
