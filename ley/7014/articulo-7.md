@@ -1,0 +1,3 @@
+Artículo 7º.- La Asamblea se reunirá ordinariamente una vez al año, en el mes de marzo, y extraordinariamente cada vez que la convoque el presidente, por decisión propia, o a solicitud de la Junta Directiva o de once miembros de la Asamblea.
+La convocatoria se hará en el domicilio de sus miembros por vía telefónica o mediante carta certificada, con ocho días de anticipación, por lo menos, a la facha fijada para la sesión. Además, deberá publicarse dicha convocatoria con la misma antelación en uno de los periódicos de mayor circulación del país.
+Para la celebración de las sesiones será necesaria la presencia de quince miembros, por lo menos. Si no se reuniere el quórum legal, la sesión se efectuará una hora después con once de los miembros, como mínimo.

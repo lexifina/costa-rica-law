@@ -1,0 +1,1 @@
+Artículo 37.- Se considerarán créditos para financiación de cosechas de arroz todos aquellos que el productor obtenga con garantía de su cosecha, prendaria o de cualquier otro tipo, dentro de los límites de financiación fijados por el Banco Central de Costa Rica.

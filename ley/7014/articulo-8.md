@@ -1,0 +1,1 @@
+Artículo 8º.- Las resoluciones y acuerdos de la Asamblea General se tomarán por simple mayoría de votos, y se harán constar en el libro de actas, que firmarán el presidente y un delegado de cada uno de los grupos representados. En caso de empate se repetirá la votación en la misma sesión o en una nueva que deberá celebrarse dentro de los próximos quince días hábiles.

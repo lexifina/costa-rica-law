@@ -1,0 +1,2 @@
+Artículo 22.- Cualquier alteración u omisión en cuanto a la veracidad de los informes que obligatoriamente deben rendir los beneficiadores sobre cantidades de compra, recibo, existencias y ventas o entregas, acarreará a responsabilidad penal correspondiente.
+La primera reincidencia, verificada por la junta directiva, facultará a la Oficina para cancelar temporalmente, sin más trámite, la licencia del beneficiador.

@@ -1,0 +1,1 @@
+Artículo 45.- Las sanciones que se establecen en los artículos anteriores serán aplicadas por la Junta Directiva independientemente de las responsabilidades que pudieran corresponder. Los ingresos pecuniarios que produzcan estas sanciones pasarán directamente a la caja de la Oficina.

@@ -1,0 +1,1 @@
+Artículo 34.- Las utilidades derivadas de la importación, según el precio del arroz en granza importado, puesto en las plantas, y el precio recomendado por el Ministerio de Economía y Comercio, pasarán al fondo que establece el inciso a) del artículo 33.
