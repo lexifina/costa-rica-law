@@ -1,0 +1,3 @@
+Artículo 19.—Modifíquese el artículo 86 del "Reglamento de Circulación por Carretera con base en el Peso y las Dimensiones de los vehículos de Carga", contenido en el Decreto Ejecutivo N° 31363-MOPT, reformado mediante Decreto Ejecutivo N° 31642-MOPT-MJ-MEIC, para que se lea de la siguiente manera:
+"Artículo 86.—Diagrama de pesos máximos permisibles en tractocamión con semirremolque. Cuando se tratare de vehículos tipo tractocamión con semirremolque y de acuerdo a lo estipulado en el presente Reglamento se establecen los siguientes pesos máximos permitidos:
+Ver tabla N° 4 de tractocamión con semirremolque en La Gaceta impresa N° 13 del 19 de enero del 2005.

@@ -1,0 +1,2 @@
+Artículo 13.—Modifíquese el artículo 38 del "Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga" contenido en el Decreto Ejecutivo Nº 31363-MOPT, para que en lo sucesivo se lea:
+"Artículo 38.—Incumplimiento de Permisos Especiales. Cuando se obtengan Permisos Especiales para transportar carga y se comprobare que el vehículo circula infringiendo lo estipulado, el transportista infractor será sancionado de conformidad con lo estipulado en la normativa vigente."

@@ -1,0 +1,2 @@
+Artículo 5º—Modifíquese el artículo 15 del "Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga" contenido en el Decreto Ejecutivo Nº 31363-MOPT, para que en lo sucesivo se lea:
+"Artículo 15.—Contenido del Permiso de Pesos y Dimensiones. El Permiso indicará las características del vehículo, su número de placa de identificación y los pesos y dimensiones máximos permitidos. Para el tractocamión o cabezal solo se indicarán sus características, el número de placa de identificación y sus dimensiones."

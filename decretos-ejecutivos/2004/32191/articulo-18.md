@@ -1,0 +1,3 @@
+Artículo 18.—Modifíquese el artículo 85° del "Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga", contenido en el Decreto Ejecutivo N° 31363-MOPT, reformado mediante Decreto Ejecutivo N° 31642-MOPT-MJ-MEIC, para que se lea de la siguiente manera:
+"Artículo 85.—Diagrama de pesos máximos permisibles en el camión con remolque. En el caso de los vehículos con remolque a que se refiere el presente Reglamento, el presente diagrama identifica los pesos máximos permisibles según cada tipo de vehículo de que se trate:
+Ver tabla N° 3 de camión remolque en La Gaceta impresa N° 13 del 19 de enero del 2005.

@@ -1,0 +1,2 @@
+Artículo 8º—Modifíquese el artículo 20 del "Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga" contenido en el Decreto Ejecutivo Nº 31363-MOPT, para que en lo sucesivo se lea:
+"Artículo 20.—Renovación de los Permisos de Pesos y Dimensiones. Los Permisos de Pesos y Dimensiones podrán renovarse antes de que se produzca su vencimiento. La obtención del nuevo Permiso requerirá el cumplimiento de los requisitos técnicos y administrativos estipulados en el presente reglamento para su obtención por primera vez."

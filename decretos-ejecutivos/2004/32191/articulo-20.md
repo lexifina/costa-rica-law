@@ -1,0 +1,3 @@
+Artículo 20.—Modifíquese el artículo 87° del "Reglamento de Circulación por Carretera con base en el Peso y las Dimensiones de los vehículos de Carga", contenido en el Decreto Ejecutivo N° 31363-MOPT, reformado mediante Decreto Ejecutivo N° 31642-MOPT-MJ-MEIC, para que se lea de la siguiente manera:
+"Artículo 87.—Diagrama de pesos máximos permisibles en tractocamión con doble semirremolques (B-Doble). Para los casos de vehículos que fueren tractocamiones con doble semirremolque se establecen, conforme a los términos del presente Reglamento, los siguientes pesos máximos permisibles:
+Ver tabla N° 5 de tractocamión con doble semirremolques (B-DOBLE) en la Gaceta impresa N° 13 del 19 de enero del 2005.

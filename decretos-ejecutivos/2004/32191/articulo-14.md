@@ -1,0 +1,2 @@
+Artículo 14.—Modifíquese el artículo 53 del "Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga" contenido en el Decreto Ejecutivo Nº 31363-MOPT, para que en lo sucesivo se lea:
+"Artículo 53.—Presentación del descargo. Para impugnar cualquier infracción a la ley en razón de la naturaleza de esta materia, será necesario presentar lo que disponga la Ley de Tránsito por Vías Públicas Terrestres."
