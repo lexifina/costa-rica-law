@@ -1,0 +1,2 @@
+Art. 3°-En el mandamiento de embargo se fijará con precisión la cantidad embargada, para una vez que sea deducida, se gire a favor del empleado responsable, por su sueldo íntegro, sin necesidad de aviso previo al Juez.
+Dado en el Palacio Presidencial, en San José, á los veintinueve días del mes de noviembre de mil ochocientos ochenta y dos.-P. FERNÁNDEZ-EI Secretario de Estado en el Despacho de Hacienda y Comercio, -BERNARDO SOTO.
