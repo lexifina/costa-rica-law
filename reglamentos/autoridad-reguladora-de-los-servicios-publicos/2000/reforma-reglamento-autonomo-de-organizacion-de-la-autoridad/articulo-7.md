@@ -1,0 +1,1 @@
+Artículo 7º—Modificar en el artículo 10 para que en adelante se lea de la siguiente forma: "Funciones del Departamento Jurídico Especializado por "Funciones de la Dirección Jurídica Especializada " y en el texto cambiar El Departamento Jurídico Especializado" por "La Dirección Jurídica Especializada".
