@@ -1,0 +1,1 @@
+Art. 5°-Los señores Chamberlain pueden traspasar estas concesiones, bajo la precisa condición de que si el traspaso lo hicieren á una compañía ó empresa extranjera, ésta quedará sujeta exclusivamente á las leyes de la República.
