@@ -15,3 +15,4 @@ Reglamento para la Operación de Entidades Comercializadoras del Sistema de Ahor
 | --- | --- | --- |
 | 1 | 2000-05-11 | la propia norma |
 | 2 | 2002-10-03 | Reglamento 5219 (2002-10-03) |
+| 3 | 2003-02-12 | Reglamento 5253 (2003-02-12) |
