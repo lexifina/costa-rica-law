@@ -1,0 +1,1 @@
+Artículo 3°.- Normas y procedimientos. Las normas y los procedimientos sobre contratación estipulados en el Contrato de Préstamo que se aprueba en esta Ley, prevalecerán sobre la legislación ordinaria nacional.
