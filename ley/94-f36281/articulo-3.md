@@ -1,0 +1,1 @@
+Artículo 3°Debiendo incurrir cada uno de los habitantes desde la edad de dieciocho años hasta la de cincuenta con dos días de trabajo, y con uno los soldados que se hallan con arma en mano, como previene el decreto citado de 19 de diciembre, los que no puedan o no quieran dar el subsidio personal, lo pagarán en dinero a razón de tres reales diarios en el momento que se les exija.
