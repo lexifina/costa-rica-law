@@ -1,0 +1,1 @@
+Artículo 42°- Celebración de convenios con entidades nacionales, públicas o privadas. El Ministro de Seguridad Pública estará facultado para celebrar convenios de interés para el Servicio con órganos y entidades nacionales, públicos o privados.
