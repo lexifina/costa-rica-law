@@ -1,0 +1,2 @@
+Artículo 16.—De los límites de aprobación
+Los limites de aprobación serán los mimos aprobados por la Junta Directiva General para la concesión de créditos, a los entes y funcionarios autorizados en la Administración Superior , Crédito y Servicios Corporativos, Banca Regional y Comisión Especia! de Crédito. También están autorizados el Jefe General y el Subjefe General de Banca de Operaciones; el Jefe y Subjefe de Cuentas Corrientes y el Jefe de Contabilidad de Cuentas Corrientes, Según los limites establecidos por la misma Junta Directiva.

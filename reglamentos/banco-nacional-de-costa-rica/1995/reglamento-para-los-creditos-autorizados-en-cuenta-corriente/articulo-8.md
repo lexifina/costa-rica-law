@@ -1,0 +1,3 @@
+Artículo 8°—De los intereses
+La tasa de interés que se cobrará a cada crédito en cuenta corriente, será la tasa activa máxima que rija en el momento en el Banco Nacional, y será pagadera sobre los saldos diarios deudores por mes vencido. Los intereses serán variables y ajustables a opción del Banco Nacional, en forma mensual, bimestral o trimestral, hasta en quince puntos sobre la Tasa Básica Pasiva del Banco Central de Costa Rica que rija en el momento del ajuste, de conformidad con lo que establece e! artículo 70 de la Ley Orgánica del Sistema Bancario Nacional.
+Adicionalmente a la tasa de interés comente, se cobrara un interés moratorio del 2% anual sobre los montos sobregirados que se encuentren vencidos y sin cancelar, con un mínimo de ₡100.00 (Cien colones)
