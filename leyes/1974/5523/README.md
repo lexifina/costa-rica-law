@@ -1,0 +1,11 @@
+# Reforma Ley Transporte Remunerado en Vehículos
+
+Ley N° 5523 del 1974-05-07. SINALEVI, ficha 2685: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2685&param2=2850&param3=1>.
+
+Publicada en La Gaceta N° 93 del 1974-05-18.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1974-05-18 | Ley 5523 | 1974-05-07 |
