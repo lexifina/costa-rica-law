@@ -14,3 +14,4 @@ Faculta el ICAFE para operar como Almacén General de Depósito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-09 | la propia norma |
+| 2 | 2003-11-17 | Decreto Ejecutivo 31529 (2003-11-17) |
