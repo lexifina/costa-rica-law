@@ -1,0 +1,13 @@
+N° 8370
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+REFORMA DEL ARTÍCULO 19 DE LA LEY DE PERSONAL DE LA ASAMBLEA LEGISLATIVA, N° 4556
+Artículo único.—Refórmase el artículo 19 de la Ley de Personal de la Asamblea Legislativa, N° 4556, de 29 de abril de 1970. El texto dirá:
+"Artículo 19.—Los nombramientos para sustituir temporalmente a servidores regulares, por cualquier causa de suspensión de la relación de trabajo, no excederán de un año; si pasan de tres meses, deberán sujetarse a las disposiciones de los artículos 10, 11 y 12 de la presente Ley.
+Quienes tengan más de dos años de estar nombrados interinamente en una plaza del Régimen de Servicio Civil, podrán optar por ella o por cualquier otra mediante el respectivo concurso interno, siempre que cumplan los requisitos establecidos en el Manual Descriptivo de Clases y hayan obtenido como mínimo "Muy bueno" en la calificación anual.
+Las personas nombradas quedarán sometidas al período de prueba y adquirirán la condición de servidores regulares, desde el mismo día en que iniciaron sus labores.
+Cuando las personas nombradas sean servidores regulares o de confianza, protegidos o no por el Servicio Civil, gozarán de permiso en sus puestos mientras dure su período de prueba.
+Los empleados de confianza con más de dos años de laborar en la Asamblea Legislativa, tendrán derecho a participar en los concursos internos que se efectúen."
+Rige a partir de su publicación.
+Presidencia de la República.—San José, a los treinta días del mes de julio del dos mil tres.
+Ejecútese y publíquese
