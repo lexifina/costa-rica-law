@@ -1,4 +1,5 @@
 Artículo 3°-Los contratos de compraventa de bananos que la Compañía Bananera de Costa Rica otorga a particulares tanto en la zona del Atlántico como en la del Pacífico, contendrán la estipulación de que la Compañía retendrá hasta un uno por ciento del valor de la fruta que reciba, para cubrir los gastos de hospitalización de los trabajadores en esa industria. Las sumas retenidas serán depositadas por la Compañía, quincenalmente, en la Administración de Rentas Públicas, en cuenta separada para cada zona, y de esas sumas sólo podrá disponer la Secretaría de Hacienda para el pago del costo de la hospitalización de los enfermos de la zona respectiva a los hospitales que les presten su asistencia.
+(Nota de Sinalevi: De conformidad con el artículo 5° de la ley N° 23 del 24 de noviembre de 1936, se estableció lo siguiente: “Artículo 5°-Queda en esta forma modificado el artículo 3° de la ley N° 30 de 10 de diciembre de 1934.”)
 Casa Presidencial, San José, a los diez días del mes de diciembre de mil novecientos treinta y cuatro.
 Compañía Bananera de Costa Rica
 Limón, 26 de setiembre de 1934.
