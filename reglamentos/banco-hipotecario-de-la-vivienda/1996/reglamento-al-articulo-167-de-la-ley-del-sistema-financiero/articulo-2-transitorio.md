@@ -1,0 +1,1 @@
+Transitorio II.-Los beneficiarios de créditos actualmente vigentes, pueden solicitar a las Entidades Autorizadas que se les traslade a este sistema. Las Entidades Autorizadas realizarán el estudio financiero correspondiente para determinar si tal solicitud procede.
