@@ -1,0 +1,1 @@
+Artículo 4°-El juzgamiento de las infracciones que se produzcan a lo que aquí se dispone, incumbe a los Jefes Políticos y Agentes Principales de Policía Judicial, quienes tramitarán las respectivas denuncias con arreglo a lo dispuesto en materia de policía por el Código de Procedimientos Penales.

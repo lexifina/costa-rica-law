@@ -1,0 +1,2 @@
+Artículo 5°-Las infracciones antes citadas se penarán, como lo indica la respectiva ley, por la primera vez, con multa de cien a doscientos colones; por la segunda, con multa de doscientos a trescientos colones, y por la tercera o más, de trescientos a quinientos colones.
+La multa dicha será impuesta al fabricante, comerciante o expendedor en cuyo poder se hubiere encontrado el producto que causa la infracción.

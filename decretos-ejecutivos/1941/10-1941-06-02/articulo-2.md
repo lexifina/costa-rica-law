@@ -1,0 +1,1 @@
+Artículo 2°-Quedan terminantemente prohibidas, la elaboración y venta de productos tostados, o tostados y molidos, destinados a preparar bebidas de consumo público, en cuya composición o mezcla entre el café, y que por su apariencia puedan venderse o confundirse con éste.
