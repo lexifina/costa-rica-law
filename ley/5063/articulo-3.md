@@ -1,1 +1,0 @@
-Artículo 3º.- Las funciones de regente para las casas comerciales que importen o distribuyan maquinaria agrícola, a que se refiere el final del artículo 9º de la Ley Orgánica del Colegio de Ingenieros Agrónomos, también podrán ser desempeñados pro un miembro asociado con especialización en la materia o por un miembro afiliado al Colegio de Ingenieros Agrónomos.

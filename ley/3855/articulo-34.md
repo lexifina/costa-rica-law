@@ -1,1 +1,0 @@
-Artículo 34.- La Junta Administrativa estará formada por la Junta Directiva, con la asistencia obligada de por lo menos uno de los dos vocales que actúan como contralores del Fondo de Mutualidad y Subsidios.

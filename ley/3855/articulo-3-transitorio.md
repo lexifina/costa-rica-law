@@ -1,1 +1,0 @@
-Transitorio III.- Las personas que al entrar en vigencia esta ley, hayan sido designadas como peritos por algunas de las instituciones y oficinas mencionadas en el artículo 10, continuarán su labor hasta terminarla, aunque no ostenten el título de ingeniero agrónomo, y sus avalúos o informes tendrán pleno valor legal.

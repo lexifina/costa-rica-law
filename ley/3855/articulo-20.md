@@ -1,1 +1,0 @@
-Artículo 20.- Los miembros de la Junta Directiva durarán en sus funciones dos años podrán ser reelectos. Un año se renovarán el Presidente, el Prosecretario, el Fiscal y los Vocales uno y tres, u el siguiente año el Vicepresidente, el Secretarios, el Tesorero y el Segundo Vocal.
