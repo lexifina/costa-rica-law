@@ -1,0 +1,1 @@
+Art 2° Se prohíbe a los carreteros llevar el chuzo atravesado, de modo que puedan embarazar el tránsito de las demás personas. Se le prohíbe igualmente portar arma de fuego de cualquier clase que sea.
