@@ -1,0 +1,86 @@
+El Consejo Nacional de Supervisión del Sistema Financiero mediante articulo 11 del acta de la sesión 375-2003, celebrada el 10 de junio del 2003.
+considerando que:
+a) En uso de las facultades otorgadas mediante el articulo 128 de la Ley Orgánica del Banco Central de Costa Rica. Ley 7558, el entonces Consejo Directivo de la SUGEF emitió, mediante el articulo 10 del acta de la sesión 51-97, celebrada el 22 de abril de 1997. la normativa que establecía parte del contenido que debía tener el Boletín Financiero, la Lista de Intermediarios Financieros y la Memoria Anual.
+b) En razón de que el articulo 90 de la Ley de Protección al Trabajador, Ley 7983 derogó el articulo 128 de la Ley Orgánica del Banco Central de Costa Rica. Ley 7558, este órgano Colegiado, mediante el articulo 10 del acta de la sesión 162-2000. celebrada el 11 de julio del 2000. y los articules 5 y 6 de las actas de las sesiones 207-2001 y 208-2001. respectivamente, celebradas el 12 y 14 de febrero del 2001 en su orden, dejó manifiesta la necesidad de que la SUGEF continuara brindando al público la información y los datos que hasta la fecha se habían puesto a su disposición, por razones de transparencia, mínimo grado de información general y en cumplimiento de los principios emitidos por el Comité de Basilea.
+c) En el inciso i (del articulo 131 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558. reformado mediante la Ley de Protección al Trabajador, Ley 7983 del 16 de febrero del 2000, se establece, dentro de las (unciones del Superintendente General, que: "En forma trimestral, el Superintendente someterá a dicho Consejo un informe completo, en el cual calificará la situación económica y financiera de las entidades fiscalizadas, con base en los parámetros previamente definidos por el Consejo. En este informe, el Superintendente deberá indicar, explícitamente cuales entidades, en su criterio, requieren mayor atención.". (El subrayado no es del original).
+d) Al tenor de la disposición anterior, este Consejo, mediante el articulo 9 del acta de la sesión 348-2003, celebrada el 9 de enero del 2003, giró instrucciones referentes a la estructura, contenido y análisis que debe contener el informe referido en el punto inmediato anterior.
+e) Mediante el artículo 17, numeral 2, del acta de la sesión 105-99, celebrada el 19 de julio de 1999, este Consejo acordó que la Memoria Anual debía incluir un capitulo relacionado con la estrategia de desarrollo aplicada por el ente regulador, en el periodo correspondiente.
+f) Conforme lo dispuesto mediante el inciso 1) del articulo 171 de la Ley Reguladora del Mercado de Valores. Ley 7732. Los Superintendentes deben someter a la aprobación del CONASSIF un informe anual sobre el desempeño de los sujetos supervisados.
+g) Para los propósitos de este Consejo y para el caso de la SUGEF. El informe anual mencionado en el considerando inmediato anterior debe reflejar la situación económica y financiera de las entidades supervisadas. con base en los parámetros que para tales efectos ha definido este órgano, e identificar explícitamente aquellas entidades que. a criterio del Superintendente General de Entidades Financieras, requieren o han requerido durante el año que se informa, mayor atención.
+h) El "informe trimestral" que el Superintendente debe someter a este Consejo, en cumplimiento del inciso i) del articulo 131 de la Ley Orgánica del Banco Central de Costa Rica, reúne todas las condiciones requeridas en el informe anual sobre el desempeño de las entidades supervisadas mencionado arriba en el punto f) y definido en el punto g). en relación con las entidades que. a criterio del Superintendente, requieren o han requerido mayor atención.
+i) En línea con todo lo expuesto y en la medida que no atente contra lo estatuido en el Articulo 132 de la Ley Orgánica del Banco Central de Costa Rica. Ley 7558. la normativa sobre publicaciones, emitida a través del tiempo para dotar a los usuarios de una información oportuna, confiable y transparente acerca del desempeño de las entidades supervisadas, debe estar más acorde con las expectativas y realidad actual de nuestro medio y favorecer de mejor manera la toma de decisiones por parte del público en general.
+acordó:
+1. Sobre la normativa y disposiciones emitidas en el pasado
+Derogar las disposiciones vigentes adoptadas por el Consejo Directivo de la Superintendencia General de Entidades Financieras y el Consejo Nacional de Supervisión del Sistema Financiero, mediante los acuerdos tomados en:
+a) el articulo 10 del acta de la sesión 51 -97, celebrada el 22 de abril del 1997;
+b) el articulo 10 del acta de la sesión 162-2000. celebrada el 11 de julio del 2000:
+c) el Numeral 1 del articulo 9 del acta de la sesión 348-2003, celebrada el 9 de enero del 2003.
+2. Sobre el Boletín Financiero
+2.1 Definir "Boletín Financiero" como la publicación cuyo propósito es el de presentar datos generales de las entidades (organización y desempeño financiero) durante cada trimestre, analizar los hechos más relevantes acaecidos en el sistema financiero costarricense, que permitan que las tendencias y riesgos macroeconómicos que pueden afectar la estabilidad de ese sistema, e informar al público en general sobre la forma en la que las diversas entidades están administrando su exposición a los diferentes riesgos existentes, para efectos de la toma de decisiones relacionadas con crédito e inversión.
+2.2 Declarar de interés público, por unanimidad, según lo estatuido en el literal d) del articulo 132 de la Ley Orgánica del Banco Central de Costa Rica. Ley 7558, el Boletín Financiero, cuyo contenido será el siguiente;
+a) Presentación.
+b) Autoridades de la SUGEF y el CONASSIF.
+c) Lista de las entidades supervisadas.
+d) Nómina de los directores y apoderados de cada una de las entidades supervisadas (solo en los boletines de junio y diciembre de cada ano).
+e) Lista de grupos financieros inscritos. Incluye la información requerida mediante las disposiciones establecidas en los artículos 5 y 6 de las actas de las sesiones 207-2001 y 208-2001. en ese mismo orden.
+celebradas el 12 y 14 de febrero del 2001. respectivamente.
+f) Evolución del sistema financiero.
+g) Normativa emitida durante el trimestre.
+h) Sanciones y amonestaciones (para los boletines de junio y diciembre de cada año) impuestas a las entidades supervisadas por la SUGEF v a los grupos financieros por el CONASSIF. la SUGEF o "el BCCR-en este último caso, cuando para la sanción medió un pronunciamiento de la SUGEF.
+i) Evolución de las principales variables del sistema financiero nacional.
+j) Información por sectores (Balance de Situación y Estado de Resultados en series de cinco años. indicándose por nota cuando no hay comparabilidad en la serie por existir bases contables diferentes o porque la información numérica es absoluta y no está ajustada o actualizada entre fechas).
+k) Información financiera de las entidades (Balance de Situación y Estado de Resultados en series de cinco años, indicándose por nota cuando no hay comparabilidad en la serie por ser bases contables diferentes o porque la información numérica es absoluta y no está ajustada o actualizada entre fechas)
+I) Indicadores financieros.
+m) Estado del servicio de las colocaciones.
+n) Glosario.
+2.3 En consecuencia con lo dispuesto en el punto anterior, autorizar y solicitar al Superintendente General de Entidades Financieras que realice una publicación trimestral, bajo el titulo "Boletín Financiero", con corte al cierre de los meses de marzo, junio, setiembre y diciembre cada año. donde se de a conocer al público en general la información declarada de interés público.
+2.4 Para el cabal cumplimiento de lo dispuesto en el punto 2.2.h) anterior, solicitar al Secretario de este Consejo que:
+a) envié copia a la SUGEF de todas las comunicaciones que se realicen a las entidades supervisadas por la SLGEF y a los grupos financieros, para la aplicación de amonestaciones o sanciones impuestas por el CONASSIF y que,
+b) realice las gestiones pertinentes ante las autoridades del Banco Central de Costa Rica, para que ese ente remita a la SUGEF, durante los primeros 15 días hábiles posteriores al cierre de junio y diciembre de cada año. Un informe sobre las sanciones y amonestaciones, impuestas por el ente emisor a las entidades supervisadas por la SUGEF y los grupos financieros y que se hayan sustentado en pronunciamientos de la SUGEF.
+2.5 Conceder a la SUGEF para que presente y publique el Boletín Financiero, un plazo de 30 días hábiles posteriores a la fecha máxima otorgada a los supervisados para que presenten a la SUGEF la información financiera correspondiente a marzo, junio, setiembre y diciembre de cada año.
+3. Sobre la Memoria Anual
+3.1 Definir "Memoria Anual" como el compendio de los sucesos más relevantes que acontecieron en la SUGEF durante un año natural en materia administrativa, que sin a, además, como instrumento de comparación de desempeño (benchmarking) entre instituciones y entre diferentes períodos, en relación con el alcance de los objetivos definidos bajo un esquema de planificación técnica, táctica y estratégica (de corto, mediano y largo plazo).
+3.2 Solicitar a la Superintendencia General de Entidades Financieras que estructure la Memoria Anual, la que debe ser aprobada por este órgano colegiado, según el articulo 171 literal I) de la Ley Reguladora del Mercado de Valores, Ley 7732. conforme al siguiente contenido:
+a) Resumen ejecutivo.
+b) Evolución y situación del sistema financiero costarricense.
+c) Grupos financieros.
+d) Logros.
+c) Estrategia de desarrollo institucional (retomándose lo dispuesto en el Articulo 17, numeral 2, del Acta de la sesión 105-99, celebrada el 19 de julio de 1999).
+f) Datos relevantes de la SUGEF.
+g) Normativa emitida en el período.
+3.3 Facultar al Superintendente General de Entidades Financiera para que, en octubre de cada año. indague ante la Presidencia del CONASSIF si se requiere la inclusión de algún tópico especifico adicional en la Memoria.
+3.4 Conceder a la SUGEF un plazo de 90 días hábiles posteriores al 31 de diciembre de cada año, para que someta la Memoria Anual a la aprobación del CONASSIF.
+4. Sobre el Informe trimestral
+4.1 Definir "Informe trimestral" como el documento de carácter confidencial denominado "Informe financiero de sujetos supervisados por la SUGEF". que muestra los principales acontecimientos acaecidos en los trimestres con corte a marzo, junio, setiembre y diciembre de cada año, relacionados con la situación económica y financiera de las entidades supervisadas, con base en los parámetros que para tales efectos ha definido el CONASSIF, y en el que el Superintendente General de Entidades Financieras indica, explícitamente, las entidades que. en su criterio, requieren mayor atención.
+4.2 Requerir al Superintendente General de Entidades Financieras que someta dicho Informe trimestral a este Consejo, conforme el mandato del inciso i), articulo 131 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558.
+4.3 Este informe trimestral debe incluir, al menos, la siguiente información:
+a) Hechos relevantes de las entidades del sistema financiero nacional.
+b) Evolución del sistema financiero nacional.
+c) Sector de bancos comerciales del Estado, entidades creadas por leyes especiales y mutuales de ahorro y préstamo.
+d) Sector de bancos privados y grupos financieros autorizados.
+e) Sector de empresas financieras no bancarias y cooperativas.
+f) Un resumen ejecutivo que haga referencia a aquellos casos que requieren un seguimiento especial por parte de la SUGEF. detallándose el problema que enfrentaba el sujeto supervisado. las medidas adoptadas por dicho ente supervisado para solventar la crisis, el tipo de seguimiento dado por la SUGEF y el plazo en que se esperaría solucionar la situación respectiva, todo ello con la opinión del Superintendente General de Entidades Financieras.
+g) Un cuadro resumen comparativo trimestral de los últimos cuatro años para cada entidad supervisada, que incluya. entre otras variables, el comportamiento de la morosidad, la cartera global, los gastos administrativos y la utilidad bruta de operación, de manera que pueda analizarse la tendencia mostrada por las entidades supervisadas y su situación con respecto a periodos anteriores.
+4.4 En los informes con corte al 31 de diciembre de cada año, además de lo indicado anteriormente, incluir un resumen de las entidades supervisadas por la SUGEF que mantuvieron una evaluación de carácter "normal", para tener una apreciación anual de todas las entidades supervisadas por la SL'GEF.
+4.5 Para todos los efectos, mantener la información contenida en este informe dentro de los rangos de discreción establecidos en el articulo 132 de la Ley Orgánica del Banco Central de Costa Rica. Ley 7558. y. por tanto, solo mediante una declaratoria de interés público de este Consejo, en estricto apego a lo estatuido en la legislación vigente, se podrá hacer de conocimiento público.
+4.6 Conceder a la SUGEF, para que someta a conocimiento del CONASSIF el "Informe financiero de los sujetos supervisados por la SUGEF". un plazo de 20 días hábiles posteriores a la fecha máxima otorgada a los supervisados para que presenten a la SUGEF la información financiera correspondiente a marzo, junio, setiembre y diciembre de cada año.
+5. Sobre el Informe anual
+5.1 Definir "Informe anual" como el informe sobre el desempeño de todas las entidades supervisadas, entendido dicho desempeño como el resultado de la evaluación de la situación económica y financiera de las entidades supervisadas. con base en los parámetros que para tales efectos ha definido el CONASSIF.
+5.2 Para los efectos del "Informe Anual" que el Superintendente General de Entidades Financieras debe rendir ante el Consejo Nacional de Supervisión del Sistema Financiero, de conformidad con lo dispuesto en el inciso 1) del Artículo 171 de la Ley Reguladora del Mercado de Valores. Ley 7732, y de acuerdo con lo indicado en los puntos g) y h) de los i Considerandos que motivan lo acordado en este acto, dar por el cumplido dicho mandato con la observancia de todo lo dispuesto en el punto 4 anterior.
+53 Instruir al Superintendente para que en el "Informe financiero de los sujetos supervisados por la SUGEF", con corte al mes de diciembre de cada año, se incluya un comentario sobre el desempeño de los últimos doce meses, para cada una de las entidades supervisadas por la SUGEF que mantuvieron una
+evaluación de carácter "normal", a fin de tener una apreciación de todas las entidades.
+5.4 Aplicar también al Informe Anual la disposición establecida en el punto 4.5 anterior, en cuanto al trato de la información ahí contenida.
+5.5 Conceder a la SUGEF para que presente a conocimiento del CONASSIF el "Informe anual", conforme se indica en el punto 4.6 anterior, un plazo - para todos los efectos improrrogable - de 20 días hábiles posteriores a la fecha de presentación de la información que las entidades supervisadas deben remitir a la SUGEF.
+6. Sobre la lista de intermediarios financieros
+6.1 Definir la "Lista de intermediarios financieros" como la publicación mensual que busca cumplir con dos objetivos fundamentales en materia de supervisión financiera: transparencia y estabilidad, pues resulta imperativo informar oportunamente a todos los agentes económicos y al público en general sobre las entidades que se encuentran debidamente autorizadas para realizar intermediación financiera en el sistema financiero costarricense, con el fin de que puedan orientar mejor sus decisiones de crédito e inversión.
+62 Autorizar e instruir a la SUGEF para que publique mensualmente la lista de intermediarios financieros supervisados por la SUGEF, al menos en dos periódicos de circulación nacional.
+6.3 Incluir la siguiente información en la lista de entidades financieras que se publica mensualmente:
+a) Entidades inscritas en la SUGEF (bancos públicos. bancos creados por leyes especiales, bancos privados y cooperativos, empresas financieras no bancarias. organizaciones cooperativas de ahorro y crédito, entidades financieras autorizadas del sistema financiero nacional para la vivienda, otras entidades financieras).
+b) Entidades del mercado cambiario.
+c) Grupos financieros (supervisados por la SUGEF, SUGEVAL Y SUPEN).
+d) Lo dispuesto en el Acuerdo SUGEF 896.
+6.4 Encargar a la SUGEF el trámite de esta publicación dentro de los primeros 15 días naturales de cada mes.
+7. Facultar al Superintendente General de Entidades Financieras para que determine el medio idóneo para suministrar la información de carácter general y declarada de interés público por el CONASSIF en este acuerdo, que sea de su competencia.
+8. Facultar al Superintendente General de Entidades Financieras para que modifique el formato de la información referida en este acuerdo, siempre que sea aquella declarada de interés público, incluyendo los plazos de divulgación, cuando las circunstancias así lo demanden, debiéndose informar a este Consejo Nacional del cambio operado, en la sesión inmediatamente posterior a la decisión tomada.
+9. En lo no contemplado en este Acuerdo, entender como derogadas cualesquiera otras disposiciones emitidas con anterioridad que contradigan las presentes disposiciones.
+10. Las anteriores disposiciones rigen a partir del 18 de junio del 2003.
