@@ -1,0 +1,1 @@
+Artículo 5°—La planilla para el pago de zonaje a los servidores de MIDEPLAN será elaborada por el Departamento Financiero Contable bajo la supervisión de la Dirección Administrativa y previa autorización de la Dirección Superior.

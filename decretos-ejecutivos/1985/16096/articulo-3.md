@@ -1,0 +1,1 @@
+Artículo 3°—La fijación del monto que se pagará por concepto de zonaje será porcentual, considerando para tal efecto los medios y riesgos de transporte, clima, salubridad, facilidades y costo local de vida, posibilidades de educación y atención médica, sujeto a las regulaciones que la Contraloría General de la República fije, para el pago de zonaje a los servidores públicos.

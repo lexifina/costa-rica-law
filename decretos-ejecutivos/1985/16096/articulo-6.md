@@ -1,0 +1,1 @@
+Artículo 6°—En toda acción de personal deberá indicarse el monto del Z9naje que proceda reconocer, el domicilio legal del servidor, y el lugar o circunscripción territorial donde ha sido destacado a prestar sus servicios o al cual se le traslada, en su caso.

@@ -1,0 +1,1 @@
+Artículo 10.—Si al servidor a quien se le ha reconocido el beneficio de zonaje, se le traslada de su zona de operación actual a otra, en la cual el mismo beneficio sea también procedente, en forma automática se cambiará el monto correspondiente al de la nueva zona asignada.

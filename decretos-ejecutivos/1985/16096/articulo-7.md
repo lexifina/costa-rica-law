@@ -1,0 +1,1 @@
+Artículo 7°—Cuando a un servidor que no devengue zonaje se le trasladare a prestar servicios a un lugar o circunscripción territorial diferente a su domicilio legal, por un lapso que no exceda de treinta días, se le pagará la compensación correspondiente a la “Tabla de Viáticos” vigente.

@@ -1,0 +1,1 @@
+Artículo 11.—Cuando proceda la suspensión del pago de zonaje, de conformidad con lo previsto en el presente Reglamento, el servidor no podrá alegar derechos adquiridos, en virtud de que el zonaje no constituye para MIDEPLAN una prestación obligatoria e invariable, y que el mismo se fundamenta en circunstancias especiales, que al variar, hacen insubsistente la causa de su pago.

@@ -1,0 +1,1 @@
+Artículo 4°—El pago de zonaje e inclusión del nombre de un servidor en la planilla respectiva, no implica obligatoriedad alguna para MIDEPLAN de mantenerlo en determinado lugar o circunscripción territorial.
