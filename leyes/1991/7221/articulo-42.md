@@ -1,0 +1,1 @@
+ARTICULO 42.- La instalación y juramentación de la Junta Directiva se hará el mismo día de su elección. La publicación de la forma en que queda integrada, se hará en el Diario Oficial dentro de los quince días siguientes a su elección.

@@ -1,0 +1,4 @@
+CAPITULO II
+De los Miembros
+ARTICULO 3.- Para efectos de esta Ley, se entiende por Ciencias Agropecuarias las actividades científicas y técnicas vinculadas y relacionadas profesionalmente con el agro, las cuales se realizan antes, durante y después del proceso productivo agrícola y pecuario y que tienen como objetivo promover y lograr el fomento y desarrollo del sector agropecuario, mediante el uso óptimo, racional y eficiente de los recursos de capital, de tierra, de mano de obra y de administración.
+Este proceso comprende las fases de investigación, de estudio, de planeamiento, de inversión, de producción, de agroindustria y de mercadeo para propiciar el fomento y el desarrollo de las actividades del agro, sin que se ocasione perjuicio al ambiente; para que se mantenga y se fortalezca el balance y el equilibrio naturales y para que se evite el deterioro ecológico; todo ello en beneficio del País y de sus habitantes.

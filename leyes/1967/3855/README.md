@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Ingenieros Agrónomos
 
-Ley N° 3855 del 1967-04-06. SINALEVI, ficha 6799: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6799&param2=106109&param3=1>.
+Ley N° 3855 del 1967-04-06. SINALEVI, ficha 6799: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=6799&param2=106110&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1967-04-06 | Ley 3855 | 1967-04-06 |
 | 2 de 3 | 1981-09-18 | Ley 6662 | 1981-09-18 |
+| 3 de 3 | 1991-04-23 | Ley 7221 | 1991-04-06 |

@@ -1,0 +1,1 @@
+ARTICULO 68.- La Asamblea General queda facultada para suprimir o para modificar el régimen de auxilio y protección económica y para crear, en su sustitución, otro que, según su criterio, venga a proporcionar mayor protección a sus miembros.

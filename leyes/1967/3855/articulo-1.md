@@ -1,4 +1,6 @@
+(Derogado)
 N° 3855
+(Esta ley fue derogada por el artículo 72 de la Ley Orgánica del Colegio de Ingenieros Agrónomos, aprobada mediante ley N° 7221 del 6 de abril de 1991)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 Decreta:
 La Siguiente:

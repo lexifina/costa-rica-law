@@ -1,0 +1,1 @@
+ARTICULO 59.- La expulsión de que habla el artículo anterior sólo se impondrá cuando haya acuerdo unánime del Tribunal de Honor; sobre esta resolución cabrá el recurso de apelación ante la Asamblea General.

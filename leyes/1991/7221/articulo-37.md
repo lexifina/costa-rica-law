@@ -1,0 +1,1 @@
+ARTICULO 37.- La Asamblea Representativa está integrada por veinticinco miembros colegiados con el grado académico de licenciado o con un grado superior a éste; por diez colegiados con el grado de bachiller universitario y por cinco profesionales parauniversitarios.

@@ -1,0 +1,1 @@
+ARTICULO 31.- La convocatoria para cualquier Asamblea General deberá publicarse en el Diario Oficial y en uno de los diarios de mayor circulación del país, debiendo existir al menos cinco días hábiles entre las publicaciones y el día señalado para la celebración de la Asamblea.

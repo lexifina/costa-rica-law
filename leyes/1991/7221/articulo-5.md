@@ -1,0 +1,1 @@
+ARTICULO 5.- Son miembros ordinarios del Colegio de Ingenieros Agrónomos, los profesionales en Ciencias Agropecuarias con grado otorgado o reconocido por una institución nacional de enseñanza superior de nivel universitario, registrado conforme a las disposiciones legales sobre la materia y los graduados en la Escuela Nacional de Agricultura.

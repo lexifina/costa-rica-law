@@ -1,0 +1,1 @@
+ARTICULO 20.- Es obligatorio, para los profesionales en Ciencias Agropecuarias, que actúen como profesores en las instituciones de enseñanza superior, estar incorporados al Colegio de Ingenieros Agrónomos.
