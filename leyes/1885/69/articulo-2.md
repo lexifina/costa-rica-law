@@ -1,0 +1,1 @@
+Art. 2°-Para que la exención tenga lugar, han de presentarse á la Secretaría de Hacienda documentos que comprueben suficientemente estos extremos: a). que las maderas estaban listas para la exportación el 30 de agosto último; b) que se cortaron para dar cumplimiento á contrata de fecha anterior.
