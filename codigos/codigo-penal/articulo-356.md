@@ -1,11 +1,4 @@
 Malversación
-ARTÍCULO 356.- Será reprimido con treinta a noventa días multa, el
-funcionario pública que diere a los caudales o efectos que administre una
-aplicación diferente a aquella a que estuvieren destinados. Si de ello
-resultara daño o entorpecimiento del servicio, la pena se aumentará en un
-tercio.
-(Así reformado por el artículo 1º de la ley Nº 6726 de 10 de marzo de
-1982).
-(Así modificada la numeración de este artículo por el numeral 185,
-inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó
-del 354 al 356)
+Artículo 356.—Malversación. Serán reprimidos con prisión de uno a ocho años, el funcionario público, los particulares y los gerentes, administradores o apoderados de las personas jurídicas privadas, beneficiarios, subvencionados, donatarios o concesionarios que den a los caudales, bienes, servicios o fondos que administren, custodien o exploten por cualquier título o modalidad de gestión, una aplicación diferente de aquella a la que estén destinados. Si de ello resulta daño o entorpecimiento del servicio, la pena se aumentará en un tercio.
+(Así reformado por el artículo 64 de la Ley N° 8422 Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
+(Así modificada la numeración de este artículo por el numeral 185, inciso a), de la ley No.7732 de 17 de diciembre de 1997, que lo traspasó del 354 al 356)
