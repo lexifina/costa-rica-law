@@ -1,0 +1,1 @@
+Artículo 26.—Los acuerdos de Junta Directiva que no se refieran a asuntos del orden del día, se tomarán a base de iniciativas o mociones, escritas o verbales, presentadas por los miembros proponentes al menos con tres días de antelación, salvo casos de urgencia.

@@ -1,0 +1,1 @@
+Artículo 10.—Las funciones, deberes y atribuciones del Auditor, se regularán en un reglamento específico dictado por la Junta Directiva, la cual procurará mantenerlo al día a fin de que sus disposiciones se ajusten a la mejor eficiencia administrativa.

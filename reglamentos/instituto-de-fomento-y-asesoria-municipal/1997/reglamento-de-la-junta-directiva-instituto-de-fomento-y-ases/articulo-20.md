@@ -1,0 +1,1 @@
+Artículo 20.—Al Director que no asistiere a una sesión, únicamente ^e le reconocerá dieta si la ausencia se debiere a enfermedad debidamente comprobada o comisión acordada por la misma junta, acorde con las funciones y cometidos del IFAM.

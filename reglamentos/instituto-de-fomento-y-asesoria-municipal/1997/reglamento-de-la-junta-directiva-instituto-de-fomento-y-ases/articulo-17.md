@@ -1,0 +1,1 @@
+Artículo 17.—Se requerirá unanimidad para declarar la urgencia de un asunto que no figure en la orden del día. siempre que como mínimo estén presentes cinco directores, a efecto de entrar a conocerlo.

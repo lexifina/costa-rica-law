@@ -1,0 +1,1 @@
+Artículo 31.—Los acuerdos tomados por la Junta quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así por un mínimo de cinco votos, de conformidad con el requisito establecido al efecto.

@@ -1,0 +1,1 @@
+Artículo 21.—Las sesiones de la Junta deberán iniciarse dentro de los veinticinco minutos siguientes a la hora señalada al efecto conforme al reloj de la Institución. Pasados los veinticinco minutos indicados, si no hubiere quorum, se dejará constancia en el libro de actas consignando el nombre de los Directores presentes, los cuales tampoco devengaran dieta.

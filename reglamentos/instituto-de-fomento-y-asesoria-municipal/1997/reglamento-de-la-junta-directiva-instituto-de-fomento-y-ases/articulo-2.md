@@ -1,0 +1,1 @@
+Artículo 2°—Presidirá la Junta Directiva el Presidente Ejecutivo y será sustituido en sus ausencias temporales por un Vicepresidente elegido de su seno, en la primera sesión ordinaria del mes de junio de cada año, que durará un año en sus funciones, pudiendo ser reelecto.
