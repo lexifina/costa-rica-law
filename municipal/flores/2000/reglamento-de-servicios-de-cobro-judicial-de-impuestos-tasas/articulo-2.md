@@ -1,0 +1,1 @@
+Artículo 2°—Los profesionales debidamente contratados, devengarán honorarios profesionales sobre las cuentas que le sean asignadas. Estos honorarios así como los gastos que demande la gestión cobradora, serán cancelados por los contribuyentes morosos, titulares de las cuentas en cobro.
