@@ -1,0 +1,1 @@
+ARTICULO 107.- En ambos casos, el Ministerio de Relaciones Exteriores y Culto de Costa Rica, previa recomendación de la Comisión Calificadora, procederá de acuerdo, y así lo comunicará al Jefe de Misión y al funcionario honorario.

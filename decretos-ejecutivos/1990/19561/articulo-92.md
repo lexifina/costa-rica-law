@@ -1,0 +1,1 @@
+ARTICULO 92.- La precedencia de los funcionarios del Ministerio la determina la Dirección de Protocolo, para lo cual tomará en cuenta el rango y la antigüedad }en el Servicio de cada uno. Protocolo mantendrá siempre una lista actualizada de dicha precedencia y la hará respetar en todo acto o ceremonia oficial en que se encuentren presentes los funcionarios en mención.

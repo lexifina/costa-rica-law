@@ -1,0 +1,1 @@
+ARTICULO 130.- En relación con el Artículo precedente, se dará preferencia a la integración y coordinación del sistema de archivos, correspondencia entrante y saliente, Base de Datos y Centro de Cómputo. Asimismo, se instruirá con urgencia al personal en materia de registro, numeración y manejo de la correspondencia, así como su relación con el Centro de Cómputo.

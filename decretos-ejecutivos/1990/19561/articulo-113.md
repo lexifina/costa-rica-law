@@ -1,0 +1,1 @@
+ARTICULO 113.- Además de las estipulaciones aquí reglamentadas, se incoporarán en lo conducente dentro de las disposiciones para regular la Carrera Honoraria las contempladas en el Reglamento del Estatuto del Servicio Exterior de la República y otros decretos afines, aunque ello no implica incorporación de los funcionarios honorarios a la Carrera del Servicio Exterior remunerada.

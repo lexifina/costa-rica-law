@@ -1,0 +1,1 @@
+ARTICULO 38.- Para cumplir con tales funciones la Dirección se divide en varias Subdirecciones, bajo el cuidado del Director, y a cargo de un Subdirector cada una, denominadas y descritas del modo siguiente.

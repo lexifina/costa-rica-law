@@ -1,0 +1,1 @@
+ARTICULO 119.- El procedimiento consular empleado en las misiones costarricenses será el mismo que las leyes, convenciones y práctica internacional determinen, sin perjuicio de lo que se establezca o sea establecido en manuales nacionales de procedimiento consular.

@@ -1,0 +1,1 @@
+ARTICULO 129.- A partir de la vigencia de este Decreto el Ministerio de Relaciones Exteriores y Culto iniciará las diligencias necesarias con el fin de reorganizar e instalar la estructura aquí decretada en forma operante, para lo cual el Viceministro de Relaciones Exteriores y Culto tomará las providencias al efecto.

@@ -1,0 +1,1 @@
+ARTICULO 106.- En el caso que el funcionario honorario sea declarado persona "non-grata" o que el gobierno del Estado receptor pida al acreditante su retiro, el Jefe de Misión lo comunicará así al Ministerio costarricense.

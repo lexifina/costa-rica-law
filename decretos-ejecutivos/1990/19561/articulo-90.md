@@ -1,0 +1,1 @@
+ARTICULO 90.- Los Asesores remunerados tendrán categoría de Primeros Secretarios y podrán acceder a otra categoría mediante ascenso o tiempo de servicio, debiendo permanecer en cada categoría el mínimo de años establecido en el reglamento de la Carrera.

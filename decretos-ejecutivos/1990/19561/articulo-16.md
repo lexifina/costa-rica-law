@@ -1,0 +1,1 @@
+ARTICULO 16.- Para efectos de la precedencia diplomática y de acuerdo con lo estipulado por la Ley Orgánica del Ministerio, el Director General tendrá rango equivalente a la tercera jerarquía del Ministerio.

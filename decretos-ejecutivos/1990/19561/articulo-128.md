@@ -1,0 +1,2 @@
+ARTICULO 128.- El Ministerio establecerá la necesaria coordinación entre la Comisión Calificadora del Servicio Exterior, el Consejo de Administración y la Dirección General del Servicio Civil con el fin de
+lograr un método eficaz de selección del personal de planta del Ministerio que al mismo tiempo formará parte de la carrera del Servicio Exterior de la República.

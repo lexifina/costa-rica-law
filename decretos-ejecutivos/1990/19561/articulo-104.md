@@ -1,0 +1,1 @@
+ARTICULO 104.- Un Jefe de Misión no puede nombrar ni destituir a un funcionario honorario, acción que corresponde exclusivamente al Ministerio de Relaciones Exteriores y Culto, previo estudio y consideración de la Comisión Calificadora del Servicio Exterior.

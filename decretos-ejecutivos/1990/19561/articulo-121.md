@@ -1,0 +1,1 @@
+ARTICULO 121.- Un nombramiento de Cónsul General puede recaer en un Consejero de Embajada, en un funcionario escogido exprofeso para el cargo, ya sea de nombramiento discrecional o de la Carrera, o en un Miembro de la Carrera Honoraria.
