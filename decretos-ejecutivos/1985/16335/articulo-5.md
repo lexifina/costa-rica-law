@@ -1,0 +1,1 @@
+Artículo 5°-Este Reglamento es de cumplimiento obligatorio para todas las personas físicas o jurídicas, y su incumplimiento acarreará las sanciones contenidas en el capítulo II de la Ley General de Salud en su artículo 381.
