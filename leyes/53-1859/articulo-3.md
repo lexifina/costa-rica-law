@@ -1,0 +1,1 @@
+Art. 3° En caso de que hubiesen fundadas sospechas de que ha introducido algun artículo de contrabando, la administracion hará que se practique registro en la bodega donde se haya depositado, para proceder, en caso de que realmente exista el contrabando, conforme á las disposiciones de la ley.
