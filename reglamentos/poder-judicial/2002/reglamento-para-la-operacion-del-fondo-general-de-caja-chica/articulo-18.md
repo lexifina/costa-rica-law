@@ -1,0 +1,1 @@
+Artículo 18.—Reintegro. El acuerdo de pago en el que se ordene el reembolso a la Caja Chica, se hará mediante transferencia de fondos de favor del Oficial Presupuesta!, cuenta corriente N° 179-1 de la Caja Chica General.

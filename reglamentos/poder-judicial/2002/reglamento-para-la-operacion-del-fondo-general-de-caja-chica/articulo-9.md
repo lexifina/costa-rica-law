@@ -1,0 +1,1 @@
+Artículo 9°—Contenido presupuestario. Los pagos por medio de Caja Chica, deben contar con su correspondiente contenido presupuestario, y será responsabilidad del Oficial Presupuestal o el funcionario que haga las veces de éste, velar por el cumplimiento de esta disposición.

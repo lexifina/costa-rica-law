@@ -1,0 +1,1 @@
+Artículo 13.—Aprobación de adelantos. Todo adelanto de dinero que se tramita por Caja Chica, deberá ser solicitado por el Jefe del Departamento o de la Dependencia respectiva, salvo aquellos que corresponden a acuerdos de Corte Plena o del Consejo Superior, previa consulta de contenido presupuestario y disponibilidad de fondos.
