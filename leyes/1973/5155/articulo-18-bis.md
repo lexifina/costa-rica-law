@@ -1,0 +1,2 @@
+Artículo 18 bis.-En una misma dependencia no podrán prestar servicio las personas que sean cónyuges o que estén en el grado de parentesco que se indica en el inciso ch) del artículo anterior, con los jefes y demás servidores del respectivo tribunal u oficina. Si esa situación llegare a presentarse por motivo de matrimonio o por alguno otro, la Corte trasladará a otra dependencia a quien corresponda, sin demérito del cargo que ocupa.
+(Así adicionado por el artículo 2° de la ley N° 6761 del 31 d emayo de 1982)
