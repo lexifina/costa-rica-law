@@ -14,3 +14,4 @@ Decreta Reestructuración Reorganización Consejo Seguridad Vial MOPT
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
 | 2 | 1996-06-11 | Decreto Ejecutivo 29959 (2001-10-17) |
+| 3 | 2001-10-17 | SINALEVI (sin norma nombrada) |

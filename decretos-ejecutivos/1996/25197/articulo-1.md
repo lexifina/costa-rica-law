@@ -1,3 +1,4 @@
+(Derogado)
 Nº 25197-MOPT
 LA SEGUNDA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA
@@ -51,11 +52,4 @@ Lo anterior conlleva una redistribución del recurso humano que permita
 a la entidad asumir un nuevo rol y una participación más proactiva en la
 formulación de políticas en el sistema de seguridad vial. Por tanto,
 Decretan:
-Artículo 1º.- Decrétase la reestructuración y/o reorganización del
-Consejo de Seguridad Vial del Ministerio de Obras Públicas y Transportes.
-Determinándose que corresponderá a dicho Consejo velar por la seguridad
-vial y el tránsito vehicular y peatonal en el país, dictando para ello
-las políticas necesarias para el desarrollo de una cultura de seguridad y
-protección vial, en la población usuaria de la red vial de nuestro país,
-sustentando su acción en enfoques de orden sostenible; formulando,
-controlando, evaluando y financiando las acciones pertinentes.
+Artículo 1º.- DEROGADO por el artículo 5 del Decreto Ejecutivo N° 29959 de 17 de octubre del 2001)
