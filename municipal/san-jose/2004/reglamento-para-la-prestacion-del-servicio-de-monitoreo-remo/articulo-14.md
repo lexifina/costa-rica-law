@@ -1,0 +1,1 @@
+Artículo 14.—El cobro del servicio lo hará la Municipalidad de San José, a cada uno de sus contratantes por mes vencido. El monto del contrato podrá ser ajustado anualmente, según varíen los costos del servicio y se modifique el número de subscriptores.

@@ -1,0 +1,1 @@
+Artículo 15.—Destino de los ingresos: Los ingresos obtenidos por este servicio, serán destinados a cubrir los gastos generados por el mismo y a garantizar el mantenimiento y la continuidad del servicio de monitoreo de alarmas y sistema electrónico de seguridad.
