@@ -1,0 +1,4 @@
+ARTÍCULO 10
+Condiciones específicas para el reconocimiento del derecho
+1°—Si la legislación de una Parte Contratante subordina la concesión de las prestaciones reguladas en este Capítulo, a la condición de que el trabajador haya estado sujeto a su legislación en el momento de producirse el hecho causante de la prestación, esta condición se considerara cumplida si en dicho momento el trabajador está asegurado en virtud de la legislación de la otra Parte, o en su defecto, cuando reciba una prestación de esa Parte causada por el propio beneficiario.
+2°—Si la legislación de una Parte Contratante exige para reconocer la prestación, que se hayan cumplido períodos de cotización en un tiempo determinado inmediatamente anterior al hecho causante de la prestación, esta condición se considerará cumplida si el interesado los acredita en el periodo inmediatamente anterior al reconocimiento de la prestación en la otra Parte.
