@@ -14,3 +14,4 @@ Reglamento de la Escuela Casa del Artísta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-11-13 | la propia norma |
+| 2 | 1989-03-16 | Decreto Ejecutivo 18913 (1989-03-16) |
