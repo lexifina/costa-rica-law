@@ -1,0 +1,2 @@
+Art. 4. Los almacenes de las fábricas proveedoras deberàn tener precisamente una sola puerta en uso, y esta estará cerrada con dos llaves diferentes, de las cuales una tendrá el guarda vigilante y la otra el dueño à mandador del establecimiento; de suerte que el uno no pueda abrir el almacen sin la cooperacion del otro (1).
+(1) (Derogado este art. por el decreto Ejecutivo núm. 19 de 29 de agosto de 1848, fué restablecido en su vigor por el núm. 15 do 30 de noviembre de 1849.
