@@ -1,4 +1,3 @@
-DECRETOS
 Nº 31605-H
 LA PRIMERA VICEPRESIDENTA
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA Y LA MINISTRA DE HACIENDA
@@ -11,7 +10,9 @@ Considerando:
 Por tanto:
 DECRETAN:
 Artículo 1º—Se actualiza el impuesto específico por cada mililitro de alcohol absoluto de la siguiente manera:
-Porcentaje de alcohol por volumen Impuesto (Colones por mililitro de alcohol absoluto)
+Porcentaje de alcohol Impuesto (Colones por mililitro
+por volumen de alcohol absoluto)
 Hasta 15% 1.47
 Más de 15% y hasta 30% 1.75
 Más de 30% 2.02
+(Derogado mediante el artículo 2° de la resolución N°. DGT-06 de las ocho horas del 2 de abril de 2004).
