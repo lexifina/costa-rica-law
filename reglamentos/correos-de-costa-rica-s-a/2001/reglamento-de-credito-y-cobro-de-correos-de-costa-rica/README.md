@@ -15,3 +15,4 @@ Reglamento de Crédito y Cobro de Correos de Costa Rica
 | --- | --- | --- |
 | 1 | 2001-10-02 | la propia norma |
 | 2 | 2002-03-04 | Reglamento 303 (2002-03-04) |
+| 3 | 2002-11-04 | Reglamento 366 (2002-11-04) |
