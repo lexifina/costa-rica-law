@@ -1,0 +1,1 @@
+Art 2° Nombrase para formar el Directorio provisional que debe dirigir los trabajos preparatorios de la instalación de la Convención Nacional, a los señores Rafael Ramírez, Presidente, Cruz Alvarado y Juan Rafael Carazo, Escrutores.
