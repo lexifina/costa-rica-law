@@ -14,3 +14,4 @@ Otorga un subsidio económico, por una única vez a aquellas y aquellos costarri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-15 | la propia norma |
+| 2 | 2002-01-22 | Decreto Ejecutivo 30134 (2002-01-22) |

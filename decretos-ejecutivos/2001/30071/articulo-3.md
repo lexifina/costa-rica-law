@@ -1,1 +1,2 @@
-Artículo 3º—Dicho subsidio económico será otorgado a 700 extractores de moluscos, por una única vez, por un monto de ¢60.000.00 (sesenta mil colones) por persona; y se otorgará con cargo a la Partida 605, Auxilio a Trabajadores, del Programa 732, Desarrollo y Seguridad Social, del Presupuesto del Ministerio de Trabajo y Seguridad Social.
+Artículo 3º—Dicho subsidio económico será otorgado a 700 extractores de moluscos, por una única vez, por un monto de ¢ 30.000,00 (treinta mil colones) por persona; y se otorgará con cargo a la Partida 605, Auxilio a Trabajadores del Programa 732, Desarrollo y Seguridad Social, del Presupuesto del Ministerio de Trabajo y Seguridad Social".
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30134 de 22 de enero del 2002)
