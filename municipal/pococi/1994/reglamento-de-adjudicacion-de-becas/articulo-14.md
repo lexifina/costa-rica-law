@@ -1,2 +1,0 @@
-Artículo XIV.—Los estudiantes que sean beneficiarios de beca, deberá participar con un número anual de 150 horas de trabajo comunal o en proyectos estudiantiles, los mismos si son labores directas en la Municipalidad supervisadas administrativamente, o en su defecto las labores estudiantiles por los Centros interesados (Comisión y Centros de Educación).
-Adjudicación de Becas, sesión ordinaria número 114, del 1° de diciembre del 1994, artículo tercero, inciso diez, acuerdo mil cincuenta.
