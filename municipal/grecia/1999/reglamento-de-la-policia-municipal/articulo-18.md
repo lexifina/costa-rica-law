@@ -1,0 +1,1 @@
+Artículo 18.-Los servidores de la Oficina de la Policía Municipal jamás aceptarán dádivas económicas, materiales o de cualquier tipo a consecuencia de los servicios que presten. Guardarán secreto absoluto o reserva de lo que conozcan en razón de su trabajo.

@@ -1,0 +1,1 @@
+Artículo 15.-Durante la prestación de sus servicios el Policía Municipal deberá mantenerse en absoluto estado de sobriedad y presentación personal; velar por el estado de conservación, tanto del vestuario como de los equipos e instrumentos que se le encomienden para su uso y o custodia, para procurar así siempre una imagen decorosa.

@@ -1,0 +1,1 @@
+Artículo 32.-La integración de estos Comités la realizará . Concejo Municipal, para lo que el Alcalde, quien de previo escuchará el criterio del respectivo Concejo de Distrito y el jefe de la Oficina de la Policía Municipal, propondrá las temas del caso.

@@ -1,0 +1,1 @@
+Artículo 16.-EI Policía Municipal evitará la comisión de delitos, faltas e infracciones al Ordenamiento Jurídico, y denunciará aquellas que supiere se cometan; además informará ante sus -superiores de las deficiencias que conociere en el funcionamiento o conservación de los bienes y servicios municipales.

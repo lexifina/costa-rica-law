@@ -1,0 +1,1 @@
+Artículo 25.-Las distinciones concedidas a los Policías Municipales serán tenidas en cuenta para la valoración en los concursos para el ascenso a otro cargo, para la aplicación de traslados, y para el acceso a los cursos de actualización de conocimiento y especialización de la Academia de Policía Municipal.

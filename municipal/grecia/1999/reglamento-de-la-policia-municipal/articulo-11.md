@@ -1,0 +1,1 @@
+Artículo 11.-En lo relacionado con la investigación de posibles faltas laborales e imposición de sanciones laborales se estará a lo dispuesto por los artículos 7, siguientes y concordantes de la Convención Colectiva de los Trabajadores vigente en esta Corporación Municipal.

@@ -1,0 +1,1 @@
+Artículo 27.-Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales surgidos solo a raíz del ejercicio de sus funciones laborales a favor de esta Entidad, les sea provista gratuitamente por esta Municipalidad, ya sea con servicios profesionales internos o externos y a elección de ella.

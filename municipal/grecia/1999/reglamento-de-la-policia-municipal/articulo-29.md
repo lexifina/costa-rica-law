@@ -1,0 +1,1 @@
+Artículo 29.-La Municipalidad proveerá a la Oficina de la Policía Municipal de los uniformes y armamento necesarios para el buen cumplimiento de las obligaciones propias de sus miembros, y para lo relacionado con las armas se tomará en cuenta lo estipulado en los artículos 5,6,7, 12,32,35,40,47, Y concordantes de la Ley de Armas y Explosivos.

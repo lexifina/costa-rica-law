@@ -1,0 +1,1 @@
+Artículo 10.-En lo referente a la clasificación de faltas y sanciones se estará a lo dispuesto en la Convención Colectiva de los Trabajadores de esta Entidad, en los artículos 81 y concordantes del Código de Trabajo, el Reglamento Interno de Trabajo de esta Corporación, y el presente Reglamento.

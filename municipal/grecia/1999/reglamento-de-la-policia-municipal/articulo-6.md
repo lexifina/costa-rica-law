@@ -1,0 +1,1 @@
+Artículo 6°-El cabello del personal masculino no podrá exceder a la longitud de la parte inferior del cuello de la camisa y no podrá taparle las orejas. A los oficiales de ese sexo les queda prohibido el uso de barba y bigote.

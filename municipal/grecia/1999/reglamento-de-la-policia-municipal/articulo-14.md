@@ -1,0 +1,1 @@
+Artículo 14.-Se entenderá que todos los miembros de la Policía Municipal que estén en funciones de servicio deberán intervenir en todos aquellos sucesos que reclamen su participación cumpliendo con los deberes que le impone el presente Reglamento.

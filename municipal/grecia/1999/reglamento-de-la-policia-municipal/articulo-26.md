@@ -1,0 +1,1 @@
+Artículo 26.-En materia de derechos y garantías laborales y sociales a que tienen derecho los integrantes de la Oficina de la Policía Municipal se regirán por lo dispuesto en la Constitución Política, el Código de Trabajo, el Código Municipal, la Convención Colectiva de los Trabajadores de esta Corporación, y demás disposiciones legales y reglamentarias aplicables.

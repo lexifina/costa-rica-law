@@ -1,0 +1,1 @@
+Artículo 17.-Los personeros de la Oficina de la Policía Municipal están obligados a prestarse mutuo apoyo y también a los demás funcionarios y servidores de esta Municipalidad, así como a los miembros de otros cuerpos policiales, en toda ocasión que se les requiera.

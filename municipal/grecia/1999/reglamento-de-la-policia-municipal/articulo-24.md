@@ -1,0 +1,1 @@
+Artículo 24.-Los incentivos a que se refiere el artículo anterior en sus incisos a. y b. serán otorgados y entregados por el Alcalde. Las distinciones de los últimos tres incisos de ese artículo serán otorgados y entregados por el Concejo Municipal.
