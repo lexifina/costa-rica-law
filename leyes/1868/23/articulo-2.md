@@ -1,0 +1,1 @@
+— Art. 2°-Queda reformada la parte de aforo de la Tarifa de Aduanas de 12 de Noviembre de 1862, en lo que tenga relacion con las especies de que habla el artículo anterior, y cualesquiera otras disposiciones que no estén de acuerdo con esta ley.
