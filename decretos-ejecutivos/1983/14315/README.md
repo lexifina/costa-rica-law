@@ -14,3 +14,4 @@ Reglamento de Zonaje para los Servidores del Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-22 | la propia norma |
+| 2 | 1984-02-23 | Decreto Ejecutivo 15250 (1984-02-23) |

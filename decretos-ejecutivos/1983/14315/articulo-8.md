@@ -18,5 +18,5 @@ Carrillo | Nicoya |
 Bagaces | Santa Cruz |
 Puntarenas | Nandayure |
 Esparza | Limón |
-Montes de Oro | |
-Piedras Blancas de San Ramón | |
+Montes de Oro | (*) Piedras Blancas de San Ramón (*) (Así reformado por el artículo 1° del decreto ejecutivo N° 15250 del 23 de febrero de 1984) |
+| |
