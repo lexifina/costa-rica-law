@@ -1,0 +1,8 @@
+REGLAMENTOS
+JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
+REGLAMENTO PARA EL PROGRAMA DE TELEVISIÓN
+LA RUEDA DE LA FORTUNA JUEGOS N° 43, Y E-2
+1. DE LA SUPERVISIÓN DEL PROGRAMA DE TELEVISIÓN.
+En todos los programas de televisión debe asistir el Gerente, el Auditor Interno y el Director de Producción y Ventas de la Junta de Protección Social de San José, quienes a su vez pueden designar a los funcionarios que habitualmente los sustituyen durante sus ausencias, para que los reemplacen temporalmente en esta función. Para este efecto, deben previamente justificarse ante el superior inmediato, con un día de anticipación, salvo fuerza mayor o caso fortuito.
+En calidad de Inspector puede asistir un funcionario judicial, o un notario público, según lo determine administrativamente la Junta de Protección Social de San José, de común acuerdo con la Corte Suprema de Justicia o el Colegio de Abogados, según corresponda.
+También debe asistir el Jefe del Departamento de Inspectores y funcionarios de la Junta de Protección Social de San José, preferiblemente de ese Departamento, a quienes les corresponde velar porque el programa se desarrolle bajo eficientes normas de seguridad para todos los asistentes a la Sala Estudio.
