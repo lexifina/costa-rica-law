@@ -1,0 +1,5 @@
+Artículo 4°—Establécese la Reserva Indígena Cabécar de Xara.
+La Reserva Indígena de Xara se encuentra localizada en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, Chirripó 3545 III.
+La Reserva está limitada por los puntos cuyas coordenadas se dan a continuación :
+Partiendo del río Moravia en N 199 475, E 596 675; N 199 575, E 597 350; vértice Queza N 199 358, E 599 310; N 198 700, E 599 075, en Quebrada El Seis; sigue aguas abajo por ésta hasta la unión con el río Shara en N 198 825, E 597 325; continúa aguas arriba por éste hasta N 197 725, E 598 425; N 197 250, E 598 100; N 197 200, E 597 500; N 197 250, E 596 550; N 196 775, E 595 775; N 197 200, E 595 225; N 197 450, E 595 475; en brazo de la Quebrada Molejones; continúa aguas abajo por éste hasta la unión con otro brazo de la Quebrada Molejones en N 198 150, E 594 900; N 199 150, E 595 300; N 198 850, E 597 050; N 198 925, E 597 125; en el río Moravia; continúa aguas abajo por éste al punto inicial de la presente descripción en N 199 475, E 596 675.
+Área aproximada 644 hectáreas.

@@ -1,0 +1,3 @@
+Artículo 2°—La Reserva Indígena Cabécar de Awari, se localiza en la hoja cartográfica del IGN, escala 1/50.000 Tucurrique 3545 I y está determinada por los puntos cuyas coordenadas se dan a continuación:
+Partiendo de la unión del río Pacuare con la Quebrada Temible (Alcantarilla) en N 217 700, E 586 050; continúa aguas arriba de la Quebrada Temible (Alcantarilla) hasta N 217 700, E 586 500; N 218 475, E 586 700; N 219 150, E 587 450; N 219 150, E 588 200; N 218 550, E 589 250; N 217 450, E 589 825; N 215 350, E 590 950; N 215 000, E 591 000; N 214 000, E 591 000; N 213 550, E 589 750; N 214 600, E 589 325; N 216 000, E 588 150; N 216 000, E 587 800; N 217 700, E 586 050, punto inicial de la presente descripción.
+Área aproximada: 1 332 hectáreas.
