@@ -14,3 +14,4 @@ Reforma Oficializa Manual Normas para el Tratamiento del Cáncer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-06-04 | la propia norma |
+| 2 | 1991-05-07 | Decreto Ejecutivo 20417 (1991-05-07) |
