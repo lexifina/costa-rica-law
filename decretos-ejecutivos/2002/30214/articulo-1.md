@@ -121,3 +121,4 @@ Unidad Ejecutora PPZN MIDEPLAN 10,3
 (Mediante Decreto Ejecutivo N° 30784 de 2 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30822 de 24 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30832 de 7 de octubre del 2002 se modifica para Consejo Nacional para Investigaciones Científicas y Tecnológicas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
+(Mediante Decreto Ejecutivo N° 30889 de 12 de noviembre del 2002 se modifica para la Junta Administrativa del Registro Nacional los límites de gasto presupuestario y de gasto efectivo para el año 2003)
