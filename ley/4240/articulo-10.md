@@ -1,6 +1,6 @@
 Artículo 10.- Corresponden asimismo a la Dirección de Urbanismo,
-dentro de las funciones de control que le asigna el inciso 4) del artículo
-7º, las siguiente:
+dentro de las funciones de control que le asigna el inciso 4) del
+artículo 7º, las siguiente:
 1) Revisar y aprobar los planes reguladores y sus reglamentos, antes de
 su adopción por las municipalidades;
 2) Examinar y visar, en forma ineludible, los planos correspondientes a
