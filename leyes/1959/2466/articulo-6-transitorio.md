@@ -1,0 +1,1 @@
+Artículo 6º.- El Banco Nacional de Costa Rica, al hacer los nombramientos de empleados del Departamento de Tierras y Colonias dará preferencia, en igualdad de condiciones, a los actuales empleados del Departamento de Tierras y Bosques del Ministerio de Agricultura.
