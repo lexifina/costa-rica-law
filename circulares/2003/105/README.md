@@ -14,3 +14,4 @@ Sobre Debido Control y Manejo de la Documentación Presentada en los Despachos J
 | --- | --- | --- |
 | 1 | 2003-10-23 | la propia norma |
 | 2 | 2003-11-26 | Circular 132 (2003-11-26) |
+| 3 | 2004-02-27 | Circular 13 (2004-02-27) |
