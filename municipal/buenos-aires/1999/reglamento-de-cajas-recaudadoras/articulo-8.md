@@ -1,0 +1,1 @@
+Artículo 8°-El funcionario asignado consultará las cuentas y emitirá los comprobantes de pago correspondiente, en dos tantos. El original lo entregará al contribuyente debidamente firmado y sellado, una vez que haya recibido el dinero, la copia la conservará para efectos de realizar el cierre de la caja.

@@ -1,0 +1,1 @@
+Artículo 11.-AI final del día deberá realizar un cierre de operaciones, que consistirá en un recuento del fondo de operación de la caja recaudadora y un conteo de la suma ingresada. La suma ingresada deberá coincidir con la sumatoria de los totales consignados en los comprobantes de ingreso y con el listado diario de recibos cancelados, que emite el sistema de cómputo.

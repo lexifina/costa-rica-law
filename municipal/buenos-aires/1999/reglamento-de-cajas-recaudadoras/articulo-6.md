@@ -1,0 +1,1 @@
+Artículo 6°-El funcionario asignado deberá atender al contribuyente dentro de los parámetros de respeto, dedicación, y diligencia requeridos a efecto de lograr como producto final de su participación el proceso de ingreso y el mayor grado de satisfacción en el contribuyente por la atención recibida.

@@ -1,0 +1,1 @@
+Artículo 9°-Para el adecuado desempeño de sus labores el funcionario asignado contará con una gaveta provista de divisiones o aparte para mantener clasificado el dinero, la cual deberá tener llavín. Además dispondrá de una caja de seguridad (caja fuerte) y cualquier otro equipo indispensable para que pueda realizar su función en forma cómoda y segura.

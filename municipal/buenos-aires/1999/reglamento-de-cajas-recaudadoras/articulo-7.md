@@ -1,0 +1,1 @@
+Artículo 7°-El funcionario asignado tendrá acceso al sistema computarizado de atención a contribuyentes, a los niveles de consulta y facturación de tributos, así como la desfacturación o reversión de comprobantes de pago anulados.

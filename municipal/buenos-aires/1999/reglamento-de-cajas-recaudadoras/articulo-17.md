@@ -1,0 +1,3 @@
+CAPITULO V
+De la ubicación de la caja recaudadora
+Artículo 17.-La Caja Recaudadora estará ubicada junto a la oficina de Contabilidad y Tesorería, para facilitar la coordinación. El área de cajas deberá estar separado de las otras oficinas, por una división de al menos un metro de alto, con su correspondiente puerta. El acceso a esa área de cajas será restringido y solamente los funcionarios asignados y sus superiores podrán accesar a ella. Bajo ninguna circunstancia se permitirá el ingreso de personal no autorizado ni de personas ajenas a la institución, tales como vendedores, agentes, notificadores, familiares, etc.

@@ -1,0 +1,4 @@
+CAPITULO VII
+Disposiciones varias
+Artículo 19.-Las Cajas Recaudadoras contarán con un fondo fijo, por la suma de cincuenta mil colones (¢50.000,00), para que el funcionario asignado pueda desenvolverse en su labor cotidiana. El monto de este fondo fijo podrá ser aumentado por acuerdo del Concejo Municipal a solicitud del Director del Área Administrativa-Financiera.
+Para un aprovechamiento más eficiente de los recursos humanos y tecnológicos, así como una atención más ágil y completa al contribuyente, los funcionarios asignados podrán confeccionar y emitir las certificaciones sobre deudas por tributos municipales, señaladas en el artículo 85 del Código Municipal, así como las que el contribuyente solicite para otros efectos, excepto aquellas que se requieran para ejercer el cobro judicial de un tributo municipal.

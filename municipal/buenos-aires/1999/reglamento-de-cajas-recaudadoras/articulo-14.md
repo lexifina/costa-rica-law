@@ -1,0 +1,1 @@
+Artículo 14.-Una vez realizado el cierre de las cajas, el Tesorero deberá preparar toda la documentación necesaria para realizar el depósito bancario en la cuenta corriente de la Municipalidad. Dicho depósito deberá ser realizado a más tardar en la mañana del día hábil siguiente.

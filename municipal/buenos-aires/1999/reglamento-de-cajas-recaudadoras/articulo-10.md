@@ -1,0 +1,1 @@
+Artículo 10.-EI funcionario asignado deberá mantener todos los valores (fondo de operación, ingreso u otros autorizados), dentro de su área de trabajo y no podrá sacarlos sin autorización de sus superiores, salvo para trasladarlos a la Tesorería Municipal, para realización de cierres o arqueos.
