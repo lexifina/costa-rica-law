@@ -1,0 +1,2 @@
+ARTICULO 34
+Los Gobiernos Miembros del Comité Intergubernamental para las Migraciones Europeas que en la fecha de entrada en vigor de la presente Constitución no hayan notificado al Director que aceptan dicha Constitución, podrán seguir siendo Miembros del Comité durante un año a partir de dicha fecha si aportan una contribución a los gastos de administración del Comité, de acuerdo con los términos del apartado 2 del artículo 23, conservado durante este período el derecho de aceptar la Constitución.
