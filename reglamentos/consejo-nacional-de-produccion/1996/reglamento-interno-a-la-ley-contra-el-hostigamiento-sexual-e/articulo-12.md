@@ -1,0 +1,1 @@
+Artículo 12.—Una vez resuelto el recurso de revocatoria, la persona denunciada y la persona denunciante podrán recurrir ante la Junta de Relaciones Laborales estarán sujeto a lo establecido en el artículo 6° del presente Reglamento.
