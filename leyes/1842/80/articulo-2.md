@@ -1,0 +1,1 @@
+Art. 2 Será presidente del Tribunal el primer nombrado en el artículo anterior, y compone la Sala de 2a Instancia el mismo, y el segundo; quedando para la tercera, el tercero y cuarto con el Fiscal, y observándose para la renovación sucesiva de las Salas lo prevenido por el artículo 14 del decreto reglamentario de 1° de Junio último.
