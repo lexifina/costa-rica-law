@@ -14,3 +14,4 @@ Reglamento de Vigilancia Epidemiológica y Control de Enfermedades Transmisibles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-07-13 | la propia norma |
+| 2 | 1987-09-16 | Decreto Ejecutivo 17760 (1987-09-16) |
