@@ -14,3 +14,4 @@ Reglamento de Capacitación y Desarrollo Profesional para los Funcionarios del M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-26 | la propia norma |
+| 2 | 2002-04-02 | Decreto Ejecutivo 30358 (2002-04-02) |
