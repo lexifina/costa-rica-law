@@ -1,8 +1,0 @@
-Artículo 7. Entidades autorizadas para fungir como fiduciarios
-Únicamente podrán actuar como fiduciarios de fideicomisos de titularización:
-a) Las entidades sujetas a la supervisión de la Superintendencia General de Entidades Financieras que cuenten con un capital mínimo igual al exigido a las sociedades administradoras de fondos de inversión.
-b) Las sociedades anónimas que se constituyan bajo la legislación costarricense que reúnan las siguientes características:
-i) Su objeto social deberá permitir la administración de fideicomisos.
-ii) Su capital mínimo deberá ser igual al exigido a las sociedades administradoras de fondos de inversión. Además deberán aportar recursos propios adicionales, atendiendo al volumen de recursos gestionados, en los mismos términos exigidos a las sociedades administradoras.
-El grupo financiero al que pertenece la entidad originadora de los créditos podrá brindar los servicios de fiduciario de las emisiones de valores sustentadas en tales créditos siempre que lo haga por medio de una sociedad independiente de la entidad originadora que reúna además las condiciones establecidas en el párrafo anterior. En el caso de que el originador sea un banco, el grupo financiero no tendrá que brindar el servicio de fiduciario mediante sociedad independiente. En todo caso la titularización deberá estructurarse por medio de la emisión de una clase preferente y una clase subordinada, de forma tal que ésta última sea adquirida por la entidad originadora o su grupo financiero. La emisión subordinada no podrá ser inferior a un quince por ciento (15%) del monto total a titularizar.
-La entidad originadora podrá continuar brindando el servicio de cobro administrativo y judicial de los derechos de crédito o cobro objeto de titularización.
