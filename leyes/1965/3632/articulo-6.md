@@ -1,0 +1,4 @@
+Artículo 6º.- Los espectáculos que se presenten en el Teatro
+Nacional y que tengan recomendación especial del Ministerio de Educación
+Pública por ser de índole cultural, no pagarán el impuesto que se indica
+en el artículo 1º.

@@ -1,0 +1,10 @@
+Artículo 5º.- Cumplido el plan de restauración que se elabore, el
+impuesto se continuará girando a la Junta Directiva como aporte fijo del
+Poder Ejecutivo, y se invertirá en las obras de mantenimiento,
+conservación y mejoramiento del Teatro Nacional; y una vez llenadas esas
+necesidades anuales, en ampliar la labor artístico-educacional,
+encomendada a la Dirección General de Artes y Letras, exclusivamente
+para lograr la presentación de espectáculos de alta categoría artística
+y cultural en el Teatro Nacional, a precios que estén al alcance de
+todas las clase sociales mediante planes coordinados entre la Junta
+Directiva del Teatro Nacional y la Dirección General de Artes y Letras.
