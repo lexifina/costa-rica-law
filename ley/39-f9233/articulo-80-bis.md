@@ -1,0 +1,3 @@
+Artículo 80 bis.-Autenticación de firmas.-En caso de autenticación de firmas, el notario no tendrá necesidad de dejar razón en su protocolo, bastará su manifestación, en el documento que tiene esa firma, de que ésta es auténtica, poniendo su firma y sello.
+Si se tratare de firma puesta a ruego, de una persona que no supiere o no pudiere hacerlo, esta persona deberá estar presente en el momento en que se firme por ella, y solicitar la autenticación al notario, quien pondrá en el documento la razón como se establece en el párrafo anterior y podrá disponer a su juicio, que el solicitante deje estampada su huella digital.
+(Así adicionado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)
