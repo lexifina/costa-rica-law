@@ -1,6 +1,6 @@
 # Crea la Caja Préstamos y Descuentos de la Asociación Nacional de Educadores
 
-Ley N° 12 del 1944-10-13. SINALEVI, ficha 33812: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33812&param2=89927&param3=1>.
+Ley N° 12 del 1944-10-13. SINALEVI, ficha 33812: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33812&param2=89928&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 15 | 1948-05-14 | Ley 11 | 1948-05-14 |
 | 5 de 15 | 1949-05-03 | Ley 513 | 1949-05-03 |
 | 6 de 15 | 1954-07-31 | Ley 1781 | 1954-07-31 |
+| 7 de 15 | 1955-10-08 | Ley 1929 | 1955-09-22 |
