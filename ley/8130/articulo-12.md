@@ -1,0 +1,1 @@
+Artículo 12.—El INS efectuará las pruebas referidas en el Artículo anterior. Para estos efectos, se autoriza a dicha Institución para que tome las medidas pertinentes con el objeto de garantizar la celeridad de tales pruebas.
