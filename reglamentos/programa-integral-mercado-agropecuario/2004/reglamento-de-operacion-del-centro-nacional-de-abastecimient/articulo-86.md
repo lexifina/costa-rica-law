@@ -1,0 +1,1 @@
+Artículo 86.—Vigencia de la Garantía: La garantía establecida en el artículo anterior deberá mantenerse durante todo el período de vigencia del contrato, y podrá ser ampliada ajuicio exclusivo de la administración para el caso de prórrogas.

@@ -1,0 +1,1 @@
+Artículo 45.—Permanencia fuera de horario: Es prohibido permanecer dentro de las instalaciones del CENADA después de la hora de cierre sin la autorización escrita del Administrador. Se prohíbe la comercialización fuera del horario. La Administración del CENADA tomará las medidas administrativas que correspondan en el caso de personas extrañas que ingresen en horas no autorizadas.

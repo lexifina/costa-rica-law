@@ -1,0 +1,1 @@
+Artículo 29.—Cambios de personería o constitución: Las personas jurídicas contratantes, deberán comunicar al Administrador cualquier modificación de la personería o de su naturaleza constitutiva. El Gerente tiene reservada la facultad de mantener la vigencia del contrato o su cancelación basado en el examen de la modificación por parte de la Unidad de Asesoría Legal del PIMA.

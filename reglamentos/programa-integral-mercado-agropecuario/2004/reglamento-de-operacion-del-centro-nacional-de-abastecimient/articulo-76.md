@@ -1,0 +1,1 @@
+Artículo 76.—Construcción y mantenimiento de Estructuras: El contrato de derecho de uso para desarrollar las áreas de reserva, permitirá la construcción y mantenimiento de infraestructura en ellas, así como el establecimiento de múltiples servicios a los usuarios del CENADA, todo dentro de los fines del PIMA.

@@ -1,0 +1,2 @@
+Artículo 12.—Concesión de derechos de uso a usuarios ocasionales: La concesión de derechos de uso de locales, puestos, áreas de estacionamiento y espacios de cámaras de refrigeración a los usuarios ocasionales se concretará mediante el pago de las tarifas diarias o por hora que en forma genérica establezca el Consejo Directivo, efectuadas en la forma y condiciones que se dispongan.
+El Consejo Directivo es el único organismo autorizado para establecer variaciones a las tarifas, formas y condiciones de pago.

@@ -1,0 +1,3 @@
+Artículo 48.—Carga y descarga: Las operaciones de carga y descarga podrán ser realizadas por personal contratado del usuario y por cargadores independientes. En ambos casos, este personal deberá estar inscrito en la Administración que les dará una credencial anual que los autoriza a prestar ese servicio.
+Para ser inscritos, los cargadores deberán solicitarlo al Administrador mediante formulario especial que hará constar su nombre, calidades, vecindario, cédula fotográfica y cualquier otra información que la Administración solicite.
+La credencial deberá renovarse anualmente, y su presentación es obligatoria cuando sea requerida por funcionarios del PIMA o autoridades competentes.

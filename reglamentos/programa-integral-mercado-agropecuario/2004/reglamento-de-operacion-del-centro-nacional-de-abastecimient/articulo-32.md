@@ -1,0 +1,1 @@
+Artículo 32.—Mejoras o adiciones permanentes: concepto: Se establece como mejora o adición permanente, toda aquella realizada por el usuario, que se adhieran a las estructuras o instalaciones existentes de manera fija y estable, y cuya remoción implicarán deterioro o afectación de aquellas, a la vez que las mejoras o adiciones perderían sustancialmente su función o naturaleza.

@@ -1,0 +1,3 @@
+Artículo 25.—Prórroga por abandono temporal de contratos: Si el usuario, el representante de la persona jurídica o el personal autorizado no pudiera atender el negocio por motivo de enfermedad certificada, caso fortuito, fuerza mayor u otra causa calificada; deberá solicitar una prórroga al Administrador antes del vencimiento del plazo señalado en el artículo anterior.
+La solicitud indicará si el local, puesto o área permanecerá cerrado o será atendido por otra persona física o jurídica que deberá registrarse y ser autorizada por el Administrador.
+La prórroga no podrá exceder de dos meses y no exime al usuario del pago puntual del canon establecido.

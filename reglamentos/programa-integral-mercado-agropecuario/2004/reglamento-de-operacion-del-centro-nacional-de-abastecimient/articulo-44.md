@@ -1,0 +1,1 @@
+Artículo 44.—Cierre Parcial: Si por cualquier circunstancia el CENADA no pudiere prestar el servido ordinario de alguna bodega o zona de las instalaciones por un determinado lapso el Administrador lo hará saber a los usuarios y al público por lo menos con una semana de antelación, salvo caso fortuito o fuerza mayor.

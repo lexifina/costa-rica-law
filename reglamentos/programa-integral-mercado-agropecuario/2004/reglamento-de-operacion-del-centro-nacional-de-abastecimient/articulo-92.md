@@ -1,0 +1,1 @@
+Artículo 92.—Supervisión de estructuras: Es facultad del PIMA realizar la supervisión del mantenimiento y operación de las infraestructuras que considere conveniente, así como de los servicios producto del contrato de derecho de uso durante la vigencia del mismo.

@@ -1,0 +1,4 @@
+Artículo 22.—Pago de cánones mensuales, multa y sanciones: El pago de cánones mensuales por concepto de contrato de derecho de uso deberá realizarse por adelantado dentro de los cinco primeros días hábiles de cada mes.
+Se establece como cláusula penal una multa del uno por ciento de la mensualidad ordinaria por cada día hábil de atraso contados a partir del sexto día hábil de cada mes y hasta el día hábil decimosexto. Dicha multa no podrá ser superior al diez por ciento.
+Una vez transcurrido el día decimosexto hábil del mes sin que el usuario haya cancelado se aplicará el cierre del puesto o local para su uso. Si aún al final del mes permanece la situación de mora, se rescindirá automáticamente del contrato por pronunciamiento de la Unidad Asesoría Legal del PIMA.
+El Consejo Directivo puede variar para casos concretos, las condiciones de pago de cánones mensuales.

@@ -1,0 +1,2 @@
+Artículo 23.—Personal autorizado y subalterno: Los usuarios permanentes están obligados a comunicar al Administrador y para efectos de control, el nombre y calidades del personal que autoricen para el funcionamiento y operación del local, área o puesto, contratado, así como del personal subalterno que laborará bajo su orden. Además deberán informar las variaciones que ocurran en su lista de personal en un plazo máximo de cinco días hábiles.
+No se permitirá la utilización de locales, áreas o espacios con personas que no hayan sido previamente reportadas al Administrador.

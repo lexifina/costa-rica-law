@@ -1,0 +1,3 @@
+Artículo 37.—Iluminación e instalaciones eléctricas: El servicio de iluminación de las instalaciones del CENADA está a cargo del PIMA. La instalación de conexiones y artefactos eléctricos en los puestos, locales o áreas contratadas para el ejercicio de las actividades de los usuarios está sujeta a una solicitud y aprobación escrita y previa del Administrador.
+Si las conexiones y artefactos que instala el usuario inciden en un consumo importante de energía respecto a la generalidad de usuarios, la Gerencia definirá un cobro adicional por electricidad establecido con criterios técnicos.
+Se podrá disponer la separación de medidores para usuarios determinados.

@@ -1,0 +1,1 @@
+Artículo 40.—Higiene y limpieza: Es obligación del usuario mantener en óptimas condiciones de higiene el local, puesto o área contratada. Deberá colocar la basura y los residuos que genere en su actividad dentro de los recipientes colocados por el CENADA y proceder a la limpieza diaria de su espacio antes del cierre del mercado.

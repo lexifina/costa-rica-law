@@ -1,0 +1,1 @@
+Artículo 84.—Recomendaciones de usuarios: El usuario podrá hacer recomendaciones, tanto de carácter general como específico a la administración, con el propósito de fijar mecanismos, principios y cambios necesarios a fin de mejorar la calidad de servicio prestado a los usuarios.

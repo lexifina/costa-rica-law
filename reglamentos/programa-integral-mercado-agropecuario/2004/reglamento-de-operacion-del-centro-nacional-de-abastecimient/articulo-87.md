@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las Construcciones en las áreas de reserva
+Artículo 87.—Aval del PIMA: Todas las obras de infraestructura objeto del contrato de derecho de Uso, se ejecutarán de conformidad con los diseños, planos y especificaciones, y detalles técnicos que el PIMA avale, para lo cual se observarán los mejores estándares de calidad y normas de ingeniería generalmente aceptadas. El usuario estará obligado a presentar una copia de los planos debidamente aprobados por la Municipalidad, bajo la pena de no autorizar la construcción, copia que permanecerá en custodia del PIMA para los efectos pertinentes.

@@ -1,0 +1,1 @@
+Artículo 96.—Período de Recuperación: La duración del período de recuperación deberá sustentarse en estudios económicos y financieros sólidos y avalados por un contador público autorizado, los cuales deberán ser presentados al PIMA de previo a la formalización del contrato, para su estudio correspondiente y aprobación por parte del Consejo Directivo.

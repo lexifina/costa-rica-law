@@ -1,0 +1,1 @@
+Artículo 52.—Ingreso: Los vehículos deberán ingresar al CENADA por las casetillas que al efecto se indiquen, a baja velocidad. Deberán detenerse a recoger el tiquete de entrada con indicación de la placa y la hora. El conductor es responsable de conservar ese tiquete durante su permanencia en las instalaciones.

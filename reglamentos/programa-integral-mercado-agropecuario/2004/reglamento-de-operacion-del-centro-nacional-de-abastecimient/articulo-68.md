@@ -1,0 +1,1 @@
+Artículo 68.—Construcciones: En el desarrollo de las áreas de reserva se debe velar porque al momento de realizarse las diferentes obras, éstas cumplan con los requisitos establecidos por la normativa legal referente a su construcción de acuerdo al fin. Así también se deberá velar porque se den los sistemas necesarios para la prevención de los riesgos.
