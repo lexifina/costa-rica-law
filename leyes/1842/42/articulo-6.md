@@ -1,0 +1,1 @@
+Art. 6. Los fletes se pagarán en dinero contante al recibo de la carga, pudiéndose adelantar una tercera parte de ellos, siempre que el dueño de mulas lo exija; y cuando la paga se hiciere en otra especie que dinero, será á precio de por mayor; y aun así, cesa la responsabilidad de los artículos 1° y la anterior fracción 4a.

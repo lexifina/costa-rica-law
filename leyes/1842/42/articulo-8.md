@@ -1,0 +1,1 @@
+Art. 8. El arriero gana en viaje redondo, lo que una mula en viaje también redondo; y debe ser alimentado por el dueño o patrón del atajo: si se enfermare, será conducido hasta poblado por cuenta del patrón, y asistido allí con el jornal que hubiere ganado.

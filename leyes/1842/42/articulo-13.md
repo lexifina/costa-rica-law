@@ -1,0 +1,1 @@
+Art. 13. El presente decreto no deroga las contratas celebradas hosta el día de su publicación, sobre transportes y alquileres. –Dado en San Jose á ocho de Enero de Enero de mil ochocientos cuarenta y dos. –Braulio Carrillo. –El Secretario general, Manuel A. Bonilla.”
