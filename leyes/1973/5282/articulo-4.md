@@ -1,0 +1,1 @@
+ARTÍCULO 4°.- Derogase expresamente la ley que destinó los terrenos mencionados en le artículo primero de la presente ley a la construcción de un edificio para la Asamblea Legislativa y la Contraloría General de la República, sea la N° 2152 de 23 de agosto de 1957, así como en lo pertinente cualquiera otra que se le oponga a la presente.
