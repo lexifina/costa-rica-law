@@ -1,1 +1,0 @@
-Artículo 2°—Como objetivo genérico de conformidad con su Ley de Creación, la Corporación tendrá como finalidad fomentar la ganadería bovina, dentro del marco de la sostenibilidad de la misma, siendo de interés publico la existencia, mantenimiento, desarrollo y fomento de la ganadería bovina, en especial la de los pequeños y medianos productores dedicados a la misma.

@@ -1,3 +1,0 @@
-Artículo 16.—Los acuerdos de la Junta Directiva quedaran firmes en la sesión siguiente a la que fueron adoptados, salvo que se declaren así en la misma sesión, por votación unánime de los miembros presentes.
-La Junta Directiva se reunirá ordinariamente dos veces al mes en el lugar y hora que ella determine y extraordinariamente cuando sea convocada por su Presidente o por decisión de ella misma, sin embargo solo tres sesiones extraordinarias al año como máximo podrán ser remuneradas mediante la dieta establecida por ley.
-En la primera sesión ordinaria la Junta Directiva deberá elegir un Presidente, Vicepresidente, Secretario, Tesorero y cinco vocales.

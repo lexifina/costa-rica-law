@@ -1,2 +1,0 @@
-Artículo 14.—Los miembros de la Junta Directiva, propietarios y suplentes, serán nombrados por un período de dos años y podrán ser reelegidos en sus cargos para períodos sucesivos, salvedad hecha del Ministro de Agricultura o su Viceministro que estarán sujetos al nombramiento de Gobierno como miembros del Poder Ejecutivo.
-Las organizaciones representadas en la Junta, podrán remover libremente a sus representantes, propietarios y suplentes cuando lo consideren necesario.
