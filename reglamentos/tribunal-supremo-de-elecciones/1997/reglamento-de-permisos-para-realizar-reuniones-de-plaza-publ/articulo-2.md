@@ -1,0 +1,2 @@
+2°—Los partidos deben cumplir con las regulaciones contenidas en el INSTRUCTIVO “SOBRE REUNIONES, MÍTINES, MANIFESTACIONES Y PROCEDIMIENTOS DE INSCRIPCIÓN DE CLUBES DE PARTIDOS POLÍTICOS”, aprobado por el Tribunal Supremo de Elecciones.
+La obligación de los delegados del Tribunal es únicamente la de supervisar que las actividades públicas de los partidos (plazas públicas, desfiles, mítines, piquetes), se realicen en estricto cumplimiento con las disposiciones del Código Electoral y la reglamentación que al efecto emita el Tribunal.

@@ -1,0 +1,1 @@
+3°—Además, los partidos políticos con el propósito de brindar seguridad a las personas en las concentraciones masivas, deberán cumplir con los requisitos que se señalan el documento “PLAN DE APOYO INTERINSTITUCIONAL AL PROCESO ELECTORAL PARA LAS ELECCIONES DE 1998”.

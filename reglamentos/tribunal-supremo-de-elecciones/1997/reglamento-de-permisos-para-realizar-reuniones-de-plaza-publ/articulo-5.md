@@ -1,0 +1,1 @@
+5°—Los Responsables de la coordinación de las actividades .organizadas por los Partidos Políticos, a que se refiere este Reglamento, tienen la obligación de velar que se cumplan las medidas de seguridad que las citadas Instituciones o el Tribunal Supremo de Elecciones señalen.
