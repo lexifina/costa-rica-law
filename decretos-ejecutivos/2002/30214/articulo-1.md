@@ -58,7 +58,7 @@ Fondo Vida Silvestre (Así Reformado parcial y expresamente por el artículo 1°
 Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud (Incluye Asignaciones Fam.) (Así modificado por el artículo 1° del decreto ejecutivo N°31228 de 03 de junio de 2003) | 965,4
 Instituto Costarricense del Deporte y la Recreación (Así modificado por el artículo 1° del decreto ejecutivo N° 31161 de 6 de mayo de 2003) | ¢ 2.750,5
 Instituto Costarricense de Acueduc. y Alcantarillado (Así modificado por decreto ejecutivo N° 31142 de 21 de abril de 2003) | 32.129,2
-Instituto Costarricense de Ferrocarriles | 1.293,7
+Instituto Costarricense de Ferrocarriles (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31266 de 23 de junio de 2003) | 1.693.7
 Instituto Costarricense de Pesca | 833,4
 Instituto Costarricense de Puertos del Pacífico | 4.874,1
 Instituto Costarricense de Turismo (Así modificado por decreto ejecutivo N° 31057 de 26 de marzo de 2003) | 6.518,6
