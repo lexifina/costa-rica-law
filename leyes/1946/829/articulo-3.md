@@ -1,0 +1,12 @@
+Artículo 3º.- El artículo 438 del citado Código se leerá así:
+Los alumnos de las Escuelas Universitarias tendrán derecho a hacer
+oír su voz en el seno de las respectivas Facultades. Para ese efecto, en
+la segunda quincena de marzo de cada año se elegirá en cada Escuela un
+representante propietario y dos suplentes de los estudiantes por votación
+directa de ellos; la elección deberá recaer en alumnos de los años
+superiores. El propietario y en su ausencia los suplentes en el orden de
+nominación, tendrán derecho a asistir a las sesiones de la Facultad
+respectiva y a hacer uso de la palabra y emitir el voto en las mismas.
+Los tres representantes tendrán derecho de hacerlo en las sesiones de
+Asamblea Universitaria. Todo sin perjuicio de los dispuesto en el
+artículo 435.
