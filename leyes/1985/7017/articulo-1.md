@@ -1,4 +1,6 @@
 N° 7017
+(NOTA DE SINALEVI: Mediante el decreto ejecutivo N° 30712 del 5 de setiembre de 2002, publicado en el Alcance N° 71 a La Gaceta N° 187 del 30 de setiembre de 2002, se publicó la Resolución N° 89-2002 de fecha 23 de agosto del 2002, la cual en su punto 2) indica lo siguiente:
+"2. Aprobar las modificaciones al Arancel Centroamericano de Importación, que incorpora al Sistema Arancelario Centroamericano (SAC), los resultados de la Tercera Enmienda de la Nomenclatura del Sistema Armonizado de Designación y Codificación de Mercancías y los Derechos Arancelarios a la Importación (DAI), en la forma que se consigna en el Anexo 1 de la presente Resolución, el cual constituye el Anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.")
 LAS ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETAN:
 ARTICULO 1º- Ratifícase, en todas y cada una de sus partes, el Anexo A al Convenio sobre el Régimen Arancelario y Aduanero Centroamericano: Arancel Centroamericano de Importación y la Resolución Nº 2 del Consejo Arancelario y Aduanero Centroamericano, mediante el cual aprobó el Anexo A, suscrito el 20 de setiembre de 1985.
