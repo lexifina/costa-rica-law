@@ -1,0 +1,2 @@
+IX
+Jiménez podrá construir sobre la callejuela que se le ha permitido abrir en la Plaza Mora Fernández, según la cláusula III, en el brazo del costado Norte de dicha Plaza, una marquesina de hierro o cemento armado, en la misma forma que la existente en el frente de la puerta de entrada del Club Unión, o en otra forma, siempre que en cuanto a ornato guarde relación con las Arcadas que construirá Jiménez. La marquesina podrá construirse, ya en la parte Norte, ya en la parte Oeste de las Arcadas.

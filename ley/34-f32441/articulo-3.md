@@ -1,0 +1,3 @@
+III
+El Gobierno permitirá al contratista que construya para servicio público una callejuela en forma de escuadra en la Plaza Mora Fernández, a lo largo de las Arcadas, para la entrada y salida de camiones y cualquier otros carros. La dicha callejuela será de dos metros, cincuenta centímetros de ancho en cada uno de los brazos de la escuadra y de tres metros, cincuenta centímetros en el chaflán de la esquina o unión de dichos brazos.
+Para los trabajos a que éste y los artículos VII y IX se refieren, el contratista recabará el parecer de la Dirección General de Obras Públicas en cuanto a seguridad y ornato.
