@@ -1,0 +1,1 @@
+Artículo 2º—De la creación del beneficio. Crease el beneficio de la dedicación exclusiva como un factor de incentivo adicional al salario de los funcionarios de la Municipalidad de Puriscal, de acuerdo a los criterios y procedimientos que establece al respecto el presente Reglamenta.

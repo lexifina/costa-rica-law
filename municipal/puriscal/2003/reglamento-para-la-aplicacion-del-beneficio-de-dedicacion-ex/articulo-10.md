@@ -1,0 +1,1 @@
+Artículo 10.—Término para resolver la solicitud. La Alcaldía deberá resolver la aprobación o rechazo de la solicitud en un plazo máximo de diez días hábiles, a partir del día inmediato siguiente al de la fecha de presentación.

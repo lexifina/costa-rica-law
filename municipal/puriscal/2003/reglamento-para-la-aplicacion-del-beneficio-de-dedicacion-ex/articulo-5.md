@@ -1,0 +1,7 @@
+Artículo 5º—Requisitos para disfrutar del beneficio. Para acogerse y seguir disfrutando del beneficio de dedicación exclusiva, los funcionarios deben cumplir con los siguientes requisitos mínimos:
+a) Estar desempeñando o estar propuesto para desempeñar el cargo, en propiedad o en forma interina, para el cual se requiera como mínimo el grado académico que indica el artículo anterior, siempre que el funcionario demuestre que cuenta con este grado académico, para lo cual debe aportar original y copia del título para su verificación.
+b) En el caso de los profesionales con títulos obtenidos en universidades extranjeras, el funcionario debe aportar certificaciones en que conste su reconocimiento y equiparación por parte de una universidad costarricense reconocida por el Consejo Nacional de Educación Superior o por el colegio profesional respectivo.
+c) Haber sido nombrado para laborar jornada completa.
+d) Poseer la incorporación al respectivo colegio profesional, para lo cual debe aportar el documento probatorio respectivo.
+e) Firmar el contrato con el Alcalde Municipal o quien este despacho delegue.
+f) En el caso de los no profesionales aportar una justificación escrita de la necesidad de utilizar los servicios de un funcionario en forma exclusiva, firmada por el superior jerárquico de la sección a que pertenece el profesional y además contar con el visto bueno en ese mismo sentido por parte de la Unidad de Recursos Humanos de la Municipalidad.
