@@ -1,0 +1,1 @@
+Articulo 34.—El becario que en el transcurso de un mes calendario con posterioridad a su reincorporación al trabajo no presentare el informe final escrito y/o la charla, recibirá del Departamento de Capacitación una amonestación escrita con copia al Ministro, Departamento de Personal y a su respectivo expediente.

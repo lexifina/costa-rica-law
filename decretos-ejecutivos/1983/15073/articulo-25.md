@@ -1,0 +1,1 @@
+Articulo 25.—Quien aspire y disfrute de una beca está obligado a cumplir con lo que este Reglamento estipula, independientemente de lo que determina el Estatuto de Servicio Civil y su Reglamento, la ley NO 1810 (Ley de Licencias para Adiestramiento), el Reglamento Interior de Trabajo y el Reglamento del Departamento de Capacitación del MAG.

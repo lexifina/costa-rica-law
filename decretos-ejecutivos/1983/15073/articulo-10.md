@@ -1,0 +1,1 @@
+Articulo 10.—La Comisión de Becas estará integrada por cinco miembros que deberán ser funcionarios del Ministerio de Agricultura y Ganadería y juramentados por el Ministro. Las funciones de los miembros de la Comisión las efectuarán durante su jornada de trabajo y tendrán el permiso oficial para el cumplimiento de las mismas.

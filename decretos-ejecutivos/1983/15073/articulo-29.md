@@ -1,0 +1,1 @@
+Artículo 29.—En caso de muerte o incapacidad permanente de un becado acogido a cualquiera de los beneficiarios establecidos en este Reglamento, si la misma se produce en el periodo de estudios o en el cumplimiento del compromiso laboral, quedan exentas las obligaciones y garantías contraídas con el Ministerio de Agricultura y Ganadería.

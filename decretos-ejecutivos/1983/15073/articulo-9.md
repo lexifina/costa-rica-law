@@ -1,0 +1,2 @@
+Artículo 9—Al cumplirse la fecha limite para el recibo de documentos, la Comisión, en sesión ordinaria o extraordinaria estudiará las solicitudes que reúnan las condiciones exigidas y de ellas escogerá el candidato más idóneo para el disfrute de la beca.
+En los casos de programas especiales financiados con fondos externos previstos en el articulo 69, corresponderá a la Comisión dar su visto bueno en cuanto al cumplimiento de los requisitos de los candidatos que se seleccionen, mediante el mecanismo establecido.

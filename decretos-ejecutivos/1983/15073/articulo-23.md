@@ -1,0 +1,2 @@
+Artículo 23.—Si por alguna razón el funcionario escogido no puede disfrutar de la beca otorgada, deberá comunicarlo inmediatamente que surja el impedimento a la Comisión para los fines consiguientes.
+En caso de encontrarse elaborado el contrato respectivo O el acuerdo da salida y el funcionario no disfrutare de la beca, deberá avisar de inmediato a la Comisión y a la Dirección de Asesoría Jurídica para lo respectivo.

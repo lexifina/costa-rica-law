@@ -1,0 +1,1 @@
+Articulo 16.—El miembro de la Comisión que faltare sin excusa justificada dos veces seguidas o tres alternas en un período de seis meses perderá su credencial de miembro de la Comisión, debiendo ser sustituido por quien corresponda.

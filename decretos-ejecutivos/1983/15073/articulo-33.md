@@ -1,0 +1,1 @@
+Artículo 33.—El becario que en disfrute de una beca abandonare los estudios, mostrare falta de interés, o se trasladare a otro centro de estudios sin haber solicitado el respectivo permiso a la Comisión y tener su ratificación, perderá todo derecho a una nueva beca.

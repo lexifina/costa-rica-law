@@ -1,0 +1,1 @@
+Articulo 28.—El funcionario que en disfrute de una beca abandone los estudios por causas que no sean de fuerza mayor o muestre falta de interés en los mismos, perderá todo derecho a participar en otra beca.
