@@ -1,0 +1,2 @@
+ARTICULO 7: Las zonas de protección a que se refiere el siguiente Decreto son de acatamiento obligatorio para toda persona física o jurídica pública o privada. En ningún caso podrán levantarse, construirse o realizarse mejoras de obras y servicios que estimulen al desarrollo habitacional en las zonas que se declaran de protección.
+Las reparaciones y conservación de edificaciones sólo se permitirán en las zonas expresamente indicadas en los artículos 1, 2, y 3.

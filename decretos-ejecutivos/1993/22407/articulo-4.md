@@ -1,0 +1,1 @@
+ARTICULO 4: En el sector comprendido entre los ríos Corredor, Abrojo y la Carretera Interamericana (donde se localiza actualmente el Hospital de Ciudad Neily) se declaran como zonas no aptas para urbanizar, aquellas cuyos niveles sean inferiores
