@@ -1,0 +1,2 @@
+Transitorio
+Para los casos de inversiones en valores de emisores que se hubieran declarado en suspensión o cesación de pagos con anterioridad a la vigencia de este Acuerdo, los plazos para el aprovisionamiento comenzarán a regir a partir de su comunicación. No obstante lo anterior, en el caso de que el aprovisionamiento en dichos plazos pueda tener implicaciones severas sobre la solvencia de un puesto de bolsa, este podrá someter a la consideración del Superintendente una solicitud para realizarlo en un plazo mayor.
