@@ -1,0 +1,1 @@
+Artículo 14. –Para que pueda tener lugar lo dispuesto en el 3° del art. anterior, se interrogar en las causas criminales al tratado como reo, sobre la junta a que pertenezca, y se oficiar por el Juez a la Autoridad política local noticiándole la privación y suspensión de los derechos de ciudadano para que lo participe al Directorio.

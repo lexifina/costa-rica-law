@@ -1,0 +1,1 @@
+Artículo 42.-Las votaciones se harán de una en una, no pudiendo sufragarse por un destino hasta no haberse sufragado por otro. Las votaciones podrán recaer en individuos de la junta ó de fuera de ella.

@@ -1,0 +1,1 @@
+Artículo 30.-Concluida la votación, el Directorio verificar el escrutinio: publicará su resultado para el acto de disolverse la junta; y se tendrán por electos los que hubieren reunido mayor número de sufragios.-Cuando dos ó mas reunieren número igual decidirá la suerte.

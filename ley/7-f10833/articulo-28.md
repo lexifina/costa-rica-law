@@ -1,0 +1,1 @@
+Artículo 28. –Los libros de actas y listas de votaciones, antes de verificarse la computación, serán custodiados en la urna que refiere el artículo anterior encargándose de las llaves cada uno de los Escrutadores y no pudiéndose abrir ni cerrar sino a presencia de todos los individuos del Directorio.

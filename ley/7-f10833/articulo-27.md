@@ -1,0 +1,1 @@
+Artículo 27.-La misma Autoridad política proveer oportunamente a cada uno de los Directorios de una real urna con dos llaves y del papel sellado y común con los demás utensilios de escritorio que se necesiten, todo por cuenta de los fondos Municipales.

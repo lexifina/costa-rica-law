@@ -1,0 +1,1 @@
+Artículo 11.-Si alguna vez, a pesar de las insinuaciones del Presidente, alguno ó algunos de los ciudadanos cometieren excesos que perturben el orden, los podrá mandar salir de la sala, y en su caso ponerlos a disposición del Juez competente.
