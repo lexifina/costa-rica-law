@@ -1,0 +1,1 @@
+Artículo 3.- Rechazo de la inscripción. Los registros públicos negarán la inscripción de razones sociales, denominaciones, nombres comerciales, patentes, marcas o documentos que no se ajusten a las disposiciones del artículo 1 de esta ley y representen nombres de fantasía que deformen ortográfica y morfológicamente palabras del idioma español.

@@ -1,0 +1,1 @@
+Artículo 2.- Traducción a un idioma extranjero. Junto a la razón social o el nombre comercial, las denominaciones, las marcas de fábrica, los rótulos y anuncios, podrá colocarse su traducción a otro idioma, siempre que no se destaque sobre lo escrito en español.
