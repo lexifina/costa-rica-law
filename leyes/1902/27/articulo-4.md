@@ -1,0 +1,1 @@
+Artículo 4°.-Los derechos de exportación se establecen á razón de dos céntimos por kilogramo de conchaperla. Corresponde la mitad de este impuesto al Estado, y la otra mitad por partes iguales á Puntarenas y Guanacaste para sus respectivos Municipios.
