@@ -1,0 +1,1 @@
+Artículo 9°-Una vez que el Alcalde Municipal haya aprobado el otorgamiento de este beneficio para un servidor, deberá llenarse el respectivo contrato por prohibición que deberá ser firmado por el trabajador interesado y el Alcalde Municipal en calidad de representante de la Municipalidad.

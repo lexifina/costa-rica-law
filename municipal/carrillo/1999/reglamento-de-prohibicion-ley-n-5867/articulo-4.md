@@ -1,0 +1,1 @@
+Artículo 4°-La Municipalidad de Carrillo, una vez realizado el estudio a fin de determinar los puestos que reúnen los requisitos para el respectivo reconocimiento, procederá a pagar la prohibición a los funcionarios que los ocupan, siempre y cuando ostenten las condiciones académicas necesarias para percibirla.

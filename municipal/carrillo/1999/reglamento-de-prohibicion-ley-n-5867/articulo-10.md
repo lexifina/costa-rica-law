@@ -1,0 +1,1 @@
+Articulo 10.-Una vez firmado el contrato respectivo, el servidor no podrá ejercer en forma liberal la profesión comprometida con dicha prohibición, así como tampoco actividades relacionadas con esta o con su cargo, salvo las excepciones establecidas en este reglamento.

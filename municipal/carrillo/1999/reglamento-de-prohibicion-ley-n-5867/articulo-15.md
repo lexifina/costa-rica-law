@@ -1,0 +1,1 @@
+Artículo 15.-Cuando el servidor que disfrute del régimen de prohibición desee hacer uso de la excepción contenida en el artículo 14, deberá solicitar por escrito y recibir la respectiva autorización del Alcalde Municipal antes de iniciar el ejercicio de la profesión, bajo los supuestos ahí contenidos y de aquellos que no requieren autorización previa.
