@@ -14,3 +14,4 @@ Reglamento para Juzgar la Situación Económica-Financiera de las Entidades Fisc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-09 | la propia norma |
+| 2 | 2001-06-11 | Reglamento 231 (2001-06-11) |

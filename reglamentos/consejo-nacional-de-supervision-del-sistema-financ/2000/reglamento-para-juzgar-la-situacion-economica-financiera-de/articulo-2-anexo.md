@@ -56,6 +56,9 @@ Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranje
 Capital primario más capital secundario hasta una suma que no exceda el capital primario.
 Riesgo de tasas de interés (Se adjunta detalle de método de cálculo)
 Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas) ] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva
+20041 Estimaciones genéricas, hasta el 1.25% de los activos ponderados por riesgo de la entidad.
+20042 Monto de las estimaciones mínimas para la cartera clasificada en categorías de riesgo B2, C, D y E, según el Acuerdo SUGEF -1-95
+(Así adicionado por el artículo 7° del Reglamento N° 231- 2001 del 11 de junio del 2001)
 FORMA DE CÁLCULO DE PÉRDIDAS ESPERADAS EN ACTIVOS ESTABLECIDA EN EL ARTÍCULO 3 DE ESTE REGLAMENTO
 La SUGEF cuantificará y modificará los niveles de pérdida esperada sobre los activos totales, con base en:
 a) El acuerdo SUGEF 1-95 "Normas generales para la clasificación y calificación de la cartera de créditos, según el riesgo y para la constitución de provisiones o estimaciones" y sus modificaciones y anexos, vigente para Bancos Comerciales del Estado, Banco Popular y de Desarrollo Comunal, Bancos Privados, Cooperativos y Solidaristas, Empresas Financieras no Bancarias, Banco Hipotecario de la Vivienda, y Caja de Ahorro y Préstamo de la Asociación Nacional de Educadores.
