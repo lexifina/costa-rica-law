@@ -1,1 +1,0 @@
-Artículo 10.—Todo cajero que funcione como tal en una Caja Recaudadora de la Municipalidad de Tilarán, cerrará la caja delante del Tesorero Municipal y posteriormente este revisará el cierre delante del cajero.
