@@ -1,0 +1,59 @@
+Nº 24815-H
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE HACIENDA,
+Considerando:
+1º. Que la Norma de Ejecución del Presupuesto contenida en el artículo 12 en la Sección I Autorización para Recodificar, en el numeral 3 de
+la ley Nº 7465 del 6 de diciembre de 1994, establece:
+"Se autoriza al Poder Ejecutivo por medio de la Oficina de Presupuesto Nacional, para que mediante decreto y con la aprobación previa
+de la Contraloría General de la República, recodifique, según la codificación general vigente, los presupuestos ordinarios y extraordinarios,
+incorporados al Presupuesto Nacional".
+2º. Que la Contraloría General de la República aprobó el presente decreto ejecutivo, mediante oficio Nº 15019 de fecha 20 de noviembre de
+1995. Por tanto,
+Decretan:
+Artículo 1º.. Modifícase el artículo 3º de la ley Nº 7556 del 9 de octubre de 1995, en la forma que se indica a continuación:
+En pág. 31
+Donde dice:
+GO IP FF CE CF CONCEPTO MONTO ¢
+8 27 251 80 SERVICIO DE LA DEUDA
+PUBLICA 396,699,700
+814 AMORTIZACION CUENTAS
+PENDIENTES DE EJERCICIOS
+ANTERIORES 396,699,700
+(PARA CANCELAR DEUDAS DE 1994
+LOS PAGOS SE CANCELARAN BAJO
+LA MODALIDAD DE PLANILLA
+COLECTIVA (SE EXCEPTUA EL
+REGIMEN DEL FERROCARRIL).
+ESTA SUBPARTIDA SE DISTRIBUIRA
+DE LA SIGUIENTE MANERA: PARA
+PENSIONES DE DERECHO ¢ 152.900,
+REGIMEN DE PENSIONES HACIENDA
+Y PODER LEGISLATIVO ¢ 360.894.100,
+PARA REGIMEN DE PENSIONES DE
+OBRAS PUBLCIAS ¢ 11.115.900, PARA
+REGIMEN DE PENSIONES DEL FERRO-
+CARRIL ELECTRICO AL PACIFICO
+¢ 100.000, PARA REGIMEN DE PEN-
+SIONES DE GUERRA NO CONTRI-
+BUTIVO ¢ 24.436.800.
+Debe decir:
+GO IP FF CE CF CONCEPTO MONTO ¢
+8 27 251 80 SERVICIO DE LA DEUDA
+PUBLICA 396,699,700
+814 AMORTIZACION CUENTAS
+PENDIENTES DE EJERCICIOS
+ANTERIORES 396,699,700
+(PARA CANCELAR DEUDAS DE 1994,
+LOS PAGOS SE CANCELARAN BAJO
+LA MODALIDAD DE PLANILLA
+COLECTIVA (EXCEPTO EL
+FERROCARRIL).
+602 80 PENSIONES DE DERECHO 152,900
+605 80 PENSIONES HACIENDA Y PODER
+LEGISLATIVO 360,894,100
+607 80 PENSIONES DE OBRAS PUBLICAS 11.115.900
+610 80 PENSIONES DE EMPLEADOS DEL
+FERROCARRIL ELECTRICO AL
+PACIFICO 100,000
+611 80 PENSIONES DE GUERRA NO CONTRI-
+BUTIVO 24,436,000
