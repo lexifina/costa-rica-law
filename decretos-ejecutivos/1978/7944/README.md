@@ -21,3 +21,4 @@ Establece División Regional del Territorio de Costa Rica, para los efectos de i
 | 6 | 1988-07-20 | Decreto Ejecutivo 18423 (1988-07-20) |
 | 7 | 1992-06-10 | Decreto Ejecutivo 21349 (1992-06-10) |
 | 8 | 1993-09-30 | Decreto Ejecutivo 22604 (1993-09-30) |
+| 9 | 1997-12-16 | Decreto Ejecutivo 26584 (1997-12-16) |
