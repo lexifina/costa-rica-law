@@ -1,0 +1,1 @@
+Artículo 3°—Todas las jefaturas están obligadas a efectuar las evaluaciones del desempeño de sus subalternos, de manera objetiva y oportuna, cumpliendo con los plazos establecidos en el Manual de Procedimientos para la Evaluación del Desempeño caso contrario se considerará como falta grave, por lo que se les aplicarán sanciones que correspondan.
