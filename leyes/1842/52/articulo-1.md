@@ -1,0 +1,5 @@
+DECRETO LIL.
+El Gobierno Provisorio deroga el Decreto de 17 de Mayo de 1839, que mandaba celebrar con regocijo el aniversario de 27 de mayo de 1838. (1)
+El General Jefe Supremo Provisorio de Estado de Costa Rica.
+Considerando: Que declarada, por el voto unísono de todos los pueblos del Estado, la administración del Licenciado Señor Braulio Carrillo como precedente de un origen de hecho, no debe subsistir el Decreto dado por dicho Señor Carrillo con el objeto de solemnizar un dia que cuesta tantas lágrimas, á los Costarricenses –De acuerdo con el informe de la junta de que habla el Decreto de 18 del próximo pasado Abril, decreta.
+Art. único. –Se deroga en todas sus partes el Decreto expedido por el Señor Licenciado Braulio Carrillo en 17 de Mayo de 1839, que manda se celebre en los pueblos del Estado con regocijos públicos, el aniversario del día en que el mismo Licenciado Carrillo se apoderó del mandato Supremo de Costa Rica. –Dado en San José, á dieziocho de Mayo de mil ochocientos cuarenta y dos. –Francisco Morazan. –Al Ministro general del Despacho Señor. General José Miguel Saravia.
