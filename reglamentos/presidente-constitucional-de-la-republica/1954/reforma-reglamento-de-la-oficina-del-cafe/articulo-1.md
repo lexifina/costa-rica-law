@@ -1,0 +1,5 @@
+N° 82-H.- San José, 3 de marzo de 1954.
+EL PRESIDENTE CONSTITUCIONAL DE LA REPUBLICA, ACUERDA:
+Modificar el artículo 2° del Reglamento de la Oficina del Café, aprobado según acuerdo N° 101- H de 10 de setiembre de 1948, el cual se leerá como sigue:
+Artículo 2°- La Junta de la Oficina del Café, al iniciar cada período legal, y de acuerdo con el Ministerio de Economía, nombrará al Director y Subdirector de la Oficina del Café, quienes tendrán a su cargo la Presidencia y Vicepresidencia de la Bolsa del Café y de la Junta de Liquidaciones. Estos Directores serán los jefes responsables de las oficinas y los encargados de ejecutar y de hacer ejecutar todas las resoluciones de la Junta de la Oficina del Café y de velar por el cumplinmiento de las disposiciones reglamentarias que se emitan para la mejor ejecusión de las mismas. Las resoluciones de estos funcionaros pueden ser apeladas ante la Junta de la Oficina, por los interesados que se crean perjudicados con ellas, para su confirmación o anulación."
+Rige a partir de su publicación.
