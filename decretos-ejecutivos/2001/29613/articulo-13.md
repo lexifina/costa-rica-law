@@ -1,0 +1,19 @@
+Artículo 13.—Deberes. El servidor que conduzca o a quien se le asigne un vehículo, propiedad de la Procuraduría General de la República, o que esté bajo su custodia, deberá:
+a) Portar el carné o el documento respectivo que lo identifique como funcionario de la Procuraduría General de la República, así como portar debidamente actualizada la licencia de conducir. El incumplimiento de esta disposición, hace responsable al conductor de toda causa civil o penal en caso de un eventual accidente de tránsito, sin perjuicio de las responsabilidades administrativas y disciplinarias a que se haga acreedor.
+b) Acatar lo dispuesto por las Leyes y Reglamentos que sobre la materia de tránsito se hayan emitido. Las multas por infracciones a las leyes de tránsito serán cubiertas por los conductores, salvo que éstas se deban a desperfectos en el vehículo, a caso fortuito o fuerza mayor.
+c) Portar y custodiar en el vehículo las herramientas y dispositivos de seguridad necesarios, así como los repuestos respectivos.
+d) Conducir el vehículo con el mayor cuidado y prudencia, manteniendo una actitud seria y responsable en el desempeño de sus funciones.
+e) Mantener en el mejor estado de conservación y limpieza el vehículo bajo su responsabilidad.
+f) Revisar previo a la utilización del vehículo, los lubricantes, frenos, dirección, luces, combustible, agua del radiador, agua destilada de la batería, presión de llantas y su estado, así como cualquier otra pieza fundamental para el buen funcionamiento del vehículo, supliendo o avisando a la Sección de Servicios Generales para lo que corresponda.
+g) Constatar que el vehículo porte los distintivos y placas correspondientes.
+h) No ceder la conducción del vehículo a personas no autorizadas para ello, salvo situaciones excepcionales de fuerza mayor o caso fortuito.
+i) Mantener fielmente el itinerario que se indique, debiendo abstenerse de realizar cambios en las rutas o destinos para asuntos personales suyos o de los usuarios del vehículo.
+j) Rendir un informe de la gira a la Sección de Servicios Generales, en aquellos casos que sea necesario, o a solicitud de ésta.
+k) Mantener el vehículo en lugar seguro durante la realización de la gira.
+l) Informar a la Sección de Servicios Generales, a más tardar un día hábil después de regresar de la gira, sobre cualquier desperfecto o falla mecánica que haya sufrido el vehículo.
+m) En caso de accidente o de cualquier otra infracción a la Ley de Tránsito, deberá presentar en forma inmediata o a más tardar dentro del día hábil siguiente, la denuncia respectiva ante la Sección de Servicios Generales, sin perjuicio de lo establecido en este Reglamento.
+n) En casos de accidentes, presentarse dentro del plazo establecido en la Ley de Tránsito a la Juzgado de Tránsito o autoridad judicial competente, a rendir declaración y presentar la prueba correspondiente. Igualmente debe presentarse al debate el día señalado.
+o) Reportar a más tardar dentro del día hábil siguiente, la desaparición o extravío de cualquier accesorio del vehículo. Los accesorios, repuestos y otros implementos de los vehículos, perdidos por negligencia, descuido o imprudencia del funcionario encargado, deberán ser restituidos por éste en igualdad de condiciones de calidad en un plazo no mayor a los quince días naturales; posterior a su extravío o pérdida.
+p) Presentar la solicitud y liquidación de cupones de combustible, según las normas establecidas.
+q) Comunicar lo antes posible a la Sección de Servicios Generales, cualquier circunstancia especial que impida el traslado del vehículo a aquel lugar de destino o a la sede de la Institución, o cuando se presente algún desperfecto del vehículo que impida su movilización, a fin de que se gestione la pronta reparación del mismo.
+r) Acatar las condiciones de seguridad y funcionamiento del vehículo bajo su responsabilidad.
