@@ -14,3 +14,4 @@ Reforma Reglamento de Crédito y Asignación de Recursos Reembolsables y No Reem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-01 | la propia norma |
+| 2 | 2004-01-20 | Reglamento 2497 (2004-01-21) |

@@ -1,4 +1,6 @@
+(Derogado)
 CONSEJO NACIONAL DE PRODUCCIÓN
+(DEROGADO mediante Sesión N° 2497 del 21 de enero de 2004)
 Que mediante Acuerdo de Junta Directiva Nº 35356, sesión Nº 2462, artículo 9, celebrada el 2 de julio del 2003, se acordó:
 Aprobar la Modificación al artículo 4º del Reglamento de Crédito y Asignación de Recursos Reembolsables y No Reembolsables del Programa de Reconversión Productiva, que ejecuta el Consejo Nacional de Producción, aprobado originalmente en las sesiones Nº 2023, artículo 2º y Nº 2025, artículo 3º, celebradas el 19 y 26 de agosto de 1998, a fin de que su texto se lea en la siguiente forma:
 "Artículo 4º—Los beneficiarios podrán optar por dos categorías de asignación de recursos o una combinación de ambos:
