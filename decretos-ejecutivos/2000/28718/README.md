@@ -14,3 +14,4 @@ Reglamento para el Control de Contaminación por Ruido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-14 | la propia norma |
+| 2 | 2000-12-04 | Decreto Ejecutivo 29190 (2000-12-04) |

@@ -1,1 +1,2 @@
-Artículo 30.-Derogatoria: Deróguese los artículos 6 y 50 del Decreto Ejecutivo N° 11492-S de 22 de abril de 1980 y sus reformas.
+Artículo 30.- Derogatoria: Deróguese los artículos 6 y 50 del Decreto Ejecutivo N° 11492-S de 22 de abril de 1980 y sus reformas.
+NOTA DE SINALEVI: La derogatoria realizada a este artículo por el decreto ejecutivo N° 29190 del 4 de diciembre del 2000, quedó sin efecto, al ser derogado este último por el artículo 1° del decreto ejecutivo N° 33168 del 17 de mayo del 2000, por lo cual el artículo recobra el texto que tenía antes de la derogación.
