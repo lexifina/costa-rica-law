@@ -1,0 +1,1 @@
+Artículo 7º—Inversiones y Préstamos. El Jefe Administrativo podrá invertir los recursos del fondo y tramitar los préstamos. de acuerdo con las políticas previamente aprobadas por la Junta Administrativa con alta seguridad, liquidez y con la mayor rentabilidad posible.
