@@ -14,3 +14,4 @@ Reglamento de Procedimientos y Organización de los Transportes y Pago de Kilome
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-05 | la propia norma |
+| 2 | 2000-02-02 | Reglamento 179 (2000-02-02) |
