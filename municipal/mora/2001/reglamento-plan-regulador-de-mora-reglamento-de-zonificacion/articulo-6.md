@@ -1,0 +1,4 @@
+Artículo 6°—Zona Comercial Residencial. (Z.C.R.): Esta zona corresponde a sectores ubicados a orillas de las carreteras nacionales que atraviesan Ciudad Colón, y que presentan una alta tendencia al uso comercial por su ubicación, sin embargo tienen un uso residencial consolidado que se pretende proteger pero permitiendo ambos usos.
+1. Usos permitidos. Será permitido el uso comercial inocuo, o sea que no provoque molestias el uso residencial establecido ajuicio de la Municipalidad y el Ministerio de Salud, la vivienda unifamiliar y oficinas de profesionales.
+2. Usos no conformes. Rige lo mismo que para la zona comercial, además los bares y cantinas.
+3. Requisitos. Se cumplirá con los mismos requisitos que para la zona comercial, con excepción de la vivienda que la cobertura máxima será del 70% del área del lote.

@@ -1,0 +1,3 @@
+Articulo 9°—Zona de Áreas Verdes (Z.A.V.): Dentro del cuadrante de Ciudad Colón, es mínima el área que se dedica a áreas verdes v recreativas o esparcimiento, por lo que se proponen algunos terrenos para ser rescatados dentro del desarrollo urbano, en procura de mayores facilidades e instalaciones adecuadas.
+1. Usos permitidos. Los terrenos y edificios principales y accesorios, se usarán para: centros comunales, facilidades recreativas pasivas, deportivas, museos, comercio menor de apoyo y cualquier otro servicio para el buen funcionamiento de estas áreas.
+2. Requisitos. Serán definidos para cada caso por la Municipalidad en consulta a la Dirección de Urbanismo INVU pero nunca serán menores a las normas generales para este uso.
