@@ -1,0 +1,6 @@
+DECRETO XXXVIII.
+Concede privilegio exclusivo al Señor Benito Dengo por la invención de una máquina. (1)
+(1) Derogado por el art. 2° del Decreto n° 14 de 24 de Agosto de este mismo año, fue después rehabilitado por el Decreto n° 18 de 30 de Agosto del mismo año.
+El Jefe Supremo del Estado de Costa Rica.
+Con presencia del reconocimiento que el Jefe Político del Departamento de San José ha practicado con peritos, de la máquina inventada por el señor Benito Dengo, para moler y limpiar el café de la primera cáscara; y apareciendo por los ensayes ejecutados un resultado completo, que simplifica el beneficio, y ofrece grandes economías á los cultivadores de tan rico y abundante fruto. En uso de la facultad 10a § 1° art. 5° del decreto de bases y garantías, decreta.
+Art. 1° Se premiará á Señor Benito Dengo, por la invención de la máquina referida, con cien pesos que recibirá en el tesoro del Estado; y ademas, se le concede el derecho de cobrar y percibir veinticinco pesos, una sola vez en el término de diez años, por cada una de las máquinas que se hagan de esta naturaleza, iguales al diseño, simplificando la operación ó mejorándola; para cuyos efectos, se pondrá á la vista de todos el mismo diseño en la oficina del Jefe Político, permitiéndose al que quisiese fabricar por él, que le conozca y examine.
