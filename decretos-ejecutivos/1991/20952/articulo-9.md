@@ -1,6 +1,6 @@
 ARTÖCULO 9§- Para los fines del presente Decreto, as¡ como
 para los
-efectos propios de la descarga, recibo dep¢sito y aforo 3 de las
+efectos propios de la descarga, recibo, dep¢sito y aforo de las
 mercanc¡as extranjeras, se declara zona primaria el rea o
 espacio donde
 se asientan los almacenes de dep¢sito fiscal. La presente

@@ -13,3 +13,4 @@ Regula Depósito Provisorio de Manejo Mercaderías en Recintos Aduaneros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-01-24 | la propia norma |
+| 2 | 1992-01-24 | SINALEVI (sin norma nombrada) |
