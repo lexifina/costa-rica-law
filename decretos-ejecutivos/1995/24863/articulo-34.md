@@ -11,7 +11,7 @@ los bienes que se vayan a importar no se fabriquen en el
 territorio de los países signatarios del Convenio sobre Régimen
 Arancelario y Aduanero Centroamericano, en condiciones
 competitivas de precio, cantidad, calidad y oportunidad, a juicio
-del Ministerio de Economía Industria y Comercio.
+del Ministerio de Economía Industria y Comercio.(*)
 b) Depreciación acelerada, de conformidad con la Ley de Impuesto
 sobre la Renta.
 c) Exoneración de todo tributo y sobretasa, excepto de los derechos
@@ -31,3 +31,6 @@ bandera nacional.
 No se exonerarán los avíos, ni los bienes que se adicionen o
 aquellos a usar en reposición de otros exonerados que formaban parte
 componente de la nave.
+(*) (Derogado parcial y tácitamente, respecto de las excenciones del impuesto sobre las ventas,
+por el inciso b) del artículo 17 de la Ley N° 8114,
+Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).

@@ -23,6 +23,9 @@ citadas condiciones.
 b) Depreciación acelerada sobre los bienes, que por su uso o
 naturaleza se extinguen con mayor rapidez de conformidad con la
 Ley del Impuesto sobre la Renta.
+(Derogado parcial y tácitamente, respecto de las excenciones del impuesto sobre la renta,
+por el inciso c) del artículo 22 de la Ley N° 8114,
+Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).
 c) Concesión por las municipalidades correspondientes, dentro de los
 treinta días siguientes a la solicitud, de las patentes y
 permisos municipales, que requieran las empresas para el
@@ -50,3 +53,6 @@ Metropolitana delimitada por el Ministerio de Planificación. Para
 estos fines, la empresa demostrará a la Administración Tributaria
 la exención a que tiene derecho, adjuntando a su solicitud
 respectiva, una fotocopia de su contrato.
+(Derogado parcial y tácitamente, respecto de las excenciones del impuesto sobre las ventas,
+por el inciso b) del artículo 17 de la Ley N° 8114,
+Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).
