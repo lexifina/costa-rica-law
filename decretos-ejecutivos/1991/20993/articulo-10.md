@@ -1,0 +1,7 @@
+Artículo 10.-Modifíquese el encabezado del artículo 25 del decreto ejecutivo N° 20618-MIRENEM, para que se lea así:
+Modifíquese el artículo 97 del decreto ejecutivo N° 19886-MIRENEM, para que se lea así:
+Los interesados en obtener la asistencia técnica en el control de plagas y enfermedades forestales, deberán solicitarlo por escrito ante el Departamento de Reforestación y Protección Forestal de la DGF, quien deberá atender la solicitud con la prontitud que el caso amerita.
+El interesado colaborará financiando los gastos productos de las inspecciones y análisis de las muestras que se requieran, para la identificación del agente causal del daño.
+En caso de que la DGF considere de prioridad el combate de una plaga en una plantación, vivero y otros, lo comunicará por escrito al propietario y en caso de que este no acate las disposiciones, la DGF procederá a efectuar las labores correspondientes y los gastos originados en tal acción correrán a cargo de dicho propietario.
+Cuando el interesado de los servicios de laboratorio (patológico o entomológicos), para análisis de muestras, este deberá correr con los gastos de identificación y envío de los laboratorios nacionales e internacionales.
+El envío de muestras por parte de los interesados a la DGF deberá ajustarse a los procedimientos establecidos por el laboratorio de plagas del Departamento de Reforestación y Protección Forestal de la Dirección General Forestal.
