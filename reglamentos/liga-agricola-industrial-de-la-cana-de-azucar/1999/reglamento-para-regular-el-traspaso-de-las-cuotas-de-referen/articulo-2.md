@@ -1,0 +1,4 @@
+Artículo 2°-Todo traspaso de la indicada cuota individual de referencia, en los supuestos autorizados por la ley, deberá comprender, necesariamente, la totalidad de dicha cuota y deberá inscribirse en el Registro de Productores.
+Se exceptúan de lo anterior, los siguientes casos:
+Cuando la cuota de referencia constituya un bien ganancial y deba distribuirse en los supuestos establecidos en el Código de Familia. Si conforme a lo anterior, procede, la cuota de referencia se dividirá entre los excónyuges, en iguales proporciones y podrá ejercerse en concordancia con lo dispuesto por la ley y este reglamento.
+En caso de fallecimiento del titular de la cuota de referencia, se aplicará lo dispuesto por el artículo 69 de la ley, una vez que, si procede, se haya aplicado lo dispuesto en el inciso anterior.
