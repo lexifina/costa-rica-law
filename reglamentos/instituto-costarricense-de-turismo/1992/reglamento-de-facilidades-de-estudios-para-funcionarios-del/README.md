@@ -15,3 +15,4 @@ Reglamento de facilidades de Estudios para Funcionarios del Instituto Costarrice
 | --- | --- | --- |
 | 1 | 1992-12-09 | la propia norma |
 | 2 | 1996-10-07 | Reglamento 4674 (1996-10-07) |
+| 3 | 1999-09-13 | Reglamento 4956 (1999-09-13) |
