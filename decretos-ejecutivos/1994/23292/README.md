@@ -14,3 +14,4 @@ Reforma al Reglamento Autónomo de Servicios de la Dirección Ejecutora de Proye
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-23 | la propia norma |
+| 2 | 1996-08-01 | Decreto Ejecutivo 25752 (1996-08-01) |
