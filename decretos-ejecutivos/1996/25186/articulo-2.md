@@ -1,0 +1,1 @@
+Artículo 2°—Además de reformar los artículos enumerados en el artículo 1°, el presente decreto deroga el Reglamento 19137-RE del 12 de julio de 1989, y toda otra norma de igual o inferior rango que se le oponga.
