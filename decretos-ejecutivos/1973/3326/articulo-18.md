@@ -1,0 +1,1 @@
+Artículo 18.—Cuando se trate del traspaso de un certificado de explotación, el interesado deberá presentar la documentación exigida por la ley y este Reglamento para el trámite de solicitud de certificados de explotación.

@@ -1,0 +1,1 @@
+Artículo 2°—Compete igualmente al Consejo Técnico de Aviación Civil la autorización o declaración de la prórroga, caducidad, suspensión, revocación, modificación o cancelación de los certificados de explotación para la prestación de los servicios aeronáuticos o conexos con ellos.

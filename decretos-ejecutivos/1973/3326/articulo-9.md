@@ -1,0 +1,1 @@
+Artículo 9°—Los interesados deberán presentar sus objeciones a la solicitud del gestionante en forma escrita, en papel de la décima clase, en forma personal o autenticado por un abogado, junto con la prueba correspondiente. La oportunidad para la presentación de estas objeciones vence tres días hábiles antes de la celebración de la audiencia pública.

@@ -1,0 +1,1 @@
+Artículo 5°—Tratándose de empresas costarricenses interesadas en obtener un certificado de explotación para cualquier servicio aeronáutico, deben comprobar que el control efectivo y la dirección de la empresa, y por lo menos el 51% del capital, se encuentran en poder de nacionales.

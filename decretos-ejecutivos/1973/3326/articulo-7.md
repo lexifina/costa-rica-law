@@ -1,0 +1,3 @@
+Artículo 7°—La Dirección General de Aviación Civil recibirá los documentos relativos a las solicitudes de certificados de explotación. Velará por que los interesados cumplan con todos los requisitos exigidos por la Ley General de Aviación Civil y por este Reglamento.
+Una vez que la Dirección considere que se ha completado toda la documentación requerida, la trasladará, para su conocimiento y resolución, al Consejo Técnico de Aviación Civil.
+El Consejo Técnico de Aviación Civil, recibidos los documentos relativos a la solicitud respectiva, ordenará la publicación de un aviso en el Diario Oficial a fin de que los interesados presenten por escrito sus consideraciones dentro del plazo máximo de quince días.
