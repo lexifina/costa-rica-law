@@ -1,0 +1,1 @@
+Artículo 17.—La comunicación de resultados debe hacerse por escrito durante el desarrollo de la auditoría o estudio especial de auditoría, mediante memorando, oficios o informes parciales, o al finalizar labor de campo, por medio del informe final.
