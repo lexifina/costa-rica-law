@@ -19,3 +19,4 @@ Reglamento para la regulación y control del uso eficiente del combustible a pre
 | 4 | 2003-11-21 | Reglamento 509 (2003-11-21) |
 | 5 | 2004-07-09 | Reglamento 318 (2004-07-09) |
 | 6 | 2004-08-27 | Reglamento 386 (2004-08-27) |
+| 7 | 2004-11-19 | Reglamento 518 (2004-11-19) |
