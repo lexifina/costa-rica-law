@@ -1,0 +1,1 @@
+Art II. —El enjuiciamiento y castigo por tales delitos corresponden á los Gobernadores de las provincias y comarcas. De las sentencias que se dicten, sólo se concederá el recurso de apelación para ante la Secretaría Policía.
