@@ -1,1 +1,0 @@
-Artículo 5º.- La obligación alimentaria que se contraiga ante los personeros legales del Patronato Nacional de la Infancia tendrá los mismos efectos de sentencia ejecutoria, sólo susceptible de las variantes, en cuanto existencia y monto, que correspondan de acuerdo con la ley.
