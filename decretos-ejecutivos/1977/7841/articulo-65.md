@@ -1,25 +1,4 @@
-Artículo 65.- Los lotes o parcelas en las zonas declaradas
-turísticas destinados a uso habitacional, tendrán un frente mínimo del 15
-metros y máximo de 30 metros; el área mínima de cada lote será de 300
-metros cuadrados y la máxima de 2000 metros cuadrados. Iguales
-limitaciones se aplicarán a las parcelas que se den en concesión con
-fines de esparcimiento, descanso y vacaciones de acuerdo con lo dispuesto
-en el artículo 57, inciso c), de la Ley y en el artículo 66 del
-reglamento.
-Para usos comerciales, los mínimos serán 10 metros de frente y 150
-metros cuadrados de área. El frente máximo será de 20 metros y el área
-máxima de 1000 metros cuadrados. Las dimensiones de los lotes para otros
-usos serán establecidas en el plan de ordenamiento de la zona y, en
-ausencia de éste, determinadas por la municipalidad con la aprobación
-del ICT y el INVU.
-Todas las construcciones, en la zona marítimo-terrestre tendrán
-retiros laterales y frontales, no menores de tres metros.
-Se exceptúan del requisito de frente máximo aquellos lotes o parcelas
-destinadas a uso habitacional o comercial cuando, cumpliendo con el
-requisito de área máxima, la extensión del fondo esté limitada por
-condiciones topográficas, obstáculos naturales caminos y servidumbres
-públicas, manglares y esteros, u otros impedimentos físicos determinados
-por el ICT. En estos casos deberá mantenerse un fondo mínimo de 25
-metros en parcelas para uso habitacional y 15 metros para uso comercial.
-(Así adicionado en su último párrafo por el artículo 1º del Decreto Nº
-13387 de 25 de febrero de 1982)
+Artículo 65.—Los lotes o parcelas, en las zonas declaradas turísticas destinadas a uso habitacional unifamiliar tendrán un área mínima de 500 metros cuadrados y un área máxima de 4000 metros cuadrados. Iguales limitaciones se aplicarán a las parcelas que se den en concesión con fines de esparcimiento, descanso y vacaciones de acuerdo con lo dispuesto en el artículo 57, inciso c) de la Ley.
+Las dimensiones de los lotes para todos los otros usos serán establecidas en el plan regulador de la zona.
+Todas las construcciones en la zona marítimo terrestre tendrán retiros laterales y frontales no menores de tres metros.
+(Así reformado por el Artículo 1° del decreto ejecutivo N° 29059- MP- MEIC-TUR del 03 de noviembre del 2000)

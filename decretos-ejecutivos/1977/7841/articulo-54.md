@@ -12,11 +12,4 @@ terreno.
 caso, copia de la solicitud de concesión.
 5.- Calidad de los solicitantes, incluyendo el acta constitutiva de
 la sociedad, en su caso.
-6.- Estudios de factibilidad.
-La solicitud original se reintegrará para efectos fiscales con
-timbre o papel sellado de un colón. Tanto el INVU como el ICT contarán
-con sesenta días en esta etapa para resolver sobre la solicitud y se
-coordinarán para agilizar su trámite. Ambas instituciones harán las
-consultas del caso cuando se requiera la intervención de otros organismos
-oficiales en la aprobación de los planos y estos dispondrán de un plazo
-de treinta días naturales para presentar su informe.
+6.- (Así derogado expresamente por el artículo 2° del decreto ejecutivo N° 29059-MP-MEIC-TUR del 03 de noviembre del 2000)

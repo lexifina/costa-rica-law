@@ -1,10 +1,2 @@
-Artículo 15.- De acuerdo con lo estipulado en los artículos 19 y 35
-de la Ley, las municipalidades no podrán aprobar obras de construcción,
-reconstrucción o remodelación en la zona marítimo terrestre hasta tanto
-no se produzca la declaratoria de zona turística o no turística por parte
-del ICT.
-Las municipalidades podrán otorgar concesiones antes de que se
-produzca la declaratoria respectiva, siempre que las mismas no involucren
-construcciones, reconstrucciones o remodelaciones de ninguna especie, y
-se sigan los procedimientos establecidos en este reglamento para tal
-efecto.
+Artículo 15.- Las municipalidades no podrán aprobar obras de construcción, reconstrucción o remodelación hasta tanto no se produzca la declaratoria de zona de aptitud turística o no turística por parte del ICT, se haya aprobado y publicado el plan regulador costero, y se cuente con el respectivo contrato de concesión debidamente inscrito en el Registro General de Concesiones de la Zona Marítimo Terrestre en el Registro Nacional.
+(Así reformado por el artículo 1° del decreto Ejecutivo N° 29059-MP-MEIC-TUR del 03 de noviembre del 2000)

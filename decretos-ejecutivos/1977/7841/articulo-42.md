@@ -1,5 +1,3 @@
-Artículo 42.- Una vez practicada la comparecencia, la oficina de
-concesiones o el ejecutivo municipal preparará un proyecto de resolución,
-pronunciándose sobre si se otorga la concesión en forma total o parcial,
-o si se deniega la solicitud. Este proyecto deberá elevarse al Concejo
-Municipal para que decida sobre él, según lo estime conveniente.
+Artículo 42.—Realizada la comparecencia o no habiéndose realizado oposiciones, el Alcalde contará con treinta días hábiles para preparar el proyecto de resolución, en el cual se pronunciará sobre si se otorga la concesión en forma total o parcial o si se deniega. De no presentarse oposiciones, dicho plazo se contará a partir del día siguiente al vencimiento del plazo para presentar oposiciones. De presentarse alguna oposición, correrá a partir del día siguiente de la realización de la comparecencia oral y privada.
+Este proyecto deberá ser elaborado de forma razonada y evacuando el criterio de la oficina de la zona marítimo terrestre, si la hubiera; y luego será elevado al Concejo municipal para que decida, según lo estime conveniente.
+(Así reformado por el Artículo 1° del decreto ejecutivo N° 29059- MP- MEIC-TUR del 03 de noviembre del 2000)

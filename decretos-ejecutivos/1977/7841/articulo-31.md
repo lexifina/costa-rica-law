@@ -1,4 +1,2 @@
-Artículo 31.- Las notificaciones deberán hacerse por medio de un
-notificador o por carta certificada y en este último caso se considera
-practicada a partir de la fecha en que la oficina de correos de la
-localidad emita el primer aviso.
+Artículo 31.—Las notificaciones se harán en la dirección o al número de fax señalados en la solicitud de concesión, o en su defecto se hará de acuerdo a los establecido en el artículo 243 de la Ley General de Administración Pública. Se tiene por practicada la notificación por fax con el reporte de trasmisión afirmativo y los plazos comenzarán a computarse a partir del día siguiente de haberse practicado la notificación por fax.
+(Así reformado por el Artículo 1° del decreto ejecutivo N° 29059- MP- MEIC-TUR del 03 de noviembre del 2000)
