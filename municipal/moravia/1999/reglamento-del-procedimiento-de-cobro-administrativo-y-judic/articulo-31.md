@@ -1,0 +1,1 @@
+Artículo 31.—Los morosos que se encuentren en las condiciones establecidas en el artículo 30 de éste Reglamento, deberán solicitar a la Oficina de Cobros el formulario denominado "Requisito para hacer arreglos de pago."

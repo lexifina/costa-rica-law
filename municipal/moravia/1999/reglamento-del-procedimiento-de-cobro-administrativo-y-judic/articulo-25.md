@@ -1,0 +1,1 @@
+Artículo 25.—El cálculo de honorarios profesionales debe ser realizado únicamente por el profesional en derecho, tomando como base el decreto ejecutivo de honorarios de abogado que estuviese vigente y los mismos serán pagados por el deudor.
