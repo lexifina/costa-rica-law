@@ -1,0 +1,1 @@
+Art. 2. Por consecuencia se confinan dicho punto, cuya guarnicion se aumentarà convenientemente, los reos Presbitero Luis Francisco Perez, Manuel Segura, Rosa Delgado, Vicente Calvo, Francisco Lopez, Patricio Ortiz, Rafael Solano y José Noboa: los tres primeros por seis años, y por cuatro los demas.
