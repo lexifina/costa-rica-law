@@ -1,0 +1,1 @@
+Art. 69. –El Director en Jefe, en el Reglamento de régimen interior de las oficinas, determinará con debida precisión y claridad, las faltas leves de que sean responsables los telegrafistas, lo mismo que las circunstancias que las agravan ó atenúan.

@@ -1,0 +1,1 @@
+Art. 45. -De ningún telegrama referente á cuestión judicial, se hará certificación á nadie, que no sea la persona que lo dirigió ó la que lo hubiere recibido, sin que el Juez del negocio lo decrete; en cuyo caso podrá dicha certificación librarse por el Diréctor en Jefe, previa orden de la Secretaria de Gobernación.

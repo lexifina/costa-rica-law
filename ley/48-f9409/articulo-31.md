@@ -1,0 +1,1 @@
+Art. 31. -Cuando individuos del comercio, bajo una razón social conocida, deseen que se les trasmitan telegramas, con una combinación especial, podrán efectuarlo, pero obligándose á dar la clave al Director del ramo, quien guardara reserva sobre el particular.

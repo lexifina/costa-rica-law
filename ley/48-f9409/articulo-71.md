@@ -1,0 +1,1 @@
+Art. 71. –El Director del Telégrafo y el Telegrafista principal, tendrán particular cuidado de hacer presente á todos los empleados, la responsabilidad que contraen, y de explicarles minuciosamente las disposiciones penales de este Reglamento, y las del Penal citadas

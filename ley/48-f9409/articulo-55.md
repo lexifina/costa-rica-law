@@ -1,0 +1,1 @@
+Art. 55. -Las cifras numéricas que contenga el cuerpo de un telegrama, deberán expresarse en palabras y también en números así: 20 cs, veinte centavos; $ 9, nueve pesos. Solo se cobrará por el número necesario de palabras para expresar las cantidades y no por las cifras.
