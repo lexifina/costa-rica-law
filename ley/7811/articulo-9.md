@@ -1,7 +1,0 @@
-Artículo 9.- Impuesto determinado de oficio La Municipalidad está facultada para determinar, de oficio, el impuesto de patentes municipales que debe pagar el contribuyente o responsable cuando:
-a) Revisada su declaración municipal según los artículos 13 y 16 de la presente ley, permita comprobar la existencia de intenciones defraudatorias.
-b) No haya presentado la declaración jurada municipal.
-c) Aunque haya presentado la declaración jurada municipal, no haya aportado la copia de la declaración presentada a la Dirección General de Tributación Directa.
-d) Aunque haya presentado la declaración jurada municipal, aporte una copia alterada de la declaración que presentó a la Dirección General de Tributación Directa.
-e) Se trate de una actividad recientemente establecida, sujeta al procedimiento previsto en el artículo 15 de esta ley.
-f) Se trate de otros casos considerados en la presente ley.
