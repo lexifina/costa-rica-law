@@ -1,8 +1,9 @@
 (Derogado)
-Ley 4322
+Ley Nº 4322
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7333 de 05 de mayo de 1993,
+Ley Orgánica del Poder Judicial.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
-La siguiente:
 LEY DE ACTUARIOS JUDICIALES
 CAPÍTULO PRIMERO
 Disposiciones Generales
