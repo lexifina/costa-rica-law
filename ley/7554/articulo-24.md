@@ -1,0 +1,4 @@
+ARTICULO 24.- Consulta de expedientes
+Los criterios técnicos y los porcentajes de ponderación para analizar
+los estudios de impacto ambiental por parte de la Secretaría Técnica
+Nacional Ambiental, deben ser de conocimiento público.

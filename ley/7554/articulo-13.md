@@ -1,0 +1,6 @@
+ARTICULO 13.- Fines de la educación ambiental
+La educación ambiental relacionará los problemas del ambiente con las
+preocupaciones locales y la política nacional de desarrollo; además,
+incorporará el enfoque interdisciplinario y la cooperación como
+principales fórmulas de solución, destinadas a promover la conservación y
+el uso sostenible de los recursos naturales.

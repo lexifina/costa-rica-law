@@ -1,0 +1,7 @@
+ARTICULO 33.- Monumentos naturales
+Se crean los monumentos naturales como áreas que contengan uno o
+varios elementos naturales de importancia nacional. Consistirán en lugares
+u objetos naturales que, por su carácter único o excepcional, su belleza
+escénica, o su valor científico, se resuelva incorporarlos a un régimen de
+protección. Los monumentos naturales serán creados por el Ministerio del
+Ambiente y Energía y administrados por las municipalidades respectivas.

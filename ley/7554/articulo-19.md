@@ -1,0 +1,4 @@
+ARTICULO 19.- Resoluciones
+Las resoluciones de la Secretaría Técnica Nacional Ambiental deberán
+ser fundadas y razonadas. Serán obligatorias tanto para los particulares,
+como para los entes y organismos públicos.

@@ -1,0 +1,6 @@
+ARTICULO 42.- Delimitación de zonas protegidas
+El Ministerio del Ambiente y Energía, en coordinación con las
+instituciones competentes, podrá delimitar zonas de protección de
+determinadas áreas marinas, costeras y humedales, las cuales se sujetarán
+a planes de ordenamiento y manejo, a fin de prevenir y combatir la
+contaminación o la degradación de estos ecosistemas.
