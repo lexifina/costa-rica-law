@@ -1,0 +1,1 @@
+Artículo 7°-Los directores, administradores y jefes en general de las diferentes instituciones públicas tienen la obligación de ofrecer todas las facilidades y la colaboración necesaria para el desarrollo de las funciones que le competen a las unidades de Contraloría de Servicio.

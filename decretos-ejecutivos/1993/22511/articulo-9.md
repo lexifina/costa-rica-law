@@ -1,0 +1,1 @@
+Artículo 9°-Las administraciones central y descentralizada incluirán dentro de sus reglamentos de organización y funciones, un capítulo referente a las unidades de Contraloría de Servicios que contendrá las normas de funcionamiento específico de esas contralorías.

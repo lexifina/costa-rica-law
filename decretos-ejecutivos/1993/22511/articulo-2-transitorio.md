@@ -1,0 +1,2 @@
+Transitorio 2°-Los funcionarios que actualmente se encuentren desempañando el cargo de Contralor de Servicios a la fecha de entrada en vigencia de este Decreto, podrán continuar desempañando el citado cargo, sin que su designación se sujete al cumplimiento de los requisitos que el decreto establece para esos fines.
+Dado en la Presidencia de la República.-San José, a los diecisiete días del mes de setiembre de mil novecientos noventa y tres.
