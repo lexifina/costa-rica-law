@@ -1,0 +1,1 @@
+Artículo 7°. —La propiedad que se adquiere con la inscripción y el depósito de una marca de fábrica ó de comercio, establece solamente el derecho al uso de la misma marca, pero en ningún caso el de fabricación ó expendio exclusivos del producto ú objeto.
