@@ -1,4 +1,4 @@
-Artículo 21.- Toda persona, oficial o particular, que pretenda
+ARTICULO 21.- Toda persona, oficial o particular, que pretenda
 producir, poseer, importa, exportar, comercializar o usar sustancias
 radioactivas naturales o artificiales o equipos nucleares con fines de
 investigación, educación o entrenamiento, en la industria, la medicina, la

@@ -1,6 +1,6 @@
 CAPITULO V
 Ingresos y Patrimonio
-Artículo 40.- Los ingresos de la Comisión se contituirán en la forma
+ARTICULO 40.- Los ingresos de la Comisión se contituirán en la forma
 siguiente:
 1. Mediante subvención que por una suma no inferior a 50.000 colones
 deberá asignarle el Gobierno Central anualmente en el Presupuesto General

@@ -1,4 +1,4 @@
-Artículo 15.- La Comisión tendrá las siguientes funciones:
+ARTICULO 15.- La Comisión tendrá las siguientes funciones:
 1. La supervisión, coordinación, fomento o realización de:
 a) Los programas de investigación científica encaminados al desarrollo
 de las aplicaciones pacíficas de la energía atómica a la agricultura, la

@@ -1,4 +1,4 @@
-Artículo 2º.- La presente ley tiene por objetivo:
+ARTICULO 2º.- La presente ley tiene por objetivo:
 a) Fomentar las aplicaciones, el desarrollo y la investigación de la
 energía atómica con fines pacíficos;
 b) Regular la posesión y el uso de todas las sustancias radioactivas

@@ -1,4 +1,4 @@
-Artículo 41.- La Comisión tendrá capacidad para comprar, vender y
+ARTICULO 41.- La Comisión tendrá capacidad para comprar, vender y
 arrendar los bienes muebles e inmuebles necesarios para el
 desenvolvimiento de sus funciones.
 Podrá también emprestar o financiar y, en general, llevar a cabo
