@@ -1,0 +1,3 @@
+Transitorio II.- Para garantizar el cumplimiento de los fines establecidos en el Convenio PROCOOPCA, concretamente en el acápite 3.1.1 del addendum No. 3 en el sentido de que los recursos, en forma íntegra pasen a pertenecer a las cooperativas de base, el INFOCOOP abrirá una línea de crédito en condiciones especialmente blandas para pequeñas cooperativas de base que deseen participar en el mecanismo de capitalización; todo ello, sin perjuicio de las líneas ya abiertas ni de las que se abrirán para el movimiento cooperativo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.- San José, a los veintinueve días de mes de octubre de mil novecientos noventa y ocho.
