@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios de la Empresa de Servicios Públicos de Heredi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-23 | la propia norma |
+| 2 | 2002-11-21 | Reglamento 266 (2002-11-21) |
