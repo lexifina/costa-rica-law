@@ -1,0 +1,1 @@
+Artículo 3º—Las contrataciones directas estarán bajo la dirección y supervisión del subproceso de bienes y servicios, el cual será responsable de llevar a cabo los procedimientos de contratación, en coordinación con los demás órganos o unidades del Comité.

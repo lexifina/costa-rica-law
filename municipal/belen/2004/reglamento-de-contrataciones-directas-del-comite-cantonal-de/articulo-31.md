@@ -1,0 +1,1 @@
+Artículo 31.—Se podrán hacer adelantos de dinero a cualquier funcionario del Comité para gastos por concepto de viáticos y transportes, de acuerdo con el Reglamento de Gastos de Viaje de la Contraloría General de la República. En este supuesto, el funcionario deberá presentar la liquidación de gastos dentro de los tres días hábiles siguientes a la conclusión de la gira o viaje.

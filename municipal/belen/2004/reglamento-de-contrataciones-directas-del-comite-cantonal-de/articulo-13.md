@@ -1,0 +1,1 @@
+Artículo 13.—Corresponderá al Subproceso, una vez adjudicada la contratación, preparar la respectiva orden de compra. La orden de compra es el documento por el cual se compromete el monto presupuestado y, a la vez, genera el compromiso con el contratista para la adquisición del bien o del servicio seleccionado en los supuestos de contrataciones directas.

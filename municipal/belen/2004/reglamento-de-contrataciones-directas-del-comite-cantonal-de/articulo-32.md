@@ -1,0 +1,1 @@
+Artículo 32.—El encargado del fondo de caja chica será responsable de gestionar su reintegro, cuando lo estime conveniente, en función del monto gastado. En esa oportunidad efectuará una liquidación, la cual será aprobada por el Administrador General y la reposición del fondo deberá hacerse por medio de cheque girado a nombre del encargado del fondo.
