@@ -1,0 +1,1 @@
+Artículo 3°—La Reserva Forestal que se declara en este decreto comprende una área de 13700 hectáreas. La demarcación de dicha reserva se encuentra en el plano confeccionado por la Dirección General Forestal.

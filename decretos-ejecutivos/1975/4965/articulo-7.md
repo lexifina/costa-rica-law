@@ -1,0 +1,1 @@
+Artículo 7°—Las fincas escrituradas y las fincas con posesión decenal establecidas dentro de los límites de la reserva quedan automáticamente sometidas al Régimen Forestal. Las labores que en estas fincas se realicen deben contar con la autorización de la Dirección General Forestal.
