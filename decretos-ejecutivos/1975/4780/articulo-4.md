@@ -1,14 +1,7 @@
-Artículo 4º.- Para efectos de la recaudación del impuesto mencionado
-en el artículo 1º anterior, se procederá de la siguiente manera:
-A partir del 1º de julio de 1995, del impuesto de un dolar ($ 1,00)
-establecido por la Ley número 5515 del 19 de abril de 1974, treinta
-centavos de dólar ($0,30) se pagarán directamente al ente recaudador de
-dicho impuesto, y los restantes setenta centavos de dólar ($ 0,70)
-estarán incorporados dentro del precio mínimo de exportación
-El impuesto deberá se rpagado por los productores que exporten su
-fruta mediante esquemas de comercialización no tradicionales y por las
-compañías compradoras o comercializadoras, sin que en forma alguna estas
-últimas trasladen el pago del tributo al productor.
-(Así reformado por decreto Nº 24535 de 19 de julio de 1995, artículo 1º)
+Artículo 4º—Para efectos de la recaudación del impuesto mencionado en el artículo 1º anterior, se procederá de la siguiente manera:
+A partir del 1º de enero del 2003 del impuesto de un dólar de los Estados Unidos de América (US$1,00) establecido por la Ley Nº 5515 del 19 de abril de 1974, once centavos de dólar (US$0,11) se pagarán directamente al ente recaudador de dicho impuesto y los restantes ochenta y nueve centavos de dólar (US$0,89) estarán incorporados dentro del monto del precio mínimo de la caja de banano de exportación que se debe pagar al productor, establecido por decreto ejecutivo.
+La parte del impuesto que se incorpora al monto del precio mínimo de la caja de banano establecido por decreto ejecutivo, que consecuentemente se ha de cancelar al momento de pagar dicho precio al productor, deberá ser determinado en forma total para cada embarque por los sujetos pasivos del impuesto o sus representantes legales con facultades para ello, en la declaración jurada que mediante el respectivo formulario deberá rendirse en un plazo de 15 días naturales posteriores a la exportación a CORBANA, lo cual quedará sujeto a la verificación de la Administración Tributaria en los términos del artículo 123 del Código Tributario, de modo que en cualquier tiempo la Administración Tributaria podrá practicar todas las diligencias y exámenes que considere necesarios para establecer que se está pagando adecuadamente esa parte restante del impuesto en la forma en que aquí se ha establecido.
+El impuesto deberá ser pagado por las compañías compradoras o comercializadoras, sin que en forma alguna éstas últimas trasladen el pago del tributo al productor.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 30841 de 25 de octubre del 2002)
 (Corrida su numeración por decreto Nº 15524 de 14 de junio de 1984, el
 cual agregó el artículo 2º)
