@@ -13,3 +13,4 @@ Crea Comisión Asesora Parque Nacional Cahuita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-25 | la propia norma |
+| 2 | 1986-09-23 | Decreto Ejecutivo 17236 (1986-09-23) |
