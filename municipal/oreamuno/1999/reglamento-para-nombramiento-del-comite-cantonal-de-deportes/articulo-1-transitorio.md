@@ -1,0 +1,1 @@
+Transitorio l.-De acuerdo con la situación actual, para este primer nombramiento, a realizarse el 16 de diciembre de 1999, la Comisión Reguladora de Deportes nombrada por el Consejo Municipal, recomendará los dos miembros representantes de las organizaciones deportivas y recreativas del cantón.

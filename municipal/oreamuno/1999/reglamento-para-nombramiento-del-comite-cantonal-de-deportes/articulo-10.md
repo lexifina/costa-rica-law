@@ -1,0 +1,1 @@
+Artículo 10.-Escogencia de Representantes Municipales. La comisión nombrada para tal fin, presentará al Concejo una lista de candidatos a ocupar los puestos representativos de la Municipalidad, en la sesión anterior al nombramiento del Comité Cantonal de Deportes.
