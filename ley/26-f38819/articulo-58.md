@@ -1,2 +1,0 @@
-Art. 58.- En todas las diligencias de reposición de protocolos se procederá con citación é intervención del Ministerio Público(*), quien firmará también todas las escrituras repuestas cuando no comparecieren los otorgantes.
-(*)(Nota de Sinalevi: Mediante el artículo 30 de la Ley Orgánica de la Procuraduría General de la República, N° 3848 del 10 de enero de 1967, se establece que donde se mencione la palabra Ministerio Público se diga Procuraduría General de la República)

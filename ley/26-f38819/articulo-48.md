@@ -1,1 +1,0 @@
-Art. 48.-Cuando el pase de los protocolos deba verificarse por muerte ó inhabilidad del Notario, su heredero, albacea ó encargado de administrar sus bienes debe, sin pérdida de tiempo, dar parte al Juez de 1° Instancia en lo civil y presentarle el protocolo.

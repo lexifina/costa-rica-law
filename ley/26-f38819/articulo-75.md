@@ -1,2 +1,0 @@
-Art. 75.-Si el documento fuere de los marcados en el último párrafo del artículo anterior, pero no afectare más que parte de una finca, se hará también descripción de la parte que sea, por su naturaleza, situación, cabida y linderos en la forma prevenida por los artículos 66 del Reglamento de Registro Público y 76 de esta ley, y se deslindará la parte de finca que el documento no afecte, para los efectos del artículo 74 del Reglamento citado.
-Igual descripción se hará también cuando una finca se divida entre sus condueños.

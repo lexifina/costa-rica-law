@@ -1,2 +1,0 @@
-Artículo 21.-Los Jueces de primera instancia en lo civil, así como los Alcaldes, cuando en su jurisdicción no residiere Notario con oficina abierta, lo comunicarán así al Supremo Tribunal de Justicia, para los efectos del artículo 3° En estos casos, dichos funcionarías para ejercer la Cartulación o Notariado, garantizarán su responsabilidad en la misma forma y cuantía que se exige a los Notarios.
-(Así reformado por la ley N° 25 del 18 de junio de 1915).

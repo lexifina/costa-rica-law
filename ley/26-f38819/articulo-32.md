@@ -1,1 +1,0 @@
-Art. 32.-Se considerarán como accesorios del protocolo los documentos ó comprobantes á que se refieran las escrituras matrices y que conforme á la ley deben quedar en poder del Notario quien los irá coleccionando por orden cronológico en un solo legajo cuyas hojas se numerarán con foliatura corrida.
