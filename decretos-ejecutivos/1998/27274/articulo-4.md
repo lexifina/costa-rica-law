@@ -1,0 +1,3 @@
+Artículo 4°—El quórum para sesionar validamente la Comisión será de tres de sus miembros y los acuerdos se adoptaran por mayoría simple de votos presentes (mitad más uno). En caso de empate el Presidente podrá ejercer su derecho al voto de calidad o doble voto.
+Los acuerdos de la Comisión quedarán firmes en la sesión siguiente, sin embargo podrán ser declarados firmes en la misma sesión en que sean adoptados, por votación unánime de los miembros presentes.
+La Comisión podrá darse el Reglamento Interno para regular su funcionamiento y de su seno será nombrado un secretario por periodos de un año pudiendo ser reelecto, el cual tendrá las funciones y deberes qué le sean establecidas por la Comisión.
