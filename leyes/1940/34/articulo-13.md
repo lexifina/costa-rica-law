@@ -1,0 +1,1 @@
+Artículo 13.-Elévase a ¢8.00 por kilogramo el aforo de la importación del tabaco en rama, con o sin vena; a ¢ 5.00 por kilogramo el impuesto de Conversión y a ¢1.00 por kilogramo el impuesto de timbre.
