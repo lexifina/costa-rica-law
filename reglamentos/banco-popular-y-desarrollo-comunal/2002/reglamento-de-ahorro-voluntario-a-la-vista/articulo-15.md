@@ -1,0 +1,2 @@
+Artículo 15.—Contenido de la libreta. Al abrirse una cuenta de ahorros, el Banco entregará una libreta en la que se anotarán los depósitos y retiros, la cual tendrá su correspondiente número de orden, los espacios necesarios para las anotaciones relativas a fechas, depósitos, retiros, intereses, saldos, tipo de transacción y código del cajero que realizó la operación.
+El Banco, de acuerdo con las facilidades tecnológicas, podrá eliminar la libreta de ahorros e instaurar otro sistema que brinde al ahorrante la misma seguridad y efectividad que el anterior.

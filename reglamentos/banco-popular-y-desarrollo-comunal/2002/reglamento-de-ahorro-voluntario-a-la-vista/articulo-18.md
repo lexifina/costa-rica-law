@@ -1,0 +1,2 @@
+Artículo 18.—Registros. El Banco llevará un registro en el que consten los datos necesarios para la apertura de la cuenta, así como la información sobre el monto de los créditos y débitos, intereses devengados y el saldo a favor del ahorrante.
+El Banco llevará, además, un registro individual de firmas para cada cuenta de ahorro, en el que consta la firma del ahorrante y de las personas autorizadas para hacer retiros.

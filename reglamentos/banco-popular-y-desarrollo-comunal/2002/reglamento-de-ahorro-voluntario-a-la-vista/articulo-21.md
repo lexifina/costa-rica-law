@@ -1,0 +1,1 @@
+Artículo 21.—Del servicio interbancario de negociación y pagos electrónicos (SINPE). Los débitos o créditos que se realicen producto del Sistema lnterbancario de Negociación y Pagos, estarán sujetos a la reglamentación y horarios que para tales efectos establezca la entidad pública que regule el servicio.

@@ -1,0 +1,2 @@
+Artículo 8º—Depósito sin libreta. El Banco podrá aceptar el recibo de fondos para abonar a la cuenta de ahorro sin la presentación de la libreta, para lo cual se extenderá un recibo provisional en el que se indique el monto del depósito. En la próxima oportunidad que se presente el titular con su libreta se hará la anotación respectiva, quedando por ese hecho sin ningún valor el recibo provisional.
+El Banco no asume responsabilidad por los errores cometidos por el depositante en la indicación del número de cuenta a la que se realizan los depósitos.

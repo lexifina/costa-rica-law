@@ -1,0 +1,1 @@
+Artículo 12.—Transferencia de fondos. El cliente podrá efectuar transferencias de fondos de las cuentas de ahorro voluntario relacionadas con su cuenta primaria, por medio del sistema Banca Personal o cualquier otro medio electrónico que el Banco implemente en el futuro.

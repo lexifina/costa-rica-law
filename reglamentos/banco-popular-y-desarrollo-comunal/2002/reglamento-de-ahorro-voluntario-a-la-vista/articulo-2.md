@@ -1,0 +1,2 @@
+Artículo 2º—Disposiciones generales. Los ahorros a que se refiere este Reglamento son inembargables, excepto por pensión alimentaria según lo dispuesto en el artículo 43 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal. Las cuentas de depósitos de ahorros son de carácter confidencial, por lo que sólo podrán ser reveladas mediante autorización escrita del ahorrante o por mandato judicial.
+El uso de la libreta, o del sistema que la sustituye, es exclusivo del titular de la misma o de su legítimo apoderado.

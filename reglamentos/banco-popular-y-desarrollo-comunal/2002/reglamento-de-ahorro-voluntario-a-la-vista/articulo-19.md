@@ -1,0 +1,1 @@
+Artículo 19.—Reclamos. Cuando el cliente desee plantear un reclamo sobre las transacciones realizadas, deberá hacerlo por escrito, presentando la libreta de ahorros debidamente actualizada. El Banco no asume ninguna responsabilidad por reclamos presentados una vez transcurridos sesenta días naturales después de efectuada la transacción.

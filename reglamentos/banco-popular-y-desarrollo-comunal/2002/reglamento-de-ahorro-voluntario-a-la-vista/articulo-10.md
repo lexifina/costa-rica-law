@@ -1,0 +1,2 @@
+Artículo 10.—Tiempo y lugar del retiro. Los fondos depositados en las cuentas de ahorro voluntario podrán ser retirados en todo o en parte en cualquier momento y sin previo aviso. En caso de que el depósito se haya efectuado por medio del Servicio de Banca Personal, los fondos estarán disponibles a más tardar el día hábil siguiente de efectuado el depósito.
+En caso de retiros por montos superiores al equivalente de 10.000,00 dólares de los EEUU, según el tipo de cambio que al efecto el Banco determine, este podrá reintegrar el ahorro y sus intereses mediante cheque.

@@ -1,0 +1,1 @@
+Artículo 25.—Fallas en el sistema, casos fortuitos y fuerza mayor. El Banco no asume responsabilidad cuando el cliente no pueda realizar sus operaciones en cajeros automáticos o cajeros humanos por causa de fallas o desperfectos en el sistema, fallas en el fluido eléctrico o en cualquier caso en el que concurra caso fortuito, fuerza mayor, culpa del ahorrante o de un tercero.
