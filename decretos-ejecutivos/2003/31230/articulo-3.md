@@ -1,0 +1,1 @@
+Artículo 3º—En el numeral 1.3 del artículo 1º, en lugar de Departamento de Servicio al Usuario léase "Departamento de Infracciones" y en lugar de Departamento de Suministros se lea "Departamento de Proveeduría".
