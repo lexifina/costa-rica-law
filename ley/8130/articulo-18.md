@@ -1,0 +1,1 @@
+Artículo 18.—La unidad ejecutora técnica podrá presentar a la CCSS los listados de los trabajadores afectados por el DBCP que requieran la revisión de sus pensiones, contributivas o no contributivas, con el fin de que dicha Institución resuelva lo pertinente, de conformidad con la normativa aplicable y procurando la mayor celeridad de los trámites.
