@@ -1,0 +1,1 @@
+Artículo 2º—Dicha compensación económica equivale a un cuarenta y cinco por ciento adicional sobre el salario base de cada Profesional que califique y que desee acogerse a la disponibilidad, para lo cual debe realizar ante la Alcaldía la respectiva solicitud.
