@@ -117,3 +117,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 para Investigaciones Científicas y Tecnológicas)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29089 de 30 de octubre del 2000, para la Junta
 de Protección Social de San José)
+(Modificado por el artículo 1 del Dereto Ejecutivo N° 29206 de 20 de noviembre del 2000,
+con respecto de la Junta de Desarrollo de la Regional de la Zona Sur)
