@@ -13,3 +13,4 @@ Reglamento Ley Creación Instituto Mixto Ayuda Social ( IMAS )
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-15 | la propia norma |
+| 2 | 1998-04-28 | Decreto Ejecutivo 26940 (1998-04-28) |
