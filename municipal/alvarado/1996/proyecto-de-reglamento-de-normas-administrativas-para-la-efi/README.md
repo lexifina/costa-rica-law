@@ -14,3 +14,4 @@ Proyecto de Reglamento de Normas Administrativas para la Eficiente Aplicación d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-05 | la propia norma |
+| 2 | 1998-06-09 | SINALEVI (sin norma nombrada) |

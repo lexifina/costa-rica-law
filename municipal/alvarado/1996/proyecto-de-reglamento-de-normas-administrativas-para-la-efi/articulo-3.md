@@ -3,7 +3,8 @@ De las licencias
 Artículo. 3°-Los interesados deberán presentar la solicitud de licencia ante la Oficina de Rentas de la Municipalidad y se le deben adjuntar los siguientes requisitos:
 a) Fotocopia de la cédula de identidad del propietario del local. Si es persona jurídica deberá presentar certificación de la personería jurídica y de la constitución de la sociedad.
 b) Constancia expedida por el Contador municipal en la que se indique que el interesado se encuentra al día en el pago de tributos y otras obligaciones de la Municipalidad.
-Para estos efectos se entenderá por interesado al dueño del local y al solicitante. La constancia del Contador será extendida por la Contaduría Municipal en forma directa a la oficina de patentes.
+Para estos efectos se entenderá por interesado "al dueño del local"* y al solicitante. La constancia del Contador será extendida por la Contaduría Municipal en forma directa a la oficina de patentes.
+*(Anulado lo escrito entre paréntesis mediante resolución de la Sala Constitucional N° 3364-98, del 9 de junio de 1998.)
 c) Autorización escrita del propietario del local en que se va a ejercer la actividad. Dicha autorización debe estar autenticada por un abogado, o en su defecto deberá ser firmada por el propietario ante el funcionario municipal. Además deberá acompañarse un documento de comprobación de la condición de propietario y el respectivo plano catastrado debidamente visado.
 d) Original y copia del permiso sanitario de funcionamiento extendido por el Centro de Salud de la Región.
 e) Permiso de funcionamiento respectivo en aquellos casos en que la actividad requiera. La Municipalidad indicará los permisos de funcionamiento que deberán acompañarse a la solicitud dependiendo de la actividad que pretenda realizar, sean estos de la Gobernación de la provincia de Cartago, Regencias por parte del Colegio de Farmacéuticos o del Ministerio de Agricultura y Ganadería u otros.
