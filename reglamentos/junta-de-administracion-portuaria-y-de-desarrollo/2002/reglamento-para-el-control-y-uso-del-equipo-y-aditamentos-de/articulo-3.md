@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Están sometidos al presente Reglamento todos los funcionarios de JAPDEVA, en especial aquellos a quienes se les asigne equipos y aditamentos de radiocomunicación interna adquiridos por JAPDEVA y quienes deban ejercer el control para el cuidado y mantenimiento de los mismos.

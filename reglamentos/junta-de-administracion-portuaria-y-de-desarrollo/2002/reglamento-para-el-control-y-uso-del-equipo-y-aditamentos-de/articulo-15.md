@@ -1,0 +1,1 @@
+Artículo 15.—De la Proveeduría. La Proveeduría correspondiente deberá solicitar el criterio del Área Técnica de JAPDEVA a efecto de que sus recomendaciones sean utilizadas como parámetros para elaborar los carteles respectivos para iniciar el procedimiento de contratación.

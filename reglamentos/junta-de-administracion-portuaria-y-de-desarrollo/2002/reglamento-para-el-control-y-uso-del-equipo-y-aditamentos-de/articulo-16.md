@@ -1,0 +1,1 @@
+Artículo 16.—Criterio técnico para adjudicar. Del mismo modo, para efectos del acto de adjudicación de una contratación en este campo, el Área Técnica debe emitir su criterio especializado sobre cada oferta que se presente a concursar, este debe analizar únicamente los aspectos técnicos.

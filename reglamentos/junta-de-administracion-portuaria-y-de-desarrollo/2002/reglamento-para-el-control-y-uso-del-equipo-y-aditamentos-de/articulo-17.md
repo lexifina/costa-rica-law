@@ -1,0 +1,2 @@
+Artículo 17.—Requisito para oferentes. Será un requisito básico para los oferentes, el ofrecer la instalación de los equipos y aditamentos de radiocomunicación que JAPDEVA acuerde comprar. Este aspecto debe ser incluido como requisito ineludible en el cartel que de inicio a la contratación.
+La empresa adjudicataria instalará los equipos y aditamentos de radiocomunicación, siendo el Área Técnica el ente encargado de indicar si la instalación ha sido realizada en forma idónea, si los equipos funcionan con acuerdo a lo ofrecido y verificará el estado de lo contratado.

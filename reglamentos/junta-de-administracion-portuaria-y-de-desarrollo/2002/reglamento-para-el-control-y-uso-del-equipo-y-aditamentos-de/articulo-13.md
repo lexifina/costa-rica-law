@@ -1,0 +1,2 @@
+Artículo 13.—Placa para equipos y aditamentos de radiocomunicación. Para efectos de control, a los equipos y aditamentos comprados por JAPDEVA se les aplicará el procedimiento respectivo utilizado por la institución para identificarlos en forma clara y visible.
+Si la placa identificadora se removiera por cualquier motivo, se procederá a su restitución de forma inmediata so pena de hacerse acreedor, el responsable de dicha omisión, de las medidas disciplinarias establecidas en este Reglamento y el Reglamento Interior de Trabajo de JAPDEVA.

@@ -1,0 +1,1 @@
+Artículo 5º—Frecuencia asignada a JAPDEVA. Las frecuencias asignadas a JAPDEVA son: 150.7250 Mhz, 155.2375 Mhz y 158.8625 Mhz, según el Plan Nacional de Atribución de Frecuencias, Decreto N° 27665 del 6 de noviembre de 1998. Queda prohibido el uso de dichas frecuencias por personas físicas o jurídicas distintas de JAPDEVA.

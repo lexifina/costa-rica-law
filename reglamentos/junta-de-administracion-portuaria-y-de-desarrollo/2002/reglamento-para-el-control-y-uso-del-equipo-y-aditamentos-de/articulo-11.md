@@ -1,0 +1,1 @@
+Artículo 11.—Mecanismos de control. La Gerencia Portuaria y la Gerencia de Desarrollo, respectivamente, serán las encargadas de velar por el cumplimiento de este reglamento y por lo tanto de realizar acciones, trámites y controles necesarios que generen un control adecuado del uso de los equipos y aditamentos de radiocomunicación.

@@ -1,0 +1,9 @@
+Artículo 9º—Obligaciones de los jefes de departamento: Son obligaciones de los Jefes de los Departamentos a los cuales le sean asignados equipos y aditamentos de radiocomunicación interna de JAPDEVA:
+a. Vigilar los equipos y aditamentos de radiocomunicación pertenecientes a JAPDEVA que estén en manos de personal subalterno y verificar el cumplimiento de este Reglamento. Debe constatar el estado físico y de funcionamiento del equipo entregado y recibido en cada ocasión.
+b. Controlar el inventario y uso de los equipos y aditamentos de radiocomunicación de JAPDEVA que sean responsabilidad del Departamento a su cargo. Cada Jefe deberá llevar un control donde consignará la información sobre el Departamento y/o sección, nombre del personal, la cantidad, tipo, número de serie, modelo y marca de lo asignado de forma permanente u ocasional al personal a su cargo.
+c. Procurar la capacitación propia y del personal a su cargo en materia de radiocomunicación interna.
+d. Procurar que las necesidades de su Departamento sean consideradas y presupuestadas por JAPDEVA.
+e. Cooperar y cumplir con los objetivos de JAPDEVA para que alcance un alto grado de modernización en esta materia, así como instar al personal subordinado a cumplir con los mismos propósitos.
+f. Comunicar a su superior inmediato y a la Gerencia respectiva de las medidas que ha tomado o deban tomarse con respecto al personal subordinado en caso de detectarse alguna anomalía. De comprobar su omisión al jefe se le podrán aplicar las sanciones correspondientes.
+g. Señalar el lugar y la forma donde se ubicarán, los equipos y aditamentos de radiocomunicación en el espacio físico asignado al Departamento respectivo.
+h. Presentar un informe en la última semana de cada mes a la Gerencia respectiva o cuando está lo requiera, que permita evaluar el uso adecuado del equipo y aditamento asignado al Departamento y tomar las medidas del caso.

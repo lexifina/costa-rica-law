@@ -1,0 +1,1 @@
+Artículo 4º—Herramientas de Trabajo. Los equipos y aditamentos se considerarán herramientas de trabajo para facilitar las tareas de los funcionarios de JAPDEVA, sin que puedan ser utilizados para uso personal o considerados salario en especie, ni podrán ser entregados en uso a terceras personas ajenas a la JAPDEVA.
