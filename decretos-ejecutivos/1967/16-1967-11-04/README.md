@@ -14,3 +14,4 @@ Crea Comisión Nacional Coordinadora de Actividades de Salud Pública Asistencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1967-11-10 | la propia norma |
+| 2 | 1970-06-02 | Decreto Ejecutivo 1032 (1970-06-02) |
