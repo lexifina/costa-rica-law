@@ -1,0 +1,1 @@
+TRANSITORIO II.—El personal de las Unidades de Recursos Humanos y de Finanzas de la DESAF se integran como servicios especializados en sus homologas de la Dirección General Administrativa del Ministerio de Trabajo y Seguridad Social.

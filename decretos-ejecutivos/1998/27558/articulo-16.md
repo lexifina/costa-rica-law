@@ -1,0 +1,8 @@
+Artículo 16.—El Área de Tesorería tiene las siguientes funciones específicas:
+1. Llevar el control de la cuenta bancaria en donde se depositan los recursos del FODESAF, y confeccionar las correspondientes conciliaciones que debe remitir a la Dirección General y a la Secretaría Técnica de la Autoridad Presupuestaria del Ministerio de Hacienda en forma mensual.
+2. Confeccionar las solicitudes de giro de cheques para financiar programas con recursos del FODESAF, y con indicaciones de la Dirección General. Dicha solicitud será firmada por el Ministro de Trabajo y por el Director General.
+3. Llevar el control de las transferencias del Ministerio de Hacienda, los depósitos de la Caja Costarricense de Seguro Social, el detalle de débitos y créditos de la cuenta bancaria en donde se depositen los recursos del FODESAF, así como las transferencias que pueda percibir de otras fuentes.
+4. Controlar Ingresos y Egresos producto del cobro a patronos morosos y presentar un informe de la recaudación mensual a la Dirección General.
+5. Llevar a cabo y dar seguimiento a las acciones de cobro judicial que la DESAF interponga contra patronos morosos por concepto del 5% sobre planillas; para la cual contratará los servicios de abogados externos y empresas notificadoras, apegándose a lo establecido por el reglamento del cobro a patronos morosos según decreto 24864-MTSS.
+6. Le corresponde la administración de la cartera de inversiones bursátiles o títulos valores que mantiene la DESAF con recursos de FODESAF y remitir informe mensual a la Dirección General para lo que corresponda y velar porque se administren de acuerdo a lo establecido por la legislación vigente.
+7. Ejecutar otras labores afines.

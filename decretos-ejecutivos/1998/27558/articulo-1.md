@@ -1,0 +1,22 @@
+N° 27558-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL,
+Con fundamento en las disposiciones contenidas en los artículos 140, incisos 3), 18) y 20), de la Constitución Política y 18 de la Ley de Desarrollo Social y Asignaciones Familiares, No 5662 del 23 de diciembre de 1974, así como con base en las atribuciones conferidas por los numerales 25, 27 y 28 de la Ley General de la Administración Pública,
+Considerando:
+1o—Que por decreto No 23670-MTSS del 23 de setiembre de 1994 y sus reformas, se estableció un nuevo reglamento a la Ley de Desarrollo Social y Asignaciones Familiares.
+2°—Que mediante el citado reglamento se cambió el nombre de la entonces denominada Dirección General de Desarrollo Social y Asignaciones Familiares; a la cual se le dio una nueva estructura organizativa y pasó a denominarse Dirección Nacional de Desarrollo Social y Asignaciones Familiares.
+3°—Que la mencionada estructura organizativa ha demostrado ser impráctica, ineficaz, insegura e insuficiente para desarrollar en forma adecuada las funciones, atribuciones, tareas y actividades encomendadas a dicha dependencia por la Ley de Desarrollo Social y Asignaciones Familiares No 5662 del 23 de diciembre de 1994, sobre todo en cuanto se refiere a la correcta y eficiente administración del Fondo de Desarrollo Social y Asignaciones Familiares (PODESAF) creado por dicha ley.
+4°—Que por medio de decreto No 24458-TSS del 6 de julio de 1995, se derogó el Capítulo IV del Reglamento a la Ley de Desarrollo Social y Asignaciones Familiares (Decreto No 23670-MTSS del 23 de setiembre de 1994 y sus reformas) y los incisos c), f), g), i) y j) del artículo 30 del Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Seguridad Social (Decreto ejecutivo No 1508-TBS del 16 de febrero de 1971). Asimismo, mediante dicho Decreto No 24458-TSS se estableció una única Unidad de Auditoria para todo el Ministerio de Trabajo y Seguridad Social, incluyendo a la Dirección General de Desarrollo Social y Asignaciones Familiares.
+5°—Que es necesario hacer realidad la disposición de la ley No 5662, en el sentido que la DESAF es una dependencia técnica permanente del Ministerio de Trabajo y Seguridad Social y que a éste le compete velar para que sus recursos humanos, materiales y financieros se utilicen de la forma más eficiente posible y con el más estricto apego al principio de legalidad.
+6°—Que es preciso racionalizar la distribución de los recursos del Fondo de Desarrollo Social y Asignaciones Familiares; para lo cual se requiere establecer una estructura administrativa eficiente y eficaz en, procura de alcanzar los nobles fines que pretende el citado Fondo.
+7°—Que en cumplimiento de la recomendación emitida por la Comisión de Concertacion Nacional que analizó el tema de FODESAF, es necesario crear la Comisión Nacional de Solidaridad y Desarrollo Humano.
+8°—Que, en virtud de todo lo anterior, es preciso y urgente establecer para la Dirección General de Desarrollo Social y Asignaciones ‘ Familiares una estructura organizacional eficiente, ágil, suficiente y eficaz, que cumpla legal y cabalmente la importante función de administrar el Fondo de Desarrollo Social y Asignaciones Familiares, en estricto apego y cumplimiento de mandato de la ley No 5662 citada, bajo la jerarquía del titular del Ministerio de Trabajo y Seguridad Social.
+9°—Que asimismo, resulta perentorio, adecuado, oportuno y conveniente para los más altos intereses públicos y para preservar la integridad del Fondo de Desarrollo Social y Asignaciones Familiares, que haya una Unidad de Auditoria que se encargue del control superior financiero, contable y económico de todas las operaciones que lleven a cabo la citada Dirección, así como las entidades ejecutoras o participantes que desarrollan programas financiados con recursos de dicho fondo. Por tanto,
+DECRETAN:
+El siguiente,
+REGLAMENTO A LA LEY DE DESARROLLO SOCIAL Y
+ASIGNACIONES FAMILIARES
+CAPITULO I
+De la comisión de solidaridad y desarrollo humano
+Artículo 1.- Crease la Comisión Nacional de Solidaridad y Desarrollo Humano en adelante CONASOL, como Organismo Asesor del Ministerio de Trabajo y Seguridad Social, y como ente de elaboración, coordinación y fiscalización de la política de financiamiento de programas destinados a la atención de la pobreza que se ejecuten con recursos del Fondo de Desarrro.o Socila y Asignaciones Familiares.
+(Así corregido mediante FE DE ERRATAS, publicada en La Gaceta N° 72 de 15 de abril de 1999).

@@ -1,0 +1,2 @@
+TRANSITORIO VI.—En el año 1999, la DESAF en forma conjunta con el IMAS implementará el “Sistema de Información de la Población Objetivo”, con la meta de crear en un plazo no mayor a un año, una red de información que identifique geográficamente y mediante la aplicación de la “Ficha de Información Social”, a todos los beneficiarios de los programas financiados con recursos del FODESAF.
+Dado en la Presidencia de la República.—San José, a los diez días del mes de diciembre de mil novecientos noventa y ocho.

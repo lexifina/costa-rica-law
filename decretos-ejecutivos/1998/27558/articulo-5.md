@@ -1,0 +1,1 @@
+Artículo 5°—El Presidente de la Comisión, será elegido por el Presidente de la República. Cada año la Comisión elegirá de su seño, a un Vicepresidente, que sustituirá al Presidente en sus ausencias temporales y un Secretario, quienes podrán ser reelegidos en sus cargos por un periodo igual.

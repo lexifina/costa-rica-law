@@ -1,0 +1,1 @@
+Artículo 7°—Los miembros de la CONASOL recibirán dietas por cada sesión que realicen, las cuales serán pagadas por el Ministerio de Trabajo y Seguridad Social, de conformidad con lo establecido para las Juntas Directivas de las instituciones autónomas en la Ley de Presidencias Ejecutivas.

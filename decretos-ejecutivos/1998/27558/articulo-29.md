@@ -1,0 +1,1 @@
+Artículo 29.—El giro de recursos financieros a las unidades ejecutoras de programas financiados por el FODESAF, se realizarán mensualmente en atención a la disponibilidad de efectivo con que cuente el FODESAF y el cumplimiento de lo establecido en el convenio de cooperación financiera.
