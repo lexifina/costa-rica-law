@@ -1,0 +1,1 @@
+Artículo 16.—Del plazo para resolver. Según lo estipula la Ley General de la Administración Pública, el plazo para resolver las solicitudes será de un mes, contando a partir del día siguiente en que se presenten dichas solicitudes con los requisitos establecidos completos.
