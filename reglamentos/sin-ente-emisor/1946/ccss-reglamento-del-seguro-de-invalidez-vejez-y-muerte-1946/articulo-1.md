@@ -1,3 +1,0 @@
-(Derogado)
-Artículo 1.-
-Por medio de la resolución N° 5206-04 de las catorce horas con cincuenta y cuatro minutos del dieciocho de mayo del dos mil cuatro, se anula la palabra “mandaderos” contenida en el aparte b) del inciso 2) del artículo 1° del Reglamento del Seguro de Invalidez, Vejez y Muerte, aprobado por la Junta Directiva de la Caja Costarricense de Seguro Social en sesión ordinaria del diecisiete de diciembre de mil novecientos cuarenta y seis, anulandose por conexidad el texto: “,excepto porteros, ..., y en general, aquellos que se dedican a labores de limpieza o aseo” contenida en el aparte b) del inciso 2) del artículo 1° del referido Reglamento.
