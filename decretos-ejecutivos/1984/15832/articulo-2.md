@@ -1,0 +1,1 @@
+Artículo 2°. -Los actos oficiales conmemorativos a la proclamación de la neutralidad costarricense se celebrarán con la participación de los Supremos Poderes de la República y de todos los ciudadanos de la nación.
