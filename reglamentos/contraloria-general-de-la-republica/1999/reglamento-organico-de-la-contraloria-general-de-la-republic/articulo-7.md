@@ -17,3 +17,4 @@ Artículo 7°—A la Dirección General de Recursos Humanos le corresponde:
 16) Ejercer el control relacionado con el derecho y disfrute de vacaciones del personal.
 17) Extender las certificaciones que soliciten los funcionarios y ex funcionarios, en materia de personal.
 18) Realizar todas aquellas otras funciones, propias de la unidad, que le sean asignadas por sus superiores.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 21 de octubre de 1999)

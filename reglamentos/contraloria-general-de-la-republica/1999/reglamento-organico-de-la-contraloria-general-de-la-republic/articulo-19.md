@@ -7,3 +7,4 @@ Artículo 19.—A la Dirección General de Presupuestos Públicos le corresponde
 6) Prescribir, en coordinación con la Dirección General de Planificación Interna y Evaluación de Sistemas la nomenclatura y la codificación presupuestarla que deben adoptar las entidades y dependencias públicas o privadas sujetas a controles de esa naturaleza por parte de la Contraloría General. Para lo anterior, deberá tomarse en consideración las observaciones y criterios que expresen las entidades y dependencias involucradas, cuando la ley así lo señale. /
 7) Asesorar en materia presupuestaria a las entidades y dependencias públicas o privadas referidas en el inciso anterior.
 8) Ejercer todas aquellas otras funciones, propias de la Dirección, que le corresponde realizar a la Contraloría General de conformidad con las disposiciones legales.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 26 de octubre de 1999)
