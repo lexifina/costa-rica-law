@@ -1,2 +1,2 @@
-Artículo 14.—En caso de ausencia del presidente, el vicepresidente lo sustituirá con sus mismas funciones.
-En sus primeras sesiones la CIMAT designará entre sus integrantes, por mayoría simple a aquel que ocupará el puesto de vicepresidente.
+Artículo 14.—En caso de ausencia del presidente, el vicepresidente lo sustituirá con sus mismas funciones. Cada Institución y/o Ministerio tendrá la obligación de designar a su vez a su suplente que podrá asistir con voz y voto a las sesiones a las que el propietario no pudiera asistir por causas previamente justificadas, estos suplentes serán juramentados por el Presidente de la Comisión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27954 de 17 de junio de 1999)
