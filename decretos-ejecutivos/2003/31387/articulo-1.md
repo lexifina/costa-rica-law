@@ -10,4 +10,5 @@ Considerando:
 5º—Que mediante Decreto Ejecutivo N° 30284-H del 22 de octubre del 2002, se establece el límite de gasto presupuestario máximo de OCIS, en cual no se consideró el monto adeudado a la Cooperativa de Productores de Leche R. L. (Dos Pinos).
 6º—Que se hace necesario incrementar el límite de gasto presupuestario de OCIS, para atender las erogaciones señaladas. Por tanto:
 DECRETAN:
-Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 30824-H, publicado en La Gaceta Nº 219 del 13 de noviembre de 2002, para fijar en ¢4.042,3 millones el límite de gasto presupuestario de la Oficina de Cooperación Internacional de la Salud para el 2003.
+Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 30824-H, publicado en La Gaceta Nº 219 del 13 de noviembre de 2002, para fijar en ¢4.167,3 millones el límite de gasto presupuestario de la Oficina de Cooperación Internacional de la Salud para el 2003.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31541 del 26 de novirmbre de 2003, publicado en La Gaceta N° 244 de 18 de dciembre de 2003.)

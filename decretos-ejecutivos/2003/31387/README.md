@@ -14,3 +14,4 @@ Modificase Límites de Gasto Presupuestario de la Oficina de Cooperación Intern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-13 | la propia norma |
+| 2 | 2003-11-26 | Decreto Ejecutivo 31541 (2003-11-26) |
