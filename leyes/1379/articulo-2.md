@@ -1,0 +1,1 @@
+Artículo 2°.-Las cantidades anteriormente expresadas se tomarán de los fondos correspondientes a los distritos IV, San Isidro, y II, Jesús respectivamente, y se podrán a la orden del Ministerio de Obras Públicas para los efectos citados.
