@@ -1,0 +1,16 @@
+# Reglamento (1996-04-30)
+
+Reglamento de Contrataciones de RECOPE S.A.
+
+- Tipo: Reglamento
+- Número: 3063
+- Fecha: 1996-04-30
+- Ente emisor: Refinadora Costarricense de Petróleo
+- Publicación: La Gaceta N° 90 del 1996-05-13
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49171&param2=52545&param3=1 (ficha 49171)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-05-13 | la propia norma |

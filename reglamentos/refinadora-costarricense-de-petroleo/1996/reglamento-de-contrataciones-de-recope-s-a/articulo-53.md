@@ -1,0 +1,3 @@
+Artículo 53.—Registro de proveedores
+Para los concursos internacionales, la Dirección de Suministros deberá llevar un registro actualizado de proveedores de petróleo crudo y sus derivados, así como de compañías que ofrezcan el servicio de fletamento o inspección de esta clase de productos. Para ello deberá mantener una coordinación adecuada y permanente con el Área de Programación Internacional. La inclusión y exclusión de proveedores para la compra y venta de petróleo crudo y derivados deberá ser aprobada por la Junta Directiva.
+En los concursos ordinarios podrá utilizarse el registro instaurado para los procedimientos ordinarios de contratación en la actividad no ordinaria.
