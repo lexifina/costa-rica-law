@@ -1,0 +1,1 @@
+ARTICULO 78.- La Junta Directiva deberá hacer del conocimiento de todos los miembros, en un plazo no mayor de treinta días, cualquier reforma parcial al Reglamento y además deberá ordenar su publicación en el Diario Oficial en ese mismo plazo. La reforma estará en vigencia en la fecha de publicación en dicho Diario.

@@ -1,0 +1,1 @@
+ARTICULO 77.- Toda reforma a este Reglamento deberá ser aprobada por la Asamblea General por simple mayoría de los votos presentes para que tenga validez. Una vez aprobado se someterá al Poder Ejecutivo para su promulgación.

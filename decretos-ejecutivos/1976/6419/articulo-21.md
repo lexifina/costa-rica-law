@@ -1,0 +1,2 @@
+ARTICULO 21.- Llegada la hora en que se debe dar inicio a la Asamblea General, el Presidente o quien lo sustituya, abrirá la reunión y a continuación se despacharán los asuntos incluídos en el orden del día.
+En ausencia del Presidente lo suplirá el Vicepresidente y el defecto de éste los Vocales en su orden de nombramiento y en defecto de éstos en su orden el Secretario, el Tesorero y el Fiscal. Si no estuviere presente ningún miembro de la Junta Directiva actuará como Presidente el miembro activo de más edad que se encuentre presente.

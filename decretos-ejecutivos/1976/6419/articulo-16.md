@@ -1,0 +1,1 @@
+ARTICULO 16.- El interesado en el reconocimiento de una actividad profesional específica deberá presentar una solicitud por escrito a la Junta Directiva, adjuntando original y copia de los atestados que respaldan su petición.

@@ -1,0 +1,1 @@
+ARTICULO 20.- Para que haya quórum en la primera convocatoria deben estar presente la mitad más uno de los miembros activos y en la segunda, el veinticinco por ciento de ellos. Si no se reunieren dichos porcentajesno podrá celebrarse la reunión.

@@ -1,0 +1,1 @@
+ARTICULO 74.- El presupuesto de egresos contendrá las partidas máximas para hacer erogaciones en cada renglón. Deberá confeccionarse en forma global, detallando por separado los rubros que más ameriten.

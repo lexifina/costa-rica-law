@@ -1,0 +1,1 @@
+ARTICULO 69.- Durante el mes de noviembre se publicará en uno de los principales diarios del país un aviso haciendo constar cuáles son los miembros activos con derecho a ejercer la profesión. Dicho aviso deberá indicar la dirección y/o apartado del Colegio.

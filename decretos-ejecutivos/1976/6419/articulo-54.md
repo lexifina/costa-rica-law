@@ -1,0 +1,1 @@
+ARTICULO 54.- Todas las deliberaciones sobre asuntos mencionados en este capítulo serán secretas, tanto del Comité, como del Tribunal de Honor y de la Junta Directiva, y el resultado final se inscribirá en un libro especial que deberá llevar la Junta Directiva.

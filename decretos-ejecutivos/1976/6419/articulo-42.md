@@ -1,0 +1,5 @@
+ARTICULO 42.- Cuando cualquier persona física o jurídica solicite al Colegio que se lleve a cabo un peritazgo o un arbitraje por uno o más de sus miembros incorporados, se seguirán las siguientes reglas:
+1) La Junta Directiva seleccionará los profesionales que actuarán como peritos o como árbitros presentando una terna para que el solicitante elija;
+2) Los honorarios por peritazgo y por arbitraje serán de libre contratación y su monto deberá comunicarse previamente a la parte interesada;
+3) En caso de que el monto de los honorarios no fuere aceptado por las partes interesadas, cabrá el recurso de apelación ante la Junta Directiva, la que fijará el monto definitivo; y
+4) Las personas que soliciten el nombramiento de peritos o de árbitros deberán pagar los honorarios y los gastos, si los hubiera, según lo establecido en el respectivo convenio entre las partes. Del monto de los honorarios cobrados por el o los peritos o el o los árbitros, se deducirá el 10% el cual será pagado al Colegio por servicios prestados.

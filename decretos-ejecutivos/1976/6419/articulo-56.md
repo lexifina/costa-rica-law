@@ -1,0 +1,2 @@
+ARTICULO 56.- El Fondo tiene el objeto de auxiliar por una sola vez a los beneficiarios de los miembros fallecidos y, en casos excepcionales, a los miembros activos que por circunstancias especiales requieran auxilio económico para ser subsistencia o la de su familia o para la atención de una necesidad igualmente grave. La administración del Fondo, previo estudio exhaustivo del caso, concederá el auxilio.
+Los montos de estos auxilios serán fijados por la nueva Junta Directiva, cada año, en su primera o segunda sesión.

@@ -1,0 +1,1 @@
+ARTICULO 7º.- Los geólogos incorporados recibirán un certificado en que conste el acta en que fue admitido así como el número de registro de ejercicio. Los derechos de certificación se fijarán anualmente en la Asamblea General. Los certificados llevarán la firma del Presidente, Secretario y Fiscal o sus sustitutos.

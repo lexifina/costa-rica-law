@@ -1,0 +1,1 @@
+ARTICULO 2º.- Las funciones y atribuciones originadas en la ley Nº 5230 de 2 de julio de 1973 le corresponderá ejercerlas al Colegio de Geólogos mediante los organismos respectivos, conforme se establece en dicha ley y este Reglamento.

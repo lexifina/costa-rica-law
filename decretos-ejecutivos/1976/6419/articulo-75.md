@@ -1,0 +1,1 @@
+ARTICULO 75.- La Junta Directiva podrá acordar transferencias entre partidas del presupuesto de egresos hasta por un 25% de la partida afectada. Igualmente podrá aprobar presupuestos extraordinarios por un monto de hasta 10% del total del presupuesto vigente cuando tenga contenido económico, debiendo informar a la Asamblea General en su siguiente sesión.

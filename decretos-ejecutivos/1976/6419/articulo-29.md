@@ -1,0 +1,2 @@
+ARTICULO 29.- Los deberes de los miembros de la Junta Directiva están estipulados en el artículo 26 para el Presidente, en el artículo 28 para el Secretario, en el artículo 29 para el Fiscal y en el artículo 30 para el Tesorero, todos ellos de la Ley Orgánica.
+Es deber del Vicepresidente sustituir al Presidente en sus ausencias temporales y deber de los Vocales sustituir por su orden a los demás miembros de la Junta Directiva en situaciones similares. Los dos primeros vocales actuarán como contralores del Fondo de Mutualidad y Subsidio.

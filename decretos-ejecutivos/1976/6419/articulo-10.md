@@ -1,0 +1,1 @@
+ARTICULO 10.- La separación de cualquier miembro que dicte la Junta Directiva, en acuerdo firme, hará que éste pierda todos los derechos que tenga de conformidad con la Ley Orgánica y el presente Reglamento mientras se mantenga tal separación.

@@ -1,0 +1,3 @@
+ARTICULO 5º.- Los geólogos extranjeros deberán presentar, además de lo establecido en el artículo 4º anterior, lo siguiente:
+1) Certificación en triplicado del Ministerio de Relaciones Exteriores y Culto de Costa Rica de que existe mutuo reconocimiento de títulos entre el país deo rigen del solicitante y Costa Rica y de que el país de que se trate se permite el libre ejercicio de la profesión a los geólogos costarricenses.
+2) Certificación en triplicado del Ministerio de Seguridad Pública, de que el solicitante ha residido continuamente en Costa Rica por mínimo de dos años después de graduado como profesional en Ciencias Geólogicas.

@@ -1,0 +1,1 @@
+ARTICULO 52.- Tanto los miembros del Comité Consultivo como los del Tribunal de Honor deberán ser miembros activos del Colegio y no haber sido nunca sancionados por infracciones a la Etica Profesional.

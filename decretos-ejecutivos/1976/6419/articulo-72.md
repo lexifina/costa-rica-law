@@ -1,0 +1,1 @@
+ARTICULO 72.- En caso de que no fuere aprobado el presupuesto en la Asamblea General convocada para ese efecto, será conocido en cualesquiera de las asambleas que se convoquen posteriormente y si se iniciara el año Fiscal sin que fuera aprobado, seguirá para el siguiente año el presupuesto del año anterior, hasta tanto no se apruebe en definitiva el nuevo presupuesto.

@@ -1,0 +1,1 @@
+ARTICULO 51.- Si en el caso a que se refiere el artículo anterior o en cualquier otro caso, hubiere necesidad de transferir al Tribunal de Honor el diferendo este Tribunal se regirá según lo expuesto en la Ley Orgánica del Colegio.
