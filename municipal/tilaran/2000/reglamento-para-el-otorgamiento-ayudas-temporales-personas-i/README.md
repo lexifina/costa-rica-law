@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento Ayudas Temporales Personas Indigentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-29 | la propia norma |
+| 2 | 2000-08-29 | Ley 8 |
