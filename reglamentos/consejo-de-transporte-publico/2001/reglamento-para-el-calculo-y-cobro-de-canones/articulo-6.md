@@ -1,0 +1,3 @@
+Articulo 6°—Presentación del Proyecto de Cánones a la Contraloría. En el mes de junio de cada año el Consejo presentará el proyecto de cánones para el año siguiente con su respectiva justificación técnica ante la Contraloría General de la República para su aprobación.
+Recibido el proyecto la Contraloría dará audiencia por un plazo de diez días hábiles a los regulados para que expongan sus observaciones al proyecto cánones, transcurrido ese plazo se aplicara el silencio positivo.
+El proyecto de cánones deberá aprobarse a más lardar el último día hábil de agosto del mismo año. Vencido este término sin el pronunciamiento de la Contraloría , el proyecto se tendrá por aprobado en la forma presentada por el Consejo.

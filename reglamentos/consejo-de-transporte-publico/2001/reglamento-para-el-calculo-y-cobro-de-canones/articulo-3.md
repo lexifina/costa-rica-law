@@ -1,0 +1,1 @@
+Artículo 3°— Aplicación. Las presentes disposiciones serán de acatamiento obligatorio para los operadores de las distintas modalidades de servicio público reguladas por el Consejo, es decir, servicio de transporte remunerado de personas, servicio regular, especiales y taxis.

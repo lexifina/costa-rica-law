@@ -1,0 +1,10 @@
+OBRAS PÚBLICAS Y TRANSPORTES
+CONSEJO DE TRANSPORTE PÚBLICO
+La Junta Directiva del Consejo de Transporte Público, de conformidad con las atribuciones que para los efectos le confiere el numeral 7 de la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi, Número 7969, publicada el 28 de enero del año 2000, artículos 11, 13, 59 y siguientes de la Ley General de la Administración Pública , Número 6227 de 1978.
+Considerando:
+1°—Que de conformidad con el numeral 25 de la Ley 7969, los operadores del transporte público autorizados conforme al marco normativo de la ley de cita, deben cancelar un canon al Consejo de Transporte Público como una de sus fuentes de financiamiento.
+2°—Que es necesario establecer los procedimientos para el calculo y cobro de los cañones establecidos por Ley Número 7961, tipificado en el capitulo V. articulo 25, incisos a) y d), que propicien la captación de los recursos que por tal concepto deben ingresar al presupuesto del Consejo.
+3°—Que para el presente texto, conforme a las potestades establecidas por el inciso 2 del numeral 361 de la Lev General de la Administración Pública , se prescinde de la audiencia establecida en ese articulo, en razón del evidente interés público inmerso en el cobro de los cánones del Consejo de Transporte Público, al ser una de las principales fuentes de financiamiento, conforme a los dispuesto por el articulo 25 de la Ley 7969, elemento de trascendental relevancia para el sano y correcto funcionamiento de este Consejo, aparejado al hecho de que ya la Contraloría General de la República ha aprobado el monto a cobrar por este concepto.
+DECRETAN:
+REGLAMENTO PARA EL CÁLCULO Y COBRO DE CÁNONES
+Articulo 1°—Objeto. El objeto del presente reglamento es establecer los procedimientos relacionados con el cálculo de distribución y cobro del canon que se aplicará a los prestatarios del transporte remunerado de personas según el tipo de servicio que presten ya sea regular, especiales o taxis.

@@ -1,0 +1,2 @@
+Articulo 11.—Obligación del agente recaudador de remitir fondos a la Tesorería Nacional. Las entidades publicas o privadas que en razón de un convenio firmado al efecto, participen en la recaudación del canon del Consejo, remitirán los fondos recaudados a la Tesorería Nacional , mediante depósito en un entero de gobierno, dentro del plazo máximo de 3 días posteriores a la recaudación.
+De la remisión de los fondos recaudados, deberá enviarse copia a la Dirección Administrativa financiera para lo que corresponda.

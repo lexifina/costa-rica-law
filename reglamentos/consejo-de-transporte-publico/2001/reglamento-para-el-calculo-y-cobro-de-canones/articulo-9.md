@@ -1,0 +1,1 @@
+Articulo 9°—Determinación de los mecanismos de recaudación del canon. Queda facultado el Director Ejecutivo, para suscribir convenios y realizar arreglos de pago, tendientes a la recaudación de los cánones, de lo cual deberá rendir informes mensuales a la Junta Directiva ,

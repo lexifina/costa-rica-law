@@ -1,0 +1,1 @@
+Articulo 14. —Nuevos operadores. Cuando se otorguen nuevas autorizaciones de prestación de servicio público reguladas por el Consejo, el nuevo operador deberá cancelar el canon respectivo en forma proporcional al momento de la formalización de su autorización operativa.
