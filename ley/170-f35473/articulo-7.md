@@ -1,0 +1,1 @@
+Art. 7. La Municipalidad, con presencia de la relacion del Agrimensor y las declaraciones de los testigos y tiradores de cuerda, determinarà el valor de la heredad mensurada; y cuando el comprador hubiere pagado á los interesados los costos de la medida, y al fondo de propios tres reales por manzana en calidad de derecho de titulo, otorgará la venta.

@@ -1,0 +1,1 @@
+Art. 18. Las extensiones labrantias serán repartidas hasta donde alcancen, cada dos años, por la respectiva Municipalidad entre los pobres cabezas de familia de su jurisdiccion que no tengan terreno propio, dandole à cada uno de una á dos manzanas segun el nùmero de personas que alimenta.
