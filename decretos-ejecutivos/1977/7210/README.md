@@ -15,3 +15,4 @@ Declara Reserva Forestal zonas de manglares o bosques salados
 | --- | --- | --- |
 | 1 | 1977-08-04 | la propia norma |
 | 2 | 1979-05-08 | Decreto Ejecutivo 10005 (1979-05-08) |
+| 3 | 1984-03-23 | Decreto Ejecutivo 15402 (1984-03-23) |
