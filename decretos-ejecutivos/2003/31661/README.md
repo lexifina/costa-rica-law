@@ -14,3 +14,4 @@ Reglamento para la Implementación de Medidas y la Integración y Regulación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-04 | la propia norma |
+| 2 | 2004-03-09 | Decreto Ejecutivo 31720 (2004-03-09) |
