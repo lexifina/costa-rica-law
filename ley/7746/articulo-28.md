@@ -1,0 +1,1 @@
+Artículo 28°- Una Autoridad Central podrá exigir que la solicitud vaya acompañada de una autorización por escrito que le confiera poderes para actuar por cuenta del solicitante, o para designar un representante habilitado para actuar en su nombre.

@@ -1,0 +1,1 @@
+Artículo 25°- Los nacionales de los Estados contratantes y las personas que residen en esos Estados tendrán derecho en todo lo referente a la aplicación del presente Convenio, a la asistencia judicial y al asesoramiento jurídico en cualquier otro Estado contratante en las mismas condiciones que si fueran nacionales y residieran habitualmente en ese otro Estado.

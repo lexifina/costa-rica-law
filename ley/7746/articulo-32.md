@@ -1,0 +1,1 @@
+Artículo 32°- Cuando se trate de un Estado que en materia de custodia de menores tenga dos o más sistemas de derecho aplicables a diferentes categorías de personas, toda referencia a la ley de ese Estado se interpretará que se refiere al sistema de derecho especificado por la ley de dicho Estado.

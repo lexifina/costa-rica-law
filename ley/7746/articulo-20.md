@@ -1,0 +1,1 @@
+Artículo 20°- La restitución del menor conforme a lo dispuesto en el artículo 12 podrá denegarse cuando no lo permitan los principios fundamentales del Estado requerido en materia de protección de los derechos humanos y de las libertades fundamentales.
