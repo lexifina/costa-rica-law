@@ -1,0 +1,1 @@
+Art. 5°. Si por la no comparecencia de un testigo, ó por otro motivo justo, no fuere posible poner el juicio en estado, en un solo acto, se continuará al día siguiente, extendiéndose en cada uno de ellos el acta correspondiente, que firmarán los qué hubiesen concurrido el Alcalde y testigos. En esté caso, la sentencia se dictará veinticuatro horas después de la última acta.

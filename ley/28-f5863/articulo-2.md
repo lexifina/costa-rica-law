@@ -1,0 +1,1 @@
+Art 2°. Para el procedimiento sobre faltas, cada Alcalde llevará un libro0 en forma, donde asentará un acta del juicio que siga, conteniendo el nombre, domicilio y demás cualidades de las partes, testigos y denunciante, si lo hubiere expuesto o declarado. - Esta acta será firmada por las partes y testigo que pudieren hacerlo, y autorizada por el Alcalde y testigos de asistencia.

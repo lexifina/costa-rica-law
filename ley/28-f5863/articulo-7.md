@@ -1,0 +1,1 @@
+Art. 7° Si no hubiere ofendido apersonado en la causa, se notificará la sentencia de 1° Instancia al Agente Fiscal, si lo hubiere en el lugar; en caso contrario, al Jefe Politico ó al Agente de Policía; en defecto de estos, a un vecino honrado que se designara en el fallo, a fin de que apelen de éste, si no lo creyeren arreglado a derecho.

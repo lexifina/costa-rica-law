@@ -1,0 +1,1 @@
+Art.3°--Dentro de veinticuatro horas de firma el acta prevenida en el articulo anterior, el Alcalde dictara sentencia que se notificará á las a las partes, en las casas que hubièsen señalado en el acta. Si hubieren omitido tal señalamiento, á que el Alcalde debe requerirlas, la sentencia se tendrá por legalmente notificada desde su fecha.
