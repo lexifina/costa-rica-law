@@ -1,1 +1,0 @@
-Art. 4°-La Tesorería Nacional y las cantonales abrirán cuenta por separado á cada distrito escolar de los fondos que administraren, y á fin de cada mes pondrán á disposición de las respectivas Tesorerías de distrito las sumas que les correspondan, las cuales se manejarán por dichas Tesorerías con total separación de los fondos nacionales y municipales.

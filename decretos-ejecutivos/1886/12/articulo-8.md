@@ -1,1 +1,0 @@
-Art. 8°-Si la testamentaría ab intestato no se liquidare dentro el lapso expresada dentro el lapso expresado en el artículo anterior, se pagará provisionalmente la suma de cinco pesos, á la reserve de que oportunamente se pague ó retire la diferencia.

@@ -1,1 +1,0 @@
-Art. 3°-La recaudación de todos los impuestos establecidos para Ia enseñanza, con excepción de las contribuciones escolares expresadas en el número 9° del artículo 94 de la ley de Educación Común, seguirá haciéndose por las Tesorerías municipales de cantón.

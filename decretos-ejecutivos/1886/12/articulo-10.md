@@ -1,1 +1,0 @@
-Art. 10°. La aprobación de toda liquidación de bienes hereditarios sin que se observe lo dispuesto en el artículo anterior, hace responsable al Juez que la diere, por el importe del impuesto de enseñanza no pagado, mientras no ingrese en la Tesorería correspondiente.

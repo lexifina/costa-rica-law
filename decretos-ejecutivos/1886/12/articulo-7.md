@@ -1,1 +1,0 @@
-Art. 7°-El albacea de toda testamentaría y el representante de todo ab intestato están obligados á pagar, dentro de noventa días contados desde la muerte del causante, el derecho correspondiente á la enseñanza pública.
