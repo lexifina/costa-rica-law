@@ -14,3 +14,4 @@ Reglamento de Crédito a Empresas Constructoras para la Realización de Programa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-15 | la propia norma |
+| 2 | 1984-02-06 | Reglamento 3504 (1984-02-06) |
