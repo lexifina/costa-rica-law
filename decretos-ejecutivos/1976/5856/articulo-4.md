@@ -1,3 +1,9 @@
-Artículo 4°—Los miembros del Colegio tendrán derecho a los beneficios que establece el presente Reglamento, después de su incorporación con el plazo que sigue:
-a) Después de tres meses para los auxilios de mutualidad.
-b) Después de seis meses para el auxilio de incapacidad temporal para el ejercicio profesional.
+Artículo 4º.—Al incorporarse, los miembros del Colegio tendrán derecho a los beneficios que establece el presente Reglamento, una vez de haber cumplido seis meses de incorporado en las siguientes condiciones:
+El auxilio de incapacidad temporal para el trabajo estará sujeto al básico de ¢ 550 colones diarios determinado por los siguientes porcentajes, según los períodos de cotización correspondientes, aplicados al monto base a que se refiere este artículo.
+Dos coma cinco por ciento (2.5) del auxilio básico cuando el aporte al Fomys, sea de una a seis cuotas mensuales
+Cinco por ciento (5%) del auxilio básico cuando el aporte al Fosmy sea de siete y hasta doce cuotas mensuales.
+Quince por ciento (15%) del auxilio básico cuando el aporte al Fosmy sea de veinticuatro cuotas mensuales.
+Treinta por ciento (30%) del auxilio básico cuando el aporte al Fosmy sea de veinticinco hasta treinta y seis cuotas mensuales.
+Cincuenta por ciento (50%) del auxilio básico cuando el aporte al Fosmy sea de treinta y siete cuotas y hasta cuarenta y ocho cuotas mensuales.
+Setenta y cinco por ciento (75%) del auxilio básico cuando el aporte al Fosmy sea de cuarenta y nueve cuotas y hasta cincuenta y nueve cuotas mensuales.
+Cien por ciento (100%) del auxilio básico cuando el aporte al Fosmy sea de sesenta cuotas mensuales o más.

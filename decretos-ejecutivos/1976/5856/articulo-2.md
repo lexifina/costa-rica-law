@@ -1,1 +1,1 @@
-Artículo 2°—La Junta Directiva administrará los fondos de dichos auxilios y responderá ante la Asamblea General de su manejo.
+Artículo 2º—Los fondos correspondientes a este auxilio serán administrados directamente por la Junta Directiva que crea una comisión especial integrada por los coordinadores de los departamentos de Fiscalía, Recursos Humanos y Tesorería, quienes analizarán las solicitudes de incapacidad temporal o mutualidad y recomendará a la Junta Directiva la autorización del pago de las mismas, para su posterior aprobación.

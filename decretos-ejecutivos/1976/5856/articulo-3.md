@@ -1,3 +1,3 @@
-Artículo 3°—Todo miembro activo del colegio pagará mensualmente una cuota de veinticinco colones para la financiación de Mutualidad y Subsidios, la cual será distribuida en la siguiente forma:
-a) ¢21,50 (veintiún colones con cincuenta céntimos) para mutualidad.
-b) ¢03,50 (tres colones con cincuenta céntimos) para la subvención de la incapacidad temporal.
+Artículo 3º—Todo miembro activo del Colegio pagará mensualmente una cuota de veinticinco colones para el financiamiento del Fondo de Mutualidad y Subsidios, la cual será distribuida en la siguiente forma:
+a) Veintiún colones con cincuenta céntimos (¢ 21,50) para mutualidad.
+b) Tres colones con cincuenta céntimos (¢ 3,50) para la subvención de incapacidades temporales.

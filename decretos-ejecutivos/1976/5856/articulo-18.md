@@ -1,1 +1,0 @@
-Artículo 18.—El derecho para retirar las sumas que la Junta Directiva apruebe en concepto de subsidios por incapacidad temporal prescribe en el término de seis meses, contados a partir del momento en que se cumplieron los requisitos exigidos para ejercer tal derecho.

@@ -1,3 +1,3 @@
 CAPÍTULO IV
 Disposiciones generales
-Artículo 14.—En caso de cesantía involuntaria y por un máximo de tres meses por motivos que no afecten la honorabilidad y competencia profesional, si el miembro se atrasare en el pago de sus cuotas, mensuales, de los sistemas de mutualidad y subsidios se pagarán del Fondo de Subsidios, cargándole el valor como auxilio.
+Artículo 14.—Los que dejen de ser miembros por renuncia, suspensión, expulsión o cualquiera otra causa no tendrán derecho a la devolución de las cuotas aportadas al Fondo de Mutualidad y Subsidios, ni al reclamo a ningún beneficio que otorga este fondo ya que el riesgo fue cubierto durante su permanencia

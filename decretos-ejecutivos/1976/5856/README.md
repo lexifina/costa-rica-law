@@ -15,3 +15,4 @@ Reglamento de Mutualidad y Subsidios de Colegio de Contadores Privados
 | --- | --- | --- |
 | 1 | 1976-03-26 | la propia norma |
 | 2 | 2001-01-18 | Reglamento 112 (2001-01-18) |
+| 3 | 2002-01-30 | Reglamento 3 (2002-01-30) |
