@@ -1,0 +1,2 @@
+ARTICULO 17.-Cuando *(la Fiscalía del Colegio) o el Departamento, comprueben el incumplimiento del horario de Regencia, por tres veces distintas en un mes, *(el Colegio cancelará la Regencia) y el Departamento el permiso sanitario correspondiente.
+**(Por Resolución de la Sala Constitucional N° 5274-03 de las 14:52 hrs del 18 de junio de 2003 se anularon de este artículo las frases encerradas entre paréntesis: "...la Fiscalía del Colegio..." y "...el Colegio cancelará la Regencia...").
