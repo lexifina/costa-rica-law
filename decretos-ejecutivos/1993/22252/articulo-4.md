@@ -1,0 +1,2 @@
+Artículo 4°_Para el óptimo funcionamiento de este Cuerpo de Inspectores, corresponderá al Director General de la Policía de Tránsito, al Subdirector General y al Jefe del Departamento de Operaciones Policiales, velar porque en todo caso se cumplan fielmente las disposiciones del presente Reglamento.
+A tal efecto podrán, si fuere necesario, designar los funcionarios que en forma directa y a través de los mecanismos que se estimen pertinentes, ejerzan un control oportuno.
