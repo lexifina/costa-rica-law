@@ -1,0 +1,1 @@
+Art. 2° Estarán subordinados al Director general, todos los empleados de los caminos, y de los demás trabajos públicos en la parte técnica del ramo de Policía; y serán nombrados por el Gobierno por las Municipalidades, a propuesta en terna del mismo Director.

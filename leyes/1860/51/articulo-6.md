@@ -1,0 +1,1 @@
+Art. 6° El Director general es responsable por las obras que no sean ejecutadas conforme a los planos e instrucciones dadas por él mismo y aprobadas por la autoridad respectiva, siempre que el defecto provenga de su descuido o negligencia.

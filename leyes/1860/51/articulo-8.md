@@ -1,0 +1,1 @@
+Art. 8° A más de las obligaciones y deberes aquí consignados, competen al Director como Superintendente general de caminos, todas las que le impone el artículo 215, sección 22, capítulo 24 del nuevo Reglamento de Hacienda y las demás leyes y disposiciones que hablan de la materia.
