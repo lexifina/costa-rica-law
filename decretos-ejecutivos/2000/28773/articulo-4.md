@@ -1,0 +1,1 @@
+Articulo 4°—Se autoriza el traslado de las plazas de la Dirección General para la Protección y Ayuda de los Refugiados, que se encuentren ocupadas al momento de la entrada en vigor de este Decreto. Para tal efecto se procederá conforme a los términos de lo dispuesto en el Decreto Ejecutivo No 22317-MP-H-MIDEPLAN del 1° de julio de 1993.

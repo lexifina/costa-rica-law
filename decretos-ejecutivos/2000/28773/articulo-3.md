@@ -1,0 +1,1 @@
+Artículo 3°—La Comisión de Liquidación contara con una Dirección Ejecutiva que será la responsable de ejecutar las resoluciones de la Comisión; así como de la ejecución presupuestaria, con cargo a los recursos autorizados en el Presupuesto Nacional.
