@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE PUNTARENAS
+La Municipalidad de Puntarenas, comunica que en la sesión ordinaria N° 88 del 12 de abril del 2003, en su artículo cuarto acordó: la aprobación y puesta en ejecución del Plan Regulador del Sector Costero Turístico de Playa Hermosa de Cóbano de Puntarenas, un vez cumplidos todos los requisitos establecidos en la ley número 6043 y su Reglamento.
+A continuación se presenta el Modelo de Reglamento de Zonificación del Sector Costero Turístico de Playa Hermosa, que deberá ser adoptado por la Municipalidad de Puntarenas y publicado en el Diario Oficial La Gaceta.
+"La Municipalidad del Cantón de Puntarenas, avisa por este medio a los solicitantes de concesión del Sector Costero Turístico de Playa Hermosa, Distrito de Cóbano y al público en general, la adopción del Reglamento de Zonificación de este sector costero de Playa Hermosa, entre los mojones N° 18 + 15 metros al 42, que consta de los siguientes artículos."
+Artículo 1º—Establecimiento del Reglamento y Objetivos. La Municipalidad del Cantón de Puntarenas, atendiendo a las disposiciones de la Ley N° 6043, sobre la Zona Marítimo Terrestre y reconociendo la necesidad de reglamentar el uso de terrenos en el Sector Costero Turístico de Playa Hermosa, del Distrito de Cóbano, dicta el presente "Reglamento de Zonificación" y que será aplicable a la Zona Marítimo - Terrestre.
+Esta Zona Marítimo - Terrestre del sector costero de Playa Hermosa se localiza entre las siguientes coordenadas de la Proyección Lambert Costa Rica Sur, Hoja Topográfica Sierpe, Escala 1:50000 Límite sur: A1: 183.925N - 405.092E, A2: 184.047N - 405.184E y Límite norte: B1: 184.660N - 404.679E, B2: 184.731N - 404.834E.
+Forma parte de este Reglamento el mapa Nº 18, como documento de referencia, en el cual se localizan todas las zonas contempladas en el mismo.
+La Zonificación tiene como objetivo orientar el desarrollo físico del área en mención, con el fin de:
+a. Responder a las características del espacio investigado, las cuales indican una vocación particular para un desarrollo turístico sustentable y de baja densidad.
+b. Favorecer la conservación y protección de todos aquellos terrenos que por sus condiciones no deban ser utilizados para el desarrollo y que son base para las actividades turísticas.
+c. Fomentar una política de desarrollo físico acorde con la vocación del área y que coadyuve a mejorar las condiciones paisajísticas del sitio.
+d. Contribuir al desarrollo económico regional y la calidad de vida de los habitantes en el entorno inmediato al área del Plan Regulador.
+e. Lograr el cumplimiento de las normas de la Ley N° 6043 y su reglamento, en lo relacionado al uso del suelo en el sector costero.
