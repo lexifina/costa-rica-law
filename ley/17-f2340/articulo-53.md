@@ -1,0 +1,2 @@
+Artículo 53.- Es obligación de los asegurados, someterse a los exámenes que determine la Caja y, en su caso, al tratamiento respectivo.
+Sólo cuando se tratare de enfermedades infecto-contagiosas, la desobediencia manifiesta a la obligación de que habla el párrafo anterior será penada con multa de seis a ciento ochenta colones o con arresto de tres a noventa días, y en el tiempo que dure la omisión, quedarán en suspenso las prestaciones en dinero de que gozare el asegurado. En los demás casos, la Caja podrá suspender el otorgamiento de los beneficios.
