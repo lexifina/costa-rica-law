@@ -1,4 +1,2 @@
-Artículo 16.- Los que sean declarados vagos o mendigos, estarán
-sujetos a vigilancia especial de las autoridades de policía, aun después
-de cumplida la condena o la medida de observación, durante un periodo de
-uno a dos años, a juicio de dichas autoridades.
+Artículo 16.-(ANULADO por Resolución de la Sala Constitucional Nº
+7549-94 de las 16:42 horas del 22 de diciembre de 1994).
