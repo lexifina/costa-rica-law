@@ -14,3 +14,4 @@ Declara de interés para el Estado los Asentamientos Consolidados atendidos por 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-28 | la propia norma |
+| 2 | 1993-11-02 | Decreto Ejecutivo 22650 (1993-11-02) |
