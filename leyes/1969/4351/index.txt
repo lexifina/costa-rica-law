@@ -12,6 +12,7 @@ articulo-11.md
 articulo-12.md
 articulo-13.md
 articulo-14.md
+articulo-14-bis.md
 articulo-15.md
 articulo-16.md
 articulo-17.md
@@ -25,7 +26,9 @@ articulo-24.md
 articulo-25.md
 articulo-26.md
 articulo-27.md
+articulo-27-bis.md
 articulo-28.md
+articulo-28-bis.md
 articulo-29.md
 articulo-30.md
 articulo-31.md

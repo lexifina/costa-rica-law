@@ -1,1 +1,2 @@
-Artículo 23.- Los miembros de la Junta Directiva Nacional deberán rendir caución por la suma de veinte mil colones antes de entrar en el ejercicio del cargo. Esta podrá consistir en hipoteca, fianza, prenda o póliza de fidelidad extendida por el Instituto Nacional de Seguros, o depósito en dinero efectivo.
+Artículo 23.- Los miembros de la Junta Directiva Nacional deberán rendir caución por la suma de doscientos mil colones, antes de entrar en el ejercicio del cargo. La referida caución podrá consistir en hipoteca, fianza prendaria o póliza de fidelidad extendida por el Instituto Nacional de Seguros, o mediante depósito en dinero efectivo.
+(Así reformado por el artículo 1° de la ley N° 7031 del 14 de abril 1986)
