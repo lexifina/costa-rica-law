@@ -1,3 +1,0 @@
-Artículo 3º.- Se sustituyen las Disposiciones Transitorias 1ª y 2ª de la ley Nº 716 de 14 de setiembre de 1949, por las siguientes:
-1ª.- Los miembros o Directores de la Junta a que esta ley se refiere continuarán en el desempeño de sus cargos por el resto del período de sus nombramientos pudiendo ser reelectos.
-2ª.- Autorízase a la Municipalidad de Poás para que se traspase la administración de su empresa eléctrica a la Junta Administrativa de Servicios Eléctricos Municipales de Alajuela, conforme a lo dispuesto por el artículo 1º de esta ley, sin intervención de ningún otro organismo en la negociación correspondiente".
