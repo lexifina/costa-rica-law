@@ -1,0 +1,1 @@
+Articulo 4°-Incapacidad o muerte: en caso de incapacidad permanente o muerte del concesionario de la patente, deberá solicitarse nueva licencia. El término es de un mes a partir de la declaratoria del estado, en orden preferente: cónyuge, o conviviente declarado, hijos con capacidad.

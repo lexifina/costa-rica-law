@@ -1,0 +1,1 @@
+Artículo 18.-Queda prohibido la cesión, donación, venta o cualquier otra forma de traspaso de los puestos estacionarios ocasionales y sus licencias. Tal negociación es causal de pérdida de la patente.

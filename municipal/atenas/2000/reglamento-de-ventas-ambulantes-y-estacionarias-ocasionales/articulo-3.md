@@ -1,0 +1,1 @@
+Articulo 3°-Requisitos: Este tipo de patente se dará por familia, siendo ésta extensiva al núcleo familiar, para ello en la Municipalidad se llevará registro de los familiares, en relación con el arto 4 de este reglamento.

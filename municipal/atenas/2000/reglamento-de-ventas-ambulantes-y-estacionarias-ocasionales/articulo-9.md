@@ -1,0 +1,1 @@
+Artículo 9°-Ubicación en cuanto a terceros: No podrán ubicarse obstruyendo ventanas, entradas, esquinas donde existan zonas de seguridad peatonal, frente a monumentos, a una distancia de metro y medio de línea de pared, en línea de ascenso de parada de autobuses, ni parques, en este último caso sólo con autorización del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 8°-Horario: Tanto los puestos ambulantes y estacionarios temporales funcionarán y tendrán horario diurno comprendido entre las seis horas y las dieciocho horas. Fuera de ese horario se necesita licencia especial. Las estacionarias temporales funcionarán en relación al arto 5 y se tomará sábados y domingos como días especiales.
