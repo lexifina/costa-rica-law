@@ -1,0 +1,1 @@
+Art. 7°-Un año después de cada una de las respectivas emisiones, se principiará á amortizar el total de billetes, á razón de $ 25,000 cada tres meses, distribuídos proporcionalmente al monto de cada una de ellas, y con las formalidades debidas de incineración.

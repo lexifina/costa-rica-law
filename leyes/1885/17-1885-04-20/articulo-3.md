@@ -1,0 +1,1 @@
+Art. 3°-Los billetes serán firmados por el Secretario de Estado en el despacho de Hacienda y por el Administrador del Banco de la Unión, en su carácter de Administrador principal de rentas de la República, según decreto de 24 de octubre de 1884.

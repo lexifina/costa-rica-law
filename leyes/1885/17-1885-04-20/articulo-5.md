@@ -1,0 +1,1 @@
+Art. 5°-Los billetes de "Emisión de Guerra" serán admitidos en todas las oficinas de la República. en pago de todos los impuestos nacionales y municipales que en la actualidad existen ó que en lo sucesivo se establezcan.

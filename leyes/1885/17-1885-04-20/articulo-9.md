@@ -1,0 +1,2 @@
+Art. 9-Para los efectos del presente, decreto, por convenio con el Banco de la Unión, se suspende por esta vez el artículo 16 del contrato celebrado entre el Gobierno y el citado establecimiento, el 21 de octubre de 1884.
+Dado en el Palacio Presidencial, en San José, á los veinte días del mes de marzo de mil ochocientos ochenta y cinco. -BERNARDO SOTO. -El Secretario de Estado en el despacho de Hacienda y Comercio, - MAURO FERNÁNDEZ.
