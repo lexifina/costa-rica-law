@@ -1,0 +1,1 @@
+Artículo 24.—El Comité Regional podrá intervenir cualquier feria cuando se determinen anomalías en su Administración y cuando las circunstancias lo ameriten podrá, previo cumplimiento de los principios del debido proceso, asignar la Administración de la feria a otro ente Administrador.

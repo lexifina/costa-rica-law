@@ -1,0 +1,6 @@
+CAPÍTULO V
+De los Emisores de Carnés
+Artículo 29.—Los carnés serán elaborados y distribuidos por el Consejo Nacional de Producción, para lo cual contarán con la firma y el sello respectivo de la dependencia autorizada por la Institución.
+Los entes responsables de la fiscalización en la emisión de los carnés lo serán las Agencias de Servicios Agropecuarios de la zona. las cuales están conformadas por funcionarios del Sector Agropecuario.
+Las Agencias de Servicios Agropecuarios podrán autorizar organizaciones de productores legalmente constituidas a efecto de que emitan carnés y en caso necesario asumirán de manera temporal la emisión de los mismos hasta tanto designen la organización idónea para realizar tal labor.
+En caso de que la emisión de los carnés se delegue en alguna organización, las Agencias de Servicios Agropecuarios deberán fiscalizar el cumplimiento de los requisitos estipulados en el presente Reglamento para la emisión de los carnés. En caso de que la organización a quién la Agencia haya autorizado la emisión del carné, incumpla con alguna de las disposiciones establecidas en el presente Reglamento, la Agencia podrá retirar la autorización y asumir la emisión de carnés de la zona de que se trate temporalmente o en su defecto delegarla en otra organización que cumpla con los requisitos para ello.

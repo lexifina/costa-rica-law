@@ -1,0 +1,2 @@
+Artículo 12.—El CNP dispondrá de un espacio permanente en cada feria sin costo alguno, el cual deberá estar ubicado en un lugar estratégico y deberá medir 3.20 metros de frente por 2.50 metros de fondo. Esta área será demarcada con el emblema CNP y será utilizada para promociones. demostraciones, situaciones criticas de comercialización u otras actividades que el CNP considere de importancia.
+El Ente Administrador podrá disponer de dicho espacio, cuando el CNP no haga uso del mismo para lo cual la Institución deberá comunicarlo con una semana de anticipación.

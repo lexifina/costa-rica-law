@@ -1,0 +1,1 @@
+Artículo 72.—Para el cumplimiento de las disposiciones que establece el presente Reglamento, los Administradores de Ferias, los funcionarios del CNP, de la Junta Nacional de Ferias y del Comité Regional que estén debidamente identificados, podrán coordinar y solicitar la colaboración de los cuerpos de policía destacados en el lugar.

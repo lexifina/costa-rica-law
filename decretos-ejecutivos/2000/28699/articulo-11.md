@@ -1,0 +1,2 @@
+Artículo 11º.—El CNP queda facultado para asistir a las sesiones de la Junta Nacional de Ferias y de los Comités Regionales, a electo de dictar políticas y fiscalizar la labor que se lleva a cabo. 1.a comparecencia del CNP lo será en su condición de rector del Programa teniendo derecho a voz. pero no a voto.
+El CNP podrá solicitar la convocatoria a sesión de cualquiera de las instancias indicadas en el presente artículo.

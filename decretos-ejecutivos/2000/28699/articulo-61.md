@@ -1,0 +1,1 @@
+Artículo 61.—Todos los productos alimenticios, envasados o empacados deberán ajustarse a las disposiciones del Ministerio de Salud y contar con el "Permiso de Funcionamiento y Registro del Producto" que debe aparecer en la correspondiente etiqueta. Además deberá cumplirse con las regulaciones de Registros y Controles del Ministerio de Salud.

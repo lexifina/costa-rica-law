@@ -1,0 +1,1 @@
+Artículo 64.—Cualquier violación a las normas estipuladas en la "Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor" obligará a los Comités Regionales a aplicar los procedimientos establecidos en el presente Reglamento, sin perjuicio de que el particular afectado plantee la denuncia ante las autoridades competentes.

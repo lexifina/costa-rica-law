@@ -1,0 +1,1 @@
+Artículo 25.—El Comité Regional deberá llevar un registro con las calidades y la firma del funcionario designado por la Agencia de Servicios Agropecuarios y por los entes emisores existentes para emitir los carnés, información que deberá ser suministrada a los otros Comités Regionales.

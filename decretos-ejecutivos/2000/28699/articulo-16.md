@@ -1,0 +1,1 @@
+Artículo 16.- La Junta se reunirá al menos una vez cada dos meses y de manera extraordinaria cuando así lo requieran las instancias facultadas para ello. Sus miembros serán nombrados por el plazo de dos años, quedando facultada para darse su propia regulación interna.

@@ -1,0 +1,1 @@
+Transitorio III.—Una vez entrado en vigencia el presente Reglamento se mantendrán según su designación las Juntas Directivas de los respectivos Comités Regionales y de la Junta Nacional de Ferias hasta tanto venza el período de su nombramiento.

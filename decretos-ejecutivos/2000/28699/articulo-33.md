@@ -1,0 +1,2 @@
+Artículo 33.—Para los casos en que la producción lo amerite, se podrá extender un máximo de dos carnés de vendedores auxiliares por finca, que los faculte para participar en un solo espacio por Feria, pudiendo sin embargo asistir a diferentes Ferias.
+Podrán hacer uso de estos carnés los hermanos, hijos, padres y el cónyuge del o de la participante, con excepción de lo regulado para las Organizaciones de Productores en el Capítulo VII del presente Reglamento.

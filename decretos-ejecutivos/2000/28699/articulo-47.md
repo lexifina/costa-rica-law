@@ -1,0 +1,2 @@
+Artículo 47.—Será requisito para obtener el carné de vendedor auxiliar el que se menciona en el artículo 33. Cuando se trate de empleados del pescador o criador, éste deberá presentar cualquiera de los siguientes documentos: orden patronal, contrato de trabajo debidamente suscrito o declaración jurada pura y simple, en donde se haga constar que el interesado es empleado del pescador o criador.
+Las organizaciones asociativas de pescadores que deseen participar en las ferias, deberán ajustarse a lo establecido en el Capítulo VIl del presente Reglamento.

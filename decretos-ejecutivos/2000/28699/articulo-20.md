@@ -1,0 +1,3 @@
+Articulo 20.—Los Comités Regionales estarán integrados por un representante de cada uno de los Entes Administradores de Feria y de las Organizaciones Emisoras de Carné de cada región donde los hubiere y un Representante de Organizaciones de Consumidores, los cuáles contaran con su respectivo suplente.
+En el supuesto de que coincida la figura del Ente Administrador con la del Ente Emisor de carnés, estará limitada su participación a un solo representante.
+Los Comités Regionales contarán con la participación del Director Regional del CNP o su representante, el cuál asistirá a las sesiones en condición de observador, con derecho a voz, pero no a voto.

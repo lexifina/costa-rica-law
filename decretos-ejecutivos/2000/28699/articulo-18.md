@@ -1,0 +1,1 @@
+Artículo 18.—La Junta Nacional de Ferias pondrá en conocimiento del CNP los acuerdos emitidos por dicho órgano, así mismo deberá informarle de posibles infracciones al Reglamento o mal manejo del programa donde se requiera la participación del CNP.

@@ -1,0 +1,1 @@
+Artículo 69.—En caso de eliminarse o suspenderse un carné de participante, se suspenderá la participación de la Unidad Productiva, no pudiendo participar el vendedor ni sus auxiliares hasta tanto no se obtenga de nuevo la autorización.

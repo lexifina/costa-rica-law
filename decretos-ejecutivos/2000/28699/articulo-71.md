@@ -1,0 +1,2 @@
+Artículo 71.—La resolución del Comité Regional aplicando las sanciones estipuladas en el presente Reglamento, tendrá recurso de revocatoria el cual deberá ser presentado ante la instancia que emitió la resolución que se esté recurriendo, dentro del quinto día hábil contado a partir de su notificación.
+Cabrá recurso de apelación para ante la Junta Nacional de Ferias del Agricultor en un término de ocho días hábiles contados a partir del día de la notificación de la resolución que emita el inferior.

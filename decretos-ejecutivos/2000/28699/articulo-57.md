@@ -1,0 +1,1 @@
+Artículo 57.—El Comité Regional en coordinación con la Junta de Fomento Avícola, queda facultado para realizar las investigaciones, inspecciones o solicitar la información que respalde el otorgamiento de los carnés.

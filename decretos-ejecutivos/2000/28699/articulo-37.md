@@ -1,0 +1,2 @@
+Artículo 37.—Será total responsabilidad del Ente Administrador, el funcionamiento de la feria a su cargo, así como hacer cumplir el presente Reglamento y coordinar con las instituciones respectivas la aplicación de las leyes y disposiciones conexas.
+El Ente Administrador deberá contar con un Reglamento interno sobre procedimientos y normas administrativas para el manejo de la o las ferias a su cargo.

@@ -1,0 +1,1 @@
+Artículo 9°—Las decisiones que el CNP adopte en materia de Ferias del Agricultor serán vinculantes. El CNP podrá, otorgando el debido proceso, suspender la ejecución de los actos contrarios a las directrices emitidas asegurándose la implementación de las mismas.

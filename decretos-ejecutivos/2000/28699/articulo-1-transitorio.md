@@ -1,0 +1,1 @@
+Transitorio I.—Dentro de los sesenta días calendario contados a partir de la publicación del presente Reglamento, las Ferias del Agricultor establecidas y entes autorizados para la entrega de carnés deberán ajustarse a las disposiciones de este Reglamento.

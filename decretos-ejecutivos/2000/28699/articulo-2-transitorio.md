@@ -1,0 +1,1 @@
+Transitorio II.—Todas las autorizaciones otorgadas para la operación de ferias y los carnés que hubieren sido emitidos con anterioridad a la promulgación del presente Reglamento, continuarán vigentes, siempre que se hayan otorgado con ajuste a la normativa que se encontraba vigente.

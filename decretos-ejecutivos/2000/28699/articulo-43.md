@@ -1,0 +1,1 @@
+Artículo 43.—Las Empresas Agroindustriales, Organizaciones asociativas Agrícolas y Agropecuarias y Colegios Agropecuarios Productores, que deseen participar en las Ferias, deberán solicitar por escrito sus carnés a la Agencia o Ente autorizado en la Región, por medio de su representante legal debidamente acreditado, quién será el responsable del manejo de los carnés auxiliares.

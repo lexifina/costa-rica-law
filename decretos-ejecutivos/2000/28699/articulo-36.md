@@ -1,0 +1,1 @@
+Artículo 36.—El Ente Administrador de una feria, nombrara un Administrador. Para el desempeño de sus funciones el Ente Administrador le proporcionará un cuerpo de Inspectores con conocimientos básicos de la actividad agropecuaria y cuyas funciones serán las propias de la operatividad de la feria de conformidad con la asignación que haga el Administrador.

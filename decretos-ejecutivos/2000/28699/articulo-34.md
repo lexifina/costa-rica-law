@@ -1,0 +1,1 @@
+Artículo 34.—La obtención del carné respectivo facultará a su portador para participar en cualquier feria del país, respetando los requerimientos que sean establecidos por cada ente administrador y las limitaciones bajo las cuales se le otorga la autorización respectiva y que estarán indicadas en el carné.

@@ -1,0 +1,1 @@
+Articulo 14.—El Consejo Nacional de Producción por medio del Programa de Reconversión Productiva y previa autorización de su Junta Directiva, podrá financiar a las organizaciones que participan en el Programa Nacional de Ferias del Agricultor con la exclusiva finalidad de modernizar dichas ferias.

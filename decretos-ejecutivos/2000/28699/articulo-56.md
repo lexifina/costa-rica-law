@@ -1,0 +1,2 @@
+Artículo 56.—Cada renovación del carné deberá ser resellada. previa inspección de la granja o planta, por la Junta de Fomento Avícola y se autorizaran por períodos no mayores de seis meses.
+Cada vez que se solicita la renovación de un carne, quedará esta sujeta a un estudio de verificación de los datos anteriormente solicitados. pudiendo ser retenido o retirado al no cumplir con los requisitos establecidos o por falta de veracidad en la información suministrada.

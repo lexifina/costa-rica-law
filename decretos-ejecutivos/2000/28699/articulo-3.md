@@ -1,0 +1,1 @@
+Articulo 3°—Únicamente se permitirá la venta en las ferias, a los productores y organizaciones participantes, que cumplan con los requisitos mencionados en el presente Reglamento, prohibiéndose la participación de intermediarios.

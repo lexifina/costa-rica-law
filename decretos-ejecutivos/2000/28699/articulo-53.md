@@ -1,0 +1,1 @@
+Articulo 53.—Harán uso de carnés auxiliares únicamente parientes en primer grado de consanguinidad o afinidad, hasta un máximo de tres carnés dependiendo del volumen de producción, salvo lo referente a Personas Jurídicas a quiénes se les aplicarán las normas establecidas respecto a Organizaciones de Productores.

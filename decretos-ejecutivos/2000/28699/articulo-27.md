@@ -1,0 +1,1 @@
+Artículo 27.—El Comité Regional en conjunto con el CNP establecerán bajo parámetros técnicos y económicos, el monto que deberán cobrar las Agencias de Servicios Agropecuarios y los entes u organizaciones emisoras, por concepto de Inspección a Finca y Emisión del Carné respectivo.
