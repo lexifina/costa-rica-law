@@ -1,1 +1,0 @@
-Artículo 2º—Los proyectos nuevos o remodelaciones que se construyan en el cantón y que incluyen áreas de estacionamiento; deberán incluir, desde el anteproyecto, las áreas de acceso, maniobra y parqueo de los vehículos dentro del área del mismo.

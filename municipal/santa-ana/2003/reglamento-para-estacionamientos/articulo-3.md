@@ -1,1 +1,0 @@
-Artículo 3º—No se permitirán estacionamientos en terrenos destinados a un uso no residencial, en los que el vehículo sale marcha atrás sobre la acera o el espaldón de la calle y maniobra sobre la vía pública para partir.
