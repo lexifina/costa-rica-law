@@ -14,3 +14,4 @@ De Interés Nacional Celebración Semana Derechos HumanosActividades entre el 22
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
+| 2 | 1999-08-19 | SINALEVI (sin norma nombrada) |

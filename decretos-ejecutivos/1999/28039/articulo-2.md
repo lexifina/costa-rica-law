@@ -1,0 +1,1 @@
+Artículo 2º—Declarar de interés nacional todas las actividades que las instituciones públicas realicen para la celebración del trigésimo aniversario de la Convención Americana sobre Derechos Humanos y el vigésimo aniversario de la Corte Interamericana de Derechos Humanos.
