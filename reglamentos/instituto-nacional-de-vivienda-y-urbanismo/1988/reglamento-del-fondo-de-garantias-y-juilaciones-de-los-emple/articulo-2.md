@@ -1,0 +1,1 @@
+Artículo 2°—El Fondo de Garantías y Jubilaciones, que en lo sucesivo se denominará "El Fondo", tiene como fin principal otorgar a sus miembros beneficios en caso de retiro del servicio, invalidez total permanente y muerte, en las condiciones y requisitos establecidos en este reglamento.

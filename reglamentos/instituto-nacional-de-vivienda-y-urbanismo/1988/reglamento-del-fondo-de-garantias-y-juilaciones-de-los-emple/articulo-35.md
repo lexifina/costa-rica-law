@@ -1,0 +1,1 @@
+Artículo 35.—La Junta Administradora fijará los requisitos y trámites de las solicitudes y la documentación para la obtención de los préstamos comprendidos dentro de las finalidades, establecidas en la Sección V del presente reglamento.

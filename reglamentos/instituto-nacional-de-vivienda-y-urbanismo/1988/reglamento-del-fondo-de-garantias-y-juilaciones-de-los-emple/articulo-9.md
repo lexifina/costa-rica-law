@@ -1,0 +1,1 @@
+Artículo 9°—La contabilidad general y de las inversiones de la mutualidad estarán bajo la responsabilidad del Departamento de Contabilidad y del Departamento de Tesorería, respectivamente, debiendo llevarse por separado estos registros para conocerla situación del sistema en los períodos de evaluación indicados en este reglamento.
