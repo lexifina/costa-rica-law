@@ -14,3 +14,4 @@ Reforma Normas que Regulan la Formalización de Arreglos de Pago a Deudas Deriva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-01 | la propia norma |
+| 2 | 2000-09-01 | Ley 8 |
