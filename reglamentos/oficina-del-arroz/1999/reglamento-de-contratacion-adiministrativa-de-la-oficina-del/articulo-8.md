@@ -1,0 +1,1 @@
+Artículo 8°—Todo interesado en integrar el Registro de Proveedores, estará obligado a verificar la inclusión efectuada por la Proveeduría dentro del lapso de 20 días hábiles a partir de su presentación. En caso de no existir objeción alguna dentro de tal lapso, para todos los efectos se tendrá por firme la inclusión y se procederá consecuentemente.

@@ -1,0 +1,1 @@
+Artículo 24.—Con el fin de asesorarse, la Proveeduría podrá solicitar la participación, tanto en los estudios y análisis del personal técnico y administrativo que estime conveniente sin perjuicio del apoyo que le pueda ofrecer la Asesoría Legal en todos aquellos procedimientos conducentes a imponer sanciones o penalizaciones y ejecutar garantías a los oferentes y contratistas.

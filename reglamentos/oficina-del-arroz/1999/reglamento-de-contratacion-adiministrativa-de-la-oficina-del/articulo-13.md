@@ -1,0 +1,1 @@
+Artículo 13.—Cuando al proveedor se le aplique la sanción de suspensión para contratar con la Administración, con apego a las regulaciones que sobre la materia contenga el ordenamiento Jurídico; tal circunstancia se hará constar en el Registro de Proveedores, a efecto de dar cumplimiento con el fin legal previsto.

@@ -1,0 +1,1 @@
+Artículo 4°—A efectos de mantener actualizado el Registro de Proveedores, la Oficina del Arroz invitará a los interesados en integrarlo mediante publicación en el Diario Oficial y un diario de circulación nacional, al menos una vez al año.

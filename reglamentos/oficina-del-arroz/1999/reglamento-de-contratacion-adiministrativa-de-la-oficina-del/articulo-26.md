@@ -1,0 +1,4 @@
+De las Prohibiciones de Contratar:
+Artículo 26.—Están totalmente inhibidas para participar, directa o indirectamente, en los procedimientos de contratación promovidos por la Institución, los funcionarios y demás personas físicas y jurídicas señaladas en el Artículo 22 de la Ley de Contratación Administrativa No 7494 del 2 de mayo de 1995 y su Reglamento.
+A tales efectos, los funcionarios responsables del análisis en los diversos procedimientos de contratación, deberán poner especial atención al cumplimiento de las normas sobre prohibiciones a que se refiere el artículo anterior.
+La violación del régimen de prohibiciones establecidas, originara la nulidad absoluta de la oferta, el acto de adjudicación o el contrato recaídos en favor del inhibido y acarreará, a la parte infractora, las sanciones previstas en la Ley de Contratación Administrativa y en los Artículos 24, 25 y 27 del Reglamento General de Contratación Administrativa.

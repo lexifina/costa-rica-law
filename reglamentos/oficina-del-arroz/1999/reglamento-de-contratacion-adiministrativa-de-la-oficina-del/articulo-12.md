@@ -1,0 +1,1 @@
+Artículo 12.—Existirá la facultad de exclusión unilateral por de la Administración, cuando las circunstancias lo ameriten, previa comunicación al potencial proveedor, quien en caso de inconformidad, podrá recurrir la actuación por medio de los recursos ordinarios que establece la Ley General de la Administración Pública.

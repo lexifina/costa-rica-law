@@ -1,0 +1,1 @@
+Artículo 28.—El presente Reglamento podrá ser modificado por la Junta Directiva de la Oficina del Arroz, en caso de que lo considere pertinente, efectuando la publicación correspondiente en los medios de comunicación establecidos.

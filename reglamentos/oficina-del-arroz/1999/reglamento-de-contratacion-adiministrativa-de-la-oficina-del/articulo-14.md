@@ -1,0 +1,1 @@
+Artículo 14.—En la base de datos que llevará el Departamento Administrativo, Unidad de Proveeduría se incluirán al menos los siguientes aspectos: Código de potencial proveedor, dirección geográfica, teléfono, fax, apartado postal, descripción de los bienes y/o servicios que ofrece, informes por proveedor y por artículo y observaciones.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se invite a participar en los diferentes concursos, la persona física o jurídica se entiende obligada a responder el llamado ya sea presentando una oferta o bien manifestando por escrito las razones por las cuales no participa.
