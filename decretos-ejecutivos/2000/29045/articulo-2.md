@@ -1,0 +1,1 @@
+Artículo 2°—Se reforma el inciso 2.1) del articulo 2 del Decreto Ejecutivo No 28208-11 del 30 de setiembre de 1999, para que donde dice: "El contrato de prestación de servicios de estos profesionales tendrá una vigencia de un año..." se lea "El contrato de prestación de servicios de estos profesionales tendrá una vigencia de 24 meses,..".
