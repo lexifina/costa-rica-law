@@ -1,0 +1,1 @@
+Artículo 8.- Si el proceso de transmisión se interrumpe por cualquier motivo, cuando éste se restablezca, el servidor encargado de efectuar la comunicación electrónica, deberá verificar en la pantalla cuáles comunicaciones no fueron transmitidas, para proceder de inmediato a realizar la transmisión.

@@ -1,0 +1,1 @@
+Artículo 3.- Firmada la comunicación, éste será almacenada en el directorio que la oficina respectiva determine. Cuando el documento principal tenga anexos que no puedan remitirse por ese medio deberán ser enviados a la oficina que corresponda por los medios ordinarios..
