@@ -14,3 +14,4 @@ Normas para la Administración de las Reservas Monetarias Internacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-28 | la propia norma |
+| 2 | 2001-05-30 | Reglamento 5076 (2001-05-30) |
