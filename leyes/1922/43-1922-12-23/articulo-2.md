@@ -1,0 +1,2 @@
+Artículo 2°- Las penas del artículo 71 se aplicarán a los asegurados en la forma expresada que, contra lo dispuesto en el artículo 58 no acataren o hicieren acatar por la Compañía Aseguradora en el término previsto en dicho artículo 58 la orden de la Superintendencia de Seguros sobre reducción de su póliza, debiendo impartir por su parte dicha orden si fuere necesario por cable y a su costa a la respectiva Compañía.
+Casa Presidencial, San José, a los veintitrés días del mes de diciembre de novecientos veintidós.
