@@ -1,0 +1,1 @@
+Artículo 19.—Determinación de Oficio. La determinación de oficio del monto del Impuesto por Licencia Municipal se hará de acuerdo a los criterios que establecen los artículos ___ y ___ de la Ley de Patentes de esta Municipalidad.
