@@ -209,71 +209,37 @@ CAPÍTULO 38
 PRODUCTOS DIVERSOS DE LAS INDUSTRIAS QUÍMICAS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
-a) Los productos de constitución química definida presentados
-aisladamente, distintos de los citados a continuación:
+a) Los productos de constitución química definida presentados aisladamente, distintos de los citados a continuación:
 1. El grafito artificial (partida 38.01);
-2. Los desinfectantes, insecticidas, fungicidas, raticidas, herbicidas,
-inhibidores de germinación, reguladores del crecimiento de las plantas y
-productos similares presentados en las formas o envases previstos en la partida
-38.11;
-3. Los productos extintores presentados como cargas para aparatos
-extintores o en granadas extintores (partida 38.17);
-4. Los productos citados en la siguiente Nota 2, apartados a), c), d)
-y f);
-b) Las mezclas de productos químicos y de sustancias alimenticias del
-tipo de las que utilizan en la preparación de alimentos para el consumo humano
-(partida 21.07 generalmente);
+2. Los desinfectantes, insecticidas, fungicidas, raticidas, herbicidas, inhibidores de germinación, reguladores del crecimiento de las plantas y productos similares presentados en las formas o envases previstos en la partida 38.11;
+3. Los productos extintores presentados como cargas para aparatos extintores o en granadas extintores (partida 38.17);
+4. Los productos citados en la siguiente Nota 2, apartados a), c), d) y f);
+b) Las mezclas de productos químicos y de sustancias alimenticias del tipo de las que utilizan en la preparación de alimentos para el consumo humano (partida 21.07 generalmente);
 c) Los medicamentos (partida 30.0 3).
-2. Se consideran comprendidas en la partida 38.19 y no en otra partida
-de la Nomenclatura:
-a) Los cristales cultivados de sales halogenadas de metales alcalinos
-o alcalinotérreos o de óxido de magnesio (con excepción de los elementos de
-óptica), de un peso unitario o superior o igual a 2,5 gramos:
+2. Se consideran comprendidas en la partida 38.19 y no en otra partida de la Nomenclatura:
+a) Los cristales cultivados de sales halogenadas de metales alcalinos o alcalinotérreos o de óxido de magnesio (con excepción de los elementos de óptica), de un peso unitario o superior o igual a 2,5 gramos:
 b) Los aceites de fusel;
-c) Los productos "borradores de tinta" acondicionados en envases para
-la venta al por menor;
-d) Los productos para corrección de clisés para multicopistas,
-acondicionados en envases para la venta al por menor;
-e) Los indicadores fusibles cerámicos para el control de la temperatura
-de los hornos;
+c) Los productos "borradores de tinta" acondicionados en envases para la venta al por menor;
+d) Los productos para corrección de clisés para multicopistas, acondicionados en envases para la venta al por menor;
+e) Los indicadores fusibles cerámicos para el control de la temperatura de los hornos;
 f) Las escayolas especialmente preparadas para el arte dental;
-g) Los elementos químicos del Capítulo 28, tales como el silicio y el
-selenio impurificados para su utilización en electrónica, presentados
-en forma de disco, plaquitas o formas análogas, pulidos o no, revestidos
-o no de una capa epitaxial uniforme.
-Partidas DAI
-Subpartidas % sobre
-e incisos Valor CIF
-Descripción
-38.01 00 00 Grafito artificial y grafito coloidal, excepto el que
-se presente en suspensión en aceite ... ... ... .. 5
-(38.02)
-38.03 00 00 Carbones activados; materiales minerales naturales
-activadas; negros de origen animal, incluido el
-negro animal ... ... ... ... ... ... ... ... ... .. 5
-(38.04)
-38.05 00 00 "Tall oil" (resinas de lejías celulósicas)... ... .. 5
-38.06 00 00 Lignosulfitos ... ... ... ... ... ... ... ... ... .. 5
-38.07 Esencia de trementina; esencia de madera de pino
-o esencia de pino, esencia de pasta celulósica al
-sulfato y demás disolventes terpénicos procedentes
-de la destilación o de otros tratamientos de las
-maderas de coníferas; dipenteno en bruto; esencia
-de pasta celulósica al bisulfito; aceite de pino
-01 00 Esencia de trementina ... ... ... ... ... ... ... . 1
-80 00 Otros ... ... ... ... ... ... ... ... ... ... ...... 10
-38.08 00 00 Colofonias y ácidos resínicos, y sus derivados, excepto
-las resinas esterificadas de la partida 39.05;
-esencia de colofonia y aceite de colofonia... ... . 5
-38.09 00 00 Alquitranes de madera; aceites de alquitranes de
-madera (distintos de los disolventes y diluyentes
-compuestos de la partida 38.18); creosota de madera;
-metileno; aceite de acetona; pez vegetal de
-todas clases; pez de cerveceros y productos análogos
-a base de colofonias o de pez vegetal; aglutinantes
-para núcleos de fundición a base de
-productos resinosos naturales ... ... ... ... ... 5
-(38.10)
+g) Los elementos químicos del Capítulo 28, tales como el silicio y el selenio impurificados para su utilización en electrónica, presentados en forma de disco, plaquitas o formas análogas, pulidos o no, revestidos o no de una capa epitaxial uniforme.
+Partidas Subpartidas e incisos | Descripción | DAI % sobre Valor CIF
+38.01 00 00 | Grafito artificial y grafito coloidal, excepto el que |
+| se presente en suspensión en aceite ... ... ... .. | 5
+(38.02) | |
+38.03 00 00 | Carbones activados; materiales minerales naturales |
+| activadas; negros de origen animal, incluido el |
+| negro animal agotado... ... ... ... ... ... ... ... ... .. | 5
+(38.04) | |
+38.05 00 00 | "Tall oil" (resinas de lejías celulósicas)... ... .. | 5
+38.06 00 00 | Lignosulfitos ... ... ... ... ... ... ... ... ... .. | 5
+38.07 | Esencia de trementina; esencia de madera de pino o esencia de pino, esencia de pasta celulósica al sulfato y demás disolventes terpénicos procedentes de la destilación o de otros tratamientos de las maderas de coníferas; dipenteno en bruto; esencia de pasta celulósica al bisulfito; aceite de pino |
+01 00 | Esencia de trementina ... ... ... ... ... ... ... . | 1
+80 00 | Otros ... ... ... ... ... ... ... ... ... ... ...... | 10
+38.08 00 00 | Colofonias y ácidos resínicos, y sus derivados, excepto las resinas esterificadas de la partida 39.05; esencia de colofonia y aceite de colofonia... ... . | 5
+38.09 00 00 | Alquitranes de madera; aceites de alquitranes de madera (distintos de los disolventes y diluyentes compuestos de la partida 38.18); creosota de madera; metileno; aceite de acetona; pez vegetal de todas clases; pez de cerveceros y productos análogos a base de colofonias o de pez vegetal; aglutinantes para núcleos de fundición a base de productos resinosos naturales ... ... ... ... ... | 5
+(38.10) | |
 38.11 Desinfectantes, insecticidas, fungicidas raticidas,
 herbicidas, inhibidores de germinación, reguladores
 del crecimiento de las plantas y productos similares,
@@ -3080,32 +3046,18 @@ PLUMON; FLORES ARTIFICIALES; MANUFACTURAS DE CABELLOS
 Notas:
 1. Este Capítulo no comprende:
 a) Los capachos de cabellos, para prensas de aceite (partida 59.1 7);
-b) Los motivos florales de encaje, de bordados o de otros tejidos
-(Sección XI);
+b) Los motivos florales de encaje, de bordados o de otros tejidos (Sección XI);
 c) El calzado (Capítulo 64);
 d) Los sombreros, gorras y demás tocados (Capítulo 65);
-e) Las borlas y borlitas de plumón (partida 96.05) y los cedazos de
-cabellos (partida 96.06);
-f) Los artículos que tengan carácter de juguetes o de artefactos
-deportivos, los artículos de cotillón y artículos para árboles y fiestas de
-Navidad (especialmente los árboles artificiales de Navidad) del Capítulo
-97.
+e) Las borlas y borlitas de plumón (partida 96.05) y los cedazos de cabellos (partida 96.06);
+f) Los artículos que tengan carácter de juguetes o de artefactos deportivos, los artículos de cotillón y artículos para árboles y fiestas de Navidad (especialmente los árboles artificiales de Navidad) del Capítulo 97.
 2. La partida 67.01 no comprende:
-a) Los artículos en los que las plumas o el plumón constituyen
-únicamente en material de relleno y, especialmente, los artículos de cama
-de la partida 94.04;
-b) Las prendas de vestir y sus accesorios en los que las plumas o el
-plumón constituyen simples adornos o material de relleno;
-c) Las flores, follajes y sus partes y los artículos confeccionados
-de la partida 67.02.
+a) Los artículos en los que las plumas o el plumón constituyen únicamente en material de relleno y, especialmente, los artículos de cama de la partida 94.04;
+b) Las prendas de vestir y sus accesorios en los que las plumas o el plumón constituyen simples adornos o material de relleno;
+c) Las flores, follajes y sus partes y los artículos confeccionados de la partida 67.02.
 3. La partida 67.02 no comprende:
-a) Los artículos citados en la misma cuando sean de vidrio (Capítulo
-70);
-b) Las imitaciones de flores, de follajes o de frutos, de materias
-cerámicas, piedra, metal, madera, etc., obtenidas de una sola pieza por
-moldeo forjado, cincelado, estampado u otro procedimiento, o bien formadas
-por varias partes unidas por procedimientos distintos al del encolado,
-ligaduras o análogos.
+a) Los artículos citados en la misma cuando sean de vidrio (Capítulo 70);
+b) Las imitaciones de flores, de follajes o de frutos, de materias cerámicas, piedra, metal, madera, etc., obtenidas de una sola pieza por moldeo forjado, cincelado, estampado u otro procedimiento, o bien formadas por varias partes unidas por procedimientos distintos al del encolado, ligaduras o análogos.
 Partidas
 DAI
 Subpartidas
@@ -7759,3 +7711,9 @@ Código | Descripción | T.M. | (%) | (%)
 Nota: El artículo N° 1° del Decreto Ejecutivo No. 31727 de 23 de marzo de 2004 hizo una modificación, para Costa Rica, de la siguiente manera:
 Código Descripción DAI(%)
 8524.32.00 Para reproducir únicamente sonido 10
+Nota: Mediante artículo 1° del Decreto Ejecutivo N° 32865 de 14 de junio de 2004, se prorroga "...la vigencia del Decreto Ejecutivo N° 30901-COMEX publicado en el Alcance 94 a La Gaceta N° 251 del 30 de diciembre de 2002, el cual realiza una apertura arancelaria y modifica los Derechos Arancelarios a la Importación contemplados en el Arancel Centroamericano de Importación, como se detalla a continuación:"
+SAC | Descripción | DAI
+32.09 | PINTURAS Y BARNICES A BASE DE DE POLIMEROS O MODIFICADOS, DISPERSOS O DISULTOS EN UN MEDIO ACUOSO |
+3209.10 | -A base de polímeros acrílicos o vinílico |
+3209.10.10 | — Barniz para artes gráficas | 0
+3209.10.90 | — Otros | 14
