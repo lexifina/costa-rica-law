@@ -1,0 +1,1 @@
+Artículo 5°─ La Jornada Extraordinaria se producirá después de ajustada la jornada acumulativa mensual antes mencionada, y se regirá en todo por la ley. Para el cómputo de las horas trabajadas y la determinación del límite de la Jornada Ordinaria, se aplicará la regla sentada en el artículo 3° in fine, cuando ello sea procedente.

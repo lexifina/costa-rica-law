@@ -1,0 +1,2 @@
+Artículo 2°─ Los salarios mínimos vigentes o superiores a éstos , correspondientes a los Médicos de los centros hospitalarios a quienes se refiere este Decreto, se entienden fijados para las jornadas ordinarias de trabajo, y, por consiguiente, no serán afectados al aplicarse este Reglamento. Tampoco se verán afectadas las condiciones contractuales favorables a los Médicos que no se oponga a esta reglamentación.
+Dado en la Casa Presidencial. ─San José a los diecinueve días del mes de octubre de mil novecientos sesenta y cinco.
