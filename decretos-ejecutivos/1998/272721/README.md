@@ -15,3 +15,4 @@ Reglamento de Funcionamiento del Consejo Superior de Trabajo
 | --- | --- | --- |
 | 1 | 1998-08-21 | la propia norma |
 | 2 | 1999-01-04 | Decreto Ejecutivo 27644 (1999-01-04) |
+| 3 | 2004-02-18 | Decreto Ejecutivo 31695 (2004-02-18) |
