@@ -1,0 +1,1 @@
+Articulo 12.—Formalización de la carta mandato. Luego de notificado el acto de adjudicación final y vencido el plazo de apelaciones, se procederá a la suscripción de la carta mandato y se iniciará el proceso de formalización del contrato de suscripción con el banco seleccionado, según los principios del derecho internacional.

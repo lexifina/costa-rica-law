@@ -1,0 +1,1 @@
+Articulo 3°—Tramitación del procedimiento. La tramitación del procedimiento para la selección \ contratación del banco líder estará a cargo a cargo de la Tesorería Nacional \ el Despacho del Ministro de Hacienda. Se contará con la asesoría de la Dirección General de Administración de Bienes y Contratación Administrativa.
