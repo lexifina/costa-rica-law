@@ -1,0 +1,2 @@
+Artículo 20.—La liquidación de los Fondos no Reembolsables, los debe de remitir el responsable del Fondo dentro del plazo máximo de los diez días hábiles siguientes, a la finalización de la compra de los bienes o servicios que dieron origen^ la autorización de la apertura del Fondo.
+El Fondo Reembolsable que no se utilizará más, también será liquidado de esta manera. En ambos casos la liquidación la enviará al Departamento Financiero con copia a la Unidad de Tesorería.

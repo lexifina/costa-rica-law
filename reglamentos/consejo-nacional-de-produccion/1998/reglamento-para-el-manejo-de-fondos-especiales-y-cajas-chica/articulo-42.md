@@ -1,0 +1,1 @@
+Artículo 42.—Las dudas en la aplicación de este Reglamento serán evacuadas por la Administración General. Las reformas totales o parciales, del mismo deberán ser sometidas por la Administración General a aprobación de la Junta Directiva.

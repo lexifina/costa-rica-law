@@ -1,0 +1,2 @@
+Artículo 25.—La Administración General emitirá anualmente un listado de aquellos artículos para los cuales existe autorización de compra por medio de Fondos Especiales Reembolsables y cajas chicas. Mientras no se actualicen estos listados regirán para el año siguiente.
+Los Fondos Especiales No Reembolsables sólo podrán destinarse al gasto previamente determinado y descrito, según el artículo 2 b) de este Reglamento.

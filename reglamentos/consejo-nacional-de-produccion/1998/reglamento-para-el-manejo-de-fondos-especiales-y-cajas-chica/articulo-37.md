@@ -1,0 +1,1 @@
+Artículo 37.—Los desembolsos provisionales de Cajas Chicas deben estar respaldados por un adelanto de caja chica en el que indica que el monto y el nombre del empleado que recibió el efectivo para efectuar la compra de un precio indeterminado. El desembolso provisional debe quedarse al segundo día hábil siguiente.

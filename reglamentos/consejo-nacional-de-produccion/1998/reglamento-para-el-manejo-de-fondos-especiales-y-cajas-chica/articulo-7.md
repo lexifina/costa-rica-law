@@ -1,0 +1,1 @@
+Artículo 7° — Cuando por insuficiencia de un Fondo Reembolsable o no Reembolsable se requiera una ampliación, se debe cumplir con lo señalado en los artículos 2, 3 y 4 de este Reglamento, exceptuando el envío a la Junta Directiva, si no sobrepasa el tope máximo establecido.

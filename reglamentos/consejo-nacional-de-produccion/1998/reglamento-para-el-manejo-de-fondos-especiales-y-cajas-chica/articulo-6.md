@@ -1,0 +1,2 @@
+Artículo 6° — El Administrador General, estudia la recomendación indicada en el artículo anterior y autoriza o deniega la apertura del Fondo Especial y comunica su decisión al Departamento Financiero y al solicitante. En caso de negativa, el jerarca razonará explícitamente su decisión.
+Si es indispensable abrir una cuenta corriente para el manejo del Fondo autorizado, la Administración solicitará previamente la aprobación respectiva de la Junta Directiva.

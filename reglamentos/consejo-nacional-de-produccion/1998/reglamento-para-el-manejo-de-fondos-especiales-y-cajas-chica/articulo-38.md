@@ -1,0 +1,1 @@
+Artículo 38.—El solicitante de una Caja Chica, es quien debe notificar al Departamento de Financiero, con copia a la Contabilidad ya la Tesorería, la decisión del cierre de esta así como la fecha a partir de la cual hará efectivo.

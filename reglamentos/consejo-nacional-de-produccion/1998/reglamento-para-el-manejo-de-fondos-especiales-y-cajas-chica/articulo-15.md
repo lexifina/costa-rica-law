@@ -1,0 +1,1 @@
+Artículo 15.—El nuevo Girador nombrado debe recibir de parte del responsable del Fondo, copia de la información citada en el artículo anterior, la cual conservará con sus papeles de trabajo como respaldo para efectuar la primera liquidación siguiente.

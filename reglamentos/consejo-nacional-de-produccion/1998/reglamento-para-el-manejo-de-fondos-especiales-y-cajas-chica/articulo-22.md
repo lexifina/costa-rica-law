@@ -1,0 +1,1 @@
+Artículo 22.—En los casos en que exista el recurso humano requerido, deben girarse los cheques con firmas mancomunadas, cuando no es posible, el responsable del Fondo deberá efectuar arqueos periódicos y sorpresivos de la chequera que maneja el girador o giradores.
