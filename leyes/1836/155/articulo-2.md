@@ -1,0 +1,1 @@
+Art 2°.- E terreno en que tengan casa de teja o la fabriquen en lo sucesivo los habitantes de aquellos pueblos, se les concede en absoluta propiedad un solar de cincuenta varas cuadradas, “ siendo aquel nacional.
