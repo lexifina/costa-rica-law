@@ -8,5 +8,5 @@ que contraten con entes financieros internacionales las instituciones
 estatales de educación superior. El otorgamiento del aval queda sujeto a
 que se haya cumplido con todos los trámites legales vigentes para el
 endeudamiento externo.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(*) NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)

@@ -1,9 +1,9 @@
-ARTICULO 17.- Queda absolutamente prohibido a todas la instituciones
-autónomas y semiautónomas, a las municipalidades, así como a las empresas
-públicas y a sus subsidiarias constituidas como sociedades y a todas
-aquellas instituciones públicas creadas por ley general o especial,
-aumentar sus gastos durante 1985 mediante presupuestos extraordinarios,
-excepto en las siguientes partidas.
+ARTICULO 17.-(*) Queda absolutamente prohibido a todas la
+instituciones autónomas y semiautónomas, a las municipalidades, así como
+a las empresas públicas y a sus subsidiarias constituidas como sociedades
+y a todas aquellas instituciones públicas creadas por ley general o
+especial, aumentar sus gastos durante 1985 mediante presupuestos
+extraordinarios, excepto en las siguientes partidas.
 1) Sueldos y salarios, siempre y cuando se trate de dar contenido a
 revaloraciones generales por incremento en el costo de la canasta básica
 o a la aplicación de los salarios mínimos legales, todo de acuerdo con
@@ -23,5 +23,5 @@ el tipo de cambio.
 contractuales ineludibles para la institución o empresa, siempre y cuando
 la obligación se haya formalizado legalmente antes del 1º de febrero de
 1985.
-(* NOTA: Numeración del artículo corregida por Fe de Erratas. Ver
+(* NOTA: Corrección de numeración por Fe de Erratas. Ver
 Observaciones)
