@@ -13,3 +13,4 @@ Reglamento a la Ley de Propina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-11-17 | la propia norma |
+| 2 | 1972-11-17 | SINALEVI (sin norma nombrada) |
