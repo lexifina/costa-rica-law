@@ -1,0 +1,1 @@
+Artículo 23.—Toda solicitud de registro deberá estar acompañada por el certificado de servicio del semental correspondiente o factura de compra de semen o factura de compra de embriones y firmada por el dueño de los mismos, así como también la firma del dueño de la reproductora salvo que concurra en el solicitante el ser dueño del reproductor, reproductora y la cría.

@@ -1,0 +1,1 @@
+Artículo 19.—Todo criador dispondrá de treinta días hábiles del recibo oficial para apelar ante el Comité de Registro el fallo emitido por el Inspector. El Comité deberá resolver a más tardar quince días hábiles después de recibida la apelación, caso contrario el semoviente se tendrá por no aceptado.

@@ -1,0 +1,1 @@
+Artículo 31.—En toda solicitud de inscripción, solicitud de traspaso, certificado de servicio o de muerte o cualquier otra certificación, información o constancia que se presente al Registro el firmante asume la responsabilidad legal respecto a la veracidad de los hechos mencionados en dichos documentos.

@@ -1,0 +1,1 @@
+Artículo 14.—Para gozar de los beneficios que otorga este Reglamento toda persona física o jurídica, deberá registrar en -el Registro Genealógico aquel animal que cumpla con los requisitos establecidos en las diferentes secciones del Registro.

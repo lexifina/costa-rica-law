@@ -1,0 +1,1 @@
+Artículo 12.—Para lo anterior será necesario presentar en debida forma la solicitud de registro que corresponda a la cría o al animal con indicación de todas sus marcas, nombre del criador ,y primer propietario o de persona autorizada para firmar por el dueño en orden de que la cría o animal sea elegible para el Registro.

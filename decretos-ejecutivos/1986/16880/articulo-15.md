@@ -1,0 +1,1 @@
+Artículo 15.—Todo criador deberá presentar en el mes siguiente a los nacimientos de sus animales, un informe completo en las fórmulas que para ese efecto suministrará el Registro. Una vez recibido este repone el Comité enviará a un inspector autorizado para verificar la existencia del (los) animal (es), dentro de un plazo no mayor de ciento ochenta días naturales.

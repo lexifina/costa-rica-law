@@ -1,0 +1,4 @@
+Artículo 7°—El Registro contará con los libros que sean necesarios, los cuales se compondrán del número de hojas que se determine, numeradas en su esquina superior derecha. Cada libro será legalizado por el Registro con una razón que indique su destino y el número de hojas de que se compone.
+Esta razón deberá ser fechada, sellada y formada por el Jefe del Registro.
+El Registro deberá contener los datos que señale el Capítulo IV del presente Reglamento.
+El Registro se establece para todos los animales que, conforme a lo estipulado en este Reglamento y los Reglamentos internos de las Asociaciones de cada raza, pueden ser inscritos y constará de cinco secciones: La primera dedicada exclusivamente a ganado puro; la segunda a ganado purificado; la tercera a ganado de fundación; la cuarta a hembras encastadas; y la quinta, a animales gradados, se usará para la formación de nuevas razas; o cuando las asociaciones nacionales lo crean conveniente.

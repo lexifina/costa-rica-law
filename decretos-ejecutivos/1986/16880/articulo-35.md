@@ -1,0 +1,1 @@
+Artículo 35.—Quien se compruebe que incumpla el artículo 30 de este Reglamento será sancionado con la no inscripción de los productos de esos animales que nazcan después de comprobarse una gestación completa a partir de dos meses antes de descubrirse la anomalía.

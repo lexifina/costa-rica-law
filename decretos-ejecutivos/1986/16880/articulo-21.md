@@ -1,0 +1,1 @@
+Artículo 21.—En el caso a que se refiere el artículo 20 cuando fueren animales que están fuera del país, el criador deberá enviar en un plazo no mayor de 90 días naturales, la factura de compra con los datos pedidos en dicho artículo y en caso de omitir dicha obligación, tendrá la misma sanción que en el artículo indicado.

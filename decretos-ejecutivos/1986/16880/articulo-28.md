@@ -1,0 +1,1 @@
+Artículo 28.—Es responsabilidad del vendedor acompañar a toda solicitud de traspaso, el certificado de registro, el escrito do traspaso firmado por él, también suministrará toda la información que se considere necesaria para la aprobación del traspaso, tales como: nombre del animal, fecha de venta, nombre y dirección del comprador.

@@ -1,0 +1,1 @@
+Artículo 22.—Queda totalmente prohibido el padreo múltiple. Si se comprobase a un criador que ha utilizado el padreo múltiple será sancionado por el Comité de Registro de acuerdo con las normas de este Reglamento. Salvo que la Asociación lo permita.

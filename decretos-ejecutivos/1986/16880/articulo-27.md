@@ -1,0 +1,1 @@
+Artículo 27.—El Jefe del Registro Genealógico aprobará e inscribirá todos los traspasos de animales que presenten sus propietarios, siempre que se acompañe toda la documentación necesaria y el respectivo certificado de registro.

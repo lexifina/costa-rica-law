@@ -1,0 +1,1 @@
+Artículo 13.—El dueño de la reproductora será el responsable de los datos que se incluyan en la solicitud y se hará acreedor a las sanciones que establece este Reglamento en el caso de alteración o falsedad de los datos incluidos.
