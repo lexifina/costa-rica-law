@@ -1,0 +1,1 @@
+Artículo 2°-A las Sesiones de la Comisión Nacional de Políticas de Población pondrán asistir. con derecho a voz, los representantes de los entes públicos o privados y. en general, todas aquellas personas que la Comisión estime necesario escuchar.
