@@ -1,0 +1,1 @@
+Art. 2. En la administracion de rescates re reconocerá la moneda horadada, y se amortizara por su valer nominal la que estuviere habilitada con el sello del Gobierno; mas la que tuviere falsificado el sello se rescatara por su ley y peso, si los dueños convinieren; y de no, se les devolverá para que hagan de ella el uso que tengan a bien,
