@@ -1,1 +1,2 @@
-Artículo 14.—El buzón de cotizaciones se abrirá el día y la hora señalados conforme a la invitación en presencia del Director Financiero y el Jefe de la Sección de Proveeduría y en ausencia de cualquiera de los dos, estará presente el Alcalde Municipal.
+Articulo 14.—El buzón de cotizaciones se abrirá en el lugar día y hora señalados conforme a la invitación en presencia del Director del Departamento, Jefe de la Sección de Proveeduría, Asesor del Alcalde y en ausencia de cualquiera, estará presente el Alcalde Municipal.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria No. 92, celebrada el 19 de junio de 2003, publicada en La Gaceta No. 127 de 03 de julio de 2003.)

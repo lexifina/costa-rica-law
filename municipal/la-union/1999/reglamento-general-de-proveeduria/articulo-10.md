@@ -1,8 +1,2 @@
-Articulo 10.—En caso que sea necesario cotizar el bien o servicio dará un plazo para recibir ofertas, una vez vencido el plazo para el recibo de ofertas se hará la adjudicación dentro del término respectivo tomando en cuenta los siguientes aspectos.
-Necesidad de la Institución
-Plaza de entrega
-Precio
-Calidad
-Antecedente del oferente
-Otras condiciones especiales
-Tratando de obtener el mayor beneficio para la Municipalidad garantizando la libre concurrencia y la igualdad de oportunidad de conformidad con los principios de la L.G.A.F, la Ley de Contratación Administrativa y su Reglamento.
+Articulo 10.—En caso de que sea necesario cotizar el bien o servicio dará un plazo para recibir ofertas, una vez vencido el plazo para el recibo de ofertas se hará la adjudicación dentro del término respectivo tomando en cuenta los siguientes aspectos. Dicho plazo se estipular con el Director del Departamento.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria No. 92, celebrada el 19 de junio de 2003, publicada en La Gaceta No. 127 de 03 de julio de 2003.)

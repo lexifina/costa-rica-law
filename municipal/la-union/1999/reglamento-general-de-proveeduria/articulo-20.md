@@ -1,1 +1,2 @@
-Artículo 20.—Una vez analizadas y hechas las recomendaciones del caso el dictamen se elevara a conocimientos del Alcalde Municipal quien lo remitirá al Concejo y trámites siguientes cuando corresponda.
+Articulo 20.—Una vez analizadas y hechas las recomendaciones del caso el dictamen se elevará, a conocimiento del Alcalde Municipal quien lo remitirá al Concejo, quien le dará el trámite de conformidad con la Ley y el Reglamento de Contratación Administrativa.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria No. 92, celebrada el 19 de junio de 2003, publicada en La Gaceta No. 127 de 03 de julio de 2003.)

@@ -15,3 +15,4 @@ Reglamento General de Proveeduría.
 | --- | --- | --- |
 | 1 | 1999-07-16 | la propia norma |
 | 2 | 2001-08-30 | Reglamento municipal 270 (2001-08-30) |
+| 3 | 2003-06-19 | Reglamento municipal 92 (2003-06-19) |

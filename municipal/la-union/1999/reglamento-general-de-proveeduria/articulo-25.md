@@ -1,1 +1,2 @@
-Artículo 25.—Todas las órdenes de compra deberán firmarse por el Proveedor Municipal, Director del Departamento solicitante y Alcalde Municipal así como por la Tesorera Municipal asegurando el contenido presupuestario.
+Articulo 25.—Todas las órdenes de compra, deberán ser firmadas por el Proveedor Municipal, Alcalde, Tesorera (o) Municipal.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria No. 92, celebrada el 19 de junio de 2003, publicada en La Gaceta No. 127 de 03 de julio de 2003.)

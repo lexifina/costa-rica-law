@@ -1,1 +1,2 @@
-Artículo 13.—Las cotizaciones se recibirán en sobre cerrado y serán depositadas en el buzón que para tal efecto mantendrá la Oficina de Proveeduría. Además del buzón podrá utilizar el fax y el correo electrónico para enviar las cotizaciones.
+Articulo 13.—Las cotizaciones se recibirán en sobre cerrado y serán depositadas en el buzón que para tal efecto mantendrá la oficina de Proveeduría. Además el buzón podrá utilizar el fax y el correo electrónico para enviar las cotizaciones, únicamente para la Contratación Directa y se depositaran en el buzón.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria No. 92, celebrada el 19 de junio de 2003, publicada en La Gaceta No. 127 de 03 de julio de 2003.)
