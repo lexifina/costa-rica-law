@@ -1,0 +1,1 @@
+Artículo 9°—Para iniciar el procedimiento de contratación administrativa y efectuar pagos por medio del Fondo Rotatorio, es necesario contar con recursos presupuestarios suficientes para enfrentar la erogación respectiva y será responsabilidad del Director Financiero o el funcionario que él designe, velar por el cumplimiento de esta disposición.

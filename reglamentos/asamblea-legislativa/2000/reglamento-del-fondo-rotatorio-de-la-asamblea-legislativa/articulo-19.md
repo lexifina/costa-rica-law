@@ -1,0 +1,1 @@
+Artículo 19.—Bajo ninguna circunstancia el Departamento Financiero, dará visto bueno a un gasto cuando no hubiere partida presupuestaria o estuviere agotada y así lo hará constar en la respectiva solicitud emitida para ese fin.

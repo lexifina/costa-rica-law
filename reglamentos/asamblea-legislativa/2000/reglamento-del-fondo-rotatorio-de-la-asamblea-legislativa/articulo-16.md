@@ -1,0 +1,1 @@
+Artículo 16.—La Dirección Ejecutiva o quien ésta designe, en coordinación con el Departamento Financiero, emitirá y mantendrá actualizados los manuales de organización y funciones o de procedimientos, necesarios para el buen funcionamiento del Fondo Rotatorio, con el fin de fortalecer el sistema de control interno financiero.

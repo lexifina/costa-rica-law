@@ -1,0 +1,1 @@
+Artículo 17.—En caso de que exista alguna duda con la contratación de servicios que se realicen con este fondo, el Departamento Financiero podrá consultar en forma escrita a la Contraloría General de la República.

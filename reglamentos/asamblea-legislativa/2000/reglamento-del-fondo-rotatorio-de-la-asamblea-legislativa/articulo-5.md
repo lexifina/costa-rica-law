@@ -1,0 +1,1 @@
+Artículo 5°—E1 fondo deberá ser depositado en una cuenta corriente especial en uno de los bancos del Estado y su giro solamente se podrá hacer a través de transferencias bancarias o cheques, firmados en forma mancomunada, por los funcionarios designados por el Director Ejecutivo.

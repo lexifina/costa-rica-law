@@ -1,0 +1,1 @@
+Artículo 4°—El monto fijo autorizado para el Fondo Rotatorio es de ¢10.000.000,00 (Diez millones de colones exactos), el cual solamente podrá ser variado por Ley de la República, con la recomendación del Directorio Legislativo, luego de que el Departamento Financiero presente un estudio en el que se argumente la necesidad de dicha modificación.

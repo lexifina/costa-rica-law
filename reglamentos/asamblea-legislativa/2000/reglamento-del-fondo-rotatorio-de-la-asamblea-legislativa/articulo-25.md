@@ -1,0 +1,1 @@
+Artículo 25.—La Jefatura del Departamento Financiero podrá implementar los mecanismos de control interno que considere pertinentes, fin de evitar situaciones de desorden o improvisación en el uso de los recursos asignados en el Fondo Rotatorio y podrá establecer directrices endientes a obtener una mejor fiscalización y operación de dicho Fondo.

@@ -1,0 +1,1 @@
+Artículo 2°—El objetivo general de este fondo es agilizar y facilitar la adquisición de bienes y servicios de la Asamblea Legislativa, que requieren trámite y pago de inmediato, dentro de los lineamientos establecidos en la Ley de la Administración Financiera y la Ley de la Contratación Administrativa.

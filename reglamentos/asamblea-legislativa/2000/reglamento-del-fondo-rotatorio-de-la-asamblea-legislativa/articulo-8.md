@@ -1,0 +1,1 @@
+Artículo 8°—Toda persona que asuma la responsabilidad de operar el Fondo Rotatorio, ya sea en forma transitoria o permanente, deberá recibirlo previo arqueo, con la presencia y firma de quien entrega y quien recibe y del Jefe inmediato de ambos. De dicho arqueo se remitirá copia a la Auditoría Interna y a la Dirección Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 11.—El Departamento Financiero cuando considere pertinente, podrá solicitar el cumplimiento exacto de las obligaciones pactadas por la Institución y el contratista. La Proveeduría se encuentra obligada a ofrecer toda la colaboración requerida por los entes encargados de la fiscalización en el ejercicio de sus funciones.
