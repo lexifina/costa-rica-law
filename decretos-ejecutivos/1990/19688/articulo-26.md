@@ -1,0 +1,1 @@
+Artículo 26°-Los funcionarios regulares del Museo tendrán la posibilidad a que se brinde la debida capacitación y adiestramiento complementarios, mediante cursos, seminarios, becas, etc., por medio de la unidad respectiva. Esta deberá hacer de conocimiento de todos los funcionarios en su oportunidad las posibilidades mencionadas.

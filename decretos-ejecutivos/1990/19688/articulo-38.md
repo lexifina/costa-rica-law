@@ -1,0 +1,1 @@
+Artículo 38°-En todos los casos el servidor deberá notificar lo antes posible a su jefe, inmediato, verbalmente o por escrito, las causas que le impiden asistir a su trabajo. Por ninguna razón, salvo la de fuerza mayor, deberá esperar el segundo día de la ausencia para notificarlo.
