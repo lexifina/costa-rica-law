@@ -1,0 +1,1 @@
+Articulo 4°—Formulario de solicitud. Todas las solicitudes de crédito deberán acompañarse con el formulario diseñado para ese efecto, con la documentación requerida, sin omitir información básica a juicio de ASBANA, S. A. Dicho formulario se encuentra disponible en ASBANA, S. A.
