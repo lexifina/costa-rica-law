@@ -1,0 +1,1 @@
+Artículo 11.—El horario ordinario de uso de los vehículos del Ministerio de Cultura, Juventud y Deportes, será el comprendido entre las 8,00 am. y las 4,30 p. m. Sin embargo, por la índole de las giras podrán ser utilizados dentro del horario comprendido entre las 5,00 a.m. y las 10,00 p. m.

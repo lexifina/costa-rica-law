@@ -1,0 +1,1 @@
+Artículo 22.—Para lograr un mejor aprovechamiento de los vehículos, el Departamento de Servicios Generales o la unidad competente, podrá agrupar varias solicitudes de transporte dentro de una misma ruta en un solo trayecto, previo aviso a los interesados. Esta medida igualmente podrá aplicarse en el uso de vehículos para la realización de varias giras.

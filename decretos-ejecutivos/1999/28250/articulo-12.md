@@ -1,0 +1,1 @@
+Artículo 12.—Cuando no se encuentren en uso los vehículos, éstos serán depositados y custodiados, en los estacionamientos previamente definidos. Cuando los vehículos se encuentren en giras y deban permanecer fuera de la institución, el chofer del vehículo deberá adoptar las medidas necesarias, para la adecuada custodia del vehículo.

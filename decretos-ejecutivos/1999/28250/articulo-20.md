@@ -1,0 +1,2 @@
+Artículo 20.—La solicitud de transporte o de vehículo deberá presentarse en la fórmula previamente diseñada para ese efecto, anotando los funcionarios que viajan, así como el día y la hora de la gira, la cual debe ser avalada por el respectivo jefe del Departamento u oficina que solicita el servicio.
+Previo a la salida del vehículo de la institución, el guarda de turno deberá anotar en la fórmula la cantidad de combustible que reporta el vehículo, debiendo anotar a su regreso la hora de llegada y el kilometraje marcado.

@@ -1,0 +1,1 @@
+Artículo 34.—Recibido el informe que menciona el artículo 28, el Departamento de Servicios Generales, podrá solicitar en un plazo perentorio de tres días la ampliación de la información en los aspectos que considere conveniente o necesario.

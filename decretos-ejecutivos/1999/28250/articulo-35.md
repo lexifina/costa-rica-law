@@ -1,0 +1,1 @@
+Artículo 35.—El Departamento de Servicios Generales o la unidad designada en cada órgano desconcentrado analizará el informe, el cual podrá ser ampliado, si a criterio de las instancias pertinentes así se requiere, y lo remitirá a la Oficialía Mayor o a la Dirección General o Administrativa, con las recomendaciones respectivas.

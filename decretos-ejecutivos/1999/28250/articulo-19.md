@@ -1,0 +1,3 @@
+CAPITULO IV
+De las solicitudes y utilización de los vehículos
+Artículo 19.—Para la prestación del servicio de transporte o utilización de los vehículos de la institución, u órgano desconcentrado, es indispensable la presentación de una solicitud escrita ante el Departamento de Servicios Generales, o unidad encargada en cada desconcentrada, con por lo menos cinco días hábiles de anticipación, salvo que la misma sea dentro del perímetro del área metropolitana, en cuyo caso la solicitud podrá ser con un día de antelación, quedando sujeta la prestación del servicio a la disponibilidad de vehículos y choferes.

@@ -1,0 +1,1 @@
+Artículo 31.—Las infracciones cometidas contra alguna de las disposiciones del presente capítulo, serán sancionadas de conformidad con lo establecido en el Código de Trabajo, el Estatuto de Servicio Civil, su Reglamento y los Reglamentos Autónomos de Trabajo del Ministerio de Cultura, Juventud y Deportes, y de sus órganos desconcentrados.

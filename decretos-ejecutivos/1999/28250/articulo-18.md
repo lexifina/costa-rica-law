@@ -1,0 +1,1 @@
+Artículo 18.—Cuando el vehículo se encuentre en gira, no podrá circular en días y horas no autorizadas, ni fuera de la ruta establecida, y deberá ser ubicado en lugares que brinden condiciones adecuadas.
