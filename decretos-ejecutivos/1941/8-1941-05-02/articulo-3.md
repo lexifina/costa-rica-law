@@ -1,0 +1,3 @@
+Artículo III
+Si una de las Delegaciones no concurriere a la demarcación de la frontera o se retirare antes de concluir esta, la otra, en asocio del Asesor designado por el Señor Presidente de la República de Chile, tratará la línea o la parte de ella que faltare.
+Las diferencias que ocurrieren entre los grupos de las comisiones demarcadoras acerca de las operaciones de su cargo, serán referidas al Asesor, quien las someterá para su resolución a jos dos Gobiernos, los cuales deberán resolverlas de común acuerdo en el término de noventa días. Si pasado este plazo las Cancillerías no las hubieren resuelto, a solicitud de cualquiera de las dos partes serán sometidas al Asesor, quien las decidirá en fallo inapelable.

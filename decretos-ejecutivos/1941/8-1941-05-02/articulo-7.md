@@ -1,0 +1,2 @@
+Artículo VII
+La República de Costa Rica y la República de Panamá declaran formalmente que en el caso inesperado de que el presente Tratado no llegue a perfeccionarse, ninguna de ellas considerará que las gestiones realizadas para su celebración ni su texto, perjudican los derechos de la otra ni los propios, pues tales derechos quedan tal como cada parte enciende que existen a la firma de este instrumento.
