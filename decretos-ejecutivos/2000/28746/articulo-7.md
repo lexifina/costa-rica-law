@@ -1,0 +1,1 @@
+Artículo 7º—Los traspasos posteriores que el Instituto de Desarrollo Agrario realice a particulares de los inmuebles o parcelas que formen la Zona descrita en el Articulo Primero de este Decreto, quedarán sometidas a todas las condiciones, limitaciones y restricciones que determine la Junta Directiva de conformidad con lo dispuesto en la Ley No. setenta y cinco noventa y nueve.
