@@ -1,0 +1,1 @@
+Art.2.- Para estos casos se preparará dosel en el Templo al lado del evangelio en el presbiterio, el que ocuparan en el medio, el Presidente de la Asamblea y Jefe de Estado, al lado derecho el Presidente del Consejo y al izquierdo el de la Corte de Justicia, teniendo siempre la derecha ente los dos del medio el Presidente de la Asamblea

@@ -1,0 +1,1 @@
+Art 8°.- Mientras las supremas autoridades no estén reunidas todas en un punto, acompañara a cada una la guardia de honor correspondiente, la que, en caso de reunión, se incorporará en las demás milicias.
