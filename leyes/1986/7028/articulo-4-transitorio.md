@@ -1,0 +1,2 @@
+Transitorio IV.- El Ministerio de Hacienda incluirá en el próximo presupuesto extraordinario, la partida necesaria para financiar el estudio actuarial correspondiente a la ley número 2248 del 5 de setiembre de 1958 y sus reformas. Este Ministerio tendrá un plazo de diez meses, contados a partir de la aprobación de dicha partida presupuestaria, para iniciar el mencionado estudio actuarial.
+Presidencia de la república.-San José, a los veintitrés días del mes de abril de mil novecientos ochenta y seis.
