@@ -1,0 +1,1 @@
+2°—Exceptuar de los requerimientos de encaje mínimo legal a Coovivienda, R.L. en el período que esté en el proceso de liquidación de la entidad, según constancia de la Superintendencia General de Entidades Financieras.
