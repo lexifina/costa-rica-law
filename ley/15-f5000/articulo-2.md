@@ -1,0 +1,1 @@
+Art 2° Esta legua se dividirá en dos partes iguales, la una se reservará para los egidos del pueblo, y la otra se venderá en hasta pública en lotes que no excedan en veinticinco manzanas cada uno, previo acuerdo de la Municipalidad de esta Provincia, y con arreglo a las disposiciones de la materia.
