@@ -1,0 +1,1 @@
+Art. 5. Las casas de la Junta Itineraria sitas en los puntos principales del canal, podrán servir a los usos que la compañía empresaria las destine; sim perjuicio de los que hasta ahora tienen, y mientras duren los trabajos en la construccion del canal.

@@ -1,0 +1,1 @@
+Art. 3. Se concede tambien à la compañia el dominio y propiedad de una milla por cada lado del camino y colindante con este en las tierras que pertenecen al Gobierno ó a la Junta Itineraria y la faja de la milla que se reservo aquel, estendida entre el rio de la Barranca y la Chacarita, y èl dominio perpetuo y exclusivo del agua del canal para mover máquinas y regar las tierras
