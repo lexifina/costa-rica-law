@@ -9,3 +9,4 @@ e. Urna con ranura para la introducción del voto.
 f. Papel goma para el sellado de la urna.
 g. Sobre de manila para el envío de la documentación electoral al Tribunal Electoral.
 h. Otro que el Tribunal Electoral considere conveniente.
+(Así reformado mediante sesión de la Asamblea General Extraordinaria de fecha 8 de julio del 2004.)
