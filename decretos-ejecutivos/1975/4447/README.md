@@ -14,3 +14,4 @@ Crea Comisión para que dirija, coordine e implante sistemas relativos a la Admi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-01-16 | la propia norma |
+| 2 | 2004-11-02 | Decreto Ejecutivo 32170 (2004-11-02) |

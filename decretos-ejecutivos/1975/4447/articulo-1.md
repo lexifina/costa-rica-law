@@ -1,6 +1,8 @@
+(Derogado)
 N° 4447-H
 EL PRESIDENTE DE . LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA,
+(Este Decreto fue DEROGADO por el articulo 11 del Decreto Ejecutivo N° 32170-H del 02 de noviembre del 2004)
 Considerando:
 1°—Que resulta necesario mejorar todo el proceso de administración, presupuestaria del Gobierno Central, comprendiendo tanto la etapa de formulación, como las de ejecución, control y evaluación.
 2°—Que la Contraloría General de la República ha venido trabajando con las dependencias del Poder Ejecutivo, en el estudio e implantación de nuevos sistemas; ello con el propósito de llegar a contar con un sistema presupuestario integrado, para todo el sector público.
