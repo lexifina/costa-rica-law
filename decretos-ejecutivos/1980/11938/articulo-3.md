@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Educación Pública, incorporará en los programas de Estudios Sociales unidades destinadas al conocimiento de la historia del negro en Costa Rica, así como la contribución de este importante grupo humano a la realidad social costarricense.

@@ -1,0 +1,1 @@
+Artículo 2°-Todas las instituciones educativas, tanto oficiales como privadas, organizarán y desarrollarán actividades destinadas a dar a conocer la historia, la trayectoria y, en general, los valores culturales del negro costarricense.
