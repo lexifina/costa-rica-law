@@ -14,3 +14,4 @@ Modifica el Límite de Gasto Presupuestario al CNP para el 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-24 | la propia norma |
+| 2 | 2000-11-27 | Decreto Ejecutivo 29122 (2000-11-27) |

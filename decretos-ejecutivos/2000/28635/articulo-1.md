@@ -10,3 +10,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario modificar el límite de gasto presupuestario fijado para el CNP en el citado Decreto. Por tanto,
 Decretan:
 Artículo 1º—Modifícase para el Consejo Nacional de Producción, el límite de gasto presupuestario para el 2000, contenido en el decreto ejecutivo N° 28046-H, quedando establecido en un monto de ¢9.343.7 millones. El límite de gasto efectivo total de esa entidad para el presente período se mantiene igual en ¢8.465.4 millones.
+(Modificado Límite Gasto Presupuestario y Efectivo del Consejo Nacional de Producción, según Decreto Ejecutivo N° 29122 del 27 de noviembre del 2000)
