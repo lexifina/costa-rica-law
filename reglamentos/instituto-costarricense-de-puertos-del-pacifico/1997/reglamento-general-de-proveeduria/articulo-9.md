@@ -1,0 +1,1 @@
+Artículo 9°—Únicamente podrán ser tramitados, mediante compra directa aquellos bienes o servicios que cumplan con lo estipulado en el artículo anterior, para lo cual deberá realizarse un mínimo de tres cotizaciones previa a la emisión de la orden de compra, con el propósito de salvaguardar los intereses de la Institución.

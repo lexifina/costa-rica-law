@@ -1,0 +1,1 @@
+Artículo 14.—Una vez analizada y hechas las recomendaciones del caso, el dictamen se elevará a conocimiento de la Gerencia General, para su aprobación en los casos de Licitaciones por Registro o Restringidas; en el caso de las Licitaciones Públicas tendrá que remitirse a la Junta Directiva, para su aprobación.
