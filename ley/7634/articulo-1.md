@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 25839 del 5 de diciembre de 1996, la República de Costa Rica se adhiere al presente Convenio)
 ADHESION AL CONVENIO CONSTITUTIVO DEL ARREGLO DE LISBOA,
 RELATIVO A LA PROTECCION DE LAS DENOMINACIONES
 DE ORIGEN Y SU REGISTRO INTERNACIONAL
