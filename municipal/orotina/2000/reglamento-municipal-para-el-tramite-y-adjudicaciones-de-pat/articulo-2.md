@@ -1,0 +1,1 @@
+Artículo II.—El Concejo Municipal otorgará las patentes temporales de licores cuando se realicen fiestas cívicas, populares patronales, tumos, ferias y asociaciones vigentes y similares, siempre y cuando no pertenezcan a escuelas o colegios ni deportivas.

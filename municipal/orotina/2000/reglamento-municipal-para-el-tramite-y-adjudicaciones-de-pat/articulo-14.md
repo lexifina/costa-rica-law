@@ -1,0 +1,1 @@
+Artículo XIV.—En el caso de la realización del evento denomina “Feria Nacional de la Frutas”, fiestas cívicas o patronales no se darán patentes temporales de licores a otras actividades exceptuando cuando son bailes que necesiten la patente temporal de licores.

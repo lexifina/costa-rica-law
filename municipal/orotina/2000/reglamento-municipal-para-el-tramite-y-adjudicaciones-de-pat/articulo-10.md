@@ -1,0 +1,1 @@
+Artículo X.—La infracción a este reglamento y otras disposiciones como las del Ministerio de Salud acarreará el cierre del establecimiento por parte de la delegación cantonal o de la municipalidad por el tiempo correspondiente.

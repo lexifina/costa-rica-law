@@ -1,0 +1,1 @@
+Artículo XI.—La violación a otras disposiciones legales tales cor la venta de licor a menores o su permanencia en los sitios de expenda será sancionada conforme las leyes vigentes según sea la infracción.
