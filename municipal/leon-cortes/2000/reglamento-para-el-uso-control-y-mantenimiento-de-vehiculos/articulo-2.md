@@ -1,0 +1,1 @@
+Artículo 2°-Vehículos propiedad de la Municipalidad: son todos los vehículos adquiridos por la Municipalidad para cumplir sus fines, (maquinaria pesada, motocicletas, etc.), con cargos a las partidas presupuestarias y todos los vehículos transferidos por otras instituciones estatales o donados por personas físicas o jurídicas u organismos nacionales e internacionales.

@@ -1,0 +1,1 @@
+Artículo 5°-De la asignación del vehículo: únicamente el Alcalde Municipal mediante resolución formal que dará a conocer al Concejo Municipal podrá asignar el vehículo municipal al área correspondiente, será función indelegable del Concejo declarar como de uso discrecional el vehículo del Alcalde.

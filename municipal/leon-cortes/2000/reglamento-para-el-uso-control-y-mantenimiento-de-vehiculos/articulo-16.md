@@ -1,0 +1,1 @@
+Artículo 16.-Prohibición uso de vehículos oficiales en actividades particulares: no se podrán utilizar vehículos de la Municipalidad para actividades que no sea propias de la institución, ni mucho menos en actividades político electorales.

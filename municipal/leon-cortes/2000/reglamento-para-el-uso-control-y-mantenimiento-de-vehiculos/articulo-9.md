@@ -1,0 +1,1 @@
+Artículo 9°-De la custodia de los vehículos: todos los vehículos a excepción de el de uso discrecional deben ser guardados al final de la jornada en el lugar que la municipalidad designe para dicho fin en cumplimiento del horario que la misma establezca.

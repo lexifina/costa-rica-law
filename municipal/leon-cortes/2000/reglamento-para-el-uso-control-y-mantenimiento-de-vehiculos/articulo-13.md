@@ -1,0 +1,1 @@
+Artículo 13.-Manejo bajo sustancias enervantes: queda terminantemente prohibido conducir los vehículos municipales bajos los efectos del licor, drogas o sustancias enervantes. El incumplimiento de esto dará lugar al despido del funcionario sin responsabilidad patronal.
