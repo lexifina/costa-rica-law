@@ -1,0 +1,1 @@
+Artículo 2º—Dicha Comisión tendrá como objetivo servir de enlace entre las cuatro entidades involucradas, a efecto que se adopten acciones concretas que contribuyan al fortalecimiento de las áreas silvestres protegidas del país, de forma tal que se garantice el producto turístico que ofrece Costa Rica.
