@@ -1,0 +1,7 @@
+De sus funciones
+Artículo 2º—SEPSA desempeñará las siguientes funciones generales:
+a) Conducir en forma integrada y participativa el proceso de formulación, difusión, inducción, seguimiento y evaluación de las políticas sectoriales agropecuarias y por actividad productiva, así como el análisis, el seguimiento y la evaluación de los recursos internos y externos que facilitan la aplicación de las políticas agropecuarias.
+b) Brindar una visión actualizada y prospectiva de la evolución del Sector Agropecuario en todos los ámbitos, con el fin de proporcionar suficientes elementos al Ministro Rector para la conducción eficaz del desarrollo agropecuario nacional.
+c) Diseñar, construir, desarrollar y administrar un sistema de información, dirigido fundamentalmente a pequeños y medianos productores, que facilite el acceso a información oportuna, veraz, actualizada, ágil y pertinente a las necesidades de los usuarios, como insumo para el mejoramiento de la capacidad competitiva de esos grupos de población y para el desarrollo del medio rural.
+d) Promover la transformación y el fortalecimiento de los recursos humanos del Sector Agropecuario, mediante la formulación de mecanismos de concertación que involucren a todos los actores del ámbito agropecuario y rural bajo un enfoque que considere las áreas de educación formal y no formal.
+e) Coordinar el Comité Técnico Sectorial Agropecuario (COTECSA), y apoyar la Junta de Jerarcas del Sector Agropecuario y otros foros del sector.
