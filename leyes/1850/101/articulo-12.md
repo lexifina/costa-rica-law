@@ -1,0 +1,1 @@
+ARTÍCULO 12.-El contador llevará los libros de cuentas, e intervendrá en todas las partidas de cargo y data que en ellos se asiente: suplir las faltas accidentales del superintendente y desempeñará las demás obligaciones que las leyes imponen a los contadores de las otras administraciones de rentas nacionales.

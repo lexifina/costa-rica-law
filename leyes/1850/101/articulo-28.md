@@ -1,0 +1,1 @@
+ARTÍCULO 28.-Si la destilación se hiciese por cuenta de contratistas, el administrador general de la renta de aguardiente es obligado a dar a éstos, cada fin de mes una constancia de la cantidad de aguardiente que han entregado en el depósito general, para que su valor les sea cubierto en la administración principal de los productos que de esta renta se deben haber recaudado.

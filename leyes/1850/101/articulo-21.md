@@ -1,0 +1,1 @@
+ARTÍCULO 21.-La base para el valor del aguardiente será el de siete pesos por cada ciento de botellas de veintiun grados de fortaleza. La licitación se admitirá por la reducción de este precio, por el aumento de grados en el licor o por cualesquiera otras ventajas que cedan en favor de la renta.

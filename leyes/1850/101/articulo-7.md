@@ -1,0 +1,2 @@
+ARTÍCULO 7°. -La misma Intendencia con oportunidad, y en el caso figurado en el art° anterior, solicitar contratistas que se obliguen a proveer por tiempo determinado del dulce o mieles que se juzguen necesarias para la destilación de un mes, y de la leña que se calcule suficiente para el mismo efecto.
+§ Único.-Después de establecida la destilación en la forma indicada, las atribuciones que da este artículo a la Intendencia general, ser n obligaciones del Superintendente de la fábrica, que fuese nombrado.

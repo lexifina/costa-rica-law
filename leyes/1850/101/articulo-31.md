@@ -1,0 +1,1 @@
+ARTÍCULO 31.-La Intendencia general propondrá al Gobierno todas las medidas que tiendan a mejorar la renta, consultará todas las dudas y vacíos que presente este reglamento, y que no están resueltas por las leyes y disposiciones anteriores, las cuales quedan vigentes en todo lo que no se opongan a las presentes. -"

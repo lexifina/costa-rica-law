@@ -1,0 +1,1 @@
+ARTÍCULO 25.-Dichos administradores son también obligados a pasar en persona el día último de diciembre del presente año a las fábricas proveedoras de su partido, con objeto de tomar razón del aguardiente, que concluido el término de su contrata, les queda de existencia, y dispondrán que éste sea trasladado con toda seguridad al almacén de su cargo.

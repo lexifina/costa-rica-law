@@ -1,0 +1,1 @@
+ARTÍCULO 5°. -Se destinarán además en la parte indicada del edificio tres almacenes cómodos: uno para las vasijas de fermentación: otro para el depósito de las materias de que deba hacerse la destilación; y el último para el depósito de licores.
