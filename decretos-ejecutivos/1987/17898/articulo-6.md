@@ -1,0 +1,1 @@
+Artículo 6°-El responsable de la calificación y la afiliación será la Caja Costarricense de Seguro Social, para lo cual se le extenderá a la persona que califique como "Asegurado por cuenta del Estado", el carné de identificación correspondiente.

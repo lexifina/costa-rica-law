@@ -1,0 +1,2 @@
+Artículo 20.-En cada Región de Salud se crearán comisiones de coordinación con funcionarios de las Instituciones, responsables de resolver los problemas prácticos que se susciten en la aplicación de las normas y recomendaciones.
+Estas funciones también podrán ser encargadas a las Juntas de Salud y Seguridad Social a que se refiere el decreto número 14222 del 27 de enero de 1983, si el Ministerio y la Caja así lo determinaren.

@@ -1,0 +1,1 @@
+Artículo 8°-La afiliación se hará por grupos familiares completos y deberá incluir siempre el nombre del cabeza de familia, del conyugue o del compañero, el nombre del interesado, su lugar y fecha de nacimiento, el parentesco que tenga con el cabeza de familia y su domicilio actual. Tratándose de mayores de edad, deberá incluirse el número de cédula respectivo.

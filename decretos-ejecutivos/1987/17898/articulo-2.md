@@ -1,0 +1,1 @@
+Artículo 2°. -Se define como "Asegurado por cuenta del Estado", el usuario de los servicios de salud que no está comprendido en alguno de los regímenes categorías y convenios propios de la Caja y que además no tenga capacidad de pago, conforme con las disposiciones de este Reglamento.

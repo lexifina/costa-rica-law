@@ -1,0 +1,1 @@
+Artículo 7°-El Ministerio y la Caja deberán hacer revisiones y evaluaciones periódicas selectivas de los casos afiliados, para evitar que personas que no tengan la situación económica requerida, se incluyan indebidamente en el régimen a que este Reglamento se refiere.

@@ -1,0 +1,1 @@
+Artículo 3°. -No se podrá negar la prestación de los servicios integrales de salud a ninguna persona en particular, sin perjuicio de las posteriores comprobaciones y de los cobros correspondientes cuando procedan.

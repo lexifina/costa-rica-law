@@ -1,0 +1,1 @@
+Articulo 11.-Los "Asegurados por cuenta del Estado", tendrán derecho a todas las prestaciones que otorga el Régimen de Enfermedad y Maternidad de la Caja, con excepción de los subsidios en dinero por cualquier título y los traslados.
