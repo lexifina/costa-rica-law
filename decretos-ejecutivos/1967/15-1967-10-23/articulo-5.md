@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión contará para la realización de sus fines con el auxilio económico del Ministerio de Salubridad Pública y sus fondos serán e administrados por la Oficina de Cooperación Costarricense Americana de Salud pública (OCCASP).

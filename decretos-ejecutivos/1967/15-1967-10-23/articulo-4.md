@@ -1,0 +1,1 @@
+Artículo 4°-Los centros de Salud Pública, laboratorios y demás organismos o dependencias oficiales, de acuerdo con la legislación vigente, facilita en forma gratuita a la Comisión y a su personal en funciones de servicio, Cuanto dato, informe, dictamen o estudio se requiera para el mejor cumplimiento de misión de carácter nacional encomendada.

@@ -1,0 +1,1 @@
+Artículo 6°-Cuando por ley especial algún fondo sea asignado o puesto bajo la responsabilidad de la Comisión, éste será administrado, a través OCCASP, de acuerdo con la Ley General de Administración Financiera de República.

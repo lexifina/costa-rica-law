@@ -1,0 +1,1 @@
+Artículo 23.-Son atribuciones del Tesorero: mantenerse enterado del movimiento de los fondos de la Comisión e informar periódicamente a la misma de su destino. Autorizar con su firma el pago de los libramientos que se presenten y refrendar con su firma los cheques firmados por la Oficina de Cooperación Costarricense Americana de Salud Pública (OCCASP).

@@ -1,0 +1,1 @@
+Artículo 7°-La Comisión estará integrada en la siguiente forma: Presidente, Vicepresidente, Tesorero, Se cr etario y cinco Vocales. Salvo el cargo de Presidente, los miembros de la Comisión elegirán de su seno, en la primera reunión, las personas que han de ocupar los cargos dichos.

@@ -1,0 +1,1 @@
+Articulo 24.-Son atribuciones de los Vocales: asistir a las sesiones de la comisión; suplir las ausencias temporales de cualquier miembro que ocupe otro cargo directivo, cuando así lo disponga la Comisión

@@ -1,0 +1,1 @@
+Artículo 15. -La Comisión tomará sus decisiones por simple mayoría que quedarán firmes una vez aprobadas en la sesión siguiente, salvo que por urgencia de las mismas se acuerde su redacción y aprobación inmediatas.

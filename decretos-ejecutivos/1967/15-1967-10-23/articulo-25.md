@@ -1,0 +1,1 @@
+Artículo 25.-El incumplimiento que de las disposiciones de la Comisión hagan las personas particulares, oficiales y empresas una vez prevenidas su acatamiento, dará lugar a la imposición de sanciones, por las autoridades competentes, de acuerdo a las leyes vigentes.
