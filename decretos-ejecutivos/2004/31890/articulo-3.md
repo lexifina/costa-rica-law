@@ -1,0 +1,1 @@
+Artículo 3º—Se restringe la comercialización e internamiento al país de tomate que no cumpla con las exigencias relativas a pudre según lo establecido en el numeral 4.1.1 Tabla 1. Límites máximos de defectos permitidos.

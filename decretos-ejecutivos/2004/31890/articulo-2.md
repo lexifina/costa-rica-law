@@ -1,0 +1,1 @@
+Artículo 2º—Se permite el internamiento al país de tomate de grado de madurez superior a 3 (equivalencia nacional) hasta un 25% en número del producto muestreado, ver tabla de grados de madurez (en el mercado internacional y su equivalencia en el mercado nacional); apéndice A.
