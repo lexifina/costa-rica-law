@@ -25,6 +25,8 @@ demandado cuando está autorizado dicho embargo, o del lugar en que
 hubiera podido practicarse está autorizado dicho embargo, o del lugar en
 que hubiera podido practicarse el embargo y el cual el demandado ha dado
 una fianza o cualquier otra garantía; y
+(NOTA: véase la reserva del Gobierno de Costa Rica sobre la no
+obligatoriedad en la aplicación de este inciso)
 c) o ante el Tribunal del lugar de la colisión, cuando dicha
 colisión ha tenido lugar en los puertos y ensenadas así como en aguas
 del interior del país,
@@ -33,6 +35,8 @@ mencionados en el párrafo anterior ha de presentarse la acción.
 (3) No podrá el demandante iniciar un nuevo juicio basado sobre
 los mismos hechos contra el mismo demandado ante otra jurisdicción sin
 renunciar a la acción ya presentada.
+(NOTA: véase la reserva del Gobierno de Costa Rica sobre la no
+obligatoriedad en la aplicación de este inciso)
 ARTICULO 2º
 Las disposiciones del Artículo 1º no impedirán a las Partes el
 derecho de presentar una acción por motivo de colisión ante el tribunal
