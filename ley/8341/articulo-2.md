@@ -72,3 +72,6 @@ ARTÍCULO 2: EGRESOS ORDINARIOS Y EXTRAORDINARIOS PARA EL 2003. (...)
 (MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31485 de 05 de noviembre de 2003, publicado en La Gaceta N° 232 de 02 de diciembre de 2003.)
 (MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31504 de 25 de noviembre de 2003, publicado en el Alcance N° 59 a La Gaceta N° 235 de 5 de diciembre de 2003.)
 (MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31505 de 28 de noviembre de 2003, publicado en el Alcance N° 58 a La Gaceta N° 233 de 3 de diciembre de 2003.)
+(MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31507 de 02 de diciembre de 2003, publicado en La Gaceta N° 239 de 11 de diciembre de 2003.)
+(REFORMADO por el artículo 2° del la Ley N° 8397 de 3 de diciembre de 2003, publicada en La Gaceta N° 238 de 10 de diciembre de 2003).
+(MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31508 de 05 de diciembre de 2003, publicado en el Alcance N° 60 a La Gaceta N° 235 de 5 de diciembre de 2003.)
