@@ -14,3 +14,4 @@ Reforma Reglamento General de Proveeduría.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-15 | la propia norma |
+| 2 | 1999-06-15 | Reglamento 2838 (1999-06-02) |
