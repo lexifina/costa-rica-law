@@ -1,0 +1,40 @@
+ARTÍCULO 24.- Salarios del personal de nombramiento por concurso
+público.
+Los salarios de los funcionarios nombrados por concurso público según
+la presente ley se establecen como sigue:
+a) El Director General tendrá una base salarial equivalente a cuatro
+veces el salario base definido en el artículo 2 de la Ley No. 7337, de 5
+de mayo de 1993, más los pluses e incentivos por prohibición y carrera
+profesional de acuerdo con los parámetros manejados, para el efecto, por
+el Servicio Civil para los funcionarios del Gobierno central.
+b) El Jefe del Departamento Administrativo tendrá un salario base
+equivalente a dos veces y media el salario base definido en el artículo 2
+de la Ley No. 7337, de 5 de mayo de 1993, más los pluses e incentivos por
+prohibición y carrera profesional, conforme a los parámetros que maneja el
+Servicio Civil para los funcionarios del Gobierno central.
+c) El Jefe del Departamento de Operaciones tendrá un salario base
+equivalente a dos veces y media el salario base definido en el artículo 2
+de la Ley No. 7337, de 5 de mayo de 1993, más los pluses e incentivos
+fijados por la Ley General de Policía, No. 7410, de 26 de mayo de 1994.
+d) El Coordinador del Departamento Ambiental tendrá un salario base
+equivalente a dos veces y media el salario base definido en el artículo 2
+de la Ley No. 7337, de 5 de mayo de 1993, más los pluses e incentivos por
+prohibición y carrera profesional, de conformidad con los parámetros
+manejados por el Servicio Civil para los funcionarios del Gobierno
+central.
+e) El asesor legal tendrá un salario base equivalente a tres veces el
+salario base definido en el artículo 2 de la Ley No. 7337, de 5 de mayo de
+1993, más los pluses e incentivos por prohibición y carrera
+profesional, de conformidad con los parámetros que maneja el Servicio
+Civil para los funcionarios del Gobierno central.
+f) El Director de la Academia del Servicio Nacional de Guardacostas
+tendrá un salario base equivalente a dos veces y media el salario base
+definido en el artículo 2 de la Ley No. 7337, de 5 de mayo de 1993, más
+los pluses e incentivos por prohibición, carrera profesional y zonaje,
+según los parámetros que maneja el Servicio Civil para los funcionarios
+del Gobierno central.
+g) Los oficiales directores de las estaciones de guardacostas tendrán
+un salario base equivalente a dos veces el salario base definido en el
+artículo 2 de la Ley No. 7337, de 5 de mayo de 1993, más los pluses e
+incentivos dictados por la Ley General de Policía, No. 7410, de 26 de mayo
+de 1994.

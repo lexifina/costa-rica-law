@@ -1,0 +1,9 @@
+ARTÍCULO 27.- Constitución del Fondo.
+En el Fondo mencionado en el artículo anterior, se depositarán los
+dineros provenientes del pago de licencias administrativas, contribuciones
+legales, multas y otras sanciones pecuniarias que, por esta u otras leyes
+especiales, correspondan al Servicio así como las donaciones en dinero que
+reciba de instituciones públicas o privadas. Estos recursos serán
+depositados en una cuenta especial, en uno de los bancos estatales, la
+cual se denominará: "Fondo Especial del Servicio Nacional de
+Guardacostas".

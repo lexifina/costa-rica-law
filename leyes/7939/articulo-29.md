@@ -1,0 +1,11 @@
+ARTÍCULO 29.- Donaciones y ayudas externas.
+El Servicio estará autorizado para gestionar y recibir donaciones,
+así como ayudas de otro tipo por parte de organizaciones no
+gubernamentales, nacionales o internacionales, instituciones públicas o
+privadas o gobiernos amigos. Los bienes inscribibles, donados o
+adjudicados al Servicio por cualquier título, serán inscritos a su nombre.
+El Servicio tendrá personería jurídica instrumental, limitada a la
+posibilidad de ostentar titularidad registral para tales efectos.
+Las donaciones que el Servicio reciba de empresas o personas
+privadas, serán deducibles del impuesto sobre la renta, en los términos y
+las condiciones del artículo 8 de la Ley No. 7092, de 21 de abril de 1988.
