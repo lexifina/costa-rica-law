@@ -1,0 +1,1 @@
+ARTÍCULO 18.-La Secretaria de Hacienda no podrá consignar en el Banco Nacional, ni retirar de la consignación, pagar‚ ni documento alguno a cobrar, aunque sea con el objeto de hacer el cobro judicial, si no es, dando previo aviso a la Contabilidad de Hacienda, para que se ponga en los libros la correspondiente razón.

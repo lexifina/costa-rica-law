@@ -1,0 +1,1 @@
+ARTÍCULO 24.-No se cubrirá orden alguna de pago, expedida por las Secretarías de Estado, que no esté firmada por el Secretario del Ramo ó por el Subsecretario, en su ausencia, y sellado con el sello correspondiente.

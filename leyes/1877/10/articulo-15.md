@@ -1,0 +1,1 @@
+ARTÍCULO 15.-Se clasificarán como "Gastos diversos" todos los que no correspondan a alguna de las separaciones que quedan determinadas. A cada especie se abrirá su cuenta respectiva, y solo al Secretario de Hacienda corresponde girar por gastos diversos.

@@ -1,0 +1,2 @@
+ARTÍCULO 5°. -A la Secretaría de Justicia corresponden:
+Corte Suprema de Justicia. -Juzgados de 1a Instancia de San José. -Juzgados de 1a Instancia de Cartago. -Juzgados de 1a Instancia de Heredia. -Juzgados de 1a Instancia de Alajuela. Juzgado único de San Ramón. -Juzgado único de Puntarenas. Juzgado único de Guanacaste. -Juzgado único de Minas. -Juzgados Constitucionales. -Gastos de oficina en esta Secretaría. -Eventuales.

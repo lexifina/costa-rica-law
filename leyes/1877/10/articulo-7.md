@@ -1,0 +1,1 @@
+ARTÍCULO 7°. -Corresponden a la Secretaría de Obras Públicas las siguientes: Secretaría de Obras Públicas. -Ferrocarril. –Carretera Nacional al Pacífico. -Carretera Nacional al Atlántico. -Inspección de ambas. -Edificios en construcción ó reparación, cada uno su cuenta respectiva. Gastos de oficina en esta Secretaría. -Eventuales.

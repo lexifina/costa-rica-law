@@ -1,0 +1,2 @@
+ARTÍCULO 28.-Ningún empleado podrá girar por comisión de otro, exceptuándose solamente los Secretarios de Estado, que podrán en caso de ausencia u otro impedimento, girar los unos por los otros; pero en ese caso deberá expresarse precisamente el ramo a que pertenece el gasto, y, antes de la firma, la razón de ausencia ó impedimento del Secretario del ramo.
+–Dado en el Palacio Nacional. San José, á veintiuno de Abril de mil ochocientos setenta y siete. -Vicente Herrera. --El Secretario de Estado en el Despacho de Hacienda, T. Guardia.
