@@ -1,0 +1,4 @@
+Artículo 7-Créase el impuesto de dos pesos mensuales, aplicables á los fondos municipales, sobre cada solar del puerto de Limón, mientras no se edifique en ellos.
+Señálase el término de seis meses á los dueños de solares en el mismo puerto, para que los cierren, limpien y desequen; esto último con arreglo al inciso II del artículo 5° anterior, bajo la pena de cincuenta pesos de multa, exigible gubernativamente al que no lo verifique.
+Los solares responden al pago del impuesto y multa referidos.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los treinta días del mes de Julio de mil ochocientos noventa y uno.-FRANCISCO- J. VARGAS M., Secretario.- M. IGLESIAS. LUIS R. FLORES., Prosrio. Casa Presidencial, San José, treinta y uno de Julio de mil ochocientos noventa y uno.-Ejecútese.- José J. RODRÍGUEZ. El Secretario de Estado en los despachos de Gobernación y Fomento,-JOAQUÍN LIZANO.
