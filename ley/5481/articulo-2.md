@@ -1,0 +1,1 @@
+Artículo 2º.- Sin perjuicio de lo dispuesto en el artículo anterior, las pensiones y jubilaciones a que se refiere esta ley en ningún caso podrán ser inferiores a quinientos colones (¢ 500.00). Las inferiores a esa suma que ya se hubieren otorgado, se ajustarán de oficio al mínimo que ahorra se establece, y a partir del mes siguiente a la fecha de vigencia de esta ley.
