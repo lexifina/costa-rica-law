@@ -14,3 +14,4 @@ Restablece Servicio "Cartas y Tarjetas de Respuesta Comercial"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-04-27 | la propia norma |
+| 2 | 1975-01-08 | Decreto Ejecutivo 4463 (1975-01-08) |
