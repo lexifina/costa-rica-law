@@ -1,0 +1,2 @@
+Artículo 18.—De la resolución de los asuntos.
+En las reuniones de la Comisión y Subcomisiones Técnicas se buscará que las decisiones se tomen por consenso. De existir diferencias entre los miembros, los acuerdos se tomarán mediante votación por mayoría simple. En caso de empate el Presidente o el respectivo coordinador tendrá doble voto. Las decisiones serán de acatamiento obligatorio por los representantes de las instituciones.

@@ -1,0 +1,2 @@
+Artículo 23.—De la participación de la sociedad civil a nivel regional.
+Las CRIPIS estarán obligadas a promover la creación de comisiones de trabajo o de asesoría técnica para la realización de las políticas y los lineamientos que le fije el CENADRO y el Plan Nacional Antidrogas, en cada región, cantón o distrito, procurando la incorporación de líderes comunales o de particulares interesados en participar.

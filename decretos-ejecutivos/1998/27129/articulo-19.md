@@ -1,0 +1,2 @@
+Artículo 19.—De la participación de la sociedad civil.
+Para llegar a todos los sectores, grupos sociales y zonas del país la Comisión Nacional promoverá la creación de organizaciones regionales, cantonales y distritales que tendrán la responsabilidad de planificar, ejecutar y evaluar las acciones de educación y prevención del fenómeno de la droga, de acuerdo con las políticas y lineamientos emanados de la Comisión Interinstitucional de Prevención Integral contra las Drogas.

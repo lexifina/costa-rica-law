@@ -1,0 +1,2 @@
+Artículo 2°—Constitución
+Se constituye la Comisión Interinstitucional de Prevención Integral contra las Drogas (CIPI), como Comisión de Asesoría Técnica del Centro Nacional de Prevención contra Drogas (CENADRO). Asimismo, se adscriben las Comisiones Regionales Interinstitucionales de Prevención Integral contra las Drogas que actúan en las regiones que señala el artículo 20 de este reglamento, como subcomisiones de Asesoría Técnica del Centro Nacional de Prevención contra Drogas (CENADRO).

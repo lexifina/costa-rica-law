@@ -1,0 +1,4 @@
+Artículo 3.—Misión de las Comisiones de Asesoría
+Es misión de la CIPI promover en el ámbito nacional el desarrollo de planes y programas orientados a la educación y prevención del fenómeno de las drogas mediante un modelo de formación integral de las personas, dirigidos a promover estilos de vida saludables que incidan en los patrones socioculturales relacionados con el almacenamiento, distribución, venta, tráfico y el consumo de drogas.
+Las CRIPIS tendrán como misión el promover en sus respectivas regiones la implementación de los planes y programas desarrollados por la CIPI.
+Para el cumplimiento de su misión, la CIPI y las CRIPIS deberán remitir a CENADRO, cada año, en el mes de octubre, los planes y programas del año siguiente, para que se considere su inclusión dentro del Plan Nacional Antidrogas.
