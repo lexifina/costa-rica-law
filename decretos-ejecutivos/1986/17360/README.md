@@ -14,3 +14,4 @@ Crea Comisión Asesora en Materia Aduanera y reforma decreto que declara emergen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-01 | la propia norma |
+| 2 | 1987-11-18 | Decreto Ejecutivo 17887 (1987-11-18) |
