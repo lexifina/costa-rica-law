@@ -1,0 +1,3 @@
+Artículo 9º—Conformación. La Junta estará integrada por cuatro miembros propietarios con pleno poder de decisión y cuatro suplentes que entrarán en funciones durante las ausencias temporales en iguales condiciones. Corresponderá a SIBANPO y a la Administración designar a sus representantes titulares y suplentes.
+Los miembros durarán en sus cargos un año y podrán ser reelectos o removidos en cualquier momento, por quien los hubiere designado.
+Los miembros de la Junta de Relaciones Laborales tendrán permiso, en horas laborales, para estudiar los casos y asistir a las sesiones, de manera que se garantice el cumplimiento eficiente de sus funciones.

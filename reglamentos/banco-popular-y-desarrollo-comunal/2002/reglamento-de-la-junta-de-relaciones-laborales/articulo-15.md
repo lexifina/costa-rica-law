@@ -1,0 +1,3 @@
+Artículo 15.—Impedimentos, recusaciones y excusas. Serán motivo de abstención las mismas causales de impedimento y recusación que se establecen en el Código Procesal Civil.
+La parte afectada podrá solicitar la inhabilitación de cualquiera de los miembros de la Junta de Relaciones Laborales que, por su relación directa con el caso, pueda comprometer la objetividad de la resolución.
+La Junta deberá tramitar y resolver los impedimentos, recusaciones y excusas de sus miembros en la misma sesión en que sean interpuestos. Ningún asunto puede suspenderse por causa de dichos impedimentos, excusas y recusaciones.

@@ -1,0 +1,4 @@
+Artículo 27.—Traslado del reclamo. De cada reclamo se levantará un expediente, el cual será debidamente foliado.
+Recibido el reclamo, la Secretaría Ejecutiva de la Junta, en un plazo no mayor de 24 horas, dará traslado a la otra parte del reclamo y las pruebas presentadas para que lo conteste y pueda ofrecer las pruebas de descargo, dentro del plazo que establezca la Junta. En principio el plazo será de 3 días, pudiendo ser ampliado por la Junta en función de la complejidad del asunto, sin que este plazo pueda exceder de 10 días hábiles.
+Igual procedimiento se deberá seguir con respecto a la contestación y la prueba ofrecida por la parte afectada.
+Una vez vencidos los plazos indicados, la Junta de Relaciones Laborales hará las investigaciones oportunas, admitirá y evacuará la prueba que estime necesario.

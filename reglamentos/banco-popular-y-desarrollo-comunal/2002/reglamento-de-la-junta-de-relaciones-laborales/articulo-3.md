@@ -1,0 +1,1 @@
+Artículo 3º—Origen. La Junta de Relaciones Laborales se crea con base en los artículos 48, 49, 50, 52, 54, 55, 56, 57, 58 y 59 de la Tercera Reforma a la Tercera Convención Colectiva. Por ello deberá actuar con absoluta independencia, ponderación y equilibrio al juzgar toda cuestión sometida a su conocimiento y resolución.

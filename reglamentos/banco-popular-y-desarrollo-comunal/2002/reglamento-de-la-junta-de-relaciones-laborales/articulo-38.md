@@ -1,0 +1,3 @@
+Artículo 38.—Recomendación final en caso de empates en materia disciplinaria. Cuando la votación de un asunto ante la Junta resulte empatada, deberá conocerse el asunto nuevamente en sesión extraordinaria, la cual deberá ser celebrada dentro de los tres días hábiles siguientes.
+De persistir el empate, corresponderá al órgano indicado en el artículo 7 del presente Reglamento resolverlo en definitiva.
+Dentro de los tres días hábiles siguientes al recibo del expediente por el órgano indicado en artículo 7 del presente reglamento, dicho órgano dará audiencia a las partes para que aleguen lo pertinente a la defensa de sus intereses. La recomendación final deberá comunicarse dentro de los diez días hábiles siguientes al vencimiento de la audiencia indicada.

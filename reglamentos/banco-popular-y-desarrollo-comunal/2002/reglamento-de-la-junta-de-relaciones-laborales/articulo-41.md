@@ -1,0 +1,1 @@
+Artículo 41.—Plazo para notificar la recomendación de la Junta de Relaciones Laborales. El plazo para notificar el acto final será de diez días hábiles después de recibida la recomendación final de la Junta de Relaciones Laborales o tomada la decisión sobre el empate por la Administración.

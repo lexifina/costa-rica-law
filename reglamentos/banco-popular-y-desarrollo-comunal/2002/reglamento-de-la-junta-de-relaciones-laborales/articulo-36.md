@@ -1,0 +1,3 @@
+Artículo 36.—Prueba para mejor resolver. La Junta dará audiencia al trabajador investigado y al Órgano Director del Procedimiento, para que manifiesten lo que a bien tengan y eventualmente aporten prueba para mejor resolver, cuya admisibilidad será potestad de la Junta.
+La Junta, antes de tomar la decisión final, ordenará con carácter para mejor resolver que se evacuen todas aquellas pruebas que no tiendan a entorpecer el curso normal del procedimiento disciplinario. También podrá tomar declaración a cualquier testigo que estime conveniente y solicitar cualquier prueba de orden técnico o científico para mejor esclarecimiento de los hechos investigados.
+Para los fines de este procedimiento se aplicarán los artículos 28 y 29 de este Reglamento, en lo pertinente.

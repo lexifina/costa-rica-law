@@ -1,0 +1,1 @@
+Artículo 34.—Comunicación de resolución de reclamo. La resolución final deberá ajustarse a los preceptos de ley, y deberá ser notificada al interesado, a SIBANPO y al Banco, en un plazo de 8 días hábiles contados a partir de la fecha de emitida la resolución.

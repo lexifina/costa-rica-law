@@ -1,0 +1,3 @@
+Artículo 42.—De los recursos ordinarios. Contra el acto final, en materia civil dictado por la Junta Directiva Nacional y contra el acto final en materia disciplinaria, cabrá recurso de reconsideración, el cual deberá interponerse ante el órgano que lo dictó dentro de los dos meses siguientes a su comunicación.
+Contra el acto final en materia civil, que no haya sido emitido por la Junta Directiva Nacional, cabrán los recursos de revocatoria y apelación, los cuales deberán presentarse ante el órgano que los dictó, dentro del tercer día hábil siguiente a su comunicación.
+Contra el acto final en el caso de reclamos únicamente cabe recurso de apelación, el cual será conocido por el órgano indicado en el párrafo primero del artículo 7 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Presidente y Secretario. La Junta de Relaciones Laborales contará con un Presidente y un Secretario, quienes serán elegidos del seno de la Junta. El nombramiento del Presidente, en todo caso, deberá recaer en un representante de la Administración y el de la Secretaría, en un representante sindical.

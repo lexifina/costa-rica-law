@@ -1,0 +1,1 @@
+Artículo 39.—Resoluciones por responsabilidad civil. En los asuntos en que medie responsabilidad civil, la recomendación final del Órgano Director del Procedimiento Administrativo deberá ser remitida según corresponda para su aprobación y notificación, sin requerirse el trámite ante la Junta de Relaciones Laborales.

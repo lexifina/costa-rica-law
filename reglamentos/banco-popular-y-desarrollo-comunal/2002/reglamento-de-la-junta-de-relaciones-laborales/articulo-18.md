@@ -1,0 +1,1 @@
+Artículo 18.—Quórum para sesionar. La Junta sesionará válidamente cuando esté presente la representación completa de ambas partes, dándose un plazo de 15 minutos de espera para iniciar la sesión, sí alguna de las partes no se hubiera presentado.

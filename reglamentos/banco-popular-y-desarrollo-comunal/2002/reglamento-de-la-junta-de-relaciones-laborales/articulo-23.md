@@ -1,0 +1,1 @@
+Artículo 23.—Votos negativos. Los miembros de la Junta deberán hacer constar y razonar en el acta su voto negativo y los motivos que lo justifiquen, quedando exentos de las responsabilidades que, en su caso, pudieren derivarse de tal acuerdo.

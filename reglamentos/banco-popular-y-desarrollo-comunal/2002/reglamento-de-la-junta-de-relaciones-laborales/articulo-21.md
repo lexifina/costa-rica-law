@@ -1,0 +1,3 @@
+Artículo 21.—Recurso de revisión. Si alguno de los miembros de la Junta interpone recurso de revisión contra un acuerdo, será resuelto al aprobarse el acta de esa sesión, a menos que, por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria, antes de la celebración de la próxima sesión ordinaria.
+El recurso de revisión deberá ser planteado a más tardar al aprobarse el acta, y deberá resolverse en la misma sesión en que fue interpuesto.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas como recurso de revisión.

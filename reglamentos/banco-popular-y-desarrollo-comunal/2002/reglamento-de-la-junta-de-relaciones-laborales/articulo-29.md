@@ -1,0 +1,2 @@
+Artículo 29.—Presentación posterior de pruebas. Si la Junta lo estima necesario, podrá admitir otras pruebas cuya existencia no se hubiere conocido en tiempo, previo a la votación. Si la Junta lo considera conveniente podrá trasladar la nueva prueba a la Administración y al Sindicato, quienes tendrán de 1 a 3 días para pronunciarse al respecto.
+Una vez entregados los expedientes del reclamo al Secretario y al Presidente de la Junta de Relaciones Laborales, éste señalará inmediatamente la fecha de la sesión y la inclusión del caso en la agenda para ser conocido por la Junta.
