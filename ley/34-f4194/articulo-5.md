@@ -1,0 +1,3 @@
+ARTICULO 5°. -El Poder Ejecutivo no permitir la aplicación de la sociedad anónima todas las empresas indistintamente; sino que la limitar las empresas
+que su juicio, por la importancia que ellas exigen, por su carácter incierto y dudoso, como también por su larga duración, excedan los límites de la industria particular y de las sociedades ordinarias; pero cuidando siempre de que ellas no causen un perjuicio real las industrias preexistentes, cuya utilidad sea notoria.
+Al Poder Ejecutivo, dado en el Salón de Sesiones, Palacio Nacional, San José julio seis de mil ochocientos setenta y cinco. Palacio Nacional, San José julio ocho de mil ochocientos setenta y cinco. Ejecutese.
