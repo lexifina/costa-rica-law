@@ -14,3 +14,4 @@ Constituye Escuela Casa el Artista como programa del Museo de Arte Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-01 | la propia norma |
+| 2 | 2000-03-23 | Decreto Ejecutivo 28608 (2000-03-23) |
