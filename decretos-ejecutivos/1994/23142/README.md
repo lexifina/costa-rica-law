@@ -14,3 +14,4 @@ Declara Zona Protectora de Montes de Oro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-27 | la propia norma |
+| 2 | 1994-05-06 | Decreto Ejecutivo 23295 (1994-05-06) |

@@ -9,38 +9,18 @@ Considerando
 4° Que estos cerros son sitios de recarga acuífera, que abastecen los acueductos de poblaciones como Miramar, Esparza y pueblos aledaños.
 5° Que lo mencionado anteriormente hace imperativo establecer medidas adecuadas de conservación en la zona citada.
 Decretan:
-Artículo 1° Declarar La Zona Protectora de Montes de Oro, demarcada en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, San Lorenzo y Miramar con la siguiente descripción:
-Partiendo de un punto 800 metros norte del Poblado de Peñas Blancas de Miramar con coordenadas 463.000 E y 234.000. N
-Continuando el límite por una serie de puntos cuyas coordenadas se describen a continuación:
-462.000 E | 233.900 N
-462.000 E | 233.000 N
-462.860 E | 231.270 N
-462.750 E | 231.000 N
-462.000 E | 231.350 N
-460.450 E | 231.350 N
-460.450 E | 232.570 N
-460.000 E | 232.450 N
-459.900 E | 233.340 N
-458.550 E | 233.200 N
-458.200 E | 233.890 N
-Ese último punto sobre la margen izquierda con la Quebrada Padre, continuando el límite aguas arriba hasta un punto con coordenadas 458.920 E y 234.260 N. continuando el límite por los siguientes puntos, cuyas coordenadas se describen a continuación:
-458.500 E | 234.450 N
-459.300 E | 235.390 N
-458.000 E | 236.000 N
-458.850 E | 237.380 N
-459.650 E | 237.150 N
-460.400 E | 238.900 N
-461.920 E | 238.900 N
-Este último punto se localiza en la intersección de la Quebrada Mela con el camino público a Zapotal de Miramar, continuando el límite por este camino con rumbo sureste hasta las coordenadas 464.520 E y 237.650 N.
-Continuando el límite hasta un punto en la margen derecha de la Quebrada Valverde con coordenadas 465.000 E y 237.650 N.
-Continuando por los siguientes puntos, cuyas coordenadas se describen así:
-465.780 E | 236.250 N
-465.780 E | 235.000 N
-466.150 E | 234.550 N
-466.150 E | 234.150 N
-465.800 E | 233.940 N
-466.450 E | 233.500 N
-466.200 E | 232.600 N
-465.000 E | 234.000 N
-463.000 E | 234.000 N
-Este último punto es el punto inicial de la presente descripción.
+Artículo 1°.- Se crea la Zona Protectora Montes de Oro, demarcada en las hojas cartográficas, San Lorenzo y Miramar del IGN, escala 1:50.000, con los siguientes linderos: Partiendo de un punto situado a 800 m al norte del poblado de Peñas Blancas cuyas coordenadas son 463000 E y 234000 N, el límite continúa por una serie de puntos cuyas coordenadas son:
+462000 E | 234000 N
+462000 E | 233000 N
+462800 E | 231350 N
+462350 E | 231000 N
+462000 E | 231300 N
+461000 E | 231300 N
+461000 E | 235000 N
+458000 E | 236000 N
+458850 E | 237380 N
+459650 E | 237150 N
+460400 E | 238900 N
+461920 E | 238900 N
+Este último punto se localiza en la intersección de la Quebrada Mela con el camino público a Zapotal de Miramar. A partir de aquí el límite continúa por este camino con rumbo sureste hasta el punto de coordenadas 464520 E y 237650 N, continúa hasta la intersectar la Quebrada Valverde en el punto de coordenadas 465000 E y 237400 N; continúa aguas debajo de esta quebrada hasta un punto de coordenadas 465950 E y 236575 N, en la confluencia con el Río Barranquilla. Continúa con rumbo Sur Franco hasta el punto de Coordenadas 463000 y 234000 N, que corresponde al punto de origen de la presente descripción.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23295 del 6 de mayo de 1994)
