@@ -14,3 +14,4 @@ Reglamento del Artículo 19 de la Ley sobre el Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-09-04 | la propia norma |
+| 2 | 1979-05-22 | Decreto Ejecutivo 10050 (1979-05-22) |
