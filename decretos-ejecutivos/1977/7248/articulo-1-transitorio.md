@@ -1,1 +1,0 @@
-Transitorio I.- Previo inventario de la Auditoría General del Ministerio, los activos, pasivos y bienes muebles que actualmente tiene el Comité Nacional de Salud Mental se traspasan al Consejo Técnico Superior de Salud Mental.
