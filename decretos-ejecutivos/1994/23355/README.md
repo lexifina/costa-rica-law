@@ -13,3 +13,4 @@ Reglamento de la NCR 26:1994 Metrología SI Unidades Legales de Medida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-06-15 | la propia norma |
+| 2 | 1994-06-15 | SINALEVI (sin norma nombrada) |
