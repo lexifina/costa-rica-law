@@ -1,2 +1,0 @@
-Artículo 6°--Alcances de la aplicación de estándares de calidad.
-No podrá restringirse la importación de bienes ni su comercialización en el mercado interno con base en la aplicación de estándares de calidad, salvo cuando los bienes se presenten u ofrezcan al público haciendo uso de información falsa, que no corresponda a la verdadera calidad del bien, o cuando se violen regulaciones obligatorias relativas a salud, seguridad pública o medio ambiente.

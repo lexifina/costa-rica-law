@@ -1,2 +1,0 @@
-Artículo 18.- Bienes y servicios de la canasta básica.
-La regulación de los bienes y servicios de la canasta básica, a que se refiere el inciso e) del artículo 30 de la Ley, se entenderá como un monitoreo y seguimiento periódico, por parte del MEIC, de los precios de dichos bienes y servicios. En caso de que se considerara necesario regular los precios de bienes y servicios componentes de la canasta básica, tal regulación estará sujeta a la existencia de las condiciones al procedimiento previstos en este reglamento.

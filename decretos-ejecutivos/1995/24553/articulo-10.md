@@ -1,2 +1,0 @@
-Artículo 10.-Criterios y formato de los análisis costo beneficio.
-La CPC definirá los criterios en los cuales deben basarse los análisis costo-beneficio a que se refiere el párrafo primero del artículo 4 de la Ley, así como el formato al que deben ajustarse. Lo anterior será comunicado por la CPC a todos los entes y órganos de la Administración Pública responsables de elaborar esos análisis. La comunicación se hará al menos tres meses antes del vencimiento del plazo de un año contemplado en el transitorio I de la Ley.

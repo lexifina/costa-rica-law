@@ -1,2 +1,0 @@
-Artículo 74.--Ejecutoriedad de las resoluciones
-Las resoluciones de la comisión para Promover la competencia y de la CNC serán ejecutadas en los términos del numeral 149 de la LGAP. En particular, las sanciones de multa que imponga la segunda lo serán conforme al inciso 1.a de dicha norma. La certificación será expedida por el Secretario de la CNC, una vez cumplidas las dos intimaciones que menciona el artículo 150.2 de esa ley, y se enviará a la Procuraduría General de la República para su ejecución a nombre del Estado.
