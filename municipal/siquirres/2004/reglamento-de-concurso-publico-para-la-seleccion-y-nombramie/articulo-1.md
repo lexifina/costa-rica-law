@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE SIQUIRRES
+REGLAMENTO DE CONCURSO PÚBLICO PARA LA SELECCIÓN Y NOMBRAMIENTO DEL AUDITOR INTERNO DE LA MUNICIPALIDAD DE SIQUIRRES
+Artículo 1º—De la naturaleza: El presente Reglamento regula el procedimiento para el concurso y nombramiento del Auditor Interno de la Municipalidad de Siquirres, de conformidad con lo estipulado en la Ley 8292, denominada Ley General de Control Interno y los “Lineamientos para la descripción de las funciones y requisitos de los cargos de auditor y subauditor interno” emitidos por la Contraloría General de la República, documento oficial L-1-2003-CO-DDI, publicado en La Gaceta del 24 de octubre del 2003.
