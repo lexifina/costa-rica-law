@@ -1,0 +1,1 @@
+Artículo 3º—Los vehículos regulados en el presente Reglamento serán. Todos los vehículos adquiridos por la Municipalidad, para cumplir sus fines con cargo de las partidas presupuestarias o mediante permuta.

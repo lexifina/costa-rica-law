@@ -1,0 +1,1 @@
+Artículo 27.—Sanciones. Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el reglamento interno, código de trabajo, este reglamento y leyes conexas.

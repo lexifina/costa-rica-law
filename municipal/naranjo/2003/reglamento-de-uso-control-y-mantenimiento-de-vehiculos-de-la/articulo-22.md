@@ -1,0 +1,3 @@
+Artículo 22.—Informe del accidente. El funcionario encargado responsable, analizará todo accidente de tránsito en que participe un vehículo municipal, del cual rendirá un informe con la recomendación respectiva de la dirección respectiva de la dirección interna dentro de los tres días hábiles siguientes a la fecha del percance.
+Si dicha recomendación no es compartida por el conductor, este tendrá derecho a ser oído, dentro de los tres días hábiles posteriores, ante el titular de la dependencia respectiva para hacer valer sus derechos y presentar las pruebas que estime convenientes.
+Una vez concluido el procedimiento, los superiores tomarán la resolución correspondiente, todo de conformidad con la Ley General de Administración Pública.
