@@ -1,0 +1,2 @@
+Art. 9°-En los casos de los artículos 3° y 5°, el Jefe del Resguardo se limitará á poner las personas y objetos detenidos á disposición de la autoridad que corresponda.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones.-Palacio Nacional.-San José, diciembre 23 de mil ochocientos ochenta.-BRUNO CARRANZA, Presidente. JESUS SOLANO, Secretario. Por tanto ejecútese. –Palacio Nacional. –San José, á veintitrés de diciembre de mil ochocientos ochenta-T. GUARDIA. El Secretario de Estado en el Despacho de Hacienda.SALVADOR LARA.
