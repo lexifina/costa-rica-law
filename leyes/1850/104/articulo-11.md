@@ -1,0 +1,1 @@
+Art. 11. Cuando asistan al Templo las Supremas Autoridades, serán recibidas en la puerta por los individuos del Venerable Cabildo Eclesiástico o por los de dignidad que designe el Obispo ó su Vicario, y han de acompañarlos al salir.
