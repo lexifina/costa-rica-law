@@ -1,4 +1,4 @@
-Artículo 30.- Las fumigaciones deberán efectuarse periódicamente,
+ARTICULO 30.- Las fumigaciones deberán efectuarse periódicamente,
 tantas veces como sea necesario para minimizar las poblaciones de insectos
 y roedores. Las personas responsables de la fumigación así como los
 productos empleados deberán estar autorizados por el Ministerio y su

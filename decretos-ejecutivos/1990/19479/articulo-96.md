@@ -1,1 +1,1 @@
-Artículo 96.- Rige a partir de su publicación.
+ARTICULO 96.- Rige a partir de su publicación.

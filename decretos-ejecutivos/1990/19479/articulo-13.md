@@ -1,5 +1,5 @@
 REQUISITOS FISICOS
-Artículo 13.- Todo servicio de alimentación al público tendrá
+ARTICULO 13.- Todo servicio de alimentación al público tendrá
 claramente definidas sus áreas de:
 - proceso
 - consumo

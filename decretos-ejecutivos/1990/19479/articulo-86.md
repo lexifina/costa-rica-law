@@ -1,4 +1,4 @@
-Artículo 86.- Para obtener el permiso sanitario de funcionamiento se
+ARTICULO 86.- Para obtener el permiso sanitario de funcionamiento se
 deberá proceder conforme con los siguientes requisitos:
 A) Presentar solicitud dirigida a la Autoridad Sanitaria local, en la
 que se consigne lo siguiente:

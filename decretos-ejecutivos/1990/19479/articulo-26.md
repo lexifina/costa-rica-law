@@ -1,4 +1,4 @@
-Artículo 26.- Los establecimientos poseerán ventalación natural o
+ARTICULO 26.- Los establecimientos poseerán ventalación natural o
 artificial de forma que, cada una por separado, garantice una temperatura
 ambiental que no sea incómoda o inconveniente para el proceso, el personal
 y el público.

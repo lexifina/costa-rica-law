@@ -1,4 +1,4 @@
-Artículo 51.- El descongelamiento de los alimentos potencialmente
+ARTICULO 51.- El descongelamiento de los alimentos potencialmente
 peligrosos deberá regirse por los siguientes mecanismos:
 a) Bajo agua potable corriente a temperatura máxima de 10°C.
 b) En horno de microondas, siempre y cuando vaya a ser utilizado de

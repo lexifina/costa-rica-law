@@ -1,4 +1,4 @@
-Artículo 36.- Los desechos sólidos o basuras deberán recogerse en
+ARTICULO 36.- Los desechos sólidos o basuras deberán recogerse en
 recipientes herméticos, con tapa ajustada de cierre, diseñados con
 materiales que permitan su fácil limpieza; internamente podrán estar
 forrados con bolsas plásticas. La recolección de las basuras del área en

@@ -1,4 +1,4 @@
-Artículo 25.- La iluminación será tanto natural como artificial; en
+ARTICULO 25.- La iluminación será tanto natural como artificial; en
 el primer caso, la superficie de ventanas no será menor del 20% de la
 superficie del piso; en el segundo, la intensidad no será inferior a la
 suministrada por fuente natural y dará luz blanca. En el área de consumo

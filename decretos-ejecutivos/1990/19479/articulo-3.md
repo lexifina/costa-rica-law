@@ -1,4 +1,4 @@
-Artículo 3º.- Inclúyase dentro de los servicios de alimentación al
+ARTICULO 3º.- Inclúyase dentro de los servicios de alimentación al
 público los siguientes establecimientos:
 a) Restaurantes
 b) Sodas

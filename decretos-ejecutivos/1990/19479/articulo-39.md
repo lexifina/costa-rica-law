@@ -1,4 +1,4 @@
-Artículo 39.- Se autoriza el empleo de los siguientes métodos de
+ARTICULO 39.- Se autoriza el empleo de los siguientes métodos de
 desinfección de equipos y utensilios:
 a) Inmersión durante medio minuto, como mínimo, en agua potable a una
 temperatura de 75°C., cuando menos.

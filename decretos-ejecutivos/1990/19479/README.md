@@ -13,3 +13,4 @@ Reglamento Servicio Alimentación al Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-03-14 | la propia norma |
+| 2 | 1990-03-14 | Decreto Ejecutivo 20044 (1990-10-31) |

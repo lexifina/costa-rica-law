@@ -9,10 +9,10 @@ resguardo de la salud de la población emitir una serie de regulaciones.
 Por tanto,
 DECRETAN:
 El siguiente,
-Reglamento de los servicios de alimentación al público
+REGLAMENTO DE LOS SERVICIOS DE ALIMENTACION AL PUBLICO
 CAPITULO I
 Definiciones
-Artículo 1º.- Para efectos del presente Reglamento deberán entenderse
+ARTICULO 1º.- Para efectos del presente Reglamento deberán entenderse
 como:
 Alimento: Se entiende por alimento o producto alimenticio, para los
 efectos legales y reglamentarios, toda sustancia o producto natural o
