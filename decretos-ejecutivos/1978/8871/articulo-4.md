@@ -1,0 +1,2 @@
+Artículo 4°—Para los fines que establece el artículo anterior, la solicitud deberá hacerse en los formularios que al efecto se encuentran disponibles en la Administración del Aeropuerto.
+Se exceptúan de esta obligación aquellos casos de tipo diplomático especiales, los que se activarán y coordinarán por la vía telefónica entre la Administración y la Dirección de Protocolo del Ministerio de Relaciones Exteriores y Culto.

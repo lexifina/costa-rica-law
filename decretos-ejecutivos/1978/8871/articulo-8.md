@@ -1,0 +1,1 @@
+Artículo 8°—En el evento en que se presentare cualquier tipo de emergencia dentro del área del Aeropuerto, la salida y el ingreso al Salón Diplomático se realizarán únicamente por las puertas laterales habilitadas y mediante la dirección de un funcionario de la Administración.
