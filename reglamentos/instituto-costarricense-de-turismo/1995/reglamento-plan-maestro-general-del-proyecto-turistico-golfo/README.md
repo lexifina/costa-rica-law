@@ -14,3 +14,4 @@ Reglamento "Plan Maestro General del Proyecto Turístico Golfo de Papagayo"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-24 | la propia norma |
+| 2 | 2004-05-04 | Reglamento 5302 (2004-05-04) |
