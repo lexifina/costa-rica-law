@@ -1,0 +1,1 @@
+Artículo 2º—Para el cabal cumplimiento de las obligaciones de las Oficinas Regionales, se utilizarán preferentemente las sedes regionales de las Direcciones pertenecientes a la División de Transportes, sin perjuicio de aprovechar también otras instalaciones del Ministerio de Obras Públicas y Transportes, sus dependencias y órganos adscritos.
