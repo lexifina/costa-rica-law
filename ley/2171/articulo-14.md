@@ -8,3 +8,5 @@ f) Autorizar la realización de campañas en favor de los ciegos, de conformidad
 g) Actuar como asesor del Estado y de sus instituciones cuando algún organismo les solicite ayuda para los ciegos;
 h) Gestionar ante la Universidad de Costa Rica y de la Escuela de Enseñanza Especial, los medios técnicos necesarios para realizar los servicios enumerados en el artículo 16 de esta ley; e
 i) Realizar campañas profilácticas y de prevención.
+j) Administrar los fondos destinados a asistencia social, para este efecto podrá instalar y mantener los órganos administrativos necesarios.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 2968 del 20 de diciembre de 1961)
