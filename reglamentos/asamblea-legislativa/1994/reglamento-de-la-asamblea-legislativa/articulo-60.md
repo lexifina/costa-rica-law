@@ -1,7 +1,6 @@
 CAPITULO III
 HORARIO Y SESIONES
-ARTICULO 60.- Hora y día
-1. Las Comisiones Legislativas Plenas sesionarán los miércoles. Iniciarán sus sesiones a las dieciocho horas con cinco minutos y no podrán levantarlas antes de las diecinueve horas, excepto si trece diputados aprueban lo contrario. Por igual votación, estas Comisiones podrán sesionar extraordinariamente en otros días hábiles. Las Comisiones Legislativas Plenas podrán comenzar antes de las dieciocho horas, cinco minutos después de que el Plenario Legislativo hubiere terminado la sesión, ya sea por falta de quórum o por haberse levantado la sesión correspondiente antes de la hora señalada.
-(Acuerdo Nº 4049 publicado en La Gaceta Nº213 del 3-11-98).
-(Acuerdo Nº 5085 publicado en La Gaceta Nº44 del 2-3-2001).
+Artículo 60.-Hora y día
+1. Las comisiones legislativas plenas sesionarán los miércoles. Iniciarán sus sesiones a las diecisiete horas con cinco minutos y no podrán levantarse antes de las dieciocho horas, excepto si trece diputados aprueban lo contrario. Por igual votación, estas comisiones podrán sesionar extraordinariamente en otros días hábiles. Las comisiones legislativas plenas podrán comenzar antes de las diecisiete horas, siempre que sea cinco minutos después de que haya finalizado el Plenario Legislativo, ya sea por haber terminado la sesión plenaria por falta de quórum o por haberse levantado la sesión correspondiente antes de la hora señalada.
+(Así reformado el inciso anterior por Acuerdo N° 6128 de 18 de agosto de 2003, publicado en La Gaceta N° 167 de 01 de setiembre de 2003.)
 2. Los recesos acordados por el Plenario se aplicarán a estas Comisiones, las cuales están autorizadas para sesionar en días no hábiles.(Acuerdo Legislativo Nº2972, Alcance 27, Gaceta 133 del 13 de julio de 1995).
