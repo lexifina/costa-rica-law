@@ -1,5 +1,4 @@
 No 20082
-(Mediante el artículo 1 del decreto ejecutivo N°23152 del 19 de abril de 1994, se decreta que "los terrenos del Parque Nacional Palo Verde comprendidos al oeste del camino principal de acceso al mismo, se denominarán en el futuro Sector Dr. Rafael Lucas Rodríguez Caballero").
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS
 En uso de las facultades que les confieren el artículo 10, inciso i) de la Ley Forestal No 7174 del 16 de julio de 1990 y el artículo 13 de la ley No 6084 del 24 de agosto de 1977.
@@ -54,3 +53,42 @@ N | 268000 | E | 387300
 | 267500 | | 385000
 Este último punto se localiza en la margen izquierda del cauce del río Tempisque. Continúa por esta margen aguas abajo hasta su confluencia con el río Bebedero en el punto de coordenadas N 248200 E 399730, situado en la margen izquierda de este río. Continúa por esta margen aguas arriba hasta el punto en coordenadas N 257420 E 403780 que es el punto de partida de la presente descripción.
 Las islas Saíno, Pájaros y San Pablo localizadas en el río Tempisque, se consideran como parte de este Parque Nacional.
+(NOTAS DE SINALEVI:
+1. Mediante el artículo 1 del decreto ejecutivo N°23152 del 19 de abril de 1994, se decreta que "los terrenos del Parque Nacional Palo Verde comprendidos al oeste del camino principal de acceso al mismo, se denominarán en el futuro Sector Dr. Rafael Lucas Rodríguez Caballero").
+2.Mediante el artículo 1 del decreto ejecutivo N°24426 del 03 de diciembre de 1994, se "amplía el Parque Nacional Palo Verde, incorporándole el corredor biológico del bosque la Mula, en el área comprendida dentro de los límites que se describen a continuación, según los mapas básicos del Instituto Geográfico Nacional, hoja cartográfica Tempisque 3147 III escala 1: 50000.
+Partiendo de un punto ubicado en el límite con el Parque Nacional Palo Verde de coordenadas N 262787.01 E 393391.36, continúa el límite por los puntos de coordenadas.
+N | 263233.48 | E | 393481.04
+N | 263525. 70 | E | 393244.69
+N | 264079.21 | E | 393343.03
+N | 264449.86 | E | 393725.48
+N | 267151.10 | E | 394348.29
+Este último punto ubicado en el canal principal de riego de Bagatzí. Continúa el límite hasta un vértice de coordenadas N 267384.89 E 394294.55, ubicado en la margen derecha del canal del oeste, tramo 2. Continúa el límite hasta un punto ubicado en el límite con la Reserva Biológica de Lomas Barbudal, con coordenadas N 267670.41, E 394350.61 y donde se encuentra la curva de nivel de los 60 metros sobre el nivel del mar. A partir de ese punto, dicha curva delimita el parque por el norte, hasta el vértice de coordenadas N 267598.69 E 393547.12 que también se encuentra en la cota de nivel de los 60 metros sobre el nivel del mar, en el límite con la Reserva Biológica Lomas Barbudal. Continúa el límite hasta el punto de coordenadas N 267372.60 E 393547.12, ubicado en la margen derecha del canal principal de riego de Bagatzí. Continúa el límite por los puntos de coordenadas.
+N | 267166.69 | E | 393547.12
+N | 267141.47 | E | 393547.12
+N | 265174.70 | E | 391711.53
+N | 264800.99 | E | 392042.26
+Este último punto, ubicado en el borde del camino público que va de Bagatzí a Palo Verde. Continúa el límite por ese camino hasta un vértice de coordenadas N 264481.06 E 391471.58 ubicado en un canal de drenaje para las parcelas de Bagatzí y es límite con el Parque Nacional Palo Verde. A partir de ese punto, continúa el límite por la margen izquierda de ese canal, por los puntos de coordenadas:
+N | 264076.37 | E | 391662.28
+N | 263303.69 | E | 392380.76
+Este último punto ubicado en la margen izquierda de un drenaje. Continúa el límite aguas abajo por la margen izquierda del drenaje, hasta intersectar la quebrada la Mula en su margen izquierda, en un punto de coordenadas N 263429.73 E 392943.15. Continúa el límite aguas abajo por la margen izquierda de la quebrada la Mula hasta el punto de coordenadas N 262787.01 E 393391.36 que corresponde al inicio de la presente descripción").
+3. Mediante el artículo 2 del decreto ejecutivo N°24426 del 03 de diciembre de 1994, "se exceptúa de estos limites:
+a. El poblado y el anillo de protección de Bagatzí así como la vía principal de acceso y el área comprendida dentro de los límites definidos por los vértices de coordenadas:
+N | 266560.27 | E | 393406.31
+N | 265695.17 | E | 393916.49
+N | 264972.40 | E | 393229.33
+N | 264454.34 | E | 392323.72
+N | 265113.70 | E | 392000.23
+b. Una franja de terreno por donde pasará el Canal del Oeste, en el área comprendida dentro de los límites definidos por los vértices de coordenadas:
+N | 267372.60 | E | 393547.12
+N | 267340.33 | E | 393789.53
+N | 267383.58 | E | 393996.72
+N | 267384.89 | E | 394294.55
+N | 267151.10 | E | 394348.29
+N | 267144.03 | E | 394019.57
+N | 267182.25 | E | 393628.41
+N | 267166.69 | E | 393547.12
+c. Una franja de terreno por donde pasa el canal de drenaje D2 y con el único fin de darle mantenimiento por parte de SENARA, en el área comprendida dentro de los límites definido por los vértices de coordenadas:
+N | 263484.82 | E | 392943.82
+N | 264677.37 | E | 391828.69
+N | 263460.81 | E | 392939.19
+N | 264667.09 | E | 391810.92").

@@ -14,3 +14,4 @@ Incorpora al Parque Nacional Palo Verde el área correspondiente al Refugio de F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-12-10 | la propia norma |
+| 2 | 1994-12-03 | Decreto Ejecutivo 24426 (1994-12-03) |
