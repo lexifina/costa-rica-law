@@ -13,3 +13,4 @@ Reforma al Reglamento para el Control Nacional de Fraccionamientos y Urbanizacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-06-15 | la propia norma |
+| 2 | 1987-08-03 | Reglamento 6 (1987-08-03) |
