@@ -1,2 +1,3 @@
-Artículo 36.—La Municipalidad de Tilarán no acepta ni aceptará enajenaciones, cesiones, canjes, o entregas por cualquier título, permanente o transitorio, que hagan los inquilinos de sus puestos a terceros.
+Artículo 36.—La Municipalidad de Tilarán no acepta ni aceptará enajenaciones, cesiones, canjes o entregas por cualquier título permanente y transitorio que hagan los inquilinos de sus puestos a terceros, salvo permiso que otorgue el Alcalde Municipal, después de un estudio socioeconómico practicado a los interesados, que se derogue el inciso c, del artículo 6.
 Tanto el inquilino que verifique la negociación aquí como el presunto adquirente, perderán el derecho a ocupar el puesto y se cancelará el contrato inmediatamente para ser adjudicado de nuevo.
+(Así reformado en sesión ordinaria N° 109, celebrada el 5 de junio del 2000)

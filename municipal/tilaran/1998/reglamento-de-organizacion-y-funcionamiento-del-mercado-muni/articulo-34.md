@@ -1,3 +1,4 @@
 CAPITULO VIII
 Disposiciones varias
-Artículo 34.—Las tarifas que se cobren en el mercado por concepto de alquileres, serán fijadas por el Consejo Municipal y cada año se aumentará el alquiler en un 15%.
+Artículo 34.—Las tarifas que se cobran en el mercado por concepto de alquiler, serán fijadas por el concejo municipal mediante la elaboración del estudio técnico presentado por el Alcalde.
+(Así reformado en sesión ordinaria N° 109, del 5 de junio del 2000)
