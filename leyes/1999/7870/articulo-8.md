@@ -1,0 +1,37 @@
+ARTÍCULO VIII
+Expropiación
+1.- Las inversiones de inversionistas de cualquiera de las Partes
+Contratantes no serán nacionalizadas, expropiadas o sujetas a medidas que
+tengan un efecto equivalente a la nacionalización o expropiación (en lo
+sucesivo denominadas "expropiación") en el territorio de la otra Parte
+Contratante, excepto por razones de interés público, bajo el debido
+proceso de la ley, de una manera no discriminatoria y contra indemnización
+pronta, adecuada y efectiva. Tal indemnización estará basada en el valor
+justo de mercado de la inversión expropiada inmediatamente antes de la
+expropiación o al momento en que la expropiación propuesta se hizo de
+conocimiento público, lo que ocurra primero. Esta indemnización será
+pagadera:
+a) en Canadá, a partir de la fecha de expropiación con intereses a la
+tasa de interés comercial normal;
+b) en Costa Rica, a partir de la fecha de desposesión de acuerdo con
+el Artículo 11 de la Ley de Expropiaciones No. 7495 de 3 de mayo de 1995
+(en adelante denominada la "Ley de Expropiaciones"), con intereses al tipo
+de interés promedio para los depósitos, imperante en el sistema bancario
+nacional,
+Sin demora y será efectivamente realizable y libremente transferible.
+El criterio de valoración para determinar el valor justo de mercado
+incluirá el valor de la empresa en pleno funcionamiento, el valor de los
+activos incluyendo el valor tributario declarado de la propiedad tangible,
+y otros criterios, según proceda, incluyendo, en el caso de Costa Rica, el
+Artículo 22 de la Ley de Expropiaciones.
+2.- El inversionista afectado tendrá derecho, bajo la legislación de
+la Parte Contratante que realiza la expropiación, a una pronta revisión,
+por una autoridad judicial u otra autoridad independiente de esa Parte, de
+su caso y de la valoración de su inversión de acuerdo con los principios
+estipulados en este Artículo.
+3.- Las disposiciones de este Artículo serán aplicables a las medidas
+tributarias a menos que las autoridades fiscales de las Partes
+Contratantes, en un plazo que no exceda los seis meses después de haber
+recibido notificación por parte de un inversionista que impugna una medida
+tributaria, determinen conjuntamente que la medida en cuestión no
+constituye una expropiación.
