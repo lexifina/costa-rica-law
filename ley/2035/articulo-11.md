@@ -1,1 +1,2 @@
 Artículo 11.- El Consejo estará exento de la obligación de pagar toda clase de impuestos, ya sean nacionales o municipales, ordinarios o extraordinarios, presentes o futuros. Esta exención no comprende las tasas municipales ni el impuesto de venta de licores.
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 3490 del 23 de enero de 1965, se interpretó este numeral en el sentido de que: ".la exención general contenida en el párrafo primero, comprende también las tasas de carácter nacional.")

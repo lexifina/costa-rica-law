@@ -4,12 +4,13 @@ b) Facilitar el establecimiento, arrendar y operar silos, secadoras, bodegas, c�
 c) Adquirir semillas, fertilizantes, insecticidas, fungicidas, herbicidas, medicinas y vacunas para uso veterinario y otros productos similares de utilidad para la agricultura y ganadería;
 d) Adquirir y elaborar alimentos concentrados para ganado y aves;
 e) Adquirir animales seleccionados para mejorar la ganadería nacional;
-f) Adquirir, arrendar y operar maquinaria, equipo y herramientas agrícolas e industriales, así como equipos para la pesca;
+f) Adquirir, arrendar y operar maquinaria, equipo y herramientas agrícolas e industriales para fines agrícolas, así como equipo de pesca. La importaciones que realice en ejercicio de esta facultad, para operaciones con planes específicos de desarrollo elaborados de acuerdo y en colaboración con la Oficina de Planificación y en el Banco Central y debidamente aprobados por éste, gozarán de franquicia aduanera siempre que dichos artículos no se produzcan en el país.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 3490 del 23 de enero de 1965)
 g) Los bienes y servicios a que se refieren los incisos c), d), e) y
 f) serán suministrados a los agricultores, industriales y pescadores a precios convenientes;
 h) Fomentar la mecanización agrícola siguiendo planes tendientes a obtener mayor eficiencia y rendimiento en la producción. Los planes antes dichos deben ser complementados con programas de conservación de sueldos, los cuales se elaborarán y ejecutarán conjuntamente con el Ministerio de Agricultura;
-i) Llevar a cabo trabajos de preparación de suelos que requieran maquinaria pesada, tales como arranque de troncos, hechura de canales y terrazas.
-Estos trabajos se ejecutarán a mitad de su costo, como un estímulo a la producción nacional y de conformidad con los planes a que se refiere el inciso anterior;
+i) Llevar a cabo trabajos de preparación de suelos que requieran maquinaria pesada, tales como arranque de troncos, bechura de canales y de terrazas. Estos trabajos los cobrará al costo de operación".
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 3490 del 23 de enero de 1965)
 j) Impulsar y fomentar la actividad privada hacia la industrialización agrícola, pecuaria y pesquera, en las zonas cuya posibilidad de producción así lo amerite;
 k) Estimular la formación y funcionamiento de cooperativas de mercadeo, producción y mecanización en actividades agrícolas y pecuarias, así como las de consumo, en las zonas que previamente determine el Consejo;
 l) Coordinar las actividades del Consejo con organismos o instituciones estatales que coadyuven al fomento de la producción nacional;
