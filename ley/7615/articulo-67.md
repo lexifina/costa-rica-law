@@ -1,0 +1,3 @@
+ARTICULO 67.- Instrumentos para declarar la nulidad de un tratado, darlo por terminado, retirarse de él o suspender su aplicación.
+1.- La notificación prevista en el párrafo 1 del artículo 65 habrá de hacerse por escrito.
+2.- Todo acto encaminado a declarar la nulidad de un tratado, darlo por terminado, retirarse de él o suspender su aplicación de conformidad con las disposiciones del tratado o de los párrafos 2 ó 3 del artículo 65 se hará constar en un instrumento que será comunicado a las demás partes. Si el instrumento no está firmado por el jefe del Estado, el jefe del gobierno o el ministro de relaciones exteriores, el representante del Estado que lo comunique podrá ser invitado a presentar sus plenos poderes.

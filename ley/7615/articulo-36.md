@@ -1,0 +1,3 @@
+ARTICULO 36.- Tratado en que se prevén derechos para terceros Estados.
+1.- Una disposición de un tratado dará origen a un derecho para un tercer Estado si con ella las partes en el tratado tienen la intención de conferir ese derecho al tercer Estado o a un grupo de Estados al cual pertenezca, o bien a todos los Estados, y si el tercer Estado asiente a ello. Su asentimiento se presumirá mientras no haya indicación en contrario, salvo que el tratado disponga otra cosa.
+2.- Un Estado que ejerza un derecho con arreglo al párrafo 1 deberá cumplir las condiciones que para su ejercicio estén prescritas en el tratado o se establezcan conforme a este.

@@ -1,0 +1,2 @@
+ARTICULO 43.- Obligaciones impuestas por el derecho internacional independientemente de un tratado.
+La nulidad, terminación o denuncia de un tratado, el retiro de una de las partes o la suspensión de la aplicación del tratado, cuando resulten de la aplicación de la presente Convención o de las disposiciones del tratado, no menoscabarán en nada el deber de un Estado de cumplir toda obligación enunciada en el tratado a la que esté sometido en virtud del derecho internacional independientemente de ese tratado.

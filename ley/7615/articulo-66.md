@@ -1,0 +1,4 @@
+ARTICULO 66.- Procedimientos de arreglo judicial, de arbitraje y de conciliación.
+Si, dentro de los doce meses siguientes a la fecha en que se haya formulado la objeción, no se ha llegado a ninguna solución conforme al párrafo 3 del artículo 65, se seguirán los procedimientos siguientes:
+a) Cualquiera de las partes en una controversia relativa a la aplicación o la interpretación del artículo 53 o el artículo 64 podrá, mediante solicitud escrita, someterla a la decisión de la Corte Internacional de Justicia a menos que las partes convengan de común acuerdo someter la controversia al arbitraje.
+b) Cualquiera de las partes en una controversia relativa a la aplicación o la interpretación de cualquiera de los restantes artículos de la Parte V de la presente Convención podrá iniciar el procedimiento indicado en el Anexo de la Convención presentando al Secretario General de las Naciones Unidas una solicitud a tal efecto.

@@ -1,0 +1,8 @@
+ARTICULO 30.- Aplicación de tratados sucesivos concernientes a la misma materia.
+1.- Sin perjuicio de lo dispuesto en el artículo 103 de la Carta de las Naciones Unidas, los derechos y las obligaciones de los Estados partes en tratados sucesivos concernientes a la misma materia se determinarán conforme a los párrafos siguientes.
+2.- Cuando un tratado especifique que está subordinado a un tratado anterior o posterior o que no debe ser considerado incompatible con ese otro tratado, prevalecerán las disposiciones de este último.
+3.- Cuando todas las partes en el tratado anterior sean también partes en el tratado posterior pero el tratado anterior no quede terminado ni su aplicación suspendida conforme el artículo 59, el tratado anterior se aplicará únicamente en la medida en que sus disposiciones sean compatibles con las del tratado posterior.
+4.- Cuando las partes en el tratado anterior no sean todas ellas partes en el tratado posterior:
+a) En las relaciones entre los Estados partes en ambos tratados, se aplicará la norma enunciada en el párrafo 3;
+b) En las relaciones entre un Estado que sea parte en ambos tratados y un Estado que sólo lo sea en uno de ellos, los derechos y obligaciones recíprocos se regirán por el tratado en el que los dos Estados sean partes.
+5.- El párrafo 4 se aplicará sin perjuicio de lo dispuesto en el artículo 41 y no prejuzgará ninguna cuestión de terminación o suspensión de la aplicación de un tratado conforme al artículo 60 ni ninguna cuestión de responsabilidad en que pueda incurrir un Estado por la celebración o aplicación de un tratado cuyas disposiciones sean incompatibles con las obligaciones contraídas con respecto a otro Estado en virtud de otro tratado.
