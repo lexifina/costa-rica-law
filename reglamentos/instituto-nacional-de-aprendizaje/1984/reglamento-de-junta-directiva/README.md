@@ -13,3 +13,4 @@ Reglamento de Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-21 | la propia norma |
+| 2 | 1998-05-25 | Reglamento 0 (1998-05-25) |
