@@ -16,3 +16,4 @@ Reglamento a la Ley de Seguro Integral de Cosechas
 | 1 | 1970-05-13 | la propia norma |
 | 2 | 1973-08-23 | Decreto Ejecutivo 3192 (1973-08-23) |
 | 3 | 1975-02-10 | Decreto Ejecutivo 4550 (1975-02-10) |
+| 4 | 1975-12-02 | Decreto Ejecutivo 5521 (1975-12-02) |
