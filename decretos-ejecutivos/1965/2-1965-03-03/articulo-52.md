@@ -1,0 +1,4 @@
+Artículo. 52.-Para ser admitido como alumno regular en cualquier año superior al primero, es necesario:
+1) Haber cursado con aprobación las asignaturas del plan de estudios correspondiente a los años anteriores en un colegio oficial o particular autorizado por el Consejo Superior de Educación.
+2) Haber cursado con aprobación en colegios extranjeros o del país, autorizados para seguir un plan de estudios distinto, asignaturas que el Consejo Superior de Educación reconozca como equivalentes, a petición del interesado, y aprobar los exámenes que dicho organismo prescriba como, requisitos complementarios; o
+3) Poseer certificación de haber aprobado los estudios primarios, ser mayor de 17 años y aprobar los exámenes sobre las materias académicas de los años anteriores al que solicita ingresar, ante tribunales especiales de tres profesores que integrará el Director de la institución.

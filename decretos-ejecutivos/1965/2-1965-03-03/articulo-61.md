@@ -1,0 +1,2 @@
+Articulo 61.-En todos los casos que contemplan los artículos precedentes, las calificaciones se ajustarán a una escala decimal numérica, cuya nota inferior será el "uno" y la superior el "diez".
+La calificación de los alumnos corresponde en cada caso al profesor de la respectiva asignatura o actividad, quien deberá someter no obstante, a la aprobación previa del Comité de Evaluación, las calificaciones de bimestre inferiores a "cuatro", ya sean de aplicación o de aprovechamiento.

@@ -1,0 +1,2 @@
+d) Otros Empleados
+Artículo 49.-La institución tendrá el número de amanuenses, ayudantes de laboratorios, porteros y otros empleados que demande su servicio. Serán activos colaboradores en lo relacionado con los servicios administrativos y docentes y sus obligaciones se detallarán en el Reglamento de cada institución. El servicio de conservación, cuyo propósito es el de mantener en buen estado los edificios terrenos adyacentes, pertenencias y enseres de la institución, está a cargo de los porteros y del trabajador misceláneo.

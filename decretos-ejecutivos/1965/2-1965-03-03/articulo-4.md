@@ -1,0 +1,1 @@
+Articulo 4°-La matricula de cada establecimiento será dividida en secciones, ninguna de las cuales contará con más de 35 alumnos ni menos de 15, salvo casos de absoluta necesidad, y mediante aprobación previa del Ministerio de Educación.

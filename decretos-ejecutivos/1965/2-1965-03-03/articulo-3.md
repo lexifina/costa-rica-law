@@ -1,0 +1,2 @@
+Articulo 3°-El curso lectivo se iniciará el primer lunes de marzo y terminará el último sábado de noviembre.
+El lapso intermedio entre estas dos fechas se tendrá como vacaciones, excepto en cuanto a labores necesarias para apertura y cierre del curso, y aseo y cuidado del edificio, que queda a cargo del personal administrativo. Cuando por causa imprevista el curso se interrumpiere, el Ministerio de Educación Pública puede reducir las vacaciones hasta en un mes. Los colegios también tendrán dos semanas de descanso en el mes de julio. (Art. 266 del Código de Educación) .

@@ -1,0 +1,2 @@
+b) Gobierno Estudiantil
+Artículo 35.-EI Gobierno Estudiantil representará a la Comunidad Estudiantil y estará integrado por un representante de los Primeros Años, otro de los Segundos, otro de los Terceros, otro de los Cuartos, otro de los Quintos, y en su caso, otro de los Sextos Años. Será asesorado por el Director del plantel, o el miembro del personal docente en quien delegue ,su representación.
