@@ -14,3 +14,4 @@ Reglamento General de la Proveeduría Municipal de Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-26 | la propia norma |
+| 2 | 2004-10-12 | Reglamento municipal 41 (2004-10-12) |
