@@ -1,2 +1,0 @@
-Artículo 22. --La Dirección General de Comercio (*), del Ministerio de Economía, Industria y Comercio podrá determinar de oficio, los bienes y servicios cuya publicidad comercial deberá mencionar específicamente, el precio de venta al consumidor, cualquiera que sea el medio de comunicación colectiva utilizado, Tal disposición será obligatoria a partir de su publicación en el Diario Oficial "La Gaceta"
-(*)(Modificada su denominación por el artículo 5° del decreto ejecutivo N° 19883 del 28 de agosto de 1990. Anteriormente indicaba “Dirección General de Comercio Interior”)

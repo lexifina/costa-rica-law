@@ -1,1 +1,0 @@
-Artículo 20. -Cuando los Inspectores de Precios conozcan directamente y de oficio cualquier infracción a la Ley, su Reglamento o demás disposiciones conexas, observarán lo mismos trámites establecidos en los artículos 16, 17 y 18.
