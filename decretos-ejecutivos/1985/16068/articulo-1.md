@@ -32,3 +32,5 @@ Provincia de Alajuela: San Carlos, Los Chiles, Guatuso, Upala, Distrito de Sarap
 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 18423 del 20 de julio de 1988).
 VII) Región Provincia de Heredia:
 (NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 21349 del 10 de junio de 1992, se modifica la actual regionalización incorporando una nueva región constituida por la provincia de Heredia, artículo 2° establece que el cantón de Sarapiquí de la provincia de Heredia forma parte del esquema de regionalización de esa provincia, artículo 3° crea el Concejo Provincial de Heredia, artículo 8° crea la Secretaría Ejecutiva del Concejo Provincial y artículo 10 crea el Comité Consultivo).
+VIII) Región Provincia de Cartago:
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 22604 del 30 de setiembre de 1993, se modifica la actual regionalización incorporando una nueva región constituida por la provincia de Cartago, artículo 2° crea el Consejo Provincial de Cartago, artículo 7° crea la Secretaría Ejecutiva del Consejo Provincial y artículo 9° crea el Comité Consultivo).
