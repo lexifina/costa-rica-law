@@ -1,0 +1,18 @@
+N° 22
+EL PRESIDENTE CONSTITUCIONAL DE LA REPUBLICA,
+Considerando que:
+1° ─ El artículo 5° de la ley N° 2426 de 3 de setiembre de 1959 establece que el Estado dará adecuada protección arancelaria a las industrias cuya actividad sea considerada conveniente para el país de acuerdo de acuerdo con los factores económicos y sociales que están contemplados en el artículo 17 de esa misma ley;
+2° ─La Empresa Productos Alimenticios S.A. ha presentado formal petición para que se le otorgue adecuada protección aduanera a la levadura seca, producto objeto de su fabricación;
+3° ─ El actual aforo contemplado en el Arancel de Aduanas no es lo suficientemente proteccionista como para provocar la disminución de las importaciones de levadura seca extranjera, por cuanto la ley N°2234 de 24 de setiembre de 1958 vino a proteger finalmente a la producción nacional de levadura fresca, pero no así a la levadura seca.
+4° ─ Mientras se tramita una modificación de gravámenes a la importación en el Arancel de Aduanas, conducente a obtener una debida y eficiente protección aduanera, el Poder Ejecutivo estima que es necesario consolidar por los medios legales que estén a su alcance, la estabilidad de una industria conveniente a la economía nacional, como es el caso presente, por cuanto se trata de una planta de manufactura que utiliza más de del 90% de materia prima nacional, que tiene una inversión de dos millones de colones de capital costarricense; que tiene una escala de producción suficiente para abastecer el consumo nacional tanto en precio como en calidad; que usa un equipo industrial moderno; que favorece a nuestra balanza de pagos por cuanto disminuyen las salidas de divisas; que mantiene un adecuado nivel de empleo y que garantiza un magnífico aporte al ingreso nacional;
+5° ─ El artículo 12 de la Ley de Protección y Desarrollo Industrial faculta al Poder Ejecutivo para aplicar un impuesto igual al triple del aforo que grava a aquellos artículos importados que sean similares a los de producción nacional, cuando determine que la protección es indispensable para lograr su establecimiento, su estabilidad y su progreso;
+6° ─ La Comisión Consultiva y de Coordinación para el Fomento Industrial y la Comisión Arancelaria se han pronunciado en forma favorable acerca de la aplicación del artículo 12 antes mencionado;
+7° ─ El artículo 14 del Reglamento a la ley N° 2426 del 3 de setiembre de 1959 ordena como condición especial para la aplicación del artículo 12 de esa ley, que la firma interesada asuma la obligación de presentar ante la Dirección General de Economía una certificación de los precios de venta al por mayor y al detalle que rigen en ese momento en el mercado nacional para el producto motivo de la gestión, y que luego no podrá aumentarlos sin la previa autorización del Ministerio de Economía y Hacienda; y
+8° ─ Finalmente, para garantizar suficientemente a los consumidores de levadura seca, además de lo indicado en el inciso anterior, el artículo 34 de la Ley de Protección y Desarrollo Industrial, dispone que si la explotación de una determinada rama industrial puede convertirse de hecho en una planta monopolista, al existir una sola en el mercado local, el Ministerio de Economía y Hacienda tendrá la facultad de controlar los costos de producción y de fijar los precios de venta;
+Por tanto,
+DECRETA:
+Artículo 1° ─ Además de pagar los gravámenes a la importación vigentes, el producto contemplado en la Partida del Arancel de Aduanas que se indica a continuación, pagará el siguiente impuesto:
+Gravamen
+Partida Nacional Descripción Esp. A.V. Partida Nauca
+167 a) Levaduras y Fermentos ₡ 7.80 24% 099-09-03-1
+deshidratados
