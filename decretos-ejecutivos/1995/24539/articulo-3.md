@@ -1,0 +1,1 @@
+Artículo 3°.- En esta área regirán las regulaciones y disposiciones establecidas para las zonas protectoras, en la Ley Forestal N° 7174 del 28 de junio de 1990, publicada en “La Gaceta” N° 133 del 16 de julio de 1990.

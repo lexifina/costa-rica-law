@@ -1,0 +1,1 @@
+Artículo 5°.- El ministerio apoyará ante instituciones nacionales e internacionales las gestiones de las organizaciones mencionadas en el artículo 2, dirigidas a la consecución de los fondos requeridos para el manejo de la Cuenca del Río Abangares, con el fin de adquirir los terrenos prioritarios que aseguren su protección y manejo.
