@@ -1,1 +1,2 @@
 Artículo 3°.-Los terrenos situados al sur y al este de la línea definida en el artículo 2° del presente decreto forman parte en adelante de la Reserva Indígena de Talamanca.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 16306 del 16 de mayo de 1985, se establece la delimitación de la Reserva Indígena Cabécar de Talamanca y artículo 2° que las áreas decretadas reservas indígenas mediante el presente artículo quedan incluidas en la demarcación de la Reserva Indígena Cabécar de Talamanca).

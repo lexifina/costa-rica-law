@@ -13,3 +13,4 @@ Excluye de Reserva Indígena de Talamanca terrenos ocupados por no indígenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-06 | la propia norma |
+| 2 | 1985-05-16 | Decreto Ejecutivo 16306 (1985-05-16) |
