@@ -1,0 +1,1 @@
+Artículo 9º—De su seno, la Comisión designará un Secretario, por votación de mayoría simple. Corresponderá al Secretario preparar las convocatorias, tramitar los acuerdos tomados por la Comisión y llevar el libro de actas.

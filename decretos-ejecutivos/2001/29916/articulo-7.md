@@ -1,0 +1,1 @@
+Articulo 7º—La Unidad de Recursos Humanos es la responsable de la administración de los concursos para el otorgamiento de becas y facilidades, de conformidad con las regulaciones del presente Reglamento.

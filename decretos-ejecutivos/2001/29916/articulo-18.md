@@ -1,0 +1,1 @@
+Artículo 18.—La Unidad de Recursos Humanos remitirá copia de todas las ofertas de becas o facilidades y demás documentos que correspondan, a los Directores de Área y Coordinadores de Unidad del Ministerio, quienes deberán darlo a conocer a sus colaboradores.

@@ -1,0 +1,1 @@
+Artículo 6º—La Unidad de Recursos Humanos podrá disponer de los recursos presupuestarios con que cuente el Ministerio de Economía, Industria y Comercio según la partida respectiva de cada programa presupuestario destinada a realizar actividades de capacitación.
