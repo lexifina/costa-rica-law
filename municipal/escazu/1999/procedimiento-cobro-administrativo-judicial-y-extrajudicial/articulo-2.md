@@ -1,0 +1,1 @@
+Artículo 2°—Ambito de Aplicación. Este Reglamento será de aplicación obligatoria tanto para la Administración Tributaria Municipal como para los abogados externos que sean contratados por la Municipalidad de Escazú, para gestionar el cobro extrajudicial y/o judicial de las obligaciones dinerarias que se le adeuden a esta.
