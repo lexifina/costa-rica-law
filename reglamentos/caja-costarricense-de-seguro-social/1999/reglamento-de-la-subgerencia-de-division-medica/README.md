@@ -15,3 +15,4 @@ Reglamento de la Subgerencia de División Médica
 | --- | --- | --- |
 | 1 | 1999-03-25 | la propia norma |
 | 2 | 2000-05-11 | Reglamento 7439 (2000-05-11) |
+| 3 | 2002-05-30 | Reglamento 7656 (2002-05-30) |
