@@ -1,0 +1,1 @@
+Art: 3°-En los lugares donde no hubiere compradores, con el objeto de revender, en suficiente número para que el público pueda abastecerse fácilmente se conservarán los Receptores como hoy existen, ó se encargará el expendio de dichos artículos fiscales, al empleado que designe la Secretaría de Hacienda.
