@@ -14,3 +14,4 @@ Constitución del Sector de Desarrollo Agropecuario y de Recursos Naturales Reno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-21 | la propia norma |
+| 2 | 1985-12-19 | Decreto Ejecutivo 16843 (1985-12-19) |
