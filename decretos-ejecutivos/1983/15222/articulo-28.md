@@ -1,0 +1,51 @@
+Artículo 28.- Licencia obligatoria para explotación industrial. La
+solicitud de licencia obligatoria para la explotación industrial de la
+invención patentada contendrá:
+a) El nombre, domicilio y dirección del solicitante.
+b) El número de la patente con respecto a la cual se solicita la
+licencia.
+c) Los fundamentos de derecho y de hecho que justifican la
+solicitud, así como los motivos y circunstancias que fueren
+pertinentes.
+ch) La prueba de que el solicitante tiene la capacidad para
+explotar industrialmente la invención patentada, entendiéndose
+que tal capacidad podrá resultar de un convenio o contrato
+suscrito por el solicitante de la licencia obligatoria con un
+tercero en virtud del cual éste transfiera a dicho solicitante
+la tecnología necesaria para efectuar tal explotación
+industrial.
+d) La prueba de que el solicitante de la licencia obligatoria ha
+pedido previamente al titular de la patente una licencia
+contractual y que no ha podido obtenerla en condiciones y plazo
+razonables.
+2. La prueba referida en el inciso ch) podrá ofrecerse en la
+solicitud y presentarse posteriormente, dentro de un plazo de tres meses
+contado desde la fecha de presentación de la solicitud. A petición de la
+parte interesada, dicho plazo podrá ser prorrogado prudencialmente por el
+Registro. La solicitud caerá en abandono y se ordenará su archivo si no
+se presentare la prueba referida dentro del plazo prescrito.
+3. La solicitud de licencia obligatoria será comunicada al titular
+de la patente y a cualquier licenciatario inscrito en el Registro,
+quienes podrán presentar sus observaciones dentro de un plazo de treinta
+días hábiles contado desde la fecha de la notificación. A solicitud de
+parte interesada, el plazo para presentar observaciones podrá ser
+prorrogado prudencialmente por el Registro de la Propiedad Industrial,
+cuando existan razones justificadas.
+4. A solicitud de alguna de las partes interesadas, o de oficio
+cuando lo estime conveniente para resolver mejor, el Registro podrá
+convocar a una audiencia de todas las partes interesadas en el
+procedimiento de concesión de la licencia obligatoria. En dicha audiencia
+se procurará llegar a un acuerdo entre las partes con respecto a todos o
+a algunos de los aspectos de la concesión de la licencia. La resolución
+de concesión de la licencia obligatoria incorporará aquellos puntos en
+los que se hubiere llegado a un acuerdo durante la audiencia y se
+ajustará a las regulaciones existentes sobre actos y contratos de
+transferencia de tecnología.
+5. La revocación y la modificación de la licencia obligatoria se
+sujetarán, en cuanto fuere aplicable, al procedimiento previsto para la
+concesión de la licencia obligatoria.
+6. El beneficiario de la licencia obligatoria podrá renunciar a ella
+mediante declaración escrita dirigida al Registro, el que inscribirá la
+renuncia y la notificará al titular de la patente y a las demás partes en
+el procedimiento de concesión de la licencia. La renuncia surtirá efectos
+a partir de la fecha de su recepción por el Registro.

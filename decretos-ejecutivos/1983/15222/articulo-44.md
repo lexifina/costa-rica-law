@@ -1,0 +1,7 @@
+Artículo 44.- Inscripción del dibujo o modelo industrial; duración
+del re gistr La inscripción del dibujo o modelo industrial en 1 registro
+contendrá los datos indicados en el artículo 2, párrafo 1º, el número y
+fecha de presentación de la solicitud, e incluirá una reproducción del
+dibujo o modelo registrado.
+2.- La duración del registro del dibujo o modelo industrial se
+contará desde la fecha de concesión del registro.

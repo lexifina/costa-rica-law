@@ -1,0 +1,10 @@
+Artículo 20.- Conversión de patente a modelo de utilidad. Cuando una
+solicitud de patente de invención fuere objetada por razón de que la
+invención no satisface el requisito de nivel inventivo, el solicitante
+podrá, dentro del plazo prescrito para contestar las objeciones del
+Registro, pedir que dicha solicitud se convierta en solicitud de registro
+de modelo de utilidad, cuando corresponda y que se tramite como tal.
+2. La conversión de la solicitud de patente de invención en
+solicitud de registro de modelo de utilidad no dará derecho a ningún
+reintegro de la tasa de presentación pagada por la solicitud de patente
+de invención.

@@ -1,0 +1,9 @@
+Artículo 11.- Terminología y signos usados en la solicitud. En todos
+los documentos contenidos en la solicitud de patentes, las unidades de
+peso y medida se expresarán según el sistema métrico, las temperaturas en
+grados centígrados y la densidad en unidades métricas.
+2. Para las indicaciones de calor, energía, luz, sonido y
+magnetismo, así como para las fórmulas matemáticas y las unidades
+eléctricas, se aplicarán las normas y prescripciones de la práctica
+internacional; para las fórmulas químicas se utilizarán los símbolos,
+pesos atómicos y fórmulas moleculares de uso general.

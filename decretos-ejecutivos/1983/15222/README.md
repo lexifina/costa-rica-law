@@ -1,0 +1,14 @@
+# Decreto Ejecutivo 15222
+
+Reglamento Ley Patentes Invención Dibujos y Modelos Industriales yModelos de Utilidad
+
+- Tipo: Decreto Ejecutivo
+- Número: 15222
+- Fecha: 1983-12-12
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=14745&param2=15817&param3=1 (ficha 14745)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1983-12-12 | la propia norma |

@@ -1,0 +1,8 @@
+Artículo 14.- Retiro de la solicitud. El retiro de la solicitud se
+efectuará mediante declaración escrita dirigida al Registro. Cuando los
+solicitantes de la patente fuesen dos o más personas, el retiro de la
+solicitud tendrá que hacerse en común.
+2. En caso de retiro de la solicitud, antes de su publicación, habrá
+derecho al reembolso del 50% de la tasa de presentación. El retiro
+efectuado después de la publicación no dará derecho al reembolso de las
+tasas que se hubieren pagado.
