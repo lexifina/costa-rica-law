@@ -1,0 +1,1 @@
+Artículo 13.- La Administración de la Reserva Nacional de Energía eléctrica de Arenal estará a cargo de la Dirección General Forestal y podrá contar con la colaboración de los organismos indicaos en el artículo 12 de este decreto.

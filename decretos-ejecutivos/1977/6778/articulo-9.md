@@ -1,0 +1,1 @@
+Artículo 9°.- Los trabajos de deslinde y vigilancia de la reserva estarán a cargo de la Dirección General Forestal o MAG, y del Instituto Costarricense de Electricidad que establecerán un convenio para efecto.

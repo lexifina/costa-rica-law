@@ -1,0 +1,2 @@
+Artículo 8°.- Con excepción de lo establecido en el artículo 7°, no se admitirá el trámite judicial o administrativo de solicitudes que pretendan la inscripción, titulación, adjudicación, adquisición o arrendamiento de terrenos localizados dentro de esta Reserva. Las gestiones de la naturaleza anotada que hubieren actualmente en trámite, será archivadas.
+El Registro Público denegará la inscripción de documentos contentivos de resoluciones, acto o contratos que se ubiquen dentro de la zona.

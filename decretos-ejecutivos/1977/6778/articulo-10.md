@@ -1,0 +1,1 @@
+Artículo 10.- El aprovechamiento de los recursos naturales en los terrenos nacionales y la extensión de las áreas de cultivo y de pastoreo en las fincas de propiedad particular, sólo será permitido bajo procedimientos técnicos aprobados por la Dirección General Forestal.
