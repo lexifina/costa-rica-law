@@ -1,0 +1,3 @@
+IV.
+La Compañía se obliga también á conducir á bordo de sus vapores, de uno á otro de los puertos en que tocan aquéllos, y por el cincuenta por ciento del precio de la tarifa ordinaria de pasajes de cubierta, artesanos, trabajadores, agrícolas ú otros que deseen emigrar para Costa Rica, con tal que éllos vengan bajo contrato ó compromiso con el Gobierno, y presenten como prueba de él, el contrato oficial, suscrito ó impreso, hecho con el Gobierno ó con sus agentes autorizados.
+La Compañía conviene asimismo en trasportar cualquier material para la construcción de caminos de hierro ó para cualquiera otra mejora pública en el declive del Pacífico de la República de Costa Rica, con una reducción de veinticinco por ciento en los precios establecidos por tarifa.

@@ -1,0 +1,2 @@
+VIII.
+El Gobierno de Costa Rica tiene el derecho de constituír á bordo de los vapores de la Compañía y por todo el tiempo que éstos permanezcan en el puerto de Puntarenas, un empleado fiscal ó cualquiera otra autoridad, en guarda de las disposiciones que dictare sobre embarque y desembarque de pasajeros, mercaderías y correspondencia; siendo obligación de la Compañía proveer al mantenimiento de este empleado durante su permanencia á bordo, guardándole las consideraciones inherentes al carácter que revista.
