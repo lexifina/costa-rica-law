@@ -14,3 +14,4 @@ Reglamento para la Concesión de Créditos en Moneda Extranjera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-11 | la propia norma |
+| 2 | 1996-03-11 | Reglamento 7024 (1996-02-26) |
