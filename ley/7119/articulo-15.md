@@ -1,15 +1,15 @@
 Artículo 15.-Por las actividades que se citan a continuación, los
-patentados pagarán el impuesto de patente conforme con el criterio que
-se indica para cada una de ellas.
+patentados pagarán el impuesto de patente conforme con el criterio que se
+indica para cada una de ellas.
 Cuando en un mismo establecimiento se realicen conjuntamente
 diferentes actividades de las señaladas en este artículo, el monto de la
-imposición se determinará de acuerdo con lo que se establece en el
-artículo 12 de esta ley.
+imposición se determinará de acuerdo con lo que se establece en el artículo
+12 de esta ley.
 a. Bancos y establecimientos financieros, excepto los bancos
 estatales (casas de banca, de cambio, financieras y similares e
 instituciones aseguradoras).
-Pagarán por cada trimestre sobre los ingresos por intereses brutos
-o comisiones, o por ambos, percibidos en el año anterior:
+Pagarán por cada trimestre sobre los ingresos por intereses brutos o
+comisiones, o por ambos, percibidos en el año anterior:
 ¢ 4,00 por ¢ 1.000,00
 Mínimo ¢ 1.000,00 trimestral.
 b. Comerciante de bienes inmuebles. Pagarán por cada trimestre sobre
