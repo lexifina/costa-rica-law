@@ -1,5 +1,6 @@
-Artículo 2º.- Las diligencias deben ser presentadas ante la Oficina
-de Jubilaciones y Pensiones del Ministerio de Trabajo y Previsión Social,
-quien las tramitará de conformidad con el artículo 3º de la Ley Nº 14 de
-2 de diciembre de 1935, reformada por Decreto-Ley Nº 490 del 19 de abril
-de 1949.
+Artículo 2º.- Las solicitudes para acogerse a este tipo de pensión
+deberán ser presentadas ante el Departamento Nacional de Pensiones del
+Ministerio de Trabajo y Seguridad Social y serán otorgadas por la Junta
+Nacional de Pensiones.
+(Así reformado por el artículo 3º de la Ley Nº 5661 de 11 de diciembre de
+1974).
