@@ -1,0 +1,1 @@
+Art. 6° -Los Jueces de 1a Instancia, bajo cuya denominacion se comprende en este Decreto los Auditores de Guerra y los Alcaldes y Jueces Militares no específicos, deben finalmente llevar otro libro, donde copiarán toda órden de citación, comparecencia, etc, á cuyo pie constará el recibo de la parte que la pida.

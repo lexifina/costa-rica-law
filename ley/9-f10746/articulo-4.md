@@ -1,0 +1,1 @@
+Art. 4°-Los Alealdes y Jueces Militares, con excepcion de los especificos, son tambien obligados a llevar los libros determinados en el artículo precedente uno para la materia civil y otro para la criminal.
