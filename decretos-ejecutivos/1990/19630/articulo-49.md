@@ -1,6 +1,0 @@
-Artículo 49.-EI Consejo debe comunicar al Ministro, inmediatamente, la resolución de salarios mínimos que haya acordado, para que este en el transcurso de un mes posterior a su recibo, si se tratare de una fijación general, o de diez días si se tratare de una revisión o de la inclusión de una nueva ocupación, le dé su aprobación o la devuelva al Consejo con las observaciones pertinentes.
-En este último caso, la objeción puede fundamentarse en razones de inconveniencia o por juzgar necesario hacérsele reformas.
-Las razones de inconveniencia o las reformas propuestas figurarán en el documento con el cual se devuelve al Consejo el proyecto de resolución sobre la fijación de salarios mínimos.
-Si, estudiado de nuevo el proyecto de resolución por el Consejo con las recomendaciones presentadas por el Ministro, fueren desechadas por cinco votos conformes, la resolución quedará confirmada y el Ministro ordenará la publicación del correspondiente decreto ejecutivo.
-En caso de existir propuestas, estas podrán ser acogidas parcial o totalmente.
-Si transcurriere el mes o los diez días, según lo establecido, sin que el Ministro hiciere objeciones a la resolución, esta quedará firme para los efectos de lo dispuesto en los artículos 18 y 19 del Decreto-Ley.

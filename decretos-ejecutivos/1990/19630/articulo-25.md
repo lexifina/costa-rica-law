@@ -1,2 +1,0 @@
-Artículo 25.-De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación de los dos tercios de la totalidad de los miembros del Consejo.

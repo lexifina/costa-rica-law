@@ -1,1 +1,0 @@
-Artículo 37.-Quedan obligadas todas las empresas particulares del país a suministrar los datos que les sean solicitados por la Oficina en relación con sus funciones, con las limitaciones que establece la legislación común.

@@ -1,1 +1,0 @@
-Artículo 23.-Cuando se presentare empate en una votación, esta será repetida inmediatamente. Si el resultado no variare, el asunto se dejará para resolverlo en la sesión inmediata siguiente. En caso de que en esta se mantenga el empate, el Presidente decidirá la votación mediante su voto de calidad.

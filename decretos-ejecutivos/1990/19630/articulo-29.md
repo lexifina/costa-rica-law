@@ -1,2 +1,0 @@
-Articulo 29.-La ausencia justificada no dará derecho al cobro de dietas, salvo cuando se están cumpliendo tareas o atendiendo actividades asignadas por el Consejo, según acuerdo previamente tomado, o bien cuando se presente el correspondiente certificado médico, si la ausencia es motivada en razones de salud.
-Queda a juicio del Presidente reconocer dietas a quienes se retiran antes de concluir la sesión o llegaren tarde a esta, tomando en cuenta las justificaciones aportadas.

@@ -1,1 +1,0 @@
-Artículo 46.-EI Consejo no conocerá ninguna solicitud de fijación o inclusión de nuevas ocupaciones de salarios mínimos, si las calidades de los petentes no han sido autenticadas por las autoridades de trabajo o políticas del lugar en que residen los solicitantes o cuando algún otro requisito legal no se haya cumplido .

@@ -1,1 +1,0 @@
-Artículo 34.-El Consejo y la Oficina constituyen una unidad administrativa y técnica, auxiliar de la política salarial del Estado. Dicha unidad contará con presupuesto y personal propios, debiendo figurar en el Presupuesto del Ministerio como un programa debidamente identificado, que será administrado siguiendo las normas trazadas por el Consejo.

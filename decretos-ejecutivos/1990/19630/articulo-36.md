@@ -1,1 +1,0 @@
-Artículo 36.-EI Consejo y la Oficina para mejor llenar su cometido, podrán requerir de las autoridades, empresas e instituciones públicas, la ayuda para los informes que necesiten y cualquier otra colaboración.

@@ -1,3 +1,0 @@
-Artículo 14.-El Consejo se reunirá en sesión ordinaria una vez a la semana en lugar, día y hora que él determine. En sesión extraordinaria se reunirá cuando sea convocado por el Presidente, ya sea por determinación propia o cuando así lo soliciten por escrito por lo menos tres de sus miembros. Los acuerdos se tornan por mayoría absoluta de los votos presentes, salvo los casos en que la ley o los reglamentos exijan expresamente mayor o 'menor número pe votos.
-Los votos se darán en forma nominal y secreta, cuando así esté establecido o cuando así lo acuerde expresamente el Consejo ..
-Si el día señalado para celebrar sesión ordinaria resultare feriado o de asueto la sesión se celebrará cualquier día de la misma semana, que previamente se hubiere acordado.

@@ -1,1 +1,0 @@
-Artículo 3°-EI Consejo tendrá su sede en el Ministerio de Trabajo y Seguridad Social. Sin embargo, para el mejor cumplimiento de sus funciones el Consejo podrá sesionar válidamente en cualquier lugar del territorio nacional, previo acuerdo aprobado por simple mayoría de sus miembros.

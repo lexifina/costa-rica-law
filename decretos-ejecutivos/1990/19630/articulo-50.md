@@ -1,1 +1,0 @@
-Artículo 50.-La fijación general de salarios regirá a partir del primero de enero del año que corresponda y se hará por decreto ejecutivo. Cualquier modificación o derogatoria que se haga entrará a regir diez días después de la promulgación del decreto correspondiente.
