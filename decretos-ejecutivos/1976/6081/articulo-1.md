@@ -1,4 +1,6 @@
+(Derogado)
 N° 6081-G
+(Este decreto ejecutivo fue derogado por el artículo 122 del decreto ejecutivo N° 7255 del 20 de julio de 1976)
 DANIEL ODUBER QUIROS
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
