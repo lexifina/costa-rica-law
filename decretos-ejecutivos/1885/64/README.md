@@ -13,3 +13,4 @@ Aprueba el contrato celebrado entre el Secretario de Fomento y don R. Schut para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1885-09-30 | la propia norma |
+| 2 | 1886-10-15 | Decreto Ejecutivo 19 (1886-10-15) |

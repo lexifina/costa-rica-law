@@ -24,6 +24,7 @@ VII.
 El ramal de ferro-carril tendrá, la misma anchura que el de carrillo á Limón. Los rieles serán de acero. Los durmientes de madera, hierro ó acero, á voluntad del contratista. En el lecho del camino se harán los bastiones y desagües y caños que fueren necesarios al buen servicio. El material fijo y rodante será de las mejores clases y modelos, y suficiente en todo tiempo para las necesidades de la empresa y del servicio.
 VIII.
 Si dentro de un año, que se empezará á contar desde el día en que el Poder legislativo apruebe el presente contrato, el contratista no hubiese concluído los estudios y trabajos preparatorios, ni dado aviso á la Secretaría de Fomento de haber reunido el capital que la obra demanda, caducará por el mismo hecho el presente contrato. En caso contrario, gozará de dos años más para concluir la canalización y ferro-carril de que se trata y para tener ambas obras completamente listas para el servicio público.
+(Mediante el artículo único del decreto ejecutivo N° 19 de 15 de octubre de 1886, se prorroga hasta el 1° de abril de 1887, el término señalado en el numeral anterior, para concluir los estudios y trabajos preparatorios á la canalización de las lagunas del Atlántico y obras anexas así como para reunir el capital que la empresa requiere)
 IX.
 Terminada la canalización de las lagunas, el contratista está obligado á mantener en buen estado de servicio dos vapores, al menos con capacidad para conducir cantidad no menor de cincuenta mil (50,000) Kilogramos de carga.
 X.
