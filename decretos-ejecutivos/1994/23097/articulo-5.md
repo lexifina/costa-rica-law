@@ -1,1 +1,0 @@
-Artículo 5°-Se exceptúan de lo anterior aquellos casos muy especiales que, por mediar interés fiscal podrán ser atendidos por una Administración Regional Tributaria distinta a la del domicilio fiscal del contribuyente, siempre y cuando exista autorización del Administrador Regional Tributario competente, la cual debe hacerse en forma previa y mediante resolución razonada.

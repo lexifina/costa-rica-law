@@ -1,1 +1,0 @@
-Artículo 4°-El elemento que define la ubicación del contribuyente, en la respectiva Administración Regional Tributaria, será el distrito en donde se encuentre su domicilio fiscal. Lo anterior no se aplica a los grandes contribuyentes.
