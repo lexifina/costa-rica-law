@@ -1,0 +1,2 @@
+Artículo 2°—El monto del endeudamiento correspondiente al inciso a) del artículo 1° no podrá exceder de setenta y cuatro millones de francos franceses, para la compra de equipo telefónico o renegociación financiera de las adquisiciones ya efectuadas.
+El financiamiento contemplado en el inciso b) podrá ser utilizado únicamente para fines de balanza de pagos, como reserva monetaria internacional, sin otorgar créditos en colones para la importación de mercancías.
