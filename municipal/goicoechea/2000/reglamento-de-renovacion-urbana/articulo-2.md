@@ -1,0 +1,1 @@
+Articulo 2°—Objetivos. Este Reglamento tiene por objeto establecer el mecanismo y los plazos con el cual se harán las renovaciones urbanas propuestas en el Plan Regulador y que implican una restricción al uso de los terrenos afectados.
