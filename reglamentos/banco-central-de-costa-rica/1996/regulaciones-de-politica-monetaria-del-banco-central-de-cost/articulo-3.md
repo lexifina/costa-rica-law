@@ -82,7 +82,10 @@ CONTROL DE LA SITUACIÓN DE ENCAJE
 A. La situación de encaje en moneda nacional y en moneda extranjera, de los intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras, se controlará quincenalmente con base en los promedios quincenales de saldos diarios de encajes mínimos legales y de sus depósitos y obligaciones. Dichos entes están obligados a mantener en el Banco Central de Costa Rica, en forma de depósitos en cuenta corriente, un monto no menor al encaje mínimo legal promedio resultante de la respectiva quincena.
 B. El promedio quincenal a que se refiere el numeral anterior, se calculará con base en el promedio de saldos diarios de días hábiles de una quincena natura!.
 C. Los intermediarios financieros sujetos al control de la Superintendencia General de Entidades Financieras deberán enviar a ésta, dentro de un plazo máximo de cinco días hábiles siguientes al fin de cada quincena, un estado que muestre su situación de encaje, de acuerdo con los procedimientos que determine la Junta Directiva del Banco Central de Costa Rica.
-D. Los encajes sobre depósitos y obligaciones en moneda nacional y moneda extranjera deberán computarse por separado y los respectivos fondos mantenerse en la moneda correspondiente. Los intermediarios financieros deberán mantener depositado en el Banco Central de Costa Rica la totalidad (100%) de sus respectivos encajes mínimos legales.
+D. Los encajes sobre depósitos y obligaciones en moneda nacional y moneda extranjera deberán computarse por separado y los respectivos fondos mantenerse en la moneda correspondiente.
+Únicamente durante la primera quincena del mes de julio de 1996, los intermediarios financieros podrán mantener en su poder hasta un 20% de su encaje mínimo legal en forma de numerario. El remanente del encaje mínimo legal deberá permanecer depositado en el Banco Central de Costa Rica.
+A partir del 16 de julio de 1996, los intermediarios financieros deberán mantener depositado en el Banco Central de Costa Rica la totalidad (100%) de sus respectivos encajes mínimos legales
+(Así reformado el literal D anterior en sesión N° 4878 del 10 de julio de 1996)
 CAPITULO III
 INCUMPLIMIENTO DE LOS REQUISITOS DE ENCAJE
 MÍNIMO LEGAL

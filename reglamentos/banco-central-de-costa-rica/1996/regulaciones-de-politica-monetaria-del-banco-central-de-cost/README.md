@@ -15,3 +15,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
 | 2 | 1996-06-28 | Reglamento 4877 (1996-06-28) |
+| 3 | 1996-07-10 | Reglamento 4878 (1996-07-10) |
