@@ -1,0 +1,13 @@
+AVISOS
+REFINADORA COSTARRICENSE DE PETRÓLEO
+La Junta Directiva, en el artículo 3° del acta de la sesión ordinaria No 3132-268, celebrada el 15 de enero de 1997, acuerda modificar el Reglamento de Contrataciones de RECOPE en sus artículos 1°, numerales 1.5 y 1.6; y 41, a fin de que se lean de la siguiente forma:
+Artículo 1°—Definiciones
+1.5. Anticipo de pago: Es el monto correspondiente a un porcentaje del monto total adjudicado que, debidamente autorizado en el cartel o el documento que haga las veces de éste, se concede extraordinariamente al contratista al inicio de la ejecución contractual para atender un propósito específico, asociado con la cobertura de costos directos, cuyo efectivo cumplimiento será verificado por la inspección asignada por RECOPE, siempre que de esta forma se satisfaga mejor el interés público.
+1.6. Adelanto de pago: Se elimina.
+Artículo 41.—Forma de pago
+Los pagos a proveedores y a los arrendatarios se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción de RECOPE, resultando absolutamente nula cualquier estipulación en contrario.
+En contratos continuados de servicios, los pagos se harán mensualmente contra el avance en la prestación de los mismos, recibidos a entera conformidad de RECOPE. En contratos de arrendamiento se pagará por mes vencido.
+En las contrataciones de obra, el cartel o documento que haga las veces de éste, podrá establecer que se concederán en forma excepcional anticipos al inicio de la ejecución de la obra con el objeto de cubrir parte de los costos directos de los renglones de trabajo. Dicho anticipo en ningún caso podrá ser superior al 30% del monto contratado. Todo anticipo de pago, debe ser respaldado en su totalidad por el contratista con una garantía adicional e incondicional que deberá cumplir con las formalidades y requisitos establecidos en el Reglamento General de la Contratación Administrativa. De aprobarse un anticipo quedará obligado el inspector del contrato para deducir de cada uno de los pagos el porcentaje correspondiente al anticipo realizado.
+En los carteles de contratos de obra se exigirá a los oferentes la presentación de un presupuesto de los costos directos.
+El funcionario que ejecute un pago en contravención de estas disposiciones incurrirá en responsabilidad laboral y patrimonial, al igual que el funcionario que careciendo de motivo retenga un pago a un proveedor determinado. Para tal efecto la unidad encargada de realizar el pago notificará a la Gerencia del área respectiva, la cual tomara las acciones disciplinarias pertinentes.
+San José, 29 de enero de 1997.
