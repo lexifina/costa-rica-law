@@ -1,1 +1,1 @@
-Artículo 13 .-Los detalles para caminos públicos y vecinales de deben pagarse dentro de los treinta días naturales siguientes a su notificación o de la resolución firme que en su caso se dictare sobre los reparos que el interesado opusiere. Transcurrido ese plazo, las contribuciones serán exigibles y el deudor será considerado como moroso, pudiendo procederse al cobro judicial.
+Artículo 13 .-(Derogado por el artículo 1° del la ley N° 1561 del 6 de mayo de 1953)
