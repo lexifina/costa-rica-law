@@ -15,3 +15,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Consejo N
 | --- | --- | --- |
 | 1 | 1995-03-07 | la propia norma |
 | 2 | 1995-06-21 | Reglamento 0 (1995-06-21) |
+| 3 | 1997-03-12 | Reglamento 1918 (1997-03-12) |
