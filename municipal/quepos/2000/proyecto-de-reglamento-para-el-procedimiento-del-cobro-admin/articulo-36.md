@@ -1,1 +1,0 @@
-Articulo 36.—EI día hábil siguiente al remate el abogado deberá informar por escrito al Departamento de Cobros de la Municipalidad el resultado del remate, si pasado un lapso de ocho días no cumpliese con lo anterior, el Departamento de Cobros le enviará una nota solicitándole informe, con copia al Concejo Municipal para que proceda de conformidad.

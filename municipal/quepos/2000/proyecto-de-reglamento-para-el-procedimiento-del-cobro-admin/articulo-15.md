@@ -1,1 +1,0 @@
-Articulo 15.—El abogado deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco incluso en caso de amistad, lo cual comunicará por escrito a la Oficina correspondiente, dentro de los tres días hábiles siguientes al recibo de la documentación de cobro.

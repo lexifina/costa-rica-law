@@ -1,1 +1,0 @@
-Articulo 23.—El profesional en derecho en aquellos casos en que se demuestre negligencia o impericia en la tramitación Judicial de las cuentas a cobrar, será el único responsable ante la Municipalidad.

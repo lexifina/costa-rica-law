@@ -1,1 +1,0 @@
-Articulo 21.—Para efectos de determinar si los Juicios se encuentran al día, la Oficina encargada del Control de Cobro revisará periódicamente, con personal calificado, el número de expedientes y registros que considere necesarios de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la Municipalidad.
