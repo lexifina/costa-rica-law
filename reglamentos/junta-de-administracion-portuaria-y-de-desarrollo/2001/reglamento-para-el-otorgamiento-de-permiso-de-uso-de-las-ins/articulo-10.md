@@ -1,0 +1,1 @@
+Artículo 10.—Del peaje para servicios de transporte: peaje es el pago fijado por JAPDEVA, que deberán cancelar todos los vehículos de transporte que ingresen al área portuaria, dicho peaje podrá ser modificado, previo seguimiento del debido proceso.

@@ -1,0 +1,2 @@
+Artículo 17.—Del proceso de cancelación del permiso: la cancelación del permiso por alguna de las causas aquí indicadas se tramitará mediante procedimiento sumario seguido por la Sección de Turismo de JAPDEVA; que remitirá al Consejo de Administración, para su revocatoria.
+Contra la recomendación que dicte la Sección de Turismo sólo cabrá el recurso de apelación ante el Consejo de Administración, debidamente justificada por escrito, en un plazo no mayor de tres días, contados a partir del día siguiente de la notificación.

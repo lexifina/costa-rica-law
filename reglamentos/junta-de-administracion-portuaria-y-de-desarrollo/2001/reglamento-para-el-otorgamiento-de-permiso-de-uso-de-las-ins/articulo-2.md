@@ -1,0 +1,8 @@
+Artículo 2°—Clasificación: para efectos de este reglamento, las actividades a regular dentro de las instalaciones portuarias son:
+a) Venta de artesanía: deberá entenderse como la venta de artesanía la manufactura artesanal y fabricación nacional de souvenirs, con mayor énfasis en motivos caribeños.
+No se permitirá la venta de artículos terminados que sean de fabricación industrial; en caso de duda, el permisionario deberá demostrar que los bienes terminados son parte de un trabajo
+artesanal propio.
+No se permitirá ninguna venta de comidas o bebidas por parte de los artesanos, ni se permitirá la venta de artesanía por parte de empleados de JAPDEVA.
+b) Venta de servicios turísticos y de transportes: para la venta de servicios turísticos (buses y busetas) y transporte público (taxis) el vehículo deberá estar en perfecto estado de funcionamiento y conservación y se le dará prioridad al servicio de transporte autorizado para la provincia de Limón, debiendo cumplir con las regulaciones establecidas al efecto por el Ministerio de Obras Públicas y Transportes (MOPT) y el Instituto Costarricense de Turismo (ICT).
+c) Buses para Servicio Turístico: estos deben contar con lo siguiente: aire acondicionado en buen estado, guías bilingües, seguros al día con cobertura para el vehículo y pasajeros, capacidad mínima de 15 personas y máxima de cincuenta pasajeros, los permisionarios deberán contar con experiencia comprobada en el manejo de turistas.
+d) Transporte (Taxis): deberán ser modelos recientes, conforme a la Ley de Tránsito y contar con todos los seguros al día, puertas rotuladas con el triángulo amarillo, y todo el vehículo debe estar en buenas condiciones.

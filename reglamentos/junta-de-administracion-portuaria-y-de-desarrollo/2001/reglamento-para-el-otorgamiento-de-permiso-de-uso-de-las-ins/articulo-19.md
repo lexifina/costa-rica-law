@@ -1,0 +1,1 @@
+Artículo 19.—El Consejo de Administración a solicitud de la Sección de Turismo de JAPDEVA, de la Comisión de Crucero y / o la Gerencia Portuaria, podrá, por motivos de organización de la actividad portuaria, revocar unilateralmente los permisos otorgados al amparo de este reglamento, sin responsabilidad para la Administración.
