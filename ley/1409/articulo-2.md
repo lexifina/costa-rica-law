@@ -1,0 +1,1 @@
+Artículo 2°.- La venta se hará en pública subasta y con la base de setenta mil un colones, veinticinco céntimos (¢70, 001.25), para la finca N°93.076; y de diez mil novecientos cuarenta colones, veinte céntimos (¢10,940.20), para la N°96.212
