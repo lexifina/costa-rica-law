@@ -1,0 +1,1 @@
+Transitorio.—En el caso de establecimientos comerciales de esta naturaleza que ya estén ejerciendo su actividad, se concede un plazo de treinta días naturales para ajustar el local a la normativa anterior.
