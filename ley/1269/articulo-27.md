@@ -1,9 +1,10 @@
-TITULO III
-CAPITULO I
-Fondos del Colegio
-Artículo 27.- Los fondos del Colegio los constituyen:
-a) Las subvenciones que le conceda el Estado;
-b) Las contribuciones que establezca el reglamento correspondiente, a
-cargo de los colegiados;
-c) Las multas que se impongan a sus colegiados;
-d) Las donaciones a favor del Colegio.
+TITULO II
+CAPITULO UNICO
+Correcciones Disciplinarias
+Artículo 27.- Las correcciones disciplinarias aplicables por la Junta
+Directiva a los miembros del Colegio, son las siguientes:
+a) Amonestación privada;
+b) Amonestación pública;
+c) Multa hasta de trescientos colones; y
+d) Suspensión temporal o definitiva de todos los derechos inherentes a
+los contabilistas inscritos en esta Institución.

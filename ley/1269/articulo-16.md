@@ -1,8 +1,14 @@
-Artículo 16.- Son atribuciones del Secretario:
-a) Redactar las actas de las sesiones, suscribiéndolas con el
-Presidente;
-b) Llevar la correspondencia del Colegio;
-c) Extender las certificaciones de rigor;
-d) Llevar el archivo y una nómina de los miembros del Colegio;
-e) Redactar las convocatorias que el Presidente de la Junta Directiva
-disponga.
+CAPITULO VI
+El Presidente y demás Miembros de la Junta Directiva
+Artículo 16.- Son atribuciones del Presidente:
+a) Representar judicial y extrajudicialmente al Colegio;
+b) Ejecutar los acuerdos de la Junta Directiva y de la Asamblea General;
+c) Presidir las reuniones de la Junta Directiva de las Asambleas
+Ordinarias y Extraordinarias;
+d) Suscribir las actas, en asocio de los Secretarios o Prosecretarios;
+e) Autorizar, en asocio del Tesorero, los pagos que tenga que hacer el
+Colegio;
+f) Disponer bajo su responsabilidad los gastos urgentes que no pasen de
+cincuenta colones, dando cuenta a la Junta Directiva en la próxima sesión;
+y
+g) Convocar a sesiones extraordinarias a la Junta Directiva.
