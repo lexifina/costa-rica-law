@@ -1,6 +1,11 @@
 TITULO OCTAVO
-Transgresiones y Penalidad
+SANCIONES
+(Así modificada la denominación de este Título por el artículo 2º de la ley N° 7653 de 10 de diciembre de 1996)
 CAPITULO UNICO
-Pena de Prisión para los Magistrados del Tribunal Supremo de Elecciones y Miembros de las Juntas Provinciales y Cantonales
-Artículo 149.- Serán considerados reos de delito contra el régimen electoral y sancionados con la pena de prisión establecida en el artículo 354 del Código Penal:
-Los Magistrados del Tribunal Supremo de Elecciones y los miembros de las Juntas Provinciales y Cantonales que, al integrar los organismos electorales que les corresponden, violen por acción u omisión, las disposiciones contenidas en los artículos 43, 46 y 49.
+Artículo 149.- Sanción con multa
+Serán sancionados, con multa de uno a cinco salarios base mínimo menor mensual señalado en la Ley de Presupuesto Ordinario de la República vigente en el momento de la infracción:
+a) Quien incurra en los supuestos de los artículos 15 y 105;
+b) El miembro de la Junta Electoral que contravenga lo estipulado en el artículo 17;
+c) Quien contravenga lo preceptuado en el artículo 107;
+d) El miembro de una Junta Receptora que, en contravención a lo ordenado en los artículos 120 y 121, no firmare las papeletas electorales o no consignare en el Padrón-Registro los datos exigidos.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

@@ -1,3 +1,4 @@
-Forma en que Deben Presentarse los Escritos o Documentos
-Artículo 161.- Todo escrito o documento que tenga fines electorales, se hará manuscrito en tinta o a máquina, en papel común, y libre de todo impuesto o derecho.
-Cuando se trate de gestiones de particulares, deben ir firmadas personalmente o a ruego y autenticadas por un abogado o por el Jefe Político del cantón domiciliar del petente.
+Artículo 161.- Presentación de documentos
+Los documentos que se presenten con fines electorales, al Tribunal Supremo de Elecciones o al Registro Civil, deberán estar escritos en papel común y exentos de impuestos, tasas o derechos.
+Las firmas de los responsables de esos escritos deberán ser autenticadas por un abogado o por el Delegado Cantonal del cantón domiciliar del gestionante.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

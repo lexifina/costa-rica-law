@@ -1,3 +1,3 @@
-Entrega de la Documentación a la Junta Provincial
-Artículo 123.- Durante el día siguiente al de la respectiva elección, las Juntas Cantonales se apersonarán ante la Junta Provincial correspondiente y le harán entrega, con la formalidad del inciso p) del artículo 121, de las valijas nacionales y municipales que les hubieren sido entregadas por las Juntas Receptoras.
-(NOTA de Sinalevi: Mediante el artículo 6 de la ley N° 3556 del 25 de octubre de 1965, se indica literalmente que, para las elecciones presidenciales de 1966, que no obstante lo dispuesto en el presente artículo, “en relación con sacos o valijas electorales, habrá de entenderse que se trata de un solo saco y valija electoral correspondiente a cada Junta Receptora”)
+Artículo 123.- Entrega de la documentación electoral
+De conformidad con el inciso n) del artículo 121, a la mayor brevedad posible, las Juntas Cantonales entregarán al Tribunal Supremo de Elecciones o a los delegados que designe losdocumentos electorales recibidos de las Juntas Receptoras.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996

@@ -1,6 +1,6 @@
-Gastos que pueden justificar los partidos políticos
-Artículo 177.-Por gastos que puedan justificar los partidos políticos para obtener la contribución del Estado, se entenderán solamente los destinados a llevar a cabo las actividades de organización, dirección, censo y propaganda.
-Respecto a la propaganda, se reconocerán únicamente aquellos gastos en que incurra el partido a partir de los quince días siguientes a la fecha de convocatoria a elecciones. * (En el reglamento que ha de dictar la Contraloría General de la República , de conformidad con el artículo anterior, se indicarán cuáles son las actividades que se han de comprender en los conceptos: organización, dirección, censo y propaganda.)
+Artículo 177.-Gastos justificables
+Los gastos que pueden justificar los partidos políticos para obtener la contribución estatal serán únicamente los destinados a sus actividades de organización, dirección, censo y propaganda. No podrán considerarse justificables los gastos por embanderamiento. Tampoco, se reconocerán los desembolsos que genere la organización de un número superior a veinticinco (25) plazas públicas por partido, durante el período en que procedan, ni los ocasionados por el transporte de electores.
+Solo se reconocerán los gastos por propaganda en que incurran los partidos, de conformidad con este Código. El reglamento que habrá de dictar el Tribunal Supremo de Elecciones indicará las actividades que deberán comprenderse en los conceptos de organización, dirección, censo y propaganda.
+Transitorio.- Para las elecciones de 1998, no se aplicará la disposición del artículo 177 de este Código, según la cual no se justificarán a los partidos políticos los gastos por transporte de electores.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
-(Así reformado por el artículo único de la ley N° 7094 del 27 de mayo de 1988)
-* (Anulado lo destacado entre paréntesis mediante resolución de la Sala Constitucional N° 980 del 24 de mayo del 1991,"en cuanto otorga a la Contraloría General de la República potestades reglamentarias que jurídicamente forman parte del poder de dirección y, por ende, corresponden en forma exclusiva al Tribunal supremo de Elecciones.")
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

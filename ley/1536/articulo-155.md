@@ -1,2 +1,2 @@
 Infracciones que no tengan señalada otra Pena Expresamente
-Artículo 155.- Será sancionada con arresto de uno a treinta días, cualquiera otra transgresión de las disposiciones de este Código que no tenga señalada expresamente pena mayor.
+Artículo 155.-(Derogado por el artículo 4° de la ley N° 7653 del 10 de diciembre de 1996)

@@ -1,2 +1,2 @@
 Instalación de las Juntas Provinciales
-Artículo 44.- Dentro de los tres días posteriores a la publicación del acuerdo indicado en el artículo 43, se apersonarán los miembros de cada Junta Provincial ante el Gobernador de la respectiva provincia, a la hora previamente señalada por éste, a prestar juramento, designar de su seno al Presidente y Secretario y fijar horas y local de trabajo, en la forma indicada en el artículo 52.
+Artículo 44.-(Derogado por el artículo 4° de la ley N° 7653 del 10 de diciembre de 1996)

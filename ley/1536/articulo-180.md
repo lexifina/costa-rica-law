@@ -1,4 +1,4 @@
-Artículo 180.- Los bonos se denominarán "Bonos de Deuda Política" y llevarán la indicación del año de las elecciones a que corresponden y el tipo de interés que devengarán. Dicho tipo de interés deberá ser igual al máximo que corresponda a las emisiones de bonos hechas por el Estado con anterioridad a ésta. Los bonos serán inembargables, tendrán la garantía plena del Estado y estarán exentos, así como sus intereses, de todo impuesto presente y futuro. Tendrán la fecha de que corresponda a la emisión.
+Artículo 180.- Bonos
+Los bonos se denominarán "Bonos de contribución del Estado a los partidos políticos", indicarán el año de las elecciones a que corresponden, el tipo de interés que devengarán y la fecha de su emisión. Dichos bonos tendrán las mismas condiciones de rendimiento financiero que los títulos del Ministerio de Hacienda tasa básica con vencimiento a dos años. Serán inembargables, contarán con la garantía plena del Estado y estarán exentos, así como sus intereses, de impuestos.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
-(Así reformado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
-(La Sala Constitucional mediante resolución N° 980 del 24 de mayo del 1991, anuló este artículo "en cuanto prevé que los llamados bonos de Deuda Política, que conforme a ellos se emitan para el financiamiento previo de los gastos de los partidos, devengarán intereses.")
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

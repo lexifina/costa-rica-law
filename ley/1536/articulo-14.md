@@ -1,9 +1,6 @@
-Impedimento para ser Miembro de los Organismos Electorales
-Artículo 14.- No podrán ser Miembros de los organismos electorales:
-a) Los miembros de los Supremos Poderes, el Secretario del Presidente de la República, los Oficiales Mayores de los Supremos Poderes, los Jueces, Alcaldes, y Agentes Judiciales;
-b) Los que hubieren sido condenados por delitos electorales, o por delitos de robo, hurto o estafa;
-c) Los Gobernadores, Jefes Políticos, Agentes Principales de Policía y los Secretarios de éstos;
-d) Los miembros y empleados de la Guardia Civil, Resguardo Fiscal y otros cuerpos militares;
-e) En un mismo organismo, las ascendientes, descendientes, hermanos consanguíneos o afines;
-f) En el Tribunal Supremo de Elecciones, los que fueren ascendientes, descendientes o hermanos consanguíneos o afines de los candidatos cuya declaratoria de elección debe hacer dicho Tribunal. Sin embargo, si estando ya integrado el Tribunal surgiere con posterioridad alguna candidatura que produjere la incompatibilidad apuntada, el Miembro en funciones afectado por ella, deberá excusarse, con derecho a su sueldo, desde ese mismo momento de toda intervención en ese proceso electoral. El impedimento cesará a partir de la declaratoria de elección;
-g) En el Tribunal Supremo de Elecciones, los que fueron empleados o tuvieren contratos o negocios con el Poder Ejecutivo.
+Artículo 14.- Impedimentos para integrar los organismos electorales
+No podrán ser miembros de los organismos electorales:
+a) Los funcionarios y empleados a que se refiere el párrafo segundo del artículo 88, salvo los Magistrados y funcionarios del Tribunal Supremo de Elecciones y el Registro Civil;
+b) En un mismo organismo, hermanos, ascendientes o descendientes hasta tercer grado de consanguinidad o afinidad;
+c) En el Tribunal Supremo de Elecciones, los hermanos, ascendientes o descendientes hasta tercer grado de consanguinidad o afinidad, de los candidatos cuya declaratoria de elección debe efectuar dicho Tribunal. No obstante, si estando ya integrado el Tribunal surgiere alguna candidatura que produjere la incompatibilidad apuntada, desde ese mismo momento el miembro en funciones afectado deberá excusarse de intervenir en el proceso electoral, sin perjuicio del derecho a su sueldo. Tratándose de los Magistrados titulares del Tribunal, el impedimento cesará a partir de la declaratoria de elección.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
