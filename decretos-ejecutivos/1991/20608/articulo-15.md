@@ -1,0 +1,1 @@
+ARTICULO 15.-En los casos en que el Departamento compruebe faltas legales o estatutarias por parte de alguna Organización Solidarista, le prevendrá por escrito a fin de que se ponga a derecho. A tal efecto le otorgará un plazo mínimo de treinta días. En el caso de que persista la falta se rendirá informe al Ministro para que tome las medidas pertinentes de conformidad con la Ley.

@@ -1,0 +1,1 @@
+ARTICULO 19.-Aprobado el informe final de la liquidación por la autoridad judicial respectiva, se enviará copia al Registro de Asociaciones, con el propósito de que se agregue al respectivo expediente.

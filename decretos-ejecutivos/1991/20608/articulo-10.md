@@ -1,0 +1,1 @@
+ARTICULO 10.-Cuando se trate de la inscripción de los miembros deberá acompañarse de una declaración jurada en el sentido de que no están afectados por la prohibición que señala el artículo 14 de la Ley.

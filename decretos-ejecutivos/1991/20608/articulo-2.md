@@ -1,0 +1,3 @@
+CAPITULO II
+De la constitución de la Asociación Solidarista
+ARTICULO 2°.-En el acto constitutivo de una Asociación Solidarista deberá presentarse un compromiso incondicional, escrito y de plazo indefinido, del patrono en el sentido de aportar los recursos que se convengan para el funcionamiento y organización dentro de los términos que señala el Estatuto de aquella. Este compromiso será exigido para el registro de la Asociación. El compromiso previsto en este artículo, deberá presentarse también en los actos de reforma a los estatutos, cuando estos se refieran al patrimonio y a los recursos económicos de la Asociación, a que alude el artículo 18, inciso b) de la Ley.

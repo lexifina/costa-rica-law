@@ -1,0 +1,1 @@
+ARTICULO 20.-Sin perjuicio de que otros interesados puedan accionar, el Ministerio gestionará ante la autoridad que corresponda, la disolución de las organizaciones solidaristas, que se encuentren en los supuestos de los incisos b), c) d) y e) del artículo 56 de la Ley.

@@ -1,0 +1,1 @@
+ARTICULO 18.-En los supuestos del inciso a) del artículo 56 de la Ley, el Registro comunicará a la autoridad judicial que corresponda la disolución voluntaria de la respectiva asociación, para los efectos de lo establecido en el artículo 59 de la Ley.
