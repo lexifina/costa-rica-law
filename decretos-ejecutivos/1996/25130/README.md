@@ -13,3 +13,4 @@ Utilidad Pública Asociación Costarricense Integral para el Desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
+| 2 | 1996-05-17 | SINALEVI (sin norma nombrada) |
