@@ -1,0 +1,2 @@
+Art. 2. Todo lo practicado hasta ahora, por las Autoridades y empleados públicos en observancia de estos decretos es válido y eficaz; por cuanto la declaratoria que aquí se hace respecto á los espresados de cr etos es fijando la intelijencia de las disposiciones anteriores que espidió el Gobierno provisorio, sobre este mismo asunto.
+Dado en el Palacio Nacional, á los veintitres dias del mes de Junio de mil ochocientos setenta.
