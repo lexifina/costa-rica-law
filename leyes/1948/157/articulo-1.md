@@ -1,4 +1,6 @@
+(Derogado)
 N° 157
+(Esta norma fue derogada por el artículo 7° de la ley N° 418 del 4 de marzo de 1949)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 Considerando:
 Que con motivo de la reorganización y ajuste que se está efectuando en todas las Dependencias del Estado, no ha sido posible que los Gobernadores hayan enviado en tiempo las listas de Candidatos para la integración de las Comisiones Mixtas de Salarios Mínimos de toda la República.
