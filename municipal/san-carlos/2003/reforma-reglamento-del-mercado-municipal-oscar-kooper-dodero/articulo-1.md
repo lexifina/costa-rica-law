@@ -1,2 +1,0 @@
-MUNICIPALIDAD DE SAN CARLOS
-La Municipalidad de San Carlos comunica que el Concejo Municipal de San Carlos, en su sesión ordinaria, celebrada el lunes 11 de agosto del 2003, mediante acuerdo Nº 15, acta Nº 53, acordó: Modificar el artículo Nº 15 del Reglamento del Mercado Municipal "Óscar Koper Dodero", a fin de que las sesiones de derechos de los locales sean aprobadas por el Alcalde Municipal o por quien él delegue.
