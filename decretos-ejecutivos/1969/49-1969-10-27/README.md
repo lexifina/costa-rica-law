@@ -14,3 +14,4 @@ Clasifica en el Grupo C la planta industrial para la fabricación de masillas re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-11-04 | la propia norma |
+| 2 | 1970-05-27 | Decreto Ejecutivo 1007 (1970-05-27) |
