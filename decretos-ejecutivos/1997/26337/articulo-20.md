@@ -1,2 +1,0 @@
-Artículo 20.—Control de Transportes
-Control de Transportes informará a las unidades involucradas en el proceso, respecto al ingreso y las exclusiones de vehículos que se hicieren, con el fin de que se mantenga actualizada en todo momento la lista de los funcionarios y vehículos autorizados a los efectos del presente Reglamento, para los controles y trámites que correspondiere.

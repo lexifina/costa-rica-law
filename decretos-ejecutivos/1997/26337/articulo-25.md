@@ -1,3 +1,0 @@
-Artículo 25.—Coordinación de giras
-25.1 En lo posible se coordinarán los servicios de modo tal que en un mismo vehículo, propiedad de un funcionario, pudiere transportarse, además, cualquier otro funcionario de la misma dependencia, que deba efectuar- el mismo recorrido, aun en el caso dr que estuviere también el vehículo propiedad de este último al servicio del MOPT o del Consejo de Seguridad Vial bajo la modalidad de un contrato de arrendamiento al amparo de las estipulaciones del presente Reglamento.
-25.2 La respectiva Jefatura o el superior inmediato de ambos funcionarios decidirá sobre el vehículo que efectuará la gira, cuando hubiere varios automotores disponibles propiedad de dichos funcionarios, que estuvieren incluidos dentro del Registro de Elegibles.

@@ -1,2 +1,0 @@
-Artículo 33.—Normas de aplicación supletoria
-Para la interpretación de las normas que se establecen en el presente Reglamento, así como de las regulaciones contractuales que a su amparo se originaren, debera acudirse a lo prescrito por la Ley de Contratación Administrativa, No 7494 del 2 de mayo de 1995; el Reglamento General de Contratación Administrativa, Decreto Ejecutivo No 25038-H; la Ley Genera) de la Administración Pública; la Ley de Administración Financiera de la República; así como las restantes fuentes de nuestro ordenamiento jurídico.

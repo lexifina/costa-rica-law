@@ -1,2 +1,0 @@
-Artículo 23.—Transporte de herramientas y equipo
-Si un funcionario propietario, con motivo del cumplimiento de sus labores, debiere transportar en su vehículo equipos o herramientas propiedad del MOPT o del Consejo de Seguridad Vial y éstas se extraviaren, sufrieren un notable deterioro o fueren sustraídas, se procederá de conformidad con las normas establecidas para el control y uso de herramientas y equipo.

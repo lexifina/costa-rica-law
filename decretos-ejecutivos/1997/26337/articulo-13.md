@@ -1,2 +1,0 @@
-Artículo 13.—Gastos a cargo del funcionario
-Correrán a cargo y por cuenta del funcionario propietario, los gastos inherentes al uso del vehículo, tales como materiales, combustible, lubricantes, seguros, mantenimiento y reparaciones de cualquier naturaleza,

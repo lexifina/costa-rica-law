@@ -1,2 +1,0 @@
-Artículo 18.—Del pago por kilometraje mensual
-El pago de kilometraje mensual se efectuará por parle de la Subárea Financiera del MOPT o del Consejo de Seguridad Vial, para lo cual el funcionario propietario deberá presentar una liquidación, aprobada por su jefe inmediato, de los diferentes recorridos que hubiere realizado durante el mes anterior, adjuntando las boletas de autorización debidamente revisadas por Control de Transportes.

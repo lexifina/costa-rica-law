@@ -1,4 +1,0 @@
-Artículo 29.—Adelanto por concepto de gastos de kilometraje
-29.1 Cuando los funcionarios propietarios autorizados para hacer uso de sus vehículos conforme a las disposiciones del presenta Reglamento, tuvieren que efectuar giras prolongadas, el MOPT (Consejo de Seguridad Vial podrán, si así lo juzga pertinente, otorgar un adelanto por concepto de gastos de kilometraje.
-29.2 A los efectos de dicho adelanto, deberá confeccionarse una fórmula específica que deberá ser suscrita por el funcionario propietario y su superior inmediato, explicativa de las razones de dicha gira, su duración y la estimación aproximada de los gastos que se deriven por concepto de kilometraje.
-29.3 No obstante lo anterior, no se autorizarán nuevos adelantos por concepto de gastos de kilometraje, mientras no estuvieren debidamente aprobados los adelantos que, previamente, se hubieren otorgado, conforme a las fórmulas de liquidación que al efecto se dispusieren.
