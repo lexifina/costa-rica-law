@@ -1,0 +1,1 @@
+Artículo 3°.- La forma y demás condiciones del empréstito deberán ser previamente aprobadas por la Inspección General de Hacienda Municipal, o por la Contraloría General de la República, si esa oficina hubiere sido creada a la fecha de constitución del empréstito.
