@@ -1,1 +1,4 @@
-Artículo 3°—Los límites de la Reserva Indígena de Conte-Burica establecidos en el artículo 2° del presente decreto, son los definitivos y serán utilizados por el Instituto Geográfico Nacional para la nueva edición del mapa de Costa Rica, escala 1/50.000.
+Artículo 3°—Los límites de la Reserva Indígena Guaymí de Conteburica establecidos en el artículo 2° del presente decreto, son los definitivos y serán utilizados por el Instituto Geográfico Nacional para la nueva edición del mapa de Costa Rica, escala 1/50.000.
+(NOTAS DE SINALEVI:
+(1. Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
+(2. Mediante el artículo 3° del decreto ejecutivo N° 29450 del 22 de marzo del 2001, se indica que para efectos de la "Dirección Territorial Administrativa de la República de Costa Rica", la Reserva Indígena Guaymí de Conteburica, se compone de los caseríos: Alto Conte, La Vaca, Río Claro, Progreso, Las Vegas, Santa Rosa, La Peñita, Carones, Río Coco, y Río Caña Blanca).

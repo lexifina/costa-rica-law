@@ -1,1 +1,2 @@
-Artículo 7°—Se reconoce el idioma Guaymí como idioma local de la Reserva Guaymí de Conte-Burica, así como de las otras dos reservas indígenas donde el Guaymí es la lengua materna de la población, a saber: Abrojos-Montezuma y Guaimí de Coto Brus.
+Artículo 7°—Se reconoce el idioma Guaymí como idioma local de la Reserva Guaymí de Conteburica, así como de las otras dos reservas indígenas donde el Guaymí es la lengua materna de la población, a saber: Abrojos-Montezuma y Guaimí de Coto Brus.
+(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
