@@ -1,6 +1,6 @@
 # Reforma Código Penal (1941)
 
-Ley N° 256 del 1943-09-01. SINALEVI, ficha 10156: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10156&param2=83888&param3=1>.
+Ley N° 256 del 1943-09-01. SINALEVI, ficha 10156: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10156&param2=83683&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1943-09-01 | Ley 256 | 1943-09-01 |
 | 2 de 3 | 1946-12-13 | Ley 821 | 1946-12-13 |
+| 3 de 3 | 1948-05-20 | Ley 17 | 1948-05-20 |
