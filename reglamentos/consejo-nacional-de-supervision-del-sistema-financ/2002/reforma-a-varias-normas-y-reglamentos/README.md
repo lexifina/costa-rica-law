@@ -14,3 +14,4 @@ Reforma a varias normas y reglamentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-11 | la propia norma |
+| 2 | 2003-06-10 | Reglamento 375 (2003-06-10) |
