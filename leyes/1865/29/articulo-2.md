@@ -1,0 +1,1 @@
+Art 2° Igual prohibición se establece respecto a las oficinas de Gobernación y Policía de las Provincias y Cantones, en las cuales solo y únicamente podrán exigirse los derechos establecidos en favor de los fondos municipales y respectivos.
