@@ -1,0 +1,3 @@
+Artículo 8°-Todo proyecto de construcción dentro de la Zona de Control Especial de las Ruinas deberá contar con el visto favorable de una Comisión Asesora conformada por un representante de la Municipalidad de Cartago, Ministerio de Cultura, Juventud y Deportes, la Asociación de Arquitectos Cartagineses (ADAC) y de la Dirección de Urbanismo del INVU. Dicha comisión tendrá como fin:
+1. Velar permanentemente porque en esta zona de control especial se cumpla con las normas aquí acordadas.
+2. Servir de asesora permanente del INVU en el campo de la protección de los monumentos históricos de Cartago y su entorno urbano.

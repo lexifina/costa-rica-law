@@ -1,0 +1,1 @@
+Artículo 3°-Se permitirá una altura mínima de edificación de 3 m y máxima de 6 m, medida a la parte inferior de la canoa para toda edificación, ubicada a una profundidad no mayor de 50 m, de los puntos de referencia A.B.C.D.

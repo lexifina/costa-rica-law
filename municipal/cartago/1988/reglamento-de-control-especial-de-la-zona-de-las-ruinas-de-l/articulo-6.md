@@ -1,0 +1,3 @@
+Artículo 6°- Toda edificación tendrá una cobertura no mayor del 80%, para los primeros 50 m de los límites A.B.C.D. y de 90%, para el resto de la zona de control. Esta cobertura podrá aumentarse siempre y cuando exista un mayor aporte urbano que lo justifique como es el uso de:
+1. Espacios públicos: a cubierto o descubierto como es el uso de antejardines, plazuelas, fuentes, terrazas, etc., aumentándose el área de construcción en una razón 1 a 3 por cada metro cuadrado utilizado en espacio público.
+2. Otros: cada edificación que no tenga galería o pórticos contará con una marquesina no menor de 2 m de ancho y 3 m de altura, diseñada de acuerdo con las normas del Reglamento de Construcciones vigente.

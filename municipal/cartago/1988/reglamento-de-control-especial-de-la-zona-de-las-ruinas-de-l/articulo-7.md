@@ -1,0 +1,1 @@
+Artículo7°-Toda solicitud de construcción, remodelación, ampliación de inmueble en la zona deberá contar con el alineamiento municipal correspondiente. El derecho vial mínimo en la zona es de 14 m, según lo contempla el Plan Vial de Cartago.

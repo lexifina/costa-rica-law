@@ -1,0 +1,1 @@
+Artículo 2°-La regulación de retiros, cobertura, altura, uso y otros se establece para toda nueva construcción, remodelación, y ampliación de inmuebles ubicados dentro de la zona delimitada en dicho plano según lo dispuesto en los siguientes artículos o en su defecto lo que establece el Reglamento de Construcciones vigente.

@@ -1,0 +1,3 @@
+Artículo 5°-La altura de edificación podrá aumentarse hasta un máximo de 9 m dentro de los límites A.B.C.D., siempre que exista un mayor aporte arquitectónico que lo justifique, como sería el caso de:
+1. Pórticos o galerías (arcadas): A lo largo de la fachada con un ancho no menor de 1,5 m, dentro de la línea de propiedad y una altura no menor de 3 m, según lo especifica el Reglamento de Construcciones vigente. En estos casos no se exigirá el uso de marquesina.
+2.Otros: cualquier elemento arquitectónico urbanístico que a criterio del Departamento de Urbanismo del INVU, constituyen un mayor aporte urbano en la zona.
