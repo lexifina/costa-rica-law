@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Facúltase a las instituciones representadas en esta Comisión para cubrir los gastos en que incurran sus representantes en el ejercicio de sus funciones aquí estipuladas de acuerdo con las normas establecidas.
