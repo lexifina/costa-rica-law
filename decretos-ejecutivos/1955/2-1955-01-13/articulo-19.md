@@ -1,1 +1,0 @@
-Articulo 19.—La escritura pública del contrato será otorgada ante el Notario que designe el Instituto y contendrá todas aquellas cláusulas que indique la Gerencia. Tanto este Reglamento, como las demás disposiciones legales y reglamentarias que rigen al Instituto en la materia, se consideran tácitamente incluidas en el contrato respectivo y aceptadas por el adquiriente.

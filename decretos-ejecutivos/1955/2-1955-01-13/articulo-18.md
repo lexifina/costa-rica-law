@@ -1,2 +1,0 @@
-Artículo 18.—La certificación que emita el Jefe de Contabilidad respecto al atraso en el pago de las cuotas, servirá como plena prueba para justificar el desahucio por falta de pago. En los demás casos previstos servirá de base la certificación del acuerdo motivado y firme por el que se revoca la adjudicación y se autoriza la demanda de desahucio.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 7 de 21 de julio de 1959, publicado en La Gaceta N° 180 de 12 de agosto de 1959.)

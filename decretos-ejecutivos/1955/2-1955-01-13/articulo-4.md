@@ -1,1 +1,0 @@
-Artículo 4°—Para comprobar la necesidad social de los solicitantes, el Instituto solicitará, de oficio, a las oficinas estatales, las pruebas o certificaciones que juzgue necesarias, y podrá recoger todos los informes que considere convenientes, de personas, entidades u organismos públicos o privados que, por la naturaleza de sus funciones, estén en capacidad de darlos.
