@@ -15,3 +15,4 @@ Reglamento de la Ley de Democratización de las Subsidiarias de CODESA
 | --- | --- | --- |
 | 1 | 1993-07-28 | la propia norma |
 | 2 | 1993-10-11 | Decreto Ejecutivo 22600 (1993-10-11) |
+| 3 | 1993-11-19 | Decreto Ejecutivo 22681 (1993-11-19) |
