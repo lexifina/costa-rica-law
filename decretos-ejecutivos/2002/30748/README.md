@@ -14,3 +14,4 @@ Regula lo referente a inscripciones, traspasos y cambios de placa, en vehículos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-03 | la propia norma |
+| 2 | 2003-03-13 | Decreto Ejecutivo 31058 (2003-03-13) |

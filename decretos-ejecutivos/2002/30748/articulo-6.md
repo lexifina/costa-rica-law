@@ -1,1 +1,1 @@
-Artículo 6º—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 5º—Los cambios de placas que en todos los casos origina la inscripción de las nuevas concesiones, no autorizará la expedición por parte del Departamento de Diario del Registro de placas temporales, para ser utilizadas mientras se realiza el trámite registral. A esos efectos el Registro dispondrá, en la medida de lo posible, de un grupo de registradores para realizar con prioridad la inscripción.
