@@ -1,0 +1,1 @@
+Artículo 9°—Este Decreto deroga cualquier otra disposición de igual rango que se le oponga y expresamente los decretos ejecutivos N° 5133-H del 30 de agosto de 1975 y su reforma, el N° 9297-H-A del 15 de enero de 1979 y sus reformas; y el N° 16086-H del 7 de marzo de 1985.

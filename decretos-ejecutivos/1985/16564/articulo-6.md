@@ -1,0 +1,3 @@
+Artículo 6°—A fin de compensar a los productores nacionales se asigna para el trimestre que va del 1° de octubre de 1985 al 31 de diciembre del mismo año la suma de US$ 0,13 por caja exportada, al Fondo de Compensación de Precios.
+La distribución de este Fondo no será diferenciada de acuerdo con la clasificación de las cajas, corno se venía efectuando anteriormente; sino que se calculará y entregará a los productores calificados una suma igual para todas las cajas.
+A partir de 1986 se eliminará dicha compensación y se adaptará el Plan de Fomento Bananero a las nuevas circunstancias; por el tiempo que quede de vigencia.

@@ -1,0 +1,1 @@
+Artículo 8°—En aquellos casos de fincas arrendadas en las que el arrendante recibía, como parte de los beneficios, el ajuste de precios que estaba consignado en el Decreto N° 16086 H, el contrato de arrendamiento deberá incrementarse en la suma de US$ 0,45 por caja.
