@@ -28,7 +28,7 @@ Consejo Nacional de Producción (CNP) | Materias Primas y Mercaderías del Progr
 Consejo Técnico Asistencia Médico Social (CTAMS): | Transferencia al INCIENSA según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
 Correos de Costa Rica | Canon de la ARESEP.
 Dirección General de Aviación Civil | Transferencia al Instituto Meteorológico Nacional según Ley N° 5222.
-Editorial Costa Rica | Impresión y encuadernación Derechos de autor en el Programa Producción y Difusión.
+Editorial Costa Rica | Impresión y encuadernación Derechos de autor en el Programa Producción y Difusión. (Modificado por el artículo 2° del Decreto Ejecutivo N° 31800 de 23 de abril de 2004, en el sentido siguiente: "Modificase el artículo 2° del Decreto Ejecutivo Nº 31092-H y sus reformas, en su inciso a), incorporándose el concepto de pago de comisiones como exclusión presupuestaria para la Editorial Costa Rica")
 Empresa de Servicios Públicos de Heredia | Compra de Energía
 Fábrica Nacional de Licores (FANAL) | Materia Prima Impuesto IDA Impuesto IFAM Transferencia al IAFA según Ley N° 7035. Transferencia al CNP, por Margen de Comercialización según Ley N° 7050. Transferencia al CNP, por Utilidad Neta y Ventas Proyectadas según Ley N° 6050.
 Instituto Costarricense de Electricidad | Compra de energía Importación de energía. Canon regulación eléctrica y telefónica. Alquileres operativos. Alquileres de canales y participación telefónica. Combustibles para generación térmica
