@@ -1,0 +1,39 @@
+ARTICULO 232.- En las condiciones establecidas en este
+Capítulo, el fallecimiento de un servidor judicial, activo o
+jubilado, da derecho a sus beneficiarios a una pensión que el
+Consejo fijará prudencialmente, pero que no podrá ser superior a
+las dos terceras partes de la jubilación que disfrutaba o pudo
+disfrutar ni inferior a la tercera parte del último sueldo que
+percibió, salvo cuando se tratare del cónyuge sobreviviente, en
+cuyo caso el monto de la pensión será igual al monto de la
+jubilación que venía disfrutando o tenía derecho a disfrutar el
+exservidor.
+Por beneficiarios, se entienden las personas que el servidor
+o exservidor judicial designe, si se tratare de su cónyuge, de su
+compañero o compañera de convivencia durante al menos dos años,
+de sus hijos o de sus padres. Tal designación deberá hacerse por
+escrito y dirigida al Consejo.
+A falta de esa designación o si la última, por cualquier
+motivo racional, evidentemente no representare los deseos del
+causante, se tendrá por beneficiarios a la persona o personas
+dichas y se distribuirá la pensión entre ellas, en la forma en
+que el Consejo reglamente y que se ajuste, en lo posible, a los
+presuntos deseos del fallecido y a las necesidades familiares.
+No podrá ser beneficiario quien no forme parte del grupo de
+personas a que se refiere este artículo, ni aquél que no necesite
+de la pensión, porque su trabajo o sus rentas le permiten proveer
+sus alimentos sin ella, a no ser que el trabajo o las rentas que
+reciba sean insuficientes, en cuyo caso el Consejo rebajará la
+pensión en el tanto que estime necesario.
+Toda asignación caducará por la muerte del beneficiario;
+porque éste llegue a no necesitarla para su subsistencia, a
+juicio del Consejo; en cuanto a los hijos de uno u otro sexo, por
+la mayoridad, salvo que sean inválidos o que no hubieren
+terminado sus estudios para una profesión u oficio, mientras
+obtengan buenos rendimientos en ellos y no sobrepasen la edad de
+veinticinco años. Todo sin perjuicio de las asignaciones que a la
+fecha de vigencia de esta Ley se hubieran acordado.
+El Consejo, previa investigación, podrá hacer los cambios o
+ajustes necesarios en las cuotas asignadas y disponer respecto de
+los beneficiarios que lo necesitaren que sus porciones acrezcan
+en todo o en parte las que caducaren.

@@ -1,0 +1,15 @@
+ARTICULO 137.- Los secretarios y notificadores no podrán
+disfrutar de permiso para estudiar en horas laborales. Los
+prosecretarios y escribientes, que fueren estudiantes, podrán
+dejar de asistir a sus oficinas durante las horas que les fueren
+autorizadas para estar presentes en los cursos y exámenes, pero
+el resto del tiempo, así como durante las vacaciones y los días
+de asueto en la escuela, deberán asistir puntualmente al
+Despacho.
+El Consejo podrá cancelar el beneficio al que se refiere el
+párrafo anterior luego de comprobar, por los medios que tenga por
+convenientes, que el estudiante no asiste, con regularidad y sin
+justa causa, a los cursos correspondientes y que tampoco se
+presenta al desempeño de sus labores, o que por falta de interés
+en los estudios, se atrasa en la conclusión de la carrera
+profesional.

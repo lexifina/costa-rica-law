@@ -1,0 +1,9 @@
+ARTICULO 230.- Los funcionarios y empleados que hubieran
+servido menos de diez años, no tendrán derecho a jubilación ni
+sus parientes a pensión, salvo el caso previsto en el artículo
+228. Sin embargo, si a causa del ejercicio de sus funciones se
+produjere la muerte del servidor -cualquiera que hubiera sido el
+tiempo servido por éste- además de las indemnizaciones que
+legalmente correspondan, sus beneficiarios tendrán derecho a una
+pensión temporal y proporcional, dentro de las condiciones que
+esta Ley prevé para esos casos.

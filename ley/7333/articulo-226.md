@@ -1,0 +1,11 @@
+ARTICULO 226.- Los servidores judiciales que fueren
+separados para el mejor servicio público, tendrán derecho a la
+jubilación, siempre que el tiempo servido exceda de diez años. La
+jubilación será proporcional al tiempo servido y sólo podrá ser
+percibida durante un lapso equivalente a la mitad de ese tiempo,
+salvo que hubiera laborado por más de veinte años, en cuyo caso
+el disfrute de la jubilación será vitalicio. Para fijarla, se
+multiplicará el monto del salario promedio establecido en el
+artículo 224 por el número de años servidos y el producto se
+dividirá entre treinta; el resultado será el monto de la
+jubilación.

@@ -1,0 +1,10 @@
+ARTICULO 45.- La Corte Plena determinará, por acuerdo, los
+distintivos que puedan usar, exclusivamente, los Magistrados de
+la Corte Suprema de Justicia. El Consejo Superior del Poder
+Judicial lo hará respecto de sus propios miembros, inspectores
+judiciales, Secretario General de la Corte, jueces, actuarios,
+alcaldes, fiscales, defensores públicos y miembros del Organismo
+de Investigación Judicial, y lo comunicará al Poder Ejecutivo, a
+efecto de que las autoridades dependientes de ese Poder les
+guarden las consideraciones propias de su posición y les
+faciliten el ejercicio de sus funciones.
