@@ -863,6 +863,7 @@ De este punto se sigue aguas abajo por la Quebrada Mina hasta el punto de coorde
 (Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 10707 del 24 de octubre de 1979)
 Área aproximada: 963 hectáreas 4,146,34 m2.
 (Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 10707 del 24 de octubre de 1979)
+(Nota de Sinalevi: mediante el artículo 1° del decreto ejecutivo N° 13569 del 30 de abril de 1982, se acordó reafirmar el estatuto de Reserva Indígena, de la Reserva de Quitirrisí, declarada Reserva Indígena por el decreto N° 6036-G, "La Gaceta" N° 113 del 12 de junio de 1976, y delimitada como "Caserío Indígena" por decreto N° 10707-G, "La Gaceta" N° 210 del jueves 8 de noviembre de 1979.)
 Caserío Indígena de Matambú
 (Así adicionado el caserío anterior por el artículo 1° del decreto ejecutivo N° 11564 del 2 de junio de 1980)
 El Caserío Indígena de Matambú es constituido de los poblados de Matambú, Matambuguito y Hondores.
