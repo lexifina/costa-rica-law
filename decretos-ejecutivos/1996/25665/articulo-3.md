@@ -1,0 +1,1 @@
+Artículo 3°-Se exhorta a las Municipalidades para que contribuyan a agilizar los trámites que ante ella realice la Fundación en procura de la exoneración de cargas locales previas en la Ley de Fundaciones, así como a colaborar con dicha entidad para el logro de sus fines.

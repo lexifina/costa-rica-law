@@ -1,0 +1,1 @@
+Artículo 4°-El Ministerio de Hacienda, colaborará para que la Fundación pueda disfrutar de los beneficios fiscales que establece la Ley de Fundaciones a las organizaciones declaradas de interés público.

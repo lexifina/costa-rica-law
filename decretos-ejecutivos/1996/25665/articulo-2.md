@@ -1,0 +1,1 @@
+Artículo 2°-Se insta a todas las entidades del sector público a que, en el marco de las potestades legales y reglamentarias, otorguen al Proyecto y Fundación de Ayuda para el Niño Abandonado, el apoyo que estas requieran para el logro de sus objetivos.
