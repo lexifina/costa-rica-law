@@ -1,0 +1,1 @@
+Art. 3. Las atribuciones de esta junta son: hacer los presupuestos de gastos conforme se presenten los objetos de ellos, y exigir del ecónomo cuentas comprobadas, para à su debido tiempo, presentarlas al Tribunal Superior.
