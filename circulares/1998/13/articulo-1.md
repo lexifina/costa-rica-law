@@ -1,0 +1,19 @@
+CIRCULAR N° 13-98,
+ASUNTO: Reglas prácticas con ocasión de la promulgación del Código de la Niñez y Adolescencia.
+A LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER:
+Que la Corte Plena en sesión N° 17-98 celebrada el 15 de junio de 1996, artículo XXXIII, a solicitud del Magistrado González, Presidente de la Comisión de Asuntos Penales, acordó comunicarles las siguientes reglas prácticas con ocasión de la promulgación del Código de la Niñez y Adolescencia.
+I.—Reglas sobre conformación y funcionamiento de los Equipos Interdisciplinarios (E.I.) previstos en el Código Procesal Penal (C.P.P.) y el Código de la Niñez y la Adolescencia (C.N.A.).
+1°—Con fundamento en el artículo 221 del C.P.P. y los. artículos 105, 107 c., 112 párrafo 2°, 120-123 y Transitorio III del C.N.A., los “Equipos Interdisciplinarios” (E.I.) son grupos de técnicos y profesionales en ciencias médicas, psiquíatras, psicólogos forenses, trabajadores sociales y, en general, expertos en el tratamiento de víctimas.
+2°—La población-meta a que está dirigida la atención de los E.I son: menores y mujeres víctimas de cualquier tipo de agresión y, en-general, personas víctimas de delitos sexuales.
+3°—Los E.I. deben realizar las distintas pruebas y prácticas periciales interdisciplinariamente, con el propósito de concentrar, de ser posible en una sola sesión, todas las entrevistas que requiera la víctima, debiendo, antes de la realización de dicha sesión, elaborar un protocolo de ella y designar, cuando se estime conveniente, a uno de sus miembros para que se encargue de plantear las preguntas. En esta misma sesión, procurando no lesionar el pudor de la víctima, se deberá practicar el examen físico de la misma, salvo que exista impedimento insuperable que obligue su postergación.
+4°—Los E.I. estarán adscritos a los juzgados de familia y a los demás órganos jurisdiccionales que conozcan de asuntos relativos a personas menores de edad.
+5°—Son atribuciones y obligaciones de los Equipos Interdisciplinarios:
+a. Atender, asistir y reconocer pericialmente a la población-meta legalmente definida. (Art. 221 C.P.P)
+b. Prestar apoyo a las autoridades judiciales que lo requieran dentro de los propósitos para los que han sido constituidos.
+c. Acompañar a las víctimas menores de edad, en especial cuando se trate de delitos sexuales, cuantas veces la autoridad judicial lo estime necesario.
+d. Rendir a la autoridad judicial un informe de recomendaciones en cada caso concreto, con el propósito de evitar o de disminuir los riesgos a la salud psíquica de la víctima en el caso investigado. Será obligación de la autoridad judicial requeriente tomar en cuenta estas recomendaciones al momento de que el menor de edad, víctima de algún tipo de agresión, deponga en cualquier etapa del proceso.
+e. Asistir durante el proceso al menor ofendido y a los miembros de su familia que no aparezcan como ofensores, finalizado el cual el menor deberá ser remitido a la institución correspondiente, si lo amerita el caso, para el tratamiento que fuere necesario.
+f. Apoyar a la autoridad judicial en las entrevistas que deba realizar.
+6°—Estas atribuciones y obligaciones corresponden a los Equipos Interdisciplinarios cuando actúan en conjunto. Son independientes de las labores que, en tanto peritos, puedan desempeñar sus miembros como funcionarios del Poder Judicial. La intervención en un E.I., sus pronunciamientos o decisiones, inhibe al técnico o profesional participante de intervenir de nuevo en el mismo proceso como perito independiente.
+7°—En todo proceso por delito sexual donde el imputado sea menor de edad, será obligación de la autoridad judicial respectiva, solicitar un informe al Departamento de Trabajo Social y al Departamento de Psicología del Poder Judicial que, para tal efecto, conformarán un Equipo Interdisciplinario el cual deberán remitir sus conclusiones en un plazo máximo de quince días.

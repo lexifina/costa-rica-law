@@ -1,0 +1,6 @@
+IV.—Regias para audiencia a la Procuraduría General de la
+República y al Patronato Nacional de la Infancia en asuntos
+penales concernientes a menores.
+1°—En los procesos penales por delitos contra la vida y la integridad física, los delitos sexuales y en general en cualquier otro proceso en que el juez considere necesaria la participación de la Procuraduría General de la República, se le dará audiencia a ésta, a fin de que intervenga en calidad de parte y como garante del cumplimiento de los derechos consagrados en la Convención Sobre Derechos del Niño y en el Código de la Niñez y Adolescencia. Esta participación será posible en sede administrativa y judicial; en la primera, la Procuraduría comparecerá cuando lo solicite el Patronato Nacional de la Infancia o la Defensoría de los Habitantes; en la segunda, en los procesos penales antes mencionados, en los de familia por filiación, autoridad parental (suspensión o pérdida), dispensa de asentimiento y nulidad del matrimonio.
+2°—Se dará audiencia al Patronato Nacional de la Infancia en procesos judiciales y procedimientos administrativos siempre que se involucre el interés de una persona menor de edad, como imputado, víctima, partícipe civil, querellante u otro.”
+San José, 14 de julio de 1998.
