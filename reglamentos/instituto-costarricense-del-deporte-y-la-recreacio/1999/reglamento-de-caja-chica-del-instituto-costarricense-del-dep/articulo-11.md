@@ -1,1 +1,0 @@
-Artículo 11°—El Fondo de Caja Chica contendrá siempre el total del monto autorizado, el cual, según el caso, estará integrado únicamente de la siguiente forma: a) Dinero en efectivo b) Vales debidamente liquidados c) Vales pendientes de liquidar d) Vales en trámite de reintegro ante la Unidad de Presupuesto.

@@ -1,1 +1,0 @@
-Artículo 38°—El monto total de la erogación no podrá sobrepasar la suma de 3.000.00 (tres mil colones exactos) y deberá ser consultado telefónicamente la existencia del disponible presupuestario, dejando constancia en el documento el nombre de quien brindó la información y la fecha.

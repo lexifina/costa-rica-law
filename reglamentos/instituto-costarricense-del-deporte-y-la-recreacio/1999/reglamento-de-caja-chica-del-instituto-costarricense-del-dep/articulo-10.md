@@ -1,1 +1,0 @@
-Artículo 10°—El Tesorero deberá solicitar inmediatamente el reintegro del dinero gastado, cuyo monto se aproxime al 50 % de la suma total autorizada al Fondo de Caja Chica. La solicitud deberá ser acompañada de los vales debidamente liquidados y descritos éstos en orden numérico según formato establecido para tales efectos.

@@ -1,1 +1,0 @@
-Artículo 13°—Es deber de la Jefatura del Departamento Financiero velar por el cumplimiento de lo establecido en este Reglamento, por lo cual deberá realizar arqueos físicos, sorpresivos y periódicos, al Fondo de la Caja Chica incluyendo la revisión de la documentación necesaria. Se preparará el informe escrito sobre el arqueo y la revisión efectuada.

@@ -1,4 +1,0 @@
-Artículo 46°—Las erogaciones derivadas por concepto de gastos de viaje y de transporte dentro del país que se tramiten por las cajas chicas de Oficinas Regionales y Parques Recreativos quedan sujetas a las disposiciones establecidas en el presente reglamento, así como del Reglamento de Gastos de Viaje y de Transporte dentro del país.
-Disposiciones Finales
-Artículo 46°—El Departamento Financiero-Contable elevará ante el Consejo Nacional del Deporte y la Recreación las propuestas debidamente justificadas de aumentar los montos aquí establecidos, tanto de los fondos autorizados como el monto de las erogaciones. De igual manera, podrá solicitar al Consejo la suspensión de subcajas chicas por mal manejo de éstas u otra circunstancia que lo amerite. Para ambas, se requiere el acuerdo del Consejo previo a la ejecución de dichos cambios.
-(NOTA DE SINALEVI: En la publicación del presente reglamento aparecen dos artículos No. 46)-

@@ -1,1 +1,0 @@
-Artículo 24°—El Tesorero una vez reciba a satisfacción según los requisitos estipulados en el presente Reglamento los comprobantes que respaldan la liquidación de un vale, firmará en el mismo dando de esta manera por formalizada la liquidación presentada.

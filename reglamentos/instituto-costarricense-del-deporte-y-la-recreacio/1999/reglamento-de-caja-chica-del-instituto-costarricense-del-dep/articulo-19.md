@@ -1,1 +1,0 @@
-Artículo 19°— La persona autorizada a recibir el dinero deberá firmar en la casilla respectiva haciendo constar el recibido del efectivo, una vez el Tesorero le haya comunicado la autorización para retirarlo.

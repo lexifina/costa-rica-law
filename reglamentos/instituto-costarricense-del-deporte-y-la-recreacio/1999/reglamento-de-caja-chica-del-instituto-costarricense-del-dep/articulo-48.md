@@ -1,1 +1,0 @@
-Artículo 48°—El incumplimiento de este Reglamento obligará a la Administración a aplicar las sanciones disciplinarias que establezcan las leyes, reglamentos y otras disposiciones internas del órgano u ente público de que se trate.

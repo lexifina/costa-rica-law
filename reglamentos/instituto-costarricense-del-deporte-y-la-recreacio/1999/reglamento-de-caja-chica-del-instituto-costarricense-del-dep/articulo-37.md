@@ -1,1 +1,0 @@
-Artículo 37°—El responsable de la subcaja chica deberá solicitar el reintegro cuando el monto gastado se aproxime al 50% del fondo autorizado mediante la presentación de los comprobantes adjuntos y detallados en fórmula establecida para tales efectos.

@@ -1,1 +1,0 @@
-Artículo 45°—Con respecto a las Oficinas Regionales el fondo se empleará únicamente para compra de bienes y/o servicios y para el pago de gastos de viaje y de transportes dentro del país en su área de trabajo o jurisdicción administrativa.
