@@ -14,3 +14,4 @@ Prohibe el registro, importación, venta, uso agrícola, veterinario y como medi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-10 | la propia norma |
+| 2 | 1988-08-10 | SINALEVI (sin norma nombrada) |
