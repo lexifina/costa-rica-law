@@ -1,4 +1,5 @@
 No 20082
+(Mediante el artículo 3 del decreto ejecutivo N°31591 del 18 de noviembre del 2003 se deroga este decreto ... únicamente en cuanto a la definición de los límites del área silvestre protegida, manteniéndose vigente las demás disposiciones).
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS
 En uso de las facultades que les confieren el artículo 10, inciso i) de la Ley Forestal No 7174 del 16 de julio de 1990 y el artículo 13 de la ley No 6084 del 24 de agosto de 1977.
@@ -55,7 +56,7 @@ Este último punto se localiza en la margen izquierda del cauce del río Tempisq
 Las islas Saíno, Pájaros y San Pablo localizadas en el río Tempisque, se consideran como parte de este Parque Nacional.
 (NOTAS DE SINALEVI:
 1. Mediante el artículo 1 del decreto ejecutivo N°23152 del 19 de abril de 1994, se decreta que "los terrenos del Parque Nacional Palo Verde comprendidos al oeste del camino principal de acceso al mismo, se denominarán en el futuro Sector Dr. Rafael Lucas Rodríguez Caballero").
-2.Mediante el artículo 1 del decreto ejecutivo N°24426 del 03 de diciembre de 1994, se "amplía el Parque Nacional Palo Verde, incorporándole el corredor biológico del bosque la Mula, en el área comprendida dentro de los límites que se describen a continuación, según los mapas básicos del Instituto Geográfico Nacional, hoja cartográfica Tempisque 3147 III escala 1: 50000.
+2. Mediante el artículo 1 del decreto ejecutivo N°24426 del 03 de diciembre de 1994, se "amplía el Parque Nacional Palo Verde, incorporándole el corredor biológico del bosque la Mula, en el área comprendida dentro de los límites que se describen a continuación, según los mapas básicos del Instituto Geográfico Nacional, hoja cartográfica Tempisque 3147 III escala 1: 50000.
 Partiendo de un punto ubicado en el límite con el Parque Nacional Palo Verde de coordenadas N 262787.01 E 393391.36, continúa el límite por los puntos de coordenadas.
 N | 263233.48 | E | 393481.04
 N | 263525. 70 | E | 393244.69
