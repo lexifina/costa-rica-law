@@ -16,3 +16,4 @@ Reglamento del Fondo de Garantías y Juilaciones de los Empleados.
 | 1 | 1988-11-07 | la propia norma |
 | 2 | 1989-09-04 | Reglamento 3948 (1989-09-04) |
 | 3 | 2001-01-24 | Reglamento 5053 (2001-01-24) |
+| 4 | 2004-11-23 | Reglamento 5427 (2004-11-23) |
