@@ -1,0 +1,1 @@
+Artículo 2°.- Las operaciones de crédito o de realización de valores que la Junta llegare a realizar de conformidad con las autorización del artículo anterior, deberán efectuarse únicamente, con instituciones del Sistema Bancario Nacional y su producto será destinado a la atención de sus necesidades economícas.
