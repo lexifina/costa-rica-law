@@ -1,0 +1,1 @@
+Art. 9. Los que tuvieren encierros contiguos á las sementeras, labores y plantíos, pagarán el perjuicio que causen los animales, siempre que sean rompedores; y perderán ademas estos, cuando las cercas por donde se hace el daño, les correspondan.

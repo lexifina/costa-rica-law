@@ -1,0 +1,1 @@
+Art. 2. El prefijado dia 14, estarán cosechadas las sementeras; y el daño que de allí en adelante hasta el 30de abril hubiese, no puede reclamarse, sino és que alguno lo haya ocasionado, abriendo por mala intención las cercas.

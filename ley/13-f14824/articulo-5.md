@@ -1,0 +1,1 @@
+Art. 5. El ganado vacuno que asi se decomisare, se pondrá al rastro para desguazarlo, cuando se halle en buen estado de carnes; y no siéndolo, se venderá en basta pública, ó pondrá en repasto para matarlo, herrándose en cualquiera de estos dos casos, con un fierro particular del respectivo Departamento que mandarán hacer los Jefes Politicos.

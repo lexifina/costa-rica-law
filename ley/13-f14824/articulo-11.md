@@ -1,0 +1,1 @@
+Art. 11. Cuando alguna persona se encuentre agraviada con las sentencias de estos comisionados, puede ocurrir a la misma Autoridad Política, quien sin otra formalidad que imponerse brevemente de los antecedentes, la aprobará ó reformará.
