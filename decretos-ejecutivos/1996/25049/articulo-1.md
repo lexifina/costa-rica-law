@@ -1,3 +1,4 @@
+(Derogado)
 Nº 25049-H
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
@@ -29,7 +30,4 @@ RECAUDACION TRIBUTARIA
 CAPITULO I
 Disposiciones generales
 Artículo 1º.- Obligación de contribuir
-Los costarricenses están obligados a contribuir al sostenimiento de
-las cargas públicas dentro de los postulados de justicia y equidad.
-Igual obligación recaerá sobre los extranjeros, en los términos que
-establece la ley.
+DEROGADO por Decreto Ejecutivo Nº 29264 del 24 de enero del 2001.
