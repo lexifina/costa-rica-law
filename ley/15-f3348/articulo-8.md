@@ -1,0 +1,1 @@
+Art. 8°.-En las letras que se giren en la República, el timbre irá en el primer ejemplar, matado con la fecha y la firma del girador; y en las letras del exterior, el timbre se pondrá sobre el ejemplar que se presente á la aceptación, matado con la fecha y la firma del aceptante.
