@@ -1,0 +1,1 @@
+Artículo 2°.-El interés se ajustará al vencimiento de cada cupón según el mecanismo que se indica en el presente Decreto. Los intereses se pagarán trimestral o semestralmente según se defina para cada emisión.
