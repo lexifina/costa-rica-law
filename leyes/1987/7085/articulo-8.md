@@ -1,0 +1,6 @@
+Artículo 8º.-De acuerdo con los procedimientos legalmente
+establecidos, la remuneración de las enfermeras y enfermeros colegiados,
+amparados por este estatuto, de conformidad con lo dispuesto en su
+reglamento, se regirá por lo que establezcan para los profesionales el
+Régimen de Servicio Civil y la Ley de Salarios de la Administración
+Pública.
