@@ -1,0 +1,1 @@
+Artículo 6º—De los documentos para el pago. Todo pago deberá hacerse contra la documentación de respaldo (orden de compra y orden de pago por servicios) , en ella deberá acreditarse el nombre del funcionario que ordenó e insertarse la firma del mismo como respaldo del egreso ordenado según lo establecido en el artículo 109 y 110 del Código Municipal.
