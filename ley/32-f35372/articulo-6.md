@@ -1,0 +1,1 @@
+Art 6° El Fiscal de Hacienda de la capital, y los Gobernadores en sus respectivas Provincias, pasarán a la oficina de tierras baldías un conocimiento de las traslaciones que hayan registrado con expresión del título que las ocasione.
