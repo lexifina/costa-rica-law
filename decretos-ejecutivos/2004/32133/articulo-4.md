@@ -1,0 +1,1 @@
+Artículo 4º—En la propuesta para las etapas de desarrollo de los proyectos de alcantarillado sanitario público, la primera etapa debe estar dirigida a la priorización de las inversiones en recolección y conducción de las aguas residuales con el fin de mejorar las condiciones de salud pública en las áreas urbanas.
