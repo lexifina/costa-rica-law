@@ -16,3 +16,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 1 | 2002-01-04 | la propia norma |
 | 2 | 2002-03-04 | Reglamento 285 (2002-03-04) |
 | 3 | 2002-03-14 | Reglamento 290 (2002-03-14) |
+| 4 | 2002-06-18 | Reglamento 307 (2002-06-18) |
