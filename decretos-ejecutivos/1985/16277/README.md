@@ -16,3 +16,4 @@ Reglamento General del SENARA (Servicio Nacional Aguas Subterráneas Riego y Ave
 | 1 | 1985-06-17 | la propia norma |
 | 2 | 1988-03-04 | Decreto Ejecutivo 18074 (1988-03-04) |
 | 3 | 1989-11-24 | Decreto Ejecutivo 19386 (1989-11-24) |
+| 4 | 1994-05-10 | Decreto Ejecutivo 23428 (1994-05-10) |
