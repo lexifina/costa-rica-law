@@ -1,0 +1,12 @@
+N°27356-S
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE SALUD,
+En uso de las facultades que les confieren los numerales 140, incisos 3) y 18) de la Constitución Política; 1°, 11, 28 aparte segundo, inciso b), 47, incisos 2) y 3) de la ley No 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública" y sus reformas; 1°, 2°, 4°, 7°, 258, 260, 337, 338, 339, 340, 341, 342, 343, 344, 346, 347, 348, 349, 355, 356, 357, 358, 359, 362, 363 y 364 de la ley No 5395 del 30 de octubre de 1973 y sus reformas, "Ley General de Salud" 1°, 2°, 3°, 4°, 7°, 9°, 10, 12, 13, 14, 15 de la ley No 7501, publicada en el Alcance No 20 a "La Gaceta" No 110 del 8 de junio de 1995, "Ley de Regulación del Fumado",
+Considerando:
+1°—Que es función esencial del Estado, velar por la salud de la población, por medio del Ministerio de Salud, institución competente para definir la política, normación, planificación y la coordinación de todas las actividades públicas y privadas relacionadas con la salud.
+2°—Que el Estado en estricto apego a la Constitución Política y a la jurisprudencia constitucional, ejercerá las funciones dichas, siempre respetando los derechos individuales y garantías sociales reconocidos en la Carta Magna y en las leyes.
+3°—Que de conformidad con la "Ley de Regulación del Fumado", No 7501, publicado en el Alcance No 20 a La Gaceta" No 110 del 8 de junio de 1995, el Estado debe velar por la salud individual y colectiva de los costarricenses.
+4°—Que la citada "Ley de Regulación del Fumado", fue reglamentada mediante decreto ejecutivo No 25462-S, publicado en "La Gaceta" No 182 del 24 de setiembre de 1996, establece una serie de regulaciones y prohibiciones para la publicidad, venta y consumo del tabaco y sus derivados.
+5°—Que se hace necesario reforzar la prohibición para vender cigarrillos a menores de edad. El tabaco y sus derivados pueden ser expendidos por medio de máquinas automáticas, a las cuales tendrían acceso los menores de edad, lo cual contraviene las disposiciones de la "Ley de Regulación del Fumado", por lo que se hace oportuno y necesario tal prohibición en el Reglamento a la Ley citada. Por tanto,
+decretan:
+Artículo 1°—Adiciónese un artículo 6° bis al decreto ejecutivo No 25462-S del 23 de agosto de 1996, "Reglamento a la Ley Reguladora del Fumado", para que en lo sucesivo se lea:
+"Artículo 6° bis.—Se prohibe el expendio y venta de tabaco y sus derivados por medio de máquinas automáticas para la venta de productos."
