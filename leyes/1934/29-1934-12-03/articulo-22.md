@@ -1,1 +1,0 @@
-Artículo 22.-Los derechos que se conceden por esta ley podrán ejercitarse en cualquier baldío nacional, sin que para ello sea obstáculo lo dispuesto en el inciso 1 del artículo 510 del Código Fiscal, reformado por la ley N° 11 de 22 de Octubre de 1926 o cualquiera otra disposición legal que se oponga a este decreto.

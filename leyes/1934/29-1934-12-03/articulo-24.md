@@ -1,1 +1,0 @@
-Artículo 24.-El presupuesto de cada año incluirá una partida para los gastos de ejecución de la presente ley. Para el año en curso se destina la suma de diez mil colones, con la cual se tiene por aumentado el Presupuesto del actual ejercicio fiscal.
