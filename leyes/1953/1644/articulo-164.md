@@ -1,9 +1,4 @@
-Artículo 164.- En los casos mencionados en el inciso 3) del artículo
-anterior, y una vez vencido el plazo ahí indicado, la Junta, por medio
-del Auditor, podrá abrir las cajas de seguridad cuyo contenido no hubiere
-sido reclamado, en presencia de un delegado especial y de un notario.
-Los objetos depositados en las cajas deberán ser inventariados y los
-paquetes respectivos sellados y marcados a nombre de sus propietarios.
-Los paquetes serán entregados, junto con la lista en que se haya
-inventariado y descrito su contenido, al Banco Central, para que éste los
-guarde en custodia a nombre de sus propietarios.
+Artículo 164.-
+La liquidación de los negocios del banco fallido se hará por una junta compuesta por el Superintendente General de Entidades Financieras (*), quien la presidirá, un representante de los acreedores y un representante de los accionistas o asociados. Esta junta tendrá la atribuciones y deberes que la ley señala a los curadores definitivos, con las modificaciones que a continuación se expresan.
+( Así reformado por ley Nº 6894 de 22 de setiembre de 1983, artículo 1º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

@@ -1,7 +1,3 @@
-Artículo 100.- Las Juntas Rurales no podrán conceder préstamos
-garantizados con hipoteca sobre derechos parciales en fincas indivisas,
-ni sobre la nuda propiedad. Todas las garantías hipotecarias que se les
-otorguen deberán ser de primer grado sobre fincas rústicas o urbanas; sin
-embargo, podrá aceptarse la hipoteca de grado inferior siempre que los
-anteriores gravámenes sean a favor de las Juntas Rurales o de cualquier
-departamento del Banco Nacional de Costa Rica.
+Artículo 100.-
+Las Juntas Rurales u Oficinas de Crédito al Pequeño Agricultor no podrán conceder préstamos garantizados con hipotecas sobre derechos parciales en fincas indivisas ni sobre la nuda propiedad. Todas las garantías hipotecarias que se les otorguen deberán ser de primer grado sobre fincas rústicas o urbanas; sin embargo, podrá o no, de acuerdo con el respectivo reglamento que dicte cada Banco, aceptarse de grado inferior siempre que los anteriores gravámenes sean a favor de cualquiera de las instituciones del Sistema Bancario Nacional.
+( Así reformado por el artículo 1º de la Ley No. 2147 de 19 de julio de 1957 ).

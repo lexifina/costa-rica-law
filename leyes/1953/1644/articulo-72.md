@@ -1,7 +1,4 @@
-Artículo 72.- Los bienes que le fueren transferidos a un Banco en
-pago de obligaciones a su favor, o que le fueren adjudicados en remates
-judiciales, deberán ser vendidos dentro del plazo de dos años contados
-desde el día de la adquisición. Dicho plazo podrá ser ampliado por el
-Auditor General de Bancos a solicitud del Banco respectivo.
-Las ventas de bienes que hicieren los Bancos estarán sujetas a las
-limitaciones que establece el artículo 1068 del Código Civil.
+Artículo 72.-
+Los bienes y valores que fueren transferidos a un banco en pago de obligaciones a su favor, o que le fueren adjudicados en remates judiciales, deberán ser vendidos dentro de un plazo máximo de dos años, contado desde el día de su adquisición. Dicho plazo podrá ser ampliado por el Superintendente General de Entidades Financieras por períodos iguales, a solicitud del banco respectivo. En este caso, la Superintendencia podrá disponer la creación de una reserva hasta por el ciento por ciento (100%) del valor del bien. La venta de esos bienes podrá efectuarse con fundamento en avalúos de peritos de la misma institución bancaria, debiendo considerarse dicha venta como parte de la actividad ordinaria del ente.
+Las ventas de bienes y valores que hicieren los bancos, estarán sujetas a las limitaciones que establece el artículo 1068 del Código Civil.
+( Así reformado por el artículo 162, inciso f), de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 del 3 de noviembre de 1995)

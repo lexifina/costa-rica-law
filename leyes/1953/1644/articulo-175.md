@@ -1,2 +1,2 @@
-Artículo 175.- Esta ley entrará en vigencia el mismo día de su
-publicación.
+Artículo 175.-
+Cuando se haya distribuido todo el activo del Banco en liquidación, efectuado el depósito de las provisiones mencionadas en los artículos 172 y 173 de esta ley, pagados todos los gastos, y después de haber transcurrido un año por lo menos desde la última fecha fijada para la reclamación de créditos, la Junta Liquidadora publicará un aviso en el Boletín Judicial declarando disuelto el banco.

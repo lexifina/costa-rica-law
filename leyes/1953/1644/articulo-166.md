@@ -1,6 +1,3 @@
-Artículo 166.- Todos los gastos que resulten de la liquidación de un
-Banco, así como las dietas para los representantes de los acreedores y de
-los accionistas en la Junta Liquidadora, los sueldos y honorarios para
-los empleados y demás personas ocupadas en la liquidación, incluso una
-retribución equitativa para el Auditor General de Bancos, serán a cargo
-del Banco en liquidación y aprobados por el Juez.
+Artículo 166.-
+La Junta Liquidadora deberá reunirse con la frecuencia necesaria para el cumplimiento de su cargo. Sus resoluciones serán tomadas por mayoría de votos y ejecutadas por el Superintendente en su carácter de Presidente de la Junta; dentro de los diez días siguientes a la notificación de ellas, serán apelables en un solo efecto para ante la Sala Primera Civil. La Junta tendrá un libro de actas en el que deben consignarse todos los asuntos tratados en las sesiones y los acuerdos que se tomen; las actas deberán ser firmadas por todos los miembros presentes.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

@@ -1,18 +1,8 @@
-Artículo 67.- Toda garantía de prenda sujeta a inscripción,
-principal o adicional, a favor de un Banco comercial, se tendrá por
-constituída para todos los efectos legales, inclusive el perjuicio de
-terceros, independientemente de su inscripción en el Registro de
-Prendas-aún cuando el documento en que se otorgue fuese privado, el cual
-se tendrá como auténtico-, desde el momento en que se reciba en el
-correspondiente Registro de Prendas comunicación telegráfica del Banco de
-que el gravamen ha sido constituído, con los datos necesarios para
-identificarlo. El Banco, sin embargo, estará obligado a ratificar por
-carta certificada, dentro de tercero día, al Jefe del respectivo
-Registro, la constitución de la prenda, y acompañará una copia del
-correspondiente documento autorizado con la firma del funcionario
-competente, a fin de que por medio de ella se haga en el Registro la
-respectiva inscripción. El timbre de los contratos de prenda a favor del
-Banco será cancelado por el notario, en el caso de instrumentos públicos,
-o por el Banco, si se trata de documentos privados. El privilegio de
-prenda se mantendrá a favor del Banco, sin prescripción, por un plazo de
-cuatro años después del vencimiento.
+Artículo 67.-
+Toda garantía de prenda sujeta a inscripción, principal o adicional a favor de un banco comercial, se tendrá por constituida, para todos los efectos legales, inclusive en perjuicio de terceros independientemente de su inscripción en el Registro de Prendas -aun cuando el documento en que se otorgue fuese privado, el cual se tendrá como auténtico-, desde el momento en que se reciba en el correspondiente Registro de Prendas comunicación telegráfica del Banco de que el gravamen ha sido constituido, con los datos necesarios para identificarlo. El Banco, sin embargo, estará obligado a ratificar por carta certificada, dentro del tercer día, al jefe del respectivo registro, la constitución de la prenda, y acompañará una copia del correspondiente documento autorizada con la firma del funcionario competente a fin de que por medio de ella se haga en el Registro la respectiva inscripción. El timbre de los contratos de prenda a favor del Banco será cancelado por el notario en el caso de instrumentos públicos, o por el Banco si se trata de documentos privados. El privilegio de prenda se mantendrá a favor del Banco, sin prescripción, por un plazo de cuatro años después del vencimiento.
+Cuando el deudor conserve la posesión de las cosas empeñadas a nombre del banco acreedor, asumirá las obligaciones y responsabilidades de un depositario judicial, pudiendo decretarse su apremio corporal (*)
+en caso necesario y responderá de los daños que sufran los bienes y que no provengan de caso fortuito, fuerza mayor o de la naturaleza misma de los objetos. Servirá como prueba del depósito, el documento certificado que acredite la constitución de la prenda, o certificación del Registro de Prendas.
+( Así reformado por artículo 2º de la ley Nº 4646 de 20 de octubre de 1970).
+(*) La Ley Orgánica de la Jurisdicción Constitucional, Nº 7135 del 11 de octubre de 1989, en el inciso ch) de su artículo 113 consagró lo siguiente "Artículo 113.-
+Deróganse las siguientes leyes y disposiciones: ...
+ch) Todas las disposiciones legales que establezcan causales de apremio corporal, salvo aquellas referentes al incumplimiento de deberes alimentarios."

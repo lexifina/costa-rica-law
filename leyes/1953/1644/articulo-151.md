@@ -1,3 +1,6 @@
-Artículo 151.- Se aplicarán a los Bancos privados, en relación con
-sus liquidaciones de ganancias y pérdidas, los preceptos de los artículos
-10 y 14 de la presente ley.
+Artículo 151.-
+El capital de un banco privado no podrá ser menor de cien millones de colones (¢ 100.000.000). Sin embargo, cuando la Junta Directiva del Banco Central de Costa Rica lo estime conveniente, ese monto podrá ser elevado, según su mejor criterio. La reserva legal suscrita por los bancos formará parte del capital.
+El capital social mínimo de cada banco cooperativo será igual al cincuenta por ciento (50%) del capital establecido por el Banco Central para los bancos privados.
+Las sociedades financieras de inversión y de crédito especial de carácter no bancario deberán mantener un capital suscrito y pagado no inferior a una quinta parte del capital mínimo establecido para los bancos privados.
+Ante cualquier modificación en el capital mínimo de las entidades financieras mencionadas, la junta directiva procurará establecer plazos razonables de cumplimiento. Ninguna entidad financiera privada podrá iniciar sus operaciones mientras no tenga totalmente suscrito y pagado en efectivo su capital que, como comprobación, deberá depositar inicialmente en el Banco Central de Costa Rica, en una cuenta corriente, para que sea retirado conforme efectúe sus colocaciones e inversiones, o haga los pagos correspondientes a los gastos de organización e instalación. En ningún caso estos gastos podrán exceder del diez por ciento (10%) de su capital inicial, y deberán quedar amortizados totalmente dentro de un período máximo de cinco años. Provisionalmente, las entidades podrán hacer figurar en sus libros y balances, como activo, la parte que se hallare pendiente de amortización durante el lapso referido.
+( Así reformado por Ley No. 7107 de 4 de noviembre de 1988, artículo 1º).

@@ -1,8 +1,3 @@
-Artículo 92.- Las Juntas Rurales sesionarán ordinariamente dos veces
-por mes, en el local oficial, en los días y horas que ellas mismas
-determinen, con aprobación de la Oficina Central; y extraordinariamente
-cada vez que sean convocadas por el Delegado del Banco. Tres miembros de
-cada Junta, formarán quórum; sus resoluciones se tomarán por mayoría de
-votos, teniendo el Delegado del Banco derecho a veto suspensivo sobre
-cualquier acuerdo de la Junta, que pasará entonces a conocimiento y
-resolución definitiva de la Oficina Central.
+Artículo 92.-
+Las Juntas Rurales u Oficinas de Crédito al Pequeño Agricultor, sesionarán ordinariamente una vez al mes, en el local oficial, en los días y horas que ellas mismas determinen, con aprobación de la Oficina Central; y extraordinariamente cada vez que sean convocadas por el Delegado del Banco. Sus resoluciones se tomarán por mayoría de votos teniendo el Delegado del Banco derecho a veto, suspensivo sobre cualquier acuerdo de la Junta u Oficina de Crédito, que pasará entonces a conocimiento y resolución definitiva de la Oficina Central.
+( Así reformado por el artículo 1º de la Ley No. 2147 de 19 de julio de 1957 ).

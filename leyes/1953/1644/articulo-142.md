@@ -1,8 +1,3 @@
-Artículo 142.- Cada Junta Directiva celebrará sesiones ordinarias
-una vez por semana, y extraordinarias cada vez que sea convocada por su
-Presidente o por el Gerente del Banco, con el quórum que establezcan los
-Estatutos; los acuerdos se tomarán por mayoría de votos de los miembros
-presentes, salvo que la ley o los estatutos del Banco requieran una
-mayoría determinada; en casos de empate el Presidente en funciones tendrá
-doble voto y decidirá. Serán aplicables a cada Junta Directiva las
-disposiciones de los artículos 28, 32, 34, 36 y 37 de la presente ley.
+Artículo 142.-
+Ningún banco privado podrá operar sin la autorización expresa de la Superintendencia General de Entidades Financieras, conforme a la normativa que esta emita al efecto. Esa autorización no podrá ser objeto de traspaso, venta o cesión.
+(Así reformado por el artículo 162, inciso l), de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 del 3 de noviembre de 1995)

@@ -1,12 +1,7 @@
-Artículo 27.- Cada Junta Directiva ejercerá sus funciones con
-absoluta independencia y bajo su exclusiva responsabilidad, dentro de las
-normas establecidas por las leyes, reglamentos aplicables y principios de
-la técnica. Los miembros de las Juntas Directivas tendrán la más
-completa libertad para proceder en el ejercicio de sus funciones conforme
-a su conciencia y a su propio criterio, por cuya razón serán
-personalmente responsables de su gestión en la dirección general de cada
-Banco, y pesará sobre ellos cualquier responsabilidad que conforme a las
-leyes pueda atribuírseles. Los que no hubieren hecho constar su voto
-disidente, responderán personalmente con sus bienes de las pérdidas que
-se irroguen al Banco por la autorización de operaciones prohibidas por la
-ley.
+Artículo 27.-
+Cada Junta Directiva ejercerá sus funciones con absoluta independencia y bajo su exclusiva responsabilidad, dentro de las normas establecidas por las leyes, reglamentos aplicables y principios de la técnica. Los miembros de las juntas directivas tendrán la más completa libertad para proceder en el ejercicio de sus funciones conforme con su conciencia y con su propio criterio, por cuya razón serán personalmente responsables de su gestión en la dirección general del respectivo banco.
+Sobre ellos pesará cualquier responsabilidad que conforme con las leyes pueda atribuírseles por dolo, culpa o negligencia. Quienes no hubieren hecho constar su voto disidente, responderán personalmente con sus bienes de las pérdidas que le irrogue al Banco, por la autorización de operaciones prohibidas por la ley, o que hayan sido autorizados mediante dolo, culpa o negligencia.
+La asunción de algún margen de riesgo comercial no será un hecho generador de responsabilidad personal en tanto haya tenido adecuada proporción con la neturaleza emprendida y no se haya actuado con dolo, culpa o negligencia; todo de conformidad con las reglas de la sana negociación bancaria. Tratándose de materia sancionatoria en todos los casos en que intervenga la Superintendencia General de Entidades Financieras (*), corresponderá al órgano que deba dictar el acto final dar la audiencia respectiva al funcionario o los funcionarios implicados.
+El presidente y los demás directores bancarios se concretarán en sus funciones al ejercicio de las atribuciones que por ley les han sido conferidas, sin abarcar funciones privativas de la administración, ni influir en los funcionarios encargados de dictaminar sobre el otorgamiento de créditos, ni gestionarlos por ellos mismos en favor de persona alguna, salvo extender referencias respecto al gestionante que conozcan. El incumplimiento de lo anterior será causal para que sean removidos por el Consejo de Gobierno.
+( Así reformado por Ley No. 7107 de 4 de noviembre de 1988, artículo 4º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

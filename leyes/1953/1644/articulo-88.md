@@ -1,8 +1,19 @@
-CAPITULO VII
-Sección de Juntas Rurales de Crédito Agrícola
-Artículo 88.- El Departamento Comercial del Banco Nacional de Costa
-Rica tendrá una Sección de Juntas Rurales de Crédito Agrícola, encargada
-de promover el crédito agrícola y el mejoramiento económico y social del
-pequeño agricultor. Sus operaciones se regirán por las disposiciones
-generales de este Capítulo, de acuerdo con la política monetaria,
-crediticia y bancaria de la República.
+CAPITULO VII (*)
+Sección de Juntas Rurales de Crédito Agrícola y Oficinas de Crédito Rural al Pequeño Agricultor
+(*) ( Este capítulo fue reformado en su totalidad por la Ley Nº 2147 de 19 de julio de 1957. Asimismo, ver el artículo 5º, de las Disposiciones Transitorias de esta Ley)
+Artículo 88.-
+Los Bancos de Costa Rica y Crédito Agrícola de Cartago, podrán tener Secciones de Juntas Rurales de Crédito Agrícola o Juntas de Crédito al Pequeño Agricultor, encargadas de promover el crédito agrícola y el mejoramiento económico y social del pequeño agricultor. Sus operaciones se regirán por las disposiciones generales de este capítulo, de acuerdo con la política monetaria, crediticia y bancaria de la República.
+( Así reformado TACITAMENTE por el artículo 1º de la Ley de Disolución del Banco Anglo Costarricense Nº 7471 del 20 de diciembre de 1994, que eliminó la mención del Banco Anglo)
+El Banco Nacional de Costa Rica tendrá un Departamento de Crédito Rural, encargado asimismo, de promover el crédito agrícola y el mejoramiento económico y social del pequeño agricultor. Sus operaciones se regirán igualmente por las disposiciones generales de este capítulo y, en lo conducente, estarán de acuerdo con la política monetaria, crediticia y bancaria de la República.
+El Departamento tendrá especialmente las siguientes finalidades y atribuciones:
+a) Impulsar y facilitar el uso adecuado del crédito agrícola y el mejoramiento económico y social del pequeño agricultor, de conformidad con la política monetaria, crediticia y bancaria de la República;
+b) Promover un sistema equitativo en la distribución de la tierra y su mejor y gradual explotación, mediante planes racionales para parcelar y colonizar, lo mismo que por medio de oportunas y adecuadas facilidades de crédito;
+c) Procurar el mejoramiento gradual de las condiciones de vida de los trabajadores del campo y de los pequeños propietarios, y el fortalecimiento de la familia campesina, mediante la explotación económica y racional de la tierra; para ese efecto dará la orientación debida en colaboración con los ministerios respectivos y los organismos estatales especializados;
+d) Organizar un sistema de ayuda técnica para los pequeños agricultores, promoviendo para ese efecto la cooperación de los diversos organismos nacionales e internacionales especializados en este tipo de actividad.
+e) Desarrollar un programa de construcción de viviendas rurales para el pequeño agricultor y trabajador del campo el cual será encauzado primordialmente hacia la formación de Comunidades Rurales, con el fin de facilitar el desarrollo y aprovechamiento en su mayor grado de los servicios de escuela, cañería, energía eléctrica, asesoramiento técnico, sanitario y de cualesquiera otros que faciliten el desarrollo y mejoramiento de la vida material y moral en la población rural.
+Para este programa el Departamento de Crédito Rural, Tierras y Colonias se constituye en coordinador de los ministerios y organismos estatales especializados en la realización de las distintas funciones o servicios que deban intervenir en la formación y buen desarrollo de Comunidades Rurales.
+Para estos fines deberá otorgar créditos individuales para construir, mejorar o trasladar viviendas, créditos colectivos para la construcción de edificios de utilidad comunal y créditos a instituciones autónomas o personas en función de servicio público.
+Dicho programa será realizado bajo la dirección técnica del INVU y de cualquier otro organismo especializado; y
+f) Promover y realizar una efectiva coordinación entre los programas nacionales cooperativistas y los de crédito rural.
+( Así reformado por el artículo 38 de la ley Nº 2466 de 9 de noviembre de 1959)
+( NOTA: La ley Nº 3042 de 10 de octubre de 1962, creó el Instituto de Tierras y Colonización, el cual absorbió el Activo y el Pasivo del Departamento de Tierras y Colonias del Banco Nacional, mencionado a partir del párrafo 2º del presente artículo)

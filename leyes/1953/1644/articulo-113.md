@@ -1,18 +1,7 @@
-Artículo 113.- Ningún Banco comercial del Estado podrá efectuar
-operaciones de crédito, directa e indirectamente, con:
-a) Los miembros de su propia Junta Directiva, y sus ascendientes,
-descendientes, cónyuges y demás parientes por consanguinidad o afinidad
-hasta el segundo grado inclusive; y
-b) Las sociedades mercantiles y cooperativas, de la cuales los miembros
-de la Junta Directiva o funcionarios administrativos del propio Banco
-sean representantes legales, o bien que posean acciones, cuotas u otras
-participaciones de capital, iguales o superiores al 50% del que
-estuviere acordado.
-Esta prohibición no se extenderá a los préstamos realizados antes
-del nombramiento respectivo de la persona que se trate.
-Los estatutos de los Bancos comerciales particulares contendrán las
-disposiciones normativas relacionadas con la concesión de créditos, en
-forma directa e indirecta, a las personas citadas en los incisos a) y b).
-En todo caso, para conceder dichos préstamos se requerirá el respectivo
-acuerdo de la Junta Directiva y la aprobación expresa, por escrito, del
-Auditor General de Bancos.
+CAPITULO X
+Otras operaciones
+Artículo 113.-
+Los bancos comerciales podrán aceptar y avalar letras de cambio y otros documentos de crédito, girados contra ellos mismos o contra otras personas, y expedir cartas de crédito, siempre que unos y otros tengan un plazo de vencimiento que no exceda de un año.
+También podrán los bancos comerciales garantizar obligaciones por cuenta de terceros, cuyos plazos y otras condiciones serán fijados de manera general por el Banco Central.
+Cuando las operaciones a que se refiere este artículo no se realicen mediante la entrega efectiva de las sumas aceptadas o garantizadas por el Banco, quedarán sujetas a los preceptos legales y reglamentarios aplicables a la concesión de créditos.
+( Así reformado por el artículo 1º de la ley Nº 3113 de 9 de abril de 1963.)

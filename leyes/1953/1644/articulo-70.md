@@ -1,26 +1,8 @@
-Artículo 70.- Todos los créditos que concedan los Bancos comerciales
-deberán ser pagados por los prestatarios en la fecha de vencimiento, sin
-perjuicio de que puedan ser pagados, total o parcialmente, con
-anterioridad a dicha fecha, en cuyo caso, tomando en cuenta la índole de
-la operación, deberán hacer la devolución de los intereses cobrados por
-anticipado y no devengados en la fecha del pago. Su cancelación o
-amortización deberá adaptarse a la naturaleza de la inversión y a la
-capacidad de pago de los deudores.
-El pago del principal e intereses de cualquier crédito concedido por
-los Bancos comerciales podrá ser pactado por cuotas periódicas, pagaderas
-en plazos no mayores de un año.
-En los créditos a plazo mayor de tres años, deberán estipularse
-abonos periódicos adecuados para su normal amortización, salvo en los
-casos en que la inversión no comience a producir sino hasta después de un
-cierto lapso, durante el cual el pago de las amortizaciones podrá ser
-propuesto. Toda deuda constituída a favor de un Banco comercial, y
-pagadera por partes o en cuotas periódicas, o cuyos intereses se paguen
-en períodos distintos al plazo final del crédito, llevará implícita la
-condición de que el total de la deuda se considerará vencido y
-judicialmente exigible, con sólo la falta de pago de un período de
-intereses o de una de las cuotas o partes del principal que se hubieren
-convenido, sin perjuicio de que el deudor reconozca intereses moratorios
-sobre el monto del abono atrasado a capital.
-No podrá efectuarse ningún pago, ya sea parcial o total, sin que
-hayan sido cancelados previamente los intereses devengados hasta la fecha
-de dicho pago.
+Artículo 70.-
+Todos los créditos que concedan los bancos comerciales deberán ser pagados por los prestatarios en la fecha de su vencimiento, sin perjuicio de que el pago pueda efectuarse, total o parcialmente, con anterioridad a esa fecha. En este caso, según la índole de la operación, los bancos deberán devolver los intereses cobrados por anticipado y no devengados a la fecha de pago.
+La cancelación o amortización deberá adaptarse a la naturaleza de la inversión y a la capacidad de pago de los deudores.
+El pago del principal y de los intereses de cualquier crédito concedido por los bancos comerciales podrá pactarse por cuotas periódicas, pagaderas en plazos no mayores de un año. Los bancos comerciales quedan facultados para establecer tasas de interés variables y ajustables periódicamente en todos sus departamentos, conforme con las políticas del Banco Central de Costa Rica.
+En los créditos a plazo mayor de tres años, deberán estipularse abonos periódicos adecuados para su normal amortización, salvo en los casos en que la inversión no comience a producir sino hasta después de cierto lapso, durante el cual el pago de las amortizaciones podrá ser pospuesto. Toda deuda constituida a favor de un banco comercial, pagadera por partes o en cuotas periódicas, o cuyos intereses se paguen en períodos distintos al plazo final del crédito, llevará implícita la condición de que el total de la deuda podrá considerarse vencido y judicialmente exigible, con sólo la falta de pago de un período de intereses o de una de las cuotas o partes del principal que se hubieren convenido, sin perjuicio de que el banco cargue intereses moratorios sobre el monto del abono atrasado al capital. a tasas que podrán ser superiores hasta en dos puntos porcentuales sobre la tasa pactada para la obligación. No podrá efectuarse ningún pago, parcial o total, sin que hayan sido cancelados previamente los intereses devengados hasta la fecha de dicho pago.
+En los juicios ejecutivos promovidos por un banco comercial, bastará para despachar la ejecución, la presentación una fotocopia del documento original en que conste la obligación, debidamente certificada por la Gerencia, la cual será título ejecutivo para esos efectos. El Banco sólo estará obligado a presentar el documento original cuando la fotocopia sea impugnada por quien figure con interés o cuando la autoridad judicial lo exija.
+Tampoco estará obligado a comprobar la personería de su representante legal en cada juicio; bastará que lo haga por una sola vez y para ello cada oficina judicial en donde litigue, el representante legal llevará un registro de personerías. En la certificación donde conste la personería se deberá indicar el plazo de vigencia de esta última.
+( Así reformado por Ley Nº 7107 de 4 de noviembre de 1988, artículo 4º).

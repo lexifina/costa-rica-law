@@ -1,8 +1,4 @@
-Artículo 145.- En todo lo referente a la organización interna de los
-Bancos privados, se aplicarán las disposiciones de los Capítulos III y IV
-del Título II de esta Ley Orgánica, en lo que fuere racionalmente
-aplicable y tomando la consideración el carácter de entidades
-particulares que tienen estos Bancos.
-Igualmente regirán para los Bancos privados las estipulaciones
-referentes a vigilancia y fiscalización de los Bancos, prescritas en el
-Capítulo III del Título I de esta.
+Artículo 145.-
+La elección de Junta Directiva deberá efectuarse forzosamente mediante votación, siendo prohibido hacerla por simple aclamación. Toda elección deberá ser comunicada inmediatamente al Superintendente General de Entidades Financieras (*), a quien deberá remitirse copia del acta de la asamblea general de accionistas en que se hubiere efectuado, reducida a escritura pública. Las vacantes que se produjeren deberán ser llenadas dentro de la mayor brevedad posible, en la misma forma y con los mismos requisitos que las elecciones anuales.
+La Junta elegirá de su seno un Presidente y un Vicepresidente, que tendrán las funciones propias de sus respectivos cargos, y cuyo nombramiento deberá ser comunicado al Superintendente General de Entidades Financieras (*), remitiéndole copia del acta respectiva, debidamente autenticada en la forma ya señalada.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

@@ -1,7 +1,4 @@
-Artículo 33.- La asistencia puntual de los miembros de las Juntas
-Directivas a las sesiones les dará derecho al cobro de honorarios, en
-forma de dietas fijas, que irán determinadas claramente en los
-presupuestos anuales del Banco, y que serán las únicas remuneraciones que
-podrán percibir por sus servicios en el desempeño de sus funciones. Los
-Gerentes, Subgerentes y demás empleados del Banco que asistieren a las
-sesiones no tendrán derecho al cobro de dietas.
+Artículo 33.-
+La asistencia puntual de los miembros de las juntas directivas, a las sesiones les dará derecho al cobro de dietas fijas, que irán determinadas claramente en los presupuestos anuales del banco. Esta será la única remuneración que podrán percibir por sus servicios en el desempeño de sus funciones. El monto de las dietas lo determinará periódicamente el Consejo de Gobierno. Los gerentes, los subgerentes y los demás empleados del banco que asistieren a las sesiones no tendrán derecho al cobro de las dietas.
+( Así reformado el artículo 4 de la Ley No. 7107 de 4 de noviembre de 1988)
+(Nota de Sinalevi: Mediante el artículo 6° de la ley sobre Pago de Dietas a Directivos de Instituciones Autónoma, N° 3065 del 20 de noviembre de 1962, se indica que se modifica en lo conducente este numeral. Por su parte el artículo 3º de dicha establecer que: "Las Juntas Directivas de las instituciones autónomas no podrán celebrar más de ocho sesiones remuneradas por mes, incluyendo ordinarias y extraordinarias, éstas cuando sean absolutamente necesarias").

@@ -1,23 +1,12 @@
-Artículo 73.- Queda estrictamente prohibido a los Bancos
-comerciales:
-1) Realizar operaciones de crédito que en cualquier forma contravengan
-los preceptos legales y reglamentarios, salvo las que sin estar
-prohibidas, fueren compatibles con la naturaleza técnica de los Bancos
-Comerciales y necesarias para el debido cumplimiento de sus deberes y
-funciones. Los miembros de las Juntas Directivas, Gerentes,
-funcionarios y empleados de los Bancos que autoricen o consientan alguna
-operación prohibida, incurrirán en las responsabilidades prescritas en
-el artículo 28 de esta ley.
-2) Conceder créditos para fines de especulación; y
-3) Participar directa e indirectamente en empresas agrícolas,
-industriales, comerciales o de cualquier otra índole, y comprar
-productos, mercaderías y bienes raíces que no sean indispensables para
-su normal funcionamiento. Se exceptúan de esta disposición la
-participación que los Bancos pudieran llegar a tener en el capital de
-instituciones financieras de orden público o semipúblico que llegaren a
-crearse y los Bancos que establecieren Almacenes Generales de Depósito
-de acuerdo con la ley en la materia, o que a la promulgación de la
-presente ley tuvieren ya participación en ellos, y únicamente con
-respecto a los negocios y operaciones que resulten del funcionamiento de
-tales Almacenes; así como las operaciones autorizadas por el Título IV
-de esta ley.
+Artículo 73.-
+Queda estrictamente prohibido a los bancos comerciales:
+1) Realizar operaciones de crédito que en cualquier forma contravengan los preceptos legales y reglamentarios, salvo las que sin estar prohibidas, fueren compatibles con la naturaleza técnica de los bancos comerciales o necesarias para el debido cumplimiento de sus deberes y funciones. Los miembros de las Juntas Directivas, Gerentes, funcionarios y empleados de los bancos que autoricen o consientan alguna operación prohibida, perderán el puesto e incurrirán en las responsabilidades prescritas en el artículo 28 de esta ley.
+2) Conceder créditos para fines de especulación.
+El incumplimiento de esta norma les acarreará la pérdida del puesto a los responsables.
+3) Participar directa o indirectamente en empresas agrícolas, industriales, comerciales o de cualquier otra índole, y comprar productos, mercaderías y bienes raíces que no sean indispensables para su normal funcionamiento.
+Se exceptúa de esta disposición la participación que los bancos pudieran llegar a tener en el capital de las instituciones financieras de orden público o semipúblico que llegaren a crearse y los bancos que establecieren Almacenes Generales de Depósito de acuerdo con la respectiva ley , o que, a la fecha de la promulgación de la presente ley tuvieren ya participación en ellos, y únicamente con respecto a los negocios y operaciones que resulten del funcionamiento de tales almacenes.
+Exceptúanse también de estas disposiciones aquéllos casos en que los bancos comerciales del Estado, conjunta o separadamente, constituyan o empleen personas jurídicas de su exclusiva propiedad para la prestación exclusiva de servicios para ellos mismos, previa autorización de la junta directiva del Banco Central de Costa Rica o para la administración de bienes adjudicados en juicio.
+4) No obstante la prohibición establecida en el inciso anterior, los bancos del Estado con el objeto de asegurar la recuperación de sus créditos, podrán convenir con las empresas deudoras suyas, la intervención de éstas cuando se encuentren en estado de difícil situación económico financiera que les impida atender adecuadamente sus obligaciones. Con tal objeto, los bancos podrán nombrarles interventores, administradores o fiscalizadores, o ejercer cualquier tipo de vigilancia, fiscalización o control de la empresa y su administración.
+La decisión respectiva la tomará el banco por votación de por lo menos cinco miembros de su junta directiva, sin que incurra en responsabilidad alguna por tales actuaciones o a consecuencia de ellas, excepto que en su gestión medie negligencia inexcusable, dolo o culpa grave.
+Los gastos en que se incurra por tales intervenciones correrán por cuenta de la empresa intervenida.
+( Así reformado por Ley Nº 7107 de 4 de noviembre de 1988, artículo 4º).

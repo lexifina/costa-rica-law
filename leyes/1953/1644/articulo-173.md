@@ -1,11 +1,5 @@
-Artículo 173.- Si un Banco privado desea poner fin a sus
-operaciones, o si transcurrido el plazo de su existencia legal no se
-hubiere constituído de nuevo, sus negocios podrán ser liquidados por una
-Junta Liquidadora nombrada por los accionistas en asamblea general.
-La liquidación deberá llevarse a cabo bajo vigilancia del Auditor
-General de Bancos, quien podrá exigir a esta Junta todas las garantías
-que estime convenientes y quedará facultado para pedir, en cualquier
-momento, la presentación de los libros y demás documentos del Banco e
-informes sobre los actos y procedimientos de la Junta, con el fin de
-cerciorarse de la forma en que se lleva a cabo la liquidación y de que
-los intereses de los acreedores están ampliamente garantizados.
+Artículo 173.-
+Después de efectuados todos los pagos a que se refiere el artículo 172 de esta ley, y depositada en el Banco Central, además, una provisión para los créditos que no hubieren sido reclamados, siempre que hubiere fondos suficientes para este efecto, la Junta Liquidadora convocará a los accionistas y asociados del Banco a una asamblea general, mediante la publicación de tres avisos, con anticipación de quince días, en el Boletín Judicial.
+La asamblea de accionistas o asociados podrá pedir a la Junta Liquidadora que continúe la liquidación, o nombrar otra comisión que se haga cargo de ella bajo la supervigilancia del Superintendente General de Entidades Financieras.
+( Así reformado por Ley Nº 6894 de 22 de setiembre de 1983, artículo 1º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

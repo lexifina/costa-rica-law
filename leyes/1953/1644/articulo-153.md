@@ -1,5 +1,3 @@
-Artículo 153.- Las pérdidas que sufriere un Banco durante un período
-semestral deberán ser cubiertas con las ganancias generales del mismo
-período. Cuando éstas no fueren suficientes para cubrirlas, el saldo
-restante se cargará a las Reservas hasta donde alcanzare y, agotadas
-éstas, al Capital, con aprobación de Auditor General de Bancos.
+Artículo 153.-
+El ejercicio financiero de los bancos privados será el año natural, pero al cierre del último día hábil de cada semestre harán una liquidación completa de sus ganancias y pérdidas que deberá ponerse en conocimiento del Superintendente General de Entidades Financieras (*).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

@@ -1,17 +1,2 @@
-Artículo 129.- Los bonos hipotecarios serán firmados en facsímil por
-el Presidente y el Gerente del Banco que los emita. Expresarán
-claramente el valor nominal del título, el plazo, el tipo de interés, las
-condiciones de pago del capital y de los intereses, la fecha de su
-emisión y las demás estipulaciones pertinentes. Llevarán anexos cupones
-numerados y debidamente individualizados para el pago de los respectivos
-intereses.
-Los bonos se emitirán en series diferenciadas, y deberán ser
-numerados. Los que pertenezcan a una misma serie estarán sujetos a las
-mismas condiciones y tendrán las características y seguridades que
-determinen los reglamentos aplicables.
-Los bonos no podrán ser puestos en circulación sin haberlos anotado
-previamente en registros especiales que para tal efecto llevará el
-Auditor General de Bancos, quien antes de inscribirlos, deberá
-cerciorarse de que hayan sido llenadas todas las exigencias legales y
-reglamentarias. Aprobada su inscripción, el Auditor pondrá en cada
-título la constancia respectiva.
+Artículo 129.-
+Serán aplicables a las operaciones de crédito de los Departamentos Hipotecarios las disposiciones de los artículos 62 a 73, inclusive, excepto el artículo 67, todos de la presente ley. Su aplicación ser hará tomando en consideración la naturaleza especial de los departamentos como bancos hipotecarios, así como la circunstancia de que, en todo caso, las garantías otorgadas a su favor serán siempre hipotecarias; y sin perjuicio de las disposiciones contenidas en este título, que en caso de contradicción prevalecerán sobre aquéllas.

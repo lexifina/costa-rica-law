@@ -1,8 +1,7 @@
-Artículo 125.- Serán aplicables a las operaciones de crédito de los
-departamentos hipotecarios las disposiciones de los artículos 62 a 73,
-inclusive, excepto el artículo 67, todos de la presente ley. Su
-aplicación se hará tomando en consideración la naturaleza especial de los
-departamentos como Bancos Hipotecarios, así como la circunstancia de que,
-en todo caso, las garantías otorgadas a su favor serán siempre
-hipotecarias; y sin perjuicio de las disposiciones contenidas en este
-Título, que en caso de contradición prevalecerán sobre aquéllas.
+Artículo 125.-
+Los Departamentos Hipotecarios, financiarán sus operaciones con los siguientes recursos financieros:
+1) Con sus capitales y reservas legales.
+2) Con la emisión y colocación de los Bonos Hipotecarios que de acuerdo con esta ley podrán emitir para ese objeto.
+3) Con la contratación de empréstitos en el país o en el extranjero, sujetándose a lo dispuesto en el artículo 122 de la Ley Orgánica del Banco Central; y
+4) Con los que les asignen otras leyes.
+( Así reformado este inciso por el artículo 24 de la ley Nº 2466 de 9 de noviembre de 1959).

@@ -1,3 +1,8 @@
-Artículo 165.- En los casos a que se refiere el inciso 17) del
-artículo 163 de esta ley, el Auditor tendrá la facultad de determinar las
-formalidades que se observarán en las reuniones de acreedores.
+Artículo 165.-
+Inmediatamente después de que se haya hecho la declaratoria de quiebra, el Superintendente (*) convocará a los acreedores del banco fallido para que, en reunión que deberá efectuarse con la mayor brevedad posible, nombren un representante propietario y uno suplente en la junta liquidadora. Así mismo, convocará a los accionistas o asociados, por separado, para que de igual modo elijan el representante propietario y el suplente que les corresponda.
+Una y otra convocatoria deben hacerse por avisos que se publicarán tres veces consecutivas en el Boletín Judicial y en dos diarios de circulación nacional. Entre la primera publicación y las referidas reuniones debe mediar por lo menos un término de ocho días hábiles, dentro del cual podrán quedar incluidos los de la publicación y celebración de las reuniones.
+Podrán tomar parte en las respectivas votaciones quienes aparezcan en los libros del banco fallido como acreedores o como accionistas o asociados, así como quienes con documento auténtico demuestren serlo.
+La votación de los acreedores se hará de acuerdo con las reglas del artículo 946 del Código Civil. La de los accionistas por mayoría, a razón de un voto por acción. En caso de asociados, a razón de un voto por asociado.
+El juez a quo aprobará la elección hecha por los interesados, y si por cualquier motivo no se efectuaren las reuniones para verificarla, o en ellas no hubiere acuerdo, hará directamente los nombramientos respectivos, procurando dar representación a las entidades remisas.
+( Así reformado por ley Nº 6894 de 22 de setiembre de 1983, artículo 1º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

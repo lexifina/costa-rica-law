@@ -1,0 +1,5 @@
+Artículo 177.-
+Si un banco privado desea poner fin a sus operaciones, o si transcurrido el plazo de su existencia legal no se hubiere constituido de nuevo, los negocios podrán ser liquidados por una Junta Liquidadora nombrada por los accionistas o asociados en asamblea general.
+La liquidación deberá llevarse a cabo bajo la vigilancia del Superintendente (*) General de Entidades Financieras, quien podrá exigir a esta junta todas las garantías que estime convenientes, y quedará facultado para pedir, en cualquier momento, la presentación de los libros y demás documentos del banco, e informes sobre los actos y procedimientos de la junta, con el fin de cerciorarse de la forma en que se lleve a cabo la liquidación y de que los acreedores estén ampliamente garantizados.
+( Así reformado por Ley No. 6894 de 22 de setiembre de 1983, artículo 1º).
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)

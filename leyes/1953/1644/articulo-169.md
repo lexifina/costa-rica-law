@@ -1,10 +1,4 @@
-Artículo 169.- Después de efectuados todos los pagos a que se
-refiere el artículo 168 de esta ley, y depositada en el Banco Central,
-además, una provisión para los créditos que no hubieren sido reclamados,
-siempre que hubiere fondos suficientes para este efecto, la Junta
-Liquidadora convocará a los accionistas del Banco a una asamblea general,
-mediante la publicación de tres avisos con anticipación de quince días en
-el "Boletín Judicial".
-La asamblea de accionistas, podrá pedir a la Junta Liquidadora que
-continúe la liquidación, o nombrar otra comisión que se haga cargo de
-ella bajo la supervigilancia del Auditor General de Bancos.
+Artículo 169.-
+En los casos a que se refiere el inciso 17) del artículo 167 (**) de esta ley, el Superintendente (*) tendrá la facultad de determinar las formalidades que se observarán en las reuniones de acreedores.
+(* Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica Nº 7558 de 3 de noviembre de 1995)
+(** Así modificada tácitamente la numeración del citado artículo, según la adición practicada por el numeral 30 de la ley Nº 2466 de 9 de noviembre de 1969, que corrió el articulado. Anteriormente hacía referencia al 160)
