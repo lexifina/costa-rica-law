@@ -1,0 +1,1 @@
+Artículo 20.—El presidente municipal, calificará los asuntos de trámite urgente y los enviará a la secretaría, para incluirlos en el orden del día. En sesión podrán incluirse los de trámite urgente, por iniciativa del presidente o de uno o más regidores o por acuerdo de las dos terceras partes.

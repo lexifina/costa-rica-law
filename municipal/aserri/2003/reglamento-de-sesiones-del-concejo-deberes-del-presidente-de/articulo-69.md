@@ -1,0 +1,1 @@
+Artículo 69.—Cuando por la distancia los regidores después de la sesión tengan dificultad para regresar a la casa ese día se les pagará la cena, desayuno y el hospedaje de acuerdo a lo contemplado en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 40.—Toda comisión estará integrada al menos por tres miembros. Estos deberán escogerse necesariamente de los regidores propietarios y suplantes, representantes de las fracciones políticas que tienen representación en la Municipalidad. Los funcionarios municipales y los particulares podrán participar en las sesiones con carácter de asesores.

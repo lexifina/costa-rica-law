@@ -1,0 +1,1 @@
+Artículo 8º—La convocatoria se notificará personalmente al funcionario o en su casa de habitación; mediante las sesiones, teléfono o fax, previamente señalado por cada miembro del Concejo. En uno u otro caso, firmará la persona que reciba la notificación debiendo la autoridad o el funcionario notificador hacerlo constar en el acta del notificador.

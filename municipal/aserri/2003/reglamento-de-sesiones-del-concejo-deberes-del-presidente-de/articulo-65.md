@@ -1,0 +1,1 @@
+Artículo 65.—Se pagará desayuno cuando por representar a la Municipalidad haya que salir antes de las seis de la mañana. Almuerzo cuando haya que salir antes de las doce de la mañana. Cena cuando tenga que regresar después de las dieciocho horas.

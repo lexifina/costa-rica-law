@@ -1,0 +1,1 @@
+Artículo 62.—Los regidores podrán gozar del beneficio del pago de gastos de transporte, hospedaje y alimentación cuando su residencia se encuentra a más de 20 kilómetros o cuando en representación de la Municipalidad tengan que desplazarse a distancias iguales o mayores a la indicada, en este caso privará el criterio del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 53.—Finalizadas las exposiciones de los particulares el presidente concederá la palabra a los regidores que lo soliciten con el fin de intercambiar brevemente opiniones con los visitantes sobre el adulto de que se trate.

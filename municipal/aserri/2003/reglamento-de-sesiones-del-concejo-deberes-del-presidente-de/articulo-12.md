@@ -1,0 +1,1 @@
+Artículo 12.—El regidor propietario que llegase después de transcurridos los quince minutos contados a partir de la hora señalada para iniciar la Sesión, perderá el derecho de devengar la dieta, aunque no se hubiere efectuado su sustitución; salvo que de previo haya obtenido el permiso del Concejo Municipal. Si no hubiere sido sustituido conservará su derecho al voto.

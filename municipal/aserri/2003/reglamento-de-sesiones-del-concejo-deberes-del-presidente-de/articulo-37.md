@@ -1,0 +1,1 @@
+Artículo 37.—Para referirse a los asuntos en discusión el presidente del Concejo iniciará su intervención con las siguientes palabras. “Señores Regidores” y los regidores iniciarán sus intervenciones con las palabras, “Señor presidente, Señores Regidores”.

@@ -1,0 +1,1 @@
+Artículo 24.—El Concejo recibirá audiencias los días que éste acuerde, en las que tendrán 15 minutos para hacer su exposición y se someterán a una breve discusión. En casos especiales y cuando así lo considere el Concejo, se ampliará el tiempo de atención. El asunto se retomará en el capítulo de regidores.
