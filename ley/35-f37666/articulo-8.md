@@ -1,0 +1,1 @@
+Artículo 8°.—Del plano a que se refiere el artículo I° se sacarán ejemplares autorizados por la Secretaria de Fomento para distribuirlos así: uno en cada una de las Secretarías de Estado, otro en la Gobernación de Limón y otro en la oficina de la Primera autoridad política de Cahuita.

@@ -1,0 +1,1 @@
+Artículo 3°.—Cada porción excepto la n° 12 que se destinará para escuelas, queda dividida en seis lotes de 25 metros 66 centímetros de frente, por 48 metros 50 centímetros de fondo, excepto los lotes irregulares que tendrán la superficie indicada en el plano.

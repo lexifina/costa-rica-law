@@ -1,0 +1,2 @@
+Artículo 2°.—De conformidad con ese plano, una vez aprobado por la Secretaria de Fomento, la población se compondrá de veintidós porciones de 74 áreas 69 centiáreas cada una separadas una de otras por calles de 15 metros de ancho. Estas porciones o lotes se numerarán de I a 22.
+Cuando por destrucción o refección de construcciones quedaren desocupadas fajas de terreno necesarias para dar a las calles de la población ese ancho fijado, el desposeimiento no es indemnizable.
