@@ -1,3 +1,7 @@
+Nº 6144
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+La siguiente
 Ley Orgánica del Colegio Profesional de Psicólogos de Costa Rica
 CAPITULO I
 Creación y Fines
