@@ -1,0 +1,1 @@
+Artículo 13.—Las Juntas de Educación de la enseñanza primaria y secundaria del sector público deberán cancelar las facturaciones por servicios de agua potable y alcantarillado sanitario generadas a partir del 11 de marzo del 2000.

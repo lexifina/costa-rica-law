@@ -1,0 +1,1 @@
+Artículo 5º—La aplicación de tarifas especiales y la condonación de deudas en el servicio de agua para escuelas y colegios públicos, promulgada mediante Ley Nº 7981, publicada el 10 de marzo del 2000 y vigente a partir de su publicación.

@@ -1,0 +1,1 @@
+Artículo 15.—Las Juntas de Educación de los centros públicos de enseñanza primaria y secundaria se comprometen a mantener en buen estado el sistema de distribución del agua potable, las tuberías y llaves de acceso al agua, así como el control del consumo por parte del centro educativo.

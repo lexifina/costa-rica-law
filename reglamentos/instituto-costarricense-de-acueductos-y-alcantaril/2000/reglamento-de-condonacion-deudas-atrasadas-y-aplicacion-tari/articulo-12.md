@@ -1,0 +1,1 @@
+Artículo 12.—Multa. De comprobarse alguna fuga o desperdicio de agua causado por negligencia en el mantenimiento del sistema de distribución o el control del consumo, la Junta de Educación deberá pagar al AyA, una multa hasta de diez veces la tarifa básica mensual especial que, por el pago del agua, determine la ARESEP. (Artículo 3 de la Ley Nº 7981).
