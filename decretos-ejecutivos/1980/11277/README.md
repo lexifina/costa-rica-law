@@ -16,3 +16,4 @@ Reglamento de Tarifas Profesionales en Química e Ingeniería Química
 | 1 | 1980-03-25 | la propia norma |
 | 2 | 2001-02-26 | Decreto Ejecutivo 29387 (2001-02-26) |
 | 3 | 2002-03-11 | Decreto Ejecutivo 30268 (2002-03-11) |
+| 4 | 2005-02-22 | Decreto Ejecutivo 32378 (2005-02-22) |

@@ -1,2 +1,2 @@
-Artículo 8º—Estudios profesionales: Se cobrará a razón de un 2% del beneficio estimado del trabajo o costo del proyecto que origina el estudio, definido este último de común acuerdo entre el cliente y el profesional, siendo once mil ciento treinta y un colones noventa y cinco céntimos (¢ 11,131,95) el mínimo a cobrar.
-(Así reformado tacitamente por el artículo 1 del Decreto Ejecutivo N° 30268 de 11 de marzo del 2002)
+Artículo 8º—Estudios profesionales: Se cobrará a razón de un 2% del beneficio estimado del trabajo o costo del proyecto que origina el estudio, definido este último de común acuerdo entre el cliente y el profesional, siendo trece mil cuatrocientos quince colones con diez céntimos (¢13.415,10) el mínimo a cobrar.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32378 del 22 de febrero del 2005)
