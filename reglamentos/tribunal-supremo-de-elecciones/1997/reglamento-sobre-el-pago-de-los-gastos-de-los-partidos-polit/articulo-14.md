@@ -1,5 +1,9 @@
-Artículo 14.—Los tesoreros de los partidos políticos estarán obligados a informar trimestralmente al Tribunal Supremo de Elecciones de las contribuciones recibidas conforme al siguiente detalle.
-a) Nombres y números de cédulas de los contribuyentes.
-b) Monto del aporte recibido
+Artículo 14.—Los fondos provenientes de las contribuciones, donaciones o aportes privados que reciban los partidos políticos, deberán depositarse en una cuenta corriente única y exclusivamente dedicada a esos fondos en cualquier banco del Sistema Bancario Nacional. La apertura y cierre de la cuenta corriente respectiva, deberá ser comunicada formalmente al Tribunal dentro del plazo de tres días hábiles posteriores al evento correspondiente.
+Los tesoreros de los partidos políticos estarán obligados a informar trimestralmente al Tribunal Supremo de Elecciones de las contribuciones, donaciones o aportes recibidos conforme al siguiente detalle:
+a) Nombre y números de cédula de los contribuyentes.
+b) Monto del aporte recibido.
 c) Tratándose de personas jurídicas, se debe adjuntar certificación de su personería.
-Estos informes, deberán rendirse en forma mensual entre la convocatoria y la fecha de elección, y los mismos deben contener el reporte de las contribuciones recibidas cada trimestre o mes según sea el caso y no en forma acumulativa, toda vez que el Tribunal realizará dicha acumulación en sus bases de datos.
+Estos informes, deberán rendirse en forma mensual entre la convocatoria y la fecha de elección, y los mismos deben contener el reporte de las contribuciones recibidas en cada trimestre o mes según sea el caso y no en forma acumulativa.
+En los mismo plazos y con la misma regularidad, los tesoreros de los partidos políticos deberán suministrar, como anexo de los citados informes, el Auxiliar de la cuenta bancaria en donde conste el número de depósito, nombre, monto y número de cédula de cada donante, el estado de cuenta bancaria y estados financieros (Estado de Situación, Estado Ganancias y Pérdidas y Flujos de Efectivo), conforme a las normas internacionales de contabilidad y bajo los apercibimientos legales en caso de omisión.
+Los bancos del Sistema Bancario Nacional, bajo su responsabilidad, tomarán las medidas necesarias de control para que a esas cuentas corrientes no se acredite depósito alguno en forma anónima o sin identificar plena y fehacientemente al depositante.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto 004-2003 del Tribunal Supremo de Elecciones, publicado en La Gaceta No. 121 de 25 de junio de 2003.)

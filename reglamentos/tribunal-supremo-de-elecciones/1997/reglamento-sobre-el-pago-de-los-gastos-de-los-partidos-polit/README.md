@@ -15,3 +15,4 @@ Reglamento sobre el Pago de los Gastos de los Partidos Políticos del Tribunal S
 | --- | --- | --- |
 | 1 | 1997-06-26 | la propia norma |
 | 2 | 2001-11-28 | Reglamento 19 (2001-11-28) |
+| 3 | 2003-06-16 | Decreto TSE 4 (2003-06-16) |
