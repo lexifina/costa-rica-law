@@ -128,6 +128,8 @@ Rodenticidas, para uso exclusivo en explotaciones agrícolas, previa recomendaci
 Semillas, estacas y otros medios para la reproducción vegetal……………………………….. | 041,042 043,044 045, 054 071, 072 074, 075, 221 y 292-02-03
 Semillas para sembrar, bulbos, tubérculos y rizomas de plantas, productoras de flores o follajes, estacas, esquejes, árboles vivos y otras plantas..... (Mediante el punto II del artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982, se corrige la enumeración de las subpartidas. No obstante; al no coincidir la subpartida como la mercancía anterior la misma se ha transcrito) | 292-05-00 y las demás partidas conforme notas legales de la NAUCA
 Sufactantes…………………………………………… | 552-02-03
+Las materias primas y demás insumos que se incorporen o utilicen para producir agroquímicos, específicamente: fertilizantes, acariciadas, adherentes, bactericidas, fungicidas, hierbicidas, humectantes, insecticidas, molusquicidas, nematicidas, rodenticidas y coadyuvantes.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 15855 del 15 de noviembre de 1984)
 Ch) Herramientas e instrumentos manuales, con o sin mango, para ser usados en la actividad agrícola
 Mercancías | Partida NAUCA
 Alicates diablo……………………………………. | 699-12-02
