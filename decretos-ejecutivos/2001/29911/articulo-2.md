@@ -1,0 +1,1 @@
+Artículo 2º—Modifícanse, para el Consejo de Salud Ocupacional, los límites de gasto corriente presupuestario y de gasto corriente efectivo, establecidos en el artículo 3° del Decreto Ejecutivo Nº 28639-H y sus reformas, fijándolos en ¢89.4 millones.
