@@ -1,0 +1,1 @@
+Artículo 175.- El auditor tiene como función ejercer vigilancia y fiscalización constantes sobre la marcha administrativa y financiera del INFOCOOP. Dependerá directamente de la Junta Directiva y responderá ante ella por su gestión.

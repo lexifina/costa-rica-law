@@ -1,1 +1,1 @@
-Artículo 28—El INFOCOOP podrá autorizar el establecimiento de cualquier otro tipo de cooperativas no contemplado en las disposiciones anteriores, siempre que persiga fines de cooperación y se constituya de acuerdo con las disposiciones de esta ley.
+Artículo 28.- El INFOCOOP podrá autorizar el establecimiento de cualquier otro tipo de cooperativa no contemplado en las disposiciones anteriores, siempre que persiga fines de cooperación y se constituya de acuerdo con las disposiciones de esta ley.

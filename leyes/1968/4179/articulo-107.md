@@ -1,0 +1,1 @@
+Artículo 107.- Los comités de trabajo son organismos especializados para la producción de bienes y servicios, los cuales se establecerán de acuerdo a las actividades y a los estatutos de la cooperativa, formados por todos los trabajadores que participen en cada actividad productiva.

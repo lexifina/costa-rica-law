@@ -1,0 +1,3 @@
+Artículo 146.- Una vez descontados de los excedentes los porcentajes que fija la presente ley y los estatutos de cada cooperativa de autogestión, el resto de los recursos deberán ser depositados en el Fondo Nacional de Empresas de Autogestión.
+Dichos recursos se emplearán en la consolidación del sector, recibiendo una tasa de interés anual, igual a la fijada por el reglamento de administración del fondo para el financiamiento de las cooperativas de autogestión.
+Estos depósitos que hagan las empresas cooperativas podrán servir para realizar operaciones de garantía. Cuando la empresa requiera de dichos recursos, el fondo deberá proveerlos de acuerdo con lo que al respecto establezca el reglamento de administración del mismo.

@@ -1,1 +1,1 @@
-Artículo 93.—Al concluir el trámite de liquidación a que se refiere este capítulo, el Ministerio de Trabajo y Seguridad Social cancelará la inscripción correspondiente y procederá a publicar en el Diario Oficial, por tres veces consecutivas, la orden de cancelación.
+Artículo 93.- Al concluir el trámite de liquidación a que se refiere este capítulo, el Instituto Nacional de Fomento Cooperativo cancelará la inscripción correspondiente y procederá a publicar en el Diario Oficial, por tres veces consecutivas, la orden de cancelación.

@@ -1,1 +1,1 @@
-Artículo 47.—En sesión que deberá celebrarse después de la elección e nuevos miembros del Consejo de Administración se elegirán un Presiente, un Vicepresidente, un Secretario, los Vocales y las Comisiones de trabajo que establezcan los estatutos.
+Artículo 47.- En sesión que deberá celebrarse después de la elección de nuevos miembros del consejo de administración se elegirán un presidente, un vicepresidente, un secretario, los vocales y las comisiones de trabajo que establezcan los estatutos.

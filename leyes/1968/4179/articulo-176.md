@@ -1,0 +1,1 @@
+Artículo 176.- La Junta Directiva preparará un reglamento orgánico para el Instituto, en el cual se determinará su organización interna, el número y funciones de los departamentos, secciones y oficinas y demás extremos necesarios para garantizar su eficaz funcionamiento técnico y administrativo.

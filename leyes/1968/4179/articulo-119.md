@@ -1,0 +1,1 @@
+Artículo 119.- Corresponde a la Oficina de Planificación Nacional y Política Económica, la planificación y la coordinación interinstitucional de los esfuerzos, apoyo y asesoría de las instituciones del Estado a las cooperativas, por medio de la creación de un subsistema para dicho sector.

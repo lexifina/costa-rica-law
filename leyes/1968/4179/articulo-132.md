@@ -1,0 +1,1 @@
+Artículo 132.- El Banco Nacional de Costa Rica, por medio de sus departamentos de crédito, y los demás bancos del Sistema Bancario Nacional, podrán conceder créditos de mediano y largo plazo a las cooperativas formadas por asociados de escasos recursos, para que puedan hacer efectiva la inscripción de sus certificados de aportación en tales cooperativas.

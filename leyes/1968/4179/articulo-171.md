@@ -1,0 +1,1 @@
+Artículo 171.- El director ejecutivono podrá nombrar para que formen parte del personal del INFOCOOP, a quienes fueren cónyuges o estuvieren ligados con los miembros de la Junta Directiva, con él, con el subdirector o el auditor, por parentesco de consanguinidad hasta el tercer grado inclusive o de afinidad hasta el segundo grado, también inclusive.

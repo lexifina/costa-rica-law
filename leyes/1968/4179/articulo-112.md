@@ -1,0 +1,1 @@
+Artículo 112.- Los empleados, trabajadores temporales e hijos de los socios, mayores de 15 años, de las empresas cooperativas de autogestión gozarán de prioridad para ser admitidos en ellas como socios regulares.

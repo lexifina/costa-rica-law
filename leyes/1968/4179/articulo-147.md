@@ -1,0 +1,3 @@
+Artículo 147.- Como apoyo al Fondo Nacional de Empresas Cooperativas de Autogestión, el Sistema Bancario Nacional, en su programa crediticio anual, asignará para el financiamiento de las empresas cooperativas de autogestión, un monto no menor del 1% del total de su cartera de crédito.
+Para tal efecto el Banco Central deberá incluirlo dentro de sus políticas crediticias y los bancos estarán obligados a acatarlas. Corresponderá a la Superintendencia General de Entidades Financieras(*) velar por el fiel cumplimiento de esta disposición.
+(*)(Modificada su nomenclatura por el artículo 176° de la Ley Orgánica del Banco Central de Costa Rica, N° 7558 del 3 de noviembre de 1995)

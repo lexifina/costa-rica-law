@@ -1,0 +1,3 @@
+Artículo 134.- Refórmanse los artículos 1º y 3º de la ley Nº 2634 del 20 de setiembre de 1960 (Cooperativa para operación del Matadero Nacional de Montecillos) para que se lean así:
+"Artículo 1º.-Inciso a) La cooperativaserá administrada por un Consejo de Administración compuesto por 7 miembros, seis de los cuales serán nombrados por la asamblea de asociados de la cooperativa y uno por el Consejo Nacional de Producción en tanto éste tenga en su poder acciones de la cooperativa".
+"Artículo 3º.-Cuando los asociados de la cooperativa y el Consejo Nacional de Producción así lo acuerden el Consejo Nacional de Producción deberá ir cediendo a ellos sus acciones mediante el pago de las mismas por su valor nominal".

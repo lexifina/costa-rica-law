@@ -1,0 +1,1 @@
+Artículo 118.- La Oficina de Planificación Nacional y Política Económica, a través del fondo de preinversión u otros fondos, destinados a propósitos similares, dispondrá recursos para el financiamiento, en condiciones preferenciales, de los estudios necesarios para la constitución de cooperativas de autogestión.

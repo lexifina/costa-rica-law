@@ -1,1 +1,5 @@
-Artículo 102.—En las cooperativas organizadas por el ITCO en las cuales este Instituto tuviera derecho a una mayoría de miembros del Consejo de Administración, el INFOCOOP tendrá derecho a nombrar la mitad de los miembros que tuviera derecho el ITCO.
+Artículo 102.- Las empresas podrán constituirse con bienes o tierras aportadas por sus socios:
+a) En el caso de socios que posean bienes de producción de los cuales se derive su subsistencia, deben entregarlos en calidad de donación o venta a la empresa o al Consejo Nacional de Cooperativas para ser utilizadas de acuerdo a lo que disponga la Comisión Permanente de Cooperativas de Autogestión, de acuerdo con lo pactado;
+b) El hecho de dar una donación no implica privilegio alguno para el socio respecto de la empresa;
+c) En caso de aporte o venta, la asamblea general decidirá el valor de los bienes de acuerdo con el asociado, o por medio de un avalúo hecho por la Dirección General de la Tributación Directa cuando se trate de un inmueble, o de un perito que facilitará el Estado por medio de sus instituciones, cuando se trate de otra clase de bien.
+d) Cuando los bienes que se entregan a la empresa no tienen el mismo valor, los asociados pueden acordar una donación o aporte igualitario, las diferencias serán tratadas como se establece en el inciso c).

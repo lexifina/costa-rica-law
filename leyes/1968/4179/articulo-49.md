@@ -1,2 +1,3 @@
-Artículo 49.—Corresponde al Comité de Vigilancia elegido por la Asamblea, que se integrará con un número no menor de tres asociados, el amen y fiscalización de todas las cuentas y operaciones realizadas por la Cooperativa, e informar lo que corresponda ante la Asamblea.
-La responsabilidad solidaria de los miembros del Consejo de Administración y del Gerente alcanza a los miembros del Comité de Vigilancia por los actos que éste no hubiere objetado oportunamente.
+Artículo 49.- Corresponde al comité de vigilancia elegido por la asamblea, que se integrará con un número no menor de tres asociados, el examen y fiscalización de todas las cuentas y operaciones realizadas por la cooperativa, e informar lo que corresponda ante la asamblea.
+La responsabilidad solidaria de los miembros del consejo de administración y del gerente alcanza a los miembros del comité de vigilancia por los actos que éste no hubiere objetado oportunamente.
+Quedan exentos de responsabilidad los miembros del comité que salven expresamente su voto dentro del mes siguiente al acto de tomarse la decisión respectiva.
