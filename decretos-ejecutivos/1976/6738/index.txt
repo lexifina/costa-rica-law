@@ -197,8 +197,11 @@ articulo-196.md
 articulo-197.md
 articulo-198.md
 articulo-199.md
+articulo-200.md
 articulo-201.md
+articulo-202.md
 articulo-203.md
+articulo-204.md
 articulo-205.md
 articulo-206.md
 articulo-207.md
