@@ -1,0 +1,1 @@
+Artículo 3º—Modificar el artículo 9 que dirá: El punto focal de la Comisión será el que designe la o el Jerarca del Ministerio del Ambiente y Energía, el cual debe ser escogido de los miembros indicados en los incisos c, d, e, y f, del artículo 3.
