@@ -14,3 +14,4 @@ Reglamento para la regulación y control del uso eficiente del combustible a pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-15 | la propia norma |
+| 2 | 2003-04-08 | Reglamento 0 (2003-04-08) |
