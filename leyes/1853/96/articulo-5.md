@@ -1,0 +1,2 @@
+Artículo 5°.- Sin perjuicio de que el Fiscal de Hacienda examine los expedientes y las tasaciones que en ellos se haya hecho cuando el Gobierno lo determine, el Intendente General mandará publicar mensualmente por la Gaceta el conocimiento que haya recibido de los Jueces respectivos de los derechos de actuación que hayan enterado en la Administración principal.
+Dado en la ciudad de San José a los once días del mes de febrero de mil ochocientos cincuenta y tres.

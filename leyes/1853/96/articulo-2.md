@@ -1,0 +1,1 @@
+Artículo 2°.- Los indicados Jueces tasarán cada fin de mes los derechos causados en los expedientes, y deduciendo la 3° parte que les corresponde, enteraran también mensualmente en la Administración principal las dos terceras partes restantes, dando conocimiento al Intendente general de la cantidad a que ascienda.

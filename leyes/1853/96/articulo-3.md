@@ -1,0 +1,1 @@
+Artículo 3°.- El Intendente general inmediatamente que reciba este conocimiento, librará orden a la Administración principal con conocimiento de la Contaduría mayor, para que se forme el debido cargo de las cantidades que se deben enterar por derechos de actuación.
