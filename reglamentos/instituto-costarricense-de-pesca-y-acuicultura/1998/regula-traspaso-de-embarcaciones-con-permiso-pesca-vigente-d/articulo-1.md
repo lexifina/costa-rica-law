@@ -6,4 +6,5 @@ Considerando:
 3°—Que corresponde al Incopesca regular, extender, suspender y cancelar los permisos de pesca, caza marina y construcción de embarcaciones.
 4°—Que el permiso de pesca que otorga el Incopesca es patrimonio del estado, no constituye título negociable por parte de persona alguna, no podrá enajenarse en ningún caso. Por lo tanto,
 ACUERDA:
-Artículo 1°—Si un permisionario que cuenta con una embarcación con permiso de pesca vigente, decidiere traspasar la embarcación, deberá de previo contar con la aprobación del Incopesca, caso contrario se le cancelará administrativamente el permiso.
+Artículo 1°—Si un permisionario que cuenta con una embarcación con permiso de pesca vigente decidiere traspasar o sustituir la embarcación, deberá de previo contar con la aprobación del INCOPESCA, la cual se supedita a una inspección física de demuestre la existencia de la embarcación, caso contrario se le cancelará administrativamente el permiso.
+(Así reformado mediante acuerdo tomado en Sesión N° 21 de 21 de enero del 2000)

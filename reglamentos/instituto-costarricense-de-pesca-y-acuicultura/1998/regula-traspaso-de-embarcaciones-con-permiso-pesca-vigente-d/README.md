@@ -14,3 +14,4 @@ Regula Traspaso de Embarcaciones con Permiso Pesca Vigente del Instituto Costarr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-07 | la propia norma |
+| 2 | 2000-01-21 | Reglamento 21 (2000-01-21) |
