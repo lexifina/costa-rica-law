@@ -1,0 +1,1 @@
+Artículo 2º—Corresponde al Ministerio de Salud, Caja Costarricense de Seguro Social, Consejo Nacional de la Persona Adulta Mayor y las Municipalidades en forma conjunta la realización de actividades para celebrar dicha fecha.
