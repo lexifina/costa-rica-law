@@ -162,8 +162,15 @@ S 75 58 W | 206.16 | 200 425 | 601 650
 A partir de este punto se sigue aguas abajo por la quebrada de Platanillo hasta el punto de origen de la presente descripción en coordenadas N 200 700, E 601 750.
 Área 8 Ha. 5 312,50 m2.
 (*) (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 8515 del 2 de mayo de 1978, se acordó excluir de la Reserva Indígena de Chirripó la finca conocida como "La Quebrada" y delimitada por los puntos cuyos rumbos, distancias y coordenadas, antes mencionada)
-Reserva de "El Tigre", situada al Este del río Pacuare y al Norte de la Reserva Bukeri.
+Reserva Indígena Cabécar de Awari(*), situada al Este del río Pacuare y al Norte de la Reserva Bukeri.
+(*) (Así modificada la denominación de la reserva anterior por el artículo 1° del decreto ejecutivo N° 10706 del 24 de octubre de 1979. Anteriormente se indicaba: "La Reserva de "El Tigre")
 (Así adicionada la reserva anterior por el artículo 6° del decreto ejecutivo N° 8515 del 2 de mayo de 1978)
+La Reserva Indígena Cabécar de Awari, se localiza en la hoja cartográfica del IGN, escala 1/50.000 Tucurrique 3545 I y está determinada por los puntos cuyas coordenadas se dan a continuación:
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
+Partiendo de la unión del río Pacuare con la Quebrada Temible (Alcantarilla) en N 217 700, E 586 050; continúa aguas arriba de la Quebrada Temible (Alcantarilla) hasta N 217 700, E 586 500; N 218 475, E 586 700; N 219 150, E 587 450; N 219 150, E 588 200; N 218 550, E 589 250; N 217 450, E 589 825; N 215 350, E 590 950; N 215 000, E 591 000; N 214 000, E 591 000; N 213 550, E 589 750; N 214 600, E 589 325; N 216 000, E 588 150; N 216 000, E 587 800; N 217 700, E 586 050, punto inicial de la presente descripción.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
+Área aproximada: 1 332 hectáreas.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
 HACIENDA CHIRRIPÓ NORTE Y BOCA ZENT
 La finca "Hacienda Chirripó Norte y Boca Zent" se localiza en las hojas Barbilla 3445 IV y Matina 3546 III, escala 1:50.000 del Instituto Geográfico Nacional.
 La finca se delimita como sigue:
@@ -214,6 +221,14 @@ S 24 27 E | 906.23 | 203 425 | | 598 800
 De este punto al punto de origen de la presente descripción en coordenadas N 203 390, E 600 000.
 Área aproximada 900 hectáreas.
 (Así adicionada la finca llamada "Bosque de Tsipiri-Wari anterior por el artículo 5° del decreto ejecutivo N° 10038 del 21 de mayo de 1979. Asimismo, por el artículo 6° del decreto ejecutivo antes mencionado, se estable que la finca "Tsipiri-Wari" tendrá un estatuto especial de "Bosque Protector" tal como lo define la Ley Forestal, a efecto de conservar indefinidamente el carácter forestal de esta zona. No se permite el establecimiento de cultivos, de potreros, ni de viviendas en esta área con excepción a casas forestales. El Bosque Protector de Tsipiri-Wari quedará como reserva de madera y de cacería de la región. La cacería será regulada de conformidad con las disposiciones légales existentes, de manera a mantener su potencial de fauna permanente. La vigilancia de toda esta área estará a cargo de los Guardas - Reserva Indígenas del TCO.")
+Finca "Sirac Bata", localizada en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, río Banano 3545 I.
+La finca Sirac Bata está delimitada por los puntos cuyas coordenadas se dan a continuación:
+Partiendo del vértice del Instituto Geográfico Nacional, NÍmari en N 211 488, E 619 679; N 212 675, E 618 900; N 212 700, E 620 675; N 212 450, E 620 825; N 212 000, E 620 400; N211 700, E 620 000; N211 375, E 620 000; de aquí al punto inicial de la presente descripción.
+Área aproximada: 142 hectáreas.
+(Así adicionada la Finca "Sirac Bata" anterior por el artículo 5° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
+Fincas de los señores Miguel López Salazar, Vicente López Salazar, Dimas López Salazar, situadas en Nimari (río Peje) de Zent y la finca del señor Hermógenes Segura Mora, situada en río Toro.
+Los límites exactos de estas fincas serán definidos por la Sección de Asuntos Indígenas del ITCO y medidas por el Departamento de Ingeniería Rural de esta Institución.
+(Así adicionada las Fincas de los señores Miguel López Salazar, Vicente López Salazar, Dimas López Salazar, anterior por el artículo 6° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
 La Reserva Indígena de Guaymí de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Coto Brus 3542- I y Piedras Blancas 3542- II.
 La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
@@ -260,32 +275,32 @@ RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
 La Reserva Indígena Guaymí de Conte-Burica se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541 - II, Río Caña Blanca 3540 - I, Laurel 3641 III, Puerto Armuelles 3640 - IV.
 La Reserva se localiza como sigue:
 Partiendo de fin punto en la playa en coordenadas N 254 850, E 560 450, se continúa con los siguientes rumbos, distancias y coordenadas.
-N 39 48 E | 585.77 | 255 300 | 560 825
-N 23 12 W | 190.39 | 255 475 | 560 750
-N Franco | 1 275.00 | 256 750 | 560 750
-N 34 54 W | 1 310.77 | 257 825 | 560 000
-N 51 57 E | 730.15 | 258 275 | 560 575
-N 48 05 E | 1 646.40 | 259 375 | 561 800
-N 62 29 E | 1 353.01 | 260 000 | 563 000
-N 82 39 E | 1 562.85 | 260 200 | 564 550
-N 46 51 E | 1 096.59 | 260 950 | 565 350
-N 06 01 W | 477.62 | 261 425 | 565 300
-N 36 13 E | 2 200.14 | 263 200 | 566 600
-N 61 07 E | 828.02 | 263 600 | 567 325
-N 70 40 E | 1 510.17 | 264 100 | 568 750
-S 46 02 E | 972.43 | 263 425 | 569 450
-S 15 57 W | 728.01 | 262 725 | 569 250
-S 65 46 E | 548.29 | 262 500 | 569 750
-S 12 43 E | 1 589.02 | 260 950 | 570 100
-S 15 57 W | 1 092.02 | 259 900 | 569 800
-S 80 49 E | 1 722.10 | 259 625 | 571 500
-S 14 21 W | 1 109.62 | 258 550 | 571 225
-S 38 09 E | 445.11 | 258 200 | 571 500
+N 39 48 E 585.77 255 300 560 825
+N 23 12 W 190.39 255 475 560 750
+N Franco 1 275.00 256 750 560 750
+N 34 54 W 1 310.77 257 825 560 000
+N 51 57 E 730.15 258 275 560 575
+N 48 05 E 1 646.40 259 375 561 800
+N 62 29 E 1 353.01 260 000 563 000
+N 82 39 E 1 562.85 260 200 564 550
+N 46 51 E 1 096.59 260 950 565 350
+N 06 01 W 477.62 261 425 565 300
+N 36 13 E 2 200.14 263 200 566 600
+N 61 07 E 828.02 263 600 567 325
+N 70 40 E 1 510.17 264 100 568 750
+S 46 02 E 972.43 263 425 569 450
+S 15 57 W 728.01 262 725 569 250
+S 65 46 E 548.29 262 500 569 750
+S 12 43 E 1 589.02 260 950 570 100
+S 15 57 W 1 092.02 259 900 569 800
+S 80 49 E 1 722.10 259 625 571 500
+S 14 21 W 1 109.62 258 550 571 225
+S 38 09 E 445.11 258 200 571 500
 De este punto con un rumbo S 06 59 E, al límite fronterizo entre Costa Rica y Panamá. Se sigue por el límite fronterizo entre Costa Rica y Panamá hasta un punto del cual, con un rumbo S 46 58 W se llega al río La Peña (coordenadas N 244 750, E 580 025). De este punto se continúa con los siguientes rumbos, distancias y coordenadas.
-S 27 59 W | 905.88 | 243 950 | 579 600
-S 86 59 W | 1 902.63 | 243 850 | 577 700
-S 02 12 E | 1 300.96 | 242 550 | 577 750
-S 47 17 | 442.30 | 242 250 | 577 425
+S 27 59 W 905.88 243 950 579 600
+S 86 59 W 1 902.63 243 850 577 700
+S 02 12 E 1 300.96 242 550 577 750
+S 47 17 442.30 242 250 577 425
 A partir de este punto se continúa por la playa hasta el punto de origen de la presente descripción en coordenadas N 254 850, E 560 450.
 Área aproximada: 12 558 Ha. 3127.
 (*) (Así adicionada la Reserva Indígena Guaymí de Conteburica anterior por el artículo 2° del decreto ejecutivo N° 8514 del 2 de mayo de 1978)
@@ -293,11 +308,11 @@ RESERVA INDÍGENA GUAYMÍ DE ABROJOS-MONTEZUMA(*)
 La Reserva Indígena de Guaymí de Abrojbs-Montezuma se encuentra en la hoja del Instituto Geográfico Nacional, escala: I: 50 000 Canoas/3641 IV.
 La reserva se localiza como sigue:
 Partiendo del punto con coordenadas N 287 600, E 589 650, se continúa con los siguientes rumbos, distancias y coordenadas:
-N 80 00 W | 863.13 | 287 750 | 588 800
-S 87 50 W | 1 325.94 | 287 700 | 587 475
-N 88 44 W | 2 275.55 | 287 750 | 585 200
-N 35 55 E | 1 790.25 | 289 200 | 586 250
-N Franco | 1 600.00 | 290 800 | 586 250
+N 80 00 W 863.13 287 750 588 800
+S 87 50 W 1 325.94 287 700 587 475
+N 88 44 W 2 275.55 287 750 585 200
+N 35 55 E 1 790.25 289 200 586 250
+N Franco 1 600.00 290 800 586 250
 De este punto con un rumbo de N 81 56 E se llega al límite fronterizo entre Costa Rica y Panamá. Se continúa por el límite fronterizo entre Costa Rica y Panamá hasta un punto desde el cual con un rumbo de S 69 37 W se llega al punto inicial de la presente descripción en coordenadas N 287 600, E 589 650.
 Área I 516 Ha. 5 312 m2.
 (*) (Así adicionada la Reserva Indígena de Abrojo de Montezuma anterior por el artículo 3° del decreto ejecutivo N° 8514 del 2 de mayo de 1978)
@@ -603,3 +618,16 @@ N 24 47 E | 2 863.56 | 191 600 | 589 200
 A partir de este punto se sigue aguas abajo por la quebrada Súrtuba hasta el punto de origen de la presente descripción en coordenadas N 191 750, E 590 100,
 Área de la Reserva: 1 336 Ha. 7 562 m2.
 (Así adicionada la reserva Indígena Alto-Pacuare anterior por el artículo 4° del decreto ejecutivo N° 7268 del 9 de agosto de 1977. Asimismo, indica dicho numeral 4° que la Reserva Indígena la zona de "Alto Pacuare" (finca Chirripó), comprende los terrenos situados en la hoja cartográfica del Instituto Geográfico Nacional, Pejibaye 3445 II y localizados por los puntos cuyos rumbos, distancias y coordenadas, descritos anteriormente. Asimismo, por el artículo 6° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, la finca " finca "Alto-Pacuare", son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).)
+RESERVA INDÍGENA CABÉCAR DE BARBILLA
+Reserva Indígena Cabécar de Barbilla. Esta Reserva Indígena se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1/50.000, Matina 3546 III, Barbilla 3545 IV.
+La Reserva está limitada por los puntos cuyas coordenadas se dan a continuación:
+Partiendo del río Barbilla, en N 221 000, E 599 850; N 220 550, E 600 250; N 200 650, E 600 700; N 220 000, E 601 100; N 220 300, E 603 875; N 220 500, E 604 300, en Quebrada Surubre; N 220 700, E 605 000; N221 200, E 604 650; N 221 350, E 604 350; N 222 300, E 604 850; N 222 550, E 605 700; en naciente de un afluente del río Barbilla; continúa por éste aguas abajo hasta la unión con el río Barbilla en N 223 850, E 604 450; continúa aguas abajo por el río Barbilla hasta N 224 550, E 604 650; N 224 150, E 603 200; N 223 650, E 602 750; N 223 200, E 602 600; N 223 150, E 602 250; N 222 850, E 602 000; N 222 750, E 601 250; N 223 025, E 601 000, en Quebrada Cañabral; continúa aguas arriba por ésta hasta N 223 125, E 600 980; N 223 150, E 600 600; N 222 800, E 600 000; N 222 800, E 599 750; N 222 600, E 599 450; N 222 875, E 598 150; N 222 400, E 597 650; N 221 800, E 597 400; N 221 850, E 596 600; N 221 800, E 596 450; en afluente Quebrada Barreal (Caño Seco); continúa aguas arriba por éste hasta N 221 850, E 595 350; N 221 600, E 595 200, N 221 450, E 595 525, en Quebrada Barreal (Caño Seco) ; continúa por ésta aguas abajo hasta el punto inicial de la presente descripción en el río Barbilla.
+Área aproximada: 2 027 hectáreas.
+(Así adicionada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 3° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
+RESREVA INDÍGENA CABÉCAR DE XARA
+Reserva Indígena Cabécar de Xara.
+La Reserva Indígena de Xara se encuentra localizada en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, Chirripó 3545 III.
+La Reserva está limitada por los puntos cuyas coordenadas se dan a continuación :
+Partiendo del río Moravia en N 199 475, E 596 675; N 199 575, E 597 350; vértice Queza N 199 358, E 599 310; N 198 700, E 599 075, en Quebrada El Seis; sigue aguas abajo por ésta hasta la unión con el río Shara en N 198 825, E 597 325; continúa aguas arriba por éste hasta N 197 725, E 598 425; N 197 250, E 598 100; N 197 200, E 597 500; N 197 250, E 596 550; N 196 775, E 595 775; N 197 200, E 595 225; N 197 450, E 595 475; en brazo de la Quebrada Molejones; continúa aguas abajo por éste hasta la unión con otro brazo de la Quebrada Molejones en N 198 150, E 594 900; N 199 150, E 595 300; N 198 850, E 597 050; N 198 925, E 597 125; en el río Moravia; continúa aguas abajo por éste al punto inicial de la presente descripción en N 199 475, E 596 675.
+Área aproximada 644 hectáreas.
+(Así adicionada la Reserva Indígena Cabécar de Xara anterior por el artículo 4° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
