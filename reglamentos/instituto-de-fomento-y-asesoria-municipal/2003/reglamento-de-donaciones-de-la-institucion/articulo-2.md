@@ -1,0 +1,1 @@
+Artículo 2º—Toda solicitud de donación deberá emanar del órgano superior colegiado de la entidad interesada y ser dirigida a la Junta Directiva del IFAM. En la solicitud deberá quedar debidamente acreditada su personería y cédula jurídica.

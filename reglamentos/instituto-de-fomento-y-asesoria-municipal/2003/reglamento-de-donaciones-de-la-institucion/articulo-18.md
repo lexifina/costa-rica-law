@@ -1,0 +1,1 @@
+Artículo 18.—La Presidencia o la Dirección Ejecutiva, previa recomendación de la Dirección de Administración Interna, deberán dictaminar sobre la solicitud, considerando entre otros aspectos que los bienes que serían objeto de donación, debidamente inventariados, no son útiles o necesarios para el Instituto.

@@ -1,0 +1,1 @@
+Artículo 28.—El IFAM, cumpliendo con lo dispuesto en los artículos 1394 y 1395 del Código Civil, podrá solicitar a la entidad interesada el cumplimiento de algunas condiciones, la compra o aporte de algún equipo, cuya finalidad o utilización será indispensable para la justificación de la asesoría que se solicite como donación.

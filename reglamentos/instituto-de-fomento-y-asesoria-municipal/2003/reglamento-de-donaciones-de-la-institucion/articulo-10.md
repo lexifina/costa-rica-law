@@ -1,0 +1,1 @@
+Artículo 10.—En los casos en que proceda su trámite, la Sección de Crédito, una vez efectuados los estudios correspondientes, someterá la solicitud de donación a conocimiento de la Comisión Técnica para que esta, emita su recomendación.

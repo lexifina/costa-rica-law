@@ -1,0 +1,1 @@
+Artículo 7º—La Junta Directiva trasladará la solicitud de donación a la Sección de Crédito, la cual tendrá a su cargo el análisis de factibilidad, el trámite y control de las donaciones de dinero otorgadas por el IFAM, manteniendo en custodia los documentos relativos a cada donación.

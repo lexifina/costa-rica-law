@@ -1,0 +1,1 @@
+Artículo 14.—De conformidad con el artículo 12 de la Ley de Administración Financiera de la República y Presupuestos Públicos, Nº 8131 del 18 de setiembre del 2001, el IFAM podrá girar el dinero de la donación una vez que la entidad beneficiaria presente la modificación presupuestaria aprobada por la Contraloría General de la República, cuando esta se requiera.

@@ -1,0 +1,1 @@
+Artículo 38.—Una vez entregada la donación en dinero, la entidad beneficiaria debe aplicarla en el plazo estipulado para la ejecución del proyecto. Si transcurridos seis meses sin que inicie la ejecución del proyecto, la entidad beneficiaria deberá justificar dicha situación en el término de un mes; caso contrario el IFAM le exigirá la devolución de los recursos donados.

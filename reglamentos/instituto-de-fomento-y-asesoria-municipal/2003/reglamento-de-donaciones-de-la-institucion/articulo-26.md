@@ -1,0 +1,1 @@
+Artículo 26.—La Dirección asignada para el análisis de la solicitud, determinará el costo del servicio, su plazo de ejecución, la disponibilidad de recursos y dará su recomendación, utilizando para ello los procedimientos técnicos establecidos.

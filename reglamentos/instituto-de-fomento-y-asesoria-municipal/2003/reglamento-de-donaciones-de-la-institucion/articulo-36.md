@@ -1,0 +1,1 @@
+Artículo 36.—La elaboración de los convenios, contratos y demás documentos legales de la donación, en los casos en que proceda, será responsabilidad de la Dirección Jurídica Institucional, para lo cual la sección o dirección correspondiente le remitirán los documentos necesarios.

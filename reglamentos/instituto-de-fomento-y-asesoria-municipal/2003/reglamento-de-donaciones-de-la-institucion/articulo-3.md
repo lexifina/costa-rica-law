@@ -1,0 +1,1 @@
+Artículo 3º—En razón del principio de reserva legal que rige en la materia para el Sector Público, en cada caso, previo a su aprobación, deberá quedar claramente demostrada la normativa que autoriza la donación.

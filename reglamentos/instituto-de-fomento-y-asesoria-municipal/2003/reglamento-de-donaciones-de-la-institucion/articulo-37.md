@@ -1,0 +1,1 @@
+Artículo 37.—En los casos que corresponda, la entidad beneficiaria será la responsable del trámite y obtención de referendo y a aprobación presupuestaria de la donación por parte de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 13.—Una vez aprobada la donación por parte de la Junta Directiva, se comunicará a las entidades beneficiarias solicitantes el acuerdo de aprobación, para que tramite la respectiva modificación presupuestaria.

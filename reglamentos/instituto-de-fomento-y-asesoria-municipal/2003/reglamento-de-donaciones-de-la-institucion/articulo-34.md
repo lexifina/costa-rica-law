@@ -1,0 +1,1 @@
+Artículo 34.—El incumplimiento del artículo anterior o el uso inadecuado de los recursos financieros donados obligará al IFAM a exigir a la entidad beneficiaria, la devolución inmediata de los fondos donados y esta al cumplimiento de tal obligación.

@@ -1,0 +1,1 @@
+Artículo 31.—En la donación aprobada con restricciones, la entidad beneficiaria deberá ajustarse a los términos de la misma. En caso de no ser así, a reserva de la Junta Directiva del IFAM, queda la potestad de revocar la donación de que fue objeto la entidad incumpliente.

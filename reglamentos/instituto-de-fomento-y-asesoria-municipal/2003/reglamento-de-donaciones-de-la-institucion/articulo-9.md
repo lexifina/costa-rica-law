@@ -1,0 +1,1 @@
+Artículo 9º—En cumplimiento de los artículos 32 y 33 del presente Reglamento, la Sección de Crédito no tramitará ninguna solicitud de donación, en los casos en que la entidad solicitante tenga pendiente la entrega de informes correspondientes a donaciones anteriores.
