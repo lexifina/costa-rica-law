@@ -1,0 +1,3 @@
+De la integración del Instituto
+Artículo 9º.- La integración será técnica, con orientación criminológica; lo forman: el Jefe del Departamento Técnico, quien a su vez lo presidirá y ejecutará sus acuerdos y los Jefes de las siguientes secciones: el de Servicios Educativos y Escuela de Capacitación Penitenciaria; el de Servicios Médicos, Jurídicos, Servicio Social, Investigaciones y Estadística y por los de aquellas secciones técnicas que en el futuro sea necesario crear, mediante decreto ejecutivo, previa recomendación del propio Instituto y del Director General.
+En ausencia temporal del Jefe del Departamento Técnico el Instituto designará a uno de sus miembros para que lo reemplace.
