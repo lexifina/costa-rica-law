@@ -1,0 +1,5 @@
+CAPITULO VI
+De la liquidación y Pago del Impuesto
+Artículo 13.- Norma general. El impuesto se liquida y paga de la manera siguiente:
+a) Tratándose de importaciones o de internaciones, en el momento previo al desalmacenaje de las mercancías efectuado por las aduanas. No se debe autorizar la introducción de las mercancías, si los interesados no prueban haber pagado antes del impuesto selectivo de consumo respectivo, el que se consignará por separado en la póliza o en el formulario aduanero, según el caso; y
+b) En la venta de mercancías de producción nacional, los fabricantes deben liquidar y pagar el impuesto a más tardar el día último de cada mes, utilizando los formularios de declaración jurada que les proporcione la Administración Tributaria, por todas las ventas efectuadas en el mes trasanterior al de la declaración. En el momento de la presentación de la declaración debe probarse el pago del impuesto declarado. En todos los casos de ventas efectuadas por fabricantes es obligatorio emitir facturas y consignar en ellas por separado el precio de venta de las mercancías y el impuesto selectivo de consumo que les sea aplicable.

@@ -1,0 +1,1 @@
+Artículo 5º.- Venta. Para los fines de esta ley, se entenderá por venta todo acto o contrato que implique transmisión de dominio, independientemente de la naturaleza jurídica del mismo y de la designación que le hayan dado las partes.
