@@ -1,0 +1,2 @@
+Artículo 10°—Encargado de Ventanilla Única de Turismo.
+El Instituto Costarricense de Turismo designará una persona quién será el encargado de la Ventanilla, y para esos efectos se entenderá como el superior en las labores de coordinación interna de la misma. Así mismo, dicho encargado deberá de llevar un control en cuanto al cumplimiento de las labores respectivas por parte de los funcionarios destacados en la Ventanilla, e informará de lo anterior a las Autoridades de cada dependencia.

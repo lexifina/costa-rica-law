@@ -1,0 +1,15 @@
+DECRETOS
+No 25923-H-MEIC-TUR
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE HACIENDA, DE ECONOMÍA, INDUSTRIA Y COMERCIO Y DE TURISMO
+Considerando:
+1°—Que el Gobierno de la República de Costa Rica ha venido desarrollando una política de apertura comercial y de globalización de la economía, que permita una mayor competitividad del aparato productivo nacional y un incremento sostenido de las exportaciones.
+2°—Que como parte de ese esfuerzo para el incremento sostenido de las exportaciones, la actividad turística ha desempeñado un importantísimo papel, colocándose dentro de las primeras actividades productivas de divisas para el país en los últimos años.
+3°—Que el indicado crecimiento de la actividad turística en Costa Rica, ha dado incontables beneficios para la población nacional, generando empleos y promoviendo la inversión extranjera, con todos los efectos multiplicativos que ese fenómeno involucra.
+4°—Que es el mayor interés del Gobierno de la República, el disminuir en lo posible el tiempo requerido para la atención de exoneraciones al amparo de la Ley de Incentivos a la Actividad Turística y sus reformas. No 6990 del 15 de julio de 1985, y que según la legislación vigente es requisito general indispensable que las personas físicas o jurídicas interesadas en la obtención de los incentivos de la ley, hayan sido previamente calificadas como actividad turística por la Junta Directiva del Instituto Costarricense de Turismo y posteriormente hayan obtenido el contrato turístico.
+5°—Que para dicho propósito resulta indispensable unificar estos tres procesos bajo el Sistema de Ventanilla Única, de manera que se concentre en una sola oficina pública la presentación de la documentación respectiva para la realización de los diferentes trámites y las aprobaciones pertinentes.
+6°—Que el Decreto Ejecutivo No 25648-H-MEIC-TUR publicado en el Diario Oficial "La Gaceta" del 3 de diciembre de 1996, creó el Sistema de Ventanilla Única de Trámites para las exoneraciones contempladas en la Ley No 6990.
+7°—Que se ha considerado indispensable, incorporar al Sistema de Ventanilla Única, aparte del trámite de exoneraciones, los procesos previos para la obtención tanto de la Declaratoria Turística como del Contrato Turístico, para lo cual se ha propuesto establecer esta nueva regulación al efecto. Por tanto,
+decretan:
+Artículo 1°—Creación del Sistema de Ventanilla Única de Turismo.
+Créase el "Sistema de Ventanilla Única de Turismo" para la obtención de la declaratoria y contrato turístico y de las exoneraciones contempladas en la ley de incentivos a la actividad turística No 6990 del 15 de julio de 1985 y sus reformas, como un proceso unificado de actividades y trámites necesarios para facilitar la elaboración y presentación de solicitudes, así como la obtención de dicha declaratoria y contrato turístico y de las exenciones fiscales establecidas en dicha Ley, trámites que podrán realizarse de manera conjunta, o separadamente, según lo estipulado en la legislación vigente.

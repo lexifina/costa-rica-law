@@ -1,0 +1,2 @@
+Artículo 3°—Objetivo de la Ventanilla Única de Turismo.
+La Ventanilla Única de Turismo tendrá como objetivo fundamental unificar las dependencias involucradas en el trámite de obtención de la declaratoria y contrato turístico, así como las dependencias que intervienen en el otorgamiento de las exoneraciones a las empresas con contrato turístico, para agilizar y hacer más eficiente la obtención de dichos trámites.
