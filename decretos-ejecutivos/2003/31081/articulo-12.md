@@ -1,0 +1,1 @@
+Artículo 12.—Modifíquese el artículo 64 del Decreto Ejecutivo N° 25721-MINAE para que se lea así: El FONAFIFO, de los recursos que reciba por cualquier fuente para el pago de servicios ambientales, podrá disponer de un porcentaje no mayor al siete por ciento de monto anual otorgado, para hacer frente a los gastos del programa de pago de servicios ambientales.

@@ -1,0 +1,1 @@
+Artículo 13.—Los recursos no utilizados por el Fondo Nacional de Financiamiento Forestal, las devoluciones realizadas o los recursos recuperados en virtud de incumplimientos contractuales, serán depositados en una cuenta que al efecto establezca el citado Fondo y serán presupuestados para la ejecución de nuevos proyectos de pago de servicios ambientales.

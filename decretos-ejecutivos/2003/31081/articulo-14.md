@@ -1,0 +1,1 @@
+Artículo 14.—El control y seguimiento de los proyectos de pago de servicios ambientales suscritos durante y antes del periodo 2002, serán responsabilidad del SINAC, para los nuevos proyectos del 2003, se suscribirá un convenio especial de cooperación MINAE-FONAFIFO, para su debido control y seguimiento.

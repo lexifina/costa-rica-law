@@ -1,0 +1,1 @@
+Artículo 10.—Podrán pagarse Servicios Ambientales en la modalidad de protección en fincas amparadas al derecho de posesión, según lo establecido en el Decreto Ejecutivo 30761-MINAE del 4 de octubre del 2002.
