@@ -14,3 +14,4 @@ Reglamento de Notificación de Materias Primas, Registro Sanitario, Importación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-23 | la propia norma |
+| 2 | 2004-06-11 | Decreto Ejecutivo 31968 (2004-06-11) |

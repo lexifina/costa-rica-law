@@ -14,7 +14,10 @@ Decomiso: Pérdida de la propiedad a favor del Estado que experimenta el dueño 
 Desalmacenaje: Autorización que otorga la Dirección para permitir la nacionalización de alimentos.
 Dirección: Dirección de Registros y Controles del Ministerio de Salud.
 FEMA: Asociación Internacional de Fabricantes de Extractos y Saborizantes.
-Materia prima alimentaria: Todas las sustancias que se emplean en el proceso de producción de alimentos, tanto si permanecen inalteradas, como si experimentan modificación o son eliminadas durante el proceso de fabricación.
+Fabricación: aplicación de operaciones unitarias para elaborar a partir de materias primas productos alimenticios preempacados que se venden bajo nombre y marca determinada.
+(Así Adicionado mediante artículo 1° del Decreto Ejecutivo N° 31968, del 11 de Junio del 2004)
+Materia prima alimentaria: Todas las sustancias que se emplean en el proceso de fabricación de alimentos, tanto si permanecen inalteradas, como si experimentan modificación o son eliminadas durante el proceso de fabricación.
+(Así Reformado mediante artículo 1° del Decreto Ejecutivo N° 31968, del 11 de Junio del 2004)
 Medidas sanitarias especiales: Son medidas que pueden adoptar las autoridades de salud y que tienen como finalidad la efectiva protección de la salud pública con el objetivo de evitar la aparición de peligros y la agravación o difusión del daño, la continuación o reincidencia en la perpetración de infracciones legales o reglamentarias que atenten contra la salud de las personas. Se consideran medidas especiales la retención, el retiro del comercio o de la circulación, el decomiso, la desnaturalización y la destrucción de bienes materiales, la clausura de establecimientos, la cancelación de permisos y de registros.
 Ministerio: Ministerio de Salud.
 Muestreo: Procedimiento para la toma de muestras de productos alimenticios necesarias para el control del cumplimiento de las disposiciones de las normas sanitarias y del presente reglamento.
