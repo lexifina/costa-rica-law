@@ -1,5 +1,6 @@
 Nº 31092
-EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
 En uso de las facultades conferidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; artículos 21, 23, 24 y 25 de la Ley Nº 8131 y Decreto Nº 30058-H-MP-PLAN y sus reformas.
 Considerando:
 1º—Que una sana administración del Estado requiere la racionalización del uso de los recursos, asignándolos con base en prioridades para su mejor aprovechamiento, en beneficio del desarrollo económico y social del país.
@@ -30,3 +31,4 @@ Artículo 1°—El gasto presupuestario de las entidades públicas para el año 
 (Así modificado por el artículo 1° del Decreto Ejecutivo N° 31756 de 26 de marzo de 2004, en el siguiente sentido:"Modificase para el Instituto Costarricense de Puertos del Pacífico, el límite de gasto total del 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, fijándolo en ¢ 5.445.9 millones")
 (Así modificado por el artículo 1° del Decreto Ejecutivo N° 31778 de 13 de abril de 2004, en el siguiente sentido:"Modifícase al Consejo Técnico de Asistencia Médico Social el límite de gasto presupuestario para el año 2004, establecido en el Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, fijándolo en ¢2.023,0 millones")
 (Así modificado por el artículo 1° del Decreto Ejecutivo N° 31754 de 16 de abril de 2004, en el siguiente sentido:"Modifícase a la Junta de Desarrollo Regional de la Zona Sur el límite de gasto presupuestario para el año 2004, establecido en el Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, fijándolo en ¢2,672.5 millones")
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31799 de 19 de abril de 2004, en el siguiente sentido:"Modificase para la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, el límite de gasto presupuestario total del 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, publicado en La Gaceta N° 63 del 31 de marzo del 2003, fijándolo en ¢15.336,30 millones")

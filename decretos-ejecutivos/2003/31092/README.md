@@ -30,3 +30,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 15 | 2004-03-15 | Decreto Ejecutivo 31739 (2004-03-15) |
 | 16 | 2004-03-26 | Decreto Ejecutivo 31756 (2004-03-26) |
 | 17 | 2004-04-16 | Decreto Ejecutivo 31754 (2004-04-16) |
+| 18 | 2004-04-19 | Decreto Ejecutivo 31799 (2004-04-19) |
