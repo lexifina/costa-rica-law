@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE MONTEVERDE.
+También en la sesión Nº 112 del 15 de abril del 2003, capítulo V, inciso h), tomó el siguiente acuerdo en firme y por unanimidad: Modificar el Reglamento de Sesiones del Concejo Municipal del distrito de Monteverde en el capítulo I: De las sesiones del Concejo, artículo 3º, para que las sesiones ordinarias del Concejo se lleven a cabo todos los martes de cada semana, dando inicio a las dieciséis horas y concluyendo a más tardar a las diecinueve horas, lo cual rige a partir de su publicación.
