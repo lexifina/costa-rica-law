@@ -1,0 +1,4 @@
+Transitorio III.—A los servidores municipales, que, con motivo de la implementación de la nueva modalidad técnica de cálculo, eventualmente les disminuya el monto de su anualidad en relación con la anterior modalidad de tasación, conservarán dicha modalidad de cálculo - salario base x tres por ciento -, hasta completar doce anualidades y a partir de esta última, se les aplicará la nueva fórmula de cálculo técnico, regulada en el articulo siete de este Reglamento.
+Lo anterior, deberá ser solicitado expresamente por el trabajador al Departamento de Recursos Humano'-, en el término de treinta días hábiles, a partir de la vigencia del presente Reglamento.
+Entrará en vigencia a partir del primero de enero del 2002, salvo excepción de los Transitorios I y II que regirán a partir de la publicación en el Diario Oficial La Gaceta.
+Publíquese en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Articulo 2°—A los servidores municipales, mimbrados en propiedad o interinamente, se les reconocerá, para efectos de la anualidad y de la antigüedad, el tiempo de servicio prestado en otras entidades del sector público o en la propia Municipalidad .

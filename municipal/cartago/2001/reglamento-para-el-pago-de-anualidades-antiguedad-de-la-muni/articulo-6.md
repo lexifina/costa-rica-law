@@ -1,0 +1,1 @@
+Articulo 6°—Sobre el salario base, se tasará el importe correspondiente de la anualidad - antigüedad de los servidores municipales, según los años servidos en la corporación municipal y en el sector público, según corresponda.
