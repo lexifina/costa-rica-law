@@ -1,0 +1,5 @@
+Comunica al público en general el acuerdo JD-217 correspondiente al artículo IV), inciso 1) punto a) de la sesión Nº 33-2002 celebrada el 17 de setiembre del 2002, que en lo conducente dice:
+La Junta Directiva acuerda:
+a) Con el propósito de incentivar la venta de los juegos electrónicos, por medio de la creación de una bolsa de premios atractiva, se tomará del Fondo Acumulado para Premios Adicionales, una cantidad de hasta ¢10.000.000, para garantizar un premio por ese monto, que se distribuirá proporcionalmente entre las apuestas que acierten los 6 números en el Juego Pega 6 de la Lotería Electrónica.
+Se entiende que cada vez que se acierte este premio, se volverá a tomar del Fondo otro importe similar, para mantener el interés en el juego y garantizar la permanencia del premio por ¢10.000.000.
+b) En el momento en que la generación de ingresos permita alcanzar una bolsa por ¢10.000.000, para el acierto de los 6 números, como resultado de aplicar el porcentaje de premios definido por Ley sobre el importe de ventas que genere cada sorteo, no se tomará recursos del Fondo para sufragar el acierto del premio por ¢10.000.000 que garantiza el plan de sorteo.
