@@ -1,0 +1,2 @@
+Artículo 2°—Adicionar un artículo 44 bis al Reglamento del Estatuto de Servido Civil que dirá:
+Artículo 44 bis.—Los demás aspectos no considerados en los anteriores artículos, se resolverán conforme se indique en los instructivos elaborados por cada institución y aprobados por la Dirección General de Servicio Civil o el Manual General vigente, para regular sus respectivos sistemas de evaluación del desempeño.
