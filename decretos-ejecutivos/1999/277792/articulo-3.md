@@ -1,0 +1,4 @@
+ARTICULO 3 —ENERGÍA ELÉCTRICA
+Las Partes, de conformidad con sus respectivos planes de desarrollo y con la finalidad de ampliar la cooperación y aprovechar el potencial de complementación energética que ofrece esta área, promoverán las siguientes acciones:
+a) desarrollo de proyectos de generación, transmisión y distribución de energía eléctrica dentro del marco establecido en el Contenido firmado el 4 de septiembre de 1998 entre la Comisión Federarle Electricidad y el Instituto Costarricense de Electricidad y la Compañía Nacional de Fuerza y Luz, S.A., y tomando en cuenta las recomendaciones del Grupo de Trabajo de Energía Eléctrica del Grupo de los Tres (G-3), integrado por Colombia, México y Venezuela, y
+b) participación en soluciones de problemas derivados de la interconexión eléctrica regional existente y apoyo a las acciones que realiza en este sentido el G-3.

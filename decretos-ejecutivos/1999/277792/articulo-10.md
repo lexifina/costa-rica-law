@@ -1,0 +1,2 @@
+ARTICULO 10.—UTILIZACIÓN DE LA INFORMACIÓN
+Las Partes podrán utilizar libremente toda la información intercambiada en virtud del presente Convenio, excepto en aquellos casos en que la Parte que la suministró haya establecido restricciones o reservas de su uso o difusión. En ningún caso podrá ser transferida por una de las Partes a terceros, sin el previo consentimiento por escrito de la otra Parte.
