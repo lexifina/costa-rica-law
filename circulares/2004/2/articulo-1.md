@@ -1,0 +1,6 @@
+CIRCULAR Nº 002
+De: Lic. Enrique Rodríguez Morera, Director del Registro de Personas Jurídicas
+Para: Subdirección, coordinaciones, certificadores, usuarios en general
+Fecha: 7 de enero de 2004
+Asunto: Indicación del documento de identificación en solicitudes de certificaciones
+Debido a la implementación del sistema automatizado de inscripción y publicidad en este Registro, que permite la emisión de certificaciones en forma inmediata de la información constante en la Base de Datos y, con el objeto de evitar la confusión entre homónimos, se les instruye para que, con fundamento en lo dispuesto en el inciso m) del artículo 95 de la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil, en adelante en toda solicitud de certificación referida a personas físicas, se indique además del nombre y sus apellido (s), la clase y el número del respectivo documento de identificación. Lo anterior en el entendido de que, de no constar dicha información en la solicitud, necesariamente habrá de prevenir al solicitante para que la indique, no procediéndose a extender la respectiva certificación hasta tanto no se cumpla con tal requisito. El contenido de la presente certificación rige para las solicitudes de certificaciones que se presenten al Registro, a partir del día de su publicación en el Diario Oficial La Gaceta.—
