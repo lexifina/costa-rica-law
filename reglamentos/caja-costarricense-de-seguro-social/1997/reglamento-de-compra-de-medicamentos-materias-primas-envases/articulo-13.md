@@ -1,3 +1,0 @@
-Artículo 13.—El costo del control de calidad para los productos que ingresen al Departamento de Almacenamiento y Distribución, efectuado por el Laboratorio de Normas y Calidad de Medicamentos, será por cuenta de la CSSS. Los costos de análisis adicionales que sea necesario para aceptar reemplazos o reclamos serán pagados por el interesado.
-El cobro de los análisis se hará con base en la tarifa que establezca la Caja, cuyo monto se publicará en el documento denominado "Modelo Tarifario" que emite la Sección de Contabilidad de Costos Industriales. La información la brindará el Departamento de Adquisiciones y el Laboratorio de Normas y Calidad de Medicamentos.
-(Así reformado parcial y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)

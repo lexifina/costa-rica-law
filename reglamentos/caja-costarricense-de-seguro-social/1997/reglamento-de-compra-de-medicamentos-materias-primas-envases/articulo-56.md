@@ -1,1 +1,0 @@
-Artículo 56.—Debe indicarse la estabilidad de los productos, desde su fabricación, su arribo a puerto nacional o su entrega en el Departamento de Almacenamiento y Distribución de La Caja, según el caso.

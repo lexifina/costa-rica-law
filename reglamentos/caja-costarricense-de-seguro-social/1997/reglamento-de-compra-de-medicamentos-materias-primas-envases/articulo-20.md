@@ -1,2 +1,0 @@
-Ofertas
-Artículo 20.—Deberán ser dirigidas a La Caja-Departamento de Adquisiciones, formularse en original y dos copias y contener los timbres de ley. Se recibirán en el Departamento de Adquisiciones de La Caja, a más tardar, a la hora y fecha establecida en el respectivo cartel. La Administración no asumirá ninguna responsabilidad en caso de ser inducida a error por las indicaciones anotadas en los sobres que contienen las ofertas.

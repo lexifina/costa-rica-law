@@ -1,1 +1,0 @@
-Artículo 59.—La Caja no asumirá gasto alguno originado en la reposición de productos rechazados y aquellos en que se llegare a incurrir los cobrará al co-contratante particular. Todo sin perjuicio de la ejecución de la respectiva garantía de cumplimiento así como de la aplicación de las sanciones administrativas o acciones judiciales que pudieren proceder.

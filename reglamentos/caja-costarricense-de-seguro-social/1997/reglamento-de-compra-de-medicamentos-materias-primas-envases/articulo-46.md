@@ -1,1 +1,0 @@
-Artículo 46.—Lugar de entrega de la mercancía: salvo que el cartel indique lugar diferente, toda mercancía deberá entregarse en el Departamento de Almacenamiento y Distribución, sito en la Uruca.

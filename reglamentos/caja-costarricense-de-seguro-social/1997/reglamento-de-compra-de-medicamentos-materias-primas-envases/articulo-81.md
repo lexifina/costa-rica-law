@@ -1,1 +1,0 @@
-Artículo 81.—Este reglamento deroga el aprobado por la Junta Directiva en los artículos 14, 1 y 6 de las sesiones N° 5836, 5837 y 5853 celebradas en su orden el 12 y 19 de julio, y el 6 de setiembre de 1984 y por la Contraloría General de la República en el oficio 7880 del 28 de agosto de 1984.

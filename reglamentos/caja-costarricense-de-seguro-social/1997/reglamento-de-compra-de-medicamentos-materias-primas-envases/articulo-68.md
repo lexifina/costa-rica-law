@@ -1,6 +1,0 @@
-Artículo 68.—Todo adjudicatario, por medio de su representante, apoderado o distribuidor, queda obligado a:
-a. Ejecutar en forma debida y satisfactoria el objeto convenido.
-b. Respetar y cumplir las especificaciones y condiciones relativas a la
-ejecución.
-c. Poner corrección y diligencia en el ejercicio de su cometido.
-d. Acatar las instrucciones impartidas por La Caja, antes, durante y después de la ejecución, para casos de documentos, muestras, rotulación, separación de unidades defectuosas o lotes rechazados, cambios de empaque, retiro de mercancías o reexportaciones, entre otros. Todo lo anterior dentro de los plazos prudenciales que La Caja indique.

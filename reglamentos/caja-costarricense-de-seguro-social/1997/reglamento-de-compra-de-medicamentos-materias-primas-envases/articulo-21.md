@@ -1,1 +1,0 @@
-Artículo 21.—Su vigencia deberá ser de 60 días naturales, para la compra de medicamentos y materias primas para su fabricación. En los demás casos serán de 120 días naturales. Estos plazos se contarán a partir de la fecha de apertura.

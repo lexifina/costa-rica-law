@@ -1,1 +1,0 @@
-Artículo 14.—Los oferentes deben disponer de suficiente número de muestras del mismo número de lote para suplir por una única vez una cantidad igual a la señalada en el artículo 12 apartado 12.4, en el término de quince días hábiles posteriores a la fecha en que se soliciten.

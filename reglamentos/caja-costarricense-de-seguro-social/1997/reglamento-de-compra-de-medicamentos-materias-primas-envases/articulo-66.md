@@ -1,1 +1,0 @@
-Artículo 66.—Los adjudicatarios nacionales deben aportar constancia de la Tributación Directa, de encontrarse al día en el pago de los impuestos de Renta y Territorial. Artículo 6 de la Ley No 3173 del 12 de agosto de 1963.

@@ -1,3 +1,0 @@
-Artículo 61.—La recomendación técnica, previa a la adjudicación, será emitida por la Comisión asignada, dentro de los 15 días hábiles siguientes a partir de la apertura de las ofertas.
-De acuerdo con los topes que establezca la Junta Directiva de La Caja, la instancia correspondiente adjudicará dentro de los 15 días hábiles posteriores a la recomendación; salvo que se requieran nuevos estudios o criterios, considerando siempre los plazos de vigencia de las ofertas.
-El acto de adjudicación se comunicará a los participantes en el concurso, dentro de los 5 días hábiles siguientes al recibo del expediente autorizado por la Contraloría, por el medio impreso más ágil disponible, dejándose constancia de la notificación.
