@@ -1,0 +1,1 @@
+22. Para seguridad de los reos, son permitidas las prisiones siguientes: el cepo, poste, grillos, grillete, mancuerna de pies ó manos, carlanca, y esposas; pero de ninguna de ellas se usará, sin que expresamente lo mande el Juez de la causa, ó por reclamación del Alcaide cuando se tema fuga de algún reo. Dicho Alcaide se cubre con la órden escrita que al efecto reciba.

@@ -1,0 +1,1 @@
+7° La Municipalidad, no solo sufragará de sus fondos el medio real de los presos, sinó también los sueldos del Alcaide y Carcelero, á quienes nombrará y señalará su dotación, calculada prudentemente con anuencia del Juez de 1a Instancia; debiéndose entender, que el Alcalde debe saber leer y escribir.

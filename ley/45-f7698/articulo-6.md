@@ -1,0 +1,1 @@
+6° El Juez de 1a Instancia de la Capital cuando los reos de fuera necesiten para alimentos, de la cuota señalada en el art. anterior, la reclamará del de la procedencia del reo siempre que no se le ocupe en la policía de la misma Capital.
