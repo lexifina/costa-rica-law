@@ -16,3 +16,4 @@ Reglamento para la Obtención de Permisos de Construcción o Reparación
 | 1 | 1983-09-09 | la propia norma |
 | 2 | 2000-04-12 | Reglamento municipal 118 (2000-04-12) |
 | 3 | 2001-11-14 | Reglamento municipal 201 (2001-11-14) |
+| 4 | 2002-12-11 | Reglamento municipal 32 (2002-12-11) |
