@@ -12,7 +12,7 @@ a) Recopilar toda la información pertinente sobre las operaciones pesqueras del
 b) Poner a disposición del capitán del buque al que esté asignado el observador todas las medidas establecidas por las Partes en relación a este Acuerdo;
 c) Poner a disposición del capitán del buque al que esté asignado el observador el historial de mortalidad de delfines de ese buque;
 d) Preparar informes con los datos recopilados de conformidad con este párrafo, y proporcionar al capitán del buque la oportunidad de incluir en esos informes cualquier información que el capitán considere pertinente;
-e) Proporcionar dichos informes al Director o al programa nacional pertinente, para ser utilizados de conformidad con el Anexo VII , párrafo 1, de este Acuerdo; y
+e) Proporcionar dichos informes al Director o al programa nacional pertinente, para ser utilizados de conformidad con el Anexo VII, párrafo 1, de este Acuerdo; y
 f) Llevar a cabo las demás funciones que sean acordadas por las Partes.
 5.- Los observadores deberán:
 a) Excepto en los casos contemplados en los párrafos 4(d) y 4(e) de este Anexo, tratar como confidencial toda información con respecto a las operaciones de pesca de los buques y de los armadores, y aceptar este requisito por escrito como condición de su nombramiento al cargo de observadores;

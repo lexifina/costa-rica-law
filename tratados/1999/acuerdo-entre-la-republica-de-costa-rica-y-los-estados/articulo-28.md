@@ -1,3 +1,3 @@
 ARTÍCULO XXVIII
-RESERVAS
+Reservas
 No se podrán formular reservas a este Acuerdo.
