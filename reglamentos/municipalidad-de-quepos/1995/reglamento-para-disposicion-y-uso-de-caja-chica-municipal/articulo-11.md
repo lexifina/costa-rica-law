@@ -1,0 +1,1 @@
+Artículo 11°.-El funcionario de caja chica esta regido además, por lo establecido en el Código Municipal y en el Manual de Procedimientos para la Contabilidad Municipal , en aspectos no contemplados en este Reglamento.

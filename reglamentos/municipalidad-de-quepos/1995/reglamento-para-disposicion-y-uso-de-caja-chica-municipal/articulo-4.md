@@ -1,0 +1,1 @@
+Artículo 4°-Se establece como suma máxima para girar por caja chica, la cantidad de 6.000,00 (seis mil colones). Tomando en consideración que la Contraloría General de la República , autoriza pagos por este medio hasta por la suma de 24.500,00 (veinticuatro mil quinientos colones).

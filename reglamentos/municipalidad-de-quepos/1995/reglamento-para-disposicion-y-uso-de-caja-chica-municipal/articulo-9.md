@@ -1,0 +1,1 @@
+Artículo 9°-El efectivo y comprobante de caja chica serán mantenidos en caja separada, en el cual no podrán mantenerse otros valores o documentos ajenos al fondo ya se trate de particulares o privados.

@@ -1,0 +1,1 @@
+Artículo 8°-Bajo ningún concepto, podrá usarse el fondo de caja chica para fines ajenos a la operación de la Municipalidad propiamente dicha. La contravención de esta cláusula hará incurrir al funcionario responsable, en las faltas que determina el artículo 127 del Código Municipal.
