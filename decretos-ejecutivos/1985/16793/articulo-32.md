@@ -1,0 +1,1 @@
+Articulo 32.-La Comisión elaborará y someterá a aprobación del Ministerio su Reglamento de funcionamiento, así como las normas y procedimientos se requieran para regular la administración de becas y facilidades de adiestramiento, como complemento de las que en este Reglamento se establecen.

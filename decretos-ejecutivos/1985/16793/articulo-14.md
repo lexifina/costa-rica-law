@@ -1,0 +1,2 @@
+Artículo 14.-Con fundamento en los estudios realizados en cada dependencia y de conformidad con las políticas y prioridades establecidas, la Unidad de Adiestramiento elaborará el Proyecto de Programa Anual de Capacitación, el cual será sometido a conocimiento del Ministro y Viceministro, por las vías correspondientes para su aprobación.
+Dicho proyecto deberá prepararse con la asesoría del Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Articulo 19.-El adiestramiento deberá orientarse en un sentido eminentemente práctico y de manera que esté estrechamente relacionado con las situaciones que el participante va a encontrarse en su trabajo.

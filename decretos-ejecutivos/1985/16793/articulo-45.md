@@ -1,0 +1,1 @@
+Artículo 45.-Es deber del funcionario que ha disfrutado de una beca rendir dentro del mes siguiente a la finalización de sus estudios, un informe escrito a la Unidad de Adiestramiento, sobre su participación en el programa a que asistió.

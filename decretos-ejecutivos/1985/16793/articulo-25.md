@@ -1,0 +1,1 @@
+Artículo 25.-Todo jefe está en la obligación de permitir la participaci de sus subalternos en los programas de adiestramiento, en tanto no afecte buen funcionamiento de la oficina y la prestación del servicio público.

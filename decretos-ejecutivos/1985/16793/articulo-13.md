@@ -1,0 +1,1 @@
+Artículo 13.-Toda actividad de adiestramiento administrativo deberá ser cuidadosamente planeada y programada, dando especial atención a la determinación de necesidades y disponibilidad de recursos existentes para tales fines, objetivos, contenidos programáticos y a la selección de la metodología y de los medio de evaluación y seguimiento.

@@ -1,0 +1,1 @@
+Artículo 28.-Las becas y otras facilidades de adiestramiento serán otorgadas a los servidores administrativos del Ministerio que se hayan distinguido en el desempeño de sus funciones y que su conducta justifique y dé motivos para esperar de ellos un buen aprovechamiento del estudio y la futura puesta en práctica de esos conocimientos al concluir la capacitación.

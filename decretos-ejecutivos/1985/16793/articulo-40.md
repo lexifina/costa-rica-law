@@ -1,0 +1,1 @@
+Artículo 40.-Si el funcionario designado no puede disfrutar de la beca facilidad deberá comunicarlo de inmediato a la Comisión, a partir del momento en que tuvo conocimiento de impedimento, en su sustitución se designará el segundo candidato de mayor calificación.

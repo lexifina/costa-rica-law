@@ -1,0 +1,1 @@
+Artículo 18.-Una vez aprobado el programa, los instructores no podrán variarlo sustancialmente sin la aprobación de la Unidad y previa justificación que se hará del conocimiento del Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.

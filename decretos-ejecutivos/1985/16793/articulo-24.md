@@ -1,0 +1,1 @@
+Artículo 24.-El funcionario que previo haber aceptado su partIcipa en una actividad de adiestramiento, se retire, será excluido del Programa Adiestramiento por un minimo de un año, de lo que se enviará copia al De tamento de Personal del Ministerio para efectos de ascenso.

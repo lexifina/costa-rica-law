@@ -1,0 +1,1 @@
+Artículo 10.-Todas las actividades internas de adiestramiento administrativo a cargo del Ministerio, deberán ser coordinadas única y exclusivamente por la Unidad de Adiestramiento, bajo la supervisión de la Dirección de Personal, previa autorización del viceministerio.

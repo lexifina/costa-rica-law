@@ -1,0 +1,1 @@
+Artículo 6°-La Unidad de Adiestramiento pertenecerá por la índole de sus funciones, al Programa de Administración Central y Dirección de Personal del Ministerio, y recibirá para efectos de los programas de adiestramiento las dictrices del viceministerio.

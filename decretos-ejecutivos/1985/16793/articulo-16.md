@@ -1,0 +1,1 @@
+Artículo 16.-Para que la Unidad de Adiestramiento conozca y evalúe el desarrollo de la actividad, todo instructor deberá presentar además del temario, un plan de trabajo, con indicación de los ejercicios prácticos, medios audiovisuales y resúmenes que utilizará.

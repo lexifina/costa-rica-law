@@ -1,0 +1,1 @@
+Artículo 20.-La Unidad de Adiestramiento velará porque la presentación del instructor, su preparación, su habilidad como instructor y actitud frente al personal durante la ejecución de su cometido sea la más adecuada a los intereses del Ministerio.

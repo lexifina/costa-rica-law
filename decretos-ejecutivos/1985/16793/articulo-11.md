@@ -1,0 +1,1 @@
+Artículo 11-Todos los niveles de jefatura del Ministerio, deberán cooperar con el Programa de Adiestramiento Administrativo y proporcionar la ayuda información que esta Unidad requiera para la elaboración y ejecución de sus programas, de acuerdo con las posibilidades de la dependencia.

@@ -1,0 +1,1 @@
+Artículo 37.-En caso de capacitación financiada por proyectos o programas especiales con fondos tanto internos como externos, deberá también ser del conocimiento de la Comisión. En estos casos el mecanismo de selección, será acordado entre la dependencia ejecutadora del préstamo, el organismo financiero y la Comisión.

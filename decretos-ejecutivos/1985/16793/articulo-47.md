@@ -1,0 +1,1 @@
+Artículo 47 .-El funcionario que en disfrute de una beca abandone los estudios por causas que no sean de fuerza mayor o muestre falta de interés en los mismos quedará sujeto a las responsabilidades legales que indiquen las leyes, además perderá todo derecho a participar en otra beca.

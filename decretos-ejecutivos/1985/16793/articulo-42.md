@@ -1,0 +1,1 @@
+Artículo 42.-Las facilidades de tipo económico que de acuerdo con disposiciones legales puede utilizar el Ministerio en actividades de capacitación de su personal en el país o en el extranjero, estarán sujetas a las disponibilidad presupuestarias existentes.

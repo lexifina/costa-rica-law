@@ -1,0 +1,1 @@
+Artículo 29.-Créase la Comisión de Becas del Ministerio de Seguridad Pública para el estudio de las becas ofrecidas a la institución, la promoción de los concursos, entre el personal administrativo, la selección de los candidatos y su recomendación ante el Ministro para lo concerniente.

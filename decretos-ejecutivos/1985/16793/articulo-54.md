@@ -1,0 +1,1 @@
+Artículo 54.-Las demás disposiciones sobre el adiestramiento no contempladas en este Reglamento se regirán por lo estipulado en el Estatuto de Servicio Civil y su Reglamento, el decreto N° 15302-P, la ley N° 6362, ley N° 1810, y las eventuales disposiciones que sobre la materia dicte la Dirección General Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 4°-Para los efectos del Ministerio de Seguridad Pública el adiestramiento del personal administrativo será un derecho, un deber y una obligación en cualesquiera de los niveles jerárquicos, en tanto no afecte el buen funcionamiento de la oficina y la prestación del servicio público.

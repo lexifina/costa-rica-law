@@ -1,0 +1,1 @@
+Artículo 21.-Toda acción de adiestramiento debe ser sometida a evaluación y seguimiento. Los métodos para efectuarlo serán establecidos por la Unidad de Adiestramiento en coordinación con el Departamento de Adiestramiento de Personal de la Dirección General de Servicio Civil.
