@@ -1,0 +1,2 @@
+ARTICULO 14. Para gravar toda actividad lucrativa recién establecida, que no pueda sujetarse al procedimiento impositivo del articulo 4, la Municipalidad puede realizar una estimación tomando como parámetro otros negocios similares.
+Este procedimiento tendrá carácter provisional y deberá ser modificado, con base en la primera declaración que Ie corresponda hacer al patentado, para lo cual atenderá a las disposiciones del articulo siguiente.
