@@ -57,3 +57,17 @@ señala el artículo 125 de esta Ley.
 ñ) A la persona, física o jurídica, que realice trabajos en las vías
 públicas, en contravención de lo dispuesto en el artículo 206 de
 esta Ley.
+o) Al conductor de vehículos de transporte exclusivo de estudiantes,
+excepto de estudiantes universitarios, en las modalidades de microbús,
+buseta y autobús que lleve a un menor de edad de pie.
+(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
+p) Los conductores de automóviles y vehículos de transporte exclusivo de estudiantes,
+excepto de estudiantes universitarios, que no lleven a los menores de edad con
+cinturón de seguridad.
+(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
+q) Los conductores de transporte exclusivo de estudiantes que no tengan correctamente instalados los cinturones de seguridad.
+(Así adicionado por el artículo 2 de la Ley N° 8167 de 27 de noviembre del 2001)
+(NOTA: De conformidad con lo dispuesto en el transitorio único de la Ley 8167 de 27 de noviembre del 2001,
+los vehículos de transporte de estudiantes, (buses, busetas y microbuses) con exepción de los estudiantes universitarios
+deberán estar provistos de cinturón de seguridad para todos los ocupantes en un período de un año, contado a partir de
+la fecha de entrada en vigencia de dicha ley, es decir a partir del 18 de diciembre del 2001).

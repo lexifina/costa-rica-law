@@ -1,7 +1,2 @@
-ARTÍCULO 124.- Se prohíbe a todos los conductores transportar un
-número de pasajeros superior a la capacidad autorizada. Asimismo, es
-prohibido viajar en los estribos o fuera de la cabina destinada al
-transporte de los pasajeros. La autoridad que sorprenda tal acto,
-expulsará del vehículo a los pasajeros que viajen en exceso pero, en el
-caso de que se trate de transporte remunerado, en el mismo momento, se
-les deberá devolver el pasaje.
+ARTÍCULO 124.-Prohíbese a todos los conductores transportar un número de pasajeros superior a la capacidad autorizada y que dichos pasajeros viajen en los estribos o fuera de la cabina destinada a ellos. La autoridad que sorprenda tal acto bajará del vehículo a los pasajeros que viajen en exceso, pero, si se trata de transporte remunerado, en el mismo momento, se les deberá devolver el pasaje. Asimismo, es prohibido llevar de pie a menores de edad en vehículos de transporte exclusivo de estudiantes, excepto de estudiantes universitarios, en las modalidades de microbús, buseta y autobús.
+(Así reformado por Ley N° 8167 de 27 de noviembre del 2001)
