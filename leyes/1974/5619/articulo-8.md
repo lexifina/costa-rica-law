@@ -1,6 +1,6 @@
-Artículo 8º.- La Junta Administrativa deberá elaborar un presupuesto
-de sus gastos, que deberá someter al Ministerio de Cultura, Juventud y
-Deportes, quien lo deberá enviar a la aprobación de la Contraloría General
-de la República. Esta Institución queda autorizada para ejercer, además,
-los controles de otra naturaleza que a su juicio convengan al interés del
-Museo.
+"Artículo 8º.- Autorízase a las Municipalidades de la provincia de
+Alajuela y a todas las instituciones autónomas y semiautónomas del Estado,
+para dar subvenciones y hacer donaciones al Museo, y a la Junta
+Administrativa de éste, para recibirlas de aquellas instituciones y de
+particulares".
+"
