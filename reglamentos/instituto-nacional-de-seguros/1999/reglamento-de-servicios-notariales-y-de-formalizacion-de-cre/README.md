@@ -14,3 +14,4 @@ Reglamento de Servicios Notariales y de Formalización de Créditos Hipotecarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-07-29 | la propia norma |
+| 2 | 1998-02-09 | Ley 8 |
