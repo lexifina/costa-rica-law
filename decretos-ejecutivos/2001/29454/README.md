@@ -15,3 +15,4 @@ Régimen tarifario para servicios no aeronáuticos en el Aeropuerto Internaciona
 | --- | --- | --- |
 | 1 | 2001-05-04 | la propia norma |
 | 2 | 2001-05-23 | Decreto Ejecutivo 29573 (2001-05-23) |
+| 3 | 2002-04-19 | Decreto Ejecutivo 30408 (2002-04-19) |
