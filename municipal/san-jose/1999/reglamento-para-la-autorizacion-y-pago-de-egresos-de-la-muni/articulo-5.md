@@ -1,3 +1,4 @@
 CAPITULO II
-De la forma en que deben hacerse los pagos
-Artículo 5°—Los pagos por los egresos contemplados en los artículos anteriores se efectuarán por medio de cheque extendido por el Contador con la firma del Tesorero y al menos, con la de otro funcionario autorizado al efecto de conformidad con lo establecido en los artículos 17, inciso b) y 109 del Código Municipal y lo dispuesto en este reglamento.
+De la forma en que deben hacerse los pago
+Artículo 5º—Los pagos por los egresos contemplados en los Artículos anteriores se efectuarán por medio de cheque, transferencia electrónica de fondos o cualesquiera otro medio que a futuro se determine, atendiendo los principios de eficiencia y seguridad, referenciados en la Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento, serán extendidos por el Contador, con la firma del Tesorero y al menos, con la de otro funcionario autorizado al efecto, de conformidad con lo establecido en los Artículos 17, inciso b) y 109, del Código Municipal y lo dispuesto en este Reglamento
+(Así reformado en sesión N° 128 del 12 de octubre del 2004)
