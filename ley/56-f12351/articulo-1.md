@@ -1,0 +1,5 @@
+DECRETO LVI
+Conmuta al reo Juan Cerrano la pena de ocho años de prisión, en otros tantos de obras públicas.
+“ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Ordinaria del Estado libre de Costa Rica, con presencia de la consulta hecha por el Tribunal Superior de Justicia relativa a conmutar en obras públicas, la pena de prisión impuesta a Juan Cerrano en la primera y segunda Instancia; y considerando que si en aquella vez no pudo aplicarse la Ley de 27 de Abril de 830, fue por que el mismo padecía, o había fingido padecer de una grave enfermedad que le imposibilitaba para todo ejercicio corporal, que de ella se halla completamente bueno, y en aptitud de compurgar el atroz delito de homicidio por que fue sentenciado; y cuya satisfacción imperiosamente reclama la sociedad. Con presencia también de las facultades que el artículo 55, 10 de la Constitución le concede; y en uso de ellas mismas, ha venido en decretar y decreta.
+Art 1°.- Se conmuta la pena de ocho años de prisión a que estaba condenando Juan Cerrano, en otros tantos de obras públicas.
