@@ -14,3 +14,4 @@ Reglamento de Becas y Licencias del IDA (En La Gaceta N° 152 del 7 de agosto de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-09 | la propia norma |
+| 2 | 2000-08-28 | Reglamento 61 (2000-08-28) |
