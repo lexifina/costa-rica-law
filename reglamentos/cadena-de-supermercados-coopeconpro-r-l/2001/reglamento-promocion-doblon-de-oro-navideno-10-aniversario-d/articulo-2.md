@@ -1,0 +1,1 @@
+2°—El periodo promocional se establece a partir del 1° de agosto al 22 de diciembre del 2001 inclusive, se establece un periodo de prorroga de 15 días calendario para otorgar cualquier premio que durante el periodo establecido de la promoción no haya sido reclamado.

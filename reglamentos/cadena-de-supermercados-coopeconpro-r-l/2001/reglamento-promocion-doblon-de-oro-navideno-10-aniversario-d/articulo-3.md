@@ -1,0 +1,1 @@
+3°—Participan todos los puntos de ventas de la cadena de Supermercados Coopeconpro, R. L, en la provincia de Guanacaste y ubicados en: Santa Cruz, Nicoya, Liberia, Bagaces, Cañas, Las Juntas, Colorado, Tilarán, Arenal, Sardinal, Filadelfia, Belén, Cartagena, 27 de Abril, Santa Bárbara, La Cruz y Santa Cecilia.
