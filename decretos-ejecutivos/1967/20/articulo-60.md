@@ -1,2 +1,2 @@
-Artículo 60.- Las asociaciones de desarrollo integral para el cumplimiento de sus fines, podrán promover dentro de su territorio, el establecimiento de asociaciones especificas o crear grupos de trabajo por acuerdo de Junta Directiva para el cumplimiento de labores especificas bajo la dirección del secretario ejecutivo.”
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)
+Artículo 60.- Toda junta de vecinos tendrá derecho a elegir a un delegado que la presente ante la Junta Directiva, a cuyas sesiones puede concurrir con voz pero sin voto. Sólo podrán pertenecer a la junta de vecinos, quienes estén inscritos en el Registro de la asociación y vivan en el Territorio del vecindario respectivo.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 59 al 60)

@@ -1,6 +1,2 @@
-Artículo 66.- Las asociaciones deben llevar:
-a) Un libro de asociados;
-b) Un libro de actas de las asambleas generales;
-c) Un libro de actas de la Junta Directiva; y
-d) Los libros de contabilidad que determine la Dirección.
-Estos libros serán legalizados por la Dirección.
+Artículo 66.- Las asociaciones pueden tener uno o varios locales para el cumplimiento de sus actividades. Es entendido que si esos locales son empleados para actos ilícitos, inmorales o contrarios a las buenas costumbres, serán clausurados por orden de la Dirección. Queda prohibido efectuar en dichos locales, reuniones y toda clase de manifestaciones políticas, religiosas o inspiradas en motivos de orden sectario.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 65 al 66)

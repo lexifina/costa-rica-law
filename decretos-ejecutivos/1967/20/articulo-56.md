@@ -1,7 +1,7 @@
-Artículo 56°.- Los vocales sustituirán por su orden a los miembros de la Junta Directiva excepto al Presidente, que será sustituido únicamente por el Vicepresidente. Además, cumplirán las funciones que les asigne el estatuto y la Junta Directiva.
-a) Un libro de asociados;
-b) Un libro de actas de las asambleas generales;
-c) Un libro de actas de la Junta Directiva; y
-d) Los libros de contabilidad que determine la Dirección.
-Estos libros serán legalizados por la Unidad Legal y de Registro de la Dirección.
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)
+Artículo 56.- Son funciones del Fiscal:
+a) Velar por la debida observancia del Estatuto, la ley y este Reglamento
+b) Fiscalizar la marcha de la asociación en sus aspectos interno y externo, a fin de evitar toda clase de irregularidades;
+c) Denunciar ante la Junta Directiva y si fuere del caso, ante la asamblea general, cualquier problema, que a su juicio atente contra las normas que rigen la vida de la asociación
+d) Levantar informaciones y diligenciar las comisiones que le encomiende la Junta Directiva; y
+e) Las otras que le asigne el Estatuto o la Junta Directiva.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 55 al 56)

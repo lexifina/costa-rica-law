@@ -1,4 +1,7 @@
-Artículo 22°.—Caso de que el informe fuera afirmativo se llevará a cabo un proceso de promoción. Cumplido este satisfactoriamente, se convocará a los vecinos para que se reúnan en asamblea general, que deberá estar integrada por cien vecinos, por lo menos, mayores de quince años en el caso de Asociaciones Integrales y veinticinco en el caso de Específicas, para constituir la Asociación de Desarrollo de la Comunidad que se ha solicitado, conforme las siguientes indicaciones:
-a) La fecha de convocatoria se determinará con la comunidad respectiva con un mes, por lo menos, de anticipación a la celebración de la asamblea. Deberá contener hora y sitio convenientes y será difundida en la comunidad por todos los medios de publicidad adecuados a fin de asegurar la concurrencia del mayor número de vecinos. Dentro de este término deberá ser publicado en el Diario Oficial;
-b) Durante el tiempo que media entre la convocatoria y la realización de la asamblea, el promotor orientará e impulsará el movimiento y en consulta con los dirigentes y vecinos se elaborará un proyecto de Estatuto para regir la Asociación, de acuerdo con la Ley y su Reglamento, el que deberá ser previamente aprobado por la Unidad Legal y de Registro de la Dirección.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 4393 del 10 de diciembre de 1974)
+Artículo 22.- Recibida la solicitud, la Dirección, de acuerdo con sus posibilidades, tomará las providencias necesarias para realizar el estudio de la comunidad a saber:
+a) Hará un estudio detallado del área que cubrirá la asociación, para los fines del artículo 16 de la ley.
+b) Investigará cuáles son los objetivos que persiguen los vecinos que desean asociarse y las posibilidades de lograrlo.
+c) Con base en lo anterior elaborará un informe al Departamento de Promoción externando una opinión concreta respecto de las posibilidades de funcionamiento de la asociación u otro tipo de organización.
+.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 21 al 22)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)

@@ -1,2 +1,6 @@
-Artículo 68.- Para facilitar el funcionamiento de las asociaciones y en cumplimiento de sus fines, la Dirección podrá conforme a los dispuesto en el artículo 36 de la ley, solicitar al Poder Ejecutivo que les conceda franquicia postal y telegráfica, lo mismo que la exoneración de toda clase de impuesto, especialmente respecto a equipo, maquinaria, material educativo o de divulgación que a juicio sean indispensables para que la organización cumpla sus fines. En cada caso la asociación está obligada a comprobar la necesidad del bien sobre el cual hace la solicitud de exoneración y los fines para que será destinada.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)
+Artículo 68°- Son obligaciones de las Asociaciones:
+a) Llevar en orden los libros a que se refiere el artículo anterior;
+b) Realizar puntualmente las asambleas y las reuniones de la junta directiva; y
+c) Suministrar a la dirección los informes que ésta indique sobre actividades generales y, movimiento económico. Asimismo deberá exhibir los libros de la Asociación y la cuenta bancaria, tan pronto les sean solicitados por la Dirección.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 67 al 68)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)

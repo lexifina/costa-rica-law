@@ -1,3 +1,2 @@
-Artículo 31.- Para los fines legales consiguientes, toda reforma al estatuto deberá ser inscrita conforme a los trámites anteriores. Cada dos años también deberá inscribirse el acuerdo de la asamblea general en que se de la asociación, en la cual dé la información correspondiente y formalice la solicitud de inscripción, en este caso sólo se publicará un aviso en el Diario Oficial dando cuenta de la integración de la nueva Junta Directiva.
-Igual información se requiere para inscribir los nombramientos parciales de la Junta Directiva y las reformas de cancelar la afiliación.
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)
+Artículo 31.- La inscripción en el Registro autoriza a la asociación para funcionar y le otorga plena personería jurídica. Tal personería se acreditará conforme lo indica el artículo 28 de la Ley.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 30 al 31)

@@ -1,3 +1,2 @@
-CAPITULO IV
-Del funcionamiento de las Asociaciones y de su Patrimonio
-Artículo 63.- El ejercicio administrativo y fiscal de las asociaciones durará un año, de acuerdo con lo que determine el Estatuto.
+Artículo 63.- Las finalidades de las asociaciones de desarrollo específico, son las determinados por la obra concreta que se proponen realizar, o por los propósitos determinados que deseen alcanzar. En todo caso, su orientación general debe responder a la filosofía que fundamenta el movimiento de desarrollo de la comunidad, como instrumento del mejoramiento integral de las condiciones de vida de la población.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 62 al 63)

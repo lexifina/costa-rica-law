@@ -1,2 +1,6 @@
-Artículo 95.- De acuerdo con los estudios practicados sobre comunidades, referentes al área jurisdiccional de las asociaciones, la Dirección está facultada para determinar sus límites conjuntamente con los principales dirigentes de la comunidad y resolver cualquier conflicto posterior que se presente, relativo a esta materia.
-(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)
+Artículo 95.- Para los efectos del artículo anterior, la Dirección procederá a examinar fundamentalmente los siguientes extremos:
+a) El grado en que la asociación comprende el mayor y más armónico número de actividades de desarrollo.
+b) Cabida que se da a los diversos puntos de vista de grupos y personas, intereses y métodos;
+c) El número de afiliados efectivos; y
+d) Regularidad en el manejo de sus finanzas y eficiencia en el cumplimiento de sus fines.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 94 al 95)

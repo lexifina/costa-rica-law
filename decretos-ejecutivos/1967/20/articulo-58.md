@@ -1,8 +1,14 @@
-De las Juntas de Vecinos y los Grupos de Trabajo
-Artículo 58.—Para facilitar el trabajo de la Asociación, la Junta Directiva, puede constituir juntas de vecinos en barrios o vecindarios pequeños. Estas juntas servirán de nexo entre las asociaciones y los sectores de afiliados a que pertenecen.
-Tendrán las siguientes funciones:
-a) Informar constantemente a los asociados del área sobre las diversas actividades de la asociación;
-b) Mantener informada a la Asociación de las necesidades y problemas de su sector y proponer planes para resolverlas en conformidad con los vecinos;
-c) Desarrollar todas las tareas que les encomiende la Junta Directiva; y
-d) Administrar adecuadamente los fondos que les asigne la Asociación y aquellos que se produzcan en las comunidades respectivas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)
+Artículo 58°.- Son funciones del Secretario Ejecutivo:
+a) Ejecutar los acuerdos de la Junta Directiva y de la asamblea general;}
+b) Proponer a la Junta Directiva el nombramiento del personal administrativo de la asociación, cuando ello sea necesario;
+c) Asistir al Presidente en la preparación del plan anual de actividades y del presupuesto correspondiente, para los fines reglamentarios respectivos;
+d) Convocar a los miembros de la Junta a sesiones de cualquier clase y confeccionar la orden del día para cada una de ellas.
+e) Asistir al Tesorero y al Secretario en las funciones respectivas.
+f) Organizar las oficinas de la asociación y custodiar sus libros, documentos, archivos, bienes y toda clase de valores;
+g) Informar a los asociados y al público, de todas las actividades de la asociación.
+h) Asistir a las sesiones de la Junta Directiva, con voz pero sin voto;
+i) Proponer a la Junta Directiva la creación de juntas auxiliares de vecinos y de grupos de trabajo;
+j) Supervisar y coordinar las actividades de esas juntas de vecinos y grupos de trabajo.
+k) Proporcionar a los afiliados toda clase de informes sobre la marcha de la asociación; y
+l) Las otras que le señalen la Junta Directiva, la asamblea general o el estatuto .
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 57 al 58)

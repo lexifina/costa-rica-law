@@ -1,11 +1,4 @@
-De las Estatutos
-Artículos 32°.- Además de los requisitos expresados en el artículo 17 de la Ley, el Estatuto de las asociaciones de desarrollo deberá expresar:
-a) El territorio que abarca la asociación. Este territorio deberá determinarse tomando en cuenta los números mínimo y máximo de vecinos que en él habitan, conforme lo indica el artículo 16 de la ley;
-b) La integración de la Junta Directiva y la forma de elegirla;
-c) La forma en que las asociaciones podrán constituir uniones, federaciones y confederaciones
-d) Los procedimientos de afiliación y desafiliación de los asociados;
-e) Los deberes y derechos de los mismos, al igual que el sistema de sanciones que les será aplicable;
-f) La forma de fijar las contribuciones ordinarias y extraordinarias;
-g) La clase de informes que la Junta Directiva debe rendir a la asamblea general y los que el secretario ejecutivo debe rendir periódicamente a la Junta Directiva; y
-h) Cualesquiera otros aspectos importantes, de acuerdo con la Ley y el presente Reglamento”.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)
+Artículo 32.- Para los fines legales consiguientes, toda reforma al estatuto deberá ser inscrita conforme a los trámites anteriores. Cada dos años también deberá inscribirse el acuerdo de la asamblea general en que se de la asociación, en la cual dé la información correspondiente y formalice la solicitud de inscripción, en este caso sólo se publicará un aviso en el Diario Oficial dando cuenta de la integración de la nueva Junta Directiva.
+Igual información se requiere para inscribir los nombramientos parciales de la Junta Directiva y las reformas de cancelar la afiliación.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 31 al 32)
+(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)

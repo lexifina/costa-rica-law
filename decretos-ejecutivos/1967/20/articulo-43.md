@@ -1,3 +1,16 @@
-Artículo 43.- La Asamblea General se reunirá una vez al año, en el sitio fecha y hora que establezca la Junta Directiva, para cumplir las funciones indicadas en el artículo anterior. Sesionará también extraordinariamente a solicitud de la mayoría de la Junta Directiva o a solicitud del 10% de los afiliados activos, para conocer asuntos específicos. La Convocatoria se anunciará ante los asociados por los medios se divulgación disponibles y se comunicará a la Dirección, por lo menos, con quince días de anticipación a la celebración de la asamblea. El quórum de las asambleas generales será de la mitad más uno de los afiliados activos. Cuando por cualquier circunstancia no hubiere quorum se convocará en el acto a una reunión a celebrarse una hora después, en la cual la asamblea sesionará válidamente con un mínimo de 20% de los afiliados activos, cuando se trate de asociaciones integrales y de un 40% cuando se trate de asociaciones específicas. Si no alcanzare ese mínimo deberá una nueva convocatoria, con todas las formalidades prescritas anteriormente. Los asistentes deberán firmar el acta respectiva, hasta alcanzar el número necesario para la formación del quórum. Lo resuelto respecto a nombramientos de miembros de la Junta Directiva, tiene apelación para ante la Dirección, dentro de los ocho días hábiles siguientes a su realización.
-La acción puede ser ejercida por cualquier afiliado mayor de edad que haya estado presente en la asamblea.
-(Así reformado por el artículo 1° de decreto ejecutivo N° 6426 del 4 de octubre de 1976)
+Artículo 43.—La asamblea general de asociaciones es el órgano máximo de las asociaciones de desarrollo de la comunidad y está constituida por los vecinos inscritos en el libro de afiliados que tengan por lo menos, un mes de haber sido afiliado por acuerdo de la Junta Directiva respectiva.
+Tratándose de organizaciones de segundo u otros grados la asamblea general la constituyen todos los representantes de las organizaciones integrantes, que serán nombrados por ellas mismas en el número y con las facultades que determine el estatuto.
+Sus funciones son:
+a) Elegir a los miembros de la Junta Directiva en forma individual, secreta y por mayoría de votos.
+b) Acordar las reformas al estatuto.
+c) Acordar la formación o integración de uniones cantonales o de zona, federaciones o confederaciones nacionales y su desafiliación.
+d) Aprobar, rechazar o modificar el programa anual de actividades de la asociación, presentado por la Junta Directiva, lo mismo que el presupuesto anual de gastos
+e) Conocer y aprobar o improbar los informes anuales que le presente la Junta Directiva.
+f) Acordar la disolución de la asociación o la afiliación de una específica a una integral.
+g) Acordar la disolución de la asociación o la afiliación de una específica a una integral.
+h) Autorizar a la Junta Directiva para celebrar contratos o contraer obligaciones por más de diez mil colones.
+i) Conocer de las renuncias presentadas por miembros de la Junta Directiva y todo lo relacionado con la separación de sus cargos.
+j) Fijar las cuotas ordinarias a cargo de los asociados. Y
+k) Las demás que indique el estatuto.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 42 al 43)
+(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)

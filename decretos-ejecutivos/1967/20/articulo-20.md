@@ -1,2 +1,4 @@
-Artículo 20°.- Para solicitar la constitución de una asociación de desarrollo integral se requiere que un número no inferior a cien vecinos de la localidad, mayores de quince años, presenten a la Dirección un memorial firmado por todos ellos conforme lo establecido en la ley y con veinticinco firmas de vecinos en el caso de asociaciones específicas
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)
+CAPITULO III
+De las Asociaciones para el Desarrollo de la Comunidad
+Artículo 20.- Las asociaciones para el desarrollo integral de la comunidad, son los organismos comunitarios con una circunstancias territorial determinada, que representa a las personas que viven en una misma comunidad y que por lo tanto están autorizadas para promover a realizar un conjunto de planes necesarios para desarrollar económica, social y culturalmente a los habitantes del área en que conviven, colaborando para ello con el Gobierno, las municipalidades del área en que conviven , colaborando para ello con el Gobierno, las municipalidades y cualquiera otros organismos públicos y privados.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 19 al 20)

@@ -1,9 +1,3 @@
-Artículo 51.-Son funciones del Presidente de la Junta Directiva:
-a) Coordinar las diversas actividades y trabajos de la asociación;
-b) Presidir las sesiones de la Junta Directiva y las reuniones ordinarias y extraordinarias de la asamblea general.
-c) Representar judicial y extrajudicialmente a la asociación con las facultades de apoderado general;
-d) Someter a conocimiento de la municipalidad respectiva, los planes y programas de la asociación, para los fines del artículo 33 de la ley;
-e) Presentar a la asamblea general, a nombre de la Junta Directiva, el informe anual de labores;
-f) Velar por el correcto desempeño de las funciones de los demás miembros de la Junta Directiva y del Secretario Ejecutivo;
-g) Velar porque se cumplan los acuerdos de la Junta Directiva; y
-h) Ejercer las demás funciones que le asigne el Estatuto.
+Artículo 51.- Perderá su condición de miembro de la Junta Directiva quien falte injustificadamente a tres sesiones ordinarias consecutivas o seis alternas, ordinarias o extraordinarias o por la Comisión de actos graves imputables a ellos, que perjudiquen la marcha o el prestigio de la Asociación, a juicio de la Junta Directiva. La cancelación de la credencial de miembros de Junta Directiva deberá ser acordada en asamblea general, convocada al efecto.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 50 al 51)
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)

@@ -26,3 +26,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | 11 | 1981-11-19 | Decreto Ejecutivo 13142 (1981-11-19) |
 | 12 | 1982-12-15 | Decreto Ejecutivo 14160 (1982-12-15) |
 | 13 | 1984-06-19 | Decreto Ejecutivo 15519 (1984-06-19) |
+| 14 | 1986-08-20 | Decreto Ejecutivo 17181 (1986-08-20) |

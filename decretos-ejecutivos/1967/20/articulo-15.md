@@ -1,2 +1,2 @@
-Artículo 15.-Habrá un Director Nacional que actuar como Director Ejecutivo del Consejo y ser responsable de la Administración General de la Dirección Nacional. Para el cumplimiento de sus funciones contar con un asistente ejecutivo y personal adecuado.
-(Así reformado por el artículo 15 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)
+Artículo 15.- Para efectos de coordinación, además de los miembros que establece el artículo 8° de la ley 3859, y la reforma de la ley N°6812 participaran en las sesiones del Consejo los Ministros de Obras Públicas y Transportes y de Cultura, Juventud y Deportes o sus representantes, El nivel de participación será fijado en el Reglamento Interno del Consejo.
+(Así adicionado por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986)

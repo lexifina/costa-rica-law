@@ -1,2 +1,4 @@
-Artículo 38.- La Junta Directiva puede decretar la desafiliación de un asociado en los casos del artículo anterior o cuando considere que en alguna forma daña las actividades de la asociación. El acuerdo respectivo debe estar bien fundamentando y tendrá apelación para ante la Asamblea General.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)
+Artículo 38.—La afiliación y desafiliación son completamente libres.
+Serán absolutamente nulas las cláusulas del estatuto en que se establezcan limitaciones a la libertad de afiliarse o retirarse o retirarse de la asociación. La condición de afiliado se pierde por renuncia expresa, o cuando demuestre su deseo de pertenecer a la asociación. Tal situación será calificada por la Junta Directiva para los efectos de cancelar la afiliación.
+(Así corrida su numeración por el artículo único del decreto ejecutivo N° 17181 del 20 de agosto de 1986, que lo traspaso del antiguo artículo 37 al 38)
+(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)
