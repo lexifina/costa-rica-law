@@ -14,10 +14,11 @@ auditorías externas.
 g) Definir las políticas en materia de personal.
 h) Aprobar, a propuesta del Gerente General, los contratos en que sea
 parte la empresa.
-i) Aprobar los planes de emisión de sellos y entregarlos al Banco
-Central de Costa Rica para la impresión, emisión y custodia. Para el
-escogimiento de motivos, deberá consultar a la Comisión Técnica Filatélica
+i) Aprobar los planes de emisión de sellos postales. La impresión, emisión
+y custodia de los sellos estarán a cargo de Correos de Costa Rica. Para
+el escogimiento de motivos deberá consultar a la Comisión Técnica Filatélica,
 cuya resolución será vinculante para la Junta Directiva.
+(Así reformado por Ley N° 8249 de 29 de abril del 2002)
 j) Agotar la vía administrativa en los recursos que se interpongan
 contra las resoluciones, los acuerdos o los actos emanados de las
 dependencias administrativas de la empresa.
