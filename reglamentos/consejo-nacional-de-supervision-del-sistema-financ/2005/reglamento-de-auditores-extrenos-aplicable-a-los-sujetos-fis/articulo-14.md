@@ -1,0 +1,5 @@
+SECCIÓN V
+Sustitución
+Artículo 14.—Sustitución del profesional o de la firma designada. En el caso de que un sujeto fiscalizado resuelva sustituir al profesional o firma auditora contratada, o bien, por retiro de esta, tanto el sujeto fiscalizado como el profesional o firma deberán rendir un informe a la Superintendencia respectiva, detallando en forma amplia las causas de la situación en un plazo no mayor de cinco días hábiles después de formalizarse la sustitución o retiro entre las partes.
+La falta de presentación de este informe acarreará como consecuencia para el profesional o firma auditora la desinscripción del registro de elegibles para el siguiente período, previo cumplimiento del debido proceso. En el caso de la entidad fiscalizada, se aplicará lo dispuesto en la normativa vigente.
+Una vez concluido el trabajo de auditoría y en el caso de que la entidad fiscalizada no acepte el dictamen emitido por el auditor externo, este último deberá remitir su dictamen a la Superintendencia respectiva.

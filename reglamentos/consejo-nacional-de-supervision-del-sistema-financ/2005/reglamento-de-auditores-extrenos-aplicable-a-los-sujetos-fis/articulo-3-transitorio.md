@@ -1,0 +1,1 @@
+Transitorio III.—Los sujetos fiscalizados contarán con el plazo de seis meses contados a partir de la vigencia de este Reglamento para constituir el Comité de Auditoría a que se refiere el artículo 24 de este Reglamento.

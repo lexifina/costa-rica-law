@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Para efectos de este Reglamento, el término sujeto fiscalizado comprende todas las entidades que de conformidad con las leyes respectivas se encuentran sujetas a la regulación o supervisión de alguna de las Superintendencias, incluyendo los grupos y conglomerados financieros.

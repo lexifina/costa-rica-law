@@ -1,0 +1,1 @@
+Transitorio II.—Para los estados financieros auditados del 2004 y 2005 los auditores externos deberán opinar con base en la norma contable emitida por el Consejo Nacional de Supervisión del Sistema Financiero. En el caso de los emisores no financieros los auditores deberán opinar con base en las Normas Internacionales de Información Financiera.

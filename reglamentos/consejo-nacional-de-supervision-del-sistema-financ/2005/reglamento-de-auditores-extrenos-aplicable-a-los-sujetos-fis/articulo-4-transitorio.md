@@ -1,0 +1,2 @@
+Transitorio IV.—Las tres Superintendencias deberán emitir en forma conjunta el acuerdo para definir la documentación mínima para la acreditación, así como el procedimiento para la inscripción a que se refiere el artículo 11 de este Reglamento en el plazo máximo de un mes contado a partir de la publicación de este Reglamento.
+El Registro de auditores a que se refiere la Sección III del Capítulo II Requisitos de los Auditores Externos deberá estar en funcionamiento a partir de abril del 2005.

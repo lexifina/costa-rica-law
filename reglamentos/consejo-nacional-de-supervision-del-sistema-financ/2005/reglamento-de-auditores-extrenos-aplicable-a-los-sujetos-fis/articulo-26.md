@@ -1,0 +1,13 @@
+Artículo 26.—Funciones. Sin perjuicio de lo establecido en el artículo 23, en particular corresponderá al Comité de Auditoría, las siguientes funciones:
+a) Propiciar la comunicación entre los miembros de la Junta Directiva u Órgano equivalente, el Gerente General, la Auditoría Interna, la auditoría externa y los entes supervisores.
+b) Conocer y analizar los resultados de las evaluaciones de la efectividad y confiabilidad de los sistemas de información y procedimientos de control interno.
+c) Cuando exista la función de Auditoría Interna, proponer a la Junta Directiva u Órgano equivalente los candidatos para auditor interno, excepto las entidades supervisadas que se rigen por lo dispuesto en la Ley General de Control Interno, Ley 8292.
+d) Dar seguimiento al cumplimiento del programa anual de trabajo de la Auditoría Interna.
+e) Proponer a la Junta Directiva u Órgano equivalente la designación de la firma auditora o el profesional independiente y las condiciones de contratación, una vez verificado el cumplimiento por parte de estos de los requisitos establecidos en este Reglamento.
+f) Revisar la información financiera tanto anual como periódica antes de su remisión a la Junta Directiva u Órgano equivalente, poniendo énfasis en cambios contables, estimaciones contables, ajustes importantes como resultado del proceso de auditoría, evaluación de la continuidad del negocio y el cumplimiento de leyes y regulaciones vigentes que afecten a la entidad.
+g) Revisar y trasladar a la Junta Directiva u Órgano equivalente, los estados financieros anuales auditados, el informe del auditor externo, los informes complementarios y la carta de gerencia.
+h) Dar seguimiento a la implementación de las acciones correctivas que formulen el auditor externo, el auditor interno y la Superintendencia correspondiente.
+i) Proponer a la Junta Directiva u Órgano equivalente el procedimiento de revisión y aprobación de los estados financieros internos y auditados, desde su origen hasta la aprobación por parte de los miembros del respectivo cuerpo colegiado.
+j) Velar porque se cumpla el procedimiento de aprobación de estados financieros internos y auditados.
+k) Evitar los conflictos de interés que pudiesen presentarse con el profesional o la firma de contadores públicos que se desempeñan como auditores externos al contratarles para que realicen otros servicios para la empresa.
+l) Además de los informes particulares que se requieran para dar cumplimiento a las funciones aquí señaladas, el Comité de Auditoría deberá rendir un reporte semestral sobre sus actividades a la Junta Directiva u Órgano equivalente.
