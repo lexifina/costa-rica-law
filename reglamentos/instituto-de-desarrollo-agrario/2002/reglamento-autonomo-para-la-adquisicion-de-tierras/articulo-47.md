@@ -1,6 +1,6 @@
 Artículo 47.—Los elementos a considerar en el análisis evaluativo de las fincas se agrupan en las cuatro categorías que se detallan en lo sucesivo:
 I. ASPECTOS NORMATIVOS.
-Esta categoría tiene un valor específico de: 10.00 puntos.
+Esta categoría tiene un valor específico de: 15.00 puntos.
 Dentro de esta categoría se consideran dos elementos ponderables relacionados con normativa interna y externa que debe tener presente el Instituto para decidir sobre la adquisición de las fincas.
 1) Área afectada por restricciones.
 El valor asignado a este elemento es: 8.00 puntos.
@@ -34,8 +34,24 @@ Rangos ponderación
 Distancia de 0 a menos de 10 kilómetros 1
 Distancia de 10 a 20 kilómetros 0.4
 Distancia mayor a 20 kilómetros 0
+3) Aspectos Legales:
+El valor asignado a este elemento es de 5 puntos.
+Se considera como un factor importante y limitante para una compra, que los inmuebles estudiados cuenten con los requisitos legales indispensables para que la compra se pueda materializar, los aspectos que aportaran puntuación son los siguientes:
+a) Oferta de venta vigente a la fecha de calificación.
+b) Los inmuebles cuentan con planos catastrados cuyas áreas coinciden con las áreas inscritas en el Registro Público.
+c) El expediente cuenta con certificación del Registro Público o Notaria , en donde se indica que el área inscrita coincide con el área del plano catastrado y que el inmueble pertenece a la persona física o jurídica que presentó la oferta de venta.
+d) El expediente contiene certificación del MINAE, Sistema Nacional de Áreas de Conservación, en donde se indique que la propiedad no está afectada parcial ni totalmente por cualquier área silvestre protegida sea cual sea su categoría de manejo administrada por el MINAE.
+e) El expediente cuenta con una certificación de Personería Jurídica emitida por el Registro Público o Notarial en donde se indique que la persona que firmó la oferta de venta tiene la representación legal.
+La distribución de los puntos, se regirá por lo indicado en el siguiente cuadro:
+Factor Puntaje
+Oferta de venta vigente 1
+Con planos catastrados 1
+Certificación del Registro Público o Notarial 1
+Certificación del MINAE 1
+Certificación de Personería Jurídica y / o copia de 1
+cédula de identidad o documento de identificación
 II. CARACTERÍSTICAS INTERNAS DE LA FINCA.
-Esta categoría tiene un peso específico de: 50.00 puntos
+Esta categoría tiene un peso específico de: 45.00 puntos
 El puntaje mínimo aceptable acumulado en esta categoría es de: 25.35 puntos.
 En esta categoría se consideran tres elementos importantes que dan indicios sobre el potencial de la finca para el desarrollo de un asentamiento parcelario, como son las clases de tierras, las fuentes de agua y los caminos internos. Ellos tienen una influencia determinante sobre otros elementos, también importantes, como son la capacidad de asentamiento y el precio de adquisición.
 1. Clases de tierras.
@@ -120,43 +136,6 @@ a) Se identifican las caracterizaciones para cada componente y nivel del element
 b) Se calcula el factor de ponderación mediante la fórmula antes descrita, para lo cual se utilizan los valores contenidos en el cuadro 4, de acuerdo a la caracterización identificada en el punto anterior.
 c) El factor de ponderación obtenido se multiplica por el puntaje asignado al elemento.
 d) El producto resultante será el valor del elemento para esa finca en particular.
-3. Caminos Internos.
-El valor asignado a este elemento es: 5.00 puntos.
-Este punto pondera la presencia de caminos internos, y su utilidad para las actividades del futuro asentamiento, desde el punto de vista de la distribución de los mismos dentro de la finca. También se consideran sus condiciones para la movilización de vehículos como son el material de construcción, el drenaje, el alcantarillado y el dimensionamiento. Si no existen caminos internos, la puntuación de este elemento será "0".
-La caracterización de los caminos internos será responsabilidad de la persona que realiza el estudio de avalúo. El Departamento. Formación de Asentamientos deberá incluir en el procedimiento de elaboración de ese estudio y en la estructura del informe respectivo, un capítulo sobre este tema donde se incorporen los siguientes conceptos:
-a) Buena distribución de caminos en la finca: Cuando los caminos construidos dentro de los linderos de la finca, evaluados en función de su utilidad para el futuro diseño de parcelación, permitirían dar acceso a, aproximadamente, un 60% o más del área parcelable.
-b) Regular distribución de caminos en la finca: Cuando los caminos construidos dentro de los linderos de la finca, evaluados en función de su utilidad para el futuro diseño de parcelación, permitirían dar acceso a, aproximadamente, un 30%-60% del área parcelable.
-c) Mala distribución de caminos en la finca: Cuando los caminos construidos dentro de los linderos de la finca, evaluados en función de su utilidad para el futuro diseño de parcelación, permitirían dar acceso a, aproximadamente, menos del 30% del área parcelable.
-d) Caminos construidos en lastre: Cuando el material de construcción de la superficie de rodamiento del camino es de una capa con un grosor mínimo de 25 centímetros de lastre compactado.
-e) Caminos construidos en tierra: Cuando el material de construcción de la superficie de rodamiento del camino es de tierra nivelada.
-f) Caminos con buen drenaje y alcantarillado: Cuando los caminos presentan, en mas de un 80% de su extensión, una conformación más alta en el centro con desnivel hacia los extremos laterales (bombeo adecuado), las cunetas laterales están hechas y el agua corre a través de éstas, sin dificultad, canalizándose por medio de alcantarillas en los puntos de confluencia.
-g) Caminos con regular drenaje y alcantarillado: Cuando las condiciones antes mencionadas se cumplen en un 50% al 80% de la extensión de los caminos.
-h) Caminos con mal drenaje y alcantarillado: Cuando las condiciones antes mencionadas se cumplen en menos del 50% de la extensión del camino.
-i) Buen dimensionamiento del camino: Cuando el ancho de la superficie de rodamiento del camino, en más de un 80% de la extensión del mismo, es de por lo menos 4.5 m en caminos de lastre y 10 m en caminos de tierra.
-j) Regular dimensionamiento del camino: Cuando las condiciones anteriores se cumplen en un 50% al 80% de la extensión del camino.
-k) Mal dimensionamiento del camino: Cuando las condiciones anteriores se cumplen en menos de un 50% de la extensión del camino.
-En los casos que la Comisión considere necesario se procederá a solicitar el criterio técnico del Área de Infraestructura y Planificación Física de Asentamientos del Departamento Servicios para el Desarrollo.
-Para efecto del cálculo del factor de ponderación, a cada componente se le asignó un peso porcentual de acuerdo a su importancia relativa dentro del elemento "caminos internos" y a cada nivel se le asignó un peso porcentual con relación al valor de cada componente en particular (ver cuadro 5).
-CUADRO 5
-DEFINICIÓN DE LOS COMPONENTES, NIVELES Y SUS
-RESPECTIVOS PESOS PORCENTUALES PARA
-EL ELEMENTO CAMINOS INTERNOS
-Distribución en Material de Drenaje y Dimensionamiento
-la finca 40% construcción 20% alcantarillado 20% 20%
-Bueno Regular Malo Lastre Tierra Bueno Regular Malo Bueno Regular Malo
-100% 70% 10% 100% 80% 100% 70% 10% 100% 70% 10%
-La determinación del factor de ponderación para este elemento se hará mediante la siguiente fórmula, utilizando la información del cuadro 5:
-F = A.a + B.b + C.c + D.d, donde:
-F = Factor de ponderación
-A = Peso porcentual del componente "Distribución en la finca", establecido en el cuadro 5 = (0.4)
-a = Peso porcentual del nivel establecido según la caracterización que se hizo del componente "Distribución en la finca" en el informe del estudio de avalúo (Buena = 1, Regular = 0.7, Malo = 0.1)
-B= Peso porcentual del componente "Material de construcción", establecido en el cuadro 5 = (0.2)
-b = Peso porcentual del nivel establecido según la caracterización que se hizo del componente "Material de construcción" en el informe del estudio de avalúo (Lastre = 1 y tierra = 0.8)
-C = Peso porcentual del componente "Drenaje y alcantarillado", establecido en el cuadro 5 = (0.2)
-c = Peso porcentual del nivel establecido según la caracterización que se hizo del componente "Drenaje y alcantarillado" en el informe del estudio de avalúo (Bueno = 1, Regular = 0.7 y malo = 0.1)
-D = Peso porcentual del componente "Dimensionamiento", establecido en el cuadro 5 = (0.2)
-d = Peso porcentual del nivel establecido según la caracterización que se hizo del componente "Dimensionamiento" en el informe del estudio de avalúo (Bueno = 1, Regular = 0.7 y malo = 0.1)
-La determinación de los puntos que obtendrá la finca en este elemento se realizará siguiendo el mismo procedimiento descrito para el elemento precedente.
 III. CARACTERÍSTICAS EXTERNAS DE LA FINCA.
 Esta categoría tiene un peso específico de: 25.00 puntos.
 Aquí se evalúan las principales condiciones del entorno de la finca que pueden influir en su potencial desarrollo productivo así como en la calidad de vida de la población del futuro asentamiento.
@@ -326,11 +305,11 @@ Vp = valor promedio por parcela en la región y subregión (valor que aparece en
 TCD = tipo de cambio del colón respecto al dólar en el día en que se hace la actualización.
 TCA = tipo de cambio del colón respecto al dólar en el día en que se hizo el primer cálculo de costo promedio por parcela que aparece en el Cuadro 8 (tipo de cambio promedio en mayo del 2002: 356 colones por dólar).
 El resultado es el valor o costo promedio por parcela actualizado para la región y subregión donde se ubica la finca bajo estudio.
-d) Se estima el costo por parcela en la finca bajo estudio. Para esto se utiliza la siguiente fórmula:
-Vn = P / CF, donde:
+d)Se estima el costo por parcela en la finca bajo estudio. Para esto se utiliza la siguiente fórmula:
+Vn = P X RTFe, donde:
 Vn = valor estimado por parcela en la finca bajo estudio.
 P = el precio menor elegido entre el precio que aparece en el avalúo y el precio que aparece en la oferta de venta.
-C.F = cabida familiar estimada para la finca bajo estudio. Se obtiene de dividir el "área parcelable" de ésta, que se definió en el punto II.A.1, Sección I del Capítulo Sétimo de este Reglamento, entre la relación tierra familia correspondiente que aparece en el cuadro 8.
+RTFe = Relación Tierra Familia estimada de consulta al cuadro 8.
 e) Se calcula el valor o precio comparativo por parcela en la finca bajo estudio, mediante la siguiente fórmula:
 Vc = Vn / Va x 100, donde:
 Vc = valor o precio comparativo por parcela en la finca bajo estudio.
@@ -348,5 +327,8 @@ Vc de 100% a menos de 110% 0.85
 Vc de 110% a menos de 120% 0.75
 Vc de 120% a menos de 130% 0.65
 Vc de 130% a menos de 140% 0.45
-Vc de 140% a 150% 0.35
-Vc mayor de 150% 0
+Vc de 140% a menos de 150% 0.35
+Vc de 150% a menos de 160% 0,25
+Vc de 160% a menos de 170% 0,10
+Vc mayor de 170% 0
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 035-03, de 21 de julio de 2003, publicada en La Gaceta N° 150 de 06 de agosto de 2003.)

@@ -14,3 +14,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-01 | la propia norma |
+| 2 | 2003-07-21 | Reglamento 35 (2003-07-21) |
