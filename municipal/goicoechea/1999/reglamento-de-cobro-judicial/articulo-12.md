@@ -1,0 +1,2 @@
+Artículo 12.-Los abogados deberán presentar al Departamento de Cobro Administrativo, un informe detallado del estado de los juicios asignados los cuales deberán entregar en los primeros días del mes de junio y diciembre de cada año.
+Además, deberán presentar los informes adicionales que solicite el Concejo Municipal, Alcalde Municipal, Auditoría Interna, Direcciones Financiera-Administrativa, y ]a oficina de Cobro Administrativo, requerimientos que deberán cumplirse dentro de los cinco días hábiles siguientes a su formulación.

@@ -1,0 +1,3 @@
+Artículo 8°-El profesional deberá excusarse de asumir un juicio, cuando se tratase de su cónyuge, ascendentes, descendientes, hermanos, tíos o sobrinos por consanguinidad o afinidad. O cuando existiese una relación de 'amistad con los demandados o terceros involucrados en el caso de los procesos judiciales.
+En tal caso, así como cuando exista otro tipo de imposibilidad, el profesional le enviará una nota explicativa al Departamento de Cobro Administrativo dentro de los dos días hábiles siguientes al conocimiento de esta circunstancia, indicando los motivos de la imposibilidad a fin de que esta situación sea analizada y de ser procedente se le restituya el asunto.
+El asunto devuelto será reasignado de acuerdo al rol respectivo de ser pertinente.

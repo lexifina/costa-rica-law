@@ -1,0 +1,1 @@
+Artículo 23.-EI Departamento de Cobro Administrativo deberá redistribuir los juicios en un plazo no mayor de 10 días hábiles, siguiendo el rol de asignaciones que establece el artículo 3 de este reglamento, salvo que consideremos más conveniente asignarlos total o parcialmente a los profesionales indicados en el párrafo final del artículo 2 de este reglamento.

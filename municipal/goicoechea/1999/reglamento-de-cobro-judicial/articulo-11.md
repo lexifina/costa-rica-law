@@ -1,0 +1,1 @@
+Artículo 11.-Es prohibido para los abogados hacer cualquier tipo de arreglo con los contribuyentes, recibir pagos o abonos como amortización a ]a deuda, únicamente podrán recibir el pago correspondiente a los honorarios cuyo cálculo será el que rige.

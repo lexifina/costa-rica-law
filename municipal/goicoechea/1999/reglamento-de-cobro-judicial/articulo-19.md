@@ -1,0 +1,1 @@
+Artículo 19.-La Municipalidad podrá realizar los trámites administrativos respectivos contra. el abogado, ante la fiscalía del Colegio de Abogados, en aquellos casos en qúe demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar.

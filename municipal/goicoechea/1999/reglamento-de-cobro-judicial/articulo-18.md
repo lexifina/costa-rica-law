@@ -1,0 +1,1 @@
+Artículo 18.-Se le suspenderá la entrega de operaciones para el cobro judicial por plazo de dos meses a un año al profesional que in cumpla con lo dispuesto en los artículos 12 y 13 de este reglamento.

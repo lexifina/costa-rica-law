@@ -1,0 +1,1 @@
+Artículo 9°-Los profesionales contratados por la Municipalidad no podrán aceptar casos o litigios en contra de la institución ni realizar actos violatorios de normas o contratos en perjuicios de la Municipalidad.

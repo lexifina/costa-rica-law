@@ -1,0 +1,1 @@
+Artículo 6°-El abogado será responsable ante la Municipalidad de cualquier daño o perjuicio que le ocasione con motivo de la atención de los juicios a su cargo, derivados de las declaratorias de prescripción, inadmisibilidad o cualquier otra causa imputable.

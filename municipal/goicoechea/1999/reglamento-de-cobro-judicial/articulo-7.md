@@ -1,0 +1,1 @@
+Artículo 7°-El Departamento de Cobro Administrativo deberá mantener actualizado los registros de cada cuenta trasladada a cobro judicial y dar el debido seguimiento de las mismas velando por el fiel cumplimiento de los procedimientos establecida y del reglamento vigente.

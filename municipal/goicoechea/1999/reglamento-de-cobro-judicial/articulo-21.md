@@ -1,0 +1,1 @@
+Artículo 21.-Los artículos de orden disciplinario estarán a cargo del Departamento de Cobro Administrativo, salvo los indicados en el artículo anterior, que lo dirigirá la Dirección Financiera en conjunto con el Alcalde Municipal.
