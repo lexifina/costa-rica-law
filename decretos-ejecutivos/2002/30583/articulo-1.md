@@ -13,17 +13,19 @@ Considerando:
 5º—Que se requiere una instancia que contemple el impulso y la coordinación de acciones institucionales en la promoción de la seguridad ciudadana y la preservación de la seguridad nacional desde una perspectiva integral de la seguridad del ser humano.
 Decretan:
 Artículo 1º—Conformación del Área de Seguridad Integral y Participación Ciudadana. El Área de Seguridad Integral y Participación Ciudadana estará conformada por:
-- La Primera Vicepresidencia de la República.
-- El Ministerio de la Presidencia.
-- El Ministerio de Seguridad Pública y Gobernación.
-- El Ministerio de Justicia y Gracia.
-- El Ministerio de Planificación Nacional y Política Económica.
-- El Ministerio de Obras Públicas y Transportes.
-- El Ministerio de Relaciones Exteriores.
-- El Patronato Nacional de la Infancia.
-- El Instituto Nacional de la Mujer.
-- El Instituto de Fomento y Asesoría Municipal.
-- El Instituto Nacional de Seguros.
-- La Dirección Nacional de Desarrollo Comunal.
-- La Comisión Nacional de Emergencias.
-Además se considerará parte del área a todos los Ministerios, Instituciones Autónomas, Direcciones y/o Comisiones que desarrollen en forma permanente o temporal programas relacionados con el Área de Seguridad Integral y Participación Ciudadana.
+a) La Primera Vicepresidencia de la República
+b) El Ministerio de la Presidencia
+c) El Ministerio de Planificación Nacional y Política Económica
+d) El Ministerio de Seguridad Pública y Gobernación
+e) El Ministerio de Justicia y Gracia
+f) El Ministerio de Obras Públicas y Transporte
+g) El Ministerio de Relaciones Exteriores y Culto
+h) El Ministerio de Trabajo y Seguridad Social
+i) El Patronato Nacional de la Infancia
+j) El Instituto Nacional de la Mujer
+k) El Instituto de Fomento y Asesoría Municipal
+1) El Instituto Nacional de Seguros
+m) La Dirección Nacional de Desarrollo Comunal
+n) La Comisión Nacional de Emergencias
+Además se considerará parte del Área a todos los Ministerios, Instituciones Autónomas, Direcciones y/o Comisiones que desarrollen, en forma permanente o temporal, programas relacionados con el Área de Seguridad Integral y Participación Ciudadana.
+(Así reformado por artículo 1 del Decreto Ejecutivo Nª 30927 de 16 de diciembre de 2002)

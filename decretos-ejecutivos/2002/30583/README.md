@@ -14,3 +14,4 @@ Conforma Área de Seguridad Integral y Participación Ciudadana y Creación del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-27 | la propia norma |
+| 2 | 2002-12-19 | Decreto Ejecutivo 30927 (2002-12-19) |
