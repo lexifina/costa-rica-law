@@ -1,0 +1,1 @@
+Artículo N° 20.-Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes, y se tendrá por firme. En caso de empate se someterá de nuevo a votación y si persistiera el empate se pasará al Concejo Municipal para que lo defina.
