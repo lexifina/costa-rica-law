@@ -1,0 +1,1 @@
+Artículo 32.—El Comité Cantonal de Deportes y Recreación de San Mateo podrá autorizar a la junta Directiva el manejo de una caja chica hasta por la suma del 5% de su presupuesto. La caja chica deberá ser autorizada y supervisada por el Tesorero y el Presidente.

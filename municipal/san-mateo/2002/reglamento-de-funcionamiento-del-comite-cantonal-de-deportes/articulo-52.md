@@ -1,0 +1,1 @@
+Artículo 52.—La Junta Administrativa estará integrada por cinco miembros, dos miembros de nombramiento del Concejo Municipal, un miembro nombrado por el Instituto Costarricense del Deporte y la recreación y dos miembros del Comité Cantonal de Deportes y Recreación de San Mateo.

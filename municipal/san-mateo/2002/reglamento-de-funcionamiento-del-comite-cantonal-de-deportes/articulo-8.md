@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Comité Cantonal de Deportes y Recreación de San Mateo, una vez electos y juramentados nombrarán una junta directiva que estará formada por un Presidente, un Secretario, un Tesorero y dos Vocales. En la primera sesión establecerá el día y hora de sesiones.

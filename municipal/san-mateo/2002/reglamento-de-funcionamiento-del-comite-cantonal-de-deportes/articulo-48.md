@@ -1,0 +1,1 @@
+Artículo 48.—Las organizaciones deportivas adscritas al Comité Cantonal de San Mateo tendrán derecho al uso de las instalaciones deportivas y a participar en los proyectos y programas del Comité Cantonal de San Mateo. Deberán someterse a la programación del uso de instalaciones deportivas elaborado por el Comité Cantonal de San Mateo.

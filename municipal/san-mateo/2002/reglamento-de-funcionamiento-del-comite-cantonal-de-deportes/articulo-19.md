@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se produzca una destitución por parte del Comité Cantonal de Deportes y Recreación de San Mateo, éste deberá comunicar su decisión por escrito a la entidad y a la persona afectada, dando las razones que fundamentan su decisión.

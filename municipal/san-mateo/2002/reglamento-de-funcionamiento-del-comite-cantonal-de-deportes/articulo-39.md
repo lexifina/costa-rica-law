@@ -1,0 +1,1 @@
+Artículo 39.—La asamblea general para el nombramiento de los Comités Comunales estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de Desarrollo Comunal existente en la comunidad.

@@ -1,0 +1,1 @@
+Artículo 28.—A través de los convenios el Comité Cantonal podrá subvencionar instituciones deportivas debidamente inscritas ante el registro de Asociaciones Deportivas para el desarrollo de las ligas menores y la promoción del deporte a través de programas, competencias y torneos, no así para el deporte de élite, profesional o de primera división.

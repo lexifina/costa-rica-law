@@ -1,0 +1,1 @@
+Artículo 42.—Cada Comité Comunal llevará un libro de Actas y un libro de Tesorería, que tenga hojas numeradas los cuales deberán ser presentados al Comité Cantonal quien los autorizará sellando cada hoja de los libros.

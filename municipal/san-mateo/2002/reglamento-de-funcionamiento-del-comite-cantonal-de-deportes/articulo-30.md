@@ -1,0 +1,1 @@
+Artículo 30.—Para los efectos del artículo anterior, el Auditor Municipal realizará estudios contables y de aplicación de recursos, debiendo informar al Concejo Municipal y a la Contraloría General de la república sobre el resultado de dichos estudios.
