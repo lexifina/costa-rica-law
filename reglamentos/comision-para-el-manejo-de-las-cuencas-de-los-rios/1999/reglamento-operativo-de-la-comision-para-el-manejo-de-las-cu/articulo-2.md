@@ -1,0 +1,1 @@
+Artículo 2º.—Procurará la Comisión ser un organismo mixto que ayude a concentrar todos los esfuerzos de manejo sostenible, de manera que los diferentes sectores productivos lleven adelante sus proyectos en equilibrio con la naturaleza.

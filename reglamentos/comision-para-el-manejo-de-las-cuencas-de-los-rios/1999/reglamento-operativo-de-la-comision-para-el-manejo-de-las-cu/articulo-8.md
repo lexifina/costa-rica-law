@@ -1,0 +1,1 @@
+Artículo 8º—Gestionará convenios de cooperación técnica, científica y económica con diferentes instituciones públicas o privadas nacionales e internacionales para el desarrollo de sus objetivos y funciones.

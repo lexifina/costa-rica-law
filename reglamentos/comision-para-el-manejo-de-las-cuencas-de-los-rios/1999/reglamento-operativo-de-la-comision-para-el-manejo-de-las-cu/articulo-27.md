@@ -1,0 +1,1 @@
+Artículo 28.—La Comisión elaborará un boletín informativo que será distribuido entre los diferentes miembros de la Comisión y en general a todos aquellos posibles usuarios de las Cuencas, el que deberá circular al menos una vez cada tres meses.

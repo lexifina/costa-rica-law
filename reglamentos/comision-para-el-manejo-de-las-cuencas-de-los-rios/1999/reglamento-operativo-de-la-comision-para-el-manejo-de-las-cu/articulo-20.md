@@ -1,0 +1,1 @@
+Artículo 21.—La Asamblea de la Comisión podrá nombrar comités especiales para llevar a cabo acciones específicas, o como órganos desconcentrados de la Comisión en diferentes zonas en las Cuencas que administra, los que deberán rendir informes por escrito en cada sesión ordinaria.

@@ -1,0 +1,1 @@
+Artículo 18.—En pleno la Comisión tratará los asuntos que se sometan a su conocimiento por cualquiera de sus miembros y de conformidad con el plan de trabajo que deberá elaborar al menos una vez cada año en el mes de noviembre.

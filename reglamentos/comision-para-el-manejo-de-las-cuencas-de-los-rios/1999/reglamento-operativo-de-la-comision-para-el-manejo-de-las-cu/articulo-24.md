@@ -1,0 +1,1 @@
+Artículo 25.—La asistencia de los miembros nombrados al Comité es obligatoria y la ausencia al mismo implicará que se remita el récord de asistenta a la Organización que representa y a la Comisión en pleno para el nombramiento de otro representante, si así se decidiere.

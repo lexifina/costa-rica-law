@@ -1,0 +1,1 @@
+Artículo 15.—La asistencia a las sesiones es obligatoria y la secretaría de la Comisión enviará a cada Organización representada, un informe en caso de ausencias de su Representante, para lo que considere.

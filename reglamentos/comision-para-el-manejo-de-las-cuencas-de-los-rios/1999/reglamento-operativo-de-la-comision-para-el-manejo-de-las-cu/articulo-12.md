@@ -1,0 +1,1 @@
+Artículo 13.—La asistencia a las reuniones es obligatoria y cada Institución u Organización representada, deberá nombrar a su interno, un miembro propietario y otro suplente, este último representará al propietario en sus ausencias. La Comisión enviará a cada institución u organización, una nota en la que le indique su obligación de acreditar a tales miembros.
