@@ -1,0 +1,1 @@
+Artículo 6°— La Comisión 2000 podrá nombrar Comités Técnicos, o grupos especializados que funcionarán ad honorem, y rendirán informes y recomendaciones técnicas que fundamenten acciones a seguir por las instituciones.

@@ -1,0 +1,1 @@
+Artículo 8°— La Comisión 2000 presentará informes periódicamente a la Presidencia de la República , y recomendará al Señor Presidente las directrices que se necesiten emitir, para hacerle frente a la problemática de la computación en el año 2000.

@@ -1,0 +1,1 @@
+Artículo 9°—Se declara la problemática de la computación en el año 2000, de interés nacional y conforme las potestades conferidas por la Constitución Política y las leyes, el Poder Ejecutivo, adoptará aquellas medidas que permitan enfrentar eficazmente esta situación,

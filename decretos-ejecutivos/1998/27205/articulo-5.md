@@ -1,0 +1,1 @@
+Artículo 5°—Establecer los planes de acción para resolver el problema informático del año 2000, así como las acciones de contingencia en los casos que no haya el tiempo para mitigar todos sus efectos.

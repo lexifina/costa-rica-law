@@ -1,0 +1,1 @@
+Artículo 7°—El Viceministro de Ciencia y Tecnología coordinará y dará seguimiento a los acuerdos tomados y al trabajó de los Comités Técnicos o grupos especializados que se llegaren a conformar. Las instituciones del Estado quedan autorizadas a prestar todo tipo de colaboración que sea requerida por la Comisión 2000.
