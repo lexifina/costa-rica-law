@@ -1,0 +1,1 @@
+Artículo 16°- Pasada la audiencia la municipalidad tendrá ocho días hábiles para resolver la fijación en una sesión extraordinaria convocada para tratar sólo este asunto. Resuelta la fijación de las tarifas, éstas deberán publicarse en el Diario Oficial y entrarán en vigencia a partir de dicha publicación.
