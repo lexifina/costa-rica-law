@@ -13,3 +13,4 @@ Normas para Valoración de Mercancías Importadas Averiadas y Usadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-01-21 | la propia norma |
+| 2 | 1992-01-21 | SINALEVI (sin norma nombrada) |
