@@ -1,4 +1,4 @@
-Artículo 6º.- Las comisiones nombrarán de su seno un secretario que
+ARTICULO 6º.- Las comisiones nombrarán de su seno un secretario que
 tendrá la obligación de llevar un libro de actas debidamente legalizado
 por la Contraloría General de la República, en el cual se harán constar
 todas las sesiones de la comisión con sus incidencias, los egresos que

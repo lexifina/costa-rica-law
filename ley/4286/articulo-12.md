@@ -1,4 +1,4 @@
-Artículo 12.- Si en el término señalado por el artículo anterior, la
+ARTICULO 12.- Si en el término señalado por el artículo anterior, la
 Municipalidad de San José no cumple con su obligación, la Contraloría no
 aprobará ningún presupuesto ordinario o extraordinario de esa corporación
 municipal.
