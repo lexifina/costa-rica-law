@@ -1,0 +1,1 @@
+Artículo 12.—La elaboración y ejecución de proyectos de investigación y producción deben ser participativos, involucrando instituciones de enseñanza superior, empresa privada, grupos organizados, organizaciones no gubernamentales y las estructuras regionales del MAG.

@@ -1,0 +1,1 @@
+Artículo 64.—Cuando el Ministerio de Agricultura y Ganadería examine la solicitud de una importación de otro país, se exigirá toda la información necesaria; además se podrá encargar a expertos que efectúen, bajo su autoridad, un examen in situ de las normas de producción y de las medidas de control realmente aplicadas en el país tercero afectado.

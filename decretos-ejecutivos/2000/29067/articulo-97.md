@@ -1,0 +1,1 @@
+Artículo 97.—La divulgación de información confidencial por parte de los inspectores personas o instituciones no autorizadas, ocasionará la aplicación de lo dispuesto en la legislación correspondiente y en este Reglamento.

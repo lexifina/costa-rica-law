@@ -1,0 +1,1 @@
+Artículo 24.—No se admitirá como un proceso en transición la implementación de prácticas que se puedan apartar de los principios y practicas orgánicas, por ejemplo cuando se toman medidas de emergencia no autorizadas para salvar una cosecha o un animal. En esos casos la cosecha siguiente no puede venderse como producto en transición.

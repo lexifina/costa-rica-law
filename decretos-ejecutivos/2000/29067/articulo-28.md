@@ -1,0 +1,1 @@
+Artículo 28.—Se permite la producción paralela únicamente cuando el productor sea capaz de demostrar documentalmente a la Agencia Certificadora mediante un registro la separación de las actividades convencionales y orgánicas.

@@ -1,0 +1,1 @@
+Artículo 92.—Para la inscripción en los registros correspondientes, las personas físicas, jurídicas inscritas quedan obligadas al cumplimiento de las disposiciones de este Reglamento y los acuerdos que, dentro de sus competencias, dicten los organismos competentes del Ministerio de Agricultura.

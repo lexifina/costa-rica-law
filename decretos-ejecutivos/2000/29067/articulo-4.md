@@ -1,0 +1,1 @@
+Artículo 4º—La defensa de la denominación "agricultura orgánica", la aplicación de su Reglamento, el control del cumplimiento del mismo, así como del fomento y control de la calidad de los productos amparados quedan encomendados al Ministerio Agricultura y Ganadería.

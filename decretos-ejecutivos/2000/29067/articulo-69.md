@@ -1,0 +1,1 @@
+Artículo 69.—Los productos originarios de terceros países se importarán en envases o recipientes adecuados cuyo cierre impida la sustitución de su contenido, y que vayan provistos de una identificación del exportador y de otras marcas y números que permitan identificar el lote con su certificado de control.

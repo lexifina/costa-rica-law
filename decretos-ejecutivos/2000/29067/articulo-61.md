@@ -1,0 +1,1 @@
+Artículo 61.—La empresa que se dedica a la comercialización de estos productos, deberá realizar las funciones de lavado, clasificación, empaque, embalaje y almacenamiento, completamente aparte de los productos obtenidos mediante el sistema de producción convencional; asimismo, deberá disponer de un sitio exclusivo para la ubicación de los productos en el punto de venta.

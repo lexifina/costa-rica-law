@@ -1,0 +1,1 @@
+Artículo 104.—Cuando se determine mediante muestreo o medio idóneo que el agricultor o comercializador haya incumplido alguna de las disposiciones técnicas exigidas como requisitos para la producción orgánica se procederá además de lo establecido en la legislación respectiva a la cancelación del registro y deberá asumir los costos de notificación a los consumidores de tal acto.

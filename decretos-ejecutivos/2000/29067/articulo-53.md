@@ -1,0 +1,1 @@
+Artículo 53.—Cuando un producto orgánico no contenga la totalidad de sus ingredientes producidos orgánicamente, deberá explicitarse en la lista de los ingredientes, aquellos que no lo son, utilizando la palabra convencional.

@@ -1,0 +1,1 @@
+Artículo 59.—Sobre el Transporte: El transporte de productos bienes o mercancías orgánicas deberá cumplir las normas de seguridad e higiene que garanticen la no contaminación por agentes internos o externos inherentes al medio de transporte.

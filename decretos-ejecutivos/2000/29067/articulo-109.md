@@ -1,0 +1,1 @@
+Artículo 109.—Los miembros de esta comisión deberán estar vinculados a los sectores que representan, bien directamente o por ser representantes de empresas que se dedique a las actividades que han de representar. No obstante, una misma persona, física o jurídica, no podrá tener en la comisión doble representación.

@@ -1,0 +1,1 @@
+Artículo 105.—En caso de suspensión de la inscripción de una persona física o jurídica en el registro de fincas orgánicas por incumplimiento de las disposiciones legales vigentes que sea debidamente comprobado, deberá transcurrir un período de tres años antes de proceder a una nueva inscripción.

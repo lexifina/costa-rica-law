@@ -1,0 +1,36 @@
+Artículo 7º—De las definiciones: para los efectos de este Reglamento, así como de los términos empleados en el mismo se entenderá por:
+1. Acreditar: proceso en el que el órgano de control reconoce y autoriza legalmente a una persona física o jurídica para que desempeñe las funciones de certificador o inspector.
+2. Agencia Certificadora o autoridad de certificación: persona física o jurídica debidamente autorizada y acreditada por el órgano de control, que en el cumplimiento del presente Reglamento, expide o extiende el certificado de producción orgánica.
+3. Agricultura orgánica: todos los sistemas agrícolas que promueven la producción ecológica, social y económicamente sana de alimentos y fibras tomando la fertilidad del suelo como un elemento fundamental para la producción exitosa, respetando la capacidad natural de las plantas, los animales y los terrenos, para optimizar la calidad en todos los aspectos de agricultura y medio ambiente.
+4. Certificado orgánico: documento que da fe de que el producto que ampara, ha cumplido en todas sus etapas con los principios, las normativas y requisitos del presente Reglamento.
+5. Certificación: es el procedimiento mediante el cual las entidades oficiales de certificación, o las entidades de certificación oficialmente reconocidas, proveen seguridad escrita o equivalente de que los alimentos o los sistemas de control de alimentos se ajustan a los requisitos.
+6. Comisión: Comisión Nacional Asesora en materia de agricultura orgánica en Costa Rica.
+7. Comercialización: la tenencia o exposición para la venta, la puesta en venta, la venta, la entrega o cualquier otra forma de introducción al mercado.
+8. Compost: se entiende por "abono compuesto", "bioabono", en adelante "compost", al producto natural resultante de transformaciones biológicas y químicas de la mezcla de sustancias de origen vegetal, animal y mineral, utilizado como fuente de nutrimentos y mejorador de suelos.
+9. Derivados de organismos genéticamente modificados: sustancia u organismo obtenido a partir de o utilizando ingredientes provenientes de la utilización de organismos genéticamente modificados pero que no contienen los organismos genéticamente modificados; entre ellos se incluyen aditivos y aromatizantes, suplementos alimenticios para animales, productos fitosanitarios, abonos y mejoradores del suelo, medicamentos para animales, semillas y material vegetativo, ingredientes alimenticios y cualquier otro producto o sustancia proveniente de organismos genéticamente modificados.
+10. Dirección: Dirección General de Protección Fitosanitaria del Ministerio Agricultura y Ganadería, para los efectos de este Reglamento conocido como organismo de control.
+11. Elaboración o procesamiento: operaciones de transformación, envasado, conservación y empaque de productos agropecuarios.
+12. Etiquetado: las menciones, indicaciones, marcas de fábrica o de comercio, imágenes o signos que figuren en envases, documentos, letreros, etiquetas, anillos o collarines que acompañan o se refieren a productos obtenidos bajo las directrices de este Reglamento.
+13. Enfermedad: alteración funcional o morfológica con signos clínicos o subclínicos, causada por agentes bióticos o abióticos, que se presenta en los animales y vegetales y que produce modificaciones en su morfología o fisiología.
+14. Ingrediente: significa cualquier sustancia, incluyendo un aditivo alimentario, empleado en la manufactura o preparación de un alimento y presente en el producto final aunque posiblemente en forma modificada.
+15. Inspección: labor de evaluar, visitar, fiscalizar o verificar la naturaleza orgánica de producción, procesos o instalaciones apropiadas para los mismo, que realiza un inspector a requerimiento de una Agencia Certificadora, de la Dirección o el productor.
+16. Inspector en agricultura orgánica: persona física capacitada para realizar inspecciones tendientes a otorgar certificación orgánica, tanto a nivel de finca como de proceso de industrialización y comercialización.
+17. Insumo orgánico: todo aquel material de origen orgánico o de síntesis biológica utilizado en la producción agropecuaria.
+18. Listado de ingredientes: se refiere a los ingredientes de origen agrario, producidos, importados u obtenidos de acuerdo al presente Reglamento, además se pueden usar los ingredientes del anexo de este Reglamento.
+19. Manejo postcosecha: manejo que se le da a determinado producto agrícola desde la cosecha hasta el momento que llega al consumidor.
+20. Ministerio: Ministerio de Agricultura y Ganadería (MAG).
+21. Organismos genéticamente modificados (OGM): son todos los materiales producidos por los métodos modernos de biotecnología, específicamente gene tecnología AND recombinante (rADN) y todas las otras técnicas que emplean biología celular y o molecular para alterar la constitución genética de organismos vivientes en formas o con resultados que no ocurren en la naturaleza o mediante la reproducción tradicional.
+22. Órgano de control: entiéndase como órgano de control la Dirección de Protección Fitosanitaria del MAG.
+23. Periodo de transición: Tiempo que debe transcurrir entre otros sistemas de producción y el sistema orgánico de acuerdo con un plan de transformación debidamente establecido.
+24. Plaga: todo organismo vivo, vertebrado o invertebrado que en número considerable causa daños de importancia económica en los cultivos y animales de producción orgánica.
+25. Producto convencional: producto proveniente del sistema agrario dependiente del empleo de fertilizantes y o plaguicidas artificiales, o que no se adhiera a lo establecido en este Reglamento.
+26. Producto fitosanitario: productos que se usan para la protección de los cultivos de plagas y enfermedades.
+27. Producción: Las operaciones realizadas en la unidad productiva para la obtención, envasado y primer etiquetado como productos de producción ecológica.
+28. Producción paralela: producción simultánea por parte de un productor en la misma unidad productiva, de cultivos o productos animales convencionales, en transición y o orgánicos y que cuyo producto final no pueden ser distinguidos visualmente unos de otros.
+29. Programa: Programa Nacional de Agricultura Orgánica del Sector Agropecuario.
+30. Registro: base de datos administrada por la Dirección, relativa a fincas de producción orgánica, en transición, establecimientos de procesamiento, comercialización, elaboración, agencias certificadoras e inspectores de agricultura orgánica.
+31. Sello o logotipo orgánico: Figura adherida o impresa a un certificado, producto o empaque que identifique que el mismo, o su procesamiento ha cumplido con las normas establecidas en el presente Reglamento.
+32. Semilla: Todo grano, tubérculo, bulbo o cualquier parte viva del vegetal que se utilice para reproducir una especie.
+33. Sistema silvestre: Sistema natural con mínima disturbación por el hombre del que se puedan extraer productos de interés económico.
+34. Transición o conversión: el proceso de cambio de otros sistemas de producción al sistema orgánico.
+35. Unidad productiva: Finca, parcela zona de producción, almacén o establecimiento donde se llevan a cabo actividades de producción almacenamiento o proceso de productos agropecuarios.

@@ -1,0 +1,1 @@
+Artículo 31.—Todos los aspectos relacionados con el registro de abonos o sustancias de síntesis biológica o afines, químicas, de uso permitido en la producción orgánica, se regirán por las disposiciones que al efecto emita la Dirección por medio de los departamentos competentes.

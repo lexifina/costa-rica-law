@@ -1,0 +1,1 @@
+Artículo 75.—Toda Agencia Certificadora, inspector orgánico, productor orgánico, finca orgánica o en transición, establecimiento de procesamiento, de comercialización, almacenamiento y elaboración de productos orgánicos, deberá registrarse como tal ante la dirección.

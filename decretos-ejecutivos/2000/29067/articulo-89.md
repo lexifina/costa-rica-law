@@ -1,0 +1,1 @@
+Artículo 89.—Para renovar el registro, el registrante debe cumplir con lo establecido en los artículos anteriores. La solicitud de renovación deberá presentarse a más tardar el último día hábil de vigencia en la inscripción.

@@ -1,0 +1,2 @@
+Artículo 68.—Además de realizar visitas de inspección sin previo aviso, la Dirección deberá efectuar, al menos una vez al año, una inspección física completa de las instalaciones del importador.
+El importador deberá permitir que la Dirección tenga acceso para su inspección, a sus instalaciones, en particular a los certificados de importación. Asimismo, le facilitará la información necesaria para las labores de inspección.

@@ -1,0 +1,1 @@
+Artículo 85.—Las inscripciones en estos registros es obligatoria para todos los interesados para tener derecho a que el producto de cada actividad tutelada pueda ser considerada técnicamente como agricultura orgánica.

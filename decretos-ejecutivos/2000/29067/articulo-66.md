@@ -1,0 +1,1 @@
+Artículo 66.—El importador comunicará a la dirección cada una de las partidas que importe al país, facilitando cualquier información que pueda requerir la Dirección, como por ejemplo, una copia del certificado de control expedido para la importación de productos orgánicos.

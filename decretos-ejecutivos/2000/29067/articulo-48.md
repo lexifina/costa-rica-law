@@ -1,0 +1,1 @@
+Artículo 48.—Sobre la Agroindustria: Los establecimientos donde se industrializan productos orgánicos cumplirán con las normativas sanitarias y otras, vigentes en el país. En igual forma, se deberá evitar la contaminación de los mismos y proceder a su desinfección con técnicas y productos acordes con el Anexo D del presente Reglamento.

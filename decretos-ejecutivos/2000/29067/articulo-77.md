@@ -1,0 +1,2 @@
+Artículo 77.—De la solicitud del registro. Toda solicitud de registro y su documentación debe venir acompañada de una copia. Asimismo la Dirección extenderá un recibo en el que se hará constar la fecha y hora de su presentación y los documentos aportados.
+Una vez recibida la solicitud de registro y satisfechos los requisitos exigidos, la Dirección procederá en un plazo de ocho días hábiles a notificar al interesado, la aprobación o no de su inscripción.

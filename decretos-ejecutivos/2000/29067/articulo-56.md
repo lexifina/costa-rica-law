@@ -1,0 +1,1 @@
+Artículo 56.—El sello o logotipo para uso tanto interno como externo, los nombres, emblemas, código de barras o cualquier otro tipo de propaganda utilizada, sólo podrán ser empleados, por los propios titulares inscritos en los registros de la denominación para la comercialización de sus productos certificados.

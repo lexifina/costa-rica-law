@@ -1,0 +1,1 @@
+Artículo 101.—A partir de la iniciación del expediente de suspensión, los productos en cuestión deberán permanecer debidamente aislados e identificados bajo control de la Dirección, la cual determinará el destino del producto descalificado, el cual en ningún caso podrá ser transferido a otra organización inscrita.

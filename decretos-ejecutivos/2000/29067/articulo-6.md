@@ -1,0 +1,1 @@
+Artículo 6º—La producción, tipificación, elaboración, empaque, mercadeo, identificación, certificación, de productos agropecuarios orgánicos, así como los aspectos de investigación y extensión, deberán estar sujetas a la legislación correspondiente y a las disposiciones del presente Reglamento.

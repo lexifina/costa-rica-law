@@ -1,0 +1,1 @@
+Artículo 27.—Los organismos genéticamente modificados u obtenidos a través de ingeniería genética y los productos provenientes de tales organismos no son compatibles con los principios de producción orgánica (entendiéndose cultivo, proceso, manufactura y mercadeo) y no esta permitida su utilización, en la agricultura orgánica que norma este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 52.—En aquellos productos donde la participación de los componentes orgánicos no alcance los limites establecidos en la denominación de orgánico, solo se podrá incorporar a continuación de cada ingrediente indicando en qué porcentaje esta presente, cuando corresponda, en el listado de los mismos.

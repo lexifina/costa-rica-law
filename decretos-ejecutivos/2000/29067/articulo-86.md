@@ -1,0 +1,1 @@
+Artículo 86.—En caso de no cumplirse con los requisitos establecidos, la Dirección concederá al interesado un plazo de 30 días hábiles para presentar la documentación omitida. Vencido ese plazo y no cumplido lo solicitado, la Dirección procederá a rechazar la solicitud.

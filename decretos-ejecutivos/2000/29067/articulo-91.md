@@ -1,0 +1,1 @@
+Artículo 91.—Sólo las personas físicas o jurídicas cuyas fincas o industrias estén inscritas en los correspondientes registros podrán cultivar, producir, elaborar, envasar o almacenar productos que se comercializan con la denominación de Agricultura Orgánica.
