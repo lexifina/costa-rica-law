@@ -14,3 +14,4 @@ Reglamento del Archivo Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-01 | la propia norma |
+| 2 | 1996-11-09 | Reglamento municipal 251 (1996-11-09) |
