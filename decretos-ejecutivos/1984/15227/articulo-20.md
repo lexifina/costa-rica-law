@@ -1,2 +1,0 @@
-Artículo 20.-Las Comités Sectoriales Regionales son órganos de coordinación y consulta en materia de planificación sectorial de la región del Consejo de Desarrollo y su funcionamiento se dará según la previsto por el decreto número 14184-PLAN.
-A solicitud del respectivo Conseja de Desarrollo el Ministro Sectorial podrá incrementar el número de miembros del Comité Sectorial, can representantes de instituciones regionales públicas y privadas, que pudieran formar parte del sector a nivel regional.
