@@ -1,0 +1,1 @@
+Art. 4°.- Se impedirá también toda importación sin previa autorizacion del Ministerio de Hacienda y cuando esta autorización se presente procederá el jefe a practicar el aforo de todos aquellos artículos gravados con derechos por la misma Tarifa, remitiendo la correspondiente póliza la Contaduría Mayor.
