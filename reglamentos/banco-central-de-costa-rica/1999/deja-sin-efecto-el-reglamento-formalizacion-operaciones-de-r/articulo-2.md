@@ -1,0 +1,1 @@
+II.—Dejar sin efecto lo dispuesto en el Artículo 14 de la Sesión 4973-98 celebrada el 7 de octubre, 1998 y reformado en el Artículo 4 de la Sesión 4974-98 del 14 de octubre, 1998, donde se aprobaron las “Normas generales para la participación del Banco Central de Costa Rica en el Mercado Interbancario de Dinero”.
