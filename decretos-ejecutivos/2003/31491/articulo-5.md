@@ -1,0 +1,1 @@
+Artículo 5º—Se autoriza, al Consejo Nacional de Vialidad, para que actualice por resolución razonada como mínimo en forma trimestral, o cuando lo considere necesario, tales variaciones, las cuales deberán ser publicadas en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 2º—La labor aquí asignada deberá ser ejercida por el Ministerio de Obras Públicas y Transportes en apego a las reglas de la ciencia y la técnica y los principios de justicia, equidad, lógica, conveniencia y sana administración, en apego a los estudios indicados en el punto anterior.

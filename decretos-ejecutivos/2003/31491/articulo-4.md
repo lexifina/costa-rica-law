@@ -1,0 +1,1 @@
+Artículo 4º—Los precios máximos que se están fijando en este decreto serán determinados por el Consejo Nacional de Vialidad, promulgados mediante Decreto Ejecutivo y hechas de conocimiento general mediante publicación en el Diario Oficial La Gaceta.

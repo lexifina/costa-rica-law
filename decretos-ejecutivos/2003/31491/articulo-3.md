@@ -1,0 +1,1 @@
+Artículo 3º—La fijación de los precios máximos para alquiler de equipo y maquinaria que determine el Ministerio de Obras Públicas y Transportes será bajo su entera responsabilidad y podrá en todo momento, ser fiscalizada por la Contraloría General de la República.

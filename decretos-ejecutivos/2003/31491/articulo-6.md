@@ -1,0 +1,2 @@
+Artículo 6º—Establézcanse los precios máximos o variaciones aplicables a la contratación de equipo y maquinaria para el ámbito del Ministerio de Obras Públicas y Transportes y del Consejo Nacional de Vialidad, según se desglosan a continuación en el siguiente "Cuadro Resumen de Precios Máximos por Alquiler de Equipo y Maquinaria":
+(Nota: Ver Cuadro de resumen de precios máximos por alquiler de equipo y maquinaria, Gaceta N° 235 de 5 de diciembre de 2003, páginas 9, a la 20.)
