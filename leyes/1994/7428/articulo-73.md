@@ -1,17 +1,4 @@
-ARTICULO 73.- CANCELACION DE CREDENCIAL DE REGIDOR
-Será causa para la cancelación de la respectiva credencial, la
-comisión de una falta grave, por parte de un regidor o de un síndico
-municipales o por sus suplentes, con violación de las normas del
-ordenamiento de fiscalización, contemplado en esta Ley, o contra
-cualesquiera otras que protejan fondos públicos o la propiedad o buena fe
-de los negocios. Eso se aplicará cuando el infractor haya actuado en el
-ejercicio o con motivo de su cargo.
-Cuando la violación grave sea cometida en virtud de un acuerdo del
-Concejo, incurrirán en la misma causal de cancelación de sus credenciales
-todos los que, con su voto, hayan formado la mayoría correspondiente.
-Cuando llegue a conocimiento de la Contraloría General de la
-República una sentencia de condenatoria o un auto firme de elevación a
-juicio, en un proceso penal, contra los funcionarios municipales arriba
-indicados, por violación de las normas dichas, de inmediato lo comunicará
-al Tribunal Supremo de Elecciones, para lo que proceda de conformidad con
-la ley.
+Artículo 73-Cancelación de credencial. Será causa para la cancelación de la respectiva credencial, la comisión de una falta grave por parte de un regidor o síndico, propietario o suplente, contra las normas del ordenamiento de fiscalización y control de la Hacienda Pública contemplado en esta Ley, y contra cualesquiera otras normas relativas a los fondos públicos; o al incurrir en alguno de los actos previstos en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública, como generadoras de responsabilidad administrativa. Esto se aplicará cuando el infractor haya actuado en el ejercicio de su cargo o con motivo de él.
+Cuando la falta grave sea cometida en virtud de un acuerdo del concejo municipal, los regidores que, con su voto afirmativo, hayan aprobado dicho acuerdo, incurrirán en la misma causal de cancelación de sus credenciales.
+Asimismo, será causal de cancelación de la credencial de regidor o de síndico, propietario o suplente, la condena penal firme por delitos contra la propiedad, contra la buena fe en los negocios y contra los deberes de la función pública, así como por los previstos en la Ley contra la corrupción y el enriquecimiento ilícito en la función pública. La autoridad judicial competente efectuará, de oficio, la comunicación respectiva al Tribunal Supremo de Elecciones.
+(Así reformado por el artículo 63 (actual 72) de la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, N° 8422 de 6 de octubre de 2004)

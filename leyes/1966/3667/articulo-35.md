@@ -1,8 +1,4 @@
-Artículo 35.- 1. Cuando la propia Administración autora de algún acto
-declarativo de derechos, pretendiere demandar su anulación ante la
-Jurisdicción contencioso-adminsitrativa, deberá previamente declararlo
-lesivo a los intereses públicos, económicos o de otra naturaleza, en el
-plazo de cuatro años, a contar de la fecha en que hubiere sido dictado.
-2. Los actos dictados por un Departamento Ministerial no podrán ser
-declarados lesivos por un Ministro de distinto ramo, pero sí por el Consejo
-de Gobierno, previa consulta a la Procuraduría General de la República.
+Artículo 35.—
+1. Cuando la propia Administración, autora de algún acto declarativo de derechos, pretenda demandar su anulación, ante la jurisdicción contencioso-administrativa, previamente deberá declararlo lesivo a los intereses públicos, económicos o de otra naturaleza, en el plazo de cuatro años contados a partir de la fecha en que haya sido dictado.
+2. Los actos dictados por un departamento ministerial no podrán ser declarados lesivos por un ministro de un ramo distinto, pero sí por el Consejo de Gobierno, previa consulta a la Procuraduría General de la República o a la Contraloría General de la República, según corresponda.
+(Así reformado por el artículo 68 (actual 77) de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
