@@ -1,0 +1,4 @@
+ARTÍCULO 26
+El Comité de Coordinación
+148 1. El Comité de Coordinación estará constituido por el Secretario General, el Vicesecretario General y los Directores de las tres Oficinas. Su Presidente será el Secretario General y, en su ausencia, el Vicesecretario General.
+149 2. El Comité de Coordinación, que actuará como un equipo de gestión interna, asesorará y auxiliará al Secretario General en todos los asuntos administrativos, financieros y de cooperación técnica y de sistemas de información que no sean de la competencia exclusiva de un Sector o de la Secretaría General, así como en lo que respecta a las relaciones exteriores y a la información pública. En sus deliberaciones, el Comité de Coordinación se ajustará totalmente a las disposiciones de la presente Constitución y del Convenio, a las decisiones del Consejo y a los intereses globales de la Unión.

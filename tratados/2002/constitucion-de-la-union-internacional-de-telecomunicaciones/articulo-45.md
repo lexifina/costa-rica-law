@@ -1,0 +1,5 @@
+ARTÍCULO 45
+Interferencias perjudiciales
+197 1. Todas las estaciones, cualquiera que sea su objeto, deberán ser instaladas y explotadas de tal manera que no puedan causar interferencias perjudiciales a las comunicaciones o servicios radioeléctricos de otros Miembros, de las empresas de explotación reconocidas o de aquellas otras debidamente autorizadas para realizar un servicio de radiocomunicación y que funcionen de conformidad con las disposiciones del Reglamento de Radiocomunicaciones.
+198 2. Cada Miembro se compromete a exigir a las empresas de explotación reconocidas por él y a las demás debidamente autorizadas a este efecto, el cumplimiento de lo dispuesto en el número 197 anterior.
+199 3. Los Miembros reconocen asimismo la necesidad de adoptar cuantas medidas sean posibles para impedir que el funcionamiento de las instalaciones y aparatos eléctricos de cualquier clase cause interferencias perjudiciales a las comunicaciones o servicios radioeléctricos a que se refiere el número 197 anterior.
