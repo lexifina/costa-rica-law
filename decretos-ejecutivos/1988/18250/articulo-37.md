@@ -32,3 +32,5 @@ Artículo 37.-Además de las consignadas en el articulo 71 del Código de Trabaj
 29) Respetar el orden jerárquico establecido, en la realización de reclamos, trámites o gestiones administrativas.
 30) Informar a quien corresponda o su superior inmediato sobre las. anomalías en que incurrieren los servidores del Ministerio que contravenga en disposiciones legales vigentes y que causen evidentes daños y perjuicios a la Administración Pública; lo mismo deberá hacer con respecto de particulares.
 31) Rendir las declaraciones que se les solicite cuando fueren citados por los órganos competentes, ya sea como actores o testigos.
+32) No utilizar los equipos de cómputo o de los servicios de comunicación del Ministerio para accesar, observar, exhibir o reproducir material pornográfico.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29832 del 17 de setiembre del 2001).
