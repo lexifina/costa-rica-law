@@ -1,13 +1,11 @@
 (Derogado)
-Creación del Centro para la Promoción de la Exportaciones
-y de las Inversiones
-Artículo 1º.- Créase el Centro para la Promoción de la Exportaciones
-y de las Inversiones, que en adelante se denominará el Centro.
-Este organismo asesorará al Gobierno en materia de política comercial
-y asumirá las funciones asignadas a las Comisiones Nacionales de Comercio
-Exterior, de conformidad con la Resolución Nº 44 del Consejo Económico
-Centroamericano.
-Estará adscrito al Ministerio de Industria y Comercio y tendrá
-personería jurídica propia e independencia en su administración.
-Los organismos del Estado y las instituciones autónomas, prestarán al
-Centro ayuda y cooperación.
+CREACION DEL CENTRO PARA LA PROMOCION DE LAS EXPORTACIONES
+Y DE LAS INVERSIONES
+Artículo 1º.- Se crea el Centro para la Promoción de las
+Exportaciones y de las Inversiones, denominado en adelante CENPRO, como
+entidad de Derecho Público, de carácter no estatal, con personalidad
+jurídica y patrimonio propios.
+Para el cumplimiento de sus fines, el CENPRO estará exento del pago
+de toda clase de tributos.
+( Así reformado por el artículo 11, inciso k), de la Ley de Ejecución de
+los Acuerdos de la Ronda de Uruguay No.7473 del 20 de diciembre de 1994)
