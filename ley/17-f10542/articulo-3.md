@@ -1,0 +1,1 @@
+Art. 3º-Así instruido el Agente Fiscal, ocurrirá oportunamente al Banco con el objeto de averiguar si el depósito ha entrado en él; y en caso negativo, hará las gestiones necesarias para que entre, dando cuenta á la Suprema Corte de Justicia, siempre que conociere haber habido de parte del Juez ú otro individuo, culpa alguna en el retardo.
