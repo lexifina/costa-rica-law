@@ -1,0 +1,1 @@
+Artículo 3º—El COLOSEVIBA es un ente adscrito a la Municipalidad, reconocido por el Consejo de Seguridad Vial; el cual se encarga de fiscalizar los gastos que se ejecuten con fondos provenientes a la Ley N° 6324 Ley de Administración Vial para la prevención de accidentes de tránsito y otros que reciban para los fines específicos.

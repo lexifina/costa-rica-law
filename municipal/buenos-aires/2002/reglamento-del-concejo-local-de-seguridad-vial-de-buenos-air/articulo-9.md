@@ -1,0 +1,1 @@
+Artículo 9º—Es atribución exclusiva del COLOSEVIBA, solicitar por escrito al Concejo Municipal, interponer ante la organización respectiva, el retiro y la sustitución de sus representantes por incumplimiento en sus deberes o por deceso.

@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo primordial del COLOSEVIBA, es en todo momento: formular, ejecutar, controlar y evaluar acciones completas sistemáticas a corto, mediano y largo plazo, de acuerdo en el Plan Nacional de Promoción de la Seguridad Vial para la prevención de accidentes de tránsito.
