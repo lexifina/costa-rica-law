@@ -13,3 +13,4 @@ De Utilidad Pública Asoc. Costarricense Investigadores en Crocodílidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-02 | la propia norma |
+| 2 | 1999-09-02 | SINALEVI (sin norma nombrada) |
