@@ -19,3 +19,4 @@ Reforma División Regional del Territorio de Costa Rica, para los efectos de inv
 | 4 | 1986-10-23 | Decreto Ejecutivo 17299 (1986-10-23) |
 | 5 | 1988-07-20 | Decreto Ejecutivo 18423 (1988-07-20) |
 | 6 | 1992-06-10 | Decreto Ejecutivo 21349 (1992-06-10) |
+| 7 | 1993-09-30 | Decreto Ejecutivo 22604 (1993-09-30) |
