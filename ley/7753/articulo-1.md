@@ -1,0 +1,8 @@
+Ley N°7753
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL BANCO CENTRAL DE COSTA RICA
+PARA EMITIR MONEDAS CONMEMORATIVAS DEL
+CENTENARIO DEL TEATRO NACIONAL
+Artículo 1°- Autorización.
+Autorízase al Banco Central de Costa Rica para emitir monedas conmemorativas del centenario del Teatro Nacional.
