@@ -13,3 +13,4 @@ Reglamento Museo Arte Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-18 | la propia norma |
+| 2 | 2004-11-12 | Decreto Ejecutivo 32236 (2004-11-12) |

@@ -1,6 +1,2 @@
-ARTÖCULO 13.-El director y subdirector del Museo ser n
-funcionarios de confianza,
-nombrados por el Poder Ejecutivo, y estar n fuera del R‚gimen del
-Servicio Civil.
-CAPITULO III
-De las exposiciones
+Artículo 13.—El director y subdirector del museo serán funcionarios de confianza nombrados por el Ministerio de Cultura, Juventud y Deportes y estarán fuera del Régimen del Servicio Civil.
+(Así reformado este artículo mediante el artículo 1° del Decreto Ejecutivo No. 32236-C, del 12 de noviembre del 2004.)
