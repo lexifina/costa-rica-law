@@ -1,0 +1,2 @@
+Artículo 11.-La Junta de Control resolverá todas las cuestiones que ocurran en el despacho de los asuntos en que deba conocer, de acuerdo con las prescripciones de esta ley y de la reglamentación que de ella haga el Poder Ejecutivo. Contra la resolución de la Junta de Control cabrá el recurso de apelación ante la Secretaría de Hacienda, cuya resolución ser definitiva.
+La Junta de Control de Cambios mantendrá absoluta reserva respecto de todas las operaciones que se registren en sus libros.
