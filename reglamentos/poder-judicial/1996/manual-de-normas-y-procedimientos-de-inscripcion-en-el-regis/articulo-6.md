@@ -1,0 +1,1 @@
+6. El interesado en inscribirse en el Registro de Proveedores debe llenar y entregar la solicitud que para tales efectos entrega la Sección de Contratación Administrativa del Departamento de Proveeduría.

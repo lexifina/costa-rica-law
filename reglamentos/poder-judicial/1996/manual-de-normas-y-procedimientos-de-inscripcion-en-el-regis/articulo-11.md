@@ -1,0 +1,1 @@
+11. La información aportada para lograr la inscripción será considerada como verídica por el sólo hecho de presentar la solicitud de inscripción, el documento y la información complementaria correspondiente. Salvo prueba en contrario presentado por un interesado que se considere lesionado.

@@ -1,0 +1,1 @@
+12. Todo cambio que se produzca, deberá comunicarse al Departamento de Proveeduría, mediante nota firmada por quien ostente la autoridad correspondiente, igualmente si se aportan copias de certificaciones.
