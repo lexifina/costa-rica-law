@@ -14,3 +14,4 @@ Reglamento para la Precalificación de Organizaciones no Gubernamentales en el M
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-17 | la propia norma |
+| 2 | 2001-02-22 | Reglamento municipal 1573 (2001-02-22) |
