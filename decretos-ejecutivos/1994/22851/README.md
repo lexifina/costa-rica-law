@@ -14,3 +14,4 @@ Reglamento sobre los tipos de vehículos a utilizar en la realización de exáme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-15 | la propia norma |
+| 2 | 1997-02-24 | Decreto Ejecutivo 25860 (1997-02-24) |
