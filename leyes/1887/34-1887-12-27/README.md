@@ -1,6 +1,6 @@
 # Ley Orgánica del Ministerio Público
 
-Ley N° 34 del 1887-12-27. SINALEVI, ficha 37632: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37632&param2=98430&param3=1>.
+Ley N° 34 del 1887-12-27. SINALEVI, ficha 37632: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37632&param2=98433&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1895-04-16 | Ley 16 | 1895-04-16 |
 | 3 de 5 | 1895-06-14 | Ley 21 | 1895-06-14 |
 | 4 de 5 | 1916-06-01 | Ley 9 | 1916-06-01 |
+| 5 de 5 | 1916-07-13 | Ley 35 | 1916-07-13 |
