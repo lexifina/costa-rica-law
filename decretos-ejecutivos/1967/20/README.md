@@ -24,3 +24,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | 9 | 1976-10-04 | Decreto Ejecutivo 6426 (1976-10-04) |
 | 10 | 1980-02-08 | Decreto Ejecutivo 11153 (1980-02-08) |
 | 11 | 1981-11-19 | Decreto Ejecutivo 13142 (1981-11-19) |
+| 12 | 1982-12-15 | Decreto Ejecutivo 14160 (1982-12-15) |

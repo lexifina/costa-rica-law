@@ -1,6 +1,3 @@
 De la Estructura Orgánica de la Dirección
-Artículo 6°.—Para el cumplimiento de sus objetivos y funciones, la Dirección tendrá la siguiente organización:
-Una División de Operaciones con los Departamentos de Capacitación, Auditoria Comunal y Promoción.
-Una División Técnica con los Departamentos de Programación y Evaluación y Financiamiento Comunitario. Los Departamentos a la vez, tendrán las secciones que sean necesarias.
-Una Unidad Administrativa y una Unidad Legal y de Registro, dependientes del Director.
-(Así reformado por el artículo único del decreto ejecutivo N° 13142 del 19 de noviembre de 1981)
+Artículo 6°.—El Director y los jefes de departamento y unidad formaran el Comité Técnico. El Director es el Presidente nato del Comité‚.
+(Así reformado por el artículo 6 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)

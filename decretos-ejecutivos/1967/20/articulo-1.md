@@ -1,3 +1,4 @@
+(Derogado)
 PODER EJECUTIVO
 N°20
 J.J TREJOS FERNANDEZ
@@ -8,13 +9,6 @@ Decretan
 El siguiente
 Reglamento a la Ley sobre el Desarrollo de la Comunidad
 CAPITULO I
-DE LA DIRECCIÓN NACIONAL DE DESARROLLO DE LA COMUNIDAD
-Terminología, Naturaleza, objetivos y funciones
-Artículo 1°.- Para los fines del presente Reglamento, los siguientes términos significan:
-Ley: Ley sobre el Desarrollo de la Comunidad.
-Reglamento: El presente Reglamento.
-Dirección: Dirección Nacional de Desarrollo de la Comunidad.
-Director: Director Nacional de Desarrollo de la Comunidad.
-Ministro Designado: El que designe el Presidente de la República de conformidad con el artículo 1° de la ley.
-Consejo: Consejo Nacional de Desarrollo de la comunidad.
-Comité técnico: Comité Técnico de la Dirección Nacional de Desarrollo de la Comunidad
+De la organización y fines de la Dirección Nacional de Desarrollo de la Comunidad
+ARTÍCULO 1.-La Dirección Nacional de Desarrollo de la Comunidad es un órgano del Poder Ejecutivo adscrito al Ministerio de Gobernación y Policía; estar regido por un Consejo Nacional integrado conforme con lo dispuesto en el artículo 85 de la ley N° 3859.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)

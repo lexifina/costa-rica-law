@@ -1,3 +1,4 @@
-Artículo 14.- En la fecha en que entre en vigencia el presente Artículo 14°.- El Poder Ejecutivo, a solicitud del Director, procederá a integrar el Consejo Nacional de Desarrollo de la comunidad en la siguiente forma: El Ministro de Gobernación, El Ministro de Cultura, Juventud y Deporte, otro Ministro de Gobernación designado por el Presidente de la República, uno del movimiento Nacional de Juventud y uno de las asociaciones de desarrollo de la comunidad. El representante del Movimiento Nacional de Juventudes y el de las asociaciones de desarrollo se nombraran escogiéndolos de ternas que deberán ser solicitadas a estas entidades.
-Cuando las asociaciones de desarrollo estén organizadas a escala nacional, serán los organismos nacionales los encargados de presentar las ternas de los representantes de aquellas. La integración del Consejo se hará por Derecho Ejecutivo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)
+CAPITULO II
+Director Nacional
+Artículo 14.-Todos los miembros del personal de la Dirección Nacional deben reunir las calidades curriculares que determine el Servicio Civil para el desempeño de sus funciones. Quienes no reúnan esas calidades ser n reubicados conforme con las disposiciones del Manual Descriptivo de Puestos dela Administración Pública.
+(Así reformado por el artículo 14 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)

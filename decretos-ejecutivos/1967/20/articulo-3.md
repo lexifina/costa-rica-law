@@ -1,1 +1,2 @@
-Artículo 3°.- La Dirección será instrumento básico de desarrollo encargado de fomentar, orientar, coordinar y evaluar la organización de las comunidades del país, para lograr la participación activa de éstas, en forma libre, consciente y voluntaria, en los programas nacionales de desarrollo económico y social
+Artículo 3°.- La Dirección ser , además, un Órgano de coordinación interinstitucional para la ejecución de las políticas del Poder Ejecutivo que sean integradas al Plan Nacional de Desarrollo de la Comunidad, y cumplir funciones de Oficina Sectorial del Ministerio de Planificación Nacional y Política Económica.
+(Así reformado por el artículo 3 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)

@@ -1,1 +1,2 @@
-Artículo 15.- El Director procederá, con base en el Decreto Ejecutivo de nombramiento del Consejo, a convocar a los nombrados para su juramentación e instalación. El Presidente del Consejo se juramentará ante el Presidente de la República y los demás miembros ante aquel. La fecha de la instalación y juramentación la fijara el Presidente del Consejo.
+Artículo 15.-Habrá un Director Nacional que actuar como Director Ejecutivo del Consejo y ser responsable de la Administración General de la Dirección Nacional. Para el cumplimiento de sus funciones contar con un asistente ejecutivo y personal adecuado.
+(Así reformado por el artículo 15 del decreto ejecutivo N° 14160 del 15 de diciembre de 1982)
