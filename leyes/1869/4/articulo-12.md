@@ -1,0 +1,1 @@
+Art 12° Las Asambleas electorales se arreglarán a los artículos 58, 59, 60, 61, 62, 63, 64, 65, 66, 67, 68, 69 y 70 de la ley citada y su adicional, prestando los electores juramento de cumplir fielmente su encargo ante el Gobernador que es el Presidente de la Asamblea.

@@ -1,0 +1,2 @@
+Art 19. – Las electorales que se formen en virtud de esta ley durarán tres años, y deben proceder a la elección de Municipalidades, Alcaldes Constitucionales y jurados de imprenta el primer Domingo de Abril próximo, sujetándose en todo lo que no comprenda esta ley a la de 5 de noviembre de 1862 y su adicional de 27 de febrero de 1863. Las Municipalidades y Alcaldes tomarán posesión el segundo domingo del mismo mes.
+Dado en el Palacio Nacional de San José, a los veinte y cuatro días del mes de febrero de mil ochocientos sesenta y nueve.
