@@ -1,1 +1,0 @@
-Artículo 39.-(Derogado por el artículo 64 de la ley Orgánica del Organismo de Investigación Judicial N° 5524 del 7 de mayo de 1974. El artículo afectante anteriormente era el 63 pero, por la adición efectuada por el numeral 245 de la ley de Tránsito N° 7331 del 30 de marzo de 1993, paso a ser el 64)

@@ -1,1 +1,0 @@
-Artículo 5º.- El Ministerio de Salubridad ejercerá jurisdicción técnica y administrativa sobre todas las instituciones municipales y particulares destinadas a la protección de la Salud Pública, o que tengan conexión con ésta.
