@@ -1,1 +1,0 @@
-Artículo 7.-Se condonan, en beneficio de los indígenas guaymíes que obtengan su cédula de residencia al amparo de esta ley, las obligaciones que por concepto de impuesto de residencia hubieren acumulado a favor del Estado.
