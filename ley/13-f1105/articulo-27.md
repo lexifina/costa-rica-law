@@ -1,0 +1,1 @@
+Art 27°.- Además de lo que dispone el artículo 2° le esta ley, la Corte Suprema de Justicia podrá destituir al Defensor Público, o suspenderlos temporalmente o permanentemente en el ejercicio de su profesión y según, la gravedad del caso, cuando se le compruebe plenamente su descuido o negligencia en una o en varias de las gestiones de su cargo.

@@ -1,0 +1,1 @@
+Art 28°.- Los Defensores Públicos deberán también, en sus respectivas jurisdicciones, asesorar a los obreros perjudicados por accidentes en el trabajo, cuando éstos gestionen sus reclamos, sin perjuicio de lo al respecto dispone el artículo 20 de la Ley sobre Reparaciones por Accidentes en el Trabajo.

@@ -1,0 +1,1 @@
+Art 17.- Si el reo no pudiere ser habido para hacerse la prevención indicada en el párrafo primero del artículo anterior, el Instructor podrá llamar al Defensor Público, en cualquier momento, para que atiende la defensa, pero siempre que sea posible hará esto antes del conferimiento de la audiencia de que habla el artículo 323 del Código de Procedimientos Penales.
