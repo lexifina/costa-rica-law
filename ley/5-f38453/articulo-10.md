@@ -1,0 +1,1 @@
+Artículo 10- Esta ley rige desde la fecha de su publicación, COMUNÍQUESE AL PODER EJECUTIVO. Dado en el Salón de Sesiones del Congreso. -Palacio Nacional, San José, a los quince días del mes de mayo de mil novecientos treinta. RAFAEL CALDERÓN MUÑOZ
