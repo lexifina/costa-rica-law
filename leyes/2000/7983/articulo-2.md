@@ -13,4 +13,4 @@ k) Planes de pensiones. Conjunto de condiciones y beneficios complementarios a l
 l) Cotizante o aportante. Persona física o jurídica que contribuye a un plan determinado, con la intención de fortalecerlo y ampliar los beneficios en favor de los afiliados.
 m) Libre transferencia. Derecho del afiliado de transferir los recursos capitalizados en su cuenta a otra entidad autorizada o al fondo de su elección.
 n) Superintendencia. Superintendencia de Pensiones, órgano de máxima desconcentración del Banco Central de Costa Rica.
-o) Régimen público sustituto. Regímenes establecidos por ley, ensustitución del Régimen de Invalidez, Vejez y Muerte de la CCSS, a la entrada en vigencia de esta ley.
+o) Régimen público sustituto. Regímenes establecidos por ley, en sustitución del Régimen de Invalidez, Vejez y Muerte de la CCSS, a la entrada en vigencia de esta ley.

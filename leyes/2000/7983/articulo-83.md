@@ -1,6 +1,5 @@
 SECCIÓN III
-REFORMAS DE LA LEY ORGÁNICA DEL BANCO
-CENTRAL DE COSTA RICA
+Reformas de la Ley Orgánica del Banco Central de Costa Rica
 ARTÍCULO 83.- Reforma de la Ley No. 7558. Refórmase el artículo 131 de la Ley Orgánica del Banco Central de Costa Rica, No. 7558, de 3 de noviembre de 1995, cuyo texto dirá:
 "Artículo 131.- Funciones del Superintendente General de Entidades Financieras. Corresponderán al Superintendente General de Entidades Financieras, las siguientes funciones:
 a) Ejercer, en nombre y por cuenta del Banco Central de Costa Rica, la representación legal, judicial y extrajudicial de dicho Banco para las funciones propias de su cargo, con atribuciones de apoderado generalísimo sin límite de suma.
@@ -18,7 +17,7 @@ l) Proponer, al Consejo Nacional, las normas generales para el registro contable
 m) Recomendar, al Consejo Nacional, las normas generales para clasificar y calificar la cartera de créditos y los demás activos de las entidades fiscalizadas, para constituir las provisiones o reservas de saneamiento y para contabilizar los ingresos generados por los activos, con el fin de valorar, en forma realista, los activos de las entidades fiscalizadas y prever los riesgos de pérdidas. No obstante, el Consejo Nacional podrá dictar normas más flexibles, en relación con créditos por montos inferiores al límite que fije la Superintendencia.
 n) Proponer ante el Consejo Nacional las normas:
 i) Para definir los procedimientos que deberán aplicar las entidades fiscalizadas a fin de calcular su patrimonio.
-ii) Referentes a periodicidad, alcance, procedimientos y publicación de los informes de las auditorías externas de las entidades fiscalizadas, con el fin de lograr la mayor confiabilidad de estas auditorías. La Superintendencia podrá revisar los documentos que respalden las labores de las auditorías externas, incluso los documentos de trabajo y fijar los requisitos por incluir en los dictámenes o las opiniones de los auditores externos, que den información adecuada al público sobre los intermediarios financieros.
+ii) Referentes a periodicidad, alcance, procedimientos y publicación de los informes de las auditorías externa de las entidades fiscalizadas, con el fin de lograr la mayor confiabilidad de estas auditorías. La Superintendencia podrá revisar los documentos que respalden las labores de las auditorías externas, incluso los documentos de trabajo y fijar los requisitos por incluir en los dictámenes o las opiniones de los auditores externos, que den información adecuada al público sobre los intermediarios financieros.
 iii) Aplicables a las auditorías internas de los entes fiscalizados, para que estas ejecuten debidamente las funciones propias de su actividad y velen porque estos entes cumplan con las normas legales y las ordenadas por el Banco Central y la Superintendencia.
 iv) Sobre las razones financieras de suficiencia patrimonial, así como la manera y el plazo en que las entidades fiscalizadas deben adecuarse a ellas; asimismo, debe velar por su estricto cumplimiento.
 v) Sobre la existencia de relaciones entre personas naturales o jurídicas o entre estas y las entidades fiscalizadas, necesarias para controlar los límites de las operaciones activas, fijados en esta ley o sus reglamentos.

@@ -1,6 +1,6 @@
 SECCIÓN VII
-Modificaciones de la Ley Orgánica del
-Instituto Nacional de Aprendizaje
+Modificaciones a la Ley Orgánica
+del Instituto Nacional de Aprendizaje
 ARTÍCULO 89.- Modificaciones. Modifícase la Ley Orgánica del Instituto Nacional de Aprendizaje (INA), Ley No. 6868, de 6 de mayo de 1983, en las siguientes disposiciones:
 a) Refórmanse los incisos a) y b) del artículo 15. Los textos dirán:
 "a) El uno coma cinco por ciento (1,5%) sobre el monto total de las planillas de salarios pagadas mensualmente por los patronos particulares de todos los sectores económicos cuando ocupen en forma permanente por lo menos a cinco trabajadores. Los patronos del sector agropecuario pagarán un cero coma cincuenta por ciento (0,50%) de ese monto total de sus planillas, siempre y cuando ocupen un número superior a diez trabajadores en forma permanente.

@@ -5,3 +5,4 @@ a) Si el trabajador se encuentra afiliado a una organización social autorizada,
 b) Si el trabajador está afiliado al Sistema de Pensiones del Magisterio Nacional, se presumirá que los aportes deben ser depositados en la entidad autorizada del Magisterio.
 c) Si el trabajador se encuentra afiliado a más de una organización social autorizada para la administración de los recursos, o bien no está afiliado a ninguna de ellas y no manifiesta expresamente en cuál de ellas deben realizarse sus depósitos, automáticamente quedarán registrados por la CCSS que deberá depositarlos en una cuenta individual a nombre del trabajador en la operadora de Pensiones de la Caja Costarricense de Seguro Social.
 La Superintendencia publicará en un periódico de circulación nacional, una lista de los trabajadores que hayan sido afiliados en esta condición.
+(NOTA: ver Transitorio VI)

@@ -1,0 +1,1 @@
+TRANSITORIO IV.- A partir de la vigencia de esta ley y hasta la entrada en funcionamiento del Sistema Centralizado de Recaudación, la Superintendencia de Pensiones realizará una campaña de información sobre el régimen de Pensiones Complementarias, el Fondo de Capitalización Laboral y los alcances de esta ley.

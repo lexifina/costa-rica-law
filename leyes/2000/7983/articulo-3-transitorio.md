@@ -1,0 +1,1 @@
+TRANSITORIO III.- Las operadoras registradas en la Superintendencia a la fecha de entrada en vigencia de esta ley, deberán cumplir las disposiciones legales en un plazo máximo de cuatro meses, antes de participar en la administración del Régimen Obligatorio de Pensiones Complementarias.
