@@ -1,0 +1,10 @@
+N° 3369
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+Artículo único. Refórmase el artículo 17 de la Ley N° 34 de 1 de diciembre de 1940, que se lea así:
+“Artículo 17.-Establécese un impuesto sobre los premios, obsequios o recompensas, que concedan los industriales al consumidor-directamente o por medio de intermediarios-para fomentar tanto la compra de los productos que ellos elaboren en el país, como la de aquellos que, aunque fabricados en el exterior, estén sujetos a un régimen jurídico de tratados de libre comercio, o sean similares a otros de producción nacional. La condición de similares la calificará el Comité de Normas del Ministerio de Industrias.
+Este impuesto se aplicará cualquiera que sea la forma que el premio, el obsequio o la recompensa asuman, trátese o no de la emisión de cupones canjeables por dinero o mercadería o números para rifas.
+El impuesto será de diez veces el valor de lo obsequiado, y se pagará previamente en la Dirección General de la Tributación Directa, la cual pondrá a los títulos o cupones cuando los hubiere, un sello indicador de que el impuesto ha sido satisfecho.
+Se exceptúan de este gravamen los premios, obsequios o recompensas cuyo monto no sea mayor del 5% del precio de venta al detal de cada unidad del artículo cuyo consumo se trata de fomentar. Y el hecho de que no se alcance dicho porcentaje en ciertas unidades, no permitirá la exención en otras que sí lo alcancen.
+Quien expenda artículos industriales, directamente o por medio de terceros, a precios iguales al costo de producción o menores que éste, o que resulten así efectivamente por los premios, obsequios o recompensas, rebajas o descuentos que se otorguen, sea por medio de cupones canjeables o por números para rifas a efectuar entre los compradores, se considerará que trata de monopolizar total o parcialmente la respectiva rama del comercio o la industria, y quedará sujeto por ese mismo hecho, a las sanciones penales correspondientes y a que se le prohíba el ejercicio de su actividad en tales condiciones.”
+Cada Presidencial.-San José, a los seis días del mes de agosto de mil novecientos sesenta y cuatro.
