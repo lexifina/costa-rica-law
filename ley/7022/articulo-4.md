@@ -1,0 +1,1 @@
+Artículo 4°-El IMAS destinará los inmuebles que le sean traspasados de conformidad con esta ley al otorgamiento de lotes y a la construcción de viviendas, a favor de sus actuales poseedores en precario. Los lotes serán entregados a título gratuito y el valor de la construcción, cuando ésta fuere necesaria, se pagará en las condiciones más favorables para los adquirientes.
