@@ -1,0 +1,2 @@
+Artículo 16.—Del horario de las actividades:
+En atención a su naturaleza, a las necesidades de la Empresa y a la oferta del Centro de Estudios, las actividades de capacitación y formación podrán ser organizadas dentro o fuera de la jornada laboral, tratando de organizarías preferiblemente fuera de la misma. Cuando las actividades de capacitación se reciban fuera de la jornada laboral en forma total o parcial, no generarán derecho al pago de horas extras, ni al pago de doble jornada laboral en forma total o parcial.

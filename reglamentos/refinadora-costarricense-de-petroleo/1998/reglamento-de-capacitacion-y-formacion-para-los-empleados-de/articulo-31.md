@@ -1,0 +1,2 @@
+Artículo 31.—De la situación laboral del beneficiario:
+El trabajador, al reanudar las funciones interrumpidas con motivo de los estudios, tendrá derecho a que se le reintegre a su puesto original, para lo cual deberá tenerse en consideración lo establecido en el artículo 8 de este Reglamento. La conclusión de un programa de Formación no obliga a la Empresa a ascender al trabajador ni al otorgamiento de prerrogativas adicionales.

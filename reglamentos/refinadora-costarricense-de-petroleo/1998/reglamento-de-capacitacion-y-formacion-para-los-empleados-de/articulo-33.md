@@ -1,0 +1,3 @@
+Artículo 33.—Del permiso para una actividad de capacitación o formación en el exterior:
+Para una actividad de Capacitación o Formación en el exterior, se otorgara el permiso con goce de salario, además la Empresa podrá otorgar ayuda o complemento económico, según las disposiciones de este Reglamento y el estudio y recomendación elaborado por el Departamento de Desarrollo de Personal.
+Para acceder a un beneficio de esta naturaleza no se debe estar disfrutando de una beca de Formación, ni encontrarse en período de retribución, y debe haber transcurrido un mínimo de seis meses luego del disfrute de un beneficio similar.

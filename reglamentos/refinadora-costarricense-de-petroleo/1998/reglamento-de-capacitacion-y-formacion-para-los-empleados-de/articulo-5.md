@@ -1,0 +1,3 @@
+Artículo 5°—Del plan:
+La capacitación y formación se desarrollará con base en el "Plan Anual de Capacitación y Formación" definido al efecto por el Departamento de Desarrollo de Personal, y aprobado por el Consejo de Gerentes en presencia del Auditor General cuando corresponda, a solicitud de la Gerencia de Administración y Finanzas. Este plan estará fundamentado en un diagnóstico de necesidades y en él se especificarán las prioridades de capacitación y formación de la Empresa.
+Con fundamento en dicho Plan se definirán aquellos cursos, seminarios, pasantías y otras actividades de capacitación y formación en el país y en el exterior, que conduzcan al mejoramiento del desempeño laboral de los trabajadores, en función de los objetivos, necesidades e intereses de RECOPE.

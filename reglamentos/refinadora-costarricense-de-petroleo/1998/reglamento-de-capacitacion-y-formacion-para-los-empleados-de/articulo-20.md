@@ -1,0 +1,2 @@
+Artículo 20.—De la carga académica:
+La carga mínima a matricular por período lectivo y en los diferentes niveles dependerá de la carrera, naturaleza y configuración del plan de estudios, y la carga académica mínima establecida por la institución educativa. El Departamento de Desarrollo de Personal hará el estudio técnico, en el cual necesariamente consignara con toda claridad la carga académica mínima recomendada para cada caso, debiendo los trabajadores aprobar la carga académica de manera satisfactoria.

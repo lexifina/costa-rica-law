@@ -1,0 +1,3 @@
+Artículo 18.—Del trámite de solicitud de participación:
+El trámite de solicitud para disfrutar de los beneficios del Sistema y participar en los programas de capacitación o formación, se efectuará conforme los lineamientos establecidos por este Reglamento y el "Manual de Procedimientos del Sistema de Calidad del Departamento de Desarrollo de Personal de RECOPE", que al efecto elaborara el citado Departamento en un plazo de 60 días, contados a partir de la aprobación de este Reglamento.
+La Solicitud de trámite es el documento que origina la gestión administrativa para la posible participación del beneficiario en una actividad.
