@@ -1,0 +1,3 @@
+Artículo 3º.- Modifícase el artículo 11 de la Ley Nº 7465 del 06 de
+diciembre de 1994, Relación de Puestos para Servicios Especiales en la
+forma que se indica a continuación: ...

@@ -1,0 +1,3 @@
+Artículo 2º.- Modifícase el artículo 9º de la Ley Nº 7465 del 06 de
+diciembre de 1994, Relación de Puestos para Cargos Fijos en la forma que
+se indica a continuación: ...
