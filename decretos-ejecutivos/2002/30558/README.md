@@ -14,3 +14,4 @@ Establece la Intervención Administrativa, Financiera, Técnica y Operativa del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-04 | la propia norma |
+| 2 | 2002-07-08 | Decreto Ejecutivo 30615 (2002-07-08) |

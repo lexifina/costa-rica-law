@@ -1,1 +1,2 @@
-Artículo 5º—La Junta Interventora deberá presentar al Despacho Ministerial los informes correspondientes, debiendo presentar el primero de ellos en un plazo perentorio de dos meses calendario a partir del inicio de sus funciones.
+Artículo 5º—El Consejo Directivo Nacional deberá presentar al Despacho Ministerial los informes correspondientes, debiendo presentar el primero de ellos en un plazo perentorio de dos meses calendario a partir del inicio de sus funciones.
+(Así reformado mediante Decreto Ejecutivo 30615 para que en adelante se lea en el considerando 6 y los artículos 2º, 4º y 5º, "Consejo Directivo Nacional" (CDN) y no "Junta o Junta Interventora.")
