@@ -1,0 +1,5 @@
+Artículo 9°—Los contratos de prestación de servicios serán:
+a) Por tiempo indefinido: Que se llevara a cabo con aquellos funcionarios para satisfacer las necesidades propias y permanentes de la Municipalidad.
+b) Por tiempo determinado: Que se celebrará con aquellos servidores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentran disfrutando de vacaciones o bajo licencia, así como aquellos excepcionales que su celebración resulte procedente por la naturaleza de los servicios a prestar.
+c) Por obra determinada: Que se podrán celebrar para la ejecución de obras y/o para satisfacer necesidades que eventualmente se prestan en la Municipalidad y en el cual sin previa fijación de tiempo, el objeto de prestación personal de los servicios será la misma obra producida.
+d) Por servicios o asesoría: Aquellos que presten servicios profesionales en asesoría técnica o legal para situaciones especificas. Al respecto se regirán por el arancel de cada profesional no generando para la administración responsabilidad en los términos del Código de Trabajo.

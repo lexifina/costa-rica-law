@@ -1,0 +1,1 @@
+Artículo 35.—Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta de asistencia, a cualquiera de las horas de entrada y salida, hará presumir la inasistencia, siempre y cuando, el trabajador no la justifique a más tardar en la fracción de la jornada siguiente a aquella en que el hecho sucedió.

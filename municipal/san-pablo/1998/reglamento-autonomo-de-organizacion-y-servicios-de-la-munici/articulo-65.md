@@ -1,0 +1,1 @@
+Artículo 65.—En caso de permisos sin goce de sueldo, éstos deberán solicitarse con por lo menos dos meses de anticipación, si el permiso a solicitar, excede de dos semanas; y con dos semanas de antelación, si no lo excediere. El Ejecutivo podrá denegar cualquier solicitud, ateniéndose a la función que cumple el empleado y sin dejar de lado el servicio público que presta.

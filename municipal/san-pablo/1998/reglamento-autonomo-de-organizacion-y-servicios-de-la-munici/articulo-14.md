@@ -1,0 +1,1 @@
+Artículo 14.—Se considera tiempo efectivo de trabajo a aquel en que los trabajadores permanezcan bajo las ordenes y dirección inmediata, o delegada del Patrono, incluso los tiempos destinados para tomar alimentos.

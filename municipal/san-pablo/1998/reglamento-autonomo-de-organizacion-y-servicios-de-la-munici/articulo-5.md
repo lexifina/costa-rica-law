@@ -1,0 +1,2 @@
+Artículo 5°—El Ejecutivo Municipal controlará todo lo concerniente a nombramientos, despidos, cambios de puesto, ascensos, vacaciones, permisos, etc., mediante documento calificado. Pudiendo transferir a los funcionarios, al departamento que estime conveniente por tiempo indefinido y de acuerdo con sus capacidades y habilidades.
+En caso de vacante o creación de plaza, en igualdad de condiciones, se dará preferencia al empleado municipal; si se tratare de dos empleados municipales, se dará prioridad al de mayor antigüedad.

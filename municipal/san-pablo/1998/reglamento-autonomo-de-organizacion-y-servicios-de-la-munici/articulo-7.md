@@ -1,0 +1,1 @@
+Artículo 7°—Los contratos de trabajo o los documentos calificados, se harán en tres tantos: uno para la Municipalidad para efectos de trámite interno, otro para el funcionario interesado y la tercera parte para el expediente de personal.

@@ -1,0 +1,1 @@
+Artículo 39.—En caso de malestar que no requiera atención médica inmediata el trabajador estará obligado a asistir a sus labores normales, sin perjuicio de que el patrono conceda al Funcionario, permiso para ausentarse.

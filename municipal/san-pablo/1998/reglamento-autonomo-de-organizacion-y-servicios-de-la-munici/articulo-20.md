@@ -1,0 +1,1 @@
+Artículo 20.—Al acordarse recargo total de funciones, el empleado sustituto tiene derecho a recibir el sueldo del puesto de categoría superior si aquel fuere mayor, siempre y cuanto el recargo de funciones sea superior a treinta días. Dicha variación salarial será por el periodo que se ejerza el recargo.

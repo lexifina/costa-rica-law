@@ -1,0 +1,3 @@
+CAPITULO II
+Contratos de Trabajo
+Artículo 6°—Todo servidor de la Municipalidad deberá estar amparada por un contrato de trabajo o acción de personal que contendrá, en términos amplios, las cláusulas y estipulaciones particulares que regulen la prestación del servicio, así como el nombre del funcionario, puesto, salario, jornada de trabajo lugar de prestación de servicio y cualquier otro dato de interés. El contrato de trabajo, podrá ser verbal cuando se refiera a los trabajos accidentales o temporales que no excedan de noventa días, en cuyo caso el patrono deberá expedir cada treinta días a petición del trabajador, una constancia escrita del número de días trabajados y de la retribución percibida.
