@@ -1,0 +1,9 @@
+TÍTULO IV
+De la jornada de trabajo
+Artículo 80.—La jornada de trabajo para el personal se desarrollará en las instalaciones de la Municipalidad, ubicadas o no en el edificio principal en este cantón. Para el personal que debe laborar fuera de las instalaciones centrales, a causa de la naturaleza del servicio que presta, la jornada de trabajo se desarrollará en los sitios o lugares que la administración señale y de acuerdo a las necesidades del servicio que se preste.
+El cambio de lugar donde se prestarán los servicios deberá ser puesto en conocimiento del personal afectado, con no menos de dos días de anticipación, salvo casos de fuerza mayor que imposibiliten tal disposición.
+La jornada ordinaria de trabajo de los servidores municipales, se desarrolla conforme lo establece el artículo 50 Convencional.
+No obstante, la Municipalidad, podrá establecer jornadas ordinarias inferiores a estas por razones de salud, ocupación, u horarios de trabajo distintos a los a los señalados.
+En cuanto a la jornada y horario de trabajo de los conserjes, Guardias, Policías choferes y cualquier otro puesto que lo justifique, ser regulado por la Dirección de Recursos Humanos, en conjunto con el jefe de la dependencia respectiva.
+En el caso de los funcionarios de la Guardia Municipal, y de la Policía Municipal, que no cumplan independientemente de la causa, con su tercera jornada comprendida entre las 22,00 y las 6,00 horas del día siguiente, no tendrán derecho a disfrutar del día de descanso, debiendo en esos casos continuar con la prestación normal del servicio en la jornada que la jefatura inmediata determine.
+En las áreas de Seguridad, sea policía o guardia, donde la prestación de servicios debe comprender las veinticuatro horas del día, los servidores estarán en la obligación de rotar en los distintos turnos en que se dividan las veinticuatro horas del día, de acuerdo con los horarios que se establezcan.

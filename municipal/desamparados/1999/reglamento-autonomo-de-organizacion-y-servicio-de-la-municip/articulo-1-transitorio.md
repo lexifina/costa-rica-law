@@ -1,0 +1,2 @@
+Transitorio.—A todos aquellos trabajadors que al momento de entrar en vigencia este Reglamento tengan más de dos períodos de vacaciones sin disfrutar, deberá la Dirección de Recursos Humanos otorgárselas en un plazo no mayor de sieis meses." Acuerdo N°.2, sesión N° 606 del 22 de octubre de 1999. (*)
+(*) (Así corregido mediante FE DE ERRATAS, aprobada en sesión No. 705 del 23 de enero de 2001 y publicada en La Gaceta N° 29 de 9 de febrero de 2001).

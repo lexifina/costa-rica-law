@@ -1,0 +1,1 @@
+Artículo 91.—En caso de que el trabajador por razones justificadas no pueda disfrutar las vacaciones en el período establecido, deberá comunicarlo de inmediato por escrito a su jefatura para que ésta reprograme las mismas en coordinación con la Dirección de Recursos Humanos.

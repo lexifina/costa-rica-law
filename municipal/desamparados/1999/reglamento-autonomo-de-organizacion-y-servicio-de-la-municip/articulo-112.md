@@ -1,0 +1,1 @@
+Artículo 112.—El Departamento de Recursos Humanos enviará un detalle mensual del uso de horas extraordinarias y su respectiva motivación a la Alcaldía Municipal y a la Dirección Administrativa para su respectivo análisis.

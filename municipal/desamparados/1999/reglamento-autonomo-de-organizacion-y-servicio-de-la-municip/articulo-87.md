@@ -1,0 +1,1 @@
+Artículo 87.—La concesión de un asueto la dispone el Concejo Municipal de conformidad con la ley, y el Alcalde Municipal lo comunicará a los trabajadores. En ningún caso se considera dicho otorgamiento como un derecho adquirido.

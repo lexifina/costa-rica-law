@@ -1,0 +1,1 @@
+Artículo 102.—Los funcionarios con grado académico de licenciado, podrán acogerse a cualquier plus salarial contemplado dentro de otros regímenes de la Municipalidad, tales como Carrera Administrativa, Carrera Profesional, etc. según las disposiciones legales vigentes en esa materia; sin embargo, es potestad de la administración el otorga lo no ese beneficio.

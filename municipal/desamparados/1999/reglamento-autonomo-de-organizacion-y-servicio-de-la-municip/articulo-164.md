@@ -1,0 +1,1 @@
+Artículo 164.—En el proceso de investigación que establece este Capítulo la Dirección de Recursos Humanos, podrá solicitar de otras dependencias, a los trabajadores involucrados, aportar documentos y/o citarlos para que declaren o realicen cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final.
