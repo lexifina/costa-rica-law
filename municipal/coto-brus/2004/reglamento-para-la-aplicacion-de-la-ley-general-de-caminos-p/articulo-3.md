@@ -1,0 +1,1 @@
+Artículo 3º—Definición de Mantenimiento Manual: Se entiende por mantenimiento manual de caminos a las obras, que por su tamaño y estructura, sólo pueden realizarse manualmente y con herramienta accesible a los vecinos y fácil de manipular como por ejemplo: palas, carretillos, zachos, machetes, motosierras y otros.

@@ -1,0 +1,1 @@
+Artículo 26.—Funciones del Coordinador de la Unidad Técnica de Conservación Vial: El coordinador de la Unidad Técnica Municipal, será responsable de dar seguimiento a las denuncias planteadas por los vecinos en actividades de mantenimiento manual, todo de conformidad con lo que establece el Reglamento de Procedimientos Internos Municipales.

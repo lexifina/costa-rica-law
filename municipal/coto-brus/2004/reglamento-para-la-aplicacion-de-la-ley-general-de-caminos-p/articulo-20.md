@@ -1,0 +1,1 @@
+Artículo 20.—Ejecución municipal de las obras: La Municipalidad en caso de que el Comité de Caminos no asuma la responsabilidad de ejecutar las actividades contratará cuadrillas de las mismas comunidades para que realicen el mantenimiento manual según corresponda.
