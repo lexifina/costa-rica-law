@@ -14,3 +14,4 @@ Reglamento Reconocimiento Experiencia Tiempo de Vuelo Personal Estatal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-13 | la propia norma |
+| 2 | 1996-05-13 | SINALEVI (sin norma nombrada) |
