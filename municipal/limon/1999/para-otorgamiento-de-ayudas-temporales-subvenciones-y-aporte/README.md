@@ -14,3 +14,4 @@ Para Otorgamiento de Ayudas Temporales Subvenciones y Aportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-04 | la propia norma |
+| 2 | 1999-10-04 | Reglamento municipal 23 (1999-10-04) |
