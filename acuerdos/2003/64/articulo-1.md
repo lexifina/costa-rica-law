@@ -1,3 +1,5 @@
+(Derogado)
+(Mediante artículo 11 del Acuerdo AJDIP 109 del 4 de marzo del 2005 este acuerdo se dejó sin efecto)
 AJDIP7/ 64-2003. Puntarenas, a los veintiún días del mes de febrero del 2003.
 Considerando
 1. Que el INCOPESCA dentro de sus atribuciones y funciones establecidas por Ley, relativas al aprovechamiento y explotación de los recursos pesqueros y permisos de pesca, adoptó el acuerdo AJDIP/132-99, publicado en el Diario Oficia La Gaceta No. 104 del 31 de mayo del año 1999, mediante el cual estableció las regulaciones y políticas institucionales para el otorgamiento de permisos de inactividades de embarcaciones con fines comerciales.

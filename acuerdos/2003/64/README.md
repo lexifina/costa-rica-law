@@ -14,3 +14,4 @@ Reforma las regulaciones y política institucional para el otorgamiento de permi
 | --- | --- | --- |
 | 1 | 2003-02-21 | la propia norma |
 | 2 | 2004-08-20 | Acuerdo 380 (2004-08-20) |
+| 3 | 2005-03-04 | Acuerdo 109 (2005-03-04) |
