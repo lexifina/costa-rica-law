@@ -1,0 +1,1 @@
+Artículo 19.—Comunicación de la tasa de interés. MUCAP comunicará a todos los cuenta ahorrantes la tasa de interés vigente y las sucesivas variaciones para cada uno de los contratos de ahorro a través de pizarras informativas en un lugar visible en todas las Agencias de MUCAP.

@@ -1,0 +1,1 @@
+Artículo 9º—Retiros de la cuenta de ahorros. Solamente el ahorrante y las personas debidamente autorizadas por éste en el "Control de Firmas" , podrán hacer retiros de dinero de las cuentas de ahorros.
