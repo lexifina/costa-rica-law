@@ -1,0 +1,1 @@
+Artículo 10.—Intereses moratorios por pago tardío. Los sujetos supervisados que no efectuaren el pago dentro del plazo establecido, deberán pagar intereses moratorios equivalentes a la tasa básica pasiva del Banco Central de Costa Rica.

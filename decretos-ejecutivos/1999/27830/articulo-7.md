@@ -1,0 +1,1 @@
+Artículo 7°—Cese de funciones de un sujeto fiscalizado durante el período en cobro. Aquellos sujetos fiscalizados que cesen voluntariamente en sus funciones con anterioridad a la finalización del trimestre respectivo deberán contribuir con el monto correspondiente al trimestre completo.
