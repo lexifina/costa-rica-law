@@ -14,3 +14,4 @@ Reglamento para el pago de gastos de alimentación, transporte y hospedaje de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-01 | la propia norma |
+| 2 | 2000-02-01 | Ley 7 |
