@@ -1,0 +1,1 @@
+Art 7° Para el pago de las obras que en dicho contrato se explicarán y de cualquier otro gasto que por este motivo se ocasione, destinase, por el tiempo que fuere necesario, la parte que al Hospital de Puntarenas corresponde por consolidación de capital del impuesto sobre la exportación de maderas, creado por ley XXIV de 18 de julio de 1893.

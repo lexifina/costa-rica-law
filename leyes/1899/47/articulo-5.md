@@ -1,0 +1,1 @@
+Artículo 5° Hecha la adjudicación de la obra, la Municipalidad de Puntarenas contratará su construcción en las condiciones que hubieren sido estatuidas, y someterá el convenio al examen y definitivas aprobaciones del Gobierno.
