@@ -14,3 +14,4 @@ Reforma el decreto que determina el régimen Tarifario para Servicios no Aeroná
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-17 | la propia norma |
+| 2 | 2003-12-19 | Decreto Ejecutivo 31582 (2003-12-19) |
