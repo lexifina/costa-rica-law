@@ -1,6 +1,1 @@
-Artículo 14.. Los productos explosivos son clasificados en cinco sub
-clases y doce grupos de compatibilidad, según se define en el cuadro Nº
-2. Estas definiciones son mutuamente exclusivas, excepto para los
-productos y artículos que puedan ser incluidos en el grupo S y, como
-criterio de inclusión en este grupo, y empíricamente estos productos
-deben estar clasificados en la Sub clase 1.4.
+Artículo 14.. Los productos explosivos son clasificados en cinco sub clases y doce grupos de compatibilidad, según se define en el cuadro Nº 2. Estas definiciones son mutuamente exclusivas, excepto para los productos y artículos que puedan ser incluidos en el grupo S y, como criterio de inclusión en este grupo, y empíricamente estos productos deben estar clasificados en la Sub clase 1.4.

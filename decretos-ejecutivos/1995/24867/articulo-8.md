@@ -1,9 +1,1 @@
-Artículo 8º.. Las clases a considerar para la clasificación de los
-productos peligrosos son: clase 1: explosivos; clase 2: gases
-comprimidos, licuados, disueltos bajo presión o altamente refrigerados;
-clase 3: líquidos inflamables; clase 4: sólidos inflamables, sustancias
-sujetas a combustión espontánea, sustancias que en contacto con el agua
-emiten gases inflamables; clase 5: sustancias oxidantes, peróxidos
-orgánicos; clase 6: sustancias tóxicas, sustancias infectantes; clase 7:
-sustancias radioactivas; clase 8: corrosivos; y clase 9: productos
-peligrosos diversos.
+Artículo 8º.. Las clases a considerar para la clasificación de los productos peligrosos son: clase 1: explosivos; clase 2: gases comprimidos, licuados, disueltos bajo presión o altamente refrigerados; clase 3: líquidos inflamables; clase 4: sólidos inflamables, sustancias sujetas a combustión espontánea, sustancias que en contacto con el agua emiten gases inflamables; clase 5: sustancias oxidantes, peróxidos orgánicos; clase 6: sustancias tóxicas, sustancias infectantes; clase 7: sustancias radioactivas; clase 8: corrosivos; y clase 9: productos peligrosos diversos.

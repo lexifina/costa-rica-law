@@ -1,5 +1,1 @@
-Artículo 20.. Para líquidos que tengan riesgo adicional, el grupo de
-riesgo debe ser determinado a partir del cuadro 3 en conjugación con su
-severidad de riesgo adicional. Para determinar la clasificación correcta
-de un líquido, se debe utilizar la clasificación a partir de la matriz de
-precedencia constante del cuadro 1.
+Artículo 20.. Para líquidos que tengan riesgo adicional, el grupo de riesgo debe ser determinado a partir del cuadro 3 en conjugación con su severidad de riesgo adicional. Para determinar la clasificación correcta de un líquido, se debe utilizar la clasificación a partir de la matriz de precedencia constante del cuadro 1.
