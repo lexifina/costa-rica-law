@@ -16,3 +16,4 @@ Normas Remisión Publicación Estados Financieros Consolidados e Individuales
 | 1 | 2000-08-31 | la propia norma |
 | 2 | 2000-08-31 | Ley 7 |
 | 3 | 2001-08-27 | Reglamento 248 (2001-08-27) |
+| 4 | 2001-11-26 | Reglamento 266 (2001-11-26) |
