@@ -1,0 +1,1 @@
+Artículo 4°-La persona que requerida por la autoridad se negare sin razón justificada a mostrar su cédula de identidad, incurrirá en las penas que prescribe el artículo 139 del Código de Policía y quien usare o poseyere indebidamente una cédula ajena, incurrirá en las sanciones del artículo 426 del Código Penal.
