@@ -1,4 +1,6 @@
+(Derogado)
 N° 35
+(Esta ley fue derogada por el artículo 44 de la Ley Orgánica del Ministerio Público (1928), N° 33 del 01 de diciembre de 1928)
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA
 DECRETA:
