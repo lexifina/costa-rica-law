@@ -1,3 +1,4 @@
+(Anulada esta ley mediante resolución de la Sala Constitucional N° 15058-10 del 8 de setiembre de 2010, misma que anuló por inconstitucionales “los artículos 14 y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935 y sus reformas…” -el destacado es nuestro-).
 Artículo 1º.- Refórmase el inciso c) del artículo 15, de la ley Nº 14, del 2 de diciembre de 1935 y sus reformas, para que diga así:
 "Artículo 15.-Nadie podrá recibir más de una pensión del Estado, excepto en los siguientes casos:
 a) ...
