@@ -10,4 +10,5 @@ Considerando
 4°-Que su fachada es del orden dórico, con un orden superpuesto corintio ejecutado en piedra, cuya fachada está perfectamente balanceada, tanto sus ejes verticales como horizontales, elementos clásicos en el renacimiento.
 Por tanto,
 DECRETAN:
-Artículo 1°-Declarar reliquia de interés histórico y arquitectónico, el inmueble que alberga al Colegio Superior de Señoritas, incluyendo las instalaciones de la antigua Escuela Vitalia Madrigal, sita en la provincia de San José, cantón central, distrito Catedral.
+Articulo 1°.-Declarar de Interés histórico y arquitectónico, el inmueble que albergue al Colegio Superior de Señoritas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18198 del 22 de marzo de 1988)

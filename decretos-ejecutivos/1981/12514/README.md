@@ -14,3 +14,4 @@ Declara de Interés histórico y arquitectónico, el inmueble que albergue al Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-04-21 | la propia norma |
+| 2 | 1988-03-22 | Decreto Ejecutivo 18198 (1988-03-22) |
