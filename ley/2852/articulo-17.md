@@ -1,2 +1,0 @@
-Artículo 17.-Cuando el ocupante no proceda al combate de las plagas y enfermedades o a la destrucción de rastrojos dentro de la obligatoriedad y plazos fijados por el Ministerio, este puede disponer la ejecución de los trabajos de control necesarios y cobrar al responsable el costo de los mismos. EI cobro de la suma fijada en la liquidación tendrá fuerza ejecutiva.
-El Ministerio dispondrá en que casos la ayuda material podría presentarse sin costo para el interesado.
