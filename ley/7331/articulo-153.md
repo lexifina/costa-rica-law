@@ -1,11 +1,3 @@
-ARTÍCULO 153.- Si el infractor no comparece en el plazo dicho, la
-multa quedará firme y la alcaldía correspondiente lo comunicará a la
-Dirección General de Educación Vial para los efectos correspondientes y,
-acto seguido, archivará la boleta.
-En el caso de la suspensión de la licencia, el conductor debe
-apersonarse, para entregar la licencia, a la Dirección de la Policía de
-Tránsito, en un plazo de ocho días hábiles a partir del recibo de la
-boleta respectiva. De no proceder así, la licencia le será decomisada por
-la autoridad de tránsito.
-(Texto modificado por Resolución de la Sala Constitucional No. 438 de las 14:32 horas del
-17 de enero de 2001).
+Artículo 153.—Si el infractor no comparece en el plazo de diez días hábiles, la multa quedará en firme y se harán las comunicaciones de rigor a la Dirección General de Educación Vial, por medio del Consejo de Seguridad Vial y por los medios de que se disponga, para que se anote en el asiento de las licencias de conducir del infractor. El Consejo de Seguridad Vial anotará en sus registros la multa firme, para los efectos establecidos en el artículo 137 bis de esta Ley y comunicará el número de placa de los vehículos con los cuales se hayan infringido las disposiciones de esta Ley, así como el monto de la multa, el número de boleta de citación y los artículos infringidos, al ente recaudador del seguro obligatorio automotor autorizado por ley, para que el cobro respectivo se realice por medio de él.
+Las multas impuestas se levantarán una vez que hayan sido canceladas, de conformidad con lo dispuesto en el artículo 182 de esta Ley.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

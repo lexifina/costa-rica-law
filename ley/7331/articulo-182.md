@@ -1,11 +1,7 @@
 CAPÍTULO II
 PAGO DE LAS MULTAS
-ARTÍCULO 182.- Las multas que se impongan, como consecuencia de la
-infracción de esta Ley, se cancelarán en cualquier banco del Sistema
-Bancario Nacional.
-La oficina bancaria extenderá un comprobante de pago, en el cual
-indicará el número de placa, tipo y marca del vehículo, y enviará una
-copia de ese comprobante al Registro Público.
-Cualquier otra forma de pago se tendrá por no efectuada y el
-empleado público que lo acepte incurrirá en falta grave a la relación
-laboral y será despedido sin responsabilidad para el Estado.
+Artículo 182.—Las multas que se impongan como consecuencia de la infracción contra esta Ley, se cancelarán en cualquier banco del Sistema Bancario Nacional o en cualquier otra dependencia pública o privada de aquellas con las que el Consejo de Seguridad Vial establezca convenios. En su defecto, el Consejo de Seguridad Vial, en su condición de administrador del Fondo de Seguridad Vial, queda facultado para que establezcan vía Reglamento, los medios de cobro de las multas; esto sin perjuicio de lo establecido en este artículo así como en los artículos 185 y 207 de esta Ley.
+Las dependencias públicas o privadas autorizadas según el párrafo anterior, extenderán un comprobante de pago, en el cual se indicará el número de boleta de citación, la placa de matrícula, el nombre y número del documento de identidad o licencia de conducir del infractor, además, las sanciones que se le atribuyen, el monto de la multa y los demás cargos.
+En el convenio respectivo, se establecerán en detalle la forma y los medios idóneos por los cuales se hará el traslado de los comprobantes, de la información y del dinero al Consejo de Seguridad Vial, para lo de su cargo. En todo caso, el envío de información y la transferencia del dinero deberá realizarse en un plazo máximo de tres días hábiles.
+Cualquier pago que se realice en forma distinta de la establecida en este artículo y de las que haya autorizado el Consejo de Seguridad Vial, se tendrá por no efectuado. El empleado público que acepte pagos de multas sin estar autorizado, incurrirá en falta grave a la relación laboral y será despedido sin responsabilidad para el Estado, sin perjuicio de las sanciones penales que correspondan.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

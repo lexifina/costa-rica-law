@@ -1,6 +1,2 @@
-ARTÍCULO 168.- En el caso de que alguna persona haya sufrido
-lesiones, como consecuencia del accidente, debe someterse a un examen que
-practicará el Departamento de Medicina Legal del Organismo de
-Investigación Judicial, el cual dictaminará sobre la magnitud de la
-lesión. Si la persona se rehúsa a que se le practique dicho peritaje, la
-alcaldía prescindirá de esa prueba.
+Artículo 168.—En caso de que alguna persona haya sufrido lesiones como consecuencia del accidente, esta deberá someterse a un examen que practicará el Departamento de Medicina Legal del Organismo de Investigación Judicial, el cual determinará la magnitud de la lesión. Si la persona se rehúsa a que se le practique dicho peritaje, el juzgado prescindirá de esa prueba.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
