@@ -1,0 +1,4 @@
+Artículo 22.—La publicación no puede suplir la notificación, salvo en los siguientes casos:
+a. Cuando se ignore o esté equivocado el lugar para notificaciones indicado por el (la) interesado (a), deberá comunicársele el acto por publicación, en cuyo caso la comunicación se tendrá por hecha, cinco días después de ésta última.
+b. Igual regla se aplicará para la primera notificación en un procedimiento, si no constan en el expediente la residencia, lugar de trabajo o cualquier otra dirección exacta del (de la) interesado (a), por indicación de la Dirección Administrativa, de la Fiscalía o de cualquiera de las partes. Caso opuesto, deberá notificarse.
+La publicación que suple la notificación se hará por tres veces consecutivas en el Diario Oficial y tos términos se contarán a partir de la última.

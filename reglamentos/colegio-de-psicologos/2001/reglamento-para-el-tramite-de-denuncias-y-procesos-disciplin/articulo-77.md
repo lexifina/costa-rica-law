@@ -1,0 +1,1 @@
+Artículo 77.—A los efectos del artículo anterior, la Fiscalía podrá si lo considera oportuno convocar a la parte denunciante y a la parte denunciada, por separado, a declarar sobre los hechos denunciados. Una vez concluida su investigación rendirá el informe correspondiente, en cual considerará pasar la denuncia al Tribunal de Honor o archivar el expediente.

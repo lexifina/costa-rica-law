@@ -1,0 +1,1 @@
+Artículo 59.—Si desaparece la denuncia, por extravío, sustracción o destrucción, en la medida de las posibilidades se reconstruirá el expediente con los documentos que obren en el colegio. De no poderse reponer, se podrá presentar otra, dentro de los quince días posteriores a la notificación del hecho.

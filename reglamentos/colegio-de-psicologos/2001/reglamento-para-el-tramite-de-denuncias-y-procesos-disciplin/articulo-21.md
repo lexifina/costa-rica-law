@@ -1,0 +1,4 @@
+Artículo 21.—
+1. La notificación podrá hacerse personalmente o por medio de fax, telegrama o carta certificada dirigida al lugar señalado para notificaciones. Si no hubiere señalamiento al efecto, hecho por la parte interesada, la notificación deberá hacerse en la residencia, lugar de trabajo o dirección del (de la) interesado (a), si constan en el expediente por indicación de la Dirección Administrativa o de cualquiera de las partes.
+2. En el caso de notificación personal servirá como prueba el acta respectiva firmada por el (la) interesado (a) y el (la) notificador (a) o, si aquél (a) no ha querido firmar, por este (a) último (a) dejando constancia de ello.
+3. Cuando se trate de telegrama o carta certificada la notificación se tendrá por hecha con la boleta de retiro o el acta de recibo firmada por quien hace la entrega.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando el motivo de abstención afectare a la Junta Directiva o a alguno/a (s) o de sus miembros, o al (a la) Fiscal, conocerán del asunto los (as) miembros suplentes escogidos por la asamblea general ordinaria.

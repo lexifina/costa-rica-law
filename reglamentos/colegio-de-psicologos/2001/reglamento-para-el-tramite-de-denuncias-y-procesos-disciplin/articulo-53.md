@@ -1,0 +1,1 @@
+Artículo 53.—El poder del (de la) denunciante podrá constituirse por los medios del derecho común, o por simple carta autenticada por un (a) abogado (a), que podrá ser el (la) mismo (a) apoderado (a).

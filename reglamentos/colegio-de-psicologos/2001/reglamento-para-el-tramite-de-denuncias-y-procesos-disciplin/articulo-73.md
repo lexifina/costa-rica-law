@@ -1,0 +1,1 @@
+Artículo 73.—La Fiscalía o las otras partes podrá introducir antes del acto final nuevos hechos relacionados con los inicialmente conocidos o invocados, pero en el caso del procedimiento disciplinario tendrá que observarse el trámite de comparecencia oral para probarlos.

@@ -1,0 +1,1 @@
+Artículo 10.—Las normas de este Reglamento deberán interpretarse en forma favorable a la admisión y decisión final de las peticiones de las partes pero ello no podrá servir para subsanar nulidades que son absolutas.

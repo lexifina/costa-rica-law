@@ -1,0 +1,1 @@
+Artículo 100.—La caducidad del procedimiento no producirá por sí sola la prescripción de las acciones del particular, pero los procedimientos caducados no interrumpirán el plazo de tal caducidad o prescripción.

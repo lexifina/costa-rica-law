@@ -1,0 +1,2 @@
+Artículo 6º—El derecho de defensa deberá ser ejercido por el colegiado en forma razonable a juicio del Tribunal de Honor. El Tribunal podrá excepcionalmente limitar su intervención a lo prudentemente necesario.
+El denunciado tendrá derecho de hacerse asesorar por un profesional en derecho, el cual podrá utilizar en cualquier etapa del proceso. En todo trámite, procedimiento o actuación, se deberán de respetar los derechos de Audiencia y Defensa consagrados en la Constitución Política y en este Reglamento.

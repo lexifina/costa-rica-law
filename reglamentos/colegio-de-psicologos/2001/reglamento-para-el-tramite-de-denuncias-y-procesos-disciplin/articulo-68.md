@@ -1,0 +1,1 @@
+Artículo 68.—A los fines de la recepción de la prueba, el Tribunal de Honor tendrá las mismas facultades y deberes que las autoridades judiciales. Los testigos, peritos o partes incurrirán en las responsabilidades penales que correspondan, cuando se den las circunstancias previstas y sancionadas como delitos o contravenciones establecidas en el Código Penal.

@@ -1,0 +1,1 @@
+Artículo 78.—En caso de que la Fiscalía desestimase la denuncia presentada, dentro del plazo establecido, la parte denunciante podrá acudir ante la Junta Directiva del Colegio Profesional de Psicólogos (as) de Costa Rica, la cual sin ninguna dilación podrá, con vista de la denuncia presentada remitir el caso al Tribunal de Honor, para lo cual contará con un plazo de ocho días.
