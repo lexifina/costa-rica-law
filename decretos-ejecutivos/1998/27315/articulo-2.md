@@ -1,0 +1,1 @@
+Articulo 2°—A efecto de autorizar la corta de árboles en áreas de protección de los nos, la Administración Forestal del Estado tramitará con la debida agilidad la solicitud que en tal sentido le presenten este Ministerio o la empresa Contratista, dándole a dicha solicitud el trámite establecido por la Ley Forestal y tomando en consideración lo establecido en el artículo anterior.
