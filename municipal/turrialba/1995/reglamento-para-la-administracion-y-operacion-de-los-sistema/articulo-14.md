@@ -1,0 +1,3 @@
+Artículo 14.—El gravamen a que se refiere el artículo 13 se anotará mediante oficio que será enviado por el Departamento de Estacionamiento Autorizado, al departamento de Tesorería Municipal o en el lugar o forma que la Municipalidad indique en un plazo no mayor de cuarenta y ocho horas.
+Donde el infractor podrá cancelar, si no se hiciera la cancelación en el tiempo estipulado la multa será impuesta por la Tesorería y tendrá un recargo del 2% mensual que no podrá exceder en ningún caso del 24% del monto adeudado. La multa o acumulación de las multas no canceladas durante el año o más constituirán gravamen sobre el vehículo el que responderá además por los gastos que demande las acciones.
+El cobro se hará por medio de Instituto Nacional de Seguros.

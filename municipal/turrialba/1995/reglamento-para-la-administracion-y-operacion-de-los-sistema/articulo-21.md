@@ -1,0 +1,1 @@
+Artículo 21.—La Municipalidad de Turrialba, por medio de la sección a cuyo cargo esté la regulación de estacionamientos demarcará ángulos no menores de diez metros para el estacionamiento de motocicletas y bicicletas sin cobro alguno. Asimismo todos aquellos obstáculos que sean ubicados en esta área, serán despojados en coordinación con la autoridad respectiva.

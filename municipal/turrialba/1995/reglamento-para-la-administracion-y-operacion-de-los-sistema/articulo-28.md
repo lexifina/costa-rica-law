@@ -1,0 +1,1 @@
+Artículo 28.—Toda nueva solicitud para estacionamiento fijo deberá ser estudiada por el Jefe de la Sección, el informe correspondiente se remitirá a la Dirección Ejecutiva y posteriormente al Concejo Municipal, a efecto de que dé su aprobación o rechazo definitivo con base en los criterios externados.

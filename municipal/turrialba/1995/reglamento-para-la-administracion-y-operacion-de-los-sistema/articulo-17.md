@@ -1,0 +1,1 @@
+Artículo 17.—La Municipalidad de Turrialba por medio de Inspectores velará por el cumplimiento en el pago de la tasa establecida en este Reglamento, quienes reportarán los vehículos que infrinjan la ley en caso necesario. El Jefe de Sección pasará el respectivo parte o aviso, al departamento de Tesorería de cada infracción cometida.

@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos de cobro de esta tasa se divide el Distrito Primero de Turrialba, en Zona Céntrica y Zona No Céntrica. La Céntrica quedará comprendida entre las calles 3a y 6a y avenidas la y 6a. La Zona No Céntrica se ubicará inmediatamente siguiente de la Zona Céntrica y hasta los límites de la ciudad.

@@ -1,0 +1,1 @@
+Artículo 16.—El personal del Departamento de Estacionamiento Autorizado por medio de los inspectores, tendrán a su cargo la vigilancia de este Reglamento para el Distrito Central de Turrialba, los que están obligados a velar por la aplicación del mismo.

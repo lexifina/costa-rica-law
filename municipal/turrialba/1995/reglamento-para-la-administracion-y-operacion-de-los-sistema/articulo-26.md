@@ -1,0 +1,2 @@
+Artículo 26.—Las tarifas a pagar por el uso de zonas o espacios para estacionamiento permanente se determinará de la siguiente manera:
+(*) El valor por hora multiplicado por tiempo, un 10% de descuento, horario de funcionamiento diario (Art. 5) durante el mes. La suma deberá ser cancelada mensualmente por adelantado, en las cajas recaudadoras de la Municipalidad de Turrialba. El incumplimiento del pago de una mensualidad autoriza a la Municipalidad para rescindir el contrato sin responsabilidad alguna.

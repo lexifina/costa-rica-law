@@ -1,0 +1,1 @@
+Artículo 18.—Para el menor (sic) cumplimiento de esta ley 3580 del 13 de noviembre, en su artículo 5, la Municipalidad y la Dirección de Tránsito, tomarán las medidas pertinentes en estrecha y efectiva colaboración. Los inspectores están investidos de autoridad para las actuaciones oficiales en ese respecto de acuerdo con lo establecido en la ley 3580 del 2 de noviembre de 1975.
