@@ -1,0 +1,1 @@
+Artículo 4º.- Los honorarios del Tesorero Escolar, en lo que concierne a los ingresos provenientes de la subvención que esta ley señala, se regirán por lo que dispone el artículo 58 del Código de Educación para las sumas provenientes de subvención del Estado.
