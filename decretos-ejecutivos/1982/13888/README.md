@@ -13,3 +13,4 @@ Traslado Registro Asociaciones al Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-10-14 | la propia norma |
+| 2 | 1982-10-14 | SINALEVI (sin norma nombrada) |
