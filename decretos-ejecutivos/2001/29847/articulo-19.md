@@ -1,0 +1,2 @@
+Articulo 19.—Calidad y oportunidad en la prestación del servicio.
+La regulación y evaluación de la calidad y oportunidad en la prestación del servicio comprenderá: la aplicación tarifaría, la medición, registro y lectura del consumo de energía y potencia (incluyendo el control, uso y funcionamiento de los contadores de energía y potencia), la atención y respuesta de solicitudes, consultas y reclamos de los abonados y usuarios, así como el régimen contractual en la prestación del servicio.

@@ -1,0 +1,1 @@
+Artículo 5°—Responsabilidad de las empresas. Es responsabilidad de las empresas el establecer y ejecutar los mecanismos apropiados para el cumplimiento de las condiciones de calidad y régimen tarifario en la prestación del servicio, con el fin de brindar un servicio en condiciones adecuadas y con la regularidad que su naturaleza indique.

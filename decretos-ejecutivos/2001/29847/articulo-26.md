@@ -1,0 +1,5 @@
+Artículo 26.—De las tarifas para el servicio de generación. La
+tarifa de generación para venta a las empresas distribuidoras y a abonados que estén servidos en alta tensión, se definirá por los principios generales establecidos en el artículo 22 de este Reglamento.
+Los costos de generación reconocidos por la compra de electricidad en bloque a las empresas distribuidoras, se establecerán con base en las tarifas vigentes que existen para ese mismo caso, de manera que no sobrepase otras opciones más económicas con que puede contar la empresa distribuidora.
+En caso de que la empresa distribuidora genere con una planta de su propiedad, se le asignará a esta electricidad para efectos tarifarios, un valor que reconozca los costos y una rentabilidad razonable, pero que en ningún caso excederá la tarifa de compra de electricidad de menor costo existente en el mercado.
+El cálculo del costo de las compras de electricidad debe permitir que las empresas distribuidoras tengan incentivos para contratar en forma económica el suministro de energía en bloque y a la vez, que parte de las ventajas en el precio de compra se apliquen en beneficio de los usuarios finales.

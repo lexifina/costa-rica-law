@@ -1,0 +1,1 @@
+Artículo 13.—De las autorizaciones. Para el suministro de energía eléctrica, las empresas deben contar con la respectiva concesión, permiso o autorización dada por la entidad competente y cumplir con los requisitos y obligaciones contempladas en ellos y las que sean aplicables de este Reglamento.

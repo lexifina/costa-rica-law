@@ -1,0 +1,3 @@
+Artículo 33.—Esquema para la estructura tarifaría.
+La definición y la estructura tarifaría se basará en las 'condiciones de suministro de la energía eléctrica. Cuando sea necesario establecer tarifas de acuerdo con las condiciones de uso, deberá fundamentarse adecuadamente; de tal manera que solo sea por excepción justificada y se cuantifique adecuadamente la distorsión tarifaría correspondiente.
+La Autoridad Reguladora determinará los parámetros de la estructura tarifaría de acuerdo con la estructura de costos y demanda de las empresas eléctricas. En la medida de lo posible, estas estructuras serán iguales para todas las empresas eléctricas.

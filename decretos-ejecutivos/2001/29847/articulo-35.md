@@ -1,0 +1,6 @@
+Artículo 35.—Etapas en el proceso de regulación y evaluación.
+Con el fin de facilitar la adecuación gradual de las empresas eléctricas a las exigencias en cuanto a calidad del servicio indicadas en este reglamento y en las respectivas normas técnicas sobre calidad, que emita la Autoridad Reguladora, se establecen tres etapas consecutivas, denominadas: "Preliminar", "Ajuste" y "Fiscalización" y que se describen así:
+- Preliminar: En la que se deben poner en marcha, por parte de las empresas y en un plazo fijado por la Autoridad Reguladora, previa consulta a ellas, los procedimientos, metodologías y mecanismos necesarios para el cálculo de los indicadores evaluativos y físcalizadores, establecidos en las normas técnicas respectivas.
+- Ajuste: Se inicia en forma inmediata a la finalización de la etapa Preliminar. En esta etapa, la Autoridad Reguladora, previa audiencia concedida a las empresas, iniciará, de manera gradual en
+el nivel de exigencia, el proceso de regulación, evaluación y fiscalización del servicio.
+- Fiscalización: Se inicia una vez concluida la etapa de Ajuste y en ella se aplicarán las sanciones establecidas en la Ley No 7593 por el incumplimiento de los índices, límites admisibles y normas técnicas de acatamiento obligatorio.

@@ -1,0 +1,2 @@
+Artículo 21.—Regulación técnica y comercial al usuario.
+La regulación a los abonados y usuarios, comprenderá los efectos que el uso de tecnologías introduce al sistema eléctrico, así como el uso y manejo de la energía, incluyendo los requisitos de seguridad y calidad en la interconexión entre las redes eléctricas de la empresa y las instalaciones de los abonados o usuarios; además de sus obligaciones con la empresa eléctrica, en los aspectos comerciales del servicio.

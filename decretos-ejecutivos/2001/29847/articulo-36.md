@@ -1,0 +1,1 @@
+Artículo 36.—Características de las empresas. Para establecer las normas sobre calidad, así como los plazos a definir en las etapas del proceso de regulación y evaluación, se tomarán en cuenta las características propias de cada empresa, tanto económicas como técnicas, sin hacer distinciones entre sus abonados y usuarios, salvo las diferencias propias del servicio.

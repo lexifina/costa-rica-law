@@ -1,0 +1,1 @@
+Artículo 24.—Plazo para aprobar tarifas. Los plazos para aprobar los ajustes ordinarios de tarifas se regirán por lo establecido en los artículos 36 y 37 de la Ley N° 7593. Estos plazos empezarán a regir una vez otorgada la admisibilidad.

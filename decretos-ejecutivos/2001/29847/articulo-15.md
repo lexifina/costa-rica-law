@@ -1,0 +1,1 @@
+Artículo 15.—Principios técnicos. En el suministro de energía eléctrica, los principios técnicos de selectividad, confiabilidad y estabilidad deberán ser aplicados en todo proceso de planificación, diseño, construcción, operación y mantenimiento del sistema eléctrico.

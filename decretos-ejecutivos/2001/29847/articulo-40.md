@@ -1,0 +1,1 @@
+Artículo 40.—Mecanismos de transferencia de información. Para la remisión de información de las empresas hacia la Autoridad Reguladora, ésta establecerá en las normas técnicas y económicas, los tipos y mecanismos apropiados de transferencia de dicha información.

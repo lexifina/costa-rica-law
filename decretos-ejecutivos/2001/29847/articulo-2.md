@@ -1,0 +1,1 @@
+Artículo 2°—Objeto. El presente Reglamento define y dispone las condiciones generales bajo las cuales se ejercerá la regulación del servicio eléctrico que brindan las empresas a los abonados y usuarios, en las áreas técnica y económica.

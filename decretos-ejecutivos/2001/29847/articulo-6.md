@@ -1,0 +1,1 @@
+Artículo 6°—Eficiencia y compromiso ambiental. Los proyectos y actividades que se desarrollen en el sector eléctrico deben realizarse con equipos, procedimientos y acciones que propicien la eficiencia productiva, operativa y de consumo de energía, procurando un medio ambiente sano y ecológicamente equilibrado.

@@ -1,0 +1,1 @@
+Articulo 31.—Determinación de otros cargos. La Autoridad Reguladora fijará todos los otros cobros que realicen las empresas de energía eléctrica como parte de su servicio, tales como las cuotas de conexión o desconexión o similares.

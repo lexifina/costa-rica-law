@@ -1,0 +1,1 @@
+Artículo 14.—Conflictos de territorialidad. La Autoridad Reguladora resolverá los conflictos de competencia por razones de territorio que surjan entre las empresas, considerando los aspectos contemplados en las respectivas concesiones, permisos o autorizaciones, el interés público y las condiciones técnicas y económicas, así como las regulaciones del presente Reglamento.
