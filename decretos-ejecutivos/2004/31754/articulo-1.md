@@ -1,0 +1,13 @@
+Nº 31754-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 25, inciso l), 27, inciso l) y 28, inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978; Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001; Ley Nº 7012, Creación Depósito Libre Comercial de Golfito del 4 de noviembre de 1985, reformada por Ley Nº 7730, Ley de Depósito Libre Comercial de Golfito del 20 de diciembre de 1997 y el Decreto Ejecutivo Nº 31092-H del 11 de marzo de 2003.
+Considerando:
+1º—Que la Junta de Desarrollo Regional de la Zona Sur (JUDESUR) se crea mediante la Ley Nº 7012 Creación Depósito Libre Comercial de Golfito, publicada en La Gaceta Nº 227 del 27 de noviembre de 1995.
+2º—Que JUDESUR es la entidad destinada a promover el desarrollo socioeconómico integral de la zona sur, mediante la puesta en ejecución del Plan de Desarrollo de la Zona Sur, asimismo es la encargada de la administración y operación del giro comercial del Depósito Libre Comercial de Golfito.
+3º—Que JUDESUR debe cubrir la erogación que implica la construcción de once locales devastados por un incendio, situación que ha perjudicado económicamente a los concesionarios. Dicho gasto será financiado con un préstamo del Banco Popular y de Desarrollo Comunal por un monto de ¢300.0 millones.
+4º—Que mediante Decreto Ejecutivo Nº 31092-H, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, la forma de cálculo del límite de gasto presupuestario del año 2004, para las entidades cubiertas por el ámbito de la Autoridad Presupuestaria.
+5º—Que mediante oficio STAP-Circular 647-03 del 29 de abril del 2003, se comunicó a la Junta de Desarrollo Regional de la Zona Sur el límite de gasto presupuestario fijado para el año 2004.
+6º—Que por lo anterior, se hace necesario modificar el gasto presupuestario fijado para la Junta de Desarrollo Regional de la Zona Sur para el 2004. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 31092-H, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, para fijar en ¢2,672.5 millones el límite de gasto presupuestario de la Junta de Desarrollo Regional de la Zona Sur para el año 2004.
