@@ -1,1 +1,1 @@
-Artículo 46.-Las personas naturales o jurídicas obligadas a informar a la Oficina de la Tributación acerca de las materias de que tratan los artículos 38 a 41, incluidos ambos, que se nieguen a comunicar los datos requeridos en la forma y oportunidad allí señalados o que los den incompletos o falsos, incurrirán en una multa de cien a dos mil colones.
+Artículo 46.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

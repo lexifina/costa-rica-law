@@ -1,1 +1,1 @@
-Artículo 53.-Estando en forma la demanda, el Juez Civil de Hacienda procederá de acuerdo con las disposiciones establecidas en el Código de Procedimientos Civiles para los juicios ejecutivos, con las modificaciones que a continuación se expresan.
+Artículo 53.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

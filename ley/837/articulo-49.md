@@ -1,1 +1,1 @@
-Artículo 49-Si la Oficina de la Tributación o el denunciado no se conformaren con el fallo del Juez Civil de Hacienda, podrán apelar para ante la Sala correspondiente, dentro de las 24 horas siguientes a la notificación de la sentencia. La Sala oirá, por 3 días a las partes y resolverá el asunto sin más trámite ni ulterior recurso, dentro de las 48 horas siguientes.
+Artículo 49-(Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)
