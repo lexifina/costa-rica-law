@@ -1,15 +1,15 @@
 CAPITULO SETIMO
 De la evaluación del gasto público
-Artículo 37.- El Poder Ejecutivo deberá organizar una evaluación
-completa de programas e instituciones de todo el sector público.
-Esta labor deberá iniciarse con el análisis y evaluación de los
-programas de las siguientes instituciones y empresas públicas: Instituto
-Costarricense de Electricidad, Caja Costarricense de Seguro Social,
-Instituto Nacional de Seguros, Banco Popular y de Desarrollo Comunal,
-Refinadora Costarricense de Petróleo, Corporación Costarricense de
-Desarrollo, S. A. y sus subsidiarias, Instituto Nacional de Fomento
-Cooperativo, Instituto Costarricense de Turismo, Instituto Nacional sobre
-Alcoholismo y Fondo de MIDEPLAN.
+ARTICULO 37.- El Poder Ejecutivo deberá organizar una evaluación
+completa de programas e instituciones de todo el sector público. Esta
+labor deberá iniciarse con el análisis y evaluación de los programas de
+las siguientes instituciones y empresas públicas: Instituto Costarricense
+de Electricidad, Caja Costarricense de Seguro Social, Instituto Nacional
+de Seguros, Banco Popular y de Desarrollo Comunal, Refinadora
+Costarricense de Petróleo, Corporación Costarricense de Desarrollo, S.A.
+y sus subsidiarias, Instituto Nacional de Fomento Cooperativo, Instituto
+Costarricense de Turismo, Instituto Nacional sobre Alcoholismo y Fondo de
+MIDEPLAN.
 En el término de un mes, el Poder Ejecutivo deberá designar sendas
 comisiones evaluadoras en las citadas instituciones, integradas cada una
 por tres personas de reconocida solvencia moral, independencia de
