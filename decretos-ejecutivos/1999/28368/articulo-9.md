@@ -1,0 +1,1 @@
+Articulo 9°—Los planes elaborados o avalados en el seno de la comisión, deberán ser canalizados, hacia las instituciones y Organizaciones. Gubernamentales y no Gubernamentales, Municipios y sectores en general, para obtener la aprobación y el refrendo respectivo de las jerarquías correspondientes que avalen y permitan su ejecución.

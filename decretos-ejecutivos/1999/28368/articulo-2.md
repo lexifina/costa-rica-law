@@ -1,0 +1,1 @@
+Articulo 2°—La Comisión para el Desarrollo y Conservación del Golfo de Nicoya (CDCGN), estará adscrita al Instituto Costarricense de Pesca y Acuacultura (INCOPESCA), con el respaldo del Estado para ejercer las funciones que le competen.

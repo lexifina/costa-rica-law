@@ -1,0 +1,1 @@
+Articulo 7°—La Comisión sesionará al menos cada dos meses o por convocatoria de su coordinador, en el lugar y hora que ella determine. La Comisión, también podrá ser convocada por al menos tres de sus miembros en forma conjunta. Harán quórum para sesionar válidamente nueve de sus miembros y los acuerdos o decisiones se tomarán por mayoría simple de votos presentes.
