@@ -15,3 +15,4 @@ Regulaciones Generales de Crédito, Tasas de Interés y Comisiones, dictadas por
 | --- | --- | --- |
 | 1 | 1993-04-02 | la propia norma |
 | 2 | 1996-01-31 | Reglamento 4856 (1996-01-31) |
+| 3 | 1996-02-21 | Reglamento 4861 (1996-02-21) |
