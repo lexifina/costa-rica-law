@@ -1,3 +1,4 @@
 Artículo 262
 Lesiones por imprudencia
-Sufrirá la pena de multa mayor en su grado primero e inhabilitación temporal en el mínimum de su grado primero, del cargo o de la profesión en cuyo ejercicio hubiere causado el daño, el que por imprudencia o negligencia, por impericia en su arte o profesión, o por inobservancia de los reglamentos o deberes de su cargo, causare a otro en el cuerpo o en la salud, uno de los daños indicados en los artículos anteriores.
+Artículo 262.- Sufrirá la pena de multa en su grado primero el que por imprudencia, descuido o negligencia, cuasare a otro en el cuerpo o en la salud, uno de los daños indicados en los artículos anteriores; pero si se hubiere producido por negligencia, descuido o imprudencia al ejercer una profesión titular o un cargo público será condenado también a inhabilitación temporal de la profesión o cargo de que se trate, infligida en el mínimum de su grado primero.
+(Así reformado por el artículo único de la ley N° 19 del 30 de mayo de 1925)
