@@ -119,3 +119,5 @@ para Investigaciones Científicas y Tecnológicas)
 de Protección Social de San José)
 (Modificado por el artículo 1 del Dereto Ejecutivo N° 29206 de 20 de noviembre del 2000,
 con respecto de la Junta de Desarrollo de la Regional de la Zona Sur)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29123 de 21 de noviembre del 2000,
+respecto de la Junta de Administracion Portuaria y de Desarrollo Económico de la Vertiente Atlántica)
