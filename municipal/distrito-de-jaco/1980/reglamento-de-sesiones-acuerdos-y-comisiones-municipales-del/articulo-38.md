@@ -1,0 +1,1 @@
+Articulo 38.—Las comisiones despacharán los asuntos a su cargo a la mayor brevedad posible. Salvo casos especiales en que el Preside del consejo en forma expresa, fije un término menor o superior, las comisiones deberán rendir sus dictámenes en un plazo no mayor de quince días, prorrogables por otros quince, a juicio del Presidente,

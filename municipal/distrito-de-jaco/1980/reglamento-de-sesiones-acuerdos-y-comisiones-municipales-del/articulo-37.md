@@ -1,0 +1,1 @@
+Articulo 37.—Una vez designadas las comisionen por el Presidente Municipal, sus miembros en la sesión de instalación que deberá de celebrarse dentro de los quince días siguientes, nombrará de su seno a un coordinador y un secretario.

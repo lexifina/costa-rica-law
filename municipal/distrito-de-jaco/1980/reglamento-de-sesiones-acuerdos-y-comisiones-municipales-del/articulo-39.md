@@ -1,0 +1,1 @@
+Artículo 39.—Los dictámenes de las comisiones deberán presentarse por escrito y firmadas por todos los miembros de la comisión que lo emiten. Cuando no existiere acuerdo unánime sobre un dictamen, los miembros de la comisión que no aprueban, podrán rendir dictamen por separado si lo estiman conveniente.

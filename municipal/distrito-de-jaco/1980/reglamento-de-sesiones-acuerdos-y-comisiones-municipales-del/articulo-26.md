@@ -1,0 +1,1 @@
+Articulo 26.—El recurso de revisión procederá contra los acuerdos que no hubieren sido declarados firmes y deberá presentarse antes de ser aprobada el acta. La misma mayoría requerida para dictar el acuerdo sobre el que se solícita revisión será necesaria para acordar esta. Aceptada la revisión, el Presidente pondrá en discusión el asunto a que se refiere el acuerdo.
