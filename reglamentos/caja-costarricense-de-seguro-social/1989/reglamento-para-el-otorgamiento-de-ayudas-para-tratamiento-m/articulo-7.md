@@ -1,1 +1,3 @@
 Artículo 7°- En casos muy especiales, cuando de la evaluación o del tratamiento médico en el exterior puede depender la vida del paciente, la Institución podrá, por acuerdo expreso y fundamentado ante la Junta Directiva, ampliar el monto de la ayuda económica aquí contemplada, excluidos siempre los honorarios profesionales.
+En casos debidamente calificados por la Gerencia de la División Médica y previo estudio socioeconómico, dentro de la suma máxima de los US$ 3.000 (tres mil dólares), se podrá considerar el costo de los pasajes aéreos y gastos de estadía.
+(Así reformado en sesión N° 6374 del 7 de diciembre de 1989)

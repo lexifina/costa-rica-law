@@ -13,3 +13,4 @@ Reglamento para el Otorgamiento de Ayudas para Tratamiento Médico en el Exterio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-08 | la propia norma |
+| 2 | 1989-12-07 | Reglamento 6374 (1989-12-07) |
