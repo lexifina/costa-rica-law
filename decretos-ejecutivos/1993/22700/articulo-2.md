@@ -1,0 +1,1 @@
+Artículo 2º.- Deróguese el texto del artículos 146 del Reglamento Autónomo de Trabajo del Ministerio de Recursos Naturales, Energía y Minas, decreto ejecutivo número 18557-MIRENEM del 18 de noviembre de 1988 y a su vez estipúlese en dicho artículo lo contenido en el texto del artículo 26 infrascrito.
