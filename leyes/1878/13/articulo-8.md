@@ -1,0 +1,1 @@
+Art. 9°-Es de cargo del portero, practicar diariamente el asco material le la Oficina y muebles, y cumplir diligentemente con cuanto se le ordene por el Archivero y Oficial Mayor, á quienes estará subordinado.

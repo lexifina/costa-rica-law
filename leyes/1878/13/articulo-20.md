@@ -1,0 +1,1 @@
+Art 20 - Todo Cartulario en protocolo mayor ó menor; es responsable tambien por cualquier otro defecto de forma del instrumento que autorice; y fuera de lo que ha de indemnizar por danos y perjuicios, pagara cincuenta pesos de multa al Tesoro Nacional, por cada escritura en que se note tal defecto.
