@@ -1,0 +1,1 @@
+Artículo 7º—La Administración Forestal del Estado deberá sistematizar la información proveniente de las actas elaboradas en estos casos, y de los demás documentos pertinentes para elaborar un estudio general al finalizar la vigencia de esta norma y determinar el impacto jurídico de la normativa vigente para fundamentar los cambios legislativos necesarios.

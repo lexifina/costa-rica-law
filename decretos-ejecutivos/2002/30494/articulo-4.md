@@ -1,0 +1,1 @@
+Artículo 4º—La madera y los medios de transporte utilizados, que circulen fuera de las horas autorizadas en esta norma, quedarán a la orden de la autoridad competente hasta tanto no se verifiquen los documentos respectivos y la procedencia de la madera, verificación que será llevada acabo por las autoridades administrativas competentes.

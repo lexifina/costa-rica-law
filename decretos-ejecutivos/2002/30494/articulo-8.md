@@ -1,0 +1,1 @@
+Artículo 8º—Este Decreto tiene una vigencia indefinida a partir de su publicación. El MINAE evaluará el problema de la tala ilegal, en el territorio nacional y establecerá las medidas administrativas para reducirla, así como recomendar los cambios en la legislación vigente.
