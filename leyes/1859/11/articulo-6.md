@@ -1,0 +1,1 @@
+Art. 6° En el caso en que el número de Conjueces que quedan creados, llegase á ser insuficiente, la Comisión Permanente, en receso del Congreso, queda facultada para nombrar los específicos que fuesen necesarios.
