@@ -1,0 +1,1 @@
+Art 4°.- Para suministrar á éstos lo necesario para sus alimentos, deberá cada Municipalidad poner para sus alimentos, deberá cada Municipalidad poner a disposición de aquella en cuyo distrito se instruyan sus causas, la cuota de un par de pesos mensuales por cada preso de su distrito.

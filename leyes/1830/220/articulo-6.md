@@ -1,0 +1,1 @@
+-Art 6°.- En consecuencia, los jueces de toda clase pondrán a disposición de las Municipalidades respectivas la cuota de multas que impongan a los reos, dando el recibo correspondiente al condenado, y percibiéndolo de la Municipalidad á quien toque.

@@ -1,0 +1,1 @@
+Art 5°.- La cuota de que habla el artículo anterior será cubierta con el ramo de multas de que habla será cubierta con el ramo de multas de que habla el artículo 2° y si no fuese bastante, el déficit lo satisfarán las Municipalidades de sus fondos de cuales quiera clase, ó por el arbitrio que juzguen oportuna y que propuesto al Ejecutivo, este lo apruebe.
