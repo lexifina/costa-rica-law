@@ -1,4 +1,4 @@
-Artículo 81.- En toda legalización de documentos harán constar los
+ARTICULO 81.- En toda legalización de documentos harán constar los
 Cónsules la calidad oficial del funcionario o funcionarios públicos que
 lo hubiesen expedido o con cuya intervención se hubiese perfeccionado y
 la circunstancia de hallarse éstos, al expedir o intervenir en el

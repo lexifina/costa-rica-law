@@ -1,4 +1,4 @@
-Artículo 26.- En la posibilidad de que disposiciones ulteriores
+ARTICULO 26.- En la posibilidad de que disposiciones ulteriores
 permanentes, o transitorias y accidentales, pudieran exigir certificado
 de origen para todas o determinadas mercancías, los Cónsules, en
 previsión de esa posibilidad y, de todas maneras, para los efectos de su

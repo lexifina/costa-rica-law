@@ -10,12 +10,11 @@ de hacer una nueva edición del Reglamento y demás leyes y disposiciones
 sobre servicio consular,
 DECRETA:
 La siguiente
-Ley Orgánica del Servicio Consular
+LEY ORGANICA DEL SERVICIO CONSULAR
 Capitulo I
 Jerarquías Consulares.- Condiciones y nombramiento
 de los funcionarios.- Toma de posesión.
-Artículo 1º.- El Cuerpo Consular de la República
-se compone de:
+ARTICULO 1º.- El Cuerpo Consular de la República se compone de:
 Cónsules Generales,
 Cónsules,
 Vicecónsules y

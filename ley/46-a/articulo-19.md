@@ -1,4 +1,4 @@
-Artículo 19.- Todo funcionario consular debe considerar, como deber
+ARTICULO 19.- Todo funcionario consular debe considerar, como deber
 ineludible, el comunicar oportunamente a la Secretaría de Relaciones
 Exteriores, cuanto ocurra en el distrito o llegue a su conocimiento, que
 pueda interesar significativamente a la agricultura, al comercio, al

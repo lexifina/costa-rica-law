@@ -1,6 +1,6 @@
 CAPITULO X
 De la expedición de documentos consulares
-Artículo 69.- Los Cónsules sólo expedirán los documentos y papeles
+ARTICULO 69.- Los Cónsules sólo expedirán los documentos y papeles
 que en debida forma soliciten los particulares, los pidan sus superiores
 o los prescriba la ley. Cuando un capitán de buque u otra persona
 nacional o extranjera se niegue a recibir papeles o documentos prescritos

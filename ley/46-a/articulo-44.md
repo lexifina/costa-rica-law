@@ -1,4 +1,4 @@
-Artículo 44.- Tienen también autorización los Cónsules de la
+ARTICULO 44.- Tienen también autorización los Cónsules de la
 República para intervenir como árbitros, peritos y amigables
 componedores, en diferencias entre personas que, aunque no sean
 costarricenses, litiguen sobre asuntos comerciales, industriales,

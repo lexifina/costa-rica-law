@@ -1,4 +1,4 @@
-Artículo 49.- Falleciendo en un distrito consular un súbdito
+ARTICULO 49.- Falleciendo en un distrito consular un súbdito
 costarricense ab-intestado, sin hallarse presentes heredero conocido ni
 representante legal de éste o de la familia del difunto, el Cónsul
 practicará todo lo necesario para el sepelio, funerales y demás,

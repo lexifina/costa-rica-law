@@ -1,4 +1,4 @@
-Artículo 51.- Si entre lo inventariado se hallasen libros de
+ARTICULO 51.- Si entre lo inventariado se hallasen libros de
 comercio o de cualquiera otra clase en que se relacionen actos
 comerciales o privados que pudiesen afectar el activo o pasivo de la
 herencia, se cerrarán, mediante diligencias que extenderá, firmará y

@@ -1,4 +1,4 @@
-Artículo 96.- Si por circunstancias imprevistas o casos de fuerza
+ARTICULO 96.- Si por circunstancias imprevistas o casos de fuerza
 mayor, un Cónsul de la República se viese obligado a abandonar su puesto,
 deberá hacer entrega del archivo y documentos al Vicecónsul; pero si no
 lo hubiere o habiéndole se encontrase en iguales circunstancias que el

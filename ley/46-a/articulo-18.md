@@ -1,6 +1,6 @@
 CAPITULO IV
 De los Cónsules
-Artículo 18.- Los funcionarios consulares están obligados a
+ARTICULO 18.- Los funcionarios consulares están obligados a
 proporcionar a las Legaciones de la República todos los informes que
 éstas les pidan y deben poner en conocimiento de la Secretaría de
 Relaciones Exteriores todo hecho de carácter político que pueda interesar

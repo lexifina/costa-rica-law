@@ -1,4 +1,4 @@
-Artículo 56.- Si antes de ponerse los bienes de un intestado a
+ARTICULO 56.- Si antes de ponerse los bienes de un intestado a
 disposición de la Secretaría de Relaciones Exteriores, compareciese el
 heredero o herederos, por sí o por legítimo representante o apoderado,
 haciendo constar debidamente sus derechos hereditarios, cesará la
