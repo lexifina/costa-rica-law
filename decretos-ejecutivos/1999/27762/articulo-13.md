@@ -1,0 +1,2 @@
+Artículo 13.—El pago del impuesto a que se refiere el presente Reglamento, deberá hacerse en las oficinas del Banco Central de Costa Rica o del que actúe como Cajero, debiendo utilizarce los formularios que para dicho propósito autorice el Teatro Nacional.
+Los contribuyentes domiciliados fuera de San José podrán pagar el valor del impuesto, en cualquiera de las tesorerías auxiliares designadas por el Banco Central de Costa Rica.

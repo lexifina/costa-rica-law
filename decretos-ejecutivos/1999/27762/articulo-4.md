@@ -1,0 +1,6 @@
+Artículo 4°—La Dirección General de la Tributación Directa actuará como Administración Tributaria de este impuesto y el Teatro Nacional actuará como órgano auxiliar de la misma en la gestión de fiscalización, administración, recaudación y distribución del Impuesto sobre Espectáculos Públicos.
+Para tales efectos, el Teatro Nacional podrá:
+a) Establecer mecanismos de fiscalización antes o durante la realización o presentación de los espectáculos públicos y las diversiones. Para tales efectos los fiscales del Teatro Nacional tendrán libre acceso a los lugares donde se realicen dichas actividades.
+b) Requerir a cualquier persona natural o jurídica, que cumpla con su obligación tributaria dentro del plazo señalado en el artículo 10 de este Reglamento.
+c) Cerciorarse de la veracidad del contenido de la información suministrada por el contribuyente por los medios y procedimientos de análisis e investigación legales que estime convenientes, a efecto de determinar la verdadera magnitud del hecho imponible y el tributo correspondiente.
+d) Organizar y gestionar el cobro administrativo del tributo; llevar un registro de contribuyentes ocasionales y permanentes en donde se detalle los montos cancelados y el pendiente de cobro.

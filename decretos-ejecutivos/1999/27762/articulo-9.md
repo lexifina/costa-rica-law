@@ -1,0 +1,1 @@
+Artículo 9°—Los contribuyentes están obligados a presentar toda la información necesaria para hacer la determinación del impuesto, de conformidad con los formularios que suministrará la Fiscalía de Espectáculos Públicos del Teatro Nacional.

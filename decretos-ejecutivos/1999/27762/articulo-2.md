@@ -1,0 +1,2 @@
+Artículo 2°—En lo que respecta a la Región Central del país, son beneficiarios de este impuesto: el Teatro Nacional, la Compañía Nacional de Teatro, el Museo de Arte Costarricense y los programas juveniles de la Orquesta Sinfónica Nacional, correspondiéndoles de la recaudación de este tributo una proporción del 50%, 30%, 10% y 10% respectivamente.
+En las restantes regiones el impuesto se pagará a favor de las Municipalidades, las cuales destinarán el 50% de esos ingresos para programas culturales, y el otro 50% para programas deportivos en el respectivo cantón.

@@ -1,0 +1,1 @@
+Artículo 18.—En caso de evasión del impuesto y de conformidad con lo que establece el artículo 3° de la ley 5780 del 11 de agosto de 1975, el contribuyente deberá cancelar una multa de diez veces el monto de este impuesto.

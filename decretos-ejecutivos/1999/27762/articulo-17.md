@@ -1,0 +1,3 @@
+Artículo 17.—Sin necesidad de actuación alguna de la Administración Tributaria, el pago efectuado fuera de término, produce la obligación a cargo del sujeto pasivo, de pagar junto con el tributo adeudado, un interés sobre el saldo adeudado, transcurrido desde la fecha en que debió pagarse el impuesto hasta el día en que se cancele efectivamente el tributo.
+La tasa de interés será la que haya fijado la Administración Tributaria en los términos que estipula el artículo 57 del Código de Normas y Procedimientos Tributarios.
+La mora en el pago será penada con un recargo del 1 % por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación, hasta la fecha del pago efectivo del tributo.

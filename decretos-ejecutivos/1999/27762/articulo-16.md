@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de las obligaciones contempladas en este Decreto se sancionarán de conformidad con lo que establece el Título III de la Ley No 4755 de 3 de mayo de 1971, y sus reformas, Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,5 @@
+Artículo 3°—Son contribuyentes de este impuesto las personas físicas o jurídicas propietarias, arrendatarias y/o usuarias de los locales dedicados a la presentación de los espectáculos y diversiones indicados en el artículo 1°, y las personas físicas o jurídicas, que contraten la presentación en Costa Rica de espectáculos y diversiones, de carácter nacional o internacional, aún cuando realicen su actividad eventualmente.
+Son responsables solidarios:
+a) Los empresarios que permanentemente explotan el negocio de espectáculos públicos, cuando hayan cedido a título oneroso, el uso o disfrute eventual de las instalaciones a un tercero que va a continuar su explotación.
+b) Los dueños de locales, lotes o terrenos, cuando a título oneroso lo ceden eventualmente para la realización de diversiones o espectáculos-públicos gravados.
+c) Los apoderados, directivos y/o representantes de toda persona física o jurídica obligada a pagar este tributo, serán responsables en lo personal, por las acciones o las omisiones establecidas en la Ley de Espectáculos Públicos y en este Reglamento. Tal responsabilidad no se presume, y por tanto, está sujeta a la debida demostración.

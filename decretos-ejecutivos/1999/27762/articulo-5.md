@@ -1,0 +1,1 @@
+Artículo 5°—Las municipalidades podrán colaborar con el Teatro Nacional, para que previo a otorgar los respectivos permisos de funcionamiento de los espectáculos públicos y diversiones, requiera de los interesados la presentación de una constancia expedida por el Teatro Nacional, de estar al día en el pago del impuesto que percibe esa Dependencia.

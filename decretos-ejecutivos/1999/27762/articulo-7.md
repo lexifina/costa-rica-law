@@ -1,0 +1,1 @@
+Artículo 7°—La tarifa para todos los espectáculos públicos y diversiones será del 6% en todo el país, exceptuando los cines situados en los distritos de cantones que no son cabecera de provincia, que pagarán un 3%.

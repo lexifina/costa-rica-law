@@ -1,0 +1,1 @@
+Artículo 8°—Toda persona o empresa que se dedique habitualmente a la presentación de espectáculos gravados, está obligada a llevar un registro diario, en el cual se anotarán todos los ingresos percibidos por cada espectáculo y el número de valores de boletas o entradas vendidas, que deberán tener a la disposición de los fiscales de espectáculos públicos, en todo momento.
