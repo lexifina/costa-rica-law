@@ -1,0 +1,1 @@
+Transitorio III.- El personal que actualmente labora en la Dirección de Arquitectura Escolar y Construcciones pasará en su totalidad al Ministerio de Obras Públicas y Transportes y mantendrá en un todo sus derechos laborales.
