@@ -1,0 +1,2 @@
+VII- | Pedidos en Tránsito.
+Art. 60 | En los documentos que se relacionen con los Pedidos en tránsito debe quedar perfectamente definido el tipo de material que se va a importar. Debe establecerse claramente si el material es activo mediante la consulta al Manual de Clasificación, y así se debe indicar en todos los documentos del P. en T., especialmente en la SOLICITUD DE MAQUINARIA, EQUIPO Y MATERIALES.

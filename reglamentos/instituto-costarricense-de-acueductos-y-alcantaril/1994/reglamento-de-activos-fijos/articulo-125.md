@@ -1,0 +1,1 @@
+Art. 125 | El Departamento de Administración de Activos Fijos procederá al descargo definitivo en los inventarios y al usuario, cuando procese el informe del movimiento contable mensual que emite contabilidad, que incluye el registro del descargo contable.

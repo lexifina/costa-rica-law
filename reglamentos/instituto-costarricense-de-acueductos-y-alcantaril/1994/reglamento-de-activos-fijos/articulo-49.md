@@ -1,0 +1,2 @@
+V- | Responsabilidades de quién retira activos.
+Art. 49 | El funcionado que retire activos directamente de Almacenes, es quién debe verificar que tanto en el RAD como el VALE, se anote correctamente el código contable y todas las características que permitan identificar sin lugar a dudas, el activo de que se trate. También debe verificar que el código anotado en los documentos sea el mismo que se imprimió en la placa respectiva.

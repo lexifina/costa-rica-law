@@ -1,0 +1,1 @@
+Art. 27 | En las Oficinas Regionales del Instituto, deberán existir funcionarios responsables de realizar estos trámites cuando los activos sean adquiridos en casas comerciales de la zona y de solicitar el código y placa correspondiente. En todo caso deberán enviarse los documentos a los Almacenes, inmediatamente.

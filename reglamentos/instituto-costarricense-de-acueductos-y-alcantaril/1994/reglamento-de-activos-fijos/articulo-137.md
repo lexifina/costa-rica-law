@@ -1,0 +1,1 @@
+Art. 137 | Si al llenar los formularios, se evidencia que algunas casillas no pueden llenarse porque por la naturaleza del activo se carece de algunos datos, se debe anotar en la casilla que corresponda la siguiente nota: "NO TIENE". Por ejemplo: el modelo o número de serie de mobiliario fabricado en la Institución o el número de serie de los muebles comprados.

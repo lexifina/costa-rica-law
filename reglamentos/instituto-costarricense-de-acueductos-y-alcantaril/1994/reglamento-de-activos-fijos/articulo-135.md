@@ -1,0 +1,1 @@
+Art. 135 | Todas las dependencias que a pesar de lodo procesen formularios incompletos, serán los responsables por los registros mal efectuados (Contables y de Inventario), así como de cualquier problema que tengan las demás dependencias, en la localización e identificación de los activos en los registros contables, inventarios y en el control de Vales.

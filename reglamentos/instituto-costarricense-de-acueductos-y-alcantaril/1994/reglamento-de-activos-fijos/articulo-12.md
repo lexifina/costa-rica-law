@@ -1,0 +1,1 @@
+Art. 12 | Si no existe contenido, el formulario es devuelto a la unidad solicitante, quien deberá pedir la modificación presupuestaria correspondiente ante Departamento de Presupuesto, si la necesidad del activo es inaplazable. Luego de esto, debe realizar de nuevo el trámite.

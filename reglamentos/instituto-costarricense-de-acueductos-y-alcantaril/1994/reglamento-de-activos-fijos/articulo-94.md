@@ -1,0 +1,2 @@
+IV- | Movilización de los activos por prestamos provisionales emergentes. Traspaso de Activos entre Dependencias.
+Art. 94 | Cuando por una emergencia sea necesario el préstamo de activos fijos a entre dependencias por tiempo indefinido, se debe dar aviso de inmediato al Depto. de Admón. de Activos Fijos para que se anote la información en los sistemas de control, y para que de realizarse un inventario en ese momento, se tome en cuenta la ubicación provisional de esos activos fijos.

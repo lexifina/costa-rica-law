@@ -1,0 +1,1 @@
+Art. 14 | El Departamento de Adquisiciones de la División de Suministros, recibe la Solicitud de Equipo y materiales y procede a realizar las gestiones administrativas necesarias para la compra, según sea el caso:

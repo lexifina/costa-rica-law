@@ -1,0 +1,1 @@
+Art. 31 | Los encargados de caja chica, no deben girar dinero para la adquisición de materiales, sin antes consultar el manual de Clasificación, y bajo ninguna circunstancia continuar el trámite cuando, a pesar de lodo, reciban solicitudes de adelanto de dinero con el visto de las jefaturas.

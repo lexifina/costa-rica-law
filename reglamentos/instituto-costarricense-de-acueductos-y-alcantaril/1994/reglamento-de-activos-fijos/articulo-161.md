@@ -1,0 +1,1 @@
+Art. 161 | Realizar los inventarios generales son también responsabilidad del Depto. de Admón. de Activos Fijos, y los lleva a cabo cada seis meses de acuerdo con un plan de visitas preestablecido, en todas y cada una de las dependencias del Instituto.

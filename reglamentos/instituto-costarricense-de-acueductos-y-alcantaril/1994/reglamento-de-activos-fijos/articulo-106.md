@@ -1,0 +1,1 @@
+Art. 106 | Los resultados de la investigación deberán ser comunicados a la jefatura correspondiente, con copia al Departamento de Administración de Activos. Con base en lo anterior la jefatura Resolveré conforme a lo indicado en la resolución emanada por el Departamento de Relaciones Laborales.

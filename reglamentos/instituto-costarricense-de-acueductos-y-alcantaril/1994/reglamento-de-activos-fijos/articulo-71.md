@@ -1,0 +1,1 @@
+Art. 71 | El control administrativo general de los activos asignados a una dependencia, corresponde al jefe de la misma, debiendo éste establecerlo según su criterio y asumiendo toda la responsabilidad del caso. Así también deberá comunicar su decisión al Departamento de Administración de Activos, para que sea tomada en cuenta en los inventarios que se realicen.

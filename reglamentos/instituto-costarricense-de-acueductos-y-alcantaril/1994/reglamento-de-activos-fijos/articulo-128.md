@@ -1,0 +1,1 @@
+Art. 128 | Los funcionarios del Instituto no pueden ser responsables del activo y firmar autorizándose a sí mismo en el "Vale por Mobiliario y Equipo" y la Requisición (R.A.D.). En todo caso debe ser el superior inmediato quien autorice estos documentos

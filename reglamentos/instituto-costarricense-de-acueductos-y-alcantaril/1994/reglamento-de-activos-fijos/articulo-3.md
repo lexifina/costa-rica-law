@@ -1,0 +1,1 @@
+Art. 3 | Se entenderá por usuario de un activo, aquel funcionario de la Institución al cual se ha hecho entrega de un bien para su uso y cuya custodia está respaldada por el correspondiente vale de Mobiliario y Equipo.

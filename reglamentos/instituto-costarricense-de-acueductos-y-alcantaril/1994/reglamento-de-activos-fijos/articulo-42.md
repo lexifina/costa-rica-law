@@ -1,0 +1,2 @@
+III- | Confección de mobiliario por el Taller de Ebanistería.
+Art. 42 | Si una dependencia requiere que el Taller de Ebanistería le confeccione un mueble de madera, debe solicitar este trabajo al Departamento de Servicios Varios, por medio del formulario: SOLICITUD PARA LA CONFECCIÓN DE MOBILIARIO, acompañada por un memorando detallando claramente la justificación y especificaciones técnicas correspondientes. Lo mismo procede para la reparación de mobiliario.

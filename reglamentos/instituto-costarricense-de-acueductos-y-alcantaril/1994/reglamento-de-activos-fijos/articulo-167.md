@@ -1,0 +1,2 @@
+IV- | Categorías de vales.
+Art. 167 | Los vales ingresan al Depto. de Admón. de Activos Fijos e inmediatamente se les coloca el sello de recibido con lecha del día y se separan de acuerdo a su categoría. 1a categoría: Vales por traspasos entre usuarios Vales por traspaso entre dependencias Vales por reasignación de activos. Memorandos por descargo de activos. 2a categoría: Vales por activos nuevos.

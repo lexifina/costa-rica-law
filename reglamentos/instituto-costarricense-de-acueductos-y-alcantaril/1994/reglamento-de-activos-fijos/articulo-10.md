@@ -1,0 +1,1 @@
+Art. 10 | El Departamento de Presupuesto recibe el formulario: Solicitud de Maquinaria, Equipo y Materiales y procede a verificar, según la unidad que solicite, la existencia de contenido presupuestario para la adquisición del activo.

@@ -1,0 +1,1 @@
+Art. 40 | El Departamento de Administración de Activos recibe el Reporte de Activos Fijos mensual y las fotocopias de los documentos de soporte, procede a verificar la información en ellos contenida y la incluye en las bases de datos del Sistema de Inventarios.

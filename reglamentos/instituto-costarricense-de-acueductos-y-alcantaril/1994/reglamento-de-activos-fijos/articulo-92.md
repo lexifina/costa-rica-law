@@ -1,0 +1,1 @@
+Art. 92 | Cuando el traslado es definitivo, debe comunicarse al Departamento de Administración de Activos el cambio de oficina, para que se corrija el número de dependencia en el vale respectivo y en las bases de datos.

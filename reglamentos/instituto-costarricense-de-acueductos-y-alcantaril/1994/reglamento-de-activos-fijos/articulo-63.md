@@ -1,0 +1,1 @@
+Art. 63 | Una vez verificado el contenido de las cajas, se procede a la codificación, plaqueo y confección del R.A.R y R.A.D. por parte de Almacenes, y a la confección del VALE por parte del funcionario de la dependencia solicitante.

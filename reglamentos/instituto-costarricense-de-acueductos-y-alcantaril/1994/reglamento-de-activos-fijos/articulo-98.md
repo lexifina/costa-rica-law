@@ -1,0 +1,1 @@
+Art. 98 | El jefe es quien decide enviarlos al Depto. de Almacenes para su reasignación cuando no haya sustitución del funcionario ascendido o porque los activos ya no le sean necesarios o reasignarlos entre el resto del personal.

@@ -1,0 +1,1 @@
+Art. 26 | En ningún caso es responsabilidad de otras dependencias la codificación de un activo y la colocación de placas, labor que se debe realizar en coordinación con el Dpto. de Admon. De Activos Fijos.

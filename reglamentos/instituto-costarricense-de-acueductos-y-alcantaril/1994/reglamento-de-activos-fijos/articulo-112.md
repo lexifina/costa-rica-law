@@ -1,0 +1,1 @@
+Art. 112 | Si el Activo dañado puede repararse, la jefatura responsable se comunica con el Departamento de Servicios Generales, el cual determina si procede la reparación en los Talleres de A y A, o bien efectuar la contratación respectiva para su reparación.

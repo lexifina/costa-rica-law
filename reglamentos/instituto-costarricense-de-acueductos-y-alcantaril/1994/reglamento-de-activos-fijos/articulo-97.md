@@ -1,0 +1,2 @@
+V- | Traspaso, reasignación, custodia o devolución de activos.
+Art. 97 | Cuando un funcionario sea ascendido o trasladado a otra unidad y sus nuevas funciones le imponen el uso de activos fijos diferentes a los que usaba los activos que deja deben reasignarse al funcionario que lo sustituya o en su defecto, al jefe de la dependencia, en forma transitoria cuando no exista reemplazo inmediato del funcionario.

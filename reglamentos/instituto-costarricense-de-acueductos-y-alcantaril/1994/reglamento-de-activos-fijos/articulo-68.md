@@ -1,0 +1,1 @@
+Art. 68 | Todo trabajador tiene derecho a recibir en calidad de préstamo por tiempo indefinido y en buenas condiciones de funcionamiento y conservación, los activos fijos necesarios para el cumplimiento de sus labores, asumiendo la obligación de hacer uso adecuado de los mismos. Con base en estas premisas se establece el contenido de los siguientes artículos:

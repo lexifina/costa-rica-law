@@ -1,0 +1,1 @@
+Art. 89 | El Departamento de Administración de Activos cambiará nombres y dará números de oficina a las nuevas dependencias, los cuales anotará en los vales correspondientes, procediendo de inmediato a actualizar la base de datos.

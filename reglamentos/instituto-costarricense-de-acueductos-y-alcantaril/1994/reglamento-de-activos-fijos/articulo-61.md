@@ -1,0 +1,1 @@
+Art. 61 | Tanto el Departamento de Presupuesto como el de Suministros, deben a su vez verificar que en los documentos que tramiten y confeccionen, dicha información este anotada correctamente. Este procedimiento le permitirá al Departamento de Almacenes, conocer de antemano el contenido de las cajas selladas en que reciban los activos importados.

@@ -1,0 +1,1 @@
+Art. 114 | Si Servicios Generales considera que no es rentable reparar el activo o que este no puede ser reparado, deberá informarle al interesado. Posteriormente ésta dependencia tramita la demolición del activo previa autorización escrita de la Auditoria con copia al Departamento de Contabilidad y al Departamento de Administración de Activos Fijos.

@@ -1,0 +1,1 @@
+Art. 150 | Los Vales por Equipo y Mobiliario deben numerarse en forma consecutiva, anotando el número en todas sus copias. Dicha numeración y control de la misma, corresponde al Departamento de Administración de Activos Fijos.

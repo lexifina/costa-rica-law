@@ -1,0 +1,1 @@
+Art. 85 | Es responsabilidad de los jefes inmediatos velar porque se le reintegre a la Institución el valor de la reparación de daños y el costo de reposición de activos que no aparecen, en el caso que nos ocupa.

@@ -1,0 +1,1 @@
+Art. 23 | Es responsabilidad del Departamento de Almacenes, mantener los controles de numeración consecutiva según clases y tipos de activos, confeccionar la placa de identificación y colocarla en el activo despachado.

@@ -1,0 +1,1 @@
+Art. 16 | Si el valor de lo solicitado es entre í 1 y 5 Millones el asunto se envía a LICITACIONES, para la apertura de una Licitación Privada, para la tramitación de ofertas, adjudicación y confección de la Orden de Compra correspondiente.
