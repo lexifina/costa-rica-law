@@ -1,0 +1,2 @@
+Artículo 2°—Modifíquese el párrafo primero del artículo 1° del Decreto Ejecutivo número 10035-G, "La Gaceta" número 100 del 30 de mayo de 1979, para que en adelante se lea así:
+"Las escrituras de compra de mejoras o de fincas, serán efectuadas por la Comisión de Emergencia Nacional Reservas Indígenas, CENRI, según su procedimiento usual; firmarán el Presidente, el Tesorero y el Secretario de la Comisión; las escrituras serán luego validadas por el Procurador Agrario de la República, quien le dará también trámite a todas las escrituras anteriores".

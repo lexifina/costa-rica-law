@@ -1,0 +1,1 @@
+Artículo 3°—Las fincas compradas directamente por el ITCO o la CONAI en reservas indígenas, serán parceladas conforme a las disposiciones del artículo 9° del decreto número 9306-G y del artículo 2° del decreto número 10035-G.
