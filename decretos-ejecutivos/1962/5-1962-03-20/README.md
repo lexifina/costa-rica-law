@@ -14,3 +14,4 @@ Reglamento de la Ley reguladora de las relaciones entre productores e industrial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1962-03-22 | la propia norma |
+| 2 | 1966-10-05 | Decreto Ejecutivo 10 (1966-10-05) |
