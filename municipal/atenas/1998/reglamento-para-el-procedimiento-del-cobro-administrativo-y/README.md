@@ -17,3 +17,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial.
 | 2 | 1999-03-01 | Reglamento municipal 64 (1999-03-01) |
 | 3 | 2000-08-10 | Reglamento municipal 160 (2000-08-10) |
 | 4 | 2000-08-10 | Ley 8 |
+| 5 | 2003-08-05 | Reglamento municipal 99 (2003-08-05) |
