@@ -1,0 +1,1 @@
+2º—En el caso de los vendedores estacionarios los lugares serán indicados por sorteo, y en el de los vendedores ambulantes la Municipalidad fijará la ruta. Para ambos se fijara día y hora para el sorteo o adjudicación en su caso con participación de todos los solicitantes que hayan calificado al momento, conforme a un plano elaborado para tal fin.

@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad fomentará y colaborará en la formación de cooperativas de vendedores, y a la vez iniciará los estudios necesarios y coordinará junto con otras instituciones a fin de lograr soluciones alternativas a los vendedores.
