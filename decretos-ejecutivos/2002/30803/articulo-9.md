@@ -1,0 +1,2 @@
+Artículo 9º—Funcionamiento de la Comisión de Negociación de la Deuda Interna. La Comisión de Negociación de la Deuda Interna, es un órgano colegiado que funcionará siguiendo los procedimientos que acuerde y serán de aplicación supletoria, las disposiciones de la Ley General de la Administración Pública en lo que le sea aplicable.
+La base técnica para la toma de decisiones de la Comisión estará constituida por los estudios técnicos que elabore la Tesorería Nacional en coordinación con las entidades correspondientes.

@@ -1,0 +1,1 @@
+Artículo 5º—Base de Referencia. La base de referencia para la refundición, renegociación, condonación o redención anticipada de títulos de gobierno, será el principal más los intereses devengados a la fecha de la respectiva transacción.
