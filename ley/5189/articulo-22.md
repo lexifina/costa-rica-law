@@ -1,10 +1,8 @@
-CAPITULO CUARTO
-De la disolución de la Asociación
-Artículo 22.- La Asociación se disolverá cuando tal acuerdo se tome
-con el voto afirmativo de las tres cuartas partes de los miembros de la
-Asamblea Nacional, reunida en sesión extraordinaria y especialmente
-convocada al efecto por lo menos con un mes de anticipación por los
-medios que se especifican en el artículo 10, pero publicando los avisos
-por tres veces con intervalos de ocho días entre uno y otro. El término
-de un mes a que se alude, empezará a correr a partir de la primera
-publicación.
+ARTICULO 22.- Las facultades, derechos, obligaciones y deberes de
+cada uno de los miembros de los órganos de la Asociación que se crean por
+la presente ley y los que lleguen a crearse con arreglo al P.O.R., serán
+especificados en el tanto en que no lo hace esta ley y sin que pueda
+excederse a las limitaciones que ésta fija, en los reglamentos interiores
+de la Asociación (P.O.R.).
+(Así modificada su numeración por el artículo 1º de la ley No.5894
+de 12 de marzo de 1976, que lo traspasó del antiguo 21 al 22)
