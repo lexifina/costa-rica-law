@@ -13,3 +13,4 @@ Obligación de cumplir con la ley N° 7600 Ley de Igualdad de Oportunidades para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-18 | la propia norma |
+| 2 | 2004-07-07 | Circular 89 (2004-07-07) |
