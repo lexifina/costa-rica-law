@@ -1,2 +1,2 @@
-Artículo 4.—Corresponderá al Ministro de Relaciones Exteriores y Culto decidir en cuales plazas desempeñarán funciones los aspirantes al ingreso durante el período de prueba de un año establecido en el Estatuto del Servicio Exterior.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 de 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)
+Artículo 4.—La Comisión Calificadora del Servicio Exterior organizará y calificará los concursos de oposición para el ingreso a la carrera del Servicio Exterior de la República, de conformidad con el artículo 15 del Estatuto del Servicio Exterior de la República.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

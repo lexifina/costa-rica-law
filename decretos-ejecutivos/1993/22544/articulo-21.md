@@ -1,4 +1,2 @@
-CAPITULO IV
-DEL SALARIO
-Artículo 21.—La renumeración del funcionario nombrado de conformidad con el procedimiento de concurso no podrá ser variada en su perjuicio durante el período de prueba.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 del 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)
+Artículo 21.—El período de prueba no podrá ser interrumpido salvo por lo establecido en los artículos 11 y 42 del Estatuto del Servicio Exterior de la República. Los funcionarios en período de prueba tendrán los mismos derechos y deberes establecidos en el Estatuto para los funcionarios de la carrera del Servicio Exterior.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

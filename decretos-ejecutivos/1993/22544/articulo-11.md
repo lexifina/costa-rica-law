@@ -1,2 +1,2 @@
-Artículo 11.—Los aspirantes autorizarán por escrito a la Comisión Calificadora para que realice todas las indagaciones que considere oportunas sobre sus antecedentes.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 del 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)
+Artículo 11.—Los exámenes escritos deberán ser, con excepción de los correspondientes a idioma y a redacción y ortografía castellanas, de respuesta única, mediante la utilización de las modalidades de selección de respuesta correcta, asociación, falso o verdadero, completar espacios en blanco u otras similares, que aseguren la objetividad en las calificaciones.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

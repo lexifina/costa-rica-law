@@ -1,1 +1,2 @@
-Artículo 22.—Cuando un funcionario de carrera, en virtud del principio de traslado, sea asignado a un nuevo destino, mantendrá un salario que le permita conservar, a él y su familia, un nivel de vida decoroso y acorde con la. dignidad diplomática de tal modo que la imagen y buen nombre de la República no se vean desmejorados.
+Artículo 22.—El aspirante que por la índole de la plaza sea nombrado con una categoría superior a la de Agregado, no adquiere ningún derecho para ingresar a la carrera en una categoría superior a la sétima.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)

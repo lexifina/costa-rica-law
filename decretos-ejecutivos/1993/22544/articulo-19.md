@@ -1,2 +1,4 @@
-Artículo 19.-El aspirante que por la índole de la plaza sea nombrado con una categoría superior a la de Agregado, no adquiere ningún derecho para ingresar, a la carrera en una categoría superior a la sétima.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 25186 del 27 de mayo de 1996, publicado en La Gaceta N° 106 del 04 de junio de 1996)
+CAPITULO III
+Condiciones Laborales de los Funcionarios en Período de Prueba
+Artículo 19.- Los aspirantes a ingresar a la carrera del Servicio Exterior una vez seleccionados por el Ministro de Relaciones Exteriores y Culto, serán nombrados por el Poder Ejecutivo en período de prueba en el servicio interno, según lo dispone el artículo 16 del Estatuto del Servicio Exterior de la República y considerando la disponibilidad de plazas en el Ministerio. De acuerdo con lo establecido en el artículo 8 del Estatuto, en caso de existir inopia de funcionarios de carrera en alguna de las sedes diplomáticas o consulares, el funcionario podrá ser destinado para realizar su año de prueba en el servicio diplomático o consular, siempre que cumpla con el perfil académico y profesional del puesto que desempeñará.
+(Así REFORMADO TOTAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 28821 del 31 de julio del 2000, publicado en La Gaceta N° 152 del 09 de agosto del 2000.)
