@@ -1,0 +1,2 @@
+Transitorio 2º—Para la presentación de los certificados de cumplimiento a que se refiere el artículo Nº 2 del presente Decreto, los importadores tendrán un plazo máximo de seis meses, contados a partir de la fecha de vigencia de este decreto, para su aportación obligatoria en el cumplimiento de los trámites correspondientes.
+Dado en la Presidencia de la República.—San José, a los veintiocho días del mes de octubre de mil novecientos noventa y nueve.

@@ -1,0 +1,1 @@
+Artículo 9º—El propietario del vehículo automotor al que se le confeccionó la boleta de citación por infracción a lo dispuesto en los artículos 131f y 144 c. De la Ley de Tránsito contará con un plazo de ocho días hábiles para que el vehículo sea reparado y posteriormente ser verificado en el lugar que se indique al efecto. Lo anterior no autoriza su circulación normal.

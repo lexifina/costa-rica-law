@@ -1,0 +1,1 @@
+Artículo 7º—Todo vehículo automotor provisto con motor de diesel para los efectos de la circulación en el territorio nacional se regirá de acuerdo con lo establecido en el Artículo 35 de la Ley de Tránsito y sus reformas.
