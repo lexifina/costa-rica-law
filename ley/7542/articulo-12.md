@@ -1,0 +1,7 @@
+ARTICULO XII
+Las Partes Contratantes adoptarán las medidas que fueren necesarias
+para la rápida tramitación entre sus respectivas autoridades judiciales,
+de cartas rogatorias relacionadas con procesos seguidos por tráfico
+ilícito de estupefacientes y sustancias psicotrópicas, precursores y
+productos químicos específicos, según los delitos tipificados en los
+ordenamientos jurídicos internos de cada Parte Contratante.
