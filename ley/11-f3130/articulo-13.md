@@ -1,5 +1,2 @@
-Artículo 13.-El contrato de seguro sobre construcciones no podrá celebrarse en ningún caso por una cantidad mayor al valor con el cual éstas aparezcan declaradas en las Oficinas de la Tributación Directa.
-Las cosas aseguradas cuyo pleno valor está a cubierto por un primer aseguro, no podrán ser objeto de nuevos aseguro s por los mismos riesgos y en favor de la misma persona.
-La pérdida total o parcial se repartirá entre los diversos aseguradores en proporción a las cantidades aseguradas por cada uno de ellos.
-Cuando no cubra el seguro o seguros sino una parte del valor del objeto asegurado, se reputará el asegurado como asegurador del resto del valor.
-Si se hiciere un nuevo contrato de aseguro deberá declararse la existencia del anterior o anteriores que hubiere, so pena de nulidad del que se hiciere. Igualmente habrá de ponerse en conocimiento de los aseguradores anteriores el nuevo contrato, con toda diligencia, bajo la pena de que en caso de siniestro perderá el asegurado todo derecho a indemnización por parte del asegurador a quien no se hubiere dado el aviso dicho.
+Artículo 13.-Las cosas aseguradas cuyo pleno valor se encuentre cubierto por un primer seguro, no podrán ser objetos de nuevos seguros por los mismos riesgos y en favor de la misma persona.
+(Así reformado por el artículo 1° de la ley N° 5279 del 27 de julio de 1973)
