@@ -1,0 +1,2 @@
+Art. 6° El muelle de Puntarenas es una dependencia de la Aduana de aquel Puerto, siendo por tanto su Jefe el Administrador, quien queda encargado de reglamentar y establecer lo conveniente á la conservacion de dicho muelle y al mejor y mas espedito recibo y despacho de las mecaderías prévia a probacion del Ejecutivo.
+-Dado en el Palacio Na. cional, en San José, á los veinte y nueve dias del mes de Setiembre de mil ochocientos setenta y uno. Tomas Guardia. -El Secretario de Estado en los Despachos de Hacienda y Comercio, S. Gonzalez, oto

@@ -1,0 +1,1 @@
+Art. 3° La recaudacion del impuesto de muelle, se practicará conforme á las disposiciones de los capítulos 8 y 9° de las Ordenanzas de Aduana de 26 de Octubre de 1866 y parte reglamentaria del Decreto número 5 de 15 de Mayo del corriente año, relativas á la exaccion de los derechos de Aduana y á la manera de efectuar la cancelacion de los adeudos.
