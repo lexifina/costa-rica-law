@@ -1,0 +1,1 @@
+Artículo 7°—Es prohibido para los arrendatarios el subarriendo, actos realizados un i lateral mente en perjuicio de los intereses municipales, dividir, gravar o dar en garantía el derecho de arriendo y cambiar sin autorización el destino o uso del local.

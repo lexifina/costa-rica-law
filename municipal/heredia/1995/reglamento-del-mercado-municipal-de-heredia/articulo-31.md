@@ -1,0 +1,1 @@
+Artículo 31.—Los arrendatarios deberán obtener autorización escrita del administrador del Mercado para trabajos relacionados con pintura y decoraciones de locales, asimismo para la colocación de rótulos, anuncios o cualquier otro tipo de propaganda.

@@ -1,0 +1,1 @@
+Artículos 30.—La Municipalidad podrá efectuar en cualquier momento inspecciones o revisiones en los focales y en general del espacio físico del Mercado a fin de comprobar que se usan conforme con el contrato de arriendo y se cumple con las disposiciones de este reglamento.

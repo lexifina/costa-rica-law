@@ -1,0 +1,2 @@
+Articulo 15.—Según lo estipulado por las autoridades competentes, los arrendatarios de locales no pueden conservar por ningún motivo, sustancias inflamables tales como carburantes, explosivos en general, en caso específico de las sodas, es obligatorio que tengan los cilindros de gas debidamente protegidos y dentro de su local.
+Todo local comercial deberá tener un extinguidor según lo estipula el INS.

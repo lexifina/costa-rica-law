@@ -1,0 +1,1 @@
+Artículo 27.—El cambio de línea se entiende para efectos de este reglamento como la sustitución, modificación o ampliación que el arrendatario introduzca en un local a fin de vender un producto de naturaleza diferente al que está autorizado.

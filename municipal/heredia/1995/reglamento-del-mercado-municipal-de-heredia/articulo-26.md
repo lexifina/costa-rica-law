@@ -1,0 +1,1 @@
+Artículo 26.—El monto fijado en el artículos Nos. 10 y 25 pueden ser revisados y reajustados de acuerdo con la pérdida del valor adquisitivo de la moneda en el momento que así lo considere necesario el municipio.

@@ -1,0 +1,2 @@
+Artículo 11.—La contaduría municipal comunicará al Departamento de Rentas y Cobranzas de los locales atrasados con el pago de alquiler conforme al plazo que establece el artículo 9°.
+La Administración requerirá a los arrendatarios morosos para que cancelen la renta como fecha máxima el último día del mes en que debía cancelar. El requerimiento se comunicará por escrito en el tramo correspondiente. Pasado este tiempo la Contaduría comunicará a la Municipalidad los nombres de los inquilinos que continúan morosos, a fin de que la Corporación ejercite el desahucio pertinente.

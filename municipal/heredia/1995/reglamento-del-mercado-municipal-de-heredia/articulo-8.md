@@ -1,0 +1,2 @@
+Articulo 8°—La Municipalidad no tiene responsabilidad en cuanto a la conservación o seguridad de la mercadería y otros bienes, propiedad de los arrendatarios, así como de accidentes que sufran los usuarios dentro de las instalaciones. Pero velará por la seguridad de los bienes de los propietarios mientras el mercado permanezca cerrado y procurará el orden público mientras se encuentre abierto.
+Mantendrá una póliza vigente contra incendio, temblor y terremoto que proteja únicamente el inmueble.
