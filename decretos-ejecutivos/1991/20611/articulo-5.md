@@ -1,0 +1,1 @@
+Artículo 5°- Quienes pasen a ocupar los puestos comprendidos en la serie de Procurador, ya sea por nombramiento o por ascenso, en cumplimiento de lo dispuesto por el artículo 57 de la Constitución Política, tendrán derecho a recibir la remuneración establecida para los puestos de Procurador en los artículos anteriores.

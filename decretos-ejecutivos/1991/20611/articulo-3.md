@@ -1,0 +1,1 @@
+Artículo 3°- En lo relativo a los aumentos anuales, para los puestos de Procurador, estos continuarán siendo regidos por las disposiciones pertinentes de la Ley de Salarios de la Administración Pública.
