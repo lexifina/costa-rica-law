@@ -14,3 +14,4 @@ Reglamento para la Presentación de Planos Eléctricos y Trámites de Conexión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-07 | la propia norma |
+| 2 | 1997-01-07 | Ley 8 |
