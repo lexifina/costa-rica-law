@@ -1,7 +1,7 @@
 ARTICULO 22.- Todas las transacciones celebradas en el período de
-validez del presente Convenio y no ejecutadas integral o parcialmente a la
-fecha de vencimiento de este, seguirán sometiéndose a las disposiciones
-del presente Convenio.
+validez del presente Convenio y no ejecutadas integral o parcialmente a
+la fecha de vencimiento de este, seguirán sometiéndose a las
+disposiciones del presente Convenio.
 Firmado en San José, Costa Rica el doce de julio de mil novecientos
 noventa y uno, en cuatro ejemplares originales, dos en idioma Español y
 dos en idioma Rumano, teniendo cada uno el mismo valor.
