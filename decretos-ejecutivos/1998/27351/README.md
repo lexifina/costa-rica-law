@@ -14,3 +14,4 @@ Crea la Comisión Nacional de Desregulación.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-14 | la propia norma |
+| 2 | 2000-03-23 | Decreto Ejecutivo 28575 (2000-03-23) |
