@@ -1,0 +1,2 @@
+Artículo 9°-Serán competentes para imponer las sanciones previstas por este Decreto-Ley, los Agentes Principales de Policía y Jefes Políticos, cuando se tratare de castigar las infracciones a la misma, cometidas por particulares. Dichas autoridades conocerán a prevención.
+Cuando se tratare de infracciones a este Decreto-Ley por' parte de autoridades, corresponderá al superior inmediato de las mismas, aplicar la sanción del caso.
