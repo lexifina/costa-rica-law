@@ -1,0 +1,2 @@
+Artículo 7°.- El Director, quien tendrá categoría de Director General, dependerá del Director General de la División de Transporte y será responsable jerárquicamente ante él, en el desempeño de sus funciones
+Son atribuciones del Director General de Ferrocarriles, la formulación de las políticas generales a establecer para el funcionamiento eficiente del transporte ferroviario en el país, así como velar por el debido cumplimiento de las funciones encomendadas a la Dirección a su cargo.

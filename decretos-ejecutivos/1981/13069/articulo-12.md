@@ -1,0 +1,1 @@
+Artículo 12.- El Director tendrá la facultad de asignar nuevas funciones o complementar las asignadas a cada departamento, así como efectuar aquellos cambios que se requieren para mayor eficiencia de la Dirección

@@ -1,0 +1,1 @@
+Artículo 8°.- Del Director dependerán y serán responsables directamente el subdirector y los jefes de los departamentos que conforman la Dirección, en los cuales podrá delegar el desarrollo de las funciones y atribuciones que son propias de esta Dirección.
