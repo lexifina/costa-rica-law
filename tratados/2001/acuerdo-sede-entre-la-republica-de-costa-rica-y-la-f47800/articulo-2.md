@@ -1,0 +1,1 @@
+Artículo 2º—La firma y aplicación del Acuerdo Sede consignado en el artículo anterior, se hará por intermedio del Banco Central de Costa Rica, que será el agente y representante del Gobierno de la República en sus relaciones con la Corporación Andina de Fomento.
