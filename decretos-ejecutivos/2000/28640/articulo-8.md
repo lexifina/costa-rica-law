@@ -1,0 +1,8 @@
+Artículo 8º—La solicitud de crédito externo por parte de los ministerios, demás órganos y entidades públicas, deberá tramitarse de conformidad con lo dispuesto en el Decreto N° 20581 publicado en La Gaceta N° 151 de 12 de agosto de 1991, debiendo presentarse la solicitud respectiva ante la Dirección de Crédito Público, que para estos efectos funge como Secretaría Técnica del Consejo Nacional de Financiamiento Externo (CONAFE). Dicha solicitud deberá acompañarse de la siguiente documentación:
+a) Autorización por parte de MIDEPLAN del inicio de negociación y del proyecto de inversión, de conformidad con los artículos 9º y 10 de la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974.
+b) Borrador del contrato de préstamo; términos y condiciones financieras del crédito (tipo de operación, monto y moneda a contratar, tasa de interés, periodo de gracia y desembolso, tipo de garantía, comisiones y otros).
+c) Fundamento legal de la entidad para contratar créditos.
+d) Situación financiera del ente solicitante, capacidad de repago del préstamo, flujo de caja proyectado durante el periodo de amortización del mismo.
+e) Estudio de rentabilidad del Proyecto.
+f) Cuadro de avance físico y financiero de los proyectos en ejecución.
+CONAFE solicitará al BCCR, el dictamen a que hacen referencia los artículos 7° de la Ley Nº 7010 y 106 de la Ley Nº 7558 y lo enviará a la STAP acompañado de la recomendación y la documentación señalada en los incisos anteriores; esta preparará un informe técnico que se elevará para resolución de la AP, de conformidad con los artículos 10 de la Ley N° 6821 y 7° de la Ley N° 7010.

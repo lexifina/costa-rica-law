@@ -1,0 +1,1 @@
+Artículo 13.—Los ministerios incluirán en sus Anteproyectos de Presupuesto y las entidades públicas en sus documentos presupuestarios, únicamente programas y proyectos de inversión que cuenten con el visto bueno de MIDEPLAN. Cuando estos proyectos se financien con recursos externos, deberán también cumplir con lo estipulado en el artículo 9° anterior.
