@@ -1,3 +1,0 @@
-Interrogatorio de identificación
-Artículo 277.- Después de proceder conforme al artículo 189, el juez pedirá al imputado que le dé su nombre, apellido, o apodo, edad, estado y si fuere casado indicará el nombre del cónyuge, profesión u oficio, nacionalidad, lugar de nacimiento; además indicará domicilio, principales lugares de residencia anteriores y condiciones de vida; nombre, estado, profesión u oficio de los padres. Le solicitará también su cédula de identidad y si no la mostrare, pedirá la certificación de la misma al Registro Electoral.
-( Texto Modificado por Resolución de la Sala Constitucional No.1438-92 de las 15:00 horas del 2 de junio de 1992. )
