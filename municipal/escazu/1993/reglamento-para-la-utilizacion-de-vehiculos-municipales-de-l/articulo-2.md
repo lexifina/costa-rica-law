@@ -1,0 +1,1 @@
+Artículo 2°—Los vehículos de la Municipalidad de Escazú, llevarán permanentemente una placa especial con numeración oficial, en los lugares donde reglamentariamente deban colocarse y un distintivo visible en sus costados, mediante el cual se indique claramente el nombre de la entidad, con las excepciones que más adelante se indican.
