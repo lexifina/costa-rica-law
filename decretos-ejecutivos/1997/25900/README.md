@@ -14,3 +14,4 @@ Equipara con los de la educación formal regular estatal, según los niveles y m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-09 | la propia norma |
+| 2 | 2005-02-02 | Decreto Ejecutivo 32242 (2005-02-02) |

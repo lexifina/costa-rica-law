@@ -24,7 +24,7 @@ Colegio Internacional Canadiense | San José | Tres Ríos y Curridabat
 Colegio Cristiano Asambleas de Dios | San José | San José
 Colegio Bilingüe Santa Fe | Alajuela | Alajuela
 Sistema Educativo San Patricio | Alajuela | Grecia
-Escuela y Colegios Santa Fe Pacifico | Alajuela | Orotina
+* Sistema Educativo Santa Fe Pacific (* Así reformado por el artículo 1° del decreto ejecutivo N° 32242 del 2 de febrero del 2005) | Alajuela | Orotina
 Colegio Santa Margarita | Heredia | Belén
 West Collage y West Primary | San José | Escazú
 Escuela Academica de Costa Rica | Limón | Pococí
