@@ -1,0 +1,1 @@
+Artículo Nº 12.—Se nombrará dentro del jurado un secretario para llevar el control de las sesiones del Festival, recoger los resultados de cada sesión y proceder a preparar el informe por escrito. Llevar el control del tiempo en las exposiciones de cada concursante, etc.

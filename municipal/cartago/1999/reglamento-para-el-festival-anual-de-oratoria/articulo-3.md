@@ -1,0 +1,1 @@
+Artículo Nº 3º—Cada Centro Educativo enviará la lista de participantes, al Departamento de Secretaria de la Municipalidad , en la fecha que indicará la Comisión de Educación, en invitación enviada para este evento. Deberá inscribirse el nombre, edad, nivel académico y otro dato que la Comisión solicite.

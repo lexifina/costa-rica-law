@@ -1,0 +1,2 @@
+Artículo Nº 18.—Los participantes de este festival de primaria de segundo ciclo (cuarto, quinto y sexto) y secundaria deben prepararse en todos los temas, pues en la eliminatoria se rifará treinta minutos antes y le tocara exponer el tema adjudicado, en la final se volverán a rifar los temas y de modo que a cada participante le corresponda uno diferente al que trató en las eliminatorias.
+Los participantes de Kinder y primer ciclo de primaria podrán escoger un solo tema para las eliminatorias y otro diferente para la final.

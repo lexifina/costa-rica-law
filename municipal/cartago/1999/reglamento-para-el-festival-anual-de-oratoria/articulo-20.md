@@ -1,0 +1,1 @@
+Artículo Nº 20.—La Comisión de Educación fijará los días, las horas y el lugar, del Festival de Oratoria, además queda autorizada para realizar cambios de forma del presente Reglamento en las condiciones de calificación y otros aspectos para la realización del Festival, se deberá notificar con días diez hábiles de anticipación a todos los Centro Educativos de dichos cambios.

@@ -1,0 +1,1 @@
+Artículo Nº 13.—Se nombrará dentro del jurado un Presidente al cual le corresponde dirigir las sesiones, hará todo lo que normalmente realiza un Presidente en las organizaciones colegiadas y deliberantes. Abrirá y cerrará las sesiones de cada concurso. Declarará los resultados oficiales del festival. Hará oficialmente todas las observaciones necesarias en nombre del Jurado.
