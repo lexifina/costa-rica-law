@@ -1,0 +1,1 @@
+Artículo 7°—No se permite que personas ajenas al trabajo de los 4Ssabaneros se involucren en estos para evitar accidentes y a la persona que se, le llame la atención y no acate deberá ser sacado con la autoridad.

@@ -1,0 +1,1 @@
+Artículo 31.—Para el cumplimiento de las funciones a la ley N° 25 del 15 de julio de 1998, es competencia directa del Alcalde Municipal la designación de los Fiscales y así ratificado el Código Municipal N° 7794 en su artículo del Fiscal.

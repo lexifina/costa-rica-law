@@ -1,0 +1,1 @@
+Artículo 9°—Todo el personal que este en el toril deberá estar debidamente acreditado por la comisión Salvó el fiscal Municipal que se identificará con una autorización por escrito del Alcalde o un carnet, así mismo se identificará la Cruz Roja y Seguridad por sus respectivas entidades.

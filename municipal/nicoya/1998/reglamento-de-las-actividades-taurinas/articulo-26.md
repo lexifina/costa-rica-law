@@ -1,0 +1,1 @@
+Artículo 26.—-Cuando las corridas son para menores de edad estos deberán, presentar al fiscal una orden firmada por los padres donde le autoricen montar y debe ser autenticada por el comandante legal.
