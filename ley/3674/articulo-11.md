@@ -1,0 +1,1 @@
+Artículo 11.- El Director General presentará anualmente un informe general de actividades al Consejo Directivo, con cuya aprobación lo hará llegar al Ministro de la Presidencia. Rendirá además los informes parciales que le pida el Consejo.
