@@ -1,0 +1,2 @@
+Artículo 7.
+Queda convenido que la división territorial que se hace por este Tratado, en nada debe entenderse contrariado las obligaciones consignadas, ya sea en tratados políticos, ó en contratos de canalización ó de tránsito celebrados por parte de Nicaragua con anterioridad al conocimiento del presente convenio; y antes bien se entenderá, que Costa Rica asume aquellas obligaciones en la parte que corresponde á su territorio, sin que en manera alguna se contrarié el dominio eminente y derechos de soberanía que tiene en el mismo.
