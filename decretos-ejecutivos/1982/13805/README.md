@@ -12,3 +12,4 @@ Regula Venta de Artículos de Consumo Básico en Coto Brus y Corredores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-08-13 | la propia norma |
+| 2 | 1982-08-13 | Decreto Ejecutivo 14798 (1983-08-31) |
