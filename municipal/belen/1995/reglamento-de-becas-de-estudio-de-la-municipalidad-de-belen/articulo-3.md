@@ -1,1 +1,0 @@
-Artículo 3°-La adjudicación de becas corresponde al Concejo Municipal, previa recomendación no vinculante de la Comisión Municipal de Biblioteca, la cual será la encargada de preparar un estudio socioeconómico de los aspirantes a becas y de su núcleo familiar.

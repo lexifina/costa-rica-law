@@ -1,1 +1,0 @@
-Artículo 6°-El número de formularios a entregar quedará a discreción de la Comisión Municipal de Biblioteca, según indicación que le hará el Concejo Municipal, de acuerdo con las posibilidades económicas disponibles.
