@@ -1,0 +1,30 @@
+N° 22681
+EL PRESIDENTE DE LA REPUBLICA Y LOS MINISTROS DE LA PRESIDENCIA, DE HACIENDA, DE ECONOMIA, INDUSTRIA Y COMERCIO Y DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA
+Considerando:
+I.-Que es intención del Gobierno de la República, que las acciones de' las empresas subsidiarias de CODESA, Cementos del Pacífico, S. A. (CEMPASA), y Fertilizantes de Centroamérica (Costa Rica), S. A. (FERTICA), pasen a ser propiedad del mayor número posible de costarricenses, para que se cumpla el objetivo democratizador que inspiró la ley N° 7330.
+II.-Que se hace necesario, para promover una amplia concurrencia, facilitar la participación de los grupos y personas autorizadas por ley, en el proceso licitatorio. Por tanto,
+En uso de las facultades que les confieren los incisos 3) y 10) del artículo 140 de la Constitución Política de la República,
+DECRETAN:
+Artículo 1°- Refórmase el decreto ejecutivo número 22339-P-H-MEIC-MIDEPLAN, publicado en "La Gaceta" el día 28 de julio de 1993 y en lo correspondiente sus reformas, para que en lo sucesivo, los artículos que se citan se lean así:
+Exclusión por vinculación económica.
+Artículo 19.-1. No podrán participar dos o más grupos nacionales, sean personas físicas o jurídicas, si existe vinculación económica entre ellas.
+2. Hay vinculación económica entre sociedades mercantiles. entidades colectivas (sindicatos, asociaciones solidaristas, cámaras empresariales, asociaciones de pequeños productores agrícolas y pecuarios, asociaciones de desarrollo integral y asociaciones cooperativas), cuando coincidan en más de un cincuenta por ciento, según se trate, su capital social o sus asociados: Hay vinculación económica entre una persona jurídica y una persona física, cuando esta sea dueña de más del cincuenta por ciento de la entidad colectiva.
+3. Si se llegare a determinar que las mismas entidades o personas nacionales ofrecen comprar acciones en más de una de las categorías que señala el artículo 1°, inciso k) de la Ley que se reglamenta, por existir vinculación económica entre las personas o los grupos, se rechazará la oferta que hagan para adquirir la menor cantidad de acciones, y si son iguales, se escogerá aleatoriamente la categoría, si los intereses no la señalan.
+Exclusión por conflicto de intereses.
+Artículo 20.-1. No pueden participar en el proceso de venta de las acciones de
+CEMPASA y FERTICA, en cualesquiera de las etapas del proceso de venta de que se trate, incluyendo las que realice FINTRA, eventualmente, las personas físicas o jurídicas que se dediquen al mismo giro de las indicadas compañías, ya sea en su fase de fabricación, importación, exportación, venta o intermediación, financiera o comercial, según se trate, de los productos fabricados por las citadas subsidiarias de CODESA o de los servicios que presten.
+2. Si se llegare a determinar que personas físicas o jurídicas de las indicadas en los acápites anteriores, participan en el proceso de venta, se rechazarán sus ofertas.
+3. Quedan a salvo de la exclusión a que se refiere el acápite 1 de este artículo, las entidades, ya sean ellas sociales, mercantiles, cooperativas, asociaciones, sindicatos u otro tipo de organizaciones, formadas por trabajadores, estibadores, transportistas, agentes y representantes, y ellos mismos a título individual, cuando esas entidades o personas se hayan dedicado al giro comercial, como comisionistas, transportistas, agentes, distribuidores cargadores, vendedores o cualquier otra forma de relación según el caso, en virtud de contratos o convenios con CEMPASA y FERTICA o con terceros, pero, en todo caso, en relación con los productos fabricados por esas empresas.
+Documentos que deben acompañar a la oferta.
+Artículo 40.-1. En el sobre cerrado, junto con la oferta, se deberán acompañar los siguientes documentos:
+a. Constancia que demuestre que el oferente, se encuentra al día en sus obligaciones relativas al régimen de impuestos directos, expedida por la Dirección General de la Tributación Directa. Se exceptúan de esta disposición las entidades que por ley están exentas de este régimen tributario.
+b. Declaración jurada del oferente, donde manifiesta que él o la persona física o jurídica por la que ofrece, no se encuentra inhibida para participar en el proceso de compra de las acciones de CEMPASA y de FERTICA, de conformidad con el Capítulo III de este Reglamento.
+c. Declaración jurada del oferente donde haga constar que no se dedica al mismo giro económico de CEMP ASA o de FERTICA, según se trate, en los términos establecidos en el artículo 20 de este Reglamento.
+d. Declaración jurada del oferente donde haga constar que no se encuentra en una situación de vinculación económica, en los términos precisados en el artículo 19 de este Reglamento.
+e. La garantía de participación, de conformidad con las especificaciones del cartel.
+2. Tratándose de personas jurídicas interesadas en ofrecer comprar las acciones en venta, además de la documentación anterior deberán aportar con la oferta:
+a. Certificación notarial de la propiedad de las acciones, capital social de la empresa, fecha a partir de la cual se adquirió la condición de socio o asociado y su nacionalidad y el porcentaje de su participación en la entidad. Para el caso de sociedades mercantiles, si sus socios son a su vez, personas jurídicas, deberá aportar certificación que demuestre, en definitiva, quienes son las personas físicas que las integra.
+b. Certificación de la inscripción y personería de la entidad en el registro público correspondiente.
+c. Fotocopia certificada de su cédula jurídica.
+d. Tratándose de las organizaciones sociales de léi zona donde se encuentren ubicadas las plantas principales de las empresas, para hacer valer la prioridad en la adjudicación de acciones que la ley señala, deberán presentar una certificación notarial, indicando que cumplen con los requisitos señalados en el artículo 26 del presente Reglamento.
+e. Certificación notarial donde conste la identidad de los asociados o socios de la persona jurídica oferente, incluyendo nombre completo y número de cédula de identidad o jurídica.
