@@ -1,0 +1,1 @@
+Art. 5°-Los alumnos de los Institutos de enseñanza secundaria establecidos por las Municipalidades podrán incorporarse en los colegios de la Nación, en el curso que les corresponda, sin más requisito que la presentación de los certificados de exámenes, siempre que sus programas comprendan las mismas materias que los de los colegios nacionales.
