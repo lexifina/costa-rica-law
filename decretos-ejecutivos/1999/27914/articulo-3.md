@@ -1,0 +1,1 @@
+Artículo 3°—Derogúese el artículo 6° del decreto ejecutivo N" 26503-MAG "Reglamento de Regencias Agropecuarias del Colegio de Ingenieros Agrónomos de Costa Rica", publicado en "La Gaceta" N° 242 del 16 de diciembre de 1997.
