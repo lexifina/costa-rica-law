@@ -1,0 +1,3 @@
+Artículo 4°-Las prórrogas de nombramientos interinos en plazas vacantes cesarán en el momento en que calificado el servidor interino, no alcanzare lugar en la terna respectiva.
+Se podrá prorrogar el nombramiento de personal interino mientras dure el permiso concedido al titular del puesto y sólo cuando se trate de permisos concedidos en el año 1981.
+En el caso de nuevos permisos menores de 3 meses que se otorguen en el año 1982, la correspondiente sustitución requerirá de la aprobación de la Comisión de Recursos Humanos, de conformidad con el artículo 11 del acuerdo N° 91 del 7 de setiembre de 1981, publicado en "La Gaceta" N° 210 del 3 de noviembre del mismo año.

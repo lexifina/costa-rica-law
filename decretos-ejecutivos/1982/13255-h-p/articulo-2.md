@@ -1,0 +1,1 @@
+Artículo 2°-En lo sucesivo y hasta el 31 de diciembre de 1982, la Dirección General de Servicio Civil y la Oficina Técnica Mecanizada, no tramitarán ningún tipo de acción de personal que implique ocupación de puestos vacantes en forma temporal o definitiva.
