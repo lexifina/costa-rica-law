@@ -14,3 +14,4 @@ Normas Generales para la Clasificaión y Calificación de los Deudores de la Car
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-01 | la propia norma |
+| 2 | 2001-10-16 | Reglamento 258 (2001-10-16) |

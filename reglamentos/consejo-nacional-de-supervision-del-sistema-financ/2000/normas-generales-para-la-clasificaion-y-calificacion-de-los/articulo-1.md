@@ -4,6 +4,7 @@ NORMAS GENERALES PARA LA CLASIFICACIÓN Y CALIFICACIÓN DE LOS DEUDORES DE LA
 CARTERA
 DE CRÉDITO, SEGÚN EL RIESGO Y PARA LA CONSTITUCIÓN DE LAS ESTIMACIONES
 CORRESPONDIENTES
+(NOTA DE SINALEVI: este acuerdo fue derogado mediante sesión N°540 del 24 de noviembre del 2005, la cual empezará a regir el 09 de octubre del 2006, por lo que la derogación será efectuada en la fecha indicada).
 CAPÍTULO l
 CONCEPTOS Y FACTORES BÁSICOS PARA LA EVALUACIÓN Y CLASIFICACIÓN DEL DEUDOR
 1. DEFINICIONES:
@@ -26,11 +27,14 @@ Entre otras operaciones, pero no limitadas a éstas, deberán considerarse como 
 +14201 Comisiones por cobrar por créditos contingentes
 (*) solamente se deducen los préstamos otorgados para cumplir el artículo 59 de la Ley 1644
 (**) por la parte en que no haya mediado la entrega previa y efectiva de las sumas garantizadas
-1.2. Crédito para vivienda: Se otorga para la adquisición, construcción en lote propio, ampliación, mejora o reparación de vivienda personal, al usuario final del inmueble o su núcleo familiar, esto último cuando se haga constar el usufructo sobre el bien inmueble a favor del deudor. También se incluye dentro de esta categoría el financiamiento de lote destinado a proporcionar solución habitacional, el financiamiento de lote y construcción, la reposición de vivienda y la cancelación de gravámenes de vivienda personal al usuario final del inmueble. Además, se trata de créditos en que la garantía es la misma vivienda o lote, constituida mediante hipoteca, cédulas hipotecarias o un fideicomiso de garantía.
-En relación con el usuario final del inmueble, se aceptarán personas jurídicas; siempre y cuando los dueños del 100% del capital social de la sociedad habiten la propiedad y exista coincidencia entre propietario y deudor, es decir, el inmueble debe estar inscrito a nombre de la persona jurídica y ésta debe al mismo tiempo ser la deudora de la obligación.
+1.2. Créditos con garantía de vivienda propia: comprende los créditos que se encuentran garantizados con vivienda propia ocupadas o serán ocupadas por el prestatario o su núcleo familiar.
+No se consideran dentro de esta categoría, los créditos a personas físicas o jurídicas involucradas en construcción residencial especulativa o desarrollo propietario.
+En relación con el prestatario, se aceptarán peruanas jurídicas; siempre y cuando los dueños del 10(1% del capital social de la saciedad habiten la propiedad y exista coincidencia entre propietario y deudor, es decir el inmueble debe estar inscrito a nombre de la persona jurídica y ésta debe al mismo tiempo ser la deudora de la obligación.
+(Así reformado mediante sesión N° 258 de 16 de octubre del 2001)
 1.3. Deudores bajo Criterio 1: Se clasifican bajo este criterio los deudores con un endeudamiento total mayor a ¢11.0 millones. Se detallan en el Capítulo II de esta normativa.
 1.4. Deudores bajo Criterio 2: Se clasifican bajo este criterio los deudores con un endeudamiento total igual o inferior a ¢11.0 millones. Se detallan en el Capítulo II de esta normativa.
-1.5. Deudores bajo Criterio 3: Se clasifican bajo este criterio los deudores que poseen únicamente créditos para vivienda. Se detallan en el Capítulo II de esta normativa.
+"1.5. Deudores bajo Criterio 3: Se clasifican bajo este criterio los deudores que poseen únicamente créditos con garantía de vivienda propia. Se detallan en el Capitulo II de esta normativa."
+(Así reformado mediante sesión N° 258 de octubre del 2001)
 1.6. Crédito directo: Es el derecho que tiene la entidad financiera frente a un deudor, por la suma que este último le adeuda por concepto de principal e intereses.
 1.7. Crédito indirecto: Representa los derechos eventuales que tendría la entidad financiera frente a un deudor, los que se tornarán ciertos en el caso de tener que asumir los compromisos de éste con terceros, por cuyo cumplimiento el intermediario financiero se ha responsabilizado.
 1.8. Endeudamiento total: Es la sumatoria de los créditos directos e indirectos de una persona física o jurídica en favor de un intermediario financiero.
