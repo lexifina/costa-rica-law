@@ -1,0 +1,1 @@
+Artículo 7°.- El Ministerio de Gobernación, por medio de sus dependencias centrales o de las delegaciones de la Guardia de Asistencia Rural en todo el país, será el encargado de recibir las denuncias las cuales ser n enviados a la comisión.
