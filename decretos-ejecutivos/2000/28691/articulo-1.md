@@ -13,3 +13,4 @@ Considerando:
 6º—Que por lo anterior, se hace necesario modificar el límite fijado a dicho ente en el Decreto citado. Por tanto,
 Decretan:
 Artículo 1º—Modificase el límite presupuestario y de gasto efectivo establecido en el artículo 1º del Decreto Ejecutivo Nº 28046-H al Museo Nacional de Costa Rica, fijándolo en ¢494.8 millones.
+(Mediante Decreto Ejecutivo N° 28837 de 21 de julio del 2000, se modifica el Límite de gasto presupuestario y efectivo del 2000, par ael Museo Nacional)
