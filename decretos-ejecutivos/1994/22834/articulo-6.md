@@ -1,0 +1,2 @@
+Artículo 6°
+El Poder Ejecutivo por medio de sus respectivos ministerios, así como la Comisión Nacional de Emergencia, las municipalidades correspondientes, el Instituto Nacional de Vivienda y Urbanismo y el Instituto de Desarrollo Agrario, y además organismos e instituciones competentes, quedan facultados para tomar medidas que se estimen necesarias para procurar una adecuada y pronta aplicación de este decreto.

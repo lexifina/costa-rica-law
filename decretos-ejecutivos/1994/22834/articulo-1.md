@@ -1,0 +1,21 @@
+N° 22834-MOPT-MVAH
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE OBRAS PUBLICAS Y TRANSPORTES
+Y DE VIVIENDA Y ASENTAMIENTOS HUMANOS
+Con fundamento en las atribuciones conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política; y en las disposiciones contenidas en la Ley Nacional de Emergencia, N° 4374 del 14 de agosto de 1969 y sus reformas; el Reglamento de dicha Ley de Emergencia, Decreto Ejecutivo N° 4020-T del 13 de agosto de 1971; la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 4786 del 5 de julio de 1971; las leyes números 3382 y 3459 de 7 y 26 de noviembre de 1964, respectivamente; la Ley N° 5592 del 24 de octubre de 1974 y el artículo 27 de la Ley General de la Administración Pública.
+Considerando:
+1.- Que mediante Ley N° 3459 del 26 de noviembre de 1964 se autorizó al Poder Ejecutivo para declarar reserva nacional los terrenos que estimare necesarios, dentro de una zona de un kilómetro de ancho, a cada margen del Río Reventado y desde su nacimiento hasta el puente que comunica hoy días a las poblaciones de Tejar con Tobosi en el cantón de El Guarco, provincia de Cartago.
+2.- Que de conformidad con lo preceptuado en dicha Ley N° 3459, el Poder Ejecutivo por medio de los Decretos Ejecutivos Nos. 1488-P del 9 de febrero de 1971; 1659-P del 19 de abril de 1971; 17082-MOPT del 3 de julio de 1986 y 18889-P-VAH del 18 de enero de 1989; fijó de manera específica las zonas de reserva en los terrenos Adyacentes al Río Reventado.
+3.- Que en tales zonas de reserva nacional se ha construido las obras necesarias de defensa, denominadas "Diques de Cartago", siendo su propósito esencial la salvaguarda de la vida, salud y hacienda de las personas, principalmente de aquellas áreas que fueron afectadas con motivo de los fenómenos naturales acaecidos en el año 1964.
+4.- Que el Poder Ejecutivo, a través del Ministerio de Obras Públicas y Transportes, del Ministerio de Vivienda y Asentamientos Humanos y de otras instituciones del Estado, ha podido constatar la gravedad del fenómeno de la creciente invasión de los predios declarados de reserva nacional, conocidos como "Diques de Cartago", principalmente por parte de grupos familiares de escasos recursos, que sin orden alguno se han ido ubicando en toda el área, incluyendo las proximidades del cauce mismo del Río Reventado.
+5°- Que, asimismo, se está produciendo una grave situación en dicha zona con la extracción sin control de alguno de los materiales de dicho río, ocasionándose serios deterioros a las obras de defensa en su momento realizadas.
+6.- Que aparte del deterioro ya constatado en algunos sectores de los "diques", existe un inminente peligro en aquellos tramos en donde las obras de protección no fueron construidas en su oportunidad.
+7.- Que se hace imperativo uniformar los criterios de aplicación de las restricciones en las cuencas del Río Reventado y, en particular, respecto a la zona de reserva de los "Diques de Cartago", a efecto de que tanto las instituciones públicas como las privadas, las personas físicas y las jurídicas, cumplan debidamente con las disposiciones que por este medio se establecen para el uso del suelo y la construcción de casas y diversas estructuras, así como los asentamientos humanos.
+8.- Que de no cumplirse con las regulaciones establecidas mediante este decreto y la normativa jurídica vigente, se poden en grave peligro la vida de las personas actualmente asentadas de modo ilegítimo en la zona de reserva, propiedad del Estado.
+9.- Que el conocimiento científico y técnico sobre la zona afectada permite a la fecha contar con elementos de juicio suficientes como para definir los sectores con más alto riesgo de ser propicios a inundaciones y avalanchas. Por tanto,
+DECRETAN:
+El siguiente,
+REGLAMENTO PARA EL USO DEL SUELO Y LA CONSTRUCCION
+EN LA CUENCA DEL RIO REVENTADO
+Artículo 1°
+El presente decreto establece las regulaciones fundamentales y de acatamiento obligatorio por toda persona física, pública o privada, en cuanto al uso del suelo y la construcción de cualquier clase de edificación o estructura en la cuenca del Río Reventado, así como par ala rehabilitación, conservación y construcción de las obras de defensa que en dicha área fueren necesarias.
