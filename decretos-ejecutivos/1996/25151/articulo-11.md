@@ -1,1 +1,3 @@
-Artículo 11.-La actividad que despliega en lo actual el denominado Departamento de Accidentes de la definida como Unidad Asesora de Asuntos Jurídicos, será asumida en adelante por el Área Administrativa de la Institución.
+Artículo 11°-Las Unidades de Planificación Institucional, Auditoría, Asuntos Jurídicos, Contraloría de Servicios, Embellecimiento de Carreteras Nacionales, Relaciones Comunales, Prensa y Relaciones Públicas y Oficialía Mayor, contarán, cada una, con un responsable, y en aquellos casos en que se determine la necesidad, podrá designarse a un colaborador inmediato a éste excepto para la Oficialía Mayor, en cuyo caso ambos serán responsables por los resultados de su gestión.
+(Así reformado por el artículo 5° del decreto ejecutivo N° 27110 del 20 de mayo de 1998)
+(Corrida su numeración por el artículo 4° del decreto ejecutivo N°27110 del 20 de mayo de 1998, que lo traspaso del antiguo artículo 7 al 11)

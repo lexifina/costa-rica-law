@@ -11,8 +11,14 @@ Considerando:
 6°-Que a los efectos del proceso referido en el anterior considerando, el Ministerio de Obras Públicas y Transportes ha cumplido con todos y cada uno de los requisitos que la legalidad y la justicia imponen; en tal sentido cuenta con la debida aprobación del Ministerio de Planificación Nacional y Política Económica, ello conforme a las determinaciones de la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974 y los Decretos Ejecutivos N°17853-MOPT del 17 de noviembre de 1987, y N° 23323-PLAN publicado en "La Gaceta" N" 102 del 27 de mayo de 1994.
 7°-Que mediante el documento D.M. 328-96 de 12 de abril de 1996, suscrito por el Doctor Leonardo Garnier R., Ministro de Planificación Nacional y Política Económica, se establece, con base en los estudios técnicos realizados al efecto, la estructura organizativa que debe regir para el Nivel Superior del Ministerio de Obras Públicas y Transportes. Por tanto,
 DECRETAN:
-Artículo 1°-Determínase la reestructuración y/o reorganización del Nivel Superior del Ministerio de Obras Públicas y Transportes, el cual aparte de los respectivos niveles de mando constituidos por el Ministro y Viceministro, estará conformado por las siguientes unidades:
-Auditoría (incluye los procesos de auditoria en ingeniería civil y n sistemas administrativos).
-Asesoría Jurídica (Incluye los procesos de asesoría jurídica y adquisición de bienes muebles e inmuebles para la construcción de obras públicas).
-Planificación institucional (incluye los procesos de Financiamiento Externo, Medios de Transporte y Gestión Tecnológica).
-Proyección Institucional (incluye la función de la Contraloría de Servicios, Embellecimiento de Carreteras Nacionales, Relaciones Comunales y el actual Departamento de Proyección Institucional). Cada una de estas unidades responderán directamente al Ministro de Obras Públicas y Transportes por la gestión desarrollada.
+Artículo 1°—Determínase la reestructuración y reorganización del Nivel Superior del Ministerio de Obras Públicas y Transportes, el cual, además de los respectivos niveles de mando constituidos por el Ministro y el Viceministro, estará conformado por las siguientes unidades administrativas:
+a) Auditoría (incluye los procesos de auditoria en ingeniería civil y en sistemas administrativos);
+b) Asesoría Jurídica (incluye los procesos de asesoría jurídica y adquisición de bienes muebles e inmuebles para la construcción de obras públicas);
+c) Planificación Institucional (incluye los procesos de Financiamiento Externo, Medios de Transporte y Gestión Tecnológica );
+d) Contraloría de Servicios (incluye los procesos de atención a las quejas y reclamos presentados por los usuarios y la de emitir las propuestas al Superior Jerárquico en cuanto a las acciones y procedimientos que mejoren los servicios);
+e) Embellecimiento de Carreteras Nacionales (incluye los procesos de dar mantenimiento a las zonas verdes aledañas a las carreteras nacionales);
+f) Relaciones Comunales (incluye los procesos tendientes a otorgar de manera equitativa de recursos por parte del MOPT a las comunidades);
+g) Prensa y Relaciones Públicas (incluye los procesos de Prensa y relaciones Públicas);
+h) Oficialía Mayor (incluye los procesos de administración de los Despachos del señor Ministro y señores Viceministros, así como ser el ejecutor del Programa Presupuestario ?300).
+Cada una de estas unidades responderá directamente al Ministro de Obras Públicas y Transportes por la gestión desarrollada.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27110 del 20 de mayo de 1998)

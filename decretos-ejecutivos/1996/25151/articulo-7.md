@@ -1,1 +1,6 @@
-Artículo 7°-Las Unidades de Planificación Institucional, Auditoría, Asuntos Jurídicos y Proyección Institucional, contarán cada una, con un responsable y en aquellos casos en que se determine la necesidad, se podrá desIgnar a un colaborador inmediato a éste; en cuyo caso, ambos serán responsables por los resultados de su gestión.
+Artículo 7°—Los objetivos y productos de la Unidad de Relaciones comunales son:
+Objetivos:
+Brindar el aporte de materiales, mano de obra y asesoramiento técnico a las organizaciones sociales e instituciones gubernamentales para la construcción de obras comunales.
+Producto:
+Distribución equitativa de recursos por parte del MOPT a las comunidades.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 27110 del 20 de mayo de 1998)

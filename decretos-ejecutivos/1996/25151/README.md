@@ -14,3 +14,4 @@ Reestructura y/o Reorganiza el Nivel Superior del Ministerio de Obras Públicas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-24 | la propia norma |
+| 2 | 1998-05-20 | Decreto Ejecutivo 27110 (1998-05-20) |
