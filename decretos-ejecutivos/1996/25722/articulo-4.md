@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de Museos del Ministerio de Cultura, Juventud y Deportes, le brindará asesoría profesional especialmente en capacitación, divulgación, conservación e inventario de colecciones.

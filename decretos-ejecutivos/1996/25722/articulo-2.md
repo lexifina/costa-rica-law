@@ -1,0 +1,1 @@
+Artículo 2°-El Museo dependerá administrativa y financieramente del Ministerio del Ambiente y Energía y la Fundación de Parques Nacionales. La Dirección Técnica dependerá de la Dirección Nacional de Museos del Ministerio de Cultura, Juventud y Deportes.
