@@ -15,3 +15,4 @@ Reglamento de la Carrera Docente
 | --- | --- | --- |
 | 1 | 1972-04-16 | la propia norma |
 | 2 | 1972-04-16 | SINALEVI (sin norma nombrada) |
+| 3 | 2000-07-07 | SINALEVI (sin norma nombrada) |
