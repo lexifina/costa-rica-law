@@ -1,0 +1,2 @@
+Artículo 20.—Cuando se deban realizar funciones en forma concurrente con profesionales de otras ciencias como planificación de áreas silvestres, cuencas hidrográficas, impacto ambiental, bioterios, zoosacriaderos, análisis químicos de muestras, desarrollo rural, deberán participar en la ejecución de las mismos miembros ordinarios del Colegio, que posean grado académico de licenciado o superior a éste.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 25620 de 9 de octubre de 1996)
