@@ -14,3 +14,4 @@ Reglamento para el Trámite de Donaciones Patronato Nacional de la Infancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-26 | la propia norma |
+| 2 | 2001-11-12 | Reglamento 91 (2001-11-12) |

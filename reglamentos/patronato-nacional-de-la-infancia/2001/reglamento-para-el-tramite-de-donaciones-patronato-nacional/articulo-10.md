@@ -1,2 +1,2 @@
-Artículo 10.—Cuando se trate de donaciones en dinero en efectivo cheques u otros valores negociables, se seguirá el mismo procedimiento establecido en el presente capítulo, no obstante cuando se trate de dinero eran depositarse en la cuenta corriente de la institución.
-Cuando se trate de cheques u otros documentos mercantiles negociables deberán hacerse a favor del PANI.
+Artículo 10.—Cuando se trate de donaciones en dinero en efectivo, cheques u otros valores negociables, se seguirá el mismo procedimiento establecido en el presente capítulo, no obstante cuando se trate de dinero deberán depositarse en la cuenta corriente de la institución. Se exceptúa de dicha obligación aquellas donaciones que, siendo en dinero en efectivo no superen la suma de ^100.000,00 Cuando se trate de cheques u otros documentos mercantiles negociables deberán hacerse a favor del PANI.
+(Así reformado mediante sesión N° 91 de 12 de noviembre del 2001)
