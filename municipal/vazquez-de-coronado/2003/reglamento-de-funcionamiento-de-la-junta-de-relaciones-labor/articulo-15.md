@@ -1,0 +1,2 @@
+Artículo 15.—La Junta de Relaciones Laborales deberá pronunciarse en un plazo no mayor de quince días calendario, de todo cuanto asunto le haya sido sometido a su conocimiento.
+No obstante lo señalado en el inciso anterior, este plazo podrá ampliarse hasta treinta días calendario, si a juicio de sus integrantes fuese procedente y necesario para tener un criterio más amplio del asunto que se conoce.

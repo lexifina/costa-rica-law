@@ -1,0 +1,1 @@
+Artículo 9º—El Coordinador y el Subcoordinador de la Junta de Relaciones Laborales será el representante oficial de la misma ante toda otra institución pública o privada y como tal, será el portavoz de la misma para efectos de representación.

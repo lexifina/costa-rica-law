@@ -1,0 +1,1 @@
+Artículo 28.—Rige a partir de la aprobación de este Reglamento por parte del Concejo Municipal. Publíquese en el Diario Oficial La Gaceta. Acuerdo. Cuenta con siete votos afirmativos. Acuerdo definitivamente aprobado.

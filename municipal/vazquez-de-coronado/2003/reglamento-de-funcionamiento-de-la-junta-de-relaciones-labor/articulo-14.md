@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones de la Junta de Relaciones Laborales, serán públicas, no obstante el Coordinador de la Junta o el pleno podrán acordar su privacidad cuando así lo estimen conveniente y dada la confidencialidad del caso a tratar. Los asesores de cada representación podrán permanecer en la sesión a criterio de la representación que les llevó.

@@ -1,0 +1,1 @@
+Artículo 5º—La Junta de Relaciones Laborales funcionará permanentemente en el local que le sea asignado. Podrá reunirse en horas laborales, en casos en que por urgencia, se estime necesario, sin rebajo de salario para los representantes de los trabajadores, que la componen.
