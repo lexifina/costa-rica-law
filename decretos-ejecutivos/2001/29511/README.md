@@ -57,3 +57,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 42 | 2002-07-30 | Decreto Ejecutivo 30642 (2002-07-30) |
 | 43 | 2002-08-06 | Decreto Ejecutivo 30659 (2002-08-06) |
 | 44 | 2002-08-19 | Decreto Ejecutivo 30682 (2002-08-19) |
+| 45 | 2002-08-21 | SINALEVI (sin norma nombrada) |
