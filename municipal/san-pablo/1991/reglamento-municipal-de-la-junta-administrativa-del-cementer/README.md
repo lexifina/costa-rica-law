@@ -14,3 +14,4 @@ Reglamento Municipal de la Junta Administrativa del Cementerio General de San Pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-09 | la propia norma |
+| 2 | 2000-10-11 | Reglamento municipal 0 (2000-10-11) |

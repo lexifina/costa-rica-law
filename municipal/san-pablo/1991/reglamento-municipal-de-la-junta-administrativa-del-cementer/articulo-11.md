@@ -1,5 +1,7 @@
-Artículo 11°-Permisos para construir:
-Habrá tres (3) clases de permisos:
-1) Sencillos: Estos tendrán una dimensión de 1,20 x 2,50 metros, pudiendo construirse dos nichos, uno subterráneo y uno superficial o solamente el subterráneo.
-2) Dobles: Sus dimensiones serán de 2,40 x 2,50 metros y podrá construir en la misma forma que el anterior, pero en dos cuerpos.
-3) Triples: Sus dimensiones serán de 3,60 x 2,50 metros y podrá construirse en la misma forma que los anteriores. Cualquier variante que se pretenda hacer, en estos casos, siempre dentro del volumen estipulado y que mejore la construcción en aspecto estético, podrá ser consultado con la Junta.
+Artículo 11.—Permisos para construir.
+Habrá tres clases de permisos:
+a. Sencillos: Serán de tres nichos: uno subterráneo, dos aéreos.
+b. Dobles: Serán de seis nichos: dos subterráneos y cuatro aéreos.
+c. Triples: Serán de nueve nichos: tres subterráneos y seis aéreos.
+Todo esto supeditado a que se certifique que las personas sepultadas tengan más de cinco años de fallecidas: pagando por cada nicho adicional que se construya, según el precio vigente al momento de su construcción, que actualmente son diez mil colones: conforme el aumento decretado en La Gaceta N ° 171 del 2 de setiembre de 1999 y por último que sea el Ingeniero Municipal el que dé las especificaciones técnicas acerca de como deben ir diseñadas las mismas.
+(Así reformado mediante acuerdo definitivamente aprobado N° 739-2000 y publicado en La Gaceta N° 204 del 25 de octubre de 2000)
