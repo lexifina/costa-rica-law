@@ -1,5 +1,1 @@
-ARTÖCULO 4
-Estructura
-La Empresa tendr una Junta Directiva, un Director General
-y
-el personal necesario para el desempe¤o de sus funciones.
+Artículo 4. Estructura. La Empresa tendrá una Junta Directiva, un Director General y el personal necesario para el desempeño de sus funciones.
