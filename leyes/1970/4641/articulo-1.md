@@ -1,0 +1,6 @@
+N° 4641
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Refórmanse los artículos 2º y 3º de la ley Nº 2502 de 19 de diciembre de 1959, para que en lo sucesivo se lean así:
+"Artículo 2º.- La aplicación del Convenio citado en el artículo anterior, ser hará necesariamente por intermedio del Banco Central de Costa Rica. En las relaciones con el Banco Interamericano de Desarrollo, el Banco Central de Costa Rica será el único agente y representante del Gobierno, con la salvedad que se establece en el párrafo siguiente y la del artículo 3º de esta ley. La intervención de la República de Costa Rica para la introducción, discusión o resolución de cualquier asunto relacionado con dicho Convenio, será ejercida por el Ministro de Hacienda, quien podrá delegar su función en el Banco Central de Costa Rica."
+"Artículo 3º.- El Poder Ejecutivo nombrará al Ministro de Hacienda para que ejerza las funciones de Gobernador propietario que menciona la Sección 2 (a) del artículo VIII del Convenio Constitutivo de Banco Interamericano de Desarrollo, en representación de Costa Rica ante dicho Banco. El Gobernador suplente será nombrado por la Junta Directiva del Banco Central de Costa Rica."
