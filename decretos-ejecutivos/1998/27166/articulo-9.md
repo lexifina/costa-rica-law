@@ -1,0 +1,1 @@
+Artículo 9°—Vigencia de la autorización. La autorización que conceda el Ministerio, tendrá un plazo de vigencia de tres años y para su renovación, la entidad o centro deberá acreditar nuevamente todos los requisitos establecidos en este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 8°—De la aprobación o rechazo de la solicitud: En caso de que la solicitud sea aprobada, el Ministerio dictará una resolución razonada de aprobación y otorgará el certificado correspondiente, el cual deberá ser expuesto en lugar visible en el centro o entidad.
+Si la solicitud fuere rechazada, se dictará una resolución razonada, que tendrá recurso de reposición ante la Ministra de Justicia y Gracia, la cual resolverá en forma definitiva dando por agotada la vía administrativa.

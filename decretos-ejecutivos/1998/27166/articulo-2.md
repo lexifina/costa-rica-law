@@ -1,0 +1,1 @@
+Artículo 2°—Entidades y centros dedicados a la administración de métodos RAC. Podrán constituirse y organizarse entidades y centros dedicados a la administración institucional de procesos de mediación, conciliación, arbitraje y otras técnicas similares para la solución de controversias de naturaleza disponible.
