@@ -1,0 +1,1 @@
+Artículo 2°—El Instituto Costarricense de Electricidad, asumirá el pago de las cuotas de membresía, ante la UIT , asumiendo además todas las obligaciones financieras pendientes, para lo cual hará las previsiones presupuestarias del caso.
