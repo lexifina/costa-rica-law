@@ -1,0 +1,2 @@
+Transitorio I.—Las solicitudes por pago de servicios ambientales bajo la modalidad de manejo que hayan sido presentados ante la Dirección del Sistema Nacional de Áreas de Conservación (SINAC) antes del 15 de marzo del 2002 continuarán su trámite normal y serán excluidos de lo estipulado en este decreto.
+Dado en la Presidencia de la República.—San José, a los cinco días del mes de junio del año dos mil dos.

@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el artículo 1, inciso 6-c) del Decreto Ejecutivo N° 30090-MINAE, de los cuatro días del mes de diciembre del año 2001, publicado en La Gaceta N° 32 del 14 de febrero del año 2002.

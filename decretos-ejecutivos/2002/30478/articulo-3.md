@@ -1,0 +1,1 @@
+Artículo 3º—Los fondos destinados en el artículo 1 inciso 6-c) derogado, serán distribuidos con la proporción de un sesenta por ciento para reforestación y sistemas agroforestales, y el restante cuarenta por ciento para protección.
