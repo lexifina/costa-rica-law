@@ -1,0 +1,1 @@
+Art. 6. Ei Gobierno agracia a la compañia con quinientas varas de terreno en propiedad à cada lado y en todo el largo del camino en los baldios, y una legua en cuadro en el punto donde se forme la poblacion del puerto, dejando al Gobierno los sitios necesarios para edificios públicos que deberán ser designados cuando la sociedad lo solicite.

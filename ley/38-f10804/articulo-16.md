@@ -1,0 +1,1 @@
+Art. 16. La compañia para llevar al cabo el cumplimiento de todas sus disposiciones, gozará de todos los privilegios de las empresas de beneficio público, en cuyo concepto el Gobierno atenderá en todo tiernpo á las solicitudes justas que la compañia le haga sobre dificultades que por ahora no se pueden prever.

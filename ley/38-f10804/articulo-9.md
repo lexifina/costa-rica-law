@@ -1,0 +1,1 @@
+Art. 9. Se concede en favor de la compañia por el término de veinticinco años el derecho de cobrar el peage de dos reales por cada quintal que pase por todo parte del camino, y el de cuatro reales por cada quintal de mercaderias extrangeras, de cualquier naturaleza que sean, que se importe por dicho camino.

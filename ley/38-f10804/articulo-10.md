@@ -1,0 +1,1 @@
+Art. 10. Se concede ademas á la compañia la mitad de los derechos que por alcabala marítima correspondan al tesoro nacional, por espacio de tres años, contados desde la fecha en que la compañia acredite al Gobierno que ha invertido en la empresa la suma de quinee mil pesos, á lo ménos, y la cuarta parte de los mismos derechos durante otros seis años mas.
