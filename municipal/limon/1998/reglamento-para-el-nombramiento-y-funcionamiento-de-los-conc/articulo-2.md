@@ -1,0 +1,1 @@
+Artículo 2°—Los Concejos de Distrito están integrados por cinco miembros vecinos del Distrito, a quienes se denominarán concejales, de los cuales uno será necesariamente el Síndico de la circunscripción de que se trate. El mismo ejercerá la Presidencia del Concejo de Distrito y en su ausencia será sustituido por el Síndico Suplente.

@@ -1,0 +1,3 @@
+Transitorio 1.—Los miembros de los Concejos de Distrito que se constituyan por primera vez con posteridad a la promulgación de este Reglamento, durarán en sus cargos hasta la nueva designación según lo dispuesto por el artículo 3° de este Reglamento. Una vez que entre en vigencia el nuevo Código Municipal, promulgado por la ley 7794 publicado en “La Gaceta” N° 94 del 18 de mayo 1998, los miembros del Concejo de distrito adquieren los derechos establecidos de dicha ley.
+Aprobado por el Concejo Municipal del Cantón Central de Limón, en sesión extraordinaria número 3, celebrada el día viernes 17 de julio de 1998, bajo el artículo II, inciso a).
+Acuerdo definitivamente aprobado.
