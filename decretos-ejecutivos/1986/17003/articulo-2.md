@@ -1,0 +1,1 @@
+Artículo 2°-La administración y protección del área estará a cargo del Servicio de Parques Nacionales que deberá preparar y ejecutar los planes de manejo y desarrollo. El IGN procederá a demarcar en el terreno los limites de esa ampliación, quedando obligado el Servicio de Parques Nacionales a abrir y mantener los respectivos carriles.

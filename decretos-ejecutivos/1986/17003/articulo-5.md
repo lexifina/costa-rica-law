@@ -1,0 +1,1 @@
+Artículo 5°-Derógase el artículo 8° del Decreto Ejecutivo N° 13495-A, de 31 de marzo de 1982 que creó la Zona Protectora La Selva. Los demás artículos del citado decreto siguen vigentes para los terrenos de la Zona Protectora La Selva que no se adicionan al Parque Nacional Braulio Carrillo mediante el artículo 1° del presente Decreto.
