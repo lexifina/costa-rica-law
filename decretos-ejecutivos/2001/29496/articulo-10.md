@@ -1,0 +1,1 @@
+Artículo 10.—Los acuerdos adoptados por los órganos competentes, relativos a renovaciones totales o parciales de miembros del órgano directivo, la reforma de estatutos y la renovación parcial del órgano directivo que efectúe el mismo órgano en los casos que así lo determine el estatuto, deberán asentarse en el libro que corresponda.

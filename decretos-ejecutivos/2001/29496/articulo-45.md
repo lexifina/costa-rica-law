@@ -1,0 +1,1 @@
+Artículo 45.—El órgano competente para fiscalizar las asociaciones podrá intervenir de oficio en aquellas declaradas de utilidad pública, que ejecuten programas con el Estado o hayan recibido bienes o fondos del Estado o sus Instituciones.

@@ -1,0 +1,1 @@
+Artículo 46.—En la fiscalización de asociaciones declaradas de bienestar social, la Oficina de Administración de Instituciones y Servicios de Bienestar Social del Instituto Mixto de Ayuda Social será parte en el procedimiento.

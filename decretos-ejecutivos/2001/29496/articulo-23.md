@@ -1,0 +1,1 @@
+Artículo 23.—Si dentro del término de 30 días naturales a partir de la autorización, los libros no son retirados, el Departamento de Asociaciones no se hará responsable por su extravío y además procederá a la incineración de éstos, previo aviso que se publicará en el Diario Oficial con 15 días de anticipación.

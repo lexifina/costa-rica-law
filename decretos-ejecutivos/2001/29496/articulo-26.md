@@ -1,0 +1,6 @@
+Artículo 26.—En caso de extravío o pérdida de los libros, los requisitos para la reposición son:
+a) Solicitud expresa del representante legal de la asociación, o en caso de ausencia, de otros dos miembros del órgano directivo cuyo nombramiento conste en el Registro, actuando conjuntamente, bastando su dicho para tener por comprobada dicha ausencia. En ambos casos sus firmas serán autenticadas por un abogado.
+b) Publicación de aviso por una vez en el Diario Oficial y en un periódico de circulación nacional, a fin de oír objeciones ante el Registro de Asociaciones. Será redactado en forma breve por el Registro y el costo de su publicación correrá por cuenta del interesado.
+c) Transcurridos ocho días después de la última publicación, el interesado presentará al Registro de Asociaciones los avisos publicados y su respectiva fecha.
+d) En caso de que aún conserven los libros contables, certificación de contador público autorizado declarando que los registros contables se encuentran al día, caso contrario, debe aportarse declaración jurada del Presidente y Tesorero de la Asociación indicando los motivos por los cuales los Registros contables no están al día.
+e) Presentación de los demás libros que se conserven en uso, el o los nuevos por autorizar y las correspondientes especies fiscales.

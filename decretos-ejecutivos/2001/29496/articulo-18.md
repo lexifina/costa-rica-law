@@ -1,0 +1,1 @@
+Artículo 18.—Las oposiciones a la inscripción de documentos a que se refieren los artículos 19 y 20 de la Ley de Asociaciones, procederán por los motivos indicados en los artículos 3 y 8 del mismo cuerpo normativo.

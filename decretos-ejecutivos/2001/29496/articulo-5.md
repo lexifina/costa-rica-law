@@ -1,0 +1,1 @@
+Artículo 5º—Para formar parte de los órganos esenciales se requiere ser asociado activo. Por asociado activo se entenderá aquella persona que es sujeto de derechos y obligaciones en la asociación y que está facultada para la actuación en ésta, conforme con su estatuto.

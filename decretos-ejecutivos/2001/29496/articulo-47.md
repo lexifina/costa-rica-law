@@ -1,0 +1,1 @@
+Artículo 47.—El procedimiento a seguir en las fiscalizaciones en cuanto a sus formalidades, lo es por analogía el de la gestión administrativa contemplado en el Título IV del Reglamento del Registro Público. Lo resuelto tendrá alzada ante el Superior correspondiente.

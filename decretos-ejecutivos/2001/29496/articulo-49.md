@@ -1,0 +1,1 @@
+Artículo 49.—Tanto la Dirección como la Subdirección mencionadas podrán convocar directamente a Asamblea General, de conformidad con los estatutos de la entidad de que se trata, cuando por resolución razonada se ordene una convocatoria a asamblea y no sea realizada dentro de los 30 días naturales siguientes al recibo de la notificación de la resolución que así lo ordena.

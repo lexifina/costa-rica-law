@@ -1,0 +1,1 @@
+Artículo 35.—En el caso en que se determine que los fines y naturaleza que persigue la asociación domiciliada en el extranjero son contrarios al ordenamiento jurídico costarricense, el Departamento de Asociaciones negará su inscripción.

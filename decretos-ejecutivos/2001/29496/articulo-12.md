@@ -1,0 +1,1 @@
+Artículo 12.—El órgano de la fiscalía es el encargado de velar por lo dispuesto en la Ley, su Reglamento y el estatuto. Deberá estar integrado al menos por un asociado activo mayor de edad. El fiscal podrá convocar a sesiones ordinarias o extraordinarias de la asamblea general en caso de omisión del órgano directivo.

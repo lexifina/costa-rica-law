@@ -1,0 +1,1 @@
+Artículo 16.—Tratándose de constitución de Asociaciones Deportivas y modificaciones a sus estatutos, de previo a su presentación al Registro, deberán contar con la aprobación correspondiente por parte del Instituto Costarricense del Deporte y la Recreación (ICODER).

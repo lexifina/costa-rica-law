@@ -1,0 +1,1 @@
+Artículo 6º—La Asociación que establezca el fondo de mutualidad a favor de los asociados, conforme con el artículo 25 de la ley, debe garantizar la administración de esos fondos con una póliza de fidelidad a satisfacción del Ministerio de Justicia y Gracia, previo dictamen de un contador público autorizado.

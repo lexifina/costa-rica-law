@@ -1,0 +1,1 @@
+Artículo 11.—El órgano directivo es el encargado de hacer cumplir las políticas de las asociaciones, conforme con lo dispuesto por la ley y el estatuto. Si el estatuto lo establece, en caso de vacancia, podrá efectuar la designación del sustituto entre los asociados, siempre y cuando el número de miembros por sustituir no exceda de la tercera parte del total.

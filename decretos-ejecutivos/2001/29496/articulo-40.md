@@ -1,0 +1,1 @@
+Artículo 40.—El ejercicio administrativo y fiscal de cada asociación durará un año. Al cabo de éste se deberán presentar los informes pertinentes a la Oficina de Administración de Instituciones y Servicios de Bienestar Social del Instituto Mixto de Ayuda Social.

@@ -1,0 +1,1 @@
+Artículo 48.—El órgano competente podrá convocar a Asamblea General de asociados a través del órgano directivo de la asociación, por solicitud formal y razonada de un asociado, cuando constate irregularidades y estime imprescindible la medida.

@@ -1,0 +1,1 @@
+Artículo 44.—Cuando alguna asociación incurra en alguno de los supuestos del artículo 34 de la Ley, se procederá a decretar su disolución en vía administrativa si es el caso, debiendo remitirse posteriormente todos sus atestados a la Procuraduría General de la República para lo que corresponda.
