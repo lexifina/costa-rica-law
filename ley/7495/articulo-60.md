@@ -1,4 +1,4 @@
-ARTICULO 60.- Responsabilidad de los funcionarios judiciales.
+ARTÍCULO 60.- Responsabilidad de los funcionarios judiciales.
 Cuando los funcionarios judiciales incumplan, injustificadamente, los
 plazos que esta Ley establece, incurrirán en responsabilidad personal, sin
 perjuicio de las sanciones administrativas correspondientes. La

@@ -1,4 +1,4 @@
-ARTICULO 65.- Reformas legales.
+ARTÍCULO 65.- Reformas legales.
 Se reforman los siguientes textos legales:
 a) El párrafo primero, inciso e), artículo 5, de la Ley Constitutiva
 del Instituto Costarricense de Acueductos y Alcantarillados, N 2726, del

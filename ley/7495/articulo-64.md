@@ -1,4 +1,4 @@
-ARTICULO 64.- Derogatorias.
+ARTÍCULO 64.- Derogatorias.
 Se derogan las siguientes disposiciones:
 a) Ley de Expropiaciones Forzosas, Nº 36, del 26 de junio de 1896 y
 su reforma por Ley N 78, del 24 de junio de 1938.

@@ -1,4 +1,4 @@
-ARTICULO 4.- Medidas precautorias.
+ARTÍCULO 4.- Medidas precautorias.
 La Administración Pública podrá adoptar las medidas necesarias para
 no alterar las condiciones del bien que se pretende expropiar.
 Cuando se trate de bienes de valor artístico, histórico o

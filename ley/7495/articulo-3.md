@@ -1,4 +1,4 @@
-ARTICULO 3.- Estudios previos.
+ARTÍCULO 3.- Estudios previos.
 Ningún propietario o poseedor, por cualquier título, podrá oponerse
 a que se practiquen, sobre sus bienes inmuebles, los estudios necesarios
 para construir, conservar o mejorar una obra pública. También están
