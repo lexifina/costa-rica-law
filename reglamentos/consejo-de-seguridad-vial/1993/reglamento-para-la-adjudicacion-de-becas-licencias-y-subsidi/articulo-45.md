@@ -1,1 +1,0 @@
-Artículo 45.— En la designación de candidatos a disfrutar de una beca, se podrá considerar a un servidor interino, siempre y cuando un otro servidor en propiedad no reúna los requisitos correspondientes o no tenga interés en la beca.

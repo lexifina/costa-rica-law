@@ -1,2 +1,0 @@
-Artículo 36.— Si el servidor con impedimento comprobado es uno de los miembros del comité Permanente, su superior así lo declarara ordenando que se nombre un miembro suplente a parte de quien corresponda para que reconozca y resuelva conjuntamente con los otros integrantes el caso particular de que se trate.
-La designación del miembro suplente deberá hacerse dentro de los tres días hábiles siguientes a la fecha en que se dictó la resolución en este sentido.

@@ -1,1 +1,0 @@
-Artículo 56.— Los casos no previstos en este Reglamento se resolverán de acuerdo con la Ley de Licencias para Adiestramiento de Servidores Públicos y su Reglamento, el Estatuto del Servicio Civil y su Reglamento, así como demás leyes y reglamentos conexos.

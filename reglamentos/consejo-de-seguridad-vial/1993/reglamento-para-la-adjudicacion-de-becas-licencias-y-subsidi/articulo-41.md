@@ -1,1 +1,0 @@
-Artículo 41.— El trabajador favorecido con la adjudicación de una beca, deberá observar una intachable conducta moral, fuera y dentro del lugar donde se imparte el curso, de lo contrario se hará acreedor a las medidas disciplinarias existentes en ésta materia y no podrá participar a futuros concursos.

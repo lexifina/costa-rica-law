@@ -1,1 +1,0 @@
-Artículo 40.— El trabajador que, encontrándose disfrutando de una beca, renuncia a ésta sin justa causa, queda obligado a indemnizar al Estado por los gastos en que este haya incurrido con motivo de la beca, así como por tos posibles danos y perjuicios que, en forma directa e inmediata, pueden derivarse de su decisión.

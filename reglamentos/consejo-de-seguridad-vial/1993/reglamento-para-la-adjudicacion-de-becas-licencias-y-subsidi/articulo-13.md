@@ -1,1 +1,0 @@
-Artículo 13.— Los avisos de apertura del concurso se comunicarán a las jefaturas para que esta a su vez las hagan del conocimiento de sus subalternos con la mayor anticipación posible a la fecha de cierre de recepción por parte de los organismos auspiciantes.

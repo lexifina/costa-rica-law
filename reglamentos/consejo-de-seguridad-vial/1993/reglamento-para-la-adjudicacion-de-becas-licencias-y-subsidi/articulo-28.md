@@ -1,1 +1,0 @@
-Artículo 28.— Si, habiéndose pronunciado el Comité Permanente, persistiera la disconformidad del recurrente, este puede, dentro de los tres días siguientes a dicho pronunciamiento, pedir que el asunto sea elevado al conocimiento y resolución del Director Ejecutivo, quien lo someterá a la Junta Directiva y su resolución agotara la vía Administrativa.

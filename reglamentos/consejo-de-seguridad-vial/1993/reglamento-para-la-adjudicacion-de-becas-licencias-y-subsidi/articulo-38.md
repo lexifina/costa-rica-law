@@ -1,5 +1,0 @@
-CAPITULO XI
-DE LOS DEBERES Y OBLIGACIONES A CARGO DE LOS SERVIDORES BENEFICIADOS CON LA ADJUDICACIÓN DE BECAS, LICENCIAS PARA ESTUDIO O SUBSIDIOS PARA ADIESTRAMIENTO COMPLEMENTARIO
-Artículo 38.— El servidor favorecido con la adjudicación de una beca, licencia para estudio o subsidio para adiestramiento complementario, este último superior a tres meses, está obligado a suscribir un contrato con el Consejo. Los funcionarios de las Direcciones de la Administración Vial a tos que se les conceda la autorización de capacitación deberán firmar el contrato respectivo con el Ministerio de Obras Públicas y Transportes.
-Los términos del contrato se establecerán en cada caso, por común acuerdo del beneficiario y el Consejo y el Ministerio de Obras Públicas y Transportes, según corresponda, sin perjuicio de las obligaciones que prescribe la Ley de Licencias para Adiestramiento de Servidores Públicos.
-Las condiciones estipuladas en tos carteles que sacan a concurso una beca se entienden aceptadas por el interesado y por lo mismo, incorporadas al contrato. En cada caso, el Consejo exigirá una garantía colateral de cumplimiento del servidor, mediante pagaré o fianza.

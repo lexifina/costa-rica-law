@@ -1,1 +1,0 @@
-Artículo 15.— Las ofertas para participar en un concurso, las presentarán los interesados en formularios previamente confeccionados por la Comisión de Capacitación del Departamento de Recursos Humanos.

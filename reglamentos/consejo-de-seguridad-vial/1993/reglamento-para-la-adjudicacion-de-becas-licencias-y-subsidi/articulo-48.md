@@ -1,1 +1,0 @@
-Artículo 48.— No son aplicables las disposiciones de este Reglamento a los permisos con goce de salario que el Consejo hubiere previamente otorgado, en conformidad con las leyes laborales vigentes y para que servidores del Consejo asistan a cursos de sindicalismo o cooperativismo.

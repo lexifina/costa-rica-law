@@ -1,2 +1,0 @@
-Artículo 35.— Cuando, a pesar del impedimento, el funcionario continuare conociendo del asunto, cualquier interesado podrá denunciarlo por escrito ante el superior inmediato de dicho funcionario, el que si encontrare que existen motivos de impedimento procederá en la forma prevista en el artículo anterior. En caso contrario, el funcionario continuara conociendo el asunto.
-La resolución que declare con lugar la recusación es inimpugnable.

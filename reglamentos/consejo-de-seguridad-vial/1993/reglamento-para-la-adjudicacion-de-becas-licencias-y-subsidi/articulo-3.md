@@ -1,1 +1,0 @@
-Artículo 3°.— El financiamiento total o parcial de la participación de los trabajadores del Consejo de Seguridad Vial, en cursos de adiestramiento que se lleven a cabo en el país y en el extranjero, quedara sujeto a que existan las disponibilidades presupuestarias.

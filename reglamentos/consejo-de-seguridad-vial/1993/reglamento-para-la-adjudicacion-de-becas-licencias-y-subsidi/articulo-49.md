@@ -1,1 +1,0 @@
-Artículo 49.— Las licencias mayores de tres meses para que los servidores aprovechen becas o facilidades para el adiestramiento, se concederán mediante contrato que suscribirán la máxima autoridad del Organismo y el beneficiario.

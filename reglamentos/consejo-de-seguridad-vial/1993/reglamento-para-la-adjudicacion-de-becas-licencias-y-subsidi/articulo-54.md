@@ -1,2 +1,0 @@
-Artículo 54.— El Comité Permanente tendrá a su cargo la revisión anual como mínimo de este Reglamento y someterá ante la Junta Directiva las modificaciones u observaciones que estime pertinentes para su aprobación o improbación.
-La Comisión de Capacitación, tendrá a su cargo la iniciativa de proposición de enmiendas, las que serán sometidas a consideración del Comité Permanente; siguiéndose, en su oficialización, los procedimientos legales pertinentes.

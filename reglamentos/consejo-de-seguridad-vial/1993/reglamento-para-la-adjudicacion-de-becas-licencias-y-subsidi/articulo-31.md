@@ -1,1 +1,0 @@
-Artículo 31.— La Comisión de Capacitación no aprobara nuevo contrato de licencia para estudios si el servidor ha omitido presentar las calificaciones obtenidas durante el curso lectivo interior o si el servidor fuere reprobado en dos o más asignaturas. En este último caso no podrá autorizarse licencia para estudios durante el ano siguiente.

@@ -1,1 +1,0 @@
-Artículo 55.— La Junta Directiva en casos de mediar interés institucional para alguna actividad concreta, podrá establecer parcial o totalmente criterios y procedimientos diferentes a los establecidos en este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 5°.— Todo programa de capacitación, para el cual sean ofrecidas becas al Consejo de Seguridad Vial, que se realice dentro y fuera se canalizará únicamente a través del Departamento de Recursos Humanos, Comisión de Capacitación, y con estricta observancia del procedimiento establecido en este Reglamento.
