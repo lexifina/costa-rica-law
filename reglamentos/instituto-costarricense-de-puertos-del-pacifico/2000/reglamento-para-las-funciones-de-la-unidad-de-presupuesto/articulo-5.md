@@ -1,0 +1,1 @@
+Articulo 5°—Del personal de Apoyo. La Jefatura de la Unidad de Presupuesto contara con personal asistencial que la ayudara a desempeñar las funciones detalladas en el capitulo N° 7 y tendrá responsabilidades asignadas por ésta.

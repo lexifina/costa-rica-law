@@ -1,0 +1,1 @@
+Articulo 8°—Del personal asistencial en la Unidad de Presupuesto. La Unidad de Presupuesto contará con el personal asistencial necesario, el que debe poseer conocimientos básicos y experiencia en el campo de la contabilidad y administración entre otros.
