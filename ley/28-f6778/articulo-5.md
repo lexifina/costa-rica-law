@@ -1,0 +1,1 @@
+Art. 5° -Las horas de instrucción, en los días que no fueren de asueto, serán de 6½ a 9½ a. m. para varones, y de 11 a.m. á 2 p.m. para mujeres exclusivamente. De 8 ½ á 9 ½., y de 1 á 2 p.m., son horas que se destinan para sólo la enseñanza de la Pedagogía. Las demás horas lectivas se aplicarán á los otros ramos, conforme al programa y horario de la respectiva escuela.

@@ -1,0 +1,1 @@
+Art. 27. Reunido el Tribunal de examen a las horas y en el local designados en el programa, el Presidente, por el orden de la lista de examinados que junto con la urna de temas y demás objetos necesarios al acto el Director debe presentarle, llamará al examinado á quien corresponda, el cual tomará asiento frente al Tribunal y dará principio al examen.

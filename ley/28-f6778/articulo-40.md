@@ -1,0 +1,1 @@
+Art. 40. --Ningún alumno de escuela normal que se presentare conforme al artículo 33, está obligado á pagar derechos por las diligencias y examen consiguientes, cualquiera que sea el resultado de éste, ni tampoco por el título que se le libre, salvo el valor del papel sellado que hubiere de suministrar para las primeras.
