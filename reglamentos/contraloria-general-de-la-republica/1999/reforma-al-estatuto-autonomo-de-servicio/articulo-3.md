@@ -1,0 +1,3 @@
+III- Se corre la numeración del artículo 123 al 125, y se modifica el artículo 123 para que sea de la siguiente manera:
+Artículo 125.—En todo aquello no contemplado expresamente en este Estatuto, se aplicará lo dispuesto, por su orden, en la Constitución Política, la jurisprudencia de la Sala Constitucional en materia de empleo público, la Ley de Salarios y Régimen de Méritos de la Contraloría General de la República, el Estatuto de Servicio Civil y su Reglamentó, la Ley Orgánica de la Contraloría General de la República, la Ley General de la Administración Pública y el Código de Trabajo."
+Rige a partir de su publicación.
