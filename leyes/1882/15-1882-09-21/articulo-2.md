@@ -1,0 +1,1 @@
+ART. 2°. -Conforme lo dispuesto en el artículo 1° de la ley, están sujetos al impuesto del timbre: las adjudicaciones en especie ó en dinero, por herencia, legado ó donación mortis causa, y los contratos de préstamo, venta, retroventa, traspaso ó cesión de derechos, cambio, permuta, donación, giros, aseguro, alquileres y ajustes de obras materiales ó trabajos de cualquier clase.

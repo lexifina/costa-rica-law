@@ -1,0 +1,1 @@
+ART. 12.-Todos los que hubieren intervenido en el negocio como contratantes ó como testigos, y los que por cualquier acto posterior hayan sido alguna vez dueños del documento, son fiadores, mancomunados entre sí, del cartulario ó tenedor del documento, por la responsabilidad proveniente de la falta de timbre.
