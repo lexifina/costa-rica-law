@@ -7,15 +7,14 @@ d) La Refinadora Costarricense de Petróleo, S. A.;
 e) El Servicio Nacional de Electricidad;
 f) La Corporación Costarricense de Desarrollo, S. A.;
 g) El Centro para la Promoción de las Exportaciones y de las Inversiones;
-h) El Sistema Bancario Nacional por medio del Banco Central;
+h) El Sistema Bancario Nacional, a través del Banco Central;
 i) El Consejo Nacional de Investigaciones Científicas y Tecnológicas;
-j) Serán instituciones de apoyo a la actividad sectorial, a través de los programas o actividades afine al Sector Industria, Energía y Minas,
-Las siguientes :
--El Ministerio de Agricultura y Ganadería.
--El Ministerio de Economía y Comercio.
--El Instituto Nacional de Aprendizaje.
+j) Serán Instituciones de apoyo a la actividad sectorial, a través de los programas o actividades afines al sector Industria, Energía y Minas, las siguientes:
+-El Ministerio de Agricultura y Ganadería;
+-El Ministerio de Economía y Comercio;
 -La Universidad de Costa Rica;
--La Escuela Centroamericana de Geología.
--El Instituto Tecnológico de Costa Rica.
--La Comisión Nacional de Energía Atómica; y
-k) Cualesquiera otras instituciones que determine el Presidente de la República atendiendo propuesta del Ministro de Industria, Energía y Minas.
+-La Escuela Centroamericana de Geología;
+-El Instituto Tecnológico de Costa Rica;
+-La Comisión Nacional de Energía Atómica.
+k) Cualesquiera otras instituciones que determine el Presidente de la República, atendiendo propuesta del Ministro de Industria, Energía y Minas.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 15290 del 20 de enero de 1984).

@@ -1,7 +1,2 @@
-Artículo 48.-Son atribuciones exclusivas del Director Subsectorial de Energía:
-a) Supervisar la ejecución del programa de trabajo aprobado por el Consejo Subsectorial;
-b) Presidir el Comité Técnico Subsectorial de Energía;
-c) Fungir como Secretario del Consejo Subsectorial de Energía, y participar en sus sesiones con derecho a voz;
-ch) Proponer a las instituciones integrantes del Subsector el nombramiento del personal técnico, administrativo y de apoyo, de la Dirección;
-d) Supervisar y controlar la aplicación de los fondos destinados al Subsector de Energía, autorizados en el respectivo presupuesto;
-e) Cualesquiera otras funciones que le asigne el Consejo Subsectorial o su Coordinador.
+Artículo 48.-La Secretaría Técnica. Subsectorial de Industria estará a cargo de un Director, nombrado y removido por el Presidente del Consejo Nacional Sectorial de Industria, Energía y Minas.
+(Así reformado mediante el artículo 7° del decreto ejecutivo N° 15290 del 20 de enero de 1984).

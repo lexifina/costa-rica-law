@@ -1,0 +1,2 @@
+Artículo 57.-Las instituciones integrantes del Subsector proveerán, mediante convenio, a la Dirección con los recursos humanos, técnicos y financieros necesarios, para lo cual la citada Dirección presentará cada año un Proyecto de Presupuesto al Consejo Subsectorial, quien lo remitirá al Ministro Rector para su aprobación; en el cual necesariamente deberán indicarse cuáles son los recursos necesarios y cuáles deberá aportar cada institución.
+(Así adicionado mediante el artículo 7° del decreto ejecutivo N° 15290 del 20 de enero de 1984).

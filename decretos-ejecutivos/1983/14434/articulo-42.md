@@ -1,15 +1,8 @@
-Artículo 42.-EI Subsector Energía estará integrado por las siguientes instituciones:
-a) El Ministerio de Industria, Energía y Minas;
-b) El Ministerio de Planificación Nacional y Política Económica;
-c) El Instituto Costarricense de Electricidad;
-ch) La Refinadora Costarricense de Petróleo, S. A.;
-d) El Servicio Nacional de Electricidad;
-e) El Consejo Nacional de Investigaciones Científicas y Tecnológicas;
-f) Serán instituciones de apoyo, a través de los programas y proyectos afines al Subsector Energía, las siguientes:
--El Ministerio de Agricultura y Ganadería;
--El Ministerio de Obras Públicas y Transportes;
--El Sistema Bancario Nacional, a través del Banco Central;
--El Instituto Nacional de Aprendizaje;
--La Universidad de Costa Rica;
--El Instituto Tecnológico de Costa Rica; y
-g) Cualesquiera otras instituciones que determine el Ministro de Industria, Energía y Minas.
+Artículo 42.-Corresponderá al Consejo Subsectorial de Industria:
+a) Las atribuciones indicadas en el artículo 38 del decreto N° 14434-MIEM-PLAN.
+b) Analizar los problemas y proponer los lineamientos específicos del Subsector, en concordancia con el Plan Nacional de Desarrollo;
+c) Coordinar los planes, programas y proyectos que presenten las instituciones involucradas en las actividades del Subsector y siempre en estrecha relación con el Ministerio de Planificación Nacional y Política Económica y con la Secretaría Técnica Subsectorial de Industria;
+ch) Conocer y proponer los ajustes que considere convenientes al Proyecto del Plan de Desarrollo del Subsector;
+d) Sugerir la formación de grupos de trabajo para la atención de problemas específicos; y
+e) En general, proponer todas aquellas medidas conducentes para alcanzar el mejor funcionamiento del Subsector.
+(Así reformado mediante el artículo 7° del decreto ejecutivo N° 15290 del 20 de enero de 1984).

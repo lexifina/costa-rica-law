@@ -14,3 +14,4 @@ Constitución del Sector Industria, Energía y Minas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-25 | la propia norma |
+| 2 | 1984-01-20 | Decreto Ejecutivo 15290 (1984-01-20) |
