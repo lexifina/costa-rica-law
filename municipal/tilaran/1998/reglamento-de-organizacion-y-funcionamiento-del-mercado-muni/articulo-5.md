@@ -1,0 +1,1 @@
+Artículo 5°—La Municipalidad coordinará y resolverá a todos los asuntos pertinentes a través del Ejecutivo, cuya autoridad estará sujeto el Guarda que se encargara de velar por el orden, el aseo, la hora de apertura y cierre del mercado y de resolver situaciones que se presenten dentro de los lineamientos establecidas por el Ejecutivo.
