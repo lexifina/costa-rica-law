@@ -13,3 +13,4 @@ Otorgamiento Concesiones y Ampliaciones a Almacenes de Depósito Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-09-13 | la propia norma |
+| 2 | 1990-09-13 | Decreto Ejecutivo 25270 (1996-06-14) |
