@@ -14,3 +14,4 @@ Reglamento de Ley de Creación Oficina del Arroz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-05-27 | la propia norma |
+| 2 | 1986-11-07 | Decreto Ejecutivo 17382 (1986-11-07) |

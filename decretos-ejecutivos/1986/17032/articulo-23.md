@@ -1,8 +1,10 @@
 CAPITULO V
 De la Junta Directiva
 Artículo 23.-La Junta Directiva de la Oficina del Arroz, estará integrada por nueve miembros, según el siguiente detalle:
-a) El Ministro de Agricultura y Ganadería o su Viceministro.
-b) El Ministro de Economía y Comercio o su Viceministro.
+a) El Ministro de Agricultura y Ganadería o su representante;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 17382 del 7 de noviembre de 1986)
+b) El Ministro de Economía y o su representante.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 17382 del 7 de noviembre de 1986)
 c) Un representante del Sistema Bancario, que deberá ser un Gerente de un banco comercial del Estado.
 e) Un representante del Sistema Bancario, que deberá' ser un Gerente de un banco comercial del Estado.
 ch) Tres representantes de los beneficiadores.
