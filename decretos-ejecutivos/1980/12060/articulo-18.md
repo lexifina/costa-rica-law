@@ -1,1 +1,1 @@
-Artículo 18.- Cada vez que la Junta Directiva del Colegio de Ingenieros Agrónomos apruebe nombramientos, realice suspensiones temporales o revoque nombramientos de regentes, deberán ser publicados en "La Gaceta" a través del Ministerio de Agricultura y Ganadería.
+ARTICULO 18.- Cada vez que la Junta Directiva del Colegio de Ingenieros Agrónomos apruebe nombramientos, realice suspensiones temporales o revoque nombramientos de regentes, deberán ser publicados en "La Gaceta" a través del Ministerio de Agricultura y Ganadería.

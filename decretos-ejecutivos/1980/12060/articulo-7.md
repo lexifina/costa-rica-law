@@ -1,2 +1,2 @@
-Artículo 7º.- Se establecen cinco categorías de regencias, las cuales se denominarán A-B-C-CH-D.
-La Junta Directiva del Colegio establecerá la categoría de acuerdo al volumen de ventas de cada establecimiento.
+ARTICULO 7º.- Se establecen las siguientes categorías de regencias: A-1, A-2, A-3, B, C, CH y D.
+(Así reformado por el artículo 1º del decreto ejecutivo No.17801 de 15 de octubre de 1987)

@@ -1,12 +1,11 @@
-Artículo 9º.- El regente supervisará el establecimiento, siendo el responsable porque en el mismo se cumplan las regulaciones contenidas en la Ley de Sanidad Vegetal y la Ley Orgánica del Colegio de Ingenieros Agrónomos y sus reglamentos en sus partes correspondientes en lo referente al manejo de plaguicidas.
+ARTICULO 9º.- El regente supervisará el establecimiento, siendo el responsable porque en el mismo se cumplan las regulaciones contenidas en la Ley de Sanidad Vegetal y la Ley Orgánica del Colegio de Ingenieros Agrónomos y sus reglamentos en sus partes correspondientes en lo referente al manejo de plaguicidas.
 Serán funciones de los regentes:
 a) Prestar asesoría técnica en el uso, manejo, venta y almacenamiento de los plaguicidas, al personal del establecimiento, cuando ellos lo requieran.
 b) Velar porque todos los productos que se vendan o distribuyan se encuentren debidamente inscritos en el Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería.
 c) Velar porque no se distribuyan o vendan productos que no lleven su correspondiente etiqueta en español.
 ch) Velar porque los productos tengan su etiqueta en buen estado y correctamente adherida al envase.
 d) Hacer saber al representante legal o encargado del negocio regentado que todo producto que se encuentre en el expendio se considera para la venta, y por consiguiente debe ajustarse a la ley y a sus reglamentos.
-e) No permitir el reempaque o reenvase de productos de uso agropecuario sin el correspondiente permiso del Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería.
-En caso de contar con el permiso respectivo para empacar o reenvasar, velar porque el local utilizado para estas labores, cumpla con los requisitos establecidos por el Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería y el Ministerio de Trabajo y Seguridad Social en lo referente a salud ocupacional.
+e) No permitir el reempaque o reenvase de productos de uso agropecuario sin el correspondiente permiso del Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería. En caso de contar con el permiso respectivo para empacar o reenvasar, velar porque el local utilizado para estas labores, cumpla con los requisitos establecidos por el Departamento de Cuarentena y Registro del Ministerio de Agricultura y Ganadería y el Ministerio de Trabajo y Seguridad Social en lo referente a salud ocupacional.
 f) Velar porque los productos se almacenen o transporten en forma que no represente peligro de derrame, rotura o deterioro.
 g) Velar porque el trasiego de productos se realice de acuerdo a la Ley de Sanidad Vegetal y su reglamento.
 h) Velar porque el local del negocio regentado cuente con los requisitos indispensables de la Ley General de Salud y sus reglamentos, en lo relativo a ubicación, acondicionamiento y seguridad, extractores de aire, duchas de emergencia, extinguidores, etc.

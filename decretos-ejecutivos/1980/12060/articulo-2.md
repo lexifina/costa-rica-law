@@ -1,4 +1,4 @@
-Artículo 2º.- Para efectos de este reglamento se entiende por:
+ARTICULO 2º.- Para efectos de este reglamento se entiende por:
 a) Colegio: El Colegio de Ingenieros Agrónomos.
 b) Junta Directiva: La Junta Directiva del Colegio de Ingenieros Agrónomos.
 c) Fertilizante: Todo producto de origen químico u orgánico que aplicado al suelo o follaje suministre uno o más nutrimentos, necesarios para el desarrollo y crecimiento de las plantas.

@@ -14,3 +14,4 @@ Reglamento de Regencias del Colegio de Ingenieros Agrónomos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-12-04 | la propia norma |
+| 2 | 1980-12-04 | SINALEVI (sin norma nombrada) |

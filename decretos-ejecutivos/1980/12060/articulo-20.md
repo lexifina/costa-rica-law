@@ -1,1 +1,1 @@
-Artículo 20.- En todo contrato de regencia se contemplará exclusivamente el pago a las funciones contempladas en el artículo 9º de este reglamento, los salarios correspondientes a labores extras deberá cancelarlas quien así las solicitara.
+ARTICULO 20.- En todo contrato de regencia se contemplará exclusivamente el pago a las funciones contempladas en el artículo 9º de este reglamento, los salarios correspondientes a labores extras deberá cancelarlas quien así las solicitara.
