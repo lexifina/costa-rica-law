@@ -17,3 +17,4 @@ Ponderación Código Cuenta Monto Total Monto Ponderado
 1/ La cuantificación de estos rubros es conforme lo señalado en el Acuerdo SUGEF 25-00 y su anexo.
 Nombre y Firma del Representante Legal Nombre y Firma del Auditor Interno
 (Así reformado por el artículo 11 del Reglamento N° 231- 2001 del 11 de junio del 2001)
+(Mediante sesión N° 258 de 16 de octubre del 2001 se reforma el detalle variable de este anexo)
