@@ -1,6 +1,6 @@
 CAPITULO I
 De la contribución especial
-Artículo 1º.- Recargo al Impuesto sobre la Renta.
+Artículo 1º.-Recargo al Impuesto sobre la Renta.
 Establécese, por una sola vez, en favor del Gobierno Central, el
 siguiente recargo al Impuesto sobre la Renta, correspondiente al período
 fiscal que finaliza el 30 de setiembre de 1982, de la siguiente manera:
@@ -13,7 +13,7 @@ Tramos de impuesto en colones Marginal
 Hasta 10.000 de impuesto... ... ... ... ... ... ... ... ...15%
 Sobre el exceso de 10.000 hasta 100.000 de impuesto ... ...20%
 Sobre el exceso de 100.000 hasta 500.000 de impuesto... ...25%
-Sobre el exceso de 500.000 de impuesto, en adelante ... ...30%
+Sobre el exceso de 500.000 de impuesto, en adelante. ... ...30%
 b) Cuando los contribuyentes mencionados no tengan que pagar impuesto
 sobre la renta, en el citado período fiscal, por gozar de exención en
 virtud de contratos industriales o forestales concedidos con base en el
