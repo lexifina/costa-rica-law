@@ -1,0 +1,1 @@
+Artículo 24.—Aquellas personas físicas o jurídicas que para efectos del Impuesto sobre la Renta tengan responsabilidades separadas, pero que operen en un mismo establecimiento, deberán presentar una declaración conjunta para efectos del impuesto de Patentes, designando a una de las personas físicas o jurídicas involucradas, como responsable solidaria ante la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 8º—Cuando resultare evidente el abandono de una actividad, y previo informe de la Oficina de Contabilidad, el Alcalde procederá a suspender la licencia del patentado en cuestión; sin que ello le exima de la suma que adeude a la fecha por esa actividad lucrativa.

@@ -1,0 +1,1 @@
+Artículo 28.—Los patentados que no sean declarantes del impuesto sobre la renta, deberán acompañar a su declaración de impuesto de Patente Municipal, una certificación de ingresos extendida por un Contador Público Autorizado.

@@ -1,0 +1,1 @@
+Artículo 26.—La Administración Municipal podrá solicitar al patentado una certificación de la Dirección General de Tributación, sobre las características determinantes del impuesto según su declaración de Impuesto sobre la Renta, en los casos en que no hubiere aportado la constancia aludida en el artículo siguiente, estando en la condición de declarante para ese impuesto.

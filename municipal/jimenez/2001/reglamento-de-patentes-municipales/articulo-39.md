@@ -1,0 +1,4 @@
+Artículo 39.—Se procederá al cierre del negocio o establecimiento comercial conforme lo dispuesto por el artículo 13 de la Ley Nº 7924, de acuerdo al siguiente procedimiento:
+- El patentado tenga un atraso de dos o más trimestres.
+- Deberá la Administración notificar al patentado en dos ocasiones. La segunda notificación deberá hacerse transcurridos como mínimo cinco días hábiles de enviada la primera, en el caso de que el patentado hubiera hecho caso omiso de la primera notificación.
+- De no acatar las dos notificaciones anteriores, se le enviara un tercer aviso concediéndosele un plazo improrrogable de cinco días hábiles para cancelar el total de lo adeudado, si vencido el plazo, el patentado no ha acatado la notificación, se procederá de inmediato al cierre del negocio o establecimiento comercial.
