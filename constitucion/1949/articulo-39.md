@@ -1,0 +1,2 @@
+Artículo 39.-- A nadie se le hará sufrir pena sino por delito, cuasidelito o falta, sancionados por ley anterior y en virtud de sentencia firme dictada por autoridad competente, previa oportunidad concedida al indiciado para ejercitar su defensa y mediante la necesaria demostración de culpabilidad.
+N o constituyen violación a este artículo o a los dos anteriores, el apremio corporal en materia civil o de trabajo o las detenciones que pudieren decretarse en las insolvencias, quiebras o concursos de acreedores.

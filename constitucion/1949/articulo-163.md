@@ -1,0 +1,1 @@
+Artículo 163.-La elección de Magistrados de la Corte Suprema de Justicia se hará en una de las diez sesiones anteriores al vencimiento del período respectivo; la reposición, en cualquiera de las ocho posteriores a aquélla en que se comunique haber ocurrido una vacante.

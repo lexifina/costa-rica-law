@@ -1,0 +1,1 @@
+Artículo 166.-En cuanto a lo que no esté previsto por esta Constitución, la ley señalará la jurisdicción, el número y la duración de los tribunales, así como sus atribuciones, los principios a los cuales deben ajustar sus actos y la manera de exigirles responsabilidad.

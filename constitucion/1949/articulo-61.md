@@ -1,0 +1,1 @@
+Artículo 61.--Se reconoce el derecho de los patronos al paro y el de los trabajadores a la huelga, salvo en los servicios públicos, de acuerdo con la determinación que de éstos haga la ley y conforme a las regulaciones que la misma establezca, las cuales deberán desautorizar todo acto de coacción o de violencia.

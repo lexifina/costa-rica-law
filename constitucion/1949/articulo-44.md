@@ -1,0 +1,1 @@
+Articulo 44.-Para que la incomunicación de una persona pueda exceder de cuarenta y ocho horas, se requiere orden judicial; sólo podrá extenderse hasta por diez días consecutivos y en ningún caso impedirá que se ejerza la inspección judicial.

@@ -1,0 +1,1 @@
+Artículo 37.-- Nadie podrá ser detenido sin un indicio comprobado de haber cometido delito, y sin mandato escrito de juez o autoridad encargada del orden público, excepto cuando se tratare de un reo prófugo o delincuente in fraganti; en todo caso deberá ser puesto a disposición de juez competente dentro del termino perentorio de veinticuatro horas.

@@ -1,0 +1,3 @@
+Artículo 112.-La función legislativa es también incompatible con el ejercicio de todo otro cargo público de elección popular.
+Los Diputados no pueden celebrar, ni directa ni indirectamente, o por representación, contrato alguno con el Estado, ni obtener concesión de bienes públicos que implique privilegio, ni intervenir como directores, administradores o gerentes en empresas que contraten con el Estado, obras, suministros o explotación de servicios públicos.
+La violación a cualquiera de las prohibiciones consignadas en este artículo o en el anterior, producirá la pérdida de la credencial de Diputado. Lo mismo ocurrirá si en el ejercicio de un Ministerio de Gobierno, el Diputado incurriere en alguna de esas prohibiciones.
