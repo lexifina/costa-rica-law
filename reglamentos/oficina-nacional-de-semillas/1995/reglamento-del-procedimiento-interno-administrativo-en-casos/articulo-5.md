@@ -1,0 +1,1 @@
+Artículo 5°—El Órgano se compondrá de tres personas: El Director Ejecutivo (salvo que esté involucrado y que en su lugar estará un miembro de Junta Directiva), un funcionario de la Oficina Nacional de Semillas y el responsable de la Asesoría Legal.

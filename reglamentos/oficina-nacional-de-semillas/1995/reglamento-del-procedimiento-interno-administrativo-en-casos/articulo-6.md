@@ -1,0 +1,1 @@
+Artículo 6°—Si el responsable de la Asesoría Legal está involucrado, quien nombra al Órgano determinará quién será la tercera persona que lo conforma, que podrá ser otro funcionario de la Oficina. En cualquiera de los casos, el Órgano podrá solicitar colaboración de la Defensoría de los Habitantes.

@@ -1,0 +1,1 @@
+Artículo 11.—La resolución tendrá recurso de apelación ante el Titular, que deberá ser interpuesto dentro de los siguientes tres días hábiles a la(s) fecha(s) en que el denunciante u denunciado respectivamente recibieron la notificación de la Resolución , respectiva.

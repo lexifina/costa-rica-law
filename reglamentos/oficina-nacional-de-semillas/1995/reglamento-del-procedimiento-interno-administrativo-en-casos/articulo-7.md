@@ -1,0 +1,1 @@
+Artículo 7°—El procedimiento resguardará la imagen y confidencialidad de los involucrados. Cualquier in confidencialidad comprobada será considerada como falta muy grave y ameritará sanción de acuerdo con el Código de Trabajo o lo que determinen los Tribunales de Justicia.
