@@ -1,0 +1,3 @@
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 87-2003, celebrada el 18 de noviembre de 2003, artículo LIV, dispuso reiterarles la circular N° 01-2003, publicada en el Boletín Judicial N° 169 del 3 de setiembre de 2003, en el sentido de que los exhortos dirigidos a las autoridades extranjeras, deben diligenciarse por medio de la Secretaría de la Corte Suprema de Justicia, la cual, a su vez, los remitirá al Ministerio de Relaciones Exteriores. Esta entidad será la encargada de diligenciar con su homóloga en el país extranjero, lo solicitado en el exhorto.
+San José, 16 de diciembre del 2003.
