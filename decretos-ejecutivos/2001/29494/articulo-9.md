@@ -1,0 +1,1 @@
+Artículo 9º—En caso de renuncia del citado Representante deberá comunicarlo por escrito, al Poder Ejecutivo con al menos 15 días de antelación, debiendo procederse al trámite de sustitución a la brevedad posible.

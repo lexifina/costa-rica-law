@@ -1,0 +1,1 @@
+Artículo 3º—El Poder Ejecutivo para la designación correspondiente, valorará las personas propuestas por la Junta Administración de la Fundación, así como, cualesquiera otras que considere idóneas para dicho puesto. El nombramiento deberá realizarlo el Poder Ejecutivo dentro del mes siguiente a la solicitud, acto administrativo que deberá ser notificado a la Fundación.
