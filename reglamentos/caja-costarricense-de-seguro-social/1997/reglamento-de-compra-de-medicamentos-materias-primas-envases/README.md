@@ -19,3 +19,4 @@ Reglamento de Compra de Medicamentos, Materias Primas, Envases, Empaques y React
 | 4 | 2000-05-11 | Reglamento 7441 (2000-05-11) |
 | 5 | 2000-08-10 | Reglamento 7468 (2000-08-10) |
 | 6 | 2000-11-09 | Reglamento 7495 (2000-11-09) |
+| 7 | 2001-02-08 | Reglamento 7522 (2001-02-08) |

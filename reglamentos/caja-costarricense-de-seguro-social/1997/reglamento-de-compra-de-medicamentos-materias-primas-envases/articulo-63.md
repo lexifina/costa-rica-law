@@ -1,2 +1,3 @@
-Artículo 63.—La Caja se reserva la facultad de rechazar todas las ofertas o de efectuar adjudicaciones parciales si así conviniere a sus intereses. Para efectos del proceso del historial del producto se pueden hacer adjudicaciones parciales; según se establece en el artículo 62.
-En caso de adjudicación parcial se podrá, según las necesidades, adecuar las entregas proporcionalmente a lo solicitado y ofrecido.
+Artículo 63.—La Caja se reserva la facultad de rechazar todas las ofertas si así conviniere a sus intereses.
+Se aceptarán cotizaciones parciales, excepcionalmente cuando se enfrenten situaciones de urgencia apremiante y así se exprese en el cartel del concurso. La Caja se reserva el derecho de hacer las adjudicaciones parciales para solventar dicha situación.
+(Así reformado total y expresamente por el Reglamento No. 7522 de 08 de febrero de 2001)
