@@ -1,0 +1,1 @@
+Art 2° Los agraciados que se consideren con derecho a continuar disfrutado de esas pensiones que no haber cesado las causas que las motivaron, lo solicitarán así ante el Congreso en el mes de Mayo del año citado, para que éste las reconsidere.
