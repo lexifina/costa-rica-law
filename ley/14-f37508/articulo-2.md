@@ -1,0 +1,1 @@
+Artículo 2°. —Facúltase á la dicha Municipalidad para levantar un empréstito interior de siete mil colones (₡7,000-00) con interés de 9 por ciento al año y con garantía de la renta de agua en las condiciones que oportunamente apruebe el Poder Ejecutivo.
