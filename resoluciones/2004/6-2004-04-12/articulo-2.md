@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante el Decreto Ejecutivo Nº 31605-H de 12 de enero del 2004, publicado en La Gaceta Nº 21 del 30 de enero del 2004.
