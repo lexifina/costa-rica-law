@@ -16,7 +16,7 @@ Considerando
 10. Que el bosque la Mula forma parte integral del humedal de Palo Verde, el cual es de interés internacional para protección de aves acuáticas, reconocido oficialmente como un SITIO RAMSAR desde enero de 1992.
 11. Que el bosque la Mula y áreas adyacentes constituye un corredor biológico entre el Parque Nacional Palo Verde y la Reserva Biológica Lomas Barbudal, lo que es de mucha importancia para el mantenimiento de diversas especies.
 12. Que el bosque la Mula contiene una excelente población natural de pochote (Bombacopsis quinatum). que constituye un importante reservorio genético y fuente potencial de semillas para la investigación y manejo de esa especie.
-13. Que en estudios científicos efectuados en el bosque la Muía, se han identificado cerca de 80 especies de aves, más de 100 especies de mamíferos (un 60% de murciélagos), varias especies de reptiles, entre los que sobresale el Crocodylus acutus. 100 especies de plantas, entre las que sobresale Bombacopsis quinatum.
+13. Que en estudios científicos efectuados en el bosque la Mula, se han identificado cerca de 80 especies de aves, más de 100 especies de mamíferos (un 60% de murciélagos), varias especies de reptiles, entre los que sobresale el Crocodylus acutus. 100 especies de plantas, entre las que sobresale Bombacopsis quinatum.
 Por tanto,
 DECRETAN:
 Artículo 1.— Amplíase el Parque Nacional Palo Verde, incorporándole el corredor biológico del bosque la Mula, en el área comprendida dentro de los límites que se describen a continuación, según los mapas básicos del Instituto Geográfico Nacional, hoja cartográfica Tempisque 3147 III escala 1: 50000.
@@ -35,3 +35,4 @@ Este último punto, ubicado en el borde del camino público que va de Bagatzí a
 N | 264076.37 | E | 391662.28
 N | 263303.69 | E | 392380.76
 Este último punto ubicado en la margen izquierda de un drenaje. Continúa el límite aguas abajo por la margen izquierda del drenaje, hasta intersectar la quebrada la Mula en su margen izquierda, en un punto de coordenadas N 263429.73 E 392943.15. Continúa el límite aguas abajo por la margen izquierda de la quebrada la Mula hasta el punto de coordenadas N 262787.01 E 393391.36 que corresponde al inicio de la presente descripción.
+(Derogado parcialmente por el artículo 3 del decreto ejecutivo N°31591 del 18 de noviembre del 2003 ... únicamente en cuanto a la definición de los límites del área silvestre protegida, manteniéndose vigente las demás disposiciones).

@@ -14,3 +14,4 @@ Amplía área del Parque Nacional Palo Verde
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-21 | la propia norma |
+| 2 | 2003-11-18 | Decreto Ejecutivo 31591 (2003-11-18) |
