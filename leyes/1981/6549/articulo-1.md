@@ -1,10 +1,11 @@
-Artículo 1º.- Ratifícase el Convenio Nº 147, sobre normas mínimas de
-la marina mercante, adoptado por la Conferencia Internacional del Trabajo,
-en su sexagésima segunda reunión, celebrada en 1976, cuyo texto es el
+Artículo 1º.- Ratifícase el Convenio Nº 147, sobre normas mínimas de la
+marina mercante, adoptado por la Conferencia Internacional del Trabajo, en
+su sexagésima segunda reunión, celebrada en 1976, cuyo texto es el
 siguiente:
 Convenio 147
 CONVENIO SOBRE LAS NORMAS MINIMAS DE LA MARINA MERCANTE
-La Conferencia General de la Organización Internacional del Trabajo:
+La Conferencia General de la Organización Internacional del
+Trabajo:
 Convocada en Ginebra por el Consejo de Administración de la Oficina
 Internacional del Trabajo, y congregada en dicha ciudad el 13 de octubre de
 1976 en su sexagesimasegunda reunión;
