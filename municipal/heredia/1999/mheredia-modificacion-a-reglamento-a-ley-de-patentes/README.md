@@ -14,3 +14,4 @@ MHEREDIA: Modificación a Reglamento a Ley de Patentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-07 | la propia norma |
+| 2 | 2000-03-07 | Ley 7 |
