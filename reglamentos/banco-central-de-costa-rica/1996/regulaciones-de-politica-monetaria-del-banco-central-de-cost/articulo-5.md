@@ -26,6 +26,7 @@ Las presentes Regulaciones de Política Monetaria rigen a partir de su publicaci
 4) Autorizar a los Departamentos Hipotecarios de los bancos comerciales a emitir los bonos a las tasas de interés, amortización, plazo y demás condiciones que estimen convenientes. Lo anterior, según lo estipulado en el artículo 132 de la Ley Orgánica del Sistema Bancario Nacional.
 5) Aclarar que, para efectos de la reforma que se hizo del artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social (N° 17) del 22 de octubre de 1943, la definición de pequeño productor agropecuario por parte del Banco Central será igual a la utilizada y definida por el Banco Nacional de Costa Rica.
 6) Dejar sin efecto los numerales 2 y 3 del artículo 5° del acta de la sesión 4801-95 del 15 de febrero de 1995, relacionados con el mecanismo denominado "mesas de dinero".
-(*) III. Tasa equivalente a 180 días de la tasa promedio ponderada de la Subasta Conjunta.
-La tasa equivalente a 180 días de la tasa promedio ponderada de la Subasta Conjunta es aquella tasa que extrapola el rendimiento promedio de los títulos ofrecidos en el plazo de referencia de seis meses y a un plazo diferente a los 180 días, de acuerdo con las tasas de referencia establecidas por la Junta Directiva del Banco Central de Costa Rica, para convertirlo en un rendimiento semejante al de un titulo emitido a 180 días.
-(*) (Así adicionado el numeral anterior en sesión N° 5063 del 10 de enero de 2001)
+(*)(**)III. Tasa equivalente de las operaciones de mercado abierto del BCCR.
+La tasa equivalente a cada plazo de referencia para las operaciones de mercado abierto del BCCR es aquella tasa que extrapola el rendimiento promedio resultante de los títulos ofrecidos en un plazo específico en un evento competitivo de subasta, al plazo de referencia correspondiente. Los plazos de referencia serán de 90, 180, 270, 360, 720, 1080 y 1800 días.
+(**)(Así reformado el numeral anterior en sesión N° 5186 del 11 de febrero de 2004)
+(*)(Así adicionado el numeral anterior en sesión N° 5063 del 10 de enero de 2001)
