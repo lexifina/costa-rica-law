@@ -1,8 +1,4 @@
 De las Asambleas Generales de los Colegios
-Artículo 35.- La Asamblea General de cada uno de los colegios miembros
-estará integrada por los miembros activos del respectivo colegio, quienes
-tendrán voz y voto. La antelación para convocarlos será de tres días y el
-aviso respectivo deberá publicarse una vez en dos diarios de circulación
-nacional. El quórum será el cinco por ciento de los miembros activos al
-treinta y uno de octubre del año anterior, pero en ningún caso podrá ser
-menor de quince miembros activos.
+Artículo 35.—La asamblea general de cada colegio miembro estará integrada por los miembros activos del respectivo colegio, quienes tendrán voz y voto. La convocatoria deberá realizarse con tres días de antelación y el aviso respectivo deberá publicarse una vez en dos diarios de circulación nacional.
+En primera convocatoria, el quórum será del cinco por ciento (5%) de los miembros que permanezcan activos al treinta y uno de octubre del año anterior. Si no se alcanza dicho porcentaje las asambleas podrán sesionar el mismo día en segunda convocatoria, treinta minutos después de vencida la primera de ellas, con los miembros activos presentes, siempre y cuando el número de miembros participantes sea de diecisiete personas como mínimo.
+(Así reformado mediante Ley N° 8177 de 17 de diciembre del 2001)
