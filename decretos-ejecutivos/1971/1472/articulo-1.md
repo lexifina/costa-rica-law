@@ -1,0 +1,14 @@
+N° 1472-MIC
+EL PRESIDENTE DE LA REPÚBLICAY EL MINISTRO DE INDUSTRIA Y COMERCIO
+Resultando:
+1°.- Que el señor Lino Veronese Peron, mayor, casad, técnico industrial, italiano, vecino de San José, con cédula de residencia N° 103-53123-991 ( ciento tres-cincuenta y tres mil ciento veintitrés-novecientos noventa y uno) en su calidad de Presidente de la sociedad “Fabricación Industrial Artística Italiana, Sociedad Anónima”, segpun consta en la Sección Mercantil del Registro Público al tomo 76 (setenta y seis), folio 367 ( trescientos sesenta y siete), asiento 214 (doscientos catorce), en escrito presentado el 3 de diciembre de 1969, solicita clasificación en el Grupo A Nueva del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial para el establecimiento de una planta destinada a la producción de bombas para fumigar.
+2°.- La solicitud de “Fabricación Industrial Artística Italiana, Sociedad Anónima” se tramitó de acuerdo con las disposiciones del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial y la Comisión Asesora Nacional en sesión N° 54 celebrada el 16 de octubre de 1970, analizó la solicitud en sus diversos aspectos y acordó manifestar que la industria clasifica en el Grupo “B” establecida del artículo 5° del Convenio y en consecuencia le corresponde disfrutar de los beneficios estipulados en el artículo 14 mencionado Convenio.
+Considerando:
+Que se ha cumplido con lo prescrito en el Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial.
+Por tanto,
+Decretan:
+Artículo 1°.- Conceder a “Fabricación Industrial Artística Italiana, Sociedad Anónima” para su planta industrial destinada a la manufactura de bombas para fumigar de conformidad con la clasificación que le corresponde de acuerdo con el Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial, los siguientes beneficios a partir de la fecha u por los plazos que en cada caso se indican:
+a) Franquicia aduanera total sobre la maquinaria y equipo necesarios en la planta. Este beneficio lo disfrutará durante cinco años contados a partir de la fecha en que la empresa realice la primera importación de cualquiera de esos bienes.
+b) Exención del monto que le corresponda por concepto de Impuesto sobre la Renta por aquella parte de las utilidades que la empresa reinvierta en maquinaria y equipo.
+Este beneficio lo disfrutará cajo las condiciones del artículo 9° del Convenio Centroamericano de Incentivos Fiscales al Desarrollo Industrial a partir de la fecha en que este decreto se publique en “La Gaceta”.
+Es entendido que las franquicias aduanera sobre la importaciones, las disfrutará el empresario sujeto a las disposiciones del artículo IX del Tratado General de Integración Económica Centroamericana y las disposiciones reglamentarias correspondientes a su aplicación.
