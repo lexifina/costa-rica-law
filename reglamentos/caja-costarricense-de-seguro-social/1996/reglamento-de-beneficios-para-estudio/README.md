@@ -14,3 +14,4 @@ Reglamento de Beneficios para Estudio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-20 | la propia norma |
+| 2 | 1998-06-23 | Reglamento 7235 (1998-06-23) |
