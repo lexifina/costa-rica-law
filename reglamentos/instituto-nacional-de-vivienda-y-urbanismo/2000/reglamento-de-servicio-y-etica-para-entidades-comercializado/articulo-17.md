@@ -1,0 +1,1 @@
+Articulo 17.—En los casos previstas en el articulo anterior y si la suspensión fuere parcial, los entidades comercializadoras deberán, de acuerdo con las instrucciones que reciban, concentrar sus esfuerzos de venta en los planes que se señalen como más convenientes al Sistema de Ahorro y Préstamo.

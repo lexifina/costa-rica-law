@@ -1,0 +1,1 @@
+Artículo 20.—Este Reglamento podrá ser modificado y aun derogado por la Junta Directiva del Instituto, cuando lo considere conveniente, sin perjuicio de las condiciones contractuales establecidas con anterioridad con las Entidades Comercializadoras.

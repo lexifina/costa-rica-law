@@ -1,0 +1,1 @@
+Artículo 4°—La selección será de acuerdo a la evaluación de las ofertas en la Licitación pública para las Agencias Comercializadoras, ó a lo establecido en la Ley N° 7407 de Sociedades Anónimas Laborales.
