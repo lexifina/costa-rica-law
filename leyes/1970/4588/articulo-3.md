@@ -1,0 +1,1 @@
+Artículo 3º.- El Poder Ejecutivo designará los miembros que se requieran para completar la Comisión, si se produjere alguna vacante y para quienes sean designados regirán las mismas condiciones contempladas en el artículo 1º.
