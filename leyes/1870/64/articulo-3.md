@@ -1,0 +1,1 @@
+Artículo 3°. -Las atribuciones de estos Jefes de Policía ser n las mismas que las ordenanzas Municipales de 24 de Julio de 1867 y las demás leyes que estas dejan vigentes, señalan a los Jefes Políticos de cantón, las cuales ser n extensivas a toda la Provincia.
