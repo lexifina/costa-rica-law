@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro administrativo, extrajudicial y judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-05 | la propia norma |
+| 2 | 2004-07-12 | Reglamento municipal 156 (2004-07-12) |
