@@ -1,1 +1,2 @@
-Artículo 35: El Sistema mediante los convenios que existan con la Caja Costarricense del Seguro Social, cancelará el subsidio por incapacidad que corresponda, para evitar que el funcionario se desplace a los lugares de pago. Igualmente lo hará con el subsidio que paga el Instituto Nacional de Seguros en el caso de accidentes laborales. El Sistema se compromete a ajustar el monto necesario al subsidio del INS, para que el trabajador reciba su salario ordinario normal (100%) en períodos de incapacidad.
+Artículo 35.—Cualquier otro sobresueldo no mencionado líneas atrás, requerirá para su reconocimiento o pago un acuerdo específico por parte de la Dirección del Sistema.
+(Así reformado por acuerdo tomado en sesión de 18 de marzo del 2002)

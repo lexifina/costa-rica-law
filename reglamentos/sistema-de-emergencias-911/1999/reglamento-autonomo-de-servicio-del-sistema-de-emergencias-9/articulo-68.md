@@ -1,4 +1,2 @@
-Artículo 68: El despido se efectuará, sin responsabilidad para el patrono:
-a) Cuando al trabajador se le haya impuesto suspensión en tres ocasiones, e incurra en causal para una cuarta suspensión dentro del período de tres meses, ya que se considerará la repetición de infracciones como conducta irresponsable y contraria a las obligaciones del contrato o relación laboral.
-b) En los casos especialmente previstos en este Reglamento; y
-c) Cuando el trabajador incurra en alguna de las causales previstas en el artículo 81 del Código de Trabajo.
+Artículo 68.—Todas las sanciones disciplinarias deberán imponerse dentro del mes posterior al día en que se cometió la falta o a la fecha en que el expediente administrativo, correspondiente al procedimiento disciplinario llevado a cabo le sea entregado al órgano competente para aplicar la sanción. En materia de ausencias y llegadas tardías, las mismas se computarán dentro de cada mes calendario y se sancionará la falta en el mes calendario siguiente.
+(Así reformado por acuerdo tomado en sesión de 18 de marzo del 2002)

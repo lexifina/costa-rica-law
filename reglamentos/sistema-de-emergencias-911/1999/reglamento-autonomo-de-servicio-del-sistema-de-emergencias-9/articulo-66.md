@@ -1,6 +1,5 @@
-Artículo 66: El apercibimiento escrito se aplicará:
-a) Cuando se haya amonestado al trabajador en los términos del artículo anterior e incurra nuevamente en la misma falta.
-b) Cuando incumpla alguna de las obligaciones establecidas en el artículo 71 del Código de Trabajo o en el artículo 48 anterior, si la falta no da mérito para una sanción mayor;
-(Corregido mediante Fe de Erratas, publicada en La Gaceta N° 84 del 3 de mayo de 2000).
-c) En los casos especialmente previstos en este Reglamento; y
-d) Cuando las leyes de trabajo exijan la amonestación escrita antes del despido.
+Artículo 66.—La suspensión del trabajo se aplicará hasta por ocho días y sin goce de salario, previa celebración de diligencias que garanticen el debido proceso al empleado:
+a) Cuando el trabajador, después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación;
+b) Cuando el trabajador viole alguna de las prohibiciones del artículo 72 del Código de Trabajo, en la Ley General de la Administración Pública o en cualesquier otra ley aplicable a los empleados del sector público, o del artículo 49 anterior, salvo que la falta dé mérito para el despido, o esté sancionada por otra disposición de este Reglamento; y
+c) Cuando el trabajador cometa alguna falta de cierta gravedad que no dé mérito para el despido, excepto si está sancionada de manera especial por otra disposición de este Reglamento.
+(Así reformado por acuerdo tomado en sesión de 18 de marzo del 2002)
