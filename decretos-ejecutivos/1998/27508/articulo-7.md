@@ -1,0 +1,1 @@
+Artículo 7°.- Loa establecimientos utilizarán los fondos presupuestados en la adquisición de bienes y servicios contemplados en el respectivo plan de compras. La ejecución no podrá exceder los ingresos del establecimiento por este concepto. Cada establecimiento llevará su propio control presupuestario.

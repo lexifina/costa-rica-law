@@ -1,0 +1,1 @@
+Artículo 10.- Sin que ello condicione la presatación de los servicios que brinda la Institución, los funcionarios del Ministerio de Salud podrán colicitar el aporte de contribuciones coluntarias, las que serán depositadas en las cuentas bancarias a que hace referencia el artículo 2° del presente Reglamento.

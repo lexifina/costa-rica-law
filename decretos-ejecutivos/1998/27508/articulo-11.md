@@ -1,0 +1,1 @@
+Artículo 11.- La Administración Regional y la Dirección Administrativa, por medio de las unidades admnistrativas competentes, deberán incluir al personal de los establecimientos sobre la presupuestación de los recursos y la metodología de los reembolsos, además de supervisar las dependencias para que este Reglamento se cumpla en todos sus extremos.
