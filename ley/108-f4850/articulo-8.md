@@ -1,0 +1,1 @@
+Art. 8. Los que en los plazos señalados no satisfaciesen las cantidades que se le hubiese asignado, serán ejecutados por el Juez de hacienda; á cuyo efecto acisará á este la Administración principal, cumplido que sea cualquiera de los términos á que se falte; y entre nueve días, el expresado Juez evacuará el expediente hasta fenecerlo.
