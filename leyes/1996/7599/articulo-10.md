@@ -1,6 +1,1 @@
-ARTICULO 10.- Derechos de inscripción
-No se cobrará a los titulantes por derechos de inscripción en el
-Registro Público. Quedan exentos de toda clase de timbres los testimonios
-de escrituras otorgadas o ejecutorias a los titulantes y para ser
-inscritas no será necesario que ostenten el anotado del Departamento
-Territorial de la Administración Tributaria.
+ARTICULO 10.- Anulado. (Anulado este artículo por resolución de la Sala Constitucional No. 8560-2001, del 28 de agosto de 2001.)

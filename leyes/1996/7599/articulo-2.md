@@ -1,5 +1,1 @@
-ARTICULO 2.- Traspaso
-Para desarrollar los programas de titulación referidos, el Instituto de Desarrollo Rural(*) gestionará ante el Poder Ejecutivo que le sea traspasada la propiedad de las tierras comprendidas en esas zonas. Los terrenos serán inscritos en el Registro Público a nombre del Instituto, sin perjuicio de los derechos ya inscritos sobre porciones determinadas dentro del perímetro general de la zona respectiva, ni de los derechos objeto de información posesoria en trámite en el momento de publicarse en La Gaceta el decreto al que se refiere el artículo 7 de esta ley o los que se inscriban en el futuro conforme a la ley, ni de las porciones destinadas al uso público.
-(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
-Para efectos de inscripción en el Registro, estas zonas serán identificadas y descritas como indique el Catastro Nacional.
-Al segregarse las porciones adjudicadas de conformidad con esta ley, no será necesaria la descripción del resto que se reserve el Instituto.
+ARTICULO 2.- Anulado. (Anulado este artículo por resolución de la Sala Constitucional No. 8560-2001, del 28 de agosto de 2001.)
