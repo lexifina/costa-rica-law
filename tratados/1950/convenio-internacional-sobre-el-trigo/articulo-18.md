@@ -1,0 +1,4 @@
+Cooperación con otras organizaciones intergubernamentales
+ARTICULO XVIII
+1°-El Consejo hará los arreglos que sean necesarios para consultar y cooperar con los organismos apropiados de las Naciones Unidas y sus instituciones especializadas así como con las demás organizaciones intergubernamentales.
+2°-Si encuentra el Consejo qué términos de este Convenio son materialmente incompatibles con las obligaciones que las Naciones Unidas directamente o por conducto de sus organismos apropiados e instituciones especializadas pudieran establecer en relación con los convenios intergubernamentales sobre productos de primera necesidad, se considerará esta incompatibilidad como una circunstancia que afecta adversamente la marcha de este Convenio y entonces se procederá conforme se especifica en los párrafos 3°, 4° y 5° del artículo XXII.
