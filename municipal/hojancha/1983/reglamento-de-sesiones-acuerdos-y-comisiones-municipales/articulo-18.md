@@ -1,0 +1,1 @@
+Artículo 18°:-El presidente municipal calificará los asuntos de trámite urgente y ordenará a la secretaría incluirlos en la orden del día. En sesión podrán incluirlos en la orden del día. En sesión podrán incluirse asuntos de trámite urgente por iniciativa del presidente o de uno o más regidores, si el Concejo así lo acuerda por simple mayoría.

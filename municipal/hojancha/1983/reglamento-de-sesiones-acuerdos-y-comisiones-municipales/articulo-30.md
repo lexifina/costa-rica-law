@@ -1,0 +1,1 @@
+Artículo 30.- Son mociones de orden las se presenten para regular el debate; para prorrogarle el uso de la palabra a un regidor para alterar el orden del día y aquella que el presidente califique como tales. En este último caso si algún regidor tuviere opinión contraria al criterio del presidente, podrá apelar ante el Concejo y éste decidirá por simple mayoría de votos

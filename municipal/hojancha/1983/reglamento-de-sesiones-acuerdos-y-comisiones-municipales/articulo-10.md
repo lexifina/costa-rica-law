@@ -1,0 +1,1 @@
+Artículo 10°.- Si en el curso de una sesión se rompiere el quórum, el Presidente por medio del secretario instará a los regidores que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos diez minutos sin que pueda restablecerse el quórum, se levantará la sesión. Los regidores remisos perderán el derecho al devengar la dieta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 36:-Toda comisión estará integrada por tres miembros, estos deberán escogerse necesariamente de entre los regidores propietarios y suplentes. Podrán integrar estas comisiones funcionarios o empleados de la Municipalidad y personas ajenas a ella. Los jefes de departamentos formarán parte de las comisiones.

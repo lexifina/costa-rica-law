@@ -1,0 +1,1 @@
+Artículo 26.- El Recurso de revisión procederá contra los acuerdos que no hubieren sido declarados firmes y deberá presentarse ante de ser aprobada el acta. La misma mayoría requerida para dictar el acuerdo sobre el que se solicite revisión será necesario para acordar ésta. Aceptada la revisión, el presidente podrá en discusión el asunto a que se refiere el acuerdo.
