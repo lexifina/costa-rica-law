@@ -1,0 +1,1 @@
+6°.- En todo caso de operaciones de compraventa de bienes y servicios gravados con los impuestos en mención, en que la Institución no presente la orden de compra el vendedor deberá consignar y cobrar el impuesto en la factura.

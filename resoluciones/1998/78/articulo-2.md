@@ -1,0 +1,1 @@
+Artículo 2°.- Esta disposición se aplicará siempre y cuando las adquisiciones se realicen mediante órdenes de compras a nombre de la Institución. Estas órdenes de compra deberán ser firmadas por el Representante Legal del Banco Interamericano de Desarrollo o por la persona debidamente autorizada por éste para efectuar compras exentas de impuestos a nombre de la Institución.

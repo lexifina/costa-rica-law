@@ -1,0 +1,1 @@
+5°.- La factura deberá contener adicionalmento a los datos que normalmente se exigen: el nombre de la Institución beneficiaria: el número y fehca de la orden de compra, así como expresa manifesación de que la compra en referencia está exenta de los Impuestos General sobre las Ventas y Selectivo de Consumo, según corresponda.
