@@ -1,0 +1,1 @@
+Artículo 7°—Con vista del estado de los saldos correspondientes a cada categoría, al finalizar cada mes podrá la Junta, con aprobación del Consejo y si se estimare prudente o conveniente para facilitar los pagos, traspasar cualquier sobrante que hubiere, de cualquiera de los apartes enumerados en el artículo anterior a otro de dicho apartes.
