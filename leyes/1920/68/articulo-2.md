@@ -1,0 +1,1 @@
+Artículo 2°- Los ganaderos podrán exportar una cantidad de ganado gordo equivalente al setenta y cinco por ciento del ganado que se importe al país, quedando el veinticinco por ciento restante para el consumo interior y facultado el Poder Ejecutivo podrá aumentar esa reserva hasta el cuarenta por ciento, si las necesidades del abastecimiento público así lo exigieren.
