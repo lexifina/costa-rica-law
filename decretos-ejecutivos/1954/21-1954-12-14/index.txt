@@ -44,8 +44,8 @@ articulo-40.md
 articulo-41.md
 articulo-42.md
 articulo-43.md
-articulo-44.md
 articulo-44-bis.md
+articulo-44.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
@@ -72,7 +72,7 @@ articulo-67.md
 articulo-68.md
 articulo-69.md
 articulo-70.md
-articulo-70-2.md
+articulo-71.md
 articulo-72.md
 articulo-73.md
 articulo-74.md
