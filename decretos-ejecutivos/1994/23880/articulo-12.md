@@ -1,3 +1,3 @@
 CAPITULO IV
 De la selección de personal
-Artículo 12.- La Dirección de Recursos Humanos informará mediante circular, el concurso externo para llenar las vacantes de los diferentes cuerpos de policía en todo el país, de ahí que para tal efecto los jefes de las unidades policiales remitirán un informe mensual sobre las vacantes existentes.
+Artículo 12.- (Derogado por el artículo 26 (actual 28) del decreto ejecutivo N° 30381 del 2 de mayo de 2002)
