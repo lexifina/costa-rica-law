@@ -1,0 +1,1 @@
+Artículo 8°-Cuando alguno de los concejales propietarios nombrado pierda sus credenciales o renuncia voluntariamente como tal, el Concejo Municipal procederá a designar otro propietario de entre los suplentes que correspondan, escogiendo además de la lista de 15 dirigentes propuesta anteriormente, si o los suplentes necesarios para volver a completar al Concejo de Distrito.

@@ -1,0 +1,1 @@
+Artículo 31.-Para el período comprendido entre 1999 y hasta el 2002, fungirán como Concejales, las personas nombradas y que serán ratificadas en Sesión Extraordinaria a celebrarse entre ello de mayo y el 31 de octubre de 1999.

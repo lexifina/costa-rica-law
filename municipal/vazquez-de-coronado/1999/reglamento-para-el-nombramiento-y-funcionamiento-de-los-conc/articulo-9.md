@@ -1,0 +1,1 @@
+Artículo 9°-El Concejo Municipal de Vázquez de Coronado velará por la integridad y el fortalecimiento de los Concejos de Distrito de su jurisdicción, dotándolos anualmente de recursos presupuestarios para obras distritales, fundamentalmente y de apoyo financiero decoroso mínimo para aspectos administrativos.

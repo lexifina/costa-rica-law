@@ -1,0 +1,1 @@
+Artículo 17.-EI quórum para las sesiones se formará con tres concejales como mínimo, entre los cuales deberá estar presente necesariamente el Presidente o su Vicepresidente. Cuando concurran los 5 propietarios; los 2 suplentes participarán con voz pero sin voto.

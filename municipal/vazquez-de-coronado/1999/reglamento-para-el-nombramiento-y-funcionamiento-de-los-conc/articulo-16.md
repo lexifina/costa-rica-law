@@ -1,0 +1,1 @@
+Artículo 16.-Las Sesiones Ordinarias deberán efectuarse en el caserío designado por la Municipalidad como cabecera del distrito, pudiendo celebrarse sesiones extraordinarias en otros distritos el mismo cantón para tratar asuntos de interés interdistrital.

@@ -1,0 +1,1 @@
+Artículo 10.-La Municipalidad, a través del Alcalde Municipal, ejecutará sus obras y servicios públicos en cada distrito, atendiendo fundamentalmente las prioridades fijadas por cada Concejo de Distrito en su Plan de Trabajo Anual e incluido en el Plan Operativo de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 11.-El Concejo Municipal podrá crear comisiones especiales para atender en forma exclusiva algún asunto que les remita un Concejo de Distrito. Estas comisiones estarán integradas en la forma y términos establecidos por el Código Municipal.

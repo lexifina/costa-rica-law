@@ -1,0 +1,1 @@
+16-B.-EI síndico propietario y el suplente, podrán disponer de dos sesiones remuneradas del Concejo Municipal para dedicarlas junto con los vecinos a planificar y desarrollar sus proyectos, debiendo informar por escrito al Concejo Municipal de lo actuado, en la siguiente sesión ordinaria de este.
