@@ -1,0 +1,1 @@
+Art. 2°-Crénse un Consejo de Instrucción Pública, compuesto de cinco individuos de cualquier de las facultades establecidas en el país, nombrados anualmente por el Secretario del ramo, debiendo ser gratuito el servicio que presten.
