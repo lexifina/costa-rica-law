@@ -1,0 +1,1 @@
+Art. 5°. -A las doce horas de haber fondeado cualquiera embarcación, deberán los Capitanes de Buque presentar manifiesto al Jefe de resguardo, y si así no lo verificasen serán requeridos por el mismo Jefe, y caso de no cumplir aun con este requerimiento dará parte al Administrador de Aduana y Comandante del Puerto para que se les intime la salida.

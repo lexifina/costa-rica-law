@@ -1,0 +1,1 @@
+Art. 14.-La carga y descarga de los buques dar principio desde las siete de la mañana y se concluir a las tres de la tarde; m s por causas graves, y habiendo tiempo para arreglar la carga en el almacén, podrá el Administrador permitir se concluya a las cuatro.
