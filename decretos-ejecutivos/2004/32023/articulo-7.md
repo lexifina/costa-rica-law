@@ -1,0 +1,1 @@
+Artículo 7º—Deróguese la frase “que tendrá como sede las instalaciones de la antigua Estación del Ferrocarril al Atlántico” del artículo 1 del Decreto Ejecutivo Nº 26151-C-MEP-MINAE del 16 de mayo de 1997.

@@ -1,0 +1,1 @@
+Artículo 6º—Se autoriza a las instituciones del Estado para colaborar en la medida de sus posibilidades jurídicas y materiales, con la consecución de los objetivos del Museo de Formas, Espacios y Sonidos.

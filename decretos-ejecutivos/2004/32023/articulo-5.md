@@ -1,0 +1,1 @@
+Artículo 5º—El Museo de Arte Costarricense asignará anualmente en su presupuesto, una partida que será destinada para apoyar el financiamiento y cumplimiento de los fines del Museo de Formas, Espacios y Sonidos.

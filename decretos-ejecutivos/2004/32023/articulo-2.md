@@ -1,0 +1,1 @@
+Artículo 2º—El Museo de Formas, Espacios y Sonidos tendrá como finalidad primordial, involucrar a toda la población para su formación, educación y sensibilización en todas las artes, a través de espacios interactivos y la ejecución de actividades de carácter didáctico.
