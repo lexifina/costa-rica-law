@@ -1,0 +1,1 @@
+Artículo 5°—En cuanto a la administración de las Reservas, cada Reserva Indígena constituye una comunidad indígena única, administrada por su Asociación de Desarrollo Integral, quien es el órgano representativo de cada comunidad, y funge como gobierno local de cada Reserva Indígena.

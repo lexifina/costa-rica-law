@@ -1,0 +1,5 @@
+Artículo 3°—Cada uno de los ocho grupos étnicos reconocidos será regido a la vez por las disposiciones generales de la Ley Indígena y decretos conexos, pero también por sus costumbres y reglas propias.
+A este efecto, cada uno de los ocho grupos étnicos deberá presentar a la Comisión Nacional de Asuntos Indígenas (CONAI) y otros organismos competentes; un documento que exprese las diferentes costumbres y reglas propias de su organización social.
+Este reglamento interno de la comunidad podrá ser diferente para cada mía de las ocho etnias reconocidas en el artículo 2° del presente decreto.
+Las distintas reservas indígenas pertenecientes a un mismo grupo étnico tendrán un reglamento único común, válido para todos los representantes del grupo étnico. El reglamento interno de usos y costumbres sociales tendrá carácter obligatorio dentro de cada grupo étnico.
+Las instituciones oficiales del Estado deberán tomar en cuenta y adaptar su acción a las particularidades so ció culturales de cada grupo étnico para el manejo de los asuntos de interés público.
