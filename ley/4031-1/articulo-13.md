@@ -1,0 +1,2 @@
+Artículo XIII
+La duración del presente Tratado será de diez años, contados desde la fecha inicial de su vigencia y se prorrogará por períodos sucesivos iguales por tácita reconducción, sin ninguna de las partes manifestare voluntad en contrario con preaviso de seis meses a la fecha en que finaliza el período inicial o los períodos sucesivos de vigencia del Tratado. La denuncia surtirá efectos dos años después de ser notificada la Secretaría General de la Organización de Estados Centroamericanos.

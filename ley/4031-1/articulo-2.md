@@ -1,0 +1,2 @@
+ARTICULO II
+Las partes contratantes se comprometen a costear separadamente la construcción y conservación en sus respectivos territorios de las obras civiles que se consideren necesarias para asegurar el funcionamiento normal del radio-enlace que unirá las capitales y, asimismo, la instalación, operación y mantenimiento de los equipos que inicialmente se pongan en servicio, así como los que se agreguen cuando se acuerde la ampliación del sistema.
