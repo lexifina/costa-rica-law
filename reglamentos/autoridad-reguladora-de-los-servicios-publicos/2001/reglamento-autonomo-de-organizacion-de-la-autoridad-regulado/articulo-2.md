@@ -1,0 +1,1 @@
+Artículo 2°—Observancia del Reglamento. Este reglamento es de observancia general para todos los funcionarios y las funcionarías de la Autoridad Reguladora, quienes ejercerán sus funciones y atribuciones, atendiendo a las disposiciones de aquél.

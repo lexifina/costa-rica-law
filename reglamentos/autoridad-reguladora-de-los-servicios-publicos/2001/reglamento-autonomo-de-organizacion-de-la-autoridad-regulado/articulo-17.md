@@ -1,0 +1,1 @@
+Articulo 17.—Organización de la Dirección Administrativa Financiera. La Dirección Administrativa Financiera estará integrada por los Departamento de: Finanzas, Recursos Humanos; y. Servicios Generales.

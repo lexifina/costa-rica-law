@@ -1,0 +1,1 @@
+Artículo 3°—Autoridades Responsables. Es responsabilidad de la Junta Directiva de la Autoridad Reguladora, Regulador General, del Auditor Interno y de los Directores de la Institución, velar para que se cumplan las disposiciones del presente reglamento.

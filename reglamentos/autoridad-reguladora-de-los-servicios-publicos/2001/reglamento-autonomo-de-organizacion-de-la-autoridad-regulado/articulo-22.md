@@ -1,0 +1,1 @@
+Artículo 22.—Derogatoria del Reglamento Autónomo de Organización. Derógase el Reglamento Autónomo de Organización de la Autoridad Reguladora de los Servicios Públicos, aprobado el 14 de abril de 1998 y publicado en La Gaceta No 93 del 15 de mayo de 1998, y sus reformas.
