@@ -1,0 +1,1 @@
+Artículo 4º-EI impuesto se pagará durante el tiempo que permanezca abierto el establecimiento comercial, 0 durante el período que se haya poseído la patente, aunque la .actividad no se hubiera realizado.

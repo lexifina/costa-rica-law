@@ -1,0 +1,1 @@
+Artículo 19.-Se autoriza a la Municipalidad de La Unión para que cobre el cinco por ciento (5%) sobre los montos que deban pagar los patentados comprendidos en esta ley. Estos fondos se destinarán exclusivamente para la atención, mantenimiento y limpieza de parques, áreas verdes y zonas recreativas del cantón.

@@ -1,0 +1,1 @@
+Artículo 9º-La información suministrada por los patentados a la Mu nicipalidad mantendrá el carácter confidencial que tiene la información de las declaraciones del Impuesto sobre la Renta. Cualquier violación a esta confidencialidad se castigará con las penas que señala la ley Nº 837 del 20 de diciembre de 1946 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 20.-Cuando la Municipalidad del cantón de La Unión lo estime necesario, podrá exigir a las empresas no declarantes de los impuestos sobre las ventas y sabre la renta, la certificación relativa al volumen de las ventas y a la renta líquida, extendida por un contador público autorizado.
