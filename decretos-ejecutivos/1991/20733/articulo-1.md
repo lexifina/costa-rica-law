@@ -39,7 +39,7 @@ NCR 121:1991 Bebidas alcohólicas destiladas. Determinación de alcohol y alcoho
 5.2 Requisitos químicos. Los requisitos químicos que deberá cumplir el Vodka son los indicados en la tabla No 1.
 TABLA No 1.
 Requisito | Mínimo | Máximo
-Título alcohólico, en porcentaje en volumen, a 20°C (% vol.) * (Así reformado mediante el artículo 1 del decreto ejecutivo N°21298 del 15 de mayo de 1992) | 38 | 55
+Título alcohólico, en porcentaje en volumen, a 20°C (% vol.) * (Así reformado mediante el artículo 1 del decreto ejecutivo N°25252 de 3 de mayo de 1996). | 35,0(*)(*)0,5 | 55,0(*)
 Extracto seco, en gramos por 1 000 ml de producto. *..... | - | 20
 Azúcares totales, expresados en gramos de azúcares reductores por 1 000 ml del producto. *....................... | - | 20
 Cenizas, en gramos por 1 000 ml de producto ........... | | 0.07
