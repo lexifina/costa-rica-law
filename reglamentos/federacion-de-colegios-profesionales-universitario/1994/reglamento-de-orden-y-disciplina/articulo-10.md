@@ -1,0 +1,1 @@
+Artículo 10.—Las Comisiones Permanentes deben reunirse al menos una vez al mes. Cuando un miembro de una Comisión faltare dos veces consecutivas o cuatro alternas sin justificación, perderá su credencial como miembro del Comité Permanente y del organismo correspondiente.

@@ -1,0 +1,2 @@
+Artículo 11.—Este reglamento podrá ser modificado total o parcialmente con el voto de las dos terceras partes de los delegados presentes en la sesión inmediatamente posterior al planeamiento de las propuestas de modificación.
+Rige a partir del treinta de noviembre del mil novecientos noventa y cuatro. Aprobado por el Comité Permanente, en sesión ordinaria N° 345 del 30 de noviembre de 1994, acuerdo N° 111.

@@ -1,0 +1,1 @@
+Artículo 6º—No se celebrará sesión, si transcurridos sesenta minutos después de la hora señalada para ello, no se completa el quórum. Durante este plazo la Presidencia informará a los representantes sobre la conformación del quorum para iniciar la sesión.

@@ -1,0 +1,1 @@
+Artículo 5º—Es un deber de los miembros del Comité Permanente comunicar a la Presidencia o a la Secretaría de la Federación, el mismo día de cada sesión ordinaria y extraordinaria, o antes, cuando no puedan asistir a la misma.
