@@ -1,0 +1,2 @@
+Artículo 19.—Informes: Los grupos de trabajo presentarán sus informes escritos con sus respectivas alternativas. Para esto finiquitarán los asuntos a su cargo a la mayor brevedad.
+El plazo máximo para rendir un informe será de un mes. Si la naturaleza del caso lo amerita, de previo al vencimiento del término para la presentación informe, si el mismo no se encontrare concluido, el Coordinador del grupo de trabajo, deberá manifestar el motivo del atraso y solicitar una ampliación del plazo a la Comisión, que no podrá exceder de otro mes.

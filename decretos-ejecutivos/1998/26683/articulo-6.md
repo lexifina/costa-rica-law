@@ -1,0 +1,2 @@
+Artículo 6°—Sesiones: La Comisión sesionará al menos una vez al mes en el lugar y hora que este cuerpo destine al efecto, sin embargo en un mismo mes podrá convocarse a más de una sesión de ser necesario,
+La sesiones (sic) de La Comisión podrán ser ordinarias y extraordinarias y se realizarán a solicitud del Presidente o de los integrantes cuando la índole de los asuntos a tratar así lo obliguen, y se tramitarán solo los puntos para los que fue convocada.

@@ -1,0 +1,1 @@
+Artículo 9°—Asuntos pendientes: Cuando el Presidente levante la sesión estando en discusión un asunto, este asunto será tratado en la sesión siguiente, debiendo incluirse en el artículo de Asuntos Varios como el número uno, y se respetará la procedencia en que esté cedida la palabra de los miembros de la Comisión, para referirse al tema.
