@@ -1,2 +1,3 @@
 Período de pago
-Artículo 6—El pago de la contribución a que se refiere el artículo 3 del presente Reglamento se hará mensualmente dentro de los primeros ocho días hábiles posteriores al último día del mes al que corresponda la contribución.
+Artículo 6—El pago de la contribución a que se refiere el artículo 3° del presente reglamento se hará mensualmente dentro del mes siguiente a aquel en que se originó la contribución.
+(Así reformado por la Unidad de Recursos Materiales Proceso de Compras, publicado en La Gaceta No. 149 de 5 de agosto de 1997)
