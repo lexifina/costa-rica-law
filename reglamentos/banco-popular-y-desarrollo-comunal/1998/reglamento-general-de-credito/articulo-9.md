@@ -1,0 +1,1 @@
+Artículo 9°—En situaciones de apremiante necesidad, previo estudio socio-económico que así lo demuestre, el nivel resolutivo podrá , conceder un crédito a personas físicas excepcionando el plazo, que podrá ser hasta el doble del indicado en la tabla No 2 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 34.—Para la ejecución del proyecto financiado, el Banco podrá exigir la constitución de un fideicomiso u otras modalidades de administración. En casos muy calificados el fiduciario podrá ser un Banco del Sistema Bancario Nacional.

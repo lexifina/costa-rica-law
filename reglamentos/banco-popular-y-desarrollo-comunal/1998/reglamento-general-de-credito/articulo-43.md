@@ -1,0 +1,1 @@
+Artículo 43.—La Administración queda autorizada para establecer plazos, montos y tasas de interés diferenciadas dentro de una misma línea de crédito, siempre y cuando se mantenga el principio de igualdad en cada uno de los estratos definidos.

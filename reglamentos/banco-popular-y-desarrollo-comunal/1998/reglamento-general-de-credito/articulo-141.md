@@ -1,0 +1,2 @@
+Artículo 141.—Solamente se financiarán hasta 50 viviendas o lotes por etapa, pero el nivel resolutivo, por estimarlo conveniente a los intereses del Banco mediante resolución motivada, puede autorizar hasta un máximo de 150.
+En todo caso, podrán financiarse otras etapas, ajuicio exclusivo del nivel resolutivo, tomando en cuenta necesariamente la política institucional al respecto, la disponibilidad de recursos y los. resultados de la etapa anterior.

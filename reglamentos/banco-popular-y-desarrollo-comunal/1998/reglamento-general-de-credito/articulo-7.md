@@ -1,0 +1,2 @@
+Artículo 7°—Aquellas personas que deseen nuevo financiamiento y que hubieren figurado como deudores o codeudores de obligaciones que fueron liquidadas por la reserva de incobrables o declaradas prescritas, deberán cancelar principal, intereses, gastos y honorarios.
+Cuando el solicitante del crédito haya sido garante de una operación, liquidada por incobrables o declarada prescrita, se le cobrará como mínimo el saldo de capital, un año de intereses, gastos y honorarios, pudiendo ser financiados siempre y cuando se refuerce la garantía.

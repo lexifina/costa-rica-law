@@ -1,0 +1,1 @@
+Articulo 88.—El Crédito Personal bajo la modalidad de Crédito Automático, será aquel cuyo monto máximo la determina la suma de los saldos promedios mensuales del Ahorro Voluntario a la Vista de los últimos cinco meses.

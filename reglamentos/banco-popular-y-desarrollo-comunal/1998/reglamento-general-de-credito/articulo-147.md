@@ -1,0 +1,1 @@
+Artículo 147.—El desarrollador debe rendir una garantía de cumplimiento a favor del Banco de un 5% del valor estimado de las obras del proyecto; la cual deberá rendirse conforme lo indicado en la materia de contratación administrativa.

@@ -1,0 +1,1 @@
+Artículo 131.—De conformidad con el artículo 467 del Código de Comercio, el Banco no se responsabilizará por el estado de los artículos vendidos, ni dará garantía alguna después de efectuada la venta. Esta condición se hará constar en el documento correspondiente.

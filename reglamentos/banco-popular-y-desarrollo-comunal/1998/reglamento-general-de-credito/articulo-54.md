@@ -1,0 +1,2 @@
+Artículo 54.—El Banco deberá exigir y contratar a nombre de sus deudores, los seguros colectivos o individuales que considere necesarios para salvaguardar el crédito otorgado y las garantías recibidas, exigiendo al menos las coberturas mínimas.
+Si el seguro no es pagado por el deudor, el Banco estará facultado para realizar el pago y cargar el monto a la deuda. La vigencia de las pólizas debe ser por el plazo del crédito otorgado.

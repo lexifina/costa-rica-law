@@ -1,0 +1,3 @@
+Artículo 22.—El límite máximo de crédito directo o indirecto que el Banco podrá otorgar a cada persona natural o jurídica, o a grupos de interés económico, en el conjunto de todas las modalidades de crédito, será el establecido por el artículo 135 de la Ley Orgánica del Banco Central de Costa Rica.
+Todo lo relacionado con grupos de interés económico se regirá por el Reglamento para el otorgamiento de crédito a Grupos de Interés Económico dictado por el Banco Central de Costa Rica o cualquiera que en el futuro lo modifique o derogue.
+Corresponde a la Administración informar a la áreas respectivas sobre las modificaciones indicadas en este artículo.

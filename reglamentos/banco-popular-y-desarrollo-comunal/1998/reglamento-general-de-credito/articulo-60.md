@@ -1,0 +1,2 @@
+Artículo 60.—Para el caso de Apertura de Crédito referido en el artículo 69 de este Reglamento, la garantía se mantendrá mientras subsista el contrato, y será liberada si es sustituida a satisfacción del Banco o cuando la obligación a cargo del cliente se extinga.
+Las obligaciones del cliente podrán ser garantizadas con hipoteca en los términos del artículo 414 del Código Civil o con cualquier otra de las garantías señaladas en este Reglamento de ser legalmente posible.

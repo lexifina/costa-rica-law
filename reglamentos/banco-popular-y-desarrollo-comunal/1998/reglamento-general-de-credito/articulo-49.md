@@ -1,0 +1,1 @@
+Artículo 49.—A juicio del nivel resolutivo, el Banco podrá aceptar hipotecas hasta tercer grado cuando éstas sean a favor del Banco, siempre y cuando el monto del riesgo crediticio consolidado, no supere el porcentaje máximo del nivel de compromiso indicado en este Reglamento para cada línea de crédito.

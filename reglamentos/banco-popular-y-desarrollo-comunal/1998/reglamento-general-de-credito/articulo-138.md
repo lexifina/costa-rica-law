@@ -1,0 +1,1 @@
+Artículo 138.—Se podrá otorgar financiamiento de vivienda de conformidad con lo establecido por la Ley del Sistema Financiero Nacional de la Vivienda, en cuyo caso se regirá por esta Ley, su Reglamento, las directrices y procedimientos establecidos por el BANHVI y el presente Reglamento.

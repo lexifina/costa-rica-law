@@ -1,0 +1,1 @@
+Artículo 83.—La organización de primer piso deberá informar al menos trimestralmente sobre las operaciones de crédito formalizadas con recursos solicitados al Banco, saldo y estado de morosidad, a la unidad administrativa que defina la Administración.

@@ -1,0 +1,1 @@
+Artículo 136.—La obligación deberá estar garantizada mediante hipoteca sobre el inmueble por financiar. En caso de lo indicado en los incisos e) y f) del artículo 133 se podrá aceptar otra garantía no hipotecaria.

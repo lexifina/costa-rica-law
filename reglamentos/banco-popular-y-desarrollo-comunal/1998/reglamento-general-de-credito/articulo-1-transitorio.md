@@ -1,0 +1,2 @@
+TRANSITORIO
+Transitorio único: Las solicitudes de crédito que a la fecha de entrada en vigencia de este Reglamento se encuentren en trámite, se regirán por la normativa que se encontraba vigente al momento en que se plantearon. Sin embargo, podrán aplicarse las normas de este Reglamento, armonizándolas en cuanto corresponde con las actuaciones ya practicadas, siempre que ello resulte beneficioso tanto para el Banco como para el solicitante del crédito.

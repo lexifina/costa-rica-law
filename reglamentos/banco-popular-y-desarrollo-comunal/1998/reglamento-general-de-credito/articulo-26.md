@@ -1,0 +1,1 @@
+Artículo 26.—No se recibirán solicitudes con la documentación incompleta. El expediente de crédito debe ordenarse de acuerdo con las disposiciones emitidas por las autoridades reguladoras en materia de crédito. La recepción de la solicitud de crédito no implica su aprobación.

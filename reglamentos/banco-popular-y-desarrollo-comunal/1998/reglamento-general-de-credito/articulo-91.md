@@ -1,0 +1,3 @@
+Artículo 91.—Serán sujetos de crédito las personas físicas y jurídicas consideradas en el artículo 34 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal u otras organizaciones de trabajadores, trabajadores pensionados y profesionales.
+Además, se considerarán dentro de esta línea aquellas sociedades comerciales calificadas como micro y pequeñas empresas según los parámetros indicados en este Reglamento y las Sociedades Anónimas Laborales creadas al amparo de la Ley 7407.
+También se incluirá en esta línea el financiamiento de proyectos de desarrollo comunal o regional, realizados por instituciones públicas o privadas.

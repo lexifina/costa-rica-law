@@ -1,0 +1,1 @@
+Artículo 145.—Corresponde al desarrollador el pago de las cargas sociales, estudio de suelos, pruebas de laboratorio, planos catastrados, derechos y honorarios de segregación, pólizas de riesgo del trabajo, otros gastos y demás obligaciones que se deriven del proyecto; para lo cual deberá incluir las partidas correspondientes en los presupuestos.

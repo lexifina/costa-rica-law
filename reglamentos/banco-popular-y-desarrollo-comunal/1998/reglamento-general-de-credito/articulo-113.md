@@ -1,0 +1,1 @@
+Artículo 113.—El plazo máximo para que el obligado concluya el plan de estudios financiado, será determinado por la duración del programa original fijado por el centro de estudios, más un 20% de tiempo obligados que no trabajan y un 35% en el caso contrario.

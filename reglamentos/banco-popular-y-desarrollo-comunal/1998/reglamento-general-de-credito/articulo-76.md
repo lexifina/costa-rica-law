@@ -1,0 +1,2 @@
+SECCIÓN 5: BANCA DE SEGUNDO PISO
+Artículo 76.—La modalidad de Banca de Segundo Piso tiene como propósito la democratización económica y geográfica por medio del mejoramiento de las condiciones de prestación de servicios del Banco, aprovechando la infraestructura de las entidades vinculadas con el mismo, reduciendo costos, avanzando en la prestación de nuevos servicios, concretando alianzas estratégicas, agilizando la colocación del crédito y reduciendo el riesgo.

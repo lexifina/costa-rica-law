@@ -1,0 +1,1 @@
+Artículo 125.—Todo adjudicatario deberá identificarse debidamente y realizar su pago en el mismo acto, de lo contrario deberá repetirse el remate. Si los pagos se hacen en efectivo se entregarán los artículos, y si lo hace con cheque u otro medio de pago, los artículos se entregarán hasta que haya confirmación de fondos.

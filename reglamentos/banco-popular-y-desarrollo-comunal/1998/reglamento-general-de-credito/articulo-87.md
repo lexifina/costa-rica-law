@@ -1,0 +1,1 @@
+Artículo 87.—El Banco podrá otorgar créditos personales garantizados con un valor, título valor o documento de inmediata realización, aun cuando el solicitante no presente constancia de ingresos. El nivel resolutivo verificará que el monto del crédito más los interés acumulador de un año no sobrepase el respectivo porcentaje de responsabilidad máxima sobre este tipo de garantías.

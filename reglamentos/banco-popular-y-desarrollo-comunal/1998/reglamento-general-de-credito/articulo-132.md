@@ -1,0 +1,1 @@
+Artículo 132.—Por la naturaleza propia de la línea de pignoración, los artículos de este Reglamento contemplados entre los capítulos II al VII y que en la buena práctica financiera no se le adecuan, no le serán aplicables.

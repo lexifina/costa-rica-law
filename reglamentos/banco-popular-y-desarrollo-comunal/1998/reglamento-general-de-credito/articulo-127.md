@@ -1,0 +1,1 @@
+Artículo 127.—El obligado o propietario podrá recuperar su bien hasta el momento en que el corredor jurado anuncie el inicio del respectivo remate, cancelando lo adeudado en todos sus extremos, debiendo realizar la cancelación en dinero efectivo o a través de otro medio de pago de aceptación del Banco.

@@ -1,0 +1,1 @@
+Artículo 53.—El equipo de cómputo de uso personal o de oficina se recibirá únicamente como garantía cuando el plazo de crédito sea igual o inferior a los seis meses. En caso de equipo de cómputo especializado, éste se recibirá tomando como criterio su valor de realización, entendido como la capacidad del mercado para adquirirlo en caso de remate.

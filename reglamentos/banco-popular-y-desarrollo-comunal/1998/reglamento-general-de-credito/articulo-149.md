@@ -1,0 +1,1 @@
+Artículo 149.—La empresa constructora será la responsable de la promoción y venta de los lotes o viviendas, sin perjuicio de las solicitudes de clientes del Banco que deseen participar en el proyecto.

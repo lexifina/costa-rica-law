@@ -1,0 +1,2 @@
+Artículo 65.—Cuando en los niveles de resolución se presente un asunto en el que tenga interés uno de los miembros o algún pariente hasta el tercer grado de consanguinidad o afinidad de los integrantes, éste deberá retirarse del recinto y no participar en la discusión ni en la votación.
+Las solicitudes de crédito de los demás funcionarios serán resueltas dentro de los límites que establece el presente Reglamento por los niveles resolutivos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 77.—Se considerarán operaciones de Banca de Segundo Piso, aquellas en las cuales el Banco otorga crédito a un intermediario que fungirá como la entidad de primer piso, con el fin de que se atiendan las necesidades crediticias al usuario final, en cualquiera de las líneas de crédito de la Cartera de Desarrollo descritas en este Reglamento.

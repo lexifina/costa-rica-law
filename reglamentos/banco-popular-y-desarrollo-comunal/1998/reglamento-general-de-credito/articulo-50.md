@@ -1,0 +1,1 @@
+Artículo 50.—En caso de cédulas hipotecarias sólo se aceptarán vencidas y de emisiones totales de las cédulas hipotecarias a que se refiere el grado respectivo. Si el crédito fuere garantizado únicamente con cédulas hipotecarias, el plazo será hasta un año antes de su prescripción, salvo que ésta sea interrumpida legalmente, previo a la formalización del crédito.

@@ -1,0 +1,2 @@
+Artículo 122.—El detalle del remate se publicará por una sola vez en el Diario Oficial, con ocho días hábiles de anticipación a su fecha, cuando menos, contando entre ellos el día de la publicación y el del remate.
+La publicación indicará el número de las operaciones de los créditos, un resumen de la descripción de los bienes y la base del remate para cada uno de ellos. Además, se podrá hacer publicaciones en los medios de comunicación colectiva.

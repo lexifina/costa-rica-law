@@ -1,0 +1,1 @@
+Artículo 143.—La Administración podrá ampliar hasta en un 35% el monto original del préstamo, con el objeto de cubrir imprevistos no contemplados en el presupuesto original, incrementos en los costos de la construcción u otros técnicamente justificados.

@@ -1,0 +1,1 @@
+Artículo 129.—De todo remate se levantará un acta que contendrá un resumen de los resultados globales del mismo y un tabulado con el detalle de cada operación rematada. Ambos documentos deberán ser firmados por el Jefe del Departamento, el corredor jurado y un representante de la Auditoria Interna.

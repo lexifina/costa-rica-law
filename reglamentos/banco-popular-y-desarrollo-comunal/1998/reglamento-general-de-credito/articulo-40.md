@@ -1,0 +1,1 @@
+Artículo 40.—Todas las solicitudes de crédito, prórrogas, novaciones, etc. que se remitan a Oficinas Centrales para su aprobación definitiva deben incluir el planteamiento, análisis y recomendación, así como el criterio de la Junta de Crédito Local correspondiente.

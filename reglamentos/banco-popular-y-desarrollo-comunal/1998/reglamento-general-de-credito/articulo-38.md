@@ -1,0 +1,1 @@
+Artículo 38.—Se entenderá que todo obligado del Banco conoce las disposiciones de este Reglamento, el que formará parte del contrato que suscriba. Esta circunstancia se consignará en el documento que se firme al efecto.

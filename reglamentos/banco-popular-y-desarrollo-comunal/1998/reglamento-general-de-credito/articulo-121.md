@@ -1,0 +1,1 @@
+Artículo 121.—El obligado o propietario del bien que hubiere consentido en el gravamen podrá solicitar que se le muestren sus bienes, lo cual se hará contra la presentación del comprobante respectivo y un documento de identidad, con una frecuencia no mayor de dos veces durante la vigencia del préstamo.

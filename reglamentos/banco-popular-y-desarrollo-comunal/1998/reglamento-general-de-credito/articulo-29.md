@@ -1,0 +1,1 @@
+Artículo 29.—En caso de discrepancia en cuanto a datos contenidos en los documentos, se solicitará al interesado la respectiva aclaración, en caso contrario prevalecerá la que mejor convenga a los intereses del Banco.

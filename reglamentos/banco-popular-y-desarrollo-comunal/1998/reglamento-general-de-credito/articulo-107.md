@@ -1,0 +1,3 @@
+SUBSECCION A-2: TURISMO LABORAL
+Artículo 107.—En Turismo Laboral se otorgará crédito únicamente para planes vacacionales dentro del territorio nacional, tratándose de personas físicas. Se financiará para el núcleo familiar el hospedaje, la alimentación, el transporte, otras actividades recreativas y un 10% del monto del crédito para imprevistos.
+Para realizar turismo en el nivel internacional, este sólo se financiará a destinos cuyos países mantengan convenios con las organizaciones a las cuales el obligado está afiliado y que adicionalmente le brinden condiciones especiales , de tal manera que el obligado pueda hacer uso de ellos.

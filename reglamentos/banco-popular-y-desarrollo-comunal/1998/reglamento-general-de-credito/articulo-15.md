@@ -1,0 +1,1 @@
+Artículo 15.—La Administración establecerá, dentro de un rango de 0% a 30%, el monto del aporte que previamente deberá realizar el obligado en las diferentes líneas de crédito. El aporte puede ser sustituido, a juicio del nivel resolutivo, por una garantía real que cubra el monto fijado por ese concepto.

@@ -1,0 +1,5 @@
+CAPITULO VI
+De los niveles de resolución de crédito
+Artículo 62.—Los montos máximos de préstamos que los diferentes niveles de resolución podrán aprobar son los indicados en la tabla No 4. El nivel resolutivo deberá llevar una bitácora si es órgano unipersonal, y un libro actas si es colegiado, los cuales deberán ser autorizados por la Auditoría Interna y contendrán al menos la siguiente información: número de solicitud, línea de crédito, monto, nombre de los obligados, tasa de interés, plazo, garantía y resolución.
+Las Juntas de Crédito Local y los niveles resolutivos asentados en Oficinas Centrales, deberán remitir a la Junta Directiva Nacional una copia del acta de resolución de cada crédito conocido, ello dentro de los ocho días naturales posteriores a la resolución.
+Los demás niveles resolutivos deberán enviar la indicada copia a la correspondiente Junta de Crédito Local, dentro del plazo señalado. Junta que deberá comunicar a la Junta Directiva Nacional cualquier incumplimiento a lo. anterior, o cualquier anomalía que determine en las actas, ello dentro de los ocho días naturales siguientes a su recepción.

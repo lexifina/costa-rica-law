@@ -1,0 +1,2 @@
+Artículo 108.—Mediante esta línea de crédito se financiar; compra de útiles, libros, uniformes, equipos, implementos necesarios el desarrollo del plan de estudios, pago de matrícula y las mensualidades para los niveles técnico, parauniversitario y universitario en todos niveles de los diferentes centros de enseñanza autorizados por autoridades correspondientes.
+Para el caso de preescolar, escolar y secundaria se podrá financiar la compra de compra de útiles, libros y uniformes.

@@ -1,0 +1,2 @@
+Artículo 28.—Toda documentación que de conformidad con este Reglamento deba acompañar la solicitud de crédito, deberá tener no más de un mes de expedida, al momento de la recepción; salvo en casos de la Cartera de Desarrollo cuyo plazo será de 2 meses.
+Los documentos expedidos en el exterior deberán legalizarse, así como traducirse al español, quedando a criterio del nivel resolutivo exigir . que la traducción sea hecha por un traductor oficial.

@@ -1,0 +1,1 @@
+Artículo 126.—El bien que no se adjudique en el primer remate, será rematado en el siguiente, con un descuento de hasta un 10%, y si en esta ocasión tampoco fuere vendido, se procederá a su venta directa, pudiéndose descontar hasta el 20% de la base. Transcurrido un mes desde la oferta de venta directa sin que hubiere comprador del bien, será vendido sin sujeción a base.

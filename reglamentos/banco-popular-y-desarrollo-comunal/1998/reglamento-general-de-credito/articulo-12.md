@@ -1,0 +1,2 @@
+Artículo 12.—A criterio de nivel resolutivo correspondiente, y previa demostración fehaciente por parte del cliente de la inversión realizada o erogación respectiva, el Banco podrá financiar parcial o totalmente, en las condiciones establecidas en este Reglamento para el plan de inversión iniciado o concluido por el cliente, cuando éste haya financiado con recursos propios.
+En tales casos la solicitud de crédito se deberá presentar en un plazo que no podrá superar los seis meses de realizada la inversión.

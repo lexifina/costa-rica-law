@@ -1,0 +1,3 @@
+Artículo 27.—El Banco podrá solicitar, durante la tramitación del crédito, cualquier documentación que para el caso concreto considere necesaria para completar o aclarar la información recibida, cuando ello sea necesario para que la decisión final sea conforme a las reglas unívocas de la ciencia o la técnica.
+Transcurridos treinta días naturales de la notificación que prevenga la realización de un acto, sin que éste se cumpla, la solicitud podrá ser archivada, a menos que las razones que hayan impedido su trámite se deban a fuerza mayor o sean atribuidas al Banco.
+El Banco deberá solicitar la presentación de estados financieros como condición posterior al crédito, cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 70.—Salvo que este Reglamento indique lo contrario en razón de la línea de crédito, el cliente podrá disponer de las sumas de dinero, para lo cual podrá utilizar la cuenta corriente o de ahorro en el Banco.

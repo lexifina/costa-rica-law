@@ -1,0 +1,3 @@
+Artículo 137.—Cuando el obligado no tenga capacidad de pago para cubrir la cuota ordinaria, se podrá otorgar el beneficio de aplicar la cuota escalonada de acuerdo con lo siguiente:
+a) El préstamo debe representar una solución total al problema habitacional, siempre y cuando el monto total del crédito solicitado no sobrepase los límites para financiamiento de vivienda con recursos de la Cartera de Desarrollo Social.
+b) La tasa de crecimiento anual de la cuota no deberá sobrepasar el 7.5% y en ningún caso la cuota resultante podrá ser inferior al 75% de los intereses que correspondan a la primera cuota.

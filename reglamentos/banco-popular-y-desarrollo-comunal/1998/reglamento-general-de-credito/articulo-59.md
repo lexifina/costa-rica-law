@@ -1,0 +1,1 @@
+Artículo 59.—Cuando se trate de créditos solicitados por Organizaciones Sociales y se acepten garantías prendarias sobre cosechas, será necesaria la garantía solidaria de los miembros de la Junta Directiva o en su defecto los Gerentes de la organización, cuando no exista Junta Directiva.

@@ -1,0 +1,3 @@
+Artículo 14.—En el caso de interés variable y ajustable, la Administración deberá ajustar y revisar las tasas vigentes en cada operación de crédito con la periodicidad que de modo general para cada línea de crédito ella determine, siempre que la frecuencia no sea superior a un año.
+Dicho ajuste se podrá realizar en relación con la fecha de constitución de cada crédito, o bien en fechas fijas, caso en el cual se indicará en el respectivo documento que la tasa inicial no se ajustará y revisará sino transcurrido al menos un plazo igual al que medie entre cada fecha fija.
+La tasa de interés inicial en todo crédito será siempre igual a la que de conformidad con las indicadas por este Reglamento, sea la vigente para la respectiva línea de crédito al día de la formalización.

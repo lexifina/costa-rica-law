@@ -1,0 +1,2 @@
+Artículo 114.—El período transcurrido desde el momento en que realiza el primer desembolso del crédito común hasta la aprobación grado académico correspondiente se establece como período de quedando a juicio de la Administración la configuración de los pago; ese período.
+En casos en que el obligado graduado demuestre estar sin trabajo o en otras circunstancias debidamente calificadas por el nivel resolutivo el período de gracia se puede ampliar hasta en seis meses.

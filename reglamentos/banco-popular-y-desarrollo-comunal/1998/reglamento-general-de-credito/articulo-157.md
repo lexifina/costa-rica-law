@@ -1,0 +1,1 @@
+Artículo 157.—Este Reglamento entra a regir ocho días naturales a partir de su aprobación por la Junta Directiva Nacional y deroga el Reglamento General de Crédito aprobado por la Junta Directiva Nacional en sesión No 3143 del 12 de setiembre de 1995, sus reformas y toda otra disposición emitida en materia de crédito, salvo las relativas a crédito para empleados.

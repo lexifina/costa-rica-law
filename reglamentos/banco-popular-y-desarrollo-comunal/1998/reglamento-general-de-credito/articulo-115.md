@@ -1,0 +1,1 @@
+Artículo 115.—Para determinar la cuantía por garantizar se tomará el costo del plan de inversión más los intereses que se acumulen dentro plazo autorizado para la obtención del grado académico correspondiente.

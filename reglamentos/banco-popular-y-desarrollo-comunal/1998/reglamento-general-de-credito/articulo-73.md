@@ -1,0 +1,2 @@
+SECCIÓN 2: CRÉDITO COMÚN
+Artículo 73.—Mediante el contrato de Crédito Común, el Banco otorga en calidad de préstamo mercantil, al momento de la formalización o por partidas, una suma determinada de dinero al cliente, o contrae una obligación por cuenta de éste, debiendo reintegrar la suma traspasada o pagada por el Banco, junto con sus intereses, comisiones, gastos y demás extremos, dentro del plazo estipulado.

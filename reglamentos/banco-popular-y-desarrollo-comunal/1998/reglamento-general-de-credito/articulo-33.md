@@ -1,0 +1,3 @@
+Artículo 33.—Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los solicitantes u obligados deberán dar toda la información y colaboración que se les solicite.
+Cuando así se requiera, el Banco realizará el avalúo correspondiente, por medio de empresas consultoras contratadas al efecto o por medio de convenios institucionales. En casos de excepción, a criterio de la respectiva Jefatura, podrá ser realizado por personal técnico del Banco. En ambos casos el costo será de previo cubierto por el solicitante.
+La Administración podrá exigir estudios especializados que determinen la viabilidad del plan de inversión y las características de las garantías.

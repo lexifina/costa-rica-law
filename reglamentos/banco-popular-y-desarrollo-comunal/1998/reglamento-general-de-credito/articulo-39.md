@@ -1,0 +1,1 @@
+Artículo 39.—Salvo excepciones que establezca este Reglamento, se podrá tener más de un crédito a la vez en una misma línea de crédito, siempre y cuando la garantía y la capacidad de pago lo permitan. El trámite no podrá hacerse en forma simultánea.

@@ -1,0 +1,2 @@
+Artículo 109.—Se otorgarán créditos para diferentes cursos capacitación, que permitan a los sujetos de crédito mejorar conocimientos técnicos y profesionales. El financiamiento se otorgar acuerdo con los programas de cada una de las instituciones, los cuales sumados no podrán sobrepasar el límite establecido para esta línea.
+Además podrá contemplarse dentro de esta línea, el financiamiento para las pruebas de grado, desarrollo de tesis, proyectos de graduación similares.

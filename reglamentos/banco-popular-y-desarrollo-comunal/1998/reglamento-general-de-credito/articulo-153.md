@@ -1,0 +1,1 @@
+Artículo 153.—Cuando el Banco ejerza la función de fiduciario lo hará a través de un comité, formado por tres personas nombradas por la Administración, uno de los cuales debe ser un profesional en la rama de la construcción. Contarán con la asesoría del profesional responsable de la obra y de un representante de la organización social.

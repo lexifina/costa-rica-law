@@ -1,0 +1,2 @@
+SECCIÓN 1: APERTURA DE CRÉDITO
+Artículo 69.—Mediante el contrato de apertura de crédito, el Banco se obliga a mantener sumas de dinero a disposición del cliente, o a contraer obligaciones por cuenta de éste, todo hasta por un límite determinado que podrá ser simple o revolutivo, límite que incluirá los intereses, comisiones, gastos y demás extremos a cargo del cliente. Este contrato deberá ser por tiempo fijo.

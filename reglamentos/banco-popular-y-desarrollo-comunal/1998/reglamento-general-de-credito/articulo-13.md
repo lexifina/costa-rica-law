@@ -1,0 +1,2 @@
+Artículo 13.—En el caso de los créditos de Banca de Segundo Piso, la tasa de interés que el Banco otorgue a la entidad de primer piso, se fijará con base en la tasa vigente en la respectiva línea y clase de crédito y podrá ser inferior en tres puntos porcentuales.
+La tasa de interés al usuario final del crédito no podrá exceder en dos puntos a la que corresponda de acuerdo con el artículo 11 de este Reglamento, en relación con la respectiva línea de crédito, sin perjuicio de lo estipulado en los artículos 15, 18 y 19, del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 128.—El excedente que quedare, una vez cubiertos capital e intereses, seguros, gastos administrativos y gastos de remate, se comunicarán en el Diario Oficial, con las únicas indicaciones de número de la operación y monto del sobrante. Estos sobrantes quedarán a disposición del prestatario por un plazo de seis meses, transcurridos los cuales pasarán a poder del Banco.

@@ -1,0 +1,1 @@
+Articulo 35.—A juicio del nivel resolutivo, se podrá solicitar al obligado acogerse a programas de capacitación y similares, de tal manera que le permitan mejorar su gestión administrativa y técnica. El costo de dichos programas o cursos correrán por cuenta del obligado, pudiendo financiarse dentro del crédito solicitado.

@@ -1,0 +1,2 @@
+Artículo 47.—Cuando el inmueble esté sujeto a plazo de convalidación se podrá aceptar en garantía siempre que haya un pronunciamiento positivo de la Asesoría Jurídica. Se exceptúan de esta disposición aquellas solicitudes que se financien con recursos del Sistema Financiero Nacional de la Vivienda.
+En caso de que el pronunciamiento sea negativo, se podrá aportar otra garantía, que podrá ser sustituida al momento de transcurrir el período de convalidación.

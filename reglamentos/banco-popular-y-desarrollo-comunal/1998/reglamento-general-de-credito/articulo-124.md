@@ -1,0 +1,1 @@
+Artículo 124.—A la fecha y hora señalada para el remate, el corredor jurado irá anunciando una a una las operaciones relacionadas con los bienes objeto de remate y su base. También anunciará las propuestas que se vayan recibiendo. La última y mejor propuesta deberá ser informada por tres veces, dando por rematados los artículos e informando a la vez el nombre del adjudicatario.

@@ -1,0 +1,1 @@
+Artículo 118.—El obligado que posea una operación con al menos cinco meses de antigüedad y de la cual haya cancelado al menos el 15% del principal, podrá solicitar la constitución de un nuevo crédito, utilizando la garantía de esa operación; pero cancelando el saldo adeudado con el nuevo crédito que se le otorgue.

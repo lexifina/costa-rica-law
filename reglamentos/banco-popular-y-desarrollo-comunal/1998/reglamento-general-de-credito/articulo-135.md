@@ -1,0 +1,10 @@
+Artículo 135.—Con recursos de la Cartera de Desarrollo Social se financiará:
+1. La compra de un lote o una solución de vivienda a aquellas personas que carezcan de ella. Sin embargo si el solicitante o alguno de los miembros del núcleo familiar es propietario de un inmueble, se le podrá financiar una solución habitacional siempre que el bien esté sujeto a alguna de las siguientes circunstancias:
+a) La primera vivienda, inscrita en forma total o parcial a su favor, esté habitada por el primer núcleo familiar y tratándose de una persona soltera, viuda, divorciada o separada judicialmente decide integrar un nuevo núcleo familiar.
+b) Constituye un derecho no localizable y con éste no solventa su problema habitacional.
+c) Es de uso agropecuario y no es conveniente edificar en ella la vivienda por afectarse significativamente la producción y con ello el ingreso familiar.
+d) Si se encuentra en trámite de venta o pendiente de traspaso. Para tal efecto el nivel resolutivo impondrá un plazo prudencial para que el obligado presente una certificación en la que conste la inscripción del traspaso del bien involucrado. En cuanto al producto de la venta, éste deberá aplicarse al precio de compra del nuevo bien o como amortización a la operación constituida. En caso de incumplimiento se aplicará el artículo 25 de este Reglamento.
+e) Cuando es terreno no apto para la construcción de vivienda o que por causa de fenómenos naturales se declare no apto para edificar y requiera de una reubicación.
+f) Se encuentre en alguna otra situación similar a las anteriores, a criterio del nivel resolutivo.
+2. La compra de un inmueble cuando el solicitante lo adquiera de un familiar, hasta tercer grado de consanguinidad, siempre que el vendedor posea otro bien inmueble apto para vivienda y que el solicitante carezca de ella. Quedará a criterio del nivel resolutivo proceder a su financiamiento.
+3. Los planes de inversión indicados en el artículo 133, siempre que los miembros del núcleo familiar tengan como único inmueble en el que se realizará el plan de inversión por financiar, ello sin detrimento de las excepciones establecidas en el aparte a) de este artículo.
