@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de suscripción de cada convenio que se negocie, el Ministro de Relaciones Exteriores y Culto suscribirá el convenio de que se trate, previo dictamen favorable del Ministerio de Hacienda.

@@ -1,0 +1,15 @@
+Nº 31098-RE-H
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE HACIENDA,
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades establecidas en los artículos 140, incisos 10, 12 y 18 y 146 de la Constitución Política.
+Considerando:
+1º—Que la tendencia internacional en materia de fiscalidad consiste en llevar a cabo una política abierta de suscripción de convenios de intercambio de información tributaria y aduanera, así como de convenios para evitar la doble imposición internacional y la evasión a nivel de Aduanas.
+2º—Que con los convenios de doble imposición internacional, si bien no tienen relevancia para evitar la doble imposición de residentes en Costa Rica que obtengan renta de fuente extranjera, dado que nuestro país sigue un criterio de territorialidad en su imposición directa, se genera en el inversionista extranjero mayor seguridad jurídica para establecerse, aumentando el atractivo de nuestro país para la inversión extranjera.
+3º—Que los convenios de intercambio de información tributaria y aduanera, constituyen instrumentos útiles para combatir la evasión fiscal, la subfacturación y sobrefacturación.
+4º—Que una política ordenada de suscripción de convenios de doble imposición y de intercambio de información tributaria y aduanera, permitirá consolidar la imagen internacional de Costa Rica como un Estado Social de Derecho fiscalmente responsable con un equitativo y transparente sistema fiscal de recaudación y de control del tráfico internacional de mercancías.
+5º—Que la suscripción de este tipo de convenios conlleva consecuencias de tipo fiscal, de carácter operativo y recaudatorio, las que podrían implicar algún sacrificio fiscal de Costa Rica, por lo que debe analizarse en cada caso si conviene negociar y suscribir un convenio de doble imposición.
+6º—Que resulta necesario establecer una política por parte del Ministerio de Hacienda, como órgano especializado en fiscalidad internacional, que oriente la negociación y suscripción de esta clase de convenios, previo análisis de sus consecuencias positivas y negativas, dándole carácter vinculante a su dictamen para la negociación, suscripción y aprobación de cada convenio internacional .
+7º—Que por la naturaleza de los asuntos involucrados, dado que no solo se trata de materia tributaria o aduanera, sino de relaciones exteriores y eventualmente de materia comercial, debe darse la participación de los distintos entes vinculados con estos temas, como entes consultivos, cuando se considere pertinente por parte del ente especializado. Por tanto,
+Decretan:
+Artículo 1º—Corresponde al Ministerio de Hacienda, como órgano especializado en fiscalidad internacional, la emisión de la opinión vinculante para la suscripción de convenios para evitar la doble imposición internacional, de convenios de intercambio de información tributaria y de convenios de intercambio de información aduanera. Dada la especialización en la materia, la conducción de las negociaciones las llevará a cabo el Ministerio de Hacienda.
