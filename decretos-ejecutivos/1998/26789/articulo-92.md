@@ -1,0 +1,1 @@
+Artículo 92.—Las superficies de agua de los domos y tubos puede ser preferible no limpiarlas antes de la inspección, a menos que sea acordado de otra manera después de que el inspector haya tenido oportunidad de observar las condiciones.

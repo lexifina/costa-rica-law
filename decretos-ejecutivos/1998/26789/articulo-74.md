@@ -1,0 +1,1 @@
+Artículo 74.—Los indicadores de presión de la caldera deberán ser revisados con ayuda de otros indicadores confiables en el mismo sistema o se les deberá comparar con un indicador de prueba calibrado adecuadamente.

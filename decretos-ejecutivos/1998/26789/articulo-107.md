@@ -1,0 +1,1 @@
+Artículo 107.—Con cada solicitud de renovación de permiso anual, el usuario debe entregar al Departamento una certificación de la empresa que brinda el tratamiento químico con respecto al estado de corrosión o incrustación que posee la caldera.

@@ -1,0 +1,1 @@
+Artículo 11.—En caso de extravío de la placa oficial del Departamento con el número de la caldera, deberá sustituirse por números de no menos de un centímetro, estampados en parte visible y permanente. La alteración, cambio o falta del número oficial, dará motivo para clausurar de inmediato la instalación y funcionamiento de la caldera.

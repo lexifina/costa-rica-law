@@ -1,0 +1,1 @@
+Artículo 115.—El Inspector de Calderas que incumpla las disposiciones establecidas en el presente Reglamento, será denunciado por el Departamento ante la Fiscalía del Colegio Federado de Ingenieros y Arquitectos de Costa Rica, sin perjuicio de las responsabilidades penales y civiles que correspondan.

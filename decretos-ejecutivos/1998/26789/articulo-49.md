@@ -1,0 +1,1 @@
+Artículo 49.—El Ingeniero Inspector presentará su informe y la Tarjeta por triplicado al Departamento donde serán sellados y registrados, para que se pronuncie con respecto al permiso de operación en un plazo no mayor de ocho días hábiles.

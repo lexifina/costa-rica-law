@@ -1,0 +1,1 @@
+Artículo 15.—Una caldera que se ha notificado fuera de servicio, no podrá usarse de nuevo hasta que se autorice su funcionamiento; el Usuario deberá solicitar al Departamento el Permiso de Renovación, acompañando la solicitud con un Informe de Inspección realizado por un Inspector.

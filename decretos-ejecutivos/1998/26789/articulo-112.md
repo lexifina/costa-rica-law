@@ -1,0 +1,1 @@
+Artículo 112.—El profesional interesado presentará sus atestados ante el C.F.I.A. quién en un plazo perentorio de 30 días naturales recomendaría o no el otorgamiento de la licencia. El Colegio comunicará al Departamento dentro de los tres días naturales siguientes la decisión que haya tomado.

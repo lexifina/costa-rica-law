@@ -1,0 +1,1 @@
+Artículo 46.—El incumplimiento de la Inspección Anual será motivo para ordenar la suspensión del Permiso de Funcionamiento. Sin embargo antes de tomar tal resolución, la Inspección General de Trabajo podrá conceder un plazo adecuado para que el Usuario proceda a cumplir con la Inspección Anual.

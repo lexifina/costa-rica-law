@@ -1,0 +1,1 @@
+Artículo 12.—Cualquier cambio o modificación en la instalación o funcionamiento con respecto a los permisos otorgados de la caldera y sus accesorios, deberá ser previamente puesto en conocimiento del Departamento, siguiendo el trámite usual que este Reglamento establece para obtener los mismos.

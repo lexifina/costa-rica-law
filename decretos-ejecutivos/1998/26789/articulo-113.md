@@ -1,0 +1,1 @@
+Artículo 113.—Para el ejercicio de las funciones de Inspector de Calderas autorizado por el C.F.I.A., deberá contar con una póliza de fidelidad emitida por el ente asegurador, la cual deberá registrar ante el Departamento. El incumplimiento de este requisito inhabilita al Inspector a tramitar cualquier documentación sobre calderas ante el Departamento.

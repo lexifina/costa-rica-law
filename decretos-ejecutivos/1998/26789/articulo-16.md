@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento rendirá un informe mensual al Consejo de Salud Ocupacional con respecto a los permisos de instalación de calderas otorgados cada mes, remitiendo una copia del mismo a la Comisión Nacional de Emergencias.

@@ -1,0 +1,1 @@
+Artículo 114.—Todo Inspector Autorizado en Calderas está en la obligación dar aviso por escrito al Departamento de la existencia de calderas o conjunto de ellas sin los respectivos permisos, dentro de los tres días naturales siguientes al que tuvo conocimiento de ello.

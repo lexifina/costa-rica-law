@@ -1,0 +1,1 @@
+Artículo 45.—Queda prohibido que el Ingeniero Inspector realice las inspecciones a las calderas de la empresa en la que labora, o aquellas calderas que hayan pasado por su taller de mantenimiento y reparación.

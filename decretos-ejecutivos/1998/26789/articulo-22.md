@@ -1,0 +1,11 @@
+De los tanques para combustibles líquidos
+Artículo 22.—Las instalaciones para el empleo de combustibles líquidos en las calderas deberán cumplir con los requisitos mínimos siguientes:
+a) Los tanques diarios usados en el recinto de las calderas, tendrán una capacidad máxima suficiente para dos horas de funcionamiento de los quemadores de la caldera, sin exceder un máximo de 1000 litros.
+b) Deberán construirse de lámina metálica de no menos de (3.2) tres punto dos milímetros de espesor, con soportes no inflamables e independientes de los soportes de la caldera;
+c) Serán completamente cerrados y tendrán tubos de ventilación y de drenaje que salgan del recinto de la caldera; estarán colocados de tal manera que todos sus lados sean accesibles para inspección y deberán quedar a más de dos metros de los quemadores, de tuberías de vapor, recalentadores.
+d) Los tanque diarios estarán provistos de una válvula de cierre rápido en su línea de llenado, colocada lo más cerca al tanque y en lugar fácilmente accesible.
+e) Los tanques de abastecimiento de combustible, con capacidad mayor de 1000 litros, deberán quedar fuera del recinto de la caldera, a una distancia mínima de tres metros, o a la distancia que señale la norma NFPA.
+f) Para calderas Categoría "C" o "D", la distancia mínima será de cuatro metros de la caldera, o lo mínimo que señale la norma NFPA. Estos tanques deberán quedar a una distancia mínima de la vía pública, o del predio vecino, de tres metros, o lo que señale la norma de la NFPA.
+g) Los tanques serán completamente cerrados y deberán estar provistos de un tubo de ventilación, de una tubería de drenaje, de una boya con nivel indicador, y de por lo menos una abertura de inspección.
+h) En los tanques aéreos, se usará un muro de concreto alrededor del tanque de manera que se forme una pileta con volumen adecuado al volumen del tanque, para casos de rotura de la plancha del tanque; el espesor mínimo de la plancha será de seis punto treinta y cinco (6.35) milímetros. Así mismo, el dique deberá tener una capacidad del 10 % más del volumen del tanque.
+i) Indistintamente de la capacidad del tanque, el mismo deberá estar pintado de acuerdo con la Norma Oficial de Colores y su Simbología.

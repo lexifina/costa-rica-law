@@ -1,0 +1,1 @@
+Artículo 8°—El Departamento otorgará el Permiso de Funcionamiento con base en el estudio del informe rendido por el Inspector y cualquier otro dato o información que crea necesario recabar, incluyendo la visita de alguno de sus funcionarios, para verificar la adecuada instalación de la caldera o calderas acorde a la normativa vigente.

@@ -1,0 +1,3 @@
+CAPITULO DECIMO SEGUNDO
+De los Recursos
+Artículo 119.—Contra la resolución denegatoria del permiso de instalación, funcionamiento o de renovación de una caldera, dictada por el Departamento cabrá recurso de revocatoria ante el mismo órgano que dictó la resolución. Ante la resolución que resuelva la revocatoria, el administrado podrá interponer recurso administrativo de apelación ante el Ministro de Trabajo y Seguridad, el cuál (sic) pondrá fin a la vía administrativa y quedará expedita la posibilidad del recurso contencioso-administrativo de conformidad con lo dispuesto en las normas procidementales (sic) de aplicación, sin perjuicio de la ejecutividad de la resolución administrativa definitiva.

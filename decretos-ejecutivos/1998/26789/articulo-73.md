@@ -1,0 +1,1 @@
+Artículo 73.—Los accesorios de la caldera, tales como tubos indicadores de nivel, grifos de prueba, columnas de agua, controles nivel de agua, alarmas y cortadores de alto y bajo nivel, válvulas de purga, alimentación, válvulas de no retomo deberán ser examinados y probados.

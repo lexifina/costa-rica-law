@@ -1,0 +1,1 @@
+Artículo 55.—El usuario debe tener disponible, para uso del Ingeniero inspector, todos los datos pertinentes de la caldera, tales como el diseño, dimensiones, edad, datos particulares tales como defectos notados con anterioridad y las modificaciones o reparaciones efectuadas, indicadas en la bitácora según lo establece el Artículo 39.

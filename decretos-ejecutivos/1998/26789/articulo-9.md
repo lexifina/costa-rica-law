@@ -1,0 +1,1 @@
+Artículo 9°—No se permitirá la Instalación ni el Funcionamiento en el país, de ninguna caldera a menos que haya sido construida con materiales y bajo las normas señaladas por la Sociedad Americana de Ingenieros Mecánicos, (American Society of Mechanical Engineers), ASME, o por las normas del país de origen, a juicio del Departamento.

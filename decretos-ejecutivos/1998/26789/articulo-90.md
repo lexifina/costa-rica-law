@@ -1,0 +1,1 @@
+Artículo 90.—Donde se empleen sopladores de hollín, los inspectores deberán examinarlos igual que los tubos de la caldera para localizar cortes o erosión debidos a la descarga de las boquilla del soplador.

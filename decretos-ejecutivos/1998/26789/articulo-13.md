@@ -1,0 +1,1 @@
+Artículo 13.—La falta de cumplimiento del Artículo anterior dará motivo al Departamento para suspender el permiso de instalación o funcionamiento otorgado dando aviso de inmediato a la Inspección de Trabajo de la jurisdicción de que se trate.

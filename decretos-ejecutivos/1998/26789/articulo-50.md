@@ -1,0 +1,1 @@
+Artículo 50.—El Departamento mantendrá una copia en sus archivos, otra copia será del Usuario y la otra copia será del Ingeniero Inspector. En nota aparte al Usuario, y con copia al Inspector, el Departamento hará las observaciones que estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 76.—El Ingeniero Inspector deberá informar del mantenimiento inadecuado del local. No se deberán almacenar materiales para reparación o mantenimiento de manera que puedan obstruir el acceso adecuado a la unidad generadora de vapor, el conjunto o el equipo combustión.
