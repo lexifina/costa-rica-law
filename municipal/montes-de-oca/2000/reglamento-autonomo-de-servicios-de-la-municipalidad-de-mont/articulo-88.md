@@ -1,0 +1,2 @@
+Artículo 88. Sobre la carrera profesional tiene como objetivos los siguientes:
+Estimular el desarrollo profesional de los funcionarios municipales, profesionalizar los servicios públicos municipales y con ello aumentar la eficiencia y eticada en la prestación de los mismos al ciudadano, atraer a profesionales a la municipalidad. Se regirá por la reglamentación existente en las Normas de Aplicación de Carrera Profesional Vigente.

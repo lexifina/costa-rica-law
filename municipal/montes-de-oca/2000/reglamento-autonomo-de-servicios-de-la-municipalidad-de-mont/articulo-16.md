@@ -1,0 +1,4 @@
+Articulo 16.—Las relaciones de servicio serán:
+Por tiempo indefinido: Que se llevarán a cabo con aquellos funcionarios indispensables para satisfacer las necesidades propias que además son permanentes de la Municipalidad.
+Por tiempo determinado: Que se celebrarán con los funcionarios que temporalmente ejecuten labores de quien o quienes se encuentren en disfrute de sus vacaciones, licencias, así como aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar, de acuerdo a lo establecido en los artículos 26 y 27 del Código de Trabajo.
+Por obra determinada: Aquel que se celebre para satisfacer las necesidades que eventualmente se presenten en la Municipalidad, sin, previa fijación de tiempo, siendo el objeto de la prestación personal del servicio la misma obra, contratada, según los términos de los artículos 26 y 27 del Código de trabajo.

@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Descanso semanal y feriados
+Articulo 25.—Todo funcionario de la Municipalidad disfrutará, como mínimo de un día de descanso absoluto después de cada semana hábil de servicio continuo.
+Son días hábiles de servicio todos los días del año, menos los feriados que establece el Código de Trabajo, los sábados v domingos y aquellos que por celebraciones especiales el Concejo Municipal declare de asueto. Se considerarán de asueto el día 31 de agosto. Día del Régimen Municipal; la celebración del día del patrono del cantón y media jornada del último día hábil de trabajo con motivo de celebraciones de los festejos populares de fin de año del Cantón Central de San José. Ambas partes podrán convenir en que los feriados que se den de lunes a jueves, su disfrute sea diferido al día viernes; cuando el feriado sea un día lunes, las partes posponerlo para el viernes o lunes dependiendo de la mejor opción para el administrado.

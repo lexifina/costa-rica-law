@@ -1,0 +1,1 @@
+Articulo 9°—Todas los documentos de los funcionarios referentes a peticiones, quejas, reclamos, etc., que .se refieran a la relación de servicio en todos sus aspectos, deberán ser hechas por escrito ante el Jefe inmediato respectivo y/o a la Dirección del Área y serán resueltos en igual forma y de inmediato cuando así lo exija la urgencia del asunto.

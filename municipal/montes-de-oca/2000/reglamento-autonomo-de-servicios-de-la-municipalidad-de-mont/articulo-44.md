@@ -1,0 +1,1 @@
+Articulo 44.—El sistema de sanciones establecido en este capitulo no será aplicable a las fallas cometidas por motivo de ausencia, llegadas tardías o abandono del servicio, que se regulan en los capítulos subsiguientes, para los cuales se establecerá el propio sistema de sanciones.

@@ -1,0 +1,7 @@
+Articulo 92.—El contrato deberá estar confeccionado en un original que se conservará en el expediente administrativo del funcionario y una copia que se entregará al funcionario:
+a) El Alcalde deberá aprobar el contrato en un plazo de tres días hábiles a partir de la fecha de su presentación. Caso contrario, el referido contrato será devuelto al Departamento de Recursos Humanos argumentando las razones por las cuales se rechaza el mismo. Una vez firmado el contrato, el funcionario no podrá ejercer la profesión comprendida con dicha exclusividad, ni actividades relacionadas con esta o con su cargo, si no es con la Municipalidad.
+b) De la vigencia de la dedicación exclusiva: El contrato entra en vigencia a partir del día en que es acoplado y firmado por las partes.
+El funcionario acogido al beneficio de la dedicación exclusiva, mantienen la retribución y obligaciones que establecen tanto este Reglamento como el respectivo contrato cuando:
+1) Se encuentre en vacaciones.
+2) Disfrute de permiso con goce de sueldo total o parcial.
+3) Que tenga permiso con goce de sueldo si el servidor va a brindar servicios como colaboración a otras entidades atines con los intereses del Régimen Municipal, en el país o en el extranjero, siempre que haya fundamento legal para ello. En caso de que el funcionario disfrute de un permiso sin goce de salario, a su regreso podrá continuar acogido al beneficio de la dedicación exclusiva.

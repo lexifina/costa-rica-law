@@ -1,0 +1,3 @@
+Artículo 97.—Sobre la Disponibilidad: Se contempla el establecimiento de una compensación económica que se denomina "Disponibilidad", destinada a darle continuidad al servicio público, en aquellos casos en donde por la índole del servicio y el cargo que desempeña el funcionario, la Administración así lo requiera;
+a) Esta compensación, por su naturaleza y fin que cumple, no puede generar derechos permanentes a ningún servidor, pues el disfrute está sujeto al desempeño temporal de necesidades institucionales de concederla bajo la modalidad contractual, para garantizar un servicie.
+b) Que es necesario establecer un contrato que regulen el otorgamiento de este beneficio salarial, a fin de garantizar una correcta asignación y selección del personal que lo recibirá.

@@ -1,0 +1,3 @@
+Articulo 60.—El área de Salud Ocupacional del Departamento de Recursos Humanos conjuntamente con el Alcalde adoptará las medidas necesarias para proteger eficazmente la salud laboral de sus funcionarios, conforme a los términos del Código de Trabajo, leyes conexas, reglamentos de salud ocupacional que se promulguen y a las recomendaciones que esta materia formule tanto el Consejo de Salud Ocupacional. como las autoridades de inspección del Ministerio de Traba]o y Seguridad Social, Ministerio de Salud y el Instituto Nacional de Seguros, que garanticen:
+La protección de la salud y la preservación de la integridad psíquica, física, social y moral de los funcionarios, y
+La prevención y control de los riesgos del trabajo.

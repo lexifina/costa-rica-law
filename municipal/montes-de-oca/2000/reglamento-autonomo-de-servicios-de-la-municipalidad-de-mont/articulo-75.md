@@ -1,0 +1,4 @@
+Articulo 75.—La Municipalidad concederá permiso con goce de salario previa aprobación de] Alcalde, en los siguientes casos:
+f) Por enfermedad de un hijo, padres o conyugue que requiera internamiento médico o tratamiento especializado en el hogar, hasta un máximo de ocho días. El funcionario justificará la solicitud de esta licencia mediante constancia médica extendida por médico de la CCSS o INS, que conste que se requiere la presencia del funcionario en el lugar de internamiento o para el tratamiento.
+g) Permisos para estudio con goce de salario, siempre y cuando cumpla con las disposiciones y contratos de estudios establecidos en el Manual de Capacitación.
+h) Cuando el funcionario haga mal uso del permiso o licencia otorgada, estará sujeto a las sanciones previstas en el inciso 1) del Articulo 81 del Código de Trabajo al considerar la gravedad de la falta.

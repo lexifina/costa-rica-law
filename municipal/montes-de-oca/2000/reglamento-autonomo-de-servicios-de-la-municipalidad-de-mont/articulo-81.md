@@ -1,0 +1,1 @@
+Articulo 81.—Quedan protegidos por este reglamento y son responsables de sus disposiciones todos los funcionarios municipales nombrados con base en el sistema de selección por mérito dispuesto en el Código Municipal y remunerados por e] presupuesto de la municipalidad.

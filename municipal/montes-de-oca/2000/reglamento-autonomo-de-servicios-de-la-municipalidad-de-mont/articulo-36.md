@@ -1,0 +1,1 @@
+Articulo 36.—-Además de las contenidas en otros articules del presente Reglamento, se considerarán faltas leves, las infracciones a las disposiciones en el articulo 5 y el articulo 29, incisos a), h), c). g), h), i), l), m), n). o), p) articulo 30, incisos a), h), d), e), f). g). h), k) v articulo 31, incisos b), g,), h). i), j), k), p), q).

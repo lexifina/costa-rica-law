@@ -1,0 +1,1 @@
+Articulo 69.—La responsabilidad de la Municipalidad, en cuanto a asegurar contra riesgos del trabajo, subsiste aún en caso en que el servidor esté bajo la dirección de intermediarios, de quienes la Municipalidad se valga para la ejecución o realización del servicio.

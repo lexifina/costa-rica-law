@@ -1,0 +1,1 @@
+Articulo 107.—La calificación de los servicios de cada funcionario se hará conforme a las normas técnicas que recomiende el Departamento de Recursos Humanos en el Manual de Evaluación del Desempeño de conformidad con las disposiciones contempladas en el Capitulo VI del Código Municipal.

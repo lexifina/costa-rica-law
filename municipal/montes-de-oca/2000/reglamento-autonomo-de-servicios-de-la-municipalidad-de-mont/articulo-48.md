@@ -1,0 +1,1 @@
+Artículo 48.—Deberán marcar tarjeta de asistencia todos los funcionarios con excepción de aquellos funcionarios que así lo determine este Reglamento, o disposición razonada del Alcalde. Quedando excluido de esta obligación el alcalde los directores y el Auditor Municipal.

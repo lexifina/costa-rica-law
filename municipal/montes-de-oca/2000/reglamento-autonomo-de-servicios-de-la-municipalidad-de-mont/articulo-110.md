@@ -1,0 +1,2 @@
+Articulo 110.—De las competencias de los órganos de la administración superior:
+Concejo Municipal, es el órgano colegiado de máxima autoridad de la Municipalidad de Montes de Oca que deberá guiar a la Municipalidad y establecer las políticas generales que adoptarán los restantes órganos de la administración, crear o suprimir la;, direcciones y u órganos, adjudicar las contrataciones administrativas y nombrar al Auditor, Secretario del Concejo y Asesor Legal y cualquier otra que indique el ordenamiento jurídico vigente acorde al Código Municipal.

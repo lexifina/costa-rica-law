@@ -1,0 +1,1 @@
+Artículo 41.—Se considerara como falta grave para efectos de su sanción, las circunstancias de que a un colaborador se le haya concedido licencia para ausentarse temporalmente de su trabajo, y se le compruebe que ha abusado de la licencia otorgada.

@@ -1,0 +1,1 @@
+Artículo 117.—Las actuales unidades funcionales de la organización gradualmente serán incorporadas a la nueva estructura resultante del proceso de innovación organizativa según se vaya implementando este último.

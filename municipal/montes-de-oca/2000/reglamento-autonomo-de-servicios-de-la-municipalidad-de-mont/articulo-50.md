@@ -1,0 +1,1 @@
+Articulo 50.—Las anotaciones del registro de asistencia y puntualidad, de cada uno de los funcionarios de la Municipalidad, formarán parte de un prontuario que se lleva y se lomarán en cuenta para la evaluación de sus responsabilidades.

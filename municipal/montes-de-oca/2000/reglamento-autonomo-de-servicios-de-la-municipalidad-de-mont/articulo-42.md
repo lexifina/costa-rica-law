@@ -1,0 +1,1 @@
+Articulo 42.—Toda sanción o corrección disciplinaria, deberá tramitarse a través del Departamento de Recursos Humanos y hacerse constar en el expediente que se llevará a cada uno de los funcionarios de la Municipalidad. Para tal efecto, se usará una copia de la comunicación escrita que debe entregársele al interesado en cada caso.

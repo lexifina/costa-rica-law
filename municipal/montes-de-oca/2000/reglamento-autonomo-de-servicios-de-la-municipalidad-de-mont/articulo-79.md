@@ -1,0 +1,1 @@
+Articulo 79. Todo lo relacionado con infracciones o sanciones, serán tramitadas por el Departamento de Recursos Humanos con fundamento en el criterio que emita el Departamento Legal, cuando sea necesario y acorde al procedimiento establecido en el articulo 150 del Código Municipal de conformidad con las indicaciones o reportes de las Direcciones v Jefaturas.

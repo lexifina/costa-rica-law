@@ -1,0 +1,1 @@
+Articulo 109.— De la estructura organizacional: La municipalidad estará integrada por los órganos de la Administración Superior conformada por el Concejo Municipal, el Alcalde y Vice-Alcaldes y sus órganos de apoyo, asesoría, fiscalización y las Direcciones.

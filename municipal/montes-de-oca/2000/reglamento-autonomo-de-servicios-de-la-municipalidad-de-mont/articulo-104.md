@@ -1,0 +1,1 @@
+Artículo 104.—Esta compensación económica es compatible con la carrera profesional, dedicación exclusiva, y otros pluses que no estén referidos a la materia que se regula o al horario de trabajo. Durante el régimen de disponibilidad no es compatible el pago de horas extras.

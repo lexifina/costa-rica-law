@@ -1,0 +1,1 @@
+Articulo 84.—En los casos de pensión por invalidez o vejez se aplicarán las disposiciones que para tales efectos contiene la Ley de Pensiones, Ley de Protección al trabajador, el Reglamento de Invalidez, Vejez y Muerte de la Caja Costarricense del Seguro Social y todo reglamento vigente que aplica la Municipalidad.

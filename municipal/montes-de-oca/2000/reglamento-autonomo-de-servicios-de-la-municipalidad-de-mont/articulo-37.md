@@ -1,0 +1,1 @@
+Articulo 37.—Además de las contenidas en otros artículos del presente Reglamento, se considerarán faltas graves los artículos 18, incisos k) aticulo 29 incisos d), e), f), j). k), o), q), r), s), t), u) articulo 30, incisos: c), i), j), l); articulo 31 incisos a),c), d), e), l), m), n) o), r); y artículos 40 y 43.

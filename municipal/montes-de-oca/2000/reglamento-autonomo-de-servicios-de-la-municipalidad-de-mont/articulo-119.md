@@ -1,0 +1,1 @@
+Articulo 119. —El presente reglamento se mantendrá vigente en: la Municipalidad, hasta tanto no se emita uno nuevo que lo sustituya. Los funcionarios de la Municipalidad gozarán de todos sus derechos adquiridos.
