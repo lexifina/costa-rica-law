@@ -14,3 +14,4 @@ Reglamento de Contratación de Servicios de Instrucción Técnica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-29 | la propia norma |
+| 2 | 2003-11-12 | Reglamento 4088 (2003-11-12) |
