@@ -1,0 +1,2 @@
+ARTICULO 12.- ( Adicionado por el artículo 33 de la Ley Nº 6975 de 30 de noviembre de 1984 y relativo a pensiones de Registro Nacional para personal Administración Central Ministerio Justicia y Adaptación Social, fue anulado por Resolución de la Sala Constitucional Nº 2765 de las 15:09 horas del 15 de junio de 1993)
+TRANSITORIO UNICO.- El titular de la Cartera de Justicia, desempeñará las funciones de Procurador General de la República hasta el 8 de mayo de 1982.
