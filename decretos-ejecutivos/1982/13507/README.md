@@ -12,3 +12,4 @@ Reglamento Ejecución Programa Adiestramiento de Personal del MAG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-03-02 | la propia norma |
+| 2 | 1982-03-02 | SINALEVI (sin norma nombrada) |
