@@ -1,0 +1,1 @@
+Art 4° El Poder Ejecutivo recogerá todos los datos y mandará, según por quien corresponda, las informaciones conducentes a la averiguación del número y valor de las letras giradas sobre Londres u otras Plazas y de los motivos que hayan causado, la confusión en la respectiva cuenta, y con el resultado dará oportunamente al Congreso los informes necesarios.
