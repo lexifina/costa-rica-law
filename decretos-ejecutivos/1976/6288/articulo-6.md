@@ -1,1 +1,0 @@
-Artículo 6°—El Colegio de Costa Rica tendrá un Consejo Consultivo integrado por la totalidad de sus catedráticos, los cuales serán nombrados libremente por el Ministro de Cultura. Juventud y Deportes. El Ministro de Cultura, Juventud y Deportes o su representante presidirá este Consejo, del cual formará parte también el Director Ejecutivo del Colegio.

@@ -1,1 +1,0 @@
-Artículo 3°—Dichas conferencias estarán irrestrictamente abiertas a toda clase de auditorio y serán enteramente gratuitas para el público al cual no deberá pedírsele ningún requisito de matricula o de formación académica previa.
