@@ -1,1 +1,0 @@
-Artículo 4°.-Las actividades de administración efectuadas a la fecha y con teritoridad a la emisión del presente decreto, serán revisadas y fiscalizadas por la Auditoría General del Ministerio de Obras Públicas y Transportes.

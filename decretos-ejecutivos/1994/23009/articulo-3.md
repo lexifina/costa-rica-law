@@ -1,1 +1,0 @@
-Artículo 3°.-La administración del mencionado servicio público será efectuada provisionalmente por el órgano designado por este medio al efecto y hasta tanto no se ente con un adjudicatario en firme de la concesión respectiva.

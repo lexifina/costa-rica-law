@@ -1,1 +1,0 @@
-Articulo 2°.-Dicha Dirección General velará por la continuidad y eficiencia del servicio, quedando facultada para tomar las medidas conducentes que sean de rigor para el buen desarrollo de esa labor y para el cumplimiento de las responsabilidades que se le asignan por este medio.
