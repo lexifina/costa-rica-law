@@ -1,2 +1,0 @@
-B. Del beneficio de vejez
-Artículo 10.—El beneficio por vejez es vitalicio, se paga mensualmente e incluye el pago del decimotercer mes proporcional a los montos pagados durante el año. El monto mensual del beneficio de vejez se fija en ¢15.200,00 (quince mil doscientos colones), cifra que podrá ser aumentada sólo si una Valuación Actuarial comprueba matemáticamente que el Fondo puede asumir el aumento sin entrar en déficit actuarial. Además, dicho aumento no podrá hacerse efectivo hasta tanto no se cumpla estrictamente con lo especificado en el artículo 13.

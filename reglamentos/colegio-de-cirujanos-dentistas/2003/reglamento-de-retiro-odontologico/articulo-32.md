@@ -1,1 +1,0 @@
-Artículo 32—Las únicas circunstancias admitidas para que un colegiado salga del grupo de activos cotizantes del Fondo son: muerte, invalidez, o beneficio por vejez o renuncia que éste haga a los derechos de inscripción o derechos del Colegio.
