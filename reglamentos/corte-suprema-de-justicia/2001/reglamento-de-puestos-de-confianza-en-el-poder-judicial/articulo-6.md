@@ -1,0 +1,1 @@
+Artículo 6°. En todo lo que sea compatible con la naturaleza especial de los puestos de confianza, será de aplicación las normas generales de empleo y condiciones de trabajo vigente en la institución.
