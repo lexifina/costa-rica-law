@@ -1,0 +1,1 @@
+Artículo 20.—La Sección de Salud Ocupacional, será la responsable de controlar y verificar que las Jefaturas y trabajadores, cumplan con las medidas pertinentes de seguridad, mecanismos y sistemas, como a técnicas que mitiguen las condiciones de riesgo laboral.

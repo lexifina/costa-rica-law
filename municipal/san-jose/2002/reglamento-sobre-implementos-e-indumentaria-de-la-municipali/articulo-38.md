@@ -1,0 +1,1 @@
+Artículo 38.—Las sanciones escritas en este capítulo serán aplicadas por el Despacho del Alcalde, a través de la Dirección de Recursos Humanos, conforme al procedimiento que establece la Convención y artículo 150 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 36.—La venta cesión o desapoderamiento a cualquier titulo de la indumentaria, herramienta y/o equipo otorgada por la Municipalidad, dará lugar a solicitar al funcionario la reposición de la misma de forma inmediata ó de enterar el costo de la misma y subsidiariamente la comunicación de la propuesta de despido sin responsabilidad patronal.

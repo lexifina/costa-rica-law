@@ -1,0 +1,1 @@
+Artículo 13.—La aplicación de este Reglamento corresponde al Alcalde Municipal y los representantes patronales y rige para todos los funcionarios municipales, servidores y colaboradores receptores de este beneficio.
