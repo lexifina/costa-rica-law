@@ -1,0 +1,7 @@
+Articulo 3°—Definiciones
+Comisión Médica Evaluadora de Incapacidades (Cmei): Grupo de profesionales médicos que se constituyen en una Junta Médica.
+Junta Médica: Reunión de dos o más médicos para intercambia opiniones respecto al diagnóstico, pronóstico o tratamiento de un enfermo (Articulo 49 Código de Moral Médica)
+Médico Tratante: Médico de la Caja Costarricense de Seguro Social, médico de empresa o de cualquiera de los sistemas o proyectos especiales aprobados por la Junta Directiva, que tenga la potestad de emitir una incapacidad.
+Incapacidad: Periodo de reposo ordenado por médicos de la Caja o autorizados por ésta, al asegurado directo activo asalariado que no esté en posibilidad de trabajar por pérdida temporal de las facultades o aptitudes para el desempeño de las labores habituales u otras compatibles con ésta. El documento respectivo justifica la inasistencia del asegurado(a) a su trabajo, a la vez lo habilita para el cobro de subsidios; su contenido se presume verdadero "iuris tantun" (Articulo 10, Reglamento del Seguro de Salud)
+Subsidio: Suma de dinero que se paga al asegurado directo activo asalariado, por motivo de incapacidad o licencia.
+Certificado Médico: Documento médico extendido por un profesional médico en la papelería oficial del Colegio de Médicos. La única diferencia de un certificado médico con una incapacidad radica en que con ésta última el paciente puede tener derecho a un subsidio.

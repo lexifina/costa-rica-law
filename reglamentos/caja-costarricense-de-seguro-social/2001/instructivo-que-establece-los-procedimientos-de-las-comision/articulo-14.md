@@ -1,0 +1,6 @@
+Articulo 14.—De los Deberes y Obligaciones del Personal de Registros Médicos (Remes)
+14.1 Es Obligación del personal de Registros Médicos de la Caja Costarricense del Seguro Social, confirmar el cumplimiento de la vigencia de los documentos que acrediten al asegurado el derecho a obtención de la incapacidad en ese centro de adscripción, según nivel de atención (Reglamento para el otorgamiento de Incapacidades y Licencias a los beneficiarios del Seguro de Salud, articulo 8) y (Reglamento del Seguro de Salud, artículo.74).
+14.2 Llevar el registro y control manual según formulario N° 4-70-03- 3058 o automatizado de los días de incapacidad otorgados en los siguientes servicios: Hospitalización, Consulta Extema y Emergencias al paciente en los últimos 6 meses.
+14.3 Confirmar que la incapacidad está debidamente registrada en el expediente Clínico del paciente.
+14.4 Verificar que la boleta de incapacidades este debidamente confeccionada tanto por la parte médica como por la administrativa.
+14.5 Deberá referir a la Comisión Médica Evaluadora de Incapacidades aquellos casos que sumen más de treinta días en los últimos 6 meses conforme al artículo. 15 del Reglamento, el no-cumplimiento de esta norma se considerara falta grave a sus obligaciones.
