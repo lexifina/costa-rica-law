@@ -18,3 +18,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 3 | 2001-08-27 | Reglamento 248 (2001-08-27) |
 | 4 | 2001-10-16 | Reglamento 258 (2001-10-16) |
 | 5 | 2002-01-14 | Reglamento 275 (2002-01-14) |
+| 6 | 2002-08-20 | Reglamento 320 (2002-08-20) |

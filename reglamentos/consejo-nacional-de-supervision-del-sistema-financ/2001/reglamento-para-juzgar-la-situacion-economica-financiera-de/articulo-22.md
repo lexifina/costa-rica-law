@@ -3,3 +3,5 @@ Una entidad se encuentra en situación de inestabilidad o irregularidad financie
 a) Cuando el intermediario obtenga una calificación global en puntos entre 1.76 y 2.50, ambos inclusive, conforme lo establece el Capítulo I de este Reglamento.
 b) Cuando como resultado de la aplicación del Capítulo I de este reglamento el intermediario obtenga una calificación global igual o menor a 1.75, pero cualquiera de los elementos sujetos a análisis evidencien una calificación individual superior a 2.50.
 c) Cuando como resultado de la aplicación del Capítulo I de este reglamento el intermediario obtenga una calificación global igual o menor a 1.75, pero tenga dos o más elementos ubicados individualmente en nivel 1.
+d) Cuando una entidad financiera esté ubicada en operación normal y el resultado de la suficiencia patrimonial del grupo o conglomerado financiero al cual pertenece presenta una situación de déficit patrimonial.
+(Así adicionado el inciso d) por acuerdo tomado en sesión N° 320 de 20 de agosto del 2002)
