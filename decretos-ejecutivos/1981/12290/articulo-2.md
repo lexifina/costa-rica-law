@@ -1,1 +1,0 @@
-Artículo 2°-La Comisión de Recursos Humanos restrictivo las situaciones que justifiquen la creación de nombramientos excepcionales que menciona el artículo anterior. Sus decisiones tienen carácter definitivo.
