@@ -1,1 +1,0 @@
-Artículo 4°-Todos los impuestos establecidos por la ley que se reglamenta, afectan las ventas de café correspondientes a la cosecha 1962/1963 y las siguientes, salvo los que específicamente tienen término fijo.

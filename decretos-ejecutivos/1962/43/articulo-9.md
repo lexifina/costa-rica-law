@@ -1,1 +1,0 @@
-Artículo 9°-Sobre todas las exportaciones efectuadas o autorizadas en el mismo período indicado en el artículo anterior, se debitará a los beneficiadores la suma de US$ 0.30 por cada quintal de 46 kilos, que deberá pagar a la Oficina del Café, antes del 15 de enero de 1963.
