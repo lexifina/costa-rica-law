@@ -1,0 +1,1 @@
+Art 7°.- Las nuevas marcas que en lo sucesivo se presenten a los Gobernadores serán estampadas en el libro correspondiente, como queda prevenido, y en lo demás se cumplirá lo que ordena el final de la ley citada n° 7 de 30 del próximo pasado.
