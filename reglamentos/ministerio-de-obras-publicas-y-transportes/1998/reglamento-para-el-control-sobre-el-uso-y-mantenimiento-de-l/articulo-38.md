@@ -1,0 +1,1 @@
+Artículo 38.— La Proveeduría del MOPT no se hará responsable de facturas de reparación de vehículos cuyo trámite no se llevó a cabo mediante este procedimiento; asimismo, los servidores responsables de ellos se harán acreedores de tas sanciones disciplinarias del caso según el "Reglamento Autónomo de Organización y Servicios del Ministerio de Obras Públicas y Transportes".

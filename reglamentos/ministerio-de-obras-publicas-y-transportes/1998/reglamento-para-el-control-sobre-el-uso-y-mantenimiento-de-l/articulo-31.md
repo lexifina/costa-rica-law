@@ -1,0 +1,1 @@
+Artículo 31.—-El operador o funcionario autorizado deberá informar a la brevedad posible a Control de Transportes sobre los pormenores del accidente y comportarse cortésmente con las autoridades que emitan las determinaciones.

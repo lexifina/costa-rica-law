@@ -1,0 +1,1 @@
+Artículo 30.- Ninguna persona autorizada para operar vehículos del MOPT podrá efectuar arreglos extrajudiciales, en caso de accidentes con vehículos del Ministerio. En caso que se requiera, debe indicarle al conductor del vehículo con el que hubo colisión que se apersone o comunique con Control de Transportes, para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 7°—La asignación de los vehículos para uso administrativo general o discrecional es únicamente, para facilitar el desarrollo de las actividades del Ministerio, por ningún motivo será considerada como salario en especie, plus, mejora salarial o beneficio, ni dar lugar a derechos laborales adquiridos en favor del funcionario.

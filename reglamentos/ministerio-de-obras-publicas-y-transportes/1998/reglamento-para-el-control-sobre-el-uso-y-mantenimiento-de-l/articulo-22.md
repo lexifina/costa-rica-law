@@ -1,0 +1,1 @@
+Artículo 22.—Control de Transportes solicitará ante el órgano competente la suspensión del carné o autorización para operar vehículos del Ministerio, a cualquier funcionario conductor que contravenga lo dispuesto en la regulación legal vigente o procedimientos establecidos.

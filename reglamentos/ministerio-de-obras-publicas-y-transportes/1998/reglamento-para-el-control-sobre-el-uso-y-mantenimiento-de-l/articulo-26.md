@@ -1,0 +1,1 @@
+Artículo 26.—Quienes estén autorizados para operar vehículos del Ministerio, no deben permitir que personas no autorizadas para la función o el servicio que se propone brindar o personas ajenas al Ministerio viajen en los vehículos del MOPT, salvo en ocasiones especiales cu que medie autorización previa de su superior inmediato y en casos de emergencia comprobada.

@@ -1,0 +1,1 @@
+Artículo 6°—Vehículos de uso administrativo general: Estos vehículos son los destinados a los servicios regulares de transporte, para el desarrollo normal de las labores del Ministerio y deben estar sometidos a las regulaciones vigentes para el uso y control de los vehículos oficiales.

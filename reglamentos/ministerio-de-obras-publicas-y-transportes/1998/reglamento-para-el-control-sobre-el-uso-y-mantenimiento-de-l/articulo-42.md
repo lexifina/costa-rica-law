@@ -1,0 +1,1 @@
+Artículo 42.—Control de Transportes es la dependencia encargada a nivel ministerial, de velar porque se cumplan las disposiciones de tipo administrativo contenidas en este Reglamento de acuerdo con las políticas dictadas por el superior jerárquico del Ministerio.

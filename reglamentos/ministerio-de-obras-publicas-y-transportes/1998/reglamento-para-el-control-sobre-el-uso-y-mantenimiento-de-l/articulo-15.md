@@ -1,0 +1,1 @@
+Artículo 15.—Cuando un vehículo se encuentre en gira, al finalizar la jornada ordinaria deberá permanecer en la—sede del MOPT correspondiente o en un lugar seguro a juicio del funcionario autorizado o del operador y bajo su entera responsabilidad.

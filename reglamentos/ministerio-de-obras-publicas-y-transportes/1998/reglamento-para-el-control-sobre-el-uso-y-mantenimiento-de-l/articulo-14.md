@@ -1,0 +1,1 @@
+Artículo 14.—Todos los vehículos de uso administrativo general de la sede central con excepción de los que se encuentren en cumplimiento de giras a lugares distantes de las sedes del MOPT en misiones de trabajo, deberán permanecer al final de la jornada ordinaria en el estacionamiento o sitio que el ministerio haya habilitado para tal efecto.
