@@ -1,0 +1,10 @@
+Nº 29128-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) de la Constitución Política, el artículo 28 inciso b) de la Ley General de la Administración Pública, el Código Aduanero Uniforme Centroamericano II, la Ley General de Aduanas Nº 7557 y su Reglamento promulgado mediante Decreto Nº 25270-H del 14 de junio de 1996.
+Considerando:
+1º—Que mediante Decreto Ejecutivo N° 29034-H, publicado en el Alcance N° 75 a La Gaceta N° 210 del 2 de noviembre del 2000, se suspendió el Decreto Ejecutivo N° 28976-H, publicado en La Gaceta N° 196 del 12 de octubre del 2000 que reforma el Reglamento a la Ley General de Aduanas, en razón de que Radiográfica Costarricense, S. A. sufrió una demora en la instalación del servicio de comunicaciones "Sin Distancia" (VPN), sin el cual no podían implementarse los nuevos procedimientos con los que se aplicaría lo dispuesto en el citado Decreto Ejecutivo N° 28976-H.
+2º—Que tal demora ha sido solventada, siendo entonces posible poner en vigencia el Decreto Ejecutivo N° 28976-H para que su aplicación a través de los nuevos procedimientos de "Ingreso de Mercancías, Vehículos y Unidades de Transporte al Territorio Nacional", "Tránsito Aduanero" e "Importación Definitiva", se haga en forma escalonada según un programa de implementación en cada aduana del país, a fin de evitar contratiempos innecesarios.
+3º—Que durante el lapso que estuvo suspendido el Decreto Ejecutivo N° 28976-H, se recibieron y analizaron más observaciones de los distintos sectores involucrados en el quehacer aduanero, resultando justificado reformar algunos artículos del mismo. Por tanto,
+Decretan:
+Artículo 1º—Se deroga el Decreto Ejecutivo N° 29034-H, publicado en el Alcance N° 75 a La Gaceta N° 210 del 2 de noviembre del 2000 y, en consecuencia, se levanta la suspensión del Decreto Ejecutivo N° 28976-H, publicado en La Gaceta N° 196 del 12 de octubre del 2000, a partir de la vigencia del presente decreto.
