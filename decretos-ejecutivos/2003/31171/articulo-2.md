@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al sector público centralizado y descentralizado, territorial e institucional, para contribuir, de conformidad a su disponibilidad presupuestaria, al desarrollo de este proyecto con recursos humanos y materiales, dentro del marco legal respectivo y sin perjuicio del cumplimiento de sus propios objetivos.
