@@ -1,0 +1,1 @@
+6°-Mientras no entre en vigencia la nueva Constitución, corresponde al Tribunal de Sanciones Inmediatas el conocimiento de las causas por delitos a que este decreto se refiere, el cual deberá darles preferencia en su tramitación, a fin de acortar en lo posible la detención provisional de los indiciados.
