@@ -14,3 +14,4 @@ Reglamento para la Comisión de Becas del Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-03 | la propia norma |
+| 2 | 1984-05-28 | Decreto Ejecutivo 15491 (1984-05-28) |
