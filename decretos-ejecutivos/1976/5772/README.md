@@ -15,3 +15,4 @@ Reglamento de Evaluación y Promoción de la Educación Diversificada
 | --- | --- | --- |
 | 1 | 1976-04-13 | la propia norma |
 | 2 | 1977-05-26 | Decreto Ejecutivo 7061 (1977-05-26) |
+| 3 | 1978-09-20 | Decreto Ejecutivo 9162 (1978-09-20) |
