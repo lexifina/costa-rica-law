@@ -14,3 +14,4 @@ Declara de interés público y nacional, las actividades que llevarán a cabo la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-13 | la propia norma |
+| 2 | 2002-04-02 | Decreto Ejecutivo 30292 (2002-04-02) |

@@ -8,3 +8,4 @@ Considerando:
 3º—Que los organizadores del evento han solicitado al Ministerio de Salud la declaratoria de interés público y nacional de las actividades citadas. Por tanto,
 Decretan:
 Artículo 1º—Se declaran de interés público y nacional, las actividades que llevarán a cabo la Asociación Costarricense de Climaterio y Menopausia, con motivo de la celebración de las IV Jornadas de Climaterio y Menopausia, que tendrán lugar en nuestro país del 3 al 6 de abril del 2002.
+(Así modificado por el artículo 1 del Decreto Ejecutivo N° 30292 de 2 de abril del 2002, en el sentido de que las IV Jornadas de Climaterio y Menopausia, que organizará la Asociación Costarricense de Climaterio y Menopausia, tendrán lugar del 19 al 24 de agosto del 2002.)
