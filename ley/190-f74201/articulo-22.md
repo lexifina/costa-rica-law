@@ -1,0 +1,1 @@
+Artículo 22.-La Cooperativa "Casas Baratas La Familia", abrirá una menta corriente en el Banco Nacional de Costa Rica, Institución donde se depositará el producto del empréstito y se enterarán los fondos percibidos por el impuesto recaudado. Dicho Banco será el Tesorero de la Cooperativa en la forma en que lo es de la Junta Nacional de la Habitación.

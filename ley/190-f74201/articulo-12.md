@@ -1,0 +1,2 @@
+Articulo 12.-El comprador recibirá una constancia provisional en que se consignaran los pormenores del contrato y la escritura definitiva le será otorgada una vez que haya satisfecho por lo menos el veinticinco por ciento del valor total; pero el saldo será garantizado con hipoteca de primer grado.
+Cuando el comprador hubiere pagado la mitad del precio total de la propiedad tendrá derecho a venderla, siempre que obtenga la autorización previa de la Junta Directiva y cuando la venta sea en favor de las personas que indican los artículos primero y octavo.
