@@ -1,0 +1,3 @@
+Transitorio III.—En un plazo de seis meses a partir de la vigencia de esta Ley, la Auditoria Interna del IDA deberá realizar un auditoraje sobre los Créditos de Tierra y los créditos de Caja Agraria amparados por la presente Ley. El informe deberá ser remitido a la Comisión Permanente de Asuntos Agropecuarios y Recursos Naturales y a la Comisión Permanente Especial de Control de Ingreso y Gasto Públicos, ambas de la Asamblea Legislativa, así como a la Contraloría General de la República, para la evaluación y el estudio respectivos.
+Rige a partir de su publicación.
+Presidencia de la República.—San José, a los quince días del mes de febrero del dos mil cinco.

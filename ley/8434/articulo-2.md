@@ -1,0 +1,1 @@
+Artículo 2º—El IDA deberá seleccionar de la cartera de la Caja Agraria a los beneficiarios de la presente Ley, quienes serán definidos mediante el Reglamento de esta Ley. Para estos efectos, deberá verificar que el beneficiario o su familia directa ocupen la propiedad en el desarrollo de actividades productivas y hagan uso de ella.
