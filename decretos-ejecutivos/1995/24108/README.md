@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 24108
+
+Adiciona artículo a la reforma del decreto que establece el monto de dietas a la Junta Nacional de Pensiones y otros Consejos.
+
+- Tipo: Decreto Ejecutivo
+- Número: 24108
+- Fecha: 1995-03-03
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 58 del 1995-03-22
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53273&param2=58049&param3=1 (ficha 53273)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1995-03-22 | la propia norma |
