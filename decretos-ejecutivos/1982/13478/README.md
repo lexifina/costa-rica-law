@@ -13,3 +13,4 @@ Reforma Clasificación Institucional Sector Financiero y Crea ComisiónAutoridad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-03-30 | la propia norma |
+| 2 | 1982-05-05 | Decreto Ejecutivo 13603 (1982-05-05) |

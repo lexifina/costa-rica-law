@@ -7,4 +7,5 @@ Considerando:
 3°.-Que no ha sido necesario recurrir al uso del Fondo de Compensación Financiera, en virtud de existir recursos suficientes.
 Por tanto,
 DECRETAN:
-ARTÏCULO 1°.-Se derogan los artículos 6°, 7°, 8°, 9°, 10 y 11 del Decreto Ejecutivo número 10855-H de diecinueve de noviembre de 1979.
+ARTÍCULO 1°.-Se derogan los artículos 6°, 7°, 8°, 9°, 10 y 11 del Decreto Ejecutivo N° 10855-H del 19 de noviembre de 1979.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 13603 de 5 de mayo de 1982).
