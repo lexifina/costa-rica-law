@@ -1,16 +1,5 @@
-Artículo 1º.- Declárase de utilidad pública los bienes inmuebles, sean
-fincas completa, porciones, derechos o intereses patrimoniales legítimos,
-que por su ubicación sean necesarios para realizar y ejecutar el proyecto
-turístico en Bahía Culebra, en jurisdicción de la provincia de Guanacaste,
-que se asentará, sobre la base de la cuadrícula Lambert Costa Rica, del
-mapa hoja 3047.1 Carrillo Norte, Costa Rica 1: 50.000 (elaborado por el
-Instituto Geográfico Nacional), y se ubicará entre las siguientes
-coordenadas: 2.94 Norte con 3.50 Este y 2.94 Norte con 3.62 Este, como
-límite Norte; 2.85 Norte con 3.50 Este y 2.85 Norte con 3.54 Este y 2.84
-Norte con 3.54 Este, y 2.84 Norte con 3.62 Este como límite Sur; 2.94 Norte
-con 3.62 Este y 2.84 Norte con 3.62 Este, como límite Este; y 2.94 Norte
-con 3.50 Este y 2.85 Norte con 3.50 Este, y 2.85 Norte con 3.54 Este y 2.84
-Norte con 3.54 Este, como límite Oeste.
-Dicha porción territorial comprende la zona marítima del litoral
-Pacífico, ubicada desde Punta Cabuya al Norte, hasta un kilómetro al Sur de
-Punta Ballena.
+N° 6370
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1º.- Declárase de utilidad pública los bienes inmuebles, sean fincas completa, porciones, derechos o intereses patrimoniales legítimos, que por su ubicación sean necesarios para realizar y ejecutar el proyecto turístico en Bahía Culebra, en jurisdicción de la provincia de Guanacaste, que se asentará, sobre la base de la cuadrícula Lambert Costa Rica, del mapa hoja 3047.1 Carrillo Norte, Costa Rica 1: 50.000 (elaborado por el Instituto Geográfico Nacional), y se ubicará entre las siguientes coordenadas: 2.94 Norte con 3.50 Este y 2.94 Norte con 3.62 Este, como límite Norte; 2.85 Norte con 3.50 Este y 2.85 Norte con 3.54 Este y 2.84 Norte con 3.54 Este, y 2.84 Norte con 3.62 Este como límite Sur; 2.94 Norte con 3.62 Este y 2.84 Norte con 3.62 Este, como límite Este; y 2.94 Norte con 3.50 Este y 2.85 Norte con 3.50 Este, y 2.85 Norte con 3.54 Este y 2.84 Norte con 3.54 Este, como límite Oeste.
+Dicha porción territorial comprende la zona marítima del litoral Pacífico, ubicada desde Punta Cabuya al Norte, hasta un kilómetro al Sur de Punta Ballena.
