@@ -15,3 +15,4 @@ Reglamento de Cobro de Servicio Judicial
 | --- | --- | --- |
 | 1 | 1998-09-02 | la propia norma |
 | 2 | 2002-06-11 | Reglamento municipal 225 (2002-06-11) |
+| 3 | 2002-06-11 | Ley 8 |
