@@ -14,19 +14,22 @@ a) El régimen de pensiones otorgadas al amparo de la Ley No. 2248, del 5 de set
 b) El régimen de pensiones otorgadas al amparo de la reforma introducida por la Ley No. 7268, del 14 de noviembre de 1991.
 c) El Régimen transitorio de reparto, regulado en el Título III de la presente ley.
 d) El Régimen de capitalización de pensiones y jubilaciones, regulado en el Título II de esta ley.
-Artículo 2.- Derechos adquiridos
+Artículo 2.- Derechos adquiridos.
 Las pensiones y las jubilaciones otorgadas por los regímenes mencionados en los incisos a) y b) del artículo anterior, continuarán reguladas por las normas vigentes en el momento de su adquisición, en todos sus elementos, salvo en lo referente a las cotizaciones a cargo de los pensionados, lo cual queda sujeto a lo dispuesto en los artículos 70 y 71 de la presente ley.
 Las pensiones y las jubilaciones cuyos derechos se adquieran durante la vigencia de esta ley, se regirán por lo dispuesto para el Régimen transitorio de reparto o para el Régimen de capitalización, según el caso.
 Los funcionarios que cumplan con los requisitos para adquirir el derecho a la pensión ordinaria según lo establecía el texto anterior, consagrado por la Ley No. 7268, del 14 de noviembre de 1991, dentro de los dieciocho meses posteriores a la promulgación de la presente ley, podrán pensionarse al amparo de las disposiciones establecidas en el mencionado texto.
+Quienes al 13 de enero de 1997 hayan servido durante diez años consecutivos o quince alternos en zona incómoda e insalubre, con horario alterno, en enseñanza especial o educación de adultos, en primaria y secundaria, tendrán como derecho adquirido cuatro meses por cada año laborado en tales condiciones, sin exceder de cinco años, a efecto de completar el tiempo necesario para jubilarse.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 TITULO II
 Régimen de capitalización
 CAPITULO I
 Ambito de protección
 SECCION I
 Adscripción
-Artículo 3.- Derecho de pertenencia
-El Régimen de capitalización es de adscripción voluntaria.
-Los funcionarios que cumplan con los requisitos de pertenencia a las instituciones indicadas en el artículo 8 siguiente, quedarán incluidos de oficio en el colectivo cubierto, por el solo acto de nombramiento. No obstante, cuando lo soliciten de modo expreso, serán excluidos del Régimen y, automáticamente, quedarán cubiertos por el seguro obligatorio de Invalidez, vejez y muerte, creado por la Ley No. 17, del 22 de octubre de 1943 y sus reformas.
+Artículo 3.- Derecho de pertenencia.
+El régimen de capitalización es de adscripción obligatoria. Los funcionarios que cumplan los requisitos de pertenencia a las instituciones indicadas en el artículo 8 siguiente, quedarán incluidos, de oficio, en el colectivo cubierto, por el solo acto de nombramiento.
+Transitorio.- Los funcionarios del régimen de capitalización que, antes de entrar en vigencia esta ley, hayan gestionado trasladarse al Seguro de Invalidez, Vejez y Muerte, al amparo del artículo 3 de la Ley de pensiones y jubilaciones del Magisterio Nacional, según el texto aprobado por la Ley No. 7531 aquí modificada, se regirán por las disposiciones de los artículos 4, 5 y 6 de la ley citada.”
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 4.- Derecho de opción
 La opción de traspaso a que se refiere el párrafo segundo del artículo anterior podrá ser ejercida por una sola vez, de manera que no procederá incluir de nuevo en el Régimen del Magisterio, a los funcionarios que hayan optado por pasarse al seguro obligatorio de Invalidez, Vejez y Muerte.
 Artículo 5.- Trámite
@@ -75,15 +78,21 @@ CAPITULO III
 Ingresos del Régimen
 SECCION I
 Cotización
-Artículo 14.- Cotización obrera y patronal
-Los funcionarios cubiertos por este Régimen, así como sus patronos, cotizarán con el cinco coma setenta y cinco por ciento (5,75%) del salario devengado.
-Artículo 15.- Cotización estatal
-El Estado, en su calidad de tal, cotizará un porcentaje de los salarios igual al establecido para el seguro obligatorio de Invalidez, vejez y muerte, administrado por la Caja Costarricense de Seguro Social.
+Artículo 14.- Cotización obrera y patronal.
+Todos los funcionarios cubiertos por este Régimen, sin excepción, cotizarán el ocho por ciento (8%) del salario devengado y sus patronos, tanto públicos como privados, el seis coma setenta y cinco por ciento (6,75%) del salario.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 15.- Contribución del Estado y plazos.
+El Estado, en su calidad de tal, cotizará un porcentaje idéntico al que aporta al Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense de Seguro Social, del total de los salarios de los servidores públicos y privados de la educación nacional, que se encuentren dentro del colectivo cubierto por el Régimen de Capitalización. Para realizar el pago correspondiente a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, se establece el procedimiento siguiente:
+a) Para los trabajadores de la educación que presten servicios al Ministerio de Educación Pública, el Ministerio de Hacienda tendrá un plazo improrrogable de un mes para depositar, a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, los montos correspondientes a las cotizaciones obreras, patronales y estatales.
+b) Para los trabajadores de la educación de los otros centros de enseñanza públicos y privados, la Junta de Pensiones y Jubilaciones del Magisterio Nacional remitirá, mensualmente, a la Dirección General de Presupuesto Nacional del Ministerio de Hacienda, una planilla con los nombres, números de cédula, montos salariales devengados y el monto total por cancelar. La Junta de Pensiones y Jubilaciones dispondrá de un plazo improrrogable de un mes para remitir esta información al Ministerio de Hacienda; este último, una vez recibida la planilla, contará con un plazo de un mes para depositar las sumas a favor de la Junta de Pensiones. La Junta de Pensiones y Jubilaciones les fijará a estos centros de enseñanza los plazos máximos para remitirle la información de sus planillas.
+Si el Ministerio de Hacienda no deposita las sumas a favor de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, dentro de los plazos dispuestos en los incisos a) y b) de este artículo, los montos no girados devengarán, por concepto de interés por mora, un porcentaje igual a la tasa básica pasiva a seis meses plazo, calculada por el Banco Central de Costa Rica.
+Igual interés por mora será aplicable a la Junta de Pensiones y Jubilaciones del Magisterio Nacional sobre los montos por cancelar a su favor, en caso de no presentar la planilla correspondiente dentro del plazo ordenado en el inciso b) de este artículo. Las sumas por intereses deberán cancelarse con cargo al tres por mil (3x1000) del Fondo Administrativo establecido en el inciso a) del artículo 107. La Junta de Pensiones y Jubilaciones cobrará, a su vez, igual interés por mora a los centros de enseñanza que no le presenten las planillas dentro de los plazos fijados.
+Todo interés por mora se destinará exclusivamente a fortalecer el Fondo de Pensiones del Régimen de Capitalización. La certificación que emita la Junta de Pensiones y Jubilaciones del Magisterio Nacional, donde consten las deudas a favor del Fondo de Pensiones, tendrá el carácter de título ejecutivo, excepto para los casos en que la Junta haya omitido o atrasado el envío de las planillas correspondientes o las haya enviado defectuosas al Ministerio de Hacienda.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 16.- Modificación de las cotizaciones
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional podrá ajustar las cotizaciones de los funcionarios activos asegurados, cuando así lo recomienden los estudios actuariales y previa autorización de la Superintendencia General de Pensiones.
 La cuota patronal sólo podrá variarse con autorización expresa de la Asamblea Legislativa, emitida por ley ordinaria.
-Transitorio I.- Cotización especial solidaria
-Para contribuir al pago de las pensiones en curso correspondientes a los regímenes indicados en los incisos a), b) y c) del artículo 1, los funcionarios activos y los patronos cotizarán, cada uno, con el dos coma veinticinco por ciento (2,25%) de los salarios devengados. Esta contribución especial regirá solamente durante los diez años inmediatos posteriores a la vigencia de esta ley.
+Transitorio I.- Cotización especial solidaria. (DEROGADO por el artículo 3° de la Ley No. 7946 de 18 de noviembre de 1999).
 Transitorio II.- Transferencia de cotizaciones pagadas
 El Estado transferirá, al Fondo de Capitalización que esta ley establece, una suma equivalente a las cotizaciones obreras deducidas del salario de los funcionarios nacidos el 1º de agosto de 1965 o en fecha posterior y que sean cotizantes según la Ley No. 7268, del 14 de noviembre de 1991. El Ministerio de Hacienda determinará el monto total de esa suma.
 Para estos efectos, la suma correspondiente se transferirá en diez tractos, pagaderos anualmente, y en títulos indexables del Estado (TUDES), en plazos de diez, quince y veinte años.
@@ -111,8 +120,8 @@ Artículo 22.- Limitaciones por razón de las personas
 La Junta no podrá invertir en títulos emitidos por sociedades o instituciones de cualquier clase, en las que alguno de los miembros de sus juntas directivas también sea miembro de la Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional. Igual prohibición regirá para las inversiones en sociedades o instituciones, de cualquier clase, en las que un miembro de la Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional o sus parientes hasta el cuarto grado por consanguinidad o afinidad inclusive, sea accionista titular de más del cinco por ciento (5%) del capital social.
 Artículo 23.- Limitaciones por razón de la cartera
 La Junta deberá invertir no menos del setenta por ciento (70%) del Fondo de Capitalización, en títulos públicos emitidos por el Estado.
-Artículo 24.- Custodia de los títulos
-La Junta mantendrá los títulos en que se haya invertido, en poder de un banco del Sistema Bancario Nacional, el cual asumirá la custodia, de conformidad con la ley y el contrato que se celebre al respecto.
+Artículo 24.- Custodia de los títulos. Los títulos en los que la Junta haya invertido se mantendrán custodiados en una central de valores, autorizada y supervisada por la Superintendencia de Valores.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 25.- Consecuencias penales
 El miembro de la Junta Directiva que concurra con su voto para aprobar alguna decisión violatoria de lo establecido en los artículos 21 al 24 de la presente ley, incurrirá en el delito de administración fraudulenta, previsto y sancionado en el artículo 222 del Código Penal. De conformidad con el artículo 46 del Código Penal, recibirán igual sanción los funcionarios subalternos de la Junta que induzcan a tomar la decisión ilegal.
 SECCION III
@@ -166,10 +175,11 @@ Artículo 36.- Contingencias protegidas
 Este Régimen otorgará prestaciones económicas periódicas para cubrir las contingencias de vejez, invalidez y supervivencia a la muerte del sostén económico de la familia, fundamentadas en los principios de justicia social, solidaridad y redistribución de la riqueza, con estricto apego a los principios técnicos que regulan esta clase de regímenes.
 SECCION II
 Salario de referencia
-Artículo 37.- Salario de referencia
-Para determinar la cuantía de cualquiera de las prestaciones que se otorguen en este Régimen, se tomará, como base de referencia, el promedio de los cuarenta y ocho mejores salarios devengados, exclusivamente, en funciones magisteriales, de conformidad con los artículos 34 y 35 anteriores, cotizados en los últimos sesenta meses.
-En caso de muerte del funcionario, cuando, por razón del tiempo laborado no se hayan completado cuarenta y ocho salarios, el salario de referencia se calculará sobre la totalidad de salarios devengados y cotizados antes de acaecer la contingencia.
-Este salario de referencia es sólo al efecto de calcular la cuantía de las prestaciones, sin que pueda entenderse que estas son salarios o tienen una composición similar al salario. En este sentido, una prestación declarada consiste en una suma de dinero única.
+Artículo 37.- Salario de referencia.
+Para determinar la cuantía de cualquiera de las prestaciones que se otorgue en el Régimen transitorio de reparto, el salario de referencia se obtendrá calculando el promedio de los mejores treinta y dos salarios devengados durante los últimos sesenta meses al servicio de la educación. Al resultado se le aplicará una tasa de reemplazo del ochenta por ciento (80%); todo lo anterior de conformidad con los artículos 34 y 35.
+En caso de muerte del funcionario, cuando, por razón del tiempo laborado no hayan sido completados treinta y dos salarios, el salario de referencia se calculará sobre la totalidad de los salarios devengados y cotizados antes de acaecer la contingencia.
+Este salario de referencia es solo para el efecto de calcular la cuantía de las prestaciones, sin que pueda entenderse que estas son salarios o tienen una composición similar al salario. En este sentido, una prestación declarada consiste en una suma única de dinero.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 38.- Subsidios sustitutos del salario
 En caso de que el funcionario esté devengando prestaciones por incapacidad laboral transitoria, tendrá derecho a que esas cotizaciones se le consideren tanto para calcular el salario de referencia como para determinar el número de cuotas pagadas, siempre y cuando continúe cotizando sobre tales prestaciones en favor del Régimen de Pensiones y Jubilaciones.
 Para los efectos del párrafo anterior, son prestaciones por incapacidad laboral transitoria las otorgadas:
@@ -204,12 +214,35 @@ SECCION II
 Cuantía de las prestaciones
 Artículo 43.- Cuantía básica de las prestaciones por vejez
 El monto de la jubilación será equivalente al ochenta por ciento (80%) del salario de referencia, determinado de conformidad con los artículos 37 y 38 de esta ley.
-Artículo 44.- Monto máximo de pensión
-Las jubilaciones que se otorguen no superarán el monto equivalente al salario de un catedrático de la Universidad de Costa Rica, con la sola consideración de treinta anualidades y dedicación exclusiva.
-Esta limitación solo podrá ser superada postergando la jubilación.
-Artículo 45.- Beneficio por postergación
-En caso de que el funcionario opte por postergar su retiro, la tasa de reemplazo establecida en el artículo 43, se aumentará en cero coma quince por ciento (0,15%) del salario de referencia, por cada mes postergado y cotizado.
-En caso de que la pensión por vejez, calculada según lo dispuesto en el artículo 43 de esta ley, supere la limitación establecida en el artículo anterior, el porcentaje de beneficio por postergación se sumará al monto máximo establecido en ese último artículo.
+Artículo 44.- Montos máximos y mínimos de pensión.
+Los derechos por vejez, invalidez o supervivencia que se otorguen no superarán el monto equivalente al salario de un catedrático de la Universidad de Costa Rica, con la sola consideración de treinta anualidades y dedicación exclusiva.
+Los derechos por vejez, invalidez o supervivencia que se otorguen una vez deducida la cotización al Régimen, no serán inferiores al monto del salario base más bajo pagado por la Administración Pública. En caso de supervivencia, la sumatoria de los montos derivados de un derecho no podrá ser inferior al monto mínimo aquí establecido.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 45.- Beneficio por postergación.
+Si el funcionario opta por postergar su retiro, la tasa de reemplazo establecida en el artículo 43, por cada año calendario postergado y cotizado en forma completa, se aumentará de acuerdo con la siguiente tabla:
+Años | Incremento en la tasa de reemplazo | Tasa de reemplazo
+1 | 2 | 82
+2 | 3 | 85
+3 | 4 | 89
+4 | 5 | 94
+5 | 6 | 100
+La postergación del retiro por fracciones de año será reconocida, en forma proporcional, por cada mes completo del ciclo lectivo que haya sido postergado y cotizado según la siguiente tabla:
+Años de postergación | Incremento en la tasa de reemplazo por cada mes del ciclo lectivo,postergado y cotizado
+1 | 0,166
+2 | 0,250
+3 | 0,333
+4 | 0,416
+5 | 0,500
+Adicionalmente, el funcionario que postergue su retiro percibirá, al completar totalmente el primero y segundo años postergados y cotizados, un beneficio adicional equivalente al cinco por ciento (5%) del total de los salarios devengados durante cada uno de esos años, excluido el aguinaldo. Este incentivo se tomará en cuenta para calcular el salario de referencia. El Poder Ejecutivo definirá, en el reglamento, el procedimiento para hacer efectivo el pago de este incentivo.
+El monto máximo de la pensión establecido en el artículo 44 únicamente se modificará en caso de postergación, conforme al número de años postergados en forma completa de la siguiente manera:
+Años completos de postergación | Monto máximo de la pensión
+Sin postergación | El monto máximo establecido en el artículo 44
+1 | El monto máximo establecido multiplicado por 1,02.
+2 | El monto máximo establecido multiplicado por 1,05
+3 | El monto máximo establecido multiplicado por 1,09
+4 | El monto máximo establecido multiplicado por 1,14
+5 | El monto máximo establecido multiplicado por 1,2
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 46.- Vigencia de las prestaciones por vejez
 Las prestaciones por vejez regirán a partir del primer día del mes siguiente a aquel en que se produjo la baja laboral del beneficiario.
 CAPITULO IV
@@ -219,7 +252,8 @@ Requisitos de elegibilidad
 Artículo 47.- Requisitos de elegibilidad
 Tendrán derecho a las prestaciones por invalidez las personas cubiertas por este Régimen que, por alteración o debilitamiento de su estado físico o mental, hayan perdido dos terceras partes o más de su capacidad para desempeñar sus funciones y, por tal razón, no puedan ser reubicadas en otra función dentro de la Administración Pública y, por ese motivo, no puedan obtener una remuneración suficiente para su subsistencia y la de su familia.
 La Caja Costarricense de Seguro Social determinará y calificará el estado de invalidez, según el proceso de declaratoria de ese estado que utiliza esta institución. La Caja dará este servicio al Estado, al costo.
-Además de la declaratoria de invalidez, el solicitante de este tipo de prestación deberá haber cumplido, como mínimo, con el pago de sesenta cotizaciones mensuales.
+Además de la declaratoria de invalidez, el solicitante de este tipo de prestación deberá haber cumplido, como mínimo, con el pago de sesenta* cotizaciones mensuales.
+*(Texto modificado por Resolución de la Sala Constitucional Nº 5261-95 de las 15:27 horas del 26 de setiembre de 1995, que sustituye el pago de sesenta cotizaciones mensuales por el de treinta y seis)
 Artículo 48.- Exámenes médicos
 El solicitante de las prestaciones por invalidez deberá someterse a los exámenes, los tratamientos y los controles médicos que determine el procedimiento de declaratoria del estado de invalidez aludido en el párrafo segundo del artículo anterior.
 Igual deber tendrán los derechohabientes (viudas, viudos, compañeras, compañeros y huérfanos) que, por su condición de inválidos, soliciten pensión por supervivencia.
@@ -327,12 +361,13 @@ De concurrir varios derechos, se aplicará lo dispuesto en el párrafo segundo d
 CAPITULO VI
 Cotizaciones
 Artículo 70.- Cotización básica de los funcionarios activos y de los pensionados
-Todos los funcionarios activos cubiertos por este Régimen, así como los pensionados, sea que hayan adquirido su derecho al amparo de esta ley o de cualquiera de las anteriores, sean estas la No. 2248, del 5 de setiembre de 1958 y sus reformas o la No. 7268, del 14 de noviembre de 1991 y su reforma, cotizarán en favor del Estado, según la siguiente tabla:
+Todos los funcionarios activos cubiertos por este Régimen, así como los pensionados, sea que hayan adquirido su derecho al amparo de esta ley o de cualquiera de las anteriores, sean estas la No. 2248, del 5 de setiembre de 1958 y sus reformas o la No. 7268, del 14 de noviembre de 1991 y su reforma, *(cotizarán en favor del Estado), según la siguiente tabla:
 a) Hasta dos veces la base cotizable, con el diez por ciento (10%) de su salario o pensión.
 b) Sobre el exceso de lo establecido en el inciso anterior y hasta cuatro veces la base cotizable, con el doce por ciento (12%) de su salario o pensión.
 c) Sobre el exceso de lo establecido en el inciso anterior y hasta seis veces la base cotizable, con el catorce por ciento (14%) de su salario o pensión.
 d) Sobre el exceso de lo establecido en el inciso anterior y hasta el monto establecido en el artículo 41 de esta ley, con el dieciséis por ciento (16%) de su salario o pensión.
 Debe entenderse por base cotizable, el salario base más bajo pagado por la Administración Pública.
+*(La Sala Constitucional mediante resolución N° 5236-99, de las 14:00 horas del 7 de julio de 1999, declaró inconstitucional del artículo anterior la frase destacada entre paréntesis.)
 Artículo 71.- Contribución especial, solidaria y redis-tributiva de los pensionados y jubilados
 Además de la cotización común establecida en el artículo anterior, los pensionados y los jubilados cuyas prestaciones superen los montos que se fijarán, contribuirán en forma especial, solidaria y redistributiva, de acuerdo con la siguiente tabla:
 a) Sobre el exceso del tope establecido en el artículo 44, y hasta por el veinticinco por ciento (25%) de dicho tope, contribuirán con el veinticinco por ciento (25%) de tal exceso.
@@ -373,10 +408,10 @@ El ex jubilado que vuelva a cesar en las funciones y se acoja de nuevo a la pasi
 El monto de la prestación será el mismo que estaría devengando de no haber suspendido su pensión. Para estos efectos, la prestación será incrementada sólo en los porcentajes de aumento decretados para las pensiones del Régimen transitorio de reparto, sin que los salarios devengados durante la suspensión resulten hábiles para revisar el monto.
 SECCION II
 Revalorización de las prestaciones
-Artículo 79.- Revalorización
-Las prestaciones que se otorguen de conformidad con lo dispuesto en este Título, se revalorizarán solo por razón del aumento en el costo de la vida y de acuerdo con la recomendación actuarial. Esa revalorización surtirá efecto en las condiciones y desde el momento en que el Poder Ejecutivo lo determine, mediante decreto que al efecto emitirá. Este decreto será independiente del decreto de aumentos de salarios para el sector público.
-La revalorización se producirá sobre el monto total nominal de la pensión, de conformidad con lo dispuesto en el párrafo tercero del artículo 37 anterior.
-El reglamento ejecutivo de la presente ley contendrá las fórmulas matemáticas para calcularlas.
+Artículo 79.- Revalorización.
+Las prestaciones otorgadas según lo dispuesto en este título se revalorizarán únicamente por el aumento en el costo de la vida, en un porcentaje igual al del Índice de Precios al Consumidor (IPC), de modo automático y con periodicidad semestral.
+La revalorización se producirá sobre el monto total nominal de la pensión, de conformidad con el tercer párrafo del artículo 37.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 CAPITULO IX
 Procedimiento administrativo
 SECCION I
@@ -398,30 +433,35 @@ Artículo 85.- Curso del procedimiento
 El procedimiento administrativo para la declaratoria del derecho a la jubilación o pensión, se ajustará a lo dispuesto en este Capítulo y a las disposiciones del Libro Segundo de la Ley General de la Administración Pública y, particularmente, a las referidas al proceso sumario.
 SECCION II
 Formalidades de la decisión
-Artículo 86.- Recomendación
-Finalizada la instrucción del expediente, la Junta de Pensiones y Jubilaciones del Magisterio Nacional conocerá de la petición y votará, recomendando o denegando su otorgamiento.
-La Junta emitirá una resolución de lo acordado, la cual será firmada por el Presidente y el Secretario.
+Artículo 86.- Primera fase de aprobación.
+La Dirección Ejecutiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional tendrá como función realizar la etapa de instrucción del expediente, la cual se extiende desde la recepción de las solicitudes hasta la recomendación técnica que emita la Junta Directiva.
+Una vez finalizada la instrucción del expediente, la Dirección Ejecutiva , mediante resolución razonada, recomendará a la Junta Directiva aprobar o no la solicitud; dicha recomendación no será vinculante para esta.
+Recibida la resolución de la Dirección Ejecutiva , la Junta Directiva deberá emitir una resolución razonada, en la que declare o deniegue el derecho; será firmada por el Presidente y el Secretario. En el acta de la sesión respectiva, deberán constar los directores que votaron a favor de la aprobación o en contra de ella.
+En el proceso de declaratoria de derechos, los miembros de la Junta Directiva estarán sometidos al régimen de responsabilidad establecido en los artículos 199 a 213 de la Ley General de la Administración Pública.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 87.- Quórum
 El quórum para el funcionamiento legítimo de la Junta será de la mitad más uno de sus miembros.
 Artículo 88.- Formalidades de las resoluciones
 La Junta acordará, por mayoría simple de sus miembros, otorgar los derechos y las peticiones de los asegurados. En caso de empate, la petición se entenderá denegada.
 Las resoluciones que se dicten serán individualizadas por cada peticionario y se ajustarán, bajo pena de nulidad, a lo establecido en el artículo 155 del Código Procesal Civil.
-Artículo 89.- Decisión final
-El acuerdo de la Junta de Pensiones y Jubilaciones al que se refiere el artículo anterior, junto con el expediente, serán elevados ante la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social para su aprobación final.
-El Ministerio de Hacienda no incluirá a ningún nuevo pensionado, ni modificación alguna de una pensión ya otorgada que implique mayor erogación presupuestaria, sin la aprobación expresa de la Dirección Nacional de Pensiones. El Ministerio de Hacienda, en ejercicio de su potestad de fiscalización presupuestal, queda facultado para requerir la información que considere necesaria para aclarar lo que se ordenó ejecutar y podrá negarse a tal ejecución mientras no se satisfaga debidamente la información requerida.
-El acuerdo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, junto con la aprobación de la Dirección Nacional de Pensiones, agotará la vía administrativa.
+Artículo 89.- Decisión final.
+La resolución de la Junta de Pensiones y Jubilaciones referida en el artículo 88, junto con el expediente, serán elevados ante la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social para la resolución final, con el refrendo del Auditor Interno. Para resolver, dicha Institución tendrá un plazo máximo de un mes calendario contado a partir del momento en que la Dirección Nacional de Pensiones reciba la resolución y el expediente completo.
+En caso de que la resolución no se emita en el plazo citado se ejecutará lo resuelto por la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+El Ministerio de Hacienda, en el ejercicio de sus facultades de fiscalización, queda autorizado para requerir toda la información que considere necesaria para aclarar lo que la Dirección Nacional de Pensiones o la Junta de Pensiones y Jubilaciones del Magisterio Nacional ordenen ejecutar en cuanto a los pagos, y podrá negarse a tal ejecución mientras no se satisfaga debidamente la información requerida que permita autorizar el pago.
+El acuerdo de la Junta de Pensiones y Jubilaciones del Magisterio Nacional junto con la aprobación de la Dirección Nacional de Pensiones, cuando esta última se haya emitido dentro del plazo establecido, agotarán la vía administrativa, según corresponda.
+Transitorio.- Con el propósito de que la Junta de Pensiones y Jubilaciones del Magisterio Nacional y la Dirección Nacional de Pensiones, se adapten a las nuevas disposiciones, se establece un período de tres meses, contados a partir de la promulgación de la presente ley, durante el cual se seguirán los procedimientos establecidos antes de promulgarla. El Ministerio de Hacienda autorizará, a la Dirección Nacional de Pensiones los recursos necesarios para cumplir con el nuevo procedimiento, previa presentación de un plan de trabajo. La Secretaría Técnica de la Autoridad Presupuestaria velará por la correcta ejecución de este plan.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 90.- Desacuerdo
 Cuando la Dirección Nacional de Pensiones niegue la aprobación final de una pretensión, sea de pensión por vejez, invalidez o supervivencia, que le haya sido presentada por la Junta de Pensiones y Jubilaciones del Magisterio Nacional, devolverá los autos con las razones de su denegatoria, las cuales serán vinculantes para la Junta, y remitirá copia de la denegatoria al Ministerio de Hacienda.
 SECCION III
 Medios de impugnación
-Artículo 91.- Revocatoria
-Contra el acto final, cabrá recurso de revocatoria dentro de los tres días siguientes a la debida notificación del acto impugnado.
-El recurso de revocatoria deberá interponerse ante la misma Junta y deberá resolverse dentro de los quince días siguientes a su interposición.
-El acuerdo de la Junta que resuelva la revocatoria deberá ser elevado, junto con el expediente y el recurso, ante la Dirección Nacional de Pensiones para su aprobación final. Esta Dirección deberá resolver dentro de los quince días siguientes a su recibo.
-Artículo 92.- Apelación
-Contra el acto final cabrá recurso de apelación, el cual deberá ser interpuesto ante la misma Junta, dentro de los cinco días siguientes a la debida notificación del acto impugnado.
-Recibido el recurso de apelación, la Junta perderá toda competencia sobre la gestión del recurrente, salvado el caso exclusivo de la tramitación del recurso y, dentro de los tres días siguientes a la interposición, deberá elevar el expediente y el recurso, ante el Tribunal Superior de Trabajo, que resolverá en alzada administrativa.
-En la tramitación de la alzada, la Junta deberá atenerse a lo dispuesto en el artículo 349.2 de la Ley General de la Administración Pública.
+Artículo 91.- Revocatoria.
+Contra el acto final, cabrá recurso de revocatoria dentro de los cinco días siguientes a la debida notificación del acto impugnado. El recurso de revocatoria deberá interponerse ante la misma Junta y resolverse dentro de los quince días siguientes a su interposición. El acuerdo de la Junta que resuelva la revocatoria deberá ser elevado, junto con el expediente y el recurso, ante la Dirección Nacional de Pensiones para la aprobación final. Esta Dirección deberá resolver dentro de los quince días siguientes al recibo.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 92.- Apelación.
+Contra el acto final, cabrá recurso de apelación el cual deberá ser interpuesto ante la Junta , dentro de los ocho días siguientes a la notificación del acto impugnado.
+Recibido el recurso de apelación, la Junta perderá toda competencia sobre la gestión del recurrente, salvo el caso exclusivo de la tramitación del recurso y, dentro de los tres días siguientes a la interposición, deberá elevar el expediente y el recurso ante el Tribunal Superior de Trabajo, que resolverá en alzada administrativa. En la tramitación de la alzada, la Junta deberá atenerse a lo dispuesto en el artículo 349.2 de la Ley General de la Administración Pública.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 CAPITULO X
 Administración del Régimen
 Artículo 93.- Organo competente
@@ -454,9 +494,11 @@ d) Un representante de la Asociación de Profesores de Segunda Enseñanza (APSE)
 e) Un representante de las organizaciones laborales de las instituciones de educación superior, nombrado de común acuerdo entre ellas.
 f) Un representante del Sindicato de Trabajadores de la Educación Costarricense (SEC).
 g) Un representante del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes.
-Artículo 99.- Duración de los cargos
-Los miembros de la Junta Directiva durarán en sus cargos un período de dos años y podrán ser reelegidos por una sola vez.
-Podrán ser removidos de sus cargos por las razones indicadas en el artículo 27 de la presente ley, cuando la entidad que representen así lo determine y sólo por causa justa.
+Artículo 99.- Duración de los cargos.
+Los miembros de la Junta Directiva permanecerán en sus cargos cuatro años y no podrán ser reelegidos.
+Podrán ser removidos de sus cargos por las razones indicadas en el artículo 27 de la presente ley, cuando la entidad que representen así lo determine y solo por causa justa.
+Transitorio.- Los actuales miembros durarán en sus cargos hasta cumplir el período por el que fueron nombrados.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 100.- Abstenciones y recusaciones
 Los miembros de la Junta Directiva deberán abstenerse y, en su caso, podrán ser recusados, de conformidad con lo dispuesto en los artículos 230 a 238 de la Ley General de la Administración Pública.
 Artículo 101.- Requisitos de caución
@@ -480,26 +522,29 @@ f) Rendir, puntual y cabalmente, los informes requeridos por la Superintendencia
 g) Dictar las normas para el nombramiento del personal de la institución y aprobar los reglamentos que se consideren necesarios.
 h) Aprobar el presupuesto de operación de la institución.
 i) Todas las demás que indiquen las leyes respectivas y sus reglamentos.
-Artículo 105.- Atribuciones de la Junta Directiva en relación con el Régimen Transitorio de Reparto
-Son atribuciones de la Junta Directiva, en relación con el Régimen transitorio de reparto a que se refiere el Título III de la presente ley:
-a) Estudiar, conocer y resolver las solicitudes de jubilación y pensión que se le presenten de conformidad con lo dispuesto en el Título III de esta ley.
-b) Recaudar las cotizaciones a que están obligados los asegurados y sus patronos y ejercer las acciones de cobro necesarias.
-c) Rendir, puntual y cabalmente, los informes que le soliciten la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social o el Ministerio de Hacienda.
-d) Todas las demás que indiquen las leyes respectivas y sus reglamentos.
-Las cotizaciones recaudadas en relación con el Régimen transitorio de reparto, deberán ser enteradas al Estado dentro del mes correspondiente a su recaudación. De realizarse en fecha posterior, la Junta deberá reconocer intereses del cinco por ciento mensual a título de multa por atraso.
+Artículo 105.- Atribuciones de la Junta Directiva relacionadas con el Régimen transitorio de reparto.
+En relación con el Régimen transitorio de reparto referido en el título III de la presente ley, son atribuciones de la Junta Directiva :
+a) Estudiar, conocer y resolver las solicitudes de pensión que se le presenten de conformidad con el título III de esta ley.
+b) Recaudar las cotizaciones obligatorias de los trabajadores y los patronos adscritos a este Régimen y ejercer las acciones de cobro necesarias.
+c) Rendir, puntual y cabalmente, los informes solicitados por la Superintendencia de Pensiones, la Dirección Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social y el Ministerio de Hacienda.
+d) Todas las demás atribuciones que indiquen las leyes respectivas y sus reglamentos.
+Las cotizaciones recaudadas en relación con el Régimen transitorio de reparto deberán trasladarse al Estado, dentro del mes correspondiente a la recaudación. De realizarse en fecha posterior, la Junta deberá reconocer intereses por concepto de mora, de conformidad con el artículo 498 del Código de Comercio.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 CAPITULO III
 Financiamiento y gastos administrativos
 Artículo 106.- Financiamiento
 Para atender el ejercicio de sus funciones, la Junta recibirá una comisión por gastos administrativos, que surgirá de deducir, a cada uno de sus asegurados, un cinco por mil (5 x 1000) de los salarios y pensiones del Régimen a su cargo.
 Con esta deducción, se constituirá un Fondo Especial de Administración, que deberá llevarse, contable y físicamente, separado del Fondo de Capitalización.
 Este fondo especial será administrado con la máxima prudencia y frugalidad.
-Artículo 107.- Fondo Especial de Administración
-El Fondo Especial de Administración se destinará exclusivamente a:
-a) Pagar las dietas de los miembros de la Junta Directiva, los salarios de su personal y, en general, sus gastos administrativos. A estos efectos, no podrá destinar más de la cuarta parte de lo recaudado según el párrafo primero del artículo 106 anterior.
-b) Cubrir las obligaciones de carácter financiero que se deriven de los convenios que la Junta celebre con las entidades financieras y sociales del Magisterio Nacional.
-c) Realizar préstamos directos a los pensionados, a fin de que satisfagan necesidades personales, de acuerdo con lo que al respecto establezcan los reglamentos que al efecto se dicten.
-d) Realizar préstamos directos a los pensionados a fin de que financien actividades de pequeña empresa, de acuerdo con los reglamentos que al efecto se emitan.
-Los recursos ociosos del Fondo Especial de Administración podrán ser invertidos en valores financieros, con las limitaciones establecidas en los artículos 20 a 25 de la presente ley.
+Artículo 107.- Fondo Especial de Administración.
+El Fondo Especial de Administración se destinará en forma exclusiva a lo siguiente:
+a) Pagar las dietas de los miembros de la Junta Directiva , los salarios de su personal y, en general, sus gastos administrativos. Para estos efectos, no podrá destinar más del tres por mil (3x1000), según el primer párrafo del artículo 106.
+b) Cubrir las obligaciones de carácter financiero derivadas de los convenios que la Junta celebre con las entidades financieras y sociales del Magisterio Nacional.
+c) Realizar préstamos directos a los pensionados, a fin de que satisfagan necesidades personales, de acuerdo con los reglamentos que se dicten para el efecto.
+d) Realizar préstamos directos a los pensionados, para que financien actividades de pequeña empresa, según los reglamentos que se emitan para el efecto.
+e) Realizar aportes de capital a la Corporación de Servicios Múltiples del Magisterio, para la creación de programas y proyectos destinados exclusivamente a los pensionados del Magisterio Nacional. Los recursos ociosos del Fondo Especial de Administración podrán ser invertidos en valores financieros, con las limitaciones incluidas en los artículos 20 a 25 de esta ley.
+En los tres primeros meses de cada año la Junta Directiva presentará a las organizaciones magisteriales representadas en su seno, un informe público detallado de sus labores, de la ejecución presupuestaria del año anterior con el máximo grado de detalle y del presupuesto vigente.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 108.- Reglamento de préstamos
 La Junta de Pensiones y Jubilaciones del Magisterio Nacional reglamentará las condiciones que considere básicas para otorgar los préstamos citados en los incisos c) y d) del artículo anterior.
 A tales efectos, el reglamento deberá contener disposiciones sobre los plazos, los montos máximos de crédito por actividad, las tasas de interés -las que no podrán ser menores del doce por ciento (12%), con excepción de los de la Caja de la ANDE-, las actividades por financiar, aportes a la Caja de Ahorro y Préstamo de la ANDE y todas aquellas que, a su parecer, sean necesarias para cumplir con sus objetivos.
@@ -511,8 +556,9 @@ CAPITULO IV
 Estatuto orgánico
 SECCION I
 Dirección Ejecutiva
-Artículo 111.- Dirección Ejecutiva
-Mediante concurso público de antecedentes, la Junta nombrará a un Director Ejecutivo, quien tendrá un período de nombramiento de dos años y podrá ser reelegido.
+Artículo 111.- Dirección Ejecutiva.
+El Director Ejecutivo estará a cargo de la Dirección Ejecutiva de la Junta. Será nombrado mediante concurso público de antecedentes por un período de cinco años y podrá ser reelegido.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
 Artículo 112.- Funciones
 Son funciones del Director Ejecutivo:
 a) Organizar, coordinar y supervisar, con la colaboración del personal necesario, todas las acciones administrativas que realice la Junta Directiva.
@@ -523,8 +569,25 @@ e) Elaborar el proyecto de presupuesto de la institución, el cual deberá ser s
 f) Todas las demás que le competan, de conformidad con la ley y los reglamentos.
 SECCION II
 Departamentos
-Artículo 113.- Estructura
-La institución contará con las dependencias que su Junta Directiva considere necesarias para el buen funcionamiento.
-No obstante, lo dispuesto en el párrafo anterior, deberá contar, necesariamente, con un Departamento Contable-Financiero, un Departamento Actuarial, un Departamento de Auditoría Interna y un Departamento Legal.
-Los Departamentos Contable-Financiero y Actuarial dependerán de la Dirección Ejecutiva, mientras que la Auditoría Interna dependerá directamente de la Junta Directiva.
-La función del Departamento Legal será, únicamente, asesorar a la Junta Directiva y a la Dirección Ejecutiva."
+Artículo 113.- Departamentos.
+La Institución contará con los departamentos que su Junta Directiva considere necesarios para el buen funcionamiento.
+La Auditoría Interna dependerá únicamente de la Junta Directiva y los otros departamentos, de la Dirección Ejecutiva.
+(Así reformado por el artículo 1° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 114.- Control y supervisión del Sistema de Pensiones y Jubilaciones del Magisterio Nacional El Sistema de Pensiones y Jubilaciones del Magisterio Nacional, en lo sucesivo, será supervisado por la Superintendencia de Pensiones, a la cual se le asignan las siguientes funciones:
+a) Supervisar el Sistema de Pensiones y Jubilaciones del Magisterio Nacional.
+b) Aprobar el reglamento del Régimen de capitalización donde se determinará el perfil de beneficios y los requisitos de elegibilidad con el fin de garantizar en todo momento el equilibrio actuarial del Régimen. En caso de desequilibrio actuarial del Régimen de Capitalización, la Superintendencia deberá solicitar la modificación del Reglamento a la Junta en el plazo que la Superintendencia definirá.
+c) Supervisar la inversión correcta de los recursos administrados por el Sistema de Pensiones y Jubilaciones y dictar las directrices necesarias con el objeto de garantizar la composición y valoración adecuadas de la cartera de inversiones.
+d) Determinar el contenido, la forma y la periodicidad de la información que debe suministrar la Junta de Pensiones y Jubilaciones del Magisterio Nacional, en su calidad de administradora del Sistema de Pensiones y Jubilaciones del Magisterio Nacional; todo para que exista información oportuna y confiable sobre la situación de los regímenes administrados.
+e) Supervisar la oportuna y correcta declaración y modificación de los beneficios a los cuales tienen derecho los afiliados en cada una de las instancias de las Instituciones que intervienen en el proceso: la Junta de Pensiones y Jubilaciones del Magisterio Nacional, la Dirección Nacional de Pensiones y el Ministerio de Hacienda.
+f) Definir los parámetros para que las Instituciones que intervienen en el procedimiento de declaración de derechos indicadas en el inciso anterior, determinen controles internos, para garantizar la exactitud del monto de las pensiones o jubilaciones pagadas.
+g) Solicitar, a la Junta de Pensiones y Jubilaciones del Magisterio Nacional, un informe anual sobre la situación financiero-actuarial de cada uno de los regímenes de pensiones y jubilaciones del Magisterio Nacional.
+h) Aprobar la remoción del auditor interno o solicitar su remoción en forma razonada.
+En la regulación y supervisión del Sistema de Pensiones del Magisterio se aplicará supletoriamente la Ley No. 7523, de 7 de julio de 1995.
+(Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 115.- Garantía de pago.
+El Estado garantiza el pago de los derechos otorgados y los que se lleguen a otorgar en el Régimen transitorio de reparto de acuerdo con esta ley.
+Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
+Artículo 116.- Exoneración de pensiones.
+Solo quedarán exonerados de la contribución correspondiente al Régimen de reparto, los derechos por vejez, invalidez, muerte o supervivencia, iguales o menores a dos veces el salario base más bajo pagado por la Administración Pública.
+En caso de supervivencia, la exoneración se aplicará sobre la sumatoria de los montos derivados de un derecho jubilatorio.
+Así adicionado por el artículo 2° de la Ley No. 7946 de 18 de noviembre de 1999).
