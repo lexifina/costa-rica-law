@@ -1,0 +1,1 @@
+Art.4. La duración de los Magistrados será la de cuatro años, y su renovación se hará por mitad cada dos años; debiendo por la primera vez sacarse por suerte dos propietarios y un suplente, que serán repuestos por los partidos respectivos en la época constitucional de elecciones del año de 840, cuyos nombramientos corresponde calificarlos á la Asamblea en sesiones ordinarias

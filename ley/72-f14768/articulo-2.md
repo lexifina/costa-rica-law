@@ -1,0 +1,1 @@
+Art. 2. El Gobierno dispondrá la conveniente al cumplimiento del artículo anterior, y reunidos que sean los pliegos de las elecciones, convocará la Asamblea que debe calificarlas, y designar de entre los Magistrados los que han de desempeñar las funciones de Presidente y Fiscal de la misma Corte, sin perjuicio de que entre tanto continúen los Magistrados de la actual.
