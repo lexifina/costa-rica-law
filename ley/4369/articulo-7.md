@@ -3,9 +3,12 @@ Organización
 1. Con el fin de asegurar el cumplimiento de las obligaciones del
 presente Tratado, las Partes Contratantes establecen un organismo
 internacional denominado "Organismo para la Proscripción de las Armas
-Nucleares en la América Latina", al que en el presente Tratado se
-designará como "el Organismo". Sus decisiones sólo podrán afectar a las
-Partes Contratantes.
+Nucleares en la América Latina y el Caribe", al que en el presente
+Tratado se designará como "el Organismo". Sus decisiones sólo podrán
+afectar a las Partes Contratantes.
+(Así modificada la denominación del Organismo por el artículo 1 de
+la ley No.7819 de 1 de setiembre de 1998, que aprobó el I Protocolo de
+Reformas al presente Tratado)
 2. El Organismo tendrá a su cargo la celebración de consultas
 periódicas o extraordinarias entre los Estados Miembros en cuanto se
 relacione con los propósitos, las medidas y los procedimientos
