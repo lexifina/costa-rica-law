@@ -1,0 +1,1 @@
+Artículo 20.—En el caso de deudores cuyos créditos fueron cancelados por la reserva de incobrables, deberán cancelar, aunque hayan sido declarados prescritos, principal, intereses, gastos y honorarios. En ambos casos, previo debido proceso instaurado por el Banco, el Nivel Resolutivo podrá suspender al deudor como sujeto de crédito hasta por 12 meses.

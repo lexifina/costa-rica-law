@@ -1,0 +1,1 @@
+Artículo 57.—Se podrá otorgar financiamiento de vivienda conjuntamente con el Banco Hipotecario de la Vivienda, en cuyo caso el crédito se regirá por la Ley del Sistema Financiero de la Vivienda, el reglamento, las directrices y procedimientos establecidos por el BANHVI.

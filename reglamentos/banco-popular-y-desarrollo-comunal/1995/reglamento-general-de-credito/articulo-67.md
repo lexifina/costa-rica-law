@@ -1,0 +1,1 @@
+Articulo 67.—En caso de subcontratación el Banco debe estudiar, analizar e indicar las condiciones que deben estipularse en los contratos constructivos, y dar su autorización. En el caso de incumplimiento de alguna cláusula de los contratos, el Banco podrá obligar el deudor a rescindir el contrato.

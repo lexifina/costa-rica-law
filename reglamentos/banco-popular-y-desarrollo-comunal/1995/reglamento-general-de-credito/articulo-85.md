@@ -1,0 +1,1 @@
+Artículo 85.—Los deudores podrán solicitar que se les muestre sus bienes, lo cual se hará contra la presentación del contrato con una frecuencia no mayor de cinco veces durante la vigencia del préstamo.

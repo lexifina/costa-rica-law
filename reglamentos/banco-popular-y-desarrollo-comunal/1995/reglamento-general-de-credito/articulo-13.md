@@ -1,0 +1,2 @@
+Articulo 13.—Para efectos de la concesión de los créditos, se considerará entre otros aspectos, el historial crediticio interno de los obligados. así como el externo cuando ello sea factible. Tanto deudores y fiadores deben estar al día con sus obligaciones con el Banco.
+Tratándose de personas jurídicas el Nivel Resolutivo considerara el historial crediticio de los integrantes de su Juma Directiva y Gerentes.

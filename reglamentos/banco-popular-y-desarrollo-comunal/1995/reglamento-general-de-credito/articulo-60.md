@@ -1,0 +1,1 @@
+Artículo 60.—En la selección de proyectos en las áreas urbanas se dará preferencia a aquellos que consisten en lotes para desarrollar viviendas en condominio vertical, con el propósito de disminuir los costos de urbanización al utilizar la infraestructura ya existente en esas áreas.

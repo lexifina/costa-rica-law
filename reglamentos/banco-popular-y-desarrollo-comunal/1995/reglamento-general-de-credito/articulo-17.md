@@ -1,0 +1,2 @@
+Artículo 17.—Todo deudor queda obligado a mantener al día los tributos, pólizas y demás obligaciones que afecten los bienes dados en garantía; igualmente deberá mantenerlos en buen estado de uso y conservación. El deudor no podrá gravarlos, venderlos, traspasarlos, arrendarlos, trasladarlos o prestarlos sin autorización del nivel resolutivo del Banco.
+En caso de incumplimiento se aplicaran las sanciones que establece el artículo 21 de este Reglamento.

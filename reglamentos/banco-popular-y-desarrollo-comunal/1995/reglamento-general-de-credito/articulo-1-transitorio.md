@@ -1,0 +1,1 @@
+TRANSITORIO.—La Administración gozará de un plazo de seis meses para proponer a la Junta Directiva Nacional la creación de un Fondo de Garantías para el otorgamiento de créditos productivos a personas cuyo ingreso sea inferior al salario mínimo.

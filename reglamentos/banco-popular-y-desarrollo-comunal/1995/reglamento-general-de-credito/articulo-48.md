@@ -1,0 +1,4 @@
+Artículo 48.—La línea de crédito para Educación será revolutiva y se financiará la compra de útiles, libros, uniformes, equipos, pago de matrícula y mensualidad para nivel preescolar, primaria, secundaria, técnica, parauniversitaria y universitaria en centros de enseñanza autorizados por las autoridades correspondientes,
+Para el nivel preescolar, escolar y colegial la línea de crédito estará disponible de enero a marzo de cada año.
+Para nivel técnico se otorgarán créditos para diferentes cursos tales como hotelería, computación, pastelería, y otros ajuicio del nivel resolutivo. que le permitan al solicitante mejorar su nivel de ingreso.
+Para nivel parauniversitario y universitario, se otorgarán de acuerdo a los programas de cada una de las instituciones, los cuales sumados no podrán sobrepasar el limite establecido para esta línea.

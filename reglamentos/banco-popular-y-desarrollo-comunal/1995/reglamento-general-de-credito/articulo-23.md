@@ -1,0 +1,3 @@
+Artículo 23.—El Banco podrá solicitar durante la tramitación del crédito, cualquier documentación que para el caso concreto considere necesaria para completar o aclarar la información recibida, cuando ello sea necesario para que la decisión final sea conforme a las reglas unívocas de la ciencia o la técnica.
+Cuando se considere que la documentación o información general solicitada para una determinada línea de crédito es insuficiente, deberá modificarse el presente reglamento.
+El Banco deberá solicitar la presentación de Estados Financieros como condición posterior al crédito, cuando corresponda.

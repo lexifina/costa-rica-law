@@ -1,0 +1,1 @@
+Artículo 83.—En los créditos concedidos sobre bienes pignorados, la falta de pago de tres cuotas o del saldo del préstamo a su vencimiento, será causa para que se proceda al remate del bien pignorado, mediante el sistema de remate público.

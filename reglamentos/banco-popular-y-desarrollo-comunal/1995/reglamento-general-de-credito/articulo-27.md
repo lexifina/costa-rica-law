@@ -1,0 +1,2 @@
+Artículo 27.—La información contenida en las solicitudes de crédito de carácter confidencial y únicamente tendrá acceso a ella la parte Interesada.
+La Institución queda expresamente autorizada para divulgar el crédito en la forma que sea conveniente, considerando los limites del secreto bancario. Las entidades jurídicas beneficiadas con prestamos tendrán la obligación de divulgar a satisfacción del Banco, por sus medios que el proyecto se realiza con un crédito concedido por el Banco Popular y de Desarrollo Comunal.

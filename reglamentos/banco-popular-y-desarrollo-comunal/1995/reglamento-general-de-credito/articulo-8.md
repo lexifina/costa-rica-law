@@ -1,0 +1,3 @@
+Artículo 8°—La tasa estipulada en el documento de crédito se fijará con base en el artículo 497 del Código de Comercio. Deberá ajustarse y revisarse con la periodicidad que indique la Junta Directiva Nacional y se hará aplicando la variación absoluta que ha tenido la tasa de referencia que cita el artículo 497 antes mencionado en el período de ajuste.
+El Banco cobrará intereses de mora sobre el monto atrasado al capital, el cual será de dos puntos porcentuales superior al corriente de la respectiva obligación.
+Salvo en Pignoración, lodo préstamo devengara además una comisión a favor del Banco de un 1-75% sobre el monto del préstamo por una única vez al momento de la formalización.

@@ -1,0 +1,1 @@
+Artículo 93.—El excedente que quedare, una vez cubiertos capital e intereses, seguros y gastos administrativos quedará a disposición del prestatario por el plazo de ley. Los sobrantes que hubieren, se publicarán en el Diario Oficial con la única cita al número de la operación y monto del sobrante, para que el interesado se presente a retirarlos.

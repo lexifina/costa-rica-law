@@ -1,0 +1,1 @@
+Artículo 38.—La tabla de condiciones variables en monto, tasas de interés y plazos para las diferentes líneas de crédito, el cuadro de porcentajes de responsabilidad máxima sobre garantías, la tabla de niveles de aprobación y la tabla de documentación a acompañar con la solicitud de crédito que en este mismo acto se decretan forman parte integrante de este Reglamento.
