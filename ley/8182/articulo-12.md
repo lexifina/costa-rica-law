@@ -1,0 +1,2 @@
+Articulo 12.- Autorizase al Poder Ejecutivo para que incluya en la Ley de Presupuesto para el año 2001, únicamente aquellas asignaciones provenientes de leyes con destinos específicos que puedan ser financiadas acorde con la recaudación real de ingresos que perciba en ese año económico.
+Autorízase al Poder Ejecutivo para que gire en el año 2001, aquellas asignaciones provenientes de leyes ordinarias con destinos específicos de acuerdo a la disponibilidad de ingresos.
