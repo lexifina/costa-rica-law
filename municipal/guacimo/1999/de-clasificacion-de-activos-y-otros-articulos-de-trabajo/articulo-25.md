@@ -1,0 +1,1 @@
+Artículo 25.—Reparado el mobiliario o equipo el Departamento de Proveeduría lo entregará a la dependencia interesada, en donde el responsable firma el original de la factura dando por recibido el equipo.

@@ -1,0 +1,1 @@
+Artículo 10.—El Departamento de Cómputo será responsable de colaborar con el suministro de un programa que cumpla con los requerimientos de registro y control. Así mismo velar porque se mantenga actualizado según sean las necesidades.
