@@ -1,0 +1,1 @@
+Artículo 3º.- Deróganse los artículos 194 del Código Penal y 68 de al Ley especial sobre jurisdicción de los tribunales, Nº 5711 de 27 de junio de 1975, y mantiénese la vigencia, con su texto original, del artículo 323 del Código de Procedimientos Penales.
