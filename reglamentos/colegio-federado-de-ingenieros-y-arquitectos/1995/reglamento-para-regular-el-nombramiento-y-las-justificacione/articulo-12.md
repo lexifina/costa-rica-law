@@ -1,0 +1,2 @@
+Artículo 12.— La Junta Directiva General valorará la solicitud y aprobará o improbará la justificación presentada, comunicándolo al interesado.
+Es entendido que la pérdida de la credencial por ausencias, justificadas o no, de los Directores Propietarios de la Junta Directiva General, está regulada en el artículo 27 de la Ley Orgánica del CFIA y la de los Directores Suplentes está regulada en el Artículo Octavo del presente reglamento.

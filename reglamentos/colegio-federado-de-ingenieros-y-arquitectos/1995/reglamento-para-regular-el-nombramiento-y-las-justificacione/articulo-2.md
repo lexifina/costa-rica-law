@@ -1,0 +1,2 @@
+Artículo 2°—Las Asambleas Generales de cada uno de los colegios nombrará, en votación directa y secreta, los dos Directores Suplentes de sus Directores Propietarios ante la Junta Directiva General, pudiendo cualquiera de ellos sustituir indistintamente a los directores propietarios.
+Tales nombramientos se realizaran en las reuniones ordinarias que deben celebrar las Asambleas Generales de cada uno de los colegios en los últimos seis meses de cada año, de conformidad con el artículo 36 de la Ley Orgánica del C.F.I.A.

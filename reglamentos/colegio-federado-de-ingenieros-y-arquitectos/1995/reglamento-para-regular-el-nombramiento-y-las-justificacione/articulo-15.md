@@ -1,0 +1,1 @@
+Artículo 15.—En ningún caso, los períodos de licencia que soliciten los directores podrán exceder de dos meses. De necesitarse un plazo mayor, o en caso de que un director pierda su credencial, el colegio respectivo deberá convocar a Asamblea General y nombrar su nuevo director propietario.

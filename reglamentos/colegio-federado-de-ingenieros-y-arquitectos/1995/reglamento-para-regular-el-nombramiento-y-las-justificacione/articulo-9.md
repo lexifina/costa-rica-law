@@ -1,0 +1,1 @@
+Artículo 9°—Cuando alguno de los Directores Suplentes pierda su credencial, tal circunstancia se comunicará a la Junta directiva del Colegio correspondiente para que convoque a Asamblea General y nombre un nuevo Director Suplente.
