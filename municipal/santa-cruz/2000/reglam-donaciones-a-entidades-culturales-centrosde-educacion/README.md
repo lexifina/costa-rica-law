@@ -14,3 +14,4 @@ Reglam. Donaciones a Entidades Culturales Centrosde Educación Pública Benefice
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-23 | la propia norma |
+| 2 | 2000-08-23 | Ley 8 |
