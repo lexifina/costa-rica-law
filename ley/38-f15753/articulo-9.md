@@ -1,0 +1,4 @@
+IX.
+Este contrato queda sujeto en cuanto á su validez á la aprobación del Cuerpo Legislativo de la República.
+En fe de lo pactado firman el presente documento en el Palacio Nacional de San José, el día cinco de junio de mil ochocientos ochenta y seis.- (F.) Santiago de la Guardia.-(F.) Carlos F. Irigoyen.-Palacio Presidencial. San José, á cinco de junio de mil ochocientos ochenta y seis. -Apruébase el anterior contrato. -Rubricado por el Benemérito General Presidente.-(F.) de la Guardia.-Es conforme.-(F). Santiago de la Guardia".
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los ocho días del mes de julio de mil ochocientos ochenta y seis.-A. ESQUIVEL, Presidente. -MÁXIMO FERNÁNDEZ, Secretario.-ABEL SANTOS, Prosecretario.- En Alajuela, á los nueve días del mes de julio de mil ochocientos ochenta y seis.-Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Guerra y Marina,-SANTIAGO DE LA GUARDIA.
