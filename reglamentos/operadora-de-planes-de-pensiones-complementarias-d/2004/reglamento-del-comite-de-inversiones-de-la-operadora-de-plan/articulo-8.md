@@ -1,0 +1,1 @@
+Artículo 8º—La administración de la Operadora, con la asesoría de Popular Valores, gestionará las transacciones en conformidad con los parámetros definidos en el artículo 10 de este reglamento, siempre en apego a los criterios de oportunidad, estrategias de inversión y requerimientos de flujo de caja.

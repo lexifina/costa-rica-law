@@ -1,0 +1,2 @@
+Artículo 9º—Si por situaciones de urgencia u oportunidad de inversión, a criterio del Gerente de la Operadora, no fuera conveniente esperar a la siguiente sesión del Comité, ni convocarlo al efecto, la administración de la Operadora, con la obligatoria asesoría de Popular Valores, podrá tomar las decisiones que estime convenientes, siempre y cuando estén estrictamente apegadas al ordenamiento jurídico y al presente reglamento.
+Dichas decisiones deberán ser informadas en la siguiente reunión del Comité, lo que deberá constar en actas.

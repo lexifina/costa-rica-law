@@ -1,0 +1,1 @@
+Artículo 6º—La Operadora realizará las inversiones en el mercado local, a través de Popular Valores Puesto de Bolsa S. A., siempre y cuando las condiciones que éste ofrezca, en cuanto a oportunidades de inversión se refiera, y a rentabilidad neta para los fondos administrados sean al menos iguales o superiores a las del resto de los oferentes participantes del mercado.
