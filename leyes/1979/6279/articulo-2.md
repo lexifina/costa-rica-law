@@ -1,10 +1,3 @@
-Artículo 2º.- La indemnización de los inmuebles qu conforman la
-Hacienda El Murciélago, objeto de esta expropiación, no podrá ser
-superior al valor declarado por sus propietarios, para efectos fiscales,
-en el respectivo departamento de la Dirección General de la Tributación
-Directa del Ministerio de Hacienda, a la fecha de publicación del
-Decreto Ejecutivo Nº 9119-G del 13 de setiembre de 1978.
-De la suma que corresponda a la indemnización que se ordena, se
-deducirá el valor que pueda resultar de demasías en la cabida de los
-inmuebles que se expropian, considerados como un conjunto. La remedida
-de tales inmuebles será realizada por el Catastro Nacional.
+Artículo 2º.- *(La indemnización de los inmuebles que conforman la Hacienda El Murciélago, objeto de esta expropiación, no podrá ser superior al valor declarado por sus propietarios, para efectos fiscales, en el respectivo departamento de la Dirección General de la Tributación Directa del Ministerio de Hacienda, a la fecha de publicación del Decreto Ejecutivo Nº 9119-G del 13 de setiembre de 1978.)
+De la suma que corresponda a la indemnización que se ordena, se deducirá el valor que pueda resultar de demasías en la cabida de los inmuebles que se expropian, considerados como un conjunto. La remedida de tales inmuebles será realizada por el Catastro Nacional.
+(La Corte Suprema de Justicia, mediante resolución de las 10:00 horas del 16 de noviembre de 1982 (expediente N° 0058-82, promovido por Alfredo Vargas Fernández, Rodrigo Acosta Rodó y Otto Rojas Vargas) declaró inaplicable el párrafo primero de este artículo, destacado entre paréntesis, por considerarlo opuesto a los artículos 9°, 34, 152 y 153 de la Constitución.)
