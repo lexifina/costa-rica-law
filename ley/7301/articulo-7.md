@@ -1,10 +1,17 @@
-ARTICULO 7.- La contribución para el Fondo de Estabilización
-Cafetalera se calculará sobre la producción exportable de acuerdo con la
-escala indicada en el artículo siguiente y se tomará como base, el precio
-promedio nacional del mes anterior del café en rieles, determinado por el
-Instituto del Café de Costa Rica. Esta contribución se deducirá del precio
-de inscripción del contrato en dólares y el Instituto del Café de Costa
-Rica deberá trasladarla al Fondo Nacional de Estabilización Cafetalera en
-el momento de la exportación de este contrato. La diferencia se aplicará
-a las cuentas del beneficiador acorde con lo que establece la Ley Nº 2762
-del 2 de junio de 1961 y sus Reformas.
+ARTÍCULO 7.- La contribución de los productores de café al Fondo se
+calculará sobre la producción exportable y será de cinco dólares
+estadounidenses (US$5,00) por saco exportado de 46 kilogramos, cuando el
+precio promedio acumulado en rieles de la respectiva cosecha al último día
+del mes anterior, supere los ciento veinte dólares estadounidenses
+(US$120,00). Durante el primer mes de cada nueva cosecha, se tomará como
+parámetro el precio promedio acumulado al último día del mes y la cosecha
+anterior.
+Para que las contribuciones por cosecha sean equitativas, el Fondo
+determinará, al finalizar cada cosecha, la contribución promedio aportada
+por los productores durante ella y, sobre esta se ajustará lo necesario,
+de modo que quienes hayan pagado menos aporten la diferencia y los que han
+contribuido en exceso reciban un reembolso. Igual mecanismo se utilizará
+cuando el importe total de la reserva se alcance antes de terminada una
+cosecha. En estos casos, el procedimiento se practicará de inmediato.
+Para todos los efectos, la contribución de los productores de café al
+Fondo constituirá un costo necesario, inherente al cultivo del grano.

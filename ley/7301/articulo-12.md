@@ -1,3 +1,4 @@
-ARTICULO 12.- La presente Ley será reglamentada por el Poder
-Ejecutivo dentro de los sesenta días siguientes a su publicación. La
-falta de su Reglamento no impedirá su aplicación.
+ARTÍCULO 12.- Los intereses que generen los bonos emitidos en dólares
+estadounidenses, a los que se refiere el numeral 2), del inciso a) del
+artículo 3 de la presente ley, estarán exentos del pago de todo tipo de
+impuestos.
