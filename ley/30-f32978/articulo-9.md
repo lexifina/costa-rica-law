@@ -1,0 +1,4 @@
+Artículo IX.
+A los que sin títulos de propiedad poseyeren terrenos y los denunciaren para obtenerlo, alegando haber hecho en ellos cultivos y mejoras cuyo valor sea triple del precio del terreno, se le adjudicará en plena propiedad y se le extenderá el título sin más trámite que el llamamiento por edictos que establece el artículo 512 del Código Fiscal y la comprobación previa, por peritos de la existencia y valor de las mejoras y cultivos. En cuanto á denuncio, tratándose de cabida, se estará á lo dispuesto por el Código Fiscal.
+El que habiendo denunciado un terreno para reducirlo á propiedad, durante la tramitación de su denuncio hiciere iguales cultivos y mejoras, puede pedir en cualquier tiempo su adjudicación y ella se decretará y se extenderá el título, sin otras formalidades que las establecidas en el párrafo anterior de este artículo.
+Quedan así derrogados los artículos 530, 531, 532, 533, 534, y 535, del Código Fiscal.
