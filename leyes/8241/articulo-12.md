@@ -1,0 +1,1 @@
+Artículo 12.—Licencias y patentes para un mismo establecimiento. Cuando, en un establecimiento dedicado a actividades lucrativas, varias sociedades o personas físicas ejerzan conjuntamente sus actividades, cada una solicitará la licencia por separado y así pagará la patente según la actividad que realice.

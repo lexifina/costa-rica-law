@@ -1,0 +1,2 @@
+Artículo 17.—Sanciones. La Municipalidad, por medio del personal acreditado, quedará autorizada para desalojar a los vendedores ambulantes y estacionarios que no cuenten con los permisos respectivos o para decomisarles la mercadería.
+Con base en el segundo párrafo del artículo 6º del Código de Normas y Procedimientos Tributarios, se autoriza la clausura de toda actividad comercial que no cuente con patente municipal.

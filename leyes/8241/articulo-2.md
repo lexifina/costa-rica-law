@@ -1,0 +1,1 @@
+Artículo 2º—Requisitos para obtener licencia. En toda solicitud de otorgamiento, traslado, traspaso, renuncia y renovación de licencia municipal, tanto el solicitante como el propietario del inmueble donde lleve a cabo la actividad, deberán demostrar que están al día en el pago de los tributos municipales, según el Código Municipal.
