@@ -1,0 +1,1 @@
+Artículo 10.—La CCSS adquirirá los medicamentos antirretrovirales incluidos en la lista oficial, cumpliendo con su reglamento de oferentes y procedimientos de compra de productos químico-farmacéuticos del cuadro básico de medicamentos (incluyendo las materias primas).

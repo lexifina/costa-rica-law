@@ -1,0 +1,1 @@
+Artículo 14.—El equipo multidisciplinario o el/la médico tratante deberá informar a las personas portadoras de! VIH o enfermas de SIDA, de manera clara y detallada, sobre los posibles efectos secundarios de los medicamentos prescritos.

@@ -1,0 +1,1 @@
+Artículo 11.—En el nivel institucional, la prescripción de los medicamentos antirretrovirales a las personas portadoras o enfermas, la realizará el/la médico autorizado/a de acuerdo con los lincamientos científico-técnicos establecidos en el Protocolo de Tratamiento.

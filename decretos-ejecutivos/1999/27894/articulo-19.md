@@ -1,0 +1,1 @@
+Artículo 19.—El expediente clínico de la persona portadora o enferma deberá contener la información científica necesaria que permita brindarle el mayor beneficio: historia clínica completa, examen físico completo, pruebas de laboratorio y gabinete, diagnóstico y tratamiento.

@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Medidas contra la discriminación SECCIÓN I Medidas contra la discriminación laboral y educativa
+Artículo 25.—El Ministerio de Trabajo y Seguridad Social deberá realizar, en un plazo inferior a 15 días hábiles, una investigación minuciosa y confidencial, ante cualquier denuncia de solicitud ilegal de la prueba del VIH o de discriminación laboral contra cualquier persona portadora del VIH o enferma de SIDA, sus familiares o allegados/as. Deberá remitir copia del informe al/a denunciante, al Consejo Nacional de Atención Integral al VIH-SIDA, a la Defensoria de los Habitantes de la República y, de ser probada la denuncia, a las autoridades judiciales competentes.

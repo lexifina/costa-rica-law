@@ -1,0 +1,2 @@
+Normas de calidad y acceso a preservativos
+Artículo 35.—El Ministerio de Salud y el Ministerio de Economía, Industria y Comercio, fiscalizarán de manera regular el cumplimiento de rigurosas normas de calidad para la elaboración de los preservativos. En el mes de noviembre de cada año, presentarán ante el Consejo Nacional de Atención Integral al VIH-SIDA un informe sobre el cumplimiento de estas normas.

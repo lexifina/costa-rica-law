@@ -1,0 +1,2 @@
+CAPÍTULO IX Atención a personas privadas de libertad
+Artículo 47.—El Ministerio de Justicia y Gracia garantizará la atención y el cuidado de cualquier persona portadora del VIH o enferma de SIDA que se encuentre privada de libertad. Será responsabilidad del/a director/a de cada centro penal y del/a médico encargado/a de cada centro penal, hacer concurrir las condiciones necesarias para que reciban esta atención.

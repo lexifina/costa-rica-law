@@ -1,0 +1,3 @@
+Vigilancia epidemiológica
+Artículo 37.—Una vez hecho el diagnóstico de infección por VIH, los/as médicos, microbiólogos/as, directores/as de centros de salud, directores/as y encargados/as de laboratorios, deberán enviar a la Unidad de Vigilancia Epidemiológica del Ministerio de Salud, a la mayor brevedad posible, la boleta de vigilancia epidemiológica con los datos que en ella se consignan.
+Para proteger la identidad de la persona portadora de VIH, la identificación llevará las iniciales del primer apellido y seis dígitos que correspondan al día, mes y año de nacimiento, acompañados del número de cédula o pasaporte.

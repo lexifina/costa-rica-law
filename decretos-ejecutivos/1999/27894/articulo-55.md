@@ -1,0 +1,1 @@
+Artículo 55.—En los meses de enero y julio de cada año, la Caja | Costarricense de Seguro Social y las demás instituciones mencionadas en la Ley N° 7771 y en este Reglamento, presentarán un informe ante el Consejo Nacional de Atención Integral al VIH-SIDA sobre los avances ei. el cumplimiento de esa Ley y su Reglamento.

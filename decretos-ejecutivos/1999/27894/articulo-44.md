@@ -1,0 +1,1 @@
+Artículo 44.—El Ministerio de Salud y la Caja Costarricense de Seguro Social cooperarán con las ONG's registradas proporcionándoles material informativo y educativo, preservativos y cualquier otro que el Ministerio considere necesario para el buen desarrollo de sus labores.

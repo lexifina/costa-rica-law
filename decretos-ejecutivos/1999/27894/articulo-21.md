@@ -1,0 +1,1 @@
+Artículo 21.—El Ministerio de Educación Pública y el Consejo' Superior de Educación incluyan en todos los programas educativos, contenidos sobre la prevención y transtnisron-del VIH y sobre el respeto a los derechos de cualquier persona portadora del VIH o enferma de SIDA.

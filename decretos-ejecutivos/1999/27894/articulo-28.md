@@ -1,0 +1,1 @@
+Artículo 28.—Cuando en algún centro de enseñanza o de trabajo se presenten problemas de discriminación entre compañeros/as, la entidad correspondiente deberá implementar, con carácter de urgencia, las medidas informativas que estimulen el respeto mutuo y la no discriminación. Siempre podrá solicitar la asesoría del Consejo Nacional de Atención Integral al VIH-SIDA.
