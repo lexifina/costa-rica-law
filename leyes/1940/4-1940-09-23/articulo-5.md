@@ -1,2 +1,2 @@
-Artículo 5°- Ninguna pensión podrá exceder de setecientos colones (¢ 700.00.)
-(Así reformado por el artículo 1° de la ley N° 1841 del 23 de diciembre de 1954)
+Artículo 5°- Ninguna pensión podrá exceder de setecientos colones mensuales. Cuando el interesado haya cumplido treinta años de servicios, la pensión no podrá ser inferior a trescientos colones; en los casos de pensiones por incapacidad en que el promedio de sueldos sea inferior a trescientos colones, se tendrá esta última suma como promedio mensual para fijar el derecho en proporción al número de años de servicios. En los traspasos se aplicará esta disposición.
+(Así reformado por el artículo 1° de la ley N° 3052 del 31 de octubre de 1962)

@@ -1,6 +1,6 @@
 # Ley de Jubilaciones y Pensiones de Comunicaciones
 
-Ley N° 4 del 1940-09-23. SINALEVI, ficha 33215: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33215&param2=104203&param3=1>.
+Ley N° 4 del 1940-09-23. SINALEVI, ficha 33215: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33215&param2=104204&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 20 | 1945-08-17 | Ley 162 | 1945-08-17 |
 | 7 de 20 | 1949-10-04 | Ley 735 | 1949-10-04 |
 | 8 de 20 | 1955-01-05 | Ley 1841 | 1954-12-23 |
+| 9 de 20 | 1962-11-17 | Ley 3052 | 1962-10-31 |
