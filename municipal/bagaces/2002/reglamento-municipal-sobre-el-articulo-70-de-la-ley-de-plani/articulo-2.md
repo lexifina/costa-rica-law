@@ -1,0 +1,1 @@
+Artículo 2º—Posteriormente el encargado del Departamento de Construcción o Ingeniería Municipal enviará la documentación completa para su aprobación por parte de la Comisión de Construcción nombrada al efecto por el Concejo Municipal.

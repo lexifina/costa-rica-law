@@ -1,0 +1,1 @@
+Artículo 5º—Toda construcción ya sea pública o privada, que no cuente con el permiso respectivo de construcción, aprobado por la Comisión de Construcción, será suspendida o paralizada inmediatamente y deberá pagar una multa del 50% del impuesto correspondiente al 1% indicado en el artículo 3º de la Ley de Construcciones.

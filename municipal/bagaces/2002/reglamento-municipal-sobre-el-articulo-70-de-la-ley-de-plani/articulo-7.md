@@ -1,0 +1,1 @@
+Artículo 7º—Las construcciones que realicen las organizaciones sociales, constituidas legalmente, domiciliadas en el cantón y declaradas de interés público por el Poder Ejecutivo, pagarán un impuesto equivalente a un 0,25% del valor de la obra.

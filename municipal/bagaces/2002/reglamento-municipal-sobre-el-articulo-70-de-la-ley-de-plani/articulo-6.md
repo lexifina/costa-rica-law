@@ -1,0 +1,1 @@
+Artículo 6º—Las construcciones que realicen las organizaciones privadas y constituidas legalmente y destinadas a la beneficencia o bien social, pagarán un impuesto equivalente a un 0,25% del valor de la obra.

@@ -1,0 +1,1 @@
+Artículo 8º—Las construcciones que realicen las entidades públicas no estatales o privadas y que se constituyan legalmente para cumplir finalidades de interés cantonal siempre y cuando no estén declaradas de interés público por el Poder Ejecutivo, pagarán un 50% del valor de la obra.
