@@ -1,0 +1,1 @@
+Artículo 45.—Trámite y formalidades. La autorización que realice el beneficiario, para que terceros retiren cheques u órdenes de pago a su favor, deberá presentarse ante la oficina expedidora del cheque u orden y ser autenticada por Notario Público, conforme los efectos de la fe pública que les confieren los artículos 30 y 31 del Código Notarial.

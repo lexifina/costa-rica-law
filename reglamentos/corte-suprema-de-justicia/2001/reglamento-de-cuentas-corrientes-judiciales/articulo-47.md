@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las conciliaciones bancarias
+Artículo 47.—Definición. Con el propósito de garantizar que todos los pagos efectuados por el Banco contra la cuenta corriente, conforme le han sido presentados, corresponden a los ordenados por las autoridades judiciales mediante resoluciones firmes dentro de los procesos que tramitan y son válidamente emitidos por los órganos competentes y, que han sido correctamente anotados los ingresos por depósitos recibidos, se efectuará una revisión mensual de los registros efectuados en la cuenta corriente del Despacho, con vista en el estado de la cuenta emitido por el Banco.

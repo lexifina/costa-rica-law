@@ -1,0 +1,1 @@
+Artículo 91.—Capacitación. El Departamento Financiero Contable en coordinación con la Escuela Judicial mantendrá un programa de capacitación permanente para todos aquellos servidores que tengan relación con el manejo y control de las cuentas corrientes judiciales.

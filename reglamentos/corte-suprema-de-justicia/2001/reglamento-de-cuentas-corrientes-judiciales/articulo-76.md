@@ -1,0 +1,2 @@
+Artículo 76.—Prohibiciones. Queda absolutamente prohibido endosar a favor de terceras personas, cheques girados contra las cuentas corrientes judiciales. Tampoco podrán ser entregados a personas autorizadas por el beneficiario, sino es conforme lo dispuesto en el capítulo VI del título III “Disposiciones Comunes”, de este Reglamento.
+Incurrirá en las responsabilidades que se lleguen a determinar, el funcionario que firmare un formulario de cheque en blanco. No podrá hacerlo por ningún motivo.

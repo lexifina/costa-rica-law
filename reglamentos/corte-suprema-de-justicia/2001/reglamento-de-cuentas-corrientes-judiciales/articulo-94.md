@@ -1,0 +1,2 @@
+Artículo 94.—Responsabilidad. Será responsabilidad del jefe de la dependencia judicial el cumplimiento de las disposiciones contempladas en este Reglamento, en el Manual de Procedimientos y los demás instructivos y circulares que se emitan al respecto.
+En caso de siniestro, hurto, robo, supresión, ocultación o destrucción de documentos en la dependencia judicial, la jefatura deberá informar de inmediato a la Auditoría Judicial, para que ésta proceda a levantar el respectivo inventario de la documentación y valores.

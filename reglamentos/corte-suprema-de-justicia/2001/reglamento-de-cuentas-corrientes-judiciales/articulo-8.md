@@ -1,0 +1,4 @@
+Artículo 8º—Jefe de Sección de Jubilaciones y Pensiones. Además de las funciones naturales a la Sección a su cargo, corresponde al Jefe de la Sección de Jubilaciones y Pensiones:
+a- Llevar el registro y control de los fondos originados por el traslado de los depósitos judiciales pertenecientes a juicios que permanecen sin actividad procesal por cuatro o más años y que se depositen en la cuenta corriente “Corte Suprema de Justicia, artículo 237”.
+b- Administrar financieramente el fondo referido en el anterior inciso, y recomendar a la Dirección Ejecutiva las inversiones en los títulos y plazos que mejor convengan, conforme a las políticas de inversión, establecidas y los mecanismos de inversión que lleguen a definirse.
+c- Devolver, previo análisis de su procedencia, los depósitos judiciales que han permanecido en custodia y que han sido solicitados por las autoridades judiciales que tramitan los procesos a que pertenecen esos depósitos.

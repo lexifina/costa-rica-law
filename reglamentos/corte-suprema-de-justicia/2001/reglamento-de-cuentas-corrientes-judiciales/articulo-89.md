@@ -1,0 +1,2 @@
+Artículo 89.—Control de cumplimiento. El Despacho Judicial deberá mantener actualizado un Control que le permita conocer en todo momento la situación de atraso o no, que mantiene el obligado, las fechas, períodos y cumplimiento respecto de montos.
+Previamente a emitir una “orden de apremio corporal” a solicitud de la parte actora, el despacho judicial deberá consultar el control que al efecto lleva, para determinar si el obligado se encuentra o no al día con el pago.

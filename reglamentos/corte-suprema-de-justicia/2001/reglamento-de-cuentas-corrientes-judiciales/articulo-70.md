@@ -1,0 +1,2 @@
+Artículo 70.—Archivo y custodia. El Despacho deberá llevar un archivo en donde conserve en perfecto orden numérico y cronológico una copia de las órdenes de giro confeccionadas. Otra copia será agregada al expediente del proceso. Con respecto de los formularios en blanco deberá custodiarlos en un lugar seguro, de acceso restringido y llevará un control sobre su uso diario.
+En el Departamento Financiero Contable y en la Unidad o Subunidad Administrativa Regional, el formulario supra indicado que sirvió de base para la confección del cheque, se custodiará en forma consecutiva.

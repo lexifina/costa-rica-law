@@ -1,0 +1,1 @@
+Artículo 82.—Cheques entregados y no presentados al Banco. Si un cheque tiene más de cuatro años de emitido y entregado a su beneficiario y no ha sido presentado a cobro, lo que se evidencia en el estado de conciliación bancaria, se procederá conforme se establece en los párrafos segundo y tercero del artículo 85.

@@ -1,0 +1,1 @@
+Artículo 27.—Devolución. Únicamente el Despacho Judicial que conozca de la causa podrá ordenar la entrega de los valores depositados, mediante resolución firme, para lo cual extenderá comunicación al Banco, la cual deberá ser refrendada por el Departamento Financiero Contable o la Unidad o Subunidad Administrativa Regional, según corresponda.

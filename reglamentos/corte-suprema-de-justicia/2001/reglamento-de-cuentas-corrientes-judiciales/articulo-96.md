@@ -1,0 +1,1 @@
+Artículo 96.—Evaluaciones. La Auditoría Judicial velará, mediante las intervenciones y medios que consideren oportunos, el cumplimiento de lo dispuesto en este Reglamento y en el Manual de Procedimientos y dará cuenta de ello al órgano que conoce de sus informes.

@@ -1,0 +1,1 @@
+Artículo 15.—Contenido y detalle del depósito. Las boletas o constancias de depósito deberán contener la información necesaria para el trámite judicial: nombre del despacho y su respectivo número de cuenta, número único de caso o expediente y nombre de las partes del juicio y del depositante. Deberá tener consignado el sello de cajero del Banco y la fecha.
