@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE ESCAZÚ
+REGLAMENTO PARA EL OTORGAMIENTO DE BECAS
+El Concejo Municipal del cantón de Escazú en su sesión ordinaria N° 185, celebrada el martes dieciocho de setiembre del dos mil uno, acordó: "Aprobar la moción presentada por los regidores Sáenz Scaglietti y Hernández Molina miembros de la Comisión de Asuntos Jurídicos que literalmente dice:
+"Considerando:
+1. Que la Municipalidad de Escazú mediante acuerdo de sesión ordinaria N° 47, celebrada el 19 de enero de 1999, aprobó el Reglamento para el Otorgamiento de Becas para Estudios de los Munícipes de Escazú, mismo que fue publicado en La Gaceta N° 102 del jueves 27 de mayo de 1999.
+2. Que es de interés municipal estimular e "incentivar a los" vecinos del cantón, en la realización de sus estudios con el fin de que obtengan una profesión o actividad que genere recursos económicos para que lleven una vida digna.
+3. Que el Reglamento para el Otorgamiento de Becas para Estudios de los Munícipes de Escazú, solamente contempló la posibilidad para que jóvenes o niñas y niños recibiesen esta ayuda municipal, dejando de lado la posibilidad de beneficiar a otros sectores de la población, que perfectamente pueden incorporarse a la población económicamente activa del cantón. Mocionamos: para que se practique una modificación al Reglamento para el Otorgamiento de Becas para Estudios de los Munícipes de Escazú, de la siguiente manera:
+1°—Que el artículo 1° de dicho Reglamento se lea en lo sucesivo de la siguiente manera:
+"Artículo 1°—La Municipalidad podrá otorgar becas en beneficio de toda aquella persona vecina del cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de enseñanza primaria o secundaria. Asimismo, podrá gestionar el otorgamiento de becas para toda aquella persona vecina del cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de educación superior, técnica, tecnológica o científica.
+2°—Que el artículo 2° de dicho Reglamento adicionado con un artículo 2° bis que dirá:
+"Artículo 2°—Para cumplir con lo establecido en el párrafo final del artículo I de este Reglamento, la Comisión de Becas, enviará una circular a los centros educativos públicos, de enseñanza superior, técnica y científica, en la segunda semana del mes de noviembre de cada año, mediante la que les comunicará el monto que en el presupuesto municipal le ha sido asignado al rubro de becas, para el siguiente ejercicio presupuestario, su distribución equitativa entre los centros superiores y técnicos de enseñanza pública y los requisitos y procedimientos para solicitarlas".
+Aprobado - Acuerdo Firme.
+Escazú, 19 de septiembre del 2001.—
