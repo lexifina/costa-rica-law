@@ -1,0 +1,1 @@
+Artículo 11.—Deber de confidencialidad, "lodo funcionario del Banco está obligado a guardar rigurosa discreción respecto a los hechos y documentos, de los cuales tenga conocimiento con motivo del desempeño de su cargo, salvo que cuente con autorización superior para brindar información.

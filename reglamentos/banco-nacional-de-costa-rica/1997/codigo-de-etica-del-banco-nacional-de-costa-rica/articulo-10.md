@@ -1,0 +1,1 @@
+Artículo 10.—Deber de responsabilidad. Todo funcionario del Banco será responsable de las acciones u omisiones relacionadas con el desempeño de sus funciones, debiendo tener clara conciencia del deber de coadyuvar en el logro de las metas institucionales.

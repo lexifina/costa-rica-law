@@ -1,0 +1,1 @@
+Articulo 4°—Deber de rectitud. El funcionario del Banco Nacional debe actuar con rectitud y honestidad tanto en el ejercicio de su cargo, como en el uso de los recursos de la Institución que le son confiados, por motivo de la función que desempeña.

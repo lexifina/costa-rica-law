@@ -1,0 +1,1 @@
+Artículo 17.—Los negocios con los clientes deberán ser analizados tan detallada y minuciosamente como sea posible, siguiendo las políticas fijadas por el Banco, a fin de evitar relaciones con personas de reconocida falta de honorabilidad y reputación.
