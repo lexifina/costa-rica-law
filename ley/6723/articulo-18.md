@@ -13,5 +13,5 @@ expedientes y documentos.
 facilitar al público los medios que permitan localizar los
 expedientes y documentos remitidos.
 6. Extender certificaciones y constancias de piezas de expedientes,
-o documentos archivados, cuando proceda conforme a las normas de la
-presente ley.
+o documentos archivados, cuando proceda conforme a las normas de
+la presente ley.
