@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal de Orotina en el artículo VI, inciso II, aparte 5 del acta de sesión ordinaria Nº 97, celebrada el día 24-06-2003. Tomó el siguiente acuerdo considerando que al Reglamento para el Otorgamiento e Imposición de la Orden Primo Vargas Valverde, publicado en el Diario Oficial La Gaceta Nº 114, del lunes 16 de junio del 2003, le falta el restante del artículo 12, 13 y Transitorio Único, solicita acuerdo en el sentido de aprobarlo para que sea enviado a publicar en el Diario Oficial La Gaceta. Lo cual a la letra reza:
+Municipalidad de Orotina
+"Orden Primo Vargas Valverde"
+"La mejor recompensa del trabajo social, es la satisfacción de realizar algo por nuestros semejantes" Marco Alonso Fuentes Umaña.
+El señor (a) _____________________ por cumplir con los requisitos necesarios para otorgarle el presente reconocimiento, se le extiende el eterno agradecimiento del pueblo orotinense y se le nombra (Hijo predilecto o Ciudadano Ilustre, según el caso) por su trabajo altruista y desinteresado en el fortalecimiento del amor a sus ciudadanos hermanos, a través de su honorable trabajo comunal.
+Expedido en Orotina en conmemoración de su fundación, el día 1º de agosto del _______.
+Artículo 13.—Las personas designadas por la ORDEN se les hará un cuadro con su fotografía, para exponerlos al pueblo en un lugar dentro de la Municipalidad establecido por el Concejo Municipal.
+Transitorio único.—El período de inscripción de los candidatos, el tamaño de las fotografías que debe ser uniforme para todas, cantidad de veces al mes para reuniones y otro asunto práctico de este Reglamento, será responsabilidad exclusiva en acuerdo tomado por la Comisión Especial de esta ORDEN. Se da un mes a partir de la publicación, para que se realice la convocatoria expuesta en el artículo 4º de este Reglamento.
