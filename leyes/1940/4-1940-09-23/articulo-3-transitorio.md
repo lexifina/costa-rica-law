@@ -1,0 +1,1 @@
+Transitorio III.- Los empleados de Comunicaciones nombrados con posterioridad al año 1947, que estén cotizando para el régimen a que esta ley se refiere, podrán continuar haciéndolo acogidos a sus beneficios. Los que hayan sido nombrados seis meses antes de la emisión de esta ley, o lo sean en el futuro, deberán ser incluidos en el régimen de Invalidez, Vejez y Muerte.
