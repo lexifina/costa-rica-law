@@ -15,3 +15,4 @@ Determina el procedimiento a seguir para la inclusión o exclusión en la condic
 | --- | --- | --- |
 | 1 | 2002-04-03 | la propia norma |
 | 2 | 2002-05-09 | Resolución 24 (2002-05-09) |
+| 3 | 2003-12-08 | Resolución 31 (2003-12-08) |
