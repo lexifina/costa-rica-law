@@ -1,0 +1,1 @@
+Art 8° La casación de una sentencia, cuando se pronuncie en virtud de recurso instaurado sólo por el reo o su defensor, no podrá nunca traer como consecuencia que empeore la condición del reo, tal como la hubiere fijado el fallo anulado.

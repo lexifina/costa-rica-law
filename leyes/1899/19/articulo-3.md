@@ -1,0 +1,7 @@
+Artículo 3, Se concede asimismo de casación, en cuanto al fondo:
+1° Contra el auto definitivo que declare la competencia o incompetencia del Tribunal, cuando, dada la calificación de los hechos que contiene el auto, se haya infringido, alguna de las leyes que señalen la competencia.
+2° Contra el auto definitivo que admita como precedente en previo pronunciamiento las excepciones de cosa juzgada, prescripción del delito o aplicación de indulto, cuando, dado los hechos tenidos por probados, se haya cometido error de derecho al decláralos comprendidos en una sentencia firme anterior, o al considerar prescrita la acción penal, o al comprender los hechos en un decreto de indulto.
+3° Contra el auto de sobreseimiento cuando no se estime como delito, siéndolo, los hechos consignados posteriores que impidan su castigo o cuando declare exentos de responsabilidad criminal a los procesados, no debiendo serlo con arreglo a alguna ley expresa.
+4°Contra el auto definitivo que rechace una acusación por delito público o privado, cuando se haya quebrantado alguna ley expresa al declarar que el hecho acusado no constituye delito o que el acusador no tiene derecho para acusar, sea la calidad o circunstancia de su persona, sea por las de la persona acusada.
+5° Contra cualquiera otro auto definitivo que ponga término a la causa, cuando en él se haya infringido algún texto legal.
+El punto resuelto en casación a virtud de recurso interpuesto contra un auto definitivo, no podrá servir mas tarde de motivo del recurso contra la sentencia definitiva.
