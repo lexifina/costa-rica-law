@@ -1,1 +1,0 @@
-Artículo 6° ─ Siempre que se contraigan empréstitos especiales para la ampliación o mejora de servicios, un tanto por ciento de los ingresos netos se aplicará al pago del principal e intereses devengados sobre dichos empréstitos.

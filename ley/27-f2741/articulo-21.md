@@ -1,2 +1,0 @@
-Artículo 21° ─ Las Comisiones celebrarán por lo menos una sesión por semana, pudiendo llegar a un máximo de diez al mes, si así lo exigen los intereses confiados a su cargo, o si el Gobernador las convoca extraordinariamente para un asunto urgente.
-Cada miembro devengará por sesión a que asista (siempre que no pasen de diez al mes) una dieta de diez colones; pero en los cantones menores no devengarán ninguna.
