@@ -1,0 +1,1 @@
+Artículo 2°—Que por tratarse de actividades lucrativas ocasionales, se seguirá el procedimiento descrito en el artículo 12 de la misma Ley N° 7545 "Tarifa de impuesto Municipales del cantón de Guácimo".

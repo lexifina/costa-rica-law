@@ -1,0 +1,1 @@
+Artículo 12.—Para toda presentación de espectáculos públicos y de diversión se requiere el permiso extendido por el Teatro Nacional, de acuerdo a Decreto N° 27762-H-C, artículos 5º y 12, publicado en La Gaceta N° 70 del 13 de abril de 1999.
