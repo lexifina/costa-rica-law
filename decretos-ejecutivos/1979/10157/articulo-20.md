@@ -1,1 +1,0 @@
-Artículo 20.-Las normas generales de funcionamiento de los Consejos Regionales y Subregionales de Desarrollo serán establecidas en un Decreto Ejecutivo. Dicho decreto deberá ser elaborado por la Oficina de Planificación Nacional y Política Económica.

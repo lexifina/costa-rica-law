@@ -1,1 +1,0 @@
-Artículo 7°-La Oficina de Planificación Nacional y Política Económica ejercerá la Secretaría Ejecutiva del Consejo Nacional de Desarrollo Regional, por medio de su División que Planificación y Coordinación Regional.

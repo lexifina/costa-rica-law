@@ -1,1 +1,0 @@
-Articulo 32.-Deróganse los Decretos Ejecutivos N° 6400-P-I-MEIC-A de 27 de setiembre de 1976; N° 7909-P de 16 de enero de 1978; N° 7945.P de 5 de enero de 1978; N° 7604-P de 27 de octubre de 1977 y N° 8432-P de 18 de abril de 1978, y cualquiera otra disposición en lo que sea contrario del presente decreto.

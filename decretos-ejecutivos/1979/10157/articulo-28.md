@@ -1,1 +1,0 @@
-Articulo 28.-Los coordinadores de los Comités Sectoriales en la región serán los que representen a cada sector en el respectivo Consejo Regional de Desarrollo y los coordinadores de los Comités Sectoriales en las subregiones serán los que representen a cada sector con el respectivo Consejo Subregional de Desarrollo.

@@ -1,1 +1,0 @@
-Artículo 6°-Conforme a lo establecido en la Ley de Planificación Nacional, todos los organismos del sector público colaborarán en sus respectivos ámbitos de competencia en los planes de desarrollo regional y subregional, y coadyuvarán para que se ejecuten las políticas del Gobierno en ese campo, y los lineamientos emanados del Consejo Nacional de Desarrollo Regional.

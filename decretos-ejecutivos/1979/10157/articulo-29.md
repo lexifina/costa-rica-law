@@ -1,1 +1,0 @@
-Articulo 29.-Los coordinadores de tales Comités Sectoriales, además, constituirán juntos un Comité Intersectorial en la región, presidido por eL responsable de la Secretaría de Planificación y Coordinación Regional de OFIPLAN, para fines de coordinación entre los sectores en la región.

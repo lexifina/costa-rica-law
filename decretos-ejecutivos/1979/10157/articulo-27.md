@@ -1,3 +1,0 @@
-Artículo 27.-Los responsables de las Oficinas Regionales constituirán en cada región, un Comité Sectorial para fines de coordinación entre las instituciones del mismo sector.
-El Presidente del respectivo Consejo Nacional Sectorial designará, entre tales funcionarios, al coordinador de dicho Comité Sectorial. El funcionario responsable de la respectiva Secretaria de Planificación y Coordinación Regional de OFIPLAN, o su representante, será parte integrante de tal Comité.
-A nivel subregional, las instituciones de la administración pública que tengan agencias subregionales, deberán organizarse por sectores, con e! objeto de integrar un Comité Sectorial Subregional, cuyo coordinador será nombrado por votación entre sus miembros.
