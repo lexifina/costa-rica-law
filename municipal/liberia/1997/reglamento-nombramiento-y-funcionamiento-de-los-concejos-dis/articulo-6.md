@@ -1,0 +1,1 @@
+Artículo 6°-La escogencia de los miembros del Concejo de Distrito, la hará el Concejo Municipal de entre la(s) terna(s) que al efecto le presenten el síndico del distrito de que se trate, quien las integrará con personas de reconocida trayectoria o interés, en la solución de problemas comunales.
