@@ -1,6 +1,6 @@
 # Uso Exigido Sistema Internacional Unidades Medida "SI" Métrico Decimal
 
-Ley N° 5292 del 1973-08-09. SINALEVI, ficha 5650: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5650&param2=5993&param3=1>.
+Ley N° 5292 del 1973-08-09. SINALEVI, ficha 5650: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5650&param2=5994&param3=1>.
 
 Publicada en La Gaceta N° 161 del 1973-08-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1973-08-29 | Ley 5292 | 1973-08-09 |
 | 2 de 3 | 1985-09-03 | Ley 6999 | 1973-08-09 |
+| 3 de 3 | 2002-05-21 | Ley 8279 | 2002-05-02 |

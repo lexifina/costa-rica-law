@@ -1,5 +1,1 @@
-Artículo 8º.- El uso indebido y malicioso de las unidades de
-medición para la compra, venta o arrendamiento de cualquier producto, se
-considerará como especulación y se juzgará de acuerdo con lo dispuesto en
-la Ley de Defensa Económica, Nº 1208 de 9 de octubre de 1950 y sus
-reformas.
+Artículo 8º.- (Derogado por el inciso a) del artículo 50 de la Ley N° 8279 de 2 de mayo del 2002, Ley del Sistema Nacional de Calidad)
