@@ -150,7 +150,6 @@ articulo-143.md
 articulo-144.md
 articulo-145.md
 articulo-146.md
-articulo-3-transitorio.md
 articulo-147.md
 articulo-148.md
 articulo-149.md
@@ -199,7 +198,6 @@ articulo-191.md
 articulo-192.md
 articulo-193.md
 articulo-194.md
-articulo-4-transitorio.md
 articulo-195.md
 articulo-196.md
 articulo-197.md
@@ -228,3 +226,5 @@ articulo-219.md
 articulo-220.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
+articulo-3-transitorio.md
+articulo-4-transitorio.md
