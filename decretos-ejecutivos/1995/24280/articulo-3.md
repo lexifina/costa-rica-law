@@ -1,0 +1,1 @@
+Artículo 3°-El Estado, Instituciones Autónomas y semiautónomas, las municipalidades y demás entidades públicas, están autorizadas a otorgar subvenciones o suministrar servicios de cualquier clase, según sus posibilidades, a favor de dicha organización.
