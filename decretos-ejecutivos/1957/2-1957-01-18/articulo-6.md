@@ -1,0 +1,1 @@
+Artículo 6°-las variaciones que se introduzcan a los términos que consten en los atestados presentados para la solicitud deberán ser comunicados al Consejo, para la correspondiente aceptación si se ajustan a los términos del reglamento, de lo contrario, se considerará caducado el reconocimiento o la equiparación que se habían otorgado.
