@@ -1,0 +1,18 @@
+Nº 29572-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE EDUCACIÓN PÚBLICA
+En ejercicio de las atribuciones que les confiere el artículo 140 inciso 18) de la Constitución Política, y el artículo 27.1 de la Ley General de la Administración Pública y,
+Considerando que:
+1º—El artículo 26 del Reglamento de la Carrera Docente indica en lo pertinente que: "Cuando existiere queja o denuncia por la presunta comisión de falta grave o de alguna gravedad, contra un servidor docente, según se detalla en los artículos 65 y 66 del Estatuto de Servicio Civil, la Dirección General de Personal mediante el Departamento de Procedimientos Legales, realizará una investigación de los hechos denunciados, que deberá concluirse en un lapso no mayor de tres meses".
+2º—El término de tres meses indicado en el artículo anterior, no lo crea ni lo autoriza el Estatuto del Servicio Civil, ni ninguna otra norma de rango de ley.
+3º—La Procuraduría General de la República, en el dictamen Nº C-173-97 del 17 de setiembre de 1997, concluye que el término de tres meses del Reglamento de la Carrera Docente es ilegal "...ya que no existe norma en el Estatuto de Servicio Civil que autorice aplicar la caducidad o prescripción, luego de expirar el término para el cumplimiento de una fase instructiva por queja o denuncia, en materia disciplinaria de los funcionarios docentes".
+4º—La Defensoría de los Habitantes en diversos informes ha invocado el dictamen de la Procuraduría General de la República, denunciando la interpretación incorrecta que, del artículo 26 de repetida cita, ha venido llevando a cabo el Ministerio de Educación, el Tribunal de la Carrera Docente y el Tribunal de Servicio Civil.
+5º—La existencia del término de tres meses de repetida cita y la interpretación que se ha venido dando del mismo como término de caducidad o de prescripción, es inconstitucional al violentarse el principio de reserva de ley. Por tanto,
+Decretan:
+Artículo 1º—Refórmase el artículo 26 del Reglamento de la Carrera Docente, Decreto Ejecutivo Nº 2235-EP del 4 de febrero de 1972 y sus reformas, para que se lea de la siguiente manera:
+"Cuando existiere queja o denuncia por la presunta comisión de falta grave o de alguna gravedad, contra un servidor docente, según se detalla en los artículos 65 y 66 del Estatuto de Servicio Civil, la Dirección General de Personal, realizará una investigación de los hechos denunciados, que deberá concluirse en el plazo ordenatorio de tres meses. Sin embargo, cuando existan razones justificadas y antes de concluir este término, mediante resolución razonada podrá prorrogarse por otro período igual.
+El inicio del cómputo del plazo ordenatorio, señalado en el párrafo anterior, operará en el momento en que sea la Dirección General de Personal tenga conocimiento de la queja o denuncia.
+Al efecto, se observará el procedimiento establecido en los artículos 59 y siguientes del Estatuto de Servicio Civil y lo dispuesto en este Reglamento.
+Concluido el término señalado, el Director General de Personal, o el Ministro de Educación Pública, cuando se trata del cese de funciones de un servidor interino, dispondrán de un mes para dictar el acto o resolución final que en Derecho procedan. La resolución que dicte el Ministro, dará por agotada la vía administrativa.
+La impugnación de las amonestaciones o suspensiones acordadas por el Director General de Personal contra los servidores interinos, se llevará a cabo mediante los recursos ordinarios de revocatoria y apelación para ante el Ministro de Educación Pública, dentro del término establecido por el artículo 66 del Estatuto de Servicio Civil".
