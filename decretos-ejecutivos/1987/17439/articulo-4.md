@@ -1,0 +1,1 @@
+Artículo 4°—El representante de los trabajadores del sector de Salud, será nombrado por el Ministro, de acuerdo con ternas que envíen las federaciones de trabajadores de la salud y durarán en su cargo dos años, pudiendo ser reelecto por otro período sucesivo, mediante inclusión en la terna que se someta al efecto.

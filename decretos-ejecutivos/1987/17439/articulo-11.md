@@ -1,0 +1,1 @@
+Artículo 11.—Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día. salvo en casos de urgencia.

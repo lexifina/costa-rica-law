@@ -1,0 +1,1 @@
+Artículo 8°—El cargo de Secretario de actas del Consejo Técnico de Asistencia Médico-Social, será ocupado por el Director de la División Administrativa del Ministerio de Salud, o su sustitituto en ausencia del titular.

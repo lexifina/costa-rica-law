@@ -1,0 +1,1 @@
+Artículo 5°—Los demás miembros que integran el Consejo Técnico dei Asistencia Médica-Social, con las salvedades señaladas en los artículo 2° y 3° del presente Reglamento, durarán en sus cargos cuatro años.

@@ -1,0 +1,1 @@
+Artículo 16.—Las actas se aprobarán en la siguiente sesión ordinaria antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden firmeza por votación de dos tercios de la totalidad de los miembros.
