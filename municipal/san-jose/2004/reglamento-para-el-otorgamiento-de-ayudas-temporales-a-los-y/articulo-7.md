@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión de Asuntos Sociales y Becas del Concejo Municipal, deberá garantizar la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender situaciones de emergencia, o desastre que puedan presentarse en el transcurso del año.
