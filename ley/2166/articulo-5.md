@@ -1,10 +1,7 @@
-Artículo 5º.- De acuerdo con la anterior escala, cada categoría,
-además de un sueldo mínimo, tendrá sueldos intermedios o pasos y un
-sueldo máximo, que comprenderá cinco aumentos. Todo servidor comenzará
-devengando el mínimo de la categoría que le corresponde, salvo en casos
-de inopia, a juicio del Ministro respectivo y de la Dirección General de
-Servicio Civil. Los aumentos de sueldo se concederán por mérito, cada
-bienio y se harán efectivos a aquellos servidores que hayan recibido
-calificaciones satisfactorias durante dos años consecutivos,
-otorgándoseles el sueldo inmediato superior al que estuvieren devengando,
-dentro de la misma categoría, hasta llegar al sueldo máximo.
+ARTICULO 5º.- De conformidad con esta escala de sueldos, cada categoría tendrá aumentos o pasos, hasta un total de treinta, de acuerdo con los montos señalados en el artículo 4º anterior, hasta llegar al sueldo máximo, que será la suma del salario base más los treinta pasos o aumentos anuales de la correspondiente categoría.
+Todo servidor comenzará devengando el mínimo de la categoría que le corresponde al puesto, salvo en casos de inopia a juicio del Ministro respectivo y de la Dirección General de Servicio Civil. Los aumentos anuales serán concedidos por méritos a aquellos servidores que hayan recibido calificación por lo menos de "bueno", en el año anterior, otorgándoseles un paso adicional, dentro de la misma categoría, hasta llegar al sueldo máximo.
+(Así reformado por Ley Nº 6408 de 14 de marzo de 1980, artículo 1º).
+Transitorio I.- Los servidores públicos, amparados al Régimen del Servicio Civil, que a la fecha de la vigencia de la presente ley tengan más de cinco años dedicados a la función pública y bajo este mismo régimen, deberán ser ubicados en el paso correspondiente de su categoría en la Escala de Salarios desde la vigencia de la ley Nº 2166 de 9 de octubre de 1957, sea un máximo de doce pasos al año 1975, inclusive, pero sin derecho a demandar el pago de los aumentos anteriores al de la ubicación que aquí se cita.
+(Así reformado por Ley Nº 5955 de 31 de octubre de 1977, artículo 1º).
+Transitorio II.- El Poder Ejecutivo procurará equiparar los salarios del personal docente y administrativo del Magisterio Nacional con los salarios del resto de los servidores de la administración pública, al formular el proyecto de presupuesto ordinario que ha de regir en el curso del año 1976.
+(Adicionado por Ley Nº 5690 de 19 de mayo de 1975, artículo 2º).

@@ -1,5 +1,7 @@
-Artículo 11.- El Ministro o Jefe autorizado concederá los aumentos
-de sueldos de acuerdo con lo dispuesto en el artículo anterior, mediante
-acción de personal en cada caso, con el visto bueno de la Dirección
-General de Servicio Civil y con sujeción a la disponibilidad de los
-créditos presupuestarios.
+ARTICULO 11.- Salvo en casos de inopia comprobada durante más de
+dos años y previo estudio de otros factores que puedan causarla, la
+Dirección General de Servicio Civil no efectuará revaloraciones de
+puestos mientras el aumento del Indice de Precios calculado por la
+Dirección General de Estadística y Censos no sobrepase el 4% anual; en
+caso de que sobrepase ese límite, se efectuará una revaloración total.
+( Así reformado por Ley No. 3671 de 18 de abril de 1966, artículo 10 ).
