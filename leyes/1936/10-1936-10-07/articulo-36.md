@@ -1,1 +1,2 @@
-Artículo 36.- Los recursos que se obtengan por medio de la patente nacional especial de licores serán destinados de preferencia al mejoramiento de los servicios de policía en todo el país.
+Artículo 36.- Créase un impuesto sobre el expendio de licores, tanto nacionales como extranjeros y sobre la cerveza extranjera, el cual será pagado por los patentados de licores a que se refiere esta ley, no permitiéndose en forma alguna su traslación al público consumidor.
+(Así adicionado por el artículo 2º de la ley Nº 2940 de 18 de diciembre de 1961, pasando el anterior 36 a ser el 42 -actual 43 según el artículo 52 de la Ley Nº 4716 de 9 de febrero de 1971-).

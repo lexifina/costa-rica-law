@@ -1,5 +1,2 @@
-Artículo 27.- Ningún establecimiento de comercio, salvo boticas de turno, panaderías y cafeterías que no tengan puesto de licores, podrá abrir antes de las seis de la mañana. En los puertos se permitirá adelantar una hora la apertura.
-Los puestos públicos de licores al por mayor y al menudeo no podrán permanecer abiertos los domingos ni los días feriados después de las doce horas. En los demás días estos puestos deberán cerrarse a las veintidós horas, excepción hecha de los puertos en donde podrá permitirse que el cierre se retarde una hora.
-Los clubs o casinos, hoteles, restaurantes, casas de huéspedes, cafeterías y hosterías podrán atrasar el cierre hasta por una hora en la noche; pero esta autorización será cancelada inmediatamente que en cualquier forma se abuse de ella, a juicio de la autoridad superior de policía.
-En los días de elecciones y en el anterior y posterior a éstas, deberán permanecer cerrados todos los establecimientos de licores y cerveza, al por mayor y al menudeo.
-Las cantinas de los clubs o casinos, hoteles, restaurantes, casas de huéspedes, cafeterías y hosterías, deberán cerrarse del mismo modo que los otros puestos de licores, y mientras dure el cierre de la cantina no podrá servirse licores en ningún departamento de dichos establecimientos.
+Artículo 27.- DEROGADO.
+(Derogado por el artículo 11 de la Ley sobre Horarios de Expendios de Bebidas Alcohólicas No.7633 de 26 de setiembre de 1996)

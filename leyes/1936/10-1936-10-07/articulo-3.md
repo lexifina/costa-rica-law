@@ -1,2 +1,3 @@
-Artículo 3º- Los puestos para expendios de licores al menudeo sólo se pueden obtener por medio de remate público, salvo lo que adelante se dispone sobre patente especial para el expendio de toda clase de licores y cerveza.
+Artículo 3º.- Los puestos para expendios de licores al menudeo sólo se pueden obtener por medio de remate público, salvo lo que adelante se dispone sobre patente especial para el expendio de toda clase de licores y cerveza.
 La venta de cerveza al menudeo, solamente podrá efectuarse en los puestos de licores y una vez satisfechas las patentes respectivas establecidas o que se establezcan para el expendio de cerveza.
+(NOTA: El artículo 32, derogado por ley Nº 3791 de 16 de noviembre de 1966, regulaba la patente especial a que se refiere la parte final del párrafo primero, por lo que este debe considerarse tácitamente derogado por dicha ley).

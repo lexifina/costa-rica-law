@@ -1,1 +1,2 @@
-Artículo 32.- No obstante lo dispuesto en el aparte segundo del artículo 27, créase una patente especial nacional para el expendio de licores extranjeros y del país, inclusive la cerveza, en las capitales de provincia y cabeceras de cantón, los domingos y días feriados, desde las doce a las veintidós horas. Dicha patente especial podrá ser obtenida solamente por los patentados municipales para la venta de licores extranjeros o del país, o que exploten ambas patentes en un mismo establecimiento, y la expedirá el respectivo Gobernador en cada provincia. Se dará esta patente especial a solicitud del interesado, previo pago de su valor en la Tesorería de Rentas Públicas.
+Artículo 32.- DEROGADO.
+(Derogado por el artículo 2º de la ley Nº 3791 de 16 de noviembre de 1966).

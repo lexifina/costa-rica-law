@@ -1,0 +1,5 @@
+Artículo 40.- Del total recibido por el I.F.A.M., de acuerdo con los artículos anteriores, corresponde a éste un cincuenta por ciento, para los fines del inciso a) del artículo 30 de su ley constitutiva, el otro cincuenta por ciento se distribuirá entre las Municipalidades del país, acreditándole a cada una lo que le corresponde en una cuenta especial, de acuerdo con los siguientes criterios:
+a) Tratándose de los licores a que se refiere el artículo 38, se hará el crédito entre todas las municipalidades en proporción a la población de cada cantón, de conformidad con el informe dado por la Dirección General de Estadística y Censos, de fecha más próximo al 1º de enero de cada año.
+(Así reformado por el artículo 2º de la ley Nº 6282 de 14 de agosto de 1979).
+b) Tratándose de los licores y demás bebidas extranjeras a que se refiere el artículo 39, deberá acreditarse un sesenta por ciento a la Municipalidad de San José y el cuarenta por ciento restante a las demás Municipalidades, en proporción a la población de cada cantón.
+(Así adicionado por el artículo 52 de la ley Nº 4716 de 9 de febrero de 1971).
