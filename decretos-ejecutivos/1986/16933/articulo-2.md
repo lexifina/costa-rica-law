@@ -1,0 +1,1 @@
+Artículo 2°—El ICT deberá elaborar o aprobar el plan de desarrollo turístico de la Isla antes de sacarse a concurso la construcción de la infraestructura y explotación de la Isla, el cual además de tomar en cuenta los aspectos netamente turísticos, deberá velar también por la conservación ambiental.
