@@ -1,0 +1,1 @@
+Art. 7. En las faltas que ocurran por impedimento ó recusación etc. de los Magistrados, para conocer en causas ó negocios determinados, se despacharàn por Específicos nombrados por la Corte, quienes llevaràn su honorario.

@@ -1,0 +1,1 @@
+Art. 15. Tendràn conocimiento en todos los asuntos no contenciosos, y en otros, que aunque contenciosos no dan lugar á ocurrir á la cabecera de Partido; pero deberán remitir los autos, evacuando que sea el objeto conforme al artìculo 47 de la ley de 16 de Enero de 826, practicandolo indistintamente los Alcaldes de las cabeceras de partido.
