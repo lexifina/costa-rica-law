@@ -1,0 +1,1 @@
+Art. 4. Cartago queda exento de prestar el servicio personal que ha dado para las empresas públicas fuera de la Provincia, a fin de que pueda ocuparse voluntariamente en el trabajo del Camino del Norte mediante una justa retribución.
