@@ -1,0 +1,2 @@
+"El Concejo Municipal de Curridabat, en Sesión Ordinaria N° 030-2002, del día 28 de diciembre del 2002, Capítulo 6°, Artículo 6°, por Acuerdo Nº 17 de las 22,56 horas, dice: en uso de las facultades conferidas por los artículos 4, inciso a), 13 inciso c), del Código Municipal. Acuerda por unanimidad, dictar el siguiente Reglamento":
+Artículo 1º—El Concejo Municipal de Curridabat, de conformidad con las atribuciones que le confieren los Artículos 4, inciso a) y 13 inciso c) y 62 y 109 del Código Municipal, Ley 7794 del 30 de abril de 1998, dicta el presente reglamento.
