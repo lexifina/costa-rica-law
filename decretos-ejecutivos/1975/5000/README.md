@@ -16,3 +16,4 @@ Reglamento a la Ley de Protección al Consumidor
 | 3 | 1983-04-29 | Decreto Ejecutivo 14488 (1983-04-29) |
 | 4 | 1983-08-03 | Decreto Ejecutivo 14747 (1983-08-03) |
 | 5 | 1988-01-15 | Decreto Ejecutivo 17940 (1988-01-15) |
+| 6 | 1988-09-27 | Decreto Ejecutivo 18493 (1988-09-27) |
