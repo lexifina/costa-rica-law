@@ -1,0 +1,1 @@
+Artículo 165.-La DGF formulará anualmente un programa de divulgación para la población rural, con el fin de dar a conocer a ese sector los beneficios del recurso forestal, y brindarle información sobre las formas en que se puede colaborar para su conservación, manejo e incremento.

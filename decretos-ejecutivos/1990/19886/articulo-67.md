@@ -1,0 +1,3 @@
+Artículo 67.-Para la debida vigilancia de las áreas de aptitud forestal sometidas a planes de manejo forestal, la DGF capacitará a los funcionarios de la GAR y a los de las municipalidades en los aspectos necesarios para alcanzar los objetivos perseguidos en el artículo 53 de la Ley Forestal.
+Las áreas de aptitud forestal sometidas a planes de manejo forestales serán señaladas en un mapa a escala 1:50.000 que se enviará a las delegaciones de la GAR y municipalidades de los cantones correspondientes.
+Las Municipalidades del respectivo lugar cubrirán los costos de capacitación y aportarán las hojas cartográficas necesarias.

@@ -1,0 +1,1 @@
+Artículo 169.-Para toda gestión presentada ante la DGF, los administrativos deberán señalar para oír notificaciones, u oficina dentro del perímetro judicial respectivo, de conformidad con lo establecido en el artículo 175 del Código Procesal Civil y 239 y 240 de la Ley General de la Administración Pública.

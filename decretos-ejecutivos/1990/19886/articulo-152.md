@@ -1,0 +1,3 @@
+Artículo 152.-La vigencia de los edictos que se publican como parte del trámite para la exportación de productos forestales, será de un mes que se contará a partir de la fecha en que la DGF otorgue el permiso correspondiente.
+El permiso también tendrá una vigencia de un mes. Vencido el plazo, el exportador podrá solicitar una prórroga demostrando fehacientemente, la imposibilidad de consumar la exportación por circunstancias ajenas a su voluntad la que no podrá ser superior a un mes; de no otorgársele la prórroga solicitada, deberá iniciar un nuevo trámite.
+Las oposiciones deben presentarse con tres copias; debiendo contener las razones que lo justifiquen y adjuntar los documentos correspondientes.

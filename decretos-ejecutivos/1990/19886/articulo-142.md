@@ -1,0 +1,3 @@
+Artículo 142.-Los propietarios de industrias forestales y particulares que adquieran otras materias primas a base de productos forestales, no contempladas en el artículo anterior, deberán cerciorarse de la existencia del permiso forestal respectivo si el producto se adquiere en su sitio de aprovechamiento.
+Cuando el producto se adquiera en tránsito o directamente en la industria, deberá exigir la presentación de documentos oficiales extendidos por la DGF, que respalden plenamente el transporte de esos productos forestales.
+En caso de duda el adquirente podrá consultarlo directamente a la DGF antes de proceder a la compra del producto. El incumplimiento a esta disposición será sancionada de acuerdo con lo dispuesto en el inciso c) del artículo 122 de la Ley.

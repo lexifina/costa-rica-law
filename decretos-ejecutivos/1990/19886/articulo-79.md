@@ -1,0 +1,1 @@
+Artículo 79.-Las personas naturales o jurídicas que requieren concesiones dentro del Patrimonio Forestal del Estado tendrán que demostrar las cantidades de materia prima a requerir con base en un aprovechamiento adecuado del recurso, presentando estudios o documentos que a criterio de la DGF demuestren esa necesidad.

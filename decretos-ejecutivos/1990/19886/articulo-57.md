@@ -1,0 +1,1 @@
+Artículo 57.-La DGF por medio del departamento respectivo definirá las áreas del Patrimonio Forestal del Estado en las cuales se otorgarán concesiones, permisos u otros para el aprovechamiento de recursos forestales, excepto las áreas administradas por la DGVS o el SPN.

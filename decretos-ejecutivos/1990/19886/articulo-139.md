@@ -1,0 +1,1 @@
+Artículo 139.-Para efectos del inciso a) del artículo 96 de la Ley, se entiende que una industria ha operado durante el último año, cuando ha funcionado al menos ciento ochenta días (jornada de 8 horas) durante el año. Podrá ser un período de tiempo menor cuando la DGF así lo considere.

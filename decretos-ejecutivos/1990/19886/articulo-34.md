@@ -1,0 +1,1 @@
+Artículo 34.-Solamente se contratará nuevo personal con cargo al fondo forestal si es estrictamente necesario, y para laborar en proyectos específicos, en cuyo caso una vez finalizado vencerán las contrataciones.

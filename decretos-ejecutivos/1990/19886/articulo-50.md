@@ -1,0 +1,1 @@
+Artículo 50.-Las directrices y prioridades para la administración de las áreas silvestres bajo la jurisdicción del MIRENEM, deberán ser definidas en forma anual por las direcciones competentes para ello.

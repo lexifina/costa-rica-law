@@ -1,0 +1,1 @@
+Artículo 38.-Si existiesen dos o más corporaciones o cooperativas, o escuelas forestales u organizaciones de profesionales en ciencias forestales, el representante ante el CFN, será elegido en una reunión que las entidades correspondientes celebrarán al efecto.

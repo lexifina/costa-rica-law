@@ -1,0 +1,1 @@
+2º.-A más tardar seis meses después de aprobado este reglamento, el MIRENEM a través de la DGF, establecerá un fideicomiso para financiar actividades de desarrollo forestal a realizar por el sector privado.

@@ -1,0 +1,1 @@
+Artículo 53.-Para el establecimiento de alguna de las áreas señaladas en el artículo 3º de la Ley que incluya parcial o totalmente a otra ya creada, deberán participar las direcciones competentes del MIRENEM.

@@ -1,0 +1,2 @@
+Artículo 126.-Para todos los efectos el ejecutor del proyecto de reforestación, será el responsable del cumplimiento del plan de manejo y sus modificaciones aprobado por la DGF, para lo cual deberá acatar las disposiciones técnicas emitidas por esta Dirección, además de las estipulaciones conferidas en la normativa vigente.
+En caso de que se realice venta de plantación sobre dicho proyecto, esto no disminuirá la responsabilidad del ejecutor, la cual será conjunta con el beneficiario de los incentivos a la reforestación.

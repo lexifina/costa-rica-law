@@ -1,0 +1,2 @@
+Artículo 167.-Los proyectos de investigación desarrollados de acuerdo con lo establecido en el artículo 21 de la Ley y 31 de este reglamento, deberán ser aprobados y supervisados por el Departamento de Investigaciones de la DGF, debiendo estar enmarcadas dentro de sus políticas o plan nacional de investigación forestal.
+Para la elaboración y seguimiento de dicho plan existirá un comité integrado por las instituciones públicas y privadas relacionadas con las investigaciones forestales del país.

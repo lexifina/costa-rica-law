@@ -1,0 +1,1 @@
+Artículo 146.-la información a que se refiere el artículo 100 de la Ley, estará sujeta a comprobación por parte de funcionarios autorizados de la DGF para lo cual el informante debe prestar toda la colaboración y la documentación requerida.

@@ -1,0 +1,1 @@
+Artículo 130.-Los interesados en disfrutar del CAF para desarrollar proyectos de regeneración natural deberán someter al Régimen Forestal su propiedad para la cual deberán cumplir con los requisitos establecidos en el artículo 84 de este reglamento, presentar la solicitud y plan de manejo correspondiente.

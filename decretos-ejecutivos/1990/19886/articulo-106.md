@@ -1,0 +1,1 @@
+Artículo 106.-La persona que desee acogerse a los beneficios citados en el artículo anterior, deben cumplir, además de lo establecido en el artículo 84 del presente reglamento, con la presentación de la solicitud y plan de manejo correspondiente ante la DGF, lo cual se hará en el período que la DGF fijará administrativamente.

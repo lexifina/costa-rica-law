@@ -1,0 +1,1 @@
+Artículo 54.-La DGF hará una delimitación preliminar de las áreas señaladas en el artículo 35 de la Ley, que se encuentren bajo su administración, en los puntos más accesibles y transitados, a través de rótulos.

@@ -1,0 +1,1 @@
+Artículo 29.-La DGF debe establecer los mecanismos necesarios a través de unidades de control de aserraderos y puestos de control forestal permanentes y volantes, para impedir evasión del impuesto general forestales establecidos en el artículo 20 de la Ley.

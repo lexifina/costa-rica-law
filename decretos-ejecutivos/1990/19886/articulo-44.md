@@ -1,0 +1,1 @@
+Artículo 44.-No se podrá celebrar la reunión, si transcurridos treinta minutos después de la hora señalada en la convocatoria, no existe el quórum requerido. Las resoluciones del CFN, serán tomadas por mayoría de votos, en caso de empate el Presidente tendrá doble voto.

@@ -1,0 +1,1 @@
+Artículo 128.-Atendiendo a razones de carácter técnico, legales y en resguardo del interés público que debe prevalecer sobre el particular, podrá la administración, modificar o rescindir los contratos de reforestación que estime procedente.

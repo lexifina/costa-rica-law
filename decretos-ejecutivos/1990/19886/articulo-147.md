@@ -1,0 +1,1 @@
+Artículo 147.-La DGF determinará por vía administrativa la forma de medir los distintos productos forestales, que así requieran las normas de clasificación y garantía para su comercialización interna y de exportación, y lo pondrá en conocimiento de los interesados por los medios de comunicación colectiva.

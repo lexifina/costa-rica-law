@@ -1,0 +1,1 @@
+Artículo 125.-Las recomendaciones técnicas que emita la DGF, deberán acatarse dentro del plazo que se señale al efecto. De comprobarse lo contrario, se rescindirá el contrato de reforestación sin responsabilidad alguna para la administración.

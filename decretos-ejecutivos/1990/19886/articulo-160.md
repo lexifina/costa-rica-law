@@ -1,0 +1,1 @@
+Artículo 160.-Los madereros y transportistas de madera que operen en una región determinada, deberán de inscribirse en un registro especial que a tal efecto llevará la DGF. La citada Dirección fijará por vía administrativa los requisitos para la inscripción.

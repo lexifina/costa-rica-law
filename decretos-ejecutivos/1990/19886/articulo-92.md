@@ -1,0 +1,1 @@
+Artículo 92.-Los propietarios de bosques y terrenos forestales, declarados zonas protectoras por ley o decreto ejecutivo, que deseen ejecutar labores agropecuarias o de aprovechamiento en esos terrenos, deberán presentar el respectivo plan técnico de manejo forestal, que será analizado por la DGF, salvo en los casos y con sujeción a otras normas técnicas que determine la DGF.

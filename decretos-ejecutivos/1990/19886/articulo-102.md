@@ -1,0 +1,1 @@
+Artículo 102.-El CAF podrá hacerse efectivo a partir de la fecha de su emisión y caducará a los dos años. En caso de que la fecha de caducidad correspondiere a un día inhábil, se tendrá como fecha de caducidad la del día hábil próximo siguiente.

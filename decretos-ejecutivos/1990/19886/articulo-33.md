@@ -1,0 +1,1 @@
+Artículo 33.-Los recursos del fondo forestal estarán formados además de los indicados por el artículo 22 de la Ley, por todos aquellos recursos que le sean asignados para llevar a cabo programas y proyectos dentro del marco de su competencia.

@@ -1,0 +1,1 @@
+Artículo 91.-Para los lagos, embalses naturales y artificiales, la zona protectora mínima será de cien metros a partir de su ribera. Las zonas protectoras de recarga acuífera a las que hace referencia el inciso 4) del artículo 68 de la Ley, serán determinadas en forma conjunta con la institución correspondiente y la DGF.

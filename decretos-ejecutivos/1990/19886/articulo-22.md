@@ -1,0 +1,1 @@
+Artículo 22.-Los funcionarios de la DGF, deberán presentar ante la autoridad judicial competente, conjuntamente con la denuncia por infracción a la Ley, al avalúo de la madera u otros productos forestales decomisados, para efectos de lo establecido en el artículo 15 de la Ley. En vía administrativa se definirá el sistema para la valoración de la madera.

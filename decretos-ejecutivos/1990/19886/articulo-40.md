@@ -1,0 +1,1 @@
+Artículo 40.-En caso de que el representante de una de las entidades representadas en el CFN, no pueda asistir a las reuniones, la autoridad respectiva deberá comunicarlo al Director General Forestal, indicándole el nombre del sustituto que fungirá mientras dure su ausencia. Para el nombramiento del sustituto se seguirá el mismo procedimiento que para el titular.

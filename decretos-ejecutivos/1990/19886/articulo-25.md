@@ -1,0 +1,1 @@
+Artículo 25.-Para efectos de lo establecido en el artículo 20 de la Ley, la DGF establecerá en vía administrativa, los requisitos que previamente se deberán de cumplir para gozar de la exoneración del pago del impuesto general forestal, contemplado para aquellas plantaciones forestales establecidas con recursos propios.

@@ -1,0 +1,1 @@
+Artículo 159.-Para efectos del artículo 106 de la Ley, la DGF fijará por vía administrativa los productos forestales que requieren de autorización para ser transportados igualmente establecerá anualmente los requisitos y documentos requeridos para el transporte de materia prima y productos forestales.

@@ -1,0 +1,1 @@
+Artículo 43.-En caso de no haber quórum se convocará a una nueva reunión para celebrarla tres días hábiles después. Esta segunda reunión podrá celebrarse con la presencia de por lo menos cuatro de los miembros del CFN.

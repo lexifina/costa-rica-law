@@ -1,0 +1,2 @@
+Artículo 96.-Los interesados en realizar quemas en bosques y terrenos forestales, deberán presentar una solicitud por escrito a la DGF en la que establezca, el objetivo de realizar la quema y el área que se va a afectar. Esta solicitud deberá ser acompañada por la respectiva documentación, que acredite la propiedad o posesión decenal sobre el terreno.
+La DGF previa inspección e informe técnico positivo autorizará la quema y fijarán las condiciones en que la misma debe realizarse.

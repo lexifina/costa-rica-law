@@ -1,0 +1,3 @@
+Artículo 119.-La DGF le dará preferencia a los planes de manejo cuyo objetivo principal sea la producción de madera para aserrío.
+En el caso que fueran presentados estudios para su conocimiento y eventual aprobación, que tengan como fin otros usos, la decisión definitiva la adoptará dicha Dirección teniendo en cuenta las directrices y prioridades determinadas en su política forestal y una vez realizados los estudios correspondientes que se definirán en forma anual.
+En todo caso, no se permitirá la inscripción al Régimen Forestal de terrenos menores de una hectárea, de proyectos de reforestación cuyo objetivo principal sea la recreación, ni de aquellas en que se desarrollen plantaciones de árboles frutales.

@@ -1,0 +1,1 @@
+Artículo 94.-A fin de prevenir los incendios forestales la DGF realizará campañas preventivas y dará capacitación a grupos locales y regionales. Las acciones que la citada Dirección establezca, serán vinculantes para todas las autoridades del país.

@@ -1,0 +1,3 @@
+TITULO SEXTO
+De la capacitación e investigación
+Artículo 166.-La DGF establecerá un plan de capacitación y educación conforme con las necesidades de la institución que será revisado y evaluado periódicamente, así como un método sistemático que permita igualdad de oportunidades a los funcionarios de similar especialidad y función, para ser elegibles y gozar de los beneficios que otorga este artículo. Este debe ser el procedimiento previo al trámite de la comisión de becas del MIRENEM, conforme con las disposiciones del reglamento de dicha comsión. Además se establecerá un procedimiento interno de seguimiento y evaluación de dicha capacitación y entrenamiento.

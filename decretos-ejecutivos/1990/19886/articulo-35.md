@@ -1,0 +1,1 @@
+Artículo 35.-Lo relativo a la operación de la cuenta del fondo forestal, se regirá por lo establecido en un reglamento interno de operación que emitirá la DGF con la aprobación de la Contraloría General de la República.

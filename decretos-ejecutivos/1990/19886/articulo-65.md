@@ -1,0 +1,1 @@
+Artículo 65.-Para inscribirse en el libro de registro que lleva la DGF, los profesionales interesados, deberán presentar a la Unidad de Información su solicitud, acompañada de certificaciones de estudio y del Colegio Profesional en el cual se encuentran colegiados.

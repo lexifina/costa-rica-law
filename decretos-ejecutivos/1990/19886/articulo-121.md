@@ -1,0 +1,1 @@
+Artículo 121.-Para la actualización anual de costos de reforestación, la DGF determinará oportunamente el mecanismo que servirá de base para establecer el monto de dichos incentivos, para los años siguientes.
