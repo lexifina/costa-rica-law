@@ -8,4 +8,6 @@ f) Exención del pago del cincuenta por ciento de los impuestos de aduana sobre 
 g) Derecho a contratar preferentemente con el Estado, en igualdad de condiciones, para la venta, adquisición o distribución de productos o prestación de servicios que sean requeridos por aquél o cualquiera de sus instituciones;
 h) Derecho a administrar los servicios de distribución de energía, fábricas y talleres que formen parte del patrimonio del Estado; e
 i) Prioridad para el arrendamiento de tierras de propiedad del Estado frente a cualquier persona jurídica o natural, siempre que la cooperativa disponga de la capacidad adecuada para desarrollar el plan de operaciones.
+j) Derecho a obtener del Instituto Nacional de Seguros, al costo, las pólizas que dicha Institución extiende, pero exclusivamente a través de Uniones, Federaciones o de la Confederación Nacional de Cooperativas, que la presente ley autoriza.
+(Así adicionado el inciso anterior por el artículo 4° de la ley N° 4542 del 16 de marzo de 1970)
 Los asociados de las cooperativas estarán obligados sólo a pagar el cincuenta por ciento del impuesto sobre la renta, durante un término de diez años, a partir de la fecha en que se constituya la asociación, sobre los ingresos que provengan de la actividad cooperativa, o del interés invertido en ellas, ya sea en certificados de aportación o en cuotas de inversión.
