@@ -1,0 +1,9 @@
+Articulo 4°—Participación en el sorteo La Rueda de la Fortuna : Se aplica el reglamento para el sorteo de La Rueda de la fortuna publicado en La Gaceta N ° 168 del 1° de setiembre del 2000 y las disposiciones siguientes:
+Cuatro participantes seleccionados de las personas que enviaron un sobre que contenga seis boletos sin premio, del Juego N° 58 denominado "Es Hora de Ganar". Cada uno de los seis boletos debe consignar en forma clara y legible el nombre y apellidos, así como el número de cédula de identidad de participante, sin alteraciones que hayan dudar de su legitimidad o autenticidad. El sobre debe ser tipo carta de color blanco. La falta de alguno de estos requisitos es suficiente para dejar sin electo la participación.
+Dos participantes seleccionados de los asistentes a la sala estudio.
+Las personas que deseen asistir a la sala estudio deben obtener su entrada, contra la presentación de diez boletos sin premio, correspondientes al Juego N° 58.
+Un participante que se escogerá vía telefónica, el cual se selecciona de la siguiente manera:
+Tomando como base la guía telefónica correspondiente al año 2001, se selecciona un número telefónico al azar y se marca. Cuando la llamada es contestada el animador, después del saludo correspondiente pregunta:
+"¿Usted raspa?", la persona debe contestar: "Raspa Raspa".
+Si la respuesta es correcta, la persona queda seleccionada para participar en el sorteo de la próxima semana, si la respuesta es incorrecta se vuelve a escoger otro número telefónico hasta un máximo de tres amadas durante el programa.
+Adicionalmente, en cada sorteo participan cuatro personas en promedio, portadoras cada una de un bolero del Juego N° 58, en cuya área de juego aparece la palabra "Raspa" y que previamente se hayan apersonado en la Junta de Protección Social de San José, para efectos de convalidar su participación.
