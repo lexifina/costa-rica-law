@@ -1,0 +1,1 @@
+Artículo 12.—Las sesiones de la Junta Directiva del Consejo serán presididas por el (la) Viceministro (a) de Juventud, y en caso de ausencia de éste (a) por el (la) Directora (a) Ejecutivo (a). Si hay quórum y no se encuentra el(la ) Presidente o el (la) Directora(a) Ejecutivo(a), los miembros presentes designarán un Presidente ad-hoc únicamente para la sesión correspondiente.

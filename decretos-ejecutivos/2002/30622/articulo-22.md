@@ -1,0 +1,1 @@
+Artículo 22.—De los votos negativos y abstenciones: Los miembros de la Junta Directiva del Consejo deberán hacer constar en el acta su voto negativo o abstención al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que en su caso pudiesen derivarse de esos acuerdos.

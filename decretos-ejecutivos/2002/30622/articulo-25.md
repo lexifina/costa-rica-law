@@ -1,0 +1,1 @@
+Artículo 25.—Para las representaciones al país en las actividades nacionales e internacionales relacionadas con las personas jóvenes, el(la) Viceministro(a) de Juventud junto con la Dirección Ejecutiva diseñaran los mecanismos de participación y selección.

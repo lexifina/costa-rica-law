@@ -1,0 +1,1 @@
+Artículo 23.—De la impugnación de los Actos de la Junta Directiva del Consejo: Todo acuerdo, resolución, disposición o acto administrativo que en el cumplimiento de sus funciones realice el Consejo, podrá ser impugnado de conformidad con la Ley.

@@ -1,0 +1,1 @@
+Artículo 19.—Prohibiciones: Cualquier miembro de la Junta Directiva del Consejo, deberá inhibirse de estar presente en una sesión cuando tenga interés personal, directo o indirecto, o de parientes suyos hasta un tercer grado de afinidad o consanguinidad, sobre un asunto en particular, durante el tiempo en que se discuta y se realice la votación del mismo.

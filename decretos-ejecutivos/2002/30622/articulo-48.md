@@ -1,0 +1,1 @@
+Artículo 48.—Actas. Concluida la Asamblea de la Red se levantará un acta que contendrá la indicación de los representantes asistentes, así como las circunstancias de las votaciones que se realicen y el contenido de los acuerdos; sin perjuicio de los representantes que no estén de acuerdo con lo adoptado, razonen por escrito su voto contrario.

@@ -1,0 +1,1 @@
+Artículo 46.—La Asamblea de la Red conocerá la propuesta de política pública de persona joven, remitida por el Consejo para ser sometida a votación por los (as) integrantes de dicha Asamblea. En caso de no aprobarse la propuesta, el Presidente remitirá las recomendaciones a la Dirección Ejecutiva del Consejo para la incorporación de las mismas.

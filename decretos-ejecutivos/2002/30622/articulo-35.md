@@ -1,0 +1,1 @@
+Artículo 35.—Prohibiciones del Auditor (a): No podrá ser Auditor(a) Interno(a) el que tenga algún impedimento legal, o sea pariente hasta tercer grado por consanguinidad o afinidad de alguna persona integrante de la Junta Directiva, del Director(a) Ejecutivo(a) del Consejo o de los(as) coordinadores(as) de área.

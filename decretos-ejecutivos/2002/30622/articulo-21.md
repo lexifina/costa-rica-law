@@ -1,0 +1,3 @@
+Artículo 21.—De las Actas y los Acuerdos: De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se han celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
+Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes, acuerden su firmeza por votación de dos tercios de los miembros presentes.
+Las actas serán firmadas por el (la) Presidente (a) y el (la) Secretario (a) de la Junta Directiva y por aquellos(as) que hubieren hecho constar su voto negativo.

@@ -1,0 +1,1 @@
+Artículo 43.—La designación de las personas jóvenes representantes a la Asamblea de la Red se hará respetando la condición de género, debiendo cada una de las organizaciones señaladas en la Ley, garantizar al menos el 40% de representación de la mujer en la misma.

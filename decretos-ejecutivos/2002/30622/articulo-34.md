@@ -1,0 +1,1 @@
+Artículo 34.—Requisitos del Auditor (a) Interno (a): el auditor (a) interno (a) deberá ser costarricense, de reconocida experiencia en su campo, con título en Contaduría Pública e incorporado al Colegio Profesional respectivo.

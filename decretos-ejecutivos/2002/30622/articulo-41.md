@@ -1,0 +1,1 @@
+Artículo 41.—El Consejo informará y convocará a las diferentes organizaciones sobre el proceso de conformación de la Asamblea de la Red. Dicha convocatoria será en forma escrita, mediante Publicación en un diario de circulación nacional, con al menos diez días hábiles de anticipación, indicando los requisitos y condiciones de participación.

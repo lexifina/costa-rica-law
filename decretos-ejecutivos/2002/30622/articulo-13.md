@@ -1,0 +1,1 @@
+Artículo 13.—La Junta Directiva del Consejo, nombrará entre sus integrantes, un (a) Secretario (a) de Actas, que además de las atribuciones establecidas en este Reglamento, se regirá por lo que dispone la Ley General de Administración Pública. La designación del mismo será por un periodo de cuatro años.

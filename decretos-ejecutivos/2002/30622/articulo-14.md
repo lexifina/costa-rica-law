@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones de la Junta Directiva del Consejo se regirán por la legislación vigente y dicho órgano estará facultado para elaborar y poner en vigencia, mediante acuerdo de al menos dos tercios de sus integrantes, su propio reglamento de sesiones y debates.

@@ -1,0 +1,1 @@
+Artículo 31.—Unidad de Promoción a la Participación. Es la unidad encargada de elaborar estrategias, instrumentos y mecanismos para promover la participación de las personas jóvenes a nivel de la sociedad civil y de las instituciones del Estado.

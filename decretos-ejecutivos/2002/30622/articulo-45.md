@@ -1,0 +1,1 @@
+Artículo 45.—Del quórum. El quórum para que la Asamblea de la Red se constituya válidamente en primera convocatoria será de mayoría simple de los representantes señalados en el artículo 27 de la Ley. Si no hubiere quórum, la Asamblea podrá reunirse en segunda convocatoria treinta minutos después de la hora señalada para la primera convocatoria, con los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 9º—Sobre la Naturaleza Jurídica. El Consejo como órgano de desconcentración máxima, adscrito al Ministerio de Cultura, Juventud y Deportes y con personalidad jurídica instrumental, contará para su funcionamiento con una Junta Directiva, Dirección Ejecutiva, Subdirección Ejecutiva y el personal necesario para cumplir con sus funciones.

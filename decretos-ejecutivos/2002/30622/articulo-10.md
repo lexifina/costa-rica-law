@@ -1,0 +1,1 @@
+Artículo 10.—Sobre el domicilio del Consejo. El domicilio legal del Consejo es la ciudad de San José, sin perjuicio de que pueda establecer oficinas o comisiones interinstitucionales de enlace regional en los lugares y regiones que estime conveniente.

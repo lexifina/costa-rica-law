@@ -1,0 +1,1 @@
+Artículo 36.—Contratación de Auditorías Externas: La administración del Consejo, cuando lo considere necesario en razón de la naturaleza de los asuntos a auditar, podrá contratar auditorías externas que estarán a cargo de un (a) Auditor (a) o firma de auditores profesionales.

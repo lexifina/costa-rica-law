@@ -1,0 +1,1 @@
+Artículo 52.—Las Municipalidades contarán con apoyo, asesoría, coordinación y capacitación por parte del Consejo el cual fomentará, promoverá la constitución y fortalecimiento de los Comités Cantonales de Juventud; además de la formulación, ejecución de propuestas, proyectos locales y nacionales, de acuerdo a sus necesidades y dentro del ámbito de la Ley .

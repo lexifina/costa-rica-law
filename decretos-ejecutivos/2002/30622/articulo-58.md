@@ -1,0 +1,1 @@
+Artículo 58.—En el ejercicio de su poder disciplinario sobre el personal del Consejo, el (la) Director (a) Ejecutivo (a) podrá delegar en un órgano director del proceso, unipersonal o colegiado, la investigación de los hechos sancionables.

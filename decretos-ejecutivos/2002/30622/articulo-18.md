@@ -1,0 +1,3 @@
+Artículo 18.—De la privacidad de las sesiones de la Junta Directiva del Consejo. Participación de terceros:
+Las sesiones de la Junta Directiva del Consejo serán siempre privadas, pero podrá disponerse, por mayoría simple de los miembros presentes, que tenga acceso a ellas el público en general, o los (as) servidores (as) del Consejo, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+No podrá ser objeto de acuerdo, ningún asunto que no figure en el orden del día, salvo que por acuerdo de la mayoría de las(os) miembros presentes sea declarada la urgencia del asunto.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la Auditoría Interna
+Artículo 32.—Definición y marco normativo: La Auditoría Interna del Consejo es el órgano auxiliar de la Junta Directiva encargado del proceso de auditoría en la institución que comprende la verificación del cumplimiento de las normas de control legal, económico, contable y financiero de las operaciones de la institución. Se regirá por las Normas Internacionales de Auditoría, las Normas Internacionales de Contabilidad, la Ley Orgánica de la Contraloría de la República (Ley Nº 7428), el Manual para el Ejercicio de la Auditoría Interna y demás normas técnicas emitidas por el mismo Órgano Contralor, La Ley General de la Persona Joven (Ley No.8261) y el presente Reglamento, así como por el Reglamento de la Auditoría Interna del Consejo.
