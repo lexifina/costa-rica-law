@@ -1,0 +1,2 @@
+Artículo 2°.- Este empréstito podrá garantizarse hasta con la totalidad de las rentas con que actualmente cuenta la Corporación. La Contraloría General de la República no aprobará los presupuestos de la Municipalidad de Poás, si no aparecen consignadas en ellos las sumas necesarias para atender la cancelación de las obligaciones que esta ley autoriza.
+Casa Presidencial.- San José, a los veintitrés días del mes de junio de mil novecientos sesenta y cinco.
