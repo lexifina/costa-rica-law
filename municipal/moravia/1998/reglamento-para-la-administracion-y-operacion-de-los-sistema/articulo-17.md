@@ -1,0 +1,1 @@
+Artículo 17.—Las zonas o espacios para estacionamientos permanentes serán autorizados únicamente para el uso de empresas o establecimientos comerciales, industria o de servicios podrán adjudicarse a uno o varios adjudicatarios, por el total o determinado periodo de horas correspondiente al día, conforme con el interés de los solicitantes o la conveniencia Municipal.

@@ -1,0 +1,1 @@
+Articulo 4°—A cada zona de estacionamiento autorizado se le demarcará claramente el arca dentro de la cual deberán estacionarse los vehículos, las que no podrán ser menores de cinco metros ni mayores de siete metros de largo por dos metros de ancho.

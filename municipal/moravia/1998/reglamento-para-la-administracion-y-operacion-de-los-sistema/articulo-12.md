@@ -1,0 +1,2 @@
+Artículo 12. —El gravamen a que se refiere el articulo anterior se anotará y cancelará mediante oficio que enviará la Tesorería Municipal o la Sección de Estacionamiento autorizada al registro público de la propiedad de vehículo.
+La cancelación total de estas multas será requisito indispensable para retirar los derechos de circulación cada año a las cuales se acompañarán los correspondientes comprobantes de infracción.

@@ -1,0 +1,1 @@
+Artículo 3°—Para la aplicación de este reglamento queda autorizado el horario de lunes a sábado de cada semana entre las seis y las dieciocho horas, exceptuando de este reglamento los días domingos, feriados por ley y de tiesta nacional.

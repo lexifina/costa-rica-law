@@ -1,0 +1,1 @@
+Artículo 23.—Los adjudicatarios de espacios estarán obligados por su cuenta a demarcar con pintura blanca los espacios adjudicados conforme con las indicaciones de la sección de estacionamientos autorizados a vigilar y controlar el uso de los espacios adjudicados y colocar en sitio visible de su estacionamiento la nota o recibo de adjudicación emitido por la Municipalidad.

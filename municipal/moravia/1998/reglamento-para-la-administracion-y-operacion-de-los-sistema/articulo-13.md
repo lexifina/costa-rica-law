@@ -1,0 +1,1 @@
+Artículo 13.— La Municipalidad de Moravia por medio de inspectores cuidará de que se cumpla con el pago de la tasa establecida en este reglamento y reportará los vehículos que infrinjan la Ley y en caso necesario el jefe de la sección pasará el asunto a la Agencia de Tránsito respectiva.

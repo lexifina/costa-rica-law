@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos del cobro de esta tasa se divide el cantón de Moravia en zona céntrica y zona no céntrica, se denomina zona céntrica la ubicada en el distrito de San Vicente, cinco cuadrantes a cada punto cardinal del parque central.

@@ -1,0 +1,1 @@
+Artículo 21.—El jefe de la sección una vez estudiada la solicitud la remitirá con el informe correspondiente a la dependencia autorizada a efecto de que imparta su aprobación con base en los estudios efectuados.

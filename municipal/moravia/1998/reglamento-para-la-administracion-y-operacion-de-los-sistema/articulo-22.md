@@ -1,0 +1,1 @@
+Artículo 22.—Para la adjudicación y arrendamiento de espacios en las zonas no reguladas por algún sistema de los que establece este reglamento denominadas zonas no céntricas, se lomará en cuenta el criterio técnico del Ministerio de Obras Públicas y Transpones.
