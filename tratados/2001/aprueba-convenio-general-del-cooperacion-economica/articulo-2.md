@@ -1,0 +1,6 @@
+Artículo II
+Con el objeto de promover la cooperación entre las Partes Contratantes, organizarán sobre una base estable y consideran su aspecto global, créase una Comisión Mixta Costarricense-Haitiana, la cual estará encargada de estudiar los planes y proyectos específicos de cooperación.
+Entre todos los sectores incluidos en el presente Convenio y de proponer los acuerdos derivados que al respecto ella estime conveniente.
+Dicha Comisión Mixta estará compuesta por representantes del Gobierno de la República de Costa Rica y del Gobierno de la República de Haití y en ella podrán participar representantes de organismos multilaterales de financiamiento, así como terceros países con participantes en los proyectos o programas a establecer.
+Ella tendrá la responsabilidad de organizar y preparar los trabajos y se reunirá bianualmente en sesión ordinaria alternativamente en San José y Puerto Príncipe. Podrá, igualmente, reunirse en sesiones extraordinarias si una de las Partes Contratantes así lo solicitase.
+No obstante lo anterior, las Partes convienen en seguir consultándose, a todos los niveles, sobre todos los aspectos relacionados con el desarrollo de la cooperación en los campos económicos, comercial, científico, técnico, social, turístico y cultural.
