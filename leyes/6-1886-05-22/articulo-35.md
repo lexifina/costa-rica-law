@@ -1,0 +1,2 @@
+Artículo XXXV
+Cada uno de los Gobiernos contratantes se obliga á comunicar al otro las sentencias condenatorias por el crimen ó delito de cualquier naturaleza, pronunciadas por los Tribunales de un Estado contra ciudadanos del otro. Esta comunicación se hará mediante el envío, por la vía diplomática, de la sentencia pronunciada y ejecutoriada al Gobierno respectivo, para que se deposite en el archivo del territorio competente.
