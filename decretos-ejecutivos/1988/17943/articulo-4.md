@@ -1,1 +1,0 @@
-Artículo 4°.-Las exenciones se otorgarán individualmente para cada unidad de la flota inscrita, o bien por cada titular de la concesión o permiso, si se trata de una nueva unidad o vehículo, y los montos que no se utilizaren en un mismo año no podrán acumularse para el disfrute posterior, rigiendo los periodos anuales como principio tributario aplicable a la materia.
