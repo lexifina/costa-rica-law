@@ -1,6 +1,7 @@
-Ley Nº 7383
+LEY Nº 7383
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
+REFORMA A LA LEY ORGÁNICA DE LA JURISDICCIÓN TUTELAR DE MENORES, N° 3260 del 21 DE DICIEMBRE DE 1963 Y SUS REFORMAS
 Artículo 1º.- Modifícase la Ley Orgánica de la Jurisdicción Tutelar de Menores No.3260 del 21 de diciembre de 1963, cuyo texto dirá:
 "TÍTULO I
 Disposiciones Generales
@@ -189,12 +190,3 @@ Artículo 75.- En caso de que el menor cumpla dieciocho años durante la instruc
 CAPÍTULO VI
 Disposiciones supletorias
 Artículo 76.- A la Jurisdicción Tutelar de Menores le será aplicables, supletoriamente y en lo que concierna, las prescripciones del Código de Procedimientos Penales de la Ley Orgámnica del Poder Judicial y del Código de Familia, en cuanto no contraríen las disposiciones y los principios de la presente Ley."
-Artículo 2º- Refórmase el artículo 17 del Código Penal, cuyo texto dirá:
-"Artículo 17. - Este Código se aplicará a las personas de dieciocho años cumplidos."
-Artículo 3º - Derógase el artículo 99 del Código Penal.
-Artículo 4º - Elimínase la frase final del artículo 271 del Código de Procedimientos Penales, que dice: "salvo que sea menor de 17 años".
-Artículo 5º - Refórmase el artículo 48 del Código de Procedimientos Penales, cuyo texto dirá:
-"Artículo 48.- Si el imputado es sometido a la medida prevista en el artículo 296, sus derechos de parte serán ejercidos por el curador, si no lo tiene,
-por su defensor o a falta de éste, por un defensor público."
-Artículo 6º - Rige a partir de su publicación.
-TRANSITORIO ÚNICO: El centro de internación especial, al que se refiere esta Ley, debe empezar a funcionar en un plazo máximo de un año, contado a partir de su vigencia; dependerá del juzgado Tuelar de Menores y su funcionamiento se programará de acuerdo con las necesidades del servicio.

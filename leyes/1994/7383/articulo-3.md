@@ -1,1 +1,1 @@
-Artículo 3.- Derógase el artículo 99 del Código Penal.
+Artículo 3º - Derógase el artículo 99 del Código Penal.
