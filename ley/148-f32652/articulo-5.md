@@ -1,0 +1,5 @@
+Artículo 5º.- En los casos de fallecimiento de los funcionarios o empleados a que se refiere esta ley, se observarán las siguientes reglas:
+a) Si devengaba sueldo al tiempo de la muerte, y había servido más de diez años, pero menos de treinta, la viuda, las hijas mientras permanezcan solteras, los hijos hasta los dieciocho años, los impedidos o incapaces durante toda su vida y la madre cuando vivía a expensas del fallecido, tendrán derecho al 50% de la pensión que le hubiera correspondido a éste;
+b) Si estaba jubilado, su viuda y los parientes mencionados en el inciso anterior, tendrán derecho a seguir percibiendo el 50% de la pensión que recibía el fallecido; y
+c) Si al tiempo de la muerte ya tenía el derecho de ser jubilado pero no lo había sido, su viuda y los parientes a que se refieren los dos incisos anteriores podrá reclamar en el 50% la pensión que le habría correspondido a su deudo.
+Es condición indispensable para la viuda, que al tiempo del fallecimiento de su marido no hubiere entre él y ella ni separación judicial, ni separación de hecho, ni demanda de divorcio ni nulidad de matrimonio.

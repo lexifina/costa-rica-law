@@ -1,0 +1,2 @@
+Artículo 13.- Las disposiciones de esta ley se aplicarán también a los funcionarios y empleados del Congreso Constitucional y a los del Centro de Control, en cuanto a los servicios prestados en esas dependencias o por servicios anteriores en otras funciones. En estos casos, será atribución del Directorio del Congreso su conocimiento definitivo.
+Casa Presidencial.-San José, a los veintitrés de agosto de mil novecientos cuarenta y tres.
