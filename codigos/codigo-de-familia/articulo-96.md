@@ -1,4 +1,5 @@
-ARTICULO 96.- Cuando el Tribunal acoja la acción de declaración de
-paternidad podrá en la sentencia condenar al padre o reembolsar a la madre
-según principios de equidad, los gastos de maternidad y los alimentos del
-hijo durante los tres meses que han seguido al nacimiento.
+"Artículo 96.—Declaración de paternidad y reembolso de gastos a favor de la madre. Cuando el Tribunal acoja la declaración de paternidad, este podrá condenar en la sentencia al padre a reembolsarle a la madre, según los principios de equidad, los gastos de embarazo y maternidad de la hija o el hijo durante los doce meses posteriores al nacimiento. Estos rubros tendrán un plazo de prescripción de diez años.
+En todo caso, declarada la paternidad, la obligación alimentaria del padre respecto de la hija o el hijo se retrotraerá a la fecha de presentación de la demanda y se liquidará en el proceso alimentario correspondiente, mediante el trámite de ejecución de sentencia.
+Cuando la declaración de paternidad se realice mediante el trámite administrativo ante el Registro Civil, el reembolso de los gastos aludidos en el párrafo primero se tramitará en el proceso alimentario correspondiente.
+Para asegurar el pago de pensiones retroactivas, el órgano jurisdiccional competente en materia de alimentos, al dar curso al proceso, decretará embargo de bienes contra el demandado, por un monto prudencial que cubra los derechos de las personas beneficiarias. Dicho embargo no requerirá depósito previo ni garantía de ningún tipo."
+(Así reformado por el artículo 3 de la Ley N° 8101 de 16 de abril del 2001)
