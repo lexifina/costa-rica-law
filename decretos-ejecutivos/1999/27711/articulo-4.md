@@ -1,0 +1,1 @@
+Artículo 4°—Corresponderá al Ministerio de Relaciones Exteriores y Culto todo lo referente a la representación del Estado y será el enlace ante la Organización para la Prohibición de las Armas Químicas en La Haya, Países Bajos.
