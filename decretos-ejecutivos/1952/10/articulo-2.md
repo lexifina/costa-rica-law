@@ -1,0 +1,1 @@
+Artículo 2°—Dentro de la zona de reserva a que se refiere el artículo anterior se hará la demarcación de uno o varios lotes con una superficie total de 10.000 hectáreas, las cuales serán inscritas en el Registro de la Propiedad a nombre del Estado con el objeto de que en tales terrenos se instale la Colonia a que se refiere el contrato citado.

@@ -1,0 +1,6 @@
+N° 10
+EL PRESIDENTE CONSTITUCIONAL DE LA REPUBLICA,
+Con fundamento en la ley N° 18 de 26 de setiembre de 1927 y en cumplimiento de la obligación establecida en el inciso primero de la cláusula segunda del contrato suscrito entre el Ministerio de Agricultura e Industrias y. el señor Vito Sansonetti Clarini, y el cual fue aprobado por ley N° 1316 de 13 de julio de 1951,
+Decreta:
+Artículo 1°—Decláranse indenunciables las tierras baldías que queden incluidas en la zona que comprende la siguiente demarcación: partiendo de la fluencia de los ríos Negro y Sabalito, aguas abajo, hasta llegar al río Coto Brus; siguiendo luego, siempre aguas abajo, por este río, hasta llegar a su confluencia con el río Guácimo. De este punto aguas arriba sobre la margen del brazo más occidental del río Guácimo hasta donde éste cruza el trazado de la Carretera Interamericana; de ahí una recta astronómica hasta el Cerro de las Cruces; de este punto una recta astronómica hasta encontrar los nacimientos de la quebrada Jaba y de aquí una recta astronómica hasta la confluencia de los ríos Sabalito y Negro.
+Para cualquier interpretación de la descripción anterior se declara oficial; el plano preparado al efecto por el Ministerio de Agricultura.
