@@ -1,0 +1,2 @@
+Art. 4° -Los dueños de almacenes de licores fuertes extranjeros y los de vinaterías, deberán pasar á la Secretaría de Hacienda, dentro del término un inventario de las existencias que tengan dichos licores fuertes extranjeros.
+-Dado en San José, en el Palacio Nacional, á los veintiocho dias del mes de mayo de mil ochocientos setenta y ocho. -T. GUARDIA, -El Secretario de Estado en el Despacho de Hacienda y Comercio, -SALVADOR LARA.
