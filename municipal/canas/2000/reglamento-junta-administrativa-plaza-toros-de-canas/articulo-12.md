@@ -1,0 +1,1 @@
+Artículo 12.—Al adjudicarse la plaza de toros, la Junta Administrativa procederá a entregar los activos al responsable del grupo o institución solicitante, y una vez terminada la actividad se procederá a realizar un inventario de los mismos.

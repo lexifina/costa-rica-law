@@ -1,0 +1,1 @@
+Artículo 2º—Dicha plaza será administrada por una Junta Administrativa, integrada por cinco miembros escogidos por el Concejo Municipal. Durarán en sus cargos por un periodo de dos años pudiendo ser reelectos.

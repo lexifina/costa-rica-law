@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Administrativa tendrá derecho de un 15% hasta un 20% de los ingresos brutos de Fiestas Cívicas, Ferias, Mini Ferias, Turnos y cualquier otra actividad que se realice en la plaza de toros, (comprendiéndose como un todo las instalaciones del redondel y la plazoleta adjunta.)
