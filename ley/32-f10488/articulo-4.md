@@ -1,0 +1,1 @@
+Art.4°—El Oficial Mayor del Registro custodiará los recibos que expida el Tesorero en conformidad con el párrafo 4° del artículo 2° de esta ley, y abrirá en sus libros una cuenta por las cantidades de esos recibos.

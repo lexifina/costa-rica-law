@@ -1,0 +1,2 @@
+Art.8°—El Registrador General y los Registradores de partido, al efectuar cualquiera operación que devengue derechos conforme á arancel, reservarán la tasación hecha por la autoridad que haya expedido el documento, anotando su conformidad ó la diferencia si la hubiere, en pro ó en contra del interesado para cobrarla ó devolverla conforme se establece en esta ley.
+Las diferencias entre el Tesorero y los Registradores de Partidos, serán resueltas por el Registrador General.
