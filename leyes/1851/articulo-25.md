@@ -1,0 +1,1 @@
+Artículo 25.- Ninguna empresa de ferrocarril podrá oponerse a que sus líneas sean cruzadas a nivel o en cualquier forma, por otras vías férreas, por canales o por caminos, siempre que la obra se haga por cuenta del interesado y técnicamente.

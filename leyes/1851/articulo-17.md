@@ -1,0 +1,2 @@
+Artículo 17.- Los detalles de caminos vecinales se pagarán en la Tesorería Municipal respectiva, la que acreditará las sumas recaudadas en cuenta especial a cada camino o sección del mismo conforme se hubiere formulado el detalle.
+La Tesorería Municipal pagará planillas, sueldos y cualquier otra obligación a cargo de la Junta Cantonal de Caminos mediante órdenes firmadas por el Presidente y el Secretario de dicha Junta.

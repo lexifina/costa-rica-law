@@ -1,0 +1,1 @@
+Artículo 45.-Esta ley es de orden público y deroga la Ley General de Caminos Públicos Nº 1338 de 29 de agosto de 1951, la Ley que derogó el Detalle de Caminos, Nº 1561 de 6 de mayo de 1953, y cualquiera otra ley que se le oponga, exceptuando el Decreto-Ley Nº 578 de 6 de julio de 1949 sobre Pavimentación del Cantón Central de San José.

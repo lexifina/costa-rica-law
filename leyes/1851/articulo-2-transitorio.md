@@ -1,0 +1,1 @@
+Transitorio II.- El nombramiento de las Juntas de Caminos de acuerdo con la presente ley, se hará por las respectivas Municipalidades y el Ministerio de Obras Públicas, dentro de los treinta días siguientes a su promulgación.
