@@ -1,0 +1,1 @@
+Artículo 13-El jornal de los penados en obras nacionales, de corporaciones públicas ó de particulares será convencional; pero en ningún caso será inferior al que según lo establecido antes deben pagar las Municipalidades.
