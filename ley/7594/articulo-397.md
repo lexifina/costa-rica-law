@@ -1,11 +1,3 @@
-ARTICULO 397.- Autorización de la prosecución del proceso
-Si la Asamblea Legislativa autoriza la prosecución del proceso, los
-detenidos, si existen, serán puestos a la orden de la Sala Penal de la
-Corte Suprema de Justicia, a la cual le corresponde juzgar a las personas
-a que se refiere este Título. Esa Sala deberá pronunciarse, dentro de las
-veinticuatro horas siguientes a la recepción del expediente, si mantiene
-la prisión preventiva o la sustituye por alguna de las restantes medidas
-cautelares.
-En todo caso, una vez autorizado el juzgamiento por la Asamblea
-Legislativa, la Sala Penal podrá decretar cualquiera de las medidas
-cautelares, si lo estima procedente.
+ARTICULO 397.-
+Autorización de la prosecución del proceso Si la Asamblea Legislativa autoriza la prosecución del proceso, los detenidos, si existen, serán puestos a la orden de la Sala Penal de la Corte Suprema de Justicia, a la cual le corresponde juzgar a las personas a que se refiere este Título. Esa Sala deberá pronunciarse, dentro de las veinticuatro horas siguientes a la recepción del expediente, si mantiene la prisión preventiva o la sustituye por alguna de las restantes medidas cautelares.
+En todo caso, una vez autorizado el juzgamiento por la Asamblea Legislativa, la Sala Penal podrá decretar cualquiera de las medidas cautelares, si lo estima procedente.

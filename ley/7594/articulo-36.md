@@ -1,25 +1,10 @@
-ARTICULO 36.- Conciliación
-En las faltas o contravenciones, en los delitos de acción privada, de
-acción pública a instancia privada y los que admitan la suspensión
-condicional de la pena, procederá la conciliación entre víctima e
-imputado, en cualquier momento hasta antes de acordarse la apertura a
-juicio.
-En esos casos, si las partes no lo han propuesto con anterioridad, en
-el momento procesal oportuno, el tribunal procurará que manifiesten cuáles
-son las condiciones en que aceptarían conciliarse.
-Para facilitar el acuerdo de las partes, el tribunal podrá solicitar
-el asesoramiento y el auxilio de personas o entidades especializadas para
-procurar acuerdos entre las partes en conflicto, o instar a los
-interesados para que designen un amigable componedor. Los conciliadores
-deberán guardar secreto sobre lo que conozcan en las deliberaciones y
-discusiones de las partes.
-Cuando se produzca la conciliación, el tribunal homologará los
-acuerdos y declarará extinguida la acción penal.
-El tribunal no aprobará la conciliación cuando tenga fundados motivos
-para estimar que alguno de los intervinientes no está en condiciones de
-igualdad para negociar o ha actuado bajo coacción o amenaza.
-No obstante lo dispuesto antes, en los delitos de carácter sexual, en
-los cometidos en perjuicio de menores de edad y en las agresiones
-domésticas, el tribunal no debe procurar la conciliación entre las partes
-ni debe convocar a una audiencia con ese propósito, salvo cuando lo
-soliciten en forma expresa la víctima o sus representantes legales.
+Artículo 36.-
+Conciliación. En las faltas o contravenciones, en los delitos de acción privada, de acción pública a instancia privada y los que admitan la suspensión condicional de la pena, procederá la conciliación entre víctima e imputado, en cualquier momento hasta antes de acordarse la apertura a juicio. También procederá en los asuntos por delitos sancionados, exclusivamente, con penas no privativas de libertad, siempre que concurran los demás requisitos exigidos por esta ley.
+En esos casos, si las partes no lo han propuesto con anterioridad, en el momento procesal oportuno, el tribunal procurará que manifiesten cuáles son las condiciones en que aceptarían conciliarse.
+Para facilitar el acuerdo de las partes, el tribunal podrá solicitar el asesoramiento y el auxilio de personas o entidades especializadas para procurar acuerdos entre las partes en conflicto, o instar a los interesados para que designen un amigable componedor. Los conciliadores deberán guardar secreto sobre lo que conozcan en las deliberaciones y discusiones de las partes.
+Cuando se produzca la conciliación, el tribunal homologará los acuerdos y declarará extinguida la acción penal. Sin embargo, la extinción de la acción penal tendrá efectos a partir del momento en que el imputado cumpla con todas las obligaciones contraídas. Para tal propósito podrá fijarse un plazo máximo de un año, durante el cual se suspende la prescripción de la acción penal.
+Si el imputado no cumpliere, sin justa causa las obligaciones pactadas en la conciliación, el procedimiento continuará como si no se hubiere conciliado.
+En caso de incumplimiento por causa justificada, las partes podrán prorrogar el plazo hasta por seis meses más. Si la víctima no aceptare prorrogar el plazo, o se extinguiere este sin que el imputado cumpla la obligación aún por justa causa, el proceso continuará su marcha sin que puedan aplicarse de nuevo las normas sobre la conciliación.
+El tribunal no aprobará la conciliación cuando tenga fundados motivos para estimar que alguno de los que intervengan no está en condiciones de igualdad para negociar o ha actuado bajo coacción o amenaza.
+No obstante lo dispuesto antes, en los delitos de carácter sexual, en los cometidos en perjuicio de menores de edad y en las agresiones domésticas, el tribunal no debe procurar la conciliación entre las partes ni debe convocar a una audiencia con ese propósito, salvo cuando lo soliciten en forma expresa la víctima o sus representantes legales.
+(Así reformado por el artículo 15 de la Ley de Reorganización Judicial No.7728 de 15 de diciembre de 1997)
