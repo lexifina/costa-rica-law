@@ -1,0 +1,1 @@
+Artículo 11.—Escalamiento tarifario para otros funcionarios. Se podrá reconocer la tarifa de la columna II de la tabla indicada en el artículo 8°, a aquellos funcionarios ubicados en la columna III de la misma tabla, cuando coincidan en el desarrollo de una determinada misión oficial con un miembro o funcionario perteneciente a la categoría II.

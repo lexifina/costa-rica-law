@@ -1,0 +1,1 @@
+Artículo 9º—Tarifas en el exterior del país. La suma diaria que reconocerá el Colegio Federado por concepto de viáticos en el exterior será para sufragar gastos de hospedaje, alimentación y otros gastos menores por lavado y planchado de ropa y traslados dentro de la ciudad.

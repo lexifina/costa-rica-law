@@ -1,0 +1,1 @@
+Artículo 2º—Marco normativo. Los gastos en que incurran los miembros y funcionarios que deban viajar fuera del país, en cumplimiento de misiones oficiales, estarán sujetos a las disposiciones del presente, así como a las disposiciones contenidas en la "Ley Orgánica, Reglamentos y Procedimientos" en el reglamento especial para el envío de misiones al exterior.
