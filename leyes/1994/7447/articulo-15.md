@@ -12,15 +12,18 @@ a incluir el bien en el registro que se mencionará posteriormente. Con
 base en esta declaración, se determinará si el bien debe pagar o no el
 recargo al impuesto selectivo de consumo que se indica en el párrafo
 siguiente.
-Mediante decreto, el MIRENEM especificará el registro de marcas y
-modelos con las características particulares de los equipos que no
-requerirán la declaración jurada para ser desalmacenados. En este
-registro, clasificará los equipos según su eficiencia energética,
-indicando claramente cuáles poseen una eficiencia en concordancia con la
-lista mencionada en el artículo 13 y cuáles no cumplen con esa
-eficiencia. A estos últimos, se les incrementará el impuesto selectivo
-de consumo, en un treinta por ciento adicional sobre la tarifa
-establecida en la Ley No. 4961, del 10 de marzo de 1972 y sus reformas.
+Mediante decreto, el Ministerio de Recursos Naturales, Energía y
+Minas especificará el registro de marcas y modelos con las
+características particulares de los equipos que no requerirán la
+declaración jurada para ser desalmacenados. En este registro, clasificará
+los equipos según su eficiencia energética e indicará claramente cuáles
+poseen eficiencia acorde con la lista mencionada en el artículo 13 de
+esta ley y cuáles no cumplen con esa eficiencia. A estos últimos, se les
+incrementará el impuesto selectivo de consumo, en treinta puntos
+porcentuales adicionales a la tarifa establecida en la Ley No. 4961, del
+10 de marzo de 1972 y sus reformas.
+(Así reformado por el artículo 7 de la Ley de Ajuste Tributario
+No.7543 del 14 de setiembre de 1995)
 Si el importador no dispone de la información requerida para la
 declaración jurada o no puede completarla, el MIRENEM podrá autorizarle,
 por una única vez, el ingreso de los bienes siempre y cuando se trate

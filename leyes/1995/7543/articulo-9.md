@@ -1,0 +1,2 @@
+Artículo 9.- Se modifica el inciso a) del artículo 59 del Código de Normas y Procedimientos Tributarios, modificado en el artículo 1 de la Ley de Justicia Tributaria, No. 7535, del 31 de julio de 1995, cuyo texto dirá:
+"a) Los garantizados con derecho real, salvo cuando existiere, anotado o inscrito en el respectivo Registro Público, un gravamen o medida cautelar, decretado para garantizar el pago de los tributos adeudados o en discusión, según el caso, a la fecha de inscripción de la correspondiente garantía real."

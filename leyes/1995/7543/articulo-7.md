@@ -1,0 +1,8 @@
+Artículo 7.- Se reforman los artículos 14 y 15 párrafo segundo, de la Ley de Regulación del uso racional de la energía, No. 7447, del 13 de noviembre(*) de 1994, cuyos textos dirán:
+"Artículo 14.- Sanción impositiva.
+Se incrementará el impuesto selectivo de consumo en treinta puntos porcentuales adicionales a la tarifa establecida en la Ley de Reforma Tributaria, No. 4961, del 10 de marzo de 1972 y sus reformas, al equipo, la maquinaria o los vehículos fabricados o ensamblados sin cumplir con las directrices y las características señaladas por el Ministerio de Recursos Naturales, Energía y Minas.
+Artículo 15.- Registro de bienes.
+...
+Mediante decreto, el Ministerio de Recursos Naturales, Energía y Minas especificará el registro de marcas y modelos con las características particulares de los equipos que no requerirán la declaración jurada para ser desalmacenados. En este registro, clasificará los equipos según su eficiencia energética e indicará claramente cuáles poseen eficiencia acorde con la lista mencionada en el artículo 13 de esta ley y cuáles no cumplen con esa eficiencia. A estos últimos, se les incrementará el impuesto selectivo de consumo, en treinta puntos porcentuales adicionales a la tarifa establecida en la Ley No. 4961, del 10 de marzo de 1972 y sus reformas. ..."
+FE DE ERRATAS: publicada en Gaceta Nº 204 de 27 de octubre de 1995, corrigendo el texto del artículo 7º de la siguiente manera:
+ARTICULO 7.- Se reforman los artículos 14 y 15 párrafo segundo, de la Ley de Regulación del uso racional de la energía, No. 7447, del 13 de diciembre de 1994, cuyos textos dirán: ...
