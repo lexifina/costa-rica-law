@@ -1,0 +1,1 @@
+Artículo 19.- Al amparo del inciso II del artículo 146 del Código Municipal, los empleados de esta institución pueden escoger la carrera que deseen cursar. No obstante, los aportes de la beca que eventualmente se les otorgue, se regirán por lo dispuesto en el artículo 7 de este Reglamento.

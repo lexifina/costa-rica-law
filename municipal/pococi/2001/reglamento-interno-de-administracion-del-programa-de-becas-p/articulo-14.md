@@ -1,0 +1,1 @@
+Artículo 14. La Junta comunicará por escrito a los interesados, los movimientos de inclusión, exclusión o suspensión del programa, a más tardar cinco días hábiles después de que tome el correspondiente acuerdo, indicando el número de sesión, fecha y articulo correspondiente.

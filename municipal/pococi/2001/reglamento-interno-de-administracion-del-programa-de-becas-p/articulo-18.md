@@ -1,0 +1,1 @@
+Artículo 18.—Ni los empleados que se encuentren en el período de prueba que menciona el articulo 133 del Código Municipal, ni los empleados casuales, ni los contratados a plazo determinado podrán acogerse al beneficio de beca.

@@ -1,0 +1,1 @@
+Artículo 24.—La violación a los articules 30 ó 31 de este Reglamento será reportada de inmediato por la Comisión Evaluadora al Departamento de Auditoria de la Contraloría General de la República, para lo que corresponda. De no hacerlo la Comisión, esta acción podrá ser tomada por el Sindicato.

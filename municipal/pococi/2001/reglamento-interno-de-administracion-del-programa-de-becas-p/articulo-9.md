@@ -1,0 +1,1 @@
+Artículo 9°- Los becarios entregarán al Secretario de la Junta Evaluadora una Certificación extendida por el correspondiente centro de enseñanza, de las notas obtenidas por él en cada uno de los cuatrimestres o semestres cursados.
