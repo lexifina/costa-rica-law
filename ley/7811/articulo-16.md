@@ -1,0 +1,3 @@
+Artículo 16.- Verificación de las declaraciones juradas
+Cuando la Municipalidad dude de la veracidad de la declaración jurada, podrá exigir a las personas físicas o jurídicas, declarantes o no del impuesto sobre la renta, una certificación sobre el volumen de la renta neta, extendida por un contador público autorizado.
+Si se encuentra que efectivamente existen inexactitudes, la Municipalidad podrá determinar, de oficio, el impuesto.
