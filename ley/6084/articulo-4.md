@@ -1,4 +1,3 @@
-Artículo 4º.- En el Ministerio de Agricultura y Ganadería funcionará,
-junto al Servicio de Parques Nacionales, un consejo como organismo asesor
-del Poder Ejecutivo en lo referente a la política de creación, desarrollo
-y conservación de parques nacionales.
+ARTICULO 4º.- En el Ministerio de Agricultura y Ganadería funcionará, junto al Servicio de Parques Nacionales, un consejo como organismo asesor del Poder Ejecutivo en lo referente a la política de creación, desarrollo y conservación de parques nacionales.
+(Reformado por Ley Orgánica del Ministerio de Energía y Ambiente Nº 7152 de 5 de junio de 1990, al trasladar competencias aquí indicadas del MAG al Ministerio de Ambiente y Energía(*))
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)
