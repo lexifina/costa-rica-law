@@ -14,3 +14,4 @@ Reforma Reglamento Otorgamiento Créditosen el Seguro de Invalidez Vejez Muerte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-08 | la propia norma |
+| 2 | 2000-06-08 | Ley 8 |
