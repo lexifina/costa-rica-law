@@ -29,3 +29,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 14 | 1989-02-23 | Decreto Ejecutivo 18899 (1989-02-23) |
 | 15 | 1989-09-11 | SINALEVI (sin norma nombrada) |
 | 16 | 1990-04-30 | Decreto Ejecutivo 19715 (1990-04-30) |
+| 17 | 1990-10-22 | SINALEVI (sin norma nombrada) |
