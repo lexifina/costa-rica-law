@@ -1,1 +1,0 @@
-Artículo 2º.- El nuevo organismo se denominará Comisión Nacional Coordinadora Contra el Uso no Autorizado de Drogas y gozará de personalidad jurídica propia. Tendrá sus propias finanzas que se formarán con los fondos que reciba de fuentes nacionales e internacionales. El manejo de estos fondos se hará bajo la vigilancia y control de la Contraloría General de la República.
