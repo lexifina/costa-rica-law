@@ -14,3 +14,4 @@ Reglamento a la Ley de Desarrollo Social y Asignaciones Familiares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-01 | la propia norma |
+| 2 | 1982-04-29 | Decreto Ejecutivo 13576 (1982-04-29) |

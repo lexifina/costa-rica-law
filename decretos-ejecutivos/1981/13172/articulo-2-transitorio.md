@@ -1,1 +1,2 @@
-Transitorio II.-El Ministro de Trabajo y Seguridad Social, queda facultado para establecer un período de transición a fin de realizar los ajustes y cambios necesarios para la aplicación del presente reglamento, para lo cual discrecionalmente podrá poner en vigor la organización que por este reglamento se determina, así como la aplicación parcial o total de sus normas en un plazo no mayor de seis meses a partir de esa fecha.
+Transitorio II.-El Ministro de Trabajo y Seguridad Social tomará las providencias del caso para que la totalidad de las normas contenidas en el presente Reglamento surtan efecto en un plazo de seis meses.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 13576 del 29 de abril de 1982)
