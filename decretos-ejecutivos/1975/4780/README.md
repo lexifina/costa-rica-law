@@ -15,3 +15,4 @@ Impuesto por Caja o Envase de Banano de 40 libras a Exportar
 | 1 | 1975-04-26 | la propia norma |
 | 2 | 1975-04-26 | SINALEVI (sin norma nombrada) |
 | 3 | 2002-10-25 | Decreto Ejecutivo 30841 (2002-10-25) |
+| 4 | 2004-09-07 | Decreto Ejecutivo 32067 (2004-09-07) |
