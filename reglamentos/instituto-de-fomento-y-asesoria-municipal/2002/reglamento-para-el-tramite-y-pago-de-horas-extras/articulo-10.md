@@ -1,0 +1,1 @@
+Artículo 10.—El reporte de horas extras debe presentarse en la Sección de Recursos Humanos, dentro de los cuatro días hábiles posteriores al mes en que se trabajó el tiempo extraordinario. Después de ese plazo no se tramitará ningún pago por horas extras.
