@@ -1,0 +1,1 @@
+Artículo 14.-Los puestos de venta de poca importancia, para el expendio de víveres o provisiones y cuyo arrendamiento se haya venido haciendo por día de feria o por semana o por quincena, serán arrendados por día de feria, por semana o por quincena, por los precios que fije la Municipalidad o la Comisión de Sanidad, de tiempo en tiempo, cuando lo estime conveniente.
