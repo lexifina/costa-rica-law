@@ -1,0 +1,1 @@
+Artículo 8º—Indemnizaciones y compensaciones económicas. En los casos en que se determine la necesidad de conservar áreas de un terreno, podrá hacerse la declaratoria mediante decreto ejecutivo conforme a los procedimientos establecidos en la ley Nº 7555. Podrá iniciarse el proceso de expropiación o actuar al tenor de lo establecido en el artículo 9 de la ley Nº 7555.

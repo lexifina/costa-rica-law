@@ -1,0 +1,1 @@
+Artículo 14.—Excavaciones en reservas indígenas. Las excavaciones arqueológicas de cualquier índole en reservas indígenas solo pueden realizarse con la autorización de la Comisión Nacional de Asuntos Indígenas y el visto bueno de la CAN.

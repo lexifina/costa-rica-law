@@ -1,0 +1,4 @@
+CAPÍTULO III
+Trámites voluntarios
+Artículo 9º—Trámites de estudios arqueológicos voluntarios. Cualquier proyectista público o privado, que previo a la realización de sus obras, desee realizar un estudio arqueológico del terreno en que va a realizar la obra y que no haya sido muy alterado anteriormente, podrá contratar a cualquier persona debidamente autorizada y registrada ante la CAN para la realización de todas o cualquiera de las etapas de un estudio arqueológico. Podrá contratar los estudios para determinar la existencia de evidencia cultural en el área por alterar o el potencial daño al patrimonio arqueológico con el propósito de implementar las medidas preventivas que eviten o reduzcan dichos daños.
+Igualmente y de forma voluntaria, el interesado podrá contratar cualquier persona debidamente autorizada y registrada ante la CAN para la supervisión de los movimientos de tierras.

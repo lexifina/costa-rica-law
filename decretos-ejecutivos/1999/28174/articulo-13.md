@@ -1,0 +1,1 @@
+Artículo 13.—Investigaciones arqueológicas con fines académicos. Para la realización de investigaciones arqueológicas en áreas específicas con fines académicos, deberá cumplirse con los mismos procedimientos y requisitos establecidos en los artículos 11 y 12. No obstante, podrá presentarse una propuesta integral para todas las etapas.

@@ -1,0 +1,1 @@
+Artículo 7º—De las excavaciones. Las excavaciones para evaluación o rescate podrán ser realizadas por las personas acreditadas y registradas en la Comisión Arqueológica Nacional (CAN), bajo la supervisión del Museo Nacional de Costa Rica.

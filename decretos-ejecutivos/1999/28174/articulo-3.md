@@ -1,0 +1,2 @@
+Artículo 3º—Casos en que procede el rescate arqueológico. La etapa de rescate arqueológico únicamente procederá en aquellos casos en que se descubran rasgos culturales, estructuras arquitectónicas o sitios arqueológicos de importancia definidos en el artículo anterior, que merezcan ser registrados, analizados, o excavados.
+Todos los bienes patrimoniales hallados en los estudios arqueológicos, deberán ser entregados al Museo Nacional, el cual se encargará de los trámites respectivos de almacenaje y registro y sin costo alguno para el interesado.

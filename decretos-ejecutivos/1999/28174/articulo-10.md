@@ -1,0 +1,2 @@
+Artículo 10.—Inspección arqueológica. Para determinar si existe evidencia cultural en el área del proyecto, el proyectista, público o privado, podrá contratar para la realización de las inspecciones, a cualquier persona autorizada y registrada en la CAN para realizar estudios arqueológicos.
+Como no se trata de excavación, la inspección no requerirá presentación de una propuesta ante la CAN ni de la remisión de un informe final.
