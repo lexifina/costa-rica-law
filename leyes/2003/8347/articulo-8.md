@@ -1,0 +1,1 @@
+Artículo 8º—Para las presentaciones de las unidades técnicas especializadas, las sedes serán el Teatro Nacional y el Teatro Popular Melico Salazar. También se considerarán sedes los otros teatros, auditorios y espacios que la Junta Directiva determine cuando se requieran.

@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios de los diferentes programas del Ministerio de Cultura, Juventud y Deportes que, por efecto de esta Ley, se transforman en unidades técnicas especializadas del Centro, conservarán todos los derechos de jubilación y pensión al amparo de las leyes y los regímenes especiales de pensión para los cuales han cotizado anteriormente.

@@ -1,0 +1,2 @@
+Artículo 14.—Los funcionarios de los diferentes programas del Ministerio de Cultura, Juventud y Deportes que, por efecto de esta Ley, se transforman en unidades técnicas especializadas del Centro, conservarán todos sus derechos, garantías y condiciones laborales adquiridos al amparo de leyes preexistentes, especialmente del Código de Trabajo y del Estatuto de Servicio Civil.
+El Ministerio de Cultura, Juventud y Deportes asumirá y mantendrá las obligaciones de carácter obrero-patronal debidas a dichos funcionarios.
