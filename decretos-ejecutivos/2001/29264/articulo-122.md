@@ -1,0 +1,7 @@
+SECCIÓN II
+El procedimiento de consulta del artículo 119 del
+Código de Normas y Procedimientos Tributarios
+Artículo 122.—Consultas reguladas por el artículo 119 del Código de Normas y Procedimientos Tributarios. Quien tenga un interés personal y directo, puede consultar a la Administración Tributaria sobre la aplicación del derecho a su situación de hecho concreta y actual, en los términos del artículo 119 del Código de Normas y Procedimientos Tributarios. Para esos efectos, se entenderá que una situación de hecho es concreta cuando se individualiza en todas sus características particulares identificativas y es actual cuando se desarrolla o ocurre en el presente o cuando su inicio es inminente. En particular:
+i. No es admisible la consulta que versa sobre hechos o situaciones pasadas. Se entenderá que un hecho o situación es pasada cuando se refiera a hechos generadores de obligación tributaria cuyo plazo para declarar o para pagarla haya expirado.
+ii. Tratándose de una actividad o negocio en marcha, la existencia de hechos o situaciones pasadas no impedirá la consulta sobre hechos o situaciones futuras, aunque el punto a consultar se refiera a ambos tipos de situación. En tal caso, los efectos de la consulta sólo cubrirán los hechos o situaciones actuales o futuras.
+iii. Tratándose de una actividad o negocio en proyecto, la consulta será admisible si se demuestra razonablemente haber dado pasos claros hacia la iniciación de la actividad o negocio.

@@ -1,0 +1,1 @@
+Artículo 75.—Notificación al responsable solidario. La Administración Tributaria también podrá notificar al sujeto que, de acuerdo con la Ley, responda solidariamente junto a o en lugar del sujeto fiscalizado el traslado de cargos y observaciones de la obligación tributaria respecto de la que opere la responsabilidad solidaria.

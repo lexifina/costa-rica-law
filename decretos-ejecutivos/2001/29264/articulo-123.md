@@ -1,0 +1,1 @@
+Artículo 123.—Órgano competente para contestar las consultas. Corresponde al Director General de Tributación contestar las consultas que formulen los interesados al amparo de lo dispuesto por el 119 del Código de Normas y Procedimientos Tributarios. Para tales efectos, la División Normativa tramitará y analizará las consultas y elaborará el proyecto de contestación de las mismas.

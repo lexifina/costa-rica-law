@@ -1,0 +1,1 @@
+Artículo 34.—Deber de determinación y declaración jurada. Los contribuyentes y responsables deben efectuar la determinación mediante los formularios oficiales u otros medios que determine la Dirección General de Tributación. La información contenida en tales medios tendrá el carácter de declaración jurada y se presentará en el tiempo y condiciones que establezca la ley.

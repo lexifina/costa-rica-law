@@ -1,0 +1,8 @@
+Artículo 121.—Funciones de las Áreas Legales. Las Áreas legales de las Administraciones Tributarias territoriales, la Subgerencia Técnica y Jurídica de la Administración Territorial de San José y el Área Legal de Grandes Contribuyentes, tendrán las siguientes funciones, en concordancia con las establecidas en el Decreto Ejecutivo Nº 27146-H del 15 de julio de 1998:
+a) Ejecutar el plan anual correspondiente, de acuerdo con las directrices e instrucciones dictadas por la División Normativa.
+b) Preparar los proyectos de resolución de determinación de las obligaciones tributarias, y los recursos de revocatoria referidos a dichas determinaciones, de conformidad con los artículos 145, 146 y 147 del Código Tributario y 155 del Código Procesal Civil, indicando los recursos que caben contra ésta.
+c) Dar trámite a las apelaciones para ante el Tribunal Fiscal Administrativo, de las resoluciones a que se refiere el punto a) anterior.
+d) Elaborar los proyectos de resolución de imposición de sanciones administrativas, inspección o allanamiento de locales, y secuestro de documentos, de acuerdo con la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por la División Normativa.
+e) Atender las audiencias concedidas por las distintas instancias en casos de su competencia.
+f) Preparar los proyectos de denuncia que se remitan al Ministerio Público para que se inicie la aplicación de sanciones penales, de acuerdo con la normativa aplicable y con los criterios interpretativos y los procedimientos dictados por las División Normativa.
+g) Dar trámite a las solicitudes de devolución de tributos administrados por la Dirección General de Tributación, preparando los respectivos proyectos de resolución.

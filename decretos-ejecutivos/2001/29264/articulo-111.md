@@ -1,0 +1,1 @@
+Artículo 111.—Firma de certificados de adeudo. Los Gerentes de las Administraciones Tributarias Territoriales y el de la Administración de Grandes Contribuyentes, emitirán y firmarán los certificados de adeudo de los sujetos pasivos, a que se refiere el artículo 169 del Código de Normas y Procedimientos Tributarios.

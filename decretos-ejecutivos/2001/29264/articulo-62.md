@@ -1,0 +1,1 @@
+Artículo 62.—Medidas cautelares. En cualquier momento en el desarrollo de las actuaciones, los funcionarios de Fiscalización podrán adoptar las medidas cautelares para la inspección de locales o el secuestro de información de trascendencia tributaria, de conformidad con lo establecido en el Capítulo III de este Reglamento.

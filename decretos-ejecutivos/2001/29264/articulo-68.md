@@ -1,0 +1,1 @@
+Artículo 68.—Iniciación de las demás actuaciones fiscalizadoras. Para iniciar las actuaciones fiscalizadoras establecidas en los incisos b) y c) del artículo 58, de obtención de información y de valoración, bastará con una comunicación escrita por parte del órgano competente.

@@ -1,0 +1,2 @@
+Artículo 20.—Prueba mediante documentos oficiales. Los contribuyentes podrán invocar como prueba, documentos expedidos por la Admistración Tributaria, siempre que se identifiquen plenamente, bastando con indicar la oficina donde se encuentren. El contribuyente podrá también aportar copia certificada del documento o certificación que compruebe su existencia.
+La certificación expedida por funcionario público en ejercicio de su función tendrá el mismo valor probatorio que la copia auténtica del documento.

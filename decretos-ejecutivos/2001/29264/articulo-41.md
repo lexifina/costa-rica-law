@@ -1,0 +1,1 @@
+Artículo 41.—Presentación de la información. Las personas obligadas a brindar información podrán presentarla en medios magnéticos, electrónicos o en forma impresa, de conformidad con la Resolución General respectiva.

@@ -1,0 +1,4 @@
+Artículo 10.—Horario de las actuaciones de comprobación e investigación. Cuando los funcionarios de la Administración Tributaria realicen actuaciones de comprobación e investigación con el contribuyente o frente a terceros en sus dependencias o en otras oficinas públicas, lo harán normalmente en horas hábiles.
+Si fuera necesario extender las labores más allá de las horas hábiles, deberá efectuarse previamente la habilitación respectiva. Dicha habilitación podrá realizarse mediante resolución de carácter general dictada en forma previa a la realización de las actuaciones.
+La habilitación no implicará en ningún caso reducción de plazos ni anticipación de términos en perjuicio del administrado.
+Cuando los funcionarios actúen en los locales del contribuyente, responsable, declarante o de terceros, deberán laborar en la jornada de trabajo de éstos, sin perjuicio de que puede actuarse en horas fuera de la jornada de común acuerdo.

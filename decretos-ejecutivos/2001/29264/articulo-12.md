@@ -1,0 +1,1 @@
+Artículo 12.—Suspensión de las actuaciones. Iniciadas las actuaciones, éstas deberán continuarse hasta concluirlas, de conformidad con su naturaleza y carácter. Sólo podrán ser suspendidas cuando resulte conveniente a los intereses de la Administración Tributaria, caso en el cual deberá informarse oportunamente al interesado, indicándole el tiempo de la suspensión.

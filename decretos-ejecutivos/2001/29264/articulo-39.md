@@ -1,0 +1,1 @@
+Artículo 39.—Información de contribuyentes, responsables o declarantes. Las reglas de los artículos anteriores también serán aplicables a los contribuyentes, responsables o declarantes aunque no medien procedimientos de fiscalización, cuando así sea conveniente para la correcta gestión y aplicación de los tributos.

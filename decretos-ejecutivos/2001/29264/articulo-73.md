@@ -1,0 +1,1 @@
+Artículo 73.—Ilícitos tributarios. Cuando los funcionarios de Fiscalización determinen la existencia de acciones u omisiones que pudieran ser constitutivas de los ilícitos tributarios regulados en el Código de Normas y Procedimientos Tributarios, iniciarán el correspondiente procedimiento sancionador, de conformidad con el artículo 150 de dicho cuerpo legal.

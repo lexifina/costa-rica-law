@@ -1,0 +1,5 @@
+SECCIÓN III
+Recaudación administrativa y ejecutiva
+Artículo 115.—Consecuencias de la falta de pago. Ante la falta de pago por parte del contribuyente o responsable dentro de los términos legales correspondientes, las Administraciones Tributarias Territoriales y la Administración de Grandes Contribuyentes, le notificarán al deudor por los medios legales establecidos, los saldos adeudados, confiriéndole un plazo de 15 días para su cancelación. Vencido éste sin que se haya realizado el pago, cada Administración elaborará y trasladará el certificado de adeudo a la Oficina de Cobros, para que inicie la etapa de cobro ejecutivo de conformidad con lo establecido en los artículos 166 y siguientes del Código de Normas y Procedimientos Tributarios.
+La deuda al descubierto o no pagada por los obligados al pago, se incrementará con los intereses, recargos, honorarios y demás costas que en cada caso sean exigibles, independientemente de las sanciones administrativas aplicables.
+En tanto no se regionalize la función de cobro judicial, corresponderá la misma a la oficina de cobros de la Administración Tributaria de San José.

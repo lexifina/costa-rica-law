@@ -1,0 +1,1 @@
+Artículo 13.—Documentación de las actuaciones. En todo caso, el desarrollo de las tareas llevadas a cabo por los funcionarios de la Administración Tributaria deberá consignarse en un expediente administrativo, que será foliado en orden secuencial, con el fin de garantizar adecuadamente su conservación.

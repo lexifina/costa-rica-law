@@ -1,0 +1,7 @@
+CAPITULO III
+Disposiciones relativas a la función de gestión
+y atención al contribuyente
+SECCIÓN I
+Potestades y deberes de gestión y atención al contribuyente
+Artículo 26.—Función de Gestión. La Función de Gestión y Atención al Contribuyente tiene por objeto administrar las bases de información que constituyen el censo de contribuyentes, responsables o declarantes de los tributos cuyo control ejerce la Administración Tributaria, verificando el cumplimiento que éstos hagan de las obligaciones formales y materiales establecidas por la ley. Para tal efecto, la Administración Tributaria gozará de amplias facultades de control y de liquidación previa de las obligaciones tributarias, en los términos que establece la ley y que desarrolla el presente Reglamento o las resoluciones generales de la Dirección General.
+Corresponderá igualmente a la función de Gestión llevar a cabo las tareas de divulgación en materia tributaria, al igual que resolver las consultas que planteen los interesados de conformidad con los criterios provenientes de la División Normativa, siempre que no se trate de las consultas vinculantes a que se refiere el artículo 119 del Código de Normas y Procedimientos Tributarios. No obstante, por resolución general la Dirección General puede atribuir a los órganos encargados de la Función de Gestión la preparación de los borradores de este tipo de consultas cuando se trate de criterios reiterados y consolidados.

@@ -1,0 +1,4 @@
+Artículo 87.—Pago mediante cheque. Cuando los pagos se efectúen mediante cheque, éstos deberán reunir, además de los requisitos legales exigidos por la legislación mercantil, los siguientes:
+a) Ser nominativo a favor del Banco recaudador
+b) Expresar claramente el nombre o razón social del contribuyente o responsable cuya deuda cancela, su número de cédula, número telefónico, el impuesto que se cancela y, en su caso, los períodos fiscales.
+La entrega del cheque no liberará al deudor por el importe consignado sino hasta que éste se haga efectivo. La deuda tributaria no satisfecha por la emisión de un cheque cuyo pago se rechace continuará generando los intereses y sanciones de conformidad con la ley. En el convenio respectivo de servicios auxiliares, se establecerá el procedimiento a seguir en caso de libramiento de cheques sin fondos suficientes y cualquier otra irregularidad que impida hacerlo efectivo.

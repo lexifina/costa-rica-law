@@ -1,0 +1,3 @@
+Artículo 53.—Órganos encargados de la Fiscalización y su competencia. Las funciones y atribuciones propias de la función de Fiscalización, en el ámbito de la competencia de la Dirección General de Tributación, serán ejercidas por las siguientes oficinas:
+a) La División de Fiscalización, que en cumplimientos de sus tareas normativa, operativa, de planeación y control de gestión, tendrá competencia en todo el territorio nacional.
+b) Las Subgerencias o Areas de Fiscalización de las Administraciones Tributarias Territoriales y de Grandes Contribuyentes, que son las unidades encargadas de ejecutar, en el ámbito de su competencia, los planes y programas que para el cumplimiento de sus funciones tracen la Dirección General y la División de Fiscalización.

@@ -1,0 +1,7 @@
+Artículo 54.—Funciones de la División de Fiscalización. La División de Fiscalización tendrá las siguientes funciones, en concordancia con las establecidas en el Decreto Ejecutivo Nº 27146-H del 15 de julio de 1998 y conforme a las disposiciones de este Reglamento:
+a) Establecer, bajo los lineamientos de la Dirección General, el Plan Anual de Fiscalización
+b) Planear las actuaciones de fiscalización o inspección de la situación tributaria de los sujetos pasivos y demás obligados sin perjuicio de lo indicado en la letra e) del artículo 8 del precitado decreto.
+c) Dirigir, dar seguimiento y brindar apoyo técnico en la realización de las inspecciones o fiscalizaciones tributarias, impulsando las actuaciones de investigación.
+d) Captar, preparar y explotar información y estudios que posean trascendencia tributaria.
+e) Llevar a cabo directamente las inspecciones tributarias que resulten convenientes en desarrollo de programas de Fiscalización, o cuando resulte necesario avocar el conocimiento de investigaciones a cargo de una Subgerencia o Coordinación de Fiscalización.
+La información a que alude el presente artículo podrá obtenerse, en los términos y condiciones que establece la ley, de las entidades financieras, el Registro Mercantil, las bolsas de valores, las notarías y, en general, de los contribuyentes, responsables, declarantes o terceros que tengan en su poder información de trascendencia tributaria, de conformidad con lo establecido en el Capítulo III de este Reglamento.

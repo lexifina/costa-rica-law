@@ -1,0 +1,1 @@
+Artículo 57.—Programas especiales. El Plan de Fiscalización podrá contemplar el desarrollo de aquellos programas y actuaciones que, según recomendación de los Administradores Territoriales Tributarias y de Grandes Contribuyentes, resulte conveniente Ilevar a cabo para garantizar un adecuado control de la situación fiscal de los administrados.

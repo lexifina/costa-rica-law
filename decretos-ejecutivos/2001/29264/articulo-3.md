@@ -1,0 +1,1 @@
+Artículo 3º—Principios de justicia e imparcialidad administrativa. Los funcionarios de la Administración Tributaria aplicarán las leyes orientados por un espíritu de justicia, y bajo el principio de imparcialidad administrativa, de modo que no puede exigírsele al contribuyente más de aquello con lo que la propia ley ha querido que coadyuve al sostenimiento de las cargas públicas,
