@@ -1,0 +1,1 @@
+Artículo 16.—En los programas de atención diurna, en la modalidad de guarderías, la organización deberá contar con un expediente para cada niño, niña o adolescente, que contenga los requerimientos establecidos en las "Normas para la Habilitación de Centros de Atención Integral", de conformidad con la Ley Nº 8017.

@@ -1,0 +1,1 @@
+Artículo 13.—Todo programa de atención de niños, niñas y adolescentes a cargo de Organizaciones No Gubernamentales de estadía transitoria y/o diurna debe responder a un Plan Anual de Trabajo, debidamente revisado y avalado por la Secretaría Técnica de Protección del Patronato Nacional de la Infancia.

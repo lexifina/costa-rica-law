@@ -1,0 +1,1 @@
+Artículo 17.—Las organizaciones diurnas, en la modalidad de comedores, deberán garantizar que cada persona menor de edad atendida cuente con un expediente personal que contenga al menos la siguiente información: A- Ficha de identificación con foto. B- Ficha de valoración socioeconómico. C- Constancia de nacimiento. D- Valoración nutricional.

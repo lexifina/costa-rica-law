@@ -1,0 +1,1 @@
+Artículo 22.—Toda organización deberá mantener y exponer en lugar visible de sus instalaciones un menú de alimentos que disfrutarán las personas menores de edad a su cargo y que cumpla los estándares de calidad nutricional correspondiente a la edad y desarrollo de cada uno de ellas.

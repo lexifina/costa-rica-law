@@ -1,0 +1,1 @@
+Artículo 4º—Las Organizaciones No Gubernamentales de estadía transitorias y diurnas garantizarán igualmente y en forma oportuna la emisión de las conciliaciones bancarias de la cuenta corriente precitada, las cuales deben estar firmadas por el contador privado, y archivarse en orden cronológico.

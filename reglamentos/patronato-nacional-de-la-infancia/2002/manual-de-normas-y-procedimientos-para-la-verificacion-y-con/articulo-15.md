@@ -1,0 +1,1 @@
+Artículo 15.—La Organización No Gubernamental debe garantizar que todo niño, niña o adolescente bajo su protección, cuente con un expediente individual, conforme lo establece la Auditoría de Calidad para las alternativas de protección de estadía transitoria, actualizado cada seis meses.

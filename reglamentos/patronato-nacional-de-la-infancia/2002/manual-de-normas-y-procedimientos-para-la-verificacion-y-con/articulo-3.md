@@ -1,0 +1,1 @@
+Artículo 3º—Las Organizaciones No Gubernamentales de estadía transitorias y diurnas dispondrán así mismo de un control auxiliar para el manejo de la cuenta corriente que ha sido asignada a los recursos que transfiere el PANI. El mismo deberá llevarse en forma consecutiva por cheque emitido, así como el registro de los movimientos, débitos y créditos que afecten el saldo.

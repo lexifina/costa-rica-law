@@ -1,0 +1,1 @@
+Artículo 14.—Todas las Organizaciones No Gubernamentales de estadía transitoria y/o diurna aceptan los lineamientos técnicos que formule el PANI, aportando a su vez los propios criterios, experiencia y conocimiento, con el fin de garantizar el interés superior de las personas menores de edad atendidas en la alternativa de protección de que se trate.

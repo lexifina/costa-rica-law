@@ -1,0 +1,1 @@
+Artículo 29.—Cuando la persona menor de edad egresara del programa a cargo de la organización, y su cupo sea ocupado y sustituido inmediatamente por otro niño o niña, se reconocerá el pago como el de un mismo y único cupo, resultando improcedente el pago si posterior al egreso del menor, permaneciera vacante su cupo en el programa por más de tres días hábiles después del egreso.

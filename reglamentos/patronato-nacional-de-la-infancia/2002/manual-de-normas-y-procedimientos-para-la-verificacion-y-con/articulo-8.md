@@ -1,0 +1,1 @@
+Artículo 8º—Las Organizaciones No Gubernamentales de estadía transitorias y diurnas deberán contar con un expediente de todos los funcionarios (activos o pasivos) de la organización, donde se registre como mínimo: Nombre completo, cédula, nacionalidad, dirección, teléfono, cargo que desempeña, salario, fecha de ingreso, y fecha de egreso cuando corresponda.

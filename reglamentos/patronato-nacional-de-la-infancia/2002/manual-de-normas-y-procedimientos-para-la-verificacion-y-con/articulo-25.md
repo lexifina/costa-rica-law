@@ -1,0 +1,1 @@
+Artículo 26.—En el caso de ingresos directos de personas menores de edad en la organización, esta deberá acreditar para efectos de pago la ficha socioeconómico de la persona menor de edad y/o el informe social según corresponda, así como el listado de la población atendida, información que adquirirá el carácter de declaración jurada de quien la emite.
