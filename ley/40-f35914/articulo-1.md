@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 29 de la Ley Orgánica Procuraduría General de la República, N° 3848 del 10 de enero de 1967)
 Considerando:
 1º.- Que se hace indispensable reorganizar en debida forma los
 servicios que en la actualidad presta el Ministerio Público, sobre todo
