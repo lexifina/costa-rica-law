@@ -1,0 +1,1 @@
+Artículo 14°—La Junta Directiva establecerá las políticas a seguir en cuanto a la administración de los cementerios, procurando que los servicios brindados no ocasiones perjuicio económico para la Institución.

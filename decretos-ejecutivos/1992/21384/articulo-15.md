@@ -1,0 +1,1 @@
+Artículo 15°—La Junta Directiva, una vez conocido el informe de la Administración, podrá autorizar el traspaso de derechos de propiedades, siempre que estos cumplan los requisitos establecidos por el decreto N° 704 del siete de setiembre de 1949 y el Reglamento General de Cementerios con sus reformas.

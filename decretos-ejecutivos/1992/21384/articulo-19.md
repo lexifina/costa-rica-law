@@ -1,0 +1,1 @@
+Artículo 19.—Los asuntos no previstos en el presente Reglamento serán regulados por las disposiciones internas que dicte la Junta Directiva y conforme a la 1egislación vigente relativa al funcionamiento de cementerios.

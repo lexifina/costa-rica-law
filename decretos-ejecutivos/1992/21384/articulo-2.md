@@ -1,0 +1,1 @@
+Artículo 2°—La administración de los cementerios estará a cargo de un Administrador General de nombramiento de la Junta Directiva quien reportará el resultado de sus labores ores por conducto de la Dirección Ejecutiva.

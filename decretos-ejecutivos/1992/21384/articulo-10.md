@@ -1,0 +1,1 @@
+Artículo 10°—Para atender los gastos que demanda el cumplimiento de sus obligaciones relacionadas con los Cementerios, la Junta percibirá los derechos de sepultura, llamados Derechos de Tapa, así como el producto del arrendamiento de lotes de acuerdo con las tarifas que fije.

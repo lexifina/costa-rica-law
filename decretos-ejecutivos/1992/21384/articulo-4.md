@@ -1,0 +1,1 @@
+Artículo 4°—Las cuotas de mantenimiento que se llegaren a cobrar a los arrendatarios del Cementerio Metropolitano pasarán a constituir parte del Fondo de Cuido de ese Cementerio, las que se cobraren para los arrendatarios del Cementerio pasarán a formar parte de los ingresos del período presupuestario en que se registren.

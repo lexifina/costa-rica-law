@@ -1,0 +1,2 @@
+Artículo 11° —Las tarifas para el arriendo de propiedades en ambos cementerios serán ajustadas conforme aumente el costo de la vida y varíen los componentes que la determinan.
+Las propuestas de ajuste serán presentadas por la Administración a la Junta Directiva cada vez que se den aumentos sustanciales en el costo de la vida. El Departamento de Contabilidad deberá hacer revisiones periódicas a estas tarifas cuando menos una vez al año.

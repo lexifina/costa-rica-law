@@ -1,0 +1,1 @@
+Artículo 12°—Queda la Junta Directiva facultada para exonerar el pago por derechos de tapa v cualquier otra modalidad de cobro cuando razones excepcionales de indigencia, salubridad e interés público así lo justifiquen. En casos especiales de oportunidad la Dirección Ejecutiva podrá exonerar el pago indicado, con la posterior justificación ante la Junta Directiva.

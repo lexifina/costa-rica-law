@@ -1,0 +1,1 @@
+Artículo 17.—Únicamente se podrán exhumar restos humanos, cuando estos hayan cumplido cinco años después de su primera inhumación, ya sea por orden de autoridad competente, por disposición expresa de este Reglamento o cuando lo solicite cualquiera de los parientes a que se refiere el artículo 1° del decreto No 704 del 7 de setiembre de 1949 o por disposición general de ley.

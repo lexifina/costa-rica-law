@@ -1,0 +1,1 @@
+Artículo 16.—Los traspasos autorizados por la Junta, deberán constar en escritura pública, cuyo testimonio será presentado a la Administración para su debido registro. Los costos que demande el traspaso serán a cargo del interesado.
