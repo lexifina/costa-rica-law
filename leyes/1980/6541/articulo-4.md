@@ -1,0 +1,9 @@
+Artículo 4º.- El Consejo Superior de Educación es el órgano, encargado
+de la creación, supervisión y supresión de las carreras de educación
+superior parauniversitaria, tanto oficiales como particulares, así como de
+los planes de estudio, programas y perfiles de salida de los graduados, de
+acuerdo con los reglamentos que dicte, todo conforme al Plan Nacional de
+Desarrollo.
+El Consejo Superior de Educación, en un plazo no mayor de noventa
+días, deberá pronunciarse sobre las solicitudes de nuevas carreras,
+propuestas por los colegios universitarios.
