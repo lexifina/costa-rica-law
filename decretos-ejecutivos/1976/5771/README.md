@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios del Ministerio de Educación Pública
 | --- | --- | --- |
 | 1 | 1976-04-21 | la propia norma |
 | 2 | 1979-05-30 | Decreto Ejecutivo 10137 (1979-05-30) |
+| 3 | 1996-09-11 | Decreto Ejecutivo 25673 (1996-09-11) |
