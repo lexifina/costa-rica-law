@@ -1,0 +1,1 @@
+ARTÍCULO 167. Cuando se llenen todas las hojas destinadas a una letra, se continuar n los asientos relativos a ella, en otro tomo del mismo registro, y en las hojas destinadas a la misma letra; pero poniendo al lado de la letra escrita en el último folio, que ocupe en el tomo anterior, una nota que diga as¡: "Continua esta letra en el tomo siguiente…folio."

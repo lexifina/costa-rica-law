@@ -1,0 +1,1 @@
+Artículo 250. Luego que se haya formado el estado general de las hipotecas constituidas y subsistentes a la publicación de la ley, expresar también el estado de que trata el artículo anterior, el número de las hipotecas que subsistan de un año para otro, el de las cantidades que garanticen y el de las fincas sobre que graviten.

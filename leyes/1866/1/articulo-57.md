@@ -1,0 +1,1 @@
+Art 57° El que, pudiendo pedir la anotación preventiva de un derecho, dejare de hacerlo, no podrá después inscribirlo a su favor, en perjuicio de tercero que haya adquirido e inscrito el mismo derecho con las circunstancias en el artículo 32 de la ley.

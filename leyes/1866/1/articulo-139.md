@@ -1,0 +1,1 @@
+ARTÍCULO 139. Oído el Promotor Fiscal sobre el importe de la fianza, conforme a lo prevenido en el artículo 616 del Código de procedimientos, y considerando el Juez suficientes las fincas ofrecidas en hipoteca, se constituir esta por medio de una acta, que extender el cartulario en el mismo expediente, firmar el tutor curador, y aprobar el Juez en auto separado.

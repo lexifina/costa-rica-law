@@ -1,0 +1,1 @@
+Artículo 78. Cuando los interesados los jueces recurrieren a la Sala de Súplica contra la decisión de la de 2° instancia, decidir el asunto dicha sala de Suplica, oyendo al recurrente por escrito, una sola vez, previo informe del Registrador y pidiendo, para proveer, los documentos que juzgue necesarios.

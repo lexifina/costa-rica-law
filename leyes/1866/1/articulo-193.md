@@ -1,0 +1,1 @@
+ARTÍCULO 193. El Juez declarar y el Registrador reconocer, en su caso, el error de concepto, solamente cuando sin duda alguna lo hubiere, conforme a la regla establecida en el artículo 225 de ley, y en este caso se verificar la rectificación, haciendo un nuevo asiento con presencia del título primitivo.

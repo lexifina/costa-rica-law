@@ -1,0 +1,1 @@
+ARTÍCULO 180. En cada registro habrá un inventario minucioso de todos los libros y legajos que en ‚l existan, formados por el Registrador. Siempre que se nombre nuevo Registrador, se hará cargo del registro por dicho inventario, firmándolo en el acto de la entrega, y quedando su antecesor responsable de lo que apareciere del inventario y no entregare.

@@ -1,0 +1,1 @@
+ARTÍCULO 90. Las partes podrán acordar la distribución prevenida en el artículo anterior, en el mismo título que se deba inscribir, en otro diferente, que podrá ser escritura pública solicitud dirigida al Registrador, firmada ratificada ante ‚l por los interesados. La inscripción en estos casos, se hará en la forma que prescribe el artículo 15.

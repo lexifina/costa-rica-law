@@ -1,0 +1,1 @@
+Artículo 265. Las tierras no inscritas que, aunque divididas en suertes o fincas diferentes, se puedan comprender bajo unos mismos linderos, y pertenezcan a un solo dueño, o a varios pro indiviso, se podrán inscribir como una sola finca y bajo un solo número, siempre que lo solicite el mismo dueño.

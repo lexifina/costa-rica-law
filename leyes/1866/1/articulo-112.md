@@ -1,0 +1,1 @@
+Artículo 112. El marido, a cuyo favor no estuvieren inscritos los bienes inmuebles pertenecientes a la dote estimada de su mujer, no podrá ejercer respecto de ellos ningún acto de dominio ni de administración.

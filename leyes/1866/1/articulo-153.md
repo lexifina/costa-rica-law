@@ -1,0 +1,1 @@
+ARTÍCULO 153. El Registrador podrá llevar, además de los libros que prescribe el título 6° de la ley, los que juzgue convenientes para su servicio; pero los que lleve de esta especie, no harán fe‚ sino como documentos privados.

@@ -1,0 +1,1 @@
+ARTÍCULO 192. Cualquiera de los interesados en una inscripción que advirtiere en ella error material de concepto, podrá de acuerdo con los demás, pedir su rectificación al Registrador, y si este no conviniere en ella, la contradijere alguno de los interesados, podrá acudir al Juez con igual petición. El Juez proceder en tal caso, del modo prescrito en el artículo 188.

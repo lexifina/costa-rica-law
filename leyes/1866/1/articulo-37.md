@@ -1,0 +1,1 @@
+Artículo 37. Decretada la nulidad de una inscripción, mandar el Juez cancelarla, y extender otra nueva en la forma que proceda según la ley. Esta nueva inscripción no surtir efecto, sino desde su fecha.

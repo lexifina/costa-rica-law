@@ -1,0 +1,1 @@
+Artículo 69. Cuando adquiera un tercero el derecho anotado, deber extenderse la inscripción a su favor, en la misma forma que las demás, pero haciendo en ella, después de expresar las cargas anteriores de la finca derecho, regencia de la cancelación de la anotación, su causa, su fecha y el número, folio y libro del registro en que se hallare.

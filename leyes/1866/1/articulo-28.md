@@ -1,0 +1,1 @@
+Artículo 28. La sesión del derecho de hipoteca y de cualquiera otro real, se hará constar por medio de una nueva inscripción, que se remitir a la primera, citando su número y folio, los nombres del cedente y del cesionario, y las demás circunstancias que resulten del título de sesión, y sean comunes a todas las inscripciones.

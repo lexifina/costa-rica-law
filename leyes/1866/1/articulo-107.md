@@ -1,0 +1,1 @@
+ARTÍCULO 107. Si la persona a cuyo favor resultare el derecho de hipoteca legal, fuere mujer casada, hijo menor de edad pupilo, el cartulario dar además conocimiento al Registrador del instrumento otorgado, por medio de oficio, en el cual hará una sucinta reseña de la obligación contraída y de los nombres, calidad y circunstancia de los otorgantes.

@@ -1,0 +1,1 @@
+Artículo 239.Siempre que el sustituto haya de reemplazar al Registrador propietario, se dar conocimiento previamente a los Juzgados de 1° instancia, expresado si tiene lugar la sustitución por enfermedad o por ausencia legítima, únicas causas que pueden autorizarla.

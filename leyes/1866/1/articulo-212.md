@@ -1,0 +1,1 @@
+ARTÍCULO 212. Las certificaciones de asientos de todas clases, relativas a bienes determinados, comprender n todas las inscripciones de propiedad, verificadas en el periodo respectivo, y todas las inscripciones y notas marginales de derechos reales, impuestos sobre los mismos bienes en dicho periodo, que no están canceladas.

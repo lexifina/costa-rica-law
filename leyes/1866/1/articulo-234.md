@@ -1,0 +1,1 @@
+Artículo 234. Las responsabilidades del Registrador no se limitar n solamente al valor de la fianza que otorgue, o valor fijado a la finca constituida en hipoteca, sino que, siendo condenado a indemnizaciones en mayor cantidad, responder a ellas con los demás bienes que posea.

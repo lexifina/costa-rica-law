@@ -1,0 +1,4 @@
+Artículo 62. Se considerar reducido el derecho inscrito a favor del dueño de la finca gravada para los efectos del n° 2°de dicho art. 64:
+1°. -Cuando se disminuya la cuantía del mismo derecho, por renuncia del interesado, convenio entre las partes, como si el acreedor hipotecario consintiese en reducir su hipoteca a una parte del inmueble hipotecado, si el usufructuario renunciara a una parte del predio usufructuado:
+2°. -Cuando se disminuya la cuantía del derecho inscrito, por efecto natural del contrato que diera causa a la inscripción, como sucede cuando el deudor hipotecario paga una parte de su crédito, haciéndolo constar en debida forma, cuando en el usufructo vitalicio constituido por dos más vidas, fallece uno de los usufructuarios:
+3°. -Cuando se disminuya la misma cuantía del derecho por sentencia judicial, como sucede siempre que se declara nulo, en parte solamente, el título en cuya virtud se haya hecho la inscripción.

@@ -1,0 +1,1 @@
+Artículo 51. Las anotaciones preventivas podrán pedirse por los mismos que podría pedir, en su caso, las inscripciones correspondientes, y deber n hacerse en los mismos registros y libros en que dichas inscripciones se deberían extender.

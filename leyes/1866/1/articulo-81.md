@@ -1,0 +1,1 @@
+Artículo 81. De toda cancelación que se verifique en el libro y lugar correspondientes, pondrá una nota el Registrador al margen de la inscripción anotación cancelada, concebida en estos términos: "Cancelada la inscripción (anotación) adjuntas, número…en el tomo…de este registro, folio …asiento número… (fecha y rúbrica del Registrador.)"

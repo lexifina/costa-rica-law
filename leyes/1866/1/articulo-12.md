@@ -1,0 +1,1 @@
+Artículo 12°. Los Cónsules costarricenses en el extranjero que autorizaren alguno de los actos contratos a que se refiere el artículo anterior, cumplirán la obligación que en ‚l se impone a los cartularios.

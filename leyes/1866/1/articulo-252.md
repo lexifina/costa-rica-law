@@ -1,0 +1,1 @@
+Artículo 252. La disposición del artículo 32 de la ley, ser también aplicada a los títulos inscritos en los antiguos registros, respecto a los anteriores que no se inscriban en el plazo señalado en el artículo 301 de la misma, y también en cuanto a aquellos que, inscribiéndose en dicho plazo, deban surtir su efecto solamente desde la fecha de la inscripción.

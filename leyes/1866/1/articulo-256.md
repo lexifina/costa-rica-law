@@ -1,0 +1,1 @@
+Artículo 256. Todos los que tengan a su favor inscripciones en los registros antiguos, que carezcan de algunas de las circunstancias que exigen los artículos 8 y 12 de la ley, podrán solicitar que se trasladen a los nuevos registros, con la adición expresada en el artículo 20 de este Reglamento, aunque no se haya verificado acto ni contrato, que exija una nueva inscripción.

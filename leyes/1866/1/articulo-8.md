@@ -1,0 +1,1 @@
+Artículo 8° Los documentos otorgados en el extranjero no se podrán inscribir, sino después de ser oficialmente traducidos por la oficina de la interpretación de lenguas. Tampoco podrán inscribirse las sentencias dictadas en el extranjero, hasta que el Tribunal Supremo de Justicia disponga su ejecución.

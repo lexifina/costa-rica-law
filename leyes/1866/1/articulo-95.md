@@ -1,0 +1,1 @@
+Artículo 95. Si el tercer poseedor de la finca hipotecada pagare el crédito hipotecario, se subrogar en lugar del acreedor y podrá exigir su reembolso del deudor, si ya no le hubiere descontado su importe del precio en que se haya adquirido la finca.

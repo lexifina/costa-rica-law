@@ -1,0 +1,1 @@
+Artículo 272. El expediente de que tratan los anteriores artículos quedar archivado en el registro. El cartulario o Juez que en ‚l haya entendido podrá dar copia o testimonio del mismo al interesado cuando lo pidiere.

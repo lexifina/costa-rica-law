@@ -1,0 +1,1 @@
+Artículo 30. Cuando en alguna testamentaría concurso se adjudiquen bienes inmuebles a uno de los partícipes acreedores, con la obligación de emplear su importe en pagar deudas cargas de la misma herencia ¢ concurso, se inscribir n dichos bienes a favor del adjudicatario, haciéndose mención literal de aquella obligación.

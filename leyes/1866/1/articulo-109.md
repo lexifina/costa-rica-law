@@ -1,0 +1,1 @@
+ARTÍCULO 109. El Registrador dar cuenta a la Sala de 2¦ instancia, cada seis meses, de los actos contratos de que se les haya dado conocimiento, con arreglo al art. 107, y no hayan producido la inscripción de hipoteca correspondiente, así como de las gestiones que hayan practicado, en cumplimiento de lo dispuesto, en el artículo anterior.

@@ -1,0 +1,1 @@
+ARTÍCULO 181.Conforme a lo dispuesto en los artículos 214 y 215 de la ley, los Registradores formar n por meses, por trimestres, por semestres por años, según las circunstancias, cuatro órdenes de legajos: uno de cartas de pago, otro de mandamientos judiciales, otro de escrituras públicas, y otro de documentos privados.

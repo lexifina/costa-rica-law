@@ -1,0 +1,1 @@
+ARTÍCULO 225. El Registrador, en consecuencia, depende inmediatamente de aquel Ministerio, y someter a su resolución todos los asuntos que se deban decidir con su acuerdo, y dictar por sí las resoluciones que no exijan esta circunstancia.

@@ -1,0 +1,8 @@
+ARTÍCULO 115. La inscripción de la hipoteca que constituya el marido sobre bienes inmuebles de su propiedad a favor de la mujer, siendo estimada la dote, expresar las circunstancias referidas en el art. 96, y además las siguientes:
+1°. -El concierto la celebración del matrimonio, con expresión de la fecha de uno u otra:
+2°-El nombre, apellido, domicilio, edad y estado anterior de la mujer:
+3°-Relación de los documentos en que se haya constituido la dote, ofreciendo las arras, y hecho constar la entrega al marido, de los bienes dátales parafernales, con expresión de las obligaciones que, por dichos conceptos, haya aceptado cada uno de los contrayentes:
+4°-El nombre, apellido, domicilio y representación legal de la persona que haya constituido la doble, declarando que esta es estimada, y que el cartulario da fe‚ de su entrega:
+5°. -En el caso de constituirse también la hipoteca por arras ofrecidas, por bienes parafernales entregados, la declaración de que unas u otros se consideran como aumento de la dote, y que el escribano da f‚ de la entrega de los parafernales:
+6°. -El importe total de la dote, el de los parafernales y el de las arras, con la estimación que en conjunto se haya dado a los bienes de cada especie que se entreguen en pago, considerando como especies diferentes, los inmuebles, las alhajas de oro. plata y piedras preciosas, los títulos y documentos de crédito público privado, los muebles, semovientes y ropas, y el dinero efectivo:
+7°. -El nombre, apellido y carácter legal de la persona que haya exigido la hipoteca dotal, y en el caso de haber mediado para constituirla, providencia judicial, la parte dispositiva de ‚esta, su fecha, el nombre del Juez que la haya dictado, y el del cartulario que la autorice.

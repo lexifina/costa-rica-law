@@ -1,0 +1,4 @@
+Artículo 43. Según lo dispuesto en el art. 43 de la ley, la anotación preventiva a favor de los acreedores refaccionarios, podrá constituirse en virtud de contrato privado, que conste por escrito. En su consecuencia deber procurar el Registrador:
+1°. -Que dichos contratos expresen claramente todas las circunstancias necesarias para evitar dudas y cuestiones sobre su cumplimiento, denegando la anotación de los que no están redactados con la claridad indispensable.
+2°-Que concurran personalmente al registro todos los interesados en la anotación, asegurándose de la identidad de sus personas y de la autenticidad de las firmas puestas al pie‚ de dicho contrato.
+3°. -Que, si la finca que ha de ser refaccionada, no estuviere inscrita en el registro, como propia del deudor, se inscriba con las formalidades oportunas, denegando en caso contrario toda anotación.

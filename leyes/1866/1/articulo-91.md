@@ -1,0 +1,1 @@
+ARTÍCULO 91. Lo dispuesto en los artículos anteriores, no ser aplicable a la anotación preventiva, excepto cuando se convierta en inscripción definitiva de hipoteca y grave diferentes bienes. La anotación preventiva de diferentes bienes, se asentar en la hoja del registro correspondiente, a cada uno de ellos, expresándose en todos de un mismo modo, la cuantía de la obligación.

@@ -1,0 +1,1 @@
+Artículo 15. Cuando, en un mismo título, se enajenaren gravaren diferentes fincas, se hará la correspondiente inscripción en la hoja destinada a cada una de ellas; indicando en cada inscripción las demás fincas comprendidas en el título y el folio y número en que se hubieren hecho las inscripciones que a ellas se refieran.

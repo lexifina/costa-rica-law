@@ -1,0 +1,1 @@
+Art 61°.- Se entenderá reducido el inmueble objeto de la inscripción, para los efectos del n°1 del art 64 de la ley, siempre que materialmente disminuyan su cabida o proporciones, bien por obra de la naturaleza como los accidentes mencionados en el art. 58, o bien por la voluntad del propietario, como sucede cuando este divide su finca, enajenando una parte de ella.

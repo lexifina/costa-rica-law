@@ -1,0 +1,1 @@
+ARTÍCULO 218. Los mandamientos judiciales y las solicitudes que tengan por objeto la expedición de certificaciones, luego que estas se extiendan a continuación, se devolverán a los Jueces, o a los interesados en su caso.

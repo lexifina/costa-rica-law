@@ -1,0 +1,1 @@
+ARTÍCULO 214. Las certificaciones de inscripciones hipotecarias, a cargo de personas señaladas, comprender n todas las constituidas y no canceladas sobre todos los bienes, cuya propiedad estuviere inscrita a favor de las mismas personas.

@@ -1,0 +1,1 @@
+ARTÍCULO 196. La rectificación del error de concepto se extender en los mismos términos que la del error material; pero citando, en lugar de las palabras materialmente equivocadas, todo el concepto que se haya de rectificar. Así en lugar de "equivocadas las palabras" se dirá: "equivocado el concepto que dice así…. ¦"

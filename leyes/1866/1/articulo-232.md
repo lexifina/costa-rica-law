@@ -1,0 +1,1 @@
+Artículo 232. La fianza de que habla el artículo 262 de la ley, se fijar por el Gobierno cada vez que se nombre nuevo registrador: siempre ser proporcionada a la responsabilidad que pueda resultar al Registrador, no pudiendo bajar, en ningún caso, de la cantidad de dos mil quinientos pesos.
