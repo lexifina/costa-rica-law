@@ -1,0 +1,1 @@
+Artículo 6º.- El no pago del impuesto se considera como defraudación fiscal, lo que queda sujeto a las penas establecidas por el Código Fiscal; además se pagará una multa a favor de la municipalidad correspondiente, que será equivalente a diez veces el valor de la tasa defraudada.
