@@ -1,4 +1,6 @@
+(Derogado)
 CONSTITUCION POLITICA
+(Derogada mediante el artículo 136 (141 actual) de la Constitución Política de 1871)
 15 de abril de 1869
 DECRETO X
 Jesús Jiménez, Presidente Provisorio de la República de Costa Rica.-
