@@ -1,0 +1,1 @@
+Artículo 2°-Nómbrase para Secretario de Esta- do en los despachos de Gobernación, Policía y Fomento, al señor Licenciado don José Vargas M. Dado en la Casa Presidencial, en San José, á los tres días del mes de Junio de mil ochocientos no- venta y dos.-JOSÉ J. RODRÍGUEZ. El Subsecretario de Estado en el Despacho de Gobernación,-RICARDO PACHECO.
