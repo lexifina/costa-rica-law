@@ -1,4 +1,4 @@
-Ley de Fomento de la Producción de Cabuya
+LEY DE FOMENTO DE LA PRODUCCION DE CABUYA
 CAPITULO I
 De la naturaleza, objetivos y organización
 ARTICULO 1.- Créase una corporación de derecho público, que actuará
