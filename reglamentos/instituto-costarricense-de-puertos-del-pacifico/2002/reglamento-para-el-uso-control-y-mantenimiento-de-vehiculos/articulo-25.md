@@ -1,0 +1,1 @@
+Artículo 25.—De los vehículos sin utilidad para el INCOP. La Unidad de Transportes deberá recomendar la venta, remate o canje de unidades que por alguna circunstancia han dejado de ser útiles para la Institución.

@@ -1,0 +1,1 @@
+Artículo 34.—De la prohibición de intercambio de accesorios: Los choferes de vehículos institucionales no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación de la Unidad de Transportes.

@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Del uso y disposición de los vehículos
+Artículo 15.—De la presentación de solicitud de transporte: Para la prestación del servicio de transporte o utilización de los vehículos, es indispensable la presentación de solicitud escrita ante Transportes, en fórmula diseñada para estos efectos, la cual deberá cumplir con los siguientes requisitos:
+a) El jefe de la unidad que autorice dicha solicitud es el responsable por la justificación del servicio solicitado.
+b) Antes de que el vehículo salga del plantel u otras instalaciones de la Institución, el Encargado de entregar el vehículo anotará en la fórmula el kilometraje, el día y hora de salida, así como el estado de las luces y los frenos, combustible que reporta el vehículo. El chofer firmará un recibido conforme, y cuando esté de regreso anotará la hora y el kilometraje marcado, seguidamente el funcionario responsable del servicio la firmará y anotará su nombre.
+c) Cuando el vehículo haya regresado a la Institución y los datos estén completos, el chofer deberá firmar la fórmula y la remitirá al Jefe de Transportes. En caso de que exista alguna incongruencia con respecto a lo que inicialmente se solicitó, el chofer o los funcionarios lo comunicarán de inmediato al jefe de dicha Unidad, éste pedirá en un plazo de veinticuatro horas las explicaciones por escrito de lo sucedido.

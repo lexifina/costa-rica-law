@@ -1,0 +1,1 @@
+Artículo 35.—De la seguridad en el estacionamiento: Los vehículos no deben dejarse estacionados en lugares donde se pongan en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta.

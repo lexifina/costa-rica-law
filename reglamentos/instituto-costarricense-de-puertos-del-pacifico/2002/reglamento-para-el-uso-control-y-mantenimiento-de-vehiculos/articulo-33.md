@@ -1,0 +1,1 @@
+Artículo 33.—De la conducción del vehículo: Es absolutamente prohibido a todos los choferes ceder la conducción del vehículo a otras personas, salvo por razones muy calificadas y las autorizaciones indicadas en el artículo 30 de este Reglamento, en cuyo caso, una vez finalizada la gira, deberá informar el motivo de ello a la Unidad de Transportes.

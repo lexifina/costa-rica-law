@@ -1,0 +1,2 @@
+Artículo 31.—Protección a choferes: El Instituto debe asegurar a sus choferes durante el ejercicio de sus labores y a vehículos propiedad de la Institución en forma permanente, las pólizas de riesgos del trabajo y las relativas a vehículos según las disposiciones de la Ley de Tránsito.
+Para decidir sobre coberturas adicionales en las pólizas de vehículos, la Administración del INCOP. deberá efectuar un análisis económico-financiero y determinar la conveniencia de las mismas.

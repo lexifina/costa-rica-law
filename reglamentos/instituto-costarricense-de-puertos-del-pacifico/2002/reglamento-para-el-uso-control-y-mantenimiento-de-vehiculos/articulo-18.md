@@ -1,0 +1,1 @@
+Artículo 18.—De la agrupación de solicitudes: Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Unidad de Transportes podrá agrupar en un mismo viaje varias solicitudes de diferentes servidores u oficinas para un mismo lugar o ruta, previo aviso oportuno a los interesados, con por lo menos doce horas de anticipación.

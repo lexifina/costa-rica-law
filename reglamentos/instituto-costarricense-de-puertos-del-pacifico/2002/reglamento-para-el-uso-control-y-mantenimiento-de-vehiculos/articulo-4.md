@@ -1,0 +1,1 @@
+Artículo 4º—De los vehículos arrendados por INCOP: Son vehículos arrendados por el Instituto Costarricense de Puertos del Pacífico aquellos automotores contratados por medio del arrendamiento operativo para uso administrativo o discrecional del INCOP. Estos deben portar el distintivo de INCOP y la leyenda "Vehículos Arrendados".

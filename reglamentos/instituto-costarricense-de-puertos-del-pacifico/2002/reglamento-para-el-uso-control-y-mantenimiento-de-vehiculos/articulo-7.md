@@ -1,0 +1,1 @@
+Artículo 7º—De la asignación de vehículos: Ningún vehículo estará asignado a unidades, ni a funcionario o empleado determinado con excepción de los que se destinan a uso discrecional y a excepción de los vehículos mencionados en el artículo 8°.

@@ -1,0 +1,1 @@
+Artículo 14.—De la custodia de los vehículos en gira: Cuando un vehículo se encuentre en gira, debe ser guardado en lugares que brinden condiciones de seguridad adecuadas y no podrá circular en horas y días que no esté debidamente autorizado, quedando bajo la responsabilidad del conductor asignado, la conservación del vehículo.

@@ -1,0 +1,1 @@
+Artículo 51.—De las sanciones: Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Servicio del Instituto, Código de Trabajo y de las consignadas en el ordenamiento legal en vigencia.

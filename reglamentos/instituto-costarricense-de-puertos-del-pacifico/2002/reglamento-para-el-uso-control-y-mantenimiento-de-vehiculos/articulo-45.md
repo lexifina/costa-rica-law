@@ -1,0 +1,1 @@
+Artículo 45.—De los accidentes con los vehículos arrendados: En caso de que el accidente de tránsito ocurra con un vehículo arrendado deberán seguirse las instrucciones giradas por la casa arrendadora para estos casos.

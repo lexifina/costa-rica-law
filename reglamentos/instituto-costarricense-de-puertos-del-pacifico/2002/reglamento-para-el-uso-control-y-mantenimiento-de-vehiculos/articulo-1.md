@@ -1,0 +1,20 @@
+REGLAMENTO PARA EL USO, CONTROL
+Y MANTENIMIENTO DE VEHÍCULOS DEL INCOP
+La Junta Directiva del Instituto Costarricense de Puertos del Pacifico (INCOP). En ejercicio de las facultades que le confiere el artículo 188 de la Constitución Política; las Leyes Nos. 1721 del 26 de diciembre de 1953 y 4964 del 21 de marzo de 1972, Ley de creación del Instituto Costarricense de Puertos del Pacífico y el artículo Nº 1 del Reglamento Autónomo de Servicios de la Institución y,
+Considerando:
+1º—Que de acuerdo al artículo 188 de la Constitución Política, el Instituto Costarricense de Puertos del Pacifico gozará de autonomía administrativa y está sujeto a la ley en materia de Gobierno.
+2º—Que de acuerdo al artículo Nº 2 inciso J) de la Ley Nº 4964, corresponde a la Junta Directiva del Instituto Costarricense de Puertos del Pacifico dictar los reglamentos internos, acuerdos y demás medidas necesarias que se requiera para lograr los objetivos de esta ley.
+3º—Que dentro de los deberes y atribuciones de la Junta Directiva del Instituto Costarricense de Puertos del Pacifico está dictar los reglamentos necesarios para el mejor desarrollo de todos los fines que persigue la Institución relativos a trabajo, administración de sus diversas actividades, según el artículo Nº 15 inciso J) de la Ley Nº 4964.
+4º—Que la vocación de ahorro debe ser reflejada en la naturaleza de los vehículos de la Institución. No se justifica, y menos en momentos de emergencia fiscal, vehículos de valor elevado, cuya adquisición y mantenimiento resultan onerosos para el INCOP.
+5º—Que la directriz Nº 19 girada por el Presidente de la República el 28 de enero de 1997, referente al plan de reducción de gastos incorporado en las medidas para la reducción de la deuda interna, coincide con la forma restrictiva en que la Ley de Tránsito Nº 7331 regula el uso de vehículos oficiales.
+6º—Que es necesario un mayor desarrollo de la normativa técnica en el campo del transporte con el fin de evitar desperdicios y abusos, según lo plantea el Manual sobre Normas Técnicas de Control Interno Relativas al Uso, Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República el doce de febrero de 1996. Por tanto,
+1º—En concordancia con la Directriz Presidencial, se deberá acatar en forma estricta y rigurosa las disposiciones de la Ley de Tránsito # 7331 y en especial las contenidas en el Título VII de ésta, la cual concentra las regulaciones pertinentes.
+2º—Esta normativa fija sus bases en el "Manual sobre Normas Técnicas de Control Interno Relativas al Uso Control y Mantenimiento de Vehículos"; emitido por la Contraloría General de la República.
+3º—Con la obligación y responsabilidad de velar por el uso adecuado y racional de los vehículos propiedad del INCOP. La siguiente reglamentación dispondrá todo lo relativo a uso de éstos, estableciéndose claramente las funciones, deberes y responsabilidades de los funcionarios que tienen a su cargo la administración de los vehículos y usuarios de éstos.
+4º—La Junta Directiva del Instituto Costarricense de Puertos del Pacifico (INCOP), en uso de las facultades enunciadas en los considerandos 1-2 y 3 y la vocación de orden, ahorro y legalidad, emitimos el siguiente Reglamento, exigiendo observarse con rigor y responsabilidad sus disposiciones.
+REGLAMENTO PARA EL USO, CONTROL
+Y MANTENIMIENTO DE VEHÍCULOS DEL INSTITUTO
+COSTARRICENSE DE PUERTOS DEL PACÍFICO
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Ámbito de aplicación: El presente Reglamento establece las disposiciones para el uso, mantenimiento y control de los vehículos automotores a disposición del Instituto Costarricense de Puertos del Pacífico, con el propósito de que éstos cumplan apropiadamente los fines a que se destinan. Se regulan, además, los deberes y responsabilidades de los funcionarios para que los utilicen de manera eficiente y en estricta observación de la legislación vinculante al efecto, se excluye de los alcances de este Reglamento la administración de la maquinaria portuaria o equipo similar.

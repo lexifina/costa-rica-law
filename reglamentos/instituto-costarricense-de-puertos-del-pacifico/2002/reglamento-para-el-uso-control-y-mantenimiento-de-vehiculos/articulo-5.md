@@ -1,0 +1,1 @@
+Artículo 5º—De la asignación y el fin de los vehículos: La asignación de los vehículos, para uso discrecional o administrativo, será únicamente como herramienta de trabajo con la finalidad de brindar un mejor servicio.
