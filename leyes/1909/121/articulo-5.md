@@ -4,4 +4,4 @@ b)-Notificación personal ó por medio de cédula de la autoridad todos los coli
 Tampoco se autorizará el fuego de los campos situados á menos de doscientos metros de radio de los manantiales que nazcan en terrenos planos.
 En todo caso, el que hiciere quemazones debe pagar los daños y perjuicios que á causa del fuego se ocasionen. Se presume autor de la quemazón el propietario, poseedor ó arrendatario del terreno que en la época del fuego estaba preparado para ese objeto. Toda persona tiene derecho de denunciar la infracción de las disposiciones de este artículo, y la autoridad, oyendo al dueño del fundo, puede suspender provisoriamente la autorización concedida.
 El que infringiere lo dispuesto en este artículo sufrirá la pena de cincuenta á cien colones de multa, aunque no mediare dolo, que si lo hubiere, se estará á lo que dispone el Código Penal.
-Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, á los veintidós días del mes d eoctubre de mil novecientos nueve.
+Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, á los veintidós días del mes de octubre de mil novecientos nueve.
