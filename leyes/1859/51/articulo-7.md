@@ -1,0 +1,1 @@
+Art 7°. El mismo Gobierno Provisorio dispondrá lo conveniente para que la Constitución sea publicada sin dilación y con la mayor solemnidad en todos los pueblos de la República y para que inmediatamente que se publique, se procederá a elecciones de Presidente, Senadores y Representantes, señalando día para la instalación de las Cámaras.

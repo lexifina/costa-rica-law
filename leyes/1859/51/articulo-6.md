@@ -1,0 +1,1 @@
+Art 6°. El actual Gobierno Provisorio queda competentemente autorizado para resolver las dudas que ocurran y para suplir las omisiones que se noten respecto de las próximas elecciones y generalmente para dictar cuantas providencias exija la transición al próximo rejimen constitucional.
