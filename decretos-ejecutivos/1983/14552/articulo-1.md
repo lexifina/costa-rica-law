@@ -8,5 +8,5 @@ de los materiales y trámites administrativos, que se originan por el otorgamien
 2°.-Que el Ministerio no está en condiciones de brindar en forma gratuita el servicio como ha hecho hasta ahora, por lo que se hace necesario recuperar al menos en parte, los gastos que genera la realización de este tipo de servicio.
 Por tanto,
 DECRETAN:
-ARTICULO 1º.-Los permisos a que se refieren los artículos 218, 222 y 253 de la Ley General de Salud número 5395 del 30 de octubre de 1973, se cobrarán a los interesados. Fijándose un monto de ¢ 100,00 (cien colones) por cada otorgamiento
-o renovación de los mismos.
+ARTICULO 1º. Los permisos a que se refieren los artículos 216, 222, 253 y 298 de la Ley General de Salud número 5395 de 30 de octubre de 1973, se cobrarán a los interesados, fijándose un monto de ¢100,00 (cien colones) por cada otorgamiento o renovación de los mismos.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 14801 de 31 de agosto de 1983).

@@ -13,3 +13,4 @@ Fija Monto Permisos Sanitarios Funcionamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-31 | la propia norma |
+| 2 | 1983-08-31 | Decreto Ejecutivo 14801 (1983-08-31) |
