@@ -16,3 +16,4 @@ Reglamento de Caja Chica y Fondo Fijo de Boletería del Teatro Melico Salazar (E
 | 1 | 2001-07-18 | la propia norma |
 | 2 | 2001-11-29 | Reglamento 289 (2001-11-29) |
 | 3 | 2002-02-20 | Reglamento 294 (2002-02-20) |
+| 4 | 2005-03-17 | Reglamento 0 (2005-03-17) |
