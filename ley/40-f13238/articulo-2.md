@@ -1,0 +1,1 @@
+Art. 2°.-El retrato del mismo Sr. General Guardia, costeado por la Nación, será colocado en el Gabinete del Presidente de la República. Al Poder Ejecutivo.- Dado en el Salón de sesiones.-Palacio Nacional. San José, Julio veinticuatro de mil ochocientos setenta y seis. Palacio nacional . San José, julio veinticinco de mil ochocientos setenta y seis. Publiquese
