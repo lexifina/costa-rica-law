@@ -1,0 +1,9 @@
+SUPERINTENDENCIA GENERAL DE ENTIDADES FINANCIERAS
+RESOLUCIÓN
+El Superintendente General de Entidades Financieras considerando
+1º—Que el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 8 del acta de la sesión N° 347-2002, celebrada el 19 de diciembre del 2002, dispuso eximir de la supervisión de la Superintendencia General de Entidades Financieras a las cooperativas de ahorro y crédito cuyo monto de activos netos fuera inferior a ¢ 425.0 millones.
+2º—Que en el o acto indicado en el punto anterior el CONASSIF autorizó al Superintendente General de Entidades Financieras para que en lo sucesivo y partiendo del monto indicado en el punto anterior, proceda a ajustar en enero de cada año par, iniciando en enero del 2004 y sobre la base de la variación acumulada del Índice de Precios al Productor Industrial, el monto de los activos netos, a efectos de eximir de la supervisión de la Superintendencia General de Entidades Financieras a las nuevas cooperativas de ahorro y crédito abiertas, cuyos niveles de activos netos no alcancen el nuevo monto ajustado.
+3º—Que al 31 de diciembre del 2003, el ajuste al monto de los activos netos referidos en los puntos precedentes asciende ¢472,0 millones.
+RESUELVE:
+1º—Elevar a ¢472.0 millones el límite para eximir de la supervisión por parte de la SUGEF, a las nuevas cooperativas de ahorro y crédito abiertas, que se autoricen a partir de enero del 2004, al amparo de la Ley de Regulación de la Actividad de Intermediación Financiera de las Organizaciones Cooperativas Nº 7391. Consecuentemente, es entendido que se mantienen dentro del ámbito de supervisión de la Superintendencia General de Entidades Financieras, a las cooperativas de ahorro y crédito fiscalizadas a la fecha, aún cuando su total de activos sea inferior a los ¢472.0 millones.
+2º—Publicar en el Diario Oficial La Gaceta.
