@@ -15,3 +15,4 @@ Crea el Programa de Compensación Social
 | 1 | 1995-07-31 | la propia norma |
 | 2 | 1996-01-15 | Decreto Ejecutivo 24912 (1996-01-15) |
 | 3 | 1996-07-24 | Decreto Ejecutivo 25481 (1996-07-24) |
+| 4 | 1998-05-06 | Decreto Ejecutivo 27019 (1998-05-06) |
