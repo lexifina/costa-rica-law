@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a las instituciones públicas centralizadas y descentralizadas para que brinden, en la medida de sus posibilidades jurídicas y materiales, la debida colaboración y facilidades necesarias, en la realización de este evento.
