@@ -1,8 +1,1 @@
-ARTÍCULO 56.- Para ser miembro de un Concejo de Distrito se deben
-reunir los mismos requisitos señalados en el artículo 22 del código para
-ser regidor municipal, excepto el referente a la vecindad que, en este
-caso, deberá ser el distrito correspondiente. En cualquier momento, los
-miembros de los Concejos de Distrito podrán renunciar a sus cargos; en tal
-caso, corresponderá al Tribunal Supremo de Elecciones reponer a los
-propietarios cesantes en el cargo, con los suplentes del mismo partido
-político, siguiendo el orden de elección.
+Artículo 56. — Para ser miembro de un Concejo de Distrito se deben reunir los mismos requisitos señalados en el artículo 22 del código para ser regidor municipal, excepto el referente a la vecindad que, en este caso, deberá ser el distrito correspondiente. En cualquier momento, los miembros de los Concejos de Distrito podrán renunciar a sus cargos; en tal caso, corresponderá al Tribunal Supremo de Elecciones reponer a los propietarios cesantes en el cargo, con los suplentes del mismo partido político, siguiendo el orden de elección.

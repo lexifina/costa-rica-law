@@ -1,6 +1,11 @@
-ARTÍCULO 76.- La tarifa estipulada en el artículo anterior
-comprenderá el costo efectivo del servicio más un cincuenta por ciento
-(50%) del monto por concepto de multa.
-El Concejo Municipal fijará montos anteriores en el reglamento
-respectivo; además, estará obligado a revisar y actualizar, por lo menos
-una vez al año, las tarifas que cobre.
+Artículo 76. — Cuando se incumplan las obligaciones dispuestas en el artículo anterior, la municipalidad cobrará trimestralmente con carácter de multa:
+a) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas ni recortar la que perjudique el paso de las personas o lo dificulte, trescientos colones (¢300,00) por metro lineal del frente total de la propiedad.
+b) Por no cercar los lotes donde no haya construcciones o existan construcciones en estado de demolición, cuatrocientos colones (¢400,00) por metro lineal del frente total de la propiedad.
+c) Por no separar, recolectar ni acumular, para el transporte y la disposición final, los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales y turísticas solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, cien colones (¢100,00) por metro cuadrado del área total de la propiedad.
+d) Por no construir las aceras frente a las propiedades ni darles mantenimiento, quinientos colones (¢500,00) por metro cuadrado del frente total de la propiedad.
+e) Por no remover los objetos, materiales o similares de las aceras o los predios de su propiedad, que contaminen el ambiente u obstaculicen el paso, doscientos colones (¢200,00) por metro lineal del frente total de la propiedad.
+f) Por no contar con un sistema de separación, recolección, acumulación y disposición final de los desechos sólidos, aprobado por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, en las empresas agrícolas, ganaderas, industriales, comerciales y turísticas, doscientos colones (¢200,00) por metro lineal del frente total de la propiedad, cuando el servicio público de disposición de desechos sólidos es insuficiente o inexistente o si por la naturaleza o el volumen de los desechos, este no es aceptable sanitariamente.
+g) Por obstaculizar el paso por las aceras con gradas de acceso aviviendas, retenes, cadenas, rótulos, materiales de construcción oartefactos de seguridad en entradas de garajes, quinientos colones (¢500,00) por metro lineal del frente total de la propiedad.
+h) Por no instalar bajantes ni canoas para recoger las aguas pluviales de las edificaciones, cuyas paredes externas colinden inmediatamente con la vía pública, ochocientos colones (¢800,00) por metro lineal del frente total de la propiedad.
+i) Por no ejecutar las obras de conservación de las fachadas de casas o edificios visibles desde la vía pública cuando, por motivos de interés turístico, arqueológico o patrimonial, lo exija la municipalidad, quinientos colones (¢500,00) por metro cuadrado del frente total de la propiedad.
+(Así reformado por el artículo 1 de la Ley N° 7898 del 11 de agosto de 1999)

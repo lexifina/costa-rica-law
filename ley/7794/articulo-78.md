@@ -1,11 +1,3 @@
-ARTÍCULO 78.- La municipalidad podrá aceptar el pago de las
-contribuciones por el arreglo o mantenimiento de los caminos vecinales,
-mediante la contraprestación de servicios personales u otro tipo de
-aportes.
-Las obras de mantenimiento de los caminos vecinales podrán ser
-realizadas directamente por los interesados, previa autorización de la
-municipalidad y con sujeción a las condiciones que ella indique. La
-municipalidad fijará el porcentaje del monto de inversión autorizado a
-cada propietario, beneficiado o interesado.
-La municipalidad autorizará la compensación de estas contribuciones
-con otras correspondientes al mismo concepto.
+Artículo 78. — La municipalidad podrá aceptar el pago de lascontribuciones por el arreglo o mantenimiento de los caminos vecinales, mediante la contraprestación de servicios personales u otro tipo de aportes.
+Las obras de mantenimiento de los caminos vecinales podrán ser realizadas directamente por los interesados, previa autorización de la municipalidad y con sujeción a las condiciones que ella indique. La municipalidad fijará el porcentaje del monto de inversión autorizado a cada propietario, beneficiado o interesado.
+La municipalidad autorizará la compensación de estas contribuciones con otras correspondientes al mismo concepto.

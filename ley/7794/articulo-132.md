@@ -1,4 +1,1 @@
-ARTÍCULO 132.- Previo informe y consulta de permutas y traslados
-horizontales de los servidores con sus jefes inmediatos, el alcalde podrá
-autorizar estos movimientos, siempre que no les causen evidente perjuicio
-y cuando satisfaga una necesidad real de la municipalidad.
+Artículo 132. — Previo informe y consulta de permutas y traslados horizontales de los servidores con sus jefes inmediatos, el alcalde podrá autorizar estos movimientos, siempre que no les causen evidente perjuicio y cuando satisfaga una necesidad real de la municipalidad.
