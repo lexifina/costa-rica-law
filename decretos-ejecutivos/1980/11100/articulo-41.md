@@ -1,0 +1,1 @@
+Artículo 41.- El ejercicio de las facultades de la Dirección General de la Policía de Tránsito, no excluye otras no previstas en este Reglamento, que resulte necesaria ejercer por motivos imperiosos y discrecionales de orden y seguridad pública relacionados o no altránsito.

@@ -1,0 +1,1 @@
+Artículo 35.- Las prendas y elementos de uniforme serán provistos por el Departamento Administrativo, en la cantidad y forma que éste determine, según presupuesto, disponibilidades y necesidades del servicio.

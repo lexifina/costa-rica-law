@@ -1,0 +1,1 @@
+Artículo 15.- Si el abandono de labores, la llegada tardía o ausencia injustificada no tiene mayores consecuencias se calificará como simple, pero si las tiene será calificada de agravada. Se considerarán faltas agravadas las que de manera directa o indirecta causen perjuicio notorio al buen servicio o se haya puesto en peligro la seguridad de las personas o bienes del Estado.

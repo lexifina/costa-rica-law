@@ -1,0 +1,1 @@
+Artículo 42.- Los actos en ejercicio de facultades no enunciadas expresamente en este Reglamento, deberán ajustarse a los principios del ejercicio de poder de policía que corresponda al Gobierno de la República o lo que resulte pertinente a la policía de seguridad en el tránsito.

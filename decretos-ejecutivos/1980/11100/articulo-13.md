@@ -1,0 +1,1 @@
+Artículo 13.- Se considerará abandono del trabajo el hacer dejación, sin causa justificada y sin permiso del jefe inmediato, dentro de su jornada establecida. Para efectos de calificar el abandono del trabajo no es necesario que el servidor salga del lugar donde presta sus servicios, sino que bastará que de modo evidente deje de realizar la labor confiada.

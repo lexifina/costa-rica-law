@@ -1,0 +1,1 @@
+Artículo 37.- Los conflictos de competencia que surjan entre la Dirección General de la Policía de Tránsito y demás dependencias del MOPT, se harán del conocimiento del Director General de la División de Transporte del Ministerio, así como los que se presenten entre la Dirección de la Policía de Tránsito y dependencias de otros ministerios o instituciones públicas.

@@ -1,0 +1,1 @@
+Artículo 12.- Se considerará ausencia la falta de un día completo de trabajo. La falta a una fracción de la jornada, que por su extensión no pueda calificarse como llegada tardía, se computará, como la mitad de una ausencia- Dos mitades de ausencia, para efectos de este Reglamento, se computarán como una ausencia.

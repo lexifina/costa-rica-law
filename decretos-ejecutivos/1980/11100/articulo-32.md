@@ -1,0 +1,1 @@
+Artículo 32.- Para tareas especiales, técnicas o específicas o bien de entrenamiento, los respectivos departamento determinarán la indumentaria adecuada, con la finalidad de proteger el uniforme genérico.

@@ -1,0 +1,1 @@
+Artículo 11.- Se considerará llegada tardía la presentación al trabajo después de cinco minutos de la hora señalada para el comienzo de las labores en la correspondiente fracción de la jornada. Para efectos de cómputo no se tomarán en cuenta las llegadas tardías que no excedan de cinco minutos.

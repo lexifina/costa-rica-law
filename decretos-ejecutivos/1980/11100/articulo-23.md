@@ -1,0 +1,1 @@
+Artículo 23.- La sanción será aplicada directamente por cada jefe departamental. el jefe respectivo informará lo resuelto de inmediato al Departamento Administrativo de la Dirección para los trámites subsiguientes.

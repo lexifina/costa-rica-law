@@ -1,0 +1,1 @@
+Artículo 22.- Las ausencias injustificadas computables dentro de un mismo mes calendario, darán lugar a las siguientes sanciones: Por media ausencia, amonestación escrita; por una, o dos medas alternas, suspensión de cuatro días; por tres medias ausencias, suspensión de ocho días, por dos alternas o cuatro medias ausencias alternas, despido.

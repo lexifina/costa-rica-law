@@ -1,0 +1,2 @@
+Artículo 8º.- Los deberes y responsabilidades descritos en este Reglamento son representativos y no pretenden ser exhaustivos o cubrir la totalidad de tareas del personal de la Dirección General de la Policía de Tránsito.
+Los Superiores Jerárquicos de la Dirección de la Policía de Tránsito en todo caso, se reservan la atribución legal de aplicar el régimen disciplinario especial, cuando las circunstancias así lo requieran y de acuerdo a su criterio.
