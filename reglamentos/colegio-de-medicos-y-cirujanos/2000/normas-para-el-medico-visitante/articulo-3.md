@@ -1,0 +1,1 @@
+Artículo III.—El médico visitante no podrá aceptar ninguna compensación de carácter salarial, ni en efectivo ni en especie, de parte de personas físicas o jurídicas nacionales, por sus actividades dentro o fuera de la institución donde ha sido admitido.

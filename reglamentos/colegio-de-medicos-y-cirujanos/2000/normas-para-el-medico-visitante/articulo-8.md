@@ -1,0 +1,1 @@
+Artículo VIII.—Los técnicos en salud de incorporación obligatoria al colegio podrán también aspirar a la condición de profesional afín visitante, sometiéndose al cumplimiento de este reglamento con excepción del artículo 5° para el cual no aplican.

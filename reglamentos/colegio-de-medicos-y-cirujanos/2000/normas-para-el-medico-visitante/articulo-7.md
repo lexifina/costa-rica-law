@@ -1,0 +1,1 @@
+Artículo VII.—Los profesionales afines de incorporación obligatoria al Colegio podrán también aspirar a la condición de profesional afín visitante, sometiéndose al cumplimiento de este reglamento con excepción del artículo 5° para el cual no aplican.
