@@ -1,0 +1,2 @@
+Artículo 2°—Se prescinde del trámite de compensación previa para la devolución de los créditos indicados en el articulo 1° de esta resolución.
+La resolución administrativa que dispone la devolución no precluye la potestad administrativa de practicar liquidaciones de oficio que cuestionen la procedencia legal de los créditos y de aplicar las sanciones correspondientes a la solicitud y obtención de devoluciones indebidas.
