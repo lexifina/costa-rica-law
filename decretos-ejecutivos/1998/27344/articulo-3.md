@@ -1,0 +1,1 @@
+Artículo 3°—-Los miembros de la Comisión que faltaren a tres sesiones ordinarias sin justificación alguna, serán excluidos de la misma y se pedirá a la institución que representan realizar un nuevo nombramiento.

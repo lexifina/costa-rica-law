@@ -1,0 +1,1 @@
+Artículo 7°— La Comisión estará bajo la dirección y autoridad del Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía, el cual aprobará, apoyará y supervisará las acciones que en materia de educación y extensión ambiental sea necesario ejecutar.

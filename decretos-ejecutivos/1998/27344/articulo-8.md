@@ -1,0 +1,1 @@
+Artículo 8°—Las instituciones públicas miembros de la Comisión deberán establecer programas conjuntos sobre educación y extensión ambiental, orientados a impulsar el desarrollo sostenible del país y el mejoramiento de la calidad de vida de los costarricenses.

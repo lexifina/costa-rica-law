@@ -1,0 +1,1 @@
+Artículo 9°— La Comisión tendrá su sede en las oficinas centrales del SINAC y se reunirá en sesión ordinaria una vez al mes y en extraordinaria, cada vez que sea convocada por el/la coordinador/a de la Comisión.

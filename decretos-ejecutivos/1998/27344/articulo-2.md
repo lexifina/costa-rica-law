@@ -1,0 +1,1 @@
+Artículo 2°—Los integrantes de la Comisión deberán tener experiencia reconocida en materia de educación y extensión ambiental, amplio conocimiento y profunda preocupación por aspectos relacionados con la problemática ambiental nacional.

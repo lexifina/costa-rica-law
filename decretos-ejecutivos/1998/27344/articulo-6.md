@@ -1,0 +1,1 @@
+Artículo 6°—Para el buen desempeño administrativo de la Comisión , el SINAC ejercerá la Secretaría Ejecutiva , la cual llevará el libro de actas, que para los efectos se abrirá, y en el cual constarán los acuerdos que se tomen.

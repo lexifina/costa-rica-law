@@ -1,0 +1,1 @@
+Artículo 11.— La Comisión podrá solicitar, datos o cualquier tipo de información concerniente al tema ambiental, a las instituciones públicas o privadas que se relacionen con el manejo de recursos naturales y conservación del ambiente.

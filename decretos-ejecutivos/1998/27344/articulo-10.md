@@ -1,0 +1,1 @@
+Artículo 10.—A las reuniones de la Comisión podrán ser invitados con derecho a voz, representantes de otras instituciones que posean programas o realicen actividades de educación y extensión ambiental y en general todas aquellas personas a quienes la Comisión estime conveniente escuchar.
