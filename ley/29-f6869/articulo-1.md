@@ -1,0 +1,5 @@
+DECRETO XXIX.
+Prorroga por cinco dias el periodo de sesiones de la Camara de Representantes.
+El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.-Por cuanto las Cámaras han decretado lo siguiente.
+La Àsamblea General del Estado libre de Costa Rica, penetrada de la imperiosa necesidad de prorogar las sesiones de la Cámara de Representantes para el despacho de varios negocios de interés general que penden de su conocimiento, ha venido en decretar y decreta.
+Art° único Se proroga á cinco dias mas el actual periodo de sesiones de la Cámara de Representantes, conforme al art. 102 de la Constitucion. –Comuníquese al Supremo Poder Ejecutivo para que lo haga imprimir, cireular y publicar. Dado en la ciudad de San José á los dieziseis dias del mes de julio de mil ochocientos cuarenta y cinco. –José Maria Castro, Representante Presidente.-Rafael Ramírez, Representante primer Secretario. -Gordiano Fernandez, Representante segundo Secretario. -Por tanto: EJECUTESE. San José julio diecisiete de mil ochocientos cuarenta y cinco. –José Rafael Gallegos. –Al Ministro de relaciones y gobernación.”
