@@ -1,0 +1,2 @@
+Artículo 38.—La fusión u otras formas de absorción social de una agencia comercializadora de seguros por otra sociedad, grupo financiero o económico, implican la cancelación de la autorización y la terminación del contrato, salvo que previamente se hayan realizado los trámites respectivos de la cesión del objeto del contrato.
+Rige a partir de su aprobación en firme.

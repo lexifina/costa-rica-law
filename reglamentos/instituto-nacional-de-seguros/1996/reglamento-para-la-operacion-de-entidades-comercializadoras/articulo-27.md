@@ -1,2 +1,2 @@
-Artículo 27.—Con el objeto de evitar la concentración del riesgo moral en la actividad de la Agencia Comercializadora, no podrá ésta conformar su cartera en más de un 25% de los montos asegurados, por bienes propiedad de sus socios, o por bienes propiedad de entidades donde los socios de la Agencia posean más del 25% del capital social, considerados conjuntamente.
-La Agencia Comercializadora no podrá concentrar sus operaciones en la atención de un solo Grupo Económico de Empresas.
+Artículo 27.—Con el objeto de evitar la concentración del riesgo moral en la actividad de la agencia comercializadora, no podrá ésta conformar su cartera en más de un 25% de los montos asegurados, por bienes propiedad de sus socios, o por bienes propiedad de entidades donde los socios de la agencia posean más del 25% del capital social, considerados conjuntamente.
+La agencia comercializadora no podrá concentrar sus operaciones en la atención de un sólo grupo económico de empresas.

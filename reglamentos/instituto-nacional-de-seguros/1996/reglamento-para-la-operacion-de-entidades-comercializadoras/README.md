@@ -14,3 +14,4 @@ Reglamento para la operación de entidades comercializadoras de seguros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-01 | la propia norma |
+| 2 | 1997-11-17 | Reglamento 8157 (1997-11-17) |
