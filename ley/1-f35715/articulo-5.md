@@ -1,0 +1,1 @@
+Art. 5-El auxiliar del Tenedor de Libros, á más de los deberes que le conciernen como tal, tendrá el de ejecutar todos los trabajos de pluma que el Superintendente le ordene, y el de cuidar del archivo de la oficina de éste.

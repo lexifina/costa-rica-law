@@ -1,0 +1,2 @@
+Art. 15°. -Es obligación común del Superintendente, almacenistas, confeccionador, destilador y fermentador, llevar las cuentas de sus respectivos departamentos, conforme á las instrucciones que reciban del Tenedor de Libros.
+Dado en el Palacio Presidencial, en San José, á treinta y uno de diciembre de mil ochocientos ochenta y cinco. -BERNARDO SOTO. -El Secretario de Estado en el despacho de Hacienda, MAURO FERNÁNDEZ.
