@@ -1,0 +1,1 @@
+Artículo 4°.- La aplicación de los créditos fiscales en la venta de vehículos usados, se regirá por las disposiciones de los artículo 14 y 21 de la Ley y Reglamento del Impuesto General sobre las ventas.

@@ -1,0 +1,1 @@
+Artículo 5°.- Se deroga el artículo 9, del Decreto N° 17880-H de 1 de diciembre de 1987, denominado Reglamento de la Ley de Impuesto a la Transferencia de Vehículos Automotores, Aeronaves y Embarcaciones Usadas, reformado por el artículo 1 del Decreto N° 26359-H de 18 de agosto de 1997.
