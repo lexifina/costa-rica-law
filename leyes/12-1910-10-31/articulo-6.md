@@ -1,0 +1,1 @@
+Artículo 6°-El solicitante debe tomar posesión de la parcela que pida al Gobernador y dar principio á su cultivo dentro de cuatro meses siguientes, á contar desde la fecha de la concesión, bajo la pena de perder ésta sin derecho á indemnización por ningún motivo.

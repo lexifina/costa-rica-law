@@ -1,0 +1,2 @@
+Artículo 7°-Se conceden tres años para hacer los cultivos á que se refiere el artículo 3°. Los interesados que faltaren á esta obligación en todo ó en parte, perderán la concesión sin derecho á ser indeminizados por ningún motivo, ni aun por razón de mejoras.
+La caducidad tanto en este caso como en el anterior, será declarada administrativamente por el mismo Gobernador, por gestión de parte y probados los hechos.

@@ -1,0 +1,1 @@
+Artículo 2°-Cada lote se dividirá en parcelas numeradas de uno á ciento, de veinte hectáreas cada una, y de los tres lotes se levantarán planos que se colocarán en la oficina de la Gobernación de Guanacaste.

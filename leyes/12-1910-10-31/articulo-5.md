@@ -1,0 +1,1 @@
+Artículo 5°-La simple solicitud para adquirir una de estas parcelas, hecha por los centroamericanos no naturalizados, se tendrá como una manifestación expresa para adquirir la ciudadanía costarricense.
