@@ -1,0 +1,8 @@
+3. Identificación y análisis de las interrupciones.
+3.1. Registro de interrupciones.
+Las empresas distribuidoras deben disponer de un sistema para el registro, conteo e identificación de las interrupciones del servicio eléctrico en su área de concesión o de distribución. Para ello establecerán los procedimientos y mecanismos apropiados para la recopilación de la información necesaria.
+3.2. Identificación de las Interrupciones.
+Para el debido registro y conteo de las interrupciones, las empresas eléctricas deben desarrollar un método de identificación y clasificación de las interrupciones en su área de concesión o de distribución, de tal forma que las mismas se ordenen de acuerdo con su duración, origen y nivel topológico (apartado 2 de esta norma) y además se agrupen por sus causas, motivos y repercusiones en la continuidad del servicio.
+La Autoridad Reguladora, en forma conjunta con las diferentes empresas distribuidoras, determinará, a más tardar seis meses después de entrar en vigencia la presente norma, el método uniforme de identificación de las interrupciones para todas las empresas involucradas en el negocio eléctrico.
+3.3. Análisis de interrupciones.
+Mediante el uso del sistema de registro y el método de identificación de las interrupciones, las empresas eléctricas efectuarán los análisis técnicos pertinentes, que permitan determinar las causas de mayor incidencia de las interrupciones, los circuitos, ramales o áreas geográficas mayormente afectados. Asimismo, establecer las medidas correctivas para minimizar la frecuencia y duración de las interrupciones, de conformidad con lo indicado en el apartado 4 de la presente norma.
