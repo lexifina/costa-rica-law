@@ -1,0 +1,2 @@
+Artículo 3º.- Refórmase el párrafo tercero del inciso j) del artículo 2º de la Ley Nº 14 de 2 de diciembre de 1935, reformado por la Nº 2069 de 1º de noviembre de 1956, el cual se leerá así:
+"Ninguna pensión de gracia será menor de doscientos colones (¢ 200.00) mensuales. En el caso de concurrencia de grupos o partes en un mismo grupo, salvo los caso de hijos de soldados de la Campaña Nacional, la pensión se prorrateará".

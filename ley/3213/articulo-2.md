@@ -1,0 +1,1 @@
+Artículo 2º.- En cuanto a los traspasos, se entenderá que el promedio de sueldos nunca había sido inferior a doscientos colones (¢ 200.00) mensuales y se harán en la proporción que indican las leyes pertinentes.
