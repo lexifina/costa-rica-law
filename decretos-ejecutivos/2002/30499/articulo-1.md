@@ -1,0 +1,33 @@
+Nº 30499-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades que les confieren los artículos 140, incisos 3), y 18), de la Constitución Política; 28 de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública, 1º y 2º de la Ley Nº 5395 de 30 de octubre de 1973 "Ley General de Salud".
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 23254-S del 25 de abril de 1994, publicado en el Diario Oficial La Gaceta Nº 97 del 20 de mayo de 1994, el Poder Ejecutivo promulgo el "Reglamento sobre Especialidades Odontológicas".
+2º—Que la Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, mediante oficio C.C.D.C.R.-440-11-01 ha solicitado al Ministerio de Salud reformar y adicionar algunos artículos de dicho Reglamento.
+3º—Que se ha considerado oportuno y necesario realizar la reforma solicitada. Por tanto,
+Decretan:
+Artículo 1º—Refórmese los artículos 3º, inciso b), adiciónese un nuevo inciso e), y 8 del Decreto Ejecutivo Nº 23254-S de 25 de abril de 1994, para que en lo sucesivo se lean así:
+"Artículo 3º—Créase la Comisión de Registro de Especialidades Odontológicas que tendrá las siguientes funciones:
+[…]
+b) Una vez que la Comisión de Registro de Especialidades compruebe el cumplimiento de los requisitos establecidos en este Reglamento, y los que la Comisión considere necesarios recomendará a la Junta Directiva, el reconocimiento, juramentación e inscripción del solicitante en el Registro de Especialidades Odontológicas.
+La Junta Directiva deberá mantener un registro de especialidades actualizado de manera que esté a disposición de los miembros del Colegio y público en general.
+[…]
+e) Establecer los perfiles académicos necesarios para dictaminar que los cursos efectuados pueden ser equiparados en cursos de especialidad".
+"Artículo 8º—Para el ejercicio de las actividades propias de las especialidades aquí establecidas o que se lleguen a establecer, es indispensable la inscripción en el Registro de Especialidades Odontológicas y contar con el correspondiente certificado expedido por la Junta Directiva.
+Para obtener la inscripción se requiere estar incorporado al Colegio de Cirujanos Dentistas de Costa Rica, ser miembro activo y presentar solicitud escrita adjuntando los documentos que se dirán, ante la Junta Directiva, la que deberá conocerla en la sesión ordinaria siguiente a la fecha del recibo, tomar nota de ello y pasarla a conocimiento de la Comisión:
+a) Título, Diploma o Certificado Universitario en que conste la especialidad efectuada. Los diplomas o certificaciones extendidas por colegios profesionales o entidades no universitarias no se consideraran como documentos de carácter universitario, excepto que sean refrendados por la universidad donde se efectuaron los estudios.
+b) Lista de todos los cursos, teóricos, práctica clínica, de laboratorio, hospitalaria o comunitaria, efectuados anualmente, por semestres o cuatrimestres; indicando el número de horas y la aprobación de los mismos.
+c) Descripción del contenido de cualquier curso, cuando a juicio de la Comisión así se requiera para aclarar dudas sobre el mismo.
+d) Cuando el cirujano dentista haya efectuado sus estudios de especialización en el extranjero deberá presentar atestados de las universidades o instituciones académicas universitarias autorizadas para otorgar títulos, diplomas, certificados o grados académicos, del país donde se efectuaron los estudios, las firmas de los documentos deberán ser debidamente autenticadas por:
+· Las autoridades correspondientes y el Ministerio de Relaciones Exteriores y Culto o similar del país donde se efectuaron los estudios.
+· El Cónsul de Costa Rica en ese país. Si no lo hubiere, el Cónsul mas cercano que tenga la jurisdicción de ese país o Estado.
+· El Ministerio de Relaciones Exteriores y Culto de Costa Rica.
+e) Cuando el cirujano dentista haya efectuado sus estudios de especialización en Costa Rica, en una de las especialidades aprobadas por el Sistema de Estudios de Postgrado (S.E.P.) de la Universidad de Costa Rica o por las Instituciones de Educación Superior Universitaria, deberá presentar el diploma o título respectivo y los atestados señalados en los incisos b), y c), de este artículo.
+Corresponde exclusivamente a la Comisión aceptar o rechazar especialidades otorgadas en Costa Rica que reconozcan créditos cursados o aprobados en el extranjero.
+f) Recibo que compruebe el pago hecho al Colegio de los respectivos derechos por el valor establecido por la Junta Directiva. En caso de ser denegada la inscripción, el pago mencionado no será devuelto.
+Una vez que la solicitud cumpla con todos los requisitos, la Comisión deberá solicitar dictamen a la academia de la especialidad de que se trate, si existiere, debiendo ésta dar su dictamen en un plazo no mayor de dos meses contados a partir de la fecha en que se le solicitó, vencido ese plazo no se oirá a la academia. Recibido el dictamen de la academia o vencido el plazo concedido para ello la Comisión deberá pronunciarse en un plazo de dos meses contados a partir de la fecha del recibo del dictamen o del vencimiento del plazo. Vencido este plazo, la solicitud se tendrá por aprobada debiendo la Junta Directiva del Colegio, a solicitud del interesado no de oficio, proceder a la inscripción.
+No obstante lo anterior en caso de duda la Comisión podrá remitir al Consejo de Educación Superior Universitaria Privada (CONESUP) toda la documentación cuando la especialidad haya sido otorgada en Costa Rica, cuando ha sido otorgada en el extranjero podrá hacer todas las investigaciones o averiguaciones que crea convenientes en ambos casos el plazo para que la Comisión se pronuncie se contará a partir de la fecha en que la Comisión reciba el informe del CONESUP, o termine la investigación en el extranjero.
+Si la solicitud no cumple con todos los requisitos, dentro del mes siguiente a la fecha de recepción de la misma, la Comisión le indicara al interesado, que proceda a completarlos, otorgándose para ello un plazo de un mes, vencido este, sin tener respuesta del interesado, devolverá la solicitud a la Junta Directiva para que proceda a archivarla sin que sea necesario informar o notificar al interesado.
+Todas las comunicaciones a que se refieren los dos párrafos anteriores deberán hacerla la Comisión por medio de correo certificado dirigido a la dirección que el interesado haya puesto a su solicitud. Si no hubiere indicado dirección alguna, la Comisión no será responsable por no haber notificado.
+Las resoluciones que dictare la Comisión, podrán ser apeladas dentro de los cinco días hábiles posteriores a su notificación, ante la Junta Directiva del Colegio y las de esta ante la Asamblea General, dentro el mismo plazo."
