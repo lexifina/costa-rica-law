@@ -139,46 +139,5 @@ o delitos en perjuicio del declarante, a que alude el artículo
 8º, inciso r) de la Ley, siempre que el hecho se demuestre
 mediante documento certificado por autoridad competente, a
 criterio de la Dirección;
-n) El equivalente al cincuenta por ciento (50%) de la renta
-disponible del período anterior, que se hubiere invertido en
-bienes de capital, por empresas agropecuarias y
-agroindustriales en sus actividades económicas. Se entiende por
-bienes de capital los bienes muebles necesarios y de uso
-directo en la explotación de estos negocios, ya sea que se
-trate de empresas nuevas, ampliación de las existentes o de
-inversiones en las explotaciones citadas, con la siguiente
-enumeración:
-I. Maquinaria de instalación fija;
-II. Maquinaria pesada movible;
-III. Material rodante;
-IV. Vehículos automotores que se utilicen directamente en el
-proceso productivo;
-V. Herramientas pesadas; y
-VI. Otros bienes a juicio de la Dirección, previa
-autorización.
-La Administración Tributaria tendrá amplia facultad para rechazar
-estas inversiones, cuando no se realicen en bienes productivos utilizados
-para el mantenimiento, expansión o diversificación, propios de la
-actividad empresarial.
-Se considera realizada la inversión, tratándose de bienes muebles
-comprados localmente, en la fecha de la facturación; cuando se trate de
-importaciones en la fecha de aceptación de la respectiva póliza de
-desalmacenaje. Tratándose de compras de bienes inmuebles, plantaciones o
-mejoras, en el período fiscal que queden definitivamente en propiedad o
-establecidas, según corresponda.
-Estas empresas deberán presentar conjuntamente con la declaración
-del impuesto, un detalle de las inversiones realizadas por este concepto.
-Para efectos de esta disposición, cuando los bienes sean
-depreciables, la base para el cálculo de las cuotas de depreciación debe
-ser la diferencia, entre el precio de costo y el importe de esta
-deducción.
-Para tener derecho a este beneficio, las empresas agropecuarias y
-agroindustriales que además ejerzan otras actividades, deberán llevar
-cuentas por separado para cada actividad, de lo contrario no gozarán del
-beneficio.
-Todas las deducciones que se reglamentan en este artículo, con
-excepción de las consideradas en el inciso 1), serán aceptadas por la
-Administración Tributaria, siempre que cumplan los requisitos estipulados
-en los tres últimos párrafos del artículo 8º de la Ley.
-(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 12 ocupó el lugar que antes correspondía al artículo 11).
-(Así reformado por el artículo 5º del decreto ejecutivo No.25046 de 26 de marzo de 1996)
+n) DEROGADO por el inciso 4) del artículo 8 del Decreto Ejecutivo
+N° 29643 de 10 de julio del 2001.

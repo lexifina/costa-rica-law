@@ -17,3 +17,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 2 | 1988-09-23 | SINALEVI (sin norma nombrada) |
 | 3 | 1992-09-10 | SINALEVI (sin norma nombrada) |
 | 4 | 1996-03-26 | SINALEVI (sin norma nombrada) |
+| 5 | 2001-07-10 | Decreto Ejecutivo 29643 (2001-07-10) |

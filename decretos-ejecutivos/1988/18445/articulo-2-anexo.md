@@ -315,12 +315,7 @@ Guillotinas ..................................... 7 15
 Güinches ........................................ 7 15
 Hélices de naves aéreas 2.000 horas ............ 15 7
 Herramientas manuales de cualquier
-clase, con valor hasta de ¢ 1.000.00
-se considera gasto .
-Herramientas manuales de cualquier
-clase de ¢ 1.001,00 hasta ¢ 5.000,00 .........25 4
-Herramientas manuales de cualquier
-clase de ¢ 5.000,00 en adelante ..............10 10
+clase ..............10 10
 Hiladoras .......................................10 10
 Homogenizadoras .................................7 15
 Hormas (todo tipo) ..............................20 5
@@ -583,3 +578,5 @@ Rosas ornamentales (plantas madres) .............33 3
 Canales de drenaje ..............................16.66 6
 Canales de riego ................................12.50 8
 Ganado (de cría y de leche) .....................15 7
+(Así reformado por el inciso 15) del artículo 8 del
+Decreto Ejecutivo N° 29643 de 10 de julio del 2001).

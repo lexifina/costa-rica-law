@@ -1,8 +1,3 @@
-ARTICULO 37.- Pago del impuesto. Los agentes retenedores procederán
-a depositar las sumas retenidas en el Banco Central de Costa Rica o en
-las tesorerías recaudadoras autorizadas, dentro de los diez primeros días
-hábiles del mes siguiente a la fecha en que se efectuaron, para lo cual
-utilizarán el entero-nómina que proporcionará la Dirección. El patrono,
-empleador o pagador queda obligado, según lo dispone el artículo 37 de la
-ley, a efectuar el pago del impuesto aún cuando no hubiera practicado la
-retención.
+ARTICULO 37.- Pago del impuesto. Los agentes retenedores procederán a depositar las sumas retenidas en el Banco Central de Costa Rica o en las tesorerías recaudadoras autorizadas, dentro de los primeros quince días naturales del mes siguiente a la fecha en que se efectuaron, para lo cual utilizarán el entero-nómina que proporcionará la Dirección. El patrono, empleador o pagador queda obligado, según lo dispone el artículo 37 de la ley, a efectuar el pago del impuesto aún cuando no hubiera practicado la retención.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 37 ocupó el lugar que antes correspondía al artículo 36).
+(Así reformado por el inciso 12) del artículo 8 del Decreto Ejecutivo N° 29643 de 10 de julio del 2001).

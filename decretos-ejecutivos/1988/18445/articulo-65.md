@@ -1,27 +1,7 @@
-ARTICULO 65.- Liquidación y pago. Las retenciones que se practiquen
-conforme al artículo 54 de la ley, constituyen pago único y definitivo a
-cargo de los beneficiarios por las rentas correspondientes y los
-obligados a efectuarlas tienen carácter de agentes de retención, y en
-ellos se subrogará la obligación conforme al artículo 52 de la ley. Los
-depósitos se deben efectuar en el Banco Central de Costa Rica o en las
-tesorerías auxiliares autorizadas, dentro de los primeros diez días
-hábiles del mes siguiente de practicadas las retenciones. Para efectos de
-lo dispuesto en el artículo 56 de la ley, el beneficiario del exterior o
-su agente de retención, deberá probar a la Dirección que en su país no se
-le concede crédito o deducción alguna por el impuesto pagado en Costa
-Rica, mediante certificación de la administración de impuestos en que
-declara, debidamente autenticada por autoridad competente a juicio de la
-Dirección. Dicho documento deberá indicar:
-a) El monto de las rentas de fuente costarricense declaradas por el
-beneficiario; y
-b) Las razones por las que no se le concede el crédito o deducción
-por el impuesto pagado en Costa Rica, o bien, el motivo por el
-cual éstos se disminuyen.
-Mientras tal comprobación no se lleve a cabo y no se cuente con la
-autorización de la Dirección, se mantiene la obligación a cargo del
-agente retenedor. Si la autorización se le concede con posterioridad a
-la fecha de retención, puede solicitar el crédito, conforme con lo
-dispuesto en el Código de Normas y Procedimientos Tributarios.
-No procede eximir de la obligación de retener y pagar el impuesto
-cuando en el país de domicilio del beneficiario, dichos ingresos no estén
-gravados con un impuesto sobre la renta.
+ARTICULO 65.- Liquidación y pago. Las retenciones que se practiquen conforme al artículo 54 de la ley, constituyen pago único y definitivo a cargo de los beneficiarios por las rentas correspondientes y los obligados a efectuarlas tienen carácter de agentes de retención, y en ellos se subrogará la obligación conforme al artículo 52 de la ley. Los depósitos se deben efectuar en el Banco Central de Costa Rica o en las tesorerías auxiliares autorizadas, dentro de los primeros quince días naturales del mes siguiente de practicadas las retenciones. Para efectos de lo dispuesto en el artículo 56 de la ley, el beneficiario del exterior o su agente de retención, deberá probar a la Dirección que en su país no se le concede crédito o deducción alguna por el impuesto pagado en Costa Rica, mediante certificación de la administración de impuestos en que declara, debidamente autenticada por autoridad competente a juicio de la Dirección. Dicho documento deberá indicar:
+a) El monto de las rentas de fuente costarricense declaradas por el beneficiario; y
+b) Las razones por las que no se le concede el crédito o deducción por el impuesto pagado en Costa Rica, o bien, el motivo por el cual éstos se disminuyen.
+Mientras tal comprobación no se lleve a cabo y no se cuente con la autorización de la Dirección, se mantiene la obligación a cargo del agente retenedor. Si la autorización se le concede con posterioridad a la fecha de retención, puede solicitar el crédito, conforme con lo dispuesto en el Código de Normas y Procedimientos Tributarios.
+No procede eximir de la obligación de retener y pagar el impuesto cuando en el país de domicilio del beneficiario, dichos ingresos no estén gravados con un impuesto sobre la renta.
+(De acuerdo con la reforma practicada por el artículo 2 del Decreto Ejecutivo N° 20620 de 8 de agosto de 1991 se corrió la numeración y el presente artículo 65 ocupó el lugar que antes correspondía al artículo 64).
+(Así reformado su primer párrafo por el inciso 14) del artículo 8 del Decreto Ejecutivo N° 29643 de 10 de julio del 2001).

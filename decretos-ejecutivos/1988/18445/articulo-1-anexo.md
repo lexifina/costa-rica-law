@@ -1,16 +1,10 @@
 ANEXOS
-En acatamiento de lo dispuesto en los artículos 6º, inciso b), 8º,
-incisos f) y h) de la ley, se deben observar las disposiciones que
-seguidamente se enuncian:
+En acatamiento de lo dispuesto en los artículo 8º, incisos f) y h) de la ley,
+se deben observar las disposiciones que seguidamente se enuncian:
 ANEXO Nº 1
-DE LAS REVALUACIONES, LA DEPRECIACION, EL AGOTAMIENTO
-Y AMORTIZACIONES
-1.- Normas para la revaluación de activos depreciables. Para efectos
-de la revaluación de los activos fijos depreciables, se procederá
-conforme a los procedimientos que mediante resolución establezca la
-Administración Tributaria, a más tardar el 31 de agosto de cada año.
-Caso de no emitirse esa resolución, el contribuyente podrá aplicar un
-sistema técnicamente aceptable para la Dirección.
+DE LA DEPRECIACIÓN , EL AGOTAMIENTO Y AMORTIZACIONES.
+1.- DEROGADO por el inciso 15) del artículo 8 del Decreto Ejecutivo N° 29643
+de 10 de julio del 2001.
 2.- De la depreciación.
 2.1- Disposiciones generales. Las depreciaciones cuya deducción se
 admite, son las que corresponda efectuar sobre bienes tangibles,
@@ -20,13 +14,16 @@ producción de rentas sujetas al impuesto, siempre que como consecuencia
 de su uso, transfieran su costo directa o indirectamente o que pierdan
 valor por el simple transcurso del tiempo o por los adelantos
 tecnológicos.
-Las empresas agropecuarias y agroindustriales podrán además aplicar
-una depreciación especial a los activos nuevos adquiridos, así como a las
-plantaciones, repastos y mejoras realizadas con posterioridad a la
-vigencia de la Ley de Fomento a la Producción Agropecuaria Nº 7064 de 29
-de abril de 1987, durante un período equivalente a la mitad de los años
-de vida útil del bien correspondiente, según la tabla. Para los períodos
-no completos se aplicará la parte proporcional de éstos.
+Las empresas podrán considerar como gasto aquellos activos que adquieran,
+cuyo costo unitario no supere el 25% de un salario base. No obstante, la Dirección
+General de Tributación tendrá facultad en la apreciación, en casos calificados,
+para autorizar al sujeto pasivo, previa solicitud de éste, la deducción como gasto
+en el período de adquisición, del importe correspondiente a aquellos activos,
+cuyo costo supere el 25% señalado, tomando en consideración factores relacionados con
+el valor relativo del bien adquirido en proporción con el total de activos de la empresa,
+así como la actividad económica que desarrolla la entidad.
+(Así reformado por el inciso 15) del artículo 8 del Decreto Ejecutivo N° 29643
+de 10 de julio del 2001).
 (Así adicionado este párrafo por el artículo 2º del Decreto Nº 18686
 de 30 de noviembre de 1988)
 Asimismo, se admite como deducción la depreciación de las mejoras
@@ -191,19 +188,6 @@ libros a la fecha en que ocurra el retiro del bien. En ausencia de tal
 autorización, el declarante debe continuar depreciando el activo,
 manteniendo el método que estuviese utilizando. hasta la finalización de
 su vida útil.
-Las empresas agropecuarias y agroindustriales podrán aplicar el
-incentivo previsto en la Ley Fodea (Nº 7064 del 19 de abril de 1987), en
-cuanto a la deducción de gastos por depreciación de activos nuevos,
-previa solicitud en ese sentido ante la Administración Tributaria. Para
-calcular el gasto adicional por depreciación, originado en este
-incentivo, se tomará el porcentaje de depreciación que corresponde al
-bien por el método de línea recta conforme a la tabla contenida en el
-Anexo 2 de este Reglamento y se aplicará durante la mitad de los años de
-vida útil estimada para el activo de que se trate, según ese mismo anexo.
-No se reconocerá este beneficio si la vida útil de los activos con
-respecto a los cuales se solicita, ha expirado, sin perjuicio de las
-rectificaciones que conforme al Código de Normas y Procedimientos
-Tributarios el contribuyente está facultado a realizar.
 Para tener derecho a la depreciación indicada, las empresas citadas
 si además ejercen otras actividades, deberán llevar cuentas separadas por
 cada actividad, de lo contrario no gozarán de este derecho.
@@ -211,6 +195,8 @@ Transitorio.- La aplicación de los incentivos que establece el
 artículo 24 de la Ley de Fomento a la Producción Agropecuaria Nº 7064,
 referentes al impuesto sobre la renta, rigen a partir del período fiscal
 87.
+(Derogados los párrafos tercero y cuarto del punto 2.7, por el inciso 15)
+del artículo 8 del Decreto Ejecutivo N° 29643 de 10 de julio del 2001).
 (Así reformado por el artículo 17 del decreto ejecutivo No.25046 de
 26 de marzo de 1996)
 3º.- Agotamiento de recursos naturales. En la explotación de recursos
