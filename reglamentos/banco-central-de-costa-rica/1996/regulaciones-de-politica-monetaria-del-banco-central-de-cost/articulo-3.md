@@ -4,14 +4,15 @@ Disposiciones sobre encaje mínimo legal
 Requisito de encaje mínimo legal
 A. Entidades sujetas al requisito de encaje
 Estarán sujetas al requisito de encaje mínimo legal las siguientes entidades:
-1- Las instituciones financieras supervisadas por la Superintendencia General de Entidades Financieras, salvo las que expresamente exima la Junta Directiva del Banco Central de Costa Rica. Particularmente deben cumplir con este requisito:
+(*) 1. Las instituciones financieras supervisadas por la Superintendencia General de Entidades Financieras, salvo las que expresamente exima la Junta Directiva del Banco Central de Costa Rica. Particularmente deben cumplir con este requisito:
 i. Los bancos comerciales del Sistema Bancario Nacional.
 ii. Las empresas financieras no bancarias.
 iii. Las mutuales de ahorro y préstamo.
 iv. El Banco Hipotecario de la Vivienda (BANHVI).
-v. Las Cooperativas de Vivienda que realizan operaciones de intermediación financiera al amparo de la Ley del Sistema Financiero para la Vivienda.
-vi. Las Cooperativas de Ahorro y Crédito que realizan operaciones financieras con no asociados y cuyo nivel de activos netos era al 31 de diciembre de 1995 igual o superior a los ¢200 millones.
+v. Las Cooperativas de vivienda que realizan operaciones de intermediación financiera al amparo de la Ley del Sistema Financiero para la Vivienda.
+vi. Las Cooperativas de Ahorro y Crédito que realizan operaciones financieras con no asociados y cuyo nivel de activos netos al 31 de diciembre de cada año sea igual o superior a los ¢200.0 millones. Para determinar el monto de activos netos se observará lo acordado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 15 de la Sesión 109-99, del 16 de agosto de 1999.
 vii. Cualquier otra entidad sujeta a la supervisión de la Superintendencia General de Entidades Financieras y que no haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central.
+(*) (Así reformado el numeral anterior en sesión N° 5067 del 21 de febrero de 2001)
 2- Los puestos de bolsa que utilicen mecanismos de administración de carteras de títulos, tales como los denominados OPAB, CAV, OMED o similares.
 B. Operaciones sujetas al requisito de encaje
 Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos depósitos y obligaciones, en moneda nacional y en moneda extranjera, que constituyan las entidades mencionadas en el literal A de este capítulo. Lo anterior comprende los siguientes instrumentos o similares:
