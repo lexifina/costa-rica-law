@@ -1,0 +1,1 @@
+Artículo 91.-Para integrar el personal de la Unión Panamericana se tendrá en cuenta, en primer término, la eficacia, competencia y honestidad; pero se dará importancia, al propio tiempo, a la necesidad de que el personal sea escogido con un criterio geográfico tan amplio como sea posible.

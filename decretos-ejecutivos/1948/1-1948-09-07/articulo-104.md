@@ -1,0 +1,1 @@
+Artículo 104.-Los representantes de los Gobiernos en el Consejo de la Organizaron, los representantes en los órganos del Consejo, el personal que integre las representaciones, as! como el Secretario General y el Secretario General Adjunto de la Organización, gozarán de los privilegios e inmunidades necesarios para desempeñar con independencia sus funciones.

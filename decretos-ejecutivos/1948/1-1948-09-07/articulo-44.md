@@ -1,0 +1,1 @@
+Artículo 44.-Se establece un Comité Consultivo de Defensa para asesorar al Órgano de Consulta en los problemas de colaboración militar que puedan suscitarse con motivo de la aplicación de los tratados especiales existentes en materia de seguridad colectiva.

@@ -1,0 +1,1 @@
+Artículo 90.-Todos los Miembros de la Organización de los Estados Americanos se comprometen a respetar la naturaleza exclusivamente internacional de las responsabilidades del Secretario General y del personal y a no tratar de influir sobre ellos en el desempeño de sus funciones.

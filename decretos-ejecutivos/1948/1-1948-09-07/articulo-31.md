@@ -1,0 +1,1 @@
+Artículo 31.-Los Estados Miembros se comprometen a facilitar, dentro del respeto debido a la personalidad de cada uno de ellos, el libre intercambio cultural a través de todos los medios de expresión.

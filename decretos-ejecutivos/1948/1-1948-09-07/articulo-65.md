@@ -1,0 +1,1 @@
+Artículo 65.-El Consejo Interamericano Económico y Social, compuesto par delegados técnicos que designe cada uno de los Estados Miembros de la Organización, celebra sus reuniones por propia iniciativa o por iniciativa del Consejo de la Organización

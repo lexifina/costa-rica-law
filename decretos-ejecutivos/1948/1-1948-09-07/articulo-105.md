@@ -1,0 +1,1 @@
+Artículo 105.-La situacion jurídica de los Organismos Especializados Interamericanos y los privilegios e inmunidades que deben otorgarse a ellos y a su personal, así como a los funcionarios de la Unión Panamericana serán determinados en cada caso mediante arreglos entre los organismos correspondientes y los Gobiernos interesados.

@@ -1,0 +1,1 @@
+Artículo 37.-La Conferencia Interamericana fijará la sede de la siguiente Conferencia. Si por cualquier motivo sobreviniente la Conferencia no pudiere reunirse en dicha sede, corresponde al Consejo de la Organización hacer la nueva designación.

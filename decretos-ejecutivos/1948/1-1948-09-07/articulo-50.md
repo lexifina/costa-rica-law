@@ -1,0 +1,1 @@
+Artículo 50.-EI Consejo conoce, dentro de los límites de la presente Carta y de los tratados y acuerdos interamericanos, de cualquier asunto que Ie encomienden la Conferencia Interamericana o la Reunión de Consulta de Ministros de Relaciones Exteriores.

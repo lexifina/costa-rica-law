@@ -1,0 +1,1 @@
+Artículo 97.-Los Organismos Especializados disfrutan de la más amplia autonomía técnica y deberán tener en cuenta las recomendaciones del Consejo de conformidad con las disposiciones de la presente Carta.

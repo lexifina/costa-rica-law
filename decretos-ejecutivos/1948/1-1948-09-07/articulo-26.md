@@ -1,0 +1,1 @@
+Artículo 26.-Los Estados Miembros convienen en cooperar entre sí, en la medida de sus recursos y dentro de los términos de sus leyes, con el más amplio espíritu de buena vecindad, a fin de consolidar su estructura económica, intensificar su agricultura y su minería, fomentar su industria e incrementar su comercio.

@@ -1,0 +1,1 @@
+Artículo 62.-El Consejo de la Organización, asesorándose de las entidades correspondientes y previa consulta con los Gobiernos, formulará los estatutos de sus órganos en desarrollo y dentro de los preceptos de esta Carta. Dichos órganos expedirá sus propios reglamentos.

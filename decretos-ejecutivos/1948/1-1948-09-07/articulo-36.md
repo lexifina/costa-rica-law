@@ -1,0 +1,1 @@
+Artículo 36.-En circunstancias especiales y con la aprobación de los dos tercios de los Gobiernos Americanos, puede reunirse una Conferencia Interamericana extraordinaria o modificarse la fecha de reunión de la ordinaria siguiente.

@@ -1,0 +1,1 @@
+Artículo 60.-Los órganos del Consejo de la Organización, dentro de sus posibilidades, prestarán a los Gobiernos los servicios técnicos que estos soliciten; y asesorarán, en la esfera de su competencia, al Consejo de la Organización.

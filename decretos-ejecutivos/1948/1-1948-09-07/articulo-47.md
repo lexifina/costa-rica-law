@@ -1,0 +1,1 @@
+Artículo 47.-Cuando la Conferencia o la Reunión de Consulta o los Gobiernos, por mayoría de dos terceras partes de los Estados Miembros, Ie encomienden estudios técnicos o informes sobre temas específicos, el Comité se reunirá también para ese fin.

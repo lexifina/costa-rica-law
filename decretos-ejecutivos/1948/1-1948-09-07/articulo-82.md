@@ -1,0 +1,1 @@
+Artículo 82.-La Unión Panamericana, por intermedio de sus oficinas técnicas y de información, promoverá bajo la dirección del Consejo las relaciones económicas, sociales, jurídicas y culturales entre todos los Estados Miembros de la Organización.

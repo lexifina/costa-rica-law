@@ -1,0 +1,1 @@
+Artículo 23.-Un tratado especial establecerá los medios adecuados para resolver las controversias y determinará los procedimientos pertinentes a cada uno de los medios pacíficos, en forma de no dejar que ninguna controversia que surja entre los Estados Americanos pueda quedar sin solución definitiva dentro de un plazo razonable.

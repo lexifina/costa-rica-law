@@ -1,0 +1,1 @@
+Artículo 61.-Los órganos del Consejo de la Organización, de acuerdo con este, establecerán relaciones de cooperación con los órganos correspondientes de las Naciones Unidas y con los organismos nacionales o internacionales que funcionen dentro de sus respectivas esferas de acción.

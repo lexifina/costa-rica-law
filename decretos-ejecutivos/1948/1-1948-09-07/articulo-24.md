@@ -1,0 +1,1 @@
+Artículo 24.-Toda agresión de un Estado contra la integridad o la inviolabilidad del territorio o contra la soberanía o la independencia política de un Estado Americano, será considerada como un acto de agresión contra los demás Estados Americanos

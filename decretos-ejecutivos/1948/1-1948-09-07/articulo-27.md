@@ -1,0 +1,1 @@
+Artículo 27.-Si la economía de un Estado Americano se viera afectada por situaciones graves que no pudiesen ser satisfactoriamente resueltas por su exclusivo y único esfuerzo, dicho Estado podrá plantear sus problemas económicos al Consejo Interamericano Económico y Social, a fin de buscar, mediante consulta, la solución más adecuada de tales problemas.

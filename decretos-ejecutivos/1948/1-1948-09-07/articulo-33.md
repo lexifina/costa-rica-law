@@ -1,0 +1,2 @@
+Capítulo X-La conferencia Interamericana
+Artículo 33.-La conferencia Interamericana es el órgano supremo de la Organización de los Estados Americanos. Ella decide la acción y la política generales de la Organización, determina la estructura y funciones de sus órganos y tiene facultades para considerar cualquier asunto relativo a la convivencia de los Estados Americanos. Ejercerá estas atribuciones de acuerdo con lo dispuesto en esta Carta y en otros tratados interamericanos.

@@ -1,0 +1,1 @@
+Artículo 21.-Son procedimientos pacíficos: la negociación directa, los buenos oficios, Ia mediación, la investigación y conciliación, el procedimiento judicial, el arbitraje y los que especialmente acuerden, en cualquier momento, las partes.

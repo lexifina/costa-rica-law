@@ -1,0 +1,1 @@
+Artículo 109.-La presente Carta entrará en vigor, entre los Estados que la ratifiquen, cuando los dos tercios de los Estados signatarios hayan depositado sus ratificaciones. En cuanto a los Estados restantes entrará en vigor en el orden en que depositen sus ratificaciones.

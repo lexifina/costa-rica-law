@@ -1,0 +1,1 @@
+Artículo 78.-La Unión Panamericana es organo central y permanente de la Organización de los Estados Americanos y Secretaría General de la Organización. Ejercerá las funciones que se Ie atribuyen en esta Carta y las que Ie señalen otros tratados y acuerdos Interamericanos.

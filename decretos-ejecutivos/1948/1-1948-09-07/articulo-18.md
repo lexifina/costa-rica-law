@@ -1,0 +1,1 @@
+Artículo 18.-Los Estados Americanos se obligan en sus relaciones internacionales a no recurrir al uso de la fuerza, salvo el caso de legítima defensa, de conformidad con los tratados vigentes o en cumplimiento de dichos tratados.

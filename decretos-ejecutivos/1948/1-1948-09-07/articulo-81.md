@@ -1,0 +1,1 @@
+Artículo 81.-EI Secretario General participa, con voz pero sin voto, en las deliberaciones de la Conferencia Interamericana, la Reunión de Consulta de Ministros de Relaciones Exteriores, las Conferencias Especializadas, el Consejo y sus órganos.

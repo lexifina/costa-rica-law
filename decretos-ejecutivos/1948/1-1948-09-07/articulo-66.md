@@ -1,0 +1,1 @@
+Artículo 66.-El Consejo Interamericano Económico y Social funciona en la sede de la Unión Panamericana, pero puede celebrar reuniones en cualquier ciudad de los países americanos, por decisión de la mayoría de los Estados Miembros

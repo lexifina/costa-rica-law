@@ -1,0 +1,1 @@
+Artículo 107.-La Organización de los Estados Americanos no reconoce restricción alguna en cuanto a la elegibilidad de hombres y mujeres para participar en las actividades y en los cargos de los diferentes Organos.

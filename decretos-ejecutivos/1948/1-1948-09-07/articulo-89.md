@@ -1,0 +1,1 @@
+Artículo 89.-En el desempefio de sus deberes, el personal no buscará ni recibirá instrucciones de ningún gobierno ni de ninguna autoridad ajena a la Unión Panamericana. Se abstendrá de hacer nada que pueda reflejarse sobre su posición de funcionarios internacionales responsables solo ante la Unión

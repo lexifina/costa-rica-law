@@ -1,0 +1,1 @@
+Artículo 13.-Cada Estado tiene el derecho a desenvolver libre y espontáneamente su vida cultural, política y económica. En este libre desenvolvimiento el Estado respetará los derechos de la persona humana y los principios de la moral universal.

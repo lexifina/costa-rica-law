@@ -1,0 +1,1 @@
+Artículo 67.-El Consejo Interamericano de Jurisconsultos tiene como finalidad servir de cuerpo consultivo en asuntos jurídicos; promover el desarrollo y la codificación del derecho internacional publico y del derecho internacional privado; y estudiar la posibilidad de uniformar las legislaciones de los diferentes países americanos en cuanto esto parezca conveniente.

@@ -1,0 +1,1 @@
+Artículo 94.-El programa y el reglamento de las Conferencias Especializadas serán preparados por los órganos del Consejo de la Organización o por los Organismos Especializados interesados, sometidos a la consideración de los Gobiernos Miembros y enviados al Consejo para su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 77.--EI Comité de Acción Cultural funcionará como comisión permanente del Consejo Interamericano Cultural con el fin de preparar trabajos que este Ie encomiende, y sobre los cuales el Consejo decide en definitiva.

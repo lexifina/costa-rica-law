@@ -1,0 +1,1 @@
+Artículo 70.-El Comité Jurídico debe emprender los estudios y trabajos preparatorios que Ie encomienden el Consejo Interamericano de Juris consulto, la Conferencia Interamericana, la Reunión de Consulta de Ministros de Relaciones Exteriores o el Consejo de la Organización. Además, puede realizar los que de su propia iniciativa considere convenientes.

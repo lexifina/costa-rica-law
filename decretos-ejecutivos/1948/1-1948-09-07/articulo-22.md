@@ -1,0 +1,1 @@
+Artículo 22.-Cuando entre dos o más Estados Americanos se suscite una controversia que, en opinión de uno de elIos, no pueda ser disuelta por los medios diplomáticos usuales, las Partes deberán convenir en cualquier otro procedimiento pacífico que les permita llegar a una solución.

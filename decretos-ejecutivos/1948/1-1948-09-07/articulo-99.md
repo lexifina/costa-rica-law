@@ -1,0 +1,1 @@
+Artículo 99.-Los acuerdos entre el Consejo y los Organismos Especializados previstos en el ordinal c) del Aríiculo 53 pueden establecer que dichos organismos envien al Consejo sus presupuestos para su aprobación. También puede preveerse que la Unión Panamericana reciba las cuotas de los países contribuyentes y las distribuya conforme a los acuerdos pertinentes.

@@ -1,0 +1,1 @@
+Artículo 3.-En la Organización tendrá su lugar toda nueva entidad política que nazca de la Unión de varios de sus Estados Miembros y que como tal ratifique esta Carta. EI ingreso de la nueva entidad política en la Organización producirá, para cada uno de los Estados que la constituyan, la pérdida de la calidad de Miembro de la Organización

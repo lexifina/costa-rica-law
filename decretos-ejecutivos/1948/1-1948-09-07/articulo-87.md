@@ -1,0 +1,1 @@
+Artículo 87.-El Consejo, con el voto de los dos tercios de sus miembros, puede remover al Secretario General o al Secretario General Adjunto, cuando así lo exija el buen funcionamiento de la Organización.

@@ -1,0 +1,1 @@
+Artículo 40.-Cualquier Estado Miembro puede pedir que se convoque la Reunión de Consulta. La solicitud debe dirigirse al Consejo de la Organización, el cual decidirá por mayoría absoluta de votos si es procedente la Reunión .

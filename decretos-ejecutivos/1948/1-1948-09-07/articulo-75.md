@@ -1,0 +1,1 @@
+Artículo 75.-El Consejo Interamericano Cultural señala la sede de la siguiente reunión y se congrega por convocatoria del Consejo de la Organización en la fecha acordada entre este y el Gobierno del país escogido como sede.

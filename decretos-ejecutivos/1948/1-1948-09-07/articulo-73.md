@@ -1,0 +1,1 @@
+Artículo 73.-El Consejo Interamericano Cultural tiene como finalidad promover las relaciones amistosas y el entendimiento mutuo entre los pueblos americanos para fortalecer los sentimientos pacíficos que han caracterizado la evolución americana, mediante el estímulo del intercambio educacional, cienífico y cultural

@@ -1,0 +1,1 @@
+Artículo 14.-El respeto y la fiel observancia de los tratados constituyen normas para el desarrollo de las relaciones pacíficas entre los Estados. Los tratados y acuerdos internacionales deben ser públicos.

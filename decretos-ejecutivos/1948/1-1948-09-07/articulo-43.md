@@ -1,0 +1,1 @@
+Artículo 43.-En caso de ataque armado, dentro del territorio de un Estado Americano o dentro de la región de seguridad que delimitan los tratados vigentes, la Reunión de Consulta se efectuará sin demora por convocatoria que deberá hacerle inmediatamente el Presidente del Consejo de la Organización, quien, al mismo tiempo, hará reunir al propio Consejo.

@@ -1,0 +1,1 @@
+Artículo 58.-Los órganos a que se refiere el artículo anterior tiener: autonomía técnica dentro de los límites de esta Carta; pero sus decisiones no pueden invadir la esfera de acción que corresponde al Consejo de la Organización.

@@ -1,0 +1,1 @@
+Artículo 17.-El territorio de un Estado es inviolable; no puede ser objeto de ocupación militar ni de otras medidas de fuerza tomadas por otro Estado, directa o indirectamente, cualquiera que fuere el motivo, aún de manera temporal. No se reconocerán las adquisiciones territoriales o las ventajas especiales que se obtengan por la fuerza o por cualquier otro medio de coacción.

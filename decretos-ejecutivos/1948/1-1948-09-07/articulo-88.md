@@ -1,0 +1,1 @@
+Artículo 88.- Los Jefes de los Departamentos respectivos de la "Unión Panamericana, nombrados por el Secretario General, son los Secretarios Ejecutivos del Consejo Interamericano Económico y Social, del de Jurisconsultos y del Cultural.

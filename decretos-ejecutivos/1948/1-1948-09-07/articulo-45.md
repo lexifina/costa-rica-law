@@ -1,0 +1,1 @@
+Artículo 45.-EI Comité Consultivo de Defensa se integrará con las más altas autoridades militares de los Estados Americanos que participen en la Reunión de Consulta Excepcionalmente los Gobiernos podrán designar sustitutos. Cada Estado tendrá derecho a un voto.

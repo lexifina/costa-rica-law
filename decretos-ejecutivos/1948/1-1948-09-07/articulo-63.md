@@ -1,0 +1,1 @@
+Artículo 63.-El Consejo Interamericano Económico y Social tiene como finalidad principal promover el bienestar económico y social de los países americanos, mediante la cooperación efectiva entre ellos para el mejor aprovechamiento de sus recursos naturales, su desarrollo agrícola e industrial y la elevación del nivel de vida de sus pueblos. .

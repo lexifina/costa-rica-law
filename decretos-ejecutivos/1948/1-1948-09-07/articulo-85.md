@@ -1,0 +1,1 @@
+Artículo 85.-Habrá un Secretario General Adjunto, elegido por el Consejo para un término de diez años y que puede ser reelegido. En caso de que ocurra una vacante en el cargo de Secretario General Adjunto, el Consejo elegirá al sustituto dentro de los noventa días siguientes, para que ejerza sus funciones durante el resto del respectivo período.

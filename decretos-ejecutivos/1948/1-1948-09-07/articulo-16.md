@@ -1,0 +1,1 @@
+Artículo 16.-Ningún Estado podrá aplicar o estimular medidas coercitivas de carácter económico y político para forzar la voluntad soberana de otro Estado y obtener de este ventajas de cualquier naturaleza.

@@ -1,0 +1,1 @@
+Artículo 19.-Las medidas que de acuerdo con los tratados vigentes, se adopten para el mantenimiento de la paz y la seguridad, no constituyen violación de los principios enunciados en los articulos 15 y 17.

@@ -1,0 +1,1 @@
+Artículo 106.-La correspondencia de la Organización de los Estados Americanos, incluso impresos y paquetes, cuando lleve su sello de franquicia, circulara exenta de porte por los correos de los Estados Miembros

@@ -1,0 +1,1 @@
+Articulo 111.-Las reformas a la presente Carta solo podrán ser adoptadas en una Conferencia Interamericana convocada para tal objeto. Las reformas entraran en vigor en 105 mismos términos y según el procedimiento establecido en el Articulo 109.

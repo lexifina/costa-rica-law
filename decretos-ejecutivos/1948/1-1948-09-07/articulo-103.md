@@ -1,0 +1,1 @@
+Artículo 103.- La Organización de los Estados Americanos gozará en el territorio de cada uno de sus Miembros de la capacidad jurídica , privilegios e inmunidades que sean necesarias para el ejercicio de sus funciones y la realización de sus propósitos.

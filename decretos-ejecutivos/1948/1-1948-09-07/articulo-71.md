@@ -1,0 +1,1 @@
+Artículo 71.-El Consejo Interamericano de Jurisconsultos y el Comité Jurídico deben procurar la cooperación de las comisiones nacionales para la codificación del derecho internacional, la de institutos de derecho internacional, de derecho comparado y otras entidades especializadas.
