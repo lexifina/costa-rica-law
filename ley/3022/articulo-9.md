@@ -4,5 +4,5 @@ Transitorio I.- La Dirección General de Hacienda asumirá
 paulatinamente sus funciones en un plazo máximo de un año.
 Transitorio II.- Dentro del mismo plazo anterior, deberá tomar las
 medidas pertinentes a fin de que las oficinas o funcionarios
-administradores de rentas públicas, no pertenecientes al Ministro de
+administradores de rentas públicas, no pertenecientes al Ministerio de
 Hacienda, pasen a formar parte de éste.
