@@ -1,0 +1,1 @@
+Artículo 4º.- La Junta Directiva del Banco Nacional de Costa Rica podrá disponer únicamente del capital asignado a la Sección de Tierras y Colonias en el inciso d) del artículo 8º para organizar esa Sección para efecto de que, al emitirse la ley a que se refiere el artículo 48, la citada Sección pueda comenzar a funcionar debidamente.
