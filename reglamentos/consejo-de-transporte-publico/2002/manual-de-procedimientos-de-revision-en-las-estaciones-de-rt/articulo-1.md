@@ -1,4 +1,5 @@
 CONSEJO DE TRANSPORTE PÚBLICO
+(Nota: El Consejo de Seguridad Vial, aprobó un nuevo Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en las Estaciones RTV, en sesión N° 2673 del 24 de abril de 2012)
 SECRETARÍA EJECUTIVA
 En el ejercicio de la facultades que al efecto confiere el numeral 65.1 de la Ley General de la Administración Pública, Nº 6227/78, el numeral 7 de la Ley Reguladora del Servicio Público del Transporte Renumerado de Personas en Vehículos en la Modalidad de Taxi, Nº 7969 del 22 de diciembre de 1999, certifica:
 1. Que en la sesión ordinaria 027-2002 del 12 de abril del 2002 de la Junta Directiva del Concejo de Transporte Público se adoptó el acuerdo que en lo literal indica:
@@ -182,66 +183,30 @@ Asimismo se comprobarán los siguientes puntos:
 1.07. Soporte rueda de repuesto. Se comprobará visualmente su estado y sujeción al vehículo.
 1.08. Portaequipajes (canastilla). Se inspeccionará que no tiene aristas cortantes y que esté fijado solidamente al vehículo.
 1C. Interpretación de defectos.
-1.01.- Placas de matrícula DL DG DP
-Inexistencia X
-No coincidencia con la documentación X
-Ilegibilidad de delantera o trasera u oculta
-total o parcialmente X
-En mal estado, o defectos de sujeción X
-Con aristas vivas o riesgo de desprendimiento X
-Placa no es original X
-Si la placa no es original y no existe solicitud
-de reposición X
-1.02.- Rótulos indicativos DL DG DP
-En casos de obligatoriedad, ilegibilidad
-o inexistencia X
-Rótulos no autorizados X
-Defectos de estado o sujeción X
-Con aristas o riesgos de desprendimiento X
-Dimensiones no reglamentarias X
-1.03.- Retrovisores exteriores DL DG DP
-Inexistentes X
-Ausencia del espejo exterior izquierdo X
-Ausencia del espejo exterior derecho cuando
-el retrovisor interior no cumpla su función X
-Defectos en sujeción X
-Defectos en sujeción con peligro de
-desprendimiento X
-1.04.- Limpiaparabrisas, lavaparabrisas. DL DG DP
-Limpiaparabrisas. Inexistencia o defecto
-de funcionamiento X
-Limpiaparabrisas. Otros defectos
-(escobillas en mal estado) X
-Lavaparabrisas. Defectos de funcionamiento X
-Lavaparabrisas inexistente. X
-1.05.- Guardabarros DL DG DP
-Defectos en sujeción X
-Defectos en sujeción con peligro de
-desprendimiento X
-Ausencia o ineficacia X
-1.06.- Modificaciones no autorizadas DL DG DP
-Cualquier cambio de las características
-básicas del vehículo efectuada sin
-autorización. Si la modificación
-conlleva riesgos para la seguridad vial,
-se calificará según el capítulo
-correspondiente.
-Ausencia del número de Chasis o VIN X
-Si no coincide número de Chasis o VIN
-con la documentación X
-Está manipulado, alterado o ilegible
-el número de Chasis o VIN X
-Si no coincide el número de motor con
-la documentación X
-Está manipulado, alterado o ilegible
-el número de motor X
-1.07.- Soporte rueda repuesto DL DG DP
-Defectos de Sujeción X
-Posibilidad de desprendimiento X
-Rotura o salientes del soporte que
-den lugar a aristas vivas X
-1.08.- Portaequipajes (canastilla) DL DG DP
-Existencia de aristas X
-Defectos de fijación X
-Defectos de fijación con peligro de
-desprendimiento X
+1.01 Placas de matrícula | DL | DG | DP
+Inexistencia o no coincidencia con la documentación | | X |
+Ilegibilidad de delantera o trasera u oculta total o parcialmente | | X |
+En mal estado, o defectos de sujeción | X | |
+Con aristas vivas o riesgo de desprendimiento | X | |
+Si la placa no es original y no existe solicitud de reposición | | X |
+1.02 Rótulos indicativos | | |
+En casos de obligatoriedad, ilegibilidad o inexistencia | | X |
+Rótulos no autorizados | | X |
+Defectos de estado o sujeción, con aristas o riesgos de desprendimiento | X | |
+Dimensiones no reglamentarias | X | |
+1.03 Retrovisores exteriores | | |
+Inexistentes, conforme la Ley de Tránsito | | X |
+Defectos en sujeción con peligro de desprendimiento | X | |
+1.04 Limpiaparabrisas, lava parabrisas | | |
+Escobillas, Inexistencia o defecto de funcionamiento. | | X |
+Escobillas, Inexistencia o defecto de funcionamiento solo en del lado derecho del parabrisas en vehículos pesados. | X | |
+Lava parabrisas. Defectos de funcionamiento o inexistente. | X | |
+1.05 Guardabarros | | |
+Inexistencia, defectos en sujeción con peligro de desprendimiento | | X |
+1.06 Modificaciones no autorizadas/Identificación | | |
+Ausencia del número de Chasis o VIN | | X |
+Si no coincide número de Chasis o VIN con la documentación. | | X |
+Está manipulado, alterado o ilegible el número de Chasis o VIN | | X |
+Si no coincide el número de motor con la documentación(Excepto cuando el número de motor es la identificación, que es falta grave) | X | |
+Está manipulado, alterado o ilegible el número de número de motor (Excepto cuando el número de motor es la identificación, que es falta grave) | X | |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

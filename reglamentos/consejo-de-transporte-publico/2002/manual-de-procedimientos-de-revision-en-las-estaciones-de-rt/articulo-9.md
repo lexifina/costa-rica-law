@@ -117,82 +117,54 @@ a) Instalación eléctrica:
 b) Batería:
 - En la batería se comprobará: la sujeción al chasis, fugas electrolito y estado de los bornes y conexiones.
 9C. Interpretación de defectos
-9.01.- Chasis, soportes, fijaciones DL DG DP
-Torceduras, dobleces, alargamientos,
-calentamientos, corrosiones, fisuras,
-roturas, soldaduras, etc. X
-Torceduras, dobleces, alargamientos,
-calentamientos, corrosiones, fisuras,
-roturas, soldaduras, etc.
-en elementos sometidos a tensión X
-Falta de paralelismo, simetría
-u ortogonalidad X
-9.02.- Caja de cambios, transmisión,
-semiejes DL DG DP
-Falta de estanqueidad en cárter X
-Guardapolvos rotos o deteriorados
-de semiejes X
-Fijaciones de soportes al chasis defectuosas X
-Holguras y deficiencias en transmisión X
-Holguras y deficiencias en transmisión
-excesivas X
-Flectores o uniones de hule dañadas X
-Desgaste en rodamientos de cruceta X
-Soportes de barra centrales de
-transmisión dañados X
-9.03. Tipo de motor DL DG DP
-Fijación del motor defectuosa X
-No coincidencia del tipo de motor con
-lo señalado en la documentación X
-No existencia de sellos en seguridad en
-la bomba de los vehículos de motor diesel X
-Pérdidas de aceite en el motor X
-Si las pérdidas de aceite en el motor
-produce un goteo X
-9.04.- Depósito de combustible, tapón
-y conducciones DL DG DP
-Fugas en depósito y/o conducciones X
-Si existe fuga importante o con riesgo
-de incendio X
-Corrosión en deposito y/o conducciones X
-Defectos de sujeción X
-Distancias muy cortas entre conducciones
-y piezas calientes y/o conexiones eléctricas X
-Estado defectuoso del tapón del depósito
-o la toma del respiradero X
-Carencia del tapón de llenado X
-9.05.- Instalación G.L.P. DL DG DP
-Instalación en vehículo no autorizado X
-Elementos mal sujetos al vehículo X
-Elementos sometidos a fuertes vibraciones X
-Existencia de elementos con corrosión
-o en mal estado X
-9.06. Tubo de escape, silenciador DL DG DP
-Corrosión avanzada en el tubo de escape X
-Fijación defectuosa del tubo de escape
-o componentes X
-Fijación defectuosa con peligro de
-desprendimiento X
-Inexistencia del catalizador o la sonda
-sensora de oxigeno(lambda) en los
-vehículos que lo requieran X
-Fugas o perforaciones en tuberías o
-componentes del sistema X
-Ubicación inadecuada del tubo de escape
-en vehículos de transporte de productos
-peligrosos X
-9.07.- Nivel de ruidos DL DG DP
-Se superan los valores máximos admitidos X
-9.08.- Emisión de contaminantes DL DG DP
-No reúne las condiciones previas a la prueba X
-Nivel de contaminantes supera el máximo
-permitido X
-9.09.-Instalación eléctrica y batería DL DG DP
-Defectos en la instalación eléctrica
-(conexiones, aislamiento, sujeciones
-y localizaciones X
-Si existe riesgo de corto circuito X
-Fijación defectuosa de la batería X
-Fugas de electrolito X
-Defectos de estado en bornes
-y conexiones X
+9.01 Chasis, soportes, fijaciones | | |
+Torceduras, dobleces, alargamientos, calentamientos, corrosiones, fisuras, roturas, soldaduras, etc. | X | |
+Torceduras, dobleces, alargamientos, calentamientos, corrosiones, fisuras, roturas, soldaduras, en elementos sometidos a tensión | | X |
+Falta de paralelismo, simetría u ortogonalidad | | X |
+9.02 Caja de cambios, transmisión, semiejes | | |
+Falta de estanqueidad en cárter | X | |
+Guardapolvos rotos o deteriorados de semiejes | X | |
+Fijaciones de soportes al chasis defectuosas | | X |
+Holguras y deficiencias en transmisión | X | |
+Flectores o uniones de hule dañadas | X | |
+Desgaste excesivo en rodamientos de cruceta | | | X
+Soportes de barra centrales de transmisión dañados | | | X
+9.03 Motor | | |
+Fijación del motor defectuosa | | | X
+No coincidencia del tipo de motor con lo señalado en la documentación | | X |
+No existencia de sellos en seguridad en la bomba de los vehículos de motor diesel | X | |
+Pérdidas de aceite en el motor X | X | |
+Si las pérdidas de aceite en el motor produce un goteo continuo | | X |
+9.04 Depósito de combustible, tapón y conducciones | | |
+Fugas leves en depósito y/o conducciones | X | |
+Si existe fuga importante o con riesgo de incendio | | | X
+Corrosión en deposito y/o conducciones | X | |
+Defectos de sujeción | X | |
+Distancias muy cortas entre conducciones y piezas calientes y/o conexiones eléctricas | X | |
+Estado defectuoso del tapón del depósito o la toma del respiradero | X | |
+Carencia del tapón de llenado | | X |
+9.05 Instalación G.L.P. | | |
+Instalación en vehículo no autorizado | | X |
+Elementos mal sujetos al vehículo | | X |
+Elementos sometidos a fuertes vibraciones | | X |
+Existencia de elementos con corrosión o en mal estado | | X |
+9.06 Tubo de escape, silenciador | | |
+Corrosión avanzada en el tubo de escape | X | |
+Fijación defectuosa del tubo de escape o componentes | X | |
+Fijación defectuosa con peligro de desprendimiento | | X |
+Inexistencia del catalizador o la sonda sensora de oxigeno (lambda) en los vehículos que lo requieran | | X |
+Fugas o perforaciones importantes en tuberías o componentes del sistema | | X |
+Ubicación inadecuada del tubo de escape en vehículos de transporte de productos peligrosos | | X |
+Inexistencia del silenciador o con modificaciones | X | |
+9.07 Nivel de ruidos | | |
+Se superan los valores máximos admitidos | | X |
+9.08 Emisión de contaminantes | | |
+No reúne las condiciones previas a la prueba | | X |
+No cumple con los límites de control de emisiones contaminantes | | X |
+9.09 Instalación eléctrica y batería | | |
+Defectos en la instalación eléctrica (conexiones, aislamiento, sujeciones y localizaciones | X | |
+Si existe riesgo de corto circuito | | X |
+Fijación defectuosa de la batería | X | |
+Fugas de electrolito | X | |
+Defectos de estado en bornes y conexiones | X | |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

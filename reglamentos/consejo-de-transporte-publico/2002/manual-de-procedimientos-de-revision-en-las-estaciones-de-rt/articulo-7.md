@@ -2,7 +2,7 @@ CAPÍTULO VII
 Dirección
 7A Procedimiento. Se utilizará el método de inspección mecanizada (alineadora de ruedas) y la inspección visual.
 Una convergencia o divergencia excesiva afecta el comportamiento del vehículo en la estabilidad de la dirección y en un desgaste desigual de su banda de rodadura.
-7.01. Alineación de Ruedas
+7.01. Alineación de Rueda
 - Con las Placas de Alineación se comprobará si la convergencia o divergencia (en su caso) de las ruedas del tren delantero está dentro de los límites.
 - Es imprescindible para una correcta inspección, que el vehículo entre perfectamente alineado en la placa, circulando, por su propia inercia, a marcha lenta y con el volante desasido. La presión de los neumáticos debe estar dentro de los valores señalados por el fabricante.
 - Cuando la inspección se realiza con la rueda izquierda circulando en sentido de marcha sobre la placa, la desalineación es convergente si la placa se desplaza hacia la izquierda.
@@ -41,61 +41,40 @@ c) Comprobación de funcionamiento.
 a) Comprobación de estado y funcionamiento.
 - Comprobar anclaje y estanqueidad.
 7B. Interpretación de defectos
-7.01.- Desviación de ruedas
-(divergencia/ convergencia) DL DG DP
-Desviación de ruedas
-5 m/Km < D = 10 m/Km X
-Desviación D mayor del 10 m/Km X
-7.02.- Volante y columna de dirección.
-Juegos DL DG DP
-Fijación Defectuosa del volante
-a las columnas X
-Holgura en flector y junta cardán X
-Holgura excesiva o fisura en flector
-y junta cardán X
-Juego excesivo en volante X
-Existencia de deformaciones, soldaduras
-o roturas X
-Volante roto o con dimensiones mayores
-o menores en un 25% a lo indicado por
-el fabricante X
-Volante no está en el lado izquierdo
-del vehículo X
-7.03.- Caja de Dirección DL DG DP
-Fijación defectuosa al chasis X
-Número de vueltas desiguales
-a cada lado X
-No existen topes de dirección X
-Fisuras X
-Pérdidas pequeñas de aceite X
-Perdida de abundante de aceite X
-Resistencia al giro X
-Guardapolvos en mal estado o roto X
-Guardapolvos muy deteriorado o ausente X
-7.05.- Rótulas y articulaciones
-(barras de dirección) DL DG DP
-Fisuras o roturas X
-Deformaciones, soldaduras X
-Holgura en rótulas o articulaciones X
-Holgura excesiva en rótulas o
-articulaciones X
-Holgura excesiva en rótulas internas
-de cremallera X
-Guardapolvos en mal estado o roto X
-Guardapolvos muy deteriorado o ausente X
-7.06.- Servodirección accionamiento
-de bombas DL DG DP
-Mal funcionamiento de bomba
-o ruido excesivo X
-Sistemas con baja eficiencia (dureza) X
-Falta de estanqueidad (aparición de líquido) X
-Falta de estanqueidad (fugas de liquido
-elevadas) X
-Mangueras del sistema hidráulico en
-mal estado X
-7.07.- Amortiguador de dirección DL DG DP
-Defectuoso anclaje X
-Deformaciones o fugas del hidráulico
-no importantes X
-Deformaciones o fugas en el sistema
-hidráulico importantes X
+7.01 Desviación de ruedas (divergencia/convergencia) | | |
+Desviación de ruedas 10 m/km. < D = 15 m/km. | X | |
+Desviación D mayor del 15 m/km. | | X |
+7.02 Volante y columna de dirección. Juegos | | |
+Fijación Defectuosa del volante a las columnas | | X |
+Holgura excesiva o fisura en flector y junta cardán | | X |
+Juego excesivo en volante | | X |
+Existencia de deformaciones, soldaduras o roturas | X | |
+Volante roto | | X |
+Volante no está en el lado izquierdo del vehículo | X | |
+7.03 Caja de dirección | | |
+Fijación defectuosa al chasis | X | |
+Número de vueltas desiguales a cada lado | X | |
+No existen topes de dirección | | X |
+Holguras | X | |
+Pérdida abundante de aceite | | X |
+Resistencia al giro | | X |
+Guardapolvos en mal estado o roto | X | |
+Guardapolvos muy deteriorado o ausente | | X |
+7.04 Columna de dirección, brazos y barras | | |
+Holguras excesivas | | X |
+Deformaciones y desperfectos que afecten su funcionamiento | | X |
+Enderezamientos y soldaduras que comprometen su resistencia | | X |
+7.05 Rótulas y articulaciones (barras de dirección) | | |
+Defectos de sujeción o con fisuras o roturas | | X |
+Deformaciones, soldaduras | X | |
+Holgura excesiva en rótulas o articulaciones | | X |
+Holgura excesiva en rótulas internas de cremallera | | X |
+Guardapolvos en mal estado o roto o ausente | X | |
+7.06 Servodirección accionamiento de bombas | | |
+Mal funcionamiento de bomba o ruido excesivo | | X |
+Sistemas con baja eficiencia (dureza) | | X |
+Falta de estanqueidad (fugas de liquido evidentes) | | X |
+Mangueras del sistema hidráulico en mal estado | X | |
+7.07 Amortiguador de dirección | | |
+Ausencia, deformaciones o fugas en el sistema hidráulico | | X |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

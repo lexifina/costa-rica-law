@@ -32,78 +32,38 @@ a) Situación y color de la señalización del Alumbrado de Posición.
 b) Comprobación de estado y funcionamiento.
 - Al actuar el interruptor se comprobará el perfecto funcionamiento del alumbrado de posición.
 4C. Interpretación de defectos.
-4.01.- Luces Demarcadoras DL DG DP
-Situación incorrecta X
-Defectos en cableado y/o estado
-de lentes X
-Color inadecuado X
-No existe y las de posición no pueden
-sustituirlas X
-No funcionan X
-Defectos de sujeción X
-Existencia en vehículos donde está
-prohibido su instalación X
-4.02.- Luces indicadoras Direccionales DL DG DP
-Situación incorrecta X
-Defectos en cableado y/o estado de lentes X
-Color inadecuado X
-Si no cumple su función X
-Número de destellos superior o inferior
-al permitido X
-Defectos de sujeción X
-Mal retorno conmutador a reposo X
-4.03.- Luz de Freno DL DG DP
-Situación incorrecta X
-Color inadecuado X
-Defectos en cableado y/o estado
-de lentes X
-Si no cumple su función X
-Número de luces superior o inferior
-al legislado X
-Inexistencia de luz central cuando
-sea obligatorio X
-No funciona alguna cuando tiene
-dos luces X
-No funciona alguna cuando tiene
-más dos luces X
-Intensidad luminosa menor o igual que
-las de alumbrado de posición X
-4.04.- Señalización intermitente
-de emergencias DL DG DP
-Situación incorrecta X
-Defectos en cableado y/o estado de lentes X
-Color inadecuado X
-Si no cumple su función X
-Número de destellos superior o inferior
-al permitido X
-Defectos de sujeción X
-4.05.- Luces de retroceso DL DG DP
-Situación incorrecta X
-Color inadecuado X
-No cumple su función X
-Defectos en cableado y/o estado
-de lentes X
-4.06.- Dispositivos reflectantes DL DG DP
-Están rotos o son inadecuados X
-Inexistentes cuando son obligatorios X
-4.07.- Bocina DL DG DP
-No funciona X
-Niveles de sonido no reglamentario X
-Múltiples sonidos X
-4.08.- Luces especiales, rotativas
-y/o de destellos DL DG DP
-Colores inadecuados X
-No funcionan X
-Existencia sin autorización X
-Ubicación incorrecta X
-Defectos en cableado y/o estado
-de lentes X
-4.09.- Luz de Posición Trasera y Delantera DL DG DP
-Color no permitido o diferencia
-entre ellas X
-Situación incorrecta X
-No funciona alguna luz trasera X
-No funciona alguna luz delantera X
-Proyector con sujeción defectuosa X
-Si existe peligro de desprendimiento X
-Número de luces no reglamentario X
+4.01 Luces demarcadoras en vehículo de carga | | |
+Ubicación o color incorrecta | X | |
+No existe o no funcionan | X | |
+Defectos de sujeción, cableado y/o estado de lentes | X | |
+4.02 Luces indicadoras direccionales | | |
+Ubicación incorrecta y/o efectos de sujeción | X | |
+Defectos en cableado y/o estado de lentes | X | |
+Si no cumple su función y/o color inadecuado | | X |
+Número de destellos superior o inferior al permitido | X | |
+Mal retorno conmutador a reposo | X | |
+4.03 Luz de freno | | |
+Ubicación incorrecta y/o defectos en cableado y/o estado de lentes | X | |
+Si no cumple su función y/o color inadecuado | | X |
+Número de luces superior o inferior al legislado | | X |
+Inexistencia de luz central cuando sea obligatorio | X | |
+No funciona alguna cuando tiene dos luces | X | |
+No funciona alguna cuando tiene más de dos luces | X | |
+Intensidad luminosa menor o igual que las de alumbrado de posición | | X |
+4.04 Señalización intermitente de emergencias | | |
+Ubicación incorrecta, Inexistencia o no funciona | | X |
+4.05 Dispositivos reflectantes | | |
+Están rotos | X | |
+Son inadecuados | | X |
+Inexistentes cuando son obligatorios | | X |
+4.06 Bocina | | |
+Inexistente o no funciona | | X |
+Niveles de sonido no reglamentario o múltiples sonidos | X | |
+4.07 Luces especiales, rotativas y/o de destellos | | |
+Colores inadecuados, existencia sin autorización | | X |
+Inexistencia o no funcionan | | X |
+4.08 Luz de posición trasera y delantera | | |
+Color no permitido, diferencia marcada entre ellas, inexistencia o no funcionan. | X | |
+Ubicación incorrecta o sujeción incorrecta. | X | |
+Número de luces inferior al reglamentario | X | |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

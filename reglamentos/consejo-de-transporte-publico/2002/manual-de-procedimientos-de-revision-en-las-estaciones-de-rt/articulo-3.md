@@ -45,86 +45,36 @@ Acondicionamiento interior
 - Tipo de producto extintor
 - Carga y fecha de vencimiento
 3.11. Herramientas, triángulos de seguridad y accesorios. Se comprobará la existencia de los triángulos de seguridad y la herramientas necesarias para el recambio de la llanta de repuesto.
-3C. Interpretación de defectos
-3.01.- Asiento conductor DL DG DP
-No existe pared divisora cuando
-en autobuses X
-Distancia indebida asiento del conductor
-y el de pasajeros en autobuses X
-Dimensiones de asiento no reglamentarias X
-Defecto de estado o sujeción X
-Muy deteriorado o con peligro de fallas X
-Inexistencia de reposacabezas X
-3.02.- Asiento pasajeros, número de plazas DL DG DP
-Número de plazas diferentes a las de
-la documentación X
-Dimensiones o distancias entre asientos
-no reglamentarias X
-Defecto de estado o sujeción X
-Muy deteriorado o con peligro de fallas X
-Carencia de rótulo de número de plazas
-o no coincidencia con la documentación X
-Inexistencia de reposacabezas según
-lo reglamentado X
-3.03.- Pasillos y piso DL DG DP
-Estado defectuoso piso X
-Piso con desniveles no señalados en
-el pasillo X
-Piso con desniveles u obstáculos que
-entrañen peligro X
-Anchura de pasillo no reglamentaria X
-Altura del techo inferior a la reglamentaria X
-Aristas vivas X
-Corrosión leve X
-Corrosión avanzada, perforaciones, etc.
-Si por su estado o dimensiones pudiera
-ocasionar algún accidente X
-3.04.- Cinturones de seguridad DL DG DP
-No hay en asientos delanteros cuando
-sea exigible X
-No hay en asientos de pasajeros cuando
-sea exigible X
-Sujeción al vehículo deficiente X
-Cinta o banda con desgarros, erosiones,
-cortes (peligro de rotura) X
-Cinta o banda con desgaste X
-Defectos de cierre X
-Defectos en el sistema de recuperación
-automático X
-No ajustable o no bloquea X
-3.05.- Retrovisor interior DL DG DP
-No existe cuando sea obligatorio X
-Defectos en la sujeción X
-Defecto que impide su función X
-Roto o defectuoso X
-Roto o defectuoso. Si no tiene retrovisor
-exterior derecho X
-3.06.- Pantalla parasol (visera) DL DG DP
-Las viseras de los asientos delanteros están
-mal fijadas o inexistentes X
-Los bordes no son redondeados o
-tienen aristas X
-3.07.- Alumbrado interior y timbres DL DG DP
-No existe cuando sean obligatorios X
-No funcionan X
-3.08.- Elementos de sujeción, aristas DL DG DP
-Defectos en barras protectoras o
-dispositivos de agarre (transporte
-colectivo de viajeros) X
-Defectos que pudieran provocar un
-accidente X
-Existencia de aristas vivas X
-3.09.- Dispositivo de Bloqueo de
-la Dirección DL DG DP
-No existe cuando es obligatorio X
-No funciona correctamente X
-3.10.- Extintores DL DG DP
-No existe cuando es obligatorio X
-Defectos en estado de sujeción o ubicación X
-Defectos de funcionamiento, sin carga
-o caducado X
-3.11.- Herramientas, triángulos de
-seguridad y repuestos DL DG DP
-Inexistencia de los triángulos cuando
-es obligatorio X
-Inexistencia de herramienta para un recambio X
+3C. Interpretación de defecto.
+3.01 Asiento conductor | | |
+No existe pared divisora en autobuses | X | |
+Dimensiones de asiento no reglamentarias | X | |
+Defecto de estado o sujeción, deteriorado o con peligro de fallas | X | |
+Inexistencia de reposacabezas | X | |
+3.02 Asiento pasajeros, número de plazas | | |
+Número de plazas diferentes a las de la documentación | X | |
+Dimensiones o distancias entre asientos no reglamentarias | X | |
+Defecto de estado o sujeción, deteriorado o con peligro de fallas | X | |
+Inexistencia de reposacabezas según lo reglamentado | X | |
+3.03 Pasillos y piso | | |
+Estado defectuoso piso | X | |
+Piso con desniveles u obstáculos que entrañen peligro | | X |
+Anchura de pasillo no reglamentaria | X | |
+Altura del techo inferior a la reglamentaria | X | |
+Corrosión avanzada, con perforaciones, con aristas y filos cortantes | | |
+3.04 Cinturones de seguridad | | |
+No hay en asientos delanteros cuando sea exigible | | X |
+No hay en asientos de pasajeros cuando sea exigible | X | |
+Sujeción al vehículo deficiente con defectos de cierre | X | |
+Cinta o banda con desgarros, erosiones, cortes (peligro de rotura) | | X |
+No funciona | | X |
+3.05 Alumbrado interior y timbres | | |
+No existe cuando sean obligatorios | | |
+No funcionan | | |
+3.06 Dispositivo de Bloqueo de la Dirección | | |
+No existe cuando es obligatorio X | | X |
+No funciona correctamente X | X | |
+3.07 Extintores | | |
+No existe cuando es obligatorio o con defectos de funcionamiento, sin carga o caducado | | X |
+Defectos en estado de sujeción o ubicación | X | |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

@@ -140,190 +140,122 @@ La comprobación de estos puntos se llevará a efecto a través de la prueba de 
 6.08. Freno de Socorro.
 - Se comprobará su estado y funcionamiento en aquellos casos en que su instalación sea obligatoria, excepto en los casos en que su accionamiento origine un bloqueo permanente del vehículo.
 6C. Interpretación de defectos
-6.01.- Freno de servicio DL DG DP
-Desequilibrio de frenada entre ruedas
-de un mismo eje > 30 % X
-Desequilibrio de frenada entre ruedas
-de un mismo eje
-20% < D< 30 % X
-Eficacia de frenada inferior al mínimo
-permitido X
-Progresión no gradual del agarre del frenado X
-Retraso anormal en el funcionamiento
-de los frenos en cualquier rueda X
-Alabeo en discos o excentricidad en
-tambores de freno > 20 % X
-Alabeo en discos o excentricidad
-10 %< A <20 % X
-Montaje inseguro o inadecuado de
-algún componente del sistema X
-Perdidas excesivas en las uniones
-tractor-remolque X
-6.02- Freno de estacionamiento DL DG DP
-Eficacia del vehículo aislado E < 18 % X
-Eficacia de frenada del vehículo
-tractor < 12 % en un conjunto de vehículos X
-El freno no actúa en una de las ruedas X
-El freno no actúa en ambas ruedas X
-Defectos de fijación, desgaste o desbloqueo
-en palanca o trinquete X
-Cables, varillas o conexiones en mal estado X
-Si existe peligro de rotura en cables o
-varillas del sistema X
-6.03.- Freno de inercia DL DG DP
-Falta de sistema de recorrido en el sistema
-de accionamiento X
-Desgastes en las piezas de transmisión X
-Si puede dar lugar a fallos en el sistema X
-Mal Funcionamiento del bloqueo marcha
-atrás X
-Deterioros del cable de seguridad X
-Excesivo deterioro X
-Demasiado ajustado X
-6.04.- Freno auxiliar DL DG DP
-Soportes en mal estado X
-Fijación defectuosa con peligro de
-desprendimiento X
-Cableado en mal estado X
-Incorrecto funcionamiento del mando
-de accionamiento o del sistema de control X
-Señales ligeras de sobrecalentamiento X
-Señales importantes de sobrecalentamiento
-o falta de protección X
-Holguras en rotores X
-Excesiva holguras entre rotores y carcazas X
-No funciona el indicador (luz) de conexión
-del dispositivo X
-6.05.- Circuito. Válvulas, palancas,
-cilindros, depósitos y tuberías DL DG DP
-Pedal de freno:
-Desgastes o juegos excesivos en
-el pedal o vástago X
-Carrera excesiva o insuficiente del
-pedal o freno X
-Revestimiento del pedal: Gastado,
-ausente o suelto X
-Defectos ligeros de fijación del conjunto
-de pedales X
-Fijación deficiente X
-Retorno del pedal inadecuado X
-Compresor:
-No funciona o existen pérdidas de aire X
-Fijación defectuosa X
-Fijación defectuosa con peligro de
-desprendimiento X
-Servofreno:
-Fallos de sujeción X
-Fijación defectuosa con peligro
-de desprendimiento X
-Dureza excesiva en el pedal de frenos X
-Falta de estanqueidad X
-Derrame importante de fluído X
-Servofreno original fuera de servicio X
-Descenso gradual de la carrera del
-pedal de freno X
-Tubos rígidos del circuito de frenos:
-Defectos de sujeción X
-Fijación defectuosa con peligro de
-desprendimiento X
-Falta de estanqueidad en las conexiones
-de tubo X
-Derrame importante de líquido o
-aire comprimido X
-Dañadas o Corroídas X
-Fijación defectuosa con peligro de
-desprendimiento X
-Mangueras flexibles:
-Fugas o pérdidas X
-Derrame importante de líquido o
-aire comprimido X
-Deformaciones X
-Dañadas o con cortes X
-Dañadas con peligro de rotura X
-Montaje inseguro o inadecuado X
-Fijación con peligro de desprendimiento X
-Fijación con peligro de desprendimiento
-si compromete el funcionamiento del
-sistema X
-Palancas:
-Excesivo recorrido muerto en la palanca
-de freno X
-Bielas o vástago de freno en mal estado X
-Excesiva holgura que compromete el
-funcionamiento del sistema X
-Válvulas:
-Falta de estanqueidad al actuar el freno X
-Falta de estanqueidad al actuar el freno
-con fuga importante X
-Funcionamiento incorrecto (frenado y
-desfrenado no gradual) X
-Funcionamiento incorrecto (frenado
-y desfrenado no gradual) excesivo X
-Rota, estropeada o excesivamente gastada X
-Rota, estropeada o excesivamente gastada
-que pone en peligro el sistema X
-Fijación o soporte defectuoso X
-Fijación defectuosa con peligro
-de desprendimiento X
-Válvula sensora de carga:
-Corrector o compensador dañado o
-fuera de servicio X
-Con pérdidas o fugas X
-Depósitos de reserva de aire comprimido:
-Fallo en sujeción X
-Fijación defectuosa con peligro de
-desprendimiento X
-Falta de estanqueidad X
-Perdida de aire importante X
-Depósitos con aceite o agua X
-Importante cantidad de aceite o agua en
-los depósitos X
-Mal funcionamiento de los dispositivos
-de purga X
-Manómetro roto o dañado X
-Manómetro no cumple su función X
-6.06.- Tiempo de llenado y respuesta DL DG DP
-Si el tiempo de aumento de la presión de
-llenado es mayor a 1 bar por minuto X
-Si la presión de llenado no llega a
-a presión de servicio X
-Testigo de presión de servicio inferior
-50% en frenos neumáticos no funciona X
-Mecanismo agarrotado al dejar de
-actuar el freno X
-Sistema antibloqueo (frenos ABS):
-Fuera de servicio (luz encendida) X
-Elementos del sistema en mal estado X
-6.07.- Tambor, disco, pinza, mordaza
-y guarniciones DL DG DP
-Fugas de líquido en las pinzas o aire
-en las cámaras X
-Fugas de líquido en las pinzas o aire
-en las cámaras si pone en peligro el sistema X
-Sistemas de anclaje flojos o deteriorados X
-Sistemas de anclaje flojos o deteriorados
-con peligro de desprendimiento X
-Desgaste en disco o tambor superior al
-permitido por el fabricante X
-Desgaste excesivo en disco o tambor superior
-al permitido por el fabricante X
-Disco o tambor agrietados o rotos X
-Disco o tambor agrietados o rotos que pone
-en peligro al sistema X
-Desgaste excesivo de las pastillas o fibras
-de freno X
-Trozos de guarniciones u otros elementos
-en el registro de inspección X
-Agarrotamiento o movimiento anormal en
-los ajustadores automáticos X
-6.08.- Freno de Socorro DL DG DP
-Freno o frenos inoperantes de un lado X
-Diferencia de frenado en las ruedas de
-un mismo eje superior al 30% X
-Progresión no gradual del freno, agarre X
-No funcionamiento del dispositivo de
-frenado automático X
-Defectos de funcionamiento X
-Valores de eficacia inferiores al 50% de
-los descritos para el freno de servicio
-para cada categoría X
+6.01 Freno de servicio | | |
+Desequilibrio de frenada entre ruedas de un mismo eje > 35% | | X |
+Desequilibrio de frenada entre ruedas de un mismo eje 20% < D< = 35% | X | |
+Eficacia de frenada inferior al mínimo permitido | | X |
+Progresión no gradual del agarre del frenado | | X |
+Retraso anormal en el funcionamiento de los frenos en cualquier rueda | | X |
+Alabeo en discos o excentricidad en tambores de freno > 20% | | X |
+Alabeo en discos o excentricidad 10%< A <20% | X | |
+Montaje inseguro o inadecuado de algún componente del sistema | | X |
+Pérdidas excesivas en las uniones tractor-remolque | | X |
+6.02 Freno de estacionamiento | | |
+Eficacia del vehículo aislado E < 18% | | X |
+Eficacia de frenada del vehículo tractor < 12% en un conjunto de vehículos | | X |
+El freno no actúa en una de las ruedas | X | |
+El freno no actúa en ambas ruedas | | X |
+6.03 Freno de inercia | | |
+Falta de sistema de recorrido en el sistema de accionamiento | | X |
+Desgastes en las piezas de transmisión | X | |
+Si puede dar lugar a fallos en el sistema | | X |
+Mal Funcionamiento del bloqueo marcha atrás | X | |
+Deterioros del cable de seguridad | X | |
+Excesivo deterioro | | X |
+Demasiado ajustado | X | |
+6.04 Freno auxiliar | | |
+No funciona | X | |
+Soportes en mal estado | X | |
+Fijación defectuosa con peligro de desprendimiento | | X |
+Cableado en mal estado | X | |
+Incorrecto funcionamiento del mando de accionamiento o del sistema de control | X | |
+Señales importantes de sobrecalentamiento o falta de protección | X | |
+Holguras en rotores | X | |
+No funciona el indicador (luz) de conexión del dispositivo | X | |
+6.05 Circuito. Válvulas, palancas, cilindros, depósitos y tuberías | | |
+Pedal de freno: | | |
+Desgastes o juegos excesivos en el pedal o vástago | | X |
+Carrera excesiva o insuficiente del pedal o freno | | X |
+Revestimiento del pedal: Gastado, ausente o suelto | X | |
+Fijación deficiente | | X |
+Retorno del pedal inadecuado | | X |
+Descenso gradual de la carrera del pedal de freno | | X |
+6.06 Compresor | | |
+No funciona o existen pérdidas de aire | | X |
+Fijación defectuosa con peligro de desprendimiento | | X |
+6.07 Servofreno/Cilindros: | | |
+Fijación defectuosa con peligro de desprendimiento | | X |
+Dureza excesiva en el pedal de frenos | | X |
+Falta de estanqueidad | X | |
+Derrame importante de fluido | | X |
+Servofreno no funciona. original fuera de servicio | | X |
+6.08 Tubos rígidos del circuito de frenos: | | |
+Fijación defectuosa con peligro de desprendimiento | | X |
+Falta de estanqueidad en las conexiones de tubo | | X |
+Derrame importante de líquido o aire comprimido | | | X
+Dañadas o corroídas | X | |
+6.09 Mangueras flexibles: | | |
+Fugas o pérdidas | X | |
+Derrame importante de líquido o aire comprimido | | | X
+Deformadas, dañadas, con cortes o abombamientos importantes | | X |
+Dañadas con peligro de rotura | | | X
+Montaje inseguro o inadecuado | | X |
+Fijación con peligro de desprendimiento | | X |
+Fijación con peligro de desprendimiento si compromete el funcionamiento del sistema | | | X
+6.10 Palancas: | | |
+Defectos de fijación, desgaste o desbloqueo en palanca o trinquete | | X |
+Cables, varillas o conexiones en mal estado | X | |
+Si existe peligro de rotura en cables o varillas del sistema | | X |
+Excesivo recorrido muerto en la palanca de freno | | X |
+Bielas o vástago de freno en mal estado | | X |
+Excesiva holgura que compromete el funcionamiento del sistema | | | X
+6.11 Válvulas: | | |
+Falta de estanqueidad al actuar el freno | | X |
+Falta de estanqueidad al actuar el freno con fuga importante | | | X
+Funcionamiento incorrecto (frenado y desfrenado no gradual) | | X |
+Funcionamiento incorrecto (frenado y desfrenado no gradual) excesivo | | | X
+Rota, estropeada o excesivamente gastada | | X |
+Rota, estropeada o excesivamente gastada que pone en peligro el sistema | | | X
+Fijación o soporte defectuoso | | X |
+Fijación defectuosa con peligro de desprendimiento | | | X
+6.12 Válvula sensora de carga: | | |
+Corrector o compensador dañado o fuera de servicio | | X |
+Con pérdidas o fugas | | X |
+6.13 Depósitos de reserva de aire comprimido | | |
+Fallo en sujeción | X | |
+Fijación defectuosa con peligro de desprendimiento | | X |
+Falta de estanqueidad | | X |
+Perdida de aire importante | | | X
+Depósitos con aceite o agua | | X |
+Importante cantidad de aceite o agua en los depósitos | | | X
+Mal funcionamiento de los dispositivos de purga | | X |
+Manómetro roto o dañado | | X |
+Manómetro no cumple su función | | | X
+6.14 Tiempo de llenado y repuesta | | |
+Si el tiempo de aumento de la presión de llenado es mayor a 1 bar. por minuto | | X |
+Si la presión de llenado no llega a la presión de servicio | | | X
+Testigo de presión de servicio inferior 50% en frenos neumáticos no funciona | X | |
+Mecanismo agarrotado al dejar de actuar el freno | | X |
+6.15 Sistema antibloqueo (frenos ABS): | | |
+Fuera de servicio (luz encendida) | X | |
+Elementos del sistema en mal estado | X | |
+6.16 Tambor, disco, pinza, mordaza y guarniciones | | |
+Fugas de líquido en las pinzas o aire en las cámaras | | X |
+Fugas de líquido en las pinzas o aire en las cámaras si pone en peligro el sistema | | | X
+Sistemas de anclaje flojos o deteriorados | | X |
+Sistemas de anclaje flojos o deteriorados con peligro de desprendimiento | | | X
+Desgaste en disco o tambor | X | |
+Desgaste excesivo en disco o tambor | | X |
+Disco o tambor agrietados o rotos | | X |
+Disco o tambor agrietados o rotos que pone en peligro al sistema | | | X
+Desgaste excesivo de las pastillas o fibras de freno | | X |
+Trozos de guarniciones u otros elementos en el registro de inspección | X | |
+Agarrotamiento o movimiento anormal en los ajustadores automáticos | | X |
+6.17 Freno de socorro | | |
+Freno o frenos inoperantes de un lado | | X |
+Diferencia de frenado en las ruedas de un mismo eje superior al 30% | | X |
+Progresión no gradual del freno, agarre | | X |
+No funcionamiento del dispositivo de frenado automático | | X |
+Defectos de funcionamiento | | X |
+Valores de eficacia inferiores al 50% de los descritos para el freno de servicio para cada categoría | | X |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)

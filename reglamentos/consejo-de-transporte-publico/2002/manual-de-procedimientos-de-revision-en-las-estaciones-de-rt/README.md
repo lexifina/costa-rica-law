@@ -14,3 +14,4 @@ Manual de Procedimientos de Revisión en las Estaciones de RTV
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-29 | la propia norma |
+| 2 | 2004-09-14 | Reglamento 62 (2004-09-14) |

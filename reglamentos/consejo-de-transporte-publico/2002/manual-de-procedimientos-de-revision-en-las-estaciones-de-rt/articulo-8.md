@@ -71,102 +71,69 @@ Se comprobará:
 - Estado del regulador.
 - La no existencia de pérdidas de presión en los elementos neumáticos de rueda por falta de hermeticidad o agrietamiento en las paredes de su cuerpo elástico.
 8C. Interpretación de defectos
-8.01.- Eje delantero o brazos de sujeción. DL DG DP
-Deformaciones, desperfectos X
-Deformaciones o desperfectos
-importantes X
-Fijaciones defectuosas al chasis X
-Silent blocks deteriorados X
-Silent blocks rotos o inexistentes X
-Holgura del pivote X
-Si la holgura del pivote permite
-desplazamientos importantes
-(cabeceo de la rueda ) X
-Enderezamientos o soldaduras X
-8.02.- Eje trasero o brazos de sujeción DL DG DP
-Deformaciones, desperfectos X
-Deformaciones, desperfectos importantes X
-Enderezamientos, reparaciones por soldaduras X
-Fijaciones al chasis defectuosas X
-Silent blocks deteriorados X
-Silent blocks rotos o inexistentes X
-8.3 Rodamientos de llanta
-(delanteras y traseras) DL DG DP
-Holgura excesiva X
-8.04-Aros y discos DL DG DP
-Tuercas y espárragos defectuosos,
-flojos o incompletos X
-Deformaciones, desperfectos importantes X
-Agujeros ovalizados en los aros X
-Dimensiones no admisibles X
-8.05.- Llantas, dimensión, estado cubiertas DL DG DP
-Dibujo insuficiente en la banda de rodadura
-menor a lo reglamentado X
-Desgaste anormal en una o mas llantas X
-Existencia de diferentes tipos de llantas
-en el mismo eje X
-Cortes, erosiones, abombamientos,
-envejecimiento o cables al descubierto
-en la llanta X
-Dimensiones o características de llanta
-no correctas para el vehículo X
-8.06.- Rueda de repuesto DL DG DP
-Rueda de repuesto inexistente X
-Rueda de repuesto en mal estado según
-lo especificado en los puntos 8.04 y 8.05 X
-8.07.- Ballestas, muelles y topes DL DG DP
-Fijación defectuosa al chasis
-(tornillos flojos o deteriorados) X
-Ojos de ballesta con deterioros X
-Roturas en hoja o fuertemente
-desgastada X
-Si son varias hojas de una misma ballesta
-las afectadas X
-Grietas en soporte de ballestas X
-Silent blocks deteriorados por el uso X
-Silent blocks rotos o inexistentes X
-Topes de ballestas inexistentes o en
-mal estado X
-Ballestas cedidas X
-8.08- Amortiguadores y soportes DL DG DP
-Amortiguador defectuoso X
-Si se siente agarrotado o incumple
-su función X
-Fijación defectuosa al chasis
-y suspensión X
-Amortiguador suelto con riesgo de
-desprendimiento X
-Fugas de líquido hidráulico X
-Daños exteriores X
-Si afectan a su funcionamiento X
-Ruidos de funcionamiento X
-8.09.- Barras de torsión, estabilizadora
-y articulaciones DL DG DP
-Fijación floja o deteriorada de las barras
-de torsión. X
-Deterioro importante o con peligro
-de desprendimiento X
-Fisuras o roturas X
-Incorrecto tensado de las barras de torsión X
-Fijación floja o deteriorada de la barra
-estabilizadora al chasis y al triángulo o
-elemento de suspensión X
-8.10.- Brazos, bielas de suspensión y rótulas DL DG DP
-Fijación floja o defectuosa de los brazos o
-bielas al chasis o ejes X
-Si existe riesgo de desprendimiento X
-Deformaciones, daños exteriores X
-Fisuras o roturas soldaduras y
-enderezamientos X
-Holguras, desgastes de bielas, brazos
-o rótulas X
-Holguras excesivas X
-Rótulas rotas o agrietadas X
-Mal estado de los guardapolvos de
-las rótulas de suspensión X
-8.11.- Otros sistemas de suspensión.
-Suspensión neumática DL DG DP
-Inadecuada presión en el deposito principal X
-Fugas de aire en canalizaciones o racores X
-Fugas de aire por válvula reguladora X
-Fuga de aire o bolsa muy deteriorada X
+8.01 Eje delantero o brazos de sujeción | | |
+Deformaciones o desperfectos importantes | | X |
+Fijaciones defectuosas al chasis | | X |
+Silent blocks deteriorados | X | |
+Silent blocks rotos o inexistentes | | X |
+Holgura del pivote | X | |
+Si la holgura del pivote permite desplazamientos importantes (cabeceo de la rueda) | | X |
+Enderezamientos o soldaduras | X | |
+8.02 Eje trasero o brazos de sujeción | | |
+Deformaciones, desperfectos importantes | | X |
+Enderezamientos, reparaciones por soldaduras | X | |
+Fijaciones al chasis defectuosas | | X |
+Silent blocks deteriorados | X | |
+Silent blocks rotos o inexistentes | | X |
+8.03 Rodamientos de llanta (delanteras y traseras) | | |
+Holgura excesiva | | X |
+8.04 Aros y discos | | |
+Tuercas y espárragos defectuosos, flojos o incompletos > 25% | | X |
+Deformaciones, desperfectos importantes | | X |
+Agujeros ovalizados en los aros | X | |
+Dimensiones no admisibles | | X |
+8.05 Llantas, dimensión, estado cubiertas | | |
+Profundidad de dibujo de la banda de rodadura al mismo nivel que el testigo de profundidad de la llanta o en su defecto menor a 2 mm. | | X |
+Desgaste anormal en una o mas llantas | X | |
+Existencia de diferentes tipos de llantas en el mismo eje | X | |
+Cortes, erosiones, abombamientos, envejecimiento o cables al descubierto en la llanta | | X |
+Dimensiones o características de llanta no correctas para el vehículo | X | |
+Llanta sobresale del guardabarros | | X |
+Llantas con dimensiones diferentes en el mismo eje | X | |
+8.06 Rueda de repuesto | | |
+8.07 Ballestas, muelles y topes | | |
+Fijación defectuosa al chasis o al eje (tornillos flojos o deteriorados) | X | |
+Ojos de ballesta o abrazaderas con deterioros | X | |
+Roturas en hoja o fuertemente desgastada | X | |
+Hoja maestra o más de dos hojas rotas | | X |
+Grietas en soporte de ballestas | | X |
+Silent blocks deteriorados por el uso | X | |
+Silent blocks rotos o inexistentes | | X |
+Topes de ballestas inexistentes o en mal estado | X | |
+Ballestas cedidas | X | |
+8.08 Amortiguadores y soportes | | |
+Si se siente agarrotado o incumple su función | | X |
+Fijación defectuosa al chasis y suspensión | X | |
+Amortiguador inexistente o suelto con riesgo de desprendimiento | | X |
+Fugas de líquido hidráulico | X | |
+Ruidos de funcionamiento | X | |
+8.09 Barras de torsión, estabilizadora y articulaciones | | |
+Fijación floja o deteriorada de las barras de torsión | X | |
+Deterioro importante o con peligro de desprendimiento | | X |
+Fisuras o roturas | | X |
+Incorrecto tensado de las barras de torsión | X | |
+Fijación floja o deteriorada de la barra estabilizadora al chasis y al triángulo o elemento de suspensión | | X |
+8.10 Brazos (tijeretas), bielas de suspensión y rótulas | | |
+Fijación defectuosa al chasis o ejes | X | |
+Si existe riesgo de desprendimiento | X | |
+Deformaciones, daños exteriores | X | |
+Fisuras o roturas soldaduras y enderezamientos, si entrañan peligro | X | |
+Holguras excesivas (silent blocks rotos o inexistentes) | X | |
+Rótulas rotas o agrietadas o con holguras excesivas | X | |
+Mal estado de los guardapolvos de las rótulas de suspensión | X | |
+8.11 Otros sistemas de suspensión. Suspensión neumática | | |
+Inadecuada presión en el deposito principal | | X |
+Fugas de aire en canalizaciones o racores | | X |
+Fugas de aire por válvula reguladora | | X |
+Fuga de aire o bolsa muy deteriorada | | X |
+(Así actualizado mediante el Artículo 4.3 de la Sesión Ordinaria N° 062-2004, de fecha 14 de setiembre del 2004, de la Junta Directiva del Consejo de Transporte Público.)
