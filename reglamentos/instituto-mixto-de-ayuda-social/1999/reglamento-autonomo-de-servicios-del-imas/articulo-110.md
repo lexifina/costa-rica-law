@@ -40,3 +40,7 @@ Artículo 110.—Además de lo dispuesto en los artículos 72 del Código de Tra
 37. Cualquier otra conducta que sea realizada con dolo o culpa grave o haya generado daño en perjuicio de la Institución, sus clientes o terceros.
 38. Realizar rifas, hacer colectas, vender o comprar objetos o realizar cualquier tipo de negocio personal, en el centro de trabajo y en horas hábiles, salvo autorización escrita de la Administración.
 39. Hacer erogaciones de dinero sin el debido contenido presupuestario.
+40. Brindar información del SIPO a personas no autorizadas o para otros fines diversos a los de su creación.
+(Así adicionado por acuerdo del Consejo Directivo, en Sesión Ordinaria N° 38 de 6 de mayo de 2002)
+41. Modificar la información contenida en el SIPO sin la debida fundamentación con el fin de hacer incurrir en error o engaño en el otorgamiento de un servicio o beneficio institucional.
+(Así adicionado por acuerdo del Consejo Directivo, en Sesión Ordinaria N° 38 de 6 de mayo de 2002)

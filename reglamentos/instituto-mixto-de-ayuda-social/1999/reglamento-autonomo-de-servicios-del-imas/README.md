@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios del IMAS
 | --- | --- | --- |
 | 1 | 2000-01-13 | la propia norma |
 | 2 | 2000-01-13 | SINALEVI (sin norma nombrada) |
+| 3 | 2002-05-06 | Reglamento 38 (2002-05-06) |
