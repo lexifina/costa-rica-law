@@ -1,1 +1,0 @@
-Artículo 6º- Las rentas y bienes de cualquier clase de la Clínica de Nutrición y de la Junta de Protección Social de La Unión que por ley estuvieren destinadas a esa Clínica, serán destinados todos ellos al desarrollo del Instituto.

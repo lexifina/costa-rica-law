@@ -1,1 +1,0 @@
-Artículo 20°- La Dirección General, es el órgano de mayor jerarquía dentro del Instituto y en consecuencia, le corresponde al Director General planear, organizar, coordinar, ejecutar y controlar todo lo que se relacione con el INCIENSA.

@@ -13,3 +13,4 @@ Reglamento del INCIENSA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-10-04 | la propia norma |
+| 2 | 1979-10-04 | SINALEVI (sin norma nombrada) |

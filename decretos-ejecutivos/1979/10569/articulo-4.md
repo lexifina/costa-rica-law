@@ -1,1 +1,0 @@
-Artículo 4º- El domicilio legal y la sede del Instituto estarán ubicados en la ciudad de Tres Ríos, cantón de La Unión, pudiendo establecer centros de trabajo en cualquier otro lugar del país, acorde con los programas y necesidades nacionales.
