@@ -1,1 +1,0 @@
-Artículo 9°-Una vez recibido el Formulario de Candidatura, la “Comisión Bandera Azul Ecológica” decidirá si la playa puede o no ser objeto de evaluación, para lo cual tomara en cuenta el valor ambiental, turístico y social que tenga dicha playa; sin embargo, la “Comisión Bandera Azul Ecológica” podrá determinar cuáles playas serán evaluadas de oficio.

@@ -1,1 +1,0 @@
-Artículo 10°-EI puntaje mínimo necesario para optar por el reconocimiento “Bandera Azul Ecológica” es el 90% de la sumatoria del puntaje -alcanzado, según lo establecido en el artículo 7° de este Decreto.
