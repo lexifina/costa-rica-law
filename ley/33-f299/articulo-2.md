@@ -1,0 +1,1 @@
+Art. 2°-Los estudiantes que hubieren terminado los estudios de segunda enseñanza en los Colegios nacionales ó en los libres amparados por la ley, ó comprueben conforme á ésta poseer tales conocimientos sufrirán un examen llamado examen de madurez, y se les expedirá el certificado correspondiente.

@@ -1,0 +1,1 @@
+Art. 12.-En el examen escrito todos los candidatos desarrollarán las mismas tesis sacadas a la suerte. En el examen oral cada candidato retira la suya; puede pedir que se le permita contestar á una segunda, pero en este caso el máximum de calificación se disminuye en una tercera parte.
