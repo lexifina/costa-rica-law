@@ -15,3 +15,4 @@ Reforma al Reglamento General de Adunanas
 | --- | --- | --- |
 | 1 | 2000-10-12 | la propia norma |
 | 2 | 2000-10-12 | Decreto Ejecutivo 29034 (2000-10-12) |
+| 3 | 2000-12-05 | Decreto Ejecutivo 29128 (2000-12-05) |

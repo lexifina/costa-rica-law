@@ -1,8 +1,9 @@
 Articulo 28.—Adiciónese al Reglamento de la Ley General de Aduanas N° 7557 del 20 de octubre de 1995 y sus reformas, un nuevo Titulo IX, denominado; Valor en Aduana de las Mercancías Importadas.
 Consecuentemente se corre la numeración. El texto dirá:
 "Articulo 537.—Objeto. El presente Titulo establece las disposiciones necesarias para la aplicación del Titulo XII de la Ley General de Aduanas, N° 7557 del 13 de octubre de 1995 y sus reformas, denominado "Valor en Aduana de las Mercancías Importadas.
-Artículo 538.—Momento aproximado. Para los efectos de los artículos 1°, 2°, 3° y 5° del Acuerdo relativo a la aplicación del Articulo Vil del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, la expresión "momento aproximado" se entenderá hasta por tres meses antes y hasta por tres meses después de la fecha de la exportación de la mercancía, salvo excepciones debidamente fundamentadas.
+(*)Artículo 538.—Momento aproximado. Para los efectos de los artículos 1º, 2º, y 3º del acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, la expresión "momento aproximado" se entenderá hasta por tres meses antes y hasta por tres meses después de la fecha de la exportación de la mercancía, salvo excepciones debidamente fundamentadas.
 La fecha de exportación será la que conste en el documento emitido para este fin en el país de exportación, y deberá adjuntarse a la declaración aduanera de importación.
+(*)(Así reformado por el artículo 2° del decreto ejecutivo N° 29128 del 5 de diciembre de 2000)
 Articulo 539.—Inversión en la aplicación de los métodos de valoración regulados en los artículos 5° y 6° del Acuerdo relativo a la aplicación del Articulo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994.
 De conformidad con lo establecido por el articulo 259 de la Ley General de Aduanas, el importador deberá hacer la solicitud por escrito a la Aduana respectiva en los términos del artículo 285 de la Ley General de la Administración Pública.
 La Aduana se pronunciará, en forma motivada, dentro de un plazo de diez días, acogiendo o denegando la solicitud.
