@@ -13,3 +13,4 @@ Reglamento Creación Fondo Revolutivo para Ministerio Obras Públicasy Transport
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-10-11 | la propia norma |
+| 2 | 1975-10-11 | SINALEVI (sin norma nombrada) |
