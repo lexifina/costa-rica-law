@@ -1,0 +1,1 @@
+9°—Cualquier alteración en la sincronía de los Coopebilletes (color, dibujos, número, etc), roturas y/o indicio de falsedad, tendrá como consecuencia la anulación del premio respectivo: quedando Coopeconpro salvado de toda responsabilidad que el participante desee reclamar.

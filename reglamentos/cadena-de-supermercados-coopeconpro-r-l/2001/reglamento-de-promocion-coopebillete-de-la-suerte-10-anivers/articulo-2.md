@@ -1,0 +1,1 @@
+2°—EI periodo promocional se establece a partir del 1° de mayo al 30 de julio del 2001 inclusive, se establece un periodo de prórroga de 15 días calendario para otorgar cualquier premio que durante el período establecido de la promoción no haya sido reclamado.

@@ -1,0 +1,1 @@
+7° Participan lodos aquellos clientes habituales que compran en cualquiera de nuestras unidades de venta en la provincia de Guanacaste, ya mencionados y que hagan una compra mínima de 5,000 (cinco mil colones), que incluya 5 productos patrocinadores como mínimo.

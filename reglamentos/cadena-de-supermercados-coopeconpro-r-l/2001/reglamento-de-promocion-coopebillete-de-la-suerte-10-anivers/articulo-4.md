@@ -1,0 +1,1 @@
+4°—Los productos patrocinadores de la promoción de Aniversario con Coopeconpro son: Productos El Ángel, La masa del comal, Desinfectante Terror, Productos del campo, Shampoo Mood, Insecticida Raid, Off, Salsas Banquete, Papel higiénico Flen, Saba, Detergente Irex, Atún tesoro del mar, Cloro Blanquita, Embutidos Zar, Pastas Ina, Pozuelo, Jabón bactex, Colgate, Cera Rex, Magi.

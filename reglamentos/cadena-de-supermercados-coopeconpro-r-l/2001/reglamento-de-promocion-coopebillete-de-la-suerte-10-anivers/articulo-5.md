@@ -1,0 +1,1 @@
+5°—El Coopebillete, se identificará con el logo de Coopeconpro y además este Coopebillete traerá el número y serie que los harán participe de la rita de 3 (tres), premios semanales, que se otorgarán con Ios tres primeros números de la lotería los días domingos de cada semana.
