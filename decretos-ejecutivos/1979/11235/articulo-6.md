@@ -1,0 +1,1 @@
+Artículo 6°—El Presidente deberá presidir las sesiones, hacer las convocatorias, confeccionar el orden del día, llevar el control de asistencia, firmar las resoluciones, y ejecutar los acuerdos del Consejo.

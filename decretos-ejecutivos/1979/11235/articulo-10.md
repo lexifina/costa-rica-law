@@ -1,0 +1,1 @@
+Artículo 10.—En lo no establecido expresamente en el presente Reglamento, en relación con la constitución y funcionamiento del Consejo, se atenderá a lo dispuesto en los artículos 49 a 58 de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 17.—La propaganda que haya sido aprobada no podrá ser variada posteriormente; cualquier cambio que se desee introducir deberá ser aprobado por la Oficina, siguiendo al efecto los trámites establecidos para la autorización original.

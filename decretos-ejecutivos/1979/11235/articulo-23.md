@@ -1,0 +1,1 @@
+Artículo 23.—En lo dispuesto expresamente en relación con la interposición y tramitación de los recursos contra las resoluciones de la Oficina o del Ministerio de Gobernación y Policía, se regirá por lo que al efecto establece la Ley General de Administración Pública.

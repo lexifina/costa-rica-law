@@ -1,0 +1,1 @@
+Artículo 8°—En caso de ausencia o de enfermedad, y en general, cuando concurra alguna causa justa, el Presidente será sustituido por un Presidente ad-hoc, nombrado por mayoría de los miembros presentes, y un Secretario suplente, respectivamente.

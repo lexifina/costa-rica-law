@@ -1,0 +1,1 @@
+Artículo 19.—Cuando la Oficina solicite el criterio al Consejo Asesor en relación con un caso concreto, el dictamen pertinente debe verterse dentro de los diez días posteriores al recibo de su solicitud.

@@ -1,0 +1,1 @@
+Artículo 25.—En lo no dispuesto expresamente en la ley N° 5811 de 10 de octubre de 1975, y en el presente Reglamento, regirán en lo que fueren aplicables las disposiciones de la Ley General de la Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 14.—Dentro de los quince días hábiles posteriores a la presentación de la solicitud, la Oficina deberá resolver si el material de propaganda es aprobado, o bien si es necesario efectuar algunas modificaciones, o si es improbado en su totalidad.
+Si el interesado accede a confeccionar los cambios establecidos por la Oficina, presentará el material definitivo dentro de los ocho días hábiles posteriores a la notificación de la resolución de que se trate, y la Oficina resolverá dentro de igual plazo lo pertinente.

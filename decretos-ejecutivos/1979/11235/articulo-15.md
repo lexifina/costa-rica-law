@@ -1,0 +1,1 @@
+Artículo 15.—En el supuesto de que el interesado hubiese presentado el proyecto de material publicitario, y éste contare con la autorización de la Oficina, se hará constar que la misma no habilita para su publicación o transmisión, y que el material definitivo debe ser presentado para su aprobación definitiva, si ésta es procedente.
