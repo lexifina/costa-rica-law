@@ -1,0 +1,1 @@
+Artículo 4°-En el caso de empresas particulares que construyan o reparen caminos públicos, será el Concejo el único que podrá autorizar la venta del material de acuerdo con los precios que rigen en el mercado.

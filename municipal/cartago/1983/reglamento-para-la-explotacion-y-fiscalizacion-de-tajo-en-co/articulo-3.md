@@ -1,0 +1,1 @@
+Artículo 3°-Será el Concejo de Corralillo el único en autorizar la salida de lastre de dicho tajo, cuando se tratare del MOPT o de los concejos de distrito del cantón central de Cartago, previas las solicitudes correspondientes.

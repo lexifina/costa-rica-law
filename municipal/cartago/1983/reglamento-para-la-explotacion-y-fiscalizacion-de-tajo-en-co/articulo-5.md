@@ -1,0 +1,1 @@
+Artículo 5°-Para cumplir con su cometido, el Concejo de Distrito, pedirá la colaboración del Ejecutivo Municipal por ser el representante legal de la Municipalidad, quien hará las gestiones del caso ante quien corresponda.
