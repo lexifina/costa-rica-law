@@ -1,6 +1,3 @@
-ARTICULO 68.- Fabricación, comercio, importación y exportación de
-armas.
-Para fabricar, almacenar, comerciar, importar y exportar armas
-permitidas será indispensable contar con el permiso del Departamento, el
-cual los otorgará sin perjuicio de las atribuciones que le competen a
-otras autoridades.
+Artículo 68.—Fabricación, almacenamiento, comercio, importación y exportación. Para fabricar, almacenar, comerciar, importar y exportar armas, municiones, explosivos, artificios, pólvora en todas sus presentaciones y materias primas para elaborar productos regulados por esta Ley, toda persona física o jurídica deberá contar con el permiso de la Dirección de Armamento, la cual lo otorgará según la presente Ley y sus Reglamentos. Se prohíben la venta de pólvora y el suministro, a cualquier título, de artículos a base de pólvora, a personas menores de edad y a personas jurídicamente declaradas en estado de interdicción.
+El Poder Ejecutivo definirá, en la vía reglamentaria, los tipos y las cantidades de pólvora que serán de libre venta. Asimismo, las cantidades que podrán ser almacenadas para la producción de espectáculos pirotécnicos. Los espectáculos pirotécnicos deberán ser realizados por personas debidamente autorizadas por el Ministerio de Salud para el uso de este tipo de materiales, previo permiso de la Dirección de Armamento.
+(Así reformado por el artículo 1 de la ley N° 8201 de 18 de diciembre del 2001)

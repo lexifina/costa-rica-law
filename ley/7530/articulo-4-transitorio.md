@@ -1,0 +1,2 @@
+Transitorio IV.—Las personas físicas o jurídicas que cuenten con permisos para fabricar, almacenar, comerciar, importar, exportar o vender armas permitidas, municiones, explosivos, pólvora y materia prima para la elaboración de los productos regulados por esta Ley, dispondrán de un año para adecuar sus instalaciones físicas, según lo dispuesto en el artículo 72 de la presente Ley y sus Reglamentos.
+(Así adicionado por el artículo 4 de la ley N° 8201 de 18 de diciembre del 2001)
