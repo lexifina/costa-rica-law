@@ -1,1 +1,2 @@
-Artículo 2º.- Los que tengan más de treinta años de servicio y más de cincuenta de edad, tendrán derecho a pedir su pensión con una cantidad mensual igual al promedio de los sueldos devengados en los últimos cinco años.
+Artículo 2º.-Los funcionarios que tengan treinta años de servicio y cincuenta o más años de edad tendrán derecho a solicitar su pensión, con la cantidad igual al promedio de los sueldos devengados durante los doce meses anteriores a su solicitud.
+(Así reformado por el artículo 1° de la ley N° 6089 del 26 de setiembre de 1977)
