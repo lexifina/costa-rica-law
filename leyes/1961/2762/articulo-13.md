@@ -1,0 +1,1 @@
+Artículo 13.- La Oficina del Café está facultada para vigilar, de oficio, y obligada a hacerlo a petición de parte interesada, el acto de medir las entregas de café, para que se realice de manera equitativa y uniforme en todo el país. (Así reformado por el artículo 1º de la Ley No 6095 de 28 de octubre de 1977).
