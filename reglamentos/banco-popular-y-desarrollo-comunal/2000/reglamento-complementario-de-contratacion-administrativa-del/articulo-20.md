@@ -1,1 +1,0 @@
-Artículo 20.—Vigencia y derogatoria. Rige a partir de su publicación en el Diario Oficial La Gaceta y deroga las disposiciones del Reglamento de Contratación Administrativa del Banco Popular y de Desarrollo Comunal vigentes a la fecha, así como cualquier otra norma que se le oponga.
