@@ -1,0 +1,1 @@
+Artículo 30.—En caso de muerte de un trabajador de la Municipalidad que esté disfrutando de una beca en el exterior, la Municipalidad cubrirá los gastos necesarios para el regreso al lugar de residencia.

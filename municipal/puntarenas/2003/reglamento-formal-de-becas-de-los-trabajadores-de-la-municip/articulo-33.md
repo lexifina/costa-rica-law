@@ -1,0 +1,1 @@
+Artículo 33.—Ningún servidor podrá disfrutar de los beneficios que autoriza éste reglamento, mientras esté pendiente de cumplimiento alguna obligación anterior, salvo casos muy calificados, siendo requisito indispensable el dictamen de la Comisión.

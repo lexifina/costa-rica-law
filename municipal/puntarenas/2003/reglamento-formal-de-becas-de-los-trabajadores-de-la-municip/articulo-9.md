@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión de Becas además de tramitar los casos que le sean sometidos, podrá nombrar las comisiones que considere necesarias dentro de su seno a efecto de análisis cuando así lo estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 4º—La comisión dentro de su seno nombrará un presidente en forma alterna para cada sesión y una secretaria de actas y notificaciones permanentemente designada por la Administración. El primero presidirá las reuniones y la segunda será la encargada de llevar un libro de actas y de comunicar las actuaciones y resoluciones de la comisión a los interesados.

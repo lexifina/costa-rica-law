@@ -1,0 +1,1 @@
+Artículo 5º—La comisión se reunirá ordinariamente dos veces al mes. El presidente de la última sesión o dos de sus miembros podrán convocarla extraordinariamente cuando lo consideren con al menos 48 horas de anticipación.

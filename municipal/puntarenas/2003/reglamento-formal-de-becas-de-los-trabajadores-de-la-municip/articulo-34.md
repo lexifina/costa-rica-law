@@ -1,0 +1,1 @@
+Artículo 34.—El presente reglamento podrá ser ejecutado y/o modificado, si así lo determina la comisión a solicitud de cualquiera de las partes, sin que esto signifique retiro total o parcial de los recursos asignados al becado. Las modificaciones que sufra el presente reglamento será comunicado de oficio a todos los funcionarios y al Consejo Municipal.

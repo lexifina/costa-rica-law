@@ -1,0 +1,1 @@
+Artículo 24.—La secretaria de la Comisión confeccionará y mantendrá en existencia los formularios que contengan todos los datos necesarios para concursar, sin que sea admitido ningún otro documento distinto de éste.

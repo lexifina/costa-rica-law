@@ -1,0 +1,1 @@
+Artículo 25.—Todos los trabajadores de la Municipalidad sin excepción tendrán derecho a solicitar beca, y su otorgamiento será previo estudio y análisis hecho por la Comisión para cada caso en particular.

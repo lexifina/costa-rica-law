@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE PUNTARENAS
+CAPÍTULO I
+De su formación
+Artículo 1º—De conformidad con lo estipulado en el artículo 12 de la Convención Colectiva de Trabajo, entre la Municipalidad del Cantón Central de Puntarenas y el sindicato “Unión de Trabajadores Municipales de Puntarenas”, se constituye la Comisión de Becas, que en adelante se denominará la “COMISIÓN”, para todos aquellos trabajadores de esta Municipalidad, que desean obtener una beca para realizar estudios así como también sirva como promotora de capacitación para los trabajadores municipales. Dicha comisión estará integrada por dos propietarios del “Sindicato”, del nombramiento del mismo; dos propietarios de la “Municipalidad” de nombramiento de la misma, con sus respectivos suplentes y dos representantes del Consejo Municipal; que durarán en sus funciones un año, pudiendo ser reelectos.
