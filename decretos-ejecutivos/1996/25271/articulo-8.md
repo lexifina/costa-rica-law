@@ -1,1 +1,2 @@
-Artículo 8°—El Área de Recursos Humanos confeccionará un prontuario a efecto de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicios en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios, calidades del funcionario(a).
+Artículo 8°—La Unidad Técnica de Recursos Humanos confeccionará un prontuario a efecto de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicios en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios, calidades del funcionario(a).
+(Así modificada nomenclatura por el artículo 1° del decreto ejecutivo N° 26144 del 12 de junio de 1997)

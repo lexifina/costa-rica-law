@@ -5,4 +5,5 @@ c) Funcionarios (as): La persona física que preste al Ministerio en propiedad o
 Los términos "servidor(a) público(a)", "empleado(a) público(a)", "encargado(a) de servicio público", "agente público(a)" y demás similares se consideran equivalentes al de funcionario(a) público (a).
 d) Reglamento: El presente Reglamento Autónomo de Servicios del Ministerio de Hacienda.
 e) Régimen: Régimen de Servicio Civil.
-f) Área de Recursos Humanos del Ministerio: tendrá una nomenclatura y representación en el organigrama del Ministerio, conforme lo decidan las autoridades competentes.
+f) Unidad Técnica de Recursos Humanos del Ministerio: tendrá una nomenclatura y representación en el organigrama del Ministerio, conforme lo decidan las autoridades competentes.
+(Así modificada nomenclatura por el artículo 1° del decreto ejecutivo N° 26144 del 12 de junio de 1997)

@@ -1,2 +1,3 @@
 Artículo 48.—Las vacaciones se deberán gozar sin interrupciones. Estas podrán ser divididas en dos fracciones como máximo, cuando así lo convengan las partes, y siempre que se tratare de labores de índole especial, que no permitan la ausencia prolongada del funcionario(a) y su presencia se considere necesaria para la buena marcha del servicio.
-Las boletas de vacaciones serán autorizadas por los (las) responsables de los programas, dependencias o equipos de trabajo, quienes enviarán copia al Área de Recursos Humanos para los registros pertinentes.
+Las boletas de vacaciones serán autorizadas por los (las) responsables de los programas, dependencias o equipos de trabajo, quienes enviarán copia a la Unidad Técnica de Recursos Humanos para los registros pertinentes.
+(Así modificada nomenclatura por el artículo 1° del decreto ejecutivo N° 26144 del 12 de junio de 1997)
