@@ -1,0 +1,2 @@
+Artículo 13.—De conformidad con lo establecido en el artículo 43 del Código Municipal este Proyecto de Reglamento se somete a consulta pública no vinculante por un plazo mínimo de diez días hábiles, transcurrido el cual se pronunciará sobre el fondo. Ordénese al Alcalde Municipal y con carácter de inmediato, la publicación de este Proyecto de Reglamento, en el Diario Oficial La Gaceta para los fines de ley.
+Ciudad Quesada, San Carlos, 31 de octubre del 2003.—
