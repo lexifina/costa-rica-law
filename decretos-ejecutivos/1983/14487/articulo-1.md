@@ -7,5 +7,6 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°-Modifíquese parcialmente el articulo 1° del Decreto Ejecutivo N° 12664-MEIC-H-OP del 25 de mayo de 1931, publicado en "La Gaceta" N° 104 del 2 de junio de 1981, para que en lo sucesivo el articulo 5° comprendido en él se lea así:
-"Artículo 5°-Las pequeñas industrias y artesanías que sean beneficiadas por este decreto tendrán derecho a una exoneración máxima de doscientos sesenta mil colones (¢260.000,00) al año, sobre la importación de materias primas, maquinaria, equipo y herramientas necesarios para su proceso productivo.
-Para los efectos anteriores, las importaciones que se realicen con franquicia deberán corresponder a las necesidades normales para el funcionamiento adecuado de las empresas" .
+"Artículo 5°-Las pequeñas industrias y artesanías que sean beneficiadas por este decreto tendrán derecho a una exoneración máxima de $ 6.500,00 (seis mil quinientos dólares) al año, equivalente en colones, según el tipo de cambio oficial vigente al primer día hábil de cada año, sobre la importación de materias primas, maquinaria, equipo y herramientas necesarias para su proceso productivo.
+Para los efectos anteriores, las importaciones que se realicen con franquicia deberán corresponder a las necesidades normales para el funcionamiento adecuado de las empresas, conforme con su producción" .
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 18996 del 18 de mayo de 1989).

@@ -14,3 +14,4 @@ Reforma Concede a artesanos y pequeños industriales la exoneración del 100% de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-10 | la propia norma |
+| 2 | 1989-05-18 | Decreto Ejecutivo 18996 (1989-05-18) |
