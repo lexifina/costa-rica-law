@@ -14,3 +14,4 @@ Reglamento del Médico Residente Becado Extranjero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-22 | la propia norma |
+| 2 | 2004-08-25 | SINALEVI (sin norma nombrada) |

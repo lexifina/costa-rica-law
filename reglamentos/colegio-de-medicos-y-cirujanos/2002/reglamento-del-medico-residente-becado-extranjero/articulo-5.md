@@ -3,4 +3,4 @@ a) Título original y copia certificada, que lo acredite como médico cirujano d
 b) Certificación expedida por la institución que otorga la beca (o de otras formas de financiamiento), detallando el monto, que no podrá ser en ningún caso inferior al sueldo regular de un médico residente nacional, así como estados financieros vigentes legalizados y autenticados debidamente como el título de médico en el inciso anterior, de la institución que beca al residente médico extranjero
 c) Fórmula para datos personales.
 d) Dos fotografías tamaño pasaporte.
-e) Declarar bajo la fe del juramento ante Notario Público autorizado en Costa Rica, que no solicitará, ni ejercerá la Medicina en Costa Rica al concluir sus estudios de especialidad, según fórmula de declaración jurada expedida por el Colegio.
+(Mediante resolución de la Sala Constitucional N° 2004-09255 de las 16:03 hrs. del 25/08/2004, se anuló el inciso e) de este artículo.)
