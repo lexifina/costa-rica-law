@@ -1,0 +1,5 @@
+DECRETO XVIII
+Manda entregar varias sumas a los Ministros de Policía de los Partidos en que esta divido el Estado para objetos de salubridad y beneficiencia pública.
+“El Jefe Supremo del Estado libre de Costa Rica.
+Teniendo presente que el aseo en las poblaciones es uno de los mejores preservativos experimentados para el Cólera-Morbo y que para conseguir este objeto no es bastante la disposición del artículo 12 del Reglamento de policía decretado en 16 del mes próximo de 10 corriente, porque a pesar de ambas disposiciones siempre queda enpié la necesidad de algún dinero para atender a aquel objeto: autorizado para tomar de cualesquier objeto: autorizado para tomar de cualesquier fondo las cantidades necesarias para ocurrir a tales demandas, he venido en decretar y decreto.
+1° La Intendencia dispondrá que de la Tesorería de Secuestros se entregue al Ministro principal de Policía del Partido de Cartago la cantidad de ciento cincuenta pesos: al de esta Ciudad la de doscientos: al de Heredia la de doscientos: al de Alajuela la de cien: al de Esparza la de cincuenta; y al del Guanacaste la de cien.
