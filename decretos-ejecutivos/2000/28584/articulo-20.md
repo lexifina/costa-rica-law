@@ -1,0 +1,1 @@
+Artículo 20.—Al funcionario que ingrese a laborar a una dependencia de este Consejo, se le hará entrega de los activos fijos que necesite a través del formulario Asignación de Activos, del cual se remitirá original al Subproceso de Contabilidad, copia al funcionario responsable y copia al Encargado de la dependencia.

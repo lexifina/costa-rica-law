@@ -1,0 +1,1 @@
+Artículo 12.—Le corresponde al Subproceso de Administración de Materiales llevar los controles necesarios para que todo bien que sea adquirido por la institución, no obtenga salida de bodega hacia cualquier dependencia sin su identificación.

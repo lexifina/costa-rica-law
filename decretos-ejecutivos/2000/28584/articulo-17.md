@@ -1,0 +1,1 @@
+Artículo 17.—El Subproceso de Contabilidad emitirá reportes semestrales que contendrán el detalle de los bienes que se encuentran asignados a cada dependencia, con el objeto de que cotejen sus inventarios.

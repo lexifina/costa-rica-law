@@ -1,0 +1,1 @@
+Artículo 38.—En los casos de finalización de la vida útil de los activos, se procederá a levantar una acta con el detalle necesario, por parte del Subproceso de Contabilidad con el visto bueno de la jefatura y con el acta de la Asesoría Legal a efecto de registrar la baja del activo.

@@ -1,0 +1,1 @@
+Artículo 26.—De darse el deterioro anormal de un activo, la jefatura respectiva se encargará de comunicarlo a los procesos Financiero, de Recursos Humanos y Legal con la finalidad de abrir el procedimiento administrativo disciplinario y así determinar la supuesta responsabilidad del funcionario.

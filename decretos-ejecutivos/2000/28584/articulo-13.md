@@ -1,0 +1,1 @@
+Artículo 13.—El retiro de activos del Subproceso de Administración de Materiales sólo podrá ser realizado mediante el formulario de "Asignación de Activos" debidamente firmado por los respectivos responsables.

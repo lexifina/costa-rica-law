@@ -1,0 +1,1 @@
+Artículo 16.—Las jefaturas y los encargados administrativos de activos de las unidades institucionales velarán para que estas medidas de control se cumplan, presentando oportunamente a quien corresponda informe con los registros, listados y las actualizaciones del caso en materia de activos fijos.

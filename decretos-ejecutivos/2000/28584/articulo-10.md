@@ -1,0 +1,1 @@
+Artículo 10.—Los activos fijos los clasificará el Subproceso de Contabilidad por familia (equipo de transporte, equipo de cómputo, software, equipo y mobiliario de oficina) utilizando la codificación del Ministerio de Obras Públicas y Transportes, con el objeto de estandarizar la codificación y el registro contable.

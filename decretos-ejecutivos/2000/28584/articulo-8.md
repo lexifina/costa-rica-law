@@ -1,0 +1,1 @@
+Artículo 8°—El Subproceso de Adquisiciones coordinará con la Asesoría Legal para que toda adquisición de activos fijos que requieran inscripción en el Registro Público, u otras oficinas gubernamentales, se cumplan lo antes posible.

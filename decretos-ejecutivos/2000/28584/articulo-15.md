@@ -1,0 +1,1 @@
+Artículo 15.—Todas las dependencias que utilicen activos fijos adquiridos por el Consejo de Seguridad Vial, tienen la obligación de registrar y actualizar la información de activos a su cargo, sirviendo para su administración y control interno.

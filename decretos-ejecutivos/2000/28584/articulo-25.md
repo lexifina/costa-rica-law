@@ -1,0 +1,1 @@
+Artículo 25.—Se entenderá por daño anormal el deterioro o desgaste que afecta el funcionamiento del activo en forma parcial, total, permanente o reparable y se presenta por accidentes, descuido o negligencia del servidor tenido como responsable.

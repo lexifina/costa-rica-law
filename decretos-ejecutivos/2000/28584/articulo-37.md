@@ -1,0 +1,1 @@
+Artículo 37.—Para que el Subproceso de Contabilidad proceda al registro de las bajas deberá mediar acta de destrucción, desuso o resolución administrativa avalada por la Asesoría Legal. Las pérdidas de activos por desastre natural tendrán que cumplir con este requisito.

@@ -1,0 +1,1 @@
+Artículo 41.—Las unidades competentes para la ejecución del presente reglamento podrán ser sustituidas, si la estructura organizativa de la Institución resulta variada por alguna modificación en lo sucesivo.
