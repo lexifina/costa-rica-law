@@ -1,0 +1,6 @@
+Artículo 44.. Cuando por causas de fuerza mayor, tales como
+incendio, terremoto, hubiere pérdidas o destrucción total de los bienes
+exonerados, el interesado deberá a la mayor brevedad comunicarlo a la
+Comisión y remitir copia a la Dirección y presentar ante la Comisión,
+cuando lo considere necesario la solicitud de reposición , para que ésta
+última resuelva en firme lo que estime procedente en cada caso.

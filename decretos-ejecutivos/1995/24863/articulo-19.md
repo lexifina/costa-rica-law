@@ -1,0 +1,3 @@
+Artículo 18.. El contrato debe ser firmado por la persona física o
+el representante legal de la persona jurídica, según sea el caso y el
+representante del Instituto, éste último en representación del Estado.

@@ -1,0 +1,2 @@
+TRANSITORIO I
+En cuanto a los incentivos contenidos en contratos firmados con anterioridad a la promulgación de la Ley Nº 7293 de fecha 31 de marzo de 1992, se regirán por las normas legales y reglamentarias vigentes a la fecha de su suscripción salvo que ley posterior contenga un trato más favorable. En los demás aspectos, tales como trámite y control de las exoneraciones, se aplicará lo establecido en este Decreto.

@@ -1,0 +1,19 @@
+Artículo 47.. La Comisión podrá autorizar el traspaso de aquellos
+bienes adquiridos por una empresa con contrato Turístico a otra del mismo
+régimen, siempre que gocen de los mismos beneficios, previa solicitud de
+la empresa, excepto para vehículos y naves acuáticas. La Comisión
+remitirá copia de la autorización al Departamento de Exenciones de la
+Dirección.
+Si los bienes a traspasar son vehículos y naves acuáticas, la
+empresa deberá tramitar la solicitud ante el Departamento de Exenciones
+de la Dirección, previa recomendación de la Comisión.
+Los traspasos de bienes exonerados a terceros que no gocen de los
+mismos beneficios fiscales, obligan al pago de los respectivos tributos y
+sobretasas, de conformidad con lo indicado en el segundo párrafo del
+artículo 45 de la Ley Nº 7293. Esto siempre y cuando la empresa no haya
+incurrido en incumplimientos que ameriten la iniciación de los
+respectivos procedimientos administrativos. La depreciación, merma o
+avería se hará conforme a las reglas vigentes y de acuerdo con el estado
+del bien en la fecha de liquidación. La Comisión recomendará el traspaso
+y al Departamento de Exenciones le corresponde lo relativo a la
+autorización del mismo.

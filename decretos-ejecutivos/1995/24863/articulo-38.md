@@ -1,0 +1,5 @@
+Artículo 38.. En forma previa a la recomendación de las respectivas
+solicitudes de exención, las empresas de Turismo Receptivo de Agencias de
+Viaje y de Transporte Acuático de Turistas deben justificar
+satisfactoriamente ante la Comisión la necesidad de la importación de
+vehículos o naves exentas, según corresponda.
