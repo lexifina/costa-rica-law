@@ -14,3 +14,4 @@ Suspende el recibo y trámite de nuevas solicitudes para operar Almacenes de Dep
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-22 | la propia norma |
+| 2 | 1987-12-22 | Decreto Ejecutivo 17924 (1987-12-22) |

@@ -1,6 +1,7 @@
 N° 17482-H
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA,
+(NOTA: mediante artículo 1° del decreto ejecutivo N° 17924 de 22 de diciembre de 1987, se prorrogó la vigencia de este decreto por un período adicional de seis meses, a partir del 1° de enero de 1988.)
 En uso de las facultades que les confiere el articulo 140, incisos 3) y 18) de la Constitución Política y de conformidad con el titulo IX del Código Aduanero Uniforme Centroamericano (iey N9 3421 de 6 de octubre de 1964) y su respectivo reglamento, y
 Considerando:
 1°—Que mediante Decreto Ejecutivo N° 17067-H de fecha 16 de jumo de 1986, publicado en " La Gaceta " N° 117 de 24 de junio de 1986, modificado por los decretos N° 17217-H de 30 de setiembre de 1986, publicado en " La Gaceta " N° 194, de 19 de octubre de 1986, y el decreto N° 17360-H de 26 de noviembre de 1986, publicado en " La Gaceta " N9 6 de 9 de enero de 1987, se declaró emergencia nacional el funcionamiento del Sistema Aduanero Nacional.
