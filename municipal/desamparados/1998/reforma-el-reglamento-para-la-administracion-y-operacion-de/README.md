@@ -14,3 +14,4 @@ Reforma el Reglamento para la Administración y Operación de los Sistemas de Es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-23 | la propia norma |
+| 2 | 1998-03-23 | Ley 8 |
