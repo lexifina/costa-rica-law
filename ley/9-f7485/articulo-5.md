@@ -1,0 +1,2 @@
+Art. 5°-Con el presente decreto se dará cuenta al Congreso Constitucional en su próxima reunión ordinaria.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los tres días del mes de setiembre de mil ochocientos ochenta y cuatro.-A. DE JESÚS SOTO, Presidente.-VICEN- TE C. SEGREDA, Secretario.-Palacio Presidencial.- San José, á tres de setiembre de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Hacienda.-BERNARDO SOTO.
