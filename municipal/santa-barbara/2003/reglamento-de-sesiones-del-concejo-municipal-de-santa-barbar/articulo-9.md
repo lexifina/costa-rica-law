@@ -1,0 +1,2 @@
+Artículo 9º—El Presidente Municipal está obligado, después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, o realizar la sustitución del Regidor Propietario que incurriera en la falta, perderá el derecho a devengar la dieta y su derecho al voto, no obstante conservará su derecho de voz.
+(El Reglamento de Sesiones del Consejo Municipal de Santa Barbara, aprobado mediante Acuerdo N° 2464-03 de la Sesión Ordinaria N° 285 del 12 de agosto del 2003 y publicado en La Gaceta N° 165 de 28 de agosto del 2003, no tiene artículo 10.)

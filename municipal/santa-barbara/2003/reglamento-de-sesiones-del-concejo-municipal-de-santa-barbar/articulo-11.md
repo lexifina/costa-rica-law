@@ -1,0 +1,1 @@
+Artículo 11.—Las sesiones del Concejo se desarrollarán conforme al orden del día previamente elaborado, el cual podrá ser modificado o alterado mediante moción aprobada por el Concejo, por simple mayoría.

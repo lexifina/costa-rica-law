@@ -1,0 +1,1 @@
+Artículo 18.—De toda sesión del Concejo se levantará un acta en la que se hará constar los acuerdos tomados y suscintamente las deliberaciones habidas, salvo el caso de nombramientos o elecciones en los que se haga constar únicamente el acuerdo tomado.

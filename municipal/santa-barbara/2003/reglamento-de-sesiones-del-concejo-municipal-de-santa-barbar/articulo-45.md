@@ -1,0 +1,1 @@
+Artículo 45.—Finalizadas las exposiciones de los particulares, el Presidente concederá el uso de la palabra a los Regidores y Síndicos que lo soliciten con el fin de que puedan intercambiar opiniones con los invitados, sobre el asunto de que se trate.

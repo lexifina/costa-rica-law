@@ -1,0 +1,1 @@
+Artículo 14.—El presidente municipal calificará los asuntos de trámite urgente recibidos hasta el día inmediato anterior a la sesión y ordenará al Secretario incluirlos en el Orden del Día. En las sesiones podrán incluirse asuntos de trámite urgente por iniciativa del Presidente o de uno o más regidores, si el Concejo así lo acuerda simple mayoría.

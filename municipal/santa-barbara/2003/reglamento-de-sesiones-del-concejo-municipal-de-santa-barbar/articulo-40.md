@@ -1,0 +1,1 @@
+Artículo 40.—Cuando el objeto de la audiencia fuera un asunto de competencia del Alcalde Municipal, el Presidente ordenará al Secretario remitir el memorial presentado a dicho funcionario, para que éste le dé el trámite correspondiente, sin perjuicio de que él o los interesados sean oídos en la audiencia.

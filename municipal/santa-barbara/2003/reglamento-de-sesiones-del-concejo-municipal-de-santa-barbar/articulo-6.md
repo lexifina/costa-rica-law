@@ -1,0 +1,1 @@
+Artículo 6º—El quórum para las sesiones ordinarias y extraordinarias será de la mitad más uno de los regidores. Ese numero de Regidores deberá encontrarse presente en el Salón de Sesiones, ocupando sus respectivos curules al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

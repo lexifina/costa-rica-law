@@ -1,0 +1,1 @@
+Artículo 17.—Cuando concurrieren al Concejo, miembros de los Supremos Poderes, invitados especiales, representantes de organismos oficiales y extranjeros, representantes de instituciones autónomas o semiautónomas, se les recibirá en el salón de sesiones en la hora fijada para tal efecto y después del saludo de rigor se les podrá conceder la palabra.
