@@ -1,0 +1,1 @@
+Artículo 4º—Los directores y administradores de los centros de trabajo involucrados, deberán ofrecer todas las facilidades necesarias para el acondicionamiento y funcionalidad de las Oficinas de Recursos Humanos en los diferentes centros penales.

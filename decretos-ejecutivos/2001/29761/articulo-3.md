@@ -1,0 +1,1 @@
+Artículo 3º—Los funcionarios asignados a cargo de las Oficinas de Recursos Humanos de los diferentes Centros Penales, dependerán técnicamente del Director de Recursos Humanos y administrativamente del Director del Centro respectivo.

@@ -1,0 +1,7 @@
+Artículo 5º—En los demás centros penales fuera del Área Metropolitana, donde no exista oficina de Recursos Humanos, se delegarán en los Administradores de Centros Penales que posean condición profesional o en su defecto en los Directores de los Centros Penales, con el fin de garantizar el servicio a los funcionarios de dichos centros, las siguientes funciones:
+1) Dar el visto bueno para el disfrute de las vacaciones legales y psicoprofilácticas de los servidores del respectivo centro.
+2) Remitir a la Dirección de Recursos Humanos el informe de asistencia de los funcionarios del centro, conforme al artículo 36 del Reglamento Autónomo de Servicio del Ministerio de Justicia.
+3) Remitir a la Dirección de Recursos Humanos, copia de la autorización de disfrute de beneficios de tiempo libre por puntualidad y cumpleaños, así como licencias con goce de salario de los funcionarios. Conceder permisos sin goce de salario menores a un mes, e informar a la Dirección de Recursos Humanos para que se realice el rebajo respectivo.
+4) Servir de enlace entre los funcionarios del Centro y la Dirección de Recursos Humanos para evacuar consultas en materia de análisis ocupacional, reclutamiento y selección, carrera profesional, estatuto policial, y capacitación.
+5) Gestionar ante la Dirección de Recursos Humanos el pago de beneficios como dedicación exclusiva, carrera profesional, prohibición y carrera policial.
+6) Expedir constancias y certificaciones salariales de conformidad con los lineamientos de la Dirección de Recursos Humanos.
