@@ -1,0 +1,1 @@
+Artículo 17.—El resultado de esa evaluación se expresará a través de un sistema denominado Bandas de Sostenibilidad, medidas en una escala de uno a cinco de acuerdo al procedimiento establecido en el Manual respectivo y que indicarán su posición relativa en términos de la Sostenibilidad turística.

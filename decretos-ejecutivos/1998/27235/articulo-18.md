@@ -1,0 +1,1 @@
+Artículo 18.—Las Empresas Turísticas pertenecientes al programa CST podrán ser reclasificadas en cualquier momento como resultado de una evaluación del Comité Técnico, siendo aplicada dicha categorización a los treinta días de notificada al interesado.

@@ -1,0 +1,1 @@
+Artículo 14.—La responsabilidad de las evaluaciones recaerá en el Comité Técnico para lo cual aplicará un Manual de Categorización que se considerará parte integrante de este Reglamento y que contiene las medidas ambientales, económicas y sociales, a las cuales debe ajustarse la empresa.

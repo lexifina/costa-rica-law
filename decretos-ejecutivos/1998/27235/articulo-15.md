@@ -1,0 +1,1 @@
+Artículo 15.—Para la evaluación de las empresas, el Comité Técnico podrá contratar empresas especializadas en la materia, en cuyo caso el costo de dicha evaluación será cubierto por el interesado quien pagará directamente a la empresa evaluadora. Para tal propósito, el Comité seleccionará a empresas altamente calificadas en evaluaciones de campo.

@@ -1,0 +1,1 @@
+Artículo 5°—La sede de la Comisión estará en el Instituto, el cual pondrá a su disposición los medios económicos, técnicos y humanos, necesarios para el adecuado cumplimiento de sus funciones. Con este propósito, el Presidente de la Comisión nombrará dentro del personal técnico del Instituto los miembros que conformarán el Comité Técnico y la Secretaría Técnica.

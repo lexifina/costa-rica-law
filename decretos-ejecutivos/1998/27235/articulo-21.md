@@ -1,0 +1,1 @@
+Artículo 21.—A las empresas que se encuentren dentro del programa del CST se les identificará mediante un logotipo que contendrá la banda asignada, el cual deberá colocarse en lugar visible del establecimiento, el cual la empresa podrá utilizarlo en su material promocional y papelería. Para tal efecto, la empresa deberá solicitar una nueva evaluación como mínimo cada dos años.
