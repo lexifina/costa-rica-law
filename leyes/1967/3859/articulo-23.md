@@ -1,0 +1,1 @@
+Artículo 23.- Para su funcionamiento, las asociaciones pueden adquirir toda clase de bienes, celebrar contratos de cualquier tipo y realizar toda clase de operaciones lícitas dirigidas a la consecución de sus fines.

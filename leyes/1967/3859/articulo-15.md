@@ -1,0 +1,1 @@
+Artículo 15.- Las comunidades del país que deseen organizarse para realizar actividades de desarrollo integral o específico en su propio beneficio y en beneficio del país, pueden hacerlo en forma de asociaciones distritales, cantonales, regionales, provinciales o nacionales, las cuales se regirán por las disposiciones de la presente ley.

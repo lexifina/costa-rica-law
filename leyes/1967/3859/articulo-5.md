@@ -1,0 +1,1 @@
+Artículo 5º.- La Dirección Nacional de Desarrollo de la Comunidad estará a cargo de un Director, de libre nombramiento y remoción del Presidente de la República. Además contará con un personal técnico y administrativo adecuado, el cual estará protegido por el régimen de Servicio Civil.

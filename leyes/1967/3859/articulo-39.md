@@ -1,0 +1,1 @@
+Artículo 39.- Las Asociaciones pueden disolverse voluntariamente, o ser disueltas administrativamente por el Poder Ejecutivo, o por mandato judicial. El reglamento hará una definición de cada clase de disolución, de sus causales y de los procedimientos para decretarla.

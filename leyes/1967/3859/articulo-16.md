@@ -1,0 +1,3 @@
+Artículo 16.- Para constituir las asociaciones de desarrollo integral, será necesario que se reúnan por lo menos cien personas, y no más de mil quinientas, mayores de quince años e interesadas en promover, mediante el esfuerzo conjunto y organizado, el desarrollo económico y el progreso social y cultural de un área determinada del país. El area jurisdiccional de una asociación de desarrollo, corresponderá a aquel territorio que constituye un fundamento natural de agrupación comunitaria.
+En casos excepcionales, la Dirección podrá autorizar la existencia de asociaciones de desarrollo integradas por un número inferior o superior al indicado anteriormente.
+En ningún caso se podrán crear asociaciones con un número de personas inferior a veinticinco.

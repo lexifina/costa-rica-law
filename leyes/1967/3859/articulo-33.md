@@ -1,0 +1,1 @@
+Artículo 33.- Copia de los planes y presupuestos deben ponerse también en conocimiento de la Municipalidad del respectivo cantón, la cual tendrá un plazo de quince días para formular observaciones ante la Dirección Nacional de Desarrollo de la Comunidad, para los fines del artículo anterior.

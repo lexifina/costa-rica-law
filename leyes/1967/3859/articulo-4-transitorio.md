@@ -1,0 +1,1 @@
+IV.- El Poder Ejecutivo queda obligado a enviar a la Asamblea Legislativa un proyecto de presupuesto para poner en marcha la Dirección Nacional de Desarrollo de la Comunidad, más tardar 60 días a partir de la fecha de publicación de la presente ley.
