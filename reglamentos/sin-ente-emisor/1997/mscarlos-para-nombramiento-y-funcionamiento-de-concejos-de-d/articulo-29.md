@@ -1,2 +1,0 @@
-Artículo N° 29.-Cuando suceda el cambio de gobierno y dentro de los 3 meses establecidos por el artículo 63 del Código Municipal, el Concejo Municipal llamará al Concejo de Distrito saliente y al entrante para efectuar el intercambio de poder, previo a la juramentación de rigor.
-De no cumplir alguno de los Concejales esta disposición, el Concejo Municipal podrá recurrir a la autoridad competente para que se cumpla con lo dispuesto.

@@ -1,1 +1,0 @@
-Artículo 5°-La Asamblea sugerirá a los vecinos del Distrito, que tomen en cuenta a la hora de elegir a sus representantes, personas de reconocida capacidad moral y de trabajo, con al menos una representante femenina.

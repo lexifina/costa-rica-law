@@ -1,2 +1,0 @@
-Transitorio
-Artículo 30.-Los Distritos que hayan iniciado el proceso de constitución de los Concejos de Distrito, fundamentados en el acuerdo Municipal número cinco del Acta veinticuatro, celebrada el cuatro de marzo de mil novecientos noventa y siete, por el Concejo Municipal de la Municipalidad de San Carlos, subsistirá hasta donde se encuentre la constitución de los mismos, y su funcionamiento se regirá de acuerdo a lo estipulado en el presente Reglamento una vez publicado.

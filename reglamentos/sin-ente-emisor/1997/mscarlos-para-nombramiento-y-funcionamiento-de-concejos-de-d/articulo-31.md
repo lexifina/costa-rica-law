@@ -1,1 +1,0 @@
-Artículo 31.-Los miembros de los Concejos de Distrito que se constituyan por primera vez con posterioridad a la promulgación del presente Reglamento, durarán en sus cargos hasta la nueva designación de los Regidores, según lo dispuesto por el artículo número dos de este Reglamento.

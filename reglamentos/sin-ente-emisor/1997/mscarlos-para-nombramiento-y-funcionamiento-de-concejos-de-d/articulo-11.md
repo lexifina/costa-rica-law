@@ -1,1 +1,0 @@
-Artículo 11.-La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo fundamentalmente las prioridades , fijadas por el Concejo de Distrito en su Plan de Trabajo e incluido en el Plan General de la Municipalidad. Así mismo la Municipalidad les brindará informes trimestrales, sobre los recursos invertidos y disponibles para el distrito.
