@@ -1,0 +1,1 @@
+ARTÍCULO 18. Para conservar mejor las buenas relaciones y fomentar el comercio, las dos partes contratantes podrán mandarse, y deber n recibirse, recíprocamente, Comisionados para sus relaciones políticas, como asimismo, Agentes de comercio; debiendo estos funcionarios ser tratados y considerados conforme los principios generalmente establecidos por derecho de gentes.
