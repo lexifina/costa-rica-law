@@ -1,8 +1,1 @@
-ARTÍCULO 68.- La subvención referida en el artículo anterior, deberá
-girarse directamente a los comités cantonales, los cuales podrán disponer
-de esas sumas únicamente para los programas que contemple el respectivo
-plan de trabajo anual, debidamente aprobado por el Consejo.
-Asimismo, los comités cantonales deberán rendir informes trimestrales
-al Instituto y a la municipalidad respectiva, donde se especifique, entre
-otros asuntos que fijará su reglamento, la actividad promocionada y su
-costo.
+ARTÍCULO 68.- ANULADO por Resolución de la Sala Constitucional No.5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000.
