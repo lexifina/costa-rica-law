@@ -1,4 +1,6 @@
 Artículo 5°—La ejecución de las políticas de inversión corresponde a la Gerencia de la División de Pensiones, de conformidad con las siguientes disposiciones:
 a) Inversiones de corto y mediano plazo: Las ejecutara la Gerencia División de Pensiones, de acuerdo con las recomendaciones de la Comisión de Inversiones, con sujeción a los parámetros establecidos en los acuerdos de la Junta Directiva.
-b) Inversiones de largo plazo: Las ejecutará la Gerencia División de Pensiones con sujeción al acuerdo concreto de la Junta Directiva en el que se señalarán todas las condiciones de la inversión.
+b) Inversiones de largo plazo: las ejecutará la Gerencia de la División de Pensiones de acuerdo con las recomendaciones de la Comisión de Inversiones, con sujeción a los parámetros establecidos en los acuerdos y en la política y Estrategia aprobada por la Junta Directiva de la Caja anualmente.
+Quedará a criterio de la Gerencia de la división de Pensiones y por recomendación de la Comisión de Inversiones, elevar a Junta Directiva para su aprobación, mediante acuerdo concreto, aquellas inversiones de largo plazo que considere convenientes.
+(Así reformado mediante sesión N° 7571 de 16 de agosto del 2001)
 c) La Gerencia de Pensiones, al ejecutar los acuerdos de inversiones, diversificara la Cartera de Inversiones, entre los diversos emisores autorizados e informara a la Junta Directiva, al final de cada trimestre, sobre las inversiones realizadas en ese período.

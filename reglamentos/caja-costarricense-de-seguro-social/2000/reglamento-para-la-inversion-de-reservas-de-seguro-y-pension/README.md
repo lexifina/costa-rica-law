@@ -14,3 +14,4 @@ Reglamento para la Inversión de Reservas de Seguro y Pensiones de Invalidez, Ve
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
+| 2 | 2001-08-16 | Reglamento 7571 (2001-08-16) |
