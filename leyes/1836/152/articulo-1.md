@@ -1,0 +1,6 @@
+DECRETO CLII.
+Suspenden los efectos del Decreto de 31 de Marzo de 1835 que suprimía los Diezmos, dejando este ramo como estaba antes de la emisión del citado Decreto. (1)
+"El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado la resolución siguiente.
+Habiendo tomado en consideración la Asamblea la providencia del Ejecutivo de 4 de Diciembre próximo pasado, sobre Diezmos: penetrada de las graves dificultades que la revolución ha presentado para la ejecución de la ley de 31 de Marzo que suprimía aquella contribución, en Sesión de este día se ha servido acordar y decretar: "que hasta nueva resolución del Cuerpo legislativo, se suspendan los efectos de la enunciada ley, de 31 de Marzo de 1835, y continúe el Diezmo pagándose y administrándose como antes de esta ley, pero quedando por siempre exceptuados de pagarlo, los frutos y producciones que por solo diez años agració el Decreto de 14 de Julio de 825"-Y de orden de la misma lo decimos a U. para conocimiento del Jefe de Estado y demás efectos que correspondan.
+----------------------------------------------------------
+(1) Habiéndose suprimido la contribución del Diezmo por el Concordato celebrado en la Santa Sede, en 7 de Octubre, ha quedado Derogada la presente ley.
