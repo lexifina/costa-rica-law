@@ -1,6 +1,6 @@
 TITULO QUINTO
 Comisión Administrativa
-Artículo 19
+ARTICULO 19
 1º.- Se crea una Comisión Administrativa que tendrá las siguientes
 atribuciones y deberes:
 a) Elaborar el Proyecto de Reglamento del presente Convenio y
@@ -22,8 +22,8 @@ Reglamento.
 miembros integrantes. El Presidente de la Comisión tendrá facultad de
 doble voto para casos de empate.
 Las materias contempladas en los apartados a) y b) del presente
-artículo, serán sometidos a la decisión del Consejo de Trabajo y Previsión
-Social de la Organización de Estados Centroamericanos.
+artículo, serán sometidos a la decisión del Consejo de Trabajo y
+Previsión Social de la Organización de Estados Centroamericanos.
 3º.- Los acuerdos de la Comisión tendrán carácter obligatorio para
 las Partes Contratantes, sin perjuicio de lo dispuesto en el numeral 8º
 del artículo 28.
