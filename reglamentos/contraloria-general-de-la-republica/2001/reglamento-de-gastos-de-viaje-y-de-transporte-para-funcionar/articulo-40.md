@@ -1,0 +1,1 @@
+Artículo 40º.- Determinación de la suma adicional a asignar. Cuando, para determinar la suma complementaria a otorgar a que se refiere el artículo anterior, fuese necesario la utilización de porcentajes, la Administración aplicará los parámetros dados en el Artículo 35º.

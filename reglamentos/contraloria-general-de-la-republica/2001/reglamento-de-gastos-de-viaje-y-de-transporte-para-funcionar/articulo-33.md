@@ -1,0 +1,1 @@
+Artículo 33º.- Tributos o cánones. Adicionalmente a las sumas que se reconocen de acuerdo con lo dispuesto por los Artículos 34º y 39º, se reconocerán los tributos o tarifas que se deben pagar en las terminales de transporte (aéreas, marítimas o terrestres). Estos gastos deberán ser debidamente justificados para que sean reconocidos.

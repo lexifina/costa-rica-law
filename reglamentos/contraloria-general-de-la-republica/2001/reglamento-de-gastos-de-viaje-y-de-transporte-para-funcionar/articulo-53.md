@@ -1,0 +1,3 @@
+CAPITULO VI
+DISPOSICIONES FINALES
+Artículo 52º.- Reconocimiento de gastos conexos. Los gastos conexos del evento o actividad a los que el funcionario asistiere podrán ser reconocidos . Para tales efectos se considera gastos conexos, las cuotas de inscripción en el evento, alquiler de equipo didáctico o de apoyo para hacer presentaciones o exposiciones, adquisición o reproducción de material bibliográfico siempre que sea para entregar a la biblioteca del organismo público al que pertenece el servidor y las llamadas telefónicas oficiales a nuestro país cuando en el acuerdo de viaje se haya autorizado al funcionario a hacerlas. Estos gastos se pagarán únicamente contra la presentación de la (s) respectiva (s) factura (s) al momento de hacer la liquidación.

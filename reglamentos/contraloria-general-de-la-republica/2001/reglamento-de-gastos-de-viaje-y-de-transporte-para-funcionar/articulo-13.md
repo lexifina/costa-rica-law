@@ -1,0 +1,4 @@
+Artículo 13º.- Obligaciones del funcionario que recibe y revisa las liquidaciones. Son obligaciones del funcionario encargado de recibir y revisar las liquidaciones de gastos de viaje:
+Solicitar el reintegro de las sumas adelantadas en exceso en relación con el gasto reconocido del viaje.
+Llevar y mantener actualizado un registro de los adelantos girados. En caso de incumplimiento en la presentación de la liquidación de gastos, en los términos del plazo establecido en el Artículo 10º, por parte del funcionario que realizó el viaje, informar sobre el particular, -en forma inmediata al vencimiento de dicho plazo-, al órgano superior correspondiente, con el propósito de que aplique las medidas que señala el artículo anterior.
+El incumplimiento de estas obligaciones por el funcionario encargado, lo hará acreedor de las sanciones disciplinarias que la Administración activa haya previsto en tal caso.
