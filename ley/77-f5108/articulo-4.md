@@ -1,0 +1,1 @@
+Art. 4. Cumplido que sea el término señalado por el artículo 1° de este decreto, y el que se haya establecido en los contratos que lo hayan fijado, serán de propiedad de los dueños de los terrenos todas las maderas que en ellos se encuentren,
