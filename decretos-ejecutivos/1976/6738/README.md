@@ -14,3 +14,4 @@ Reglamento del Centro de Adaptación Social "La Reforma"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-03-01 | la propia norma |
+| 2 | 1991-03-06 | Decreto Ejecutivo 20295 (1991-03-06) |
