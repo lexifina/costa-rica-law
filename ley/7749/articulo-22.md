@@ -1,0 +1,6 @@
+ARTICULO 22
+Relación con otras Convenciones y Acuerdos
+1.- Esta Convención no afecta los derechos y compromisos derivados de tratados de extradición y otros tratados en cooperación internacional en materia penal estipulando para la transferencia de personas detenidas para propósitos de confrontación o testimonio.
+2.- Si dos o más Partes ya han concluido un acuerdo o tratado sobre la transferencia de personas sentenciadas o de otro modo han establecido sus relaciones en este asunto, o lo hicieran en el futuro, tendrán derecho a aplicar ese acuerdo o tratado o regular esas relaciones en conformidad, en bien de la presente Convención.
+3.- La presente Convención no afecta el derecho de Estados parte de la Convención Europea sobre la Validez Internacional de Fallos Penales de concluir acuerdos bilaterales o multilaterales entre ellos en asuntos tratados en esa Convención para suplir sus estipulaciones o facilitar la aplicación de los principios incluidos en ella.
+4.- Si una solicitud de transferencia cae dentro del ámbito tanto de la presente Convención y la Convención Europea sobre la Validez Internacional de Fallos Penales u otro acuerdo o tratado en la transferencia de personas sentenciadas, el Estado solicitante indicará, cuando haga la solicitud, con base en cuál instrumento está hecha.

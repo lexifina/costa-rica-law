@@ -1,0 +1,4 @@
+ARTÍCULO 10
+Cumplimiento continuo
+1.- En el caso de cumplimiento continuo, el Estado administrante estará comprometido por la naturaleza legal y duración de la sentencia como está determinado por el Estado sentenciante.
+2.- Si, sin embargo, esta sentencia es por su naturaleza o duración incompatible con la ley del Estado administrante, o su ley así lo requiere, ese Estado puede, por una orden del tribunal o administrativa, adaptar la sanción al castigo o medida prescrita por su propia ley por un delito similar. En cuanto a su naturaleza, el castigo o medida corresponderán, hasta donde sea posible, con aquel impuesto por la sentencia a ser cumplida. No agravará, por su naturaleza o duración, la sanción impuesta en el Estado sentenciante, ni excederá el máximo prescrito por la ley del Estado administrante.
