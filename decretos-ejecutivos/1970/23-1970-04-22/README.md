@@ -13,3 +13,4 @@ Crea Concejo de Distrito de Colorado de Abangares, Guanacaste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-24 | la propia norma |
+| 2 | 1970-04-24 | SINALEVI (sin norma nombrada) |
