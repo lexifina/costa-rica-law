@@ -4,5 +4,5 @@ La agenda contendrá al menos lo siguiente:
 2. Correspondencia.
 3. Asuntos varios.
 Dicha agenda podrá ser modificada por la Junta Directiva o por la Presidencia Ejecutiva.
-Extraordinariamente la Junta Directiva se reunirá cada vez que sea convocada por el Presidente Ejecutivo y con veinticuatro horas de anticipación como mínimo. Dicha convocatoria podrá hacerse en forma verbal, por escrito, vía fax, por medio de beeper, telefónicamente, correo electrónico o por cualquier otro medio existente que pueda ser verificable.
-(Así reformado su párrafo primero por acuerdo tomado en sesión N° 3127 de 14 de noviembre del 2002)
+Extraordinariamente la Junta Directiva se reunirá cada vez que sea convocada por el Presidente Ejecutivo y con veinticuatro horas de anticipación como mínimo, y en los casos sólo estrictamente necesarios para conocer asuntos especiales o urgentes que requieren por su índole atención inmediata, o excepcionalmente para conocer algún asunto ordinario cuando las circunstancias así lo exijan. Dicha convocatoria podrá hacerse en forma verbal, correo electrónico o por cualquier otro medio existente que pueda ser verificable.
+(Reformado parcialmente mediante sesión ordinaria N° 3224, celebrada el 05 de febrero de 2004.)
