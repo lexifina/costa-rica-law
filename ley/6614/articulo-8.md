@@ -1,1 +1,1 @@
-Artículo 8º.- Rige a partir de su publicación.
+Artículo 8º.-Rige a partir de su publicación.
