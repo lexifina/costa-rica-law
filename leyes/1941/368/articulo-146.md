@@ -1,1 +1,0 @@
-Artículo 146.-Cancelado un asiento, no podrá ser certificado, excepto que lo solicitare el propio interesado, o que lo pidiere una autoridad represiva con motivo de la apertura de un nuevo proceso, si la cancelación se había hecho de acuerdo con el artículo 144.

@@ -1,1 +1,0 @@
-Artículo 198.-Si el aborto fuere el resultado de imprudencia, descuido o impericia profesionales, el médico u obstétrica, serán penados conforme a lo dispuesto en el artículo 190, cuando sobreviniere la muerte de la mujer, y con multa de trescientos sesenta a mil colones, cuando no se produjere dicha muerte.

@@ -1,1 +1,0 @@
-Artículo 124.-La reparación del daño material se hará mediante una indemnización pecuniaria, que se fijará valorando la entidad, de todos los daños patrimoniales causados con la acción u omisión punibles por medio de peritos, y si ello fue re imposible en todo o en parte, al prudente arbitrio del juez.

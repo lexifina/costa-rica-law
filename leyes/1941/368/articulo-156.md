@@ -1,1 +1,0 @@
-Artículo 156.-El indulto es general cuando se remite la pena o parte de ella a todos los condenados por un mismo delito, y es particular cuando la remisión se hace a una o varias personas determinadas.

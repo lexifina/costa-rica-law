@@ -1,1 +1,0 @@
-Artículo 363.-Cuando la autoridad hubiere provocado el hecho por haberse extralimitado de modo evidente en el ejercicio de sus funciones, la pena ordinaria podrá disminuirse hasta en cinco sextas partes.

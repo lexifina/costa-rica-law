@@ -1,1 +1,0 @@
-Artículo 383.-Será condenado a multa de trescientos sesenta a setecientos veinte colones, el funcionario o empleado público que requerido en forma por la autoridad competente, rehusare entregar una cantidad o cosa depositadas bajo su custodia o administración.

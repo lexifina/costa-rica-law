@@ -1,1 +1,0 @@
-Artículo 320.-Serán reprimidos con multa de ciento ochenta a setecientos veinte colones, si el hecho no importa un delito más severamente penado, los telegrafistas, telefonistas, conductores, capitanes, pilotos, mecánicos y demás empleados de cualquier medio de transporte terrestre, naval o aéreo que abandonaren su puesto durante el servicio que les corresponda.

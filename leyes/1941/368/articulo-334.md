@@ -1,1 +1,0 @@
-Artículo 334.-En los casos del artículo anterior, si el delincuente fuere funcionario público, militar en servicio, agente o comisionado del Gobierno, que hubiere abusado de autoridad, documentos, noticias, o medios que tuviera por razón de su cargo, sufrirá la pena de veinticuatro a treinta años de prisión.

@@ -1,1 +1,0 @@
-Artículo 197.-Sufrirá prisión de seis meses a tres años, la mujer que causare su propio aborto, o que consintiere en que otro se lo cause. La tentativa de la mujer soltera no es punible, cuando fuere su primera preñez.
