@@ -12,7 +12,8 @@ j) Velar porque los servicios de reparación, conservación y mantenimiento de l
 k) Mantener registros actualizados de las personas autorizadas para conducir vehículos oficiales, relacionados con sus permisos y licencias, vencimientos y renovaciones.
 l) Realizar los trámites para la reparación de los vehículos accidentados, mediante la aplicación de las pólizas de seguro con que cuenten.
 m) Tramitar en forma inmediata las cuestiones administrativas o técnicas que correspondan, como consecuencia de accidentes de tránsito en que están involucrados los vehículos del Patronato, oportunamente las investigaciones sobre las originarias de dichos accidentes.
-n) Autorizar a los funcionarios y funcionarias de la Institución cuando las necesidades lo justifiquen, que por la índole de sus funciones y no teniendo cargo de operadores de equipo móvil, estén anuentes a conducir vehículos de la institución.
+n) Autorizar a los funcionarios y funcionarias de la institución cuando las necesidades lo justifiquen, que por la índole de sus funciones y no teniendo cargo de operadores de equipó móvil, estén anuentes a conducir vehículos de la institución. Así como a los funcionarios y/o funcionarias de otros entes públicos que, mediando convenios específicos entre el Patronato y el ente de origen de los mismos requieran y estén anuentes a conducir vehículos del Patronato
+(Así reformado por sesión ordinaria N° 2005-0009, celebrada el 28 de febrero del 2005)
 o) Llevar a cabo, en coordinación con la Oficina de Proveeduría, los trámites para el arrendamiento de vehículos privados o la contratación de servicios de transporte, cuando así lo requieran las necesidades institucionales.
 p) Efectuar los trámites generales para la salida y circulación, fuera del territorio nacional, de todo vehículo del Patronato.
 q) Efectuar los trámites para dotar de pólizas de seguros adecuadas a los vehículos de la Institución, así como sus renovaciones.

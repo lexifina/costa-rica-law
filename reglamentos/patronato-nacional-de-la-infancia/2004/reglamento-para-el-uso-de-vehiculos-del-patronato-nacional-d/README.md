@@ -14,3 +14,4 @@ Reglamento para el uso de vehículos del Patronato Nacional de la Infancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-03 | la propia norma |
+| 2 | 2005-02-28 | Reglamento 9 (2005-02-28) |
