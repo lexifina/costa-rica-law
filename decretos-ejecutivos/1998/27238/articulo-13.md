@@ -1,0 +1,1 @@
+Artículo 13.-Sesiones. Las sesiones de la Junta serán privadas, salvo que la misma disponga lo contrario. Se celebrará una sesión ordinaria por semana y tantas extraordinarias como sea necesario. Todas las sesiones serán convocadas de oficio por el Presidente.

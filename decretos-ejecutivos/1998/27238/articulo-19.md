@@ -1,0 +1,1 @@
+Artículo 19.—Deber de informar. Trimestralmente o cuando la Junta se lo solicite, el auditor presentará informes sobre su gestión. En caso de detectar alguna irregularidad, deberá comunicarlo de inmediato, acompañando el informe con las recomendaciones más aconsejables.

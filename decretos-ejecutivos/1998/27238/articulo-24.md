@@ -1,0 +1,1 @@
+Artículo 24.—La Sub Gerencia. El Sub Gerente será el segundo funcionario de mayor jerarquía administrativa, dependerá directamente del Gerente, atenderá las funciones que éste le encomiende y le sustituirá las ausencias temporales; para lo cual tendrá las facultades que se consignan en el artículo 23 de este reglamento.

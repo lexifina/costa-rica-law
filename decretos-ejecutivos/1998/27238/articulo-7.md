@@ -1,0 +1,2 @@
+Artículo 7°— Integración, nombramiento y reelección. La Junta Directiva estará compuesta por cinco miembros, cuatro nombrados por el Poder Ejecutivo y uno nombrado por la Junta Directiva de la Cámara de Comercio de Costa Rica.
+El Poder Ejecutivo, deberá comunicar mediante publicación en el diario oficial el nombre de todos sus integrantes. Durarán en sus cargos un período de cuatro años y podrán ser reelegidos.

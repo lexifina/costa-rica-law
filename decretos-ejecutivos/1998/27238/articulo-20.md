@@ -1,0 +1,1 @@
+Artículo 20.—Obligación de colaborar. Los funcionarios de Correos de Costa Rica S.A., están obligados a prestar a la Auditoría toda la colaboración que ésta les solicite, facilitándole la información que en el ejercicio de sus funciones requiera y compareciendo cuando fueren citados.

@@ -1,0 +1,1 @@
+Artículo 35.—Obligación. El concesionario, deberá prestar el servicio asegurando el secreto postal y la inviolabilidad de la correspondencia, de conformidad con lo estipulado en la Ley y los Convenios Internacionales.

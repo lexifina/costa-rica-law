@@ -1,0 +1,2 @@
+Artículo 44.—Garantías. El Ministerio, exigirá a los oferentes una garantía de participación de entre uno (1%) y el cinco por ciento (5%) del monto del canon fijado por la ARESEP; y una garantía de cumplimiento equivalente a cinco veces ese monto.
+Una vez que se otorgue la concesión, las garantías de participación, serán devueltas a quienes no resultaren beneficiados, y se depositará a nombre de Correos de Costa Rica, la garantía de cumplimiento del concesionario.

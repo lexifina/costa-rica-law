@@ -1,0 +1,1 @@
+Artículo 43.—Fijación de canon. De conformidad con lo establecido en los artículos 32 y 33, una vez que el Ministerio determine la necesidad de otorgar en concesión la prestación del servicio, le solicitará a la ARESEP la fijación del canon anual respectivo, adjuntando copia de los estudios técnicos y la propuesta del monto a cobrar.

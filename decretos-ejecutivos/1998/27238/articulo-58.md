@@ -1,0 +1,1 @@
+Artículo 58.—Formalización. Una vez que se encuentre en firme el acto de adjudicación, se procederá a firmar el respectivo contrato de concesión entre el Ministerio y el oferente que resulte adjudicado. Previo al inicio o ejecución de lo pactado, el contrato debe ser refrendado por la Contraloría General de la República.

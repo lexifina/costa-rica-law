@@ -1,0 +1,1 @@
+Artículo 11.—Integración interna. La Junta elegirá de entre sus miembros a un Presidente, un Vicepresidente, un Secretario, un Tesorero y un Vocal. Cumplirán además con las funciones propias del cargo para el que fueron designados y durarán en ellos un período de dos años, pudiendo ser reelegidos.

@@ -1,0 +1,1 @@
+Artículo 45.—Depósito de canon. Una vez que se adjudique la concesión, los concesionarios están obligados a depositar por adelantado en una cuenta bancaria que para los efectos se abrirá a favor de Correos de Costa Rica, el monto del canon anual que fije la ARESEP.

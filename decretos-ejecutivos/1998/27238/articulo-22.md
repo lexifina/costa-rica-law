@@ -1,0 +1,1 @@
+Artículo 22.—Sub Auditor. Los requisitos para ser Sub Auditor, serán los mismos que se establecen en el artículo 18 del presente Reglamento. Sustituirá al Auditor en sus ausencias temporales; dependerá directamente de él y atenderá las funciones que éste le encomiende.

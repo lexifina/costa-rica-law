@@ -1,0 +1,1 @@
+Artículo 25.—Impedimentos. No podrán ser nombrados Gerente ni Sub Gerente, quien haya sido miembro de la Junta durante los cuatro años inmediatamente anteriores; tampoco quien esté ligado por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive, con cualquier miembro de la Junta o entre sí.

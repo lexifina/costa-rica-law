@@ -1,0 +1,4 @@
+Artículo 53.—-Del recurso de objeción al cartel. El recurso de objeción, deberá presentarse dentro de los cinco días hábiles contados a partir del día siguiente de la publicación de la invitación en el Diario Oficial La Gaceta de conformidad con las siguientes normas:
+Podrá presentarlo cualquier potencial oferente o cualquier organización legalmente constituida para la defensa de los intereses de la comunidad donde se prestará el servicio objeto de la concesión. En el caso de personas jurídicas, deben acreditar su personería.
+En el escrito, además de argumentar la legitimación, deberán indicarse las infracciones precisas que se imputen al cartel o a las especificaciones técnicas y las presuntas violaciones a los principios fundamentales que regulan el presente procedimiento.
+Deberá presentarse ante el Ministerio, el cual contará con un plazo de cinco días hábiles para resolver, contados a partir del día siguiente al de su presentación.

@@ -1,0 +1,1 @@
+Artículo 63.—Registro de Hospicios. La Empresa llevara registro de todas las instituciones benéficas señaladas en el artículo anterior que soliciten ser objeto de tales donaciones y realizará éstas en forma rotativa o dividiéndolas proporcionalmente. En este ultimo caso, deberá garantizarse la igualdad de participación.

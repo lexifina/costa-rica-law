@@ -1,0 +1,1 @@
+Artículo 3°—Asamblea de Accionistas. La Asamblea General de Accionistas la conformará el Consejo de Gobierno, debidamente constituido como tal, su forma de operar así como la manera de tomar los acuerdos será la establecida en la normativa aplicable para este órgano.

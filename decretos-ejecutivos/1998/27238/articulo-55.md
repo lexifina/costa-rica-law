@@ -1,0 +1,1 @@
+Artículo 55.—Admisibilidad. El Ministerio, determinará en un plazo máximo de tres días, su admisibilidad. En caso afirmativo, le otorgará a Correos de Costa Rica un plazo de cinco días hábiles para que se refiera al recurso y adjunte al escrito copia del expediente administrativo. Igual plazo otorgará a las otras partes para que se refieran al recurso.

@@ -1,0 +1,1 @@
+Artículo 57.—Adición y Aclaración. Las resoluciones que resuelvan los recursos de objeción al cartel y de apelación, podrán ser aclaradas o adicionadas, si el recurrente o las partes lo solicitan dentro de un plazo de tres días a partir de la notificación. La contestación deberá realizarse dentro de un plazo máximo de ocho días hábiles.

@@ -1,0 +1,4 @@
+Artículo 65.—Procedimiento de Destrucción. A las encomiendas que no se encuentren dentro de lo enmarcado en el artículo 60, así como cualquier otro envío no distribuible declarado en rezago de conformidad con lo establecido en el Reglamento de Servicios, se les aplicará el siguiente procedimiento:
+El Gerente General o su representante, abrirá la correspondencia y sin dar fe del contenido escrito, procederá a destruirla por el medio que se considere más idóneo.
+Si algún envío no distribuible contuviese dinero u objetos de valor a criterio de la Comisión, la Auditora o su representante y el funcionario de la Asesoría Jurídica, levantarán un acta en el libro que para esos efectos llevará la Asesoría citada. Dichos artículos deberán rematarse en subasta pública.
+Los valores y el producto de los objetos que se encuentren dentro de lo enmarcado en el punto anterior, pasarán a formar parte del capital de la Empresa.

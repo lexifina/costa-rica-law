@@ -1,0 +1,1 @@
+Artículo 50.—Subsanación. A partir del acto de apertura, se procederá al análisis de los aspectos formales de las ofertas y se concederá un plazo de al menos cinco días para que subsanen cualquier defecto formal o supla la información o documento trascendente que a criterio del Ministerio se hubiesen omitido.

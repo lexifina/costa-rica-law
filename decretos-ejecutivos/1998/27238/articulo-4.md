@@ -1,0 +1,1 @@
+Artículo 4°—Aplicación. La aplicación de la Ley de Correos, el reglamento y de los reglamentos internos, así como la implementación de las políticas laborales, de contratación, presupuestarias, de inversión y otras propias de su naturaleza, compete a Correos de Costa Rica a través de la Junta Directiva y la Gerencia General.

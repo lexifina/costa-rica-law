@@ -1,0 +1,1 @@
+Artículo 29.—Recursos para su funcionamiento. La Junta Directiva a través de la Gerencia, deberá asignarle a la Comisión, los recursos materiales y humanos necesarios para el correcto desempeño de sus funciones, así como el espacio físico donde concentre sus actividades.

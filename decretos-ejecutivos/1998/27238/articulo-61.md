@@ -1,0 +1,1 @@
+Artículo 61.—Aviso del Remate. Cada año la Empresa publicará por dos veces consecutivas en el Diario Oficial, una lista de todos los objetos que tenga para remate, indicando además, el día, la hora y el lugar en que se efectuará la subasta, así como la base en colones con que se iniciará la venta de cada artículo.

@@ -1,0 +1,1 @@
+Artículo 34.—Colaboración. La Empresa y el Ministerio, están obligados a cumplir con los términos de la concesión y a brindar colaboración para que el concesionario preste en forma idónea el servicio objeto de la misma.

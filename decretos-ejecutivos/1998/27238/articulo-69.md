@@ -1,0 +1,1 @@
+Artículo 69.—La Comisión preparará y someterá a la aprobación de la Junta Directiva, su propio reglamento de funcionamiento interno. Lo anterior en un plazo de dos meses a partir de la vigencia de esta normativa.

@@ -1,0 +1,3 @@
+CAPITULO II
+La Junta
+Artículo 6"—La Junta. La Junta Directiva será la máxima autoridad de la Empresa y le corresponderá entre otros, velar porque se preste en todo el territorio nacional la distribución y recolección del servicio social de la comunicación postal, entendido este servicio, como las cartas calificadas como correspondencia "LC" según el convenio de la Unión Postal Universal y de conformidad con la definición que se establece en el artículo 5 de este Reglamento; velar por la superación, mejor desempeño y desarrollo de los servicios que ofrece, así como dictar las políticas generales.

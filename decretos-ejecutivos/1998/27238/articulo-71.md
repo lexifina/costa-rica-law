@@ -1,0 +1,1 @@
+Artículo 71.—Para los efectos del inciso g) del artículo 4° de la Ley será obligación de la Empresa, depositar en cada apartado postal toda la correspondencia dirigida a este, entendiéndose para dichos efectos, que los apartados postales y la prestación del servicio en sí, son propiedad y competencia exclusiva del correo oficial de la República.

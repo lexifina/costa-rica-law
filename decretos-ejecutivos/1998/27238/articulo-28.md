@@ -1,0 +1,1 @@
+Artículo 28.—Reuniones y recomendaciones. La Comisión se reunirá por lo menos una vez al mes y efectuará de oficio o a solicitud de la Junta, las recomendaciones que correspondan para el escogimiento de los motivos que se imprimirán en las emisiones de sellos.

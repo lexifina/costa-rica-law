@@ -1,0 +1,1 @@
+Artículo 14.—Quorum. El quorum se constituirá con tres de sus miembros. Para la toma de los acuerdos bastará la mayoría simple, excepto para la destitución del Gerente y el nombramiento o destitución del Auditor para la cual se necesitará mayoría calificada. En caso de empate el Presidente tendrá voto decisivo. Quien sea disidente, deberá razonar su voto.

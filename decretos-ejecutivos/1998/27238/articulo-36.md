@@ -1,0 +1,1 @@
+Artículo 36.—Fiscalización. Correos de Costa Rica será el ente encargado de vigilar las operaciones de los concesionarios con el fin de garantizar que el servicio se cumpla de conformidad con las presentes normas. En caso de cualquier tipo de irregularidad en el servicio concesionado, deberá informar al Ministerio de Gobernación para que este tome las mediadas pertinentes.

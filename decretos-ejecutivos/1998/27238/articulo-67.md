@@ -1,0 +1,1 @@
+Artículo 67.—Producto Final. Una vez realizada la destrucción, la Empresa dispondrá y podrá comercializar el producto final, siempre y cuando, éste sea reciclable o se considere materia prima en la elaboración de otros productos.
