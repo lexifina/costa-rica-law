@@ -1,1 +1,0 @@
-Artículo 5º.- Toda la riqueza arqueológica, que se descubra en el área de concesión indicada en el artículo 2º de esta ley, será conservada en el Museo Nacional como patrimonio histórico de la Nación.

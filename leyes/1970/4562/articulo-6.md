@@ -1,2 +1,0 @@
-Artículo 6º.- El Ministerio de Industria y Comercio solicitará a Alcoa información sobre las compras e importaciones que se propone hacer.
-Esta información será distribuida entre los productores nacionales y del resto de Centroamerica para que estén en posición de competir con los proveedores extranjeros en lo que se refiere al tiempo y lugar de entrega, precio, calidad y cantidad de los productos y servicios que puedan ser requeridos por Alcoa.
