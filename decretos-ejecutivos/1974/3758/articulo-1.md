@@ -4,12 +4,7 @@ del 24 de diciembre de 1973,
 DECRETAN:
 El siguiente
 Reglamento a la Ley Orgánica del Ministerio de Seguridad Pública
-Artículo 1º.- La Fuerza Pública está compuesta por los siguientes
-cuerpos de policía:
-I.- Dirección General de la Guardia Civil y sus dependencias de:
-Patrulla Aérea y Marítima, Departamento Médico, Sección de Narcóticos,
-Radio Patrullas, Guardia Presidencial, Policía Militar, Comandancias
-Provinciales, Primera Compañía, Segunda Compañía, Tercera Compañía y
-Sección de Planes y Operaciones.
-II.- Dirección General de Tránsito y sus dependencias.
-III.- Dirección de Investigaciones Criminales y sus dependencias.
+Artículo 1º—La Fuerza Pública estará compuesta por las siguientes dependencias:
+a) Las regiones policiales que sean establecidas de acuerdo con el resultado de los estudios especializados realizados al efecto,
+b) Las unidades especializadas creadas de acuerdo con el artículo 6 de la Ley Orgánica del Ministerio de Seguridad Pública N° 5482 del 24 de setiembre de 1973.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29323 del 19 de enero del 2001)

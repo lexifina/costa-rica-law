@@ -14,3 +14,4 @@ Reglamento de la Ley Orgánica del Ministerio de Seguridad Pública
 | --- | --- | --- |
 | 1 | 1974-06-13 | la propia norma |
 | 2 | 1974-06-13 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-01-19 | Decreto Ejecutivo 29323 (2001-01-19) |
