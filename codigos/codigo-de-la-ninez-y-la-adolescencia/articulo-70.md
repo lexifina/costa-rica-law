@@ -1,0 +1,1 @@
+Artículo 70°- Prohibición de sancionar por embarazo. Prohíbese a las instituciones educativas públicas y privadas imponer por causa de embarazo, medidas correctivas o sanciones disciplinarias a las estudiantes. El Ministerio de Educación Pública desarrollará un sistema conducente a permitir la continuidad y el fin de los estudios de niñas o adolescentes encinta.

@@ -1,0 +1,1 @@
+Artículo 52°- Garantía para la lactancia materna. Las instituciones oficiales y privadas, así como los empleadores les garantizarán a las madres menores de edad las condiciones adecuadas para la lactancia materna. El incumplimiento de esta norma será sancionado como infracción a la legislación laboral, según lo previsto en el artículo 611 y siguientes del Código de Trabajo.

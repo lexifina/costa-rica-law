@@ -1,0 +1,2 @@
+Artículo 22°- Mensajes restringidos. Los medios de comunicación colectiva se abstendrán de difundir mensajes atentatorios contra los derechos de la persona menor de edad o perjudiciales para su desarrollo físico, mental o social.
+Los programas, la publicidad y los demás mensajes que se difundan por radio y televisión, se ajustarán a la audiencia correspondiente. Mediante decreto ejecutivo se reglamentará lo relacionado con los horarios que regirán para programas no aptos para menores de edad.

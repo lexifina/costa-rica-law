@@ -1,0 +1,1 @@
+Artículo 132°- Inicio del proceso. En casos de amenaza grave o violación de los derechos reconocidos en el presente Código, el proceso especial de protección podrá iniciarse de oficio o por denuncia presentada por cualquier persona, autoridad u organismo de derechos humanos.

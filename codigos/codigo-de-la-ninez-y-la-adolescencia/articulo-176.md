@@ -1,0 +1,1 @@
+Artículo 176°- Comisiones especiales de trabajo. El Consejo podrá constituir en su seno el funcionamiento de comisiones especiales de trabajo, permanentes o temporales, con fines específicos y participación de representantes de otras entidades públicas y organizaciones no gubernamentales y podrá autorizar su funcionamiento.

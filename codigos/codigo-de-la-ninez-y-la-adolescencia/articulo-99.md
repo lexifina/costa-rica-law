@@ -1,0 +1,1 @@
+Artículo 99°- Derecho a seguros. Las personas adolescentes que trabajan en relación de dependencia tendrán derecho a la seguridad social y al seguro por riesgos del trabajo, de acuerdo con lo que al respecto disponen el Código de Trabajo y leyes conexas.

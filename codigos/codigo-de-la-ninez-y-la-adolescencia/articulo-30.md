@@ -1,0 +1,1 @@
+Artículo 30°- Derecho a la vida familiar. Las personas menores de edad tendrán derecho a conocer a su padre y madre; asimismo, a crecer y desarrollarse a su lado y ser cuidadas por ellos. Tendrán derecho a permanecer en su hogar del cual no podrán ser expulsadas ni impedidas de regresar a él, salvo decisión judicial que así lo establezca.

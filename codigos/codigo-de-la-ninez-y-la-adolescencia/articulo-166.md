@@ -1,0 +1,2 @@
+Artículo 166°- Mediación. La mediación es un proceso autónomo e independiente del conflicto judicial. Lo resuelto por los centros de mediación será ejecutable para las partes comprometidas en el arreglo; pero queda a salvo el derecho de discutirlo en la sede judicial.
+El acuerdo surgido de una mediación tendrá pleno valor entre las partes que lo celebren, las cuales podrán modificarlo por medio de una nueva solicitud de mediación.

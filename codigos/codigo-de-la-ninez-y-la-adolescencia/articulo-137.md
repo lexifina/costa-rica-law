@@ -1,0 +1,3 @@
+Artículo 137°- Otras medidas. Serán medidas aplicables a patronos, funcionarios públicos o cualquier otra persona que viole o amenace con violar los derechos de las personas menores de edad:
+a) Prevención escrita acerca de la violación o amenaza contra el derecho de que se trate en el caso particular, con citación para ser informados debidamente sobre los derechos de la persona menor.
+b) Orden de cese inmediato de la situación que viola o amenaza con violar el derecho en cuestión, cuando la persona llamada no se apersone en el plazo conferido para tal efecto o bien, cuando se haya apersonado pero continúe en la misma situación perjudicial la persona menor de edad.

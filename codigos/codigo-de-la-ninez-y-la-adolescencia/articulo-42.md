@@ -1,0 +1,1 @@
+Artículo 42°- Derecho a la seguridad social. Las personas menores de edad tendrán derecho a la seguridad social. Cuando no las cobijen otros regímenes, disfrutarán de este derecho por cuenta del Estado. Para ello, la Caja Costarricense de Seguro Social adoptará las medidas respectivas.

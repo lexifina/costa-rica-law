@@ -1,0 +1,1 @@
+Artículo 182°- Integración. Los comités tutelares estarán integrados por un número de tres o cinco miembros, según lo disponga la asamblea de la asociación de desarrollo, que cada año realizará el nombramiento respectivo. El cargo será ad honórem.

@@ -1,0 +1,2 @@
+Artículo 7°- Desarrollo integral. La obligación de procurar el desarrollo integral de la persona menor de edad les corresponde, en forma primordial, a los padres o encargados.
+Las instituciones integrantes del Sistema Nacional de Protección Integral de la Niñez y la Adolescencia, regulado en el título IV de este Código, garantizarán el respeto por el interés superior de estas personas en toda decisión pública o privada. La Defensoría de los Habitantes de la República velará por el cumplimiento efectivo de estas obligaciones.

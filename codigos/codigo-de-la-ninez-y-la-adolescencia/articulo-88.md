@@ -1,0 +1,1 @@
+Artículo 88°- Facilidades para estudiar. Los empleadores que contraten adolescentes estarán obligados a concederles las facilidades que compatibilicen su trabajo con la asistencia regular al centro educativo.

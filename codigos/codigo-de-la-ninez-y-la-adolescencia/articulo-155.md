@@ -1,0 +1,1 @@
+Artículo 155°- Impedimentos. No podrán ser objeto de mediación ni conciliación los asuntos en los que existan derechos irrenunciables de las partes, los relacionados con la violencia doméstica, los de suspensión o pérdida de la autoridad parental ni los que puedan constituir delitos.

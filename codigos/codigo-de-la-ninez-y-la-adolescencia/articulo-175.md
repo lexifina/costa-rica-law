@@ -1,0 +1,1 @@
+Artículo 175°- Organización interna del Consejo. Cada año, el Consejo elegirá de su seno, a un presidente y un vicepresidente, quien lo sustituirá durante sus ausencias. Ambos podrán ser reelegidos en sus cargos por un período igual.
