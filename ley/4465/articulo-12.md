@@ -1,4 +1,4 @@
-Artículo 12.- Los integrantes de la Dirección General Forestal
-tendrán carácter de autoridades de política, y como tales, estarán
-obligados a denunciar ante las autoridades competentes las faltas y los
-delitos especificados en esta ley.
+Artículo 12.- La estructura orgánica de la Dirección General Forestal
+se establecerá en el reglamento de esta ley. La administración forestal
+será regionalizada, para lo cual se organizará el país en regiones
+forestales.

@@ -1,4 +1,7 @@
-Artículo 9º.- La organización de la Dirección General Forestal se
-hará en el reglamento de esta ley. Como parte fundamental de la
-Dirección, se establecerá un cuerpo de guardabosques y guardaparques, que
-contribuyan a hacer efectiva la aplicación a esta ley.
+CAPITULO II
+Competencia y atribuciones de la administración forestal del Estado
+Artículo 9.- El Ministerio de Ambiente y Energía realizará las
+funciones de la administración forestal y aplicará la presente ley y sus
+reglamentos, por medio de la Dirección General Forestal.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

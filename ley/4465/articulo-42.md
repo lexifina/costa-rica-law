@@ -1,4 +1,10 @@
-Artículo 42.- Los permisos para la explotación de productos
-forestales en las reservas nacionales, serán anuales y por una superficie
-no mayor de cien hectáreas. Tampoco podrán otorgarse estos permisos para
-explotar más de 500 metros cúbicos de madera en troza.
+Artículo 42.- La construcción, el uso y el mantenimiento de caminos y
+mejoras que sean necesarios para el aprovechamiento de los recursos
+naturales renovables y no renovables, existentes en terrenos y bosques
+pertenecientes al patrimonio forestal del Estado, o que se hayan realizado
+a raíz de cualquier otro tipo de concesión otorgada, serán efectuados con
+recursos de los interesados, de acuerdo con las especificaciones que la
+Dirección General Forestal fije por vía reglamentaria o contractual.
+Estos caminos y mejoras pasarán a ser propiedad del patrimonio
+forestal del Estado cuando caduque la autorización respectiva, sin costo
+alguno para éste.

@@ -1,0 +1,6 @@
+Artículo 116.- La investigación, como base del desarrollo tecnológico
+forestal, será promovida por la Dirección General Forestal, en colaboración
+con las universidades y con el sector privado, los que procurarán los
+fondos necesarios para adecuar y perfeccionar las técnicas del
+aprovechamiento, conservación y explotación de los recursos forestales del
+país.

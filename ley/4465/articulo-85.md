@@ -1,6 +1,11 @@
-Artículo 85.- También son zonas protectoras, los terrenos situados en
-las reservas nacionales, que a continuación se indican:
-1) Una zona de cincuenta metros de ancho, a lo largo de los Ríos; y
-2) En las cuencas hidrográficas, una faja de terreno de 300 metros a
-uno y otro lado de la depresión máxima, en toda la línea, a contar de la
-mayor altura.
+Artículo 85.- El Poder Ejecutivo, por medio del Ministerio de
+Ambiente y Energía determinará, antes del primero de octubre de cada año,
+el número máximo de hectáreas por plantar en el año siguiente, cuyos
+propietarios podrán acogerse a los incentivos fiscales regulados en este
+capítulo. También identificará las zonas prioritarias para la
+reforestación.
+Para llevar a cabo la determinación mencionada, no se tomarán en cuenta
+aquellas áreas por reforestar que se encuentren amparadas en los
+respectivos contratos forestales.
+(Así modificado del nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

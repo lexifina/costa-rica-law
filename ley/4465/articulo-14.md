@@ -1,4 +1,12 @@
-Artículo 14.- En el Ministerio de Agricultura y Ganadería funcionará
-un Consejo Forestal Nacional, como organismo asesor del Poder Ejecutivo en
-lo referente a la protección, aprovechamiento, conservación y fomento de
-los recursos forestales.
+Artículo 14.- Para el cumplimiento de sus atribuciones, los citados
+funcionarios de la Dirección General Forestal, identificados con su
+respectivo carné, tendrán derecho a transitar y a practicar inspecciones en
+cualquier fundo rústico o industrial forestal, excepto en las casas de
+habitación ubicadas en él. Los propietarios, empleados o encargados
+deberán prestar la colaboración necesaria para que se efectúe esta labor.
+Los funcionarios de la Dirección General Forestal también podrán proceder
+al decomiso de la madera y demás productos forestales explotados o
+industrializados ilícitamente, así como secuestrar, en garantía de una
+eventual sanción, el equipo y la maquinaria usados en el acto ilícito,
+previo levantamiento del acta respectiva, los que pondrá a la orden de la
+autoridad judicial competente.

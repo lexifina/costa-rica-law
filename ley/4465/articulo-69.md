@@ -1,4 +1,3 @@
-Artículo 69.- Los aprovechamientos de bosques y terrenos forestales
-de propiedad privada, acogidos al Régimen Forestal, estarán sujetos a las
-inspecciones de la Dirección General Forestal, la cual velará por el
-cumplimiento de los planes técnicos de manejo forestal.
+Artículo 69.- Las disposiciones del artículo anterior regirán, tanto
+para los terrenos de dominio particular, como para los del Estado y demás
+organismos de la Administración Pública.

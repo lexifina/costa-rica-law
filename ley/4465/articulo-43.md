@@ -1,5 +1,9 @@
-Artículo 43.- Los aprovechamientos de productos forestales, con
-carácter comercial en escala superior a la indicada en el artículo
-anterior, se realizarán mediante concesiones tramitadas conforme a un plan
-técnico de manejo forestal, que asegure el abastecimiento anual constante
-y la consiguiente estabilidad de las industrias correspondientes.
+CAPITULO II
+De la propiedad privada
+Artículo 43.- Son áreas forestales privadas todos aquellos bosques y
+terrenos de aptitud forestal que pertenezcan a personas físicas o jurídicas
+particulares.
+La Dirección General Forestal prestará asistencia técnica, en la
+medida de sus posibilidades, a los propietarios de las áreas forestales
+privadas o a aquellas personas que estén ejecutando actividades
+silviculturales en dichos terrenos.
