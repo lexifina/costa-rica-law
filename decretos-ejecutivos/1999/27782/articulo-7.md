@@ -1,0 +1,1 @@
+Artículo 7°—Adopción de acuerdos: Los acuerdos serán adoptados por mayoría simple de los presentes. Sin embargo, se requerirá el voto de cuatro de sus miembros para el nombramiento y remoción del Director Ejecutivo y el Auditor Interno.

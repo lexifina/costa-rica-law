@@ -1,0 +1,1 @@
+Artículo 4°—Vigencia de los nombramientos: La Junta Directiva será nombrada por un periodo de 2 años, contados a partir del primero de enero siguiente a su designación. Los miembros elegidos tomarán posesión de sus cargos durante los primeros 15 días del mes de enero correspondiente.

@@ -1,0 +1,2 @@
+Artículo 25.—De la asignación de los recursos: Los recursos del fondo se asignarán en función del promedio conformado por el volumen entregado por cada productor en la cosecha a liquidar y el entregado en la cosecha inmediata anterior, con base en la información oficial que al efecto se le solicitará a ICAFE. El promedio de ambas cosechas se determinará sumando los volúmenes de café entregados en cada una de ellas dividido entre dos.
+Cuando las entregas se limiten únicamente a la última cosecha, el volumen entregado en ella será la base para el cálculo.

@@ -1,0 +1,1 @@
+Artículo 23.—Adopción de acuerdos: Los acuerdos serán adoptados por mayoría simple de los presentes y podrá acordarse su firmeza inmediata con el voto de al menos tres cuartas partes de los presentes.

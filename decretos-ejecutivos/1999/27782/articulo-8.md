@@ -1,0 +1,1 @@
+Artículo 8°—Ausencia definitiva: En caso de vacantes por ausencia definitiva del titular y su suplente, se comunicará al órgano que compete su nombramiento para que éste proceda a nombrar al sustituto, de conformidad con el procedimiento establecido en el artículo 7 de la Ley.

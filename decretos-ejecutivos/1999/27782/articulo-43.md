@@ -1,0 +1,1 @@
+Artículo 43.—Vigilancia: FONECAFE será fiscalizado por una Auditoría Interna permanente y por una Auditoría Externa que se contratará por lo menos una vez al año, a fin de que audite los estados financieros al cierre del período fiscal. Las funciones de la Auditoría Interna estarán reguladas por el Reglamento de Organización y Funciones de la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 40.—Modificaciones presupuestarias: En aquellos casos para los cuales se agoten las partidas presupuestarias aprobadas, la Junta Directiva podrá autorizar los traslados y las modificaciones que se requieran.

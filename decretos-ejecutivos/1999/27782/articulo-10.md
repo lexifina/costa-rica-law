@@ -1,0 +1,1 @@
+Artículo 10.—Cesación en el cargo: Cesará en sus funciones como miembro de la Junta Directiva el Director que en un periodo de tres meses se ausentare tres veces consecutivas o cinco alternas injustificadamente.

@@ -1,0 +1,2 @@
+Artículo 35.—De la forma de cálculo: Para que las contribuciones por cosecha sean equitativas, FONECAFE al finalizar cada cosecha, determinará el monto de la contribución cafetalera promedio que resultara de dividir el monto de la contribución cafetalera de la cosecha, entre la producción exportada, con base en la información oficial que al efecto se solicite a ICAFE.
+Para la cosecha correspondiente, igual procedimiento se aplicará, cuando el importe total de la reserva se alcance antes de terminada la cosecha. En estos casos el procedimiento se aplicará de inmediato.

@@ -1,0 +1,1 @@
+Artículo 11.—Naturaleza de las Sesiones: La Junta Directiva sesionará ordinariamente dos veces al mes; la primera y tercera semanas. Podrá sesionar extraordinariamente cuantas veces sea necesario. Solo se remunerarán cuatro sesiones al mes.

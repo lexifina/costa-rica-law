@@ -1,0 +1,1 @@
+Artículo 19.—Conformación: El Comité estará conformado por cinco miembros: dos Directores de la Junta Directiva, el Director Ejecutivo, un Asesor de Finanzas designado por la Junta Directiva de FONECAFE y un representante del Banco fiduciario.

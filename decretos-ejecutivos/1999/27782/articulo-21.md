@@ -1,0 +1,1 @@
+Artículo 21.—Reuniones del Comité: El Comité de Inversiones se reunirá ordinariamente al menos una vez al mes y extraordinariamente las veces que sea convocado al efecto, para lo que se requerirá de por lo menos el concurso de tres de sus miembros.

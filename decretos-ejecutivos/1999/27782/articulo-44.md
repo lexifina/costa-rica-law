@@ -1,0 +1,1 @@
+Artículo 44.—Declaración de bienes: Tanto los miembros de la Junta Directiva, como el Director Ejecutivo y el Auditor Interno, deberán rendir declaración de bienes ante la Contraloría General de la República, de acuerdo con lo establecido en la ley No 6872 del 8 de julio de 1983, Ley Sobre el Enriquecimiento Ilícito de los Servidores Públicos.
