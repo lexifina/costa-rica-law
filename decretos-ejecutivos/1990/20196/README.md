@@ -13,3 +13,4 @@ Reglamento sobre Control de la Publicidad y Fumado de Cigarrillos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-30 | la propia norma |
+| 2 | 1991-01-30 | Decreto Ejecutivo 20534 (1991-06-25) |
