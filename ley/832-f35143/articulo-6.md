@@ -1,4 +1,3 @@
-0#
 Artículo 6º.- Para el nombramiento de los miembros directores del
 Consejo Nacional de Salarios se seguirán las siguientes disposiciones:
 a) El Ministerio de Trabajo y Previsión Social, con un mes de
