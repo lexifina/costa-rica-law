@@ -1,0 +1,1 @@
+Artículo 18.-EI presente reglamento deroga el aprobado por acuerdo único, artículo IV de la sesión ordinaria número 293 del 11 de agosto de 1961 y por acuerdo único, artículo V de la sesión ordinaria número 144 del 2 de diciembre de 1963.

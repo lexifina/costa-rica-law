@@ -1,0 +1,2 @@
+SOLICITUD DE LICENCIA
+Artículo 4°-Toda solicitud de licencia deberá venir en papel sellado de un colón, con timbre municipal de un colón y deberá ser presentado a la Sección de Permisos de Construcción de Ingeniería de la Municipalidad de Cartago, junto con los requisitos señalados en los artículos 29 y 39 Y el visto bueno del Departamento de Urbanismo de la Municipalidad. Para que surta efecto la licencia, deberá ser cancelada la tasa de rentas correspondientes, que es igual al uno por ciento del valor del rótulo; la tasa mínima será de cien colones.

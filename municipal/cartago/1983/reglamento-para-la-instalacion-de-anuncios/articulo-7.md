@@ -1,0 +1,2 @@
+LIMITACIONES
+Artículo 7°-Ios anuncios deben ser de tales dimensiones, dibujos colocación que no desvirtúen los elementos arquitectónicos de las fachadas en que están colocados o de las que están cercanas, ni que al proyectarse en la perspectiva de una calle, plaza o monumento, alteren su valor arquitectónico. El Departamento de Ingeniería Municipal puede por razones de orden técnico o estético. limitar la superficie que en una fachada ocupará un aviso o un conjunto de avisos, o no permitir su colocación.
