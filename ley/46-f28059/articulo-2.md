@@ -1,0 +1,1 @@
+Art 2°.- El Gobierno en caso de no poder el Intendente dar la asistencia conveniente al mineral, nombrara un subdelegado con las calidades de perito imparcial y con las atribuciones que le designa el artículo anterior propiendo a la Asamblea el sueldo de que deba gozar y el fondo que deba erogar la renta que se le asigna.
