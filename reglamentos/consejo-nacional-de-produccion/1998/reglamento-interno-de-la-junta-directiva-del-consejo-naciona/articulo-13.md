@@ -12,3 +12,5 @@ j) Conocer y resolver sobre los informes, los estudios de factibilidad. proyecto
 k) Determinar contrataciones especiales conforme con la legislación vigente. ,
 l) Aprobar los permisos con goce de sueldo a funcionarios de la institución, cuando los mismos impliquen erogaciones adicionales al salario por pane del CNP y/o excedan a un año de duración.
 m) Fijar y distribuir funciones y atribuciones para el Gerente y Subgerente Generales en aquellos casos donde éstas no estén expresamente establecidas por ley.
+n) Aprobar la adquisición de productos alimenticios para consumo en las sesiones ordinarias y extraordinarias cuando fuere necesario. Lo anterior, con apego a los principios de razonabilidad y austeridad.
+(Así adicionado este inciso, en sesión N° 2507 de 17 de marzo de 2004).

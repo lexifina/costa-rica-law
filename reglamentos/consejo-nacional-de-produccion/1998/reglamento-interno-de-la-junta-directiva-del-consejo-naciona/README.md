@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva del Consejo Nacional de Producción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-08 | la propia norma |
+| 2 | 2004-03-17 | Reglamento 2507 (2004-03-17) |
