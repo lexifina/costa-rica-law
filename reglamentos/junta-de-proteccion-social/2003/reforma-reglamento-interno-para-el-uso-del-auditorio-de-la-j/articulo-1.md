@@ -1,0 +1,7 @@
+JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
+Según acuerdo tomado por la Junta Directiva de la Institución en el artículo III, inciso 2) de la sesión 33-2003 celebrada el 9 de setiembre, se modifican los artículos 1°, 3° y 10° del Reglamento interno para uso del auditorio de la Junta de Protección Social de San José, los cuales se leerán de la siguiente forma:
+Artículo 1º—Las presentes disposiciones son de cumplimiento obligatorio para todos los funcionarios de la Junta de Protección Social de San José o de cualquier persona física o jurídica interesada en utilizar el auditorio de esta institución.
+Artículo 3º—Fuera de las actividades indicadas, se autorizará por parte de la Gerencia General el uso del auditorio solo para actividades con propósitos bien definidos sin fines de lucro, únicamente a solicitud de los jerarcas de las organizaciones interesadas en su utilización.
+Artículo 10.—Los daños que ocurrieran en el auditorio durante el tiempo en que se realizan las actividades autorizadas, correrán por cuenta del jerarca de la organización usuaria, condición que deberá acreditar previo a la actividad mediante documento idóneo ante la Dirección Administrativa de la Institución.
+Deberá, además, efectuarse un depósito de garantía ante esta Institución o suscribir una póliza ante el Instituto Nacional de Seguros, para cubrir eventuales daños que se produzcan en las instalaciones o en el equipo del auditorio, lo cual deberá ser verificado por el Director Administrativo.
+San José, 24 de setiembre del 2003.—
