@@ -1,1 +1,1 @@
-Artículo 29°- De acuerdo con el derecho de asociación, las sociedades anónimas laborales podrán organizarse en asociaciones o agrupaciones específicas, para defender sus intereses.
+Artículo 29°- El Poder Ejecutivo reglamentará, el funcionamiento y las competencias del Registro de Sociedades Anónimas Laborales del Ministerio de Trabajo y Seguridad Social, en un plazo de seis meses a partir de la publicación de esta Ley.

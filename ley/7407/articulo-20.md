@@ -1,1 +1,1 @@
-Artículo 20°- En segunda convocatoria, la asamblea extraordinaria se constituirá, válidamente, con la presencia de un tercio de las acciones representadas. Las resoluciones se tomarán por más de la mitad de los votos presentes.
+Artículo 20°- Los accionistas podrán ser representados, en las asambleas, mediante una carta poder, otorgada a cualquier persona, sea socia o no; por este medio, nadie podrá representar más del veinte por ciento (20%) del capital social.
