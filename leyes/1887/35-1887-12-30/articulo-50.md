@@ -1,0 +1,1 @@
+Art. 50.-La inscripción de un fallecimiento se hará en virtud de parte escrito que de él deben dar los tesoreros de las Juntas de caridad, Jefes Políticos y demás empleados encargados de expedir los boletos de entierro.

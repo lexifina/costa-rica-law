@@ -1,0 +1,1 @@
+Art. 61.-Si todos los interesados, siendo capaces de obligarse, de común acuerdo. reconocen el error y quieren que se rectifique, se levantará una acta en el libro que al efecto llevara la oficina; se hará constar en ella el error cometido, el acuerdo de las partes y la manera de rectificarlo, y la firmarán el Registrador, las partes y dos testigos de asistencia.

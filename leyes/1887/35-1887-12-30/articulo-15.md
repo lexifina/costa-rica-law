@@ -1,0 +1,1 @@
+Art. 15.-Para cada una de las provincias de San Jose, Cartago, Heredia, Alajuela y Guanacaste y las comarcas de Puntarenas y el Limón, se llevaran tres series de libros: una para los nacimientos, otra para los matrimonios y otra para las defunciones que ocurran en cada provincia ó comarca.

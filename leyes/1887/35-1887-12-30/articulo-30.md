@@ -1,0 +1,1 @@
+Art. 30.-Los objetos encontrados con el niño expósito ó abandonado, los remitirá el funcionario al Registrador General para que si fueren documentos se archiven en la forma dicha en el artículo 24, y si fueren de otra clase, pero de fácil conservación, se custodien también en el mismo archivo, marcándose de la manera conveniente para que en todo tiempo puedan ser reconocidos.

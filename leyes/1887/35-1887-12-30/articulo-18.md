@@ -1,0 +1,1 @@
+Art. 18.-Cada libro del Registro tendrá su índice respectivo llevado por orden alfabético. Para este efecto se formaran con el abecedario todas las combinaciones posibles de dos letras; se pondrá la combinación en la parte superior del frente de cada foja, procurando destinar á cada una de aquéllas el numero de éstas que se conceptúe necesario.

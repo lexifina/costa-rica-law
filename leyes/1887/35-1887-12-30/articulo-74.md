@@ -1,0 +1,1 @@
+Art. 74.-Tanto los funcionarios públicos como los particulares, en su caso, que no cumplieren con Ia obligación de dar al Registro, en tiempo oportuno, las noticias ó presentar los certificados que previene esta ley, pagarán una multa que no bajará de cinco pesos ni subirá de veinticinco según el caso

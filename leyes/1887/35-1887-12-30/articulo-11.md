@@ -1,0 +1,1 @@
+Art. ll.-Siempre que haya cambio en la persona del funcionario encargado del Registro, se pondrá en todos los Iibros una razón que firmaran el empleado que entrega y el que recibe, en que se hagan constar el estado del libro y el número de folios escritos.

@@ -1,0 +1,1 @@
+Art 13.-Los libros llevados en campaña, terminada esta, pasarán a la oficina central; y el Registrador General cuidara entonces de practicar en sus Iibros todas las inscripciones que aquellos contengan.

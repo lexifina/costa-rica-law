@@ -1,0 +1,1 @@
+Art. 33.-Al hacerse la declaración de un nacimiento, el funcionario hará la inscripción en el talón respectivo con todas las circunstancias que la ley exige y la firmara con el declarante y dos testigos. de asistencia; de dicha inscripción sacará copia en el cupón y la remitirá firmada al Registro Central, por el correo inmediato.

@@ -1,0 +1,1 @@
+Art. 7°-Los Gobernadores en los cantones centrales y los Jefes Políticos en los menores, son los encargarlos de la celebración de los matrimonios y de la inscripción provisional de los nacimientos y tendrán las demás atribuciones que esta ley les señala.

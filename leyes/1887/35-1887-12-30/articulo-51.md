@@ -1,0 +1,1 @@
+Art. 51.-El parte de que habla el artículo anterior se debe dirigir á la Oficina Central dentro de veinticuatro horas, si la inhumación se verificare en esta capital, y dentro del término más breve que presente el servicio de correos tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 251 del Código Civil.

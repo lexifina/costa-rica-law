@@ -1,0 +1,1 @@
+Art. 2°- El Registro Central estará á cargo de la oficina central, y su personal se compondrá de un Registrador General y de los empleados necesarios, todos los cuales serán de libre nombramiento y remoción de la Secretaria de Gobernación.

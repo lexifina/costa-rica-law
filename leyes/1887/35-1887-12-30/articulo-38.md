@@ -1,0 +1,1 @@
+Art. 38.-Terminada la información, y pasado el término de los edictos sin haber habido oposición al matrimonio ó sin haberse denunciado impedimento, ó ejecutoriada, en su caso, la sentencia que Ie declare sin lugar, el funcionario terminará el expediente señalando el lugar, día y hora en que deba celebrarse el matrimonio.

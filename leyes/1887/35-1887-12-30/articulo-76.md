@@ -1,0 +1,1 @@
+Art. 76.-Todos los encargados del Registro responderán de los daños y perjuicios que ocasionen en el ejercicio de sus funciones por Ia inobservancia de las leyes y reglamentos que al Registro se refieran.

@@ -1,0 +1,1 @@
+Art. 69.-Los costarricenses que, después de haber vivido en países donde Costa Rica no tuviere Agente consular, fijaren su domicilio en lugar donde lo haya ó retornaren á la patria, deben hacer inscribir en el Registro de su domicilio todos los actos que, habiendo ocurrido antes, necesiten inscripción.

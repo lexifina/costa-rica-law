@@ -1,0 +1,1 @@
+Art. 60.-Siempre que el Registrador notare un error de los que no pueda rectificar por sí, pondrá en el asiento respectivo una nota marginal de advertencia y lo avisara por el periódico oficial a los interesados.
