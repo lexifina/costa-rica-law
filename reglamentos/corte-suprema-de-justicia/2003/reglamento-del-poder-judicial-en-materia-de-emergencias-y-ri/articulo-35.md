@@ -1,0 +1,5 @@
+CAPÍTULO V
+Fiscalización
+Artículo 35.—Fiscalización. El funcionamiento de todos los órganos contemplados en este Reglamento, relacionados con la prevención y el manejo de emergencias serán fiscalizados por la Auditoria del Poder Judicial, sin perjuicio de la competencia de la Contraloría General de la República.
+La disposición de los recursos del Fondo de Contingencias debe realizarse con estricto apego al principio de legalidad, conforme a la Ley Orgánica del Poder Judicial, la Ley de Presupuestos Públicos, la Ley de la Contratación Administrativa, Ley General de Control Interno y demás normas de control económico. Jurídico y fiscal de los entes públicos.
+En situaciones de emergencia se obviarán los procedimientos legales que resten agilidad y que sean de imposible cumplimiento; sin embargo, se deberá dejar constancia de todo lo actuado por cualquier medio que resulte apropiado de acuerdo con las circunstancias. En la medida de lo posible, los comprobantes deberán ajustarse a lo establecido en las directrices de la Dirección General de Tributación Directa y en el ordenamiento jurídico que rige esa materia.

@@ -1,0 +1,1 @@
+Articulo 17.—Exclusión de los beneficios. Los servidores que manifiesten discontinuidad o irregularidad en su servicio voluntario por más de un mes, sin contar con el permiso previo concedido por escrito, serán excluidos de las brigadas.

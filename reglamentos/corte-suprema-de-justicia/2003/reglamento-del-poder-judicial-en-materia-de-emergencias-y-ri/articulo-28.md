@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Recursos económicos
+Articulo 28.—Presupuesto. Conforme al artículo 250 de la Ley Orgánica del Poder Judicial, el Poder Judicial constituirá un Fondo de Contingencia, mediante un fideicomiso que formalizará en uno de los Bancos comerciales del Estado, que no excederá del 1% de su Presupuesto Ordinario de cada ejercicio fiscal, con el fin de satisfacer las necesidades urgentes o imprevistas, originadas en fenómenos naturales, conmoción interna o calamidad pública, que afecten la administración de Justicia, sus instalaciones y servicios, así como la declaración del estado de emergencia realizada por el Poder Ejecutivo.
+En caso de que los gastos de la emergencia sean superiores a lo presupuestado, el Poder Judicial podrá realizar modificaciones internas que le permiten atender adecuadamente la emergencia.

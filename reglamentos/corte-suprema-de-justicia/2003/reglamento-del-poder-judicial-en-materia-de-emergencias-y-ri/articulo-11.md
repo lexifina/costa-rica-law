@@ -1,0 +1,2 @@
+Articulo 11.—Brigadas. En los Circuitos Judiciales se crearán brigadas para la atención de emergencias, conformados por servidores que voluntariamente deseen pertenecer a ella. Se encargarán de la atención de todo evento que ponga en riesgo la vida de las personas o los bienes del Poder Judicial, de las labores de carácter preventivo establecidas dentro del Programa de Prevención de Riesgos.
+En lo posible. las brigadas se organizarán por áreas de especialidad, para cubrir el mayor número de posibles contingencias.

@@ -1,0 +1,2 @@
+Articulo 25.—Planes de prevención y atención de emergencias. Una vez decretado el estado de emergencia, de inmediato, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, convocará a los involucrados directos en la atención de la emergencia.
+De la reunión surgirá un documento vinculante, denominado Plan Regulador de Prevención de situaciones de riesgo inminente de emergencia y atención de emergencias, que permita planificar y canalizar en forma racional, eficiente y sistemática, las acciones que deberán asumirse, así como la supervisión necesaria.

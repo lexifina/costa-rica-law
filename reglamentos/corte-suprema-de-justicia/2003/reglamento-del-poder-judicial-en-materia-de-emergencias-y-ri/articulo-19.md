@@ -1,0 +1,6 @@
+CAPÍTULO III
+Prevención y atención de emergencias
+Artículo 19.—-Prevención. El Poder Judicial, a través de los órganos competentes, estudiará, valorará y actuará en el campo de la prevención de los diversos riesgos que por zona o por importancia, puedan preverse que afectarán potencialmente a la Institución.
+Mediante la capacitación se formará una cultura de prevención para motivar y comprometer a todos los servidores judiciales con las actividades que se promuevan en las áreas de prevención y atención de emergencias. Al efecto, el Comité de Acción Inmediata coordinará con la Escuela Judicial, el Departamento de Seguridad y la Unidad de Salud Ocupacional.
+Dentro del área de la prevención se dará prioridad a divulgar la información y la capacitación suficientes, para que los servidores judiciales estén en capacidad de cuidar de su integridad personal, la de sus compañeros, y en general del público o detenidos que se encuentren en las instalaciones Judiciales- Para ello, el Comité de Acción Inmediata coordinará lo pertinente con el Departamento de Información y Relaciones Públicas.
+Deberá establecerse un plan de inducción institucional para educar en materia de emergencias a los servidores de nuevo ingreso. También se impartirán cursos de capacitación y refrescamiento para los demás servidores.

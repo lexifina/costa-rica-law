@@ -1,0 +1,1 @@
+Articulo 39. Normativa aplicable. La materia de emergencias se regulará por lo dispuesto en la Ley Orgánica del Poder Judicial, la Ley Nacional de Emergencias No 7914 de 28 de setiembre de 1999, en lo que fuere aplicable al Poder Judicial, este Reglamento y lo que al efecto disponga la Corte Plena.

@@ -1,0 +1,3 @@
+Articulo 24.—Coordinación Nacional de la labor preventiva. La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, órgano de desconcentración máxima adscrito a la Presidencia de la República, es la responsable de coordinar, a nivel nacional, las labores preventivas de situaciones de riesgo inminente de emergencia, mitigación y respuesta a estas situaciones.
+El Poder Judicial, al igual que todas las dependencias, instituciones públicas y gobiernos locales, está obligado a coordinar con la Comisión Nacional de Prevención de Riesgos y Atención de Emergencia.
+La coordinación entre el Poder Judicial y la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias se realizará a través de la Comisión Institucional de Atención de Emergencias.

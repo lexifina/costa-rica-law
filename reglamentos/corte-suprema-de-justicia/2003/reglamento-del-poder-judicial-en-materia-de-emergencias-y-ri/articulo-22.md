@@ -1,0 +1,1 @@
+Articulo 22.—Declaración del estado de emergencia. De conformidad al artículo 180 de la Constitución Política, a nivel Nacional la declaratoria del estado de emergencia corresponderá hacerla al Poder Ejecutivo.

@@ -1,0 +1,2 @@
+Articulo 7°—Comité de Acción Inmediata. En cada Circuito Judicial existirá un Comité de Acción Inmediata responsable de coordinar la ejecución de las actividades que se realizan antes, durante y después de una emergencia o desastre.
+El Comité de Acción Inmediata estará integrado por representantes de los diferentes ámbitos del Circuito. El nombramiento de los miembros de este Comité estará a cargo del Consejo Superior.
