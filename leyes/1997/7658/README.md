@@ -1,6 +1,6 @@
 # Creación del Fondo Nacional de Becas
 
-Ley N° 7658 del 1997-02-11. SINALEVI, ficha 26131: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26131&param2=27646&param3=1>.
+Ley N° 7658 del 1997-02-11. SINALEVI, ficha 26131: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26131&param2=27647&param3=1>.
 
 Publicada en La Gaceta N° 41 del 1997-02-27.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 6 | 1997-02-27 | Ley 7658 | 1997-02-11 |
+| 2 de 6 | 1997-02-27 | SINALEVI | 1997-02-11 |

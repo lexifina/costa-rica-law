@@ -12,8 +12,8 @@ concederán.
 g) Determinar la política, la organización y el funcionamiento
 administrativo de la Institución.
 h) Dictar el reglamento interno del Fondo.
-i) Conocer los resultados parciales y finales de la gestión anual del
-Fondo.
+i) Conocer los resultados parciales y finales de la gestión anual
+del Fondo.
 j) Conocer de los recursos jurídicos que, conforme a la ley, sean
 presentados a su autoridad.
 k) Cualquier otra función que se le asigne por ley o reglamento.
