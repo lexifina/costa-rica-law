@@ -1,0 +1,1 @@
+Artículo 29.—El Consejo informará a la Junta Directiva del Colegio de Contadores Privados de Costa Rica del resultado de las elecciones y hará la declaratoria oficial de ese resultado, en un término no mayor de 48 horas.

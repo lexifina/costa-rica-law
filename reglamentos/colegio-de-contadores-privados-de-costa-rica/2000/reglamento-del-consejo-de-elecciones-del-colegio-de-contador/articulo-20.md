@@ -1,0 +1,1 @@
+Artículo 20.—La asamblea general para la presentación de papeletas y candidatos independientes, se llevará a cabo el primer domingo de marzo, a partir de las 8 horas, en primera convocatoria, y a las 9 horas en segunda convocatoria, y se extenderá hasta las quince horas o hasta que deposite el voto el último de los colegiados que se encuentren en el recinto electoral.

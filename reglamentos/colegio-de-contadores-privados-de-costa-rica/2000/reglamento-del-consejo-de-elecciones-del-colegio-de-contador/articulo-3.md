@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros del Consejo durarán en sus cargos dos años y sus nombramientos se harán en el siguiente orden: en el año impar el presidente el secretario y un vocal, por su orden; el siguiente año el vicepresidente y el otro vocal. Podrán ser reelegidos.

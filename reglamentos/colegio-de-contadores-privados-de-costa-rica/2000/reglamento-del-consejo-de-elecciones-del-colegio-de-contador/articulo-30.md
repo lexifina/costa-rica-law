@@ -1,0 +1,2 @@
+Artículo 30.—Las decisiones del Consejo únicamente admitirán recurso de revocatoria con apelación en subsidio ante la asamblea general. El plazo con que cuenta el recurrente para imponer la impugnación será de cinco días hábiles, contados a partir del día siguiente a aquel en que se dictó la resolución.
+La Junta Directiva tendrá un plazo no mayor de treinta días naturales para convocar a la asamblea general extraordinaria.
