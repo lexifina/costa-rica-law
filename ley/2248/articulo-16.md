@@ -1,0 +1,1 @@
+Artículo 16.-Las resoluciones de la Junta podrán ser apeladas por los interesados ante el Ministerio de Trabajo, dentro de los tres meses siguientes a la fecha en que se deposite la nota correspondiente en las oficinas del Correo.

@@ -1,0 +1,1 @@
+Artículo 27.- Las disposiciones de esta ley en nada se oponen a las de la Ley Nº 1903 de 12 de julio de 1955 (Reformas al Código de Educación aumentos en las dotaciones del Magisterio), las cuales mantienen toda su vigencia.

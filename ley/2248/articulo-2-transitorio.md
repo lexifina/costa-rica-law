@@ -1,0 +1,1 @@
+Transitorio II.- Las disposiciones de esta ley tendrán efecto mientras la Caja Costarricense de Seguro Social no cuente con los medios legales indispensables para elaborar y aplicar un nuevo reglamento del régimen de Invalidez, Vejez y Muerte, que le permita atender un sistema justo de pensiones del Magisterio.

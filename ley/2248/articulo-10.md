@@ -1,0 +1,1 @@
+Artículo 10.- Se podrán acumular dos o más derechos de sucesión completos o partes de esos derechos en una misma persona, siempre que sumados no excedan de cuatrocientos colones (¢ 400.00) y cuando así sea, se le girará como máximo esa suma.

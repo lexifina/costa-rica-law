@@ -1,0 +1,1 @@
+Artículo 28.- Quedan derogadas, en cuanto se opongan a la presente ley, todas las disposiciones que sobre pensiones del Magisterio contienen la Ley Constitutiva de la Caja Costarricense de Seguro Social, Nº 17 de 22 de octubre de 1943, el Código de Educación, y las demás leyes que regulan esa materia.
