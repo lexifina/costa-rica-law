@@ -13,3 +13,4 @@ Reglamento de Uso Inmueble del Liceo Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-18 | la propia norma |
+| 2 | 1983-03-18 | SINALEVI (sin norma nombrada) |
