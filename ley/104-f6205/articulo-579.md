@@ -1,12 +1,8 @@
-HISTORIAL
-Referencias cruzadas.
-Concordancias, v‚ase 9 LCRA Art¡culo 613.
-ARTÖCULO 579 Caducidad del contrato entre naviero y capit n;
-indemnizaci¢n
-Todo contrato entre el naviero y el capit n caduca, en caso de
-venderse la nave, reserv ndose a ‚ste su derecho por la indemnizaci¢n
-que le corresponda, seg£n los pactos hechos con el naviero.
+Artículo 579.- Caducidad del contrato entre naviero y capitán;
+indemnización
+Todo contrato entre el naviero y el capitán caduca, en caso de
+venderse la nave, reservándose a éste su derecho por la indemnización
+que le corresponda, según los pactos hechos con el naviero.
 La nave vendida queda obligada a la seguridad del pago de esta
-indemnizaci¢n, si despu‚s de haberse dirigido la repetici¢n contra el
-vendedor, resultare ‚ste insolvente.-No. 104 de 6 de junio de 1853, art.
-579.
+indemnización, si después de haberse dirigido la repetición contra el
+vendedor, resultare éste insolvente.

@@ -1,7 +1,6 @@
-ARTÖCULO 812 Tiempo limitado para el seguro; conclusi¢n de la
+Artículo 812.- Tiempo limitado para el seguro; conclusión de la
 responsabilidad del asegurador
-Cuando se prefije en la p¢liza un tiempo limitado para el seguro,
-concluir la responsabilidad de los aseguradores, trascurrido que sea
-el plazo aun cuando est‚n pendientes los riegos de las cosas aseguradas,
-sobre cuyas resultas podr el asegurado celebrar nuevos contratos. -No.
-104 de 6 de junio de 1853, art. 812.
+Cuando se prefije en la póliza un tiempo limitado para el seguro,
+concluirá la responsabilidad de los aseguradores, trascurrido que sea
+el plazo aun cuando estén pendientes los riegos de las cosas aseguradas,
+sobre cuyas resultas podrá el asegurado celebrar nuevos contratos.

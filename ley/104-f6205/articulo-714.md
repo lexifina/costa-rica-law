@@ -1,6 +1,5 @@
-ARTÖCULO 714 Descarga en el puerto de arribada
-Haci‚ndose la descarga en el puerto de arribada, se devengar el
-flete por viaje de ida entero, si estuviese a m s de la mitad de
-distancia entre el de la expedici¢n y el de la consignaci¢n. Siendo la
-distancia menor, s¢lo se devengar la mitad del flete.-No. 104 de 6 de
-junio de 1853, art. 714.
+Artículo 714.- Descarga en el puerto de arribada
+Haciéndose la descarga en el puerto de arribada, se devengará el
+flete por viaje de ida entero, si estuviese a más de la mitad de
+distancia entre el de la expedición y el de la consignación. Siendo la
+distancia menor, sólo se devengará la mitad del flete.

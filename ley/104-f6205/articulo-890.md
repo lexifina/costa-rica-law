@@ -1,8 +1,8 @@
-ARTÖCULO 890 Efectos que no se computan en la aver¡a com£n
-Tampoco se computar n en la aver¡a com£n los efectos cargados sobre
-el comb‚s de la nave que se arrojen o da¤en, no obstante que estar n
-tambi‚n sujetos a la contribuci¢n de la aver¡a si se salvasen.
-El fletante y el capit n responder n de los perjuicios de la
-echaz¢n a los cargadores de los efectos arrojados, si su colocaci¢n en
-el comb‚s se hubiere hecho arbitrariamente y sin consentimiento de
-‚stos. -No. 104 de 6 de junio de 1853, art. 890.
+Artículo 890.- Efectos que no se computan en la avería común
+Tampoco se computarán en la avería común los efectos cargados sobre
+el combés de la nave que se arrojen o dañen, no obstante que estarán
+también sujetos a la contribución de la avería si se salvasen.
+El fletante y el capitán responderán de los perjuicios de la
+echazón a los cargadores de los efectos arrojados, si su colocación en
+el combés se hubiere hecho arbitrariamente y sin consentimiento de
+éstos.

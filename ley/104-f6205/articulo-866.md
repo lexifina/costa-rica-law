@@ -1,5 +1,4 @@
-ARTÖCULO 866 Gastos por los que responden los aseguradores
-As¡ mismo son responsables los aseguradores de las aver¡as, gastos
+Artículo 866.- Gastos por los que responden los aseguradores
+Asímismo son responsables los aseguradores de las averías, gastos
 de descarga, almacenaje, reembarque, excedente de flete, y todos los
-dem s gastos causados para trasbordar el cargamento.-No. 104 de 6 de
-junio de 1853, art. 866.
+demás gastos causados para trasbordar el cargamento.

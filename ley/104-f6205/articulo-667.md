@@ -1,2 +1,3 @@
-ARTÖCULO 667: establec¡a los derechos de los herederos del marinero
-que mor¡a durante el viaje.
+Artículo 667.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

@@ -1,12 +1,12 @@
-ARTÖCULO 691 Insuficiencia del porte de la nave para cumplir los
+Artículo 691.- Insuficiencia del porte de la nave para cumplir los
 contratos
-No siendo suficiente el porte de la nave para cumplir los
-contratosde fletamento celebrados con distintos cargadores, se dar la
-preferencia al que ya tenga introducida la carga en la nave; y los dem s
-obtendr n el lugar que les corresponda, seg£n el orden de fechas de sus
+No siendo suficiente el porte de la nave para cumplir los contratos
+de fletamento celebrados con distintos cargadores, se dará la
+preferencia al que ya tenga introducida la carga en la nave; y los demás
+obtendrán el lugar que les corresponda, según el orden de fechas de sus
 contratas.
-No habiendo prioridad en las fechas, cargar n a prorrata de las
-cantidades de peso o extensi¢n que cada uno tenga marcadas en su
+No habiendo prioridad en las fechas, cargarán a prorrata de las
+cantidades de peso o extensión que cada uno tenga marcadas en su
 contrata, quedando obligado el fletante en ambos casos a indemnizar a
 los fletadores de los perjuicios que reciban por la falta de
-cumplimiento de aqu‚llas.-No. 104 de 6 de junio de 1853, art. 691.
+cumplimiento de aquéllas.

@@ -1,4 +1,3 @@
-ARTÖCULO 658: dec¡a que el equipaje no tendr derecho alguno a
-indemnizaci¢n, y s¢lo podr n exigir los salarios devengados, en el caso
-de que el viaje se revocase por justa causa, independiente de la
-voluntad del naviero y cargadores.
+Artículo 658.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).
