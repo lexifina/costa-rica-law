@@ -1,0 +1,1 @@
+Artículo 8º—El Departamento de Policía Municipal de Heredia (PMH), estará organizado en secciones y unidades, las cuales se establecerán según sus necesidades, desarrollo y crecimiento del Departamento. Con fines operativos, las unidades podrán subdividirse en patrullas, grupos, etc.

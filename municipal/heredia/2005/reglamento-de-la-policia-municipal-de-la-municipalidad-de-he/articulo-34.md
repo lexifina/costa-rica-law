@@ -1,0 +1,1 @@
+Artículo 34.—Los Policías Municipales tendrán derecho a suscribir una póliza de riesgos profesionales que cubran los riegos de invalidez permanente o muerte. Estos derechos serán trasmitidos a los causahabientes en litigio sucesor.

@@ -1,0 +1,1 @@
+Artículo 23.—Los Miembros de la Policía Municipal de Heredia (PMH), estarán obligados a prestarse entre sí mutuo apoyo, así como a los miembros de otros cuerpos policiales, en toda ocasión que sean requeridos por compañeros o vean necesaria su intervención en apoyo de estos para el cumplimiento de las funciones encomendadas.

@@ -1,0 +1,1 @@
+Artículo 22.—Los Policías Municipales deberán evitar la comisión de delitos, faltas e irregularidades administrativas, así como, el incumplimiento de los Reglamentos Municipales. Deberán informar las deficiencias que se observen en el funcionamiento o conservación de los bienes y servicios municipales.

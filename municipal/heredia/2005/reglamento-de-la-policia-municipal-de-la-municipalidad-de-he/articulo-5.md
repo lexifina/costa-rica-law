@@ -1,0 +1,1 @@
+Artículo 5º—Es obligatorio el uniforme mientras se encuentra en servicio para todos los miembros del Departamento de la Policía Municipal, solo en caso de algún operativo o procedimiento especial, será el de uso civil y para esos efectos deberá contar con el visto bueno del jefe del departamento por escrito.

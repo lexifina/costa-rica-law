@@ -1,0 +1,1 @@
+Artículo 25.—Los Policías Municipales de Heredia estarán obligados a cumplir íntegramente su jornada de trabajo. El Alcalde Municipal, podrá variar el horario de trabajo de los Policías Municipales cuando existan circunstancias de conveniencia e interés público que así lo justifiquen, respetándose para ello las normas constitucionales y laborales al efecto.

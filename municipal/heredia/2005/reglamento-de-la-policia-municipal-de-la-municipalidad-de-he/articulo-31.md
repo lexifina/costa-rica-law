@@ -1,0 +1,1 @@
+Artículo 31.—Las distinciones otorgadas a los Policías Municipales serán tenidas en cuenta para el ascenso a otro cargo, para la adjudicación de distintivos y para el acceso a los cursos de actualización de conocimientos y especialidades en instituciones de prestigio.
