@@ -1,0 +1,1 @@
+Artículo 11.—Se prohibe la operación de embarcaciones de pesca comercial, que utilicen redes de cerco y arrastre en las 12 millas de mar territorial, comprendidas entre Punta Guiones (Aproxim. 9° 54' O" L.N. y 85° 40' O" L.O.) y Punta India (Aprox. 10" O'O" L.N. y 85" 42' 30" L.O.).
