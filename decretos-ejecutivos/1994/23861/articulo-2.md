@@ -1,0 +1,21 @@
+Artículo 2º.- Modifícase el artículo 2º del decreto ejecutivo
+Nº 22942-H del 3 de marzo de 1994, en la forma que se detalla a
+continuación:
+AUMENTAR:
+TITULO 115
+Ministerio de Trabajo y Seguridad Social
+PROGRAMA 717
+"PROGRAMA NACIONAL DE APOYO A LA MICRO
+Y PEQUEÑA EMPRESA (PRONAMIPE)"
+UNIDAD EJECUTORA:
+DIRECCION NACIONAL DE APOYO A LA MICRO Y PEQUEÑA EMPRESA
+Registro contable: 115.717
+GO IP FF CE CF Concepto Monto
+7 03 241 24 TRANSF. DE CAPITAL 700.000.000
+702 Aport. a Otras Pers. e
+Instituc. Privadas 700.000.000
+TOTAL AUMENTO DEL PROGRAMA
+717 700.000.000
+TOTAL AUMENTO DEL TITULO
+115-MINISTERIO DE TRABAJO Y
+SEGURIDAD SOCIAL 700.000.000
