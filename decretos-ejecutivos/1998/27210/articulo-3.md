@@ -1,0 +1,1 @@
+Artículo 3°—Se dará una veda total para la pesca y la caza marítima, del 1 de junio al 31 de diciembre de cada año dentro del Sector Marino del Refugio, según la delimitación territorial del Artículo 1 del presente Decreto.
