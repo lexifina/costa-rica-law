@@ -1,0 +1,2 @@
+Artículo 15.—Soporte de los servicios móviles
+Estos servicios podrán brindarse haciendo uso de los sistemas de satélites INMARSAT o de cualquier otro disponible, al cual el I.C.E. tenga acceso. Todos estos servicios utilizan satélites ubicados en órbita geoestacionaria (GEO) o en órbita de media altura (MEO) o en órbita de baja altura (LEO) o sistemas satelitales que hagan uso de combinaciones orbitales y de enlaces intersatelitales.

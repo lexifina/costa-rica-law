@@ -1,0 +1,2 @@
+Artículo 23.—Depósito de garantía.
+Para cada uno de los servicios solicitados, el cliente deberá paga por única vez, un depósito de garantía, el cual será reintegrado al cliente al momento de terminar el contrato de servicios suscrito con el I.C.E después de que sean liquidadas las sumas pendientes de pago, si las hubiere. Los montos de estos depósitos aparecen en el "Pliego tarifario para la prestación de servicios satelitales".

@@ -1,0 +1,2 @@
+Artículo 10.—Utilización de sistemas satelitales no contemplados en este Reglamento.
+El I.C.E. deberá solicitar a la Autoridad Reguladora de los Servicios Públicos, el establecimiento de las condiciones y la aprobación de las tarifas correspondientes, bajo las cuales se brindarán aquellos servicios de Telecomunicaciones que utilicen sistemas satelitales no contemplados en el presente reglamento y que se llegaren a utilizar en el futuro.

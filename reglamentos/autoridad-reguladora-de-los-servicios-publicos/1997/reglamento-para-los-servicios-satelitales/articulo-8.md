@@ -1,0 +1,3 @@
+Artículo 8°—Cobro de indemnizaciones.
+La contravención a las disposiciones del presente Reglamento dará derecho al I.C.E., a cobrar la respectiva indemnización, según la gravedad del caso y nunca mayor que el daño o perjuicio ocasionado, la que será verificada y autorizada por la Autoridad Reguladora de los Servicios Públicos.
+El I.C.E. podrá desconectar los servicios - previa notificación al cliente- hasta que éste cancele la indemnización autorizada por la Autoridad Reguladora de los Servicios Públicos. Transcurrido un término de dos meses sin que se haya hecho efectiva esta indemnización, se procederá a la rescisión del contrato respectivo de conformidad con sus estipulaciones.
