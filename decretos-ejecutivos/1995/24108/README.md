@@ -14,3 +14,4 @@ Adiciona artículo a la reforma del decreto que establece el monto de dietas a l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-22 | la propia norma |
+| 2 | 1996-09-03 | Decreto Ejecutivo 25549 (1996-09-03) |
