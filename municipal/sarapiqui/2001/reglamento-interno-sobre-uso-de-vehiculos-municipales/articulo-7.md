@@ -1,0 +1,1 @@
+Artículo 7°—Todos los vehículos municipales, excepto los de uso discrecional deberán estar rotulados con una leyenda que diga Municipalidad de Sarapiquí y la dirección, sección o departamento a que pertenece.

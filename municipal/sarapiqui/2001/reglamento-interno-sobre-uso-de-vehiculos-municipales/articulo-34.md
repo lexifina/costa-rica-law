@@ -1,0 +1,1 @@
+Artículo 34.—Los conductores no deben estacionar los vehículos en lugares donde se ponga en peligro la seguridad de los mismos o locales cuya característica riña con la moral y las buenas costumbres, salvo las excepciones contempladas en el artículo 18 de este Reglamento.

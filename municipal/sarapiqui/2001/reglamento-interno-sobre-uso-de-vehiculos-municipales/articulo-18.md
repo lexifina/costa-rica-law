@@ -1,0 +1,1 @@
+Artículo 18.—Por ninguna razón los vehículos municipales podrán permanecer en bares o cantinas a ninguna hora del día o de la noche, salvo funcionarios que se desplacen a esos lugares para cumplir con lo dispuesto por la Ley General de Licores o la Ley General de Espectáculos Públicos.

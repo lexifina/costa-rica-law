@@ -1,0 +1,1 @@
+Artículo 9°—Sin perjuicio de la fiscalización que realicen la Contraloría General de la República y la Auditoría Interna de la Municipalidad, el Alcalde Municipal velara por el fiel cumplimiento de este reglamento.

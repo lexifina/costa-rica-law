@@ -1,0 +1,1 @@
+Artículo 46.—La aplicación de este Reglamento es de responsabilidad del Alcalde Municipal y de la propia administración. La Auditoría Interna ejercerá sus controles sobre este particular, cuando lo juzgue conveniente dentro de su programa de trabajo o a solicitud del Concejo Municipal.

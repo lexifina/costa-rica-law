@@ -1,0 +1,1 @@
+Artículo 26.—Corresponderá al Alcalde, verificar la eficiencia, eficacia y oportunidad de la ejecución de los programas de mantenimiento y girar las recomendaciones que considere pertinentes a la Sección de Taller Mecánico.
