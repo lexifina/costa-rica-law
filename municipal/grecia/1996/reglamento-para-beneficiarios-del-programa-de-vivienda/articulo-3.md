@@ -1,0 +1,1 @@
+3. Presentar constancias de nacimiento de los menores, de matrimonio o en su defecto constancia de la Guardia Rural de la localidad o una declaración jurada ante notario público, dando fe de que él o la solicitante vive en unión libre, o es soltero y está a cargo de sus hijos menores.
