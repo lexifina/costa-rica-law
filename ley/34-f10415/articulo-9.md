@@ -1,0 +1,1 @@
+Art 9° Los expendedores de licores fuertes y compuestos del Gobierno, que los tenga o vendan adulterados o con distinto grado que el que tienen a su entrega en la Fábrica, incurren en las mismas penas determinas en el artículo anterior, e igual pena se impondrá al que estando autorizado venda el tabaco mojado.

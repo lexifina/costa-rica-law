@@ -1,0 +1,2 @@
+Art 15° Queda en estos términos reformado el decreto de la Comisión Permanente n°13, de 24 de abril último, y derogados la ley de 27 de diciembre de 1870, y los capítulos 5°, 6°y 7°, sección 3° del Reglamento de Hacienda de 1858, y demás leyes contrarias a la presente.
+Al Poder Ejecutivo, Dado en el Salón de Sesiones, Palacio Nacional, San José, veintidós de julio de mil ochocientos setenta y tres. Palacio Nacional, San José, agosto dieciséis de mil ochocientos setenta y tres. Ejecútese.
