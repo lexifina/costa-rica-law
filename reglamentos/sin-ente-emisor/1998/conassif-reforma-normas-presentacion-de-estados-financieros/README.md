@@ -13,3 +13,4 @@ CONASSIF: Reforma Normas Presentación de Estados Financieros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-11 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
