@@ -1,0 +1,1 @@
+Artículo 15.- Nombramiento de Presidente y Secretario: Una vez designadas las comisiones por el Presidente Municipal, sus miembros en la sesión de instalación que deberá celebrarse dentro de los quince días siguientes, nombrará de su seno a quien haga las veces de Presidente, y Secretario. Este último puede ser un funcionario o empleado municipal.

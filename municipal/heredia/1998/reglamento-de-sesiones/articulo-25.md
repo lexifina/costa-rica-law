@@ -1,0 +1,1 @@
+Artículo 25.- Turno de las mociones de orden: Las mociones de orden deben ser puestas a conocimiento y votación del Concejo en rigurosos orden de presentación y sobre un moción de orden no cabe establecer otro que pretenda posponerla.

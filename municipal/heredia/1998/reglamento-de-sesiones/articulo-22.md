@@ -1,0 +1,3 @@
+Artículo 22.- Oportunidad para la moción de orden: En cualquier estado del debate, podrán presentarse mociones de orden en relación al asunto que se discute. Una vez recibidas por el Presidente, se podrán a discusión tan pronto como cese en el uso de la palabra el regidor que la tuviere en el momento de su presentación.
+Han de ser debatidas y resueltas sin dilación.
+En el debate sobre las mociones de orden solo se permitirá la palabra al proponente y a un regidor por cada una de las fracciones políticas representadas en el Concejo, sin que pueda exceder de cinco minutos en el uso de la palabra.

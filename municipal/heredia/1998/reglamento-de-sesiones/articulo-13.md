@@ -1,0 +1,1 @@
+Artículo 13.—Facultad y prohibición: Un mismo regidor no puede formar parte de más de tres comisiones ordinarias, pudiendo ser reelecto en las mismas. Se prohibe que un regidor actúe como Presidente de tres comisiones ordinarias a la vez.

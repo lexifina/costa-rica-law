@@ -1,0 +1,1 @@
+Artículo 30.- Prioridad de un asunto: Cuando el Presidente de por finalizada la sesión estando en la discusión de un asunto, éste mantendrá su prioridad en la sesión siguiente, con el número uno se respetará la procedencia en que está pedida la palabra por los regidores para referirse al tema.

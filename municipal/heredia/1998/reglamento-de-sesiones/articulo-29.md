@@ -1,0 +1,1 @@
+Artículo 29.- Palabras en el Acta: Los regidores con ocasión del debate de un asunto o de una votación, tienen la facultad de solicitar a la Presidencia que se haga constar sus palabras en el acta, para lo cual deberá entregar por escrito en un término de 24 horas lo que quiere que conste en ella.

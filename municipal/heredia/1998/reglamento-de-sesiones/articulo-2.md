@@ -1,0 +1,1 @@
+Artículo 2°- Lugar de Sesiones: Las sesiones de ese cuerpo deberán celebrarse en el local del Palacio Municipal destinado a ese efecto. Podrán celebrarse sesiones extraordinarias en otros lugares dentro del Cantón, cuando la índole de los asuntos a tratar así lo requieran y siempre que el acuerdo de convocatoria así lo especifique.

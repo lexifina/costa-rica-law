@@ -1,0 +1,1 @@
+Artículo 20.- Acuerdos: Conforme lo establece el Código Municipal, los acuerdos tomará el Concejo por simple mayoría de votos de los miembros presentes, salvo los casos en que ese mismo Código un ley especial determine una mayoría calificada.

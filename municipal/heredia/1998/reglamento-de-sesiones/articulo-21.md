@@ -1,0 +1,1 @@
+Artículo 21.- Acuerdos firmes: Los acuerdos que tome el Concejo solamente podrán ser declarados formes por votación de las dos terceras partes de la totalidad de sus miembros y en situaciones calificadas de urgencia.

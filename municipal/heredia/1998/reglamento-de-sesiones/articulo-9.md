@@ -1,0 +1,1 @@
+Artículo 9°- Jefes de departamentos: Los jefes de departamentos no están obligados a concurrir, a menos por la naturaleza de los asuntos tratar, sean en cada caso convocados por el Presidente Municipal, por iniciativa propia o por instancia de algún regidor y según lo establecido el artículo 40 del Código Municipal.

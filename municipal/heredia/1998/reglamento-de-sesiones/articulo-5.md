@@ -1,0 +1,1 @@
+Artículo 5°- Las sesiones ordinarias se realizarán los cuatro primeros lunes y primer y tercer jueves del mes y se pagará lo correspondiente a la realizada los días lunes. La hora de inicio de las sesiones serán a las 18 horas con 15 minutos, y conforme lo indicado en el artículo 38 del Código Municipal.

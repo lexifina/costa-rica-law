@@ -1,0 +1,1 @@
+Artículo 26.- Moción para alterar el orden del día: La discusión de una proposición que contenga la alteración del orden del día, se limitará en cuanto al trámite de alteración, a una exposición de cinco minutos por cada regidor que solicita la palabra.

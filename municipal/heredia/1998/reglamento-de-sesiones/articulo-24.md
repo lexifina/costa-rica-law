@@ -1,0 +1,1 @@
+Artículo 24.- Posposición de un asunto: Toda posposición de un acuerdo incluido en el orden del día implica alteración de éste excepto cuando el Concejo haya comenzado su debate, en cuyo caso, la moción correspondiente debe como de orden, en cualquier momento de la discusión del asunto que se pretende posponer.
