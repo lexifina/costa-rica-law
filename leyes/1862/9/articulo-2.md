@@ -1,0 +1,3 @@
+Art 2° Se deja al Sr. D Juan Bonnefeli en posesión del sitio de las Mesas en la costa del Pacífico, pero si los títulos que acrediten la propiedad de dicho sitio hubieren sido librados con posteridad, a la Real Cédula de 15 de octubre de 1754, quedará la medida o mensura que tales títulos expresen, sujeta en un todo a los disposiciones los artículos 102, 103 y 104 del capítulo 10° y a las de los del capítulo 10° y a las de los capítulos 12°, sección 1° del Reglamento de Hacienda de 30 de julio de 1858.
+Dado en San José, a los seis días del mes de junio de mil ochocientos sesenta y dos.
+Poder Ejecutivo. – San José, julio nueve de mil ochocientos sesenta y dos.
