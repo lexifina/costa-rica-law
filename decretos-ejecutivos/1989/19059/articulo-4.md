@@ -1,0 +1,1 @@
+Artículo 4°—Los colegios científicos de .Costa Rica se establecerán mediante convenio suscrito entre el Ministerio de Educación Pública y alguna institución de educación superior universitaria estatal.
