@@ -1,0 +1,1 @@
+ART.32.-Podrán las comisiones llamar a su despacho a los secretarios del Ejecutivo, y demás Jefes subalternos, y podrán pedir al Ejecutivo, autoridades y corporaciones, todos los antecedentes, informes y datos que necesiten, verificándolos por medio de la Secretaria del Senado.

@@ -1,0 +1,1 @@
+Art.30.-Quedando designados en el articulo 19 los dias en que han de celebrarse las sesiones ordinarias del Senado, sus individuos en el intervalo de unas a otras, se ocuparan de los negocios de las comisiones que respectivamente les estuvieses encargadas.

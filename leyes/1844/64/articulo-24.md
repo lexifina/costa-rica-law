@@ -1,0 +1,1 @@
+Art.24.-Las sesiones ordinarias comenzaran a las nueve de la mañana, y se levantaran a las doce, a menos que se prorroguen o se declaren permanentes. Las extraordinarias se celebraran a las horas en que lo exijan los asuntos para que fueren convocados.

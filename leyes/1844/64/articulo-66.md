@@ -1,0 +1,1 @@
+Art.66.-El Secretario extender las actas, acuerdos y comunicaciones de cada sesión, y las presentar en la siguiente al Senado para su aprobación si fuesen conformes a lo acordado. En este caso serán autorizadas y despachadas, y en el contrario reformadas.

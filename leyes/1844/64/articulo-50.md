@@ -1,0 +1,1 @@
+Art.50.-Los empates en las votaciones sobre proyectos de ley, y demás asuntos que pertenecen al Senado, se decidirán repitiéndose la votación en la misma sesión; y si aun resultase empatada, se abrir de nuevo la discusión por una vez; y en caso de segundo empate se reservar el asunto y se llamar al 5° Senador.

@@ -1,0 +1,1 @@
+Art.74.-Los gastos de escritorio de la Secretaria del Senado, se cubrir n por el Tesoro del Estado, debiendo la misma dar cuenta de estos, presentándola en fin del año al Senado para su examen y aprobación.

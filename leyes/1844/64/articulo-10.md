@@ -1,0 +1,1 @@
+Art. 10.-Recibir el juramento a los Senadores nombrados, reconocida que sea la legitimidad del documento de su elección por la Cámara, de representantes. Así mismo les recibir el referido juramento a los individuos que deben componer el Tribunal de que habla el artículo 186 de la Constitución.

@@ -1,0 +1,1 @@
+Art.62.-Ser n exceptuados de sesión los Domingos, todos los dias de semana santa, Ascensión, Corpus Cristi, y Natividad de Nuestro Señor Jesucristo, el dia del Patrón, los dias de Concepción, Nacimiento y Asunción de Nuestra Señora la Virgen Maria; y los días de los Apóstoles San Pedro y San Pablo, Santiago y San Juan Bautista y 14 y 15 de Setiembre.

@@ -1,0 +1,1 @@
+Art.60.-En la misma forma deber hacer la declaratoria contra los Cuerpos municipales, imponerles las correcciones necesarias, conocer de los recursos de nulidad de sus elecciones, excepciones y renuncias de los electos conforme al n° 8° del referido Art° 126.

@@ -1,0 +1,1 @@
+ART.67.-Los empleados de la Secretaria asistirán a ella precisamente en los días en que se reúnan el Senado a las ocho de la mañana, y de las tres de la tarde a las seis sin perjuicio de aumentar las horas de trabajo, según estime el Presidente siempre que ocurran asuntos que lo exijan.

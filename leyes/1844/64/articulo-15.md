@@ -1,0 +1,1 @@
+Art.15.-Los Senadores gozaran del sueldo que les designe la ley; mas si faltasen con licencia o sin ella no lo gozaran por el tiempo de la ausencia. Pero si algún Senador enfermare gravemente, y no tuviese recursos, el Senado acordar lo conveniente a fin de que se le provea de lo necesario.

@@ -1,0 +1,1 @@
+Art.47.-Si fuese adoptado despues de extendido en forma, leido en la Cámara, se firmara y dirigirá con el expediente respectivo a la otra Cámara de Representantes para su sanción en caso que la crea conveniente.

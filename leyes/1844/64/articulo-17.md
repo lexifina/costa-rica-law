@@ -1,0 +1,1 @@
+Art.17.-Si llamado el suplente por haberse dado declaratoria de haber lugar a la formación de causa contra el propietario, y quedar este absuelto en el juicio, ser inmediatamente repuesto a su empleo.
