@@ -1,0 +1,4 @@
+Artículo 5°─ No podrá establecerse una escuela complementaria con un número menor de quince alumnos para el primer curso.
+Para ser inscrito como alumno de una Escuela Complementaria se requiere:
+a) .─ Ser menor de 20 años, lo cual se comprobará con la respectiva cédula de inscripción en el Registro Civil o con certificación de la partida correspondiente; excepto cuando se trate de alumnos salidos de la escuela primaria en el año anterior.
+b) .─ Haber cursado, con aprobación, el sexto grado de la enseñanza primaria o poseer los conocimientos correspondientes a dicho grado. En el primer caso bastará con que el interesado presente constancia del Director de Escuelas respectivo; en el segundo caso, la suficiencia se comprobará mediante examen que practicará el Direccor, el maestro de sétimo grado y otro maestro designado por el Director. Del examen se levantará un acta firmada por la comisión examinadora.
