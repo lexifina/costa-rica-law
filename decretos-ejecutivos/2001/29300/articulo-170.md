@@ -8,3 +8,5 @@ Decreto Ejecutivo N° 26183-MINAE del 27 de junio de 1997, publicado en La Gacet
 Decreto Ejecutivo N° 26502-MINAE del 16 de octubre de 1997, publicado en La Gaceta N° 236 del 8 de diciembre de 1997 y sus reformas.
 Decreto Ejecutivo N° 20983-MIRENEM del 6 de enero de 1992, publicado en La Gaceta N° 30 del 12 de febrero de 1992 y sus reformas.
 Decreto Ejecutivo N° 28705-MINAE del 5 de junio del 2000, publicado en La Gaceta N° 128 del 22 de junio del 2000.
+Decreto Ejecutivo N°26110-MINAE, del 18 de diciembre de 1996, publicado en el Alcance N° 31 del 17 de junio de 1997.
+(Así adicionado por el artículo 18 del Decreto Ejecutivo N° 29677 de 12 de julio del 2001)

@@ -3,10 +3,13 @@ a) La solicitud por escrito, debidamente firmada por el solicitante, o su repres
 b) Resolución de la SETENA de la aprobación del Estudio de Impacto Ambiental correspondiente a la explotación propuesta y copia del estudio de impacto ambiental aprobado.
 c) Indicar el mineral de interés en explotar.
 d) Extensión y definición del área que se pide, representada en hoja Cartográfica del I.G.N. escala 1:50000, o su respectiva fotocopia a color debidamente certificada relacionada con un hito geodésico, y con indicación de la localidad, distrito, cantón y provincia a que corresponden.
-e) Plano topográfico con su derrotero y cálculo de levantamiento efectuado, con curvas de nivel, de la finca o fincas donde se ubica el área de interés.
+e) Plano topográfico con su derrotero y cálculo de levantamiento efectuado con curvas de nivel, donde se ubica el área de interés.
+(Así reformado por el artículo 5 del decreto Ejecutivo N° 29677 de 12 de julio del 2001)
 f) Nombre del propietario o propietarios, u ocupantes del área solicitada, si fuere posible. En caso de canteras, debe aportarse expresamente el permiso del propietario del inmueble debidamente autenticado por abogado. Además debe aportarse certificación registral o notarial de la propiedad.
-g) Plazo solicitado el cual será fijado en definitiva por la DGM con vista en el estudio técnico geológico que determine la capacidad de recarga de materiales..
-h) Certificación del SINAC de que el área no se encuentra dentro de ningún régimen de protección de su competencia.
+g) Plazo solicitado el cual será fijado en definitiva por la DGM con vista en el estudio técnico geológico.
+(Así reformado por el artículo 6 del decreto Ejecutivo N° 29677 de 12 de julio del 2001)
+h) Certificación del SINAC de que el área de interés no se encuentra dentro de un área silvestre protegida. Si ya existe un permiso de exploración a la misma persona física o jurídica sobre la misma área que se pretende explotar, este requisito se tendrá por ya cumplido.
+(Así reformado por el artículo 7 del decreto Ejecutivo N° 29677 de 12 de julio del 2001)
 i) Declaración jurada rendida ante Notario Publico, en la que claramente exprese si el interesado, o cualquiera de los accionistas, en caso de personas jurídicas, se encuentran cubiertos por las prohibiciones contenidas en el artículo 9 del Código de Minería.
 j) Programa de explotación refrendado por un geólogo o ingeniero en minas debidamente incorporados al Colegio respectivo.
 k) Referencias técnicas y financieras.

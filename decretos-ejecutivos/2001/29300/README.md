@@ -14,3 +14,4 @@ Reglamento al Código de Minería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-16 | la propia norma |
+| 2 | 2001-07-12 | Decreto Ejecutivo 29677 (2001-07-12) |

@@ -1,1 +1,1 @@
-Artículo 118.—De la de recomendación de otorgamiento de autorización. Una vez cumplido con los trámites anteriores, la DGM, en un plazo máximo de ocho días, confeccionará el oficio de recomendación de autorización y la remitirá al Ministro del Ambiente y Energía. En dicho oficio se indicará claramente, la descripción del área, volúmenes a extraer y condiciones técnicas aplicables a la explotación.
+Texto de artículo no encontrado

@@ -8,7 +8,8 @@ b) Resolución de aprobación emitida por la SETENA, del Estudio de Impacto Ambi
 c) Indicar los minerales de interés.
 d) Extensión y definición del área que se pide, representada en hoja Cartográfica del I.G.N. escala 1:50000 o su respectiva fotocopia a color debidamente certificada, relacionada con un hito geodésico, y con indicación de la localidad, distrito, cantón y provincia a que corresponden.
 e) Nombre del propietario o propietarios, y ocupantes del área solicitada, si fuere posible.
-f) Plazo solicitado el cual será fijado en definitiva por la DGM con vista en el estudio técnico geológico que determine la capacidad de recarga de materiales.
+f) Plazo solicitado el cual será fijado en definitiva por la DGM con vista en el estudio técnico geológico.
+(Así reformado por el artículo 4 del Decreto Ejecutivo N° 29677 de 12 de julio del 2001)
 g) Certificación del SINAC de que el área no se encuentra bajo ningún régimen de protección de su competencia.
 h) Declaración jurada rendida ante Notario Publico, en la que se exprese si el interesado, o cualquiera de los accionistas, en caso de personas jurídicas, se encuentran cubiertos por las prohibiciones contenidas en el artículo 9 del Código de Minería.
 i) Programa de exploración refrendado por un geólogo o ingeniero en minas, debidamente incorporado al Colegio respectivo.
