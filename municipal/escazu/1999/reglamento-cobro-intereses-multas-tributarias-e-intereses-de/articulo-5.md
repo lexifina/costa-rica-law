@@ -1,0 +1,1 @@
+Artículo 5º—Ambito de aplicación. La tasa de interés que mediante este Reglamento se establece, lo será para su aplicación tanto en las obligaciones tributarias municipales como en las obligaciones tributarias originadas como consecuencia del impuesto sobre bienes inmuebles.

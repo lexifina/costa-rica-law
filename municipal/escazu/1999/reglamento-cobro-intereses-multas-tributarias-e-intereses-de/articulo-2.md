@@ -1,0 +1,1 @@
+Artículo 2º—Consecuencias en el atraso en el pago de obligaciones tributarias municipales. El atraso en el pago de las obligaciones tributarias municipales generará el cobro al sujeto pasivo del principal, intereses y multas, los cuales se cobrarán de conformidad con lo que establece este Reglamento.

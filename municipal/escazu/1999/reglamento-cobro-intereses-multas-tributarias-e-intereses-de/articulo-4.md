@@ -1,0 +1,1 @@
+Artículo 4º—Intereses. La tasa de interés tanto a cargo del sujeto pasivo, como a cargo de la Administración Tributaria, se establece en un 27.58% de conformidad con lo regulado en los artículos 57 y 58 del Código de Normas y Procedimientos Tributarios.

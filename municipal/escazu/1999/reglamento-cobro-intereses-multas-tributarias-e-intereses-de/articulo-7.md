@@ -1,0 +1,1 @@
+Artículo 7º—Morosidad en el pago de tributos municipales. Los morosos por tributos municipales, pagarán una multa del uno por ciento por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación, hasta la fecha efectiva de la obligación tributaria y se calculará sobre las sumas sin pagar a tiempo.
