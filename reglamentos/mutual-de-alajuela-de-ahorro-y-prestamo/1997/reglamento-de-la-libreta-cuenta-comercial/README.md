@@ -15,3 +15,4 @@ Reglamento de la Libreta Cuenta Comercial
 | --- | --- | --- |
 | 1 | 1997-04-21 | la propia norma |
 | 2 | 2001-05-14 | Reglamento 23 (2001-05-14) |
+| 3 | 2001-07-23 | Reglamento 38 (2001-07-23) |
