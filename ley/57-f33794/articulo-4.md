@@ -1,0 +1,2 @@
+Artículo 4°.-Las autorizaciones extendidas por la Junta de Control para la obtención de divisas extranjeras, que en los cinco días hábiles siguientes a su fecha no fueren usadas por los interesados, serán nulas.
+No se otorgar nueva autorización para llenar las mismas necesidades que motivaron la autorización caduca o nula, si el interesado no llena los mismos requisitos que se exigieron para el otorgamiento de la primera autorización y devuelve a la Junta la autorización que se repone.
