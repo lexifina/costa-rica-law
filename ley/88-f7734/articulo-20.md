@@ -1,0 +1,1 @@
+Art. 20.—No se ejecutarán directamente por los Agentes del Gobierno otros trabajos que los de mera conservación de las carreteras, edificios públicos y obras de arte, y todos los trabajos nuevos cuyo costo sea menor de quinientos pesos.

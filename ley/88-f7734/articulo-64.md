@@ -1,0 +1,1 @@
+Art, 64.—El Jefe del taller formará las planillas de pago de sus empleados y las entregará cada semana Ilevará nota de todas las obras ejecutadas en el taller con especificación de su naturaleza, calidad y valor, y dará cuenta mensualmente al Ingeniero de Trabajos.

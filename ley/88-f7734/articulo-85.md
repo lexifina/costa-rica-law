@@ -1,0 +1,1 @@
+Art 85. No podrá salir material del Almacén sino á virtud de orden firmada por el Ingeniero, la que constituye el descargo del Jefe del Depósito. -Estas órdenes se expedirán en libros talonarios, para que siempre quede contraste en el talón, de los materiales entregados.

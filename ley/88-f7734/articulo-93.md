@@ -1,0 +1,1 @@
+Art. 93. -El Contador será responsable de todos los valores y efectos que maneja. Será nombrado y removido libremente por la Secretaría de Fomento, y no entrará á ejercer sus funciones mientras no haya garantizado su administración con fianza ó hipoteca por una suma igual al sueldo de dos años.

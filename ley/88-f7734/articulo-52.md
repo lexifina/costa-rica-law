@@ -1,0 +1,1 @@
+Art. 52.—El Conductor de Trabajos llevará un contraste del libro de los Maestros de Obras y se asegurara de que todos los obreros estén presentes en el trabajo. Indicara por un informe semanal al Ingeniero de Trabajos el resultado de sus inspecciones, los trabajos por hacer, los que se hayan ejecutado y el monto total de gastos hechos durante la semana.

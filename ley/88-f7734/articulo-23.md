@@ -1,0 +1,1 @@
+Art. 23. —Dará cuenta del resultado de su inspección y de los trabajos ejecutados, al ayudante, cuando pase éste en visita, é inmediatamente, cuando haya en el camino ó en las obras de arte, desperfectos de urgente reparación.

@@ -1,0 +1,1 @@
+Art. 35. —Hará el pago semanal de las cuadrillas de su sección a cada peón que se presente en persona: y sólo podrá entregar el jornal a quien no sea el interesado, cuando éste se presente á retirarlo con orden escrita del que lo sea.

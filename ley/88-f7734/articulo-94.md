@@ -1,0 +1,1 @@
+Art. 94.—El Tenedor de Libros, con los datos suministrados por el Contador, que constarán siempre en documentos firmados por él, llevará los libros de la Dirección General de Obras Públicas, por el sistema de partida doble. Cada mes hará un balance de prueba que presentará al Director General.
