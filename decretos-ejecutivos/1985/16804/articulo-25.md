@@ -1,0 +1,2 @@
+Artículo 25.—El incumplimiento de alguna de las disposiciones contempladas en el presente decreto, así como de otras disposiciones jurídicas que rigen la materia, será motivo para que el Ministerio de Agricultura y Ganadería, cancele administrativamente el permiso, sin que al permisionario le asista derecho de indemnización alguna, por parte del Estado.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 18792 del 9 de enero de 1989)
