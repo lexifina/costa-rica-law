@@ -16,3 +16,4 @@ Disposiciones sobre las Reservas Técnicas a la actividad aseguradora del Instit
 | 1 | 1971-07-16 | la propia norma |
 | 2 | 1977-11-04 | Decreto Ejecutivo 7662 (1977-11-04) |
 | 3 | 1980-11-25 | Decreto Ejecutivo 12066 (1980-11-25) |
+| 4 | 2003-10-27 | Decreto Ejecutivo 31773 (2003-10-27) |
