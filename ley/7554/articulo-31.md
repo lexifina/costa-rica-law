@@ -1,5 +1,1 @@
-ARTICULO 31.- Desarrollo urbanístico
-Para lo dispuesto en el artículo 29 anterior, se promoverá el
-desarrollo y el reordenamiento de las ciudades, mediante el uso intensivo
-del espacio urbano, con el fin de liberar y conservar recursos para otros
-usos o para la expansión residencial futura.
+Artículo 31.- Desarrollo urbanístico. Para lo dispuesto en el artículo 29 anterior, se promoverá el desarrollo y el reordenamiento de las ciudades, mediante el uso intensivo del espacio urbano, con el fin de liberar y conservar recursos para otros usos o para la expansión residencial futura.

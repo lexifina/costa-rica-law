@@ -1,5 +1,1 @@
-ARTICULO 38.- Reducción de las áreas silvestres protegidas
-La superficie de las áreas silvestres protegidas, patrimonio natural
-del Estado, cualquiera sea su categoría de manejo, sólo podrá reducirse
-por Ley de la República, después de realizar los estudios técnicos que
-justifiquen esta medida.
+Artículo 38.- Reducción de las áreas silvestres protegidas. La superficie de las áreas silvestres protegidas, patrimonio natural del Estado, cualquiera sea su categoría de manejo, sólo podrá reducirse por Ley de la República, después de realizar los estudios técnicos que justifiquen esta medida.

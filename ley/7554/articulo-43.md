@@ -1,4 +1,1 @@
-ARTICULO 43.- Obras e infraestructura
-Las obras o la infraestructura se construirán de manera que no dañen
-los ecosistemas citados en los artículos 51 y 52 de esta ley. De existir
-posible daño, deberá realizarse una evaluación de impacto ambiental.
+Artículo 43.- Obras e infraestructura. Las obras o la infraestructura se construirán de manera que no dañen los ecosistemas citados en los artículos 51 y 52 de esta ley. De existir posible daño, deberá realizarse una evaluación de impacto ambiental.

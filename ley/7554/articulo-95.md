@@ -1,22 +1,5 @@
-ARTICULO 95.- Administración y supervisión del Fondo
-Las sumas recaudadas serán remitidas a la caja única del Estado. El
-Ministerio del Ambiente y Energía, por medio de la Secretaría Técnica
-Nacional Ambiental, deberá presentar anualmente, al Ministerio de
-Hacienda, el anteproyecto de presupuesto de esos recursos, para cumplir
-con la programación de gastos corrientes de capital y objetivos fijados en
-esta ley.
-En forma trimestral, el Ministerio de Hacienda realizará las
-transferencias o los desembolsos de la totalidad de los recursos
-recaudados al Fondo Nacional Ambiental.
-En caso de incumplimiento de lo dispuesto en el párrafo precedente,
-el Ministerio del Ambiente y Energía, por medio de la Secretaría Técnica
-Nacional Ambiental, requerirá al Tesorero Nacional o, en su defecto, a su
-superior, para que cumpla con esta disposición. De no proceder, responderá
-personalmente y le será aplicable lo dispuesto en el artículo 330 del
-Código Penal.
-Los ingresos que, según dispone esta ley, forman parte del Fondo
-Nacional Ambiental, serán depositados en un fondo patrimonial del Sistema
-Bancario Nacional.
-Para cumplir con las funciones señaladas en esta ley, ese Ministerio,
-mediante la Secretaría Técnica Nacional Ambiental, podrá suscribir los
-contratos de administración que requiera.
+Artículo 95.- Administración y supervisión del Fondo. Las sumas recaudadas serán remitidas a la caja única del Estado. El Ministerio del Ambiente y Energía, por medio de la Secretaría Técnica Nacional Ambiental, deberá presentar anualmente, al Ministerio de Hacienda, el anteproyecto de presupuesto de esos recursos, para cumplir con la programación de gastos corrientes de capital y objetivos fijados en esta ley.
+En forma trimestral, el Ministerio de Hacienda realizará las transferencias o los desembolsos de la totalidad de los recursos recaudados al Fondo Nacional Ambiental.
+En caso de incumplimiento de lo dispuesto en el párrafo precedente, el Ministerio del Ambiente y Energía, por medio de la Secretaría Técnica Nacional Ambiental, requerirá al Tesorero Nacional o, en su defecto, a su superior, para que cumpla con esta disposición. De no proceder, responderá personalmente y le será aplicable lo dispuesto en el artículo 330 del Código Penal.
+Los ingresos que, según dispone esta ley, forman parte del Fondo Nacional Ambiental, serán depositados en un fondo patrimonial del Sistema Bancario Nacional.
+Para cumplir con las funciones señaladas en esta ley, ese Ministerio, mediante la Secretaría Técnica Nacional Ambiental, podrá suscribir los contratos de administración que requiera.

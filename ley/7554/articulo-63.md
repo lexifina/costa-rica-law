@@ -1,6 +1,1 @@
-ARTICULO 63.- Prevención y control del deterioro de la atmósfera
-Para evitar y controlar el deterioro atmosférico, el Poder Ejecutivo,
-previa consulta con los organismos representativos del sector productivo,
-emitirá las normas técnicas correspondientes y exigirá la instalación y
-operación de sistemas y equipos adecuados para prevenir, disminuir y
-controlar las emisiones que sobrepasen los límites permisibles.
+Artículo 63.- Prevención y control del deterioro de la atmósfera. Para evitar y controlar el deterioro atmosférico, el Poder Ejecutivo, previa consulta con los organismos representativos del sector productivo, emitirá las normas técnicas correspondientes y exigirá la instalación y operación de sistemas y equipos adecuados para prevenir, disminuir y controlar las emisiones que sobrepasen los límites permisibles.
