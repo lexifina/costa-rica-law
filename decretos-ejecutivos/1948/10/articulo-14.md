@@ -1,0 +1,1 @@
+Artículo 14.-La Oficina del Café de Costa Rica, sufragará Ios gastos que demande el cumplimiento de la presente ley, y prestará a Ios funcionarios encargados de su vigilancia, el asesoramiento y la ayuda necesaria para el mejor resultado de su cometido.

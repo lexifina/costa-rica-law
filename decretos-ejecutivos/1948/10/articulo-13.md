@@ -1,0 +1,1 @@
+Artículo 13.-Créase un Registro de Fabricantes de Café Tostado y Molido, en el que deberán inscribirse todos los tostadores de la República y el cual será llevado por la Oficina del Café, de acuerdo con los requisitos y condiciones que esta misma Oficina establezca y sin cuya inscripción no podrán ni tostar ni vender café.

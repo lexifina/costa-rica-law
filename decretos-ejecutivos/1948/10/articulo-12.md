@@ -1,0 +1,1 @@
+Artículo 12.-Se tiene por otorgada prenda industrial de la maquinaria instalada en las fábricas tostadoras de café, para responder al pago de las multas que le fueren impuestas por adulteración de café al fabricante que hiciere uso de esa maquinaria.

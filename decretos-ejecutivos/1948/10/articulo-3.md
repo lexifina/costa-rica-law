@@ -1,0 +1,1 @@
+Artículo 3°-Se establecerá un cuerpo de Inspectores, quienes serán nombrados por la Junta de la Oficina del Café, en número que será determinado por la Oficina, que estarán a la orden de ésta y que tendrán jurisdicción en toda la República. Velarán por el cumplimiento del presente decreto las autoridades de policía, Resguardos Fiscales e Inspectores de Sanidad.

@@ -1,0 +1,1 @@
+Artículo 4°-Sobre los Inspectores, tendrá también autoridad la Agencia Principal de Policía Específica del Café, la que por medio del Director de la Oficina, podrá ordenarles cualquier inspección, así como hacerse acompañar de los mismos en cualquier inspección ocular, diligencia o investigación.

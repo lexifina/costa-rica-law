@@ -1,0 +1,1 @@
+Artículo 2°-La infracción a lo dispuesto por el artículo primero de este Reglamento, será sancionada cada vez, con una multa de cincuenta colones, que impondrá el Inspector y que será pagada en la Agencia Principal de Policía Específica del Café, que la depositará a la orden de la Oficina del café.

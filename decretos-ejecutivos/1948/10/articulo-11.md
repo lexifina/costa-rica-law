@@ -1,0 +1,1 @@
+Artículo 11.-El fabricante de café tostado y molido que fuere penado dos veces, tendrá que solicitar permiso de la Oficina del Café, cada vez que desee tostar y moler café. El Director de la Oficina, si lo creyere necesario, enviará un Inspector a presenciar el tueste y molida del café.

@@ -1,0 +1,1 @@
+Artículo 10.- Todo fabricante, comerciante o expendedor de café tostado y molido estará en la obligación de entregar las muestras que soliciten por parte de los Inspectores nombrados por la Junta de la Oficina del Café y su renuencia será considerada como prueba de culpabilidad y será penada conforme a las penas establecidas para la adulteración de café.

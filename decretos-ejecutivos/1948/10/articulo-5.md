@@ -1,0 +1,6 @@
+Artículo 5°-Serán atribuciones y obligaciones de cada Inspector:
+a) Presenciar en cada fábrica de su jurisdicción, el tueste, molida y empacada del café, siempre que lo considere oportuno y con autorización del Director de la Oficina del Café.
+b) Recoger muestras de café en lugares o establecimientos donde se expenda o fabrique, las cuales deberán hacerse en tres paquetes distintos: la primera muestra servirá para el análisis del Químico Oficial de la Oficina del Café. La segunda muestra quedará depositada en la Oficina misma y la tercera la conservará el expendedor a quien se le decomise.
+c) Estas muestras deberán venir en bolsas debidamente cerradas con el marbete que establezca la Oficina del Café. El cierre se verificará en presencia de los interesados, firmadas por el dueño o administrador o expendedor del establecimiento, si las quisieren firmar y por el Inspector que las recogiere. Deberá indicarse, además, fecha en que se recoge y en su caso, indicación del nombre del fabricante o comerciante a quien le hubiese sido comprado el café.
+d) Cada muestra deberá enviarse a la Oficina del Café, a mas tardar al día siguiente de haber sido recogida.
+e) Cualquier otra que indique la Dirección de la Oficina del Café.

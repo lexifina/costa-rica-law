@@ -1,0 +1,1 @@
+Artículo 8°-Las muestras depositadas en la Oficina del Café servirán para realizar cualquier cotejo cuando así lo creyese conveniente la autoridad competente y se procederá conforme al artículo anterior.
