@@ -1,0 +1,1 @@
+Artículo 39.—Al dar por discutido un asunto, el (la) Presidente (a) del Concejo, dará un término prudencial, para recibir la votación correspondiente; procurando que ésta se realice cuando todos los (las) Regidores (as) presentes estén ocupando sus curules.

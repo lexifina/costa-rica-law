@@ -1,0 +1,1 @@
+Artículo 10.—Si en el curso de una sesión se rompiera el quórum, el (la) Presidente (a) instará a los Regidores (as) que se hubieren retirado sin permiso, para que ocupen de nuevo sus curules. Transcurridos diez minutos sin que se pueda establecer el quórum, se levantará la sesión.

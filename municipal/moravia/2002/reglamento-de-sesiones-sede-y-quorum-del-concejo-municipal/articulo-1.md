@@ -1,0 +1,2 @@
+El Concejo Municipal en sesión ordinaria veinticinco del veintiuno de octubre del dos mil dos, aprueba el Reglamento de sesiones del Concejo Municipal de Moravia.
+Artículo 1º—El Concejo Municipal del Cantón de Moravia, en uso de las atribuciones que le confiere la Ley Nº 7794, Código Municipal, artículos 4º, inciso a), 13, incisos c) d), 43 y 50 dicta el presente Reglamento que regulará los debates y el uso de la palabra durante las Sesiones Ordinarias y Extraordinarias que celebre este Cuerpo Deliberativo en el recinto municipal o fuera de éste, cuando así fuere acordado.

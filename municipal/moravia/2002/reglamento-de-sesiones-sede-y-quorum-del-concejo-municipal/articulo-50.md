@@ -1,0 +1,1 @@
+Artículo 50.—Cuando el objeto de la audiencia fuere un asunto de competencia del señor (a) Alcalde, (Alcaldesa) el (la) Presidente (a) ordenará a la Secretaria (o) remitir el memorial presentado a dicho(a) funcionario (a) , para que éste le de el trámite correspondiente. La (El) Secretaria (o) lo hará del conocimientos de los (las) interesados (as).

@@ -1,0 +1,1 @@
+Artículo 27.—Quien funja como Secretario (a) del Concejo, llevará el control del tiempo autorizado en cada situación, y cuando se haya vencido, se lo hará saber al (la) Presidente (a), quien sonando el timbre o campañilla le indicará al (la) exponente que el tiempo ha llegado a su fin.

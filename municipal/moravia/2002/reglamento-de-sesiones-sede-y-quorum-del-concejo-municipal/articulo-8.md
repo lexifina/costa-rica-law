@@ -1,0 +1,1 @@
+Artículo 8º—El quórum para las sesiones ordinarias o extraordinarias será de cuatro Regidores (as) Propietarios (as). Ese mismo número deberá estar presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.
