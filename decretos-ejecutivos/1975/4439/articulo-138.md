@@ -1,0 +1,7 @@
+Faros de Aeródromos
+Artículo 138.-Todo-aeródromo destinado a usarse de noche estará provisto de un faro de aeródromo, salvo en circunstancias especiales en que la autoridad competente, teniendo en cuenta las necesidades del tránsito aéreo que utilice, el aeródromo y la visibilidad que sus características en relación con sus alrededores, conferida por otras ayudas visuales, considere innecesaria su instalación para localizar e identificar el aeródromo.
+Los faro de aeródromo estarán situados en el mismo aeródromo o adyacentes a él. El faro estará emplazado de modo que en las direcciones importantes no se interponga ningún obstáculo ni deslumbre al piloto durante la aproximación.
+Características
+Los faros de aeródromo darán, ya sea destellos de color, alternados con destellos blancos, o destellos blancos solamente. La frecuencia del total de destellos será de 12 a 30 por minuto.
+Cuando se usan destellos de color en los faros instalados en aeródromos terrestres, el color será verde aeronáutico. Cuando se trate de un aeródromo mixto, terrestre y acuático, si se usan destellos de color, tendrán las características colorimétricas correspondientes a la sección del aeródromo que se designe como sección principal.
+La luz del faro se verá en todos los ángulos del azimut. La distribución vertical de la luz se extenderá hacia arriba, desde una elevación de un grado como máximo, hasta una elevación que la autoridad competente determine que es suficiente para dar orientación en la máxima elevación en que se trate de utilizar el faro.

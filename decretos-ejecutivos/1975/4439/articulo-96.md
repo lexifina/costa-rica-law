@@ -1,0 +1,1 @@
+Artículo 96.-Los obstáculos que deben eliminarse de acuerdo con el artículo 83 y que se hallen comprendidos en la distancia de 3.000 m., al borde interior del área de aproximación, si no se eliminan, se señalarán, excepto cuando en opinión de la autoridad competente, tales obstáculos estén apantallados por obstáculos inamovibles señalados.

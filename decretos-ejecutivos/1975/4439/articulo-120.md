@@ -1,0 +1,1 @@
+Artículo 120.-Las luces de obstáculos de los vehículos y otros objetos susceptibles de movimiento cuyo señalamiento se prescribe en el artículo 98, deberán ser luces de destellos, de color rojo o preferiblemente amarillo de 40 candelas de luz roja o amarilla.

@@ -1,0 +1,1 @@
+Artículo 205.-La utilización renumerada de aeródromo o aeropuertos particulares, así como de cualquiera de sus servicios, estará sujeta a las tarifas que apruebe previamente el Consejo Técnico de Aviación Civil.

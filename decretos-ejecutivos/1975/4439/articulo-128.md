@@ -1,0 +1,2 @@
+Superficies no Resistentes
+Artículo 128.-Cuando las márgenes laterales de las calles de rodaje, de los apartaderos de espera, de la plataformas y otras superficies no resistentes no puedan distinguirse fácilmente de las aptas para soportar cargas y cuyo uso de las aeronaves pudiera producir daños, su límite con las superficies aptas para soportar cargas, se indicará mediante señales de faja lateral de calle de rodaje.

@@ -1,0 +1,1 @@
+Artículo 2°-Para el funcionamiento administrativo y operacional, cada aeródromo contará con su reglamento interno promulgado por el Poder Ejecutivo de acuerdo a las particularidades del servicio a brindar.

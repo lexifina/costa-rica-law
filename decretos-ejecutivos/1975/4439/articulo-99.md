@@ -1,0 +1,2 @@
+Señalamiento Diurno de Obstáculos
+Artículo 99.-Todo obstáculo que constituya un peligro para las operaciones aéreas diurnas o nocturnas deberán señalarse de acuerdo a las normas internacionales o las disposiciones emanadas de la autoridad aeronáutica. No será necesario señalar los obstáculos que por su forma, tamaño o color sean suficientemente visibles; no tendrán que señalarse aquellas partes de los obstáculos que estén ocultas por objetos circundantes, pero éstos sí se señalarán.

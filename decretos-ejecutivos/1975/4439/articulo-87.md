@@ -1,0 +1,1 @@
+Artículo 87.-Los objetos que a causa de su función deban conservarse dentro de las franjas, a fin de satisfacer requisitos de navegación aérea, debieran construirse y situarse de modo que el peligro se reduzca al mínimo.

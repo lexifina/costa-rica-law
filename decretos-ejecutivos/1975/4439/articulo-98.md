@@ -1,0 +1,1 @@
+Artículo 98.-Los vehículos que se encuentren en el área de movimiento de un .aeródromo, se considerarán como obstáculo y se señalarán; no obstante la autoridad competente podrá eximir de ellos al equipo de servicio de las aeronaves y a los vehículos que se utilicen solamente en área de la plataforma.

@@ -1,0 +1,1 @@
+Artículo 207.-En los casos a que se refieren los artículos anteriores, será gratuito el uso de los aeródromos o aeropuertos para aquellas aeronaves que señalen la Ley General de Aviación Civil y sus Reglamentos o que disponga por acuerdo firme, el Consejo Técnico de Aviación Civil.

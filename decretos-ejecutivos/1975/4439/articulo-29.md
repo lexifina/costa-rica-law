@@ -1,0 +1,2 @@
+Franjas
+Artículo 29.-Cada pista, incluyendo las zonas de parada si existieren, estará comprendida dentro de una franja. La superficie de la parte de la franja o con zona de parada estará a ras con la superficie de ésta o de la zona de parada. La superficie de la franja se preparará hasta una distancia, de 30 m, para evitar un borde vivo en el extremo de la pista y protegerla de la erosión producida por el chorro de los reactores.

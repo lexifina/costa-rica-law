@@ -1,0 +1,1 @@
+Artículo 106.-Las balizas utilizadas para señalar alambres elevados debieran colocarse con una separación máxima de 40 m., entre sí, con su parte superior a un nivel no inferior al del alambre más alto en el punto señalado.

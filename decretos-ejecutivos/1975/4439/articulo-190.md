@@ -1,0 +1,1 @@
+Artículo 190.-El propietario o administrador de un aeródromo particular o privado deberá acatar lo establecido en este reglamento, al igual que las disposiciones vigentes en la Ley General de Aviación Civil.

@@ -1,0 +1,2 @@
+Artículo 187.-Los propietarios de aeródromos particulares o privados en que no opere el Estado, podrán establecer el cobro de derechos de aterrizaje con tarifas aprobadas por el Consejo Técnico de Aviación Civil. Sus rentas serán dedicadas al mantenimiento y operación de los mismos aeródromos bajo las normas técnicas que dicte la autoridad competente.
+El Estado puede hacer trabajos y obras en los aeródromos particulares o privados destinados a uso público, o con servicio de itinerarios comerciales; trabajos y obras que continuarán siendo propiedad del Estado.

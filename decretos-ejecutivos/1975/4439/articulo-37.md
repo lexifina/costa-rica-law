@@ -1,0 +1,1 @@
+Artículo 37.-Los cambios de pendiente en la porción de una franja que haya de nivelarse, deberán ser lo más graduales posible, debiendo evitarse los cambios bruscos o las inversiones repentinas de pendiente.

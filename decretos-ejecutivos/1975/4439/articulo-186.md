@@ -1,0 +1,1 @@
+Artículo 186.-Los propietarios u operadores de aeródromos particulares de servicio de transporte aéreo y comerciales, tienen derecho a que las empresas u operadores de aeródromos particulares de servicio público, les den en arrendamiento las áreas de terreno que sean necesarias para la instalación de sus servicios.

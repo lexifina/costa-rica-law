@@ -1,0 +1,1 @@
+Artículo 111.-Las banderas usadas para señalar obstáculos serán totalmente de color anaranjado o de una combinación de secciones triangulares de dos colores, uno anaranjado y el otro blanco, o uno rojo y el otro blanco; pero si estos colores se confunden con el fondo, deberá usarse otros que ofrezcan mayor contraste.

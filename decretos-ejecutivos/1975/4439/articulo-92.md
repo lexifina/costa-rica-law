@@ -1,0 +1,1 @@
+Artículo 92.-Se prohíbe toda construcción que sobresalga de una superficie de aproximación, dentro de la distancia de 3.000 m., al borde interior del área de aproximación, o por encima de una superficie de transición, excepto cuando en opinión de la autoridad competente, la nueva construcción estaría apantallada por un obstáculo existente e inamovible.

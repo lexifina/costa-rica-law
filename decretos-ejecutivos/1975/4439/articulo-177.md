@@ -1,0 +1,3 @@
+Helipuertos
+Artículo 177.-Pueden ser terrestres o acuáticos, en este último caso será denominado hidrohelipuerto. Los terrestres pueden ser: a nivel del suelo o elevados.
+Para la operación de helipuertos, la autoridad competente de la Dirección General de Aviación Civil determinará los requisitos y especificaciones técnicas necesarias a observar, de acuerdo al tipo de helicóptero que vaya a utilizarse de manera muy especial controlará aquellos helipuertos elevados que se pretendan construir en edificios públicos o privados para que éstos reúnan todos los requisitos de seguridad, garantía y eficiencia.

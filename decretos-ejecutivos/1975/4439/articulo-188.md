@@ -1,0 +1,1 @@
+Artículo 188.-El propietario o administrador de un aeródromo particular o privado deberá conservar todas las obras, instalaciones y equipo de su propiedad en condiciones de buen estado, seguridad y eficiencia de acuerdo a las normas establecidas por este reglamento.

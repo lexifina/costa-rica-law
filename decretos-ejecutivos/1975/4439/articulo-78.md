@@ -1,0 +1,3 @@
+Artículo 78.-La pendiente o pendientes de la superficie de aproximación, medida sobre la horizontal en el plano vertical que contenga el eje de la pista, serán las que se especifican en el cuadro N° 2 indicado en el artículo 76, excepto en el caso de un área de aproximación por instrumentos, en la que la superficie de aproximación será horizontal a partir de lo que resulte mayor de:
+a) El punto en el que la pendiente de 2,5 por ciento intersecta un plano horizontal a 150m por encima de la elevación del umbral ; o
+b) el plano horizontal que pasa por la parte superior de cualquier objeto que determine la altitud mínima en la aproximación final.

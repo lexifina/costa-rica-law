@@ -1,0 +1,1 @@
+Artículo 181.-EI permiso de operación de un aeródromo será inscrito en la Dirección General de Aviación Civil y su registro de habilitación estará a cargo del Departamento de Ingeniería de Aeródromos que lo actualizará por lo menos una vez cada año.

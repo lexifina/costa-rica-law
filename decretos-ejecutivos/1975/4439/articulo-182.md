@@ -1,0 +1,1 @@
+Artículo 182.-El permiso de operación de los aeródromos y otras instalaciones aeronáuticas podrá ser revocado o suspendido en cualquier momento por motivos especiales de orden público o de interés general de navegación o cuando dejen de reunir el mínimo de requisitos exigidos para clasificación.

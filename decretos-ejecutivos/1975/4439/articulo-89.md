@@ -1,0 +1,1 @@
+Artículo 89.-Los objetos que debido a su función deban mantenerse dentro de la zona libre de obstáculos con el fin de satisfacer requisitos de navegación aérea debieran situarse de tal modo que el peligro se reduzca al mínimo.

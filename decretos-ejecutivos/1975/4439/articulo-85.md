@@ -1,0 +1,1 @@
+Artículo 85.-Se considerará como obstáculo, y se eliminará todo lo que la autoridad competente, después de realizar un estudio aeronáutico, opine que pueda constituir un peligro para las aeronaves que se encuentren en el área de movimiento, o en vuelo dentro de los límites de las superficies horizontal, interna y cónica.

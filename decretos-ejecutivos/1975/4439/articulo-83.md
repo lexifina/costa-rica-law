@@ -1,0 +1,1 @@
+Artículo 83.-Todo objeto o parte de los mismos que sobresalgan por encima de una superficie de aproximación o de transición, debieran considerarse como obstáculos y eliminarse, excepto cuando en opinión de la autoridad competente, un obstáculo esté apantallado por uno existente e inamovible.

@@ -1,0 +1,1 @@
+Artículo 32.-La franja que comprenda una pista de aproximación por instrumentos que haya de usarse en condiciones de poca visibilidad o base baja de nubes, deberá extenderse hasta una distancia de por lo menos 150 m, a cada lado del eje de la pista o zona de parada, lo largo de toda la franja.

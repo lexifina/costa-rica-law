@@ -1,0 +1,1 @@
+Artículo 8°-El punto de referencia del aeródromo estará situado tan cerca como sea posible del centro geométrico del área de aterrizaje y de conformidad en lo dispuesto en el artículo 7°, tomando en consideración la posibilidad de que el aeródromo sea ampliado posteriormente.

@@ -1,0 +1,8 @@
+Balizas, Dispositivos de las Luces y Estructuras de Soporte
+Características
+Artículo 140.-Balizas: Las balizas inmediatamente adyacentes al área de movimiento serán de poco peso y se montarán frangiblemente. Su altura será lo suficientemente baja para preservar la distancia de guarda respecto a las hélices y las barquillas de los motores de las aeronaves a reacción.
+Luces de aproximación: Los dispositivos de montaje de las luces de aproximación elevadas, situadas en las zonas de parada o en las zonas libres de obstáculos, serán de poco peso y estarán frangiblemente montadas.
+En la mayor medida posible, todos los demás dispositivos de las luces de aproximación elevadas se mantendrán tan bajas como sea factible y compatible con su finalidad de proporcionar la guía necesaria.
+Cuando los dispositivos de las luces de aproximación o las estructuras que las soporten no se destaquen suficientemente por sí mismos, se marcarán adecuadamente.
+Luces elevadas: Las luces elevadas de pista, de umbral, de calle de rodaje y de zona de parada, deberán ser aprobadas por la Dirección General de Aviación Civil; serán de poco peso y estarán frangiblemente montadas. Su altura será lo suficientemente baja de manera que se tenga una distancia de guarda respecto a las hélices y las barquillas de los motores de las aeronaves a reacción.
+Luces de superficie: Los dispositivos de las luces empotradas en la superficie de las pistas, son las de parada, calles de rodaje y plataformas, estarán diseñados y dispuestos de forma que puedan soportar que las ruedas de las aeronaves pasen sobre ellos sin que se produzcan daños.

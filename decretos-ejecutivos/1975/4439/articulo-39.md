@@ -1,0 +1,1 @@
+Artículo 39:-Las pendientes transversales en cualquier parte de una franja más allá de la parte que ha de nivelarse para tener en cuenta las aeronaves que, accidentalmente se salgan de pista, no deben exceder de una pendiente ascendente del 5 por ciento, medida en sentido de alejamiento de la pista.

@@ -1,0 +1,6 @@
+Artículo 74.-En caso de una trayectoria de despegue recta, la pendiente de la superficie de subida en el despegue, medida sobre la horizontal en el plano vertical que contenga el eje de la pista, no será mayor que la especificada en el cuadro N° 1 indicado en el artículo 72.
+Nota 1: Las características operacionales de determinado tipo de aeronaves pueden hacer conveniente la reducción de la pendiente:
+a) Cuando se hayan de tener en cuenta condiciones críticas de operación;
+b) Cuando se tenga que utilizar pistas que 110 sean la principal de despegue, sin poder contar con la ventaja de la componente del viento frontal.
+Si se reducen las pendientes prescritas, es conveniente efectuar el correspondiente ajuste en la longitud de área de subida en el despegue, para proporcionar protección hasta una altura de 300 m.
+Nota 2: Cuando las condiciones locales sean muy distintas a las condiciones de la atmosfera tipo al nivel del mar, puede ser aconsejable reducir la pendiente. La importancia de esta reducción depende de la diferencia entre las condiciones locales y las condiciones de la atmósfera tipo al nivel del mar, así como de las características de performance y de los requisitos de operación de los aviones a que se destine la pista.

@@ -1,0 +1,1 @@
+Artículo 100.-Cuando se use una luz elevada dentro del área de movimiento, se hará destacar de día señalándola apropiadamente, y su construcción será tal que no constituya un peligro para las aeronaves.

@@ -1,0 +1,1 @@
+Artículos 84.-Los objetos que no sobresalgan de la superficie de aproximación pero que sin embargo puedan afectar adversamente el emplazamiento o al funcionamiento óptimo de las ayudas visuales o las no visuales, debieran en lo posible eliminarse.

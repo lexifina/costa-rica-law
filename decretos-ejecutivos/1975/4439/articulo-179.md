@@ -1,0 +1,1 @@
+Artículo 179.-Las instalaciones situadas dentro de las áreas de aeródromos, se consideran parte integrante de los mismos y su operación se autoriza conjuntamente con el permiso de operación que tenga el aeródromo.

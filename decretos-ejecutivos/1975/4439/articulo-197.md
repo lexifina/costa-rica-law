@@ -1,0 +1,1 @@
+Artículo 197.-La autoridad aeronáutica podrá requerir por medio del Departamento de Asuntos Legales del Ministerio de Obras Públicas y Transportes la demolición o supresión de las construcciones, plantaciones u obras que se hicieren en contravención a lo dispuesto en este capítulo, sin que ello dé lugar a indemnización.

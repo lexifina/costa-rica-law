@@ -1,0 +1,2 @@
+Artículo 117.-En caso de obstáculos de gran extensión o estrechamente agrupados entre sí, se colocarán luces superiores en el punto o borde más alto respecto a la superficie de señalamiento de los mismos, a intervalos no superiores a 45 m., a fin de indicar la configuración general y el tamaño del obstáculo. Si hay dos o más bordes de la misma altura se señalará el que se encuentre más cerca del área de aterrizaje.
+Nota: Los obstáculos consistentes en áreas edificadas o cubiertas de árboles se consideran como obstáculos de gran extensión.

@@ -1,0 +1,1 @@
+Artículo 175.-En caso de construcciones de nuevos aeródromos que no puedan cumplir con parte de estos requisitos, la autoridad competente podrá autorizar su construcción, previo estudio y justificación.

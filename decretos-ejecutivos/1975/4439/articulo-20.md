@@ -1,0 +1,4 @@
+Longitud verdadera de las Pistas
+Artículo 20.-Para obtener la longitud verdadera de pista, deberá aumentarse la longitud básica a razón de 7% por cada 300 m, de elevación sobre el nivel medio del mar; luego, aumentar la longitud resultante en 1% por cada grado centígrado que la temperatura de referencia del aeródromo exceda a la temperatura de la atmósfera tipo correspondiente a esa elevación. Esta longitud resultante, para el despegue, cuando la letra de clasificación técnica sea A, B, o C, debe a su vez aumentarse a razón de un 10% por cada 1% de pendiente longitudinal de pista, resultante de dividir la diferencia entre la elevación máxima y la mínima a lo largo del eje de la pista para la longitud de ésta; cuya resultante no deberá exceder del 1% cuando la letra de clasificación técnica sea D, E, o F.
+Ancho de Pistas
+El ancho de cada pista, de acuerdo a la letra de clasificación técnica, se establece en el Capítulo de Construcción de Aeródromos.
