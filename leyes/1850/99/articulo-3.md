@@ -1,0 +1,1 @@
+Art. 3. En la misma época, y cuando se estime conveniente, la Intendencia general librara sus ordenes à las aduanas de los puertos y fronteras para que se permita la introduccion de tabaco extrangero, pagando por derecho de alcabala, si fuere en rama dos reales por libra, y tres reales si labrado en puros, cigarros, rapé ó polvos
