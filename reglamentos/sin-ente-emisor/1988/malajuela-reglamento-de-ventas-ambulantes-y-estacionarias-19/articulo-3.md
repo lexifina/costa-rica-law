@@ -1,1 +1,0 @@
-Artículo 3°—La licencia deberá ser solicitada por escrito en papel sellado de tres colones, con veinte colones en timbres municipales, acompañado del estudio socioeconómico del solicitante realizado por la Comisión de Vendedores Ambulantes y Estacionarios Municipales.

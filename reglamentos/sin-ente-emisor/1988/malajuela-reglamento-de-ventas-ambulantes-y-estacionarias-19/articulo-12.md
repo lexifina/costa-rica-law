@@ -1,1 +1,0 @@
-Artículo 12.—Únicamente se permitirá ejercer la actividad en los puestos de los siguientes productos: frutas nacionales, hortalizas y verduras, golosinas, artesanía nacional, juguetes nacionales, periódicos y revistas, lotería y chances, helados, flores, alimentos rápidos.

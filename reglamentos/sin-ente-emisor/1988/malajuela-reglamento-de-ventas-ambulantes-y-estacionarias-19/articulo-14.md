@@ -1,1 +1,0 @@
-Artículo 14.—En los puestos que expenden alimentos de consumo directo se exigirá la presentación del certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar un carné de salud y vestimenta adecuada a las leyes y reglamentos sanitarios.
