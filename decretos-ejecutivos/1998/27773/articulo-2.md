@@ -1,0 +1,1 @@
+Artículo 2º—Sólo excepcionalmente el Ministerio de Salud podrá usar el insecticida DDT en existencia, en áreas definidas y cuando no disponga de un sustituto, en casos de emergencia, para interrumpir la transmisión de la malaria.
