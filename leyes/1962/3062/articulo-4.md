@@ -1,0 +1,1 @@
+Artículo 4°-Cada quintal de 46 kilos de café, adquirido en la Bolsa del Café, pagará un impuesto, a cargo del comprador de ¢2.00. Este impuesto lo destinará la Oficina del Café a cubrir los gastos administrativos que demande el servicio de subasta.

@@ -1,0 +1,1 @@
+Transitorio l. -Además de los impuestos anteriormente establecidos y por el término de dos años contados a partir de la vigencia de la presente ley, cada quintal de 46 kilos de café que se exporte, pagará un impuesto adicional de U. S. A. $ 0.05, directamente a la Oficina del Café, la cual utilizará su producto, conforme lo dispone el artículo 4° de esta ley.

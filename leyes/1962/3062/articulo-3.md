@@ -1,0 +1,1 @@
+Artículo 3°-La Oficina del Café aplicará el producto de tal impuesto al pago de las obligaciones internacionales que el país haya contra ido o adquiera en el futuro, y a cubrir sus presupuestos ordinarios y extraordinarios.
