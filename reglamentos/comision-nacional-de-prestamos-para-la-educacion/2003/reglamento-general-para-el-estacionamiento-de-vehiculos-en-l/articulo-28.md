@@ -1,0 +1,1 @@
+Artículo 28.—Los oficiales del servicio de vigilancia llevarán un registro de entrada y salida de vehículos, donde al menos se indique el número de placa del vehículo, hora de entrada y hora de salida de éste. Dicho registro se llevará únicamente para los vehículos que ingresen al edificio anexo Este.

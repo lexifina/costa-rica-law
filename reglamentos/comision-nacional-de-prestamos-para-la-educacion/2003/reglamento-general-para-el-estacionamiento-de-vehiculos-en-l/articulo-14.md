@@ -1,0 +1,1 @@
+Artículo 14.—El ingreso es permitido a los señores miembros del Consejo Directivo, al Secretario Ejecutivo, al Auditor Interno, al Asesor Legal, a las Jefaturas de Departamento y a los funcionarios que utilicen los vehículos de uso administrativo de CONAPE.

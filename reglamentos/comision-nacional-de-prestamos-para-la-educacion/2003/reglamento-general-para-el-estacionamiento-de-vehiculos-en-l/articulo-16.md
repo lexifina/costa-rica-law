@@ -1,0 +1,1 @@
+Artículo 16.—Cuando algún funcionario, en cumplimiento de actividades institucionales requiera utilizar el área detallada en el Artículo 13, para ingresar o salir, el Jefe de la Sección Administrativa así lo consignará en la respectiva fórmula de Autorización de Salida de Vehículos.

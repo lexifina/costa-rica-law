@@ -1,0 +1,1 @@
+Artículo 6º—Queda entendido y aceptado por todos los funcionarios de CONAPE, que la zona de parqueo que ocuparán no les concede derecho alguno, por tratarse de una facilidad temporal y por lo tanto es un derecho de título en precario, de conformidad con el artículo 154 de la Ley General de Administración Pública.

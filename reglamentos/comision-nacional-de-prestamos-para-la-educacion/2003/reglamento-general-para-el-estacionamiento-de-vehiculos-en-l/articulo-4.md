@@ -1,0 +1,1 @@
+Artículo 4º—La Sección administrativa será la encargada de coordinar lo referente al uso del parqueo, sin embargo, no es una obligación de CONAPE dar la facilidad de estacionamiento a sus trabajadores, por lo que dará prioridad a los vehículos de la Institución.

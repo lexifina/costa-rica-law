@@ -1,0 +1,1 @@
+Artículo 10.—El horario en que se podrá hacer uso del parqueo será de las 7:00 horas a las 18:00 horas. Posteriormente a esta hora, la permanencia en el parqueo requerirá de una autorización expresa por parte de la Sección Administrativa.

@@ -1,0 +1,1 @@
+Artículo 30.—En caso de que CONAPE detecte que algún vehículo está haciendo uso del espacio del estacionamiento sin que sus ocupantes se encuentren en la Institución, dará aviso a las autoridades respectivas para que éstas procedan al retiro del vehículo y establezcan las sanciones que correspondan.

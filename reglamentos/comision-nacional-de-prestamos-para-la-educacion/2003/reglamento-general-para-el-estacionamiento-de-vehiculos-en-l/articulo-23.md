@@ -1,0 +1,1 @@
+Artículo 23.—El horario para el uso del estacionamiento será entre las ocho horas y las dieciséis horas con treinta minutos, en los días hábiles que los funcionarios de la Institución se encuentren laborando.

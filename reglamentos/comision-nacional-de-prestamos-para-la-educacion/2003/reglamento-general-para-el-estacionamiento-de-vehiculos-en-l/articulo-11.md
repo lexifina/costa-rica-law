@@ -1,0 +1,1 @@
+Artículo 11.—Queda entendido y aceptado que la facilidad que se dará para el uso de parqueo, es temporal, exclusiva y directa con los trabajadores de CONAPE para su uso personal, por lo que no podrán ceder, prestar, traspasar o comprometer en ninguna forma el uso del parqueo.

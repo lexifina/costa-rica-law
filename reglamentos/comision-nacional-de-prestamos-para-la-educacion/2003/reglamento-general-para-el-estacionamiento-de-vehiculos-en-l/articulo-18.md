@@ -1,0 +1,1 @@
+Artículo 18.—Los días en que sesiona el Consejo Directivo, el área de parqueo será utilizada por los vehículos particulares de los miembros del Consejo Directivo, los vehículos de uso discrecional y, eventualmente por aquellas personas que expresamente el Consejo Directivo hubiere invitado a la Sesión.

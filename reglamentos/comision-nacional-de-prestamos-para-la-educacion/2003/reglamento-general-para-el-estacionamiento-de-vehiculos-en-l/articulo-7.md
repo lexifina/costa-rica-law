@@ -1,0 +1,1 @@
+Artículo 7º—CONAPE no se hará responsable por daños de ninguna naturaleza, incluyendo robos o hurtos, que pudieren sufrir los vehículos de sus funcionarios cuando se encuentren estacionados en el área que se les facilite, ya sean causados por parte de funcionarios de la Institución, por terceros u otras causas naturales o fortuitas.

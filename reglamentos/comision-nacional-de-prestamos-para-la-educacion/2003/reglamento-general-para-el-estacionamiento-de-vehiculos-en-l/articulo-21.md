@@ -1,0 +1,1 @@
+Artículo 21.—Cuando la disponibilidad de espacio lo permita, CONAPE concederá facilidad de parqueo gratuito a sus visitantes. Para dicho fin se destinan espacios no exclusivos en las áreas de estacionamiento. CONAPE queda facultada para eliminar dicha facilidad, cuando así lo decida.

@@ -1,0 +1,1 @@
+Artículo 26.—La facilidad de estacionamiento es única y exclusiva para aquellas personas que efectúen trámites en la Institución, no pudiendo permanecer el vehículo estacionado si su conductor o acompañante no se encuentren en las instalaciones de CONAPE.

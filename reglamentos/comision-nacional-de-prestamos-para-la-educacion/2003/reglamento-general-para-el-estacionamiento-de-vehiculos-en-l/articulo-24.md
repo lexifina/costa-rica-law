@@ -1,0 +1,1 @@
+Artículo 24.—Los visitantes deberán estacionar correctamente sus vehículos en los espacios destinados para ese fin y quedan obligados a acatar en todos sus extremos lo que establece el presente Reglamento.

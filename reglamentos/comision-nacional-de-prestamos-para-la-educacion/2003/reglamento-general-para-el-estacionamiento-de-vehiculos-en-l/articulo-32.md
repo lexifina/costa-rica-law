@@ -1,0 +1,1 @@
+Artículo 32.—El conductor así como el vehículo que ingrese a los estacionamientos de la Institución, serán responsables por los daños que causare a las instalaciones, vehículos, funcionarios o terceras personas.

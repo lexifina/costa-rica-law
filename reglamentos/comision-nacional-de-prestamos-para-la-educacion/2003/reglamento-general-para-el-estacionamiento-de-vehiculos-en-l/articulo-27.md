@@ -1,0 +1,1 @@
+Artículo 27.—La Administración de los estacionamientos estará bajo la responsabilidad de la Secretaría Ejecutiva, quien podrá delegar funciones en la Jefatura de la Sección Administrativa de CONAPE. Esta Sección velará por su correcta utilización, de acuerdo con las reglas que dicte este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.—El área destinada al parqueo de los clientes de CONAPE será el espacio ubicado frente al Edificio Central más el área Anexa en el Sector Este, limitada por la malla metálica y los portones que marcan la división con el estacionamiento para vehículos propiedad de los funcionarios de CONAPE.

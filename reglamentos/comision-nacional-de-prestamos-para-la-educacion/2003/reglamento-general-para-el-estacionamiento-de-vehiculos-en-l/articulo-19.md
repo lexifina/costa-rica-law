@@ -1,0 +1,1 @@
+Artículo 19.—Durante los días en que sesiona el Consejo Directivo, los vehículos de uso administrativo se trasladarán al área facilitada para el estacionamiento de los vehículos de los funcionarios de CONAPE, y al concluir la sesión se ubicarán nuevamente en el área de parqueo interno.

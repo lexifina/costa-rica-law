@@ -1,0 +1,1 @@
+Artículo 37.—El presente Reglamento aprobado por el Consejo Directivo de la Comisión Nacional de Préstamos para Educación en la sesión Nº 42-10-2003, artículo 8º del 28 de octubre de 2003, deroga el anterior Reglamento para el uso de estacionamiento de vehículos de los funcionarios de la Comisión Nacional de Préstamos para Educación.
