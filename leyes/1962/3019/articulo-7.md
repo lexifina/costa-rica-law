@@ -6,16 +6,16 @@ convalidado estudios hechos en otro país;
 b) Satisfacer los derechos que señale la Junta de Gobierno del
 Colegio;
 c) Constancia fehaciente de haber observado buena conducta;
-d) Comprobar que se ha residido en el país por cinco años o más,
-antes o después de haber realizado los estudios profesionales;
+d) Comprobar que se ha residido en el país antes o después de haber realizado los estudios profesionales;
+(Texto modificado por resolución de la Sala Constitucional N° 2001-13008 de las 14:51 horas del 19 de diciembre de 2001)
 e) Los extranjeros, además de llenar los requisitos anteriores,
 deberán comprobar que en su país de origen los costarricenses
 pueden ejercer la profesión en análogas circunstancias. Sin
 embargo, los médicos extranjeros con dos años o más de
 matrimonio con costarricense y que residan en el país, podrán
 obtener la inscripción en el Colegio cumpliendo con los
-requisitos exigidos para los costarricenses, excepto el de
-residir cinco años en Costa Rica.
+requisitos exigidos para los costarricenses.
+(Texto modificado por resolución de la Sala Constitucional No. 2001-13008 de las 14:51 horas del 19 de diciembre de 2001).
 f) Haber hecho un año de internado en un hospital nacional o
 extranjero capacitado para tal fin, a juicio del Colegio de
 Médicos y Cirujanos y de la Facultad de Medicina, y
