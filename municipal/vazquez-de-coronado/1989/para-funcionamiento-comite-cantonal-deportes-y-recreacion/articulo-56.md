@@ -1,0 +1,1 @@
+Artículo 56.—El Comité Cantonal de Deportes, podrá sustituir a aquel Comité Distrital que se considere no funcional o que no cumpla con los lineamientos emanados del Comité, el Concejo Municipal o el Instituto Costarricense del Deporte y la Recreación.

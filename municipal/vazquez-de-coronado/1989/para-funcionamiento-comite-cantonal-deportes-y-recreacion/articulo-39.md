@@ -1,0 +1,1 @@
+Artículo 39.—Cada Comisión específica por deporte tendrá la misma vigencia del Comité Cantonal y sus miembros podrán ser reelectos. No devengarán dietas, ni remuneración alguna. Deberán reunirse cuando menos dos veces al mes.

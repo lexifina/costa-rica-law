@@ -1,0 +1,1 @@
+Artículo 64.—La infracción a cualquiera de las obligaciones establecidas en el artículo 63 será sancionada con suspensión de un mes a dos años, de toda actividad deportiva y dirigencial. Si la infracción al inciso a) del artículo 62 consistiera en agresión física el infractor podrá ser sancionado con suspensión de dos a cinco años, de toda actividad deportiva y dirigencial.

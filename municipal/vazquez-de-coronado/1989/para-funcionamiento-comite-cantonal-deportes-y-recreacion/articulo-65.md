@@ -1,0 +1,1 @@
+Artículo 65.—Los miembros de las Comisiones Específicas de apoyo, Comités y Subcomités Distritales que renuncien a sus cargos de manera injustificada, o que incurran en abandono de los mismos, no podrán integrar ninguno de esos órganos, ni el Comité Cantonal de Deportes y Recreación, por un período de dos años.

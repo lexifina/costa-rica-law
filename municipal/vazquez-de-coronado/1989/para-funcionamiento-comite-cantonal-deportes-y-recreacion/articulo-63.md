@@ -1,0 +1,1 @@
+Artículo 63.—El Comité Cantonal de Deportes, es el órgano competente para imponer las sanciones previstas en el presente Reglamento, una vez que el equipo deportivo, grupo de deportistas, deportista individual o dirigente, haya sido oído y se le haya dado audiencia por el término de ocho días, para que ejerza su derecho de defensa y ofrezca las pruebas que estime convenientes.

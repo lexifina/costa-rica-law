@@ -1,0 +1,1 @@
+Artículo 52.—El Comité Cantonal de Deportes y Recreación podrá delegar en los Comités Distritales, la construcción, la administración y el mantenimiento de los campos deportivos existentes en su jurisdicción. Deberán darle participación, previa programación de todos los grupos de deportistas organizados de la comunidad, en el uso de las instalaciones deportivas.

@@ -1,0 +1,1 @@
+Artículo 34.—La vigencia de cada miembro de las Comisiones de apoyo, será de dos años, y servirán en sus cargos sin percibir dietas ni remuneración alguna, pudiendo ser reelectos para un nuevo periodo.

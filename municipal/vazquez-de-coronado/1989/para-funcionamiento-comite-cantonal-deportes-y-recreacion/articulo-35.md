@@ -1,0 +1,1 @@
+Artículo 35.—Cada Comisión de apoyo deberá nombrar su Junta Directiva, llevar un libro de actas debidamente refrendado por el Comité Cantonal de Deportes y Recreación y sesionará por lo menos, dos veces al mes.

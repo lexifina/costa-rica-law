@@ -1,0 +1,1 @@
+Artículo 46.—Los Comités Distritales de Deportes y recreación, son la máxima representación del Comité Cantonal de Deportes en las actividades de promoción, administración de instalaciones y responsables del desarrollo deportivo de su Distrito.

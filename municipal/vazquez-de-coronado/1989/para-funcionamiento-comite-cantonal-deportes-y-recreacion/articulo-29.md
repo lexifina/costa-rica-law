@@ -1,0 +1,1 @@
+Artículo 29.—El Comité Cantonal de Deportes y Recreación deberá presentar su presupuesto al Concejo Municipal, sujeto a las disposiciones de la Ley Orgánica de la Contraloría General de la República (según artículo 172 del Código Municipal, en el mes de julio de cada año).

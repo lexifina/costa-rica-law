@@ -1,0 +1,2 @@
+Artículo 67.—La organización deportiva que no acate las disposiciones del Comité Cantonal, no podrá participar en eventos de programación cantonal y se le suspenderán o eliminarán los beneficios (instalaciones, ayudas y otros).
+Igual sanción se impondrá a los equipos deportivos y deportistas que muestren reiteradamente una actitud belicosa o abiertamente irrespetuosa de las normas que regulan la actividad deportiva.

@@ -1,0 +1,1 @@
+Artículo 43.—Al realizarse cada etapa de los Juegos Deportivos Nacionales, cada Comisión específica deberá presentar por escrito al Comité Cantonal de Deportes y Recreación un informe de las actividades cumplidas.

@@ -1,0 +1,1 @@
+Artículo 33.—El Comité nombrará entre los miembros de la comunidad las personas idóneas, preferiblemente vecinos del Cantón, para formar las comisiones las cuales deberán ser juramentadas por el Presidente del C C D y R.

@@ -1,0 +1,1 @@
+Artículo 61.—El Presidente del Comité Distrital podrá convocar a reunión extraordinaria, por iniciativa propia o a petición de tres miembros del Comité. Los asuntos por tratar, se conocerán conforme con el orden del día, previamente presentado por el Presidente y aprobado por los presentes.

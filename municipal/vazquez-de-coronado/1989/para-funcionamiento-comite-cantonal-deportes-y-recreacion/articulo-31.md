@@ -1,0 +1,1 @@
+Artículo 31.—De la subvención recibida por parte de la Municipalidad, el C C D y R podrá incluir en su presupuesto anual, una partida para la compra de terrenos aptos para el deporte y la recreación para que conjuntamente con la Municipalidad desarrollen mejor estructura para el deporte (artículo 170 Código Municipal) así como para la construcción de instalaciones deportivas.

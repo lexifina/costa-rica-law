@@ -1,0 +1,1 @@
+Artículo 22.—La exposición de temas por parte de cada visita en las sesiones, deberá tener una duración máxima de quince minutos (15), con el fin de aligerar la atención a otras visitas, excepto que el Comité Cantonal de Deportes y Recreación, acuerde prorrogar el tiempo; por votación de la mayoría calificada.

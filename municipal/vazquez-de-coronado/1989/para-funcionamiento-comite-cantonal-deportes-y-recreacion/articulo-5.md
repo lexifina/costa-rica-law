@@ -1,0 +1,1 @@
+Artículo 5º—El C C D y R, someterá, en la primera semana de julio de cada año, a conocimiento del Concejo su programa anual de actividades, obras e inversión, antes de aprobarse los presupuestos ordinarios de la Municipalidad, para el siguiente ejercicio económico.

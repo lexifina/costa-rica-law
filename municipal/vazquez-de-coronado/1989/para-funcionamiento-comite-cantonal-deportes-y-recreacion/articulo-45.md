@@ -1,0 +1,1 @@
+Artículo 45.—La integración y distribución de puestos en el Comité Distrital será igual a la del Comité Cantonal, lo mismo que su vigencia y la posibilidad de ser reelectos. No recibirán dietas ni remuneración alguna.

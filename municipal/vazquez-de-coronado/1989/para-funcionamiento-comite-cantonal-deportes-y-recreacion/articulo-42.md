@@ -1,0 +1,1 @@
+Artículo 42.—Si en el Cantón se encuentran funcionando Filiales debidamente organizadas de Asociaciones y Federaciones, estas deberán fungir como Comisión específica de su deporte. Es recomendable que la Comisión de Fútbol sea la misma Comisión Cantonal de ANAFA (Asociación Nacional de Fútbol Aficionado).

@@ -1,0 +1,1 @@
+Artículo 40.—En sus tres primeras sesiones, la Comisión específica, procederá a elaborar el plan anual de actividades, consignando en el los costos de cada una de ellas y deberán presentarlo por escrito, lo más detallado posible al Comité Cantonal de Deportes y Recreación.
