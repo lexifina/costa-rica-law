@@ -1,0 +1,1 @@
+Artículo 2º—Designar a la señora Roxana Blanco Flores, mayor, casada, Licenciada en Derecho, vecina de San José, portadora de la cédula de identidad número uno-seis uno dos-tres uno tres, como representante del Ministro de Gobernación, Policía y Seguridad Pública ante el Consejo Nacional de Desarrollo Comunal.
