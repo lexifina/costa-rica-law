@@ -1,0 +1,4 @@
+Artículo 6º.- Adiciónase un artículo, el cual llevará el número 14, a la Ley de Creación del Ministerio de Obras Públicas y Transportes Nº 4786 de 5 de julio de 1971, que se leerá así:
+"Artículo 14.- Conforme al principio de inmunidad fiscal, los contratos que suscriba el Ministerio de Obras Públicas y Transportes en nombre del Estado, o los actos y negocios Jurídico-Administrativos, están exentos de todo tributo.
+La misma exención, incluyendo el Impuesto sobre la Renta, se traslada a los cocontratantes del Estado, en virtud de que el pago del tributo implica un mayor encarecimiento de los bienes, servicios y obras que el Estado requiera.
+Asimismo, las escrituras públicas que formalice la Notaría del Estado a solicitud del Ministerio, además de los tributos señalados anteriormente, estarán exentos de pago de honorarios."

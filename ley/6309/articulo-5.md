@@ -1,0 +1,1 @@
+Artículo 5º.- Se autoriza al Poder Ejecutivo para que proceda a aumentar o rebajar los ingresos del artículo 2º y gastos autorizados en el artículo 3º a fin de ajustarlos a las fluctuaciones que en el mercado de valores sufra el Yen Japonés.

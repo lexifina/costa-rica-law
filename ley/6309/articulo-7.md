@@ -1,0 +1,1 @@
+Artículo 7º.- Aplícase la disposición del artículo anterior a los contratos para la adquisición de bienes y servicios financiados con el contrato de empréstito aprobado por ley Nº 5582 de 11 de octubre de 1974.
