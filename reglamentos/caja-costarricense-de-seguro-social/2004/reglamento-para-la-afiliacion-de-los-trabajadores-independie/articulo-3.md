@@ -1,0 +1,15 @@
+SECCIÓN II
+Administración
+Artículo 3º—De las obligaciones. Son obligaciones de los Trabajadores Independientes:
+1. Inscribirse como tales ante la Caja en los ocho días hábiles posteriores al inicio de la actividad o adquisición de la empresa o negocio. Para tal efecto deberá aportar, como mínimo, la siguiente información:
+Nombre y calidades: presentar el respectivo documento de identificación, brindar nombre del negocio y la actividad a que se dedica; señalar la dirección, números de teléfono, apartado y facsímil, dirección de correo electrónico, si los hubiere.
+2. Suministrar a la administración la información que permita establecer los ingresos, sobre los que se debe calcular la cuota respectiva.
+En la determinación de los ingresos se tomará en cuenta que los gastos a deducir, propios de la(s) actividad (es) o negocio(s), sean normales de acuerdo con el giro de estos, necesarios, estrictamente imprescindibles y que mantengan proporcionalidad con el volumen de operaciones.
+Los ingresos reportados, podrán ser modificados, por la Administración, cuando se determine que el verdadero ingreso es diferente al que sirve de base para la cotización del asegurado. El nuevo ingreso que resultare, en ningún caso podrá ser inferior al mínimo establecido en la escala contributiva aplicable a los trabajadores independientes.
+3. Variaciones que se produzcan referentes a cambios en el nombre, actividad o domicilio.
+4. Presentar dentro de los plazos programados y en la forma que disponga la administración (disquete, cintas, facsímil, etc), la planilla correspondiente al mes inmediato anterior con los datos requeridos.
+5. Pagar en los plazos establecidos y en la forma que disponga la administración, las cuotas correspondientes.
+Pasada la fecha máxima de pago, el trabajador independiente deberá cancelar los recargos correspondientes, así como los intereses legalmente establecidos (tasa básica pasiva del Banco Central). El incumplimiento en el pago conlleva el trámite de cobro administrativo y de cobro judicial, según corresponda, conforme los procedimientos establecidos por la Institución.
+6. Para recibir las prestaciones del Seguro de Salud, el asegurado debe presentar su documento de identificación, carné del Seguro Social y comprobación de derechos vigente al momento en que demanda los servicios.
+El Trabajador Independiente responderá íntegramente por el pago de las prestaciones otorgadas, cuando haya incumplido con la obligación de asegurarse oportunamente o cuando se encuentre en condición de moroso.
+Cualquier dato falso que se brinde o consigne, u omisión en que se incurra, por parte de los Trabajadores Independientes, en el acto de su inscripción ante la Caja o al suministrar los reportes correspondientes, que induzcan a la Caja a otorgar prestaciones a las que no se tenga derecho de conformidad con las prescripciones de este Reglamento y de los Reglamentos de Salud e Invalidez, Vejez y Muerte, los hará acreedores, aparte de la obligación de pagar esas prestaciones, a la aplicación, en lo que corresponda, de las sanciones establecidas en la Sección VI de la Ley Constitutiva de la Caja Costarricense de Seguro Social.

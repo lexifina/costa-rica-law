@@ -1,0 +1,1 @@
+Artículo 7º—Otros procedimientos administrativos. Tratándose de otros procedimientos administrativos como son las devoluciones de cuotas, anulaciones y reconstrucciones, entre otros, que por aspectos contributivos presenten los Trabajadores Independientes, se tramitarán en los mismos términos en que se atienden los presentados por los patronos, trabajadores y pensionados.

@@ -1,0 +1,1 @@
+Artículo 4º—De los beneficios. Los Trabajadores Independientes tienen derecho a los beneficios regulados en los Reglamentos de Salud y de Invalidez, Vejez y Muerte sujetos al cumplimiento de los requisitos y plazos de calificación respectivos.

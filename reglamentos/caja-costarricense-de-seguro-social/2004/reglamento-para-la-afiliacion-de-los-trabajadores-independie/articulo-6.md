@@ -1,0 +1,1 @@
+Artículo 6º—Del procedimiento. Para efectos de hacer cumplir la obligatoriedad de aseguramiento de los Trabajadores Independientes, establecida legal y reglamentariamente, se procederá, en lo pertinente, conforme con lo regulado en el “Reglamento para Verificar el Cumplimiento de las Obligaciones Patronales y de Asegurados”.
