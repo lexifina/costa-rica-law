@@ -1,0 +1,5 @@
+Artículo 81.- La Institución se reserva el derecho de adicionar o
+modificar en cualquier momento las disposiciones de este Reglamento, las
+cuales deberá someter al trámite de conocimiento y aprobación de la
+División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad
+Social.

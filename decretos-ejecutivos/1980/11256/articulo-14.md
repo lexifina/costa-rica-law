@@ -1,0 +1,5 @@
+Artículo 14.- En los casos de ascensos o traslados, habrá un período
+de prueba menor de tres meses, de tal manera que el trabajador ascendido
+o trasladado podrá ser reintegrado a su anterior ocupación cuando el
+patrono estime que no reúne satisfactoriamente las condiciones requeridas
+para el normal desempeño del empleo en cuestión.
