@@ -1,0 +1,1 @@
+ARTICULO 77: El Patronato se reserva el derecho de adicionar o modificar, en cualquier momento, las disposiciones de este reglamento; las cuales deberá someter al trámite de conocimiento y aprobación de la Dirección de Asuntos Jurídicos del Ministerio de Trabajo y Seguridad Social.

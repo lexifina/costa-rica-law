@@ -1,0 +1,1 @@
+ARTICULO 40: El Patronato comunicará a la Dirección Nacional de Inspección de Trabajo del Ministerio de Trabajo y Seguridad Social, la existencia de la denuncia, y la conclusión a la que se llegó, una vez concluido el procedimiento.

@@ -1,0 +1,1 @@
+ARTICULO 43: Una vez concluida la investigación en el Patronato, quien no esté satisfecho con el resultado al que se llegue, puede presentar la denuncia correspondiente ante los Tribunales de Trabajo, dentro del término de prescripción que señala el título X, sección I del Código de Trabajo.

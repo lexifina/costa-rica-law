@@ -1,0 +1,1 @@
+ARTICULO 74: Todas las licencias que se concedan a los trabajadores son sin goce de salario, salvo aquellos casos previstos por la Ley, por este Reglamento, o que, sin serlo, el Patronato considere oportuno otorgar con goce de salario.

@@ -1,0 +1,2 @@
+ARTICULO 22: Los trabajadores gozarán, sin interrupción, del período de vacaciones, excepcionalmente se podrá dividir en dos períodos como máximo, cuando exista convenio de las partes al respecto, y se trate de labores de índole tan especial que no permitan la ausencia prolongada del servidor.
+Tampoco podrá acumularse, salvo una vez, cuando el trabajador desempeñe labores técnicas, de confianza u otras análogas que hiciesen difícil su reemplazo.

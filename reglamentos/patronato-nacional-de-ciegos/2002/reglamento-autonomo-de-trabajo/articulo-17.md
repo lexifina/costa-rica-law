@@ -1,0 +1,1 @@
+ARTICULO 17: Cuando se acuerde un recargo total de funciones por un período mayor a un mes, el trabajador sustituto tiene derecho a recibir el sueldo base del puesto de la categoría superior, si éste es mayor.

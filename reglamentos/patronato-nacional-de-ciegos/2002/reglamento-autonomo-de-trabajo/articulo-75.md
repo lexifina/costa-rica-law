@@ -1,0 +1,1 @@
+ARTICULO 75: En caso de que el trabajador contraiga matrimonio, o le sobrevenga el fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge, el Patronato le concederá licencia con goce de salario por cinco días hábiles de acuerdo con lo que estime conveniente sobre el particular, exceptuando si el empleado se encuentra gozando de vacaciones.

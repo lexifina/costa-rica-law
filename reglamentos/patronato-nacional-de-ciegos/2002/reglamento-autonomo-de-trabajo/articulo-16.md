@@ -1,0 +1,1 @@
+ARTICULO 16: El Patronato paga salarios quincenales, para lo cual los trabajadores deberán abrir una cuenta en uno de los bancos del sistema bancario nacional, previamente establecido por la Junta Directiva, según el calendario de pago del Gobierno Central, o el día hábil inmediato anterior si aquél coincide con un día feriado.

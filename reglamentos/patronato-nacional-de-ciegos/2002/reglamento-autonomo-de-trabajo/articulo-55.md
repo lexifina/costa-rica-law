@@ -1,0 +1,1 @@
+ARTICULO 55: Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias con goce de salario y deberá registrar su asistencia a la hora de llegada o salida del Patronato presentar los comprobantes respectivos.

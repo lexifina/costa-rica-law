@@ -1,0 +1,3 @@
+TITULO VIII
+AGUINALDO.
+ARTICULO 27: Todos los trabajadores del Patronato de cualquier clase que sean, y cualquiera que sea la forma en que desempeñen sus labores y en que se les pague su salario, tienen derecho al aguinaldo anual, que será igual al promedio mensual de los salarios ordinarios y extraordinarios devengados en los doce meses anteriores al primero de diciembre de cada año, o tiempo menor que hayan laborado. Dicho beneficio será pagado dentro de los primeros veinte días del mes de diciembre de cada año, salvo terminación del contrato o relación de trabajo antes del vencimiento del período respectivo, caso en el cual se les pagará proporcionalmente y de inmediato.

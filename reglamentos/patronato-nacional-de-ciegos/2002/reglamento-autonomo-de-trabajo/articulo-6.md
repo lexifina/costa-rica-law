@@ -1,0 +1,1 @@
+ARTICULO 6: Además de los contratos por tiempo indefinido, en el Patronato se suscribirán contratos a plazo fijo, por obra determinada, de aprendizaje, ocasionales, los cuales se regirán por los principios legales y doctrinarios que los sustentan.

@@ -1,0 +1,2 @@
+ARTICULO 78: Una vez aprobado por la Dirección de Asuntos Jurídicos del Ministerio de Trabajo y Seguridad Social, este reglamento, entrará en vigencia quince días hábiles después de haber sido puesto en conocimiento de los trabajadores.
+Para que mantenga su vigencia y, por lo tanto, pueda ser aplicable, se tendrá expuesto permanentemente, por lo menos en dos de los sitios más visibles y accesibles del Patronato.
