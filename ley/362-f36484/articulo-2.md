@@ -1,6 +1,1 @@
-ARTÖCULO 2§.-El Consejo Directivo de la Universidad, por los
-medios
-que estime convenientes, tratar de que los bequistas que
-actualmente
-estudian en el exterior se especialicen en las diferentes materias
-docentes.
+Artículo 2º.- Como institución docente, la Universidad constará de las Escuelas y Facultades que requieren las enseñanzas que se impartan en ella de conformidad con esta ley y las que la modifiquen. En consecuencia, integrarán desde ahora la Universidad las Escuelas de Derecho, Farmacia, Agricultura, Pedagogía y Bellas Artes, ya existentes, y las de Ingeniería, Ciencias y Letras, Cirugía Dental y Medicina, que se establecerán conforme lo permitan los recursos de que se disponga.

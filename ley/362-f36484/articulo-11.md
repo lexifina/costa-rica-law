@@ -1,12 +1,2 @@
-ARTÖCULO 11.-La Asamblea Universitaria se reunir
-ordinariamente una
-vez al a¤o en la fecha que designe el Consejo y extraordinariamente
-cada
-vez que la convoquen el mismo Consejo o el Secretario de Educaci¢n
-P£blica, por aviso publicado en el peri¢dico oficial con ocho d¡as
-de
-anticipaci¢n por lo menos.
-El Consejo se reunir ordinariamente una vez por semana, y
-extraordinariamente cada vez que lo convoquen el Rector o tres de
-sus
-miembros.
+Artículo 11.- La Asamblea Universitaria se reunirá ordinariamente una vez al año en la fecha que designe el Consejo y extraordinariamente cada vez que la convoquen el mismo Consejo o el Secretario de Educación Pública, por aviso publicado en el periódico oficial con ocho días de anticipación por lo menos.
+El Consejo se reunirá ordinariamente una vez por semana, y extraordinariamente cada vez que lo convoquen el Rector o tres de sus miembros.

@@ -1,3 +1,4 @@
-ARTÖCULO 4§.-Las Juntas Directivas de los Colegios de Abogados
-y Farmac‚uticos continuar n ejerciendo las funciones docentes que
-actualmente tienen a su cargo, hasta el 31 de diciembre de 1940.
+CAPITULO II
+De la Dirección y Administración de la Universidad
+Artículo 4º.-La Universidad será autónoma y gozará de capacidad jurídica plena para adquirir derechos y contraer obligaciones. Será de su incumbencia exclusiva, por consiguiente, adoptar programas y planes de estudio, nombrar personal docente y administrativo, otorgar grados académicos y títulos profesionales, disponer de su patrimonio y dictar los reglamentos necesarios para el Gobierno de sus Escuelas y servicios, todo de acuerdo con las leyes que la rijan. Sin embargo, mientras no se hayan establecido Escuelas de Medicina, Cirugía Dental e Ingeniería, los respectivos Colegios, antes llamados Facultades, quedan autorizados para otorgar grados académicos y títulos profesionales, de acuerdo con sus respectivas Leyes Orgánicas.
+(Así Reformado por artículo único de Ley 17 de 25 de octubre de 1940).
