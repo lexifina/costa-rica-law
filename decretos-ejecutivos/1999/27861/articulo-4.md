@@ -1,0 +1,1 @@
+Artículo 4°-Se encomienda al Departamento Ordenamiento Agrario y Formación de Asentamientos y a la Dirección de la Región Bronca del Instituto de Desarrollo Agrario, a realizar los trámites necesarios para la ejecución de este Programa de Titulación.

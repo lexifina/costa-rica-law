@@ -1,0 +1,1 @@
+Artículo 8°-Al segregarse las porciones adjudicadas de conformidad con el artículo 2° de la ley N° 7599, no será necesaria la descripción del resto que se reserve el Instituto de Desarrollo Agrario de la finca que se inscribirá conforme con lo descrito en el artículo 1° de este Decreto.

@@ -1,0 +1,1 @@
+Artículo 3°-Las tierras a que se refieren el artículo 1°, de este decreto tiene una cabida de 30.000 hectáreas y sus linderos serán: norte; Zona Marítimo Terrestre del Golfo Dulce, sur; Reserva Forestal Golfo Dulce, Refugio Laguna Peje Perrito y Zona Marítimo Terrestre del Litoral Pacífico, este; Golfo Dulce y oeste; Instituto de Desarrollo Agrario y Reserva Forestal Golfo Dulce.
