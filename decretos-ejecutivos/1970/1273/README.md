@@ -14,3 +14,4 @@ Crea Consejo Agropecuario Nacional (CAN)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-10-08 | la propia norma |
+| 2 | 1971-01-21 | Decreto Ejecutivo 1448 (1971-01-21) |
