@@ -14,3 +14,4 @@ Reforma Reglamento para el Régimen Interno del Consejo de Salud Ocupacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-10 | la propia norma |
+| 2 | 2001-09-21 | Decreto Ejecutivo 29879 (2001-09-21) |

@@ -27,7 +27,9 @@ g) Deberá ejecutar los acuerdos del órgano que le hayan sido encomendados.
 h) Deberá cumplir con las demás que le asignen las leyes y reglamentos.
 i) Deberá guardar deber de información al Órgano Director sobre los acuerdos que le hayan sido encomendados y de cualquier actuación realizada en nombre del CSO y que haya sido previamente autorizada por el Consejo.
 j) Deber de obediencia al Órgano del Consejo y deber de comunicación obligada de la correspondencia recibida."
-"Artículo 5º—El Órgano Directivo sesionará ordinariamente cuatro veces al mes, a las diecisiete horas y en la fecha que el propio órgano acuerde por mayoría absoluta de sus miembros. Extraordinariamente sesionarán cuando así lo acuerde el Órgano Directivo o sean convocados por la Presidencia para atender asuntos de urgencia. En ningún caso se remunerarán más de seis sesiones por mes, entre ordinarias y extraordinarias. Las Sesiones extraordinarias se deberán efectuar en fecha distinta a la convocatoria de las sesiones ordinarias.
+"Artículo 5º—El Órgano Directivo sesionará ordinariamente cuatro veces al mes, en la fecha que el propio órgano acuerde por mayoría absoluta de sus miembros. Extraordinariamente sesionará cuando así lo acuerde el Órgano Directivo o sean convocadas por la Presidencia para atender asuntos de urgencia.
+En ningún caso se remunerarán más de seis sesiones por mes entre ordinarias y extraordinarias."
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29879 del 21 de setiembre de 2001).
 Artículo 6º—De las sesiones ordinarias y extraordinarias del Órgano Directivo.
 2. Del Quórum.
 - De las sesiones ordinarias:
