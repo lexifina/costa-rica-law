@@ -1,0 +1,1 @@
+Art 2°.- El que el 1° de Mayo tenga acopio de cueros hecho en Puntarenas con anterioridad, y que por falta de buques no los haya embarcado, está obligado á presentarse al Administrador de Aduanas de aquel puerto pidiendo el reconocimiento de ellos, para poderlos embarcar después.
