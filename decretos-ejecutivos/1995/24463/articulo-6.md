@@ -1,0 +1,6 @@
+Artículo 6º: La presente declaratoria de necesidad y urgencia
+por calamidad pública se mantendrá hasta tanto no exista un
+pronunciamiento emanado de las Unidades Ejecutoras y avalado por la
+Comisión Nacional de Emergencia, con base en el reporte o análisis
+técnico-científico que al efecto se realice, demostrativo de que la
+situación ha sido definitivamente superada.

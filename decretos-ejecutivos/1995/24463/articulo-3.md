@@ -1,0 +1,10 @@
+Artículo 3º: La Comisión Nacional de Emergencia designará como
+Unidades Ejecutoras, a aquellas dependencias o instancias
+administrativas que estime pertinentes para la ejecución de las
+políticas, actividades y demás medidas necesarias que se acuerden
+para el cumplimiento inmediato del "Plan Regulador General" que se
+elabore para atender la emergencia, tomando en cuenta el
+acaecimiento efectivo del fenómeno según su magnitud en las
+distintas regiones del país, los daños materiales y sociales de
+mayor importancia y los medios y acciones, inmediatas y mediatas,
+tendientes a la solución de la presente emergencia.
