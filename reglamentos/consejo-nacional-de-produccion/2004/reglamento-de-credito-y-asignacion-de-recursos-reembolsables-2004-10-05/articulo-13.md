@@ -1,0 +1,1 @@
+Artículo 13.—Derogaciones: El presente Reglamento de Crédito y Asignaciones de Recursos Reembolsables y No Reembolsables, deroga el texto original del mismo Reglamento, aprobado en sesión 2023, artículo 2º y sesión 2025, artículo 3º, celebradas el 18 y 26 de agosto de 1998, respectivamente y publicado en La Gaceta Nº 193 del 5 de octubre de 1998, y sus reformas.

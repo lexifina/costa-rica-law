@@ -1,0 +1,1 @@
+Artículo 6º—Toda operación de financiamiento deberá estar adecuadamente garantizada con una garantía real (prendaria o hipotecaria) y/o fiduciaria, a satisfacción de la Junta Directiva, de previo a la aprobación en todos los casos, las garantías responderán por el incumplimiento en las obligaciones del proyecto.
