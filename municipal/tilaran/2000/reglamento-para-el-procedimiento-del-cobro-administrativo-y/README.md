@@ -14,3 +14,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-23 | la propia norma |
+| 2 | 2000-11-13 | Reglamento municipal 132 (2000-11-13) |
