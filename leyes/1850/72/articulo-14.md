@@ -1,0 +1,1 @@
+ARTÍCULO 14. Los actos judiciales y documentos públicos de cualquiera importancia y naturaleza que sean, se considerar n legítimos entre las partes contratantes, siempre que vallan extendidos según las leyes de aquel de donde proceden, y estén comprobados por la Secretaria del Gobierno del mismo.

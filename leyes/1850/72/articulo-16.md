@@ -1,0 +1,1 @@
+ARTÍCULO 16. Los reos de delitos comunes, prófugos de los territorios de una de las dos partes contratantes, los territorios de la otra, ser n igualmente entregados, en virtud de requerimiento hecho por exhorto del Juez tribunal de la causa; poniéndose de acuerdo, en tal caso los Gobiernos acerca de la manera de entregar y recibir al reo.

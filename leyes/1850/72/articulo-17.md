@@ -1,0 +1,1 @@
+ARTÍCULO 17.Las personas que por motivos puramente políticos, se refugiaren de una de las partes contratantes al territorio de la otra, podrán permanecer en ‚ presentándose al Gobierno, el cual, informado de las circunstancias, les designar lugar para su residencia, y en su caso, les exigir fianza de no ofender las autoridades de donde dependan.
