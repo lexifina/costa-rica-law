@@ -1,0 +1,1 @@
+Artículo 9º—Acuerdo de emisiones anotadas en cuenta. Para efectos de lo dispuesto en el artículo 17 del Reglamento, el acuerdo de emisión deberá contener las características que estipula el artículo 10 del Reglamento sobre oferta pública de valores.
