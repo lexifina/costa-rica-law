@@ -1,0 +1,1 @@
+Artículo 3º.- Las organizaciones sociales y de personas sin fines de lucro, tales como sindicatos, asociaciones solidaristas y organizaciones cooperativas, que se dediquen dentro de otras actividades a la construcción o financiación de viviendas de tipo popular, estarán exentas de todo tipo de impuestos, nacionales y municipales, que incidan sobre el costo de tales viviendas.
