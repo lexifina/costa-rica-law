@@ -14,3 +14,4 @@ Reforma Integral Reglamento Interno de la Junta Directiva (En La Gaceta N°76 de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-09-17 | la propia norma |
+| 2 | 1986-02-13 | Reglamento 1520 (1986-02-13) |
