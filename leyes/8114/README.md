@@ -1,6 +1,6 @@
 # Ley de Simplificación y Eficiencia Tributarias
 
-Ley N° 8114 del 2001-07-04. SINALEVI, ficha 46631: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46631&param2=49335&param3=1>.
+Ley N° 8114 del 2001-07-04. SINALEVI, ficha 46631: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46631&param2=49336&param3=1>.
 
 Publicada en La Gaceta N° 131 del 2001-07-09.
 
@@ -38,3 +38,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 28 de 221 | 2004-08-01 | Decreto Ejecutivo 31893 (2004-07-05) | 2004-07-05 |
 | 29 de 221 | 2004-10-01 | Decreto Ejecutivo 31927 (2004-09-03) | 2004-09-03 |
 | 30 de 221 | 2004-11-01 | Decreto Ejecutivo 32075 (2004-10-05) | 2004-10-05 |
+| 31 de 221 | 2005-01-01 | Decreto Ejecutivo 32174 (2004-12-02) | 2004-12-02 |
