@@ -1,0 +1,5 @@
+Articulo 13.—Para este proceso la Municipalidad otorga plazos de aplazamientos y/o fraccionamientos como se detalla a continuación.
+> Primera petición: a tres meses a partir de la aprobación de la solicitud y confección del expediente (solo en casos especiales se puede reconsiderar).
+> A seis meses a partir del vencimiento de la primera solicitud, siempre y cuando sea nuevamente solicitado por contribuyente, de lo contrario la Municipalidad podrá enviar ¡a cuenta a cobro judicial.
+>Tercera petición: De nueve a doce meses si es necesario y la cuenta lo amerita.
+En el caso, de que el periodo de aplazamiento y/o fraccionamiento convenido entre la Municipalidad y el contribuyente, tenga su vencimiento, y la cuenta no haya sido cancelada, la Municipalidad , estará en pleno derecho y obligación de enviar la cuenta a cobro Judicial, excepto, que el contribuyente hiciere una solicitud previa para un nuevo aplazamiento y/o fraccionamiento, el cual la municipalidad debela estudiar y analizar a fondo.

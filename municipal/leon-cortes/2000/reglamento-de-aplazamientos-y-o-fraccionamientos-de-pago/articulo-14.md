@@ -1,0 +1,2 @@
+Articulo 14.—Los intereses que surjan de la deuda durante el aplazamiento y/o fraccionamiento se aplican de acuerdo al articulo 22 de la Ley N ° 7509 de Impuesto sobre Bienes Inmuebles y el articulo 57 del Código de Normas y Procedimientos Tributarios.
+La Municipalidad para estos efectos fijará una tasa de intereses para aquellos pagos fuera del termino legal establecido o convenido entre las partes.

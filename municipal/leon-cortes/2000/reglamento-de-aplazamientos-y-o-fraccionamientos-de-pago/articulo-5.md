@@ -1,0 +1,1 @@
+Artículo 5°—Todo deudor de créditos municipales, está legitimado para solicitar la concesión de un aplacamiento \/o fraccionamiento de payo en la Administración Tributaria , está conforme a los requisitos que en lo adelante se detallarán en este reglamento.

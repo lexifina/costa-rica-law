@@ -1,0 +1,2 @@
+Articulo 7°— La Municipalidad deberá definir los documentos que el contribuyente debe aportar para darle trámite a la solicitud de aplazamiento y/o fraccionamiento de! pago de su deuda, como por ejemplo: Situación económico- financiera del contribuyente, la cual debe ser comprobada por él mismo, posibles garantías de cumplimiento, etc.
+Si fuera rendida alguna garantía de cumplimiento, en el informe del control y seguimiento se anulará en la casilla "garantía" la modalidad ofrecida, sino se rindió garantía se consignará "ninguna".

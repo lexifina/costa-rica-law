@@ -1,0 +1,1 @@
+Articulo 15.—Esta Municipalidad solicitará a los contribuyentes que tengan una deuda mayor a los 50.00,00 (cincuenta mil colones) una garantía de cumplimiento de pago, para respaldar en convenio contraído y en señal de solidaridad con el pago de la cuenta.
