@@ -1,0 +1,1 @@
+Artículo 13.-Queda expresamente prohibido a los abogados, hacer cualquier tipo de arreglo económico, con los contribuyentes, función que compete estrictamente a la Contaduría Municipal. Por ende, sólo podrán recibir aquellos dineros, por concepto de pago de honorarios y cancelación de otros gastos administrativos.

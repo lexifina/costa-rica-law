@@ -1,0 +1,1 @@
+Artículo 2°-La Sección de Cobro Administrativo y Judicial contará con el personal que requieran las necesidades deL servicio y atenderá la organización del cobro de las obligaciones enunciadas en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 16.-Los abogados que por alguna causa de justificación, no puedan atender el cobro (fuerza mayor, caso fortuito o la intervención de un tercero), deberán de comunicarlo a la Municipalidad, con al menos 8 días de antelación a su excusa y enviar la totalidad de sus expedientes a la Contaduría Municipal, para que ésta disponga lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 12.-Si algún abogado, detectare que el contribuyente que esta al cobro, es su pariente o amigo y deseare excusarse por ello, deberá hacerlo dentro del término máximo de 48 horas, contadas a partir de la fecha en que recibió los documentos.

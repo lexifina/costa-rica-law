@@ -1,0 +1,1 @@
+Artículo 3°-EI cobro administrativo comprenderá las acciones que se realicen administrativamente para normalizar las cuentas morosas, tales como avisos, volantes, cartas, etc. Será responsabilidad de los abogados contratados cumplir con lo que establece este artículo.
