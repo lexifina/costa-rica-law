@@ -1,8 +1,18 @@
 ARTICULO 23.- El producto de los premios prescritos y no vendidos de
 las loterías de la Junta, se distribuirá de la siguiente forma:
-a) Un doce por ciento (12%) para programas destinados a prevenir y
-tratar a personas con limitaciones físicas y mentales.
-(Así reformado por Ley N° 7977 del 4 de enero del 2000)
+a) Un catorce por ciento (14%) para programas destinados a personas
+con discapacidad. De ese porcentaje, un tres por ciento (3%) se otorgará
+a las juntas administrativas de centros educativos que tengan estudiantes
+con discapacidad matriculados en el sistema regular y a las de las instituciones
+que ofrezcan servicios de III y IV Ciclos de educación especial.
+Los recursos destinados a cumplir los objetivos de la Ley para el financiamiento
+y desarrollo de equipos de apoyo para la formación de estudiantes con discapacidad
+matriculados en III y IV Ciclos de la educación regular y de los servicios de III y IV
+Ciclos de educación especial, deberán ser aprobados por la comisión técnica
+especializada referida en esa Ley.
+(Así reformado por el artículo 15 de la Ley N° 8283 de 28 de mayo del 2002,
+Ley para el finaciamiento y desarrollo de equipos de apoyo para la formación
+de estudiantes con discapacidad)
 b) Un nueve por ciento (9%) para programas destinados a la atención
 del menor huérfano, en abandono y riesgo social, así como a la prevención
 del abandono y el riesgo social.

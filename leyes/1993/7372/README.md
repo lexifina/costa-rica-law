@@ -1,6 +1,6 @@
 # Ley para Financiamiento y Desarrollo de Educación Técnica Profesional
 
-Ley N° 7372 del 1993-11-22. SINALEVI, ficha 22489: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22489&param2=23843&param3=1>.
+Ley N° 7372 del 1993-11-22. SINALEVI, ficha 22489: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=22489&param2=23844&param3=1>.
 
 Publicada en La Gaceta N° 241 del 1993-12-17.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 6 | 1993-12-17 | Ley 7372 | 1993-11-22 |
 | 2 de 6 | 1993-12-17 | SINALEVI | 1993-11-22 |
+| 3 de 6 | 2002-07-03 | Ley 8283 | 2002-05-28 |
