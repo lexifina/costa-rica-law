@@ -1,0 +1,1 @@
+Artículo 27.—Las municipalidades de la provincia de Cartago podrán destinar un porcentaje de lo establecido en el artículo 43 de la Ley de Biodiversidad, Nº 7788, de 30 de abril de 1998, a la formulación e implementación de los programas dispuestos en la presente Ley.

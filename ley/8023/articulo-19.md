@@ -1,0 +1,1 @@
+Artículo 19.—La unidad ejecutora estará constituida por el personal técnico aportado o contratado por las instituciones representadas en Comcure o contratado por la unidad ejecutora. Este personal conformará grupos de trabajo para realizar las acciones y los estudios específicos programados.
