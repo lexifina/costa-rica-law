@@ -1,0 +1,1 @@
+Artículo 2º—El Poder Ejecutivo a través de sus órganos e instituciones y en acatamiento de lo dispuesto por el ordenamiento jurídico vigente, brindará las facilidades que sean requeridas, a fin que dichas instituciones mantengan operando y funcionando las instalaciones y continúen brindando los servicios públicos que ordinariamente prestan a la comunidad nacional.
