@@ -1,0 +1,5 @@
+DECRETO XI
+Levanta un nuevo empréstito Nacional de 50,000 pesos y establece la manera de recaudarla.
+“ Francisca María Oreamuno Vicepresidente de la República de Costa Rica, en ejercicio del Supremo Poder Ejecutivo.
+En atención a que los gastos de la guerra en que actualmente se halla empañada la República han agotado ya los recursos que se proporcionaron con el empréstito Nacional mandado levantar por decreto n° 2 de 28 del último febrero; y en consideración a que no pueden suspenderse estos mismo gastos mientras dure la campaña, siendo por tanto un deber del Gobierno procurarse los medios de hacerlos, decreto:
+Art 1°.- Se levanta un nuevo empréstito Nacional en cantidad de cincuenta mil pesos, en el mismo concepto que fija el artículo 1° del decreto n° 2 de 28 de febrero del presente año, y se repartirá en la misma proporción, allí establecida entre las cuatro Provincias de San José, Cartago, Heredia y Alajuela. Los premios y garantías de este empréstito son los que determina el art 4 del referido decreto.
