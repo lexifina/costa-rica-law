@@ -1,6 +1,6 @@
 # Ley Orgánica de Notariado (1887)
 
-Ley N° 26 del 1887-10-12. SINALEVI, ficha 38819: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38819&param2=80095&param3=1>.
+Ley N° 26 del 1887-10-12. SINALEVI, ficha 38819: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38819&param2=80125&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 15 | 1888-07-03 | Ley 37 | 1888-07-03 |
 | 3 de 15 | 1902-07-17 | Ley 39 | 1902-07-17 |
 | 4 de 15 | 1915-06-18 | Ley 25 | 1915-06-18 |
+| 5 de 15 | 1916-06-29 | Ley 21 | 1916-06-29 |
