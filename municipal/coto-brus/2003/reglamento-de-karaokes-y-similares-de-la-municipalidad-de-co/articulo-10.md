@@ -1,0 +1,1 @@
+Artículo X.—Por la celebración de actividades con karaoke se deberá pinar el impuesto sobre espectáculos públicos cuando aquellos se enmarquen en la definición que del hecho generador de la obligación hace el artículo I del Reglamento para la Aplicación del Impuesto sobre Espectáculos Públicos Nº 27762-H-C.
