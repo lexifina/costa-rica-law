@@ -1,0 +1,5 @@
+Transitorio IV.- El Instituto Sobre Alcoholismo y Farmacodependencia (IAFA) será considerado como el sucesor del INSA para todos los efectos legales de modo que todas las leyes, reglamentos, decretos, convenios, e instrumentos de cualquier naturaleza en que se mencione el INSA, la referencia deberá entenderse hecha al Instituto sobre Alcoholismo y Farmacodependencia (IAFA).
+Comuníquese al Poder Ejecutivo.
+Asamblea Legislativa.- San José, a los nueve días del mes de abril de mil novecientos ochenta y seis.
+Por razones de inconveniencia e inconstitucionalidad, se veta el artículo cuarto del Decreto Legislativo Nº 7035 del catorce de abril de mil novecientos ochenta y seis, que contiene reformas al título XVII, sección segunda del Libro II del Código Penal. Se sancionan los artículos 1º, 2º, 3º y 5º con todos los transitorios del mismo Decreto Legislativo, referidos al Instituto sobre Alcoholismo y Farmacodependencia y se ordena su publicación.
+Presidencia de la República.-San José, a los veinticuatro días del mes de abril de mil novecientos ochenta y seis.

@@ -1,0 +1,1 @@
+Transitorio III.- La Junta de Vigilancia de Drogas y el departamento respectivo conservarán sus funciones leglaes actuales de control de drogas en cuanto a su comercio y uso legítimo, conforme con la legislación actual.
