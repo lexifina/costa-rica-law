@@ -1,0 +1,2 @@
+Art 45°. - Cuando algún Magistrado propietario o suplente necesite aumentarse hasta por tres días pedirá la licencia al Regente, quien la concederá en vista de la causal y dará cuenta a la Corte si fuese necesaria la reposición. Las licencias por más tiempo solo podrá acordarlas la Corte, no pasando de un mes. Cuando el Regente o algún Magistrado tenga que ausentarse por más tiempo del Congreso, o de la Comisión permanente en su receso.
+Por el tiempo de ausencia, el Magistrado no ganará dieta alguna.

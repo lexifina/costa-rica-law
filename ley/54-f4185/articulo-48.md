@@ -1,0 +1,1 @@
+Art 48°.- Cada seis meses será visitado el archivo por el Regente quien dictará, todas las medidas oportunas para corregir los defectos que no notare, si fuese de gravedad, dará cuenta a la Corte, para que ésta proceda como convenga.

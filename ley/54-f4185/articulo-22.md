@@ -1,0 +1,1 @@
+Art 22°.- Los oficiales de cada Secretaria están sujetos a los Secretarios respectivos en lo concerniente a sus obligaciones pero el de la Sala 1° será quien los distribuye en las dos oficinas, según el mayor o menor trabajo de cada una de ellas.

@@ -1,0 +1,1 @@
+Art 30°.- Los asuntos de que debe ocuparse la Corte Plena, son todos que corresponden al gobierno económico y a la recta pronto administración de justicia y todos los demás que la ley atribuye al Tribunal Supremo en la plenitud de ese miembro.
