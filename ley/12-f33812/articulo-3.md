@@ -1,4 +1,4 @@
 Artículo 3°—Las acciones serán nominativas y no podrán ser vendidas ni traspasadas en ninguna forma ni podrán ser objeto de traba o embargo por persona distinta de la Caja , a la cual responderán en todo tiempo por los créditos que haya concedido al accionista, en calidad de garantía adicional.
 En caso de muerte del accionista, la Caja rescatará sus acciones por el valor que entonces representen, esto es, en relación con los abonos hechos, los intereses acreditados y las ganancias y pérdidas no distribuidas de la propia Caja.
-Los accionistas retirados podrán seguir siendo considerados como tales, siempre que continúen contribuyendo con dos colones mensuales al pago de una acción. La Caja dispondrá la forma de recoger sus cuotas. Si el accionista lo prefiere podrá vender su acción a la Caja.
-(Así reformado el párrafo anterior por el artículo único de la Ley N° 860 del 2 de mayo de 1947)
+Los accionistas retirados del servicio podrán seguir siendo considerados como tales siempre que continúen contribuyendo con ocho colones (¢ 8.00) o con cuatro colones (¢ 4.00) mensuales para el pago de las acciones, según se dice en el artículo 4°. La Caja dispondrá la forma de recoger esas cuotas. Si el interesado lo prefiere, podrá vender sus acciones a la Caja.
+(Así reformado el párrafo anterior por el artículo 1° de la Ley N° 2210 del 29 de mayo de 1958)
