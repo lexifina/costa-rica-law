@@ -1,0 +1,1 @@
+Art. 2°-El tribunal de exámenes lo compondrán, en las provincias de San José, Alajuela, Cartago y Heredia, el Inspector de escuelas y dos vocales nombrados por el Ministerio del ramo, y en la provincia de Guanacaste y comarca de Puntarenas, el Gobernador y dos vocales nombrados del mismo modo.
