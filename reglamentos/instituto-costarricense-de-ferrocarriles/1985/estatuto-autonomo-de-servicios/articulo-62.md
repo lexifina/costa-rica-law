@@ -1,0 +1,2 @@
+Artículo 62.-Se considerará abandono del servicio al hacer dejación dentro de las jornadas estipuladas en este Estatuto o en los contratos de servicio, de la labor asignada al servidor, sin causa que la justifique a juicio de la empresa.
+Para calificar el abandono del servicio, no será necesario que el servidor salga del local en donde presta sus servicios. pues bastará que de modo evidente abandone la labor que le ha sido confiada.

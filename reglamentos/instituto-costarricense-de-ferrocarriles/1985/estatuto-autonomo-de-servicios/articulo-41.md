@@ -1,0 +1,1 @@
+Artículo 41.-Toda solicitud de carácter administrativo deberá dirigirse al Jefe inmediato respectivo, quien si no tuviese atribuciones para resolver, la elevará a conocimiento de su superior para que éste decida.

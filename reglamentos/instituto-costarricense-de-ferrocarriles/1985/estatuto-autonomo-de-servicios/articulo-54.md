@@ -1,0 +1,2 @@
+Artículo 54.-La sola o-misión de marcar a cualesquiera de las horas correspondientes, será considerada como falta y hará presumir la inasistencia del servidor a la jornada de que se trate, salvo que éste justifique dicha omisión a más tardar en la siguiente jornada, a juicio del INCOFER.
+No se considerará falta dicha omisión cuando sea por cumplir con funciones que le hayan sido encomendadas al servidor o cualquier otra causa justa.

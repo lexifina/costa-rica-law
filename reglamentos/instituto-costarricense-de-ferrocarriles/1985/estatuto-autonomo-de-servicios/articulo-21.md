@@ -1,0 +1,1 @@
+Artículo 21.-Los servidores deben gozar sin interrupciones de su período de vacaciones. Estas se podrán dividir en dos fracciones, como máximo, cuando así lo convengan las partes y siempre que se trate de labores de índole especial, que no permitan ausencia muy prolongada.

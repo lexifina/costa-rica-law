@@ -1,0 +1,1 @@
+Artículo 68.-La amonestación escrita se aplicará cuando con anterioridad haya sido verbalmente amonestado e incurra en la misma falta; cuando se incumplan algunas de las obligaciones establecidas en el artículo 37 si la falta no diese mérito para una sanción mayor; en los casos previstos especialmente por este Estatuto.

@@ -1,0 +1,1 @@
+Artículo 14.-El INCOFER se reserva el derecho de modificar los horarios de servicio siempre que esa modificación no afecte la duración máxima de la jornada y que se comunique por escrito a los interesados con 24 horas de anticipación.

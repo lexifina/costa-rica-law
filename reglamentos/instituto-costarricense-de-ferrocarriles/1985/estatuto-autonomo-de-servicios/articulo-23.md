@@ -1,0 +1,1 @@
+Artículo 23.-El INCOFER señalará la fecha en que se otorgarán las vacaciones dentro de las quince semanas siguientes al día en que el servidor adquiera su derecho. Vencido dicho término sin que se haya fijado el período de vacaciones respectivas, el servidor tendrá derecho a hacer el reclamo correspondiente dentro de los tres meses siguientes.

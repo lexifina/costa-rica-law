@@ -1,0 +1,2 @@
+Artículo 5°-Todo servidor tendrá un período de prueba de sesenta días naturales, en el entendido de que el servidor o el INCOFER podrá dar por concluido el contrato de servicio dentro de ese término, sin responsabilidad de su parte.
+En el caso de ascensos el período de prueba es de treinta días naturales, de manera que el INCOFER, podrá ordenar que el servidor vuelva a su anterior ocupación y con el mismo salario que tenía antes del ascenso, cuando no demuestre, a su juicio, aptitudes, capacidad o condición para desempeñar el puesto de mayor jerarquía o responsabilidad.

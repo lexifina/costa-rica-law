@@ -1,0 +1,1 @@
+Artículo 64.-Sin perjuicio de las sanciones establecidas en los artículos anteriores, en los casos de llegadas tardías inmotivadas, ausencias injustificadas y abandono del servicio, el Instituto rebajará el salario en la proporción correspondiente.

@@ -1,0 +1,1 @@
+Artículo 7°-Es requisito para ingresar al INCOFER no tener parentesco por consanguinidad hasta tercer grado o por afinidad hasta segundo grado, con los miembros del Consejo Directivo, con el Presidente Ejecutivo, con los Gerentes, con el Auditor, con el Jefe del Departamento de Personal, ni con el Jefe de la dependencia donde deba hacerse el nombramiento.

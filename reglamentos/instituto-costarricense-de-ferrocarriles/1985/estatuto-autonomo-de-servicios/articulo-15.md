@@ -1,0 +1,1 @@
+Artículo 15.-Por razón del servicio público que presta el INCOFER, todos los días y todas las horas son hábiles para el servicio. Cuando las necesidades lo requieran el servidor estará obligado a laborar horas extra hasta por el máximo de tiempo permitido por el artículo 140 del Código de Trabajo. La negativa injustificada se considerará falta grave para efectos de sanción.

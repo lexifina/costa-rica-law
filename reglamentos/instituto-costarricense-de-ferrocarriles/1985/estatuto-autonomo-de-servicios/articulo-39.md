@@ -1,0 +1,5 @@
+Artículo 39.-Fuera de las contenidas en el artículo 69 del Código de Trabajo, leyes y decretos de carácter general y convenios vigentes, serán obligaciones del INCOFER:
+a) Conceder permiso con goce de salario a los trabajadores para comparecer como testigos o actuar en alguna otra diligencia judicial, siempre que demuestren anticipadamente la respectiva orden de citación o emplazamiento;
+b) Conceder a los trabajadores permiso con goce de salario por el tiempo autorizado para sus obligadas visitas al Seguro Social, al Instituto Nacional de Seguros, al Instituto Nacional sobre Alcoholismo, cuando requieran los servicios de esas Instituciones, en estrecha conformidad con las disposiciones del INCOFER;
+c) Suministrar todos los implementos de seguridad para prever los accidentes de los trabajadores, de acuerdo con las normas establecidas por el Instituto Nacional de Seguros y el INCOFER; y
+d) Brindar las oportunidades de especialización en el trabajo que se realiza y en el de capacitación en los asuntos que corresponden a las actividades del INCOFER, dentro de los programas que paulatinamente se vayan desarrollando.

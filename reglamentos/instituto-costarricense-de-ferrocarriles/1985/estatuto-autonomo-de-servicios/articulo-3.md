@@ -1,0 +1,1 @@
+Artículo 3°-Por la índole de las labores que corresponden al INCOFER, el presente Estatuto será aplicable en todos aquellos lugares donde por razones de servicio y de ordenamiento administrativo, se disponga establecer centros de trabajo.

@@ -1,0 +1,3 @@
+Artículo 9°-Salvo las excepciones expresamente convenidas, la jornada ordinaria será la que establecen las disposiciones legales, a saber:
+Ocho horas en el día, seis horas en La noche y siete horas mixtas. La jornada diurna es la comprendida entre las 5,30 y las 18,00 horas.
+La jornada nocturna es la comprendida entre las 18,00 y las 5,30 horas. La jornada mixta es la comprendida entre las 15,00 y las 22,00 horas. Sin embargo en los servicios que por propia condición no sean insalubres ni peligrosos, podrá extenderse la jornada diurna ordinaria a diez horas y la mixta a ocho horas, siempre que no se exceda de 42 horas por semana o las que contractualmente se hubieren pactado.

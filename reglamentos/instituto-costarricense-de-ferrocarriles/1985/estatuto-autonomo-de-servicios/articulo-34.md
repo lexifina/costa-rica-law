@@ -1,0 +1,1 @@
+Artículo 34.-No podrá devengar salario alguno en el INCOFER ningún pensionado de gracia o de derecho de conformidad con lo dispuesto en la Ley General de Pensiones N° 14 de 2 de diciembre de 1935 y sus reformas y la Ley de la Administración Financiera de la República N° 1279 de 2 de mayo de 1951 y sus reformas.

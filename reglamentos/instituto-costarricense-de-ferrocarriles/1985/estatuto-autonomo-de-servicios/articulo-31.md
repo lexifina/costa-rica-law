@@ -1,0 +1,1 @@
+Artículo 31.-Los reclamos relativos a la suma de dinero recibida por cada servidor y a su falta de coincidencia con lo eventualmente devengado, deberán presentarse ante su jefe inmediato o ante la respectiva Oficina de Planillas, dentro del término de 3 meses.

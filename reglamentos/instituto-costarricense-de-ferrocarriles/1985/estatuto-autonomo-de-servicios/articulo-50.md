@@ -1,0 +1,1 @@
+Artículo 50.-Durante los trabajos de construcción, cimentación y en las demoliciones, se procederá de acuerdo con lo establecido en el Reglamento de Seguridad en Construcciones, decreto N° 6 de 16 de febrero de 1955.

@@ -1,0 +1,1 @@
+Artículo 18.-Todo servidor tendrá derecho a dos días de descanso después de cada cinco días de servicio continuo, excepto los servidores cuya jornada fuese acumulativa mensual, quienes por las exigencias y necesidades del servicio que prestan, disfrutarán de su descanso también en forma acumulativa mensual.

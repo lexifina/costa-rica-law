@@ -1,0 +1,2 @@
+Artículo 76. -Como fundamento y. complemento de la presente reglamentación, deben considerarse el Código de Trabajo, la Convención Colectiva y demás leyes, decretos y reglamentos conexos que se hayan emitido o que se emitan en el futuro, con el objeto de regular económica y socialmente las relaciones de servicio con el INCOFER.
+Aprobado por el Consejo Directivo en Sesión N° 16-85, del día 3 de diciembre de 1985.

@@ -1,0 +1,1 @@
+Artículo 30.-Todo servidor quedará obligado a firmar el comprobante donde aparezca la liquidación de tiempo efectivo servido, así como el salario correspondiente que recibe como contraprestación y se pagará al servidor directamente.

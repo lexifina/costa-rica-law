@@ -1,0 +1,1 @@
+Artículo 49.-En el mantenimiento de las estaciones de servicio, se procederá conforme con lo establecido en el Reglamento de Seguridad e Higiene de Trabajo en estaciones de servicio, decreto N° 13 de 10 de octubre de 1962.

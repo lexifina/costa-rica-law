@@ -1,0 +1,2 @@
+Artículo 55.-El servidor que por negligencia, dolo o complacencia, marque la tarjeta que no le corresponda, incurrirá en falta grave, sancionable hasta con ocho días de suspensión. A juicio del INCOFER si reincide dentro de los tres meses siguientes, podrá ser despedido sin responsabilidad patronal.
+Incurrirá en la misma falta y se aplicará igual sanción, al servidor a quien re le compruebe haber consentido para que otra persona marcara su tarjeta.

@@ -1,0 +1,1 @@
+Artículo 74-Este Estatuto se mantendrá expuesto en caracteres fácilmente legibles, por lo menos en dos de los sitios más visibles de cada centro de servicio. Sin perjuicio de lo anterior, podrá también ser imprimido en folletos y distribuido entre los servidores.

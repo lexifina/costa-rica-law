@@ -1,0 +1,1 @@
+Artículo 48.-El peso de los sacos a movilizarse por un trabajador no deberá exceder de 92 kilogramos o 200 libras máximo cuando se trate de productos agrícolas, ni de 80 kilogramos cuando contengan cualquier otra clase de mercancía. La movilización de pesos mayores que los indicados deberá hacerse por medios mecánicos.

@@ -1,0 +1,1 @@
+Artículo 65.-Si el servidor abusare de la facultad que le concede el inciso b) del artículo 40 de este Estatuto, tomando más tiempo del estipulado, se sancionará conforme con lo dispuesto en el artículo 58 sin perjuicio de rebajar el salario en la proporción correspondiente.

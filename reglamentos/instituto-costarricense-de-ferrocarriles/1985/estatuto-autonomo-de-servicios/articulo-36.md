@@ -1,0 +1,14 @@
+Artículo 36.-Fuera de las contenidas en el artículo 71 del Código de Trabajo, de las dispuestas en el Manual Descriptivo de Puestos y en otros artículos de este Estatuto serán obligaciones del servidor:
+a) Prestar los servicios personalmente, en forma regular y continua, cumpliendo con la jornada de servicio que le corresponda;
+b) Comenzar las labores, de conformidad con el horario estipulado exactamente a la hora señalada, no pudiendo abandonarlas ni suspenderlas sin causa justificada antes de haber cumplido su jornada de servicio;
+c) Ejecutar el servicio con la capacidad, dedicación y diligencia que el cargo requiere, aplicando todo su esfuerzo para el mejor desempeño de sus funciones;
+d) Cumplir con la mayor diligencia y buena voluntad las órdenes de sus jefes relativas al servicio y a los deberes que desempeña, ayudando en su servicio a cualquiera de los demás compañeros cuando su Jefe o quien lo represente lo indique;
+e) Atender con diligencia, afán de servicio, corrección y cortesía al público que utiliza los servicios del INCOFER;
+f) Tener convicción de que los objetivos del INCOFER son realizables y de positivo beneficio para el país, guardando lealtad a INCOFER y absteniéndose de actuaciones públicas o privadas que puedan causar algún perjuicio moral o material a la misma;
+g) Guardar absoluta reserva sobre los asuntos privados del INCOFER y la discreción sobre lo relacionado con su servicio que por naturaleza o en virtud de disposiciones legales e instrucciones especiales lo requieran, aún después de haber cesado en el cargo, sin perjuicio de la obligación en que está de denunciar a quien corresponda los hechos incorrectos de que tenía noticia;
+h) Comunicar al INCOFER las observaciones que su experiencia y conocimientos le sugieran para prevenir daños o perjuicios a los interés de la misma, de sus compañeros de servicio y de las personas que eventualmente o permanentemente se encuentran dentro del lugar en donde presta sus servicios.
+i) Observar rigurosamente las medidas preventivas que acuerden las autoridades competentes y las que indique el INCOFER para seguridad y protección personal, de sus compañeros y lugares donde laboran;
+j) Trabajar cuando fuese necesario horas extraordinarias de acuerdo con lo dispuesto en el artículo 16 de este Reglamento;
+k) Asumir la responsabilidad de los desperfectos que sufran las máquinas, los materiales y todos los objetos que tenga bajo su cuidado, cuando hubiese negligencia o imprudencia de su parte. De igual modo por la pérdida de herramientas o implementos de seguridad que tenga bajo su cuidado. En caso de desperfecto de máquinas o de cualquier otro objeto de trabajo, debe de poner el hecho inmediatamente en conocimiento del Jefe inmediato para que sea reparado el daño;
+l) Usar equipos de protección de cualquier clase para evitar los accidentes del servicio;
+m) Cualquier otros derivados, lógicamente de su relación de servicio.

@@ -1,0 +1,1 @@
+Artículo 58.-Las llegadas tardías que excedan de quince minutos y por causa injustificada impedirá al servidor laborar en la respectiva jornada, la cual se calificará y computará como ausencia para efectos de sanción y de no pago de salario.
