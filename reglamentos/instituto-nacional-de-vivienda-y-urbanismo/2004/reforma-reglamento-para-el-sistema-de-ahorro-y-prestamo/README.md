@@ -14,3 +14,4 @@ Reforma Reglamento para el Sistema de Ahorro y Préstamo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-02 | la propia norma |
+| 2 | 2004-03-17 | Reglamento 5360 (2004-03-17) |
