@@ -14,3 +14,4 @@ Nombra Unidad Ejecutora de los Acuerdos adoptados en proceso de negociación ent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-05 | la propia norma |
+| 2 | 1999-08-30 | Decreto Ejecutivo 28209 (1999-08-30) |
