@@ -1,0 +1,2 @@
+Transitorio VI.- Se exceptúan de las disposiciones de esta ley, los predios de la zona marítimo-terrestre, declarada zona urbana del distrito nueve del Cantón Central, provincia de Puntarenas, poseídos por personas, que los hubiesen adquirido legítimamente y que tengan plena posesión de ellos. Previo pago, de una suma alícuota de cinco mil colones por hectárea, a favor del Concejo administrativo municipal de Jacó o del cantón respectivo, cuando así sea ordenado por la ley.
+(Así adicionado por el artículo 1º de la ley N° 6515 del 25 de setiembre de 1980)
