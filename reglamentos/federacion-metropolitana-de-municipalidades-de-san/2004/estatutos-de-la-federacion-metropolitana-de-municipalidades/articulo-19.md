@@ -1,0 +1,4 @@
+CLAUSULA DECIMA NOVENA:
+DEL DIRECTOR EJECUTIVO.
+La Federación tendrá un Director Ejecutivo, que será nombrado por el Concejo Metropolitano, por períodos de tres años, pudiendo ser reelecto. Este funcionario ejercerá las funciones inherentes a la condición de administrador general y jefe de las dependencias de la Federación y debe vigilar la organización, el funcionamiento, la coordinación y el fiel cumplimiento de las leyes, reglamentos y decretos nacionales, el estatuto y los reglamentos de la Federación, los acuerdos de la asamblea y del Concejo Metropolitano.
+Será un funcionario de tiempo completo y su cargo es considerado de confianza. Para ser removido con anticipación al vencimiento del plazo de su nombramiento, se requerirá la aprobación de dos terceras partes de los miembros del Concejo Metropolitano.

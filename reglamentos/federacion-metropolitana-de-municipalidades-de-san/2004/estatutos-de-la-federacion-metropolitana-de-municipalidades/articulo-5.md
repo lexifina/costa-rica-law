@@ -1,0 +1,3 @@
+CLAUSULA QUINTA:
+LAS MUNICIPALIDADES FEDERADAS.
+Además de las municipalidades constituyentes, pueden afiliarse las municipalidades pertenecientes al Área Metropolitana de San José, conforme al procedimiento de afiliación que a continuación se describe: La municipalidad interesada en pertenecer a FEMETROM presentará ante el Concejo Metropolitano la solicitud de afiliación el cual, por mayoría simple, resolverá lo que corresponda. Contra lo resuelto por el Concejo Metropolitano, cabrá únicamente recurso de apelación el cual se planteará ante la Asamblea General Extraordinaria que se convoque al efecto.
