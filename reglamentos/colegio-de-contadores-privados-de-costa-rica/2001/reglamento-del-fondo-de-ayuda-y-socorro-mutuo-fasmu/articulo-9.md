@@ -1,0 +1,3 @@
+SECCIÓN II
+Adelanto en vida por enfermedad en fase terminal
+Artículo 9°—En caso de que el mutualista sufra una enfermedad en fase terminal, con una expectativa de vida de seis meses o menos, debidamente certificada por un médico designado por el Consejo de Administración del FASMU, se otorgará un adelanto equivalente al 25% del auxilio básico que le correspondería al mutualista de conformidad con el artículo 6°, el cual se hará efectivo mediante un solo pago. Este beneficio, como su nombre lo indica, es un adelanto que se deducirá del auxilio básico y se debe cancelar al girarse éste por fallecimiento del mutualista.

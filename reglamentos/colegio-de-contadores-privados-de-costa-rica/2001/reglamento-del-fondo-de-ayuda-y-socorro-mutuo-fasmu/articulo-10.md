@@ -1,0 +1,1 @@
+Artículo 10.—Para su estudio y aprobación del adelanto por enfermedad en fase terminal, el mutualista, o su representante, deberá presentar la solicitud respectiva acompañada de la certificación médica en que se indique la naturaleza de la enfermedad (diagnóstico y evolución), emitida en el centro hospitalario donde el solicitante sigue su tratamiento.

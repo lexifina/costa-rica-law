@@ -1,0 +1,1 @@
+Artículo 33.—El Consejo de Administración del FASMU deberá presentar a la Junta Directiva un informe económico-financiero anual y el presupuesto para el siguiente periodo, con ocasión de la Asamblea General Extraordinaria de Presupuesto convocada por la Junta Directiva del Colegio.

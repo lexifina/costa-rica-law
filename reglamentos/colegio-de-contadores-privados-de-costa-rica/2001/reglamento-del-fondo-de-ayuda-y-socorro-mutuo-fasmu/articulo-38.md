@@ -1,0 +1,1 @@
+Artículo 38.—Los directores del Consejo devengarán dieta por cada sesión, en un porcentaje del 75% (setenta y cinco por ciento) de lo que reciben por el mismo concepto los miembros de la Junta Directiva del Colegio.

@@ -1,0 +1,2 @@
+2°—Para aquellos mutualistas que no se acogieron al beneficio de 1.100.000,00 aprobado en marzo del 2000, gozarán de un plazo de noventa días naturales para acogerse a este beneficio a partir de la publicación en el Diario Oficial La Gaceta, retroactivo a partir del mes de marzo del año 2000.
+1 - La Asamblea General autoriza a la Junta Directiva para que se publique este Reglamento en el diario oficial La Gaceta.

@@ -1,0 +1,2 @@
+Artículo 17.—Para cubrir la indemnización por incendio casual establecida en el artículo anterior se creará un disponible, mediante un aporte mensual por parte de cada mutualista, que se incluirá en el recibo mensual de la colegiatura.
+Si el estudio actuarial indica que el monto disponible supera las necesidades para el otorgamiento de este beneficio, con base en una baja siniestralidad, el excedente pasará a formar parte de la reserva general del FASMU.

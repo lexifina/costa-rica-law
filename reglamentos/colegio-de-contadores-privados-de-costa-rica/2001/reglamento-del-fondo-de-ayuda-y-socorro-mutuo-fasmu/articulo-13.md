@@ -1,0 +1,1 @@
+Artículo 13.—Para hacer efectivo el cobro de este beneficio el mutualista, a partir del momento en que alcance la edad indicada, deberá presentar la solicitud respectiva en el formulario oficial que le facilitará el FASMU.

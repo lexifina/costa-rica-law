@@ -1,0 +1,2 @@
+Artículo 31.— Anulado.
+(Por resolución de la Sala Constitucional N° 7181 de las 15:05 hrs de 2005, se anula el presente artículo cuyo texto disponía: "Puede reincorporarse al FASMU únicamente aquel ex mutualista no mayor de cincuenta años de edad, cuyo reingreso se considerará como nuevo ingreso y, por lo tanto, a partir de éste, se iniciará el cómputo de cuotas para adquirir derecho a los beneficios, conforme lo establecido en el artículo 6 de este Reglamento, sin que puedan computarse a su favor las cuotas que hubiera pagado antes de su reingreso").
