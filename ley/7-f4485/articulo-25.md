@@ -1,0 +1,1 @@
+Art 25° Los alumnos libres estarán igualmente sujetos a los reglamentos, menos en lo tocante a la puntual asistencia a las clases pudiendo hacerlo a voluntad, pero no tendrán derecho a obtener premios ni títulos, ni están sujetos a examen.

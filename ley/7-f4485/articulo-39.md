@@ -1,0 +1,1 @@
+Art 39° Serán premiados con el diploma de 1° clase, los alumnos que, además de obtener en todas las asignaturas un promedio de 1, sean merecedores a juicio del Director y del profesor respectivo, de tan honrosa distinción.
