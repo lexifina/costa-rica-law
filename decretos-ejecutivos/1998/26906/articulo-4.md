@@ -1,0 +1,1 @@
+Artículo 4°—En el Bachillerato por Madurez Suficiente, las pruebas versarán sobre los contenidos de los temarios oficiales para los Exámenes de Bachillerato en la Educación Media , correspondiente a las asignaturas de Español, Estudios Sociales, Física, Química, Biología, Matemática, Inglés, Francés, aprobados por el Consejo Superior de Educación.

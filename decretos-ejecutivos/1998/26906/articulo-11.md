@@ -1,0 +1,1 @@
+Artículo 11.—-Las modificaciones sucesivas que sean aprobadas por el Consejo Superior de Educación en relación con los criterios de promoción y los cambios eventuales que se realicen en los Temarios Unificados para las diferentes pruebas de acreditación del sistema formal regular, serán vinculantes para esta normativa de los Programas de Educación Abierta.

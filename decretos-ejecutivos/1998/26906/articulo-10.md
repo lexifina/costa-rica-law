@@ -1,0 +1,1 @@
+Artículo 10.—Las asignaturas aprobadas en las convocatorias de las diferentes modalidades de exámenes de bachillerato serán reconocidas y equiparadas, indistintamente, en el Bachillerato por Madurez Suficiente, Bachillerato de Educación Diversificada a Distancia y el Bachillerato en Enseñanza Media Formal Regular, de acuerdo con los requisitos establecidos para los postulantes.

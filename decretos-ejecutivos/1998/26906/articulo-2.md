@@ -1,0 +1,1 @@
+Artículo 2°—En el III Ciclo de la Educación General Básica Abierta, versarán sobré los contenidos de los temarios oficiales del III Ciclo de la Educación General Básica Diurna, correspondientes a las asignaturas de Español, Estudios Sociales, Ciencias, Matemática, Inglés y Formación Ciudadana, aprobados por el Consejo Superior de Educación.

@@ -1,0 +1,1 @@
+Artículo 3°—En el Bachillerato de Educación Diversificada a Distancia las pruebas versarán sobre los contenidos de los temarios oficiales para los Exámenes de Bachillerato en la Educación Media , correspondiente ,a las asignaturas de Español, Estudios Sociales, Física, Química, Biología, Matemática e Inglés, aprobados por, el Consejo Superior de Educación.
