@@ -1,0 +1,1 @@
+Artículo 2º—Se debe restringir la comercialización e internamiento al país del brócoli que no cumpla con las exigencias relativas a podredumbre, según lo establecido en la Tabla 1, del apartado 4 de Especificaciones.
