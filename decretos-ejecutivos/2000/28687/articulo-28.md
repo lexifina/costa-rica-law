@@ -1,1 +1,2 @@
-Artículo 28.—Al funcionario que tenga pendiente una liquidación de un anticipo de dinero, no se le tramitará otro hasta tanto no liquide el pendiente.
+Artículo 28.—Al funcionario que tenga pendiente una liquidación de un anticipo de dinero, no se le tramitará otro hasta tanto no lo liquide. Sin embargo, la Jefatura de Financiero excepcionalmente podrá autorizar trámites adicionales a pesar de presentarse la circunstancia antes descrita, previa justificación del Departamento o Dirección involucrada y exclusivamente ante necesidades de extrema urgencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32484 del 20 de mayo del 2004)

@@ -14,3 +14,4 @@ Reglamento de Fondo de Caja Chica para el Consejo de Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-15 | la propia norma |
+| 2 | 2004-05-20 | Decreto Ejecutivo 32484 (2004-05-20) |
