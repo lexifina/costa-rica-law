@@ -3,5 +3,5 @@ Artículo 5º.-
 extenderá al conocimiento y decisión de las cuestiones prejudiciales o
 incidentales no pertenecientes a la materia, directamente relacionadas con
 un juicio contencioso-administrativo, salvo las de carácter penal.
-2. La decisión que pronuncie, no producirá efecto fuera del proceso
+2. L a decisión que pronuncie, no producirá efecto fuera del proceso
 en que se dicte, y podrá ser revisada por la jurisdicción correspondiente.

@@ -1,6 +1,6 @@
-Artículo 8º.- Además de lo previsto al respecto en la Ley Orgánica
-del Poder Judicial, los Jueces de lo contencioso-administrativo estarán
-sujetos a lo siguiente:
+Artículo 8º.- Además de lo previsto al respecto en la Ley Orgánica del
+Poder Judicial, los Jueces de lo contencioso-administrativo estarán sujetos
+a lo siguiente:
 a) Será motivo de impedimento el haber dictado el acto o disposición
 impugnados o haber contribuido a dictarlos; y
 b) Podrán ser recusados cuando tengan parentesco, dentro del cuarto
