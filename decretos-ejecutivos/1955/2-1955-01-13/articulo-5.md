@@ -1,0 +1,1 @@
+Artículo 5°—Para la adjudicación de las viviendas, la Junta Directiva se basará en los estudios que, sobre necesidad social, haya realizado el Departamento de Servicio Social y Estadística, estudios que se prepararán, considerando la mayor necesidad social de los solicitantes, así como su posibilidad de satisfacer en forma regular los pagos .

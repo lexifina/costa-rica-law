@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el adquiriente hubiere cubierto el 50% del valor, se le otorgará escritura pública de propiedad, inscribible en el Registro, garantizándose el saldo con hipoteca de primer grado en favor del Instituto.

@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 2-1955-01-13
+
+Reglamento para la Adjudicación de Vivienda del Instituto Nacional de Vivienda y Urbanismo.
+
+- Tipo: Decreto Ejecutivo
+- Número: 2
+- Fecha: 1955-01-13
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 16 del 1955-01-21
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=51382&param2=55507&param3=1 (ficha 51382)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1955-01-21 | la propia norma |

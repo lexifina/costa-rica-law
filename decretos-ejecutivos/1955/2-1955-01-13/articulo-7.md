@@ -1,0 +1,1 @@
+Artículo 7°—La Junta Directiva determinará el plazo de venta y tipo de interés que corresponda a cada categoría, y, con base en ellos, el Departamento Financiero calculará las cuotas mensuales que correspondan. No obstante lo anterior, el adjudicatario podrá hacer abonos a la deuda o cancelarla en su totalidad en cualquier fecha, antes del vencimiento.
