@@ -1,0 +1,1 @@
+Artículo 5º—Las modificaciones salariales de los puestos citados en el artículo 2, se ajustarán cada vez que se efectúen aumentos y cambios en los pluses salariales que se aprueben en el Poder Judicial, previa autorización de la Dirección General de Servicio Civil.
