@@ -14,3 +14,4 @@ Modifica Límite Presupuestario y Efectivo del Instituto de Fomento y Asesoría 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
+| 2 | 2001-09-17 | Decreto Ejecutivo 29822 (2001-09-17) |

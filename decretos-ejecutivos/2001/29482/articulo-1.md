@@ -11,3 +11,4 @@ Considerando:
 6º—Que es necesario ampliar al IFAM, los límites de gasto presupuestario y efectivo, a fin que cumpla con los objetivos indicados. Por tanto,
 Decretan:
 Artículo 1º—Modifícanse para el Instituto de Fomento y Asesoría Municipal, los límites de gasto presupuestario y efectivo para el año 2001, establecidos en el Decreto Ejecutivo N° 28962-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ¢1.173.9 millones, en ese período.
+(Modificado por el artículo 1, del Decreto Ejecutivo Nº 29822 del 17 de setiembre del 2001)
