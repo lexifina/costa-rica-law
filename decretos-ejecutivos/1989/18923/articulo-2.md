@@ -1,0 +1,1 @@
+Artículo 2°- En dicho sentido y para todo lo que corresponda en relación con las indemnizaciones que debe reconocer el Poder Ejecutivo, de conformidad con la ley se tomarán en cuenta los avalúos que sobre el particular hubiere realizado el Instituto de Desarrollo Agrario.
