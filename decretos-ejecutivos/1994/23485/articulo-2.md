@@ -1,0 +1,4 @@
+Artículo 2º.-Se entiende por "Ejecución pública de obras musicales",
+la interpretación hecha por músicos que actúan "en vivo", o las
+audiciones o presentaciones hechas con uso de fonogramas, de filmes, de
+videos sonoros u otros medios.

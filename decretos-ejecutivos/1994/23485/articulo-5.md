@@ -1,0 +1,7 @@
+Artículo 5º.-Todo empresario organizador de espectáculos públicos
+con actividad no permanente en que se presenten artistas y en los que se
+ejecute, por cualquier medio, música de repertorio nacional o extranjero,
+en conciertos, ferias, turnos, actos en locales cerrados o abiertos, o en
+la vía pública, con pago o sin pago de entrada, deberá igualmente
+solicitar, obtener y exhibir, ante la autoridad que se lo solicitare, la
+autorización para hacer uso del repertorio.
