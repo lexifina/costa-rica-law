@@ -14,3 +14,4 @@ Reglamento General de Contrataciones de RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-26 | la propia norma |
+| 2 | 2003-11-20 | Reglamento 3800 (2003-11-20) |
