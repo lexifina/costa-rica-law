@@ -14,3 +14,4 @@ Anexo A a Convenio de Financiación entre las Comunidades Europeas y las Repúbl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-29 | la propia norma |
+| 2 | 1998-08-29 | Decreto Ejecutivo 26780 (1998-02-02) |
