@@ -1,0 +1,1 @@
+Artículo 5º.- Si por la distribución del trabajo y para el mejor servicio público, la Corte convierte una Agencia Judicial en Alcaldía Penal o una Alcaldía en Juzgado Penal, los asuntos que esté conociendo la respectiva oficina pasarán a otra u otras de la misma categoría.

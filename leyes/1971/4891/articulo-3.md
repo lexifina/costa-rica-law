@@ -1,0 +1,1 @@
+Artículo 3º.- Los hechos cometidos con anterioridad a la fecha en que entre a regir el nuevo Código Penal, serán de conocimiento de las autoridades que tengan competencia conforme a las leyes vigentes a la fecha en que esos hechos ocurrieron, sin perjuicio de la distribución que haga la Corte y de lo que se dispondrá adelante sobre los Delegados de la Guardia de Asistencia Rural.

@@ -1,0 +1,1 @@
+Artículo 2º.- Los Delegados de la Guardia de Asistencia Rural, de los cantones o distritos no sometidos a la jurisdicción de una Agencia Judicial, conocerán de las contravenciones previstas en el Libro Tercero del nuevo Código, mientras el Poder Judicial no asuma el conocimiento de esos asuntos en el correspondiente territorio.

@@ -1,0 +1,2 @@
+Artículo 9º.- Los asuntos pendientes de fallo y las diligencias de pensión alimenticia que se encuentren sin resolver o en etapa de ejecución de sentencia, de que estén conociendo los delegados Cantonales de la Guardia de Asistencia Rural, pasarán a conocimiento de las Agencias Judiciales establecidas en la cabecera del mismo cantón, tan pronto como esas Agencias empiecen sus labores.
+Los demás asuntos ya resueltos con sentencia, continuarán bajo la jurisdicción del Delegado Cantonal, para todo lo que proceda.

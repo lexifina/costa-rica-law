@@ -1,0 +1,1 @@
+Artículo 12.- Contra los fallos dictados por los Jueces Penales en segunda instancia, se dará el recurso de casación con arreglo al artículo 612 del Código de Procedimientos Penales, siempre que impongan prisión no menor a un año, o pena no inferior a sesenta días multa, o cuando el equivalente de los días multa sea superior a los mil colones.
