@@ -1,0 +1,1 @@
+Artículo 2°—Vencido el plazo indicado en el artículo anterior, los transportistas podrán solicitar el otorgamiento del permiso que corresponda, atendiendo al tipo de producto a transportar, ajustándose a la totalidad de la normativa contenida en el Decreto Ejecutivo No 24813-MINAE.
