@@ -1,0 +1,1 @@
+Art. 2. Los que fallecieren sin dejar herederos forzosos o legitimos ascendientes à descendientes, pueden disponer del tercio de sus bienes en favor de su alma de las de los difuntos, y del' resto conforme les convenga con arreglo à las leyes.
