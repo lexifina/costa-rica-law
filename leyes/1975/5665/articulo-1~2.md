@@ -1,0 +1,4 @@
+CAPÍTULO III
+Clasificación de Establecimientos Comerciales
+Artículo 12.- Los restaurantes, hoteles, lugares de diversión y centros turísticos serán clasificados en categorías por el Departamento de Comercio Interior del Ministerio de Economía, Industria y Comercio, con el fin de establecer porcentajes de utilidad y fijar precios máximos. Para tal efecto, el Departamento mencionado coordinará sus actividades con el Instituto Costarricense de Turismo.
+Dentro de los quince días siguientes a la publicación oficial, los propietarios de los citados establecimientos o sus representantes legales podrán apelar la clasificación oficial y el Ministro de Economía, Industria y Comercio estará en la obligación de revisar lo actuado, pudiendo confirmar la categoría o modificar la resolución administrativa recurrida, dentro de los quince días siguientes a la apelación.
