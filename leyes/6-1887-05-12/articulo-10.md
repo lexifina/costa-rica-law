@@ -1,0 +1,4 @@
+ARTICULO X.
+En caso de que decida por el laudo arbitral que el tratado de límites es válido, los Gobiernos contratantes, dentro de los noventa días siguientes á aquel en que sean notificados de la sentencia, nombrarán cuatro comisionados, dos cada uno, que practiquen las medidas correspondientes á la línea divisoria, establecida en el artículo 2º. del referido tratado de 15 de abril de 1858.
+Estas medidas y el amojonamiento que á ellas es consiguiente se practicarán dentro de treinta meses contados desde el día en que sean nombrados los comisionados.
+Estos comisionados tendrán la facultad de apartarse de la línea fijada por el tratado, en interés de buscar límites naturales ó más fácilmente distinguibles, hasta una milla; pero esta desviación sólo podrá hacerse cuando todos los comisionados se pongan de acuerdo en el punto ó puntos que han de sustituir la línea.

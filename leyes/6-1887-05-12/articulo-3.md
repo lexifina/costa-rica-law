@@ -1,0 +1,2 @@
+ARTICULO III.
+En el inesperado caso de que el señor Presidente de los Estados Unidos no se digne aceptar, las partes nombran para árbitro al señor Presidente de la República de Chile, cuya aceptación se solicitará por los Gobiernos contratantes dentro de noventa días, contados desde aquel en que el señor Presidente de los Estados Unidos notifique su excusa á ambos Gobiernos ó á sus representantes en Wáshington.
