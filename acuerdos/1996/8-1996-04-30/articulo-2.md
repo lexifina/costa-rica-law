@@ -1,0 +1,1 @@
+2. Autorizar al Superintendente General de Entidades Financieras para que, en el tanto no infrinja la legislación vigente, modifique, cuando así lo demanden las circunstancias, los plazos, medios de divulgación y formatos de las publicaciones precitadas, informando al Consejo Directivo del cambio operado.
