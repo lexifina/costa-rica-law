@@ -1,0 +1,1 @@
+3°-Para estos efectos, tanto los mayoristas como los minoristas, venderán los productos citados como exentos del impuesto de ventas y no tendrán derecho a aplicar como crédito fiscal ningún monto por concepto de impuesto de ventas pagado en las compras de las mercancías citadas.

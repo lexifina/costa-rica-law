@@ -1,0 +1,1 @@
+4 °-Los porcentajes de utilidad de la comercialización, del cuarenta y tres coma setenta y cinco por ciento (43,75%) Y del sesenta y nueve por ciento (69%), podrán ser modificados en caso de que la Dirección General de la Tributación Directa así lo disponga, fundamentada en el estudio correspondiente.
