@@ -1,0 +1,2 @@
+Art. 4°-Los juicios civiles ó criminales pendientes el 19 de enero de 1888 ante los Juzgados de Hacienda Nacional, de Hacienda Municipal, Auditorías de Guerra, Juzgados Militares y Alcaldía de Hacienda, pasarán respectivamente al conocimiento de los Jueces Civiles y del Crimen y Alcaldes de la provincia ó cantón donde estén radicados.
+Al Juzgado de lo Contencioso-administrativo pasarán los asuntos administrativos ó contencioso-administrativos que existan en el Juzgado de Hacienda Nacional.
