@@ -1,4 +1,5 @@
-Artículo 4º—Características del tipo de casco permitido. Se permitirá en la circulación por vía terrestre, pública o abierta al uso del público, el uso de cascos a que se refiere el artículo 1º que reúnan las siguientes características:
-a) Sólo los cascos del tipo “jet” o abiertos, es decir, sin elementos o dispositivos que cubran el mentón ni otras partes del rostro.
-b) Con visera y/o pantalla, o sin estos dispositivos, pero en caso de tenerlos, la visera no debe cubrir el rostro. La pantalla, por su parte, debe ser clara, con un 100% de transparencia libre, sin rayones ni elementos que dificulten la visibilidad a través de ella. No se permitirá el uso de cascos con pantallas ahumadas, sean oscuras, de iridium, de colores, de tipo espejo, o de cualquier forma y estilo que impida o dificulte visualizar, distinguir e identificar el rostro de quien lo usa.
-c) Que la sujeción o ajuste del casco se realice por debajo del mentón, sin cubrir parte alguna del rostro.
+Artículo 4°—Características del tipo de casco permitido. Solo se permitirá en la circulación por vía terrestres, pública o abierta al uso del público, el uso de cascos a que se refiere el artículo 1° que reúnan las siguientes características:
+a) Casco con las características del tipo integral, que cuando menos cubra toda la cabeza, sea cerrado y con visera y/o pantalla.
+b) Casco con las características del tipo modular, que cuando menos cubra toda la cabeza, pero al que se puede abrir la zona del mentón o parte delantera.
+c) La visera y/o pantalla deberá tener un 100% de transparencia libre, sin rayones ni elementos que dificulten la visibilidad a través de ella. No se permitirá el uso de cascos con pantallas ahumadas, sean oscuras, de iridium, de colores, de tipo espejo, o de cualquier forma y estilo que impida o dificulte visualizar, distinguir e identificar el rostro de quien lo usa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32145 del 29 de noviembre del 2004)

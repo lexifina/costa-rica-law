@@ -14,3 +14,4 @@ Reglamento de disposiciones básicas para el uso de casco al circular por vías 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-04 | la propia norma |
+| 2 | 2004-12-04 | Decreto Ejecutivo 32145 (2004-11-29) |
