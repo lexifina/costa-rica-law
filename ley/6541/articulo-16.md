@@ -1,8 +1,3 @@
-Artículo 16.- El Ministerio de Educación Pública, deberá financiar, de
-su presupuesto, a las instituciones de educación superior parauniversitaria
-oficiales.
-Esas instituciones deberán presentar sus proyectos de presupuesto, a
-más tardar el 30 de abril del año inmediato anterior a su vigencia,
-elaborados de objetivos, para que puedan ser evaluados, aprobados o
-modificados por el Consejo Superior de Educación, antes de ser remitidos a
-la Contraloría General de la República.
+Artículo 16.- Los presupuestos ordinarios de los colegios universitarios de Costa Rica, y sus modificaciones, serán tramitados por la Autoridad Presupuestaria de conformidad con la ley Nº 6821 del 19 de octubre de 1982, por la Contraloría General de la República, y por MIDEPLAN, en lo que corresponda.
+Dichos colegios remitirán copia de sus presupuestos ordinarios y de sus modificaciones al Consejo Superior de Educación.
+(Así reformado por el artículo 118 de la Ley Nº 7015 de 22 de noviembre de 1985).
