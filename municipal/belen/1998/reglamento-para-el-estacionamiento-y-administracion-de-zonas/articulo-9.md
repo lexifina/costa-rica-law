@@ -1,0 +1,1 @@
+Artículo 9°—Del destino de la tasa: El producto de la tasa de estacionamiento será invertido en el pago de los gastos administrativos y de vigilancia que genere el sistema de estacionamiento, en la construcción y mantenimiento de vías públicas o en obras de beneficio comunal.

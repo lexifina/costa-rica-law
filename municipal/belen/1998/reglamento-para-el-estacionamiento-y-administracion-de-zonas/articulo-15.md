@@ -1,0 +1,1 @@
+Artículo 15.—De las multas: Quien incurra en cualquiera de las infracciones señaladas por el artículo anterior estará obligado a pagar una multa, que consistirá en el pago de diez veces el valor de la tasa por hora. Esta multa podrá ser cancelada dentro de las 48 horas siguientes en la tesorería municipal o en la forma y lugar de pago que la municipalidad establezca.

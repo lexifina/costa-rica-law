@@ -1,0 +1,1 @@
+Artículo 19.—De los entes colaboradores. Para el cumplimiento de la ley de estacionamientos, la Municipalidad y la Dirección General del Tránsito tomará las medidas pertinentes en estrecha y efectiva colaboración y sus delegados estarán investidos de autoridad para lo que atañe a las actuaciones oficiales a ese respecto.
