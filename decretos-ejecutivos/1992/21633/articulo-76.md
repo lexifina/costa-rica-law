@@ -1,2 +1,0 @@
-Artículo 76.—Pueden acogerse excepcionalmente al Régimen de Dedicación Exclusiva o mantener este beneficio, aquellos servidores a quienes se les permita laborar media jornada, siempre que firmen una declaración jurada en la que consta que el resto del tiempo lo dedicarán a labores domésticas propias, comunicándolo por escrito al Departamento de Personal de MIDEPLAN.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

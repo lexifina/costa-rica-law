@@ -1,2 +1,0 @@
-Artículo 140.—Transcurrido el plazo de traslado de la denuncia establecida en el artículo 139, el Órgano Director dentro de un término que no podrá exceder de cinco días hábiles, dictará resolución mediante la cual hará comparecer a las partes involucradas a una audiencia oral y privada, y ordenará recibir las probanzas que considere admisibles, con inclusión de declaraciones de testigos ofrecidos.
-(Así adicionado por el artículo 3° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)

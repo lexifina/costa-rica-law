@@ -1,1 +1,0 @@
-Artículo 28.—Los servidores estarán obligados al desempeño de sus cargos durante todos los días hábiles y las horas reglamentarias. No se podrán conceder prerrogativas o licencias que autoricen una asistencia irregular, con excepción de lo establecido específicamente en este Reglamento y el Código de Trabajo.

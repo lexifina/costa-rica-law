@@ -1,2 +1,0 @@
-Artículo 77.—Los servidores que disfruten del beneficio de la Dedicación Exclusiva, pueden renunciar a dicho régimen, comunicándolo por escrito al Departamento de Personal de MIDEPLAN, con un mes de anticipación como mínimo, y no podrán suscribir nuevos contratos en un período de dos años después de haber presentado sus renuncias. Si renunciaran por segunda vez, no podrán volver a acogerse a dicho régimen.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

@@ -1,4 +1,0 @@
-Artículo 43.—La prestación del servicio se tendrá por suspendida por las licencias con goce de salario o sin él, enfermedad del servidor, o cualquier otra causa legal de suspensión de la relación de servicio, salvo lo dispuesto en el párrafo tercero de este artículo.
-Es entendido que la continuidad laboral no se afecta por las causas antes señaladas, de manera que el servidor mantiene a su favor el tiempo de servicios prestados antes de la suspensión mencionada.
-La prestación efectiva de servicio, no se tendrá por suspendida por las licencias que se conceden a las servidoras por concepto de maternidad y por adoptar un niño menor de tres años, según lo establecido por el inciso d) del artículo 52 de este Reglamento.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

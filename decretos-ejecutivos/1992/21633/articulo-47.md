@@ -1,1 +1,0 @@
-Artículo 47.—Queda prohibido acumular las vacaciones. Sin embargo, estas podrán acumularse hasta por un período anual, cuando los servidores desempeñen labores de dirección, técnicas u otras análogas que dificulten especialmente su reemplazo.

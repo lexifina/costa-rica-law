@@ -1,1 +1,0 @@
-Artículo 100.—No se considerará la calificación de servicios para efectos de que los servidores puedan acogerse al beneficio por carrera profesional. No obstante lo anterior, para cualquier ajuste posterior los servidores deberán haber obtenido una calificación no inferior a "Muy Bueno", durante el período anterior al momento de la evaluación del ajuste correspondiente.

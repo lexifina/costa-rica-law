@@ -1,6 +1,0 @@
-Artículo 78.—Habrá incumplimiento por parte de los servidores cuando realicen acciones contrarias a lo estipulado en el presente capítulo o en el Contrato de Dedicación Exclusiva, lo cual acarreará las siguientes sanciones.
-a) La resolución inmediata del contrato y el reintegro al Estado de las sumas otorgadas por concepto de Dedicación Exclusiva, cuando se incumpla lo establecido en el artículo 70. En estos casos, los servidores no podrán firmar nuevos contratos dentro de un período de dos años a partir de la fecha de dicha resolución.
-b) Amonestación por escrito, para los servidores que se acojan a las excepciones que se indican en el artículo 74, inciso c), y no cumplan con el procedimiento que para ello se establece en el artículo 75.
-c) Suspensión por ocho días en casos de que incurran por segunda vez en la falta señalada en el inciso anterior.
-d) El despido se aplicará, sin responsabilidad para el Estado, a los servidores que hagan incurrir en error al Departamento de Personal de MIDEPLAN en la recepción indebida de los requisitos que señala el artículo 65, inciso a) y cuando por segunda vez, infrinjan lo estipulado en el artículo 70, por considerarse faltas graves.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

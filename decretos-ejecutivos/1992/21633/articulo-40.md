@@ -1,1 +1,0 @@
-Artículo 40.—Los servidores tendrán derecho a un salario adicional en el mes de diciembre, por concepto de aguinaldo, en los términos y condiciones establecidos por la ley N° 1835 del 11 de diciembre de 1954.

@@ -1,1 +1,0 @@
-Artículo 115.—Los servidores están en la obligación de comunicar a su jefe inmediato los hechos que merezcan sanciones disciplinarias y de los cuales tengan conocimiento con ocasión del ejercicio de sus cargos.

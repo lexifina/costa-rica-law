@@ -1,1 +1,0 @@
-Artículo 98.—Para el cálculo de la experiencia laboral profesional no se deducirán las licencias con o sin goce de salario obtenidas para realizar estudios, siempre que dichos estudios estén relacionados con la especialidad del puesto.

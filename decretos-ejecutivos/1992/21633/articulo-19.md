@@ -1,1 +1,0 @@
-Artículo 19.—El nombramiento de los servidores se efectuará sobre la base de una terna o nómina elaborada con los resultados obtenidos en un concurso de oposición y antecedentes o bien, por ascenso a las categorías inmediatas superiores. Tales nombramientos o ascensos deberán realizarse respetando los requisitos que sobre el particular establezca el Manual Descriptivo de Clases.

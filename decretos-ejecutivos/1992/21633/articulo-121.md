@@ -1,1 +1,0 @@
-Artículo 121.—Las amonestaciones verbales y los apercibimientos escritos deberán imponerse dentro de los ocho días posteriores a aquel en el que se cometió la falta, o bien, desde aquel en que esta fuere de conocimiento del Departamento de Personal de MIDEPLAN.

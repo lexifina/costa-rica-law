@@ -1,2 +1,0 @@
-Artículo 67.—El Departamento de Personal de MIDEPLAN deberá comprobar el cumplimiento de los requisitos establecidos y aprobar o improbar las solicitudes correspondientes. Cuando resulten aprobadas ordenará la confección de los contratos respectivos, que serán remitidos ante el Ministerio para su aprobación definitiva.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 23292 del 11 de marzo de 1994)

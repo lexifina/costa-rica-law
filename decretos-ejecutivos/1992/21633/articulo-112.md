@@ -1,1 +1,0 @@
-Artículo 112.—Será aceptado el ingreso al régimen por carrera profesional a aquellos servidores profesionales que ocupen nombramiento por tiempo determinado, si su duración fuera mayor de seis meses, en forma acumulativa e ininterrumpida.

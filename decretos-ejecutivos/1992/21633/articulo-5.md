@@ -1,1 +1,0 @@
-Artículo 5°—El personal de la UEP será nombrado para prestar sus servicios a ésta por tiempo indeterminado y de acuerdo con el procedimiento de selección estipulado en el capítulo IV de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 97.—La experiencia laboral de los servidores acumulada hasta un máximo de cuatro años, durante los cuales hayan ostentado la condición de bachilleres o de egresados de una carrera con grado de licenciatura, podrá ser reconocida cuando el puesto que ocuparon en el transcurso de dicha experiencia sea posteriormente reasignado a una clase de nivel profesional o cuando sean nombrados en un puesto de nivel profesional.
-(Así reformado por el artículo 2° del decreto ejecutivo N° 22497 del 12 de agosto de 1993)

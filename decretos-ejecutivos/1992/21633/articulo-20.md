@@ -1,1 +1,0 @@
-Artículo 20.—El concurso de oposición y antecedentes se iniciará con la publicación del aviso correspondiente en uno de los periódicos de mayor circulación nacional, en el cual se detallarán los requisitos académicos y de experiencia necesarios para participar, el plazo para recibir ofertas y demás datos que fueren de interés al efecto.

@@ -1,1 +1,0 @@
-Artículo 110.—La concesión inicial del beneficio por carrera profesional tendrá vigencia a partir del primer día del mes siguiente a la fecha en que fueren recibidas las respectivas solicitudes en el Departamento de Personal de MIDEPLAN. El beneficio por carrera profesional, para efectos de pago, será proporcional a la jornada de trabajo de los servidores.
