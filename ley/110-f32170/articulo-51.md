@@ -1,0 +1,1 @@
+ARTÍCULO 51.-En los pueblos distantes pueden formarse medios batallones y compañías sueltas, según la población de aquellos, cuya fuerza se destinará a la composición de batallones y regimientos o a depósitos con el fin de reemplazar las bajas.

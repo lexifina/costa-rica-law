@@ -1,0 +1,1 @@
+ARTÍCULO 41.-La infantería arreglará su instrucción y maniobras a lo que previene la táctica de 1808, y la caballería a la de 1818.-La puntería se enseñará con arreglo a la teoría consignada en el curso militar de Jacquinot.

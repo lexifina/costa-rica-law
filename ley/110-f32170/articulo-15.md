@@ -1,0 +1,1 @@
+ARTÍCULO 15.-La plana mayor se compondrá de un coronel o teniente coronel, de un ayudante graduado de capitán o de clase de teniente, de un corneta mayor y un tambor de órdenes, de dos armeros y de dos jefes u oficiales guarda-parques.

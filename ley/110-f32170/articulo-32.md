@@ -1,0 +1,1 @@
+ARTÍCULO 32.-Los generales de brigada usarán pantalón azul turquí con franja de oro, casaca larga del mismo color, bordados en oro cuello y la solapa, las botamangas y faldas; charreteras de canelón grueso con una estrella de plata en cada pala, sombrero apuntado, faja celeste con borlas de oro y espada corta.

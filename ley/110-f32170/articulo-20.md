@@ -1,0 +1,1 @@
+ARTÍCULO 20.-Los generales, jefes y oficiales de los estados mayores recibir n diariamente en campaña las siguientes raciones de caballo. El General en jefe cuatro, los generales de división y de brigada tres, los coroneles y tenientes coroneles dos, y los adjuntos y escribientes una y los edecanes según la clase a que pertenecieren.
