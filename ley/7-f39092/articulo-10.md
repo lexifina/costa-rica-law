@@ -1,0 +1,1 @@
+Art 10°.- En el libro de datas de caudal, serán buenas en la Administración de Liberia las siguientes.-1° Horario de ventas.- 2°.- Flete del licor, 3°.- Sueldo del Administrador.- 4°.- Gastos extraordinarios con aprobación previa de la Intendencia general.- 5°.- Enteros a la Administración principal o pago hecho en virtud de orden expresa del Gobierno.-

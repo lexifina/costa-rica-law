@@ -1,0 +1,1 @@
+Art 5°.- El licor será dado a la venta pública a razón de dos i medio reales la botella de 21 grados de fortaleza, cuidando los Administradores que la medida sea exacta y que no se adultere la calidad.
