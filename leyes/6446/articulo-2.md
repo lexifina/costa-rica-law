@@ -1,0 +1,1 @@
+Artículo 2°—Autorízase al Banco Central de Costa Rica para que administre el Fondo de Desarrollo Industrial y para que canalice la operación de estos recursos por medio de los bancos comerciales del Estado y de CODESA.

@@ -1,0 +1,1 @@
+Artículo 4°—Esta aprobación del contrato de garantía excluye, expresamente, la mención que se hace a la ley del FODEIN, en el artículo III, Sección 3.01, inciso a), inciso b) e inciso c): Sección 3.03 y artículo V, Sección 5.01,inciso b)
