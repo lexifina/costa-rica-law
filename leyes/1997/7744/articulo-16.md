@@ -1,12 +1,3 @@
-ARTÍCULO 16.- Autorización municipal
-Para la cesión total o parcial, el gravamen de las obligaciones y los
-derechos derivados de la concesión se requerirá previamente la
-autorización de la municipalidad, según lo indica el artículo 45 de la Ley
-No. 6043. Esta autorización se otorgará siempre que el cedente haya
-cumplido con todas sus obligaciones y el cesionario reúna al menos, los
-mismos requisitos exigidos al cedente. Ningún acto de esta naturaleza
-podrá emitirse válidamente, sin que antes se haya demostrado,
-fehacientemente, la última situación indicada.
-La cesión, total o parcial, o el gravamen que haga el concesionario
-sin la autorización previa de la municipalidad serán absolutamente nulas
-e implicarán causales para la caducidad de la concesión.
+Artículo 16.- Autorización municipal
+Para la cesión total o parcial, el gravamen de las obligaciones y los derechos derivados de la concesión se requerirá previamente la autorización de la municipalidad, según lo indica el artículo 45 de la Ley No. 6043. Esta autorización se otorgará siempre que el cedente haya cumplido con todas sus obligaciones y el cesionario reúna al menos, los mismos requisitos exigidos al cedente. Ningún acto de esta naturaleza podrá emitirse válidamente, sin que antes se haya demostrado, fehacientemente, la última situación indicada.
+La cesión, total o parcial, o el gravamen que haga el concesionario sin la autorización previa de la municipalidad serán absolutamente nulas e implicarán causales para la caducidad de la concesión.
