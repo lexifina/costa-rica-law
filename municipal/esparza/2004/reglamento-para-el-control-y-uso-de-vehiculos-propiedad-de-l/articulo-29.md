@@ -1,0 +1,1 @@
+Artículo 29.—Cualquier reforma, adición o interpretación del presente reglamento deberá ser aprobada por el Concejo Municipal. El presente reglamento es de aplicación obligatoria y rige a partir de su publicación en el Diario Oficial de La Gaceta.

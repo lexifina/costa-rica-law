@@ -1,0 +1,1 @@
+Artículo 24.—El Alcalde analizará todo accidente de tránsito en que participe un vehículo de la Municipalidad de Esparza. Como resultado de este rendirá un informe con la recomendación respectiva dirigida al Concejo Municipal con copia a la Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 27.—La maquinaria o equipo especial de tipo pesado y motocicletas propiedad de la Municipalidad se les aplicará las regulaciones del presente reglamento, salvo que por su naturaleza no fuere posible.

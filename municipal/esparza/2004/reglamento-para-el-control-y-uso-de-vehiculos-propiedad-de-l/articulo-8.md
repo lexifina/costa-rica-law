@@ -1,0 +1,1 @@
+Artículo 8º—La persona autorizada como responsable de la gira, deberá notificar por escrito a la Alcaldía aquellos casos en que por motivos especiales tuvo que desviarse de la ruta establecida, incurriendo en un kilometraje diferente al inicialmente estimado.
