@@ -1,0 +1,7 @@
+Artículo 2°—La presente Convención queda abierta a la firma de los Estados Americanos y será ratificada de conformidad con sus respectivos procedimientos constitucionales. El instrumento original, cuyos textos en español, francés, inglés y portugués son igualmente auténticos, será depositado en la Secretaría General de la Organización de los Estados Americanos, la cual enviará copias certificadas a los Gobiernos para los fines de su ratificación. Los instrumentos de ratificación serán depositados en la Secretaría General de la Organización de los Estados Americanos y ésta notificará dicho depósito a los Gobiernos signatarios. Tal notificación valdrá como canje de ratificaciones.
+RESERVAS
+Reserva de la Delegación de Honduras:
+La delegación de Honduras hace reserva en lo relativo a la concesión de derechos políticos a la mujer, en virtud de que la Constitución Política de su país otorga los atributos de la ciudadanía únicamente a los varones.
+Declaración de la Delegación de México:
+La delegación Mexicana declara, expresando su aprecio por el espíritu que inspira la presente Convención, que se abstiene de suscribirla en virtud de que, de acuerdo con el artículo 29, queda abierta a la firma de los Estados Americanos. El Gobierno de México se reserva el derecho de adherirse a la Convención cuando, tomando en cuenta las disposiciones constitucionales vigentes en México, considere oportuno hacerlo.
+(Aquí siguen las firmas de los Plenipotenciarios.)
