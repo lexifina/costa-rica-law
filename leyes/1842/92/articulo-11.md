@@ -1,0 +1,1 @@
+Art. 11. Las dotaciones de que gozan los empleados en las rentas de aguardientes están señaladas por Leyes particulares, y quedan sugetas á las variaciones que el Gobierno tenga á bien hacer, asi como á las de los demás Receptores de los otros ramos que están ya reglamentadas por leyes particulares.

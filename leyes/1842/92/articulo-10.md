@@ -1,0 +1,1 @@
+Art. 10. Quedan en su fuerza y vigor, en cuanto no se opongan á la presente, las disposiciones generales desde el artículo 7° al 25 de la Tarifa antes citada de 1° de Junio de 841, en cuanto no estén modificadas por Decretos anteriores al presente, y entendiéndose suprimido el artículo 24.
