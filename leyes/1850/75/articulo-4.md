@@ -1,0 +1,1 @@
+Art. 4. Ia operacion de pesar los bultos la presenciará el Contador Alcaide de la Aduana como dispone el artículo 12 del enunciado Reglamento, y ademas se satisfara del contenido de dichos bultos comparandolo con los manifiestos.
