@@ -1,0 +1,1 @@
+Artículo 8º—Responsabilidad en la custodia y uso. El funcionario que tenga asignado un teléfono celular es responsable de su custodia, conservación, uso correcto y racional, conforme lo dispone este Reglamento. De cualquier daño, robo, pérdida o extravío deberá informar de inmediato al Área Administrativa y reintegrar al SENARA el monto de la pérdida.

@@ -1,0 +1,1 @@
+Artículo 7º—Retiro del uso del teléfono celular. El uso del teléfono celular no crea derechos, en consecuencia la Institución puede retirar su uso en cualquier momento, sea por la desaparición de la necesidad institucional, incumplimiento de este Reglamento, limitaciones presupuestarias o cualquier otra razón que SENARA discrecionalmente determine.
