@@ -12,21 +12,37 @@ Agua natural (potable), no envasada.
 Ajos frescos, no envasados.
 Arroz, excepto precocido.
 Azúcar de remolacha y de caña (excepto la refinada para repostería).
+Atún en conserva, enlatado.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
+Audífonos para sordos.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Cacao en polvo o panes.
 Café, excepto el envasado, el enlatado y el soluble.
 Carnes frescas, refrigeradas o congeladas, de ganado vacuno, ovino, porcino, caballar, de aves de corral, aves y animales de caza así como los desperdicios comestibles de estos animales.
+Calzado escolar, a juicio de la Administración Tributaria.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
+Calzado ortópédico.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Cebolla fresca, no envasada.
 Cuajada, no envasada.
 Cubaces, no envasados.
 Chorizo, excepto el enlatado.
 Frijoles rojos, negros y blancos, no envasados.
+Fósforos y cerillas a granel o en empaques.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Frutas frescas, excepto manzanas, uvas y peras.
 Galletas de todas clases, excepto las enlatadas, empaquetadas o las que se vendan en envoltorios originales, metálicos o de cartón.
+Galletas, excepto las enlatadas.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Garbanzos, no envasados.
 Harinas de legumbres y frutas.
 Harinas finas y gruesas de trigo, escanda, comuña, centeno, maíz y de otros cereales.
+Helados.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Hortalizas frescas, no envasadas.
 Huevos frescos comestibles, con cascarón, de toda clase de aves.
+Jabón en barra para lavar.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Leche y crema frescas, pasteurizadas o esterilizadas (incluso sueros de mantequilla o de queso, leche descremada; leche y crema agrias).
 Leche y crema (incluso sueros de mantequilla o de queso y leche descremada), deshidratadas o desecadas, en forma sólida, como bloques y polvo.
 Leches modificadas y sucédaneos de leche para infantes.
@@ -45,15 +61,23 @@ Pan de toda clase, como el blanco, negro, cuadrado, integral, español y dulce; 
 Panela (dulce de tapa).
 Pastas alimenticias (macarrones, espaguetti, tallarines, fideos y similares).
 Paté, excepto enlatado o envasado.
+Papel higénico.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
+Pastas dentales.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991
 Pescado y sus partes, fresco, salado o desecado, (no envasado o enlatado).
 Queso blanco tipo duro, semiduro y cremoso, no envasado.
 Sal común, mineral y yodada.
 Salchichas, excepto las enlatadas.
 Salchichón, excepto el enlatado.
+Sillas de ruedas.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Sorgo sin moler, no envasado.
 Tamales.
 Tortillas de maíz, de harina o de trigo (tipo “panina”).
 Trigo y escanda (incluso comuña), sin moler.
+Velas, cirios, veladoras y mariposas para lámparas, excepto los coloreados, decorados o perfumados.
+(Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 20375 del 10 de abril de 1991)
 Vinagres de toda clase.
 ii) Bienes Esenciales para la Educación:
 Bolígrafos desechables.
