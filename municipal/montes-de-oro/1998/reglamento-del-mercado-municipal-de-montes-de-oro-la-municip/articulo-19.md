@@ -1,0 +1,1 @@
+Artículo 19. —El cambio de desuno de puesto para expendio de artículos o mercaderías distintas a las autorizadas, exige al interesado a dirigir una solicitud escrita al Concejo Municipal, dicha solicitud deberá contener un timbre Municipal de (15.000, 00 (cinco mil colones netos), indicando el número de puesto, ubicación, los artículos o mercadería que

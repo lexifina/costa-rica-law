@@ -1,0 +1,1 @@
+Artículo 13. —Solamente serán reconocidos como inquilinos permanentes aquellas personas favorecidas con las adjudicaciones, que hayan firmado el contrato respectivo y que se encuentren al día con el valor del arrendamiento.

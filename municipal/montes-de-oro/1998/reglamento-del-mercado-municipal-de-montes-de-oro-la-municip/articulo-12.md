@@ -1,0 +1,1 @@
+Artículo 12.—Las personas favorecidas en una adjudicación, que no reúna los requisitos anteriores o no se presente dentro del término de ocho días hábiles a formalizar el respectivo contrato, perderá la adjudicación respectiva y el derecho de participar en nuevas licitaciones.
