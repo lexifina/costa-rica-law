@@ -1,0 +1,1 @@
+Artículo 5°- El sujeto pasivo para los efectos de este Reglamento, es toda aquella persona que sea propietaria de un bien inmueble y que esté por tal condición obligada al cumplimiento de los deberes que el Código Municipal contempla en el artículo 75 y que este reglamento señala en el artículo 2.
