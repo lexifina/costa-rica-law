@@ -13,3 +13,4 @@ CGR: Modifica Límites Económicos Ley Administración FinancieraDe conformidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-13 | la propia norma |
+| 2 | 1998-08-13 | Ley 8 |
