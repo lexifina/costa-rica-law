@@ -19,3 +19,4 @@ Reglamento de Especialidades Médicas
 | 4 | 1997-08-20 | Decreto Ejecutivo 26294 (1997-08-20) |
 | 5 | 1998-01-09 | SINALEVI (sin norma nombrada) |
 | 6 | 1998-03-12 | Decreto Ejecutivo 26812 (1998-03-12) |
+| 7 | 2002-05-03 | Decreto Ejecutivo 30395 (2002-05-03) |

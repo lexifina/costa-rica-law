@@ -8,9 +8,11 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 - Bioquímica Clínica.
 - Cardiología.
 - Cirugía Cardiovascular y Tórax.
-- Cirugía torácica no cardiovascular
+- Cirugía torácica no cardiovascular.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
 - Cirugía Vascular Periférico.
+- Cirugía Gastroenterológica.
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Cirugía General.
 - Cirugía Pediátrica.
 - Cirugía Plástica.
@@ -24,22 +26,26 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 - Genética Humana.
 - Geriatría.
 - Ginecología y Obstetricia.
-· Perinatología
+· Perinatología.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
-- Ginecología-oncología
+- Ginecología-oncología.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
+- Ginecología Endocrinológica.
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Ginecología.
 - Obstetricia.
 - Hematología.
-- Homeopatía
+- Homeopatía.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
 (La Sala Constitucional mediante resolución N° 110 del 09 de enero de 1998 estableció que se declara sin lugar la acción en cuanto al artículo 1 del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994, mismo que adiciono este artículo “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)
 - Infectología.
-- Medicina crítica y cuidados intensivos
+- Informática Médica.
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
+- Medicina crítica y cuidados intensivos.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
-- Medicina del deporte
+- Medicina del deporte.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
-- Medicina Extracorpórea
+- Medicina Extracorpórea.
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 26812 del 12 de marzo de 1998)
 - Medicina Familiar.
 - Medicina Física y Rehabilitación.
@@ -69,10 +75,14 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 · Medicina crítica pediátrica
 · Neonatología
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
+- Pediatría del Desarrollo.
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Psiquiatría General.
 - Psiquiatría Pediátrica.
 - Radiología.
 - Radioterapia.
 - Reumatología.
+- Retina y Vítreo.
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 30395, del 3 de mayo del 2002)
 - Salud Pública.
 - Urología.
