@@ -1,0 +1,1 @@
+Artículo 2°─ Se autoriza al Instituto Geográfico Nacional para interpretar los citados límites en los casos que ofrezcan duda, y se declaran oficiales los mapas de estos distritos, con su correspondiente toponimia, que en su oportunidad prepare esta institución.
