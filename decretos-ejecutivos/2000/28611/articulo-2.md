@@ -1,0 +1,1 @@
+Artículo 2º—La tramitación de dicho procedimiento corresponderá a la Dirección General de Migración y Extranjería, órgano del Ministerio de Gobernación y Policía competente para ejecutar la política migratoria que dicte el Poder Ejecutivo, a petición del Ministerio de Obras Públicas y Transportes.

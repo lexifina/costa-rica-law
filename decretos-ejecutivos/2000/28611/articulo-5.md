@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de Obras Públicas y Transportes en el marco del presente decreto, podrá gestionar en una misma solicitud, de manera colectiva, varios permisos temporales para diversos extranjeros.
