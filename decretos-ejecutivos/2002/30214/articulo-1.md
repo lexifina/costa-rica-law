@@ -86,14 +86,14 @@ Museo Nacional | 571,5
 Museo Rafael A. Calderón Guardia | 57,6
 Oficina del Arroz | 140,6
 Oficina de Cooperación Internacional de la Salud OCIS (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 2.930.0
-Oficina Nacional de Semillas | 136,0
+Oficina Nacional de Semillas (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 161.5
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes (Así adicionado por el artículo 1° del Decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 2.685.5
 Patronato Nacional de Ciegos | 27,0
 Patronato Nacional de la Infancia (Así modificado por artículo 1° del decreto ejecutivo N° 31136 de 21 de abril de 2003) | 7.204,67
 Patronato Nacional de Rehabilitación | 153,3
 Programa Ganadero de Salud Animal PROGASA (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 7,1
 Programa Integral de Mercadeo Agropecuario | 1.458,7
-Proyecto Desarrollo Agrícola de Pen. Nicoya | 556,4
+Proyecto Desarrollo Agrícola de Pen. Nicoya Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 530.9
 Proyecto Pequeños Productores Zona Norte MAG | 11,6
 Radiográfica Costarricense .S.A. | 4.152,9
 Refinadora Costarricense de Petróleo | 25.483,3
