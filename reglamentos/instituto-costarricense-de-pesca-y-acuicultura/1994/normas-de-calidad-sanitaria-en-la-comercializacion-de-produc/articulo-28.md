@@ -1,0 +1,1 @@
+Artículo 28.—Se contará con un dispositivo de evacuación del agua residual y desechos sólidos que reúna las condiciones higiénicas adecuadas para depositarlas en una planta de tratamiento o de desechos.

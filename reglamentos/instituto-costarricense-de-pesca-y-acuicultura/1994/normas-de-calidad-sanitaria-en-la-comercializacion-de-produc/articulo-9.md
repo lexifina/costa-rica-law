@@ -1,0 +1,1 @@
+Artículo 9°—Comunicar a las autoridades competentes del comercio nacional e internacional, si así se solicita, la listado pescadores, embarcaciones, establecimientos, medios de transporte y laboratorios químicos y microbiológicos debidamente registrados.

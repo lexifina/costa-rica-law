@@ -1,0 +1,1 @@
+Artículo 25.—Los aparatos y útiles de trabajo como. por ejemplo, mesas de trabajo, contenedores, cintas transportadoras y cuchillo, deberán estar fabricados con materiales resistentes a la corrosión (nunca de madera) y fácil de limpiar y desinfectar.

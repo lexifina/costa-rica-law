@@ -1,0 +1,1 @@
+Artículo 31.—En los establecimientos en que se conserven animales vivos como crustáceos y peces, deberá existir una instalación adecuada para mantenerlos vivos en las mejores condiciones posibles y que reciba agua de una calidad tal que no transmita organismos o sustancias nocivas a los animales.
