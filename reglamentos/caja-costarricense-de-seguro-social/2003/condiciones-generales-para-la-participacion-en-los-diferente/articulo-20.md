@@ -1,1 +1,0 @@
-20) La presentación de los recursos (objeción y revocatoria), podrán presentarse por medio de fax, siempre y cuando se haga llegar el documento original, dentro de los tres días hábiles posteriores a la recepción por parte de la Oficina de Compras. Caso contrario se tendrá por no puesto.

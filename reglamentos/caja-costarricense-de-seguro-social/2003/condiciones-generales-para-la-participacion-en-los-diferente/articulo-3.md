@@ -1,1 +1,0 @@
-3) Indicar precios unitarios y totales. Al existir diferencia entre el precio unitario y total; prevalecerá el precio unitario. El precio total cotizado deberá ajustarse en números y en letras coincidentes, en caso de divergencia entre ambas formas prevalecerá la consignada en letras (Art. Nº 52.5 R.C.A.)

@@ -1,6 +1,0 @@
-2) Vigencia y copias de las ofertas:
-Licitaciones Públicas: 120 días naturales. (1 copia)
-Licitaciones por Registro: 120 días naturales. (1 copia)
-Licitaciones Restringidas: 90 días naturales. (1 copia)
-Compras Directas: 60 días naturales. (1 copia)
-Si la oferta no lo especifica se tendrá como cláusula invariable y se entiende que rige a partir del día de la apertura.

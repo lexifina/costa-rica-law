@@ -1,1 +1,0 @@
-25) Cuando al contratista adjudicado le corresponda hacer retiro del contrato u orden de compra y no pueda hacerlo personalmente, deberá enviar a otra persona debidamente identificada (gafete o carné de la empresa que representa) o una autorización firmada, por quién esté autorizado para ello.
