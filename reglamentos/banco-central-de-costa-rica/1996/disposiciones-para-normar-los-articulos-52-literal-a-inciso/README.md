@@ -14,3 +14,4 @@ Disposiciones para normar los artículos 52 literal a), inciso i) de la Ley Org�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-04 | la propia norma |
+| 2 | 1997-04-02 | Reglamento 4908 (1997-04-02) |
