@@ -1,0 +1,1 @@
+Artículo 2°.- La compra de dichas propiedades se hará por un precio global no mayor de cincuenta mil colones (¢50,000.00), pagaderos en Bonos de Refundición de la Deuda Interna 1949, Serie D, recibos por su valor facial; los terrenos referidos se destinarán a una futura ampliación del Hospital.
