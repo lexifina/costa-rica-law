@@ -1,0 +1,1 @@
+Art. 22.- El Oficial Mayor designará entre los cajistas el número de operarios que juzgue necesarios para la formación de planas, los cuales deberán entregarlas ya listas para el tiro, y serán responsables de las faltas que en su trabajo hubiere.

@@ -1,0 +1,1 @@
+Art. 20.- El cuerpo de operarios se dividirá en dos clases ó secciones á saber: cajistas y prensistas; y el número de individuos de que deba componerse cada una de ellas, lo determinará el Oficial Mayor, en vista de las exigencias de los trabajos que haya que ejecutar.
