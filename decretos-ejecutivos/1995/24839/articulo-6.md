@@ -1,1 +1,0 @@
-Artículo 6°—El jurado podrá pedir asesoramiento al Ministerio de Cultura, Juventud y Deportes, cuando surjan dudas sobre alguno de los aspectos a calificar en materia de Teatro y dicha Institución estará en la obligación de asignar un Profesional en teatro que aclare las dudas de los miembros del jurado.
