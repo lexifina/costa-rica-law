@@ -16,3 +16,4 @@ Reglamento General del Colegio Licenciados y Profesores en Letras, Filosofía Ci
 | 1 | 1999-11-21 | la propia norma |
 | 2 | 2000-10-30 | Ley 7 |
 | 3 | 2001-12-01 | Reglamento 95 (2001-12-01) |
+| 4 | 2001-12-15 | Reglamento 96 (2001-12-15) |
