@@ -1,0 +1,1 @@
+Artículo 17.—Las integrantes de la Junta podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos en fundamentan su disidencia, quedando exentas, en tal caso, de responsabilidades que pudieran derivarse del mismo.

@@ -1,0 +1,1 @@
+Artículo 11.—En casos de urgencia declarada, que hará la Presidenta de la Junta, tanto para las sesiones ordinarias como extraordinarias, el orden del día puede ser modificado agregándole nuevos temas si se cuenta con el voto de los dos tercios de las integrantes de la Junta.
