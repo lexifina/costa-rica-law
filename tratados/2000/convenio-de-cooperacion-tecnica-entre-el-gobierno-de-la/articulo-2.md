@@ -1,0 +1,5 @@
+ARTÍCULO II
+Acuerdos complementarios
+1º—Los proyectos de cooperación técnica y científica contenidos en los programas a que se hace referencia en el artículo primero, serán objeto de acuerdos complementarios que deberán especificar sus objetivos, el esquema de trabajo, las obligaciones de cada una de las Partes, su financiamiento, los organismos nacionales responsables de la ejecución del proyecto y su plazo de ejecución.
+2º—Estos programas y proyectos considerarán la participación en su ejecución a organismos y entidades de los sectores público y privado de ambos países y, cuando sea necesario, de las universidades, organismos de investigación científica y técnica y organizaciones no gubernamentales. Deberán tomar en consideración, asimismo, la importancia de la ejecución de proyectos nacionales de desarrollo y de proyectos de desarrollo regional integrado.
+3º—Además las Partes Contratantes podrán, cuando lo consideren necesario, pactar acuerdos complementarios de cooperación técnica y científica, en aplicación del presente Convenio, que les servirá de base para otros acuerdos.

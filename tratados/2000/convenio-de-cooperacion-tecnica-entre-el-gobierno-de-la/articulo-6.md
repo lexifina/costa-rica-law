@@ -1,0 +1,4 @@
+ARTÍCULO VI
+Status de los expertos y técnicos
+Cada una de las Partes Contratantes otorgará a los expertos y técnicos designados por la otra Parte, el apoyo requerido para el desempeño de sus funciones en la ejecución de los proyectos de conformidad con la práctica existente para la cooperación técnica internacional y la legislación interna de ambos países. Este personal se someterá a las normas aplicables de la materia en el ámbito de las Naciones Unidas y no podrá dedicarse a ninguna actividad ajena a sus funciones, sin la previa autorización de ambas Partes.
+El personal comisionado por cada una de las Partes continuará bajo la dirección y dependencia de la institución a la que pertenezca, por lo que no se crearán relaciones de carácter laboral con la otra, a la que en ningún caso se considerará como patrón sustituto.
