@@ -13,3 +13,4 @@ Establece Comisión Nacional sobre el Envejecimiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-06-21 | la propia norma |
+| 2 | 1982-07-12 | Decreto Ejecutivo 13752 (1982-07-12) |

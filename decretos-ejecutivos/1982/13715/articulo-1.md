@@ -10,11 +10,12 @@ Considerando:
 4°-Que es prioridad aprovechar los recursos institucionales públicos y privados, para realizar y coordinar eficientemente programas destinados a los costarricenses en la tercera edad.
 Por tanto,
 DECRETAN:
-Artículo 1°-Se establece la Comisión Nacional sobre el Envejecimiento, encargada de formular y promover los programas destinados a mejorar la vida y el bienestar de la población costarricense en la tercera edad, la cual asesorará al Ministro de Trabajo y Seguridad Social. Además esta Comisión preparará la presentación oficial de Costa Rica para la Asamblea Mundial del Envejecimiento que se celebrará en Viena, en julio de 1982. La Comisión quedará integrada de la siguiente forma:
-a) Lic. Olda María Acuña Bonilla, Directora de la Oficina de Control de Asignaciones Familiares, que coordinará las actividades de la Comisión;
-b) Dr. Carlos Luis Alpízar Quesada, Hospital Blanco Cervantes, CCSS;
-c) Dr. Carlos F. Denton Lister, Instituto de Estudios Sociales en Población (IDESPO);
-d) Dra. Irma Morales Moya, Desarrollo Laboral Femenino Integral (DELFI);
-e) Dip. María Lidia Sánchez Román;
-f) Sandra García Díaz, periodista; y
-g) Esmirna Troz Vado, Directora de Promoción Socio-Laboral, Ministerio de Trabajo y Seguridad Social.
+Artículo 1°-Se establece la Comisión Nacional sobre el Envejecimiento, encargada de formular y promover los programas destinados a mejorar la vida y el bienestar de la población costarricense en la tercera edad, la cual asesorará al Ministro de Trabajo y Seguridad Social. Además esta Comisión preparará la presentación oficial de Costa Rica para la Asamblea Mundial del Envejecimiento que se celebrará en Viena, en julio de 1982. La Comisión quedará integrada de La siguiente forma:
+a) Licenciada Olda María Acuña Bonilla, Directora de la Oficina de Control de Asignaciones Familiares, que coordinará las actividades de la Comisión.
+b) Doctor Carlos Luis Alpízar Quesada, Hospital Blanco Cervantes, CCSS.
+c) Doctor Carlos F. Denton Lister, Instituto de Estudios Sociales en Población, IDESPO.
+d) Doctora Irma Morales Moya, Desarrollo Laboral Femenino Integral, DELFI.
+e) Diputada María Lidia Sánchez Román.
+f) Esmirna Troz Vado, Directora de Promoción Socio-Laboral, Ministerio de Trabajo y Seguridad Social.
+g) Licenciada Lucila Rodríguez Camacho, Instituto de Ayuda Social, IMAS.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 13752 del 12 de julio de 1982).
