@@ -1,0 +1,2 @@
+Art 2°.- Se establecerá otra guardia en Puntarenas para impedir el desembarque de personas y efectos que arriben, procedentes de los Puertos de la República, o de otros apestados, y para hacerles guardar en la Isla de San Lucas, las mas rigorosa cuarentena de incomunicación, no solo con el Puerto, sino también con los Pueblos del Departamento de Nicoya
+Único.- Mientras el Estado de Nicaragua exista sin contagiarse, para los buques procedentes de solo el Realejo, la cuarentena será solo los ocho días.

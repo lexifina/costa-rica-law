@@ -1,0 +1,1 @@
+Art 9.- Las faltas que el Gobierno observe en el Comandante del cordón, y el de la guarnición del Puerto, así con en los funcionarios y autoridades encargadas de auxiliar a aquellos, las castigará irremisiblemente con multas hasta de trescientos pesos, y con destitución de empleo.

@@ -1,0 +1,1 @@
+Art 11.- Al Gobierno del Estado de Nicaragua y aun directamente a las autoridades y Municipalidad de la Ciudad de este nombre, se hará la comunicación conveniente sobre las medidas del presente Decreto.-Dado en la Ciudad de San José a los dieciséis días del mes de mayo de mil ochocientos treinta y siete.

@@ -1,0 +1,1 @@
+Art.6 El Ayudante del Escuadrón de la Frontera Ciudadano Rafael Jiménez será el Comandante del cordón de la misma frontera, y a este efecto pondrá sobre las armas veinticinco carabineros del mismo Escuadrón, llevándose de la Guarnición de esta Ciudad los Sargentos veteranos precisos.

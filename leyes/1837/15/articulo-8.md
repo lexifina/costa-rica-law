@@ -1,0 +1,1 @@
+Art 8°.- EL Jefe Político y Comandante local del Guanacaste darán al Comandante del cordón todos los auxilios que necesite, y respecto de la guarnición de Puntarenas, harán lo propio el Jefe Político del Departamento Occidental y Municipalidad de Esparza.
