@@ -1,0 +1,1 @@
+Artículo 6°.-El niño que hubiere hecho los estudios correspondientes los seis primeros años de una escuela de primer orden, tiene derecho que se le admita en un Colegio de segunda enseñanza; y el que hubiere hecho los correspondientes los siete años de enseñanza, más el especial de pedagogía, podrá optar al certificado que establece el artículo 46 de la Ley de Educación.
