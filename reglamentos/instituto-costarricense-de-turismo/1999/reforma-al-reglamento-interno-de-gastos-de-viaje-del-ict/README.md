@@ -14,3 +14,4 @@ Reforma al Reglamento Interno de Gastos de Viaje del ICT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-01 | la propia norma |
+| 2 | 1999-12-01 | Ley 8 |
