@@ -1,0 +1,1 @@
+Transitorio I.—Los precios máximos establecidos en este Decreto, serán revisados por el MEIC cada 3 meses, para ajustarlos con respecto a los posibles cambios, que se den en los mercados internacionales.
