@@ -1,0 +1,1 @@
+Artículo 16.—Vigilar que el ente municipal cuente con un adecuado organigrama, en cumplimiento con el artículo 120, 121, 122, del Código Municipal, además con el personal capacitado y todo lo que corresponda al mandato legal.

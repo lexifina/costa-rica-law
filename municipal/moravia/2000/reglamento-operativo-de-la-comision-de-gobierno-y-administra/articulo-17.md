@@ -1,0 +1,1 @@
+Artículo 17.—Vigilar que el ente municipal cuente con un adecuado ambiente de trabajo, dentro de la estructura organizacional municipal, cumpliendo con los mandatos legales que le competan, tanto laborales como organizacionales.

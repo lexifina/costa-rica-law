@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las obligaciones de los integrantes de la comisión
+Artículo 26.—Asistirán puntualmente a las sesiones a que fuesen convocados (as). Si alguno de los miembros no asistiere a una sesión, deberá justificar su ausencia ante la persona que presida la comisión. En el caso de que fuera el (la) presidente(a), quien incurriere en la ausencia, la justificara ante el secretario(a). Si alguno de los miembros de la comisión incurriere en tres ausencias injustificadas consecutivas o cinco alternas, el (la) presidente(a) de la comisión o el (la) secretario(a), deberá comunicarlo a la presidencia del Concejo Municipal, a efectos de que se sustituya a ese integrante.
