@@ -1,0 +1,2 @@
+Transitorio.—Se establece un período de dos meses contados a partir de la publicación del presente decreto ejecutivo, para que la Junta de Protección Social de Cartago presente su liquidación, y para que la Municipalidad de Cartago y la Dirección General de Salud coordinen lo necesario para asumir sus administraciones.
+(Así adicionado por el artículo 1º del Decreto Ejecutivo Nº 25761 de 8 de enero de 1997)
