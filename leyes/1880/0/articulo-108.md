@@ -1,2 +1,2 @@
 Artículo 108.
-El indultado, á excepción de los comprendidos en el número 4° del artículo 106, no podrá habitar por el tiempo que, á no haberlo sido, debiera durar la condena, en el lugar que viva el ofendido, sin el consentimiento de éste: quedando en otro caso sin efecto el indulto acordado.
+(Derogado por el artículo 29 de Ley de Gracia, N° 118 del 19 de octubre de 1909)
