@@ -1,1 +1,0 @@
-Artículo 11.-Para las demás atribuciones que el anterior artículo no estipula los Médicos Oficiales deben acogerse a las que indica a los Jefes de Sanidad, la Ley N° 52 de 12 de marzo de 1923, sobre Protección de la Salud Pública.

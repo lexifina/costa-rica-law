@@ -1,1 +1,0 @@
-Artículo 3°.-En las ciudades cabeceras de provincia el nombramiento y retribución de los Médicos Oficiales corresponde a las Municipalidades de los cantones centrales, siempre que ‚estas tengan una entrada anual de m ás de treinta y cinco mil colones. Todos los demás serán de nombramiento y retribución de la Secretaría de Salubridad Pública.

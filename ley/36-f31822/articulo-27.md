@@ -1,4 +1,0 @@
-Artículo 27.-Est n obligados los Médicos Oficiales a expresar en su informe las causas inmediatas del fallecimiento y habiendo lesiones, a manifestar su número, longitud, profundidad, la región en que se encuentran, los órganos lesionados y el instrumento con que han sido causadas, especificando:
-a) Si los caracteres de ellas indican de modo cierto o probable que fueron obra del propio interfecto o de otra persona;
-b) Si en este £último caso las lesiones han producido la muerte como causa única de ella o como causa concurrente con otras inmediatas que las lesiones determinaron directa o indirectamente, sea por razón de alguna circunstancia particular inherente a la persona, sea, en fin, por efecto de circunstancias accidentales;
-c) Si habría podido impedirse este resultado con oportunos y eficaces socorros y si ‚estos eran posibles en el lugar y en las demás circunstancias del suceso.

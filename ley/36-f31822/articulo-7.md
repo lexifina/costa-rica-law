@@ -1,1 +1,0 @@
-Artículo 7°.-Las quejas por faltas que los Médicos Oficiales pudieran cometer en el ejercicio de sus funciones, se dirigirán a la Secretaría de Salubridad Pública, la cual ordenará una información sumaria para probar su veracidad, procediendo como sea de ley.

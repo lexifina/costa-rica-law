@@ -1,1 +1,0 @@
-Artículo 14.-Si la clase de enfermedad o las circunstancias del enfermo impiden o dificultaren la curación en su propia casa, el médico procurará su traslado al hospital de la ciudad y no existiendo ‚este, dará aviso al Jefe Político el cual tomará las providencias necesarias a fin de que sea trasladado al hospital más cercano.
