@@ -1,1 +1,2 @@
-Artículo 18.- Los Agentes Tutelares tendrán a su cargo la aprehensión y conducción de los menores en los casos que lo ordene el Juez, así como cualquiera otra diligencia que se les encomiende. Deberán haber cursado por lo menos la primera enseñanza y se dará preferencia para el cargo a quienes sean padres o madres de familia.
+Artículo 18.-Para ejercer el cargo de Agente Tutelar de Menores se requiere haber cursado por lo menos la primera enseñanza, dándose preferencia a quienes sean padres o madres de familia. Además de la aprehensión y conducción de los menores, deberán estos agentes cumplir cualquiera otra diligencia que les encomiende el Juzgado.
+(Así reformado por el artículo 1° de la ley N° 3534 del 23 de julio de 1965)
