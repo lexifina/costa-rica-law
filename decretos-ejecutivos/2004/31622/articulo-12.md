@@ -1,0 +1,1 @@
+Artículo 12.—Recepción de solicitudes: Todas las solicitudes deberán ser entregadas a la Dirección General del Instituto Costarricense sobre Drogas, para su respectivo trámite ante el Consejo Directivo.
