@@ -1,0 +1,3 @@
+Artículo XXX
+Depósito
+El instrumento original de la presente Convención, cuyos textos en español, francés, inglés y portugués son igualmente auténticos, será depositado en la Secretaría General de la Organización de los Estados Americanos, la que enviará copia certificada del texto para su registro y publicación a la Secretaría de las Naciones Unidas, de conformidad con el artículo 102 de la Carta de las Naciones Unidas. La Secretaría General de la Organización de los Estados Americanos notificará a los Estados miembros de dicha Organización las firmas, los depósitos de instrumentos de ratificación y denuncia, así como las reservas que hubiere.

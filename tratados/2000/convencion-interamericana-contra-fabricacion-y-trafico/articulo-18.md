@@ -1,0 +1,5 @@
+Artículo XVIII
+Entrega vigilada
+1. Cuando sus respectivos ordenamientos jurídicos internos lo permitan, los Estados Partes adoptarán las medidas necesarias, dentro de sus posibilidades, para que se pueda utilizar de forma adecuada, en el plano internacional, la técnica de entrega vigilada, de conformidad con acuerdos o arreglos mutuamente convenidos, con el fin de descubrir a las personas implicadas en delitos mencionados en el artículo IV y de entablar acciones legales contra ellas.
+2. Las decisiones de los Estados Partes de recurrir a la entrega vigilada se adoptarán caso por caso y podrán, cuando sea necesario, tener en cuenta arreglos financieros y los relativos al ejercicio de su competencia por los Estados Partes interesados.
+3. Con el consentimiento de los Estados Partes interesados, las remesas ilícitas sujetas a entrega vigilada podrán ser interceptadas y autorizadas a proseguir intactas o habiéndose retirado o sustituido total o parcialmente las armas de fuego, municiones, explosivos y otros materiales relacionados.

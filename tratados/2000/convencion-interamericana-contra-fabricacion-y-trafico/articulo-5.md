@@ -1,0 +1,7 @@
+Artículo V
+Competencia
+1. Cada Estado Parte adoptará las medidas que sean necesarias para declararse competente respecto de los delitos que haya tipificado de conformidad con esta Convención cuando el delito se cometa en su territorio.
+2. Cada Estado Parte podrá adoptar las medidas que sean necesarias para declararse competente respecto de los delitos que haya tipificado de conformidad con esta Convención cuando el delito sea cometido por uno de sus nacionales o por una persona que tenga residencia habitual en su territorio.
+3. Cada Estado Parte adoptará las medidas que sean necesarias para declararse competente respecto de los delitos que haya tipificado de conformidad con esta Convención cuando el presunto delincuente se encuentre en su territorio y no lo extradite a otro país por motivo de la nacionalidad del presunto delincuente.
+4. La presente Convención no excluye la aplicación de cualquier otra regla de jurisdicción penal establecida por un Estado Parte en virtud de su legislación nacional.
+(Nota de Sinalevi: Mediante el artículo 2° del Tratado Internacional "Aprueba Convención Interamericana contra Fabricación y Tráfico Ilícito de Armas de Fuego, Municiones, Explosivos y otros materiales relacionados" , N° 8042 del 1° de noviembre del 2000 el Gobierno de Costa Rica idispuso lo siguiente: "...La aplicabilidad del artículo V queda sujeta a la modificación de la legislación penal interna, que introduzca el principio de personalidad activa de extraterritorialidad en la aplicación penal".)
