@@ -1,2 +1,4 @@
-Franquicia Postal y Telegráfica en el Período Eleccionario
-Artículo 170.- Los organismos electorales gozan, durante todo el período de sus funciones, de franquicia postal y telegráfica. Los particulares tienen, a partir de la convocatoria y hasta dos meses antes de la elección, igual franquicia, con el objeto de que puedan suministrar o pedir al Registro Civil cualquier dato relativo a la inscripción o cancelación de un elector en el Padrón Electoral.
+Franquicia postal y telegráfica durante el período eleccionario.
+Artículo 170.-Los organismos electorales gozan, durante todo el período de sus funciones, de franquicia en todos los servicios que preste la Dirección Nacional de Comunicaciones. Los particulares tienen, a partir de la convocatoria y hasta dos meses antes de la elección, igual franquicia, con el objeto de que puedan suministrar o pedir al Registro Civil cualquier dato relativo a la Inscripción o cancelación de un elector en el Padrón-Electoral.
+(Así reformado por el artículo 1° de la ley N° 6833 del 23 de diciembre de 1982)
+(Nota de Sinalevi: Mediante el artículo 17 de la ley N° 7768 del 24 de abril de 1998, se derogan todas las franquicias postales y telegráficas, así como cualesquiera otras relacionadas con los servicios de correos y comunicaciones)
