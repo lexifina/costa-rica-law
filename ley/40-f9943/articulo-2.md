@@ -1,0 +1,3 @@
+Art 2°.- La aprobación de la contrata principal se entiende, siempre que se acepte por el contratista una adición al art 3° en estos términos: “ La Compañía es obligada también en el caso de no concluir el camino dentro los seis años, a pagar al Gobierno de la República la suma de diez mil pesos, a cuyo efecto, dará las seguridades competentes a satisfacción del mismo Gobierno, al principal los trabajos del camino”.
+Al Poder Ejecutivo.- Dado en el Salón de sesiones, en San José, a los catorce días del mes de julio de mil ochocientos cincuenta y cuatro.
+Por tanto: Ejecutese. San José, julio veinticuatro de mil ochocientos cincuenta y cuatro.
