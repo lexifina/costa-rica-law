@@ -1,0 +1,1 @@
+Artículo 20.-La caja recaudadora municipal, contará con una caja metálica de seguridad donde el cajero pueda custodiar el dinero y valores que por su función tenga en su poder en horas hábiles. Fuera de éstas los ingresos deben quedar en la caja fuerte de la tesorería.

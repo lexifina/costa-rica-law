@@ -1,0 +1,1 @@
+Artículo 10.- Todo cajero que funcione como tal en una caja recaudadora de la Municipalidad de Mora, cerrará la caja delante del tesorero municipal y posteriormente este revisará el cierre delante del cajero.

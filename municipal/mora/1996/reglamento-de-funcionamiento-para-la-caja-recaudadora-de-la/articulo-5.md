@@ -1,0 +1,2 @@
+Artículo 5°-Con base en las copias canceladas el cajero registra detalladamente los comprobantes de ingreso en el formulario para la liquidación de caja, el cual al final del día o cuando se ameriten cortes parciales, deben ser revisadas por el tesorero verificando que la suma de los montos registrados coincida con la suma de los recibos.
+Los recibos no pagados se incluyen en este registro independiente. En este último caso debe aparecer el original y la copia de los recibos.
