@@ -1,0 +1,1 @@
+Artículo 10.—Cualquier faltante que se produzca al efectuar un arqueo, deberá ser cubierto por el encargado del fondo de caja chica, si en el debido proceso se determina su responsabilidad; ello, sin detrimento de otras acciones que corresponda tomar al amparo de la legislación vigente.

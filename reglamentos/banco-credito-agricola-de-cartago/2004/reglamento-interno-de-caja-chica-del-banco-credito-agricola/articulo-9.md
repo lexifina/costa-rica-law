@@ -1,0 +1,1 @@
+Artículo 9º—La liquidación de los anticipos debe producirse dentro de los tres días hábiles siguientes al retiro del dinero. El encargado de la caja chica comunicará a los superiores correspondientes el incumplimiento de esta disposición, con el propósito de que tome las acciones disciplinarias correspondientes.

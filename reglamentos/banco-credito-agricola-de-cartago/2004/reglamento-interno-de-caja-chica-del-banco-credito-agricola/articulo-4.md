@@ -1,0 +1,3 @@
+Artículo 4º—Deberá designarse un titular y un suplente para la administración de la caja chica. Dicha designación estará a cargo del Gerente en cada Centro de Negocios, de los Agentes en los Puntos Comerciales, de los Jefes de las Unidades Administrativas indicadas en el artículo 3º, y de los Jefes Generales de Auditoría. La designación deberá hacerse por escrito.
+En ausencia del titular el suplente asume sus funciones.
+El encargado de caja chica de cada centro de negocios, punto comercial, unidad administrativa y Auditoría, debe velar porque se lleve a cabo un correcto manejo operativo y contable de estos fondos.

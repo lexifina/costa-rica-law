@@ -1,0 +1,1 @@
+Artículo 5º—El funcionario que autoriza el vale de caja chica, debe velar porque el objeto del gasto corresponda estrictamente a lo autorizado en la solicitud de vale o en la solicitud de caja chica y la verificación de la cuenta contable, código de entidad y código presupuestario.

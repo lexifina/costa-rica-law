@@ -1,0 +1,1 @@
+Artículo 3º—Los fondos fijos e importes máximos a pagar por factura por medio de caja chica, serán establecidos por directriz gerencial según la naturaleza de cada Centro de Negocios o Punto Comercial, cuyos montos serán ajustados a principios de cada año, con base en el Índice de Precios al Consumidor (IPC).

@@ -1,0 +1,2 @@
+Artículo 2º—Los fondos de caja chica se usarán únicamente en la adquisición de bienes y servicios, indispensables o de urgencia que no se encuentren en el inventario de la Proveeduría y que no correspondan al rubro presupuestario de inversión.
+Los adelantos que se soliciten, deben realizarse por medio de la solicitud: "Vale de Caja Chica", el cual deberá estar debidamente autorizado, de acuerdo al artículo 6º de este Reglamento.
