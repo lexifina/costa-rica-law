@@ -17,3 +17,4 @@ Reglamento Interior de Orden, Dirección, Comisiones y Debates del Concejo Munic
 | 2 | 1998-07-16 | Reglamento municipal 24 (1998-07-16) |
 | 3 | 2002-10-14 | Reglamento municipal 24 (2002-10-14) |
 | 4 | 2003-11-03 | Reglamento municipal 79 (2003-11-03) |
+| 5 | 2004-12-06 | Reglamento municipal 137 (2004-12-06) |
