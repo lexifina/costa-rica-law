@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del sector público y privado podrán colaborar para la realización de esta actividad en la medida de sus posibilidades y dentro de los límites legales correspondientes, sin que exista menoscabo de su objetivo principal.
