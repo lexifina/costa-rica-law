@@ -1,0 +1,1 @@
+Artículo 14.—De la lectura del hidrómetro. La lectura de los hidrómetros se hará y se cobrará mensualmente conforme al metraje cúbico registrado durante el mes y al valor del mismo. Se autoriza al Alcalde Municipal a modificar el itinerario de lectura, según las necesidades municipales.

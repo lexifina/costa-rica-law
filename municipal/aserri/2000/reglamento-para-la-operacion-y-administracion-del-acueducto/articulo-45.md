@@ -1,0 +1,1 @@
+Artículo 45.—De la vigencia y derogatoria. El presente Reglamento entrará en vigencia diez días hábiles después de su publicación en el Diario Oficial La Gaceta y deroga cualquier disposición reglamentaria que se le oponga.

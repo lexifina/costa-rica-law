@@ -1,0 +1,1 @@
+Artículo 9°—De la verificación. De previo a establecer la conexión de la paja de agua se deberá verificar que las instalaciones estén en buen estado, que no existan interconexiones que puedan dar lugar a contaminación, que la paja de agua prestará servicio únicamente a la propiedad que se solicite, todo de conformidad con el informe escrito que emita el fontanero municipal.

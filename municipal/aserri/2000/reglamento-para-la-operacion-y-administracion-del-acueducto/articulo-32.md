@@ -1,0 +1,1 @@
+Artículo 32.—Inicio de la gestión del cobro judicial. La Municipalidad procederá de inmediato al cobro judicial. El abogado a cargo del juicio, previo a iniciar el cobro judicial ante el despacho correspondiente, por una única vez emitirá una ultima carta de aviso, por un plazo de ocho días para el arreglo de pago; pasado dicho termino procederá al cobro judicial.

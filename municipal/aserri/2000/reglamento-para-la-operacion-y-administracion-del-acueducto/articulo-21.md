@@ -1,0 +1,2 @@
+Artículo 21.—Del vencimiento del pago. El servicio de agua potable será cobrado por mes vencido y en un solo pago con quince días naturales de gracia, contados a partir de la fecha en que se ponga al cobro. Vencido dicho plazo, tendrá una multa de acuerdo al Reglamento respectivo.
+El pago que se efectúe fuera del termino indicado obliga al usuario a pagar, conjuntamente con el tributo y la multa que corresponda, intereses calculados al 2% dos por ciento mensual sobre la suma adeudada, de conformidad con el artículo 69 del Código Municipal.

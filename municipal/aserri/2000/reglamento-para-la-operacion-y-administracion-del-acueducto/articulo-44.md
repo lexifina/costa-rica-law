@@ -1,0 +1,2 @@
+Artículo 44.—De la adquisición de hidrómetros y mejoramiento de acueducto. La Municipalidad a través de sus diferentes órganos, deberá medir el consumo de agua potable en su jurisdicción, para lo cual se abocará a la obtención de conjuntos de medición (hidrómetros), sea a través de fondos propios, créditos, donaciones, etc; para poder controlar de manera eficiente el consumo de agua potable.
+Asimismo, es obligación de la Municipalidad aportar los hidrómetros para brindar el servicio, siendo estos un activo de la Municipalidad y no del abonado.

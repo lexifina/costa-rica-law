@@ -1,0 +1,1 @@
+Artículo 24.—De las fugas domiciliares. En el caso en que por cualquier circunstancia se determinasen fugas no visibles dentro de la propiedad, previa inspección de funcionarios municipales, al abonado se le cobrará conforme lo establezca el medidor.
