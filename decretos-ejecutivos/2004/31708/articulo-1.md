@@ -1,13 +1,13 @@
-DECRETOS
 Nº 31708-H
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
-En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1) y 28 inciso 2) acápite b de la Ley N° 6227, o Ley General de Administración Pública del 2 de mayo de 1978, los artículos 21, 23, 24 y 25 de la Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001 y el Decreto Ejecutivo Nº 30058-HMP-PLAN y sus reformas del 19 de diciembre del 2001.
+En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso 1) y 28 inciso 2) acápite b de la Ley N° 6227, o Ley General de Administración Pública del 2 de mayo de 1978, los artículos 21, 23, 24 y 25 de la Ley N° 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de septiembre del 2001 y el Decreto Ejecutivo Nº 30058-HMP-PLAN y sus reformas del 19 de diciembre del 2001.
 Considerando:
-1°—Que una sana administración del Estado requiere la racionalización del uso de los recursos, asignándolos con base en prioridades para su mejor aprovechamiento, en beneficio del desarrollo económico y social del país.
+1º—Que una sana administración del Estado requiere la racionalización del uso de los recursos, asignándolos con base en prioridades para su mejor aprovechamiento, en beneficio del desarrollo económico y social del país.
 2º—Que para garantizar las metas fiscales y el uso racional de los recursos públicos, se hace necesario establecer directrices que regulen el crecimiento del gasto público, en concordancia con el Plan Nacional de Desarrollo y las proyecciones macroeconómicas elaboradas por el Ministerio de Hacienda (MH) y el Banco Central de Costa Rica (BCCR), que consideran entre otros parámetros la inflación esperada.
-3º—Que la Autoridad Presupuestaria de conformidad con los artículos 1°, 11°, 21°, 23°, 24° y 25° de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos publicada en La Gaceta Nº 198 del 16 de octubre del 2001, está facultada para formular las directrices de política presupuestaria del Sector Público.
-4º—Que la Autoridad Presupuestaria formuló las siguientes directrices y demás regulaciones en acuerdo número 7068, tomado en sesión ordinaria N° 3-04, celebrada el 11 de marzo del 2004. 5º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo tercero en sesión número Noventa y Dos, celebrada el dieciséis de marzo del dos mil cuatro. Por tanto,
+3º—Que la Autoridad Presupuestaria de conformidad con los artículos 1º, 11º, 21º, 23º, 24º y 25º de la Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos publicada en La Gaceta Nº 198 del 16 de octubre del 2001, está facultada para formular las directrices de política presupuestaria del Sector Público.
+4º—Que la Autoridad Presupuestaria formuló las siguientes directrices y demás regulaciones en acuerdo número 7068, tomado en sesión ordinaria N° 3-04, celebrada el 11 de marzo del 2004.
+5º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo tercero en sesión número Noventa y Dos, celebrada el dieciséis de marzo del dos mil cuatro. Por tanto,
 DECRETAN:
 Directrices de política presupuestaria del 2005 para los ministerios, demás órganos según corresponda y entidades públicas cubiertas por el ámbito de la Autoridad Presupuestaria
 CAPÍTULO I
@@ -15,3 +15,4 @@ Del gasto presupuestario
 Artículo 1º—El gasto presupuestario de las entidades públicas, para el año 2005, podrá incrementarse hasta un máximo del 7 % con respecto al gasto presupuestario autorizado para el 2004, según artículo 1º del Decreto Ejecutivo Nº 31092-H y sus reformas publicado en La Gaceta Nº 63 del 31 de marzo del 2003; del cual se deducirán las ampliaciones a dicho gasto que corresponden a gastos no recurrentes.
 Para aquellas entidades no contempladas en dicho decreto, el porcentaje de crecimiento se aplicará sobre el gasto presupuestario del 2004.
 Los montos autorizados resultantes serán comunicados por la Secretaría Técnica de la Autoridad Presupuestaria (STAP) a más tardar el 30 de abril del 2004.
+(Modificado por el artículo 1° del Decreto Ejecutivo N° 31861 de 3 de junio de 2004, de la siguiente manera: "Modificase el gasto presupuestario al Fondo de Parques Nacionales, al Fondo Forestal y al Fondo de Vida Silvestre, establecido en el artículo 1° del Decreto Ejecutivo N° 31708-H y sus reformas, publicado en La Gaceta N° 62 del 29 de marzo del 2004, fijando el nuevo límite en ¢1.403,5 millones, ¢37 millones y ¢5,7 millones, respectivamente.").
