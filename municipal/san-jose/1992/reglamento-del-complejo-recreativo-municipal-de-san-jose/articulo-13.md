@@ -1,0 +1,2 @@
+Artículo 13: La autorización de uso de las instalaciones del Complejo, será a título personal a persona física y jurídica, debiendo quedar ésta claramente identificadas; como responsable del buen uso y cuidado de las instalaciones, durante el tiempo de uso autorizado.
+La Junta Directiva del Comité establecerá los mecanismos que considere pertinentes con este propósito y la forma en que el usuario resarcirá a la Municipalidad, por dos años causados en dichas instalaciones.
