@@ -1,0 +1,2 @@
+Artículo 6°.- La Secretaría de Relaciones Exteriores deberá enviar al Registro Cívico copia de todos los acuerdos que dicte, relativos a naturalizaciones. La certificaciones en que éstas consten y que la Secretaría entregue como comprante a los interesados, deberán llevar agregados un timbre de dos colones y la fotografía debidamente sellada; un duplicado de ésta quedará también agregado al libro talonario respectivo.
+San José, a los veintisiete días del mes de octubre de mil novecientos treinta.
