@@ -1,0 +1,1 @@
+Artículo 6º—En el caso de estudiantes de enseñanza universitaria, para tener derecho a beca deberá presentar matriculados un mínimo de doce (12) créditos por semestre o cuatrimestre, siempre y cuando se le ofrezcan los cursos necesarios en la universidad y la mínima será de ochenta (80).

@@ -1,0 +1,1 @@
+Artículo 2º—El programa de becas de la Municipalidad, consistirá, en dinero efectivo, se otorgarán de acuerdo al rubro presupuestado para ese año, a estudiantes de enseñanza primaria, secundaria y universitaria, que cumplan con los requisitos estipulados en este Reglamento.

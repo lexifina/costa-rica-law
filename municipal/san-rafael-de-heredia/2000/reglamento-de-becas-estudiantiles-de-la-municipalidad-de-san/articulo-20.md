@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión de Becas Municipal estará integrada por el Presidente Municipal, Alcalde Municipal y un representante propietario o suplente de cada una de las fracciones de los partidos políticos representados en el Concejo.

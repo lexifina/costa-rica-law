@@ -1,0 +1,1 @@
+Artículo 7º—El becado presentará trimestralmente constancia de sus notas ante la secretaría del Concejo Municipal, cuando se trate de estudiantes de primaria, secundaria y semestralmente o cuatrimestre en el caso de enseñanza superior. Ningún becado podrá retirar el dinero de la Tesorería Municipal sin cumplir con lo estipulado en este artículo.
