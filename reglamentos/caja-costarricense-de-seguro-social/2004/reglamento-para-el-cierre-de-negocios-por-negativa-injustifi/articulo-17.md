@@ -1,0 +1,2 @@
+Artículo 17.—El recurso de revocatoria lo resolverá el órgano que dictó el acto dentro de un plazo de 20 días contados a partir de su presentación.
+Resuelto el recurso de revocatoria en forma negativa, se procederá a su notificación al recurrente. Notificada dicha resolución, el órgano que la dictó trasladará de inmediato a la Junta Directiva el recurso de apelación interpuesto en subsidio junto con el expediente administrativo.

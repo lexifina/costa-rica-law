@@ -1,0 +1,2 @@
+Artículo 16.—Los recursos se presentarán por escrito ante el órgano que dictó la resolución. Bajo pena de inadmisibilidad, deberán ser fundamentados expresando las razones y aportando u ofreciendo las pruebas pertinentes.
+El escrito deberá señalar lugar o medio para recibir notificaciones dentro del perímetro administrativo de las Oficinas Centrales de la Caja que es el mismo que para los efectos jurisdiccionales ha establecido la Corte Suprema de Justicia.

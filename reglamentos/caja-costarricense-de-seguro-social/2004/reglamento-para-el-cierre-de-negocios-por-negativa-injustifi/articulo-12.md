@@ -1,0 +1,3 @@
+Artículo 12.—Todo acto de procedimiento que afecte derechos e intereses del patrono o trabajador independiente, deberá ser notificado a éste o su representante, en el tanto se haya señalado lugar o medio para oír notificaciones.
+La notificación contendrá el texto íntegro de la resolución y en los casos que corresponda, indicación de los recursos procedentes, del órgano que los resolverá, de aquel ante el cual deben interponerse y de los plazos para interponerlos.
+Debe entenderse que la notificación se tendrá por bien hecha con solo uno de los destinatarios mencionados que la haya recibido en forma legal.

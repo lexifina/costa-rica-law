@@ -1,0 +1,1 @@
+Artículo 27.—Las reformas entrarán a regir noventa días después de encontrarse firme el acuerdo de la Junta Directiva que las aprueba. Durante ese plazo, la Gerencia División Financiera coordinará lo necesario para que los funcionarios involucrados en los procedimientos reciban una capacitación adecuada para la puesta en ejecución de las mismas”. San José, 2 de marzo del 2004.—
