@@ -1,1 +1,1 @@
-Artículo 13.- Conforme cada proyecto sea aprobado, el Poder Ejecutivo, por medio de decreto, incorporará en el Presupuesto Nacional la partida necesaria para su financiamiento.
+Artículo 13.- DEROGADO.-(Derogado por el artículo 2º de ley No.7730 de 20 de diciembre de 1997)
