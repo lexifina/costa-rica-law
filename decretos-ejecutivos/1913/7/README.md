@@ -29,3 +29,4 @@ Reglamento del Registro del Estado Civil
 | 15 | 1968-07-18 | Decreto TSE 2 (1968-07-18) |
 | 16 | 1969-09-01 | Decreto TSE 4 (1969-09-01) |
 | 17 | 1970-08-14 | Decreto TSE 16 (1970-08-14) |
+| 18 | 1974-06-21 | Decreto TSE 13 (1974-06-21) |
