@@ -1,0 +1,1 @@
+2.—Ámbito de aplicación. Los presentes lineamientos serán aplicables a las municipalidades, concejos municipales de distrito, federaciones municipales, confederaciones municipales, ligas de municipalidades y uniones de gobiernos locales, cuyos presupuestos están sujetos a la aprobación de la Contraloría General de la República.

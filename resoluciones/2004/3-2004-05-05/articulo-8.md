@@ -1,0 +1,1 @@
+8.—Designación de responsables. El Alcalde, Intendente o Director Ejecutivo, según corresponda, debe establecer las responsabilidades de las unidades y funcionarios que intervienen en la fase de formulación presupuestaria, quienes deben actuar de manera coordinada e integrada.
