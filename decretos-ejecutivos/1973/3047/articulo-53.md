@@ -1,0 +1,2 @@
+Artículo 53.—Para el Sector Público, cuando el costo total del estudio por servicios profesionales sea mayor del equivalente US$ 75,000.00, se utilizará únicamente el procedimiento a) del artículo 52.
+El Sector Privado utilizará el procedimiento b) del artículo 52 para todos los estudios cuyo costo sea mayor del equivalente US$ 75,000.00; o los procedimientos b) o c) del artículo 52, cuando el costo del estudio sea menor del equivalente de US$ 75,000.00.

@@ -1,0 +1,1 @@
+Artículo 42.—La concesión de un préstamo o subpréstamo de preinversión no supone compromiso alguno del Gobierno o de una Institución Nacional Intermediaria para participar en el financiamiento de los proyectos de inversión.

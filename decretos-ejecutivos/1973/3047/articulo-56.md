@@ -1,0 +1,1 @@
+Artículo 56.—El Beneficiario recibirá dichas propuestas y los formularios de los consultores y hará la calificación de los mismos, determinando su orden de elegibilidad; y solicitará a la firma más calificada una propuesta, con costos detallados, para la realización del estudio con base en los términos de referencia definitivos.

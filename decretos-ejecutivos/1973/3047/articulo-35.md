@@ -1,0 +1,1 @@
+Artículo 35.—En todos los casos en que el Beneficiario logre el financia-miento para la ejecución del proyecto objeto del estudio, antes del vencimiento del período de amortización del préstamo de preinversión, el prestatario o sub-prestatario deberá amortizar en su totalidad el saldo deudor en forma simultánea a la recepción del primer desembolso de dicho financiamiento.

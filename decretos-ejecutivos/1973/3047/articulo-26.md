@@ -1,0 +1,3 @@
+Artículo 26.—Supervisión
+a) El Departamento y las Instituciones Nacionales Intermediarias supervisarán los estudios y la elaboración de los proyectos financiados por el FONDO con la intensidad y frecuencia que consideren conveniente, a fin de que los mismos se lleven a cabo de acuerdo con sanas prácticas técnicas y administrativas y se cumplan los compromisos contractuales establecidos .
+b) Cuando el estudio o proyecto estén terminados, los técnicos correspondientes harán una revisión del Informe Final y del trabajo del Consultor, emitiendo opinión que deberá ser conocida por el Comité Directivo.

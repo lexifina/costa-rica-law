@@ -1,0 +1,2 @@
+Artículo 24.—El Departamento negociará con el beneficiario las cláusulas del contrato en el cual entre otras condiciones se establecerán claramente los procedimientos para la contratación final de los consultores.
+El Director de OFIPLAN firmará los contratos en representación del FONDO. Después de firmado el contrato el Beneficiario deberá recibir una carta explicativa de los procedimientos a seguir y demás detalles de la operación. En préstamos directos los contratos con consultores requerirán la aprobación previa del Departamento.

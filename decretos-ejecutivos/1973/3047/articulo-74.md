@@ -1,0 +1,2 @@
+Artículo 74.—Las Instituciones Nacionales Intermediarias presentarán informes semestrales al Departamento, de acuerdo con instrucciones recibidas de éste, a más tardar quince días después de cada junio 30 y diciembre 31 de cada año.
+Cuando se utilicen recursos del BID el Departamento presentará el informe al Representante del Banco Interamericano de Desarrollo en Costa Rica a más tardar treinta días después de cada junio 30 y diciembre 31.

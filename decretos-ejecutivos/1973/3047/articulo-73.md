@@ -1,0 +1,1 @@
+Artículo 73.—Con recursos del programa financiado con participación del Banco Interamericano de Desarrollo, el FONDO podrá ser usado para realizar pagos en Costa Rica por servicios de consultores de Costa Rica o de países miembros del BID.

@@ -1,0 +1,2 @@
+Artículo 54.—Se iniciará el procedimiento del artículo 52 a) con la publicación de un aviso que permitirá la recepción de los antecedentes preliminares durante un período de tiempo no menor de un mes y no mayor de 45 días.
+Recibidos los antecedentes preliminares se procederá a su estudio y a la selección de no menos de tres consultores y no más de 5 consultores que se invitarán a presentar propuestas formales.

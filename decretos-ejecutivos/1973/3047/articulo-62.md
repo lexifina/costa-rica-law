@@ -1,0 +1,2 @@
+Artículo 62.—Ejecución de los Estudios
+Los estudios se ejecutarán en forma tal que se aproveche al máximo las facilidades existentes, la información disponible, las condiciones estacionales y de clima y los demás factores que puedan influir en la agilidad del programa de trabajo. La fiscalización del estudio será ejercida por uno o más funcionarios nombrados por el beneficiario. La obligación del fiscalizador será verificar que los trabajos se realicen conforme al contrato y a los términos de referencia.
