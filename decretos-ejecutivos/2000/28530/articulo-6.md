@@ -1,1 +1,2 @@
-Artículo 6°—La coordinación de esta comisión estará a cargo del Ministerio de Trabajo y Seguridad Social, que la presidirá y realizará sus funciones de conformidad con los procedimientos establecidos al efecto en e1 articulo 49 de la Ley General de la Administración Pública.
+Artículo 6°—La Comisión Rectora realizará sus funciones de conformidad con los procedimientos establecidos al efecto en el artículo 49 de la Ley General de la Administración Pública.
+(Así reformado por Decreto Ejecutivo N° 30983 del 13-01-2003)

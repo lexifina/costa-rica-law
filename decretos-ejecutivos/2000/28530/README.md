@@ -14,3 +14,4 @@ Crea Unidad Ejecutora Técnica Atención Extrabajadores Bananerosexpuestos al t�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-23 | la propia norma |
+| 2 | 2003-01-13 | Decreto Ejecutivo 30983 (2003-01-13) |
