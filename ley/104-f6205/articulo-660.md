@@ -1,2 +1,3 @@
-ARTÖCULO 660: se refer¡a a los pagos que deb¡an hacerse al equipaje
-cuando por causa justa se revocase el viaje.
+Artículo 660.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

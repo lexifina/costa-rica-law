@@ -1,9 +1,8 @@
-ARTÖCULO 703 Introducci¢n de mercader¡as de il¡cito comercio a
-sabiendas
-del fletante
+Artículo 703.- Introducción de mercaderías de ilícito comercio a
+sabiendas del fletante
 Conviniendo a sabiendas el fletante en recibir a su bordo
-mercader¡as de il¡cito comercio, se constituye responsable
-mancomunadamente con el due¤o de ellas de todos los perjuicios que se
-originen a los dem s cargadores; y no podr exigir de aqu‚l
-indemnizaci¢n alguna por el da¤o que resulte a la nave, aun cuando se
-hubiese pactado.-No. 104 de 6 de junio de 1853, art. 703.
+mercaderías de ilícito comercio, se constituye responsable
+mancomunadamente con el dueño de ellas de todos los perjuicios que se
+originen a los demás cargadores; y no podrá exigir de aquél
+indemnización alguna por el daño que resulte a la nave, aun cuando se
+hubiese pactado.

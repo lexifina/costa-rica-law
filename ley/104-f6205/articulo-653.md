@@ -1,2 +1,3 @@
-ARTÖCULO 65Art¡culo prohib¡a al capit n abandonar en tierra o en
-mar a hombre alguno de su equipaje.
+Artículo 653.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

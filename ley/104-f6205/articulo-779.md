@@ -1,7 +1,5 @@
-ARTÖCULO 779 Demora en el reintegro del capital y premios; r‚ditos
-sobre
-el capital
-Si hubiere demora en la reintegraci¢n del capital prestado y de sus
-premios, tendr derecho el prestador al r‚dito mercantil que corresponda
-al capital, sin inclusi¢n de los premios.-No. 104 de junio de 1853, art.
-779.
+Artículo 779.- Demora en el reintegro del capital y premios; réditos
+sobre el capital
+Si hubiere demora en la reintegración del capital prestado y de sus
+premios, tendrá derecho el prestador al rédito mercantil que corresponda
+al capital, sin inclusión de los premios.

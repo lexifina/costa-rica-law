@@ -1,10 +1,10 @@
-ARTÖCULO 868 T‚rminos para evacuar el trasbordo y conducci¢n de los
+Artículo 868.- Términos para evacuar el trasbordo y conducción de los
 efectos
-Los aseguradores tienen para evacuar el trasbordo y conducci¢n de
-los efectos el t‚rmino de seis meses, si la inhabilitaci¢n de la nave
+Los aseguradores tienen para evacuar el trasbordo y conducción de
+los efectos el término de seis meses, si la inhabilitación de la nave
 hubiere ocurrido en los mares que circundan las costas occidentales de
-la Am‚rica desde Valpara¡so hasta las Californias, y de los que
+la América desde Valparaíso hasta las Californias, y de los que
 circundan las costas orientales desde el Orinoco hasta Nueva York, y un
-a¤o si se hubiere verificado en lugar m s apartado, cont ndose estos
-plazos desde el d¡a en que se les hubiere intimado por el asegurado el
-acaecimiento.-No. 104 de 6 de junio de 1853, art. 868.
+año si se hubiere verificado en lugar más apartado, contándose estos
+plazos desde el día en que se les hubiere intimado por el asegurado el
+acaecimiento.

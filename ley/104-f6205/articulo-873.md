@@ -1,11 +1,10 @@
-ARTÖCULO 873 Gastos que se consideran menudos
-Se consideran gastos menudos o de aver¡a ordinaria comprendidos en
-la disposici¢n del art¡culo anterior:
+Artículo 873.- Gastos que se consideran menudos
+Se consideran gastos menudos o de avería ordinaria comprendidos en
+la disposición del artículo anterior:
 1) Los pilotajes de costas y puertos;
 2) Los gastos de lanchas y remolques;
-3) El derecho de bolisa, de piloto mayor, anclaje, visita y dem s
+3) El derecho de bolisa, de piloto mayor, anclaje, visita y demás
 llamados de puerto;
-4) Los fletes de gabarras y descarga hasta poner las mercader¡as
-en el muelle, y cualquiera otro gasto com£n a la navegaci¢n que
-no sea de los extraordinarios y eventuales-No. 104 de 6 de junio
-de 1853, art.873.
+4) Los fletes de gabarras y descarga hasta poner las mercaderías
+en el muelle, y cualquier otro gasto común a la navegación que
+no sea de los extraordinarios y eventuales.

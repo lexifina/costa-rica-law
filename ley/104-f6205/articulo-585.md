@@ -1,6 +1,5 @@
-ARTÖCULO 585 Elecci¢n de la tripulaci¢n
-Toca al capit n proponer al naviero las personas del equipaje de
-la nave, y ‚ste tiene el derecho de elegir definitivamente las que hayan
-de tripularla; pero no podr obligar al capit n a recibir en su equipaje
-persona alguna que no sea de su contento y satisfacci¢n.-No. 104 de 6
-de junio de 1853, art. 585.
+Artículo 585.- Elección de la tripulación
+Toca al capitán proponer al naviero las personas del equipaje de
+la nave, y éste tiene el derecho de elegir definitivamente las que hayan
+de tripularla; pero no podrá obligar al capitán a recibir en su equipaje
+persona alguna que no sea de su contento y satisfacción.

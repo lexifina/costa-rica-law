@@ -1,8 +1,2 @@
-ARTÖCULO 572 y Art¡culo 573 Derogados. C¢digo de Trabajo, Ley No.
-2 de
-27 agosto de 1943, art. I de las Disposiciones Finales, rige desde 15
-de setiembre de 1943. V‚ase 32 LCRA 1:1 nota.
-Derogatoria-1943.
-Los arts. 572 y 573 del C¢digo de Comercio, Ley No. 104 de 6 de
-junio de 1853, derogados por el C¢digo de Trabajo, trataban acerca de
-lo siguiente:
+Artículo 572.-del derecho que tenía el naviero para despedir a su arbitrio al capitán e individuos de la tripulación, antes de hacerse el buque a la vela, pagándoles únicamente los sueldos devengados y sin derecho a ninguna otra indemnización, siempre y cuando su ajuste no fuera por tiempo o viaje determinado.
+(Nota de Sinalevi: De conformidad con el Libro de Leyes de Costa Rica, Anotadas Tomo 4, Título 9, página 433, se indica que el numeral 572 anterior fue derogado por el Código de Trabajo, Ley N° 2 de 27 de agosto de 1943, artículo I de las Disposiciones Finales)

@@ -1,5 +1,4 @@
-ARTÖCULO 725 Mercader¡as vendidas en casos urgentes; pago del flete
-Devengan flete las mercader¡as que el capit n haya vendido en caso
+Artículo 725.- Mercaderías vendidas en casos urgentes; pago del flete
+Devengan flete las mercaderías que el capitán haya vendido en caso
 de urgencia para subvenir a los gastos de carena, aparejamiento y otras
-necesidades imprescindibles del buque.-No. 104 de 6 de junio de 1853,
-art. 725.
+necesidades imprescindibles del buque.

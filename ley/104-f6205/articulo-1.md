@@ -1,7 +1,7 @@
 Código de Comercio (1853) Comercio Marítimo
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado)
 DECRETO CIV.(*)
-N° 3.
+(*)Nota de Sinalevi: El artículo I, de las Disposiciones generales y transitorias del Código de Comercio, Ley No. 3284 de 30 de abril de 1964, derogó el Código de Comercio emitido mediante esta ley, excepto el LIBRO TERCERO “DEL COMERCIO MARITIMO” que comprende de los artículos 530 al 940, en tanto no se dicte la legislación correspondiente. Anteriormente había sido derogado en las mismas condiciones por el Código de Comercio de 1961, Ley No. 2797 de 4 de agosto de 1961, subsistiendo siempre el Libro Tercero citado.
 Eleva a ley de la República el Código de Comercio Español, modificado por la Honorable Comisión Permanente; y autoriza al Poder Ejecutivo para que nombre una comisión que redacte el proyecto de organización de los Tribunales de comercio.
 N° 3.
 “Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente.

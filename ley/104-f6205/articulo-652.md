@@ -1,2 +1,3 @@
-ARTÖCULO 652: fijaba la indemnizaci¢n que le correspond¡a al hombre
-de mar cuando el capit n rehusara llevarlo a bordo.
+Artículo 652.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

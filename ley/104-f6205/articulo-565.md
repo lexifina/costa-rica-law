@@ -1,5 +1,4 @@
-ARTÖCULO 565 Nombramiento y ajuste del capit n
-Tambi‚n corresponde al naviero hacer el nombramiento y ajuste del
-capit n; pero si tuviere copart¡cipes en la propiedad de la nave, deber
-hacerse dicho nombramiento por la mayor¡a de todos los part¡cipes.-No.
-104 de 6 de junio de 1853, art. 565.
+Artículo 565.- Nombramiento y ajuste del capitán
+También corresponde al naviero hacer el nombramiento y ajuste del
+capitán; pero si tuviere copartícipes en la propiedad de la nave, deberá
+hacerse dicho nombramiento por la mayoría de todos los partícipes.

@@ -1,12 +1,11 @@
-ARTÖCULO 685 Demora en la carga o descarga; dilaci¢n en poner la
-carga
-al costado; no recepci¢n de la carga
-Pasado el plazo para la carga o la descarga, y no habiendo cl usula
-expresa que fije la indemnizaci¢n de la demora, tendr derecho el
-capit n a exigir las estad¡as y sobreestad¡as que hayan trascurrido sin
-cargar ni descargar; y cumplido que sea el t‚rmino de las sobreestad¡as,
-si la dilaci¢n estuviere en no ponerle la carga al costado, podr
+Artículo 685.- Demora en la carga o descarga; dilación en poner la
+carga al costado; no recepción de la carga
+Pasado el plazo para la carga o la descarga, y no habiendo cláusula
+expresa que fije la indemnización de la demora, tendrá derecho el
+capitán a exigir las estadías y sobreestadías que hayan trascurrido sin
+cargar ni descargar; y cumplido que sea el término de las sobreestadías,
+si la dilación estuviere en no ponerle la carga al costado, podrá
 rescindir el fletamento, exigiendo la mitad del flete pactado; y si
-consistiese en no recibirle la carga, acudir al tribunal de comercio
+consistiese en no recibirle la carga, acudirá al tribunal de comercio
 de la plaza, y en el caso de no haberlo, al Juez ordinario para que
-providencie el dep¢sito.-No. 104 de 6 de junio de 1853, art. 685.
+providencie el depósito.

@@ -1,4 +1,3 @@
-ARTÖCULO 726 Mercader¡as arrojadas al mar; flete
-El flete de las mercader¡as arrojadas al mar para salvarse de un
-riesgo, se considerar aver¡a com£n, abon ndose su importe al
-fletante.-No. 104 de 6 de junio de 1853, art. 726.
+Artículo 726.- Mercaderías arrojadas al mar; flete
+El flete de las mercaderías arrojadas al mar para salvarse de un
+riesgo, se considerará avería común, abonándose su importe al fletante.

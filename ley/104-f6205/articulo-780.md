@@ -1,10 +1,9 @@
-Secci¢n III
-De los Seguros Mar¡timos
+Sección III
+De los Seguros Marítimos
 1. FORMA DE ESTE CONTRATO
-ARTÖCULO 780 Escritura p£blica o privada; efectos
-El contrato de seguro ha de constar de escritura p£blica o privada
+Artículo 780.- Escritura pública o privada; efectos
+El contrato de seguro ha de constar de escritura pública o privada
 para que sea eficaz en juicio.
-Las formas diferentes de su celebraci¢n, y los efectos respectivos
+Las formas diferentes de su celebración, y los efectos respectivos
 de cada una, son las mismas que con respecto al contrato a la gruesa se
-han prescrito en el art¡culo 752 [9 LCRA Art¡culo 752]'.-No. 104 de 6
-de junio de 1853, art. 780.
+han prescrito en el artículo 752.

@@ -1,13 +1,13 @@
-ARTÖCULO 917 Reconocimiento de los efectos por peritos o el agente
-consular; resoluci¢n del tribunal
-No hall ndose en el puerto el cargador ni persona que lo
-represente, se reconocer n los g‚neros por peritos nombrados por los
+Artículo 917.- Reconocimiento de los efectos por peritos o el agente
+consular; resolución del tribunal
+No hallándose en el puerto el cargador ni persona que lo
+represente, se reconocerán los géneros por peritos nombrados por los
 jueces de comercio, o el agente consular en su caso, los cuales
-declarar n la especie de da¤o que hubieren encontrado en los efectos
+declararán la especie de daño que hubieren encontrado en los efectos
 reconocidos, los medios de repararlo o de evitar al menos su aumento o
-propagaci¢n, y si podr ser o no conveniente su reembarque y conducci¢n
+propagación, y si podrá ser o no conveniente su reembarque y conducción
 al puerto donde estuvieren consignados.
-En vista de la declaraci¢n de los peritos, proveer el tribunal lo
-que estime m s £til a los intereses del cargador, y el capit n pondr
-en ejecuci¢n lo decretado, quedando responsable de cualquiera infracci¢n
-o abuso que se cometa.-No. 104 de 6 de junio de 1853, art. 917.
+En vista de la declaración de los peritos, proveerá el tribunal lo
+que estime más útil a los intereses del cargador, y el capitán pondrá
+en ejecución lo decretado, quedando responsable de cualquier infracción
+o abuso que se cometa.

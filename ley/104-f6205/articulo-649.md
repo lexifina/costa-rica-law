@@ -1,2 +1,3 @@
-ARTÖCULO 649: se refer¡a al permiso que deb¡a obtener un hombre de
-mar para pasar del servicio de una nave al de otra.
+Artículo 649.- DEROGADO.
+( Derogado por el artículo 1º de las Disposiciones Finales del
+Código de Trabajo, ley No. 2 del 27 de agosto de 1943 ).

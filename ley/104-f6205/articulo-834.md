@@ -1,9 +1,8 @@
-ARTÖCULO 834 Presunci¢n de que la parte interesada ten¡a
-conocimiento
-del arribo o p‚rdida de los bienes, antes de celebrar el contrato
-Tiene lugar aquella presunci¢n, sin perjuicio de otras pruebas,
-cuando hayan trascurrido, desde que aconteciere el arribo o p‚rdida
+Artículo 834.- Presunción de que la parte interesada tenía conocimiento
+del arribo o pérdida de los bienes, antes de celebrar el contrato
+Tiene lugar aquella presunción, sin perjuicio de otras pruebas,
+cuando hayan trascurrido, desde que aconteciere el arribo o pérdida
 hasta la fecha del contrato, tantas horas cuantas leguas legales de
-medida espa¤ola haya por el camino m s corto desde el sitio en que se
-verific¢ el arribo o la p‚rdida hasta el lugar donde se contrat¢ el
-seguro.-No. 104 de 6 de junio de 1853, art. 834.
+medida española haya por el camino más corto desde el sitio en que se
+verificó el arribo o la pérdida hasta el lugar donde se contrató el
+seguro.

@@ -1,5 +1,5 @@
-ARTÖCULO 684 Plazo para evacuar la carga y descarga de la nave
-Si no constare de la p¢liza del fletamento el plazo en que deba
-evacuarse la carga y descarga de la nave, regir el que est‚ en uso en
+Artículo 684.- Plazo para evacuar la carga y descarga de la nave
+Si no constare de la póliza del fletamento el plazo en que deba
+evacuarse la carga y descarga de la nave, regirá el que esté en uso en
 el puerto donde respectivamente se haga cada una de aquellas
-operaciones.-No. 104 de 6 de junio de 1853, art. 684.
+operaciones.
