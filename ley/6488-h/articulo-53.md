@@ -1,0 +1,2 @@
+Articulo 53.-Gastos de transporte aéreo de las encomiendas-avión perdidas o destruidas.
+En caso de pérdida o de destrucción de las encomiendas-avión debido a un accidente ocurrido a la aeronave, o por cualquier otro motivo, que comprometa la responsabilidad de la empresa de transporte aéreo, la Administración de origen estará exonerada de todo pago, por concepto de transporte aéreo de las encomiendas-avión perdidas o destruidas, sobre cualquier tramo del trayecto de la línea utilizada.
