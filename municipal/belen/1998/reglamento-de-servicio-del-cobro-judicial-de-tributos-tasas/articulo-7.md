@@ -1,0 +1,1 @@
+Artículo 7°—El incumplimiento en la presentación oportuna del informe trimestral durante dos veces consecutivas o tres alternas en el curso de un año se considerará incumplimiento grave y facultará a la Corporación para rescindir unilateralmente los contratos suscritos con la empresa que incumpla esta obligación.

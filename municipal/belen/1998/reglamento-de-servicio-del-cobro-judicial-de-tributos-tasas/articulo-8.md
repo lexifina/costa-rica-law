@@ -1,0 +1,1 @@
+Artículo 8°—La Municipalidad llevará un rol alfabético de las compañías contratadas a efectos de repartir los cobros judiciales en forma equitativa y justa y entregará a dichas empresas listados actualizados de los contribuyentes morosos y del monto adecuado, los cuales se actualizarán cada vez que sea posible y no menos de una vez cada tres meses.
