@@ -1,5 +1,0 @@
-Artículo 6° Son causas justas de terminación del contrato de representación, sin ninguna responsabilidad para casa matriz:
-a) Los delitos contra la propiedad y el buen nombre de la casa matriz;
-b) La ineptitud y negligencia del representante, declarada por uno de los Jueces Civiles, del domicilio del Representante, de los trámites de los incidentes, así como la disminución o estancamiento prolongados y sustanciales de las ventas, por causas imputables al representante. La fijación de cuotas o restricciones oficiales a la importación del artículo o servicio, harán presumir la inexistencia del cargo, salvo prueba en contrario.
-c) La violación por el representante del deber de secreto y de fidelidad a la casa matriz, por la revelación de hechos, conocimiento o técnicas concernientes a la organización, productos y funcionamiento de la casa matriz, adquiridos durante las relaciones comerciales con ésta; y
-d) Cualquier otra falta grave del representante a sus deberes y obligaciones contractuales o legales para con la casa matriz.
