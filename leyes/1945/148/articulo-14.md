@@ -1,0 +1,1 @@
+Artículo 14º.- Para la adjudicación de las casas construidas por la Caja, se seleccionarán las solicitudes que en toda justicia sean más acreedoras al beneficio y si el número de ellas fuere mayor al de las casas, se procederá a adjudicarlas por sorteo.
