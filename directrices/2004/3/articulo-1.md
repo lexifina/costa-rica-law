@@ -1,0 +1,18 @@
+DIRECCIÓN GENERAL DE HACIENDA
+DGH-D-03.—San José, a las once horas del diecinueve de agosto del dos mil cuatro.
+Directriz sobre el procedimiento para la sustitución de bienes regulados en el artículo 45 del Decreto Ejecutivo Nº 24863-H-TUR, Reglamento a la Ley de Incentivos para el Desarrollo Turístico, publicado en La Gaceta Nº 22 de 31 de enero de 1986, así como, sobre el procedimiento para la disposición de ciertos bienes que por su naturaleza son objeto de pérdida y robo frecuente; exonerados al amparo de los incisos a), b), c) y ch) del artículo 7 de la Ley N° 6990 publicada en La Gaceta N° 143 del 30 de julio de 1985.
+Resultando:
+1º—Que dentro de los procesos que se llevan cabo para la sustitución de bienes exonerados en la Dirección General de Hacienda está el de autorizar la destrucción de bienes exonerados que están en mal estado; la liquidación de los impuestos ó el traspaso entre beneficiarios.
+2º—Que en cuanto a la autorización para la destrucción de bienes exonerados sin valor comercial ha sido la práctica administrativa que un funcionario de ésta Dirección se apersone a la empresa solicitante a efectos de presenciar la destrucción del bien y levantar el acta correspondiente, lo que ha implicado retrasos en la tramitación para el beneficiario y costos administrativos para la Administración.
+3º—Que existen bienes tales como servilletas, sábanas, vajillas, paños y similares que por su naturaleza, deterioro por su uso, pérdida u robos frecuentes para los cuales no es posible levantar un documento previo de destrucción, sino con posterioridad a la ocurrencia de esa situación.
+Considerando:
+1º—Que el Decreto N° 24863-H-TUR establece que en caso de sustituciones de bienes exonerados que están en mal estado y no tienen valor comercial, la empresa beneficiaria deberá solicitar a la Dirección General de Hacienda la destrucción de los mismos.
+2º—Que dicha solicitud de destrucción no requiere necesariamente la presencia física de un funcionario de la Dirección.
+3º—Que la presencia física de un funcionario de la Dirección implica costos administrativos para la Administración así como retrasos en el trámite para el beneficiario. Por tanto:
+La Dirección General de Hacienda establece el siguiente procedimiento para el trámite de sustitución de bienes exonerados al amparo de los incisos a), b), c) y ch) del artículo 7 de la Ley N° 6990.
+1º—Cuando una empresa beneficiaria trate de disponer de bienes exonerados que están en buen estado y tienen valor comercial, la empresa podrá: liquidar los impuestos; tramitar la donación de las mercancías; exportar las mercancías ó traspasar los bienes a otros beneficiarios. Para el caso de liquidación de los impuestos, el trámite se deberá realizar ante esta Dirección y cumpliendo los siguientes requisitos:
+a. Solicitar la recomendación de liquidación al Instituto Costarricense de Turismo con un detalle de los bienes y fotocopia de la nota de exoneración respectiva.
+b. Presentar al Departamento de Exenciones de la Dirección General de Hacienda: solicitud de liquidación suscrita por el representante legal, certificación de personería jurídica, copia del documento de identidad del representante legal, recomendación de liquidación del ICT, copia de la declaración aduanera de importación o factura comercial y copia de la nota de exención.
+c. Presentar a la Aduana respectiva la Nota de Hacienda autorizando la liquidación de los bienes.
+d. Presentar al ICT copia de la Declaración de liquidación del bien, para ser incluida en su expediente.
+Si por causas de fuerza mayor el interesado no puede presentar alguno de los documentos necesarios, esta Dirección deberá valorar la situación y decidirá si continúa el trámite con los documentos aportados.
