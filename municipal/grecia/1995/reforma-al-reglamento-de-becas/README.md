@@ -14,3 +14,4 @@ Reforma al Reglamento de Becas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-08-01 | la propia norma |
+| 2 | 1995-08-01 | Ley 8 |
