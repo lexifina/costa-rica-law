@@ -14,3 +14,4 @@ Crea el Consejo Ministerial para la Inocuidad de Alimentos (CMIA) y la Comisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-17 | la propia norma |
+| 2 | 2002-08-06 | Decreto Ejecutivo 30743 (2002-08-06) |
