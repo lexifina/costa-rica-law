@@ -1,0 +1,1 @@
+Transitorio único.—No procede la aplicación de descuentos al pago de saldos pendientes de períodos anteriores a la vigencia de la presente Resolución, sin perjuicio de que los pagos puedan ser hechos por el sistema de débitos directos descrito en esta Resolución.
