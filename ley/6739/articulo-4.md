@@ -1,5 +1,1 @@
-Artículo 4º.- El Ministro de Justicia podrá establecer consejos
-asesores y comités consultivos y de coordinación, a fin de facilitar la
-participación de entidades, funcionarios y particulares en los
-procedimientos de gestación, adopción y ejecución de las decisiones y
-actos, en cualquiera de los campos de su competencia.
+ARTICULO 4º.- El Ministro de Justicia podrá establecer consejos asesores y comités consultivos y de coordinación, a fin de facilitar la participación de entidades, funcionarios y particulares en los procedimientos de gestación, adopción y ejecución de las decisiones y actos, en cualquiera de los campos de su competencia.
