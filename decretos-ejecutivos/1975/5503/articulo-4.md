@@ -1,0 +1,1 @@
+Artículo 4°—Este Comité tendrá su sede en el Instituto Costarricense de Electricidad, cuyo representante será su Presidente. Se reunirá por lo menos una vez cada tres meses y extraordinariamente cada vez que sea necesario. Se regirá por el Reglamento Interno que deberá emitir el propio Comité a más tardar tres meses después de la publicación del presente decreto.
