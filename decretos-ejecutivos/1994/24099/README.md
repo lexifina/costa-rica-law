@@ -15,3 +15,4 @@ Reglamento Registro y Control Sustancias Tóxicas y Productos Tóxicos y Peligro
 | --- | --- | --- |
 | 1 | 1994-12-22 | la propia norma |
 | 2 | 1994-12-22 | SINALEVI (sin norma nombrada) |
+| 3 | 1996-03-11 | Decreto Ejecutivo 25034 (1996-03-11) |

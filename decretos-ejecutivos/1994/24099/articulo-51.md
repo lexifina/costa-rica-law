@@ -8,5 +8,7 @@ f) Un Representante de la Federación Costarricense de Grupos Ambientalistas (FE
 g) Un Representante de la Oficina Nacional de Normas y Unidades de Medida, del Ministerio de Economía, Industria y Comercio.
 h) Un representante del Consejo de Salud Ocupacional.
 i) Un representante del Departamento de Ingeniería de Riesgos del Cuerpo de Bomberos.
+i) Un representante de la Cámara de Industria Química, Alimentaria y Afines.
+(Así adicionado el inciso anterior por el artículo 1º del decreto ejecutivo Nº 25034 de 11 de marzo de 1996. No obstante ya existe otro inciso i con texto diferente).
 j) Un representante de la Asesoría Legal del Ministerio.
 Todos los miembros tendrán su respectivo suplente.
