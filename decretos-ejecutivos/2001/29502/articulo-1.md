@@ -1,0 +1,13 @@
+Nº 29502-H
+LA PRIMERA VICEPRESIDENTA
+EN EL EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que leS confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública, las Leyes N° 2035 del 17 de julio de 1956, N° 6050 del 14 de marzo de 1977 y N° 7742 del 19 de diciembre de 1997.
+Considerando:
+1º—Que de acuerdo con la Ley N° 7742, Ley de Creación del Programa de Reconversión Productiva, al Consejo Nacional de Producción (CNP) le corresponde ejecutar y desarrollar dicho programa para la consecución de sus finalidades, entre las cuales está la transformación integral de las actividades productivas del sector agropecuario, en procura de su modernización y verticalización para darle la eficiencia y competitividad que requiere el desarrollo económico de Costa Rica.
+2º—Que en el artículo 5°, inciso M, de la citada Ley se estipula que para cumplir sus fines, entre otras funciones, el CNP debe atender las necesidades prioritarias del sector productivo, con énfasis en las unidades productivas pequeñas y medianas y en sus organizaciones, mediante el desarrollo de los programas social, técnica, financiera y ambientalmente sostenibles en el mediano y largo plazo.
+3º—Que por disposición de la Ley N° 8047, el CNP incorporó dentro de su presupuesto de gastos del período 2000, recursos provenientes del Instituto Nacional de Seguros (INS), los cuales quedaron comprometidos para ser ejecutados en el presente año. Esto con el fin de cancelar los intereses corrientes y moratorios, así como los gastos administrativos, honorarios y costas de los procesos judiciales que adeuden por operaciones crediticias agropecuarias los pequeños y medianos productores con los bancos comerciales del Estado, privados, fideicomisos, otras entidades financieras públicas, privadas o con establecimientos comerciales.
+4º—Que mediante el Decreto Ejecutivo N° 28639-H, publicado en La Gaceta N° 101 del 26 de mayo del 2000, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2001, que fueron debidamente sancionadas y aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que para cumplir con los objetivos indicados, resulta necesario modificar el lÍmite de gasto efectivo fijado para el CNP en el citado Decreto. Por tanto,
+Decretan:
+Artículo 1º—ModifÍcase para el Consejo Nacional de Producción, el límite de gasto efectivo para el 2001, contenido en el Decreto Ejecutivo N° 28639-H quedando establecido en un monto de ¢10.058.0 millones.
