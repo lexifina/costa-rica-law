@@ -1,6 +1,7 @@
 N° 21852-MOPT
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+NOTA: Mediante el artículo 1° del Decreto Ejecutivo N° 57295 de 17 de agosto de 1998, Reglamento para la Fijación de Tarifas en el Aeropuerto Internacional Juan Santamaría, se deroga todo lo relativo al Aeropuerto Internacional Juan Santamaría regulado en este decreto).
 En uso de las facultades y atribuciones que les confieren el artículo N° 140, incisos 3) y 18) de la Constitución Política, el Convenio sobre Aviación Civil Internacional, firmado en Chicago el 7 de diciembre de 1944 y el artículo N° 161 de la Ley General de Aviación Civil N° 5150 del 14 de mayo de 1973, y sus reformas.
 DECRETAN:
 1°-Modifíquense los artículos 3, 4, 5, 6, 7, 8, 10, 11, 12, 13 y 16 del Decreto Ejecutivo N° 20656-MOPT Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias para que en adelante se lean:
