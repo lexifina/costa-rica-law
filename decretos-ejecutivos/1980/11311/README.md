@@ -13,3 +13,4 @@ Constituye Comisión Coordinadora Nacional Apoyo Programa NacionalSalud Animal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-31 | la propia norma |
+| 2 | 1980-03-31 | SINALEVI (sin norma nombrada) |
