@@ -1,1 +1,1 @@
-Artículo 6º.- Rige a partir de su publicación.
+ARTICULO 6º.- Rige a partir de su publicación.
