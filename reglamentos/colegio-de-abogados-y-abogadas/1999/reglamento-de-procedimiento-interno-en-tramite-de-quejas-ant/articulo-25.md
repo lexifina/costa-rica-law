@@ -1,0 +1,5 @@
+Artículo 25.-De la forma de notificación de las distintas resoluciones:
+Las resoluciones establecidas en el artículo ocho anterior, deberán ser notificadas de la siguiente manera: las resoluciones de los incisos a, e y f, deberán ser notificadas personalmente al interesado.
+Las demás resoluciones podrán ser notificadas en la dirección constante en el Colegio de Abogados, si el órgano director del proceso sancionatorio o el órgano juzgador consideraren que para evitar indefensión la parte debiera ser notificada en forma personal, se hará en esta forma y no podrá ser variada esa decisión una vez tomada en firme.
+Si en la dirección señalada el notificando no pudiere ser habido, se tendrá por notificada veinticuatro horas después de dictada.
+Cuando las notificaciones hayan de hacerse personalmente y no fuere habido el notificando, la resolución se le notificará mediante edictos publicados en el Diario Oficial "La Gaceta", todo ello de conformidad con las prescripciones establecidas, en lo conducente, en el Capítulo Primero del Título Tercero de la Ley General de la Administración Pública teniéndose por notificado al día siguiente de la publicación respectiva."

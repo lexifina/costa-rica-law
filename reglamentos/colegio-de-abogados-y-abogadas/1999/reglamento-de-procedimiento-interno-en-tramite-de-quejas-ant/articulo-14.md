@@ -1,0 +1,2 @@
+Artículo 14.-De la comparecencia oral y privada:
+Si por los hechos y las circunstancias no se opera la conciliación, o si fijada ésta resultare infructuosa, se continuará con la fijación de la comparecencia oral y privada, recibiendo en esta oportunidad toda la prueba y alegatos de las partes que fueren pertinentes. La notificación a la comparecencia deberá hacerse con quince días de anticipación, en la cual se prevendrá a las partes que deben de presentar toda la prueba antes o en el momento de la comparecencia si todavía no lo han hecho.

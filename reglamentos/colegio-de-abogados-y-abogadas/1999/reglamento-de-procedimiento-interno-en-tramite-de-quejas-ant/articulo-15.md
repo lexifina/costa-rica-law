@@ -1,0 +1,2 @@
+Artículo 15.-De la declaratoria de rebeldía:
+Concluido el plazo conferido en el traslado de la queja, sin que el denunciado se haya apersonado a los autos, se declarara en estado de Rebeldía, significando que el procedimiento se continuará sin su participación, y sin necesidad de que le sean notificadas las posteriores resoluciones. Ello sin perjuicio de que pueda apersonarse en cualquier momento, tomando el procedimiento en el estado en que se encuentre.

@@ -1,0 +1,8 @@
+Artículo 29.-Del procedimiento para notificar:
+El procedimiento de notificación se inicia con la confección del Acta de Notificación en el Despacho de la Fiscalía, debidamente firmada,
+1. El Acta de notificación se le entregará al notificador quien se encargará de hacerla llegar al interesado.
+2. A fin de comprobar que la notificación se efectuó, el notificador deberá llenar la "casilla", que aparece en la parte superior del documento, no se aceptan ningún tipo de borrones, entre rreglonaduras o cualquier otro tipo de corrección que impliquen alteración de la casilla, toda enmienda se hará por medio de nota al margen del documento con la firma y fecha del notificador. La constancia de entrega contendrá necesariamente el nombre y número de cédula de la persona que recibe el documento quien deberá firmar junto con el notificador en el mismo acto, de no hacerlo el notificador dejará constancia de ello en documento en los términos que establece la Ley de Notificaciones, Citaciones y otras comunicaciones Judiciales.
+3. El notificador es directamente responsable por todos los documentos que se le asignen para ser notificados.
+4. El notificador tendrá como plazo para efectuar la notificación tres días contados desde el momento en que se le hizo entrega del documento, salvo que a juicio de la Fiscalía requieran de más tiempo por la dificultad en la localización de las partes.
+5. Existe presunción iuris tantum de que el notificador es veraz en cuanto a sus razones de notificación.
+6. Se tendrá como notificado válidamente con el primer apersonamiento cuando se haya hecho en forma defectuosa de acuerdo a lo establecido en la Ley de Notificaciones, Citaciones y otras Comunicaciones Judiciales.

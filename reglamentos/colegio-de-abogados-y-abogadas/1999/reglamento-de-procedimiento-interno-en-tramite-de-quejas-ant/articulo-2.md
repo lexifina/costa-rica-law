@@ -1,0 +1,2 @@
+Artículo 2°-Del ámbito de aplicación:
+El presente reglamento será aplicable a todo trámite administrativo de carácter sancionatorio que se presente, a instancia de parte o en forma oficiosa, ante el Colegio de Abogados en todo el país, en consecuencia las normas aquí estatuidas afectarán a todas las partes involucradas en el proceso disciplinario así como a terceros, quienes podrán invocarlas en los términos de la Ley General de la Administración Pública.

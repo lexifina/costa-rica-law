@@ -1,0 +1,2 @@
+Artículo 19.-De la prueba para mejor resolver:
+Por considerarlo necesario, el órgano director del procedimiento como prueba para mejor resolver, podrá solicitar certificaciones, dictámenes u otro tipo de pruebas para el mejor esclarecimiento de la verdad real de los hechos. Dicha solicitud puede hacerla en el momento en que lo considere oportuno. También podrá hacer comparecer en calidad de testigo a las personas que así considere necesario.
