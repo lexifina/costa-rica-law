@@ -1,0 +1,1 @@
+Artículo 8°-El Instituto Costarricense de Electricidad deberá Incorporar al proyecto geotérmico de Miravalles, las soluciones técnicas apropiadas para garantizar la sanidad del medio ambiente, de conformidad con las normas establecidas por la Organización Mundial de la Salud, y a satisfacción de los Ministerios de Salud y de Industria, Energía y Minas.
