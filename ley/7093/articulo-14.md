@@ -1,6 +1,1 @@
-CAPITULO II
-De los delitos
-Artículo 14.- Se impondrá prisión de ocho a veinte años a quien
-participe, de cualquier forma, en el tráfico internacional de sustancias
-estupefacientes, psicotrópicas, inhalantes o de sustancias químicas
-destinadas a la fabricación o disolución de drogas estupefacientes.
+Artículo 14.- Toda persona, nacionalo extranjera, al ingresar en el país, está obligada a presentar y declarar el dinero efectivo que traiga consigo, si supera un millón de colones (¢1.000.000) o su equivalente en moneda extranjera; deberá usar, al efecto, los formularios oficiales que, para esos fines, tendrán siempre los puestos migratorios. Tal manifestación tendrá el valor de declaración jurada. Para fines probatorios, la omisión de esta declaración se considerará como indicio y su falsedad constituirá el delito a que se refiere el artículo 358 del Código Penal.

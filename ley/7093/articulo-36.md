@@ -1,8 +1,3 @@
-Artículo 36.- Refórmase el artículo 23 de la Ley Orgánica del
-Ministerio de Salud, Nº 5412 del 8 de noviembre de 1973, modificado por el
-artículo 1º de la ley Nº 7035 del 14 de abril de 1986, cuyo texto dirá:
-"Artículo 23.-El financiamiento del Instituto se incluirá en el
-Presupuesto Nacional de la República, sin perjuicio de cualquier otro tipo
-de ingreso que se capte. Estos fondos serán administrados separadamente en
-una cuenta corriente bancaria propia, sujetos a la fiscalización de la
-Contraloría General de la República."
+CAPÍTULO V
+DEL CONSEJO NACIONAL DE DROGAS
+Artículo 36.- El Consejo Nacional de Drogas será el ente rector de las materias contempladas en esta Ley, sin perjuicio de las funciones asignadas por la ley al Instituto sobre Alcoholismo y Farmacodependencia. Este Consejo funcionará como un organismo adscrito al Ministerio de Justicia y Gracia y tendrá personalidad jurídica para el cumplimiento de sus fines.

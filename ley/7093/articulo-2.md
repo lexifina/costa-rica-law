@@ -1,9 +1,7 @@
-Artículo 2º.- El comercio, el expendio, la industrialización, la
-fabricación, la refinación, la transformación, la extracción, la
-preparación, la producción, la importación, la exportación, la
-prescripción, el suministro, el almacenamiento y la distribución de
-sustancias que causen dependencia, de sus derivados y especialidades, son
-actividades que quedan limitadas estrictamente a las cantidades necesarias
-para el tratamiento médico, para la producción legal de medicamentos o para
-investigaciones científicas, y sólo las personas legalmente autorizadas
-podrán intervenir en todo lo relacionado con ellas.
+Artículo 2.-Para los efectos de la presente Ley, se entiende por:
+Droga, toda sustancia o agente farmacológico que introducidos en el organismo de una persona viva, modifican sus funciones fisiológicas. Estupefaciente, cualquier droga que actúa sobre el sistema nervioso central y produce estupor. Se tienen como estupefacientes las drogas incluidas en la Convención Unica de 1961, sobre estupefacientes, hecha en las Naciones Unidas el 30 de marzo de 1961, en la Convención enmendada por el Protocolo de 1972 de modificación a la Convención y todas las que queden sujetas al control internacional en el futuro, así como las que el Ministerio de Salud, mediante decreto, declare como tales.
+Psicotrópico o psicofármaco, cualquier sustancia, material o sintética o materia natural, que actúa en el nivel del sistema nervioso central, comprendida en el Convenio sobre sustancias psicotrópicas de Viena del 21 de febrero de 1971, u otro convenio que lo sustituya o modifique, así como a las sustancias que el Ministerio de Salud, mediante decreto, califique como tales.
+Sustancia "inhalable", aquella sustancia que tiene la propiedad de transformarse en vapor o gas que posibilite su aspiración y contacto con los pulmones, de donde pasa al torrente sanguíneo y de éste a los demás órganos y al sistema nervioso y da lugar a una intoxicación que puede producir lesiones irreversibles.
+Precursor, toda sustancia o mezcla de sustancias a partir de las cuales se producen, sintetizan u obtienen drogas, estupefacientes o psicofármacos.
+Farmacodependiente: quien presenta un estado psíquico y, a veces, físico causado por la interacción entre un organismo vivo y un fármaco.
+La farmacodependencia se caracteriza por modificaciones del comportamiento y, por otras reacciones, que comprenden siempre un impulso irreprimible a consumir un fármaco en forma continua o periódica, a fin de experimentar sus efectos psíquicos y, a veces, de evitar el malestar producido por la privación. La dependencia puede ir acompañada o no de tolerancia. Una misma persona puede ser dependiente de uno o más fármacos.

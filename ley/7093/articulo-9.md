@@ -1,4 +1,1 @@
-Artículo 9º.- Toda acción tendente a evitar el cultivo, la producción,
-el tráfico y el consumo de drogas de uso no autorizado, deberá ser supervisada
-por el Consejo Nacional de Drogas, sin perjuicio de las funciones que la ley
-le asigne al Instituto sobre Alcoholismo y Farmacodependencia.
+Artículo 9.- Es deber de toda persona colaborar con la prevención de los delitos y del consumo ilícito de las drogas y demás sustancias a que se refiere esta Ley. El Estado deberá procurar la seguridad y las garantías que cada caso demande.

@@ -1,10 +1,3 @@
-Artículo 17.- Se impondrá prisión de seis meses a doce años e
-inhabilitación para el ejercicio de funciones públicas, por el mismo
-término, al funcionario o empleado público encargado de investigar, juzgar
-o custodiar a personas vinculadas con los delitos tipificados en la
-presente ley, que procure la impunidad o evasión de las personas, que
-oculte, altere, sustraiga o haga desaparecer los rastros, las pruebas o los
-instrumentos del delito, o que asegure el provecho o producto de ese acto.
-Si los hechos mencionados se cometieren por culpa del funcionario o
-empleado, la pena de prisión que se impondrá será de dos a seis años e
-inhabilitación por el término señalado en el párrafo anterior.
+Artículo 17.- Se impondrá prisión de ocho a veinte años a quien interviniera en cualquier tipo de contrato, ya sea real o simulado, de enajenación, de inversión, de pignoración, de cesión, de conversión, de transferencia, de guarda, o de encubrimiento de la naturaleza, origen, ubicación, destino o circulación de las ganancias, cosas, valores, títulos o bienes provenientes de los hechos delictivos tipificados en esta Ley o del beneficio económico obtenido de dichos delitos, siempre que hubiera conocido ese origen y tienda con esas acciones a ocultar o encubrir el origen de los recursos o a eludir las consecuencias jurídicas de ellas, independientemente del lugar donde esos actos ilícitos se hubieran cometido.
+El favorecimiento personal del delito establecido en este artículo, será sancionado con la pena señalada para el autor. Cuando el tráfico de drogas o los delitos relacionados con esa actividad, aun los referidos a las conductas tipificadas en este artículo, se hayan ejecutado en el extranjero, su respectiva demostración podrá acreditarse por cualquier medio de prueba, siempre que se respeten las garantías establecidas en la legislación nacional y en las Convenciones Internacionales aceptadas por Costa Rica en protección de los derechos del imputado.
+Los bancos del Sistema Bancario Nacional deberán rendir los informes relacionados con las conductas tipificadas en el presente artículo, los cuales les soliciten el Ministerio Público o los jueces de la República, aun en la fase de instrucción preparatoria. Los jueces podrán también ordenar que les sea entregada cualquier documentación o medio de prueba que los bancos tuvieran en su poder, cuando fuera necesario para una investigación. La resolución que acuerde lo anterior deberá fundamentar, debidamente, la necesidad del informe o del aporte del medio probatorio.

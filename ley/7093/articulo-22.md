@@ -1,7 +1,1 @@
-Artículo 22.- Las penas establecidas en los artículos anteriores, se
-aumentarán en sus extremos menor y mayor, en un tercio, cuando el hecho se
-realice:
-a) En perjuicio de un menor de diecisiete años o de un inimputable.
-b) Por parte de quien se desempeñe como docente, educador o guía
-espiritual del ofendido, o de quien sea padre, tutor o responsable de la
-guarda y de la crianza del perjudicado.
+Artículo 22.- Se impondrá prisión de cuatro a ocho años a quien, en forma no autorizada, tenga en su poder los precursores, los químicos, los solventes u otras sustancias que sirvan para el procesamiento de las drogas a las que se refiere la presente Ley o sus derivados o a quien realice actividades no autorizadas respecto de esas drogas, siempre que su acción no resulte más severamente penada en esta u otra ley.

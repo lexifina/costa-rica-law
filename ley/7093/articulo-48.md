@@ -1,0 +1,11 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+Artículo 48.- El Consejo Nacional de Drogas podrá nombrar subcomisiones asesoras de su propio seno o integradas con personas que no sean miembros del Consejo. Este Consejo deberá, al menos, nombrar una Subcomisión de Políticas Preventivas y otra de Políticas Represivas.
+La Subcomisión de Políticas Represivas estará integrada por el Director o Subdirector de:
+- La Dirección de Inteligencia y Seguridad Nacional.
+- El Organismo de Investigación Judicial.
+- La Dirección Nacional de Control de Drogas.
+- La Dirección de Investigaciones de Estupefacientes e Inteligencia.
+- El Jefe del Ministerio Público.
+El Ministro o el Viceministro de Gobernación y Policía y de Seguridad Pública podrán asistir a las sesiones de esta Subcomisión, cuando lo estimen pertinente. Asimismo, deberán asistir a aquellas sesiones donde se definan las directrices y planes globales de acción que se apliquen en este campo. Para el desarrollo de sus funciones, esta Subcomisión, podrá abrir cuentas corrientes bancarias. Esta Subcomisión tendrá personalidad jurídica propia por la naturaleza de sus funciones y, para darle la flexibilidad necesaria en la lucha contra el narcotráfico, no estará sujeta a las disposiciones establecidas en la Ley de Administración Financiera de la República ni en el Reglamento de la Contratación Administrativa, excepto en lo relativo a materia de prohibiciones ni a la Ley de Creación de la Autoridad Presupuestaria y su Reglamento, ni tampoco a la Ley para el Equilibrio Financiero del Sector Público, Nº 6955 del 24 de febrero de 1984 y sus reformas.
+Asimismo, podrá destinar hasta el diez por ciento (10%) de sus recursos para gastos confidenciales. Los recursos que administre esta Subcomisión, estarán sujetos a la fiscalización de la Contraloría General de la República, para cuyo efecto deberá presentar su presupuesto ante ésta para su aprobación, con la excepción hecha de los recursos de uso confidencial, cuya fiscalización, por parte de la Contraloría General de la República, será a posteriori. En materia de contratación administrativa, el Poder Ejecutivo emitirá una reglamentación básica que no limitará la flexibilidad y agilidad que requieren los cuerpos policiales.

@@ -1,8 +1,1 @@
-Artículo 19.- Se impondrá prisión de cuatro a ocho años a quien,
-estando autorizado, prescriba, expenda, suministre o aplique las sustancias
-a que se refiere esta ley, sin receta médica, en dosis mayores a las
-necesarias para la terapia, o que simule que existe esa necesidad.
-Además de la sanción establecida en el párrafo anterior, se le
-impondrá inhabilitación de cinco a doce años para ejercer la profesión u
-oficio, o para realizar el acto o la actividad en la que se hubiere
-cometido el delito.
+Artículo 19.- Se impondrá prisión de seis a doce años e inhabilitación para el ejercicio de sus funciones públicas, por el mismo término, al funcionario o empleado público que, en razón de su cargo, estuviera vinculado con el juzgamiento, investigación y custodia de personas relacionadas con los delitos tipificados en la presente Ley; a quien procure la impunidad o evasión de esas personas, altere, oculte, sustraiga o haga desaparecer los rastros, las pruebas o los instrumentos del delito o a quien asegure el provecho o producto de ese acto. Si los hechos mencionados se cometieron por culpa del funcionario o empleado, la pena de prisión que se le impondrá será de dos a seis años, y la inhabilitación para ejercer cargos públicos será por el término señalado en el párrafo anterior.

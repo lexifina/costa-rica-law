@@ -1,12 +1,1 @@
-Artículo 10.- Todos los medios de comunicación colectiva del país
-deberán ceder espacios para la transmisión de programas destinados a
-combatir el tráfico y el consumo de drogas que produzca dependencia.
-Los programas podrán ser elaborados por el correspondiente medio de
-comunicación, aunque su producción y difusión deberá contar con la previa
-autorización del Instituto sobre Alcoholismo y Farmacodependencia.
-Para tales fines, todos los medios de comunicación colectiva del
-país, impresa o electrónica, cederán semanalmente, en forma gratuita,
-hasta el medio por ciento del espacio total que editen o emitan.
-La negativa a ceder el espacio mencionado, será castigada con una
-multa, cuyo monto será equivalente al del valor comercial del espacio no
-cedido.
+Artículo 10.- Toda acción tendente a evitar el cultivo, la producción, la tenencia, el tráfico, el consumo de drogas y de otros productos a los que se refiere esta Ley, deberá ser supervisada por el Consejo Nacional de Drogas, que aquí se crea sin perjuicio de las funciones que la ley le asigne al Instituto sobre Alcoholismo y Farmacodependencia, cuyo criterio técnico será de obligatorio acatamiento.

@@ -1,0 +1,1 @@
+Artículo 46.- El Centro se financiará con los recursos que se le asignen como transferencia global en el presupuesto nacional y con las donaciones y legados de cualquier naturaleza, tanto nacionales como internacionales que se le concedan.
