@@ -1,0 +1,1 @@
+Artículo 16.—El presente régimen tarifario será actualizado en forma sistema-tica, de conformidad con el índice inflacionario publicado por el Banco Central de Costa Rica, haciéndose dos ajustes por año, uno que entrará en vigencia el 1° de enero v el segundo el 1° de julio de cada año,

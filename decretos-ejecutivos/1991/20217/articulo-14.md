@@ -1,0 +1,1 @@
+Articulo 14.—Toda relación de pago adquirida con el Consejo Técnico de Aviación Civil por los conceptos expresados, gozará de un crédito de 30 días, a partir de cuyo vencimiento se aplicará un 2,5% de interés moratoria, por cada tracto mensual o fracción, de atraso en el pago.

@@ -1,0 +1,1 @@
+Articulo 15.—En aquellos casos en que la concurrencia de interesados por la concesión de un bien o servicio haga necesario acudir a los mecanismos de licitación, los derechos expresados se utilizarán como base mínima del respectivo concurso.
