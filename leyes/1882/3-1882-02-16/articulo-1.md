@@ -1,5 +1,7 @@
+(Derogado)
 (Nota: se respeta la ortografía y gramática del texto original)
 DECRETO N° III
+(Esta ley fue derogada por el artículo final de la ley Orgánica y Reglamentaria del Registro del Estado Civil, N° 35 del 30 de diciembre de 1887)
 Suspende la ley del Registro Civil
 TOMÁS GUARDIA
 GENERAL DE DIVISIÓN Y PRESIDENTE DE LA REPÚBLICA
