@@ -1,0 +1,1 @@
+Art 3° Las materias de enseñanza en dicha escuela son por lo menos lectura y escritura operaciones principales de aritmética, o sean numeraciones, suma, resta, multiplicación y división: doctrina cristiana, rudimentos de Historia Sagrada y noción de urbanidad.
