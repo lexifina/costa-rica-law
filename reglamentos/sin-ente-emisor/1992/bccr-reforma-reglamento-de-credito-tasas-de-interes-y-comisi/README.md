@@ -13,3 +13,4 @@ BCCR: Reforma Reglamento de Crédito, Tasas de Interés y Comisiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-05 | la propia norma |
+| 2 | 1993-02-05 | Ley 8 |
