@@ -1,0 +1,1 @@
+Artículo 3°—Asignación especial. La Gerencia General podrá asignar vehículos de uso administrativo con carácter temporal, para proyectos especiales o en los proyectos forestales regionales. Tal asignación deberá ser debidamente justificada y expresarse por escrito, pudiendo ser revocada en cualquier momento.

@@ -1,0 +1,16 @@
+Artículo 6°—Entidad responsable. La responsabilidad de vigilar, el uso, asignación, control y mantenimiento de vehículos de la Empresa, corresponde al Subproceso de Administración de Servicios, el cual se encargará de las siguientes funciones:
+a) Planificar, organizar y controlar todas las actividades de orden administrativo relacionados con el uso y disposición de los vehículos.
+b) Definir y establecer las políticas y los procedimientos que permitan la implementación de este Reglamento, previa autorización de la Gerencia General.
+c) Emitir los manuales respectivos estableciendo los procedimientos para la autorización, registro y control de las operaciones administrativas necesarias para el uso, control y mantenimiento de los vehículos, previa autorización de la Gerencia General.
+d) Llevar el registro de los vehículos. Cada vehículo tendrá un expediente indicando sus características de fabricación, así como el detalle de uso.
+e) Llevar un registro detallado y actualizado de todos los conductores autorizados. La acreditación de cualquier conductor en ese Registro debe ser precedida de una evaluación de aptitudes y competencia a través de una prueba práctica.
+f) Velar por la seguridad y conservación de los vehículos en el estacionamiento de la Empresa durante su permanencia en él. Asimismo vigilar que los vehículos se usen satisfactoriamente.
+g) Llevar un registro de firmas de los funcionarios con autoridad para solicitar el uso de vehículos para las necesidades de transporte y todas las actividades relacionadas con la utilización de la flotilla.
+h) Asignar los vehículos de conformidad con las características del servicio, considerando criterios de utilidad y uso racional. Asimismo asignar, por delegación de la Gerencia General, la circulación de los vehículos para la realización de labores tan impostergables o la atención de emergencias relacionadas con la actividad de la Empresa. Todo de conformidad con los procedimientos establecidos y previa notificación a la Gerencia General.
+i) Dar el seguimiento adecuado a todo accidente en que esté involucrado un vehículo de la Empresa, y realizar todas las gestiones respectivas, hasta su terminación en la vía judicial.
+j) Velar porque los riesgos a que están expuestas las unidades automotrices tengan el debido tratamiento financiero, de conformidad con los mismos intereses de la Empresa.
+k) Realizar los trámites respectivos cuando los vehículos 'sean vendidos o declarados fuera de servicio.
+l) Vigilar la correcta implementación del Reglamento de vehículos, del Manual de Normas Técnicas y de los manuales de uso y operación para las unidades asignadas a los proyectos forestales.
+m) Ejercer el control estadístico del kilometraje recorrido y consumo de combustible de cada vehículo y coordinar lo relativo al mantenimiento preventivo y correctivo, emitiendo informe mensual con índices de consumo, uso y demás detalles de interés para la correcta gestión de otro servicio interno.
+n) Realizar inventarios periódicos para verificar la existencia, estado mecánico y carrocerías de las unidades y de sus accesorios.
+o) Las demás responsabilidades que se le adicionen con posterioridad a la promulgación de este Reglamento.

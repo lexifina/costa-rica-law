@@ -1,0 +1,2 @@
+Artículo 22.—Este Reglamento deroga al anterior y rige una vez aprobado por la Junta Directiva de la Empresa y por la Contraloría General de la República. Cualquier modificación a este Reglamento deberá ser aprobada por la Junta Directiva y ratificado por la Contraloría General de la República.
+El presente Reglamento fue aprobado por la Junta Directiva de Radiográfica Costarricense, S. A., en la sesión ordinaria No 1504, artículo 2°, inciso 2) del jueves 22 de junio del 2000.

@@ -1,0 +1,1 @@
+Artículo 17.—Unidad encargada de las investigaciones. La unidad de Subproceso de Administración de Servicios, investigará todo lo relativo al accidente de tránsito, percance, robo, hurto o malversación en que se involucre un vehículo de RACSA, y rendirá un informe con recomendaciones a las autoridades de la Institución.

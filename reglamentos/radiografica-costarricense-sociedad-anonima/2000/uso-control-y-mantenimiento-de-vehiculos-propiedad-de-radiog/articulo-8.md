@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la prestación de servicios
+Artículo 8°—Autorización de servicios. El Subproceso de Administración de Servicios, solo tramitará solicitudes correctamente emitidas por el usuario: analizará la solicitud y si de acuerdo con las políticas dictadas sobre el particular y los intereses institucionales procede la prestación del servicio, lo ordenará dependiendo de la disponibilidad de recursos. Asimismo le corresponde la aprobación de las solicitudes de utilización de los vehículos de uso administrativo definidos en el artículo 2° inciso b) en horarios inhábiles, los cuales deberán darse por escrito, con autorización especial del jerarca de la unidad encargada del uso, control y mantenimiento de vehículos y del superior jerárquico de la unidad solicitante.
