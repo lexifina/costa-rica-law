@@ -1,4 +1,0 @@
-CAPITULO IV
-Disposiciones Finales
-Artículo 20.—RECOPE, las oficinas y dependencias del Estado, así como todos los beneficiarios del presente régimen, están obligados aprestar colaboración a la Unidad de Control del Combustible, con el objeto de que pueda cumplir eficientemente con sus funciones, para lo cual deben proporcionar a la brevedad posible, los datos, informes, estudios y cualesquiera otro tipo de colaboración que esta solicite en la medida de lo posible.
-Los funcionarios de la Unidad de Control del Combustible, así como las personas que esta designe, en razón de su investidura, están facultados para efectuar las inspecciones y estudios necesarios, en las instalaciones de las empresas beneficiarías, embarcaciones, bombas de servicio y en las instituciones y entidades que intervengan de una u otra forma en el presente régimen.

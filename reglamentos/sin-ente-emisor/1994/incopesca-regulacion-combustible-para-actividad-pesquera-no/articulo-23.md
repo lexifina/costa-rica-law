@@ -1,1 +1,0 @@
-Artículo 23.—La violación de cualesquiera de las disposiciones establecidas en la Ley y el presente Reglamento, se sancionará con la inmediata suspensión del beneficio sin responsabilidad alguna para la Institución , independientemente de las demás acciones civiles y penales que pueda emprender el INCOPESCA.

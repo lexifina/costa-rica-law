@@ -1,2 +1,0 @@
-Artículo 21.—RECOPE entregará el combustible en su plantel de distribución más cercano al sitio de operación pesquera.
-Si a la solicitud de los pescadores, el sitio de entrega del combustible fuere otro diferente, RECOPE, podrá a nombre y por cuenta de aquellos, hacerse cargo de la distribución final mediante los procedimientos que considere más convenientes incorporando el costo de esta distribución al precio de costo fijado.

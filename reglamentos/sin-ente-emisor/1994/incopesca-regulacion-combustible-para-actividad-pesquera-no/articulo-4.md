@@ -1,1 +1,0 @@
-Artículo 4°— La Dirección General de Hacienda, en el momento en que lo considere conveniente, realizará auditorías, para comprobar el fiel cumplimiento de las disposiciones establecidas en el presente reglamento y la ley. Para tales efectos emitirá los informes de auditoría correspondientes, presentando sus recomendaciones al INCOPESCA.

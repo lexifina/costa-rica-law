@@ -1,1 +1,0 @@
-Artículo 2°—RECOPE venderá combustible a precio competitivo con el precio internacional a la Flota Pesquera Nacional cuando así lo indique la Unidad de Control y Administración de conformidad con las regulaciones existentes, por medio de la respectiva orden de compra. Este precio será fijado por el Servicio Nacional de Electricidad a solicitud de RECOPE o del INCOPESCA.

@@ -1,1 +1,0 @@
-Artículo 6°— La Unidad de Control de Combustible estará organizada en una sede central en la Ciudad de Puntarenas y cuatro oficinas reginalizadas localizadas en las ciudades de Limón, Golfito, Quepos y El Coco.
