@@ -1,0 +1,5 @@
+CAPITULO III
+Del espectáculo
+Artículo 12.—Las horas de las funciones son 11,00 a.m-, para los matines 3.00 p.m. para las funciones vespertinas y 8,00 p.m. para las nocturnas. Cualquier variación a este horario, deberá ser solicitado de previo, por escrito, a la Junta Directiva del Teatro. Las funciones deben iniciarse a la hora señalada en la publicidad, en casos que lo ameriten se permitirá una prórroga de hasta quince minutos para que el espectáculo se inicie.
+En circunstancias de caso fortuito o fuerza mayor que imposibiliten la realización o el desarrollo normal de la función, no existirá responsabilidad alguna para ninguna de las partes y se devolverá al público el costo de los boletos pagados en la boletería y al contratante el monto del alquiler depositado.
+En caso de que la función se prolongue más allá de las 10,15 p.m. el arrendatario deberá cubrir el tiempo extra que se vea obligado a laborar el personal del Teatro y el gasto en servicios de taxi en que incurra el personal para el traslado a sus hogares.

@@ -1,0 +1,1 @@
+Artículo 16.—Bajo ningún motivo podrá excederse la capacidad de la sala, la cual es de 918 asientos de cortesía a deposición del Teatro; 14 asientos, del balcón izquierdo primer piso y 14 asientos de la luneta central de cortesía a disposición de la Junta Directiva y el Palco Presidencial para los funcionarios gubernamental les de alto rango.

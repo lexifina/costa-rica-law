@@ -1,0 +1,1 @@
+Artículo 7°—Si el empresario desea filmar, grabar el espectáculo para radio o televisión o realizar emisiones en directo, deberá manifestarlo en la solicitud de arrendamiento. No se permitirá este tipo de actividades durante el espectáculo si no consta la autorización de la Junta Directiva en el contrato.

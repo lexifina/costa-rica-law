@@ -1,0 +1,1 @@
+Artículo 21.—El equipo de luces del Teatro cuenta con sus gelatinas para la coloración. En caso de que no sean estas las requeridas para el espectáculo que se presentará, el arrendatario deberá traer sus propias gelatinas con los colores deseados para su producción.

@@ -1,0 +1,1 @@
+Artículo 22.—El Teatro se reserva el derecho de suspender, sin incurrir en responsabilidades, ensayos por incumplimiento de cualquiera de estas disposiciones reglamentarias; las cuales deben ser del conocimiento de ellos. También podrá suspender funciones, cuando la naturaleza del espectáculo no corresponda a la que el empresario ofreció.

@@ -1,0 +1,1 @@
+Articulo 14.—Los grupos que deseen entradas de previo a la función con eI fin de venderlas con anterioridad, deberán solicitarlas a la Administración y efectuar la liquidación correspondiente, 3 (tres) horas antes del inicio de la función, de no hacerlo así, no se les recibirán las sobrantes y se les cancelará dicha concesión para una próxima ocasión.

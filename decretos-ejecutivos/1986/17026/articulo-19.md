@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de ensayos con invitados especiales, cada grupo deberá identificarlos con alguna contraseña especial que será retirada por el guarda del Teatro una vez finalizado el ensayo, y entregado al Director o responsable del grupo.

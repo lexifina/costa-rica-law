@@ -1,0 +1,1 @@
+Artículo 11.—Las pérdidas por daños causados a la propiedad del Teatro, por la empresa, grupo o persona arrendataria, una vez verificados por la Dirección Técnica y evaluado su costo, se cobrarán a los responsables. En caso de no ser pagados se ejercerán la: acciones judiciales correspondientes.

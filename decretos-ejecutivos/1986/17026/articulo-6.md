@@ -1,0 +1,6 @@
+CAPITULO II
+Del arrendamiento
+Artículo 6°—Para hacerle acreedor a lo estipulado en los puntos 2 y 3, el o los interesados deberán presentar solicitud escrita ante la Junta Directiva del Teatro, al menos con un mes de anticipación para su debida programación.
+Como información mínima, la solicitud deberá contener: clase de espectáculo que se presentará; nombre de la persona, grupo o empresas solicitantes, fecha y hora de la(s) presentación(es) del espectáculo, nombre, dirección y número de teléfono del responsable de la actividad; atestados, críticas, repertorio de obras, elenco de la compañía y cualquier información adicional que la Junta Directiva le solicite. En caso de recibir respuesta afirmativa el solicitante deberá firmar con el Teatro un contrato que estipulará obligaciones y derechos del contratante. El contrato debe de firmarse en un plazo no mayor de 8 (ocho) días hábiles después de ser informado del otorgamiento de la fecha, de lo contrario el Teatro podrá disponer de ella para otra actividad.
+No se comprometerá el Teatro por más de 2 (dos) semanas, sin embargo. la Junta Directiva puede ampliar este plazo, sin perjuicio de los compromisos previamente adquiridos.
+Bajo ningún concepto se comprometerá el Teatro por medio de llamadas telefónicas.

@@ -1,0 +1,1 @@
+Artículo 9°—No es permitido pegar carteles, fotos o cualquier otro tipo de publicidad o propaganda en las paredes del Teatro. Si se quisiera efectuar alguna exposición, el empresario o grupo deberá solicitar el permiso por escrito a la Junta Directiva del Teatro y traer el equipo necesario para tal efecto.

@@ -1,0 +1,2 @@
+Artículo 17.—Como norma estricta de seguridad, no se permitirá el uso de fuego, petardos o cualquier otro tipo de fuegos artificiales, incienso o sustancias químicas o similares que puedan causar reacciones alérgicas o afectar la salud al público asistente, personal de sala o incluso a los artistas. Para este tipo de efectos sólo se permitirá el uso de reflectores eléctricos o con base de baterías.
+Esta disposición sólo variará en casos muy calificados y previo análisis de ellos, hecho por el Director Técnico y el Director Ejecutivo.
