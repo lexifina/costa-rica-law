@@ -1,0 +1,1 @@
+Artículo 4°-Satisfecho el procedimiento establecido en el artículo 2° y resuelta la oposición si la hubiere, la Dirección General Forestal realizará la inspección correspondiente y continuará con el trámite previsto al efecto en la Ley Forestal.
