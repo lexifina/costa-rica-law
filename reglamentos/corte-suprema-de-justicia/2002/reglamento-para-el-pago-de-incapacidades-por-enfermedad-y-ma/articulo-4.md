@@ -1,0 +1,1 @@
+Artículo 4º—La prescripción. El derecho a reclamar el pago aquí regulado, prescribe de conformidad con lo dispuesto en el artículo 602 del Código de Trabajo, a contar de la terminación del contrato de trabajo.

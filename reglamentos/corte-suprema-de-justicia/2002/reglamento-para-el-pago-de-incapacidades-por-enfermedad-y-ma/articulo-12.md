@@ -1,0 +1,1 @@
+Artículo 12.—Aplicación del Código de Trabajo. El artículo 237 del Código de Trabajo es aplicable en estos casos, posibilitando al Poder Judicial a prescindir de los servicios del servidor, previo pago de las prestaciones legales correspondientes, sin perjuicio de lo que dispone el artículo 254 del Código de Trabajo.

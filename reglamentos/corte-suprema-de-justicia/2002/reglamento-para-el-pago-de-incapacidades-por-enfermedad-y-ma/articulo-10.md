@@ -1,0 +1,1 @@
+Artículo 10.—Incapacidad. Riesgos del trabajo (INS). Los casos de incapacidades por riesgos de trabajo amparados o no por la póliza suscrita por el Poder Judicial con el Instituto Nacional de Seguros, se regirán por la normativa contenida en el Código de Trabajo y por las disposiciones del respectivo documento o póliza.

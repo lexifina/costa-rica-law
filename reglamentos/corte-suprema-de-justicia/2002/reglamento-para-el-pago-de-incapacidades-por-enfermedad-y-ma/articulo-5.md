@@ -1,0 +1,2 @@
+Artículo 5º—Derechos. Tiene derecho al pago de las incapacidades, el servidor judicial activo que sea incapacitado por una enfermedad debidamente declarada por quienes se indican en el artículo 43 de la Ley Orgánica del Poder Judicial.
+La licencia por maternidad a toda servidora judicial activa da derecho a percibir el salario hasta por cuatro meses: un mes antes del parto y tres después de ese hecho.

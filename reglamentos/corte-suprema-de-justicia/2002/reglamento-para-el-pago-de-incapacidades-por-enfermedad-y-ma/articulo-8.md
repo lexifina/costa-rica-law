@@ -1,0 +1,3 @@
+Artículo 8º—Pago de incapacidad por enfermedad y maternidad. Cuando se trate de una incapacidad por enfermedad o por maternidad, corresponderá al Poder Judicial el pago del salario conforme lo establecen los artículos 42, 43 y 44 de la Ley Orgánica del Poder Judicial, como licencias con goce de sueldo.
+El monto total como sueldo será girado por el Poder Judicial de acuerdo con las respectivas cláusulas del Convenio entre Poder Judicial y la Caja Costarricense de Seguro Social para hacer expedito el pago a los servidores judiciales.
+Los pagos se harán por períodos vencidos conforme la modalidad de pago del salario.
