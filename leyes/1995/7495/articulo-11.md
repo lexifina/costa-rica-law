@@ -1,4 +1,4 @@
-ARTICULO 11.- Intereses.
+ARTÍCULO 11.- Intereses.
 La administración estará obligada a reconocer intereses al
 expropiado, de oficio y a la tasa legal vigente, a partir de la
 desposesión del bien y hasta el pago efectivo. Cuando exista un depósito

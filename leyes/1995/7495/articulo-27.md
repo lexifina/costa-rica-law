@@ -1,4 +1,4 @@
-ARTICULO 27.- Arbitraje.
+ARTÍCULO 27.- Arbitraje.
 En cualquier etapa de los procedimientos, las partes podrán someter
 a arbitraje sus diferencias, de conformidad con las regulaciones legales
 y los instrumentos vigentes del derecho internacional.

@@ -1,4 +1,4 @@
-ARTICULO 12.- Exacciones y gravámenes.
+ARTÍCULO 12.- Exacciones y gravámenes.
 El bien expropiado se adquirirá libre de exacciones y gravámenes. No
 obstante, sobre él podrán conservarse servidumbres, siempre que resulten
 compatibles con el nuevo destino del bien y exista acuerdo entre el

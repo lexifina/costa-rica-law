@@ -1,4 +1,4 @@
-ARTICULO 57.- Indemnización por otros daños.
+ARTÍCULO 57.- Indemnización por otros daños.
 Cuando, por razones graves de orden o seguridad pública, epidemias,
 inundaciones y otras calamidades deban adoptarse medidas que impliquen
 destrucción, detrimento efectivo, ocupación de bienes o de derechos

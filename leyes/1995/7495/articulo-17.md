@@ -1,4 +1,4 @@
-ARTICULO 17.- Expropiaciones parciales.
+ARTÍCULO 17.- Expropiaciones parciales.
 Cuando se trate de la expropiación parcial de un inmueble y la parte
 sin expropiar sea inadecuada para el uso o la explotación racional, el
 expropiado podrá exigir la expropiación de la totalidad del inmueble.

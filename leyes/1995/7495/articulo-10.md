@@ -1,4 +1,4 @@
-ARTICULO 10.- Intervención del Patronato Nacional de la Infancia.
+ARTÍCULO 10.- Intervención del Patronato Nacional de la Infancia.
 Se tendrá como parte al Patronato Nacional de la Infancia (PANI),
 cuando en las diligencias de expropiación exista una persona menor de edad
 interesada. Esta institución no sólo deberá apersonarse, sino también

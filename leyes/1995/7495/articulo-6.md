@@ -1,4 +1,4 @@
-ARTICULO 6.- Sujetos pasivos.
+ARTÍCULO 6.- Sujetos pasivos.
 Las diligencias de expropiación se tramitarán en tantos expedientes
 separados cuantos sean los titulares de los inmuebles y los derechos por
 expropiar; pero en el caso de los copropietarios, se tramitarán en uno

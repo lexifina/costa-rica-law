@@ -1,7 +1,6 @@
-ARTICULO 29.- Inicio del proceso especial.
+ARTÍCULO 29.- Inicio del proceso especial de expropiación
 La Administración Pública deberá iniciar el proceso especial de
-expropiación ante el juzgado de lo contencioso-administrativo
-correspondiente, dentro de los tres meses posteriores a la declaratoria de
-interés público. Fuera del área metropolitana, el Juez Civil del lugar
-donde se ubica el bien expropiado será competente para conocer del proceso
-especial de expropiación.
+expropiación ante el juzgado competente, dentro de los seis meses
+posteriores a la oposición del propietario al avalúo administrativo.
+(Así reformado por el artículo 1º de la ley No.7757 de 10 de marzo
+de 1998)

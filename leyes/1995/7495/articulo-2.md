@@ -1,4 +1,4 @@
-ARTICULO 2.- Adquisición de bienes o derechos.
+ARTÍCULO 2.- Adquisición de bienes o derechos.
 Cuando, para cumplir con sus fines, la Administración Pública
 necesite adquirir bienes o derechos, deberá sujetarse a las regulaciones
 vigentes sobre la contratación administrativa, salvo que, a causa de la

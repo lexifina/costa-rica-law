@@ -1,7 +1,10 @@
+N° 7495
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
 LEY DE EXPROPIACIONES
 CAPITULO I
 DISPOSICIONES GENERALES
-ARTICULO 1.- Objeto.
+ARTÍCULO 1.- Objeto.
 La presente Ley regula la expropiación forzosa por causa de interés
 público legalmente comprobado. La expropiación se acuerda en ejercicio del
 poder de imperio de la Administración Pública y comprende cualquier forma

@@ -1,4 +1,4 @@
-ARTICULO 55.- Disconformidad con la indemnización.
+ARTÍCULO 55.- Disconformidad con la indemnización.
 Si el administrado no está conforme con los términos de la resolución
 mencionada en el artículo anterior, dentro de los ocho días hábiles
 siguientes a la notificación respectiva, podrá recurrir ante el jerarca de
