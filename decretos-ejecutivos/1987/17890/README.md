@@ -14,3 +14,4 @@ Reglamento del Fondo de Contingencias Bananeras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-16 | la propia norma |
+| 2 | 1989-05-08 | Decreto Ejecutivo 18995 (1989-05-08) |
