@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-01-01 | Decreto Ejecutivo 29853 (2001-09-24) |

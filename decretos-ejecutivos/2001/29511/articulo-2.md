@@ -110,3 +110,6 @@ Teatro Nacional de Teatro, Museo de Arte Costarricense,
 Orquesta Sinfónica Nacional, según Leyes N° 3632 y N° 5780.
 Programa Integral de Mercadeo Transferencia al CNP por Reconversión
 Agropecuario Productiva.
+(Modificado el inciso b) por el artículo 2 del Decreto Ejecutivo N° 29853 de 24 de setiembre del 2001)
+(Así Adicionado mediante artículo 2 del Decreto Ejecutivo 29867 de 24 de setiembre del 2001)
+(Modificado el inciso b) por el artículo 2 del Decreto Ejecutivo N° 29511 de 24 de setiembre del 2001)
