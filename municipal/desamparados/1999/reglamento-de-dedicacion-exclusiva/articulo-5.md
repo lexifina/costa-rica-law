@@ -1,0 +1,2 @@
+Artículo 5°-Corresponde al Alcalde Municipal como máximo jerarca de la Institución, determinar la clase de puestos desempeñados por profesionales que reúnan los requisitos contenidos en este Reglamento que pueden acogerse en forma voluntaria al régimen de Dedicación Exclusiva caso ante el cual conocerá las solicitudes que le planteen los profesionales de la Municipalidad de Desamparados y se procederá a la firma del respectivo contrato.
+Para tales efectos el Alcalde Municipal podría solicitar los servicios de la Dirección de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 4°-Para acogerse al Régimen de la Dedicación Exclusiva, los profesionales de la Municipalidad de Desamparados que opten por cada uno de ellos, deberán firmar el contrato respectivo con esta Institución, el cual se insertará en su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.
