@@ -1,1 +1,3 @@
-Art. 183.-No podrán incluirse en un mismo pedimento bultos pertenecientes á distintos dueños, ni los introducidos en diversos buques, ó en diferentes viajes del mismo buque.
+Artículo 183.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

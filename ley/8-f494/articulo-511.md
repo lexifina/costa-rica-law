@@ -1,3 +1,8 @@
-CAPÍTULO II
+CAPITULO II
 Denuncia y venta de terrenos baldíos
-Art. 511.-Las denuncias de terrenos baldíos se harán por el interesado, en memorial escrito ante el Juez de hacienda Nacional. La denuncia expresará la extensión aproximada de los terrenos, el nombre por el cual sean conocidos, si lo tuvieren, la jurisdicción a que pertenezcan, los nombres de los colindantes si los hubiere, el del poseedor, si estuviesen poseídos, y las demás señales propias para distinguirlos.
+(Derogados los artículos del 511 al 521 por Ley General sobre
+Terrenos Baldíos Nº 13 de 10 de enero de 1939 y Decreto Ejecutivo Nº 6
+de 2 de abril de 1940).
+Artículo 511- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

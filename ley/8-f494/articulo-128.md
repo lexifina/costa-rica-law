@@ -1,1 +1,3 @@
-Art. 128.-Todas las mercaderías se reciben y entregan en los almacenes; y la conducción de ellas hasta éstos ó de éstos hasta los carros que deben trasportarlas, se hará por la persona ó empresa encargada de transporte.
+Artículo 128.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art. 154.-Las guías deberán ser numeradas por el orden en que se expidan, fechadas el día de la entrega de la carga al porteador, y firmadas por el Administrador y el Alcaide.
+Artículo 154.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

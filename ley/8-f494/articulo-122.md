@@ -1,2 +1,3 @@
-Art. 122.-Los dueños de mercaderías extranjeras depositadas en los almacenes de la Aduana de Registro, podrán pedir certificación de deposito.
-Estas certificaciones serán admisibles en garantías ó endosables a favor de un tercero.
+Artículo 122.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

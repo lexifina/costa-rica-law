@@ -1,1 +1,2 @@
-Art 630- El inspector puede intruir las sumarias relativas á delitos fiscales.
+Artículo 630- DEROGADO.
+(Derogado por ley Nº 4 de 10 de setiembre de 1923).

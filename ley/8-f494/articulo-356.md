@@ -1,1 +1,3 @@
-Art 356.-Es correspondencia privada, y por tanto debe franquearse, la de personas que no tengan ningún carácter público, aunque vaya dirigida al Presidente de la República, Secretarios de Estado, etc., etc.
+Artículo 356- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

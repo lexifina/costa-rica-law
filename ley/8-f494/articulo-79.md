@@ -1,1 +1,3 @@
-Art. 79.-La carga de un buque fondeado en un puerto de la República podrá trasladarse en todo ó en parte a L otro buque, con permiso del Administrador de la Aduana del puerto.
+Artículo 79.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

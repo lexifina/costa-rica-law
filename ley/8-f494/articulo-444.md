@@ -1,1 +1,4 @@
-Art 444- El monopolio de estos artículos se explotará por el Gobierno, con arreglo a las disposiciones de este título pero el Ejecutivo podrá arrendar a particulares la explotación del monopolio, o simplemente la elaboración de licores.
+Artículo 444- El monopolio de estos artículos se explotará por el
+Gobierno, con arreglo a las disposiciones de este título pero el
+Ejecutivo podrá arrendar a particulares la explotación del monopolio, o
+simplemente la elaboración de licores.

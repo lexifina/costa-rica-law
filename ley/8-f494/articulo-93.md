@@ -1,1 +1,3 @@
-Art. 93.-Antes de desalmacenar los bultos que deban reembarcarse, deberá el interesado pagar por ellos sesenta centavos por cada cincuenta kilogramos de peso bruto.
+Artículo 93.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

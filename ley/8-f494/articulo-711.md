@@ -1,1 +1,4 @@
-Art 711- Los procedimientos relativos a la visación y aprobación de las cuentas, tanto en primera como en segunda instancia, de finiquitos y demás disposiciones que al asunto se refieren, se encuentran en el título que habla de la Contaduría Mayor.
+Artículo 711- Los procedimientos relativos a la visación y aprobación
+de las cuentas, tanto en primera como en segunda instancia, de
+finiquitos y demás disposiciones que al asunto se refieren, se
+encuentran en el título que habla de la Contaduría Mayor.

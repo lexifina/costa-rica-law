@@ -1,1 +1,3 @@
-Art. 234.-EI jurado comercial se compondrá del Subsecretario de Hacienda y de dos comerciantes sorteados dentro de veinte elegidos por el Ministrode Hacienda á principios de cada año.
+Artículo 234.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

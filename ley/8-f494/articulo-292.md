@@ -1,1 +1,2 @@
-Art. 292.-No se tendrá por legítima, boleta alguna que no lleve estampado el sello de la Secretaría de Hacienda.
+Artículo 292.- DEROGADO.
+(Derogado por el artículo 9 de la Ley Nº 5259 de 30 de julio de 1973).

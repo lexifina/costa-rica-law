@@ -1,1 +1,2 @@
-Art 668.-Siempre que el Ministro de Hacienda lo disponga, mandará un empleado de Hacienda, con el carácter de comisario, para que minuciosamente examine los negocios de la Tesorería, verifique las existencias en caja y la de todos los documentos de seguridad. El Tesorero presentará los libros y la caja cada vez que el Comisario lo exija, y dará a éste una copia certificada de la situación de la Tesorería.
+Artículo 668- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

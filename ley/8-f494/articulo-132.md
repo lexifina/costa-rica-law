@@ -1,2 +1,3 @@
-t 132.- La operación de despacho debe hacerse en presencia del Alcaide y del Administrador ó
-Contador, y uno de estos dos ultimos tomará nota de casa bulto conforme fueren trasportándose de los almacenes al carro, en el libro destinado especialmente al efecto, expresándose en dicha partida todas las circunstancias especificadas en el artículo anterior. La partida de este libro será firmada por el Alcaide y el Administrador ó Contador.
+Artículo 132.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art 146.- Las disposiciones de este capítulo se observarán en todo lo que fueren aplicables al recibo de mercaderías en la Aduana de registro y en las otras Aduanas de tránsito.
+Artículo 146.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

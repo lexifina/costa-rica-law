@@ -1,1 +1,2 @@
-Art 325- El Procurador del Registro no recibirá para su inscripción documento alguno sin recibo del Tesorero, puesto en el mismo documento, de estar pagados los derechos tasados. Llevará también un libro en que anotará en el día las presentaciones de documentos, con expresión de su número, nombre del interesado, cantidad percibida por el Tesorero, expidiendo el recibo de estilo con expresión de la cantidad pagada.
+Artículo 325.- El oficial del diario llevará un libro en que anotará diariamente las presentaciones de documentos con expresión de su número y de la cantidad percibida y lo cotejará cada día con el libro del Tesorero.
+(Así reformado por Decreto Ejecutivo Nº 10 de 23 de octubre de 1914).

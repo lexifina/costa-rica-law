@@ -1,3 +1,2 @@
-Art 610.-Corresponde a la Secretaría de Guerra:
-1º.-Cartera de Guerra.
-2º.-Cartera de Marina.
+Artículo 610- DEROGADO.
+(Derogado por la ley Nº 200 de 6 de setiembre de 1945).

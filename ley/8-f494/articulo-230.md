@@ -1,1 +1,3 @@
-Art. 230.- En el juicio administrativo, el Administrador con un secretario, que nombrará dentro de los empleados de la Aduana, seguirá el, y, concluído este, lo pasará ul representante de la Ha- cienda Pública, para que formule la acusación por escrito de ella se dara vista á los acusados, y si reconocieren la certeza de los hechos y la justicia de la pena pedida por los representante de la Hacienda. Pública, se sentenciará el juicio sin más trámite, elevando la sentencia, en consulta, al jurado comercial.
+Artículo 230.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 339.-Cuando se encuentren cartas dentro de los periódicos o encomiendas que se despachen por el correo, serán detenidas junto con las encomiendas o periódicos; y si pudiere averiguarse, por otros medios que no sea la carta misma, quién es el autor del fraude, se dará aviso oficial por el Director General o Administrador respectivo a la autoridad competente, para que imponga la pena establecida por la ley a los defraudadores de caudales públicos.
+Artículo 339.- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos Nº 7768 de 24 de abril de 1998)

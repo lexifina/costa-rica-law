@@ -1,1 +1,3 @@
-Art. 165.-Cuanao en la Aduana de tránsito se presente á levantar carga un porteador no matriculado, llevando una certificación de que habla el artículo 162, el Administrador de dicha Aduana lo matriculará dando la constancia y placas provisionales para que se las cambien por las que definitivamente debe usar, al entregar la carga en la Aduana de Registro.
+Artículo 165.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

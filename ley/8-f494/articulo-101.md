@@ -1,1 +1,3 @@
-Art. 101- A solicitud de los capitanes ó consignatario, de los buques despachados ú puertos extranjeros, deberá el Administrador de la Aduana dar certificación ú constancia del todo ó parte del cargamento que el buque llevare a bordo.
+Artículo 101.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,3 @@
-Art. 98.-Para el despacho dé los buques, el Administrador formará el registro, sentando en el libro respectiro una partida que comprenda; la razón detallada de los frutos ó efectos embarcados, y de las mercaderías trasladadas ó reembarcadas, y la liquidación de los derechos de puerto causados por el buque y su cargamento.
+Artículo 98.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

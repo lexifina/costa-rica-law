@@ -1,1 +1,3 @@
-Art. 95.-Los Adnrlnistradores de las Aduanas de los puertos darán por el correo inmediato, al Director General de Aduanas, aviso de los bultos reembarcados, expresando la marca, el número, contenido en general el nombre del buque en que hubieren sido introducidos y el del buque en que se hubiere ejecutauo el reem barque.
+Artículo 95.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

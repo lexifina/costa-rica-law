@@ -1,1 +1,3 @@
-Art 357.-En ningún caso se suspenderá la entrega de la correspondencia a sus respectivos títulos, salvo en los designados por la ley.
+Artículo 357- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art. 193.-Todos los efectos no comprendidos en el artículo anterior, y que los pasajeros traigan en pequeñas cantidades, causarán los derechos fijados en la tarifa.
+Artículo 193.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

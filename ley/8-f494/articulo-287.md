@@ -1,1 +1,2 @@
-Art. 287.- El Tenedor ó portador del documento privado, y el cartulario, por los documentos públicos en que intervengan, son responsables, por la falta de timbre.
+Artículo 287.- DEROGADO.
+(Derogado por el artículo 2º de la Ley Nº 6 de 27 de mayo de 1930).

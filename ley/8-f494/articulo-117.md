@@ -1,1 +1,3 @@
-Art. 117.-Las mercaderías que por su mal estado puedan causar perjuicio á la 'Salud, ó las mercaderías destinadas á los almacenes de las Aduanás,deberán ser extraídas por los interesados dentro de tres días, después de practicado el reconocimiento por expertos que nombre el Administrador.
+Artículo 117.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

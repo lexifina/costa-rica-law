@@ -1,5 +1,7 @@
-TÍTULO III
-De las entradas y salidas de buques.
-CAPÍTULO I
-Visitas de fondeo y manifiesto por mayor.
-Art.57.-El jefe de la Aduana podrá ordenar que permanezcan á bordo de los buques, por el término que juzgare conveniente, Ios guardas que crea necesarios para celar el contrabando, cuyos alimentos serán sufragados por el dueño de la nave .
+TITULO III
+DE LAS ENTRADAS Y SALIDAS DE LOS BUQUES
+CAPITULO I
+Visitas de fondeo y manifiesto por mayor
+Artículo 57.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

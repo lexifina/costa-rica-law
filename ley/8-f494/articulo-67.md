@@ -1,2 +1,3 @@
-Art, 67.-Los conocimientos entregados por el capitán del buque permanecerán en el despacho de la Aduana el tiempo necesario para la formación del manifiesto por mayor, que se hará por duplicado, con el resumen de dichos documentos y la relación presentada por el capitán.
-Formado el manifiesto se devolverán los conocimientos al Capitán del puerto para que los entregue al capitán del buque, recogiendo el recibo que se hubiere dado de los expresados conocimientos.
+Artículo 67.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art. 263.-Los derechos de protocolo que, conforme al artículo 21 del decreto de 23 de, mayo de 1878, corresponden al fisco, se satisfarán por medio de timbres, que colocará el cartulario en la parte superior y ángulo izquierdo del comienzo de cada escritura, y que inutilizara con la fecha en cifra del otorgamiento de la misma y media firma.
+Artículo 263.- DEROGADO.
+(Derogado por Ley Nº 56 de 6 de agosto de 1921).

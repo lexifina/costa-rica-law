@@ -1,1 +1,3 @@
-Art 352.-Se prohíbe la presencia de personas extrañas en las oficinas de correos, durante la apertura y clausura de las valijas.
+Artículo 352- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art 512.-Presentada la denuncia se llamará por edictos publicados por tres veces en el periódico oficial, a los que tengan derecho de oponerse a la denuncia, para que formalicen su oposición dentro del término de treinta días.
+Artículo 512- DEROGADO.
+(Derogado por Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939 y Decreto Ejecutivo Nº 6 de 2 de abril de 1940).

@@ -1,1 +1,2 @@
-Art. 289.- Toda defraudación de este impuesto será castigada con una multa igual á veinte veces el valor de lo defraudado.
+Artículo 289.- Los notarios o demás funcionarios públicos o particulares, que expidieren, libraren o autorizaren testimonios, certificaciones u otros documentos sujetos al impuesto de timbre, en que se deje de pagar ese impuesto, o que les reconocieren eficacia legal sin tenerla, o que de cualquier otra manera infringieren las disposiciones de este título, incurrirán en cada caso en una multa a favor del Tesoro Nacional, equivalente a diez veces el impuesto no cancelado.
+(Así reformado por el artículo 48 de la Ley Nº 6955 de 24 de febrero de 1984).

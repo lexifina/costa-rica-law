@@ -1,1 +1,2 @@
-Art 294.-Al fin de cada año económico, el Inspector General de Hacienda hará entrega a la Contaduría Mayor de todas las boletas que se le hubieren remitido, formando con ellas legajos separados, correspondientes a los distintos lugares donde existan ventas o receptorías.
+Artículo 294.- DEROGADO.
+(Derogado por el artículo 9 de la Ley Nº 5259 de 30 de julio de 1973).

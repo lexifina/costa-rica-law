@@ -1,1 +1,3 @@
-Art. 137-No podrán conducirse en el ferro-carril mercaderías extranjeras que no fueren despachadas con las formalidades establecidas en los precedentes artículos; y en cada tren irán los guardas que el Administrador juzgue necesarios para vigilar el cumplimiento de esta disposición y para cuidar los carros marchamados que conduzcan mercaderías.
+Artículo 137.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

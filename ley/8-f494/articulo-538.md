@@ -1,1 +1,3 @@
-Art 538.-Ninguna denuncia o adjudicación da derecho a mayor porción de terreno que la solicitada y adjudicada.
+Artículo 538- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

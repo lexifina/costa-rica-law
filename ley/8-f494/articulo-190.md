@@ -1,1 +1,3 @@
-Art. 190.-Cuando no hubiere factura original se procederá, previa autorización del Administrador,á. practicar el registro de cada bulto.
+Artículo 190.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

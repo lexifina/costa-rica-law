@@ -1,1 +1,3 @@
-Art.- 124.-Esta certificación y su cancelación se copiarán textualmente en un libro que se llevará al efecto, debiendo firmar el asiento los referidos empleados y el interesado.
+Artículo 124.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

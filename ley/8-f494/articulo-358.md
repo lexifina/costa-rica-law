@@ -1,3 +1,5 @@
-CAPÍTULO IV
+CAPITULO IV
 De los certificados
-Art 358.-Toda correspondencia puede certificarse. Si se trata de certificar envíos con valores, deben manifestarse éstos al empleado para que lo consigne en el libro respectivo. De todo certificado se dará constancia al interesado.
+Artículo 358- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art 532.-Para resguardo del interesado dará este aviso de la ocupación a la autoridad política superior del cantón, quien extenderá en papel común la constancia del caso.
+Artículo 532- DEROGADO.
+(Derogado por artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

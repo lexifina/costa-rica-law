@@ -1,1 +1,1 @@
-Art 487- El ejecutivo fijará, siempre que lo crea conveniente, la proporción en que deban acuñarse las diversas clases de monedas
+Artículo 487- (Derogado por el artículo 22 de la Ley Nº 3 del 24 de octubre de 1896).

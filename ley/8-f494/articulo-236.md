@@ -1,1 +1,3 @@
-Art. 236.- El Subsecretario de Hacienda ó el que haga sus veces , presidirá el jurado; no puede recusársele sin justa causa, y cuando con ella se le recusare, resolverá sobre la recusación el Ministro de Hacienda, nombrando en su caso el empleado que deba presidir el jurado.
+Artículo 236.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

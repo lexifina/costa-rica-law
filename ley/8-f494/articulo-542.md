@@ -1,1 +1,3 @@
-Art 542.-Cuando no se aprobare la medida practicada en un terreno baldío, por errores sustanciales o por falta de formalidad en las operaciones practicadas, se mandará, a petición del interesado y a costa del agrimensor que la hubiere hecho, remedir el terreno o subsanar las faltas cometidas.
+Artículo 542- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

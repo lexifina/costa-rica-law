@@ -1,3 +1,4 @@
 CAPÍTULO III
 Penas y aplicaciones de las multas
-Art 306.-La contravención a cualquiera de los cuatro artículos anteriores, será castigada con la multa de cinco a diez pesos, según la gravedad del caso, por la primera vez; diez a veinticinco pesos, por la primera reincidencia, y de veinticinco a cincuenta pesos por la segunda; no pudiendo el infractor obtener en adelante licencia para destazar ganado para el abasto público.
+Artículo 306.- La contravención a cualquiera de los artículos anteriores, se castigará con multa de diez a veinte colones, según la gravedad del caso, por la primera vez, de veinte a cincuenta colones, por la segunda reincidencia, negándose en este caso, al infractor, licencia para continuar destazando ganado para el abasto público o de exportación.
+(Reformado por el artículo 8 de la Ley Nº 5259 de 30 de julio de 1973).

@@ -1,1 +1,3 @@
-Art. 189.-Concluido el registro estando conforme el interesado con los aforos hechos por el Alcaide, podrá, una vez arreglados ó garantizados los derechos, permitirse la extracción de los efectos.
+Artículo 189.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

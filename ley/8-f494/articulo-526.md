@@ -1,1 +1,3 @@
-Art 526.-Si los terrenos se remataren en otra persona que no sea el denunciante, el rematario deberá pagar a éste los gastos que hubiere hecho, no pudiendo, mientras tanto, tomar posesión de los terrenos rematados.
+Artículo 526- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

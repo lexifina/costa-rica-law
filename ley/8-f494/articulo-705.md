@@ -1,1 +1,2 @@
-Art 705- El año económico empieza el primero de abril y acaba el treinta y uno de Marzo.
+Artículo 705- (NOTA: La ley Nº 199 de 6 de setiembre de 1945 mantuvo
+insubsistente este artículo).

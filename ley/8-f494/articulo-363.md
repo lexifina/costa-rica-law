@@ -1,1 +1,3 @@
-Art 363.-Trascurrido un año después de estar en rezago la correspondencia del interior o procedente de los países no adheridos a la Unión Postal Universal, se procederá a destruirla.
+Artículo 363- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

@@ -1,1 +1,3 @@
-Art. 166.-Los porteadores deben colocar y llevar siempre de un modo visible, en el frente del carro ó en la testera de la acémila, la placa de matrícula, y además, pintado en cifras visibles en los costados del carro, el respectivo número de su placa.
+Artículo 166.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 657.-Ninguna orden de pago será cubierta por la Tesorería Nacional, antes de estar cancelada por el acreedor o su recomendado.
+Artículo 657- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

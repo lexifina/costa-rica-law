@@ -1,1 +1,4 @@
-Art 412- Si un telegrama contuviere varias firmas de personas cuyos nombres no constituyen una razón social, fuera de la primera firma, se pagará por todas las restantes el valor correspondiente, como si fuesen palabras del contenido del telegrama.
+Artículo 412- Si un telegrama contuviere varias firmas de personas
+cuyos nombres no constituyen una razón social, fuera de la primera
+firma, se pagará por todas las restantes el valor correspondiente, como
+si fuesen palabras del contenido del telegrama.

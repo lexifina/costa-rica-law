@@ -1,1 +1,3 @@
-Art, 192.-Se considerarán como de uso, además de la ropa, y se despacharán libres de derechos, el reloj de bolsa con su cadena, un kilogramo de rapé, tabaco en rama ó labrado, un revólver, un rifle, escopeta ó carabina con' sus accesorios y hasta cien tiros, y un instrumento de música que no sea piano, órgano ó armonium.
+Artículo 192.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,4 @@
-Art 506- El Director dará aviso por nota, al Ministerio de Hacienda de las entregas de moneda que haga a la Tesorería Nacional y de las cantidades que haya cobrado en especie por acuñación de metales hechas a los particulares.
+Artículo 506- El Director dará aviso por nota, al Ministerio de
+Hacienda de las entregas de moneda que haga a la Tesorería Nacional y de
+las cantidades que haya cobrado en especie por acuñación de metales
+hechas a los particulares.

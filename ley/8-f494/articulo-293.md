@@ -1,1 +1,2 @@
-Art. 293.-Los tesoreros municipales no expedirán licencia alguna para destazar ganado, sin recoger del carnicero la correspondiente boleta, escribiendo en ella, en letra,el número de la licencia. En ésta consignarán, igualmente en letra, el número de la boleta; y de las que recogieren durante el mes, formarán un legajo ordenado que, con el índice correspondiente, remitirán en la primera quincena del mes siguiente a la Inspección General de Hacienda.
+Artículo 293.- DEROGADO.
+(Derogado por el artículo 9 de la Ley Nº 5259 de 30 de julio de 1973).

@@ -1,1 +1,3 @@
-Art. 198.-Los derechos de las mercaderías que, conforme el artículo 196, deben liquidarse en el acto, se cubrirán en la Tesorería Nacional, antes de recibir los efectos.
+Artículo 198.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

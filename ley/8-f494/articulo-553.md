@@ -1,1 +1,3 @@
-Art 553.-Los que infringieren cualquiera de las disposiciones de los tres artículo anteriores, además de la reposición de los árboles destruidos, incurrirán en una multa que no baje de veinticinco colones ni exceda de cien, según la gravedad de la infracción, siendo la mitad para el denunciante y la otra mitad para el Fisco.
+Artículo 553.- DEROGADO.
+(Derogado por la Ley General sobre Terrenos Baldíos Nº 13 de 10 de
+enero de 1939)

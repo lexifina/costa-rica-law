@@ -1,1 +1,3 @@
-Art 523.-Las mejoras industriales que hubiere en los terrenos denunciados se apreciarán separadamente por los mismos peritos, o por otros, si fuese necesario, para indemnizarlas al cultivador.
+Artículo 523- DEROGADO.
+(Derogado por el artículo 9º de la ley Nº 11 de 22 de octubre de
+1926).

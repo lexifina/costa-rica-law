@@ -1,1 +1,3 @@
-Art. 89.-Los Administradores de las Aduanas de los puertos nombrarán guardas para que inspeccionar el embarque de las mercaderías ó frutos, rectifiquenen el peso bruto y tomen nota de los bultos embarcados, en los libros que llevarán con ese objeto.
+Artículo 89.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

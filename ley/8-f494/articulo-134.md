@@ -1,1 +1,3 @@
-Art. 134.-El Administrador remitirá por correo una copia de cada guía al Administrador de la Aduana de Carrillo y otra al Director General de Aduanas.
+Artículo 134.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

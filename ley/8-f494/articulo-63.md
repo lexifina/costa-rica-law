@@ -1,1 +1,3 @@
-Art. 63.-Si no hubiera tenido lugar la entrega del manifiesto por mayor y de los conocimientos, después de trascurrido el término señalado al efecto, el Administrador oficiará al Capitán del puerto, para que prevenga al capitán del buque levante anclas y zarpe inmediatamente; pero si al recibir este aviso, el capitán se obligare á entregar el manifiesto dentro de tres horas, se le concederá ese término, previo el pago de la correspondiente multa.
+Artículo 63.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

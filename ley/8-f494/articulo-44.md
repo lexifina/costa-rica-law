@@ -1,1 +1,8 @@
-Art 44- Cada mes remitirán los Cónsules á la Secretaría de Hacienda una noticia de los buques salidos para los puertos de la República, expresando sus nombres, el de los capitanes y su nacionalidad; el nombre de los pasajeros, y en general la carga que conduzcan; y otra de los buques llegados á los puertos de su residencia, procedentes de Costa Rica, con expresión de los efectos y caudales que lleven, nombres de pasajeros, puertos de procedencia, días de navegación.
+Artículo 44- Cada mes remitirán los cónsules a la Secretaría de
+Hacienda una noticia de los buques salidos para los puertos de la
+República, expresando sus nombres, el de los capitanes y su
+nacionalidad; el nombre de los pasajeros, y en general la carga que
+conduzcan; y otra de los buques llegados a los puertos de su residencia,
+procedentes de Costa Rica, con expresión de los efectos y caudales que
+lleven, nombres de pasajeros, puertos de procedencia, días de navegación
+etc.

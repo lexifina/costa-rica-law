@@ -1,1 +1,3 @@
-Art 353.-Las cartas que en la cubierta lleven la inscripción «quede en el correo,» se archivarán en su respectivo departamento, y se anunciará en la oficina por medio de una lista que se fijará en la puerta principal. Si a los quince días no fuesen retiradas, se publicará en el Diario Oficial, después de cuya formalidad se considerarán como rezago.
+Artículo 353- DEROGADO.-
+(Derogado por el artículo 18, inciso c), de la Ley de Correos
+No.7768 de 24 de abril de 1998)

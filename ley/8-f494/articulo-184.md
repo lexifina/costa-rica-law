@@ -1,1 +1,3 @@
-Art 184.-Estando el pedimento en regla, lo pasará rubricado al Alcaide para que haga trasladar los bultos á la sala de registro, y en seguida se practicará éste por el Alcaide, á presencia de uno de los guarda-almacenes, del Contador ó el Administrador, y del dueño consignatario ó persona autorizada para ello.
+Artículo 184.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

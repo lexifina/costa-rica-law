@@ -1,1 +1,2 @@
-Art 652.-La Tesorería Nacional no recibirá ninguna cantidad, fuera de las expresadas en los artículos anteriores, sin orden especial de la Secretaría de Hacienda.
+Artículo 652- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

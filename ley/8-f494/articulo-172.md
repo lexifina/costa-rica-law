@@ -1,1 +1,3 @@
-Art. 172.Los porteadores deben hacer sus paradas en los galerones públicos destinados al efecto, y cuando por motivo justo no pudieren llegar á ellos, conservar la carga en los carros, dejando éstos en la orilla de la carretera; ó estivar los bultos también á la orilla de la carretera, si los condujeren en acémilas.
+Artículo 172.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

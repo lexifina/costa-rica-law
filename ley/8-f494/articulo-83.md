@@ -1,1 +1,3 @@
-Art. 83.-EI trasbordo de un buque dé'guerra extranjero á otro de igual naturaleza, podrá hacerse sin permiso del Administrador de la Aduana del puerto; pero si un buque de guerra trasbordaré efectos á un buque mercante, quedará sujeto á las mismas prescripciones establecidas para éstos.
+Artículo 83.- DEROGADO.
+(Derogado por el artículo 255, inciso b), de la Ley General de
+Aduanas No.7557 del 20 de octubre de 1995)

@@ -1,1 +1,2 @@
-Art 655.-Los pagos que no provengan de sueldos, se harán por medio de giros dados por los Secretarios de Estado, o de otro empleado autorizado para girar; pero en este caso, con el «Visto Bueno» de la Secretaría de quien dependa.
+Artículo 655- DEROGADO.
+(Derogado por ley Nº 201 de 6 de setiembre de 1945).

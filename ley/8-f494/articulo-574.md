@@ -1,1 +1,20 @@
-Art 574.-Venderá el papel sellado, timbres, estampillas de correo, boletas de destace, pero sólo en cantidad de veinticinco pesos o más, y en ese caso descontará el tanto por ciento que fije el Ejecutivo, a favor del comprador. El comprador de especies fiscales deberá depositar previamente en la Tesorería la cantidad necesaria para pagar las especies, cuyo recibo entregará al Jefe de Sección, y este empleado presentará a las dos de la tarde la cuenta comprobada de todo lo realizado en el día.
+Artículo 574- El depositario venderá papel sellado, timbres, sellos de
+correos, boletas de destace y demás especies fiscales en su poder, pero
+sólo en cantidad de veinticinco colones o más, y en ese caso descontará
+un seis por ciento (6%) en favor del comprador, el que deberá depositar
+previamente la cantidad necesaria para pagar las especies.
+Se exceptúan del descuento anterior los marbetes para fósforos, que
+sólo lo tendrán de uno y medio por ciento (1 ½%), los timbres consulares
+que lo tendrán de un ocho por ciento (8%), y los demás marbetes, tales
+como para refrescos, licores, cerveza y cigarrillos, que no tendrán
+descuento alguno.
+De todo lo realizado diariamente se llevará y presentará cuenta
+comprobada, conforme con los reglamentos.
+El depositario avisará quincenalmente al Ministerio de Economía y
+Hacienda y a la Proveeduría Nacional el estado de las existencias, a fin
+de que ésta proceda con suficiente anticipación a efectuar las
+correspondientes licitaciones para la adquisición de especies fiscales.
+El Poder Ejecutivo, en uso de la facultad reglamentaria, dictará
+todas aquellas disposiciones que juzgue oportunas para evitar cualquier
+acaparamiento o especulación con dichas especies.
+(Así reformado por ley Nº 1697 de 26 de noviembre de 1953).
