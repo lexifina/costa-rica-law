@@ -1,0 +1,1 @@
+Artículo 2°-Las disposiciones de este Reglamento se aplicarán sin excepción alguna a toda persona física o jurídica que solicite la autorización para construir los reductores de velocidad o, en su caso, la eliminación de los mismos.

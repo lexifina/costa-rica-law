@@ -1,0 +1,1 @@
+Artículo 14.-Los reductores de velocidad construidos por las comunidades o entidades públicas o privadas pasarán a formar parte como propiedad estatal, bajo custodia de la Dirección General de Ingeniería de Tránsito.
