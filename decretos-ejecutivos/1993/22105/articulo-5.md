@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión deberá rendir al Presidente de la República , dentro de los próximos seis meses a partir de la publicación, un informe que detalle el avance logrado y la propuesta formal para ejecutar el proyecto.
