@@ -1,0 +1,1 @@
+Artículo 6º—Las propuestas que se hayan hecho en los procesos conciliatorios y demás medidas alternativas al proceso, a partir del 1° de agosto del 2002 y que se encuentran pendientes de resolución ante el Poder Ejecutivo, serán conocidas por la Procuraduría General de la República a efecto de que se tramiten conforme a lo establecido en el presente Decreto Ejecutivo.
