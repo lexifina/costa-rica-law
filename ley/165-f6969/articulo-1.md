@@ -1,0 +1,6 @@
+DECRETO CLXV
+Declara la continuacion del Tribunal Supremo de Justicia y la renovacion de los individuos del Poder Legislativo en virtud de la Constitucion reformada.
+"El General Presidente de la Repùblica de Costa Rica. -Por cuanto el Excelentísimo Poder Legislativo ha decretado y sancionado lo siguiente.
+El Excelentísimo Congreso Constitacional de la Repùblica de Costa Rica.
+Considerando: 1° que la Constitucion de 21 de enero de 1847 reformada en 22 de noviembre del presente año, no puede alterar con su nueva formala marcha constitucional, cuya grande emisión solo corresponde a un Poder Constituyente: 2° que por lo mismo deben continuar fungiendo los poderes políticos, cuya organizacion no choque con las reformas, por el periodo para que han sido electos: 3° que el artículo 26 de la Constitucion reformada ha variado la base de la representacion popular, y el 38 ha prolongado su duracion, lo cual impide que pueda renovarse el Congreso por mitad en su primer periodo; y 4° que es necesario que haya una autoridad que califique y dé posesion á los Representantes nuevamente electos,decreta.
+Art. 1° El Supremo Poder Ejecutivo y el Tribunal Supremo de Justicia continuarán en sus funciones por el periódo constitucional, bajo cuyo orden fueron electos.
