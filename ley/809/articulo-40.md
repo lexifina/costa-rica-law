@@ -1,6 +1,0 @@
-Artículo 40.- En ningún caso, y por ningún motivo podrán los Médicos
-Oficiales excusarse de practicar reconocimientos o de dar los informes que
-se les soliciten, y que puedan hacer luz en una causa, bajo la pena de ser
-juzgados por desobediencia a la autoridad. Sin embargo, cuando esta
-diligencia deba ser practicada fuera de su respectivo circuito, están
-facultados para cobrar sus honorarios a quien corresponda.
