@@ -1,0 +1,1 @@
+Artículo 11.—A fin de que haya la mayor equidad posible, la oficina de cobro hará la distribución de las cuentas que se asignen a cobro judicial, clasificando las mismas alfabéticamente, por apellido. No se tomarán en cuenta aquellos Abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento.

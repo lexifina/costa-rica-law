@@ -1,0 +1,1 @@
+Artículo 18.—Todos los Abogados nombrados por la institución deberán presentar informe de los casos asignados en la forma prevista por este reglamento y dentro de los primeros cinco días hábiles de cada mes, los que serán entregados al departamento de cobro. El incumplimiento de esta disposición facultará a la oficina a suspender la entrega de nuevas operaciones.

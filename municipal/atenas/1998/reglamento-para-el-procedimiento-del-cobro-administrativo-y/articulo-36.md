@@ -1,0 +1,1 @@
+Artículo 36.—El día hábil siguiente al remate el abogado deberá informar por escrito a la oficina de cobro administrativo de la Municipalidad, el resultado del remate. Si pasado un lapso de ocho días no cumpliere con lo anterior, la oficina de cobro le enviará una nota solicitando el informe, con copia al Concejo Municipal para que se proceda de conformidad.
