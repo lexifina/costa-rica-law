@@ -1,0 +1,1 @@
+Transitorio Unico: Todos los procedimientos de verificación de origen, y las solicitudes para su apertura interpuestos antes de la publicación del presente Decreto y que se encuentren pendientes serán concluidos por Comercio Exterior.

@@ -1,0 +1,1 @@
+Artículo 2°—Designar a la Dirección General de Aduanas del Ministerio de Hacienda como la autoridad competente para efectuar los procedimientos de verificación de origen estipulados en los tratados de libre comercio.

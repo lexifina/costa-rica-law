@@ -1,0 +1,1 @@
+Artículo 3°—Los Ministerios de Comercio Exterior y de Hacienda deberán disponer las medidas de comunicación que resulten necesarias para informar adecuadamente, tanto en el ámbito nacional como internacional, de lo establecido en el presente Decreto.
