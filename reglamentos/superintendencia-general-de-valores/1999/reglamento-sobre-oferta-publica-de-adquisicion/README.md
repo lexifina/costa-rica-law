@@ -15,3 +15,4 @@ Reglamento sobre Oferta Pública de Adquisición
 | --- | --- | --- |
 | 1 | 1999-02-16 | la propia norma |
 | 2 | 1999-05-10 | Reglamento 91 (1999-05-10) |
+| 3 | 2002-11-04 | Reglamento 338 (2002-11-04) |

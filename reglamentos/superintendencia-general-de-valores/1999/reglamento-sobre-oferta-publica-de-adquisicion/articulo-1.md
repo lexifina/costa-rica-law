@@ -1,5 +1,4 @@
-REGLAMENTO SOBRE OFERTA
-PÚBLICA DE ADQUISICIÓN
+(NOTA: Esta norma se ha DEROGADO EN SU TOTALIDAD mediante acuerdo tomado en sesión N° 338 de 4 de noviembre del 2002)
 CAPÍTULO I
 DISPOSICIONES GENERALES
 Artículo 1. Ambito de aplicación
