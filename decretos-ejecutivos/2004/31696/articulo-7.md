@@ -1,0 +1,1 @@
+Artículo 7º—De la exención del impuesto sobre la transferencia de vehículos automotores. En caso de que la exención del Impuesto sobre la Propiedad se otorgue en virtud de adquisición por traspaso, el beneficio deberá contemplar el tributo creado mediante artículo 13 de la citada Ley Nº 7088.
