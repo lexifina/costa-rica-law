@@ -70,3 +70,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 55 | 2001-11-01 | Decreto Ejecutivo 29953 (2001-11-01) |
 | 56 | 2001-11-08 | Decreto Ejecutivo 29989 (2001-11-08) |
 | 57 | 2001-12-04 | Decreto Ejecutivo 30023 (2001-12-04) |
+| 58 | 2002-04-15 | Decreto Ejecutivo 30444 (2002-04-15) |
