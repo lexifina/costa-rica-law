@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE ASERRÍ
+El Concejo Municipal de Aserrí, por acuerdo Nº 010-74, artículo 2º, sesión Nº 74, celebrada el día 22 de setiembre del 2003, acuerda: "Aprobar las Modificaciones al Reglamento para la Fijación o Ajuste de Tasas por Servicios Municipales, publicado en la Gaceta Nº 29 del 9 de febrero del año 2001, para que en lo relativo a los artículos Mº 1 y Nº 3, se lean de la siguiente manera:
+Artículo 1º—El Alcalde elevará el expediente al Concejo con su propuesta de ajuste tarifario o creación de la tasa. El Concejo podrá aprobar en firme las nuevas tasas, dispensando el trámite ante la Comisión de Asuntos Hacendarios.
+Artículo 2º—Una vez avalada la propuesta por el Concejo Municipal, éste convocará a una audiencia pública, en la que podrán participar quienes tengan un interés legítimo. De previo a la Audiencia se deberán publicar las nuevas tasas o tarifas en el Diario Oficial La Gaceta; otorgándose un período de cinco días naturales para la presentación de oposiciones a partir de la fecha de la publicación.
+El texto de los artículos numerados dos, cuatro, cinco y seis se mantiene igual.
