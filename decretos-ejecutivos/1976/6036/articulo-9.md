@@ -1,0 +1,1 @@
+Artículo 9°—El Gobierno de la República reconoce la existencia y la personalidad jurídica de la Comunidad Indígena Pacacua, de Quitirrisí, cantón de Mora y declara Reserva Indígena el territorio ocupado por dicha comunidad.

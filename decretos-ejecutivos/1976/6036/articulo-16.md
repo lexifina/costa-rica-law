@@ -1,0 +1,1 @@
+Artículo 16.—De manera a realizar en la práctica las disposiciones establecidas por los Decretos N° 5904-G, 5905-G y el presente decreto, se insta a las autoridades centrales y locales del país, hacer cumplir dichas disposiciones hasta resolución completa de las situaciones conflictivas.

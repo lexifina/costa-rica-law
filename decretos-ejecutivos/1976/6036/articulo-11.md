@@ -1,0 +1,1 @@
+Artículo 11.—El ITCO, en coordinación con la CONAI, deberá efectuar la delimitación territorial de las Reservas creadas por los artículos 9° y 10 del presente decreto. Las Reservas así delimitadas disfrutarán del mismo Estatuto que las establecidas por el Decreto N° 5904-G; todas las disposiciones del dicho decreto lo son aplicables en lo conducente.

@@ -1,0 +1,2 @@
+Artículo 15.—Modifíquese el artículo 7° del Decreto N° 5904-G, agregando la frase siguiente:
+"Las pulperías, comisariatos y otros establecimientos comerciales de primera necesidad, que se establecieran dentro de las Reservas Indígenas, deberán ser manejados preferentemente por cooperativas u otros grupos organizados de la comunidad. En ausencia de éstos, dichos negocios podrán ser manejados por particulares, siempre y cuando no los utilicen con fines de especulación".

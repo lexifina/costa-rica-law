@@ -1,0 +1,1 @@
+Artículo 12.—Los terrenos pertenecientes a la "Sociedad Agrícola y Forestal Sixaola", que se encuentran incluidos dentro de las demarcaciones de las Reservas Indígenas, serán expropiados para servir de "terrenos a vocación forestal", tal como se indica en el artículo 12 del Decreto N° 5904-G.

@@ -1,0 +1,1 @@
+Artículo 10.—Igualmente, el Gobierno de la República reconoce la existencia y la personalidad jurídica de la Comunidad Indígena Chorotega, de Matambú y lugares vecinos, de Guanacaste y declara Reserva Indígena el territorio ocupado por dicha comunidad.

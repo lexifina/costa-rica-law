@@ -1,0 +1,1 @@
+Artículo 6°—Para los efectos establecidos en el artículo 4° del Decreto Ejecutivo N° 5904-G del 14 de marzo de 1976, se debe tomar nota que la inscripción registral debe hacerse según los límites establecidos en los artículos precedentes del presente decreto.

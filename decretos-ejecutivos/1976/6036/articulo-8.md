@@ -1,0 +1,1 @@
+Artículo 8°—La Reserva Indígena de Telire tendrá el mismo estatuto que las otras Reservas establecidas por el Decreto N° 5904-G del 14 de marzo de 1976, o sea que todas las disposiciones del dicho decreto le son aplicables en lo conducente.
