@@ -1,4 +1,2 @@
-Artículo 7º.- El 50% del producto de la contribución indicada en los
-artículos 1º y 2º, será girado mensualmente por el Banco Central de Costa
-Rica al Instituto Mixto de Ayuda Social, el que destinará dichos recursos
-única y exclusivamente a la realización de programas de vivienda popular.
+Artículo 7º.- El doce y medio por ciento del producto de los impuestos indicados en el artículo 1º será girado mensualmente por el Banco Central de Costa Rica al Instituto Mixto de Ayuda Social, el cual destinará estos recursos única y exclusivamente a la realización de programas de vivienda popular. ( Así reformado por el art. 10 de la Ley Nº 6962 del 26 de julio de 1984)
+( TACITAMENTE REFORMADO por el artículo 22 de la Ley Nº 7088 de 30 de noviembre de 1987 que dispone: "Se modifica la distribución a que se refiere el artículo 1º de la ley Nº 5874 del 23 de diciembre de 1975, modificado por el artículo 10 de la ley Nº 6962 del 26 de julio de 1984, en el sentido de que el cinco por ciento (5%) de los ingresos generados por esa ley irá en beneficio del Instituto Mixto de Ayuda Social". No obstante, existe evidente error legislativo en la disposición de cita ya que se trata del presente artículo y no del 1º, como se indicó (también modificado por el artículo 20 de la Ley Nº 7088), por lo que el beneficio en favor del IMAS quedó reducido al 5%.).

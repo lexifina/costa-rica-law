@@ -1,13 +1,3 @@
-Artículo 5º.- Refórmase el inciso 15 del artículo 273 del Código
-Fiscal conforme al detalle siguiente:
-"Cada pasaporte que se expida, veinte colones (¢ 20.00); cada
-pasaporte que se vise, quince colones (¢ 15.00), excepto los casos de
-miembros de los Supremos Poderes con pasaporte diplomático, miembros de
-misiones internacionales o funcionarios oficiales con pasaporte de
-servicio; los trabajadores agrícolas que hayan ingresado al país en razón
-de su empleo, pagarán dos colones (¢ 2.00). Las cédulas de residencia
-que se expidan y los derechos anuales que deberá cancelar su titular,
-pagarán timbre conforme al detalle siguiente:
-Cada cédula de residencia que se expida, quince colones (¢ 15.00);
-los derechos de residencia correspondientes de conformidad con lo
-establecido en la ley Nº 5358 de 29 de setiembre de 1973".
+Artículo 5º.- Refórmase el inciso 15 del artículo 273 del Código Fiscal conforme al detalle siguiente:
+"Cada pasaporte que se expida, veinte colones (¢ 20.00); cada pasaporte que se vise, quince colones (¢ 15.00), excepto los casos de miembros de los Supremos Poderes con pasaporte diplomático, miembros de misiones internacionales o funcionarios oficiales con pasaporte de servicio; los trabajadores agrícolas que hayan ingresado al país en razón de su empleo, pagarán dos colones (¢ 2.00). Las cédulas de residencia que se expidan y los derechos anuales que deberá cancelar su titular, pagarán timbre conforme al detalle siguiente:
+Cada cédula de residencia que se expida, quince colones (¢ 15.00); los derechos de residencia correspondientes de conformidad con lo establecido en la ley Nº 5358 de 29 de setiembre de 1973".
