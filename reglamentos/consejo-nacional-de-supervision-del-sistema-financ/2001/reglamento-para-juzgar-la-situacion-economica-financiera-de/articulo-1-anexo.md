@@ -12,7 +12,7 @@ Morosidad mayor a 90 días / Cartera directa 50.0% 3.00% 10.00%
 20.00%
 Pérdida Esperada en Cartera / Cartera total 50.0% 1.70% 3.70% 8.60%
 1.00
-MANEJO
+MANEJO*
 Activo productivo de intermediación / pasivo con costo33.33333% 1.00 V
 0.90 V 0.80 V
 Morosidad ampliada 33.33333% 5.00% 12.00% 22.00% 1.00
@@ -40,3 +40,5 @@ Nivel normal1.00 -1.75 Inflación anual --%
 Nivel 11.76 -2.50
 Nivel 22.51 -3.25 Mes anteriorMes actual
 Nivel 33.26 -4.00 Calificación cuantitativa Nivel Nivel
+* (NOTA: mediante tomado en sesión N° 345 de 10 de diciembre de2002, se dispuso: " 8. Modificar el apartado "MANEJO" del anexo 1 de los acuerdos ... SUGEF 27-00 citados, de manera ... el elemento sea evaluado solo con los indicadores de (Activo Productivo de Intermediación / Pasivo con costo) y (Gastos de administración / Utilidad operacional bruta) y cada uno de ellos represente el 50% de la calificación del elemento, según el texto siguiente:
+(Consultar cuadro en Gaceta N° 15 de 22 de enero de 2003)

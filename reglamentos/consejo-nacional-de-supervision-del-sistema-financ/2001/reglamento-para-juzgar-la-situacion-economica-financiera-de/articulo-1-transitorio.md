@@ -1,5 +1,2 @@
 TRANSITORIO
-1. Aquellas entidades que a la entrada en vigencia de este reglamento no hayan sido calificadas cualitativamente, se considerarán para efectos de éste en nivel normal.
-Durante el segundo semestre del 2001, no se considerará lo indicado en los incios a) y b) del artículo 22 de este Acuerdo, siendo que únicamente se considerará como determinante de operación normal o de inestabilidad financiera de grado uno, la calificación global en puntos. Además durante el primer semestre del año 2002, la calificación del elemento cualitativo no será considerada para los efectos establecidos en los incisos a) y b) del artículo 21 y los incisos b) y c) del artículo 22 de este Acuerdo.
-Sin perjuicio de lo anterior, las entidades que a la entrada en vigencia de este Reglamento presenten dos o más elementos en irregularidad financiera, deberán presentar a la Superintendencia un plan de transición al nuevo modelo en el transcurso de cinco días hábiles contados a partir de la fecha de comunicación, de forma que al primero de enero del 2002 no presenten más de un elemento en irregularidad financiera
-(Así adicionado el párrafo por el artículo 12 del Reglamento N° 231- 2001 del 11 de junio del 2001)
+1. (Así Derogado mediante sesión N° 345 de 10 de diciembre de 2002).

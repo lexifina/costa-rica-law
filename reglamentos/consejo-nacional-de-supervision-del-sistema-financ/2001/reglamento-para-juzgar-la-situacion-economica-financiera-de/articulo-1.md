@@ -8,10 +8,6 @@ FINANCIERAS, MEDIANTE ARTÍCULO 6, DEL ACTA DE LA SESIÓN 207-2001, CELEBRADA EL
 12 DE FEBRERO DEL 2001.
 RIGE A PARTIR DEL MES DE JULIO DEL 2001, ANTES CONTINUARÁ RIGIENDO EL Acuerdo
 SUGEF 21-99
-Acuerdo SUGEF 27-00
-REGLAMENTO PARA JUZGAR LA SITUACIÓN ECONÓMICA-FINANCIERA DE LAS
-ASOCIACIONES MUTUALISTAS DE AHORRO
-Y PRÉSTAMO PARA LA VIVIENDA
 DISPOSICIONES GENERALES
 El presente reglamento contiene las normas generales para que la Superintendencia General de Entidades Financieras, en adelante Superintendencia, juzgue la situación económica - financiera de las Asociaciones Mutualistas de Ahorro y Préstamo, con el fin de velar por la estabilidad y la eficiencia del sistema financiero; de conformidad con lo establecido en los Artículos 136, 137 y 139 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558 del 3 de noviembre de 1995.
 DEFINICIÓN DE LOS RIESGOS
@@ -33,7 +29,9 @@ Activos
 Manejo
 Evaluación de rendimientos
 Liquidez
-Sensibilidad a riesgos de mercadoEl elemento de Capital Contable (Patrimonio) será evaluado con un indicador; el elemento de Activos será valorado con dos indicadores, Manejo será evaluado con tres indicadores, Evaluación de rendimientos con dos indicadores, Liquidez con tres indicadores y Sensibilidad a riesgos de mercado será evaluado con dos indicadores.
+Sensibilidad a riesgos de mercado
+El elemento de Capital Contable (Patrimonio) será evaluado con un indicador; y los elementos de Activo, Manejo y Evaluación de rendimientos serán evaluados con dos indicadores, Liquidez con tres indicadores y Sensibilidad a riesgos de mercado será evaluado con dos indicadores.
+(Así reformado el párrafo anterior, en sesión N° 345 de 10 de diciembre de 2002. Esta reforma rige a partir del 22 de abril de 2003).
 Los numeradores y denominadores de cada indicador de la calificación cuantitativa estarán compuestos por las cuentas, sub-cuentas y datos adicionales detallados en el anexo 2 de este reglamento.
 Para cada indicador se establecen rangos, según los cuales un intermediario financiero asume menor o mayor riesgo, y se le ubica según sea el caso en: nivel normal, nivel 1, nivel 2 o nivel 3.
 La integración de las calificaciones de los seis elementos mencionados dará por resultado una calificación cuantitativa.
