@@ -1,0 +1,1 @@
+TRANSITORIO III.- Para los efectos de las primas de las pólizas y coberturas a que hace mención el Capítulo II del Título II de esta Ley, se mantendrán vigentes los topes y los montos de la reglamentación actual, hasta tanto no sea publicado el Reglamento de la presente Ley.

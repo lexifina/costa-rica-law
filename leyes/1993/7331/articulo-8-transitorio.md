@@ -1,0 +1,1 @@
+TRANSITORIO VIII.- El requisito del grupo sanguíneo y RH se exigirá a partir de un plazo de dos años, contados desde la fecha de la vigencia de la presente Ley; se aplicará para las licencias que se soliciten por primera vez y para las licencias de renovación. Los organismos oficiales que realicen el examen lo harán al precio de costo.

@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.- A los vehículos automotores, sus remolques y semirremolques que se encuentren en circulación antes de la entrada en vigencia de esta Ley, no les serán aplicables los nuevos requisitos técnicos que se establecen en el artículo 31 de la presente Ley, pero sí deben cumplir obligatoriamente con los requisitos mínimos establecidos en el Decreto No. 17266-MOPT del 23 de octubre de l986.
