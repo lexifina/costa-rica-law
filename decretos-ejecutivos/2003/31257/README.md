@@ -14,3 +14,4 @@ Regula Venta al Mayoreo de Productos que Expende la Refinadora Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-14 | la propia norma |
+| 2 | 2003-10-15 | Decreto Ejecutivo 31478 (2003-10-15) |
