@@ -1,0 +1,7 @@
+DECRETO I
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
+Deroga el decreto de 25 de Octubre de 1872, volviendo a su vigor y fuerza Ias disposiciones anteriores sobre las atribuciones de la Gobernacion y Municipalidad de Puntarenas.
+Rafael Barroeta, Segundo Designado en Ejercicio del Poder Ejecutiva de la República de Costa-Rica.
+Con presencia de la esposicion dirigida por el Señor Gobernador de la Comarca de Puntarenas con fecha 3 del corriente mes, en la que manifiesta las dificultades con que tropieza la administracion local, por la escasez de ciudadanos que puedan desempeñar oportuna y convenientemente el cargo de Regidores, pues siendo aquella poblacion esencialmente comercial, las pocas personas aptas que reunen las condiciones necesarias para aquel cargo, ó son jefes, ó dependientes de las casas de comercio, cuyas ocupaciones perentorias impiden con frecuencia el concurrir á las sesiones en la debida oportunidad, con grave perjuicio de los intereses de la comunidad; y dependiendo la existencia de la Corporacion Municipal de aquella Comarca, del juicio del Ejecutivo, según está determinado en el artículo 10 de las Ordenanzas Municipales, decreto:
+Art. único. Derógase el decreto n° 8 de 25 de Octubre de 1872, volviendo á su vigor las disposiciones anteriores que refundían en la Gobernacion Ias atribuciones de la Municipalidad de la Comarca de Puntarenas.-
+Dado en el Palacio Nacional.-San José, á los quince dias del mes de Enero de mil ochocientos setenta y cuatro.
