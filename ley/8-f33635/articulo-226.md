@@ -1,3 +1,2 @@
-Artículo 226
-Cuando ante la Corte Plena se presentaren quejas sólo por irregularidades procesales, el Presidente de ella ordenará que se pasen al tribunal respectivo. Cuando los cargos contra el funcionario sean por irregularidades procesales y al mismo tiempo por otros motivos ajenos al procedimiento, las quejas serán del conocimiento de la Inspección Judicial.
-( Así reformado por el artículo 6º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 226.- Los servidores judiciales que fueren separados para el mejor servicio público, tendrán derecho a la jubilación, siempre que el tiempo servido exceda de diez años. La jubilación será proporcional al tiempo servido y sólo podrá ser percibida durante un lapso equivalente a la mitad de ese tiempo, salvo que hubiera laborado por más de veinte años, en cuyo caso el disfrute de la jubilación será vitalicio. Para fijarla, se multiplicará el monto del salario promedio establecido en el artículo 224 por el número de años servidos y el producto se
+dividirá entre treinta; el resultado será el monto de la jubilación.

@@ -1,3 +1,4 @@
-Artículo 94
-Los Alcaldes, de los cantones donde hubiere Juzgado Penal deberán iniciar los sumarios a que alude el artículo 84 mientras el Juez respectivo pueda apersonarse, y sólo podrán excusarse de hacerlo cuando tuvieren conocimiento de que dicho Juez está actuando.
-En los demás casos, y a prevención con los Jueces Penales, deberán instruir inmediatamente, de oficio, a instancia de parte o por orden superior, los sumarios de delitos que se cometan en sus respectivas jurisdicciones.
+Artículo 94.- Para ser Juez Superior se requiere:
+1.- Ser costarricense en ejercicio de sus derechos ciudadanos.
+2.- Tener al menos 30 años de edad.
+3.- Poseer título de abogado legalmente reconocido en Costa Rica y haber ejercido la profesión de abogado durante seis años, salvo en los casos en que se trate de funcionarios judiciales, con práctica jurisdiccional no menor de tres años.

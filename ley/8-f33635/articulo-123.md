@@ -1,10 +1,6 @@
-Artículo 123
-En todo expediente sobre faltas atribuidas a los servidores judiciales en el desempeño de sus funciones, o sobre irregularidades de conducta que afecten su decoro personal o el buen servicio público, el inspector que tenga a su cargo la instrucción pedirá el informe al servidor o le recibirá declaración sin juramento, y le concederá tres días de término para que ejerza su defensa y ofrezca la prueba de descargo que tuviere.
-El servidor judicial, contra quien se levante una información, tendrá derecho a examinar el expediente en cualquier momento.
-(Texto modificado por Resolución de la Sala Constitucional Nº 1636-90 de las 14:45 horas del 15 de noviembre de 1990 y adicionado por Resolución Nº 1222-91 de las 15:30 horas del 27 de junio de 1991).
-Si se tratare de faltas o irregularidades atribuidas a los propios inspectores judiciales, la Corte Plena designará a un funcionario ajeno a la inspección, para que levante la información correspondiente, la cual una vez concluida, se pasará a conocimiento de la Corte Plena para su decisión.
-En los demás casos, una vez terminada la información, la inspección resolverá el asunto dentro de los quince días siguientes, actuando para ello como órgano colegiado que se integrará con los tres inspectores generales y se denominará, para ese efecto, Tribunal de la Inspección Judicial, el cual para efectos disciplinarios, tendrá categoría superior a la de los Tribunales Superiores del Poder Judicial. La presidencia del Tribunal corresponderá al inspector general que esté sirviendo el cargo de jefe de la oficina.
-Las reglas establecidas en la presente Ley Orgánica y en el Código de Procedimientos Civiles, sobre impedimentos, excusas y recusaciones y sobre la forma de producirse las votaciones, regirán para la inspección y para el Tribunal en lo que les sean aplicables.
-El inspector que fuere separado será sustituido por un inspector asistente, y si no lo hubiere ténla Inspección, el Presidente de la Corte llamará a un juez suplente para completar la integración del órgano colegiado.
-La Inspección Judicial estará facultada para pedir, ad efectum videndi, los juicios, causas y demás expedientes que tengan relación con las faltas atribuidas a los servidores judiciales, pero sólo podrá retenerlos por el tiempo absolutamente necesario para su estudio, que no excederá de cinco días, si se tratare de asuntos en trámite.
-( Así reformado por el artículo 1º de la Ley Nº 6761 de 31 de mayo de 1982 )
+CAPITULO IV
+DE LOS TRIBUNALES DE TRABAJO DE MENOR CUANTIA
+Y DEL TRIBUNAL DE TRANSITO
+Artículo 123.- Los Tribunales de Trabajo de Menor Cuantía conocerán:
+1.- De los juicios ordinarios de trabajo, de conformidad con la cuantía que determine la Corte.
+2.- De los demás asuntos que determine la ley.

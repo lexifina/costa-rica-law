@@ -30,7 +30,6 @@ articulo-29.md
 articulo-30.md
 articulo-31.md
 articulo-32.md
-articulo-32-bis.md
 articulo-33.md
 articulo-34.md
 articulo-35.md
@@ -77,7 +76,6 @@ articulo-75.md
 articulo-76.md
 articulo-77.md
 articulo-78.md
-articulo-78-bis.md
 articulo-79.md
 articulo-80.md
 articulo-81.md
@@ -216,7 +214,6 @@ articulo-213.md
 articulo-214.md
 articulo-215.md
 articulo-216.md
-articulo-216-bis.md
 articulo-217.md
 articulo-218.md
 articulo-219.md
@@ -247,3 +244,21 @@ articulo-243.md
 articulo-244.md
 articulo-245.md
 articulo-246.md
+articulo-247.md
+articulo-248.md
+articulo-249.md
+articulo-250.md
+articulo-251.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
+articulo-4-transitorio.md
+articulo-5-transitorio.md
+articulo-6-transitorio.md
+articulo-7-transitorio.md
+articulo-8-transitorio.md
+articulo-9-transitorio.md
+articulo-10-transitorio.md
+articulo-11-transitorio.md
+articulo-12-transitorio.md
+articulo-13-transitorio.md

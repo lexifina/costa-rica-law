@@ -1,2 +1,4 @@
-Artículo 113
-Las faltas accidentales de los secretarios en determinado negocio, por recusación, impedimento, excusa u otro motivo, serán suplidas por el prosecretario, y en defecto de éste, por dos testigos de asistencia que deberán reunir las condiciones exigidas en el Código Civil para serlo en los instrumentos públicos.
+Artículo 113.- Los Juzgados Agrarios conocerán:
+1.- De lo relativo a la materia agraria, cualquiera que sea la cuantía.
+2.- De los delitos de usurpación y daños a los que se refiere la Ley de Jurisdicción Agraria, casos en que actuarán como juzgados penales.
+3.- De los demás asuntos que les encomienden las leyes.

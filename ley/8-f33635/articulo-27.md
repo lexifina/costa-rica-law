@@ -1,5 +1,6 @@
-Artículo 27
-No pueden administrar justicia:
-1º.- El que sea ascendiente, descendiente, hermano, tío carnal, sobrino consanguíneo, cuñado, yerno, suegro, padrastro o hijastro de un superior que pueda conocer en grado de sus resoluciones. Esta prohibición no comprende las relaciones de familia entre los Magistrados suplentes que accidentalmente puedan integrar otra Sala de acuerdo con lo dispuesto por la Constitución, y los funcionarios ordinarios del Poder Judicial, debiendo aquéllos declararse inhibidos para conocer de los asuntos en que hayan intervenido sus referidos parientes.
-2º.- El que sea pariente por consanguinidad o afinidad, dentro del segundo grado inclusive, de un colega en tribunal colegiado; y
-3º.- En determinado negocio, el que tenga motivo de impedimento o el que haya sido separado por excusa o recusación.
+Artículo 27.- Los servidores que desempeñan puestos judiciales serán suspendidos por:
+1.- Hallarse detenidos preventivamente y mientras dure esa medida.
+2.- Haberse dictado contra ellos auto firme de elevación a juicio o de citación a juicio, por cualquier delito doloso o por un delito culposo cometido en ejercicio de sus funciones, siempre que a juicio de la Corte o del Consejo, según corresponda, ello resulte conveniente en razón de la naturaleza de los hechos atribuidos y del servicio público. Para tales efectos, la autoridad judicial que conozca del asunto comunicará lo resuelto en el juicio penal, a la Corte o al Consejo, cuando el auto adquiera firmeza.
+3.- Licencia concedida.
+4.- Imposición de la corrección disciplinaria de suspensión.
+5.- Separación preventiva.

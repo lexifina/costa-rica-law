@@ -1,3 +1,2 @@
-Artículo 151
-Decretada la suspensión o inhabilitación, el Tribunal especial la Directiva la comunicará a la Corte Suprema de Justicia, para su publicación, debiendo contarse a partir de ésta el término de la suspensión.
-( Así reformado por el artículo 1º de la Ley Nº 53 de 1º de julio de 1944)
+Artículo 151.- El Jefe del Departamento de Defensores Públicos debe ser costarricense, abogado, mayor de treinta años y con suficiente experiencia en la tramitación de asuntos judiciales y en administración de personal.
+A propuesta del jefe, la Corte designará al Subjefe del Departamento de Defensores Públicos, el que deberá reunir los mismos requisitos que aquél.

@@ -1,2 +1,1 @@
-Artículo 170
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 170.- Los tribunales no pueden sostener competencias con los superiores que ejerzan jurisdicción sobre ellos.

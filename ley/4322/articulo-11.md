@@ -1,1 +1,0 @@
-Artículo 11.- La potestad disciplinaria será ejercida indistintamente por el Jefe de la oficina y el Actuario, en los casos que determina la Ley Orgánica; pero éste o aquél deberán abstenerse de intervenir cuando el otro lo hubiere hecho.

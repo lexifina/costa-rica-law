@@ -1,4 +1,7 @@
-Artículo 243
-El fondo de pensiones referido, será mantenido en cuenta corriente en el Banco Nacional de Costa Rica, y a la orden exclusiva de la Corte Suprema de Justicia. Los intereses correspondientes a ese fondo, serán capitalizados trimestralmente.
-Los pagos se harán por medio de cheques o giros extendidos por la Contaduría Judicial; serán firmados por el Presidente de la Corte Suprema de Justicia con facsímile de seguridad y personalmente por uno de los contadores judiciales.
-( Así reformado por el artículo 1º de la Ley Nº 3018 de 9 de agosto de 1962 )
+TITULO X
+DEL EJERCICIO DE LA ABOGACIA
+CAPITULO UNICO
+Artículo 243.- Salvo los casos exceptuados por la ley, sólo los abogados podrán representar a las partes ante los Tribunales Judiciales de la República. No obstante, en los lugares asientos de las alcaldías, que disten más de veinticinco kilómetros de la sede del juzgado y en donde no haya, por lo menos, dos abogados con oficina abierta, podrá ser apoderado judicial el egresado de la carrera de Derecho, dentro del período de dos años que se indica en el párrafo siguiente.
+El alcalde respectivo hará constar en el expediente, bajo su responsabilidad, que en ese lugar no existen por lo menos dos abogados con oficina abierta.
+Los universitarios que estudien la profesión de Derecho y que hubieran aprobado el segundo año completo, todo lo cual deberán comprobar, podrán concurrir a las oficinas judiciales en solicitud de datos y para el examen de expedientes, documentos y otras piezas. También podrán hacerlo los egresados, pero tan solo por un lapso de dos años a partir del día en el que hubieran aprobado el último año profesional. Vencido ese plazo, caducará el derecho que aquí se les concede.
+Los estudiantes que estén cursando el primero y segundo años, solo podrán solicitar datos y ver expedientes, documentos y otras piezas, para confeccionar trabajos de investigación, para lo cual deberán presentar solicitud que, en este sentido y bajo su responsabilidad, hará el profesor respectivo.

@@ -1,2 +1,1 @@
-Artículo 10
-(DEROGADO por el artículo 2º de la Ley Nº 6024 de 15 de diciembre de 1976)
+Artículo 10.- Cuando hayan de practicarse diligencias fuera del perímetro judicial de la oficina, que ameriten gastos de traslado, alimentación y hospedaje, que deban cubrir los interesados en un proceso, el Despacho dictará resolución indicando los correspondientes montos, conforme se establezca legalmente. Esa suma deberá depositarla, de previo, el interesado en la cuenta corriente del respectivo despacho judicial, el cual girará el monto al servidor que prestó el servicio.

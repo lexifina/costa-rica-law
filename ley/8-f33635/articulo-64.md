@@ -1,2 +1,1 @@
-Artículo 64
-( DEROGADO por el artículo 2º de la Ley Nº 6637 de 3 de setiembre de 1981)
+Artículo 64.- Los Magistrados suplentes escogidos por sorteo, para conocer de un asunto determinado, no podrán separarse de su conocimiento, salvo en el caso de excusa o impedimento conforme a la ley. Aquel que se negare sin motivo legal al desempeño de su cargo o el que hiciere dificultades para que se conozca el asunto será repuesto por otro Magistrado suplente, escogido mediante sorteo para ese fin. Al remiso, la Corte le aplicará suspensión por seis meses del ejercicio de la suplencia y dará cuenta a la Asamblea Legislativa, por si estima del caso separarlo del todo.
