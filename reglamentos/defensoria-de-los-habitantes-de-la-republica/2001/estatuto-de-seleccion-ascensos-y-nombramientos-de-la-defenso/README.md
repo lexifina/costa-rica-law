@@ -14,3 +14,4 @@ Estatuto de Selección, Ascensos y Nombramientos de la Defensoría de los Habita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-31 | la propia norma |
+| 2 | 2003-05-12 | Reglamento 741 (2003-05-12) |
