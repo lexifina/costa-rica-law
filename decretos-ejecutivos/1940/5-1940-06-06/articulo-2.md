@@ -1,2 +1,0 @@
-Artículo 2°.- Quedan exentos de pagar la diferencia de más, entre la primitiva tarifa y la reforma que por este decreto se emite, el cual entrará en vigencia el primero de julio próximo, quienes a la fecha de publicación del mismo hubieren cancelado su derecho de arriendo hasta el cuarto trimestre del año en curso, inclusive.
-Dado en la Casa Presidencial.- San José, a los seis días del mes de junio de mil novecientos cuarenta.
