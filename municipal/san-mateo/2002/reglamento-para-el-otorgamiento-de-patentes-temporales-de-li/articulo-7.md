@@ -1,0 +1,1 @@
+Artículo 7º—E1 adjudicatario de una Patente Temporal de Licores deberá cancelar en la Tesorería Municipal, antes del inicio de la actividad, la suma que el Alcalde Municipal establezca según sea el caso por concepto de recolección de basura producto de la operación del local y la cantidad que se haya estipulado por concepto de gastos administrativos.

@@ -1,0 +1,1 @@
+Artículo 6º—Los solicitantes, de previo a iniciar la explotación de la patente, deberán obligatoriamente contar con el Permiso Sanitario de Funcionamiento del Centro de Salud que permita la operación de la patente, quedando automáticamente anulada cualquier patente que no llene este requisito.

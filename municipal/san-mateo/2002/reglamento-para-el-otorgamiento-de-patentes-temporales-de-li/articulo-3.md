@@ -1,0 +1,1 @@
+Artículo 3º—En caso de las Asociaciones de Desarrollo Comunal, Asociaciones de Vivienda, etc; deberán contar con cédula jurídica y adjuntar fotocopia. En caso de Comités Pro-Mejoras, Comités de Vivienda, deben estar debidamente adscritos, a una Asociación de Desarrollo.

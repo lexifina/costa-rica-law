@@ -1,0 +1,1 @@
+Artículo 10.—Se deben instalar recipientes para depositar los desechos sólidos en el área donde el público recorre las instalaciones, los que estarán distribuidos por todo el sitio de la feria, turno o similar, también tratar de que la venta de cerveza se sirva de una vez en vaso desechable, esto para prevenier cualquier accidente, en caso que se presente algún desorden público.
