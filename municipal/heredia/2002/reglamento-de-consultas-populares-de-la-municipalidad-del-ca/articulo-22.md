@@ -1,0 +1,1 @@
+Artículo 22.—Requisito de la destitución. Para destituir al Alcalde Municipal se requiere dos tercios del total de votos emitidos en el plebiscito y que esos dos tercios no sea inferior al diez por ciento del total de electores inscritos en el cantón. De igual forma se procederá en el caso de la destitución de suplentes contemplado en el artículo 19 de este reglamento.

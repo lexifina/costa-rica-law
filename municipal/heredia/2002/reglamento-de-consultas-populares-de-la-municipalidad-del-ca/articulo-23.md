@@ -1,0 +1,1 @@
+Artículo 23.—Reposición del Alcalde propietario. Si el resultado de la consulta fuere la destitución del Alcalde, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual repondrá al Alcalde por el resto del período según el artículo 14 del Código Municipal.
