@@ -1,0 +1,1 @@
+Artículo 2º—Resultados de consultorías a disposición de los productores. Los resultados que se generen como producto de cada consultoría, referente a estudios, investigaciones, criterios técnicos o a cualquier documento de interés, gratuitamente, deberán ponerse a la disposición de todos los productores, por los medios idóneos de información y divulgación.
