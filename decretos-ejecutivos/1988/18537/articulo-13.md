@@ -1,4 +1,4 @@
-Artículo 13.- El velatorio del cadáver podrá efectuarse no sólo en
+ARTICULO 13.- El velatorio del cadáver podrá efectuarse no sólo en
 funeraria debidamente establecidas, sino también en recintos públicos o
 privados, iglesias, capillas, salones comunales o parroquiales, viviendas
 y cualquier otro recinto cerrado que elijan los familiares o allegados al

@@ -1,4 +1,4 @@
-Artículo 9º.- Las empresas dedicadas al servicio de funerarias y los
+ARTICULO 9º.- Las empresas dedicadas al servicio de funerarias y los
 empleados, socios, o propietarios de establecimientos, serán considerados
 como expertos en razón de la materia y estarán obligados a guardar en
 todo momento las normas de ética, urbanidad, buenas maneras y costumbres

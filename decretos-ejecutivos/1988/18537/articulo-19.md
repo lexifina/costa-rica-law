@@ -1,4 +1,4 @@
-Artículo 19.- Las preservación del cadáver por medios químicos se
+ARTICULO 19.- Las preservación del cadáver por medios químicos se
 considerará una actividad colateral de las funerarias y deberá ser
 realizada y certificada por un médico especialista en anatomía
 patológica, patología forense o medicina legal y aportarse ante el

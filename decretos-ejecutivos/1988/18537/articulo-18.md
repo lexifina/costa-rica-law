@@ -1,3 +1,2 @@
-Artículo 18.- Queda prohibida la instalación de funerarias a 100
-metros de las entradas y salidas de control hospitalarios públicos y
-privados para el internamiento de pacientes.
+ARTICULO 18.- ANULADO por Resolución de la Sala Constitucional No.
+6799-99 de las 18:51 horas del 1° de setiembre de 1999.

@@ -1,4 +1,4 @@
-Artículo 7º.- Todas las funerarias se considerarán empresas privadas
+ARTICULO 7º.- Todas las funerarias se considerarán empresas privadas
 de interés público y estarán obligadas a brindar el servicio en forma
 ininterrumpida, oportuna y eficiente bajo estrictas normas técnicas y
 administrativas de funcionamiento, de modo que garantice la higiene,

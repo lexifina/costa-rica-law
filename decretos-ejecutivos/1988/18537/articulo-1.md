@@ -20,8 +20,8 @@ Ministerio de Salud.
 Por tanto,
 DECRETAN:
 El siguiente
-Reglamento de Funerarias
-Artículo 1º.- Para los efectos del presente reglamento estiéndase
+REGLAMENTO DE FUNERARIAS
+ARTICULO 1º.- Para los efectos del presente reglamento estiéndase
 por:
 Acondicionar: Preparación e instalación debida del cadáver.
 Cadáver: Cuerpo de una persona que ha perdido la vida.
@@ -32,9 +32,10 @@ Custodia: Guarda, vigilancia, protección y depósito temporal de un
 cadáver.
 Ministerio: Ministerio de Salud.
 Permiso Sanitario de Funcionamiento: Permiso otorgado por la
-autoridad de salud, a las instalaciones de una funeraria, por reunir los
-requisitos mínimos establecidos para ese tipo de establecimiento.
+autoridad de salud, a las instalaciones de una funeraria, por
+reunir los requisitos mínimos establecidos para ese tipo de
+establecimiento.
 Velatorio: Acompañamiento familiar y afectivo siempre y en ocasiones
-de trascendencia pública, tras el fallecimiento, en el que fue el
-domicilio del difunto o en algún lugar de significación dentro de la
-personalidad del fallecido.
+de trascendencia pública, tras el fallecimiento, en el que fue
+el domicilio del difunto o en algún lugar de significación
+dentro de la personalidad del fallecido.

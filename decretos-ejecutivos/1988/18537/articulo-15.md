@@ -1,4 +1,4 @@
-Artículo 15.- Quedarán exceptuadas de la responsabilidad de la que
+ARTICULO 15.- Quedarán exceptuadas de la responsabilidad de la que
 habla el artículo anterior, cuando el velatorio del cadáver se haya
 efectuado fuera de sus instalaciones y no medie otra funeraria, siendo
 responsables en este caso los parientes del difunto, si el velatorio se

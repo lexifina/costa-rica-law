@@ -1,4 +1,4 @@
-Artículo 27.- Las funerarias podrán ofrecer servicios de soda y
+ARTICULO 27.- Las funerarias podrán ofrecer servicios de soda y
 cafetería, donde pondrán a disposición del público alimentos ya
 preparados bajo estrictas normas de higiene, para lo cual deberán de
 ajustarse a las disposiciones administrativas y reglamentarias vigentes.

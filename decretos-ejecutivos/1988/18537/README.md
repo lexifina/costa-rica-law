@@ -13,3 +13,4 @@ Reglamento de Funerarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-28 | la propia norma |
+| 2 | 1988-10-28 | Decreto Ejecutivo 18840 (1989-02-22) |

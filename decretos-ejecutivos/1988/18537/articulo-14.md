@@ -1,4 +1,4 @@
-Artículo 14.- Las funerarias que cuenten con capilla fúnebre para el
+ARTICULO 14.- Las funerarias que cuenten con capilla fúnebre para el
 velatorio del cuerpo, serán consideradas como depositarias temporales y
 las responsables directas del manejo técnico y custodia de todos aquellos
 cadáveres que les sean confiados y que ingresen a dichos establecimientos

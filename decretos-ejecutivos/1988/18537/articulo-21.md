@@ -1,4 +1,4 @@
-Artículo 21.- El embalsamiento de cadáveres sólo podrá realizarse en
+ARTICULO 21.- El embalsamiento de cadáveres sólo podrá realizarse en
 aquellas salas acondicionadas para la práctica de autopsia y únicamente
 las funerarias que cuenten con las instalaciones adecuadas, el equipo
 necesario, el permiso sanitario de funcionamiento y un médico

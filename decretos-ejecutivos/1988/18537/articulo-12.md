@@ -1,4 +1,4 @@
-Artículo 12.- Las funerarias estarán obligadas a velar porque ningún
+ARTICULO 12.- Las funerarias estarán obligadas a velar porque ningún
 cuerpo de permanencia insepulto por más de treinta y seis (36) horas
 contadas a partir del deceso y exigir el correspondiente certificado de
 defunción extendido en las fórmulas oficiales, firmado por un médico

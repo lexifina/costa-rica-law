@@ -1,4 +1,4 @@
-Artículo 3º.- Las funerarias estarán obligadas a recoger el cadáver
+ARTICULO 3º.- Las funerarias estarán obligadas a recoger el cadáver
 desde el lugar donde se encuentre, acondicionarlos debidamente dentro de
 la caja, disponer adecuadamente el velatorio, realizar los trámites
 necesarios para llevar los servicios fúnebres, transportar el féretro y

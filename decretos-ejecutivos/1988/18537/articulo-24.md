@@ -1,4 +1,4 @@
-Artículo 24.- Las funerarias que no cuenten con las instalaciones
+ARTICULO 24.- Las funerarias que no cuenten con las instalaciones
 destinadas para salas de autopsia, podrá contratar los servicios
 profesionales de médicos especialistas en anatomía patológica, patología
 forense o medicina legal, para las prácticas a que se refieren los

@@ -1,3 +1,3 @@
-Artículo 30.- Para los efectos del presente Reglamento quedan
+ARTICULO 30.- Para los efectos del presente Reglamento quedan
 incorporadas otras medidas especiales contempladas en la Ley General de
 Salud.
