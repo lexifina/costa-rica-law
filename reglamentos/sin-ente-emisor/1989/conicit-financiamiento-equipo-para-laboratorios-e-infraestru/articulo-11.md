@@ -1,0 +1,1 @@
+Artículo 11°.—Cuando se trate de compra directa de bienes financiables, los laboratorios realizarán los trámites previos a la misma y remitirán tres cotizaciones a nombre del CONICIT, quien analizará y determinará su aprobación. Si corresponde, el pago se hará en forma directa al proveedor.

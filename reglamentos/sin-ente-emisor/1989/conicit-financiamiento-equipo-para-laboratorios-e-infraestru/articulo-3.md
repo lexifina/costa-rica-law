@@ -1,0 +1,1 @@
+Artículo 3°---Compete a la Secretaría Ejecutiva o al Consejo Director del CONICIT aprobar o desaprobar la adjudicación de la compra de equipo y mobiliario, con base en los comentarios presentados por la Comisión de Licitación. La Secretaría Ejecutiva podrá aprobar financiamientos de hasta dos mil dólares o su equivalente en colones al tipo de cambio oficial.
