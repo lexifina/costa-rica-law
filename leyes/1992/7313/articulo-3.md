@@ -1,0 +1,2 @@
+ARTICULO 3.- El Ministerio de Hacienda girará, mensualmente, el monto correspondiente a cada una de las municipalidades de los cantones en que se ha producido la fruta.
+Esas municipalidades no podrán destinar los ingresos percibidos a servicios personales. En el caso contrario, el Ministerio de Hacienda, previa resolución de la Contraloría General de la República, retendrá los recursos hasta que el ente Contralor le comunique que la respectiva municipalidad ha realizado las modificaciones presupuestarias pertinentes.
