@@ -1,1 +1,0 @@
-Artículo 13° ─ En todo aquello que no se oponga a lo dispuesto en la presente ley, serán aplicables a las Haciendas Especiales de los servicios públicos de la Ciudad de San José, las prescripciones de la Ley de Hacienda Municipal y del Reglamento de Contabilidad.

@@ -1,1 +1,0 @@
-Artículo 27° ─ Se hacen extensivas a los miembros de las Comisiones, las disposiciones del artículo 10 de la Ley de 9 de noviembre de 1909, en cuanto a los Regidores, y para el efecto, se equiparan a contratos los empleos, comisiones y funciones que dependan de las comisiones referidas, entendiéndose que para este único caso las diversas Comisiones forman una sola Corporación.
