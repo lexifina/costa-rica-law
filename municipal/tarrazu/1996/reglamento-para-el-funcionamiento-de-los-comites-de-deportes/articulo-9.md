@@ -1,0 +1,1 @@
+Artículo 9°-El Comité Cantonal coordinará con la Municipalidad todo lo concerniente a sus inversiones y obras en el Cantón. Los comités distritales o comunales lo harán también, a través del Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 40.-En concordancia con la ley N° 6890 y con los nombramientos que se han efectuado anteriormente, los miembros actuales de los diferentes comités regirán hasta el treinta de noviembre de mil novecientos noventa y siete.

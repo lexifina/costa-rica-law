@@ -1,0 +1,1 @@
+Artículo 39.-En caso de que no se presenten las temas o designados a que se refiere el artículo 10 de este Reglamento, el Concejo prevendrá por escrito a los omisos. Si dentro de los treinta días siguientes no se procediera a tal designación, la Municipalidad nombrará a un vecino del cantón que cumpla los requisitos fijados por la Ley, quien cesará cuando se nombre al titular.

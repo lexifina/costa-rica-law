@@ -1,0 +1,1 @@
+Artículo 23.-La hora y día de sesiones será acordada por su junta directiva y comunicada por escrito al Comité Cantonal. Deberán efectuar un mínimo de dos sesiones ordinarias por mes y extraordinarias las que fueren necesarias.

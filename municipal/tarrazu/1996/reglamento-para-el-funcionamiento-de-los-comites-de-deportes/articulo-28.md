@@ -1,0 +1,1 @@
+Artículo 28.-La destitución obligada de uno o más miembros, o de la totalidad del Comité Comunal, solo procederá por causa justificada y el acuerdo deberá contar con la aprobación de las dos terceras partes del Comité Cantonal.

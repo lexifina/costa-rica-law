@@ -1,0 +1,1 @@
+Artículo 21.-La destitución obligada de uno o más miembros, o de la totaJidad del Comité Distrital, sólo procederá por causa justificada y el acuerdo deberá contar con la aprobación de las dos terceras partes del Comité Cantonal.

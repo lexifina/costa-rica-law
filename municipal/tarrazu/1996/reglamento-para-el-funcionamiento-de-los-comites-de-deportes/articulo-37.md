@@ -1,0 +1,1 @@
+Artículo 37.-La Municipalidad podrá girar mensualmente la subvención anual correspondiente, según los programas del Comité Cantonal y contra la presentación de facturas o planillas al Ejecutivo Municipal.

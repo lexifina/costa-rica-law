@@ -1,0 +1,1 @@
+Artículo 8°-El Comité Cantonal podrá realizar en el Cantón, los planes nacionales que para el deporte y la recreación dicte la DEFYD, para lo cual le brindará a dicha dependencia toda la colaboración posible.

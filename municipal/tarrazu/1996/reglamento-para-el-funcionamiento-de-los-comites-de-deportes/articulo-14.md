@@ -1,0 +1,1 @@
+Artículo 14.-La destitución obligada de uno o más miembros, o de la to~lidad del Comité Cantonal. sólo procederá por causa justificada y el acuerdo deberá contar con la aprobación de las dos terceras partes del Concejo.

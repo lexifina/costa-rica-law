@@ -1,0 +1,1 @@
+Artículo 19.-EI período para el que serán nombrados los miembros del Comité Distrital será de dos años, contados a partir de la fecha de su instalación, dato que deberá indicarse en el acuerdo de nombramiento, y podrán ser reelectos, por períodos similares, indefinidamente.

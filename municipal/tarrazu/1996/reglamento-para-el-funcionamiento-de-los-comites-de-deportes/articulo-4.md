@@ -1,0 +1,1 @@
+Artículo 4°-El Comité Cantonal, en coordinación con la DEFYD y con los comités distritales y comunales, tendrá como finalidad organizar, dirigir, promover y estimular los deportes y la recreación en todos sus aspectos dentro del Cantón.

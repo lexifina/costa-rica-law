@@ -1,0 +1,1 @@
+Artículo 5°-El Comité Cantonal tendrá personería jurídica únicamente para el cumplimiento de los fines que la Ley y este Reglamento le otorguen. Los comités distritales y comunales dependerán jurídicamente de la personería del Comité Cantonal.

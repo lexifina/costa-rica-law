@@ -1,0 +1,1 @@
+Artículo 7°-El Comité Cantonal, Distrital o Comunal en su caso, no podrá cambiarle el destino de uso a ningún campo deportivo o recreativo, de propiedad municipal, sin la debida autorización del Concejo.

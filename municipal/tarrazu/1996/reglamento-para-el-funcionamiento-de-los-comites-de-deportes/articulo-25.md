@@ -1,0 +1,1 @@
+Artículo 25.-Los miembros de los comités comunales serán de nombramiento del Comité Cantonal, escogidos de las lemas que proponga la comunidad correspondiente. La tema podrá ser propuesta, conjuntamente, por el Comité Distrital correspondiente y la Asociación de Desarrollo cuya jurisdicción abarque la población central de la comunidad respectiva.

@@ -1,0 +1,1 @@
+Artículo 16.-La hora y día de sesiones será acordada por su junta directiva y comunicada por escrito a la Municipalidad. Deberán efectuar un mínimo de cuatro sesiones ordinarias por mes y extraordinarias las que fueren necesarias.

@@ -1,0 +1,1 @@
+Artículo 30.-La hora y día de sesiones será acordada por su junta directiva y comunicada por escrito al Comité Cantonal. Deberán efectuar como mínimo de una sesión ordinaria por mes y extraordinarias las que fueren necesarias.

@@ -1,0 +1,1 @@
+Artículo 3°-Las actividades deportivas y recreativas del Cantón de Tarrazú estarán a cargo del Comité Cantonal y, por delegación de éste de los Comités Distritales y Comunales el primero estará adscrito directamente a la Municipalidad y los segundos y terceros al Comité Cantonal.
