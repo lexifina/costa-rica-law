@@ -16,9 +16,16 @@ Módulo de Producción: El conjunto de operaciones que se desarrolla para la ela
 Montaje: Proceso de unión de piezas o partes para conformar subconjuntos.
 Piezas o partes: Producto elaborado, no compuesto a su vez por otras partes o piezas.
 Porcentaje de merma: Proporción en que disminuyen los insumes respecto de su cantidad inicial, después de ser sometidos o utilizados en un proceso productivo.
-Reconstrucción: Volver a construir (rehacer) un bien.
+Producto intermedio: mercancías a las que se ha aplicado alguno de los procesos contemplados por el artículo 179 de la Ley General de Aduanas, que constituya un insumo para otra empresa acogida al régimen de perfeccionamiento activo.Reconstrucción: Volver a construir (rehacer) un bien.
+(Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)
 Reparación: Componer el menoscabo sufrido con la finalidad de restablecer su función.
+Reexportaciones directas: salida, una vez cumplidas las formalidades y obligaciones impuestas por un régimen aduanero, de mercancías anteriormente internadas por un beneficiario del régimen de perfeccionamiento activo, sin que hayan consumado su importación definitiva.
+(Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)
+Reexportaciones indirectas: salida, una vez cumplidas las formalidades y obligaciones impuestas por un régimen aduanero, de mercancías anteriormente internadas por un beneficiario del régimen de perfeccionamiento activo recurriendo a otro beneficiario del mismo régimen, sin que hayan consumado su importación definitiva.
+(Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)
 Residuo o desecho: Cantidad de mercancías remanentes del proceso productivo.
 Subconjunto: La reunión de partes o piezas resultante del armado de las mismas o que forman parte de un conjunto.
 Subproductos: Bienes que se obtienen en forma accesoria al proceso productivo principal.
 Tolerancia Residual: Tolerancia de merma, porcentaje máximo de merma admitido. Margen o diferencia que se admite en la cantidad y peso de un producto admitido en un módulo productivo con respecto a la cantidad y peso ingresado de materias primas.
+Vinculación económica: negocios jurídicos celebrados entre dos empresas acogidas al régimen de perfeccionamiento activo, que generen el traslado de mercancías importadas al amparo del mismo, las cuales han sido objeto de un proceso determinado, de conformidad con el artículo 179 de la Ley General de Aduanas, de forma tal que el producto intermedio resultante del mismo constituye un insumo para la empresa beneficiaria del régimen a la que se trasladan. PROCOMER verificará la existencia de vinculación económica entre las empresas acogidas a este régimen.
+(Así Adicionado por el artículo 1° del Decreto Ejecutivo 29286, del 31 de Enero de 2001)

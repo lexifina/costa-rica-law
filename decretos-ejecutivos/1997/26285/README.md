@@ -16,3 +16,4 @@ Reglamento del Régimen Devolutivo de Derechos
 | 1 | 1997-09-04 | la propia norma |
 | 2 | 1998-08-26 | Decreto Ejecutivo 27329 (1998-08-26) |
 | 3 | 2000-10-31 | Decreto Ejecutivo 29055 (2000-10-31) |
+| 4 | 2001-01-30 | Decreto Ejecutivo 29286 (2001-01-30) |
