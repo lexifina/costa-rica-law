@@ -1,0 +1,1 @@
+Artículo 6°.- La Secretaría de Hacienda y Comercio, a solicitud de la de Salubridad Pública y Protección Social, que al efecto suministrará todos los detalles necesarios para el otorgamiento, ordenará el traspaso de los bienes a que se refiere el artículo anterior.
