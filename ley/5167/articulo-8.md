@@ -1,0 +1,1 @@
+Artículo 8°-Las ganancias y pérdidas del Departamento de Fomento Nacional de Préstamos para Educación del Banco Angla Costarricense, se liquidarán por separado de las otras del Banco y las utilidades netas que obtenga se distribuirán conforme lo estipulado en el artículo precedente. Si la liquidación produjere pérdida, ésta será cargada a las reservas propias del Departamento.

@@ -1,0 +1,1 @@
+Artículo 10.-Se autoriza al Poder Ejecutivo para que por intermedio del Ministerio de Hacienda, negocie un empréstito con un Banco nacional o con una institución extranjera o internacional de financiamiento o, alternativamente, para emitir Bonos de Inversión Pública, a fin de financiar con endeudamiento a largo plazo la subvención señalada en el artículo 6°.

@@ -1,0 +1,1 @@
+Artículo 14.-Los préstamos serán reintegrados al Departamento una vez concluidos parcial o totalmente los estudios, en la forma de pago que se determine en el Reglamento de Préstamos y devengará los intereses que fije el Banco Central de Costa Rica.
