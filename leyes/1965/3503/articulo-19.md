@@ -2,9 +2,9 @@ Artículo 19.- Los propietarios de vehículos de servicio público para
 transporte de personas, están obligados a obtener del Instituto Nacional
 de Seguros una póliza por cada vehículo, que cubra su responsabilidad
 pecuniaria por lesión o muerte de terceros, excepto los trabajadores
-suyos, y por daños a la propiedad ajena, de acuerdo con los reglamentos de
-esta ley, los cuales deberán ser consultados de previo y en lo conducente,
-con el Instituto Nacional de Seguros.
+suyos, y por daños a la propiedad ajena, de acuerdo con los reglamentos
+de esta ley, los cuales deberán ser consultados de previo y en lo
+conducente, con el Instituto Nacional de Seguros.
 Las pólizas de responsabilidad pecuniaria contempladas en este
 artículo tendrán vigencia por un año, y su vencimiento coincidirá con la
 fecha en que haya de verificarse la revisión del vehículo correspondiente

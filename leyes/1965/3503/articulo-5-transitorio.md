@@ -1,1 +1,1 @@
-Texto de artículo no encontrado
+Transitorio V.- Los que al entrar en vigor esta ley estuvieren tramitando solicitud o traspaso de un derecho para la explotación del servicio de Transporte Remunerado de Personas, quedarán sujetos a la vigencia y condiciones establecidas en ello.

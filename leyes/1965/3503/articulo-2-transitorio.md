@@ -1,1 +1,1 @@
-Texto de artículo no encontrado
+Transitorio II.- Los empresarios que a la fecha de entrar en vigor esta ley, exploten el servicio de transporte de personas en vehículos sin itinerario fijo, sean éstos autobuses o automóviles de servicio público, cobrando el servicio por viaje o por tiempo, deberán, dentro del plazo de cuatro meses contados a partir de la fecha antes citada, solicitar el permiso de explotación correspondiente, el cual les será expedido si satisfacen los requisitos que señalen esta ley y sus reglamentos.

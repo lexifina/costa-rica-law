@@ -1,21 +1,23 @@
-CAPITULO X
+CAPITULO X *
+* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este capítulo se encientra
+derogado tácitamente por los artículo 3, 5, 6, 7 y 12 inciso c) de la Ley 7969 de 22 de diciembre de 1999.
 Comisión Técnica de Transportes
 Artículo 22.- Para conocer, tramitar y resolver en primera instancia
-los asuntos referentes a las concesiones de derechos de línea, habrá una
-Comisión Técnica de Transportes, integrada:
-a) Por el Director General de Transporte Automotor, quien la presidirá;
-b) Por un funcionario de la Oficina de Planificación; y
-c) Por el Procurador Administrativo de la República.
-Esta Comisión conocerá y resolverá los asuntos de su competencia de
-conformidad con esta ley y sus reglamentos, previo estudio e informe de la
-Dirección General de Transporte Automotor; gozará de un plazo hasta de
-quince días para estudiar y adjudicar las licitaciones a que se refiere el
-artículo 6º de esta ley y deberá resolver los otros asuntos sometidos a su
-conocimiento en un plazo máximo de cinco días hábiles. Contra las
-resoluciones que toma la Comisión cabrá recurso de apelación para ante el
-Ministro de Transportes, y esa alzada se interpondrá ante el organismo a
-que dentro de los cinco días siguientes al de la notificación personal al
-interesado o al de la publicación en el Diario Oficial de la resolución
-recurrida. En todo caso, la apelación se sustanciará en papel sellado de
-un colón y al escrito respectivo se acompañarán tres pliegos del mismo
-valor, y se rechazará de plano la apelación que no llenare este requisito.
+los asuntos referentes a las concesiones y permisos de servicio público
+el Poder Ejecutivo designará una Comisión Técnica de Transportes
+integrada en la forma siguiente:
+a) El Director General de Tránsito y Transportes, quien la
+presidirá;
+b) El Director de Inspección de Tránsito;
+c) Un abogado del Estado con experiencia en derecho administrativo;
+d) Un representante de la Dirección de Planificación del Ministerio
+de Obras Públicas y Transportes; y
+e) Un representante del Ministerio de Economía, Industria y
+Comercio.
+( Así reformado por el artículo 1º de la ley No. 5523 de 7 de mayo
+de 1974 ).
+( NOTA: El presente artículo se encuentra tácitamente derogado por
+los Nº 24 a 30 de la Ley de Administración Vial Nº 6324 de 24 de mayo de
+1979 y sus reformas, los cuales indican la forma de integración de la
+Comisión Técnica, sus funciones y recursos administrativos contra sus
+resoluciones y acuerdos).
