@@ -1,0 +1,1 @@
+Artículo 20.—Del plazo de actualización del Registro de Afiliados. Cada Operadora tendrá un plazo máximo de 5 días naturales contado a partir del último día de cada mes para actualizar toda la información del Archivo de Afiliados, con base en lo establecido en el Artículo 13 de esta Directriz.

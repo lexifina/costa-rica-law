@@ -1,3 +1,3 @@
-Artículo l8.—De la documentación
-La documentación que debe mantener dicho expediente individual debe organizarse en forma cronológica, ser fácilmente accesible y mantenerse permanentemente ordenada y actualizada con los datos más relevantes y recientes de cada afiliado, considerando para ello lo señalado en los artículos 7°, 8°, 10 ,13 y 14 de esta Directriz.
-(Así reformado por la sesión N° 13-96 del once de diciembre de mil novecientos noventa y seis)
+CAPITULO IV
+Del registro de afiliados
+Artículo 18.—Archivo de Afiliados. Las Operadoras deberán crear y mantener actualizado un Archivo Electrónico de Afiliados, el cual debe ser accesible mediante el número de cédula de cada Afiliado.

@@ -1,4 +1,1 @@
-CAPITULO V
-Del expediente individual
-Artículo 17.—Del expediente individual
-La Operadora deberá mantener para cada afiliado un expediente individual, el cual debe estar permanentemente actualizado con todos los antecedentes y documentos relevantes que se vayan produciendo. Dicho expediente será complementario al Archivo de Afiliados y podrá mantenerse en medios electrónicos informáticos o mediante archivo físico de los documentos que lo conformen.
+Artículo 17.—Inicio de una nueva relación laboral. Cuando un Afiliado a una Operadora se incorpore a un nuevo trabajo, luego de terminada su relación laboral con el antiguo empleador, el nuevo empleador deberá comunicarlo así a la Operadora.

@@ -1,7 +1,5 @@
-CAPITULO III
-De los empleadores
-Artículo 10.—De la información de los empleadores
-Las Operadoras deberán obtener y mantener actualizada la siguiente información de los empleadores de sus afiliados:
-a) Nombre y calidades, y en el caso de las personas jurídicas su razón social y personería jurídica.
-b) Domicilio exacto, apartado postal, número telefónico y número de fax.
-c) Nombre y demás calidades del Representante Legal.
+Artículo 10.—Casos de excepción en el plazo por montos acumulados. Los Afiliados podrán solicitar un retiro anticipado, incluso antes de cumplir con los cinco anos establecidos en el Artículo 24 de la Ley 7523, o el número mínimo de 60 aportaciones mensuales estipulado en el Artículo 49 de su Reglamento, siempre y cuando:
+1. El monto acumulado se destine a la compra de una pensión de acuerdo con lo estipulado en la Ley 7523 y su Reglamento.
+2. El monto acumulado le permita obtener mensualmente una pensión cuyo valor sea igual o superior al de la pensión máxima que le otorgaría el régimen al que pertenece.
+3. El monto acumulado debe alcanzar para hacer los retiros mensuales citados en el inciso anterior, durante el plazo que existe entre la fecha en que se hace el retiro anticipado y el momento en que se adquiere el derecho a pensionarse en cualquiera de los regímenes estatales de pensiones existentes.
+Los cálculos se harán a una tasa de interés real positiva del tres por ciento (3%) anual.
