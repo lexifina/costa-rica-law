@@ -15,3 +15,4 @@ Reglamento Sobre Granjas Porcinas
 | --- | --- | --- |
 | 1 | 1994-01-27 | la propia norma |
 | 2 | 1994-01-27 | Decreto Ejecutivo 22899 (1994-02-07) |
+| 3 | 1996-09-30 | Decreto Ejecutivo 25558 (1996-09-30) |
