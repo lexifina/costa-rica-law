@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio de la Unidad Ejecutora del Ministerio de Planif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-11-20 | la propia norma |
+| 2 | 1993-08-12 | Decreto Ejecutivo 22497 (1993-08-12) |
