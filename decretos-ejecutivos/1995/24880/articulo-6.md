@@ -1,0 +1,1 @@
+Artículo 6° — Las unidades sustantivas, la asesora y la de apoyo se conformarán en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de sus recursos, de conformidad con las necesidades.

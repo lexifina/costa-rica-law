@@ -1,0 +1,1 @@
+Artículo 5° — Cada unidad sustantiva así como la unidad asesora y la de apoyo, contarán con un encargado y en aquellos casos que se determine la necesidad, se podrá designar a un colaborador inmediato a éste en cuyo caso ambos serán responsables por los resultados de la gestión desarrollada en cada unidad.
