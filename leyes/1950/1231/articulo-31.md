@@ -1,1 +1,0 @@
-Artículo 31.—La Directiva del Colegio integrará cada año, en una de sus primeras sesiones, una lista de doce miembros y designará de entre ellos, en cada caso, tres miembros para integrar el Comité encargado de la consulta.
