@@ -1,0 +1,2 @@
+Artículo 37.—Del deducible. El conductor que fuese declarado culpable por los tribunales de justicia por un accidente de tránsito, deberá cancelar el monto correspondiente al deducible de la póliza de seguros del INS o las indemnizaciones que deba realizar el Instituto a terceras personas afectadas, cuando el costo del daño sea menor al del deducible.
+Asimismo, deberá asumir el pago del parte si lo hubiera y cancelar los timbres correspondientes.

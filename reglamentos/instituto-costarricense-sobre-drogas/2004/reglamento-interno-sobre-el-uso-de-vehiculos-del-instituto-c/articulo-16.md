@@ -1,0 +1,1 @@
+Artículo 16.—Inventario de vehículos. Para efecto de verificar la existencia, localización, estado físico y mecánico, así como llevar el control de toda la flota de vehículos del ICD, la Proveeduría llevará a cabo inventarios físicos periódicos de esos activos. Los resultados de estos inventarios serán comparados con los registros que lleve el encargado de Servicios Generales.

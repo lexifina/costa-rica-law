@@ -1,0 +1,1 @@
+Artículo 38.—Prohibición de arreglo extrajudicial. De acuerdo con el artículo 237 de la Ley de Tránsito por Vías Públicas Terrestres, se prohíbe efectuar arreglos extrajudiciales en caso de accidentes con vehículos de la Institución.

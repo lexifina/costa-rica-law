@@ -1,0 +1,1 @@
+Artículo 15.—Del expediente de los conductores. Servicios Generales deberá llevar un expediente para cada conductor, en el cual se anotará el nombre y apellidos, el número, la fotocopia y la fecha de vencimiento de la licencia, así como cualquier otra información relacionada con accidentes de tránsito en vehículos del Instituto.

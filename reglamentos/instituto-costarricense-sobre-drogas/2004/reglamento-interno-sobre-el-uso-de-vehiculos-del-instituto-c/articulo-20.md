@@ -1,0 +1,1 @@
+Artículo 20.—De la circulación de vehículos fuera del país. Ningún vehículo podrá circular fuera del territorio nacional sin la autorización de la Dirección General y para situaciones o circunstancias previamente justificadas. Servicios Generales deberá establecer y llevar mediante formularios numerados, un registro de las autorizaciones.
