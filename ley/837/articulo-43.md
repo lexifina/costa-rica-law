@@ -1,0 +1,1 @@
+Artículo 43.-El contribuyente que presente una declaración falsa o incompleta, pagará, además del impuesto que le corresponda y de los intereses propios de la mora, una multa igual al doble del impuesto que haya dejado o habría dejado de pagar a consecuencia de su declaración viciosa. En ningún caso esta multa será inferior a cien colones.

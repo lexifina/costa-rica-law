@@ -1,0 +1,1 @@
+Articulo 18. -Las declaraciones serán presentadas en formularios que confeccionará y pondrá a disposición de los contribuyentes la Oficina de la Tributación, pero la falta de tales formularios, no liberará de la obligación de declarar, ni eximirá de responsabilidades a quien no presente su declaración oportunamente.
