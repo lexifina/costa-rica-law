@@ -1,0 +1,9 @@
+Artículo 36.- Los contratos de arrendamiento podrán ser aceptados
+por la Dirección General de Aviación Civil siempre que se hagan por un
+lapso no mayor a seis meses y sean producto de una situación emergente,
+anormal y transitoria que afecte al arrendador y cuya solución pueda
+producirse a corto plazo y que dicha empresa, en un período aceptable
+podrá de nuevo mantener el equipo de operaciones según lo estatuye el
+artículo 19 inciso, a) del Decreto Ejecutivo Nº 3326-T de 25 de octubre
+de 1973, que reglamenta el otorgamiento de los certificados de
+explotación.
