@@ -1,0 +1,1 @@
+Artículo 5º—Inscripción de las certificaciones. Como requisito para la inscripción de certificaciones de financiación cafetalera las firmas beneficiadoras deben indicar de previo y por una sola vez al ICAFE el nombre del acreedor a .n de verificar la fuente de recursos a utilizar por cada beneficio.

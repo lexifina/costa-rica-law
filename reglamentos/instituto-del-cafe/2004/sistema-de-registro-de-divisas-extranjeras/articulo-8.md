@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Verificación del uso de los recursos
+Artículo 8º—Verificación de recursos utilizados vía declaraciones registro divisas extranjeras. A efectos de verificar la utilización de los recursos anteriores vía declaraciones de registro divisas extranjeras, cada firma beneficiadora deberá presentar (marzo-junio-setiembre-diciembre- marzo) Certificación de Contador Público Autorizado (CPA), en la cual se indique la cantidad de recursos otorgados a los productores en cada una de las etapas, tanto en lo referente a café comprado como en lo referente a café propio.
+Dichas certificaciones deben ser presentadas dentro de los 15 días naturales posteriores a la conclusión del respectivo trimestre, no permitiéndose la inscripción de certificaciones de financiación cafetalera a aquellas firmas beneficiadoras que no hayan cumplido lo anterior.

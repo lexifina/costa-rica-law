@@ -1,0 +1,1 @@
+Artículo 10.—Comunicación. Posterior a la verificación indicada en artículo 9º, el ICAFE procederá a comunicar a aquellas firmas beneficiadoras que han presentado sobre-giro la exclusión de las declaraciones correspondientes.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+Procedimiento control
+Artículo 9º—Control uso y monto recursos: Con el objeto de determinar el uso y monto de recursos declarados, como requisito para el registro de las declaraciones de divisas extranjeras presentadas, dentro de los quince días hábiles siguientes a la recepción de la Certificación de C.P.A. el ICAFE procederá a cotejar la información correspondiente. En caso de que monto de divisas declaradas o registradas por firma beneficiadora sean superiores a datos certificados por C.P.A. la diferencia de divisas resultante entre lo registrado y lo certificado serían excluidas del registro.
