@@ -1,0 +1,2 @@
+TRANSITORIO PRIMERO.
+Considerando que para el logro de una eficiente organización acorde con los objetivos legales y reglamentarios propuestos es necesario un cambio estructural, el Despacho Ministerial ordenará los movimientos de personas que correspondan. De conformidad con la legislación vigente en el régimen de empleo público, no se concretará ninguna supresión de puestos hasta tanto no se haya cumplido con los procedimientos constitucionales y legales existentes.
