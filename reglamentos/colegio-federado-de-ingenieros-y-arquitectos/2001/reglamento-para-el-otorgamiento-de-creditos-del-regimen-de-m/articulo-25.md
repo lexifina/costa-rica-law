@@ -1,0 +1,8 @@
+XII
+Clasificación de deudores
+Artículo 25.—Para efectos de organización administrativa y control interno de pago, los deudores del Régimen serán clasificados de la siguiente manera:
+a. TIPO A Deudores de Riesgo Normal: Deudores que no presentaron problemas en el manejo de sus créditos o nuevos solicitantes. Entrarán en esta clasificación aquellos deudores cuyos pagos están al día o presentan un atraso de hasta 30 días.
+b. TIPO B Deudores con Problemas Transitorios: Son los que tuvieron atrasos constantes en su crédito e hicieron arreglos de pago y los cumplieron. A estos solicitantes se les pedirá al menos un fiador asalariado. En esta clasificación se encuentran aquellos deudores que estén o estuvieron en mora de 31 hasta 60 días. Se incluirán dentro de este grupo a los que por una única vez se les haya aplicado una gestión de cobro extrajudicial.
+c. TIPO C Deudores con Pérdida Esperada: Deudores con serios problemas de pago y que se les ha aplicado repetidamente gestiones de cobro extrajudicial. Únicamente podrán optar por un crédito ofreciendo garantía hipotecaria.
+d. TIPO D Deudores de Dudosa Recuperación: Son los deudores de cualquier entidad nacional o internacional, que llevados a cobro judicial hayan sido ejecutados mediante sentencia firme a pagar las sumas adeudadas. En estos casos, los interesados tendrán oportunidad de optar por un nuevo crédito, únicamente cuando haya transcurrido un plazo de 5 años desde la fecha en que se encuentre debidamente acreditada la cancelación de las deudas, quedando sujetos a lo establecido para deudores TIPO C.
+San José, 17 de enero del 2001.

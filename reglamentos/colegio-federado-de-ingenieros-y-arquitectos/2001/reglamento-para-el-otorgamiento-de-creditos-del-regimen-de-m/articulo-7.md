@@ -1,0 +1,1 @@
+Artículo 7°—La Gerencia emitirá las disposiciones complementarias que, junto con el Reglamento de Créditos, regirán los aspectos operativos referentes a la recepción, estudio, aprobación y formalización de los créditos.

@@ -1,0 +1,1 @@
+Artículo 9°—Tendrá derecho a las diferentes líneas de crédito todo aquel miembro que se encuentre al día en las obligaciones adquiridas con el CFIA y que fehacientemente demuestre el cumplimiento de las normas establecidas en este Reglamento y el acatamiento de las regulaciones que sobre el asunto apruebe la Junta Administradora.

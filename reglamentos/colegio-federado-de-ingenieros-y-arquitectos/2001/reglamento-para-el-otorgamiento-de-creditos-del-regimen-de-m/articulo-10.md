@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de la Junta Directiva General y de la Junta Administradora podrán ser sujetos de crédito en las mismas condiciones que los demás miembros del CFIA, pero deberán abstenerse de participar como funcionarios en cualquier etapa de tramitación.

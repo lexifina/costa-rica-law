@@ -1,0 +1,1 @@
+Artículo 6°—Corresponderá a la Junta Administradora aprobar o "rechazar las solicitudes de préstamo previamente recomendadas por la Comisión de Crédito, para lo cual deberá seguir los lineamientos que establece este Reglamento.
