@@ -1,0 +1,3 @@
+Artículo 8°—El Banco renunciará en sus pólizas al derecho de exclusión, reparando las pérdidas cuyo riesgo hubiese asumido inmediatamente después de comprobadas, pero subrogándose en los mismos privilegios, derechos y acciones que tuviere la persona o entidad favorecida con el seguro, para recuperar el monto de la pérdida.
+En los casos en que la pérdida excediera del monto de la fianza, ese derecho de subrogación queda limitado a lo indispensable para que el Banco recupere el monto de la fianza, y la persona o entidad perjudicada conservará los derechos necesarios para perseguir y obtener la diferencia no cubierta por el seguro.
+San José, a los treinta días del mes de marzo de mil novecientos treinta y uno.

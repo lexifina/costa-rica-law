@@ -1,0 +1,1 @@
+Artículo 5°—El Estado y las demás corporaciones públicas aceptarán las fianzas que a su favor expida el Banco, en los casos en que se requiera fianza. Pero, pueden aceptar las otras clases de garantías que indiquen las leyes, excepto en el caso de funcionarios y de empleados públicos que manejen fondos del Estado, en que será obligatoria la garantía del seguro.

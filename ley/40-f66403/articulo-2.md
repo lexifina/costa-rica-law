@@ -1,0 +1,1 @@
+Artículo 2°—El contrato de seguro de fidelidad, tiene por principal objeto garantizar contra pérdida monetaria el manejo de fondos por funcionarios, empleados públicos y particulares, en favor del Estado, Municipios, Juntas o Dependencias del Estado y las obligaciones que deben caucionar los notarios y demás funcionarios públicos.
