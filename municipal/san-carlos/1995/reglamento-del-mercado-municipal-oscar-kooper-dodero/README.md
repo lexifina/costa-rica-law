@@ -14,3 +14,4 @@ Reglamento del Mercado Municipal Oscar Kooper Dodero.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-31 | la propia norma |
+| 2 | 2003-08-11 | Reglamento municipal 0 (2003-08-11) |
