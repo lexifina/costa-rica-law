@@ -1,0 +1,1 @@
+Artículo 41.-Autorizados las listas de votaciones para Presidente y Vice-Presidente del Estado, se remitirán selladas y cerradas a la Secretaria del Congreso de Diputados, expresando en la cubierta su contenido y departamento de su origen.

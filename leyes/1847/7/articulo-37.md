@@ -1,0 +1,1 @@
+Artículo 37.-Antes de procederse a la elección de Diputados y de sufragar por Presidente y Vice-presidente del Estado, el Presidente del Directorio hará la pregunta que prescribe el art. 20 de este decreto.

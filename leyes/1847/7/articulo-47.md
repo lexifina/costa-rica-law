@@ -1,0 +1,1 @@
+Artículo 47.-La instalación del Congreso de Diputados se verificará el día 1° de mayo de este mismo año a cuyo fin la Asamblea Constituyente observará lo que dispone el artículo 76 de la Constitución.

@@ -1,0 +1,1 @@
+Artículo 17.-Las juntas populares se reunir n anualmente el primer domingo del mes de diciembre a las diez del día en el lugar público que se designe para los actos electorales, y permanecer la votación hasta las seis de la tarde y solo podrá prorrogarse por otro día en el caso que no se haya concluido en el primero.

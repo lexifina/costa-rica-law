@@ -1,0 +1,1 @@
+Artículo 18.-Las juntas populares decidirán definitivamente, en los casos que les correspondan, las dudas que ocurran sobre incapacidad legal de los sufragantes de que se compongan, y los reclamos sobre fuerza, cohecho y soborno.

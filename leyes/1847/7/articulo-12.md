@@ -1,0 +1,1 @@
+Artículo 12.-En cualquiera tiempo la falta del Presidente se suplirá por el Secretario y los Escrutadores suplirán las de éste; mas cuando el Directorio quede reducido a solo dos individuos por imposibilidad perpetua de los restantes, la Autoridad política nombrará los que falten no hallándose reunida la junta.
