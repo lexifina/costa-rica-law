@@ -1,3 +1,6 @@
+N° 7975
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
 LEY DE INFORMACIÓN NO DIVULGADA
 ARTÍCULO 1.- Objetivos. Son objetivos de la presente ley:
 a) Proteger la información no divulgada relacionada con los secretos comerciales e industriales.
