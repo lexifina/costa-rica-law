@@ -1,5 +1,0 @@
-Artículo 75.- Cada año podrán ser renovados total o parcialmente
-los miembros de la Directiva a juicio de la misma escuela y de acuerdo
-con la asamblea de padres de familia, quienes también proveerán a
-llenar las plazas que en cualquier tiempo quedaren desiertas por
-defunción, renuncia o cambio de domicilio.

@@ -1,4 +1,0 @@
-Artículo 400.- El cargo de miembro de la Junta es honorífico e
-incompatible con el de Profesor de cualquier colegio oficial. Quien lo
-desempeñe, estará exento de servicio militar y de policía mientras
-dure en sus funciones, salvo el caso de guerra exterior.
