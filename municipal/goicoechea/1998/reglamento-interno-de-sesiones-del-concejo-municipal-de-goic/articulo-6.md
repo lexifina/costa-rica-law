@@ -1,0 +1,1 @@
+Artículo 6°—Las sesiones del Concejo Municipal serán públicas y se desarrollarán conforme al orden del día previamente elaborado, el cual solo podrá modificarse o alterarse mediante acuerdo aprobado por las dos terceras partes de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 4°—Las sesiones del Concejo deberán efectuarse en el local de la Municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratarse asuntos relativos a los intereses de los vecinos de la localidad. El quorum para las sesiones será la mitad más uno de los miembros del Concejo.
