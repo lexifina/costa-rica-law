@@ -1,1 +1,0 @@
-Artículo 16.- La suma bruta de dinero recaudado por cualquier concepto a favor del Erario Público, deberá ser depositada por el funcionario o persona que la reciba en el establecimiento designado por la ley, sin rebajas ni deducciones de ninguna naturaleza, diariamente.
