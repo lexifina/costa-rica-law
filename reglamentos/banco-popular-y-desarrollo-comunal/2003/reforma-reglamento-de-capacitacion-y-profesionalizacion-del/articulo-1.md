@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión ordinaria Nº 4142, celebrada el 28 de agosto del 2003, acordó por mayoría:
+1º—Aprobar la modificación propuesta por la Administración en el oficio GG-1096-2003 del 26 de agosto del 2003, suscrito por el Gerente General a.í., MAE Geovanni Garro Mora, respecto al artículo 25, inciso c), del Reglamento de Capacitación y Profesionalización del Banco Popular y de Desarrollo Comunal, el cual se leerá de la siguiente manera:
+"c) Para que un servidor tenga derecho a participar de una actividad de capacitación en el exterior con pago de salario, preferiblemente deberá estar ocupando un puesto en propiedad. Sin embargo, aquellos funcionarios que detentan la condición de interinos, podrán tener derecho a participar siempre y cuando exista interés institucional y al menos cuenten con seis meses de antigüedad. Cuando se trate de servidores no empleados del Banco, bastará con que estén debidamente investidos y en ejercicio de su puesto."
+San José, 9 de setiembre del 2003.—
