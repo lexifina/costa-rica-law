@@ -1,6 +1,6 @@
 # Reforma Ley Orgánica del Consejo Nacional Producción (C.N.P.)
 
-Ley N° 6050 del 1977-03-14. SINALEVI, ficha 3799: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3799&param2=145972&param3=1>.
+Ley N° 6050 del 1977-03-14. SINALEVI, ficha 3799: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3799&param2=145971&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 14 | 1988-12-27 | Ley 6700 | 1981-12-23 |
 | 9 de 14 | 1988-12-27 | Ley 6786 | 1982-08-09 |
 | 10 de 14 | 1988-12-27 | Ley 6963 | 1984-07-30 |
+| 11 de 14 | 1988-12-27 | Ley 6982 | 1984-12-19 |
