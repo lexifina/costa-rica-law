@@ -14,3 +14,4 @@ Reglamento de la Autopsia Hospitalaria y Médico Legal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-03-31 | la propia norma |
+| 2 | 1989-07-17 | Decreto Ejecutivo 19106 (1989-07-17) |
