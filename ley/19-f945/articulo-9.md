@@ -1,0 +1,1 @@
+Art 9° Interpuesto con éxito el recurso por uno de los procesados o su defensor, y no por otros, la nueva sentencia aprovechará a estos en lo que les fuere favorable, siempre que se encuentren en la misma situación que el recurrente y les fueren aplicables, los motivos que hayan servido para declarar la casación.

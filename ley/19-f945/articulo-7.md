@@ -1,0 +1,2 @@
+Articulo 7° En las causas en que haya intervenido el Tribunal de Jurados se dará, además, el recurso, cuando se haya incurrido en alguno de los vicios que producen, según el artículo 29 de la ley de 31 de octubre de 1892, nulidad del veredicto.
+Sin embargo, si se invocare el figurado en el inciso 5° de artículo 29 citado, es preciso que la omisión de la diligencia haya podido producir indefensión o impunidad.
