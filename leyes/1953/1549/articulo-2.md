@@ -1,1 +1,2 @@
-Artículo 2°—El Tribunal Supremo de Elecciones dispondrá lo conducente para la celebración del plebiscito ordenado en el artículo anterior.
+Artículo 2º.- Autorizase al Tribunal Supremo de Elecciones para que efectúe la convocatoria y disponga lo conducente para la celebración del plebiscito, verifique el escrutinio y haga la declaratoria sobre el resultado del mismo dentro de los quince días hábiles posteriores al pronunciamiento que hiciere sobre la elección de Regidores. Asimismo se faculta para que aplique las disposiciones legales vigentes del Código Electoral en lo que no estuviere previsto por esta ley.
+(Así reformado por el artículo 2 de la Ley N° 1604 del 15 de julio de 1953)
