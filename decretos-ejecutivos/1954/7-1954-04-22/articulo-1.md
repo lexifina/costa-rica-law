@@ -1,5 +1,7 @@
+(Derogado)
 N° 7
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
+DEROGADO por el artículo 5° del Decreto Ejecutivo N° 27053 de 05 de enero de 1998, publicado en La Gaceta N° 177 de 10 de setiembre de 1998.
 De conformidad con lo que dispone el articulo 1° de la ley No 1698 de 26 de noviembre de 1953 y por recomendación del Comité de Normas y Asistencia Técnica-Industrial.
 DECRETA:
 Articulo 1°—Aprobar la siguiente
