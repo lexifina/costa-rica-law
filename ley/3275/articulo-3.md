@@ -1,0 +1,1 @@
+Artículo 3º.- Se autoriza el cobro por concepto de legalización de los formularios en el monto que fije el respectivo reglamento. Las sumas que se deriven de ese cobro, se asignarán exclusivamente a las Juntas de Protección Social, en el mismo porcentaje que para ellas establece el artículo anterior.
