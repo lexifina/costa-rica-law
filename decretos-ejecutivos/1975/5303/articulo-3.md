@@ -1,0 +1,1 @@
+Artículo 3°- El Ministerio de Educación Pública y el Ministerio de Cultura Juventud y Deportes, organizarán actos especiales alusivos a la fecha, con el fin de celebrar con dignidad y patriotismo, tan especial acontecimiento de nuestra historia patria.

@@ -1,0 +1,1 @@
+Artículo 2°- Celébrase el aniversario como un día lectivo con celebración escolar, en que se resalten, con especiales relieves de excelsa devoción cívica, los fundamentos esenciales de nuestra democracia representativa y el significado de los valores que constituyen la esencia de la nacionalidad costarricense.
