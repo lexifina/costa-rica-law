@@ -1,0 +1,1 @@
+Art. 8 Las ventas que en virtud de este capítulo se establezcan, deberán situarse en los lugares en donde la policía pueda ejercer la debida vigilancia; y están comprendidas en las disposiciones contenidas en el artículo 95, sección 2, capítulo 10 del Reglamento de Hacienda.

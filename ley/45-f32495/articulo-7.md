@@ -1,0 +1,1 @@
+Art 7° Es prohibida la venta de los líquidos designados en el artículo 19 citado, ya sea en Boticas en cualesquiera otros establecimientos de farmacia, bien en fondas, en casas de hospedaje, o en otros puntos sin las formalidades prevenidas.

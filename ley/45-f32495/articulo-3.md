@@ -1,0 +1,1 @@
+Art. 3 No podrá librarse patente por más de un año, ni por menos de un trimestre. Tampoco podrá extenderse por vinos y cerveza, y cerveza, o por licores extranjeros solamente, a no ser que el que la solicite pague el impuesto que aquí se establece.
