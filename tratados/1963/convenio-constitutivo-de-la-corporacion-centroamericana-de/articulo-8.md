@@ -1,0 +1,1 @@
+Artículo 8°—La Corporación establecerá con los Estados y Organismos Internacionales, los enlaces necesarios para el desempeño de sus funciones y mantendrá las demás relaciones para el buen funcionamiento de sus servicios.

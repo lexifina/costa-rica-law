@@ -1,0 +1,1 @@
+Artículo 15.—La Corporación colaborará en todo momento con las autoridades competentes de las Partes Contratantes para facilitar la buena administración de la justicia, asegurar la observancia de los reglamentos de policía y evitar todo abuso a que pudieren dar lugar los privilegios, inmunidades, exenciones y facilidades previstas en el presente Convenio.

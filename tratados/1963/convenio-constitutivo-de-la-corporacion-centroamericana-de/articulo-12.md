@@ -1,0 +1,1 @@
+Artículo 12.—La Corporación comunicará a las autoridades nacionales competentes, las infracciones de las normas que regulan el tránsito aéreo, cometidas dentro de la jurisdicción que se les haya confiado.

@@ -1,0 +1,1 @@
+Artículo 13.—En el ejercicio de sus funciones, la Corporación respetará las leyes y reglamentos nacionales y los acuerdos internacionales relativos al acceso, sobrevuelo y seguridad de los territorios de las Partes Contratantes.

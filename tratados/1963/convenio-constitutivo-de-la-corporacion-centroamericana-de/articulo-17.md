@@ -1,0 +1,2 @@
+Artículo 17.—La Corporación, su patrimonio e ingresos, así como los actos, las operaciones y transacciones autorizados por el presente Convenio, estarán exentos de todo impuesto, derechos y demás contribuciones, en la medida que lo permitan las respectivas legislaciones.
+La Corporación estará igualmente exenta de toda obligación relativa a la percepción o al pago de todo impuesto o derecho. Estará exenta, además, de toda prohibición o restricción de importación y exportación de lo necesario para su funcionamiento.

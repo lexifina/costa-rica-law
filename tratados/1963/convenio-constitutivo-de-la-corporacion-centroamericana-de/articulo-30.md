@@ -1,0 +1,1 @@
+Artículo 30.—En caso de emergencia, los Gobiernos interesados se consultarán respecto a las medidas que hayan de tomarse, teniendo en cuenta las dificultades que presente la aplicación de todas o parte de las disposiciones del presente Convenio.

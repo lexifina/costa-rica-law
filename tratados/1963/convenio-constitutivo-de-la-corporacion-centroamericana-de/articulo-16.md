@@ -1,0 +1,1 @@
+Artículo 16.—Para la realización de sus funciones, la Corporación estará facultada para construir las instalaciones y edificios que requiera. Con objeto de reducir los gastos de inversión de capital y de administración, la Corporación hará uso, en la mayor medida posible, de los servicios e instalaciones públicos y privados existentes.

@@ -1,0 +1,2 @@
+Artículo 21.—Las Partes Contratantes darán al personal extranjero que contrate la Corporación, las facilidades de inmigración que se conceden a los técnicos extrajeros en misiones internacionales.
+Se acordarán facilidades para la admisión en franquicia de los efectos personales y del mobiliario de las personas empleadas por la Corporación, así como a sus esposas y a los miembros de sus familias que vivan a su cargo, cuando la Corporación los contrate, traslade o dé por terminado su contrato.

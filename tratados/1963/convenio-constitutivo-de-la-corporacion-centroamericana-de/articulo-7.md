@@ -1,0 +1,1 @@
+Artículo 7°—Las Partes Contratantes tomarán las medidas necesarias para que la Corporación pueda efectuar cuantas operaciones precise para la realización de sus funciones, inclusive la asignación de frecuencias radioeléctricas.

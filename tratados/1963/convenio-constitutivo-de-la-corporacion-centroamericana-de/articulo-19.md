@@ -1,0 +1,2 @@
+Artículo 19.—El personal de la Corporación se constituirá a base de trabajadores centroamericanos.
+En circunstancias especiales que el Consejo Directivo calificará, podrán emplearse personas de otras nacionalidades para prestar servicios técnicos, siempre que éstos, además, por los conocimientos especiales que se requieran, sean de difícil o imposible desempeño por centroamericanos, quedando obligadas aquéllas a capacitar personal de nacionalidad de las Partes Contratantes, en un plazo prudencial y bajo la vigilancia de las mismas.

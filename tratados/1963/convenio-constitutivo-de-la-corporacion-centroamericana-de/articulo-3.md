@@ -1,0 +1,1 @@
+Artículo 3° —La Corporación gozará de personalidad jurídica; podrá ejercer derechos, contraer obligaciones y ser representada judicial y extrajudicialmente, para llenar sus fines, tendrá el carácter de institución de utilidad pública.

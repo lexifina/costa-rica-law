@@ -1,0 +1,1 @@
+Artículo 10.—Para la realización de sus funciones de control de tránsito aéreo, la Corporación impartirá todas las instrucciones necesarias a los comandantes de las aeronaves, quienes estarán obligados a cumplirlas.

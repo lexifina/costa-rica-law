@@ -1,0 +1,2 @@
+Artículo 9°—Para la realización de las funciones previstas en el párrafo 1) del Artículo 29, la Corporación aplicará, en el control del tránsito aéreo, los reglamentos vigentes en los territorios de las Partes Contratantes y en todo el espacio aéreo donde los servicios de tránsito aéreo les hayan sido confiados.
+Si surge alguna dificultad en la aplicación de las disposiciones de este Artículo, la Corporación, de conformidad con el Artículo 29, párrafo 3), incisos a) e), propondrá a las Partes Contratantes las medidas que estime oportunas.

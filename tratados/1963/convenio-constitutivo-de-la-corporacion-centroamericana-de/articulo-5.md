@@ -1,0 +1,1 @@
+Artículo 5°—Desde el momento que inicie sus actividades, la Corporación deberá cubrirse respecto a los riesgos resultantes de la responsabilidad civil frente a terceros y de los daños sobrevenidos a las instalaciones necesarias para su funcionamiento, mediante la contratación, con una o varias compañías aprobadas por el Consejo Directivo de la Corporación, de seguros apropiados.

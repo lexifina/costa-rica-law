@@ -1,0 +1,1 @@
+Artículo 14.—Para que las Partes Contratantes puedan velar por la aplicación de las leyes y reglamentos nacionales y los acuerdos internacionales, la Corporación les suministrará la información que soliciten relativa a las aeronaves y toda aquella de la que tenga conocimiento en relación con el caso consultado, aunque no hubiese sido solicitada.

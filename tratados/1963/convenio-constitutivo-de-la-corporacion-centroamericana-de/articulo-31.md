@@ -1,0 +1,1 @@
+Artículo 31.—El presente Convenio, después de haberse firmado, se enviará a la Organización de Aviación Civil Internacional, la cual remitirá una copia certificada a cada uno de los Países Signatarios y a la Organización de Estados Centroamericanos.

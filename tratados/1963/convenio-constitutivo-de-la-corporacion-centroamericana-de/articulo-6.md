@@ -1,0 +1,1 @@
+Artículo 6°—Las Partes Contratantes concederán a la Corporación, respecto a las ‘ obras que efectúe y servicios que establezca en sus correspondientes territorios, las facilidades y privilegios necesarios para el desempeño de sus funciones, otorgados a organismos internacionales, autónomos y entidades oficiales.

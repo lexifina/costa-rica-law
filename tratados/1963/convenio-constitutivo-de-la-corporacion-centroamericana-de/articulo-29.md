@@ -1,0 +1,3 @@
+Artículo 29.—En caso de disolución, se considerará que la Corporación continúa existiendo hasta su liquidación total.
+Esta se llevará a cabo por liquidadores designados por el Consejo Directivo. Los liquidadores tendrán las facultades más amplias posibles para realizar el activo de la Corporación. Después de que se haya liquidado el pasivo, el saldo remanente se repartirá entre los Estados participantes en el Convenio, de conformidad con una decisión unánime del Consejo Directivo.
+Después de hecha la liquidación se llegará a un acuerdo con el Estado de la sede y con los Estados en los cuales estén enclavadas las instalaciones de la Corporación, respecto a la posible transferencia de todas o parte de las instalaciones para continuar proporcionando los servicios.
