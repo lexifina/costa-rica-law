@@ -1,3 +1,4 @@
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 24529 del 21 de julio de 1995, la República de Costa Rica ratificó el presente Convenio.)
 APROBACION DEL CONVENIO REGIONAL
 SOBRE CAMBIOS CLIMATICOS
 ARTICULO 1.- Aprobación
