@@ -1,4 +1,6 @@
+(Derogado)
 N° 13746-TSS
+(Este decreto ejecutivo fue derogado por el artículo 54 del Reglamento del Consejo Nacional de Salarios, aprobado mediante decreto ejecutivo N° 19630 del 17 de abril de 1990)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL,
 En uso de las facultades conferidas en el artículo 140, incisos 3) y 18) de la Constitución Política de la República,
