@@ -1,0 +1,1 @@
+Artículo 17.—Los vehículos propiedad del Consejo Nacional de la Persona Adulta Mayor tendrán prioridad de estacionamiento en los parqueos de la institución (propios o arrendados) sobre aquellos vehículos propiedad de sus funcionarios o de visitantes.

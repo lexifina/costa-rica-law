@@ -1,0 +1,1 @@
+Artículo 35.—Las multas que procedan de violaciones a la Ley de Tránsito que se emitan en contra de los vehículos o los funcionarios del Consejo, deberán ser canceladas por el chofer, excepto en aquellos casos en que el chofer pueda comprobar que no hubo culpa de su parte, para lo cual se aplica el mismo proceso administrativo detallado en el artículo anterior de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 5º—Todos los vehículos de uso administrativo, deberán estar rotulados con una leyenda que diga, Consejo Nacional de la Persona Adulta Mayor, Presidencia de la República y deberán portar la placa de circulación en el lugar definido por ley y la leyenda -Uso Oficial".

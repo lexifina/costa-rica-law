@@ -1,0 +1,1 @@
+Artículo 7º—La Dirección Ejecutiva delega la administración, el uso, el control y el mantenimiento de los vehículos propiedad del Consejo Nacional de la Persona Adulta Mayor a la Dirección Administrativa Financiera, que designará a uno de sus funcionarios como encargado de la unidad de transportes.

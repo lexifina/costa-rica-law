@@ -1,0 +1,10 @@
+Artículo 29.—Son deberes de todo conductor del Consejo Nacional de la Persona Adulta Mayor, además de los consignados en el ordenamiento legal vigente:
+a.Conocer y cumplir estrictamente la Ley de Tránsito, así como las disposiciones que establece el presente Reglamento y toda otra que complemente acertadamente los fines y propósitos de éste.
+b.Portar actualizada y vigente la licencia extendida por la Dirección General de Transporte Automotor, la cual debe ser acorde con el tipo de vehículo que conduce.
+c.Revisar antes de conducir un vehículo: que el mismo cuente con la documentación requerida para su circulación, así como con las condiciones mecánicas de: frenos, dirección, luces, lubricantes, combustible, presión de llantas y estado general de los mismos, nivel de agua, etc. Además, procurar que el vehículo se mantenga en condiciones adecuadas de limpieza.
+d.Aplicar mientras conduce, las mejores técnicas y conocimiento para el buen manejo, evitando daños y el desgaste acelerado de la unidad.
+e.Conservar mientras conduce, la mayor compostura y la debida prudencia, de manera que no ponga en peligro su propia vida, la seguridad de otras personas, de la unidad que conduce y de otros vehículos y bienes.
+f.Acatar las instrucciones que en carretera le señalen los Inspectores Viales de la Dirección de Tránsito y brindarles la información que solicitan.
+g.Velar por que el vehículo opere en condiciones mecánicas y de carrocería apropiadas y reportar oportunamente a la unidad de transportes, cualquier daño que detecte en el vehículo.
+NOTA: en la publicación hecha en La Gaceta No. 217 de 11 de noviembre de 2003, no aparece inciso h) en este artículo.
+i.Reportarse con el encargado de la unidad de transportes, en forma inmediata al ingresar a la institución después de efectuar cualquier traslado, retiro o entrega de documentación, debiendo hacer entrega de los comprobantes de recibo o entrega de documentos. Posteriormente deberá permanecer en el área destinada para su descanso mientras recibe nuevas instrucciones.

@@ -1,0 +1,1 @@
+Artículo 26.—Corresponderá a la Dirección Administrativa Financiera verificar la eficiencia, eficacia y oportunidad de ejecución de los programas de mantenimiento y girar las recomendaciones que considere pertinentes a la unidad de transportes.

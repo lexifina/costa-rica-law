@@ -1,0 +1,1 @@
+Artículo 39.—Aplicación Supletoria. En todo lo que no esté expresamente regulado en este Reglamento se aplicará como norma supletoria el Reglamento que para uso de vehículos utiliza la Contraloría General de la República.

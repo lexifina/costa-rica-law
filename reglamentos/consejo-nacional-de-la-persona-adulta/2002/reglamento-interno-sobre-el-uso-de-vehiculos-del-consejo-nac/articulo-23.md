@@ -1,0 +1,1 @@
+Artículo 23.—El servicio de transporte utilizando vehículos del Consejo Nacional de la Persona Adulta Mayor queda restringido al territorio nacional, salvo cuando exista una situación calificada y se cuente con la autorización de la Dirección Ejecutiva y la certificación de salida del país.
