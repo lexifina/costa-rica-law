@@ -1,0 +1,1 @@
+Artículo 7°—Sobre las responsabilidades y competencias institucionales. Los ministerios e instituciones deberán cumplir con las responsabilidades y obligaciones establecidas por Ley y brindarán todo el apoyo y cooperación necesaria para la debida ejecución del Programa Construyendo Oportunidades.

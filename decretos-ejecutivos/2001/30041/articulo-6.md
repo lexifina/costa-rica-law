@@ -1,0 +1,2 @@
+Artículo 6°—Sobre la integración de la Comisión Técnica entre las instituciones de gobierno que la conformarán las siguientes:
+Ministerio de Educación Pública; Ministerio de Trabajo y Seguridad Social; Ministerio de Salud; Caja Costarricense de Seguro Social; Instituto Nacional de Aprendizaje; Instituto Mixto de Ayuda Social; Patronato Nacional de la Infancia e Instituto Nacional de las Mujeres y un representante de la sociedad civil.
