@@ -1,0 +1,2 @@
+Artículo 27.—Reformas al reglamento. El Banco podrá introducir las reformas y mejoras que considere convenientes a este Reglamento. Las variaciones que se den surtirán efecto jurídico a partir de su publicación en el Diario Oficial La Gaceta.
+No obstante, el Banco hará del conocimiento por escrito al cuenta ahorrante dichas modificaciones a través de la dirección o medio que éste haya elegido. Si la información no estuviere actualizada, el Banco queda relevado de toda responsabilidad.

@@ -1,0 +1,2 @@
+Artículo 28.—Disposiciones finales. Si la propiedad o derecho sobre los fondos de una cuenta de ahorro estuvieren en disputa, el Banco podrá abstenerse de autorizar retiros o cargos contra la misma, y a efectuar su cierre temporal hasta tanto se haya esclarecido la situación con fundamento en la decisión de alguna autoridad competente.
+Las cuentas de ahorro, lo mismo que los correspondientes contratos, los derechos y obligaciones que se deriven de los mismos, no podrán ser cedidos o transferidos a otra persona bajo ninguna circunstancia.

@@ -1,0 +1,1 @@
+Artículo 11.—Otras disposiciones. También serán de aplicación, en lo que corresponda, las disposiciones contenidas para la cuenta corriente bancaria, en los artículos 619, 620, 622, 623, 624, 625, 626 y 627 del Código de Comercio, y cualquier disposición interna que el Banco emitiere.

@@ -1,0 +1,1 @@
+Artículo 2º—Depósitos de apertura y depósito mínimos. La Gerencia General, la Comisión o el Comité que el Banco establezca, fijará el monto del depósito de apertura, así como los depósitos mínimos que se recibirán en las cuentas de ahorro en colones y dólares.

@@ -1,0 +1,4 @@
+Artículo 20.—Cierre por inactividad. Cuando las cuentas de ahorro colones y dólares permanezcan inactivas durante noventa días o más y con un saldo menor o igual al establecido por la Gerencia General, la Comisión o el Comité que el Banco establezca, las mismas serán cerradas.
+Asimismo serán cerradas las cuentas de ahorro que permanezcan inactivas durante cinco años o más, independientemente del saldo que mantengan y sin responsabilidad para el Banco.
+En ambos casos, dentro de los diez días hábiles siguientes al cierre, el Banco enviará la comunicación respectiva al interesado a la última dirección señalada por éste.
+Durante los períodos de inactividad y conforme lo establezca la normativa interna del Banco, de previo a que estas cuentas sean cerradas, se aplicarán las tarifas y comisiones que establezca el Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica.
