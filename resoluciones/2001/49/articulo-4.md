@@ -1,0 +1,1 @@
+Artículo 4°—En cuanto a los egresos, se podrá deducir el monto amparado por comprobantes debidamente autorizados por esta Dirección, debiendo anotar el nombre del proveedor, fecha, monto de la transacción y número del comprobante que respalda el gasto.

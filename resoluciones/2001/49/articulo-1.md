@@ -1,0 +1,8 @@
+No 49-01.—San José, a las ocho horas del veintidós de noviembre del dos mil uno.
+Considerando:
+1°—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria a dictar normas para la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2°—Que el artículo 51 de la Ley del Impuesto sobre la Renta, No 7092 y sus reformas, establece que en el Reglamento de dicha ley se fijarán los requisitos y condiciones en cuanto a los libros de contabilidad y otros que deberán llevar los contribuyentes y también en cuanto a los sistemas especiales que ellos puedan solicitar.
+3°—Que el artículo 55 del Reglamento de la Ley del Impuesto sobre la Renta y sus reformas, dispone que los declarantes podrán utilizar el sistema de percibido para llevar su contabilidad, previa autorización de la
+Dirección. Por tanto,
+RESUELVE:
+Artículo 1°—Que con base en lo indicado en el Considerando Tercero, todos aquellos contribuyentes que sean personas físicas con actividades lucrativas, que únicamente perciban ingresos por concepto de alquileres, intereses o por servicios no gravados con el impuesto general sobre las ventas, sin perjuicio de que también laboren en relación de dependencia, podrán llevar un libro especial de ingresos y egresos en sustitución de los libros de diario, mayor e inventarios y balances. Además, deberán llevar un registro auxiliar en el que se anotarán los activos necesarios para el ejercicio de la actividad. Ninguno de estos libro requerirá ser legalizado por la Administración Tributaria.

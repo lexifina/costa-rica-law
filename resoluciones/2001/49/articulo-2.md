@@ -1,0 +1,1 @@
+Artículo 2°—En el libro especial de ingresos y egresos se deben anotar tanto los ingresos como los gastos correspondientes al ejercicio de la actividad, utilizando la página izquierda para los ingresos y la derecha para los egresos, en forma similar a un libro de caja u otro libro de sistema columnar que contenga los mismos detalles.
