@@ -1,0 +1,5 @@
+Artículo 49.-En el caso de que fuese designado miembro del
+Consejo Directivo, o como funcionario de los referidos en los dos
+artículos anteriores, una persona que tuviere relaciones de
+parentesco en la forma indicada, con un empleado al servicio del
+IMAS, esa circunstancia no causará la remoción del funcionario.
