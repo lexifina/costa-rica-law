@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 9090
+
+Integra Concejo Municipal Distrito de Tucurrique
+
+- Tipo: Decreto Ejecutivo
+- Número: 9090
+- Fecha: 1978-08-23
+- Publicación: La Gaceta N° 184 del 1978-09-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27281&param2=28852&param3=1 (ficha 27281)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1978-09-28 | la propia norma |
