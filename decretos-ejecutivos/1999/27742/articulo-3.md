@@ -1,0 +1,2 @@
+Artículo 3°.- Este decreto rige a partir de su publicación y hasta el 30 de junio de 1999, vencido dicho plazo, regirán de nuevo los derechos arancelarios vigentes anteriormente, sin perjuicio de la potestad del Poder Ejecutivo de modificar este decreto antes de dicho plazo si lo estima pertinente.
+Dado en la Presidencia de la República.- San José, a los diecinueve días del mes de marzo de mil novecientos noventa y nueve.
