@@ -13,3 +13,4 @@ Reglamento de cobro judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-04-15 | la propia norma |
+| 2 | 1990-06-28 | Reglamento 1972 (1990-06-28) |
