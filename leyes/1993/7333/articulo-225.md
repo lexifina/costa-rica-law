@@ -1,18 +1,15 @@
-ARTICULO 225.- Si no se cumpliere con la edad o el número de
-años de servicio citado, la jubilación se calculará en la
-siguiente forma:
-a) Si el retiro se produjere al cumplir treinta o más años
-de servicio, pero sin haber cumplido los sesenta años de edad, la
-jubilación se calculará en proporción a la edad del servidor.
-Para fijarla, se multiplicará el monto del salario promedio,
-según la regla del artículo 224, por la edad del servidor y el
-producto se dividirá entre sesenta; el resultado de esta
-operación constituirá el monto de la jubilación.
-b) Si el retiro se produjere al cumplir el servidor sesenta
-o más años de edad, pero antes de cumplir treinta años de
-servicio, la jubilación se acordará en proporción a los años
-laborados, siempre que el número de años servidos no sea inferior
-a diez. Para fijarla, se multiplicará el monto del salario
-promedio indicado en el artículo anterior por el número de años
-servidos y el producto se dividirá entre treinta; el resultado
-será el monto de la jubilación.
+ARTICULO 225.- Si no se cumpliere con la edad o el número de años de
+servicio citado, la jubilación se calculará en la siguiente forma:
+a) Si el retiro se produjere al cumplir treinta o más años de
+servicio, pero sin haber cumplido los sesenta años de edad, la jubilación
+se calculará en proporción a la edad del servidor. Para fijarla, se
+multiplicará el monto del salario promedio, según la regla del artículo
+224, por la edad del servidor y el producto se dividirá entre sesenta; el
+resultado de esta operación constituirá el monto de la jubilación.
+b) Si el retiro se produjere al cumplir el servidor sesenta o más
+años de edad, pero antes de cumplir treinta años de servicio, la
+jubilación se acordará en proporción a los años laborados, siempre que el
+número de años servidos no sea inferior a diez. Para fijarla, se
+multiplicará el monto del salario promedio indicado en el artículo
+anterior por el número de años servidos y el producto se dividirá entre
+treinta; el resultado será el monto de la jubilación.

@@ -1,12 +1,13 @@
 TITULO V
-DEL PERSONAL AUXILIAR EN
-LOS TRIBUNALES
-CAPITULO I
-DISPOSICIONES GENERALES
-ARTICULO 135.- En cada tribunal habrá un secretario y los
-prosecretarios, notificadores, escribientes y conserjes que
-fueren necesarios para el buen servicio. No obstante, no es
-indispensable que en las alcaldías, cuyo volumen de trabajo sea
-pequeño, haya prosecretario, notificador o conserje y sus
-funciones pueden ser recargadas en los oficinistas o
-escribientes.
+(Así reformado por el artículo 5 de la Ley de Reorganización
+Judicial, Nº 7728 de 15 de diciembre de 1997)
+ORGANIZACION DE LOS TRIBUNALES
+CAPITULO PRIMERO
+DEL PERSONAL AUXILIAR
+(Así reformado por el artículo 5 de la Ley de Reorganización
+Judicial, Nº 7728 de 15 de diciembre de 1997)
+ARTICULO 135.- Los tribunales tendrán la organización interna y el
+personal que el buen servicio público requiera, según lo disponga la
+Corte, mediante acuerdo que se publicará en el Boletín Judicial.
+(Así reformado por el artículo 5º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

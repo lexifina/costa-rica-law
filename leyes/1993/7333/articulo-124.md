@@ -1,3 +1,1 @@
-ARTICULO 124.- Los Tribunales de Tránsito conocerán:
-1.- De las infracciones de tránsito.
-2.- De los demás asuntos que determine la ley.
+ARTICULO 124.-(Derogado por el artículo 23 de la Ley de Reorganización Judicial, Nº 7728 de 15 de diciembre de 1997).

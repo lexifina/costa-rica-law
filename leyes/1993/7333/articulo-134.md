@@ -1,4 +1,4 @@
-ARTICULO 134.- Los árbitros juris han de tener las mismas
-calidades y condiciones que las exigidas para ejercer en un
-juzgado. Los árbitros arbitradores no requerirán condiciones
-especiales sino el nombramiento de las partes.
+ARTICULO 134.- Los árbitros juris han de tener las mismas calidades
+y condiciones que las exigidas para ejercer en un juzgado. Los árbitros
+arbitradores no requerirán condiciones especiales sino el nombramiento de
+las partes.

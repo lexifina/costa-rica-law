@@ -1,5 +1,4 @@
-ARTICULO 178.- Las inspecciones a las oficinas judiciales
-deberán realizarse por lo menos una vez cada tres meses y de
-ellas deberán elaborarse los informes correspondientes, para
-apreciar el funcionamiento de la administración de justicia en la
-respectiva circunscripción.
+ARTICULO 178.- Las inspecciones a las oficinas judiciales deberán
+realizarse por lo menos una vez cada tres meses y de ellas deberán
+elaborarse los informes correspondientes, para apreciar el funcionamiento
+de la administración de justicia en la respectiva circunscripción.

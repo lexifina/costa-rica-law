@@ -1,8 +1,8 @@
-ARTICULO 17.- Los Magistrados durarán en sus funciones el
-tiempo que determine la Constitución Política y los restantes
-funcionarios que administran justicia, que no se encuentran
-admitidos en la Carrera Judicial, durarán seis años.
-Si iniciado el período de un funcionario, ocurriere una
-vacancia por cualquier motivo, quien lo reponga se tendrá por
-nombrado para el resto de ese período, salvo en lo dispuesto por
-la Constitución Política, en cuanto a Magistrados.
+ARTICULO 17.- Los Magistrados durarán en sus funciones el tiempo que
+determine la Constitución Política y los restantes funcionarios que
+administran justicia, que no se encuentran admitidos en la Carrera
+Judicial, durarán seis años.
+Si iniciado el período de un funcionario, ocurriere una vacancia por
+cualquier motivo, quien lo reponga se tendrá por nombrado para el resto
+de ese período, salvo en lo dispuesto por la Constitución Política, en
+cuanto a Magistrados.

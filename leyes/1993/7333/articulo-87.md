@@ -1,6 +1,5 @@
-ARTICULO 87.- En la Dirección habrá un Subdirector, que
-estará subordinado al Director y colaborará con él en el
-desempeño de su cargo. Debe reunir los mismos requisitos que se
-exigen para el Director, a quien reemplazará en sus ausencias
-temporales. Se procurará, en todo caso, que no tenga la misma
-especialidad profesional del Director.
+ARTICULO 87.- En la Dirección habrá un Subdirector, que estará
+subordinado al Director y colaborará con él en el desempeño de su cargo.
+Debe reunir los mismos requisitos que se exigen para el Director, a quien
+reemplazará en sus ausencias temporales. Se procurará, en todo caso, que
+no tenga la misma especialidad profesional del Director.

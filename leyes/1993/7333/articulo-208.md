@@ -1,6 +1,5 @@
-ARTICULO 208.- Al pronunciarse sobre el fondo, el tribunal
-indicará, debidamente fundamentado, los hechos que tenga por
-probabos, los que considere faltos de prueba y expondrá con
-claridad sus razonamientos y conclusiones. Lo resuelto se
-notificará al denunciado y se comunicará al denunciante, si lo
-hubiere.
+ARTICULO 208.- Al pronunciarse sobre el fondo, el tribunal indicará,
+debidamente fundamentado, los hechos que tenga por probabos, los que
+considere faltos de prueba y expondrá con claridad sus razonamientos y
+conclusiones. Lo resuelto se notificará al denunciado y se comunicará al
+denunciante, si lo hubiere.

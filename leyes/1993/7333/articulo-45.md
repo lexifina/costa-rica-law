@@ -1,10 +1,13 @@
-ARTICULO 45.- La Corte Plena determinará, por acuerdo, los
-distintivos que puedan usar, exclusivamente, los Magistrados de
-la Corte Suprema de Justicia. El Consejo Superior del Poder
-Judicial lo hará respecto de sus propios miembros, inspectores
-judiciales, Secretario General de la Corte, jueces, actuarios,
-alcaldes, fiscales, defensores públicos y miembros del Organismo
-de Investigación Judicial, y lo comunicará al Poder Ejecutivo, a
-efecto de que las autoridades dependientes de ese Poder les
-guarden las consideraciones propias de su posición y les
-faciliten el ejercicio de sus funciones.
+ARTICULO 45.- La Corte Plena determinará, mediante acuerdo, los
+distintivos personales y los vehículos que puedan usar, exclusivamente,
+los Magistrados de la Corte Suprema de Justicia. El Consejo Superior del
+Poder Judicial lo hará respecto de sus propios miembros, los inspectores
+judiciales, el Secretario General de la Corte, los jueces, los defensores
+públicos y los miembros del Organismo de Investigación Judicial, y lo
+comunicará al Poder Ejecutivo, para que las autoridades dependientes de
+ese otro Poder les guarden las consideraciones propias de su posición y
+les faciliten el ejercicio de sus funciones. Asimismo, el Consejo
+determinará los distintivos que se usarán en todos los demás vehículos
+del Poder Judicial.
+(Así reformado por el artículo 1º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

@@ -1,10 +1,9 @@
-ARTICULO 43.- Toda enfermedad que motive licencia con goce
-de sueldo deberá ser comprobada con documento en el que conste la
-incapacidad extendida por la Caja Costarricense del Seguro
-Social, el Instituto Nacional de Seguros, el servicio médico de
-los empleados del Poder Judicial, el médico de la respectiva
-localidad y, si no hubiere alguno de estos en el lugar, por el de
-cualquier otro médico.
-En todo caso, el documento médico se podrá mandar a
-ratificar o ampliar a costa del interesado, bien sea por el mismo
-médico que lo extendió, por su superior o por otro.
+ARTICULO 43.- Toda enfermedad que motive licencia con goce de sueldo
+deberá ser comprobada con documento en el que conste la incapacidad
+extendida por la Caja Costarricense del Seguro Social, el Instituto
+Nacional de Seguros, el servicio médico de los empleados del Poder
+Judicial, el médico de la respectiva localidad y, si no hubiere alguno de
+estos en el lugar, por el de cualquier otro médico.
+En todo caso, el documento médico se podrá mandar a ratificar o
+ampliar a costa del interesado, bien sea por el mismo médico que lo
+extendió, por su superior o por otro.

@@ -1,15 +1,13 @@
-ARTICULO 49.- La Corte Suprema de Justicia se compone de
-tres Salas de Casación: Primera, Segunda y Tercera y la Sala
-Constitucional, integradas por cinco Magistrados, con excepción
-de la última que lo será con siete. En la Sala en que se
-desempeña el Presidente de la Corte, cuando las circunstancias lo
-requieran, a juicio suyo, podrá haber un Magistrado suplente de
-tiempo completo que lo sustituirá mientras no ejerza el cargo, en
-todos los casos en que no concurra a conocer de los asuntos
-propios de su Sala. Dicho Magistrado suplente no integrará la
+ARTICULO 49.- La Corte Suprema de Justicia se compone de tres Salas
+de Casación: Primera, Segunda y Tercera y la Sala Constitucional,
+integradas por cinco Magistrados, con excepción de la última que lo será
+con siete. En la Sala en que se desempeña el Presidente de la Corte,
+cuando las circunstancias lo requieran, a juicio suyo, podrá haber un
+Magistrado suplente de tiempo completo que lo sustituirá mientras no
+ejerza el cargo, en todos los casos en que no concurra a conocer de los
+asuntos propios de su Sala. Dicho Magistrado suplente no integrará la
 Corte Plena.
-Los asuntos se distribuirán entre las Salas,
-fundamentalmente por materias. Si no hubiere ley aplicable que
-regule la distribución del trabajo o la competencia entre las
-Salas, la Corte decidirá el punto, mediante un acuerdo que
-publicará en el Boletín Judicial.
+Los asuntos se distribuirán entre las Salas, fundamentalmente por
+materias. Si no hubiere ley aplicable que regule la distribución del
+trabajo o la competencia entre las Salas, la Corte decidirá el punto,
+mediante un acuerdo que publicará en el Boletín Judicial.

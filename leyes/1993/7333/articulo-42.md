@@ -1,20 +1,18 @@
-ARTICULO 42.- Cuando un servidor judicial sea incapacitado
-por enfermedad, la Dirección Ejecutiva tramitará la licencia con
-goce de sueldo. Cuando se trate de un Magistrado, esa función le
-compete al Presidente de la Corte. El servidor recibirá lo
-necesario hasta completar su salario a partir del monto que
-reciba de la Caja Costarricense del Seguro Social y, en materia
-de riesgos profesionales, lo que indique la ley respectiva.
+ARTICULO 42.- Cuando un servidor judicial sea incapacitado por
+enfermedad, la Dirección Ejecutiva tramitará la licencia con goce de
+sueldo. Cuando se trate de un Magistrado, esa función le compete al
+Presidente de la Corte. El servidor recibirá lo necesario hasta completar
+su salario a partir del monto que reciba de la Caja Costarricense del
+Seguro Social y, en materia de riesgos profesionales, lo que indique la
+ley respectiva.
 Tanto el servidor sustituto como los subalternos que hubiere
-necesidad de ascender o nombrar interinamente, por causa de la
-licencia, devengarán las dotaciones ordinarias asignadas a los
-puestos que vengan a desempeñar.
+necesidad de ascender o nombrar interinamente, por causa de la licencia,
+devengarán las dotaciones ordinarias asignadas a los puestos que vengan a
+desempeñar.
 Cuando el servidor recupere su salud y no se reintegre a sus
 labores, se suspenderá el goce de salario. Si se sospecha que hay
-malicia, por parte del empleado al simular una enfermedad, el
-jefe inmediato solicitará una nueva valoración del caso al médico
-tratante.
-Si se comprobare simulación, se pondrán los hechos en
-conocimiento del órgano competente para ejecutar las sanciones
-del caso. Si se tratare de un Magistrado, se comunicará lo
-pertinente a la Asamblea Legislativa.
+malicia, por parte del empleado al simular una enfermedad, el jefe
+inmediato solicitará una nueva valoración del caso al médico tratante.
+Si se comprobare simulación, se pondrán los hechos en conocimiento
+del órgano competente para ejecutar las sanciones del caso. Si se tratare
+de un Magistrado, se comunicará lo pertinente a la Asamblea Legislativa.

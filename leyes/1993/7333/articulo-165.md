@@ -1,7 +1,7 @@
-ARTICULO 165.- Todo juez tiene limitada su competencia al
-territorio y a la clase de asuntos que le estén señalados para
-ejercerla; las diligencias que los procesos de que conozca exijan
-se hagan en el territorio de otro juez, sólo podrán practicarlas
-por medio de este, salvo autorización legal en contrario.
+ARTICULO 165.- Todo juez tiene limitada su competencia al territorio
+y a la clase de asuntos que le estén señalados para ejercerla; las
+diligencias que los procesos de que conozca exijan se hagan en el
+territorio de otro juez, sólo podrán practicarlas por medio de este,
+salvo autorización legal en contrario.
 El juez solo podrá conocer de los asuntos no sometidos a su
 competencia, cuando le fuere legalmente prorrogada o delegada.

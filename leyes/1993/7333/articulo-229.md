@@ -1,8 +1,8 @@
-ARTICULO 229.- Ninguna jubilación o pensión podrá ser
-inferior a la tercera parte del sueldo que, para el último cargo
-o empleo servido, señale el presupuesto de gastos del Estado,
-vigente en el año en que se hiciere el pago.
-El monto de las pensiones y jubilaciones se reajustará
-cuando el Poder Judicial decrete incrementos para los servidores
-judiciales por variaciones en el costo de la vida y en igual
-porcentaje que los decretados para estos.
+ARTICULO 229.- Ninguna jubilación o pensión podrá ser inferior a la
+tercera parte del sueldo que, para el último cargo o empleo servido,
+señale el presupuesto de gastos del Estado, vigente en el año en que se
+hiciere el pago.
+El monto de las pensiones y jubilaciones se reajustará cuando el
+Poder Judicial decrete incrementos para los servidores judiciales por
+variaciones en el costo de la vida y en igual porcentaje que los
+decretados para estos.

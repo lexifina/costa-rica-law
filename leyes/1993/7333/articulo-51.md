@@ -1,4 +1,4 @@
-ARTICULO 51.- Los Magistrados de la Corte Suprema de
-Justicia se juramentarán ante la Asamblea Legislativa y
-tomarán posesión de su cargo a partir de la fecha designada por
-la Asamblea, siempre que hayan rendido la garantía.
+ARTICULO 51.- Los Magistrados de la Corte Suprema de Justicia se
+juramentarán ante la Asamblea Legislativa y tomarán posesión de su cargo
+a partir de la fecha designada por la Asamblea, siempre que hayan rendido
+la garantía.

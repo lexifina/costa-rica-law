@@ -1,8 +1,7 @@
-ARTICULO 18.- Cuando la Corte Suprema de Justicia o el
-Consejo Superior del Poder Judicial, en su caso, tenga duda sobre
-la corrección de cualquier servidor judicial, de modo que se dé
-una pérdida de confianza, podrá separarlo de su cargo para el
-mejor servicio público. Cuando no se trate de funcionarios o
-empleados de confianza, deberá tramitarse la correspondiente
-información, en cumplimiento del debido proceso, que garantice el
-derecho de defensa del interesado.
+ARTICULO 18.- Cuando la Corte Suprema de Justicia o el Consejo
+Superior del Poder Judicial, en su caso, tenga duda sobre la corrección
+de cualquier servidor judicial, de modo que se dé una pérdida de
+confianza, podrá separarlo de su cargo para el mejor servicio público.
+Cuando no se trate de funcionarios o empleados de confianza, deberá
+tramitarse la correspondiente información, en cumplimiento del debido
+proceso, que garantice el derecho de defensa del interesado.

@@ -1,5 +1,4 @@
-ARTICULO 140.- Los servidores meritorios deben tener las
-mismas calidades que los propietarios, y tendrán derecho a ser
-elegidos en propiedad o para reponer a los propietarios durante
-sus ausencias temporales, una vez calificados por el Departamento
-de Personal.
+ARTICULO 140.- Los servidores meritorios deben tener las mismas
+calidades que los propietarios, y tendrán derecho a ser elegidos en
+propiedad o para reponer a los propietarios durante sus ausencias
+temporales, una vez calificados por el Departamento de Personal.

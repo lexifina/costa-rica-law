@@ -1,8 +1,8 @@
-ARTICULO 239.- El Fondo de Pensiones y Jubilaciones será
-mantenido en uno de los bancos del Estado, a la orden exclusiva
-del Poder Judicial y según los acuerdos que celebren el Consejo y
-el banco respectivo. Los intereses correspondientes a ese Fondo
-serán capitalizados, también conforme lo acuerden ambos.
-Los pagos se harán por medio de cheques o giros extendidos
-por el Departamento Financiero Contable y serán firmados por el
-Director Ejecutivo.
+ARTICULO 239.- El Fondo de Pensiones y Jubilaciones será mantenido
+en uno de los bancos del Estado, a la orden exclusiva del Poder Judicial
+y según los acuerdos que celebren el Consejo y el banco respectivo. Los
+intereses correspondientes a ese Fondo serán capitalizados, también
+conforme lo acuerden ambos.
+Los pagos se harán por medio de cheques o giros extendidos por el
+Departamento Financiero Contable y serán firmados por el Director
+Ejecutivo.

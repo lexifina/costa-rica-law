@@ -1,12 +1,11 @@
-ARTICULO 22.- Para cancelar la garantía, el interesado
-ocurrirá al Ministerio de Hacienda, el cual, si ha transcurrido
-el tiempo necesario, citará mediante edictos publicados en el
-diario oficial, a quienes tengan alguna objeción que hacer a la
-cancelación, para que, dentro de quince días, se presenten a
-ejercitar su derecho. Si nadie ocurriere en ese término, que
-contará desde el día siguiente de la publicación del primer
-edicto, el Ministerio de Hacienda mandará a hacer la cancelación
-de la hipoteca o la devolución del depósito; pero si ocurre
-alguno que justifique haber entablado en tiempo el juicio de
-responsabilidad, se suspenderá la orden de cancelación o
-devolución, mientras no se concluya el juicio.
+ARTICULO 22.- Para cancelar la garantía, el interesado ocurrirá al
+Ministerio de Hacienda, el cual, si ha transcurrido el tiempo necesario,
+citará mediante edictos publicados en el diario oficial, a quienes tengan
+alguna objeción que hacer a la cancelación, para que, dentro de quince
+días, se presenten a ejercitar su derecho. Si nadie ocurriere en ese
+término, que contará desde el día siguiente de la publicación del primer
+edicto, el Ministerio de Hacienda mandará a hacer la cancelación de la
+hipoteca o la devolución del depósito; pero si ocurre alguno que
+justifique haber entablado en tiempo el juicio de responsabilidad, se
+suspenderá la orden de cancelación o devolución, mientras no se concluya
+el juicio.

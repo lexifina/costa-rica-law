@@ -1,2 +1,12 @@
-ARTICULO 143.- Las faltas o ausencias de los secretarios
-serán suplidas por el prosecretario o por quien se designe.
+CAPITULO SEGUNDO
+DE LA ORGANIZACION GENERAL DE LOS TRIBUNALES
+(Así reformado por el artículo 5 de la Ley de Reorganización
+Judicial, Nº 7728 de 15 de diciembre de 1997)
+ARTICULO 143.- Para conformar un circuito judicial, la Corte podrá
+disponer la forma de organización de varios despachos judiciales, según
+lo requiera para la eficiencia y el buen servicio público de la justicia.
+Este sistema de organización procurará la participación de los
+jueces y demás servidores judiciales en la toma de decisiones
+administrativas.
+(Así reformado por el artículo 5º de la Ley de Reorganización
+Judicial No.7728 de 15 de diciembre de 1997)

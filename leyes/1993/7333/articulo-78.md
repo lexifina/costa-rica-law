@@ -1,4 +1,4 @@
-ARTICULO 78.- En lo no dispuesto en la presente Ley, el
-régimen de los actos del Consejo será el establecido para los
-actos administrativos, sin que, en ningún caso, deba consultarse
-a la Procuraduría General de la República.
+ARTICULO 78.- En lo no dispuesto en la presente Ley, el régimen de
+los actos del Consejo será el establecido para los actos administrativos,
+sin que, en ningún caso, deba consultarse a la Procuraduría General de la
+República.

@@ -1,7 +1,6 @@
-ARTICULO 157.- En caso de inopia de abogados en una
-determinada jurisdicción territorial, se podrá nombrar como
-defensores, en ese orden, a los egresados de las facultades o
-escuelas de Derecho o a los estudiantes que estén cursando el
-último año. Sin embargo, los profesionales siempre desplazarán a
-quienes carezcan de título, pero se respetará el plazo por el que
-estos hayan sido nombrados.
+ARTICULO 157.- En caso de inopia de abogados en una determinada
+jurisdicción territorial, se podrá nombrar como defensores, en ese orden,
+a los egresados de las facultades o escuelas de Derecho o a los
+estudiantes que estén cursando el último año. Sin embargo, los
+profesionales siempre desplazarán a quienes carezcan de título, pero se
+respetará el plazo por el que estos hayan sido nombrados.
