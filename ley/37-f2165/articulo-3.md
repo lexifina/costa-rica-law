@@ -1,0 +1,1 @@
+Artículo 3° Si en alguna localidad en la cual se suprima la plaza de Agente de Policía, fuere dueño de puesto para la venta de licores el Juez de Paz o algún Comisario, el respectivo Gobernador o Jefe Político procederá inmediatamente a la reposición de dicho funcionario.
