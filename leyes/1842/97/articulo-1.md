@@ -1,0 +1,5 @@
+DECRETO XCVII.
+Dispone que el Ejecutivo oyendo a las Autoridades locales tome todas las providencias que crea oportunas para la construcción de la Iglesia parroquial casa municipal etc. De la Ciudad de Cartago y señala los fondos de que debe echarse mano.
+El General Jefe Supremo Provisorio del Estado de Costa Rica. –Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+La Asamblea Constituyente del Estado de Costa Rica, deseando subvenir de algún modo á la necesidad en que se encuentra la Ciudad de Cartago de erigir de nuevo los edificios públicos arruinados por el terremoto de 2 de Setiembre de 841, y hallándose los fondos públicos en la mayor exhaustéz por consecuencia de la tortuosa administración de los años anteriores y principios del presente y por las circunstancias que actualmente rodean al Estado, decreta.
+Art. 1° El Ejecutivo, oyendo las Autoridades locales de la Ciudad de Cartago, tomará todas las providencias que parezcan más oportunas y convenientes para que se construyan en ella la Iglesia Parroquial, casa Municipal, Cárceles y Cuartel, arruinados por el temblor de 2 de Setiembre de 841.
