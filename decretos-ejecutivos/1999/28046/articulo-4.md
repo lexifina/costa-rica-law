@@ -1,0 +1,1 @@
+Artículo 4º—Los ministerios y entidades públicas incluirán en sus presupuestos recursos financieros para atender las necesidades derivadas de las emergencias que se presenten en el país, los cuales serán considerados dentro de los límites de gasto establecidos.

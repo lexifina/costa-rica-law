@@ -1,0 +1,1 @@
+Artículo 8º—Los ministerios y las entidades públicas elaborarán el programa de inversiones para el ejercicio económico del año 2000, el cual debe ser presentado a MIDEPLAN, de acuerdo con lo establecido en el artículo 9º de la Ley Nº 5525.
