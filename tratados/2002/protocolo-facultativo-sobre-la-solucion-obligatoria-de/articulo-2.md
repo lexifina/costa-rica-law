@@ -1,0 +1,2 @@
+ARTÍCULO 2
+El presente Protocolo quedará abierto a la firma de los Miembros en el momento de la firma de la Constitución y del Convenio. Será ratificado, aceptado o aprobado por los Miembros signatarios con arreglo a sus normas constitucionales. Podrán adherirse a él los Miembros que sean partes en la Constitución y en el Convenio y los Estados que se conviertan en Miembros de la Unión. El instrumento de ratificación, aceptación, aprobación o adhesión se depositará en poder del Secretario General.

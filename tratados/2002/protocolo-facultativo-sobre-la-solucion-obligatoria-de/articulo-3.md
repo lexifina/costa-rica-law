@@ -1,0 +1,2 @@
+ARTÍCULO 3
+El presente Protocolo entrará en vigor para las Partes en el mismo que lo hayan ratificado, aceptado o aprobado o se hayan adherido a él, en la misma fecha que la Constitución y el Convenio, siempre que para esa fecha se hayan depositado al menos dos instrumentos de ratificación, aceptación, aprobación o adhesión. De no ser así, el presente Protocolo entrará en vigor el trigésimo día después del depósito del segundo instrumento de ratificación, aceptación, aprobación o de adhesión.
