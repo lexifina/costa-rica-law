@@ -1,0 +1,1 @@
+Artículo 23.—La circulación de vehículos del CNP en horas y días no hábiles estará restringida estrictamente a la realización de labores no postergables o a la atención de emergencias relacionadas con funciones inherentes a la Institución. La responsabilidad en e! cumplimiento de esta disposición recaerá en la jefatura de la dependencia a cuyo cargo se encuentra el vehículo.

@@ -1,0 +1,1 @@
+Artículo 14.— La Sección de Transportes determinará, de acuerdo con la solicitud presentada, el tipo de recurso que mejor se adapte, a las condiciones del servicio solicitado sin detrimento de los mejores intereses institucionales y la sana administración.

@@ -1,0 +1,1 @@
+Artículo 37.—Quienes están autorizados para conducir vehículos del CNP no podrán en ningún caso ceder la conducción de los mismos a personas particulares solo en casos de fuerza mayor a funcionarios de la Institución que no cuenten con la debida autorización del CNP.

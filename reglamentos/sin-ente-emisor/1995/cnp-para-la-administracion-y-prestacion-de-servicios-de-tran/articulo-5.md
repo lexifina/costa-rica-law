@@ -1,0 +1,1 @@
+Artículo 5°—Los vehículos de uso administrativo son todos aquellos que prestan sus servicios en apoyo del mejor cumplimiento de las funciones a cargo de la Institución , pudiendo estar asignados a las diferentes dependencias de! CNP, bajo la responsabilidad del superior jerárquico de la misma.

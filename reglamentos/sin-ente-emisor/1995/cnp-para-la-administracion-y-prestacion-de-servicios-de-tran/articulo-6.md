@@ -1,0 +1,1 @@
+Artículo 6°—Mientras se mantenga la relación laboral por parte de cualquier funcionario con la Institución , el uso de los vehículos y servicios de transporte del CNP en ningún sentido constituye salario en especie ni su utilización genera derechos adquiridos por ese concepto.

@@ -1,0 +1,1 @@
+Artículo 40.—Es responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en el presente capítulo, de ahí que si se acata órdenes que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine.

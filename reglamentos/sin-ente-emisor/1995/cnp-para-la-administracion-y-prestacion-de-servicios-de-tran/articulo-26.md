@@ -1,0 +1,2 @@
+Artículo 26.—Corresponde a la Sección de Transportes establecer las normas de mantenimiento y reparación de los vehículos del CNP, y todas las dependencias que tengan a su servicio vehículos institucionales tienen también la responsabilidad por medio de su jefatura, de velar por el buen mantenimiento de las unidades, debiendo hacer oportunamente las observaciones pertinentes a la Sección de Transportes.
+Independientemente se elaborará un manual específico.

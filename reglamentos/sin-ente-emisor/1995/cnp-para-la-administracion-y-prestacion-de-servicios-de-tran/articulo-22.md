@@ -1,0 +1,1 @@
+Artículo 22.—Son requisitos indispensables y de orden administrativo para que un automotor propiedad del CNP entre en circulación, estar debidamente rotulado con el emblema de la Institución numero CNP correspondiente, y tener placa oficial, salvo los casos a saber: Presidente Ejecutivo, Gerente General, Subgerente General, Auditor General y Subauditor.

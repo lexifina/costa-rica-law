@@ -1,0 +1,1 @@
+Artículo 4°—Los vehículos de uso discrecional son aquellos que están asignados únicamente a los miembros y funcionarios de la Administración superior, a saber: Presidente ejecutivo, Gerente General, Subgerente General, Auditor General y Subauditor. Dichos vehículos se rigen por lo que establece el artículo 225 de la Ley de Tránsito.

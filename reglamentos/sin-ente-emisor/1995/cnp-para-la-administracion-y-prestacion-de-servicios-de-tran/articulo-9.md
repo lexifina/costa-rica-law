@@ -1,0 +1,3 @@
+Artículo 9°—Todo vehículo y conductor de la Institución debe estar protegido con las pólizas de seguros necesarias. La sección de Transportes procurará que las pólizas cubran otros riesgos adicionales cuando el material transportado así lo requiera.
+A la División Administrativa Financiera le corresponde el oportuno y permanente trámite y seguimiento de los asuntos en esta materia y de las recomendaciones que al respecto le gire la Sección de Transportes.
+Se pueden crear "Reservas de Seguro", internas, que sustituyan la función que brindan las pólizas de seguros, dichas reservas serán por un monto igual o superior a lo que se tendría que pagar por concepto de pólizas con el Instituto Nacional de seguros.

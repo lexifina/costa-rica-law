@@ -1,0 +1,1 @@
+Artículo 48.— La Sección de Transportes analizará todo accidente de tránsito en que participe un vehículo del CNP del cual rendirá un informe con la recomendación respectiva a la División Administrativa Financiera.

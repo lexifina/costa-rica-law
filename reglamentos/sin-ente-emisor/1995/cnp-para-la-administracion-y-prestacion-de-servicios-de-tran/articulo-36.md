@@ -1,0 +1,1 @@
+Artículo 36.—Los conductores no deben permitir que personas no autorizadas para la función o al servicio que se propone brindar, viajen en los vehículos del CNP, salvo en ocasiones especiales en que medie autorización previa de la Sección de Transportes, o en casos de emergencias comprobadas o se trate de vehículos de uso discrecional.

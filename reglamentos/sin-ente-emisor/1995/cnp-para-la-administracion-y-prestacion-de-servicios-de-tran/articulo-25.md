@@ -1,0 +1,1 @@
+Artículo 25.— La Sección de Transportes es la encargada de administrar el servicio de mantenimiento que reciban los vehículos del CNP y velarán porque en todo momento exista un sistema en el nivel nacional que permita a todos los usuarios hacer uso del mismo en forma ágil y eficiente.

@@ -1,0 +1,1 @@
+Artículo 30.—Queda prohibido que un funcionario no autorizado conduzca vehículos del CNP, excepto en casos de emergencia a criterio de su superior, quien informará a la Sección de Transportes lo correspondiente.

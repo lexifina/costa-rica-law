@@ -1,0 +1,1 @@
+Artículo 52.— Acatar las instrucciones que en su campo le gire la Sección de Transportes con autorización de la Dirección Administrativa Financiera girará a la Gerencia General las recomendaciones del caso.

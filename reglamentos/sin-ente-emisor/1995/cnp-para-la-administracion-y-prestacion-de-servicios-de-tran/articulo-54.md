@@ -1,0 +1,1 @@
+Artículo 54.—Las discrepancias o diferencias de criterio en la aplicación de este Reglamento que surjan con la Sección de Transportes, serán resueltas por la Gerencia General en consulta con la División Administrativa Financiera.

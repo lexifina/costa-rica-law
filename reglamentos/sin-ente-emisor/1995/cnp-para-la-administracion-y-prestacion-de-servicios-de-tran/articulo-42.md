@@ -1,0 +1,1 @@
+Artículo 42.—Ningún conductor de la Institución queda autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos del CNP, únicamente deben indicarle al particular que se apersone o comunique con la Sección de Transportes para efectuar las gestiones correspondientes.

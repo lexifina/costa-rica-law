@@ -1,0 +1,1 @@
+Artículo 39.—Con el propósito de que los vehículos de la Institución circulen dentro de las normas apropiadas de seguridad, se prohíbe colocar adornos tanto en el interior como en el exterior de los mismos, o mantener objetos en el panel de instrumentos que afecten sensiblemente la seguridad en la conducción del vehículo.
