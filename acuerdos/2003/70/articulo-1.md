@@ -1,4 +1,4 @@
-SGV-A-70.—Despacho del Superintendente, a las catorce horas del veintiuno de febrero del dos mil tres.
+SGV-A-70.—Despacho del Superintendente, a las catorce horas del veintiuno de febrero del dos mil tres. *
 Considerando
 I.—Que mediante artículo 4 del acta de la sesión del 7 de diciembre del 1999 el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre Normativa Relativa a las Auditorias Externas de los sujetos fiscalizados por la Superintendencia General de Entidades Financieras, Superintendencia General de Valores, y la Superintendencia de Pensiones,
 II.—Que el articulo 18 del reglamento mencionado en el inciso I, establece que los estados financieros auditados deberán publicarse en un medio de circulación nacional una vez al año, en el plazo y bajo las condiciones que indique el Superintendente, que deberán mantenerse a disposición del público en las oficinas de la entidad auditada y en cada Superintendencia, y que cada Superintendencia podrá establecer otros mecanismos de divulgación.
@@ -13,9 +13,11 @@ NO FINANCIEROS, PUESTOS DE BOLSA. SOCIEDADES
 ADMINISTRADORAS DE FONDOS DE INVERSIÓN
 Y FONDOS DE INVERSIÓN Y GRUPOS
 FINANCIEROS SUPERVISADOS
-POR SUGEVAL
-Articulo 1°—Información a publicar. Los emisores no financieros, los puestos de bolsa, las sociedades administradoras de fondos de inversión y los grupos financieros supervisados por SUGEVAL deberán publicar:
+POR SUGEVAL *
+Articulo 1°—Información a publicar. Los emisores no financieros, los puestos de bolsa y las sociedades administradoras de fondos de inversión, las bolsas de valores y la central de valores supervisados por SUGEVAL deberán publicar:
 a) La opinión del auditor externo.
-b) El balance general y el estado de resultados
-En el caso de las sociedades administradoras de fondos, el dictamen de la sociedad administradora podrá contemplar la opinión relativa de todos los fondos; y el balance de situación de la sociedad administradora deberá contener en cuentas de orden el detalle por moneda de cada uno de los fondos administrados.
-Adicionalmente la entidad deberá tener a disposición en sus oficinas los estados financieros auditados completos a disposición de! público inversionista, en papel y en el sitio web en caso de que cuenten con uno.
+b) El balance general y el estado de resultados,
+En el caso de las sociedades administradoras de fondos, el dictamen de la sociedad administradora podrá contemplar la opinión relativa de todos los fondos; y el balance de situación de la sociedad administradora deberá contener en cuentas de orden el detalle por moneda de cada uno de los fondos de inversión administrados.
+Adicionalmente, la entidad deberá tener a disposición en sus oficinas los estados financieros auditados completos a disposición del público inversionista, en papel y en el sitio web, en caso de que cuenten con uno.
+Las entidades sujetas a fiscalización de la Superintendencia General de Entidades Financieras que administren fondos media fideicomiso publicarán sus estados financieros requerimientos establecidos por la SUGEF.
+* Mediante acuerdo de Junta Directiva N° 71 de 4 de marzo de 2003, se cambió su nombre a: Instrucciones para la publicación de estados financieros auditados por parte de los emisores no financieros, puestos de bolsa, sociedades administradoras de fondos de inversión y fondos de inversión, bolsa de valores.

@@ -14,3 +14,4 @@ Instrucciones para la Publicación de Estados Financieros Auditados por parte de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-12 | Acuerdo 71 (2003-03-04) |
