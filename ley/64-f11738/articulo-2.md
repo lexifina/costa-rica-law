@@ -1,0 +1,1 @@
+Art. 2. En consecuencia, quedan derogados los articulos 2° y 3° del mencionado decreto número 12 de 5 del corriente, y los pueblos en el pleno goce de las garantías consignadas en la Carta fundamental.
