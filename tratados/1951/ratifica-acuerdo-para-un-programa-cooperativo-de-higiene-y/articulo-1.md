@@ -1,4 +1,5 @@
 N° 1287
+(Nota de Sinalevi: Mediante la Ley N° 2821 del 19 de setiembre de 1961, Costa Rica Ratifica el presente Acuerdo de Prorroga Suplementario)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Artículo único .—Ratificase el Acuerdo para un Programa Cooperativo de Higiene y Salud Publica, suscrito entre el Gobierno de Costa Rica, por conductor del Ministerio de Salubridad Pública, y el Gobierno de los Estados Unidos de Norteamérica, por medio del Instituto de Asuntos Interamericanos, como agenda incorporada de aquel país.
