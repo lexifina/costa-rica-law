@@ -1,0 +1,1 @@
+ARTÍCULO 484.- Las disposiciones de este capítulo serán aplicables cuando se enajena el establecimiento en su mayor parte como un solo todo, y cuando la trasmisión se refiera a dos o más lotes, realizados en forma que salgan de las condiciones normales del giro del establecimiento.

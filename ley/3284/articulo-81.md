@@ -1,0 +1,1 @@
+ARTÍCULO 81.- Lo sociedad podrá aumentar su capital, cumpliendo los mismos requisitos indicados en los artículos 79 y 80. El capital podrá también ser disminuido. En ambos casos deberán hacerse la publicación e inscripción respectivas.

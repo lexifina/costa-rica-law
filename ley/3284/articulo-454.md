@@ -1,0 +1,1 @@
+ARTÍCULO 454.- Cuando la compra-venta se pacte condicionada a prueba, se entenderá sujeta a la condición suspensiva de que la cosa tenga las calidades convenidas y necesarias para el uso a que se le destina. La prueba deberá realizarse en la forma y plazo convenidos en el contrato; a falta de estipulación, se atenderá a la costumbre.

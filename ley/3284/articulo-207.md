@@ -1,0 +1,1 @@
+ARTÍCULO 207.- El aviso de haberse disuelto la sociedad se publicará una vez en "La Gaceta". Dentro de los treinta días siguientes a esta publicación, cualquier interesado podrá oponerse judicialmente a la disolución, que no se base en causa legal o pactada.

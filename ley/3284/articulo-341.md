@@ -1,0 +1,1 @@
+ARTÍCULO 341.- Las empresas públicas no podrán rehusar recibir pasajeros o efectos para el transporte, siempre que el pasajero o el remitente en su caso, se ajusten y acaten las disposiciones legales y reglamentos de la empresa.

@@ -1,0 +1,2 @@
+ARTÍCULO 872.- Todo lo referente a la calificación de la quiebra se tramitará y resolverá en el proceso seguido en el tribunal penal correspondiente. De este proceso se comunicará en su oportunidad, al juzgado civil donde radique la quiebra, la sentencia o auto en el que se le ponga fin, una vez firmes tales resoluciones.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTÍCULO 436.- Cuando en la redacción de un contrato se omiten cláusulas de absoluta necesidad para llevar a efecto lo pactado, se presume que las partes quisieron sujetarse a lo que en el mismo caso se acostumbra en el lugar donde el contrato deba ejecutarse, y si los interesados no explicaren su acuerdo en la omisión, se procederá según la costumbre.

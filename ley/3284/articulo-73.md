@@ -1,0 +1,1 @@
+ARTÍCULO 73.- El socio comanditario que de acuerdo con las previsiones de la ley ejerciere por cuenta propia o ajena negocios iguales o similares a los que constituyen el objeto de la sociedad, perderá el derecho de examinar los libros y de enterarse de las operaciones sociales.

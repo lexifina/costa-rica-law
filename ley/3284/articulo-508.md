@@ -1,0 +1,1 @@
+ARTÍCULO 508.- En el préstamo de efectos de comercio, acciones y demás títulos-valores, quien los ha recibido está obligado a llevar a cabo el cobro de intereses y dividendos y hacer todas las diligencias necesarias para que el título conserve los derechos que le son inherentes.

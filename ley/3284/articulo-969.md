@@ -1,0 +1,1 @@
+ARTÍCULO 969.- La prescripción comienza a correr al día siguiente del vencimiento en las obligaciones que tienen determinado plazo dentro del cual deben ser cumplidas; y en aquellos casos en que lo que autoriza la ley es ejercitar un determinado derecho, desde el día en que tal derecho pudo hacerse valer.

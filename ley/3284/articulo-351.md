@@ -1,0 +1,1 @@
+ARTÍCULO 351.- Los contratos que celebren los agentes viajeros independientes, siempre lo serán ad-referéndum, de modo que nos se considerarán firmes en tanto la casa principal no les dé su aprobación. Una vez ratificado el contrato por la casa, obliga a ambas partes como si personalmente hubieren contratado.

@@ -1,0 +1,1 @@
+ARTÍCULO 706.- Las expresiones "valor entendido", "valor recibido", "valor a cobrar" y otros similares que puede el endosante consignar en el endoso, no tienen valor ni consecuencia alguna legal respecto de terceros, y solamente sirven para establecer, junto con las demás pruebas del caso, la relación entre endosante y endosatario.

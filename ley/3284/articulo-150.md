@@ -1,0 +1,1 @@
+ARTÍCULO 150.- Los tenedores de bonos de fundador tendrán derecho al canje de sus títulos por otros que representen fracciones menores, siempre que la participación total de los nuevos bonos sea idéntica a la de los canjeados.

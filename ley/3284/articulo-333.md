@@ -1,0 +1,8 @@
+ARTÍCULO 333.- El remitente está obligado:
+a) A entregar al porteador o sus agentes las mercaderías para su traslado en las condiciones, lugar y tiempo convenidos, con los documentos necesarios, municipales o de otra índole para el libre tránsito y transporte de la carga. La mercadería o efectos deben entregarse debidamente empacados y acondicionados para soportar el viaje. Se presumen exentas de vicio y bien acondicionadas cuando el porteador las acepta sin reparos ni objeciones;
+b) A sufrir los comisos, multas y demás penas que se le impongan por haber omitido el cumplimiento de requisitos o exigencias legales o reglamentarias para poder efectuar el traslado, y a indemnizar al porteador de los perjuicios que se le causen por esos motivos;
+c) A sufrir las pérdidas o averías que procedan de la naturaleza de los artículos porteados, de caso fortuito o fuerza mayor, de la pérdida o menoscabo que pueda sufrir la mercadería por negligencia, culpa o dolo de sus propios empleados o encargados;
+d) A indemnizar al porteador de los daños y perjuicios que por falta de cumplimiento del contrato hubiere sufrido de acuerdo con las reglas establecidas en los artículos 325 y 326;
+e) A reembolsarle cualquier suma que el porteador se haya visto precisado a suministrar en beneficio del remitente, aun cuando no esté prevista en la guía;
+f) A remitir en su oportunidad la guía al consignatario de manera que pueda hacer uso de ella al tiempo de llegar la carga a su destino final; y
+g) A pagar el precio del transporte al suscribir la guía. Si se conviniere en que ese precio lo pague el destinatario, el remitente quedará solidariamente obligado a dicho pago.

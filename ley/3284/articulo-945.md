@@ -1,0 +1,1 @@
+ARTÍCULO 945.- Los acreedores comunes, aunque no estén comprendidos en el balance, ni hayan tomado parte en el procedimiento, ni hayan legalizado su crédito, lo mismo que aquellos que estén pendientes de reconocimiento, quedan obligados por el convenio.

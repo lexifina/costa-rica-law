@@ -1,0 +1,1 @@
+ARTÍCULO 951.- Los quebrados declarados culpables serán rehabilitados tan pronto cumplan la pena que les fuere impuesta o fueren indultados y hayan pagado íntegramente a sus acreedores o comprueben que han cumplido en todas sus partes el convenio celebrado con éstos.

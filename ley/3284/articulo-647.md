@@ -1,0 +1,1 @@
+ARTÍCULO 647.- Se prohibe al fiduciario garantizar los rendimientos de los bienes fideicometidos; si a la terminación del fideicomiso existieren créditos pendientes o en mora, éstos se traspasarán al beneficiario. El fiduciario responderá de cualquier pérdida que fuere ocasionada por su culpa o negligencia en la inversión o en el manejo y atención de los bienes fideicometidos.

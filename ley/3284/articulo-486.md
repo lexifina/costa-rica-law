@@ -1,0 +1,1 @@
+ARTÍCULO 486.- El vendedor del establecimiento o el adquirente podrán impedir la acción de los acreedores a que se refiere el artículo anterior, si cubren la diferencia de precio por éstos alegada. La venta quedará firme al pagarse esa diferencia al contado.

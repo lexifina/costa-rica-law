@@ -1,0 +1,1 @@
+ARTÍCULO 133.- Las acciones deberán estar expedidas dentro de un plazo que no exceda de dos meses, contado a partir de la fecha en que queden pagadas y fueren solicitadas por el interesado. Entre tanto, podrán emitirse certificados provisionales en los que se harán constar los pagos que haya hecho el accionista, y que deberán canjearse oportunamente por las acciones definitivas.

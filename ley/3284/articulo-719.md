@@ -1,0 +1,2 @@
+ARTÍCULO 719.- Los títulos al portador no serán reponibles. En los supuestos del artículo 708 el tenedor podrá notificar, judicial o notarialmente, al emisor, la pérdida o disposición sufrida. Transcurrido el término de la prescripción de los derechos que el título confiere, sean principales o accesorios, si no se hubiere presentado a cobrarlos un poseedor de buena fe, el obligado deberá pagar al denunciante.
+(Así reformado por el artículo 5º de la ley Nº 7201 de 10 de octubre de 1990)

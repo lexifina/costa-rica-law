@@ -1,0 +1,1 @@
+ARTÍCULO 627.- El depósito en cuenta corriente de un cheque emitido o endosado a la orden del cuentacorrentista, y admitido como bueno por el Banco, equivale a efectuar buen pago del título valor. En este caso no es indispensable que el depositante lo endose, sino que es suficiente una razón que indique que el monto del cheque debe acreditarse a la cuenta del dueño.

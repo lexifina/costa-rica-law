@@ -1,0 +1,1 @@
+ARTÍCULO 814.- Cualquiera que sea la fecha de emisión, el banco hará buen pago a la presentación. Toda razón indicativa de que el cheque debe ser cobrado en fecha futura, se tendrá por no puesta y carecerá de valor legal.

@@ -1,0 +1,3 @@
+CAPITULO III
+De la Compra-Venta de Establecimientos Mercantiles e Industriales
+ARTÍCULO 478.- Son elementos integrantes de un establecimiento comercial, para los efectos de su trasmisión por cualquier título: las instalaciones eléctricas, telefónicas y de cualquier otra naturaleza, el mobiliario, la existencia en mercaderías, las patentes de invención y marcas de fábrica, la contabilidad que comprende los archivos completos del negocio, los dibujos y modelos industriales, las distinciones honoríficas y los demás derechos derivados de la propiedad comercial, industrial o artística. La venta de un establecimiento comercial o industrial comprende todos sus elementos, y cuanto forme el activo y pasivo, salvo pacto expreso en contrario.

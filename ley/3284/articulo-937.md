@@ -1,0 +1,1 @@
+ARTÍCULO 937.- Será nulo el convenio particular de un acreedor o de un grupo de acreedores con el quebrado; si se hiciere, tales acreedores perderán cuantos derechos tengan en la quiebra, la cual por ese solo hecho será calificada de culpable.

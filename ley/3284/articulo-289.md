@@ -1,0 +1,1 @@
+ARTÍCULO 289.- Cuando el comisionista percibe sobre una venta, además de la comisión ordinaria, otra llamada de garantía, correrán por su cuenta los riesgos de la cobranza, quedando en la obligación directa de satisfacer al comitente el producto de la venta dentro de los mismos plazos pactados con el comprador, asumiendo una responsabilidad solidaria.

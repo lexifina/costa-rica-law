@@ -1,0 +1,1 @@
+ARTÍCULO 748.- Las letras de cambio a plazo cierto desde la vista deberán presentarse para su aceptación en el término de un año a partir de su fecha. El librador podrá variar este plazo y el endosante acortarlo.

@@ -1,0 +1,1 @@
+ARTÍCULO 529.- Los depósitos que se hacen en los bancos en cuenta corriente, o en cualquier otra forma, se rigen por las disposiciones del capítulo de Cuenta Corriente Bancaria y por lo que al respecto dispone la Ley Orgánica del Sistema Bancario Nacional y los reglamentos respectivos.

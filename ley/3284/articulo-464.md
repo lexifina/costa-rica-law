@@ -1,0 +1,1 @@
+ARTÍCULO 464.- Desde el momento en que el comprador acepte que las mercaderías vendidas queden a su disposición, se tendrá por virtualmente recibido de ellas, y el vendedor quedará con los derechos y obligaciones de un depositario.

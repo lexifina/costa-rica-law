@@ -1,0 +1,3 @@
+ARTÍCULO 409.- La bolsa formará un boletín de cotizaciones, que comprenderá los resultados de sus operaciones, ya sean diarias, semanales o mensuales, en el cual se consignará también el movimiento que hubieren tenido los efectos o mercancías negociadas, con indicación de la clase, números, cantidades y valores correspondientes, así como todos los demás datos o informes sobre precios máximos y mínimos que permitan dar clara idea del movimiento de la bolsa, durante los períodos de que se trate.
+El boletín se registrará fielmente en un libro o registro que con ese objeto llevará la bolsa, y los datos se publicarán periódicamente en el diario oficial La Gaceta, en forma resumida.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

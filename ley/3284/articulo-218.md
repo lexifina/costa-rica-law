@@ -1,0 +1,1 @@
+ARTÍCULO 218.- Las sumas que pertenezcan a los accionistas y que no fueren cobradas en el transcurso de dos meses, contados desde la aprobación del balance final, se depositarán a la orden del juez del domicilio de la sociedad, con indicación del accionista, si la acción fuere nominativa, o del número de la acción, si fuere al portador.

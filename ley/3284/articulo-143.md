@@ -1,0 +1,4 @@
+ARTÍCULO 143.- De las utilidades netas de cada ejercicio anual deberá destinarse un cinco por ciento (5%) para la formación de un fondo de reserva legal, obligación que cesará cuando el fondo alcance el veinte por ciento (20%) del capital social. Si una vez hecha esa reserva, y las previstas en la escritura social, la asamblea acordare distribuir utilidades, los accionistas adquirirán, frente a la sociedad, un derecho para el cobro de los dividendos que les correspondan.
+Si el pago hubiere sido acordado en dinero efectivo, podrá cobrarse a su vencimiento en la vía ejecutiva. Servirá de título ejecutivo la certificación del respectivo acuerdo.
+Acordada la distribución de dividendos, la sociedad deberá pagarlos dentro de los tres meses siguientes a la clausura de la asamblea.
+(Así reformado por el artículo 2º de la ley Nº 7201 de 10 de octubre de 1990)

@@ -1,0 +1,1 @@
+ARTÍCULO 837.- El tenedor de un cheque de viajero podrá presentarlo para su pago a cualquiera de las sucursales o corresponsales incluidas en la lista que al efecto proporcionará el librador, y en cualquier tiempo mientras no transcurra el señalado para la prescripción.

@@ -1,0 +1,2 @@
+ARTÍCULO 900.- Todos aquellos objetos, títulos valores o efectos que aparezcan en posesión del quebrado pero que no le pertenezcan por haberlos recibido en comisión o simple consignación, o para entregarlos a un tercero, cuyo valor no exceda de diez mil colones, podrán ser entregados por el curador, bajo su responsabilidad, a los legítimos dueños que comprueben debidamente su derecho, de lo cual se dará cuenta al juzgado.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

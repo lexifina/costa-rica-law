@@ -1,0 +1,1 @@
+ARTÍCULO 810.- El que adquiera un cheque de buena fe, sin negligencia grave de su parte y no pueda cobrarlo al girado por haberse cometido falsificación o ejercido violencia sobre el girador o sobre alguno de los endosantes, podrá recurrir contra cualquiera de los demás responsables, como si no tuviere vicio alguno.

@@ -1,0 +1,1 @@
+ARTÍCULO 250.- El uso ilegal de una razón de comercio debidamente registrada, da derecho al propietario para pedir la prohibición de su empleo y las indemnizaciones consiguientes, sin perjuicio de la acción penal correspondiente.

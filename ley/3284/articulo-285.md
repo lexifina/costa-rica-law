@@ -1,0 +1,1 @@
+ARTÍCULO 285.- El comisionista que haya recibido fondos para evacuar su encargo y les diere distinta inversión, abonará al comitente el capital e intereses legales a partir del día en que recibió los fondos y le indemnizará además los daños y perjuicios que le hubiere causado, sin perjuicio de la acción penal a que diere lugar.

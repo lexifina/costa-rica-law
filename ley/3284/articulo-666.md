@@ -1,0 +1,1 @@
+ARTÍCULO 666.- El contrato de participación produce entre los partícipes los mismos derechos y obligaciones que confieren e imponen a los socios entre sí las sociedades colectivas, salvo las modificaciones que se deriven de su naturaleza jurídica.

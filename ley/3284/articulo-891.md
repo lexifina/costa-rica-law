@@ -1,0 +1,2 @@
+ARTÍCULO 891.- Los acreedores hipotecarios y prendarios podrán acogerse al vencimiento del plazo y legalizar su crédito en el concurso como crédito común, y renunciar a su privilegio. También podrán legalizar sin renunciar al privilegio, caso en el cual se autorizará al curador para que saque a remate el bien gravado, en cuyo caso se procederá de conformidad con lo que dispone el artículo anterior.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTÍCULO 108.- Cuando la sociedad anónima haya de constituirse por suscripción pública, los fundadores redactarán un programa que deberá contener el proyecto de escritura social, con los requisitos mencionados en el artículo 106, excepto aquéllos que por la propia naturaleza de la fundación sucesiva, no puedan consignarse en el programa.

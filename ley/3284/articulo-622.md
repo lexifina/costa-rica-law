@@ -1,0 +1,1 @@
+ARTÍCULO 622.- Por los depósitos que reciba el Banco entregará un comprobante o recibo que contendrá como requisitos mínimos el lugar de su emisión, la fecha, el nombre del Banco, el del cliente y la suma recibida. Dicho recibo deberá llevar para ser válido, un sello o marca del Banco, que sea garantía de seguridad para ambas partes.

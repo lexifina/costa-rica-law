@@ -1,0 +1,1 @@
+ARTÍCULO 966.- En la quiebra de sociedades ocuparán el lugar del quebrado los administradores, pero en cuanto a responsabilidades de orden penal, sólo les alcanzará cuando se compruebe que han intervenido en actos dolosos o ilícitos en perjuicio de los acreedores.

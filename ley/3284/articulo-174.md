@@ -1,0 +1,1 @@
+ARTÍCULO 174.- Las actas de las asambleas de accionistas se asentarán en el libro respectivo y deberán ser firmadas por el presidente y el secretario de la asamblea. De cada asamblea se formará un expediente con copia del acta, con los documentos que justifiquen la legalidad de las convocatorias y aquéllos en que se hubieren hecho constar las representaciones acreditadas.

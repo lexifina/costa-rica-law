@@ -1,0 +1,1 @@
+ARTÍCULO 331.- La guía puede ser a la orden del consignante o del consignatario o al portador y será trasmisible por endoso o por simple tradición, respectivamente. En todo caso de traspaso hábil, el adquirente se subroga en todos los derechos y obligaciones del remitente.

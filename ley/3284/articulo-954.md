@@ -1,0 +1,1 @@
+ARTÍCULO 954.- La solicitud de rehabilitación la presentará el quebrado ante el juez que conoció de la quiebra, acompañada de los documentos que demuestren el pago realizado, el cumplimiento del convenio o el haber purgado la pena. También se presentará certificación literal de la resolución final dictada en el procedimiento penal.

@@ -1,0 +1,1 @@
+ARTÍCULO 519.- Cuando por hecho o culpa del acreedor, el fiador o fiadores no puedan subrogarse en los derechos y privilegios de éste, aunque sean solidarios, quedan descargados de la obligación en la misma proporción en que las garantías se hayan disminuido.

@@ -1,0 +1,1 @@
+ARTÍCULO 414.- La firma reproducida por algún medio mecánico no se considerará eficaz, salvo los negocios, actos o contratos en que la ley o el uso lo admitan, especialmente cuando se trate de suscribir valores emitidos en número considerable.

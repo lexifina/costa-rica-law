@@ -1,0 +1,2 @@
+ARTÍCULO 523.- El depósito está obligado a conservar la cosa objeto del depósito en el estado en que la reciba, con los aumentos si los tuviere. En el ejercicio del depósito, responderá el depositario de los menoscabos, daños y perjuicios que las cosas depositadas sufran por culpa, dolo o negligencia suya o de sus empleados o encargados.
+El depositario no podrá usar la cosa depositada, salvo cuando se trata de cosas fungibles y previa autorización del dueño.

@@ -1,0 +1,1 @@
+ARTÍCULO 634.- Pueden ser objeto de fideicomiso toda clase de bienes o derechos que legalmente estén dentro del comercio. Los bienes fideicometidos constituirán un patrimonio autónomo apartado para los propósitos del fideicomiso.

@@ -1,0 +1,5 @@
+ARTÍCULO 661.- Quedan prohibidos:
+a) Los fideicomisos con fines secretos;
+b) Los fideicomisos en los que beneficio se conceda a diversas personas que sucesivamente deben sustituirse por muerte de la anterior, salvo el caso en que la sustitución se realice en favor de personas que, a la muerte del fideicomitente, están vivas o concebidas ya;
+c) Los fideicomisos cuya duración sea mayor de treinta años, cuando se designe como fideicomisario a una persona jurídica, salvo si ésta fuere estatal o una institución de beneficencia, científica, cultural o artística, constituida con fines no lucrativos; y
+d) Los fideicomisos en los que al fiduciario se le asignen ganancias, comisiones, premios u otras ventajas económicas fuera de los honorarios señalados en el acto constitutivo. Si tales honorarios no hubieren sido señalados, éstos serán fijados por el juez, oyendo el parecer de peritos, en diligencias sumarias especialmente incoadas al efecto y siguiendo los trámites establecidos para los actos de jurisdicción voluntaria.

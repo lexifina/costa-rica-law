@@ -1,0 +1,2 @@
+ARTÍCULO 187.- El consejo de administración, o quienes ejerzan la representación social, podrán, dentro de sus respectivas facultades, nombrar funcionarios, tales como gerentes, apoderados, agentes o representantes, con las denominaciones que se estimen adecuadas, para atender los negocios de la sociedad o aspectos especiales de éstos y que podrán ser o no accionistas.
+Los funcionarios mencionados en el párrafo anterior tendrán las atribuciones que les fijen la escritura social, los estatutos, los reglamentos, o el respectivo acuerdo de nombramiento.

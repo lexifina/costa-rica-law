@@ -1,0 +1,1 @@
+ARTÍCULO 208.- Los administradores será solidariamente responsables de las operaciones que efectúen con posterioridad al vencimiento del plazo de la sociedad, al acuerdo de disolución o a la declaración de haberse producido alguna de las causas de disolución.

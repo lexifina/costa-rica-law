@@ -1,0 +1,5 @@
+ARTÍCULO 777.- Para que el acto del protesto sea válido, deberá reunir los requisitos siguientes:
+a) Ha de practicarse en el plazo indicado en el artículo 776;
+b) Han de entenderse las diligencias con la persona cuyo cargo esté girada la letra, y no encontrándosele, con su mandatario o dependiente. En el caso de no encontrar a ninguna de estas personas, se entenderán las diligencias con cualquiera de los que se hallen en el domicilio donde deba practicarse, y si éste no quisiere firmar, o se negare a dar su nombre o su relación con el requerido, se hará constar así. Si no fuera habida ninguna persona, se hará constar así en el acta, bajo la responsabilidad del notario, y se tendrá por válido y formalizado el protesto;
+c) Han de practicarse la diligencias del protesto en el domicilio designado en la letra; en su defecto, en el que tenga actualmente el pagador, y a falta de ambos, en el último que se le hubiere conocido; y
+d) Ha de realizarse entre las ocho y las diecisiete horas. Fuera de estas horas, podrá realizarse sólo cuando lo consintiere expresamente aquél contra quien se levanta.

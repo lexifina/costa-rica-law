@@ -1,0 +1,1 @@
+ARTÍCULO 676.- En caso de alteración del texto de un título, los signatarios posteriores a ella se obligan según los términos del texto alterado, y los anteriores, conforme al texto original. Cuando no se pueda comprobar si una firma ha sido puesta antes o después de la alteración, se presumirá que lo fue antes.

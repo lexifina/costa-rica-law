@@ -1,0 +1,1 @@
+ARTÍCULO 280.- En lo no previsto por el comitente, el comisionista debe consultarle, siempre que la naturaleza del negocio lo permita. Si no fuere posible la consulta o estuviere el comisionista autorizado para actuar a su arbitrio, hará lo que la prudencia dicte, procediendo con el mismo cuidado, que emplearía en negocio propio.

@@ -1,0 +1,2 @@
+ARTÍCULO 686.- Salvo las normas relativas a la legitimación, las disposiciones de este título no son aplicables a los documentos que sólo sirven para identificar a quien tiene derecho a una prestación, o para permitir el traspaso del derecho sin la observancia de las formas propias de la cesión, pero con los efectos de ésta.
+(Así reformado por el artículo 3º de la ley Nº 7201 de 10 de octubre de 1990)

@@ -1,0 +1,1 @@
+ARTÍCULO 125.- Las acciones que no estén íntegramente pagadas serán nominativas. Los adquirentes de acciones no pagadas serán solidariamente responsables con el cedente, por el importe insoluto de las mismas.

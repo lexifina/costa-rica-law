@@ -1,0 +1,1 @@
+ARTÍCULO 44.- La facultad de administrar, y el uso de la razón social, se podrán conferir en el acto de firmar la escritura o posteriormente, por todo el tiempo que dure la sociedad, por un término menor o por períodos fijos. En todo caso, el nombramiento se hará por unanimidad de votos.

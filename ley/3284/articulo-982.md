@@ -1,0 +1,1 @@
+ARTÍCULO 982.- El tiempo para la prescripción se cuenta por años de fecha a fecha, salvo que la ley expresamente disponga otra cosa en determinados casos. Los meses se computarán completos con cualquier número de días que tengan.

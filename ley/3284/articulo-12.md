@@ -1,0 +1,1 @@
+ARTÍCULO 12.- Unicamente el patrimonio de la empresa responderá por las obligaciones de ésta, sin que al propietario le alcance responsabilidad alguna, pues su obligación se limita a aportar el capital.

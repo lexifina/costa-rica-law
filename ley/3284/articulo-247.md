@@ -1,0 +1,1 @@
+ARTÍCULO 247.- Si el comercio se ejerciere por una o varias personas conjuntamente, la razón comercial no deberá contener mención alguna que pudiera hacer creer en la existencia de una sociedad. Esta disposición se aplicará aun en el caso de traspaso de un establecimiento por parte de una sociedad.

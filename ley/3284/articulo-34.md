@@ -1,0 +1,1 @@
+ARTÍCULO 34.- Es absolutamente nulo y no producirá efecto legal alguno en perjuicio de terceros, el pacto en virtud del cual se supriman o disminuyan las responsabilidades ilimitadas y solidarias de los socios.

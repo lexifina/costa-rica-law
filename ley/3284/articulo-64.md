@@ -1,0 +1,1 @@
+ARTÍCULO 64.- No podrán los socios de responsabilidad ilimitada dedicarse, ya sea directamente o por medio de otro, a negocios iguales a los que constituyen el propósito de la sociedad, salvo lo dispuesto en los incisos d) y e) del artículo 55.

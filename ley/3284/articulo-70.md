@@ -1,0 +1,1 @@
+ARTÍCULO 70.- En caso de pérdidas en la gestión económica, los socios comanditarios no podrán recibir intereses ni dividendos mientras las pérdidas no hayan sido recuperadas en razón de utilidades posteriores. Los comanditarios no estarán obligados a restituir los dividendos que a título de beneficios hayan recibido de buena fe.

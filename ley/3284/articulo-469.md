@@ -1,0 +1,1 @@
+ARTÍCULO 469.- Si el comprador devuelve la cosa comprada y el vendedor la acepta, o si habiéndole sido devuelta contra su voluntad, no la hace depositar judicialmente dentro de los cinco días siguientes, con notificación del depósito al comprador, se presume que el vendedor ha consentido en la rescisión del contrato.

@@ -1,0 +1,1 @@
+ARTÍCULO 888.- A excepción de los créditos hipotecarios y prendarios que tienen ya establecido el trámite para ser cobrados, los demás privilegiados una vez reconocidos y aprobados por auto firme y siempre que no estén vendidos, pueden solicitar al Juzgado de la quiebra que se ordene el remate del bien afectado con el privilegio.

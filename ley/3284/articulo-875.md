@@ -1,0 +1,1 @@
+ARTÍCULO 875.- Si para determinado caso estuviere inhabilitado o impedido el curador propietario y el suplente, el Juez nombrará una persona que como curador específico supla la falta. Para desempeñar esa función deberá reunir las condiciones requeridas para ser curador.

@@ -1,0 +1,1 @@
+ARTÍCULO 507.- Si el préstamo fuere en valores o efectos de comercio y al deudor no le fuere posible devolver los mismos que recibió, cumplirá su obligación entregando otros de la misma clase y valor.

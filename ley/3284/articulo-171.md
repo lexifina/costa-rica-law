@@ -1,0 +1,1 @@
+ARTÍCULO 171.- Si la asamblea ordinaria o extraordinaria se reuniere en segunda convocatoria, se constituirá válidamente cualquiera que sea el número de acciones representadas, y las resoluciones habrán de tomarse por más de la mitad de los votos presentes.

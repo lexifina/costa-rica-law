@@ -1,0 +1,1 @@
+ARTÍCULO 603.- Antes de la liquidación de la cuenta corriente, ninguno de los contratantes será considerado acreedor o deudor del otro. La liquidación determinará la persona del acreedor, la del deudor y el saldo adeudado.

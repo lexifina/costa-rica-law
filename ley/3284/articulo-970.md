@@ -1,0 +1,1 @@
+ARTÍCULO 970.- Solamente la prescripción ya cumplida puede ser objeto de renuncia. Será absolutamente nulo el pacto por el cual se renuncia, expresa o implícitamente, a una posible prescripción futura aún no cumplida.

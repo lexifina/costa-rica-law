@@ -1,0 +1,1 @@
+ARTÍCULO 213.- Los administradores deberán entregar a los liquidadores, mediante inventario, todos los bienes, libros y documentos de la sociedad, y serán solidariamente responsables por los daños y perjuicios que causen con su omisión.

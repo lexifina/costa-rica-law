@@ -1,0 +1,1 @@
+ARTÍCULO 406.- Cualquier valor no registrado en la bolsa puede negociarse por medio de ésta, bajo la responsabilidad exclusiva de las partes que intervienen en la contratación y mediante el pago de los derechos correspondientes establecidos por la bolsa, limitándose la intervención de ésta a dar a conocer, en la forma que estime conveniente, datos relativos a tales operaciones.

@@ -1,0 +1,3 @@
+ARTÍCULO 456.- Cuando el precio deba pagarse en abonos, podrá pactarse que la falta de uno o varios pagos producirá la resolución del contrato, conforme a las reglas siguientes:
+a) Si se trata de bienes muebles tales como automóviles, motores, pianos, máquinas de coser u otros objetos semejantes que puedan ser identificados, el contrato debe hacerse en forma auténtica. La resolución del contrato surtirá efectos contra tercero cuando la cláusula resolutoria hubiere sido inscrita en el Registro de Muebles; y
+b) Si se trata de bienes muebles cuya identificación no sea posible establecer en forma indubitable, la resolución del contrato no producirá efecto contra tercero de buena fe que los haya adquirido o aceptado como garantía de una obligación.

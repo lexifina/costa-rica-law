@@ -1,0 +1,1 @@
+ARTÍCULO 844.- Salvo elcaso de que el tomador haya dejado el importe en manos del dador o le haya garantizado satisfactoriamente, el dador podrá anular la carta en cualquier tiempo, poniéndola en conocimiento del tomador y de aquél a quien fue dirigida.

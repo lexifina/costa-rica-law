@@ -1,0 +1,1 @@
+ARTÍCULO 198.- Cuando quedare vacante el cargo de fiscal, el consejo de administración deberá nombrar un sustituto por el resto del período de nombramiento o hasta la fecha en que la asamblea haga la nueva elección.

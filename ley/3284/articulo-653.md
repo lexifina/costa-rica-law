@@ -1,0 +1,1 @@
+ARTÍCULO 653.- En caso de que existan dudas en cuanto al alcance del acto constitutivo del fideicomiso o de las obligaciones, derechos o atribuciones del fiduciario, éste o el fideicomisario pueden recurrir ante el juez en consulta, quien siguiendo los trámites establecidos para los actos de jurisdicción voluntaria, en diligencias sumarias dará su veredicto.

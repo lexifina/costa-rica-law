@@ -1,0 +1,1 @@
+ARTÍCULO 38.- Los socios no podrán ceder su derecho en la sociedad sin el consentimiento expreso de los demás. Tampoco podrán interesar a terceros en forma alguna en la sociedad, sin ese consentimiento.

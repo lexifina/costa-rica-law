@@ -1,0 +1,1 @@
+ARTÍCULO 488.- La venta de un establecimiento mercantil o industrial en la que no se hayan llenado las formalidades de este capítulo, será absolutamente nula en cuanto a terceros y el comprador no hará buen pago.

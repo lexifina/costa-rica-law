@@ -1,0 +1,2 @@
+ARTÍCULO 910.- En la calificación de créditos, todo acreedor cuyo crédito haya sido debidamente legalizado tendrá un voto, cualquiera que sea el monto de su crédito. En lo demás, los acuerdos se tomarán por voto personal y de capital. El voto personal corresponderá a todo acreedor admitido; y el voto de capital se formará dividiendo el capital representado, por el número de acreedores admitidos. El cociente será el voto de capital.
+(Así reformado por el artículo 3º de la ley Nº 7130 de 16 de agosto de 1989)

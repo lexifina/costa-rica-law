@@ -1,0 +1,1 @@
+ARTÍCULO 949.- Las garantías que el deudor hubiere otorgado para asegurar las estipulaciones del convenio, una vez cumplido éste en todas sus partes, se cancelarán por los acreedores; y en defecto de éstos, por el juez.
