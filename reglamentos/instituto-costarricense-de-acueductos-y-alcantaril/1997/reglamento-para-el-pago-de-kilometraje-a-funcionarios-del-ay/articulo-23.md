@@ -1,0 +1,1 @@
+Artículo 23.—El Coordinador del funcionario que viajó revisará el reporte contra el informe técnico de resultados del trabajo realizado, y como resultado de su análisis, aprobará o rechazará el reporte de gira o traslado y archivará debidamente las correspondientes copias de los documentos indicados.

@@ -1,0 +1,1 @@
+Artículo 17.—Asimismo AyA reconocerá los pagos por concepto de peajes, utilización de transbordadores y estacionamiento que deba cancelar el funcionario, en cuyos casos deberá presentar los respectivos comprobantes.
