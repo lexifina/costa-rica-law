@@ -1,0 +1,1 @@
+Artículo 21.—Salida de los vehículos fuera del país. En circunstancia especial que se requiera que un vehículo circule fuera del territorio nacional, previamente debe existir autorización escrita, debidamente justificada, aprobada por la Junta Directiva.

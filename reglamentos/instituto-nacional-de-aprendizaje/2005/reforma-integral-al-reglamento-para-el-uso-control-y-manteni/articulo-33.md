@@ -1,0 +1,1 @@
+Artículo 33.—Prohibición intercambio de accesorios. Los conductores y chóferes de vehículos institucionales no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación del Encargado de Transportes.

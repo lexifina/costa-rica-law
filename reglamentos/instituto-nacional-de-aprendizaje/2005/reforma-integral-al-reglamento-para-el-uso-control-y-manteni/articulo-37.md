@@ -1,0 +1,1 @@
+Artículo 37.—Jornada de los chóferes. Con el fin de dar cumplimiento a lo dispuesto en el artículo 140 del Código de Trabajo, la jornada ordinaria más la extraordinaria de los chóferes no puede ser superior a las doce horas, por lo que esta situación debe ser prevista a la hora de asignar las giras y los acompañantes estarán obligados a respetar esta disposición al regresar.

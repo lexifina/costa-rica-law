@@ -1,0 +1,3 @@
+Artículo 34.—Custodia y Seguridad de los Vehículos. Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta.
+Es terminantemente prohibido que los vehículos sean guardados en las casas de habitación de los funcionarios, aún cuando la labor finalice fuera de la jornada ordinaria de trabajo.
+Cuando un vehículo se encuentre en gira, deberá guardarse en lugares que brinden condiciones de seguridad adecuadas y no podrá circular después de la hora indicada en el permiso, salvo situaciones de caso fortuito o fuerza mayor debidamente comprobadas.

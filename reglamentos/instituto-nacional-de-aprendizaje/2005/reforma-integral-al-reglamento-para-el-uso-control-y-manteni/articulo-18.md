@@ -1,0 +1,1 @@
+Artículo 18.—Agrupación de solicitudes. Con el propósito de lograr un mejor aprovechamiento de los vehículos, quien tenga a cargo los vehículos, deberá agrupar en un mismo viaje varias solicitudes para un mismo lugar o ruta, previo aviso oportuno a los solicitantes.

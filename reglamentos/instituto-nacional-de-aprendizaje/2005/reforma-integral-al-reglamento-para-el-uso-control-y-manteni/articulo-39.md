@@ -1,0 +1,1 @@
+Artículo 39.—Prohibición de arreglos extrajudiciales. Ningún conductor de la Institución está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos del INA únicamente debe indicarle al particular que se apersone o comunique con la Sección de Transportes para efectuar las gestiones correspondientes.
