@@ -1,0 +1,1 @@
+Artículo 123.—Usos conformes. Los usos permitidos son los industriales y actividades complementarias a este uso, sodas, restaurantes, así como los talleres de mecánica, de reparación, pintura, hojalatería, tornos etc.

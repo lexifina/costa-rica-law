@@ -1,0 +1,2 @@
+Artículo 27.—Usos condicionales. Son aquellos que pueden darse en una zona, siempre y cuando cumplan los requisitos especiales, que establezca la Municipalidad o cualquier dependencia o institución para lograr la protección de la salud pública, la ciudad y la seguridad de los vecinos del Cantón.
+Estas condiciones deberán indicarse en el Certificado de Uso de Suelo correspondiente (artículo 12 al 15 de este reglamento). Las condiciones serán aquellas que se establezcan en el anexo Nº 3 e este reglamento.

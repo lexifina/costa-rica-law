@@ -1,0 +1,1 @@
+Articulo 55.—Usos no conformes. Únicamente se permitirán aquellos que se encuentren funcionando y debidamente establecidos al cobrar vigencia el presente Reglamento, con las limitaciones, definidas en el presente Reglamento de Zonificación del Uso del Suelo.

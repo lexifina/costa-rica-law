@@ -1,0 +1,4 @@
+CAPÍTULO III
+Servicios Mixtos
+Centro Urbano Especial
+Artículo 94.—Propósitos y delimitación espacial. La construcción del Hospital y la construcción futura de la carretera costanera han provocado un desarrollo urbano relevante en el sector oeste del área urbana, para efecto de lograr un desarrollo equilibrado y que la actual y futura población sea abastecida de los servicios urbanos requeridos, se propone la creación de un centro urbano especial mixto, en el área central sobre la vía que va desde Quepos hacia el Hospital, posibilitando la integración de este centro con el resto del área urbana. Este centro se pretende crear con una serie de instalaciones que sirvan como detonante y polo en el desarrollo del sector. Para ello se propone instalar en esta zona el edificio Municipal, terminal de buses, estacionamientos, oficinas de gobierno, áreas verdes y paseos peatonales, es decir crear un centro cívico con todas las facilidades requeridas.

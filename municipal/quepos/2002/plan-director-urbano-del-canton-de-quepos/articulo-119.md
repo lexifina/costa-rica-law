@@ -1,0 +1,1 @@
+Artículo 119.—Usos condicionales. Se permitirán también como usos condicionales restaurantes, sodas y servicios personales, instituciones bancarias e instalaciones recreativas y culturales como cines y teatros.

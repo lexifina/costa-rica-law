@@ -1,0 +1,1 @@
+Artículo 112.—Usos condicionales. Como usos condicionales se permitirán las instituciones de educación, centros de salud, centros religiosos, siempre y cuando las molestias queden confinadas en los lotes a usar.

@@ -1,0 +1,2 @@
+Artículo 53.—Usos conformes. Los usos permitidos son los usos agropecuarios y las actividades complementarias, como bodegas, agroindustrias, instalaciones de riego, granjas avícolas, porcinas, apícolas y vivienda unifamiliar, proyectos eco turístico de muy baja densidad. Se permitirán los rellenos sanitarios y estacionamientos de buses y obras complementarias para dichos usos.
+No se permitirá la construcción en terrenos que presenten acuíferos, pendientes mayores al 30%, áreas sujetas a deslizamientos e inundaciones, zonas boscosas y áreas de protección de ríos y quebradas.

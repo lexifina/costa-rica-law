@@ -1,0 +1,1 @@
+Artículo 136.—Usos conformes. Los usos permitidos son los de puerto y atracaderos con las instalaciones complementarias, aduana, vigilancia, migración, gasolinera, taller de reparación de embarcaciones, estacionamientos, restaurantes, sodas.

@@ -1,0 +1,3 @@
+Artículo 88.—Jerarquización. Corredores de Comercio y Servicios.
+Corredores Urbanos Municipales. Área urbana de forma lineal en la que se agrupan actividades de servicios y comercio, cuya área de servicio es de nivel municipal.
+Corredor Turístico Manuel Antonio. El cantón de Aguirre ha venido experimentando un crecimiento turístico importante, a manera de corredor que se extiende desde el centro de Quepos hacia la Playa de Manuel Antonio, crecimiento que debe ser regulado, en esta etapa del Plan se dará una regulación general, quedando para una segunda etapa un estudio detallado a fin de dejar establecidos los lineamientos urbanos en esta zona.

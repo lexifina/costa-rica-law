@@ -1,0 +1,1 @@
+Artículo 58.—Usos conformes. Los usos permitidos son todas las instalaciones deportivas, piscinas, gimnasios, vestidores, canchas deportivas y otras que faciliten el esparcimiento espiritual y deportivo.

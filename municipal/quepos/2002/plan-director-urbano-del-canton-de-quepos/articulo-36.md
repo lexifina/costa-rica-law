@@ -1,0 +1,1 @@
+Artículo 36.—Área equivalente. En proyectos que no sobrepasen los dos pisos, el diseñador, a fin de obtener una mejor distribución arquitectónica del proyecto, podrá eliminar el retiro posterior, sustituyéndolo por un área equivalente en el interior del lote, siempre y cuando se cumpla con las normas vigentes sobre ventilación e iluminación natural, áreas y dimensiones mínimas.

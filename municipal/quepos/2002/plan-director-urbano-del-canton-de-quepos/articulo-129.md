@@ -1,0 +1,1 @@
+Artículo 129.—Usos conformes. Son los indicados en el Reglamento de Zonificación parcial de Areas Industriales en la Gran Area Metropolitana. De la lista del anexo Nº 1 el numeral 17 se autorizará en cumplimiento del Artículo 29 de este Reglamento.

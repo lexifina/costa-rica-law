@@ -1,0 +1,1 @@
+Artículo 122.—Propósito. Permitir en el área urbana las actividades de producción industrial no contaminante y talleres a fin de concentrarlas y ordenarlas en zona específica con el fin de proteger los otros usos del suelo.

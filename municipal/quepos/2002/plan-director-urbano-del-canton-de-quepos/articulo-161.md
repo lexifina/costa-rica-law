@@ -1,0 +1,1 @@
+Artículo 161.—En la Zona Inalienable (50 metros) no se permitirá ningún tipo de uso. En los 20 metros paralelos a la Zona Inalienable se reservara como un paseo peatonal a todo lo largo de esta Zona Marítimo Terrestre, desde el área urbana de Quepos hasta la Zona del Plan Regulador de Playa Espadilla y el área del Cocal, formando un gran corredor verde a la largo del litoral.

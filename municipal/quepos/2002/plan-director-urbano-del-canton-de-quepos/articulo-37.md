@@ -1,0 +1,1 @@
+Artículo 37.—En edificios de más de dos pisos se podrá aceptar la misma solución y sustitución del área mencionada en el artículo anterior, siempre que el área correspondiente al retiro posterior sea incrementada en un diez por ciento.

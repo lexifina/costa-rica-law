@@ -1,0 +1,1 @@
+Artículo 22.—En el suelo no urbanizable solamente se permitirá aquel tipo de actividad cuya finalidad sea la preservación ecológica, el mejoramiento paisajístico, la protección de la población, la conformación de áreas verdes y la mitigación del riesgo por amenaza natural o tecnológica.

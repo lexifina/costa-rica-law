@@ -1,0 +1,1 @@
+Artículo 159.—Usos conformes. Los usos permitidos serán los fijados por cada uno de los planes reguladores a realizar y que se contemplan en el presente Plan Regulador, en el caso del área urbana de la ciudad de Quepos.

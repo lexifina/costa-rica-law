@@ -1,0 +1,7 @@
+Artículo 5º—Regular la intensidad con que las diferentes actividades se desarrollarán en el suelo urbanizado y urbanizable del área urbana de Quepos, de modo que se consiga:
+a) Conformidad con la infraestructura y servicios en cada una de las zonas, así como con el potencial y condiciones de cada una de éstas.
+b) El equilibrio en el aprovechamiento del suelo y de las actividades que se desarrollan, evitando la sobrecarga u ociosidad de ciertos sectores.
+c) Lograr un desarrollo integral de la ciudad que evite las especializaciones excesivas y vulnerables de ciertas áreas, la segregación, así como la desarticulación social y espacial de los diferentes sectores del área urbana.
+d) Lograr una distribución más equilibrada y ordenada de las actividades del territorio del área urbana de la ciudad de Quepos, a través de la delimitación y ubicación de los usos del suelo, incorporando las variables de geoctitud, vocación del suelo y riesgo ambiental.
+e) Dotar a la ciudad de los instrumentos de planificación y ordenamiento territorial necesarios para prevenir el futuro crecimiento.
+f) Establecer una jerarquizacion urbana y vial que permita un desarrollo poli céntrico del entorno urbano, evitando el crecimiento lineal a través de la delimitación de los núcleos concéntricos de barrios de la ciudad, así como una red vial que clasifique las carreteras del área urbana, en rutas primarias, secundarias, terciarias y locales que incorporen a la ciudad con su entorno inmediato.

@@ -1,0 +1,3 @@
+Artículo 14.—Cuando el Certificado de Uso del Suelo indique que el uso pretendido por el interesado no es conforme, se deberá comprobar ante la administración que la actividad ubicada en dicha propiedad está a derecho o ha obtenido la patente anteriormente y esté vigente.
+Como requisito debe presentar la solicitud acompañada con el recibo de pago o certificación del Departamento de Patentes de la vigencia de la Patente Municipal.
+No obstante el interesado deberá hacer las correcciones necesarias en el local a fin de cumplir lo establecido en reglamentos vigentes o de nueva aprobación. Luego de esto el Departamento de Control Urbano podrá extender el certificado con el fin de renovar la patente.

@@ -1,0 +1,1 @@
+Artículo 110.—Usos conformes. Los usos permitidos son todos los usos turísticos, como hoteles, cabinas, restaurantes, bares, discotecas, tiendas, boutiques, vivienda unifamiliar y multifamiliar. Intalaciones culturales, comunales, áreas verdes, museos, zoológicos, mariposa ríos y jardines botánicos.

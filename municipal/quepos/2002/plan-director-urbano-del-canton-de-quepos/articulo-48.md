@@ -1,0 +1,1 @@
+Artículo 48.—Usos no permitidos. No se permitirán asentamientos industriales ni urbanizaciones residenciales, bodegas, talleres, establecimientos comerciales excepto los de uso turístico y todos los demás usos a excepción de los nombrados como uso conforme.

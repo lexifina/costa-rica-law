@@ -1,0 +1,4 @@
+TÍTULO XXI
+CAPÍTULO I
+Zona Marítimo Terrestre (ZMT)
+Artículo 158.—Propósitos y Delimitación Espacial. El propósito es el de regular la franja de los doscientos metros que van desde el área urbana establecida por este Plan Regulador, hasta la Zona Marítimo Terrestre de la Zona Regulada por el Plan Regulador de Playa Espadilla. También comprende la Playa del Cocal, con la excepción que en este sector el Plan Regulador de Quepos, especifica los usos y la vialidad, para lograr un desarrollo integral de este sector con el resto de la ciudad de Quepos. Cuando se realice el Plan Regulador de la Playa, se debe respetar tanto la vialidad y la zonificación señalada en el presente Plan Regulador de Quepos. Igual tratamiento se le da a la zona comprendida entre el puerto y la Zona Marítimo Terrestre, hacia el sector de Punta Quepos, señalada en el presente Plan Regulador. La Zona urbana comprende desde Boca Vieja hasta el puerto, tal y como lo señala el IGN.

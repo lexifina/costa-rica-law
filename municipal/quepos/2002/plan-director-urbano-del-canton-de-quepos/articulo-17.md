@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Recursos
+Artículo 17.—Toda resolución administrativa firme que dicte la Municipalidad, por medio de las correspondientes dependencias, en lo relativo a la aprobación de permisos de demolición, construcción, ampliación, restauración o remodelación, así como en lo pertinente a la expedición de licencias de funcionamiento y certificados de usos del suelo, tendrán los recursos, que regula el Código Municipal Ley Nº 7794 del 27 de abril de 1998 artículos 153 y siguientes, 161 y siguientes, y el artículo 99 de la Ley Orgánica del Ambiente.

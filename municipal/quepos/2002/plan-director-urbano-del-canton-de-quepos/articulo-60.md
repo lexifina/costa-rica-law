@@ -1,0 +1,1 @@
+Artículo 60.—Usos condicionales. Los usos condicionales son todas las facilidades como sodas, oficinas, siempre y cuando la Municipalidad en coordinación con la Dirección de Urbanismo lo aprueben, siguiendo los lineamientos del Plan Regulador.

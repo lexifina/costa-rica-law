@@ -1,0 +1,1 @@
+Artículo 117.—Usos conformes. Los usos permitidos son los que presten los servicios institucionales y comunales, tales como centros educativos, de salud, seguridad, instituciones autónomas, municipales e instalaciones comunales y culturales, centros universitarios, cementerios.
