@@ -1,6 +1,3 @@
-ARTICULO 91.- Incumplimiento de condiciones fijadas para suspender el
-proceso a prueba
-De oficio o a solicitud de parte, el Juez revocará la suspensión del
-proceso a prueba y ordenará continuar con los procedimientos, cuando
-constate el incumplimiento injustificado de cualquiera de las condiciones
-por las cuales se ordenó la suspensión.
+ARTICULO 91.- Incumplimiento de condiciones fijadas para suspender el proceso a prueba
+De oficio o a solicitud de parte, el Juez revocará la suspensión del proceso a prueba y ordenará continuar con los procedimientos, cuando constate el incumplimiento injustificado de cualquiera de las condiciones por las cuales se ordenó la suspensión.
+(La Sala Constitucional mediante resolución N° 6857 del 24 de setiembre de 1998, declaró que el presente artículo no es inconstitucional “…siempre y cuando se interprete que es requisito esencial de la suspensión del proceso a prueba, la libre manifestación de voluntad del infractor, previa información detallada de los alcances y consecuencias de la medida”).
