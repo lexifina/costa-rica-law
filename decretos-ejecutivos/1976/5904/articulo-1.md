@@ -292,6 +292,11 @@ Caseríos de la Reserva Indígena Cabécar de Awari: Awari (al oeste), Jameycär
 10. BARBILLA; Poblados: Barbilla Abajo, Dantas (Naíri).)
 (Nota de Sinalevi: Mediante el artículo 9° del decreto ejecutivo N° 13391 del 26 de febrero de 1982, se indicó que las áreas boscosas correspondientes a los altos de la Fila de Matama, al cerro Itocälä (Matama), a los cerros Ayil (cerro Bola), Balar bata y Cabebata (El Quetzal), así como el Bosque de Tsipiri-Wari, son parte de la Reserva Indígena, pero quedarán como terrenos comunales y tendrán un estatuto de "Zona Protectora", conforme a la Ley Forestal; serán utilizados como zonas de cacería reglamentada (y exclusiva para los indígenas) y de protección de cuencas hidrográficas.
 No se podrá establecer fincas ni arrasar los bosques en estas áreas.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 20468 del 20 de mayo de 1991, se estableció que las reservas indígenas Cabécares de Awari y Barbilla, creadas y delimitadas por los decretos Nos. 10706-G y 16059-G, formarán en adelante una reserva indígena única, denominada Reserva Indígena Cabécar de Nairi-Awari, independiente, administrativamente y legalmente de la Reserva Indígena Cabécar de Chirripó y con los mismos derechos y deberes que las otras veintiún reservas indígenas del país legalmente reconocidas.
+Reserva Indígena Cabécar de Nairi-Awari
+(Creada la reserva anterior por el artículo 1° del decreto ejecutivo N° 20468 del 20 de mayo de 1991, que estableció que dicha reserva, se creó a partir de las reservas indígenas Cabécares de Awari y Barbilla, creadas y delimitadas por los decretos Nos. 10706-G y 16059-G. por su parte el numeral 4° del decreto ejecutivo N° 20468 del 20 de mayo de 1991, indicó que la Reserva Indígena Cabécar Nairi-Awari, es parte de la Reserva de la Biosfera de la Amistad (RBA).)
+Para efectos de la división territorial del país, la Reserva Indígena de Nairi-Awari es un caserío, constituido por los poblados de Awari, Jameycari, Nairi Tawa. Nairi y Barbilla (toloc tsacu).
+(Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 20468 del 20 de mayo de 1991)
 HACIENDA CHIRRIPÓ NORTE Y BOCA ZENT
 La finca "Hacienda Chirripó Norte y Boca Zent" se localiza en las hojas Barbilla 3445 IV y Matina 3546 III, escala 1:50.000 del Instituto Geográfico Nacional.
 La finca se delimita como sigue:
@@ -688,7 +693,7 @@ De allí una recta a la naciente del río Cavei, y sigue el río Cavei hasta enc
 (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se indicó que la Reserva Indígena Cabécar de Talamanca incluye los caseríos y poblados de: San José Cabécar, Coén, Xcuy, Mojoncito, Cabey, Jamey, Gavilán, Canta y Sibuju y la Reserva Indígena Bribrí de Talamanca incluye los caseríos y poblados de Alto Urén, Alto Lari, Coroma, Sepecue, Amubri, Katsi, Boca Urén, Sheuab-Yorkin, Shiroles, Suretka, Bratsi(*), Chase, Watsi y Cocles.)
 (*) (Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se confirmó que el nombre oficial del caserío situado al sur del precedente es Bratsi, tal como lo indican los mapas del Instituto Geográfico Nacional, y no Bambú.)
 (Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se confirmó que la ortografía oficial del caserío y del río situados al norte de la Reserva Indígena es Watsi, y no Uatsi.)
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 13591 del 6 de mayo de 1982, se acordó excluyir de la Reserva Indígena de Talamanca los terrenos ocupados por no indígenas y situados en la zona de los ríos Bitey y Duruy, y de la cabecera norte de Watsi así como los terrenos del sureste de la Reserva de Cocles; el límite exacto de los terrenos segregados será presentado por la Sección de Asuntos Indígenas del IDA, para el trámite correspondiente ante el Poder Ejecutivo.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 13591 del 6 de mayo de 1982, se acordó excluir de la Reserva Indígena de Talamanca los terrenos ocupados por no indígenas y situados en la zona de los ríos Bitey y Duruy, y de la cabecera norte de Watsi así como los terrenos del sureste de la Reserva de Cocles; el límite exacto de los terrenos segregados será presentado por la Sección de Asuntos Indígenas del IDA, para el trámite correspondiente ante el Poder Ejecutivo.)
 (*)Para los efectos de la división territorial administrativa de la República, la lista oficial de los caseríos que constituyen la Reserva Indígena Cabécar de Talamanca es la siguiente:
 1. Duruy (San Miguel de Duluy o Duruy), al norte del río Shiroles (Xiroles).
 2. Siböju (Sibujú), entre el río Shiroles y la quebrada Chimori.
@@ -932,6 +937,7 @@ Superficie de la Reserva Indígena Cabécar de Barbilla: 1 867 hectáreas."
 (Así adicionada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 3° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
 (Así reformada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 3° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984, se excluyó de la Reserva Indígena Cabécar de Barbilla-Dantas la parte sur de esta reserva)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 20468 del 20 de mayo de 1991, se estableció que las reservas indígenas Cabécares de Awari y Barbilla, creadas y delimitadas por los decretos Nos. 10706-G y 16059-G, formarán en adelante una reserva indígena única, denominada Reserva Indígena Cabécar de Nairi-Awari, independiente, administrativamente y legalmente de la Reserva Indígena Cabécar de Chirripó y con los mismos derechos y deberes que las otras veintiún reservas indígenas del país legalmente reconocidas.
 RESREVA INDÍGENA CABÉCAR DE XARA
 Reserva Indígena Cabécar de Xara.
 La Reserva Indígena de Xara se encuentra localizada en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, Chirripó 3545 III.
@@ -940,7 +946,7 @@ Partiendo del río Moravia en N 199 475, E 596 675; N 199 575, E 597 350; vérti
 Área aproximada 644 hectáreas.
 (Así adicionada la Reserva Indígena Cabécar de Xara anterior por el artículo 4° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
 Caserío" Indígena de Quitirrisí.
-(Así adicionado el caserío anterior por el artículo 1° del decreto ejecutivo N° 10707 del 24 de octubre de 1979. Asimismo el numeral 2° del decreto ejecutivo antes mencionado, se indica que este caserío constituye en adelante un "Barrio" del cantón de Mora)
+(Así adicionado el caserío anterior por el artículo 1° del decreto ejecutivo N° 10707 del 24 de octubre de 1979. Asimismo, el numeral 2° del decreto ejecutivo antes mencionado, se indica que este caserío constituye en adelante un "Barrio" del cantón de Mora)
 Caserío Indígena de Quitirrisí esta localizado en las hojas cartográficas del IGN, escala 1/50.000 Abra 3345 I y río Grande 3345 IV. Los límites oficiales son los siguientes:
 (Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 10707 del 24 de octubre de 1979)
 (*)Partiendo de la intersección de las carreteras entre Guayabo y Quitirrisí en coordinadas N 205 525, E 508 650, se continúa por la carretera hacia Quitirrisi hasta el punto de coordenadas N 206 000, E 508 800. De este punto se continúa con los siguientes rumbos, distancias y coordenadas:
