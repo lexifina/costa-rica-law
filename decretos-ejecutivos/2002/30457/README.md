@@ -14,3 +14,4 @@ Designa la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-08 | la propia norma |
+| 2 | 2003-06-03 | Decreto Ejecutivo 31232 (2003-06-03) |
