@@ -1,0 +1,5 @@
+Artículo 18. — Las personas físicas o jurídicas a que se refiere el artículo 13 de esta ley, pagarán el impuesto de patente conforme a las siguientes tarifa:
+a) Aplicar el de ¢ 3.00 por ¢ 1.000.00 según ganancia líquida y ¢ 1.50 por ….. ¢ 1.000.00 por venta bruta. La Municipalidad proveerá la fórmula correspondiente, ya que se asume que estos negocios no están obligados a declarar para la Tributación Directa, pero si se deberán hacerlo para la Municipalidad.
+La fórmula correspondiente se les enviará de conformidad con lo dispuesto en el artículo 8° de esta ley.
+b) Para empresas, industrias o comercios que se inicien en el período correspondiente, por analogía con negocios similares, pagarán el primer año la patente que se les asigne, normándose la situación a partir del año siguiente.
+c) Habrá una categoría mínima de ¢50,00 trimestrales a personas física atiendan personalmente sus actividades lucrativas y que, previo estudio de la Municipalidad, determine que no deben ser tasadas conforme a lo dispuesto en el artículo 15.
