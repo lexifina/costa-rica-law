@@ -1,0 +1,1 @@
+Artículo 9º.- La dirección y el gobierno de la Universidad, así como la administración de su patrimonio, estarán a cargo de la Asamblea Universitaria, el Consejo Universitario, el Rector y los organismos que señale el Estatuto.

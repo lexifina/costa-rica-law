@@ -1,0 +1,1 @@
+Transitorio IV.-El Personal Docente y Administrativo de las instituciones que se refiere el Transitorio I, que posean plaza en propiedad mantendrán su condición dentro de la Universidad y sin menoscabo del escalafón que deberá establecerse en la misma, su salario no sufrirá mengua.

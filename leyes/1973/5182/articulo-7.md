@@ -1,0 +1,1 @@
+Artículo 7º.- La Universidad tendrá autoridad para otorgar títulos a sus graduados y, en casos especiales, títulos honoríficos con indicación precisa de los estudios o trabajos de investigación científica que en esa forma se premian.
