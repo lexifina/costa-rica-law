@@ -14,3 +14,4 @@ Reforma Integración de Junta de Desarrollo Portuario de Golfito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
+| 2 | 2004-09-27 | Decreto Ejecutivo 32036 (2004-09-27) |
