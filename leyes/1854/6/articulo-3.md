@@ -1,0 +1,2 @@
+Art 3° Si el ejecutado conviene en la solicitud del acreedor o no la contradice con pruebas en el término legal, se procederá a la retasa y a nuevo remate o a la adjudicación in solutum o en pago, según la petición.
+& único. Si el precio de los bienes excede a la cantidad de la deuda, deberá el acreedor restituir el exceso, y si no alcanza a cubrirla, puede repetirla contra los demás bienes del deudor por el y las costas.
