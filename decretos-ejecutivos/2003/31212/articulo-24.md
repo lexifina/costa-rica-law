@@ -1,0 +1,1 @@
+Artículo 24.—Notificación de la resolución final. La Unidad Técnica notificará la resolución final a cada participante, a los Jefes Inmediatos y Directores de Dependencia de los funcionarios seleccionados.

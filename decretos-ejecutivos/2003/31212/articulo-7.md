@@ -1,0 +1,1 @@
+Artículo 7º—De la Comisión. La Comisión de Becas, se constituirá de conformidad con lo que establece el artículo 8º del Decreto Ejecutivo N° 17339 del 2 de diciembre de 1986. Sus funciones serán de apoyo técnico para la Unidad Técnica y velarán por el fiel cumplimiento de las responsabilidades que este Reglamento señala.

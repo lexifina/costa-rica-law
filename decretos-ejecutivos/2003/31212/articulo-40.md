@@ -1,0 +1,1 @@
+Artículo 40.—Revisión periódica del reglamento. La revisión periódica del presente Reglamento estará a cargo de la Unidad Técnica y de la Comisión de Becas. Ambas instancias tendrán a su cargo la iniciativa de proposición de reformas que se enviarán a la consideración del señor Ministro.

@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 31212
+
+Reglamento para la Adjudicación de Becas o Facilidades a Servidores del Ministerio de Hacienda.
+
+- Tipo: Decreto Ejecutivo
+- Número: 31212
+- Fecha: 2003-03-19
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 119 del 2003-06-23, Alcance 33
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50756&param2=54632&param3=1 (ficha 50756)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2003-06-23 | la propia norma |
