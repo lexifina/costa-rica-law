@@ -1,0 +1,1 @@
+Artículo 3°-El monto correspondiente a cada porcentaje, luego de que la Contraloría General de la República haga cualquier variación en el monto total citado en el artículo anterior, será aplicado de oficio por el Departamento de Recursos Humanos y empezará a regir cuando exista el contenido presupuestario correspondiente.

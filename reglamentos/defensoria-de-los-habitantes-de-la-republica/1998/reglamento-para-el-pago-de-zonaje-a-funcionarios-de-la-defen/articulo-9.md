@@ -1,0 +1,1 @@
+Artículo 9°-El Departamento de Recursos Humanos será el encargado de velar por el fiel cumplimiento de las disposiciones del presente Reglamento, quedando obligados todos los funcionarios de esta Institución a observar y acatar los procedimientos que a tal efecto dictare.

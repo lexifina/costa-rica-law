@@ -1,0 +1,1 @@
+Artículo 4°-El Departamento de Recursos Humanos será la unidad encargada de realizar los estudios correspondientes para el reconocimiento o pérdida del zonaje, el cual deberá contar con la aprobación del Director Administrativo. Una vez reconocido el beneficio, se elaborará la acción de personal correspondiente.
