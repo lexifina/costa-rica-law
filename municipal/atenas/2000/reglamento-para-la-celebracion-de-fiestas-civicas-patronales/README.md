@@ -14,3 +14,4 @@ Reglamento para la Celebración de Fiestas Cívicas, Patronales, Turnos y Ferias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-26 | la propia norma |
+| 2 | 2002-02-11 | Reglamento municipal 277 (2002-02-11) |
