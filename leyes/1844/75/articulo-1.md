@@ -1,0 +1,5 @@
+DECRETO LXXV.
+Dispone la reposición de un Representante propietario por la Provincia de Cartago
+El Gefe Supremo Provisorio del Estado Libre de Costa Rica. –Por cuanto la Cámara de Representantes ha decretado lo siguiente.
+La Cámara de Representantes del Estado Libre de Costa Rica, considerando: que por fallecimiento del Representante propietario Presb° José Francisco Peralta, se hace necesaria que la Electoral respectiva proceda á su reposición, decreta.
+Art° único. El Colegio Electoral de la Sección del centro de la Ciudad de Cartago hará la elección del Representante propietario que le corresponde en emplazamiento del señor Presb° José Francisco Peralta. –Comuníquese al Poder Ejecutivo, para que lo haga imprimir, circular y publicar –Dado en la Ciudad de San José á los dos días del mes de Octubre de mil ochocientos cuarenta y cuatro. –Rafael Ramírez, R.P. –José María Castro. Representante primer Secretario – Juan Bautista Bonilla, R. segundo Secretario. –Por tanto: EJECUTESE. San José Octubre tres de mil ochocientos cuarenta y cuatro. –José María Alfaro.-
