@@ -32,3 +32,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por los artículo 1 y 2 del Decreto Ejecutivo N° 29991 de 17 de noviembre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29992 de 19 de noviembre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29993 de 19 de noviembre del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29997 de 26 de noviembre del 2001)
