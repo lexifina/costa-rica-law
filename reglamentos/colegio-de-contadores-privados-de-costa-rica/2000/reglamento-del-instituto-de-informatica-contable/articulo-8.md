@@ -1,0 +1,1 @@
+Artículo 8°—Los miembros del Consejo de Administración ejercerán funciones por un período de dos años, contados a partir de la fecha de su nombramiento, y se renovarán parcialmente de la siguiente manera: El presidente, el tesorero y el primer vocal, el primer año; el secretario, el segundo vocal y el fiscal, el segundo año.

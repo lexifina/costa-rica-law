@@ -1,0 +1,1 @@
+Artículo 5°—De esta cuenta se cancelarán únicamente aquellas autorizaciones para la adquisición de bienes y servicios propios del Instituto, previo refrendo del Presidente y del Tesorero del Consejo de Administración.

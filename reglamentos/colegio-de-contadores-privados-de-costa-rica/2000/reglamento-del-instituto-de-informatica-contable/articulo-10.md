@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Consejo de Administración devengarán dieta por sesión a la que asistan, equivalente al setenta y cinco por ciento del valor de la que perciben los miembros de la Junta Directiva del Colegio.
