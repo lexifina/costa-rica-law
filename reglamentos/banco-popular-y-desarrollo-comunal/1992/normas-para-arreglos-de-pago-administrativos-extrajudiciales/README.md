@@ -14,3 +14,4 @@ Normas para Arreglos de Pago Administrativos Extrajudiciales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-07 | la propia norma |
+| 2 | 1995-10-03 | Reglamento 3150 (1995-10-03) |
