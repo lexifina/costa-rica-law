@@ -1,26 +1,5 @@
 ARTICULO 14
-Disposiciones especiales relativas al transporte de sustancias
-sicotrópicas en los botiquines de primeros auxilios de buques, aeronaves
-u otras formas de transporte público de las líneas internacionales
-1. El transporte internacional en buques, aeronaves u otras formas
-de transporte público internacional, tales como los ferrocarriles y
-autobuses internacionales, de las cantidades limitadas de sustancias de la
-Lista Segunda, Tercera o Cuarta necesarias para la prestación de primeros
-auxilios o para casos urgentes en el curso del viaje no se considerará
-como exportación, importación o tránsito por un país en el sentido de este
-Convenio.
-2. Deberán adoptarse las precauciones adecuadas por el país de la
-matrícula para evitar que se haga un uso inadecuado de las sustancias a
-que se refiere el párrafo 1, o su desviación para fines ilícitos. La
-Comisión recomendará dichas precauciones, en consulta con las
-organizaciones internacionales pertinentes.
-3. Las sustancias transportadas en buques, aeronaves u otras
-formas de transporte público internacional, tales como los ferrocarriles
-y autobuses internacionales, de conformidad con lo dispuesto en el
-párrafo 1, estarán sujetas a las leyes, reglamentos, permisos y licencias
-del país de la matrícula, sin perjuicio del derecho de las autoridades
-locales competentes a efectuar comprobaciones e inspecciones y a adoptar
-otras medidas de fiscalización a bordo de esos medios de transporte. La
-administración de dichas sustancias en caso de urgente necesidad no se
-considerará una violación de las disposiciones del párrafo 1, del
-artículo 9.
+Disposiciones especiales relativas al transporte de sustancias sicotrópicas en los botiquines de primeros auxilios de buques, aeronaves u otras formas de transporte público de las líneas internacionales
+1. El transporte internacional en buques, aeronaves u otras formas de transporte público internacional, tales como los ferrocarriles y autobuses internacionales, de las cantidades limitadas de sustancias de la Lista Segunda, Tercera o Cuarta necesarias para la prestación de primeros auxilios o para casos urgentes en el curso del viaje no se considerará como exportación, importación o tránsito por un país en el sentido de este Convenio.
+2. Deberán adoptarse las precauciones adecuadas por el país de la matrícula para evitar que se haga un uso inadecuado de las sustancias a que se refiere el párrafo 1, o su desviación para fines ilícitos. La Comisión recomendará dichas precauciones, en consulta con las organizaciones internacionales pertinentes.
+3. Las sustancias transportadas en buques, aeronaves u otras formas de transporte público internacional, tales como los ferrocarriles y autobuses internacionales, de conformidad con lo dispuesto en el párrafo 1, estarán sujetas a las leyes, reglamentos, permisos y licencias del país de la matrícula, sin perjuicio del derecho de las autoridades locales competentes a efectuar comprobaciones e inspecciones y a adoptar otras medidas de fiscalización a bordo de esos medios de transporte. La administración de dichas sustancias en caso de urgente necesidad no se considerará una violación de las disposiciones del párrafo 1, del artículo 9.

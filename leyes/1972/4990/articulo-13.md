@@ -1,24 +1,5 @@
 ARTICULO 13
 Prohibición y restricciones a la exportación e importación
-1. Una Parte podrá notificar a todas las demás Partes, por conducto
-del Secretario General, que prohíbe la importación en su país o en una de
-sus regiones de una o más de las sustancias de la Lista Segunda, Tercera
-o Cuarta que especifique en su notificación. En toda notificación de este
-tipo deberá indicarse el nombre de la sustancia, según su designación en
-la Lista Segunda, Tercera o Cuarta.
-2. Cuando a una Parte le haya sido notificada una prohibición en
-virtud del párrafo 1, tomará medidas para asegurar que no se exporte
-ninguna de las sustancias especificadas en la notificación al país o a una
-de las regiones de la Parte que haya hecho tal notificación.
-3. No obstante lo dispuesto en los párrafos precedentes, la Parte
-que haya hecho una notificación de conformidad con el párrafo 1, podrá
-autorizar en virtud de una licencia especial en cada caso la importación
-de cantidades determinadas de dichas sustancias o de preparados que
-contengan dichas sustancias. La autorización del país importador que
-expida la licencia enviará dos copias de la licencia especial de
-importación, indicando el nombre y dirección del importador y del
-exportador, a la autoridad competente del país o región de exportación, la
-cual podrá entonces autorizar al exportador a que efectúe el envío irá
-acompañado de una copia de la licencia especial de importación,
-debidamente endosada por la autoridad competente del país o región de
-exportación.
+1. Una Parte podrá notificar a todas las demás Partes, por conducto del Secretario General, que prohíbe la importación en su país o en una de sus regiones de una o más de las sustancias de la Lista Segunda, Tercera o Cuarta que especifique en su notificación. En toda notificación de este tipo deberá indicarse el nombre de la sustancia, según su designación en la Lista Segunda, Tercera o Cuarta.
+2. Cuando a una Parte le haya sido notificada una prohibición en virtud del párrafo 1, tomará medidas para asegurar que no se exporte ninguna de las sustancias especificadas en la notificación al país o a una de las regiones de la Parte que haya hecho tal notificación.
+3. No obstante lo dispuesto en los párrafos precedentes, la Parte que haya hecho una notificación de conformidad con el párrafo 1, podrá autorizar en virtud de una licencia especial en cada caso la importación de cantidades determinadas de dichas sustancias o de preparados que contengan dichas sustancias. La autorización del país importador que expida la licencia enviará dos copias de la licencia especial de importación, indicando el nombre y dirección del importador y del exportador, a la autoridad competente del país o región de exportación, la cual podrá entonces autorizar al exportador a que efectúe el envío irá acompañado de una copia de la licencia especial de importación, debidamente endosada por la autoridad competente del país o región de exportación.
