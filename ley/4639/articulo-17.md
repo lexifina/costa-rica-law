@@ -1,1 +1,0 @@
-Artículo 17.- Los ascensos serán promovidos por el Director General a propuesta de la Subdirección General, según la antigüedad, notas obtenidas en los cursos y con base en el Escalafón que al respecto se dicte.
