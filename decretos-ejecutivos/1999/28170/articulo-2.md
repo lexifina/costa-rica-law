@@ -1,0 +1,1 @@
+Artículo 2°—Para conmemorar este día, se organizarán actividades relacionadas con la defensa y fortalecimiento de los valores fundamentales de la sociedad costarricense por parte de las entidades públicas correspondientes, en coordinación con la Comisión Nacional de Rescate y Formación de Valores.
