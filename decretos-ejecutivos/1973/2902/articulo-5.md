@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión tendrá un Directorio integrado por un Presidente que lo será el Ministro de Planificación, un Vicepresidente y tres Vocales, los cuales serán elegidos por simple mayoría por los Representantes de las Instituciones. El Directorio fungirá un año, sus miembros podrán ser reelectos y no devengarán sueldo o dieta alguna.

@@ -1,0 +1,1 @@
+Artículo 4°-La Comisión estará formada por el Gerente y Subgerente, Rector y Vice-rector, Director Ejecutivo y Subdirector Ejecutivo de las Instituciones que, se vinculen y por el Ministro y Jefe del Departamento de Coordinación de la Oficina de Planificación.

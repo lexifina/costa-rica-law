@@ -1,0 +1,1 @@
+Artículo 12.-El Comité de Trabajo podrá integrar Subcomités Especiales para lo cual podrá también solicitar el concurso de funcionarios y técnicos de las Instituciones a través de sus respectivos representantes.

@@ -1,0 +1,1 @@
+Artículo 8°-Créase además un Comité de Trabajo formado por el Jefe de la Unidad Sectorial de Planificación de cada una de las Instituciones miembros y el Jefe del Departamento de Coordinación de la Oficina de Planificación.
