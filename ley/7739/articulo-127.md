@@ -1,1 +1,2 @@
-Artículo 127°- Empleo de medios en audiencia orales. Cuando deban realizarse audiencias orales, la autoridad encargada del caso deberá utilizar los medios tecnológicos u otros a su alcance, para evitar el contacto directo de las personas menores de edad ofendidas con la persona a quien se le atribuye el hecho delictivo. En todo momento se garantizará el debido proceso.
+Artículo 127°- Empleo de medios en audiencia orales.
+Cuando deban realizarse audiencias orales, la autoridad encargada del caso deberá utilizar los medios tecnológicos u otros a su alcance, para evitar el contacto directo de las personas menores de edad ofendidas con la persona a quien se le atribuye el hecho delictivo. En todo momento se garantizará el debido proceso.

@@ -1,1 +1,2 @@
-Artículo 77°- Acceso a servicios de información. El Ministerio de Cultura, Juventud y Deportes y el Ministerio de Educación Pública garantizarán el acceso a las personas menores de edad a los servicios públicos de documentación, bibliotecas y similares, mediante la ejecución de programas y la instalación de la infraestructura adecuada.
+Artículo 77°- Acceso a servicios de información.
+El Ministerio de Cultura, Juventud y Deportes y el Ministerio de Educación Pública garantizarán el acceso a las personas menores de edad a los servicios públicos de documentación, bibliotecas y similares, mediante la ejecución de programas y la instalación de la infraestructura adecuada.

@@ -1,4 +1,5 @@
-Artículo 103°- Destino de las multas. Las multas que se recauden deberán emplearse en la siguiente forma:
+Artículo 103°- Destino de las multas.
+Las multas que se recauden deberán emplearse en la siguiente forma:
 a) El cincuenta por ciento (50%) se destinará a la Dirección Nacional e Inspección General del Trabajo del Ministerio de Trabajo y de Seguridad Social.
 b) Un diez por ciento (10%), al Consejo de Salud Ocupacional.
 c) Un diez por ciento (10%), a la Clínica del Adolescente de la Caja Costarricense de Seguro Social.

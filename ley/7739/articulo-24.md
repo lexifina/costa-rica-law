@@ -1,1 +1,2 @@
-Artículo 24°- Derecho a la integridad. Las personas menores de edad tendrán derecho a que se respete su integridad física, psíquica y moral. Este derecho comprende la protección de su imagen, identidad, autonomía, pensamiento, dignidad y valores.
+Artículo 24°- Derecho a la integridad.
+Las personas menores de edad tendrán derecho a que se respete su integridad física, psíquica y moral. Este derecho comprende la protección de su imagen, identidad, autonomía, pensamiento, dignidad y valores.

@@ -1,4 +1,5 @@
-Artículo 44°- Competencias del Ministerio de Salud. El Ministerio de Salud velará porque se verifique el derecho al disfrute del más alto nivel de salud, el acceso a los servicios de prevención y tratamiento de las enfermedades, así como la rehabilitación de la salud de las personas menores de edad.
+Artículo 44°- Competencias del Ministerio de Salud.
+El Ministerio de Salud velará porque se verifique el derecho al disfrute del más alto nivel de salud, el acceso a los servicios de prevención y tratamiento de las enfermedades, así como la rehabilitación de la salud de las personas menores de edad.
 Para esta finalidad, el Ministerio de Salud tendrá las siguientes competencias:
 a) Asegurar la atención integral de este grupo, procurando la participación activa de la familia y la comunidad.
 b) Garantizar el acceso a los servicios de atención médica de calidad, especializados en niños y adolescentes.

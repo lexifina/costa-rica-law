@@ -1,1 +1,2 @@
-Artículo 61°- Derecho a la publicación técnica. Las personas mayores de quince años que trabajen tendrán derecho a la enseñanza adecuada a sus condiciones y habilidades laborales. El Instituto Nacional de Aprendizaje diseñará programas de capacitación técnica, dirigidos especialmente a esta población.
+Artículo 61°- Derecho a la publicación técnica.
+Las personas mayores de quince años que trabajen tendrán derecho a la enseñanza adecuada a sus condiciones y habilidades laborales. El Instituto Nacional de Aprendizaje diseñará programas de capacitación técnica, dirigidos especialmente a esta población.

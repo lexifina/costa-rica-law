@@ -1,1 +1,2 @@
-Artículo 63°- Divulgación de derechos y garantías. Las autoridades de los centros de enseñanza divulgarán entre los docentes, educandos y el personal administrativo, los derechos y las garantías de las personas menores de edad.
+Artículo 63°- Divulgación de derechos y garantías.
+Las autoridades de los centros de enseñanza divulgarán entre los docentes, educandos y el personal administrativo, los derechos y las garantías de las personas menores de edad.

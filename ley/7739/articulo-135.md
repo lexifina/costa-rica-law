@@ -1,4 +1,5 @@
-Artículo 135°- Medidas de protección. Las medidas de protección que podrá dictar la oficina local del Patronato Nacional de la Infancia serán:
+Artículo 135°- Medidas de protección.
+Las medidas de protección que podrá dictar la oficina local del Patronato Nacional de la Infancia serán:
 a) Orientación, apoyo y seguimiento temporal a la familia.
 b) Matrícula y asistencia obligatorias en establecimientos oficiales de enseñanza.
 c) Inclusión en programas oficiales o comunitarios de auxilio a la familia, y a las personas menores de edad.

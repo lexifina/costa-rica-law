@@ -1,4 +1,5 @@
-Artículo 98°- Requisitos del registro. Para los efectos del artículo anterior, todo patrono que ocupe los servicios de adolescentes mayores de quince años, deberá llevar un registro donde consten los siguientes datos del menor:
+Artículo 98°- Requisitos del registro.
+Para los efectos del artículo anterior, todo patrono que ocupe los servicios de adolescentes mayores de quince años, deberá llevar un registro donde consten los siguientes datos del menor:
 a) El nombre y los apellidos.
 b) La edad. El Registro Civil expedirá, libres de derechos fiscales, las certificaciones que le soliciten para este fin, cuando el menor no posea carné de identidad.
 c) El número de tarjeta de identificación.

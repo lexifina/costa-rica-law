@@ -1,1 +1,2 @@
-Artículo 118°- Prevención por el juez. En todos los actos procesales se evitará el ritualismo. El juez prevendrá a las partes el cumplimiento de las formas procesales que se exigen en los casos expresamente establecidos en este Código.
+Artículo 118°- Prevención por el juez.
+En todos los actos procesales se evitará el ritualismo. El juez prevendrá a las partes el cumplimiento de las formas procesales que se exigen en los casos expresamente establecidos en este Código.

@@ -1,1 +1,2 @@
-Artículo 15°- Derecho al libre tránsito. Toda persona menor de edad tendrá el derecho de permanecer en el país, transitar por sitios públicos y espacios comunitarios y recrearse sin más restricciones que las dispuestas en este Código y cualquier otra disposición legal, como las derivadas del ejercicio de la autoridad parental y las obligaciones escolares de los estudiantes.
+Artículo 15°- Derecho al libre tránsito.
+Toda persona menor de edad tendrá el derecho de permanecer en el país, transitar por sitios públicos y espacios comunitarios y recrearse sin más restricciones que las dispuestas en este Código y cualquier otra disposición legal, como las derivadas del ejercicio de la autoridad parental y las obligaciones escolares de los estudiantes.

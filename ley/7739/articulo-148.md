@@ -1,1 +1,2 @@
-Artículo 148°- Confirmación de medidas. Si la medida acordada fuere de las previstas en el artículo 137 y eljuez la confirmare, en el mismo acto ordenará iniciar el proceso correspondiente para resolver, en forma definitiva la situación presentada.
+Artículo 148°- Confirmación de medidas.
+Si la medida acordada fuere de las previstas en el artículo 137 y el juez la confirmare, en el mismo acto ordenará iniciar el proceso correspondiente para resolver, en forma definitiva la situación presentada.
