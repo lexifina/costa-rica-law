@@ -1,0 +1,2 @@
+14. Derogatorios
+El presente Reglamento deroga cualquier otra disposición de la misma naturaleza que se le oponga y específicamente el Reglamento de Procedimientos para el Pago del Servicio Ambiental Hídrico de la ESPH S. A. publicado en el Diario Oficial La Gaceta N° 205 del jueves 25 de octubre del año 2001 y sus modificaciones publicadas en el mismo Diario Oficial N° 191 del viernes 4 de octubre del año 2002.

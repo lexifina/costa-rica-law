@@ -1,0 +1,24 @@
+Expediente Nº _____
+ANEXO 1
+BOLETA PRESOLICITUD
+Pago por Servicio Ambiental Hídrico
+Nombre del propietario, sociedad u organización: _____________________________________
+Número de cédula de identidad: ___________________________________________________
+Número de cédula jurídica: _______________________________________________________
+Domicilio: _____________________________________________________________________
+Teléfono y/o fax (especificar): _____________________________________________________
+Para sociedades u organizaciones únicamente
+Nombre del representante legal: ___________________________________________________
+Número de cédula de identidad: ___________________________________________________
+Domicilio: _____________________________________________________________________
+Teléfono y/o fax (especificar): _____________________________________________________
+Ubicación exacta del inmueble por coordenadas: _____________________________________
+Área total del inmueble: __________________________________________________________
+Área que se desea someter al pago por servicio ambiental hídrico: _______________________
+Modalidad de manejo:
+_______Conservación _______Reforestación _______Regeneración natural _____Plantaciones
+Lugar para notificaciones: ________________________________________________________
+_________________________________ ________________________________
+Firma Fecha
+Para proyectos globales se deberá presentar toda esta información para cada propietario.
+Adjuntar: Copia del plano catastral de la propiedad. Copia de cédula de identidad y/o cédula jurídica cuando corresponda.
