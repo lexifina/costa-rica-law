@@ -9,3 +9,7 @@ operaciones, sin intereses sobre los intereses acumulados.
 Los intereses moratorios, a partir del período de gracia, no
 contemplados en esta Ley, para los productores definidos en el párrafo
 anterior, se cobrarán de conformidad con la tasa comercial de los bancos.
+(NOTA: la interpretación auténtica que sobre este numeral efectuaba
+el artículo 1º de la ley Nº 7305 de 22 de julio de 1992, fue ANULADA por
+resolución de la Sala Constitucional No.4410-95 de las 9:00 hrs. del 11
+de agosto de 1995)
