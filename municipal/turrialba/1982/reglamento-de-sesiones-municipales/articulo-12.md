@@ -1,0 +1,1 @@
+12) Las actas municipales contendrán específicamente los acuerdos tomados y las correcciones que se hicieran en la sesión inmediata. Asimismo, se incluirá el voto razonado cuando el regador así lo pidiese.
