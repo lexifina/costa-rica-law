@@ -14,3 +14,4 @@ Reforma Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-08-20 | la propia norma |
+| 2 | 1977-09-20 | Decreto Ejecutivo 7736 (1977-09-20) |

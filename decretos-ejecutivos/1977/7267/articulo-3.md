@@ -1,6 +1,9 @@
 Artículo 3°—Establécese la Reserva Indígena de Cocles:
-RESERVA INDÍGENA DE-COCLES
-Esta Reserva se encuentra en las hojas del Instituto Geográfico Nacional Amubri 3644 TV y Sixaola 3644 I, y se localiza por los puntos cuyos rumbos, anclas y coordenadas son:
+RESERVA INDÍGENA DE COCLES
+La Reserva Indígena de Cocles se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 36 44 IV y Sixaola 36 44 I.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
+La Reserva se localiza como sigue:
+Partiendo de un punto en la playa, coordenadas N 399 325, E 604 150, se continúa con los siguientes rumbos, distancias y coordenadas:
 S Franco | 1 225.00 | 398 100 | 604 150
 S 32 32 W | 1 097.14 | 397 175 | 603 560
 S 15 20 E | 907.32 | 396 300 | 603 800

@@ -1,6 +1,10 @@
 Artículo 2°—Establécese la Reserva Indígena de Nimari-Bukeri:
 RESERVA INDÍGENA DE NIMARI-BUKERI
-La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IV y Tucurrique 34451 y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IB y Tucurrique 3445 I y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
+(*)La Reserva se localiza como sigue:
+Partiendo de la unión del río Pacuare con la quebrada Salpuri, en coordenadas N 207 150, E 589 000, se sigue aguas arriba por la quebrada Salpuri hasta un punto en coordenadas N 208 050, E 590 025. De este punto se continúa con los siguientes rumbos, distancias y coordenadas:
+(*) (Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
 N 13 38 E | 1 697.79 | 209 700 | 590 425
 N 37 23 W | 2 265.09 | 211 500 | 589 050
 N 37 05 E | 1 078.01 | 212 360 | 589 700
