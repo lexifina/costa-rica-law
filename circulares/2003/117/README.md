@@ -13,3 +13,4 @@ Reiteración de la Circular N° 26-95, "Aspectos que deben observarse para mejor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-05 | la propia norma |
+| 2 | 2003-12-16 | Circular 148 (2003-12-16) |
