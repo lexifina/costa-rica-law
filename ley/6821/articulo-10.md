@@ -1,2 +1,3 @@
 Artículo 10.- Ninguna institución del Sector Público, excepto las del Sector Financiero Bancario, podrá negociar préstamos externos sin la autorización previa de la Autoridad Presupuestaria.
 Para los efectos de este artículo, la Autoridad Presupuestaria deberá pronunciarse en un término no mayor de diez días hábiles.
+(La Sala Constitucional mediante resolución N° 6345 del 06 de octubre de 1997, dispuso respecto a este artículo que: “…sólo puede y debe interpretarse y aplicarse de conformidad con la sentencia de esta Sala # 330994 de las 15:00 horas del 5 de julio de 1994, con la advertencia de que las potestades de dirección y de coordinación allí previstas deben entenderse en todo caso reservadas al Poder Ejecutivo -Presidente de la República y Ministro del ramo…”.)
