@@ -1,0 +1,1 @@
+Artículo 33.—En cualquier momento del debate podrán presentarse mociones de orden, las que suspenderán el debate hasta tanto no sea discutida y votada por el Concejo. Sobre una moción de orden no se admite otra que pretenda posponerla.

@@ -1,0 +1,1 @@
+Artículo 51.—Los gastos por transporte mencionados en el artículo anterior se pagarán de acuerdo a la tarifa que para las diferentes rutas de autobuses ha establecido el MOPT. El servicio de taxi debe ser autorizado previamente.

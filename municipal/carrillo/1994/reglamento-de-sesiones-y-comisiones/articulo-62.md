@@ -1,0 +1,1 @@
+Artículo 62.—Para ausentarse temporalmente de la sesión municipal cualquier regidor o síndico propietario y suplente deben pedir permiso al presidente, quien indicará el término para reincorporarse a la sesión.

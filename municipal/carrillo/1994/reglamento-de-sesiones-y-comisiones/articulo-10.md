@@ -1,0 +1,1 @@
+Artículo 10.—Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes de la hora señalada al efecto, conforme con el reloj del despacho. Pasados los quince minutos anteriores, de no haber quórum constancia en el Libro de Actas y se consignará el nombre de regidores y síndicos presentes. A falta de reloj en el salón, bastará el del señor presidente.

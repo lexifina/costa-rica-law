@@ -1,0 +1,2 @@
+Artículo 36.-El presidente concederá el uso de la palabra en el orden que se lo soliciten los regidores y síndicos propietarios y suplentes hasta por cinco minutos para referirse a cualquier asunto en discusión excepto para discutir mociones de orden.
+Tendrán derecho a participar en dos ocasiones sobre un mismo asunto. El presidente podrá pedir a los regidores que se concreten al punto en debate y en caso de renuencia, podrá retirarle el uso de la palabra.

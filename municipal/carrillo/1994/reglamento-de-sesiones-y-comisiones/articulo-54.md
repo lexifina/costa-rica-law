@@ -1,0 +1,1 @@
+Artículo 54.—Si se presentan memoriales que dirijan los particulares a la Municipalidad , la secretaria los examinará y si resulta que lo solicitado es de competencia del Ejecutivo, lo enviará a dicho funcionario para que le dé el trámite que le corresponde. De lo anterior se informará a los firmantes.

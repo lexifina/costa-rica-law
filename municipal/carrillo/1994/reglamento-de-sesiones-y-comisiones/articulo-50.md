@@ -1,0 +1,1 @@
+Artículo 50.—Se acuerda crear y mantener partida presupuestaria para darle contenido a los gastos por transporte a regidores y síndicos propietarios y suplentes que por vivir fuera de la sede municipal deban trasladarse para asistir a las sesiones del Concejo.
