@@ -1,0 +1,19 @@
+Nº 8319
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+(Ratificado por decreto ejecutivo N° 30855 de de 20 de noviembre de 2002)
+Artículo único.—Apruébase, en cada una de las partes, la Enmienda al Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala-, adoptado en la Cumbre Extraordinaria de Presidentes Centroamericanos, celebrada en Managua, Nicaragua, el 27 de febrero del 2002. El texto es el siguiente:
+"ENMIENDA AL PROTOCOLO AL TRATADO GENERAL DE INTEGRACIÓN ECONÓMICA CENTROAMERICANA -PROTOCOLO DE GUATEMALA- LOS PRESIDENTES DE COSTA RICA, EL SALVADOR, GUATEMALA, HONDURAS Y NICARAGUA
+CONSIDERANDO:
+Que el 29 de octubre de 1993, los Presidentes Centroamericanos suscribieron en la ciudad de Guatemala, República de Guatemala, el Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala- el cual se encuentra vigente para todos los Estados Parte del Tratado General de Integración Económica Centroamericana desde el 19 de mayo de 1997.
+Que en el artículo 37 del Protocolo de Guatemala se establecen los órganos e instituciones que conforman el Subsistema de Integración Económica Centroamericana.
+Que de conformidad con el artículo 38 del referido Protocolo "el Consejo de Ministros de Integración Económica estará conformado por los Ministros de los Gabinetes Económicos y los Presidentes de los Bancos Centrales de los Estados Parte, que se denominará también Gabinete Económico Centroamericano";
+Que la XIX Cumbre de Presidentes Centroamericanos, mediante Resolución adoptada en Panamá, República de Panamá, el 12 de julio de 1997, decidió designar a los Ministros de Economía para que, en representación de los Gabinetes Económicos Nacionales, integren el Consejo de Ministros de Integración Económica a que se refiere el artículo 37, numeral 2, literal a), del Protocolo de Guatemala, y cumplan las funciones de dicho Consejo;
+Que conforme el artículo transitorio IV del Protocolo de Guatemala "La suscripción por Panamá del presente Protocolo, no producirá efecto alguno en sus relaciones económicas y comerciales con las otras Partes, en las materias a que se refiere dicho instrumento, mientras aquel país y los restantes Estados Signatarios, no establezcan, en cada caso, los términos, plazos, condiciones y modalidades de la incorporación de Panamá en el proceso centroamericano de integración económica y los términos de su aprobación y vigencia."
+Que es necesario adecuar el Protocolo de Guatemala a las nuevas realidades del proceso de integración, con el fin de dotar al Subsistema de Integración Económica de mecanismos de funcionamiento claros, ágiles y jurídicamente viables, que permitan impulsar la política de integración económica en la región y ejecutar las decisiones presidenciales en materia económica, en los términos del artículo 18 del Protocolo de Tegucigalpa;
+POR TANTO:
+Con base en las facultades que les confiere el artículo 15 del Protocolo de Tegucigalpa a la Carta de la Organización de Estados Centroamericanos (ODECA), deciden reformar el Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala- suscrito el 29 de octubre de 1993, por medio del presente Protocolo, a cuyo efecto convienen:
+Artículo 1º—Se modifica el artículo 38 el cual queda como sigue:
+Artículo 38
+1.—El Consejo de Ministros de Integración Económica estará conformado por el Ministro que en cada Estado Parte tenga bajo su competencia los asuntos de la integración económica y tendrá a su cargo la coordinación, armonización, convergencia o unificación de las políticas económicas de los países.
+2.—El Consejo de Ministros de Integración Económica, constituido de conformidad con el párrafo anterior, subroga en sus funciones al Consejo Arancelario y Aduanero Centroamericano y a todos los demás órganos creados en instrumentos precedentes a este Protocolo en materia de integración económica centroamericana.
