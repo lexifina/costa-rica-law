@@ -1,0 +1,3 @@
+Artículo 4º.-Modifíquese el artículo 11 de la ley Nº 7375 del 17 de
+diciembre de 1993, Relación de Puestos de Servicios Especiales, en la
+forma que a continuación se indica: ...
