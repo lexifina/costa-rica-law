@@ -1,0 +1,3 @@
+Artículo 10º.- Los siguientes Decretos Ejecutivos quedan derogados: número 3720-H de 29 de abril de 1974, número 3894-H de 19 de junio de 1974, número 3923-H de 29 de junio de 1974 y número 4057-H de 26 de agosto de 1974.
+(Corrida su numeración por el decreto ejecutivo Nº 15524 de 14 de junio de 1984, el cual agregó el artículo 2º, por lo cual este artículo pasó de ser número 9 a número 10 actual).
+Artículo Transitorio.- En lo que corresponde a las exportaciones efectuadas durante el período comprendido entre el 20 de abril de 1974 y la fecha en que entre en vigor el presente decreto, seguirá vigente el sistema de cobro establecido en el Decreto Ejecutivo Nº 3923-H de 29 de junio de 1974.

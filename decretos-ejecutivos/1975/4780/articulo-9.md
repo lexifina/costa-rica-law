@@ -1,0 +1,2 @@
+Artículo 9º.- La compañía compradora de banano que adquiera fruta de su productor deberá entregar a éste un comprobante de la compra en donde conste cantidad y precio y remitir copia del mismo al Banco Central de Costa Rica.
+(Corrida su numeración por el decreto ejecutivo Nº 15524 de 14 de junio de 1984, el cual agregó el artículo 2º, por lo cual este artículo pasó de ser número 8 a número 9 actual)
