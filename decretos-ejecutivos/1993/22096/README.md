@@ -14,3 +14,4 @@ Reglamento Lotería Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-07 | la propia norma |
+| 2 | 1993-04-07 | SINALEVI (sin norma nombrada) |
