@@ -7,7 +7,8 @@ Los países en cuya representación se firma el presente Convenio acuerdan crear
 ARTICULO I
 OBJETO Y FUNCIONES
 Sección 1.- Objeto.
-El Banco tendrá por objeto contribuir a acelerar el proceso de desarrollo económico, individual y colectivo, de los países miembros.
+El Banco tendrá por objeto contribuir a acelerar el proceso de desarrollo económico y social, individual y colectivo, de los países miembros regionales en vías de desarrollo.
+(Así reformada la sección 1) anterior por el artículo 1° de la ley N° 5877 del 12 de enero de 1976)
 Sección 2.- Funciones.
 (a) Para el cumplimiento de su objeto el Banco ejercerá las siguientes funciones:
 i) Promover la inversión de capitales públicos y privados para fines de desarrollo;
