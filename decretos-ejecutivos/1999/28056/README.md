@@ -14,3 +14,4 @@ De Interés Nacional Congreso Prevención y Tratamiento Consumo Drogas Actividad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-23 | la propia norma |
+| 2 | 1999-08-23 | Ley 7 |
