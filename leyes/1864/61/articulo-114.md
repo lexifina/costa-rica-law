@@ -1,0 +1,1 @@
+Artículo 114.-Adem s del libro de listas prevenido en el artículo 92, la Directora llevar otro de cargo y descargo de los objetos que le entregasen los parroquianos de la casa, sin perjuicio de los recibos que a su vez debe dar y recoger.

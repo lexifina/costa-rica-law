@@ -1,0 +1,1 @@
+Articulo 71.-Son trabajos que pueden practicarse en el establecimiento los de cocina y demás propiamente domésticos: el lavado y planchado de ropa, costura, bordado, tejido de medias y encajes, limpia o escogida de café‚, fabricación de pan y tortillas y cualesquiera labores de manos y oficios productivos y propios de la mujer.

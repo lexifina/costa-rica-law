@@ -1,0 +1,1 @@
+Artículo 37.-Mientras se construyen en el establecimiento enfermerías formales cuando una necesidad urgente lo demanda y los recursos lo permitan, el Médico designar los cuartos que deben servir a tal objeto.

@@ -1,0 +1,1 @@
+Artículo 109.-También llevar el Alcaide un diario para consignar cuanto ocurra de alguna importancia en el establecimiento, y especialmente la entrega de alguna reo en el caso del artículo 49, cuya diligencia que hará fe‚ en juicio, debe firmarse por el que verifica dicha entrega, si supiere, y dos testigos. -Todos los asientos del diario deben firmarse también por ‚l Alcaide.

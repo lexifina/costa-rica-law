@@ -1,0 +1,1 @@
+Artículo 24.-Se les prohíbe también sacar ventaja alguna especial del trabajo de las mujeres, y ocuparlas separada o gratuitamente en objetos de su particular interés. Exceptuase la Directora, quien puede designar dentro de las condenadas a arresto una asistente para su persona.

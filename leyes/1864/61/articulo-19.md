@@ -1,0 +1,1 @@
+Artículo 19.-Los alguaciles han de ser hombres sobrios, honrados, inteligentes y subordinados. -El alguacilazgo puede recaer, por economía, en soldados de la guardia, o bien los alguaciles hacer fatiga de soldado.

@@ -1,0 +1,1 @@
+Artículo 38.-El edificio ha de barrerse diariamente y sus basureros evacuarse el s bado de cada semana.- El Alcaide cuidar de ello, y la Directora del barrio y completo aseo del departamento interior.

@@ -1,0 +1,1 @@
+Artículo 102.-La Directora procurar cumplir exactamente los compromisos que contrajere en nombre del establecimiento, y que el lavado, planchado, costuras y demás labores, se hagan con perfección, no admitiendo obras que la habilidad de las trabajadoras no alcance a desempeñar a satisfacción de los interesados, o que no puedan entregarse en el término que ‚estos señalen.

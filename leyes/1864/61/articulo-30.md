@@ -1,0 +1,1 @@
+Artículo 30.-Salvo el caso de ausencia momentoánea, la persona llamada a suplir las faltas accidentales de algún empleado de la casa, debe tener las mismas calidades legales que ‚este, y le incumben las mismas facultades, obligaciones y derechos.

@@ -1,0 +1,1 @@
+Artículo 32.-Las faltas de igual entidad cometidas por los demás empleados del establecimiento, ser n castigadas por el Alcaide con reprensión por primera vez, y cada una de las demás con encierro de seis a cuarenta y ocho horas, sentándose en el diario la providencia respectiva.

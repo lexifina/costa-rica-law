@@ -1,0 +1,1 @@
+Artículo 36.-El Director de obras públicas cuidar de que se practiquen sucesivamente, con oportunidad y economía, aquellas separaciones que fueren indispensables a la conservación del edificio en su estado actual, y los encalamientos que demanda su salubridad y decencia, o que prevengan los reglamentos urbanos.

@@ -1,0 +1,1 @@
+Artículo 69.-Son días de trabajo en el establecimiento todos los que no fueren de asueto, y son de asueto los que la Iglesia señala como de guarda entera; el 15 de Setiembre, aniversario de la independencia y el 30 de agosto, aniversario de la República.

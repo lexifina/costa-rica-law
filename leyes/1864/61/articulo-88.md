@@ -1,0 +1,1 @@
+Artículo 88.-Son prisiones permitidas para impedir la fuga de las reas que propendieren a ella, encierro, grillete, grillos y poste; pero no deben usarse sin orden escrita del Juez de la causa, o del Gobernador, respecto de las rematadas, a no ser por disposición del Alcaide en casos de perentoria urgencia, y dando incontinenti parte a la autoridad respectiva.

@@ -1,0 +1,1 @@
+Artículo 45.-El manejo de las demás llaves de dicho departamento corresponde también a la Directora, quien, bajo su responsabilidad, puede confiar todas las que son a su cargo, a su asistente o cualquiera celadora.
