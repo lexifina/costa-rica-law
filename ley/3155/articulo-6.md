@@ -1,0 +1,1 @@
+Artículo 6º.- El Ministerio de Obras Públicas y Transportes podrá adquirir, por compraventa directa o por medio de expropiación, bienes muebles e inmuebles siguiendo el procedimiento establecido en la ley Nº 1851 de 28 de febrero de 1955. No obstante podrá efectuar avalúos directamente cuando los valores sean inferiores a ¢ 10,000.00 a juicio del Ministerio.
