@@ -1,0 +1,2 @@
+Articulo 14. De la revisión del expediente: Una vez que el Notario reciba el correspondiente expediente debe realizar y verificar bajo su responsabilidad, todos los estudios regístrales necesarios y propios para cada escritura.
+De previo a la formalización de un acto notarial el notario deberá informar a la Asesoría Jurídica acerca de los problemas que afectan el otorgamiento e inscripción de esa escritura pública y solicitará las instrucciones del caso para continuar o suspender el acto notarial.

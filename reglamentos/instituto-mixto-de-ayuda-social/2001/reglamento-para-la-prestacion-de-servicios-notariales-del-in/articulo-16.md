@@ -1,0 +1,5 @@
+Artículo 16.—Del plazo para la inscripción del acto notarial:
+Corresponderá a los notarios externos presentar las escrituras otorgada ante el diario del Registro Público, para su debida inscripción dentro de los cinco días hábiles siguientes a su firma por todas las partes comparecientes.
+El Notario deberá velar porque la inscripción del documento se realice dentro de los dos meses naturales siguientes a su presentación ante el Registro Público.
+Si transcurridos dos meses naturales el Notario no ha entregado el testimonio de la escritura debidamente inscrito ante Asesoría Jurídica deberá justificar por escrito tal situación, con el fin de que ésta unidad administrativa determine las acciones a seguir.
+Esta justificación deberá detallar el motivo por el cual no ha sido inscrita la escritura e incluir una estimación del plazo que tardará en quedar debidamente inscrito el documento respectivo la justificación del notario deberá ser acompañada de la documentación necesaria para acreditar su dicho.

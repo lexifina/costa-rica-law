@@ -1,0 +1,2 @@
+Articulo 10. De los responsables del orden de asignación de actos: El Asesor Jurídico General designará al menos un funcionario responsable de llevar el control de la distribución de los actos notariales.
+Para tal efecto, el IMAS deberá establecer los sistemas informáticos necesarios que garanticen el control, seguimiento y libre acceso de la información que se genere con relación a los actos notariales asignados a los Notarios contratados.

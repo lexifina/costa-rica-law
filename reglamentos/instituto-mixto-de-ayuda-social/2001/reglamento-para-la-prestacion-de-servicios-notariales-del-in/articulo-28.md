@@ -1,0 +1,1 @@
+Articulo 28. Del cumplimiento del debido proceso: Para efectos de determinación de la responsabilidad de los Notarios y la eventual suspensión o resolución contractual, se empleara el procedimiento establecido en la Ley de Contratación Administrativa y el Reglamento General de la Contratación Administrativa.

@@ -1,0 +1,10 @@
+Articulo 6°—De las responsabilidades de la Asesoría Jurídica:
+Para el cumplimiento de lo dispuesto en el presente reglamento, son responsabilidades de la Asesoría Jurídica:
+Asignar los actos notariales regulados por el presente reglamento a los notarios, de conformidad con el rol establecido al efecto.
+Ordenar los actos notariales a ser formalizados, de manera tal que sean asignados a los notarios en forma racional, equitativa y funcional. Para tal efecto, los actos podrán ser agrupados por proyectos o por conexidad entre ellos, con el Un de que se le asignen al Notario que le corresponda en el rol dispuesto al electo.
+Instruir a los Notarios contratados sobre aquellas cláusulas, términos y condiciones que se deben establecer en los actos notariales que les sean asignados.
+Ejercer control de los actos notariales realizados, velando por que los notarios cumplan con sus obligaciones para con la Institución, según lo dispuesto en el presente Reglamento y el respectivo contrato de servicios profesionales.
+Ser el Órgano Director del Procedimiento para lodos aquellos casos que se requieran en virtud de la aplicación del capítulo 5 del presente reglamento.
+Establecer los instrumentos, procedimientos y controles necesarios para garantizar una adecuada asignación de los notarios contratados, así como el seguimiento y control en la inscripción de los documentos asignados.
+Poner en conocimiento de la Dirección Nacional de Notariado y del Consejo Directivo del IMAS aquellos casos de actos notariales que presenten defectos graves con motivo de la negligencia o dolo de los Notarios y que afecten los intereses de la Institución o sus beneficiarios, o de cualesquiera otras situaciones que lo ameriten y que sean consecuencia de la prestación de la función notarial.
+Para el cumplimiento de dichas funciones, la Asesoría Jurídica coordinará con el Área responsable de los procesos de titulación y entrega de lotes con servicios a beneficiarios, el ordenamiento y distribución de tus actos notariales a realizar.

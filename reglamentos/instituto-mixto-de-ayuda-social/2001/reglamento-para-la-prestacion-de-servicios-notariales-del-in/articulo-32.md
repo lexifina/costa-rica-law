@@ -1,0 +1,1 @@
+Articulo 32. -De los coslos no cubiertos por el IMAS: Los costos por concepto de estudios regístrales, fotocopias, combustible, viáticos, y en general todo costo administrativo u operativo del Notario no serán cubiertos por el IMAS.

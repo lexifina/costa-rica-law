@@ -1,0 +1,2 @@
+Articulo 27.—Distribución del trabajo por suspensión. Cuando un notario sea suspendido del rol de servidos notariales, los trabajos notariales pendientes que le fueron asignados antes de la fecha de su comunicación serán reasignados e incorporados al rol de notarios. No
+obstante, la Asesoría Jurídica por rabones de conveniencia institucional podrá determinar que el notario suspendido concluya los trabajos previamente asignados.

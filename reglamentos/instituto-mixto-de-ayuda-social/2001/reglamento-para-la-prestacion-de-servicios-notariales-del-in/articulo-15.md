@@ -1,0 +1,3 @@
+Articulo 15.—De las prorrogas: Cuando el Notario se vea imposibilitado para realizar el trabajo que se le asignó antes del vencimiento de los plazos, indicados en el artículo anterior, deberá presentar la justificación ante la Asesoría Jurídica.
+Esta justificación será evaluada por el Asesor Jurídico General con el fin de que se determine la procedencia de la explicación del notario y consecuentemente la autorización de la prórroga solicitada hasta por un tanto igual.
+En caso de no ser aceptada la justificación, el caso se reasignará al Notario que continúe dentro del orden establecido al electo por la Asesoría Jurídica.

@@ -1,0 +1,2 @@
+Articulo 3°—De Ia contratación y nombramiento de los notarios públicos: Los contratos de los Notarios Públicos que el IMAS efectúe en virtud de la aplicación del presente reglamento, se formalizarán mediante los procedimientos de contratación establecidos en la Ley de Contratación Administrativa.
+La adjudicación de los Notarlos Públicos será realizada por el Consejo Directivo, salvo que por el monto de la contratación, dicha designación sea responsabilidad de otra instancia administrativa.

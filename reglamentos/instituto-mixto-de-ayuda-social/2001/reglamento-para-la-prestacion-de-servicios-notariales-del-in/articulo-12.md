@@ -1,0 +1,3 @@
+Articulo 12.—De la formalización de los actos notariales asignados: Para la formalización de los actos notariales asignados, el Notario responsable deberá coordinar con las Gerencias Regionales del IMAS la localización de los beneficiarios comparecientes.
+Para tal fin, la Asesoría Jurídica coordinará con las Gerencias Regionales y Notarios los medios de comunicación que garanticen a éstos la idealización oportuna de los beneficiarios.
+En principio, todo acto notarial se formalizará en las oficinas del IMAS tanto en el ámbito central como desconcentrado o en las oficinas del respectivo Notario, de conformidad con la coordinación que al efecto se realice.
