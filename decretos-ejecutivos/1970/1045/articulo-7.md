@@ -1,0 +1,1 @@
+Artículo 7°-La falta de cumplimiento de las obligaciones que se especifican en los incisos II) y m) del artículo 2° de este decreto, dentro de los plazos que en los mismos se han fijado, se tendrá por renuncia irrevocable del Empresario a los beneficios u obligaciones que se especifican en este decreto, el cual por ese hecho quedará caduco.
