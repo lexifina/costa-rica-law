@@ -15,3 +15,4 @@ Reglamento Ley Forestal
 | --- | --- | --- |
 | 1 | 1973-04-24 | la propia norma |
 | 2 | 1973-07-09 | Decreto Ejecutivo 3074 (1973-07-09) |
+| 3 | 1977-07-22 | Decreto Ejecutivo 7237 (1977-07-22) |
