@@ -1,0 +1,1 @@
+Artículo 3º.- Autorizase al Consejo para que efectúe gastos y contraiga, dentro o fuera del país, las obligaciones que sean necesarias para su participación en el programa de "Defensa de los Recursos Agropecuarios de la Zona del Pacífico Seco", elaborado por el Ministerio de Agricultura y Ganadería, así como en cualquiera otros planes ulteriores a desarrollar en el país.
