@@ -1,0 +1,1 @@
+Artículo 7°—Este programa se enmarca dentro de los objetivos primordiales del Instituto Nacional de Recursos Naturales; y Conservación Ambiental (INDERENA), que, una vez constituido, absorberá íntegramente este programa.
