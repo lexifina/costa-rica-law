@@ -1,0 +1,1 @@
+Artículo 2º—Con el propósito de que los establecimientos comerciales tomen las medidas pertinentes para poner en práctica este decreto, se concede un plazo de dos meses calendario contados a partir de la entrada en vigencia de su publicación.
