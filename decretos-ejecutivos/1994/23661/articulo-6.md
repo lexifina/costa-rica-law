@@ -1,0 +1,1 @@
+Artículo 6°.- El taller Nacional de teatro estará Regido por un consejo directivo compuesto por el Ministro de cultura, juventud y deportes o su representante, y cuatro miembros de su libre nombramiento. durarán en su cargo dos años, pudiendo ser reelectos. las sustituciones lo serán por el resto del periodo.

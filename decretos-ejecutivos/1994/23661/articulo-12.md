@@ -1,0 +1,1 @@
+Artículo 12.- El personal de Taller Nacional de Teatro coma estará sujeto en su relación de trabajo a las disposiciones contenidas en el reglamento interior de trabajo del Ministerio de Cultura, Juventud y Deportes, excepto en lo correspondiente a horarios para personal docente, extremos en los que se estará a lo que contractualmente se establezca para ese personal.

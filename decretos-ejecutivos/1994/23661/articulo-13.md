@@ -1,0 +1,1 @@
+Artículo 13.- Se deroga el decreto ejecutivo número 7505 - c dado en la Presidencia de la República el 22 de septiembre de 1977, publicado en “ La Gaceta” número 190 del 7 de octubre de 1977 y el artículo 8, inciso b) del decreto ejecutivo número 22767 - dado en la Presidencia de la República el 6 de diciembre de 1993, publicado en “La Gaceta” N° 5 del 7 de enero de 1994.
