@@ -14,3 +14,4 @@ Reglamento Ley sobre el Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-01-01 | la propia norma |
+| 2 | 1968-08-06 | Decreto Ejecutivo 30 (1968-08-06) |
