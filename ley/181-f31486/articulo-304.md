@@ -1,6 +1,3 @@
 CAPITULO V
 Personal auxiliar
-Artículo 304.- Integran el personal auxiliar del Colegio, el
-Secretario, los Inspectores, el Médico y sus auxiliares, los ayudantes
-de Laboratorio, los Porteros y los demás empleados que requiera la buena
-marcha del plantel.
+Artículo 304.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

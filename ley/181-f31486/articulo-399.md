@@ -1,3 +1,1 @@
-Artículo 399.- Para ser miembro de las Juntas se requieren las
-mismas cantidades exigidas en el artículo 7º de la Ley de Organización
-Municipal de 9 de noviembre de 1909.
+Artículo 399.- .-(Derogado por el artículo 49° de la Ley Fundamental de Educación, Nº 2160 de 25 de setiembre de 1957)

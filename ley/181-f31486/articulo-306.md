@@ -1,8 +1,1 @@
-Artículo 306.- Habrá el número de Inspectores que demande el
-servicio de Inspección. Ellos tendrán a su cuidado la supervigilancia
-del plantel en todo lo que se relaciona con el servicio interior, y
-serán activos colaboradores en lo relacionado con los servicios
-administrativos del establecimiento, la educación de los alumnos, y
-atenderán especialmente los asuntos disciplinarios.
-Sus funciones y obligaciones se detallarán en el Reglamento
-Interior del Colegio.
+Artículo 306.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

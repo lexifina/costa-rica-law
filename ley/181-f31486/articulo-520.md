@@ -1,7 +1,1 @@
-Artículo 520.- La Sección de Etnografía pondrá empeño en
-incrementar y conservar las colecciones arqueológicas precolombinas, así
-como la colecciones de objetos de arte, culto, industria, educación,
-armas, vestuario, mobiliario, cuadros y otras piezas de interés
-histórico pertenecientes a la época colonial o a la republicana, tendrá
-a su cargo la Biblioteca de Etnografía del Museo Nacional y velará por
-el mejoramiento del mapa etnográfico precolombino.
+Artículo 520.- .-(Derogado por el artículo 7° de la ley N° 1542 de 7 de marzo de 1953, “Adscripción del Museo Nacional y del Parque Bolívar a Ministerios”)

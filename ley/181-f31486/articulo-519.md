@@ -1,5 +1,1 @@
-Artículo 519.- La Sección de Geología tratará de enriquecer más y
-de conservar debidamente las colecciones mineralógicas, litológicas y
-paleontológicas; cuidará de la Biblioteca de Geología y el laboratorio
-de análisis mineralógicos y procurará el mejoramiento del Mapa Geológico
-Nacional.
+Artículo 519.- .-(Derogado por el artículo 7° de la ley N° 1542 de 7 de marzo de 1953, “Adscripción del Museo Nacional y del Parque Bolívar a Ministerios”)

@@ -1,4 +1,1 @@
-Artículo 318.- Por cada uno de los exámenes a que se refieren los
-tres artículos anteriores se pagarán cinco colones anticipados en la
-Secretaría del Colegio. Este derecho será distribuído entre los
-profesores que, por encargo del Director, practiquen cada prueba.
+Artículo 318.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

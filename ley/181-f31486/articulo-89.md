@@ -1,5 +1,1 @@
-Artículo 89.- Cuando las actividades económicas del Patronato sean
-de cuantía que aconseje una mayor precaución para el resguardo de los
-fondos, a juicio del Inspector de Escuelas respectivo, se dispondrá que
-el Tesorero del Patronato caucione en los mismos términos establecidos
-para las Tesorerías de las Juntas de Educación.
+Artículo 89.- Cuando las actividades económicas del Patronato sean de cuantía que aconseje una mayor precaución para el resguardo de los fondos, a juicio del Inspector de Escuelas respectivo, se dispondrá que el Tesorero del Patronato caucione en los mismos términos establecidos para las Tesorerías de las Juntas de Educación.

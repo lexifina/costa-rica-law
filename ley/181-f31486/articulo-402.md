@@ -1,5 +1,1 @@
-Artículo 402.- Los miembros de las Juntas durarán tres años en el
-ejercicio de sus funciones, salvo el caso contemplado en el artículo
-siguiente. Una vez terminado su período pueden ser reelectos si así lo
-consintieren y hubieren dado prueba de cumplimiento en el desempeño de
-su cargo.
+Artículo 402.- Los miembros de las Juntas durarán tres años en el ejercicio de sus funciones, salvo el caso contemplado en el artículo siguiente. Una vez terminado su período pueden ser reelectos si así lo consintieren y hubieren dado prueba de cumplimiento en el desempeño de su cargo.

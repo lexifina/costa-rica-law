@@ -1,6 +1,2 @@
-Artículo 489.- Las filiales debidamente constituídas administrarán
-y darán destino de los fondos según se establece en el artículo 476,
-inciso e), para cumplir los fines de la Asociación en cuanto se
-relaciona con ellas. Anualmente, por medio de la Directiva Central,
-deben rendir cuenta de sus actividades al Congreso Nacional de
-Educadores.
+Artículo 489.- Las filiales debidamente constituidas administrarán y darán destino de los fondos según se establece en el artículo 476, inciso e), para cumplir los fines de la Asociación en cuanto se relaciona con ellas. Anualmente, por medio de la Directiva Central, deben rendir cuenta de sus actividades al Congreso Nacional de Educadores.
+(Nota: Ver ley N° 2795 de 7 de agosto de 1961, “Reforma Integral Ley Orgánica Asociación Nacional Educadores ANDE”)

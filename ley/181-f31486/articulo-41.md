@@ -1,8 +1,1 @@
-Artículo 41.- La administración de los fondos escolares estará a
-cargo de Tesoreros Cantonales y de auxiliares de distrito. Los primeros
-garantizarán suficientemente el manejo de los fondos confiados a su
-administración por medio de garantía hipotecaria o fianza, por la suma
-que corresponda, de conformidad con la escala contenida en el artículo
-32 de la Ley sobre Hacienda Municipal. Los Tesoreros auxiliares
-prestarán garantía fiduciaria por la suma que en cada caso determine la
-Secretaría de Educación Pública.
+Artículo 41.- La administración de los fondos escolares estará a cargo de Tesoreros Cantonales y de auxiliares de distrito. Los primeros garantizarán suficientemente el manejo de los fondos confiados a su administración por medio de garantía hipotecaria o fianza, por la suma que corresponda, de conformidad con la escala contenida en el artículo 32 de la Ley sobre Hacienda Municipal. Los Tesoreros auxiliares prestarán garantía fiduciaria por la suma que en cada caso determine la Secretaría de Educación Pública.

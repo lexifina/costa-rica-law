@@ -1,15 +1,4 @@
 CAPITULO V
 Deberes y prohibiciones
-Artículo 204.- Son deberes de los porteros de las escuelas
-oficiales:
-1º) Presentarse a la escuela, todos los días de labor, media hora
-antes de que se inicien las clases, y permanecer en ella hasta que
-terminen las labores docentes, así como las de aseo que le hayan sido
-asignadas;
-2º) Conservar en perfectas condiciones de aseo el edificio escolar,
-o aquella sección del edificio que le hubiere sido señalada, y cuidar
-del material que con ese objeto le sea entregado, lo mismo que del
-mobiliario respectivo; y
-3º) Obedecer toda disposición emanada de la dirección de la escuela
-que no sea incompatible con su dignidad personal o con las leyes de la
-República.
+Artículo 204.- Son deberes de los conserjes de las instituciones educativas oficiales del país presentarse, todos los días, media hora antes de que se inicien las lecciones y permanecer en el plantel atendiendo las labores asignadas dentro de la jornada ordinaria de ocho horas, que estipula el Código de Trabajo; asimismo, presentarse y colaborar en todas aquellas otras actividades escolares oficialmente establecidas por el Ministerio de Educación Pública mediante convocatoria de sus superiores jerárquicos.
+(Así reformado por el artículo 1° de la ley N° 5627 de 6 de diciembre de 1974)

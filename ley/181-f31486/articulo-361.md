@@ -1,4 +1,1 @@
-Artículo 361.- La aprobación obtenida en cualquier Colegio oficial
-tiene validez académica en todos los demás. Asimismo tendrán validez
-todas las calificaciones y observaciones correspondientes a un curso
-empezado en un Colegio y que deba ser terminado en otro.
+Artículo 361.- .- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

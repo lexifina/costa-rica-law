@@ -1,2 +1,1 @@
-Artículo 357.- Para ser promovido al año inmediato es indispensable
-ser aprobado en todas las asignaturas del año en curso.
+Artículo 357.- .- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

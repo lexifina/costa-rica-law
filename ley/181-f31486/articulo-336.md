@@ -1,5 +1,1 @@
-Artículo 336.- Constituye ausencia:
-a) Faltar a una mañana de clase;
-b) Faltar a las clases de la tarde;
-c) Dejar de asistir a una clase, aunque el alumno asista a la que
-sigue.
+Artículo 336.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

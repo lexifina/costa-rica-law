@@ -1,3 +1,1 @@
-Artículo 238.- Las Juntas de Educación ordenarán la venta en asta
-pública de los edificios de escuela que, del examen que practique el
-arquitecto oficial, resulten no ser útiles para su objeto.
+Artículo 238.- .-(Derogado por el artículo 64, inciso m) de la Ley de Expropiaciones, N° 7495 del 3 de mayo de 1995)

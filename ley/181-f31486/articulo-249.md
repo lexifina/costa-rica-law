@@ -1,3 +1,1 @@
-Artículo 249.- Las escuelas particulares que reciben subvención
-municipal o del Estado, deberán adoptar los textos, programas y planes
-de enseñanza aprobados por la Secretaría de Educación.
+Artículo 249.- .-(Derogado por el artículo 49° de la Ley Fundamental de Educación , Nº 2160 del 25 de setiembre de 1957)

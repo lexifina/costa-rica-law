@@ -1,3 +1,1 @@
-Artículo 338.- Treinta ausencias inmotivadas o sesenta motivadas
-implicarán la pérdida del curso. El mismo efecto producen 20
-inmotivadas, si se suman a más de 20 motivadas.
+Artículo 338.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

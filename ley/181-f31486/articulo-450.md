@@ -1,21 +1,9 @@
 Artículo 450.- Compete al Patronato:
-1)-Señalar los estudios que han de realizarse con las becas del
-Estado, de acuerdo con las necesidades de la provincia a que
-correspondan;
-2)-Adjudicar las becas para estudios en el exterior, mediante
-concurso y por rigurosa oposición, cada vez que ocurra una vacante en
-el servicio que este Título establece;
-3)-Otorgar las becas de artes mecánicas que crea la ley Nº 213 de
-14 de agosto de 1929;
-4)-Atender las solicitudes de los jóvenes que estudien por cuenta
-propia o de su familia en instituciones extranjeras y merezcan el
-auxilio del Estado por su demostrada aplicación en el estudio, siempre
-que reúnan los requisitos que exige el artículo 7º, excepto el de la
-edad;
-5)-Determinar, de acuerdo con el padre o representante legal del
-becario, el colegio, la universidad o la institución en que ha de
-efectuar sus estudios;
-6)-Cancelar definitivamente y sin ulterior recurso, cualquiera de
-las becas conferidas por el Estado, cuando el becario incurra en alguno
-de los hechos que contemplan los incisos 1), 2) y 3) del artículo 456
-de este Código.
+1)-Señalar los estudios que han de realizarse con las becas del Estado, de acuerdo con las necesidades de la provincia a que correspondan;
+2)-Adjudicar las becas para estudios en el exterior, mediante concurso y por rigurosa oposición, cada vez que ocurra una vacante en el servicio que este Título establece;
+3)-Otorgar las becas de artes mecánicas que crea la ley Nº 213 de 14 de agosto de 1929;
+4)- Acordar auxilios especiales en favor de aquellos jóvenes que, habiendo iniciado estudios en el extranjero por cuenta propia o de su familia, se vieren imposibilitados, por razones de carácter económico, para continuar tales estudios. Estos auxilios no podrán en ningún caso exceder de la mitad de las sumas que el Patronato asigne a sus becados por concepto de pensión mensual y, para que puedan otorgarse, será necesario que el interesado haya cursado por lo menos la mitad de los cursos y demuestre su aplicación al estudio, así como las circunstancias de carácter económico que le impidan continuarlos, sujetándose a los otros requisitos que se indican en el artículo 454, excepto el de la edad.
+También podrá el Patronato, en casos muy calificados, acordar auxilios de esta naturaleza en favor de personas que deseen aprovechar ventajas o facilidades ofrecidas por universidades del extranjero para asistir a cursos de especialización o de postgraduación. Dicho auxilios tampoco podrán exceder de las sumas que el Patronato asigne a sus becados por concepto de pensión mensual, y sólo se otorgarán si se comprueba la insuficiencia de bienes propios o de recursos de familia, y cuando las universidades extranjeras no hagan asignaciones para gastos de permanencia o de otra naturaleza.
+(Así reformado el inciso 4) anterior por el artículo 1° de la ley N° 2132 de 19 de junio de 1957)
+5)-Determinar, de acuerdo con el padre o representante legal del becario, el colegio, la universidad o la institución en que ha de efectuar sus estudios;
+6)-Cancelar definitivamente y sin ulterior recurso, cualquiera de las becas conferidas por el Estado, cuando el becario incurra en alguno de los hechos que contemplan los incisos 1), 2) y 3) del artículo 456 de este Código.

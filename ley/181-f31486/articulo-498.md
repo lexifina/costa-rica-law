@@ -1,4 +1,4 @@
-Artículo 498.- En caso de defunción de un miembro de la Sociedad,
-todos los demás contribuirán con un colón para formar el monto del
-seguro, siempre que el fallecido no hubiere sido agraciado en vida por
-la Ley de Socorro Mutuo de 24 de diciembre de 1920.
+Artículo 498.- Fíjase un tiempo hasta de un año después del fallecimiento de un asegurado, para que su beneficiario o sus herederos legítimos, si no hay beneficiario, soliciten el pago del seguro. Pasado ese lapso, será desestimada cualquier solicitud y el monto pasará a formar parte de la reserva, salvo en el caso contemplado en el párrafo final de este artículo.
+El administrador de la sociedad o cualquiera de los miembros de la directiva, que llegaren a tener conocimiento del fallecimiento de un asegurado, están en la obligación de dar aviso a los interesados para que se presenten a legalizar sus derechos. Quedan igualmente obligados los superiores de los asociados, a dar aviso al administrador, cuando se produjere el fallecimiento de alguno de sus subalternos.
+En el caso de ausencia, se observará en lo conducente, lo dispuesto en el Título III, Capítulo I del Código Civil.
+(Así reformado por el artículo 1° de la ley N° 4204 de 21 de octubre de 1968)

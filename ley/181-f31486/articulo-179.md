@@ -1,6 +1,2 @@
-Artículo 179.- Cuando fallezca un funcionario que goce de
-jubilación o que tuviere derecho a gozar de ella, de conformidad con las
-disposiciones de la presente ley, tal goce o derecho podrá ser
-aprovechado por la viuda, los hijos en su defecto, por los padres del
-causante, en la proporción y condiciones que en seguida se indican,
-siempre que carezca de recursos propios para su subsistencia.
+Artículo 179.- Cuando fallezca un funcionario que goce de jubilación o que tuviere derecho a gozar de ella, de conformidad con las disposiciones de la presente ley, tal goce o derecho podrá ser aprovechado por la viuda, los hijos en su defecto, por los padres del causante, en la proporción y condiciones que en seguida se indican, siempre que carezca de recursos propios para su subsistencia.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

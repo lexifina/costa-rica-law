@@ -1,3 +1,1 @@
-Artículo 27.- Los Inspectores y Visitadores Escolares se reunirán
-con el Jefe Técnico de Educación Primaria por lo menos una vez al mes,
-para discutir sus problemas e iniciativas.
+Artículo 27.- (Derogado por el artículo 1° de la ley Nº 794 de 2 de noviembre de 1949)

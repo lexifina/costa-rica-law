@@ -1,5 +1,2 @@
-Artículo 177.- Para los efectos del artículo anterior, la oficina
-de que depende el empleado está en el deber de notificar el nombramiento
-a la Junta Administradora del fondo de Pensiones, o en su defecto, a la
-Secretaría de Educación Pública, para el reintegro de la suma
-indebidamente cobrada.
+Artículo 177.- Para los efectos del artículo anterior, la oficina de que depende el empleado está en el deber de notificar el nombramiento a la Junta Administradora del fondo de Pensiones, o en su defecto, a la Secretaría de Educación Pública, para el reintegro de la suma indebidamente cobrada.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

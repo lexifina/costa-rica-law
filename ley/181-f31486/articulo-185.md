@@ -1,3 +1,2 @@
-Artículo 185.- Cuando sean varias las personas con derecho al
-reparto de la pensión y pierda ese derecho alguna de ellas, la parte
-correspondiente a ésta será distribuida entre las demás.
+Artículo 185.- Cuando sean varias las personas con derecho al reparto de la pensión y pierda ese derecho alguna de ellas, la parte correspondiente a ésta será distribuida entre las demás.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

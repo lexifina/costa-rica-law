@@ -1,9 +1,2 @@
-Artículo 387.- La adjudicación de las becas corresponderá a la
-Secretaría de Educación Pública, que la hará en vista del informe
-respectivo de la Junta de Directores de Colegios de Segunda Enseñanza,
-y procurando distribuir las becas de cada provincia entre estudiantes
-de los diferentes cantones.
-Con ese fin, durante el mes de enero de cada año, la Secretaría de
-Educación Pública anunciará el número de becas que quedan vacantes
-concediendo un plazo no menor de 15 días para la presentación de las
-solicitudes respectivas.
+Artículo 387.- El Estado concede cincuenta becas a estudiantes que deseen ingresar a la Escuela de Pedagogía de la Universidad de Costa Rica. La beca concedida para cursar la educación secundaria no sirve para continuar estudios en dicha Facultad. Quien desee hacerlo, deberá solicitar una de las becas que anualmente queden vacantes dentro de las cincuenta que asigna este artículo, llenando los requisitos y sometiéndose a los exámenes que la Dirección de dicha Escuela establezca. Pueden aspirar a dichas becas los estudiantes de todas las provincias. La Facultad misma dispondrá cada año la distribución del modo que mejor convenga a los intereses de la educación costarricense.
+(Así reformado por el artículo 1° de la ley N° 654 de 10 de agosto de 1949)

@@ -1,2 +1,2 @@
-Artículo 182.- Los hijos naturales sólo podrán reclamar derecho a
-pensión cuando hayan sido legalmente reconocidos o legitimados.
+Artículo 182.- Los hijos naturales sólo podrán reclamar derecho a pensión cuando hayan sido legalmente reconocidos o legitimados.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

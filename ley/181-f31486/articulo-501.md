@@ -1,7 +1,3 @@
-Artículo 501.- Las cuotas de socios que no estuvieren en servicio
-deberán ser enteradas personalmente, o por medio de un encargado, en la
-Secretaría de la Directiva, dentro de los cinco primeros días del mes
-siguiente a que corresponde la contribución.
-En cada caso, el Secretario-Tesorero expedirá el recibo correspondiente.
-La falta de pago oportuno de tres cuotas consecutivas hará perder
-a los socios el derecho que les concede esta ley.
+Artículo 501.- Las cuotas de los socios que no estuvieren en servicio, deberán ser enteradas personalmente o por encargo del socio, en la administración de la sociedad o en las direcciones de educación primaria, dentro de los diez primeros días del mes siguiente al que corresponda la contribución. En cada caso, el administrador expedirá el recibo correspondiente. La falta de pago oportuno de tres recibos mensuales, hará perder al socio sus derechos. Sin embargo, el interesado puede recobrarlos, si se pone al día en el pago de sus cuotas y entera, como multa por cada vez, el cincuenta por ciento de la suma adeudada.
+Lo pagado por concepto de rehabilitación o multa, irá a engrosar la reserva; esta ventaja no podrá aplicarse en caso de fallecimiento de un socio que estuviera en mora. El administrador, cada vez que no sea el propio interesado quien lo solicite, tomará nota del día y hora en que tal solicitud se presente, y hará las investigaciones del caso.
+(Así reformado por el artículo 1° de la ley N° 4204 de 21 de octubre de 1968)

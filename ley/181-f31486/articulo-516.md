@@ -1,6 +1,1 @@
-Artículo 516.- El Museo Nacional de Costa Rica constará de las
-siguientes divisiones:
-a) Sección de Botánica;
-b) Sección de Zoología;
-c) Sección de Geología; y
-ch) Sección de Etnografía.
+Artículo 516.- .-(Derogado por el artículo 7° de la ley N° 1542 de 7 de marzo de 1953, “Adscripción del Museo Nacional y del Parque Bolívar a Ministerios”)

@@ -1,9 +1,2 @@
-Artículo 420.- Lo resolución que dicte el Poder Ejecutivo de
-acuerdo con lo indicado en el artículo 418 anterior, será revocada en
-cualquier momento en que se compruebe que la institución relacionada ha
-dejado de observar cualquiera de los requisitos que señala el artículo
-que antecede.
-La revocatoria será precedida de una investigación que demuestre
-la inobservancia denunciada, y después de oír al Director del Colegio
-interesado y recibirle las pruebas de descargo que aporte en el lapso
-de treinta días que al efecto se le concederá.
+Artículo 420.- Lo resolución que dicte el Poder Ejecutivo de acuerdo con lo indicado en el artículo 418 anterior, será revocada en cualquier momento en que se compruebe que la institución relacionada ha dejado de observar cualquiera de los requisitos que señala el artículo que antecede.
+La revocatoria será precedida de una investigación que demuestre la inobservancia denunciada, y después de oír al Director del Colegio interesado y recibirle las pruebas de descargo que aporte en el lapso de treinta días que al efecto se le concederá.

@@ -1,4 +1,2 @@
-Artículo 190.- Las personas a quienes se refiere el artículo 181
-tendrá derecho a que se liquide a su favor el importe de un mes de
-sueldo del funcionario fallecido sin derecho a pensión, por cada cuatro
-años que éste hubiere contribuido a la formación del fondo de pensiones.
+Artículo 190.- Las personas a quienes se refiere el artículo 181 tendrá derecho a que se liquide a su favor el importe de un mes de sueldo del funcionario fallecido sin derecho a pensión, por cada cuatro años que éste hubiere contribuido a la formación del fondo de pensiones.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

@@ -1,4 +1,1 @@
-Artículo 404.- La Junta nombrará de su seno un Presidente, un
-Vicepresidente y un Secretario, cuyos nombramientos comunicará
-seguidamente a la Secretaría de Educación Pública y a la Dirección del
-respectivo Colegio.
+Artículo 404.- La Junta nombrará de su seno un Presidente, un Vicepresidente y un Secretario, cuyos nombramientos comunicará seguidamente a la Secretaría de Educación Pública y a la Dirección del respectivo Colegio.

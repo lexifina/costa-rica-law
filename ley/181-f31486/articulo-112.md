@@ -1,60 +1,10 @@
-Artículo 112.- La labor de los maestros en servicio será calificada
-al final de cada curso lectivo, para todos los efectos legales, con las
-notas de Excelente, Muy Buena, Buena, Aceptable, Mediana o Ineficaz de
-acuerdo con las siguientes normas:
-Excelente.- Corresponde a una labor verdaderamente excepcional:
-sólida preparación intelectual; trabajo eficaz en el aula y en el campo
-agrícola; manifesto interés en las labores de socialización escolar;
-afán de autocultura revelado en una constante aptitud para servir los
-más elevados ideales de la escuela; su sinceridad en su actuación en la
-escuela, con esfuerzo y consagración que prestigien a todo el
-magisterio; dominio de los principios pedagógicos recomendados por los
-superiores: empeño en la socialización de la escuela; elevación en la
-interpretación de los programas, reglamentos y disposiciones del
-superior jerárquico; debido acatamiento de los derechos de los niños y
-las aspiraciones de la República; aplicación en su trabajo de los
-principios de la educación integral; capacidad para trabajar con notoria
-propiedad en todos los grados de la escuela primaria; prontitud para
-tomar a su cargo el grado que se le designe; distinción en los
-procedimientos, planes de lección, material de enseñanza, disciplina y
-labor escrita; eficacia en la orientación de la labor agrícola, en
-relación con las necesidades del país, constante afán de
-perfeccionamiento.
-Muy buena.- Revela sólida preparación intelectual; trabajo eficaz
-en el aula y en el campo agrícola; colaboración entusiasta y decidida
-en la obra de extensión escolar; afán de autocultura y evidente espíritu
-de perfeccionamiento; destreza pedagógica, elevación y correcta
-interpretación de los programas en vigencia; conocimiento y observancia
-de la legislación escolar y demás disposiciones reglamentarias, espíritu
-de servicio puesto en evidencia en su trabajo de aula y en las
-relaciones con sus compañeros y padres de familia; excelentes cualidades
-morales y sociales y sinceridad manifiesta en las actividades docentes;
-presentación correcta ante los demás y trato respetuoso para con todas
-las personas.
-Buena.- Acusa una apreciable preparación intelectual; buen trabajo
-en el aula y en el campo agrícola; manifiesto interés en las labores de
-socialización escolar; conocimiento y respeto de las disposiciones
-legales y reglamentarias; espíritu de cooperación, servicio y
-compañerismo; exactitud, limpieza y orden en los registro, diario y
-otros libros que lleve el maestro, manifiesta puntualidad.
-Aceptable.- Indica suficientes conocimientos en las materias
-propias de su cargo; trabajos de aula completos, aunque no del todo
-satisfactorios; capacidad y voluntad para mejorar las condiciones
-propias del educador; puntualidad, buenos hábitos sociales, conocimiento
-y acatamiento de las disposiciones legales y reglamentarias en vigencia.
-Mediana.-Revela trabajo en el aula y, en general en la escuela,
-incompleto y poco satisfactorio; escaso empeño en mejorar
-profesionalmente; señalada impuntualidad.
-Ineficaz.- Acusa notorio mal servicio, evidenciado por hechos
-contrarios al buen gobierno de la escuela, reveladores de incapacidad
-para el ejercicio de la docencia.
-La calificación de Excelente no se dará a los maestros que hayan
-dejado de asistir a cualquiera de los actos a que hubieren sido
-convocados por el superior o que tengan más de quince ausencias aunque
-sean motivadas, salvo que se trate de los casos contemplados en los
-artículos 134 y 144 de este Código.
-La calificación de Muy Buena no se dará a los maestros que hayan
-faltado a cualquiera de los actos dichos, o que tengan más de veinte
-ausencias aunque sean justificadas, salvo los casos indicados
-No se dará la calificación de Excelente o Muy Buena, ni la de
-Buena, al maestro que tenga más de tres ausencias injustificadas.
+Artículo 112.- La labor de los maestros en servicio será calificada al final de cada curso lectivo, para todos los efectos legales, con las notas de Excelente, Muy Buena, Buena, Aceptable, Mediana o Ineficaz de acuerdo con las siguientes normas:
+Excelente.- Corresponde a una labor verdaderamente excepcional: sólida preparación intelectual; trabajo eficaz en el aula y en el campo agrícola; manifesto interés en las labores de socialización escolar; afán de autocultura revelado en una constante aptitud para servir los más elevados ideales de la escuela; su sinceridad en su actuación en la escuela, con esfuerzo y consagración que prestigien a todo el magisterio; dominio de los principios pedagógicos recomendados por los superiores: empeño en la socialización de la escuela; elevación en la interpretación de los programas, reglamentos y disposiciones del superior jerárquico; debido acatamiento de los derechos de los niños y las aspiraciones de la República; aplicación en su trabajo de los principios de la educación integral; capacidad para trabajar con notoria propiedad en todos los grados de la escuela primaria; prontitud para tomar a su cargo el grado que se le designe; distinción en los procedimientos, planes de lección, material de enseñanza, disciplina y labor escrita; eficacia en la orientación de la labor agrícola, en relación con las necesidades del país, constante afán de perfeccionamiento.
+Muy buena.- Revela sólida preparación intelectual; trabajo eficaz en el aula y en el campo agrícola; colaboración entusiasta y decidida en la obra de extensión escolar; afán de autocultura y evidente espíritu de perfeccionamiento; destreza pedagógica, elevación y correcta interpretación de los programas en vigencia; conocimiento y observancia de la legislación escolar y demás disposiciones reglamentarias, espíritu de servicio puesto en evidencia en su trabajo de aula y en las relaciones con sus compañeros y padres de familia; excelentes cualidades morales y sociales y sinceridad manifiesta en las actividades docentes; presentación correcta ante los demás y trato respetuoso para con todas las personas.
+Buena.- Acusa una apreciable preparación intelectual; buen trabajo en el aula y en el campo agrícola; manifiesto interés en las labores de socialización escolar; conocimiento y respeto de las disposiciones legales y reglamentarias; espíritu de cooperación, servicio y compañerismo; exactitud, limpieza y orden en los registro, diario y otros libros que lleve el maestro, manifiesta puntualidad.
+Aceptable.- Indica suficientes conocimientos en las materias propias de su cargo; trabajos de aula completos, aunque no del todo satisfactorios; capacidad y voluntad para mejorar las condiciones propias del educador; puntualidad, buenos hábitos sociales, conocimiento y acatamiento de las disposiciones legales y reglamentarias en vigencia.
+Mediana.-Revela trabajo en el aula y, en general en la escuela, incompleto y poco satisfactorio; escaso empeño en mejorar profesionalmente; señalada impuntualidad.
+Ineficaz.- Acusa notorio mal servicio, evidenciado por hechos contrarios al buen gobierno de la escuela, reveladores de incapacidad para el ejercicio de la docencia.
+La calificación de Excelente no se dará a los maestros que hayan dejado de asistir a cualquiera de los actos a que hubieren sido convocados por el superior o que tengan más de quince ausencias aunque sean motivadas, salvo que se trate de los casos contemplados en los artículos 134 y 144 de este Código.
+La calificación de Muy Buena no se dará a los maestros que hayan faltado a cualquiera de los actos dichos, o que tengan más de veinte ausencias aunque sean justificadas, salvo los casos indicados
+No se dará la calificación de Excelente o Muy Buena, ni la de Buena, al maestro que tenga más de tres ausencias injustificadas.

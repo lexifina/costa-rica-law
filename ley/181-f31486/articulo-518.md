@@ -1,4 +1,1 @@
-Artículo 518.- La Sección de Zoología velará por el incremento
-y conservación de las colecciones zoológicas, cuidará de las
-exposiciones permanentes de animales montados, del Jardín Zoológico del
-Parque Bolívar y de la Biblioteca de Zoología del mismo Museo.
+Artículo 518.- .-(Derogado por el artículo 7° de la ley N° 1542 de 7 de marzo de 1953, “Adscripción del Museo Nacional y del Parque Bolívar a Ministerios”)

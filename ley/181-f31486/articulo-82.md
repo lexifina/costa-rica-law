@@ -1,5 +1,1 @@
-Artículo 82.- La cuenta documentada que la Directiva Patronal debe
-llevar en conformidad con el artículo anterior, habrá de ser sometida
-previamente a conocimiento de una asamblea convocada al efecto, y los
-libros de cuentas tendrán que estar siempre a la orden de los
-interesados o de las autoridades escolares que quieran revisarlos.
+Artículo 82.- La cuenta documentada que la Directiva Patronal debe llevar en conformidad con el artículo anterior, habrá de ser sometida previamente a conocimiento de una asamblea convocada al efecto, y los libros de cuentas tendrán que estar siempre a la orden de los interesados o de las autoridades escolares que quieran revisarlos.

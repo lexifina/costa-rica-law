@@ -1,4 +1,1 @@
-Artículo 326.- No será devuelto el valor de la matrícula a los
-alumnos que fueren retirados o expulsados del establecimiento, ni a los
-que, por cualquier motivo se retiren voluntariamente después de
-comenzados los cursos.
+Artículo 326.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

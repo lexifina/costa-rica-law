@@ -1,4 +1,3 @@
-Artículo 500.- Las oficinas encargadas de la expedición de giros
-deducirán cada mes las cuotas correspondientes de los sueldos de los
-empleados pertenecientes a la Sociedad y harán una libranza por el total
-de ellas, a la orden del Secretario-Tesorero.
+Artículo 500.- Las oficinas encargadas de la confección de las listas de servicio, deducirán cada mes la cuota correspondiente} a los sueldos de los empleados pertenecientes a la Sociedad, y harán una libranza por el total de ellas a la orden de la Sociedad de Seguros. Tal deducción será igual para todos los asociados, corresponderá a una mensualidad completa aun cuando haya sido menor el tiempo servido.
+La Oficina de Contaduría del Ministerio de Educación Pública, retendrá todos los giros procedentes de los distintos departamentos y que sean liberados a la orden de la Sociedad y los entregará al Secretario- Tesorero.
+(Así reformado por el artículo 1° de la ley N° 1926 de 6 de setiembre de 1955)

@@ -1,3 +1,3 @@
-Artículo 446.- El Rector y el Secretario de la Universidad, así
-como los directores de las escuelas universitarias, ocuparán sus cargos
-por períodos de tres años.
+Artículo 446.- El Rector y el Secretario de la Universidad, así como los directores de las escuelas universitarias, ocuparán sus cargos por períodos de tres años.
+Cuando estos funcionarios cumplan dentro de los respectivos períodos para que fueron electos, la edad de setenta años, señalada como de jubilación obligatoria por el artículo 437 de esta ley, podrán a voluntad retirarse o terminar ese período. Con respecto a los profesores y personal administrativo, se aplicará esta misma regla, considerando como período cada curso lectivo.
+(Adicionado el párrafo anterior por el artículo 2° de la ley N° 171 de 21 de agosto de 1945)
