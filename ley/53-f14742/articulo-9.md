@@ -1,0 +1,3 @@
+Artículo 9°
+La extradición se acordará en virtud de reclamación hecha por un Gobierno al otro, por la vía diplomática, acompañada de la sentencia condenatoria, acusación, mandamiento de prisión ó cualquiera otro documento equivalente á este mandamiento, en el cual deberá indicarse igualmente la naturaleza y gravedad de los hechos imputados, como también las disposiciones de la leyes penales que les sean aplicables.
+Los documentos se remitirán originales, ó en forma auténtica de despacho, sea por un Tribunal, ó por cualquiera otra autoridad competente del país que pide la extradición. También se suministrarán, si fuese posible, las señales del individuo reclamado, ó cualquiera otro indicación capaz de hacer constar su identidad.
