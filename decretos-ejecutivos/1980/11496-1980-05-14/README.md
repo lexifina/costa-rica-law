@@ -13,3 +13,4 @@ Reglamento del Museo Nacional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-14 | la propia norma |
+| 2 | 1980-05-14 | SINALEVI (sin norma nombrada) |
