@@ -1,0 +1,8 @@
+No 14.SC.-San José, 7 de junio del 2002
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-100-2002. mediante la cual se modifica la nomenclatura de clases contenidas en las resoluciones DG-055-2002, DG-117-2001 yDG-098-2001.
+DG-104-2002. mediante la cual se declara atinentes las carreras de Bachillerato en Administración de Sistemas de Información de Salud y Licenciatura y Bachillerato en Registros Médicos y Sistemas de Información en Salud a las clases y cargos del Manual Institucional de Clases del Ministerio de Salud.
+DG-107-2002, mediante la cual se modifica el artículo 1° de la Resolución DG-021-98 del 24 de febrero de 1998. así como las demás Resoluciones que la han modificado de manera que en vez de "Manual Auxiliar de Clases de la Imprenta Nacional", a este instrumento clasificador se le denomine "Manual Institucional de Clases de la Imprenta Nacional".
+DG-110-2002. mediante la cual se modifica en la Clase Técnico de Investigación del Manual Institucional del Instituto Costarricense de Investigación y Enseñanza y Nutrición (INCIENSA), el apartado de atinencias académicas.
+DG-111-2002. mediante la cual se modifica el apartado de "Requisitos" del Manual de Clases Institucional de la Secretaria Técnica de la Autoridad Presupuestaria, así como sus modificaciones de atinencias de las clases "Técnico de Procesos" y "Profesionales de Procesos".
+DG-112-2002, mediante la cual se modifica su homologa la DG-182-1998. del 18 de diciembre del 1998 (Manual Institucional de Cargos) y sus reformas, a fin de agregar a la Clase Profesional del Archivo Nacional, Nivel C, el cargo de Ingeniero de Mantenimiento.
