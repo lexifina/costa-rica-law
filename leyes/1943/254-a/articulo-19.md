@@ -1,0 +1,1 @@
+Artículo 19.—La disolución o extinción de la Asociación Nacional de Educadores, trae como consecuencia la extinción y disolución de las filiales, sin perjuicio de que éstas puedan constituirse en una nueva Asociación.
