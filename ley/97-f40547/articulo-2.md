@@ -1,0 +1,2 @@
+Art. 2. La Asamblea será convocada extraordinariamente solo en estos tres casos: 1° para tomar medidas contra una invasión exterior intentada ó con probabilidad bastante de que se intentará: 2° para contener una conmoción b rebelión interior ejecutada; y 3° cuando ocurra el previsto en el art. 4° del Reglamento del Poder Ejecutivo de 23 de Setiembre de 831. (2)
+(2) Derogado por el Decreto de 2 de Agosto de 1837.
