@@ -1,0 +1,2 @@
+Artículo 24 bis.—El Instituto administrará sus fondos mediante las cuentas corrientes propias, estrictamente necesarias, en cualquiera de los bancos del Sistema Bancario Nacional; estarán sujetas a la fiscalización y los controles financieros de la auditoría interna correspondiente, así como a las demás disposiciones que rigen la materia.
+(Así adicionado por el artículo 2° de la ley N° 2° de la ley N° 8289 del 10 de julio de 2002)
