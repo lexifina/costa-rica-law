@@ -1,0 +1,6 @@
+12.—De la contratación selectiva.
+12.1 La contratación selectiva es un procedimiento no abierto en el que se invitará a participar a las personas o empresas que se encuentren acreditadas ante el registro de proveedores de la Institución.
+12.2 La invitación a participar se realizará mediante facsímile, al número indicado en la solicitud de inscripción ante el registro de proveedores. Por lo tanto será responsabilidad de los proveedores mantener actualizada la información que se acredite ante el registro. Se invitará a participar en cada ocasión a un máximo de cinco oferentes si los hubiere, procurando darle oportunidad en las ocasiones subsiguientes a quienes no hubiesen sido invitados antes.
+12.3 El plazo para recibir ofertas se indicará en el respectivo pliego de condiciones, pero en ningún caso será menor a siete días naturales a partir del día siguiente a aquel en que se comunique la invitación.
+12.4 Cualquier prórroga al plazo para recibir ofertas, modificaciones o aclaraciones que se realicen a las condiciones del concurso, se comunicará a los interesados mediante facsímile, al mismo número al que se dirigió la invitación a participar.
+12.5 Por la misma vía del facsímile se hará la comunicación del acto de adjudicación a todos los participantes.

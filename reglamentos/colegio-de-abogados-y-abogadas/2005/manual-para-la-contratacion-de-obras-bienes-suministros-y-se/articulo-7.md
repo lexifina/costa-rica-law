@@ -1,0 +1,1 @@
+7º—Una vez dispuesto el inicio del procedimiento por parte del funcionario competente, se trasladará la documentación completa a la Proveeduría para que ésta confeccione el expediente y determine el trámite a seguir.

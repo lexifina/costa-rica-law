@@ -1,0 +1,7 @@
+22.—Compras adicionales y modificación de los términos de un contrato.
+22.1 Una vez formalizado un contrato para la adquisición de un bien, suministro, prestación de un servicio o para la realización de una obra, si durante el mismo ejercicio económico se necesitara adquirir suministros adicionales de igual naturaleza, servicios adicionales similares a los que se prestaron, o existiera la necesidad de ampliar una obra ejecutada o en ejecución, podrá obtenerlos del mismo contratista en tanto se cumplan los siguientes supuestos:
+· Que el contratista manifieste por escrito que está de acuerdo.
+· Que mantenga las mismas condiciones de la contratación original, especialmente en cuanto a precio, calidad, garantías, condiciones de pago y servicios (instalación, mantenimiento, etc.) o que las mejore.
+· Que la contratación adicional no supera en más de un 50% la prestación objeto de la contratación original.
+22.2 Una vez formalizado un contrato el Colegio podrá, por mutuo acuerdo con el contratista, variar condiciones de la contratación, siempre que con ello no se modifique la esencia del objeto y los cambios resulten beneficiosos a sus intereses, los cuales deberán dejarse acreditados en el expediente.
+Se entenderá dentro de esta facultad, la posibilidad de aceptar cambios o mejoras en los bienes o suministros a recibir para hacerlos mejores tecnológicamente hablando, ampliar garantías, disminuir plazos de entrega, incluir aspectos adicionales, etc.

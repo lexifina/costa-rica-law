@@ -1,0 +1,3 @@
+21.—De la formalización del contrato.
+21.1 En los casos de las contrataciones abiertas y las selectivas que a juicio de la Dirección Ejecutiva lo ameriten, se formalizará la relación en un documento contractual privado, que deberán suscribir los representantes de ambas partes, de previo al inicio de la ejecución.
+21.2 Para el caso de la contratación simplificada y aquellos en los que originándose en contrataciones selectivas, la Dirección Ejecutiva lo estime innecesario, la orden de compra debidamente emitida y firmada por los funcionarios responsables, constituirá documento idóneo para proceder con la ejecución del contrato.

@@ -1,0 +1,2 @@
+2º—Finalidad. El presente Reglamento tiene como propósito establecer los procedimientos que deberá seguir la Administración del Colegio para la contratación de las obras, bienes, suministros y servicios que se requieran, así como establecer internamente las competencias y atribuciones en esta materia, de forma tal que se garantice un funcionamiento normal, ágil y eficiente.
+En este sentido el Colegio podrá realizar cualquier tipo de contrato, siempre que sea lícito y conveniente para sus intereses.

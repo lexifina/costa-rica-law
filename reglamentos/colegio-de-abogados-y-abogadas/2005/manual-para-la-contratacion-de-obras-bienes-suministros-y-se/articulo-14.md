@@ -1,0 +1,1 @@
+14.—De las contrataciones por caja chica. Las contrataciones por medio de caja chica, se llevarán a cabo siguiendo los trámites y requisitos establecidos en el Manual de Operación de la Caja Chica del Colegio de Abogados de Costa Rica.

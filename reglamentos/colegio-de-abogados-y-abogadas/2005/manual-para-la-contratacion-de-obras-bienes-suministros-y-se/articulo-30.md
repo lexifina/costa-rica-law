@@ -1,0 +1,1 @@
+30.—Los contratos que se encuentren en ejecución al momento de entrar en vigencia el presente Manual, continuarán su ejecución en los términos bajo los cuales se promovieron, hasta su finalización. El presente Manual fue aprobado por la Junta Directiva en la sesión Nº 03-05 del día jueves 13 de enero del año 2005.

@@ -1,0 +1,4 @@
+25.—Del alquiler de bienes.
+25.1 El Colegio podrá dar en arrendamiento bienes de su propiedad, para lo cual deberá practicarse un avalúo o estimación previa que determine el precio mínimo aceptable del alquiler. Para estos efectos se seguirá el procedimiento que corresponda, según la estimación del monto mensual a pagar, multiplicado por doce meses. El avalúo podrá ser realizado por personal del propio Colegio que tenga conocimiento en el área específica, o por algún especialista externo.
+25.2 Para arrendar muebles o inmuebles, se seguirá el procedimiento que corresponda de acuerdo con el monto de la contratación, multiplicando la estimación del monto mensual a pagar, por el período durante el cual se va a arrendar.
+25.3 También podrá el Colegio tomar en arriendo bienes o equipos con opción de compra, siguiendo el procedimiento que corresponda de acuerdo con la estimación del monto a pagar durante el período del contrato.
