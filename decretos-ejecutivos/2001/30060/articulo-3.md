@@ -1,0 +1,26 @@
+Artículo 3º—Para efectos de interpretación del presente Reglamento se establecen las siguientes definiciones:
+- Buenas prácticas de manufactura: Conjunto de normas y procedimientos destinados a garantizar en forma permanente, la producción uniforme de los lotes de cosméticos para que cumplan con los requerimientos de seguridad para los usuarios.
+- Certificado de libre venta: Documento expedido por la autoridad sanitaria u organización competente del país de origen del fabricante o del país del titular del producto, en el caso de fabricación a terceros, debidamente consularizado y autenticado por Relaciones Exteriores en el cual se indica que el producto está autorizado para ser comercializado en ese país.
+- Certificado de operación: Documento extendido por el Ministerio de Salud en el que se certifique que las instalaciones donde se fabrica el producto cumple con la legislación vigente de Costa Rica.
+- CEE: Comunidad Económica Europea.
+- Cosmético: Toda sustancia o formulación de aplicación local a ser usada en las diversas partes superficiales del cuerpo humano: epidermis, sistema piloso y capilar, uñas, labios y órganos genitales externos o en los dientes y las mucosas bucales, con el fin de limpiarlos, perfumarlos, modificar su aspecto y protegerlos o mantenerlos en buen estado y prevenir o corregir los olores corporales.
+- CTFA: Por sus siglas en inglés. Asociación de fabricantes de cosméticos y aguas de tocador.
+- Dirección: La Dirección de Registros y Controles del Ministerio de Salud.
+- Etiquetado: Cualquier marbete, rótulo, imagen u otra materia descriptiva o gráfica que se haya escrito, impreso, estarcido, marcado en relieve, adherido o insertado al envase.
+- Fabricación: Serie de operaciones involucradas en la producción de un cosmético, desde la recepción de los materiales, su proceso y empaque y almacenamiento, como producto terminado.
+- Fabricación a terceros: Acto de producción nacional o extranjera, realizada dentro de los límites de una contratación previa y que se efectúa aprovechando la capacidad técnica, capacidad instalada, compra de tecnología, y mejor mercado de abastos.
+- Importador: Persona física o jurídica que se dedica a la importación de cosméticos.
+- INCI: Nomenclatura Internacional de Ingredientes de Cosméticos.
+- Laboratorio fabricante de Cosméticos: Establecimiento dedicado a la manufactura de cosméticos.
+- Laboratorio oficial: Aquel o aquellos que el Ministerio asigne para realizar los controles de calidad de los cosméticos para su control en el mercado, aduana o industria. Los resultados de los análisis que efectúa serán definitivos para mantener o cancelar la notificación.
+- Ley: Ley General de Salud, Nº 5395 del 30 de octubre de 1973, y sus reformas.
+- Lista de sustancias prohibidas: Lista emitida por la CEE y la CTFA que contiene sustancias que no podrán, bajo ninguna circunstancia, ser utilizadas en la elaboración de cosméticos.
+- Lista de sustancias con concentraciones controladas y/o advertencias específicas: Lista emitida por la CEE y la CTFA que contiene sustancias que pueden incorporarse en la formulación, pero únicamente bajo las concentraciones, limitaciones y condiciones aquí establecidas.
+- Lista de colorantes permitidos: Lista emitida por la CEE y la CTFA que contiene los colorantes permitidos bajo las limitaciones y exigencias aquí establecidas.
+- Lista de los preservantes permitidos: Lista emitida por la CEE y la CTFA que contiene los preservantes permitidos bajo las concentraciones, limitaciones, exigencias y condiciones aquí establecidas.
+- Lista de los filtros ultravioleta permitidos: Lista emitida por la CEE y la CTFA que contiene los filtros ultravioleta permitidos bajo las concentraciones, limitaciones y exigencias aquí establecidas.
+- Materiales de acondicionamiento: Los que protegen interiormente al cosmético y los elementos que se pueden acompañar para facilitar su aplicación. No requieren ser rotulados.
+- Ministerio: Ministerio de Salud.
+- Ministro: Ministro de Salud.
+- Notificación: Acto mediante el cual se realiza y se aporta la documentación requerida en el presente reglamento que permite que un cosmético puede ser importado, fabricado, manipulado y comercializado en Costa Rica.
+PROCOMER: Promotora del Comercio Exterior.

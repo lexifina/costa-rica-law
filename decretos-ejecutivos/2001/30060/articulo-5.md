@@ -1,0 +1,1 @@
+Artículo 5º—Para la notificación de un cosmético se deberá presentar original y copia el formulario oficial, de cosméticos diseñado por la Dirección con la información completa y con letra a máquina o en computadora, firmado por el interesado o su representante legal.

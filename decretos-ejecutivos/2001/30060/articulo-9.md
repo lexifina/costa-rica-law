@@ -1,0 +1,1 @@
+Artículo 9º—Previa comprobación del cumplimiento de los requisitos, el trámite de notificación se hará en forma inmediata. Salvo los productos cosméticos que contengan en su composición sustancias presentes en el listado de uso limitado, los cuales se evaluarán durante un período máximo de tres días hábiles.
