@@ -1,0 +1,2 @@
+Artículo 9º—De la presentación de informes. Al regreso de su viaje, el funcionario debe presentar un informe escrito a la Junta Directiva donde se detallen los resultados y beneficios obtenidos, los objetivos alcanzados con la participación en la actividad asignada, así como su aplicación en el accionar de la Institución, adjuntando además la información suministrada o cualquier otro documento pertinente y la lista de organizaciones o personas contactadas.
+Este informe debe entregarse en un término de quince días hábiles después de su regreso.

@@ -1,0 +1,1 @@
+Artículo 8º—De la liquidación de los gastos de representación. La liquidación de este tipo de gastos se rige por lo establecido en el Reglamento de Gastos de Representación aprobado por la Junta Directiva y los mismos se deberán presentar en un tiempo máximo de siete días hábiles.

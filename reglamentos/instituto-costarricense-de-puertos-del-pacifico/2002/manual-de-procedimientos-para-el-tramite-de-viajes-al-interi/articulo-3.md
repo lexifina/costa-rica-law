@@ -1,0 +1,3 @@
+Artículo 3º—Contenido del Acuerdo de Junta Directiva. El Acuerdo de la Junta Directiva para la autorización del viaje al exterior deberá contener los mismos requisitos exigidos en la solicitud planteada en el artículo anterior.
+El pasaporte a utilizar debe ser el oficial y deberá cumplir con los requisitos establecidos por el Ministerio de Relaciones Exteriores y Culto. La dependencia encargada de tramitar el pasaporte será la Presidencia Ejecutiva.
+La Junta Directiva velará para que un director o funcionario no asista dos veces a un mismo seminario, curso, etc. Así mismo, establecerá los controles para aprovechar los descuentos por pronto pago o cantidad de participantes.
