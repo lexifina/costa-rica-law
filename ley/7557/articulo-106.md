@@ -1,13 +1,4 @@
-ARTICULO 106.- Prueba de los actos realizados en sistemas
-informáticos
-Los datos y registros recibidos y anotados en el sistema informático
-constituirán prueba de que el auxiliar de la función pública aduanera
-realizó los actos que le corresponden y que el contenido de esos actos y
-registros fue suministrado por este, al usar la clave de acceso
-confidencial.
-Los funcionarios o las autoridades que intervengan en la operación
-del sistema serán responsables de sus actos y de los datos que
-suministren. Cualquier información transmitida electrónicamente por medio
-de un sistema informático autorizado por la Dirección General de Aduanas,
-será admisible en los procedimientos administrativos y judiciales como
-evidencia de la transmisión de esa información.
+Artículo 106.—Prueba de los actos realizados en sistemas informáticos. Los datos y registros recibidos y anotados en el sistema informático, constituirán prueba de que el auxiliar de la función pública aduanera realizó los actos que le corresponden y que el contenido de esos actos y registros fue suministrado por este, al usar la clave de acceso confidencial o firma electrónica.
+Los funcionarios o las autoridades que intervengan en la operación del sistema, serán responsables de sus actos y de los datos que suministren, según las formalidades requeridas y dentro del límite de sus atribuciones, actos que constituirán instrumentos públicos y, como tales, se tendrán por auténticos. Cualquier información transmitida electrónicamente por medio de un sistema informático autorizado por la Dirección General de Aduanas, será admisible en los procedimientos administrativos y judiciales como evidencia de que tal información fue transmitida.
+El expediente electrónico estará constituido por la serie ordenada de documentos registrados por vía informática, tendientes a la formación de la voluntad administrativa en un asunto determinado, y tendrá la misma validez jurídica y probatoria que el expediente tradicional.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

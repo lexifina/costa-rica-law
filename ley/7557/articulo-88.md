@@ -1,9 +1,5 @@
 SECCION II
 ACEPTACION DE LA DECLARACION
-ARTICULO 88.- Aceptación
-Para aceptar la declaración deberá demostrarse, por los medios
-autorizados, el cumplimiento de las regulaciones tributarias, arancelarias
-y no arancelarias, demás requisitos y formalidades legales y
-reglamentarias exigidas para aplicar el régimen que se solicita. La
-notificación de la aceptación se realizará por medio de los procedimientos
-o sistemas que se establezcan conforme a la reglamentación.
+Artículo 88.—Aceptación. La declaración aduanera se entenderá aceptada cuando se registre en el sistema informático del Servicio Nacional de Aduanas o en otro sistema autorizado.
+La realización de dicho acto no implica avalar el contenido de la declaración ni limita las facultades de comprobación de la autoridad aduanera.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

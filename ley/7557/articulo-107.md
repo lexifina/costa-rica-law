@@ -1,10 +1,2 @@
-ARTICULO 107.- Enlace electrónico entre oficinas públicas
-Las oficinas públicas o entidades relacionadas con el Servicio
-Nacional de Aduanas, deberán transmitir electrónicamente a las autoridades
-aduaneras competentes los permisos, autorizaciones, y demás información
-inherente al tráfico de mercancías y a la comprobación del pago de
-obligaciones tributarias aduaneras, de conformidad con los procedimientos
-acordados entre estas oficinas o entidades y la autoridad aduanera. Por su
-parte, la autoridad aduanera deberá proporcionar, a estas oficinas o
-entidades, la información atinente a su competencia sobre las operaciones
-aduaneras de acuerdo con los procedimientos acordados entre estas.
+Artículo 107.—Enlace electrónico entre oficinas públicas. Las oficinas públicas o entidades relacionadas con el Servicio Nacional de Aduanas deberán transmitir electrónicamente, a las autoridades aduaneras competentes, permisos, autorizaciones y demás información inherente al tráfico de mercancías y a la comprobación del pago de obligaciones tributarias aduaneras, según los procedimientos acordados entre estas oficinas o entidades y la autoridad aduanera. La documentación emergente de la transmisión electrónica entre dependencias oficiales constituirá, de por sí, documentación auténtica y para todo efecto hará plena fe en cuanto a la existencia del original transmitido. La autoridad aduanera, por su parte, deberá proporcionarles a estas oficinas o entidades la información atinente a su competencia sobre las operaciones aduaneras, según los procedimientos acordados entre estas.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,0 +1,1 @@
+Transitorio VII.—Los auxiliares de la función pública aduanera tendrán un mes, contado a partir de la entrada en vigencia de esta Ley, para presentar a la Dirección General de Aduanas la declaración jurada, rendida ante notario público, del lugar donde se custodian los documentos originales y la información fijados reglamentariamente, para los regímenes en que intervengan.

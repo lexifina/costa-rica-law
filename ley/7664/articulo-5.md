@@ -6,8 +6,8 @@ funciones:
 a) Velar por la protección sanitaria de los vegetales.
 b) Asesorar en materia de protección fitosanitaria y recomendar la
 emisión de las normas jurídicas necesarias en este campo.
-c) Coordinar con otros ministerios y sus dependencias, las acciones
-pertinentes para el cumplimiento de esta ley y sus reglamentos.
+c) Coordinar con otros ministerios y sus dependencias, las acciones pertinentes para el cumplimiento de esta Ley y sus Reglamentos. Será órgano coadyuvante y auxiliar de la Dirección General de Aduanas del Ministerio de Hacienda, en la fiscalización y el control de los internamientos y valores de las mercancías o de los productos de carácter agropecuario.
+(Así reformado por artículo 3° de la Ley No. 8373 de 18 de agosto de 2004).
 d) Elaborar, recomendar, coordinar, ejecutar y difundir los
 reglamentos y las disposiciones que garanticen la aplicación de
 esta ley.

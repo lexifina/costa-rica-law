@@ -1,11 +1,3 @@
-ARTICULO 206.- Composición.
-El Tribunal estará integrado por siete miembros; cinco de ellos serán
-abogados especializados en materia aduanera, con experiencia no menor de
-cuatro años, y los otros dos serán personas con grado mínimo de
-licenciatura y experiencia no menor de cuatro años en materias tales como
-clasificación arancelaria, valoración aduanera, origen de las mercancías
-y demás regulaciones del comercio exterior.
-El Tribunal contará con un presidente que será abogado, además, con
-un secretario y el personal administrativo necesario para el buen
-funcionamiento, nombrados de acuerdo con las regulaciones del Estatuto de
-Servicio Civil.
+Artículo 206.— Composición. El Tribunal estará integrado por siete miembros. Cuatro de ellos serán abogados especializados en materia aduanera, con experiencia mínima de cuatro años; los otros tres serán personas con el grado mínimo de licenciatura y experiencia de por lo menos cuatro años en materias tales como clasificación arancelaria, valoración aduanera, origen de las mercancías y demás regulaciones del comercio exterior.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+El Tribunal contará con un presidente que será abogado, además, con un secretario y el personal administrativo necesario para el buen funcionamiento, nombrados de acuerdo con las regulaciones del Estatuto de Servicio Civil.

@@ -1,4 +1,1 @@
-ARTICULO 195.- Incidentes y excepciones
-El incidente de nulidad absoluta y la excepción de pago de la
-obligación tributaria aduanera, suspenderán la ejecución del acto y serán
-de pronunciamiento previo y especial.
+ARTICULO 195.- (Derogado por el inciso f) del artículo 4° de la ley N° 8373 de 18 de agosto de 2003)

@@ -1,15 +1,3 @@
-ARTICULO 140.- Declaración del tránsito y régimen aduanero
-Si no se ha solicitado un régimen aduanero procedente, el
-transportista o agente aduanero deberá presentar una declaración para
-solicitar el tránsito aduanero y su régimen aduanero inmediato, con los
-requisitos que establezcan los reglamentos a esta ley. Aceptada la
-declaración la aduana señalará el plazo y la ruta para la realización del
-tránsito y transmitirá la información correspondiente a la aduana
-competente.
-De no iniciarse el tránsito autorizado dentro de ocho días hábiles a
-partir del arribo de las mercancías, se impondrá una multa de cien pesos
-centroamericanos por cada día natural que transcurra, hasta cumplir el
-plazo indicado en el artículo 56 inciso a), salvo caso fortuito, fuerza
-mayor o causa imputable a la Administración. El transportista o el agente
-aduanero comunicará a las aduanas competentes la salida y llegada de la
-unidad de transporte y sus cargas al lugar designado.
+Artículo 140.—Declaración del tránsito y régimen aduanero. Si no se ha solicitado un régimen aduanero procedente, el transportista deberá presentar una declaración para solicitar el tránsito aduanero y su régimen aduanero inmediato, con los requisitos que establezcan los Reglamentos de esta Ley. Aceptada la declaración, el tránsito deberá iniciar dentro del término de las setenta y dos horas naturales siguientes; la aduana señalará el plazo y la ruta para la realización del tránsito y transmitirá a la aduana competente la información que corresponda.
+De no iniciarse el tránsito autorizado dentro de los ocho días hábiles contados a partir del arribo de las mercancías, se impondrá una multa de doscientos pesos centroamericanos por cada día natural que transcurra, hasta cumplir el plazo indicado en el inciso a) del artículo 56 de esta Ley, salvo caso fortuito, fuerza mayor o causa imputable a la Administración. El transportista comunicará a las aduanas competentes la salida y llegada de la unidad de transporte y sus cargas al lugar designado.
+(Así reformado por el artículo 1° de la Ley No. 8373 de 18 de agosto de 2003).

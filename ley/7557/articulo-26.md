@@ -1,8 +1,2 @@
-ARTICULO 26.- Obligaciones generales de receptores y custodios de
-mercancías objeto de control aduanero
-Las personas físicas o jurídicas, públicas o privadas que, por
-cualquier título, reciban, manipulen, procesen o tengan en custodia
-mercancías sujetas a control aduanero, serán responsables por las
-consecuencias tributarias aduaneras producto del daño, la pérdida o
-sustracción de las mercancías. Esta disposición es extensiva a las
-empresas de estiba y autoridades o empresas portuarias y aeroportuarias.
+Artículo 26.—Responsabilidad por daño, pérdida o sustracción de mercancía. Las personas físicas o jurídicas, públicas o privadas, así como los funcionarios y los auxiliares de la función pública aduanera, que por cualquier título, reciban, manipulen, procesen, transporten o tengan en custodia mercancías sujetas a control aduanero, serán responsables por las consecuencias tributarias producidas por el daño, la pérdida o la sustracción de las mercancías, salvo caso fortuito o fuerza mayor. Esta disposición se aplicará a todas las empresas de estiba y a las autoridades o empresas portuarias y aeroportuarias, públicas o privadas.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

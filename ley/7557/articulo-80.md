@@ -1,6 +1,2 @@
-ARTICULO 80.- Recepción de bultos
-La aduana de destino recibirá los bultos u otros elementos de
-transporte con base en los manifiestos de carga o medio autorizado. El
-funcionario competente o la persona autorizada procederá a recibirlos,
-consignará su aprobación o efectuará las observaciones por los medios
-autorizados.
+Artículo 80.—Recepción de bultos. La aduana de destino o el receptor de mercancías recibirá los bultos u otros elementos de transporte, con base en los manifiestos de carga o el medio autorizado. El funcionario competente o la persona autorizada procederá a recibirlos, consignará su aprobación o efectuará las observaciones por los medios autorizados; lo anterior sin perjuicio de las atribuciones aduaneras en materia de control.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

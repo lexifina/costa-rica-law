@@ -1,23 +1,12 @@
-ARTICULO 81.- Bultos faltantes y sobrantes
-Si en el momento de recibirse los bultos en los lugares y por las
-personas autorizadas se encuentran diferencias entre lo declarado y las
-mercancías descargadas, se efectuarán las rectificaciones o los ajustes en
-el manifiesto o medio que lo sustituya.
-El transportista estará obligado a rectificar o aclarar
-pertinentemente, dentro de un plazo de un mes a partir de la fecha de
-descarga en los siguientes casos:
-Si se trata de bultos faltantes, cuando exista diferencia respecto de
-las mercancías consignadas en los manifiestos o medios sustitutos y se
-demuestre lo siguiente:
+Artículo 81.—Bultos faltantes y sobrantes. Cuando al finalizar la descarga del medio de transporte, resulten más o menos bultos respecto de la cantidad declarada en el manifiesto o documento equivalente y así lo verifique y transmita el auxiliar receptor de la mercancía, el transportista deberá justificar ante la aduana de control el faltante o el sobrante de bultos, dentro del plazo máximo de un mes contado a partir de finalizada la descarga.
+Si faltan bultos, la aduana aceptará la justificación solo cuando se demuestre fehacientemente que las mercancías:
 a) No fueron cargadas.
-b) Fueron perdidas en accidentes.
-c) Fueron descargadas en lugar distinto o,
-d) Por error quedaron a bordo del medio de transporte.
-Si se trata de bultos sobrantes, cuando al efectuarse la descarga
-exista diferencia respecto de las mercancías consignadas en los
-manifiestos o los medios sustitutos y se demuestre que faltaron en otro
-puerto o aeropuerto.
-Cuando el transportista haya recibido contenedores cerrados con
-dispositivos de seguridad, la responsabilidad de justificar los bultos
-sobrantes o faltantes corresponderá al exportador o embarcador de las
-mercancías.
+b) Se perdieron en accidente.
+c) Fueron descargadas en lugar distinto.
+d) Quedaron a bordo del medio de transporte, por error.
+e) La falta de las mercancías se produjo por caso fortuito o fuerza mayor.
+De sobrar bultos, se aceptará la justificación cuando el transportista demuestre que las mercancías estaban destinadas a otro puerto o aeropuerto. En caso contrario, las mercancías causarán abandono a favor del Fisco; en tal situación, el consignatario no podrá disponer de las mercancías.
+Cuando el transportista no pueda justificar ninguna de las situaciones anteriores, incurrirá en las sanciones correspondientes, sin perjuicio de la responsabilidad por los delitos o las infracciones previstos en esta Ley.
+Cuando el transportista haya recibido los contenedores cerrados con los dispositivos de seguridad, la responsabilidad de justificar los bultos sobrantes o faltantes recaerá en el exportador o embarcador.
+Para los efectos de este artículo, la justificación correspondiente deberá ser emitida por el representante legal del transportista en el puerto de embarque, mediante documento otorgado ante notario público del lugar y debidamente legalizado, por medio del procedimiento consular o del representante legal en el país, acreditado ante la Dirección General de Aduanas.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

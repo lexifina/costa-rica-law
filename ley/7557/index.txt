@@ -3,6 +3,7 @@ articulo-2.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
+articulo-5-bis.md
 articulo-6.md
 articulo-7.md
 articulo-8.md
@@ -27,6 +28,7 @@ articulo-26.md
 articulo-27.md
 articulo-28.md
 articulo-29.md
+articulo-29-bis.md
 articulo-30.md
 articulo-31.md
 articulo-32.md
@@ -38,11 +40,14 @@ articulo-37.md
 articulo-38.md
 articulo-39.md
 articulo-40.md
+articulo-40-bis.md
 articulo-41.md
 articulo-42.md
 articulo-43.md
 articulo-44.md
+articulo-44-bis.md
 articulo-45.md
+articulo-45-bis.md
 articulo-46.md
 articulo-47.md
 articulo-48.md
@@ -77,9 +82,14 @@ articulo-76.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
+articulo-79-bis.md
+articulo-79-ter.md
 articulo-80.md
 articulo-81.md
+articulo-81-bis.md
 articulo-82.md
+articulo-82-bis.md
+articulo-82-ter.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
@@ -91,6 +101,7 @@ articulo-90.md
 articulo-91.md
 articulo-92.md
 articulo-93.md
+articulo-93-bis.md
 articulo-94.md
 articulo-95.md
 articulo-96.md
@@ -143,6 +154,8 @@ articulo-142.md
 articulo-143.md
 articulo-144.md
 articulo-145.md
+articulo-145-bis.md
+articulo-145-ter.md
 articulo-146.md
 articulo-147.md
 articulo-148.md
@@ -202,6 +215,7 @@ articulo-201.md
 articulo-202.md
 articulo-203.md
 articulo-204.md
+articulo-204-bis.md
 articulo-205.md
 articulo-206.md
 articulo-207.md
@@ -214,10 +228,12 @@ articulo-213.md
 articulo-214.md
 articulo-215.md
 articulo-216.md
+articulo-216-bis.md
 articulo-217.md
 articulo-218.md
 articulo-219.md
 articulo-220.md
+articulo-220-bis.md
 articulo-221.md
 articulo-222.md
 articulo-223.md
@@ -234,6 +250,7 @@ articulo-233.md
 articulo-234.md
 articulo-235.md
 articulo-236.md
+articulo-236-bis.md
 articulo-237.md
 articulo-238.md
 articulo-239.md
@@ -250,6 +267,7 @@ articulo-249.md
 articulo-250.md
 articulo-251.md
 articulo-252.md
+articulo-252-bis.md
 articulo-253.md
 articulo-254.md
 articulo-255.md
@@ -263,10 +281,12 @@ articulo-262.md
 articulo-263.md
 articulo-264.md
 articulo-265.md
+articulo-265-bis.md
 articulo-266.md
 articulo-267.md
 articulo-268.md
 articulo-269.md
+articulo-269-bis.md
 articulo-270.md
 articulo-271.md
 articulo-272.md

@@ -1,5 +1,3 @@
-ARTICULO 57.- Base imponible
-La base imponible de la obligación tributaria aduanera de los
-derechos arancelarios a la importación está constituida por el valor
-aduanero de las mercancías y, en los demás tributos de importación o
-exportación, por lo que establece su respectiva ley de creación.
+Artículo 57.—Base imponible. La base imponible de la obligación tributaria aduanera de los derechos arancelarios a la importación estará constituida por el valor en aduanas de las mercancías, según lo definen el acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, esta Ley y la demás normativa nacional e internacional aplicable.
+La base imponible de la obligación tributaria aduanera de los demás tributos de importación o exportación, será la definida por la respectiva ley de creación de cada tributo.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

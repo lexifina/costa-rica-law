@@ -1,0 +1,1 @@
+Transitorio VIII.—El Ministerio de Hacienda dispondrá de un plazo hasta de seis meses para sustituir a uno de los abogados miembros del Tribunal Aduanero Nacional por un técnico especialista en clasificación arancelaria, valoración aduanera, origen de las mercancías y demás regulaciones del comercio exterior, según el artículo 206 de esta Ley.

@@ -1,10 +1,2 @@
-ARTICULO 82.- Irregularidades en la recepción
-Las mercancías y los bultos con señales de daño, saqueo o deterioro,
-se colocarán en sitio aparte para su inspección y reconocimiento
-inmediato, se ordenará su reembalaje y se efectuarán las anotaciones de
-rigor en los documentos respectivos. En este caso o cuando la naturaleza
-de las mercancías difiera entre lo descargado y lo declarado o existan
-signos de violencia o daño en la unidad o elemento de transporte, en los
-precintos, sellos, marchamos o dispositivos de seguridad, se estará a lo
-dispuesto en materia de delitos aduaneros e infracciones administrativas
-y tributarias aduaneras.
+Artículo 82.—Irregularidades en la recepción. Los bultos con señales de daño, saqueo o deterioro se colocarán en sitio aparte para ser inspeccionados y reconocidos de inmediato, se ordenará su reembalaje y se efectuarán las anotaciones de rigor en los documentos respectivos. En este caso o cuando la naturaleza de las mercancías difiera entre lo descargado y lo declarado, o bien cuando existan signos de violencia o daño en la unidad o el elemento de transporte, en los precintos, sellos, marchamos o dispositivos de seguridad, se estará a lo dispuesto en materia de delitos aduaneros e infracciones administrativas.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

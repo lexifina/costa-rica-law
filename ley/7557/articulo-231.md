@@ -1,9 +1,3 @@
-ARTICULO 231.- Aplicación de sanciones
-Las infracciones administrativas y las infracciones tributarias
-aduaneras son sancionables, en vía administrativa, por la autoridad
-aduanera que conozca del respectivo procedimiento administrativo.
-En cuatro años prescribe la facultad de la autoridad aduanera para
-sancionar las infracciones reguladas en este Capítulo. El término de
-prescripción de la acción sancionatoria se interrumpirá desde que se le
-notifica al supuesto infractor la sanción aplicable en los términos del
-artículo 234 de esta ley.
+Artículo 231.—Aplicación de sanciones. Las infracciones administrativas y las infracciones tributarias aduaneras serán sancionables, en vía administrativa, por la autoridad aduanera que conozca del respectivo procedimiento administrativo. Serán eximentes de responsabilidad, los errores materiales o de hecho sin incidencia fiscal, la fuerza mayor y el caso fortuito, en aplicación de los principios de razonabilidad y proporcionalidad.
+La facultad de la autoridad aduanera para sancionar las infracciones reguladas en este capítulo, prescribe en seis años contados a partir de la comisión de las infracciones. El término de prescripción de la acción sancionatoria se interrumpirá desde que se le notifique al supuesto infractor la sanción aplicable en los términos del artículo 234 de esta Ley.
+(Así reformado por el artículo 1° de la Ley No. 8373 de 18 de agosto de 2003
