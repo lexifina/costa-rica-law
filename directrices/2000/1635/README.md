@@ -14,3 +14,4 @@ Directrices de acatamiento obligatorio para la validez, perfeccionamiento y form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-23 | la propia norma |
+| 2 | 2004-11-05 | Resolución 749 (2004-11-05) |
