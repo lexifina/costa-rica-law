@@ -1,4 +1,5 @@
 27402-MP-MOPT
+(Este decreto fue derogado por el artículo 1° del decreto ejecutivo N° 31678 del 8 de enero del 2004)
 EL PRESIDENTE DE LA REPUBLlCA,
 Y LOS MINISTROS DE LA PRESIDENCIA
 Y DE OBRAS PUBLICAS Y TRANSPORTES,
