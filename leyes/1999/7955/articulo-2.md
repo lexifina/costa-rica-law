@@ -1,1 +1,2 @@
 ARTÍCULO 2.- El Ministerio de Trabajo y Seguridad Social, mediante la Dirección Nacional de Empleo, reconocerá de pleno derecho el subsidio económico referido en esta ley, a las personas incluidas en las listas de beneficiarios de auxilios anteriores, existentes en dicho Ministerio, excepto en los casos objetados por la Contraloría General de la República, en su oportunidad.
+(Anulado parcialmente por resolución de la Sala Constitucional No.5500-00 de las 14:33 horas del 5 de julio de 2000)
