@@ -1,0 +1,2 @@
+Art 2° Se autoriza al S. Poder Ejecutivo para fijar el punto en donde debe construirse el hospicio de leprosos de que habla en el art. 1° de la citada ley. A la Cámara de Senadores, Dado en San José, diecisiete de mil ochocientos sesenta y cuatro.
+Al Poder Ejecutivo. Sala de la Cámara de Senadores, San José julio diecinueve de mil ochocientos sesenta y cuatro. Palacio Nacional, San José julio veinte de mil ochocientos sesenta y cuatro. Ejecútese
