@@ -1,1 +1,3 @@
 Artículo 7°-Para el cómputo del tiempo servido no es preciso que los servicios hayan sido prestados consecutivamente; basta que lo hayan sido en el ramo de comunicaciones (Correos, Telégrafos, Teléfonos o Radios Nacionales), aunque en diferentes cargos, destinos o trabajos, y en cualquiera de sus diversos departamentos.
+Además, se computará a favor de los empleados que a la fecha de esta ley estén prestando servicios en cualquier dependencia de Comunicaciones, el tiempo que hayan ejercido funciones en cualquier otra dependencia del Gobierno de la República, siempre que no hayan conseguido pensión por estos últimos servicios.
+(Así adicionado el párrafo anterior por el artículo único de la ley N° 13 del 30 de mayo de 1944)
