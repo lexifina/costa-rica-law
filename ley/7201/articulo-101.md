@@ -1,0 +1,1 @@
+Artículo 101.- Las sociedades de inversión de renta fija operarán exclusivamente con valores de renta fija, y la utilidad o pérdida neta se asignará diariamente entre los accionistas, según los términos de este capítulo.

@@ -1,0 +1,2 @@
+Artículo 131.- Cuando el aumento de capital acordado tenga por objeto la apertura de la sociedad, la asamblea extraordinaria de accionistas podrá disponer la supresión del derecho de suscripción preferente en cuanto a ese aumento.
+En la convocatoria deberá indicarse expresamente el monto de la emisión, la forma en que se colocará y la consideración de la supresión del derecho de suscripción preferente.

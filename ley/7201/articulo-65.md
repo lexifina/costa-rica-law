@@ -1,0 +1,2 @@
+Artículo 65.- Sólo las sociedades mercantiles constituidas exclusivamente para ello, las empresas estatales y los bancos del Estado, podrán ser concesionarios de un puesto de bolsa. Ninguno de ellos podrá ser, directa ni indirectamente, concesionario de más de un puesto.
+El derecho de concesión de un puesto no podrá ser, directa ni indirectamente, objeto de contrato alguno, sea éste traslativo del dominio o del uso o goce, bajo ningún título, si no es con arreglo a las disposiciones de este artículo. Tampoco se podrá otorgar en garantía de cualquier clase, ni ser embargado.

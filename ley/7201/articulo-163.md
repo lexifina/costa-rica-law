@@ -1,0 +1,3 @@
+Artículo 163.- Las operaciones a plazo serán exigibles el día estipulado en el contrato. Las obligaciones a futuro tendrán todas el mismo día de vencimiento, que será el que se señale en el respectivo reglamento de cada bolsa.
+Las bolsas establecerán, por medio de reglamento, los márgenes o coberturas que deberán depositar los contratantes en los puestos de bolsa, para celebrar contratos a plazo o a futuro y para mantener su posición.
+También establecerá, por vía reglamentaria, el sistema de vigilancia sobre el manejo de esos márgenes y los requisitos que deberán llenar los puestos para intervenir en operaciones a futuro.

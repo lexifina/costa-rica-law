@@ -1,0 +1,1 @@
+Artículo 140.- Se aplicarán al Comité de Vigilancia y a los fiscales, en cuanto sean compatibles con su distinta función y esfera de competencia, las disposiciones de los artículos 183, 184, 185, 186, 196, 197 y 199 del Código de Comercio.

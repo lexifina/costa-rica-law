@@ -1,0 +1,2 @@
+Artículo 75.- El concesionario de puesto será solidariamente responsable con su cliente de la autenticidad de los valores negociados por cuenta de éste, cuando la falsificación sea visiblemente manifiesta. En caso contrario, el único responsable será el cliente por cuya cuenta se haya hecho la operación.
+Asimismo, el concesionario responderá por la inscripción del último titular en los registros del emisor, cuando ésta fuere necesaria, de la continuidad de los endosos y de la autenticidad del último de éstos.

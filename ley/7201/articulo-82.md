@@ -1,0 +1,1 @@
+Artículo 82.- La bolsa podrá amonestar o imponer multas a los agentes de bolsa, y en última instancia podrá suspender o cancelar la credencial a un agente de bolsa, en cualquier tiempo que éste deje de satisfacer, temporal o definitivamente, los requisitos a que se refiere el artículo 80 anterior.

@@ -1,0 +1,1 @@
+Artículo 54.- En el caso de que el valor de los títulos que garantizan las cédulas prendarias llegare a ser insuficiente para cubrir el total de las cédulas emitidas, más un veinticinco por ciento (25%), cualquier tenedor podrá pedir la venta de esos títulos aunque el plazo no esté vencido.

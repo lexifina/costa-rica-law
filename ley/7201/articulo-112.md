@@ -1,0 +1,2 @@
+Artículo 112.- Las sociedades operadoras de sociedades de inversión requerirán previa autorización de la Comisión Nacional de Valores para la apertura y la clausura de oficinas, e informarán previamente a ese organismo acerca del cambio de ubicación de ellas.
+En el caso de que abran o cambien de oficinas sin las autorizaciones e informes exigidos en este artículo, la Comisión Nacional de Valores podrá proceder a clausurarlas.

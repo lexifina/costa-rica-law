@@ -1,0 +1,3 @@
+Artículo 52.- Las cédulas prendarias se transmitirán por endoso nominativo, que deberá ser inscrito en el registro de la central emisora para su validez.
+Para ese efecto, la Central llevará un registro de cédulas prendarias en el cual se anotarán la emisión, los endosos respectivos y sus fechas, el número del título y el nombre y dirección del endosante y del endosatario, y su cancelación e incineración, todo ello con indicación de las fechas respectivas.
+No producirá efecto en relación con la Central, el endoso de cédulas prendarias antes de que hayan sido registradas, si las fechas del registro se consideraran ciertas.

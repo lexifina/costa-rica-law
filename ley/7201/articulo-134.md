@@ -1,0 +1,1 @@
+Artículo 134.- Para el ejercicio de los derechos contemplados en los artículos 26, 159, 172 y 173 del Código de Comercio, bastará en estas sociedades la tenencia de por lo menos el diez por ciento (10%) del capital social, o el porcentaje menor fijado en los estatutos.

@@ -1,0 +1,2 @@
+Artículo 66.- Toda cesión o traspaso de participaciones sociales de un concesionario de puesto de bolsa, deberá ser autorizado por la Junta Directiva de la respectiva bolsa, la que deberá pronunciarse dentro de los treinta días siguientes al de la solicitud. El silencio de la directiva equivaldrá a la autorización.
+El mismo procedimiento se seguirá en las concesionarias, para la incorporación de nuevos socios en virtud de aumentos de capital. La fusión de dos o más puestos de bolsa deberá ser aprobada por la propia bolsa.
