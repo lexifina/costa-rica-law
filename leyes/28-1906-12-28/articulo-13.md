@@ -1,0 +1,2 @@
+Artículo 13°
+En cuanto á las relaciones comerciales entre las Repúblicas mencionadas y la de Costa Rica, se conviene, como punto general, en que la libre introducción se limitará, por ahora, á sólo los productos nacionales que no se obtengan en alguna de ellas en cantidad suficiente para las necesidades del consumo, debiendo designarse libremente tales artículos y el alcance de la franquicia, en cada año, por notas que se dirigirán las Cancillerías respectivas durante el año anterior.

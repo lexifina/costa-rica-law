@@ -1,0 +1,3 @@
+Artículo 29°
+Para la extradición se entenderán directamente entre sí ó por la vía diplomática los Gobiernos signatarios correspondientes. En la reclamación se especificará la prueba ó principio de prueba que por las leyes de la República en que se hubiere cometido el delito, sea bastante para justificar la captura y enjuiciamiento del culpable.
+También deberá acompañarse la sentencia condenatoria, acusación, mandamiento de prisión ó cualquier otro documento equivalente; y debe indicarse la naturaleza y gravedad de los hechos imputados y las disposiciones penales que les sean aplicables. En caso cíe fuga, después de estar condenado y antes de haber sufrido totalmente la pena, la reclamación expresará esta circunstancia e irá acompañada únicamente de la sentencia.

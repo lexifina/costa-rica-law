@@ -1,0 +1,2 @@
+Artículo 4°
+No habiendo suscrito Guatemala la Convención de Corinto de 20 de enero de 1902 Costa Rica, El Salvador y Honduras declaran, por su parte, que dicha Convención de Corinto continúa en vigencia y que las dificultades concretas que entre ellas pudieran surgir, deberán ser arregladas conforme el expresado Convenio y al Reglamento decretado por el Tribunal de Arbitraje Centroamericano el 9 de octubre del mismo año.

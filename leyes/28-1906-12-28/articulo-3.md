@@ -1,0 +1,3 @@
+Artículo 3°
+Los Gobiernos de El Salvador, Guatemala y Honduras, de conformidad con lo establecido en el Tratado que se celebró á bordo del Marblehead, designan desde luego como Arbitros á los Excelentísimos señores Presidentes de los Estados Unidos de América y de los Estados Unidos Mexicanos, á cuyo arbitramento deberán sujetarse todas las dificultades concretas que entre ellas sobrevengan.
+Para convenir en la manera de llevar á cabo este arbitramento, dichas Repúblicas acreditarán á más tardar dentro de tres meses de esta fecha, legaciones ante los Gobiernos de los Estados Unidos de América y de México, quedando entre tanto, como reglamento para el arbitraje, lo establecido en el Tratado de Arbitraje Obligatorio celebrado en México el 29 de enero de 1902.

@@ -1,0 +1,2 @@
+Artículo 6°
+Los Agentes Diplomáticos de cada una de las Altas Partes Contratantes, favorecerán con sus buenos oficios la justicia que asista á sus connacionales; pero es entendido que en la defensa y resguardo de sus derechos e intereses y en sus reclamaciones y quejas contra la nación ó los particulares, no podrán emplear más recursos que los que las leyes de cada una de las Repúblicas signatarias conceden á sus nacionales, debiendo conformarse con la resolución definitiva de los Tribunales de Justicia.

@@ -1,0 +1,12 @@
+N° 28
+EL CONGRESO CONSTITUCIONAL DE LA
+REPÚBLICA DE COSTA RICA
+De conformidad con lo que dispone la fracción 4° del artículo 73 de la Constitución,
+DECRETA:
+Artículo único.— Apruébase el Tratado General que literalmente dice:
+TRATADO GENERAL
+DE PAZ Y AMISTAD, ARBITRAJE, COMERCIO, ETC.
+Los Gobiernos de las Repúblicas de El Salvador, Guatemala y Honduras, de conformidad con lo establecido en el Tratado de o de julio del corriente año, que se suscribió á bordo del crucero americano Marblehead, y la República de Costa Rica, procediendo por invitación de aquellos países, y en el deseo de concurrir á este acto que interesa á toda la Patria Centroamericana, con el fin de afianzar la paz en ella sobre bases firmes y estables y estrechar sus relaciones de familia y los vínculos que, por la comunidad de sus destinos, deben ligarlas, han celebrado por medio de sus Delegados, que á continuación se designan, varias sesiones, en conferencia plena, consignando en las diversas actas del Protocolo formado al efecto, las conclusiones que han juzgado convenientes para lograr tan importante objeto; y, deseando dar á dichos acuerdos una forma más solemne, han tenido á bien reducirlas á un Tratado General.
+Han intervenido por parte de la República de Costa Ríen, el Excelentísimo señor Licenciado don Luis Anderson; por la de El Salvador, los Excelentísimos Señores Doctores don Salvador Gallegos y don Salvador Rodríguez González; por la de Guatemala, los Excelentísimos señores Doctor don Francisco Anguiano y Licenciado don José Flamenco; y por la de Honduras, el Excelentísimo señor General don Sotero Barahona; quienes, cíes pues de haberse comunicado sus respectivos plenos poderes y encontrándolos en buena y debiba forma, han convenido en los siguientes artículos:
+Artículo 1°
+Habrá paz perpetua y amistad franca, leal y sincera entre las Repúblicas de Costa Rica, El Salvador, Guatemala y Honduras, debiendo cada uno de los respectivos Gobiernos considerar corno una de sus principales obligaciones el mantenimiento de esa paz y el cultivo de esa amistad, procurando poner de su parte todos aquellos medios que conduzcan á su logro y remover, dentro de la esfera de sus atribuciones, cuantos obstáculos, de cualquier naturaleza que sean, pudieran impedirlo. Para llegar á este fin, se pondrán de acuerdo, siempre que la importancia del caso lo demande, para impulsar su progreso moral, intelectual é industrial, uniformando así sus intereses cual cumple á pueblos hermanos.

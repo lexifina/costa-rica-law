@@ -1,0 +1,9 @@
+# Tratado General de Paz y Amistad, Arbitraje Comercio Centroamericano
+
+Ley N° 28 del 1906-12-28. SINALEVI, ficha 37509: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37509&param2=39550&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1906-12-28 | Ley 28 | 1906-12-28 |

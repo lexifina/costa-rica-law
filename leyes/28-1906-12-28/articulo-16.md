@@ -1,0 +1,2 @@
+Artículo 16°
+En el deseo de fomentar el comercio entre las Repúblicas Contratantes, sus respectivos Gobiernos procurarán ponerse de acuerdo para el establecimiento de naves nacionales mercantes que hagan el comercio de cabotaje, ó para los arreglos y subvenciones que deban acordarse á las Compañías de Vapores que hagan el tráfico entre San Francisco de California y Panamá, y entre Colón y Puerto Barrios.

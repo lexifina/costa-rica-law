@@ -1,0 +1,3 @@
+Artículo 22°
+La pena de dos años de privación de la libertad señala la naturaleza de los delitos que motivan la extradición cuando ella se pide durante el enjuiciamiento; pero no limita los efectos del juicio si, por circunstancias atenuantes ú otros esclarecimientos favorables al reo, fuere éste sentenciado á sufrir una pena menor.
+Si la extradición se pidiere en virtud de sentencia ejecutoriada, el reo será entregado, siempre que la pena impuesta no baje de un año de privación de la libertad.

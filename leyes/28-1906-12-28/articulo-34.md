@@ -1,0 +1,2 @@
+Artículo 34°
+Las Altas Partes Contratantes declaran solemnemente que no pueden conceptuarse ni conceptuar como naciones extranjeras alas Repúblicas de Centro América y que trabajarán constantemente por mantener entre todas ellas los vínculos de familia y la mayor cordialidad en sus relaciones, haciendo causa común entre sí en los casos de guerra ó de dificultades con naciones extranjeras, y mediando amigable y fraternalmente en sus trastornos de carácter privado.
