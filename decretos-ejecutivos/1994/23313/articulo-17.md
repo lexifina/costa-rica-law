@@ -1,1 +1,0 @@
-Artículo 17.--La solicitud de Renovación de una sustancia o producto tóxico, sustancia, producto u objeto peligroso es válida sólo para un producto y de presentada tres meses antes de la fecha de vencimiento del Registro correspondiente.

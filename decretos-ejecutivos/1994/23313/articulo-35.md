@@ -1,1 +1,0 @@
-Artículo 35.-Queda terminantemente prohibida la manipulación, almacenamiento, venta, transporte, distribución o suministro por personas naturales o jurídicas de sustancias o productos tóxicos y sustancias, productos u objetos peligrosos sin el respectivo registro.

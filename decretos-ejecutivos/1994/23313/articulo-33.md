@@ -1,1 +1,0 @@
-Artículo 33.-Se entiende que una persona física o jurídica queda habilitada para importar, fabricar, manipular, almacenar, vender, transportar, distribuir o suministrar sustancias o productos tóxicos y sustancias, productos u objetos peligrosos cuando cumpla con los requisitos establecidos en el presente Reglamento.

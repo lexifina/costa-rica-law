@@ -1,1 +1,0 @@
-Artículo 9º--EI Departamento de Registro de Sustancias Tóxicas y Medicina del Trabajo exigirá al registrante las muestras del producto que sean necesaria para los análisis de laboratorio. El registrante deberá aportar, además, el esquema de muestreo para la toma de muestras representativas.

@@ -1,1 +1,0 @@
-Artículo 15.-Toda sustancia o producto tóxico y sustancia o producto u objeto peligroso, debe consignar en la etiqueta de su empaque o embalaje la simbología correspondiente según se descríbe en el Anexo 1 que forma parte del contenido del presente reglamento. La vigencia de la etiqueta será de dos años.

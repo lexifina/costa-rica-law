@@ -1,1 +1,0 @@
-Artículo 30.-Para el otorgamiento del Permiso Sanitario de Funcionamiento toda persona física o jurídica deberá cumplir con los requisitos establecidos por los Departamentos de Seguridad e Higiene Industrial o del Departamento de Registro de Sustancias Tóxicas y Medicina del Trabajo, según las funciones propias de cada Departamento.
