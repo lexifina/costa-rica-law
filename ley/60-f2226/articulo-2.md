@@ -1,0 +1,1 @@
+Articulo 2° El Estado dará al agraciado el pasaje de ida y vuelta y le señalará durante sus estudios una pensión de cincuenta pesos oro americano al mes y cien pesos de la misma moneda al año para gastos de matrícula.
