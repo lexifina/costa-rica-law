@@ -1,0 +1,1 @@
+5°—Todo solicitante de alquiler de la maquinaria municipal deberá indicar el tiempo de duración del trabajo, lugar donde ha de realizarse el mismo y efectuar la respondiente cancelación en las agencias del Banco Nacional de Costa Rica.
