@@ -30,24 +30,22 @@ Esta Norma tiene por objeto establecer las características y calidades que debe
 3.1.2 Clase rojo: se entiende por fríjol rojo todo lote de grano que presente dicho color en una tonalidad uniforme, éste no puede contener más de 5% de frijol de otras clases.
 3.1.3 Clase blanco: se entiende por frijol blanco todo lote de grano que presente dicho color en una tonalidad uniforme, éste no puede contener más de 5% de frijol de otras clases.
 Tabla 1. Grados de calidad del frijol en grano
-Factores de calidad | % de tolerancias máximas en % masa, según grados de calidad
-. | 1° | 2° | 3°
-Humedad 1/ | 13 | 13 | 13
+Factores de calidad | Tolerancias máximas en % masa, según grados de calidad
+. | 1º | 2º | 3º
 Impurezas 1/ | 0,5 | 2 | 3
 Tipo contrastante 2/ | 1 | 3 | 5
-Aflatoxinas microgramos/kilogramo máx. | 50 | 50 | 50
 Grano dañado total 3/ | 1 | 3 | 5
-Grano quebrado | 0,5 | 0,75 | 1,0
+Grano Quebrado | 0,5 | 0,75 | 1,0
 Grano partido | 0,5 | 3 | 5
 Infestado | | NO SE ACEPTA |
-Otros granos | 0 | 0,5 | 1,0
-Dudosamente infestado | | SE ACEPTA |
-Tiempo cocción (minutos) máx. | 90 | 120 | 150
+Otros granos | 0 | 0,5 | 1
+Dudosamente infestado | . | SE ACEPTA | .
+*ppb = microgramos/kilogramo.
 1/ | En transacciones a granel este factor es un indicador, pudiéndose aplicar castigos mediante negociación entre las partes, en el caso de que el porcentaje sea superior, o bonificación en el caso de ser inferior. En caso de venta directa al consumidor, este debe cumplirse.
-2/ | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificará como mezclado, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
-3/ | Dentro de estas tolerancias máximas no se aceptará más del 1% de grano picado por insectos.
-NOTA: La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme con la tabla de tolerancias máximas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 21061 del 12 de febrero de 1992)
+2/ | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificaría como MEZCLADO, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
+3/ | Dentro de estas tolerancias máximas no se aceptaría más del 1% de grano picado por insectos.
+NOTA: La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme a la tabla de tolerancias máximas.
+(Así reformado tácitamente por el artículo 1° del decreto ejecutivo N° 29487 del 23 de abril de 2001, el cual modifico el artículo 1° del decreto ejecutivo N° 21061 del 12 de febrero de 1992 que reforma este artículo)
 3.2 Por calidad: los factores que se tienen en cuenta para la determinación de las calidades y los factores de clasificación, se presentan en el cuadro N° 1, en el cual se han establecido grados o categorías con las tolerancias porcentuales para cada caso.
 4 Características
 4.1 Características generales: los lotes de granos de frijol que deben ser propios para el consumo humano, deben provenir de variedades legítimas y sanas. Son enteros, limpios, exentos en particular de residuos de abonos, plaguicidas, cualquier cuerpo extraño y deberán corresponder a las indicaciones de calidad.
