@@ -1,0 +1,1 @@
+Art. 2. Se autoriza al Ejecutivo para que tomando los informes correspondientes, disponga el lugar en donde deba fabricarse, como tambien, de qué materiales y su tamaño, procurando se edifique con la decencia posible.

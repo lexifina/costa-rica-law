@@ -1,0 +1,1 @@
+Art. 5. La cóngrua que se le debe asignar al Ministro, serà la de veinte pesos mensuales que deberan satisfacerse de los fondos de la aduana sobre toda clase de proventos que rinda aquella administracion.
