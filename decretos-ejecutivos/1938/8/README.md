@@ -12,3 +12,4 @@ Reglamento Producción Conservación Transporte y Venta Leche
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1938-04-01 | la propia norma |
+| 2 | 1994-07-01 | Decreto Ejecutivo 23480 (1994-07-01) |
