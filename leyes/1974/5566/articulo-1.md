@@ -1,0 +1,47 @@
+Artículo 1º.- Ratifícase en todas y cada una de sus partes el
+Convenio sobre la Prevención de la Contaminación del Mar por Vertimiento
+de Desechos y Otras Materias, firmado en México D.F., México el 29 de
+diciembre de 1972, que dice:
+CONVENIO SOBRE LA PREVENCION DE LA CONTAMINACION DEL MAR
+POR VERTIMIENTO DE DESECHOS Y OTRAS MATERIAS.
+Las Partes Contratantes del presente Convenio,
+Reconociendo que el medio marino y los organismos vivos que mantiene
+son de vital importancia para la Humanidad y que es de interés común el
+utilizarlo de forma que no se perjudiquen ni su calidad ni sus recursos;
+Reconociendo que la capacidad del mar para asimilar desechos y
+convertirlos en inocuos, y que sus posibilidades de regeneración de
+recursos naturales no son ilimitadas;
+Reconociendo que de conformidad con la Carta de las Naciones Unidas
+y los principios del Derecho Internacional, los Estados tienen el derecho
+soberano de explotar sus propios recursos según su propia normativa en
+materia de medio ambiente y la responsabilidad de asegurar que las
+actividades que se realicen dentro de su jurisdicción o bajo su control
+no causen daño al medio ambiente de otros Estados y al de zonas situadas
+fuera de los límites de la jurisdicción nacional;
+Recordando la Resolución 2749 (XXV) de la Asamblea General de las
+Naciones Unidas sobre los principios que rigen los fondos marinos y
+oceánicos y sus subsuelo, fuera de los límites de la jurisdicción
+nacional;
+Observando que la contaminación del mar tiene su origen en diversas
+fuentes tales como vertimientos y descargas a través de la atmósfera, los
+ríos, los estuarios, las cloacas y las tuberías, y que es importante que
+los Estados utilicen los mejores medios posibles para impedir dicha
+contaminación y elaboren productos y procedimientos que disminuyan la
+cantidad de desechos nocivos que deban ser evacuados;
+Convencidos de que puede y debe emprenderse sin demora una acción
+internacional para controlar la contaminación del mar por el vertimiento
+de desechos, pero que dicha acción no debe excluir el estudio, lo antes
+posible, de medidas destinadas a controlar otras fuentes de contaminación
+del mar; y
+Deseando mejorar la protección del medio marino alentando a los
+Estados con intereses comunes de determinadas zonas geográficas a que
+concierten los acuerdos adecuados para complementar el presente Convenio.
+Ha acordado los siguiente:
+ARTICULO PRIMERO
+Las Partes Contratantes promoverán individual y colectivamente el
+control efectivo del todas la fuentes de contaminación del medio marino,
+y se comprometen especialmente a adoptar todas las medidas posibles para
+impedir la contaminación del mar por el vertimiento de desechos y otras
+materias que puedan constituir un peligro para la salud humana, dañar los
+recursos biológicos y la vida marina, reducir las posibilidades de
+esparcimiento o entorpecer otros usos legítimos del mar.

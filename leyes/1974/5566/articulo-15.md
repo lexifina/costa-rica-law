@@ -1,0 +1,37 @@
+ARTICULO DECIMOQUINTO
+1. a. En las reuniones de las Partes Contratantes convocadas conforme al
+Artículo Decimocuarto se podrá adoptar enmiendas al presente Convenio por
+una mayoría de dos tercios de los presentes. Las enmiendas entrarán en
+vigor para las Partes que las hayan aceptado el sesentavo día después de
+que dos tercios de las Partes hayan depositado en la Organización el
+instrumento de aceptación de la enmienda. Con posterioridad las enmiendas
+entrarán en vigor para cualquier otra Parte a los treinta días de haber
+depositado tal Parte su instrumento de aceptación de la enmienda en
+cuestión.
+b. La Organización informará a todas la Partes Contratantes de
+cualquier solicitud que se haga para la convocatoria de una reunión
+especial con arreglo al Artículo Decimocuarto y de cualquier enmienda
+adoptada en las reuniones de las Partes, así como de la fecha en que cada
+una de dichas enmiendas entre en vigor para cada Parte.
+2. Las enmiendas a los Anexos estarán basadas en consideraciones
+científicas o técnicas. Dichas enmiendas, una vez aprobadas por una
+mayoría de dos tercios de los presentes en una reunión convocada con
+arreglo al Artículo Decimocuarto entrarán en vigor por la Parte
+Contratante que las haya aceptado inmediatamente después que haya
+notificado su aceptación a la Organización y para las demás Partes cien
+días después de haber sido aprobadas por la reunión, salvo para aquéllas
+que, antes de haber transcurrido los cien días, hagan la declaración de
+que por el momento no pueden aceptar la enmienda. Las Partes deberán
+esforzarse en manifestar lo antes posible a la Organización de su
+aceptación de una enmienda que haya sido aprobada en una reunión.
+Cualquier Parte podrá en todo momento substituir su declaración previa de
+objeción por una de aceptación, con lo cual la enmienda anteriormente
+objetada entrará en vigor para dicha Parte.
+3. Toda aceptación o declaración de objeción con arreglo a este
+artículo se efectuará depositando un instrumento en la Organización. La
+Organización notificará a todas la Partes Contratantes la recepción de
+tales instrumentos.
+4. Antes de la designación de la Organización, las funciones de
+Secretaría que le son confiadas en l presente serán ejercidas
+temporalmente por el Gobierno del Reino Unido de Gran Bretaña e Irlanda
+del Norte como uno de los depositarios del presente Convenio.
