@@ -1,0 +1,1 @@
+Artículo 6°-Los jefes de oficinas serán directamente responsables de los fondos que manejen, y su sueldo quedará afectado a esa responsabilidad, sin perjuicio de la penal que les cupiere en caso de mal versación o sustracción. A ese fin, no se pagarán los sueldos de lo telegrafistas hasta no estar completamente liquidadas las cuentas de mes a que dicho sueldo corresponda.

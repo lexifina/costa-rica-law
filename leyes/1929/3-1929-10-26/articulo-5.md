@@ -1,0 +1,2 @@
+Artículo 5°-La Secretaría de Hacienda pasará cuenta detallada de los ingresos a la Contabilidad Nacional, la que al verificar el control examinará si los valores remitidos corresponden al producto de los telegramas y radiogramas de cada oficina.
+Terminado el control de cada mes, la Contabilidad Nacional formulará el cuadro demostrativo de los ingresos por oficinas y lo presentará al Secretario de Hacienda.

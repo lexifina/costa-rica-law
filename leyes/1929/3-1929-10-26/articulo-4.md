@@ -1,0 +1,3 @@
+Artículo 4°-El precio de los telegramas y radiogramas se cobrará en adelante en dinero.
+En los lugares en donde hubiere Tesorería Nacional auxiliar, los jefes de oficina depositarán cada día el importe de la recaudación día anterior.
+No existiendo Tesorería auxiliar ni casas bancarias o bancos que hagan ese servicio, dichos jefes de oficina remitirán a la Secretaría Hacienda, para su entero en la Administración de Rentas Nacional las sumas recaudadas en los seis días anteriores en valores declarados como servicio oficial, con todos los requisitos y formalidades que exige el envío de esa correspondencia.
