@@ -1,0 +1,1 @@
+Artículo 2°. -No habrá reserva de pruebas en los juicios civiles y criminales; en consecuencia, todas las partes contenedoras en un juicio tienen el derecho de presenciar las declaraciones de los testigos, que constituyen una prueba judicial, y de repreguntar respectiva y recíprocamente a los mismos testigos.
