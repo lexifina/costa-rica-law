@@ -4,9 +4,10 @@ CAPITULO I
 REQUISITOS DE ENCAJE
 A. Tasas de encaje mínimo legal
 1. Los depósitos y obligaciones en moneda nacional de los entes financieros que a la entrada en vigencia de la Ley 7558, del 27 de noviembre, 1995, se encontraban sujetos al requisito de encaje mínimo legal, estarán sometidos a los siguientes requerimientos de encaje:
-a) Para los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los depósitos y obligaciones a plazo vencido, los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista, así como otras obligaciones de exigibilidad inmediata, aplican las siguientes tasas:
+(*)a) Para los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los depósitos y obligaciones a plazo vencido; los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista; las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, así como otras obligaciones de exigibilidad inmediata, aplican las siguientes tasas:
 Fecha | Tasa
-Hasta el 28 de febrero, 1997 a partir del: | 25%
+Hasta el 28 de febrero, 1997 | 25%
+a partir del: |
 1° de marzo, 1997 | 24%
 1° de abril, 1997 | 23%
 1° de mayo, 1997 | 22%
@@ -16,7 +17,8 @@ Hasta el 28 de febrero, 1997 a partir del: | 25%
 1° de diciembre, 1997 | 18%
 1° de enero, 1998 | 17%
 1° de febrero, 1998 | 16%
-1° de marzo, 1998 | 15%
+1° de mareo, 1998 | 15%
+(*)(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
 b) Para los depósitos y obligaciones exigibles a plazos menores de ciento ochenta días, así como los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a tasas:
 Fecha | Tasa
 Hasta el 30 de junio, 1997 a partir del: | 17%
@@ -31,9 +33,10 @@ Hasta el 28 de febrero, 1997 a partir del: | 10%
 1° de junio, 1997 | 14%
 1° de julio, 1997 | 15%
 2. Los depósitos y obligaciones en moneda extranjera de los entes financieros que a la entrada en vigencia de la Ley 7558, del 27 de noviembre, 1995, se encontraban sujetos al requisito de encaje mínimo legal, estarán sometidos a los siguientes requerimientos de encaje:
-a) Para los depósitos y obligaciones exigibles a la vista, a plazo vencido y a plazos no mayores de treinta días de los intermediarios financieros, aplicarán las siguientes tasas:
+(*)a) Para los depósitos y obligaciones exigibles a la vista, a plazo vencido, a plazos no mayores de treinta días y para las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, aplican las siguientes tasas:
 Fecha | Tasa
-Hasta el 28 de febrero, 1997 a partir del: | 25%
+Hasta el 28 de febrero, 1997 | 25%
+a partir del: |
 1° de marzo, 1997 | 24%
 1° de abril, 1997 | 23%
 1° de mayo, 1997 | 22%
@@ -44,6 +47,7 @@ Hasta el 28 de febrero, 1997 a partir del: | 25%
 1° de enero, 1998 | 17%
 1° de febrero, 1998 | 16%
 1° de marzo, 1998 | 15%
+(*)(Así reformado el inciso anterior en sesión N° 4912 del 7 de mayo de 1997)
 b) Para los depósitos y obligaciones exigibles a plazos iguales o mayores de treinta días de los intermediarios financieros, aplica una tasa del 5%.
 3. Los intermediarios financieros no bancarios, que a la fecha de entrada en vigencia de la Ley 7558 del 27 de noviembre, 1995, no estaban sujetos al requisito de encaje mínimo legal, pero que en virtud de la citada ley deben estarlo, estarán obligados a cumplir con los requerimientos de encaje que se indican a continuación.
 a) El 15% de todos los depósitos y obligaciones en moneda nacional. Este porcentaje aplica sobre cualesquiera otra operación de captación de recursos financieros que realicen los intermediarios financieros, cuyas características sean similares a las de los depósitos bancarios.
