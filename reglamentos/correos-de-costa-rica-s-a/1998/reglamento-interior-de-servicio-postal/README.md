@@ -1,0 +1,16 @@
+# Reglamento (1998-12-18)
+
+Reglamento Interior de Servicio Postal
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1998-12-18
+- Ente emisor: Correos de Costa Rica S. A.
+- Publicación: La Gaceta N° 246 del 1998-12-18
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53013&param2=57683&param3=1 (ficha 53013)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-12-18 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 24.—Formalidades que deberá cumplir el expedidor. Al momento de depositar una encomienda postal Correos le proporcionará al cliente los formularios respectivos, mismos que deberán acompañar al envío.
