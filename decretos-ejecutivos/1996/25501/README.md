@@ -14,3 +14,4 @@ Reglamento para Aplicación del Impuesto al Activo de las Empresas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-04 | la propia norma |
+| 2 | 1997-06-12 | Decreto Ejecutivo 26178 (1997-06-12) |
