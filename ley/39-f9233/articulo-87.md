@@ -1,3 +1,0 @@
-Artículo 87.-Los testimonios de escrituras que se presenten al Registro, llevarán en el ángulo superior izquierdo de la primera plana, al pie o en hoja adicional, un cuadro o casilla en el que deben consignarse los datos necesarios, que indiquen las normas del Registro para extender el asiento del diario. En la casilla, podrán usarse abreviaturas y cifras en lo referente a números o cantidades.
-Los errores u omisiones que se cometan en la casilla se corregirán, si fuere posible, al final de la misma, y en caso contrario o si el documento hubiera sido presentado al Registro, mediante razón suscrita por el notario al pie del testimonio o en hoja adicional.
-(Así reformado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)

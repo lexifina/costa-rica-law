@@ -1,1 +1,0 @@
-Artículo 92.- En el primer caso del artículo anterior, sólo podrá reclamar la nulidad de la persona obligada a favor del Notario, del testigo o de sus respectivos cónyuges o parientes, y en el segundo caso, sólo podrá reclamarse la nulidad contra el otorgante que al hacer la escritura conociere el impedimento.

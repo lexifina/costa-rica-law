@@ -1,1 +1,0 @@
-Artículo 12.- El abogado que quiera ejercer el notariado, solicitará de la Corte Suprema de Justicia la debida autorización. La petición se hará en papel sellado de cincuenta céntimos a la cual se acompañarán el título de Notario y constancia del Ministerio de Economía y Hacienda de haber rendido la garantía.
