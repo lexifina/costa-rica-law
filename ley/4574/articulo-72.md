@@ -1,0 +1,3 @@
+Artículo 72.- Todo funcionario o empleado encargado de recibir, custodiar o pagar bienes o valores municipales o cuyas atribuciones permitían o exijan su tenencia, será responsable de ellos y de cualquier pérdida, daño, abuso, empleo o pago ilegal que sea o sean imputables a su dolo, culpa o negligencia.
+Como empleo ilegal se considerará, además de otros, el manejo de los bienes o valores en forma distinta a la prescrita por las leyes, reglamentos o disposiciones superiores.
+El autor de tales hechos deberá ser destituido, sin perjuicio de las responsabilidades civiles o penales en que hubiere incurrido.

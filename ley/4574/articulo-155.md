@@ -1,0 +1,1 @@
+Artículo 155.- El artículo anterior será aplicable, en lo conducente, a las suspensiones a que se refiere el inciso c) del artículo 153. La apelación será de conocimiento de los Alcaldes respectivos quienes resolverán en única instancia.

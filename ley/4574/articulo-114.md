@@ -1,0 +1,3 @@
+Artículo 114.- Los presupuestos de egresos se confeccionarán a base de programas relativos a los diferentes campos de acción de la municipalidad, y podrán ser de corto, mediano y largo plazo.
+Estos programas deberán concretarse en forma objetiva en cuanto a metas que persiguen y trabajos necesarios para desarrollarlos.
+Transitorio.- Corresponderá a la Contraloría General de la República la determinación de las municipalidades que deberán irse ajustando al sistema de presupuesto por programas, en tal forma que a más tardar tres años después de la vigencia de este Código todas las municipalidades del país estén trabajando con el nuevo sistema.

@@ -1,0 +1,1 @@
+Artículo 108.- Los fondos obtenidos por empréstitos o emisiones de bonos no podrán ser dedicados a finalidades distintas de las indicadas en la autorización de la Asamblea Legislativa o de la Contraloría General de la República en su caso.

@@ -1,0 +1,1 @@
+Artículo 71.- Los bienes y derechos municipales no pueden ser objeto de embargo ni remate judicial, salvo que sobre ellos pesare una garantía real autorizada por la Contraloría General de la República, la que no será necesaria cuando se trate de una compraventa al crédito.

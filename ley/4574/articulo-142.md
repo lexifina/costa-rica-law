@@ -1,0 +1,2 @@
+Artículo 142.- El Ejecutivo elaborará y mantendrá al día un Manual Descriptivo de Empleos que contendrá una descripción clara de las labores, deberes y requisitos mínimos de cada puesto, y el salario respectivo. El Manual y la Escala de Sueldos deberá ser aprobada por el Concejo.
+Para elaborar y actualizar el Manual, y la Escala de Sueldos, el Ejecutivo podrá solicitar la colaboración de la Dirección General del Servicio Civil, la cual estará obligada a prestarla.

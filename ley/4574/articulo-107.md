@@ -1,0 +1,1 @@
+Artículo 107.- Contratado el empréstito o efectuada la emisión de bonos, cuando la municipalidad no incluyere partidas suficientes en su presupuesto ordinario para cumplir con los compromisos adquiridos, la Contraloría General de la República hará de oficio las inclusiones necesarias en el proyecto para dar cumplimiento a la obligaciones contraídas.
