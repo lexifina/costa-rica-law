@@ -1,0 +1,1 @@
+Artículo 6°-Las solicitudes de patentes de licor provisionales deberán ser aprobadas por la mayoría simple de los miembros del concejo municipal y contra lo resuelto cabrán los recursos que establece el código municipal.

@@ -1,0 +1,1 @@
+Artículo 2°-Toda actividad de carácter público (festejos populares, ferias, turnos, topes y otros espectáculos públicos), deberá contar con la respectiva licencia extendida por el departamento de licencias y patentes municipales.

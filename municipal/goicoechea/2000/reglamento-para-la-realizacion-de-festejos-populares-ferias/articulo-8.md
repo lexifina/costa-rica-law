@@ -1,0 +1,1 @@
+Articulo 8 -En caso de incumplimiento o de escándalos y alteración al orden público, la Municipalidad a través del Departamento de Licencias y Patentes podrá intervenir y llamar al orden, llegando incluso hasta clausurar la actividad en caso necesario.

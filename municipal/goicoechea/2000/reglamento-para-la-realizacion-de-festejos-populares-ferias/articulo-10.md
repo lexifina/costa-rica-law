@@ -1,0 +1,1 @@
+Artículo 10.-En los casos en que las actividades sean organizadas por el Concejo Municipal o por una Comisión que éste designe, los puestos deberán ser adjudicados por medio del procedimiento de remate publico.

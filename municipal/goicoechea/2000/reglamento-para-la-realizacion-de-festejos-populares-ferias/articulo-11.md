@@ -1,0 +1,1 @@
+Articulo 11.-Para los efectos de cobro por concepto del Tributo de Espectáculos Públicos se aplicará lo dispuesto en la Ley de Espectáculos Públicos y su Reglamento. (Ley 6844 del 11 de enero de 1983).
