@@ -1,0 +1,1 @@
+Articulo 2°-Los participantes en la Conferencia, provenientes del exterior, podrán ingresar al país con visa de cortesía por treinta días improrrogables, cualquiera que sea su nacionalidad. Para estos efectos los Consulados de Costa Rica requerirán una copia de la inscripción oficial aceptada por el Comité Organizador de la Conferencia.
