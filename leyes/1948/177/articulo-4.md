@@ -1,1 +1,4 @@
-Articulo 4°-La Corporación de Abonos Orgánicos queda facultada para entrar en arreglos cuando lo considere conveniente, con los Concejos Municipales, o el Estado en su caso, a fin de establecer los sistemas de recolección y aprovechamiento de desechos más adecuados y aconsejables.
+Articulo 4°-De acuerdo con el interés público de esta ley, los Municipios o el Estado, en su caso, cuando sean propietarios de terrenos dedicados a la acumulación a cremación de basuras y a la purificación de aguas de las cloacas, están obligados a permitir, gratuitamente, que en tales terrenos la Corporación edifique o instale las fabricas de abonos orgánicos; igualmente están obligados a entregar gratuitamente a la Corporación todos los desechos aprovechables en la fabricación de abonos.
+La edificación o instalación de dichas fabricas se hará de acuerdo con el Ministerio de Salubridad Publica. .
+Además, la Corporación queda facultada para entrar en arreglos, cuando ambas partes lo consideren conveniente, para establecer y operar todos los sistemas de recolección más recomendables y aconsejables.
+(Así reformado por ley N° 442 del 16 de marzo de 1949)

@@ -1,1 +1,2 @@
-Articulo 7°-Para el cumplimiento de sus fines la Corporación se servirá del personal de la Sección de Granjas Experimentales y en caso de ser insuficiente éste, podrá nombrar personal adicional pagado de sus fondos, que trabajará bajo la jurisdicción del Jefe de la Sección de Granjas Experimentales, quien tendrá a su cargo la gestión ejecutiva del proyecto ordenada por la Corporación.
+Articulo 7°-Para el cumplimiento de sus fines la Corporación se servirá, de preferencia, previa autorización del Ministerio respectivo, del personal del Ministerio de Agricultura e Industria. Podrá la Corporación cuando lo considere conveniente, nombrar además un personal adicional pagado de sus propios fondos.
+(Así reformado por ley N° 442 del 16 de marzo de 1949)
