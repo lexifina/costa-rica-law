@@ -1,0 +1,5 @@
+Artículo 7°—Son funciones y atribuciones de la Comisión Coordinadora de la Central Única de Emergencias 911, las siguientes:
+a) Con el fin de lograr que el servicio sea continuo, eficiente, eficaz y de carácter público, la Comisión Coordinadora deberá dictar las políticas de organización, áreas de cobertura, sistemas de trabajo y coordinación que deberá cumplir las instituciones involucradas con la Central Única de Emergencias 911.
+b) Coordinar con el Ministerio de Educación Pública la inclusión en los programas educativos, de una unidad de aprendizaje sobre el uso e importancia de la Central Única de Emergencias 911.
+c) Coordinar con todos los medios de comunicación colectiva la divulgación mediante campañas educativas acerca de la importancia y uso de la Central Única de Emergencias 911.
+d) Dictar las directrices y establecer los procedimientos necesarios para que los departamentos especializados, creados en el presente decreto, operen con eficiencia y eficacia en la atención de emergencias.

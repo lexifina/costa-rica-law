@@ -1,0 +1,1 @@
+Artículo 10.—Las instituciones involucradas en la Comisión Coordinadora, deberán incluir dentro de sus presupuestos los costos de operación y mantenimiento de los Departamentos de Servicio de Emergencias 911.

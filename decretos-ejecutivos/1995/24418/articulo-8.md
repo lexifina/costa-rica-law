@@ -1,0 +1,1 @@
+Artículo 8°—Cada institución integrante de la Comisión Coordinadora, deberá organizar un departamento especializado denominado "Servicio de Emergencias 911", cuyas funciones formarán parte integrante de la actividad ordinaria de la institución.

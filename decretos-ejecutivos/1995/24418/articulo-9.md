@@ -1,0 +1,1 @@
+Artículo 9°—El Departamento de Servicio de Emergencia 911 de cada institución tendrá como objetivo la atención inmediata y eficiente de las emergencias que se le reporten, de conformidad con las directrices emanadas de la Comisión Coordinadora.
