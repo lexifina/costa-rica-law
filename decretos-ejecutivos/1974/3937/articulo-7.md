@@ -1,0 +1,1 @@
+Artículo 7°—El representante que dejare de concurrir a más de tres sesiones consecutivas, sin causa justificada, será considerado como renunciante de su cargo y se pedirá su reposición al organismo que esté representado en la Junta.

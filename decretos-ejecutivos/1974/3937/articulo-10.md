@@ -1,0 +1,1 @@
+Artículo 10.—Formarán parte de los ingresos de la Junta además de los señalados en la ley No 5394 lo que ésta perciba por suscripciones, gacetas, publicaciones y cualesquiera otras sumas por otros conceptos.

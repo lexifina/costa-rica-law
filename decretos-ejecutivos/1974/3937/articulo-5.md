@@ -1,0 +1,1 @@
+Artículo 5°—El quórum para todas las sesiones será de dos asistentes, las resoluciones serán tomadas por simple mayoría. En caso de empate decidirá el voto doble del Presidente, salvo que se disponga dejar el asunto para discutirlo en una próxima sesión.

@@ -1,0 +1,1 @@
+Artículo 8°—El miembro que se presente quince minutos después de la hora señalada para las sesiones, no devengará la dieta correspondiente a esa reunión, aunque no haya concurrido el representante ad-hoc que lo sustituya ni si se hubiere retirado antes de su conclusión.
