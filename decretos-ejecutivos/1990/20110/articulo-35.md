@@ -1,0 +1,1 @@
+Articulo 35.—El funcionario favorecido con la adjudicación de una beca, deberá observar una intachable conducta moral, fuera y dentro del lugar donde se imparte el curso, de lo contrario se hará acreedor a las medidas disciplinarias existentes en esta materia y no podrá participar en futuros concursos.

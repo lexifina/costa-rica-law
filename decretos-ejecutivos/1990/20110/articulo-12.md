@@ -1,0 +1,1 @@
+Artículo 12.—Los avisos de apertura del concurso se exhibirán con la mayor anticipación posible a la fecha de cierre de recepción por parte de los organismos auspiciantes, de conformidad con las circunstancias especiales de cada caso.

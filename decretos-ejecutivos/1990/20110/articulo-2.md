@@ -1,0 +1,1 @@
+Articulo 2—El Ministerio de Hacienda, por medio del Departamento de Capacitación, gestionará ante los organismos e instituciones correspondientes, la concesión de becas para la participación de sus funcionarios en todo programa de capacitación que se realice en el país o en el extranjero, que tenga relación con las funciones que se desempeñan en el Ministerio.

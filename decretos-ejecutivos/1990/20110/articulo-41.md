@@ -1,0 +1,1 @@
+Articulo 41.—No son aplicables las disposiciones de este Reglamento a los permisos con goce de salario que el Ministerio hubiere previamente otorgado, en conformidad con las leyes laborales vigentes y para que empleados del Ministerio asistan a cursos de sindicalismo o cooperativismo.

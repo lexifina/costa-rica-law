@@ -1,0 +1,1 @@
+Articulo 34.—El funcionario que, encontrándose disfrutando de una beca renuncia a esta sin justa causa, queda obligado a indemnizar al Estado por los gastos en que este haya incurrido con motivo de la beca, así como por los posibles daños y perjuicios que, en forma directa e inmediata, pueden derivarse de su decisión.

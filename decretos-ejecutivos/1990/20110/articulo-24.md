@@ -1,0 +1,2 @@
+Artículo 24.—La adjudicación de toda beca para asistir a programas de adiestra- miento o realizar estudios dentro o fuera del país, por delegación del Ministerio de Hacienda, lo hará el Departamento de Capacitación mediante acuerdo en el que deberá mencionar que se han cumplido los requisitos v observado las formalidades que establece este Reglamento.
+Firme el acuerdo, se procederá a la confección de la respectiva acción de personal a la firma del contrato correspondiente, todo con arreglo a la Ley de Licencias para Adiestramiento de Servidores Públicos.

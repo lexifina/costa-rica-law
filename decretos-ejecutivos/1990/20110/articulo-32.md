@@ -1,0 +1,3 @@
+CAPITULO IX
+De los deberes y obligaciones a cargo de los funcionarios favorecidos con la adjudicación de becas.
+Artículo 32.—El funcionario favorecido con la adjudicación de una beca, está obligado a suscribir un contrato con el Ministerio. Los términos del contrato se establecerán en cada caso, por común acuerdo del beneficiario y el Ministerio, sin prejuicio de las obligaciones que prescribe la Ley de Licencias para Adiestramiento de Servidores Públicos. Las condiciones estipuladas en los carteles que sacan a concurso una beca se entienden aceptadas por el interesado y, por lo mismo, incorporadas al contrato. En cada caso, el Ministerio exigirá una garantía colateral de cumplimiento del servidor, mediante pagaré.

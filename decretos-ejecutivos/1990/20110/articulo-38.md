@@ -1,0 +1,1 @@
+Articulo 38.—En la designación de candidatos a disfrutar de una beca, se podrá considerar a un funcionario interino, siempre y cuando un funcionario en propiedad no reúna los requisitos correspondientes o no tenga interés en la beca.

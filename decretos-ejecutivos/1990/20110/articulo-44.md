@@ -1,0 +1,1 @@
+Articulo 44.—Cuando se otorgue una beca sin cumplir con los requisitos aquí establecidos, el Departamento de Capacitación podrá declarar su nulidad. Tanto funcionario que otorgó la beca como el beneficiario responderán ante el Estado por los daños y perjuicios causados y, además, no podrán participar en los siguientes cursos.
