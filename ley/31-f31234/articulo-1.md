@@ -10,3 +10,5 @@ Quien contraviniere esta obligación será condenado, por la autoridad judicial 
 Se autoriza al Poder Ejecutivo para proceder por cuenta del Estado a la reparación de aquellos tranvías de particulares que fueren abandonados o no estuvieren en buenas condiciones de servicio. El derecho de uso que los particulares pagaren por el uso de un tranvía así reparado, corresponderá al Estado hasta tanto no sea resarcido de la inversión. La forma de cobro se establecerá en el reglamento respectivo.
 En todo caso de reincidencia, la pena será igual al doble de la anterior: en la materia no cabra suspensión de pena.
 (Así reformado por el artículo único de la Ley N° 25 del 22 de octubre de 1943)
+Excepto en cuanto al cobro autorizado en los apartes primero y segundo, también es aplicable este artículo a los puentes de propiedad particular que formen parte de vías de comunicación en la zona atlántica, que sean vitales para el desarrollo de la producción agrícola de esa región.
+(Así adicionado el párrafo anterior por el artículo único de la Ley N° 119 del 17 de julio de 1945)
