@@ -1,0 +1,12 @@
+ARTÍCULO 87.- Trabajo y educación
+El derecho y la obligación de educarse de las personas menores de
+edad deberán armonizarse con el trabajo de las personas adolescentes. Para
+ello, su trabajo deberá ejecutarse sin detrimento de la asistencia al
+centro educativo. El Ministerio de Educación Pública diseñará las
+modalidades y los horarios escolares que permitan la asistencia de esta
+población a los centros educativos.
+Las autoridades de los centros educativos velarán porque el trabajo
+no afecte la asistencia y el rendimiento escolar. Deberán informar, a la
+Dirección Nacional e Inspección General de Trabajo del Ministerio de
+Trabajo y Seguridad Social, cualquier situación irregular en las
+condiciones laborales de los educandos.

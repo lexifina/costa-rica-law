@@ -1,0 +1,1 @@
+Artículo 100°- Seguro por riesgos de trabajo. Las personas adolescentes que ejercen el trabajo independiente y por cuenta propia tienen derecho al seguro por riesgos del trabajo a cargo, subsidiado por el Instituto Nacional de Seguros, según el reglamento que se emitirá al respecto.

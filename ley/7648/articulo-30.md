@@ -16,3 +16,8 @@ sus cargos ad honórem.
 El representante del Patronato será designado por el Presidente
 Ejecutivo de la Institución, con base en nóminas que deberán remitir las
 oficinas locales.
+(Tácitamente ampliado por el artículo 179 del Código de la Niñez y
+la Adolescencia No.7739 de 6 de enero de 1998, que indica que cada junta
+contará además con un representante de la población adolescente de la
+comunidad, quien deberá ser mayor de quince años y actuará con voz y
+voto).

@@ -1,0 +1,1 @@
+Artículo 177°- Sesiones del Consejo. El Consejo sesionará ordinariamente una vez por mes y, en forma extraordinaria, cuando sea convocado por su presidente, a solicitud de una tercera parte de la totalidad de los miembros. El Consejo sesionará con un mínimo de ocho integrantes.

@@ -8,7 +8,7 @@ dentro de las veinticuatro horas siguientes a la solicitud y, si la
 autoridad judicial las denegare, la resolución que así lo decida deberá
 ser suficientemente motivada.
 Las autoridades de la policía judicial y administrativa, competentes
-por razón de territorio, estarán obligadas a prestar cooperación eficiente
-para los allanamientos, con prioridad sobre cualquier otro asunto. La
-inobservancia de lo anterior dará motivo a responsabilidades
+por razón de territorio, estarán obligadas a prestar cooperación
+eficiente para los allanamientos, con prioridad sobre cualquier otro
+asunto. La inobservancia de lo anterior dará motivo a responsabilidades
 disciplinarias del servidor, de acuerdo con la ley.

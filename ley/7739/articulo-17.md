@@ -1,0 +1,1 @@
+Artículo 17°- Derecho al resguardo del propio interés. Las personas menores de edad no serán sujetos de rechazo, deportación ni expulsión del territorio nacional, salvo en resguardo de su propio interés, de acuerdo con los criterios determinados por el interés superior de este grupo.

@@ -1,0 +1,1 @@
+Artículo 33°- Derecho a la permanencia con la familia. Las personas menores de edad no podrán ser separados de su familia, salvo en circunstancias especiales establecidas por la ley. En este caso, tendrán derecho a la protección y asistencia técnica gratuitas por parte del Patronato Nacional de la Infancia.

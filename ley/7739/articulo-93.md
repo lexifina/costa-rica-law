@@ -1,0 +1,1 @@
+Artículo 93°- Prohibición de discriminar a embarazadas y lactantes. Quedará prohibido cesar o discriminar a la adolescente embarazada o lactante, de conformidad con lo que dispone el Código de Trabajo.
