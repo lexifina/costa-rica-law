@@ -1,0 +1,1 @@
+ARTICULO 4.- Autorízase al Ministerio de Hacienda para que reciba, en pago de los tributos adeudados, inmuebles que ofrezcan los deudores, previo avalúo por parte de la Dirección General de la Tributación Directa.
