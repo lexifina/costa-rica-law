@@ -1,0 +1,1 @@
+Artículo 2°-Para establecer todas las acciones necesarias tendientes a garantizar la probidad y su funcionamiento normal, créase la comisión reorganizadora del Servicio Nacional de Aduanas que actuará como unidad ejecutora.

@@ -1,0 +1,1 @@
+Artículo 4°-Durante La vigencia del presente decreto, la unidad ejecutora ejercerá las atribuciones y facultades que el ordenamiento jurídico señala para la Dirección General de Aduanas. Quienes integran esta dependencia quedan en la obligación ineludible de brindar su asistencia a la unidad ejecutora, en la oportunidad v modo que ésta determine.
