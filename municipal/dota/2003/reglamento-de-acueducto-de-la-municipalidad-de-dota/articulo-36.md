@@ -1,0 +1,1 @@
+Artículo 36.—Al no contar la Municipalidad con personal capacitado para realizar estudios de calidad del agua, gestionará ante las instituciones especializadas, privadas o públicas, para que los realicen por lo menos una vez al año, garantizando así la potabilidad del agua al usuario.

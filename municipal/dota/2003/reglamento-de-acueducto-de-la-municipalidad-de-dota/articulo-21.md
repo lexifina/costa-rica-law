@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se necesitan conexiones de carácter temporal, por eventos de esa índole tales como ferias, turnos, etc., podrá la Municipalidad conceder dicho servicio previa solicitud del interesado, en la que expresará la duración del evento, además de indicar la fecha de inicio, la tarifa aplicable será la reproductiva.

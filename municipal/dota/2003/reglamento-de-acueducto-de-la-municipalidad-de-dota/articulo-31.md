@@ -1,0 +1,1 @@
+Artículo 31.—En ningún caso podrán los abonados reconectar un servicio que ha sido suspendido. De hacerlo se procederá a desconectarlo de nuevo y no se reconectará -si fuere del caso- hasta tanto no se haya pagado el valor de la reconexión el cual será de un 50% más de la tarifa que se tenga establecida de conexión.

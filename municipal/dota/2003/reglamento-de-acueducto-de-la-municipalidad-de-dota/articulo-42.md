@@ -1,0 +1,1 @@
+Artículo 42.—Durante los meses de diciembre, enero, febrero, marzo, abril y mayo, no se permitirá el uso del agua potable para lavado de vehículos. Queda terminantemente prohibido el lavado de aceras, riego de zonas verdes y almacigales durante dichos meses.

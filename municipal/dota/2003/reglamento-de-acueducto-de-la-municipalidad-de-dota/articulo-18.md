@@ -1,0 +1,1 @@
+Artículo 18.—Si por algún motivo el artículo 17 no pudiese cumplirse, y que en una propiedad se abastezcan de una conexión varias unidades de ocupación, el recibo se calcula por las unidades de ocupación interconectadas.
