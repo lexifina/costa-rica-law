@@ -17,3 +17,4 @@ Reglamento de Prestación de Servicios al Abonado
 | 2 | 1997-02-26 | Reglamento 51 (1997-02-26) |
 | 3 | 1997-07-17 | Reglamento 176 (1997-07-17) |
 | 4 | 1999-08-18 | Reglamento 185 (1999-08-18) |
+| 5 | 2002-02-20 | Reglamento 14 (2002-02-20) |
