@@ -1,4 +1,8 @@
 Artículo 201
-Concesiones que no implican conmutación
-La Corte Suprema de Justicia podrá cambiar el paraje de un confinamiento, sea éste la condena impuesta en sentencia, sea el resultado de una conmutación, cuando a su juicio hubiere razón poderosa para disponerlo así.
-También podrá, por motivo de enfermedad grave suficientemente comprobada y cuando fuere indispensable para la curación o alivio del reo, decretar su traslado del establecimiento en que cumple su condena, al que posea mejores recursos para el tratamiento del caso, en donde sólo permanecerá el tiempo necesario para el fin indicado.
+Examen de las solicitudes.-Las solicitudes se dirigirán al Secretario de estado en los despachos de Gracias y Justicia.
+El Oficial Mayor pondrá al pie del escrito la razón de recibido y en ellas se hará constar la hora y fecha de la presentación, quién lo presentó y los documentos acompañados.
+Si a la solicitud faltare alguno de los requisitos ordenados en el artículo anterior, o no siendo presentada personalmente por el petente estuviera la firma sin autenticar por un abogado o por el Director o Subdirector del establecimiento penal, se rechazará de plano y se comunicará al interesado por nota en la cual se insertará la resolución que así lo declare.
+Si se hallare en regla, el Oficial Mayor pedirá al Director del establecimiento penal respectivo la certificación de que habla el artículo 89, y al Consejo Nacional de Prisiones informe sobre el tanto de la pena descontada, cuando se solicitare la conmutación, y, recibidos los procedentes, se presentará el expediente a la consideración del Secretario de Estado.
+Si la Secretaría no estima satisfactorias las informaciones presentadas por el interesado conforme al inciso 3° del artículo anterior, podrá ordenar, antes de dar curso al expediente, que se amplíen dichas informaciones y para ello comunicar instrucciones al Ministerio Público, el cual, ante la misma autoridad judicial u otra, con citación del petente, hará recibir las declaraciones de los testigos que juzgue oportuno aducir.
+Si el Secretario de estado no creyere necesaria ordenar esa ampliación o el despacho de alguna otra prueba, mandará pasar las diligencias a informe de la Corte Suprema de Justicia.
+(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)
