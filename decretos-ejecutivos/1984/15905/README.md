@@ -14,3 +14,4 @@ Declara Emergencia Nacional Componente Mejoramiento CaminosInfraestructura Zona 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-01-09 | la propia norma |
+| 2 | 1985-01-09 | SINALEVI (sin norma nombrada) |
