@@ -1,2 +1,0 @@
-Artículo 6º- Los productos comprendidos en los anexos se registran de conformidad con los aranceles nacionales correspondientes a sus respectivas nomenclaturas arancelarias.
-Cuando la clasificación correspondiente a la nomenclatura en su forma más discriminada no describa exactamente la concesión otorgada, se registrarán en dicho anexo la descripción específica del producto objeto de la concesión.

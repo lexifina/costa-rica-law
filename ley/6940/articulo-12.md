@@ -1,2 +1,0 @@
-Artículo 12º- Ambas Partes se otorgan el Trato de la Nación Más Favorecida, con las siguientes excepciones: a) aquellas derivadas de los compromisos que tengan o contraigan en el futuro en el seno de una unión aduanera, de una zona de libre comercio, o de cualquier otra forma de integración económica: b) aquellas derivadas del tráfico fronterizo.
-En el caso de los compromisos contraídos por México en la Asociación Latinoamericana de Integración (ALADI), se establece la celebración de acuerdos de Alcance Parcial con países y áreas de integración económica de América Latina.
