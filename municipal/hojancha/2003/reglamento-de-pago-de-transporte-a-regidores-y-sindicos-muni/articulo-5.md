@@ -1,0 +1,1 @@
+Artículo 5º—Cuando el regidor o síndico le asista el derecho al reconocimiento de gastos de transporte por asistir a una sesión deberá presentar la liquidación de viáticos por transporte en el formulario correspondiente de viáticos de transporte por cada sesión asistida y su pago será efectivo al final de mes con las dietas respectivas.

@@ -1,0 +1,1 @@
+Artículo 3º—Las sumas a pagar por concepto de gastos de transporte a regidores y síndicos a que se refiere este Reglamento es una asignación máxima de ¢2.000.00 por sesión asistida, no obstante previo acuerdo de Concejo puede aplicar tarifas mayores o menores en casos regulares y especiales.

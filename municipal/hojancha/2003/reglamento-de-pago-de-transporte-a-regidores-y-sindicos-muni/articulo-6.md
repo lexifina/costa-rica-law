@@ -1,0 +1,1 @@
+Artículo 6º—La Liquidación de gastos de transporte deberá hacerse detalladamente en los formularios que deban consignar como mínimo, los siguientes datos: fecha, número de cédula de identidad, puesto ocupado por el regidor o síndico, nombre completo, lugar de residencia, distrito al que pertenece.
