@@ -1,0 +1,1 @@
+Artículo 17.—Ante situaciones especiales tales como emergencias tecnológicas, accidentes mayores y/o mortales cualquiera de las Instituciones Públicas sin competencia en esta materia, puede solicitar a través del Consejo una revisión extraordinaria de cualquiera de los documentos mencionados en el artículo 7 y 8.

@@ -1,0 +1,1 @@
+Artículo 6°—Las Oficinas o Departamentos, a fin de hacer efectiva las funciones que la ley y este reglamento le confieren, podrán contratar los servicios de personas físicas o jurídicas con amplia experiencia en salud ocupacional.

@@ -1,0 +1,1 @@
+Artículo 3°—-Siendo el patrono el principal responsable de la salud ocupacional dentro de la empresa, la Oficina o Departamento dependerá del nivel gerencial. En las entidades del sector público dependerá de la más alta línea jerárquica.

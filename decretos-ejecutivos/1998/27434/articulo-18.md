@@ -1,0 +1,1 @@
+Artículo 18.—Todas las empresas o instituciones están obligadas a suministrar copia de cualquiera de los documentos referidos en los artículos 7 y 8 del presente Reglamento, a las autoridades competentes para los efectos que requiera.

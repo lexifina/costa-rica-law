@@ -1,0 +1,1 @@
+Artículo 10.—Tanto el diagnóstico sobre condiciones y medio ambiente de trabajo como el programa de salud ocupacional, deberán ser ajustados sistemáticamente y actualizados con una frecuencia mínima de dos años y así sucesivamente.
