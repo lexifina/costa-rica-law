@@ -1,0 +1,1 @@
+Artículo 8°-La asistencia del Auditor es obligatoria a las sesiones de Junta Directiva. Así mismo, tendrá la atribución de hacer las observaciones que estime pertinentes a las actas y acuerdos, posterior a su aprobación.

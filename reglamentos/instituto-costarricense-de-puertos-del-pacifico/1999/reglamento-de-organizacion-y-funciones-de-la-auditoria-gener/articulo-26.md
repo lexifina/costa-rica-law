@@ -1,0 +1,1 @@
+Artículo 26.-La Auditoría obtendrá material de prueba suficiente y adecuado, por medio de la inspección, observación, investigación, indagación y confirmación que permita sustentar los memorandos e informes que proporcione.
