@@ -1,0 +1,1 @@
+Artículo 11. —De previo al otorgamiento del permiso deberá realizarse una revisión técnica del vehículo, adjuntándose el comprobante correspondiente, y sin perjuicio de las revisiones que, en su momento, efectúen tos funcionarios de la Policía de Transito de este Ministerio.

@@ -1,0 +1,1 @@
+Artículo 3°—Podrán expedirse permisos especiales para el transporte de trabajadores en actividades agropecuarias y afines, bajo la responsabilidad exclusiva del solicitante y con sujeción a las disposiciones que por este reglamento se establecen, así como a lo dispuesto por la normativa jurídica vigente.

@@ -1,0 +1,1 @@
+Artículo 14.—En lo conducente, les serán aplicables las disposiciones del Reglamento Ejecutivo para el Ejercicio de Actuaciones y Procedimientos de la Comisión Técnica de Transportes, Decreto No 17751-MOPT y la Ley de Administración Vial, N° 6324 del 24 de mayo de 1979.

@@ -1,0 +1,1 @@
+Artículo 6°—En ningún caso se permitirá el transporte de personas en estribos, partes salientes del vehículo, parachoques, tapa del motor, techo de la cabina, fuera de las barandas adrales, batea o furgón, ni se permitirá la permanencia en la cabina de más personas que las autorizadas en su tarjeta de circulación.

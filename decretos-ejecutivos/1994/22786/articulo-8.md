@@ -1,0 +1,1 @@
+Artículo 8°_ La Dirección General de Transporte Publico, con base en las normas técnicas reguladoras de la materia, establecerá el numero máximo de pasajeros que podrá transportar cada vehículo, tomando en consideración su estado, tamaño, tonelaje y capacidad de carga, en atención a los límites fijados en el correspondiente permiso de pesos y dimensiones.
