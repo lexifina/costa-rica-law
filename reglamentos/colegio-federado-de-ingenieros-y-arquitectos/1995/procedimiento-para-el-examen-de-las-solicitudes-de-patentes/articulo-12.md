@@ -1,0 +1,2 @@
+Artículo 12.
+Con el fin de que el perito cumpla con el plazo fijado para la entrega del informe correspondiente y de acuerdo con el artículo 71 del Reglamento Interior General del Colegio de Ingenieros y de Arquitectos de Costa Rica, los honorarios correspondientes al Perito, se le entregará una vez que haya entregado su informe. El perito estará obligado a ampliar y aclarar cualquier aspecto relacionado con el peritaje rendido sin costo adicional.
