@@ -1,0 +1,1 @@
+Artículo 20.—Se entenderá que todos los miembros de la Policía Municipal que circulen por la vía pública vestidos de uniforme, están en funciones de servicio y estarán, por tanto, obligados a intervenir en todas aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.
