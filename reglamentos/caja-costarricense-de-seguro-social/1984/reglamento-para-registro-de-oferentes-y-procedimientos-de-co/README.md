@@ -14,3 +14,4 @@ Reglamento para Registro de Oferentes y Procedimientos de Compra de Productos Qu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-09-15 | la propia norma |
+| 2 | 1986-08-28 | Reglamento 6049 (1986-08-28) |
