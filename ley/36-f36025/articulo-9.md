@@ -1,0 +1,7 @@
+Artículo 9º.- Una vez que el Gobernador haya recibido los documentos
+dichos, concederá por autos á los interesados un término que no baje de
+ocho ni exceda de veinte días para que rindan las pruebas que el
+Ministerio hubiere aceptado.
+Los interesados pueden, dentro de esos mismos términos, ofrecer
+nuevas pruebas, y el Gobernador ordenará su recepción, si fueren
+pertinentes.

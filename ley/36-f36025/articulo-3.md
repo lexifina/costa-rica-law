@@ -1,0 +1,8 @@
+Artículo 3º.- Corresponde al Poder Ejecutivo decretar las
+expropiaciones que ocurran. Su juicio sobre la concurrencia en cada caso
+de las dos circunstancias enunciadas antes y sobre la procedencia de la
+expropiación, es prudencial, y no está por consiguiente sujeto á otras
+reglas que las de conveniencia pública y del menor daño posible para los
+particulares. Contra las resoluciones que sobre el particular dictare no
+cabe recurso alguno, excepto el de responsabilidad, ni discusión ulterior
+de ningún género.
