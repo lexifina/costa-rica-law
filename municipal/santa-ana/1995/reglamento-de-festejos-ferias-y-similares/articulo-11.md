@@ -1,0 +1,1 @@
+Artículo 11—La Municipalidad velará porque se cobre el impuesto establecido, conforme el Reglamento para el Impuesto de Espectáculos Públicos, emitido el 19 de mayo de 1984 y publicado en "La Gaceta" No 94, a todas aquellas entidades que al amparo de este Reglamento sean adjudicatarios de permisos.

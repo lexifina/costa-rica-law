@@ -1,0 +1,1 @@
+Artículo 4—Una vez firme el acuerdo que adjudique una actividad, la entidad autorizada deberá de presentar la nómina que integrará la Comisión con la indicación de los cargos que ocupa cada uno; el Concejo procederá a juramentarlo en la sesión inmediata siguiente a su comunicación o el mismo acto de notificación.

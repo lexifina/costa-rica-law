@@ -1,0 +1,1 @@
+Artículo 9—La Comisión o la identidad solicitante, será responsable del cumplimiento de las normas específicas en materia de salud, seguridad, derecho de terceros sin que pueda alegarse que las autorizaciones municipales suplan tales requisitos.

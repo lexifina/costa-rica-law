@@ -1,0 +1,2 @@
+Artículo 7—Todo puesto será adjudicado en remate. Los puestos por los cuales no se presentaren oferentes, o los que se presenten, no mejoren la base determinada por la Comisión, podrán ser adjudicados directamente por acuerdo de la Comisión. El remate deberá efectuarse en un sitio público, y se anunciará por los medios de comunicación cantonales y de ser posible por los nacionales.
+El adjudicatario deberá de cancelar el precio de contado en dinero efectivo.

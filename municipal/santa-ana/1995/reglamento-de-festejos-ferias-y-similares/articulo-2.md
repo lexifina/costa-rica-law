@@ -1,0 +1,2 @@
+Artículo 2—Corresponderá al Concejo Municipal, resolver de las solicitudes que le sean presentadas por lo menos con 30 días de anticipación, de festejos tanto cívicos, patronales, como de cualquier índole.
+La resolución respectiva se tomará previo acuerdo de la Comisión, la que deberá analizar vigencia de la personería jurídica de la entidad solicitante; objetivo propuesto con el producto de los festejos y la oportunidad de la celebración. Su recomendación deberá rendirla en memorial razonado en un término máximo de quince días.
