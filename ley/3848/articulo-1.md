@@ -1,4 +1,6 @@
+(Derogado)
 N° 3848
+(Esta norma fue derogada por el artículo 3° de la ley Orgánica de la Procuraduría General de la República, N° 6815 del 27 de setiembre de 1982)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 La siguiente
