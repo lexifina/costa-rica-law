@@ -1,0 +1,1 @@
+Artículo 19.—En el caso que una persona o institución la apelación y esta no sea a cogida por el Comité, ya sea por extemporánea o por razones aducidas no sean lo suficientemente satisfactorias, este podrá dar por agolada la vía administrativa.

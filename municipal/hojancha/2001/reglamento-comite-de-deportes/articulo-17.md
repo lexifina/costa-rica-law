@@ -1,0 +1,1 @@
+Articulo 17.—Luego de haber quedado en firme una decisión de destitución por parte del Comité Cantonal de Deportes, este deberá comunicar su decisión por escrito a la entidad y a las personas afectadas, dando las razones que fundamentan su decisión.

@@ -1,0 +1,1 @@
+Artículo 16. -Cuando se produzca alguna destitución por parte del Comité Cantonal de Deportes, este deberá comunicar su decisión por escrito a la entidad y a las personas afectadas, dando las razones que fundamentan su decisión.

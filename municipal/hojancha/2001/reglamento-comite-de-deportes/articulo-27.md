@@ -1,0 +1,1 @@
+Articulo 27,—Para los electos del articulo anterior, el Auditor Municipal realizará estudios contables y de aplicación de recursos, debiendo informar al Concejo y a la Contraloría General de la República.
