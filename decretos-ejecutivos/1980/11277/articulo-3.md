@@ -1,247 +1,246 @@
 Artículo 3º—El análisis químico que no incluye tomar la muestra, se cobrará de acuerdo con las siguientes tarifas:
-1. Determinaciones Ácido-base Valor en
-Colones
-1.a Valoraciones acuosas (ph) 3.073,13
-1.b Valoraciones Ácido-base 3.073,13
-1.c Valoraciones no acuosas 3.796,23
+1. Determinaciones Ácido-base Valor en colones
+1.a Valoraciones acuosas (ph) 3.409,95
+1.b Valoraciones Ácido-base 3.409,95
+1.c Valoraciones no acuosas 4.212,30
 2. Análisis Espectrofotométricos
 2.a Absorción atómica
-Cualitativa por elemento 3.976,99
-Cuantitativa por elemento 6.327,04
+Cualitativa por elemento 4.412,87
+Cuantitativa por elemento 7.020,48
 2.b Visible y U.V.
-A longitud de onda fija 7.592,44
-Recorrido espectral 9.038,63
+A longitud de onda fija 8.424,57
+Recorrido espectral 10.029,26
 2.c Fluorimetría
-A longitud de onda fija 7.592,44
-Recorrido espectral 9.038,63
+A longitud de onda fija 8.424,57
+Recorrido espectral 10.029,26
 2.d Infrarrojo
-Cualitativo 6.327,04
-Cuantitativo 12.654,08
+Cualitativo 7.020,48
+Cuantitativo 14.040,97
 3. Cenizas
-3.a Pérdida de peso 3.253,91
-3.b Por fusión 5.061,63
-3.c Insoluble en HCI 3.976,99
+3.a Pérdida de peso 3.610,54
+3.b Por fusión 5.616,38
+3.c Insoluble en HCl 4.412,87
 4. Valoraciones Complejométricas
-4.a Directa 6.327,04
-4.b Indirecta 7.592,44
+4.a Directa 7.020,48
+4.b Indirecta 8.424,57
 5. Cromatografía
-5.a Capa fina (cualitativa) 5.061,63
-5.b Capa fina (cuantitativa) 7.592,44
-6. Cromatografía de gases 9.038,63
-7. Cromatografía líquida de alta presión (HPLC) 14.100,25
+5.a Capa fina (cualitativa) 5.616,38
+5.b Capa fina (cuantitativa) 8.424,57
+6. Cromatografía de gases 10.029,26
+7. Cromatografía líquida de alta presión (HPLC) 15.645,64
 8. Humedad
-8.a En estufa 2.530,81
-8.b Karl Fischer 9.038,63
-8.c Destilación (Dean-Stark) 6.327,04
-8.d Balanza de humedad 3.796,23
+8.a En estufa 2.808,19
+8.b Karl Fischer 10.029,26
+8.c Destilación (Dean-Stark) 7.020,48
+8.d Balanza de humedad 4.212,30
 9. Determinaciones electroquímicas
-9.a Polarografía 12.654,08
-9.b Amperometría 12.654,08
-9.c Volumetría 12.654,08
-9.d Coulombimetría 12.654,08
-9.e Electrogravimetría 15.184,92
-10. Resonancia Magneto Nuclear (RMN) 16.450,30
-11. Determinación Ph 3.073,13
+9.a Polarografía 14.040,97
+9.b Amperometría 14.040,97
+9.c Volumetría 14.040,97
+9.d Coulombimetría 14.040,97
+9.e Electrogravimetría 16.849,19
+10. Resonancia Magneto Nuclear (RMN) 18.253,25
+11. Determinación Ph 3.409,95
 12. Determinación cuantitativa
-12.a Valoración sencilla 3.073,13
-12.b Valoración compleja 6.327,04
-12.c Valoración gaseosa 3.976,99
-12.d Valoración enzimática 8.134,76
+12.a Valoración sencilla 3.409,95
+12.b Valoración compleja 7.020,48
+12.c Valoración gaseosa 4.412,87
+12.d Valoración enzimática 9.026,33
 13. Calorimetría
-13.a Poder calorífico 9.038,63
-13.b Azufre total 12.654,08
-13.c Poder calorífico + azufre total 12.654,08
-14. Diagrama de destilación 9.038,63
-Curva de destilación 6.327,04
+13.a Poder calorífico 10.029,26
+13.b Azufre total 14.040,97
+13.c Poder calorífico + azufre total 14.040,97
+14. Diagrama de destilación 10.029,26
+Curva de destilación 7.020,48
 15. Electrofóresis
-(lipo, glico, proteína, cromo, etc.) 9.038,63
-16. Examen organoléptico 7.592,44
+(lipo, glico, proteína, cromo, etc.) 10.029,26
+16. Examen organoléptico 8.424,57
 17. Granulometría
-17.a Método mecánico 7.592,44
-17.b Método microscópico 10.123,27
-18. Índice de refracción 3.073,13
-19. Número de Iodo 6.327,04
+17.a Método mecánico 8.424,57
+17.b Método microscópico 11.232,78
+18. Índice de refracción 3.409,95
+19. Número de Yodo 7.020,48
 20. Peso específico de líquidos
-20.a Aerómetro 2.530,81
-20.b Balanza Wesphal 2.530,81
-20.c Picnómetro 3.073,13
+20.a Aerómetro 2.808,19
+20.b Balanza Wesphal 2.808,19
+20.c Picnómetro 3.409,95
 20.d Picnómetro de alta precisión
-a la cuarta cifra decimal 9.038,63
+a la cuarta cifra decimal 10.029,26
 21. Peso específico de sólidos
-21.a Densidad aparente 2.530,81
-21.b Picnómetro corriente 3.976,99
-21.c Picnómetro de precisión 9.038,63
-22. Polarimetría 3.976,99
-23. Punto de fusión y solidificación 5.061,63
-24. Punto de ebullición 6.327,04
-25. Identificación cualitativa por elemento 3.073,13
-26. Número de saponificación 3.976,99
-27. Residuo insoluble 3.073,13
+21.a Densidad aparente 2.808,19
+21.b Picnómetro corriente 4.412,87
+21.c Picnómetro de precisión 10.029,26
+22. Polarimetría 4.412,87
+23. Punto de fusión y solidificación 5.616,38
+24. Punto de ebullición 7.020,48
+25. Identificación cualitativa por elemento 3.409,95
+26. Número de saponificación 4.412,87
+27. Residuo insoluble 3.409,95
 28. Sustancia extraída con solvente
-28.a Extracto etéreo (lípidos, grasas) 5.423,18
-28.b Extracto etéreo (otros) 6.327,04
+28.a Extracto etéreo (lípidos, grasas) 6.017,56
+28.b Extracto etéreo (otros) 7.020,48
 29. Viscosidad
-29.a Viscosímetro de Ostwald 3.796,23
-29.b Viscosímetro rotacional 3.253,91
-29.c Viscosímetro Saybolt 3.976,99
-30. Azúcares reductores (Fehling) 3.976,99
-31. Azúcares reductores con inversión 6.327,04
-32. Acidez total 3.796,23
-33. Acidez volatil 3.796,23
-34. Ácido ascórbico (Yodimétrico) 5.423,18
-35. Ácido cianhídrico 8.134,76
-36. Ácido cítrico 3.796,23
-37. Ácido láctico y málico (Cromatografía) 6.327,04
-38. Ácido tartárico 6.869,35
-39. Etanol (Destilación) 3.796,23
-40. Alcohol metílico 7.592,44
-41. Alcoholes superiores 7.592,44
-42. Anhídrido sulfuroso libre 3.796,23
-43. Anhídrido sulfuroso total 3.796,23
-44. Anhídrido carbónico (Método AOAC) 5.423,18
-45. Antocianinas 5.061,63
-46. Nitrógeno total (Kjeldahl) 5.061,63
-47. Butilenglicol 7.592,44
-48. Bromo orgánico total 7.592,44
-49. Caramelo 5.423,18
-50. Cenizas 5.061,63
-51. Alcalinidad de las cenizas 5.423,18
-52. Cloruros (Volhard) 5.423,18
-53. Cloro orgánico 5.423,18
-54. Extracción de colorante 5.423,18
-55. Lectura polarimétrica 8.134,76
-56. Valoración de EDTA 5.423,18
-57. Extracto seco directo 3.796,23
-58. Sedimento por centrifugación 3.253,91
-59. Sedimento por pesada 5.061,63
-60. Prueba de fermentación 9.400,17
-61. Fluoruro 7.592,44
-62. Fosfatos 6.327,04
-63. Glicerina 7.592,44
+29.a Viscosímetro de Ostwald 4.212,30
+29.b Viscosímetro rotacional 3.610,54
+29.c Viscosímetro Saybolt 4.412,87
+30. Azúcares reductores (Fehling) 4.412,87
+31. Azúcares reductores con inversión 7.020,48
+32. Acidez total 4.212,30
+33. Acidez volátil 4.212,30
+34. Ácido ascórbico (Yodimétrico) 6.017,56
+35. Ácido cianhídrico 9.026,33
+36. Ácido cítrico 4.212,30
+37. Ácido láctico y málico (Cromatografía) 7.020,48
+38. Ácido tartárico 7.622,23
+39. Etanol (Destilación) 4.212,30
+40. Alcohol metílico 8.424,57
+41. Alcoholes superiores 8.424,57
+42. Anhídrido sulfuroso libre 4.212,30
+43. Anhídrido sulfuroso total 4.212,30
+44. Anhídrido carbónico (Método AOAC) 6.017,56
+45. Antocianinas 5.616,38
+46. Nitrógeno total (Kjeldahl) 5.616,38
+47. Butilenglicol 8.424,57
+48. Bromo orgánico total 8.424,57
+49. Caramelo 6.017,56
+50. Cenizas 5.616,38
+51. Alcalinidad de las cenizas 6.017,56
+52. Cloruros (Volhard) 6.017,56
+53. Cloro orgánico 6.017,56
+54. Extracción de colorante 6.017,56
+55. Lectura polarimétrica 9.026,33
+56. Valoración de EDTA 6.017,56
+57. Extracto seco directo 4.212,30
+58. Sedimento por centrifugación 3.610,54
+59. Sedimento por pesada 5.616,38
+60. Prueba de fermentación 10.430,43
+61. Fluoruro 8.424,57
+62. Fosfatos 7.020,48
+63. Glicerina 8.424,57
 64. Grado alcohólico compuesto
-(alcohol y azúcar) 7.773,21
-65. Hidroximetilfurfural 7.592,44
-66. Indice de yodo 5.423,18
-67. Intensidad de color (Duboscq) 5.061,63
-68. Yodo total 6.327,04
-69. Metales (Na, Mg, Ca, Fe, etc.) 6.507,81
-70. Número de formol 5.242,40
-71. Peso específico 3.796,23
-72. Pentosas y pentosanas 7.592,44
-73. Piridina 7.592,44
-74. Polifenoles (folín) 5.423,18
-75. Glucosa fructuosa 6.869,35
-76. Sacarina 7.592,44
-77. Determinación de sulfato 7.592,44
-78. Análisis de agua,
-Residuo a 110 y 180 3.073,13
-Alcalinidad 3.253,91
-Dureza total 3.976,99
-Determinación de sustancias orgánicas 2.530,81
-Determinación de hierro cuantitativo 3.796,23
-Determinación de color cuantitativo 3.796,23
-Determinación de Ph (Colorimétrico) 2.530,81
-Determinación de Ph (Electrométrico) 3.073,13
-Determinación de Conductividad 2.530,81
-Oxígeno disuelto 3.253,91
-DBO 5 7.773,21
-Potasio y sodio cuantitativo (2) 9.038,63
-Calcio y magnesio cuantitativo (2) 7.592,44
-Detergente (cuantitativo) 7.592,44
-Sólidos suspendidos (cuantitativo) 2.530,81
-Fenol (cualitativo) 2.530,81
-Fenol (cuantitativo) 5.061,63
-Fosfato (cualitativo) 2.530,81
-Fosfato (cuantitativo total, orto o poli) 5.061,63
-Cromo (cuantitativo hexavalente) 3.976,99
-Cromo (cuantitativo total) 8.134,76
-Cianuro (cuantitativo) 9.038,63
-Cloruros (cuantitativo) 3.976,99
-Sulfatos (cuantitativo) 6.327,04
-Amoniaco (cualitativo) 2.530,81
-Nitrito (cualitativo) 2.530,81
-Nitrato (cualitativo) 2.530,81
-Acido sulfhídrico (cualitativo) 2.530,81
-Nitrógeno amoniacal 5.061,63
-Nitrógeno nitroso 5.061,63
-Nitrógeno nítrico 5.061,63
-Nitrógeno proteico 5.061,63
-Sílice (cuantitativo) 3.976,99
-Bromuro (cuantitativo) 6.327,04
-Yoduro (cuantitativo) 9.038,63
-Hidrocarburos 8.134,76
-Metales absorción atómica 6.327,04
-Metales espectrofotometría visible U.V. 3.976,99
-Pesticidas clorados y organofosforados (OG) 10.123,27
-Sulfito (cuantitativo) 3.253,91
-Borato (cuantitativo) 6.507,81
-Caracterización física y organoléptica 2.530,81
-Gases disueltos (cuantitativa) 3.070,44
-Temperatura 723,09
-Turbidez 2.530,81
-Materia gruesa 2.530,81
-Cloro activo 3.253,91
-Fluoruro 9.038,63
-Grasas animales y vegetales 6.327,04
-Aldehidos 9.038,63
-Solvente orgánico aromático nitrogenado 9.038,63
-Solvente clorado 9.038,63
+(alcohol y azúcar) 8.625,15
+65. Hidroximetilfurfural 8.424,57
+66. Indice de yodo 6.017,56
+67. Intensidad de color (Duboscq) 5.616,38
+68. Yodo total 7.020,48
+69. Metales (Na, Mg, Ca, Fe, etc.) 7.221,07
+70. Número de formol 5.816,97
+71. Peso específico 4.212,30
+72. Pentosas y pentosanas 8.424,57
+73. Piridina 8.424,57
+74. Polifenoles (folín) 6.017,56
+75. Glucosa fructuosa 7.622,23
+76. Sacarina 8.424,57
+77. Determinación de sulfato 8.424,57
+78. Análisis de agua
+- Residuo a 110 y 180 3.409,95
+- Alcalinidad 3.610,54
+- Dureza total 4.213,14
+- Determinación de sustancias orgánicas 2.808,19
+- Determinación de hierro cuantitativo 4.212,30
+- Determinación de color cuantitativo 4.212,30
+- Determinación de Ph (Colorimétrico) 2.808,19
+- Determinación de Ph (Electrométrico) 3.409,95
+- Determinación de Conductividad 2.808,19
+- Oxígeno disuelto 3.610,54
+- DBO 5 8.625,15
+- Potasio y sodio cuantitativo (2) 10.029,26
+- Calcio y magnesio cuantitativo (2) 8.424,57
+- Detergente (cuantitativo) 8.424,57
+- Sólidos suspendidos (cuantitativo) 2.808,19
+- Fenol (cualitativo) 2.808,19
+- Fenol (cuantitativo) 5.616,38
+- Fosfato (cualitativo) 2.808,19
+- Fosfato (cuantitativo total, orto o poli) 5.616,38
+- Cromo (cuantitativo hexavalente) 4.412,87
+- Cromo (cuantitativo total) 9.026,33
+- Cianuro (cuantitativo) 10.029,26
+- Cloruros (cuantitativo) 4.412,87
+- Sulfatos (cuantitativo) 7.020,48
+- Amoniaco (cualitativo) 2.808,19
+- Nitrito (cualitativo) 2.808,19
+- Nitrato (cualitativo) 2.808,19
+- Ácido sulfhídrico (cualitativo) 2.808,19
+- Nitrógeno amoniacal 5.616,38
+- Nitrógeno nitroso 5.616,38
+- Nitrógeno nítrico 5.616,38
+- Nitrógeno proteico 5.616,38
+- Sílice (cuantitativo) 4.412,87
+- Bromuro (cuantitativo) 7.020,48
+- Yoduro (cuantitativo) 10.029,26
+- Hidrocarburos 9.026,33
+- Metales absorción atómica 7.020,48
+- Metales espectrofotometría visible U.V. 4.412,87
+- Pesticidas clorados y organofosforados (OG) 11.232,78
+- Sulfito (cuantitativo) 3.610,54
+- Borato (cuantitativo) 7.221,07
+- Caracterización física y organoléptica 2.808,19
+- Gases disueltos (cuantitativa) 3.406,96
+- Temperatura 802,34
+- Turbidez 2.808,19
+- Materia gruesa 2.808,19
+- Cloro activo 3.610,54
+- Fluoruro 10.029,26
+- Grasas animales y vegetales 7.020,48
+- Aldehidos 10.029,26
+- Solvente orgánico aromático nitrogenado 10.029,26
+- Solvente clorado 10.029,26
 79. Aguas y bebidas gaseosas no alcohólicas
-Pureza del ácido mineral 2.530,81
-Acidez total 3.073,13
-Ácido ascórbico cuantitativo 3.796,23
-Ácido benzoico cuantitativo 6.507,81
-Ácido tartárico cualitativo 2.530,81
-Aminoácido con ninhidrina 4.519,31
-Separación de aminoácidos 21.150,37
-Trazas de alcohol (Yodoformo) 6.507,81
-Anhídrido sulfuroso 2.530,81
-Caramelo 6.327,04
-Cenizas sulfatadas 6.327,04
-Colorante cualitativo capa fina 6.327,04
-Edulcorante sint‚tico (Pureza) 9.761,70
-Extracto seco (por pesada) 3.796,23
-Extracto seco al refractómetro 2.530,81
-Indice de formol 2.530,81
-Metal por absorción atómica 6.327,04
-Polarografía 8.134,76
-Metales (Método fluorométrico) 6.327,04
-Metales (Espectrofotométrico) 6.327,04
-Sacarosa cuantitativa (Polarímetro) 2.530,81
-Azúcares reductores (Fehling) 3.976,99
-Azúcares totales 6.327,04
+- Pureza del ácido mineral 2.808,19
+- Acidez total 3.409,95
+- Ácido ascórbico cuantitativo 4.212,30
+- Ácido benzoico cuantitativo 7.221,07
+- Ácido tartárico cualitativo 2.808,19
+- Aminoácido con ninhidrina 5.014,63
+- Separación de aminoácidos 23.468,45
+- Trazas de alcohol (Yodoformo) 7.221,07
+- Anhídrido sulfuroso 2.808,19
+- Caramelo 7.020,48
+- Cenizas sulfatadas 7.020,48
+- Colorante cualitativo capa fina 7.020,48
+- Edulcorante sintético (Pureza) 10.831,58
+- Extracto seco (por pesada) 4.212,30
+- Extracto seco al refractómetro 2.808,19
+- Índice de formol 2.808,19
+- Metal por absorción atómica 7.020,48
+- Polarografía 9.026,33
+- Metales (Método fluorométrico) 7.020,48
+- Metales (Espectrofotométrico) 7.020,48
+- Sacarosa cuantitativa (Polarímetro) 2.808,19
+- Azúcares reductores (Fehling) 4.412,87
+- Azúcares totales 7.020,48
 80. Determinación de alimentos
-80.a Proteínas 5.061,63
-80.b Azúcares 3.253,91
-80.c Grasas 5.061,63
-80.d Colorantes 3.25391
-80.e Minerales c/u 3.253,91
-80.f Vitaminas c/u 6.327,04
-80.g Aditivos c/u 6.327,04
+80.a Proteínas 5.616,38
+80.b Azúcares 3.610,54
+80.c Grasas 5.616,38
+80.d Colorantes 3.610,54
+80.e Minerales c/u 3.610,54
+80.f Vitaminas c/u 7.020,48
+80.g Aditivos c/u 7.020,48
 81. Asfalto
-81.a Prueba de penetración 3.796,23
-81.b Prueba de ductibilidad 8.134,76
-81.c Impureza mecánica 3.796,23
-81.d Número ácido 5.061,63
-81.e Número de saponificación 5.061,63
-81.f Prueba de conductibilidad 5.061,63
-81.g Prueba de volatilidad 2.530,81
-81.h Determinación de carbón libre 6.507,81
-81.i Determinación de fenol 6.507,81
-81.j Contenido de carbón bituminoso 6.507,81
+81.a Prueba de penetración 4.212,30
+81.b Prueba de ductibilidad 9.026,33
+81.c Impureza mecánica 4.212,30
+81.d Número ácido 5.616,38
+81.e Número de saponificación 5.616,38
+81.f Prueba de conductibilidad 5.616,38
+81.g Prueba de volatilidad 2.808,19
+81.h Determinación de carbón libre 7.221,07
+81.i Determinación de fenol 7.221,07
+81.j Contenido de carbón bituminoso 7.221,07
 82. Determinaciones en azúcar de caña
-82.a Sacarosa (Polarímetro) 8.134,76
-82.b Proteina total 8.134,76
-82.c Grasa 6.507,81
-82.d Fibra cruda 6.507,81
+82.a Sacarosa (Polarímetro) 9.026,33
+82.b Proteina total 9.026,33
+82.c Grasa 7.221,07
+82.d Fibra cruda 7.221,07
 83. Cerveza
-Bloque de las siguientes determinaciones: 26.573,55
-Organoléptico
-Peso específico
-Grado alcohólico
-Extracto seco
-Grado de sacarosa
-Cenizas, acidez, anhídrido sulfuroso
-Ácido ascórbico
+- Bloque de las siguientes determinaciones: 29.486,01
+- Organoléptico
+- Peso específico
+- Grado alcohólico
+- Extracto seco
+- Grado de sacarosa
+- Cenizas, acidez, anhídrido sulfuroso
+- Ácido ascórbico
 Los análisis o servicios no contemplados en las listas antes descritas, se cobrarán de común acuerdo entre el profesional y el cliente.
-(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29387 de 26 de febrero del 2001)
+(Así reformado tácitamente por el artículo 1 del Decreto Ejecutivo N° 30268 de 11 de marzo del 2002)
