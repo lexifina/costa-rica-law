@@ -18,3 +18,4 @@ Reglamento del Museo Nacional.
 | 4 | 1998-02-11 | Decreto Ejecutivo 26743 (1998-02-11) |
 | 5 | 1998-10-29 | Decreto Ejecutivo 27489 (1998-10-29) |
 | 6 | 1999-08-24 | Decreto Ejecutivo 28089 (1999-08-24) |
+| 7 | 2000-09-22 | Decreto Ejecutivo 29010 (2000-09-22) |

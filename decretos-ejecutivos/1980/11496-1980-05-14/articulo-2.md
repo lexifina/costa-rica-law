@@ -1,2 +1,2 @@
-Artículo 2º.- La Junta celebrará por lo menos una sesión cada mes, en la fecha y lugar en que ella designe y además, las sesiones extraordinarias que se requieran a juicio del Presidente de la Junta; de tres de sus miembros o de la Dirección del Museo. Habrá quórum cuando concurran cuatro de los miembros. Las convocatorias se harán siempre por escrito.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 27489, del 29 octubre de 1998)
+Artículo 2°—La Junta celebrará por lo menos una sesión cada mes, en la fecha y lugar que ella designe y además, las sesiones extraordinarias que se requieran ajuicio del Presidente de la Junta, de tres de sus miembros o de la Dirección del Museo. Habrá quórum cuando se encuentren presentes la mayoría absoluta de sus miembros. Las convocatorias se harán siempre por escrito.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 29010, del 22 de setiembre del 2000)
