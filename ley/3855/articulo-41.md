@@ -1,1 +1,0 @@
-Artículo 41.- La expulsión de que habla el artículo anterior, solo se impondrá cuando haya acuerdo unánime de los miembros del Tribunal de Honor; sobre esta resolución cabrá apelación ante la Asamblea General.

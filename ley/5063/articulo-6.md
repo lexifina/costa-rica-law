@@ -1,1 +1,0 @@
-Artículo 6º.- Además de lo expresado anteriormente, de los derechos y deberes que la Ley Orgánica del Colegio de Ingenieros Agrónomos otorga a los miembros del Colegio que son Ingenieros Agrónomos, por vía de Reglamento se fijarán los que les correspondan a los miembros asociados y a los miembros afiliados.
