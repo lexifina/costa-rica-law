@@ -1,0 +1,1 @@
+Art. 3. Los encargados de las ventas en dicho partido estan obligados á ocurtir a la Administracion General por las partidas de licor que necesiten; siendo responsables por los perjuicios que ocasione, por su descuido ó abandono, la falta del licor en ellas.
