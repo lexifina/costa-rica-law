@@ -77,3 +77,4 @@ No se permitirán pisos intermedios(mezanines).
 Será necesario aportar un estudio de estabilidad suelos.
 g. Acatar estrictamente lo establecido en los apartados de este documento en las páginas 57, 58, 69, 70, 71, 72, 92, 93, y 94 sobre medidas de mitigación ambiental.
 (NOTA DE SINALEVI: Contiene lámina de usos del suelo del Plan Regulador del Sector Costero al Sur de Playa Islita, el cual puede ser consultado en La Gaceta N° 72 de 14 de abril de 2004).
+(NOTA DE SINALEVI: Mediante Acuerdo tomado en Sesión Ordinaria del 9 de marzo del 2005 SE MODIFICA la Lámina de Vialidad Plan Regulador de Playa Punta Islita de Bejuco del cantón Nandayure, la lámina puede ser consultada en La Gaceta impresa N° 68 del 8 de abril del 2005)

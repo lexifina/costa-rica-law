@@ -14,3 +14,4 @@ Reglamento Plan Regulador del Sector Costero del Sur de Playa Islita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-14 | la propia norma |
+| 2 | 2005-03-09 | Reglamento municipal 150 (2005-03-09) |
