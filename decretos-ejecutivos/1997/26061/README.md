@@ -14,3 +14,4 @@ Reglamento General de la Policía Penitenciaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-06 | la propia norma |
+| 2 | 2002-01-25 | Decreto Ejecutivo 30195 (2002-01-25) |

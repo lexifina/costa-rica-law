@@ -7,3 +7,5 @@ d) La escopeta calibre doce milímetros con munición de caucho o lanzagas;
 e) Las escopetas especiales para el lanzamiento de gas;
 f) Los artefactos que al activarse expulsan gases lacrimógenos -irritantes o paralizantes; y,
 g) El balón eléctrico, la vara policial de reglamento, así como todas aquéllas que la necesidad institucional requiera y el ordenamiento jurídico nacional permita.
+h) Las sub ametralladoras calibre nueve por diecinueve milímetros.
+(Así adicionado el inciso h) por el artículo 1 del Decreto Ejecutivo N° 30195 de 25 de enero del 2002)
