@@ -14,3 +14,4 @@ Reglamento al artículo 2° de Creación del Programa de Desarrollo de la Zona S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-08-14 | la propia norma |
+| 2 | 1990-04-03 | Decreto Ejecutivo 19619 (1990-04-03) |
