@@ -14,3 +14,4 @@ Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense de S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-15 | la propia norma |
+| 2 | 1996-08-13 | Reglamento 7050 (1996-08-13) |

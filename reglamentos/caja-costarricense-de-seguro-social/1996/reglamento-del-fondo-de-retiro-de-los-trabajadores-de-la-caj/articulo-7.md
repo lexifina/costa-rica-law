@@ -1,7 +1,8 @@
 Cuantía de los Beneficios
-Artículo 7°—La cuantía de los beneficios antes descritos, se regirá por las siguientes reglas:
-a) Beneficio de retiro:
-El monto mensual del beneficio de retiro corresponderá al 15% (quince por ciento) del salario promedio percibido por el servidor durante los últimos doce meses previos a la fecha en que se acoge al beneficio, sujeto al tope máximo que defina la Junta Directiva conforme a lo previsto en el artículo siguiente.
+Artículo 7°—La cuantía de los beneficios antes descritos, se regirá por las siguientes reglas
+a) El monto mensual del beneficio de retiro corresponderá al 15% del salario promedio percibido por el servidor durante los últimos doce meses previos a la fecha en que se acoge al beneficio, sujeto al tope máximo que defina la Junta Directiva conforme con lo previsto en el artículo siguiente.
+Además, considera el derecho a un décimo tercer pago adicional, que será igual a la doceava parte del total de pagos recibidos en el período comprendido entre el 1° de noviembre del año anterior y el 31 de octubre del año en que se efectué el pago, el cual se hará en el mes de diciembre o cuando termina el derecho por cualquier motivo.
+(Así reformado el inciso anterior en sesión N° 7050 del 13 de agosto de 1996)
 b) Capital de retiro:
 El capital de retiro corresponderá a siete veces el salario promedio percibido por el servidor durante los últimos seis meses previos a la fecha en que se acoge, y se cancelará en un solo pago cuando el servidor se acoge al beneficio de retiro.
 c) Indemnización por invalidez o por muerte:
