@@ -1,0 +1,1 @@
+Artículo 5º—Programación. El SINART, S. A., previa aprobación del Consejo Ejecutivo, ofrecerá programas culturales, musicales, artísticos y deportivos, así como todos aquellos de interés académico, social, político y económico, cuyo objetivo sea promover los principios consagrados en el artículo anterior.

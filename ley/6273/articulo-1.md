@@ -3,3 +3,4 @@ Fiscal de 1978, aprobados por el artículo 1 de la ley No.6191 del
 12-12-77 de la forma que se detalla a continuación:
 (Por lo extenso de su contenido, véase La Gaceta No.170 del 7 de
 setiembre de 1978)
+(NOTA: Mediante Ley N° 8346 de 12 de febrero de 2003, se DEROGA las disposiciones de esta ley referentes al SINART).

@@ -1,0 +1,1 @@
+Artículo 21.—Rendición de cuentas ante la Asamblea Legislativa. Durante el mes de abril de cada año, el SINART, S. A., presentará ante la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa, una memoria escrita sobre su desempeño y funcionamiento en el cumplimiento de los objetivos y principios de esta Ley.

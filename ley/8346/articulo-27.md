@@ -1,0 +1,1 @@
+Artículo 27.—Condonación de deudas por parte de los acreedores del SINART. Todas las empresas del Estado con las cuales el SINART tenga deudas hasta la fecha de publicación de esta Ley, podrán condonar o renegociar lo adeudado.
