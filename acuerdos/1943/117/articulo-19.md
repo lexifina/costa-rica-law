@@ -1,0 +1,1 @@
+Artículo 19. — El capital de la institución lo integra: la casa de la Junta Directiva, el mobiliario de la oficina, las herramientas y el dinero que se encuentre, en la Tesorería a la fecha — 8 de abril de 1943 — que monta a la suma de (¢ 1,086.64) un mil ochenta y seis colones, sesenta y cuatro céntimos.

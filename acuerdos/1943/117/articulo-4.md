@@ -1,0 +1,1 @@
+Artículo 4°—Integran la institución las personas físicas que a la fecha sean dueñas de fosas en el terreno que al efecto tiene designado la Municipalidad, y que conocido con el nombre de “Cementerio de Obreros”. En el futuro, formarán parte de la misma, aquellas personas que lleguen a ser dueñas de fosas en las condiciones que aquí se indican.

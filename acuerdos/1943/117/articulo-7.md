@@ -1,0 +1,1 @@
+Artículo 7°—Para poder hacer uso de la fosa, es indispensable que ésta haya sido totalmente pagada; sin embargo, en caso urgente, si el interesado garantiza a satisfacción de la Directiva, se le facultará con ese objeto. Mientras la fosa no esté pagada, el adquirente no tendrá voz ni voto en las asambleas ordinarias o extraordinarias.

@@ -1,0 +1,1 @@
+Artículo 13.—El Secretario tendrá a su cargo todo lo relativo a correspondencia y actas de las sesiones. Firmará con el Presidente los títulos de propiedad y las actas. Tendrá la custodia del archivo de la institución, del cual es responsable. Devengará un sueldo que lo fijará la Junta.

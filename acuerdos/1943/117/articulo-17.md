@@ -1,0 +1,1 @@
+Artículo 17.—El primer domingo de cada año habrá asamblea ordinaria, en la cual serán enterados del estado de la institución. Además, si es del caso, se hará el nombramiento de la nueva Directiva. Los directivos durarán en su cargo dos años, pudiendo ser reelectos indefinidamente.

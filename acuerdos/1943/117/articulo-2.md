@@ -1,0 +1,1 @@
+Artículo 2°—Será objeto fundamental de esta institución administrar, dirigir y velar por el Cementerio de Obreros de la ciudad de San José, por delegación expresa que al efecto le hace el Municipio de San José.

@@ -1,0 +1,1 @@
+Artículo 3°—Para el sostenimiento, del cementerio, la institución contará con las siguientes rentas: venta de fosas, derecho de tapa y de traspaso, alquiler de osáis y fosas, donaciones y cualquier otra entrada eventual.
