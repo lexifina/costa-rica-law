@@ -1,0 +1,1 @@
+Art. 3. Las demas peticiones que se presenten al Gobierno deben ser en peligro del sello tercero, y los respectivos Ministros no admitirán escrito alguno que se presente en papel comun ó en medio pliego.
