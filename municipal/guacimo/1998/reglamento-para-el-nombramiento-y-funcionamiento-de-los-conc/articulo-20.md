@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos serán tomados por simple mayoría de votos de tos miembros presentes y se tendrán por informes, si hubiere empale se someterá de nuevo a votación y si persistiera de nuevo el empale, se tendrá por desechado el asunto.

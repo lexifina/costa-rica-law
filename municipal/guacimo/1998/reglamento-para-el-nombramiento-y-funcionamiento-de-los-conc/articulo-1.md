@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE GUACIMO
+Artículo 1°—Los Concejos de Distrito están integrados por cinco miembros vecinos del Distrito, a quien se denominará concejales, de los cuales uno será necesariamente el sindico de la circunscripción de que se trate y el otro su suplente, si se encontrare presente en la sesión: el primero ejercerá la Presidencia del Concejo de Distrito y en su anuencia será sustituido por el Síndico Súpleme, la Presidencia corresponderá al Vicepresidente.
