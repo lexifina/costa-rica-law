@@ -1,0 +1,1 @@
+Artículo 13.—Será obligación de todos los órganos, organismos e instituciones públicas, brindar al Comité la colaboración que éste requiera para el mejor cumplimiento de sus funciones y logro de sus fines.

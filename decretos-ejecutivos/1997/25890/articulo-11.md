@@ -1,1 +1,1 @@
-Artículo 11.—Será obligación de todas las instituciones públicas, brindar al Comité la colaboración que éste requiera para el mejor cumplimiento de sus fines.
+Artículo 11.—De acuerdo con su agenda de trabajo, a las reuniones de la Secretaría Técnica General se podrá invitar a niños, niñas y adolescentes como actores en la temática, así como a representantes de órganos, organismos e instituciones públicas o privadas, nacionales o internacionales, físicas o jurídicas, relacionados con el trabajo infantil y la protección de la persona adolescente trabajadora.

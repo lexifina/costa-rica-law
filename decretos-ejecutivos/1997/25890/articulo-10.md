@@ -1,11 +1,9 @@
-Artículo 10.—La Secretaría General tendrá las siguientes funciones:
-a) Coordinar las convocatorias del Comité.
-b) Elaborar las actas de las sesiones.
-c) Entregar el material requerido por los integrantes del Comité o sus Asesores para desempeñar sus labores eficientemente.
-d) Establecer y mantener actualizada la documentación o el banco de datos correspondiente sobre Trabajo Infantil y aspectos relacionados al mismo.
-e) Dar seguimiento técnico a las recomendaciones y decisiones del Comité.
-f) Coordinar el trabajo con las instituciones y organizaciones que no integran el Comité incluyendo el grupo asesor.
-g) Publicar trimestralmente un boletín informativo en materia de trabajo infantil y aspectos relacionados.
-h) Recibir las propuestas de programas de acción en materia de eliminación del trabajo infantil, y la protección de las personas adolescentes trabajadoras, presentadas por entidades públicas o privadas, nacionales o internacionales y realizar una evaluación de las mismas.
-i) Elaborar un informe semestral sobre el trabajo realizado por el Comité.
-j) La Secretaría General tendrá la asistencia permanente del Programa Internacional para la Erradicación del Trabajo Infantil (IPEC) de la Organización Internacional del Trabajo (OIT).
+Artículo 10.—Además de la jefatura de la Oficina de Atención y Erradicación del Trabajo Infantil y Protección del Trabajador Adolescente, en representación del Ministerio de Trabajo y Seguridad Social, la Secretaría Técnica General estará conformada por un representante de:
+a) El Instituto Nacional de Aprendizaje.
+b) El Patronato Nacional de la Infancia.
+c) El Instituto Mixto de Ayuda Social.
+d) El Ministerio de Educación Pública.
+e) Un representante de cada uno de los sectores no estatales (empleadores, trabajadores y Organizaciones no Gubernamentales) elegido por el Ministro de Trabajo y Seguridad Social de las ternas que enviarán cada uno de dichos sectores.
+f) Un representante de la Secretaría Técnica del Consejo de la Niñez y la Adolescencia.
+g) Un representante del Programa Internacional para la Erradicación
+del Trabajo Infantil (IPEC) de la OIT.

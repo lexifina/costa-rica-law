@@ -1,14 +1,13 @@
-Artículo 2°—El Comité estará integrado por:
-1. Ministro o Viceministro de Trabajo y Seguridad Social, quien lo presidirá.
-2. Ministro o Viceministro de Educación.
-3. Ministro o Viceministro de Salud.
-4. Presidente Junta Directiva del Patronato Nacional de la Infancia.
-5. Presidente Ejecutivo de la Caja Costarricense de Seguro Social.
-6. Presidente Ejecutivo del Instituto Nacional de Aprendizaje.
-7. Presidente Ejecutivo del Instituto Nacional de Seguros.
-8. Presidente Ejecutivo del Instituto Mixto de Ayuda Social.
-9. Presidente de la Unión de Cámaras y Asociaciones de Empresas
-10. Un representante de las Organizaciones no gubernamentales de atención (UNIPRIN).
-11. Un representante de las Organizaciones no gubernamentales de atención (UNIPRIN).
-12. Un representante de las Organizaciones no gubernamentales de defensa de derechos (COSECODENI).
-13. Un representante de la Unión de Gobiernos Locales.
+Artículo 2º—Dicho Comité Directivo Nacional estará integrado por:
+a) El Ministro o Viceministro de Trabajo y Seguridad Social, quien lo presidirá.
+b) El Ministro o Víceministro de Educación Pública.
+c) El Ministro o Viceministro de Salud.
+d) El Presidente de la Junta Directiva del Patronato Nacional de la Infancia.
+e) El Presidente Ejecutivo de la Caja Costarricense de Seguro Social.
+f) El Presidente Ejecutivo del Instituto Nacional de Aprendizaje.
+g) El Presidente Ejecutivo del Instituto Nacional de Seguros.
+h) El Presidente Ejecutivo del Instituto Mixto de Ayuda Social.
+i) El Presidente de la Unión de Cámaras y Asociaciones de la Empresa Privada.
+j) Un representante de las Organizaciones de Trabajadores, de nombramiento de las Confederaciones de Trabajadores.
+k) Un representante de las Organizaciones no Gubernarnentales de Defensa de los Derechos y de Atención de los Niños y Niñas. (UNIPRIN y COSECODENI).
+l) Un representante de la Unión de Gobiernos Locales.
