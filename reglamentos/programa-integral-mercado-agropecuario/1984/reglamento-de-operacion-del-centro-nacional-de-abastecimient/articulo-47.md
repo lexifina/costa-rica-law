@@ -8,7 +8,9 @@ e) Hacer cualquier tipo de fuego y establecer conexiones e instalaciones eléctr
 f) Lavar las instalaciones con sustancias corrosivas y utilizar insecticidas o sustancias tóxicas.
 g) Portar cualquier clase de arma sin permiso del Ministerio de Seguridad Pública.
 h) Practicar apuestas y juegos de azar, y promover rifas, recursos o afines.
-i) Vender o consumir bebidas alcohólicas y drogas, o ingresar bajo el efecto de las mismas al CENADA.
+i) Vender o consumir bebidas alcohólicas o drogas, o ingresar bajo el efecto de las mismas al CENADA.
+Para efectos de actividades especiales o ferias, previa solicitud, el Consejo Directivo podrá excepcionalmente autorizar el consumo de bebidas alcohólicas en estas instalaciones.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 1513 de 22 de noviembre de 1994, publicada en La Gaceta N° 10 de 13 de enero de 1995.)
 j) Atender el puesto con personas que padezcan enfermedades infecto-contagiosas.
 k) Poseer o vender artículos o mercancías de origen ilícito.
 l) Usar pesas o medidas fraudulentas o no autorizadas.

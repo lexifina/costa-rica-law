@@ -14,3 +14,4 @@ Reglamento de Operación del Centro Nacional de Abastecimiento y Distribución d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-09-25 | la propia norma |
+| 2 | 1994-11-22 | Reglamento 1513 (1994-11-22) |
