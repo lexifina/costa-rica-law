@@ -1,0 +1,1 @@
+Artículo 3°-la Comisión Nacional de Apoyo a la Micro y Pequeña Empresa estará integrada por los Ministros de Trabajo y Seguridad Social, quien la presidirá, de Economía, Industria y Comercio; de Planificación y Política Económica; de Agricultura y Ganadería; de Ciencia y Tecnología y el Presidente Ejecutivo del Instituto Nacional de Aprendizaje.
