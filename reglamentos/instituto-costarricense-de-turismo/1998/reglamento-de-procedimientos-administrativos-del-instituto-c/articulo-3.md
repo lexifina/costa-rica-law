@@ -1,0 +1,1 @@
+Artículo 3°—Están sujetos a responsabilidad civil todos aquellos funcionarios, ex - funcionarios y particulares que por dolo o culpa grave, ocasionen daños y perjuicios al Instituto de conformidad con las reglas contenidas en la Ley General de la Administración Pública.

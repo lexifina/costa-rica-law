@@ -1,0 +1,1 @@
+Artículo 9°—Previo al nombramiento del Órgano Director de un procedimiento administrativo, la Junta Directiva o la Gerencia del Instituto podrán ordenar a las dependencias del Instituto que corresponda, realizar la investigación respectiva en la cual deberá recopilarse toda la evidencia posible y efectuar una relación de hechos.

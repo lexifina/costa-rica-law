@@ -1,0 +1,1 @@
+Artículo 2°—Están sujetos a responsabilidad administrativa todos aquellos servidores del Instituto, cuando hubieren incurrido en infracciones, por dolo o culpa, contra las normas contempladas en el Reglamento Autónomo de Trabajo y demás disposiciones que integran el ordenamiento .

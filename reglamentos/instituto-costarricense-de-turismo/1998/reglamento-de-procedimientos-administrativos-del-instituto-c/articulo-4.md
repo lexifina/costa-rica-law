@@ -1,0 +1,1 @@
+Artículo 4°—El presente reglamento es de aplicación para los procedimientos administrativos ordinarios seguidos contra particulares cuya decisión final pueda causar un perjuicio grave a sus derechos subjetivos e intereses legítimos así como a cualquier procedimiento sumario.
