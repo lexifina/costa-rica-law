@@ -1,0 +1,1 @@
+Art 8° Estos libros serán de papel común, sus fojas estarán y rubricada por el Gobernador de la Provincia, y en la 1° habrá una razón firmada por el mismo Gobernador del destino y número de fojas de cada libro, el cual tendrá además un índice en orden alfabético por las iniciales de los apellidos de los individuos que comprenda.

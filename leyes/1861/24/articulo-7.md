@@ -1,0 +1,1 @@
+Art 7°. - La Municipalidad de la capital de cada Provincia, llevará un libro para inscribir como naturaleza de la República a quienes corresponda por los artículos 2° y 3° de esta ley, y otro para registrar las cartas de naturalización libradas por el Poder Ejecutivo.
