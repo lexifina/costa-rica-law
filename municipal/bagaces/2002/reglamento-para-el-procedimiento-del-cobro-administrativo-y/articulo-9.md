@@ -1,0 +1,1 @@
+Artículo 9º—A fin de que haya la mayor equidad posible la Oficina de Cobros hará la distribución de las cuentas que se asignan a cobro judicial, clasificando las mismas en orden alfabético por apellido. No se tomará en cuenta aquellos abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento.

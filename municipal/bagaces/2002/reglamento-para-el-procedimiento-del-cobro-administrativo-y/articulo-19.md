@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de determinar si los juicios se encuentran al día, la Oficina de Cobro revisará periódicamente con personal calificado, el número de expedientes y registros que considere necesarios, de operaciones entregadas a cada abogado, tomando como base la documentación en el poder de la Oficina de Cobro.

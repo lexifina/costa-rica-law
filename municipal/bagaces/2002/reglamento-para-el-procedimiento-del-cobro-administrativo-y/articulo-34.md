@@ -1,0 +1,1 @@
+Artículo 34.—El día hábil siguiente al remate el abogado deberá informar por escrito a la Oficina de Cobro el resultado del mismo. Si pasado un lapso de 8 días naturales no cumpliera con lo anterior, la Oficina de Cobro le enviará una nota solicitando el informe con copia al Concejo Municipal para que se proceda de conformidad.

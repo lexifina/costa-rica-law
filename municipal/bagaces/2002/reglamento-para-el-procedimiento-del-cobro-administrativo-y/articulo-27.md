@@ -1,0 +1,1 @@
+Artículo 27.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá los seis meses calendario, contados a partir de la firma del documento respectivo. La Oficina de Cobro elaborará una tabla donde especificará el monto de los depósitos previos a la formalización de arreglos de pago.
