@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-02 | la propia norma |
+| 2 | 1995-09-28 | Decreto Ejecutivo 24740 (1995-09-28) |
