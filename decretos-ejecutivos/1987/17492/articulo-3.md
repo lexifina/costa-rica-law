@@ -1,0 +1,1 @@
+Artículo 3°— La Comisión se dará su régimen de funcionamiento interno y contará con una unidad ejecutora. A dicha unidad corresponderá, además de las funciones que le encomiende la Comisión , realizar los estudios técnicos y de factibilidad de lo» proyectes, supervisar el uso de los recursos invertidos en ellos y brindarle asesoría técnica a los grupos que los ejecuten.
