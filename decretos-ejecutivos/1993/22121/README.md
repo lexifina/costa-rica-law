@@ -14,3 +14,4 @@ Crea la Junta Administrativa de la Dirección General de Museos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-11 | la propia norma |
+| 2 | 1998-03-09 | Decreto Ejecutivo 26919 (1998-03-09) |

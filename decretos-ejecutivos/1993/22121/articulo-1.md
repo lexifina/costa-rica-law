@@ -1,4 +1,6 @@
+(Derogado)
 N° 22121-C
+(Derogado por el artículo 6 del Decreto Ejecutivo N° 26919, del 9 de marzo de 1998)
 EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES,
 Con fundamento en el artículo 25.1 de la Ley General de la Administración Pública, y
 Considerando:
