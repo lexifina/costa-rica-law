@@ -14,3 +14,4 @@ Crea Comisión Liquidadora que continuará con la liquidación de la empresa Tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-02-12 | la propia norma |
+| 2 | 1987-05-29 | Decreto Ejecutivo 17686 (1987-05-29) |
