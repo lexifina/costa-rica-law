@@ -1,6 +1,6 @@
 CAPITULO II
 Definiciones terminológicas
-Artículo 10.—Para los efectos de este Reglamento se entiende por:
+Artículo 10.-Para los efectos de este Reglamento se entiende por:
 Accidente de trabajo: Accidente que le sucede al trabajador por causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes, y que puede producirle la muerte o pérdida o reducción, temporal o permanente, de la capacidad para el trabajo. Incluye el accidente "in itinere" y las demás hipótesis previstas en el artículo 196 del Código de Trabajo.
 Accidente de tránsito: Acción culposa cometida por los conductores de los vehículos, sus pasajeros o los peatones, al transitar por las vías terrestres de la nación, que estén al servicio y al uso del público en general, así como en las gasolineras, en todo lugar destinado al estacionamiento público o comercial regulado por el Estado, en las vías privadas y en las playas del país.
 Asegurado: Persona, hombre o mujer, que en virtud del cumplimiento de ciertos requisitos sobre cotizaciones, parentesco o dependencia económica del afiliado, o condición socioeconómica familiar, posee el derecho a recibir, total o parcialmente, las prestaciones del Seguro de Salud.
@@ -16,6 +16,8 @@ Centro asistencial: Área física ocupada por la Caja, donde se prestan servicio
 Centro médico de atención: Unidad donde el asegurado recibe atención médica, independientemente del lugar de adscripción asignado.
 Cesantía: Estado de cesante. Trabajador asalariado que ha dejado de laborar y por tanto ya no cotiza para el Seguro de Salud.
 Compañero: Persona, hombre o mujer, que convive en unión libre, en forma estable y bajo un mismo techo con otra de distinto sexo.
+DISCAPACIDAD SEVERA: Limitación física o mental, que imposibilita desarrollar al menos las dos terceras partes de la capacidad productiva normal. Esta limitación puede ser de nacimiento o bien producto de enfermedad, accidente o lesión.
+(Así adicionada la definición anterior en sesión N° 7343 del 17 de junio de 1999)
 Empadronamiento: Acción y efecto de inscribir, ante el Seguro de Salud, a los patronos que tienen trabajadores asalariados bajo sus órdenes.
 Enfermedad común: Estado patológico no originado en un riesgo de trabajo o accidente de tránsito.
 Expediente clínico: Constancia escrita de todas las comprobaciones realizadas en el examen médico y de las efectuadas en el curso de la evolución y de los tratamientos instituidos aún por terceros.
