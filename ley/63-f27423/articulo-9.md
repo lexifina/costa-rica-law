@@ -1,0 +1,1 @@
+Art 9°.- La duración y forma de estas elecciones será conforme al decreto, e instrucción de 5. de mayo del año pasado dado por la Asamblea Nacional Constituyente, y el tiempo de celebrarlas será el prescripto por el artículo 29. De la Constitución Federal.

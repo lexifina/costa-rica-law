@@ -1,0 +1,1 @@
+Art. 10.- El orden y división establecidas en este decreto y tabla se entenderán solo para las elecciones de la República, y no las del Estado que se harán siempre arregladas al decreto del Congreso Constituyente Federal.
