@@ -1,0 +1,1 @@
+Art 5°.- Los que no cumplieren con lo prevenido en el artículo que antecede y en el tiempo señalado en esta ley, pagarán el valor de la banqueta que debe guarnecer su casa, y la Policía ejecutará la obra a su costa, quedando exceptuados de esta obligación los que no tengan medios suficientes para ejecutar la obra.

@@ -1,0 +1,1 @@
+Art 2°.- En las ciudades donde haya cárceles seguras y bien dispuestas para la salud de los presidarios, pueden éstos trabajar en las reparaciones de que habla el artículo anterior perteneciente a la ciudad de su vecindario.

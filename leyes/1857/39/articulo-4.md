@@ -1,0 +1,1 @@
+Art 4°.- Dentro de un año contado desde la fecha de este decreto en adelante, los dueños de casas que se encuentren en la nueva alineación en las calles principales, serán obligados a construir en el frente de sus respectivas propiedades la banqueta de que habla el artículo anterior.
