@@ -1,0 +1,9 @@
+Artículo 12
+1. Todo Estado Parte podrá denunciar el presente Protocolo en
+cualquier momento mediante notificación escrita dirigida al Secretario
+General de las Naciones Unidas. La denuncia surtirá efecto tres meses
+después de la fecha en que el Secretario General haya recibido la
+notificación.
+2. La denuncia se hará sin perjuicio de que las disposiciones del
+presente Protocolo sigan aplicándose a cualquier comunicación presentada,
+en virtud del artículo 2, antes de la fecha de efectividad de la denuncia.
