@@ -1,0 +1,2 @@
+Artículo 57.-EI Asegurado que avise siniestro ficticio, responderá por los gastos que realice el Instituto provenientes de la inspección respectiva y deberá hacer el reembolso dentro de los 8 días siguientes a la fecha de la inspección. El Instituto tendrá derecho a cancelar la póliza, si no obtiene el reembolso en el plazo indicado.
+La reincidencia del Asegurado, facultará igualmente al Instituto para disponer la cancelación de la Póliza.

@@ -1,0 +1,1 @@
+Artículo 69. -Si el siniestro se produce durante el ciclo agrícola del cultivo y da posibilidad para una re siembra o para que se inicie otro cultivo, el Asegurada estará obligado a efectuar lo uno o lo otro y el Instituto abonará los gasto; que demande la resiembra o la iniciación de otro cultivo.

@@ -1,0 +1,1 @@
+Artículo 77.-El Instituto tendrá la facultad de resolver el contrato de ;eguro en cualquier momento, una vez que se cerciore de actos u omisiones del Asegurado que impliquen agravación substancial del riesgo. El Instituto notificará la resolución del contrato a los interesados en la forma y términos establecidos por este Reglamento.

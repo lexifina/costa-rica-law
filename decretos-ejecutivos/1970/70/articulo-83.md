@@ -1,0 +1,2 @@
+Artículo 83.-Para conocer y resolver los Recursos de Disconformidad que se interpongan la Comisión Coordinadora sesionará las veces requeridas, previa convocatoria de su Presidente, quien presentará el proyecto de dictamen respectivo.
+Cualquier miembro podrá también pedir sesión extraordinaria de la Comisión, solicitándola por escrito con indicación del asunto o asuntos que deberán ser conocidos y resueltos.

@@ -1,0 +1,1 @@
+Artículo 30.-La vigencia del contrato de seguro terminará en la fecha establecida en la Póliza o en el momento en que los frutos se desprendan de las plantas, si esto ocurriera antes, exceptuados los casos especiales comprobados al Instituto o autorizados por éste.

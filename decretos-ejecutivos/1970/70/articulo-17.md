@@ -1,0 +1,1 @@
+Artículo 17.-En cultivos perennes, para los mismos efectos del artículo anterior, se entenderá por inversiones directas y necesarias las que deba efectuar el agricultor. para obtener cada cosecha, a partir de! año que se inicia la producción regular de la planta.

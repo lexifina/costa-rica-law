@@ -1,0 +1,1 @@
+Artículo 31.-El Instituto asegurará los cultivos perennes -banano, árboles frutales y otros- según los principios de aseguramiento adecuados a esas especies y variedades, de acuerdo con las estipulaciones de las respectivas Pólizas.

@@ -1,0 +1,1 @@
+Artículo 60.-Recibiéndose aviso sobre circunstancias agravantes del riesgo, el Instituto deberá inmediatamente enviar delegados al lugar donde se encuentre el cultivo para que dicten las medidas de prevención necesarias, de lo cual se levantará acta.

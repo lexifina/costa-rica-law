@@ -1,0 +1,1 @@
+Artículo 50.-El Asegurado, su representante o la Institución financiera interesada, deberán dar al Instituto oportunamente los avisos de siniestro y de recolección, así como hacer de su conocimiento cualquier circunstancia que agrave substancialmente el riesgo.

@@ -1,0 +1,1 @@
+Artículo 6°-Para formar la Reserva Técnica de Contingencias del Seguro de Cosechas, los miembros del Sistema Bancario Nacional y los bancos privados, girarán directamente al Instituto, los aportes que se establecen de conformidad con el artículo 6° de la Ley del Seguro Integral de Cosechas.

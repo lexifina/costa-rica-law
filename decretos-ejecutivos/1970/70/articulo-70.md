@@ -1,0 +1,1 @@
+Artículo 70. -Cuando el daño sufrido es de tal magnitud que el Asegurado estime conveniente proseguir las labores del cultivo, podrá suspenderlas previa conformidad del Instituto. En este caso la indemnización será equivalente a los gastos efectuados y se regulará por la tabla o escala incluida en la Póliza.

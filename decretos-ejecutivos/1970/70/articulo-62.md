@@ -1,0 +1,1 @@
+Artículo 62.-Los avisos a que se refiere el artículo anterior indicarán -además de los datos que corresponden a los avisos de siniestro y de recolección- la extensión de la superficie cosechada hasta el momento de ocurrir el siniestro y el tanto de la cosecha levantada.

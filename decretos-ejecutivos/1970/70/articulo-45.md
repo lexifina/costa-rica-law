@@ -1,0 +1,1 @@
+Artículo 45. -Con consentimiento previo del Instituto se podrá hacer sustitución de beneficiario. La autorización respectiva deberán solicitarla los interesados en forma escrita. La sustitución entrará en vigencia a partir de la fecha en que el Instituto manifieste su conformidad.

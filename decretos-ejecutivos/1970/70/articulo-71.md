@@ -1,0 +1,1 @@
+Artículo 71.-Para efectos de indemnización, el Instituto no reconocerá las inversiones posteriores al siniestro total, ni las que en exceso de las autorizadas por él, se efectúen con posterioridad a la ocurrencia de un siniestro parcial.

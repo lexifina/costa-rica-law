@@ -1,0 +1,1 @@
+Artículo 38. -La inspección que debe practicar el Instituto antes de expedir la Póliza, tendrá por objeto verificar el arraigo de las plantas, la extensión de la superficie en cultivo y si la siembra se efectuó dentro de las fechas límites.

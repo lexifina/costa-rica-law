@@ -1,0 +1,1 @@
+Artículo 29. -Cubierta la prima, la protección del seguro empezará a partir del día que el cultivo se observe visiblemente germinado (o "nacido"), o arraigado después del trasplante o de la multiplicación vegetativa.
