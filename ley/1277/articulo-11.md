@@ -1,0 +1,1 @@
+Artículo 11.- Para hacer ofertas es indispensable hacer de previo un depósito a la orden y por la cantidad que fije el Consejo. La licitación indicará el monto de ese depósito respecto de cada derecho de línea.

@@ -1,0 +1,1 @@
+Artículo 14.- Una vez hecha la adjudicación de un derecho de línea por Consejo Superior del Tránsito, el concesionario deberá iniciar su explotación en la fecha fijada en la licitación. Si el concesionario no la iniciare en la fecha señalada, caducará su derecho, con pérdida del depósito hecho, de acuerdo con el artículo 11 anterior.

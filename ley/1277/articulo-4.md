@@ -1,0 +1,1 @@
+Artículo 4°.- Un derecho de línea se adquiere en virtud de concesión formal por cuatro años, obtenida por licitación pública, según lo dispuesto en esta ley, o por medio de permiso provisional que no podrá exceder de seis meses.

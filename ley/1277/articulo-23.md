@@ -1,0 +1,1 @@
+Artículo 23.- Si en virtud de petición o por propia iniciativa, el Consejo llegare a la conclusión, previo el estudio del caso, de que el buen servicio público exige un aumento de unidades en determinada línea o ruta, sacará éste a licitación.

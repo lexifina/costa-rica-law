@@ -1,0 +1,3 @@
+Disposiciones Varias
+Artículo 31.- Declárase de interés público el establecimiento de estaciones municipales para el servicio de transporte a que se refiere esta ley. Las municipalidades procurarán adquirir y acondicionar los terrenos y locales apropiados mediante compra y expropiación y atenderán la administración y explotación de las estaciones.
+Podrán también las Municipalidades autorizar temporalmente el establecimiento de estaciones de propiedad de particulares, siempre que se ajusten a las disposiciones que señale la Corporación. El establecimiento de estaciones requerirá también la aprobación del Consejo Superior del Tránsito.

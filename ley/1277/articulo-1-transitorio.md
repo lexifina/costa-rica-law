@@ -1,0 +1,1 @@
+Artículo I.- La primera licitación de todas las líneas del país deberá hacerse durante el segundo semestre del año 1954, en el orden y forma que el Consejo Superior del Tránsito determine, de acuerdo con las disposiciones de esta ley.
