@@ -1,2 +1,0 @@
-Artículo 9º.- Adiciónase un párrafo final al artículo 3º de la ley Nº 6695 del 10 de diciembre de 1981, cuyo texto será el siguiente:
-"La Corporación deberá construir un servicio de guarderías infantiles para los hijos de los trabajadores de cada zona, y una zona de recreo para uso de los obreros y sus familias. Esto lo hará en coordinación con las empresas establecidas en la zona, según las necesidades de sus trabajadores."
