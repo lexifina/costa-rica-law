@@ -1,0 +1,1 @@
+Artículo 4°—Las sumas establecidas en el Reglamento de Gastos de Viajes y de Transporte para funcionarios públicos aprobados por La Contraloría General de la República , son asignaciones máximas en consecuencia La Municipalidad de La Cruz en casos muy especiales, que a su juicio así los justifiquen, pueden aplicar tarifas menores a las establecidas en dicho Reglamento.

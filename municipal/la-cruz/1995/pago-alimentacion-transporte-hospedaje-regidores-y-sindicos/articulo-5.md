@@ -1,0 +1,1 @@
+Artículo 5°—Corresponderá al Ejecutivo Municipal de la Municipalidad de La Cruz , autorizar los gastos de transporte, alimentación y hospedaje de los Regidores y Síndicos, dentro del Cantón de La Cruz.

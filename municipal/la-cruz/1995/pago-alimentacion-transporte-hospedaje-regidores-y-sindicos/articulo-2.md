@@ -1,0 +1,1 @@
+Artículo 2°—Los gastos a que se refiere este reglamento únicamente serán cubiertos a aquellos Regidores y Síndicos que ejerzan el cargo en la Municipalidad de La Cruz. Y siempre y cuando estuviere presente durante todo el tiempo que dure la sesión correspondiente.

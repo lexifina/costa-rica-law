@@ -1,0 +1,8 @@
+NOTA: El Consejo Municipal de la Cruz , publicó en La Gaceta N° 183 del 21 de setiembre de 1999, el acuerdo donde aprueba este Reglamento para su ejecución, dicho acuerdo dispone:
+“El Consejo Municipal de la Cruz , Guanacaste, aprueba el Reglamento para Regular el Pago de Alimentación, Transporte y Hospedaje de los Regidores y Síndicos Propietarios y Suplentes, el cual fue publicado en La Gaceta N ° 233, del 7 de diciembre de 1995, esto para su ejecución, de conformidad con el artículo 30 del nuevo Código Municipal, Ley 7888 del 29 de junio de 1999, publicado en La Gaceta No 138 del 16 de julio de 1999. Publíquese este acuerdo en el Diario Oficial " La Gaceta ".
+MUNICIPALIDAD DE LA CRUZ
+REGLAMENTO PARA REGULAR EL PAGO DE ALIMENTACIÓN,
+TRANSPORTE Y HOSPEDAJE DE LOS REGIDORES
+Y SÍNDICOS PROPIETARIOS Y SUPLENTES
+La Municipalidad del Cantón de La Cruz , de conformidad con los artículos 21 inciso c), 47 y 76 del Código Municipal, este último reformado por la Ley número 7385 del 16 de marzo de 1994 y del acuerdo de la Sesión Ordinaria _62 del 20 de noviembre de 1995 acordó aprobar el presente Proyecto de Reglamento para Regular el Pago de Alimentación, Transporte y Hospedaje de los Regidores y Síndicos, para asistir a las sesiones del Concejo dentro del Cantón de La Cruz que se regirá por los siguientes artículos.
+Artículo 1°—El presente reglamento establece las disposiciones generales a que deberán someterse las erogaciones que por concepto de gastos de alimentación, transporte y hospedaje, deban realizar los Regidores y Síndicos que residan a una distancia no menos de 10 (diez) kilómetros de la sede municipal y deban trasladarse para asistir a sesiones del Concejo Municipal de La Cruz.

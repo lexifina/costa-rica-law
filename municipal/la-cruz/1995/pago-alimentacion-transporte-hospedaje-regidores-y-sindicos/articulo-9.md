@@ -1,0 +1,1 @@
+Artículo 9°—El funcionario encargado de recibir y revisar las liquidaciones y cancelaciones de saldos deberá gestionar la liquidación y cobro respectivo antes del vencimiento del plazo, en caso contrario será responsable por su omisión. Así mismo deberá en caso de incumplimiento, informar al Ejecutivo Municipal, para que este tome las medidas que sean pertinentes.
