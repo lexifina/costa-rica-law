@@ -1,0 +1,1 @@
+Artículo 5°—Corresponderá al Ejecutivo Municipal, en coordinación con la Dirección Administrativa y el Departamento de Personal establecer las políticas de capacitación de los funcionarios para lo cual se destinará una partida en el presupuesto ordinario y se establecerán relaciones con organismos públicos y privados.

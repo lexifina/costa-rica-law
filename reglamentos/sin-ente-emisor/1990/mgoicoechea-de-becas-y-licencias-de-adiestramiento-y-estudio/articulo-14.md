@@ -1,0 +1,1 @@
+Artículo 14.—Corresponderá al Concejo interpretar las disposiciones de este reglamento, cuando surjan dudas en su aplicación, dictando las normas o directrices pertinentes. Asimismo definirá aquellos aspectos no contemplados en él.

@@ -1,0 +1,1 @@
+Artículo 13.—El servidor que incumpliere los deberes u obligaciones que establece este reglamentó, por causa evidentemente imputable a él, quedará excluido de los respectivos beneficiarios reglamentarios, por el término de cinco años.

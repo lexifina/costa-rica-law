@@ -1,0 +1,3 @@
+Artículo 12.—En caso de renuncia, incumplimiento o cancelación del disfrute de la beca o licencia, por causa imputable del beneficiario, exceptuando casos de enfermedad o fuerza mayor, debidamente comprobados, este reintegrará a la Municipalidad:
+a) Todas las sumas desembolsadas por cualquier concepto, incluyendo el salario si hubiere gozado de ese beneficio.
+b) En caso de que el funcionario no cumpliere la obligación señalada en el inciso d) del artículo 10, deberá resarcir a la Corporación por daños y perjuicios ocasionados el monto que estime la Contraloría General de la República a solicitud de la Municipalidad.

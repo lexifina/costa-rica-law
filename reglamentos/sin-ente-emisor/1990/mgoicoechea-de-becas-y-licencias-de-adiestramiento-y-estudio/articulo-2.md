@@ -1,0 +1,2 @@
+Artículo 2°—Se entiende por beca el sistema mediante el cual la Municipalidad concede una ayuda económica a sus funcionarios para que cursen estudios en el país, siempre que estos llenen una necesidad institucional en cuanto a su duración, especialidad y a la existencia de una entidad responsable de impartirlos.
+Se entiende por licencia el permiso para ausentarse de labores con goce parcial o total o sin goce de salario y para efectos de adiestramiento en áreas de interés municipal, que otorga la Municipalidad para sus funcionarios.
