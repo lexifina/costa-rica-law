@@ -1,0 +1,1 @@
+Artículo 7°-La maquinaria, equipo, herramientas y materias primas que hubieren sido importados al amparo de este decreto, sólo podrán ser destinados a un fin, servicio o consumo diferentes de los que motivaron la franquicia aduanera, previo cumplimiento de lo que establece el artículo 3° de la Ley de Defraudación Fiscal.

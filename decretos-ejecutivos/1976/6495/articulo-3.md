@@ -1,0 +1,6 @@
+Artículo 3°-Para poder solicitar los beneficios de este decreto, se entenderá por "artesanía" aquella actividad humana de producción, transformación y reparación de bienes, mediante un proceso en que la mano de obra constituya el factor predominante, dando por resultado un producto individualizado, en que quede impreso el sello personal, que no corresponda a la producción industrial mecanizada y en serie. Por "pequeña industria" se entenderá toda unidad productiva que se dedique a la elaboración de artículos manufacturados, que las siguientes condiciones:
+a) Que ocupe hasta un máximo de 20 trabajadores,;
+b) Que su inversión en maquinaria, herramientas y equipo sea no mayor a treinta mil pesos centroamericanos ($ c. A. 30,000.00);
+c) Que su proceso de producción se realice con tecnología simple, mediante la utilización de herramientas manuales, maquinaria y equipo mecánico no automático; y
+d) Que el propietario sea parte activa en el proceso productivo.
+Para recibir los privilegios de este decreto, tanto en lo que se refiere a los pequeños industriales como a los artesanos, los interesados deberán desarrollar actividades que sean consideradas beneficiosas para el país. Asimismo, su actividad deberá constituir la principal fuente de recursos para la subsistencia del propietario del taller y su familia.
