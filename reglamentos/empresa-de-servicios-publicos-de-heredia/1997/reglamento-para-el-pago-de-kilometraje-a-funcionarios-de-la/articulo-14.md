@@ -1,0 +1,1 @@
+Artículo 14.—El titular de la Unidad de Transportes deberá inspeccionar y comprobar periódicamente cada vehículo, y constatar las condiciones mecánicas de carrocería en que éstos se encuentren. Únicamente aquellos que están en condiciones adecuadas de operación, permanecerán al servicios de la empresa.

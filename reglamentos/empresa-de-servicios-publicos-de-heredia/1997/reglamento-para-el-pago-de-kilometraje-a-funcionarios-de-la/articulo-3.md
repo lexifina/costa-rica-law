@@ -1,0 +1,2 @@
+Artículo 3°—El acceso al régimen creado por este Reglamento, requiere indispensablemente la celebración del respectivo contrato entre el funcionario y la empresa, previo el cumplimiento de las condiciones contempladas en el presente capítulo.
+Bajo ninguna circunstancia los beneficios que representen el pago del kilometraje, será considerado como mejora salarial, salario en especie, alguna forma, parte del contrato de trabajo ni dará lugar a derechos adquiridos en favor del funcionario arrendante.

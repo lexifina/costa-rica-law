@@ -1,0 +1,1 @@
+Artículo 9°.- La gira efectuada sin el cumplimiento de los requisitos que señala el presente cuerpo normativo, será por cuenta y riesgo del propietario, y este en ningún caso podrá reclamar el pago del kilometraje recorrido.

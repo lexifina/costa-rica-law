@@ -1,0 +1,1 @@
+Artículo 2°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está velado a funcionarios del nivel gerencial y miembros de junta directiva, quienes por su condición y para estos efectos están excluidos de la aplicación de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.—Las jefaturas que pueden autorizar los servicios, deberán coordinar en la medida de lo posible, el transporte en un mismo vehículo de cualquier otro trabajador que debe efectuar el mismo recorrido, aún en el caso de que éste tenga al servicio de la empresa su propio vehículo. En este caso, la jefatura decidirá en cual unidad se efectuará la gira.

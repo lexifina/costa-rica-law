@@ -1,0 +1,1 @@
+Artículo 20.—Cuando un trabajador por motivo de su trabajo debe transportar equipos y herramientas de la empresa, en su vehículo y, éstas fueran extraviadas o deterioradas, se procederá de conformidad con las normas que tiene establecidas la empresa para el control y uso de herramientas y equipo.

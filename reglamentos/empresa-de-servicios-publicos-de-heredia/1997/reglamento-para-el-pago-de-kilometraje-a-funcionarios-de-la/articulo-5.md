@@ -1,0 +1,1 @@
+Artículo 5°—La Gerencia es la instancia que aprueba o desaprueba el ingreso al sistema de pago de kilometraje y la Unidad de Transportes debe atender lo concerniente a la suscripción del contrato y a definir los controles necesarios para que dicho contrato se ejecute según lo pactado.
