@@ -1,0 +1,1 @@
+Articulo 13.—Intendencia General. Atribuciones específicas. Corresponde al intendente general ejecutar las políticas y estrategias que defina el Superintendente, coordinar la actividad de los diversos niveles en que se organiza, sustituir al Superintendente en sus ausencias y realizar los asuntos que le sean delegados por el Superintendente.

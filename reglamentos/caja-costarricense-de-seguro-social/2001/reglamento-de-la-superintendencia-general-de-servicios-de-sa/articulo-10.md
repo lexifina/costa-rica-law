@@ -1,0 +1,1 @@
+Artículo 10.—Superior Jerárquico. Todos los funcionarios o empleados de la SUGESS estarán subordinados al Superintendente, quién actuará a través de los diversos niveles jerárquicos en que se estructura la Superintendencia. En materia de empleo, el Superintendente gozará, respecto de su personal, de las mismas atribuciones que el ordenamiento interno atribuye a los Gerentes.

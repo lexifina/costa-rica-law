@@ -1,0 +1,7 @@
+Artículo 4°—Objetivos específicos. La SUGESS tiene por objetivos específicos los siguientes:
+a) La supervisión, fiscalización y evaluación de la calidad, continuidad, confiabilidad, seguridad, uniformidad, oportunidad, inmediatez y eficacia de los servicios de salud que suministra la Institución directa ó indirectamente a los usuarios.
+b) Fiscalizar que los servicios de salud se presten con apego a las reglas de la ciencia o de la técnica, lógica, justicia y conveniencia, según lo exige el articulo 16 de la Ley General de la Administración Pública.
+c) Vigilar por la eficiente utilización de los recursos institucionales en la medida que afecten la calidad del servicio de salud que se presta a. los asegurados y usuarios.
+d) Revisar y fiscalizar el cumplimiento de las políticas nacionales y de la Junta Directiva para la promoción, protección, preservación, curación y recuperación de la salud de la población, así como de la docencia y de la investigación.
+e) Vigilar que el funcionamiento y la competitividad del sistema de salud desconcentrado de la Caja , garantice la participación social, la universalidad y uniformidad de la calidad, eficiencia y eficacia del servicio público de salud, y el equilibrio entre usuarios, prestadores o proveedores y financiadotes de los servicios en condiciones de competitividad, transparencia y eficacia en beneficio de los asegurados y usuarios.
+f) Cualquier otro compatible con el objetivo general y con el ámbito material de su competencia.
