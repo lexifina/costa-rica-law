@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad del cantón central de Puntarenas, solicitará a cada empresa naviera que obtenga ingresos por los pasajeros en tránsito, un depósito suficiente como respaldo al posible listado que manifestarán posteriormente, a la cuenta corriente de esta administración municipal.

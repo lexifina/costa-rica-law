@@ -1,0 +1,2 @@
+Disposición transitoria
+Transitorio único.—La Municipalidad por esta única vez, dada la situación de emergencia que existe en este momento con la limpieza por el exceso de basura en las calles, se autoriza al Alcalde Municipal del cantón Central de Puntarenas, para sacar a licitación para la compra de dos recolectores de basura, con lo ingresado a las arcas municipales. Conforme a lo dispuesto en el artículo 17 de la Ley Nº 7856.
