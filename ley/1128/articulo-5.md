@@ -1,0 +1,1 @@
+Artículo 5º- Los tribunales no aprobarán ninguna liquidación o suma por honorarios de abogados que contraríe lo dispuesto por esta ley; y si por error o cualquier otra causa se impartiera esa aprobación, la resolución en ese punto sera absolutamente nula.
