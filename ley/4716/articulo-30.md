@@ -1,7 +1,7 @@
-Artículo 30.- Además del capital inicia., el I.F.A.M. contará con
+Artículo 30.- Además del capital inicial, el I.F.A.M. contará con
 los siguientes recursos financieros:
-a) Los fondos provenientes del impuesto a que se refiere el artículo
-52 de esta ley;
+a) Los fondos provenientes del impuesto a que se refiere el artículo 52
+de esta ley;
 b) Las comisiones e intereses sobre las operaciones de crédito que el
 Instituto realice con las Municipalidades;
 c) Los ingresos por los servicios de asistencia técnica, asesoría e
