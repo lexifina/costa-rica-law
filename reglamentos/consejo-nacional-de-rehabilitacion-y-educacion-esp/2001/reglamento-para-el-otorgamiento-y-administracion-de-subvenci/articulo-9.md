@@ -1,0 +1,12 @@
+CAPÍTULO II
+De las subvenciones
+SECCION I
+Del otorgamiento de las subvenciones
+Artículo 9º—Procedimiento para el trámite de subvención con fondos provenientes del Fondo de Desarrollo Social y Asignaciones Familiares mediante la participación de una organización no gubernamental. Para tramitar por primera vez una solicitud de subvención mediante la participación de una organización no gubernamental se deberá seguir el siguiente procedimiento:
+A. El solicitante o encargado suscribirá una "Declaración Jurada" sobre su condición socioeconómica y la entregará al administrador o presidente de la organización no gubernamental. Con la Declaración Jurada deberá adjuntarse toda la documentación que demuestre los ingresos y egresos del grupo familiar solicitante de la subvención según requisitos establecidos en la fórmula así como información pertinente a la discapacidad del usuario o la usuaria, a su necesidad de apoyo específico para lo cual solicita la subvención y cualquier otra que considere el funcionario o la funcionaria responsable.
+B. La vigencia de la información que se anexe tendrá una validez de hasta dos años. Toda información brindada tiene carácter fidedigno y la misma puede ser corroborada por el funcionario o funcionaria, en forma selectiva y periódica. Si hubiera una variación de la situación socio-económica la organización no gubernamental deberá informar al Consejo.
+C. El representante legal de la organización no gubernamental remitirá la "Declaración Jurada", junto con la recomendación emitida por la Junta Directiva, al Consejo, quien analizará la información y verificará que se cumpla con la normativa establecida.
+D. Los funcionarios y las funcionarias del Consejo emitirán su "Criterio Técnico", y remitirán los documentos a la instancia correspondiente para su aprobación.
+E. En caso de que la solicitud presentada fuera aprobada, los funcionarios y las funcionarias del Consejo archivarán la información con todos sus anexos y remitirán a la ONG copia del "criterio técnico"; asimismo remitirán al Departamento Administrativo, en particular a Financiero Contable la boleta correspondiente para la respectiva reserva presupuestaria y emisión de pago.
+F. En caso de documentos incompletos o solicitudes que no satisfagan los requerimientos, los funcionarios y las funcionarias del Consejo los devolverán a la organización no gubernamental para que se completen o se archiven.
+G. El Consejo mantendrá un expediente de cada organización con todas as boletas y sus anexos, así como copia del criterios técnicos.

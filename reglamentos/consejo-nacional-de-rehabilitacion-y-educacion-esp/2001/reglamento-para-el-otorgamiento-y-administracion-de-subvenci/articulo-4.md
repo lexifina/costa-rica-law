@@ -1,0 +1,4 @@
+SECCIÓN IV
+Del objetivo del reglamento
+Artículo 4º—Del objeto. El presente Reglamento tiene por objeto establecer las regulaciones del otorgamiento de subvenciones para personas con discapacidad en condición de pobreza, abandono y riesgo social, así como a sus familiares, en aras de facilitarles el acceso oportuno a los servicios de apoyo y la satisfacción de las necesidades básicas y las derivadas de la discapacidad.
+Estas subvenciones serán otorgadas y administradas por el Consejo Nacional de Rehabilitación y Educación Especial, a través de sus servicios o de organizaciones no gubernamentales, con el propósito de contribuir con el mejoramiento de la calidad de vida de las personas con discapacidad y su autonomía personal así como para proporcionarles oportunidades equiparables de acceso al desarrollo.
