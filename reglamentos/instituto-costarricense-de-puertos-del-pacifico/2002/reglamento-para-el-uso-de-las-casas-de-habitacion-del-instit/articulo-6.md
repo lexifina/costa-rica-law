@@ -1,0 +1,1 @@
+Artículo 6º—Las casas serán usadas única y exclusivamente para los fines establecidos en este Reglamento, de observarse conductas contrarias a la moral y buenas costumbres se procederá a cancelar el permiso extendido, debiendo la Administración tomar las acciones pecuniarias y disciplinarias que correspondan.
