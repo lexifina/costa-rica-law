@@ -14,3 +14,4 @@ Crea una Comisión Interinstitucional para Prevención y Control de la Marea Roj
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-06 | la propia norma |
+| 2 | 2002-10-02 | Decreto Ejecutivo 30805 (2002-10-02) |
