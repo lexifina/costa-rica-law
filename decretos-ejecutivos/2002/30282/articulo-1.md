@@ -1,0 +1,12 @@
+Nº 30282-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades conferidas por el artículo 140, incisos 3 y 18 de la Constitución Política, y en ejecución de lo dispuesto en el artículo 27 de la Ley General de la Administración Pública,
+Considerando:
+1º—Que conforme al artículo 1° de la Ley 6868 del 6 de mayo de 1983, denominada Ley Orgánica del Instituto Nacional de Aprendizaje, ésta se constituye como una institución autónoma de derecho público, con personalidad jurídica y patrimonio propio.
+2º—Que la misma ley estipula en su artículo 24 que los funcionarios y empleados del Instituto Nacional de Aprendizaje estarán incorporados, en cuanto a nombramiento, remoción, clasificación y valoración de puestos, al Régimen de Servicio Civil, así como por la Ley de Salarios de la Administración Pública.
+3º—Que conforme al Decreto Ejecutivo N° 17.662 del 13 de julio de 1987, denominado Reforma al Reglamento de la Ley Orgánica del Instituto Nacional de Aprendizaje, en todos los demás aspectos de la relación laboral, los trabajadores de dicha institución se regirán por las normas ordinarias aplicables a las instituciones autónomas, por el reglamento autónomo de servicio y por la legislación laboral aplicable en lo conducente, de acuerdo con la naturaleza de la relación pública de empleo que se da en el Instituto.
+4º—Que mediante oficio DI-AA-1383 del 23 de mayo del 2001, la Contraloría General de la República, recomienda al Instituto Nacional de Aprendizaje promulgar su propia regulación en facultad de su potestad reglamentaria.
+5º—Que de conformidad con los alcances del Decreto Nº 90-SC, de fecha de 13 de diciembre de 1965, éste es de aplicación para todo el sector público, por lo que la Contraloría General de la República también recomienda al Instituto Nacional de Aprendizaje, mediante oficio DI-AA3069 de fecha 23 de octubre de 2001, "gestionar ante el Poder Ejecutivo la modificación o actualización de dicha normativa" (Reglamento de Zonaje); por lo cual se hace necesario emitir el siguiente decreto de autorización al Instituto Nacional de Aprendizaje a elaborar una nueva reglamentación. Por tanto,
+Decretan:
+Artículo 1º—Excluir al Instituto Nacional de Aprendizaje de los alcances del Decreto 90-SC, de fecha de 13 de diciembre de 1965, autorizando a dicha Institución a formular su propio reglamento de zonaje y tabla de montos a pagar por este concepto.
