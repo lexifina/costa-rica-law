@@ -1,0 +1,1 @@
+Art. 12.-En ningún caso podrá el Presidente separarse largo tiempo de su destino, sin que la Sociedad le conceda licencia; m s cuando su ausencia fuere corta, y sus faltas accidentales, le subrogar el Vice-Presidente, que con este objeto deber también la Sociedad elegir, y cuyo cargo seguir todas las reglas establecidas respecto de la Presidencia.
