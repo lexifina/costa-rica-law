@@ -31,11 +31,7 @@ En todo caso, al autor de las lesiones culposas se le impondrá también inhabil
 Al conductor reincidente se le impondrá, además la cancelación de la licencia para conducir vehículos, por período de uno a dos años.
 Si el hecho fuere cometido bajo los efectos de bebidas alcohólicas o de drogas enervantes, la cancelación de la licencia será de dos a cinco años."
 Muerte o lesiones en riña
-"Artículo 139.- Cuando en una riña o agresión en que pelearen varios contra varios, o varios contra uno, resultaren lesiones o muerte, si que conste su autor, a los que ejercieron violencia física sobre el ofendido o intervinieron usando armas, se les impondrá prisión de la siguiente manera:
-1) De tres a seis años, en caso de muerte;
-2) De año y medio a cuatro años, si resultaren lesiones gravísimas;
-3) De seis meses a tres años, si resultaren lesiones graves; y
-4) De uno a seis meses, si resultaren lesiones leves."
+"Artículo 139.- (Anulado por resolución de la Sala Constitucional No.03903-1994 de 03 de agosto de 1994)
 Sodomía
 "Artículo 173.- El que tuviere acceso carnal con un menor de diecisiete años y mayor de doce años, será penado con prisión de uno a tres años." Matrimonio ilegal
 "Artículo 176.- Serán reprimidos con prisión de seis meses a tres años los que contrajeren matrimonio, sabiendo ambos que existe impedimento que causa su nulidad absoluta."
