@@ -1,0 +1,1 @@
+Art 17° El Gobierno nombrará en cada Provincia por el término de un año dos peritos principales y dos suplentes que, en calidad de peritos fiscales del Banco Nacional de Costa Rica, efectúan el justiprecio de la finca o fincas que se les designaren

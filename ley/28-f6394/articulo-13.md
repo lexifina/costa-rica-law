@@ -1,0 +1,1 @@
+Art 13°El término no excederá de veinte días, sirviendo de base para las propuestas en el remate, la suma adeudada al Banco por principal e intereses, y el justiprecio de la finca será el dado anticipadamente por los peritos al tiempo de constituirse la hipoteca.

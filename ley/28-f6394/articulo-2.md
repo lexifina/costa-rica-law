@@ -1,0 +1,1 @@
+Art 2° El Capital del Banco Nacional de Costa Rica, podrá aumentarse a dos millones, pudiendo el Gobierno interesar al Tesoro Público de la Nación hasta el medio millón más, o sea en cinco mil acciones de Banco.

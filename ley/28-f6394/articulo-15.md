@@ -1,0 +1,2 @@
+Art 15° los deudores al Banco Nacional de Costa Rica con hipoteca, podrán levantar esta cuando les convenga pagando antes del vencimiento del plazo el principal y los intereses adeudados y un medio por ciento de operación en favor del establecimiento.
+Único. El Administrador del Banco hará la cancelación del documento y dará aviso al Registrador de Hipotecas de haberse levantado el gravamen de la finca.
