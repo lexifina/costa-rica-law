@@ -14,3 +14,4 @@ Establece tarifas de peaje de varias autopistas y carreteras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-21 | la propia norma |
+| 2 | 1991-04-18 | Decreto Ejecutivo 20385 (1991-04-18) |
