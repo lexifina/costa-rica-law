@@ -1,3 +1,3 @@
-Artículo 81.-Definición de Incentivo Económico
-Para los efectos de este reglamento, se define incentivo económico como aquella remuneración extraordinaria, otorgada a un funcionario denominado Agente de Cuenta, por alcanzar cuotas de rendimiento superiores a las establecidas como mínimas, las que en este caso se determinan en un 80,1%.
-Esta remuneración será aplicada una vez cada trimestre en el tanto se cumpla con las disposiciones señaladas en los artículos siguientes:
+Artículo 81.-Definición de Incentivo Económico: Para los efectos de este reglamento, se define incentivo económico, como aquella remuneración extraordinaria otorgada a un funcionario denominado: Agente de Cuenta, por alcanzar cuotas de rendimiento superiores a las establecidas como mínimas, las que en este caso se determina en un 80.1%.
+Esta remuneración será aplicada todos los meses, después de la evaluación de cada trimestre, en el tanto se cumpla con las disposiciones señaladas en los artículos siguientes, y serpa modificada únicamente con la información que surja de la próxima evaluación.
+(Así reformado mediante acuerdo publicado en La Gaceta N° 100 del 26 de mayo de 1998)

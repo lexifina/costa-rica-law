@@ -14,3 +14,4 @@ Reglamento de Evaluación del Desempeño e Incentivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-21 | la propia norma |
+| 2 | 1998-04-29 | Reglamento municipal 0 (1998-04-29) |
