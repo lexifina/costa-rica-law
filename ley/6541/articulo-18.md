@@ -1,0 +1,4 @@
+Artículo 18.- Esos centros educativos quedan facultados para
+establecer convenios de cooperación e intercambio de servicios y tecnología
+con las instituciones públicas o privadas, tanto nacionales como
+extranjeras.
