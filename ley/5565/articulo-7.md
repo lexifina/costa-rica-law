@@ -1,0 +1,2 @@
+Artículo 7°-
+(La Corte Suprema de Justicia, mediante resoluciones de las 15:00 horas del 04 de diciembre de 1975 (expediente N° 0385-74, promovido por la empresa Stewart Hermanos Limitada) y de las 10:00 horas del 18 de enero de 1977 (expediente N° 0157-75 interpuesto por el mismo recurrente) declaró en ambos casos inaplicable el párrafo segundo de este artículo, por considerarlo incosntitucional.)
