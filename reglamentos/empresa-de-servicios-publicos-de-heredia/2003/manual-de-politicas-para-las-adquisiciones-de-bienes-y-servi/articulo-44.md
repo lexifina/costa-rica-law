@@ -1,0 +1,1 @@
+44.—En el caso de las compras directas, (establecido en el inciso a) puntos iii, iv y v, art. 26), de obras o servicios, los requerimientos se harán por escrito en la invitación a participar. La presentación de las ofertas se realizará por escrito y entregadas en sobre cerrado al Departamento de Adquisiciones y Almacenamiento en la hora y fecha fijada previamente.

@@ -1,0 +1,1 @@
+9º—Adicionalmente participarán en la Comisión, con voz pero sin voto, cualquier funcionario de la E.S.P.H. S.A., cuando se considere oportuno a criterio de la Comisión y deberán consignarse en el Acta todos los participantes incluso aquellos que no tengan voto.

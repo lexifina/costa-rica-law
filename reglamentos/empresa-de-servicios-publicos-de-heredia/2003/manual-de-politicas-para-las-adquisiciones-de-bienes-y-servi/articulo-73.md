@@ -1,0 +1,1 @@
+73.—En el caso de que se rescinda la contratación por motivos de interés de la ESPH, S. A., ésta cubrirá los daños y perjuicios ocasionados al contratista, si la rescisión fuera por caso fortuito o fuerza mayor, la ESPH, S. A., cancelará sólo el porcentaje de la parte debidamente ejecutada, más los gastos reales en que hubiese incurrido el contratista al momento de la rescisión.

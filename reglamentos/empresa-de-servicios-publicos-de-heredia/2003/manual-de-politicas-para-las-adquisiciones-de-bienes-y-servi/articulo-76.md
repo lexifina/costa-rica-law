@@ -1,0 +1,1 @@
+76.—Se establecerá una multa de un dos por mil del monto total adjudicado por día natural de atraso en la entrega del bien o servicio contratado, hasta un máximo de un 20% del monto total adjudicado. Lo anterior sin perjuicio de lo establecido por el ordenamiento jurídico para el resarcimiento de daños y perjuicios, sea por culpa o dolo del adjudicatario.

@@ -1,0 +1,10 @@
+CAPÍTULO
+Del trámite de adquisición de bienes o servicios
+21.—Para los trámites de compra son necesarios los siguientes requisitos:
+a) Las gestiones que se hagan ante el Departamento de Adquisiciones y Almacenamiento para la compra de bienes y/o servicios, deberán iniciarse con la respectiva autorización de compra, la cual por sí sola, o complementada, tendrá el contenido presupuestario suficiente, en el momento de la adjudicación, salvo caso de financiamiento externo debidamente autorizado.
+b) Las Unidades solicitantes deben remitir anticipadamente por escrito al Departamento de Adquisiciones y Almacenamiento, las condiciones técnicas o específicas de los bienes y servicios solicitados, para que éste realice el trámite de las cotizaciones respectivas.
+c) En el caso de contrataciones de bienes y servicios que trascienda más de un período presupuestario, el Departamento o Unidad solicitante será responsable de velar que exista contenido presupuestario suficiente en cada período y así cumplir con la obligación derivada de la adjudicación.
+d) Toda compra que efectúe la ESPH, S. A., deberá responder a una necesidad justificada. El cumplimiento de esta norma es una responsabilidad de todo funcionario que solicita la adquisición de bienes y servicios y de aquellos que autorizan las compras. Los Coordinadores de las unidades solicitantes, serán responsables de que se cumpla con esta disposición.
+e) Las compras estarán orientadas a suministrar los bienes y/o servicios requeridos para cumplir oportunamente con el planeamiento institucional.
+f) Las compras se efectuarán a precios razonables, calidad adecuada a las necesidades, a criterio de las unidades solicitantes, con base en especificaciones técnicas, tomando en cuenta el tiempo y volumen más adecuado en concordancia con el presupuesto disponible.
+g) Todas las dependencias que intervengan en las distintas etapas del proceso de compra, deberán agilizar el despacho de los documentos, a fin de que los trámites no sufran demoras injustificadas.

@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De la Adjudicación
+51.—Con la recomendación legal, técnica, económica y financiera (cuando corresponda) el Departamento de Adquisiciones y Almacenamiento remitirá a la Comisión Asesora, el análisis de las ofertas elegibles, adjuntando el expediente completo, debidamente foliado y actualizado. El Departamento de Adquisiciones y Almacenamiento deberá preparar un resumen de los análisis legales, técnicos, económicos y de solvencia (cuando corresponda) y comparación de las propuestas, exponiendo las razones precisas en que se fundamenta la propuesta de adjudicación. Dicho informe será sometido a la Comisión Asesora de Contrataciones para su análisis y recomendación ante quien corresponda.

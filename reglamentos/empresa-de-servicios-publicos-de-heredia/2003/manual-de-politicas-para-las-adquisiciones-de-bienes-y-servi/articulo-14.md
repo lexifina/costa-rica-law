@@ -1,0 +1,1 @@
+14.—La Secretaría de la Comisión confeccionará una agenda para cada sesión, la cual será aprobada por el Presidente de la Comisión y comunicada previamente a los miembros de la Comisión. Cuando se trate de estudio de ofertas deberá presentarse el asunto a la Comisión acompañado de los estudios técnicos, legales, económicos, financieros (cuando corresponda) y demás antecedentes.

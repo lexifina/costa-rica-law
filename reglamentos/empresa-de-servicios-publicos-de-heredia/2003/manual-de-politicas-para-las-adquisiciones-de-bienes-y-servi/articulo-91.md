@@ -1,0 +1,1 @@
+91.—El Departamento de Adquisiciones y Almacenamiento una vez que reciba el contrato, procederá inmediatamente a confeccionar la orden de compra respectiva, notificando al contratista tal circunstancia y le prevendrá a efecto de que se apersone a retirar la orden de compra y dar inicio a la prestación del servicio, conforme a lo que contractualmente se haya pactado.

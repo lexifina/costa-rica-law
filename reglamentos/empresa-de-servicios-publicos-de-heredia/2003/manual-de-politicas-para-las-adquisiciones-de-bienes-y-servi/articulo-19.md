@@ -1,0 +1,1 @@
+19.—El Departamento de Adquisiciones y Almacenamiento será el encargado de registrar las personas físicas y jurídicas que deseen participar en los procesos de contratación. Las solicitudes de incorporación al Registro de Proveedores se podrán formular en un documento simple o en las fórmulas que al efecto distribuya el Departamento de Adquisiciones y Almacenamiento.

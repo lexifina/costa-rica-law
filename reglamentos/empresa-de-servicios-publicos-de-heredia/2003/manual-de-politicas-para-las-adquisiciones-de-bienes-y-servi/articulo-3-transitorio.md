@@ -1,0 +1,1 @@
+Transitorio III.—Deróguese el Reglamento de Compras de la Empresa de Servicios Público de Heredia, S. A. - Acuerdo 094-99 y sus reformas. Las regulaciones referentes a ventas y donaciones contenidas en el actual Manual de Adquisiciones y Venta de Bienes y servicios, se mantienen vigentes y serán revisadas para su actualización.

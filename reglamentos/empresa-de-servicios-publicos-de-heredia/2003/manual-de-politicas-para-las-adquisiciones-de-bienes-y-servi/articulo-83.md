@@ -1,0 +1,1 @@
+83.—Para el reconocimiento de la indemnización, la parte interesada deberá presentar, un detalle de la liquidación, acompañado de la prueba correspondiente. La ESPH tendrá treinta días hábiles para tramitar la liquidación y deberá verificar todos los rubros.

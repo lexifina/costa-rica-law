@@ -1,0 +1,1 @@
+39.—Si los carteles de los concursos mencionan normas de calidad a que deban ajustarse el equipo o los materiales, las especificaciones deben indicar también que serán aceptables bienes que cumplan con otros estándares bien conocidos que aseguren calidad igual o superior a las normas mencionadas.

@@ -1,0 +1,1 @@
+82.—El acuerdo de rescisión debe estar precedido de los estudios e informes técnicos por parte de la unidad solicitante, que acrediten fehacientemente las causales de la rescisión. Este acuerdo se notificará al interesado, para que en término de siete días hábiles se manifieste.

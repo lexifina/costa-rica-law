@@ -1,0 +1,1 @@
+86.—Los artículos comprados por la ESPH, S. A. o donados por particulares, serán entregados en el Almacén. A excepción de los casos que por razones de conveniencia se autorice a ingresar en otro lugar, quedando para tal efecto los documentos que respaldan la recepción.

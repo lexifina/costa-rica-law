@@ -1,0 +1,1 @@
+49.—Todo defecto u omisión contenido en las ofertas, podrá ser subsanable en la medida que no implique modificación del precio, objeto y condiciones ofrecidas y que no alteren los principios generales de estas políticas.

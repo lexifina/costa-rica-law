@@ -1,0 +1,6 @@
+45.—El cartel establecerá la metodología de evaluación de las ofertas en todos sus extremos. El procedimiento general se dirigirá a obtener una prelación de las ofertas, sobre esta base se adjudicará o se establecerá un proceso de negociación con el propósito de mejorar las ofertas en función de intereses particulares de la ESPH S.A., cualesquiera de ambas alternativas estarán establecidas previamente en el cartel.
+La evaluación de las ofertas, para establecimiento del orden de prelación, tomará en cuenta la ponderación de parámetros técnicos y económicos en forma integrada.
+Cuando la ESPH así lo estime conveniente, podrá incorporar en el cartel la metodología de ofertas técnicas y económicas en sobres separados y establecer una metodología de evaluación en dos etapas diferenciadas, a saber:
+Evaluación Técnica: cuyo objetivo será el establecimiento del orden de prelación, fundamentado en el cumplimiento de todos los extremos técnicos solicitados en el cartel.
+Evaluación Económica: su objetivo será la evaluación del factor precio y la apertura de las eventuales negociaciones a efecto de mejorar dichas ofertas, la realizará el Departamento de Adquisiciones .
+El cartel incorporará en forma expresa la metodología y procedimientos para cada caso específico.

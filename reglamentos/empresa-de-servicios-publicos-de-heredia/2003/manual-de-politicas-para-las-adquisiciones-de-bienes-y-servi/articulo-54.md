@@ -1,0 +1,1 @@
+54.—En caso de que por alguna de las razones establecidas en la normativa, un concurso se declarase desierto o infructuoso, deberá constar una resolución razonada en el expediente por parte de la unidad adjudicante, sin esta resolución no podrá iniciarse nuevamente el proceso de contratación.
