@@ -1,1 +1,0 @@
-Artículo 37.-A quienes incumplieren las disposiciones de tipo cuarentenario estipuladas en los artículos 24 y 25 de la ley, se les podrá destruir sin indemnización alguna, las plantas, productos vegetales, material de propagación o empaque objeto de la contravención.

@@ -1,2 +1,0 @@
-Artículo 16.-Es obligatorio para todo ocupante y por su propia cuenta, combatir las plagas y enfermedades declaradas de combate particular obligatorio que se presenten en sus fincas.
-El Poder Ejecutivo, para los efectos de esta ley, sólo podrá declarar plagas o enfermedades de combate nacional o particular obligatorio, cuando se conozcan y puedan determinarse los procedimientos de lucha prácticos y de eficiencia reconocida por el Ministerio.

@@ -1,1 +1,0 @@
-Artículo 47.- Queda facultado el Ministerio para prohibir, con el propósito de proteger la calidad de nuestras plantas económicas, tanto la exportación cuanto la importación de otras especies o variedades que pudiesen en el futuro venir a demeritar las existentes.
