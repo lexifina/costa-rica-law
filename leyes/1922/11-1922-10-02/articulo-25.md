@@ -1,2 +1,2 @@
-Artículo 25.-El seguro contratado en favor de persona distinta del asegurado, corresponde exclusivamente al beneficiario, salvo la excepción del artículo 23 y no puede ser perseguido por los a cr eedores de éste.
-Para afectar la póliza de seguro en garantía de cualquier obligación, es preciso el consentimiento del beneficiario.
+Artículo 25.-El seguro emitido tanto sobre la vida del asegurado como persona distinta del contratante, corresponde exclusivamente al beneficiario y no puede ser perseguido por los a cr eedores de éste.
+(Así reformado por el artículo 1° de la ley N° 5279 del 27 de julio de 1973)

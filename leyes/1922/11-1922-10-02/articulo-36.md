@@ -1,4 +1,2 @@
-Artículo 36.-Los peritos darán su dictamen:
-1°--Sobre el valor real de los objetos asegurados el día del incendio, antes de que éste se hubiera verificado.
-2°-Sobre el valor de los mismos objetos después del siniestro, y sobre todo lo demás que se someta a su juicio.
-Para dar su opinión sobre el punto primero tendrá en cuenta lo que aparezca de los libros y demás documentos del asegurado en combinación con los demás datos que pueda utilizar. A falta de libros y documentos podrá basar su juicio en cualesquiera otras pruebas.
+Artículo 36.-Cuando hubiere desacuerdo entre el Asegurador y el Asegurado respecto del valor real de la propiedad, al ocurrir el siniestro o del monto de la pérdida, el cliente puede solicitar se practique una tasación o valoración, y el Asegurador accederá a ello. La valoración será efectuada por un tasador único o por dos tasadores nombrados uno por cada parte, quienes en previsión de un dictamen suyo discrepante, designarán al inicio un tercer tasador. El dictamen del tercer tasador, cuando fuere necesario, se mantendrá dentro de los límites de valoración que constan en los informes individuales de los otros dos tasadores, sin que pueda, de consiguiente ser más bajo que el menor ni más alto que el mayor.
+(Así reformado por el artículo 1° de la ley N° 5279 del 27 de julio de 1973)
