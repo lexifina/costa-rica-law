@@ -1,0 +1,1 @@
+Articulo 2°-Los productores de bananos están en la obligación de proporcionar a sus trabajadores viviendas apropiadas e higiénicas (amplias, secas y ventiladas), y de tener en sus fincas para suministrar a los trabajadores gratuitamente y con oportunidad, los medicamentos corrientes y sueros que se emplean en la curación de las enfermedades del lugar y mordeduras de culebra.
