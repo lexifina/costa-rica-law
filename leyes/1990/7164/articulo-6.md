@@ -1,5 +1,1 @@
-ARTICULO 6.- Para el trámite de solicitudes, traspasos, retiros y
-reubicación de categorías de patentes, lo mismo que permisos de
-construcción o reparación de cualquier tipo, visados de planos,
-certificaciones o constancias de cualquier naturaleza, el interesado deberá
-estar al día en el pago de sus obligaciones con la Municipalidad.
+Artículo 6.- Para el trámite de solicitudes, traspasos, retiros y reubicación de categorías de patentes, lo mismo que permisos de construcción o reparación de cualquier tipo, visados de planos, certificaciones o constancias de cualquier naturaleza, el interesado deberá estar al día en el pago de sus obligaciones con la Municipalidad.
