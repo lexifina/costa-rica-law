@@ -1,0 +1,2 @@
+Artículo 29-Las siete partidas que figuran en la presente ley, de ¢745.00 cada una, en concepto de dotaciones de las Secretarías de Estado, quedan reducidas a cuatro conforme a la distribución que tenga a bien hacer el Poder Ejecutivo. Se entenderán suprimidas las partidas que deban serlo con arreglo a esa distribución.
+San José, a los veintitrés días del mes de febrero de mil novecientos treinta y dos.

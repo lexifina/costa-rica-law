@@ -1,0 +1,1 @@
+Artículo 22.-Ninguno de los gastos o sueldos autorizados por este Presupuesto, puede ser cargado a remanentes o saldos que haya dejado el ejercicio de presupuesto o leyes especiales dados en años anteriores. Queda derogado el decreto N° 79 de 23 de febrero de 1925 y el artículo 2 del decreto N° 131 del 30 de julio de 1923.
