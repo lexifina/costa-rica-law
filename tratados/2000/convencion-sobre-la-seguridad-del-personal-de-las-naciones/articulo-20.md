@@ -1,0 +1,6 @@
+Artículo 20.—Cláusulas de salvaguarda. Nada de lo dispuesto en la presente Convención afectará a:
+a) La aplicabilidad del derecho internacional humanitario ni de las normas universalmente reconocidas de derechos humanos según figuran en instrumentos internacionales en relación con la protección de las operaciones de las Naciones Unidas y del personal de las Naciones Unidas y el personal asociado, ni a la responsabilidad de ese personal de respetar ese derecho y esas normas;
+b) Los derechos y obligaciones de los Estados, de conformidad con la Carta de las Naciones Unidas, en lo que respecta al consentimiento para la entrada de personas en su territorio;
+c) La obligación del personal de las Naciones Unidas y el personal asociado de actuar de conformidad con los términos del mandato de una operación de las Naciones Unidas;
+d) El derecho de los Estados que voluntariamente aporten personal a una operación de las Naciones Unidas a retirar a su personal de la participación en esa operación, o
+e) El derecho a recibir indemnización apropiada en el caso de defunción, discapacidad, lesión o enfermedad atribuible a los servicios de mantenimiento de la paz prestados por el personal voluntariamente aportado por los Estados a operaciones de las Naciones Unidas.

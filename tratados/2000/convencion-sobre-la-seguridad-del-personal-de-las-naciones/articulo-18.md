@@ -1,0 +1,1 @@
+Artículo 18.—Notificación del resultado de las actuaciones. El Estado Parte en el que se enjuicie a un presunto culpable comunicará el resultado final de las actuaciones al Secretario General de las Naciones Unidas, quien transmitirá la información a los demás Estados Partes.

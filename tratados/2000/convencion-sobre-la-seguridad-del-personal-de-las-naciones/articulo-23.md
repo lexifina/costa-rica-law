@@ -1,0 +1,1 @@
+Artículo 23.—Reuniones de examen. A petición de uno o más Estados Partes, y si así lo aprueba una mayoría de los Estados Partes, el Secretario General de las Naciones Unidas convocará a una reunión de los Estados Partes para examinar la aplicación de la Convención y cualesquiera problemas que pudiera plantear su aplicación.

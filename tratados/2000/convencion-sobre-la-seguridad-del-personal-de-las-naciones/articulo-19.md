@@ -1,0 +1,1 @@
+Artículo 19.—Difusión. Los Estados Partes se comprometen a dar a la presente Convención la difusión más amplia posible y, en particular, a incluir su estudio, así como el de las disposiciones pertinentes del derecho internacional humanitario, en sus programas de instrucción militar.

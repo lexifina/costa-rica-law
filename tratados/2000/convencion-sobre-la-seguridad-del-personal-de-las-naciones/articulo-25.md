@@ -1,0 +1,1 @@
+Artículo 25.—Ratificación, aceptación o aprobación. La presente Convención estará sujeta a ratificación, aceptación o aprobación. Los instrumentos de ratificación, aceptación o aprobación se depositarán en poder del Secretario General de las Naciones Unidas.

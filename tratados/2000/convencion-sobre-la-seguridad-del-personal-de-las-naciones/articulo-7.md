@@ -1,0 +1,4 @@
+Artículo 7º—Obligación de velar por la seguridad del personal de las Naciones Unidas y el personal asociado
+1. El personal de las Naciones Unidas y el personal asociado, su equipo y sus locales no serán objeto de ataques ni de acción alguna que les impida cumplir su mandato.
+2. Los Estados Partes adoptarán todas las medidas apropiadas para velar por la seguridad del personal de las Naciones Unidas y el personal asociado. En particular, los Estados Partes tomarán todas las medidas apropiadas para proteger al personal de las Naciones Unidas y el personal asociado desplegado en su territorio contra los delitos enumerados en el Artículo 9º.
+3. Los Estados Partes cooperarán con las Naciones Unidas y con los demás Estados Partes, según proceda, en la aplicación de la presente Convención, especialmente en los casos en que el Estado receptor no esté en condiciones de adoptar por sí mismo las medidas requeridas.
