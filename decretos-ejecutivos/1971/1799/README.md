@@ -14,3 +14,4 @@ Reforma Tarifas y Derechos Postales Servicio de Correos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-08-01 | la propia norma |
+| 2 | 1972-08-24 | Decreto Ejecutivo 2512 (1972-08-24) |
