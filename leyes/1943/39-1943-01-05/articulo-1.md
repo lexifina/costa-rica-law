@@ -1,3 +1,4 @@
+(Derogado)
 N° 39
 El Congreso Constitucional de la República de Costa Rica
 DECRETA:
