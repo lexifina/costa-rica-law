@@ -14,3 +14,4 @@ Reglamento para la Administración y Control de los recursos Económicos girados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-01 | la propia norma |
+| 2 | 2004-09-06 | Reglamento 43 (2004-09-06) |
