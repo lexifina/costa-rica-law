@@ -1,0 +1,1 @@
+Artículo 4°— La Comisión deberá procurar el financiamiento del proyecto mediante aportes de la empresa pública y privada, para lo cual se faculta a está Comisión para que reciba donaciones para estos fines.
