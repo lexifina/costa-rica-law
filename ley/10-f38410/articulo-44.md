@@ -1,0 +1,2 @@
+Art. 44. -Para tomar parte en la subasta, deberán los licitadores consignar previamente, á la orden del Juez, la décima parte del valor de los bienes, que sirva de tipo para la subasta; sin tal requisito no serán admitidos.
+Se devolverán dichas consignaciones á sus respectivos dueños acto continuo del remate, excepto la que corresponda al mejor postor, la cual se reservará en depósito como garantía del cumplimiento de su obligación, y en su caso, como parte del precio de la venta.

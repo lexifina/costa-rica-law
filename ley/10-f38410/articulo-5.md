@@ -1,0 +1,3 @@
+Art. 5-Cuando la deuda consista en especies que se cuentan, pesan ó miden, ó en efectos de comercio, si el deudor no los entregare en el plazo que el Juez le señale, se reducirán á dinero, y se dictará auto de solvendo por la suma que resulte.
+La reducción de dichas especies ó efectos se hará por el precio corriente que tuvieren en el merca- do del lugar donde deba verificarse la entrega, y en su defecto, en el más próximo, el día del vencimiento de la obligación.
+Si el actor acompañare certificación de dos corredores jurados, en la que constare el precio en metálico de las especies ó efectos, se prescindirá de hacer la reducción dentro del juicio.

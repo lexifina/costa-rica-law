@@ -1,0 +1,1 @@
+Art. 10.-En cualquier tiempo en que presentare el ejecutado ó un tercer opositor, título ejecutivo que destruya la fuerza del que haya servido para despachar la ejecución, se revocará ésta. Mas el desembargo no se efectuará sino cuando sea firme la revocatoria, ó se diere fianza bastante para el caso de no ser confirmada por el superior la resolución.

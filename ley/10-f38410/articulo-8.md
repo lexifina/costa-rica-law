@@ -1,0 +1,2 @@
+Art. 8-Si al constituirse la prenda el deudor hubiere renunciado los trámites de la ejecución, excepto el de la venta judicial, presentada en forma la demanda ejecutiva, se procederá al avalúo y venta de ella, por los trámites señalados en los artículos 39 y siguientes, y aun se prescindirá del avalúo si las partes hubieren de antemano fijado precio para base del remate.
+La venta judicial que se haga será firme, cualesquiera que pudieran ser los derechos del deudor contra el prendario.

@@ -1,0 +1,1 @@
+Art. 29.-Puesto el decreto de embargo, si el actor hubiere determinado en su demanda los bienes inmuebles en que ha de recaer, el Juez lo comunicará por mandamiento al Registrador de la Propiedad, designando al actor, al reo, la inscripción del inmueble y la cantidad porque se ha despachado, y ordenándole siente la nota correspondiente al margen del asiento respectivo.

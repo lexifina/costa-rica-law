@@ -1,0 +1,2 @@
+Art. 81.-Tan sólo se admitirá como tercería excluyente de preferencia, aquella que se interpusiere por acreedor á quien se hallare la cosa embargada afecta, en virtud de un derecho real de garantía, ó á quien, en el momento en que se verificó el embargo, asistiere derecho de retención sobre ella.
+La tercería que hicieren los demás acreedores privilegiados, será únicamente admisible como coadyuvante, sin que esto modifique el derecho que pudieren alegar, caso de que se declare al deudor en estado de concurso.

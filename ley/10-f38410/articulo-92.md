@@ -1,0 +1,3 @@
+Art. 92.-La interposición y tramitación de una tercería, excluyente ó coadyuvante, no suspenderá el curso de la ejecución principal.
+Si la tercería fuere excluyente de dominio, el juicio principal puesto en estado de hacer el remate, se suspenderá hasta la decisión de la tercería. Si sólo alguno de los bienes fueren objeto de la tercería, el juicio principal continuará hasta vender y hacer pago al acreedor con los bienes no comprendidos en la tercería.
+En los demás casos de tercerías, no será pagado el ejecutante mientras no esté resuelta la tercería, salvo lo dicho en el artículo 82, ó que el pago que se hiciera al ejecutante no perjudique los derechos del tercero.

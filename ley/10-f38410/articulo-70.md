@@ -1,0 +1,1 @@
+Art. 70. -En caso de venta del inmueble hipotecado, á que se refiere el artículo 68, serán aplicables las disposiciones de los artículos 59 y siguientes, si sobre el inmueble pesaren otros gravámenes reales.
