@@ -33,8 +33,24 @@ V- AVAL FODEMIPYME: |
 (Condiciones definidas en este Reglamento). | 100%
 TABLA Nº 2
 MONTOS Y PLAZOS MÁXIMOS DE CRÉDITO
-LÍNEA DE CRÉDITO | PLAZO EN MESES | MONTO EN US$
-a) Micro empresarios | 120 | $10,000
-a. Capacitación b. Asistencia Técnica c. Desarrollo Tecnológico d. Transferencia Tecnológica e. Conocimiento f. Investigación g. Desarrollo de Potencial Humano h. Formación Técnica Profesional i. Innovación y Cambio Tecnológico | |
-b) Pequeños y medianos Empresarios | 120 | $50,000
-j. Capacitación k. Asistencia Técnica l. Desarrollo Tecnológico m. Transferencia Tecnológica n. Conocimiento o. Investigación p. Desarrollo de Potencial Humano q. Formación Técnica Profesional a. Innovación y Cambio Tecnológico | |
+Línea de crédito | Plazo en meses | Monto en US$
+Micro, pequeños y medianos empresarios | 120 | $ 50.000
+a. Capacitación | |
+b. Asistencia Técnica | |
+c. Desarrollo Tecnológico | |
+d. Transferencia Tecnológica | |
+e. Conocimiento | |
+f. Investigación | |
+g. Desarrollo de Potencial Humano | |
+h. Formación Técnica Profe-sional | |
+i. Innovación y Cambio Tecnológico | |
+j. Capacitación | |
+k. Asistencia Técnica | |
+l. Desarrollo Tecnológico | |
+m. Transferencia Tecnológica | |
+n. Conocimiento | |
+o. Investigación | |
+p. Desarrollo de Potencial Humano | |
+q. Formación Técnica Profe-sional | |
+a. Innovación y Cambio Tecnológico | |
+(Así reformada parcialmente la Tabla No. 2 de este artículo, mediante la sesión ordinaria de la Junta Directiva NAcional, No. 4271, del 13 de enero del 2005.)

@@ -1,3 +1,3 @@
 Artículo 13.—Tipos de comisión. La comisión por la formalización de los avales o garantías otorgadas por el FODEMIPYME, será de hasta un 5%, del monto de la garantía y se cobrará por una única vez de previo a la formalización y se calcula sobre el monto de la garantía.
-La comisión de administración de las garantías será de hasta un 5%, se cobrará anualmente como un porcentaje del saldo vigente de la garantía, y de acuerdo con los procedimientos establecidos por la Unidad Técnica en cuanto a la forma y el tiempo para efectuar el cobro de la comisión.
-El porcentaje de comisión será fijado por la Junta Directiva, previo informe de la Unidad Técnica.
+La comisión de administración de las garantías o avales será de hasta un 5% anual del saldo de la garantía o aval, y se fraccionará según la periodicidad de pago de las cuotas del crédito. El porcentaje de comisión será fijado por la Junta Directiva, previo informe de la Unidad Técnica.
+(Así reformado parcialmente este artículo, mediante la sesión ordinaria de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, No. 4271 del 13 de enero del 2005.)
