@@ -1,0 +1,1 @@
+Artículo 18.—Si durante la revisión corporal se localiza alguna evidencia u objeto que se presume puede tener relación con algún delito, deberá informarse de inmediato al funcionario a cuya orden se encuentra el detenido, para que se proceda conforme corresponda.

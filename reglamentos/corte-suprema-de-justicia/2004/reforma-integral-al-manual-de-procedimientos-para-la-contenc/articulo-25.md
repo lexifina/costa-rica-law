@@ -1,0 +1,1 @@
+Artículo 25.—El conductor de detenidos debe de abstenerse en todo momento de entablar conversaciones o comunicaciones escritas, con los privados de libertad, así como realizarles la compra de cualquier clase de artículos de consumo.

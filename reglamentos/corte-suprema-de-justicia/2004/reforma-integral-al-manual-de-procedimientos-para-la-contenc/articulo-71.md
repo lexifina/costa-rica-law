@@ -1,0 +1,1 @@
+Artículo 71.—Durante el acto deberán estar presentes los servidores encargados de la custodia, quienes se mantendrán en el habitáculo, procurando que en todo momento se respete el pudor del detenido. Salvo lo establecido en el artículo 61.

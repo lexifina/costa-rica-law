@@ -1,0 +1,1 @@
+Artículo 16.—Durante todo el proceso de revisión se debe respetar el pudor del detenido. Para estos efectos, la revisión de mujeres debe ser realizada por personal femenino, en el caso de los varones por personal masculino, sean conductores de detenidos, chofer encargado del traslado, personal de investigación o funcionarios judiciales autorizados.
