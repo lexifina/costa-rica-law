@@ -1,6 +1,7 @@
-Artículo 15.—Exámenes de laboratorio.
+Artículo 15º—Exámenes de laboratorio.
 Hemograma completo (hemoglobina, hematocrito, leucograma)
-Glicemia, Curva de tolerancia a la glucosa, glicemia dos horas posprandial
+Glicemia, Curva de tolerancia a la glucosa, glicemia dos horas
+posprandial
 Nitrógeno ureico, Creatinina, Orina general, Urocultivo
 U.C.G, Heces, VDRL
 Ácido Úrico
@@ -15,3 +16,6 @@ Perfil lipídico completo
 Hemoglobina glicosilada
 Factor reumatoideo
 Antígeno prostático
+Confirmación por Sífilis (FTAabs)
+Grupo RH
+(Así reformado en sesión N° 7829 de 29 de enero de 2004)

@@ -14,3 +14,4 @@ Reglamento del Sistema Mixto de Atención Intengral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-08 | la propia norma |
+| 2 | 2004-01-29 | Reglamento 7829 (2004-01-29) |
