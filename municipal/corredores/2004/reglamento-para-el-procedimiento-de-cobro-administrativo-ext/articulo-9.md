@@ -1,0 +1,1 @@
+Artículo 9º—En caso de que existiera más de un abogado contratado y con el fin de que haya la mayor equidad, el Departamento de Rentas y Cobranzas hará la distribución según los resultados y eficiencia de los profesionales contratados.

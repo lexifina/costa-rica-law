@@ -1,0 +1,1 @@
+Artículo 35.—El día hábil siguiente al remate el abogado deberá informar por escrito al Departamento de Rentas y Cobranzas el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, el Departamento de Rentas y Cobranzas le enviará una nota solicitando el informe con copia al Concejo Municipal y al Alcalde Municipal para que proceda de conformidad.

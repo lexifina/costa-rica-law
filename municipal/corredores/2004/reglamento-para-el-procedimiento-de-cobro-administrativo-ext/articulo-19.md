@@ -1,0 +1,6 @@
+Artículo 19.—El abogado deberá realizar las siguientes gestiones:
+A) Presentación de la demanda de cobro judicial que contenga las certificaciones correspondientes debidamente firmadas por los funcionarios municipales, en un plazo no mayor de tres días hábiles; en caso de no hacerse en ese plazo, el abogado enviará una carta explicativa a la oficina respectiva, justificando el atraso y solicitando autorización para presentar la demanda posterior a lo reglamentado.
+B) Los abogados están obligados a exigir a los Tribunales de Justicia donde se tramitan los casos, que se le sellen y firmen las copias de todos los escritos que se presenten, de los cuales deberá enviar copia al Departamento de Rentas y Cobranzas.
+C) Realizar estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su dirección y solicitar cuando existe sentencia firme la orden de giro correspondiente. Una vez dictada la sentencia de previo y en el plazo no mayor de quince alías naturales, deberá presentar al tribunal judicial respectivo, la liquidación de costas.
+D) En el escrito inicial de la demanda se señalará para notificaciones la dirección del bufete del abogado de los casos según le corresponda.
+Deberá remitir una copia de todas las notificaciones que reciba a la Oficina de Cobro de la Municipalidad.

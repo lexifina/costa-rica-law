@@ -1,0 +1,1 @@
+Artículo 39.—El Departamento de Rentas, Catastro y Valoración estará a cargo de la Oficina de Cobros mientras se crea el Departamento de Rentas y Cobranzas mediante una reorganización interna. Si a futuro se consolida este u otro departamento a cargo de la Oficina de Cobros, se regirá en todos sus alcances por el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 14.—Es prohibido para los abogados hacer cualquier tipo de arreglo con el deudor o recibir pagos por abono a la deuda. Los honorarios profesionales se incorporarán dentro de las deudas a cobrar a los contribuyentes morosos, lo cual deberán de depositar en la Municipalidad y la misma realizará el pago respectivo.

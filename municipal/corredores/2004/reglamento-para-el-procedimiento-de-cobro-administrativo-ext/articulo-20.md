@@ -1,0 +1,1 @@
+Artículo 20.—Para efectos de determinar si los juicios se encuentran al día, el Departamento de Rentas y Cobranzas revisará, periódicamente con el personal calificado, el número de expedientes y registros que considere necesarios de operaciones entregadas a cada abogado, tomando como base la documentación en su poder y el de cualquier otro departamento relacionado con el cobro.

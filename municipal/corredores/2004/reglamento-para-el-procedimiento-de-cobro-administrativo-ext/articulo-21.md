@@ -1,0 +1,1 @@
+Artículo 21.—Los abogados que por alguna razón personal, quieren dejar de servir a la Institución, deberán comunicar esa decisión con treinta días de antelación al Alcalde Municipal y enviar la totalidad de los expedientes judiciales que ellos manejan a la Alcaldía Municipal con un resumen de la situación de cada uno de ellos.

@@ -1,0 +1,3 @@
+Artículo 5º—Para el cumplimiento de sus objetivos, el Departamento de Rentas y Cobranzas, se encargará de:
+a) Realizar las gestiones de cobro administrativo de las cuentas atrasadas, para lo cual se deberá enviar un aviso de cobro administrativo. Para lo anterior, contarán con el apoyo de los inspectores municipales.
+b) Entregar una vez agotada la gestión de cobro administrativo, la documentación necesaria de las cuentas en estado de morosidad, al abogado contratado o a los abogados designados por el Alcalde Municipal para que procedan a su cobro judicial, mismos que deberán estar facultados legal y administrativamente para ejercer la profesión.

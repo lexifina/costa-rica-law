@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De los remates
+Artículo 33.—A fin de proteger al máximo los intereses de la Municipalidad, se fija el siguiente procedimiento de remate.
+Al inicio de un cobro judicial, el Departamento de Rentas y Cobranzas deberá solicitar a la Oficina de Valoración que se realice el avalúo de los bienes a embargar para lo cual contará con cinco días hábiles posteriores a la solicitud. Esta información servirá de base para que el Departamento de Rentas y Cobranzas pueda resolver en el momento preciso si procede a solicitar la adjudicación de los bienes. Cuando el avalúo de los bienes sobrepasen el monto de la base del remate, la Municipalidad ofrecerá el monto del avalúo, siempre y cuando no sobrepase del total adeudado a la Municipalidad. Cuando el avalúo fuera menor que la base de lo adeudado a la Municipalidad el abogado hará puja en el remate sujetándose a lo que al efecto le indique el Departamento de Rentas y Cobranzas.

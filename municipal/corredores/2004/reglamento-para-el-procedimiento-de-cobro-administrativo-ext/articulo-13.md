@@ -1,0 +1,1 @@
+Artículo 13.—El abogado deberá excusarse de atender la dirección de un juicio cuando tuviera vínculos de parentesco hasta un tercer grado de consanguinidad y/o afinidad, lo cual comunicará por escrito a la oficina correspondiente, dentro de las cuarenta y ocho horas siguientes al recibo de la documentación de cobro.
