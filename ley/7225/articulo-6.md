@@ -1,0 +1,1 @@
+Artículo 6.- En los trámites contemplados en esta Ley, se respetarán las costumbres y tradiciones propias de las culturas indígenas, en el tanto en que no contradigan el ordenamiento jurídico vigente.
