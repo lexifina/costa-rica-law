@@ -1,0 +1,1 @@
+Transitorio I°.-Las disposiciones que actualmente reglamentan las condiciones y formalidades necesarias para optar al título de Licenciado Geómetra quedarán en vigencia y serán las aplicadas por la Facultad Técnica para conferir el de Ingeniero Topógrafo, mientras ésta no dicte en su reglamento interior otras análogas, previa aprobación del Poder Ejecutivo.
