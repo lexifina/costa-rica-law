@@ -15,3 +15,4 @@ Reglamento de Cobro Judicial
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
 | 2 | 1999-05-24 | Reglamento municipal 21 (1999-05-24) |
+| 3 | 2001-07-16 | Reglamento municipal 29 (2001-07-16) |

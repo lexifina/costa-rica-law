@@ -5,5 +5,5 @@ b. Que se encuentre al día en los pagos de servicios o impuestos municipales en
 c. Un sistema de valoración y comparación de las ofertas, con expresa iniciación de los factores a considerar, el grado de incidencia de cada uno de ellos en la calificación total, así como el método para la asignación de los respectivos porcentajes, debiendo señalarse cual es la calificación mínima necesaria para ser contratado.
 d. Que el plazo del contrato será por cinco años, prorrogable a juicio de ]a Municipalidad.
 e. El Concejo Municipal no podrá contratar para la prestación de estos servicios a quienes sean funcionarios municipales. medie o no relación laboral.
-Sin embargo, el Departamento Legal podrá prestar sus servicios de cobro judicial cuando lo consideren oportuno la Administración, atendiendo los casos que le sean enviados por el Departamento de Cobro Administrativo, bajo las mismas condiciones de los abogados externos, solo que no cobrarán honorarios por las gestiones administrativas, porque estas se realizan utilizando recursos municipales.
-(Así reformado el párrafo anterior mediante sesión N° 21 del 24 de mayo de 1999).
+La Administración Municipal podrá en igualdad de condiciones, cuando estime oportuno trasladar al Departamento Legal de la Municipalidad cuentas para cobro judicial, bajo las condiciones de este mismo reglamento y las obligaciones propias del régimen disciplinario de los funcionarios municipales.
+(Así reformado el párrafo anterior mediante sesión N° 29 del 16 de julio del 2001).
