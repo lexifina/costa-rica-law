@@ -1,0 +1,1 @@
+Artículo 3°-El Poder Ejecutivo, cuando lo creyere conveniente á los intereses nacionales, podrá otorgar concesiones especiales para el cultivo, explotación de bosques, vetas, yacimientos, mantos y demás depósitos minerales de las islas.
