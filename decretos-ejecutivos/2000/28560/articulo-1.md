@@ -258,7 +258,7 @@ Código | Descripción | Monto
 31. | Recolecta de materiales para diagnóstico tales como: raspados, |
 | leche, sangre y otros por muestra | 350,00
 32. | Captura de murciélagos en finca captura | 9.000.00
-33. | Venta de redes para captura de murciélagos | 9.000,00
+33. * | Venta de redes para captura de murciélagos | ¢50.000,00
 34. | Venta de block de certificados oficiales a personal particular |
 | autorizado (por block de cincuenta fórmulas) | 4.000.00
 | Venta de vacunas y reactivos de diagnóstico (por dosis): |
@@ -422,6 +422,14 @@ Código | Descripción | Monto
 165. | Toma de muestra de productos y subproductos de |
 | origen animal importados | 1.200,00
 166. | Inspección de reinas para importación y exportación cada 10 reinas) | 1.800,00
+| Otros Servicios |
+167. | Hongos y levaduras en alimentos: | 3.300,00
+168. | Salmonella en alimentos: | 4.000,00
+169. | Lectura por cromatografía de gases con detector de masas: | 33.000,00
+170. | Sta. aureus en alimentos | 3.300,00
+171. | Prueba de diagnóstico por PCR | 6.350,00
+(Así adicionados los códigos de servicios del 167 al 171 por el artículo 2° del decreto ejecutivo N° 29191 del 4 de diciembre de 2000)
+(*Así modificado el código de servicio N° 33 por el artículo 1° del decreto ejecutivo N° 29191 del 4 de diciembre de 2000)
 "Artículo 6°—Cuando se trate de banano, café, cacao y caña de azúcar, las tarifas contempladas en los numerales 4, 6, 8 y 9 del artículo segundo del presente Decreto, se cobrara un veinte por ciento (20%) de la tarifa establecida."
 "Artículo 8°—Las tarifas establecidas para cada uno de los servicios constituye un costo mínimo que se cobrará siempre y cuando el servicio licitado para su verificación o realización no implique por parte del funcionario encargado un desplazamiento mayor de treinta kilómetros contados éstos desde su sede de trabajo ordinaria. Dicho monto se incrementará hasta en un treinta por ciento cuando se exceda el kilometraje anteriormente establecido.
 Aquellos servicios que se brinden en horas inhábiles por causa imputable al solicitante tendrán un recargo de un cincuenta por ciento (50%).
