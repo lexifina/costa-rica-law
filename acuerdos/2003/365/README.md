@@ -14,3 +14,4 @@ Resolución sobre la Conservación del Atún en el Océano Pacífico.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-06 | la propia norma |
+| 2 | 2003-11-21 | Acuerdo 496 (2003-11-21) |
