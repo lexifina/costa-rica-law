@@ -1,0 +1,1 @@
+Artículo 47.— No estarán sujetos a lo dispuesto en el artículo anterior los servidores que han disfrutado de programas de adiestramiento programados por la Comisión de Capacitación y por entes públicos, para los cuales no sean ofrecidas becas al Consejo.
