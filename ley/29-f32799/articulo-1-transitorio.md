@@ -1,3 +1,0 @@
-Transitorio.-El Ministerio Público investigará si en todos y cada uno de los denuncios adjudicados de conformidad con la ley N° 137 de 2 de octubre de 1924 se cumplieron todos los requisitos que la misma ley exige en cuanto a ocupación y cultivos en caso contrario hará las gestiones pertinentes para que los terrenos vuelvan al dominio del Estado y queden disponibles para ser denunciados y adjudicados de nuevo conforme a la presente ley.
-Comuníquese al Poder Ejecutivo
-Dado en el salón de sesiones del Congreso.-Palacio Nacional.- San Jose, a los treinta días del mes de noviembre de mil novecientos treinta y cuatro.
