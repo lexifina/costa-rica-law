@@ -1,2 +1,0 @@
-Artículo 11.—Se prohibe la operación de embarcaciones, que utilicen como arte de pesca, redes de arrastre en las primeras tres millas náuticas de las aguas territoriales del Litoral Pacífico, comprendidas entre Punta Guiones (aprox. 9° 54' O" L.N. y 85° 40’ 0" L.O.). En las nueve millas restantes de las aguas territoriales de esa zona, se permitirá la pesca de arrastre a condición de que sea por el fondo, quedando prohibido lanzar y levantar el arte, en el área señalada.
-(Reformado por el artículo 1° del Decreto Ejecutivo N° 19426, del 21 de setiembre de 1989)

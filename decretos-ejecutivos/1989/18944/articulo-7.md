@@ -1,4 +1,0 @@
-Artículo 7°—La Asociación de Desarrollo Comunal de Ostional, podrá vender el producto únicamente a consumidores directos o a propietarios de establecimientos para ser vendidos exclusivamente en el mercado nacional.
-El producto deberá ser distribuido en empaques donde se identifique la procedencia, cantidad y características del mismo.
-Las personas que se dediquen al trasiego y comercio de huevos de tortuga legítimamente recolectados provenientes de playa Ostional, deberán contar con la autorización de la Dirección General de Recursos Pesqueros y Acuacultura.
-La Asociación de Desarrollo Comunal de Ostional, para la comercialización de los huevos extenderá una factura de venta que deberá ser presentada a las autoridades de policía y a los inspectores de pesca de la Dirección General de Recursos Pesqueros y Acuacultura del Ministerio de Agricultura y Ganadería, cuando éstos lo requieran.
