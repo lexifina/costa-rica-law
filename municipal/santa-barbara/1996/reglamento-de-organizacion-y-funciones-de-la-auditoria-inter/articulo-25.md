@@ -1,0 +1,1 @@
+Articulo 25.-EI texto de los informes de auditoría o estudios especiales constarán de: introducción, comentarios, conclusiones y recomendaciones y se podrán dividir en secciones cuantas veces sea necesario.

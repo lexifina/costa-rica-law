@@ -1,0 +1,1 @@
+Artículo 9°-El auditor interno y subalterno (si lo hubiera), por su independencia, objetividad y confidencialidad de su labor, no deberán ejercer funciones en otras unidades administrativas, ni pueden pertenecer o formar parte de comisiones de trabajo o juntas directivas ni participar en la confección de reglamentos administrativos.

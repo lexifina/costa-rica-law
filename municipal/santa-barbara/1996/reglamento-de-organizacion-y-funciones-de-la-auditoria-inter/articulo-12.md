@@ -1,0 +1,6 @@
+Artículo 12.-La Unidad de Auditoría Interna para el debido cumplimiento de sus objetivos tendrá los siguientes deberes:
+a) Practicar auditorías o estudios especiales en auditoría en cualquier unidad administrativa u operativa de la Municipalidad de Santa Bárbara, en el momento que lo considere oportuno, con base en su plan de auditoría o de acuerdo con las prioridades del caso, cuando medie petición de la autoridad superior o de cualquier miembro del Concejo Municipal.
+b) Comunicar por escrito los resultados de cada auditoría o estudio especial de auditoría que se lleve a cabo, por medio de memorandos o informe. Lo anterior con el propósito de brindar asesoría pertinente para mejorar la eficiencia y eficacia en el sistema de control interno y en la gestión financiera y administrativa de la Municipalidad de Santa Bárbara.
+c) Ejecutar sus funciones con plena libertad e independencia de criterio con respecto de las demás unidades administrativas u operacionales de la Municipalidad de Santa Bárbara.
+d) Preparar un plan de auditoría que contemple la auditoría o estudios especiales, por ejecutar en el período determinado.
+e) Otros deberes que sean de su competencia, asignados por la autoridad superior.

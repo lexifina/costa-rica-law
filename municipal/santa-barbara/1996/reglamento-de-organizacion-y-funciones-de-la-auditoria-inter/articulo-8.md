@@ -1,0 +1,1 @@
+Artículo 8°-La Auditoría Interna contará con la organización y personal necesario (dependiendo de la complejidad de las funciones administrativas y aperturas del gobierno local). El cual deberá poseer suficientes conocimientos y experiencia en contabilidad, auditoría y administración pública y municipal.

@@ -1,0 +1,1 @@
+Artículo 5°-La Municipalidad de Santa Bárbara por medio de la administración deberá establecer y mantener programas de entrenamiento para el funcionario de auditoría con la finalidad de lograr su desarrollo profesional. Esto a través de los programas de capacitación de la Contraloría General de la República y el Instituto de Fomento y Asesoría Municipal.

@@ -1,0 +1,1 @@
+Artículo 18.-EI plan de trabajo de auditoría, así como los estudios especiales se planearon por el ejercicio de un año calendario y se tratará de cubrir los aspectos importantes y de la mayor complejidad dentro de las operaciones que atañen a la Municipalidad.

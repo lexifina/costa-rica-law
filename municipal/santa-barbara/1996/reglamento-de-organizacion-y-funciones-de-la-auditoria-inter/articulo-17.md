@@ -1,0 +1,1 @@
+Artículo 17.-La información que un auditor interno obtenga en el ejercicio de sus funciones será estrictamente confidencial, dicha confidencialidad no se aplica a los requerimientos de la Contraloría en el ejercicio de su competencia fiscalizadora, ni a la máxima autoridad de la Municipalidad (Concejo Municipal).

@@ -1,0 +1,1 @@
+Artículo 16.-EI auditor interno mantendrá actualizado en su uso los manuales de procedimientos de Auditoría Interna, para que sirva como instrumento que defina las características y procedimientos de la auditoría.

@@ -1,0 +1,1 @@
+Artículo 19.-La unidad de Auditoría Interna para sustentar sus memorandos, informes, estudios especiales como: recurrir a medio observación, inspección, indagaciones, entrevistas, confirmaciones o cualquier otro medio que apoye la gestión.
