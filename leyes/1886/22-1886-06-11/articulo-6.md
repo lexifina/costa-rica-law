@@ -1,0 +1,1 @@
+Art. 6°-La cancelación de la hipoteca se hará en el Registro sin más requisito que la presentación del acta original ó certificación del gravamen, con razón de estar éste cancelado. Esta razón debe ser autorizada con la firma y sello del Inspector General de Enseñanza.

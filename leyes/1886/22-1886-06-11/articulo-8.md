@@ -1,0 +1,2 @@
+Art. 8°-La constitución y cancelación de las hipotecas objeto de este decreto, no causarán el derecho nacional de timbre.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez días del mes de junio de mil ochocientos ochenta y seis.-A. ESQUIVEL, Presidente.-MÁXIMO FERNÁNDEZ, Secretario.-A. SANTOS, Prosecretario.-Palacio Presidencial.-San José, once de junio de mil ochocientos ochenta y seis. -Ejecútese.-BERNARDO SOTO. -El Secretario de Estado en el despacho de Instrucción Pública,-MAURO FERNÁNDEZ.

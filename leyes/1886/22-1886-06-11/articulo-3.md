@@ -1,0 +1,1 @@
+Art. 3°:-El Juez de 1a instancia ó Alcalde se negarán á autenticar las firmas del acta si en ella se escribieren las cantidades ó números en cifras y no en letras, y si contuviere raspaduras, entrerrenglonaduras ó enmiendas no hechas por advertencia conforme á las leyes vigentes sobre cartulación.-La autenticación no origina derecho alguno.
