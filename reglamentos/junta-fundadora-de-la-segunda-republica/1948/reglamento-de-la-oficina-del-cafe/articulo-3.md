@@ -1,0 +1,1 @@
+Articulo 3°-EI Secretario de la Junta tendrá a su cargo la redacción de las actas, de las resoluciones y de la correspondencia y el desempeño de todas las demás funciones que lleguen a atribuírsele, lo mismo que el cumplimiento de las misiones que la Junta juzgue prudente encargarle. Firmará además con el Presidente las actas respectivas.

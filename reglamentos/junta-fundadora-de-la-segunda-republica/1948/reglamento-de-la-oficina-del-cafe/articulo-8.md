@@ -1,0 +1,2 @@
+Artículo 8°-Con el fin de facilitar el estudio y resolución de los diferentes asuntos relacionados con la industria del café, la Junta elegirá de su seno tres comisiones:
+La Comisión Técnica constará de tres miembros; la Comisión Comercial la integrarán cinco miembros, debiendo ser uno de cada grupo de los que forman la Junta ; la Comisión de Liquidaciones estará formada por dos miembros, debiendo ser los Representantes Propietarios, de los beneficiadores y de los productores, y en ausencia de éstos, por los Suplentes respectivos.
