@@ -1,14 +1,14 @@
 TITULO V
-DEFINICION DE METODOLOGIAS
-TASA BASICA PASIVA
+Definición de metodologías
+(*)I. TASA BÁSICA PASIVA
 Definición
-La tasa de interés básica pasiva se calculará como un promedio ponderado de las tasas de interés que rijan en los bancos comerciales del Sistema Bancario Nacional (excluidos los Departamentos Hipotecarios) y en las empresas financieras no bancarias, para las operaciones pasivas en moneda nacional a seis meses plazo, y de las que reconozcan el Ministerio de Hacienda y el Banco Central de Costa Rica por los títulos que coloquen en moneda nacional a ese mismo plazo.
-Cálculo
-1. La tasa básica pasiva se calculará el día miércoles de cada semana.
-2. Se emplearán como ponderadores los saldos disponibles de captación a seis meses plazo de cada una de las entidades incluidas en el cálculo.
+La tasa de interés básica pasiva se calculará como un promedio ponderado de las tasas de interés que rijan en los Bancos Comerciales del Sistema Bancario Nacional (excluidos los Departamentos Hipotecarios) y en las empresas financieras no bancarias, para las operaciones pasivas en moneda nacional a seis meses plazo y de las que se reconozcan en la subasta conjunta del Banco Central y el Ministerio de Hacienda al plazo de 168 días.
+B. Cálculo
+1. La tasa básica pasiva se calculará el día miércoles de cada semana. Se tomarán en cuenta para el cálculo, las tasas de interés vigentes ese día y el miércoles de la semana anterior.
+2. Se emplearán como ponderadores los saldos disponibles de captación a seis meses plazo de cada una de las entidades incluidas en el cálculo. En el caso del Banco Central y el Ministerio de Hacienda, se considerará el saldo de captación conjunto.
 3. La tasa de interés del Banco Popular y de Desarrollo Comunal deberá ajustarse por el porcentaje correspondiente al Impuesto sobre la Renta, a fin de hacerla consistente con las tasas reportadas por los restantes emisores.
-4. La tasa resultante se deberá redondear al cuarto de punto porcentual más cercano.
-(Así reformado el inciso anterior en sesión N° 4904 del 22 de enero de 1997)
+4. La tasa resultante se redondeará al cuarto de punto porcentual más cercano.
+(*)(Así reformado el numeral I anterior en sesión N° 4909 del 9 de abril de 1997)
 II.- TASA DE INTERES DE LOS CREDITOS DE
 REDESCUENTO
 A. Definición

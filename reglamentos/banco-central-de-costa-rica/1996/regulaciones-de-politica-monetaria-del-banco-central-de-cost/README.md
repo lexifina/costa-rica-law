@@ -19,3 +19,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 4 | 1996-11-05 | Reglamento 4896 (1996-11-05) |
 | 5 | 1997-01-22 | Acuerdo 4904 (1997-01-22) |
 | 6 | 1997-04-02 | Reglamento 4908 (1997-04-02) |
+| 7 | 1997-04-09 | Reglamento 4909 (1997-04-09) |
