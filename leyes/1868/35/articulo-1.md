@@ -1,0 +1,5 @@
+DECRETO XXXV
+Facultad al Poder Ejecutivo para invertir del Tesoro Público hasta la cantidad de $ 15,000 en los gastos que ocasione una Legación cerca de los Gobiernos de Europa y Estados Unidos.
+El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso, Decretan: Artículo único. – Se faculta al Poder Ejecutivo para que pueda oportunamente invertir del Tesoro Público hasta la cantidad de quince mil pesos para los gastos que ocasione la traslación, instalación y residencia temporal de un Ministro de la República, de segundo o tercer orden, con su Secretario, cerca del Gobierno de los Estados Unidos de Norte América, y en cualquiera de las Cortes de Europa a que sea conveniente destinarle. – La Cámara de Representantes.
+Dado en el Salón de Sesiones, Palacio Nacional, San José a dieciocho de agosto de mil ochocientos sesenta y ocho.
+Al Poder Ejecutivo, Sala de la Cámara de Representantes, Palacio Nacional, San José a veintiún días de agosto de mil ochocientos sesenta y ocho.
