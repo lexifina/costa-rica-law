@@ -14,3 +14,4 @@ De Interés Cultural Encuentro de Culturas Indígenas Costarricenses
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-12 | la propia norma |
+| 2 | 1999-10-12 | Ley 7 |
