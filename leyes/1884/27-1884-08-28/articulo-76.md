@@ -1,0 +1,1 @@
+Art. 76.-Si la inscripción de la hipoteca, por motivos que en nada afectan la validez de las escrituras, no pudiere verificarse oportunamente, ni hubiere lugar á purgar la hipoteca, queda á cargo del propietario dar los pasos necesarios para remover aquellos obstáculos dentro de un tiempo equitativo, que se fijará por el director-administrador.

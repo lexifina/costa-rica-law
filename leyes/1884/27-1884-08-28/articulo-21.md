@@ -1,0 +1,1 @@
+Art. 21.-Cada administrador debe ser propietario de cien acciones, que son inalienables mientras duran sus funciones: esas acciones garantizan, conforme á la ley, la gestión del administrador, y permanecen depositadas en la caja social.

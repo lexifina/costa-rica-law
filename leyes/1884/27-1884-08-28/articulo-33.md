@@ -1,0 +1,1 @@
+Art. 33.-El director-administrador recibirá de la sociedad, durante todo el tiempo de su administración, y aun en caso de ser reelecto, una dotación fija de seis mil pesos ($ 6,000) anuales, pagaderos por mensualidades de quinientos pesos ($500), y recibirá además el cuatro por ciento sobre las utilidades líquidas.

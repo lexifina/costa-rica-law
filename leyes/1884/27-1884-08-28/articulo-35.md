@@ -1,0 +1,1 @@
+Art. 35.-El director-administrador de Costa- Rica, mandará cada mes al consejo de administración en París, un estado de las operaciones hechas durante el mes anterior, y dará conocimiento de las que estén en perspectiva en el mes corriente.

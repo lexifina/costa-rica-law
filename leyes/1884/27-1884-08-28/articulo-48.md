@@ -1,0 +1,1 @@
+Art. 48.-Todo accionista puede tomar conocimiento en la oficina de la sociedad en París, hasta quince días antes de la reunión de la asamblea, cuan do más tarde, del inventario У de la lista de accionistas, y hacerse entregar copia del balance y del in- forme de los comisarios.

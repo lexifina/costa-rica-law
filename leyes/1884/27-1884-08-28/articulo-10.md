@@ -1,0 +1,1 @@
+Art. 10.-Toda cantidad procedente del valor de acciones, cuyo entero se haya retardado, produce interés de pleno derecho en favor de la sociedad, desde el día en que la entrega fué exigida: ese interés será de seis por ciento anual.

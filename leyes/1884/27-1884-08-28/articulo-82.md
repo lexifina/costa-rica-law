@@ -1,0 +1,1 @@
+Art. 82.-Las obligaciones hipotecarias llevan el sello de la sociedad, y están representadas por títulos sacados de un libro de tronco, firmadas por el director-administrador y por un miembro de la junta consultiva en Costa-Rica.

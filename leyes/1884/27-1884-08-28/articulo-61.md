@@ -1,0 +1,1 @@
+Art. 61.-La anualidad debe pagarse en dinero contante y comprende: el rédito y la amortización determinada por el tipo del interés la duración del préstamo, los gastos de administración, que no excederán del medio por ciento anual sobre la suma prestada, y un impuesto para primas.

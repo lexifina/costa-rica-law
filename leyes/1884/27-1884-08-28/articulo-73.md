@@ -1,0 +1,1 @@
+Art. 73.-El director-administrador en Costa- Rica, oyendo el parecer de la junta consultiva, determinará la proporción de las sumas que pueden otorgarse, conforme al valor y naturaleza de los inmuebles que se ofrezcan en garantía.

@@ -1,0 +1,2 @@
+Art. 84.-El director-administrador en Costa-Rica señalará un premio pagadero al momento del reembolso, á cierto número de obligaciones hipotecarias destinadas á la amortización, y determinará el monto la repartición de estas ganancias.
+Salvo lo dispuesto en el artículo 11 del contrato, el Banco debe pagar la prima que la suerte haya designado para una obligación hipotecaria, al portador de la misma.

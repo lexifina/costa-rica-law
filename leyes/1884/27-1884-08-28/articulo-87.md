@@ -1,0 +1,2 @@
+Art. 87.-Las obligaciones designadas de esta manera por la suerte, serán presentadas en la oficina del Banco para el reembolso, el día que se señale en la misma publicación; y desde entonces cesan los intereses correspondientes á las obligaciones que fueren designadas.
+El pago de intereses ó cupones de habla el que artículo 81, lo mismo que el de las obligaciones que por el sorteo hayan resultado destinadas á amortización, y el de las primas señaladas, puede ser reclamado ya en la sucursal de Costa-Rica, ó ya ante el consejo de administración en París.

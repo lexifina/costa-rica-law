@@ -1,0 +1,5 @@
+Art. 94.-A la expiración de la sociedad, ó en caso de disolución anticipada, la asamblea general á propuesta del consejo de administración, regula la liquidación, y nombra, si lo estima oportuno, liquidadores, con facultad de vender judicial ó extrajudicialmente, los bienes muebles é inmuebles de la sociedad: dos de los liquidadores por lo menos serán nombrados entre los miembros del consejo de administración en ejercicio, al tiempo de la disolución.
+Los liquidadores delegarán sus poderes al director-administrador en Costa-Rica para que se lleve á efecto la liquidación de los negocios de la sucursal
+Todos los valores que provengan de la liquidación, serán dedicados á la extinción de pasivos, antes de toda repartición entre los accionistas.
+Los liquidadores podrán, en virtud de deliberación de la asamblea general, traspasar á otra sociedad, los derechos, acciones y obligaciones de la sociedad disuelta.
+Los poderes de la asamblea general continúan durante la liquidación: ella aprobará las cuentas de la liquidación y dará finiquitos. El nombramiento de liquidadores pone fin á los poderes de los miembros del consejo de administración.

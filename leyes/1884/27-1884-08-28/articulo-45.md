@@ -1,0 +1,2 @@
+Art. 45.-La convocatoria á asamblea general ordinaria y extraordinaria se hace saber por aviso publicado con dos meses de anticipación en el Diario oficial de Francia. Este plazo puede ser reducido á treinta días en el caso de segunda convocatoria.
+La reunión tendrá lugar en París en el lugar designado en la convocatoria. Cuando la asamblea general tiene en mira deliberar acerca de los objetos mencionados en el artículo 46, la convocatoria debe hacer mención de esa circunstancia.

@@ -1,0 +1,1 @@
+Art. 51.-En todas las asambleas generales, las decisiones se toman por mayoría de los votos que concurran en los miembros presentes ó representados. Cada accionista tiene un voto por cada veinte acciones; sin embargo, ninguno puede tener más de veinte votos, ya sea por sí mismo ya en representación

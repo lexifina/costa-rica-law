@@ -1,0 +1,2 @@
+Art. 93.-En caso de pérdida de la mitad del capital social emitido, el consejo de administración podrá proponer la disolución y liquidación de la sociedad en una asamblea general extraordinaria: en caso de pérdida de las tres cuartas partes, es obligatoria la convocación de la asamblea general para que resuelva si se ha de efectuar ó no la disolución de la sociedad.
+Si los administradores no convocaren la asamblea general, ó si ésta no se hubiere podido constituir regularmente, todo interesado puede pedir ante los tribunales la disolución de la sociedad.
