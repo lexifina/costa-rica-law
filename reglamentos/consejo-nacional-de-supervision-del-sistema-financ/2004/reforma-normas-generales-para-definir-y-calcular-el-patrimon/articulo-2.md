@@ -1,0 +1,1 @@
+Prescindir, por razones de oportunidad y en vista de que la modificación opera en beneficio de las entidades financieras, del trámite de consulta a que se refiere el párrafo 2 del Artículo 361 de la Ley General de la Administración Pública.
