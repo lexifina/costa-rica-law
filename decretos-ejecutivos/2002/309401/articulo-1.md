@@ -12,3 +12,4 @@ Considerando:
 DECRETAN:
 Artículo 1º—Refórmese el inciso 3) del artículo 1º del Acuerdo N° 2545-MSP de 12 de junio del 2002 publicado en La Gaceta N° 131 de 9 de julio del 2002, para que donde dice: “del 12 de junio al 12 de diciembre del 2002” en su lugar se lea: “del 12 de junio del 2002 y hasta el 12 de marzo del 2003”.
 (El Decreto Ejecutivo 31107 de 6 de marzo del 2003 hace una reforma expresa a este decreto en cuanto al rige del acuerdo N° 2545. No obstante al ser ésta norma, una reforma al Acuerdo mencionado, se hizo la reforma tácita en el texto de dicho acuerdo).
+(El Decreto Ejecutivo 31370 del 11 de setiembre de 2003, publicada en La Gaceta N° 184 de 25 de setiembre de 2003, realiza una REFORMA PARCIAL y EXPRESAMENTE al Decreto Ejecutivo N° 31170 este Decreto es una reforma al Acuerdo N° 2545. No obstante al ser ésta norma, una reforma al Acuerdo mencionado, se hizo la reforma tácita en el texto de dicho acuerdo).
