@@ -1,0 +1,1 @@
+Cláusula segunda: A partir de la ejecución de esta cancelación parcial de pérdidas cuasifiscales, el Banco Central de Costa Rica ajustará en lo que corresponda la programación de sus operaciones de mercado abierto, a fin de incorporar los efectos de esta cancelación parcial de pérdidas.
