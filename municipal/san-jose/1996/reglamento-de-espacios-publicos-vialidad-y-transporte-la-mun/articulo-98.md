@@ -1,0 +1,8 @@
+Artículo 98.—REQUISITOS PARA SOLICITUD DE LICENCIA. Toda solicitud de licencia y renovación se resolverá por el Departamento de Patentes de la Municipalidad, previo visto bueno del Departamento de Control Urbano de la misma. Se presentarán los siguientes documentos:
+a- Para los rótulos de todo tipo: formulario de solicitud lleno (se retira en el Depto. de Patentes).
+b- Plano constructivo de rótulo a colocarse, a escala y con indicación de la estructura de soporte o anclaje, además indicando materiales y sistemas de iluminación, si lo incluyere.
+c- Para rótulos adosados a la fachada y que formen parte de esta: se adjunta a los puntos a) y b) un levantamiento de la fachada con medidas, a escala, con la ubicación exacta y croquis del mensaje (original y 2 copias). En caso de las Zonas de Control Especial, indicadas en el mapa de zonificación de Uso del Suelo, este plano debe llevar la firma del profesional responsable.
+d- Para los rótulos independientes: se adjunta a los punto a) y b) dos copias del plano catastrado del lote en cuestión, con la ubicación de las edificaciones y del rótulo, con medidas respecto a la vía publica y al edificio colindante. Este incluirá el alineamiento trazado por la DDU.
+e- Para los rótulos luminosos e intermitentes: se adjunta a lo anterior, especificaciones técnicas y diseño eléctrico.
+f- Para los rótulos que emplean las estructuras complejas: el plano constructivo de la estructura de anclaje y de soporte con la firma de un profesional responsable.
+g- En las vías de la RED NACIONAL es de competencia municipal concesión de permisos de instalación de mensajes publicitarios con el V B" previo del MOPT en relación al diseño y demás requisitos, técnicos en materia de tránsito.

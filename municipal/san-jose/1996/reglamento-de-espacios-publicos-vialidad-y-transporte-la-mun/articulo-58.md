@@ -1,0 +1,1 @@
+Artículo 58.—UBICACIÓN ESPACIAL. Las terminales se ubicarán en las áreas identificadas en el mapa. Los terrenos específicos y su ubicación serán analizados por la Municipalidad y el MOPT en su momento. Como primera etapa estas terminales se ubicarán aproximadamente en el espacio vial existente en los alrededores de estas áreas.

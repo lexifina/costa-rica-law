@@ -1,0 +1,1 @@
+Artículo 86.—En las vías publicas se instalarán recipientes para el depósito de basuras, los cuales deberán ser utilizados adecuadamente por los usuarios. Le corresponde a la Sección de Aseo de Vías mantenerlas limpias.

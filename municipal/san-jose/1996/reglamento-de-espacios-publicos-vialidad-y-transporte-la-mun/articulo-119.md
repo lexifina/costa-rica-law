@@ -1,0 +1,1 @@
+Artículo 119— SERVICIO DE TAXI PUBLICO. Se definirán y le demarcarán los sitios para paradas de taxis. Estos serían los únicos lugares donde el taxista estará autorizado para realizar el abordaje o desabordaje de pasajeros, y los únicos donde el usuario esperará la unidad. No se permitirán estacionamiento sobre conectores principales.

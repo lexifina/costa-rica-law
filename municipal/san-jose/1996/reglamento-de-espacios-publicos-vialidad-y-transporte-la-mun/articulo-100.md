@@ -1,0 +1,2 @@
+Artículo 100.—PROPORCIÓN DE LA LEYENDA DEL ROTULO: En las Zonas de Control Especial se favorecerá el rótulo de funcionamiento. En caso de ser rótulo mixto, el mismo no podrá incluir más de 1/3 del área total para publicidad patrocinante: quedando 2/3 de la misma para rotulo de funcionamiento.
+En el resto del territorio del cantón la proporción será libre pura d área máxima permitida según artículo 101.

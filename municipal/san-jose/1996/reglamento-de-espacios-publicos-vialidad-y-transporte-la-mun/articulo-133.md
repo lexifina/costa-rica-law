@@ -1,0 +1,1 @@
+Artículo 133.—Exclusividad. La Municipalidad de San José podrá conceder el permiso de extensión a la vía pública en Boulevar Avenida Central solamente a locales comerciales de expendio de comidas, con el único con de colocar mesas y sillas para el disfrute de este servicio. Se prohibe en estos casos el consumo de bebidas alcohólicas en el arca pública asignada.

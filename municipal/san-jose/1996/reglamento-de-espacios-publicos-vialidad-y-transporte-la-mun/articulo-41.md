@@ -1,0 +1,1 @@
+Articulo 41.—En la zona del Centro Actual, la línea de construcción se ubicará a distancia de 7 metros a partir del centro de la calzada. Se exceptúan las vías de la trama urbana principal, identificadas en el Mapa de Espacios Públicos, Vialidad y Transporte.

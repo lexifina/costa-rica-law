@@ -1,0 +1,1 @@
+Articulo 12.—CARRILES Y ACERAS. Tendrán cuatro carriles de tres metros con cincuenta centímetros cada uno. cuando la vía mida veinticuatro metros y seis carriles del mismo ancho cuando la vía tenga un derecho de treinta metros. Las aceras tendrán 3m de ancho como mínimo. quedando el resto del derecho de vía como zona verde.

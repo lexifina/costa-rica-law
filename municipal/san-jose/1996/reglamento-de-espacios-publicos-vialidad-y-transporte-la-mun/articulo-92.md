@@ -1,0 +1,1 @@
+Articulo 92.—En los eventos multitudinarios públicos, conciertos, otros, carnaval, los organizadores deberán coordinar con la Dirección de Saneamiento, con el fin de instalar recipientes para la recolección de desechos posteriormente al evento. Estos recipientes irán debidamente rotulados con el fin de hacer una separación de productos para reciclar.

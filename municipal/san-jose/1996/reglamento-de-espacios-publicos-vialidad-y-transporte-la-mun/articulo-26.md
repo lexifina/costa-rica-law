@@ -1,0 +1,1 @@
+Artículo 26—DERECHO DE VÍA Y RETIRO Tendrán un derecho de vil que oscilará entre los siete metros, y catorce metros de ancho. (7 mts y 14 mts). En estas vías regirá lo estipulado para estos efectos lo indicado en el Reglamento para el Control Nacional de Fraccionamiento y de Urbanizaciones.

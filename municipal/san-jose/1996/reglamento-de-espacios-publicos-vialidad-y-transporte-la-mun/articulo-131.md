@@ -1,0 +1,1 @@
+Articulo 131.—Eventos culturales. Los eventos culturales se regularan, según sea el tipo de actividad, prohibiéndose aquellas, que introduzcan el tránsito de animales y vehículos, que puedan provocar daños materiales y físicos al espacio urbano. Quedando sujeto el mismo a juicio de la Municipalidad.

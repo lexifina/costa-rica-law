@@ -1,0 +1,3 @@
+Artículo 84.—Limpieza de las Vías Publicas. Queda terminantemente prohibido en las vías publicas, ríos., cauces, acequias. botar basuras, escurrir, vaciar líquidos, aguas servidas, aceites, papeles u objetos de construcción, arena, piedra y tierra, residuos de limpieza, del interior de cualquier edificio. pulidos de pared o de acabados de pintura, ejercer actividades de reparación mecánica de autos (solo en emergencia).
+No se permite depositar basuras en lotes baldíos, privados o públicos.
+Debe recolectarse y depositarse en bolsas o recipientes, el producto no debe sobrepasar la capacidad de los recipientes, indicados en este reglamento.

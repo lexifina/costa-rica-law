@@ -1,0 +1,3 @@
+Articulo 129—Lugares de carga y descarga. Para labores de carga y descarga de suministros los diferentes comercios, afectados por la prohibición de transito se destinará una área. ubicada en las vías perpendiculares, que intersecan el Boulevar (calle 6 a calle 5), restringiéndose a esa zona dicha actividad. Estas áreas se ubicaran al lado derecho de la vía y deberán respetar el horario, establecerse en coordinación de la Municipalidad de San José y el MOPT.
+El transporte de mercadería hasta el comercio se permitirá únicamente con carretillos o similares, que no deterioren el color y la textura del acabado de piso.
+(El articulo debe coordinarse coa la Cámara de Comercio Metropolitana).

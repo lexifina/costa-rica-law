@@ -1,0 +1,1 @@
+Artículo 77.—CANOAS Y BAJANTES. No sé permitirá caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto los bajantes pluviales desde lechos, balcones, voladizos y cualquier otro saliente. (Art. 111.17 del Reglamento de Construcciones del INVU).

@@ -1,0 +1,12 @@
+Artículo 101.—ÁREAS MÁXIMAS DE RÓTULOS: El área máxima de rótulos, permitidos por local comercial o predio se calculará, según el sitio y donde este ubicado: según los siguientes parámetros:
+El área máxima permitida de rótulos por predio se calculara, multiplicando la altura máxima del rótulo permitido en la precinta o marquesina, para cada zona, por el ancho de la fachada con frente colindante con vía pública.
+La altura máxima del rótulo en la precinta será de acuerdo al Mapa de Zonificación de Uso del Suelo y su Reglamento a definirse como sigue:
+a) En los Centros de Barrios y en los establecimientos comerciales, llamados Usos Complementarios, de las Zonas Residenciales: 0, 62 m.
+b) En las Zonas de Control Especial y en las zonas mixtas comercio residencial 0.92 m.
+c) En el resto de los Centros y Corredores Comerciales y las zonas mixtas cmercio-industria y Zonas Industriales 1.20 m.
+Esta área máxima permitida de rótulos por predio se ubicará preferiblemente adosada a la precinta, toldo, marquesina, o alero, permitiéndose distribuir la misma entre las demás categorías de rótulos.
+Con las siguientes excepciones:
+Se permitirán rótulos independientes (categoría III) con un área igual a un tercio (1/3) del área permitida según los incisos anteriores (esta área se refiere a una sola cara de la estructura en cuestión 1. Únicamente se permitirán rótulos independientes en propiedades con frente a vía publica: con un ancho no inferior a los 10 m y no más de un rótulo por cada 20 metros de frente de una propiedad.
+El área del rótulo se calculará según los siguientes criterios:
+Se calculará por cada uno de sus lados n curas. El área no incluirá las estructuras de fijación o cubiertas de estas, siempre y cuando las mismas no tengan textos. En caso de rótulos, formados por uno o dos gabinetes independientes, se sumará el área de cada ' uno fíe ellos o cada cara de rótulos tridimensionales. Para determinar el área de rótulos con figuras irregulares o, compuestos por letras individuales, podrán usarse dos criterios: a) Una figura geométrica rectilínea alrededor del rotulo conformará el área de rótulo, b) Se medirá el área dentro del perímetro de cada figura o letra, sumando cada una de sus áreas: esto cuando la separación entre figuras es igual o mayor al ancho de las mismas.
+En cualquier caso. el área máxima de un rótulo, sea independiente o adosado a la fachada, no sobrepasará los 10 m2. exceptuando los rótulos paralelos sobre marquesinas. Se podrá cubrir el área máxima permitida con varios rótulos.

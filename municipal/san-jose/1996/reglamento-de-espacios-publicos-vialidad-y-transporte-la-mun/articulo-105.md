@@ -1,0 +1,1 @@
+Artículo 105.—ROTULOS EN TOLDOS. En aquellos locales en que se permita la instalación de toldos, proyectados sobre área pública o convocando a la misma, se restringirá el área. cubierta con el mensaje publicitario, a un 50% del área del mismo.

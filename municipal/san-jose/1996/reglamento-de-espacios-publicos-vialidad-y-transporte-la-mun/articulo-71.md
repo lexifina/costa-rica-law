@@ -1,0 +1,1 @@
+Articulo 71—BARRERAS DE SEGURIDAD. Para la instalación los postes u otros obstáculos para impedir la entrada de vehículos a la acera o a los parques y jardines, se solicita el permiso de la Dirección de Desarrollo Urbano de la Municipalidad. En este caso debe preverse un paso a través del obstáculo de 1.0 m mínimo para las sillas de ruedas.
