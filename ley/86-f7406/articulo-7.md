@@ -1,0 +1,1 @@
+Art. 7. El Ministro de relaciones es encargado de la ejecucion de este decreto, y al efecto lo hará imprimir, circular y publicar como adicional al de 29 de setiembre de 1845, -Dado en la ciudad de San José à los siete dias del mes de agosto de mil ochocientos cuarenta y seis.-José Maria Alfaro. -Al Ministro de relaciones y gobernacion."
