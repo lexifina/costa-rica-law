@@ -1,0 +1,2 @@
+Artículo 49.—Convenio con la CCSS. De acuerdo con el artículo 14 de la Ley Nº 7765, el ICCC y la Caja Costarricense del Seguro Social, podrán suscribir convenios que incluyan, la venta de servicios médicos por parte del ICCC al ente encargado de la seguridad social.
+Dicho convenio se mantendrá en el caso que la administración de los servicios médicos fueren dados en concesión, como lo establece el párrafo segundo del artículo 14 de la Ley Nº 7765.

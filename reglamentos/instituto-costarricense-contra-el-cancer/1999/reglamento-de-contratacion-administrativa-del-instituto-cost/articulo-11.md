@@ -1,0 +1,2 @@
+Artículo 11.—Comunicación por medios electrónicos. El ICCC podrá comunicar los actos de procedimiento, por medios electrónicos, cuando para ello sea posible, establecer con precisión la identificación del emisor y receptor, así como la hora fecha y contenido del mensaje.
+Para tales efectos, la Administración podrá requerir de los oferentes la indicación de direcciones y casillas electrónicas, así como de facsímiles u otros medios telemáticos que estime conveniente.

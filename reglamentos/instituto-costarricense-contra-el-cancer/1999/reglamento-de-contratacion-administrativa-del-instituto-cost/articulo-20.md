@@ -1,0 +1,3 @@
+Artículo 20.—Forma de la oferta. La oferta se presentará por escrito, en sobre cerrado, con una clara identificación del concurso, ya sea en forma personal, por correo o por medios electrónicos, cuando así lo autorice el cartel.
+La oferta deberá ser confeccionada en idioma español, salvo el caso de anexos y literatura técnica, pudiendo solicitarse para este caso, una traducción libre por parte del oferente.
+Será de uso obligatorio el Sistema de Internacional de Unidades, para el caso de medidas y unidades. La inobservancia a esta obligación, podrá ser subsanada a por prevención del ICCC, dentro de los cinco días hábiles, posteriores a la apertura de la oferta.

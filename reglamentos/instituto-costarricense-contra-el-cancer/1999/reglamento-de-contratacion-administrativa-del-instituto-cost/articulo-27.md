@@ -1,0 +1,1 @@
+Artículo 27.—Representación. Un oferente podrá concurrir a través de un representante de casas extranjeras, o cualquier otra forma de representación reconocida en el derecho común, según lo dispuesto en el artículo 54 del RGCA.

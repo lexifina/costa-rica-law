@@ -1,0 +1,2 @@
+Artículo 51.—Impuestos. Se establece una exoneración de mercancías, bienes y servicios necesarios para la construcción, el mantenimiento y la ampliación de las instalaciones, a favor de la organización sin fines de lucro que resulte como concesionaria, en relación con los servicios concesionados por el Instituto, según lo dispone el artículo 30 de la Ley Nº 7765.
+Corresponderá al interesado, hacer una correcta interpretación de los alcances jurídicos y tributarios de lo expresado en el párrafo anterior.

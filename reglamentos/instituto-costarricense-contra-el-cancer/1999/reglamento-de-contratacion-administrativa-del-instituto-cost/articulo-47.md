@@ -1,0 +1,2 @@
+Artículo 47.—Del concesionario. El concesionario podrá ser cualquier persona física o jurídica, que cumpla con los requisitos establecidos en el ordenamiento jurídico, y el cartel de licitación correspondiente.
+Sin embargo, para el caso de la concesión de la administración de los servicios hospitalarios, el concesionario deberá ser, necesariamente, una organización sin fines de lucro como fundaciones y asociaciones, en observancia de lo dispuesto por el artículo 24 de la Ley Nº 7765.

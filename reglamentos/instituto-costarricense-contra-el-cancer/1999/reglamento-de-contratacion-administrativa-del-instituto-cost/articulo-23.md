@@ -1,0 +1,2 @@
+Artículo 23.—Ofertas en consorcio. Dos o más personas físicas o jurídicas, pueden unir antecedentes y experiencia, por medio de la presentación de una oferta bajo la modalidad de consorcio o "joint venture"; participando de forma solidaria en las obligaciones y derechos de la oferta y posterior contrato, sin que ello implique la creación de una nueva persona jurídica.
+En este caso, la oferta deberá acompañar una copia del acuerdo consorcial, todo de conformidad con lo establecido en los artículos 38 de la LCA y 41.2 y 41.3 del RGCA.

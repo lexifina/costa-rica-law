@@ -1,0 +1,1 @@
+Artículo 32.—Variación del procedimiento. En el supuesto que en una licitación o remate, no hubiere oferentes, o hubieren formulado ofertas en contravención del cartel o en términos inaceptables para el ICCC, el Instituto podrá variar el procedimiento de conformidad con las reglas establecidas en el artículo 30 del RGCA.

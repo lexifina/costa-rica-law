@@ -1,0 +1,1 @@
+Artículo 48.—Del usuario. Los usuarios de los servicios dados en concesión, serán los personas que padecen de la enfermedad del cáncer, y que ubicarán dentro de tres categorías: asegurados, indigentes y pacientes privados.

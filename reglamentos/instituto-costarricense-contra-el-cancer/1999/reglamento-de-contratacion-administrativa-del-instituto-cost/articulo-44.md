@@ -1,0 +1,1 @@
+Artículo 44.—Régimen Jurídico. Para el caso de concesiones tramitadas con base en la Ley Nº 7762, el ICCC estará sujeto a las disposiciones especiales y limitaciones que imponga la Ley de Creación del Instituto Costarricense Contra el Cáncer, Nº 7765.

@@ -1,0 +1,6 @@
+SECCIÓN TERCERA
+Disposiciones Generales
+Artículo 12.—Clases de procedimientos. Los procedimientos de contratación que podrá emplear el ICCC son: la licitación pública, la licitación por registro, la licitación restringida, la licitación con financiamiento, la licitación con precalificación, el remate y la adjudicación por subasta a la baja; así como el procedimiento establecido en la LGCOPCSP para los casos de concesiones de obras públicas y obras públicas con servicios públicos.
+Asimismo, el ICCC podrá definir en el presente Reglamento, cualquier otro tipo de procedimiento que contribuya a satisfacer el interés público, siempre y cuando se observen el marco general, los principios y procedimientos establecidos en el ordenamiento jurídico referente a la contratación administrativa.
+El ICCC podrá utilizar procedimientos más calificados o rigurosos que el correspondiente a la naturaleza y monto del negocio, cuando convenga a la satisfacción del interés público.
+Las ofertas presentadas en un procedimiento determinado, solo podrán exceder el límite económico establecido, en un porcentaje igual o inferior al diez por ciento. En este supuesto, el concurso no se invalidará si el ICCC cuenta con los recursos presupuestarios correspondientes.

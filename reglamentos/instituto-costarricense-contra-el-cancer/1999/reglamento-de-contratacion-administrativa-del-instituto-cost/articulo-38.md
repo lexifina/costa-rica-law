@@ -1,0 +1,1 @@
+Artículo 38.—Normativa supletoria. Tanto para el caso de la licitación por registro, como de la licitación restringida, se aplicará de forma supletoria lo dispuesto para la licitación pública, en cuanto resulten compatibles con la naturaleza de ambos procedimientos.

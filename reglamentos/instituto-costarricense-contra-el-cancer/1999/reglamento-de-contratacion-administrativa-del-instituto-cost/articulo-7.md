@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos previos de contratación. En relación con los requisitos previos de contratación, el ICCC deberá observar lo dispuesto en los artículos 7º, 8º y 9º de la Ley de Contratación Administrativa.

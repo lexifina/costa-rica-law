@@ -1,0 +1,1 @@
+Artículo 8º—Régimen de Prohibiciones para Contratar. En cuanto al régimen de prohibiciones para contratar, el ICCC deberá observar las disposiciones de los artículos 22, 23, 24, 25 y 26 de la Ley de Contratación Administrativa.

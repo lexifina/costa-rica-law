@@ -1,0 +1,1 @@
+Artículo 52.—Revocación de la concesión. El ICCC se encuentra facultado para revocar las concesiones en cualquier momento, si se llegare a demostrar que el concesionario incumple con los parámetros de eficiencia y legalidad, según lo que establece el último párrafo del artículo 24 de la ley Nº 7765.

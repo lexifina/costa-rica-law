@@ -1,0 +1,1 @@
+Artículo 31.—Licitación Desierta. Cuando ninguna de las ofertas cumpla con lo solicitado por el cartel, o no satisfaga el interés público, el ICCC podrá proceder a declarar desierto el concurso, mediante un acto debidamente razonado, de conformidad con lo que establecen los artículos 29 y 56.6 del RGCA.
