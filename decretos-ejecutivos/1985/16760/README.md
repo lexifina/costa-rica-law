@@ -13,3 +13,4 @@ Declara Estado Emergencia Actividad Arroz y Sorgo Cantones Guanacaste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-12-02 | la propia norma |
+| 2 | 1985-12-02 | SINALEVI (sin norma nombrada) |
