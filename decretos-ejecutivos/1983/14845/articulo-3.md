@@ -1,1 +1,0 @@
-Artículo 3º.-La Dirección General de Migración establecerá una oficina especializada para tratar los asuntos legales de la condición de refugiado que contará con el personal necesario de acuerdo con el volumen de refugiados y estará bajo la responsabilidad de un profesional en derecho.

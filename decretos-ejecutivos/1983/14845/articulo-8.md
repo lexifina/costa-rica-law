@@ -1,1 +1,0 @@
-Artículo 8º.-El Director General de Migración decidirá sobre la cesación y exclusión de la condición de refugiado, según los términos de los párrafos C y F del artículo 1 de la Convención de 1951 respectivamente.

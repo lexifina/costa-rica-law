@@ -1,1 +1,0 @@
-Artículo 17.-La expulsión de un refugiado solamente podrá ser ordenada por razones fundadas de seguridad nacional, o para el mantenimiento del orden público. En tales casos se informará previamente al ACNUR se le concederá un plazo razonable para que de acuerdo con las posibilidades le reubique en otro país.

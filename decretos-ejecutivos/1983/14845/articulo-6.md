@@ -1,1 +1,0 @@
-Artículo 6º.-Mientras se resuelve la solicitud para la condición de refugiado, la Oficina de Refugiados de la Dirección General de Migración extenderá al solicitante un documento que regularice su permanencia provisional en el país.

@@ -1,2 +1,0 @@
-Artículo 2º.-Toda persona que encontrándose dentro del supuesto del artículo 1º del presente decreto desee ser reconocida como refugiado deberá presentar su solicitud a las autoridades de Migración ya sea en las fronteras, puertos aeropuertos o en San José.
-En caso de que dicha solicitud se presente en las fronteras, puertos, aeropuertos, ésta será transmitida inmediatamente por las autoridades a la Dirección General de Migración para su examen y decisión.

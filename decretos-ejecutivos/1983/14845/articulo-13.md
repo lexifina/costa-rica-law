@@ -1,1 +1,0 @@
-Artículo 13.-La Dirección General de Migración extenderá a los refugiados reconocidos un carné que los identifique como tales y el Documento de Viaje de la Convención de 1951 a aquellos que vayan a viajar al exterior, previa presentación del pasaje.

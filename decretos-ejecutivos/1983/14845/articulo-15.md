@@ -1,2 +1,0 @@
-Artículo 15.- Los refugiados reconocidos en los términos del presente Decreto, disfrutarán en el territorio nacional del derecho al trabajo. Los permisos se otorgarán de acuerdo con lo establecido en el presente Decreto.
-(Así reformado por el artículo 10 del decreto ejecutivo N° 16633 del 10 de octubre de 1985, “Crea Comisión mixta que resolverá las solicitudes de permisos de trabajo a los refugiados”)

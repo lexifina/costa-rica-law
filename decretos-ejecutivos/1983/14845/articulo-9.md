@@ -1,1 +1,0 @@
-Artículo 9º.-La decisión que tome el Director General de Migración sobre la solicitud de la condición de refugiado será comunicada al interesado y al Alto Comisionado de las Naciones Unidas para los Refugiados.
