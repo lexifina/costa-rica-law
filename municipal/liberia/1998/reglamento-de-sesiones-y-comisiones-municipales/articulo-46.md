@@ -1,1 +1,1 @@
-Artículo 46.—Toda comisión deberá designar día y hora de sesiones. Quien no se presente a sesión de comisión sin causa justificada pierde el veinticinco por ciento de la dieta; lo anterior siempre que este comprendida entre las diez sesiones ordinarias legalmente autorizadas como máximo remuneradas en el caso de municipalidades de nueve regidores.
+Artículo 46.—DEROGADO por acuerdo tomado en Sesión de fecha 4 de junio del 2002.

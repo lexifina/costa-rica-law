@@ -1,1 +1,1 @@
-Artículo 47.—Toda inasistencia a sesión municipal o de comisión, debe ser justificada en el término de quince días hábiles posteriores ante el Concejo, sin que ello justifique en el primero de los casos el reconocimiento de la dieta.
+Artículo 47.—DEROGADO por acuerdo tomado en Sesión de fecha 4 de junio del 2002.

@@ -14,3 +14,4 @@ Reglamento de Sesiones y Comisiones Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-10 | la propia norma |
+| 2 | 2002-06-04 | Reglamento municipal 0 (2002-06-04) |
