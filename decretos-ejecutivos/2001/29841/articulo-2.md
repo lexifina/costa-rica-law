@@ -1,0 +1,1 @@
+Artículo 2º—En consecuencia dicho centro educativo podrá emitir el Certificado de Asistencia al Ciclo Materno Infantil Grupo Interactivo II y del Ciclo de Transición de la Educación Preescolar, estudios que se equiparan con los del sistema educativo estatal.
