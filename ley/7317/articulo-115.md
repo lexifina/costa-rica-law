@@ -8,3 +8,4 @@ exigido.
 Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995 y modificado
 su texto por Resolución de la Sala Constitucional Nº 1781-97 de las 16:00
 horas del 1º de abril de 1997 ).
+NOTA: mediante el artículo 2°inciso i) del Decreto Ejecutivo No. 30364 de 2 de marzo de 2002, se actualizan los montos aquí especificados de la siguiente forma: i) Para la contravención indicada en el artículo 115, se fija una multa de doce mil colones (¢12.000,00).
