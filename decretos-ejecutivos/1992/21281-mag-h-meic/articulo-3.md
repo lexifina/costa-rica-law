@@ -122,6 +122,8 @@ Ensiladoras.
 Envases cilindricos anticorrosivos con cierre hermético para transporte del leche.
 Equipo de frió para mantenimiento de huevos fértiles.
 Equipo desmenuzador de rastrojos.
+*Equipo fijo de conservación en frío para productos agrícolas perecederos
+*(Así ampliado expresamente mediante el Decreto Ejecutivo No. 22002, de fecha 24 de febrero del 2003.)
 Equipo para cultivo de arroz inundado.
 Equipo transplantador de árboles.
 Equipo despinador de tallos.

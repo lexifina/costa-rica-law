@@ -15,3 +15,4 @@ Reglamento de Exoneración a la Actividad Agropecuaria Fundamentada en el Artíc
 | --- | --- | --- |
 | 1 | 1992-04-03 | la propia norma |
 | 2 | 1992-11-13 | Decreto Ejecutivo 21782 (1992-11-13) |
+| 3 | 1993-02-24 | Decreto Ejecutivo 22002 (1993-02-24) |
