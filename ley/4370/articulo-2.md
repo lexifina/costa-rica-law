@@ -1,4 +1,4 @@
-Artículo 2º- El arreglo de las deudas de compañías, estará sujeto a
+ARTICULO 2º- El arreglo de las deudas de compañías, estará sujeto a
 las condiciones siguientes:
 a) Su pago deberá ser hecho en un plazo máximo de diez años,
 mediante cuotas mensuales, trimestrales, semestrales o anuales, iguales y
