@@ -1,2 +1,1 @@
-Artículo 4°-Este decreto rige a partir de su publicación.
-Dado en la Presidencia de la República. -San José, a los treinta días del mes de octubre de mil novecientos ochenta.
+Artículo 4°-La administración, construcción y funcionamiento de estas bibliotecas se hará mediante convenio entre la Dirección General de Bibliotecas y las municipalidades, las asociaciones de desarrollo, o cualquier otra entidad pública o privada.

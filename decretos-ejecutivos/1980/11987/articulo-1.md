@@ -10,4 +10,5 @@ Considerando:
 5°-Que se hace necesario aprovechar al máximo las inquietudes y recursos de las comunidades, tomando en consideración que, por lo general, son las asociaciones de desarrollo las interesadas en la creación de sus propias bibliotecas .
 Por tanto,
 DECRETAN:
-Articulo 1°-Se crean Bibliotecas Públicas Semioficiales en los cantones en donde se carezca de bibliotecas públicas.
+NOTA DE SINALEVI: El texto de este Decreto fue reformado por el artículo 1° del decreto ejecutivo N° 19038 del 11 de mayo de 1989, por lo que se reproduce a continuación:
+Articulo 1°-En los cantones en donde se carezca de bibliotecas públicas, el Estado procurará su creación, dándoles el carácter de biblioteca oficial a aquellas que dependerán en los aspectos administrativos, técnicos y económicos del Estado, y de bibliotecas semioficiales a las que surjan de la combinación de esfuerzos entre las municipalidades, las comunidades, la iniciativa privada y el Estado.

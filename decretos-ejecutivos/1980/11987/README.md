@@ -13,3 +13,4 @@ Crea Bibliotecas Públicas Semioficiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-11-12 | la propia norma |
+| 2 | 1989-05-11 | Decreto Ejecutivo 19038 (1989-05-11) |
