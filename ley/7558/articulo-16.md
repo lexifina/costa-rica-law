@@ -1,0 +1,5 @@
+Artículo 16.- Publicación de la memoria anual
+Dentro de los primeros tres meses de cada año, el Banco Central publicará una memoria anual, en la cual dará a conocer su situación financiera y las operaciones que hubiere efectuado en el curso del año anterior. Esta memoria deberá contener, por lo menos, lo siguiente:
+a) Una relación analítica de la situación financiera del Banco, de sus operaciones, resultados económicos y demás actividades internas durante el año en referencia.
+b) Una exposición resumida del desarrollo de los principales acontecimientos económicos, monetarios, financieros y bancarios del país en ese año.
+c) Un análisis explicativo de la política monetaria, cambiaria y crediticia seguida por el Banco en ese lapso y, además, los cuadros numéricos, gráficos y anexos estadísticos que se consideren convenientes y el texto completo de las disposiciones legales dictadas durante el período que se reseña, en relación con las funciones y las operaciones del Banco y con sus actividades en la economía de Costa Rica.

@@ -1,1 +1,0 @@
-Artículo 13.- Las personas físicas o jurídicas que califiquen como beneficiarios de esta ley podrán adquirir directamente de los bancos comerciales del Estado, maquinaria y toda clase de equipos agrícolas y agroindustriales, en los mismos términos y condiciones determinados por esta ley.

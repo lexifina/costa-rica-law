@@ -1,1 +1,0 @@
-Artículo 123.- Las instituciones aseguradoras del Estado y cualquier otra institución pública cuyas actividades pueden afectar el mercado de dinero y capital estarán obligadas a procurar una coordinación de sus programas de inversión con la política del Banco Central. A este efecto, este último podrá hacerles las recomendaciones y sugerencias que estime del caso.

@@ -1,0 +1,2 @@
+TRANSITORIO XVI.- Para los créditos del Sistema Financiero Nacional para la Vivienda, formalizados en escritura pública antes de la fecha de vigencia de la presente ley, el Banco Hipotecario de la Vivienda continuará ajustando las tasas activas máximas de interés, dentro del rango de cinco puntos porcentuales por encima de la tasa básica pasiva del Banco Central de Costa Rica.
+Dado en la Presidencia de la República.- San José, a los tres días del mes de noviembre de mil novecientos noventa y cinco.

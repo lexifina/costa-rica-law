@@ -1,3 +1,3 @@
-Artículo 13.—Con garantía de los frutos, productos o mercancías recibidos en depósito, los Almacenes Generales podrán hacer a corto plazo que devengarán un ocho por ciento de interés anual si exceden de un mil colones y un doce por ciento de interés anual si no pasan de esa suma, cuyo monto y demás condiciones se consignarán en el respectivo vale de prenda (*).
-Sólo en la forma consignada de préstamos contra vale de prenda (*) emitidos por el propio Almacén podrán éstos hacer operaciones de crédito.
-(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgánica del Banco Nacional de Costa Rica")
+Artículo 13.—Los almacenes generales podrán hacer préstamos a los plazos y demás condiciones financieras que estimen conveniente, conforme a las leyes vigentes.
+Sólo en la forma consignada de préstamos contra bonos de prenda, emitidos por el propio Almacén, estos podrán hacer operaciones de crédito.
+(Así reformado por el artículo 167 inciso e) de la ley N° 7558 del 3 de noviembre de 1995 "Ley Orgánica del Banco Central de Costa Rica")

@@ -1,2 +1,0 @@
-Artículo 93.- Solamente el Banco Central de Costa Rica podrá negociar divisas en el territorio nacional; hará esa negociación directamente o por medio de los bancos comerciales del Estado y de los demás bancos del Sistema Bancario Nacional que, al efecto, llegue a autorizar la Junta Directiva del Instituto Emisor. Además, el Banco Central podrá establecer las regulaciones que considere apropiadas para el ingreso y egreso de capitales.
-(Así reformado por el artículo 1º de la ley Nº 6789 de 3 de agosto de 1982 )

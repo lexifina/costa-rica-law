@@ -1,0 +1,3 @@
+Artículo 170.- Derogaciones y modificaciones
+Con la entrada en vigencia de esta ley, quedarán derogadas todas las leyes, los decretos y acuerdos que se opusieren a su ejecución; y modificadas, en lo conducente, todas las disposiciones análogas que no coincidieran exactamente con los preceptos de la presente ley; las modificaciones dichas se entenderán en el sentido de crear la debida concordancia entre las mencionadas disposiciones y esta ley.
+En especial, quedan derogadas la Ley de la Moneda, No. 1367, del 19 de octubre de 1951, y la Ley Orgánica del Banco Central de Costa Rica y sus reformas, No. 1552, del 23 de abril de 1953.

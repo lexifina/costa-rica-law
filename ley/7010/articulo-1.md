@@ -1,3 +1,5 @@
+(NOTA: la ley Nº 7143 del 30 de marzo de 1990 reforma la presente
+ley en lo que sea pertinente)
 ARTICULO 1.- Apruébanse y ratifícanse los contratos de
 financiamiento externo de Costa Rica con los bancos privados extranjeros
 denominados:

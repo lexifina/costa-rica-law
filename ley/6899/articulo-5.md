@@ -1,1 +1,0 @@
-Artículo 5º.- Cuando la finca adjudicada tenga un valor inferior al saldo deudor, se procederá conforme lo establece el artículo siguiente. Cuando la finca tenga un valor mayor que la deuda, intereses, costas y otros gastos, el sobrante se aplicará conforme lo establecen los incisos b) e) y d) del artículo 1º de la ley Nº 4631 del 18 de agosto de 1970.

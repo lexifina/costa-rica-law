@@ -1,2 +1,0 @@
-Artículo 97.- El régimen a que se refiere el artículo anterior desaparecerá y todas las importaciones y servicios continuarán pagándose con divisas del mercado oficial de cambios, cuando así lo resuelva la Junta Directiva, con el voto de no menos de cinco de sus miembros, por considerar que la balanza de pagos ha recobrado su equilibrio.
-(Así reformado por el artículo 1º de la ley Nº 4646 de 20 de octubre de 1970 )

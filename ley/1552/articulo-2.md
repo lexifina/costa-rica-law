@@ -1,2 +1,0 @@
-Artículo 2º.- El Banco Central de Costa Rica forma parte del Sistema Bancario Nacional, tiene personería jurídica propia e independencia en materia de administración. Está sujeto a la ley en materia de gobierno y debe actuar en estrecha colaboración con el Poder Ejecutivo, coordinando sus esfuerzos y actividades. Las decisiones sobre las funciones puestas bajo su competencia sólo podrán emanar de su Junta Directiva y serán de su exclusiva responsabilidad.
-(Así reformado por el artículo 1º de la ley Nº 4646 de 20 de octubre de 1970.)

@@ -1,0 +1,3 @@
+Artículo 66.- Cómputo quincenal
+La situación de encaje de las entidades financieras se computará quincenalmente, de acuerdo con los procedimientos que dicte la Junta Directiva del Banco Central. Las entidades financieras están obligadas a presentar al Banco Central de Costa Rica un estado que demuestre el cumplimiento del encaje en la forma y plazos que la Junta determine.
+Cuando alguna entidad financiera mostrare insuficiencia en el encaje, el Banco Central debitará, de la cuenta corriente de dicho ente, la suma resultante de aplicar una tasa de interés igual a la del redescuento al monto de la insuficiencia en el encaje.

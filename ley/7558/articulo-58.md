@@ -1,0 +1,2 @@
+Artículo 58.- Solicitudes especiales de crédito
+Corresponderá a la Junta Directiva del Banco Central la consideración y resolución de las solicitudes de crédito que, por su cuantía o naturaleza, no sean de la competencia de la Comisión y las que hubieran sido rechazadas por esta, conforme a lo dispuesto en el artículo anterior. En estos casos, el Gerente deberá someter las respectivas solicitudes a la Junta, en su próxima sesión ordinaria, manifestando las opiniones o recomendaciones que estime convenientes para la consideración del asunto.

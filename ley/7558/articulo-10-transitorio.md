@@ -1,0 +1,1 @@
+TRANSITORIO X.- Las entidades financieras que se acojan a la alternativa ii), mencionada en el inciso c) del artículo 162 de esta ley, tendrán un período de tres años para cumplir con las instalaciones de la agencia o sucursales en las zonas señaladas.

@@ -1,0 +1,3 @@
+Artículo 24.- Sesiones
+La Junta Directiva del Banco Central se reunirá en sesión ordinaria una vez por semana y, con el propósito exclusivo de estudiar la situación económica nacional, en relación con las funciones de su competencia, una vez por mes. Además, en sesión extraordinaria cada vez que sea convocada al efecto, de acuerdo con los reglamentos internos.
+Los miembros de la Junta Directiva del Banco Central, excepto el Ministro de Hacienda, devengarán, por cada sesión a la que asistan, dietas correspondientes al diez por ciento (10%) del salario base del Contralor General de la República. No podrán remunerarse más de cinco sesiones por mes.

@@ -1,0 +1,3 @@
+Artículo 84.- Prórrogas excepcionales
+La Junta Directiva del Banco Central no podrá prorrogar la vigencia de los instrumentos temporales, salvo que una ley especial así la autorice. Para tales efectos, la Junta Directiva deberá solicitar al Poder Ejecutivo, por medio del Ministro de Hacienda, la formulación y el envío del proyecto de ley correspondiente, el cual se tramitará conforme a lo establecido en el artículo 180 del Reglamento de la Asamblea Legislativa.
+Mientras la Asamblea Legislativa no resuelva sobre la autorización solicitada, el Banco Central de Costa Rica está autorizado a seguir aplicando el o los instrumentos cuya vigencia solicita, salvo los recargos sobre los bienes importados.
