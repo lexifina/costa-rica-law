@@ -1,0 +1,1 @@
+Transitorio XV.—El Rector acordará con los funcionarios sin cargo de dirección, cuyas dependencias desaparezcan por motivo de la entrada en vigencia de este. Estatuto Orgánico, su reubicación en otra dependencia, conservando su categoría.

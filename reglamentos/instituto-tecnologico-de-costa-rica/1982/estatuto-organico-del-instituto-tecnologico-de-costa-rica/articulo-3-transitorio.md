@@ -1,0 +1,1 @@
+Transitorio III.—Los actuales representantes legales del Instituto y otros titulares de cargos de dirección, se mantendrán en sus funciones hasta que cesen por la entrada en funcionamiento de este Estatuto Orgánico y sus transitorios.

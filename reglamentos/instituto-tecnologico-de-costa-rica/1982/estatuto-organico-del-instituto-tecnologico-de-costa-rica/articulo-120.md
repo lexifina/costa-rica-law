@@ -1,0 +1,3 @@
+Artículo 120.—Las reformas solicitadas por la Asamblea Institucional Representativa que no hayan sido atendidas por el Consejo Institucional; en un plazo de tres meses después de solicitadas, podrán ser realizadas por dicha Asamblea y requerirán, para ser aprobadas, del voto afirmativo de al menos dos terceras partes de sus miembros.
+Estas reformas serán firmes y regirán a partir de la fecha de vigencia establecida en ellas.
+El Consejo Institucional no podrá realizar modificaciones a las reformas acordadas por la Asamblea Institucional Representativa antes de que transcurran dos años de su vigencia, a menos de que esta Asamblea se lo solicite.

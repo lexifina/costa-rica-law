@@ -1,0 +1,1 @@
+Artículo 112.—Todos los ingresos del Instituto deberán centralizarse en un fondo único. Las disposiciones de fondos y las inversiones sé harán de conformidad con el presupuesto del Instituto y sus modificaciones.

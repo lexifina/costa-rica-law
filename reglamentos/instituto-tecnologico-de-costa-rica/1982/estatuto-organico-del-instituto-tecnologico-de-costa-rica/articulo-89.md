@@ -1,0 +1,2 @@
+Artículo 89. —La Federación de Estudiantes del Instituto Tecnológico de Costa Rica manejará sus finanzas de acuerdo con sus propios estatutos y reglamentos y presentará un informe semestral de ellas a la Vicerrectoría de Administración.
+El auditor, por iniciativa propia o por acuerdo del Consejo institucional a petición de un organismo representativo estudiantil, realizará auditorajes sobre los fondos suministrados por el Instituto.

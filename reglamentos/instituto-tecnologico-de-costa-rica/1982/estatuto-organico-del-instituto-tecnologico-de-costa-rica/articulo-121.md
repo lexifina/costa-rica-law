@@ -1,0 +1,1 @@
+Artículo 121.—La iniciativa de reformas al Estatuto Orgánico relacionadas con la integración y funciones de la Asamblea y del Consejo Institucionales y las referida a los fines y principios del Instituto así como la reforma total del Estatuto Orgánico, sólo podrán tramitarse siguiendo los procedimientos que la Asamblea Institucional Representativa fije.

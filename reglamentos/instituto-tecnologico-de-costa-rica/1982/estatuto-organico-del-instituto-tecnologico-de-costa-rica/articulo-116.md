@@ -1,0 +1,1 @@
+Articulo 116. —Rechazado el recurso de revocatoria, podrá apelarse la decisión ante el superior inmediato, quien estudiará el caso y podrá enmendar o revocar la resolución únicamente en el aspecto objeto de la apelación.

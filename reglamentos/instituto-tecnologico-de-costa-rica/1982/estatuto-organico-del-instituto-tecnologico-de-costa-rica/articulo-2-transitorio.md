@@ -1,0 +1,1 @@
+Transitorio II.—Se mantienen en funcionamiento los órganos existentes hasta que sean derogados expresa o implícitamente por la entrada en funcionamiento de este Estatuto Orgánico y de sus transitorios.

@@ -1,0 +1,4 @@
+Articulo 7°—La elección de miembros de la Asamblea Institucional Plebiscitaria se hará de la siguiente manera:
+a) Los estudiantes deberán ser estudiantes regulares del Instituto y haber sido electos por el mecanismo y para el periodo que defina el Estatuto de la Federación de Estudiantes del Instituto Tecnológico de Costa Rica; y
+b) Los funcionarios administrativos que tengan más de seis meses de laborar en el Instituto y estén contratados por medio tiempo o más, elegirán a sus representantes de entré ellos mismos. La elección se hará mediante el mecanismo que defina el sector, el cual quedará plasmado en un reglamento; Durarán en sus funciones cuatro años y podrán ser reelectos.
+En caso de producirse una vacante en las representaciones a esta asamblea, se llenará mediante el mismo procedimiento señalado y para el resto del periodo. . .

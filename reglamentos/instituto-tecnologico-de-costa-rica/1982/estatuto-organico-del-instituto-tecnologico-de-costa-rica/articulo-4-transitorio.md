@@ -1,0 +1,1 @@
+Transitorio IV—Las disposiciones establecidas en el Instituto, que no se opongan a este Estatuto Orgánico y a sus transitorios, seguirán siendo válidas hasta tanto no sean modificadas por' los órganos competentes.

@@ -1,0 +1,1 @@
+Artículo 99.—Durante el tiempo que duren los programas de investigación y extensión los profesores, conforme con la dedicación asignada y él personal nombrado para el efecto, estarán sujetos a la supervisión de la Vicerrectoría de Investigación y, Extensión en los aspectos relativos al desarrollo de éstos.

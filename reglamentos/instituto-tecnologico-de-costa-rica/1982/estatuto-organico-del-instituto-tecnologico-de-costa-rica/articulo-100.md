@@ -1,0 +1,1 @@
+Artículo 100.—El Consejo Institucional establecerá quinquenalmente un porcentaje mínimo del presupuesto ordinario del Instituto para el fondo propio de investigación y extensión. Este fondo será ejecutado por la Vicerrectoría de Investigación y Extensión, de acuerdo con el reglamento correspondiente, para ser destinados a programas específicos no financiables externamente.

@@ -1,0 +1,1 @@
+Artículo 49.—Los directores de departamento académico son los funcionarios que dirigen y representas a esas unidades. En U linea jerárquica inmediata estarán bajo la autoridad del vicerrector respectivo.

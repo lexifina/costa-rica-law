@@ -1,0 +1,1 @@
+Transitorio XXVI.— El Consejo Institucional garantizará que el personal y las actividades de investigación y extensión de período definido, actualmente planteadas, mantengan las condiciones necesarias para su debida conclusión.

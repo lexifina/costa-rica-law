@@ -1,0 +1,1 @@
+Artículo 61.—Las funciones del director y del Consejo de Centro Académico serán establecidas en un reglamento que aprobará el Consejo Institucional, a propuesta del Rector y atendiendo a las necesidades particulares del centro.

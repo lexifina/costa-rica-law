@@ -1,0 +1,1 @@
+Artículo 33.—Cada vicerrectoría contará con un Consejo de Vicerrectoria, el cual sesionará ordinariamente cada quince días y extraordinariamente, cuando lo convoque el vicerrector respectivo, ya sea por iniciativa propia o a instancias de al menos el 50 % dé los miembros.

@@ -1,0 +1,1 @@
+Articulo 85.— El Instituto ígarantizará la Igualdad de oportunidades para el ingreso y permanencia de los estudiantes en la institución. Esto lo hará mediante programas y reglamentos que tiendan a establecer las condiciones requeridas para el cabal aprovechamiento de sus estudios.

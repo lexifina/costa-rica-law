@@ -1,0 +1,2 @@
+Artículo 12.—La Asamblea Institucional Representativa, sesionará ordinariamente en el transcurso de la tercera semana de cada semestre lectivo y extraordinariamente, a solicitud del Consejo Institucional, del rector o del 25% de sus miembros. De su seno elegirá un directorio, para un período de dos años.
+El quórum 16 constituirá el 40% de su» miembros y los acuerdos se tomarán por el voto afirmativo de la mitad más uno de los emitidos, excepto cuando esté Estatuto Orgánico disponga algo diferente.
