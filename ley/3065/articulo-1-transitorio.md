@@ -1,0 +1,1 @@
+Transitorio I.-A fin de cumplir con lo dispuesto en el artículo 1° de esta ley, en las Instituciones Autónomas que actualmente no cuenten con un Ministro de Gobierno como miembro ex oficio en sus Juntas Directivas, el director cuyo período esté más próximo a expirar, será sustituido, al terminar su gestión, por el Ministro que el Consejo de Gobierno designe.

@@ -1,0 +1,1 @@
+Artículo 2°-Los miembros de las Juntas Directivas de las Instituciones Autónomas serán remunerados mediante dietas que devengarán por cada sesión a la cual asistan. Las dietas, en cuanto a su monto, serán determinadas en el Presupuesto de cada Institución Autónoma, pero no podrán exceder de ¢150.00 (ciento cincuenta colones) por sesión.

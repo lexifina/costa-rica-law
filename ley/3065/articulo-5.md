@@ -1,0 +1,1 @@
+Artículo 5°- Las disposiciones de esta ley se aplicarán también al Servicio Nacional de Acueductos y Alcantarillado, que fue creado como institución semi-autónoma del Estado, y a cualesquiera otras que con tal carácter se llegaren a crear.
