@@ -14,3 +14,4 @@ Reglamento de Corredores Jurados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1964-09-19 | la propia norma |
+| 2 | 1985-11-07 | Decreto Ejecutivo 16728 (1985-11-07) |
