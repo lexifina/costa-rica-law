@@ -1,0 +1,1 @@
+Artículo 16.- Dependientes del Instituto y cuando el Consejo del mismo lo acuerde, se establecerán estaciones agrícolas regionales, con el propósito de hacer estudios de las zonas y terrenos de la República y ensayar los cultivos que el clima y las condiciones del suelo permitan.
