@@ -101,3 +101,6 @@ articulo-100.md
 articulo-101.md
 articulo-102.md
 articulo-103.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md

@@ -1,6 +1,2 @@
-ARTICULO 97.- Portación ilícita de arma permitida.
-Se impondrá una pena de tres meses a un año a quien porte, sin
-autorización legal, o sin el permiso extendido por el Departamento, un
-arma permitida.
-Igual pena se le impondrá a quien porte arma blanca, cuya hoja exceda
-de nueve centímetros.
+Artículo 97.- Portación ilícita de arma permitida. Salvo lo dispuesto en el artículo 8 de esta ley, se le impondrá pena de uno a tres meses de prestación de trabajo de utilidad pública, a favor de establecimientos de bien público o utilidad comunitaria, bajo el control de sus autoridades, a quien porte un arma blanca cuya hoja exceda de doce centímetros de extensión.
+(Así reformado por el artículo 2° aparte b) de la ley N° 7957 del 17 de diciembre de 1999)
