@@ -1,0 +1,1 @@
+Art 36°.- Por este trabajo llevará el Juez, según el punto que se ventile, derechos que no bajen de quatro reales ni exedan de un peso que satisfarán las partes por mitad del todo una de ellas conforme a derecho

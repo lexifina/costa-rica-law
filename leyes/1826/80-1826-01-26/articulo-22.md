@@ -1,0 +1,1 @@
+Art 22°.- Conocerá asi mismo en apelación de las cauzas criminales que según la Constitución del Estado corresponden en primera Instancia al Comandante General; propondrá ternas al P.E. para los Jueces Letrado de primera Instancia o Acesores si los hubiere.

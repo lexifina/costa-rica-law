@@ -1,0 +1,1 @@
+Art 56°.- Quando el Alcalde competente cite a algun Ciudadano para el acto conciliatorio y se deniegue a concurrir, podrá imponerle multa desde uno hasta cinco pesos, según las circunstancias del caso, y del demandado, dando la certificación de que habla el art 45°.

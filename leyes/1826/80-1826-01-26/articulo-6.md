@@ -1,0 +1,1 @@
+Art 6°.- Antes de entrar en el examen de qualquiera asunto en vista, se resolverá si según la Ley ha lugar al de revista, y si lo hubiese sorteará la Corte tres de sus individuos para que voten en vista dos de entre los Legos y uno de los Letrados.

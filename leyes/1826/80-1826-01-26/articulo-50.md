@@ -1,0 +1,1 @@
+Art 50°.- En los delitos graves no habrá conciliación ni terminación verval, sino que los Alcaldes deben precisamente instruir sumario y dar cuenta con él al Juez de Letras asegurando la persona del procesado con arreglo a las Leyes para su remición a la cabezera de Departamento.

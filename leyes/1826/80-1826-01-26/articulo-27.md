@@ -1,0 +1,1 @@
+Art 27.- Habrá un oficial nombrado y examinado en los mismos términos que suplirá las faltas del Secretario, y tendrá el resueldo de diez pesos con el aumento de cinco pesos y los derechos de actuación quando haga este suplemento.

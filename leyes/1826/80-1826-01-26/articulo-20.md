@@ -1,0 +1,1 @@
+Art 20°.- Determina qualquiera causa civil o criminal debe darse a las partes testimonio si lo piden a su costa para imprimirlo, o para el uzo que estimen exeptuandose aquellas en que la decencia publica exija se vean a puerta cerrada.

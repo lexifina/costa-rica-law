@@ -1,0 +1,1 @@
+Art 12.- Las cauzas criminales solo tendrán lugar a la súplica, quando la sentencia de vista no sea de un todo conforme a la de primera instancia, y se imponga pena de muerte, destierro, o precidido de mas de quatro años.

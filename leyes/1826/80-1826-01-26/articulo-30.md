@@ -1,0 +1,1 @@
+Art 30.- Por ahora nombrará el Gobierno sin necesidad de propuesta de la Corte tres Jueces de esta especie, destinados dos de ellos uno para cada departamento conforme a la división hecha en el decreto de 13. De octubre con exclusión de la Capital y los Pueblos de Curridavat, y Acerri a que se destinará el otro.

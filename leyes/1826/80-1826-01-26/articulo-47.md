@@ -1,0 +1,1 @@
+Art 47.- Si la demanda fuera sobre retención de efectos de un deudor que pretenda substraerlos, o sobre interdicción de nueva obra, u otras cosas de igual urgencia y el actor pidieses al Alcalde que desde luego probea provicionalmente para evitar el perjuicio de la dilación, lo hará así el Alcalde sin retraso, y procederá inmediatamente a la conciliación.

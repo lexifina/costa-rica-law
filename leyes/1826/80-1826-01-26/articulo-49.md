@@ -1,0 +1,1 @@
+Art 49°.- Si estas se conformaren executará el Alcalde lo resuelto, como también no habiendo lugar a la apelación para ante el Juez Letrado, y si lo hubiese interponiendolo alguna de las partes en el acto de la notificación le dará certificado para los fines que expresa esta Ley.
