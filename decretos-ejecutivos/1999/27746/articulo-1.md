@@ -1,0 +1,1 @@
+(NOTA DEL SINALEVI: En La Gaceta N ° 97 del 22 de mayo de 2007 se publica el decreto ejecutivo N° 33763 del 30 de abril de 2007, Reglamento General de Financiamiento de La Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas (JUDESUR), cual en su artículo 74 in indica que se modifica y sustituye en todos sus efectos este decreto)
