@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Quórum
+El quórum de la Asamblea General ordinaria estará formado por la mitad más uno de los miembros activos del Colegio. Cuando este quórum no pueda integrarse en el lugar y hora señalados, la Junta Directiva tendrá la facultad de hacer una segunda y última convocatoria a la Asamblea General, que podrá reunirse en el mismo lugar y día indicados en la primera convocatoria, al menos treinta minutos después de la hora fijada para ella. En esta oportunidad, cualquier número de miembros activos que concurran formará el quórum.
