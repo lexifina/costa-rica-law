@@ -13,3 +13,4 @@ Establece Funciones Primordiales a cargo del Area Administrativa MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-20 | la propia norma |
+| 2 | 1996-05-20 | Decreto Ejecutivo 26570 (1997-10-09) |
