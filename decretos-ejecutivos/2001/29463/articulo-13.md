@@ -1,0 +1,1 @@
+Artículo 13.—En el anexo que se adjunta al presente decreto, se incluyen los lineamientos generales y procedimiento de cálculo para la determinación de la base imponible, y los impuestos a que se encuentra afecta la producción nacional y la importación de cigarrillos, cigarros y puros de cualquier marca.

@@ -1,0 +1,1 @@
+Artículo 12.—En cuanto a las importaciones, corresponderá también a la Subgerencia de Recaudación y Atención al Contribuyente elaborar el cálculo de los impuestos a que se encuentra afecta la producción nacional y la importación de cigarrillos, cigarros y puros de cualquier marca, por cajetilla u otra presentación, y comunicárselo por escrito a la Dirección General de Aduanas.
