@@ -14,3 +14,4 @@ Declara Estado de Emergencia los Cantones de Limón, Matina, Talamanca, Siquirre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-04 | la propia norma |
+| 2 | 2000-02-04 | Decreto Ejecutivo 28524 (2000-02-03) |

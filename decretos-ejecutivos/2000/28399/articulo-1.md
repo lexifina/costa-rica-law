@@ -8,3 +8,4 @@ Considerando:
 3º—Que se hace necesaria la promulgación de un marco jurídico que remita regular las medidas de excepción indispensables para hacer frente a la situación de emergencia y mitigar las consecuencias que pueda tener sobre los bienes y las personas. Por tanto,
 Decretan:
 Artículo 1º—Se declara estado de emergencia la situación provocada por las fuertes lluvias en los cantones de Limón, Matina, Talamanca, Siquirres, Guácimo y Pococí en la provincia de Limón; Turrialba, Paraíso y Jiménez en la provincia de Cartago y Sarapiquí en la provincia de Heredia.
+(Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 28524 de 03 de febrero de 2000, publicado en La Gaceta N° 63 de 29 de marzo de 2000, el cuál adiciona el cantón de San Carlos en la provincia de Alajuela, los cantones de Alvarado y Tres Ríos en la provincia de Cartago, y el distrito de Santa Rosa del cantón de Oreamuno de la provincia de Cartago, en estado de emergencia.)
