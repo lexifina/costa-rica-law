@@ -23,6 +23,7 @@ articulo-22.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
+articulo-25-bis.md
 articulo-26.md
 articulo-27.md
 articulo-28.md
@@ -31,6 +32,7 @@ articulo-30.md
 articulo-31.md
 articulo-32.md
 articulo-33.md
+articulo-33-bis.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
