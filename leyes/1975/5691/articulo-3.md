@@ -1,1 +1,1 @@
-Artículo 3º.- La Contraloría General de la República promulgará el reglamento para uso de los vehículos municipales.
+ARTICULO 3º.- ANULADO por Resolución de la Sala Constitucional No. 5445-99 de las 14:30 horas del 14 de julio de 1999, adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del11/10/2000.
