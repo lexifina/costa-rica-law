@@ -1,0 +1,2 @@
+ARTÍCULO 13.-Modifíquese el párrafo primero del artículo 26 del decreto ejecutivo N° 19886-MIRENEM, para que se lea:
+El impuesto general forestal se pagar sobre el volumen de las especies inventariadas en pie, indicadas en el plan de manejo forestal según su cronograma de costos. En el caso en que se autorice la eliminación total del bosque con diversos fines, el permisionario deber cancelar el impuesto general forestal por el volumen total inventariado señalado por hectárea y referido al rea autorizada para cambio de uso.

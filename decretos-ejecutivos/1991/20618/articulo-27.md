@@ -1,0 +1,2 @@
+ARTÍCULO 27.-Modifíquese el artículo 110 del decreto ejecutivo N° 19886-MIRENEM, para que se lea así:
+El monto de la CAF se distribuir durante los primeros cinco años en la siguiente forma: un 50% en el primer año, un 20% en el segundo año, un 15% el tercer año, un 10% el cuarto año, y 5% el quinto año. El monto del beneficiario de deducción del impuesto sobre la Renta se distribuir de la siguiente forma: un 60% el primer año, un 15% para el segundo, un 10% tanto en el tercero como para el cuarto, un 5% para el quinto. O bien un 20% para cada año en ambos sistemas.

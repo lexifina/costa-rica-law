@@ -1,0 +1,1 @@
+ARTÍCULO 31.-Modifíquese el párrafo quinto del artículo 129 del decreto ejecutivo N° 19886-MIRENEM para que en lugar del "El Departamento de Régimen Forestal" se lea "Departamento de Reforestación y Protección Forestal".

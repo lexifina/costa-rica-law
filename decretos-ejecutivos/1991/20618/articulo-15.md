@@ -1,0 +1,2 @@
+ARTÍCULO 15.-Modifíquese el artículo 52 del decreto ejecutivo N° 19886-MIRENEM, para que se lea:
+La realización de los estudios descritos en el artículo 36 de la ley, corresponderán a la DGF, o al SPN. Estas direcciones podrán solicitar la colaboración de otras instituciones estatales. La categoría de manejo se determinar de acuerdo con los estudios elaborados y con fundamento en el artículo 35 de la ley.
