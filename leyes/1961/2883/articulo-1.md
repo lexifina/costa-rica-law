@@ -1,0 +1,4 @@
+N° 2883
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Autorizase al Poder Ejecutivo para que por medio del Embajador de Costa Rica ante el Gobierno de los Estados Unidos de Norte América, o del Delegado que al efecto se designe, otorgue la fianza solidaria del Estado para garantizar uno o varios préstamos del Servicio Nacional de Acueductos y Alcantarillado con el Eximbank hasta por la suma de cuatro millones quinientos mil dólares ($4.500.000.00) a un plazo no menor de quince años; y con el Development Loan Fund hasta por la suma de tres millones quinientos mil dólares ($3.500.000.00) a un plazo no menor de veinte años, ambos, en moneda de los Estados Unidos de América o su equivalente en otras monedas y a un interés no mayor del usual para este tipo de operaciones.
