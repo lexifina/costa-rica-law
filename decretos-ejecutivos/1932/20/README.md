@@ -13,3 +13,4 @@ Normas Relativas a Administración Principal de Rentas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1932-01-29 | la propia norma |
+| 2 | 1932-05-30 | Decreto Ejecutivo 27 (1932-05-30) |
