@@ -1,4 +1,6 @@
+(Derogado)
 DIRECCION GENERAL DE ADUANAS
+(DEROGADA, mediante resolución No. 129 de 5 de octubre de 2004).
 Resolución RES-DGA-255-2000.—Dirección General de Aduanas.—San José, a las dieciséis horas del día siete de diciembre del dos mil.
 Considerando:
 l°—Que mediante Decreto N0 28976-H, publicado en La Gaceta N0 196 del 12 de octubre del 2000, se publico el formulario para la Declaración del Valor en Aduanas y su instructivo de llenado.
