@@ -403,8 +403,8 @@ depositario.
 la mismas condiciones de previo aviso, a reserva de que el Gobierno
 depositario haya sido notificado por escrito por el Miembro efectivo
 responsable de las relaciones exteriores de dicho Miembro asociado.
-3º.-Un Miembro afiliado podrá retirarse de la Organización al cabo de un
-plazo de un año, después de notificarlo por escrito al Secretario
+3º.- Un Miembro afiliado podrá retirarse de la Organización al cabo de
+un plazo de un año, después de notificarlo por escrito al Secretario
 General.
 Entrada en Vigor
 Artículo 36
