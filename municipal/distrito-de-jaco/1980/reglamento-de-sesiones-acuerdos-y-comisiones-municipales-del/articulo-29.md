@@ -1,1 +1,1 @@
-Articulo 29.—En cualquier momento del debate podrán presentarse mociones de orden en relación al asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.
+Articulo 29.—En cualquier momento del debate podrán presentarse mociones de orden en relación al asunto que se discute la moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo después de votado no se podrá seguir tratando sobre el mismo asunto en la misma sesión.

@@ -1,1 +1,1 @@
-Artículo 31.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la soliciten, sin que pueda exceder de diez minutos cada intervención.
+Artículo 31.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los regidores que la soliciten, sin que pueda exceder de cinco minutos cada intervención.
