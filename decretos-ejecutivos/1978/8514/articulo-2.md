@@ -1,33 +1,47 @@
 Artículo 2°—Los límites de la Reserva son los mencionados a continuación:
-RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA
-La Reserva Indígena Guaymí de Conte-Burica se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541 - II, Río Caña Blanca 3540 - I, Laurel 3641 III, Puerto Armuelles 3640 - IV.
-La Reserva se localiza como sigue:
-Partiendo de fin punto en la playa en coordenadas N 254 850, E 560 450, se continúa con los siguientes rumbos, distancias y coordenadas.
-N 39 48 E | 585.77 | 255 300 | 560 825
-N 23 12 W | 190.39 | 255 475 | 560 750
-N Franco | 1 275.00 | 256 750 | 560 750
-N 34 54 W | 1 310.77 | 257 825 | 560 000
-N 51 57 E | 730.15 | 258 275 | 560 575
-N 48 05 E | 1 646.40 | 259 375 | 561 800
-N 62 29 E | 1 353.01 | 260 000 | 563 000
-N 82 39 E | 1 562.85 | 260 200 | 564 550
-N 46 51 E | 1 096.59 | 260 950 | 565 350
-N 06 01 W | 477.62 | 261 425 | 565 300
-N 36 13 E | 2 200.14 | 263 200 | 566 600
-N 61 07 E | 828.02 | 263 600 | 567 325
-N 70 40 E | 1 510.17 | 264 100 | 568 750
-S 46 02 E | 972.43 | 263 425 | 569 450
-S 15 57 W | 728.01 | 262 725 | 569 250
-S 65 46 E | 548.29 | 262 500 | 569 750
-S 12 43 E | 1 589.02 | 260 950 | 570 100
-S 15 57 W | 1 092.02 | 259 900 | 569 800
-S 80 49 E | 1 722.10 | 259 625 | 571 500
-S 14 21 W | 1 109.62 | 258 550 | 571 225
-S 38 09 E | 445.11 | 258 200 | 571 500
-De este punto con un rumbo S 06 59 E, al límite fronterizo entre Costa Rica y Panamá. Se sigue por el límite fronterizo entre Costa Rica y Panamá hasta un punto del cual, con un rumbo S 46 58 W se llega al río La Peña (coordenadas N 244 750, E 580 025). De este punto se continúa con los siguientes rumbos, distancias y coordenadas.
-S 27 59 W | 905.88 | 243 950 | 579 600
-S 86 59 W | 1 902.63 | 243 850 | 577 700
-S 02 12 E | 1 300.96 | 242 550 | 577 750
-S 47 17 | 442.30 | 242 250 | 577 425
-A partir de este punto se continúa por la playa hasta el punto de origen de la presente descripción en coordenadas N 254 850, E 560 450.
-Área aproximada: 12 558 Ha. 3127.
+Reserva Indígena Guaymí de Conte-Burica.
+La Reserva Indígena Guaymí de Conte-Burica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
+La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
+Partiendo de un punto en la playa en coordenadas N 254 850 E 560 450, se continúa con los puntos de coordenadas siguientes:
+N 255 300 | E 560 825 |
+N 255 475 | E 560 750 |
+N 256 750 | E 560 750 |
+N 257 800 | E 560 000 |
+N 258 875 | E 560 250 | ( Río Claro ).
+De este punto se sigue el Río Claro aguas arriba hasta el punto de coordenadas N 258 825 E 560 425.
+De este punto, se sigue con los puntos de coordenadas:
+N 259 225 | E 560 775 |
+N 259 600 | E 560 300 |
+N 259 900 | E 560 300 |
+N 260 250 | E 560 525 |
+N 260 100 | E 561 450 |
+N 259 750 | E 561 725 |
+N 259 375 | E 561 800 | (Cerro, 406 m).
+N 260 000 | E 563 000 | (Quebrada La Yerba).
+N 260 200 | E 564 550 | (Quebrada Honda).
+N 261 000 | E 565 400 |
+N 261 425 | E 565 300 |
+N 263 225 | E 566 625 |
+N 263 600 | E 567 325 | (Río Conté)
+N 264 100 | E 568 775 |
+N 263 450 | E 569 425 |
+N 262 725 | E 569 250 |
+N 262 500 | E 569 750 |
+N 260 950 | E 570 150 | (Quebrada Vueltas)
+N 259 950 | E 569 825 |
+N 259 725 | E 570 550 | (Unión de los dos brazos del río La Vaca)
+N 259 650 | E 571 450 |
+N 258 575 | E 571 225 |
+N 258 175 | E 571 500 | (Cerro, 493 m).
+N 257 325 | E 572 900 | (Frontera de Panamá).
+A partir de este punto, se sigue por el límite fronterizo entre Costa Rica y Panamá, primero hacia el suroeste y después hacia el sureste, hasta el punto de coordenadas:
+N 247 250 | E 578 950 | (Frontera de Panamá).
+De allí se sigue por los puntos de coordenadas:
+N 246 775 | E 578 950 |
+N 246 200 | E 578 400 |
+N 246 200 | E 578 025 | (Quebrada La Peñita).
+De allí se sigue aguas abajo la quebrada La Peñita hasta su desembocadura en el mar, en coordenadas:
+N 243 250 | E 576 600
+A partir de este punto se continúa por la playa hasta el punto origen de la presente descripción, en coordenadas N 254 850 E 560 450.
+Superficie de la Reserva Indígena Guaymí de Conte-Burica: 11 910 hectáreas.
+(Así reformado mediante el artículo 2° del decreto ejecutivo N° 13545 del 26 de abril de 1982).
