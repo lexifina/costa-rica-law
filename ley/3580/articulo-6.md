@@ -1,9 +1,3 @@
-Artículo 6º.- Las municipalidades determinarán, de común acuerdo con
-el Ministerio de Transportes, los espacios necesarios para zonas
-oficiales y de parada de vehículos dedicados al transporte remunerado de
-personas.
-Por el uso de estas zonas, lo mismo que de los espacios frente a los
-edificios públicos y las paradas termianles o fijas del servicio público,
-sean de autobuses, station wagons o automóviles de alquiler, no se
-cobrará suma alguna. Tampoco por los espacios libres que requiera la
-entrada de los garajes.
+Artículo 6º.- Las municipalidades determinarán, de común acuerdo con el Ministerio de Transportes, los espacios necesarios para zonas oficiales y de parada de vehículos dedicados al transporte remunerado de personas.
+Por el uso de estas zonas, lo mismo que de los espacios frente a los edificios públicos y las paradas terminales o fijas del servicio público, sean de autobuses, station wagons o automóviles de alquiler, no se cobrará suma alguna. Tampoco por los espacios libres que requiera la entrada de los garajes.
+La Procuraduría General de la República, mediante pronunciamiento N° C-009-10 del 13 de enero del 2010, consideró derogado tácitamente el presente artículo por existir una antinomia normativa entre éste y el numeral 98 de la Ley de Tránsito N° 7331 del 13 de abril de 1993, mismo que señala como competencia exclusiva del Ministerio de Obras Públicas y Transportes, a través de sus órganos, la fijación de las paradas de los vehículos de servicio público, sin prever para ello participación alguna de las municipalidades)
