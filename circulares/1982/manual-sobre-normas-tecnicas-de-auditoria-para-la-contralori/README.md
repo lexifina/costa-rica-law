@@ -14,3 +14,4 @@ Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-08-29 | la propia norma |
+| 2 | 2002-05-30 | Resolución 0 (2002-05-27) |
