@@ -1,0 +1,2 @@
+Medidas Protectoras
+Artículo 16.- La protección, habilitación y rehabilitación de los ciegos se realizarán por los siguientes medios: educación de niños, talleres para adultos, hogares para ciegos sin familia, bibliotecas públicas para ciegos, impresión de libros parlantes, impresión de libros en sistema Braille, centros de recreación, campos de veraneo, centros de adiestramiento de perros para lazarillos, oficinas de empleo y colocación, servicio social y centros de prevención de la ceguera.

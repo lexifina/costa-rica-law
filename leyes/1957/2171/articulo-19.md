@@ -1,0 +1,1 @@
+Artículo 19.- Los estudiantes parcial o totalmente ciegos, cuyas calificaciones y conducta así lo ameriten, tendrán derecho de ingresar a todas aquellas instituciones docentes no especializadas para ciegos siempre que los cursos y estudios signifique en adelanto seguro en su habilitación o rehabilitación.

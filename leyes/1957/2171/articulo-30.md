@@ -1,0 +1,1 @@
+Artículo 30.- Para efecto de los artículos anteriores, se tendrán como autoridades competentes las dependencias de los Ministerios de Seguridad Pública, Salubridad Pública, Educación Pública, gobernación y Policía, y Trabajo y Previsión Social.

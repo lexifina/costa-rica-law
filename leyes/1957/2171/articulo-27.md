@@ -1,0 +1,1 @@
+Artículo 27.- Toda persona ciega, menor de dieciséis años, debe ser enviada a la Escuela de Enseñanza Especial, la que determinará si se admite en la institución de acuerdo con las condiciones físicas y mentales que reúna.
