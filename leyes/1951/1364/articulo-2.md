@@ -1,0 +1,1 @@
+Artículo 2°.- Si el resultado de la manifestación popular fuere favorable a esa petición, Poder Ejecutivo determinará los límites entre los Cantones de Goicochea y Tibás, remetiendo a la Asamblea el respectivo acuerdo para su aprobación.
