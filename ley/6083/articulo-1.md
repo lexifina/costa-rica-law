@@ -1,6 +1,7 @@
-Artículo 1º.- Autorízase la adhesión de costa Rica a la Convención de
+(NOTA: véanse las observaciones de la ley)
+Artículo 1º.- Autorízase la adhesión de Costa Rica a la Convención de
 Berna para la protección de las Obras Literarias y Artísticas, hecha en
-esa ciudad en 1986 y revisada en París el 24 de julio de 1971, cuyo texto
+esa ciudad en 1886 y revisada en París el 24 de julio de 1971, cuyo texto
 es el siguiente:
 CONVENIO DE BERNA PARA LA PROTECCION
 DE LAS OBRAS LITERARIAS Y ARTISTICAS
@@ -1147,4 +1148,251 @@ normalmente se cobra en el país en cuestión por obras de naturaleza
 semejante, las licencias concedidas en virtud de este artículo cesarán si
 esa traducción fuera en el mismo idioma y substancialmente del mismo
 contenido que la traducción publicada en virtud de la licencia. Sin
-embargo, podrá
+embargo, podrá continuarse la distribución de los ejemplares comenzada
+antes de la terminación de la licencia, hasta agotar las existencias.
+7) Para las obras que estén compuestas principalmente de
+ilustraciones, sólo se podrá conceder una licencia para efectuar y
+publicar una traducción del texto y para reproducir y publicar las
+ilustraciones, si se cumplen las condiciones del artículo tercero.
+8) No podrá concederse la licencia prevista en el presente artículo,
+si el autor no hubiere retirado de la circulación todos los ejemplares de
+su obra.
+9) a) Podrá concederse la licencia prevista en el presente artículo,
+si el autor no hubiere retirado de la circulación todos los ejemplares de
+su obra.
+9) a) Podrá otorgarse a un organismo de radiodifusión que tenga su
+sede en un país de aquéllos a los que se refiere el párrafo 1) una
+licencia para efectuar la traducción de una obra que haya sido publicada
+en forma impresa o análoga si dicho organismo la solicita a la autoridad
+competente de ese país, siempre que se cumplan las condiciones siguientes:
+i) Que la traducción sea hecha de un ejemplar producido y adquirido
+conforme a la legislación de dicho país
+ii) Que la traducción sea empleada únicamente en emisiones para
+fines de enseñanza o para difundir el resultado de investigaciones
+técnicas o científicas especializadas a expertos de una profesión
+determinada;
+iii) Que la traducción sea usada exclusivamente para los fines
+contemplados en el subpárrafo ii) a través de emisiones efectuadas
+legalmente y destinadas a ser recibidas en el territorio de dicho país,
+incluso emisiones efectuadas por medio de grabaciones sonoras o visuales
+efectuadas en forma legal y exclusivamente para esas emisiones;
+iv) Que el uso que se haga de la traducción no tenga fines de lucro.
+b) Las grabaciones sonoras o visuales de una traducción que haya sido
+hecha por un organismo de radiodifusión bajo la licencia concedida en
+virtud de estepárrafo podrá, para los fines y sujeto a las condiciones
+previstas en el subpárrafo a), con el consentimiento de ese organismo, ser
+usada también por otro organismo de radiodifusión que tenga su sede en el
+país cuyas autoridades competentes hayan otorgado la licencia en cuestión.
+c) Podrá también otorgarse una licencia a un organismo de
+radiodifusión, siempre que se cumplan todos los requisitos y condiciones
+establecidos en el subpárrafo a), para traducir textos incorporados a una
+fijación audiovisual efectuada y publicada con el solo propósito de
+utilizarla para fines escolares o universitarios.
+d) Sin perjuicio de lo que disponen los subpárrafos a) a c), las
+disposiciones de los párrafos precedentes se aplicarán a la concesión y
+uso de las licencias en virtud de este párrafo.
+ARTICULO TERCERO
+1) Todo país que haya declarado que invocará el beneficio de la
+facultad prevista por el presente artículo tendrá derecho a reemplazar el
+derecho exclusivo de reproducción previsto en el artículo 9º por un
+régimen de licencia no exclusivas e intransferibles, concedidas por la
+autoridad competente en las condiciones que se indican a continuación y de
+conformidad a lo dispuesto en el artículo cuarto.
+2) a) Cuando, con relación a una obra a la cual este artículo es
+aplicable en virtud del párrafo 7), a la expiración:
+i) Del plazo establecido en el párrafo 3) y calculado desde la fecha
+de la primera publicación de una determinada edición de una obra; o
+ii) De un plazo superior, fijado por la legislación nacional del país
+al que se hace referencia en el párrafo 1) y contado desde la misma fecha,
+no hayan sido puestos a la venta, en dicho país, ejemplares de esa
+edición para responder a las necesidades del público en general o de la
+enseñanza escolar y universitaria por el titular del derecho de
+reproducción o con su autorización, a un precio comparable al que se cobre
+en dicho país para obras análogas, todo nacional de dicho país podrá
+obtener una licencia para reproducir y publicar dicha edición a ese precio
+o a un precio inferior con el fin de responder a las necesidades de la
+enseñanza escolar y universitaria.
+b) Se podrán también conceder, en las condiciones previstas en el
+presente artículo, licencias para reproducir y publicar una edición que se
+haya distribuido según lo previsto en el subpárrafo a), siempre que, una
+vez transcurrido el plazo correspondiente, no se haya puesto en venta
+ningún ejemplar de dicha edición durante un período de seis meses, en el
+país interesado, para responder a las necesidades del público en general o
+de la enseñanza escolar y universitaria y a un precio comparable al que se
+cobre en dicho país por obras análogas.
+3) El plazo al que se hace referencia en el párrafo 2) a) i) será de
+cinco años. Sin embargo,
+i) Para las obras que traten de ciencias exactas, naturales o de
+tecnología, será de tres años;
+ii) Para las obras que pertenezcan al campo de la imaginación tales
+como novelas, obras poéticas, dramáticas y musicales, y para los libros de
+arte, será de siete años.
+4) a) Las licencias que puedan obtenerse al expirar un plazo de tres
+años no podrán concederse en virtud del presente artículo hasta que no
+haya pasado un plazo de seis meses.
+i) A partir de la fecha en que el interesado haya cumplido los
+requisitos previstos en el artículo cuarto.1);
+ii) O bien, si la identidad o la dirección del titular del derecho de
+reproducción son desconocidos, a partir de la fecha en que el interesado
+efectúe, según lo previsto en el artículo cuarto.2), el envío de copias de
+la petición de licencia, que haya presentado a la autoridad competente.
+b) En los demás casos y siendo aplicables el artículo cuarto.2), no se
+podrá conceder la licencia antes de que transcurra un plazo de tres meses
+a partir del envío de las copias de la solicitud.
+c) No podrá concederse una licencia durante el plazo de seis o tres
+meses mencionado en el subpárrafo a) si hubiere tenido una distribución en
+la forma descrita en el párrafo 2l).
+d) No se podrá conceder una licencia cuando el autor haya retirado de
+la circulación todos los ejemplares de la edición para la reproducción y
+publicación de la cual la licencia se haya solicitado.
+5) No se concederá en virtud del presente artículo una licencia para
+reproducir y publicar una traducción de una obra, en los casos que se
+indican a continuación:
+i) Cuando la traducción de que se trate no haya sido publicada por el
+titular del derecho de autor o con su autorización;
+ii) Cuando la traducción no se haya efectuado en el idioma de uso
+general en el país que otorga la licencia.
+6) Si se pusiera en venta ejemplares de una edición de una obra en el
+país al que se hace referencia en el párrafo 1) para responder a las
+necesidades bien del público, bien de la enseñanza escolar y
+universitaria, por el titular del derecho de autor o con su autorización,
+a un precio comparable al que se acostumbre en dicho país para obras
+análogas, toda licencia concedida en virtud del presente artículo
+terminará si esa edición se ha hecho en el mismo idioma que la edición
+publicada en virtud de esta licencia y si su contenido es esencialmente el
+mismo. Queda entendido, sin embargo, que la puesta en circulación de
+todos los ejemplares ya producidos antes de la expiración de la licencia
+podrá continuarse hasta su agotamiento.
+7) a) Sin perjuicio de lo que dispone el subpárrafo b), las
+disposiciones del presente artículo se aplicarán exclusivamente a las
+obras publicadas en forma de edición impresa o en cualquier otra forma
+análoga de reproducción.
+b) Las disposiciones del presente artículo se aplicarán igualmente a
+la reproducción audiovisual de fijaciones audiovisuales efectuadas
+legalmente y que constituyan o incorporen obras protegidas, y a la
+traducción del texto que las acompañe en un idioma de uso general en el
+país donde la licencia se solicite, entendiéndose en todo caso que las
+fijaciones audiovisuales han sido concebidas y publicadas con el fin
+exclusivo de ser utilizadas para las necesidades de la enseñanza escolar y
+universitaria.
+ARTICULO CUARTO
+1) Toda licencia referida al artículo segundo o tercero no podrá ser
+concedida sino cuando el solicitante, de conformidad con las disposiciones
+vigentes en el país donde se presente la solicitud, justifique haber
+pedido al titular del derecho la autorización para efectuar una traducción
+y publicarla o reproducir y publicar la edición, según proceda, y que,
+después de las diligencias correspondientes por su parte, no ha podido
+ponerse en contacto con ese titular ni ha podido obtener su autorización.
+En el momento de presentar su petición el solicitante deberá informar a
+todo centro nacional o internacional de información previsto en el párrafo
+2).
+2) Si el titular del derecho no ha podido ser localizado por el
+solicitante, éste deberá dirigir, por correo aéreo certificado, copias de
+la petición de licencia que haya presentado a la autoridad competente, al
+editor cuyo nombre figure en la obra y a cualquier centro nacional o
+internacional de información que pueda haber sido designado, para ese
+efecto, en una notificación depositada en poder del Director General, por
+el gobierno del país en el que se suponga que el editor tiene su centro
+principal de actividades.
+3) El nombre del autor deberá indicarse en todos los ejemplares de la
+traducción o reproducción publicados en virtud de una licencia concedida
+de conformidad con el artículo segundo o del artículo tercero. El título
+de la obra deberá figurar en todos esos ejemplares. En el caso de una
+traducción, el título original de la obra deberá aparecer en todo caso en
+todos los ejemplares mencionados.
+4) a) Las licencias concedidas en virtud del artículo segundo o del
+artículo tercero no se extenderán a la exportación de ejemplares y no
+serán válidas sino para la publicación de la traducción o de la
+reproducción, según el caso, en el interior del territorio del país donde
+se solicite la licencia.
+b) Para los fines del subpárrafo a), el concepto de exportación
+comprenderá el envío de ejemplares desde un territorio al país que, con
+respecto a ese territorio, haya hecho una declaración de acuerdo al
+artículo 1.5).
+c) Si un organismo gubernamental o público de un país que ha concedido
+una licencia para efectuar una traducción en virtud del artículo segundo,
+a un idioma distinto del español, francés o inglés, envía ejemplares de la
+traducción publicada bajo esa licencia a otro país, dicho envío no será
+considerado como exportación, para los fines del subpárrafo a), siempre
+que se cumplan todas las condiciones siguientes:
+i) Que los destinatarios sean personas privadas, nacionales del país
+cuya autoridad competente otorgó la licencia o asociaciones compuestas por
+esos nacionales;
+ii) Que los ejemplares sean utilizados exclusivamente con fines
+escolares, universitarios o de investigación;
+iii) Que el envío y distribución de los ejemplares a los destinatarios
+no tengan fines de lucro;
+iv) Que el país al cual los ejemplares hayan sido enviados haya
+celebrado un acuerdo con el país cuyas autoridades competentes hayan
+otorgado la licencia para autorizar la recepción, la distribución o ambas
+operaciones y que el gobierno de ese último país lo haya notificado al
+Director General.
+5) Todo ejemplar publicado de conformidad con una licencia otorgada
+en virtud del artículo segundo o del artículo tercero deberá contener una
+nota, en el idioma que corresponda, advirtiendo que el ejemplar se pone en
+circulación sólo en el país o en el territorio donde dicha licencia se
+aplique.
+6) a) Se adoptarán medidas adecuadas a nivel nacional con el fin de
+asegurar,
+i) Que la licencia prevea en favor del titular del derecho de
+traducción o de reproducción, según el caso, una remuneración equitativa y
+ajustada a la escala de cánones que normalmente se abonen en los casos de
+licencias libremente negociadas entre los interesados en los dos países
+de que se trate;
+ii) El pago y la transferencia de esa remuneración; si existiera una
+reglamentación nacional en materia de divisas, la autoridad competente no
+escatimará esfuerzos, recurriendo a los mecanismos internacionales, para
+asegurar la transferencia de la remuneración en moneda internacionalmente
+convertible o en su equivalente.
+b) Se adoptarán medidas adecuadas en el marco de la legislación
+nacional para garantizar una traducción correcta de la obra o una
+reproducción exacta de la edición de que se trate, según los casos.
+ARTICULO QUINTO
+1) a) Todo país habilitado para hacer una declaración en el sentido
+de que hará uso de la facultad prevista por el artículo segundo, podrá al
+ratificar la presente Acta o al adherirse a ella, en lugar de tal
+declaración:
+i) Si se trata de un país al cual el artículo 30.2) a) es aplicable,
+formular una declaración de acuerdo a esa disposición con respecto al
+derecho de traducción;
+ii) Si se trata de un país al cual el artículo 30.2) a) no es
+aplicable, aún cuando no fuera un país externo a la Unión, formular una
+declaración en el sentido del artículo 30.2) b), primera frase.
+b) En el caso de un país que haya cesado de ser considerado como país
+en desarrollo, según el artículo primero. 1), toda declaración formulada
+con arreglo al presente párrafo conserva su validez hasta la fecha de
+expiración del plazo aplicable en virtud del artículo primero.3l).
+c) Todo país que haya hecho una declaración conforme al presente
+subpárrafo no podrá invocara ulteriormente el beneficio de la facultad
+prevista por el artículo segundo ni siquiera en el caso de retirar dicha
+declaración.
+2) Bajo reserva de lo dispuesto en el párrafo 3), todo país que haya
+invocado el beneficio de la facultad prevista por el artículo segundo no
+podrá hacer ulteriormente una declaración conforme al párrafo 1).
+3) Todo país que haya dejado de ser considerado como país en
+desarrollo según el artículo primero.1) podrá, a más tardar dos años antes
+de la expiración del plazo aplicable en virtud del artículo primero.3),
+hacer una declaración en el sentido del artículo 30.2) b), primera frase,
+a pesar del hecho de no ser un país externo a la Unión. Dicha declaración
+surtirá efecto en la fecha en la que expire el plazo aplicable en virtud
+del artículo primero.3)
+ARTICULO SEXTO
+1) Todo país de la Unión podrá declarar a partir de la firma de la
+presente Acta o en cualquier momento antes de quedar obligado por los
+artículos 1º a 21 y por el presente Anexo:
+i) Si se trata de un país que estando obligado por los artículos 1º a
+21 y por el presente Anexo estuviese habilitado para acogerse al beneficio
+de las facultades a las que se hace referencia en el artículo primero.1),
+que aplicará las disposiciones de los artículos segundo o tercero o de
+ambos a las obras cuyo país de origen sea un país que, en aplicación del
+subpárrafo ii) que figura a continuación, acepte la aplicación de esos
+artículos a tales obras o que esté obligado por los artículos 1º a 21 y
+por el presente Anexo; esa declaración podrá referirse también al artículo
+quinto o solamente al artículo segundo.
+ii) Que acepta la aplicación del presente Anexo a las obras de las que
+sea país de origen por parte de los países que hayan hecho una declaración
+en virtud del subpárrafo i) anterior o una notificación en virtud del
+artículo primero.
+2) Toda declaración de conformidad con el párrafo 1) deberá ser hecha
+por escrito y depositada en poder del Director General. Surtirá efectos
+desde la fecha de su depósito.
