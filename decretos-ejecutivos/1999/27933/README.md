@@ -13,3 +13,4 @@ Declara Interés Público XI Congreso Nacional de Medicina VeterinariaDel 9 al 1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-15 | la propia norma |
+| 2 | 1999-06-15 | SINALEVI (sin norma nombrada) |
