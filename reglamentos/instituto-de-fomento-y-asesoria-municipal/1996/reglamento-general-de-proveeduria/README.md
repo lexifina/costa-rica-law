@@ -1,0 +1,16 @@
+# Reglamento (1996-07-01)
+
+Reglamento General de Proveeduría
+
+- Tipo: Reglamento
+- Número: 2609
+- Fecha: 1996-07-01
+- Ente emisor: Instituto de Fomento y Asesoría Municipal
+- Publicación: La Gaceta N° 167 del 1996-09-03
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48691&param2=51912&param3=1 (ficha 48691)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-09-03 | la propia norma |

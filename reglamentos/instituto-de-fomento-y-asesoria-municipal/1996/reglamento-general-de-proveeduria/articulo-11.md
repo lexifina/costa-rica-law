@@ -1,0 +1,1 @@
+Artículo 11.—Las cotizaciones se abrirán el día y hora señalados, conforme a la invitación, en presencia del Jefe de la Sección de Proveeduría y el Encargado de Compras. En ausencia del Jefe de la Sección de Proveeduría estará presente el Director de la Dirección de Administración Interna.

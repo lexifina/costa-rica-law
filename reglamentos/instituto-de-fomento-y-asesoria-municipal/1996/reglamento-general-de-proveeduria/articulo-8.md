@@ -1,0 +1,5 @@
+Artículo 8—Salvo que no exista en el registro de proveedores una persona calificada para la prestación, evento en el cual se procederá a su selección directa, o que en el mismo registro se cuente con un número menor de oferentes, la contratación de bienes y servicios atenderá las siguientes disposiciones:
+a) Para las compras menores o iguales a c500.000,00 (quinientos mil colones) se invitara a tres proveedores.
+b) Para compras directas mayores a c500.000,00 (quinientos mil colones) se invitará como mínimo a cinco proveedores. La Dirección Ejecutiva propondrá a la Junta Directiva la actualización de esos topes de acuerdo a las necesidades de la Institución.
+c) Previa motivación por escrito del Jefe de la Sección de Proveeduría. en los casos de contratación que por sus características, importancia, necesidad y experiencia institucional, la Administración podrá:
+i. Acudir al registro de proveedores para seleccionar el contratista, procurando brindar en el transcurso del tiempo igual oportunidad a todos.

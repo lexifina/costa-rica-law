@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión de Contratación Administrativa está integrada por el Director de Administración Interna, el Jefe de la Sección de Proveeduría, quien tendrá la coordinación de la misma y un Asesor Legal. Cuando se considere necesario se dará participación en las deliberaciones al Director de la Unidad solicitante y a otros funcionarios de la Institución.
