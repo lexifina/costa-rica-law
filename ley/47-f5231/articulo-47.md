@@ -1,0 +1,1 @@
+ARTÍCULO 47.-Cada facultad tendrá un Decano elegido por el Ejecutivo entre los miembros de ella y un Secretario elegido por la misma. El Decano durará cuatro años, y podrá ser reelegido: el Secretario será permanente, pero amovible a voluntad del Consejo.

@@ -1,0 +1,1 @@
+ARTÍCULO 93.-El Decano nombrara una comision compuesta de cinco miembros, en que deberan incluirse el mismo Decano y el Secretario de la facultad. A presencia de esta comision se hará el sorteo sobre que debe recaer el examen oral.

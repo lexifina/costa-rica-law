@@ -1,0 +1,1 @@
+ARTÍCULO 210.-El Consejo, antes de proceder la eleccion, examinara el libro de conducta que ha debido llevar cada profesor y declarara sin derecho al alumno que hubiere faltado dos veces en cada mes sin justificar el motivo de la inasistencia.

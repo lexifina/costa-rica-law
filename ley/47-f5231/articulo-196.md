@@ -1,0 +1,1 @@
+ARTÍCULO 196.-La duracion de los examenes parciales sera fijada por el Rector segun su prudencia, teniendo en consideracion las materias sobre que recaen. El examen total no durara menos de una hora, y nunca podrán ser examinados dos alumnos al mismo tiempo.

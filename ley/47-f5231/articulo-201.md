@@ -1,0 +1,1 @@
+ARTÍCULO 201.-Los examinadores tendrán tres votos: de distincion, de simple aprobacion y de reprobacion. La mayoría determinar el grado que debe señalarse al alumno: en caso de empate decidirá el presidente.

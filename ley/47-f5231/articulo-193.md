@@ -1,0 +1,1 @@
+ARTÍCULO 193.-La pena de expulsion, de que habla el artículo anterior, se impondra por el Rector en consorcio el profesor cuya clase cursare el alumno y con informe del inspector en cuya sala estuviese, dando antes cuenta al Consejo de instruccion pública para su aprobacion.

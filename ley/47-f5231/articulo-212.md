@@ -1,0 +1,1 @@
+ARTÍCULO 212.-El día que terminen los ex menes se reunirá el Consejo de profesores, y despues de tomar los informes convenientes, procederá la eleccion del alumno que debe llevar el primer premio en cada clase. Hecha esta eleccion se proceder la del alumno que debe llevar el primer premio en cada clase. Hecha esta eleccion se proceder á la del alumno que debe obtener el accecit.

@@ -1,0 +1,1 @@
+ARTÍCULO 153.-A la cuenta que el tesorero debe presentar acompañar a una lista de las personas que deben hacer entregas de dinero en el trimestre que correspondan las cuentas, y la pasar al Rector, para que certifique si está conforme con los libros que debe llevar.

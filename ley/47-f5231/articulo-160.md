@@ -1,0 +1,1 @@
+ARTÍCULO 160.-Los inspectores que tuviesen a su cargo secciones de alumnos que cursan ramos de instrucción elemental, tomarán conocimiento del trabajo que les haya señalado el profesor, les ayudarán con sus consejos y se cerciorarán de que han desempeñado el susodicho trabajo.

@@ -1,0 +1,1 @@
+ARTÍCULO 209.-Los premios de las primeras clases consistirán en una obra relativa al ramo en que el alumno se hubiere distinguido; y los segundos en una obra moral‚ instructiva, designada por el Consejo de profesores.

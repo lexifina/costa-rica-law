@@ -1,0 +1,1 @@
+ARTÍCULO 80.-Para que los ex menes de que habla el artículo anterior sirvan en los grados universitarios, deben rendirse conforme a programas aprobados en la forma que establezca el Consejo de la Universidad y que dichos examenes se rindan en los establecimientos de educacion que estuvieren bajo la inmediata inspeccion del Gobierno y en la forma prescrita en este reglamento.
