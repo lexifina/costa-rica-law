@@ -3,9 +3,7 @@ refiere el artículo 2º de la presente ley, el Instituto Costarricense de
 Acueductos y Alcantarillados tendrá las siguientes atribuciones y
 prerrogativas, además de aquellas que las leyes generales otorgan a los
 establecimientos de su naturaleza:
-a) Estará exento de responsabilidad legal en los casos de daños y
-perjuicios causados por la impureza, irregularidad o insuficiencia, real
-o alegada, del agua suministrada por este organismo;)
+(a) Anulado por resolución de la Sala Constitucional N° 5207-04 de las 14:55 hrs. de 18/05/2004.
 b) Contratar y formalizar todo tipo de documentos, necesarios o
 convenientes, para el mejor logro de sus fines;
 c) Adquirir en propiedad bienes muebles e inmuebles;
