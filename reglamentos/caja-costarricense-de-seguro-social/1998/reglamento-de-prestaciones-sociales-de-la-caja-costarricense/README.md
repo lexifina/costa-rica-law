@@ -14,3 +14,4 @@ Reglamento de prestaciones sociales de la Caja Costarricense de Seguro Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 2000-06-29 | Reglamento 7455 (2000-06-29) |

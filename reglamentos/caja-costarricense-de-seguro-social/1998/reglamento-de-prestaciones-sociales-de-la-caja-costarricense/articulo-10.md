@@ -1,1 +1,2 @@
-Artículo 10.—El gasto que se destine anualmente a cada uno de los programas de Prestaciones Sociales, será determinado por la Dirección de Prestaciones de la Gerencia de Pensiones, de acuerdo con las prioridades institucionales y en función de los recursos financieros disponibles.
+Artículo 10.—El gasto que se destine anualmente a cada uno de los Programas de Prestaciones Sociales, será incluido en el presupuesto de la Gerencia de la División de Pensiones, de acuerdo con las prioridades institucionales y reglamentaciones aprobadas por la Junta Directiva de la institución, y en función de los recursos financieros disponibles.
+(REFORMADO mediante sesión ordinaria N° 7455 celebrada el 29 de junio de 2000.)

@@ -8,6 +8,7 @@ Incluye las acciones dirigidas a orientar a las personas próximas a jubilarse s
 Educación y Capacitación:
 Contempla las acciones que promueven la incorporación de los asegurados y pensionados a grupos socio-productivos, educativos, recreativos y de trabajo voluntario, con el fin de vincularlos con posibles fuentes de recursos, servicios y oportunidades que les permitan ejecutar sus actividades y roles de la mejor manera posible.
 Programas de Estancias y Ayuda Social:
-Comprenden los servicios asistenciales ofrecidos por la Dirección de Prestaciones y las Sucursales. Asimismo el subsidio en dinero para contratar servicios con diversos proveedores, para ubicar en albergues, asilos o centros especializados, a pensionados que se encuentran abandonados o con necesidad de amparo, siempre que no cuenten con recursos económicos suficientes, según estudio social, y que las posibilidades financieras así lo permitan.
+Comprenden los servicios asistenciales ofrecidos por la Gerencia de la División de Pensiones y las Sucursales de conformidad con las reglamentaciones y directrices de la Junta Directiva de la Institución.
 Otros Programas de Prestaciones Sociales:
-Comprenden todos aquellos programas de prestaciones sociales enmarcados en los seguros sociales, que promueven las Gerencias de División.
+Comprenden todos aquellos programas de prestación social de servicios enmarcados en los seguros sociales, que promueva la CCSS, bajo la dirección y administración de la Gerencia de la División de Pensiones, conforme lo disponga la Junta Directiva de la Institución.
+(REFORMADO mediante sesión ordinaria N° 7455 celebrada el 29 de junio de 2000.)

@@ -1,1 +1,2 @@
-Artículo 5°—Los recursos de este fondo, una vez satisfechas sus necesidades, serán invertidos en las mejores condiciones de seguridad y rentabilidad, de conformidad con el reglamento de las reservas del Seguro de Invalidez, Vejez y Muerte.
+Artículo 5°—Los recursos de este fondo, una vez satisfechas sus necesidades, serán invertidos por la Comisión de Inversiones de acuerdo a las políticas y estrategias de inversión anualmente aprobadas por la Junta Directiva de la CCSS en las mejores condiciones de seguridad; rentabilidad y liquidez, de conformidad con el reglamento de reservas del Seguro de Invalidez, Vejez y Muerte.
+(REFORMADO mediante sesión ordinaria N° 7455 celebrada el 29 de junio de 2000.)

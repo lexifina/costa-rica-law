@@ -1,1 +1,2 @@
-Artículo 8°—Bajo ninguna circunstancia se podrán destinar recursos del Fondo al financiamiento de otro tipo de prestaciones o servicios, distintos de los estipulados en el Capitulo III de este Reglamento.
+Artículo 8°—Bajo ninguna circunstancia se podrán destinar recursos del Fondo de Financiamiento de otro tipo de prestaciones o servicios, distintos a las que disponga la administración ejercida por la Gerencia de la División de Pensiones, de conformidad con las reglamentaciones emitidas por la Junta Directiva de la Institución.
+(REFORMADO mediante sesión ordinaria N° 7455 celebrada el 29 de junio de 2000.)
