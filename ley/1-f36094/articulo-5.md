@@ -1,0 +1,2 @@
+Artículo 5°.-La medida y división de los lotes constitutivos de esta concesión, se hará en conformidad con las leyes fiscales, debiendo el agrimensor demarcar vías de comunicación que desemboquen en el camino que se trata de construir y las, demás que sean necesarias, de modo que ningún lote quede enclavado y que haya además libre acceso á los terrenos adyacentes, pertenezcan ó no á la zona baldí.
+Dichas vías se situarán á cada mil metros, salvo inconvenientes topográ6cos que obliguen á aumentar ó disminuir esa longitud, y no deben formar parte del área de los lotes.

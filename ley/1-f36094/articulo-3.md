@@ -1,0 +1,1 @@
+Artículo 3°.-El cupo con que para la construcción del camino han de contribuir los interesados, se fijará en relación con el número de hectáreas que cada uno hubiere solicitado, y los pagos de que se ha hecho mención se verificarán en la Tesorería de la Junta, la cual cubrirá con su producto los gastos que vayan ocurriendo en la construcción del camino.
