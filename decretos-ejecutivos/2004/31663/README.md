@@ -14,3 +14,4 @@ Reglamento de Matrícula y de Traslados de los Estudiantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-08 | la propia norma |
+| 2 | 2004-08-09 | Decreto Ejecutivo 31934 (2004-08-09) |
