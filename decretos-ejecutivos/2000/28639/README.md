@@ -38,3 +38,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 23 | 2001-04-05 | Decreto Ejecutivo 29434 (2001-04-05) |
 | 24 | 2001-04-13 | Decreto Ejecutivo 29433 (2001-04-13) |
 | 25 | 2001-04-18 | Decreto Ejecutivo 29483 (2001-04-18) |
+| 26 | 2001-04-18 | Decreto Ejecutivo 29484 (2001-04-18) |
