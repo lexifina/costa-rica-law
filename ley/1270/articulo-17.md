@@ -1,0 +1,2 @@
+CLAUSULA XVII
+Cualesquiera derechos, privilegios, poderes o deberes conferidos por este convenio tanto al Ministro como al Chief of Field Party, pueden ser delegados por cualquiera de ellos en cualquiera de sus asistentes, a condición de que tal delegado sea satisfactorio para la otra parte de este convenio. Sea que tales delegados se nombren o no, el Ministro y el Chief o Field Party conservarán el derecho de remitir cualquier asunto directamente uno al otro para su discusión y decisión.

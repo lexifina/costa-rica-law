@@ -1,0 +1,2 @@
+CLAUSULA III
+El "Field Party" se integrará en la forma que el Instituto lo juzgue aconsejable y estará bajo la dirección del Chief of Field Party, quien será representante del Instituto en Costa Rica en cuanto al programa a que se refiere este convenio. El Chief of Field Party y los otros miembros del Field Party serán escogidos y nombrados por el Instituto, pero deberán ser de la aceptación del Ministro.
