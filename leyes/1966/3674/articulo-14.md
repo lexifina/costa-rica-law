@@ -1,1 +1,0 @@
-Artículo 14.- La Contraloría General de la República, será la encargada de fiscalización y liquidación de los presupuestos del Movimiento, el que estará en todo sujeto a la Ley de Administración Financiera de la República.

@@ -1,1 +1,0 @@
-Artículo 6º.- El Consejo Directivo nombrará de su seno un Presidente, encargado de convocar y presidir las sesiones y un Vicepresidente que lo suplirá en sus ausencias. Ambos durarán en sus cargos un año y podrán ser reelectos.

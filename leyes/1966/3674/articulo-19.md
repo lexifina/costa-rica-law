@@ -1,1 +1,0 @@
-Artículo 19.- Tanto en la clasificación inicial como en la administración del plan de clasificación y valoración de puestos deberá contarse con el asesoramiento y visto bueno de la Dirección General de Servicio Civil.
