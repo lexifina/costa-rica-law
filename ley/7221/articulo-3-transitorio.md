@@ -1,0 +1,1 @@
+TRANSITORIO III.- Hasta tanto el Colegio de Médicos Veterinarios no los incluya dentro de su respectiva Ley Orgánica, los establecimientos comerciales que fabriquen, importen o distribuyan productos de uso veterinario, deberán contar con los servicios de un Médico Veterinario en calidad de regente, sin incurrir en una doble regencia.

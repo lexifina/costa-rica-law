@@ -1,0 +1,1 @@
+ARTICULO 66.- Los colegiados mayores de sesenta años y aquellos otros que, temporal o permanentemente, a juicio de la Junta Directiva, merecieran trato de excepción estarán exentos de contribuir para el Fondo de Mutualidad y Subsidios; a pesar de ello conservarán todos sus derechos.

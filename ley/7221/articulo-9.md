@@ -1,0 +1,1 @@
+ARTICULO 9.- El Colegio de Ingenieros Agrónomos, por vía de Reglamento, podrá crear otras categorías de miembros, al establecerse otros grados o especialidades en Ciencias Agropecuarias en las universidades o en las escuelas para universitarias de agricultura nacionales o extranjeras. Por la misma vía, se regularán los demás requisitos de incorporación al Colegio.

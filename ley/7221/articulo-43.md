@@ -1,0 +1,1 @@
+ARTICULO 43.- La Asamblea General, con base en el crecimiento de este Colegio y, por exigencias democráticas y prácticas, podrá establecer nuevos procedimientos de elección de la Junta Directiva y de otros órganos del Colegio; ello se definirá mediante un Reglamento Interno, aprobado por la Asamblea General.

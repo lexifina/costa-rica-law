@@ -1,0 +1,2 @@
+ARTICULO 8.- Son miembros temporales del Colegio de Ingenieros Agrónomos, los profesionales en Ciencias Agropecuarias, que ingresen al país para realizar trabajos ocasionales de asesoría o de cooperación técnica.
+Para realizar sus trabajos, además de inscribirse en este Colegio de acuerdo con la presente Ley y su Reglamento, deberán someterse a las condiciones que establezca su Junta Directiva, en cuanto a la índole de la actividad y al tiempo requerido para llevarlo a cabo.

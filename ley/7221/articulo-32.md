@@ -1,0 +1,1 @@
+ARTICULO 32.- Las resoluciones de la Asamblea General se tomarán por mayoría absoluta de los votos de los miembros presentes, excepto la declaración de la firmeza de los acuerdos que se tomarán en la misma sesión y los proyectos de reforma de la Ley Orgánica o su Reglamento, los cuales deberán ser aprobados por no menos de los dos tercios de los votos de los miembros presentes.

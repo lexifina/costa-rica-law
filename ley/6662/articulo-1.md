@@ -1,4 +1,6 @@
+(Derogado)
 Ley Nº 6662
+(Esta ley fue derogada por el artículo 72 de la Ley Orgánica del Colegio de Ingenieros Agrónomos, aprobada mediante ley N° 7221 del 6 de abril de 1991)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 Artículo 1º.- Adiciónase al artículo 2º de la ley número 3855 del 6 de abril de 1967, un nuevo inciso, cuyo texto será el siguiente:

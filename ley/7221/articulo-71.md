@@ -1,0 +1,1 @@
+ARTICULO 71.- El Colegio de Ingenieros Agrónomos reconocerá las especialidades en las diferentes ramas de las Ciencias Agropecuarias, para promover el interés de ellas, mediante acuerdos dictados por la Junta Directiva, con fundamento en la aprobación y reconocimiento de estudios realizados en la materia por las universidades del país o por el organismo autorizado por ellas.

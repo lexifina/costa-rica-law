@@ -1,0 +1,1 @@
+ARTICULO 53.- El Director Ejecutivo y el Fiscal Ejecutivo son funcionarios miembros de este Colegio, nombrados por la Junta Directiva; están subordinados a la Junta Directiva. Sus funciones, sus deberes y sus atribuciones se establecerán en el Reglamento de esta Ley.

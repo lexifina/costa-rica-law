@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Los peritos y tasadores que laboran en alguna institución de la Administración Pública, que a la fecha de promulgación de esta Ley estén realizando peritazgos y avalúos, podrán continuar haciéndolos, siempre y cuando sigan laborando para la misma institución y se inscriban en el Registro de Peritos y Tasadores del Colegio.

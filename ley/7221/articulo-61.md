@@ -1,0 +1,1 @@
+ARTICULO 61.- Las sociedades de profesionales en Ciencias Agropecuarias, cuando estén constituidas para fines agropecuarios, deberán inscribirse en el registro que, para esos efectos, establecerá el Colegio de Ingenieros Agrónomos; cancelarán, para ello, los derechos de inscripción establecidos en el Reglamento de esta Ley.

@@ -1,0 +1,1 @@
+ARTICULO 25.- Los estudios o la ejecución de proyectos, en el campo de las Ciencias Agropecuarias, que se efectúen en el territorio nacional bajo los auspicios de los gobiernos extranjeros o de las instituciones internacionales, deberán tener una dirección compartida, en igualdad de condiciones, con el personal costarricense debidamente inscrito en este Colegio.

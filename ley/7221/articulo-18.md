@@ -1,0 +1,1 @@
+ARTICULO 18.- La Administración Pública, así como el sector privado, exigirán, para la ejecución de todo acto o de todo hecho jurídico que entrañe ejercicio de las Ciencias Agropecuarias, que los profesionales acrediten su incorporación a este Colegio.
