@@ -1,0 +1,1 @@
+Artículo 2°.- Si no fuera posible la venta total de los bonos, o si sólo se realizara está parcialmente, la Tesorería Nacional tratará de hacer efectiva la erogación que aquí se autoriza, mediante lo dispuesto en el artículo 7° de la ley citada anteriormente.
