@@ -1,0 +1,1 @@
+Artículo 145.- El Poder Ejecutivo, si de los estudios que haga la Secretaría de Trabajo y de Previsión Social resulta mérito para ello, podrá fijar límites inferiores a los del artículo 136 para los trabajos que se realicen en el interior de las minas, en las fábricas de vidrios y demás empresas análogas.
