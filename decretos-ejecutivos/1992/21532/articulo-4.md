@@ -1,0 +1,10 @@
+CAPITULO II
+De los objetivos del Sector Vivienda y Asentamientos Humanos
+Artículo 4°-El Sector Vivienda y Asentamientos Humanos tendrá los siguientes objetivos:
+a) Facilitar y proveer gradualmente a la población el uso y acceso a asentamientos humanos bien estructurados y provistos de los espacios públicos y privados adecuados para la vida económica, social y cultural de sus habitantes.
+b) Lograr una mayor eficacia y eficiencia de las instituciones componentes del Sector, mediante el impulso a la descentralización administrativa y funcional de sus estructuras, en coordinación con el resto del Sector Público, favoreciendo en este proceso la mayor participación de los gobiernos locales.
+c) Atender prioritariamente a los sectores sociales más necesitados, en especial aquellos localizados en urbanizaciones improvisadas, tugurios y áreas peligrosas o nocivas.
+ch) Promover la integración y participación de los sectores sociales afectados por el problemas habitacional en la solución de éste, aprovechando los recursos humanos, materiales y organizativos de las comunidades.
+d) Adecuar el ordenamiento y expansión de los asentamientos humanos atendiendo a las directrices de planificación nacional, regional, metropolitana, urbana y rural, emanadas del Plan Nacional de Desarrollo Urbano y considerando la necesaria compatibilidad entre la producción de vivienda y los servicios de infraestructura física.
+e) Velar por el desarrollo planificado de los asentamientos humanos, de modo que se respete y mejore el ambiente natural y construido, buscando la mayor participación de la población.
+f) Facilitar la adquisición de vivienda propia, principalmente a las familias de bajos ingresos en las áreas rurales y urbanas del país, de acuerdo con las expectativas y los esfuerzos de los futuros beneficiarios, por medio del Sistema Financiero Nacional para la Vivienda, promoviendo la participación de Instituciones Autónomas como el Instituto Nacional de Seguros, la Caja Costarricense del Seguro Social, el Instituto Costarricense de Electricidad, así como cualquier otra institución pública o privada que implemente programas de vivienda para sus empleados.
