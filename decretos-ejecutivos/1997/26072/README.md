@@ -15,3 +15,4 @@ Marco regulador de la oferta educativa de los colegios nocturnos académicos y d
 | --- | --- | --- |
 | 1 | 1997-02-17 | la propia norma |
 | 2 | 1997-07-22 | Decreto Ejecutivo 26223 (1997-07-22) |
+| 3 | 1998-04-24 | Decreto Ejecutivo 27057 (1998-04-24) |
