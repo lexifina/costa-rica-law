@@ -98,3 +98,5 @@ Expediente Nº 14.460, Reforma al libro II, del título II, sección I del Códi
 Expediente Nº 14.942, Ley del Ombudsman en la prensa nacional.
 Expediente Nº 15.079, Ley de acceso a la información para la transparencia en la gestión pública.
 Expediente Nº 15.348, Creación del Registro de Delincuencia de personas que han cometido delitos y contravenciones contra menores de edad (Ley de Kattia y Osvaldo).
+Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31328 de 20 de agosto de 2003, publicado en La Gaceta N° 167 de 01 de setiembre de 2003, en el siguiente sentido:
+Expediente N° 15.372, Ley de democratización de la economía costarricense, generación de prosperidad y lucha efectiva contra la pobreza mediante la activación económica.
