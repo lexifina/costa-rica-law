@@ -1,0 +1,1 @@
+Artículo 3°—La cabecera del nuevo distrito será la villa de Cóbano y lo compondrán además los poblados siguientes: San Ramón Sur, Pavón, Santa Fe, Betel, Santa Clemencia, Pánica, San Pedro, Tambor, Abuela, Florida, Ario (Manzanillo), Respingue, Río Negro, Santiago, Montezuma, Delicias, San Isidro, Santa Teresa, Carmen, Mal País, Cabuya.
