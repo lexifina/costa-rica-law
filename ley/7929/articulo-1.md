@@ -103,7 +103,7 @@ Hecho en San José, Costa Rica, el primero de diciembre de 1998, en dos textos, 
 POR EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA: | POR EL GOBIERNO DE LOS ESTADOS UNIDOS DE AMÉRICA:
 Juan Rafael Lizano Sáenz Ministro de Gobernación, Policía y Seguridad Pública República de Costa Rica | Thomas J. Dodd Embajador Embajada de los Estados Unidos De América
 FIRMADO EN PRESENCIA DE Y ANTE EL TESTIGO DE HONOR Miguel Angel Rodríguez Echeverría PRESIDENTE DE LA REPÚBLICA DE COSTA RICA”
-(*)PROTOCOLO
+(*) PROTOCOLO
 AL ACUERDO ENTRE EL GOBIERNO DE LA REPÚBLICA
 DE COSTA RICA Y EL GOBIERNO DE LOS ESTADOS
 UNIDOS DE AMÉRICA PARA LA COOPERACIÓN PARA
