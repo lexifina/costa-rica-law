@@ -1,0 +1,1 @@
+Artículo 7°—Una vez firmado el contrato, el servidor no podrá ejercer la profesión comprometida con dicha exclusividad, ni actividades relacionadas con ésta o con su cargo, si no es con la institución con quien firmó dicho contrato.

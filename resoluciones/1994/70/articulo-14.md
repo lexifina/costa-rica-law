@@ -1,0 +1,5 @@
+Artículo 14.—Habrá incumplimiento por parte del servidor cuando realice acciones contrarias a lo estipulado en la presente resolución o en el Contrato de Dedicación Exclusiva, que ésta contiene, lo cual acarreará las siguientes sanciones:
+a. La resolución inmediata del contrato, y reintegró al Estado de las sumas otorgadas por concepto de Dedicación Exclusiva, cuando se incumpla lo establecido en el artículo 7, de esta resolución. En este caso, el servidor no podrá firmar un nuevo contrato con la Administración por un periodo de dos años a partir de la fecha de dicha suspensión.
+b. Amonestación por escrito, para el servidor que se acoge a las excepciones que se indican en el artículo 11 inciso c), y no cumpla con el procedimiento que para ello se establece.
+c. Suspensión por 8 días en caso de que incurra por segunda vez en la falta señalada en el inciso anterior.
+d. El despido se aplicará, sin responsabilidad para el Estado, al servidor que haga incurrir en error a la Administración en la recepción indebida de los requisitos que señala el artículo 3°, inciso a) y cuando por segunda vez, infrinja lo estipulado en el artículo 7°, por considerarse faltas graves.
