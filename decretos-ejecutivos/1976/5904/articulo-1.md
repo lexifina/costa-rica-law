@@ -230,46 +230,66 @@ Fincas de los señores Miguel López Salazar, Vicente López Salazar, Dimas Lóp
 Los límites exactos de estas fincas serán definidos por la Sección de Asuntos Indígenas del ITCO y medidas por el Departamento de Ingeniería Rural de esta Institución.
 (Así adicionada las Fincas de los señores Miguel López Salazar, Vicente López Salazar, Dimas López Salazar, anterior por el artículo 6° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
-La Reserva Indígena de Guaymí de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Coto Brus 3542- I y Piedras Blancas 3542- II.
-La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
-N 34 15 E | 689.52 | 307 800 | 557 050
-N 19 59 W | 877.85 | 308 625 | 556 750
-N 46 26 E | 1 185.58 | 309 500 | 557 550
-N 07 08 W | 403.11 | 309 900 | 557 500
-E Franco | 450.00 | 309 900 | 557 950
-De este punto se sigue aguas abajo por uno de los brazos del río Limón, hasta la unión con éste en coordenadas N 310 525, E 562 525. Se continúa aguas arriba por el río Limón hasta un punto de coordenadas N 310 150, E 564 150. A partir de este punto se sigue con los siguientes rumbos, distancias y coordenadas:
-N 08 08 E | 353.55 | 310 500 | 564 200
-N 21 48 W | 269.26 | 310 750 | 564 100
-N 63 26 E | 111.80 | 310 800 | 564 250
-E Franco | 250.00 | 310 800 | 564 500
-S 55 00 E | 610.33 | 310 450 | 565 000
-De este punto se sigue con rumbo S 71 34 E, una distancia de 158 metros hasta el río Limón en coordenadas N 310 400, E 565 150, se sigue aguas arriba por éste, hasta el punto N310 150, E 565 650, se sigue con rumbo SE al punto de coordenadas N310 000, E 567 300, continúa con rumbo SE al punto de coordenadas N 309 650, E 567 800, se sigue con rumbo SW hasta encontrar el río Limón en coordenadas N 309 400, E 567 650, se continúa aguas arriba por éste, hasta su unión con el río Chico, se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes en coordenadas N 307 300, E 568 600, continúa con rumbo SE, por una de las nacientes del río Chico, hasta un punto de coordenadas N 305 000, E 569 525. A partir de este punto se continúa con los siguientes rumbos, distancias y coordenadas:
-S 10 37 W | 406.97 | 304 600 | 569 450
-S 49 24 W | 230.49 | 304 450 | 569 275
-S 07 08 W | 201.56 | 304 250 | 569 250
-S 84 17 W | 502.49 | 304 200 | 568 750
-S 12 32 W | 460.98 | 303 750 | 568 650
-S 53 51 W | 805.06 | 303 275 | 568 000
-N 31 36 W | 381.61 | 303 600 | 567 800
-N 73 18 W | 1 044.03 | 303 900 | 566 800
-S 78 07 W | 970.82 | 303 700 | 565 850
-S 70 34 W | 901.39 | 303 400 | 565 000
-N 53 08 W | 250.00 | 303 550 | 564 800
-S 79 23 W | 813.94 | 303 400 | 564 000
-N 86 38 W | 851. 47 | 303 450 | 563 150
-S 75 58 W | 618.47 | 303 300 | 562 550
-N 50 32 W | 1 101.14 | 304 000 | 561 700
-S 80 08 W | 1 167.26 | 303 800 | 560 550
-N 60 39 W | 917 88 | 304 250 | 559 750
-N 85 14 W | 602.08 | 304 300 | 559 150
-N 59 02 W | 874.64 | 304 750 | 558 400
-N 43 44 W | 795.69 | 305 325 | 557 850
-N 65 55 W | 2 573.91 | 306 375 | 555 500
-N 10 32 W | 1 093.45 | 307 450 | 555 300
-De este punto al punto de origen de la presente descripción, vértice Anguciana en coordenadas N 307 230, E 556 662.
-Área de la Reserva 7 245 Ha. 9 150 m2.
-(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977, se acordó modificar los límites de la Reserva Indígena Guaymí de Coto Brus, de tal manera que se excluya de la Reserva el poblado de Paraíso)
-(Así reformada la Reserva Indígena Guaymí de Coto Brus anterior por el artículo 4° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977)
+La Reserva Indígena Guaymí de Coto Brus, se encuentra en las hojas del Instituto Geográfico Nacional, escala 1 : 50 000, Coto Brus 3 542-1 y Piedras Blancas 3542-11.
+La Reserva se localiza por los puntos, cuyas coordenadas son:
+Vértice Anguciana N 307 230, E 556 662.
+307 800 557 100
+308 800 556 700
+309 500 557 550
+310 000 557 500
+309 900 558 000
+De este punto se sigue aguas abajo por uno de los brazos del río Limón, llamado río Caballo o Modori, hasta el punto de coordenadas N 309 800, E 559 900. A partir de este punto se continúa con las siguientes coordenadas:
+310 600 559 700
+310 700 560 200
+310 450 560 550
+310 500 561 350
+309 500 561 750
+De este punto se sigue aguas abajo por el brazo del río Limón, llamado río Caballo, hasta el punto de coordenadas N310 200, E 562 650. De aquí al río Limón en coordenadas N 310 350, E 562 950, se sigue aguas arriba por el río Limón, hasta el punto de coordenadas N 310 150, E 564 150.
+A partir de este punto se sigue con las siguientes coordenadas:
+310 500 564 200
+310 700 564 100
+310 750 564 250
+310 700 564 900
+310. 575 565 150
+310 650 565 450
+310 450 565 500
+De este punto se sigue aguas arriba por un afluente del río Limón, llamado Quebrada Brus Malis, hasta el punto de coordenadas N 310 300 E 565 950. A partir de este punto se sigue con las siguientes coordenadas:
+310 250 566 000
+310 150 565 850
+309 950 566 050
+310 100 566 750
+309 850 567 450
+309 400 567 100
+De este punto se continúa aguas arriba por el río Limón hasta la unión con el río Chico; se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes en coordenadas N 307 300, E 568 600. Continúa con rumbo SE, por una de las nacientes del río Chico, llamado Copey, hasta un punto de coordenadas N 305 200, E 568 050. Se continúa aguas arriba por el río Chico, hasta su nacimiento en coordenadas N 303 850, E 568 300.
+A partir de este punto se continúa con las siguientes coordenadas:
+303 650 568 450
+303 300 568 050
+303 550 567 850
+303 750 567 300
+303 850 566 700
+303 800 566 150
+303 350 565 000
+303 500 564 850
+303 350 563 750
+303 350 562 500
+303 950 561 700
+303 800 560 450
+304 150 560 000
+304 450 558 700
+305 350 557 800
+306 350 555 550
+307 400 555 350
+De este punto, al punto de origen de la presente descripción, vértice Anguciana en coordenadas N 307 230, E 556 662.
+Área aproximada de la Reserva Indígena Guaymí: 7 500 Ha".
+(*)La Reserva Indígena de Guaymí de Coto Brus, se compone de los caseríos siguientes:
+1) Brus Malis: de río Chico a Quebrada Pita, incluyendo Villa Palacios (Kobidini).
+2) Kigari (o Pita) : de Quebrada Pita a Caño Bravo;
+3) Ibiari (Caño Bravo) : entre Caño Bravo y Quebrada Caballo (Modori) ; y
+4) Modori (Paraíso) : al Norte de Quebrada Caballo.
+(*) (Así adicionado los caseríos anteriores por el artículo 4° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se acordó modificar los linderos de la Reserva Indígena Guaymí de Coto Brus, a fin de incluir en ella al grupo indígena de Paraíso y excluir los Altos del Cerro Paraguas)
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó qie la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
 RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
 (Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica")
 La Reserva Indígena Guaymí de Conte-Burica se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541 - II, Río Caña Blanca 3540 - I, Laurel 3641 III, Puerto Armuelles 3640 - IV.
