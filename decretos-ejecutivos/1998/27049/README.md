@@ -14,3 +14,4 @@ Crea la Comisión Técnica para la Prevención , Combate de las Plagas y Enferme
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-11 | la propia norma |
+| 2 | 2000-09-12 | Decreto Ejecutivo 28998 (2000-09-12) |
