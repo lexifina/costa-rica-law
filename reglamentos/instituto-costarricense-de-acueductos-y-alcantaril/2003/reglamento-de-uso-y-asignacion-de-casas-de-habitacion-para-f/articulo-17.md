@@ -1,0 +1,1 @@
+Artículo 17.—En el evento en que el funcionario fallezca, los bienes del causante se podrán a la orden del Albacea que se nombre al efecto, mientras ello ocurra, se levantará un acta que junto con testigos describa la totalidad de bienes que se dejan en custodia en una bodega.

@@ -1,0 +1,10 @@
+Artículo 2º—Para los efectos de este Reglamento en el futuro se entenderá por:
+AyA: Instituto Costarricense de Acueductos y Alcantarillados.
+Reglamento: Normas jurídicas reglamentarias emitidas por la Junta Directiva de AyA, que regulan el uso de la casa de habitación asignada al funcionario en función de su cargo.
+Administración: Representada por el Presidente Ejecutivo, el Gerente o el Subgerente de AyA.
+Justificación: Solicitud expresa que formula el Director de la respectiva Región a la Gerencia, solicitando la asignación de una casa al servidor, acompañada de la documentación justificativa, las razones técnicas, los atestados del trabajador y certificaciones de su núcleo familiar.
+Responsable: Superior encargado en controlar el cumplimiento de las obligaciones del trabajador, así como las obligaciones relacionadas con el disfrute de la casa de habitación asignada al trabajador.
+Compromiso de Uso de Habitación: Documento suscrito entre la Administración (Gerencia o Subgerencia) y el funcionario al que se le asigna la casa de habitación, en el que se especifican las razones, alcances, limitaciones, obligaciones, compromisos para la asignación de la casa al funcionario.
+Funcionario o Servidor: Aquella persona que ha sido debidamente nombrado en forma permanente trabaja para el AyA, y que para el resguardo del patrimonio institucional, o para el mejor servicio público, en función del trabajo que realiza, AyA le asigna una casa para habitarla con su familia.
+Núcleo Familiar Autorizado: Integrado por el funcionario o la funcionaria, su cónyuge o compañera (o) y descendientes solteros. Excepcionalmente la Administración, podrá previo estudio social que se efectuara al efecto, autorizar que habiten en la casa, los padres o abuelos del funcionario. Por ningún concepto podrán habitar hijos o hijas casadas o en unión de hecho, u otro núcleo familiar ajeno al funcionario.
+Asignación de habitación: La casa de habitación situada en un inmueble propiedad de AyA, donde se encuentran las instalaciones que debe custodiar u operar el funcionario.

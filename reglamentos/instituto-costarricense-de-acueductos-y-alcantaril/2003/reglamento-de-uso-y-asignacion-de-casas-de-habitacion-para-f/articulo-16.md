@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de cualesquiera de las disposiciones reglamentarias o requerimientos institucionales facultará al AyA, a dar por terminado el convenio de asignación de vivienda sin responsabilidad alguna.

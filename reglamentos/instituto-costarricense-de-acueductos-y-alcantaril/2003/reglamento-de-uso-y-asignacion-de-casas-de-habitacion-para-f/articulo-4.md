@@ -1,0 +1,1 @@
+Artículo 4º—Por ningún concepto se le asignará casa a quienes no califiquen según las necesidades directas en la prestación del servicio público, ni tampoco a miembros de la Junta Directiva, Presidencia Ejecutiva, Gerencia, Auditoria y Directores Generales Administrativos.

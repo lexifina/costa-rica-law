@@ -1,0 +1,1 @@
+Artículo 18.—Cada Dirección Regional procederá cada tres meses, a presentar un informe a la Gerencia, de todas las casas que utilizan los funcionarios de AYA, y deberá mantener un inventario permanente. En caso de omitir el informe, la Gerencia deberá amonestar al funcionario, de reiterarse la omisión deberá iniciar procedimiento disciplinario.

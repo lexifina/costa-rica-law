@@ -1,0 +1,3 @@
+Artículo 14.—Solamente podrán habitar casas en inmuebles propiedad de AyA, el funcionario o la funcionaria, nombrados en propiedad y que laboren en forma permanente como encargados o responsables directos de plantas de tratamiento, estaciones de bombeo, responsable de plantel u otras instalaciones que por su naturaleza así lo disponga la administración.
+El funcionario podrá habitar la casa con su cónyuge o compañera (o) y descendientes solteros.
+Excepcionalmente la Administración, podrá previo estudio social que se efectuará al efecto, autorizar que habiten en la casa, los padres o abuelos del funcionario. Por ningún concepto podrán habitar hijos o hijas casadas o en unión de hecho que constituyan otro núcleo familiar.

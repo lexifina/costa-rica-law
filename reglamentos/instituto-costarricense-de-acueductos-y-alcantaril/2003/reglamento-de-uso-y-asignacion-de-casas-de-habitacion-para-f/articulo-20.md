@@ -1,0 +1,2 @@
+Artículo 20.—Se revocan y dejan sin ningún valor ni efecto cualesquiera otras disposiciones que anteceden en la materia. Remítase copia autorizada de este Reglamento a la Contraloría General de la República, para lo que corresponda. Rige a partir de su publicación. Publíquese en el Diario Oficial La Gaceta. Acuerdo N° 2003-393, adoptado en la Sesión Ordinaria N° 2003-075 del día 7 de octubre del 2003.
+Acuerdo firme.

@@ -1,0 +1,1 @@
+Artículo 13.—La Dirección de Recursos Humanos, encomendará a la Unidad correspondiente para que realice los estudios, cuando se brinde casa de habitación, para determinar el cumplimiento de las obligaciones del funcionario a efectos se mantener o dar por terminado el uso de la vivienda.

@@ -1,0 +1,1 @@
+Artículo 8º—El Notario designado, deberá describir en el Convenio las condiciones particulares del uso de la vivienda, ubicación geográfica (Provincia, Cantón, Distrito, caserío o Barrio), nombre del funcionario y su núcleo familiar, justificantes aducidas para otorgar la asignación de la casa y las condiciones a que se somete el funcionario.
