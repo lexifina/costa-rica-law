@@ -14,3 +14,4 @@ Declara Zona Protectora Río Pacuare
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-30 | la propia norma |
+| 2 | 1991-02-28 | Decreto Ejecutivo 20337 (1991-02-28) |
