@@ -14,3 +14,4 @@ Reglamento para la Autorización de Constitución, la Apertura y Funcionamiento 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-07-16 | la propia norma |
+| 2 | 2002-06-11 | Reglamento 305 (2002-06-11) |
