@@ -14,3 +14,4 @@ Reforma al Reglamento sobre Afiliados.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-26 | la propia norma |
+| 2 | 1997-11-26 | Ley 8 |
