@@ -1,0 +1,2 @@
+Artículo 3°- Del producto de los sellos que se ordenan en el artículo 1° se destinará, la mitad, a mejoras y mantenimiento del servicio postal y oficinas de correo de la República y se girará a esa dependencia en la forma y condiciones que determine reglamentariamente el Poder Ejecutivo, conforme se vaya produciendo la renta.
+Para garantizar el destino de este ingreso. El Poder Ejecutivo incluirá en los proyectos de presupuesto las sumas correspondientes al cálculo del probable ingreso de esta tasa, de conformidad con la suma percibida en el período anterior.

@@ -1,0 +1,1 @@
+Artículo 4°- La mitad restante, se dividirá en dos porciones iguales: una de ellas se destinará a la Dirección general de Bienestar Social y se girará en la forma expresada en el artículo anterior. La otra, la girará directamente el Banco Central al Patronato Nacional de la Infancia.
