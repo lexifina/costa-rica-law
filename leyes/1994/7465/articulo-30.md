@@ -1,0 +1,1 @@
+ARTICULO 30.- Se autoriza al Ministerio de Hacienda para efectuar, mediante decreto ejecutivo, los traslados originados en las resoluciones que se emitan por la aplicación del Decreto Ejecutivo No. 22317 MP-H- MIDEPLAN, del 1º de julio de 1993.

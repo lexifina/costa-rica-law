@@ -1,0 +1,1 @@
+ARTICULO 33.- Se autoriza a la Municipalidad de Moravia para variar el destino de la partida aprobada mediante Ley No. 7206, código presupuestario 730-542-7-242-47 del Programa 938, por un monto de trescientos mil colones (¢300.000), destinada al arreglo de la calle El Tornillal, para utilizarla en la construcción de la ermita El Tornillal.

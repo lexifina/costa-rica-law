@@ -1,0 +1,4 @@
+(*) ARTICULO 28.- Los espectáculos esencialmente deportivos solo pagarán un 2,5% del impuesto que pesa sobre los espectáculos públicos no gratuitos, según las Leyes Nos. 3 del 19 de agosto de 1918; 841, del 15 de enero de 1947; 228, del 13 de octubre de 1948 y 3632, del 16 de diciembre de 1965.
+Se considerarán espectáculos esencialmente deportivos los que organicen las federaciones, las asociaciones y los clubes acreditados ante la Dirección General de Educación Física y Deportes, así como los establecimientos de enseñanza.
+Los fiscales de las federaciones, las asociaciones y los clubes deportivos serán responsables, solidariamente, por la correcta recaudación del impuesto, cuyo monto deberán girar en favor del Teatro Nacional, a más tardar dentro de los primeros diez días del mes siguiente a la fecha de realización del espectáculo.
+(*) ANULADO por Resolución de la Sala Constitucional Nº 4907-95 de las 15:27 horas del 5 de setiembre de 1995.
