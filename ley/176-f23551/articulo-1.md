@@ -1,7 +1,6 @@
-(Derogado)
 DECRETA 176.
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
-(Esta norma fue abolida por ley N° 11 del 7 de mayo de 1833)
+(Nota de Sinalevi: Mediante el artículo único de la ley N° 101 del 24 de marzo de 1835, se establece que desde la publicación del decreto antes mencionado comenzará a tener efecto la presente norma.)
 El Jefe Supremo del estado libre de Costa-Rica.
 Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
 La Asamblea Constitucional del Estad o libre de Costa-Rica, considerando que la cuota que han fijado las leyes para el interés por el uso del dinero, no corresponde al que tiene la sociedad en el fomento de la industria y comercio, ha venido en decretar y decreta:
