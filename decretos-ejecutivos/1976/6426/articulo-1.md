@@ -1,0 +1,44 @@
+N°6426-G
+DANIEL ODUBER QUIROS
+PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICIA, JUSTICIA Y GRACIA
+En uso de las facultades que le confieren los artículos 140, incisos 3) y 18) de la Constitución Política y la ley N° 3859 del 7 de abril de 1967.
+Decretan:
+Artículo 1°- Refórmase el Reglamento de la Ley sobre Desarrollo, de la Comunidad 20 de junio de 1967, reformado por los Decretos Ejecutivos, N° 6 de 6 de febrero de 1969, N° 2199-G de 4 de febrero de 1972, N° 2348-G de 8 de mayo de 1972, N° 2498-G de 18 de agosto de 1972, N° 3715-G de 18 de abril de 1974 y N° 4393-G de 3 de enero de 1975, en sus artículos 10 inciso k) 1) 43, 45, 58, 67 y 90, para que en adelante se lean como sigue:
+Artículo 10.- La Dirección estará a cargo de un Director, de libre nombramiento y remoción del Presidente de la República. Para el cumplimiento y remoción del Presidente de la República. Para el cumplimiento de sus funciones contará con un asistente ejecutivo y personal adecuado.
+Sin perjuicio de lo que la ley le asigne, el Director tendrá las siguientes funciones:
+a) Dirigir y administrar la Dirección, conforme a los mandatos de la Ley y el Reglamento respectivo;
+b) Proponer al Consejo un Plan Nacional de Desarrollo de la Comunidad;
+c) Presentar al Ministro designado por el Presidente un Plan anual de trabajo debidamente valorado para fines del Presupuesto Nacional;
+Una vez aprobado se pasará al Poder Ejecutivo para que lo incluya en el Proyecto del Presupuesto de la República;
+d) De acuerdo con el Ministro designado, hacer ante el Servicio Civil los pedimentos de personal para cubrir los diferentes cargos de la Dirección y recomendar los nombres que han de escogerse para los nombramientos, de las ternas, presentadas conforme a la ley y recomendar en su caso, la remoción de ese personal, lo mismo que las sanciones disciplinarias que corresponda;
+e) Presentar al Consejo y Presidente de la República a través del Ministro designado, un informe anual de labores que han de comprender por lo menos, un análisis de la labor realizada, las recomendaciones para el trabajo futuro y un balance del presupuesto de Dirección;
+f) Representar a la Dirección ante los organismos públicos y privados, ya sean nacionales o internacionales;
+g) Coordinar la asistencia técnica y económica internacional de cualquier clase que se dé al país para promover al desarrollo comunal;
+h) Servir de Director Ejecutivo del Consejo y en dicha calidad mantener informado a éste del cumplimiento del Plan Nacional de Desarrollo de la Comunidad, de los acuerdos del Consejo y de los acuerdos de las comisiones consultivas sancionadas por el Consejo.
+i) Presidir el Comité Técnico de la Dirección, organismo de carácter asesor que estará integrado en forma permanente por el Director y los jefes de la División Técnica y de la División de Operaciones, pudiendo participar a solicitud del Director, cualquiera de los jefes de las Unidades de Apoyo o de los jefes de departamento;
+j) Presidir el Comité Técnico de la Dirección, organismos de carácter asesor que estará integrado en forma permanente por el Director y los jefes de Unidad que se encargará de vigilar que las Asociaciones tengan un acceso justificado y eficiente al crédito en el Banco Popular y de Desarrollo Comunal dentro del verdadero proceso de Desarrollo Comunal;
+k) Conforme al artículo 25 de la ley, ejercer por medio de los departamentos de la Dirección, las más estricta vigilancia sobre las asociaciones, comunicar al Ministerio Público los delitos o faltas en que hayan incurrido los miembros de la Junta Directiva, en el ejercicio de sus funciones según el informe que deberán suministrar los funcionamiento encargados de esta vigilancia;
+l) Coadyuvar en la tarea de relaciones y divulgación de la Dirección mediante el Asistente Ejecutivo; y
+m) Las demás que le asigne el Poder Ejecutivo o el Consejo.”
+“ Artículo 43.- La Asamblea General se reunirá una vez al año, en el sitio fecha y hora que establezca la Junta Directiva, para cumplir las funciones indicadas en el artículo anterior. Sesionará también extraordinariamente a solicitud de la mayoría de la Junta Directiva o a solicitud del 10% de los afiliados activos, para conocer asuntos específicos. La Convocatoria se anunciará ante los asociados por los medios se divulgación disponibles y se comunicará a la Dirección, por lo menos, con quince días de anticipación a la celebración de la asamblea. El quórum de las asambleas generales será de la mitad más uno de los afiliados activos. Cuando por cualquier circunstancia no hubiere quorum se convocará en el acto a una reunión a celebrarse una hora después, en la cual la asamblea sesionará válidamente con un mínimo de 20% de los afiliados activos, cuando se trate de asociaciones integrales y de un 40% cuando se trate de asociaciones específicas. Si no alcanzare ese mínimo deberá una nueva convocatoria, con todas las formalidades prescritas anteriormente. Los asistentes deberán firmar el acta respectiva, hasta alcanzar el número necesario para la formación del quórum. Lo resuelto respecto a nombramientos de miembros de la Junta Directiva, tiene apelación para ante la Dirección, dentro de los ocho días hábiles siguientes a su realización.
+La acción puede ser ejercida por cualquier afiliado mayor de edad que haya estado presente en la asamblea.
+“ Artículo 44.- Los acuerdos tomados por la asamblea general relativos a renovaciones totales o parciales de miembros de Junta Directiva y a reformas al estatuto, surtirán sus efectos después de haber sido inscritos en el Registro de la Dirección y deberán constar en el Libro de Actas de Asambleas Generales de la Asociación.
+Tales acuerdos serán tomados por la mayoría de los votos presentes, salvo que el estatuto disponga otra cosa.”
+Artículo 45.- La Junta Directiva es el órgano encargado de dirigir la marcha de la Asociación, conforme a los dispuesto por el estatuto y los acuerdos de Asamblea General. Podrá renovarse total o parcialmente y estará integrada por un mínimo de siete miembros entre los cuales habrá:
+Un Presidente, un Vicepresidente, un Tesorero, un Secretario, un fiscal y dos vocales.
+Los miembros duraran dos años en funciones que comienzan a regir a partir de la fecha de publicación en el Diario Oficial del primer acuerdo de inscripción de la Asociación. Podrán ser reelectos por una sola vez consecutiva o en forma alterna indefinidamente.
+Los miembros de la Junta Directiva no podrán ser removidos de sus cargos durante el periodo para el que han sido elegidos, sin causal que justifique la pérdida de su credencial.
+Artículo 50.- Perderá su condición de miembro de la Junta Directiva quien falte injustificadamente a tres sesiones ordinarias consecutivas o seis alternas, ordinarias o extraordinarias o por la Comisión de actos graves imputables a ellos, que perjudiquen la marcha o el prestigio de la Asociación, a juicio de la Junta Directiva. La cancelación de la credencial de miembros de Junta Directiva deberá ser acordada en asamblea general, convocada al efecto.
+Artículo 58.- Para facilitar el trabajo de la Asociación, la Junta Directiva, puede constituir juntas de vecinos en barrios o vecindarios pequeños. Estas juntas servirán de nexo entre las asociaciones y los sectores de afiliados a que pertenecen.
+Tendrán las siguientes funciones:
+a) Informar constantemente a los asociados del área sobre las diversas actividades de la asociación;
+b) Mantener informada a la Asociación de las necesidades y problemas de su sector y proponer planes para resolverlas en conformidad con los vecinos;
+c) Desarrollar todas las tareas que les encomiende la Junta Directiva; y
+d) Administrar adecuadamente los fondos que les asigne la Asociación y aquellos que se produzcan en las comunidades respectivas.”
+Artículo 67.- Son obligaciones de las Asociaciones:
+a) Llevar en orden los libros a que se refiere el artículo anterior;
+b) Realizar puntualmente las asambleas y las reuniones de la junta directiva; y
+c) Suministrar a la dirección los informes que ésta indique sobre actividades generales y, movimiento económico. Asimismo deberá exhibir los libros de la Asociación y la cuenta bancaria, tan pronto les sean solicitados por la Dirección.
+“ Artículo 90.- En todos los casos de disolución, la Dirección nombrará un liquidador, el cual hará un inventario de los bienes y valores de la Asociación, los que serán administrados por ésta, hasta tanto ella proceda a reorganizar la antigua Asociación, los que serán administrados por ésta, hasta tanto ella proceda a reorganizar la antigua Asociación o a promover la constitución de una que la sustituya.
+El liquidador deberá denunciar ante los tribunales competentes, cualquier delito o falta de que tenga conocimiento en el ejercicio de sus funciones, atribuibles a los miembros de la Junta Directiva”
