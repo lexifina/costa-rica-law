@@ -1,0 +1,1 @@
+Artículo 7º—El precio de venta estimado al consumidor final para motocicletas y cuadraciclos nuevos y usados se establecerá adicionando al costo del importador (valor CIF más impuestos, excepto el impuesto de ventas), un margen de valor agregado del veinticinco por ciento (25%), estimado para la etapa entre éste y el consumidor final.

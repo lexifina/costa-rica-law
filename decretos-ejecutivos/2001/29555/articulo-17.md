@@ -1,0 +1,1 @@
+Artículo 17.—Se deja sin efecto únicamente para los cuadraciclos contemplados en la partida arancelaria 87.03, las disposiciones contenidas en el Decreto Ejecutivo Nº 29265-H del 24 de enero del 2001 y en el Decreto Ejecutivo Nº 29346-H del 2 de marzo del 2001.
