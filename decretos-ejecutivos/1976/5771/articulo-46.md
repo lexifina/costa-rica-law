@@ -21,4 +21,5 @@ n) Extralimitarse en sus funciones o deberes que les están encomendados y tomar
 ñ) Manejar los vehículos del Ministerio sin estar autorizado para ello o sin tener licencia;
 o) Alterar las tarjetas o libros de asistencia, o marcar la tarjeta de otro empleado;
 p) Dejar sin cancelar deudas adquiridas por alimentación o por pasajes en aquellos lugares visitados en el desempeño de funciones derivadas de su cargo; y
-q) Cualquier otro proceder contrario a la moral y buen nombre que necesariamente debe poseer todo empleado del Ministerio.
+q) Utilizar durante la jornada de trabajo o fuera de ella, el equipo electrónico del Estado para observar o reproducir pornografía o exhibir material pornográfico dentro de las instalaciones del Ministerio.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29999 del 16 de noviembre de 2001)
