@@ -1,1 +1,0 @@
-Artículo 13.- Prohíbese divulgar la identidad de un menor sujeto a la jurisdicción tutelar. Los funcionarios, los empleados, los particulares y los responsables de los medios de divulgación que violen esta regla serán penados, de acuerdo con el artículo 337 del Código Penal.

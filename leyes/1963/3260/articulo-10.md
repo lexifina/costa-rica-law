@@ -1,2 +1,0 @@
-Artículo 10.- La declaratoria de inimputabilidad o de exención de pena, en favor de menores, no perjudicará el ejercicio de la acción civil contra ellos, por los daños y perjuicios que hayan causado, siempre que su alimentación quede asegurada, conforme con esta Ley.
-También estarán obligados a la indemnización correspondiente, los padres, tutores o guardadores, cuando se pruebe que ellos habrían podido evitar el daño o que es notorio su descuido en la guarda del menor.

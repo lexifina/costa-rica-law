@@ -1,1 +1,0 @@
-Artículo 72.- Interpuesta la apelación en tiempo y forma, el juez la admitirá en ambos efectos y remitirá, en un plazo de tres días, el legajo de hechos al Tribunal Superior de Familia correspondiente.

@@ -1,3 +1,0 @@
-Artículo 38.- Cuando se acuerde la internación de un menor, el juez enviará una copia de la resolución dictada, con las observaciones, recomendaciones que considere convenientes y el respectivo informe clínico y social, sea al Patronato Nacional de la Infancia o a la Dirección General de Adaptación Social.
-El envío de esos documentos deberá efectuarse en un plazo no mayor de ocho días, contados a partir de la firmeza de la resolución.
-Cuando, una vez impuesta una medida de internación, el menor llegue a la mayoría de edad, terminará de cumplir la medida en un centro especial que se establecerá para ese fin. Mientras este centro especial no se haya establecido, terminará de cumplir la medida de internación en una sección especializada para estos casos.

@@ -1,1 +1,0 @@
-Artículo 43.- Las medidas tutelares de internación se aplicarán de acuerdo con la gravedad de los hechos y según la situación familiar, socio económica y psicológica del menor. En ningún caso, la internación podrá ser menor de tres meses ni mayor de dos años y durante ese lapso se podrá modificar o suspender la medida preventiva adoptada.

@@ -1,1 +1,0 @@
-Artículo 48.- Una vez iniciada, la acción de los juzgados tutelares de menores continuará hasta que el menor adquiera la mayoría de edad y termine, por tanto, la aplicación de la medida tutelar o el caso sea remitido, en forma definitiva, a otra autoridad judicial, salvo lo dispuesto en el artículo 61 de esta Ley.

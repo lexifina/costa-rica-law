@@ -1,1 +1,0 @@
-Artículo 51.- El modo de practicar las diligencias quedará a la prudencia y al criterio del juez. Todas se harán constar en actas concisas que contendrán, en cada caso, la fecha de la diligencia, su objeto y una síntesis de lo actuado. Estas actas deberán ser firmadas por el juez y por su secretario.

@@ -1,1 +1,0 @@
-Artículo 67.- Todo expediente debe estar listo para resolver, en el término de treinta días hábiles a partir del momento en que el menor fue puesto a disposición del juez; en casos excepcionales, el juez prorrogará ese término por treinta días hábiles más para lo cual dejará constancia en los autos. El incumplimiento de esta norma será sancionado disciplinariamente.

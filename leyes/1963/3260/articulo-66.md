@@ -1,1 +1,0 @@
-Artículo 66. - Los jugados tutelares, a fin de obtener cualquier clase de datos, practicar sus diligencias y aplicar las medidas conducentes, podrán solicitar el auxilio, que no podrá serles negado, de cualquier institución, organismo u oficina del Estado. También podrán solicitar el auxilio de los establecimientos mencionados en el artículo 36 de esta Ley.

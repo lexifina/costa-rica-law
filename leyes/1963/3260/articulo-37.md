@@ -1,1 +1,0 @@
-Artículo 37.- La internación total sólo procederá en casos de extrema gravedad, cuando la familia del menor sea notoriamente inconveniente para su debido tratamiento y no se pueda recurrir a la libertad asistida, al depósito en un hogar sustituto ni dejarlo en libertad. En todo caso, el juez deberá fundamentar debidamente la resolución.

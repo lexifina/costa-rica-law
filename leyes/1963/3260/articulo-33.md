@@ -1,1 +1,0 @@
-Artículo 33.- La libertad asistida podrá confiarse al Patronato Nacional de la Infancia o a otra institución u organización social, pública o privada, debidamente calificada para ese efecto y preferiblemente del lugar de residencia del menor.

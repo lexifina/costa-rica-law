@@ -1,1 +1,0 @@
-Artículo 47.- Siempre que, por cualquier conducto establecido por la ley, llegue a conocimiento del juez algún hecho imputable a un menor, de los señalados en el artículo 1º de esta Ley y deba procederse de oficio, el juez, sin más trámite, hará comparecer al menor y, de ser posible, a sus representantes y ordenará instruir las diligencias que correspondan.

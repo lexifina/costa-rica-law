@@ -1,2 +1,0 @@
-Artículo 35.- La internación del menor podrá realizarse, en forma total o parcial, en el establecimiento o la institución que el juez acuerde, para su readaptación social o para su recuperación, física o mental.
-La internación total consiste en que el menor pase el día y la noche en la institución o bajo su dependencia. La internación parcial es la permanencia en la institución sólo de día o de noche.

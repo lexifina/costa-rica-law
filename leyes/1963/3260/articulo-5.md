@@ -1,1 +1,0 @@
-Artículo 5º.- Los distintos tribunales quedarán obligados a remitirse, recíprocamente, copias de las pruebas y actuaciones firmadas por el juez y por el secretario; todo ello para mantener, en lo posible, conexos los procesos a los que se refiere el artículo anterior.

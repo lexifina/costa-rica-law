@@ -1,1 +1,0 @@
-Artículo 6º.- Las autoridades judiciales y administrativas que tengan conocimiento de que algún menor se encuentra en las condiciones indicadas en el artículo 1 de esta Ley, estarán obligadas a comunicarse, inmediatamente, al Juez Tutelar de Menores.

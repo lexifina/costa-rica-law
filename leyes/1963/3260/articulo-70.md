@@ -1,2 +1,0 @@
-Artículo 70.- Mientras las medidas tutelares se estén aplicando, el juez revisará el caso, con la periocidad que estime conveniente, pero dicho plazo no podrá exceder de seis meses y esta diligencia siempre se deberá constar, por escrito, con la indicación del resultado obtenido con la medida tutelar.
-Si al efectuar la revisión, surge la necesidad de modificar, suspender o dar por temrinada la aplicación de la medida tutelar acordada, se procederá de conformidad con lo establecido en el artículo 39 de esta Ley.

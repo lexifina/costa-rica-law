@@ -1,1 +1,0 @@
-Artículo 52.- Sin perjuicio de lo establecido en el artículo 71 de esta Ley, las resoluciones de los juzgados tutelares se ejecutarán inmediatamente; no obstante, el juez, de oficio o a petición de parte interesada, decidirá si procede revocar o modificar sus pronunciamientos, en cualquier momento.

@@ -1,1 +1,0 @@
-Artículo 74.- Recibidos los autos por el superior y cencido el término de emplazamiento, se dictará la resolución que corresponda, dentro del mes siguiente, siempre que no se haya ordenado recibir pruebas para mejor proveer. En este caso, el término para dictar la nueva resolución será de un mes, a partir de la recepción de esas pruebas.
