@@ -1,0 +1,2 @@
+Artículo 11.- En caso de que la finca cuya inscripción en el Registro de Propiedad Horizontal se solicita, estuviere hipotecada o embargada, la inscripción no podrá realizarse sin el consentimiento expreso del acreedor.
+En todo caso, al traspasarse un derecho sobre edificios sometidos a propiedad horizontal, se mencionarán en la escritura los gravámenes o garantías que afecten al edificio; la proporción en que éstos pesen sobre los diversos departamentos, pisos o locales, y se indicará que el adquirente conoce tales circunstancias.

@@ -1,0 +1,1 @@
+Artículo 24.- Las mejoras oranamentales en las cosas comunes sólo podrán realizarse con el consenso unánime de los copropietarios. Para las mejoras útiles se requerirá la aprobación de una mayoría que represente no menos del 75% del valor del edificio. Las mejoras necesarias se realizarán por acuerdo de simple mayoría.

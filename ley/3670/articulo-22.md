@@ -1,0 +1,1 @@
+Artículo 22.- Los derechos de cada condueño en las cosas comunes no podrán enajenarse, gravarse o embargarse, ni trasmitirse independientemente; son inherentes a la propiedad del respectivo departamento, piso o local, y en consecuencia inseparables de dicha propiedad.
