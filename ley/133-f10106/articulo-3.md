@@ -1,0 +1,1 @@
+Art 3. La elección de los miembros del Consejo se practicará cada año en los últimos días del mes de diciembre para el 2 de enero entren en ejercicio, prestando antes el juramento de ley en manos del Ministro de Instrucción pública.
