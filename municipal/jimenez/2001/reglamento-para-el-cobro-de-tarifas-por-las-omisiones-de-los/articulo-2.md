@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad coordinará acciones con los síndicos, Concejos de Distrito, Asociaciones de Desarrollo y Comités de Vecinos, para garantizar el cumplimiento de los deberes de los propietarios establecidos en este reglamento.
