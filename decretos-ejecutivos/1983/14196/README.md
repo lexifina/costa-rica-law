@@ -13,3 +13,4 @@ Reglamento Estatuto Fondo Auxilio y Retiro Colegio Médicos y Cirujanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-01-21 | la propia norma |
+| 2 | 1983-01-21 | SINALEVI (sin norma nombrada) |
