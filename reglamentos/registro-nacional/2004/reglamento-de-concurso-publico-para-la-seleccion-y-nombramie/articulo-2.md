@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas: De previo a que el Departamento de Recursos Humanos programe y ponga en marcha la realización del Concurso Público que indica la Ley Nº 8292 para el nombramiento del Auditor y Subauditor Interno, se requerirá de la existencia de un acuerdo tomado por la Junta Administrativa del Registro Nacional.
