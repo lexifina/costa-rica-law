@@ -1,0 +1,2 @@
+Artículo 8°—Destino de los bienes
+A partir del plazo establecido en el artículo 6° de este reglamento, los bienes, valores y activo, en general, propiedad de la empresa, que no se hayan vendido, pasarán a ser propiedad del Ministerio de Obras Públicas y Transpones de conformidad con lo dispuesto por el inciso 6) del artículo 3 de este reglamento, al cesar el mandato de la Junta Liquidadora, traspaso que lo será a título gratuito, una vez que salga publicada la Ley Especial que está en proceso para tal fin.

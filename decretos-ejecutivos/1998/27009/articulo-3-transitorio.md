@@ -1,0 +1,1 @@
+Transitorio III.—De no quedar publicada la Ley Especial que se ha indicado en el presente Reglamento, a la fecha de plazo definitivo, deberá prorrogarse automáticamente el plazo de liquidación definitiva señalado en el artículo 6 de este Reglamento, hasta el día mismo en que se publique dicha Ley Especial.

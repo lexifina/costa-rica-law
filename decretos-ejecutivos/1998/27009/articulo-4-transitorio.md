@@ -1,0 +1,2 @@
+Transitorio IV.—De ser prorrogado, en forma automática, el plazo de liquidación señalado en el artículo 6°, conforme se indica en el transitorio anterior, quedará ampliado el plazo de nombramiento de los señores miembros de la Junta Liquidadora hasta el día en que salga publicada la Ley Especial, sin perjuicio de que la nueva administración que entrará en funciones a partir del próximo 8 de mayo disponga sustituir a los mismos.
+Dado en la Presidencia de la República,—San José. a los siete días del mes de mayo de mil novecientos noventa y ocho.

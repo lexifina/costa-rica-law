@@ -1,0 +1,4 @@
+Artículo 10—Representación judicial
+En todos los procesos judiciales en los que TRANSMESA sea parte o coadyuvante, sea el estado del juicio en que se encuentre al terminar el proceso de liquidación, el Estado, representado por la Procuraduría General de la República se subrogará en todos los derechos y acciones de los cuales la empresa ha sido parte activa o coadyuvante.
+El Estado, mediante la Procuraduría General de la República sustituirá a TRANSMESA en las acciones judiciales, que sin estar prescritas ni caducas, aún no se hayan hecho valer.
+Una vez terminado el proceso de liquidación el Estado asumirá, por medio del Ministerio de Hacienda, según lo dispone el Decreto 17616 del 22 de junio de 19S7, de pleno derecho, las obligaciones actuales y potenciales que TRANSMESA no haya podido honrar en su periodo de liquidación. La ejecución de todo lo que aquí se ordena, quedara sujeta a la publicación de la ley que para tal efecto está en proceso.

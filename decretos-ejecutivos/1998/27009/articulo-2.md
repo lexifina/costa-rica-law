@@ -1,0 +1,3 @@
+Artículo 2°—Junta Liquidadora
+La liquidación de TRANSMESA estará a cargo de la actual Junta Liquidadora, Esta Junta mantendrá sus potestades y competencias que le fijó el Decreto Ejecutivo N° 22253-MOPT, y sus reformas, así como las que expresamente se señalan en el articulo 214 del Código de Comercio, y en el presente reglamento, todo limitado al propósito exclusivo de cumplir con lo establecido en el artículo 1°.
+Durante el proceso de liquidación, la misma normativa se aplicará en lo concerniente a convocatorias a sesión, integración del quórum, número de sesiones y su remuneración, votaciones y otros asuntos atinentes al funcionamiento de la Junta Liquidadora.

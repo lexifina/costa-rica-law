@@ -1,0 +1,2 @@
+Artículo 9°—Custodia de los bienes
+De acuerdo con lo acordado por el Consejo de Gobierno corresponderá al Ministerio de Obras Públicas y Transportes la custodia y disposición de los bienes mencionados en el artículo 3 inciso c) y 8 del presente reglamento mediante los trámites legales, debiendo contar este Ministerio con la aprobación previa de la Ley Especial que esta en proceso para donar dichos bienes a las oficinas del sector público estatal, tanto Central como descentralizado.

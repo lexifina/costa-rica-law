@@ -1,0 +1,2 @@
+Artículo 12.—Financiamiento de programas
+Con las excepciones indicadas en el artículo 11, los fondos así obtenidos se destinarán íntegramente a financiar programas de asistencia técnica y financiera, así como de apoyo para el Transporte Público, siempre bajo el marco legal del fideicomiso que se formará. Los programas financiados deberán hacerse del conocimiento público, todo lo cual deberá estar autorizado por ley.
