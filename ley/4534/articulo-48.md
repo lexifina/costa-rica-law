@@ -1,0 +1,10 @@
+Sección 4. Procedimiento
+Artículo 48
+1. La Comisión, al recibir una petición o comunicación en la que se alegue la violación de cualquiera de los derechos que consagra esta Convención, procederá en los siguientes términos:
+a) si reconoce la admisibilidad de la petición o comunicación solicitará informaciones al Gobierno del Estado al cual pertenezca la autoridad señalada como responsable de la violación alegada, transcribiendo las partes pertinentes de la petición o comunicación. Dichas informaciones deben ser enviadas dentro de un plazo razonable, fijado por la Comisión al considerar las circunstancias de cada caso.
+b) recibidas las informaciones o transcurrido el plazo fijado sin que sean recibidas, verificará si existen o subsisten los motivos de la petición o comunicación. De no existir o subsitir, mandará archivar el expediente.
+c) podrá también declarar la inadmisibilidad o la improcedencia de la petición o comunicación, sobre la base de una información o prueba sobrevinientes.
+d) si el expediente no se ha archivado y con el fin de comprobar los hechos, la Comisión realizará, con conocimiento de las partes, un examen del asunto planteado en la petición o comunicación. Si fuere necesario y conveniente, la Comisión realizará una investigación para cuyo eficaz cumplimiento solicitará, y los Estados interesados le proporcionarán, todas las facilidades necesarias.
+e) podrá pedir a los Estados interesados cualquier información pertinente y recibirá, si así se le solicita, las exposiciones verbales o escritas que presenten los interesados.
+f) se pondrá a disposición de las partes interesadas, a fin de llegar a una solución amistosa del asunto fundada en el respecto a los derechos humanos reconocidos en esta Covención.
+2. Sin embargo, en casos graves y urgentes, puede realizarse una investigación previo consentimiento del Estado en cuyo territorio se alegue haberse cometido la violación, tan sólo con la presentación de una petición o comunicación que reuna todos los requisitos formales de admisibilidad.

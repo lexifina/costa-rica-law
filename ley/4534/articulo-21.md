@@ -1,0 +1,5 @@
+Artículo 21
+Derecho a la Propiedad Privada
+1. Toda persona tiene derecho al uso y goce de sus bienes. La ley puede subordinar tal uso y goce al interés social.
+2. Ninguna persona puede ser privada de sus bienes, excepto mediante el pago de indemnización justa, por razones de utilidad pública o de interés social y en los casos y según las formas establecidas por la ley.
+3. Tanto la usura como cualquier otra forma de explotación del hombre por el hombre, deben ser prohibidas por ley.
