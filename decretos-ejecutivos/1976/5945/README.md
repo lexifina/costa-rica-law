@@ -13,3 +13,4 @@ Reglamento a la Ley Orgánica del Banco Popular y Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-05-06 | la propia norma |
+| 2 | 1976-05-06 | SINALEVI (sin norma nombrada) |

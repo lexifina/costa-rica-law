@@ -2,8 +2,8 @@ Con fundamento en los incisos 3) y 18) del artículo 140 de la
 Constitución Política y ley Nº 4351 de 11 de julio de 1969 y sus reformas,
 DECRETAN:
 El siguiente
-Reglamento a la Ley Orgánica del Banco Popular y de Desarrollo
-Comunal, Nº 4351 de 11 de julio de 1969 y sus Reformas
+REGLAMENTO A LA LEY ORGANICA DEL BANCO POPULAR Y DE DESARROLLO
+COMUNAL, Nº 4351 DE 11 DE JULIO DE 1969 Y SUS REFORMAS
 CAPITULO I
 Disposiciones Generales
 ARTICULO 1º

@@ -31,7 +31,7 @@ anticipación a la fecha del comienzo del período correspondiente.
 Habrá quórum si a la hora señalada para el inicio de la Asamblea se
 encuentran presentes y debidamente acreditados, la mitad más uno de la
 totalidad de los Delegados convocados. En caso contrario, la Asamblea se
-realizará una hora después, con un mínimo del 25% de los Delgados
+realizará una hora después, con un mínimo del 25% de los Delegados
 presentes.
 El acuerdo de nombramiento se hará por simple mayoría. Esta Asamblea
 será coordinada, dirigida y vigilada por un Comité integrado pro el
