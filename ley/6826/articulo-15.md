@@ -1,6 +1,6 @@
 ARTICULO 15.- Liquidación y pago.
 Los contribuyentes citados en el artículo 4 de esta Ley, deben
-liquidar el impuesto a más tardar el último día de cada mes, mediante
+liquidar el impuesto a más tardar el decimo quinto día natural de cada mes, mediante
 declaración jurada de las ventas correspondientes al mes anterior. En el
 momento de presentarla, debe pagarse el impuesto respectivo. La
 obligación de presentar la declaración subsiste aun cuando no se pague el
@@ -17,3 +17,4 @@ las operaciones realizadas por tales establecimientos, y las
 correspondientes a sus casas matrices.
 (Así reformado por el artículo 25 de la Ley de Justicia Tributaria
 Nº 7535 de 1º de agosto de 1995)
+(Así reformado por el artículo 15 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria, de 4 de julio del 2001)
