@@ -1,1 +1,0 @@
-Artículo 2º- Mediante el Programa se ejecutarán acciones de formación humana para el desarrollo, que promuevan la transformación de los patrones culturales que favorecen la discriminación de la Mujer Jefa de Hogar en condiciones de Pobreza, y la superación de estas condiciones.

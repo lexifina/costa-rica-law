@@ -1,1 +1,0 @@
-Artículo 3º- Con recursos provenientes del FODESAF y por los periodos que determine la Comisión del Programa, se apoyará con incentivos y subsidios económicos el proceso de capacitación de las Mujeres Jefa de Hogar en condición de pobreza.
