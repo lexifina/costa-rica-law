@@ -1,0 +1,1 @@
+10.-Dicha Asamblea Distrital será supervisada por una Junta Electoral nombrada por el Concejo Municipal del cantón. Dicha Junta Electoral integrada por dos miembros de cada partido político representado en el Concejo Municipal. Se tomará muy en cuenta los Delegados del Tribunal Supremo de Elecciones de San Ramón.
