@@ -1,0 +1,1 @@
+Artículo 3º—Quedan exceptuados de la obligación de usar tales colores, aquellos cuerpos policiales especializados en los que por la índole de sus funciones, pueda verse comprometida la prevención, la persecución o la investigación de los asuntos de su competencia o bien, que por norma especial o de superior rango, tengan otra especificación.
