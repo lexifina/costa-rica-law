@@ -1,1 +1,0 @@
-Articulo 7°—Las anteriores regulaciones se realizan sin demérito de las competencias y facultades del Ministerio de Agricultura y Ganadería, relativas al establecimiento, aplicación y ejecución de medidas de control de naturaleza zoosanitaria animal, establecidas en la Ley de Salud Animal.
