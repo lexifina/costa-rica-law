@@ -5,7 +5,7 @@ Area Protegida: Es un área geográfica definida, terrestre o costero-
 marina, la cual es designada, regulada y manejada, para cumplir
 determinados objetivos de conservación, es decir producir una serie de
 bienes y servicios determinados (conservación in situ).
-Biodiversidad o Diversidad Biológica: Todas las espe- cies de flora,
+Biodiversidad o Diversidad Biológica: Todas las especies de flora,
 fauna u otros organismos vivos, su variabilidad genética, y los complejos
 ecológicos de los cuales forman parte.
 Conservación: Preservación, mantenimiento, restauración, y uso

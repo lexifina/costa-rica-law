@@ -7,5 +7,5 @@ Bancos de Germoplasma, Viveros, Zoocriaderos y Granjas experimentales.
 b) Regular y controlar la recolección de recursos biológicos de
 hábitats naturales para propósitos de conservación ex situ, para no
 afectar la conservación in situ de los mismos.
-c) Regular con su propia legislación, la comercialización nacional de
-recursos biológicos.
+c) Regular con su propia legislación, la comercialización nacional
+de recursos biológicos.
