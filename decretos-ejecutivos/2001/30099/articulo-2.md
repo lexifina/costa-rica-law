@@ -1,0 +1,1 @@
+Artículo 2º—Que el Ministerio de Cultura, Juventud y Deportes deberá en el plazo de tres meses a partir de la vigencia del presente Decreto realizar los trámites pertinentes ante la Notaría del Estado y ante el Registro Público tendentes a modificar el destino del inmueble, a los efectos de consignar que el mismo será utilizado por la Cartera de Cultura, Juventud y Deportes.
