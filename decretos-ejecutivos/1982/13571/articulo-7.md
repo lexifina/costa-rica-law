@@ -1,0 +1,1 @@
+Artículo 7°—Todas las otras disposiciones establecidas en decretos anteriores y relativas a la reserva indígena de Ujarrás-Salitre-Cabagra, quedan válidas para las tres reservas de Ujarrás, Salitre y Cabagra, en particular los artículos 1° y 2° del decreto N° 6037-G, "La Gaceta" N° 114 del martes 15 de junio de 1976.
