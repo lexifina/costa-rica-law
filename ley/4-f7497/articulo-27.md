@@ -1,0 +1,1 @@
+Artículo 27.-El concesionario ó sus sucesores están obligados á constituír un agente con amplios poderes para tratar judicial ó extrajudicialmente cuanto interese á la Empresa. Tal agente residirá en esta República.

@@ -1,0 +1,1 @@
+Artículo 5-Caso de convenir al concesionario, éste tiene el derecho de construír ramales de ferrocarril, de cualquier punto de la línea hacia cualesquiera pueblos, ciudades ó villas situados entre San José y Puntarenas, así como el de prolongarla hasta la villa de los Desamparados de esta provincia ú otras poblaciones situadas al Sureste de San José.

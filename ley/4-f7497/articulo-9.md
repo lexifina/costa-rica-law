@@ -1,0 +1,1 @@
+Artículo 9°-Si trascurriesen los cuatro años y tres meses en que debe terminarse la obra, sin que el concesionario la ponga al servicio público, pagará en el primer año mil pesos y en el segundo y siguientes cinco mil pesos por cada mes de retraso.

@@ -1,0 +1,3 @@
+Artículo 37.-El depósito de la suma obliga al concesionario mientras no concesión á otro Empresario ó Compañía. Si verificase el traspaso, es al sucesor ó sucesores á quienes toca cumplir para lo de adelante la condición del depósito.
+Al practicar el sucesor ó sucesores el depósito ó garantía, retirará Smith su caución, salvo que por convenio se hiciese un traspaso de la garantía anterior entre el concesionario y el sucesor.
+Si pasando la concesión á otra Empresa no aceptase ésta el derecho de que el Gobierno haga uso de la suma depositada, vence su obligación de restituirla con intereses, al ser firme la traslación del contrato.
