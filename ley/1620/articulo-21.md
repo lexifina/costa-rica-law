@@ -1,1 +1,0 @@
-Artículo 21.- Cuando los deudores de alimentos residieren fuera del lugar asiento de la Agencia Judicial competente en el caso, podrán hacer el envío de las pensiones por medio de las autoridades judiciales de su domicilio, que extenderán el recibo. Este recibo descarga al obligado del apremio o embargo, o retención acordada en su contra.

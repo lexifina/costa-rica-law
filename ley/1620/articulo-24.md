@@ -1,1 +1,0 @@
-Artículo 24.- Si se pidiere y procediere acordar una pensión provisional al obligado, se hará, notificándose esa imposición al mismo, junto con el traslado de la solicitud, para responder a la cual tendrá ocho días hábiles a partir de la notificación. El mismo término de ocho días se concederá al demandado para contestar aun cuando no se trate de pensión provisional.

@@ -1,1 +1,0 @@
-Artículo 25.- La notificación se hará por cédula, conforme el Código de Procedimientos Civiles, y caso de no poder hacerse por ese medio, se hará la misma por medio de publicación en el Boletín Judicial. Si el obligado estuviere ausente del país, se le nombrará un curador a su costa, cuyos honorarios fijará la autoridad correspondiente.
