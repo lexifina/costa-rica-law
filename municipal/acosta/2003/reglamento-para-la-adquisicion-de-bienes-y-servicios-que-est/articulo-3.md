@@ -1,0 +1,1 @@
+Artículo 3º—Cuando considere necesario por cualquier monto, además de la orden de compra podrá exigir la firma de un contrato con los oferentes de bienes y servicios, el cual llevará los timbres de ley. Podrá exigir garantías de cumplimiento.
