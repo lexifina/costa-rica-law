@@ -8,15 +8,16 @@ Precisamente la ley de Protección al Trabajador, dentro de las reformas y modif
 A continuación se presenta la constitución de dicho Comité, el cual basa sus objetivos en la propuesta de coadyuvar en el desarrollo y sostenibilidad del Régimen de Pensiones de IVM.
 Objetivo del Comité
 Análisis de la situación económica actual y proyecciones del Régimen de Pensiones de IVM con el propósito de elaborar recomendaciones a la Junta Directiva de la CCSS que propicien la sostenibilidad y equilibrio financiero.
-Conformación del Comité
-De acuerdo con lo dispuesto por el artículo 39 de la Ley Constitutiva de la Caja Costarricense se Seguro Social, el Comité de Vigilancia estará conformado por Cinco miembros de reconocida solvencia moral, experiencia y conocimientos en el campo económico financiero. El nombramiento de dicho grupo se hará de la siguiente forma:
-a. Tres miembros nombrados por la Junta Directiva de la Caja Costarricense de Seguro Social, quienes no podrán ser miembros del Poder Ejecutivo, Junta Directiva o funcionarios de la Institución.
-b. Un representante del sector patronal.
-c. Un representante del Sector laboral.
-Los representantes del sector laboral y patronal, serán nombrados por la Junta Directiva de CCSS, previa elección democrática que efectúen dichos sectores.
-Para tales efectos el movimiento cooperativo, movimiento solidarista y movimiento sindical, propondrán cada uno un candidato ante la Junta Directiva de la CCSS, de los cuales ésta seleccionará uno.
-Corresponderá a la Junta Directiva de la Caja Costarricense de Seguro Social nombrar al Presidente del Comité de Vigilancia de entre los miembros que hayan sido electos, el cual tendrá por funciones coordinar el trabajo del grupo, con el propósito de que se cumpla lo dispuesto por la Ley de Protección al Trabajador.
-El nombramiento de los miembros del Comité de Vigilancia será pro un período de dos años, siendo posible la reelección cuando así se determine por medio de los procedimientos de selección que se establecen en este Reglamento.
+Conformación del Comité:
+"De acuerdo con lo dispuesto por el artículo 39 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, el Comité de Vigilancia estará conformado por seis miembros de reconocida solvencia moral, experiencia y conocimientos en el campo económico financiero. La conformación del Comité será la siguiente:
+i. Un representante de los Sindicatos
+ii. Un representante del Solidarismo
+iii. Tres representantes del Sector Patronal
+iv. Un representante del Movimiento Cooperativista.
+Los representantes de los distintos sectores indicados en este Reglamento, serán electos de forma democrática, garantizando la participación de todas las agrupaciones del sector. Una vez electo el representante de cada sector, la Junta Directiva de la CCSS procederá a ratificar al Comité para que inicie sus funciones, para lo cual se hará la primera convocatoria a su primera sesión de trabajo. En el seno del Comité se procederá a nombrar al Presidente del mismo, el cual tendrá por funciones la coordinación de las actividades del grupo, con el propósito de que se cumpla lo dispuesto por la Ley de Protección al Trabajador.
+El nombramiento de los miembros del Comité de Vigilancia será por un período de dos años, siendo posible la reelección cuando así se determine por medio de los procedimientos de selección que se indica en este Reglamento. (Así reformado en el artículo 11º de la sesión número 7691, celebrada el 26 de setiembre del año 2002).
+El Comité contará con un Secretario Ejecutivo que será nombrado por la Caja, quien facilitará el trabajo del grupo y será el contacto directo con la Institución. Dentro de sus funciones está la de convocar al Comité, mantener registros de actas y proveer la información necesaria para que el Comité cumpla con sus funciones. Participará en las sesiones del Comité con voz pero sin voto.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 7785 de 28 de agosto de 2003, publicada en La Gaceta N° 181 de 22 de setiembre de 2003.)
 Funciones del Comité
 Las funciones del Comité de Vigilancia del Régimen de Pensiones de Invalidez, Vejez y Muerte son las siguientes:
 a. Presentar anualmente a la Junta Directiva de la Caja Costarricense de Seguro Social un informe de análisis y recomendaciones de la situación actual del Régimen y sus perspectivas de futuro para mejorar su administración y equilibrio económico.
