@@ -1,0 +1,1 @@
+Artículo 6°—Las Unidades de Capacitación del Sector Público serán los organismos de enlace y de coordinación entre las instituciones cubiertas por este decreto y CECADES, y se encargarán de ejecutar las políticas, estrategias y disposiciones que emanen de este, así como de retroalimentarlo en las diversas áreas y acciones que lleve a cabo.
