@@ -1,1 +1,0 @@
-Articulo 19. -Los informes que rindan las Subcomisiones, deberán ser hechos con sumo cuidado y responder estrictamente a la verdad, no teniéndose por cierto, sino aquello que de modo claro se manifieste como tal; de lo que se tenga como dudoso o aparente se informará de modo que no se preste a confusiones.

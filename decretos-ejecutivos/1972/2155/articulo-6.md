@@ -1,1 +1,0 @@
-Articulo 6°-La Comisión contara para la realización de sus fines con el auxilio económico de los Ministerios de Seguridad Publica y de Obras Publicas y Transportes, así como de otras instituciones o empresas interesadas.

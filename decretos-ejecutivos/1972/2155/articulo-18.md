@@ -1,1 +1,0 @@
-Articulo 18.-Serán actividades propias de las Subcomisiones: observar, investigar e informar sobre los aspectos teóricos, prácticos y legales, según corresponda, de los asuntos sometidos a su cuidado y estudio.

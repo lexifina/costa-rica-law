@@ -1,1 +1,0 @@
-Articulo 4°-La Comisión mantendrá estrechas relaciones con la Dirección General de Tránsito, Dirección General de Transporte Automotor, "División de Daños del Instituto Nacional de Seguros" y demás dependencias del Estado que realicen actividades afines a la suya.

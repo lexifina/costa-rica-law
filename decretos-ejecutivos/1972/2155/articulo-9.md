@@ -1,1 +1,0 @@
-Articulo 9°-Para la integración de la Comisión, el Ministerio de Seguridad Publica se dirigirá a los organismos correspondientes, pidiendo las ternas respectivas, las cuales Ie serán enviadas dentro de los quince días siguientes. Si no se presentaren esas ternas hará los nombramientos libremente.
