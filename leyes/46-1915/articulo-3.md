@@ -1,0 +1,1 @@
+Artículo 3°- El reconocimiento del derecho de propiedad obtenido en un Estado, de conformidad con sus leyes, surtirá de pleno derecho sus efectos en todos los demás, sin necesidad de llenar ninguna otra formalidad, siempre que aparezca en la obra cualquiera manifestación que indique la reserva de la propiedad.

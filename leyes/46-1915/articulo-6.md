@@ -1,0 +1,2 @@
+Artículo 6°-Los autores o sus causahabientes, nacionales o extranjeros domiciliados, gozarán en los países signatarios los derechos que las leyes respectivas acuerden, sin que esos derechos puedan exceder el término de protección acordado en el país de origen.
+Para las obras compuestas de varios volúmenes que no se publiquen juntamente, del mismo modo que para los boletines o entregas o publicaciones periódicas, el plazo de propiedad comenzará a Contarse respecto de cada volumen, boletín o entrega o publicación periódica, desde la respectiva fecha de su publicación
