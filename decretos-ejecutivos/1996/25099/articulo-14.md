@@ -1,1 +1,7 @@
-Artículo 14.—La Unidad de Aeropuertos e Infraestructura contara con un responsable y un colaborador inmediato, y ambos sean responsables por los resultados de la gestión. Asimismo, cada uno de los aeropuertos estará a cargo de un responsable que actuará desconcentradamente.
+Artículo 14.—El objetivo y productos de Informática son los siguientes:
+OBJETIVOS
+Promover el desarrollo informático en la Dirección General de Aviación Civil.
+PRODUCTOS
+Plan de desarrollo informático
+Diseño de programas y sistemas
+Mantenimiento de los sistemas

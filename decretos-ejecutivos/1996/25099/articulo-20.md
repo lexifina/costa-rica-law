@@ -1,1 +1,1 @@
-Artículo 20.—Este Decreto deroga, en lo que se le oponga, cualquier disposición normativa de igual o inferior rango en lo que se le oponga.
+Artículo 20.—En materia de recursos humanos cada Unidad Asesora o Funcional contara con las plazas técnicas, administrativas y profesionales que se requieran para su eficaz funcionamiento, debiendo la Autoridad Presupuestaria ajustar el nivel ocupacional y el nivel del gasto en este rubro, en la medida que favorezca el desarrollo de la actividad aeronáutica en Costa Rica.

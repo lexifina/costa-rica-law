@@ -1,1 +1,7 @@
-Artículo 13.—Las Unidades de Servicios Aeronáuticos y la de Servicios de Apoyo contarán con un responsable y un colaborador inmediato, y ambos serán responsables por los resultados de la gestión en cada una de las unidades correspondientes.
+Artículo 13.—La Unidad de Infraestructura tendrá como objetivo productos los siguientes:
+OBJETIVOS
+Proyectar, diseñar y supervisar la ejecución de obras que promuevan el desarrollo de la infraestructura aeroportuaria a nivel nacional, para que se ajuste a la demanda y al grado que requiere la seguridad de las operaciones aéreas.
+PRODUCTOS
+Diseño de obras de infraestructura aeroportuaria
+Supervisión de Obras en ejecución
+Mantenimiento de las instalaciones aeroportuarias.

@@ -14,3 +14,4 @@ Estructura Organizativa de la Dirección General de Aviación Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-06 | la propia norma |
+| 2 | 1998-04-03 | Decreto Ejecutivo 26865 (1998-04-03) |

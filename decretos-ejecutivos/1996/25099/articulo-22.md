@@ -1,0 +1,1 @@
+Artículo 22.—Los ajustes en cuanto a funciones y definiciones de procesos para la Dirección General de Aviación Civil serán realizados por la Unidad de Planificación y serán aprobados por Planeamiento Administrativo del Ministerio de Obras Públicas y Transportes.

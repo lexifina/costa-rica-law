@@ -1,2 +1,1 @@
-Artículo 21.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José. a las 14.00 horas del día 19 del mes de abril de mil novecientos noventa y seis.
+Artículo 21.—Todas las Unidades Asesoras y Funcionales definidas en este Decreto, se conformaran en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de los recursos, de conformidad con las necesidades específicas. La Dirección General del Servicio Civil valorará a cada plaza componente de los equipos de trabajo, considerando aparte del nivel de dificultad y responsabilidad de sus tareas, el carácter especial y ámbito internacional de la actividad aeronáutica.

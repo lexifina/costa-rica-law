@@ -1,1 +1,1 @@
-Artículo 17.—En materia de recursos humanos y para los efectos que se consideren necesarios, rigen los lineamientos y procedimientos que establecen el Código de Trabajo, la Constitución Política, la Dirección General de Servicio Civil, la Autoridad Presupuestaria y la Contraloría General de la República.
+Artículo 17.—Cada una de las unidades asesoras contarán con un responsable y con un colaborador inmediato de éste en cuyo caso ambos serán responsables por los resultados de la gestión en la respectiva unidad.

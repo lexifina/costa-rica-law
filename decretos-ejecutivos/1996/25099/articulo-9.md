@@ -1,6 +1,8 @@
-Artículo 9°—El objetivo y productos de Aeropuertos e Infraestructura son los siguientes:
-Objetivo:
-Proveer en el nivel nacional la infraestructura aeroportuaria así como todos los servicios propios de un aeropuerto.
-Productos:
-Instalaciones en buen estado de funcionamiento
-Servicios de alta calidad, brindados coordinada y oportunamente en procura de un excelente servicio al cliente.
+Artículo 9°—El objetivo y productos de Transporte Aéreo son los siguientes:
+OBJETIVOS
+Análisis de IQB factores económicos involucrados en el transporte aéreo, actividades afines y asesorar a la Dirección General de Aviación Civil en esa materia.
+PRODUCTOS
+Estudios Económicos
+Acuerdos Bilaterales y Multilaterales
+Estudios Estadísticos
+Control del servicio del transporte aéreo

@@ -1,1 +1,1 @@
-Artículo 19.—Los ajustes en cuanto a funciones y definiciones de procesos para el Área de Aviación Civil serán aprobados por Planeamiento Administrativo del Ministerio de Obras Públicas y Transportes.
+Artículo 19.—La Unidad de Servicios de Apoyo asumirá las actividades de Adiestramiento, Servicios de Biblioteca y Archivo General de Aviación Civil.
