@@ -14,3 +14,4 @@ Reglamento para la actividad de Custodia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-22 | la propia norma |
+| 2 | 2003-12-16 | Reglamento 410 (2003-12-16) |

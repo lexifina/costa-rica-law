@@ -1,5 +1,6 @@
 Artículo 4.- Requisitos de autorización y funcionamiento. Las entidades autorizadas que deseen brindar los servicios de custodia deberán reunir los siguientes requisitos de autorización:
-a) Poseer un capital mínimo igual al capital mínimo exigido a los puestos de bolsa, para la custodia de carteras individuales y el capital mínimo exigido a un banco para la custodia de carteras colectivas.
+a) Poseer un capital mínimo igual al capital mínimo exigido a los puestos de bolsa para la custodia de carteras individuales, y el capital mínimo exigido a un banco para la custodia de carteras colectivas. Los custodios de segundo nivel a que se refiere el artículo 19, requerirán del cincuenta por ciento del capital exigido a un banco.
+(REFORMADO parcialmente por la Sesión Ordinaria N° 410, celebrada el 13 de enero de 2004, publicada en La Gaceta N° 20 de 29 de enero de 2004.)
 b) Los directivos, gerentes y representantes legales de las entidades de custodia deberán ser personas de reconocida solvencia moral y que no hayan sido condenados por delitos contra la propiedad o la fe pública. Los gerentes deberán, además, contar con experiencia en materia financiera.
 c) Contar con las instalaciones que les permitan preservar la seguridad física de los títulos valores físicos depositados. Este servicio podrá subcontratarse a otra entidad de custodia autorizada.
 d) Contar con un sistema de registro de los valores custodiados que cumpla con lo siguientes requisitos funcionales:

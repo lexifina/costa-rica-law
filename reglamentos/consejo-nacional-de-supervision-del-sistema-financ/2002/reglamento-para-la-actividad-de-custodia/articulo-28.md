@@ -1,1 +1,4 @@
-Artículo 28.—Vigencia. Rige a partir de su publicación en el Diario Oficial "La Gaceta".
+Artículo 28.—Quiebra de la entidad de custodia. En el caso de la quiebra o insolvencia de la entidad de custodia, los valores que se encuentren custodiados por ella no formarán parte de la masa de bienes.
+La Superintendencia General de Valores nombrará una entidad de custodia temporal que se encargará de los activos en custodia, hasta tanto su titular no designe una nueva entidad de custodia. La entidad de custodia temporal podrá cobrar por su labor las tarifas que correspondan.
+En el caso de la custodia de fondos de inversión, la administradora del fondo deberá designar el nuevo custodio., Este cambio dará derecho a los inversionistas del fondo al reembolso de sus participaciones en los términos contemplados en el Artículo 67 de la Ley.
+(Así modificada su numeración en sesión ordinaria Nº 410 de 13 de enero de 2004, publicada en La Gaceta N° 20 de 29 de enero de 2004, que adicionó los artículo 19 y 20, ordenando correr la numeración, por lo que este artículo pasó del N° 26 al N° 28.)
