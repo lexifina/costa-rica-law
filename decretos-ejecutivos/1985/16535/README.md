@@ -13,3 +13,4 @@ Requisitos Certificado de Aptitud en Servicios Información Aeronáutica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-09-25 | la propia norma |
+| 2 | 1985-09-25 | Decreto Ejecutivo 25073 (1996-03-26) |
