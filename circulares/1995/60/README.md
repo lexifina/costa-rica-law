@@ -13,3 +13,4 @@ Reglas para el envío de expedientes a los distintos Tribunales Superiores del p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-21 | la propia norma |
+| 2 | 1996-06-20 | Circular 32 (1996-06-20) |
