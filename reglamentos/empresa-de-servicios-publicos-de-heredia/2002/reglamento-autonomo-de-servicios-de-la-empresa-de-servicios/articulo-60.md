@@ -1,0 +1,1 @@
+Artículo 60.—La asistencia al trabajo será fiscalizada mediante el registro de asistencia que la Empresa establezca, que todo servidor deberá registrar al comienzo y conclusión de la jornada laboral o bien a la hora que se retire de su centro de trabajo.

@@ -1,0 +1,1 @@
+Artículo 44.—Durante la jornada laboral, los servidores desempeñarán sus funciones en los centros y lugares de trabajo designados por la Gerencia, tendientes a la prestación de los servicios encomendados a la E.S.P.H., S. A., por Ley.

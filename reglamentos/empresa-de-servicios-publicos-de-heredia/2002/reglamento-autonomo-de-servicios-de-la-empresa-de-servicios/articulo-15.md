@@ -1,0 +1,1 @@
+Artículo 15.—Las relaciones de servicio indicadas en el punto b y c del artículo anterior, una vez fenecido el plazo u objeto por el cual el servidor fue contratado se concluirán sin responsabilidad patronal.

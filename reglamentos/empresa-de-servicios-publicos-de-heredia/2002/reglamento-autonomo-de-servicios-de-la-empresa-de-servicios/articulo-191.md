@@ -1,0 +1,1 @@
+Artículo 191.—La Empresa prohíbe y sanciona el acoso sexual como práctica discriminatoria por razón del sexo, contra la dignidad del hombre y la mujer en las relaciones laborales, por lo que este reglamento incorpora la ley número 276 "Ley contra el hostigamiento sexual contra el empleo y la docencia del 30 de enero de 1995".

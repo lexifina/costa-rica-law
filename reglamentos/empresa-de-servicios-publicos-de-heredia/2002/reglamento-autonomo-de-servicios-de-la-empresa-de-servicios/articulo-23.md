@@ -1,0 +1,1 @@
+Artículo 23.—Un puesto que no esté vacante puede ser examinado y revisado las veces que resulte necesario, pero no podrá ser reasignado a una clase de mayor categoría más de una vez en un período de doce meses.

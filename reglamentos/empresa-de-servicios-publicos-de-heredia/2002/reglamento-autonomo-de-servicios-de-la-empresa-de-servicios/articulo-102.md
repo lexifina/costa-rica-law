@@ -1,0 +1,1 @@
+Artículo 102.—El Coordinador de Departamento correspondiente será el encargado de extender los permisos, para aquellos trabajadores que participan en actividades sindicales debidamente legalizadas en la E.S.P.H., S. A., tales como asambleas generales y sesiones de Junta Directiva, entre otras.

@@ -1,0 +1,1 @@
+Artículo 151.—La Gerencia o la Contraloría en su caso, deberá proceder al despido de un trabajador sin responsabilidad patronal, cuando se presente alguna de las causales establecidas en el artículo 81 del Código de Trabajo, o cuando el servidor infrinja alguna de las disposiciones contenidas en este Reglamento y que dicha infracción se considere como falta grave.

@@ -1,0 +1,1 @@
+Artículo 93.—A los trabajadores que ingresan a laborar a la Empresa a partir del 1° de enero de año 1999 y que hayan laborado en instituciones del sector público, no se le reconocerán los años servidos en ellas para determinar el número de días de vacaciones a que tienen derecho y el monto y número de anualidades.

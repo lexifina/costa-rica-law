@@ -1,0 +1,1 @@
+Artículo 118.—El Comité de Evaluación será coordinado y presidido por el encargado del Departamento de Recursos Humanos. Formarán quórum dos de sus miembros titulares. Las decisiones se adoptarán por simple mayoría y en caso de empate quien preside tendrá doble voto.

@@ -1,0 +1,1 @@
+Artículo 178.—El Departamento de Recursos Humanos notificará y ejecutará la resolución que emita la Gerencia o la Contraloría en su caso. Los efectos de dicha resolución empezarán a regir a partir de la fecha en el superior jerárquico le indico que deberá hacerlo en el plazo que corresponda.

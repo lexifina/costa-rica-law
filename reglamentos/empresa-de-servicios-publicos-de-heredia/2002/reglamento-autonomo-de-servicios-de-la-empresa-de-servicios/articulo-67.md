@@ -1,0 +1,1 @@
+Artículo 67.—Quedan relevados de la obligación del registro de asistencia únicamente el Gerente, Asesores, Asistentes, Contralores, Coordinadores de Dirección y de Departamento y aquellos personas que el Gerente estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 94.—Las vacaciones de un trabajador son incompensables salvo las excepciones de ley. Lo relativo a compensación de vacaciones estará regulado además por el Reglamento que rige la materia, aprobado por la Junta Directiva de la ESPH., S. A., en Acuerdo JD 041-2001, de la Sesión Nº 2277 de 19 de febrero del indicado año.

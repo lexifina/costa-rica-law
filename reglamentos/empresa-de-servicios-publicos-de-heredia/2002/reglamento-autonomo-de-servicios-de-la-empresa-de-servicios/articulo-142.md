@@ -1,0 +1,1 @@
+Artículo 142.—La ESPH S.A. estará regulada en lo que a becas y capacitación se refiere mediante el "Reglamento para la adjudicación de becas de estudio y adiestramiento complementario al Personal de la ESPH., S. A.

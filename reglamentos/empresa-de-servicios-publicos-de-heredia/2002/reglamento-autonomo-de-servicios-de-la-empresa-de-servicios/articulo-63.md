@@ -1,0 +1,1 @@
+Artículo 63.—Es responsabilidad de los coordinadores, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores durante la jornada laboral, la cual será fiscalizada por el Departamento de Recursos Humanos.

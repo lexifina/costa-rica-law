@@ -1,0 +1,1 @@
+Artículo 84.—Cuando dejen de existir los motivos y condiciones que originaron el reconocimiento a un servidor del rubro de la disponibilidad, la E.S.P.H., S. A., eliminará en forma inmediata el pago por dicho concepto, no pudiendo alegar el trabajador derechos adquiridos sobre el mismo.

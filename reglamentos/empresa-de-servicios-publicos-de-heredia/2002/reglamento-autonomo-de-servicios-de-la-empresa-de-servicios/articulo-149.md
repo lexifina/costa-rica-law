@@ -1,0 +1,1 @@
+Artículo 149.—Corresponde a la Gerencia ordenar y resolver sobre la amonestación, la suspensión y el despido de un servidor. Iguales facultades contará el Contralor en relación con el personal asignado la Unidad de Contraloría Interna.

@@ -1,0 +1,1 @@
+Artículo 34.—En caso de que los candidatos elegibles incluidos en la nómina no resulten escogidos por la dependencia solicitante, el Coordinador correspondiente deberá justificar por escrito las razones que originan su rechazo, pudiendo el Departamento de Recursos Humanos, ratificar la nómina o enviar una nueva.

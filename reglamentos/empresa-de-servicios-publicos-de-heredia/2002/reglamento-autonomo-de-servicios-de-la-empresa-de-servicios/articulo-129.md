@@ -1,0 +1,1 @@
+Artículo 129.—La E.S.P.H., S. A., entregará cada mes de junio a los servidores nombrados en propiedad, dos uniformes o dos juegos de ropa de trabajo, según sea el caso. En ningún caso se entregarán más de tres uniformes por cada doce meses de prestación ininterrumpida de servicios.

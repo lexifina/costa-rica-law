@@ -1,0 +1,1 @@
+Artículo 16.—En toda relación de servicio por tiempo indefinido habrá un período de prueba no mayor de tres meses naturales, durante el cual cualquiera de las partes podrá ponerle término sin previo aviso y sin responsabilidad de ninguna especie. En caso de que sea la E.S.P.H., S. A., la que ponga término al contrato, debe justificarlo por escrito.

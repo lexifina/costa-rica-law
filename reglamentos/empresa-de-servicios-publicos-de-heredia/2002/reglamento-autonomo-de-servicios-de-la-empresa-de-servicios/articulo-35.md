@@ -1,0 +1,1 @@
+Artículo 35.—Si fracasara el concurso interno, se sacará la plaza vacante a concurso externo, en el que podrá participar cualquier persona que lo desee. La convocatoria se realizará mediante las técnicas y mecanismos que para tal efecto existen y deberá consignar también los datos más relevantes del puesto.

@@ -1,0 +1,1 @@
+Artículo 10.—La Gerencia es la que ejerce la administración general de la E.S.P.H., S. A., y su titular es el funcionario de mayor jerarquía en materia administrativa, contando además con las atribuciones que le concede el artículo 32 de la Ley Nº 7789. Para el ejercicio de sus funciones tendrá las facultades de un apoderado general.

@@ -1,0 +1,1 @@
+Artículo 70.—El salario será pagado por períodos mensuales, con un adelanto quincenal del cincuenta por ciento de su importe total. El pago se hará en días hábiles, para lo cual Recursos Humanos elaborará un calendario de pago para cada año para fijar los días en que se retribuirá el trabajo.

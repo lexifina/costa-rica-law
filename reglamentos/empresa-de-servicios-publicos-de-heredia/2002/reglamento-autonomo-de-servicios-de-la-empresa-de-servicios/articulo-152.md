@@ -1,0 +1,1 @@
+Artículo 152.—El servidor que se considere inconforme con la resolución de la Gerencia o la Contraloría en su caso, podrá interponer dentro de los tres días hábiles siguientes a su notificación, los recursos administrativos de revocatoria ante la Gerencia y de apelación ante la Junta Directiva.

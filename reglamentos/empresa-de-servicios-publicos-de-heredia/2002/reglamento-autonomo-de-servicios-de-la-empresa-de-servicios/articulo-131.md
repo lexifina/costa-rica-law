@@ -1,0 +1,1 @@
+Artículo 131.—El uniforme, la ropa de trabajo o cualquier otra prenda de vestir que suministre la E.S.P.H., S. A., a cualquier servidor, debe ser utilizado por éste únicamente durante la jornada de trabajo. Sólo con autorización superior podrán ser utilizados fuera de ésta, pero en todo caso nunca en días de descanso o feriados.

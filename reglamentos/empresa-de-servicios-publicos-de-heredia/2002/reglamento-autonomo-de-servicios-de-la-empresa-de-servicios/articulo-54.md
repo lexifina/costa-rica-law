@@ -1,0 +1,1 @@
+Artículo 54.—Se considera ausencia la inasistencia injustificada al trabajo durante una jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde, a las ausencias injustificadas.

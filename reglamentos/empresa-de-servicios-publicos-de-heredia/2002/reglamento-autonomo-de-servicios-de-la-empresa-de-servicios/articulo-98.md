@@ -1,0 +1,1 @@
+Artículo 98.—Con el visto bueno de su coordinador o coordinadora inmediato, el servidor podrá solicitar al Departamento de Recursos Humanos un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

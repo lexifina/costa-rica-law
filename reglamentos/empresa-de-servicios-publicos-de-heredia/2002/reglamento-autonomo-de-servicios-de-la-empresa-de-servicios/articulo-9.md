@@ -1,0 +1,1 @@
+Artículo 9º—La E.S.P.H., S. A., está regida por una Junta Directiva nombrada e integrada de conformidad con los términos de la Ley Nº 7789 del 23 de abril de 1998 y sus reformas, teniendo las atribuciones, funciones y potestades que le otorga dicho cuerpo legal.

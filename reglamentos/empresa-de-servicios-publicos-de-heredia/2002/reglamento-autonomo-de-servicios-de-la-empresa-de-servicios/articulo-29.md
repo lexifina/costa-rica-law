@@ -1,0 +1,1 @@
+Artículo 29.—El Gerente y el Contralor de la E.S.P.H., S. A., serán nombrados por la Junta Directiva, de conformidad con lo dispuesto por las leyes y reglamentos respectivos. Los Coordinadores de Dirección serán nombrados directamente por la Gerencia.

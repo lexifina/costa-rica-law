@@ -1,0 +1,1 @@
+Artículo 175.—A partir del momento en que la Gerencia o la Contraloría en su caso, reciba todos los informes y atestados resultantes de la instrucción del procedimiento disciplinario, contará con un plazo improrrogable de un mes para dictar la resolución final.
