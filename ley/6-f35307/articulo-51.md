@@ -1,5 +1,9 @@
 Artículo 51.—Estas pensiones y jubilaciones serán pagadas con las siguientes rentas:
 a) Con 25 céntimos de colón sobre cada boleta, como recargo al impuesto de destace de Instrucción Pública;
+(Nota de Sinalevi: Mediante el artículo 4° de la ley N° 1 del 15 de mayo de 1918, "Exonera de impuesto, fiscal o municipal, la importación de ganado vacuno", se establece lo siguiente:"... Artículo 4°.—El producto del impuesto de siete colones se distribuirá así: setenta y cinco céntimos para la Junta de Educación del distrito donde se haga el destace; veinticinco céntimos para el fondo de pensiones y jubilaciones de maestros de Instrucción Primaria; cuatro colones para la Municipalidad del respectivo cantón, y dos colones para el Tesoro Público.
+A este último corresponderá siempre el sobre-impuesto de tres colones por destace de vacas.
+Las Municipalidades percibirán directamente por medio de las Tesorerías la parte que les corresponde del impuesto; pero no podrán conceder permiso para el destace mientras el interesado no compruebe haber cubierto en la Administración de Rentas Nacionales la parte del Erario Público, de las Juntas de Educación y del fondo de pensiones.
+Quedan así modificados el inciso I°. del artículo 94 de la Ley de Educación n°. XXIV de 26 de febrero de 1886, el inciso a) del artículo 51 de la misma, reformado por ley n°. 59 de 21 de agosto de 1916, y cualquiera otra disposición que se oponga a la presente")
 b) Con el 1% mensual del sueldo que corresponde a los maestros, que será descontado cada trimestre;
 c) Con las sumas que los particulares o asociaciones destinen a este objeto;
 d) El 6 % que corresponde, según ley de 24 de setiembre de 1908, y además el 6 % de interés anual que reconocerá el Tesoro Público sobre las sumas que tenga en administración de dicho fondo de pensiones escolares.

@@ -1,0 +1,1 @@
+Artículo 5°.—Se destina a construcción del Ferrocarril de Guanacaste y a mejora y mantenimiento de la carretera San Carlos a Alajuela todo el importe de esta renta que se perciba en la provincia de Guanacaste y en el cantón de San Carlos, respectivamente.
