@@ -1,0 +1,1 @@
+Art 6°.- Cuidarán las Municipalidades del cumplimiento de las ordenanzas del Hospital y Lazárete, dando cuenta al Gefe Político de los abusos que se noten en esta parte, y de la intervención de los fondos que lo sostienen, y asi mismo estenderán su cuidado a las Casas de Mendigos o de beneficiencia que se mantengan de los fondos del común del Pueblo respectivo.

@@ -1,0 +1,1 @@
+Art 15°.- Los Alcaldes con el Secretario la Municipalidad darán puntual aviso al Gefe Político del recibo de las Ordenes, Decretos o qualesquiera otra disposición que se les comunique y pasándolas a la Municipalidad inmediatamente se harán publicar en el Pueblo las que correspondan, por los medios acostumbrados.

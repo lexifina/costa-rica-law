@@ -1,0 +1,1 @@
+Art 20°.- Los individuos de cada Municipalidad cuando hayan de reunirse en sesión o asistir a las funciones de Tabla en los días que las haya en sus Pueblos deberán presentarse vestidos con la decencia posible, debiendo los Alcaldes primero usar bastón teniendo la presidencia el Alcalde primero nombrado ó el que le subsiga en orden.
