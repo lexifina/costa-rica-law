@@ -1,0 +1,1 @@
+2.- Derogar la Sección IV. "Administración de carteras de terceros mancomunadas" de las Normas Generales para la Administración de Carteras y, en consecuencia, córrase la numeración de las secciones siguientes.
