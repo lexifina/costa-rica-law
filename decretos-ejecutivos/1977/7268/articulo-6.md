@@ -1,0 +1,1 @@
+Artículo 6°—Las fincas "Alto-Pacuare" y "Chirripó-Corina" son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).

@@ -1,0 +1,1 @@
+Artículo 7°—Las fincas y reservas descritas en los artículos 1°, 2°, 4° y 5° del presente decreto tendrán el mismo estatuto que las otras Reservas Indígenas, o sea que todas las disposiciones establecidas en los decretos 5904-G y 6036-G año 1976 y No 6866-G de marzo de 1977 les son íntegramente aplicables.
