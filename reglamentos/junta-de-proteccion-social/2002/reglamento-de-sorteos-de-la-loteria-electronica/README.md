@@ -14,3 +14,4 @@ Reglamento de sorteos de la Lotería Electrónica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-17 | la propia norma |
+| 2 | 2002-09-17 | Reglamento 33 (2002-09-17) |
