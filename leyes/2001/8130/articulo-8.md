@@ -1,0 +1,2 @@
+Artículo 8º—Para acreditar la pertenencia a la quinta categoría, deberá aportarse certificación expedida por la CCSS en la que conste la condición de trabajador del Estado y el tiempo laborado entre 1967 y 1979.
+Los solicitantes que no puedan probar su condición de trabajadores del Estado de conformidad con este Artículo, podrán plantear su solicitud según lo dispuesto para la cuarta categoría en el Artículo 7 de esta Ley.

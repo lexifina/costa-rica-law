@@ -1,0 +1,6 @@
+Artículo 14.—Los parámetros para establecer la indemnización son los siguientes:
+a) Cuando se compruebe solo un daño moral objetivo, el monto de la indemnización no podrá ser superior a un cuarenta por ciento (40%) del monto indicado en el párrafo final de este Artículo.
+b) Cuando se compruebe solo daño físico, el monto de la indemnización será el siguiente:
+1. En los casos de las categorías 1, 2 y 3 del Artículo 3, el monto de la indemnización no podrá exceder de un sesenta por ciento (60%) del monto indicado en el párrafo final de este Artículo.
+2. En los casos de las categorías 4 y 5 del Artículo 3, el monto de la indemnización será igual al que le corresponda cancelar al INS, en aplicación de la legislación de riesgos del trabajo.
+En ningún caso, el monto total de la indemnización que se reconozca de conformidad con esta Ley, será superior a la suma de seiscientos ochenta y tres mil colones (¢683.000,00), determinada según el estudio actuarial elaborado por el INS en el que se consideró el salario devengado por los trabajadores bananeros calculado al valor actual. Este monto deberá ser indexado en el momento en que se reconozca el derecho a la indemnización prevista en esta Ley.

@@ -1,0 +1,1 @@
+Artículo 15.—Autorizase al INS para que cancele las indemnizaciones referidas en esta Ley con los recursos de la reserva de reparto del seguro de riesgos del trabajo y/o cualquier otra reserva que el INS considere conveniente utilizar para tal fin. En ningún caso, el INS podrá poner en riesgo los seguros que administra para hacer frente a lo previsto en esta Ley.

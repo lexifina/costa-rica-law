@@ -1,0 +1,1 @@
+Artículo 20.—Autorizase a la CCSS para que fortalezca al personal de salud encargado de efectuar los diagnósticos de los afectados por el DBCP, así como la atención de los daños ocasionados a la salud por este producto, en los diferentes niveles de atención.

@@ -1,0 +1,3 @@
+Artículo 10.—Verificado el cumplimiento de los requisitos, la unidad ejecutora, mediante resolución aprobatoria, remitirá el expediente respectivo al INS en un plazo de cinco días hábiles.
+Si la unidad ejecutora estima que no se cumplen los requisitos fijados para cada categoría, el expediente pasará al Departamento Legal del Ministerio de Trabajo, para que se pronuncie sobre la admisibilidad de la solicitud, mediante los procedimientos administrativos correspondientes.
+Recibido el expediente, si el INS considera que no se presentan las condiciones de admisibilidad previstas por la ley, señalará sus objeciones y devolverá el expediente al Ministerio de Trabajo, para que proceda conforme al párrafo anterior.

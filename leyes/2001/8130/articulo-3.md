@@ -1,0 +1,6 @@
+Artículo 3º—Para efectos de esta Ley, se establecen las siguientes categorías:
+1. Ser o haber sido, durante el periodo comprendido entre 1967 y 1979, cónyuge de un trabajador al que el INS le haya reconocido el derecho a una indemnización, en razón de haber sido afectado por el uso del DBCP.
+2. Ser hijo, nacido en el periodo 1967-1979, de un trabajador a quien el INS le haya reconocido el derecho a una indemnización, en razón de haber sido afectado por el uso del DBCP.
+3. Ser compañera de un trabajador o compañero de una trabajadora a quien el INS le haya reconocido el derecho a una indemnización, en razón de haber sido afectado por el uso del DBCP, siempre que la relación haya ocurrido entre 1967 y 1979.
+4. Haber sido trabajador durante el periodo 1967-1979 de una empresa bananera que haya utilizado el DBCP, a quien el INS no le haya reconocido el derecho a una indemnización, en razón de haber sido afectado por el uso del DBCP y que no pueda formular el reclamo de indemnización con fundamento en la legislación de riesgos del trabajo.
+5. Haber sido un trabajador en la estación experimental Los Diamantes durante el periodo de 1967 a 1979, a quien el INS no le haya reconocido el derecho a una indemnización, en razón de haber sido afectado por el uso del DBCP.

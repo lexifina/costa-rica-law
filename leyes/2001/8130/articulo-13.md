@@ -1,0 +1,1 @@
+Artículo 13.—Si los estudios realizados por el INS demuestran la existencia de un daño físico y/o moral objetivo, vinculado con el uso del DBCP o asociado a éste, dicha Institución emitirá la resolución administrativa en la que se haga el reconocimiento de la indemnización. En caso contrario, se procederá a ordenar el archivo del expediente.

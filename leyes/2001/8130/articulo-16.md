@@ -1,0 +1,1 @@
+Artículo 16.—Excluyese de la aplicación de estas disposiciones a los trabajadores que ya hayan sido indemnizados por el INS por haber sido afectados por el DBCP o los que, a la fecha de vigencia de esta Ley, tengan reclamos presentados por este concepto, con fundamento en la legislación de riesgos del trabajo.
