@@ -5,4 +5,5 @@ Un 75% de la suma calculada en la forma que se indica en el inciso anterior para
 Un 50% de esa suma para los que hubieren servido quince años por lo menos; y
 Un 33% de esa suma para quienes hubieren servido diez años por lo menos.
 c) Si se tratare de servicios prestados en instituciones particulares, se hará el cálculo a que se refiere el inciso a), tomando como base el sueldo de categoría más los recargos de ley durante ese mismo período; y
-d) La jubilación extraordinaria se calculará por períodos de tres años de servicios a razón de un 10% del sueldo de categoría por cada período iniciado. Para los efectos de cálculo de este derecho se computará con un recargo del 15% el tiempo servido en zonas calificadas como insalubres o incómodas en la forma que indica el inciso b) del artículo 2º.
+d) La jubilación extraordinaria se calculará multiplicando el número de años de servicio por la treintava parte del promedio mensual de los sueldos y sobresueldos de los últimos diez años trabajados.
+(Así reformado por el artículo 1° de la ley N° 2467 del 13 de noviembre de 1959)
