@@ -1,0 +1,1 @@
+14.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego hasta dos regidores en contra y dos a favor que la soliciten, sin que pueda exceder de tres minutos cada intervención.

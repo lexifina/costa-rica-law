@@ -1,0 +1,1 @@
+27.—Finalizadas las exposiciones de los particulares, el Presidente concederá el uso de la palabra a los Regidores que lo soliciten con el fin de que puedan hacer preguntas aclaratorias a los visitantes sobre el asunto de que se trate.

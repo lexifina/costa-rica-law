@@ -1,0 +1,1 @@
+19.—Las comisiones despacharán los asuntos a su cargo a la mayor comisiones deberán rendir sus dictámenes en un plazo de 8 días, prorrogables por otros quince días debidamente aprobados por el Concejo por mayoría simple.

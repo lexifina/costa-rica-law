@@ -1,0 +1,1 @@
+13.—Son mociones incidentales las que se presentan para regular el debate, para prorrogar el uso de la palabra a un regidor. Si algún regidor tuviere opinión contraria al criterio del Presidente, podrá apelar ante el Concejo y este decidirá por simple mayoría de votos.

@@ -1,0 +1,1 @@
+25.—La Secretaría remitirá al Concejo en orden de presentación, las solicitudes que presenten los particulares, el Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad o cualquier otro elemento que se considere pertinente.

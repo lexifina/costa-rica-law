@@ -1,0 +1,1 @@
+26.—Cuando concurriere a la sesión uno o varios particulares invitados, a quienes se les haya concedido audiencia, el Presidente hará la presentación de rigor exponiendo los motivos de su presencia y de inmediato les concederá el uso de la palabra para que se hagan la exposición correspondiente. Se tratará en lo posible de que la exposición sea breve y concisa.

@@ -1,0 +1,1 @@
+10.—Cuando asistan al Concejo miembros de los Supremos Poderes, invitados especiales, representantes de las instituciones autónomas y semiautónomas, se les recibirá en el salón de sesiones a la hora fijada, inmediatamente después del saludo de rigor se les concederá el uso de la palabra.

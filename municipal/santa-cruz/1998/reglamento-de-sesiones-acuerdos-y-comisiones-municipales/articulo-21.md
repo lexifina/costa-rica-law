@@ -1,0 +1,1 @@
+21.—Cuando se trate de algún asunto específico de interés del Concejo, tales como intercambios culturales, pasantías, seminarios y representaciones de este Concejo, los Regidores podrán por medio de moción nombrar la comisión.

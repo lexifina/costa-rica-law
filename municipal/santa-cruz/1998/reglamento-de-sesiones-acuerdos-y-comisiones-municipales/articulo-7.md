@@ -1,0 +1,1 @@
+7°—El Regidor Suplente que sustituyera a un propietario tendrá derecho a permanecer durante toda !a sesión como miembro del Concejo con voz y voto y el derecho a devengar la dieta, si la sustitución se hubiese efectuado después de los quince minutos a que se refiere el artículo anterior o si se hubiere efectuado con anterioridad y el propietario no se hubiere hecho presente.

@@ -1,0 +1,1 @@
+20.—Los dictámenes de las comisiones deberán presentarse por escrito firmados por todos los miembros de ella que lo emiten. Cuando no existiere acuerdo unánime sobre un dictamen, el o los miembros de la comisión que no lo aprueben podrán rendir dictamen por separado si lo estiman conveniente.

@@ -1,0 +1,2 @@
+3°—Las personas interesadas en participar en la sesión de atención al público deben hacerlo en la Secretaría Municipal, mínimo cuatro días antes de celebrarse dicha sesión, llenando un formulario con el nombre, apellidos, cédula de identidad, indicar cual asociación o Comité de trabajo pertenece y el asunto que lo motiva a participar.
+También se atenderán personas con algún interés personal siempre y cuando cumpla con los requisitos.
