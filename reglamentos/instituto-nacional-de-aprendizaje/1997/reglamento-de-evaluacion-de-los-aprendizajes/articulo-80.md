@@ -1,1 +1,0 @@
-Artículo 80.—La apelación será conocida por el Comité de Evaluación del Centro de Formación o de la Unidad Tecnológica, el que deberá resolver en definitiva dentro de los cinco (5) días posteriores al recibo de los documentos y agotará la vía administrativa.

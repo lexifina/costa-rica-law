@@ -1,1 +1,0 @@
-Artículo 63.—Para realizar pruebas sumativas, ordinarias y extraordinarias con excepción de las de aplazados, se debe avisar con dos (2) días hábiles de anterioridad como mínimo, a la fecha de la misma y comunicar los objetivos y contenidos a medir en ella.

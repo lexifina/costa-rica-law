@@ -1,1 +1,0 @@
-Artículo 50.—Las calificaciones obtenidas por los estudiantes serán registradas en un documento denominado “Registro Final de Calificaciones”, utilizando número enteros. Este documento es parte componente del sistema de evaluación de cada módulo.

@@ -1,1 +1,0 @@
-Artículo 31.—El titular y el suplente que representan a los Encargados de los Centros de Formación serán electos por un año en reunión de éstos, convocada por la Subgerencia Técnica, en la última semana de noviembre de cada año. La elección se decidirá por simple mayoría y tendrá carácter rotativo de común acuerdo entre ellos.

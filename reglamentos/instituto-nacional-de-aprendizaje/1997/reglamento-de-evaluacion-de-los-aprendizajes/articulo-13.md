@@ -1,1 +1,0 @@
-Artículo 13.—En cada Centro de Formación o Unidad Tecnológica, donde se desarrollen acciones formativas pertenecientes al Programa de Aprendizaje, funcionará un Comité de Evaluación, el cual iniciará labores en la primera semana de febrero de cada año.

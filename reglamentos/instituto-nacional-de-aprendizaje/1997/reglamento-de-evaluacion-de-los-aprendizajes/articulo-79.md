@@ -1,1 +1,0 @@
-Artículo 79.—Los recursos de revocatoria y apelación deberán presentarse por escrito y en forma razonada ante el Instructor. La resolución del recurso de revocatoria le corresponderá al Instructor y deberá hacerse igualmente por escrito y en forma razonada. Este recurso deberá ser resuelto y notificado dentro de los cinco (5) días posteriores a su presentación.

@@ -1,1 +1,0 @@
-Artículo 73.—El estudiante no tendrá derecho a pruebas de aplazado en módulos que se consideren meramente prácticos o de taller Para tal efecto, cada subsector deberá indicar claramente cuáles módulo son de materias correlacionadas, relacionadas y de taller.

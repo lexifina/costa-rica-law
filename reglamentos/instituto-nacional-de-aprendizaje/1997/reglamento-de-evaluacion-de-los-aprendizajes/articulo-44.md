@@ -1,1 +1,0 @@
-Artículo 44.—En la valoración de los dominios cognoscitivos y )sicomotor se tomará en cuenta el peso porcentual del tiempo empleado )ara el desarrollo de los objetivos sujetos de medición, en cada dominio.

@@ -1,4 +1,0 @@
-Artículo 58.—La administración de pruebas extraordinarias será autorizada por el Encargado del Centro de Formación o de la Unidad Tecnológica, siempre y cuando existan razones válidas y justificables para su autorización, entre ellas:
-a Dictamen del Comité de Evaluación del Centro de Formación, de la Unidad Tecnológica o del Comité Institucional de Evaluación, que invalide la prueba ordinaria.
-b. Por ausencia del estudiante, debidamente justificada, según lo establecido en el artículo 9 del Reglamento para Participantes de Acciones de Capacitación y Formación Profesional.
-c. Por otra causa especial, debidamente justificada y presentada ante e] Encargado del Centro de Formación o de la Unidad Tecnológica, máximo tres (3) días hábiles después de la fecha establecida para la prueba ordinaria.

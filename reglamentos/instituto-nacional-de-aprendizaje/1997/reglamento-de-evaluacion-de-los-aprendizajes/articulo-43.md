@@ -1,1 +1,0 @@
-Artículo 43.—El sistema de evaluación de los aprendizajes elaborado para cada módulo no podrá ser vanado durante su desarrollo, ^as modificaciones sólo tendrán efecto para aplicaciones posteriores, íiempre y cuando éstas hayan sido aprobadas por el encargado del proceso le planeamiento y evaluación del Núcleo correspondiente.

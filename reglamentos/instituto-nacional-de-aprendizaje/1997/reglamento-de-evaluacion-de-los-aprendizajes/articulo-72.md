@@ -1,1 +1,0 @@
-Artículo 72.—El estudiante que repruebe un módulo tendrá derecho a repetirlo, por una sola vez, siempre y cuando lo autorice el Encargado di la Unidad Tecnológica o del Centro de Formación, quien corroborará previo estudio, que existe la posibilidad de espacio y tiempo para si autorización.

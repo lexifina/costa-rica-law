@@ -1,1 +1,0 @@
-Artículo 70.—El estudiante que no se presente a la primera convocatoria de aplazados, salvo por razón debidamente justificable, queda automáticamente reprobado y sin derecho a la segunda convocatoria.

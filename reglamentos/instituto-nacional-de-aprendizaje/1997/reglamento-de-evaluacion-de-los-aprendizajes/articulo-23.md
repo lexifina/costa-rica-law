@@ -1,1 +1,0 @@
-Artículo 23.—El Comité de Evaluación tendrá la facultad de convocar a las personas que considere conveniente, para asesorarse en materia de medición y evaluación y solicitar información que le permita a sus miembros formar criterio para la toma de decisiones objetivas, sin apartarse de los planteamientos sustantivos de este Reglamento.

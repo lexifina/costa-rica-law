@@ -1,1 +1,0 @@
-Artículo 7°—La descripción cualitativa es un concepto que obtiene el doceate sobre los aprendizajes adquiridos por el estudiante, en función de su actuación global, dentro de los procesos de enseñanza y aprendizaje.

@@ -1,1 +1,0 @@
-Artículo 82.—Todos los recursos deberán, ser presentados por escrito, indicando el nombre y apellidos del estudiante, el número de carné, grupo, subsector y módulo, debidamente firmado por el recurrente, con la indicación precisa de los aspectos de calificación o decisión impugnada, a efecto de que la resolución que se dicte examine cada uno de los aspectos presentados.

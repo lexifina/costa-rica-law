@@ -1,1 +1,0 @@
-Artículo 22.—Cuando al Comité de Evaluación se le presenten apelaciones que atañen directamente al representante titular de los instructores, éste deberá abstenerse de participar en la sesión, cediendo el lugar a su suplente.

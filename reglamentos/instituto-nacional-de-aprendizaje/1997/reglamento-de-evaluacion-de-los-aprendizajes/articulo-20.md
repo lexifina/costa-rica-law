@@ -1,1 +1,0 @@
-Artículo 20.—El Comité de Evaluación de cada Centro de Formación o de cada Unidad Tecnológica nombrará, de su propio seno, un Vicepresidente, quien presidirá en ausencia del presidente, las reuniones del Comité.

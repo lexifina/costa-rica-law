@@ -1,1 +1,0 @@
-Artículo 32.—El Comité Institucional de Evaluación tendrá la facultad de convocar a las personas que considere conveniente para asesorarse en materia de medición y evaluación educativa y solicitar información que le permita a sus miembros formar criterio para la toma de decisiones objetivas.

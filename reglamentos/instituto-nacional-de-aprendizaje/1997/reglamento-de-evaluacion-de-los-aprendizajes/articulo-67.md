@@ -1,3 +1,0 @@
-Artículo 67.—El estudiante aplazado en un módulo que se considere teórico, entiéndase materias correlacionadas y/o relacionadas, tendrá derecho a presentar las pruebas de aplazados, en dos oportunidades, con el propósito de que pueda obtener la condición de aprobado y alcanzar como calificación la nota mínima de promoción del setenta por ciento (70%). De no obtener la calificación mínima establecida, el estudiante quedará reprobado. La prueba de aplazado no se aplica en aquellos
-módulos considerados “prácticos” o de “taller” (ver Art. 75).
-El resultado obtenido por el estudiante deberá ser comunicado por escrito el mismo día de la prueba, una vez finalizada la misma.

@@ -1,1 +1,0 @@
-Artículo 55.—Todos los instrumentos de medición deben formularse y administrarse de tal forma que la situación de aplicación no difiera sustancialmente de los aprendizajes a que tuvo acceso el estudiante.
