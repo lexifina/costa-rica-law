@@ -1,0 +1,1 @@
+Art 5° Con la razón de no tener excusa y en caso la de haber trascurrido las veinticuatro horas fijadas en el artículo anterior, sin que el Conjuez o Conjueces se hubiesen excusado podrá señalarse día la vista.
