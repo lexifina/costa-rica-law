@@ -1,10 +1,2 @@
-ARTICULO 8.- Créase el Tribunal Superior en el cantón de San Carlos,
-con asiento en Ciudad Quesada.
-Este Tribunal tendrá competencia territorial en los cantones de San
-Carlos, Upala, Guatuso y Los Chiles; asimismo, la Corte efectuará los
-estudios correspondientes para determinar cuáles otros cantones o
-distritos pueden formar parte de esta circunscripción judicial, según lo
-que más convenga para una mejor administración de justicia y tomando en
-cuenta la facilidad de los medios de comunicación. La Corte queda
-facultada para realizar las modificaciones correspondientes en la
-competencia territorial de los tribunales afectados.
+ARTICULO 8.- Créase el Tribunal Superior en el cantón de San Carlos, con asiento en Ciudad Quesada.
+Este Tribunal tendrá competencia territorial en los cantones de San Carlos, Upala, Guatuso y Los Chiles; asimismo, la Corte efectuará los estudios correspondientes para determinar cuáles otros cantones o distritos pueden formar parte de esta circunscripción judicial, según lo que más convenga para una mejor administración de justicia y tomando en cuenta la facilidad de los medios de comunicación. La Corte queda facultada para realizar las modificaciones correspondientes en la competencia territorial de los tribunales afectados.
