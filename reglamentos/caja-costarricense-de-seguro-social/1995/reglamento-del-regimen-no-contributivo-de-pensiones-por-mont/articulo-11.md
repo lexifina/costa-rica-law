@@ -1,1 +1,0 @@
-Artículo 11.—A efectos de que los beneficiarios puedan disfrutar en forma continua de las prestaciones, quedan obligados a participar en programas y actividades que para su mejoramiento en el nivel de vida determine la Caja; así como en forma complementaria en otras actividades que organicen las instituciones del Estado en coordinación con las asociaciones comunales.

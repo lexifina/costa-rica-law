@@ -1,2 +1,0 @@
-Artículo 20.—Las pensiones de este régimen se pagarán por períodos mensuales vencidos, que serán entregados directamente a los beneficiarios en los tres primeros días hábiles del mes siguiente. El derecho a retirar los cheques emitidos, prescribe en tres meses.
-En relación con las cifras absolutas que resulten de la aplicación del artículo 9 de este reglamento, la Caja efectuará los ajustes correspondientes, con el fin de que las cuantías sean sumas sin céntimos y por la unidad de colones siguiente.

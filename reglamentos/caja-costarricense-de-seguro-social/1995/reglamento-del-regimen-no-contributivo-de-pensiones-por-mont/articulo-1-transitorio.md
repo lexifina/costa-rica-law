@@ -1,2 +1,0 @@
-DISPOSICIONES TRANSITORIAS
-Transitorio I.—Para efectos de verificar si aún existen las condiciones de insuficiencia de ingresos y otros, que dieron origen a los actuales beneficiarios del Régimen, la administración revisara en un plazo de un año todos esos casos, para lo cual cada pensionado deberá llenar la declaración, mencionada en el artículo 10° de este reglamento. En caso de que dichas condiciones no persistan, el beneficio de la pensión se suspenderá.

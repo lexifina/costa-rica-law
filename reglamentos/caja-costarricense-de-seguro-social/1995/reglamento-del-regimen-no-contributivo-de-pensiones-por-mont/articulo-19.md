@@ -1,1 +1,0 @@
-Artículo 19.—Los fondos y recursos del Régimen No Contributivo de Pensiones se administrarán con absoluta independencia de los correspondientes a los otros regímenes administrados de la Caja Costarricense de Seguro Social. En consecuencia, no podrán tomarse dineros de este régimen para sufragar gastos de otros ni viceversa.

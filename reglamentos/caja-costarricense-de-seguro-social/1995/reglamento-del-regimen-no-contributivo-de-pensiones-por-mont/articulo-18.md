@@ -1,1 +1,0 @@
-Artículo 18.—De los recursos que se reciban para el financiamiento de este régimen, se pagará el costo de aseguramiento en el Seguro de Enfermedad y Maternidad. Dicho costo será determinado por la Junta Directiva, con base en los estudios aduanales que realice la Dirección Actuarial y de Planificación Económica.
