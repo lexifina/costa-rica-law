@@ -1,0 +1,1 @@
+Artículo 3°.-Autorízase al Poder Ejecutivo para que con los fondos del Préstamo a que se refiere esta ley, compre por el sistema de licitación, el equipo, maquinaria y utensilios que considere necesarios para la ejecución de los proyectos a que se refiere el Contrato aprobado y que se detallan en el artículo 5° de esta ley.
