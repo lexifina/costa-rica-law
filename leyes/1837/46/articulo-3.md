@@ -1,0 +1,1 @@
+3° Quedan en su vigor y fuerza todas las disposiciones contenidas en el citado Decreto de 8 de Mayo de 1833. – Dado en la Ciudad de San José á los dieciocho días del mes de Diciembre de mil ochocientos treinta y siete. – Manuel Aguilar. –Al Jefe de Sección encargado del Ministerio.
