@@ -1,0 +1,1 @@
+Artículo 6°- La Subsecretaría de Higiene y Salud Pública renovará gratuitamente los equipos que fueren empleados en personas pobres, al solicitarlo la autoridad respectiva y los gastos serán cargados a la partida de Drogas.

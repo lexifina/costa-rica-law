@@ -1,0 +1,1 @@
+Artículo 5°-La Subsecretaría de Higiene mantendrá por su cuenta un depósito de sueros en las Medicaturas de Pueblo, en algunas, Jefaturas Políticas y estaciones de ferrocarril y en los Resguardos fiscales, y el equipo respectivo.
