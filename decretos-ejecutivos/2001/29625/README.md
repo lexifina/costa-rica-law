@@ -14,3 +14,4 @@ Reglamento de Organización y Servicio de las Autoridades de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-09 | la propia norma |
+| 2 | 2002-04-30 | Decreto Ejecutivo 30325 (2002-04-30) |
