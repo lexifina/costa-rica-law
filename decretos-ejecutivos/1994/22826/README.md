@@ -13,3 +13,4 @@ Regula Pago Prohibición Departamento Informática Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-03 | la propia norma |
+| 2 | 1994-02-03 | Decreto Ejecutivo 23655 (1994-08-18) |
