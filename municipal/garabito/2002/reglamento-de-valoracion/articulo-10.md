@@ -1,1 +1,0 @@
-Artículo 10.—La Municipalidad podrá establecer un porcentaje de tolerancia por debajo de los valores mínimos establecidos por el ONT, de tal manera que los valores a aplicar en las declaraciones puedan reducirse en función de ese valor.

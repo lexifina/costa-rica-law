@@ -1,1 +1,0 @@
-Artículo 19.—Tanto en las declaraciones como en los avalúos deberán consignarse todas las variables que se han aplicado para la determinación de la base imponible para el cobro de impuesto sobre bienes inmuebles.

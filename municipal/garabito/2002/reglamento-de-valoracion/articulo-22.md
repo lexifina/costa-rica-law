@@ -1,1 +1,0 @@
-Artículo 22.—Los valores mínimos establecidos podrán no aplicarse en la declaración, aún considerando el porcentaje de tolerancia, si existiera, indicado en el artículo 10, cuando se den algunas de las situaciones señaladas en el artículo 23 del Reglamento.

@@ -1,1 +1,0 @@
-Artículo 20.—Cuando el contribuyente, en un plazo máximo de quince días hábiles después de haber sido notificado, no presente formal recurso de revocatoria ante la Oficina de Valoración, el monto imponible así determinado quedará en firme para entrar a regir en el período fiscal inmediato siguiente.
