@@ -1,2 +1,0 @@
-Articulo 15.—Penas por Información Inexacta o Incumplimiento de Condiciones
-Cuando el Banco compruebe que un deudor ha suministrado datos inexactos o que ha incumplido el plan de inversión o cualesquiera de la; condiciones convenidas en la contratación del préstamo o establecidas en este reglamento, podrá dar por vencida la obligación y exigir la cancelación inmediata de su saldo y en casos graves basta negar a ese deudor el uso futuro de los servicios crediticios de la institución, durante un término de 5 años.
