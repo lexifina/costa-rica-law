@@ -1,0 +1,1 @@
+Artículo 33.—Períodos tarifarios. Son los períodos originados por la diferenciación tarifaria establecida para la tasación de las comunicaciones de los distintos servicios telefónicos en función de la hora y el día de inicio de la comunicación, conforme se establece en las resoluciones de precios y tarifas emitidas por la Autoridad Reguladora.

@@ -1,0 +1,2 @@
+Artículo 6º—Condiciones no previstas. Si no existiesen las condiciones técnicas y económicas de prestación para el servicio, la Autoridad Reguladora las fijará a solicitud expresa del Operador de Servicios Públicos de Telecomunicaciones, en adelante denominado el Operador, o de oficio.
+En este último caso, la Autoridad Reguladora deberá conceder al operador una audiencia en los términos del artículo 36 de la Ley N° 7593.

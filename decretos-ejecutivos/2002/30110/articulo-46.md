@@ -1,0 +1,1 @@
+Artículo 46.—Interrupción de interconexión. Serán causales de interrupción de la interconexión, el incumplimiento de las condiciones especificadas en los pliegos de normas y procedimientos establecidos por la Autoridad Reguladora respecto a la interconexión y en contratos de dicha interconexión.

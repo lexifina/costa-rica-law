@@ -1,0 +1,1 @@
+Artículo 24.—Información actualizada de los clientes. El Operador está en la obligación de mantener en sus sistemas de información telefónica, información completa y actualizada de sus clientes, conforme a las normas técnicas existentes establecidas por la Autoridad Reguladora.

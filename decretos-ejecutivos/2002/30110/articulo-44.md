@@ -1,0 +1,1 @@
+Artículo 44.—Objetivo. Establecer las normas que regulan las relaciones técnicas, jurídicas y económicas entre el operador y el interconectante, de modo que se produzca la conexión de equipos, redes y servicios, en armonía con los principios de calidad, de tarifas y de precios que rigen la prestación de los servicios públicos de telecomunicaciones.

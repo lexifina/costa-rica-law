@@ -1,0 +1,1 @@
+Artículo 23.—Suspensión masiva de servicios. En el caso de suspensiones masivas del servicio telefónico programadas por necesidades de mantenimiento o mejora de los servicios, el Operador avisará a los clientes con un mínimo de 48 horas de anticipación, a través de los medios de difusión más efectivos que se disponga.

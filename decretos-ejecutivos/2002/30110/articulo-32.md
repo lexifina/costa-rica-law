@@ -1,0 +1,2 @@
+Artículo 32.—Zonas telefónicas. En las normas técnicas que se promulguen y en las resoluciones de precios y tarifas que emita la Autoridad Reguladora, se establecerá las zonas telefónicas de los servicios telefónicos convencionales alámbricos o inalámbricos fijos para todo el territorio nacional, conforme con las reglamentaciones existentes
+El número de zonas podrá ser modificado por el Operador previa autorización de la Autoridad Reguladora, conforme a las necesidades futuras del SNT.

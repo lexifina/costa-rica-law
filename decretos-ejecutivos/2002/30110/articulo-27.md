@@ -1,0 +1,1 @@
+Artículo 27.—Utilización de los servicios. El cliente o usuario está en la obligación de velar por el buen uso de sus instalaciones telefónicas y equipos, siendo responsable ante el Operador de la pérdida, destrucción o deterioro, no derivado del uso ordinario de los equipos propiedad del Operador, salvo caso fortuito o fuerza mayor.

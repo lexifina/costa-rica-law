@@ -1,0 +1,1 @@
+Artículo 28.—Reclamaciones o controversias. Todo cliente o usuario tiene derecho a que sus reclamaciones o controversias sean atendidas y resueltas por el Operador de conformidad con los plazos y procedimientos establecidos por la Ley General de la Administración Pública.

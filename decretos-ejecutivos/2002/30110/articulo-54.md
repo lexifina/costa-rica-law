@@ -1,0 +1,1 @@
+Artículo 54.—Reportes. El Operador deberá presentar conforme a la periodicidad indicada en las Normas Técnicas, a la Autoridad Reguladora, los reportes de evaluación de calidad de servicio para cada conmutador telefónico conforme al servicio brindado y según el detalle especificado por la Autoridad Reguladora.

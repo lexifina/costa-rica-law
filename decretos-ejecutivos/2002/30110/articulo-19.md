@@ -1,0 +1,1 @@
+Artículo 19.—Redes internas. Todos los asuntos relacionados con la regulación de los aspectos técnicos, relativos a la construcción y puesta en operación de redes internas en edificios, condominios y urbanizaciones, serán regulados por las normas correspondientes y por las autoridades competentes.

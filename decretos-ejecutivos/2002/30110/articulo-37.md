@@ -1,0 +1,2 @@
+Artículo 37.—Emisión de facturas. El Operador deberá elaborar y emitir la factura por los servicios prestados en un plazo máximo de tres meses calendario contados a partir de la fecha de la prestación de los servicios.
+El servicio no podrá ser suspendido sino por falta de pago de facturas correspondientes al último o penúltimo período facturado. Cuando la falta de pago se refiere a períodos anteriores deberá seguirse el debido proceso para cobrar el pendiente.

@@ -1,0 +1,1 @@
+Artículo 58.—Precio no establecido. Si no se hubiese previsto ningún costo para el servicio, línea o instalación que solicite cualquier persona física o jurídica al Operador, la Autoridad Reguladora lo fijará a solicitud del Operador.

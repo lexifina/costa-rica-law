@@ -1,0 +1,1 @@
+Artículo 4º—Inviolabilidad de las comunicaciones. Las comunicaciones son inviolables, por lo que, salvo disposición judicial en favor de la autoridad competente, queda terminantemente prohibido interceptar, interferir, intervenir, obstruir, alterar, desviar, utilizar, y públicar o divulgar su contenido.

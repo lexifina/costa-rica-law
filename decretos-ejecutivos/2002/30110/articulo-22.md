@@ -1,0 +1,2 @@
+Artículo 22.—Reparación de averías. El Operador está en la obligación de reparar las averías que se originen en las instalaciones o equipos propiedad de éste en el menor tiempo posible y sin cargo alguno para el cliente, conforme a los plazos establecidos en las normas existentes y las regulaciones emitidas por la Autoridad Reguladora.
+Del mismo modo el operador será responsable de las averías en instalaciones y en el equipo del cliente cuando las mismas sean consecuencia de hechos imputables al operador, excepto en los casos fuerza mayor o caso fortuito.

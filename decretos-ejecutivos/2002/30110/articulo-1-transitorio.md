@@ -1,0 +1,1 @@
+Transitorio único.—El desarrollo, publicación y administración del Plan de Numeración a que se refiere el artículo 14 de este Reglamento corresponderá al Instituto Costarricense de Electricidad en el tanto este sea el único operador de servicios públicos de telecomunicaciones.

@@ -1,0 +1,4 @@
+Artículo 14.—Plan nacional de numeración. Corresponde a la Autoridad Reguladora de los Servicios Públicos, desarrollar, públicar y administrar el Plan Nacional de Numeración que permita la identificación de las redes comerciales de telecomunicaciones, de los usuarios finales y la selección del Operador por parte del usuario, en forma equitativa y sin discriminación, conforme a las siguientes condiciones generales:
+a. La asignación de números debe basarse en el Plan Nacional de Numeración vigente; los números se entregarán a solicitud del Operador interesado por lotes de acuerdo con las especificaciones determinadas por la Autoridad Reguladora en las normas técnicas correspondientes.
+b. El operador deberá proveer acceso en forma gratuita a los números de asistencia pública establecidos por la Autoridad Reguladora.
+c. La utilización de todo número del Plan Nacional de Numeración requiere la previa autorización de la Autoridad Reguladora.

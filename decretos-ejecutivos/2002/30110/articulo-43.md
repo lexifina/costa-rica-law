@@ -1,0 +1,8 @@
+Artículo 43.—Relación entre las tarifas y la gestión de la empresa regulada.
+a. Los ajustes tarifarios resultantes de las necesidades de recursos para la operación eficiente del servicio y el desarrollo de las redes de Servicios Públicos de Telecomunicaciones, estarán sujetos a los resultados de la gestión del Operador, a saber:
+· Los indicadores de gestión técnica, operativa, económica, financiera y de atención al usuario de la empresa, que establezca la Autoridad Reguladora en sus resoluciones, conforme con la reglamentación vigente, en las que se indicarán los niveles de importancia (peso relativo) y el procedimiento de obtención del índice general de gestión del Operador.
+· La evaluación del desempeño del Operador en los doce meses anteriores a una solicitud tarifaria, se obtendrá como el promedio ponderado de los valores mensuales obtenidos de dicho índice.
+b. El valor anual del índice de gestión de la empresa, afectará el resultado de la fijación tarifaria final en los niveles porcentuales indicados en las resoluciones de precios y tarifas correspondientes.
+c. La evaluación de la conformidad de los Servicios Públicos de Telecomunicaciones para cada localidad servida, conmutador, servicio o red de telecomunicaciones, dará como resultado un índice general de gestión de la localidad, conmutador, servicio o red de telecomunicaciones, que afectará las tarifas vigentes en los términos especificados en las resoluciones de precios y tarifas correspondientes.
+CAPÍTULO 8
+Interconexión de redes de telecomunicaciones a la infraestructura pública del sistema nacional de telecomunicaciones

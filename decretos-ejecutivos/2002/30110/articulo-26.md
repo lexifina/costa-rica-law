@@ -1,0 +1,1 @@
+Artículo 26.—Revisión e información. En cualquier momento el cliente o usuario podrá solicitar información relacionada con los reglamentos, normas técnicas existentes y las regulaciones emitidas por la Autoridad Reguladora, así como solicitar la revisión de los consumos registrados en su servicio.

@@ -1,0 +1,1 @@
+Artículo 52.—Régimen tarifario. El Operador cobrará por los servicios que le brinde al cliente que participa en la Cooperación Paralela, las tarifas correspondientes indicadas en las resoluciones de precios y tarifas correspondientes.

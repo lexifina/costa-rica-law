@@ -1,0 +1,1 @@
+Artículo 5º—Estándares. La Autoridad Reguladora establecerá y públicará, siguiendo el procedimiento previsto en el artículo 36 de la Ley Nº 7593, las normas técnicas, indicadores de gestión y las resoluciones de precios y tarifas, aplicables a los Servicios Públicos de Telecomunicaciones.

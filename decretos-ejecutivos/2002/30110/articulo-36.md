@@ -1,0 +1,5 @@
+Artículo 36.—Recibo extraordinario. El Operador podrá cobrarle al cliente mediante recibo extraordinario en las siguientes situaciones:
+a. Por consumo de tráfico telefónico excesivo. Es tráfico telefónico excesivo, aquel que exceda el porcentaje especificado en las resoluciones de precios y tarifas emitidas por la Autoridad Reguladora, evaluado como el promedio de consumo de los últimos tres recibos mensuales del cliente.
+b. Por deudas pendientes cuando el servicio está en retiro sin cargos. Cuando un cliente ha solicitado alguno (s) de los servicios que presta el Operador en el área de telecomunicaciones, donde los cargos correspondientes a estos servicios no se pueden cobrar, por no estarse facturando el servicio, el Operador gestionará el cobro mediante la emisión de un recibo extraordinario.
+c. Los recibos extraordinarios deberán ser cancelados por el cliente en un plazo máximo de cinco días hábiles a partir de su entrega.
+d. Un mes después de emitido el recibo extraordinario, si el mismo no fuere cancelado se liquidará contablemente el servicio, siguiendo el procedimiento que establece la Ley General de Administración Pública.
