@@ -15,3 +15,4 @@ Procedimiento Especial para el Ingreso y Permanencia en el País de Embarcacione
 | --- | --- | --- |
 | 1 | 2000-12-04 | la propia norma |
 | 2 | 2004-06-30 | Decreto Ejecutivo 32045 (2004-06-30) |
+| 3 | 2005-02-23 | Decreto Ejecutivo 32304 (2005-02-23) |
