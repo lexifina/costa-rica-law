@@ -1,1 +1,0 @@
-Artículo 13.-La Oficina de Planificación Nacional y Política Económica antes de resolver las solicitudes planteadas por las Instituciones de acuerdo a los artículos 9° y 10 de la Ley de Planificación, deberá recibir los criterios de la Oficina Sectorial de Planificación Industrial cuando se trata de proyectos industriales.
