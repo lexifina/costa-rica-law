@@ -1,0 +1,1 @@
+Artículo 2°— Esta declaratoria prohíbe la demolición de los inmuebles, e igualmente su remodelación parcial o total, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural.
