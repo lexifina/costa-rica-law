@@ -1,0 +1,2 @@
+Artículo 36.-De toda sesión del Concejo Municipal de Distrito se levantará un acta en la que se hará constar los acuerdos tomados y sucintamente las deliberaciones habidas, salvo en casos de nombramiento o elecciones, en los que se hará constar únicamente el acuerdo tomado.
+Las actas deberán ser selladas y firmadas por el Presidente y el Secretario, una vez aprobadas por el Concejo Municipal de Distrito.

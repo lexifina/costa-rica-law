@@ -1,0 +1,3 @@
+CAPITULO XII
+Disposiciones finales
+Artículo 41.-Los Concejos Municipales de Distrito podrán acordar la Organización Administrativa más conveniente de acuerdo a sus intereses comunales. En este orden podrán contar, bajo su exclusiva responsabilidad contractual y laboral, con un Director Ejecutivo y con unidades administrativas y recursos humanos remunerados o contratados de conformidad con sus necesidades, intereses y servicios delegados por la Municipalidad de Alajuela, de conformidad con el ordenamiento jurídico que rige la materia. En este orden la Municipalidad queda exonerada de todo tipo de responsabilidad civil, contractual y laboral frente al Director Ejecutivo y personal contratado al efecto.

@@ -1,0 +1,8 @@
+CAPITULO II
+De las competencias
+Artículo 4°-Los Concejos Municipales de Distrito que se constituyan en los Distritos del cantón Central de Alajuela tendrán las siguientes competencias:
+a) Realizar pactos, convenios o contratos con otros Concejos Municipales de Distrito, dentro y fuera de su cantón y con otras Municipalidades, Instituciones u Organismos Públicos, previa A aprobación del Concejo Municipal de Alajuela, dentro de los 30 días" hábiles siguientes a la adopción del acuerdo de voluntades.
+b) Dictar los reglamentos autónomos de organización y servicio respetando las directrices emitidas por la Municipalidad.
+Antes de su publicación y entrada en vigencia, estos reglamentos deberán ser refrendados por el Concejo Municipal de Alajuela.
+c) Proponer al Concejo Municipal de Alajuela, en el mes de julio de cada año sus presupuestos anuales con la finalidad de que sean incluidas las partidas para las obras y proyectos prioritarios y urgentes del distrito, dentro de las posibilidades presupuestarias de la Municipalidad.
+d) Convocar a consultas populares y fomentar la participación activa, consciente y democrática de los vecinos del distrito en aquellas decisiones que los afecten. Tales consultas se realizarán sin demérito de la potestad que tiene el Concejo Municipal del cantón para realizar Plebiscitos en su jurisdicción cantonal. Especialmente deberá el Concejo del Distrito convocar a audiencias públicas cuando se conozcan asuntos relacionados con el abastecimiento de agua potable, alcantarillado sanitario y con el impacto de los recursos naturales de todo orden, así como el manejo, la protección y conservación del medio ambiente del Distrito de su competencia.

@@ -1,0 +1,1 @@
+Artículo 19.-Terminada la consulta popular la mesa de votación se abocará al conteo de los votos en presencia de los candidatos participantes o sus representantes, levantarán el acta correspondiente y firmarán todos los miembros de la mesa junto con los quince candidatos seleccionados en la consulta popular.

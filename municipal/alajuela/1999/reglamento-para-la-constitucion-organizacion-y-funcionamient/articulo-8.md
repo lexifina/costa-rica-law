@@ -1,0 +1,1 @@
+Artículo 8°-Los miembros de los Concejos Municipales de Distrito permanecerán en sus cargos durante el período constitucional del Concejo que los nombró. Podrán ser reelegidos y desempeñarán sus funciones ad-honorem.

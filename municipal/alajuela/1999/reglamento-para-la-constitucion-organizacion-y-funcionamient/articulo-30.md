@@ -1,0 +1,2 @@
+Artículo 30.-Las sesiones del Concejo Municipal de Distrito serán públicas, sin defecto de que determinada sesión, o, parte de ella, sea secreta en casos muy especiales a juicio de la mayoría simple de los asistentes.
+La participación de los vecinos y organizaciones civiles en las sesiones no requerirá de previa audiencia ni trámite especial, bastará la presencia y solicitud expresa de los vecinos antes de iniciarse la sesión. La participación de los vecinos se hará en forma ordenada en el capítulo de audiencias que tendrá que incluirse en la agenda de todas las sesiones.

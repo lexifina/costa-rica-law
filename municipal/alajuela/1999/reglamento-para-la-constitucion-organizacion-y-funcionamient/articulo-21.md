@@ -1,0 +1,1 @@
+Artículo 21.-Cuando renuncie un miembro de un Concejo Municipal de Distrito, el Concejo Municipal de Alajuela lo sustituirá por el resto del período, de entre la nómina de candidatos escogidos para la consulta popular, para lo que se realizará la respectiva votación en seno del Concejo de conformidad con el procedimiento establecido en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 28.-Las sesiones del Concejo Municipal de Distrito se desarrollan conforme a la Orden del Día que será previamente elaborada, y que podrá ser modificada o alterada mediante acuerdo por simple mayoría de los miembros presentes.
