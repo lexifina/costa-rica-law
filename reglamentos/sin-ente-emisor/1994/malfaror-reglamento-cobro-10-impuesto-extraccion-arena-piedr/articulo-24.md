@@ -1,0 +1,1 @@
+Artículo 24.—El término de caducidad debe contarse desde el momento en que ocurre el hecho generador del impuesto, o en su caso, desde el día siguiente a aquel concedido para la presentación de la declaración jurada.

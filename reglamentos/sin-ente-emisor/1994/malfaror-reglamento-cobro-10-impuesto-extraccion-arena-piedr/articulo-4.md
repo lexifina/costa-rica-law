@@ -1,0 +1,1 @@
+Artículo 4°—Materia imponible: Lo será la extracción de piedra, arena, lastre y derivados de estos o cualesquiera otros materiales ya transformados y producto de la extracción que haga el concesionario de una cantera.

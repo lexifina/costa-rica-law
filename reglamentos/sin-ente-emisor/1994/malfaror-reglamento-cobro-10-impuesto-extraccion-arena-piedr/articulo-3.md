@@ -1,0 +1,1 @@
+Artículo 3°—Sujeto pasivo: Serán sujetos pasivos del Tributo las personas físicas o jurídicas que se dediquen a la explotación de canteras ubicadas en el cantón de Alfaro Ruiz, autorizadas debidamente por medio de concesión otorgada por la Dirección de Geología, Minas e Hidrocarburos.

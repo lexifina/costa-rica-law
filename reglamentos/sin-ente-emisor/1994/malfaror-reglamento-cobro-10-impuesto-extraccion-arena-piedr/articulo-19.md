@@ -1,0 +1,2 @@
+Artículo 19.—Contra la resolución definitiva adoptada por el Concejo y una vez notificada la misma el contribuyente podrá interponer la acción de impugnación en el mismo plazo y ante el mismo Tribunal a que se refiere el artículo 17 de este Reglamento.
+Transcurrido dicho plazo sin que se hubiere interpuesto la acción de impugnación, la Municipalidad podrá interponer la acción ejecutiva que se refiere el artículo 18.

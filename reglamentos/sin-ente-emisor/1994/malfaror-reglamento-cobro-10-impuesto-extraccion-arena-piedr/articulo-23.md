@@ -1,0 +1,1 @@
+Artículo 23.—Prescripción y caducidad: El derecho de la Municipalidad para determinar las obligaciones del tributo, caduca a los 5 (cinco) años. Prescribe en 5 (cinco) años el derecho de la Municipalidad para exigir el pago de las obligaciones del Tributo.

@@ -1,0 +1,2 @@
+Artículo 27.—Prórroga y facilidades del pago: Las prórrogas deben solicitarse antes del vencimiento del plazo para efectuar el pago y solo pueden ser concedidas en casos de excepción cuando ajuicio del Concejo, se justifiquen las causas que impiden el cumplimiento normal de la obligación de que se trata.
+La prórroga y facilidades de pago que se concedan devengarán los intereses previstos en el artículo 23 de este reglamento.

@@ -1,0 +1,2 @@
+Artículo 15 .—Para realizar la determinación de oficio, la Municipalidad , deberá notificar al contribuyente acerca de las observaciones o cargos que se efectúen y estima conveniente, requerir al contribuyente la presentación de nuevas declaraciones o la rectificación de la presentada dentro del plazo que al efecto se le otorgue.
+El contribuyente o responsable podrá impugnar por escrito las observaciones o cargos formulados por la Municipalidad dentro del plazo de 15 (quince) días hábiles contados a partir del día hábil siguiente de efectuada la notificación.

@@ -1,0 +1,2 @@
+Artículo 13.—Tasaciones de oficio y modificaciones: En los casos en que el contribuyente no presente, dentro del plazo establecido en el artículo 6 de este reglamento la declaración jurada la Municipalidad procederá a determinar de oficio el impuesto correspondiente al período no declarado, conforme lo establecen los artículos 119 a 122 del Código de Normas y Procedimientos Tributarios.
+Asimismo en los casos en que se comprobara mediante revisión y/o fiscalización de la declaración presentada que su información y datos son falsos o incompletos, la Municipalidad tributarios.

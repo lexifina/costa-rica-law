@@ -1,0 +1,1 @@
+Artículo 5°—E1 monto del tributo, será el (equivalente a) un diez por ciento del valor del mercado, extraído de arena, piedra, lastre y derivados de estos de conformidad con lo establecido en el artículo 36 del Código de Minería.

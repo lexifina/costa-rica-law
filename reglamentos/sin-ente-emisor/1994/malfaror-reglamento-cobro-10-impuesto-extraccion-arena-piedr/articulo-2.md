@@ -1,0 +1,2 @@
+Artículo 2°—El sujeto activo es sujeto activo del impuesto, la Municipalidad de Alfaro Ruiz, la cual para los efectos de la relación jurídico tributaria y en su condición de Administración Tributaria hará uso de las potestades y prerrogativas que el Código de Normas y Procedimientos Tributarios le asigna.
+Para tal efecto la Municipalidad , podrá ejercer todas tas facultades que se confieren en los artículos 105 y siguientes y concordantes del Código de Normas y Procedimientos Tributarios, en su carácter de órgano de la Administración Tributaria.

@@ -1,0 +1,1 @@
+Artículo 9°—Liquidación y pago del impuesto: El impuesto que resulte de la liquidación de las declaraciones presentadas en término, deberá pagarse a más tardar el último día hábil del mes en que se liquida y determina el impuesto. Dicho pago deberá efectuarse en las oficinas municipales.

@@ -1,0 +1,1 @@
+Artículo 20.—Notificación y cómputo de términos: La administración de la Municipalidad , para la notificación o tasación que practique conforme con el artículo 14 anterior, procederá según lo establece al respecto el artículo 134 del Código y Procedimientos Tributarios.
