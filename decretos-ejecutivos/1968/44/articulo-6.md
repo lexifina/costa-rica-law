@@ -1,0 +1,1 @@
+Artículo 6°─ Los cupones de intereses tendrán el número de bono, la fecha de pago y, por el anverso y el reverso, el número de orden correspondiente; representarán los intereses de un trimestre y serán firmados en facsímil por el Ministro de Hacienda.

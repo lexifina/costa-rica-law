@@ -1,0 +1,1 @@
+Artículo 12°─Mientras se completa la impresión de los bonos definitivos, el Ministerio de Hacienda emitirá certificados provisionales, provistos de las mismas firmas y demás garantías y requisitos exigidos para los bonos definitivos, hasta donde sea posible y racional. Estos títulos provicionales deberán ser cangeados por los Bonos definitivos, tan pronto como sea posible.
