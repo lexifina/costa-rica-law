@@ -14,3 +14,4 @@ Reglamento de Compras por Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-11 | la propia norma |
+| 2 | 2002-01-09 | Reglamento 3150 (2002-01-09) |
