@@ -1,0 +1,3 @@
+Artículo 8°-Del traslado de la denuncia.
+La Comisión dará traslado a la persona denunciada, dentro de los tres días hábiles posteriores al conocimiento de la denuncia.
+En la citación se indicará claramente él o los hechos denunciados, nombre del o la denunciante, un plazo de ocho días hábiles para que se refiera a todos y cada uno de los hechos que se le imputan y ofrezca los medios de prueba en descargo de los mismos, la posibilidad de asesorarse con abogada u abogado, y el derecho a tener acceso al expediente administrativo que con motivo de la denuncia se abra. Si él o la denunciante no ejerce su derecho de defensa, se continuará el procedimiento hasta el informe final.
