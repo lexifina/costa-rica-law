@@ -1,0 +1,1 @@
+Art 5°.- La renta pagará a los cosecheros a razón de un real por cada libra es Tabaco sin distinción de 1° i 2a, mientras este último no exédalla 5a parte será pagado al respecto de medio la libra; y este Tabaco se manojeara revuelto, dándose a la venta a cuatro reales libra.
