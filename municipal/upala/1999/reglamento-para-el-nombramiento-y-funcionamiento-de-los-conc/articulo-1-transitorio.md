@@ -1,0 +1,3 @@
+Transitorio único.-Para el período 1998 - 2002 los miembros de los Concejos de Distrito serán nombrados por el Concejo Municipal dentro del mes siguiente a la entrada en vigencia de este reglamento. Durarán en sus cargos hasta que tomen posesión los nuevos miembros nombrados conforme el artículo 55 del Código Municipal, podrán ser reelectos y desempeñarán sus cargos en forma gratuita.
+Reglamento aprobado en forma unánime por el Concejo Municipal en sesión extraordinaria Nº 56-99 artículo 5º del 25 de noviembre 1999, rige a partir de su publicación en el Diario Oficial, autorícese al señor Alcalde Municipal para que proceda.
+Upala, 18 de enero del 2000.-Thomas Alemán Solano, Secretario Municipal.
