@@ -1,0 +1,1 @@
+Artículo 4° Para verificar el pago de las dos terceras partes que corresponde a los interesados, establecese un impuesto no menor de cuatro pesos por cada hectárea, el cual será satisfecho en dinero o en jornales, a elección de los interesados.

@@ -1,0 +1,1 @@
+Artículo 9° A todos los beneficiados con la apertura del camino que habiendo adquirido el derecho de propiedad no satisfagan dentro del término señalado por la junta el impuesto de las dos primeras cuotas, se les aplicará lo establecido para los morosos en la ley de detalles de caminos.

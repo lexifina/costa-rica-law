@@ -1,0 +1,15 @@
+DECRETO N°48
+(de 5 de agosto)
+Manda abrir un camino de Herradura comprendido entre los puntos denominados El Gallito y la población de Santa Clara y dispone el modo como debe satisfacer el costo de dicho camino.
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA.
+En uso de la atribución que le confiere la fracción 13° del artículo 73 de la Constitución, y
+Considerando
+1° Que la apertura de caminos que ponga en comunicación los centros de población con aquellos lugares de la República que por su posición topográfica, su feracidad, clima y agua potable brinden a sus cultivadores eficaz garantía de bienestar y progreso, constituye uno de los medios que conducen a los pueblos a su engrandecimiento y riqueza.
+2° Que el Supremo Gobierno, por decreto de 21 de abril de 1882, señala un área de cuatrocientos manzanas de las llanuras comprendidas entre el río General y Patria, y el terreno llamado La Isla, para la población que se denominará población de Santa Clara, reservando la extensión de diez mil manzanas para donar a los pobladores de dicha ciudad, mediante el compromiso de construir en ésta una casa o vivienda, y cultivar una parte del terreno que se les adjudicará en las diez mil manzanas dándoles el derecho de propiedad cuando hubieren llenado estas condiciones.
+3° Que el mismo decreto prevé que dicha ciudad se comunicará con la vía férrea al Atlántico por tres puentes, uno hacia la desembocadura del río Patria, otro en el río Sucio Viejo, cerca de la desembocadura del rio Sucio, y otro en el mismo río Sucio, junto a la confluencia con la quebrada Gata, juan a la experiencia ha demostrado que los puentes antes mencionados, debido a las grandes avenidas de los ríos y a la variación constante de su cauce, hace casi impracticable su construcción.
+4°. – Que la suma que en tales puentes se invertirá no sería menos que los treinta mil pesos, cantidad más que suficiente para la apertura del camino que varios vecinos de la provincia de Heredia, solicitan de este Alto Cuerpo.
+5°- Que del estudio practicado por la Dirección de Obras Públicas, del camino comprendido, desde el bajo del Anonal a la ciudad de Santa Clara, el cual comunica a ésta con los demás centros de población de la República, resulta que el trayecto de este camino solamente habrá que construir dos puentes de poquísima significación sobre las cabeceras del Río General.
+6° Que, según opinión del ingeniero designado por la Dirección General de Obras Públicas, la gradiente general de dicho camino es 5° en la extensión de 22 kilómetros y,
+7° Que, en consecuencia, la apertura del camino solicitado por los vecinos de San Rafael constituye una legítima esperanza y brinda las condiciones apetecibles para poner aquella parte de la República al alcance de todas las personas que quieran explotarla en provecho propio y del país en general,
+Decreta:
+Artículo 1° Para comunicar a la población de Santa Clara, creada por decreto de 21 de abril de 1882, con el cantón de San Rafael y demás pueblos de la provincia de Heredia, ábrase un camino de Herradura, comprendido entre los puntos denominados El Gallito y la población antes dicha.

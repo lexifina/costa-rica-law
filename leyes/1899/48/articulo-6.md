@@ -1,0 +1,1 @@
+Artículo 6° Para efectuar los trabajos se instalará una junta compuesta del Gobernador de la provincia de Heredia, del Jefe Político del catón de San Rafael de la misma provincia, y de tres personas de entre los interesados, a elección de dichas autoridades.
