@@ -10,4 +10,5 @@ IV.—Que mediante Decreto Ejecutivo N° 31092-H, publicado en La Gaceta N° 63 
 V.—Que mediante oficio STAP-CIRCULAR STAP-0485-03 del 23 de abril del 2003, se comunicó a la Junta el límite de gasto fijado para el año 2004.
 VI.—Que a los efectos de cumplir con los objetivos propuestos, la Entidad solicitó mediante oficio Nº P.E.022-2004 del 19 de enero del 2004, la ampliación del límite de gasto total presupuestario para el año 2004. Por tanto,
 DECRETAN:
-Artículo 1º—Modificase para la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, el límite de gasto presupuestario total del 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, de manera que el gasto presupuestario total de la Junta no podrá exceder la suma de ¢15.336,30 millones, en ese período.
+Artículo 1º—Modificase para la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, el límite de gasto presupuestario total del 2004, establecido en el Decreto Ejecutivo Nº 31092-H y sus reformas, de manera que el gasto presupuestario total de la Junta no podrá exceder la suma de ¢18.884 millones, en ese período.
+(Así reformado parcialmente mediante Decreto Ejecutivo N° 32026-H, de fecha 20 de setiembre del 2004.)

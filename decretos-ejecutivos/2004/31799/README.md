@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario de la Junta de Administración Portuari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-20 | la propia norma |
+| 2 | 2004-09-20 | Decreto Ejecutivo 32026 (2004-09-20) |
