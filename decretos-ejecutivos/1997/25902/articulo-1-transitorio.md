@@ -1,0 +1,3 @@
+Transitorio único.—En un plazo no mayor a Ios tres meses a partir de la publicación del presente Decreto, la Dirección de Urbanismo del Instituto Nacional de Vivienda y Urbanismo en coordinación con las Municipalidades correspondientes definirán los cuadrantes urbanos de las cabeceras de los Distritos.
+(NOTA: Mediante el artículo 1° del decreto ejecutivo N° 34683 del 11 de julio de 2008, se actualiza el área de los Cuadrantes Urbanos de las Cabeceras de distrito de Pacayas y Capellades del Cantón de Alvarado de Cartago en la Zona de Especial de Protección del GAM)
+Dado en la Presidencia de la República.—San José a los doce días del mes de febrero de mil novecientos noventa y siete.
