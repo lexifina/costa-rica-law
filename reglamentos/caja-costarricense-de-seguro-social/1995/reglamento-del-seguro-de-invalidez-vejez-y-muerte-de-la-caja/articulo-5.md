@@ -67,3 +67,5 @@ mensuales | años-meses | mensuales | años-meses
 | | 252 | 64-10
 | | 246 | 64-11
 | | 240 | 65-00
+Asimismo, el asegurado podrá anticipar su retiro de este Régimen, utilizando los recursos acumulados en el Régimen Voluntario de Pensiones Complementarias, de acuerdo con lo dispuesto en el Reglamento que parta tales efectos aprueba la Junta Directiva.
+(Así adicionado el párrafo último por acuerdo N° 7699 de 24 de octubre del 2002)
