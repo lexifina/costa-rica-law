@@ -1,0 +1,1 @@
+Artículo 3°-Las partidas del FONDO que se giren a favor de los proyectos de desarrollo se destinarán en su totalidad a inversión neta en estos. Sin embargo, a criterio del CONSEJO, podrán aprobarse gastos administrativos o de apoyo técnico, que estén relacionados directamente con la ejecución de los proyectos de desarrollo,

@@ -1,0 +1,1 @@
+Artículo 2°-Los recursos del FONDO se utilizarán exclusivamente para financiar los proyectos de desarrollo y cooperación convenidos de común acuerdo entre ambos países. Los proyectos serán definidos por el Consejo de Administración del FONDO, en adelante denominado el CONSEJO.
