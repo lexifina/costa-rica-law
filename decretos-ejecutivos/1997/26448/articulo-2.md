@@ -1,0 +1,2 @@
+Artículo 2°-Modifíquese el nombre del Reglamento de Control Estatal de productos Terminados y Materias Primas, emitido mediante decreto ejecutivo N° 16355-S de 27 de junio de 1985, para que en lo sucesivo se lea así:
+“Reglamento de Control Estatal de Productos Terminados, Materias Primas, Medicamentos y Cosméticos que deban ser registrados en el Departamento de Drogas Estupefacientes, Controles y registros del Ministerio de Salud”.
