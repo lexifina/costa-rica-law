@@ -1,0 +1,1 @@
+Artículo 2°—En un plazo no mayor de tres meses, contados a partir de la implementación del presente instructivo, la misma Comisión que se encargó de elaborarlo, deberá realizar una evaluación respecto a los resultados esperados y rendir un informe a esta Junta Directiva para su consideración.
