@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones públicas y privadas nacionales brindarán en la medida de sus posibilidades la colaboración y facilidades que estén a su alcance sin detrimento de las funciones propias, para la realización de la reunión, todo dentro del marco legal correspondiente.
