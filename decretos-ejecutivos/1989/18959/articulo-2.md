@@ -1,0 +1,1 @@
+Artículo 2° -El control del contenido del fluoruro (F ) Y yoduro (1 -), será realizado por el Ministerio de Salud. Cada vez que lo considere necesario, rea1izará los estudios correspondientes para cambiar las dosis de estos que aparecen en esta norma, con el fin de que la salud del pueblo de Costa Rica no se vea afectada por la ingesta de los mencionados.
