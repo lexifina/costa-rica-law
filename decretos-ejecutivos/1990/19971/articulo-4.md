@@ -1,0 +1,1 @@
+Art 4°.- Dentro del área declarada zona protectora, regirán las disposiciones de la ley N° 7174 del 28 de junio de 1990, para este tipo de área protegida, quedando los terrenos sometidos al Régimen Forestal.
