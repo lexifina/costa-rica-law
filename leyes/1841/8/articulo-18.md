@@ -1,0 +1,1 @@
+Art. 18. Tanto los retiros, como el montepío é inválidos, deben concederse, previa instrucción de causa, en la cual conste que la persona ó personas interesadas, se hallan en el caso de pedir la gracia que solicitan; y con mérito de los documentales y justificaciones presentadas, y el informe de sus superiores, hará el Gobierno la declaratoria correspondiente.

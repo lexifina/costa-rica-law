@@ -1,0 +1,1 @@
+Art. 9. Los Generales, Coroneles y Tenientes Coroneles, cuanto estén en servicio de guarnición en tiempo de paz, bien se hallen empleados en la Comandancia general, ó en cualquiera otra comisión, disfrutarán las dos terceras partes de su sueldo.

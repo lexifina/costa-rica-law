@@ -1,0 +1,1 @@
+Art. 23. La porción concedida á la hacienda municipal, en el valos líquido de los productos de tercenas, por el art 3° § 4° sección 2a del Decreto de 10 de Diciembre de 1839, se aplica al pago de Jefes Políticos y Jueces de 1a Instancia Departamentales; y por consecuencia, se introducirá mensualmente en la Administración Principal.

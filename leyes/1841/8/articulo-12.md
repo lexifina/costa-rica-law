@@ -1,0 +1,1 @@
+Art. 12. No se abonará sueldo alguno al funcionario ó empleado, de cualquiera clase que sea, mientras que no haya obtenido el competente despacho con las tómas de razón, y prestado el juramento “de fidelidad al Estado y cumplir las leyes” Cuando alguno sea trasladado, basta anotarlo en el despacho que tiene.
