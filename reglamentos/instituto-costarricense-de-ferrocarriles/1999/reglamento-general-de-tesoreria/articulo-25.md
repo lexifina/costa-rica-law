@@ -1,0 +1,2 @@
+Artículo 25.-Para cada cuenta bancaria habrá un registro auxiliar que servirá para llevar el control del saldo diario. Todos los cheques sin excepción deberán ser registrados en dichos auxiliares al momento de ser emitidos.
+Lo mismo deberá ocurrir con los depósitos y las notas de débito ó crédito de los bancos. La Tesorería será la encargada de llevar estos registros auxiliares y de conciliar los mismos mensualmente con los saldos de los Estados Financieros, dejando constancia escrita de dicha conciliación y enviando copia de la misma a la Gerencia Administrativa.

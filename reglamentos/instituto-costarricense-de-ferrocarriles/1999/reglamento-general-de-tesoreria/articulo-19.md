@@ -1,0 +1,1 @@
+Artículo 19.-Las personas autorizadas para firmar cheques y otros títulos valores, serán designadas por el Presidente Ejecutivo y en todo caso, siempre se utilizará, la firma de dos funcionarios de distintas áreas.

@@ -1,0 +1,2 @@
+Artículo 64.-EI Proveedor será el responsable de realizar las compras por medio de este fondo. Es necesario que el Departamento de Proveeduría reciba en cada caso la solicitud de compra en el formulario especialmente diseñado al efecto, el cual debe tener la aprobación previa de la Presidencia Ejecutiva o de la Gerencia respectiva.
+Además, el Almacén de Materiales deberá certificar la inexistencia del producto.

@@ -1,0 +1,1 @@
+Artículo 32.-AI cliente que por falta de pago se le cierre el crédito, solo podrá disfrutar nuevamente de este beneficio cumpliendo los trámites establecidos en el capítulo V., artículos 28, 29 y 30 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 54.-Los vales provisionales deberán ser liquidados como máximo al día siguiente de la entrega de los fondos. Ninguna Unidad, Sección o Departamento podrá solicitar un nuevo adelanto si tiene algún vale pendiente de liquidación ya vencido.

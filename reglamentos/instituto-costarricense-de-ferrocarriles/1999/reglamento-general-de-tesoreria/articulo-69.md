@@ -1,0 +1,1 @@
+Artículo 69.-El monto máximo autorizado para entrega de los adelantos de gastos de viáticos será el correspondiente a una semana (siete días) con la tarifa vigente en el sitio de visita, salvo casos calificados que serán autorizados previamente por el Presidente Ejecutivo.

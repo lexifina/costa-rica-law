@@ -1,0 +1,1 @@
+Artículo 17.-Los cheques para pagos del Instituto serán emitidos por la Tesorería de acuerdo con las regulaciones existentes en este reglamento, puntos del 18 al 26, así como al Reglamento de Proveeduría. Los cheques deben estar debidamente prenumerados. El control y la custodia de la existencia de los cheques en blanco estará a cargo de la Tesorería.

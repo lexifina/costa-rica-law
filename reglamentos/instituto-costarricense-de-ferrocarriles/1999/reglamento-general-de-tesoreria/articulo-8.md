@@ -1,0 +1,2 @@
+Artículo 8°-El Departamento de Servicios Generales suministrará a la Tesorería las facilidades de transporte y resguardo para llevar a cabo sus funciones, especialmente para el traslado a los bancos, tiempo durante el cual el chofer y el vehículo respectivo estarán bajo sus órdenes.
+Además es obligación del Tesorero tomar las precauciones del caso para protegerse debidamente de toda clase de riesgos.

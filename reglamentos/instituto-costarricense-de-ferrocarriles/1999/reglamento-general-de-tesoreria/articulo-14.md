@@ -1,0 +1,1 @@
+Artículo 14.-La Tesorería debe solicitar, por lo menos una vez al mes a la Contabilidad y a cualquier otra dependencia del Instituto, la información o los reportes necesarios para gestionar en forma persistente todos los cobros a favor del Instituto.

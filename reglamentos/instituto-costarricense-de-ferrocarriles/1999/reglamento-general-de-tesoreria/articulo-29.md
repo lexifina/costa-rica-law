@@ -1,0 +1,1 @@
+Artículo 29.-El crédito o la ampliación del mismo se otorgará únicamente a personas físicas o jurídicas que presenten un cuadro de solvencia y ofrezcan las mejores garantías para el Instituto, a juicio de la Gerencia Administrativa.

@@ -1,0 +1,1 @@
+Artículo 43.-La Tesoreóa deberá llevar un registro para e] control de las garantías recibidas por el Instituto, ya se trate de valores negociables o no y además confeccionar el informe que se señala en el inciso c) del artículo 10 del Reglamento.

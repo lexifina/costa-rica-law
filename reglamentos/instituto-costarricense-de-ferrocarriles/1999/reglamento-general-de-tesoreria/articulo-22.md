@@ -1,0 +1,1 @@
+Artículo 22.-La protectora de cheques debe usarse con anterioridad a la firma de cheques. Debe estar bajo ]a responsabilidad de uno de sus empleados, el cual será el único autorizado para usarla. Durante horas no hábiles debe guardarse en la caja de seguridad.

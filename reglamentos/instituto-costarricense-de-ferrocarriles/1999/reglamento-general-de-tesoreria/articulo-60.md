@@ -1,0 +1,1 @@
+Artículo 60.-Las cajas chicas que operarán y el monto de los fondos respectivos serán establecidos por el Presidente Ejecutivo con sujeción a las disposiciones legales vigentes, y con información oportuna al Consejo Directivo.

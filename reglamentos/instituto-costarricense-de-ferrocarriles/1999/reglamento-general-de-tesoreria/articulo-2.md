@@ -1,0 +1,1 @@
+Artículo 2°-Las disposiciones contenidas en el presente Reglamento regulan todo lo relacionado con la Tesorería y es entendido que el tesorero es el responsable de su fiel cumplimiento. Ningún funcionario o empleado puede alegar desconocimiento del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 33.-Se exceptúan las instituciones del sector público de las disposiciones a que se refieren los artículos 28, 29 y 30 pero para que garanticen el pago oportuno de los servicios que les brinde el Instituto, deberán entregar cada vez en forma previa la orden de compra respectiva.

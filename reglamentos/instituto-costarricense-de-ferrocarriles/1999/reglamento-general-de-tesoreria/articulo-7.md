@@ -1,0 +1,1 @@
+Artículo 7°-El Presidente Ejecutivo en conjunto con la Gerencia Administrativa decidirán que funcionarios tendrán las llaves y combinación de las cajas fuertes y entregarán un duplicado de las mismas en sobre cerrado y lacrado al Auditor General. Todo cambio de combinación debe enviarse en sobre cerrado y lacrado a la Auditoría General.

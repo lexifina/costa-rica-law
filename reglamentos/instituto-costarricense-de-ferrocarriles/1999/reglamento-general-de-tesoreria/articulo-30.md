@@ -1,0 +1,1 @@
+Artículo 30.- Todo nuevo crédito deberá estar garantizado con bonos del Estado o de sus instituciones, cartas de garantía de cualquiera de los bancos nacionales o bien de bancos extranjeros, avalados éstos por uno de los bancos del Sistema Bancario Nacional, garantía del Instituto Nacional de Seguros o garantía prendaria de primer grado.

@@ -1,0 +1,1 @@
+Artículo 34.-EI plazo máximo de crédito por servicios no podrá exceder de treinta días naturales. Transcurrido ese plazo sin que las cuentas vencidas se cancelen, la Gerencia Administrativa procederá a cerrar el crédito, decisión que se comunicará de inmediato a los departamentos que corresponda.

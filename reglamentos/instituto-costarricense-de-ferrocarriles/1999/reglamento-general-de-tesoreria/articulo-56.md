@@ -1,0 +1,1 @@
+Artículo 56.-Los cajeros deben hacer regularmente la solicitud de reintegro de los pagos de caja chica mediante la utilización del formulario respectivo, sin que en ningún momento se agote el fondo correspondiente. Será responsabilidad del cajero rotar adecuadamente este fondo para mantener los recursos necesarios en caja.

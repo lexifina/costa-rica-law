@@ -1,0 +1,1 @@
+Artículo 9°-La Caja General y las cajas chicas, cuya operación corresponde a los Cajeros, deben llevarse independientemente, sin hacer mezcla alguna de dinero o de comprobantes correspondientes a cada una de ellas.

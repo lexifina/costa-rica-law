@@ -1,0 +1,1 @@
+Artículo 28.-El Instituto podrá otorgar crédito por los servicios que presta a los usuarios del transporte de carga y pasajeros. Los créditos se concederán a algunos clientes que hayan o vayan a hacer uso de los servicios en forma regular con un volumen tal que lo amerite, previa solicitud escrita que para cada caso deberá presentar el interesado.

@@ -1,0 +1,1 @@
+Artículo 58.-Los cajeros encargados de fondos de caja chica enviarán las solicitudes de reintegro a la Tesorería General para su trámite; el cheque respectivo se hará únicamente a nombre del cajero solicitante.

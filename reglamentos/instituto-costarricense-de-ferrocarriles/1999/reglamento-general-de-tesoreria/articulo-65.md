@@ -1,0 +1,1 @@
+Artículo 65.-EI reintegro deberá hacerlo la Tesorería General en el formulario utilizado para las cajas chicas, pero indicando claramente que se trata del Fondo de Trabajo, adjuntando el original de las facturas, reportes y cotizaciones.
