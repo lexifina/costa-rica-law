@@ -1,0 +1,1 @@
+Artículo 5°-El Registro de Proveedores se utilizará para efectuar los procedimientos de contratación para el suministro de bienes y servicios. Para la adquisición o venta de inmuebles y para otros efectos, el Poder Judicial actuará de conformidad con lo estipulado en el ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 11.-Salvo prueba en contrario, por el sólo hecho de presentar la solicitud de inscripción, la documentación e información aportada para lograr la inscripción, así como cualquier información complementaria, se reputará válida.
