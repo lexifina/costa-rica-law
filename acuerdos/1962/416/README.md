@@ -14,3 +14,4 @@ Otorga indulto por delitos políticos o conexos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1962-06-02 | la propia norma |
+| 2 | 1962-08-01 | Acuerdo 436 (1962-08-01) |
