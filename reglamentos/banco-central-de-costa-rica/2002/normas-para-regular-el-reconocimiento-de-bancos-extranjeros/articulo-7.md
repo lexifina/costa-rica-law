@@ -1,5 +1,0 @@
-Artículo 7. Vigencia del reconocimiento
-La vigencia del reconocimiento como Banco de Primer Orden se mantendrá, siempre y cuando el banco en cuestión cumpla con lo estipulado en esta normativa.
-Los bancos reconocidos según lo establecido en los Artículos 1, 2 y 3 adquieren la obligación de enviar anualmente los estados financieros actualizados e informar oportunamente al Banco Central de Costa Rica, los cambios que alteren las condiciones bajo las cuales se otorgó el reconocimiento. Cuando la entidad reconocida cambie de nombre o razón social, deberá informarlo al Banco Central de Costa Rica y aportar información financiera y calificaciones crediticias de la nueva entidad a fin de verificar el cumplimiento de lo instituido en la presente normativa.
-El Banco Central de Costa Rica podrá revocar cualquier reconocimiento otorgado, cuando constate que el banco reconocido dejó de cumplir alguno de los requisitos dispuestos en esta normativa.
-(Así reformado en sesión N° 5144 de 15 de enero de 2003).

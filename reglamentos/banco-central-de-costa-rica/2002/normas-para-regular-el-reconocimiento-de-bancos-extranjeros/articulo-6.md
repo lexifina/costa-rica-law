@@ -1,3 +1,0 @@
-Artículo 6°—Reconocimiento de Oficio a Entidades en las que se desea efectuar Operaciones. Los bancos extranjeros que cumplan con lo estipulado en los Artículos 2 y 3 de estas normas, y en los cuales el BCCR, directamente o por medio de agentes o administradores externos, desee efectuar operaciones para una adecuada administración de sus reservas monetarias internacionales, podrán ser reconocidos de oficio como bancos extranjeros de primer orden por la Junta Directiva del Banco Central de Costa Rica.
-En caso de que por su naturaleza, dichas entidades no contaran con calificaciones de riesgo crediticio de largo plazo, se considerarán únicamente las de corto plazo.
-(Así reformado en sesión N° 5144 de 15 de enero de 2003).
