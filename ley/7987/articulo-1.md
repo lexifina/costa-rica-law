@@ -1,22 +1,6 @@
-Nº 7987
-LA ASAMBLEA LEGISLATIVA
-DE LA REPUBLICA DE COSTA RICA
+Ley Nº 7987
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 DECRETA:
-AMNISTIA TRIBUTARIA PARA LAS MUNICIPALIDADES
-Artículo Unico.-Autorízase a las municipalidades infracitadas para
-que exoneren, a los sujetos pasivos, del pago de intereses y multas sobre
-los impuestos y las tasas municipales sin cancelar hasta el 31 de
-diciembre de 1999. Esta exoneración se aplicará cuando tales sujetos
-cancelen la totalidad del principal adeudado y regirá por un período de
-tres meses, a partir de la fecha de la publicación de esta ley en "La
-Gaceta". Las municipalidades autorizadas son las siguientes: Limón,
-Talamanca, Santa Cruz, Matina, Alajuelita, Montes de Oca, Heredia,
-Desamparados, Coto Brus, Hojancha, Tibás, Curridabat, Esparza, Tarrazú,
-Poás, La Unión, Jiménez, El Guarco, La Cruz, Abangares, Tilarán, Moravia,
-Oreamuno, Santa Ana, Carrillo, Naranjo, Alfaro Ruiz, Escazú, Garabito,
-Liberia, Valverde Vega, Cañas, Bagaces, Puriscal, Atenas, Santo Domingo,
-Guatuso, Pérez Zeledón, Aguirre, Orotina, San Ramón, Puntarenas, Vásquez
-de Coronado, Flores, Mora, Turrubares, Goicoechea, Alajuela, San Pablo,
-Golfito, Parrita, Palmares, Guácimo, Corredores, Paraíso, Siquirres y
-Pococí.
+Amnistía Tributaria para las Municipalidades
+Artículo Unico.- Autorízase a las municipalidades infracitadas para que exoneren, a los sujetos pasivos, del pago de intereses y multas sobre los impuestos y las tasas municipales sin cancelar hasta el 31 de diciembre de 1999. Esta exoneración se aplicará cuando tales sujetos cancelen la totalidad del principal adeudado y regirá por un período de tres meses, a partir de la fecha de la publicación de esta ley en "La Gaceta". Las municipalidades autorizadas son las siguientes: Limón, Talamanca, Santa Cruz, Matina, Alajuelita, Montes de Oca, Heredia, Desamparados, Coto Brus, Hojancha, Tibás, Curridabat, Esparza, Tarrazú, Poás, La Unión, Jiménez, El Guarco, La Cruz, Abangares, Tilarán, Moravia, Oreamuno, Santa Ana, Carrillo, Naranjo, Alfaro Ruiz, Escazú, Garabito, Liberia, Valverde Vega, Cañas, Bagaces, Puriscal, Atenas, Santo Domingo, Guatuso, Pérez Zeledón, Aguirre, Orotina, San Ramón, Puntarenas, Vásquez de Coronado, Flores, Mora, Turrubares, Goicoechea, Alajuela, San Pablo, Golfito, Parrita, Palmares, Guácimo, Corredores, Paraíso, Siquirres y Pococí.
 Rige a partir de su publicación.
