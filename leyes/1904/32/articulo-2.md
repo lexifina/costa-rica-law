@@ -1,0 +1,1 @@
+Artículo 2° La obligación que impone el artículo anterior a los Magistrados no comprender a los Conjueces llamados a conocer de un asunto determinado a que integre el Tribunal por un término que no exceda de quince días.
