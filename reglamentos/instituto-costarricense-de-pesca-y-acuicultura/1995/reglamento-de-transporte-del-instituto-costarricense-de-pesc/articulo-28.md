@@ -1,0 +1,1 @@
+Artículo 28.—En caso de accidente, un funcionario de la Sección de Servicios Generales deberá desplazarse al lugar de los hechos a la brevedad para levantar el informe respectivo, de acuerdo con lo que expresa la Ley de Tránsito en ésta situación.

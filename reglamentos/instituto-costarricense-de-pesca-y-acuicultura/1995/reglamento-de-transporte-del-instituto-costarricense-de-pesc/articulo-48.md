@@ -1,0 +1,1 @@
+Artículo 48.—Los choferes de los vehículos institucionales deberán presentar a su superior inmediato un informe semanal completo sobre el recorrido y las giras realizadas en la semana inmediatamente anterior.
