@@ -1,0 +1,1 @@
+Art 6°.- Todos los importadores de medicinas deberán presentar a más tardar el 30 de noviembre de 1982, certificación consular de precios en el país de origen de dichos productos. Asimismo, los documentos de importación con el cálculo de la mercadería, cuyo precio actual no podrá modificarse sin la previa autorización del Ministerio de Economía y Comercio.

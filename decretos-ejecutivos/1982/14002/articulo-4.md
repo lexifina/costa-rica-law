@@ -1,0 +1,1 @@
+Art 4°.- Con base en las definiciones dadas en el Reglamento de la Ley de Protección al Consumidor para “mayorista” y “detallista” queda establecido para que aquellos productos con precio oficial fijado, cuando el detallista compre directamente al productor o industrial, compartirán en partes iguales la utilidad asignada al mayorista.
