@@ -1,1 +1,0 @@
-Artículo 45.—Los beneficiarios de los préstamos deberán participar con no menos del 10% del costo total de cada estudio. Cuando se trate de subpréstamos de Instituciones Nacionales Intermediarias, ellas participarán en el financiamiento con recursos propios, con no menos del 5%.

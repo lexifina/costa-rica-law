@@ -1,1 +1,0 @@
-Artículo 41.—Tanto en los préstamos directos como en las líneas de crédito, el Fondo cobrará una comisión del 1%, por una sola vez, por concepto de inspección y servicios. Las Instituciones Nacionales Intermediarias podrán cobrar igual suma a los subprestatarios.

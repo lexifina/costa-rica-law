@@ -1,2 +1,0 @@
-Artículo 37.—Monto máximo y mínimo de los préstamos
-El límite máximo para los préstamos dependerá del alcance del estudio, tomando en consideración las disponibilidades de recursos. El monto mínimo a otorgarse en préstamos directos o en líneas de crédito a Instituciones Nacionales Intermediarias será el equivalente de US$ 20,000.00. En los subpréstamos que éstas otorguen al Sector Privado o a las Municipalidades, el monto mínimo será el equivalente de US$ 2,000.00.

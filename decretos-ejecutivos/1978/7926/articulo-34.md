@@ -1,1 +1,0 @@
-Artículo 34.—El beneficiario deberá enviar al Fondo los informes de progreso sobre los estudios contratados, con la periodicidad que se estipule en el Contrato de Préstamo, mediante los instructivos que la Secretaría General preparará para el efecto. El Jefe del Departamento de Preinversión velará para que las evaluaciones se realicen dentro de los plazos previstos.

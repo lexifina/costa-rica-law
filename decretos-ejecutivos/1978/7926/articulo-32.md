@@ -1,1 +1,0 @@
-Artículo 32.—Sobre la base de evaluación de las labores de los consultores, el Jefe del Departamento de Preinversión recomendará la aprobación de los desembolsos al Secretario General. De proceder, el Secretario General o quien éste autorice librará la orden de pago correspondiente al Agente Financiero para que realice el desembolso.

@@ -1,1 +1,0 @@
-Artículo 30.—El seguimiento administrativo, de la ejecución de los préstamos estará a cargo del Jefe del Departamento de Preinversión quien mensual-mente presentará al Secretario General un Estado de Avance de la Ejecución de los Préstamos, con recomendaciones para la mejor y más expedita realización de los mismos.

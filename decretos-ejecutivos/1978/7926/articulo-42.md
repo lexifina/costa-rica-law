@@ -1,1 +1,0 @@
-Artículo 42.—El plazo de amortización y período de gracia de los préstamos será recomendado en cada caso por el Departamento con base en el estudio de la solicitud correspondiente, no pudiendo exceder de 10 años y tres años, respectivamente.

@@ -1,3 +1,0 @@
-CAPITULO IV
-Instituciones Nacionales Intermediarias
-Artículo 15.—El Comité Directivo podrá autorizar la designación de Instituciones Nacionales Intermediarias, las cuales podrán obtener líneas de crédito del Fondo destinadas a otorgar subpréstamos a beneficiarios del Sector Privado, cooperativas y municipalidades. Para tales efectos se entenderá por Instituciones Nacionales Intermediarias los organismos financieros, los bancos del Sistema Bancario Nacional y las corporaciones que normalmente ofrezcan préstamos de desarrollo a mediano y largo plazo, los cuales deberán contar con la organización, y el personal necesario que aseguren una adecuada selección, análisis, ejecución y evaluación de los estudios.

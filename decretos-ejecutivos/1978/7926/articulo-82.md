@@ -1,2 +1,0 @@
-Artículo 82.—informe final
-Previamente a la presentación del informe final, los consultores deberán presentar al beneficiario y al Fondo un borrador del informe para su análisis, evaluación y eventuales observaciones. Los consultores deberán comprometerse a ampliar, completar y atender cualquier observación razonable sin costo adicional alguno, a fin de asegurar que el estudio sea completo y satisfactorio para la entidad financiera que pudiera considerar el proyecto de inversión.

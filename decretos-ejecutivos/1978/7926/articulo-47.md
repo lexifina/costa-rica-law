@@ -1,2 +1,0 @@
-Artículo 47.—Garantías
-Antes de-la formalización de subpréstamos con entidades del sector público se deberá demostrar al Fondo que éstas han adoptado las medidas presupuestarias y administrativas apropiadas para asegurar que contarán con recursos suficientes para atender oportunamente los servicios del crédito que se les otorgue. Los subpréstamos al sector privado deberán estar respaldados con la garantía que la respectiva Institución Nacional Intermediaria estime satisfactoria.

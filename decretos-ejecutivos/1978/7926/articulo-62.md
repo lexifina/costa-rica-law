@@ -1,1 +1,0 @@
-Artículo 62.—Toda firma consultora que sea afiliada o subsidiaria de una compañía constructora o suministradora de equipo, solamente podrá ser aceptable para realizar estudios con recursos de Preinversión, si acepta por escrito que ni ella ni su casa matriz, ni sus asociados podrán intervenir en la construcción o suministro de equipo del proyecto resultante del contrato.

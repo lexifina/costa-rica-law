@@ -1,1 +1,0 @@
-Artículo 20.—La solicitud de financiamiento de estudios deberá ser tramitada a través de la Secretaría General, la cual por intermedio del Departamento de Preinversión procederá a codificarla, acusar recibo y llevar a cabo su evaluación técnica económica para su posterior consideración y decisión del Comité Directivo o del Ministro-Director de OFIPLAN según corresponda.
