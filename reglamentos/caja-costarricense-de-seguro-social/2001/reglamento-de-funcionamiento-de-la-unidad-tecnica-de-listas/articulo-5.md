@@ -1,0 +1,11 @@
+Artículo 5°—Unidad Técnica de Listas de Espera. La Unidad Técnica de Listas de Espera se establece como una instancia adscrita a la Gerencia de División Médica y se conformara como unidad programática.
+Sin perjuicio de las competencias y deberes propios de cada centro de salud desconcentrado y de las Gerencias compradoras, la UTLE tiene como objetivos primarios los siguientes:
+• Documentar las estrategias desarrolladas a nivel nacional e internacional sobre listas de espera y clasificar aquellas que sean válidas de aplicarse en Costa Rica.
+• Desarrollar las estrategias que promuevan una reducción efectiva de las listas de espera para cirugía electiva, consulta externa especializada y procedimientos en las especialidades que se determinen como críticas por la Gerencia Médica.
+• Promover negociaciones y fungir como ente facilitador de acuerdos con y entre centros médicos de la CCSS, para solucionar listas de espera para cirugía electiva, consulta externa especializada y procedimientos.
+• Ser garante de la gestión de pago efectiva por el cumplimiento de los acuerdos de solución para listas de espera para cirugía electiva, consulta externa especializada y procedimientos por parte de los centros médicos de la CCSS que sirvan como prestadores de servicios.
+• Monitorear, con el apoyo técnico de la SUGESS, la correcta productividad en la jornada ordinaria y en la jornada extraordinaria o adicional, para garantizar la equidad en la prestación de servicios médicos de los centros que sirvan como prestadores de servicios.
+• Mantener y actualizar el sistema de registro de pacientes en listas de espera de los hospitales y clínicas de la CCSS que sean incorporados a la estrategia de solución de la Unidad Técnica de Listas de Espera.
+• Gestionar todos los mecanismos de Tecnología de la Información disponibles en el nivel institucional, con el fin de establecer en el mediano plazo una red de información digital entre los centros médicos que inician la estrategia y en el largo plazo, con todos los
+centros médicos del país.
+• Otras que sean delegadas, mediante aprobación previa de la Junta Directiva de la CCSS por la Presidencia Ejecutiva o la Gerencia División Médica, en el ámbito de lo establecido como sus objetivos y en la búsqueda de su mejor cumplimiento.

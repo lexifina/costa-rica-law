@@ -1,0 +1,1 @@
+Artículo 8°—Ubicación y recursos de la Unidad Técnica de Listas de Espera. Será responsabilidad de la Gerencia Administrativa la ubicación física para la labor de al menos 10 funcionarios y el equipamiento necesario, bajo criterio técnico de la Dirección de la Unidad Técnica de Listas de Espera.

@@ -1,0 +1,1 @@
+Artículo 27.—Secuencia de desarrollo de la labor de la Unidad Técnica de Listas de Espera. La Unidad Técnica de Listas de Espera iniciará su labor en el área de cirugía electiva; luego establecerá criterios de acción en consulta externa especializada y procedimientos, sin que esto constituya la única secuencia posible en la parte práctica.
