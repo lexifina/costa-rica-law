@@ -14,3 +14,4 @@ Adhesión de la República de Costa Rica a la Convención para la Protección de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-19 | la propia norma |
+| 2 | 1998-02-19 | Ley 8 |
