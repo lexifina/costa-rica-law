@@ -14,3 +14,4 @@ Crea Parque Recreativo Laguna Fraijanes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-11 | la propia norma |
+| 2 | 1981-12-02 | Decreto Ejecutivo 13176 (1981-12-02) |
