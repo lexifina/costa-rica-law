@@ -1,0 +1,12 @@
+BANCO CENTRAL DE COSTA RICA
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 14, del acta de la sesión 260-2001, celebrada el 29 de octubre del 2001,
+considerando:
+a. que mediante artículo 8 del acta de la sesión 149-94, efectuada el 27 de enero de 1994, la entonces Junta Directiva de la Comisión Nacional de Valores (hoy Superintendencia General de Valores) dispuso aprobar las Normas Generales para la Administración de Carteras;
+b. que en el acta de la sesión 81-99, artículo 14, del 18 de marzo de 1999, el Consejo Nacional de Supervisión del Sistema Financiero aprobó una serie de reformas a las "Normas Generales para la Administración de Cañeras" relacionadas con la administración de las carteras individuales propiedad de terceros así como con la administración de las carteras mancomunadas, al tiempo que mediante el literal D. de ese mismo Artículo se dejó establecido que tales reformas no serian aplicables a los OPAB y CAV;
+c. que el citado cuerpo normativo establece determinadas reglas que deben seguir los puestos para la administración de carteras individuales y de carteras mancomunadas;
+d. que dadas las especiales características que han tenido las carteras de CAV y de OPAB no ha sido clara la aplicación a las primeras de las reglas establecidas para la administración de carteras mancomunadas ni la aplicación, a las segundas, de las reglas establecidas para la administración de carteras individuales. Dado el grado de desarrollo del mercado de valores se impone la necesidad de aplicar en forma estricta dichas reglas a estas figuras;
+e. que la presente reforma fue sometida al tramite de consulta establecido en el Artículo 361 de la Ley General de Administración Publica;
+convino en tomar los siguientes acuerdos:
+I. Modificar el texto de las "Normas Generales para la Administración de Carteras", de tal manera que se adicione una sección V a dicho cuerpo normativo, la cual se lea de la siguiente forma "Sección V. Administración de Carteras CAV y OPAB
+En la administración de carteras de OPAB los puestos de bolsa deberán acatar las reglas establecidas para la administración de carteras individuales, con excepción de lo dispuesto en el inciso h) del punto 1, el párrafo segundo del punto 3 y el punto 6 del Apartado II (Administración de Carteras Individuales propiedad de Terceros).
+2. En la administración de carteras de CAV los puestos de bolsa deberán seguir las reglas establecidas para la administración de carteras mancomunadas."
