@@ -1,0 +1,1 @@
+Artículo 25.—Para obtener permisos de demolición, deberá cumplirse con lo estipulado en la Ley de Construcciones y lo dispuesto en el Capítulo V, artículos 2, 4, 5, 6, 28 del Reglamento de Construcciones de 1983 y sus reformas.

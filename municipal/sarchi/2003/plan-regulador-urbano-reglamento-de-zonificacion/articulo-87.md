@@ -1,0 +1,1 @@
+Artículo 87.—Los usos permitidos establecidos para la ZPE, deberán cumplir con las siguientes regulaciones mínimas. Asimismo, deberán aplicarse todas las regulaciones específicas establecidas en otras leyes y reglamentos vigentes.

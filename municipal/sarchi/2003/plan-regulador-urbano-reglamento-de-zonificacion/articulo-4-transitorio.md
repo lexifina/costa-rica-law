@@ -1,0 +1,1 @@
+Artículo 121.—Transitorio IV. La JUPLACA deberá ser conformada por la municipalidad dentro del plazo de tres meses calendario a partir de la aprobación y publicación del Plan Regulador, deberá publicitarse la misma a efectos de abrir los canales de participación ciudadana que el caso requiere.

@@ -1,0 +1,1 @@
+Artículo 27.—Los anteproyectos que a la fecha de aprobación del Plan Regulador cuentan con el Visto Bueno del Departamento de Ingeniería, pueden obtener el Certificado de Uso de la Tierra que tendrá una vigencia de un año natural. Este trámite deberá realizarse en los 90 días siguientes a la fecha en que entre en vigencia el Plan Regulador.

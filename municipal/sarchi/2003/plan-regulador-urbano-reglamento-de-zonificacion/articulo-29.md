@@ -1,0 +1,1 @@
+Artículo 29.—Todo cambio de uso, toda obra de urbanización, renovación urbana, construcción, reparación, ampliación, remodelación o demolición que se desarrolle en el Cantón de Valverde Vega, deberá contar con el respectivo permiso, que se solicitará en la DDU.

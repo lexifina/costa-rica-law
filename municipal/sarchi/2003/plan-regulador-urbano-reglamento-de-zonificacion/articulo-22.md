@@ -1,0 +1,1 @@
+Artículo 22.—La variación de la línea divisoria entre las distintas zonas del Plan Regulador, en no más de 100 metros de su ubicación original, podrá hacerse vía Acuerdo Municipal, previo dictamen y estudio técnico de la DDU, con el propósito de que las parcelas no queden subdividas por diferentes usos en porciones no aprovechables para los fines del Plan Regulador.

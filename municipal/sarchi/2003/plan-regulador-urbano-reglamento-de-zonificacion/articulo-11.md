@@ -1,0 +1,1 @@
+Artículo 11.—Respecto a lo establecido en el artículo anterior y para el caso específico de proyectos de urbanización, no podrá ser objeto de la adquisición de bienes inmuebles, los terrenos que el urbanizador debe ceder al uso público de conformidad con la Ley de Planificación Urbana y su Reglamento.

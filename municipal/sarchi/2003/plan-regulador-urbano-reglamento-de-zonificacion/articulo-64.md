@@ -1,0 +1,1 @@
+Artículo 64.—De los usos permitidos que se señalan en el artículo anterior, los siguientes deberán ubicarse exclusivamente en la zona comercial que forma parte de cada proyecto de urbanización, a fin de evitar que usos potencialmente molestos afecten las zonas residenciales: 17, 36, 45, 74, 155, 156, 158.

@@ -1,0 +1,4 @@
+CAPÍTULO QUINTO
+La Zona Mixta: Residencial-Comercial (ZMRC)
+Artículo 53.—Definición. Comprende los espacios inmediatos a la Zona Urbana de Comercio y Residencial, tanto en la ciudad de Sarchí Norte como en el resto de los principales centros de población, identificadas con las ZMRC en el mapa de zonificación.
+El propósito de la ZMRC es ordenar el desarrollo urbano de las zonas aledañas a los principales centros poblados y buscar la mejor integración espacial, así como prever y controlar la posible extensión de las actividades comerciales y de servicios que ello implica. Sirve como zona de transición entre los usos urbanos y otros usos. Permite, en conjunto con la Zona de Expansión Urbana, consolidar y conformar los cuadrantes urbanos existentes y propuestos y así densificar y concentrar el espacio y la población.

@@ -1,0 +1,1 @@
+Artículo 99.—Las variables o requisitos para el desarrollo de los diferentes usos permitidos por la legislación vigente, serán establecidos en los planes de manejo que deberá elaborar el MINAE para cada área protegida.

@@ -1,0 +1,1 @@
+Artículo 36.—Se suspenderá toda obra que en el transcurso de la ejecución deje escombros en la vía pública u obstruya el libre tránsito por la vía pública, sin tener la autorización de la DDU.

@@ -1,0 +1,1 @@
+Artículo 97.—La ZPT comprende los terrenos que en el Cantón forman parte de la Zona Protectora Río Toro y la Zona Protectora El Chayote, la primera localizada dentro los distritos Sarchí Norte y San Pedro y la segunda dentro de Sarchí Norte. Identificadas con las siglas ZPT en el mapa de zonificación.

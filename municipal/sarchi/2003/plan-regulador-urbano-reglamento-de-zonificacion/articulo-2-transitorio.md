@@ -1,0 +1,1 @@
+Artículo 119.—Transitorio II. Los permisos de construcción otorgados antes de la vigencia del presente Plan Regulador, tendrán un plazo de vigencia de dos años en los cuales se podrán construir las obras autorizadas. Pasado ese plazo, deberán tramitarse de nuevo para que adecuen a las normas comprendidas para la zona respectiva en el presente Reglamento.

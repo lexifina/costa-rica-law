@@ -1,0 +1,3 @@
+CAPÍTULO CUARTO
+Transformación de inmuebles, establecimientos peligrosos, protección de zonas e impacto ambiental
+Artículo 13.—Para efectos de la aplicación del Plan Regulador y en el caso específico de todas las edificaciones que no se ajusten a las disposiciones establecidas por el presente Plan Regulador en sus diferentes zonas, éstas podrán ser objeto de trabajos de transformación, de mejoramiento y de preservación siempre y cuando no represente un crecimiento el área construida de más del 10% y se obtenga de previo la autorización de la DDU y la Municipalidad, bajo los procedimientos que estuvieren establecidos.

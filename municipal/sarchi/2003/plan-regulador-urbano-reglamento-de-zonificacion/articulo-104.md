@@ -1,0 +1,1 @@
+Artículo 104.—Se busca por medio de la Zona Vial garantizar que se respeten los espacios para el tránsito de personas y vehículos. En lo particular se norma esta condición en el reglamento de vialidad y transporte.

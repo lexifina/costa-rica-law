@@ -1,0 +1,1 @@
+Artículo 12.—Con el fin de ordenar el desarrollo territorial del Cantón en cumplimiento de los propósitos del Plan Regulador, la Municipalidad podrá adquirir terrenos siempre y cuando se declare de previo bien de utilidad o de interés público.

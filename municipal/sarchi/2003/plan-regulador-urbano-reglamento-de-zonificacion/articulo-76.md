@@ -1,0 +1,3 @@
+CAPÍTULO DECIMOPRIMERO
+La Zona Agropecuaria (ZAG)
+Artículo 76.—Identificadas con las siglas ZAG en el mapa de zonificación. Esta zona corresponde a espacios de borde y terrenos al interior de otras zonas. Por medio de la ZAG se pretende mantener las actividades agropecuarias en la zona y cautelar terrenos para mantenerlos al margen de la urbanización y desarrollar espacios de amortiguamiento en aras de un desarrollo humano y natural sustentable. Asimismo, permitirá la localización de actividades que requieran grandes espacios para su desarrollo y que sean compatibles con el uso del suelo. También se permitirá el uso residencial bajo la modalidad de quintas agrícolas.

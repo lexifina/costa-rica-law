@@ -1,0 +1,1 @@
+Artículo 115.—Denuncia ante instancias. Cuando proceda por haberse violado normas en torno a seguridad, riesgo, peligrosidad, contaminación u otros, la Municipalidad interpondrá las acciones correspondientes ante las instancias oficiales competentes a los efectos de que aquellas tomen las medidas legales pertinentes.
