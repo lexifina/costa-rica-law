@@ -1,0 +1,3 @@
+Artículo 58.- Se establece un impuesto del diez por ciento sobre el monto de toda exención de impuestos que conceda el Estado a la actividad minera. El producto de este impuesto será para fomentar la investigación geológica, preparar los cuadros técnicos e impulsar, por parte del Estado, la explotación de las riquezas minerales del país.
+A la Dirección de Geología, Minas e Hidrocarburos le corresponde elaborar los presupuestos correspondientes, para fijar el destino de lo recaudado mediante el presente impuesto.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 54 al 58)

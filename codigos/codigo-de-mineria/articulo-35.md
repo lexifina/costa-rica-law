@@ -1,0 +1,2 @@
+Artículo 35.- La Dirección de Geología, Minas e Hidrocarburos podrá solicitar al concesionario que amplíe sus labores en sustancias no explotadas o desechadas, en desmontes, relaves y escorias, siempre que esto sea factible técnica y económicamente.
+Si el concesionario se negare a ello, a pesar de la comprobada factibilidad técnica y económica, la Dirección de Geología, Minas e Hidrocarburos, podrá otorgar la concesión sobre esas sustancias a un tercero, siempre que no afecte los trabajos existentes.

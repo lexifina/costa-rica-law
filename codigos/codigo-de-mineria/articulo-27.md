@@ -1,0 +1,1 @@
+Artículo 27.- El respectivo Ministerio podrá otorgar directamente una concesión de explotación, sin necesidad de exigir el cumplimiento previo de la etapa de exploración, cuando los minerales estén a la vista o sea evidente su existencia, previa elaboración y aprobación del correspondiente proyecto de explotación.

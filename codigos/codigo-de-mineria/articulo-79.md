@@ -1,0 +1,3 @@
+Artículo 83.- De la oposición legalmente interpuesta se hará conocer el afectado, con el fin de que exponga lo conveniente a sus intereses, en el plazo de quince días.
+La Dirección de Geología, Minas e Hidrocarburos podrá pedir los antecedentes y pruebas adicionales que crea necesarios, y se pronunciará sobre la oposición en el plazo máximo de treinta días, contados desde el vencimiento del plazo anterior, sea que las partes hayan acompañado o no los antecedentes y pruebas pedidos. Agotadas las diligencias y dictado el fallo, podrá apelarse ante el Tribunal Superior Contencioso Administrativo, dentro de los tres días siguientes a la notificación.
+(Modificada su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo pasó del 79 al 83)

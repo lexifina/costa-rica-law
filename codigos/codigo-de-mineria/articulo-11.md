@@ -1,0 +1,1 @@
+Artículo 11.- Las sociedades extranjeras y las personas físicas de la misma condición, no residentes en el país, deberán nombrar un representante legal con poder suficiente para adquirir derechos y contraer obligaciones a nombre de su mandante, e inscribir su sociedad, para que les pueda ser concedido un permiso de exploración o una concesión de explotación minera.

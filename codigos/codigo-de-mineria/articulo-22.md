@@ -1,0 +1,1 @@
+Artículo 22.- El área comprendida en el permiso de exploración tendrá la forma de un polígono limitado por líneas rectas y con referencia a puntos geográficos fácilmente identificables, y se ubicará en el mejor mapa de la zona; de no existir mapa, en las fotografías aéreas más recientes.

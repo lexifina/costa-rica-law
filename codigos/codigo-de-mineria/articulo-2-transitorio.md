@@ -1,0 +1,1 @@
+Transitorio II.- Las sociedades actualmente existentes, que se dediquen a las actividades mineras, o que se hayan constituido con ese exclusivo propósito, deberán inscribirse en el Registro, dentro del plazo de seis meses, contados desde la fecha de vigencia de la presente ley.
