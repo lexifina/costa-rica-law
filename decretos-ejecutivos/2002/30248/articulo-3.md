@@ -1,0 +1,1 @@
+3º—De conformidad con el punto 3 del numeral 188 de la Ley General de la Administración Pública el presente acto tiene efecto retroactivo a la fecha de emisión de los actos saneados, por lo que se ratifican todas las actuaciones preparativas que en el curso del procedimiento y posteriores a la fecha de emisión de los actos referidos se hayan generado.
