@@ -1,2 +1,1 @@
-Artículo 5°-Adiciónase el artículo 34 de la citada ley, con un párrafo que diga:
-“No podrá ser nombrado propietario o suplente, ni Secretario del Tribunal el que tuviere asuntos pendientes ante el Departamento de la renta, ante la Dirección General de la Tributación Directa, o ante el propio Tribunal, ya sean propios y en los que haya intervenido como consejero o director profesional, y mientras esté nombrado no podrá hacerse cargo de dirigir o asesorar en ningún asunto que se esté discutiendo en cualquiera de las instancias señaladas”.
+Artículo 5°-(Derogado por el artículo 2° de la ley N° 3063 del 14 de noviembre de 1962)

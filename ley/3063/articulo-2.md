@@ -1,0 +1,1 @@
+Artículo 2° Deróganse los artículos 1°, 2° y 5° de la ley N° 2973 de 20 de diciembre de 1961 (Interpretación de varios artículos de la Ley de Impuestos sobre la Renta), y el artículo 3° de la ley N° 1880 de 7 de junio de 1955, que faculta a la Dirección General de la Tributación Directa a exonerar multas

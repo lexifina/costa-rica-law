@@ -1,0 +1,1 @@
+Transitorio (Artículo 33).-Este artículo comenzará a regir tan pronto esté instalado el Tribunal Fiscal Administrativo de que habla el artículo siguiente. Los juicios que a esa fecha estén pendientes de resolución, se tramitarán conforme a las reglas aquí indicadas, y pasarán a conocimiento de dicho Tribunal.
