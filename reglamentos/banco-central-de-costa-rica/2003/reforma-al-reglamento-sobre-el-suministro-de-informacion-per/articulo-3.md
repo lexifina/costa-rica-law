@@ -1,0 +1,5 @@
+Artículo 3º—Reformas a los puntos 1.30, 3.10 y 6.6 del artículo 12
+Se reforman los puntos 1.30, 3.10 y 6.6 del artículo 12 del Acuerdo para que en adelante se lean así:
+"1.30 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga."
+"3.10 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga."
+"6.6 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga."
