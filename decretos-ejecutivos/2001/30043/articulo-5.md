@@ -1,0 +1,2 @@
+Articulo 5°-Sólo será permitido el uso y comercialización de aquellos plaguicidas domésticos e industriales y fertilizantes de uso doméstico debidamente registrados ante el Ministerio, siempre y cuando el establecimiento cuente con el permiso de funcionamiento vigente.
+En el caso de productos que constituyan formulaciones diferentes, pero se comercialicen bajo una misma marca comercial, los mismos deben estar registrados como tales ante el Ministerio.

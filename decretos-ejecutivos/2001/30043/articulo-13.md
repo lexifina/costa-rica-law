@@ -1,0 +1,2 @@
+Articulo 13.-Prohibiciones. Se prohíbe la comercialización, transferencia o donación de aquellos productos que hayan sido importados por una industria nacional sin haber realizado el registro correspondiente según articulo 6°, inciso 2) ó 3), según corresponda.
+Se prohíbe utilizar como materia prima la extraída de otro producto formulado, al cual se Ie ha alterado la concentración de ingrediente activo para obtener un producto final diferente.

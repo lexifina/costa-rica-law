@@ -1,0 +1,1 @@
+Articulo 12.-Certificados de registro y venta en el país. EI Ministerio emitirá certificados de registro y venta en el país, a toda persona física o jurídica que manipule plaguicidas de uso doméstico e industrial y fertilizantes de uso doméstico, cuando el producto esté registrado en el Ministerio.

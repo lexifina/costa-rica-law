@@ -1,0 +1,33 @@
+Articulo 4°-Definiciones. Para fines de este Reglamento se entenderá por:
+- Anotación marginal: Modificación de un registro original de acuerdo con lo contemplado en el articulo 7° del presente Reglamento; dicho registro conservará el numero original.
+- Certificado de Iibre venta: Documento expedido por la entidad o autoridad competente del Estado o país fabricante, sea privada o pública, que indica que el producto esta registrado y que su venta está autorizada legal mente en ese territorio.
+- Concentración letal media (CL50): La concentración de una sustancia, en el aire o en el agua (para organismos acuáticos) que causa el 50% de mortalidad en los animales de prueba, usualmente bajo exposición de un período determinado. Se expresa en partes por millón (ppm, mg/L o g/m3) por unidad de tiempo.
+- Dirección: Dirección de Registros y Controles del Ministerio de salud.
+- Distribuidor: Persona natural o jurídica que se dedica a distribuir y vender plaguicidas para uso doméstico e industrial y fertilizantes de doméstico.
+- Dosis Letal Media (DL50): Dosis de un agente químico, necesaria producir la muerte del 50% de los animales de experimentación expuestos. Es un calculo estadístico del numero de miligramos de agente químico por kilogramo de peso corporal, necesarios para matar el 50% de una población de animales de experimentación expuestos.
+- Etiqueta: Material impreso o inscripción gráfica, escrito en caracteres legibles, que identifica y describe el producto contenido el envase que acompaña, de acuerdo a la normativa vigente.
+- Excipientes: Cualquier emulsificante, disolvente, dispersante, propelente, agregado a la formulación del plaguicida o sus mezclas que no sea activo contra los organismos a que esta destinado el plaguicida.
+- Fabricación: Se entiende por fabricación todos los distintos procesos de la producción que permiten obtener plaguicidas de uso doméstico e industrial.
+- Fabricante: Persona física o jurídica que se dedique a elaborar plaguicidas de uso doméstico e industrial, ya sea grado técnico formulado.
+- Fertilizante de uso doméstico: Producto orgánico o inorgánico, natural o sintético que aplicado a raíces o follaje de plantas de jardín suministra los nutrientes necesarios para su crecimiento o floración.
+- Formulación: Todo plaguicida elaborado mediante fórmulas que contenga uno o más principios activos uniformemente distribuidos en uno o mas excipientes, con o sin ayuda de acondicionadores de fórmula.
+- Formulario: Formulario para el registro de plaguicidas de uso industrial y doméstico y fertilizantes de uso doméstico (Anexo 2).
+- Hoja de Seguridad: documento técnico emitido por la compañía fabricante, formuladora, en la que se indica el grado de riesgo y peligrosidad para la salud humana y del ambiente del producto, así como las condiciones de manejo necesarias para minimizar los riesgos de exposición.
+- Ingrediente o principio activo: Cualquier sustancia sintética o de biológico en estado puro capaz de prevenir, repeler, atraer, mitigar, controlar o destruir algún ser vivo.
+- Intoxicación: Efecto adverso debido a la exposición a una sustancia. EI conjunto de efectos nocivos producidos por un agente químico.
+- Manejo: La fabricación, importación, almacenamiento, distribución, suministro, venta, uso o transporte de plaguicidas de uso doméstico e industrial y fertilizantes de uso doméstico
+- Marca Comercial: Nombre que identifica un producto como perteneciente a una empresa o establecimiento comercial o que esté inscrito en el Registro de la Propiedad Industrial, de acuerdo con las leyes que rigen la materia.
+- Materia Prima: Todas las sustancias activas o inactivas que se emplean en un proceso de producción, tanto si permanecen inalteradas, como si experimentan modificación o son eliminadas durante el proceso de fabricación.
+- Ministerio: Ministerio de Salud.
+- Muestra sin valor comercial: Aquel producto sin valor comercial, de acuerdo al artículo 120 de la Ley N° 7557, Ley General de Aduanas.
+- Nombre genérico: Nombre común del ingrediente o principio activo, aprobado por algún organismo oficial de estandarización internacional.
+- Nombre químico: Designación científica para una sustancia, de acuerdo al sistema de nomenclatura desarrollado por la Unión Iternacional de Química Pura y Aplicada (IUPAC, por sus siglas en Ingles) o un nombre que indique claramente la sustancia, para permitir la evaluación de su riesgo.
+- Numero CAS: Numero de registro de la sustancia ante el Chemical Abstract Service, perteneciente a la Asociación Americana de Químicos (CAS por sus siglas en ingles).
+- Plaguicida: Cualquier sustancia o mezcla de sustancias de naturaleza química o biológica que se destine a combatir, controlar, prevenir, atenuar, repeler, o regular la acción de cualquier forma de vida que afecte la salud humana o los bienes de producción. Por extensión se incluyen productos agroquímicos tales como fertilizantes y reguladores de crecimiento para uso doméstico en plantas ornamentales y jardines.
+- Plaguicida de uso doméstico: Plaguicida formulado en presentación "Iista para usarse" que clasifique en la categoría IV según la clasificación de riesgo agudo OMS/FAO, Anexo I.
+- Plaguicida de uso industrial: Plaguicida formulado que solo puede ser vendido o distribuido por sus fabricantes o en expendios autorizados, que clasifique en las categorías II, III o IV según la clasificación de riesgo agudo OMS/FAO, Anexo I.
+- Producto: Entiéndase todo plaguicida de uso doméstico o industrial, o fertilizante doméstico .
+- Producto formulado o terminado: producto comercial plaguicida o fertilizante formulado y listo para su uso.
+- Producto o material técnico: Compuesto con una pureza menor que la de un material designado como químicamente puro, utilizado como materia prima para la elaboración del producto terminado.
+- Registro: Procedimiento mediante el cual todo plaguicida de uso doméstico e industrial es autorizado por el Ministerio para su uso y comercialización, una vez cumplidos con todos los requisitos jurídicos vigentes.
+- Toxicidad: Propiedad que tiene una sustancia o sus productos derivados del metabolismo o de la degradación ambiental, de provocar a dosis determinadas un daño a la salud, luego de estar en contacto con la piel, membranas mucosas o haber ingresado al organismo por cualquier vía.

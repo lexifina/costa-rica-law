@@ -1,0 +1,2 @@
+Articulo 14.-Disposiciones finales. EI Ministerio tendrá la potestad de solicitar al registrante, por una única vez, documentación científica y técnica adicional que se considere necesaria para realizar la evaluación del riesgo a la salud humana, animal o ambiental, durante el proceso de registro.
+En caso de que la información aportada por el interesado no satisfaga los requerimientos que previamente el Ministerio señalo, el proceso de registro de que se trate, se detendrá hasta tanto se aporte satisfactoriamente lo solicitado.
