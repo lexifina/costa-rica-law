@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza el traslado de personal asignado al Programa de Guarderías Infantiles que venía ejecutando el Ministerio de Trabajo y Seguridad Social al Programa CEN CINAI del Ministerio de Salud, el cual lo asumirá de conformidad con la normativa vigente en la materia.
