@@ -1,0 +1,1 @@
+10.—Cada vez que el "Premio acumulado" es acertado, el mismo se reinicia con un importe de diez millones de colones (10.000.000), para la semana siguiente, continuando el sistema de acumulación antes descrito es decir, agregando la cantidad de tres millones de colones (3,000.000 por semana hasta su próximo acierto.

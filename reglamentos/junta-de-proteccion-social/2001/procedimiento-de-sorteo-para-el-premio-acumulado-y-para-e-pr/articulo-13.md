@@ -1,0 +1,2 @@
+Transitorio único.—Para iniciar el nuevo año de vigencia del "Premio acumulado" y el "Premio del millón", a partir del sorteo N° 3649, la celebrarse el 6 de enero de] 2002, el importe para el "Premio acumulado", se inicia con un monto de I 0.000.000, con 49 bolitas en blanco v una que indica "acumulado".
+Se aprueba el presente procedimiento según artículo IV, inciso 3), ' del acta N" 40-2001, de la sesión celebrada por la Junta Directiva el 30 de octubre del 2001.

@@ -1,0 +1,1 @@
+4°—Cada vez que en un sorteo el azar determine la selección de una bolita que no indica premio, para el siguiente sorteo, se sustituye esa bolita por otra que indica premio por un millón de colones (1,000.000), lo que en si representa la opción de obtener un premio especial por ese monto en el sorteo siguiente. A ese premio especial se le denomina "Premio del millón"
