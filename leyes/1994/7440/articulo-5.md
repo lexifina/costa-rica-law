@@ -10,3 +10,6 @@ d) El Director Nacional de Prevención del Ministerio de Justicia y
 Gracia.
 e) El jefe del Departamento de Control de Propaganda del Ministerio
 de Gobernación y Policía.
+f) Una delegada del Instituto Nacional de las Mujeres.
+(Así adicionado este inciso por el artículo 27 (Actual 29), inciso a), de la ley
+del Instituto Nacional de las Mujeres No.7801 de 30 de abril de 1998)

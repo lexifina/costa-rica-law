@@ -1,1 +1,2 @@
-Artículo 10.-Habrá un Consejo Asesor de propaganda, integrado por dos representantes del Ministerio de Gobernación, uno de la Cámara de Comercio y otro de la Asociación del Consejo Nacional de Publicidad.
+Artículo 10.- Existirá un Consejo Asesor de Propaganda, integrado por dos personas representantes del Ministerio de Gobernación, una de la Cámara de Comercio, otra de la Asociación del Consejo Nacional de Publicidad, y una representante del Instituto Nacional de las Mujeres.
+(Así reformado por el artículo 26 (actual 28), inciso a) de la Ley del Instituto Nacional de las Mujeres, N° 7801 de 30 de abril de 1998)

@@ -1,5 +1,3 @@
-ARTICULO 24.- Coordinación de políticas
-Corresponderá a los entes rectores en materia de discapacidad y
-tercera edad, formular y coordinar políticas públicas para prevenir y
-atender casos de violencia intrafamiliar contra personas discapacitadas o
-personas de sesenta años o más.
+Artículo 24.- Coordinación de políticas
+Corresponderá a los entes rectores en materia de discapacidad y tercera edad, formular y coordinar políticas públicas para prevenir y atender casos de violencia intrafamiliar contra personas discapacitadas o personas de sesenta años o más.
+(Nota de Sinalevi: El Dictamen N° 372-2019 del 13 de diciembre de 2019 concluyó que el artículo 24 de la Ley contra la Violencia Doméstica N° 7586 del 10 de abril de 1996, ha sido derogado tácitamente en forma parcial. De acuerdo con dicho criterio, existe incongruencia o contradicción entre el artículo 24 de la ley N° 7586 y el numeral 2 de la Ley Integral para la Persona Adulta Mayor N° 7935 del 25 de octubre de 1999, dado que ambas normas fijan una edad distinta para que una persona sea considerada adulta mayor en nuestro país. La antinomia jurídica debe ser resuelta aplicando los criterios hermenéuticos y, en específico, el criterio cronológico el cual supone que, ante el conflicto entre dos normas de igual naturaleza y jerarquía, debe prevalecer la norma posterior. El efecto que ocasiona la aplicación de este criterio es la derogación tácita parcial de la norma anterior, es decir, del artículo 24 de la ley N° 7586 del 10 de abril de 1996, únicamente en cuanto fijó la edad para que una persona sea considerada parte de la tercera edad, o adulta mayor, en 60 años o más.)
