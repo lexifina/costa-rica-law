@@ -21,3 +21,5 @@ Al respecto de esto último serán igualmente aplicables las normas de los párr
 g. Resolver la aplicación de sanciones de apercibimiento o de inhabilitación a las personas físicas o jurídicas que participen en procedimientos para contratar y que se hagan acreedoras a ellas por incurrir en las conductas previstas en la Ley de Contratación Administrativa y su Reglamento General, en aquellos casos en que le haya correspondido dictar el acto de adjudicación.
 h. Los demás que resulten afines, de conformidad con el ordenamiento de contratación administrativa."
 2.3. Corresponderá a la Junta Directiva General del Banco, la adjudicación de las licitaciones promovidas para la contratación de firmas de auditores externos del Banco.
+2.4 Corresponderá al Proveedor de Casa Matriz o del Banco Regional respectivo, con prescindencia del monto de la adjudicación, el celebrar y adjudicar los remates y subastas a la baja que se celebren de acuerdo a lo previsto en la Ley de Contratación Administrativa y su Reglamento General.
+(Así adicionado por acuerdo de Junta Directiva, en su sesión N° 11113 del 2 de octubre de 2001)

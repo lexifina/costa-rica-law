@@ -9,12 +9,14 @@ Artículo 1º—Conformación del Comité y Subcomités de Licitaciones:
 1.1.2 Suplentes: Director de Bienes, Jefe de Control y Apoyo Informático.
 1.1.3 Asesoría: Un abogado de Asuntos Jurídicos y/o abogado externo para los casos que se requiera.
 El Director Corporativo Administrativo fungirá como Presidente y el Proveedor General como Secretario, éste último con voz pero sin voto. Es entendido, al tenor de lo dispuesto por la Junta Directiva General en el artículo 9°, sesión 10.904, del 27 de enero, 1998, que el Gerente General, por su condición, podrá asistir a las sesiones y presidir con derecho a voz y voto.
-1.2. Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
+1.2 Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
 Casa Matriz:
-a. Director de Bienes quien fungirá como Presidente.
-b. Proveedor General quien fungirá como Secretario.
-c. Abogado de la Dirección Jurídica asignado a la Dirección de Bienes.
+a. El Director de Bienes quien fungirá como Presidente.
+b. El proveedor General quien fungirá como Secretario.
+c. El Abogado de la Dirección Jurídica asignado a la Dirección de Bienes.
 Bancos Regionales:
 a. El Director Regional quien fungirá como su Presidente.
-b. El Proveedor Regional quien fungirá como Secretario.
-c. El Jefe Administrativo Regional.
+b. El Director Administrativo Regional.
+c. El Director de Finanzas Regional.
+d. El Proveedor Regional, quien fungirá como Secretario del Subcomité, con voz pero sin voto.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11113 del 2 de octubre de 2001)
