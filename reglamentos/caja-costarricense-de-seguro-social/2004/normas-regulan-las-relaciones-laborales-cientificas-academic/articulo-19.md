@@ -1,0 +1,1 @@
+Artículo 19.—Casos pendientes de resolución. Cómputo de la prescripción. La prescripción de los asuntos competencia de la Comisión Paritaria se regirá por las disposiciones respectivas del Código de Trabajo.

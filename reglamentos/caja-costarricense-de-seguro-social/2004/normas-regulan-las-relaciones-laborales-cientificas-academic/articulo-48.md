@@ -1,0 +1,1 @@
+Artículo 48.—Periodicidad de los concursos. Por lo menos una vez cada año, lo Centros o Unidades de Trabajo, desconcentrados o no, por sí mismos o a través de la Dirección de Recursos Humanos de la Caja, convocarán a concursos para llenar todas las plazas nuevas o vacantes que estén siendo ocupadas en forma interina.

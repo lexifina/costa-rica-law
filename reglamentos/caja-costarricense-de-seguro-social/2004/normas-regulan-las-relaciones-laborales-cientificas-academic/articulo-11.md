@@ -1,0 +1,1 @@
+Artículo 11.—Representación en el comité de farmacoterapia. Cada Sindicato tendrá representación en el Comité de Farmacoterapia Central, a través de un miembro titular y uno suplente, cuya elección la hará cada Órgano Directivo del respectivo Sindicato.

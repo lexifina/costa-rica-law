@@ -1,0 +1,2 @@
+Artículo 89.—Diferencias salariales por sustitución o recargo de funciones. Los profesionales tendrán derecho a percibir la diferencia de los salarios, cuando desempeñen funciones relativas a cargo de mayor remuneración, en calidad de sustituto, en ausencia del titular.
+Sin embargo, en todo caso que quede demostrado que el profesional cumplió funciones de un superior, se le pagará el recargo mediante el reconocimiento de la diferencia salarial correspondiente.

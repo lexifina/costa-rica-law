@@ -1,0 +1,3 @@
+Undécimo: El Departamento de Salud Ocupacional como dependencia de la Dirección Técnica de Servicios de Salud y la Dirección Corporativa de Recursos Humanos, desarrollarán un estudio de las condiciones de Trabajo existentes en los servicios de Emergencias institucionales, el cual deberá estar finalizado en un plazo máximo de 6 meses a partir de la vigencia de estas Normas. Este informe con las recomendaciones respectivas será remitido a la Gerencia de División Administrativa y Médica para su discusión conjunta con las organizaciones suscribientes”.
+Acuerdo firme”.
+San José, 25 de junio del 2004

@@ -1,0 +1,3 @@
+Artículo 25.—Deducción de cuotas sindicales. La Caja a solicitud de las organizaciones sindicales continuará deduciendo de la planilla de salarios, conforme a la Ley, las cuotas ordinarias y extraordinarias que deben pagar los afiliados a cada Sindicato y a suministrar a éstos la planilla mensual de sus afiliados.
+Esta planilla contendrá al menos, el nombre del profesional, su número de código, la categoría, la unidad programática a la que oficialmente pertenece, la condición de nombramiento en propiedad o interino (en sustitución o por plaza vacante) con el plazo de nombramiento y la cantidad deducida.
+Además, la Caja mantendrá el enlace con los Sindicatos, con el fin de agilizar los trámites de afiliación y desafiliación, así como la deducción de cuotas.

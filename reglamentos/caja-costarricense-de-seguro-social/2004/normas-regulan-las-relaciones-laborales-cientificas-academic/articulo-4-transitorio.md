@@ -1,0 +1,1 @@
+Cuarto: Los criterios de nombramiento de personal interino establecidos en la presente normativa serán de aplicación para los nombramientos que se tramiten con posterioridad a la vigencia de la misma, por consiguiente no irán en detrimento de los nombramientos consolidados al amparo de normas jurídicas anteriormente vigentes.

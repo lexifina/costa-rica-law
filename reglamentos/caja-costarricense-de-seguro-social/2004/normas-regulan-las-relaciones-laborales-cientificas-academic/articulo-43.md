@@ -1,0 +1,6 @@
+Artículo 43.—Nombramiento interino por sustitución del titular. La plaza con titular en propiedad, podrá ser ocupada en forma interina mediante sustitución con plazo mayor al año, cuando se den las siguientes circunstancias:
+A. Cuando el titular se encuentre con permiso para ocupar un puesto de elección popular.
+B. Cuando el titular se encuentre con permiso para ocupar un puesto del nivel ejecutivo, de confianza, en el Gobierno de la República e Instituciones Públicas, o dentro de la misma Institución.
+C. Cuando el titular esté con incapacidad prorrogada por enfermedad o riesgo profesional.
+D. Cuando el titular de la plaza se encuentre con permiso con o sin goce de salario, por circunstancias justificadas a juicio de la Institución, o si dicho permiso sea otorgado para el disfrute de una beca de estudios en áreas declaradas de interés y necesidad institucional, o para hacer una residencia universitaria.
+En caso de no haber alguna de las circunstancias anotadas, se iniciarán los trámites de concurso de toda plaza que quede vacante en el transcurso de los seis primeros meses. Si al término de ese plazo aún no lo hiciera, cualquier profesional interesado o los Sindicatos podrán exigir que así se haga.

@@ -1,0 +1,1 @@
+Artículo 73.—Recursos auxiliares para el desempeño profesional. Los profesionales deberán contar siempre con los recursos humanos auxiliares tecnológicos y la infraestructura necesarios para la adecuada prestación del servicio, lo cual deberá ser debidamente planificado por la Institución.

@@ -1,0 +1,2 @@
+Artículo 56.—Plazo para los exámenes del concurso. Los exámenes o pruebas que se requieran, según las disposiciones legales para cada profesión y de acuerdo con la naturaleza de la plaza objeto del concurso, se realizarán en un plazo entre 30 y 45 días naturales a la fecha del cierre del plazo para interponer recusaciones.
+La Caja otorgará en todo caso, permiso con goce de salario a los profesionales que participen en un concurso y debe incluir el tiempo que éstos utilizarán para trasladarse al lugar de la prueba.

@@ -1,0 +1,3 @@
+Artículo 105.—Préstamo para automóvil. La Caja otorgará préstamos para compra de automóvil cuando el profesional carezca de ese bien necesario para el ejercicio de su actividad o para la sustitución de vehículo usado.
+Los montos y condiciones para este tipo de crédito, serán fijados de acuerdo con la reglamentación respectiva, que incluirá también el Reglamento del Fondo de Retiro y Prestamos para los Empleados de la Caja (FRAP).
+Se exigirá la póliza sobre vehículos de acuerdo con la reglamentación vigente en esta materia y, en su defecto, se aceptará garantía suficiente a criterio de la Institución.

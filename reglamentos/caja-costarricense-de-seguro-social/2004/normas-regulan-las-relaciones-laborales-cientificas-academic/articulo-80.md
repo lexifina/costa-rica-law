@@ -1,0 +1,3 @@
+Artículo 80.—De la disponibilidad médica. Se entiende por disponibilidad médica la labor que realiza un médico general o especialista fuera de su jornada ordinaria de trabajo, consistente en estar localizable fuera del centro y disponible para la atención oportuna de las emergencias intra o extra-hospitalarias que se presenten y por una remuneración especial.
+Todo lo relativo a la disponibilidad médica y las guardias médicas de permanencia, será regulado, conforme a la reglamentación específica que emitirá la Junta Directiva de la Caja, previa concertación con los Sindicatos.
+En todo lo que sea compatible, lo regulado para la disponibilidad médica será aplicable a las guardias médicas de permanencia.

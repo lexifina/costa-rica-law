@@ -1,0 +1,1 @@
+Artículo 46.—Consecuencias del incumplimiento de las normas sobre interinos. Establecida la trasgresión de las reglas fijadas en el presente capítulo, la máxima autoridad del Centro de Trabajo dejará sin efecto el nombramiento impugnado por este motivo y procederá a realizar el nombramiento que en derecho corresponda.

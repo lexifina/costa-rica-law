@@ -1,0 +1,1 @@
+Artículo 15.—Comisiones paritarias regionales. Cuando así lo acuerden la Gerencia de División Médica con cada uno de los Sindicatos, podrán integrarse Comisiones Paritarias Regionales de manera temporal o permanente, con semejante estructura y funciones establecidas en este Capítulo, para resolver determinados conflictos.

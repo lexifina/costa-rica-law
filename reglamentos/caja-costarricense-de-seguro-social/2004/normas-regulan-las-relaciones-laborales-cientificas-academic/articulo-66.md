@@ -1,0 +1,2 @@
+Artículo 66.—Condiciones laborales. Las condiciones laborales del ejercicio profesional, serán iguales en todo centro de trabajo, sin detrimento del ejercicio de las potestades del Ius Variandi del patrono dentro de los límites establecidos en la presente normativa.
+Todo cambio en las condiciones laborales o de nombramiento del profesional, deberá ser puesto en su conocimiento en forma previa a la consignación de la respectiva acción o movimiento de personal, por parte de la jefatura respectiva.

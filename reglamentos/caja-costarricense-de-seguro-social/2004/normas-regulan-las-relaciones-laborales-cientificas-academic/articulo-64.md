@@ -1,0 +1,1 @@
+Artículo 64.—Fundamentación de los recursos. Bajo pena de inadmisibilidad, los recursos, deberán ser fundamentados, exponiendo las razones que lo justifican y deberá ofrecerse en ese mismo acto los elementos probatorios que sean de interés para su resolución.

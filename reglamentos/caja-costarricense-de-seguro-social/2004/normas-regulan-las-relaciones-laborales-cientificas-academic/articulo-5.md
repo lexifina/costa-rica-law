@@ -1,0 +1,1 @@
+Artículo 5º—Fuentes jurídicas supletorias. Se declaran incorporadas a este instrumento todas las normas y principios de Derecho Interno e Internacional, que se encuentren vigentes en Costa Rica, que de conformidad con el Código de Trabajo constituyan fuente de derecho laboral, en lo que no sean modificadas por lo que aquí se dispone, en beneficio del trabajador.

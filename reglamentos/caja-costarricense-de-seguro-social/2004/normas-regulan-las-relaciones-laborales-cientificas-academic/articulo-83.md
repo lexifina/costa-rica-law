@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+Licencias, vacaciones e incapacidades
+Artículo 83.—Licencias o permisos especiales. Los permisos reglados y los discrecionales podrán ser autorizados por el jefe inmediato bajo su responsabilidad, siempre y cuando se notifique a los jefes superiores. Los permisos discrecionales, siempre tendrán que ser debidamente documentados por la jefatura respectiva.
+La Caja otorgará permisos sin goce de salario a los profesionales, a través de las Jefaturas inmediatas con base en el esquema de delegación aprobado por Junta Directiva, para asuntos estrictamente personales, debiendo darse comunicación oportuna según la contingencia a la autoridad superior correspondiente. La solicitud del permiso debe ser por fuerza mayor debidamente justificada, al momento de conceder el tiempo de permiso se deberá incluir los tiempos de traslado requeridos por el trabajador según se trate.

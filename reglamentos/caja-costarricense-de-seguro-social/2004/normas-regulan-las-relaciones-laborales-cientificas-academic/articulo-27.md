@@ -1,0 +1,1 @@
+Artículo 27.—Servicios de sonido. Los centros que cuentan con sistema de intercomunicación, facilitarán a los Sindicatos ese servicio con autorización de la Dirección respectiva, para la convocatoria a reuniones y a otras actividades sindicales.

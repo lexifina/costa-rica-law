@@ -1,0 +1,1 @@
+Artículo 29.—Anuncios en las sesiones. Las autoridades de los establecimientos de la Institución facilitarán a los personeros de los Sindicatos, de acuerdo con el correspondiente coordinador, un espacio en las sesiones técnico-administrativas de los profesionales que se realicen en dichos centros, a efecto de transmitir informaciones sindicales de interés para ellos.

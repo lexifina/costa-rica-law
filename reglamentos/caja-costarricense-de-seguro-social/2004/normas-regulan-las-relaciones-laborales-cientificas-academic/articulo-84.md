@@ -1,0 +1,1 @@
+Artículo 84.—Remuneración por incapacidad y maternidad. La Caja pagará en todo caso, el salario completo a los profesionales que sean incapacitados por enfermedad o que gocen de licencia por maternidad, desde el primer día de la misma.

@@ -1,0 +1,1 @@
+Octavo: Las normas concernientes a los Concursos se mantendrán vigentes hasta tanto la Institución en forma conjunta con las organizaciones suscribientes finalice el proceso de revisión y reformulación de los procedimientos concursales en la Caja Costarricense de Seguro Social, cuya propuesta de reforma deberá someterse a conocimiento de la Junta Directiva en el plazo de 3 meses.

@@ -1,0 +1,2 @@
+Artículo 28.—Correo interno y local para sesiones. La Caja brindará los servicios de su sistema de correo interno, para la distribución de circulares, publicaciones y correspondencia que cada Sindicato requiera hacer llegar a sus afiliados.
+La Institución conforme a sus posibilidades dará acceso a los servicios institucionales ya establecidos de fax, teléfono y correo electrónico. La utilización de estos insumos tecnológicos no podrá afectar la normal marcha de los servicios institucionales.

@@ -1,0 +1,6 @@
+SECCIÓN SEGUNDA
+De los jurados
+Artículo 50.—Integración de jurados. La calificación de las pruebas y antecedentes de los candidatos admitidos a concurso, estará a cargo de un jurado que nombrarán las diferentes instancias de acuerdo a su competencia, salvo en aquellas profesiones que por disposición legal en contrario se establezca un procedimiento de concurso diferente. Los jurados estarán integrados por tres profesionales que deberán ser de la misma profesión, categoría y especialidad de la plaza en concurso y procedentes de diferentes centros asistenciales o unidades de trabajo.
+Los integrantes del jurado deben nombrar entre ellos a un Coordinador.
+Habiendo aceptado el nombramiento dentro de un jurado calificador, la participación de los profesionales que lo integran es de carácter obligatorio, quedando a salvo las ausencias motivadas por fuerza mayor o caso fortuito. Al efecto dispondrán del tiempo necesario dentro de su jornada ordinaria de trabajo para desempeñar tales funciones, incluyendo el que se requiere para la calificación de las pruebas.
+La Caja deberá sustituir en un plazo no superior a cinco días, a los integrantes de jurados que presenten su renuncia o ausencias temporales justificadas.

@@ -1,0 +1,1 @@
+Artículo 92.—Condiciones laborales en el servicio de emergencias. La institución garantizará que los servicios de emergencias, estarán dotados de los recursos humanos y los equipos e instrumentos necesarios para brindar la atención adecuada requerida por el paciente.

@@ -1,0 +1,4 @@
+CAPÍTULO SEGUNDO
+De la Comisión Paritaria
+Artículo 12.—Creación y fines. Con la finalidad de armonizar las buenas relaciones “obrero-patronales”, se crea una Comisión Paritaria con cada Sindicato, de los establecidos en el Artículo 7 de las presentes normas, la cual será competente para el conocimiento de los asuntos laborales suscitados entre la Caja y los Profesionales, con la excepción de lo referente a la materia disciplinaria, y en el tanto los mismos no hayan encontrado solución en los niveles jerárquicos inferiores, o bien cuando por la naturaleza e importancia deban ser atendidos directamente en esa instancia.
+Las funciones de la Comisión Paritaria no irán en detrimento del derecho de acudir al procedimiento establecido en el Artículo 30 de la Normativa de Relaciones Laborales de la CCSS relativo a las “Reclamaciones Laborales No Disciplinarias”.

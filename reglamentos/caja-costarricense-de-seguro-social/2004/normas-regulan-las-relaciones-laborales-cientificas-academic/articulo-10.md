@@ -1,0 +1,7 @@
+Artículo 10.—Representación en consejos del CENDEISSS. Dado que uno de los fines esenciales de los Sindicatos es velar por la adecuada formación profesional de sus integrantes, cada Sindicato mantendrá la siguiente representación:
+I. La integración del Consejo de Postgrado del CENDEISSS, se regirá por el Reglamento respectivo del sistema de Estudios de Postgrado de la Universidad de Costa Rica.
+Se mantendrá la presencia de un delegado de cada Sindicato en los Consejos Quirúrgico y Médico, quien tendrá voz y voto. Su presencia contará para el quórum. Asimismo, SIPROCIMECA mantendrá un representante en los Consejos Nacionales de Odontología, Farmacia, Microbiología, Química Clínica y Psicología.
+II. Un delegado de cada Sindicato con voz y voto en el Consejo Médico de Educación Continua del CENDEISSS.
+III. Un delegado de cada Sindicato en el Consejo Institucional de Becas y Auxilios Especiales, con voz y voto en los asuntos atinentes a los profesionales.
+IV. Un delegado de cada Sindicato en los Consejos de Área Prioritaria, con voz y voto.
+Si por necesidades institucionales o nacionales, el CENDEISSS sufriere algún tipo de reorganización o modificación al nivel central o regional en su estructura docente o administrativa, que afecte los programas de medicina y de las demás profesiones en ciencias médicas, se convocará a los Sindicatos en un plazo no mayor de un mes para definir la representación de cada Sindicato dentro del nuevo esquema organizativo.

@@ -1,0 +1,4 @@
+CAPÍTULO PRIMERO
+Contratación interina
+Artículo 37.—Acceso a la información. La Dirección de Recursos Humanos, las Oficinas de Personal de las Regiones, o las Oficinas de Personal de los Hospitales y Unidades Desconcentradas, suministrarán a petición de la Fiscalía o funcionario designado por el Órgano Directivo de los Sindicatos la lista de las plazas que estén siendo ocupadas en forma interina, con la indicación de los nombres de los Profesionales que las ocupan, unidad de adscripción, categoría, código presupuestario y su correspondiente centro de adscripción, fecha del nombramiento inicial en el código y condiciones del nombramiento. En el caso de que la plaza sea por sustitución temporal, se agregará además, el nombre del titular propietario.
+Presentada la solicitud la información deberá remitirse conforme al plazo establecido en el numeral 8.

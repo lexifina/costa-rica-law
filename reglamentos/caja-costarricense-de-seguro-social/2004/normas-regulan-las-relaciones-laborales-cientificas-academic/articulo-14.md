@@ -1,0 +1,2 @@
+Artículo 14.—Sesiones. La Comisión Paritaria se reunirá ordinariamente en día fijo, por lo menos dos veces al mes, salvo cuando no haya asuntos que tratar. Podrán sesionar extraordinariamente cuantas veces fuere necesario. En caso de no poder reunirse en forma ordinaria, por cualquier razón, deberán hacerlo dentro de los ocho días naturales siguientes.
+Las Gerencias de División Médica y Administrativa deberán brindar en forma conjunta, toda la infraestructura y personal necesarios para el adecuado funcionamiento de la Comisión Paritaria.

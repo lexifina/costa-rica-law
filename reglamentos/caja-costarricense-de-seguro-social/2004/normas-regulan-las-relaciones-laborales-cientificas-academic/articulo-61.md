@@ -1,0 +1,1 @@
+Artículo 61.—Ocupación de la plaza. Una vez firme la adjudicación en sede administrativa, la plaza deberá ser ocupada en propiedad dentro de los sesenta días posteriores, vencido este término sin que el profesional ocupare real y efectivamente la plaza, se tendrá como renuncia implícita a la misma, facultando a la Institución para efectuar una nueva convocatoria de adjudicación.

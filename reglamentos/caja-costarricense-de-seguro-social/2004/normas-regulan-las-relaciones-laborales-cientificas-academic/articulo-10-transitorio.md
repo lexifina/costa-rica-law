@@ -1,0 +1,1 @@
+Décimo: La Gerencia de División Administrativa en conjunto con la Gerencia de División Médica deberán presentar un proyecto de regulación de las guardias de permanencia en la Caja Costarricense de Seguro Social, el cual de previo al conocimiento de la Junta Directiva deberá ser discutido con las organizaciones suscribientes en estas normas.

@@ -1,0 +1,1 @@
+Sétimo: La Dirección de Recursos Humanos por medio de su Área de Reclutamiento y Selección, elaborará el formulario respectivo para la implementación del Sistema de Evaluación de la Adaptación al Puesto por Cambio de Centro de Trabajo. De previo a la implementación del mismo será puesto en conocimiento de las organizaciones suscribientes para sus observaciones.

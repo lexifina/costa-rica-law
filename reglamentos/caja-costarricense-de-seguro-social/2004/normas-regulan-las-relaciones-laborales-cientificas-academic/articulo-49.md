@@ -1,0 +1,1 @@
+Artículo 49.—Participantes en concursos. La Caja se compromete a conceder permiso con goce de salario a aquellos profesionales que participen en un concurso, incluyendo el tiempo de traslado para los que laboren fuera del área metropolitana.

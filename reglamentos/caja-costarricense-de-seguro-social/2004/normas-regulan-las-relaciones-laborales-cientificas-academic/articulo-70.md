@@ -1,0 +1,1 @@
+Artículo 70.—Comité de Farmacoterapia Local. Cada Sindicato podrá designar representantes en los Comités de Farmacoterapia de cada Centro Asistencial, los cuales serán encargados de solicitar la adecuación del cuadro básico de medicamentos de la CCSS (lista oficial de medicamentos). Las funciones e integración de los Comités se ajustarán a la normativa vigente.

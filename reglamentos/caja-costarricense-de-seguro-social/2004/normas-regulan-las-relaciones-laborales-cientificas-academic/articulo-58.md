@@ -1,0 +1,1 @@
+Artículo 58.—Contenido de la calificación. La calificación de los candidatos se hará considerando los aspectos y la escala de puntos que se detallan en el Artículo 8 del Reglamento de Ley del Estatuto de Servicios Médicos, así como en las disposiciones vigentes sobre concursos para cada otra profesión.

@@ -1,0 +1,1 @@
+Artículo 72.—Desempeño de labores. Cada profesional tendrá obligación de desempeñar únicamente las labores que correspondan a su profesión, según el Manual de Clasificación de Puestos vigente en la Institución, en el tanto éste no contradiga lo regulado en el respectivo Estatuto Profesional.

@@ -1,0 +1,1 @@
+Artículo 90.—Aumentos salariales. Inclusión en presupuesto. Cuando se ordene un aumento salarial que beneficie a los profesionales, la Caja lo incluirá en el siguiente presupuesto o modificación presupuestaria, con la vigencia expresamente señalada en la norma respectiva.

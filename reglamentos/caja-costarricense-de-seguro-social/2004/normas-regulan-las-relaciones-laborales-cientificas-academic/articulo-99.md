@@ -1,0 +1,5 @@
+Artículo 99.—Actividades académicas en centros asistenciales. En cada Centro Asistencial donde haya al menos cinco Profesionales en Ciencias Médicas, se programarán y organizarán semanalmente sesiones clínicas, anatomoclínicas, bibliográficas o cualquier otro tipo de actividad técnico-administrativa. Durante el tiempo destinado a la realización de éstas no se programarán actividades asistenciales o de otra índole. Quedan a salvo emergencias o situaciones excepcionales que así lo ameriten, por lo que la asistencia de los profesionales será obligatoria.
+Además los casos justificados en que, a solicitud del médico, se programen consultas o actividades propias de su cargo.
+En los hospitales se cumplirá además lo regulado por el Reglamento General de Hospitales en cuanto a las actividades de los Servicios.
+Si en el centro asistencial no existiere ese número de profesionales, se podrán establecer programas de docencia entre varios Centros Asistenciales que pertenezcan a la misma región.
+Habrá por semana como mínimo, dos horas de actividades formativas de naturaleza académica o técnico-administrativa.

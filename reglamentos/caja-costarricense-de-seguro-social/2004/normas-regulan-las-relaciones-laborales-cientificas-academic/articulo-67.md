@@ -1,0 +1,1 @@
+Artículo 67.—Daños a la propiedad. La Caja no reclamará a los profesionales los daños ocasionados a vehículos o bienes muebles e inmuebles de la Institución, hasta tanto no sea comprobada su responsabilidad del hecho, previa investigación por parte de un órgano Director nombrado por la autoridad competente.

@@ -1,0 +1,1 @@
+Artículo 91.—Embargos judiciales. La Caja avisará al profesional dentro de los cinco días hábiles siguientes a la comunicación judicial, cualquier embargo de salario que se decrete en su contra, y bajo ninguna circunstancia se considerará causal de sanción disciplinaria el aviso o el embargo de salario.

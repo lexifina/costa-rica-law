@@ -1,0 +1,1 @@
+Artículo 22.—Uso de auditorios y salas de reunión. Para el desarrollo de las actividades sindicales y culturales, la Caja facilitará a los Sindicatos, por petición de éstos, aquellos auditorios y salas de reunión que posea en todas sus instalaciones, previa solicitud de autorización a la Dirección del centro respectivo.
