@@ -14,3 +14,4 @@ Requisitos para permiso para instalar nuevas plantas empacadoras de carne o ampl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-05-31 | la propia norma |
+| 2 | 1992-05-30 | Decreto Ejecutivo 21312 (1992-05-30) |
