@@ -1,2 +1,1 @@
-Artículo 61.- Derógase el transitorio IV de la ley Nº 6577 del 6 de
-mayo de 1981.
+Artículo 61.- ANULADO por Resolución de la Sala Constitucional No. 4977-00 de las 14:45 horas del 28 de junio de 2000.

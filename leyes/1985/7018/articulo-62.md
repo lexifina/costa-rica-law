@@ -1,3 +1,1 @@
-Artículo 62.- Autorízase a la Caja Costarricense de Seguro Social
-para que construya o amplíe los servicios de pensionado en los hospitales
-a su cargo.
+Artículo 62.- ANULADO por Resolución de la Sala Constitucional No. 4977-00 de las 14:45 horas del 28 de junio de 2000.
