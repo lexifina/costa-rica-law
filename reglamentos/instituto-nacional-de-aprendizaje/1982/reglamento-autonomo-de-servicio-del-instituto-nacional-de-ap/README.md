@@ -14,3 +14,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-02-27 | la propia norma |
+| 2 | 1982-08-25 | Reglamento 1951 (1982-08-25) |
