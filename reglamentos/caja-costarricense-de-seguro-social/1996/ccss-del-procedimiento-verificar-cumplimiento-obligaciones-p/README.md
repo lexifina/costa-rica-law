@@ -14,3 +14,4 @@ CCSS: Del Procedimiento Verificar Cumplimiento Obligaciones Patronales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-23 | la propia norma |
+| 2 | 2000-10-05 | Reglamento 7485 (2000-10-05) |
