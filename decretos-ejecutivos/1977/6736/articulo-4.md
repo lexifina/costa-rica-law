@@ -1,0 +1,1 @@
+Artículo 4°.- Con la excepción de los representantes del Ministerio de Agricultura y Ganadería, los demás miembros de la Comisión serán designados por un período de dos años, pudendo ser reelectos. El nombramiento deberá hacerse dentro de los treinta días anteriores al vencimiento de cada bienio.
