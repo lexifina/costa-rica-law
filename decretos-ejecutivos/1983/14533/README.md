@@ -13,3 +13,4 @@ Obligación Cancelar Cuotas CCSS para Operaciones Bancarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-26 | la propia norma |
+| 2 | 1983-05-26 | SINALEVI (sin norma nombrada) |
