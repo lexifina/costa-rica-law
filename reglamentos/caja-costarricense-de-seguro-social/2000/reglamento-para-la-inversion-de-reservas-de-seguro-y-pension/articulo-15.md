@@ -1,1 +1,0 @@
-Artículo 15.—La venta anticipada de títulos valores se podrá realizar únicamente por razones de interés institucional, sustentada en criterios técnicos o de fuerza mayor, autorizada por la instancia que originalmente autorizó la inversión, procurando que el rendimiento final obtenido no sea inferior al indicador de rendimiento al que se refiere el artículo 6 de este Reglamenta.

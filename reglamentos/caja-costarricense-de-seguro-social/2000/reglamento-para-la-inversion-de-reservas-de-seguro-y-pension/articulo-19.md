@@ -1,1 +1,0 @@
-Artículo 19.—Las inversiones en infraestructura económica de servicios serán aprobadas por la Junta Directiva, previa realización de los estudios de factibilidad correspondientes, tomando en consideración el beneficio social y económico para los asegurados y para el país en general.
