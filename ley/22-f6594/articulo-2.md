@@ -1,0 +1,2 @@
+Art. 2°-Las Municipalidades respectivas harán el denuncio correspondiente ante el Juez de Hacienda Nacional.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez y siete días del mes de junio de mil ochocientos ochenta y cuatro. -JN. M. CARAZO, Presidente. -MAURO FERNÁNDEZ, Secretario.-AND. SÁENZ, Prosecretario Palacio Presidencial. -San José, á diez y siete de junio de mil ochocientos ochenta y cuatro. -Ejecútese. P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Hacienda. -BERNARDO Soto.
