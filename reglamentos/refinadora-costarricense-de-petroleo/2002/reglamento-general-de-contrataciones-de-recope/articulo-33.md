@@ -1,0 +1,6 @@
+Artículo 33.—Imposición de la cláusula penal. El órgano o unidad gestionante encargados de la inspección de los contratos de obra, servicios y suministro de bienes donde se haya requerido instalación, promoverán ante la Dirección de Suministros la imposición de las multas originadas en la ejecución tardía del plazo contractual.
+De previo a la resolución del asunto, la Dirección de Suministros conferirá al contratista una audiencia por cinco (5) días hábiles a fin de que presente sus alegatos y pruebas de descargo sobre el particular.
+Una vez conferida la audiencia y analizados los autos, la Dirección de Suministros, de considerarlo pertinente, participará a la unidad gestionante y la Dirección General de Asesoría Legal, para estudiar los alegatos y pruebas de descargo y resolverá en definitiva.
+La Dirección de Suministros contará con tres (3) días hábiles para la notificación correspondiente.
+Para aquellos casos en los que se hayan estipulado entregas parciales en el cartel o términos de referencia, si constase en el expediente administrativo atraso en alguna de ellas, la Dirección de Suministros podrá disponer el cobro de la multa en proporción a la parte afectada por la demora.
+En el cartel o términos de referencia, cuando corresponda, se definirá el procedimiento para la aplicación de la cláusula por defectuosa ejecución.

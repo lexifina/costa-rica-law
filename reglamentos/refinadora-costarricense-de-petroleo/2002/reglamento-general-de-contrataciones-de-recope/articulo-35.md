@@ -1,0 +1,5 @@
+SECCIÓN CUARTA
+De las gestiones de los contratistas
+Artículo 35.—De la gestión en la ejecución contractual. La Administración está obligada a tramitar, en un plazo de treinta (30) días hábiles, cualquier gestión que le formule el contratista, cuando sea necesaria y conducente para ejecutar la contratación. La petición deberá presentarse ante el órgano fiscalizador; si éste no es competente para resolver, deberá elevar ante el órgano competente la gestión del contratista, a más tardar cinco (5) días hábiles posteriores a su presentación.
+De igual manera, corresponderá a la Dirección de Suministros, la tramitación de las gestiones de los contratistas sobre los asuntos propios tales como garantías, medios de pago, embarques, arribos, reajustes, impuestos o cualquier otro de su competencia exclusiva.
+Las gestiones por parte de los contratistas que no sean necesarias y conducentes para ejecutar la contratación o se presenten después de ejecutada la misma, deberán ser resueltas en el plazo de dos (2) meses posteriores a su presentación de conformidad con el Libro Segundo de la Ley General de la Administración Pública.

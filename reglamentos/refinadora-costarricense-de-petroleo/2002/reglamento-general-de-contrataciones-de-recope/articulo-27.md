@@ -1,0 +1,1 @@
+Artículo 27.—Modificación a los términos de adjudicación. Aquellas modificaciones en los términos de adjudicación no sustanciales y relacionados con aspectos que no desmejoren la calidad, condiciones técnicas, forma de entrega, modalidad de pago del objeto y condiciones contractuales, podrán ser autorizadas por el titular de la Dirección de Suministros.

@@ -1,0 +1,1 @@
+Artículo 45.—Subsanaciones a las ofertas. Podrán subsanarse los defectos u omisiones contenidos en las ofertas, siempre y cuando no impliquen modificación del precio, objeto y condiciones ofrecidas, según lo establecido en el artículo 4.4 del Reglamento General de Contratación Administrativa.

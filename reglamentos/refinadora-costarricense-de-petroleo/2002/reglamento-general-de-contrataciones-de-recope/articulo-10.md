@@ -1,0 +1,18 @@
+SECCIÓN SEGUNDA
+De los procedimientos ordinarios de concurso
+Artículo 10.—Requisitos previos. Toda solicitud de contratación deberá responder a una necesidad justificada, razonada y deberá estar respaldada por contenido presupuestario suficiente. Para tal fin, las unidades que requieran bienes, servicios u obras, enviarán su requerimiento a la Dirección de Suministros o a la unidad desconcentrada, por medio del pedido de artículos, que contendrá como mínimo:
+10.1 La firma del funcionario autorizado para la aprobación o quien éste designe formalmente para tal efecto.
+10.2 Sello de contenido presupuestario donde se consignen los recursos suficientes para asumir el compromiso.
+Por excepción y siempre que se cuente con la autorización de la Contraloría General de la República, se podrá publicar el cartel o términos de referencia aún antes de que se cuente con el respectivo contenido presupuestario. En estas situaciones, en el cartel o términos de referencia, se dejará constancia que la adjudicación quedará condicionada a la efectiva existencia de recursos presupuestarios.
+10.3. Monto estimado de la contratación, incluyendo todas las formas de remuneración que establece el artículo 31 de la Ley de Contratación Administrativa, como son: costo principal, fletes, seguros, comisiones, intereses, tributos, derechos, primas y cualquier otra suma que deba reembolsarse como consecuencia de la contratación.
+10.4 Determinación detallada de las características o modalidades del bien, servicio u obra, incluyendo para ésta última, los estimados en los plazos de entrega o de ejecución y cualquier otra información atinente.
+10.5 Indicación de que la contratación se encuentra incorporada en el programa anual de adquisiciones.
+10.6 Mención expresa de la finalidad pública que se persigue satisfacer.
+10.7 Estudios previos que motivaron el inicio de los procedimientos y original o copia de todas las actuaciones internas o externas que tengan relación con la contratación. En caso de no aportarlos, indicación expresa del lugar preciso donde éstos se encuentran disponibles de manera íntegra, ya sea en archivos magnéticos o documentos escritos, y para estos últimos, con el detalle de los folios que los componen.
+10.8 Para la licitación pública, licitación por registro y licitación restringida deberá dejarse constancia de los recursos humanos y materiales que dispone o dispondrá la Empresa para verificar la correcta ejecución del objeto de la contratación, haciendo además una valoración de la capacidad operativa con que se cuenta para llevar a cabo esa verificación. De ser necesarios estos recursos hasta la etapa de ejecución, deberá procederse según los términos del artículo 11 del Reglamento General de Contratación Administrativa.
+10.9 Cualquier otro requisito que defina la Presidencia de la Empresa.
+A excepción del punto 10.1, la veracidad de la información señalada anteriormente recaerá sobre la unidad gestionante.
+El pedido de artículos dará inicio al expediente administrativo de la respectiva contratación, cuya conformación, actualización, custodia y numeración consecutiva serán responsabilidad de la Dirección de Suministros.
+La unidad gestionante deberá conformar y mantener bajo su custodia y debidamente foliada, la documentación propia de la ejecución contractual.
+En ambos casos podrán utilizarse archivos magnéticos sustitutos, garantizando, ya sea en este medio o el escrito, la integridad de la información.
+Se dispondrá de un área física especialmente acondicionada para el archivo y custodia de los expedientes administrativos, la cual estará bajo la responsabilidad del funcionario que para esos propósitos designe la Dirección de Suministros o la unidad desconcentrada, según sea el caso.

@@ -1,0 +1,1 @@
+Artículo 9º—Informe Trimestral de la Actividad Contractual. Compete a la Dirección de Suministros informar dentro de los quince (15) días hábiles posteriores al vencimiento de cada trimestre, a la Contraloría General de la República, acerca de la actividad contractual desplegada por RECOPE durante el período respectivo.

@@ -1,0 +1,3 @@
+Artículo 26.—Ejecución de garantía de cumplimiento. De conformidad con el artículo 16.2.1 del Reglamento General de Contratación Administrativa, la Dirección de Suministros, a instancia propia o de la unidad gestionante, ordenará la ejecución parcial o total de la garantía de cumplimiento rendida por el adjudicatario, cuando se presenten algunos de los causales que justifiquen tal decisión.
+De previo, se conferirá al contratista una audiencia por cinco (5) días hábiles a fin de que presente los alegatos y pruebas de descargo correspondientes.
+En caso de considerarlo pertinente, la Dirección de Suministros consultará a la Dirección General de Asesoría Legal o a la unidad gestionante a efectos de ampliar los argumentos que motivan la ejecución.

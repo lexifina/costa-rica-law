@@ -1,0 +1,2 @@
+Artículo 29.—Prórrogas en plazos de entrega. La prórroga en la ejecución del contrato se regirá por lo dispuesto en el artículo 22.2 del Reglamento General de Contratación Administrativa. De proceder la prórroga, ésta será aprobada conforme con los procedimientos que al respecto disponga la Presidencia, instancia que será competente para resolver las prórrogas de las contrataciones adjudicadas por la Junta Directiva.
+Todo lo actuado deberá quedar debidamente documentado en el expediente administrativo del concurso.

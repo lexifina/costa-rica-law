@@ -1,0 +1,1 @@
+Artículo 59.—Informe de la actividad contractual. La Presidencia mensualmente presentará a la Junta Directiva un informe sobre los procedimientos de contratación formalizados en ese período dentro de la actividad contractual ordinaria.

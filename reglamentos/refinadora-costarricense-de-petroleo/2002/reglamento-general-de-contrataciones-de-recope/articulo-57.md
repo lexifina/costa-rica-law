@@ -1,0 +1,2 @@
+Artículo 57.—Comité de Contratación de Hidrocarburos. Para los procedimientos de contratación de la actividad ordinaria, se conformará un comité que estará integrado por los Gerentes de Área y el Gerente General.
+La función de este comité será proponer la recomendación de adjudicación a la Presidencia, con fundamento en el análisis técnico-económico realizado por la Dirección de Comercio Internacional.

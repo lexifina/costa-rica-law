@@ -1,0 +1,5 @@
+Artículo 46.—Estudio técnico de las ofertas. Deberá ser elaborado por personal especializado de la unidad gestionante y contener al menos la siguiente información:
+46.1 Descripción de las ofertas recibidas.
+46.2 Análisis del cumplimiento de las especificaciones técnicas de las ofertas así como determinación de cualquier incumplimiento en aspectos formales o de otra índole que incidan en la valoración técnica; en caso que alguna de las ofertas se aparte de las especificaciones definidas, deberá indicar expresamente las razones por las cuales se torna inaceptable desde la perspectiva técnica.
+46.3 En caso de haberse previsto en los términos de referencia, análisis de la evaluación de los criterios y orden de excelencia técnica, indicando detalladamente la justificación del puntaje asignado.
+46.4 Para las ofertas susceptibles de adjudicar, conveniencia económica y justificación de la desviación respecto al monto estimado, cuando esta diferencia se encuentre fuera del margen superior o inferior del diez por ciento (10%).

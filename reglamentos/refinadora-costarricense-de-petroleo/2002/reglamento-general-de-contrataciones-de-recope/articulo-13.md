@@ -1,0 +1,1 @@
+Artículo 13.—Invitación a participar. La Dirección de Suministros dará divulgación al cartel según el procedimiento ordinario que se trate y por los medios definidos en el Reglamento General de Contratación Administrativa.
