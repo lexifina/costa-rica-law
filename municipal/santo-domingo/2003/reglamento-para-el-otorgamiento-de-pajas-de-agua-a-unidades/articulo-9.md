@@ -1,1 +1,0 @@
-Artículo 9º—El cobro trimestral o mensual por el agua potable se realizará a partir de la fecha de conexión de la nueva paja de agua debiéndose cancelar junto con los costos de instalación el trimestre o mes al cobro (adelantado), en caso de la tarifa fija o un depósito si el consumo es medido.

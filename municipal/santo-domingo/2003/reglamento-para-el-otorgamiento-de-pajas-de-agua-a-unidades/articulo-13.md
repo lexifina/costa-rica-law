@@ -1,2 +1,0 @@
-Artículo 13.—Bajo ninguna circunstancia se podrá aprobar la conexión de pajas de agua en donde se hayan negado permisos de construcción por razones de seguridad o legales de parte del Departamento de Control Urbano y Rural o de la Institución del caso.
-Para el cumplimiento de lo dispuesto en este artículo el Departamento de Control Urbano y Rural comunicará en el período pertinente a partir del conocimiento de la solicitud se le informe a la unidad correspondiente de otorgar la autorización de nuevas conexiones lo que corresponda.

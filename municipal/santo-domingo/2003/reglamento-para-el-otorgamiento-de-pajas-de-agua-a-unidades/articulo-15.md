@@ -1,1 +1,0 @@
-Artículo 15.—En los casos no contemplados en este Reglamento se aplicará lo indicado en el Reglamento para la Prestación del Servicio de Agua Potable y/o en conformidad con los trámites del Departamento de Control Urbano y Rural.
