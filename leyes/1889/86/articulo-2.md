@@ -1,0 +1,1 @@
+Art. 2°-Promulgado el decreto de indenunciabilidad á que se refiere el artículo 4 de dicho decreto, el Juez de lo Contencioso-administrativo, á solicitud del interesado, llamará por edictos, con el término de treinta días, contados desde la primera publicación, á quienes pudiere perjudicar la selección de los terrenos hecha en el decreto del Ejecutivo.
