@@ -1,14 +1,14 @@
 ARTICULO 25.- Son deberes y atribuciones de la auditoría interna:
 a) Proponerle a la Junta Directiva los sistemas de contabilidad y
-control que estime pertinentes para el cumplimiento de los objetivos de la
-Junta Nacional.
+control que estime pertinentes para el cumplimiento de los objetivos de
+la Junta Nacional.
 b) Fiscalizar, en cuanto tengan relación con sus funcionarios, todos
 los actos, operaciones y actividades de la Junta Nacional, para lo cual
-verificará la contabilidad y los inventarios, y realizará y certificará lo
-que le competa.
+verificará la contabilidad y los inventarios, y realizará y certificará
+lo que le competa.
 c) Llevar cuidadosamente el estudio y el vencimiento de las
-obligaciones de la Junta Nacional, y cuidar de que se cobren oportunamente
-los créditos vencidos.
+obligaciones de la Junta Nacional, y cuidar de que se cobren
+oportunamente los créditos vencidos.
 ch) Comunicarle inmediatamente al secretario ejecutivo, con copia a
 la Junta Directiva, las irregularidades, infracciones y deficiencias que
 se observen en las operaciones y funciones de la Junta, para los efectos
@@ -28,5 +28,5 @@ Junta, a cuyas certificaciones se les otorga el carácter de título
 ejecutivo.
 h) Asistir a las sesiones de la Junta Directiva con voz pero sin
 voto.
-i) Ejercer las demás funciones que le señalen la ley, los reglamentos
-y los acuerdos de la Junta Directiva.
+i) Ejercer las demás funciones que le señalen la ley, los
+reglamentos y los acuerdos de la Junta Directiva.
