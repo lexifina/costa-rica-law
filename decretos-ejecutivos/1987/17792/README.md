@@ -14,3 +14,4 @@ Reforma Decreto Ejecutivo N° 9330 "Aprueba Contrato Administrativo entre la Com
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-10-30 | la propia norma |
+| 2 | 1988-07-18 | Decreto Ejecutivo 18362 (1988-07-18) |
