@@ -1,0 +1,1 @@
+Art 2° Comuníquese al agraciado este decreto por el órgano respectivo, expídanse las órdenes conducentes para que la gracia otorgada comience a tener efecto desde esta fecha, y dese cuenta a la Asamblea Constituyente.Dado en el Palacio Nacional a primero de julio de mil ochocientos sesenta.
