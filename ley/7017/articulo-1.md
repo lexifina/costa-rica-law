@@ -252,110 +252,55 @@ Partidas Subpartidas e incisos | Descripción | DAI % sobre Valor CIF
 | de amonio cuaternario ... ... ... ... ... ... ... .. | 30
 99 Los demás ... ... ... ... ... ... ... ... ... ... .. 15
 02 Insecticidas
-01 A base de canfenos clorados, clordimeform o
-metamidophos ... ... ... ... ... ... ... ... ... ... 20
-Partidas DAI
-Subpartidas % sobre
-e incisos Valor CIF
+01 A base de canfenos clorados, clordimeform o metamidophos ... ... ... ... ... ... ... ... ... ... 20
+Partidas DAI Subpartidas % sobre e incisos Valor CIF
 Descripción
-02 formulados a base de: acefato, aldrín, azinfosmetil,
-carburan, ciflutrin, cipermetrina, coumafos,
-deltametrina, DDVP., dicrotofos, disulfocon, endosulfan,
-endrín, ethoprop, fenamifos, fenflutrin, fention,
-fenbalerato, flumetrina, fosfolan, forate, foxim, heptacloro,
-isofenfos, malation, mefosfolan, metildemeton,
-metomil, monocrotofos, oxamil, paration etílico,
-paration metílico, permetrina, profenofos, propoxur,
-tetrametrina, triclorfon, but. de piperonilo, cumatetralil
-reo pynamina, omethoate, protiofos, penitrotion,
-dinamin, sandofan, thiras, triademefon... ... ... ... ...15
+02 formulados a base de: acefato, aldrín, azinfosmetil, carburan, ciflutrin, cipermetrina, coumafos, deltametrina, DDVP., dicrotofos, disulfocon, endosulfan, endrín, ethoprop, fenamifos, fenflutrin, fention, fenbalerato, flumetrina, fosfolan, forate, foxim, heptacloro, isofenfos, malation, mefosfolan, metildemeton, metomil, monocrotofos, oxamil, paration etílico, paration metílico, permetrina, profenofos, propoxur, tetrametrina, triclorfon, but. de piperonilo, cumatetralil reo pynamina, omethoate, protiofos, penitrotion, dinamin, sandofan, thiras, triademefon... ... ... ... ...15
 99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
 38.11 03 Fungicidas
-01 Formulados a base de Captafol, edifenfos y propineb
-dinamin, sandofan, thicom, triadenfom ... ... ... ... .. 15
+01 Formulados a base de Captafol, edifenfos y propineb dinamin, sandofan, thicom, triadenfom ... ... ... ... .. 15
 99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
 38.11 04 Herbicidas
 01 A base de propanil o trifluralina ... ... ... ... ... .. 20
-02 Formulados a base de glifosato, metolaclora,
-paraquat ... ... ... ... ... ... ... ... ... ... ... .. 15
+02 Formulados a base de glifosato, metolaclora, paraquat ... ... ... ... ... ... ... ... ... ... ... .. 15
 99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
 05 00 Reguladores del crecimiento de las plantas... ... ... ... 5
-06 00 Preparaciones para la venta al por menor tales
-como cintas, mechas y bujías azufradas y papeles
-matamoscas... ... ... ... ... ... ... ... ... ... ... .. 30
+06 00 Preparaciones para la venta al por menor tales como cintas, mechas y bujías azufradas y papeles matamoscas... ... ... ... ... ... ... ... ... ... ... .. 30
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ... 5
-38.12 00 00 Aderezos, aprestos y mordientes, preparados, de
-la clase de los utilizados en las industrias textil,
-de papel, del cuero o análogas... ... ... ... ... ... .. 30
-38.13 00 00 Preparados para el decapado de los metales; flujos
-desoxidantes para soldar y otros compuestos auxiliares
-para la soldadura de los metales; pastas y
-polvos para soldar compuestos del metal del aporte
-y de otros productos; preparados para recubrir o
-rellenar electrodos y varillas de soldadura ... ... ... 5
-38.14 Preparados antidetonantes, antioxidantes, aditivos
-peptizantes, mejoradores de viscosidad, aditivos
-anticorrosivos y otros aditivos preparados similares
-para aceites minerales
+38.12 00 00 Aderezos, aprestos y mordientes, preparados, de la clase de los utilizados en las industrias textil, de papel, del cuero o análogas... ... ... ... ... ... .. 30
+38.13 00 00 Preparados para el decapado de los metales; flujos desoxidantes para soldar y otros compuestos auxiliares para la soldadura de los metales; pastas y polvos para soldar compuestos del metal del aporte y de otros productos; preparados para recubrir o rellenar electrodos y varillas de soldadura ... ... ... 5
+38.14 Preparados antidetonantes, antioxidantes, aditivos peptizantes, mejoradores de viscosidad, aditivos anticorrosivos y otros aditivos preparados similares para aceites minerales
 01 00 Aditivos preparados para aceites minerales ligeros 5
 02 00 Aditivos preparados para aceites minerales pesados 15
-38.15 00 00 Composiciones llamadas "aceleraciones de
-vulcanización" ... ... ... ... ... ... ... ... ... ... 5
-38.16 00 00 Medios de cultivo preparados para el desarrollo
-de microorganismos... ... ... ... ... ... ... ... ... ... 5
-38.17 00 00 Mezclas y cargas para aparatos extintores; granadas
-extintoras... ... ... ... ... ... ... ... ... ... ... ... 5
-38.18 00 00 Disolventes y diluyentes compuestos para barnices
-o productos similares ... ... ... ... ... ... ... ... ... 5
-38.19 Productos químicos y preparados de las industrias
-químicas o de las industrias conexas (incluido los
-que consisten en mezclas de productos naturales),
-no expresados ni comprendidos en otras partidas;
-productos residuales de las industrias químicas o
-de las industrias conexas, no expresados ni comprendidos
-en otras partidas
-Partidas
-Subpartidas DAI
-e incisos Descripción % sobre
-Valor CIF
+38.15 00 00 Composiciones llamadas "aceleraciones de vulcanización" ... ... ... ... ... ... ... ... ... ... 5
+38.16 00 00 Medios de cultivo preparados para el desarrollo de microorganismos... ... ... ... ... ... ... ... ... ... 5
+38.17 00 00 Mezclas y cargas para aparatos extintores; granadas extintoras... ... ... ... ... ... ... ... ... ... ... ... 5
+38.18 00 00 Disolventes y diluyentes compuestos para barnices o productos similares ... ... ... ... ... ... ... ... ... 5
+38.19 Productos químicos y preparados de las industrias químicas o de las industrias conexas (incluido los que consisten en mezclas de productos naturales), no expresados ni comprendidos en otras partidas; productos residuales de las industrias químicas o de las industrias conexas, no expresados ni comprendidos en otras partidas
+Partidas Subpartidas DAI e incisos Descripción % sobre Valor CIF
 38.19 01 Productos químicos preparados
 38.19 01 01 Alquilbencenos y mezclas de alquinaftalenos... ... ... ... 5
 02 Mezclas de ácidos toluenosulfónicos ... ... ... ... ... 30
-03 Acidos nafténicos y sus sales; sulfanatos de petróleo;
-mezclas del mono-di y triestearatos de
-glicerina ... ... ... ... ... ... ... ... ... ... ... ... 5
-04 Cal sodada; productos químicos de los Capítulos
-28 y 29, en solución no acuosa... ... ... ... ... ... ... 5
+03 Acidos nafténicos y sus sales; sulfanatos de petróleo; mezclas del mono-di y triestearatos de glicerina ... ... ... ... ... ... ... ... ... ... ... ... 5
+04 Cal sodada; productos químicos de los Capítulos 28 y 29, en solución no acuosa... ... ... ... ... ... ... 5
 05 Catalizadores compuestos ... ... ... ... ... ... ... ... 5
-06 Reactivos compuestos para diagnóstico y reactivos
-compuestos de laboratorio ... ... ... ... ... ... ... ... 1
+06 Reactivos compuestos para diagnóstico y reactivos compuestos de laboratorio ... ... ... ... ... ... ... ... 1
 07 Elementos definidos en la Nota 38-2 ... ... ... ... ... 5
-08 Mezclas de fertilizantes a base de elementos menores,
-exclusivamente ... ... ... ... ... ... ... ... ... ... 5
-09 Sorbitol (D-glucitol) excluido del Capítulo 29 por
-Nota 29-1 ... ... ... ... ... ... ... ... ... ... ... ... 5
-10 Estabilizadores a base de sales orgánicas de metales
-pesados, para PVC ... ... ... ... ... ... ... ... ... ... 5
+08 Mezclas de fertilizantes a base de elementos menores, exclusivamente ... ... ... ... ... ... ... ... ... ... 5
+09 Sorbitol (D-glucitol) excluido del Capítulo 29 por Nota 29-1 ... ... ... ... ... ... ... ... ... ... ... ... 5
+10 Estabilizadores a base de sales orgánicas de metales pesados, para PVC ... ... ... ... ... ... ... ... ... ... 5
 99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 35
-02 00 Productos residuales de las industrias químicas o
-de las industrias conexas, no expresadas ni comprendidas
-en otras partidas ... ... ... ... ... ... ... ... ... ... 5
+02 00 Productos residuales de las industrias químicas o de las industrias conexas, no expresadas ni comprendidas en otras partidas ... ... ... ... ... ... ... ... ... ... 5
 SECCION VII
 MATERIAS PLASTICAS ARTIFICIALES ETERES Y ESTERES DE LA
 CELULOSA, RESINAS ARTIFICIALES Y MANUFACTURAS DE
 ESTAS MATERIAS; CAUCHO NATURAL O SINTETICO, CAUCHO
 FACTICIO Y MANUFACTURAS DEL CAUCHO
 Nota de la Sección:
-Los productos presentados en surtidos formados por varios componentes
-distintos comprendidos, en su totalidad o en parte, en la presente Sección
-y reconocibles como destinados a constituir, después de mezclados, un
-producto de las Secciones VI o VII, se clasificarán en la partida
-correspondiente a este último producto, siempre que los componentes sean:
-a) Netamente indentificables por su presentación como destinados a
-utilizarse juntos sin previo reacondicionamiento;
+Los productos presentados en surtidos formados por varios componentes distintos comprendidos, en su totalidad o en parte, en la presente Sección y reconocibles como destinados a constituir, después de mezclados, un producto de las Secciones VI o VII, se clasificarán en la partida correspondiente a este último producto, siempre que los componentes sean:
+a) Netamente indentificables por su presentación como destinados a utilizarse juntos sin previo reacondicionamiento;
 b) Presentados simultáneamente;
-c) Identificables por su naturaleza o por sus cantidades respectivas
-como complementarios unos de otros.
+c) Identificables por su naturaleza o por sus cantidades respectivas como complementarios unos de otros.
 CAPÍTULO 39
 MATERIAS PLASTICAS ARTIFICIALES, ETERES Y ESTERES DE LA
 CELULOSA, RESINAS ARTIFICIALES Y MANUFACTURAS
@@ -364,192 +309,70 @@ Notas del Capítulo:
 1. Este Capítulo no comprende:
 a) Las hojas para el marcado a fuego de la partida 32.0 9;
 b) Las ceras artificiales (partida 34.04);
-c) El caucho sintético, tal como está definido en el Capítulo 40, y
-las manufacturas de caucho sintético;
-d) los artículos de guarnicionería y talabartería (partida 42.01),
-los artículos de marroquinería, estuchería, viaje y los demás artículos de
-la partida 42.02;
+c) El caucho sintético, tal como está definido en el Capítulo 40, y las manufacturas de caucho sintético;
+d) los artículos de guarnicionería y talabartería (partida 42.01), los artículos de marroquinería, estuchería, viaje y los demás artículos de la partida 42.02;
 e) Las manufacturas de espartería y cestería del Capítulo 46;
-f) Los productos comprendidos en la Sección XI (materias textiles y
-manufacturas de estas materias);
-g) El calzado y las partes de calzado, los artículos de sombrerería
-y análogos y sus partes, los paraguas, sombrillas, bastones, látigos,
-fustas y sus partes, y los demás artículos de la Sección XII;
-h) Los artículos de bisutería de fantasía clasificados en la partida
-71.16;
-i j) Los artículos de la Sección XVI (máquina y aparatos, material
-eléctrico);
-k) Las partes y piezas sueltas del material de transporte de la
-Sección XVII;
-l) Los elementos de óptica de materiales plásticas artificiales, las
-monturas de gafas, los instrumentos de dibujo y demás artículos del
-Capítulo 90;
-m) los artículos del Capítulo 91 (relojería), principalmente las cajas
-de relojes de uso personal, de mesa, cuadro o péndulo y aparatos de relojería;
-n) Los instrumentos de música, sus partes y demás artículos del
-Capítulo 92;
+f) Los productos comprendidos en la Sección XI (materias textiles y manufacturas de estas materias); g) El calzado y las partes de calzado, los artículos de sombrerería y análogos y sus partes, los paraguas, sombrillas, bastones, látigos, fustas y sus partes, y los demás artículos de la Sección XII;
+h) Los artículos de bisutería de fantasía clasificados en la partida 71.16;
+i j) Los artículos de la Sección XVI (máquina y aparatos, material eléctrico);
+k) Las partes y piezas sueltas del material de transporte de la Sección XVII;
+l) Los elementos de óptica de materiales plásticas artificiales, las monturas de gafas, los instrumentos de dibujo y demás artículos del Capítulo 90;
+m) los artículos del Capítulo 91 (relojería), principalmente las cajas de relojes de uso personal, de mesa, cuadro o péndulo y aparatos de relojería;
+n) Los instrumentos de música, sus partes y demás artículos del Capítulo 92;
 o) Los muebles y demás artículos del Capítulo 94;
 p) Manufacturas de cepillería y demás artículos del Capítulo 96;
-q) Los artículos del Capítulo 97 (juguetes, juegos, artefactos
-deportivos, etc.);
-r) Los botones, los cierres de cremallera, los portaplumas, portaminas
-y sus partes, las embocaduras y tubos para pipas, boquillas, etc.; los
-peines, las partes de botellas, termos y similares, así como los demás
-artículos clasificados en el Capítulo 98.
-2. En las partidas 39.01 y 39.02 sólo se incluyen los productos
-obtenidos por síntesis química y que respondan a las descripciones
-siguientes:
-a) Las materias plásticas artificiales, incluidas las resinas
-artificiales;
+q) Los artículos del Capítulo 97 (juguetes, juegos, artefactos deportivos, etc.);
+r) Los botones, los cierres de cremallera, los portaplumas, portaminas y sus partes, las embocaduras y tubos para pipas, boquillas, etc.; los peines, las partes de botellas, termos y similares, así como los demás artículos clasificados en el Capítulo 98.
+2. En las partidas 39.01 y 39.02 sólo se incluyen los productos obtenidos por síntesis química y que respondan a las descripciones siguientes:
+a) Las materias plásticas artificiales, incluidas las resinas artificiales;
 b) Las siliconas;
-c) Los resoles, el poli-isobutileno líquido y los productos
-artificiales similares de polimerización o de policondensación.
-3. En las partidas 39.01 a 39.06, inclusive, sólo se incluyen los
-productos presentados en las formas siguientes:
-a) Los productos líquidos o pastosos, incluidas las emulsiones,
-dispersiones y soluciones;
-b) Bloques y trozos, grumos, masas no coherentes, granulados, copos
-y polvos (incluidos los polvos para moldear);
-c) Monofilamentos cuya mayor dimensión de su corte transversal sea
-superior a un milímetro; tubos obtenidos directamente en su forma, barras,
-varillas o perfiles, incluso trabajados en su superficie, pero sin otra
-labor;
-d) Placas, hojas, películas, y bandas o tiras (distintas de las
-clasificadas en la partida 51.02 por la Nota 4, Capítulo 51), incluso
-impresas o trabajadas de otra forma en la superficie, sin cortar o
-simplemente cortadas en forma cuadrada o rectángular (incluso si esta
-operación les da el carácter de artículos dispuestos para su uso en tal
-estado);
+c) Los resoles, el poli-isobutileno líquido y los productos artificiales similares de polimerización o de policondensación.
+3. En las partidas 39.01 a 39.06, inclusive, sólo se incluyen los productos presentados en las formas siguientes:
+a) Los productos líquidos o pastosos, incluidas las emulsiones, dispersiones y soluciones;
+b) Bloques y trozos, grumos, masas no coherentes, granulados, copos y polvos (incluidos los polvos para moldear);
+c) Monofilamentos cuya mayor dimensión de su corte transversal sea superior a un milímetro; tubos obtenidos directamente en su forma, barras, varillas o perfiles, incluso trabajados en su superficie, pero sin otra labor;
+d) Placas, hojas, películas, y bandas o tiras (distintas de las clasificadas en la partida 51.02 por la Nota 4, Capítulo 51), incluso impresas o trabajadas de otra forma en la superficie, sin cortar o simplemente cortadas en forma cuadrada o rectángular (incluso si esta operación les da el carácter de artículos dispuestos para su uso en tal estado);
 e) Desperdicios y restos de manufacturas.
-Partidas
-DAI
-Subpartidas
-% sobre
-e incisos Descripción
-Valor CIF
-39.01 Productos de condensación, de policondensación y
-de poliadición, modificados o no, polimerizados o
-no, lineales o no (fenoplastos, aminoplastos, resinas
-alcídicas, poliésteres alílicos y demás poliésteres
-no saturados, siliconas, etc.)
+Partidas DAI Subpartidas % Sobre e incisos Descripción Valor CIF
+39.01 Productos de condensación, de policondensación y de poliadición, modificados o no, polimerizados o no, lineales o no (fenoplastos, aminoplastos, resinas alcídicas, poliésteres alílicos y demás poliésteres no saturados, siliconas, etc.)
 01 00 Intercambiadores de iones ... ... ... ... ... ... ... ...
-02 00 Bandas o tiras adhesivas de un ancho que no exceda
-los 10 cm ... ... ... ... ... ... ... ... ... ... ... ...
-35
-03 En las formas primarias señaladas en las Notas
-39-3a) y 39-3b)
-39.01 03 01 De resinas alcídicas con aceites secantes o con
-aceite de coquito (palma); resinas del tipo poliéster
-insaturado, excepto del tipo isoftálico ... ... ... ...
-20
-Partidas
-DAI
-Subpartidas
-% sobre
-e incisos Descripción
-Valor CIF
-99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...
-5
-04 En las formas primarias señaladas en las Notas
-39-3c) y 39-3d)
-01 Placas y láminas rígidas, de materias plásticas que
-contengan armadura o red de esfuerzo, superposición
-de placas u hojas u otras materias
-intercaladas ... ... ... ... ... ... ... ... ... ... ...
-25
-02 Monofilamentos con más de 1 mm en la mayor
-dimensión de su corte transversal ... ... ... ... ... ...
-35
-99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...
-5
-05 00 Desperdicios y restos de manufacturas ... ... ... ... ...
-5
-39.02 Productos de Polimerización y copolimerización
-(polietileno, politetrahaloetilenos, poliisobutileno,
-poliestireno, cloruro de polivinilo, acetato de polivinilo,
-cloro acetato de polivinilo y demás derivados
-polivinílicos, derivados poliacrílicos y polimetacrílicos,
-resinas de cumarona indeno, etc.)
-39.02 01 00 Intercambiadores de iones ... ... ... ... ... ... ... ...
-5
-02 00 Bandas o tiras adhesivas de un ancho que no exceda
-los 10 cm ... ... ... ... ... ... ... ... ... ... ... ...
-35
-03 00 En formas primarias señaladas en las Notas 39-3a)
-y 39-3b) (excepto PVC y sus derivados)... ... ... ... ...
-5
-04 Cloruro de polivinilo y sus derivados en las formas
-primarias señaladas en las Notas 39-3a) y 39-3b)
+02 00 Bandas o tiras adhesivas de un ancho que no exceda los 10 cm ... ... ... ... ... ... ... ... ... ... ... ...35
+03 En las formas primarias señaladas en las Notas 39-3a) y 39-3b)
+39.01 03 01 De resinas alcídicas con aceites secantes o con aceite de coquito (palma); resinas del tipo poliéster
+insaturado, excepto del tipo isoftálico ... ... ... ...20
+Partidas DAI Subpartidas % sobre e incisos Descripción Valor CIF
+99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
+04 En las formas primarias señaladas en las Notas 39-3c) y 39-3d)
+01 Placas y láminas rígidas, de materias plásticas que contengan armadura o red de esfuerzo, superposición de placas u hojas u otras materias intercaladas ... ... ... ... ... ... ... ... ... ... ... 25
+02 Monofilamentos con más de 1 mm en la mayor dimensión de su corte transversal ... ... ... ... ... .5
+99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...5
+05 00 Desperdicios y restos de manufacturas ... ... ... ... 5
+39.02 Productos de Polimerización y copolimerización (polietileno, politetrahaloetilenos, poliisobutileno, poliestireno, cloruro de polivinilo, acetato de polivinilo, cloro acetato de polivinilo y demás derivados polivinílicos, derivados poliacrílicos y polimetacrílicos, resinas de cumarona indeno, etc.)
+39.02 01 00 Intercambiadores de iones ... ... ... ... ... ... ... ... 5
+02 00 Bandas o tiras adhesivas de un ancho que no exceda los 10 cm ... ... ... ... ... ... ... ... ... ... ... ... 35
+03 00 En formas primarias señaladas en las Notas 39-3a) y 39-3b) (excepto PVC y sus derivados)... ... ... ... ... 5
+04 Cloruro de polivinilo y sus derivados en las formas primarias señaladas en las Notas 39-3a) y 39-3b)
 01 PVC tipo suspensión ... ... ... ... ... ... ... ... ...
-02 Polímero de acetato de polivinilo (PVA) y copolímero
-de acetato de polivinilo con derivados
-acrílicos ... ... ... ... ... ... ... ... ... ... ... ...
-20
-03 Gránulos, copos, grumos o polvos a base de PVC,
-tipo suspensión (denominados comercialmente compuestos
-de PVC), excepto policloruro de vinilideno
-(C-PVC) y PVC con polivinilo acetato (PVA)... ... ... ...
-40
-99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...
-5
-05 En las formas primarias señaladas en las Notas
-39-3c) y 39-3d)
-39.02 05 01 Placas y láminas rígidas de materias plásticas
-que contengan armadura o red de esfuerzo, superposición
-de placas y hojas u otras materias
-intercaladas ... ... ... ... ... ... ... ... ... ... ...
-25
-02 Planchas, láminas lisas y texturizadas de polímeros
-de metil metacrilato con espesor igual o mayor
-a 1 mm y hasta 40 mm ... ... ... ... ... ... ... ... ...
-25
-03 Hojas (películas) y láminas rígidas o flexibles de
-PVC, incluso con impresiones suplementarias ... ... ...
-40
-04 Monofilamentos con más de 1 mm en la mayor
-dimensión de su corte transversal ... ... ... ... ... ...
-20
-05 Tubería lineal de PVC cuya mayor dimensión del
-corte transversal sea igual o menor de 4000 mm... ... ...
-45
-06 Tubería lineal de PVC cuya mayor dimensión del
-corte transversal sea igual o menor a 26 mm ... ... ...
-45
-Partidas
-DAI
-Subpartidas
-% sobre
-e incisos Descripción
-Valor CIF
-07 Planchas y láminas de polietileno-vinil acetato,
-incluso del tipo multicapas, con espesores finales
-comprendidos entre 2 mm y hasta 50 mm ... ... ... ... ...
-25
-08 Hojas y láminas flexibles de polietileno, incluso
-con imprensiones suplementarias ... ... ... ... ... ...
-25
-09 Tubería lineal (manguera) de polietileno de diámetro
-igual o superior a 12,5 mm y hasta 51 mm
-para riego... ... ... ... ... ... ... ... ... ... ... ...
-20
-99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...
-5
-06 00 Desperdicios y restos de manufacturas ... ... ... ... ...
-5
-39.03 Celulosa regenerada; nitratos, acetatos y otros
-ésteres de la celulosa, éteres de la celulosa y otros
-derivados químicos de la celulosa, plastificados o
-no (celoidina y colodiones, celuloides, etc.); fibra
-vulcanizada
-01 00 Bandas o tiras adhesivas de un ancho que no exceda
-los 10 cm ... ... ... ... ... ... ... ... ... ... ... ...
-35
-02 00 En las formas primarias señaladas en las Notas
-39-3a) y 39-3b) ... ... ... ... ... ... ... ... ... ...
-5
-03 00 En las formas señaladas en las Notas 39-3c) y
-39-3d) ... ... ... ... ... ... ... ... ... ... ... ...
-5
+02 Polímero de acetato de polivinilo (PVA) y copolímero de acetato de polivinilo con derivados acrílicos ... ... ... ... ... ... ... ... ... ... ... ... 20
+03 Gránulos, copos, grumos o polvos a base de PVC, tipo suspensión (denominados comercialmente compuestos de PVC), excepto policloruro de vinilideno (C-PVC) y PVC con polivinilo acetato (PVA)... ... ... ... 40
+99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
+05 En las formas primarias señaladas en las Notas 39-3c) y 39-3d) 39.02 05 01 Placas y láminas rígidas de materias plásticas que contengan armadura o red de esfuerzo, superposición de placas y hojas u otras materias intercaladas ... ... ... ... ... ... ... ... ... ... ... 25
+02 Planchas, láminas lisas y texturizadas de polímeros de metil metacrilato con espesor igual o mayor
+a 1 mm y hasta 40 mm ... ... ... ... ... ... ... ... ... 25
+03 Hojas (películas) y láminas rígidas o flexibles de PVC, incluso con impresiones suplementarias ... ... ... 40
+04 Monofilamentos con más de 1 mm en la mayor dimensión de su corte transversal ... ... ... ... ... ... 20
+05 Tubería lineal de PVC cuya mayor dimensión del corte transversal sea igual o menor de 4000 mm... ... ... 45
+06 Tubería lineal de PVC cuya mayor dimensión del corte transversal sea igual o menor a 26 mm ... ... ... 45
+Partidas DAI Subpartidas % sobre e incisos Descripción Valor CIF
+07 Planchas y láminas de polietileno-vinil acetato, incluso del tipo multicapas, con espesores finales comprendidos entre 2 mm y hasta 50 mm ... ... ... ... ... 25
+08 Hojas y láminas flexibles de polietileno, incluso con imprensiones suplementarias ... ... ... ... 25
+09 Tubería lineal (manguera) de polietileno de diámetro igual o superior a 12,5 mm y hasta 51 mm para riego... ... ... ... ... ... ... ... ... ... ... ... 20
+99 Los demás ... ... ... ... ... ... ... ... ... ... ... ... 5
+06 00 Desperdicios y restos de manufacturas ... ... ... ... ... 5
+39.03 Celulosa regenerada; nitratos, acetatos y otros ésteres de la celulosa, éteres de la celulosa y otros derivados químicos de la celulosa, plastificados o no (celoidina y colodiones, celuloides, etc.); fibra vulcanizada
+01 00 Bandas o tiras adhesivas de un ancho que no exceda los 10 cm ... ... ... ... ... ... ... ... ... ... ... ... 35
+02 00 En las formas primarias señaladas en las Notas 39-3a) y 39-3b) ... ... ... ... ... ... ... ... ... ... 5
+03 00 En las formas señaladas en las Notas 39-3c) y 39-3d) ... ... ... ... ... ... ... ... ... ... ... ... 5
 04 00 Desperdicios y restos de las manufacturas ... ... ... ...
 5
 39.04 00 00 Materias albuminoideas endurecidas (caseína endurecida,
@@ -7687,13 +7510,13 @@ Código | Descripción | DAI
 17011200 | De remolacha. | 45
 17019100 | Con adición de aromatizante o colorante. | 45
 17019900 | Los demás. | 45
-85243900 | Los demás | 1
+85243900 (*Así reformado por el artículo 1° del decreto ejecutivo N° 32158 del 30 de noviembre del 2004) | Los demás | 0*
 85249190 | Otros | 0
-85249990 | Otros | 1
+85249990 (*Así reformado por el artículo 1° del decreto ejecutivo N° 32158 del 30 de noviembre del 2004) | Otros | 0*
 85254000 | Vídeocamaras, incluidas las de imagen fija | 0
 85291000 | Antenas y reflectores de antenas de cualquier tipo; partes apropiadas para su utilización con dichos artículos. | 0
-85366900 | Las demás | 2
-85444900 | Los demás | 2
+85366900 (*Así reformado por el artículo 1° del decreto ejecutivo N° 32158 del 30 de noviembre del 2004) | Las demás | 0*
+85444900 (*Así reformado por el artículo 1° del decreto ejecutivo N° 32158 del 30 de noviembre del 2004) | Los demás | 0*
 Nota: El artículo N° 1° del Decreto Ejecutivo No. 31727 de 23 de marzo de 2004 hizo una modificación para Guatemala, de la siguiente manera:
 | | | DIA | DAI
 | | Volúmenes Activados | Dentro del contingente | Fuera del Contingente
