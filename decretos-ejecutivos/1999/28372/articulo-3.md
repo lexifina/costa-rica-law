@@ -1,0 +1,1 @@
+Artículo 3º-Aquellos componentes salariales que no estén en función del salario base de las diferentes modalidades de empleo, serán incrementados de acuerdo al porcentaje promedio de aumento, según determinación que a dichos efectos realizara la Dirección General de Servicio Civil, mediante resolución.
