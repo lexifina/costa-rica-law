@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-Se establece en esta capital una Receptoría general compuesta de un Tesorero con el sueldo de setecientos ochenta pesos, y de un Oficial escribiente con el de trescientos sesenta pesos anuales.
