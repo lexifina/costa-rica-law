@@ -1,0 +1,1 @@
+Artículo 2º.- Para los efectos de esta ley considérese ciega a toda persona que con lentes correctivos, no posea una agudeza de más de 20 - 200 ó 6 - 60 (Gráfica Snellen) o cuyo campo visual esté limitado, en su diámetro más amplio, a menos de 20 grados.

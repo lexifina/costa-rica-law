@@ -1,0 +1,2 @@
+Del Patronato
+Artículo 6º.- Estará integrado el Patronato, por un representante de cada uno de los Ministerios de Trabajo y Previsión Social, Educación Pública, Salubridad Pública y, además, un profesor tiflólogo como representante de la Escuela de Enseñanza Especial, dos profesores ciegos en ejercicio y un médico oftalmólogo por el Colegio de Médicos y Cirujanos del país y un delegado de cada una de las asociaciones legalmente constituidas, a la fecha de entrar en vigencia esta ley, para ayudar a los no videntes.

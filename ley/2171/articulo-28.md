@@ -1,0 +1,1 @@
+Artículo 28.- Los Ministerios de Trabajo y Previsión Social, de Educación Pública, de Gobernación y Policía, de Salubridad Pública y de Seguridad Pública, velarán por el cumplimiento de la anterior disposición, notificando al Patronato todoslos casos de menores ciegos de que tengan conocimiento.
