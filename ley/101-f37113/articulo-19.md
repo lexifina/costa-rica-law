@@ -1,0 +1,1 @@
+ARTICULO 19.- Cuando el autor de alguna composición exige la reserva de su firma, deberá presentar dos ejemplares al Director, el que los cotejará, y estando iguales reservará el que tenga la firma, y presentará el anónimo al maestro para que se imprima.

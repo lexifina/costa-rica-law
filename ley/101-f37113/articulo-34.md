@@ -1,0 +1,1 @@
+ARTICULO 34.- Con respecto a la encuadernación debe procurarse aseo, paralelismo en el doblez y conformidad en las páginas; todo lo que estará al cuidado de un oficial, bajo la inspección y responsabilidad del maestro.

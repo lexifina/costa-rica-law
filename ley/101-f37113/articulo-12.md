@@ -1,0 +1,1 @@
+ARTICULO 12.- El maestro se entenderá con el Director por una parte, y con los oficiales y aprendices por otra, y el Director se entenderá con el público y con el Gobierno o funcionarios que lo ocupen.

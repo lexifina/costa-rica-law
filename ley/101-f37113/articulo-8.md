@@ -1,0 +1,1 @@
+ARTICULO 8º.- Es de obligación del Director el verificar la corrección de la primera prueba, y la última corresponde al funcionario o particular que la haya ordenado. Antes de proceder a la impresión, se exigirá la orden por escrito del dueño o encargado de ella, donde se puntualizará el número de ejemplares y quien da el papel.

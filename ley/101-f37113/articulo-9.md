@@ -1,0 +1,1 @@
+ARTICULO 9º.- Ningún papel de particulares será preferido a las impresiones del Gobierno. El Director o o empleado subalterno de la imprenta que posponga los intereses públicos, en éste u otro caso, a los intereses particulares, será depuesto de su empleo en el momento de justificarse el hecho.
