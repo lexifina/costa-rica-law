@@ -14,3 +14,4 @@ Reglamento para el control de activos o bienes del Instituto Costarricense de Tu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-06 | la propia norma |
+| 2 | 2003-12-17 | Reglamento 5282 (2003-12-17) |
