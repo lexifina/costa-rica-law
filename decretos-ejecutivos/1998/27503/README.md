@@ -15,3 +15,4 @@ Reglamento para la Constitución de los Puestos de Bolsa, Sociedades Administrad
 | --- | --- | --- |
 | 1 | 1998-12-17 | la propia norma |
 | 2 | 1999-04-16 | Decreto Ejecutivo 27840 (1999-04-16) |
+| 3 | 1999-05-13 | Decreto Ejecutivo 27901 (1999-05-13) |
