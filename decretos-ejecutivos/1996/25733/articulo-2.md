@@ -1,0 +1,1 @@
+Artículo 2°—El manejo y aprovechamiento de la vida silvestre estará sujeto a un Plan de Manejo aprobado por el Ministerio del Ambiente y Energía; quien supervisará además su ejecución y podrá emitir disposiciones técnicas y científicas que deberán ser acatadas por los propietarios. La visita de particulares a este refugio requerirá de un permiso escrito del propietario.
