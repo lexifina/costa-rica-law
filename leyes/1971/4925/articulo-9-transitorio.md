@@ -1,0 +1,1 @@
+Transitorio IX.- Los títulos expedidos por el Colegio de Ingenieros y Arquitectos de Costa Rica a sus miembros hasta la fecha en que entre en vigencia esta ley, se considerarán con igual validez legal a lo nuevos títulos o documentos de incorporación que extienda el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
