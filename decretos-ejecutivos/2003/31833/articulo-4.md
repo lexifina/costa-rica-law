@@ -1,0 +1,1 @@
+Artículo 4º—Las acciones de desarrollo y mejoramiento del Programa Nacional de Ferias del Agricultor que promueva la Comisión Técnica tendrán como escenario todas las ferias del agricultor debidamente establecidas.
