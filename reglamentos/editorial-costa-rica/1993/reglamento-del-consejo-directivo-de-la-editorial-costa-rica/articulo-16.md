@@ -1,0 +1,1 @@
+Artículo 16.—La sesiones extraordinarias serán convocadas por el Presidente cuando sea necesario según su criterio, para lo cual deberá comunicarlo por lo menos con doce horas de anticipación a los demás directores. Además deberá convocarlas obligatoriamente cuando se le soliciten el gerente, o el resto de los directores en forma conjunta.

@@ -1,0 +1,1 @@
+Artículo 12.—El vicepresidente del Consejo tendrá como función principal ejercer la presidencia en las sesiones en que el titular no pueda asistir, o representarlo en aquellos casos en que se le designe específicamente para tal función.

@@ -1,0 +1,1 @@
+Artículo 19.—Los acuerdos del Consejo se tomarán por mayoría simple de los miembros presentes. Se entiende por mayoría simple la mitad más uno de los votos presentes, salvo los casos en que la Ley o este Reglamento establezcan una mayoría calificada. Para todos los puntos deliberados en la sesión, sin excepción, se tomará un acuerdo y este constará en el acta respectiva.

@@ -1,0 +1,1 @@
+Artículo 22.—El gerente será convocado permanente a las sesiones del Consejo. El auditor interno, los asesores específicos internos o externos debidamente contratados, y el secretario de actas, podrán ser convocados permanentes. El Consejo puede acordar expresamente prescindir de la presencia de ellos.
