@@ -14,3 +14,4 @@ Define Categorías en Reglamento Regencias Colegio Ingenieros Agrónomos y estab
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-07 | la propia norma |
+| 2 | 2001-03-02 | Decreto Ejecutivo 29414 (2001-03-02) |
