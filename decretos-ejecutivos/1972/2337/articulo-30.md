@@ -1,0 +1,2 @@
+Artículo 30.-En atención a los fines de la ley que se reglamenta, es obligatorio para los beneficiarios la residencia en el país por un término no inferior a seis meses consecutivos, debiendo tener establecido en él su domicilio legal, en los términos del artículo 29 del Código Civil. Consecuentemente estará obligado a comunicar al Instituto todo cambio de domicilio.
+Cuando se compruebe el incumplimiento de la disposición anterior, el ICT previa comunicación al Ministerio de Hacienda, cancelará la credencial de Residente Pensionado o Residente Rentista.

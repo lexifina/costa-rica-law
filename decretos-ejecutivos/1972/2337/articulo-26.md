@@ -1,0 +1,1 @@
+Artículo 26.-El Instituto Costarricense de Turismo proveerá a los interesados toda clase de formularios e información, que faciliten la tramitación de las solicitudes para acogerse a la ley N° 4812, conforme a este Reglamento.

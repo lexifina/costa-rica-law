@@ -1,0 +1,1 @@
+Artículo 19.-Previa autorización de la Dirección General de Aduanas, los interesados podrán sustituir su vehículo en el extranjero, en cualquier momento y continuarán gozando de las mismas franquicias establecidas en este Reglamento. Cuando se opere esta sustitución, el interesado lo comunicará al ICT para ordenar el registro correspondiente.

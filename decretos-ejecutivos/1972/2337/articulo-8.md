@@ -1,0 +1,2 @@
+Del Procedimiento
+Artículo 8°-El Instituto Costarricense de Turismo, conocerá de las solicitudes para acogerse a los beneficios estipulados, y sustanciar el trámite conforme a las prescripciones de la ley respectiva y este Reglamento. Dictará la resolución que proceda dentro de los treinta días posteriores al recibo de la gestión, y lo hará del conocimiento del Ministerio de Hacienda para que emita la orden de desalmacenaje correspondiente.

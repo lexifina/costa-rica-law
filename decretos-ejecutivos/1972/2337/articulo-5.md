@@ -1,0 +1,1 @@
+Artículo 5°-El Ministerio de Hacienda, cuando así lo recomienda el ICT,exonerá de los Impuestos Arancelarios y otros que considere del caso hasta $7,000.00 a los artículos que importen los Residentes,Pensionados o Residentes Rentistas, que ingresen a Costa Rica al amparo de la ley N° 4812 de 28 de julio de 1971.

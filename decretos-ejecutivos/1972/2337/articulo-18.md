@@ -1,0 +1,3 @@
+Artículo 18.-Los vehículos automotores y su equipo, importados al amparo de la ley que se reglamenta, podrá ser vendidos o traspasados bajo cualquier título a terceros, sin pago alguno de los impuestos exonerados, después de transcurridos cinco años de la fecha de otorgamiento del beneficio.
+Comprobado el traspaso ante el ICT, los beneficiarios podrán solicitar se recomiende la importación de otro vehículo, con exoneración de los mismos impuestos antes mencionados.
+Cada cinco años podrán los interesados disfrutar del beneficio, establecido, con tal de que se obtenga en cada caso constancia del ICT de mantener la credencial del artículo 2° anterior.

@@ -1,0 +1,2 @@
+Artículo 13.-Los beneficios, establecidos por la ley aquí reglamentada, en ningún caso le serán concedidos a los extranjeros que hubieren obtenido su cédula de residencia en Costa Rica. Las personas que hayan permanecido en el país por un período mayor de series meses, deberán comprobar que no han gestionado el otorgamiento de dicho documento.
+Quedan a salvo de la anterior prohibición, los extranjeros residentes que obtengan una pensión o jubilación de entidades extranjeras oficiales.

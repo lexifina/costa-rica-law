@@ -1,0 +1,1 @@
+Artículo 12.-La falsedad comprobada en los documentos o informe suministrados para el otorgamiento de los beneficios que la ley N° 4812 y este Reglamento confieren, se sancionará de conformidad con lo que establece la Ley de Defraudación Fiscal. Correlativamente acarreará la cancelación de la credencia respectiva.

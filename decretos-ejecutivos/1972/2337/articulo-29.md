@@ -1,0 +1,2 @@
+Obligaciones de los Beneficiarios
+Artículo 29.-Las personas que se acojan a los beneficios de la ley aquí reglamentada, en caso de ausentarse definitivamente del país, dentro del plazo señalado en el artículo 16 de este Reglamento, desmostrarán ante las autoridades de Migración mediante certificación de la Dirección General de Aduanas, la reexportación de todos los artículos y enseres exonerados de impuestos o bien el haberse cumplido con el pago de los tributos que el Estado dejó de percibir.

@@ -1,0 +1,2 @@
+Aplicación de los Beneficios
+Artículo 15.-El monto de las exoneraciones de impuestos arancelarios, y otros que se consideren del caso, no podrá exceder de siete mil dólares (US$7,000.00). Pudiendo los interesados hacer uso de esta franquicia, total o parcialmente, dentro del plazo de cuatro meses contados a partir de la notificación de que habla el artículo 14 de este Reglamento. Este plazo podrá ser ampliado, cuando a juicio del Ministerio de Hacienda y previa recomendación del Instituto Costarricense de Turismo, existiere justa causa.
