@@ -1,0 +1,5 @@
+Artículo 12.—La solicitud o autorización de inicio de un Procedimiento señalará siempre el órgano, órganos, funcionario o funcionarios que integrarán el Órgano Director, y que podrán ser:
+a) El Departamento Legal en aquellos casos que se inicie el procedimiento para buscar la verdad real de los hechos por infracciones a la Ley de Tierras y que puedan tener como resultado final la revocatoria del acto administrativo de adjudicación de la parcela, la nulidad del título de propiedad o el desalojo administrativo de la parcela. El desalojo administrativo siempre se tramitará por la vía sumaria.
+b) La Unidad de relaciones laborales en los procedimientos disciplinarios, y para determinar la existencia o no de responsabilidad civil o penal.
+c) Otro(s) Órgano(s) o funcionario(s), en conjunto con el Departamento Legal, cuando así lo designe para el caso concreto la Presidencia Ejecutiva o la Junta Directiva.
+En ausencia de indicación expresa del acuerdo inicial, en los órganos pluripersonales fungirá como Presidente el Funcionario de mayor Jerarquía administrativa, o en caso de igualdad, quien represente al Departamento Legal, internamente se designará al Secretario.

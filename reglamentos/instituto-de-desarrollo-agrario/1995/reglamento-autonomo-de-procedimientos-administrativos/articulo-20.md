@@ -1,0 +1,1 @@
+Artículo 20.—La interposición del recurso contra el acto final permitido por la LGAP , dará lugar única y exclusivamente a que el Órgano Director disponga sobre la posible suspensión de los efectos de dicho acto, sin llegar a revocar o modificar lo resuelto.

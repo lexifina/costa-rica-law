@@ -1,0 +1,2 @@
+Artículo 16.—La impugnación que haga una parte del acto que inicie el Procedimiento Ordinario, podrá incluir la petitoria de recalificación del mismo a procedimiento sumario.
+No procede la impugnación inversa conforme lo establece el articulo 344 de la LGAP , sin perjuicio de que el recurso que se interponga contra el acto final pueda la parte alegar nulidad de lo actuado por omisión del procedimiento ordinario, y sin perjuicio tampoco de la conversión acordada por el órgano director en los términos del artículo 326 de la LGAP.

@@ -1,0 +1,1 @@
+Artículo 6°—A falta de disposición en este reglamento se aplicarán supletoriamente, por su orden, la LGAP , las demás normas escritas y no escritas, con rango legal o reglamentario del Ordenamiento Jurídico Administrativo, el Código del Trabajo y el Código Procesal Civil.

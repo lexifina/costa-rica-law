@@ -1,0 +1,1 @@
+Artículo 21.—El órgano Director podrá prescindir de la presentación del informe a que se refiere el artículo 349.2 de la LGAP cuando la apelación no contenga las razones del recurso, por haberse reservado el recurrente su exposición para ante el superior.

@@ -1,0 +1,1 @@
+Artículo 22.—Será admisible la apelación por inadmisión a través de la aplicación supletoria y en lo conducente de las reglas de la legislación procesal civil. En tales casos, la Junta Directiva encomendará su sustanciación al Departamento Legal, siguiendo en lo demás el trámite usual de la apelación.
