@@ -1,0 +1,1 @@
+4°.- En orden a las Haciendas abandonadas se observará cumplimiento lo dispuesto en el artículo 9° y 10° de la Ley de 29 de Marzo de 826 debiendo entenderse que corre el término de un año allí mencionado desde la notificación o información que deberá instruir y practicar aquella Municipalidad entro un mes después de publicada esta Ley.

@@ -1,0 +1,1 @@
+2° Si consumidos estos ocho-cientos pesos a un pareciera de necesidad algún gasto más, podrá hacerse este a juicio del Gobierno previo expediente que manifieste la necesidad de la obra y presupuesto de gasto que no pasará de dos cientos pesos sin ulterior aprobación de la Legislatura.
