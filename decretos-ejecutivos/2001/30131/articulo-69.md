@@ -1,0 +1,69 @@
+Artículo 69.—PLANOS.
+69.1 Plano de conjunto de edificaciones, tanques, tuberías, áreas de trasiego y suministro, ubicación y plano de diseño del tanque y tuberías, firmado por un Ingeniero o Arquitecto, conforme con lo estipulado en las Especificaciones Técnicas para estaciones de servicio.
+69.2 Los planos constructivos deben contener el siguiente detalle:
+· Instalación del tanque
+· Instalación de tuberías y válvulas
+· Dique de contención y su malla perimetral
+· Accesorios para el control de derrames
+· Válvulas de bola, check y antisifón
+· Zona de manejo de combustibles con superficies impermeables
+· Canal recolector de derrames
+· Trampa de aguas oleaginosas
+· Sistema eléctrico entubado y anti- explosión en los 4,50 metros alrededor de bocas de llenado, venteo y surtidor, o cualquier prevista para abertura del tanque.
+· Retiros de protección según líneas de construcción o de zonas protectoras según definición de SINAC.
+· Señalar si existen servidumbres
+· Alineamientos de construcción y de zonas protegidas
+· Planta de ubicación señalando posibles localizaciones y distancias de sitios de reunión publica, líneas de alta tensión, líneas de ferrocarril.
+· Disparador de Tablero.
+69.3 Los tanques podrán ser colocados directamente en la tierra (fosa prevista para ese efecto) o colocados en una bóveda de concreto armado totalmente impermeabilizada, manteniendo el requisito de doble contención y ajustándose a las disposiciones del Capítulo de Tanques en el presente Reglamento. Podrán utilizarse tanques sobre el terreno (superficiales) cuando se ajusten a las disposiciones de indicadas en el presente Capítulo.
+69.4 Cuando las instalaciones sean para tanques subterráneos, la DGTCC verificará las siguientes fases de la construcción, para lo cual el responsable de la obra deberá solicitar por escrito la inspección respectiva:
+· Colocación de tanques dentro de la fosa sin la arena de relleno en caso de que los tanques sean subterráneos.
+· Al momento en que las instalaciones se encuentren listas para funcionar, con las pruebas de hermeticidad realizadas.
+69.4 Tanques Superficiales: Se utilizarán tanques superficiales (no confinados), atmosféricos de pared sencilla o doble, del tipo cilíndrico vertical u horizontal.
+69.5 Los tanques podrán ser superficiales únicamente cuando se almacene diesel y bunker.
+69.6 Tanques Subterráneos: Los tanques para almacenar los diferentes tipos de gasolinas, AV-Gas, u otro tipo de combustible con alta volatilidad, deberán ser enterrados respetando las normas vigentes aplicables.
+69.6.1 En casos demostrados de imposibilidad de colocarlos subterráneamente, como zonas con riesgo de inundación o terrenos rocosos, deberá presentar un estudio de Mecánica de Suelos, junto con un reporte del estudio de onda expansiva y análisis de volatilidad para este tipo de almacenamiento y uso de combustibles. En todo caso estos tanques superficiales deberán ser instalados dentro una bóveda formada por muros de contención, manteniendo el requisito de doble contención.
+69.6.2 Características generales de los tanques.
+69.6.3 La capacidad nominal mínima para tanques de almacena-miento superficiales será de 1 000 litros y la máxima de 50 000 litros.
+69.6.4 Tanques horizontales. La fabricación y dimensionamiento de tanques horizontales deben resistir la exposición a fuego por dos horas como mínimo. Como referencia se tiene lo indicado en el estándar UL 142 y UL 2085; que establecen los límites máximos de temperatura expuesto a fuego por dos horas, así como requerimientos de temperatura interna sometida a 204,44 grados centígrados como punto máximo de ignición de la gasolina. Aunado a lo anterior, el UFC certifica las mangueras de flujo, la prueba penetración de proyectil (balística) y la prueba de impacto de vehículos pesados. El contar con estos listados asegura que en caso de que el tanque se encuentre en una envolvente de fuego, éste se puede controlar por dos horas, sin riesgo de a una ruptura del tanque y derrame del líquido almacenado en el mismo.
+69.6.5 Los materiales serán nuevos, de acero al carbón, grado estructural o comercial ASTM-A-36.
+69.6.6 Los empaques deben ser resistentes a los vapores de hidrocarburos y aprobados por UL.
+69.6.7 Cuando las condiciones del proyecto lo requieran, se podrán utilizar tanques con compartimentos internos contando con certificación de garantía del fabricante.
+69.6.8 Tanques verticales. Cumplirán con lo indicado anteriormente y con el estándar API 650, el cual recomienda la utilización de este tanque para altos volúmenes de ventas. Cuando se utilice la Norma API 650 se aplicarán los estándares ASTM 283 y 285, y en el caso de UL-142 se usará el ASTM-A-36.
+69.6.9 Corrosión. Si hay indicaciones de que la atmósfera circundante pueda causar corrosión superior a la especificada para el diseño del tanque, la compañía especializada deberá asegurar una protección adecuada utilizando un metal con más espesor o un recubrimiento adicional.
+69.6.10 Garantías. El fabricante del tanque deberá proporcionar al titular de la constancia de trámite, cuando entregue los tanques, la actualización vigente anual y el estampado que otorga UL o UFC garantizando el estricto cumplimiento de las normas y códigos antes mencionados, así como los de la Norma Oficial correspondiente. El fabricante otorgará una garantía por escrito de 30 años de vida útil contra corrosión o defectos de fabricación para tanques de doble pared, o 15 años para los de pared sencilla siendo reemplazados los tanques al término de este período.
+69.6.11 Placas de desgaste. Estarán localizadas en el interior del tanque, exactamente debajo de donde se ubiquen cada una de las boquillas.
+69.6.12 Boquillas. Las boquillas tendrán un diámetro variable de acuerdo con su uso y estarán localizadas en la parte superior del cuerpo del tanque, sobre la línea longitudinal superior del cilindro o sobre la tapa de la entrada-hombre.
+69.6.13 Válvula solenoide. Cuando un tanque superficial cuente con una tubería o accesorio conectado en un punto inferior o en un nivel donde se tenga que elevar el combustible, la tubería o accesorio debe llevar una válvula de tipo solenoide normalmente cerrada, situada lo más cerca posible de la pared del tanque.
+69.7 Procedimiento de instalación.
+69.7.1 Cimentación de Tanques verticales.
+69.7.2 Los tanques de almacenamiento vertical deben estar soportados al centro por cimientos construidos basado en anillos de concreto; el ancho del anillo no deberá ser menor a 0,30m en ningún caso.
+69.7.3 Los anillos deben ser rellenados con arena o grava y la superficie del relleno deberá ser de concreto con una pendiente máxima del 2% del centro al extremo interior del anillo.
+69.7.4 Para el diseño y construcción de los anillos de cimentación se dependerá de los estudios de mecánica de suelos, vientos dominantes, peso muerto del tanque, peso del producto a almacenar al 100% de capacidad del tanque así como de un factor de seguridad, con el fin de evitar asentamientos.
+6.97.5 Tanques horizontales.
+69.7.6 Los tanques horizontales se cimentarán sobre bases (silletas) de concreto armado o acero estructural recubierto de un material anticorrosivo.
+69.7.7 El soporte de acero debe ser protegido por un material resistente al fuego durante más de dos horas, excepto para una base de acero cuando el punto más bajo del tanque soportado no exceda 30 cm arriba del suelo.
+69.7.8 En la determinación del cálculo estructural de la cimentación dependiendo de análisis de mecánica de suelos, se debe considerar el peso muerto del tanque peso del producto que se almacenará al 100% de la capacidad del tanque vientos dominantes, así como de un factor de seguridad, con el fin de evitar asentamientos y mantener la horizontalidad de los tanques.
+69.7.9 Diques de contención.
+69.7.10 Todos los tanques de almacenamiento verticales y horizontales deben estar limitados por diques de contención, cuya construcción será de concreto, acero o mampostería, impermeabilizados y capaces de resistir la presión hidrostática ejercida por el líquido que llegaran a contener.
+69.7.11 Una barda de material incombustible, con una altura de 2 metros, debe ser construida perimetralmente al dique. El propósito fundamental del dique de contención es evitar la contaminación del subsuelo en caso de derrames o que se extienda el producto hacia otras áreas de la estación de servicio, y con ello tener la oportunidad de recuperarlo.
+69.7.12 Para asegurar la impermeabilización del dique se colocará una membrana protegida de cargas e incendios, o aditivos para concreto u otro material incombustible, con su respectiva certificación de garantía.
+69.7.13 La altura mínima del dique de contención será de 1,20 m y de 1,80 m como máximo sobre el nivel de piso terminado.
+69.7.14 La capacidad volumétrica de los diques de contención será como mínimo de 1,20 veces el volumen del tanque de almacenamiento de mayor capacidad dentro de cada dique, más el volumen que ocupen otras construcciones, como son las cimentaciones de los propios tanques.
+69.7.15 La distancia mínima del tanque de almacenamiento horizontal a los muros del dique de contención será de 1,0 m o la mitad del diámetro del tanque instalado, y a 4,00 m del edificio más cercano, ubicado dentro de la propiedad, a los límites de propiedad o en relación con otro tanque; y por ningún motivo se permite que los diques de contención hagan la función de muro que limite la propiedad de las instalaciones.
+69.7.16 La distancia mínima de pared a pared, entre dos tanques de almacenamiento verticales, será la mitad del diámetro del tanque de mayor diámetro, para combustibles líquidos. Los límites de colindancia o con relación a otro tanque se regirá por lo dispuesto en el inciso anterior.
+69.7.17 Dentro de los diques de contención no deberá existir equipo. Asimismo, las válvulas de entrada y salida de productos de los tanques de almacenamiento se deben localizar fuera del dique de contención y ningún material combustible, conte-nedor o tanque portátil (de aire, extintores, etc.) deberá encontrarse en el interior del dique de contención.
+69.7.18 La agrupación de los tanques superficiales de almacenamiento tanto verticales como horizontales debe realizarse de acuerdo con las características de los productos almacenados con el fin de que en un mismo dique de contención se ubiquen los tanques para gasolinas separados del dique de contención donde hayan sido colocados los tanques para combustible diesel.
+69.7.19 Todo tanque de almacenamiento debe tener como mínimo un frente de ataque, es decir, debe estar localizado adecuadamente para permitir el acceso a través de una calle para que en caso de siniestro se faciliten las operaciones contra incendio.
+69.7.20 Todos los tanques deberán contar con accesos, para lo cual se requerirá la instalación de plataformas, escaleras, barandales y pasarelas. Para el acceso de equipo portátil para mantenimiento, se deberá contar con rampas o escaleras.
+69.7.21 El agua pluvial debe evacuarse del dique de contención por medio de una caja de registro situado en la parte más baja y por fuera del dique. Debe existir una inclinación uniforme del piso del dique, de por lo menos el 1% de pendiente.
+69.7.22 Se debe contar con una válvula ubicada en la caja de registro, la cual estará normalmente cerrada y ser accesible en cualquier circunstancia.
+69.7.23 El agua que sea evacuada de un dique de contención debe ser canalizada a una trampa de grasas y combustibles o tratada de manera adecuada a fin de cumplir con los requerimientos de protección al medio ambiente, antes de ser descargada.
+69.7.24 Colocación del tanque.
+69.7.25 Se deben efectuar las pruebas que recomienda el fabricante antes de la instalación del tanque y cuando haya sido colocado en dique.
+69.7.26 Utilizar los puntos de sujeción que indique el fabricante para izar los tanques y utilice cuerdas de nylon para guiarlo. No lo arrastre ni lo ruede.
+69.7.27 La compañía especializada o el fabricante del tanque deberán efectuar las maniobras de acuerdo con las normas de seguridad, para evitar situaciones de riesgo.
+69.7.28 La base para colocar el dique debe ser calculada para soportar el 100% del peso total del tanque lleno. La base puede ser de concreto, asfalto, grava o cualquier otro material estable.
+69.7.29 El tanque contará con silletas de acero estructural o concreto armado.
+69.7.27 El tanque debe estar protegido y asegurado de actos vandálicos, impactos de vehículos y daños accidentales.
+69.9.28 Es responsabilidad del titular de la constancia de trámite el transporte, la instalación del tanque, equipo, accesorios y su reparación.

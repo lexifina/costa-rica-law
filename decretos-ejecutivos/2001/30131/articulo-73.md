@@ -1,0 +1,1 @@
+Artículo 73.—De los planos. Cualquier remodelación o ampliación, que afecte los planos originales de la propiedad y de las instalaciones, deberá quedar en los archivos de la DGTCC, mediante la renovación y actualización del plano afectado y del permiso de construcción respectivo.

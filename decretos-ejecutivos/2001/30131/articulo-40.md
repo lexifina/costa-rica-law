@@ -1,0 +1,3 @@
+Artículo 40.—Inspección Final. Al finalizar la fase constructiva y cuando las instalaciones se encuentren totalmente listas para operar debe presentarse previa a la inspección final los siguientes requisitos:
+40.1 Pruebas de Hermeticidad a los tanques y tuberías y presentar a la DGTCC las fichas técnicas individuales emitidas por el fabricante de los tanques y tuberías certificadas por un profesional competente en la materia, previas a emitir la autorización de funcionamiento.
+40.2 Secuencia fotográfica del proceso constructivo, donde conste en especial el proceso de instalación de tanques, tuberías de conducción de combustible, sellos antiexplosivos del sistema eléctrico, dispensadores y trampa de aguas oleaginosas.

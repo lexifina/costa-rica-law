@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—Las solicitudes de estaciones de servicio, que se encuentran en trámite al publicarse este Reglamento, o aquellos proyectos en ejecución podrán acogerse a la nueva normativa, caso contrario se regirán con las disposiciones anteriores hasta la conclusión del proyecto, sin embargo deberán comunicarlo por escrito a la DGTCC. Una vez vencido el plazo de construcción para todos los efectos se regirá por lo dispuesto en el presente reglamento.

@@ -1,0 +1,1 @@
+Transitorio II.—Los representantes de instalaciones que cuenten con tanques de autoconsumo y que no cumplan con los requisitos mínimos de funcionamiento, o no cuenten con la autorización de la DGTCC, tendrán un plazo de 90 días naturales a partir de al entrada en vigencia del presente Reglamento, para ponerse a derecho de conformidad con lo dispuesto en el presente reglamento.

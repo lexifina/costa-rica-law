@@ -1,0 +1,6 @@
+Artículo 5º—Competencia. Corresponde al Ministerio del Ambiente y Energía por medio de la DGTCC, la aplicación del presente Reglamento. Para tal efecto, la DGTCC tendrá entre otras competencias las siguientes:
+5.1 Regular, fiscalizar y controlar lo relativo al transporte y comercialización de hidrocarburos, así como los aspectos de seguridad e higiene en la operación y funcionamiento, en coordinación con el MOPT y el Ministerio de Salud, respectivamente.
+5.2 Verificación de aspectos relacionados con la seguridad y buen funcionamiento de las instalaciones para autoconsumo y de las instalaciones de almacenamiento y distribución de productos derivados de los hidrocarburos.
+5.3 Tramitar las solicitudes de instalación, traslado, cambio de titular, remodelación y operación de los establecimientos de autoconsumo o almacenamiento y distribución, así como elaborar la respectiva resolución de recomendación al Ministro del Ambiente y Energía.
+5.4 Recomendar al Ministro de Ambiente y Energía la suspensión o la cancelación de las autorizaciones que se regulan en este Decreto Ejecutivo.
+5.5 Tramitar el procedimiento administrativo para determinar la suspensión o cancelación de las autorizaciones otorgadas.

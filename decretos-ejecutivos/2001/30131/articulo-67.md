@@ -1,0 +1,1 @@
+Artículo 67.—Las personas físicas o jurídicas exceptuando RECOPE, S. A., podrán almacenar y disponer combustible únicamente en la ejecución de las actividades de sus empresas, bajo las condiciones que se indican en el presente Reglamento, en ningún caso se autoriza que las mismas vendan o suministren combustibles a terceros.

@@ -1,0 +1,1 @@
+Artículo 83.—Ingreso a planteles de RECOPE. Únicamente podrán entrar a cargar combustible a los planteles de RECOPE, los cisternas que cuenten con la autorización vigente para el transporte de combustible (TC) otorgado por el MINAE.

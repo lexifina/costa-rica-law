@@ -1,0 +1,1 @@
+Transitorio IV.—Lo dispuesto en el presente reglamento sobre recuperación de vapores no se aplicará a las estaciones de servicio construidas con anterioridad a la publicación del presente reglamento. Salvo que se trate de remodelaciones en cuyo caso deberá acatarse lo dispuesto en el presente reglamento.
