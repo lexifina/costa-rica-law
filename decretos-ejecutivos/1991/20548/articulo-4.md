@@ -1,0 +1,1 @@
+Artículo 4° -EI Ministerio de Salud, como ente rector de la salud, coordinará a través del Despacho del Titular de la Cartera , todas las acciones tendientes a controlar, prevenir y brindar el tratamiento indicado.

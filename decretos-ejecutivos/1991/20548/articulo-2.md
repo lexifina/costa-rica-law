@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza a las instituciones del Estado a cooperar con los programas de prevención y control del cólera, mediante la transferencia de fondos y recursos técnicos o de personal, y al Ministerio de Salud a aplicar el fondo de reserva que prevee el artículo 16 de su Ley Orgánica en los programas para la atención de la emergencia decretada en el artículo anterior.
