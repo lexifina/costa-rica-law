@@ -1,0 +1,1 @@
+Artículo 4°—Transcurrido dicho plazo, conforme a lo que conste en el expediente se determinará si procede la devolución o compensación solicitada conforme a los artículos 24, 43, 45 y siguientes del Código de Normas y Procedimientos Tributarios y concordantes del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria, según los artículos precedentes.
