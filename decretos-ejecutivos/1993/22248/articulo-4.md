@@ -1,0 +1,1 @@
+Artículo 4°—E1 Departamento de Personal realizará el estudio correspondiente para el reconocimiento de zonaje. Una vez reconocido el beneficio por parte de dicha oficina, se elaborará una acción de personal (P-21)la cual requiere de la aprobación de la Dirección General de Servicio Civil para su validez.
