@@ -1,1 +1,2 @@
-Artículo 6º.- El Sistema Bancario Nacional, queda exento, a partir del 1º de enero de 1949, de toda clase de impuestos municipales y nacionales.
+Artículo 6º.- El Sistema Bancario Nacional queda exento a partir del 1º de enero de 1949 de toda clase de impuestos nacionales y municipales, exceptuando entre los primeros los impuestos territorial y de la renta, y entre los segundos, los servicios y patentes, los cuales pagará en la forma y monto que las leyes respectivas establecen.
+(Así reformado por el artículo 1° de la ley N° 1135 del 14 de febrero de 1950)
