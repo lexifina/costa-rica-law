@@ -1,0 +1,1 @@
+Artículo 19.—De la información por ingresos no percibidos. Cuando a pesar de las gestiones efectuadas por la Tesorería, no hubiese sido posible la percepción de un ingreso determinado, el Tesorero deberá informarlo a la Dirección Financiera para que ésta disponga lo conducente.

@@ -1,0 +1,1 @@
+Artículo 25.—De la anulación de cheques. El Tesorero por medio de la Sección Caja procederá a anular los cheques de pago de salario en su poder, que tengan un mes de vigencia, así mismo, anulará los cheques a proveedores con tres meses de vigencia.

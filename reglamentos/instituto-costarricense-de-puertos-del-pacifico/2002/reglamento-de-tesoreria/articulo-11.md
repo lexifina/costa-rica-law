@@ -1,0 +1,1 @@
+Artículo 11.—De la responsabilidad en caso de faltante. El Tesorero será responsable de cualquier faltante que se produzca en los valores de que es depositario. El plazo para que cubra el faltante será de 24 horas después de que éste sea identificado, sin perjuicio de cualquier sanción que la falta amerite.

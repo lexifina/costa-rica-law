@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 41.—De la prohibición de ingreso al local de la Tesorería de personal ajeno. En resguardo de la responsabilidad del tesorero y su personal subalterno, es terminantemente prohibido la entrada a empleados de la institución y de particulares al local de la Tesorería y de la Pagaduría. Se exceptúan de esta disposición a los miembros de Junta Directiva, Presidencia Ejecutiva, Gerencia General, Sub Gerente General, Auditor General o sus delegados en funciones propias del cargo y el director Financiero. Para casos de excepción serán autorizados por la Presidencia Ejecutiva, Gerencia General y Sub Gerencia General.

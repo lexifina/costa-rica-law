@@ -1,0 +1,1 @@
+Artículo 28.—De la custodia de los facsímiles. Los facsímiles para firmar los cheques de planillas estarán bajo la custodia de cada una de las personas autorizadas, y serán responsables de que se firmen con ello únicamente los valores que hayan sido autorizados.

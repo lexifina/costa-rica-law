@@ -1,0 +1,1 @@
+Artículo 30.—De las transacciones pagadas con cheques. Todos los comprobantes que amparen una transacción cancelada con cheque, deberán ser marcados con un sello que diga: "pagado con cheque Nº…, Fecha…." y "Cancelado".

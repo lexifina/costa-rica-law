@@ -1,0 +1,1 @@
+Artículo 35.—De las comprobaciones físicas de los fondos que poseen los subalternos. El Tesorero, aparte de las revisiones periódicas que hace la Auditoría, con carácter de rutina, deberá realizar comprobaciones físicas de los fondos que poseen sus subalternos.

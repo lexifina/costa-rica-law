@@ -1,0 +1,1 @@
+Artículo 43.—De los arqueos sin previo aviso. El Director Financiero o el Auditor General y sus delegados, podrán efectuar en cualquier momento y sin previo aviso, todas aquellas revisiones o arqueos que consideren convenientes sobre los valores o documentos en custodia de la tesorería o sobre los procedimientos y medidas de control interno vigentes.

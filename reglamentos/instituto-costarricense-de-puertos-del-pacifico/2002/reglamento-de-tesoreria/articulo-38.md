@@ -1,0 +1,2 @@
+Artículo 38.—Del registro de las pólizas. La Tesorería llevará un registro para el control de las pólizas de seguro del INCOP y otras exigidas por la ley. Se anotará como mínimo la siguiente información: número de póliza, mención de los bienes asegurados, período del pago, monto de la prima y vencimiento.
+Deberá informar con suficiente anticipación a la Dirección Financiera sobre las fechas de vencimiento de las mismas para los efectos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 21.—Del pago por medio de cheque. Todos los pagos se efectuarán por medio de cheque, con sus respectivos comprobantes debidamente autorizados o cualquier otro mecanismo que los bancos del Estado establezcan para tal efecto. Para lo anterior, se deberá garantizar de previo los controles correspondientes.

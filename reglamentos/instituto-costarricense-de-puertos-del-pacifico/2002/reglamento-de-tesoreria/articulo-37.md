@@ -1,0 +1,1 @@
+Artículo 37.—Del Registro de documentos de garantía. La Tesorería llevará un registro para el control de la existencia de los documentos de garantías recibidas. Deberá indicar al menos: número de recibo, fecha de recibido, persona física o jurídica que rinde la garantía, institución emisora del título valor, número de documento, monto y vencimiento.

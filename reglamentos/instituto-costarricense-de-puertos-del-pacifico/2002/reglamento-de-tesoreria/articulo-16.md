@@ -1,0 +1,1 @@
+Artículo 16.—Del depósito de los ingresos diarios. Los ingresos efectivos diarios que perciba la Tesorería deberán ser depositados al final del día o como excepción a más tardar el día hábil siguiente al de su recepción, en las Cuentas Corrientes Bancarias destinadas para tal efecto.

@@ -1,0 +1,3 @@
+Artículo 34.—De los requisitos mínimos para la entrega de cheques. Al efectuarse la entrega de cheques, debe cumplirse como mínimo lo siguiente:
+a) Que la persona que se presenta a retirar el cheque sea el beneficiario del mismo o la persona debidamente autorizada por éste. En todos los casos se exigirá la cédula de identidad.
+b) Si se trata de un cheque por pago de una compra, el interesado debe entregar factura de la empresa beneficiaria y firmar en un formato de recibido que ofrecerá la Tesorería, indicando fecha, lugar y monto. Igualmente, se procederá en caso de cobro de un cheque por prestación de un servicio.

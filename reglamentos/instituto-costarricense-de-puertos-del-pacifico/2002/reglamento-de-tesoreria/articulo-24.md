@@ -1,0 +1,1 @@
+Artículo 24.—De los cheques pendientes de recibo. Una vez realizado el pago de salarios a los empleados de la Institución, la Pagaduría remitirá para su custodia a la Sección Caja los cheques pendientes de retirar. Posteriormente esta Sección entregará al interesado su pago, previa identificación y autorización escrita de parte del Jefe del Departamento de Tesorería.
