@@ -1,0 +1,2 @@
+Articulo transitorio.-Únicamente para el pago de los materiales para la construcción del edificio del Gimnasio, el Contador extenderá y el Tesorero pagará los giros u órdenes de pago, contra la presentación de las respectivas facturas, las cuales deberán llevar los vistos buenos del Presidente de la Junta , del Ingeniero Inspector y del Encargado de recibir los materiales.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 2 del 2 de marzo de 1949)
