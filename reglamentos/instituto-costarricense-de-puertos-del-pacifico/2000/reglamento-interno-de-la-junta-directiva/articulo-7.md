@@ -1,4 +1,5 @@
-Artículo 7º—La Junta Directiva se reunirá al menos una vez a la semana, fijándose el primer y tercer jueves en Puerto Caldera, a las 9,00 horas y el segundo y último jueves en San José, a las 11,00 horas. Sin embargo, queda facultado el Presidente Ejecutivo para variar el día, la hora y el lugar, siempre y cuando las circunstancias así lo ameriten.
+Artículo 7°—La Junta Directiva se reunirá al menos una vez a la semana, fijándose el primer y segundo miércoles en Puerto Caldera, a las 9:00 horas y el tercer y cuarto miércoles en San José, a las 14: 00 horas. Sin embargo, queda facultado el Presidente Ejecutivo para variar el día, la hora y el lugar, siempre y cuando las circunstancias así lo ameriten.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3253 del 28 de julio de 2004)
 La agenda contendrá al menos lo siguiente:
 1. Discusión y aprobación del acta de la Sesión anterior.
 2. Correspondencia.
