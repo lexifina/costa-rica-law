@@ -1,0 +1,2 @@
+Art. 86.-Si el crédito del tercero que alegare preferencia constare en documento ejecutivo, se pre- vendrá al ejecutante y ejecutado se opongan á la tercería, ó manifiesten su conformidad con ella, dentro de los cinco días siguientes.
+La oposición del primero se limitará á negar la no existencia del privilegio ó derecho real por causas de la no existencia de la deuda; la del segundo podrá fundarse en todas excepciones que caben contra un ejecutante.

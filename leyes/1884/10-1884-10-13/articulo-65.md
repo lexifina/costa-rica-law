@@ -1,0 +1,1 @@
+Art. 65.-Si pagados los acreedores de que trata el artículo 63, ó depositado, en su caso, lo que les corresponda, hubiere todavía sobrante, y no lo hubieren embargado acreedores comunes, será entregado al ejecutado.

@@ -1,0 +1,1 @@
+Art. 47.-No habiendo postor, quedará al arbitrio del ejecutante pedir dentro de tres meses que se le adjudiquen los bienes por las dos terceras partes de su avalúo, ó en cualquier tiempo que se saquen de nuevo á pública subasta, con rebaja del veinticinco por ciento del avalúo. Esta segunda se anunciará y celebrará como la anterior.

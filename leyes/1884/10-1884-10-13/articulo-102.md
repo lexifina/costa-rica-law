@@ -1,0 +1,1 @@
+Art. 102.-Si trascurridos los treinta días de que habla el artículo 100, estableciere su juicio el embargante y obtuviere sentencia favorable, deberá el deudor devolver la indemnización de los daños y perjuicios que hubiere cobrado del acreedor, por no haber establecido su acción á tiempo.

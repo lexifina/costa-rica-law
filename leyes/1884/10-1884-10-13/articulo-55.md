@@ -1,0 +1,1 @@
+Art. 55.-Si antes de vencerse el plazo del crédito hubiera el deudor enajenado la cosa gravada, deberá el Juez, á instancia del acreedor, prevenir al tercer poseedor pague la suma por que responda la finca, dentro de diez días. Si no lo hiciere, se entiende desamparada la finca, y para el efecto de desinteresar al acreedor, se reputará ella propiedad del deudor.

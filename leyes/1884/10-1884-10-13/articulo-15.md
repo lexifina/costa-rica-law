@@ -1,0 +1,1 @@
+Art. 15. Puede el actor evitar ó hacer levantar el embargo, consignando la suma reclamada, las costas y un diez por ciento para intereses. -Si lo consignado no fuere bastante para cubrir la deuda, las costas é intereses, se practicará el embargo por lo que falte.

@@ -1,0 +1,1 @@
+Art. 57.-En los casos de los dos artículos anteriores, podrá apersonarse en la ejecución el tercer poseedor, y proponer en el término de la oposición, las excepciones que demuestren inexistencia en todo ó parte del crédito ó del derecho hipotecario.

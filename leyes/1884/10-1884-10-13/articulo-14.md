@@ -1,0 +1,1 @@
+Art. 14.-Si el demandado pagare dentro de tercero día la suma reclamada y las costas, según lo dispone el artículo 12, se hará constar en los autos; se entregará al autor la suma satisfecha, y se dará por terminado el juicio.

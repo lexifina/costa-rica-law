@@ -1,0 +1,1 @@
+Art. 76.-Si la sentencia fuere favorable al actor, se ordenará al deudor cumpla su obligación, y en su caso, se mandará destruir por medio de Juez ejecutor, aquello que se hubiere hecho contraviniendo á la obligación.

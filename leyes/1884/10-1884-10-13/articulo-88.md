@@ -1,0 +1,1 @@
+Art. 88.-Presentada en tiempo oportuno una demanda de tercería coadyuvante, y si el título en que se fundare fuere efectivo, se prevendrá al ejecutado se oponga á ella ó manifieste su conformidad, dentro de los cinco días siguientes.

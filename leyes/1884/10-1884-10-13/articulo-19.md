@@ -1,0 +1,1 @@
+Art. 19-Sólo podrá formarse artículo de pre- vio pronunciamiento sobre la personería de los litigantes, competencia, ó acumulación á un juicio de concurso; las demás excepciones se decidirán en sentencia definitiva.
