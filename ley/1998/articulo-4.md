@@ -1,0 +1,1 @@
+Artículo 4°.- El Ministerio de Agricultura e Industrias quedará facultado para trasladar en propiedad, al Servicio Técnico Interamericano de Cooperación Agrícola, el equipo y materias que sean necesarios para continuar los programas de trabajo que se le transfieran.

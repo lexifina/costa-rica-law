@@ -1,0 +1,1 @@
+Artículo 6°.- Se autoriza al Poder Ejecutivo para que, por medio de la Tesorería Nacional, reintegre a STICA, con cargo a la partida “sueldos de personal” del Presupuesto del Ministerio del mes de enero del personal que, mediante esta ley, se traspasan de STICA, ese Ministerio.
