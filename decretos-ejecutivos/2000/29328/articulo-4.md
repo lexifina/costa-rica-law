@@ -1,0 +1,1 @@
+Artículo 4º—Para el cumplimiento de los fines, objetivos y labores de la Comisión, el Ministerio de Agricultura y Ganadería, el Ministerio de Salud y el INCOPESCA, brindarán dentro de sus posibilidades, el apoyo logístico requerido, así como recursos económicos, humanos y facilitación del uso de estructuras y prestación de servicios.
