@@ -1,0 +1,2 @@
+5. ABANDONO DE LAS COSAS ASEGURADAS
+ARTÖCULO 840 Facultad del asegurado

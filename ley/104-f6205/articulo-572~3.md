@@ -1,0 +1,1 @@
+ARTÖCULO 572 y ARTÖCULO 573 Derogados
