@@ -1,7 +1,4 @@
-ARTÖCULO 2
-El nombramiento de los rbitros se har en la forma convenida
-por las
-partes. Su designaci¢n podr delegarse a un tercero sea ‚ste
-persona
-natural o jur¡dica.
-Los rbitros podr n ser nacionales o extranjeros.
+ARTICULO 2
+El nombramiento de los árbitros se hará en la forma convenida por las partes. Su designación podrá delegarse a un tercero sea éste persona
+natural o jurídica.
+Los árbitros podrán ser nacionales o extranjeros.
