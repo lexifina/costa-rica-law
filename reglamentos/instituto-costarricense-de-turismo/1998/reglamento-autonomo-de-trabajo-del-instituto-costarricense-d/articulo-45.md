@@ -20,5 +20,7 @@ o. Atribuirse con abuso maliciosamente, funciones que no le corresponden, o extr
 p. Operar los vehículos del ICT sin la debida autorización y sin los trámites correspondientes, o en manifiesta violación a la Ley de Tránsito por Vías Públicas y Terrestres.
 q. Fumar dentro de las instalaciones de la Institución, tanto en oficinas centrales como en las desconcentradas, según lo dispuesto por la legislación vigente.
 r. Ejecutar cualquier acto o manifestación de acoso u hostigamiento sexual contra los compañeros de trabajo.
-s. Participar como expositores, panelistas, comentaristas o moderadores en representación del Instituto Costarricense de Turismo, en seminarios, foros, talleres, o eventos similares, sin la debida autorización del superior jerárquico. Las jefaturas otorgarán la autorización al personal a su cargo. Si el participante lo es quien ocupe una de las jefaturas institucionales, la autorización deberá darla la Presidencia Ejecutiva y en su ausencia la Gerencia General. En el caso del Gerente General y el Auditor Interno, la autorización deberá darla la Junta Directiva.
-(Así adicionado, en sesión N° 5300 de 20 de abril de 2004).
+s. Así Derogado Tacitamente en sesión N° 5337 del 7 de diciembre del 2004.
+t) Participar como expositores, panelistas, comentaristas o moderadores en representación del Instituto Costarricense de Turismo, en seminarios, foros, talleres o eventos similares, sin la debida autorización del superior jerárquico. Las jefaturas otorgarán la autorización al personal a su cargo. Si el participante lo es quien ocupe una de las jefaturas institucionales, la autorización deberá darla la Presidencia Ejecutiva y en su ausencia la Gerencia General.
+En el caso del Gerente General y el Auditor Interno, la autorización deberá darla la Presidencia Ejecutiva.
+(Así adicionado en sesión N° 5337 del 7 de diciembre del 2004)
