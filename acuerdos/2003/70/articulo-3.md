@@ -1,0 +1,1 @@
+Articulo 3°—Tamaño de publicación. Cada uno de los estados y opinión a ser publicado (según se detalla en el artículo No. 1) deberá tener al menos un tamaño de un cuarto de página. La totalidad de páginas a ser publicadas no debe ser inferior a dos.
