@@ -1,0 +1,1 @@
+Art. 5°-Los exámenes se verificarán en el local de la Secretaría de Instrucción Pública, por un tribunal compuesto del Sub-secretario, que ha de presidirlo, y de dos examinadores de nombramiento de la expresada Secretaría, de los cuales, el último hará de Secretario del Tribunal, para llevar el libro de actas respectivo.
