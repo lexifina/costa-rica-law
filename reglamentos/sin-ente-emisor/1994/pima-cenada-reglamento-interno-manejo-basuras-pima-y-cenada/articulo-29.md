@@ -1,0 +1,1 @@
+Artículo 29.—Se prohíbe a toda persona que no sea operario de la entidad de aseo, remover o extraer el contenido total o parcial de los recipientes para basura, una vez colocados en el sitio de recolección.
