@@ -12,3 +12,4 @@ Reglamento Impuestos Diferencial Cambiario Liquidación Exportaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-16 | la propia norma |
+| 2 | 1982-01-16 | SINALEVI (sin norma nombrada) |
