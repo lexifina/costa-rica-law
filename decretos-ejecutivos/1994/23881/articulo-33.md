@@ -1,0 +1,28 @@
+Artículo 33.- El Departamento de Vigilancia Aérea tendrá las
+siguientes dependencias:
+a) Unidad Administrativa: la Unidad Administrativa es el órgano
+que tiene a cargo las funciones correspondientes a la
+Administración de Personal, secretariales, archivo y
+estadística y preparación de los proyectos de presupuesto del
+Departamento de Vigilancia Aérea.
+b) La Unidad Técnica Aeronáutica es el órgano técnico, a cargo de
+las funciones de mantenimiento, operaciones y registro
+aeronáutico. Además deberá llevar los registros que garanticen
+el control y tipo de mantenimiento aplicado a las aeronaves,
+así como los registros de las horas de vuelo de los pilotos del
+servicio de vigilancia aérea y confeccionar mensualmente los
+informes respectivos será la dependencia encargada de coordinar
+los trámites administrativos para habilitaciones e integración
+de las tripulaciones de vuelo. Proveerá con la periodicidad
+debida el estricto y adecuado mantenimiento de las aeronaves
+llevando el control individual de tal gestión.
+c) La Unidad de Seguridad Aeroportuaria: de conformidad con lo
+indicado por la Dirección General y el Jefe de Departamento de
+Vigilancia Aérea, se determinará el tipo de dotación policial,
+responsable de la seguridad de las lnstalaciones
+aeroportuarias, instalaciones de la base aérea, aeronaves,
+equipo y armamento, tomando en consideración que en los
+aeropuertos de tráfico internacional, existirá una
+subdelegación policial y en los aeropuertos de tráfico
+nacional, de acuerdo con su magnitud e importancia estratégica,
+se asignarán los destacamentos policiales necesarios.

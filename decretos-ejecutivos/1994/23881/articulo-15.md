@@ -1,0 +1,2 @@
+SECCION II.- DE LAS DEPENDENCIAS DE LA GUARDIA CIVIL
+Artículo 15.- La Guardia Civil tendrá en forma permanente además de la Dirección y Subdirección General las siguientes dependencias: Sección Administrativa, Planes y Operaciones, Radio Patrullas, Delegaciones Policiales y el Centro de Información Policial, siendo que el número de las mismas podrá ser ampliado de conformidad con las necesidades del servicio.
