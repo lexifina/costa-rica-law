@@ -1,0 +1,3 @@
+Art 5°.- Los Diputados que tengan otro sueldo, ó emolumento proveniente de algún beneficio Eclesiástico, servirán por el si llegase al que señala el art 1°, y si no se les completará aquel.
+Comuníquese al Gefe Supremo del Estado para su execución, publicación y circulación= Dios Unión Libertad, San José Setiembre veinte y tres de mil ochocientos veinte y quatro= Agustin Gutierrez Lizaursabal Diputado Secretario=Al Gefe Supremo del Estado.
+Por tanto mando se guarde, cumpla, y excute. Lo tendrá en tendido el Secretario del despacho, y hará se publique y circule. San José Septiembre 24 de 1824= Juan Mora= Al Ciudadano José María Peralta.
