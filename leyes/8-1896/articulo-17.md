@@ -1,0 +1,3 @@
+Artículo XVII
+Caso de muerte de un costarricense en Honduras ó de un hondureño en Costa Rica, sin dejar albacea ni heredero que lo represente, toca al Cónsul respectivo gestionar á nombre de la sucesión del difunto, á fin de que se practiquen las diligencias referentes al aseguramiento de bienes. El Cónsul podrá cruzar con sus sellos los puestos por la autoridad local, y deberá concurrir el día y hora que ésta señale para quitarlos; mas su ausencia no será obstáculo para que continúen los procedimientos de dicha autoridad.
+Asimismo toca á dichos Cónsules, en lo relativo también al aseguramiento de bienes, la representación de las familias ausentes de sus connacionales que se inhabiliten para la administración de sus bienes.

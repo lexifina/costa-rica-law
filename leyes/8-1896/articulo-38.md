@@ -1,0 +1,2 @@
+Artículo XXXVIII
+Las Partes contratantes declaran solemnemente que no pueden conceptuarse ni conceptuarán nunca como Partes y Gobiernos extranjeros á los demás de Centro América, y que trabajarán constantemente por mantener los vínculos de familia y la mejor cordialidad en sus relaciones, procurando hacer causa común con ellos en los casos de guerra ó dificultades con naciones extranjeras, y mediando amigable y fraternalmente en sus trastornos de carácter interior.

@@ -1,0 +1,3 @@
+Artículo XXXIII
+La demanda de extradición que presente el Gobierno reclamante irá acompañada de la sentencia condenatoria, ó en su defecto del auto ó mandamiento de prisión y dé los documentos que constituyen plena prueba de la existencia del delito y semiplena de la responsabilidad del presunto delincuente. En uno y otro caso se indicarán la naturaleza del delito y la pena que le sea aplicable.— También se suministrará, sí fuese posible, las señales del individuo reclamado ó cualquier otro dato que sirva para verificar su identidad.
+Los atestados á que se refiere este artículo se remitirán originales, ó en copia debidamente legalizada.

@@ -1,0 +1,3 @@
+Artículo XII
+Los costarricenses en Honduras y los hondureños en Costa Rica estarán exentos del servicio militar obligatorio, cualquiera que sea, por mar ó por tierra, y de todos los empréstitos forzosos, exacciones ó requerimientos militares, y no se les obligará por ningún motivo ni con ningún pretexto á pagar más contribuciones ó tasas ordinarias ó extraordinarias, que las que paguen los hijos del propio país.
+Asimismo gozarán los nacionales de cualquiera de las Repúblicas signatarias, en la otra, del derecho de propiedad literaria, industrial ó artística, en los mismos términos y sujetos á las mismas consideraciones que los hijos del país.

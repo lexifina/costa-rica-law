@@ -1,0 +1,2 @@
+Artículo XIV
+Los mismos Gobiernos contratantes, deseosos de proceder de acuerdo en todo aquello que afecte los intereses generales de ambos países, además de procurar la uniformidad de su política exterior y la unificación de su representación diplomática ante otras naciones, tratarán de entenderse acerca de las bases sobre que hayan de celebrar ulteriores tratados con países extranjeros y hacer concesiones á Compañías de vapores, ferrocarriles, etc.
