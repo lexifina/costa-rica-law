@@ -9,4 +9,4 @@ contribuciones especiales, de fondos asignados en el Presupuesto General
 de la República o en leyes específicas.
 Dicha Oficina estará a cargo de un Administrador quien será el
 responsable de su gestión y quien dependerá directamente del Director de
-a División Administrativa.
+la División Administrativa.
