@@ -1,0 +1,1 @@
+Artículo 13.—El plazo para reclamar en caso de inconformidad con la suma que el Colegio otorgue en concepto de subsidios por incapacidad temporal para el ejercicio profesional, que haya sido debidamente comprobada, prescribe en el término de tres meses, contados a partir del momento en que la incapacidad fue levantada.

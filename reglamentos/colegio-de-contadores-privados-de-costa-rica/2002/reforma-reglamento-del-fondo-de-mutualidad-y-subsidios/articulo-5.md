@@ -1,0 +1,1 @@
+Artículo 5º—Todo miembro colegiado en ejercicio y al día con sus obligaciones con el Colegio, tiene derecho a que, a su muerte, se pague a la persona o personas por él indicadas una suma de dinero que se fijará dé acuerdo con el artículo 9 de este Reglamento.

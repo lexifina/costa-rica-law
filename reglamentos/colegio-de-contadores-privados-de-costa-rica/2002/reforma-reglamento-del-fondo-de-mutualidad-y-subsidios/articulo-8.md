@@ -1,0 +1,1 @@
+Artículo 8º—El auxilio de mutualidad se pagará por una sola vez a solicitud del o de los beneficiarios, una vez presentadas las certificaciones del caso, y con fundamento en el informe de la Comisión nombrada por la Junta Directiva.
