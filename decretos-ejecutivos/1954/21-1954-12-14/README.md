@@ -16,3 +16,4 @@ Reglamento del Estatuto de Servicio Civil
 | 2 | 1955-01-16 | SINALEVI (sin norma nombrada) |
 | 3 | 1987-10-20 | Decreto Ejecutivo 17793 (1987-10-20) |
 | 4 | 2000-07-07 | SINALEVI (sin norma nombrada) |
+| 5 | 2000-07-07 | Ley 7 |
