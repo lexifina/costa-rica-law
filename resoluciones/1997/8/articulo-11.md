@@ -1,0 +1,5 @@
+Artículo 11°-Lugar y plazo de presentación
+La información correspondiente a los modelos D. 150 y D. 151, tanto en formularios como en dispositivos magnéticos, deberá remitirse a la Administración Regional Tributaria que le corresponda, según el domicilio fiscal de cada obligado; no obstante los Grandes Contribuyentes Nacionales deberán presentarla en la Administración Tributaria de Grandes Contribuyentes.
+La correspondiente al modelo D. 154 debe remitirse a la Subdirección de Fiscalización de la Dirección General de la Tributación Directa.
+El plazo de presentación de estas declaraciones de información es del 1° de octubre al 30 de noviembre de cada año, referido a los datos del período inmediato anterior establecido en el artículo 6° de esta Resolución. Las mismas deben ser presentadas en forma separada a la declaración del Impuesto sobre la Renta que en su caso deba presentar.
+Como comprobante de presentación se entregará el tanto del modelo que corresponde al contribuyente debidamente sellado y firmado por la oficina receptora.

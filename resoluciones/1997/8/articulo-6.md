@@ -1,0 +1,2 @@
+Artículo 6°-Periodo de la información a suministrar
+La información a que se refieren los artículos 3, 4 y 5 anteriores debe corresponder y el período comprendido entre el 1° de octubre de cada año y el 30 de setiembre del siguiente, independientemente de que las empresas estén autorizadas por la Dirección General de la Tributación Directa a presentar su declaración de renta con un período diferente, o no estén obligados a presentarla.

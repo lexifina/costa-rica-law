@@ -1,0 +1,1 @@
+Artículo 2°-Los obligados a presentar dichas declaraciones deben suministrar la información en los modelos, lugares y plazos establecidos a continuación, sin necesidad de que haya un requerimiento previo por parte la Administración Tributaria.
