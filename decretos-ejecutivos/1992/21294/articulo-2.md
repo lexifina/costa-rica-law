@@ -1,0 +1,1 @@
+Artículo 2°—En esta área regirán las disposiciones establecidas en la ley N° 6084 y de la ley N° 7174 para los parques nacionales. La protección, administración y desarrollo de esta área, corresponderá al Servicio de Parques Nacionales del Ministerio de Recursos Naturales, Energía y Minas.
