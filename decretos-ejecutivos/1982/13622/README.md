@@ -12,3 +12,4 @@ Reforma Reglamento Distribución Subsidio Fertilizantes para Pequeñosy Medianos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-06 | la propia norma |
+| 2 | 1982-05-06 | SINALEVI (sin norma nombrada) |
