@@ -1,0 +1,1 @@
+Art. 3°-En lo que respecta al procedimiento de extracción de dichas sustancias, el concesionario se ajustará á las reglas é instrucciones que le dé el Ministerio de Fomenta, à fin de precaver la destrucción de los árboles que las producen.
