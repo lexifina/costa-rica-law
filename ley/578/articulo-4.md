@@ -1,1 +1,0 @@
-Artículo 4°-El beneficio especial de plazo en el pago de las contribuciones, sólo puede acordarse por justificarlo así la insuficiente capacidad económica del obligado o también porque revista la obra un señalado carácter de interés público comunal.
