@@ -1,0 +1,1 @@
+Artículo 18.—Cuando el Departamento determine a través de la inspección, que el impuesto que debe pagar el patentado sea diferente al establecido iniciará la recalificación del nuevo valor del impuesto.

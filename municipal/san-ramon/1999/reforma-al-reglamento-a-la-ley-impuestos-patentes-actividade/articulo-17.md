@@ -1,0 +1,1 @@
+Artículo 17.—Ningún traslado o traspaso de licencias municipales incluso de venta de licores al menudeo, afectará los intereses municipales, hasta tanto no sea aceptada por el Departamento, aceptación que se dará si el local reúne los requisitos exigidos, no genere problemas entre vecinos, impuestos al día, etc.

@@ -1,0 +1,1 @@
+Artículo 23.—Las resoluciones del Departamento que ordenen la suspensión de la patente por falta de pago, no tendrá recurso alguno y su tramitación no admitirá prueba en contrario salvo la excepción del pago.

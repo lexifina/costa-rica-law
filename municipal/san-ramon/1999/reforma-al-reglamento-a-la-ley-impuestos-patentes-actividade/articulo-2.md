@@ -1,0 +1,2 @@
+Artículo 2º—Cuando en un mismo establecimiento dedicado a actividades lucrativas ejercen actividades conjuntamente varias sociedades o personas jurídicas, el monto del impuesto lo determinará que corresponde a cada uno individualmente.
+A efectos de este artículo las personas físicas o jurídicas indicarán a la Municipalidad el nombre del patentado a quién se le cobrará el impuesto, o bien se debe cobrar a cada uno individualmente.

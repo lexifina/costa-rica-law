@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el permiso de funcionamiento esté condicionado a plazo fijo, y de acuerdo a nuestro criterio, el vencimiento por un año plazo, obliga al interesado a la renovación de la licencia, que deberá tramitar conforme a lo establecido en el artículo 7º de este Reglamento.
