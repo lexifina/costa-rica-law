@@ -1,0 +1,4 @@
+Artículo 3º—Agrégase un inciso 4 al artículo 7° del Decreto Ejecutivo N° 28926-H, del 31 de agosto del 2000, publicado en La Gaceta N° 182 del 22 de setiembre del 2000, para que en adelante diga:
+Artículo 7° (…)
+4. Con fundamento en la resolución firme de la Administración Tributaria o de la resolución del Tribunal Fiscal Administrativo, al momento de ejecutar el cierre del negocio que impone la sanción, se desconocerá el traspaso por cualquier título del negocio o del establecimiento perfeccionado con posterioridad al inicio del procedimiento de cierre del negocio y se podrá efectuar el cierre correspondiente.
+Los requisitos de la certificación que debe emitir la Administración Tributaria, sobre la existencia de un procedimiento abierto sobre el cierre de negocios, serán establecidos mediante resolución general.

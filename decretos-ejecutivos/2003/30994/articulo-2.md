@@ -1,0 +1,6 @@
+Artículo 2º—Modifícase el inciso B), numeral 1 del artículo 6° del Decreto Ejecutivo N° 28926-H, del 31 de agosto del 2000, publicado en La Gaceta N° 182 del 22 de setiembre del 2000, para que en adelante se lea así:
+Artículo 6° (...)
+B. Que el sujeto pasivo o declarante haya incurrido por segunda vez, en una de las causales indicadas en los incisos a)
+y b), del artículo 3 de este Reglamento, para lo cual se podrá iniciar el procedimiento por esta segunda infracción, aún cuando no haya concluido el procedimiento de la primera infracción.
+No obstante, la sanción de cierre de negocio sólo se podrá aplicar una vez que exista resolución firme de la Administración Tributaria o resolución del Tribunal Fiscal Administrativo que impone la sanción prevista en el artículo 85 del Código de Normas y Procedimientos Tributarios, Ley N° 4755 del 3 mayo de 1971, a la primera infracción y una vez que exista resolución firme respecto de la segunda infracción que tiene como sanción el cierre del negocio de conformidad con el artículo 86 del citado Código.
+El hecho que dio origen a las causales a) y b) del artículo 3 citado no podrá ser tomado en cuenta para configurar un nuevo supuesto de reincidencia.
