@@ -14,3 +14,4 @@ Prohibir el registro, importación, tránsito, almacenamiento, venta y uso de lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-10 | la propia norma |
+| 2 | 1988-08-10 | SINALEVI (sin norma nombrada) |
