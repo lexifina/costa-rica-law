@@ -1,0 +1,24 @@
+Artículo 2°.- Para disfrutar de los beneficios enumerados en el artículo 1° de este Decreto “Litografía e Imprenta Lil, Sociedad Anónima” debe cumplir con las siguientes obligaciones:
+a) Mantener instalada la planta industrial con una inversión mínima de ¢ 7.119.000 ( siete millones ciento diecinueve mil colones) en maquinaria y equipo de planta.
+b) Ampliar las instalaciones de la planta industrial con una inversión mínima de ¢ 2.484.00 (dos millones cuatrocientos ochenta y cuatro mil colones), con la siguiente maquinaria:
+a) Marcador MABEC-MONSTOP para cambiar la pila sin parar la máquina y con plancha de acero.
+Equipo eléctrico completo con mando automático por botones de presión; motor de acondicionamiento dimensionado también para la marcha muy lenta, previsto para corriente alterna trifásica de 220 voltios; 60 ciclos.
+b) Dispositivo de prerregistro en la mesa de marcado.
+c) Dispositivo soplador en el rodillo del depósito de agua.
+d) Aspirador de polvo con cepillo.
+e) Guías de cartón encima del cilindro de impresión, maquina II y rulos de guías en los topes de pinzas de las pinzas oscilantes.
+f) Un pulverizador “WEKO” modelo T7LI.
+g) Un juego extra 4 cilindros de barras para tensión en la mantilla.
+h) Tensores de plantas divididos en dos, completo.
+i) Dortmunder Register.
+c) Producir en la planta industrial, artículo litografiados.
+d) Realizar la actividad industrial a que se refiere este Decreto de conformidad con lo expuesto en la correspondiente solicitud, en el estudio técnico-económico y demás documentos presentados. Las modificaciones en los planes o proyectos iniciales que se propongan llevar a cabo durante el período de disfrute de estos beneficios, deberán previamente ser comunicados y autorizados por el Ministerio de Economía, Industria y Comercio.
+e) Suministrar al Ministerio de Economía, Industria y Comercio dentro de los tres meses siguientes al vencimiento de cada año fiscal, un informe global sobre el desarrollo, producción y situación financiera de la empresa, así como cualquier otra información que se le solicite y las inspecciones que crea necesarias para ejercer el régimen de control que establecen el convenio y su reglamento. La información así suministrada será tratada por el Ministerio con carácter de confidencialidad.
+f) Presentar al Ministerio de Economía, Industria y Comercio durante los primeros diez días de cada trimestre natural, un informe detallado del uso y destino final que ha dado, durante el trimestre calendario anterior, a bienes importados con franquicias aduaneras así como del volumen de producción obtenido con los mismos y un informe de los saldos o existencias de esas materias primas que aún conserva en su poder sin usar.
+g) Observar las disposiciones legales vigentes sobre normas de calidad, pesas y medidas que rijan en relación con los artículos que produzca. En caso de discrepancia sobre la calidad de los productos, el asunto será resuelto en única instancia por la Oficina de Normas y Unidades de Medida.
+h) llevar y anotar, en libros y registros especiales que estarán sujetos a inspección de parte del Ministerio de Economía, Industria y Comercio, y de las autoridades fiscales, información detallada de las materias primas, productos semi-elaborados y envases importados con franquicias aduaneras, a efecto de facilitar la presentación del informe a que se refiere el inciso f) anterior y facilitar también a las a las autoridades competentes sus labores de control sobre el uso y destino final de esas materias primas. El Ministerio de Economía, Industria y Comercio podrá establecer, para efectos de equiparar sistemas, los procedimientos y la terminología que deben usarse en estos registros.
+i) Implantar en su contabilidad un sistema que determine el costo de producción de sus artículo. A esa contabilidad de costos es aplicable lo estipulado en el párrafo final del inciso anterior.
+j) Emplear el personal de la planta industrial de acuerdo con las leyes laborales y de Colegios Profesionales legalmente reconocidos y adiestrar o cooperar para el adiestramiento de mano de obra, técnico nacionales y personal administrativo que se requieran para la adecuada fabricación y distribución de sus productos.
+k) Ocupar en la contabilidad, revisión y auditoría de los libros de la empresa, un contador costarricense incorporado al colegio respectivo.
+l) Depositar a la orden y satisfacción del Ministerio de Economía, Industria y Comercio, dentro de los cuarenta y cinco días naturales contados a partir de la fecha en que se publique este Decreto en “La Gaceta” , un bono de cumplimiento del Instituto Nacional de Seguros, bonos del Estado o carta de garantía de una institución del Sistema Bancario Nacional por la suma de ¢ 124.200 (ciento veinticuatro mil doscientos colones).
+El Ministerio podrá exigir que se amplíe o mejore la garantía, si considera que la misma llegare a ser insuficiente.
