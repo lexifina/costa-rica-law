@@ -1,9 +1,7 @@
 CAPITULO IV
 Nombramiento de Servidores Públicos Interinos y de Emergencia
-ARTICULO 10.- Se considerarán nombramientos de emergencia los que
-efectuaren conjuntamente el Presidente de la República y el Ministro
-respectivo con prescindencia de los requisitos de selección que se
-establecen en el Estatuto y el presente Reglamento, por motivos de
-calamidad pública. Dichos nombramientos podrán hacerse hasta por el
-término improrrogable de seis meses, debiendo darse aviso inmediato de los
-mismos a la Dirección General.
+Artículo 10.- Se consideran nombramientos de emergencia los que efectuaren conjuntamente el Presidente de la República y el Ministro respectivo, con prescindencia de los requisitos que establecen el Estatuto y el presente Reglamento, por motivos de calamidad pública. Dichos nombramientos podrán hacerse hasta por el término improrrogable de seis meses, debiendo darse aviso inmediato de los mismos a la Dirección General.
+Se considerarán servidores interinos sustitutos los que fueren nombrados para reemplazar temporalmente a un servidor regular, por cualquier causa de suspensión de la relación de servicio. Tales servidores deberán reunir las condiciones previstas en el artículo 9° de este Reglamento, además de los requisitos de la clase establecidos en el Manual General de Clasificación de Clases*.
+En el caso de que para la sustitución temporal del servidor regular se acordare un ascenso, este tendrá el carácter de interino, lo mismo que los demás movimientos acordados para reemplazar al servidor que origine los nombramientos, durante el tiempo que el jefe respectivo lo considere necesario, o hasta por el período de suspensión de la relación de servicio del titular.
+(Así reformado por el Decreto Ejecutivo No.18658 de 9 de diciembre de 1988).
+*(Término modificado por el artículo 9° del Decreto Ejecutivo No.25592 de 29 de octubre de 1996).

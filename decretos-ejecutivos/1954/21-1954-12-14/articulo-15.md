@@ -1,47 +1,10 @@
 CAPITULO V
 La Selección de Personal
-ARTICULO 15.- Todo aspirante a servir un puesto de la Administración
-Pública regulado por el Estatuto, deberá cumplir el siguiente trámite:
-a) Llenar una oferta de servicios escrita en la fórmula autorizada
-por la Dirección General;
-b) Presentar la oferta, junto con los documentos que en cada caso se
-exijan, al Departamento de Selección;
-c) Una vez presentada la fórmula de oferta, la Dirección General
-decidirá si acepta para su trámite la correspondiente oferta de servicios
-o si la rechaza por ineptitud evidente, incapacidad física, delincuencia
-u otra razón;
-d) Si la oferta fuere aceptada, el Departamento de Selección de
-Personal procederá a levantar la información de vida y costumbres. Si se
-comprobare que el candidato no posee aptitud moral satisfactoria, la
-Dirección General podrá rechazar la oferta o suspender temporalmente su
-trámite, según proceda, de conformidad con lo prescrito en el inciso c)
-del artículo 9º;
-e) Satisfechas las indicadas formalidades, el aspirante tendrá
-derecho a participar en los concursos que conforme a la demanda de
-personal, la Dirección General considere necesario realizar, con la
-publicidad adecuada en cada caso. Para obtener la condición de candidato
-elegible, se requerirá alcanzar el 70% o más en la calificación final. En
-el caso de que el aspirante obtuviere en las pruebas de idoneidad una
-calificación inferior, podrá, no obstante, ser considerado para plazas de
-clase diferente a la del puesto pretendido, o para el mismo puesto después
-de un período de seis meses, sometiéndose nuevamente a prueba;
-f) Obtenida la calificación mínima aceptable o una mayor, el
-aspirante figurará en la lista de candidatos elegibles, en el orden que
-corresponda a la puntuación alcanzada en los exámenes, sumadas las
-preferencias a que tenga derecho según los artículos 16 a 18 siguientes.
-Las nóminas de candidatos elegibles que a este efecto confeccionará el
-Departamento de Selección, tendrán validez indefinidamente, con la adición
-eventual de nuevos candidatos elegibles, salvo que la Dirección General
-decida variar las pruebas o exámenes o los promedios de calificación.
-Cada seis meses el Departamento de Selección de Personal preguntará
-a los candidatos elegibles que no hayan logrado colocarse, si mantienen su
-interés en que se les considere como tales;
-g) Al recibo de un pedimento de personal, el Departamento de
-Selección presentará al Jefe peticionario, a la mayor brevedad, la terna
-o nómina, según corresponda, de los candidatos más idóneos, agregadas las
-preferencias a que tengan derecho; y
-h) El Ministro o Jefe autorizado deberá escoger al nuevo empleado de
-acuerdo con lo dispuesto en el artículo 27 de la Ley, dentro de un plazo
-máximo de seis días hábiles, salvo que tenga razones suficientes para
-objetar los candidatos, en cuyo caso deberá razonar su objeción ante la
-Dirección General, dentro del plazo dicho, y solicitar una nueva nómina.
+Artículo 15.- Todo aspirante a servir un puesto dentro del Régimen de Servicio Civil, deberá someterse a los concursos, investigaciones, pruebas, exámenes y demás procedimientos y recursos técnico- científicos que estime convenientes la Dirección General, con el objetivo de verificar que la persona reúna las condiciones físicas, morales y psicológicas requeridas para el desempeño exitoso del cargo.
+Los candidatos que alcancen una calificación mínima de 70% integrarán el registro de candidatos elegibles, de donde se escogen a las personas que ofrezcan un mejor pronóstico de éxito, para conformar la nómina que se envía a la institución poseedora de la vacante.
+Para determinar la nómina con los candidatos más idóneos, como lo establece el artículo 26 del Estatuto de Servicio Civil, la Dirección General podrá convocar a los candidatos elegibles a una nueva evaluación, con el fin de poder ubicar los candidatos que ofrezcan el mejor pronóstico de éxito, de acuerdo con los requerimientos específicos que exija el respectivo pedimento de personal.
+El Ministro o Jefe autorizado debe escoger al nuevo empleado dentro de un plazo máximo de diez días hábiles, contados a partir de la fecha de recibo de la nómina. La Dirección General llevará los controles necesarios y en caso de desavenencia, se trasladará el asunto al Tribunal de Servicio Civil, para que éste decida en alzada.
+La regulación y control de los Registros de Candidatos Elegibles es responsabilidad de la Dirección General. La vigencia de cada registro de elegibles la determinará discrecionalmente la Dirección General, considerando para ello las necesidades de las instituciones y la discreción de la Dirección General admitir a pruebas a nuevos oferentes, con el propósito de ampliar el Registro de Elegibles.
+Los concursos para puestos que por la naturaleza de sus funciones requieran esencialmente destreza manual, fuerza física o el dominio de un oficio mecánico, con la debida orientación de la Dirección General, pueden ser tramitados en los ministerios e instituciones donde se produce la vacante.
+( La Sala Constitucional mediante resolución N° 5597, del 22 de octubre de 1996, declaró inconstitucional la interpretación hecha por la Dirección General de Servicio Civil a este artículo “en cuanto implica no tramitar ofertas de servicio ni nombramientos a quienes se encuentren en el período del beneficio de ejecución condicional de la pena.”)
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 27097-MP de 17 de junio de 1998).

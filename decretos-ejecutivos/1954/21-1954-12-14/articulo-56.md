@@ -1,3 +1,4 @@
-ARTICULO 56.- Las dietas de los miembros del Tribunal serán de cien
-colones cada una, con un máximum de remuneración de mil colones mensuales
-por miembro.
+Artículo 56.- Los miembros del Tribunal serán remunerados mediante dietas que devengarán por cada sesión a la cual asistan. El número de sesiones remuneradas, incluyendo ordinarias y extraordinarias, no podrá exceder de doce al mes y el monto de las mismas será determinado por el Consejo de Gobierno mediante acuerdo que será publicado en "La Gaceta".
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 19410 de 6 de noviembre de 1989).
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del Transitorio XIII de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

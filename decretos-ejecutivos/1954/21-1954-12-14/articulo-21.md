@@ -1,10 +1,3 @@
-ARTICULO 21.- Los demás ascensos se harán mediante oferta de
-servicios de los interesados, siguiéndose, en lo aplicable, el trámite
-establecido para la selección de personal. En los concursos que al efecto
-se celebren, podrán participar cualesquiera otras personas que reúnan los
-requisitos legales. Si el candidato ascendido debe ocupar un puesto en una
-dependencia distinta de aquélla en que presta sus servicios deberá dar dos
-semanas de preaviso a su jefe inmediato, a efecto de que éste tome las
-disposiciones que estime convenientes. No obstante, dicho Jefe queda
-facultado para reducir el plazo del preaviso si con ello considera que no
-se causa ningún perjuicio.
+Artículo 21.- Los ascensos a clases diferentes de la inmediata superior de la misma u otra serie deberán tramitarse mediante concurso interno de acuerdo con la regulaciones que al efecto dicte la Dirección General, salvo aquellos casos en que de previo la administración solicite aplicar los procedimientos señalados en el Capítulo V de este Reglamento. Lo anterior no es aplicable para el Título II del Estatuto de Servicio Civil.
+Artículo Transitorio: Mientras la Dirección General de Servicio Civil no dicte las regulaciones a que se refiere este artículo, se seguirá aplicando el texto anterior contenido en este numeral.
+(Así Reformado por el artículo 3° del Decreto Ejecutivo No.22422-MP de 5 de agosto de 1993).

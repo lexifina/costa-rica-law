@@ -1,0 +1,3 @@
+Artículo 103.- Las clases de puestos correspondientes a un determinado campo de trabajo se ordenarán por niveles, determinados por las diferencias de importancia, dificultad, responsabilidad y valor relativo del trabajo.
+Se denomina serie de clases al conjunto de clases comprendidas en un mismo campo de trabajo y que se diferencian entre sí por el grado de dificultad y responsabilidad de las tareas. El Manual Descriptivo de Clases identificará cada clase mediante una clave. Los progresivos niveles de las clases de una misma serie, se identificarán mediante la numeración ascendente de sus claves.
+(Así reformado por el artículo 7° del Decreto Ejecutivo No. 22422 del 5 de agosto de 1993).

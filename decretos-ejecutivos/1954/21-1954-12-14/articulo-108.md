@@ -1,0 +1,2 @@
+Artículo 108.- Para la clasificación de un puesto nuevo, el jerarca o jefe autorizado deberá elaborar una descripción del cargo en la fórmula correspondiente y someterlo a estudio de la oficina de recursos humanos. Una vez efectuado, el mismo deberá ponerse en conocimiento de la Dirección General para su análisis y resolución respectiva.
+(Así reformado por el artículo 7° del Decreto Ejecutivo No. 22422-MP del 5 de agosto de 1993).

@@ -1,15 +1,2 @@
-ARTICULO 18.- Las preferencias a que se refieren los artículos 16 y
-17, se otorgarán en proporción al suelo correspondiente al cargo, con las
-limitaciones siguientes:
-a) En el caso de los sueldos menores de cuatrocientos colones, la
-preferencia máxima será de dieciséis puntos;
-b) Si el sueldo es de cuatrocientos colones o mayor, pero menor de
-setecientos, la preferencia será de tres cuartas partes con un máximo de
-doce puntos;
-c) Si el sueldo es de setecientos o mayor, pero menor de mil colones,
-la preferencia será de la mitad con un máximo de ocho puntos;
-d) Para los sueldos de mil colones o más se otorgarán puntos de
-preferencia únicamente por años de servicio al Estado. Esta preferencia
-será de la mitad, con un máximo de cuatro puntos; y
-e) Las anteriores proporciones se aplicarán una vez determinado el
-total de puntos de preferencia correspondiente a cada inciso.
+Artículo 18.- Cuando se trate de puestos vacantes en regiones alejadas de la ciudad de San José podrán realizarse concursos regionales. Los criterios y predictores definidos en las bases de selección, así como su valoración, se adecuarán según la necesidad de elegibles en cada región. La elegibilidad será válida únicamente para la región donde se efectúo el concurso.
+(Reformado por el artículo 1° del Decreto Ejecutivo N° 21685 de 26 de octubre de 1992).

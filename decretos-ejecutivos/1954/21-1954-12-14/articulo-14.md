@@ -1,17 +1,3 @@
-ARTICULO 14.- Si un servidor regular fuere designado para ocupar
-interinamente un puesto del Poder Ejecutivo excluído de la protección del
-Estatuto, continuará gozando de todos los derechos adquiridos en el
-régimen de servicio civil, inclusive los referentes a la inamovilidad de
-su puesto original, hasta por tres meses, prorrogables cuando así lo exija
-la conveniencia del servicio público, a juicio del Poder Ejecutivo.
-El servidor regular que sea trasladado a cualquiera de las
-instituciones conocidas como semiautónomas o de los Servicios Cooperativos
-Interamericanos, podrá regresar sin más trámite al servicio civil si
-estuviere vacante la plaza que dejó u otra de clase igual o de clase
-inferior en la misma serie, sin interrupción de la continuidad de su
-relación de trabajo.
-Si a un servidor regular, por la índole de las funciones que
-desempeña, se le diere de alta en el servicio de las armas o se le
-recargare temporalmente o ad-honórem un puesto de los excluídos del
-Estatuto, conservará todos sus derechos y continuará protegido por el
-régimen de servicio civil.
+Artículo 14.- Si un servidor regular fuere designado para ocupar temporalmente un puesto del Poder Ejecutivo excluido o se le recargare temporalmente, o ad honorem un puesto excluido del presente Estatuto, conservará todos sus derechos y continuará protegido por el Régimen de Servicio Civil.
+El servidor que hubiere prestado servicios en alguna de las instituciones comprendidas dentro del Régimen de Servicio Civil, por un período no inferior a cinco años, cuyos servicios hayan sido desempeñados con reconocida eficiencia, podrá reingresar dentro de la década siguiente, a la misma clase de puesto que ocupaba, si al momento del reingreso reuniere los requisitos establecidos para dicha clase, sin participar en concurso. De igual derecho, y bajo las mismas condiciones antes señaladas, disfrutarán los servidores cuyos puestos hubieren sido suprimidos por ley o por reducción forzosa de servicios.
+(Reformado por el artículo 1° del Decreto Ejecutivo N° 18658 de 15 de noviembre de 1988)

@@ -1,0 +1,2 @@
+Artículo 44 bis.- Los demás aspectos no considerados en los anteriores artículos, se resolverán conforme se indique en los instructivos elaborados por cada institución y aprobados por la Dirección General de Servicio Civil o el Manual General vigente, para regular sus respectivos sistemas de evaluación del desempeño.
+(Así adicionado por el artículo 1° del Decreto N° 26509 del 21 de noviembre de 1997)

@@ -1,7 +1,5 @@
-ARTICULO 8º.- En los Ministerios habrá un Departamento, Oficina o
-Sección de Personal a cargo de un Director o de un Oficial, según las
-necesidades lo demanden.
-El Director u Oficial de Personal dependerá directamente del
-respectivo Ministro o, por delegación de éste, del Director Administrativo
-u Oficial Mayor, y será el órgano de enlace con la Dirección General de
-Servicio Civil.
+Artículo 8.- El sistema de Recursos Humanos está conformado por todas aquellas oficinas de Recursos Humanos del Régimen de Servicio Civil, las cuales son órganos de enlace y coordinación permanente con esta Dirección General.
+Dichas oficinas estarán a cargo de un jefe o encargado pagado con presupuesto de la institución de que se trate o de la Dirección General de Servicio Civil.
+Los jefes o encargados de Recursos Humanos dependerán administrativamente del Jerarca de la Institución respectiva -o del que este delegue- y técnicamente de la Dirección General, por lo que para ser relevados, separados o removidos del cargo, se requiere de la autorización previa de la Dirección General de Servicio Civil.
+Cuando un jerarca prescinda de la autorización previa de que habla el párrafo anterior tendrá como sanción la suspensión de la aprobación de movimientos de personal y otros actos propios de la competencia de la Dirección General, hasta tanto no se normalice la situación.
+(Así reformado por el Decreto Ejecutivo No.23848 de 29 de noviembre de 1994 y adicionado el último párrafo por el Decreto Ejecutivo No.26162 de 4 de julio de 1997)

@@ -1,32 +1,17 @@
-Deberes de los servidores públicos.
-ARTICULO 50.- Los servidores públicos cumplirán los deberes que
-expresamente les señalan el artículo 39 del Estatuto y el artículo 71 del
-Código de Trabajo, así como todos los que fueren propios del cargo que
-desempeñan, de conformidad con el Manual Descriptivo de Puestos y los
-reglamentos interiores de trabajo, a efecto de obtener la mayor eficiencia
-en los servicios de la Administración Pública.
+Deberes de los servidores públicos:
+Artículo 50.- Los servidores públicos cumplirán los deberes que expresamente les señalan el artículo 39 del Estatuto y el artículo 71 del Código de Trabajo así como todos los que fueren propios del cargo que desempeñan, de conformidad con el Manual Descriptivo de Puestos y los reglamentos interiores de trabajo, a efecto de obtener la mayor eficiencia en los servicios de la Administración Pública.
 Tendrán, además, las siguientes obligaciones:
-a) La prestación personal de servicios en forma regular y continua,
-de acuerdo con el horario oficial de trabajo;
-b) Ejecutar las labores con toda su capacidad, dedicación y
-diligencia;
-c) Acatar las órdenes e instrucciones de sus superiores jerárquicos,
-y cumplir el procedimiento que corresponda en todas las solicitudes,
-peticiones de mejoramiento y reclamos en general que formularen ante sus
-superiores;
+a) La prestación personal de servicios en forma regular y continua, en el lugar que el Ministro o jefe autorizado lo indiquen, a los fines de garantizar la eficiencia de la Administración, lo cual puede implicar el traslado o la reubicación del servidor dentro de un mismo programa presupuestario, de un programa a otro o de un ministerio a otro, movimientos que se harán de conformidad con lo que al efecto señala el artículo 22 bis de este Reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo No. 21418 de 23 de junio de 1992).
+b) Ejecutar las labores con toda capacidad, dedicación y diligencia, así como acatar las órdenes e instrucciones de sus superiores jerárquicos y cumplir el procedimiento que corresponda en todas las solicitudes, peticiones de mejoramiento y reclamos en general, que formulen ante sus superiores;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 18012 del 12 de febrero de 1988).
+c) Atender las sugerencias, aportes y planteamientos en general, hechos por sus subordinados inmediatos que contribuyan a la solución de los problemas que afecten la prestación del servicio público y al mejoramiento de su eficiencia. Tales sugerencias, aportes y planteamientos deberán ser dirigidos por escrito al superior inmediato dentro de un marco de seriedad, respeto y sentido de la realidad. Excepcionalmente, cuando la urgencia del caso lo amerite, podrá hacerse tales gestiones en forma verbal y deberán decidirse del mismo modo, ala brevedad que el caso amerite. Cuando el superior inmediato no resuelva cualquier planteamiento dentro de los 15 días siguientes ala fecha de su recibo, o lo resuelva negativamente, el servidor podrá recurrir al superior que corresponde, según la jerarquía de la Institución de que se trate;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 18012 del 12 de febrero de 1988).
 d) Observar conducta que no ofenda el orden y la moral públicos;
-e) Someterse a las pruebas de idoneidad que fueren indispensables
-para que se autorice el traslado o ascenso a un puesto de clase diferente;
-f) Promover las acciones judiciales que correspondan cuando fueren
-objeto de imputaciones delictuosas;
-g) Declarar sus bienes, bajo juramento, todos aquellos funcionarios
-que manejen fondos públicos, de conformidad con el artículo 2º de la ley
-Nº 1166 de 14 de junio de 1950;
-h) Rendir las declaraciones que se les pidan cuando fueren citados
-como testigos en reclamaciones o informaciones de despido, así como
-suministrar los datos, constancias o certificaciones que sean requeridos
-por resolución del Tribunal o de la Dirección General, en la tramitación
-de los asuntos sometidos a su conocimiento; e
-i) Dar por escrito, en el caso de renuncia del cargo, el preaviso que
-corresponda, de acuerdo con las reglas del artículo 28 del Código de
-Trabajo.
+e) Someterse a las pruebas de idoneidad que fueren indispensables para que se autorice el traslado o ascenso a un puesto de clase diferente;
+f) Promover las acciones judiciales que correspondan, cuando fueren objeto de imputaciones delictuosas;
+g) Declarar sus bienes, bajo juramento, todos aquellos funcionarios que manejen fondos públicos, de conformidad con la ley Nº 1166 de 14 de junio de 1950;
+(NOTA: La Ley N° 1166 del 14 de junio de 1950, “Declaración Jurada Bienes Funcionarios Públicos”, que modificó este inciso, fue derogada por el artículo 29 de la Ley N° 6872 del 17 de junio de 1983 “Ley sobre el Enriquecimiento Ilícito de los Servidores Públicos”. Sobre la Declaración de Bienes de los Funcionarios Públicos, ver artículo 21 de la Ley N° 8422 del 6 de octubre de 2004 “Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública”)
+h) Rendir las declaraciones que se les pidan cuando fueren citados como testigos en reclamaciones e informaciones de despidos o reclamos; así como suministrar cualesquiera datos, constancias o certificaciones que para cualquier efecto sean requeridos por el Tribunal o la Dirección General;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 18658 de 15 de noviembre de 1988).
+i) Dar por escrito, en el caso de renuncia del cargo, el preaviso que corresponda, de acuerdo con las reglas del artículo 28 del Código de Trabajo.

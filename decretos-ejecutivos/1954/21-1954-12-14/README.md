@@ -13,3 +13,4 @@ Reglamento del Estatuto de Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-01-16 | la propia norma |
+| 2 | 1955-01-16 | SINALEVI (sin norma nombrada) |

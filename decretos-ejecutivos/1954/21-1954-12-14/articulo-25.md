@@ -1,13 +1,8 @@
-ARTICULO 25.- Toda acción de personal -ingreso, ascenso, traslado,
-aumento de sueldo, vacación, permiso, incapacidad, suspensión, regreso al
-trabajo, renuncia, cesación, o cualquier otro acto, disposición o
-resolución que debe figurar en el respectivo expediente personal del
-servidor-, será tramitada mediante la fórmula "ACCION DE PERSONAL" (P-21),
-con la aprobación del respectivo Ministro o funcionario debidamente
-autorizado por éste, en todos los casos que, conforme a las disposiciones
-pertinentes, así se disponga.
-El Tesorero Nacional no tramitará el pago de salarios a servidores
-que hayan sido nombrados, ascendidos, trasladados o reinstalados en sus
-puestos o cuyos sueldos hayan sido aumentados o disminuídos en cualquier
-otra forma sin haber recibido la correspondiente "ACCION DE PERSONAL"
-(Fórmula P-21), debidamente autorizada.
+Artículo 25.- Todo movimiento de personal, así como todo acto, disposición o resolución que afecte la situación legal de ocupación de los puestos cubiertos por el Estatuto y que deban figurar en el expediente personal de los servidores, se debe tramitar mediante el formulario denominado "Acción de Personal". Se exceptúan aquellos movimientos que afecten a un grupo numeroso de servidores, los cuales podrán tramitarse por "planillas colectivas" u otros medios que garanticen su apego a la normativa vigente y siempre que estos no sean de los que requieren la aprobación anticipada de la Dirección General, en cuyos casos se deberán anexar las acciones de personal debidamente firmadas y selladas.
+Los originales de las acciones de personal y de cualquier otro medio que se use para tramitar movimientos de personal una vez aprobados permanecerán bajo custodia de las Oficinas de Recursos Humanos, quienes dispondrán la mejor forma de incluir los correspondientes documentos o datos en los expedientes personales de los servidores.
+Los movimientos de personal originados en nombramientos en propiedad, ascensos en propiedad, nombramientos interinos y sus prórrogas y modificaciones y los ascensos interinos y sus prórrogas y modificaciones requerirán de la aprobación previa de la Dirección General de Servicio Civil.
+Los demás movimientos de esta naturaleza producto de la gestión de recursos humanos del Régimen de Servicio Civil, quedarán a juicio de la Dirección General sujetarlos, o no, a ese mismo procedimiento, decisión que debe comunicar a los usuarios vía resolución.
+Quedan bajo la responsabilidad de la Oficinas de Recursos Humanos aquellos movimientos de personal no sujetos a la aprobación anticipada de la Dirección General por lo cual, cuando éstas tengan duda al respecto, deberán recurrir oportunamente a la asesoría de la Dirección General para decidir lo pertinente.
+La Dirección General supervisará en cualquier tiempo y circunstancia la correcta aplicación de las disposiciones que regulan estos trámites. En tal sentido, sus recomendaciones serán de acatamiento obligatorio dentro de los términos y plazos establecidos por ésta.
+La Tesorería Nacional no autorizará el pago de salarios a servidores, cuando se hayan omitido las disposiciones de este artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27331 de 30 de junio de 1998)

@@ -1,21 +1,5 @@
-Los expedientes personales.
-ARTICULO 45.- Cada Ministerio deberá llevar un expediente personal de
-cada servidor regular en el cual se guardarán los documentos relativos a
-su empleo y constancia de todos aquellos datos que sirvan para mantener un
-historial de sus servicios lo más exacto posible.
-Se llevará también un prontuario para cada servidor en el cual se
-anotarán las calificaciones periódicas; las ausencias y llegadas tardías,
-indicándose su motivo cuando fueren justificadas; las correcciones
-disciplinarias; y los datos más importantes de las respectivas acciones de
-personal, iniciándose el prontuario con la del ingreso al trabajo.
-La Dirección General suministrará las fórmulas e instrucciones con
-indicación del mínimum de requisitos que deberán llevar los expedientes
-personales y los prontuarios. El Ministro dispondrá la forma y
-procedimiento para cumplir con esta obligación, y cada vez que el servidor
-fuere trasladado a un puesto de otro Ministerio, ordenará pasar a éste el
-respectivo expediente personal y su prontuario. (Transitorio:) Los
-servidores nombrados con anterioridad a la vigencia del presente
-Reglamento, deberán aportar los atestados y documentos que exija el
-Reglamento Interior de Trabajo de la dependencia de que se trate, a efecto
-de que puedan llenarse los requisitos del expediente personal y del
-prontuario.
+Artículo 45.- Los Ministerios o Instituciones reguladas por el Estatuto de Servicio Civil deberán llevar un expediente personal de cada uno de sus servidores, en el cual se guardarán los documentos relativos a su empleo y constancia de aquellos datos que sirven para mantener un historial de sus servicios lo más exacto posible. Debe entenderse que es a la respectiva institución, al actuar como patrono, a la que le compete la emisión de constancias o certificaciones de tipo laboral que requieran sus empleados.
+Llevarán también un prontuario por cada servidor, en el cual se anotarán las calificaciones de servicios, correcciones disciplinarias y los datos más importantes de las respectivas acciones de personal, en orden cronológico.
+La Dirección General diseñará las fórmulas básicas e indicará los requisitos mínimos bajo los cuales se confeccionarán y mantendrán los expedientes personales y los prontuarios. El máximo jerarca de la institución dispondrá la forma y procedimiento para cumplir con esta obligación, y cada vez que el servidor se traslade a un puesto de otra dependencia, ordenará pasar a la respectiva Oficina de Recursos Humanos el expediente personal y su prontuario.
+Es responsabilidad exclusiva del servidor aportar los documentos y atestados que permitan la actualización del expediente personal que lleva la respectiva oficina de Recursos, el cual será la base para los distintos trámites.
+(Así, reformado por el artículo 1° del Decreto Ejecutivo No. 23181 de 25 de abril de 1994)

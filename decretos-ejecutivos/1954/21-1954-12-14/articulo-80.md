@@ -1,8 +1,4 @@
-ARTICULO 80.- En cuanto no contraríen el texto y los principios
-procesales que contiene este capítulo, se aplicarán supletoriamente las
-disposiciones de los Códigos de Trabajo y de Procedimientos Civiles.
-Si hubiere omisión de procedimientos en el presente capítulo, el
-Tribunal estará autorizado para aplicar las normas de los referidos
-Códigos por analogía, o para idear el que sea más conveniente al caso, a
-fin de que pueda dictarse con prontitud la resolución que decida
-imparcialmente las pretensiones de las partes.
+Artículo 80.- En cuanto no contraríen el texto y los principios procesales que contiene este capítulo, se aplicarán supletoriamente las disposiciones de los Códigos de Trabajo y de Procedimientos Civiles.
+Si hubiere omisión de procedimientos en el presente capítulo, el Tribunal estará autorizado para aplicar las normas de los referidos Códigos por analogía o para idear el que sea más conveniente al caso, a fin de que pueda dictarse con prontitud la resolución que decida imparcialmente las pretensiones de las partes.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del artículo 21 inciso j) que regula las normas supletorias del “Procedimiento de Despido“, de la Ley Marco de Empleo Público (LMEP). 10159 del 8 de marzo de 2022)

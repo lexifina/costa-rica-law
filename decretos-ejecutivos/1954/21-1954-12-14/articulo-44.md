@@ -1,16 +1,5 @@
-ARTICULO 44.- Cuando el servidor no hubiere completado un año de
-prestación de servicios al momento de hacerse la calificación, o hubiere
-trabajado a las órdenes de diferentes jefes en el año anterior, se
-observarán las siguientes reglas:
-a) Si el servidor no hubiere completado un semestre de prestación de
-servicios, pero hubiere cumplido el período de prueba, la calificación
-será provisional y deberá ser hecha definitivamente en la primera quincena
-del mes de enero siguiente;
-b) Si el servidor hubiere estado menos de un año pero más de seis
-meses a las órdenes de un mismo jefe, corresponderá a éste hacer su
-calificación; y
-c) Si el servidor hubiere estado a las órdenes de varios jefes
-durante el año, pero con ninguno por más de seis meses, la calificación
-definitiva la hará el último jefe con quien hubiere trabajado tres meses
-o más, debiendo tomar en cuenta los informes que en este caso deberá
-rendir los otros jefes.
+Artículo 44.- Cuando el servidor no hubiere completado un año de prestación de servicios al momento de hacerse la evaluación; si hubiere trabajado a las órdenes de diferentes jefes en el año anterior, o tuviere un jefe para los aspectos administrativos y otro para los asuntos técnicos en el caso de que su sistema institucional no se indique otro tratamiento, se observarán las siguientes reglas:
+Si el servidor hubiere estado a las órdenes de varios jefes, el resultado de la evaluación la presentará al funcionario el último jefe o grupo de evaluadores con los que hubiere trabajado más tiempo, debiendo tomar en cuenta los informes que al respecto deberán rendir los otros jefes y evaluadores.
+En todos los casos la Evaluación del Desempeño la realizará el jefe inmediato del servidor y en el caso de existir alguna relación de dependencia de carácter técnico con otra instancia o funcionario, se deberá recurrir a éstos en consulta para un mejor criterio.
+En todo el proceso de la evaluación del desempeño, el desacuerdo entre la persona que evalúa y la que es evaluada, respecto al resultado de ésta, será resuelto por el superior del evaluador o evaluadores que la realizaron, quien o quienes resolverán en definitiva tomando en cuenta la información suministrada por el responsable o responsables de llevar a cabo la evaluación del desempeño.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 26509 del 21 de noviembre de 1997).

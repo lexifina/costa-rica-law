@@ -1,10 +1,2 @@
-ARTICULO 92.- Si un servidor fuere despedido sin que se llene el
-trámite establecido al efecto, podrá presentar su reclamación ante el
-Tribunal, dentro del término que concede el artículo 604 del Código de
-Trabajo. El Tribunal solicitará a la Dirección General que levante la
-información del caso y una vez que la reciba, si no ordenare nuevas
-diligencias, dictará el fallo. En la tramitación y resolución de estas
-reclamaciones se aplicarán, por analogía, las disposiciones y
-procedimientos señalados en el artículo 90 de este Reglamento, pero
-deberán cumplirse los requisitos que para estas presentaciones determina
-el artículo 81 del mismo.
+Artículo 92.- Si un servidor fuere despedido sin que se llene el trámite establecido al efecto, podrá presentar su reclamación ante el Tribunal, dentro del término que concede el artículo 604 del Código de Trabajo. El Tribunal solicitará a la Dirección General que levante la información del caso y una vez que la reciba, si no ordenare nuevas diligencias, dictará el fallo. En la tramitación y resolución de estas reclamaciones se aplicarán, por analogía, las disposiciones y procedimientos señalados en el artículo 90 de este Reglamento, pero deberán cumplirse los requisitos que para estas presentaciones determina el artículo 81 del mismo.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

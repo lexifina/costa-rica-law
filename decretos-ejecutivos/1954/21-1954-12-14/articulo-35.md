@@ -1,14 +1,4 @@
-ARTICULO 35.- En todos los casos, el servidor deberá notificar a su
-jefe inmediato lo antes posible, verbalmente o por escrito, las causas que
-le impidieron asistir a su trabajo. Por ninguna razón -salvo la de fuerza
-mayor- deberá esperar hasta el segundo día de ausencia para notificarlo.
-Las ausencias al trabajo por enfermedad que excedan de cuatro días
-deberá justificarlas el servidor incapacitado con certificado médico y
-cuando estuviere asegurado en la Caja Costarricense de Seguro Social, o en
-el Instituto Nacional de Seguros, con certificado de la Institución
-respectiva. Si la enfermedad lo incapacitare solamente hasta por cuatro
-días queda al cuidado del Jefe constatar la validez del motivo de la
-ausencia, a falta de la respectiva constancia médica.
-Los Reglamentos Interiores de Trabajo determinarán el procedimiento
-y las demás reglas que deban observarse en todo caso de enfermedad o
-riesgo profesional.
+Artículo 35.- En todos los casos, el servidor deberá notificar a su jefe inmediato lo antes posible, verbalmente o por escrito, las causas que le impiden asistir a su trabajo.
+Por ninguna razón -salvo la de fuerza mayor- deberá esperar hasta el segundo días de ausencia para notificarlo.
+Las ausencias al trabajo por enfermedad que excedan de cuatro días deberá justificarlas el servidor incapacitado con certificación emitida por la Caja Costarricense de Seguro Social, o en el Instituto Nacional de Seguros. Si la enfermedad lo afectara solamente hasta por cuatro días en un mismo mes calendario, podrá justificar dicha ausencia hasta por cuatro días por incapacidad que extienda el ente asegurador o en su defecto, dictamen de un médico particular.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27096 de 15 de mayo de 1998)

@@ -1,4 +1,2 @@
-ARTICULO 24.- Cuando un servidor sea trasladado, permutado o
-ascendido a otro puestos y deba pasar el período de prueba, gozará de
-licencia de su cargo anterior por el tiempo que dure dicho período de
-prueba. Su sustituto mientras tanto estará en interinidad.
+Artículo 24.- A juicio de la Administración podrá ser aplicable el período de prueba en los ascensos o traslados en que así convenga para garantizar mejor el servicio público. En tales casos, el servidor gozará de licencia de su puesto anterior durante el tiempo que dure dicho período de prueba, el cual será aplicable también a su sustituto.
+(Así reformado por el artículo 4° del Decretos Ejecutivo N° 22422 de 5 de agosto de 1993).

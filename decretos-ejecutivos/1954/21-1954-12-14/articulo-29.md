@@ -1,12 +1,11 @@
-ARTICULO 29.- Para obtener derecho a la vacación anual, es necesario
-que el servidor haya prestado sus servicios durante cincuenta semanas
-continuas. No interrumpirán la continuidad del trabajo las licencias sin
-goce de sueldo, la enfermedad justificada del servidor, ni ninguna otra
-causa de suspensión legal de la relación laboral que no termine con el
-contrato de trabajo. Las vacaciones de quince días y de veinte días
-hábiles se entenderán de días regulares de trabajo, excluídos los
-domingos, los demás días feriados establecidos por el artículo 147 del
-Código de Trabajo y los días de asueto que conceda el Poder Ejecutivo,
-siempre que el asueto comprenda a la Oficina y al servidor de que se
-trate. La vacación de un mes se entiende de un mes calendario y no de
-treinta días hábiles.
+Artículo 29.- Para obtener derecho a la vacación anual, es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo, si por cualquier causa el servidor no completara dicho período por terminación de su relación de servicio, tendrá derecho a vacaciones proporcionales de la siguiente forma:
+a. Un día por cada mes trabajado en los casos en que al servidor no haya cumplido con las cincuenta semanas de servicio.
+b. Uno punto veinticinco días por cada mes trabajado en los casos en que al servidor le correspondiera disfrutar de quince días de vacaciones.
+c. uno punto sesenta y seis días por cada mes trabajado en los casos en que el servidor le correspondiera disfrutar de veinte días hábiles de vacaciones.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 26162 de 4 de julio de 1997).
+d. Dos punto dieciséis días por cada mes trabajado en los casos en que el servidor le correspondiere disfrutar de veintiséis días hábiles de vacaciones.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 22691 del 26 de octubre de 1993)
+La prestación efectiva de servicio, para efectos del cálculo de las vacaciones anuales, no será afectada por las licencias que se conceden a las servidoras por concepto de maternidad y por adoptar un niño menor de tres años, según lo establecido por el artículo 33, inciso b) de este Reglamento. Es entendido que la continuidad laboral no se afecta por las causas antes señaladas, de manera que el servidor mantiene a su favor el tiempo de servicios prestados antes de la suspensión mencionada.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 22343 de 8 de julio de 1993, y modificado posteriormente por Resolución de la Sala Constitucional N° 4571-97, de las 12:54 horas del 1° de agosto de 1997)
+Para la determinación de los días hábiles se excluirán los domingos y demás feriados establecidos por el artículo 147 del Código de Trabajo, y los días de asueto que conceda el Poder Ejecutivo, siempre que el asueto comprenda a la dependencia y al servidor de que se trate. La vacación de un mes, se entiende de un mes calendario, salvo cuando se fraccione que será de veintiséis días hábiles.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 19824 del 27 de junio de 1990)

@@ -1,29 +1,11 @@
 CAPITULO IX
-Reclamaciones y Despidos
-Procedimiento.
-ARTICULO 88.- En toda reclamación contra disposiciones o resoluciones
-de los Jefes, cuando el servidor alegue perjuicio causado por ellas, se
-observarán las siguientes reglas:
-a) Si la queja o reclamación fuere contra el Jefe inmediato, deberá
-agotarse la vía directa ante los superiores, conforme al trámite que en
-cada caso señale el Reglamento Interior de Trabajo y, en su defecto,
-deberá obtenerse un primer pronunciamiento del Directo de la dependencia
-de que se trate y un segundo procedimiento del Ministro. Si la reclamación
-fuese con motivo de una resolución o disposición del propio Ministro, el
-reclamo deberá presentarse directamente ante el mismo. En ambos casos,
-tanto el Directo como el Ministro tendrán un plazo máximo de ocho días
-hábiles para resolver lo procedente, entendiéndose que se tendrá por
-agotado dicho trámite si no se dictare resolución dentro del término
-expresado;
-b) Cumplido el trámite anterior, si el servidor persistiere en su
-reclamo, podrá recurrir ante el Tribunal, llenando al efecto los
-requisitos establecidos en el artículo 81 de este Reglamento. El Tribunal
-ordenará levantar información por medio de la Dirección General, si así lo
-estimare necesario para dictar su fallo, que será definitivo; y
-c) La Dirección General cumplirá, en lo que fuere dable, las
-disposiciones del inciso e) del artículo 43 del Estatuto, y tramitará las
-respectivas diligencias con intervención del reclamante y del Jefe contra
-quien se dirija la acción. Sin embargo, una vez levantada la información
-y antes de ser devuelto el expediente al Tribunal, se concederá audiencia
-al respectivo Ministro, cuando no haya sido parte en el asunto, para lo
-que estime conveniente proponer o manifestar.
+Peticiones, reclamos y despidos
+Procedimiento:
+Artículo 88.- En toda reclamación contra disposiciones o resoluciones de los jefes, cuando el servidor alegue perjuicio causado por ella, se observarán las siguientes reglas:
+a) Si se tratare de reclamos contra los jefes inmediatos de cualquier órgano, antes de recurrir al Tribunal de Servicio Civil, deberá agotarse la vía administrativa, a cuyos efectos deberá obtenerse un primer pronunciamiento del superior jerarca de la dependencia de que se trate, y un segundo pronunciamiento del Ministro respectivo. Si el reclamo se presentaré contra un acto del propio Ministro, no se requiere más trámite que impugnarlo directamente ante dicho funcionario.
+En estos últimos dos casos, tanto el jerarca como el Ministro, tendrán un plazo máximo de ocho días hábiles para resolver lo procedente, entendiéndose que el mismo se tendrá por agotado si no se diere respuesta durante su transcurso;
+(Inciso reformado por el artículo 1° del Decreto N° 19824 del 27 de junio de 1990)
+b) Cumplido el trámite anterior, si el servidor persistiere en su reclamo, podrá recurrir ante el Tribunal, llenando al efecto los requisitos establecidos en el artículo 81 de este Reglamento. El Tribunal ordenará levantar información por medio de la Dirección General, si así lo estimare necesario para dictar su fallo, que será definitivo; y
+c) La Dirección General cumplirá, en lo que fuere dable, las disposiciones del inciso e) del artículo 43 del Estatuto, y tramitará las respectivas diligencias con intervención del reclamante y del jefe contra quien se dirija la acción. Sin embargo, una vez levantada la información y antes de ser devuelto el expediente al Tribunal, se concederá audiencia al respectivo Ministro, cuando no haya sido parte del asunto, para lo que estime conveniente proponer o manifestar.
+(Nota de Sinalevi: En relación al inciso anterior y de conformidad con el "Procedimiento de Despido", ahora se regula de conformidad con las disposiciones de los artículos 21 y 22 de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)
+(Los incisos b) y c) de este artículo fueron interpretados por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.”)

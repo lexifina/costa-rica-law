@@ -1,12 +1,4 @@
-ARTICULO 77.- Para que tenga efecto un escrito, deberá ser firmado
-por el petente y presentado por él. Si no lo presentare personalmente su
-firma deberá estar autenticada por la de un abogado. Si el petente no
-supiere escribir o estuviere en imposibilidad física de hacerlo, se hará
-constar una u otra circunstancia en el escrito y firmará a su ruego otra
-persona. En este caso la presentación se hará por el mismo interesado
-salvo que el escrito llevare la firma de abogado, lo cual significará que
-es auténtica la del firmante y que al autenticante le consta haber sido
-puesta a ruego del petente. La autenticación de la firma del servidor, en
-los casos dichos, podrá hacerla la autoridad política del lugar, si el
-domicilio del servidor se encontrare fuera de los cantones cabeceras de
-provincia.
+Artículo 77.- Para que tenga efecto un escrito, deberá ser firmado por el petente y presentado por él. Si no lo presentare personalmente, su firma deberá estar autenticada por la de un abogado. Si el petente no supiere escribir o estuviere en imposibilidad física de hacerlo, se hará constar una u otra circunstancia en el escrito y firmará a su ruego otra persona. En este caso la presentación se hará por el mismo interesado salvo que el escrito llevare firma de abogado, lo cual significará que es auténtica la del firmante, y que al autenticante le consta haber sido puesta a ruego del petente. La autenticación de la firma del servidor, en los casos dichos, podrá hacerla la autoridad política del lugar, si el domicilio del servidor se encontrare fuera de los cantones cabeceras de provincia.
+Es entendido que los escritos que presenten los ministros o jerarcas autorizados que deban apersonarse como partes, no requieren de autenticación.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Así reformado por el artículo 1° del decreto ejecutivo N° 21419 de 23 de junio de 1992)

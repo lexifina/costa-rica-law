@@ -1,12 +1,4 @@
-ARTICULO 67.- Si dentro de las veinticuatro horas siguientes a la
-respectiva notificación, alguna de las partes pidiere revocatoria negando
-la causal, indicará en el acto de hacer su gestión las pruebas
-conducentes. Al efecto se procederá así:
-a) Si se tratare de uno o dos miembros del Tribunal, el o los demás
-miembros podrán evacuar o comisionar a la Dirección General para que
-reciba la prueba que admitieren y, una vez practicada ésta, resolverán en
-definitiva si procede o no la separación; y
-b) Si se tratare de todos los miembros del Tribunal, los suplentes
-admitirán las pruebas que a su juicio sean pertinentes y, una vez
-practicadas éstas directamente o por medio de la Dirección General,
-resolverán en definitiva acerca de si procede o no la separación.
+Artículo 67.- Si dentro de las veinticuatro horas siguientes a la respectiva notificación, alguna de las partes pidiere revocatoria negando la causal, indicará en el acto de hacer su gestión las pruebas conducentes. Al efecto se procederá así:
+a) Si se tratare de uno o dos miembros del Tribunal, él o los demás miembros podrán evacuar o comisionar a la Dirección General para que reciba la prueba que admitieren y, una vez practicada ésta, resolverán en definitiva si procede o no la separación; y
+b) Si se tratare de todos los miembros del Tribunal, los suplentes admitirán las pruebas que a su juicio sean pertinentes y, una vez practicadas éstas directamente o por medio de la Dirección General, resolverán en definitiva acerca de si procede o no la separación.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

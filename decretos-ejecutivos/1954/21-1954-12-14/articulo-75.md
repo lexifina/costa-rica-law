@@ -1,5 +1,3 @@
-ARTICULO 75.- Las partes deberán gestionar por escrito, pero no
-estarán obligadas a presentar copias. Tampoco se exigirán éstas cuando se
-aporten documentos, pues corresponderá al Secretario certificar en autos
-las piezas cuya perdida pueda causar perjuicio irreparable o difícil de
-subsanar, y guardar cuidadosamente los originales en la caja del Tribunal.
+Artículo 75.- Las partes deberán gestionar por escrito y acompañar de cada escrito y de los documentos que se adjunten, tantas copias literales de los mismos, en papel común, cuantas sean las otras partes litigantes. Corresponde al Secretario certificar en autos las piezas cuya pérdida pueda causar perjuicio irreparable o difícil de subsanar, y guardar cuidadosamente los originales en la caja del Tribunal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18175 del 30 de mayo de 1988).
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

@@ -1,27 +1,6 @@
-ARTICULO 43.- La calificación anual servirá para reconocimiento a los
-buenos servidores, como estímulo para una mayor eficiencia y como factor
-a considerar para entrenamiento, ascensos, aumentos de salarios,
-concesiones de permisos, reducciones forzosas de personal, y otros. En su
-aplicación deberá observarse las siguientes normas:
-a) La calificación de "Excelente" o "Inaceptable", deberá ser
-razonada por el respectivo Jefe, quien al efecto expondrá un resumen de
-los motivos que justifiquen la decisión que a este respecto tomare;
-b) A la calificación de "Insuficiente" también deberá ser agregada
-una breve explicación de las causas que la originen, indicándose además
-las observaciones que el Jefe hubiere hecho al servidor, que pudieren
-servirle de estímulo para mejorar su calificación en lo futuro;
-c) La calificación de "Satisfactorio" podrá ser expresa o implícita.
-Se entenderá hecha en esta última forma si el Jefe no hubiere entregado
-copia de la calificación al servidor en la primera quincena del mes de
-julio y se tendrá como aceptada por éste tal calificación, si en la
-segunda quincena del mismo mes de julio, el servidor no hubiere
-manifestado por escrito su inconformidad alegando merecer calificación de
-excelente; y
-d) Cuando los servicios del servidor fueren calificados dos veces
-consecutivas como insuficientes o, si previas las advertencias o sanciones
-del caso, se calificaren de inaceptables por no ejecutar sus labores con
-la capacidad, dedicación y diligencia debidas, se considerará el hecho
-como falta grave de conformidad con lo dispuesto por el artículo 43,
-párrafo segundo del Estatuto. En estos casos el Jefe deberá informar al
-respectivo Ministro a fin de que se promuevan las consiguientes
-diligencias de despido ante la Dirección General.
+Artículo 43.- La evaluación del desempeño servirá como reconocimiento a los buenos servidores, como estímulo para propiciar una mayor eficiencia y como factor que se puede considerar para capacitación, ascensos, concesión de permisos, reducciones forzosas de personal y los demás fines que la Dirección General de Servicio Civil determine mediante resolución. Para la aplicación de la evaluación del desempeño deberán observarse las siguientes normas:
+El evaluador que participe en el proceso de evaluación del desempeño, deberá agregar una explicación de las causas que originen los niveles de desempeño Regular y Deficiente (o sus equivalentes) en los factores o parámetros equivalentes utilizados en el formulario de evaluación, con el fin de instar al servidor a mejorar su desempeño, o tomar las medidas necesarias para mejorar los resultados de la correspondiente.
+Se establece la obligatoriedad por parte de los evaluadores de justificar la categoría Excelente (o su equivalente) que se asigne a sus colaboradores con base en la contribución destacada de los mismos en los logros alcanzados por ellos o por los equipos de trabajo o unidades donde se encuentren ubicados durante el período de evaluación.
+Es obligación del servidor firmar oportunamente el documento donde consten los resultados de la evaluación del desempeño y manifestar por escrito su conformidad o no con la apreciación hecha por su evaluador, de acuerdo con las indicaciones del respectivo instructivo. El incumplimiento de esta obligación no invalida el resultado de la evaluación, por lo que el servidor asumirá las consecuencias que se derivan por causa de esta omisión.
+Cuando el resultado de la evaluación del servidor fuere Regular (o su equivalente) por dos veces consecutivas, o si previas las advertencias o sanciones del caso, la evaluación fuere por solo una vez de Deficiente (o su equivalente), se considerará el hecho como falta grave, de conformidad con lo dispuesto en el artículo 43, del Estatuto de Servicio Civil. En estos casos el evaluador respectivo o la Oficina de Recursos Humanos, deberán informar al respectivo Ministro, con el fin de que se promuevan las consiguientes diligencias de despido.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 26509 del 21 de noviembre de 1997).

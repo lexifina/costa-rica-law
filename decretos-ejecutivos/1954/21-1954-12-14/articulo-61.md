@@ -1,3 +1,2 @@
-ARTICULO 61.- El Tribunal llevará los libros que sean necesarios para
-consignar su labor, y especialmente uno para las actas de las sesiones y
-otro para las copias de los fallos y pronunciamientos que emita.
+Artículo 61.- El Tribunal llevará los libros que sean necesarios para consignar su labor, y especialmente uno para las actas de las sesiones y otro para las copias de los fallos y pronunciamientos que emita.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

@@ -1,7 +1,7 @@
-Las Calificaciones Periódicas.
-ARTICULO 41.- En la primera quincena del mes de julio de cada año se
-debe hacer la calificación individual de los servidores regulares en las
-fórmulas P-18 que preparará la Dirección General. Su resultado se dará
-calificando los servicios de cada uno en orden a sus méritos, durante el
-año respectivo, como excelentes, satisfactorios, insuficientes o
-inaceptables.
+Las calificaciones periódicas
+Artículo 41.- La evaluación anual del desempeño de los servidores se efectuará en la segunda quincena del mes de noviembre de cada año. La evaluación será una apreciación del rendimiento del servidor en cada uno de los factores que influyen en su desempeño general. Las categorías que se utilizarán para la evaluación anual del servidor serán como máximo cinco (Deficiente, Regular, Bueno, Muy Bueno, Excelente - o sus equivalentes) y como mínimo tres (Insuficiente, Bueno y Sobresaliente - o sus equivalentes).
+Dada la necesidad, para realizar una buena evaluación de la ejecutoria de un servidor de contar con los factores, la ponderación de los mismos y evaluadores, adecuada a los procesos en que interviene, se autoriza a las Unidades de Recursos Humanos a desarrollar sistemas adecuados a las circunstancias presentes en los procesos de su Institución.
+La Dirección General de Servicio Civil, deberá asesorar, revisar y aprobar mediante resolución los sistemas de evaluación del desempeño creados o modificados por las instituciones y los criterios que emita serán vinculantes en el Régimen de Servicio Civil.
+Las Oficinas de Recursos Humanos deberán preparar y distribuir oportunamente el material pertinente, además de controlar su aplicación.
+Le corresponderá a la Oficina de Recursos Humanos de la respectiva Institución, controlar el cumplimiento y correcta aplicación del Sistema de Evaluación del Desempeño en ella, independientemente de las Auditorías que pueda realizar la Dirección General de Servicio Civil cuando así lo considere pertinente, cuyos criterios tendrán efectos vinculantes en el Régimen de Méritos.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 26509 del 21 de noviembre de 1997).

@@ -1,0 +1,2 @@
+Artículo 119.- En casos de inopia comprobada o por razones geográficas o técnicas que lo hagan imprescindible para el buen servicio público, la Dirección General podrá, mediante resolución razonada, variar provisionalmente los requisitos de los puestos o de las clases de puestos, de acuerdo con el grupo de especialidad si lo tiene según corresponda.
+(Así reformado por el artículo 7° del Decreto Ejecutivo No. 22422 del 5 de agosto de 1993).

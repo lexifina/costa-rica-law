@@ -1,0 +1,2 @@
+ARTICULO 8 (bis).- El Sistema de Recursos Humanos tendrá dos instancias de participación, encuentro y estudio de los asuntos que atañen al desarrollo de los recursos humanos en el marco del empleo público: la Asamblea de Jefes de Recursos Humanos y el Consejo Técnico Consultivo de Recursos Humanos, cuyas integraciones, funciones, objetivos y otros aspectos de su funcionamiento serán regulados mediante resolución emitida por el Director General de Servicio Civil.
+(Adicionado por el Decreto Ejecutivo No.26606 de 9 de enero de 1998)

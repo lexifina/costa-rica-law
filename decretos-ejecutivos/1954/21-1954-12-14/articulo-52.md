@@ -1,11 +1,7 @@
-CAPITULO VIII
+CAPITULO VIII (*)
 El Tribunal de Servicio Civil
-Organización y competencia del Tribunal
-ARTICULO 52.- El Tribunal, con residencia en la capital y
-jurisdicción en toda la República, es de nombramiento del Consejo de
-Gobierno y lo integran tres miembros propietarios y tres miembros
-suplentes que serán juramentados por el Presidente de la República. Para
-ser miembro del Tribunal se requiere reunir los requisitos que señala el
-artículo 8º del Estatuto y no ser servidor del Poder Ejecutivo, según lo
-determina el artículo 2º ibídem. Un miembro propietario y su respectivo
-suplente deberán ser abogados.
+Organización y competencia del Tribunal:
+Artículo 52.- El Tribunal con residencia en la capital y jurisdicción en toda la República, es de nombramiento del Consejo de Gobierno y lo integran tres miembros propietarios y tres miembros suplentes que serán juramentados por el Presidente de la República. Para ser miembro del Tribunal se requiere reunir los requisitos que señala el artículo 8° del Estatuto y no ser servidor del Poder Ejecutivo, según lo determina el artículo 2° ibídem.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 17230-P de 8 de octubre de 1986).
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del Transitorio XIII de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

@@ -1,4 +1,4 @@
-ARTICULO 42.- La calificación de los servicios de cada servidor la
-hará el jefe inmediato, con el visto bueno del superior que corresponda,
-según lo determine el respectivo Ministro. De cada calificación se deberá
-remitir copia a la Dirección General.
+Artículo 42.- En el caso de las instituciones que continúen aplicando el sistema general de evaluación del desempeño, creado mediante decreto ejecutivo Nº 22341-MP del 9 de julio de 1993, y en todos aquellos que en su sistema no se disponga algo diferente, le corresponderá al jefe inmediato presentar y analizar, mediante entrevista con el servidor, el resultado de la evaluación del desempeño reflejada en los formularios aprobados por la Dirección General de Servicio Civil siguiendo las instrucciones contenidas en el Manual de Procedimientos para la Evaluación del Desempeño.
+En las instituciones que decidan elaborar y, aplicar sus propios sistemas de evaluación del desempeño, le corresponderá al evaluador o a los evaluadores, efectuar la evaluación del desempeño en los formularios aprobados por la Dirección General de Servicio Civil siguiendo las indicaciones contenidas en los instructivos oficialmente aprobados.
+Para cualquiera de las dos situaciones señaladas anteriormente, el responsable inmediato del trabajo del funcionario evaluado, el evaluador o los evaluadores, según corresponda, deberán responder por los perjuicios que como consecuencia de la omisión de la evaluación del desempeño se le ocasione al personal evaluado.
+(Así reformado por el artículo 1° del Decreto N° 26509 de 21 de noviembre de 1997).

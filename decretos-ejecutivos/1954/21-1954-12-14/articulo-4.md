@@ -1,58 +1,20 @@
 CAPITULO II
 La Dirección General de Servicio Civil
-ARTICULO 4º.- El Director General tendrá las siguientes atribuciones
-y deberes:
-a) Actuará en debida coordinación con el Presidente de la República-
-de quien depende directamente- y con los Ministros de Gobierno; y deberá
-ajustarse en lo que respecta a la administración de personal del Poder
-Ejecutivo, a los dictados del Estatuto y del presente Reglamento;
-b) Cumplirá con las funciones que el artículo 13 del Estatuto le
-encomienda expresamente, organizando a este efecto la Dirección General
-con las dependencias y personal técnico que sean indispensables. Sin
-perjuicio de ser ampliados, la Dirección General constará de los
-siguientes Departamentos, cuyos Jefes tendrán las atribuciones y funciones
-que determine el Reglamento Interior de Trabajo respectivo:
-1) Departamento de Normas y Procedimientos;
-2) Departamento de Clasificación y Valoración de Puestos;
-3) Departamento de Selección de Personal;
-4) Departamento de Entrenamiento; y
-5) Departamento de Registro y Estadística.
-c) Dirigirá y supervisará toda actividad técnica y administrativa de
-la Dirección General;
-d) Prestará a las dependencias del Poder Ejecutivo la asistencia
-técnica en materia de personal que le sea solicitada a fin de obtener la
-mayor eficiencia en la administración pública y la mejor aplicación del
-régimen de Servicio Civil. A este propósito y con el objeto de seguir un
-criterio uniforme en la aplicación del régimen de Servicio Civil, las
-consultas de las dependencias públicas relacionadas con la administración
-de personal y la aplicación de la Ley y de este Reglamento, se formularán
-ante la Dirección General, de conformidad con el artículo 13, inciso g)
-del Estatuto;
-e) Dictará las normas y procedimientos que se requieran para la
-promoción e implantación de un sistema moderno de administración de
-personal, así como para la debida coordinación en cuanto a condiciones de
-trabajo de las diferentes dependencias públicas. A este respecto, la
-Dirección General estará facultada para solicitar a los Ministerios y
-dependencias públicas la revisión de sus Reglamentos Interiores de Trabajo
-y para sugerir en cualquier tiempo la adición de reglas y normas, la
-modificación de las existentes o su supresión;
-f) Preparará las descripciones de las distintas clases de puestos,
-las cuales se usarán en la definición y asignación de los mismos pero no
-se considerarán restrictivas ni prescriptivas de los deberes o requisitos
-de ningún puesto;
-g) Con base en el Manual Descriptivo de Puestos y en la Ley de
-Salarios, asignará los puestos a las clases y a los grados existentes o
-que se creen en lo futuro;
-h) Recomendará al Poder Ejecutivo, previa investigación y estudio de
-la aplicación del Estatuto, las reformas a la Ley y a los reglamentos de
-ésta, que la experiencia y la técnica aconsejen;
-i) Vigilará por el cumplimiento de las disposiciones del Estatuto y
-del presente Reglamento, en resguardo de la eficiencia de la
-administración pública y de los intereses del Estado. A este efecto el
-Director General pondrá en conocimiento del respectivo Ministro la
-conducta irregular de los servidores que comprometa gravemente los
-propósitos que se establecen en la presente provisión, con el objeto de
-que aquél tome las providencias que considere necesarias; y
-j) Cooperará con el Tribunal, prestándole la asistencia técnica que
-éste considere necesaria, y el concurso administrativo posible, para el
-mejor cumplimiento de sus tareas.
+Artículo 4° - El Director General tendrá las siguientes atribuciones y deberes:
+a. Actuará en debida coordinación con el Presidente de la República -de quien depende directamente- y con los ministros de Gobierno y deberá ajustarse en lo que respecta a la administración de personal del Poder Ejecutivo, a los dictados del Estatuto del presente reglamento y demás leyes conexas y complementarias;
+b. Cumplirá con las funciones que el artículo 13 del Estatuto de Servicio Civil le encomienda expresamente, organizando y supervisando a este efecto los Departamentos de la Dirección General así como las Dependencias especializadas en Administración de Recursos Humanos de las Instituciones Públicas correspondientes.
+(Así reformado por Decreto Ejecutivo No.24563 de 23 de agosto de 1995)
+c. Dirigirá y controlará las distintas actividades técnicas propias de su competencia que sean ejecutadas por las dependencias especializadas en Administración de Recursos Humanos de las Instituciones Públicas y, por los Departamentos normativos bajo su supervisión administrativa. En cumplimiento de lo anterior el Director General designará en coordinación con el jerarca de la Institución respectiva, un servidor regular responsable de ejecutar los actos y procedimientos administrativos que se le encomienden bajo las directrices técnicas que emanen de ésta Dirección General y sus Departamentos normativos.
+Dicho servidor actuará técnicamente con independencia funcional y de criterio en relación con la jerarquía administrativa de la dependencia donde se ubique.
+El servidor designado responderá en forma personal y de acuerdo con la normativa de la Ley General de la Administración Pública por todos los actos en el desempeño de sus funciones.
+(Así reformado por Decreto Ejecutivo No.24563 de 23 de agosto de 1995)
+d. Prestará a las dependencias del Poder Ejecutivo la asistencia técnica en materia de personal que le sea solicitado, a fin de obtener la mayor eficiencia en la administración pública y la mejor aplicación del Régimen de Servicio Civil. A este propósito y con el objeto de seguir un criterio uniforme en la aplicación del Régimen de Servicio Civil, las consultas de las dependencias públicas y relacionadas con la administración de personal y la aplicación de la ley de este reglamento, se formalizarán ante la Dirección General, de conformidad con el artículo 13, inciso g) del Estatuto;
+e. Dictará las normas y procedimientos que se requieren para la promoción e implantación de un sistema moderno de administración de personal, así como para la debida coordinación en cuanto a condiciones de trabajo de las diferentes dependencias públicas. A este respecto, la Dirección General estará facultada para solicitar a los ministerios y dependencias públicas la revisión de sus reglamentos autónomos de servicio y para sugerir en cualquier tiempo la adición de reglas y normas, la modificación de las existentes o su supresión;
+f. Prepara las descripciones de las distintas clases de puestos, las cuales se usarán en la definición y asignación de los mismos pero no se considerarán restrictivas ni prescriptivas de los deberes o requisitos de ningún puesto;
+g. Con base en el Manual General de Clasificación de Clases y en la Ley de Salarios de la Administración Pública, asignará los puestos a las clases y a los grados existentes o que se creen en lo futuro;
+*(Término modificado por el artículo 9° del Decreto Ejecutivo No.25592 de 29 de octubre de 1996) .
+h. Recomendará al Poder Ejecutivo, previa investigación y estudio de la aplicación del Estatuto, las reformas a la ley y a los reglamentos de esta, que la experiencia y la técnica aconsejan;
+i. Vigilará por el cumplimiento de las disposiciones del Estatuto y del presente reglamento, en resguardo de la eficiencia de la Administración Pública y de los intereses del Estado. A este efecto el Director General tomará las providencias que fueren del caso y, cuando compruebe irregularidades en las dependencias públicas que comprometen dichos propósitos, deberá ponerlo en conocimiento de los funcionarios que estime pertinentes, con las recomendaciones que considere oportunas. Para el mejor cumplimiento del cometido encomendado, todas las instituciones comprendidas dentro del Régimen de Servicio Civil, presentarán a la Dirección General la colaboración necesaria y suministrarán los documentos y datos que esta requiere para sus investigaciones. La negativa a suministrar los documentos y datos solicitados, hará incurrir a los servidores responsables en desobediencia, sin perjuicio de la aplicación de las sanciones disciplinarias que procedan; y
+j. Cooperará con el Tribunal, prestándole la asistencia técnica que este considere necesaria, y el concurso administrativo posible, para el mejor cumplimiento de sus tareas.
+(Así reformado por el Decreto Ejecutivo N° 19025 de 30 de mayo de 1989)
+(El inciso j) de este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

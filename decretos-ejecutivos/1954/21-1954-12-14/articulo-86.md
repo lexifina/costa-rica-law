@@ -1,5 +1,4 @@
-Los recursos.
-ARTICULO 86.- Salvo lo dispuesto en el artículo 67 de este
-Reglamento, o que se trate de sentencias a que se refiere el inciso a) del
-artículo 14 del Estatuto, no cabrá recurso alguno contra la resolución que
-dicte el Tribunal, excepto el de responsabilidad.
+Los recursos:
+Artículo 86.- Salvo lo dispuesto en el artículo 67 de este Reglamento, o que se trate de sentencias a que se refiere el inciso a) del artículo 14 del Estatuto, no cabrá recurso alguno contra la resolución que dicte el Tribunal, excepto el de responsabilidad.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del artículo 21 y 22, que regula el “Procedimiento de Despido”, de la Ley Marco de Empleo Público (LMEP). 10159 del 8 de marzo de 2022)

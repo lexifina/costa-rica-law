@@ -1,3 +1,2 @@
-ARTICULO 23.- A juicio de los respectivos jefes podrá ser aplicable
-el período de prueba en todos los casos de ascenso o traslado en que así
-convenga para garantizar mejor el servicio público.
+Artículo 23.- Los descensos podrán ser efectuados a cualquier clase de puesto siempre que el servidor, a juicio de la Dirección General, reúna los requisitos de la clase a la que se propone y no sea perjudicado, salvo los casos previstos por el artículo 27, inciso f) del Reglamento del Estatuto de Servicio Civil.
+Así reformado por el artículo 4° del Decreto Ejecutivo No. 22422 de 5 de agosto de 1993).

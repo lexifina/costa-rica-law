@@ -1,26 +1,3 @@
-ARTICULO 11.- Se considerarán empleados interinos, los que fueren
-nombrados para sustituir temporalmente a un servidor regular por motivo de
-riesgo profesional, enfermedad, licencia u otra causa de suspensión de la
-relación de trabajo. Tales nombramientos interinos sólo podrán efectuarse
-hasta por un año. El funcionario autorizado deberá obtener la aprobación
-previa de la Dirección General, cuando el plazo del nombramiento exceda de
-un mes, indicando para ello en la respectiva comunicación, que acompañará
-la Fórmula de Acción de Personal, los datos siguientes:
-a) Razón por la cual no es posible efectuar un recargo de funciones
-en otro servidor;
-b) Constancia de la imposibilidad o motivo para no ascender a un
-servidor que sustituya al empleado ausente; y
-c) Si el candidato reúne los requisitos de la clase del
-correspondiente puesto.
-En el evento de que para la sustitución temporal del servidor regular
-se acordare un ascenso, éste tendrá el carácter de interino, lo mismo que
-los demás ascensos que el movimiento de personal requiriere para
-reemplazar al servidor o servidores que fueren promovidos, durante el
-tiempo que el jefe respectivo lo considerare conveniente o necesario, o
-hasta por el período de suspensión de la relación de trabajo del titular.
-Siempre que se dispusiere un ascenso temporal o recargo de una posición
-superior, el jefe hará la calificación de los servicios prestado
-interinamente a efecto de que sea anotada en el prontuario. Si el titular
-saliere del servicio y se aprobare el ascenso en propiedad de su sustituto
-interino, el tiempo de la interinidad de éste se tendrá como de servicios
-regulares.
+Artículo 11.- Cuando un puesto excluido del Régimen de Servicio Civil, pasare al sistema de méritos que regulan el Estatuto y el presente Reglamento, el servidor que lo estuviera desempeñando podrá adquirir la condición de servidor regular, si a juicio de la Dirección General ha demostrado o demuestra su idoneidad por los procedimientos que esa Dirección General señale, y siempre que tuviera más de dos años de prestar sus servicios ininterrumpidos al Estado. La misma norma se aplicará al servidor sustituto interino, con dos o más años de laborar ininterrumpidamente en el mismo puesto, si éste quedare vacante al vencer la licencia otorgada al titular de la plaza, y siempre que el servidor sustituto, hubiere sido escogido del Registro de Elegibles que lleva la Dirección General.
+Se exceptúan de la presente disposición los servidores propiamente docentes, quienes para estos efectos se regularán por lo dispuesto en el capítulo V del título II del Estatuto."
+(Reformado por el artículo 1° del Decreto Ejecutivo No.24816 de 5 de diciembre de 1995)

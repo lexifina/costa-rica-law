@@ -1,5 +1,3 @@
-ARTICULO 58.- El Tribunal celebrará sus reuniones en el local de su
-asiento, cada vez que tenga asuntos que conocer, mediante acuerdo o
-convocatoria que hará su Presidente. El Reglamento Interior establecerá
-días determinados para las votaciones, y términos a los miembros del
-Tribunal, para el estudio de los expedientes y para dictar los fallos.
+Artículo 58.- El Tribunal celebrará sus reuniones en el local de su asiento, cada vez que tenga asuntos que conocer, mediante acuerdo o convocatoria que hará su Presidente. El Reglamento Interior establecerá días determinados para las votaciones, y términos a los miembros del Tribunal, para el estudio de los expedientes y para dictar los fallos.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del Transitorio XIII de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

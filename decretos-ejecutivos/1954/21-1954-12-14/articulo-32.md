@@ -1,17 +1,2 @@
-ARTICULO 32.- Los servidores deben gozar sin interrupciones de su
-período de vacaciones y sólo estarán obligados a dividirlas en dos o tres
-fracciones como máximum cuando se trate de labores de índole especial que
-no permitan una ausencia muy prolongada. El respectivo Jefe dispondrá la
-época en que cada servidor deba disfrutar de sus vacaciones, de acuerdo
-con las exigencias del trabajo y la conveniencia del servicio público,
-procurando hacerlo dentro de las quince semanas posteriores al día en que
-se cumplan las cincuenta semanas de servicio continuo. Si venciere dicho
-plazo sin que a, servidor se le hubiere señalado la fecha de sus
-vacaciones, deberá éste reclamarlas por escrito, dentro de los tres meses
-siguientes, ante el Jefe respectivo. Transcurrido este último período para
-obtener el disfrute de tal derecho, sobrevendrá la prescripción del mismo,
-en los términos del artículo 607 del Código de Trabajo.
-Las vacaciones podrán acumularse por una sola vez, mediante
-resolución razonada del respectivo Ministerio, únicamente en los casos de
-necesidad, al tenor de lo dispuesto por el artículo 159 del citado Código
-Laboral.
+Artículo 32.- Los servidores deben gozar sin interrupciones de su período de vacaciones y sólo podrán dividirlas hasta en tres fracciones por la índole especial de las labores que no permitan una ausencia muy prolongada, tal y como lo regula el artículo 158 del Código de Trabajo; los jefes respectivos están en la obligación de autorizar el pleno goce de este derecho a sus subalternos, y disponer el momento en que éstos lo disfruten, debiendo programarlas dentro de las quince semanas siguientes al advenimiento del derecho y otorgarlas antes de que se cumpla un nuevo período. Por consiguiente queda prohibido la acumulación de vacaciones, salvo cuando las necesidades del servicio lo requieran y a solicitud escrita del servidor, se podrá acumular únicamente un período, mediante resolución razonada de la máxima autoridad que así lo autorice, según los términos del Artículo 159 del citado Código.
+(Así reformado por el artículo 2° del Decreto Ejecutivo No.27604 del 5 de enero de 1999)

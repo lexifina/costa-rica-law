@@ -1,0 +1,3 @@
+Artículo 118.- Los jefes de las unidades o dependencias en donde ocurran cambios en las tareas y responsabilidades de los puestos debe informar de ellos al jerarca o jefe autorizado de la institución, para que decida si deben consolidarse o volver al estado original dichas tareas y responsabilidades.
+Si se determina su consolidación, se debe comunicar a la oficina de recursos humanos para que analice la factibilidad de tramitar la reasignación del puesto, conforme lo dispone el inciso b) del artículo 111 de este Reglamento.
+(Así reformado por el artículo 7° del Decreto Ejecutivo No. 22422 del 5 de agosto de 1993).

@@ -1,28 +1,19 @@
-Las Licencias.
-ARTICULO 33.- Podrán disfrutar de licencia ocasional de excepción, de
-conformidad con los requisitos y formalidades que en cada dependencia
-establezca el Reglamento Interior de Trabajo, en las circunstancias que a
-continuación se indican:
-a) Los jefes podrán conceder licencias hasta por una semana con goce
-de sueldo, en caso de matrimonio del servidor y de fallecimiento de
-cualquiera de sus padres, hijos, hermanos o cónyuge;
-b) Todos los demás permisos con goce de sueldo que conforme a
-disposiciones reglamentarias internas sea procedentes, deberán ser
-deducidos del período de vacaciones, sin que el número de días de la
-licencia pueda exceder el número de días de vacación que correspondan al
-servidor en el momento de otorgarse el permiso; y
-c) Las licencias sin goce de salario podrán ser otorgadas hasta por
-un año, en casos muy calificados, tales como graves asuntos de familia,
-convalecencia o tratamiento médico cuando así lo requiera la salud del
-servidor; y hasta por dos años a instancia de un Gobierno extranjero, de
-un Organismo Internacional (*), de una Institución Pública o de otro de
-los Poderes del Gobierno de la República.
-Las licencias sin goce de sueldo que excedan de una semana deberán
-ser otorgados por el respectivo Ministro mediante acuerdo ejecutivo; las
-demás podrán ser otorgadas por el jefe, por medio de la fórmula de "Acción
-de Personal", excepto que la importancia de las funciones del servidor
-exija en todo caso acuerdo ejecutivo. Quedan a salvo las licencias para
-asistir a estudios, que se regulan por la Ley Nº 1810 de 15 de octubre de
-1954 y por las disposiciones pertinentes del presente Reglamento.
-----------
-(*) Reformado por decreto Nº 4 de 26 de enero de 1955.
+Las Licencias:
+Artículo 33° .- Podrán disfrutar de licencia ocasional de excepción, de conformidad con los requisitos y formalidades que en cada dependencia establezca el Reglamento Autónomo de Servicio, y sujetos a los siguientes procedimientos y condiciones:
+a. Los jefes podrán conceder licencia hasta por una semana con goce de sueldo en los casos de matrimonio del servidor, el fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge. También podrán conceder este derecho a aquellos servidores padres de hijos nacidos dentro o fuera del matrimonio. En este último sólo cuando sean hijos reconocidos y, en ambos siempre que comprueben el ejercicio amplio de su función paternal.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 26267 de 14 de agosto de 1997)
+b. Todos los demás permisos con goce de sueldo, que de acuerdo con las disposiciones reglamentarias internas procedan, deberán ser deducidas del período de vacaciones, sin que el número de días de la licencia exceda el número de días de vacaciones que correspondan al servidor al momento de otorgarse el permiso. Salvo el caso de los dirigentes y miembros de sindicatos que soliciten licencia para asistir a cursos de capacitación en el campo sindical o de estudios generales en el país o fuera de él, a quienes el jerarca podrá conceder licencia con goce de sueldo no deducible de su período de vacaciones, hasta por tres meses, cuando las necesidades de la oficina donde presta sus servicios así lo permitan.
+Para estos efectos, el Ministro de Trabajo y Seguridad Social enviará al jerarca que corresponda, un informe detallado sobre la importancia del curso o seminario, indicando además el cargo o función sindical que desempeña el servidor interesado.
+La servidora que adopte un menor de edad tendrá derecho a una licencia especial de tres meses para que ambos tengan un período de adaptación. En tal caso, la licencia se iniciará a partir de día inmediato siguiente a aquel en que se le haga entrega del menor. Para esto la funcionaria interesada deberá presentar certificación del Patronato Nacional de la Infancia o del Juzgado de Familia correspondiente, en el que haga constar los trámites de adopción y
+c. Las licencias sin goce de salario hasta por un mes podrán concederse mediante resolución interna firmada por el Ministro, Viceministro, o el máximo jerarca de la institución respectiva, mientras que las licencias mayores de un mes podrán concederse con apego estricto a las disposiciones siguientes:
+1) Seis meses para asuntos personales del servidor. Esta licencia podrá ser prorrogada hasta por seis meses más en casos muy especiales a juicio del Ministro o máximo jerarca de la Institución.
+2) Un año para: i) asuntos graves de familia, tales como enfermedad, convalecencia, tratamiento médico cuando así lo requiera la salud del servidor, ii) la realización de estudios académicos a nivel superior de pregrado, grado o postgrado o a nivel técnico que requieran de la dedicación completa durante la jornada de trabajo del servidor y iii) que el servidor se desligue de la institución en la que labora con la finalidad de participar en la ejecución de proyectos experimentales dentro de un programa de traspaso de actividades del sector público hacia el sector privado, que haya sido aprobado previamente por la autoridad superior de su institución.
+Dicho plazo podrá prorrogarse hasta por un año más, a juicio del Ministro o máximo jerarca de la institución, cuando se trate de la realización de estudios a nivel superior de postgrado, o bien estudios a nivel superior o técnico, previa demostración favorable del aprovechamiento y rendimiento académico del año anterior. En los casos específicos de tratamiento médico, igualmente, se podrá prorrogar hasta por un año más la licencia, previa demostración y comprobación del respectivo tratamiento médico.
+3) Dos años -prorrogables por períodos iguales- cuando se trate de funcionarios nombrados en cargos de elección en sindicatos debidamente reconocidos y que, además, requieran dedicación exclusiva durante el tiempo de la jornada laboral; todo ello previa la demostración y comprobación respectivas.
+4) Dos años a instancia de ungobierno extranjero o de un organismointernacional o regional debidamente acreditado en el país, o de fundaciones cuyos fines beneficien directamente al Estado, o cuando se trate del cónyuge de un becario, que deba acompañarlo en su viaje al exterior. A juicio del máximo jerarca respectivo, estas licencias podrán prorrogarse hasta por un período igual siempre y cuando prevalezcan las condiciones que la originaron.
+5) Cuatro años, a instancia de cualquier institución del Estado, o de otra Dependencia del Poder Ejecutivo, o cuando se trate del cónyuge de un funcionario nombrado en el Servicio Exterior; o en los casos de los funcionarios nombrados en otros cargos públicos. El plazo anterior podrá ampliarse hasta por un período igual, cuando subsistan las causas que motivaron la licencia original.
+6) No podrán concederse licencias continuas argumentando motivos iguales o diferentes, hasta después de haber transcurrido por lo menos seis meses del reintegro del servidor al trabajo, excepto casos muy calificados a juicio del Ministro o máximo jerarca de la institución sin que se perjudiquen los fines de la administración.
+Toda solicitud de licencia sin goce de salario ( o prórroga ) deberá presentarse con los documentos en que se fundamentan y la respaldan y su tramitación deberá hacerse con la antelación que la fecha de rige
+requiera. En el caso de que el servidor se ausentare del trabajo sin la debida aprobación de la licencia o prórroga, se considerará el hecho como abandono de trabajo, y por lo tanto, podrá despedirse de conformidad con el artículo 43 del Estatuto de Servicio Civil.
+Quedan a salvo las circunstancias comprobadas de extrema limitación de tiempo para estos trámites en que, por tal razón el servidor se vea obligado a ausentarse antes de completar debidamente el trámite; en cuyo caso el servidor quedará sujeto a las soluciones administrativas que más convengan a la Administración a fin de que esta pueda resarcirse de los gastos y pagos salariales en que haya incurrido por esta causa.
+(Así reformado por el artículo 4° del Decreto Ejecutivo N° 26162 de 4 de julio de 1997).

@@ -1,17 +1,5 @@
-ARTICULO 73.- Cuando uno, dos o todos los miembros propietarios del
-Tribunal, tuvieren causal de excusa, se procederá así:
-a) En cuanto se formule la excusa, el Tribunal dará audiencia por
-veinticuatro horas a la parte o partes que por la causal alegada, tuvieren
-derecho a recusar;
-b) Si en el acto de la notificación o dentro del término de la
-audiencia, la parte o partes a que se refiere el inciso anterior no
-apoyaren expresamente la excusa, se tendrá por allanada ésta y se
-declarará hábil al miembro o miembros de que se trate, para seguir
-interviniendo en el negocio; y c) Si la excusa fuere apoyada por quien
-tuviere derecho a hacerlo, se procederá de acuerdo con las disposiciones
-aplicables de los dos artículos que preceden. Se admitirán como ciertos
-los hechos afirmados por el miembro que se excusa, bajo apercibimiento de
-que, si se llegare a demostrar que ellos no son ciertos o que contrajo la
-causal maliciosamente, se hará acreedor a las acciones que entable
-cualquier perjudicado para hacer efectivas las responsabilidades penales
-y civiles en que haya podido incurrir.
+Artículo 73.- Cuando uno, dos o todos los miembros propietarios del Tribunal, tuvieren causal de excusa, se procederá así:
+a) En cuanto se formule la excusa, el Tribunal dará audiencia por veinticuatro horas a la parte o partes que por la causal alegada, tuvieren derecho a recusar;
+b) Si en el acto de la notificación o dentro del término de la audiencia la parte o partes a que se refiere el inciso anterior no apoyaren expresamente la excusa, se tendrá por allanada ésta y se declarará hábil al miembro o miembros de que se trate, para seguir interviniendo en el negocio; y
+c) Si la excusa fuere apoyada por quien tuviere derecho a hacerlo, se procederá de acuerdo con las disposiciones aplicables de los dos artículos que preceden. Se admitirán como ciertos los hechos afirmados por el miembro que se excusa, bajo apercibimiento de que, si llegare a demostrar que ellos no son ciertos o que contrajo la causal maliciosamente se hará acreedor a las acciones que entable cualquier perjudicado para hacer efectivas las responsabilidades penales y civiles en que haya podido incurrir.
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )

@@ -1,10 +1,2 @@
-ARTICULO 16.- Los jefes de familia tendrá derecho a puntos de
-preferencia, sobre la calificación obtenida en sus pruebas, siempre que
-ésta sea de 70% o más, a razón de dos puntos por cada persona dependiente.
-Para los efectos de esta disposición, se entenderá por "jefe de
-familia", quien tenga a cargo suyo la dependencia económica de otras
-personas, siempre que se trate de cónyuge, ascendiente, descendiente y
-colaterales hasta el tercer grado inclusive, y menores de dieciocho años
-de edad. Se presume que estas personas viven a expensas del servidor, si
-habitan en la misma casa de éste y carecen en todo o en parte de recursos
-propios para su manutención.
+Artículo 16.- Todos los documentos relacionados con las pruebas de los oferentes podrán ser destruidos después de transcurridos tres meses de la fecha del establecimiento del registro de elegibles. Los oferentes que participen en concursos por oposición, podrán ver todos los documentos relativos a sus exámenes, pero deberán solicitarlo dentro del mes siguiente a la fecha de la notificación del resultado de las pruebas.
+(Reformado por artículo 1° del Decreto Ejecutivo No. 21685 de 26 de octubre de 1992).
