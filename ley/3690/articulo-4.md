@@ -1,1 +1,1 @@
-Artículo 4°—La Ciudad de los Niños, el Asilo de Ancianos, la Junta de Educación, el Hospicio de Huérfanas y el Colegio Vocacional de Artes y Oficios (COVAO), continuarán percibiendo las subvenciones y demás ingresos que reciban del Estado.
+Artículo 4°—Esta ley es de orden público y rige a partir de su publicación.
