@@ -1,0 +1,2 @@
+Limpieza de vegetación y cuidado de las vías públicas
+Artículo 2°—Es obligación de los propietarios de bienes inmuebles, mantener limpio de toda vegetación dañina en las orillas de acera, los caminos públicos, las rondas y paredones, recortar las ramas de los árboles que den sombra a los caminos públicos, realizar el desagüe de cercas una vez al año en época apropiada, lodo a requerimiento con instrucciones de los funcionarios municipales.

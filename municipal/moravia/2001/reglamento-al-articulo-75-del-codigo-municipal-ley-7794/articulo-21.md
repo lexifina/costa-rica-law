@@ -1,0 +1,2 @@
+Tarifas
+Artículo 21.—Se entenderá por tarifas a cobrar por la Municipalidad a los propietarios omisos de los deberes, el precio que se le cobrará por el servicio u obra que deba ejecutar esta entidad, ante la omisión de los propietarios de los inmuebles ubicados en el cantón de cumplir con los deberes que le ordena el Código Municipal en su articulo 75 y que este Reglamento señala en el articulo 1° y sus respectivos incisos.

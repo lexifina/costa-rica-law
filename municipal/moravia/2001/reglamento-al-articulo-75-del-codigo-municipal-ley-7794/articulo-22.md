@@ -1,0 +1,1 @@
+Artículo 22.—Para los efectos de este Reglamento el sujeto pasivo es toda aquella persona que por cualquier titulo sea propietaria de un inmueble y que esté por tal condición obligada al cumplimiento de los deberes que el Código Municipal contempla en el articulo 75 y que este Reglamento señala en su articulo 1° y respectivos incisos.

@@ -1,0 +1,2 @@
+Del procedimiento para el cobro
+Artículo 24. — La Municipalidad cobra una tarifa por las omisiones a los deberes de los propietarios de los bienes inmuebles localizados en el cantón, la que se fijará tomando en consideración el costo electivo en que ella incurra para ¡levar a cabo el servicio o la obra que corresponda ejecutar, por la omisión del propietario en realizarla, más un diez por ciento de utilidad para desarrollarlos, según lo presentado en los numerales 65 y 74 en relación con los artículos 75 y 76 del Código supracitado.

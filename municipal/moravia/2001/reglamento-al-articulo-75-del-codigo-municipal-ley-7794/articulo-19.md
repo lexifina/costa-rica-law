@@ -1,0 +1,1 @@
+Artículo 19. —En lodo lo concerniente a la construcción de aceras, el propietario del bien Inmueble seguirá las instrucciones emanadas de los funcionarios municipales competentes. En e! diseño de las aceras, la Municipalidad tendrá en cuenta ornato, seguridad y comodidad de los transeúntes.

@@ -1,0 +1,1 @@
+Artículo 12.—Si el propietario no atendiere lo expresado en los articules 10 y 11 del presente reglamento, la Municipalidad queda facultada, según corresponda a suspender las obras o a la eliminación de los obstáculos, esto por cuenta del propietario.
