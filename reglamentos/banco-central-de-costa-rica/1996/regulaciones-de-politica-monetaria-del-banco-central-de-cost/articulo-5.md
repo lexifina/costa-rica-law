@@ -7,7 +7,8 @@ Cálculo
 1. La tasa básica pasiva se calculará el día miércoles de cada semana.
 2. Se emplearán como ponderadores los saldos disponibles de captación a seis meses plazo de cada una de las entidades incluidas en el cálculo.
 3. La tasa de interés del Banco Popular y de Desarrollo Comunal deberá ajustarse por el porcentaje correspondiente al Impuesto sobre la Renta, a fin de hacerla consistente con las tasas reportadas por los restantes emisores.
-4. La tasa resultante se deberá redondear al décimo de punto porcentual más cercano.
+4. La tasa resultante se deberá redondear al cuarto de punto porcentual más cercano.
+(Así reformado el inciso anterior en sesión N° 4904 del 22 de enero de 1997)
 II.- TASA DE INTERES DE LOS CREDITOS DE
 REDESCUENTO
 A. Definición

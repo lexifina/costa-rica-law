@@ -15,5 +15,4 @@ E. Los procedimientos y las condiciones para recibir las ofertas de adquisición
 F. Las subastas podrán hacerse en conjunto con la Tesorería Nacional.
 III.-Las mesas de dinero
 La Administración del Banco Central podrá captar, de las entidades supervisadas por la SUGEF y con fines de estabilización monetaria, recursos en moneda nacional a corto plazo. Lo anterior de acuerdo con los lineamientos que dicte la Junta Directiva del Banco Central de Costa Rica.
-IV.-Disposiciones transitorias
-El Banco Central de Costa Rica continuará captando en moneda extranjera. por intermedio de los bancos comerciales. mediante la figura de encaje 100% hasta el 30 de junio de 1996, según las disposiciones vigentes antes de la publicación de la ley 7558 y hasta dicha fecha. la Institución podrá fijar las tasas de interés en moneda extranjera para los depósitos a plazo que se capten en el Sistema Bancario Nacional. Previo al 30 de junio de 1996 el Banco Central de Costa Rica anunciará a los intermediarios financieros los mecanismos disponibles para que dichas entidades puedan mantener esos fondos de encaje en el Banco Central de Costa Rica.
+IV.- (Derogado este numeral en sesión N° 4904 del 22 de enero de 1997)
