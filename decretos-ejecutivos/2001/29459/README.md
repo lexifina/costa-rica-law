@@ -14,3 +14,4 @@ Reglamento que Regula los Incentivos Salariales de los Funcionarios de la Direcc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-09 | la propia norma |
+| 2 | 2002-02-18 | Decreto Ejecutivo 30192 (2002-02-18) |

@@ -1,5 +1,2 @@
-Artículo 2º—Se otorgará un aumento anual de hasta 1.5% del salario base a los funcionarios que obtengan una calificación de bueno, muy bueno o excelente, conforme a la siguiente escala:
-1. Bueno: 0,5 % del salario base.
-2. Muy bueno: 1,0 % del salario base.
-3. Excelente: 1,5 % del salario base.
-El aumento regirá a partir del primer día del mes siguiente a aquel en que se realice la calificación.
+Artículo 2º—DEROGADO por el artículo 3° del Decreto Ejecutivo N° 30192 de 18 de febrero del 2002.
+(Al respecto ver lo dispuesto en dictamen N° C-243-99 de la Procuraduría General de la República)

@@ -10,4 +10,5 @@ Considerando:
 3º—Que de conformidad con lo que se dispone en el artículo 74 de la Ley, los incentivos salariales deben ser especificados por la vía de Reglamento. Por tanto,
 Decretan:
 Reglamento que regula los incentivos salariales de los funcionarios de la Dirección de Inteligencia y Seguridad, cubiertos por el Régimen del Estatuto Policial
-Artículo 1º—La administración de los incentivos salariales de los funcionarios de la Dirección de Inteligencia y Seguridad Nacional, cubiertos por el Régimen del Estatuto Policial, se regirá por lo dispuesto en este Reglamento.
+Artículo 1º—La administración de los incentivos salariales de los funcionarios de la Dirección de Inteligencia y Seguridad Nacional, cubiertos por el Régimen del Estatuto Policial, se regirá por lo dispuesto en este Reglamento y por las directrices emanadas del Consejo de Personal, una vez que los funcionarios hayan superado el período de prueba establecido por el artículo 53 de la Ley General de Policía Nº 7410.
+(Así reformado por el artículo 2 del Decreto Ejecutivo N° 29459 de 18 de febrero del 2002)
