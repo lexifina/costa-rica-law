@@ -14,3 +14,4 @@ Reglamento que Regula el Procedimiento para Proponer al Sujeto Pasivo la Regular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-30 | la propia norma |
+| 2 | 2003-04-24 | Reglamento 3277 (2003-04-24) |

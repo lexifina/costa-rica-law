@@ -1,1 +1,2 @@
-Articulo 6—La aplicación del procedimiento regulado en este Reglamento corresponderá a la Auditoria Interna del Instituto.
+Artículo 6º—La aplicación del procedimiento regulado en este Reglamento, la elaboración y el traslado de cargos y observaciones, corresponderá a la Sección de Contabilidad y Finanzas del Instituto, en un plazo máximo de quince días naturales a partir de la fecha en que ésta lo recibió.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Extraordinaria No. 3277, celebrada el 24 de abril de 2003, publicada en La Gaceta No 122 de 26 de junio de 2003.)
