@@ -1,0 +1,1 @@
+Artículo 11.—En caso de que la diligencia requiera más tiempo, o demandare más gastos de los contemplados por el Despacho en su fijación prudencial, el notario presentará la liquidación con la justificación pertinente, a la cual acompañará los comprobantes respectivos.
