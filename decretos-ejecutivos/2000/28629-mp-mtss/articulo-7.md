@@ -1,0 +1,1 @@
+Artículo 7º—El IMAS cancelará, directamente, a las instituciones acreedoras las obligaciones de los beneficiarios objeto de este Decreto y mantendrá constancia en los registros institucionales que se definan al efecto. Bajo ninguna circunstancia el IMAS girará recursos directamente a nombre de los beneficiarios de este proceso.

@@ -1,0 +1,1 @@
+Artículo 6º—Para la ejecución del presente Decreto, el IMAS deberá tomar las previsiones administrativas a fin de designar una unidad responsable de su implementación, seguimiento y control, de conformidad con las normas y procedimientos establecidos al efecto, y a fin de garantizar eficacia, eficiencia y transparencia en la asignación de los referidos beneficios.

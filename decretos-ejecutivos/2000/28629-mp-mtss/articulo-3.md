@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión Liquidadora del Programa de Compensación publicará en La Gaceta el listado de beneficiarios determinados en el artículo anterior de este Decreto previo a la remisión del mismo al Instituto Mixto de Ayuda Social.

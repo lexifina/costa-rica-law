@@ -1,0 +1,1 @@
+Artículo 2º—Dentro del término de cuarenta y cinco días contados a partir de la publicación del presente Decreto, la Comisión Liquidadora del Programa de Compensación Social deberá dar traslado al Instituto Mixto de Ayuda Social de los expedientes de reclamos de los beneficiarios de dichos programas que clasifiquen de acuerdo a los términos de este Decreto.
