@@ -1,0 +1,1 @@
+8º.-Los profesionales que estén disfrutando de la carrera profesional, con una formación académica no atinente a la especialidad del puesto o que ocupen actualmente un puesto profesional en propiedad de similares condiciones, mantendrá el derecho a disfrutar de los beneficios de la carrera profesional.
