@@ -1,0 +1,1 @@
+Artículo 13.—En caso de que los documentos sean consultados por historiadores o con el fin de elaborar investigaciones importantes, y a juicio del Archivista, éste solicitará una copia del trabajo realizado y pasará a formar parte del patrimonio documental del Archivo Central de la Municipalidad.
