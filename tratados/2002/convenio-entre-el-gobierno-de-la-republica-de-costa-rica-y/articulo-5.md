@@ -1,0 +1,2 @@
+Artículo 5
+Las Partes fomentarán el intercambio, entre sus entidades nacionales de turismo, de información estadística y de otro tipo en este campo, incluso de actas legislativas y otras normas jurídicas, que regulan la actividad turística en sus Estados; sobre la legislación nacional ligada a la defensa y a la conservación de recursos naturales y culturales que representan interés turístico; sobre los recursos turísticos de sus países, las experiencias en manejo de hoteles y otras empresas al servicio de turistas; el intercambio de material informativo y de publicidad.

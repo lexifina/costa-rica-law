@@ -1,0 +1,2 @@
+Artículo 2
+Las Partes apoyarán a las instituciones nacionales de turismo de sus países en su labor, dirigida a establecer y desarrollar la colaboración entre las asociaciones, organizaciones, empresas y compañías turísticas rusas y costarricenses que toman parte en el desarrollo del turismo internacional, realizan las inversiones en el campo del turismo y organizan empresas conjuntas con el propósito de dar servicio a los turistas.
