@@ -1,0 +1,1 @@
+21.-EI atraso en el pago tendrá un recargo con carácter de multa del dos por ciento por cada mes. El pago que se efectúe fuera del término indicado obliga al beneficiario a pagar conjuntamente con la mensualidad y la multa que corresponda, intereses calculados al dos por ciento mensual sobre la suma adeudada, según lo establecido en el artículo 82 del Código Municipal.

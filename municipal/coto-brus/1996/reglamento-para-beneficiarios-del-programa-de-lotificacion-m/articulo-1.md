@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE COTO BRUS
+REGLAMENTO PARA BENEFICIARIOS DEL PROGRAMA
+DE LOTIFICACION MUNICIPAL PARA CONSTRUCCION DE VIVIENDA
+1°-La persona interesada. deberá presentar en un formulario sus datos personales y familiares.
