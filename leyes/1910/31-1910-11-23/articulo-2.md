@@ -1,0 +1,1 @@
+Articulo 2° Facultase al Poder Ejecutivo para que, una vez resuelta por la Corte de Casación la demanda la nulidad de las elecciones de primer grado recién verificadas en Talamanca, distrito 6° de la Provincia de Limón, cualquiera que sea su resuelto, señale fecha para practicar las elecciones de diputados por la misma provincia y las de munícipes y procuradores síndicos.
