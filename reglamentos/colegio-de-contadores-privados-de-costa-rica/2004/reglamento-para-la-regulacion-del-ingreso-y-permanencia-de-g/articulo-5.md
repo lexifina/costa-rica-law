@@ -1,0 +1,1 @@
+Artículo 5º—Las solicitudes de exoneración de pago de la cuota de ingreso para los equipos o personas visitantes, deberán ser aprobadas por la Junta Directiva, incluyendo la cantidad, nombre y cédula de sus integrantes. Previa solicitud de los interesados con 30 días de anticipación la que se ajustará a la normativa que emite la Junta Directiva.

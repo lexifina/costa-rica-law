@@ -1,0 +1,1 @@
+Artículo 2º—De su finalidad. La conformación de sus grupos de representación, deportiva, cultural y social, tendrá como fin fomentar el acercamiento social y profesional de los contadores, procurando su unión familiar y social, mediante la participación activa de sus miembros dentro y fuera del Club.

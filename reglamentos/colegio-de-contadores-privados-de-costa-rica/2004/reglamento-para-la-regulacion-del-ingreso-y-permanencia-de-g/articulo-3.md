@@ -1,0 +1,1 @@
+Artículo 3º—De su existencia: La Junta Directiva del Colegio reconocerá la formación de grupos a derecho para realizar actividades deportivas, culturales y sociales, para lo cual deberán inscribirse en el Registro que al respecto llevara la administración del Colegio
