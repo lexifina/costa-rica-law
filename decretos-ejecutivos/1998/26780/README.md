@@ -14,3 +14,4 @@ Promulga Addendum al Convenio Financiación ALA/91/93 entre la Comisión de las 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
+| 2 | 1998-02-02 | Ley 8 |
