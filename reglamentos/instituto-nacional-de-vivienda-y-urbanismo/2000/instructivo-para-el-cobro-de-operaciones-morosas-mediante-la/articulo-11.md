@@ -1,0 +1,1 @@
+Artículo 11.—Los gastos procesales tales como, especies fiscales, estudios de registro de bienes muebles e inmuebles, pago de peritajes, pago de juez ejecutor y certificaciones, publicaciones de edictos y otros necesarios para la validez del proceso, estarán a cargo del abogado y deberán ser presentados a cobro en la liquidación respectiva, debidamente acreditados.
