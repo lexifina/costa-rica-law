@@ -1,0 +1,7 @@
+Artículo IX.6 Estándares incluida Metrología
+1. Las Partes reafirman sus derechos y obligaciones bajo el Acuerdo sobre Obstáculos Técnicos al Comercio de la Organización Mundial del Comercio (OMC), que es parte del Anexo 1A del Acuerdo de la OMC.
+2. Las Partes utilizarán las disposiciones relevantes sobre solución de controversias del Acuerdo de la OMC para cualquier disputa formal respecto de sus derechos y obligaciones bajo el Acuerdo sobre Obstáculos Técnicos al Comercio de la OMC.
+3. Las Partes desarrollarán programas de cooperación técnica dirigidos a alcanzar su cumplimiento total y efectivo con las obligaciones establecidas en el Acuerdo sobre Obstáculos Técnicos al Comercio de la Organización Mundial del Comercio. Para este fin, las Partes alentarán a sus autoridades competentes en las áreas de estándares, incluida metrología, que tomen parte de las siguientes actividades con el propósito de fortalecer sus procesos y sistemas en esta área:
+a) la promoción del intercambio bilateral de información institucional y reglamentaria y la cooperación técnica; y
+b) la promoción de coordinación bilateral por parte de las agencias apropiadas, de estándares en los foros multilaterales e internacionales, incluyendo metrología.
+4. Las Partes incluirán regularmente asuntos relacionados con la cooperación y coordinación bilateral relacionados con estándares, incluyendo metrología, en la agenda de los Coordinadores.
