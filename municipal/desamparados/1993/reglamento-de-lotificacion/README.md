@@ -14,3 +14,4 @@ Reglamento de Lotificación.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-03 | la propia norma |
+| 2 | 1993-12-03 | Ley 8 |
