@@ -12,3 +12,4 @@ Reglamenta Expedición y Uso Tarjeta de Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1956-10-16 | la propia norma |
+| 2 | 1956-10-16 | SINALEVI (sin norma nombrada) |

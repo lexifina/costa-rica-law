@@ -12,5 +12,6 @@ Por tanto,
 DECRETA
 Artículo 1º.- Las personas que deseen ingresar al territorio
 nacional dentro de las previsiones del artículo 38 de la ley Nº 1917 de
-30 de julio de 1955, podrán hacerlo al amparo de la "Tarjeta de Turismo"
-que autoriza ese Decreto Legislativo.
+30 de julio de 1955, podrán hacerlo al amparo de la "Tarjeta de Turismo",
+bajo las condiciones y limitaciones que adelante se establecen.
+(Así reformado por Decreto Nº 6464 de 21 de octubre de 1976. artículo 1º)
