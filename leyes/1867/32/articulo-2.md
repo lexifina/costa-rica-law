@@ -1,0 +1,1 @@
+Art 2° Toda embarcación, cualquiera que sea su procedencia, puede bajo bandera amiga o neutral, importar o exportar toda clase de mercaderías, excepto las prohibidas o estancadas, depositarlas y transbordarlas libremente con sujeción a los reglamentos que este Gobierno emita.
