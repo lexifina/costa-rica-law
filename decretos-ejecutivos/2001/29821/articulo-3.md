@@ -1,0 +1,1 @@
+Artículo 3º—Adiciónase a las exclusiones indicadas en el artículo N° 2 inciso b) del Decreto Ejecutivo Nº 28639-H del Consejo Nacional de Producción las Materias Primas y Mercaderías, compradas a través del Programa de Abastecimiento Institucional.

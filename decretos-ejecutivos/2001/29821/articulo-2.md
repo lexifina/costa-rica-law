@@ -1,0 +1,1 @@
+Artículo 2º—Asimismo, se establecen los límites de gasto corriente presupuestario y gasto corriente efectivo que se estipulan en el artículo 3° del DE N° 28639-H y sus reformas para el 2001, de manera que el gasto corriente presupuestario y el gasto corriente efectivo de este año, no podrán exceder la suma de ¢4.210.5 millones y ¢5.285.9 millones, respectivamente.
