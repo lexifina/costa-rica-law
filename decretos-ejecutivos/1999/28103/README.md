@@ -14,3 +14,4 @@ Declara de Interés Cultural Presentaciones del Espectáculo TARTUFO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-01 | la propia norma |
+| 2 | 1999-08-05 | Ley 7 |
