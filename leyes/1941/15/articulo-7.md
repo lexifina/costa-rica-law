@@ -1,2 +1,1 @@
-Artículo 7º.- Ningún establecimiento que pagare patente al Colegio, estará obligado al pago de impuestos municipales por esos mismos conceptos. No obstante, las municipalidades podrán gravar aquellas actividades complementarias no enmarcadas dentro de las funciones propias de los establecimientos farmacéuticos, contempladas en las definiciones que la ley o sus reglamentos señalen para dichos establecimientos.
-Las deudas a favor del Colegio por concepto de patentes se considerarán créditos privilegiados y tendrá carácter de título ejecutivo.
+Artículo 7º.- (Anulado mediante resolución de la Sala Constitucional N° 03477del 10 de julio de 1976)
