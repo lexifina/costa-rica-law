@@ -1,0 +1,12 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUACULTURA
+AJDIP/362-2004.—Puntarenas, a los cinco días del mes de agosto del año dos mil cuatro.
+Considerando:
+1º—Que mediante oficio SDGT-135-2004, el señor Marvin Mora, Director Técnico, emite criterio respecto a solicitud planteada a efecto que se permita durante la época de veda, utilizar el chinchorro bolinchero para capturar carnada.
+2º—Que la Dirección Técnica recomienda autorizar el uso del chinchorro bolinchero y a la vez, sugiere modificar el acuerdo AJDIP/252-2004, con el objetivo de regular la longitud del chinchorro playero para barrer carnada. Por tanto:
+SE ACUERDA:
+1º—Acoger criterio vertido por la Dirección Técnica Mediante oficio SDGT-135-2004, y modificar los artículos 3º, 4º y 5º, del acuerdo AJDIP/252-2004, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 3º—Durante el período comprendido entre el 1°de junio al 31 de julio del 2004 y del 16 de octubre y el 15 de noviembre de 2004, únicamente se puede utilizar en la pesca artesanal en pequeña escala la Línea Planera de trescientos (300) anzuelos número 6 (N° 6), la cuerda de mano, el chinchorro playero de barrer para extraer carnada, el cual no deberá contar con bolsa y su longitud no será mayor de 8 metros. Se prohíbe la utilización del trasmallo de cualquier luz de malla. Esta regulación se aplica en el área comprendida entre una línea recta imaginaria que va desde Punta Torres (84° 43” 52’ W, 9° 53” 31’ N) hasta Punta Cuchillos (84’51’50”W, 9°49’36”N) y de ahí aguas adentro hasta el extremo occidental de dicho Golfo en la Península de Nicoya (Desembocadura del Río Tempisque).
+Artículo 4º—A los pescadores que se les encuentre realizando labores de pesca con su licencia de pesca inactiva o vencida, así como capturando especies o grupos comerciales o en zonas y con artes de pesca no autorizadas en su respectiva licencia de pesca, se les iniciará los procedimientos administrativos correspondientes y se les iniciarán los procesos legales para que se les suspenda el subsidio económico o tenga que reintegrar el dinero otorgado con tal fin. Además que se les iniciarán los procesos legales correspondientes.
+Artículo 5º—Se permite el uso del chinchorro bolichero para la captura de carnada viva con las siguientes características: sin bolsa, máximo 30 metros de longitud y 8 metros de alto y luz de malla máxima de 1/4 de pulgada”.
+2º—Publíquese.
+Puntarenas, 6 de setiembre del 2004.
