@@ -1,6 +1,6 @@
-Artículo 32.-Prohibiciones. Queda prohibido terminantemente fijar o
-pintar avisos, anuncios, programas, etc., de cualquier clase y material,
-en los siguientes lugares:
+Artículo 32.- Prohibiciones. Queda prohibido terminantemente fijar
+o pintar avisos, anuncios, programas, etc., de cualquier clase y
+material, en los siguientes lugares:
 a) Edificios públicos, escuelas y templos.
 b) Edificios catalogados por la Municipalidad como monumentos
 nacionales.
