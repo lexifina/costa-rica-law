@@ -1,0 +1,1 @@
+Artículo 9º—La mercadería debe venir acompañada de la factura y orden de compra correspondiente. Sin estos documentos, no se debe recibir ninguna mercadería, las cuales deben firmarse y estampárseles un sello de recibido. Una vez recibidos estos documentos por la Proveeduría, los pasará a la Tesorería para trámite de pago.

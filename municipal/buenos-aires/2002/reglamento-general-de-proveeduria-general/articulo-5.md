@@ -1,0 +1,1 @@
+Artículo 5º—Cuando se trate de la adquisición y pago de servicios y/o suministros, de carácter urgente, inferiores a ¢10.000,00 (diez mil colones), la solicitud se hará por caja chica, mediante el formulario N° 4, "Adelanto de Fondos por Caja Chica".
