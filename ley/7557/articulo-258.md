@@ -1,5 +1,9 @@
-ARTICULO 258.- Carácter de la ley y vigencia
-Esta ley es de orden público y entrará en vigor el mismo día en que
-entre a regir, para Costa Rica, el Protocolo de modificación del Código
-Aduanero Uniforme Centroamericano II, del Tratado General de Integración
-Económica, aprobado mediante Ley No. 7485, del 6 de abril de 1995.
+Artículo 258.- Vinculación
+Para los efectos del inciso h), párrafo cuarto, artículo 15 de Acuerdo relativo a la aplicación del artículo VII del Acuerdo General sobre Aranceles Aduaneros y Comercio de 1994, las personas solo se considerarán de la misma familia, si están vinculadas entre sí por cualquiera de las siguientes relaciones:
+a) Cónyuges.
+b) Ascendientes y descendientes en línea directa, en primer grado.
+c) Hermanos y hermanas.
+d) Tío y tía y sobrino y sobrina.
+e) Suegros y yernos o nueras.
+f) Cuñados y cuñadas.
+(Así adicionado y modificada su numeración por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)

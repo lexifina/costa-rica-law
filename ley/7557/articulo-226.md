@@ -5,6 +5,6 @@ consiguientemente, se les aplicarán las penas respectivas a los
 representantes legales, gerentes o administradores responsables del
 cumplimiento de tales obligaciones; asimismo, a los socios de sociedades
 de personas o a los directores de sociedades anónimas según corresponda,
-cuando hayan adoptado las decisiones que impliquen la comisión del
-delito. Cada uno de los indicados antes, será sancionado de acuerdo con
-su propia responsabilidad personal.
+cuando hayan adoptado las decisiones que impliquen la comisión del delito.
+Cada uno de los indicados antes, será sancionado de acuerdo con su propia
+responsabilidad personal.

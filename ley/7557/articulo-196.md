@@ -1,6 +1,6 @@
 ARTICULO 196.- Actuaciones comunes del procedimiento ordinario
-Para emitir cualquier acto que afecte derechos subjetivos o
-intereses legítimos, deberán observarse las siguientes normas básicas:
+Para emitir cualquier acto que afecte derechos subjetivos o intereses
+legítimos, deberán observarse las siguientes normas básicas:
 a) La apertura del procedimiento, de oficio o a instancia de parte,
 debe ser notificada a las personas o entidades que puedan verse
 afectadas.

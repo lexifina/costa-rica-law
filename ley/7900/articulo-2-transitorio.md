@@ -1,0 +1,1 @@
+Transitorio II.- A las infracciones administrativas cometidas con anterioridad a la vigencia de esta ley se les aplicará la sanción más benigna. Además se les aplicará, según corresponda, las reducciones establecidas en el artículo 88 del Código de Normas y Procedimientos Tributarios.
