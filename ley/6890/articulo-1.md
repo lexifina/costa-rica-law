@@ -1,3 +1,6 @@
+N° 6890
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
 Artículo 1º.- Refórmanse los artículo 5º, 13, 15, 21 (incisos b) y
 d), 31 (inciso d), 35 (párrafo segundo), 39, 46, 60, 65, 67, 68, 80, 81,
 82, 86, 87, 89, 90, 91, 94, 103, 104, 133, 134, 149 (inciso ch) y 168 del
