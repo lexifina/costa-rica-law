@@ -1,1 +1,0 @@
-Artículo 2º.- Las deudas contraídas en el país, en moneda extranjera, no originadas en negocios de comercio internacional y en que no conste notarialmente la entrega efectiva al deudor de la moneda estipulada en el acto en que se constituyó la obligación, podrán ser pagadas en moneda nacional al tipo oficial de cambio fijado por el Banco para la moneda debida.
