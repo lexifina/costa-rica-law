@@ -1,0 +1,2 @@
+Cómo Acreditan su Personería los Fiscales
+Artículo 93.- Los Fiscales acreditarán su personería mediante tarjeta o certificación firmada por el Presidente que los ha nombrado, a las cuales se les dará autenticidad mediante la impresión en ellas del sello blanco del Registro Civil. Este llevará un libro de anotación de los Fiscales ya nombrados, y en él se registrará cada nombramiento al imprimir el sello en la tarjeta de certificación.

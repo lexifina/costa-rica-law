@@ -1,0 +1,5 @@
+Trasmisiones por Radio
+Artículo 85.- Sólo las radioemisoras que -dentro del mes siguiente a la convocatoria para una elección-, hubieren inscrito ante el Registro Civil las tarifas que aplicarán a las radioemisiones políticas y el plan de horas que dedicarán a esa actividad, podran prestar el servicio de propaganda electoral durante el período comprendido entre la convocatoria y el décimo día siguiente a la elección.
+Solamente los partidos inscritos conforme a esta ley -y únicamente con el objeto de explicar su programa o atacar el de sus contrarios-, podrán usar las radioemisoras para la propaganda político-electoral.
+Quien realice esta labor deberá leer ante el micrófono, ajustándose estrictamente a lo escrito, sin proferir injurias ni calumnias, y previa entrega de una copia de su discurso, firmada, a la oficina trasmisora. Los partidos inscritos tendrán derecho a utilizar tales radioemisoras en igualdad de condiciones.
+La infracción de los mandatos de este artículo constituye delito electoral de que serán responsables solidariamente tanto los autores directos como el propietario, arrendatario y administrador de la estación.

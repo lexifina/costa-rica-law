@@ -1,0 +1,5 @@
+Pena de Prisión para los Miembros de Juntas, Autoridades y Empleados en General y al Director del Registro Civil
+Artículo 150.- Serán considerados reos de prevaricato y sancionados con la pena de prisión establecida en el artículo 388 del Código Penal:
+a) Los miembros de los organismos electorales, y los de aquellos llamados a colaborar con los primeros, así como los funcionarios y empleados que en las actividades de carácter electoral que le son propias, se conduzcan con malicia o con interés personal o político, realizando actos o dictando resoluciones evidentemente parciales o injustos;
+b) Las autoridades, funcionarios y empleados de cualquier categoría que -contra las disposiciones de este Código-, impidan cualquiera de los actos de propaganda admitidos en los artículos 79 y 88, o que, directa o indirectamente, tergiversen con parcialidad su contenido;
+c) El Director del Registro Civil que incluya más de una vez a un elector en el Padrón Nacional; que de él lo excluya o lo traslade sin motivo justo, o que en él incluya a quien no debe ser incluido.

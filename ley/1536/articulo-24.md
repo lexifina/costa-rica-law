@@ -1,0 +1,2 @@
+Fecha para la Presentación de la Lista Definitiva de Sufragantes
+Artículo 24.- Un mes antes de una elección el Registro tendrá hechas, por orden alfabético de apellidos, las listas definitivas de electores, cuya hoja u hojas deben ir marcadas en el sello blanco del Registro. Tan pronto como lleguen a la Junta Receptora de Votos en la parte que le corresponda, ésta las colocará en lugar bien visible y las hará custodiar por medio de la autoridad política o en la forma que más convenga. Esas listas permanecerán expuestas al público hasta el día anterior al de la elección.

@@ -1,0 +1,4 @@
+Cómo se Custodia la Documentación Electoral
+Artículo 125.- Para efecto de custodiar debidamente la documentación electoral, las Juntas pedirán a la primera autoridad política del lugar, los números de la Guardia Civil que consideren necesarios, los cuales no le podrán ser negados, excepto en el caso de que ello produjere la imposibilidad de guardar el orden público.
+Para el mismo efecto y sin perjuicio de lo dicho, las Juntas quedan facultadas para investir a las personas que por su probidad y entereza les merezcan confianza, con el carácter de autoridad, bajo la responsabilidad personal de los miembros. Tales personas, en ese carácter, sólo acatarán órdenes de la Junta respectiva en relación con la custodia de los documentos encomendados a su cuidado.
+Cada partido podrá nombrar, por escrito, de uno a tres representantes, para que coadyuven a la custodia de la documentación.

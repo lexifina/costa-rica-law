@@ -1,0 +1,2 @@
+Obligación de Mostrar los Libros, Expedientes y Documentos del Registro
+Artículo 21.- El Director General bajo ningún pretexto podrá negarse a mostrar libro, expediente o documento alguno del Registro a quien lo solicitare. Los conflictos que surgieren con motivo de esas solicitudes los resolverá el Director de acuerdo con su criterio. Caso de concurrencia simultánea de fiscales, si fuere necesario, se le asignará un término corto de revisión a cada partido, por turnos sucesivos de lapso igual.

@@ -1,0 +1,2 @@
+Caso en que la Elección Debe Verificarse en Época de Suspensión de Garantías
+Artículo 169.- Si una elección hubiere de verificarse en período de suspensión de garantías, el decreto que las suspenda no surtirá efecto alguno durante el día de elecciones, sino en aquellos aspectos que no tengan relación con el proceso electoral, el cual ha de llevarse a cabo en un ambiente de libertad y garantía ciudadana irrestrictas.

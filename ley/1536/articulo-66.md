@@ -1,0 +1,2 @@
+Qué comprende la Inscripción de un Partido en Escala Nacional
+Artículo 66.- El partido inscrito en escala nacional se entenderá que lo está en escala provincial en cada una de las provincias, y en escala cantonal en cada uno de los cantones del país; el que solamente estuviere inscrito en escala provincial se entenderá que lo está en escala cantonal en cada uno de los cantones de la respectiva provincia.
