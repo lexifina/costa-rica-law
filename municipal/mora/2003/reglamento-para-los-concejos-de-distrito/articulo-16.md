@@ -1,0 +1,1 @@
+Artículo 16.—En cualquier momento, los miembros de los Concejos de Distrito podrán renunciar a sus cargos; en tal caso, corresponderá al Tribunal Supremo de Elecciones reponer a los propietarios cesantes en el cargo, con los suplentes del mismo partido político, siguiendo el orden de elección.

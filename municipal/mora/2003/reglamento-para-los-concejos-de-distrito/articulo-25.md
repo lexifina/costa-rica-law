@@ -1,0 +1,1 @@
+Artículo 25.—Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes y se tendrán por firmes, cuando así expresamente lo aprueben al menos cuatro de sus miembros; si hubiere empate se someterá de nuevo a votación y si persistiera el empate, se tendrá por desechado el asunto.

@@ -1,0 +1,1 @@
+Artículo 20.—Las sesiones ordinarias deben efectuarse en el lugar designado por la Municipalidad como cabecera del distrito, pudiendo el Concejo de Distrito celebrar sesiones extraordinarias en otros distritos del mismo cantón para tratar asuntos de interés interdistrital.
