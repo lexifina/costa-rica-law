@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las comisiones de trabajo
+Artículo 27.—El Consejo Nacional de Acreditación tendrá las comisiones de trabajo que determine, con carácter permanente o no, mediante el voto afirmativo de tres cuartas partes de sus miembros. En cada caso, el acuerdo de creación de cada comisión deberá definir su finalidad, integración -con designación de un Coordinador-, funciones y plazo en el que deberá tener rendido su dictamen o informe, según sea el caso. Aparte y además de los miembros del Consejo que se designen, podrán formar parte de estas comisiones otros funcionarios, asesores o especialistas, cuando se estime conveniente o necesario por la naturaleza de la función encomendada.

@@ -1,0 +1,2 @@
+Artículo 33.—Cualquier asunto no previsto en el presente Reglamento, será resuelto aplicando las disposiciones contenidas en el Reglamento General del SINAES, el Convenio de su creación, la Ley del Sistema Nacional de Acreditación de la Educación Superior (SINAES), Nº 8256 del 2 de mayo del 2002 y la Ley General de la Administración Pública, Nº 6227 del 2 de mayo de 1978.
+Este Reglamento fue aprobado en la sesión Nº 145 del Consejo Nacional de Acreditación; el acta fue ratificada en la sesión Nº 146.

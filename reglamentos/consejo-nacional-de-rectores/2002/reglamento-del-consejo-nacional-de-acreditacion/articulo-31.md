@@ -1,0 +1,1 @@
+Artículo 31.—Todo informe, dictamen, propuesta o recomendación de las comisiones deberá ser conocida y sometida a votación por el Consejo. Agotada la discusión, se someterá a votación el dictamen de mayoría, salvo que por moción de orden se disponga otra cosa. Los dictámenes de minoría se someterán a votación sólo cuando el dictamen de mayoría fuere rechazado.

@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones del Consejo serán presididas por el Presidente o por el Vicepresidente en ausencia de aquel. El Presidente podrá incorporarse a la sesión en cualquier momento y asumirá la dirección de la sesión una vez concluido el asunto en discusión.

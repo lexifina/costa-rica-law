@@ -1,0 +1,1 @@
+Artículo 29.—Las sesiones de Comisión serán privadas y válidamente podrán ser efectuadas el día y la hora que hayan sido señalados, con la presencia de al menos la mitad de sus miembros. Los acuerdos de las comisiones, para que sean válidos, deberán ser tomados por al menos la mitad más cualquier fracción de los miembros presentes.

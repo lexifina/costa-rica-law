@@ -1,0 +1,1 @@
+Artículo 5º—El Consejo designará un Vicepresidente de entre sus miembros por mayoría absoluta de votos. El Vicepresidente sustituirá al Presidente en caso de ausencia, enfermedad o cualquier otra causa justa que le impidan el ejercicio de sus funciones. Toda ausencia deberá ser oportunamente notificada a los demás integrantes del Consejo.

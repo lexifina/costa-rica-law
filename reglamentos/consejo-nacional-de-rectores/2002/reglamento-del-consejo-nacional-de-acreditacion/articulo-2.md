@@ -1,0 +1,1 @@
+Artículo 2º—El Consejo Nacional de Acreditación lo integran ocho miembros, nombrados por las instituciones de educación superior universitaria estatal y las universidades privadas afiliadas al SINAES, de conformidad con lo dispuesto en la Ley Nº 8256 y este Reglamento.
