@@ -1,0 +1,3 @@
+Artículo 2°—Afiliación
+Se entenderá por afiliación a una Operadora, la relación jurídica que se establece entre una persona física, cualquiera que sea su condición, y una Operadora de Planes de Pensiones Complementarias, la que se materializa con la suscripción del Contrato de Afiliación, en el cual se establecen los derechos y obligaciones de cada una de las partes dentro del Régimen Privado de Pensiones Complementarias, en adelante RPPC.
+La afiliación por primera vez a una Operadora genera automáticamente su incorporación al RPPC. El traspaso de una Operadora a otra se hace efectivo mediante la afiliación a una nueva Operadora.
