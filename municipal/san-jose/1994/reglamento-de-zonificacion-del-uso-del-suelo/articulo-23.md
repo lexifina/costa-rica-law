@@ -1,1 +1,0 @@
-Artículo 23.—El suelo no urbanizable es aquel cuya urbanización no es posible o no es conveniente por diferentes razones, entre ellas, las ecológicas y paisajísticas o por limitaciones físicas del área (pendientes, fallas geológicas, zonas inundables o sujetas a otras amenazas, etc).

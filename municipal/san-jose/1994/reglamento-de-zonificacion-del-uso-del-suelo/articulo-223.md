@@ -1,1 +1,0 @@
-Artículo 223.—DISEÑO INTEGRAL. Los edificios deberán ser diseñados en forma integral. Las fachadas laterales ciegas y en colindancia. las fachadas posteriores, así como leo techos y azoteas, recibirán igual atención que las fachadas principales, en cuanto a los acabados.

@@ -1,1 +1,0 @@
-Artículo 227.—Los sectores que así sean definidos como zonas o áreas especiales, se protegerán para que no pierdan su alta calidad urbana, sus antejardines, sus estilos arquitectónicos característicos, y más bien. sigan funcionando como anclaje del buen urbanismo y pivote de la renovación urbana en sus alrededores.

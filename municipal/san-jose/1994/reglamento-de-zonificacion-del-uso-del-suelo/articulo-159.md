@@ -1,1 +1,0 @@
-Artículo 159.—USOS CONFORMES. Son los indicados en el Reglamento de Zonificación parcial de Áreas Industriales en la Gran Área Metropolitana, (anexo sobre clases de industrias. Industrias Tipo Uno 1).

@@ -1,1 +1,0 @@
-Artículo 149.—USOS CONDICIONALES. De la lista anexa los numerales 4 y 5, 16, 19, 22, 24 u 25. Otros usos comerciales solo podrán ser autorizados como usos condicionales, previo estudio específico, tal y como se indica el artículo 147 de este reglamento.

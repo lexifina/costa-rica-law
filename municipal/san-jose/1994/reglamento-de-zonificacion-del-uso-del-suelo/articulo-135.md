@@ -1,1 +1,0 @@
-Artículo 135.—Cualquier actividad o construcción, no concordante con la función de la zona de protección, quedará como no conforme y se regirá por los artículos 31 y 32 de este reglamento de zonificación.

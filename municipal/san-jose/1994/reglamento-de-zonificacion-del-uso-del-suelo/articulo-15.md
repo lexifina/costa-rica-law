@@ -1,2 +1,0 @@
-Artículo 15.—Para el trámite de patentes también se exigirá la presentación del Certificado de Uso del Suelo correspondiente, de conformidad con el artículo 29 de la Ley de Planificación Urbana. Para la concesión de patentes por el Depto. de Patentes Municipal, debe obtenerse un visado de la D.D.U. donde conste la conformidad de la actividad ron el Uso del Suelo dispuesto por el P.D.U en cada zona.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

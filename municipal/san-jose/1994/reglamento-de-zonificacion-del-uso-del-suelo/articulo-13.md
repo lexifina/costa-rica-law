@@ -1,4 +1,0 @@
-Artículo 13.—El Certificado de conformidad o no conformidad del Uso del Suelo, debe ser exigido como un requisito previo e indispensable por parte de cualquier dependencia publica o privada que autorice construcciones- ampliaciones, remedeIaciones, urbanizaciones, industrias, parques industriales, fraccionamiento y segregaciones.
-La D.D.U. al término de cinco días hábiles luego de entregada la solicitud con los timbres indicados y 2 copias del plano catastrado y el original, lo entregara. Tiene la validez de un año natural.
-El certificado indicará el uso y no se interpretará como un permiso definitivo para hacer uso, ocupación, ampliaciones, remodelaciones o construcción de obra sin previo permiso de construcción.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

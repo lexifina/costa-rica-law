@@ -1,3 +1,0 @@
-Artículo 29.—USOS CONDICIONALES: Son aquellos que pueden darse en una zona, siempre y cuando cumplan los requisitos especiales, que establezca la Municipalidad, adicionales a los estipulados para los usos conformes. Para ello se requiere autorización especial de la Municipalidad.
-Se indicarán las condiciones para el uso. Estas condiciones serán aquellas que indiquen las especificaciones de tamaño de la actividad, su organización dentro de la propiedad, entradas y salidas etc. en el Certificado de Uso de acuerdo a los artículos 12 al 15 de este Reglamento.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

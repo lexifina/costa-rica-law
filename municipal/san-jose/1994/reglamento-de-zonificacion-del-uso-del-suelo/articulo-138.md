@@ -1,1 +1,0 @@
-Artículo 138.—USOS NO PERMITIDOS: De la lista del anexo 1, los contemplados del 1 al 11 y del 13 al 15, 18,20 y 23.En relación al uso correspondiente al numeral 20 de la lista del anexo l, ver lo estipulado en el Reglamento de Vialidad y Transporte del PDU.

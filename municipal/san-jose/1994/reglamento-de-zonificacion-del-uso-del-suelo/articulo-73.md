@@ -1,3 +1,0 @@
-CAPITULO V
-Zona Residencial Media-Baja Densidad (Zrmbd)
-Artículo 73.—PROPÓSITOS. En esta porción del suelo urbanizado y urbanizable del Cantón, persigue una densidad media baja, con 50 viviendas por hectárea como máximo. Se ubican en los sectores delimitados en los Mapas de Densidades Residenciales y el Uso del Suelo en distritos: Merced, (Barrios México, Pitahaya,) Zapote, San Francisco, La Uruca (sector de Urbanización el Robledal, Monserrat y alrededores). Estos lugares se caracterizan por la vivienda unifamiliar, sin embargo, se permitirá la edificación multifamiliar hasta de tres pisos, siempre y cuando se respete la norma de densidad neta establecida.

@@ -1,2 +1,0 @@
-Artículo 243.—Para proteger los sitios de valor Histórico y Cultural la Municipalidad, cooperará para recaudar los fondos necesarios, con Organismos Internacionales, Países Amigos. Fundaciones y con los propietarios de los edificios u obras, motivándolos para que ellos continúen con preservación de estos sitios.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

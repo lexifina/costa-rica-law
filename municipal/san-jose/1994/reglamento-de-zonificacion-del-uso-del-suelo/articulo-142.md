@@ -1,1 +1,0 @@
-Artículo 142.—PROPOSITO. Agrupar centros de estudios superiores y servicios complementarios, como bibliotecas, librerías, instalaciones deportivas y culturales, sodas y restaurantes, albergues estudiantiles, lavanderías y oficinas profesionales, para fortalecer la función universitaria. Además se incorpora la residencia existente y futura, para darle vitalidad al conjunto.
