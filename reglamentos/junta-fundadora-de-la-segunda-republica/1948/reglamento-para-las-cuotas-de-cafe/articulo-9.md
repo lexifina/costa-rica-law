@@ -1,1 +1,0 @@
-Artículo 9°-El exportador queda obligado a presentar a la Oficina un ejemplar del conocimiento de embarque, correspondiente al café en general de exportación, en el término improrrogable de los siguientes diez días al de su salida de puerto.

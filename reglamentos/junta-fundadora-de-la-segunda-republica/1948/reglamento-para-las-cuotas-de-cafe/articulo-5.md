@@ -1,1 +1,0 @@
-Artículo 5°-La inscripción de contratos de venta o consignaciones de café de la exportación, quedará cerrada el día 30 de setiembre. Los beneficiadores están obligados a presentar a la Oficina en los primeros quince días del mes de agostó, un estado de cuentas o inventario del café beneficiado en sus establecimientos.

@@ -1,1 +1,0 @@
-Artículo 7°-En tanto no se hayan cumplido los términos de una sentencia firme impuesta por la Agencia Principal de Policía Específica, no podrá el infractor participar en ninguna de las operaciones de compra, venta y exportación de café.
