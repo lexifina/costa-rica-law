@@ -1,0 +1,1 @@
+Artículo 9º.- El Banco Central de Costa Rica, solamente otorgará licencia de exportación de carne a los solicitantes que presenten el documento expedido por el Consejo Nacional de Producción, en el cual se certifica que han cumplido con la entrega del porcentaje correspondiente al consumo interno.

@@ -1,0 +1,1 @@
+Artículo 5º.- El Consejo Nacional de Producción facilitará a la Comisión Asesora así como a su propio Departamento de Ganadería, el equipo y el personal que sean necesarios para el buen desempeño de sus funciones.

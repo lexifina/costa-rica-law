@@ -1,0 +1,3 @@
+Artículo 18.- Si en cualquier momento se comprueba una escasez de carne en el mercado local, el Consejo Nacional de Producción aumentará la cuota de consumo interno. En caso extremo, podrán suspender las exportaciones por el tiempo que considere necesario y de ello dará aviso al Banco Central, a las Cámaras de Ganaderos y a los productores independientes, así como a los Industriales Pecuarios, por medio del Diario Oficial y de otros medios publicitarios.
+Iguales avisos dará cuando autorice nuevamente las cuotas de exportación.
+La suspensión de las exportaciones constituirá razón liberatoria de las responsabilidades contractuales establecidas entre vendedores y compradores de ganado de exportación.
