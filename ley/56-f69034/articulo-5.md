@@ -1,0 +1,5 @@
+Artículo 5°.-1) Los gobernadores de provincia, oyendo a las Municipalidades de los cantones interesados, manifestarán, dentro de un año a más tardar, al Secretario de Gobernación, cuáles son los límites que reconoce o pretende la provincia de su mando.
+2°. Si hubiere desconformidad en las líneas pretendidas por las provincias confinantes, el secretario de gobernación constituirá una comisión compuesta de un abogado, de una agrimensor y de un empleado de la dirección de Obras Públicas, para que estudie los puntos en discordia e informe.
+3). El Secretario de Gobernación, después de oído el referido informe, se presentará al Congreso una exposición sobre el caso y un proyecto de ley, en el cual propondrá la línea que a juicio del Ejecutivo fuere más conveniente.
+4). El Congreso con vista en todos los atestados del caso señalará definitivamente la línea divisoria de las provincias, en la parte que haya diferencia entre ellas; y mandará tener como línea divisoria aquella parte en que hubiere acuerdo.
+5). Estos trabajos respecto de las provincias actuales, deberán estar terminados antes del 31 de julio de 1911.
