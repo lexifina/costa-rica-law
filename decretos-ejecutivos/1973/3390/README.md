@@ -13,3 +13,4 @@ Prohibe Uso de Bebidas Alcohólicas en Fiestas en Oficinas del Gobierno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-12-06 | la propia norma |
+| 2 | 1973-12-06 | SINALEVI (sin norma nombrada) |
