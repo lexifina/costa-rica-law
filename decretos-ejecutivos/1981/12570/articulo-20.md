@@ -1,1 +1,0 @@
-Artículo 20.-Efectuada la revisión a que aluden los artículos 18 y 19 anteriores, sólo si se resuelve un valor diferente se comunicará el hecho a la oficina encargada de hacer los débitos, quien la remitirá conjuntamente con ellos para su notificación a la aduana de origen.

@@ -1,1 +1,0 @@
-Artículo 17.-La Dirección General de Aduanas, pondrá en vigencia las modificaciones o enmiendas que el Consejo de Cooperación Aduanera de Bruselas les haya recomendado, cuando el Departamento de Valoración lo considere conveniente.

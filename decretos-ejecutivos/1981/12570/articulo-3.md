@@ -1,1 +1,0 @@
-Artículo 3º.-Cuando los elementos del valor estén expresados en una moneda distinta a la del país de importación para efectuar la conversión necesaria, se utilizará el mismo tipo de cambio aplicado por la aduana en el cobro de los derechos.

@@ -1,1 +1,0 @@
-Artículo 15.-La Aduana mantendrá un Registro Nacional Aduanero de Representantes de Proveedores de mercancías de importación cuyo control dependerá de la Dirección General de Aduanas, a través del Departamento de Valoración. En este Registro serán inscritos todos los que actúan como representantes, de conformidad a las normas que imparta la misma Dirección.

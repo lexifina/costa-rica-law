@@ -1,1 +1,0 @@
-Artículo 22.-En los casos en que el interesado reclama ante el administrador, después de liquidada la póliza y éste acepta dicho reclamo, deberá enviar los antecedentes y un informe a la Dirección. Si el administrador no acepta y el interesado no expresa agravios, el administrador señalará por qué actuó así y enviará todos los antecedentes al Departamento de Valoración.

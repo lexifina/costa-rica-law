@@ -1,1 +1,0 @@
-Artículo 21.-Si de acuerdo con el artículo 168, el administrador resuelve de pleno y el interesado pide revisión y no presenta agravios se procederá según el artículo 171 del CAUCA y el Departamento de Valoración deberá conocer el problema. Si tiene un criterio divergente con el administrador dicta una resolución especial de ajuste.

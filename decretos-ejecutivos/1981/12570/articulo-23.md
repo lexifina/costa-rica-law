@@ -1,1 +1,0 @@
-Artículo 23.-Si el interesado reclama ante el Director General después de liquidada o después de cancelada la póliza, el administrador de la aduana correspondiente remitirá los antecedentes con una resolución provisoria a la Dirección.
