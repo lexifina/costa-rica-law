@@ -15,3 +15,4 @@ Reglamento de Organización y de Servicios de la Inspección de Trabajo
 | --- | --- | --- |
 | 1 | 2000-04-18 | la propia norma |
 | 2 | 2001-02-20 | Decreto Ejecutivo 29361 (2001-02-20) |
+| 3 | 2001-04-18 | Decreto Ejecutivo 29477 (2001-04-18) |
