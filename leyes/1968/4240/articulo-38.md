@@ -1,7 +1,7 @@
 Artículo 38.- No se dará permiso para urbanizar terrenos:
-a) Cuando el proyecto no satisfaga las normas mínimas reglamentarias,
-o los interesados no hayan cumplido los trámites pertinentes, entre los
-que está la aprobación indispensable de los planos por la Dirección de
+a) Cuando el proyecto no satisfaga las normas mínimas reglamentarias, o
+los interesados no hayan cumplido los trámites pertinentes, entre los que
+está la aprobación indispensable de los planos por la Dirección de
 Urbanismo y el Servicio Nacional de Acueductos y Alcantarillado;
 b) Por no estar garantizado el importe de las obras de habilitación
 urbana del inmueble, o no haberse hecho o garantizado el traspaso formal
@@ -23,6 +23,6 @@ En este caso, todos los proyectos futuros de urbanización que
 intenten usar los servicios citados en el párrafo anterior en el período
 de cinco años, contado desde la terminación de esas construcciones,
 abonarían al urbanizador una cantidad por cada unidad de vivienda que
-contenga el nuevo proyecto. La cantidad a abonar será determinada por
-la institución que tenga a su cargo el servicio correspondiente y se
-cubrirá al hacerse la conexión física de cada unidad de vivienda.
+contenga el nuevo proyecto. La cantidad a abonar será determinada por la
+institución que tenga a su cargo el servicio correspondiente y se cubrirá
+al hacerse la conexión física de cada unidad de vivienda.

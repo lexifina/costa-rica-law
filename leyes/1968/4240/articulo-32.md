@@ -10,6 +10,6 @@ de calles y aceras pavimentos, cañerías, drenajes pluviales y sanitarios,
 y electrificación y alumbrado público.
 Los Reglamentos de Fraccionamiento y Urbanización establecerán un
 plazo prudencial para el estudio de los proyectos de urbanización; si
-transcurrido ese plazo no se hubiera producido la resolución oficial sobre
-el caso, se considerará autorizado el proyecto para efectos de su
+transcurrido ese plazo no se hubiera producido la resolución oficial
+sobre el caso, se considerará autorizado el proyecto para efectos de su
 ejecución.

@@ -7,8 +7,7 @@ ocupará primordialmente esa oficina de preparar y recomendar el Plan
 Regulador Metropolitano, sus reglamentos y las enmiendas que sean
 necesarias para mantenerlos al día. Siempre que sus funciones lo
 permitan, prestará además ayuda a las municipalidades del área, para
-formular planes y proyectos específicos relativos a planificación
-urbana.
+formular planes y proyectos específicos relativos a planificación urbana.
 Dicha oficina contará con una Comisión Consultiva y Coordinadora,
 integrada cuando menos por un representante de la Oficina de
 Planificación, de los Ministerios de Transportes, Educación y Salubridad
@@ -17,5 +16,5 @@ Nacional de Acueductos y Alcantarillado, del Instituto Costarricense de
 Electricidad y de cada una de la Corporaciones Municipales del Area
 Metropolitana de San José.
 Cuando la Comisión Consultiva y Coordinadora trate de asuntos que
-circunstancialmente afecten a otros organismos, se solicitará al organismo
-afectado el envío de un representante.
+circunstancialmente afecten a otros organismos, se solicitará al
+organismo afectado el envío de un representante.

@@ -1,0 +1,4 @@
+Transitorio II.- El Instituto dictará las normas de desarrollo relativas a las materias a que se refiere el artículo 21 de esta ley.
+Podrá además, confeccionar los planes reguladores y delimitar los distritos urbanos y demás áreas sujetas a control urbanístico, en tanto las municipalidades no hubieren promulgado en la respectiva materia, o parte de ella, sus propias disposiciones locales con ajuste a esta ley.
+Los preceptos y reglamentos que dicte el Instituto regirán en los territorios jurisdiccionales o en la parte de ello que las normas señalen, a partir de su publicación en el Diario Oficial.
+(Así reformado este transitorio por Resolución de la Sala Constitucional Nº 4205-96 del 20 de agosto de 1996, que declaró inconstitucional el texto de este transitorio según reforma hecha por el artículo 115 de la Ley 7015 del 22 de julio de 1985, reviviendo a su efecto el texto dictado por el artículo 1º de la Ley Nº 5900 del 19 de abril de 1976.)
