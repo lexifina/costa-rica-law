@@ -1,0 +1,6 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+REFORMA REGLAMENTARIA
+REGLAMENTO PARA GASTOS DE REPRESENTACIÓN
+La junta directiva del Instituto Nacional de Vivienda y Urbanismo, de conformidad con la potestad que le asigna el inciso f) del artículo 25 de la Ley Orgánica del INVU, número 1788 del 24 de agosto de 1954, emite la presente reforma al Reglamento para Gastos de Representación:
+1. Se modifica el artículo 3, para que se lea como sigue: "artículo 3. procederá el pago de gastos de representación, cuando autorizados en la forma y por el funcionario que se dirá, se atiende en actividades de carácter oficial, a los miembros de los Supremos Poderes de la República, llámese Presidente, Vicepresidente de la República, Ministros de Gobierno, Diputados, Magistrados de la Corte Suprema de Justicia y del Tribunal Supremo de Elecciones. También se puede disponer de este rubro presupuestario para la atención de representantes de organismos extranjeros y de funcionarios de instituciones o entidades ajenas al INVU, siempre que la actividad esté directamente relacionada con el ejercicio del cargo de los funcionarios autorizados y se refiera a las materias de vivienda y urbanismo estrictamente".
+2. Se deroga el artículo 5.
