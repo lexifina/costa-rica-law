@@ -1,0 +1,1 @@
+Artículo 5°-Las personas interesadas en una beca municipal, deberán presentar aparte de la información requerida en el artículo anterior, copia del último informe de calificaciones.

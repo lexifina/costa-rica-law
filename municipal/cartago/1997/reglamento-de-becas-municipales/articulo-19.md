@@ -1,0 +1,1 @@
+Artículo 19.-Los solicitantes deberán entregar con el formulario una fotografia tamaño pasaporte, la cual será utilizada por la Comisión para colocarla en el carné que se les dará una vez aprobada la misma por parte del Concejo Municipal.
