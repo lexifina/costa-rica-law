@@ -1,0 +1,2 @@
+Artículo 25.—Para el reconocimiento de gastos por concepto de plazas públicas, los partidos políticos deberán adjuntar registros auxiliares individuales para cada una de esas plazas según se detalla en el formulario No. 16. Además, se debe presentar una liquidación individual de los costos incurridos en cada una de ellas.
+No se reconocerán los gastos que genere la organización de más de veinticinco plazas públicas (25) por partido, en el período en que éstas procedan.

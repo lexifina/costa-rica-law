@@ -1,0 +1,2 @@
+Artículo 14.—Para el reconocimiento de los gastos con cargo al aporte estatal, el partido deberá cancelar esos montos por medio de una cuenta corriente bancaria, excepto los que corresponda pagar por caja chica, de conformidad con lo establecido en el artículo 20, inciso b) de este Reglamento. Además podrán cubrir sus gastos con bonos emitidos por el propio partido.
+Cuando se cancelen bienes y servicios con bonos se debe utilizar el formulario No 17 denominado "Recibo por la entrega de bonos como pago por la prestación de bienes y servicios".

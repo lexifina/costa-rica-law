@@ -1,0 +1,5 @@
+CAPÍTULO XII
+De la liquidación de gastos
+Artículo 41.—A partir del mes octubre inmediato anterior al año en que han de celebrarse las elecciones nacionales, los partidos políticos deberán presentar ante el Tribunal Supremo de Elecciones para subsecuente análisis de la Contraloría General de la República, por lo menos una vez al mes, las liquidaciones parciales y final de sus gastos certificada por un Contador Público Autorizado que no sea empleado del partido.
+En el caso de la última liquidación o final, mediante la cual se liquida el aporte estatal, ésta deberá presentarse dentro de los 45 días hábiles siguientes a la declaratoria de elección de diputados.
+Los gastos efectuados a partir de la fecha de convocatoria a elecciones y hasta la fecha de declaratoria de elección de diputados, deberán estar contemplados en la o las liquidaciones presentadas el mes siguiente a su realización. No podrán someterse al cobro, los gastos que debieron ser incluidos contablemente en las liquidaciones anteriores.

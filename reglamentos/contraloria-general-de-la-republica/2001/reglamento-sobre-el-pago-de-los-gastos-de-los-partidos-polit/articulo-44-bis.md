@@ -1,0 +1,1 @@
+Artículo 44 bis.—Los partidos políticos tendrán ocho días hábiles a partir del día siguiente a la notificación, para corregir y presentar los comprobantes y justificantes rechazados en la última liquidación.

@@ -1,0 +1,1 @@
+Artículo 33.—Se pueden aceptar gastos a nombre de cada partido coaligado, siempre y cuando dicha agrupación política haya participado en el establecimiento de la estructura formal de la coalición . Se aceptarán los gastos de cada partido coaligado hasta la fecha en que entre a formar parte de la coalición.

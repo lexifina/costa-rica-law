@@ -1,0 +1,2 @@
+Artículo 10.—Mediante acuerdo del Comité Ejecutivo de cada partido, se designará la persona o las personas que podrán comprometer los fondos de la agrupación política. El partido deberá conferir poder general o poder especial a las personas autorizadas para comprometer dichos fondos, por medio de escritura pública.
+El documento en que se otorga dicho poder, deberá enviarse a la Contraloría General de la República, en los ocho días siguientes a la fecha en que el Comité Ejecutivo tomó dicho acuerdo, y proceder de la misma manera cada vez que se produzca una variación.

@@ -1,0 +1,1 @@
+Artículo 2°—Sólo son justificables para efectos de la contribución estatal a los partidos políticos, los gastos relacionados con actividades de organización, capacitación, dirección, censo y propaganda, según las definiciones que al efecto dicte el Tribunal Supremo de Elecciones.

@@ -1,0 +1,2 @@
+Artículo 50.—La Unidad de Auditoría Interna desarrollará su trabajo de conformidad con las normas de auditoría generalmente aceptadas, con el "Manual sobre normas técnicas de auditoría para la
+Contraloría General de la República y las entidades y órganos sujetos a su fiscalización", y con el "Manual para el ejercicio de la auditoría interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República ", estos dos últimos documentos, en lo que sea aplicable.

@@ -1,0 +1,1 @@
+Artículo 24.—Los partidos deberán archivar sus documentos de la siguiente forma: al comprobante de diario, numerado consecutivamente, se le adjuntan los correspondientes justificantes y/o comprobantes, copias de cheques y demás documentos. Luego toda esta documentación se coloca en legajos clasificados en estricto orden numérico.

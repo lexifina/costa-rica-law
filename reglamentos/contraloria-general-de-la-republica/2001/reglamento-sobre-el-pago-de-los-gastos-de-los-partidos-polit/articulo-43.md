@@ -1,0 +1,4 @@
+Artículo 43.—Los comprobantes y justificantes de gastos rechazados podrán ser corregidos y presentados nuevamente por una única vez en alguna de las posteriores liquidaciones.
+La devolución de esos comprobantes y justificantes se realizará por medio de acta que consigne el detalle de cada documento y será firmada por un funcionario de la Contraloría General de la República y uno del Tribunal Supremo de Elecciones y por un representante autorizado de la agrupación política correspondiente.
+En la presentación de la documentación corregida, deberá hacerse referencia a la liquidación en que los comprobantes y justificantes fueron originalmente presentados.
+Para la recepción de los documentos corregidos por la respectiva agrupación política se elaborará un acta conforme se indicó anteriormente.

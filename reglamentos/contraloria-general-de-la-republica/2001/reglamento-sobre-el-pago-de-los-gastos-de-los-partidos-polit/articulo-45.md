@@ -1,0 +1,1 @@
+Artículo 45.—Cuando un gasto presentado adolezca de respaldo en justificante o comprobante, el partido podrá, por una única vez, en liquidaciones posteriores, aportar la documentación del caso. Dicha carencia podrá ser corregida mediante comprobante o justificante de fecha anterior o simultánea al pago.

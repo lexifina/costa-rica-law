@@ -1,0 +1,1 @@
+Artículo 31.—Mensualmente, cada partido deberá balancear el registro auxiliar de activos fijos, mediante inventarios físicos detallados; una copia del inventario, firmada por personero autorizado, deberá ser suministrada a la Contraloría General de la República, dentro de los ocho días hábiles siguientes a su realización.

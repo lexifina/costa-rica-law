@@ -1,0 +1,1 @@
+Artículo 54.—Las cesiones del derecho a la contribución estatal, respaldadas con bonos que vayan a garantizar las operaciones crediticias que efectúen los partidos en el Sistema Bancario Nacional, deberán haber sido notificadas en los términos a que se refiere el artículo 34 de este Reglamento.

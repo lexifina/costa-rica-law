@@ -1,0 +1,1 @@
+Artículo 37.—Las emisiones de bonos serán cambiables en la Tesorería Nacional por los bonos que el Estado emita para hacer el pago de la contribución estatal por el monto que corresponda a cada partido, de conformidad con la liquidación final del aporte estatal que debe realizar con posterioridad a las elecciones la Contraloría General de la República.

@@ -1,0 +1,3 @@
+Artículo 44.—No serán susceptibles de corrección, aquellos justificantes o comprobantes que por su naturaleza incumplan requisitos establecidos en el Código Electoral o aquellos que la Contraloría General determine de acuerdo con criterios técnicos derivados de principios contables generalmente aceptados y normas de control interno.
+Los justificantes o comprobantes susceptibles de corrección, podrán ser subsanados, por una única vez, mediante la presentación de documentos de fecha posterior a la liquidación en la que orginalmente fueron presentados, siempre y cuando sean emitidos por el proveedor del
+bien o servicio y se trate del gasto que fue rechazado.
