@@ -15,3 +15,4 @@ Reforma Reglamento Ley Forestal
 | --- | --- | --- |
 | 1 | 1991-09-02 | la propia norma |
 | 2 | 1991-11-15 | Decreto Ejecutivo 20993 (1991-11-15) |
+| 3 | 1994-01-24 | Decreto Ejecutivo 22840 (1994-01-24) |
