@@ -1,0 +1,1 @@
+ARTICULO 21.-El interesado en un documento de los referidos en el artículo anterior, podrá en cualquier tiempo subsanar el defecto, presentando al Tesorero-archivero el valor de la multa en timbres, para que los adhiera y cancele en forma legal.

@@ -1,0 +1,1 @@
+ARTÍCULO 15.-Cuando un documento privado por el cual se hubiese satisfecho el impuesto de timbre, fuese elevado escritura pública, de agregarse aquí‚ al protocolo de referencias del cartulario, se hará constar en la escritura matriz el pago hecho antes. Esto último se hará también cuando el documento provisional consistiere en instrumento público.

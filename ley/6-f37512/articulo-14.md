@@ -1,0 +1,1 @@
+ARTÍCULO 14.-El documento en que provisionalmente se haga constar alguno de los actos o contratos determinados en esta ley, pagar el impuesto respectivo, quedando exento del mismo el que definitivamente se otorgare.

@@ -1,0 +1,1 @@
+ARTICULO 6°.-Todo testimonio contendrá constancia, en la conclusión y antes de la fecha, de la suma que monta el valor del impuesto de timbre y del hecho de quedar agregados en forma legal los sellos correspondientes.
