@@ -37,3 +37,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30038 de 13 de diciembre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30039 de 13 de diciembre del 2001)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30040 de 13 de diciembre del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30066 de 21 de diciembre del 2001)
