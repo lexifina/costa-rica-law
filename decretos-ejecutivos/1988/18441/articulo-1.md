@@ -1,6 +1,6 @@
 (Derogado)
 N° 18441-MOPT
-(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 21669 del 13 de octubre del 1992, “Establece Nuevas Tarifas Peajes Carreteras País”)
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 21669 del 13 de octubre del 1992. Posteriormente mediante resolución de la Sala Constitucional N° 03410 del 10 de noviembre de 1992, se anuló este decreto ejecutivo)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES,
 En el ejercicio de las facultades que les confieren el artículo 140, inciso 3) y 18) de la Constitución Política; en las disposiciones de la Ley Nacional de Emergencia N° 4374 del 14 de agosto de 1969 y sus reformas, así como en el reglamento de la Ley Nacional de Emergencia, Decreto Ejecutivo N° 4020-T del 13 de agosto de 1974; el artículo 16 de la Ley N° 7055 del 11 de diciembre de 1986, inciso 8) del artículo 33 e inciso 15) del artículo 61 de la sección V de las Normas de Ejecución del Presupuesto, ley N° 7089 del 4 de diciembre de 1987; el decreto ejecutivo N° 15890 - G-MOPT de fecha 22 de noviembre de 1984 publicado en "La Gaceta" N° 236 del 11 de diciembre de 1984, así como el decreto ejecutivo número 18283 - MOPT, de fecha 30 de junio de 1988, publicado en "La Gaceta" N° 147 de 4 de agosto de 1988.

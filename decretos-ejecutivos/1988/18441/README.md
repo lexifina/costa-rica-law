@@ -17,3 +17,4 @@ Establece emergencia nacional la construcción, terminación reconstrucción o r
 | 2 | 1991-04-18 | Decreto Ejecutivo 20385 (1991-04-18) |
 | 3 | 1992-06-09 | Decreto Ejecutivo 21382 (1992-06-09) |
 | 4 | 1992-06-09 | Decreto Ejecutivo 21669 (1992-10-13) |
+| 5 | 1992-11-10 | SINALEVI (sin norma nombrada) |
