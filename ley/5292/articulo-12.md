@@ -1,4 +1,1 @@
-Artículo 12.- Esta ley es de orden público, deroga el Decreto-Ley
-XXXIV de 19 de julio de 1894, el artículo 5º de la ley Nº 1208 de 9 de
-octubre de 1950 (Ley de Defensa Económica) y todas las leyes y
-disposiciones que se le opongan,
+Artículo 12.- Esta ley es de orden público, deroga el Decreto-Ley XXXIV de 19 de julio de 1894, el artículo 5º de la ley Nº 1208 de 9 de octubre de 1950 (Ley de Defensa Económica) y todas las leyes y disposiciones que se le opongan.
