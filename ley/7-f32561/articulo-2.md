@@ -1,0 +1,1 @@
+Art 2°.- Para poder gozar de este privilegio, el señor Jiménez es obligado a tener listas para el tráfico, el día 1 de febrero del año próximo de 1855, cincuenta carretas de la forma y clase que espresa el art 5°
