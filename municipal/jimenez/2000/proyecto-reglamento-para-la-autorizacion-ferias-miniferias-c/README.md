@@ -14,3 +14,4 @@
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-30 | la propia norma |
+| 2 | 2000-08-30 | Ley 8 |
