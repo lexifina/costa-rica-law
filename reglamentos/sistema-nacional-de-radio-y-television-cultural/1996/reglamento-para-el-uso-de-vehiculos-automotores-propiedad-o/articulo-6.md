@@ -1,0 +1,1 @@
+Artículo 6°-La Sección de Transportes velará por que todos los chóferes estén debidamente autorizados y acreditados para la conducción de las unidades respectivas, asimismo de aquellos funcionarios que por vía de excepción se les faculte para tal fin. En este contexto, dicha sección mantendrá un registro detallado y actualizado de cada uno de los servidores.

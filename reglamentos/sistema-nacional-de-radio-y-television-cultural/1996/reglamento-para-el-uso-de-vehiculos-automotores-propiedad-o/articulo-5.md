@@ -1,0 +1,2 @@
+Artículo 5°-Los funcionarios responsables a autorizar los servicios y operación del área de transportes serán: Dirección General, Subdirección. General, Dirección Administrativa, Departamento de Servicios Generales y Sección de Transportes.
+Todos los vehículos propiedad o asignados al SINART, serán usados únicamente en actividades propias de la Institución y sólo podrán utilizarse en otros menesteres, como emergencia nacional por ejemplo, con autorización expresa del Director General de la Institución.

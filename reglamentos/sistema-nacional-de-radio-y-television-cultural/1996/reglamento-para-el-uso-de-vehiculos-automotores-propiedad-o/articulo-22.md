@@ -1,0 +1,1 @@
+Artículo 22.-EI conductor que sea declarado responsable por los tribunales de justicia, con motivo de un accidente donde hubiese participado con el vehículo oficial, deberá pagar el monto correspondiente al deducible o las indemnizaciones que deba hacer la Institución a la que pertenece en favor de terceros afectados, cuando el costo del daño sea inferior al deducible.

@@ -1,0 +1,1 @@
+Artículo 12.- Todos los vehículos propiedad del SINART llevarán la placa de matricula especial con carácter de oficial permanente (placas oficiales) en los lugares donde reglamentariamente ésta deba colocarse, salvo los de uso discrecional que podrán portar placas particulares.

@@ -1,0 +1,1 @@
+Artículo 15.-Solamente el Gerente o Subgerente General, podrán autorizar la asignación de unidades, con carácter permanente a determinadas dependencias cuando ello sea necesario para el mejor cumplimiento del servicio e interés público.

@@ -1,0 +1,1 @@
+Artículo 16.-Bajo ninguna circunstancia, la asignación y utilización de los vehículos -y sobre todo los de uso discrecional- podrá ser considerada como beneficio, mejoría salarial, salario en especie, o en alguna forma parte del contrato de trabajo, ni dará lugar a derechos adquiridos en favor del funcionario.

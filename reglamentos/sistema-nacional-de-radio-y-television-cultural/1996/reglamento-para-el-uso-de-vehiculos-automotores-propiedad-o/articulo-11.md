@@ -1,0 +1,1 @@
+Artículo 11.- Todos los vehículos de la Institución o asignados a ésta, deberán mostrar en sus costados en forma clara y visible el nombre o el logotipo del SINART. Se exceptúa de esta disposición los vehículos de uso discrecional, que no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido.
