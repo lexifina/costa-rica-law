@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza al Banco Central de Costa Rica para que destruya mediante el procedimiento que corresponda, los CPU por un monto de ¢ 3.000,00 que obren en su poder y que fueron creados de conformidad con los decretos indicados en el artículo 1º del presente.

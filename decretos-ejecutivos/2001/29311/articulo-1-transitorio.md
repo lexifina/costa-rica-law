@@ -1,0 +1,1 @@
+Transitorio único.—Los CPU por un valor de ¢ 3.000,00 que se encuentren en poder del público podrán seguirse utilizando hasta por tres meses después de la publicación de este Decreto. También dichos CPU podrán ser canjeados por otros CPU utilizados en la cancelación de derechos de salida del país.
