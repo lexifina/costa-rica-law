@@ -1,0 +1,2 @@
+Art. 2°-El presente decreto se someterá al conocimiento de la Representación Nacional, en la inmediata legislatura ordinaria.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veinticuatro días del mes de octubre de mil ochocientos ochenta y cuatro.-A. DE JESÚS SOTO, Presidente. VICENTE C. SEGREDA, Secretario.-Palacio Presidencial.-San José, á veinticuatro de octubre de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Hacienda y Comercio.-BERNARDO SOTO.
