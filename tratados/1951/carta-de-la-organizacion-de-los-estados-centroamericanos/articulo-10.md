@@ -1,1 +1,0 @@
-Artículo 10.- Las Reuniones de Ministros de otros ramos podrán convocarse por cualquiera de los Gobiernos cuando afronten en cualquier ramo de la Administración Pública, un problema cuya solución amerite el estudio colectivo y un plan conjunto centroamericano.

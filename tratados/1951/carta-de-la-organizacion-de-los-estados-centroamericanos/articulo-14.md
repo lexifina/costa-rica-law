@@ -1,2 +1,0 @@
-Artículo 14.- El Consejo Económico tendrá las funciones que le señale la Reunión de Ministros de Relaciones Exteriores, a la cual informará sobre sus actividades y trabajos, y le someterá las proporciones y recomendaciones que acuerde.
-Dicho Consejo estará integrado por los delegados que designen los Gobiernos y se reunirá, cuando menos, una vez al año en el tiempo y lugar que el propio Organo determine.

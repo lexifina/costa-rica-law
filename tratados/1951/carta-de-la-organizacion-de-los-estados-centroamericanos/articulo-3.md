@@ -1,1 +1,0 @@
-Artículo 3º.- La Organización de Estados Centroamericanos se funda en los principios consagrados en la Carta de las Naciones Unidas y en la Carta de la Organización de los Estados Americanos y, de manera especial, en la igualdad jurídica de los Estados, en el respeto mutuo y en el principio de no intervención.

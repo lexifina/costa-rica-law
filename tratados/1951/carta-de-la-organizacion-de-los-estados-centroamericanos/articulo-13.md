@@ -1,1 +1,0 @@
-Artículo 13.- Para el mantenimiento de la Oficina, se fijará una cuota a cada uno de los miembros de la Organización de conformidad con el presupuesto y la escala que presente una comisión ad-hoc y que sean aprobados por la Reunión de Ministros de Relaciones Exteriores.

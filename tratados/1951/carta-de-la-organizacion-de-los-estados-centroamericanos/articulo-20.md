@@ -1,2 +1,0 @@
-Artículo 20.- El original de la presente Carta quedara depositado en la Cancillería salvadoreña, la cual remitirá copia fiel certificada a los Ministerios de Relaciones Exteriores de las restantes Repúblicas Centroamericanas.
-Los instrumentos de ratificación serán también depositados en la Cancillería Salvadoreña, debiendo ésta notificar el depósito de cada uno de dichos instrumentos a las Cancillerías de las otras Repúblicas.
