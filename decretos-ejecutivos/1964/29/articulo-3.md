@@ -1,1 +1,2 @@
-Articulo 3°—El Instituto usará, para sus actos y documentos, un sello con el dibujo del árbol de Guanacaste que tenía la moneda de la Federación Centroamericana, con su leyenda "Libre Crezca Fecundo".
+Artículo 3º—El Instituto usará, para sus actos y documentos, un logotipo con el dibujo del árbol de Guanacaste en color verde, que podrá acompañarse de las siglas "INS" en color azul y/o del nombre completo del Instituto Nacional de Seguros, en letras blancas con fondo azul".
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31285 de 11 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.)
