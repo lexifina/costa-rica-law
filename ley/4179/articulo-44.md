@@ -1,0 +1,1 @@
+Artículo 44.- Las cooperativas de transporte de pasajeros podrán organizarse por vecinos y usuarios de las comunidades, o por los grupos de trabajadores, y gozarán de prioridad en la adjudicación de rutas, cuando comprueben su existencia legal ante el organismo o autoridad competente, sin perjuicio de los derechos adquiridos.

@@ -1,0 +1,1 @@
+Artículo 93.- El producto de la liquidación, constatado por inventario anual correspondiente, deducidos los gastos generales, las cargas sociales y las amortizaciones de todo género, constituyen el excedente o saldo del período respectivo.

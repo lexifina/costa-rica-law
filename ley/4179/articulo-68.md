@@ -1,0 +1,2 @@
+Artículo 68.- La representación judicial y extrajudicial, la ejecución de los acuerdos del Consejo de Administración y la administración de los negocios de la cooperativa, corresponden al Gerente.
+El Gerente será responsable ante el Consejo de Administración de todos los actos conectados con su cargo dentro de la cooperativa, y deberá rendir informes con la frecuencia que indiquen los estatutos y siempre que el Consejo de Administración lo pidiere.

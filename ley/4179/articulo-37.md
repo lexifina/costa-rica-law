@@ -1,0 +1,1 @@
+Artículo 37.- Las cooperativas de mercadeo tienen por objeto: La recolección, centralización, selección, clasificación, preparación e industrialización, empaque y venta mancomunada de artículos naturales, elaborados o de ambos, producidos por sus asociados. Pueden ser agrícolas, industriales o artesanales.

@@ -1,0 +1,1 @@
+Artículo 27.- Salvo en los casos previstos en esta ley, las atribuciones otorgadas al Departamento de Cooperativas, no lo facultan para intervenir directamente en la gestión administrativa. Las cooperativas gozarán de completa autonomía e independencia, siempre que se ajusten a lo estipulado en esta ley, sus respectivos estatutos y reglamentos.

@@ -1,0 +1,1 @@
+Artículo 78.- Los miembros de las cooperativas no podrán sindicalizarse como tales asociados, para defender sus intereses ante ellas, toda vez que tienen derecho a expresar sus opiniones y defender sus intereses en las asambleas; pero si podrán hacerlo los trabajadores de la cooperativa, sean o no asociados.

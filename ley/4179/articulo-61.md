@@ -1,0 +1,3 @@
+Artículo 61.- La Asamblea de asociados, ordinaria o extraordinaria, se considerará legalmente constituída en primera convocatoria, cuando esté presente al menos, la mitad más uno de sus miembros.
+En la Asamblea de delegados, sea ordinaria o extraordinaria, el quórum en primera convocatoria, no será inferior a dos tercios del total de delegados.
+Si no se lograra el quórum exigido dentro de las dos horas posteriores a la fijada en la primera convocatoria, la Asamblea de asociados podrá efectuarse legalmente con la asistencia del 30% de sus integrantes, pero en ningún caso con menos de 20 miembros. En la Asamblea de delegados deberán estar presentes por lo menos, la mitad más uno de ellos y nunca menos de 30.

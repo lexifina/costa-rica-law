@@ -1,0 +1,2 @@
+Artículo 24.- El Consejo Directivo se reunirá ordinariamente por lo menos una vez al mes, y en sesión extraordinaria, cada vez que sea convocado por el jefe del Departamento o así lo soliciten por lo menos tres de sus miembros.
+Los miembros del Consejo Directivo devengarán dietas que se establezcan en sus reglamentos internos, debiendo figurar en los presupuestos anuales del Departamento, las sumas necesarias para cubrirlas, pero no serán remuneradas más de cuatro sesiones al mes.

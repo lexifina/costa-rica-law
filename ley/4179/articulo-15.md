@@ -1,0 +1,1 @@
+Artículo 15.- Además de lo que indica el artículo anterior, formarán el patrimonio del Departamento de Cooperativas: Las nuevas aportaciones decapital, reservas patrimoniales que acordare la Junta Directiva y utilidades netas provenientes de las liquidaciones anuales.

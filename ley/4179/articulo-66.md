@@ -1,0 +1,3 @@
+Artículo 66.- Corresponde al Comité de Vigilancia elegido por la Asamblea, que se integrará con un número no menor de tres asociados, el examen y fiscalización de todas las cuentas y operaciones realizadas por la cooperativa, e informar lo que corresponda ante la Asamblea.
+La responsabilidad solidaria de los miembros del Consejo de Administración y del Gerente alcanza a los miembros del Comité de Vigilancia por los actos que éste no hubiere objetado oportunamente.
+Quedan exentos de responsabilidad los miembros del Comité que salven expresamente su voto en el acto de tomarse la decisión respectiva.

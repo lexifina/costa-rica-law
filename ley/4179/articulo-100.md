@@ -1,0 +1,1 @@
+Artículo 100.- A falta de disposición expresa de los estatutos, el activo líquido de la cooperativa que se disuelva voluntariamente, se destinará a engrosar el fondo de edcuación cooperativa del Departamento de Cooperativas. Igual destino se dará a dicho activo líquido, aunque haya estipulaciones en contrario, siempre que la disolución de la cooperativa fuere forzosa.

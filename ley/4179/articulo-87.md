@@ -1,0 +1,1 @@
+Artículo 87.- Los certificados de aportación, depósitos, participaciones o derechos de cualquier clase que correspondan a los asociados de una cooperativa, quedan vinculados preferentemente y desde su origen, a favor de ésta, como garantía de la obligación u obligaciones que aquéllos pudieran llegar a tener con la asociación.

@@ -1,0 +1,1 @@
+Artículo 113.- El Banco Nacional de Costa Rica, por medio de sus Departamentos de Crédito, y los demás bancos del Sistema Bancario Nacional, podrán conceder créditos a largo plazo a las cooperativas formadas por asociados de escasos recursos, para que puedan hacer efectiva la suscripción de sus certificados de aportación en tales cooperativas.

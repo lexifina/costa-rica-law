@@ -1,0 +1,1 @@
+Artículo 31.- Las consultas ordenadas por la Constitución Política que se hagan al Banco Nacional de Costa Rica sobre proyectos de ley que guarden relación con las asociaciones cooperativas, deberán ser contestadas por medio del Departamento de Cooperativas.
