@@ -1,7 +1,7 @@
 CAPITULO V
-De las compras o Ejecución de Obras por
-Licitación Pública
-Artículo 18.—Tanto las compras de bienes y servicos a que se refiere el inciso c) del artículo 12 de este reglamento, como los "contratos de obra" que exceda a cien mil colones, se efectuarán mediante el trámite de licitación pública, según el siguiente procedimiento:
+De las compras o Ejecución de Obras por Licitación Pública
+Articulo 18.—Tanto las compras de bienes y servicios a que se refiere el inciso c) del artículo 12 de este reglamento, como los "contratos de obra" que excedan el límite máximo establecido por el artículo 93 de la Ley de la Administración Financiera de la República, se efectuará mediante el trámite de licitación pública, según el siguiente procedimiento:...
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Nº 3135 de 15 diciembre de 1980, publicada en La Gaceta N° 239 del 15 de diciembre de 1980).
 a) La Proveeduría deberá preparar el cartel correspondiente, para lo cual se aserrará de los funcionarios que tenga relación directa con el objeto de la compra a realizarse y lo presentará a consideración de la Presidencia Ejecutiva para su aprobación.
 En ausencia del Presidente Ejecutivo lo considerará el Gerente.
 b) El cartel de licitación o pliego de condiciones, constituye el reglamento específico de la contratación que se promueve, integrado por dos partes. La primera de ellas se refiere fundamentalmente a aspectos tales como el número de la licitación, el nombre del objeto, que deberá ser corto pero expresivo, el nombre del ICT, el plazo que se señala para la apertura de las ofertas y eventualmente el plazo de adjudicación, el número de copias que deberá presentarse con el original, la dirección a la que deberá ser remitidas las ofertas, las especies fiscales que debe aportarse y el monto y forma de las garantías a rendir.
