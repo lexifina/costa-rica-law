@@ -1,0 +1,3 @@
+Transitorio sexto.-
+Se crea una comisión de cinco Diputados, que nombrará el Presidente de la Asamblea Legislativa, asesorada por un representante del Ministerio de Hacienda y un representante de las Instituciones de Enseñanza Superior, para que en un plazo de dos meses redacte un proyecto de ley sobre el impuesto a la plusvalía.
+Una vez aprobado el impuesto que se indica en el párrafo anterior, el gravamen al traspaso de bienes inmuebles será eliminado, sustituyendo éste por aquél, en el momento en que la efectividad fiscal de la plusvalía sea igual a la del gravamen al traspaso de bienes inmuebles.

@@ -1,0 +1,1 @@
+ARTICULO 2º.-Impuesto sobre Sociedades con Acciones al Portador. Las sociedades anónimas que al 30 de setiembre de cada año se encuentren constituidas con acciones al portador, total o parcialmente, pagarán durante el mes de octubre un impuesto del tres por ciento (3%) sobre su capital neto total; impuesto que no podrá ser superior a veinte mil colones (¢ 20,000.00).
