@@ -1,0 +1,1 @@
+5°—La intervención de cada uno de los participantes debe limitarse únicamente a la realización de la obra. Queda prohibido terminantemente cualquier explicación respecto a la obra de parte de los integrantes.

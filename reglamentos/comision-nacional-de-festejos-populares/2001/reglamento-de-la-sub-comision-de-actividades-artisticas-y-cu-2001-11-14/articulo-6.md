@@ -1,0 +1,1 @@
+6°—Los participantes deberán estar una hora antes del momento de su participación en el lugar donde se efectuará la presentación y permanecer por lo menos un representante del grupo hasta el final o sea hasta que den a conocer el veredicto.
