@@ -1,0 +1,2 @@
+Artículo 4°—Modifíquese el transitorio VI, del decreto ejecutivo No 18142-MOPT. en los siguientes términos:
+"...Transitorio VI.—A partir de enero del año 2001 la Unidad Ejecutora para la administración del Ferry Tempisque, por ser un órgano - persona adscrito al Ministerio de Obras Públicas y Transportes, deberá comportarse de acuerdo a la estructura administrativa y funcionar de ese Ministerio y con las restantes normas integrantes del Ordenamiento Jurídico.

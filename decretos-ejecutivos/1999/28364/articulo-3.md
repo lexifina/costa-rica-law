@@ -1,0 +1,2 @@
+Artículo 3°—Modifíquese el transitorio V, del decreto ejecutivo No 28142-MOPT, en los siguientes términos:
+"...Transitorio V.—Durante el año 2000 deberá la Unidad Ejecutora efectuar cortes trimestrales de los ingresos y egresos derivados de la prestación del servicio, debiendo remitirlos al Despacho del Ministro de Obras Públicas y Transportes, con copia a la Dirección General de Presupuestos Públicos de la Contraloría General de la República.
