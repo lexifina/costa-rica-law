@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Concluy‚ndose en Agosto inmediato la recolección del £último año del trienio pasado rematado, no se hará novedad con sus arrendatarios, y por el contrario, tendrán derecho a exigir el diezmo llamado de pelo que cobran en el mismo Agosto, quedando en la obligación de satisfacer la cuota de su arrendamiento en el próximo Octubre, según son obligados.
