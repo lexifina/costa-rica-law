@@ -23,6 +23,8 @@ Social, y en el régimen de riesgos de trabajo. Se concederá un
 plazo de treinta días hábiles para corregir la omisión o el
 atraso; en caso de persistir o reiterarse la mora se cancelará la
 concesión o el permiso.
+g) El incumplimiento de las normas y los principios de calidad en la prestación de los servicios públicos.
+(Así adicionado el inciso anterior, por el artículo único de la Ley No. 8415 de 13 de mayo de 2004).
 Cuando no sea posible estimar el daño, se multará con el monto de
 cinco a veinte salarios base mínimos fijados en el presupuesto ordinario
 de la República, de acuerdo con la Ley No. 7337, del 5 de mayo de 1993.
