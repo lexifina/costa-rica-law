@@ -1,0 +1,1 @@
+Artículo 4°-Los nombramientos de los integrantes de dicha Comisión se harán por acuerdo posterior de conformidad con el artículo 121 de la Ley General de la Administración Pública número 6227 de 2 de mayo de 1978. .

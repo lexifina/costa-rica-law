@@ -1,0 +1,1 @@
+Artículo 2°-Designar al Primer Vicepresidente de la República, como coordinador de todas las acciones que lleven a cabo los ministerios, entes descentralizados y otras instituciones, anteriormente citadas, para el cumplimiento de la política gerontológica del país. Y en ausencia de éste, lo ejercerá la Primera Dama de la República.
