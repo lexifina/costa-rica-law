@@ -1,9 +1,10 @@
 # Reestructuración del Poder Ejecutivo
 
-Ley N° 6812 del 1982-09-14. SINALEVI, ficha 33153: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33153&param2=34972&param3=1>.
+Ley N° 6812 del 1982-09-14. SINALEVI, ficha 33153: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=33153&param2=34973&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1982-09-14 | Ley 6812 | 1982-09-14 |
+| 2 de 2 | 1990-06-21 | Ley 7152 | 1982-09-14 |

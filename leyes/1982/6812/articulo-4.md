@@ -1,7 +1,7 @@
-Artículo 4º.- Corresponde al Ministerio de Industria, Energía y Minas,
-la formulación y planificación de las políticas industriales, energéticas y
-mineras del Gobierno de la República; así como la dirección, la vigilancia
-y el control en los campos mencionados.
+Artículo 4º.- Corresponde al Ministerio de Industria, Energía y
+Minas, la formulación y planificación de las políticas industriales,
+energéticas y mineras del Gobierno de la República; así como la
+dirección, la vigilancia y el control en los campos mencionados.
 Serán funciones del Ministerio de Industria, Energía y Minas;
 a) Fomentar el desarrollo industrial, energético y minero del país;
 b) Suscribir tratados, convenios y acuerdos internacionales, así como
@@ -14,3 +14,5 @@ ch) Aplicar y vigilar porque se aplique la legislación vigente en las
 materias de su competencia y en la normalización de los productos
 fabricados en el país o importados; y
 d) Aquellas que le asignen la ley y el Poder Ejecutivo.
+(TACITAMENTE DEROGADO por el artículo 17 de la Ley Nº 7152 de 5 de junio
+de 1990).
