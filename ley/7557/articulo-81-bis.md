@@ -1,0 +1,2 @@
+Artículo 81 bis.—Sobrantes de mercancías a granel. No será necesario justificar las diferencias en las mercancías a granel, siempre que la diferencia total no exceda del tres por ciento (3%). Cuando tal diferencia sea superior a dicho límite, el transportista deberá justificar, en la forma señalada, la diferencia total respecto de lo manifestado para los bultos sobrantes.
+(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)

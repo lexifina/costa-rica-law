@@ -1,0 +1,2 @@
+Artículo 216 bis.—Responsabilidad penal del funcionario público por acción u omisión dolosa. Será sancionado con prisión de tres a diez años el funcionario público que, directa o indirectamente, por acción u omisión dolosa, favorezca, colabore o facilite, en cualquier forma, el incumplimiento de la obligación tributaria aduanera, la inobservancia de los deberes formales del sujeto pasivo, la introducción o extracción de mercancías evadiendo o eludiendo el control aduanero.
+(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)

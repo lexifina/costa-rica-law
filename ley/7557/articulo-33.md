@@ -1,17 +1,6 @@
 CAPITULO II
 AGENTE ADUANERO
-ARTICULO 33.- Concepto
-El agente aduanero es el profesional auxiliar de la función pública
-aduanera, autorizado por el Ministerio de Hacienda para actuar, en su
-carácter de persona natural, con las condiciones y requisitos establecidos
-en el Código Aduanero Uniforme Centroamericano y esta ley, en la
-prestación habitual de servicios a terceros, en los trámites, regímenes y
-las operaciones aduaneras.
-El agente aduanero es el representante legal de su mandante para las
-actuaciones y notificaciones del despacho aduanero y los actos que deriven
-de él. En ese carácter, es responsable civil ante su mandante por las
-lesiones patrimoniales que surjan como consecuencia del cumplimiento de su
-mandato.
-El agente aduanero y demás auxiliares serán responsables,
-patrimonialmente, ante el fisco, por las infracciones y los delitos en que
-incurran sus asistentes acreditados ante la Dirección General de Aduanas.
+Artículo 33.—Concepto. El agente aduanero es el profesional auxiliar de la función pública aduanera autorizado por el Ministerio de Hacienda para actuar, en su carácter de persona natural, con las condiciones y los requisitos establecidos en el Código Aduanero Uniforme Centroamericano y en esta Ley, en la presentación habitual de servicios a terceros, en los trámites, los regímenes y las operaciones aduaneras.
+El agente aduanero rendirá la declaración aduanera bajo fe de juramento y, en consecuencia, los datos consignados en las declaraciones aduaneras que formule de acuerdo con esta Ley, incluidos los relacionados con el cálculo aritmético de los gravámenes que guarden conformidad con los antecedentes que legalmente le sirven de base, podrán tenerse como ciertos por parte de la aduana, sin perjuicio de las verificaciones y los controles que deberá practicar la autoridad aduanera dentro de sus potestades de control y fiscalización.
+El agente aduanero será el representante legal de su mandante para las actuaciones y notificaciones del despacho aduanero y los actos que se deriven de él. En ese carácter, será el responsable civil ante su mandante por las lesiones patrimoniales que surjan como consecuencia del cumplimiento de su mandato.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

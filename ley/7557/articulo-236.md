@@ -1,52 +1,32 @@
-ARTICULO 236.- Multa de quinientos pesos centroamericanos
-Será sancionada con multa de quinientos pesos centroamericanos o su
-equivalente en moneda nacional, la persona física o jurídica, auxiliar o
-no de la función pública aduanera, que:
-a) No reexporte o reimporte mercancías o las reexporte o reimporte
-fuera del plazo legal, cuando sea obligatorio de conformidad con
-el régimen o la modalidad aduanera aplicada. Si se hubiera
-rendido garantía y procediera su ejecución, la multa será de cien
-pesos centroamericanos o su equivalente en moneda nacional.
-b) Estando autorizada para realizar un transbordo o un tránsito de
-mercancías por vía marítima o aérea, incumpla las medidas de
-seguridad y demás condiciones establecidas por la autoridad
-aduanera.
-c) No asigne personal para carga, descarga o transbordo de
-mercancías, si se trata de un transportista aduanero o agente
-aduanero autorizado para declarar el tránsito.
-d) Incumpla las normas referentes a ubicación, estiba, depósito,
-seguridad, protección o identificación de mercancías.
-e) No realice los actos que le corresponden según esta ley y las
-demás disposiciones legales, empleando el sistema informático,
-cuando la autoridad aduanera le haya autorizado su código de
-usuario y clave de acceso y el empleo de ambos sea obligatorio.
-f) En su calidad de depositario, se encuentre responsable
-patrimonial por mercancías que no se hubieran hallado a pesar de
-haber sido declaradas como recibidas.
-g) Como transportista aduanero o agente aduanero autorizado para
-declarar el tránsito, no mantenga inscritos los vehículos y
-unidades de transporte utilizados en el tránsito aduanero.
-h) Como responsable de la recepción, manipulación, conservación,
-depósito o custodia de mercancías sujetas al control aduanero,
-permita que sufran daños, faltantes o pérdidas.
-i) En su calidad de transportista aduanero o agente aduanero
-autorizado para declarar el tránsito, no comunique, a la
-autoridad más cercana, los accidentes que sufra el vehículo o la
-unidad de transporte en el transcurso del tránsito aduanero, o
-presente los vehículos, las unidades de transporte y sus cargas
-fuera del plazo establecido para el tránsito aduanero.
-j) En su calidad de transportista aduanero o agente aduanero
-autorizado para declarar el tránsito, no reporte el detalle de
-las diferencias que se encuentren entre la cantidad de bultos u
-otros elementos de transporte, realmente descargados o
-transportados, y las cantidades manifestadas o el detalle de
-mercancías, bultos u otros elementos de transporte, dañados o
-averiados como consecuencia del transporte o cualquier otra
-circunstancia que afecte las declaraciones presentadas a la
-autoridad aduanera.
-k) Como agente aduanero, presente o transmita la declaración
-aduanera de importación o exportación omitiendo cualquiera de los
-requisitos documentales o la información requerida por esta ley o
-sus reglamentos para determinar la obligación tributaria aduanera
-o demostrar el cumplimiento de otros requisitos o la realice con
-errores o inexactitudes.
+Artículo 236.—Multa de quinientos pesos centroamericanos.
+Será sancionada con multa de quinientos pesos centroamericanos, o su equivalente en moneda nacional, la persona física o jurídica, auxiliar o no de la función pública aduanera, que:
+1. No reexporte o reimporte mercancías o las reexporte o reimporte hasta ocho días después del vencimiento del plazo legal, cuando sea obligatorio de conformidad con el régimen o la modalidad aduanera aplicado. Si se ha rendido garantía y procede su ejecución, la multa será de cien pesos centroamericanos o su equivalente en moneda nacional, salvo si no está tipificado con una sanción mayor.
+2. Estando autorizada para realizar un transbordo o un tránsito de mercancías por vía marítima o aérea, incumpla las medidas de seguridad y las demás condiciones establecidas por la autoridad aduanera.
+3. No asigne personal para la carga, la descarga o el transbordo de mercancías, si se trata de un transportista aduanero.
+4. Incumpla las normas referentes a ubicación, estiba, depósito, vigilancia, seguridad, protección o identificación de mercancías, vehículos y unidades de transporte.
+5. Omita avisar las posibles causas, por los medios que autorice la autoridad aduanera, dentro del término de las veinticuatro horas siguientes al conocimiento de , la ocurrencia de pérdidas, hurtos, robos, daños u otra circunstancia que afecte las mercancías bajo su custodia, de cualquier empresa o auxiliar de la función pública aduanera receptora de mercancías.
+6. En su calidad de persona física o jurídica, pública o privada que, por cualquier título, reciba, manipule, procese o tenga en custodia mercancías sujetas al control aduanero, incluso las empresas de estiba y autoridades o empresas portuarias y aeroportuarias, se encuentre responsable patrimonial por mercancías que, a pesar de haber sido recibidas, no se hayan encontrado.
+7. Como responsable de la recepción, la manipulación, la conservación, el depósito o la custodia de mercancías sujetas al control aduanero, permita que sufran daños, faltantes o pérdidas.
+8. En su calidad de transportista aduanero, inicie el tránsito o presente los vehículos, las unidades de transporte y sus cargas, fuera del plazo establecido para el tránsito aduanero.
+9. No coloque, estando obligado, dispositivos de seguridad en las unidades de transporte cargadas para el tránsito hacia un puerto aduanero, una vez autorizado el levante de las mercancías.
+10. No transmita, antes del arribo de la unidad de transporte, electrónicamente ni por otros medios autorizados, los datos relativos a las mercancías, los vehículos y las unidades de transporte, si se trata de un transportista aduanero, o los transmita incompletos o con errores; lo anterior con las salvedades que se establezcan reglamentariamente.
+11. Omita transmitir, antes del arribo de la unidad de transporte, transmita en forma incompleta o con errores que causen perjuicio fiscal, o transmita fuera de los plazos fijados por esta Ley o sus Reglamentos, la existencia de mercancías inflamables, corrosivas, explosivas, perecederas o de las que, por su naturaleza, representen peligro para otras mercancías, personas o instalaciones, con el fin de darles tratamiento especial, si se trata de un transportista aduanero; lo anterior con las salvedades establecidas reglamentariamente.
+12. En su calidad de auxiliar de la función pública, no transmita a la autoridad aduanera o transmita tardíamente, con omisiones o errores que causen perjuicio fiscal, el detalle de las diferencias que se encuentren entre la cantidad de bultos u otros elementos de transporte, realmente descargados o transportados, y las cantidades manifestadas o el detalle de mercancías, bultos u otros elementos de transporte dañados o averiados como consecuencia del transporte o de otra circunstancia que afecte las declaraciones presentadas a la autoridad aduanera o los documentos que las amparan.
+13. En su calidad de transportista aduanero, no comunique a la autoridad más cercana los accidentes que sufra el vehículo o la unidad de transporte en el transcurso del tránsito aduanero.
+14. Estando obligado, omita transmitir a la autoridad aduanera, en el momento de la recepción de los vehículos y las unidades de transporte, el resultado de la inspección de estos en los términos y las condiciones dispuestos por la presente Ley y sus Reglamentos, o lo transmita en forma tardía, incompleta o con errores que causen perjuicio fiscal.
+15. Omita transmitir, transmita en forma incompleta o transmita con errores que causen perjuicio fiscal a la aduana de control, por vía electrónica, en el plazo y la forma señalados por esta Ley o sus Reglamentos, el reporte del ingreso a sus instalaciones y la salida de ellas de vehículos, unidades de transporte y sus cargas, si se trata de un estacionamiento transitorio.
+16. Como receptor de mercancías, al recibir los bultos no deje constancia, o la deje incompleta o con errores que causen perjuicio fiscal, de sus actuaciones y registros en la declaración o el documento de ingreso respectivo, donde consigne los datos en la forma, el plazo y las condiciones que esta Ley o sus Reglamentos establecen.
+17. Si se trata de un depositario aduanero o de otro auxiliar obligado, no transmita a la autoridad aduanera, en los términos ordenados por esta Ley y sus Reglamentos, le transmita tardíamente o le transmita con omisiones o errores que causen perjuicio fiscal, el reporte del inventario de los bultos recibidos una vez finalizada la descarga, incluidas las diferencias que se encuentren entre la cantidad de mercancías, bultos u otros elementos o unidades de transporte manifestados y la cantidad realmente descargada y recibida, ya sean faltantes o sobrantes, los daños u otra irregularidad que se determine.
+18. En su calidad de depositario, incumpla su obligación de transmitir en forma anticipada y a posteriori el reacondicionamiento o reembalaje de los bultos, en los términos y las condiciones establecidos en la normativa aduanera, o realice una transmisión incompleta o con errores que causen perjuicio fiscal.
+19. Si se trata del consolidador de carga internacional o de la empresa de entrega rápida, no transmita, dentro de los plazos y según las condiciones dispuestas en la normativa aduanera, el manifiesto de carga consolidada y los conocimientos de embarque matriz e individualizados en estos, tantos como consignatarios registre el documento, los transmita incompletos o con errores que causen perjuicio fiscal.
+20. En su calidad de consolidador de carga internacional, no transmita a la aduana de control, le transmita en forma tardía o con errores u omisiones que causen perjuicio fiscal, las diferencias encontradas en la operación de desconsolidación de mercancías efectuada en el depósito fiscal o en otro lugar autorizado, respecto de la documentación que las ampara, dentro del plazo de tres horas hábiles contado a partir de la finalización de la descarga o, en este mismo plazo, no comunique la información de los conocimientos de embarque que se deriven del conocimiento de embarque matriz ni el nombre de los consignatarios.
+21. En su calidad de depositario, no concluya la descarga de la unidad de transporte en el plazo fijado por esta Ley y sus Reglamentos.
+22. En su calidad de empresa de entrega rápida, no transmita a la aduana de control el manifiesto de entrega rápida ni cualquier diferencia en cuanto a la cantidad, la naturaleza y el valor de las mercancías declaradas, respecto de lo efectivamente arribado o embarcado.
+23. Como transportista, ingrese a los estacionamientos transitorios unidades de transporte que contengan mercancías explosivas, inflamables, corrosivas, contaminantes, radiactivas, tóxicas, peligrosas u otras de similar naturaleza, así manifestadas por el transportista internacional.
+24. Omita presentar o transmitir, con la declaración aduanera, cualquiera de los requisitos documentales o la información requerida por esta Ley o sus Reglamentos, para determinar la obligación tributaria aduanera o demostrar el cumplimiento de otros requisitos reguladores del ingreso de mercancías al territorio aduanero o su salida de él.
+25. Presente o transmita los documentos, la información referida en el inciso anterior o la declaración aduanera, con errores u omisiones que causen perjuicio fiscal, o los presente tardíamente, salvo si está tipificado con una sanción mayor.
+26. Transmita por vía electrónica, a la autoridad aduanera o a otra autoridad competente, datos distintos de los consignados en el documento en que se basó la transmisión, salvo si está tipificado con una sanción mayor.
+27. Viole o rompa sellos, precintos o marchamos u otras medidas de seguridad colocadas o que la autoridad aduanera haya dispuesto colocar, en tanto no exista sustracción de mercancías.
+28. Declare erróneamente los cálculos de conversión de monedas, en tanto no constituya una sanción mayor.
+29. Venda u obsequie cualquier clase de mercancías que se encuentren a bordo de vehículos que ingresen en el territorio aduanero, en tanto no constituya una sanción mayor.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)

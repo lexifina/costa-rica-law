@@ -1,14 +1,7 @@
 CAPITULO II
 SERVICIO NACIONAL DE ADUANAS
-ARTICULO 8.- Servicio Nacional de Aduanas
-El Servicio Nacional de Aduanas es el órgano de la Administración
-Tributaria dependiente del Ministerio de Hacienda que tiene a su cargo la
-aplicación de la legislación aduanera.
-El Servicio estará constituido por la Dirección General de Aduanas,
-las aduanas, sus dependencias y los demás órganos aduaneros y dispondrá de
-personal con rango profesional, especializado para ejercer la gestión
-aduanera.
-Los órganos del Ministerio de Hacienda que administren los tributos,
-podrán establecer planes conjuntos de fiscalización que incluyan la
-coordinación de funciones y el intercambio de información tributaria de
-sujetos pasivos para lograr una eficiente recaudación tributaria.
+Artículo 8º—Servicio Nacional de Aduanas. El Servicio Nacional de Aduanas será el órgano de control del comercio exterior y de la Administración Tributaria; dependerá del Ministerio de Hacienda y tendrá a su cargo la aplicación de la legislación aduanera.
+El Servicio estará constituido por la Dirección General de Aduanas, las aduanas, sus dependencias y los demás órganos aduaneros; dispondrá de personal con rango profesional y con experiencia en el área aduanera y/o de comercio exterior, pertinentes conforme a los acuerdos, convenios y tratados internacionales vigentes.
+El Ministerio de Hacienda y el Ministerio de Comercio Exterior establecerán una instancia de coordinación interinstitucional, cuya función será velar por la correcta aplicación de los controles de comercio exterior aptos para ejercer la gestión aduanera.
+Para establecer actividades integrales de fiscalización, la Dirección General de Aduanas, la Dirección General de Tributación, la Dirección General de Hacienda y los demás órganos de la Administración Tributaria Aduanera, adscritos al Ministerio de Hacienda, estarán facultados legalmente para intercambiar la información tributaria o aduanera que obtengan, por cualquier medio lícito, de los contribuyentes, responsables, terceros, auxiliares de la función pública aduanera, importadores, exportadores, productores y consignatarios. Dichas autoridades deberán guardar confidencialidad de la información suministrada, en los términos ordenados por la legislación tributaria y, en caso de incumplimiento, quedarán sujetas a las responsabilidades legalmente establecidas.
+(Así reformado por artículo 1° del la ley N° 8373 de 18 de agosto de 2003)

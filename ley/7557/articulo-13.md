@@ -1,9 +1,3 @@
-ARTICULO 13.- Aduana
-La aduana es la oficina técnica administrativa encargada de las
-gestiones aduaneras, el control de las entradas, permanencia, salidas de
-las mercancías y la coordinación de la actividad aduanera que se
-desarrolle en su zona de competencia territorial o funcional.
-Las aduanas tendrán la facultad de aplicar las exenciones tributarias
-que expresamente indique la ley; además, podrán autorizar las relativas a
-materia aduanera, creadas por convenios internacionales o leyes, según las
-directrices emitidas por el Ministerio de Hacienda.
+Artículo 13.—Aduana. La aduana es la unidad técnico-administrativa encargada de las gestiones aduaneras y del control de las entradas, la permanencia y la salida de las mercancías objeto del comercio internacional, así como de la coordinación de la actividad aduanera con otras autoridades gubernamentales ligadas al ámbito de su competencia, que se desarrollen en su zona de competencia territorial o funcional.
+Las aduanas tendrán la facultad de aplicar las exenciones tributarias que la ley indique expresamente y las relativas a materia aduanera creadas por acuerdos, convenios y tratados internacionales.
+(Así reformado por artículo 1° de la ley N° 8373 de 18 de agosto de 2003).

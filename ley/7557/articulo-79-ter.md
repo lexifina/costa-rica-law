@@ -1,0 +1,2 @@
+Artículo 79 ter.—Rectificación del manifiesto. El transportista podrá rectificar los datos del manifiesto relativos al número y a la descripción de los bultos (clase, marcas, numeración y peso), en cualquier momento antes de la llegada del medio de transporte a la jurisdicción de la aduana de ingreso. Los demás datos del manifiesto y/o conocimientos de embarque o guías aéreas, podrán rectificarse en cualquier momento antes de destinar las mercancías a uno de los regímenes aduaneros".
+(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)

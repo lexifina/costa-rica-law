@@ -1,0 +1,2 @@
+Artículo 269 bis.—Sanciones. Las sanciones previstas en esta Ley se impondrán a la persona jurídica, cuando se demuestre que los representantes legales o los personeros de la empresa han propiciado actos o hechos que posibilitan la sanción, de conformidad con lo dispuesto en el artículo anterior; en caso contrario, responderá únicamente el agente de aduanas acreditado.
+(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)

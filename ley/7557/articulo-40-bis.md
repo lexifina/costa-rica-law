@@ -1,0 +1,2 @@
+Artículo 40 bis.—Conocimiento de embarque. El conocimiento de embarque emitido por el transportista, constituirá título representativo de mercancías. Su traslado, cuando sea total, deberá realizarse mediante endoso y cuando sea parcial, mediante cesión de derechos exenta de especies fiscales y autenticada por abogado; además, deberá efectuarse según el formato que disponga la Dirección General de Aduanas.
+(Así adicionado por el artículo 2° de la ley N° 8373 de 18 de agosto de 2003)

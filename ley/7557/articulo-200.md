@@ -1,8 +1,2 @@
-ARTICULO 200.- Remisión del recurso
-Denegado total o parcialmente el recurso de reconsideración e
-interpuesto el recurso de revisión jerárquico, la aduana competente lo
-remitirá a la Dirección General de Aduanas, junto con el expediente
-administrativo, el día hábil siguiente por el medio más rápido que tenga
-a disposición; emplazará a la parte para que en los cinco días hábiles
-siguientes reitere o amplíe los argumentos de su pretensión ante la
-Dirección General de Aduanas.
+Artículo 200.—Remisión del recurso. Presentado el recurso de apelación y denegado total o parcialmente el recurso de reconsideración, en su caso, la aduana competente se limitará a remitirlo al Tribunal Aduanero Nacional, junto con el expediente administrativo, dentro de los siguientes tres días hábiles, por el medio más rápido que tenga a disposición, y emplazará a la parte para que en los diez días hábiles siguientes, contados a partir de la fecha de notificación, reitere o amplíe los argumentos de su pretensión ante el Tribunal Aduanero Nacional.
+(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
