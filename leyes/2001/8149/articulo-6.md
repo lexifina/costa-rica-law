@@ -1,0 +1,1 @@
+ARTÍCULO 6.- El Instituto podrá realizar convenios con las universidades públicas, privadas e institutos de investigación, a nivel nacional o internacional, con el fin de mejorar la producción agropecuaria.

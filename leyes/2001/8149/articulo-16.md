@@ -1,0 +1,1 @@
+ARTÍCULO 16.- El Instituto transferirá inmediatamente los resultados de la investigación a los usuarios de la tecnología, por medio del servicio de extensión, siempre y cuando esta investigación no haya sido producto de la venta de servicios.

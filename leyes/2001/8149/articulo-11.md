@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Los funcionarios gubernamentales ejercerán sus funciones directivas sin percibir dietas. Los demás miembros directivos devengarán dietas cuyo monto no podrá ser superior al establecido para las instituciones autónomas; se les reconocerá el pago de hasta dos sesiones ordinarias por mes y tres extraordinarias por año.

@@ -1,0 +1,2 @@
+ARTÍCULO 4.- El Ministerio de Agricultura y Ganadería facilitará al Instituto el personal, los equipos, bienes muebles e inmuebles, la infraestructura y, en general, el contenido presupuestario necesario para su debido funcionamiento, incluidos los que están siendo utilizados en la actualidad por la Dirección de Investigaciones Agropecuarias.
+El salario del personal que labore para el Instituto será financiado por el Ministerio de Agricultura y Ganadería.
