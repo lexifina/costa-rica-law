@@ -1,0 +1,1 @@
+Art 2°.- En consecuencia es prohibido a cualquiera otro ciudadano o habitantes inquietar de algún modo al Sr. Salisch en el uso del privilegio que se le concede en el artículo anterior, pero a nadie se impide la fábrica de ladrillos, teja y loza por el antiguo método que se ha acostumbrado en la República.
