@@ -1,0 +1,5 @@
+Artículo 2º—Permisos. Para la instalación de un rótulo en la jurisdicción del Cantón de Grecia, se deberá contar con el respectivo permiso municipal. El permiso para la instalación de un rótulo será otorgado por el Departamento de Ingeniería de la Municipalidad, por un periodo de dos años, renovables automáticamente por periodos iguales, sujeto a las disposiciones de este reglamento. Se exceptúan de la aplicación de este reglamento los siguientes:
+a. Rótulos de prevención colocados en construcciones, que no sobrepasen dos metros cuadrados.
+b. Rótulos que anuncien la venta, arriendo o alquiler de un mueble o inmuebles, con el tamaño máximo de un metro cuadrado, y
+c. Rótulos dentro de centros comerciales o en los locales comerciales con vista hacia pasillos interiores o parqueos internos.
+d. Aquellos rótulos que estén regulados por leyes especificas, y los que estén regulados por el Ministerio de Obras Públicas y Transportes, basados en la Ley General de Caminos Nº 5060 del 22 de agosto de 1972, la Ley de Tránsito por Vías Públicas y Terrestres Nº 7331, y la Ley Vial Nº 6324.
