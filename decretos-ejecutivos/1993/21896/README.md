@@ -20,3 +20,4 @@ Reglamento de Organización Administrativa de las Oficinas Centrales Ministerio 
 | 5 | 2001-11-02 | Decreto Ejecutivo 29976 (2001-11-02) |
 | 6 | 2002-04-17 | Decreto Ejecutivo 30303 (2002-04-17) |
 | 7 | 2002-08-30 | Decreto Ejecutivo 30676 (2002-08-30) |
+| 8 | 2002-08-30 | Ley 8 |
