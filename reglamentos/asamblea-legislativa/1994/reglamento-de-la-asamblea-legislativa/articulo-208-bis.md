@@ -1,0 +1,3 @@
+Artículo 208 bis.—Procedimientos Especiales
+Mediante moción de orden, aprobada por dos tercios de sus votos, la Asamblea Legislativa podrá establecer procedimientos especiales para tramitar las reformas a su Reglamento y proyectos de ley cuya aprobación requiera mayoría absoluta, exceptuando la aprobación de contratos administrativos, los relacionados a la venta de activos del Estado o apertura de sus monopolios y los tratados y convenios internacionales sin importar la votación requerida para su aprobación. Todo procedimiento especial deberá respetar el principio democrático, y salvaguardar el derecho de enmienda.
+(Así adicionado mediante acuerdo No. 6231-04-05 de 8 de marzo de 2005).
