@@ -1,0 +1,1 @@
+Artículo 3º—El Consejo se reunirá en sesión ordinaria al menos una vez cada dos meses y en sesión extraordinaria las veces que sea necesario para cumplir su cometido. Las sesiones serán convocadas por el Ministro de Comercio Exterior.
