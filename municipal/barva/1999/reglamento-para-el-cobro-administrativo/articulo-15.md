@@ -1,0 +1,1 @@
+Artículo 15.-Sin perjuicio de lo establecido en el artículo 13, los abogados directores, podrán hacer arreglos de pago, previa autorización del señor Alcalde Municipal o en su defecto de la misma Contaduría Municipal.

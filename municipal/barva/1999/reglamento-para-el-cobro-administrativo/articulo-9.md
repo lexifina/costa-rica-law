@@ -1,0 +1,1 @@
+Artículo 9°-Recibidas las certificaciones municipales, que constituyen título ejecutivo, debidamente firmadas por el Contador Municipal, serán entregadas y distribuidas a los abogados para su debido diligenciamiento.

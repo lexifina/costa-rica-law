@@ -1,0 +1,1 @@
+Artículo 3°-El cobro administrativo comprenderá las acciones que se realicen administrativamente para normalizar las cuentas morosas, tales como avisos, volantes, cartas etc. Será responsabilidad de los Abogados contratados.

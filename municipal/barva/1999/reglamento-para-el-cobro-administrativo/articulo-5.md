@@ -1,0 +1,1 @@
+Artículo 5°-La dirección y el control, tanto de las acciones judiciales, como de las otras gestiones de cobro, estarán a cargo del departamento de Contabilidad el que coordinará lo procedente, con los abogados contratados para este efecto.

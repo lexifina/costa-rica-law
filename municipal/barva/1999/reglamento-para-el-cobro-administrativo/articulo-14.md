@@ -1,0 +1,1 @@
+Artículo 14.-Los abogados designados, no podrán aceptar casos y litigios, que vayan en contra de la Municipalidad de Barva. El irrespeto a esta disposición, será causal de cancelación de su contrato.

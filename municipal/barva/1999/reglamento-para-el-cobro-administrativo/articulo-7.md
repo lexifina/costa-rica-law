@@ -1,0 +1,1 @@
+Artículo 7°-Los abogados deberán tener experiencia en la tramitación de cobros judiciales y deberán ser debidamente incorporados al Colegio respectivo y devengarán honorarios, que serán cargados al contribuyente moroso, conforme a lo establecido en el Reglamento de Servicio de Cobro Judicial adjunto.

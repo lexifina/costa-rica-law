@@ -1,0 +1,1 @@
+Artículo 19.-Para coordinación en el cobro, la Municipalidad podrá nombrar un coordinador entre los abogados, el que tendrá una relación directa con las distintas dependencias municipales y será el encargado de distribuir y entregar la documentación pertinente.
