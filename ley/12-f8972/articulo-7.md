@@ -1,0 +1,2 @@
+Art 7° Esta ley comenzará a tener efecto desde la fecha de su promulgación en cuanto al cambio de las monedas extrangeras, y en cuanto al peso, ley tolerancia, diámetro y tipo de la moneda de que nuevo se acuñe, más respecto al rescate y reacuñación de la existente, el Gobierno fijará la fecha y proporciones en que deban verificarse.
+Dado en el Palacio Nacional en San José, a primero de abril de mil ochocientos setenta y uno.

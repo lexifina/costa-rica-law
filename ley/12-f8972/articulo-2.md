@@ -1,0 +1,1 @@
+Art 2° Las monedas de oro y plata que se podrán en circulación, acuñadas en la Casa de Moneda, se ajustarán a las tablas siguientes que expresan la clase, ley, peso, tolerancia y diámetro que les corresponden.
