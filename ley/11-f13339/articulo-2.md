@@ -1,0 +1,1 @@
+Art. 2°. -Los referidos Alcaldes Constitucionales podrán autorizar á prevención con el Juez de Hacienda Nacional, las escrituras en que esté interesado el Fisco, con tal que su valor no exceda de cinco mil pesos, excepto los títulos de terrenos baldíos y minas, que se expedirán siempre por el Juez de Hacienda Nacional.
