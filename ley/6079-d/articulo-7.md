@@ -1,0 +1,26 @@
+ARTICULO SETIMO
+Reservas y Declaraciones
+1. Al tiempo de su adhesión, todo Estado podrá formular reservas con
+respecto del artículo Cuarto del Presente Protocolo y, en lo que respecta
+a la aplicación conforme al artículo Primero del presente Protocolo, de
+cualesquiera disposiciones de la Convención que no sean las contenidas en
+los artículos 1, 3, 4, 16 1) y 33; no obstante en el caso de un Estado
+Parte en la Convención, las reservas formuladas al amparo de este artículo
+no se harán extensivas a los refugiados respecto a los cuales se aplica la
+Convención.
+2. Las reservas formuladas por los Estados Partes en la Convención
+conforme al artículo 42 de la misma serán aplicables, a menos que sean
+retiradas, en relación con las obligaciones contraídas en virtud del
+presente Protocolo.
+3. Todo Estado que haya formulado una reserva con arreglo al párrafo
+1 del presente artículo podrá retirarla en cualquier momento, mediante
+comunicación al efecto dirigida al Secretario General de las Naciones
+Unidas.
+4. La declaración hecha conforme a los párrafos 1 y 2 del artículo 40
+de la Convención por un Estado Parte en la misma que se adhiera al
+presente Protocolo, se considerará aplicable con respecto al presente
+Protocolo, a menos que, al efectuarse la adhesión, se dirija una
+notificación en contrario por el Estado Parte interesado al Secretario
+General de las Naciones Unidas. Las disposiciones de los párrafos 2 y 3
+del artículo 40 y del párrafo 3 del artículo 44 de la Convención se
+considerarán aplicables mutatis mutandis al presente Protocolo.
