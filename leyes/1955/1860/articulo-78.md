@@ -1,0 +1,7 @@
+Artículo 78.- Corresponderá también a esta Oficina otorgar pasajes
+gratuitos a trabajadores desocupados para que puedan prestar sus
+servicios en otro lugar diferente al de su domicilio, así como
+facilitarles la adquisición de herramientas y otros implementos de
+trabajo, cuando no puedan ser obtenidos directamente, y siempre que se
+compruebe tal circunstancia y su necesidad para poder prestar los
+servicios.
