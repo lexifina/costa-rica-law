@@ -14,3 +14,4 @@ Reglamento para la Operación de Actividades de Turismo Aventura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-23 | la propia norma |
+| 2 | 2003-01-17 | Decreto Ejecutivo 31095 (2003-01-17) |

@@ -15,13 +15,17 @@ Considerando:
 DECRETAN:
 Reglamento para la operación de las Actividades
 de Turismo Aventura
-Artículo 1º—Quedan sujetas a las regulaciones del presente reglamento, aquellas empresas que se dediquen a prestar comercialmente al público en general, servicios de esparcimiento que se cataloguen como "Turismo Aventura", que son aquellas actividades recreativas que involucren un nivel de habilidades físico-deportivas con riesgo identificado y en contacto directo con la naturaleza, dentro de las cuales se clasifican , entre otras, las siguientes:
-a) Deslizamiento entre árboles conocido comercialmente como "Canopy Tour": consiste en el deslizamiento por gravedad con poleas y arneses sobre una cable sujeto entre dos árboles, paralelo a las paredes de un cañón de río o entre dos lugares de anclaje. Se incluye dentro de esta actividad aquellas conocidas como "Sky Walk" y "Sky Treak" que consisten en el deslizamiento por puentes colgantes entre varios árboles.
-b) Salto al vacío ("Bungee Jumping"): Consiste en realizar un salto al vacío, el usuario o turista se sujeta a una cuerda elástica que se encuentra anclada en su otro extremo a una estructura sólida generalmente un puente, ubicada a gran altura.
-c) Balsas en Ríos ("White-Water rafting"): Incluye el deslizamiento en ríos de aguas turbulentas o calmas, con fines turísticos, en embarcaciones tipo balsa de goma, canoa, piragua-Kayak o cayuco.
-d) Buceo: Nadar sumergido en aguas profundas con equipo especializado.
-e) Escalamiento ("Rapel"): Consiste en trepar por paredes naturales rocosas o árboles de gran altura con y sin equipo especializado.
-f) Ciclismo de montaña ("Mountain Biking"): Recorridos en bicicleta por caminos o senderos rústicos a campo traviesa.
-g) Deslizamiento en kayak ("Kayaking"): Navegar en océano, lagos o ríos, en embarcación de origen esquimal con diseño convexo para una o dos plazas.
-h) Actividades aéreas de aventura como paracaidismo, globo aerostático, parapente, ala delta, ultraligero, globo.
-i) Actividades hípicas: Hipismo, Cabalgatas, salto de vallas.
+Artículo 1º—
+Artículo 1º—Quedan sujetas a las regulaciones del presente Reglamento, aquellas empresas que se dediquen a prestar comercialmente al público en general, servicios de esparcimiento que se cataloguen como "Turismo Aventura", los cuales, son aquellas actividades recreativas que involucren un nivel de habilidades físico-deportivas con riesgo identificado y en contacto directo con la naturaleza, dentro de las cuales se clasifican, entre otras, las siguientes actividades:
+a) "Canopy tour": deslizamiento entre árboles con poleas y arneses sobre un cable sujeto entre puntos fijos elevados con respecto al nivel del suelo, pudiendo estar sujeto a rocas, torres, árboles.
+b) "Sky walk o Sky trek": caminatas por puentes colgantes sujetos en puntos fijos elevados.
+c) "Bungee Jumping": Consiste en un salto al vacío, sujeto por una o varias cuerdas con un arnés a la cintura o las piernas, y atado a un punto fijo. La cuerda debe ser dinámica y el salto puede ser totalmente al vacío o no.
+d) Balsas en Ríos "white water rafting": Consiste en tripular y navegar por ríos en aguas turbulentas clasificadas del 1 al 5 según su nivel de velocidad, volumen de agua y caída. Las embarcaciones serán de diferentes tipos balsa de goma, "Kay ak", "Duckie", "Oarboat", neumáticos "innertube rafting".
+e) Buceo "Scuba-diving": sumergirse en aguas abiertas, con equipo autónomo. Incluye buceo con "snorkel" e inmersión en apnea.
+f) Descenso con cuerdas "Rapel": consiste en descender desde un punto alto, paralelo a paredes naturales o artificiales o mixtas, rocosas, árboles o cualquier otra estructura.
+g) Escalar: Consiste en subir desde un punto bajo hasta un punto alto, sostenido por la propia acción humana, sobre rocas, árboles o estructuras.
+h) Ciclismo de Montaña: Recorridos en bicicleta por caminos o senderos rústicos a campo traviesa.
+i) Navegación en Kayak de mar o río.
+j) Actividades hípicas: hipismo "equestrian", cabalgata "horse backriding".
+k) Caminata de un día "hiking", caminata por la montaña de varios días "treking", caminata de ascenso de montaña "alpinismo", caminata por cañones "cannonyering", caminata por cuevas "caving"."
+(Así reformado por artículo 1° del Decreto ejecutivo N° 31095 de 17 de enero de 2003)

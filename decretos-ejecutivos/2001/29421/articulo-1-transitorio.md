@@ -1,1 +1,2 @@
-Transitorio único.—Las empresas de turismo de aventura que operen antes de la promulgación del presente decreto, gozarán de un plazo de tres meses para ajustarse a las disposiciones del este reglamento, salvo en cuanto a la suscripción de la póliza de responsabilidad civil y riesgos de trabajo, requisito que deberán cumplirlo de forma inmediata.
+Transitorio único.—Las empresas de turismo de aventura que operen antes de la promulgación del presente decreto, gozarán hasta el 1° de abril del 2003, para cumplir con el requisito referente a contar con la totalidad de guías de turismo con el registro y credencial provisional o definitiva otorgada por el Instituto Costarricense de Turismo.
+(Así reformado por Artículo 4° del Decreto Ejecutivo N° 31095 de 17 de enero de 2003).
