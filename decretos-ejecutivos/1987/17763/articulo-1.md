@@ -1,3 +1,4 @@
+(Anulada)
 N° 17763-E
 NOTA DE SINALEVI: Mediante sentencia N° 240-96 de las 14:20 horas del 30 de octubre de 1996 del Juzgado Contencioso Administrativo y Civil de Hacienda se anuló este decreto, fallo que fue confirmado por sentencia N° 350-98 de las 11:15 horas del 16 de octubre de 1998 del Tribunal Contencioso Administrativo, Sección Primera, el cual a su vez fue confirmado por la Sala Primera de la Corte Suprema de Justicia, mediante Resolución N° 787-F-01 de las 14:10 horas del 5 de octubre del 2001, en el sentido de que por tratarse estas Juntas de entes descentralizados, el Poder Ejecutivo no podía omitir la audiencia preceptuada por el artículo 361.1 de la Ley General de la Administración Pública , en consecuencia las autoridades jurisdiccionales anularon con efecto retroactivo el presente reglamento.
 EL PRESIDENTE DE LA REPUBLICA

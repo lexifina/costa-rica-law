@@ -1,0 +1,2 @@
+Artículo 60 BIS. - Los inmuebles ocupados por centros educativos dependientes del Ministerio de Educación Pública inscritos a nombre de instituciones autónomas, Municipalidades o cualquier otra institución estatal, podrán ser traspasados en forma directa al Ministerio de Educación o a las Juntas de Educación, sin necesidad de sujetarse a los procedimientos y requisitos indicados en los artículos anteriores, siempre y cuando el ámbito de competencia de cada una de aquellas as¡ se lo permita.
+(Así, adicionado por el Decreto ejecutivo N°21898 de 11 de setiembre de 1993)

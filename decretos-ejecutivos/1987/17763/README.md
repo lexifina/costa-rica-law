@@ -14,3 +14,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-10-16 | la propia norma |
+| 2 | 1993-01-11 | Decreto Ejecutivo 21898 (1993-01-11) |
