@@ -15,3 +15,4 @@ Importación Temporal Vehículos Terrestres Marítimos Aéreos sin Lucro
 | 1 | 1995-05-17 | la propia norma |
 | 2 | 1995-05-17 | Decreto Ejecutivo 25270 (1996-06-14) |
 | 3 | 1996-06-14 | SINALEVI (sin norma nombrada) |
+| 4 | 1996-06-14 | Ley 8 |
