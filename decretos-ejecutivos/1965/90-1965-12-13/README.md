@@ -13,3 +13,4 @@ Reglamento para Pago de Zonaje a Servidores de Administración Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1965-12-17 | la propia norma |
+| 2 | 1965-12-17 | SINALEVI (sin norma nombrada) |
