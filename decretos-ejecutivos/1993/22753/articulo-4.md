@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de Vida Silvestre podrá suscribir convenios de cooperación con organizaciones comunales u otros organismos no gubernamentales para que coadyuven en la protección de los recursos naturales.
