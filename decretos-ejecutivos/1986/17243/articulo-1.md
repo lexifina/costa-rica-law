@@ -1,4 +1,8 @@
+(Derogado)
 N° 17243-S
+(Esta decreto fue derogado por el artículo 64 del
+“Reglamento Inscripción y Propaganda Medicamentos Cosméticos y Productos Sanitarios“
+aprobado mediante decreto ejecutivo N° 23191 del 26 de abril de 1994)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTERIO DE SALUD
 De acuerdo con los artículos 140, inciso 3 de la Constitución Política: 113 y 258 de la Ley General de Salud y 6° de la Ley Orgánica del Ministerio de Salud,
