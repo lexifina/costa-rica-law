@@ -16,3 +16,4 @@ Reglamento del Consejo Superior de Educación
 | 1 | 1953-09-06 | la propia norma |
 | 2 | 1967-01-23 | Decreto Ejecutivo 3 (1967-01-23) |
 | 3 | 1968-01-15 | Decreto Ejecutivo 6 (1968-01-15) |
+| 4 | 1990-03-28 | Decreto Ejecutivo 19635 (1990-03-28) |
