@@ -1,2 +1,0 @@
-Artículo 4°—1°—La Comisión a la que se refiere el artículo 15 de la Ley No 3530 de 5 de agosto deberá ser integrada por funcionarios del Servicio Civil y por dos del Ministerio de Relaciones Exteriores. Su Modus Operandi será fijado por esta Comisión.
-2°—Las bases de los concursos a que se refiere el artículo 15 citado serán redactadas por dicha Comisión y promulgadas mediante Reglamento por el Poder Ejecutivo.

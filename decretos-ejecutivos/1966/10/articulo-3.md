@@ -1,1 +1,0 @@
-Artículo 3°—Los servidores que hayan hecho su ingreso a la Carrera de Servicio Exterior de acuerdo con lo dispuesto en el artículo anterior, gozarán de la protección del Estatuto de Servicio Civil en lo que se refiere a Régimen con Oposición.
