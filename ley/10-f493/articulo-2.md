@@ -1,0 +1,1 @@
+Art. 2°-No obstante lo dispuesto en el artículo anterior, los juicios militares se tramitirán conforme á las reglas de procedimiento establecidas en el Código de 1884, y se fallarán por los funcionarios que, según el mismo, ejercen la jurisdicción militar.
