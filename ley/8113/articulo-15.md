@@ -1,0 +1,1 @@
+Artículo 15.—Determinación de la renta bruta en casos especiales. El total de la renta bruta anual por actividades que hayan operado solo durante una parte del período fiscal anterior, se determinará con base en el promedio mensual del período de la actividad.

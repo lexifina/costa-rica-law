@@ -1,1 +1,0 @@
-Artículo 3.- Factores determinantes de la imposición Establécense como factores determinantes de la imposición, la renta neta anual que perciban las personas físicas o jurídicas afectas al impuesto de renta, durante el período fiscal anterior al año que se grava.

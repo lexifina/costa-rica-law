@@ -1,2 +1,0 @@
-Artículo 6.- Copia de la declaración de la renta Los patentados declarantes del impuesto sobre la renta deberán presentar una copia de esta declaración, sellada por la Dirección General de Tributación Directa.
-Los contribuyentes inscritos en el Régimen de tributación simplificada presentarán las declaraciones de los cuatro trimestres del período fiscal por gravar, debidamente selladas por la Dirección General de Tributación Directa.

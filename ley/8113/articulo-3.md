@@ -1,0 +1,1 @@
+Artículo 3º—Factores determinantes de la imposición. Salvo que esta Ley determine un procedimiento distinto para fijar el monto del impuesto de patente, se establecen, como factores determinantes, de la imposición, los ingresos brutos anuales que perciban las personas físicas o jurídicas afectas al impuesto, durante el período fiscal anterior al año que se grava.
