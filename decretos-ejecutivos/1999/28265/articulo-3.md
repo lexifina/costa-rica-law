@@ -1,0 +1,1 @@
+Artículo 3º—El monto de la ayuda temporal se determinará distribuyendo el monto global indicado en el artículo 1º entre los trabajadores afectados, en proporción al número de años de servicio, de conformidad con una certificación de antigüedad que expida la Caja Costarricense de Seguro Social.

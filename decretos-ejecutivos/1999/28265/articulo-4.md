@@ -1,0 +1,1 @@
+Artículo 4º—Al recibir la ayuda temporal, los beneficiarios firmarán un documento en calidad de finiquito a favor del Estado, dándose por satisfechos de cualquier consecuencia económica generada por la apertura de los servicios de estiba y desestiba del Muelle de Limón.

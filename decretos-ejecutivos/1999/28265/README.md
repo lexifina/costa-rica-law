@@ -13,3 +13,4 @@ Insta Entrega de Recursos Plan Reactivación Económica a Municip. Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-23 | la propia norma |
+| 2 | 1999-11-23 | Ley 7 |
