@@ -1,0 +1,1 @@
+Artículo 88.—Los canales de distribución y comercialización para esta lotería se establecen bajo el principio de seguridad económica y pueden incluir a personas físicas y jurídicas en general, las cuales deben cumplir los requisitos y obligaciones que la Junta establezca en forma de contrato.

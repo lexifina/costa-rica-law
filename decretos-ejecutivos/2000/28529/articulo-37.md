@@ -1,0 +1,1 @@
+Artículo 37.—La Junta puede autorizar al adjudicatario más de un representante para la venta de lotería, siempre que estos sean el cónyuge, el compañero (a), o hijos del adjudicatario. En cuanto a permisos o autorizaciones para retiro de loterías sólo se acepta una persona por adjudicatario.

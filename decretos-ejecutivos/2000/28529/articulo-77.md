@@ -1,0 +1,1 @@
+Artículo 77.—Para la realización de los sorteos de las loterías nacionales se utilizan los dispositivos mecánicos y electrónicos que sean necesarios para su correcta ejecución, todo de conformidad con el sistema de premios y sorteo de que se trate.

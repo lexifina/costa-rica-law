@@ -1,0 +1,1 @@
+Artículo 83.—La Junta puede expender directamente al público sus loterías, en sus oficinas centrales, en puestos móviles o por medio de agencias o sucursales o por otros canales, al precio oficial, cuando a su juicio las necesidades de la oferta y la demanda así lo requieran.

@@ -1,0 +1,1 @@
+Artículo 40.—El adjudicatario o representante que brinde alguna información falsa, da lugar a la suspensión del permiso o autorización para el retiro y venta de lotería, para lo cual la Junta debe seguir el debido proceso estipulado en la Ley General de Administración Pública.

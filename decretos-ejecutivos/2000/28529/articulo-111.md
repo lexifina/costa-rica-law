@@ -1,0 +1,1 @@
+Artículo 111.—La organización beneficiaria se compromete a disponer de una cuenta exclusiva, para los recursos provenientes de la Junta, en un banco estatal, así como llevar los registros de su utilización.

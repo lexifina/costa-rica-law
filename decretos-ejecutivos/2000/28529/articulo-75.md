@@ -1,0 +1,5 @@
+Artículo 75.—A todos los sorteos deben asistir el Gerente de la Junta, el Auditor Interno y el Director de Producción y Ventas, los cuales pueden ser sustituidos en cualquier caso por el representante que designen.
+En calidad de fiscalizador puede asistir un Funcionario Judicial o en su ausencia un Notario de la Institución, según lo determine la Junta Directiva.
+Todos los funcionarios fiscalizadores de la Junta de Protección Social, y el Funcionario Judicial o el Notario, deben presentarse a los sorteos por lo menos treinta minutos antes de su inicio.
+En caso de que a la hora establecida para el inicio del sorteo, no esté presente alguno de los funcionarios fiscalizadores, le corresponde al Gerente o en su ausencia al Subgerente, designar al sustituto, con la excepción del Auditor Interno, quien tiene la responsabilidad de nombrar a su propio representante.
+En ausencia del Gerente, le corresponde al Subgerente asumir sus funciones. La remuneración por la asistencia a los sorteos debe ser fijada por la Junta Directiva.

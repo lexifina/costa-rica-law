@@ -1,0 +1,1 @@
+Artículo 71.—La Comisión de Comparecencias puede sesionar al menos con dos de sus miembros con derecho a voto, siempre y cuando uno de ellos sea el Director de Producción y Ventas o su representante. En caso de empate el Presidente tendrá doble voto.

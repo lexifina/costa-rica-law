@@ -1,0 +1,1 @@
+Artículo 87.—Para cada modalidad de juego, la Junta Directiva aprueba el Reglamento interno respectivo, en el cual se detalla la modalidad de participación, la forma en que se seleccionan las jugadas ganadoras, el importe de los premios por categoría, los lugares designados para el cambio de premios y todo lo relacionado con la ejecución del sorteo respectivo.

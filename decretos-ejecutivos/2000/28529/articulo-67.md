@@ -1,0 +1,1 @@
+Artículo 67.—La Comisión de Comparecencias está integrada por el Director de Producción y Ventas quien la preside, el Jefe del Departamento de Acción Social y el Jefe del Departamento Legal o sus representantes. Un funcionario del Departamento de Inspectores fungirá como Secretario de la Comisión y asistirá a las sesiones sin voz ni voto.

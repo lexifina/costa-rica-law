@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Loterías, coordinará la designación de adjudicatarios con discapacidad, que deseen expender sus loterías dentro de las instalaciones de las diferentes Instituciones del Estado.

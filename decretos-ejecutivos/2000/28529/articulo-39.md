@@ -1,0 +1,1 @@
+Artículo 39.—Para todos los tramites referentes al retiro de loterías, el representante, debe presentar el documento de permiso o autorización emitido por la Junta, su cédula de identidad y el carné del adjudicatario.

@@ -1,0 +1,1 @@
+Artículo 8º—En todas las loterías, las concesiones son definidas conforme a los lineamientos de la Junta Directiva, en atención al criterio de seguridad económica de la Institución y a lo estipulado en este Reglamento.

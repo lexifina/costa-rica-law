@@ -1,0 +1,1 @@
+Artículo 42.—Para que un adjudicatario sea considerado en las listas de distribución de excedentes, no debe presentar devoluciones de loterías superiores a los márgenes establecidos. Una vez verificado el cumplimiento de estas disposiciones, se realiza una evaluación conforme la escala de prioridades que autorice la Gerencia.

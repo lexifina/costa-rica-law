@@ -1,0 +1,1 @@
+Artículo 120.—Los fondos que se giran por concepto de donaciones, pueden ser invertidos en forma momentánea, hasta su utilización en el fin específico que les da origen, en inversiones a plazo fijo y otros títulos valores, adquiridos en el mercado primario del Sector Público, en un plazo no mayor de seis meses. Los intereses que se generan tienen el mismo fin que el principal.

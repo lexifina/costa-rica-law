@@ -1,0 +1,1 @@
+Artículo 121.—Los activos donados por la Junta, siempre que sea posible, deben llevar una placa en un lugar visible. En el caso de los vehículos, se rotularán en forma adicional con pintura y debe indicarse en forma legible la siguiente leyenda: "Donado por la Junta de Protección Social de San José".

@@ -1,0 +1,1 @@
+Artículo 117.—Las organizaciones beneficiarias deben utilizar el dinero donado, en estricto apego al destino que da origen a la donación, las organizaciones no pueden vender, alquilar, donar, ceder, prestar o traspasar activos que se adquieran con fondos de la Junta, sólo con el acuerdo de la Junta Directiva de la Junta.

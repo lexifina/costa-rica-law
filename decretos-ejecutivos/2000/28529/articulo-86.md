@@ -1,0 +1,1 @@
+Artículo 86.—La Junta Directiva define para cada modalidad de juego, la periodicidad, el número de sorteos y la escogencia de la actividad con la que se combina el sorteo, cuando ello corresponda con un acto público.

@@ -1,0 +1,1 @@
+Artículo 3º—Los billetes de las loterías se imprimen en papel de seguridad, bajo la responsabilidad del Departamento de Imprenta y de la supervisión de la Dirección de Producción y Ventas, dentro de las máximas condiciones de seguridad disponibles y de acuerdo con las normas de control y garantía que emanen de la Administración Superior

@@ -1,0 +1,1 @@
+Artículo 26.—La distribución de las loterías a los adjudicatarios directos, debe ser en forma personal, ya sea directamente en las oficinas de la Junta, o por medio de las sucursales o agencias que en forma previa se hayan autorizado.

@@ -1,0 +1,1 @@
+Artículo 100.—Cuando las instituciones acreedoras de donaciones, soliciten recursos para la adquisición de bienes o servicios y el monto de lo aprobado por la Junta no cubra la totalidad de este, de previo a la entrega de los recursos, deben aportar documentación que demuestre de manera indubitable, las fuentes de financiamiento para cubrir la diferencia.

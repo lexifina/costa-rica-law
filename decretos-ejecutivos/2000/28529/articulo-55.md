@@ -1,0 +1,1 @@
+Artículo 55.—No pueden ser aceptados como garantes personas que ya tienen esa calidad en otras operaciones de financiamiento con la Junta, salvo en los casos en que a juicio de la Comisión se tenga como satisfactoria la garantía o fianza.

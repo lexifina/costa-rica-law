@@ -1,0 +1,2 @@
+Artículo 92.—Donaciones para la aplicación de fondos de la lotería instantánea y superávit.
+Se establece la comisión de aplicación de fondos de la lotería instantánea y superávit integrada por el Presidente de la Junta Directiva o su representante, un miembro de la Junta Directiva, la Jefatura del Departamento de Acción Social o su representante, la Jefatura del Departamento de Contabilidad y Presupuesto o su representante y la Jefatura del Departamento Legal o su representante.

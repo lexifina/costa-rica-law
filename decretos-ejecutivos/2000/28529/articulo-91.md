@@ -1,0 +1,1 @@
+Artículo 91.—Esta Comisión es la encargada de coordinar todo lo relacionado con la asignación de recursos provenientes de los premios prescritos y que no se vendieron de las Loterías de la Junta, así como de la utilidad neta de la Lotería Popular Tiempos.

@@ -1,0 +1,1 @@
+Artículo 108.—Se autoriza a las organizaciones que atienden ancianos, utilizar hasta el sesenta por ciento de cada donación girada por la Junta, en el pago de planillas y sus respectivas cargas sociales.

@@ -1,0 +1,1 @@
+Artículo 85.—La Junta Directiva puede establecer por medio de esta lotería, todas aquellas modalidades de juego que considere conveniente. Estos juegos están basados en el azar, en la destreza o inteligencia del jugador, o en la dependencia del resultado de eventos públicos ajenos al azar.

@@ -1,0 +1,1 @@
+Artículo 81.—La Junta Directiva puede modificar el sistema de sorteos y los dispositivos mecánicos o electrónicos que su ejecución conlleva, vía procedimiento que publica en el Diario Oficial "La Gaceta", con el fin de incorporar las tecnologías que la modernización desarrolle.

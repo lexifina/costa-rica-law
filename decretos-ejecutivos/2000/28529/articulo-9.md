@@ -1,0 +1,1 @@
+Artículo 9º—La Junta Directiva podrá adjudicar una cantidad mayor a cien billetes, cuando un adjudicatario demuestre capacidad de venta por medio del retiro total de sus cuotas asignadas y que sus devoluciones no superen el uno por ciento en promedio, durante el año inmediato anterior.

@@ -1,0 +1,1 @@
+Artículo 29.—Se recibe la devolución de loterías a los adjudicatarios directos o a sus representantes autorizados, a los vendedores autorizados de las cooperativas y organizaciones sociales y a las personas autorizadas para otros canales de venta establecidos por la Junta.

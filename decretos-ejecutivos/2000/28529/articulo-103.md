@@ -1,0 +1,1 @@
+Artículo 103.—En el área de Adulto Mayor los recursos se destinan a cubrir necesidades básicas y apoyar proyectos específicos. Para tal efecto, el monto por distribuir se define en forma porcentual. Corresponde a la Comisión evaluar los porcentajes cada año y recomendar a la Junta Directiva su aprobación.

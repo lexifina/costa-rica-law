@@ -1,0 +1,1 @@
+Artículo 104.—El porcentaje que se destina a necesidades básicas para hogares, asilos, albergues y centros diurnos de ancianos, se asigna conforme lo establece el manual de criterios aprobado por la Gerencia.

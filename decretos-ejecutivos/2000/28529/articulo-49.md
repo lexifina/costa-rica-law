@@ -1,0 +1,1 @@
+Artículo 49.—Las obligaciones que por concepto de financiamiento se otorguen en favor de la Junta, devengan la tasa de interés corriente fijado por la Comisión, además de los intereses moratorios en su caso.

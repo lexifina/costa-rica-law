@@ -1,0 +1,1 @@
+Artículo 113.—Las organizaciones que reciben ayuda para cubrir necesidades básicas de sus beneficiarios, deben firmar un convenio una vez al año, con el compromiso del representante legal de presentar liquidaciones semestrales, según lo establecido en el convenio.

@@ -1,0 +1,1 @@
+Artículo 112.—En el caso de donaciones para proyectos específicos, el representante legal de la organización beneficiaria, debe firmar un convenio para la utilización de los recursos, con el cual se compromete a presentar un informe de liquidación, en un plazo no mayor de seis meses, a partir del retiro de los fondos.

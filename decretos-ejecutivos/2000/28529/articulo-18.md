@@ -1,0 +1,1 @@
+Artículo 18.—La tabla de ponderación del estudio socioeconómico, será elaborada por el Departamento de Acción Social, para lo cual tomará en cuenta al menos seis variables. Esta tabla puede ser revisada por el mismo departamento o a solicitud de la Junta Directiva. Toda variación que se le haga, debe ser aprobada por esta.

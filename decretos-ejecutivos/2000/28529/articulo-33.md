@@ -1,0 +1,1 @@
+Artículo 33.—Puede recibirse una devolución mayor a la previamente definida, en casos fortuitos o de fuerza mayor invocados por el adjudicatario o su representante en el acto de devolución. El Director Financiero o su representante debe dejar constancia de la autorización.

@@ -1,0 +1,1 @@
+Artículo 69.—De cada caso conocido por la Comisión, se debe levantar un acta, en la cual se plasme la recomendación correspondiente Esta acta debe estar firmada por todos los miembros de la Comisión y se le entregará una copia al compareciente.

@@ -1,0 +1,1 @@
+Artículo 78.—No participan en el sorteo, las series completas que no fueran vendidas al público jugador de lotería. Le corresponde a todos los funcionarios fiscalizadores que asisten al sorteo, verificar la cronología de las bolitas de series, números y premios con el plan del sorteo autorizado menos las series eliminadas. Asimismo, deben firmar el acta de ejecución del sorteo.

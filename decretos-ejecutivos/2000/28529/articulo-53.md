@@ -1,0 +1,1 @@
+Artículo 53.—Para los adjudicatarios que incumplan parcial o totalmente los términos de pago de financiamiento, la Comisión establece un período, durante el cual no puede ser sujeto de crédito. Para tal efecto, el Departamento de Loterías debe llevar un registro de adjudicatarios, que no cancelan en su debida oportunidad.

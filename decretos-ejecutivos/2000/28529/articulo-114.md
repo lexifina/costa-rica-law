@@ -1,0 +1,1 @@
+Artículo 114.—La Gerencia puede conceder prórrogas para presentación de liquidaciones, en los casos que así lo requieran, previa solicitud escrita del interesado, antes del vencimiento del plazo conferido. Dicha resolución será comunicada por escrito al interesado con copia a la Comisión, a la Auditoría Interna y al Departamento de Acción Social.

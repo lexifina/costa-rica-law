@@ -1,0 +1,1 @@
+Artículo 116.—Corresponde al Departamento de Revisión y Control verificar los documentos justificantes de las liquidaciones, la adquisición de activos y el desarrollo de las obras. Asimismo, debe dar cuenta de ello al Director Financiero Contable, quien debe dar seguimiento al cumplimiento de las recomendaciones.

@@ -1,0 +1,1 @@
+Artículo 31.—La Junta debe comunicar a todos los vendedores autorizados, con al menos quince días de anticipación a la fecha del sorteo de que se trate, el porcentaje máximo que se les puede recibir como excedente.

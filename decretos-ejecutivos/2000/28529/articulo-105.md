@@ -1,0 +1,1 @@
+Artículo 105.—Para la distribución de recursos en Hogares, Asilos y Albergues de Ancianos, se excluyen los Adultos Mayores que brinden un aporte económico igual o mayor al cincuenta por ciento del costo de estancia mensual, independientemente de la fuente del recurso (pensión, familia u otros).

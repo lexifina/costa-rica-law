@@ -1,0 +1,2 @@
+Artículo 79.—En caso de presentarse antes del sorteo algún tipo de destrucción de Lotería, le corresponde al Director de Producción y Ventas y al Auditor la presentación del Acta correspondiente, con el fin de que se puedan verificar las series que participan en el sorteo.
+Una vez realizada la labor correspondiente a la supervisión de series, números y premios, se procede a firmar el Acta Oficial de Premios.

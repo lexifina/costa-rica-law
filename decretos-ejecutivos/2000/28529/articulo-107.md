@@ -1,0 +1,1 @@
+Artículo 107.—La Jefatura del Departamento de Contabilidad y Presupuesto, ajusta anualmente el costo de estancia, con base en la tasa de inflación anual que dictamina el Ministerio de Economía, Industria y Comercio y lo hace de conocimiento de la Comisión, para su aprobación.

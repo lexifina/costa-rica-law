@@ -1,0 +1,1 @@
+Artículo 19.—A solicitud formal de las cooperativas y organizaciones sociales, el Departamento de Acción Social realiza un estudio socioeconómico a cada socio interesado en iniciarse en la venta personal de loterías o aumentar la cantidad de lotería asignadas a sus asociados.

@@ -1,0 +1,1 @@
+Artículo 82.—El pago de premios sólo puede denegarse o suspenderse en virtud de orden emitida por autoridad judicial competente. En este caso, la Junta debe mantener en custodia el valor de los premios hasta tanto el caso sea resuelto en forma definitiva.

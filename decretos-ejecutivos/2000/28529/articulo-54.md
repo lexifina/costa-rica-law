@@ -1,0 +1,1 @@
+Artículo 54.—No pueden constituirse en fiadores o avalistas de financiamientos otorgados por la Junta, los vendedores de lotería autorizados, los socios de cooperativas de vendedores, los miembros de la Junta Directiva de la Junta o los servidores de la Junta.

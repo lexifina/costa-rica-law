@@ -1,0 +1,1 @@
+Artículo 106.—Para ser beneficiarios de la distribución de los recursos en Hogares, Albergues y Asilos, el número de Adultos Mayores con capacidad de pagar el cincuenta por ciento del costo de estancia, no puede sobrepasar el cincuenta por ciento del total de la población.
