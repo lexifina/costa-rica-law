@@ -1,0 +1,2 @@
+Art.6°—El Poder Ejecutivo queda autorizado para reducir ó ampliar los términos en que la franquicia y reducción de derechos deben comenzar á regir.
+AL PODER EJECUTIVO.—Dado en el salón de sesiones del Palacio Nacional, en San José, á los ocho días del mes de febrero de mil ochocientos ochenta y ocho.—AND. SAENZ, Presidente.—MANUEL MONTEALEGRE, Secretario.—Mojica, febrero trece de mil ochocientos ochenta y otro.—Ejecútese.—BERNARDO SOTO.—El Secretario de Estado en el despacho de Hacienda, MAURO FERNÁNDEZ.

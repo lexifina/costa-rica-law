@@ -1,0 +1,1 @@
+Art.5°—El contravando en los casos definidos por la ley, de vinos que no fueran tintos de mesa, se castigará con una multa igual á cuatro veces el valor de los derechos que importe el total de la partida á que, según documentos ó facturas consulares, pertenezca la mercadería cuyos derechos se trata de defraudar.
