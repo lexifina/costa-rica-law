@@ -1,0 +1,2 @@
+(Derogado)
+Arículo 1.-
