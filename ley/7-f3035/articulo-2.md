@@ -1,0 +1,1 @@
+Art. 2°-El cabo 2° se distinguirá por una cinta la parte del codo á la vuelta de la manga, y una trencilla de lana amarilla en el aro del kepis. -El cabo manga y dos trencillas en el aro del kepis. 1o tendrá dos cintas amarillas oblicuas en la boca-

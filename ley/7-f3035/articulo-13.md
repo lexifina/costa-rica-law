@@ -1,0 +1,1 @@
+Art. 13.-El Coronel usará el mismo uniforme común y de gala, distinguiéndose por tres galones en el aro del kepis, cuello y bocamangas, y una banda al cinto, de los colores del pabellón nacional, para gala, con borlas de oro,

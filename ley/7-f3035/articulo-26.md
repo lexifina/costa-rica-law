@@ -1,0 +1,1 @@
+Art. 26.-El uniforme de la caballería será igual al de la infantería, con la diferencia de que los galones, trencillas, bordados y botones que en ésta deben ser dorados, en la caballería serán de plata.
