@@ -1,0 +1,3 @@
+Artículo 7º—De las sanciones: quien no adecúe las instalaciones acordes a los requisitos señalados en los incisos 1) y 2) del artículo 3º e incumpla con los ajustes o modificaciones indicados en el inciso 3) de dicho artículo se le podrá suspender la patente hasta por un mes mientras se ajusta a lo solicitado.
+De encontrar un menor en el área de mayores de 18 años será causal para suspender temporalmente la patente. De ser reiterativa la falta a que alude el artículo tres, se procederá a dar inicio al procedimiento administrativo tendiente a cancelar la Patente Municipal.
+Las autoridades del Ministerio de Seguridad Pública como las autoridades municipales estarán facultadas para ejercer el control correspondiente.
