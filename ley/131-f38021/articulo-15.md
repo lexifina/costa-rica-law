@@ -1,0 +1,3 @@
+Artículo 15.-Nombrados que hubieren sido el presidente y el vicepresidente, los regidores procederán, en el acto mismo, á elegir, de fuera de su seno, un secretario municipal, y á señalar los días y horas ordinarias de sesiones.
+El Gobernador ó el Jefe Político hará levantar una acta de la instalación y de los acuerdos tomados, y firmará con los regidores, síndicos y con el secretario de la oficina, que deberá estar presente en la reunión.
+Se publicará en el periódico oficial una nota, en extracto, que indique los nombres del presidente, vicepresidente y secretario de cada municipalidad, así como los días y horas en que celebrará sesiones ordinarias.

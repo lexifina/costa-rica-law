@@ -1,0 +1,1 @@
+Artículo 9º.-No puede ser regidor ninguna persona que desempeñe empleos, comisión ó función alguna municipal, retribuida en cualquier forma que sea. Si resultare elegido algún individuo que se halle en esas circunstancias deberá, si quiere entrar al ejercicio de las funciones de regidor, renunciar anticipadamente al empleo, comisión o función.
