@@ -1,6 +1,2 @@
-Artículo 15.-En caso de cobro judicial los honorarios para la suspensión del proceso serán:
-0 a 10.000 | ¢2.000.00
-¢10.000 a 20.000 | ¢4.000.00
-¢20.000 a 50.000 | ¢8.000.00
-¢50.000 a 100.000 | ¢12.500.00
-De ¢100.000 en adelante | el 12.5% de la suma a cobrar.
+Artículo 15.-Los honorarios profesionales en los casos presentados a los tribunales se cobrarán conforme al arancel que regula los honorarios profesionales por sus actuaciones como abogados en su artículo 20.
+(Así reformado mediante sesión N° 21 del 24 de mayo de 1999).

@@ -14,3 +14,4 @@ Reglamento de Cobro Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
+| 2 | 1999-05-24 | Reglamento municipal 21 (1999-05-24) |
