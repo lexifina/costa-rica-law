@@ -1,0 +1,2 @@
+Artículo 2°.- Mientras dure la intervención que dispone el artículo 1° el gobierno y administración de ambos ferrocarriles lo sumirá Ferrocarriles de Costa Rica S.A, entidades que tendrá a su cargo la Interventora General de los Ferrocarriles del Estado, con plenos poderes.
+Ferrocarriles de Costa Rica S.A, actuará a través de un representante nombrado por dicha empresa con el carácter de Interventor General, con amplias facultades para desempeñar su cometido.

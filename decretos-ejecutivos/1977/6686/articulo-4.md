@@ -1,0 +1,1 @@
+Artículo 4°.- Todos los funcionarios y empleados de ambas empresas ferroviarias quedan temporalmente a las órdenes y bajo la Autoridad de la Interventoría General, la cual asumirá plenamente la representación de ellas, incluyendo lo que a relaciones laborales se refiere.
