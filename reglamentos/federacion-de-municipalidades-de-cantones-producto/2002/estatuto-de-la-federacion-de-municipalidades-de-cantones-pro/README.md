@@ -14,3 +14,4 @@ Estatuto de la Federación de Municipalidades de cantones productores de banano 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-13 | la propia norma |
+| 2 | 2005-02-18 | Reglamento 1 (2005-02-18) |
