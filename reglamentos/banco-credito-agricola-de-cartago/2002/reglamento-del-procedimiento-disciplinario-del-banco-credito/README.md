@@ -14,3 +14,4 @@ Reglamento del Procedimiento Disciplinario del Banco Crédito Agrícola de Carta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-14 | la propia norma |
+| 2 | 2005-02-01 | Reglamento 7802 (2005-02-01) |
