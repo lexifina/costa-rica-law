@@ -1,0 +1,1 @@
+Artículo 3°.- Se autoriza a la Tesorería Nacional para proceder a la entrega de los Bonos a que se refiere el artículo anterior a la Municipalidad de San José, la que efectuará su incineración conforme a los reglamentos y prácticas usuales en estos casos.

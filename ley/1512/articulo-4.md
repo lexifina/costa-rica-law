@@ -1,0 +1,1 @@
+Artículo 4°.- Condonase la obligación que tiene pendiente con el Gobierno de la República la Municipalidad de Heredia, proveniente de la suma prestada en Bonos de acuerdo con la Ley N°9 de 30 de setiembre de 1942, para obras de salubridad y que monta a ¢40,000.00.
