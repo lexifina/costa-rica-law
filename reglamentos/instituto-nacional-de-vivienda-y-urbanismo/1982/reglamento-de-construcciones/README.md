@@ -23,3 +23,4 @@ Reglamento de Construcciones
 | 8 | 1993-03-04 | Reglamento 4290 (1993-03-04) |
 | 9 | 1995-02-22 | Reglamento 4486 (1995-02-22) |
 | 10 | 2001-03-06 | Decreto Ejecutivo 29397 (2001-03-06) |
+| 11 | 2003-11-05 | Reglamento 5324 (2003-11-05) |
