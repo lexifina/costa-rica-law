@@ -1,0 +1,2 @@
+Artículo 8°—Dejará de ser miembro del Comité Ejecutivo quien renuncie a este cargo o faltare injustificadamente a las sesiones del Comité tres veces.
+Para llenar las vacantes que se produzcan en el Comité, el Consejo de Coordinación Interinstitucional designará a los sustitutos en la sesión inmediata, siguiente que celebre e! Consejo. Los nombramientos respectivos se entenderán por el resto del período del sustituido.

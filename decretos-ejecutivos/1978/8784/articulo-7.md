@@ -1,0 +1,2 @@
+Artículo 7°—Los integrantes del Comité Ejecutivo durarán en sus cargos un año y podrán ser reelectos.
+Los periodos se contarán a partir del I9 de enero de cada año y la correspondiente elección se deberá realizar en el mes de diciembre anterior, salvo en el caso del primer Comité Ejecutivo que se instale/cuyos integrantes serán nombrados dentro de los quince días siguientes a la promulgación de este Reglamento, Vacantes en el Comité Ejecutivo.
