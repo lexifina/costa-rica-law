@@ -1,0 +1,2 @@
+Artículo 3º.- Modifícase el artículo 130 del Código Electoral, para que se lea así:
+"Artículo 130.-Luego que hay recibido el Tribunal Supremo de Elecciones la documentación electoral, iniciará sin pérdida de tiempo el escrutinio respectivo. Por escrutinio se entiende el examen y la calificación de la documentación electoral dirigidos a la aprobación o rectificación del cómputo aritmético y legal de votos que hayan hecho las Juntas Receptoras, a fin de adjudicar a los partidos inscritos el número de plazas que en la elección les corresponda".
