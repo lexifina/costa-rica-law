@@ -1,0 +1,1 @@
+Articulo 3º—Con el objeto de preservar el equilibrio del Presupuesto, queda facultado el Ministerio de Economía y Hacienda para reducir la erogación que autoriza el artículo anterior, en la misma cantidad que pudiera producir de menos el ingreso destinado a cubrir ese crédito.
