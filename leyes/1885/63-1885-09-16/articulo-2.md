@@ -1,0 +1,1 @@
+Art. 2°-Asígnase el premio de quinientos pesos ($500-00) para el autor del mejor trabajo que se presente sobre cada una de las materias expresadas; además, la publicación de las obras se hará de costa del Tesoro Nacional, conservarán los autores sus derechos de propiedad, y servirán las obras de texto para las escuelas nacionales, por el término de cuatro años.
