@@ -1,0 +1,1 @@
+Artículo 4º—La Autoridad Presupuestaria según su proceder administrativo y técnico, hará extensiva a las Instituciones que corresponda las resoluciones que respecto de las disposiciones del presente Decreto, emita la Dirección General de Servicio Civil. Asimismo autorizará el aumento establecido en el artículo 1° anterior para las instituciones cubiertas por su ámbito.

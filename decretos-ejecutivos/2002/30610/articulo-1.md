@@ -1,0 +1,13 @@
+DECRETOS
+Nº 30610-P-MTSS-H
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE LA PRESIDENCIA, EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política.
+Considerando:
+1º—Que el Gobierno de la República ha expuesto sus intenciones por una política salarial que beneficie a los servidores públicos y esté en concordancia con las políticas económicas y sociales desarrolladas, en beneficio de toda la ciudadanía costarricense.
+2º—Que es necesario incrementar el salario de los servidores públicos armonizando la capacidad fiscal del Estado y las políticas gubernamentales destinadas a propiciar el desarrollo y bienestar del país, coadyuvando en particular con los esfuerzos para el control del costo de la vida, de forma que la integración de dichas acciones redunde en beneficio de los trabajadores.
+3º—Que el incremento salarial recupera en el transcurso del segundo semestre del año 2002 el poder adquisitivo del salario total de los servidores públicos, tomando en cuenta que el porcentaje aquí aprobado supera la inflación del semestre precedente, que alcanzó un 3,84%.
+4º—En consonancia con las políticas mencionadas se dispone realizar un aumento porcentual al salario base que corresponda a cada categoría ocupacional.
+5º—Que tanto el Movimiento Sindical Costarricense como el Gobierno de la República han coincidido en mantener canales y espacios de negociación, los cuales posibilitaron acordar este incremento salarial, según acta de acuerdo firmada por los representantes de ambas partes, a las diez horas del día primero de agosto del año dos mil dos. Por tanto,
+Decretan:
+Artículo 1º—Se autoriza un aumento general al salario base de todos los servidores públicos consistente en un 04,38% a partir del primero de julio del año 2002.
