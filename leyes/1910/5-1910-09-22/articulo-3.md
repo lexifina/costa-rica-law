@@ -1,0 +1,1 @@
+Artículo 3° Deberán declararse el cólera morbus, la peste bubónica, la fiebre amarilla, el tifus exantemático, la viruela, la difteria, la escarlatina, la lepra, la fiebre, tifoidea, la tuberculosis, en caso de muerte, la tos ferina y el sarampión, cuando no hubiera ningún otro caso anterior en la localidad, y la disentería.

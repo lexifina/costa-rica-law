@@ -1,0 +1,1 @@
+Articulo 2° Solidariamente con los médicos, estarán obligados a dar el referido aviso, los dueños de hoteles, directores de asilos, de fábricas, de casas de salud, o de otros establecimientos públicos o privados, quienes incurrirán en la pena respectiva si se demostrare que conocían el caso de aviso del médico.
