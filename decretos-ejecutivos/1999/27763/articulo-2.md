@@ -190,4 +190,7 @@ de importación o tránsito. |
 Por kilogramo por día | 500,00
 26)Supervisión de Cuarentena Interna para los productos vegetales |
 que se importan al país | 3.350,00
-(Así reformado por el artículo 1° del decreto ejecutivo N° 28560 del 18 de febrero de 2000)
+27 Inspección muestreo y análisis de calidad. |
+Por contenedor | ¢ 25.500,00
+Por tonelada | ¢ 95,00
+(Así adicionado el código de servicio N° 27 por el artículo 1° del decreto ejecutivo N° 28868 del 4 de agosto de 2000, el cual reformó el artículo 1° del decreto ejecutivo N° 28560 que modificó el presente artículo)
