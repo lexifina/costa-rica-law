@@ -1,4 +1,4 @@
-Artículo 65.-Preparado el proyecto de liquidación, el o los
+ARTICULO 65.-Preparado el proyecto de liquidación, el o los
 liquidadores convocarán a una junta de asociados. Si éstos estimaren
 afectados sus derechos, gozarán de un plazo de quince días naturales, a
 partir de la celebración de la junta, para pedir modificaciones.

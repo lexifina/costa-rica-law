@@ -1,4 +1,4 @@
-Artículo 17.-Perderá sus derechos en la asociación el afiliado que
+ARTICULO 17.-Perderá sus derechos en la asociación el afiliado que
 se separe de ella, con excepción de:
 a) Las cantidades que la asociación haya retenido a su nombre en calidad
 de ahorro, más los rendimientos correspondientes.

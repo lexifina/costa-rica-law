@@ -1,4 +1,4 @@
-Artículo 13.-Los estatutos de la asociación solidarista deberán
+ARTICULO 13.-Los estatutos de la asociación solidarista deberán
 expresar:
 a) El nombre de la entidad.
 b) Su domicilio.

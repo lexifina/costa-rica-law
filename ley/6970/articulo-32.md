@@ -1,4 +1,4 @@
-Artículo 32.-Las asambleas generales deberán ser convocadas en la
+ARTICULO 32.-Las asambleas generales deberán ser convocadas en la
 forma y por el funcionario u órgano que indiquen los estatutos y, a falta
 de disposición expresa, por el presidente de la junta directiva, por
 cualquier medio probatorio de la convocatoria, siempre que en ésta se haga

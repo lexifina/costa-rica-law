@@ -1,4 +1,4 @@
-Artículo 23.-Las asociaciones solidaristas deberán invertir en
+ARTICULO 23.-Las asociaciones solidaristas deberán invertir en
 programas de vivienda y en actividades reproductivas, y podrán usar hasta
 un diez por ciento de su disponibilidad en educación de los socios o de sus
 familiares. En todo caso deberán mantener las reservas necesarias para

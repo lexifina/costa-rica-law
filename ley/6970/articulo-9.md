@@ -1,4 +1,4 @@
-Artículo 9º.-Para todos los efectos legales, se presume que las
+ARTICULO 9º.-Para todos los efectos legales, se presume que las
 asociaciones establecidas conforme a la presente ley no generan utilidades,
 salvo aquellos rendimientos provenientes de inversiones y operaciones
 puramente, mercantiles.

@@ -1,4 +1,4 @@
-Artículo 14.-Podrán ser afiliados a las asociaciones solidaristas, de
+ARTICULO 14.-Podrán ser afiliados a las asociaciones solidaristas, de
 acuerdo con el artículo 5º de esta ley, los trabajadores mayores de
 dieciséis años. No obstante, para ocupar cualquier cargo de elección será
 requisito indispensable ser mayor de edad.
