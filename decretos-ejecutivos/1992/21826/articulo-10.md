@@ -10,16 +10,19 @@ PARQUES NACIONALES Y AFINES
 Islas del Golfo | Rincón de la Vieja
 Isla del Coco | Carara
 Isla del Caño | Chirripó
-Amistad | Palo Verde
+Amistad | Palo verde
 Corcovado | Zona Protectora
 Tortuguero | La Selva
-Hitoy-Cerere | Zona Protectora La Selva
-Cabo Blanco | Zona Protectora Barbilla
-(*)90% | 15%
+Hitoy – Cerere | Zona Protectora
+Cabo Blanco | Barbilla
+Parque Nacional Baulas | Lomas de Barludal
+Parque Nacional Guanacaste |
+Barra Honda |
+90% | 85%
 Cahuita | Irazú
 Guayabo | Poás
-Santa Rosa |
-Manuel Abtonio |
+Santa Rosa | Tapantí
+Manuel Antonio |
 Braulio Carrillo |
 Sector Murciélago |
-(*) (Así adicionado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 22016 del 15 de febrero de 1993)
+(Así reformado el cuadro anterior por el artículo 1° del decreto ejecutivo N° 22192 del 4 de mayo de 1993)
