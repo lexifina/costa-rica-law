@@ -1,0 +1,3 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8° de la sesión 7298, celebrada el 21 de enero de 1999. dispuso derogar el último párrafo del inciso b) del artículo 9° del Reglamento del Seguro de Invalidez, Vejez y Muerte, para que en adelante se lea así:
+"Artículo 9°.... b) ...
+Quien contraiga matrimonio con un asegurado que en ese momento tuviera en trámite una solicitud de pensión o que ya disfrutaba de ella tendrá derecho a la pensión por viudez".
