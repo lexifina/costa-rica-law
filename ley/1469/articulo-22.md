@@ -1,0 +1,4 @@
+CAPITULO VI
+ARREGLO DE CONTROVERSIAS
+ARTICULO 22
+Si en opinión de alguna de las Partes del presente Tratado se suscita una controversia en relación con la interpretación o la ejecución del Tratado que no se pueda arreglar sometiéndola a un Tribunal Especial de Reclamaciones o por otros medios convenidos, la controversia, a petición de cualquiera de las partes, será sometida a la decisión de la Corte Internacional de Justicia. El Japón y las Potencias Aliadas que no sean todavía partes en el Estatuto de la Corte Internacional de Justicia, depositarán en la Secretaría de la Corte, en el momento de sus respectivas ratificaciones del presente Tratado, y de conformidad con la resolución del Consejo de Seguridad de las Naciones Unidas de fecha 15 de octubre de 1946, una declaración general que acepta, sin acuerdo especial, y en general, la jurisdicción de la Corte en relación con todas las controversias de la índole mencionada en este artículo.

@@ -1,0 +1,2 @@
+ARTICULO 20
+El Japón tomará todas las medidas necesarias para asegurar que los bienes alemanes en el Japón serán objeto de las medidas que, para su disposición, hayan acordado o acuerden las potencias que, en virtud del Protocolo de las deliberaciones de la Conferencia de Berlín de 1945, tienen derecho de disponer de esos bienes, y en tanto se procede a la disposición final de tales bienes, asumirá la responsabilidad de su conservación y administración.
