@@ -14,3 +14,4 @@ Tarifario de Referencia y de Uso Discrecional del Colegio de Geólogos de Costa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-25 | la propia norma |
+| 2 | 1993-08-25 | SINALEVI (sin norma nombrada) |
