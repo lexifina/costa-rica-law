@@ -1,0 +1,4 @@
+Artículo 19.-La política financiera del Servicio será la de capitalizar los ingresos netos que obtenga de la venta de servicios y de cualquier otra fuente, para realizar planes nacionales de abastecimiento de agua potable y disposición de aguas residuales y pluviales. Para este efecto, se calcularán las tasas de venta de agua potable y disposición de aguas residuales de manera que en todo tiempo se provean fondos suficientes para lo siguiente:
+a) Pagar el costo de conservar, reparar y explotar los sistemas de acueductos y alcantarillados; y
+b) Pagar intereses sobre las deudas que contraiga, y un porcentaje para capitalización y desarrollo.
+El Gobierno no derivará ninguna parte de las utilidades netas del Servicio , pues éste no se considera como fuente productora de ingresos para el Fisco.

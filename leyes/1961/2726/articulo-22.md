@@ -1,0 +1,1 @@
+Artículo 22.-Es obligación del Servicio de Acueductos y Alcantarillado sufragar los gastos que demanden la conservación, ampliación y seguridad de los bosques que sirvan para mantener las fuentes de aguas, en las propiedades de aquellas Municipalidades donde asuma los servicios de aguas y alcantarillado.

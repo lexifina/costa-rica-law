@@ -1,0 +1,1 @@
+Transitorio 4°-Se cancelarán todas las concesiones o exenciones sobre el pago de servicios de agua potable o disposición de aguas residuales que existieren en el momento de entrar en funciones el Servicio Nacional de Acueductos y Alcantarillado.

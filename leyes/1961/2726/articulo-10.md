@@ -1,0 +1,1 @@
+Artículo 10-Los directores devengará por cada sesión ordinaria o extraordinaria a que asistan, una dieta que no podrá ser superior a las que devenguen los directores de Instituciones Autónomas, en su monto y en si número mensual, y deberá figurar, en cuanto a valor y monto probable, en su Presupuesto ordinaria Anual.

@@ -1,0 +1,1 @@
+Transitorio 3°-Los derechos laborales adquiridos por los funcionarios y empleados de las dependencias del Ejecutivo y de las Municipalidades que pasan a servir al Servicio, serán asumidos por éste, así como también los derechos laborales de aquellos empleados que, por virtud de disposición de esta ley, fueren despedidos de su trabajo.

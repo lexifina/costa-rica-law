@@ -1,0 +1,2 @@
+Artículo 17.-El Servicio Nacional de Acueductos y Alcantarillados no podrá hacer donaciones sin la aprobación de la Asamblea Legislativa. En cuanto a tarifas o tasas podrá contratar con las instituciones de beneficencia, educación y similares, en el sentido de concederles rebajas especiales.
+Estará exento de todo pago de tasas, impuesto y derechos fiscales, nacionales o municipales, gozará de franquicia telegráfica y postal; litigará en papel de oficio y no pagará derechos de registro.

@@ -1,0 +1,1 @@
+Transitorio 2°-Hasta tanto el Servicio Nacional de Acueductos y Alcantarillado no asuma plenamente sus funciones, se mantendrá el status de las Municipalidades en cuanto a la prestación de los servicios de que habla esta ley.
