@@ -1,0 +1,1 @@
+Artículo 3º—Se entenderá por domicilio accidental, el lugar al cual el funcionario tenga que trasladar su residencia para desarrollar sus funciones, de acuerdo con los requerimientos de la Administración Pública, sin que necesariamente tenga que cambiar su domicilio electoral.

@@ -1,0 +1,1 @@
+Artículo 6º—La Unidad Técnica de Recursos Humanos realizará el estudio correspondiente para el reconocimiento de zonaje al funcionario que lo solicite. Una vez aprobado el incentivo por parte de dicha Unidad, se elaborará la respectiva acción de personal.

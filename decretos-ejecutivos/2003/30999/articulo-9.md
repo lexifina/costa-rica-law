@@ -1,0 +1,1 @@
+Artículo 9º—Los gastos de viaje y transporte seguirán regulándose, de manera independiente al zonaje, de acuerdo con las disposiciones contenidas en el Reglamento correspondiente, promulgado por la Contraloría General de la República.

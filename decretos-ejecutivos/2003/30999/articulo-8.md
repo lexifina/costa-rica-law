@@ -1,0 +1,1 @@
+Artículo 8º—Al servidor que goce del incentivo por zonaje, que se desplace por un período mayor de un mes de su domicilio accidental, se le suspenderá el pago del incentivo hasta que se reincorpore nuevamente a sus funciones en su domicilio accidental. Dicha suspensión empezará a regir una vez que haya transcurrido un mes después de dicho traslado.
