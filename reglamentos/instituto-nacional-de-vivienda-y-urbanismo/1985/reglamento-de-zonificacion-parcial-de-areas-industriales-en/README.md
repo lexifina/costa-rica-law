@@ -25,3 +25,4 @@ Reglamento de Zonificación parcial de Áreas Industriales en La Gran Área Metr
 | 10 | 1994-04-28 | Reglamento 4404 (1994-04-28) |
 | 11 | 1994-08-10 | Reglamento 4434 (1994-08-10) |
 | 12 | 1996-07-19 | Decreto Ejecutivo 25364 (1996-07-19) |
+| 13 | 1996-08-01 | Acuerdo municipal 217 (1996-08-01) |
