@@ -1,8 +1,37 @@
-Artículo 4º.- Créase un impuesto sobre el consumo de refrescos
-gaseosos y de bebidas carbonatadas de siete céntimos (¢ 0.07) por
-botella, cuya capacidad sea hasta de doce (12) onzas. Cuando el expendio
-se haga en envases de mayor capacidad, el impuesto se pagará
-proporcionalmente.
-La Dirección General de Economía fijará a su nivel actual el precio de
-venta a los consumidores, de los refrescos afectados por la disposición
-anterior.
+Artículo 4º.- El impuesto sobre el consumo de refrescos gaseosos y
+bebidas carbonatadas de franquicia extranjera, será de un céntimo de
+colón (¢ 0,01) por onza según la capacidad de cada envase. Cuando se
+trate de refrescos gaseosos y bebidas carbonatadas de marcas nacionales,
+será de siete céntimos de colón (¢ 0,07) por envase cuya capacidad sea de
+hasta doce onzas; cuando el expendio se haga con envases de mayor
+capacidad, el impuesto se pagará proporcionalmente. Cuando se trate de
+refrescos y bebidas carbonatadas manufacturadas únicamente con frutas
+naturales, el impuesto será de un céntimo de colón (¢ 0,01) por envase de
+hasta doce onzas y de dos céntimos de colón (¢ 0,02) en envases mayores
+de doce onzas. Para la venta de refrescos gaseosos y bebidas
+carbonatadas expedidas por medio de máquinas y que no sean embotellados,
+se pagará un impuesto de consumo del 20% del valor de la facturación en
+fábrica. La Dirección General de Economía fijará a su nivel actual el
+precio de venta a los distribuidores y consumidores, de los refrescos
+afectados por las disposiciones anteriores.
+Del producto de este impuesto, se girarán, cada año, las siguientes
+partidas:
+Un cuarenta por ciento al Instituto Nacional de Fomento Cooperativo
+el cual se destinará a cubrir el presupuesto anual de gastos corrientes.
+Un quince por ciento a la Universidad de Costa Rica, la que deberá
+invertir un siete y medio por ciento en la construcción de la Facultad de
+Derecho, en la financiación de programas académicos de ésta y en la
+construcción de centros regionales universitarios.
+Un seis por ciento a la Facultad de Agronomía para financiar los
+programas de capacitación campesina, estaciones experimentales y los
+programas de extensión agrícola. Un uno y medio por ciento lo invertirá
+en la financiación de programas de bienestar estudiantil, tales como,
+residencias estudiantiles, transporte y becas.
+Un dos y medio por ciento al Instituto de Estudios Sociales en
+Población (IDESPO) de la Universidad Nacional. Un cinco por ciento al
+Consejo Nacional de Investigaciones Científicas y Tecnológicas. Dichas
+sumas en proporción al monto recaudado, deberán ser giradas mensualmente
+por el Banco Central de Costa Rica, a las instituciones beneficiarias
+para el cumplimiento de sus fines.
+( Así reformado por el artículo 183 de la Ley Nº 6756 de 5 de mayo
+de 1982)
