@@ -1,0 +1,1 @@
+Artículo 5°-Las solicitudes que se presente para realizar algún tipo de actividades culturales, se otorgarán consultando previamente al Ejecutivo Municipal. Dichas solicitudes se presentarán ante el Concejo, con quince días de anticipación.

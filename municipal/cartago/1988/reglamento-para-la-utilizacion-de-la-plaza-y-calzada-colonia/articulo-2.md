@@ -1,0 +1,1 @@
+Artículo 2°-La plaza y la calzada colonial se utilizarán única y exclusivamente para peatones; queda prohibido el tránsito de vehículos motorizados y otra clase de vehículos de ruedas para transporte de personas y carga, en toda el área.
