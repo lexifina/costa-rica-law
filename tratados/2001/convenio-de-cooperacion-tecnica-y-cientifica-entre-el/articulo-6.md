@@ -1,0 +1,6 @@
+Artículo VI
+1.- Con el fin de efectuar la coordinación de las acciones para el cumplimiento del presente Convenio y de lograr las mejores condiciones para su ejecución, las Partes Contratantes establecen una Comisión Mixta compuesta por representantes de ambas Partes, que se reunirá, alternadamente cada año, en Uruguay y en Costa Rica. Esta Comisión Mixta tendrá las siguientes funciones:
+a) Evaluar y demarcar áreas prioritarias en que sería factible la realización de proyectos específicos de cooperación técnica y científica.
+b) Analizar, evaluar, aprobar y revisar los Programas Anuales de cooperación técnica y científica; a nivel de proyectos específicos presentados por ambas Partes.
+c) Supervisar el buen funcionamiento del presente Convenio y efectuar a las Partes las recomendaciones que considere pertinentes.
+2.- Sin perjuicio de lo previsto en el punto 1 de este artículo, cada una de las Partes podrá someter a la otra, en cualquier momento, proyectos específicos de cooperación técnica y científica, para su debido estudio y posterior aprobación. Asimismo, las Partes Contratantes podrán convocar, de común acuerdo y cuando lo consideren necesario, reuniones especiales de la Comisión Mixta.

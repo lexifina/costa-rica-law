@@ -1,0 +1,2 @@
+Artículo IX
+Los costos de pasajes aéreos de ida y vuelta que implique el envío del personal a que se refiere el artículo IV del presente Convenio, de una de las Partes al territorio de la otra, se sufragarán por la Parte que lo envíe. El costo del hospedaje, alimentación, transporte local, y otros gastos necesarios para la ejecución del programa, se cubrirán por la Parte receptora. Expresamente se podrá especificar de otra manera en los programas o en los Acuerdos Complementarios.
