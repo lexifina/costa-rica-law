@@ -18,3 +18,4 @@ Declara y demarca zonas como Reservas Indígenas
 | 3 | 1982-04-30 | Decreto Ejecutivo 13571 (1982-04-30) |
 | 4 | 1982-04-30 | Decreto Ejecutivo 13570 (1982-04-30) |
 | 5 | 1982-04-30 | Decreto Ejecutivo 13572 (1982-04-30) |
+| 6 | 2001-03-21 | Decreto Ejecutivo 16570 (1985-09-25) |
