@@ -14,3 +14,4 @@ Reglamento del procedimiento de cobro administrativo y judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-23 | la propia norma |
+| 2 | 2002-08-05 | Reglamento municipal 14 (2002-08-05) |
