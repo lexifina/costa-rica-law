@@ -1,1 +1,0 @@
-Artículo 3°-Los sueldos del personal y demás gastos que origine el sostenimiento de la citada Agencia, los cubrirá de sus fondos el Instituto de Defensa del Café, pero su nombramiento lo hará el Poder Ejecutivo, por medio de la Secretaría de Gobernación y Policía.
