@@ -1,0 +1,1 @@
+Artículo 17.—El Ministerio de Gobernación y Policía se reserva la potestad de establecer en cualquier momento las variaciones que considere pertinentes a la presente reglamentación, cuando razones de oportunidad o conveniencia así lo hagan necesario.

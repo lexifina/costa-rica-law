@@ -1,0 +1,1 @@
+Artículo 16.—Toda resolución firme que deniegue una solicitud de residencia con base en el Régimen de Excepción, deberá ser comunicada a la Policía Especial de Migración, con datos concretos sobre la ubicación del extranjero y su identidad. La Policía Especial de Migración podrá solicitar en cualquier momento, copia de los expedientes administrativos correspondientes.

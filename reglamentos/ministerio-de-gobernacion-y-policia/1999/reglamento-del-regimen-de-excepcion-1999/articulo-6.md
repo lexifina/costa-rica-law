@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que se compruebe en cualquier momento la presentación de documentos o declaraciones falsas, con el propósito de acogerse a los beneficios que otorga el Decreto Nº 27457-G-RE (Régimen de Excepción), se procederá de inmediato a la deregatoria de la solicitud de residencia, o la cancelación del estatus, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 14.—Se eximirá del pago de derechos atrasados y multas, a todos aquellos ciudadanos centroamericanos que se encuentran en condiciones irregulares, e ingresaron al país antes del día 9 de noviembre de 1998, con el único fin de facilitarles regularizar su situación migratoria en el país, con base en el decreto 27457-G-RE, y no para su salida del territorio nacional.

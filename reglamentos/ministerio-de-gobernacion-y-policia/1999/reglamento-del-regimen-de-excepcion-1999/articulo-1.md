@@ -1,0 +1,11 @@
+GOBERNACION Y POLICÍA
+EL MINISTRO DE GOBERNACIÓN Y POLICÍA y EL DIRECTOR GENERAL DE MIGRACIÓN Y EXTRANJERÍA
+En ejercicio de las atribuciones conferidas por los artículos 43 de la Ley General de Migración y Extranjería y 6 de la Ley General de la Administración Pública; y en ejecución de las disposiciones contenidas en Decreto número 27457-G-RE, del 24 de noviembre de 1998, y en el Artículo 15 del Reglamento del Régimen de Excepción 1999, emitido por Ministerio de Gobernación y Policía y la Dirección General de Gobernación y Extranjería, el día 26 de enero de 1998, y publicado en el Alcance número 9 a "La Gaceta" número 20 del 29 de enero de 1999,
+Considerando:
+lo—Que mediante Decreto número 27457-G-RE, publicado en el rio Oficial "La Gaceta" No 239, del día 9 de diciembre de 1998, el Poder Ejecutivo determinó poner en vigencia un Régimen de Excepción destinado a facilitar la radicación de todos aquellos ciudadanos centroamericanos que residen de manera irregular en Costa Rica.
+2°—Que el referido decreto estableció en su artículo tercero, la necesidad de definir los requisitos que serán exigidos a los potenciales beneficiarios del Régimen de Excepción, así como sus aspectos operativos y determinación de los lugares donde serán recibidas las solicitudes de residencia correspondientes.
+3°—Que con base en lo anterior, el Ministerio de Gobernación y Policía y la Dirección General de Migración y Extranjería emitieron el día I de enero de 1999, el Reglamento del Régimen de Excepción 1999, publicado en el Alcance número 9 a "La Gaceta" número 20 del 29 de enero de 1999.
+4°—Que la ejecución del Régimen de Excepción demanda en Ia actualidad un ajuste de los términos del Reglamento referido en el considerando tercero anterior. Por tanto,
+Se emite el presente
+NUEVO REGLAMENTO DEL RÉGIMEN DE EXCEPCIÓN 1999
+Articulo 1°—Los extranjeros nativos y naturalizados de los siguientes países: Belice, El Salvador, Guatemala, Honduras, Nicaragua y Panamá, que hubieren ingresado con anterioridad al 9 de noviembre de 1998, podrán obtener el estatus de residente permanente libre de condición, en el plazo de un año, renovable por periodos similares, basados en el Decreto número 27457-G-RE, del 24 de noviembre de 1998, publicado en el Diario Oficial "La Gaceta" No 239, del día 9 de diciembre de 1998.

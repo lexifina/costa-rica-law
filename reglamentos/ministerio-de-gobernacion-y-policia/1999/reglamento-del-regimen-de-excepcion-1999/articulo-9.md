@@ -1,0 +1,1 @@
+Artículo 9º—A los extranjeros beneficiados por el Régimen de Excepción, se les otorgará una Cédula de Residencia Permanente Libre de Condición, válida por un año renovable por periodos similares, de acuerdo a la legislación migratoria vigente.
