@@ -1,0 +1,1 @@
+Artículo 2°-Toda infracción a este decreto será sancionada con multa de cinco a ciento veinte colones, de acuerdo con lo dispuesto por el artículo 150 de la ley N° 52 de 12 de marzo de 1923, sobre Protección de la Salud Pública.
