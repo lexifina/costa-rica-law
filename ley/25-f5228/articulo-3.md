@@ -1,0 +1,1 @@
+Art. 3.-En todos los establecimientos de enseñanza costeados ó subvencionados por el Gobierno, se hace obligatorio el aprendizaje del sistema métrico decimal, y de las tablas de equivalencia á que se refiere el artículo anterior, tan luego como éstas se hayan publicado.

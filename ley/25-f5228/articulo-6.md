@@ -1,0 +1,1 @@
+Art. 6°-En las oficinas de los Gobernadores en los cantones mayores, y en las de los Jefes Políticos en los menores, habrá una colección completa de pesas y medidas, del nuevo sistema, que serán comprobadas cada año con las que se custodian en la Dirección General de Obras Públicas.
