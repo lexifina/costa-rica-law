@@ -1,0 +1,2 @@
+Transitorio único.-Las empresas a las que en la fecha de publicación del presente Decreto se les hubiere vencido el plazo de vigencia de los beneficios o no pudieran adecuarse al término de los 90 días naturales que indica el artículo 1° del presente Decreto, se les confiere por única vez un plazo de 60 días naturales a partir de la vigencia de este Decreto, a efecto de que soliciten la prórroga correspondiente.
+Dado en la Presidencia de la República.-San José, a los cuatro días del mes de marzo de mil novecientos ochenta y cinco.
