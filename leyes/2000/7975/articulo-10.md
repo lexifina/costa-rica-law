@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Protección. La protección de la información no divulgada no otorga derechos como una patente; se caracteriza por otorgar un derecho limitado de propiedad en cuanto a su posesión y usufructo, siempre y cuando se cumplan las condiciones señaladas en el primer párrafo del artículo 2 de la presente ley.

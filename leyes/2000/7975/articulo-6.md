@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Responsabilidad. Serán responsables quienes hayan actuado de manera contraria a los usos comerciales honestos y que, por sus actos o prácticas, hayan utilizado, adquirido o divulgado información confidencial sin la autorización del titular; asimismo, los que obtengan beneficios económicos de tales actos o prácticas.
+Las acciones administrativas, civiles o penales, relativas a esta ley serán reguladas en una ley posterior sobre procedimientos de observancia de los derechos de propiedad intelectual.

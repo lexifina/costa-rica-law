@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Autorización de uso. Quien guarde información no divulgada podrá transmitirla a un tercero o autorizarle el uso. El usuario autorizado tendrá la obligación de no divulgarla por ningún medio, salvo pacto en contrario con quien le transmitió o le autorizó el uso.
