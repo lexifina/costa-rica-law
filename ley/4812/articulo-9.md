@@ -1,1 +1,1 @@
-Artículo 9º.- Las sumas declaradas como ingreso para hacerse acreedor a los beneficios de esta ley, estarán exentos del Impuesto de la Renta.
+Artículo 9º.- (DEROGADO TACITAMENTE por el artículo 1º de la Ley Nº 7293 de 31 de marzo de 1992).
