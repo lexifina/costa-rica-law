@@ -1,0 +1,1 @@
+Artículo 2° Los certificados que se emitan en ejecución de esta ley, de la misma manera que lo que ya están en circulación, serán admitidos en todas las oficinas fiscales con poder liberatorio igual al de la moneda de oro acuñada.
