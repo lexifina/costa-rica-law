@@ -1,0 +1,1 @@
+Artículo 22.—Las liquidaciones de kilometraje se harán en forma semanal, quedando claro que no se tramitarán adelantos de dinero por los conceptos especificados en el sistema. No podrán iniciar una gira sin antes liquidar la anterior.

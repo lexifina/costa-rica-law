@@ -1,0 +1,1 @@
+Artículo 3°—El pago se realizará a todos los funcionarios de la Oficina que por medio de contrato o situación especial deban arrendar su vehículo al servicio de la Institución. Su autorización provendrá únicamente de la Dirección Ejecutiva (de ahora en adelante llamada la Dirección).

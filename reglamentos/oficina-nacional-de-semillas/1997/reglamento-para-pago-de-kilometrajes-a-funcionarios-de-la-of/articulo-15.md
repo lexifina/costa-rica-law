@@ -1,0 +1,1 @@
+Artículo 15.—Las sumas que los funcionarios percibieren por concepto de este sistema, y conforme a lo estipulado en este reglamento, no constituirán en ninguna circunstancia salario en especie, por lo cual no podrán considerarse para el cálculo de sus respectivos derechos laborales.

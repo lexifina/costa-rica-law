@@ -1,0 +1,1 @@
+Artículo 16.—No existirá obligación por parte de la oficina de cancelar el kilometraje que considere excesivo. Igualmente, no se aceptarán ni se cancelarán liquidaciones sobre giras o movimientos no autorizados.

@@ -1,0 +1,1 @@
+Artículo 13.—Para los artículos 11 y 12, la falsedad comprobada de la información presentada, se aplicará a cuenta y riesgo del funcionario, so pena de no pago; de las sanciones que establezca este reglamento y sin derecho a reclamo.

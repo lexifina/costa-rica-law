@@ -1,0 +1,1 @@
+Artículo 5°—La posibilidad de arrendar su vehículo y percibir remuneración por pago de kilometraje, está vedado a los miembros de Junta Directiva, Dirección Ejecutiva y Jefatura Administrativo - Financiera, así como al personal del Departamento Administrativo - Financiero, quienes por su condición y para estos efectos están excluidos de la aplicación de este Reglamento.

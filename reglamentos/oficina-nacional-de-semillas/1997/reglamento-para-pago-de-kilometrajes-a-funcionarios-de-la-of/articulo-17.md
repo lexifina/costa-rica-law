@@ -1,0 +1,1 @@
+Artículo 17.—La Oficina se reserva el derecho de cancelar únicamente el kilometraje debidamente justificado. De la misma forma, la Oficina podrá aplicar las medidas de supervisión y comprobación de kilometraje recorrido de acuerdo a los procedimientos que establezca.

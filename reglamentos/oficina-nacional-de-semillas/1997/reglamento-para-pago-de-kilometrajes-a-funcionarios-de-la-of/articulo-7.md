@@ -1,0 +1,1 @@
+Artículo 7°—En caso de aprobarse la solicitud, se comunicará al Departamento Administrativo - Financiero para que en conjunto con la Asesoría Legal se suscriba un contrato de arrendamiento entre el funcionario y la oficina-(de ahora en adelante llamado el Contrato).

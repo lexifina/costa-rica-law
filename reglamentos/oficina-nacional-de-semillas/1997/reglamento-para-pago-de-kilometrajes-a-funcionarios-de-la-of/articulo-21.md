@@ -1,0 +1,1 @@
+Artículo 21.—El formulario que autoriza el pago o solicitud de liquidación de kilometraje, deberá ser presentado por el funcionario en un plazo no mayor de cinco días hábiles posteriores a la conclusión de la gira. No se tramitarán liquidaciones entregadas después de ese plazo. Estos formularios se utilizarán entre otras cosas para ejecutar un control de costos del sistema.
