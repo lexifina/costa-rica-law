@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE AGUIRRE
+Sesión extraordinaria Nº 169, celebrada el 7 de julio del 2000,...
+A continuación se presenta el Reglamento de Zonificación, para la modificación propuesta del Plan Regulador de Playa Espadilla. Este Reglamento constituye el documento que deberá ser aprobado por la Municipalidad de Aguirre, previo visto bueno del ICT y del INVU.
+Artículo 1º—Establecimiento del Reglamento y objetivos. La Municipalidad del cantón de Aguirre, atendiendo las disposiciones de la ley Nº 6043 sobre la Zona Marítimo Terrestre y reconociendo la necesidad de actualizar el uso de los terrenos en Playa Espadilla, dicta el presente "Reglamento de Zonificación" que será aplicable a la Zona Marítimo Terrestre, específicamente frente al sector costero de la playa en mención, entre los mojones Nº 166 y Nº 101 + 30 m, hasta el límite con el Parque Nacional de Manuel Antonio.
+Forman parte de este Reglamento los mapas Nos. 28 y 29, anexo Nº 5, como documentos de referencia, en los cuales se localizan las zonas contempladas; así como la vialidad propuesta. La zonificación tiene como objetivo central, orientar el desarrollo físico del área en mención con el fin de:
+– Definir un modelo de desarrollo recreativo turístico acorde con las condiciones naturales del sitio, además permitirá programar la futura dotación de servicios básicos de equipamiento comunal, los servicios turísticos y la vialidad actual.
+– Proteger los recursos naturales definiendo áreas de conservación necesarias para garantizar la utilización racional de los recursos, la seguridad, y confort de los visitantes.
+– Favorecer la salud, la economía y el bienestar de la población nacional y extranjera, tanto local como visitante.
