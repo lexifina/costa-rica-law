@@ -3,11 +3,11 @@ Arreglo de controversias
 1.- Toda controversia entre las Partes sobre la interpretación o la
 aplicación de la Convención, será resuelta mediante negociación o
 cualquier otro medio pacífico de su elección.
-2.- Al ratificar, aceptar o aprobar la Convención o adherirse a ella,
-o en cualquier momento a partir de entonces, cualquier parte que no sea
-una organización regional de integración económica podrá declarar en un
-instrumento escrito presentado al Depositario que, en lo que respecta a
-cualquier controversia sobre la interpretación o la aplicación de la
+2.- Al ratificar, aceptar o aprobar la Convención o adherirse a
+ella, o en cualquier momento a partir de entonces, cualquier parte que no
+sea una organización regional de integración económica podrá declarar en
+un instrumento escrito presentado al Depositario que, en lo que respecta
+a cualquier controversia sobre la interpretación o la aplicación de la
 Convención, reconoce como obligatorio en relación con cualquier Parte que
 acepte la misma obligación uno o ambos de los siguientes medios para el
 arreglo de controversias:
@@ -21,9 +21,9 @@ arbitraje, con arreglo al procedimiento señalado en el inciso a) del
 párrafo 2 del presente artículo.
 4.- Las declaraciones que se formulen de conformidad con el párrafo
 2 del presente artículo seguirán en vigor hasta su expiración en el plazo
-previsto en ellas o hasta que expire un plazo de tres meses a contar de la
-fecha en que se haya entregado al Depositario la notificación escrita de
-su revocación.
+previsto en ellas o hasta que expire un plazo de tres meses a contar de
+la fecha en que se haya entregado al Depositario la notificación escrita
+de su revocación.
 5.- La expiración de una declaración, una notificación de revocación
 o una nueva declaración no afectarán en modo alguno los procedimientos
 pendientes ante un tribunal de arbitraje o ante la Corte Internacional de

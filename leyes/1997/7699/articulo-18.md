@@ -3,28 +3,28 @@ Transferencia, adquisición, adaptación y
 desarrollo de tecnología
 1.- Las Partes se comprometen a promover, financiar y/o ayudar a
 financiar, según lo convenido por mutuo acuerdo y de conformidad con sus
-respectivas leyes y/o políticas nacionales, la transferencia, adquisición,
-adaptación y desarrollo de tecnologías ecológicamente racionales,
-económicamente viables y socialmente aceptables para combatir la
-desertificación y/o mitigar los efectos de la sequía, con miras a
+respectivas leyes y/o políticas nacionales, la transferencia,
+adquisición, adaptación y desarrollo de tecnologías ecológicamente
+racionales, económicamente viables y socialmente aceptables para combatir
+la desertificación y/o mitigar los efectos de la sequía, con miras a
 contribuir al desarrollo sostenible en las zonas afectadas. Dicha
 cooperación se llevará a cabo bilateral o multilateralmente, según
 corresponda, aprovechando plenamente los conocimientos especializados de
 las organizaciones intergubernamentales y no gubernamentales. En
 particular, las Partes:
-a) utilizarán plenamente los correspondientes sistemas de información
-y centros de intercambio de datos nacionales, subregionales, regionales e
-internacionales existentes para difundir información sobre las tecnologías
-disponibles, así como sobre sus fuentes, sus riesgos ambientales y las
-condiciones generales en que pueden adquirirse;
+a) utilizarán plenamente los correspondientes sistemas de
+información y centros de intercambio de datos nacionales, subregionales,
+regionales e internacionales existentes para difundir información sobre
+las tecnologías disponibles, así como sobre sus fuentes, sus riesgos
+ambientales y las condiciones generales en que pueden adquirirse;
 b) facilitarán el acceso, en particular de los países Partes en
 desarrollo afectados, en condiciones favorables e incluso en condiciones
 concesionales y preferenciales, según lo convenido por mutuo acuerdo y
 teniendo en cuenta la necesidad de proteger los derechos de propiedad
-intelectual, a las tecnologías más adecuadas desde el punto de vista de su
-aplicación práctica para atender las necesidades concretas de las
-poblaciones locales, concediendo especial atención a los efectos sociales,
-culturales, económicos y ambientales de dichas tecnologías;
+intelectual, a las tecnologías más adecuadas desde el punto de vista de
+su aplicación práctica para atender las necesidades concretas de las
+poblaciones locales, concediendo especial atención a los efectos
+sociales, culturales, económicos y ambientales de dichas tecnologías;
 c) facilitarán la cooperación tecnológica entre los países Partes
 afectados mediante la asistencia financiera o por cualquier otro medio
 adecuado;
