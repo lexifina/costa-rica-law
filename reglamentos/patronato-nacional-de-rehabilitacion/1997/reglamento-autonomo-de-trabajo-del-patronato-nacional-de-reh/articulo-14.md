@@ -1,0 +1,1 @@
+Artículo 14.-La institución cancelará salarios mensuales, pagaderos en dos tantos, en su centro de trabajo, sito en Pozos de Santa Ana, de la Iglesia 100 metros al sur y 75 al oeste, por medio de depósito bancario, los días 15 y 30, o el día hábil inmediato anterior si aquel incidiere en no hábil.

@@ -1,0 +1,5 @@
+Artículo 5°-Los contratos de trabajo serán:
+a- ) POR TIEMPO INDEFINIDO: que se lIevarán a cabo con aquellos trabajadores indispensables para satisfacer las necesidades propias y permanentes de la institución.
+b-) POR TIEMPO DETERMINADO: que se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentren disfrutando de vacaciones, bajo licencia así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar.
+c-) DE APRENDIZAJE: que se formalizarán por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su reglamento y disposiciones conexas y supletorias, y que tiendan a la formación profesional, metódica y completa del individuo.
+d-) POR OBRA DETERMINADA: que se podrán celebrar para satisfacer las necesidades que eventualmente se presentaren en la institución y en los cuales sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.

@@ -1,0 +1,1 @@
+Artículo 54.-Cuando se produjere una llegada tardía superior a quince minutos, contados. a partir de la hora de entrada, el trabajador no deberá permanecer laborando durante esa fracción de jornada, la cual se calificará y computará como media ausencia para efectos de sanción y no pago del salario.

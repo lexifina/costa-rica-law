@@ -1,0 +1,1 @@
+Artículo 41.-Las correcciones disciplinarias a que se refiere el artículo 39, deberán imponerse un mes a partir del día en que se dio causa para la sanción, o en su caso, desde que fueron conocidos los hechos o faltas correspondientes.

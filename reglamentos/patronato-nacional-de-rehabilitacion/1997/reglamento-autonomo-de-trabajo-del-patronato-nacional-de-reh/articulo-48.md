@@ -1,0 +1,1 @@
+Artículo 48.-Las asistencias al Seguro Social o al Instituto Nacional de Seguros cuando sea en horas laborales, se considerarán como licencias con goce de salario, y deberán ser marcadas en el reloj controlador usando la tarjeta.

@@ -1,0 +1,1 @@
+Artículo 43.-Cada tarjeta deberá ser marcada por el trabajador a quien corresponda, con cuidado, de manera que quede impresa con claridad, toda vez que las marcas defectuosas, manchadas o confusas que no se deban a desperfectos del reloj, se tendrán por no hechas para efectos de sanción.

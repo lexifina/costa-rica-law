@@ -1,0 +1,2 @@
+Artículo 18.-EI pago de las vacaciones en caso del cese de funciones, se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por el trabajador durante las cincuenta semanas de trabajo del período correspondiente, o durante el tiempo que le diere derecho proporcional a las mismas.
+La negativa injustificada del trabajador a firmar la constancia de haber recibido sus vacaciones anuales, se tendrá por falta grave al contrato o relación de trabajo, para los efectos de su sanción.

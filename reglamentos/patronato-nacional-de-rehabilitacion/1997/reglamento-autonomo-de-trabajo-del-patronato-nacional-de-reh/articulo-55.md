@@ -1,0 +1,3 @@
+CAPITULO XVII
+Del abandono de trabajo
+Artículo 55.-Se considerará como abandono de trabajo, el hacer dejación de la labor objeto del contrato, dentro de la jornada de trabajo. Para efectos de calificar el abandono de trabajo, no es necesario que el trabajador salga del lugar donde presta sus servicios, bastará que de manera evidente abandone la labor que le ha sido encomendada. También se considerará abandono de trabajo el ignorar las directrices técnicas de la jefatura para el buen desempeño de las labores. Corresponderá al superior inmediato, comunicar a la Administración, el abandono de trabajo del subalterno, con las pruebas administrativas correspondientes.

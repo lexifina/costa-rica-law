@@ -1,0 +1,1 @@
+Artículo 4°-En los casos que se considere necesario el trabajador deberá firmar un contrato de trabajo, que contendrá en términos amplios, las cláusulas y estipulaciones particulares que regulen la prestación de servicios. .

@@ -1,0 +1,1 @@
+Artículo 38.-Para todo tipo de sanción disciplinaria que se impongan a los servidores de la Institución, debe levantarse la investigación correspondiente y no podrá imponerse sanción alguna antes de haber oído al servidor afectado y a los compañeros que éste indique, a menos que el servidor acepte expresamente la causa.

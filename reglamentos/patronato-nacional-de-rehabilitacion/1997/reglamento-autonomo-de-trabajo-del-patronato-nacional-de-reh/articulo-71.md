@@ -1,0 +1,1 @@
+Artículo 71.-La institución se reservará el derecho de adicionar o modificar en cualquier momento las disposiciones del presente reglamento. las cuales deberá someter al trámite de conocimiento y aprobación del Departamento Legal de la Dirección General del Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 47.-No obstante, lo expuesto ,en el artículo anterior, dejará de imponerse la sanción disciplinaria si el trabajador por error marcó la tarjeta del otro, o aquel a quien se le hubiese marcado, informe del hecho a quien corresponda a más tardar en el transcurso de la jornada siguiente a aquella en que el hecho sucedió.

@@ -1,0 +1,1 @@
+Artículo 17.-EI patrono señalará la época en que el trabajador gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplieren las cincuenta semanas de T servicio continuo, tratando de que no se altere la buena marcha de la institución ni la efectividad del descanso.

@@ -1,0 +1,1 @@
+Artículo 6°-En todo contrato o relación de trabajo, habrá un período de prueba no mayor de tres meses, salvo en aquellos casos en que se conviniere un plazo menor. Durante ese período y sin previo aviso, cualquiera de las partes podrá dar por terminado el contrato o relación laboral que los uniere, sin responsabilidad para ninguna de las partes.

@@ -1,0 +1,1 @@
+Artículo 44.-Todo trabajador deberá, después de marcar su tarjeta en el reloj marcador, en las horas de entrada, reportarse al Administrador, para efectos de ejercer un doble control de asistencia y puntualidad.

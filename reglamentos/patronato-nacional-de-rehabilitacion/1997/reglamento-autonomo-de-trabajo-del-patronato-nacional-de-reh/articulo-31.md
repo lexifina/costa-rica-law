@@ -1,0 +1,1 @@
+Artículo 31.-A solicitud del servidor interesado, el Órgano Director de Procedimiento, en forma interlocutoria podrá recomendar su reubicación temporal mientras concluye el procedimiento administrativo.

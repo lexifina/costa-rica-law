@@ -1,0 +1,1 @@
+Artículo 73.-En defecto de disposiciones propias de este reglamento, deberán tenerse corno supletorias del Código de Trabajo, y demás leyes, decretos y reglamentos conexos de la materia que estuvieren en vigencia en el país.

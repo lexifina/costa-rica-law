@@ -1,0 +1,1 @@
+Artículo 68.-Todas las licencias que se concedieren a los trabajadores serán sin goce de salario, salvo aquellos casos previstos por Ley o que, sin serIo la institución considerare oportuno otorgar con goce de salario.

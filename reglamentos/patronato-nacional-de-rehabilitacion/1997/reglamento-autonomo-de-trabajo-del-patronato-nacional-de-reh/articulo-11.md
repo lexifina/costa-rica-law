@@ -1,0 +1,1 @@
+Artículo 11.-La Institución podrá modificar transitoriamente los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo exigieren y no se causare grave perjuicio económico y moral a los trabajadores afectados, con un mínimo de un mes de anticipación. '

@@ -1,0 +1,1 @@
+Artículo 32.-La Administración del Patronato deberá llevar a cabo el procedimiento administrativo resguardando la imagen de las partes, la confidencialidad de los hechos y los principios que rigen la actividad administrativa.

@@ -1,0 +1,1 @@
+Artículo 35.-Contra la resolución final de la Administración, cabrá recurso de revocatoria con apelación en subsidio ante la Junta Directiva, que deberá ser interpuesto en el término de cinco días hábiles contados a partir de la notificación.

@@ -1,0 +1,1 @@
+Artículo 69.-En caso de que el trabajador contrajere matrimonio, o le sobreviniere el fallecimiento de alguno de sus padres, hijos. hermanos o cónyuge, la institución le concederá licencia con goce de salario por una semana.

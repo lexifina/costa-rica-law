@@ -1,0 +1,2 @@
+Artículo 19.-Los trabajadores gozarán sin interrupción del período de vacaciones. Excepcionalmente podrá dividirse en dos períodos como máximo, cuando existiere convenio de las partes al respecto y se tratare de labores de Índole tan especial que no permitieren una ausencia prolongada del servidor.
+Tampoco podrá acumularse salvo por una sola vez, cuando el trabajador desempeñe labores técnicas, de confianza u otras análogas, que hagan difícil su reemplazo.
