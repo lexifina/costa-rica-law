@@ -1,18 +1,7 @@
-ARTICULO 258.- Prórroga del plazo de prisión preventiva
-A pedido del Ministerio Público, el plazo previsto en el artículo
-anterior podrá ser prorrogado por el Tribunal Superior de Casación Penal,
-hasta por un año más, siempre que fije el tiempo concreto de la prórroga.
-En este caso, el tribunal deberá indicar las medidas necesarias para
-acelerar el trámite del procedimiento. Si se ha dictado sentencia
-condenatoria, los plazos podrán prorrogarse por seis meses más. Vencidos
-esos plazos, no se podrá acordar una nueva ampliación al tiempo de la
-prisión preventiva, salvo lo dispuesto en el párrafo final de este
-artículo, para asegurar la realización del debate o de un acto particular,
-comprobar la sospecha de fuga, o impedir la obstaculización de la
-averiguación de la verdad o la reincidencia, casos en los que la privación
-de libertad no podrá exceder del tiempo absolutamente necesario para
-cumplir la finalidad de la disposición.
-La Sala o el Tribunal de Casación Penal, excepcionalmente y de
-oficio, podrán autorizar una prórroga de la prisión preventiva más allá de
-los plazos anteriores y hasta por seis meses más, cuando dispongan el
-reenvío a un nuevo juicio.
+ARTICULO 258.-
+Prórroga del plazo de prisión preventiva
+A pedido del Ministerio Público, el plazo previsto en el artículo anterior podrá ser prorrogado por el Tribunal de Casación Penal, hasta por un año más, siempre que fije el tiempo concreto de la prórroga. En este caso, el tribunal deberá indicar las medidas necesarias para acelerar el trámite del procedimiento.
+Si se dicta sentencia condenatoria que imponga pena privativa de libertad, el plazo de prisión preventiva podrá ser prorrogado mediante resolución fundada, por seis meses más. Esta última prórroga se sumará a los plazos de prisión preventiva señalados en el artículo anterior y en el párrafo primero de esta norma.
+Vencidos esos plazos, no podrá acordarse una nueva ampliación del tiempo de la prisión preventiva, salvo lo dispuesto en el párrafo final de este artículo, para asegurar la realización del debate o de un acto particular, comprobar la sospecha de fuga o impedir la obstaculización de la averiguación de la verdad o la reincidencia. En tales casos, la privación de libertad no podrá exceder del tiempo absolutamente necesario para cumplir la finalidad de la disposición.
+La Sala Tercera o el Tribunal de Casación, excepcionalmente y de oficio, podrán autorizar una prórroga de la prisión preventiva superior a los plazos anteriores y hasta por seis meses más, cuando dispongan el reenvío a un nuevo juicio.
+(Así reformado por el inciso e) del artículo 1 de la Ley N° 8146 de 30 de octubre del 2001)
