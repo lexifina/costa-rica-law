@@ -1,0 +1,1 @@
+Art. 11.-La Aduana de Carrillo será la Aduana de registro para todas las mercaderías que allí entren destinadas al consumo interior de la República, y se aplicarán en lo conducente las disposiciones del Reglamento de bodegas de 15 de noviembre de 1873.

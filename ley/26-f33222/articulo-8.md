@@ -1,0 +1,1 @@
+Art. 8°-Las mercaderías que por cualquiera circunstancia no entren á su desembarque en los carros destinados á su trasporte, serán estivados en la plataforma cubierta del muelle para ser remitidas a su destino.
