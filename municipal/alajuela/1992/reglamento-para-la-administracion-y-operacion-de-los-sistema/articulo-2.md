@@ -1,0 +1,1 @@
+Artículo 2°.—Para los efectos de cobro de esta tasa se divide el distrito primero de Alajuela en Zona Céntrica y Zona No Céntrica. La Zona Céntrica quedará comprendida entre calles 3a y 10, avenidas O y 6° y de avenida O a la 7a. La Zona no céntrica estará comprendida por las calles y avenidas inmediatamente siguientes de la zona céntrica y hasta los límites de la ciudad.

@@ -1,0 +1,1 @@
+Artículo 33°.—Aquellos permisos de patentes que se otorguen para ventas ambulantes en las zonas de estacionamiento autorizado deberán obtener previo visto bueno del Depto. de Estacionamiento Autorizado.

@@ -1,0 +1,1 @@
+Artículo 16°.—El personal del Depto.de Estacionamiento Autorizado por medio Inspectores tendrán a su cargo la vigilancia de este Reglamento para el estacionamiento autorizado en el cantón Central de Alajuela, los que están obligados a cumplir ir por la aplicación del mismo.

@@ -1,0 +1,1 @@
+Artículo 14°.— El gravamen a que se refiere el artículo 13 se anotará mediante oficio que será enviado por el Departamento de Estacionamiento Autorizado al Registro Público de la Propiedad de Vehículos. La cancelación total de estas multas será requisito indispensable para retirar los derechos de circulación cada año a los que acompaña correspondientes comprobantes de infracción.

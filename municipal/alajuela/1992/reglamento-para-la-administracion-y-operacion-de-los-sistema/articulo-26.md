@@ -1,0 +1,1 @@
+Artículo 26°.—Las zonas oficiales y paradas serán demarcadas bajo el criterio técnico de la Ingeniería de Tránsito del Ministerio de Obras Públicas y Transportes, o acuerdo de la Municipalidad de Alajuela.

@@ -1,0 +1,1 @@
+Articulo 8°.—El conductor que estacione su vehículo en una zona amarilla dentro de la zona céntrica y cuyo frente está regulado para estacionamiento autorizado que dará sujeto a la multa correspondiente.

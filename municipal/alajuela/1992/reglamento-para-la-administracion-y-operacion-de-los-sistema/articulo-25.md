@@ -1,0 +1,1 @@
+Artículo 25°.—Las zonas o espacios para espacios permanentes podrán adjudicarse por plazo de seis meses a un año. La dependencia responsable podrá a su criterio prorrogar el plazo de adjudicación o renunciarlo si lo considera conveniente.

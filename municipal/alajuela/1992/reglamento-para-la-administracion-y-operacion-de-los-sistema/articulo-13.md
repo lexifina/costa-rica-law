@@ -1,0 +1,5 @@
+Artículo 13°.—Será sancionado el conductor del vehículo que:
+a) Estacione su vehículo en zona de estacionamiento autorizado sin hacer uso de las tarjetas respectivas.
+b) Mantenga estacionado el vehículo después de vencido el tiempo por el cual pagó.
+c) Haga caso omiso a las indicaciones del artículo 11 del presente Reglamentos
+d) No marque la tarjeta debidamente. La sanción implica el pago de una multa correspondiente a diez veces el valor de la tarjeta por hora, la que podrá ser cancelada dentro de las 48 horas siguientes en la Tesorería Municipal en cualquier agencia del Banco Nacional de Costa Rica en Alajuela, o en la forma y lugar que en el futuro la Municipalidad designe. Si no hiciera la cancelación dentro del plazo dicho, la multa será impuesta por la Tesorería Municipal y tendrá un recargo mensual del 2% mensual que no podrá en ningún caso exceder del 24% del monto adeudado. La multa o acumulación de multas no cancelar por un período de un año o más constituirá gravámenes sobre el vehículo con el cual se cometió la infracción el que responderá además por los gastos que demande la eventual acción judicial.
