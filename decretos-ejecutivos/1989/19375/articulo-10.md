@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Los egresos que se realicen por Caja Chica se tramitarán a través de la fórmula denominada Vale Provisional de Caja Chica, que prepara el jefe del departamento de contabilidad en original y una copia.

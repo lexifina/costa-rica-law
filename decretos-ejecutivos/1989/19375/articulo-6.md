@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-Cualquier solicitud de dinero de este fondo para sufragar gastos de viaje requiere de las firmas del solicitante del jefe del departamento y la aprobación del superior jerárquico inmediato.

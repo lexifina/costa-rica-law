@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Los jefes están obligados a supervisar que los fondos se destinen a lo indicado por este Reglamento y a tomar las medidas de control necesarias para que no se dé‚ ningún abuso en la utilización de la misma, calificándose su incumplimiento como falta grave a los fines disciplinarios respectivos.

@@ -1,0 +1,1 @@
+ARTÍCULO 23.-Aquellos gastos realizados sin previa autorización, así como aquellos acordados para la compra de materiales que existan en bodega y aquellas realizadas en contravención de las disposiciones de este Reglamento serán declaradas nulas.

@@ -1,0 +1,2 @@
+ARTÍCULO 4°.-El monto de Caja Chica de fondo fijo para el servicio de la Dirección General de Migración y Extranjería, será de ¢ 30.000,00 (treinta mil colones).
+El Director General podrá realizar modificaciones futuras al monto fijo autorizado, lo cual debe estar respaldado en un estudio de necesidades realizado por los Departamentos de Contabilidad y de Proveeduría, contando además con el visto bueno y recomendación de la Dirección Administrativa.

@@ -1,0 +1,1 @@
+ARTÍCULO 18.-Es prohibido el fraccionamiento del pago de una compra para poder tramitarlo por caja chica, dicho acto acarrear responsabilidad disciplinaria para el funcionario que lo realice así como para el que lo consienta.

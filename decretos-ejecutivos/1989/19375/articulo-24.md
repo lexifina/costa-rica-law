@@ -1,0 +1,1 @@
+ARTÍCULO 24.-Los encargados del fondo deben denunciar ante la respectiva jefatura, ante la Dirección Administrativa y ante la Auditoría Interna, cualquier infracción o anomalía que se presente, asimismo está obligado a mantener el m s eficiente servicio de la Caja Chica.

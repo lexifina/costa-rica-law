@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Podrán autorizarse desembolsos de dinero en calidad de anticipos cuando por casos excepcionales de emergencia o circunstancias apremiantes deban atenderse compras o pagos de servicios urgentes. Esta autorización debe provenir del Director Administrativo y no podrá exceder de ¢ 2.000,00 (dos mil colones).

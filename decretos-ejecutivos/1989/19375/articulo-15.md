@@ -1,0 +1,4 @@
+ARTÍCULO 15.-El procedimiento de solicitud de dinero de Caja Chica es el siguiente:
+La solicitud debe ser presentada ante el departamento de contabilidad con original y copia, la cual debe verificar si cumple con lo establecido en los artículos 2° y 5° de este Reglamento.
+Posteriormente el jefe de contabilidad consigna en el Vale Provisional de Caja Chica el Código de Presupuesto, la firma y sello en todos los tantos; posteriormente recoge la firma de la persona que retira el dinero para realizar la compra, se reserva el original del vale provisional de Caja Chica y entrega de copia de solicitante.
+Una vez hecha la compra, el solicitante remitirá al jefe del departamento de contabilidad, los justificantes originales cancelados con la firma y sello del jefe del departamento que lo solicitó y posteriormente el jefe de contabilidad estampará el sello cancelado en la factura.

@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Toda solicitud realizada por Caja Chica deber contar con la firma de aprobación del jefe del departamento solicitante, y en aquellos casos en que lo requerido sea para compra de bienes, necesita además de la firma del jefe de proveeduría haciendo constar la no existencia en bodega. Lo anterior debe ser respaldado con la correspondiente justificante.

@@ -1,0 +1,1 @@
+ARTÍCULO 25.-Todos los servidores de la Dirección General de Migración y Extranjería, están obligados a acatar las disposiciones, cualquier infracción ser catalogada como falta de servicio y se sancionará de acuerdo con el Reglamento Interno de Trabajo del Ministerio de Gobernación y Policía y el Reglamento del Estatuto de Servicio Civil.

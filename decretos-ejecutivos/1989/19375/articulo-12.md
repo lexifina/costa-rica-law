@@ -1,0 +1,1 @@
+ARTÍCULO 12.-En los casos extraordinarios en que se necesite el desembolso de dinero mayor al indicado en el artículo 5° se debe contar con la autorización de la Dirección Administrativa el cual no podrá exceder de ¢ 6.000,00 (seis mil colones).
