@@ -1,2 +1,0 @@
-Artículo 2º-Esta Comisión estará integrada por representantes de la Oficina de Planificación Nacional, el Ministerio de Agricultura y Ganadería, el Instituto Costarricense de Electricidad, el Servicio Nacional de Electricidad, y del Sector Privado, (*) el Instituto de Tierras y Colonización. (ITCO). Los representantes no devengarán dietas por su labor en esta Comisión.
-(*)(Así adicionado por el artículo 1º del decreto ejecutivo Nº 3574 del 8 de marzo de 1974)

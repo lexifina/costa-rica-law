@@ -1,1 +1,0 @@
-Artículo 5º-La Comisión o el SNE, en su caso, podrán obtener la colaboración de técnicos, auxiliares, equipo, etc. de los organismos representados en ella, así como la información que ellos tengan relacionada con la zona del proyecto de riego.
