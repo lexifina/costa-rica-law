@@ -1,0 +1,1 @@
+Artículo 3°-Por todo trabajo no cubierto por las disposiciones de los artículos 1° y 2° de este Decreto, todo patrono pagará un salario no menor de un mil quinientos setenta y nueve colones (¢1.579,00), por jornada ordinaria.¢ 1.579,00
