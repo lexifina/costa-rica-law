@@ -1,0 +1,1 @@
+Artículo 23.- Podrá decretar el arresto de uno ó muchos Ciudadanos quando por ellos la tranquilidad publica esté en peligro, ó amenace al Estado algun riesgo proximo, debiendo avisar inmediatamente al Congreso, y poner al arrestado dentro de 48 horas á disposicion de su Juez competente con la sumaria informacion que presisamente se le halla instruido.
