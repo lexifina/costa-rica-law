@@ -1,5 +1,7 @@
 Artículo 2º—Fabricantes de bebidas alcohólicas. En la producción nacional, se consideran fabricantes de bebidas alcohólicas los comprendidos en las siguientes clasificaciones:
 a) Elaboradores propios de bebidas alcohólicas, los cuales a partir de diferentes materias primas e insumos obtienen el producto final.
 b) Mezcladores de bebidas alcohólicas, los cuales a partir de productos finales ya elaborados, pero que por su grado de contenido alcohólico y por norma de salud, arancelariamente clasifican como materia prima, y que por lo tanto requieren un proceso adicional para bajar ese grado de contenido alcohólico y hacerlo apto para el consumo humano.
+Asimismo, los mezclados de bebidas alcohólicas que a partir de productos finales ya elaborados, aptos para el consumo final, realizan un proceso adicional para modificarle el grado alcohólico volumétrico.
+(Así adicionado el párrafo segundo por el artículo 1 del Decreto Ejecutivo N° 30242 de 11 de marzo del 2002)
 c) Envasadores de bebidas alcohólicas, los cuales a partir de la obtención a granel de productos finales ya elaborados, proceden a envasarlos para su respectiva comercialización. Los envasadores corresponden a aquellos fabricantes que son propietarios del producto final obtenido a granel, indistintamente de que el proceso de envasado sea realizado por ellos mismos o prestado por terceros.
 La condición de fabricante puede darse a través de cada una de las clasificaciones anteriormente citadas, o bien por la combinación de estas.
