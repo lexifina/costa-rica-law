@@ -1,0 +1,1 @@
+Artículo 88.- Todo proyecto de parcelación privada requerirá ser aprobado previamente por el Instituto, para gozar de los beneficios que esta ley establece para la parcelación y colonización oficiales.

@@ -1,0 +1,1 @@
+Artículo 29.- Cuando alguno de los asistentes tuviere interés personal en cualquier asunto que se deba conocer en la sesión, o lo tuvieren sus socios o parientes dentro del tercer grado de consanguinidad o afinidad inclusive, deberá retirarse mientras se discute y vota el asunto.

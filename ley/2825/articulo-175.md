@@ -1,0 +1,1 @@
+Artículo 175.-Todo propietario de tierras colindantes con reservas nacionales está obligado a tener cercado su inmueble, o hecha su delimitación con carriles o mojones visibles en toda la extensión de la colindancia aludida, de modo que los mismos puedan en todo momento ser claramente reconocidos para establecer con facilidad la línea divisoria.

@@ -1,0 +1,1 @@
+Artículo 56.- Cuando el Instituto lo considere conveniente, para el mejor cumplimiento de los fines de esta ley, podrá explotar directamente y en forma temporal, sus propiedades, o bien darlas en arriendo.

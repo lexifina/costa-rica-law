@@ -1,0 +1,1 @@
+Artículo 127.- Cuando el Instituto intervenga en la solución de conflictos suscitados entre propietarios y poseedores en precario, dará preferencia a los casos de poseedores que carecían de tierras y de recursos económicos antes de la ocupación, y cuyo único medio de vida siga siendo la explotación de la parcela por ellos ocupada.

@@ -1,0 +1,1 @@
+Artículo 98.- Obtenidas las referencias a que se contraen los artículos anteriores, el Instituto convocará a propietarios y ocupantes a una comparecencia, con el objeto de promover un arreglo directo entre las partes a base de la compra-venta de las parcelas ocupadas, en las condiciones mínimas de pago que más adelante se dirán.

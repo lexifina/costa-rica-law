@@ -1,0 +1,1 @@
+Artículo 72.- Como medio de mejorar la economía campesina, se pueden organizar las parcelas en forma de granjas mixtas, por lo que el Instituto proporcionará a los beneficiarios, como ayuda de instalación, los medios para adquirir en cantidades adecuadas los ganados, aves de corral, y otras clases de animales que favorezcan la realización de este fin.

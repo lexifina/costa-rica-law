@@ -1,0 +1,1 @@
+Artículo 117.- Los derechos que le sobraren al gestionante, después de haber recibido el traspaso de la finca a que se refiere el artículo anterior, le serán cubiertos conforme a lo previsto en los artículos 108 y siguientes de esta ley.

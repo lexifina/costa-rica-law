@@ -1,0 +1,1 @@
+Artículo 3º.- De acuerdo con lo expuesto en el artículo 1º, la tierra ha de constituir, para el hombre que la trabaja, la garantía de su bienestar económico, de su libertad y de su dignidad y, por lo tanto, base del bienestar, de la libertad y de la dignidad de la Nación.

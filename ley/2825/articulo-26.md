@@ -1,0 +1,1 @@
+Artículo 26. -La Junta Directiva elegirá de su seno, por mayoría de votos, un Presidente y un Vicepresidente, quienes durarán un año en sus funciones, pudiendo ser reelecto. El Ministro integrante de la Junta no podrá ser electo estos cargos.

@@ -1,0 +1,12 @@
+Artículo 68.-En el contrato que se realice con el parcelero y en el título que se le entregue, se harán constar las estipulaciones siguientes:
+1) Que antes de haber cancelado sus obligaciones con el Instituto, el parcelero no podrá traspasar el dominio de su predio, gravarlo, arrendarlo, subdividirlo, ni gravar las cosechas, semillas, animales, enseres, útiles o equipos necesarios para la explotación de la parcela, sin autorización del Instituto;
+2) Que después de haberterminado sus obligaciones con el Instituto, cualquier enajenación de parcela que, a juicio de esa Institución, pueda producir la concentración o subdivisión excesiva de la propiedad, dará derecho al Instituto para readquirir la o las parcelas que se ofrezcan en venta, por el precio que fijen los peritos nombrados de conformidad con las disposiciones de esta ley;
+3) Que las parcelas, cosechas, semillas, animales, enseres, útiles y equipo necesario para la explotación de las parcelas, no podrán ser objeto de medidas judiciales, preventivas o ejecutivas, por terceros o acreedores, antes de que los parceleros hayan cancelado sus obligaciones con el Instituto, salvo que tales acreedores lo sean por haber suplido créditos debidamente autorizados por éste;
+4) Que el Instituto deberá, de conformidad con el procedimiento estipulado en el Capítulo de Tribunales de Tierras, revocar o extinguir la adjudicación por los siguientes motivos:
+a) Por destinar la parcela a fines distintos de los previstos en la presente ley;
+b) Por el abandono injustificado de la parcela o de la familia. En este último caso, el Instituto le adjudicará la parcela a la esposa, a la o las personas que hayan convivido permanentemente con el parcelero y que demuestren mayor capacidad, siempre que reunan las condiciones estipuladas en el artículo 62;
+c) Por negligencia o ineptitud manifiesta del adjudicatario en la explotación de la parcela o conservación de las construcciones, mejoras o elementos de trabajo que se le hayan confiado o pertenezcan a la organización;
+d) Por comprobarse la explotación indirecta de la explotación, salvo las excepciones contempladas;
+e) Por incumplimiento, sin causa justificada, de las obligaciones de pago contraídas con el Instituto; y
+f) Por falta reiterada a las normas legales para la conservación de los recursos naturales.
+Con excepción del caso b) y antes de la revocatoria o extinción del derecho, debe proceder una amonestación que no haya sido atendida por el adjudicatario.

@@ -1,0 +1,1 @@
+Artículo 37.- Los miembros de la Junta Directiva, el Gerente, el Subgerente y el Auditor del Instituto que ejecutaren o permitieren operaciones que fueren contrarias a la ley o a los reglamentos aplicables, responderán con sus bienes de la pérdidas que por tales actos se causen, sin perjuicio de las demás penas que les correspondan.

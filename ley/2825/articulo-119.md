@@ -1,0 +1,1 @@
+Artículo 119.- El Instituto podrá autorizar el traspaso al gestionante de aquella extensión de terreno que juzgue necesaria para constituir una unidad económica familiar, aún cuando no estuviere totalmente sometida a explotación agrícola.

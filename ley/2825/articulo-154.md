@@ -1,0 +1,1 @@
+Artículo 154.- No serán objeto de expropiación las tierras en que existan explotaciones que por su importancia técnica o económica, o por la magnitud de las mejoras hechas, puedan considerarse ejemplares, o que se estime de conveniencia para el país conservar en su estado actual.

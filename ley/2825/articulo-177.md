@@ -1,0 +1,3 @@
+Artículo 177.-De las resoluciones dictadas por el Instituto a que se refieren los artículos 66, 166 y 168, cabrá recurso de apelación para ante la Sala Segunda Civil de la Corte Suprema de Justicia, la que resolverá en definitiva dentro de los quince días siguientes.
+La apelación deberá interponerse dentro de los cinco días siguientes a la notificación de lo resuelto por el Instituto.
+(Nota: El párrafo final de este artículo, contenido en el texto original de la ley, fue derogado por el artículo 2º de la ley Nº 3336 del 31 de julio de 1964. Asimismo, los artículos 166 y 168 a que este artículo se refiere, fueron derogados por el artículo 109 de la ley Nº 4465 de 25 de noviembre de 1969).

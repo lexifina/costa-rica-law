@@ -1,0 +1,1 @@
+Artículo 14.- (Transitorio) El Instituto deberá someter a la consideración de la Asamblea Legislativa, en el transcurso del primer año de vigencia de la presente ley, un proyecto en relación con las leyes cuyos efectos por ésta se suspendan.

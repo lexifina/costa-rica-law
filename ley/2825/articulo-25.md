@@ -1,0 +1,1 @@
+Artículo 25.- La Junta Directiva celebrará sesiones con asistencia de por lo menos tres de sus componentes y las resoluciones se tomarán, en todo caso, por los votos de tres de sus integrantes, salvados los casos en que esta ley o sus reglamentos exijan mayor número de votos.

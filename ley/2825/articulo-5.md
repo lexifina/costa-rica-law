@@ -1,0 +1,2 @@
+Artículo 5º.- El Instituto de Tierras y Colonización procurará evitar el minifundio y la fragmentación agrícolamente irracional de la propiedad rural. Para ese efecto, propondrá a la Asamblea Legislativa las medidas legales pertinentes.
+Asimismo, el Instituto estudiará la posibilidad de sustituir, conforme a los principios y normas de esta ley, por la vía legislativa, las formas indirectas de explotación de la tierra.

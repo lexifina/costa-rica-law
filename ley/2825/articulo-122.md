@@ -1,0 +1,1 @@
+Artículo 122.- Mientras no hayan transcurrido diez años, los terrenos que en virtud de esta ley adquieran los propietarios de derechos a aplicar, sólo podrán ser vendidos, gravados, arrendados o subdivididos, con la aprobación previa del Instituto. Además, el Instituto, en caso de venta, tendrá prioridad.
