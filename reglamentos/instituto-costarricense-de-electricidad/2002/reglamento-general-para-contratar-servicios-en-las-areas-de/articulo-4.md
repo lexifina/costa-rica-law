@@ -1,0 +1,1 @@
+Artículo 4º—Límites económicos para las contrataciones autorizadas al amparo de este Reglamento. Los límites económicos para las contrataciones que se realicen por medio de los procedimientos regulados en este Reglamento, no podrán exceder, individualmente el monto establecido para la Licitación Pública.

@@ -1,0 +1,5 @@
+Artículo 8º—Recursos.
+8.1 Las decisiones de la Administración, tanto respecto a la inclusión de los oferentes en el Registro de Elegibles, de la selección final del adjudicatario, así como del pliego de condiciones para las respectivas contrataciones, tendrán los recursos de revocatoria, apelación y objeción por quienes tengan interés legítimo para ello, de acuerdo a los plazos establecidos en la Ley de Contratación Administrativa y su Reglamento.
+8.2 El recurso de revocatoria se podrá interponer, ante la Administración, en aquellos contratos donde el monto sea inferior a los veinticinco millones de colones.
+8.3 El recurso de apelación se podrá interponer, ante la Contraloría General de la República, en aquellos contratos donde el monto sea igual o superior a los veinticinco millones de colones.
+8.4 El recurso de objeción se podrá interponer, ante la Administración, para revisar el pliego de condiciones para las respectivas contrataciones que se vayan a realizar al amparo del Registro de Elegibles.
