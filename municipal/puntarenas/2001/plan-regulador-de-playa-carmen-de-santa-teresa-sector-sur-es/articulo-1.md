@@ -1,0 +1,14 @@
+MUNICIPALIDAD DE PUNTARENAS
+1°-La Municipalidad de Puntarenas, comunica que en sesión ordinaria N° 269 del 5 de marzo del 2001.
+La aprobación y puesta en ejecución del Plan Regulador de Mal País de Cóbano de Puntarenas, una vez cumplidos todos los requisitos establecidos en la Ley N° 6043 Y su Reglamento.
+2°-La Municipalidad de Puntarenas comunica que en sesión extraordinaria N° 280 del 17 de abril del 200 1, artículo 3°, inciso O.
+La aprobación y puesta en ejecución ,del Plan Regulador de Playa Carmen de Santa Teresa Sector sur este, Cóbano de- Puntarenas, entre coordenadas Lambert (A)-N177190 / E-410650 y (B)-NI75985 /E10915, una vez cumplidos todos los requisitos establecidos en la Ley 6043 y su Reglamento.
+El Concejo Municipal de Puntarenas, en sesión extraordinaria N° 1 280, celebrada el día 17 de abril del 2001, según acuerdo N° 3, inciso O, acordó: Aprobar el Plan Regulador de Playa Carmen de Santa Teresa Sector sur este, Cóbano de Puntarenas.
+La Municipalidad del cantón de Puntarenas, avisa por este medio a los ocupantes del sector Costero de Playa El Carmen y al público en general, la adopción del Reglamento de Zonificación para este sector: costero, entre los mojones N° 37 + 20 metros al mojón SO que consta de los siguientes artículos:
+REGLAMENTO DE ZONIFICACIÓN
+Artículo 1°-Establecimiento del reglamento y objetivos. La Municipalidad de Puntarenas, atendiendo a las disposiciones de la Ley 6043 sobre la Zona Marítimo Terrestre y reconociendo la necesidad de ordenar el desarrollo de los litorales que forman parte del Cantón, dicta el presente "Reglamento de Zonificación" que será aplicable a la Zona Marítimo Terrestre, del sector costero sur-este Playa Carmen, del mojón 37 + 20 metros al mojón SO, localizados en la Hoja Cabuya (1 :50.000) del Instituto Geográfico Nacional; aproximadamente entre las Coordenadas Lamberth: 178.825N - 409.870E Y 178.240N - 41O.330E, respectivamente. Forman parte de este Reglamento los mapas Nos. 20 y 21, en los cuales se presentan las zonas contempladas y la vialidad. La zonificación tiene como objetivo central, orientar el desarrollo espacial del área en mención a fin de:
+a) Definir el modelo del desarrollo turístico acorde con las condiciones físico-naturales del área, mediante adecuadas pautas de diseño, manejo, considerando usos de protección, alojamiento, alimentación y otros complementarios.
+b) Proteger los recursos naturales, mediante un desarrollo sostenible que fomente el uso racional de los mismos.
+c) Favorecer la salud, la economía y el bienestar de la población nacional y extranjera; tanto local como visitante.
+d) Establecer una política de desarrollo físico que, partiendo de las condiciones del terreno, le dé el uso más adecuado y que tome en consideración las condiciones paisajísticas del área.
+e) Lograr el cumplimiento de las normas y requerimientos de la Ley 6043 y su reglamento, en lo relacionado al uso del suelo en el sector costero.
