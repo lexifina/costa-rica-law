@@ -1,15 +1,10 @@
-ARTÖCULO 10.-Funciones del Departamento de Compras al
-Exterior
+Artículo 10.-Funciones del Departamento de Compras al Exterior
 Corresponde al Departamento de Compras al Exterior:
-a) Programar, ejecutar, dirigir y controlar los tr mites
-atinentes a
-las contrataciones administrativas que se efect£an con
-proveedores del
+a) Programar, ejecutar, dirigir y controlar los trámites atinentes a
+las contrataciones administrativas que se efectúan con proveedores del
 extranjero;
-b) Gestionar ante el Banco Central las operaciones referentes
-a la
-apertura de las Cartas de Cr‚dito y pago de cobranzas; y
-c) Atender la gesti¢n para la exoneraci¢n de impuestos y
-derechos de
-aduana de los bienes de importaci¢n consignados a la Proveedur¡a
+b) Gestionar ante el Banco Central las operaciones referentes a la
+apertura de las Cartas de Crédito y pago de cobranzas; y
+c) Atender la gestión para la exoneración de impuestos y derechos de
+aduana de los bienes de importación consignados a la Proveeduría
 Nacional.

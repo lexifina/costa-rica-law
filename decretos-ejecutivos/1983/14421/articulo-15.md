@@ -1,2 +1,1 @@
-ARTÖCULO 15.-Rige a partir de su publicaci¢n.
-
+Artículo 15.-Rige a partir de su publicación.

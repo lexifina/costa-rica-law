@@ -14,3 +14,4 @@ Reglamento Proveeduría Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-20 | la propia norma |
+| 2 | 1983-04-20 | Decreto Ejecutivo 21571 (1992-09-08) |
