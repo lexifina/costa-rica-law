@@ -1,0 +1,3 @@
+La Junta Directiva del Instituto Nacional de Fomento Cooperativo, acordó en la Sesión 3.206, Artículo único, inciso 2, celebrada el 2 de diciembre del presente año y que a la letra dice:
+"Se aprueba la modificación integral al Reglamento General de Créditos y Avales del INFOCOOP, quedando de la siguiente forma:
+Artículo 1º—El Instituto Nacional de Fomento Cooperativo -INFOCOOP- otorgará financiamiento al sector cooperativo para articular el proceso de desarrollo del mismo, de acuerdo a lo dispuesto en el artículo 157 , inciso d) de la ley Nº 5185 del 20 de febrero de 1973 y sus reformas y de acuerdo a las políticas institucionales de financiamiento vigentes.
