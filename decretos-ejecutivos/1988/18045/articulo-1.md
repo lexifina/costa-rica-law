@@ -9,3 +9,5 @@ Considerando:
 Por tanto,
 DECRETAN:
 ARTÍCULO 1°.-Los porcentajes que se reconocerán al personal técnico, técnico-profesional y profesional que se desempeñan en el Registro Nacional, pagados con fondos del Presupuesto Nacional o de la Junta Administrativa de ese Registro, serán los mismos establecidos en el artículo 1° de la ley N° 5867 de 15 de diciembre de 1985 y sus reformas.
+La compensación se hará de acuerdo con el requisito primario del puesto que desempeñen.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 18671 del 30 de noviembre de 1988)

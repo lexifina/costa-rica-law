@@ -14,3 +14,4 @@ Los porcentajes que se reconocerán al personal técnico, técnico-profesional y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-01-01 | la propia norma |
+| 2 | 1988-11-30 | Decreto Ejecutivo 18671 (1988-11-30) |
