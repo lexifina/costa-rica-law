@@ -21,6 +21,23 @@ Queroseno | 23,00
 Diesel pesado (Gasóleo) | 15,00
 Nafta pesada | 11,00
 Nafta liviana | 11,00
+(NOTA: Los montos aquí establecidos fueron modificados por el artículo 1 del Decreto Ejecutivo N° 29644 de 10 de julio del 2001 de la siguiente manera:
+Tipo de combustible por litro | Impuesto en colones (¢)
+|
+Gasolina regular | 86,50
+Gasolina súper | 89,75
+Diesel | 50,75
+Asfalto | 17,25
+Emulsión Asfáltica | 13,00
+Bunker | 8,75
+LPG | 17,25
+Jet Fuel A1 | 51,75
+Av Gas | 86,25
+Queroseno | 24,75
+Diesel pesado (Gasóleo) | 16,25
+Nafta pesada | 11,75
+Nafta liviana | 11,75
+)
 Exceptúase del pago de este impuesto el producto destinado a abastecer las líneas aéreas comerciales y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con lo establecido en la Ley Nº 7384.
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
 En la producción nacional y en la importación, es contribuyente de este impuesto la Refinadora Costarricense de Petróleo, Sociedad Anónima (RECOPE), ya sea en su condición de productora o de importadora.
