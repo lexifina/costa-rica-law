@@ -1,0 +1,3 @@
+Artículo 32.—Robo de embarcación o equipo de navegación
+En caso de robo de alguna embarcación de la Institución, o de su equipo, el navegante o el responsable deberá informar de inmediato al INCOPESCA, Departamento de Servicios Generales y presentar la denuncia respectiva ante el Organismo de Investigación Judicial. Así mismo deberá presentar a dicho Departamento, copia de la denuncia con el forme correspondiente de los hechos, dentro de un plazo máximo de dos días hábiles a partir de que ocurrió el robo.
+El Departamento de Servicios Generales deberá levantar una sumaria en investigación de los hechos que dieron origen al robo y de determinarse responsabilidad del funcionario se deberá proceder a la recuperación del valor de reposición de los bienes.

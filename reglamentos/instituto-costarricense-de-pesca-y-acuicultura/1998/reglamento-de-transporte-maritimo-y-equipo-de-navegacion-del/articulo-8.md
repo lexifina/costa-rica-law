@@ -1,0 +1,1 @@
+Artículo 8°—El Departamento de Servicios Generales deberá registrar el uso de combustible por embarcación. Dicho registro se realizará a través de la entrega de cupones de consumo de combustible y el control por medio del formulario “Reporte de viaje”.

@@ -1,0 +1,1 @@
+Artículo 43.—El Departamento de Servicios Generales deberá velar por que las embarcaciones institucionales cuenten con las pólizas respectivas y se encuentren al día, en caso de no contar con ellas, deberá gestionarlas.

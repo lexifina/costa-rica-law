@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento de Servicios Generales establecerá con base en la vida útil esperada de cada embarcación, el respectivo programa de mantenimiento preventivo. Así como el mantenimiento y reparaciones menores de los motores fuera de borda.

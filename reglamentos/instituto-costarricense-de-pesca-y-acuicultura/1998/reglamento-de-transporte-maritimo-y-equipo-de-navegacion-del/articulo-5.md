@@ -1,0 +1,1 @@
+Artículo 5°—Todas las embarcaciones, que pertenezcan a convenios nacionales, internacionales o de programas especiales en los cuales participe el INCOPESCA se regirán por las regulaciones que se establezcan en dichos acuerdos o instrumentos legales, quedando los funcionarios del Instituto que participen en ellos, sometidos a las regulaciones del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 9°—Una vez concluida la misión que motivó el servicio de transporte, la embarcación deberá ser atracada en las instalaciones del Instituto, ubicadas en la terminal pesquera u otra que se encuentre debidamente autorizada para su custodia.
+Para las embarcaciones asignadas a las Direcciones u Oficinas Regionales deberán ser atracadas o guardadas en lugar seguro, las mismas estarán bajo la responsabilidad de la Jefatura respectiva, sin perjuicio del control y vigilancia que efectúe el Departamento de Servicios Generales en cumplimiento de sus funciones.

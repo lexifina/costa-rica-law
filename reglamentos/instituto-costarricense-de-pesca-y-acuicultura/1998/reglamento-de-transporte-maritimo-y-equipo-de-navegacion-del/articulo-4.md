@@ -1,0 +1,1 @@
+Artículo 4°—Todas las embarcaciones del INCOPESCA deberán usar los distintivos de la Institución y cumplir con los controles, roles y requerimientos establecidos en el presente Reglamento y las regulaciones nacionales e institucionales al respecto. Además llevarán el logotipo de la Institución, el nombre y el número de matrícula y certificado de navegabilidad.

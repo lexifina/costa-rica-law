@@ -1,0 +1,2 @@
+Artículo 19.—Antes de proceder al envío de embarcaciones o de un motor fuera de borda a un taller particular, el encargado de las embarcaciones y de los motores del Instituto, deberá realizar un inventario de las condiciones en que se encuentra y se entrega el activo.
+Cuando el encargado reciba la embarcación reparada deberá valorar las condiciones en que se está recibiendo la embarcación o el motor, para lo cual deberá hacer un informe, recibiendo o devolviendo el activo, según valoración.

@@ -1,0 +1,1 @@
+Artículo 28.—El INCOPESCA procederá a cubrir en su totalidad el monto por concepto de deducible cuando un funcionario en el ejercicio de sus funciones sufra un accidente, siempre y cuando no medie sentencia condenatoria de los Tribunales de Justicia, en que se establezca su responsabilidad en el mismo, en cuyo caso el funcionario pagará el monto de dicho deducible.

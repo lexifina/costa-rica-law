@@ -1,0 +1,1 @@
+Artículo 17.—En caso de fallas imprevistas en el funcionamiento del motor fuera de borda, el encargado o el navegante tendrá la obligación de reportarlo inmediatamente dentro de un plazo máximo de dos días hábiles por escrito e indicar lo que necesite revisión.

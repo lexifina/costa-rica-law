@@ -1,0 +1,2 @@
+Artículo 25°—Es responsabilidad del navegante o el usuario, una vez presentada la declaración del accidente, llevar personalmente al INS, el aviso de accidente.
+Después de presentado el aviso de accidente, deberá presentar la embarcación, al Departamento de Avalúos del Instituto Nacional de Seguros, para la respectiva valoración de los daños. Deberá retirar copia del avalúo y entregarla al Departamento de Servicios Generales para proceder a los trámites pertinentes.

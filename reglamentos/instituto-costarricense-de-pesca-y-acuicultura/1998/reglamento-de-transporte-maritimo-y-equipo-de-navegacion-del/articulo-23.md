@@ -1,0 +1,1 @@
+Artículo 23.—Los navegantes de las embarcaciones institucionales deberán presentar a su superior inmediato un informe semanal completo sobre el recorrido y las giras realizadas en la semana inmediata anterior, y un resumen que deberá aparecer en la Bitácora de la embarcación.

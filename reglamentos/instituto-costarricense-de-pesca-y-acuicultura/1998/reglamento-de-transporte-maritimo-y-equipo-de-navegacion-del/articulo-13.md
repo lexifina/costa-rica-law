@@ -1,0 +1,1 @@
+Artículo 13.—Los funcionarios de la Institución, sean estos navegantes, tripulantes o usuarios, podrán negarse a prestar el servicio sin incurrir en responsabilidad disciplinaria, si por las condiciones evidentes de la embarcación o del equipo de navegación, éstos no reúnen las condiciones aceptables normales para la seguridad de las personas o de las cosas.

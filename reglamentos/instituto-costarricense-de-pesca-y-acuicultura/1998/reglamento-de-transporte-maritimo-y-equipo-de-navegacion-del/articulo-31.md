@@ -1,0 +1,1 @@
+Artículo 31.—Toda documentación relacionada con el accidente deberá ser incluida en el expediente general de la embarcación, en el apartado referente a los “accidentes sufridos por la embarcación”, así como en el registro general de accidentes y en el expediente del navegante.

@@ -1,0 +1,1 @@
+Artículo 37.—Bajo ninguna circunstancia, el guarda podrá facilitar la salida de una embarcación institucional, sin la autorización respectiva (boleta de salida), igualmente, cuando el navegante o usuario llegue bajo los efectos del licor o cualquier otro tipo de droga enervante o estupefaciente, o con el personal no autorizado en la boleta.
