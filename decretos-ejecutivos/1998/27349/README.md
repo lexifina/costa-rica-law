@@ -14,3 +14,4 @@ Reglamento para las Investigaciones en que Participan Seres Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-13 | la propia norma |
+| 2 | 1999-03-24 | Decreto Ejecutivo 27793 (1999-03-24) |
