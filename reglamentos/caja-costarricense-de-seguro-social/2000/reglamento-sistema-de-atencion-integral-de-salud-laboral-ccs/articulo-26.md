@@ -1,1 +1,0 @@
-Artículo 26.—Copias de Recetas de Medicamentos. En caso de pacientes cuyas patologías crónicas requieran de un tratamiento constante, se autoriza al profesional el emitir hasta un número de tres copias de la receta, anotando en la misma la fecha a la cual corresponden.

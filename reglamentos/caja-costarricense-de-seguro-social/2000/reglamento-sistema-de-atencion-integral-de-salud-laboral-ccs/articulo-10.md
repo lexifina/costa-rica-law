@@ -1,2 +1,0 @@
-Artículo 10.—El recurso de apelación lo resolverá la Gerencia División Médica, según se trate de resoluciones dictadas por las Direcciones de Hospitales y Clínicas, dentro de un plazo de veinte días contados a partir del recibo del expediente administrativo, o de que éste se tenga por completo, si hubiere que evacuar nueva prueba para mejor resolver.
-La Gerencia de División Médica dará por agotada la vía administrativa.

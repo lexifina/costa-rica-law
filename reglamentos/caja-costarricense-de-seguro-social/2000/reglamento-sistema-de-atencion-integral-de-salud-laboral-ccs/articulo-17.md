@@ -1,1 +1,0 @@
-Artículo 17.—Obligaciones de la Caja. Brindar a los beneficiarios aquellos servicios de apoyo al diagnóstico y tratamiento que se definen en los artículos posteriores y proporcionar la papelería utilizada por la institución destinada para este fin.

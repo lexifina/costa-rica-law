@@ -1,2 +1,0 @@
-Artículo 16º—Obligaciones de la Empresa. Las empresas adscritas a este sistema proporcionarán la infraestructura y el recurso humano necesario, que asegure la calidad adecuada de los servicios de salud.
-Los profesionales adscritos y las empresas serán responsables del buen uso, de la confidencialidad de la información y de la custodia de la documentación entregada por la Caja Costarricense de Seguro Social (CCSS). A su vez, deben evitar la sustracción de la misma por personas ajenas a su unidad de trabajo.

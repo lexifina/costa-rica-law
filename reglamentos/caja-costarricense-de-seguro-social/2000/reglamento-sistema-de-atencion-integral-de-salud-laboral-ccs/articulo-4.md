@@ -1,1 +1,0 @@
-Artículo 4º—Escogencia de Profesionales. En el Sistema de Atención Integral de Salud Laboral, las empresas libremente escogerán a los profesionales en ciencias médicas, los cuales deberán ser autorizados y acreditados dentro del Sistema por la Dirección Técnica de Servicios de Salud. Sin detrimento de lo anteriormente descrito.

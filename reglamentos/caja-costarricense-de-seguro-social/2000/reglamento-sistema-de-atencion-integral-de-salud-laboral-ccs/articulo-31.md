@@ -1,3 +1,0 @@
-Artículo 31.—Emisión de Informes. Las diferentes empresas remitirán a la Dirección Regional de Servicios Médicos, un informe trimestral en el formulario respectivo, sin detrimento de lo establecido en el artículo anterior.
-La dirección de la unidad a la cual están adscritos él o los proveedores, remitirá un informe ejecutivo y gerencial a la Dirección Técnica de Servicios de Salud, en forma trimestral dentro de los diez primeros días.
-La Oficina de los Sistemas Alternativos de Prestación de Servicios realizará un informe global del comportamiento del Sistema, ante el Consejo Coordinador para la toma de decisiones respectivas. Este informe se realizará en forma trimestral.

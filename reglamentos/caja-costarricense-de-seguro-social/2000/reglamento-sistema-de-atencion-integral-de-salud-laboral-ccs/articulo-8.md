@@ -1,1 +1,0 @@
-Artículo 8º—Los recursos se presentarán por escrito ante el órgano que dictó la resolución o acto recurrido. Bajo pena de inadmisibilidad, deberán ser fundamentados expresando las razones y aportando u ofreciendo las pruebas pertinentes. El escrito deberá señalar lugar para notificaciones.

@@ -1,1 +1,0 @@
-Artículo 7º—Contra el acto final cabrán los recursos de revocatoria y apelación. Estos deberán interponerse dentro de los diez días siguientes al de la notificación. Si dentro de ese plazo el médico o la empresa no recurriere la resolución, ésta cobrará firmeza sin necesidad de hacer pronunciamiento expreso.

@@ -1,5 +1,0 @@
-Artículo 3º—Ingreso al Sistema. Para ingresar al Sistema de Atención Integral de Salud Laboral, la empresa interesada deberá formular la solicitud ante el director de la clínica u hospital de su adscripción, o en la oficina que se asigne, en donde se recibirá la documentación correspondiente y se procederá a la revisión de los parámetros que se establezcan en el instructivo de este sistema.
-Posteriormente, se remitirá la información a la Oficina de los Sistemas Alternativos de Prestación de Servicios, adscrita a la Dirección Técnica de la Gerencia de División Médica para su conocimiento, revisión y presentación al Consejo Coordinador de Servicios Médicos para la debida autorización
-La autorización se divide en dos aspectos:
-· Aceptación de la empresa y acreditación de la misma sobre la base de los parámetros que se establezcan en el instructivo de este sistema.
-· De los profesionales en ciencias médicas mediante la acreditación del profesional. Las solicitudes pueden ser tramitadas en forma independiente.

@@ -1,1 +1,0 @@
-Artículo 9º—El recurso de revocatoria lo resolverá el órgano que dictó el acto, dentro de un plazo de veinte días contados a partir del recibo del expediente administrativo, o de que éste se tenga por completo, si hubiere que evacuar nueva prueba para mejor resolver.

@@ -1,1 +1,0 @@
-Artículo 5º—Terminación de Contrato con Médico. Cuando la empresa de por terminada la contratación con el profesional en ciencias médicas, deberá comunicarlo a la Dirección u oficina respectiva y proponer el nombre del sustituto.
