@@ -14,3 +14,4 @@ Reglamento para la Contratación Directa de servicios u Obras bajo el Sistema de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-19 | la propia norma |
+| 2 | 2004-04-14 | Reglamento 228 (2004-04-14) |

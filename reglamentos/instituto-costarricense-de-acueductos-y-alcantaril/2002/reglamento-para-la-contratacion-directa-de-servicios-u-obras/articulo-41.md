@@ -1,2 +1,3 @@
 Firma de contrato
 Artículo 41.—Cuando proceda realizar un contrato, el plazo para su formalización no será mayor de 5 días hábiles a partir de la firmeza de la adjudicación y será confeccionado por Notarios de AyA; la formalización del contrato no implicará para el contratista pago alguno por concepto de honorarios de Notario, pero deberá aportar el 50% de las Especies Fiscales que se requieran.
+(Aclarado, por acuerdo N° 228 de 14 de abril de 2004, en el "... sentido de que los contratos elaborados por los Notarios de planta del AyA no requieren ser protocolizados, pero sí deberá el Notario dar fe de la autenticidad de las firmas").
