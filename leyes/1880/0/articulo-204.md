@@ -1,0 +1,2 @@
+Artículo 204.
+El que falsificare punzones, cuños ó cuadrados destinados á la fabricación de moneda; punzones, matrices, clisées y planchas ó cualesquiera otros objetos que sirvan para la fabricación de bonos, acciones, obligaciones, cupones de intereses ó de dividendos, ó billetes de banco, cuya emisión haya sido autorizada por la ley; timbres, planchas y cualesquiera otros objetos destinados á la fabricación de papel sellado ó estampillas, ó el que hiciere uso de estos sellos ó planchas falsos, será castigado con presidio interior mayor en sus grados mínimo á medio.

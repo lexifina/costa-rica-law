@@ -1,0 +1,2 @@
+Artículo 208.
+El que falsificare boletas para el trasporte de personas ó cosas, ó para reuniones ó espectáculos públicos, con el prepósito de usarlas ó de circularlas fraudulentamente, y el que á sabiendas de que son falsificadas, las usare ó circulare; el que falsificare el sello, timbre ó marca de una autoridad cualquiera, de un establecimiento privado de banco de industria ó de comercio, ó de un particular, ó hiciere uso de los sellos, timbres ó marcas falsos, sufrirá la pena de presidio interior menor en cualquiera de sus grados.

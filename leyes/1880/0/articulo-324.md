@@ -1,0 +1,3 @@
+Artículo 324.
+Los que extrajeren de las cárceles ó de los establecimientos penales á alguna persona presa ó detenida en ellos ó le proporcionaren la evasión, serán castigados con las penas señaladas en el artículo 322, según el caso respectivo, si emplearen la violencia ó el soborno; y con las inferiores en un grado cuando se valieren de otros medios.
+Si fuera de dichos establecimientos se verificare la sustracción ó so facilitare la fuga de los presos ó detenidos violentando ó sorprendiendo á los encargados de conducirlos ú custodiarlos, se aplicarán respectivamente las penas inferiores en un grado á las señaladas en el inciso precedente.

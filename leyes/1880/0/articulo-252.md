@@ -1,0 +1,2 @@
+Artículo 252.
+Sufrirán la pena de suspensión de empleo en su grado medio ó multa de doscientos treinta y cuatro á trescientos sesenta y seis pesos, los funcionarios á que se refiere el artículo anterior, que, por malicia ó negligencia inexcusable y faltando á las obligaciones de su oficio, no procedieren á la persecución ó aprehensión de los delincuentes después de requerimiento ó denuncia formal hechos por escrito.

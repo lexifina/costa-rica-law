@@ -1,0 +1,3 @@
+Artículo 111.
+Los reos condenados á las penas corporales de deportación, presidio en San Lúcas, presidio interior y reclusión, que hayan observado una conducta ejemplar y no hayan tratado de fugarse del establecimiento, podrán solicitar del Poder, á quien la ley atribuye esta facultad, la rebaja de su pena, una vez cumplida la mitad de ella, y le será acordada, previo informe de la Suprema Corte de Justicia, disminuyéndosele la condena de la quinta á la tercera parte de ella.
+Este artículo y el 100 hasta el inciso segundo del número 3° exclusive, serán fijados en todos los establecimientos penales para noticia de los reos.

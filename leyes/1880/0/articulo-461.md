@@ -1,0 +1,2 @@
+Artículo 461.
+Para los efectos del presente capítulo se estimarán por violencia ó intimidación en las personas los malos tratamientos de obra, las amenazas ya para hacer que se entreguen ó manifiesten las cosas, ya para impedir la resistencia ú oposición á que se quiten, ó cualquiera otro acto que pueda intimidar ó forzar á la manifestación ó entrega, liará también violencia el que para obtener la entrega ó manifestación alegare órden falsa de alguna autoridad, ó la diere por sí fingiéndose ministro de justicia ó funcionario público.
