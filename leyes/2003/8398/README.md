@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario de la República para el Ejercicio Económico del 2004
 
-Ley N° 8398 del 2003-12-12. SINALEVI, ficha 52303: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52303&param2=56746&param3=1>.
+Ley N° 8398 del 2003-12-12. SINALEVI, ficha 52303: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52303&param2=56747&param3=1>.
 
 Publicada en La Gaceta N° 252 del 2003-12-31.
 
@@ -34,3 +34,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 24 de 33 | 2004-11-23 | Decreto Ejecutivo 32114 (2004-10-26) | 2004-10-26 |
 | 25 de 33 | 2004-12-01 | Decreto Ejecutivo 32119 (2004-11-08) | 2004-11-08 |
 | 26 de 33 | 2004-12-01 | Decreto Ejecutivo 32126 (2004-11-24) | 2004-11-24 |
+| 27 de 33 | 2004-12-03 | Decreto Ejecutivo 32134 (2004-11-30) | 2004-11-30 |
