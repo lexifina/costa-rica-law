@@ -1,1 +1,0 @@
-Artículo 3° El Consejo será presidido por el Ministro de Salud, o su representante; en defecto de ambos, será presidio por el Ministro de Salud, o su representante en defecto de ambos, será presidio por el Director del Departamento de Salud Mental.

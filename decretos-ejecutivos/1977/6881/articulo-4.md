@@ -1,1 +1,0 @@
-Artículo 4° El Consejo sesionará ordinariamente dos veces por mes según determinación de hora y días que hará el propio Consejo. Podrá sesionar extraordinariamente en cualquier tiempo a solicitud de Presidente o de cuatro de sus miembros.
