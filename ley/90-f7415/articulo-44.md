@@ -1,0 +1,1 @@
+Artículo 44 al 1019.-Siempre que el Juez de una causa creyere indispensable o importante la comparecencia ante ‚la del testigo que reside a mayor distancia de tres leguas, puede exigir de cualquier Juez del domicilio del testigo la remisión de ‚este, o usar de sus demás facultades para obligarlo a presentarse, salvo el caso de impedimento físico del testigo.

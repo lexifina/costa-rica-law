@@ -1,0 +1,1 @@
+Artículo 8° al 59. -No se admitir escrito que no sea entregado personalmente por la parte interesada, ni sin que esta asegure, en el caso de no llevar su firma, haberse firmado a su ruego, cuya aserción se asentar por diligencia. Se exceptúan de las dos prescripciones de este artículo, los escritos que llevasen la firma de Abogado.

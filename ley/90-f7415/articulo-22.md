@@ -1,0 +1,6 @@
+Articulo 22 al 302.-En primera instancia todo demandante que pierde su acción o que la abandone, ser condenado en costas; y simultáneamente en daños y perjuicios, si la acción deducida fuere notoriamente temeraria: este es, cuando en su apoyo no se hubiese rendido ni un a semiplena prueba por lo menos, aunque después se hubiere destruido, o cuando haya sido intentada contra ley clara y terminante.
+El demandado ser condenado en costas, siempre que fuese vencido en juicio; y junto con estas en daños y perjuicios, cuando sus excepciones fuesen temerarias en cualesquiera de los dos conceptos del párrafo anterior.
+No habrá pronunciamiento especial de costas, y consiguientemente tampoco en daños y perjuicios, cuando en parte de la acción o acciones deducidas y resistidas, el demandante sale victorioso.
+En las aplicaciones de este Código, la palabra genérica "costas" sin otra denominación, solo comprende las procesales, a las cuales corresponde el valor del papel invertido en proceso, y el de poder con que se hubiese constituido procurador. En toda decisión
+en que se omita el pronunciamiento de costas, se entender n no haber condenación especial en ellas, y de consiguiente, que cada parte debe pagar las suyas y por mitad las comunes.
+De las disposiciones de este artículo, quedan a salvo las demás de la ley para casos especiales.

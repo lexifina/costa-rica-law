@@ -1,0 +1,1 @@
+Artículo 14.-Cuando la providencia notificada de cualesquiera de los modos expresados en el artículo anterior, contenga citación para que el notificado evacue algún acto a que tenga derecho y no lo verificare, bien por rehusarlo o no concurrir, bien por no habérsele hecho la notificación en persona, se tendrá por legalmente renunciado aquel derecho.

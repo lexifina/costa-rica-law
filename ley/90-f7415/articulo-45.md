@@ -1,0 +1,1 @@
+Articulo 45 al 1023, 1024, 1025 y 1026. Se restablecen todas las disposiciones contenidas en estos artículos, quedando derogados el 19 y 22 de la ley de 18 de febrero de 1852, a que se refieren las notas 52, 53, 54 y 55 de este código.
