@@ -1,3 +1,4 @@
 TARIFA DE IMPUESTOS MUNICIPALES DEL CANTON DE CORREDORES
-ARTICULO 1.- Los impuestos no contemplados en esta ley se regirán por
-la ley No. 6684 del 25 de noviembre de 1981.
+ARTICULO 1.- DEROGADO.
+(Derogado por el artículo 23 de la Ley de impuestos municipales de
+Corredores No.7459 del 29 de noviembre de 1994)

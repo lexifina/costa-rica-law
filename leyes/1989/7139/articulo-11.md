@@ -1,4 +1,3 @@
-ARTICULO 11.- El impuesto de patente se pagará durante todo el
-tiempo que se haya tenido el establecimiento abierto o se haya ejercido el
-comercio en forma ambulante, y durante el tiempo que se haya poseído la
-licencia, aunque la actividad no se hubiera realizado.
+ARTICULO 11.- DEROGADO.
+(Derogado por el artículo 23 de la Ley de impuestos municipales de
+Corredores No.7459 del 29 de noviembre de 1994)
