@@ -1,0 +1,3 @@
+ARTICULO 2°. -Ninguna sociedad anónima, sea cual fuere su objeto, podrá fundarse sin la autorización del Poder Ejecutivo, y los fundadores promotores de ella están obligados solicitar dicha autorización, acompañando su pedimento los estatutos y el testimonio de la escritura de que trata el artículo anterior.
+1° Cuando las compañías anónimas soliciten concesiones y privilegios, que para su fomento y por el interés público sea conveniente concedérseles, el Gobierno no autorizar su fundación sin el previo decreto del Congreso,
+2° Si las espresadas compañías no tuvieren necesidad de semejantes privilegios concesiones especiales, puede el Gobierno permitirlas, oyendo el voto consultivo de dos más capitalistas.

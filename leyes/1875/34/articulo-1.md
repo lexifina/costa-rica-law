@@ -1,0 +1,3 @@
+DECRETO XXXIV
+Reglamenta las sociedades anónimas
+ARTICULO 1°.-Los promotores fundadores de cual quiera sociedad anónima, sea cual fuere su objeto, otorgar n la escritura de asociación ante un Escribano Público, el que haga sus veces, estableciendo las bases de su compromiso y especificando con la mayor claridad y de una manera formal ‚ irrevocable la obligación de parte de los asociados y de los que subroguen estos en sus derechos de contribuir en un tiempo señalado con sus respectivas cuotas para formar el capital que se haya creído necesario para la empresa. También se fijará el que sea suficiente para que la sociedad pueda dar principio sus operaciones.
