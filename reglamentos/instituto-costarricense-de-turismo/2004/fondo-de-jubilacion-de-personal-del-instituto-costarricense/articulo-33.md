@@ -1,0 +1,1 @@
+Artículo 33.—Disposiciones de la Junta. La Junta Administradora establecerá el trámite a seguir para hacer efectivos los beneficios comprendidos en este Reglamento, siendo obligación de todos los miembros acatar las disposiciones que al efecto tome dicha Junta.
