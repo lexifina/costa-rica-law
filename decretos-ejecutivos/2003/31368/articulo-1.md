@@ -1,0 +1,17 @@
+Nº 31368-MAG-MEIC-COMEX-H
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO,
+EL MINISTRO DE COMERCIO EXTERIOR
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las atribuciones establecidas en los artículos 140 incisos 3), 8), 18) y 20), 146 y 50, de la Constitución Política, los artículos 25, 27.1, 28.2.b de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, el artículo 6º de la Ley Nº 7475 de 20 de diciembre de 1994, Ley aprobatoria del Acuerdo sobre Agricultura del Acta Final en que se incorporan los Resultados de la Ronda Uruguay de Negociaciones Comerciales Multilaterales y los artículos 37 y 57 de la Ley Nº 8285 de 30 de mayo del 2002, Ley de Creación de la Corporación Arrocera.
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 30867-MAG-MEICCOMEX- H de 3 de diciembre del 2002, publicado en el Alcance Nº 88-A a La Gaceta Nº 236 del 6 de diciembre del mismo año, se establecieron las reglas para distribuir las asignaciones provenientes del Presupuesto Nacional o en su caso, el diferencial que produzcan las importaciones de arroz en granza que se realicen al amparo del artículo 37 y concordantes de la Ley Nº 8285.
+2º—Que el Poder Ejecutivo considera conveniente y necesario realizar algunos ajustes en cuanto a la definición de los beneficiarios de este esquema, sin alterar en ningún aspecto sustancial las reglas ya establecidas. Por tanto:
+DECRETAN:
+Artículo 1º—Refórmesen los incisos a) y b) del artículo 2º del Decreto Ejecutivo Nº 30867-MAG-MEIC-COMEX-H, de 3 de diciembre del 2002, para que los mismos se lean de la siguiente manera:
+"a) Los beneficiarios serán todos aquellos productores, personas físicas o jurídicas, debidamente registrados en la Oficina del Arroz (hoy Corporación Arrocera Nacional) como:
+(i) Productores que hayan sembrado, cosechado y entregado arroz a su nombre, antes del 6 de diciembre del 2002.
+(ii) Aquellos pequeños productores de arroz que hayan recibido una parcela por parte del Instituto de Desarrollo Agrario, que se encuentren ubicados en las zonas arroceras del país, definidas por la Corporación Arrocera, durante alguno de los últimos cinco años.
+(iii) Los pequeños productores de arroz, ubicados en las zonas arroceras, que hayan sembrado, cosechado y entregado arroz a su nombre entre el 1º de julio y el 6 de diciembre del 2002, aunque no se hayan registrado ante la Corporación Arrocera Nacional, cuyas entregas no superen los mil sacos de arroz, de 73.6 kilogramos en ese período.
+b) Si existiese alguna negociación previa, mediante la cual el industrial realiza un adelanto a los productores, que luego sería reintegrado con los fondos de la asignación correspondiente, este pago será realizado contra factura de compra de arroz, por el monto negociado y con prioridad de pago. Se entenderá como negociación previa, aquella en la cual el industrial haya pagado a los productores que califican según los alcances de este Decreto, más de doscientos diez y hasta doscientos treinta dólares por tonelada métrica, entre el 1º de julio y el 31 de diciembre del 2002. De conformidad con lo anterior, se deberá hacer al industrial, la devolución del adelanto efectuado, hasta un máximo de veinte dólares por tonelada métrica de arroz seco y limpio, en forma proporcional de acuerdo a los recursos recibidos en el Fondo de Nivelación al Productor, de la Corporación Arrocera Nacional".
