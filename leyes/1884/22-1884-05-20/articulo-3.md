@@ -1,0 +1,1 @@
+Art. 3-El Teniente usará el mismo uniforme que el Subteniente, con la presilla sobre el hombro derecho y dos trencillas sobre el aro del kepi. De gala llevará la charretera sobre el hombro derecho y la capona en el izquierdo.

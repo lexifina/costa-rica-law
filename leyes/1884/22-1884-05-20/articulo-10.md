@@ -1,0 +1,1 @@
+Art. 10.-El uniforme común y de gala del General de División será igual al del de Brigada, con las diferencias siguientes: dos estrellas de oro ó plata en las presillas; dos bordaduras en las bocamangas y cuello de la levita y dos en el aro del kepi; faja encarnada con borlas de oro; y pluma blanca en la orla interior del sombrero.

@@ -1,0 +1,1 @@
+Art. 8-El Coronel usará igual uniforme, común y de gala, al del Teniente Coronel, distinguiéndose por tres cordones en la presilla, tres galones en las boca-mangas, cuello y kepi, y una faja de los colores del pabellón nacional con borlas de oro.

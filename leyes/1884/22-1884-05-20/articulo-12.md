@@ -1,0 +1,1 @@
+Art. 12. —Los jefes y oficiales de Estado Mayor usarán el uniforme y divisas correspondientes á sus respectivos grados; distinguiéndose por una faja de los colores del pabellón nacional, con borlas de oro, la cual llevarán cruzada del hombro derecho al costado izquierdo.
