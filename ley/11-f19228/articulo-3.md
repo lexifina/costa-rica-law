@@ -1,0 +1,1 @@
+3°-Estos depositos tendrán dos llaves, una á cargo del respectivo mayordomo, ó administrador y la otra al del Sindico Procurador del lugar, que quando se abran cuidará se seiente la correspondiente partida de cargo al 1° firmándola.
