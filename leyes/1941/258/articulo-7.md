@@ -1,7 +1,2 @@
-Artículo 7º.- Toda concesión para desarrollar, trasmitir o
-distribuir más de quinientos caballos de fuerza, sus prórrogas,
-modificaciones y traspasos requiere para ser válida y crear algún derecho
-la aprobación del Congreso Constitucional. Igual requisito es
-indispensable para toda concesión, aunque ésta sea menor de quinientos
-caballos, cuando el adquirente tenga concesiones que sumadas a la nueva
-sobrepasen dicha cantidad.
+Artículo 7º.- DEROGADO.-
+( Derogado por Ley Nº 7200 de 28 de setiembre de 1990, artículo 22 )

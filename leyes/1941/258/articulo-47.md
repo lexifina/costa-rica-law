@@ -1,6 +1,7 @@
-Artículo 47.- Según lo permita el presupuesto a que se refiere el
-artículo 44 devengarán una dotación mensual fija el Director y Subdirector,
-mientras que los consejeros percibirán dietas por las sesiones a que
-asistan como integrantes de la Junta Eléctrica. Sin embargo, cuando un
-consejero integrare la Junta más de nueve veces en un mes no se le
-reconocerá ninguna dieta en exceso de ese número.
+Artículo 47.- Devengarán dotación mensual fija el Director y los
+Subdirectores propietarios; los suplentes percibirán dietas por las
+sesiones a que asistan como integrantes de la Junta. El valor y monto
+probable de las dietas se incluirán en el presupuesto anual.
+( Así reformado por Ley Nº 50 de 7 de junio de 1948, artículo único )
+(DEROGADO TACITAMENTE por Ley Nº 4537 de 25 de febrero de 1970 al
+reformar el artículo 35 e incluir en él disposiciones sustitutivas).
