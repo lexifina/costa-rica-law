@@ -13,3 +13,4 @@ Regula Concurso Interno para Promoción de Servidores Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-01 | la propia norma |
+| 2 | 1995-03-01 | SINALEVI (sin norma nombrada) |
