@@ -1,0 +1,1 @@
+Artículo 4º.- A las personas que hubieren obtenido acuerdos de donación de lotes a virtud de leyes anteriores y que comprobaren satisfactoriamente estar ocupando el lote o su debida adquisición, podrán obtener su escritura pública de propiedad en las condiciones y medida que esos textos contemplaban.

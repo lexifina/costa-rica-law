@@ -1,0 +1,1 @@
+Artículo 5º.- Se autoriza a la Municipalidad para que por intermedio de su apoderado legal, establezca las acciones legales pertinentes a fin de reivindicar los lotes o porciones de la finca que hubieren sido adquiridos por particulares indebidamente.
