@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Para ser magistrado se requiere ser natural de la República, ciudadano en ejercicio de sus derechos, del Estado seglar, Mayor de veinticinco años y ser profesor del derecho con el grado de Abogado.
