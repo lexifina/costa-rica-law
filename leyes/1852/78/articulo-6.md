@@ -1,0 +1,1 @@
+ARTÍCULO 6°. -Continuarán observándose, con la modificación que contiene el presente decreto, todas las leyes y disposiciones relativas al gobierno económico político de las Provincias y a la policía de los pueblos.

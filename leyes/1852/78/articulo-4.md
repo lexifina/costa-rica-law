@@ -1,0 +1,1 @@
+ARTÍCULO 4°. -Los Gobernadores dirigir n sus comunicaciones a los Alcaldes primeros de los Cantones por el orden preestablecido; mas las que deben pasar a las Municipalidades de las capitales de Provincia, serán dirigidas al Regidor mas antiguo para que de cuenta con ellas en la inmediata sesión, acusando recibo, el cual debe extenderlo el Secretario municipal.

@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -En consecuencia, las funciones designadas a los Jefes Políticos, serán ejercidas en los Cantones capitales de Provincia por los Gobernadores respectivos, y en los demás por los Alcaldes primeros de las cabeceras de Cantón.
