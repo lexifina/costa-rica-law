@@ -1,1 +1,0 @@
-Artículo 2°.- El Ministro de Educación y Cultura integrará en enero de cada año una Comisión Permanente de Exámenes de Bachillerato de Madurez, que se integrará con seis miembros profesores, entre los cuales habrá un representante del Departamento de Educación Secundaria.
