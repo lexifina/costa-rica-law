@@ -1,0 +1,1 @@
+Art. 5. El decreto que espida el Poder Ejecutivo reglamentando las funciones de las Municipalidades y demás empleados Municipales, comprenderá todas las disposiciones del réjimen de las Provincias can- tones y distritos; incluyéndose las que se juzguen necesarias para la más fácil y cumplida administración local; y este decreto tendrá el carácter de Ordenanza Municipal.
