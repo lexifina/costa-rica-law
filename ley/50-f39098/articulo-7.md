@@ -1,0 +1,1 @@
+Art. 7° -Acciones nominativas son las dos mil con que el Banco debe abrir sus operaciones y todas las demas que se suscriban dentro del año establecido en el artículo 4° Estas acciones no podrán trasferirse sin el requisito previo de la toma de razon de ellas en los rejistros dobles que debe llevar la Direccion.

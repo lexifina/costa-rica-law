@@ -1,0 +1,1 @@
+Art. 35.-Atribúyese á la Direccion General la facultad de transigir las cuestiones del Banco cualesquiera que ellas sean, bajo su propia responsabilidad, y dando cuenta en su oportunidad á la Asamblea General de Accionistas.

@@ -1,0 +1,1 @@
+Art. 19. -EI Banco Nacional desempeñará el servicio de Oficina de la Administracion de rentas de la República, á cuyo efecto llevará la cuenta de caja de los Fondos que ingresen y egresen por cuenta de la Nacion, por todo el tiempo que al Gobierno le convenga.

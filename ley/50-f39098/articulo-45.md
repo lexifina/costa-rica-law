@@ -1,0 +1,1 @@
+Art. 45.-Corresponde á la Direccion el nombramiento del Administrador, del Cajero y del Tenedor ó Tenedores de Libros, y señalar el sueldo de que deben gozar estos Empleados; y de la misma manera el nombramiento y señalamiento de sueldo de los demas Empleados:

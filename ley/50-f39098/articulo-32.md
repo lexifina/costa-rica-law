@@ -1,0 +1,1 @@
+Art. 32. -Unicamente los duchos de acciones nominativas y privilegiadas tienen voto deliberativo en las decisiones y resoluciones de la Sociedad, y en todo lo que se relacione con el manejo interior y exterior del Banco. Los dueños de acciones al portador, tendrán solamente voto consultivo en las deliberaciones y decisiones de la Asamblea General de Accionistas.

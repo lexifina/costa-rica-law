@@ -1,0 +1,1 @@
+Art. 17.-El Banco, sus Agencias y Oficinas sucursales, tienen obligacion de recibir y custodiar todos los depósitos y consignaciones judiciales de los Jugados y Tribunales de la República, así como tambien los de bienes y herencias vacantes, siempre que aquellos y éstas consistan en dinero efectivo, pagarées, titulos de propiedad y alhajas de oro ó plata.

@@ -1,0 +1,1 @@
+Art. 68- En cualquier otro caso la disolución no podrá tener lugar sino por la decision de las dos terceras partes de accionistas reunidos en Asamblea General que posean en todo mas de la mitad de las acciones emitidlas.

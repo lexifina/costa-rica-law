@@ -1,0 +1,1 @@
+Art. 5° Por todo el tiempo de la duracion del Establecimiento, se abrirán cuentas á todas las personas que quieran adquirir acciones al portador, con la facultad de poder hacer enteros por una suma no menor de cinco pesos, hasta completar una acción.

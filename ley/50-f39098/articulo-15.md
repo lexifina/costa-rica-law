@@ -1,0 +1,1 @@
+Art. 15,--En caso de hipoteca, será condicion implícita del contrato la de que, si fuere necesaria la ejecución, la finca ó fincas hipotecadas se rematarán en mejor postor, sin previo avalúo de peritos, y sirviendo de base la cantidad adeudada, intereses y costas calculados. La venta se hará con arreglo á las leyes de procedimiento.

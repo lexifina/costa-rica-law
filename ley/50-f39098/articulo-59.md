@@ -1,0 +1,1 @@
+Art. 59.- EI Presidente de la Direccion y consiguientemente de la Asamblea General, para el efecto de organizar Ia comision de orden interior en las reuniones de ésta, nombrará dos escrutadores que no sean miembros de la Direccion, los cuales, junto con el Presidente, autorizarán las actas, que serán firmadas por todos los accionistas concurrentes.

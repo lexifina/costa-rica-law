@@ -1,0 +1,1 @@
+Art. 57. Las reuniones de la Asamblea General, tanto ordinarias como extraordinarias, se anunciarán quince dias úntes por medio de avisos insertos en la Gaceta Oficial, 6 en cualesquiera otros periódicos de la Capital, independientemente de otro medio de publicidad que la Dirección estime conveniente.

@@ -1,0 +1,1 @@
+Art. 43.-La Direccion deberá designar desde su primera sesion, el Director que debe reemplazar al Presidente en los casos de ausencia ú otro impedimento. El Director en quien recaiga esta eleccion llevará el nombre de Vice-Presidente.

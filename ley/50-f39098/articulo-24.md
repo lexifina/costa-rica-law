@@ -1,0 +1,1 @@
+Art. 24, El interés del saldo que en cuenta corriente resulte contra el Gobierno, se reducirá à un octavo ménos que el que se cobre á los demas comitentes que tengan cuentas corrientes en el mismo Banco.
