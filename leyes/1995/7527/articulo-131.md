@@ -9,7 +9,8 @@ Si el precio del arrendamiento no está estipulado, en forma cierta y determinad
 "Artículo 420.- Asuntos sujetos a este trámite.
 (...)
 9.- Las pretensiones que señala el artículo 127 de la Ley general de arrendamientos urbanos y suburbanos."
-"Artículo 432.- Materia del proceso sumario. En proceso sumario, se tramitarán las siguientes pretensiones:
+"Artículo 432.- Materia del proceso sumario.
+En proceso sumario, se tramitarán las siguientes pretensiones:
 (...)
 9.- La resolución del contrato por incumplimiento del arrendador, el restablecimiento del arrendatario en su derecho al arrendamiento y la de reajuste en el precio del arrendamiento."
 "Artículo 748.- Deber de legalizar y reclamar privilegio.
@@ -21,7 +22,8 @@ Proceso de desahucio
 Artículo 448.- Demanda y causas de desalojamiento.
 A la demanda se le aplicará lo dispuesto en el artículo 433.
 En el escrito se indicará, además, el lugar donde está ubicado el inmueble y se acompañará la prueba de propiedad de la finca o del derecho del actor, el contrato de arrendamiento si existe y, en su caso, cualquier otro documento que ordene la Ley general de arrendamientos urbanos y suburbanos.
-Cuando la acción que se promueva sea para desalojar una vivienda, se debe presentar certificación, expedida por el Departamento de Avalúos de la Dirección General de la Tributación Directa, sobre el actual valor conjunto del terreno y la edificación, en su defecto, o si ese avalúo tiene más de cinco años, debe presentarse el avalúo practicado por un ingeniero civil o un arquitecto incorporados. El actor debe señalar con precisión la causa de desalojamiento en que apoya su pretensión.
+Cuando la acción que se promueva sea para desalojar una vivienda, se debe presentar certificación, expedida por el
+Departamento de Avalúos de la Dirección General de la Tributación Directa, sobre el actual valor conjunto del terreno y la edificación, en su defecto, o si ese avalúo tiene más de cinco años, debe presentarse el avalúo practicado por un ingeniero civil o un arquitecto incorporados. El actor debe señalar con precisión la causa de desalojamiento en que apoya su pretensión.
 Sólo será admisible la demanda de desahucio que se funde en una de las causas que señala el artículo 121 de la Ley general de arrendamientos urbanos y suburbanos y las que establezcan otras disposiciones del ordenamiento jurídico vigente.
 Artículo 449.- Legitimación y orden de desalojamiento.
 La demanda de desahucio podrán establecerla quienes comprueben tener derecho de propiedad o de posesión de la finca, por cualquier título legítimo, y procederá contra el arrendatario, el subarrendatario, el cesionario, los ocupantes y los poseedores del inmueble, en precario o por pura tolerancia.
