@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del IAFA
 | --- | --- | --- |
 | 1 | 1995-11-02 | la propia norma |
 | 2 | 1995-11-02 | Decreto Ejecutivo 29139 (2000-11-16) |
+| 3 | 2000-11-16 | SINALEVI (sin norma nombrada) |

@@ -1,3 +1,4 @@
+(Derogado)
 Nº 24705-S
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE SALUD,
@@ -28,3 +29,4 @@ de servicio entre el Instituto sobre Alcoholismo y Farmacodependencia y
 sus servidores, en concordancia con el Estatuto de Servicio Civil, su
 Reglamento, Ley General de la Administración Pública, Código de Trabajo y
 otras Leyes conexas y supletorias.
+(Derogado por el Decreto Ejecutivo N° 29139Reglamento Autónomo de Servicio del Instituto sobre Alcoholísmo y Farmacodependencia)
