@@ -1,0 +1,1 @@
+Artículo 4º—Requisitos de recursos adicionales. Los requerimientos de recursos propios adicionales para la realización de operaciones por cuenta propia estarán determinados en la normativa prudencial que establezca la Superintendencia General de Valores.
