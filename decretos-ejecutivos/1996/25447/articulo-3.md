@@ -1,0 +1,1 @@
+Artículo 3°-Por medio de “cartas de intenciones” o cualesquiera otros mecanismos que fuese necesario, el Ministerio de Trabajo y Seguridad Social y el Instituto Mixto de Ayuda Social (IMAS), establecerán de común acuerdo lo pertinente respecto del personal técnico y administrativo que se desempaña en el programa de Guarderías Infantiles.
