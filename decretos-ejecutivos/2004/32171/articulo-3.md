@@ -1,0 +1,1 @@
+Articulo 3°—Ámbito de aplicación. El presente Reglamento se aplicara a todos los conductores autorizados, que conduzcan de manera permanente u ocasional, vehículos propiedad de la Presidencia de la Republica, del Ministerio de la Presidencia, que se encuentren en prestamos mediante Convenio u otra figura jurídica similar.
