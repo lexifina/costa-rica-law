@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 21669 "Establece Nuevas Tarifas Peajes Carreteras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-11-30 | la propia norma |
+| 2 | 1994-12-23 | Decreto Ejecutivo 23924 (1994-12-23) |
