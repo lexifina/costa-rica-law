@@ -1,0 +1,1 @@
+Art. 3. Dicha comision reuniendo todos los datos y conocimientos que crea oportunos, ya sea de esta Secretaría, de la del Poder Ejeentivo ó de cualquiera otra autoridad ó particular; se ocuparìa constantemente en la formacion de dicho proyecto de Constitucion, pudiendo oír el voto de todas las personas ilustradas que se presten à coneurrir á tan interesante objeto.
