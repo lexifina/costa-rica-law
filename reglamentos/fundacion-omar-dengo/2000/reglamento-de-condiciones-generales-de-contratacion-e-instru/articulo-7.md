@@ -1,0 +1,3 @@
+7.—De la formalización del Contrato:
+7.1.—El adjudicatario que no comparezca dentro de los diez días hábiles siguientes a la fecha de la adjudicación del concurso a formalizar el contrato u omita rendir durante ese plazo la garantía de cumplimiento, perderá la garantía de participación, a favor de la FOD.
+7.2.—El contratista queda obligado a cumplir, plenamente, con todas las Condiciones Generales e Instrucciones a Oferentes, las especificaciones del Cartel y sus addenda, lo ofrecido en su oferta como en las demás manifestaciones documentadas que consten en el expediente de concurso o sean aceptadas en la formalización o durante la ejecución del contrato.
