@@ -1,0 +1,13 @@
+Artículo 6°-El Ministro de Industria, Energía y Minas llevará a cabo las siguientes funciones en su carácter de director y coordinador del Sector:
+a) Definir, conjuntamente o en consulta con el Presidente de la República, la política de Gobierno para el Sector Industria, Energía y Minas;
+b) Dirigir y coordinar a los entes descentralizados del Sector, tanto a nivel nacional como regional, haciendo comunicación formal de sus decisiones a los Consejos Regionales de Desarrollo y a los coordinadores sectoriales en cada región según se definen éstos adelante;
+c) Convocar, presidir r levantar las reuniones del Consejo Nacional Sectorial de Industria, Energía y Minas, así como tomar juramento a sus miembros;
+ch) Aprobar el presupuesto, nombrar y remover al Director de la Secretaría Ejecutiva de Planificación Sectorial de Industria, Energía y Minas, previa consulta al Consejo Nacional Sectorial de Industria, Energía y Minas;
+d) Nombrar comisiones de trabajo con participación pública o privada que coadyuven al mejor funcionamiento del Sector Industria, Energía y Minas;
+e) Aprobar el respectivo Plan o Programa de Gobierno del Sector Industria, Energía y Minas y elevarlo a conocimiento de la Comisión Económica;
+f) Velar porque los lineamientos y directrices de la Autoridad Presupuestaria y la aprobación por parte de ésta de los presupuestos de los entes del Sector, se enmarquen en la política sectorial en materia de industria, energía y minas;
+g) Participar activamente en la Comisión Económica y coordinar o acordar en este nivel, actividades y aspectos básicos del Sector Industria, Energía y Minas, que requieran de dilucidación en relación con otros sectores económicos;
+h) Velar porque la organización y funcionamiento de las instituciones del Sector Industria, Energía y Minas, respondan adecuadamente a los requerimientos de los objetivos sectoriales, así como a las directrices y disposiciones superiores en materia de política y reforma administrativa;
+i) Someter a conocimiento del Consejo Nacional Sectorial de Industria, Energía y. Minas, aquellas propuestas de políticas, estudios, programas y proyectos que le presenten los Consejos Subsectoriales de Industria, Energía y Minas, las instituciones descentralizadas y otros Ministerios que forman parte de este Sector y que en su criterio deba conocer dicho Consejo;
+j) Presentar ante el Ministerio de Planificación Nacional y Política Económica, el Plan de Desarrollo del Sector a efecto de que se compatibilice con los demás sectores y políticas globales, regionales y sectoriales, incluidos en el Plan Nacional de Desarrollo; y
+k) Cualesquiera otras funciones que de acuerdo con la legislación vigente le asigne el Presidente de la República.

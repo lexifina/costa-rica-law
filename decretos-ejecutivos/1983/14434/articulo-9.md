@@ -1,0 +1,2 @@
+Artículo 9°-El Consejo Nacional Sectorial de Industria, Energía y Minas se reunirá ordinariamente por lo menos una vez al mes y extraordinariamente cada. vez que sea convocado por su Presidente.
+El Consejo establecerá sus propios procedimientos y normas de trabajo, que deberán formularse mediante reglamento interno. Los miembros del Consejo Nacional Sectorial de Industria, Energía y Minas, realizarán sus funciones ad honórem y serán juramentados por el Ministro del ramo.

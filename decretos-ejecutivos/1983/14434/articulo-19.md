@@ -1,0 +1,1 @@
+Artículo 19.-Para el cumplimiento de sus funciones, la Secretaria Ejecutiva de Planificación Sectorial de Industria, Energía y Minas estará directamente subordinada al Ministro de Industria, Energía y Minas en su calidad de director político del Sector y para efectos administrativos estará adscrita al Ministerio de Industria, Energía y Minas.

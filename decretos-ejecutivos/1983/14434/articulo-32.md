@@ -1,0 +1,1 @@
+Artículo 32.-Corresponderá al Comité Sectorial Regional de Industria, Energía y Minas como tal, programar y coordinar las actividades del Sector Industria, Energía y Minas en la región, en apoyo tanto del Ministro de Industria, Energía y Minas como del Consejo Regional de Desarrollo, respectivos.

@@ -1,0 +1,11 @@
+CAPITULO SEXTO
+De la Secretaría Ejecutiva de Planificación Sectorial de Industria, Energía y Minas
+Artículo 17.-El Sector Industria, Energía y Minas contará con una Secretaría Ejecutiva de Planificación Sectorial de Industria, Energía y Minas, a la que le corresponderá específicamente:
+a) Ejecutar las políticas del Ministro del Sector y cuando corresponda, del Consejo Nacional Sectorial de Industria, Energía y Minas y atender los lineamientos y normas de asesoría, información y coordinación emitidos por el Ministerio de Planificación Nacional y Política Económica;
+b) Elaborar los proyectos del Plan de Desarrollo y del Programa de Gobierno del Sector Industria, Energía y Minas, con el aporte de los departamentos y unidades de planificación de las instituciones del Sector, a través de las Secretarías Técnicas Subsectoriales de Industria, Energía y Minas;
+c) Efectuar estudios a escala nacional regional y proponer políticas sectoriales en concordancia con tales estudios;
+ch) Presentar informes trimestrales y anuales ante el Ministro Sectorial de Industria, Energía y Minas, con copia al Ministerio de Planificación Nacional y Política Económica i
+d) Analizar, evaluar y supervisar todo lo relacionado con la cooperación técnica, las inversiones y el financiamiento externo del Sector Industria, Energía y Minas, con la participación de las dependencias encargadas de estas funciones; dictaminar ante el Ministro Sectorial, para que éste luego proceda según dispone la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974;
+e) Establecer adecuados medios de comunicación con las instituciones del Sector Industria, Energía y Minas y con los otros entes públicos y organizaciones privadas, comunales y cooperativas que se relacionen con el Sector Industria, Energía y Minas.
+f) Controlar y evaluar la ejecución de la política sectorial, e informar al Ministro al respecto; y
+g) Establecer y mantener, en estrecha colaboración y coordinación con las Direcciones del Ministerio de Industria, Energía y Minas, un centro de documentación e información que permita el registro y suministro adecuado de estadísticas e información periódica al Ministro Sectorial y al Consejo Nacional Sectorial de Industria, Energía y Minas, para el análisis y toma de decisiones, dentro del marco de referencia del Sistema Nacional de Planificación.

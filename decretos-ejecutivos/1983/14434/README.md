@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 14434
+
+Constitución del Sector Industria, Energía y Minas
+
+- Tipo: Decreto Ejecutivo
+- Número: 14434
+- Fecha: 1983-03-23
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 77 del 1983-04-25
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9383&param2=10053&param3=1 (ficha 9383)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1983-04-25 | la propia norma |
