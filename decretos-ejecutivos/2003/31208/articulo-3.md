@@ -1,0 +1,3 @@
+Artículo 3º—Para la ejecución de este servicio, el expresidente que lo reciba debe proveer y mantener un lugar adecuado o casetilla con condiciones mínimas de salubridad, comodidad, con suministros de agua y luz, de modo que el efectivo policial pueda protegerse de la intemperie y satisfacer sus necesidades básicas.
+El lugar o casetilla proporcionada será valorada por los departamentos técnicos encargados de sanidad, salud ocupacional y obras civiles, del Ministerio de Seguridad Pública
+Si no se provee de un lugar adecuado o casetilla que reúna las condiciones mínimas requeridas, no se ejecutará el servicio autorizado.

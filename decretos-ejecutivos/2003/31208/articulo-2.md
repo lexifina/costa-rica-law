@@ -1,0 +1,2 @@
+Artículo 2º—El expresidente que desee hacer uso del servicio de vigilancia y seguridad deberá solicitarlo por escrito al Ministro de Seguridad Pública, quien girará instrucciones a la Dirección General de la Fuerza Pública para que se proceda de conformidad.
+El expresidente que desee prescindir del servicio de vigilancia y seguridad, deberá manifestarlo por escrito al señor Ministro de Seguridad Pública
