@@ -1,0 +1,2 @@
+Artículo 3°.- Refórmese el numeral 6 del inciso e) del artículo 8° del decreto en mención el cual se leerá así:
+“6.- Presentar estudios experimentales en los que se demuestre la eficacia del producto para los usos solicitados, bajo nuestras condiciones agroecológicas o similares, salvo que se trate de productos debidamente inscritos en el país en cuyo caso bastará indicar las citas bibliográficas correspondientes”.
