@@ -1,1 +1,2 @@
-Artículo 8°—Las solicitudes de becas se recibirán en la Secretaría Municipal hasta la primera semana de enero, para lo cual anualmente la comisión de Becas redactará el respectivo aviso para la debida información al público.
+Artículo 8º—A los estudiantes beneficiarios que han disfrutado de la ayuda económica (beca) el año anterior, se les entregará formulario en la Secretaría Municipal en la primera quincena del curso lectivo y en la segunda quincena, la recepción de documentos. (constancia de matrícula y comprobante de aprobación del curso).
+(Así reformado en sesión N° 145 de 26 de enero de 2004).
