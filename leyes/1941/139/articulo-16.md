@@ -6,4 +6,4 @@ prescripción negativa de la acción de terceros a quienes pueda afectar.
 Este plazo se reducirá a un año únicamente para el efecto de
 solicitar y obtener préstamos de los organismos del Sistema Bancario
 Nacional o del Instituto Nacional de Vivienda y Urbanismo.
-En caso de prosperar acciones reivindicatorias sobre los inmuebles que garanticen créditos con las instituciones referidas, éstas conservarán todos los derechos que se deriven de la garantía real del inmueble.
+(Texto modificado por resolución de la Sala Constitucional No. 247-2001 de las 14:49 horas del 10 de enero de 2001, que anuló por inconstitucional el párrafo tercero).
