@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al Comité Pro-Unidad Sanitaria de Valverde Vega para adquirir un vehículo de hasta 1 000 kilos ensamblado en el país, exonerado de toda clase de impuestos. El vehículo será rifado a beneficio exclusivo de dicho Comité, para la adquisición del equipo necesario para prestar sus servicios.
