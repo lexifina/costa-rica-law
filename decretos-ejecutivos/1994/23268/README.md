@@ -13,3 +13,4 @@ Crea Reserva Forestal Rubén Torres Rojas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-20 | la propia norma |
+| 2 | 1997-11-09 | Decreto Ejecutivo 26945 (1997-11-09) |
