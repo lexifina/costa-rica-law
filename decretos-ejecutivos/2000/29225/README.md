@@ -14,3 +14,4 @@ Concede Asueto a Empleados Públicos del Cantón de León Cortés, de San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-02 | la propia norma |
+| 2 | 2001-01-17 | Decreto Ejecutivo 29272 (2001-01-17) |
