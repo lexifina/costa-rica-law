@@ -14,3 +14,4 @@ Reforma División Regional del Territorio de Costa Rica, para los efectos de inv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-07 | la propia norma |
+| 2 | 1997-12-16 | Decreto Ejecutivo 26584 (1997-12-16) |
