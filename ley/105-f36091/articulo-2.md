@@ -1,0 +1,1 @@
+Art. 2. El despacho de las mercaderías extranjeras, sin perjuicio de abrir y examinar uno por uno los cajones ó bultos que las contengan, se practicará con absoluto arreglo al decreto de 23 de diciembre de 847 y su tarifa adjunta.
