@@ -1,0 +1,1 @@
+Art 8°.- El Magistrados comisionado dará cuenta al Gobierno dentro del término de un mes de la ejecución de este decreto. Dado en la ciudad de San José, a los dieciocho días del mes de diciembre de mil ochocientos treinta y cinco.

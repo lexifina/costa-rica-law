@@ -1,0 +1,1 @@
+Art 7°.- Se pondrán en la Tesorería de secuestros, con noticia de la Intendencia, las cantidades que vaya produciendo la subasta; y a la misma se remitirán los testimonios de las escrituras que se otorguen a consecuencia de lo dispuesto en los artículos anteriores.
