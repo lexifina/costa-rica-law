@@ -1,4 +1,6 @@
+(Derogado)
 N° 26
+(Este decreto ejecutivo se dejó sin efecto por el artículo 1° del decreto ejecutivo N° 1799 del 26 de junio de 1971)
 FRANCISCO J. ORLICH
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,

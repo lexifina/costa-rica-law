@@ -13,3 +13,4 @@ Modifica Tarifas y Derechos Postales Servicio de Correos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1964-05-02 | la propia norma |
+| 2 | 1971-06-25 | Decreto Ejecutivo 1799 (1971-06-25) |
