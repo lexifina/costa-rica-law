@@ -1,0 +1,7 @@
+ARTICULO 3
+1. Las organizaciones de trabajadores y de empleadores tienen el
+derecho de redactar sus estatutos y reglamentos administrativos, el de
+elegir libremente sus representantes, el de organizar su administración y
+sus actividades y el de formular su programa de acción.
+2. Las autoridades públicas deberán abstenerse de toda intervención que
+tienda a limitar este derecho o a entorpecer su ejercicio legal.
