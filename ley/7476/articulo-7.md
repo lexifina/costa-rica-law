@@ -1,9 +1,1 @@
-ARTICULO 7.- Información sobre denuncias.
-Todo patrono estará obligado a informar sobre las denuncias de
-hostigamiento sexual que se reciban en su lugar de trabajo, así como el
-resultado del procedimiento que se realice, a la Defensoría de los
-Habitantes, si se trata de instituciones públicas, o a la
-Dirección Nacional e Inspección General de Trabajo del Ministerio de
-Trabajo y Seguridad Social, si se trata de patronos privados.
-Para efectos del sector público, se entiende por patrono al
-superior jerárquico de cada institución.
+ARTICULO 7.- Información sobre denuncias. Todo patrono estará obligado a informar sobre las denuncias de hostigamiento sexual que se reciban en su lugar de trabajo, así como el resultado del procedimiento que se realice, a la Defensoría de los Habitantes, si se trata de instituciones públicas, o a la Dirección Nacional e Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social, si se trata de patronos privados. Para efectos del sector público, se entiende por patrono al superior jerárquico de cada institución.

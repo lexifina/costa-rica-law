@@ -1,6 +1,1 @@
-ARTICULO 24.- Actuación del juez.
-Para apreciar la prueba y determinar si la conducta denunciada
-constituye hostigamiento sexual, el juez deberá considerar, de
-conformidad con las reglas de la sana crítica, todas las circunstancias
-en que ocurrieron los hechos, sin incluir consideraciones relativas a
-los antecedentes del comportamiento sexual de la persona ofendida.
+ARTICULO 24.- Actuación del juez. Para apreciar la prueba y determinar si la conducta denunciada constituye hostigamiento sexual, el juez deberá considerar, de conformidad con las reglas de la sana crítica, todas las circunstancias en que ocurrieron los hechos, sin incluir consideraciones relativas a los antecedentes del comportamiento sexual de la persona ofendida.

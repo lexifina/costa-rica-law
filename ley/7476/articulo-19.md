@@ -1,5 +1,1 @@
-ARTICULO 19.- Presentación de la demanda.
-Las personas ofendidas por hostigamiento sexual podrán demandar a
-quien las hostiga o al patrono o jerarca de éste, en los casos previstos
-en esta Ley, ante el juez correspondiente, de acuerdo con lo estipulado
-en el Código de Trabajo.
+ARTICULO 19.- Presentación de la demanda. Las personas ofendidas por hostigamiento sexual podrán demandar a quien las hostiga o al patrono o jerarca de éste, en los casos previstos en esta Ley, ante el juez correspondiente, de acuerdo con lo estipulado en el Código de Trabajo.
