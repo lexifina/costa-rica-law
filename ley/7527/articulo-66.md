@@ -1,0 +1,5 @@
+ARTICULO 66.- Depósito judicial del precio.
+Dentro del plazo que se establece en el tercer párrafo del artículo 58 de esta ley, el arrendatario puede pagar el precio del arrendamiento, mediante depósito judicial, sin necesidad de oferta real de pago.
+Para que el pago sea válido, el depósito debe efectuarse a la orden de la autoridad judicial competente del lugar donde está situado el inmueble y, en la boleta de depósito, deben indicarse el período de arrendamiento al cual corresponde el pago y la dirección exacta del arrendador, a quien el Tribunal deberá notificarle la existencia del depósito.
+Los depósitos siguientes, para ser válidos, deben efectuarse a la orden de la misma autoridad.
+Si el arrendatario se limita a depositar la renta, sin promover diligencias de consignación de pago, la autoridad judicial competente girará al arrendador el monto del depósito, sin dilación de trámites ni notificaciones y declarará firme la resolución que recaiga. Los depósitos siguientes se girarán sin que precise nueva resolución.

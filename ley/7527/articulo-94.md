@@ -1,0 +1,4 @@
+ARTICULO 94.- Excusión de pagar y aplicación de la renta.
+El arrendador no tiene derecho a recibir el pago de la renta, hasta tanto no lleve a cabo las reparaciones necesarias para la salud o la seguridad de los ocupantes de la vivienda o de los vecinos.
+Si por omisión del arrendador las reparaciones las realiza el arrendatario, este tiene derecho de aplicar la renta para amortizar el costo de las obras más la tasa de intereses básica pasiva establecida por el Banco Central de Costa Rica, vigente en ese momento, a partir de la finalización de las obras.
+Si las reparaciones las realiza un organismo público, el arrendatario debe pagarle la renta a este hasta cubrir el valor de la inversión, más la tasa de intereses básica pasiva establecida por el Banco Central de Costa Rica, vigente en ese momento y un dos por ciento (2%) mensual de multa, a partir de la finalización de las obras.
