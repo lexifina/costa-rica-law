@@ -1,0 +1,3 @@
+SECCION II
+Del papel sellado.
+Art. 7. Desde el dia 1° de enero del año próximo de 1848 cesará la práctica de admitirse en las Receptorias del Estado los sellos cortados del papel errado. Por consiguiente, ningun juez ó Autoridad superior pondrá el erróse, si no se le presenta la foja entera que se ha perdido; mas si lo que estuviese escrito en ella hubiese surtido ya sus efectos, es ocligado á descubrir el sello. El Juez, ó [imagen] cualquiera otra autoridad que contravenga á esta disposicion, incurrirá en la multa de cincuenta pe [imagen] sos por la primera vez, y si reincidiere, en la de cien pesos y destitucion de su destino.

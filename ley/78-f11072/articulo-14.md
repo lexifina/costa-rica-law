@@ -1,0 +1,1 @@
+Art. 14, Las disposiciones contenidas en los dos artículos precedentes comprenden tambien las tierras cuya venta no se haya verificado todavia, aunque la medida y demas dilijencias previas estuviesen ya practicadas.—Dado en la ciudad de San José, a los veintinueve dias del mes de noviembre [imagen] de mil ochocientos cuarenta y siete.

@@ -1,0 +1,1 @@
+Art. 9. Por el cambio en las Receptorías del papel errado se exigirá en el pliego de cuatro reales medio real por cada sello, y en todos los sellos [imagen] de las otras clases un real por cada peso de su valor respectivo.
