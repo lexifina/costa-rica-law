@@ -1,3 +1,3 @@
 Aplicación de los Beneficios
-Artículo 15.-El monto de las exoneraciones de impuestos arancelarios y otros que se consideren del caso, no excederá de siete mil dólares (US$ 7,000.00), pudiendo los interesados hacer uso de esta franquicia, total o parcialmente, dentro del plazo de seis meses contados a partir de la notificación de que habla el artículo 14 de este Reglamento. Este plazo no será ampliado ni prorrogado en ningún caso.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6593 del 24 de noviembre de 1976)
+Artículo 15.-El monto de las exoneraciones de impuestos arancelarios y otros que se cobre por motivo de la importación, no excederá de siete mil dólares ($ 7,000.00). Pudiendo el interesado hacer uso de esa franquicia en forma parcial hasta completar el máximo en un período de doce meses. En casos muy calificados y debidamente comprobados de fuerza mayor, la Dirección General de Hacienda podrá conceder prórrogas. La vigencia del plazo se inicia con la fecha de aceptación correspondiente de la póliza de la primera importación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12819 del 23 de julio de 1981)
