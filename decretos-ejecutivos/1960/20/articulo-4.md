@@ -1,0 +1,1 @@
+Artículo 4°─ Los diplomáticos o cónsules que gocen de exoneración de impuestos aduaneros, deberán formular su gestión conforme a lo dispuesto en los incisos a), b), c) y d) del artículo 21 de la ley N° 17 de 25 de enero de 1939.

@@ -1,0 +1,1 @@
+Artículo 6°─ El Ministerio de Economía y Hacienda, y en su caso el de Relaciones Exteriores, velarán por el debido cumplimiento del presente Reglamento, así como de las leyes o contratos en que el mismo se fundamenta.
