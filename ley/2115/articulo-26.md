@@ -1,0 +1,1 @@
+Artículo 26.- De las infracciones a que se contrae el artículo 23 conocerán los Jefes Políticos en los cantones menores y los Agentes Principales de Policía en las restantes circunscripciones territoriales.

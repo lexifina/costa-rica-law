@@ -1,0 +1,1 @@
+Artículo 30.- Para dar sustento económico a la presente ley, el Estado destinará anualmente la suma de un millón cuatrocientos mil colones (¢ 1.4 00,000.00), a partir del ejercicio fiscal que se iniciará el 1º de enero de 1957.

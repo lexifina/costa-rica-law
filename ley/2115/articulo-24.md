@@ -1,0 +1,2 @@
+Artículo 24.- En caso de reincidencia genérica, la multa será de sesenta a noventa colones, y el arresto de treinta a cuarenta y cinco días para el inciso a) del artículo 23, y de doscientos setenta a trescientos sesenta colones y el arresto de ciento treinta y cinco a ciento ochenta días para el inciso b) del artículo 23.
+La reincidencia específica será reprimida siempre con arresto en los tantos arriba señalados.

@@ -1,0 +1,2 @@
+Artículo 5º.- En las zonas que se declaren palúdicas todas las construcciones deberán ser periódicamente rociadas con insecticidas. De esta disposición quedan excluídas únicamente las edificaciones especiales para albergar apiarios, viveros o criaderos, de cualquier naturaleza, permitidos por las leyes.
+Se prohíbe destinar tales edificaciones al uso humano, y guardar en las casas de habitación implementos requeridos para la atención de apiarios, viveros y criaderos citados.

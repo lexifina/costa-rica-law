@@ -1,0 +1,1 @@
+Artículo 15.- Todos los habitantes de la República están obligados a denunciar al Departamento de Lucha contra Insectos Trasmisores de Enfermedades la existencia de cualquier caso comprobado o sospechoso de paludismo, que sea de su conocimiento.
