@@ -1,0 +1,11 @@
+DECRETOS
+No 28085-MAG-SALUD
+EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA Y DE SALUD
+En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política, la Ley No 7064 de 29 de abril de 1987, Ley de Fomento a la Producción Agropecuaria, la Ley No 6243 de 2 de mayo de 1978, Ley de Salud Animal, la Ley No 5395 de 30 de octubre de 1973, Ley General de Salud y la Ley No 5412 de 8 de noviembre de 1973, Ley Orgánica del Ministerio de Salud,
+Considerando:
+1°—Que resulta indispensable que los sectores privado y oficial participen en la elaboración y adecuación de las normas nacionales a las normas internacionales requeridas por los países importadores en materia de inspección sanitaria de establecimientos que reciben, procesan y empacan productos y subproductos de origen pesquero.
+2°—Que Costa Rica para accesar a los mercados internacionales requiere contar con un sistema de inspección sanitaria confiable que garantice no solo el reconocimiento de los países importadores, sino la calidad sanitaria de los productos pesqueros de exportación, caso contrario se correría el riesgo de que nuestros productos no puedan ser comercializados en el exterior, lo que traería consecuencias muy negativas para la economía nacional.
+3°—Que el Reglamento de Inspección Veterinaria de Productos Pesqueros, Decreto Ejecutivo No 18696-MAG-S, del 2 de noviembre de 1988, publicado en el Alcance No 39 a "La Gaceta" No 239 del 16 de diciembre del mismo año, requiere de una modificación integral a efecto de adecuarlo a la nueva normativa y nuevos sistemas de inspección sanitaria que se utilizan en la actualidad.
+4°—Que para la elaboración de la nueva propuesta resulta conveniente establecer un Comité Asesor que involucre a los sectores oficial y privado, a efecto de que este grupo colegiado sugiera al Poder Ejecutivo el Sistema de Inspección Sanitaria a la Industria Pesquera de Exportación. Por tanto,
+DECRETAN:
+Artículo 1°—Créase una Comisión Asesora del Poder Ejecutivo con el objeto de elaborar una propuesta del Sistema de Inspección Sanitaria en los establecimientos que reciben, procesan y empacan productos pesqueros para la exportación.
