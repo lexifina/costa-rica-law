@@ -1,5 +1,1 @@
-Artículo 27.- Sin perjuicio de lo dispuesto en el artículo veinticinco,
-las existencias que no estuvieren amparadas por el correspondiente título
-de propiedad se considerarán receptadas ilícitamente por el propietario,
-al cual se le impondrá por ese hecho la pena de seis meses a tres años de
-prisión.
+Artículo 27.- Anulado por Resolución de la Sala Constitucional Nº 2856-94 de las 14:57 horas del 14 de junio de 1994.

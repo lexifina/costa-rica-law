@@ -1,27 +1,5 @@
-Artículo 6º.- El propietario o el representante legal de los
-establecimientos referidos en el artículo segundo deberá llevar un libro
-de registro, debidamente sellado por la Dirección General de la
-Tributación Directa, en el cual se anotarán todas las operaciones diarias
-relativas al ingreso de vehículos y salidas de sus componentes o partes.
-Los asientos tendrán un orden consecutivo, no podrán tener
-entrerrenglonaduras ni borrones. Cada asiento relativo al ingreso de un
-vehículo deberá ser firmado por el propietario o por el representante
-legal del establecimiento y por el propietario del vehículo y en dicho
-asiento se hará constar la marca, el modelo, el color, el número de placa
-de circulación, el número de motor, el tonelaje y si se tratare de una
-compra, el precio de la misma, además del nombre del vendedor, el número
-de cédula de éste y la fecha de la carta-venta, a que se refiere el
-artículo ocho.
-Una vez desarmado el vehículo, el propietario o el representante
-legal del establecimiento deberá comunicarlo por escrito al Registro
-Público de la Propiedad de Vehículos, citando los datos con que se
-identifica, para cancelar el asiento de inscripción.
-En los asientos de salida de las partes o componentes de un vehículo,
-bastará con la referencia a su marca, modelo y número de placa de
-circulación.
-Finalizado el libro de registro deberá depositarse en la Dirección
-General de la Tributación directa y abrirse uno nuevo con los mismos
-requisitos.
-Al libro de registro tendrán acceso, en el cumplimiento de sus
-funciones, los miembros de las policías judicial y administrativa, además
-de los inspectores fiscales.
+Artículo 6º.- El propietario o el representante legal de los establecimientos referidos en el artículo segundo deberá llevar un libro de registro, debidamente sellado por la Dirección General de la Tributación Directa, en el cual se anotarán todas las operaciones diarias relativas al ingreso de vehículos y salidas de sus componentes o partes. Los asientos tendrán un orden consecutivo, no podrán tener entrerrenglonaduras ni borrones. Cada asiento relativo al ingreso de un vehículo deberá ser firmado por el propietario o por el representante legal del establecimiento y por el propietario del vehículo y en dicho asiento se hará constar la marca, el modelo, el color, el número de placa de circulación, el número de motor, el tonelaje y si se tratare de una compra, el precio de la misma, además del nombre del vendedor, el número de cédula de éste y la fecha de la carta-venta, a que se refiere el artículo ocho.
+Una vez desarmado el vehículo, el propietario o el representante legal del establecimiento deberá comunicarlo por escrito al Registro Público de la Propiedad de Vehículos, citando los datos con que se identifica, para cancelar el asiento de inscripción.
+En los asientos de salida de las partes o componentes de un vehículo, bastará con la referencia a su marca, modelo y número de placa de circulación.
+Finalizado el libro de registro deberá depositarse en la Dirección General de la Tributación directa y abrirse uno nuevo con los mismos requisitos.
+Al libro de registro tendrán acceso, en el cumplimiento de sus funciones, los miembros de las policías judicial y administrativa, además de los inspectores fiscales.
