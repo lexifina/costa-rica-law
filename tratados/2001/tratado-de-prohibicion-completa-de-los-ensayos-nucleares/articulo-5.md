@@ -1,0 +1,6 @@
+Artículo V
+Medidas para remediar una situación y garantizar el cumplimiento, incluidas las sanciones
+1.- La Conferencia, teniendo en cuenta entre otras cosas, las recomendaciones del Consejo Ejecutivo, adoptará las medidas necesarias, según se indica en los párrafos 2 y 3, para asegurar el cumplimiento de las disposiciones del presente Tratado y remediar y solucionar cualquier situación que contravenga esas disposiciones.
+2.- Cuando la Conferencia o el Consejo Ejecutivo haya pedido a un Estado Parte que remedie una situación que suscite problemas respecto de su cumplimiento y dicho Estado no atienda esa petición dentro del plazo estipulado, la Conferencia podrá, entre otras cosas, decidir restringir o suspender el ejercicio de los derechos y privilegios que otorga a ese Estado Parte el presente Tratado hasta que la Conferencia decida otra cosa.
+3.- En los casos en que pueda resultar daño para el objeto y propósito del presente Tratado por incumplimiento de sus obligaciones básicas, la Conferencia podrá recomendar a los Estados Partes medidas colectivas acordes con el derecho internacional.
+4.- La Conferencia o bien, si el caso es urgente, el Consejo Ejecutivo podrá señalar la cuestión a la atención de las Naciones Unidas, incluyendo la información y las conclusiones pertinentes.
