@@ -1,0 +1,12 @@
+N° 7128
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+REFORMA A LOS ARTICULOS 10, 48, 105 Y 128 DE LA CONSTITUCION POLITICA
+ARTÍCULO 1°.- Refórmanse los artículos 10, 48, 105 y 128 de la Constituci¢n Política, cuyos textos dirán:
+"Artículo 10.- Corresponderá a una Sala especializada de la Corte Suprema de Justicia declarar, por mayoría absoluta de sus miembros, la inconstitucionalidad de las normas de cualquier naturaleza y de los actos sujetos al Derecho Público. No ser n impugnables en esta vía los actos jurisdiccionales del Poder Judicial, la declaratoria de elección que haga el Tribunal Supremo de Elecciones y los demás que determine la ley.
+Le corresponderá además:
+a) Dirimir los conflictos de competencia entre los dos poderes del Estado, incluido el Tribunal Supremo de Elecciones, así como en las demás entidades u órganos que indique la ley.
+b) Conocer de las consultas sobre proyectos de reforma constitucional, de aprobación de convenios o tratados internacionales y de otros proyectos de ley, según se disponga en la ley."
+"Artículo 48.- Toda persona tiene derecho al recurso de hábeas corpus para garantizar su libertad e integridad personales, y al recurso de amparo para mantener o restablecer el goce de los otros derechos consagrados en esta Constitución, así como de los de car cter fundamental establecidos en los instrumentos internacionales sobre derechos humanos, aplicables a la República. Ambos recursos serán de competencia de la Sala indicada en el artículo 10."
+"Artículo 105.- La potestad de legislar reside en el pueblo, el cual delega, por medio del sufragio, en la Asamblea Legislativa. Tal potestad no podrá ser renunciada ni sujeta a limitaciones, mediante ningún convenio o contrato, ni directa ni indirectamente, salvo el caso de los tratados, de conformidad con los principios del Derecho Internacional."
+"Artículo 128.- Si el veto se funda en razones de inconstitucionalidad no aceptadas por la Asamblea Legislativa, esta enviar el decreto legislativo a la Sala indicada en el número 10, para que defienda el diferendo dentro de los treinta días naturales siguientes a la fecha en que reciba el expediente. Se tendr n por desechadas las disposiciones declaradas inconstitucionales y las demás se enviarán a la Asamblea Legislativa para la tramitación correspondiente. Lo mismo se hará con el proyecto de ley aprobado por la Asamblea Legislativa, cuando la sala declare que no contiene disposiciones inconstitucionales".
