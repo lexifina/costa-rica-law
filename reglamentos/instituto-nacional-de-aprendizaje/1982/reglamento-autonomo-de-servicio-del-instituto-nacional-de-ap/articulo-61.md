@@ -1,6 +1,3 @@
-CAPITULO XIV
-Comisiones de seguridad e higiene
-Artículo 61.—Comisiones de salud ocupacional:
-De conformidad con el artículo 288 del Código de Trabajo, en el INA se establecerán las Comisiones de Salud Ocupacional que sean necesarias, integradas por igual número de representantes patronales y de los servidores.
-Dichas comisiones tendrán por finalidad investigar las causas de los riesgos del trabajo, proponer medidas para prevenirlos y vigilar porque las mismas se cumplan. Su constitución se hará conforme con lo dispuesto en el reglamento de la ley.
-(Así reformado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+Artículo 61: Imposición de sanciones.
+Las sanciones por hostigamiento sexual se aplicarán según la gravedad de los hechos y serán las siguientes: amonestación escrita, la suspensión de tres a quince días y el despido, sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo previsto en el Código Penal.
+(Asi adicionado mediante sesión 3255 celebrada el 12 de junio de 1995)

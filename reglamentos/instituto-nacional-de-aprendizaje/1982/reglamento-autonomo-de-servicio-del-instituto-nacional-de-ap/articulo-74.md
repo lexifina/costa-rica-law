@@ -1,2 +1,2 @@
-Artículo 74.—Derogatoria.—Se deroga el reglamento interior de trabajo y cualquier otra norma dictada por la Junta Directiva que se oponga al presente reglamento.
-San José, 28 de enero de 1982.—(O. C. N9 63591).
+Artículo 74, -Presentación de denuncia.—Toda queja o denuncia contra un servidor del INA deberá ser presentada ante el jefe inmediato, quien deberá cumplir con el procedimiento que se indica en los subsiguientes artículos, lo mismo harán los superiores que por cualquier motivo o medio se informaren de la comisión del delito o falta de uno de sus subalternos.
+(Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que pasó de ser artículo 67 al 74)

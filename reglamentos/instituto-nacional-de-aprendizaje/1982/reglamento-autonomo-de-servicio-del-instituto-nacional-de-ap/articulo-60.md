@@ -1,3 +1,3 @@
-Artículo 60. —Instrucciones sobre riesgos:
-El patrono o sus representantes están en la obligación de instruir a los servidores en el sentido indicado en el artículo anterior.
-(Así reformado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+Artículo 60: Medidas cautelares.
+En la fase instructiva, se podrán adoptar medidas cautelares a fin de cesar temporalmente los efectos de un hecho lesivo a los intereses del denunciante, y hasta tanto se resuelva en definitiva el procedimiento. En caso de que la denuncia se instaure contra un docente, la comunicación de la medida cautelar se dirigirá directamente a la Dirección de Asuntos Estudiantiles.
+(Asi adicionado mediante sesión 3255 celebrada el 12 de junio de 1995)

@@ -1,5 +1,6 @@
-Artículo 68.—Trámite de denuncia:
-Recibida la queja por el jefe inmediato, éste dependiendo de la gravedad de la presunta falta, la remitirá al Departamento de Relaciones con el Personal, quien será el encargado de sustanciar la información. Si de los hechos no encontrare mérito para continuar con las diligencias, este Departamento por medio de la resolución razonada, ordenará el archivo del expediente.
-En caso contrario, formulará por escrito los cargos que resultaren, de los cuales dará traslado al servidor por un término de cinco días hábiles, que notificará personalmente o por correo certificado. Dentro de este plazo, el servidor deberá presentar por escrito sus descargos y ofrecer la prueba abono de los mismos. Si no existiera oposición en el término indicado, se entenderá que renuncia a ese derecho.
-Si previo a formularse el traslado de cargos a que se refiere el artículo anterior, resultare necesario la realización de una investigación sumaria, ésta en ningún caso podrá exceder de un mes, a partir de la fecha en que se tuvo conocimiento de los hechos objeto de investigación.
-(Así reformado mediante sesión 2351 celebrada el 3 de noviembre de 1986)
+CAPITULO XV
+Comisiones de seguridad e higiene
+Artículo 68.—Comisiones de salud ocupacional:
+De conformidad con el artículo 288 del Código de Trabajo, en el INA se establecerán las Comisiones de Salud Ocupacional que sean necesarias, integradas por igual número de representantes patronales y de los servidores.
+Dichas comisiones tendrán por finalidad investigar las causas de los riesgos del trabajo, proponer medidas para prevenirlos y vigilar porque las mismas se cumplan. Su constitución se hará conforme con lo dispuesto en el reglamento de la ley.
+(Así corrida la numeración mediante sesión 3255 celebrada el 12 de junio de 1995 por adición de artículos 58 al 64, por lo que este artículo paso de ser el artículo 61 al 68 y el Capítulo XIV pasó a ser XV)

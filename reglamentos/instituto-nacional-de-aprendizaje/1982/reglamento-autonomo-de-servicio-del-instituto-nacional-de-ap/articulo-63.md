@@ -1,3 +1,3 @@
-CAPITULO XV
-Procedimientos
-Artículo 63.-Prescripción.—La prescripción de los derechos se regirá respecto de los servidores, por lo dispuesto en el Reglamento del Estatuto de Servicio Civil y supletoriamente en el Código de Trabajo.
+Artículo 63: Garantías en la docencia.
+En las relaciones de docencia, cuando se compruebe que un instructor del Instituto ha efectuado conductas que se tipifican como hostigamiento sexual contra un alumno o alumna, el estudiante tendrá derecho a que se le restituya en aquellas situaciones en que se haya visto afectado o afectada como producto del hostigamiento sexual. Para tal efecto, la Dirección de Recursos Humanos hará la comunicación de lo resuelto en firme contra el funcionario, a la Dirección de asuntos Estudiantiles, a fin de que ésta proceda conforme a esta disposición.
+(Asi adicionado mediante sesión 3255 celebrada el 12 de junio de 1995)

@@ -24,3 +24,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 9 | 1990-09-12 | Reglamento 2747 (1990-09-12) |
 | 10 | 1992-11-09 | Reglamento 2970 (1992-11-09) |
 | 11 | 1993-08-03 | Reglamento 3048 (1993-08-03) |
+| 12 | 1995-06-12 | Reglamento 3255 (1995-06-12) |
