@@ -1,0 +1,1 @@
+Articulo 11.—Sala de lectura. La Sala de Lectura, es de uso exclusivo para la consulta de material bibliográfico y no podrá ser destinada a otro tipo de actividades, salvo las relativas al funcionamiento y objetivos de la Biblioteca , o a las relacionadas con Capacitación.
