@@ -1,0 +1,1 @@
+Artículo 41.—Si se presentaren memoriales que dirijan los particulares al Concejo Municipal, el Secretario los examinará y si resulta que lo solicitado es de competencia del Alcalde lo enviará a dicho funcionario para que le dé el trámite que corresponda. De lo anterior se informará al Concejo y a los firmantes.

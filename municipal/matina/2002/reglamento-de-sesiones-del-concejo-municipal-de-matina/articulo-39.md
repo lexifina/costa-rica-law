@@ -1,0 +1,1 @@
+Artículo 39.—Cuando el objeto de la audiencia fuera un asunto de competencia del Alcalde Municipal, el Presidente ordenará al Secretario remitir el memorial presentado a dicho funcionario, para que esté le dé el trámite correspondiente, sin perjuicio de que el o los interesados sean oídos en la audiencia.

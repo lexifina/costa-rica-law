@@ -1,0 +1,5 @@
+CAPÍTULO IV
+De las comisiones
+Artículo 31.—En la sesión del Concejo posterior inmediata a la instalación de sus miembros, el Presidente nombrará a los integrantes de las Comisiones Permanentes, cuya conformación podrá variarse anualmente.
+El Concejo integrará como mínimo siete Comisiones Permanentes de Hacienda y Presupuesto, Obras, Asuntos Sociales, Gobierno y Administración, Asuntos Jurídicos, Asuntos Ambientales, Asuntos Culturales y Condición de la Mujer.
+Al integrarlas se procurará que participen en ellas todos los partidos políticos representados en el Concejo. Podrán existir las Comisiones Especiales que decida crear el Concejo, el Presidente Municipal se encargará de integrarlas. Cada Comisión Especial estará integrada al menos por tres miembros: dos deberán ser elegidos de entre los Regidores Propietarios y Suplentes. Podrán ser integrados los Síndicos Propietarios y Suplentes, éstos últimos tendrán voz y voto.

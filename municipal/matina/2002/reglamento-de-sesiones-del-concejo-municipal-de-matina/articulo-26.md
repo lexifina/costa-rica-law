@@ -1,0 +1,1 @@
+Artículo 26.—En cualquier momento del debate los regidores podrán presentar mociones de orden en relación con el asunto que se discute. La moción de orden suspenderá el debate hasta tanto no sea discutida y votada por el Concejo.

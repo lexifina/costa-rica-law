@@ -1,0 +1,1 @@
+Artículo 2º—El Concejo Municipal acordará la hora y el día de sus sesiones ordinarias y los publicará previamente en el Diario Oficial La Gaceta. El Concejo Municipal deberá efectuar como mínimo, una sesión ordinaria semanal.
