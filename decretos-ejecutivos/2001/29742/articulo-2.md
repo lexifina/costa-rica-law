@@ -1,0 +1,1 @@
+2º—Ordenar llevar a cabo los trámites correspondientes para la adquisición del respectivo bien inmueble necesario para el proyecto de obra pública denominado: "Carretera Ciudad Colón-Orotina", de conformidad con lo establecido en a Ley de Expropiaciones Nº 7495 del 3 de mayo de 1995 y sus reformas.
