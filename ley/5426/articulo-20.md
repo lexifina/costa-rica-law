@@ -1,0 +1,1 @@
+Artículo 20.-Los funcionarios del Consejo Nacional de Producción que tengan que velar por el cumplimiento de esta ley, dependerán de la Auditoría de la Institución y tendrán el carácter de inspectores fiscales específicos.
