@@ -1,1 +1,0 @@
-Artículo 2°-Los espectáculos públicos de carácter cultural que hayan obtenido previamente tal calificación de la Universidad de Costa Rica o del Ministerio de Cultura, Juventud y Deportes; y los espectáculos esenciales deportivos, estarán exentos del pago del impuesto.

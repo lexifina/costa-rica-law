@@ -1,1 +1,0 @@
-Artículo 13°-Tanto en el caso de una estimación presuntiva por omisión de declaraciones, como de recalificaciones a las que han sido presentadas, se aplicará el procedimiento que para esos efectos señala el Código Tributario.

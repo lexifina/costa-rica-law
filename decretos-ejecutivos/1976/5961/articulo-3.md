@@ -1,1 +1,0 @@
-Artículo 3°-Son beneficiarios de este impuesto: el Teatro Nacional, la Compañía Nacional de Teatro, la Dirección General de Artes y letras y la Orquesta Sinfónica Nacional, que percibirán ese impuesto respectivamente en las siguientes proporciones: 50%, 30%, 10% y 10%.
