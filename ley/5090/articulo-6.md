@@ -1,0 +1,1 @@
+Artículo 6º.- La Comisión Coordinadora nombrará un Director Ejecutivo Técnico que será a la vez su Secretario General y que tendrá la responsabilidad de velar por la ejecución de sus acuerdos. Este funcionario tendrá la representación legal de la Comisión con las facultades que ella le confiere.

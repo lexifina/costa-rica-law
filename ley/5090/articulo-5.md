@@ -1,0 +1,1 @@
+Artículo 5º.- Todos los organismos públicos o privados, organizados o que se organicen en el futuro para los fines señalados en los artículos 1º y 2º de esta ley, estarán sometidos, en cuanto corresponda a las disposiciones del artículo 3º.
