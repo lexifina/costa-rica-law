@@ -1,3 +1,3 @@
-Articulo 9°—La Mutualidad se pagará de la siguiente, manera:
-De conformidad con lo señalado en el inciso a) del artículo 4° de este Reglamento, tres mil colones.
-Por cada cinco años completos y de ser miembro activo del colegio, recibirá un incremento de cien colones.
+Artículo 9°—La mutualidad se pagará de la siguiente manera:
+a) De conformidad con lo señalado en el inciso a), del artículo No 4 de este reglamento, veinticinco mil colones.
+b) Un incremento de cinco mil colones por cada cinco años completos de ser miembro activo del Colegio.
