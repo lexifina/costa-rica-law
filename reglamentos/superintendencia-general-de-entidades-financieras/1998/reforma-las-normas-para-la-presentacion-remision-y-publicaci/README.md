@@ -14,3 +14,4 @@ Reforma las Normas para la Presentación, Remisión y Publicación de los Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-17 | la propia norma |
+| 2 | 1998-02-17 | Ley 8 |
