@@ -1,0 +1,2 @@
+Artículo 4°-El Poder Ejecutivo al reglamentar esta ley, que comenzará a regir en la fecha de su publicación, dictará las disposiciones conducentes para asegurar el debido control sobre el cobro del impuesto, quedando asimismo autorizado para hacer los arreglos convenientes respecto a saldos atrasados que se adeuden por el impuesto cedular.
+Casa Presidencial.-San José, a los dieciocho días del mes de octubre de mil novecientos cuarenta.
