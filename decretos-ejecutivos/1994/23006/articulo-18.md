@@ -1,0 +1,3 @@
+Artículo 18.—Acceso a expedientes
+Los funcionarios de la Defensoría de los Derechos Humanos de los Privados y Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de Adaptación General de Adaptación Social, tendrán acceso a los expedientes judiciales y administrativos para los efectos de su competencia.
+Los funcionarios de la Defensoría no estarán obligados a suministrar; información a los Privados y Privadas de libertad, cuando existan razones suficientes para contravenir el principio del secreto administrativo, de conformidad con el artículo 273 de la Ley General de la Administración Pública.

@@ -1,0 +1,5 @@
+Artículo 12 .—Competencia
+Este subprograma tendrá competencia frente a todas las dependencias de la Dirección General de Adaptación Social, que atiendan a la población privada de libertad, de conformidad con las siguientes atribuciones y deberes:
+1. Velar por la estricta aplicación de los instrumentos de Derecho Internacional de los Derechos Humanos debidamente ratificados, así como de los derechos libertades y principios constitucionales consagrados en el ordenamiento jurídico vigente, y en especial por la legalidad de los actos administrativos relacionados con la materia penitenciaria.
+2. Velar por la adecuada adopción y cumplimiento de las disposiciones de la Dirección General de Adaptación Social y sus dependencias, relacionadas con la población privada de libertad, procurando que éstas se ajusten ordenamiento vigente.
+3. Ejercer una constante labor de comunicación y colaboración con las autoridades de la Dirección General de Adaptación Social para la búsqueda de soluciones a problemas de naturaleza institucional que sean detectados en ejercicio de su competencia.

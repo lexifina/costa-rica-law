@@ -1,0 +1,2 @@
+Artículo 17.—Ingreso a los centros de Adaptación Social
+Los funcionarios y funcionarías de la Defensoría de los Derechos Humanos de los Privados y Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de Adaptación Social, debidamente identificados, podrán hacer ingreso a los centros de los niveles Institucional y Semi-institucional de la Dirección General de Adaptación Social en los días y horas, hábiles o inhábiles, que estimen convenientes. Será obligación de las autoridades de los centros permitir y facilitar dicho ingreso.

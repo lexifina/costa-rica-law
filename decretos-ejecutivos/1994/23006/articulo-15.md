@@ -1,0 +1,2 @@
+Artículo 15. Legitimación en el procedimiento administrativo
+La Defensoría de los Derechos Humanos de los Privados y Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de Adaptación Social, en representación de éstos, podrá hacer uso de los medios de impugnación establecidos para recurrir las resoluciones de las distintas instancias de la Dirección General de Adaptación Social.

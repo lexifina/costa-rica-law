@@ -1,0 +1,2 @@
+Articulo 2°—De la competencia
+El Programa de Protección y Promoción de los Derechos Humanos promoverá el respeto de los derechos fundamentales de los grupos a los cuales estén dirigidos los subprogramas. Con excepción de la Defensoría de los Privados y Privadas de Libertad, Niños, Niñas y Adolescentes de la Dirección General de Adaptación Social, los subprogramas atenderán aquellas situaciones que surjan de la violación de los derechos humanos de sus grupos atendidos, como resultado de la acción de sujetos particulares.
