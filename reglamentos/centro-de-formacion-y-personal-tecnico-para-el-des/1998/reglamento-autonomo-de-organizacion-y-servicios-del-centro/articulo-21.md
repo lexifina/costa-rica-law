@@ -1,0 +1,2 @@
+Artículo 21.—Fijación de la fecha del disfrute. En coordinación con el Encargado (a) de Recursos Humanos, el respectivo Jefe inmediato señalará la época en que los servidores disfrutarán de sus vacaciones.
+Si pasadas quince semanas desde que se cumplieron las respectivas cincuenta y dos semanas de trabajo no se hubiese hecho tal señalamiento el funcionario deberá reclamar por escrito sus vacaciones.

@@ -1,0 +1,1 @@
+Artículo 16.—Revaloraciones. El CEFOF pondrá en vigencia inmediatamente, cuando las condiciones presupuestarias lo permitan y sin perjuicio de la respectiva aprobación presupuestaria por parte de la Contraloría General de la República, los aumentos de salarios que corresponden a revaloraciones generales dictadas por la Autoridad Presupuestaria.

@@ -1,0 +1,1 @@
+Artículo 22.—Acumulación. Las vacaciones podrán acumularse por una sola vez, mediante resolución razonada de la Dirección correspondiente, dentro de los términos del artículo 159 del Código de Trabajo.

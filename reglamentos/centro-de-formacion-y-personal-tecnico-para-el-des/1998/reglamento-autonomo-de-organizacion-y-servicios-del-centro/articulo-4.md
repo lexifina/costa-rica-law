@@ -1,0 +1,1 @@
+Artículo 4.—Normas aplicables a la relación laboral. Los uncionarios del CEFOF deben obedecer los acatamientos emanados por el Consejo Directivo, así como reglamentos que éste apruebe. Cualquier misión será regulada por el Código de Trabajo, en carácter supletorio.

@@ -1,0 +1,2 @@
+Artículo 30.—Licencia por gravidez. Todas las funcionarías en estado de gravidez, tendrán derecho a licencia con goce de sueldo completo durante un mes anterior y los tres posteriores al alumbramiento. El CEFOF completará el monto del subsidio pagado por la Caja Costarricense del Seguro Social.
+Las funcionarias deberán tramitar su incapacidad por medio del Director de su área. Ello, con quince días de anticipación a su retiro.

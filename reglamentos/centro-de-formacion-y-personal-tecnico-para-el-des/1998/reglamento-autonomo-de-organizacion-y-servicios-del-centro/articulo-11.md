@@ -1,0 +1,1 @@
+Artículo 11.—Días feriados y no hábiles. Se consideran días feriados y no hábiles los sábados, domingos y demás días establecidos en el artículo 147 del Código de Trabajo, así como los que declare de asueto el Poder Ejecutivo de la República.

@@ -1,0 +1,1 @@
+Artículo 45.—Procedimiento. La persona ofendida podrá poner en conocimiento el acto de hostigamiento ante el Encargado (a) de Recursos Humanos o al Director (a) Ejecutivo (a), en un plazo no mayor de diez días naturales deberá de dar respuesta de la investigación realizada, y las recomendaciones de sanción para que el Director (a) Ejecutivo (a) actúe de acuerdo a lo recomendado.

@@ -1,0 +1,1 @@
+Artículo 19.—Vacaciones proporcionales. Para tener derecho a vacaciones, es necesario que el funcionario haya prestado sus servicios durante cincuenta y dos semanas continuas, si por cualquier causa no completare este término, tendrá derecho a vacaciones en forma proporcional a razón de un día por mes laborado.

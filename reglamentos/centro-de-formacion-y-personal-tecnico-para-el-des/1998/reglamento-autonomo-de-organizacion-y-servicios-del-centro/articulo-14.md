@@ -1,0 +1,1 @@
+Artículo 14.—Prestaciones legales de interinos. Los funcionarios nombrados interinamente en plazas del CEFOF a plazo fijo, cuando por cualquier causa su trabajo exceda de un año, tienen derecho al pago de los beneficios del preaviso y del auxilio de cesantía, salvo cese por justa causa.

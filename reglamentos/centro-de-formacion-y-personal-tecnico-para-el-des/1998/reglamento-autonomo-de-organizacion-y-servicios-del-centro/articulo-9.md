@@ -1,0 +1,1 @@
+Artículo 9.—Descanso para tomar alimentos. Dentro de la jornada ordinaria de trabajo, todo funcionario tiene derecho a un descanso máximo de 15 minutos en el período de la mañana y otro de 60 minutos a medio día para alimentación, sin que exista interrupción de las labores de las dependencias.

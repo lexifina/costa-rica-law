@@ -1,0 +1,1 @@
+Artículo 38.—Prescripción. Toda sanción disciplinaria deberá imponerse dentro del mes siguiente a la fecha en que se cometió la falta o en su defecto de la fecha en que los representantes patronales tuvieron conocimiento de ella.

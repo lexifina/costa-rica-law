@@ -1,0 +1,1 @@
+Artículo 2.—Ámbito de aplicación. Este reglamento se aplica a todos los funcionarios del CEFOF ligados por una relación laboral, con excepción del Director (a) Ejecutivo (a) y los miembros del Consejo Directivo.
