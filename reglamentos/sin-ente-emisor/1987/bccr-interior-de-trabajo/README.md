@@ -14,3 +14,4 @@ BCCR: Interior de Trabajo
 | --- | --- | --- |
 | 1 | 1987-10-30 | la propia norma |
 | 2 | 2002-04-10 | Reglamento 5113 (2002-04-10) |
+| 3 | 2002-04-10 | Ley 8 |
