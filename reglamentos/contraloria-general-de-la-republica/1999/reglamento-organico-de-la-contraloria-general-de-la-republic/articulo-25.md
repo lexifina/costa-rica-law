@@ -8,3 +8,4 @@ c) El estudio de aspectos relativos a su campo, que deban examinarse para el tr�
 4) Realizar inspecciones en obras públicas, terminadas o en ejecución, a fin de evaluar el desarrollo de las mismas.
 5) Informar a los superiores o directamente a las autoridades administrativas que corresponda, cuando se determinen deficiencias o irregularidades en obras públicas terminadas o en ejecución.
 6) Efectuar todas aquellas otras funciones, propias de la Dirección, que le corresponda realizar a la Contraloría General de conformidad con las disposiciones legales.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 19 de octubre de 1999)

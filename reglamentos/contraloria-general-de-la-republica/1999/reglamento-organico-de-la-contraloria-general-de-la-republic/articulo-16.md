@@ -1,1 +1,2 @@
 Artículo 16.—En el curso de cada auditoria o estudio especial de auditoria se formularán, al órgano o ente que se esté auditando, por medio de oficios, las observaciones, comentarios, recomendaciones y disposiciones que se consideren pertinentes en relación con los asuntos tratados. Lo anterior podrá hacerse por medio de informes parciales, o reservarse para el informe final, cuando la naturaleza de dichos asuntos así lo amerite.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 19 de octubre de 1999)

@@ -1,1 +1,2 @@
 Artículo 38.—Al Departamento de Capacitación le corresponde desarrollar todas las actividades de formación, seminarios o congresos que realice la Contraloría, para sus propios funcionarios o para servidores del resto del sector público. Además, debe atender el funcionamiento de la biblioteca.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 19 de octubre de 1999)

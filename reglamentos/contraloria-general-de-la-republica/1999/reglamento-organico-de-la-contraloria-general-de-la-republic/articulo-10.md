@@ -1,1 +1,2 @@
 Artículo 10.—Esta Dirección, conforme con sus necesidades, se subdividirá en Departamentos. Estará a cargo de un director asistido por un director adjunto y por los jefes y subjefes de departamento y contará con el personal técnico y administrativo que requiera para el cumplimiento de sus funciones.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 19 de octubre de 1999)
