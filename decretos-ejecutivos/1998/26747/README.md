@@ -15,3 +15,4 @@ Crea Programas Nacionales Sectoriales Adscritos a SEPSA
 | --- | --- | --- |
 | 1 | 1998-03-17 | la propia norma |
 | 2 | 2002-03-19 | Decreto Ejecutivo 30271 (2002-03-19) |
+| 3 | 2002-03-19 | Ley 8 |
