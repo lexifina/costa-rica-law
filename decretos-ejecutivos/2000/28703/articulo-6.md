@@ -1,0 +1,1 @@
+Artículo 6º—Todos los animales, productos y subproductos destinados al comercio deberán ser identificados con marcas indelebles, siguiendo los procedimientos establecidos por el Sistema Nacional de Áreas de Conservación.

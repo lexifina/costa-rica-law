@@ -1,0 +1,1 @@
+Artículo 5º—Los criaderos autorizados deberán adjuntar informes avalados por el profesional Regente, sobre inventarios de animales destinados al comercio interno y para la exportación dos veces al año, según sea los períodos reproductivos de las especies.
