@@ -25,7 +25,8 @@ Centro de Formación de Formadores 337,5
 Centro Cost. Producción Cinematográfica 58,1
 Centro Cultural Histórico José Figueres Ferrer 19,7
 Centro Nacional de Drogas 560,4
-Centro Univ. Para el Desarrollo del Trópico Seco 154,8
+Centro Univ. Para el Desarrollo del Trópico Seco 283.8
+(Así modificado mediante artículo 1° del Decreto Ejecutivo N° 31065 de 4 de febrero de 2003).
 Colegio de San Luis Gonzaga 97,4
 Colegio Universitario de Alajuela 917,7
 Colegio Universitario de Cartago ¢722.7 millones.
@@ -47,7 +48,8 @@ Consejo Nacional de Rehabilitación 666,0
 Consejo Nacional Persona Adulto Mayor 1.213,0
 Consejo Técnico de Asistencia Médico Social CTAMS 1.116.3
 Consejo Transporte Público 628,5
-Direc. Serv. de Protec. Fitosanitaria 868,4
+Direc. Serv. de Protec. Fitosanitaria 1.600,0
+(Así modificado por Decreto Ejecutivo N° 31048 de 11 de febrero de 2003)
 Direc. Salud y Produc. Pecuaria 637,0
 Dirección Ejecutora de Proyectos PL 480 247,3
 Dirección General Archivo Nacional 450,1
@@ -56,13 +58,15 @@ Editorial Costa Rica 109,6
 Escuela Centroamericana de Ganadería 514,6
 Estaciones Experimentales MAG 143,0
 Fábrica Nacional de Licores 1.636,6
-Fondo de Parques Nacionales 1.372,4
+Fondo de Parques Nacionales 1.762
+(Así modificado por Decreto Ejecutivo N° 31021 de 14 de febrero de 2003)
 Fondo Forestal 76,2
 Fondo Nacional Ambiental 6,3
 Fondo Vida Silvestre 11,6
 Instituto Costarricense de Investigaciones y Enseñanza en
 Nutrición y Salud (incluye Asignaciones Fam.) 916,9
-Instituto Cost. del Deporte y la Recreación 1.210,5
+Instituto Cost. del Deporte y la Recreación 2.660,5
+(Así modificado por Decreto Ejecutivo N° 31047 de 17 de febrero de 2003)
 Instituto Costarricense de Acued. y Alcantarillado 28.129,2
 Instituto Costarricense de Ferrocarriles 1.293,7
 Instituto Costarricense de Pesca 833,4

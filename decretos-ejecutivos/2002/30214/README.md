@@ -24,3 +24,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 9 | 2002-12-09 | Decreto Ejecutivo 30907 (2002-12-09) |
 | 10 | 2003-01-27 | Decreto Ejecutivo 31006 (2003-01-27) |
 | 11 | 2003-02-04 | Decreto Ejecutivo 31012 (2003-02-04) |
+| 12 | 2003-02-11 | Decreto Ejecutivo 31048 (2003-02-11) |
