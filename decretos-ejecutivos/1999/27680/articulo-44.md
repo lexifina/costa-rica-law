@@ -1,1 +1,0 @@
-Artículo 44.—De la aprobación de las pruebas por suficiencia. Para aprobar una asignatura por suficiencia, el estudiante debe obtener al menos la nota mínima establecida en el artículo 31, capítulo I de este reglamento. Un estudiante que no aprobare la asignatura en la prueba por suficiencia sólo podrá aprobarla mediante otro de los procedimientos establecidos en este reglamento.

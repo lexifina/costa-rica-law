@@ -1,1 +1,0 @@
-Artículo 33.—De las condiciones de aprobación del año escolar. El estudiante que aprobare todas las asignaturas tendrá derecho a ubicarse en el año escolar inmediato superior respectivo o bien tendrá derecho a ostentar la condición de egresado del respectivo nivel, según corresponda.

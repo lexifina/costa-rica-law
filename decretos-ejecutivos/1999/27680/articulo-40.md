@@ -1,1 +1,0 @@
-Artículo 40.—De las pruebas por suficiencia. Las pruebas por suficiencia son instrumentos de medición que se pueden aplicar a aquellos estudiantes de colegios nocturnos que consideran que tienen el dominio completo de la temática y los objetivos programáticos de determinada asignatura y que así lo soliciten de conformidad con lo que señala este reglamento.

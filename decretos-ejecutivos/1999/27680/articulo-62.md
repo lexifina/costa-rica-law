@@ -1,1 +1,0 @@
-Artículo 62.—De la composición de la calificación de la conducta en el I ciclo. La calificación de la conducta del estudiante en I ciclo, será el resultado de la sumatoria de los siguientes porcentajes: 90% correspondiente a la evaluación unidireccional y 10% correspondiente a la coevaluación realizada por la directiva de la sección.

@@ -1,1 +1,0 @@
-Artículo 58.—De la puntualidad y la asistencia. La puntualidad y la asistencia del estudiante a las lecciones y a otras actividades curriculares o extracurriculares debidamente convocadas es obligatoria y se calificará con un porcentaje de un 10% de la nota final de la respectiva asignatura, tal y como se señala en el artículo 29 de este reglamento.

@@ -1,1 +1,0 @@
-Artículo 24.—De la definición de trabajo cotidiano. Se entiende por trabajo cotidiano las actividades que realiza el alumno con la guía del docente. Este se observa en forma continua, durante el desarrollo de las lecciones, como parte del proceso de aprendizaje y no como producto.

@@ -1,1 +1,0 @@
-Artículo 63.—De la composición de la calificación de la conducta en el II ciclo. La calificación de la conducta del estudiante en II ciclo, será el resultado de la sumatoria de los siguientes porcentajes: 85% correspondiente a la evaluación unidireccional y 15% correspondiente a la coevaluación realizada por la directiva de la sección

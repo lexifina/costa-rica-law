@@ -1,1 +1,0 @@
-Artículo 73.—De las condiciones para aplicar acciones correctivas. La aplicación de las acciones correctivas al estudiante se hará tomando como referencia el cumplimiento de los deberes que se señalan en el artículo 55 de este reglamento o en el Reglamento Interno de la Institución y de acuerdo con la tipificación señalada en el artículo anterior.

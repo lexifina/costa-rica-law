@@ -1,1 +1,0 @@
-Artículo 56.—De las características de la evaluación de la conducta. La evaluación de la conducta de los estudiantes, en todos los niveles, ramas y modalidades del sistema educativo formal, será sumativa; utilizará la escala numérica de 1 a 100 y se realizará mediante los procesos de coevaluación y de evaluación unidireccional que se definen en los siguientes artículos.

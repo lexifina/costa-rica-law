@@ -1,3 +1,0 @@
-SECCION IV
-La Promoción en la Educación General Básica y la Educación Diversificada
-Artículo 31.—Del promedio anual mínimo para aprobar cada asignatura. El estudiante de I, II o III Ciclos de la Educación General Básica que alcanzare un promedio anual igual o superior a sesenta y cinco tendrá condición de aprobado en la respectiva asignatura, sin perjuicio de lo que indica el artículo 69 de este reglamento. De igual forma, el estudiante de Educación Diversificada que alcanzare un promedio anual igual o superior a setenta tendrá la condición de aprobado en la respectiva asignatura, sin perjuicio de lo que indica el artículo 69 de este reglamento. Quien no alcance el promedio anual señalado en los párrafos anteriores se tendrá como aplazado.

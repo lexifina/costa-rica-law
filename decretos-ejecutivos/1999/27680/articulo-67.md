@@ -1,1 +1,0 @@
-Artículo 67.—De la condición de aplazado en conducta. El estudiante que – en el promedio anual o en el último período - obtuviere una calificación de conducta inferior al mínimo establecido en el artículo anterior tendrá, en consecuencia, la condición de aplazado(a) en conducta.

@@ -1,1 +1,0 @@
-Artículo 57.—De la calificación de la conducta como resultado de un proceso de recolección de información. La calificación de la conducta será el resultado de un proceso de recolección de información que permita determinar, en cada uno de los períodos, el cumplimiento de los sus deberes, las normas y los reglamentos, por parte del estudiante.

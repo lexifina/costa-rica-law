@@ -1,1 +1,0 @@
-Artículo 86.—De la responsabilidad de la institución con el estudiante a quien se aplica una acción correctiva. La institución educativa debe dar orientación y seguimiento al estudiante que hubiese incurrido en faltas, con el propósito educativo de que éste modifique para bien su conducta e interiorice una actitud favorable a una armónica convivencia social.

@@ -1,1 +1,0 @@
-Artículo 69.—De los requisitos de aprobación para un estudiante aplazado en conducta. Si un estudiante estuviese aplazado en conducta, y no estuviese aplazado en más de dos de las otras asignaturas, podrá aprobar el curso lectivo sólo si presenta y aprueba los exámenes de aplazados de todas aquellas otras asignaturas en las que haya obtenido un promedio anual inferior a 80.

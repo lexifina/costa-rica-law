@@ -1,1 +1,0 @@
-Artículo 65.—De la nota mínima de conducta en el primer periodo. La nota mínima de conducta que se puede asignar a un estudiante como calificación del primer período será de 50 para el I y II ciclos y de 40 para el III ciclo y educación diversificada.
