@@ -1,0 +1,2 @@
+Art. 3°-Designanse igualmente las tres de la tarde del mismo, para que los Alcaldes Constitucionales y Regidores Municipales presten el juramento de ley ante los respectivos Gobernadores y Jefes Políticos.
+Dado en el Palacio Presidencial, en San José, à los veintisiete días del mes de julio de mil ochocientos ochenta y dos. –P. FERNÁNDEZ. -El Secretario de Estado en el Departamento de Gobernación: A. BONILLA.
