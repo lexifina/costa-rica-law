@@ -1,0 +1,1 @@
+Artículo 9° Si de los informes a que el artículo anterior se refiere resultase que alguno de los agraciados no llenare satisfactoriamente sus obligaciones, el Ejecutivo retirará la beca o becas correspondientes, quedando los retirados o sus fiadores en la obligación de devolver al Tesoro Público el valor de todos los gastos hechos con motivo de la concesión de que disfrutaban.

@@ -1,0 +1,1 @@
+Artículo 7° Los gastos mensuales para la manutención y aprendizaje de cada uno de los jóvenes agraciados no excederán de cincuenta pesos oro, fuera de cien anuales para los gastos de matricula, y los pasajes de ida y de vuelta.
