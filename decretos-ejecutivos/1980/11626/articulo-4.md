@@ -1,0 +1,1 @@
+Artículo 4°-Los recibos para el cobro de derecho, arriendo y demás servicios de casilleros postales constarán de tres tantos, un original para el arrendatario, un duplicado que se remitirá a la Tesorería de la Dirección Nacional de Comunicaciones al instante del depósito correspondiente, y un triplicado que se conservará en la Administración de Comunicaciones respectiva.

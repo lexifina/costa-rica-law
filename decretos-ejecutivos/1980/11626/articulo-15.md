@@ -1,0 +1,1 @@
+Artículo 15.- Ningún abonado podrá hacer llaves del casillero postal que arriende sin el consentimiento expreso de la Dirección Nacional de Comunicaciones. El abonado que infrinja esta disposición, perderá el derecho de arriendo.

@@ -1,0 +1,1 @@
+Artículo 16.-Al separarse o ausentarse el Administrador de Comunicaciones de su puesto entregará bajo recibo al nuevo Administrador todo el dinero proveniente de arriendo de casilleros postales y depósitos de llaves, que se encuentran en su poder.
