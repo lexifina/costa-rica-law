@@ -1,0 +1,1 @@
+Artículo 6°-Se autoriza al Tesorero Municipal, para entregar vales de caja chica a empleados Municipales, para la adquisición de Bienes y Servicios, quedando éstos obligados a entregar en un plazo improrrogable de 24 horas, el correspondiente justificante o la devolución del dinero. De lo contrario el empleado responsable será objeto de la sanción que corresponda.

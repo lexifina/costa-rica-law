@@ -1,0 +1,1 @@
+Artículo 12.-Cuando el proveedor del bien o servicio no suministre la factura o recibo de dinero correspondiente, deberá confeccionarse un documento interno denominado "Comprobante de Caja Chica", para amparar el egreso. (Servicio de Bus-taxi y similares).

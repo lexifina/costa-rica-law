@@ -1,0 +1,1 @@
+Artículo 3°-Con el fondo se atenderán exclusivamente la adquisición de Bienes y Servicios en situaciones de necesidad imprevisibles, de verdadera urgencia comprobada y aquellos que por su naturaleza y monto no se justifique la emisión de un cheque y se exceptúan del trámite de orden de compra.

@@ -1,0 +1,1 @@
+Artículo 5°- Todo egreso mediante éste sistema, debe ser autorizado por el Ejecutivo Municipal al reverso del justificante, debe indicarse además, el destino del bien o servicio adquirido, firma y número de cédula del Empleado que retira.

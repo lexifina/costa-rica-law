@@ -1,0 +1,1 @@
+Artículo 10.-En el evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente de la Municipalidad con crédito a otros ingresos y efectuar las revisiones pertinentes para determinar su origen, en caso de no poder determinarlo, la suma sobrante se incluirá dentro del proceso de liquidación normal de ejercicio anual.

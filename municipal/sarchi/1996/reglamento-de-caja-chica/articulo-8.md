@@ -1,0 +1,1 @@
+Artículo 8°-El fondo de Caja Chica estará sujeto a arqueos periódicos y sin previo aviso por parte de la Auditoría Municipal, debe que al constatado por escrito y firmado por la persona que lo efectuare y por el encargado del fondo, en caso de no existir Auditor debidamente nombrado, el arqueo puede ser realizado por el Contador Municipal.
