@@ -1,3 +1,4 @@
-Artículo 3°—Habrá una Comisión de Mercado, compuesta por tres miembros del Concejo escogidos por el Presidente Municipal, tres representantes de los comerciantes escogidos por los inquilinos y el Administrador.
-Esta Comisión se nombrará cada año en la primera quincena del mes de mayo.
-Tiene como funciones prioritarias, asesorar, vigilar el mantenimiento y ordenamiento de lo estipulado en el reglamento, coordinar todo lo pertinente con permiso de remodelación, cambios de línea y mejoras del inmueble, recomendando al Concejo la aprobación.
+Artículo 3º—Habrá una comisión de mercado, compuesta por siete miembros: tres miembros del Consejo Municipal, tres concesionarios inquilinos del mercado municipal de Heredia, inscritos como tales en los registros que la Municipalidad lleva para tal efecto y el administrador del mercado -los seis miembros serán designados por el presidente del Consejo Municipal como así lo estipula el artículo 34 del Código Municipal en su inciso g)-
+Esta comisión se nombrará cada año, en la primera quincena del mes de mayo.
+Tiene como funciones prioritarias: asesorar, vigilar el mantenimiento y ordenamiento de lo estipulado en este reglamento, coordinar y dictaminar todo lo referente a permisos de remodelación, cambios de línea comercial y mejoras del inmueble, dictaminando y recomendando al Consejo Municipal lo que considere prudente.
+(Así reformado mediante sesión ordinaria N° 80-03, celebrada por la Municipalidad del cantón central de Heredia, el día 7 de abril del 2003.)

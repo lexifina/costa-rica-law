@@ -17,3 +17,4 @@ Reglamento del Mercado Municipal de Heredia
 | 2 | 1997-07-28 | Reglamento municipal 423 (1997-07-28) |
 | 3 | 2000-06-05 | Reglamento municipal 187 (2000-06-05) |
 | 4 | 2000-09-25 | Reglamento municipal 212 (2000-09-25) |
+| 5 | 2003-04-07 | Reglamento municipal 80 (2003-04-07) |
