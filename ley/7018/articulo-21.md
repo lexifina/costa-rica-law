@@ -20,7 +20,7 @@ Desarrollo Urbanístico.
 b) Atención médica. Se destinarán ¢ 600.000,00 para la compra de
 equipo e instrumental médico para el dispensario "Arturo Romero",
 construido por la empresa, que está al servicio de los trabajadores.
-c) Biblioteca escolar. Los restantes ¢ 77.172,50, más ¢ 50.000.00
-que aportará la empresa, se utilizarán en la compra de libros y material
+c) Biblioteca escolar. Los restantes ¢ 77.172,50, más ¢ 50.000.00 que
+aportará la empresa, se utilizarán en la compra de libros y material
 didáctico para la Escuela Mario Fernández Alfaro, construida por la
 empresa, al servicio de la comunidad de Aguacaliente de Cartago.

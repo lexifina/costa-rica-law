@@ -1,8 +1,1 @@
-Artículo 38.- Los funcionarios de la Guardia de Asistencia Rural y de
-la Guardia Civil que ejerzan labores administrativas, aunque sean
-funcionarios dados de alta que se desempeñen dentro de una unidad policial,
-que hubieren sido nombrados como guardias a la fecha primero de mayo de
-1984 y que hayan prestado sus servicios por un tiempo no menor de seis
-meses en esos puestos, quedarán incluidos de pleno derecho dentro del
-Régimen de Servicio Civil. Para tal efecto, se considerará que las plazas
-afectadas son administrativas.
+Artículo 38.- Inaplicable. (La Corte Suprema de Justicia, mediante resolución de las 8:00 horas del 22 de abril de 1988 (expediente N° 56-87, promovido por el Instituto de Desarrollo Agrario) declaró inconstitucional e inaplicable este artículo cuyo texto disponía textualmente: “Los funcionarios de la Guardia de Asistencia Rural y de la Guardia Civil que ejerzan labores administrativas, aunque sean funcionarios dados de alta que se desempeñen dentro de una unidad policial, que hubieren sido nombrados como guardias a la fecha primero de mayo de 1984 y que hayan prestado sus servicios por un tiempo no menor de seis meses en esos puestos, quedarán incluidos de pleno derecho dentro del Régimen de Servicio Civil. Para tal efecto, se considerará que las plazas afectadas son administrativas.”)
