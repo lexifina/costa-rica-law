@@ -1,0 +1,8 @@
+Art. 2°-Estas tierras no serán denunciadas ni adjudicadas consiguientemente, sino por lotes, y conforme las condiciones y reglas que se expresan:
+Regla 1°. – Bien sea que el denuncio se haga á uno ú otro lado de la línea férrea, la medida no deberá empezar sino con cien pies de distancia de la misma línea.
+Regla 2°-El terreno á una y otra orilla se dividirá en lotes de una milla cada uno, dejando entre lote y lote una calle de cincuenta varas de ancho, cuyo limite llegará hasta donde alcancen los terrenos baldíos.
+Regla 3°-El denuncio es admisible por todo ó parte de la milla de frente de calle á calle; pero sin que el largo del terreno que se denuncie, exceda en rin calles paralelas á uno y otro lado del Ferro-carril, que servirán de limites para los que adquieran propiedad en esos terrenos.
+Regla 4°. -A cada mil quinientas varas se dejarán calles paralelas á uno u otro lado del Ferro-carril, que servirán de límites para los que adquieran propiedad en esos terrenos.
+Regla 5°-Para los primeros lotes, ó sea los que sólo distan cien pies de la línea, se señala como base para el remate, el precio de diez pesos por manzana, siendo de cuenta del denunciante los gastos de medida y los demás, establecidos por las leyes en semejantes casos.
+Regla 6°--Para los lotes que de las primeras calles paralelas al Ferro-carril, continúen con el mismo frente de una milla, y con mil quinientas varas de largo, se asigna como base del remate la suma de cinco pesos.
+Regla 7°-_Para los lotes que se denunciaren de las segundas calles paralelas, con el mismo frente y largo, se señala la cantidad de tres pesos por manzana; y para los de esa calle en adelante, la de dos pesos manzana.
