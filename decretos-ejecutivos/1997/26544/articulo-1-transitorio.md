@@ -1,0 +1,1 @@
+TRANSITORIO I.—Dentro de los seis meses siguientes a la entrada en vigencia de este Reglamento, se procederá a establecer los procedimientos referidos en los artículos 5 inciso c), 19 y 20 del presente I Reglamento.
