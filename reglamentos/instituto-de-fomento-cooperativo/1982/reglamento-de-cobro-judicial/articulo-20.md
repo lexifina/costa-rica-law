@@ -1,0 +1,1 @@
+Artículo 20.—Todos los abogados encargados de la atención y tramitación de juicios, tendrán una copia del presente reglamento y firmarán, contra la entrega del mismo por parte de la oficina de cobro, un recibo en el que se hará constar tal circunstancia, así como su conformidad con todas las estipulaciones de dicho reglamento.
