@@ -1,0 +1,1 @@
+Artículo 5°-Todo propietario(a) para la construcción de cercas, tapias o muros frente a su propiedad, deberá solicitar a la Municipalidad, el alineamiento correspondiente y el permiso de construcción. La Municipalidad tendrá un plazo máximo de quince días hábiles, después de presentada la solicitud. para dar el alineamiento respectivo.
