@@ -1,8 +1,8 @@
 Artículo 10.- Créase la Oficina Nacional de Normas y Unidades de
 Medida dependiente del Ministerio de Economía, Industria y Comercio, con
 las siguientes funciones:
-a) Coordinar la acción de los diferentes organismos estatales para el
-efectivo cumplimiento de esta ley;
+a) Coordinar la acción de los diferentes organismos estatales para
+el efectivo cumplimiento de esta ley;
 b) Estudiar los problemas que en general se presenten por la
 implantación del Sistema Internacional de Unidades en el comercio, la
 agricultura, los servicios, la industria y las actividades estatales,
@@ -15,11 +15,11 @@ Unidades;
 e) Mantener en depósito los patrones oficiales de medición;
 f) Realizar las actividades de inspección y control inherente a sus
 funciones;
-g) Recopilar las normas internacionales vigentes o de los principales
-países industriales y mantener la colección al día;
-h) Recomendar la adopción de una determinada norma internacional sobre
-nomenclatura, calidad y funcionamiento aplicable a la industria y a los
-productos industriales; e
+g) Recopilar las normas internacionales vigentes o de los
+principales países industriales y mantener la colección al día;
+h) Recomendar la adopción de una determinada norma internacional
+sobre nomenclatura, calidad y funcionamiento aplicable a la industria y a
+los productos industriales; e
 i) Toda otra que sus reglamentos o las leyes le encomienden.
 Esta Oficina reemplaza al Comité de Normas y Asistencia Técnica
 Industrial, asumiendo las funciones actualmente encomendadas a éste.

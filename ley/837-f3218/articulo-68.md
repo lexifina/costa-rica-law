@@ -1,3 +1,4 @@
 Artículo 68.- El Consejo Nacional de Inversiones
 Se crea el Consejo Nacional de Inversiones, integrado por dos ministros del sector económico o sus representantes, por el Director Ejecutivo del Centro para la Promoción de las Exportaciones y las Inversiones, y por dos representantes del sector privado pertenecientes a esta última dependencia, escogidos por el Presidente de la República. El Poder Ejecutivo reglamentará su funcionamiento.
 (Así adicionado por el artículo 40 de la ley N° 6955 del 24 de febrero de 1984)
+(Nota de Sinalevi: Mediante el artículo 11 de la ley N° 6999 del 3 de setiembre de 1985 se interpretó este artículo en el sentido de que: “…pueden otorgarse a las organizaciones cooperativas certificados de abono tributario (CATS), certificados de incremento a las exportaciones (CIEX), e incentivos a la exportación, en tanto se reúnan los demás requisitos que señalan las leyes supracitadas:”)
