@@ -1,0 +1,1 @@
+Artículo 2°-Los derechos a que se refiere la presente ley, son los que se originan por depósitos de mercaderías en las aduanas, según los artículos 104 y 106 del Código Fiscal referidos en la ley N° 1432 de 17 de marzo de 1952. (Reforma a los artículos 104 y 106 del Código Fiscal y derogatoria del Decreto N° 1396 de 30 de noviembre de 1951.)
