@@ -1,0 +1,1 @@
+Art. 2. En caso de duda acerca de la calidad de la moneda, el que entera y el que la recibe ocurrirán á la autoridad competente para que en el acto decida la cuestion sin gravamen de las partes, inutilizandose en seguida la moneda si fuese falsa ó contrahecha.
