@@ -1,5 +1,6 @@
 Requisito de las Papeletas
-Artículo 27.- Las papeletas serán marcadas con el sello blanco del Registro, llevarán la firma de puño y letra del Director de ese Registro, o la misma firma por medio del sistema conocido con el nombre de Protectograph Signer, y contendrán los siguientes requisitos:
+Artículo 27.- Las papeletas serán marcadas con un sello a color del Tribunal Supremo de Elecciones y llevará la forma de puño y letra del Director del Registro, o la misma firma por medio del sistema conocido con el nombre “protectograph signer”, y contendrán los siguientes requisitos:
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 2800 del 22 de agosto de 1961)
 a) Todas serán de igual forma y modelo en papel no transparente;
 b) El tamaño será fijado por el mismo Director, de acuerdo con el número de nombres que cada una deba contener;
 c) La lista de candidatos irá en columna vertical, y cada columna estará separada por una línea también vertical;
