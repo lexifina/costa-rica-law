@@ -1,0 +1,2 @@
+Artículo 4º.- Se reforma el artículo 5º de la Ley de Asociaciones Cooperativas, Nº 4179 de 22 de agosto de 1968, a fin de que se le agregue un inciso con el siguiente texto:
+"j) Derecho a obtener del Instituto Nacional de Seguros, al costo, las pólizas que dicha Institución extiende, pero exclusivamente a través de Uniones, Federaciones o de la Confederación Nacional de Cooperativas, que la presente ley autoriza".
