@@ -1,0 +1,2 @@
+Artículo 14.—De conformidad con el artículo 47 del Código Municipal, por afectar a terceros se somete a consulta pública el presente proyecto de Reglamento 9 por el plazo de diez días hábiles, contados a partir del día siguiente de la presente publicación transcurridos los cuales, sin que exista oposición, se publicará nuevamente y regirá a partir de su publicación.
+Aprobado en sesión ordinaria número sesenta y cuatro del día diez de noviembre de mil novecientos noventa y cuatro por el Concejo Municipal.
