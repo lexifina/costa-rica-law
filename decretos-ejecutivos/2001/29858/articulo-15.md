@@ -1,2 +1,0 @@
-Artículo 15.—Solicitudes incompletas y archivo del expediente. Si se presentaren solicitudes que estuvieren incompletas, no serán tramitadas y por única vez la Comisión apercibirá al interesado para que en el plazo no mayor a tres días hábiles proceda a subsanar las omisiones.
-Transcurrido dicho término sin que se hubieren subsanado la totalidad de las omisiones, la Comisión emitirá un acto en el que se ordena el archivo del expediente, la cual se notificará al interesado.

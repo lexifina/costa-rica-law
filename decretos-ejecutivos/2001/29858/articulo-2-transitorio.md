@@ -1,2 +1,0 @@
-Transitorio 2º—En el caso de las gestiones administrativas que se hubieren presentado acompañadas de los requisitos del caso y que estuvieren pendientes de resolver por parte de la Comisión de Carreteras de Acceso Restringido y Semirestringido, deberá esta dependencia administrativa emitir la resolución que corresponda en el término no mayor a los ocho días hábiles siguientes a la publicación del presente Decreto.
-Rige a partir de su publicación.

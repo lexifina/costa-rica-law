@@ -1,1 +1,0 @@
-Artículo 27.—Reglamentación interna. Para el óptimo funcionamiento de la Comisión de Carreteras de Acceso Restringido y Semirestringido, ésta podrá emitir las reglamentaciones complementarias que estime necesarias.
