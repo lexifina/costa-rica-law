@@ -1,0 +1,1 @@
+ARTICULO 3°.- Autorizase al Procurador General de la República para comparecer en el otorgamiento de la correspondiente escritura de venta de las propiedades a que se contrae esta ley, así como para corregir o suplir los datos que sean necesarios para su inscripción en el Registro Público.
