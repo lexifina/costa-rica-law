@@ -1,0 +1,1 @@
+Artículo 5º—Todo propietario(a) para la construcción de cercas, tapias o muros frente a su propiedad, deberá solicitar al Concejo Municipal del Distrito de Cóbano, el alineamiento correspondiente y el permiso de construcción. La Municipalidad tendrá un plazo máximo de 8 días hábiles después de presentada la solicitud para dar el alineamiento respectivo.
