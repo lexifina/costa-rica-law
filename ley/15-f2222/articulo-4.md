@@ -1,0 +1,1 @@
+Art. 4°. —Caso de que el contrato llegue á rescindirse entre las dos Compañías contratantes, ya sea conforme al artículo 12°. del convenio ó de cualquier otro modo, los derechos del Gobierno en los terrenos que quedan sin utilizar ó en poder de la Compañía del Ferrocarril, se regularán de acuerdo con el contrato Soto-Keith de 21 de abril de 1884.
