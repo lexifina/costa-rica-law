@@ -1,0 +1,1 @@
+Artículo 4°-En el caso de que se presentara esta plaga en nuestro país, el Poder Ejecutivo mediante decreto podrá declarar zonas y periodos de cuarentena, interna o externa, totales o parciales, con el fin de evitar su diseminación.

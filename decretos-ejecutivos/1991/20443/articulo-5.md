@@ -1,0 +1,1 @@
+Artículo 5°-EI incumplimiento o desacato de lo ordenado por este decreto, será sancionado conforme con lo dispuesto en el capitulo VI "De las Disposiciones Penales" de la Ley de Sanidad Vegetal (ley numero 6248 del 2 de mayo de 1978
