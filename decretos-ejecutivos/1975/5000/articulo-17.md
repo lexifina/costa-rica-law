@@ -1,0 +1,1 @@
+Artículo 17.-Una vez concluida la investigación anterior por parte de la autoridad administrativa, elevará la misma a conocimiento de los Inspectores de Precios de su jurisdicción. o directamente ante la oficina correspondiente del Ministerio de Economía, Industria y Comercio, mediante informe al cual acompañará los documentos utilizados en la diligencia a su cargo.

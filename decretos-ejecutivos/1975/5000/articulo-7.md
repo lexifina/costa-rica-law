@@ -1,0 +1,6 @@
+DE LOS PORCENTAJES DE UTILIDAD Y PRECIOS MAXIMOS
+Artículo 7°-Para la fijación de precios a bienes de producción nacional, serán considerados los siguientes costos:
+a ) Costos Directos: Materia prima nacional o importada; materiales de empaque incluyendo etiquetas; envases de todo tipo excepto aquellos sobre los cuales se deja depósito; mano de obra incluyendo cargas sociales; energía eléctrica; agua; combustibles para plantas energéticas; lubricantes , depreciación, reparación y mantenimiento de maquinaria y equipo de producción; depreciación de edificios; seguros de incendio; gastos de laboratorio para control de calidad; alquileres sobre edificios y maquinaria de producción; impuestos territoriales y municipales; y
+b ) Costos Indirectos: Gastos de administración, gastos financieros y gastos de mercadeo, de publicidad y distribución, que a juicio de la respectiva Dirección, sean aceptados para cada caso concreto.
+Tratándose de materias primas importadas, necesariamente serán corroborados los precios de compra de las mismas, conforme a los precios vigentes de igual fecha en el mercado internacional.
+Asimismo, se tomará en cuenta todas las variaciones que incidan en el precio de venta, provenientes de cambios en los impuestos que recaigan sobre la producción, distribución y consumo de los bienes sujetos a fijación y control de precios.

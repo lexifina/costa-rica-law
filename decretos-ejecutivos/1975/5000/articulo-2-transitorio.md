@@ -1,0 +1,2 @@
+Transitorio II. -Dentro del término de tres meses, a partir de la publicación del presente Reglamento, el Ministerio de Economía, Industria y Comercio, determinará lo bienes y servicios cuya publicidad comercial deberá mencionar específicamente el precio de venta al consumidor, cualquiera que sea el medio de comunicación, así como lo pertinente tratándose de facilidades crediticias objeto de publicidad.
+Dado en la Casa Presidencial. -San José, a los dos días del mes de julio del mil novecientos setenta y cinco.

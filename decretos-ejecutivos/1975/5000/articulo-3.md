@@ -1,0 +1,1 @@
+Artículo 3°-Para los efectos de aplicación de la Ley y su Reglamento, la Dirección General de Comercio Interior Y la Dirección de Hidrocarburos podrán verificar en las fuentes a los efectos de constatación la información suministrada por los interesados y del exclusivo interés de los mismos.
