@@ -1,0 +1,1 @@
+Articulo 54.—Imposibilidad de notificar. En el caso de que haya personas que no se han podido localizar, la Administración analizará la posibilidad de desistir de dicha persona en el juicio, para lo cual es importante conocer el criterio del Abogado Director del proceso.

@@ -1,0 +1,1 @@
+Artículo 63.—Desahucio. Cuando el bien adjudicado por la Municipalidad sea un inmueble y éste se encuentre ocupado por terceros la responsabilidad del proceso de desahucio judicial o administrativo o cualquier otra que sea necesaria será del mismo abogado encargado.

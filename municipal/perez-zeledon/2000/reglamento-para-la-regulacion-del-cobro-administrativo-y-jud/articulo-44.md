@@ -1,0 +1,1 @@
+Artículo 44.—Inicio de cobro contra abogado. Si producto de algún incumplimiento, imputable al abogado, a lo estipulado en el artículo anterior, la Institución inicia un proceso de gestión de cobro administrativo o judicial en contra del mismo; lo excluirá en forma definitiva del rol de abogados.

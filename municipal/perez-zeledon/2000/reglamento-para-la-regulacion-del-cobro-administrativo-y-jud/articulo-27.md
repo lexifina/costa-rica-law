@@ -1,0 +1,1 @@
+Articulo 27.—Plazo del nombramiento. El nombramiento de los Abogados Externos será por dos años. Prorrogables por períodos sucesivos e iguales a juicio de la Municipalidad, cuando a criterio de ésta, los servicios prestados resultan satisfactorios.

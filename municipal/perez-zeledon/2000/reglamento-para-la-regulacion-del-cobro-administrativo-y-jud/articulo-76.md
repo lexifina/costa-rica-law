@@ -1,0 +1,1 @@
+Articulo 76.—Incumplimiento subsidiario. Cuando con posterioridad al inicio del cobro judicial se tuviese conocimiento de otro incumplimiento en la misma operación, diferente al que originó ese cobro, será requisito indispensable para la suspensión definitiva que se corrija también esta causal.

@@ -1,0 +1,1 @@
+Artículo 11.—Plazo para presentar la demanda. Los abogados contaran con cinco días hábiles a partir de la fecha de recibido el expediente respectivo para entregar a la Unidad Administrativa, copia de la demanda debidamente sellada como recibida por el Despacho Judicial.

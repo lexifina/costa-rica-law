@@ -1,0 +1,1 @@
+Artículo 72.—Suspensión del abogado. Si el abogado fuese suspendido en forma definitiva y tuviera asignado casos, el profesional deberá devolver a la Municipalidad los mismos para proceder a su reasignación, y presentar inmediatamente a la Autoridad Judicial correspondiente el respectivo escrito de renuncia.

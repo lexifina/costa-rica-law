@@ -1,0 +1,1 @@
+Artículo 69.—Responsabilidad ulterior. Las sanciones contempladas en el presente capitulo, se aplicarán sin perjuicio de la responsabilidad en que incurra el profesional en derecho; razón por la cual la Municipalidad se reserva el derecho de reclamar los daños y perjuicios que le fueran ocasionados, por los medios y vías correspondientes.

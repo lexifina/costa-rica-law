@@ -1,0 +1,1 @@
+Articulo 56.—Embargo de bienes. Cuando el Juzgado respectivo apruebe el embargo de bienes y el abogado director retire las comisiones correspondientes para realizar esta diligencia, tendrá un plazo de cinco días hábiles para llevarla a cabo e informar a la Unidad Administrativa.

@@ -1,0 +1,2 @@
+Artículo 81.—Plazo de suspensión. Ninguna suspensión provisional podrá comprender un plazo mayor al mes natural, existiendo la posibilidad de conceder una prórroga por treinta días como máximo, cuando se esté cumpliendo con el arreglo acordado.
+Vencido el plazo, si la Unidad Administrativa, previo visto bueno del Alcalde Municipal, no envía nota al Abogado Director autorizando una nueva prórroga, se entenderá en todos los casos que el trámite judicial deberá continuar.

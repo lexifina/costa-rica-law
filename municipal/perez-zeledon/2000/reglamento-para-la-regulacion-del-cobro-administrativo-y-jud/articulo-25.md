@@ -1,0 +1,1 @@
+Articulo 25.—Decisión de nombramiento y comunicación. La decisión del nombramiento se le comunicara por escrito al abogado que resultare designado para prestar sus servicios. Este deberá contestar en la misma forma, en el plazo de diez días hábiles, expresando su conformidad con el nombramiento y con lo establecido en el presente Reglamento.
