@@ -1,1 +1,0 @@
-Artículo 14. -No podrán desempeñar cargo de Policías Auxiliares, quienes estén ligados con los patentados o particulares que lo soliciten, por afinidad o consanguinidad hasta cuarto grado inclusive; tampoco lo podrán ser quienes sean empleados de ellos.

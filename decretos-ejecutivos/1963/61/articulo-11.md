@@ -1,1 +1,0 @@
-Artículo 11.-Caso de no recibirse el tanto que deben enviar las oficinas señaladas en el artículo 9°, el día cinco de cada mes, la Oficina de Personal avisará a la Inspección General de Autoridades, quien investigará de inmediato el atraso.

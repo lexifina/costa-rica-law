@@ -1,1 +1,0 @@
-Artículo 7°-EI acta de depósito que deberá anotarse en el Libro de Depósitos, debe ir firmada por el Patentado o por el particular que Io realice y por la autoridad que lo recibe. Además, dichas actas, deberán numerarse al iniciarse cada tomo, comenzando con el número uno (1).

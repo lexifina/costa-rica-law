@@ -1,1 +1,0 @@
-Artículo 8°·-Las Gobernaciones, Jefaturas Políticas y Agencias principales de Policía, deberán hacer además del acta, un recibo del dinero, con copias: el original, para el Patentado; una copia para el Despacho y la otra que se pegará al margen del Libro de Depósitos, en la parte correspondiente al acta.

@@ -1,1 +1,0 @@
-Artículo 5°-Las Gobernaciones, Jefaturas Políticas y Agencias Principales de Policía, llevarán un "Libro de Depósitos", en el cual anotarán por medio de actas: Nombre del Patentado que paga el sueldo: mes que cubre; nombre y dos apellidos y cédula de identidad del servidor; cargo que ocupa y lugar donde desempeñe.
