@@ -13,3 +13,5 @@ Artículo 31.—De conformidad con lo dispuesto en los artículos 40 del Estatut
 10) Extralimitarse en sus funciones, deberes y tomarse atribuciones que no les correspondan.
 11) Alterar las tarjetas, libros de asistencia, marcar la tarjeta de otros o consentir que otras personas las marque por ellos.
 12) Dar órdenes a subalternos o compañeros para la ejecución de asuntos ajenos a sus labores.
+13) La exhibición de material pornográfico en cualquier lugar del Ministerio, utilizando equipo de cómputo o servicios de comunicación de la Institución. Asimismo es prohibido el uso de equipo electrónico del Estado para observar o reproducir pornografía. El incurrir en el incumplimiento de estas disposiciones acarrea una falta grave que será sancionada según las regulaciones vigentes.
+(Así adicionado el inciso 13) por el artículo 1° del decreto ejecutivo N° 30297 del 12 de octubre de 2001)
