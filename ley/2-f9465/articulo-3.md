@@ -1,0 +1,1 @@
+Art. 3° -Eligense para Presidente de la Sala 1a del mismo Tribunal, al Señor Licenciado Don Vicente Sáenz, y para Magistrados de la misma, á los Señores Licenciados Don Ramón Loría y Don Alejandro Alvarado.
