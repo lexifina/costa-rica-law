@@ -1,5 +1,8 @@
 Artículo 6º.- Esta ley rige a partir de su publicación.
 DISPOSICIONES TRANSITORIAS:
+(NOTA: el artículo 12 de la ley No.6696 del 3 de diciembre de 1981
+deroga todas las normas relativas al giro de dólares al tipo
+preferencial, establecidos en esta ley)
 I.-Toda persona natural o jurídica que a la fecha de vigencia de esta
 ley tuviera obligaciones contraídas originalmente en divisas a favor del
 Banco Central por concepto de exportaciones, reexportaciones,
