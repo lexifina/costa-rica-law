@@ -1,3 +1,2 @@
-ARTICULO 100.- Durante el primer semestre de cada año se publicará en tos principales diarios del país un aviso haciendo constar quiénes son los miembros temporales y los asociados con derecho a ejercer la profesión, así como los especialistas reconocidos por el Colegio Federado. Además se publicará la lista de miembros ausentes, advirtiendo esta circunstancia y de los miembros separados de acuerdo con el artículo 15 de la Ley Orgánica.
-En cuanto a los miembros temporales, en la publicación se indicará el nombre de la institución y la obra en que específicamente fueron autorizados para prestar sus servicios.
-(Así reformado por Acuerdo de Sesión Nº 4 de 5 de agosto de 1987)
+ARTICULO 100.- DEROGADO
+(Así derogado por Acuerdo de Sesión Nº 4 de 14 de junio de 1988)
