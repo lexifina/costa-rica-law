@@ -1,1 +1,0 @@
-Artículo 17.- (Este artículo había sido adicionado por el artículo 14 aparte 37 de la Ley de Presupuesto ordinario y extraordinario del año 1986, N° 7018 del 20 de diciembre de 1985. Posteriormente mediante resolución N° 2136 del 23 de octubre de 1991, se anuló el artículo 14 aparte 37 de la norma afectante.)
