@@ -1,0 +1,3 @@
+Transitorio I.—En los 10 días siguientes a la entrada en vigencia de este decreto, la Caja Costarricense de Seguro Social deberá confeccionar los listados de patronos y asegurados facultativos que posean adeudos en relación con obligaciones de seguridad social.
+En los 5 días siguientes la Caja Costarricense de Seguro Social deberá realizar los envíos de los listados correspondientes a todas las instituciones de la Administración Pública.
+El órgano o entidad de la Administración Pública que no hubiere recibido los listados en el plazo indicado, deberá proceder a la tramitación de los diferentes procedimientos y solicitudes, presumiendo la solvencia en obligaciones de la Caja Costarricense del Seguro Social por parte del administrado.
