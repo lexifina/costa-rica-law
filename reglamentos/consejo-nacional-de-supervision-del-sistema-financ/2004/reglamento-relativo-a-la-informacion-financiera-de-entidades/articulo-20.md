@@ -1,0 +1,4 @@
+Artículo 20.—Sustitución de información
+Cuando una entidad supervisada por la Superintendencia General de Entidades Financieras sustituya la información financiera remitida, ello constituirá un comunicado de interés y deberá ser publicado por la Superintendencia en su sitio Web.
+Adicionalmente, la entidad deberá publicar dentro de los cinco días hábiles siguientes a la fecha de presentación de la misma a la Superintendencia General de Entidades Financieras, por su cuenta y en dos medios de comunicación escrita de circulación nacional, un aviso al público interesado en los términos dispuestos en el Anexo 2.D.
+En el caso de sustitución de información financiera remitida a otros órganos de supervisión, la comunicación de hechos relevantes se regirá por lo que cada una haya normado al respecto.

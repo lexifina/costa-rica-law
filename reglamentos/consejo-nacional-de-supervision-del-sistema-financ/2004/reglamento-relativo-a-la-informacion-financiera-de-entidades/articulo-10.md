@@ -1,0 +1,3 @@
+Artículo 10.—Firmas y Nombres de los estados financieros
+Los estados financieros individuales, internos e intermedios y los estados financieros consolidados de los grupos y conglomerados financieros internos e intermedios, deberán incluir al pie: las firmas y nombres del gerente general o en su ausencia, por quien ejerza sus funciones en forma interina, del contador o el gerente financiero autorizado legalmente; y del auditor interno o su análogo.
+Las entidades financieras, los grupos y conglomerados financieros, incluidas las empresas integrantes de éstos y las sociedades controladoras, que no cuenten con auditor interno, deberán presentar los estados financieros trimestrales certificados por un contador público autorizado.

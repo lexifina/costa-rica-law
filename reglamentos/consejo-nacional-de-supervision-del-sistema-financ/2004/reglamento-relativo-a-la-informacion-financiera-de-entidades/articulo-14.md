@@ -1,0 +1,2 @@
+Artículo 14.—Estados financieros anuales auditados, el dictamen y el informe de debilidades de control interno
+Los estados financieros anuales auditados, el dictamen y el informe sobre debilidades de control interno, se presentarán dentro de los treinta días hábiles siguientes a cada cierre anual. Los estados financieros consolidados anuales auditados, el dictamen y el informe sobre debilidades de control interno, se presentarán dentro de los tres meses posteriores del último día de cierre del ejercicio económico.

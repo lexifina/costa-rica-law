@@ -1,0 +1,6 @@
+Artículo 17.—Publicación en medio escrito de circulación nacional
+Las entidades deberán publicar el dictamen del auditor externo, el balance general y el estado de resultados auditados, y la información indicada en el Anexo 2.A. en un medio de comunicación escrita de circulación nacional, de acuerdo con lo siguiente:
+a) Para los estados financieros de entidades individuales supervisadas por la SUGEF dentro de los cuarenta y cinco días hábiles posteriores al último día del ejercicio económico anterior.
+b) Para los estados financieros de grupos y conglomerados financieros consolidados dentro del plazo de treinta días hábiles posteriores a la presentación de la información financiera al órgano supervisor correspondiente. Además, para los grupos financieros, deberán publicar la información indicada en el Anexo 2 F.
+Cuando la entidad no disponga de un sitio Web oficial, o el dictamen de los auditores externos se emita con salvedades, opinión adversa o abstención de opinión, deberán publicar el conjunto de estados financieros.
+El tamaño de la letra de la publicación puede reducirse como máximo en un 50% de lo indicado en los Anexos. Sin embargo, en el caso de las publicaciones indicadas en el Anexo 2, se realizarán en texto Times New Roman o Arial, letra tamaño 12 o mayor.

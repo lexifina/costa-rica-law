@@ -1,0 +1,5 @@
+Artículo 8º—Comparabilidad de los estados financieros
+Los estados financieros anuales, internos no auditados individuales y consolidados preparados por la entidad, e individuales y consolidados auditados, serán comparativos con el ejercicio inmediato anterior y se expresarán en colones sin céntimos.
+Los estados financieros intermedios, acumulados a los meses de marzo, junio y setiembre de cada año, serán comparativos con el mismo periodo intermedio del ejercicio inmediato anterior y se expresarán en colones sin céntimos.
+Los modelos incluidos en el Anexo 1 de este reglamento establecen la revelación mínima que deberá efectuarse en el cuerpo de los estados financieros individuales y consolidados, tanto para efectos de remisión como de publicación, sin embargo, las entidades quedan facultadas para revelar mayor información contable respecto a la indicada en el modelo.
+Las partidas con saldos cero podrán omitirse. En el caso de los estados financieros comparativos, la omisión podrá efectuarse cuando el saldo cero se presente en la misma partida para ambos periodos.

@@ -1,0 +1,5 @@
+SECCIÓN III
+Correcciones, sustituciones y prórrogas
+Artículo 19.—Correcciones
+Cuando a juicio del Superintendente, la información financiera recibida requiera correcciones, así lo comunicará a la entidad, la que tendrá la obligación de sustituir la información presentada y publicar dentro de los cinco días hábiles siguientes a la fecha de presentación de la información corregida, por su cuenta y en dos medios de comunicación escrita de circulación nacional, un aviso al público en los términos dispuestos en el Anexo 2.E.
+En el caso de que las correcciones se refieran a información financiera auditada, el superintendente del respectivo órgano supervisor ordenará que se publiquen nuevamente los estados financieros individuales o consolidados según corresponda, en los medios dispuestos en los Artículos 16 y 17 de este Reglamento y además, será comunicado, en el caso de la Superintendencia General de Entidades Financieras, como un comunicado de interés en el sitio Web o conforme lo normado por el órgano supervisor correspondiente.

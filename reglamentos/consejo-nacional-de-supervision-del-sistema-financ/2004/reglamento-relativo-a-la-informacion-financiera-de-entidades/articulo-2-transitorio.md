@@ -1,0 +1,1 @@
+Transitorio II.—Los plazos de presentación y publicación de los estados financieros dictaminados al 31 de diciembre del 2003, concernientes a las entidades supervisadas individualmente por la Superintendencia General de Entidades Financieras, serán los mismos establecidos para la presentación y publicación de los estados financieros consolidados auditados.
