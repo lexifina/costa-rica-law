@@ -1,0 +1,5 @@
+DECRETO XC.
+Establece la formula del juramento para la posesion de los Diputados a la Asamblea constituyente y dicta otras reglas sobre ceremonial.
+“El Jefe Supremo Provisorio del Estado libre de Costa Rica. –Por cuanto la Cámara de Senadores ha decretado lo siguiente.
+La Cámara de Senadores del Estado libre de Costa Rica, habiendo procedido á la calificación de Diputados que deben componer la Asamblea Constituyente à que convoca el Decreto número 1° expedido por el Jefe Supremo Provisorio en 1° de julio ùltimo , y estando dispuesto por el art. 4° del ante indicado decreto que el Senado acuerde el juramento que debe prestar dichos Diputados, y el órden de su recepción, ha tenido á bien decretar y decreta.
+Art. 1° La fórmula del juramento que ha de usarse para la posesion de los Diputados de la Asamblea Constituyente que ha de instalarse el 15 de Setiembre proximo , será la siguiente : ¿Jurais por Dios y sus Santos Evangelios cumplir bien y fielmente con el encargo que los pueblos vuestros comitentes os han conferido? A la respuesta si juro; se repondrà: sí asì lo hiciereis Dios os ayude, y sinò os lo demande.

@@ -1,0 +1,1 @@
+Art. 2. Nombrado que sea el Presidente y Secretarios conforme está prevenido por el art. 5° del decreto antes referido, se darà inmediatamente aviso à la Cámara de Senadores para que ante ella presten estos el juramento que les corresponde en la forma prescripta.
