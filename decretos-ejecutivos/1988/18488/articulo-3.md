@@ -1,0 +1,1 @@
+Artículo 3°—Las becas se otorgarán a los servidores de la Dirección que se desempeñen satisfactoriamente en sus labores y observen buena conducta debiendo poner en práctica sus conocimientos al concluir la capacitación.

@@ -1,0 +1,1 @@
+Artículo 4°—Las becas serán financiadas con fondos internos y externos de la financiación interna se hará por medio del fondo específico de Migración y Extranjería, y la externa, las que puedan otorgar otras instituciones nación internacionales y los gobiernos extranjeros.

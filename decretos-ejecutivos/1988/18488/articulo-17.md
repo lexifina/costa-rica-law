@@ -1,0 +1,1 @@
+Artículo 17.—Las demás disposiciones sobre el adiestramiento no contemple en este reglamento, se regirán por lo estipulado en el Estatuto del Servicio Civil y su Reglamento; Ley de Adiestramiento N° 1810, Reglamento para la Adjudicación de becas al personal del Ministerio de Gobernación y Policía y demás leyes conexas.
