@@ -1,0 +1,15 @@
+Nº 28911
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En virtud de las atribuciones y potestades que le confieren los incisos 10, 12 y 20 del artículo 140 de la Constitución Política y;
+Considerando:
+1°—Que de conformidad con la nota 78-2000 del 29 de mayo del 2000 de la Embajada de España y la nota DCI – 710-00 del 6 de junio del 2000 del Ministerio de Relaciones Exteriores y Culto (nota de respuesta), se formalizó un Acuerdo por canje de notas, a saber:
+"El Ministerio de Relaciones Exteriores y Culto -Dirección de Cooperación Internacional- saluda muy atentamente a la Honorable Embajada de España con ocasión de acusar recibo de su atenta nota verbal No 78/2000 de fecha 29 de mayo del 2000, mediante la cual se somete a consideración la propuesta de un Reglamento para el Funcionamiento del Fondo de Ayuda al Equipamiento España – Costa Rica y el Fondo de Contravalor, cuyo texto es el siguiente:
+La Embajada de España saluda atentamente al Ministerio de Relaciones Exteriores y Culto y tiene la honra de someter a su consideración la propuesta de un Reglamento para el Funcionamiento del Fondo de Ayuda al Equipamiento España-Costa Rica y el Fondo de Contravalor.
+Reglamento para el Funcionamiento del Fondo
+de Ayuda al Equipamiento España-Costa Rica
+y el Fondo de Contravalor
+Considerando que en el año 1988, al amparo del Convenio Básico de Cooperación Técnica entre el Gobierno de Costa Rica y el Gobierno de España de fecha 6 de noviembre de 1971, se estableció el Programa de Cooperación denominado "Fondo de Ayuda para el Equipamiento de Costa Rica" (FAE), cuyo procedimiento de ejecución fue definido conjuntamente mediante notas verbales Nº 188-88 del 1° de noviembre de 1988 y 168/89 del 18 de setiembre de 1989 de la Embajada de España en Costa Rica y PE/SDE 1329/88 del 11 de noviembre de 1988 y PE/SDE 1503-89 del Ministerio de Relaciones Exteriores y Culto de Costa Rica.
+Considerando las relaciones de amistad y cooperación entre Costa Rica y España y con los objetivos de ayudar a la balanza de pagos de Costa Rica, mejorar el equipamiento industrial del País y establecer un Fondo de Contravalor en colones, que se destinará al financiamiento de proyectos de cooperación para el desarrollo de Costa Rica, determinados de común acuerdo.
+Se establece el presente Reglamento para el Funcionamiento del Fondo de Ayuda al Equipamiento España-Costa Rica y del Fondo de Contravalor, de acuerdo con los siguientes artículos:
+Artículo 1°—La Agencia Española de Cooperación Internacional (AECI), como organismo español responsable de la ejecución de este Programa, procederá a situar las cantidades que constituyan el Fondo de Equipamiento en una cuenta en pesetas, denominada "Fondo de Ayuda al Equipamiento España-Costa Rica", en un Banco Español. El titular de esta cuenta será el Banco Central de Costa Rica. La cuantía del fondo dotado con cargo a los presupuestos de la Agencia Española de Cooperación Internacional, le será comunicada a Costa Rica por vía diplomática, sin entrañar obligaciones futuras para el Gobierno Español.

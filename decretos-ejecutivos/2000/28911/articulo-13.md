@@ -1,0 +1,2 @@
+LA UNIDAD DE SOPORTE TÉCNICO Y ADMINISTRATIVO
+Artículo 13.—El Comité Ad-Hoc Hispano Costarricense tendrá como soporte técnico y administrativo una unidad designada por él, la cual podrá pertenecer a la estructura organizativa de una de las instituciones representadas en el Comité Ad-Hoc, con las facultades suficientes, relacionada con la gestión de la cooperación internacional, el manejo de recursos externos y el seguimiento y coordinación de proyectos.

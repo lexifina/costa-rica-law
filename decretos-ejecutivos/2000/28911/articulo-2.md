@@ -1,0 +1,1 @@
+Artículo 2°—Los intereses devengados por dicha cuenta, en el Banco Español, redundarán en beneficio del Fondo, incrementándolo en la misma cuantía. Asimismo, todos los gastos que se generen por el uso de esta cuenta o por pago de comisiones bancarias, también serán deducidos del saldo respectivo.

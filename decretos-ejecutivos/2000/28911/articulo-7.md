@@ -1,0 +1,2 @@
+FONDO DE CONTRAVALOR
+Artículo 7°—El Fondo de Contravalor del Fondo de Ayuda al Equipamiento España-Costa Rica estará formado por el importe íntegro de los pagos de principal e intereses efectuados por los importadores costarricenses, una vez deducidos los honorarios del Banco Costarricense que ha formalizado la operación de importación, realizados en moneda local en la cuenta abierta para esos efectos en el Banco Central de Costa Rica, denominada "Fondo de Contravalor de Ayuda al Equipamiento España-Costa Rica", cuyo titular será el Comité Ad-Hoc Hispano Costarricense.
