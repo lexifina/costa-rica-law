@@ -1,0 +1,1 @@
+ARTÍCULO 7°.-La redacción de programas y elección de textos de los tres órdenes de escuelas establecidos en esta ley, queda cargo de la Inspección General de Enseñanza, con aprobación de la Secretaría del ramo.
