@@ -1,0 +1,12 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+La Junta Directiva de la Caja Costarricense de Seguro Social en el artículo 2° de la sesión 7322, celebrada el 15 de abril de 1999, aprobó el siguiente Reglamento de las Juntas de Salud:
+CONSIDERANDO:
+I.—-Que la Asamblea Legislativa de la República de Costa Rica decretó la Ley N° 7852, que impulsa el proceso de desconcentración de los hospitales y las clínicas de la Caja Costarricense de Seguro Social, determina y eleva a rango legal, la constitución de Juntas de Salud en los Hospitales y Clínicas de la Institución.
+II.—Que la Caja Costarricense de Seguro Social está en proceso de modernización, que entre otros, tiene por propósito lograr la máxima capacidad resolutiva por parte de los establecimientos de atención de salud, mediante una mayor delegación efectiva.
+III.—Que dentro de ese proceso se ha considerado de la mayor importancia fortalecer el principio de la participación ciudadana, con miras a que las comunidades se involucren activamente en el desarrollo de las actividades de los centros de salud.
+IV.—Que para hacer efectivo el principio de participación ciudadana, se hace necesario y conveniente crear un ente que represente a los diferentes sectores, patronos, asegurados y organizaciones de la comunidad vinculadas con la salud, denominado "Juntas de Salud".
+V.—Que los artículos 2, 3, 4 y 5 de la Ley deben ser reglamentados y desarrollados en los Hospitales y Clínicas de la Caja Costarricense de Seguro Social, sin perjuicio de la reglamentación aplicable a la desconcentración y personalidad jurídica instrumental que corresponda aplicar conforme a los artículos 6 y siguientes de la misma Ley. Por Tanto, la Junta Directiva con fundamento en el artículo 14, inciso f) de la Ley Constitutiva de la Caja Costarricense de Seguro Social y en la Ley N° 7852 de Desconcentración de los Hospitales y Clínicas de la Caja Costarricense de Seguro Social y del Reglamento del Seguro de Salud artículo 55, inciso a) y artículo 57, acuerda dictar el siguiente:
+REGLAMENTO DE LAS JUNTAS DE SALUD
+CAPITULO I
+De la creación de las Juntas de Salud
+Artículo 1°—Se crean las Juntas de Salud en los hospitales y clínicas de la Caja Costarricense de Seguro Social como entes auxiliares de los establecimientos de salud que presta servicios exclusiva o principalmente a la institución, con el propósito de mejorar los procesos de gestión para las prestaciones de servicios de salud, el desempeño administrativo y financiero, así como la promoción de la participación ciudadana.
