@@ -1,0 +1,1 @@
+Artículo 3º.- Si la producción nacional no fuere suficiente, para mantener funcionando sin interrupción los planes de nutrición escolar, el Poder Ejecutivo podrá recurrir a organismos extranjeros para cubrir el faltante.
