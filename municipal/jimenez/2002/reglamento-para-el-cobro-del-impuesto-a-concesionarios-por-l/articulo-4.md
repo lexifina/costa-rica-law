@@ -1,0 +1,1 @@
+Artículo 4º—La base imponible para la determinación de este impuesto lo constituye el valor total a precio de mercado del material extraído de la cantera o tajo cuya explotación esté autorizada, sean éstos arena, piedra, lastre, o cualquier derivado de éstos.

@@ -1,0 +1,1 @@
+Artículo 5º—El valor de mercado de los productos antes descritos y sus derivados se determinará por el precio de venta final del producto el cual será estimado por el contribuyente o por la Municipalidad de Jiménez. El impuesto a pagar a la municipalidad será del 10% (diez por ciento) de dicho valor.

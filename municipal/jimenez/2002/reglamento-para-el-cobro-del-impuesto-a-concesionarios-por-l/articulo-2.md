@@ -1,0 +1,1 @@
+Artículo 2º—Es sujeto activo de este impuesto, la Municipalidad de Jiménez, la cual para los efectos de relación jurídico-tributario hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios en su condición de Administración Tributaria de este impuesto.

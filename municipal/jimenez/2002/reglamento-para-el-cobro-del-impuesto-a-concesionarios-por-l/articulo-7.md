@@ -1,0 +1,1 @@
+Artículo 7º—El concesionario está obligado a llevar un registro especial donde se consignará cada día la cantidad de metros cúbicos de los minerales o sus derivados vendidos, así como el precio de venta por metro cúbico de éstos, conforme lo dispuesto en el artículo 110 del Código Tributario. Dicha información deberá concordar con los resultados de las facturas emitidas.
