@@ -13,3 +13,4 @@ Reglamento de Leches Maternizadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-04-18 | la propia norma |
+| 2 | 1992-10-20 | SINALEVI (sin norma nombrada) |

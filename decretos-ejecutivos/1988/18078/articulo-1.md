@@ -11,4 +11,4 @@ Considerando:
 6.- Que es necesario controlar la comercialización y la distribución de las leches maternizadas y sus sustitutos, a fin de proporcionar a los lactantes una nutrición segura y eficiente.
 Por tanto,
 DECRETAN:
-Artículo 1.- Las leches maternizadas y sus sustitutos deberán estar debidamente registrados en el Departamento de Drogas, Controles y Registros del Ministerio de Salud.
+Artículo 1.- Anulado. (Anulado mediante resolución de la Sala Constitucional N° 3125, de las 16:00 horas del 20 de octubre de 1992.)
