@@ -1,0 +1,1 @@
+Art. 2. Cualquiera que contra lo dispuesto en el art. anterior, y que en el acto de ser reconvenido por algún miembro de la Comisión, inspector ó celador, no produzca el permiso escrito queda prevenido, pagará sin escusa alguna, de diez á veinticinco pesos de multa.

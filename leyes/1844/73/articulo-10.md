@@ -1,0 +1,1 @@
+Art. 10. Si cumplido el plazo no estuviere remediado el embarazo, se exigirá la multa ó se ejecutará la pena de trabajos públicos en la cantidad prefijada, y todos los Jueces del Estado deberán cooperar al cumplimiento de esta disposición.
