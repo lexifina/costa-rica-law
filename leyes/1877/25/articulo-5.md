@@ -1,0 +1,1 @@
+Art. 5. Si la causa debe seguirse por culpa ó delito comun, ya sea de oficio, por denuncia o acusacion, la samaria será instruida por la autoridad ordinaria; pero sin dictar auto de detencion contra el indiciado, si no es con especial autorizacion del Poder Ejecutivo.

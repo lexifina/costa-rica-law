@@ -1,0 +1,1 @@
+Art. 7° -La declaratoria de haber lugar á formacion de cansa contra alguno de los funcionarios de que habla la presente ley, importa la suspension inmediata del destino ò empleo, y la sujecion á la autoridad correspondiente.
