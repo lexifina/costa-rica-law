@@ -1,0 +1,1 @@
+Artículo 22.—Las resoluciones del Departamento que ordenen la cancelación de la patente, o la clausura del negocio por el vencimiento o por la revocatoria de permiso de funcionamiento no tendrá recurso alguno.

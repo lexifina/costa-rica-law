@@ -1,0 +1,1 @@
+Artículo 14.—Es obligación de todo patentado exibir en lugar visible el permiso de funcionamiento y el certificado de la patente respectiva. El incumplimiento de este requisito dará lugar por primera vez a una llamada de atención por escrito y en caso, de reinscidir se podrá proceder a la cancelación de la patente.

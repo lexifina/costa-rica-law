@@ -1,0 +1,2 @@
+Artículo 12.—El Departamento indicará a los interesados cuales permisos de funcionamiento deben acompañarse con la solicitud. Unicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.
+Cuando por un error u omisión el Departamento determine, que una actividad que haya obtenido licencia necesita algún otro permiso de funcionamiento que no exigió en su oportunidad, concederá al interesado el término improrrogable de quince días hábiles para que se corriga el error o se llene la omisión.
