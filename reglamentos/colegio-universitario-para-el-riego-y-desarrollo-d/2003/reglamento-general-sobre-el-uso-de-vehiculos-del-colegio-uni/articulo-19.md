@@ -1,0 +1,2 @@
+Artículo 19.—Las multas imputables al conductor por cualquier infracción de tránsito, serán canceladas por el mismo al renovar su licencia en la Dirección General de Tránsito.
+En forma semejante, las multas causadas por estacionamiento inapropiado de vehículos serán ubicadas al ser canceladas anualmente los derechos de circulación y pagadas por el conductor autorizado, para el día en que se estableció el cargo. Este pago se hará en la Tesorería del Instituto o por medio de deducción a su salario.

@@ -1,0 +1,1 @@
+Artículo 11.—El servicio de Transportes utilizando vehículos de la Institución queda restringido al territorio nacional, salvo cuando exista autorización expresa del Decano y ratificación por parte del Consejo Directivo, el uso de los vehículos, pueden ser utilizados, para viajes fuera del país.

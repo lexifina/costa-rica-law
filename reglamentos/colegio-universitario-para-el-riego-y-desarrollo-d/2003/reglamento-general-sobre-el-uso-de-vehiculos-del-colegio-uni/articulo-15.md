@@ -1,0 +1,2 @@
+Artículo 15.—Cuando se autorice a funcionarios a utilizar vehículos de su propiedad, para atender actividades institucionales, se les reconocerá el monto en dinero acorde con las normas establecidas por la Contraloría General de la República, bajo el concepto de pago de kilometraje.
+El pago de este tipo de servicio, no se considera parte del salario, ni constituirá, derecho adquirido para el funcionario.

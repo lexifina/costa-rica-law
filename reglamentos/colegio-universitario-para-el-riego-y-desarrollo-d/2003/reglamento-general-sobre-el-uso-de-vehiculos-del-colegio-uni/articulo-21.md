@@ -1,0 +1,1 @@
+Artículo 21.—El conductor que esté en buenas condiciones de salud después de un accidente, es el responsable de presentarse en el término de ley a plantear la denuncia ante el Instituto Nacional de Seguros. La Administración es quien debe verificar que estos trámites se lleven acabo y se den las comunicaciones internas del C.U.R.D.T.S., que al respecto correspondan.

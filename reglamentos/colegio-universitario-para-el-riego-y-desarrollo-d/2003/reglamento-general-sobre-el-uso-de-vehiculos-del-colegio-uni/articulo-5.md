@@ -1,0 +1,1 @@
+Artículo 5º—Se darán asignaciones temporales o permanentes de vehículos a las dependencias que lo requieran para el cumplimiento de sus actividades o programa. Dicha asignación se dará bajo la modalidad de la desconcentración administrativa de los vehículos.

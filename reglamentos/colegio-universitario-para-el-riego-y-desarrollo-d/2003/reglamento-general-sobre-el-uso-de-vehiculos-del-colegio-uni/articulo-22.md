@@ -1,0 +1,1 @@
+Artículo 22.—El conductor del vehículo accidentado o el responsable del mismo, deberán estar presentes en el momento en que el Instituto Nacional de Seguros o taller autorizado haga el correspondiente avalúo siniestrado, una copia del avalúo debe remitirse al Encargado de Financiero-Presupuesto.

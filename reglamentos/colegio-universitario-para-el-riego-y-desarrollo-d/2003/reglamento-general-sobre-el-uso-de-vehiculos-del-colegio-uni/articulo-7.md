@@ -1,0 +1,1 @@
+Artículo 7º—La función de control y fiscalización por el uso y mantenimiento de los vehículos para el servicio general y múltiple de la institución, recae en el Servicio de Materiales, suministros y transportes a través de la Administración.

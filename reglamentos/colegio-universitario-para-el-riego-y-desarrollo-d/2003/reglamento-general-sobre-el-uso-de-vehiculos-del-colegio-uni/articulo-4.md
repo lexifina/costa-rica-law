@@ -1,0 +1,1 @@
+Artículo 4º—El Consejo Directivo, es el único órgano autorizado para aprobar la desconcentración administrativa de vehículos institucionales, por actividades de interés y necesaria para el desarrollo del C.U.R.D.T.S.
