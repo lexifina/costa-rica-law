@@ -1,0 +1,5 @@
+DECRETO IX
+La Asamblea Legislativa autoridad al Poder Ejecutivo para que provea de parque los almacenes de Guerra
+“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando: 1° que una de las cosas más interesantes y dignas de la atención de la atención de la legislatura, es la provisión de un parque que afiance no solo la respetabilidad del Gobierno en lo interior, si no también la seguridad y defensa en lo exterior 2° que no habiéndole, por ningún caso podría exigirse responsabilidad al Gobierno, mucho menos cuando ha representado la falta, y consultado medios para cubrirla 3° que no ha teniendo el Ejecutivo fondos disponibles, es de necesidad tomar de alguna parte el dinero necesario para tan urgente necesidad, aunque sea con calidad de reintegro, ha venido en decretar y decreta:
+Art 1°.- Se autoriza al Ejecutivo para que negocie del mejor modo que crea conveniente el parque necesario a la seguridad del Estado, pudiendo vender parte de él, si lo estima oportuno á los intereses del mismo Estado.
