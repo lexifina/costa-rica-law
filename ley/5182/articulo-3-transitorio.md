@@ -1,0 +1,2 @@
+Transitorio III.- Ocho días después de aprobada esta ley, el Consejo de Gobierno nombrará una Comisión Ad Hoc con las atribuciones que corresponden al Consejo y la Asamblea y estará encargada de la organización de la Universidad, de la redacción del Estatuto y del nombramiento, por dos años, del primer Rector.
+La Comisión estará integrada por los Ministros de Educación, Planificación y Trabajo, y por profesores de la Universidad de Costa Rica que tengan al menos categoría de Catedrádicos Asociados. La Comisión estará coordinada por el Rector y durará en funciones dos años.
