@@ -1,0 +1,3 @@
+Artículo 4°-La pena de prisión se descontará en los establecimientos destinados al efecto, de acuerdo con las reglas comunes. La de arresto es inconmutable y se cumplirá en la Penitenciaría Central si el reo fuere varón, y en la Cárcel de Mujeres de San José, si fuere mujer.
+Sin embargo, cuando liquidada la pena de arresto, ésta no excediere de cuatro meses, se cumplirá en la cárcel provincial o en la de San Ramón o Santa Cruz, según corresponda, de acuerdo con el domicilio del reo o el asiento del tribunal que dicta el fallo, a elección del sentenciador.
+Las penas a que este artículo se refiere podrán ser descontadas también en las colonias agrícolas penales que en lo futuro se establezcan.

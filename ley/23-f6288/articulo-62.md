@@ -1,0 +1,1 @@
+Artículo 62. Se deroga la Ley sobre Merodeo N° 6 de 11 de noviembre de 1937, el inciso 5 del artículo 267 y el aparte 2° del artículo 305, ambos del Código Penal y los artículos 104, inciso 5, 106, 107 y 108 del Código de Policía.

@@ -1,0 +1,1 @@
+Articulo 39.-Cuando el medio de subsistencia que declare el inculpado sea el de su trabajo en negocio propio, deberá dar la situación del negocio y todos los datos necesarios para que la autoridad cumpla con la obligación, que al efecto se le impone, de practicar todas las diligencias conducentes a la comprobación de la verdad.

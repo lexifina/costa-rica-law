@@ -1,0 +1,1 @@
+Artículo 41.-Una vez firme la resolución que ordena la inscripción de un sospechoso, la autoridad de policía remitirá un resumen auténtico de aquélla al Registro General de Sospechosos, que comprenderá todos los datos indicados en el artículo 33.

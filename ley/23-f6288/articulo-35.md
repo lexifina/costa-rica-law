@@ -1,0 +1,1 @@
+Artículo 35.-Mensualmente el Registro enviará a la Secretaría de Agricultura y Ganadería, a la Inspección de Hacienda y al Cuerpo e Agentes de Investigación, dos nóminas de todos los sospechosos en libertad, una por orden alfabético de apellidos, con indicación del domicilio del sospechoso, y otra en que aparezcan seleccionados por cantones.

@@ -1,0 +1,4 @@
+Artículo. 26.-El juzgamiento de las faltas contra la agricultura corresponde a las autoridades de policía, las cuales ajustarán sus procedimientos a las disposiciones contenidas en el Título II, Libro V del Código de Procedimientos Penales, con las siguientes variaciones:
+1 -Si el reo reconociere su falta, en el mismo acto se dictará sentencia condenatoria: y
+2 -Si negare el cargo, se señalará día y hora para la comparecencia verbal, en la cual la autoridad juzgadora oirá las pruebas del cargo y de la defensa, si las hubiere, levantando una acta de lo ocurrido. A continuación dictará su fallo; contra el cual podrán apelar las partes verbalmente en él mismo acto.
+Sólo en casos excepcionales podrá aplazarse el pronunciamiento de la sentencia hasta las veinticuatro horas siguientes a la comparecencia y, en este caso, la apelación deberá interponerse necesariamente en el acto de la notificación.

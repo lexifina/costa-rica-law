@@ -1,0 +1,1 @@
+Articulo 42.-Cuando la autoridad proceda por avisos confidenciales o denuncia verbal de algún particular, no podrá revelar el nombre de éste, bajo la pena de suspensión del puesto, sin goce de sueldo, por un mes.

@@ -1,0 +1,1 @@
+Artículo 15.-Cuando el valor de la cosa hurtada no excediere de cien colones ( ¢ 100.00), el hecho constituye la falta de policía de merodeo, y será reprimida con la pena de cuatro a ocho meses de arresto inconmutable.

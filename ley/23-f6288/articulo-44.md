@@ -1,0 +1,1 @@
+Artículo 44.-De las presentaciones, manifestaciones y prevenciones indicadas en el artículo anterior, la autoridad de policía, en un libro especial denominado "Registro Local de Sospechosos", dejará constancia firmada por el funcionario y el sospechoso o por una persona a su ruego si no supiere firmar.

@@ -1,0 +1,1 @@
+Artículo 59.-Las autoridades de policía y fiscales informarán quincenalmente a la Inspección General de Hacienda acerca de sus actuaciones en relación con el cumplimiento de esta ley, y la Inspección comunicará a su vez mensualmente a la Secretaría de Agricultura y Ganadería la labor realizada en relación con los delitos y faltas contra la agricultura.
