@@ -13,3 +13,4 @@ Reglamento para la Colocación de Dispositivos de Protección en Obras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-11-02 | la propia norma |
+| 2 | 1974-11-02 | SINALEVI (sin norma nombrada) |
