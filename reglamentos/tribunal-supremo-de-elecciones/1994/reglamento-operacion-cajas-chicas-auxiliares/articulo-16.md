@@ -1,0 +1,1 @@
+Artículo 16.—El funcionario que tenga pendiente una liquidación de un anticipo de dinero, para la adquisición de bienes y servicios, no le será entregado otro monto hasta tanto no liquide el que tiene pendiente.

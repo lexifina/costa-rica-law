@@ -1,0 +1,1 @@
+Artículo 12.— Todo pago por medio de Caja Chica estará respaldado por una factura comercial debidamente emitida, o en caso de que en razón del servicio no existiera factura que justifique el gasto, se confeccionará una boleta que compruebe y detalle el mismo, señalando el nombre del beneficiario.
