@@ -1,0 +1,1 @@
+TRANSITORIO III.- Los miembros de la Junta Directiva mencionados en los incisos 6), 8) y 10) del artículo 15 de esta ley, serán nombrados por tres años a partir de su entrada en vigencia. Después de ese período, serán elegidos por dos años conforme a la ley.
