@@ -8,4 +8,5 @@ Considerando:
 3°.-Que el Consejo Nacional de Cáncer, creado mediante Decreto Ejecutivo Nº 14370-SPPS del 16 de marzo de 1983, como órgano dependiente del Despacho del señor Ministro de Salud, preparó un Manual de Normas para el Tratamiento del Cáncer, el cual está debidamente aprobado por las autoridades del Ministerio de Salud y de la Caja Costarricense de Seguro Social.
 Por tanto,
 DECRETAN:
-ARTICULO 1º.-Oficializar el Manual de Normas para el Tratamiento del Cáncer, preparado por el Consejo Nacional de Cáncer, el cual ser de acatamiento obligatorio en todos los establecimientos públicos o privados de atención médica.
+Artículo 1°.-Oficializar el Manual de Normas para el Tratamiento del Cáncer, preparado por el Consejo Nacional de Cáncer, el cual será de acatamiento obligatorio en los establecimientos públicos de atención médica, con excepción de los hospitales nacionales de referencia o especializados, los que podrán utilizar esquemas diferentes mediante la aplicación de protocolos de investigación debidamente aprobados por el correspondiente Comité de Investigación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 18076 del 22 de marzo de 1988)

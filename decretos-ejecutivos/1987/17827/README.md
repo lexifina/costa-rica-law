@@ -13,3 +13,4 @@ Oficializa Manual de Normas para el Tratamiento del Cáncer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-11-13 | la propia norma |
+| 2 | 1988-03-22 | Decreto Ejecutivo 18076 (1988-03-22) |
