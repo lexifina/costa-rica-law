@@ -1,1 +1,2 @@
-Artículo 10.—Ninguna de las estipulaciones de este Tratado se interpretará en el sentido de menoscabar los derechos y obligaciones de Altas Partes Contratantes de acuerdo con la Carta de las Naciones Unidas.
+Artículo 10.— Las Altas Partes Contratantes enviarán inmediatamente al Consejo de Seguridad de conformidad con los artículos 51 y 54 de la Carta de las Naciones Unidas, información completa sobre las actividades desarrolladas o proyectadas en ejercicio del derecho de legítima defensa o con el propósito de mantener la paz y la seguridad interamericana.
+(Así reformado mediante el artículo 1° de la ley N° 5885 del 3 de febrero de 1976).

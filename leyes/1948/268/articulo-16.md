@@ -1,1 +1,2 @@
-Artículo 16.—Los acuerdos del Consejo Directivo de la Unión Panamericana a que se refieren los artículos 13 y 15, se adoptarán por mayoría absoluta de los miembros con derecho a voto.
+Artículo 16.— Las consultas serán promovidas mediante solicitud rígida al Consejo Directivo de la Unión Panamericana por cualquiera los Estados signatarios que haya ratificado el Tratado.
+(Así corrida su numeración por el artículo 3° de la ley N° 5885 del 3 de febrero de 1976, que lo traspasó del antiguo 13 al 16 actual).
