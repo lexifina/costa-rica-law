@@ -13,3 +13,4 @@ Declara Refugio de Fauna Silvestre de Categoría Mixto Portalón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-27 | la propia norma |
+| 2 | 1996-05-27 | SINALEVI (sin norma nombrada) |
