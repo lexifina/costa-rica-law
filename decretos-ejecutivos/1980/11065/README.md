@@ -13,3 +13,4 @@ Reglamento de Funcionamiento de Estacionómetros en Alajuela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-23 | la propia norma |
+| 2 | 1980-05-23 | SINALEVI (sin norma nombrada) |
