@@ -1,0 +1,1 @@
+Artículo 10.-Después de aprobado este Tratado por los Gobiernos de Costa Rica y de México y ratificado por los Cuerpos Legislativos de una y otra nación, se efectuará el canje de ratificaciones en San José de Costa Rica, a la mayor brevedad posible.
