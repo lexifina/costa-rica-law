@@ -1,0 +1,5 @@
+DECRETO XIII
+Concede al Lic. Don Bruno Carranza, privilegio exclusivo por diez años, para la construcción, introducción y expendido de una máquina que ha inventado para beneficiar café.
+El Senado y la Cámara de Representantes de la República de Costa Rica, reunidos en Congreso. – Vista la solicitud del Señor Lic. Don Bruno Carranza, para que se le conceda privilegio por la invención de una máquina destinada al beneficio del café, y en uso de la facultad concedida por la fracción 11° artículo 90 de la Constitución.
+Decretan: Artículo único: Se concede al Señor Lic. Don Bruno Carranza, privilegio exclusivo por el término de diez años, que empezarán a contarse desde la emisión del presente Decreto, para la construcción y expendio de una máquina que ha inventado para beneficiar café, y que tiene en su hacienda “Los Yoses”. A la Cámara de Representantes dado en el Salón de sesiones, Palacio Nacional, San José a veintiuno de junio de mil ochocientos sesenta y siete.
+Palacio Nacional, San José, junio veintiuno de mil ochocientos sesenta y siete. Ejecútese.
