@@ -1,0 +1,1 @@
+Artículo 19.—Modificaciones al Reglamento: Las modificaciones y variantes que se deseen introducir al presente Reglamento se someterán a la tramitación prevista en el artículo 17 de la Ley de Planificación Urbana N? 4240 del 15 de noviembre de 1968.

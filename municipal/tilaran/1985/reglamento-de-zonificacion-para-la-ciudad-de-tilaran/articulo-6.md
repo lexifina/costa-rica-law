@@ -1,0 +1,4 @@
+Artículo 6°—Permisos de construcción, patentes y visados:
+6.1 La Municipalidad solamente otorgará permisos de construcción, ampliación o remodelación de edificios y urbanizaciones cuando éstas no contravengan la zonificación o cualesquiera de las disposiciones del presente Reglamento. Cuando proceda, en el documento en que conste el permiso, se establecerán los demás requisitos que afectan la obra.
+6.2 De igual manera; sólo se concederán patentes o permisos para cualquier inmueble cuando el uso solicitado concuerde con la zonificación y las disposiciones de este Reglamento.
+6.3 Sólo se otorgará el visado del artículo 33 de la Ley de Planificación Urbana a lotes producto de fraccionamiento y urbanización, si las porciones resultantes cumplen con los requisitos establecidos en el presente Reglamento, además de las normas generales.
