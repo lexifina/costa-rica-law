@@ -1,0 +1,1 @@
+Artículo 5°-Autorizase al ITCO a cubrir deudas provenientes de mandatos legales del asentamiento campesino La Fuente , sito en la Provincia de Cartago, así como del grupo de campesinos del asentamiento denominado La Lucha , situado en la provincia de Alajuela.

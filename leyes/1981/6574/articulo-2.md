@@ -1,0 +1,1 @@
+Artículo 2°-No obstante lo dispuesto en la cláusula 6.4 del Convenio, el Instituto Costarricense de Tierras y Colonización deberá sujetarse a la Ley de la Administración Financiera de la República , en materia de contratación administrativa.
