@@ -1,0 +1,1 @@
+Artículo 10.—Los vehículos que circulan dentro del parque solo podrán estacionarse en las zonas definidas específicamente por la administración del mismo, para así evitar la destrucción de las áreas verdes o zonas protegidas.

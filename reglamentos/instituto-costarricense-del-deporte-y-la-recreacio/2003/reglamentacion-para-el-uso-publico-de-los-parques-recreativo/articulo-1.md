@@ -1,0 +1,13 @@
+INSTITUTO COSTARRICENSE
+DEL DEPORTE Y LA RECREACIÓN
+El Consejo Nacional del Deporte y la Recreación, con fundamento en la Ley Nº 7800 y su Reglamento, aprueban y mandan a publicar el presente "Reglamento para el uso público de los Parques Recreativos". De conformidad con lo establecido en el artículo 140, incisos 3) y 18) de la Constitución Política y en la relación al Decreto Ejecutivo Nº 14536-C del 24 de mayo de 1983, y el artículo 20, inciso 1), y 76 y siguientes de la Ley de Creación del Instituto Costarricense del Deporte y la Recreación y el Régimen Jurídico de la Educación Física, el Deporte y la Recreación (Nº 7800 del 29 de mayo de 1988).
+Considerando:
+1º—Que mediante el artículo 12 del Decreto Ejecutivo Nº 14536-C del Ministerio de Cultura, Juventud y Deportes del 24 de mayo de 1983 se traspasan los Parques Recreativos y programas dedicados a la recreación, que realizaba y administraba el Instituto Costarricense de Turismo a la Dirección General de Educación Física y Deportes, del Ministerio de Cultura, Juventud y Deportes.
+2º—Que la infraestructura existente en los parques requiere del mejor cuido y mantenimiento mediante la administración que ejerza el Instituto Costarricense del Deporte y la Recreación.
+3º—Que la conservación, el desarrollo sostenible y los procesos de regeneración natural en los parques son responsabilidad de todos los costarricenses para garantizar las áreas ecológicas, biológicas de nuestra biodiversidad.
+4º—Que con el propósito fundamental de conservar los recursos naturales y recreativos de los parques, se hace necesario regular la afluencia del público en general dentro de las áreas recreativas protegidas.
+5º—Que los parques que administra el Instituto Costarricense del Deporte y la Recreación son valiosos instrumentos para estudios e investigaciones ecológicos, biológicas, ambientales y turísticas. Por tanto
+decretan:
+REGLAMENTACIÓN PARA EL USO PÚBLICO
+DE LOS PARQUES RECREATIVOS
+Artículo 1º—El presente Reglamento, regula lo referente al uso público de los parques recreativos a saber: Parque del Este en el cantón de Montes de Oca en San José; Parque Recreativo La Expresión de la Laguna de Doña Ana Cleto en el cantón de Paraíso en Cartago; Parque Recreativo Laguna de Fraijanes en el cantón Central en Alajuela; Parque Metropolitano la Sabana, Padre Chapuí en el cantón Central de San José; Parque Recreativo La Dominica en el cantón Turrialba en Cartago; Parque Recreativo Cariari en el cantón Central en Limón. Siendo obligatorio su acatamiento tanto para los visitantes como para los funcionarios del Instituto Costarricense del Deporte y la Recreación.

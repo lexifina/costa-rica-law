@@ -1,0 +1,1 @@
+Artículo 3º—Las organizaciones comunales, instituciones públicas o privadas deberán velar y acatar las disposiciones establecidas en este Reglamento y además ser vigilantes para que los grupos a su cargo dentro de las instalaciones cumplan con las normas emanadas de este Reglamento.

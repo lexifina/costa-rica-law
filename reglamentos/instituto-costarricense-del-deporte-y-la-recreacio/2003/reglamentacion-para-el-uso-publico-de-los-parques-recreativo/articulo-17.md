@@ -1,0 +1,1 @@
+Artículo 17.—Las personas a quienes se les descubra en actos de vandalismo serán remitidas directamente e inmediatamente a las autoridades pertinentes. Además se les prohibirá el ingreso nuevamente a los Parques Recreativos que administra el Instituto Costarricense del Deporte y la Recreación.

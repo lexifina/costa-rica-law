@@ -1,0 +1,1 @@
+Artículo 18.—Salvo casos de verdadera emergencia, las situaciones especiales de rescate, operativos policiales deberán ser coordinadas con la administración del Instituto Costarricense del Deporte y la Recreación, específico con su Director o Directora Nacional.

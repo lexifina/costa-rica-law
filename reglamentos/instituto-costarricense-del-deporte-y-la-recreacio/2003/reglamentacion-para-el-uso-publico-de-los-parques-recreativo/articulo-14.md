@@ -1,0 +1,1 @@
+Artículo 14.—Solo se permitirá el ingreso de animales domésticos (perros y gatos) dentro de los Parques Recreativos, cuando estén debidamente atados a una correa, siendo el dueño el único responsable en caso de algún accidente.

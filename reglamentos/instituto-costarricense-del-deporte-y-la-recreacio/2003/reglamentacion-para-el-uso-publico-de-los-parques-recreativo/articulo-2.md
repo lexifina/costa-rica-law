@@ -1,0 +1,1 @@
+Artículo 2º—El incumplimiento por parte del visitante de cualquiera de las normas establecidas en este Reglamento o de las directrices que emiten los funcionarios de los Parques Recreativos facultará a estos o a la administración del parque a expulsar, detener o denunciar ante las autoridades pertinentes.

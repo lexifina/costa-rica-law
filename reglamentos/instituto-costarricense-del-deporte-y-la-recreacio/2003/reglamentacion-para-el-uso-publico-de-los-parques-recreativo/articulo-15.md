@@ -1,0 +1,1 @@
+Artículo 15.—Estará totalmente prohibido toda actividad de caza, pesca o extracción de cualquier especie de fauna y flora de los Parques de Recreación ya que son de biodiversidad y conservación de las especies. Únicamente en el caso que sea abierta la temporada de pesca, se permitirá esta con el respectivo permiso de la administración del parque.

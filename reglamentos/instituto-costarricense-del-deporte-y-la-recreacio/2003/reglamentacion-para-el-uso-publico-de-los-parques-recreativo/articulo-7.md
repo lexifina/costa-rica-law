@@ -1,0 +1,1 @@
+Artículo 7º—Toda la basura o deshechos que produzca el visitante durante su estancia en los parques deberá depositarla correctamente en los basureros ubicados en diferentes puntos y sitios estratégicos definidos por la administración del parque, pudiendo ser expulsado el visitante que incumpla esta obligación.

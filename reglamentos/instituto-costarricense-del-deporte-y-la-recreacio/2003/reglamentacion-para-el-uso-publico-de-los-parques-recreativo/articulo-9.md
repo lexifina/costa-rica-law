@@ -1,0 +1,2 @@
+Artículo 9º—La administración del parque. El Instituto Costarricense del Deporte y la Recreación no se harán responsables de accidentes ocasionados por los vehículos autorizados a circular dentro del Parque.
+Los vehículos autorizados circularán aceptando cualquier eventual responsabilidad en caso de accidentes a segundas o terceras personas o daños a las diferentes áreas e instalaciones del parque y serán remitidos inmediatamente a las autoridades respectivas según sea el caso.

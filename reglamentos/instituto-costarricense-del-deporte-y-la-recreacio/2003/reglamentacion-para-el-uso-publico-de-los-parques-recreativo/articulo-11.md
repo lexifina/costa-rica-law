@@ -1,0 +1,1 @@
+Artículo 11.—No se permitirá la venta; ni el consumo, dentro de los parques recreativos de licores, cerveza, cigarrillos, ni drogas estupefacientes. Además no se permitirá el ingreso y permanencia de personas en estado de embriaguez o bajo el estímulo de drogas dentro de los parques, pudiendo expulsarse a cualquier infractor con ayuda de la fuerza pública.

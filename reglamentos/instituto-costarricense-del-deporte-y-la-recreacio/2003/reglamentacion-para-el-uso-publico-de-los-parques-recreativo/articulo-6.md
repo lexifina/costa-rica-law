@@ -1,0 +1,1 @@
+Artículo 6º—No se permitirá en el Parque Recreativo actos o comportamiento que atenten contra la moral o las buenas costumbres de la sociedad costarricense, o que perturben la armonía que debe privar en cada área de los parques.

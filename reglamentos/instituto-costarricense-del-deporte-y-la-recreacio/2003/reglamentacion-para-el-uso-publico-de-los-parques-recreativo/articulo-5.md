@@ -1,0 +1,3 @@
+Artículo 5º—Todas las personas que requieran ingresar a los parques cerrados deberán reportarse a la boletería del mismo, procediendo a cancelar el derecho por ingreso y uso del parque. Para los niños menores de 12 años el ingreso es gratuito.
+El tiquete de ingreso deberá de conservarse durante toda la permanencia en el parque; ya que el mismo podrá ser solicitado en cualquier momento por los funcionarios del Parque Recreativo, debidamente identificados.
+Le corresponde al Consejo Nacional del Deporte y la Recreación a instancias de la Dirección Nacional del ICODER, fijar las tarifas a cobrar por concepto de ingreso a los Parques Recreativos.
