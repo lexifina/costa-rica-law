@@ -1,0 +1,5 @@
+DECRETO LXXXVI.
+Convoca a elecciones de varios Representantes y Senadores propietarios y suplentes.
+“El Jefe Supremo Provisorio del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado lo siguiente.
+Las Cámaras Legislativas del Estado libre de Costa Rica, puestas en Asambléa, de conformidad con el artículo 15 del decreto adicional de veintiséis de Junio del corriente año, para dar cumplimiento á los artículos 104 y 121 de la Constitución, y resultando del sortéo practicado que deben renovarse los Señores Representantes propietarios y suplentes que corresponden á las secciones del Sur y Occidental de la Ciudad de Cartago: á las del Oriente y Sur de la de San José: á la de Escasú: á la del Centro de Barba de la de Heredia; Y a la Oriental de Alajuela; y que igualmente se deben renovar los Señores Senadores propietarios: Rafael Moya y Presbítero Félix Hidalgo, han venido en decretar y decretan.
+Art. 1° Las Secciones dichas procederán á elegir cada uno de los Representantes propietario y suplente que les corresponde para el siguiente período de constitucional.
