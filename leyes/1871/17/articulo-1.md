@@ -1,0 +1,8 @@
+DECRETO XVII
+Deroga la ley de 29 de setiembre de 1869 que establece la libertad de siembras de tabaco y restablece las disposiciones del capítulo 6°, sección 3° del Reglamento de Hacienda, hace extensivo los de 29 de octubre y 17 de diciembre de 1870 sobre importación ilegales.
+Tomas Guardia, Presidente de la República de Costa Rica, considerando:
+Que la libertad de siembras de tabaco en el país, aunque conforme en lo general con los principios de la ciencia económica, se haya en oposición a otros intereses de mayor importancia.
+Que el desarrollo y el ensanche de la industria agrícola, que fueron “los principales fundamentos de la ley, se encuentran perjudicatos precisamente por aquella libertad, por cuanto distrae los brazos de las empresas de mayor provecho, en que están colocados los capitales, y de los dependen la suerte de los costarricenses.
+Que mientras deba subsistir de cualquier modo es monopolio como recurso fiscal, y mientras la abundancia de pobladores no satisfaga la demanda de brazos y la necesidad de abrir nuevas y diversas fuentes de prosperidad a la República, un deber del Gobernante es, favorecer y dar impulso a los negocios por la vía más conocida y segura, mayormente si al efectuarlo se obra en consonancia con el sentido público; y
+Que es de opinión general el perjuicio que está sufriendo la agricultura de nuestro único artículo de exportación con la libertad de las siembras de tabaco, según lo demuestran las representaciones que ha recibido el Gobierno, de acuerdo con el Consejo de Estado, decreto:
+Artículo 1°.-Derógase la ley n° 16 de 29 de Setiembre del año de 1869 que estableció la libertad de siembras de tabaco en la República.
