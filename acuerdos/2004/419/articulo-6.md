@@ -1,0 +1,1 @@
+Artículo 6º—En el caso de las inspecciones que inician en horario ordinario y concluyen dentro del horario extraordinario, se cobrará la primera hora con la tarifa correspondiente al horario ordinario y las horas adicionales, con la tarifa de “por hora o fracción adicional” correspondiente según el horario establecido.
