@@ -1,0 +1,1 @@
+Articulo 10.—Si el concurso interno es declarado desierto, si la plaza es de un nivel inicial o si ninguno de los actuales funcionarios del Instituto Mixto de Ayuda Social que participa en el concurso interno se considera elegible o idóneo, se procederá a la apertura del concurso externo.

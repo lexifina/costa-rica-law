@@ -1,0 +1,2 @@
+Articulo 5°—Existirán dos tipos de concursos de reclutamiento y selección de los recursos humanos: interno y externo. Cuando la plaza vacante es para ocupar un puesto en propiedad, el concurso de reclutamiento y selección interno tiene prioridad ante el externo, estos deberán ser publicados por cinco días hábiles.
+Los puestos vacantes libres excepto ios citados en el articulo 4, serán ocupados en igualdad de circunstancias, por los funcionarios de la Institución que hayan sido evaluados satisfactoriamente.

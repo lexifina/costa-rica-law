@@ -1,0 +1,1 @@
+Artículo 2°—Las normas, disposiciones y procedimientos contenidos en el presente reglamento son de aplicación obligatoria en todas las acciones tendientes a reclutar, seleccionar y promocionar los Recursos Humanos al servicio de la Institución.

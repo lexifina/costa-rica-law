@@ -1,0 +1,1 @@
+Artículo 39.—Las pruebas, referencias personales y documentación en general que se relacionen con el proceso de selección de personal, tendrán carácter confidencial, para aquellos funcionarios que intervengan en el mismo.

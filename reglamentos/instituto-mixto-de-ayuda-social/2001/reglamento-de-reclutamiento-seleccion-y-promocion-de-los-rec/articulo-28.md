@@ -1,0 +1,1 @@
+Artículo 28.—Los documentos aportados por los integrantes del Registro de Elegibles serán custodiados en Recursos Humanos durante la vigencia de ese registro. Al perder vigencia, se podrá proceder a su destrucción, salvo que se trate de documentos originales en cuyo caso se emplazará a los interesados para que los retiren.

@@ -1,0 +1,1 @@
+Artículo 48.—Para realizar permutas se requerirá posterior a la solicitud de los interesados, la aprobación de la Gerencia, previo análisis y recomendación de Recursos Humanos en cuanto a idoneidad para los cargos a desempeñar y el cumplimiento de los requisitos del puesto y cargos correspondientes.

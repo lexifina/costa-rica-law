@@ -1,0 +1,1 @@
+Articulo 22.—El oferente que se le convoque a realizar el proceso de selección o promoción en determinada fecha y este no se presenta o comunica previamente su imposibilidad de asistir, se presumirá falta de interés y se excluirá del registro de oferentes o elegibles o de la nómina, dupla o nómino, según corresponda.

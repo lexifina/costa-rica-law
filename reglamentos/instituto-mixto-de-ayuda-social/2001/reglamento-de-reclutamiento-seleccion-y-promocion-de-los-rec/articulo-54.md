@@ -1,0 +1,1 @@
+Articulo 54.—SÍ el período de prueba no fuese aprobado por el funcionario, la nueva dupla, nómina o nómino, según corresponda, podrá integrarse con los otros candidatos mejor calificados que participaron en el concurso.

@@ -1,0 +1,1 @@
+Artículo 42.—El período máximo de nombramientos o ascensos interinos de una misma persona será de un año de servicios continuos, a excepción de aquellos servidores que su nombramiento pueda estar sujeto al plazo que rige en el permiso o ascenso de los funcionarios que están en esa condición.

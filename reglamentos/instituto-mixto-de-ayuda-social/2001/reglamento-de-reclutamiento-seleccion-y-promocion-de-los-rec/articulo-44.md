@@ -1,0 +1,1 @@
+Artículo 44.—Cuando se de una vacante temporal interior a cuatro meses, esta se podrá sustituir o también se podrá cubrir mediante el recargo de funciones a un servidor, de conformidad con la legislación vigente en esta materia y a la disponibilidad presupuestaria de la Institución.

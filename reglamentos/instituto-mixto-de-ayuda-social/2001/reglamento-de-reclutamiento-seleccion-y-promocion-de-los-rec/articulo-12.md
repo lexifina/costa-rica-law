@@ -1,0 +1,1 @@
+Artículo 12.—Recursos Humanos podrá recomendar a la Gerencia la nulidad del nombramiento de cualquier empleado seleccionado, si con posterioridad a su nombramiento, llegare a comprobar, aún después de su período de prueba, que en su selección influyó en alguna forma, un fraude, o un engaño intencional de parte del servidor.

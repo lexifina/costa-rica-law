@@ -1,0 +1,48 @@
+Articulo 3°—Para todos los efectos legales que se deriven de la aplicación del presente Reglamento, se entenderá por:
+Reclutamiento de personal: Proceso que se sigue con el objeto de atraer candidatos aptos para el desempeño del puesto.
+Selección de personal: Proceso mediante el cual, se escoge entre los candidatos reclutados al idóneo para ocupar un determinado puesto en la Institución, con el propósito de aumentar o mantener la eficiencia en el desempeño institucional, de tal forma que se asegure el desarrollo y realización efectiva del trabajador en el desempeño de su puesto y el logro de los objetivos por parte del 1MAS.
+Ascenso: Paso de un funcionario a un puesto de mayor categoría salaria!, dificultad y responsabilidad que el que ocupa, para el que reúne los requisitos establecidos y que se ha sometido al proceso de selección respectivo, cuando corresponda.
+Predictor de selección: Conjunto de pruebas de idoneidad que establece recursos humanos con su respectiva ponderación, en función de los cuales se califica a los oferentes para determinar los candidatos elegibles para los distintos cargos de la Institución.
+IMAS o Institución: La persona jurídica que ocupa la posición de patrono en la relación de servicio con los funcionarios del Instituto Mixto de Ayuda Social.
+La gerencia: El Director(a) Ejecutivo(a) o el Gerente General de la Institución.
+El equipo técnico de recursos humanos o Recursos humanos: La unidad responsable de organizar, ejecutar y liderar en forma coordinada los procesos relacionados con la administración, ejecución y desarrollo de los Recursos Humanos de la Institución, y de asesorar en esta materia a los puestos de Dirección Superior, así como a todos los empleados de la Institución.
+Servidor, funcionario o empleado: Toda persona física que en virtud de un acto administrativo de nombramiento válido y eficaz, presta sus servicios a nombre y por cuenta de la Administración como parte de su organización a cambio de una remuneración por la actividad que ejerce.
+Empleados de confianza: Son aquellos puestos definidos por la Autoridad Presupuestaria, que están a disposición permanente del Presidente Ejecutivo, la Gerencia General o Subgerentes, cuyo nombramiento no genera estabilidad laboral y no requiere de concurso.
+Nombramiento en propiedad o servidor propietario: Designación a plazo indeterminado de una persona en un puesto vacante libre, después de haber cumplido con los requerimientos de reclutamiento y selección de personal y haber satisfecho el período de prueba.
+Nombramiento interino o servidor interino: Designación de un oferente en una plaza vacante temporal o libre, por un plazo determinado prorrogable si es del caso de conformidad con las disposiciones de este reglamento, después de cumplir con los requerimientos de reclutamiento y selección de personal.
+Personal sustituto o suplencia: Personal que se nombra a plazo determinado para sustituir funcionarios titulares, que se encuentren ausentes temporalmente por concepto de incapacidades, vacaciones, permiso con goce de salario, licencias para estudio, suspensiones o separaciones con goce de salario, y siempre que se disponga del presupuesto correspondiente y cumpliendo con el proceso de selección cuando corresponda.
+Recargo de funciones: Adicionar a las labores propias de) puesto permanente del servidor, funciones y responsabilidades de un cargo de mayor categoría, en forma temporal, siempre y cuando reúna los requisitos primarios de educación formal y legales de! cargo y puesto asignado.
+Oferente: Persona que muestra su interés en laborar para la Institución o en participar en un determinado concurso.
+Oferta de servicios: Fórmula diseñada por Recursos Humanos, que recopila información relevante de los candidatos a ocupar un puesto tales como: datos personales (nombre, edad, sexo, estado civil), datos familiares, experiencia ocupacional, disponibilidad para laborar y datos académicos u otros factores de selección de interés.
+Candidato interno: Funcionario de la Institución, que participa en determinado concurso.
+Candidato externo: Condición de oferente que tiene una persona que no es funcionario de la Institución.
+Elegibilidad o candidato elegible: Condición que adquiere un oferente al obtener una calificación igual ü mayor a setenta por ciento (70 %) en cada uno de los predictores de selección aplicados por recursos humanos, por lo que se considera apto para el desempeño del cargo.
+Candidato idóneo o idoneidad: Condición que se le otorga a aquel candidato elegible, cuyas características lo califican como el mejor oferente de los reclutados.
+Inopia: Condición que se presenta, luego de realizar los concursos respectivos (interno y externo), o la revisión de las fuentes de reclutamiento internas y externas, y no se dispone de oferentes que cumplan con los requisitos mínimos establecidos en el Manual Descriptivo de Cargos para llenar una plaza vacante existente.
+Puesto: Conjunto de tareas, deberes y responsabilidades, asignadas por una autoridad competente para que sean atendidas por un servidor durante su jomada laboral, para el cual existe el contenido presupuestario del respectivo pago-
+Cargo: Nomenclatura interna con la cual en el IMAS se conoce a cada uno de sus puestos.
+Concurso: Procedimiento en que varias personas compiten para ocupar una plaza.
+Concurso interno: Proceso que se realiza para llenar una plaza vacante libre o temporal, en el cual únicamente podrán participar funcionarios del IMAS.
+Concurso externo: Proceso que se efectúa posterior a la realización del concurso interno, con el objeto de obtener candidatos externos a fin de llenar una plaza vacante libre o temporal, salvo las excepciones que se disponen en el presente reglamento.
+Nómino: Propuesta que hace Recursos Humanos al superior jerárquico peticionario, de un solo candidato elegible, en este caso para ser promovido o contratado, por no haber más elegibles, de conformidad con los criterios técnicos definidos.
+Dupla: Lista de dos candidatos elegibles que Recursos Humanos presenta al superior jerárquico peticionario para efectos de escogencia y recomendación de nombramiento.
+Nómina: Lista de tres candidatos elegibles que hayan obtenido el mayor puntaje en relación con los prediclures de selección aplicados, y que Recursos Humanos presenta al superior jerárquico peticionario para efectos de escogencia y recomendación de nombramiento, sin embargo podrá integrarse con más candidatos si existieren calificaciones iguales.
+Período de prueba: Lapso de hasta seis (6) meses que rige a partir del nombramiento, ascenso, traslado o permuta de los funcionarios que servirá de base para calificar su desempeño en el puesto y su permanencia en el mismo.
+Funcionario a prueba: Aquel funcionario que ha sido nombrado en una plaza vacante libre, ascendido, permutado o trasladado y que se encuentra en el período de prueba.
+Plaza vacante libre: Conjunto de tareas, deberes y responsabilidades clasificadas e incluidas en un puesto, en donde no
+existe persona nombrada para su desempeño, se dispone del presupuesto asignado, se encuentra debidamente autorizada por las instancias correspondientes, y que se origina por las siguientes circunstancias:
+Ascenso en propiedad del funcionario que ocupaba el puesto.
+Cese de relación laboral del anterior ocupante.
+Jubilación por invalidez o vejez.
+Muerte del funcionario.
+Creación de una plaza por parte de las entidades competentes.
+Plaza vacante temporal: Conjunto de tareas, deberes y responsabilidades clasificadas e incluidas en un cargo, en donde la persona nombrada para su desempeño se encuentra temporal mente ausente por un permiso sin goce de salario o un ascenso y se dispone del presupuesto asignado.
+Plaza de nivel inicial: Plazas cuyos requisitos exigidos son del nivel académico más bajo en relación con todos cargos
+institucionales.
+Registro interno de elegibles: Registro estructurado por Recursos Humanos, compuesto por funcionarios que pueden ser considerados como candidatos para ocupar puestos de categoría igual o superior. Y que con anterioridad hayan solicitado participar en algún concurso.
+Registro interno de oferentes: Archivo de las ofertas de los potenciales candidatos internos.
+Registro externo de elegibles: Registro de candidatos elegibles compuesto por candidatos que no laboran en la Institución, estructurado por Recursos Humanos de acuerdo al puntaje final de calificación y por puesto.
+Registro externo de oferentes: Archivo de las solicitudes de servicio y sus atestados de candidatos externos.
+Permuta; El cambio entre uno o dos servidores de la institución de los cargos o puestos que respectivamente ocupan en propiedad, o cambio de un funcionario en propiedad y una plaza vacante, en donde en ésta última no implique un ascenso y siempre que se cuente con anuencia de los mismos y sus jefaturas. Dicho cambio se dará siempre que se guarde relación con la capacidad, preparación y requisitos que poseen los servidores en relación con el cargo al que aspiran o se le asigna.
+Reubicación: Desplazamiento físico justificado de un servidor con su puesto o cargo a otro de la misma o diferente unidad de trabajo, del mismo programa presupuestario, siempre que guarde relación con la capacidad, preparación y requisitos que posee el servidor en relación con el cargo al que aspira o se le asigne.
+Traslado: Desplazamiento físico justificado de un servidor de un puesto o cargo a otros de la misma o distinta categoría en una unidad de trabajo de diferente programa presupuestario, siempre que guarde relación con la capacidad, preparación y requisitos que posee el servidor en relación con el cargo al que aspira o se le asigne,

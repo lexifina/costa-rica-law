@@ -1,0 +1,1 @@
+Articulo 43.—En aquellos casos en que se den vacantes que deban ser cubiertas por ascensos interinos con un plazo menor de hasta dos meses no prorrogables, estos se podrán realizar sin necesidad de cumplir el proceso respectivo, y solo será necesario para ello el que cumplan los requisitos primarios del puesto y del cargo que se les asignará.

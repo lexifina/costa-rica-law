@@ -1,0 +1,1 @@
+Artículo 11.—El nombramiento en los cargos del Presidente Ejecutivo, Gerente, Sub-Gerentes, Auditor Interno, Sub Auditor y Empleados de Confianza, se regularán por lo que establezca la normativa vigente.

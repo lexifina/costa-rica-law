@@ -1,0 +1,1 @@
+Artículo 51,—Queda obligado el superior jerárquico respectivo a notificar por escrito a Recursos Humanos cualquier deficiencia del trabajador durante su período de prueba, o tratándose de funcionarios nombrados en forma interina o como suplencia durante todo su nombramiento, a fin de que éste estudie el caso y proponga a la Gerencia lo que a su juicio corresponda.

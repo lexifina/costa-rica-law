@@ -1,0 +1,16 @@
+Artículo 36. Son predictores de selección los siguientes:
+a) Actividades de capacitación: los cursos, seminarios, talleres y similares, recibidos, o impartidos, y que sean afínes al cargo en concurso.
+b) Trayectoria Laboral: los logros o faltas que sean parte del historial de los oferentes.
+c) Entrevistas: la técnica de observación directa de la conducta, que consiste en una conversación previamente estructurada o semi estructurada, con el propósito de obtener información objetiva y evaluar aspectos tales como características de personalidad, intereses, preferencias, actitudes, aptitudes, motivación, aspectos familiares, experiencia laboral y estudios de la persona entrevistada, con relación al puesto al que aspira.
+d) Evaluación del desempeño: Proceso para determinar el nivel de eficiencia y actuación de los servidores durante un determinado tiempo laboral, que se efectúa mediante la calificación del desempeño que se estipule.
+e) Examen Médico: Comprobación de las condiciones biológicas mínimas y valoración del balance de salud de un oferente en relación a un determinado puesto o cargo en el que eventualmente se desempeñará en el IMAS, el cual es efectuado por el médico de la Institución.
+f) Experiencia: el conocimiento comprobado que se acumula por el desempeño en puestos similares o relacionados, con el que se está sometiendo a concurso.
+g) Formación Académica: la enseñanza recibida en los centros de educación formal, extendidos o reconocidos y equiparados por el Ministerio de Educación Pública o las instituciones estatales de educación superior legalmente facultadas, que llevan a la obtención de un diploma, certificado o grado académico. Pueden ser otorgados por un centro universitario o parauniversitario, centros de educación secundaria o primaria, según corresponda.
+h) Información biográfica: el cuestionario estandarizado, mediante el cual se obtiene información sobre los antecedentes personales, laborales, y académicos de cada candidato a un puesto de trabajo.
+Í) Investigación Laboral: Se refiere al criterio que sobre el desempeño, la estabilidad laboral, comportamiento u otros, tengan la o las jefatura(s) actual o anteriores respecto de un oferente.
+j) Muestra de Trabajo: un conjunto estandarizado de tareas relevantes de un puesto mediante las cuales se prueba a los
+aspirantes u oferentes observando y midiendo directamente su desempeño en el puesto.
+k) Prueba oral grupal (POG): La prueba de situación, en la que se asigna a un grupo de personas que participan como candidatos para un puesto de trabajo, uno o varios temas de discusión durante un período especificado, mientras uno o más examinadores observan y estiman la actuación de cada persona, pero sin participar en la discusión o análisis que se genera en el proceso de grupo.
+l) Pruebas de conocimiento: el instrumento a través del cual se mide lo que ha aprendido el candidato a partir de muestras objetivas del respectivo proceso de aprendizaje.
+m) Pruebas psicométricas: las muestras de comportamiento humano en condiciones estandarizadas, que son un instrumento para verificar la capacidad o aptitud, para generalizar y preveer el comportamiento en determinado trabajo.
+n) Antigüedad: Se toma el tiempo servido en diferentes instituciones privadas o públicas.

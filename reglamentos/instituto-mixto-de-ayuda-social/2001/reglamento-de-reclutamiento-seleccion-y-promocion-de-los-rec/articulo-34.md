@@ -1,0 +1,1 @@
+Artículo 34.—De conformidad con el Reglamento de Organización y Funciones de la Auditoría Interna, todo servidor que pase a formar parte del personal de la Auditoría Interna de la Institución, o para cualquier movimiento del personal bajo su cargo, se deberá contar con la anuencia del Auditor General.

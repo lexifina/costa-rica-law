@@ -1,0 +1,1 @@
+Transitorios I.—Con la finalidad de poner en operación el presente Reglamento, se le otorga un plazo de tres meses a Recursos Humanos a efectos de que estructure los aspectos técnicos necesarios para su ejecución.

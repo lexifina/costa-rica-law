@@ -1,0 +1,1 @@
+Artículo 14.—I .a documentación que se entregue por parte del oferente o aspirante junto con la solicitud de empleo, pasa a ser propiedad del IMAS, esta documentación junto con lo que conforma el registro de elegibles tendrán una vigencia de un año, posterior a ese plazo se deberá proceder a la destrucción respectiva de conformidad con la normativa aplicable al respecto.
