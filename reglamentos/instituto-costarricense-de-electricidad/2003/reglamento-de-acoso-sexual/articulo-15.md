@@ -1,0 +1,1 @@
+Artículo 15.—Apoyo Profesional. La Dirección de Recursos Humanos podrá brindar, a solicitud de la parte interesada, apoyo psicológico por parte de una persona debidamente capacitada en la materia, la cual deberá ser del mismo género si la persona interesada así lo solicita expresamente.

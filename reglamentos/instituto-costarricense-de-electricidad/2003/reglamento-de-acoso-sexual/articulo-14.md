@@ -1,0 +1,3 @@
+Artículo 14.—Trámite de la denuncia. Una vez interpuesta la denuncia, la persona denunciante tiene un plazo de 3 días hábiles para realizar cualquier ampliación, modificación o rectificación.
+Transcurrido este plazo, quien recibe la denuncia, tendrá un plazo máximo de tres días hábiles para remitirla a la Dirección de Recursos Humanos, la que dará traslado al Órgano Director en un plazo máximo de dos días.
+El Órgano Director deberá notificar a las partes la resolución de apertura del procedimiento en un plazo máximo de ocho días hábiles. De esta notificación se enviará copia a la Presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento regirá para todos los funcionarios al servicio del ICE, tanto en las relaciones entre compañeros de trabajo, como en aquellas relaciones que se generen entre el personal ordinario y los que laboran en la Institución bajo modalidades de contratación distintas al nombramiento usual.

@@ -1,0 +1,3 @@
+CAPÍTULO NOVENO
+Disposiciones finales
+Artículo 24.—Empresas contratadas por el ICE. Cuando una persona interponga una denuncia de acoso sexual ante Dirección de Recursos Humanos y se verifique que el o la trabajadora en cuestión no es funcionaria del ICE, sino que forma parte de una empresa contratada por el ICE, la Dirección de Recursos Humanos estará en la obligación de canalizar dicha denuncia ante los entes y órganos que correspondan, con el fin de que el patrono o el órgano competente, aplique el procedimiento establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.

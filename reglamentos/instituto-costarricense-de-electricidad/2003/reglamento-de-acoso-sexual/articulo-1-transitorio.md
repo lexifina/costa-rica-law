@@ -1,0 +1,3 @@
+Transitorio Único.—Las denuncias interpuestas contra trabajadoras(es) del ICE antes de la vigencia de este Reglamento, se tramitarán de acuerdo con el procedimiento disciplinario establecido en el "Estatuto de Personal del ICE."
+2. Instruir a la Dirección de Mercadeo y Relaciones Públicas para que realice una difusión de este Reglamento entre todos los Trabajadores de la Institución.
+3. Instruir a la Subgerencia de Gestión Administrativa, para que a través de la Dirección Administrativa de Recursos Humanos, proceda a la publicación del presente Reglamento en el diario oficial La Gaceta. Acuerdo firme.

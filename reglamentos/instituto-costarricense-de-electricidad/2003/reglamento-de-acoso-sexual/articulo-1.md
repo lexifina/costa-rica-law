@@ -1,0 +1,7 @@
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD
+Por acuerdo del Consejo Directivo según artículo Nº 1 del acta de la sesión Nº 5508, celebrada el día 29 de abril del 2003, se aprueba el presente Reglamento contra el Acoso Sexual en el Instituto Costarricense de Electricidad, cuyo propósito fundamental es cumplir con lo establecido en el Capítulo III, artículo Nº 5 de la Ley Nº 7476 "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia" la cual establece que las empresas del Estado deben disponer de un instrumento que les permita regular las acciones a seguir en caso de una denuncia por acoso sexual, y cumplir además, con lo que al respecto a solicitado la Defensoría de los Habitantes.
+Este Reglamento textualmente dice lo siguiente:
+CAPÍTULO PRIMERO
+Objetivo y ámbito de aplicación
+Artículo 1º—Objetivo. El presente Reglamento tiene por finalidad facilitar la aplicación de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia (Ley Nº 7476 del 3 de febrero de 1995) y establecer el procedimiento disciplinario a seguir en el ICE, -para - prevenir, investigar y sancionar dicho hostigamiento, que para efectos de este Reglamento se entenderá como acoso sexual.
+Se entiende el acoso sexual como una práctica que atenta contra la dignidad de la mujer y del hombre en las relaciones de trabajo y de docencia. El acoso sexual es una forma de violencia que impide el desarrollo integral de las personas que lo sufren.
