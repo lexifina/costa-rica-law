@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Alcalde Municipal para realizar compras o adquisición de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Upala actúe como parte hasta por un porcentaje del 0.3% sobre el monto del Presupuesto Ordinario.
