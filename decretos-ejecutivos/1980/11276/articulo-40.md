@@ -1,0 +1,1 @@
+Artículo 40.- La Junta podrá expender directamente al público los billetes de lotería, en puestos fijos o móviles, al precio oficial, sin descuento cuando a su juicio las necesidades de la oferta y demanda así lo demanden.

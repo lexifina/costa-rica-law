@@ -1,0 +1,2 @@
+Artículo 26.- El valor total en premios de cada plan de loterías, no podrá ser menor del 60% del producto total de la venta de billetes, a menos que la diferencia sea compensada en otra u otras emisiones inmediatas por igual valor, en conjunto que la emisión afectada con el porcentaje inferior al 60%.
+La Junta podrá también fijar un porcentaje menor en premios siempre que no sea inferior al 55% y que la diferencia, hasta el 60% se destine a un fondo de estabilización de precios, con el fin de equilibrar la oferta y la demanda.

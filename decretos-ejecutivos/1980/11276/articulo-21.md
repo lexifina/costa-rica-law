@@ -1,0 +1,1 @@
+Artículo 21.- El Departamento de Servicios Generales tendrá a su cargo, mediante las secciones especializadas y oficinas respectivas, la ejecución de las actividades administrativas de apoyo, tales como movimientos de personal proveeduría, mantenimiento, aseo, transportes y vigilancia.

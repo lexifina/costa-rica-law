@@ -1,0 +1,1 @@
+Artículo 29.- La venta de los billetes de lotería a los adjudicatarios de cuotas, se hará conforme a las disposiciones y normas previstas en la ley número 3785 de 11 de noviembre de 1966, sus reformas y reglamentos.

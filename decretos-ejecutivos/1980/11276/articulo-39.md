@@ -1,0 +1,1 @@
+Artículo 39.- Corresponderá al Departamento de Lotería, conjuntamente con el de Contabilidad, hacer las liquidaciones provisionales y definitivas de los sorteos, conforme a las normas que al efecto dicta la Auditoría, sin perjuicio de las disposiciones que sobre el particular tome la Junta Directiva.

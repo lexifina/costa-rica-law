@@ -1,0 +1,1 @@
+Artículo 38.- El pago de premios sólo podrá denegarse o suspenderse en virtud de orden emitida por autoridad judicial competente. En este caso, la Junta mantendrá en custodia el valor de los premios hasta tanto el caso sea resuelto definitivamente.
