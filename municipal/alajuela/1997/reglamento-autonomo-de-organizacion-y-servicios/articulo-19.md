@@ -1,0 +1,1 @@
+Artículo 19.-AI acordarse recargo total de funciones, el funcionario sustituto tiene derecho a recibir el sueldo del puesto de categoría superior si aquel fuere mayor, siempre y cuando el recargo de funciones sea superior a treinta días naturales.

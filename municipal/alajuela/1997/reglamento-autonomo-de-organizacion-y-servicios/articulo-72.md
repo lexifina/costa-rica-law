@@ -1,0 +1,1 @@
+Artículo 72.-EI presente Reglamento deroga expresamente el Reglamento Interior de Trabajo de la Municipalidad de Alajuela, emitido en 1952 por Acuerdo Municipal N° 3 del 22 de julio, con las reformas introducidas por el artículo 12 del 4 de noviembre y aprobado por la Inspección General de Trabajo por resolución dictada a las 16 hrs del 17 de noviembre de 1952.
