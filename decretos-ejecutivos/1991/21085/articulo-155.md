@@ -1,0 +1,12 @@
+CAPITULO VII
+REGISTROS DE LABORATORIO
+ARTICULO 155
+Los registros de laboratorio deben incluir datos completos derivados de todas las pruebas y ensayos necesarios para asegurar el cumplimiento de las especificaciones y límites establecidos, incluyendo los siguientes requisitos:
+a) Una descripción de la muestra recibida para analizar, con identificación de su origen (lugar de donde fue obtenida la muestra', cantidad, número de lote o de otro código que lo identifique. fecha en que fue tomada la muestra y fecha en que la muestra fue recibida para analizar.
+b) Un informe de cada método usado en el análisis de la muestra El informe indicará la localización de los datos que establecen que los métodos usados en la análisis de la muestra cumplen con las normas apropiadas de exactitud y confiabilidad aplicables al producto analizado. Si el método empleado está en las revisiones vigentes de la Farmacopea de los Estados Unidos o del Formulario Nacional, en otros libros como el Book of Methods o en los métodos vigentes de la Association of Official Analytical Chemists o en otra referencia de normas reconocida, o si se detalla en la aprobación de una droga nueva si el método de referencia no ha sido modificado, será suficiente un informe indicando el método y la referencia que se ha usado. La conveniencia de los métodos de análisis usados será verificada en las condiciones reales de uso.
+c) Un informe del peso o medida de la muestra usada para cada prueba.
+d) Un registro completo de todos los datos obtenidos en el curso de cada prueba, incluyendo gráficos, cuadros, diagramas y espectros de los instrumentos de laboratorio, apropiadamente identificados para mostrar el componente específico, envase, cierre, material en proceso y producto terminado y lote analizado.
+e) Un registro de todos los cálculos realizados en relación con el análisis, incluyendo unidades de medida, factores de conversión y factores de equivalencia.
+f) Un informe de los resultados de las pruebas y si los resultados son compatibles con las normas establecidas de identidad, fuerza, calidad y pureza de los componentes, envases, cierres, material en proceso o productos analizados.
+g) Firma, de conformidad con el registro de firmas del laboratorio, de la persona que realizó cada análisis y la fecha en que lo ejecutó.
+h) Firma, de conformidad con el registro de firmas del laboratorio, de la segunda persona que revisó los registros originales en cuanto a exactitud, que la información está completa y que los resultados cumplen con las normas establecidas.

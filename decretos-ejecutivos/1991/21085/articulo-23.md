@@ -1,0 +1,2 @@
+ARTICULO 23
+Cualquier persona cuyo estado de salud pueda afectar negativamente la seguridad o la calidad de los medicamentos será excluida del contacto directo con los productos y sus componentes mientras su condición no sea corregida. Un estado de salud no apto o una lesión abierta pueden ser detectados por examen médico periódico o circunstancial o por la observación del personal de supervisión. Asimismo se debe instruir a todo el personal para que reporte al supervisor que corresponda cualquier condición de salud que pueda afectar negativamente los medicamentos.

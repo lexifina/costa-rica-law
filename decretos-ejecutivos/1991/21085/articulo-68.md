@@ -1,0 +1,2 @@
+ARTICULO 68
+Se tomarán muestras representativas de cada lote de ingredientes, productos o materiales. El número de recipientes o empaques muestreados así como la cantidad que debe tomarse de cada recipiente o empaque deben basarse en juicios apropiados tales como criterios estadísticos relacionados con la variabilidad de los componentes. los niveles de confiabilidad y el grado de precisión que se requiere, así corno los antecedentes de la calidad del proveedor y la cantidad de material necesario para el análisis y la reserva que se necesita mantener.

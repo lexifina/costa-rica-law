@@ -1,0 +1,2 @@
+ARTICULO 74
+Cuando los componentes, productos, envases y cierres hayan estado expuestos al aire, calor o cualquier otra condición que pudiera efectarlos negativamente deben repetirse las pruebas o análisis que sean necesarios para verificar de nuevo su identidad, potencia, calidad y pureza. La unidad de control de calidad procederá de igual manera que si fuera material recién ingresado y le dará la aprobación o rechazo de acuerdo con los resultados.

@@ -1,0 +1,2 @@
+ARTICULO 92
+Las especificaciones válidas durante el proceso deberán corresponder a las mismas para el producto terminado y serán derivadas de promedios aceptables anteriores y de estimaciones de variabilidad determinados siempre que sea posible por la aplicación de procedimientos estadísticos apropiados. Las pruebas y análisis de las muestras deben garantizar que el material en proceso y el producto terminado cumplen con las especificaciones.

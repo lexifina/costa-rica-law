@@ -1,0 +1,2 @@
+ARTICULO 110
+Se usarán procedimientos para conciliar las cantidades de etiquetas entregadas, usadas y devueltas para destrucción y se hará una evaluación de las diferencias que se encuentren entre la cantidad de unidades de producto terminado y la cantidad de etiquetas recibidas cuando dichas diferencias se salgan de los limites estrechos prefijados con base en datos históricos de operación. Estas diferencias deben ser investigadas y los resultados y conclusiones deben quedar registrados.
