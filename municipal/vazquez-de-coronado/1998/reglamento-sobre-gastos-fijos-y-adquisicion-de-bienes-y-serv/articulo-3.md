@@ -1,0 +1,1 @@
+Artículo 3°—El Alcalde Municipal podrá autorizar egresos por gastos fijos y la adquisición de bienes y servicios, tal y como lo señala el artículo 17, inciso "h" del Código Municipal, hasta por la suma de quinientos mil colones.

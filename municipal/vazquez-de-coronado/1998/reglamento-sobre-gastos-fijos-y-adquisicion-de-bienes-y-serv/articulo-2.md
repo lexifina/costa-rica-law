@@ -1,0 +1,1 @@
+Artículo 2°—El presente reglamento regula la competencia del Alcalde Municipal para la autorización y ejecución de egresos municipales no sujetos a la autorización del Concejo, según el articuló 14, inciso "e" de la Ley 7794.

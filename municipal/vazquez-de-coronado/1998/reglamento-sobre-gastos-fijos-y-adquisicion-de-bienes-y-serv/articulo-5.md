@@ -1,0 +1,1 @@
+Artículo 5°—Tanto en el caso de los egresos a que se refiere el artículo tercero de este reglamento, como de los que son competencia del Concejo Municipal los pagos deberán ser ordenados por el Alcalde Municipal.

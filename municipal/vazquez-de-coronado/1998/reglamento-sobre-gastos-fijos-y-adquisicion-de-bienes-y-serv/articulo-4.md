@@ -1,0 +1,1 @@
+Artículo 4°—El Alcalde Municipal rendirá al Concejo Municipal un informe semestral ,de los egresos que hubiere realizado al tenor de este reglamento, de conformidad con el artículo 17, inciso "f" del Código Municipal.
