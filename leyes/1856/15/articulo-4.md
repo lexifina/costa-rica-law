@@ -1,0 +1,1 @@
+Art 4°.- Los Jueces de 1° Instancia están obligados a recibir en billetes nacionales la parte de derecho de actuación que corresponda al Tesorero Público y así deben hacerlo constar en las mortuales u otros expedientes y en los recibidos que den de los expresados derechos.
