@@ -1,0 +1,1 @@
+Articulo 4°—Es requisito esencial para el reconocí ni lento de gastos de representación que se haya incluido en el presupuesto institucional la suma correspondiente, la cual deberá reflejarse en la partida de servicios no personales de la administración superior.

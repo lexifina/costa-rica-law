@@ -1,0 +1,1 @@
+Articulo 6°—Para los efectos de este reglamento se entenderá como oficiales, todas aquellas actividades que la Municipalidad de Puntarenas figura como anfitriona, siempre que el Concejo Municipal haya acordado previamente al alcalde a realizar dichos eventos.
