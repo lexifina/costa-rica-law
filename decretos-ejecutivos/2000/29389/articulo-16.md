@@ -1,1 +1,1 @@
-Artículo 16.—Los cursos de zafarrancho deben cursarse cada cinco años, sin perjuicio en caso suficientemente razonado, de que los marinos puedan recibirlos en períodos más cortos de tiempo, si el cupo de los cursos, así lo permite, en aplicación de los principios de razonabilidad y proporcionalidad.
+Artículo 16.—(Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

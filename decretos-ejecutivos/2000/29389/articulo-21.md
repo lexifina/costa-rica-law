@@ -1,4 +1,1 @@
-Artículo 21.—Homologación de cursos de zafarrancho:
-a) Los cursos a homologar, son aquellos cursos de seguridad que la Organización Marítima Internacional ha definido como básicos, primeros auxilios, zafarranchos de incendio, colisión, hombre al agua y abandono del buque y relaciones interpersonales.
-b) La homologación requiere que se presente a la Administración para su análisis una solicitud donde se exprese el contenido de los cursos, forma de evaluación de cada curso, duración, copia de los títulos emitidos, carácter y nombre de quien realiza la acción de capacitación o formación, años de experiencia. Se puede adicionar cualquier otra información que ayude a establecer el nivel y calidad de tal formación.
-c) La Administración se pronunciará sobre la homologación solicitada en un plazo de quince días hábiles después de recibida completa la documentación indicada anteriormente y lo comunicará al interesado en el lugar señalado por éste.
+Artículo 21.—(Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

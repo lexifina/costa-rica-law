@@ -1,1 +1,2 @@
-Artículo 14.—La Dirección de Seguridad Marítima y Portuaria podrá aceptar los certificados de cursos impartidos por otras instituciones o administraciones marítimas, siempre que tales cursos hayan sido previamente homologados. Para la convalidación de los títulos, los interesados deberán presentar el original y fotocopia de éstos o certificaciones obtenidas.
+Artículo 14.—El Núcleo Náutico Pesquero del Instituto Nacional de Aprendizaje, equiparará los certificados de los cursos impartidos por otras instituciones o administraciones marítimas. Para dicha equiparación el interesado deberá cumplir con los procedimientos establecidos para tal efecto por dicha Institución.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

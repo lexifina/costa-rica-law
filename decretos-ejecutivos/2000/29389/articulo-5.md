@@ -1,4 +1,5 @@
 Artículo 5º—Vigencia de los certificados:
-a) Los certificados extendidos sobre cursos impartidos por la Dirección General de Seguridad Marítima y Portuaria tendrán una vigencia de cinco años, lo mismo que los certificados extendidos por una organización cuyos cursos se encuentren homologados.
-b) Los certificados de competencia tendrán una vigencia de un año y se revalidarán conforme los tripulantes aprueben la práctica de zafarrancho que la Dirección General de Seguridad Marítima y Portuaria realice durante los períodos anuales de revisión de embarcaciones. La validez de estos certificados prevalecerá mientras se mantengan las condiciones que motivaron su emisión y estén al día los certificados de los tripulantes sobre los cursos de zafarrancho.
-c) Los certificados de zafarrancho de los buques tendrán una vigencia dependiente de los certificados de competencia de los tripulantes de los mismos. Su validez prevalece mientras la dotación se mantenga o éste se renueve conforme se integren nuevos tripulantes a la misma.
+a) El Certificado de Zafarrancho extendido por la Dirección de Navegación y Seguridad tendrá una vigencia de 1 (uno) año.
+b) Para renovar el Certificado de Zafarrancho que otorga la Dirección de Navegación y Seguridad, es necesario que el interesado obtenga un Certificado de Acción Formativa del Curso de Actualización para Marinos que otorga el Núcleo Náutico Pesquero del Instituto Nacional de Aprendizaje.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)
+c) (Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

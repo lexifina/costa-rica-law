@@ -1,1 +1,2 @@
-Artículo 4º—Los tripulantes de los buques nacionales deben contar con el respectivo Certificado de Competencia y aprobar cada cinco años los cursos básicos de zafarrancho.
+Artículo 4º—Los tripulantes de los buques nacionales deben contar con el respectivo certificado de zafarrancho, el cual se obtiene después de haber aprobado los cuatro certificados de las acciones formativas correspondientes a los cursos de primeros auxilios básicos, técnicas de supervivencia personal, prevención y lucha contra incendios y seguridad personal y responsabilidades sociales.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

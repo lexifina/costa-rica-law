@@ -1,1 +1,1 @@
-Artículo 7º—Si el porcentaje de tripulantes nuevos supera el 15% especificado en el artículo anterior, el buque no puede ser autorizado a zarpar hasta que la dotación apruebe la Prueba práctica de seguridad marítima, todo de acuerdo a los períodos que la Dirección de Seguridad Marítima y Portuaria haya definido.
+Artículo 7º—(Así derogado por el Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

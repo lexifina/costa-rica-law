@@ -1,1 +1,1 @@
-Artículo 6º—Los armadores podrán contratar tripulantes sin que cuenten con el certificado de competencia respectivo por un período máximo de un mes calendario (Período de Entrenamiento), siempre y cuando el número no sobrepase el 15% de la tripulación normal del buque, luego del cual, la tripulación deberá pasar una Prueba práctica de seguridad marítima para renovarle el correspondiente certificado de zafarrancho al buque en cuestión.
+Artículo 6º— (Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

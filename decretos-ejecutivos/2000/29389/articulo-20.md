@@ -1,1 +1,1 @@
-Artículo 20.—La Dirección de Seguridad Marítima y Portuaria podrá ampliar el número de cursos o pruebas a realizar durante el año, si el número de solicitudes así lo amerita o eliminar alguna convocatoria a falta de participantes a las mismas.
+Artículo 20.—(Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)

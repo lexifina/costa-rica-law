@@ -1,1 +1,1 @@
-Artículo 11.—El Certificado de Competencia lo otorgará la Dirección de Seguridad Marítima y Portuaria, a los tripulantes que hayan aprobado los cursos de zafarrancho y que aprueben la prueba práctica anual de seguridad marítima, con una calificación no inferior a 80%.
+Artículo 11.—(Así derogado por el Decreto Ejecutivo N° 31076 del 13 de marzo de 2003).

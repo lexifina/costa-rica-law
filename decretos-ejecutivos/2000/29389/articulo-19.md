@@ -1,1 +1,1 @@
-Artículo 19.—Los armadores que requieran actualización o la renovación del certificado de zafarrancho, deberán solicitar por escrito a la Dirección de Seguridad Marítima y Portuaria con tres meses de antelación al vencimiento del mismo, cupo para la prueba de seguridad marítima respectiva.
+Artículo 19.—(Así derogado por el artículo 1° del Decreto Ejecutivo N° 31076 del 13 de marzo de 2003)
