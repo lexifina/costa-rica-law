@@ -1,0 +1,1 @@
+ARTÍCULO 126. Debiendo contarse el término de los noventa días para la presentación del expediente a que se refiere el artículo 165 de la ley, desde que los bienes adquieren el carácter de reservables, cuando estos no existan al tiempo de celebrarse el segundo matrimonio y sean adquiridos después, deber contarse dicho término desde el día de su adquisición.

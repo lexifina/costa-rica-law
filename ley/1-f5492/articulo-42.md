@@ -1,0 +1,1 @@
+Artículo 42. Toda anotación preventiva que no pueda hacerse sino por providencia judicial, se verificar en virtud de la presentación en el registro, del mandamiento del Juez que la haya dictado, en el cual se insertar literalmente dicha providencia. El Registrador dar cuenta al Juez del cumplimiento de la misma.

@@ -1,0 +1,1 @@
+Artículo 16. Para enumerar las fincas que se inscriban conforme a lo dispuesto en el art. 7° de la ley, se señalar con el n° 1° la primera, cuyo dominio se inscriba en los nuevos registros y con los números siguientes, por orden riguroso de fechas las que sucesivamente se vayan inscribiendo en los mismos términos.

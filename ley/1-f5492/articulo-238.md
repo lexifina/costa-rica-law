@@ -1,0 +1,1 @@
+Artículo 238.El Registrador no se ausentar del lugar de su domicilio sin licencia por escrito del Ministerio. El Ministro no dar dicha licencia sino por justa causa, por dos meses a lo más, y previo informe del Juez de 1° instancia respectivo, sobre la certeza de la causa alegada y la actitud del suplente para reemplazar al propietario.

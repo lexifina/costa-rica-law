@@ -1,0 +1,1 @@
+Artículo 44. Si la finca refaccionada no estuviere inscrita a favor del deudor, y del título presentado para inscribirla, resultare que esta afecta a una obligación real, hará el Registrador la inscripción, previo el pago del derecho correspondiente, pero suspendiendo la anotación demandada, hasta que se instruya el expediente prevenido en el artículo 45 de la ley.

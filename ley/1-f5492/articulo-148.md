@@ -1,0 +1,1 @@
+ARTÍCULO 148.Los libros del registro se formar n, ordenarán y rayar n con arreglo a los modelos que formar el Gobierno cuando trate de su adquisición. El Registrador pedir al Ministerio los libros que se necesiten, y los presentar al Juez que deba rubricarlos. El Ministro llevar al Registrador una cuenta circunstanciada de los libros que se le remitan.

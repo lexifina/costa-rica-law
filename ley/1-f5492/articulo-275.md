@@ -1,0 +1,1 @@
+Artículo 275. Cuando hubiere oposición de tercero relativa al hecho de la posesión, se pagar n las costas de este incidente, por el que corresponda, con arreglo a arancel, sin perjuicio de exigir por todas las demás actuaciones los derechos establecidos en el artículo 273.

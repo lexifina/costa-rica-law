@@ -1,0 +1,1 @@
+ARTÍCULO 137. En el expediente que habrá de seguirse para discernir el cargo a los tutores curadores no revelados de fianza, se justificar cumplidamente el importe del capital que consista en bienes muebles, y el de la renta de los inmuebles, que constituyan el caudal del huérfano, a fin de graduar por uno y otro, la cantidad de la hipoteca que deba constituirse.

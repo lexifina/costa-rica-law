@@ -1,0 +1,1 @@
+ARTÍCULO 93. El requerimiento al pago que según los artículos 103 y 104 de la ley, deber hacerse al deudor, o al tercer poseedor de los bienes hipotecados en su caso, podrá verificarse en comparecencia de conciliación, por notificación del Alcalde, ante testigos, por cualquier otro medio que baste para acreditar el hecho y su fecha.

@@ -1,0 +1,1 @@
+Artículo 242.La ejecutoria que condenare al Registrador a indemnizar a los particulares los perjuicios que sus actos les hubieren irrogado, no se publicar en la Gaceta, si en el término de ocho días, contados desde su notificación, se verificare el pago de lo debido o se consignare la cantidad necesaria al efecto.

@@ -1,0 +1,1 @@
+ARTÍCULO 168. En el diario se tomar razón de todo título que se presente al registro en solicitud de la inscripción, anotación preventiva, cancelación nota marginal de cualquiera especie, sin que sirva de excusa para dejar de hacerlo, la circunstancia de haberse de verificar la inscripción en el acto, de carecer el título presentado de algún requisito legal.

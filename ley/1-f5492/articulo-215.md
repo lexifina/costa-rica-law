@@ -1,0 +1,1 @@
+ARTÍCULO 215. En las certificaciones de que tratan los tres artículos anteriores, y en las de no existir asientos de especie determinada, solo se hará mención de las canceladas, cuando el Juez o los interesados lo exigieren, y en el caso prevenido en el artículo 253 de la ley.

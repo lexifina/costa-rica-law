@@ -1,0 +1,1 @@
+Artículo 46. Las personas citadas con arreglo al artículo anterior, podrán conformarse con lo pretendido por el propietario, en cuyo caso dictar el Juez providencia autorizando la anotación; podrán oponerse tanto al aprecio hecho de la finca, como a las obras que se trate de ejecutar, si por el resultado de ellas no quedaren suficientemente asegurados sus derechos.

@@ -1,0 +1,1 @@
+ARTÍCULO 211. Los particulares que consulten el registro, podrán sacar de las notas que juzguen convenientes para su propio uso, pero sin copiar los asientos, ni exigir de la oficina auxilio de ninguna especie, más que la manifestación de los libros.

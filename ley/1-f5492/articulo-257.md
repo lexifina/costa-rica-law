@@ -1,0 +1,1 @@
+Artículo 257.Para adicionar el traslado de la inscripción antigua en el caso del artículo anterior, se presentarán los documentos de que resulten las circunstancias que deban adicionarse, y en su defecto, la nota prevenida en el artículo 20, firmada solamente por el reclamante.

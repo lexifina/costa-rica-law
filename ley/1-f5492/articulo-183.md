@@ -1,0 +1,1 @@
+ARTÍCULO 183. Trascurrido el tiempo que cada legajo deba comprender, según la división adoptada, se cerrar con carpetas, escribiendo en una de ellas, la especie de documentos que contenga, y el periodo de tiempo que abrace, incluyendo además dentro las mismas carpetas, un índice rubricado por el Registrador, que exprese la fecha década uno de dichos documentos.

@@ -1,0 +1,1 @@
+Artículo 36. Si se desechare la reclamación de nulidad, también pondrá el Juez, en conocimiento del Registrador, la ejecutoria que así lo declare, a fin de que cancele la nota marginal que queda referida por otra inmediata diciendo: "Desechada la reclamación de nulidad indicada en la nota que precede, por ejecutoria de (tal fecha) (Media firma y fecha.)

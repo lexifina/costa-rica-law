@@ -1,0 +1,1 @@
+ARTÍCULO 179. La nota que, con arreglo al artículo 211 y segundo párrafo del 214 de la ley, deber estampar el Registrador al pie‚ de todo título inscrito, se extender en estos términos: "Inscrito (anotado preventivamente) el documento que precede (bien cancelada tal obligación) en el registro de…tomo…folio…finca número …inscripción número.... (Fecha y firma del Registrador.)

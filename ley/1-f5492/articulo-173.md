@@ -1,0 +1,1 @@
+ARTÍCULO 173. El Registrador hará constar, bajo su responsabilidad, en el asiento de presentación, las circunstancias contenidas en el art. 207 de la ley, y podrán añadir siempre que lo crean conveniente, cualesquiera otras que contribuyan a distinguir el título presentado de otros semejantes, cuyo asiento se reclame también.

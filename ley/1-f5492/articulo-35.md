@@ -1,0 +1,1 @@
+Artículo 35. Los jueces y tribunales ante quienes se reclamare sobre la nulidad de una inscripción, lo pondrán en conocimiento del Registrador respectivo. El Registrador, el mismo día en que se reciba el oficio de Juez, pondrá una nota marginal a la inscripción reclamada en esta forma: Reclamada la nulidad por D....N........en el Juzgado de........(Fecha y media firma.)

@@ -1,0 +1,1 @@
+ARTÍCULO 203. El Registrador a quien se prevenga en el acta de visita que rectifique algún asiento, subsane alguna falta de formalidad, dar parte al Ministro por escrito de haberlo verificado, luego que lo ejecute. También se hará constar esta circunstancia, en el acta de la visita inmediata a aquella en que se haya notado la falta.

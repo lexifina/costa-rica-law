@@ -1,0 +1,1 @@
+Artículo 70. Cuando la anotación se cancele para que el derecho anotado vuelva libre al dominio de la persona que anteriormente lo tuviere inscrito a su favor, se hará mención en la cancelación de esta circunstancia.

@@ -1,0 +1,1 @@
+Artículo 269. Cuando se cancele cualquiera inscripción comprendida en los libros antiguos, se hará breve mención de ella en el asiento de cancelación, sin perjuicio de trasladar al nuevo registro, la última inscripción de propiedad de la misma finca, con arreglo a lo prevenido en el párrafo segundo del artículo 195 de la ley.

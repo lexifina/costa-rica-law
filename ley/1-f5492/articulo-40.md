@@ -1,0 +1,1 @@
+Artículo 40. La anotación preventiva de los embargos, de las ejecutorias y de las providencias, interviniendo, poniendo en secuestro prohibiendo enajenar bienes determinados, no podrá excusarse, ni suspenderse por oposición de la parte contraria.

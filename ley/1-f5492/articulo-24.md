@@ -1,0 +1,1 @@
+Artículo 24. Toda inscripción relativa a fincas en que el suelo pertenezca a una persona, y el edificio plantaciones a otra, expresar con toda claridad esta circunstancia, al hacer mención de las cargas que pesen sobre el derecho que se inscriba.

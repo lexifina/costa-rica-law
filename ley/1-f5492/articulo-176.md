@@ -1,0 +1,2 @@
+ARTÍCULO 176. Si el Registrador no hiciere la inscripción que se le pida por defecto del título, y tomare en su lugar
+una anotación preventiva, con arreglo al número 8° artículo 40 de la ley, extender en estos términos la nota Marginal: "Suspendida la inscripción (cancelación) a que se refiere el asiento adjunto, porque la escritura (mandamiento judicial) presentada…(aquí el defecto que notare). Y siendo subsanable dicha falta, tomo, anotación preventiva en el registro de ....tomo....folio....finca número...." (Fecha y firma.)

@@ -1,0 +1,1 @@
+ARTÍCULO 187.Si el error cometido fuere de los que no pueden rectificarse, sino con las formalidades prevenidas en el artículo 221 de la ley, llamar el Registrador por escrito al interesado que deba conservar el título en su poder, a fin de que, exhibiéndolo y a su presencia, se verifique la rectificación.
