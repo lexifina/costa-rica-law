@@ -1,0 +1,1 @@
+Transitorio II.- Los partidos políticos dispondrán de seis meses, a partir de la vigencia de la presente ley, para reformar sus estatutos, de conformidad con lo establecido en los artículos 5 y 6 de la presente ley.
