@@ -1,1 +1,1 @@
-Artículo 10.- Contra la resolución de la Sala se dará el recurso de casación, que será admisible cuando se interponga dentro de tercero día y cuando se refiera al fondo del negocio.
+Artículo 10.- (Derogado por el artículo 1° de la ley N° 1582 del 5 de junio de 1953)
