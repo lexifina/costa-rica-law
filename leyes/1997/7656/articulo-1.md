@@ -8,11 +8,11 @@ proceso de liquidación de la Corporación Costarricense de Desarrollo
 posibilitar su cierre ordenado y el fin de sus proyectos y actividades
 pendientes, mediante el traspaso de sus activos, el pago de sus
 obligaciones, la transferencia de la titularidad pasiva y activa de las
-contingencias financieras, presentes y futuras, así como el financiamiento
-de las actividades que demande el citado proceso.
-Por consiguiente, a partir de la vigencia de esta ley, la Corporación
-no podrá realizar, promover actividades u operaciones ni efectuar
-erogaciones, donaciones o inversiones de ninguna índole que, aun cuando se
-encontraren dentro de los fines para los cuales se creó CODESA, disminuyan
-su patrimonio, con las únicas excepciones indicadas expresamente en esta
-ley.
+contingencias financieras, presentes y futuras, así como el
+financiamiento de las actividades que demande el citado proceso.
+Por consiguiente, a partir de la vigencia de esta ley, la
+Corporación no podrá realizar, promover actividades u operaciones ni
+efectuar erogaciones, donaciones o inversiones de ninguna índole que, aun
+cuando se encontraren dentro de los fines para los cuales se creó CODESA,
+disminuyan su patrimonio, con las únicas excepciones indicadas
+expresamente en esta ley.
