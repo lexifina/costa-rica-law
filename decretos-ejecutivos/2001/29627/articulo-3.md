@@ -1,0 +1,1 @@
+Artículo 3º—Es deber de la asociación rendir anualmente un informe ante el Ministerio de Justicia y Gracia de conformidad con lo indicado en el artículo 32 del Reglamento a la Ley de Asociaciones.
