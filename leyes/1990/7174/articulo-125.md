@@ -1,1 +1,0 @@
-Artículo 125.- Se impondrá de sesenta a ciento ochenta días multa, a quien realizare una quema en terrenos de aptitud forestal con incumplimiento de las condiciones bajo las cuales se le otorgó autorización por parte de la Dirección General Forestal.

@@ -1,1 +1,0 @@
-Artículo 12.- La estructura orgánica de la Dirección General Forestal se establecerá en el reglamento de esta ley. La administración forestal será regionalizada, para lo cual se organizará el país en regiones forestales.

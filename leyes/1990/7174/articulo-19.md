@@ -1,1 +1,0 @@
-Artículo 19.- La Dirección General Forestal, conjuntamente con el Consejo Forestal Nacional, fijará anualmente el valor mínimo del metro cúbico de madera en pie, por especie o grupos de especies, una vez realizados los estudios correspondientes.

@@ -1,1 +1,0 @@
-Artículo 91.- Si transcurrido el período durante el cual se pueden utilizar los certificados de abono forestal, se hiciere necesaria la adquisición de equipo, maquinaria o vehículos, los interesados los podrán importar o comprar, previa autorización de la Dirección General Forestal y de la Dirección General de la Tributación Directa, libres de todo impuesto.

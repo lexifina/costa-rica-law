@@ -1,1 +1,0 @@
-Artículo 93.- La instalación, el funcionamiento, la ampliación y el traslado de toda actividad industrial forestal, deberán ser autorizados por la Dirección General Forestal, la cual llevará un registro especial de esas actividades.

@@ -1,1 +1,0 @@
-Artículo 84.- Los gastos en que incurra la Dirección como consecuencia de las inspecciones de campo, para efectos de la aprobación del respectivo plan de manejo y para el posterior seguimiento, correrán por cuenta del interesado.
