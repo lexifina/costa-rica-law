@@ -5,16 +5,19 @@ territorio nacional, únicamente con el recargo del impuesto de ventas
 respectivo.
 Cuando se trate de obras legadas o donadas a instituciones oficiales
 del Estado, éstas no estarán sujetas al impuesto que se indica.
-Las exenciones mencionadas se refieren a los siguientes tipos de obras
-de arte: pinturas, esculturas en ediciones no mayores de seis ejemplares,
-dibujos, acuarelas, temple y grabado. Entrarán al país libres de impuesto,
-los ejemplares de una edición firmada y numerada por el autor, en un número
-no mayor de cien ejemplares.
+Las exenciones mencionadas se refieren a los siguientes tipos de
+obras de arte: pinturas, esculturas en ediciones no mayores de seis
+ejemplares, dibujos, acuarelas, temple y grabado. Entrarán al país
+libres de impuesto, los ejemplares de una edición firmada y numerada por
+el autor, en un número no mayor de cien ejemplares.
 Las ediciones de grabados, en número superior al establecido o las
 copias de esculturas, estarán sujetas a impuestos. Los excedentes sobre
 las limitaciones establecidas, serán considerados como labor industrial y
-comercial, y por los tanto sujetos a tributación. Las reproducciones
+comercial, y por lo tanto sujetos a tributación. Las reproducciones
 industriales de arte, en general, serán también gravadas con impuestos
-arancelarios, en la forma establecida. Los recaudado por concepto de
+arancelarios, en la forma establecida. Lo recaudado por concepto de
 impuestos sobre estos materiales deberá pasarse íntegramente al fondo de
 mantenimiento y adquisición de obras de los museos nacionales.
+(TACITAMENTE DEROGADO por el artículo 1º de la Ley Nº 7293 de 31 de marzo
+de 1992 en lo relativo a exoneraciones, excepto en lo referente a legados
+o donaciones al Estado: inc. l) del artículo 2º de dicha ley).

@@ -1,7 +1,2 @@
-Artículo 9º.- A partir del año de 1983, el Ministerio de Cultura
-deberá destinar, de su presupuesto anual, las sumas correspondientes para
-otorgar veinte becas de taller, no inferiores a cuatro mil colones
-mensuales cada una, las cuales serán distribuidas entre pintores,
-escultores y artistas en general.
-El Poder Ejecutivo elaborará un reglamento para la concesión de estas
-becas, dentro de los seis meses siguientes a la promulgación de esta ley.
+Artículo 9º—Autorízase al Ministerio de Cultura, Juventud y Deportes para presupuestar los recursos necesarios a fin de otorgar al menos veinte becas-taller que serán distribuidas entre escritores, investigadores, artesanos y artistas en general, con el propósito de desarrollar proyectos en artes escénicas, plásticas y audiovisuales; así como en literatura, música y artesanía."
+(Así reformado por el artículo 1 de la Ley N° 8019 del 29 de agosto del 2000)
