@@ -1,0 +1,1 @@
+Art. 2. Los terrenos que se vendieren, serán previamente medidos por cuenta de los interesados; y el testimonio de las diligencias, dado por lo autoridad politica, ante quien debe seguirse, es la seguridad de la venta: esta no causa alcabala. El producto de estas ventas, corresponde à la hacienda municipal del respectivo Departamento.

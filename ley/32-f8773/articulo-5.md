@@ -1,0 +1,1 @@
+Art. 5. Para los objetos generales de agricultura, montes y pastos comunes. Se concede á cada uno de los Departamentos un área de tres leguas cuadradas, que se medirá en el lugar que los Jefes Políticos designen. –Dado en San José á quince de Diciembre de mil ochocientos cuarenta y uno –Braulio Carrilllo. –El Secretario General, Manuel A. Bonilla.
