@@ -86,6 +86,7 @@ articulo-85.md
 articulo-86.md
 articulo-87.md
 articulo-88.md
+articulo-88-bis.md
 articulo-89.md
 articulo-90.md
 articulo-91.md
@@ -106,3 +107,9 @@ articulo-105.md
 articulo-106.md
 articulo-107.md
 articulo-108.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
+articulo-4-transitorio.md
+articulo-5-transitorio.md
+articulo-6-transitorio.md
