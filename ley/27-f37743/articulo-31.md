@@ -1,0 +1,2 @@
+Artículo 31.-Será castigada con la pena que establece el artículo 321 del Código Penal la persona que publique, venda, distribuya o exhiba a la multitud folletos u otros escritos, impresos o no, o figuras, o estampas pornográficas, contrarios a la honestidad.
+Será castigada con prisión o extrañamiento en sus grados segundo a cuarto o multa mayor en su grado sexto, la persona que ejerciere la trata de blancas en menores de edad.

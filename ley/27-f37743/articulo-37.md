@@ -1,0 +1,1 @@
+Artículo 37.-Los niños menores de cinco años que vayan acompañados de su madre o de su niñera, tendrán libre acceso a los parques públicos y a transitar en los arriates, siempre que no haya en éstos plantas que puedan perjudicar.

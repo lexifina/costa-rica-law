@@ -1,0 +1,1 @@
+Artículo 3º.-La persona que de hecho o de palabra maltratare a una mujer o que deliberadamente y sin razón justificable le diere impresiones de terror cuando se encuentre en estado de gravidez o en la época de la lactancia, será castigada con una multa menor en su grado primero.

@@ -1,0 +1,1 @@
+Artículo 47.-Ningún varón menor de quince años ni mujer soltera menor de diez y ocho podrá ejercer por cuenta propia o ajena oficio que se practique en las calles o sitios públicos. Sin embargo, los mayores de quince años y menores de diez y ocho podrán dedicarse a este género de trabajo mediante especial autorización de la respectiva Junta Provincial de Protección a la Infancia.

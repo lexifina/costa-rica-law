@@ -1,0 +1,1 @@
+Artículo 4º.-La mujer en estado de gravidez que desempeñe un cargo en la Administración Pública, disfrutará de una licencia de cuatro semanas antes del alumbramiento y de cuatro después de él. Durante ese lapso el reemplazo tendrá carácter de interinidad, pero sólo la mujer casada que goce de tal licencia, disfrutará de su sueldo completo.
