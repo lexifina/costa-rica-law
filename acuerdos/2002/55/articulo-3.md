@@ -1,0 +1,10 @@
+Articulo 3°—Descripción de la metodología. Contenido mínimo. Los documentos descriptivos de las metodologías deberán contener como mínimo:
+a) Una descripción de la metodología y de los modelos de cálculo de precios de los valores, documentos e instrumentos financieros,
+b) La metodología deberá contemplar, entre otras variables: la forma de estimación de flujos futuros, de tasas de interés de descuento y de tasas equivalentes, tipos de cambio, valor presente y otros procesos estocásticos aplicados,
+c) La fuente de información de operaciones en mercado secundario de donde se obtendrán las observaciones para el cálculo de los precios.
+d) Mostrar en la metodología en forma exhaustiva la forma de estimar los precios en caso de valores, documentos e instrumentos financieros respecto para los cuales no existan observaciones de precio en el mercado.
+e) Una explicación detallada en donde se haga la diferenciación de metodología de cálculo de precio entre instrumentos de deuda e instrumentos accionarios.
+f) Una explicación detallada en donde se haga la diferenciación de metodología de cálculo de precio entre instrumentos de sector público e instrumentos de sector privado.
+g) Una explicación detallada en donde se haga la diferenciación de metodología de cálculo de precio entre instrumentos que se negocian localmente e instrumentos que se negocian en otros mercados.
+h) En aquellos casos que las fuentes de información sean sistemas de consulta internacionales con operación continua, deberán indicar los proveedores de precios utilizados, las horas en que harán la importación de los datos y el origen de la información.
+i) Un detalle del procedimiento para la generación de los precios hasta su entrega a los usuarios finales de la información. Este detalle deberá incluir los horarios de entrega de los precios actualizados para efectuar la valoración y sus modificaciones a los usuarios, así como los mecanismos de resolución de objeciones que por escrito formulen los usuarios sobre los precios actualizados. Estos últimos deberán tramitarse durante el mismo día en que los precios fueron publicados,
