@@ -1,0 +1,1 @@
+Artículo 12.—La Federación Este Municipal - Regional, a través de la Auditoría Interna verificará cuando lo considere necesario y conveniente y de conformidad con los procedimientos que al respecto establezca el fiel cumplimiento de todas las disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—Se entenderá por porcentaje adicional sobre del salario base, la distribución que hará la Federación a los trabajadores que opten por acogerse al régimen de disponibilidad en forma que foja este Reglamento en los artículos siguientes.

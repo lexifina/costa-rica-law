@@ -1,0 +1,1 @@
+Artículo 13.—El incumplimiento por parte del beneficiario, de lo establecido en el presente Reglamento en cuanto a Disponibilidad se considera como falta grave a la Relación Laboral y por tanto será causa de despido sin responsabilidad patronal, concediendo el debido proceso.

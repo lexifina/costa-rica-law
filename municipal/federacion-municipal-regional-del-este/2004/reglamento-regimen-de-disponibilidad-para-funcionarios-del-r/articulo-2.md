@@ -1,0 +1,2 @@
+Artículo 2º—La Disponibilidad funcionará como elemento aleatorio del trato de trabajo y como una condición propia de la actividad, se obliga al funcionario a estar a disposición de la Federación, de manera excluyendo al pago de jornada extraordinaria cuando el trabajo se acoja a ella.
+Se otorgará el beneficio de la Disponibilidad a juicio de la Administración del Relleno en aquellos casos que así lo ameriten.

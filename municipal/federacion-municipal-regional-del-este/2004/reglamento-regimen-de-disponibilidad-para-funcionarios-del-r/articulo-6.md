@@ -1,0 +1,1 @@
+Artículo 6º—Para acogerse al Régimen de Disponibilidad los funcionarios de la Federación Este Municipal- Regional deberán firmar el Contrato respectivo con esta institución, el cual se insertará con su expediente laboral, así como todos aquellos movimientos que por tal motivo se produjeron.
