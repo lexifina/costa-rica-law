@@ -1,0 +1,3 @@
+Artículo 9°—Causal para la suspensión temporal.
+Se suspenderá el reconocimiento de puntaje durante el lapso de un año al funcionario que obtuviere una calificación inferior al setenta y cinco por ciento en la evaluación del desempeño del período laborado inmediato anterior.
+Como efecto de la suspensión no se reconocerá ni la anualidad ni los cursos llevados durante ese año. Tampoco se podrá presentarlos a reconocimiento, después de operada la sanción.

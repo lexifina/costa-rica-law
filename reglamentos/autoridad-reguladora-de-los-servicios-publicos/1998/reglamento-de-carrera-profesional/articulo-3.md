@@ -1,0 +1,2 @@
+Artículo 3°—Integración de la Comisión de Carrera Profesional.
+El Regulador General integrará la Comisión de Carrera Profesional, en adelante, la Comisión, así: la Jefatura de la unidad de Recursos Humanos que la presidirá y cuatro funcionarios profesionales escogidos por méritos. El nombramiento será por períodos de dos años pudiendo reelectos para otro período. La Comisión se dará su propia organización.
