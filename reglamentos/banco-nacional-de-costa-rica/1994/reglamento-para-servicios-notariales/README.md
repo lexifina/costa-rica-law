@@ -15,3 +15,4 @@ Reglamento para Servicios Notariales
 | --- | --- | --- |
 | 1 | 1994-03-22 | la propia norma |
 | 2 | 2000-05-23 | Reglamento 11033 (2000-05-23) |
+| 3 | 2000-05-23 | Ley 8 |
