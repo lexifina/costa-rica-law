@@ -1,0 +1,1 @@
+33. —El prestatario debe presentar a CONAPE el informe oficial de la asignaturas matriculadas en cada ciclo lectivo por cursar, así como la certificación oficial de las calificaciones obtenidas en cada ciclo lectivo cursado, en un plazo no mayor de 30 días hábiles después de que la entidad educativa lo haya emitido.

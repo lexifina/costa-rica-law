@@ -1,0 +1,2 @@
+37. —La aplicación automática de las sanciones establecidas en el Artículo No. 36, está a cargo del Departamento de Crédito. Las situaciones a) o b) del Artículo 36 que ocasionen extensión al período de estudios, pueden ser penalizadas como lo establece el ítem c) de dicho Artículo. Las situaciones especiales son resueltas por el Comité de Crédito.
+El rendimiento académico promedio, inferior que 7.00 (en una escala del 0 a 10) que ocasione la ampliación por más de 12 meses del período de estudios, es analizado de manera especial por el Departamento de Crédito.

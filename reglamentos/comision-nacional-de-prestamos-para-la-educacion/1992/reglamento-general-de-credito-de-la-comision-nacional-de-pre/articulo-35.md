@@ -1,0 +1,1 @@
+35. —Los informes de calificaciones del prestatario correspondientes a períodos lectivos penalizados con la suspensión de desembolsos deben ser oficialmente remitidos por la respectiva entidad educativa.

@@ -1,0 +1,1 @@
+29. —Uno o más desembolsos suspendidos pueden ser girados a posteriori o distribuidos entre los restantes, si el Prestatario recupera el atraso de uno o más ciclos lectivos o normaliza su situación a criterio del Departamento de Crédito.

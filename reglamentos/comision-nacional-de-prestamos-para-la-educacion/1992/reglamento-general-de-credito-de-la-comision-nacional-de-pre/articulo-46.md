@@ -1,0 +1,1 @@
+46. —El Departamento de Crédito puede autorizar las ampliaciones al período de estudios, necesarias para que el prestatario concluya su proyecto académico original, o alcance un énfasis adicional dentro del mismo grado.

@@ -1,0 +1,1 @@
+59. —El presente Reglamento puede ser modificado solamente por el Consejo Directivo de CONAPE y deroga el Reglamento General de Crédito aprobado en Sesión No. 17, Artículo 5, de fecha 20 de julio de 1977 y sus reformas.

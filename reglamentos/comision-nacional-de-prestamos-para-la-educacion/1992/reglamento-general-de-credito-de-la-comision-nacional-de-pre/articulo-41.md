@@ -1,0 +1,1 @@
+41.—La calificación de "Incumplimiento" al Contrato de Crédito la establece el Departamento de Crédito cuando el prestatario incumpla alguna de sus cláusulas, salvo cuando medien razones justificadas a juicio del Departamento de Crédito.

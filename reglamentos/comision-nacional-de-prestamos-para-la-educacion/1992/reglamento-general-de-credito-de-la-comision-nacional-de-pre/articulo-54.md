@@ -1,0 +1,1 @@
+54. —El atraso en el pago de las amortizaciones, es penalizado con el pago de interés moratorio no menor de la tasa más alta que cobren los bancos en sus operaciones activas, aplicable sobre el monto de las amortizaciones atrasadas hasta su efectivo pago.

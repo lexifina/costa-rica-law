@@ -1,0 +1,1 @@
+49. —El Departamento de Crédito tramitará una ampliación al monto del préstamo cuando el prestatario haya logrado un rendimiento y avance académico satisfactorio, durante el período de estudios financiado, o cuando se comprueba una lógica relación entre éstos y los nuevos estudios, así como la conveniencia institucional.

@@ -1,0 +1,1 @@
+39. —El Departamento de Crédito puede suspender los desembolsos y someter a un prestatario a una fase de observación académica, durante un ciclo lectivo, o mantenerlo así durante un período mayor, para que actualice el programa de estudios aprobado.

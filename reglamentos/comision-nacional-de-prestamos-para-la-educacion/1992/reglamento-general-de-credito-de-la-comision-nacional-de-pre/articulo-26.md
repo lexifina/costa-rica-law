@@ -1,0 +1,1 @@
+26. —El solicitante debe formalizar su préstamo en un plazo máximo de 60 días naturales, a partir de la fecha de aprobación de su solicitud por el Consejo Directivo; de lo contrario pierde su derecho sobre la utilización del préstamo y sobre la documentación presentada, salvo situación de fuerza mayor debidamente demostrada a satisfacción del Departamento de Crédito.

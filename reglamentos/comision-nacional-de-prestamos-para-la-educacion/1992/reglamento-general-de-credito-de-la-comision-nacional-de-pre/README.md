@@ -1,0 +1,16 @@
+# Reglamento (1992-10-15)
+
+Reglamento General de Crédito de la Comisión Nacional de Préstamos para la Educación (CONAPE)
+
+- Tipo: Reglamento
+- Número: 45
+- Fecha: 1992-10-15
+- Ente emisor: Comisión Nacional de Préstamos para la Educación
+- Publicación: La Gaceta N° 239 del 1992-12-14
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52902&param2=57519&param3=1 (ficha 52902)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1992-12-14 | la propia norma |

@@ -1,0 +1,1 @@
+25. —El prestatario menor de edad debe ser representado por ambos padres, o en su defecto, por el respectivo tutor legal; al alcanzar la mayoría de edad suscribirá un Addendum al Contrato ratificando en su totalidad el Contrato de Crédito para Estudios, inicialmente suscrito por su representante legal.

@@ -1,0 +1,1 @@
+38. —El prestatario que obtenga la condición de "escolaridad" en una o más asignaturas debe aprobarlas dentro del período de estudios financiado, preferentemente en el ciclo lectivo siguiente al que obtuvo la "escolaridad" y cuando el calendario del centro de estudios lo permita.
