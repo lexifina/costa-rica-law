@@ -1,5 +1,0 @@
-Artículo 10.—Salvo disposición legal especial los puestos o locales permanentes en los mercados se adjudicarán siguiendo las disposiciones pertinentes contenidas en la Ley de la Administración Financiera de la República.
-Para la estimación del precio del arrendamiento se tomará como base el monto de seis mensualidades, siguiendo el principio que para efectos de cuantía establece el inciso 6) del artículo 169 de la Ley Orgánica del Poder Judicial.
-De todo acto adjudicador se levantará un acta que será firmada por el Administrador del Mercado, si lo hubiere, y el Ejecutivo Municipal y deberá contener todos los detalles necesarios para la identificación de los favorecidos.
-Toda persona que resulte adjudicataria, deberá presentarse dentro de los ocho días hábiles después de la fecha de adjudicación con el objeto de formalizar el contrato respectivo.
-Si no lo hiciere dentro del plazo indicado, la Municipalidad podrá sacar a remate nuevamente el local, perdiendo el interesado cualquier suma que haya adelantado por concepto de garantía de participación como cláusula penal.
