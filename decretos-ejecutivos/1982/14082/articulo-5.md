@@ -5,6 +5,7 @@ Aceites vegetales comestibles, excepto de maní o cacahua-te y de Olivia……�
 Agua natural (potable)…………………………… | 111-01
 Ajos frescos, no envasados…………………….. | 054-0904
 Arroz sin cáscara, excepto precocido………… | 042-02-00
+Arroz, excepto precocido (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 042
 Atún en conserva, envasado……………………. | 032-01-08
 Azúcar de remolacha y de caña sin refinar…… | 061-01-00
 Azúcar de remolacha y de caña, refinada (excepto para repostería)……………………….. | 061-02-00
@@ -79,6 +80,7 @@ Sorgo sin moler, no envasado………………….. | 045-09-03
 Tiza en barritas para escribir y dibujar.................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-05
 Tortillas de maíz…………………………………... | 048-09-04
 Transportadores................................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
+Trigo y escanda (incluso comuña) sin moler (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 041
 Uniformes escolares (sólo camisa, pantalón y enagua) a juicio de la Administración Tributaria...... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 841-05
 Velas, cirios, veladoras y mariposas para lámparas, excepto los coloreados, decorados o perfumados.. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-01-01
 Vinagres de toda clase…………………………... | 099-09-01
@@ -88,7 +90,10 @@ Alcaloides opiáceos, sus sales y derivados….. | 541-04-03
 Aparatos ortopédicos, miembros o partes artificiales del cuerpo, aparatos para sordera y accesorios para fracturas……………………….. | 899-99-09
 Cafeína, estricnina y todas sus sales…………. | 541-04-04
 Emetina y todas sus sales……………………… | 541-04-02 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
+Esparadrapo (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 541-09-08-02 y 655-04-01
 Glucósicos y sus sales………………………….. | 541-09-01
+Instrumentos médicos n.e.p. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
+Jeringas y agujas hipodérmicas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
 Medicamentos preparados para uso externo, n.e.p………………………………………………… | 541-09-05
 Medicamentos preparados para uso interno, (oral) n.e.p…………………………………………. | 541-09-04
 Medicamentos preparados para uso parentético (inyectable) n.e.p…………………… | 541-09-03
@@ -98,6 +103,7 @@ Productos bacteriológicos, sueros, vacunas, estén o no preparados como medicam
 Productos de contrate radiológico y de diagnóstico……………………………………….. | 541-09-08
 Productos opoterápicos (plasma humano insulina, hormonas y otros extractos de glándulas órganos, etc, para fines terapéuticos) n.e.p……………………………….. | 541-09-02
 Quinina y todas sus sales………………………. | 541-04-01
+Termómetros clínicos (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
 Vitaminas y preparados exclusivos de vitaminas ………………………………………….. | 541-01-00
 c) Insumos agrícolas
 Mercancías | Partida NAUCA
@@ -194,6 +200,7 @@ Separadoras……………………………………….. | 712-02-02
 Segadores…………………………………………. | 712-02-01
 Silos de almacenamiento………………………… | 699-21-01
 Trailes……………………………………………….. | 733-09-02
+Tractores, excepto los a vapor (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 713
 Vagones……………………………………………. | 733-09-03
 Ventiladores…………………………………………… | 716-12-01
 La exención no comprende aviones, avionetas o helicópteros, aún cuando éstos sean utilizados en explotaciones agrícolas o ganaderas. Respecto a las situaciones dudosas se deberá consultar a la Administración Tributaria para que resuelva, con carácter general si procede o no la exención.

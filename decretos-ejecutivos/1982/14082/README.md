@@ -17,3 +17,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 2 | 1982-11-30 | SINALEVI (sin norma nombrada) |
 | 3 | 1982-12-06 | SINALEVI (sin norma nombrada) |
 | 4 | 1982-12-23 | Decreto Ejecutivo 14326 (1982-12-23) |
+| 5 | 1983-01-13 | Decreto Ejecutivo 14220 (1983-01-13) |
