@@ -1,1 +1,2 @@
-Artículo 27.- La suspensión y la cancelación surtirán efectos a partir del día de la publicación del aviso respectivo en el Boletín Judicial.
+Artículo 27.- La suspensión surtirán efectos a partir del día de la publicación del aviso respectivo en el Boletín Judicial.
+(Mediante resolución de la Sala Constitucional N° 3484 del 8 de julio de 1994, se anuló de este artículo frase: "y la cancelación". y se interpretó en el sentido de que: "que la sanción de suspensión a que hacen referencia los artículos 23 y 27 tienen como límite máximo diez años.")
