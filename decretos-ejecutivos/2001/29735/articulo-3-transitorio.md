@@ -1,0 +1,1 @@
+3º—El Manual de Procedimientos para la Oficina Ejecutora será elaborado dentro de los quince días posteriores a la publicación de este decreto y será sometido a aprobación de la Ministra del Ambiente y Energía.

@@ -1,0 +1,1 @@
+2º—Todos los recursos físicos, humanos, logísticos y materiales, actualmente asignados a la Unidad Ejecutora del Proyecto Parque Marino del Pacifico, formarán parte de la Oficina Ejecutora del Plan de Inversiones en Infraestructura Física, una vez creada ésta
