@@ -1,0 +1,1 @@
+Artículo 42.-Le corresponderá al MIEM, asistido por la Corporación y la Administración, velar por el correcto uso y destino de la maquinaria, equipo, materia prima y cualesquiera otros artículos internados al amparo de la ley.

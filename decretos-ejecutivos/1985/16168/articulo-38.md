@@ -1,0 +1,1 @@
+Artículo 38.-Las empresas establecidas en las zonas gozarán de la libre propiedad y disposición de las divisas que generen y las que utilicen en sus actividades, de acuerdo con el Reglamento para el manejo de las divisas de estas empresas emitido por el Banco Central.

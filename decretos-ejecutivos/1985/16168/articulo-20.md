@@ -1,0 +1,1 @@
+Artículo 20.-De existir la tentativa, el Director General de Aduanas sin perjuicio de las acciones legales que estime necesarias dentro del campo de su competencia, lo comunicará a la Administración, y a la Corporación para que determinen las sanciones procedentes, de acuerdo con la legislación vigente.

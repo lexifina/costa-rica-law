@@ -1,0 +1,1 @@
+Artículo 31.-El trámite de recibo y nacionalización se hará conforme con los procedimientos y requisitos aduaneros vigentes al respecto. Ingresados los bienes a la jurisdicción aduanera corren todos los términos establecidos en la legislación aduanera vigente.

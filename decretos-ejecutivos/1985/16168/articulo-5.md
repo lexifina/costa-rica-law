@@ -1,0 +1,1 @@
+Artículo 5º.-El ingreso y salida de vehículos y personas a y de las zonas solo podrá hacerlo por los lugares designados. Previo al ingreso y permanencia de vehículos y personas, la Administración emitirá el permiso correspondiente que podrá ser permanente u ocasional.

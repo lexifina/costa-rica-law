@@ -1,0 +1,1 @@
+Artículo 26.-Realizado el embarque la empresa remitente presentará al puesto de aduana, un juego de copias del conocimiento de embarque, dentro del plazo máximo de tres días hábiles a partir del mismo.

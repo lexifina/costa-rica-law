@@ -1,0 +1,1 @@
+Artículo 13.-Si los bienes no cumplieren con los artículos 11 y 12 anteriores, no habrá responsabilidad de la aduana, en los atrasos que pudiere sufrir el consignatario de los mismos. Sin embargo, podrá la aduana, a solicitud por escrito de cualquier interesado, rotular o permitir rotular los bultos y aplicar los procedimientos establecidos en este capítulo.

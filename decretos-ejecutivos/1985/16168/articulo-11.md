@@ -1,0 +1,1 @@
+Artículo 11.-Los bienes que se embarquen en el extranjero con destino a la zona deberán venir separados de cualesquiera otros bienes transportados en el mismo embarque y consignarse en idéntica forma en el manifiesto de carga.

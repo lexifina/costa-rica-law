@@ -1,0 +1,1 @@
+Artículo 24.-El traslado de los bienes hacia la aduana de embarque será autorizado por el puesto de aduana de la zona, asegurándose el mecanismo de control adecuado para evitar cualquier riesgo en el tránsito de las mercancías.

@@ -1,0 +1,1 @@
+Artículo 49.-El MIEM, la Corporación, la Administración y la autoridad aduanera emitirán en consulta coordinadamente, los instructivos y formularios que consideren necesarios para la aplicación del régimen.

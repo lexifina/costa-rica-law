@@ -1,0 +1,1 @@
+Artículo 41.-Si la Corporación o la Administración determinasen el incumplimiento por parte de una empresa o de la Administración de una o más condiciones establecidas en el respectivo acuerdo, lo comunicará al MIEM, el cual realizará las investigaciones pertinentes y procederá de acuerdo con lo que establece la ley.

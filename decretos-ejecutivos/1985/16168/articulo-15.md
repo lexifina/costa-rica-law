@@ -1,0 +1,1 @@
+Artículo 15.-Los bienes podrán ser descargados en la zona directamente, actuando el puesto de aduana de la zona como aduana de ingreso, siempre y cuando exista la previa autorización de la Dirección General de Aduanas.

@@ -1,0 +1,1 @@
+Artículo 25.-La aduana de embarque al recibo de la "Declaración de Salida A" permitirá el embarque respectivo. Los bienes manifestados serán revisados solamente en caso de que existan elementos de juicio, que permitan presumir la existencia de una posible defraudación.

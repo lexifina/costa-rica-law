@@ -1,0 +1,1 @@
+Artículo 2º.-Los beneficios, facilidades y obligaciones que se establecen en las leyes y en el presente Reglamento, se otorgarán y obligan a las personas físicas o jurídicas establecidas en las zonas, a las que tienen relación con ellas, así como todas aquellas personas que participen en otros actos regulados en este Reglamento.

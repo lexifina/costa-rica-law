@@ -1,0 +1,1 @@
+Artículo 9º.-Las disposiciones administrativas serán comunicadas a los usuarios exhibiéndolas en lugares visibles. Se enviará además copia de las mismas a las empresas y a la Administración de la zona.

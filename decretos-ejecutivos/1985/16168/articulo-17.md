@@ -1,0 +1,1 @@
+Artículo 17.-Realizada la descarga de los bienes, estos quedarán a disposición del consignatario. La aduana podrá, cuando lo considere pertinente, realizar una verificación física de los bienes depositados en la zona.

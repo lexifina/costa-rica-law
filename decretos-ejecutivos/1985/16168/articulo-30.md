@@ -1,0 +1,3 @@
+Artículo 30.-El puesto de aduana en la zona recibirá la "Declaración de Salida B" y el permiso de MEC y autorizará la salida de los bienes de la zona a la aduana de redestino solicitada, si fuera el caso.
+Previo a la salida de los bienes, la empresa presentará a la Administración la "Declaración de Salida B", y esta le proporcionará una copia al puesto de aduana.
+Cumplidos los requisitos de salida podrá el puesto de aduana de la zona, si así se le solicitara, proceder de una vez con los trámites de internamiento definitivo en el puesto de aduana, debiendo para ello seguir lo establecido en los artículos 31 y 32 siguientes, en lo aplicable.

@@ -1,0 +1,1 @@
+Artículo 36.-Las empresas amparadas por este régimen gozarán de pleno derecho de las exenciones de impuestos, derechos de aduana y demás gravámenes y otros beneficios otorgados en el acuerdo respectivo.
