@@ -14,3 +14,4 @@ Reglamento de Pago de Viáticos, Alimentación y Transporte a Regidores, Síndic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-24 | la propia norma |
+| 2 | 2000-12-05 | Reglamento municipal 158 (2000-12-05) |

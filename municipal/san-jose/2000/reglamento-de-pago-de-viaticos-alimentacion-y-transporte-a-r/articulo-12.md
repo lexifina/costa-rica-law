@@ -1,1 +1,2 @@
-Artículo 12.—El incumplimiento de estas obligaciones por el regidor propietario o suplente, los hará acreedores de las sanciones disciplinarias que el Reglamento emitido por la Contraloría General de la República, dispone para los funcionarios que conforman la Administración Activa.
+Artículo 12.—El incumplimiento de estas obligaciones por los regidores y síndicos propietarios y suplentes los hará acreedores de las sanciones disciplinarias que el reglamento emitido por la Contraloría General de la República sobre esta materia dispone para los funcionarios que conforman la administración activa.
+(Así reformado por Acuerdo de Sesión Nº 158 del 5 de diciembre de 2000)

@@ -1,1 +1,2 @@
-Artículo 5º—Oportunidad del gasto. Deberá existir una estrecha relación entre el gasto, hora de salida de la sesión Municipal y el lugar en el cual radica cualquiera de las personas a que se refieren los artículo 3º y 4º de este Reglamento.
+Artículo 5º—Oportunidad del gasto: El fundamento de esta erogación por parte de la Municipalidad nace con relación al párrafo segundo del Artículo Único de la Ley 7888 que es reforma al Articulo 30 del vigente Código Municipal publicado en el Diario Oficial La Gaceta No 138 del 16 de julio del 2000.
+(Así reformado por Acuerdo de Sesión Nº 158 del 5 de diciembre de 2000)
