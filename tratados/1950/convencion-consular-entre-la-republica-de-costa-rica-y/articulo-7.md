@@ -1,0 +1,9 @@
+ARTICULO VII
+1°- Un funcionario consular del Estado representado, dentro de su distrito consular, podrá dirigirse a las autoridades, ya sean nacionales, estatales, provinciales o municipales, o de otra subdivisión política local del Estado receptor, con el objeto de proteger a los nacionales del Estado que represente, en el goce de derechos que puedan ser fundados en tratados o de otra manera, y podrá presentar quejas con motivo de la infracción de dichos derechos. La omisión, por parte de las autoridades competentes, de otorgar satisfacción o protección, podrá justificar la intervención diplomática. En ausencia de un representante diplomático, el principal funcionario consular residente en la capital del Estado receptor, podrá dirigirse directamente al Gobierno de éste.
+2°-a) Un funcionario consular tendrá el derecho, dentro de su distrito consular, de:
+1) Entrevistar, comunicarse con, y aconsejar a cualquier nacional del Estado que represente;
+2) Investigar cualquier incidentes que hayan ocurrido y que afecten los intereses de cualquier nacional del Estado que represente;
+3) Visitar, previa notificación a las autoridades competentes, y privadamente, a cualquier nacional del Estado representado que esté preso o esté detenido por las autoridades del Estado receptor; y
+4) Ayudar a cualquier nacional del Estado representado en procedimientos o relaciones con las autoridades competentes del Estado receptor o de cualquier estado, provincia, municipalidad u otra subdivisión política local de éste.
+b) Un funcionario consular será informado inmediatamente por las autoridades competentes del Estado receptor, cuando cualquier nacional del Estado representado esté aprisionado en espera de juicio legal, o que esté detenido en custodia por tales autoridades dentro del distrito consular de tal funcionario.
+3°-Un nacional del Estado representado tendrá el derecho en todo momento de comunicarse con su funcionario consular.
