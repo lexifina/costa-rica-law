@@ -3,8 +3,8 @@ Atribuciones de la Asamblea
 Artículo 12.- Son atribuciones de la Asamblea General:
 a) Elegir a los miembros de la Junta Directiva del Colegio, de
 conformidad con lo establecido en la presente ley;
-b) Aprobar o improbar el informe de actividades de la Junta Directiva
-que termina, al ser rendido anualmente;
+b) Aprobar o improbar el informe de actividades de la Junta Directiva que
+termina, al ser rendido anualmente;
 c) Resolver en definitiva, los asuntos que la ley, la Junta Directiva o
 los colegiados, con arreglo a estas normas, le sometan;
 d) Conocer y resolver en los casos de reposición de directores, por
