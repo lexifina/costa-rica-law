@@ -1,0 +1,1 @@
+Transitorio III.—Transcurrido el plazo de un mes, posterior a la publicación de este Decreto, el Ministro constituirá una Comisión encargada de poner en práctica la transformación de la Dirección Nacional de Pensiones.

@@ -1,0 +1,1 @@
+Artículo 46.—El equipo humano asignado para atender los asuntos en materia de administración de recursos informáticos y desarrollo de sistemas de información, contará con un(a) coordinador(a) y éste(a) reportará directamente a la Jefatura del Departamento de Sistemas Computadorizados.

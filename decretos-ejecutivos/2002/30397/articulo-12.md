@@ -1,0 +1,8 @@
+Artículo 12.—La Dirección Nacional contará, además, con un(a) Subdirector(a) Nacional de Pensiones, quién tendrá las siguientes funciones, competencias y atribuciones:
+a) Coadyuvar con el (la) Director(a) Nacional de Pensiones en la definición, diseño, coordinación y evaluación de los diferentes procesos y procedimientos que se realizan dentro del quehacer diario de la Dirección Nacional.
+b) Organizar, supervisar y evaluar el cumplimiento de los objetivos y metas propuestos para cada uno de los Departamentos, la gestión profesional en materia de atención y concesión de los beneficios jubilatorios, la administración y ejecución financiera de los contenidos presupuestarios para cada uno de los Regímenes de Pensión, así como de aquellos referentes al presupuesto operativo de la Dirección Nacional.
+c) Emitir, supervisar y velar por la continuidad de las acciones técnico administrativas que se requieran, para conducir a la Dirección Nacional al logro de los objetivos propuestos, mediante el uso y aplicación de sus recursos humanos, tecnológicos y financieros.
+d) Participar en reuniones de coordinación con instituciones, órganos y organismos vinculados con el quehacer de la Dirección Nacional, con el fin de buscar soluciones conjuntas que mejoren su gestión.
+e) Constituir el eslabón indispensable para asegurar la articulación del ámbito político y del técnico operativo, dando seguimiento a las mejores prácticas funcionales de la Dirección Nacional.
+f) Sustituir en sus ausencias al (a la) Director(a) Nacional, avocándose en el cumplimiento de todas las funciones asignadas a éste(a).
+g) Las demás que le asigne el (la) Director(a) Nacional de Pensiones.
