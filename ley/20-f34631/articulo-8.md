@@ -1,0 +1,1 @@
+Artículo 8°.-Quedan derogados el Decreto N° XXXIII de 27 de diciembre de 1887, el Decreto N° XLVIII de 22 de julio de 1892 y el Decreto N° XIX de 22 de octubre de 1910, que legislaban sobre la misma materia.

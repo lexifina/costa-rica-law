@@ -1,0 +1,1 @@
+Artículo 2°.-Las resoluciones del Juez, en negocios contencioso-administrativos, abrazarán en sus efectos, no sólo la calificación del acto administrativo, sino la fijación de derechos que fuere pertinente.

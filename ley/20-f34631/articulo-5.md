@@ -1,0 +1,1 @@
+Artículo 5°.-Los negocios contencioso-administrativos, se tramitar n con arreglo al Código de Procedimientos Civiles, y las reglas de éste se observarán en todo lo que no tenga una tramitación especial.

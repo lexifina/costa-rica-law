@@ -1,0 +1,1 @@
+Artículo 3°.-No procederá demanda ni juicio contencioso-administrativo, sino después de haberse usado de todos los recursos que en la vía administrativa tenga el negocio de que se trate. La vía administrativa se considerará agotada cuando recaiga resolución o cuando hayan trascurrido más de tres meses desde la fecha de la presentación del recurso.
