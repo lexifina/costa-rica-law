@@ -1,3 +1,5 @@
 Articulo 14. —De la verificación de prerrequisitos Corresponderá la verificación del cumplimiento de prerrequisitos para el inicio de procedimientos de compras, y velar por el cumplimiento de requisitos del procedimiento según lo que establece la Ley de Contratación Administrativa y su Reglamento, a las siguientes instancias según el siguientes orden por límite presupuestario;
-a) En procedimientos de hasta menos de 03.000.000,00 (tres millones de colones), el Jefe de Proveeduría será el responsable.
-b) En procedimientos cuy a compra sea de 03.000.000,00 (tres millones de colones) en adelante, corresponde a la Asesoría Jurídica.
+a) En procedimientos que por el monto de adjudicación no requieran el visto bueno o aprobación interna por parte del Departamento de Asesoría Jurídica, el jefe de Proveeduría será el responsable.
+(Asíreformado por acuerdo publicado en la Gaceta N° 31 del 13 de febrero del 2003).
+b) En todo procedimiento que por el monto de la adjudicación se requiera del visto bueno o aprobación interna por parte del Departamento de la Asesoría Jurídica, este Departamento será el responsable.
+(Asíreformado por acuerdo publicado en la Gaceta N° 31 del 13 de febrero del 2003).
