@@ -9,6 +9,7 @@ Considerando:
 4°-Que es conveniente dar a esta Unidad de Protección límites naturales, fáciles de localizar y vigilar, y armonizados con los de las Reservas Indígenas que colindan con la mayor parte de su perímetro. Por tanto,
 Decretan:
 Artículo 1° -Se establece la "Reserva Biológica Barbilla", la cual se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Barbillá 3545 IV y Matina 3546 III, y se delimita por los puntos cuyas coordenadas son las siguientes:
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 26561 del 15 de mayo de 1997, se acordó modificar la categoría de manejo de la Reserva Biológica Barbilla a Parque Nacional, por lo que en adelante se dará tal condición de manejo y se le denominara Parque Nacional Barbilla)
 Partiendo de la unión del Río Dantas (Nairí o Venado) con el Río Barbilla, en el lugar llamado "Dos Ramas" , en coordenadas N 221 050 E 599 900, el límite común entre la Reserva Biológica y la Reserva Indígena Cabécar de Nairi-Awari ( Bajo-Barbilla), es constituido por rectas pasando por los puntos de coordenadas siguientes:
 N 220 550 E 600 250
 N 220 600 E 600 650

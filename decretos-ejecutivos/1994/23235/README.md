@@ -14,3 +14,4 @@ Establece Parque Nacional Barbilla (anteriormente Reserva Biológica Barbilla)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-19 | la propia norma |
+| 2 | 1997-05-15 | Decreto Ejecutivo 26561 (1997-05-15) |
