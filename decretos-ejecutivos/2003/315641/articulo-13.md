@@ -1,0 +1,1 @@
+Artículo 13.—Sanciones. El funcionario profesional y su Jefatura respectiva que incumpla con lo preceptuado en el presente Reglamento, serán acreedores a las sanciones correspondientes según el Reglamento Autónomo de Organización y Servicios del MOPT y la Normativa vigente establecida.
