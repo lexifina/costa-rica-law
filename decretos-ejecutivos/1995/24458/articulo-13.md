@@ -1,0 +1,1 @@
+Artículo 13.- El Auditor Interno deberá proponer al Ministro, previa justificación, la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de auditoría y en general, para el buen funcionamiento de su Unidad.

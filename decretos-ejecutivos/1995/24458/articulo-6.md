@@ -1,0 +1,1 @@
+Artículo 6º.- Ningún funcionario del Ministerio de Trabajo y Seguridad Social puede alegar ignorancia o desconocimiento de este reglamento. Es obligación de todos los funcionarios que ocupan cargos de jefatura, ponerlo en conocimiento de su personal subalterno.

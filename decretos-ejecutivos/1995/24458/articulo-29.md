@@ -1,0 +1,2 @@
+Artículo 29.- Las Dependencias del Ministerio sujetas a la evaluación de la Auditoría Interna, están en la obligación de suministrar a ésta, toda la información que, en el desempeño de sus funciones, le sea necesario conocer para la realización de los estudios que esté efectuando o vaya a realizar.
+Se considera falta grave negar injustificadamente la información, interferir u oponerse al normal desarrollo de las funciones de Auditoría.

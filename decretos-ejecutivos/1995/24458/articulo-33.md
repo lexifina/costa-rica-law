@@ -1,0 +1,1 @@
+Artículo 33.- Se deroga el capítulo IV del Decreto Ejecutivo Nº 23670-TSS Reglamento a la Ley 5662, Ley de Desarrollo Social y Asignaciones Familiares; los incisos c), f), g), h), i), j) del artículo 30 del Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Seguridad Social, Decreto Nº 1508 TBS del 16 de febrero de 1971.
