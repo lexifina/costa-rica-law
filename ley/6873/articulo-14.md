@@ -1,1 +1,1 @@
-Decimocuarta: El Consejo Técnico Asesor será el órgano asesor del Consejo Directivo y podrá elevar recomendaciones al Consejo Directivo sobre políticas y estrategias de acción en materia de investigación, educación y transferencia de tecnología, así como en materia de proyectos y evacuará las consultas que le formule el Consejo Directivo. La explicitación de sus funciones se hará por reglamento.
+Decimacuarta.- Las decisiones del Consejo se tomarán por mayoría de votos, salvo aquellos casos en que este Contrato o el Reglamento del CATIE exijan una mayoría diferente.

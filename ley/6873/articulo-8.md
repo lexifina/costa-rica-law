@@ -1,9 +1,10 @@
-CAPITULO III
-De los Órganos
-Octava: El CATIE tendrá los siguientes órganos:
-a) Asamblea.
-b) El Consejo Directivo.
-c) El Consejo Técnico Asesor.
-d) El Consejo Académico.
-e) La Dirección.
-f) El Consejo Técnico-Administrativo.
+CAPÍTULO III
+DE LOS ÓRGANOS
+Octava.- El CATIE tendrá los siguientes órganos:
+a) La Junta Interamericana de Agricultura.
+b) El Consejo Superior.
+c) La Junta Directiva.
+d) La Dirección General.
+e) El Comité Ejecutivo y de Finanzas.
+f) El Comité Científico-Académico.
+g) El Comité Administrativo.

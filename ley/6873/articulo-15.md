@@ -1,2 +1,13 @@
-Decimoquinta: El Consejo Técnico Asesor estará integrado por el Director del CATIE, que los presidirá; un representante del Ministerio de Agricultura y Ganadería de Costa Rica; el Rector de la Universidad de Costa Rica o su delegado; dos representantes de la Dirección General del IICA, y siete científicos o académicos, independientes, de reconocida excelencia y prestigio. De éstos, seis son elegidos por el Consejo Directivo o propuesta de los países que son Miembros Regulares a título personal, pudiendo ser o no nacionales del país proponente; el sétimo será elegido por el Consejo Directivo, a propuesta de los Miembros Adherentes. Los científicos o académicos a que alude el párrafo anterior, durarán en sus cargos por dos años, pudiendo ser reelegidos. Se renovarán cuatro los años pares y tres los años impares.
-Podrán asistir en calidad de observadores con voz pero sin voto a las sesiones del Consejo: (a) un representante de cada uno de los Miembros Regulares; (b) un representante de cada uno de los Miembros Adherentes; © representantes de las entidades que el Consejo Directivo decida invitar; a propuesta del Consejo Técnico Asesor.
+Decimaquinta.- La Junta Directiva, en adelante denominada la Junta, será el órgano de dirección y tendrá las siguientes funciones, sin perjuicio de aquellas otras explícitamente definidas en el presente Contrato y todas aquellas que le delegue expresamente el Consejo Superior:
+a) Aprobar el programa-presupuesto anual y velar por la integridad financiera y contable.
+b) Elevar recomendaciones al Consejo Superior sobre políticas y estrategias de acción en materia de investigación, educación, transferencia de tecnología y autosostenibilidad financiera.
+c) Someter para ratificación al Consejo Superior el informe anual, el presupuesto y otros informes importantes del CATIE y en particular los informes de cualquier revisión externa o evaluación institucional.
+d) Supervisar por sí y a través de sus comités a los ejecutivos de la institución en el logro de los objetivos de la misma.
+e) Revisar y proponer las políticas y estrategias de acción en materia de investigación, educación, transferencia de tecnología, autosostenibilidad financiera y de personal de la Institución.
+f) Someter a la consideración del Consejo Superior una propuesta de tres a cinco candidatos para ocupar el puesto de Director General.
+g) Constituir comités de trabajo adicionales a los establecidos en este Contrato, para llevar a cabo tareas específicas según se considere necesario.
+h) Proponer para su aprobación al Consejo Superior las contribuciones regulares o especiales de sus Países Miembros.
+i) Considerar cualquier asunto que le sea sometido por el Consejo Superior o por cualquiera de sus miembros.
+j) Efectuar las labores preparatorias de la Agenda del Consejo Superior.
+k) Proponer, para la aprobación por parte del Consejo Superior, los Reglamentos Internos del CATIE, definidos en el inciso h) de la Cláusula Decimaprimera anterior.
+l) Seleccionar y proponer al Consejo Superior, ternas de candidatos a la Junta Directiva, de conformidad con el reglamento correspondiente.

@@ -1,3 +1,1 @@
-Cuadragésima: Los aportes a que se refiere el párrafo segundo de la cláusula vigésimoquinta, serán por una suma anual no menor de US$ 50.000,00 (cincuenta mil dólares de los Estados Unidos de América), durante los dos primeros años de vigencia de este Contrato. San José, 21 de febrero de 1983”.
-Artículo 2º.-Rige a partir de su publicación.
-Presidencia de la República.- San José, a los diecisiete días del mes de junio de mil novecientos ochenta y tres.
+Cuadragésima.- Se procederá a inscribir en el registro correspondiente el presente Contrato de la Asociación, así como los correspondientes compromisos de aportes a que se refiere la cláusula vigesimanovena. Tales inscripciones están exentas del pago de derechos de Registro, timbres u otros derechos, tasas o impuestos que corresponden a estas operaciones.

@@ -1,1 +1,1 @@
-Trigésimoctava: La Dirección General del IICA será depositada del presente Contrato. Certificará sus copias y las incorporaciones y adhesiones que se produzcan al contrato CATIE.
+Trigesimaoctava.- La Asociación podrá disponer libremente de sus divisas extranjeras para sus operaciones en o desde Costa Rica.
