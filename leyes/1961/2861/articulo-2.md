@@ -1,0 +1,1 @@
+Artículo 2º—Asimismo se le autoriza para someter a igual procedimiento las diferencias que surgieren con otros interesados en la explotación de la industria del banano, que operaren con contratos individualizados o al amparo del artículo 2º de la ley Nº 2038 de 26 de julio de 1956.
