@@ -13,3 +13,4 @@ Interés V Congreso La Transformación de la Empresa en la Agricultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-13 | la propia norma |
+| 2 | 1996-06-13 | SINALEVI (sin norma nombrada) |
