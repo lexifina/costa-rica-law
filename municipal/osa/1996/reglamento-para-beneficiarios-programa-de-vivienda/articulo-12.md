@@ -1,0 +1,1 @@
+12.-EI beneficiario debe ser integrante de un núcleo familiar, no se adjudicarán lotes a personas que vivan solas, excepto aquellos de edad avanzada, que hayan ocupado el predio a título de dueños por espacio de 5 años.

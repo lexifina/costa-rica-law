@@ -1,0 +1,1 @@
+2.-La persona interesada deberá presentar en un formulario. sus datos personales y familiares, bajo fe de juramento, en el entendido, de que si se comprobare falsedad en los datos del núcleo familiar, la Municipalidad puede rescindir el contrato y el beneficiario perderá todos los derechos de adjudicación.

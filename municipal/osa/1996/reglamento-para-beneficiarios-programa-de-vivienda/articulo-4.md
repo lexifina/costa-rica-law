@@ -1,0 +1,1 @@
+4.-Presentar constancias de nacimiento de los menores, de matrimonio o en su efecto constancia de la guardia rural de la localidad dando fe de que el solicitante vive en unión libre, o que es padre soltero a cargo de sus hijos menores.
