@@ -1,0 +1,1 @@
+Art 4°.- Los recursos provenientes del crédito a que se refiere la presente ley, serán destinados por el Banco Nacional de Costa Rica a la continuación del financiamiento de su programa agropecuario, que incluye subcrédito para el desarrollo de la ganadería, de la agricultura, de la infraestructura agropecuaria, de maquinaria agropecuaria y misceláneos de los ramos mencionados.
