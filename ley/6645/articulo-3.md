@@ -1,0 +1,1 @@
+Artículo 3°-Autorízase a la Procuraduría General de la República, para que, a través de la Notaría del estado, otorgue la escritura correspondiente, la cual estará exenta del pago de honorarios y de toda clase de impuestos nacionales o municipales, timbres y derechos de inscripción.
