@@ -1,0 +1,1 @@
+Artículo 7º—Naturaleza del viático. Queda entendido que todas las sumas que se paguen por concepto de viáticos, no constituyen salario, por lo que no se tomarán en cuenta para efectos de pago de prestaciones vacaciones o aguinaldo.

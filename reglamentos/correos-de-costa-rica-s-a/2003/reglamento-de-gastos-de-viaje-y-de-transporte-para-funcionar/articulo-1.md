@@ -1,0 +1,12 @@
+CORREOS DE COSTA RICA, S. A.
+Considerando:
+I.—Que mediante la Ley de Correos Nº 7768, de 24 de abril de 1998, se crea la empresa Correos de Costa Rica, S. A., cuyo patrimonio y capital social pertenecen íntegramente al Estado.
+II.—Que de conformidad con la Ley Nº 7768 Correos de Costa Rica es el correo oficial de la República y entre las funciones que debe desempeñar están: a) garantizar la eficacia, eficiencia, calidad, seguridad y oportunidad de sus servicios, y b) garantizar la cobertura nacional de sus servicios.
+III.—Que para el encaminamiento de la correspondencia de Correos de Costa Rica cuenta con un sistema de rutas que en diferentes horarios y jornadas enlaza todas las Sucursales de Correos en el territorio nacional.
+IV.—Que para la prestación de sus servicios Correos de Costa Rica ha diseñado su propio sistema de sectorización postal mediante el cual cada Sucursal de Correos se ubica en una circunscripción territorial o área geográfica dentro de la cual los trabajadores deben desplazarse para prestar los servicios.
+V.—Que en materia de gastos de viaje y de transporte, Correos de Costa Rica, S. A., se rige por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, promulgado por la Contraloría General de la República (en adelante conocido como el Reglamento de la Contraloría), de conformidad con lo establecido en el artículo 1° del mismo. No obstante, dicho Reglamento faculta a los entes públicos que se les aplica para que por vía de excepción regulen aquellas situaciones especiales en las cuales a criterio razonado de la Administración se justifique el reconocimiento y pago de viáticos.
+VI.—Que dada la naturaleza y particularidad de los servicios postales que brinda, los cuales se deben prestar en forma rápida y continua, como complemento al Reglamento de la Contraloría, Correos de Costa Rica requiere contar con su propio reglamento de la materia con el fin de satisfacer las necesidades de los clientes.
+VII.—Que por las razones anteriores, se promulga el presente reglamento.
+CAPÍTULO PRIMERO
+Disposiciones generales
+Artículo 1º—Ámbito de aplicación. El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones que, por concepto de gastos de viaje y de transporte (viáticos), deban realizar los trabajadores y funcionarios de Correos de Costa Rica cuando en cumplimiento de sus labores deban desplazarse dentro o fuera del país.

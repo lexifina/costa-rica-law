@@ -1,0 +1,1 @@
+Artículo 19.—Aprobación de Junta Directiva. El presente Reglamento fue aprobado por la Junta Directiva de Correos de Costa Rica, S. A., mediante Acuerdo Nº 2078, tomado en la Sesión Nº 381, celebrada el día 6 de enero del dos mil tres.
