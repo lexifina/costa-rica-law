@@ -1,0 +1,1 @@
+Artículo 5°-En el caso de que se vaya a efectuar bailes, además de lo indicado por el artículo 1, aportar el Aval del Teatro Nacional y autorización de uno de los repertorios musical extendido por la Asociación de Compositores y Autores Musicales de Costa Rica (ACAM).

@@ -1,0 +1,1 @@
+Artículo 18.-Los miembros del Concejo Municipal, no se responsables de los daños y perjuicios que se causen como producto de lo permisos regulados por el presente Reglamento, por el mal uso del mismo, por el abuso, el exceso y demás circunstancias que se produzcan en la actividad.

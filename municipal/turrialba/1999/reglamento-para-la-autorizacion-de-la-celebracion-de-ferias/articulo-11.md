@@ -1,0 +1,1 @@
+Artículo 11.-Cuando la actividad bailable sea organizada y sus beneficios totales sean para instituciones educativas, religiosas o de bien social, se exonerará el impuestos municipal de espectáculos públicos.

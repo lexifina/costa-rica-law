@@ -1,0 +1,1 @@
+Artículo 2°-Si en la actividad van a operar carruseles, deberán adjuntar la original o copia debidamente certificada por Notario Público de Póliza respectiva extendida por el Instituto Nacional de Seguros, que en ningún caso no podrá ser de una cobertura menor a cinco millones de colones.

@@ -1,0 +1,1 @@
+Artículo 9°-Que en el caso del uso de pólvora, juegos pirotécnicos, se requerirá, la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, Póliza del Instituto Nacional de Seguros, para dicha actividad específica y el compromiso formal y por escrito de utilizar un tubo de hierro ajustado a un hoyo y en tierra firme, para las detonaciones.
