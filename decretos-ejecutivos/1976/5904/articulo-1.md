@@ -120,50 +120,46 @@ De este punto se sigue aguas abajo por el río Chirripó hasta el punto de orige
 Área de la Reserva: 1 155 Ha. 6 875 m2.
 (*) (Mediante el artículo 5° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, se agregó a la Reserva Indígena de Chirripó la Finca "Chirripó-Corina" (finca 4 Chirripó), antes mencionada. Asimismo por el artículo 6° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, la finca "Chirripó-Corina" son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).)
 RESERVA INDÍGENA DE GUAYMI DE COTO BRUS
-La Reserva Indígena de Guaymi de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional escala 1: 50.000, Coto Brus 3542-1 y Piedras Blancas 3542-II.
-La Reserva se localiza por los puntos, cuyos rumbos, distancias y coordenadas son: Vértice Anguciana N 307 230 y E 556 662.
-N 34 15 E | 689,52 m | 307 800 | 557 050
-N 19 59 W | 877,85 | 308 625 | 556 750
-N 46 26 E | 1 185,58 | 309 500 | 557 550
-N Franco | 500,00 | 310 000 | 557 550
-N 21 48 E | 269,26 | 310 250 | 557 650
-N 25 43 W | 1 489,33 | 311 600 | 557 000
-N 49 05 E | 992,47 | 312 250 | 557 750
-N 14 02 E | 618,47 | 312 850 | 557 900
-S 88 19 E | 1 700,74 | 312 800 | 559 600
-N 83 48 E | 1 156,77 | 312 925 | 560 750
-N 85 55 E | 350,89 | 312 950 | 561 100
-S 33 41 E | 540,83 | 312 500 | 561 400
-De este punto se continúa aguas arriba por el río Limón hasta un punto de coordenadas N 310 150 y E 565 650.
-S 84 57 E | 1 706,60 m | 310 000 | 567 350
-S 55 00 E | 610,33 | 309 650 | 567 850
-S 26 34 W | 335,41 | 309 350 | 567 700
-De este punto continúa aguas arriba por el río Limón hasta su unión con el río Chico, sigue por el río Chico aguas arriba, hasta la unión de sus dos nacientes, en coordenadas N 307 300 y E 568 600, continúa con rumbo SE, por una de las nacientes del río Chico, hasta un punto de coordenadas N 305 000 y E 569 425. A partir de este punto se continúa con los siguientes rumbos, distancias y coordenadas:
-S 02 52 W | 500,00 m | 304 500 | 569 400
-S 33 41 W | 360,00 | 304 200 | 569 200
-S 72 54 W | 680,00 | 304 000 | 568 550
-S 08 08 W | 350,00 | 303 650 | 568 500
-N 49 38 W | 655,00 | 303 225 | 568 000
-N 51 51 W | 445,00 | 303 500 | 567 650
-N 77 00 W | 665,00 | 303 650 | 567 000
-N 81 52 W | 350,00 | 303 700 | 566 650
-S 81 15 W | 655,00 | 303 600 | 566 000
-S 73 18 W | 1 045,00 | 303 300 | 565 000
-N 63 26 W | 335,00 | 303 450 | 564 700
-S 77 54 W | 715,00 | 303 300 | 564 000
-N 83 17 W | 855,00 | 303 450 | 564 700
-S 85 36 W | 651,92 | 303 350 | 562 500
-N 50 54 W | 1 030,78 | 304 000 | 561 700
-S 80 08 W | 1 167,26 | 303 800 | 560 550
-N 60 39 W | 917,88 | 304 250 | 559 750
-W Franco | 600,00 | 304 250 | 559 150
-N 54 28 W | 860,23 | 304 750 | 558 450
-N 45 00 W | 919,24 | 305 400 | 557 800
-N 66 30 W | 2 507,99 | 306 400 | 555 500
-N 10 47 W | 1 068,88 | 307 450 | 555 300
-De este punto al punto de origen de la presente descripción, vértice Anguciana en coordenadas N 307 230 y E 556 662.
-ÁREA DE LA RESERVA: 8 630 Ha, 7 900 metros cuadrados.
-(Así reformado la Reserva Indígena Guaymi de Coto Brus anterior por el artículo 5° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+La Reserva Indígena de Guaymí de Coto Brus se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Coto Brus 3542- I y Piedras Blancas 3542- II.
+La Reserva se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
+N 34 15 E | 689.52 | 307 800 | 557 050
+N 19 59 W | 877.85 | 308 625 | 556 750
+N 46 26 E | 1 185.58 | 309 500 | 557 550
+N 07 08 W | 403.11 | 309 900 | 557 500
+E Franco | 450.00 | 309 900 | 557 950
+De este punto se sigue aguas abajo por uno de los brazos del río Limón, hasta la unión con éste en coordenadas N 310 525, E 562 525. Se continúa aguas arriba por el río Limón hasta un punto de coordenadas N 310 150, E 564 150. A partir de este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+N 08 08 E | 353.55 | 310 500 | 564 200
+N 21 48 W | 269.26 | 310 750 | 564 100
+N 63 26 E | 111.80 | 310 800 | 564 250
+E Franco | 250.00 | 310 800 | 564 500
+S 55 00 E | 610.33 | 310 450 | 565 000
+De este punto se sigue con rumbo S 71 34 E, una distancia de 158 metros hasta el río Limón en coordenadas N 310 400, E 565 150, se sigue aguas arriba por éste, hasta el punto N310 150, E 565 650, se sigue con rumbo SE al punto de coordenadas N310 000, E 567 300, continúa con rumbo SE al punto de coordenadas N 309 650, E 567 800, se sigue con rumbo SW hasta encontrar el río Limón en coordenadas N 309 400, E 567 650, se continúa aguas arriba por éste, hasta su unión con el río Chico, se sigue aguas arriba por el río Chico, hasta la unión de sus dos nacientes en coordenadas N 307 300, E 568 600, continúa con rumbo SE, por una de las nacientes del río Chico, hasta un punto de coordenadas N 305 000, E 569 525. A partir de este punto se continúa con los siguientes rumbos, distancias y coordenadas:
+S 10 37 W | 406.97 | 304 600 | 569 450
+S 49 24 W | 230.49 | 304 450 | 569 275
+S 07 08 W | 201.56 | 304 250 | 569 250
+S 84 17 W | 502.49 | 304 200 | 568 750
+S 12 32 W | 460.98 | 303 750 | 568 650
+S 53 51 W | 805.06 | 303 275 | 568 000
+N 31 36 W | 381.61 | 303 600 | 567 800
+N 73 18 W | 1 044.03 | 303 900 | 566 800
+S 78 07 W | 970.82 | 303 700 | 565 850
+S 70 34 W | 901.39 | 303 400 | 565 000
+N 53 08 W | 250.00 | 303 550 | 564 800
+S 79 23 W | 813.94 | 303 400 | 564 000
+N 86 38 W | 851. 47 | 303 450 | 563 150
+S 75 58 W | 618.47 | 303 300 | 562 550
+N 50 32 W | 1 101.14 | 304 000 | 561 700
+S 80 08 W | 1 167.26 | 303 800 | 560 550
+N 60 39 W | 917 88 | 304 250 | 559 750
+N 85 14 W | 602.08 | 304 300 | 559 150
+N 59 02 W | 874.64 | 304 750 | 558 400
+N 43 44 W | 795.69 | 305 325 | 557 850
+N 65 55 W | 2 573.91 | 306 375 | 555 500
+N 10 32 W | 1 093.45 | 307 450 | 555 300
+De este punto al punto de origen de la presente descripción, vértice Anguciana en coordenadas N 307 230, E 556 662.
+Área de la Reserva 7 245 Ha. 9 150 m2.
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977, se acordó modificar los límites de la Reserva Indígena Guaymí de Coto Brus, de tal manera que se excluya de la Reserva el poblado de Paraíso)
+(Así reformada la Reserva Indígena Guaymí de Coto Brus anterior por el artículo 4° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977)
 RESERVA INDÍGENA DE LA ESTRELLA
 La Reserva Indígena de la Estrella, se encuentra en las hojas del Instituto Geográfico Nacional, Estrella 3545-11 y Telire 3544-1, - escala 1: 50.000.
 Se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
@@ -200,17 +196,34 @@ De este punto se sigue aguas arriba por la quebrada Sarpueri hasta el punto de o
 ÁREA DE LA RESERVA: 12 477 Ha, 2 688 metros cuadrados.
 (Así reformado los linderos de la Reserva Indígena de la Estrella anterior, por el artículo 3° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
 RESERVA INDÍGENA DE GUATUSO
-La Reserva Indígena de Guatuso se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Guatuso 3248 III y Arenal 3247 IV.
-La Reserva se localiza partiendo de un punto de coordenadas N 298 700, E 448 050, sigue, aguas arriba por el río La Muerte hasta un punto de coordenadas N 294 000, E 451 850, se continua con rumbo SW hasta un punto de coordenadas N 293 000, E 450 850, sigue aguas arriba por el río Cucaracha, hasta la unión de sus dos nacientes en coordenadas N 288 525 y E 451 650. Continua aguas arriba por una de estas nacientes hasta un punto de coordenadas N 286 725 y E 448 900.
-A partir de este punto la parcela está delimitada por los puntos cuyos rumbos,' distancias y coordenadas son :
-S 43 40 W | 760.00 m. | 286 175 | 448 375
-N Franco | 1425.00 m. | 287 600 | 448 375
-N 36 52 E | 875.00 m. | 288 300 | 448 900
-N Franco | 1 100.00 m. | 289 000 | 448 900
-N 51 20 E | 640.00 m. | 289 400 | 449 400
-N 22 23 E | 920 00 m. | 290 250 | 449 750
-De este punto se continua aguas abajo por el río El Sol hasta un punto de coordenadas N 291 650 y E 448 675, se continua con rumbo N al punto N 292 550 y E 448 675, de este punto con rumbo NE hasta llegar al río El Sol en un punto de coordenadas N 292 650 y E 449 000, se sigue aguas abajo por el río El Sol, hasta el punto de coordenadas N 293 350 y E 448 525, se continua con rumbo NW el punto N 294 000 y E 447 800; siguiendo rumbo NW hasta el punto N 294 200 y E 447 650, se sigue rumbo NE hasta el río El Sol en un punto de coordenadas N 294 550 y E 448 250, de aquí se continua aguas abajo por el río El Sol hasta su unión con el río Frío, luego se sigue aguas abajo por éste hasta el punto inicial de la presente descripción, en la unión del río Frío y el río La Muerte en coordenadas N 298 700 y E 448 050.
-Área de la Reserva 2 994 hectáreas.
+La Reserva Indígena de Guatuso se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1: 50.000, Guatuso 3248 III y Arenal S 247 IV.
+La Reserva se localiza por los siguientes rumbos, distancias y coordenadas:
+| | 296 500 | 447 200
+E Franco | 300.00 | 296 500 | 447 200
+S Franco | 250.00 | 296 250 | 447 500
+E Franco | 1 950.00 | 296 250 | 449 450
+A partir de este punto se continúa aguas arriba por el río La Muerte hasta su confluencia con el río Cucaracha en el punto de coordenadas N 295 325, E 450 300, se sigue luego aguas arriba por el río Cucaracha hasta un de coordenadas N 295 150, E 450 250, se continúa con rumbo E Franco y una distanda de 700 metros al punto de coordenadas N 295 150, E 450 950, se sigue luego aguas arriba por el río La Muerte hasta el punto de coordenadas N 290 800, E 454 000, se continúa con los siguientes rumbos, distancias y coordenadas:
+S 68 33 W | 1 504.16 | 290 250 | 452 600
+S 63 26 W | 1 006.23 | 289 800 | 451 700
+S 69 27 W | 427.20 | 289 650 | 451 300
+S 53 08 W S | 750.00 | 289 200 | 450 700
+68 12 W | 538.52 | 289 000 | 450 200
+W Franco | 350.00 | 289 000 | 449 850
+Se continúa aguas arriba por el río El Sol hasta un punto de coordenadas N 287 575, E 449 100, se sigue por los siguientes rumbos, distancias y coordenadas:
+W Franco | 650.00 | 287 575 | 448 450
+N 31 50 E | 853.30 | 288 300 | 448 900
+N Franco | 1 350.00 | 289 650 | 448 900
+Se continúa aguas abajo por un afluente del río El Sol hasta la unión con éste en el punto de coordenadas N 290 625, E 449 300, se sigue aguas abajo por el río El Sol hasta el punto de coordenadas N291 650, E 448 700, se continúa con los siguientes rumbos, distancias y coordenadas:
+N 06 20 W | 905.54 | 292 550 | 448 600
+N 75 58 E | 412.31 | 292 650 | 449 000
+Se continúa aguas abajo por el río El Sol hasta un punto de coordenadas N 293 350, E 448 525, se sigue luego con los siguientes rumbos, distancias y coordenadas:
+N 50 01 W | 1 011.50 | 294 000 | 447 750
+N 26 34 W | 223.61 | 294 200 | 447 650
+N 53 58 E | 680.07 | 294 600 | 448 200
+Se continúa aguas abajo por el río El Sol hasta su confluencia con el río Frío en el punto de coordenadas N 295 800, E 447 200, se sigue aguas abajo por el río Frío hasta el punto inicial de la presente descripción en coordenadas N 296 500, E 447 200.
+Área de la Reserva 2 743 Ha. 5 897 m2.
+(Así reformada la Reserva Indígena de Guatuso anterior por el artículo 2° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977, se acordó modificar los límites de la Reserva Indígena de Guatuso, de tal manera que la superficie total quede similar, pero que se excluya de la Reserva los poblados de Los Angeles y de San Josecito (Cucaracha).)
 RESERVA INDÍGENA DE TALAMANCA
 La Reserva Indígena de Talamanca. se localiza en las hojas del Instituto Geográfico Nacional, Telire 3544-1, Amubri 3644-IV, Sukut 3644-III, Siola 3544-II, escala 1: 50.000.
 Localizada por los puntos cuyos rumbos, distancias y coordenadas son:
