@@ -1,0 +1,9 @@
+Artículo 4º—Definiciones para efecto del presente Reglamento, se entiende por:
+a) Funcionarios: Persona física que preste a la Municipalidad en propiedad o interinidad sus servicios materiales o intelectuales o de ambos géneros, a nombre y por cuenta de éste, en virtud de un acto válido y de eficaz investidura.
+b) Miembros del Concejo Municipal: Regidores y Síndicos Propietarios y Suplentes, que debidamente acreditados por el Tribunal Supremo de Elecciones (TSE).
+c) Municipalidad: Municipalidad de Carrillo
+d) Proveeduría: La dependencia administrativa encargada del mantenimiento, reparaciones y el buen uso de los vehículos de la Municipalidad, según Norma Nº 316.02 Mantenimiento y Reparaciones del Manual sobre Normas Técnicas de Control Interno Relativas al Uso y Control y Mantenimiento de Vehículos, emitido por la Contraloría General de la República.
+e) Servicio de Transporte: El que preste la Municipalidad para el transporte de los Funcionarios y Miembros del Concejo Municipal durante el desempeño de sus funciones. según Norma Nº 312.02 Programación de los Servicios del Manual sobre Normas Técnicas de Control Interno Relativas al Uso y Control y Mantenimiento de Vehículos, emitido por la Contraloría General de la República.
+f) Vehículos de la Municipalidad: Toda unidad motorizada de transporte de personas, de carga o maquinaria pesada.
+g) Conductor: Es todo aquel funcionario municipal, Miembros del Concejo Municipal o aquel que ejerce función pública en la institución y que conduce ocasionalmente vehículos municipales, pero que no está nombrado como chofer, pero que deben cumplir con Norma Nº 315.03 Deberes y Responsabilidades del Manual sobre Normas Técnicas de Control Interno Relativas al Uso y Control y Mantenimiento de Vehículos, emitido por la Contraloría General de la República.
+h) Reglamento: Conjunto de disposiciones que rigen el uso y control de los vehículos propiedad de la Municipalidad.
