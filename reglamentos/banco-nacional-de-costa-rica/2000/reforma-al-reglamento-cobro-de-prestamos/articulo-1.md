@@ -1,0 +1,2 @@
+Aprobado en la sesión Nº 11.020, artículo 23, numeral 2) del 29 de febrero del 2000, que dice:
+Artículo 38.—"...Si al abogado le correspondiere la asignación de una operación para su cobro judicial, pero se ausentará por razones de enfermedad, debidamente comprobada, se le entregará el caso a aquel abogado que continúe en el rol y se le repondrá con otro similar al abogado ausente, cuando se incorpore nuevamente al rol...".
