@@ -1,0 +1,1 @@
+Artículo 8°.-Deróganse los decretos n° 29 de 9 de enero de 1907 y n° 3 de 22 de octubre de 1914, y modificase los artículos 34, 40, 42 y 91 del Código Penal en cuanto se opongan a las disposiciones de este Decreto.
