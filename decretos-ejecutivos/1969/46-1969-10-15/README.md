@@ -16,3 +16,4 @@ Establece Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo In
 | 1 | 1969-10-22 | la propia norma |
 | 2 | 1969-12-01 | Decreto Ejecutivo 54 (1969-12-01) |
 | 3 | 1970-05-15 | Decreto Ejecutivo 1003 (1970-05-15) |
+| 4 | 1971-09-07 | Decreto Ejecutivo 1954 (1971-09-07) |
