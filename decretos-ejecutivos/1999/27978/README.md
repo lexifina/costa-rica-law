@@ -13,3 +13,4 @@ Declara Estado Necesidad y Urgencia Control Epidemia Dengue en Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-15 | la propia norma |
+| 2 | 1999-07-15 | SINALEVI (sin norma nombrada) |
