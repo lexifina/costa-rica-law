@@ -13,3 +13,4 @@ Creación y Organización Contralorías de Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-09-27 | la propia norma |
+| 2 | 1994-10-06 | Decreto Ejecutivo 23721 (1994-10-06) |
