@@ -1,1 +1,0 @@
-Artículo 18.-Toda resolución de los establecimientos de la Clase "A" referentes a promociones y aplazamiento deberá ajustarse estrictamente a las normas establecidas para las instituciones oficiales. Cualquier diferencia en los procedimientos será motivo para que el acto sea declarado nulo. .

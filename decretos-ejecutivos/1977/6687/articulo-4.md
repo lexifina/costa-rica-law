@@ -1,2 +1,0 @@
-Artículo 4°-El Consejo Superior de Educación ejercerá la vigilancia necesaria y dispondrá las medidas pertinentes a fin de que en las actividades de estos centros, prevalezca el criterio de servicio público sobre el espíritu de lucro, cualquiera que sea el tipo de entidad que los organice o administre.
-imparta en los establecimientos priva su esencia y orientación general. Se señala y enuncia la Ley Fundamental

@@ -1,1 +1,0 @@
-Artículo 23.- Toda institución de enseñanza privada de los grupos "A" y "B" deberán contar con un reglamento interno que oportunamente hará del conocimiento de los interesados. Este reglamento no podrá contravenir las disposiciones usuales de la enseñanza oficial.

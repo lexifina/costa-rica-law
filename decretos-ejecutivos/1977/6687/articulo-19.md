@@ -1,1 +1,0 @@
-Artículo 19. -Las instituciones de Clase "A" deberán remitir al Ministerio de Educación Pública en la segunda quincena del mes de febrero el calendario escolar el cual deberá ajustarse al calendario oficial escolar.

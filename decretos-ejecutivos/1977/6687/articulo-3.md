@@ -1,1 +1,0 @@
-Artículo 3°-A las instituciones privadas de enseñanza tendrán acceso todos los educandos sin distinción de raza, religión, posición social, credo político o cualquier otra contraria a la dignidad humana.

@@ -1,1 +1,0 @@
-Artículo 21.-Los libros de texto que se usen en las instituciones privadas de enseñanza deberán ajustarse a las técnicas modernas a fin de asegurar a lo alumnos la validez científica de los conocimientos y constituir una guía efectiva en el aprendizaje de acuerdo con las normas que sobre la materia dicte el Consejo Superior de Educación.

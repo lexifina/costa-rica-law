@@ -1,1 +1,0 @@
-Artículo 29.-Asimismo. en el caso de aquellas instituciones que lo requieran deberán instalarse los laboratorios adecuados con equipo suficiente y presupuesto para nuevas adquisiciones y reposiciones.

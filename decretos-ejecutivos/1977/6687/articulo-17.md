@@ -1,1 +1,0 @@
-Artículo 17.-Los establecimientos de Clase "A" ajustarán sus actividades docentes como mínimo a los planes y programas oficiales y pueden ofrecer actividades extra programáticas, siempre a juicio del Consejo Superior de Educación.

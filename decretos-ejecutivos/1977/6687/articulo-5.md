@@ -1,1 +1,0 @@
-Artículo 5°-No tendrá validez legal los estudios hechos en una institución privada cuyo funcionamiento no hubiere sido autorizado previamente, por el Consejo Superior de Educación, de conformidad con las normas básicas de la Ley Fundamental de Educación y con las disposiciones del presente Reglamento.

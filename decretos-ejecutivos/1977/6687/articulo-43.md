@@ -1,8 +1,0 @@
-Artículo 43.-Deberá acompañarse, además de los documentos a que se refieren los artículos 41 y 42 anteriores, los siguientes:
-a) Prueba de que la persona propuesta para desempeñar el cargo de Director reúne las condiciones inherentes a esa función de acuerdo con la legislación vigente, o en su defecto, el cumplimiento de lo dispuesto por el inciso e) del artículo 59 de la Ley Orgánica del Colegio de Licenciados y Profesores, cuando se trate de una institución de nivel medio.
-En las instituciones en que exista el cargo de Subdirector, la persona propuesta para desempeñar tal función. deberá reunir las mismas condiciones del Director;
-b) Pruebas de que las personas propuestas para desempeñar los cargos administrativo-docentes reúnen, además, las condiciones de idoneidad requeridas para las funciones que Ies van a ser recomendadas;
-c) póliza de garantía expedida por el Instituto Nacional de Seguros, por valor de 50,000.00 (cincuenta mil colones) para responder por los compromisos que adquiere y para los posibles daños y perjuicios que causare la eventual clausura del establecimiento;
-d) Nómina detallada del material existente en sus laboratorios o gabinetes de física y química. ciencias naturales, estudios sociales y bibliotecas acompañada de una constancia del funcionario que lo inspeccione;
-e) Certificación extendida por el Departamento de Personal del Ministerio de Educación Pública, del número de expediente, antecedentes, categoría y grupos de cada uno de los personeros docente y docente-administrativo;
-f) Comprobación de que por lo menos dos tercios del personal docente tiene títulos o diplomas que el Consejo Superior de Educación estime suficientes.

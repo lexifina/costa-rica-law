@@ -1,1 +1,0 @@
-Artículo 7°- Todo establecimiento particular de enseñanza deberá suministrar al Consejo Superior de Educación y a los Departamentos respectivos del Ministerio de Educación Pública las informaciones y datos estadísticos que le solicitaren relativos al desarrollo de la enseñanza.
