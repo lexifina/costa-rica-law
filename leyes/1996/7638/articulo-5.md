@@ -1,0 +1,11 @@
+ARTICULO 5.- Delegación Permanente ante la Organización Mundial del
+Comercio
+La Delegación Permanente de Costa Rica ante la Organización Mundial
+del Comercio formará parte del Ministerio de Comercio Exterior y dependerá
+de él para todos los efectos. Con el fin de dotarla de las plazas y los
+servicios necesarios, se creará un programa específico dentro del
+presupuesto de este Ministerio. A los miembros de la Delegación se les
+aplicarán, en lo conducente, las disposiciones del Estatuto del Servicio
+Exterior de la República, Ley No. 3530, de 5 de agosto de 1965, de
+conformidad con el reglamento que el Poder Ejecutivo dictará por medio de
+dicho Ministerio.
