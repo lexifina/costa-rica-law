@@ -1,0 +1,3 @@
+Artículo 20.—La Sección de Patentes, mediante sus Inspectores y de conformidad con lo dispuesto en el artículo 17 de este reglamento, revisará los boletos y remitirá un informe de los mismos al Alcalde Municipal, con copias a los Departamentos de Tesorería y Auditoría Interna.
+Una vez verificados los boletos, procederá mediante un acta y conjuntamente con los anteriores departamentos citados, a la incineración de los mismos.
+La Tesorería Municipal con base en los comprobantes de ingreso, dará un Informe Mensual al Alcalde Municipal, con copias al Departamento de Auditoría y a la Sección de Patentes; indicando el tipo de actividad, nombre del negocio o propietario, cantidad de boletos, valor y recaudación total.

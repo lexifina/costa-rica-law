@@ -1,0 +1,1 @@
+Artículo 9º—Las personas físicas o jurídicas señaladas en el artículo anterior, deberán a su vez adjuntar constancia de la Institución beneficiaria. En caso de Comités y Asociaciones sin personería jurídica, deberán haberse acreditado ante el Alcalde Municipal, indicando que el producto íntegro de la recaudación se destinará a fines benéficos.

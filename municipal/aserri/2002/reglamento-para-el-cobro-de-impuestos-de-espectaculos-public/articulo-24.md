@@ -1,0 +1,1 @@
+Artículo 24.—Los Funcionarios Municipales responsables de la efectiva recaudación del impuesto, coordinarán con la Guardia de Asistencia Rural y Guardia Civil, a fin de obtener la colaboración de éstos, en la aplicación de este Reglamento.

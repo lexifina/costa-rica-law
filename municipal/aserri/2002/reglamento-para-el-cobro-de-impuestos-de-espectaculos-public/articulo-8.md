@@ -1,0 +1,1 @@
+Artículo 8º—Las personas físicas o jurídicas interesadas en obtener la exención a que se refiere el artículo 5º de este reglamento, deberán previamente y en término de 15 días antes de la actividad, hacer la solicitud correspondiente, en la fórmula que para tales efectos suministrará la Municipalidad.

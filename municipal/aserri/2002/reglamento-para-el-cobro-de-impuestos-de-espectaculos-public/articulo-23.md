@@ -1,0 +1,5 @@
+Artículo 23.—No se autorizará la realización de Espectáculos Públicos y de diversiones no gratuitas, a los propietarios de negocios o bien a los responsables de las actividades enumeradas en el artículo 2 del presente Reglamento, en los siguientes casos:
+a) Cuando existiese una deuda contraída con la Municipalidad por contravención a los incisos enumerados en el artículo 22.
+b) Cuando no haya realizado el pago por el beneficio de la conmutación en actividades realizadas en períodos anteriores.
+c) Cuando no se hubiesen liquidado las declaraciones juradas al finalizar las actividades.
+Una vez vencido el plazo fijado en el artículo 4º, Sección Segunda del Capítulo V. sobre la extinción del Código de Normas y Procedimientos Tributarios, las mismas serán remitidas al Departamento Legal para su respectivo cobro judicial. Así mismo estarán sometidas como lo señala el artículo 10 de este Reglamento, y que contravengan lo estipulado en los artículos 87, 88, 89 y 90 del Código de Normas y Procedimientos Tributarios.
