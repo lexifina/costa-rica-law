@@ -1,7 +1,3 @@
-Artículo 30°.- Funciones del Poder Ejecutivo.
-En los términos establecidos en la presente Ley, son funciones esenciales del Estado las siguientes:
-a) Velar porque los bienes y servicios que se vendan y se presten en el mercado, cumplan con las normas de salud, seguridad, medio ambiente y los estándares de calidad.
-b) Formular programas de educación e información para el consumidor, con el propósito de capacitarlo para que pueda discernir y tomar decisiones fundadas acerca del consumo de bienes y servicios, con conocimiento de sus derechos.
-c) Fomentar y promover las organizaciones de consumidores y garantizar su participación en los procesos de decisión y reclamo, en torno a cuestiones que afectan sus intereses.
-d) Garantizar el acceso a mecanismos efectivos y ágiles de tutela administrativa y judicial, para defender los derechos y los intereses legítimos de los consumidores.
-e) Estructurar una canasta básica que satisfaga, por lo menos, las necesidades de los costarricenses cuyo ingreso sea igual o inferior al salario mínimo establecido por ley y regular, cuando lo considere necesario, los bienes y servicios que la componen.
+Artículo 30°.-Caducidad de la acción.
+La acción para iniciar el procedimiento con el fin de perseguir las infracciones caduca en un plazo de seis meses, que se debe contar desde que se produjo la falta o desde su conocimiento efectivo por parte del agraviado. Sin embargo para los hechos continuados, comienza a correr a partir del acaecimiento del último hecho.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 27 al 30 actual)

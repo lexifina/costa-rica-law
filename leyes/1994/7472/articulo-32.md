@@ -1,4 +1,10 @@
-Artículo 32.- Régimen de responsabilidad.
-El productor, el proveedor y el comerciante deben responder concurrente e independientemente de la existencia de culpa, si el consumidor resulta perjudicado por razón del bien o el servicio, de informaciones inadecuadas o insuficientes sobre ellos o de su utilización y riesgos.
-Sólo se libera quien demuestre que ha sido ajeno al daño.
-Los representantes legales de los establecimientos mercantiles o, en su caso, los encargados del negocio son responsables por los actos o los hechos propios o por los de sus dependientes o auxiliares. Los técnicos, los encargados de la elaboración y el control responden solidariamente, cuando así corresponda, por las violaciones a esta Ley en perjuicio del consumidor.
+Artículo 32°.- Derechos del consumidor.
+Sin perjuicio de lo establecido en tratados, convenciones internacionales de las que Costa Rica sea parte, legislación interna ordinaria, reglamentos, principios generales de derecho, usos y costumbres, son derechos fundamentales e irrenunciables del consumidor, los siguientes:
+a) La protección contra los riesgos que puedan afectar su salud, su seguridad y el medio ambiente.
+b) La protección de sus legítimos intereses económicos y sociales.
+c) El acceso a una información, veraz y oportuna, sobre los diferentes bienes y servicios, con especificación correcta de cantidad, características, composición, calidad y precio.
+d) La educación y la divulgación sobre el consumo adecuado de bienes o servicios, que aseguren la libertad de escogencia y la igualdad en la contratación.
+e) La protección administrativa y judicial contra la publicidad engañosa, las prácticas y las cláusulas abusivas, así como los métodos comerciales desleales o que restrinjan la libre elección.
+f) Mecanismos efectivos de acceso para la tutela administrativa y judicial de sus derechos e intereses legítimos, que conduzcan a prevenir adecuadamente, sancionar y reparar con prontitud la lesión de estos, según corresponda.
+g) Recibir el apoyo del Estado para formar grupos y organizaciones de consumidores y la oportunidad de que sus opiniones sean escuchadas en los procesos de decisión que les afecten.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 29 al 32 actual)

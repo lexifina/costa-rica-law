@@ -1,4 +1,3 @@
-Artículo 69°.- Alcance.
-Esta Ley es de orden público; sus disposiciones son irrenunciables por las partes y de aplicación sobre cualesquiera costumbres, prácticas, usos o estipulaciones contractuales en contrario, especiales o generales.
-Asimismo, son nulos los actos realizados como fraude en contra de esta Ley, de conformidad con el artículo 20 del Código Civil.
-La presente Ley no será aplicable a las municipalidades, tanto en su régimen interno, como en sus relaciones con terceros.
+Artículo 69°.-Transferencias de recursos.
+Se autoriza a los entes y los órganos de la Administración Pública, cuyas competencias se relacionen con la defensa del consumidor, para transferir fondos de sus presupuestos al Ministerio de Economía, Industria y Comercio, el cual, en coordinación con los Ministerios de Justicia y Gracia y Educación Pública, debe realizar campañas para informar y educar a los consumidores y promover su organización en todo el territorio nacional.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 66 al 69 actual)

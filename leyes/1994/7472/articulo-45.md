@@ -1,4 +1,5 @@
-Artículo 45°.-Integración de la Comisión nacional del consumidor y requisitos de sus miembros.
-La Comisión nacional del consumidor está integrada por tres miembros propietarios y tres suplentes, de nombramiento del Ministro de Economía, Industria y Comercio. Deben ser personas con título de abogado y de reconocida experiencia en la materia. Permanecen cuatro años en sus cargos y pueden ser reelegidos.
-Devengarán una dieta por sesión. El Consejo de Gobierno fijará el monto de las dietas, tomando como referencia los establecidos para las instituciones públicas y determinará el límite de las dietas que pueden pagarse por mes.
-Los miembros de la Comisión deben elegir al Presidente.
+Artículo 45°.-Verificación en el mercado.
+La Administración Pública debe revisar, periódica y aleatoriamente, los productos y los servicios ofrecidos en el mercado, para constatar que cumplan con las normas y reglamentaciones relativas a la salud, el medio ambiente, la seguridad y la calidad. En las importaciones, la revisión puede realizarse antes de la nacionalización del producto, pero de manera excepcional, a fin de que la revisión no se convierta en un obstáculo no arancelario a las importaciones.
+La Administración Pública puede impedir la importación y la comercialización de productos por razones de seguridad, salud, calidad o conservación del medio ambiente, cuando exista evidencia comprobada de que los bienes no cumplen con los reglamentos técnicos respectivos ni con los estándares de calidad correspondientes.
+Estas labores pueden realizarlas las personas o los organismos acreditados en los términos establecidos en el artículo 8 de esta Ley.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 42 al 45 actual)

@@ -1,7 +1,6 @@
-CAPITULO VII
-Disposiciones finales
-Artículo 61°.- Resoluciones de la Comisión para promover la competencia y de la Comisión nacional del consumidor.
-Las resoluciones finales, emanadas de la Comisión para promover la competencia y de la Comisión nacional del consumidor, deben reunir los requisitos establecidos en los artículos 128 y siguientes de la Ley General de la Administración Pública. Asimismo, la notificación debe realizarse en debida forma, de acuerdo con lo establecido en el artículo 245 de esa misma Ley.
-Contra esas resoluciones cabe el recurso de reconsideración o de reposición, conforme al artículo 31 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.
-Agotada la vía administrativa, las resoluciones finales podrán impugnarse directamente por ilegalidad, ante la Jurisdicción Contencioso Administrativa, según el procedimiento que se detalla en el artículo 62 de esta Ley.
-Las resoluciones dictadas por ambas Comisiones se ejecutarán desde que se notifiquen, excepto que contra ellas proceda la suspensión de sus efectos, en los términos y las condiciones establecidos en el artículo 148 de la Ley General de la Administración Pública.
+Artículo 61°.- Medidas cautelares.
+Como medida cautelar, la Comisión nacional del consumidor puede ordenar el congelamiento de bienes o la suspensión de servicios, según corresponda, ante el indicio claro de la existencia de mercadería dañada, adulterada, vencida, ofrecida a un precio superior al permitido o acaparada que, de alguna manera, pueda perjudicar gravemente al consumidor o engañarlo.
+Transcurrido el término que se requiere para realizar el estudio técnico en el cual se determine la necesidad de mantener el congelamiento o la suspensión de servicios, debe darse audiencia, por un plazo de tres días, a los particulares afectados con la medida, para que aporten pruebas y aleguen lo que a bien tengan.
+Cumplido ese trámite, la Comisión nacional del consumidor, mediante resolución fundada, debe resolver si procede o no el decomiso de los bienes. En el caso de la suspensión de servicios, en el mismo plazo puede ordenar que esta se mantenga hasta que el asunto no se resuelva finalmente en su sede.
+Cuando medie resolución que ordene el decomiso, las mercaderías decomisadas deben donarse a una institución de beneficencia o destruirse si son peligrosas.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 58 al 61 actual)

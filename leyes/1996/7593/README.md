@@ -1,6 +1,6 @@
 # Ley de la Autoridad Reguladora de los Servicios Públicos (ARESEP)
 
-Ley N° 7593 del 1996-08-09. SINALEVI, ficha 26314: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26314&param2=27844&param3=1>.
+Ley N° 7593 del 1996-08-09. SINALEVI, ficha 26314: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26314&param2=27845&param3=1>.
 
 Publicada en La Gaceta N° 169 del 1996-09-05.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 20 | 1996-09-05 | Ley 7593 | 1996-08-09 |
 | 2 de 20 | 1998-05-21 | Ley 7779 | 1996-08-09 |
+| 3 de 20 | 2002-12-18 | Ley 8343 | 2002-12-18 |

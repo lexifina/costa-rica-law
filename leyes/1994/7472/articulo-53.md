@@ -1,7 +1,14 @@
-Artículo 53.°- Procedimiento.
-La acción ante la Comisión nacional del consumidor sólo puede iniciarse en virtud de una denuncia de cualquier consumidor o persona, sin que sea necesariamente el agraviado por el hecho que denuncia. Las denuncias no están sujetas a formalidades ni se requiere autenticación de la firma del denunciante. Pueden plantearse personalmente, ante la Comisión nacional del consumidor, por memorial, telegrama u otro medio de comunicación escrita.
-La Comisión nacional del consumidor siempre evacuará, con prioridad, las denuncias relacionadas con los bienes y los servicios consumidos por la población de menores ingresos, ya sea los incluidos en la canasta de bienes y servicios establecida por el Poder Ejecutivo o, en su defecto, los considerados para calcular el índice de precios al consumidor. En este caso, se atenderán con mayor celeridad las denuncias de bienes incluidos en los subgrupos alimentación y vivienda de ese índice.
-La acción para denunciar caduca en un plazo de dos meses desde el acaecimiento de la falta o desde que esta se conoció, salvo para los hechos continuados, en cuyo caso, comienza a correr a partir del último hecho.
-La Unidad técnica de apoyo debe realizar la instrucción del asunto. Una vez concluida, debe trasladar el expediente a la Comisión nacional del consumidor para que resuelva.
-La Comisión nacional del consumidor, dentro de los diez días posteriores al recibo del expediente, si por medio de la Unidad técnica de apoyo, no ordena prueba para mejor resolver, debe dictar la resolución final y notificarla a las partes. Si ordena nuevas pruebas, el término citado correrá a partir de la evacuación de ellas.
-Para establecer la sanción correspondiente, la Comisión nacional del consumidor debe respetar los principios del procedimiento administrativo, establecidos en la Ley General de la Administración Pública.
+Artículo 53°.- Potestades de la Comisión nacional del consumidor.
+La Comisión nacional del consumidor tiene las siguientes potestades:
+a) Conocer y sancionar las infracciones administrativas, los incumplimientos de las obligaciones establecidas en el Capítulo V y, en particular, tutelar los derechos de los consumidores, de acuerdo con el artículo (*)29 de esta Ley.
+(*)(Nota de Sinalevi: Actualmente corresponde al artículo 32)
+b) Sancionar los actos de competencia desleal, mencionados en el artículo 17 de esta Ley cuando, en forma refleja, dañen al consumidor.
+c) Ordenar, de acuerdo con la gravedad de los hechos, las siguientes medidas cautelares, según corresponda: el congelamiento o el decomiso de bienes, la suspensión de servicios o el cese temporal de los hechos denunciados que violen lo dispuesto en esta Ley, mientras se dicta resolución en el asunto.
+d) Ordenar la suspensión del plan de ventas a plazo o de prestación futura de servicios, cuando se viole lo prescrito en el artículo (*)41 de esta Ley. La parte dispositiva de la resolución debe publicarse para que sea del conocimiento general.
+(*)(Nota de Sinalevi: Actualmente corresponde al artículo 44)
+e) Ordenar, cuando proceda, la devolución del dinero o del producto. Puede fijar, asimismo, un plazo para reparar o sustituir el bien, según corresponda.
+f) Trasladar, al conocimiento de la jurisdicción ordinaria, todas las prácticas que configuren los delitos perjudiciales para el consumidor, establecidos en el artículo (*)60 de esta Ley.
+(*)(Nota de Sinalevi: Actualmente corresponde al artículo 63)
+La Comisión nacional del consumidor no tiene competencia para conocer de la anulación de cláusulas abusivas en los contratos de adhesión, conforme al artículo (*)39 de esta Ley, ni del resarcimiento de daños y perjuicios. Estos casos deben ser conocidos solo por los órganos jurisdiccionales competentes.
+(*) (Nota de Sinalevi: Actualmente corresponde al artículo 42)
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 50 al 53 actual)

@@ -1,0 +1,11 @@
+Artículo 44 bis.- Tarjetas de crédito. Además de las disposiciones del artículo (*)39 de esta ley, los emisores de tarjetas de crédito deberán cumplir con los siguientes requisitos:
+(*)(Actualmente corresponde al artículo 42)
+a) Entregar, al firmar el contrato, un folleto explicativo que precise el mecanismo para determinar la tasa de interés, los saldos promedios sujetos a interés, la fórmula para calcularlos y los supuestos en los que no se pagará dicho interés.
+b) Presentar explícitamente, en los estados de cuenta, el desglose de los rubros que el usuario debe pagar. En rubros separados deben mantenerse el principal, los intereses financieros, los intereses moratorios, los recargos y las comisiones, todos correspondientes al respectivo período del estado de cuenta.
+c) Mostrar la tasa de interés cobrada en el período.
+d) Informar a sus tarjetahabientes, en el estado de cuenta inmediato posterior, acerca de las modificaciones del contrato original y los adenda o anexos para que puedan determinar si mantienen la relación contractual o no. Si el tarjetahabiente no mantiene la relación contractual, el emisor sólo podrá cobrar el pasivo pendiente con la tasa de interés vigente previa a la modificación propuesta por el emisor.
+Conforme a lo dispuesto en el inciso b) del artículo (*)30 de esta ley, el Ministerio de Economía, Industria y Comercio estará obligado a publicar trimestralmemte, en los medios de comunicación colectiva de mayor cobertura, un estudio comparativo de tarjetas de crédito que incluya como mínimo: tasas de interés financieras y moratorias, comisiones y otros cargos, beneficios adicionales, cobertura, plazos de pago y grado de aceptación.
+(*)(Actualmente corresponde al artículo 33)
+(Así adicionado por el artículo 2° aparte b) de la ley N° 7854 del 14 de diciembre de 1998)
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 41 bis al 44 bis actual)
+(Véase el estudio efectuado por la Dirección de Investigaciones Económicas y de Mercados del Ministerio de Economía, Industria y Comercio sobre los principales resultados de la investigación del estudios comparativo de tarjetas de crédito al 30 de abril de 2014, publicado en La Gaceta No.128 de 4 de julio de 2014, páginas 5 in fine y 6)

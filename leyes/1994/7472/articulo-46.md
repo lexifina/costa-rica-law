@@ -1,2 +1,5 @@
-Artículo 46°.-Quórum y votaciones.
-Para sesionar, la Comisión nacional del consumidor requiere la presencia de todos sus miembros y las resoluciones pueden tomarse con el voto de dos de ellos. Quien no coincida, debe razonar su voto.
+Artículo 46°. Acceso a la vía judicial.
+Para hacer valer sus derechos, el consumidor puede acudir a la vía administrativa o a la judicial, sin que estas se excluyan entre sí, excepto si se opta por la vía judicial.
+En la vía judicial debe seguirse el proceso sumario establecido en los artículos 432 y siguientes del Código Procesal Civil. El juez, en los procesos por demandas de los consumidores para hacer valer sus derechos, una vez contestada la demanda y siempre que se trate de intereses exclusivamente patrimoniales, realizará una audiencia de conciliación con el fin de procurar avenir a las partes a un acuerdo. De no lograrse, se continuará con el trámite del proceso.
+Los procesos que se entablen para reclamar la anulación de contratos de adhesión o el resarcimiento de daños y perjuicios en virtud de violaciones a esta Ley, para los cuales la Comisión nacional del consumidor no tiene competencia, serán conocidos solo por los órganos jurisdiccionales competentes, de conformidad con este artículo.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 43 al 46 actual)

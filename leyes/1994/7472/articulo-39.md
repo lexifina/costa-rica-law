@@ -1,21 +1,3 @@
-Artículo 39.- Cláusulas abusivas en contratos de adhesión.
-En los contratos de adhesión, sus modificaciones, anexos o adenda, la eficacia de las condiciones generales está sujeta al conocimiento efectivo de ellas por parte del adherente o a la posibilidad cierta de haberlas conocido mediante una diligencia ordinaria
-(Así reformado el párrafo anterior por el artículo 1° aparte b) de la ley N° 7854 del 14 de dicembre de 1998)
-Son abusivas y absolutamente nulas las condiciones generales de los contratos de adhesión, civiles y mercantiles, que:
-a) Restrinjan los derechos del adherente, sin que tal circunstancia se desprenda con claridad del texto.
-b) Limiten o extingan la obligación a cargo del predisponente.
-c) Favorezcan, en forma excesiva o desproporcionada, la posición contractual de la parte predisponente o importen renuncia o restricción de los derechos del adherente.
-d) Exoneren o limiten la responsabilidad del predisponente por daños corporales, cumplimiento defectuoso o mora.
-e) Faculten al predisponente para rescindir unilateralmente el contrato, modificar sus condiciones, suspender su ejecución, revocar o limitar cualquier derecho del adherente, nacido del contrato, excepto cuando tal rescisión, modificación, suspensión, revocación o limitación esté condicionada al incumplimiento imputable al último.
-f) Obliguen al adherente a renunciar con anticipación a cualquier derecho fundado en el contrato.
-g) Impliquen renuncia, por parte del adherente, a los derechos procesales consagrados en el Código Procesal Civil o en leyes especiales conexas.
-h) Sean ilegibles.
-i) Estén redactadas en un idioma distinto del español.
-j) Los que no indiquen las condiciones de pago, la tasa de interés anual por cobrar, los cargos e intereses moratorios, las comisiones, los sobreprecios, los recargos y otras obligaciones que el usuario quede comprometido a pagar a la firma del contrato
-(Así adicionado el inciso anterior por el artículo 2° aparte a) de la ley N° 7854 del 14 de dicembre de 1998)
-Son abusivas y relativamente nulas, las cláusulas generales de los contratos de adhesión que:
-a) Confieran, al predisponente, plazos desproporcionados o poco precisos para aceptar o rechazar una propuesta o ejecutar una prestación.
-b) Otorguen, al predisponente, un plazo de mora desproporcionado o insuficientemente determinado, para ejecutar la prestación a su cargo.
-c) Obliguen a que la voluntad del adherente se manifieste mediante la presunción del conocimiento de otros cuerpos normativos, que no formen parte integral del contrato.
-d) Establezcan indemnizaciones, cláusulas penales o intereses desproporcionados, en relación con los daños para resarcir por el adherente.
-En caso de incompatibilidad, las condiciones particulares de los contratos de adhesión deben prevalecer sobre las generales. Las condiciones generales ambiguas deben interpretarse en favor del adherente.
+Artículo 39.- Bienes usados y reconstruidos.
+Cuando se vendan productos defectuosos, usados o reconstruidos, antes de la compra, el comerciante debe indicar al consumidor, de manera precisa y clara, tales condiciones y dejarse constancia en las facturas o los comprobantes. El comerciante debe advertir los extremos anteriores si anuncia la venta de esos productos usando cualquier medio. Si no existe advertencia sobre el particular, esos bienes se consideran nuevos y en perfecto estado.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 36 al 39 actual)

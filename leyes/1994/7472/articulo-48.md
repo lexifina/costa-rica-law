@@ -1,2 +1,5 @@
-Artículo 48°.- Impedimento, excusa y recusación.
-Son motivos de impedimento, excusa o recusación los establecidos en el Capítulo V, del Título I del Código de Procedimientos Civiles. El procedimiento por seguir en los casos anteriores es el establecido en ese Código.
+Artículo 48°.-Integración de la Comisión nacional del consumidor y requisitos de sus miembros.
+La Comisión nacional del consumidor está integrada por tres miembros propietarios y tres suplentes, de nombramiento del Ministro de Economía, Industria y Comercio. Deben ser personas con título de abogado y de reconocida experiencia en la materia. Permanecen cuatro años en sus cargos y pueden ser reelegidos.
+Devengarán una dieta por sesión. El Consejo de Gobierno fijará el monto de las dietas, tomando como referencia los establecidos para las instituciones públicas y determinará el límite de las dietas que pueden pagarse por mes.
+Los miembros de la Comisión deben elegir al Presidente.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 45 al 48 actual)

@@ -1,2 +1,3 @@
-Artículo 49°.- Unidad técnica de apoyo y asesoría externa.
-La Comisión nacional del consumidor debe contar con una Unidad técnica de apoyo, integrada por funcionarios de las ramas profesionales y técnicas afines a las materias relacionadas con comercio y el consumidor. También puede contratar a los asesores y los consultores que estime convenientes para el desarrollo efectivo de sus funciones.
+Artículo 49°.-Quórum y votaciones.
+Para sesionar, la Comisión nacional del consumidor requiere la presencia de todos sus miembros y las resoluciones pueden tomarse con el voto de dos de ellos. Quien no coincida, debe razonar su voto.
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 46 al 49 actual)

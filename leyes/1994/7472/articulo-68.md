@@ -1,2 +1,3 @@
-Artículo 68°.-Supletoriedad de la Ley General de la Administración Pública.
-Para lo imprevisto en esta Ley, regirá, supletoriamente, la Ley General de la Administración Pública.
+Artículo 68°.-Desobediencia. Constituyen el delito de desobediencia previsto en el Código Penal las resoluciones o las órdenes dictadas por la Comisión para promover la competencia y por la Comisión Nacional del Consumidor, en el ámbito de sus competencias, que no sean observadas ni cumplidas en los plazos correspondientes establecidos por esos órganos. En tales circunstancias, los órganos citados deben proceder a testimoniar piezas, con el propósito de sustentar la denuncia ante el Ministerio Público, para los fines correspondientes.
+(Así reformado por el artículo 1° aparte d) de la ley N° 7854 del 14 de diciembre de 1998)
+(Así corrida su numeración por el artículo 80 de la ley de Contingencia Fiscal, N° 8343 del 18 de diciembre de 2002, que lo traspaso del antiguo artículo 65 al 68 actual)
