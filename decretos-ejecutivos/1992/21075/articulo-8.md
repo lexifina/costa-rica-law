@@ -1,0 +1,1 @@
+Artículo 8°-La Comisión sesionará ordinariamente una vez cada dos meses y extraordinariamente cuando sea convocada por el coordinador, o a solicitud de tres de sus miembros. Las reuniones se realizarán en las oficinas del Departamento.
