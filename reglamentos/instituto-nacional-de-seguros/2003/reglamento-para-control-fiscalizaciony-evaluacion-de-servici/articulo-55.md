@@ -1,0 +1,2 @@
+Artículo 55.—Debido proceso. Aún cuando el INS estime que la prestación de los servicios profesionales puedan suspenderse en cualquier momento sin responsabilidad de su parte; el abogado director tendrá derecho de ser oído en sus justificaciones.
+Concluida la audiencia a que se refiere el artículo 49 de este Reglamento, se resolverá dentro de los ocho días hábiles siguientes. Lo resuelto tendrá recurso de apelación dentro del plazo de cinco días hábiles siguientes a la notificación.

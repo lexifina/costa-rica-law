@@ -1,0 +1,3 @@
+Artículo 39.—Fecha y forma de pago. Los honorarios que perciba el abogado director por sus servicios profesionales se pagarán los días quince y treinta de cada mes o al siguiente día hábil si aquellos no lo fueran.
+El Departamento de Cobros realizará el pago mediante Transferencia Electrónica de Fondos, por cuyo medio acreditará la cuenta bancaria que señale el abogado en su oferta; o bien por cualquier otro medio de pago que utilice el INS.
+El importe del depósito será el neto, después de aplicadas las retenciones de ley que proceda, y de las cuales se entregarán los comprobantes respectivos.

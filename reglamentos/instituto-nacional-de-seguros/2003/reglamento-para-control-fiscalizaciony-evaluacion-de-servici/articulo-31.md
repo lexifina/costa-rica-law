@@ -1,0 +1,1 @@
+Artículo 31.—Autorización en suspensiones lesivas a los intereses del INS. Cuando en un caso se determina que la suspensión (provisional o definitiva), resulta perjudicial a los intereses del INS, sólo se aplicará si la Presidencia Ejecutiva, la Gerencia o la Dirección Financiera así lo instruye por escrito.

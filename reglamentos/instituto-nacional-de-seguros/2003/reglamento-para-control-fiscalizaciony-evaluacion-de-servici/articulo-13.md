@@ -1,0 +1,2 @@
+Artículo 13.—Responsabilidad por deudas propias. Todo abogado contratado para realizar el cobro judicial, deberá mantener al día sus obligaciones con el INS.
+Si producto de algún incumplimiento a lo antes estipulado, imputable al abogado director, el INS inicia un proceso judicial en su contra, se tendrá por suspendido el Contrato, hasta que se normalice su situación y durante ese periodo no tendrá derecho a nuevas asignaciones ni a reposiciones posteriores.

@@ -1,0 +1,1 @@
+Artículo 35.—Continuación del trámite. En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo si no media el pago de al menos los gastos, costas personales, procesales y los intereses.

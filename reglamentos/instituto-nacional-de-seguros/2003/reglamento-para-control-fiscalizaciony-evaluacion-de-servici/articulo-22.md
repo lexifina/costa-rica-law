@@ -1,0 +1,3 @@
+Artículo 22.—Comunicación de resultados. Dentro de los tres días hábiles siguientes a la fecha del remate, el abogado director deberá informar por escrito de su resultado al Departamento de Cobros o la Sucursal.
+A partir de la firmeza de la resolución que autoriza a protocolizar piezas, el abogado director contará con un plazo de dos meses para entregar al Departamento de Cobros o a la Sucursal, el testimonio inscrito de la adjudicación cuando la naturaleza del bien así lo demande.
+Para el caso de los bienes no inscribibles, el plazo para entregar la documentación pertinente será de diez días hábiles.

@@ -1,0 +1,1 @@
+Artículo 10.—Reasignación de expedientes. En caso de una suspensión impuesta por el INS al amparo de este Reglamento u otro órgano externo a la Institución, o bien por resolución por mutuo acuerdo o incumplimiento, se reasignarán los procesos a otro profesional, conforme al rol que lleva la Dirección Financiera.

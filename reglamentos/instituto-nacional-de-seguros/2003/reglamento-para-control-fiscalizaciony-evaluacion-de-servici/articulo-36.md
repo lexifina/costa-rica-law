@@ -1,0 +1,1 @@
+Artículo 36.—Criterio profesional sobre conveniencia o no de suspensión. En aquellos casos en que se determine que la aprobación de una suspensión sea perjudicial a los intereses del INS, el abogado director remitirá al Departamento de Cobros o a la Sucursal su criterio sobre la inconveniencia de dicha suspensión.

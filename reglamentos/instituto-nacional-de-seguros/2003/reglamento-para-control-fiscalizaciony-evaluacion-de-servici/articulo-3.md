@@ -1,0 +1,1 @@
+Artículo 3º—Vigencia. La vigencia de los servicios a contratar será de un año, con prórrogas automáticas hasta un máximo de cinco años, si ninguna de las partes da aviso escrito a la otra con al menos un mes de anticipación al vencimiento del respectivo período anual comunicándole su interés de ponerle término.

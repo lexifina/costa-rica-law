@@ -1,0 +1,1 @@
+Artículo 37.—Plazo suspensión provisional. Vencido el plazo, si el INS no envía nota al abogado director autorizando una nueva prórroga, se entenderá en todos los casos que el trámite judicial deberá continuar.

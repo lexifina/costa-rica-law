@@ -1,0 +1,1 @@
+Artículo 7º—Integración de expedientes. Si la obligación a cobrar corresponde a un deudor que ya tiene otra operación al cobro, o bien, la primera operación tiene la misma garantía de la segunda, el nuevo cobro deberá asignarse al mismo abogado responsable del primero.

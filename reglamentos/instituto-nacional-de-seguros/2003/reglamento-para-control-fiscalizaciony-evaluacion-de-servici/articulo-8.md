@@ -1,0 +1,2 @@
+Artículo 8º—De los encargados de asignaciones. La asignación de casos a los abogados, será responsabilidad de la Dirección Financiera a través de las dependencias que ésta designe.
+La Presidencia Ejecutiva o la Gerencia, por razones de interés social o institucional, podrán asignar casos para cobro judicial a abogados de la Dirección Jurídica del INS, quienes percibirán por estas funciones los honorarios correspondientes salvo en los casos en que gocen del beneficio de la dedicación exclusiva.

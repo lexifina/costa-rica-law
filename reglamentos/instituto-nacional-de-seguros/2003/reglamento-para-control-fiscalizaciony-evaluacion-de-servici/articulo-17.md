@@ -1,0 +1,1 @@
+Artículo 17.—De la recepción de dineros. Queda prohibido al abogado director recibir suma alguna de dinero de parte del deudor o fiador contra quienes el INS haya planteado el proceso judicial. En estos casos el abogado director deberá remitir al interesado a las oficinas del INS para que efectúe el pago o formalice arreglo de pago.

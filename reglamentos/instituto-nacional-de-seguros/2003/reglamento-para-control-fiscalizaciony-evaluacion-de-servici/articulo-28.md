@@ -1,0 +1,3 @@
+Artículo 28.—Embargo de salario. Cuando el embargo recaiga sobre el salario de los demandados, la aplicación correspondiente a alguna operación en cobro judicial, deberá hacerse siguiendo lo establecido por la resolución que apruebe la liquidación presentada.
+Es obligación del abogado director velar porque la resolución que aprobó la liquidación se ajuste a lo que el INS liquidó; así como verificar que se estén realizando las respectivas retenciones y tramitar su giro.
+Asimismo deberá retirar el cheque a favor del INS y presentarlo dentro del día hábil siguiente al Departamento de Cobros o Sucursal correspondiente para su respectiva aplicación.
