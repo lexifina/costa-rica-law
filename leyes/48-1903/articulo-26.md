@@ -1,0 +1,1 @@
+Artículo 26.- Si por accidente ú otro motivo desapareciera, se inutilizara ó alterara el licor de la muestra, se hará constar por razón esa circunstancia en el expediente y el Juez la sustituirá tomando del depósito la cantidad necesaria, con obligación de reponer los sellos que para el efecto alzare ó rompiere, y de levantar acta de la diligencia.
