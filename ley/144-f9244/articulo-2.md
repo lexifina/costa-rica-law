@@ -1,0 +1,1 @@
+2°.- Que por igual tiempo de cuatro años trasladen su domicilio a la ciudad de Esparza, Pilar Fonseca, José Salinas, Juan José Lara y Preb Carmen Calvo a esta ciudad, Vicente Aguilar, Mauricio Salinas, Félis Chavarría, Eusevio Prieto y Presb ° Gabriel Padilla; quedando en las de su residencia José Francisco Fonseca y Presb José María Arias.
