@@ -1,0 +1,1 @@
+Artículo 2°- Las autoridades de las instituciones públicas nacionales y las instancias del Sector Agropecuario promoverán entre sus funcionarios agremiados al Colegio de Ingenieros Agrónomos la participación en dicho evento, brindando las facilidades y colaboración que estén a su alcance para la celebración de dicho Congreso.
