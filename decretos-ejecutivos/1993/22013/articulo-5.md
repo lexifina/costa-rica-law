@@ -1,0 +1,1 @@
+Artículo 5°—Para los efectos del área de acción del Programa, este concentrará inactividad en el Gran Puntarenas y en otras comunidades de la Provincia que, a juicio del Director, requieran de su participación.

@@ -1,0 +1,1 @@
+Artículo 4°—Se autoriza a las instituciones públicas que realizan programas o emprendan proyectos de su competencia, en Puntarenas, a facilitar equipos, personal de apoyo y técnico, y espacio físico que el Programa de Coordinación y Apoyo de los Proyectos de Desarrollo de Puntarenas, requiera para el cumplimiento de su cometido.

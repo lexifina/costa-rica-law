@@ -1,0 +1,1 @@
+Artículo 2°—1 El Programa creado en el artículo anterior, estará a cargo de un "Director", con rango de Asesor del Presidente de la República. Para garantizar que dicho Programa es conforme con los lineamientos de política del Gobierno de la República , el Director participará de las reuniones del Consejo Social, del Gobierno de la República.
