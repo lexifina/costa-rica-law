@@ -1,2 +1,0 @@
-Artículo 2°—-El impuesto consular sobre los artículos de primera necesidad que se importen, será de medio por ciento calculado sobre el valor declarado de la factura. En caso de duda sobre los artículos que deban gozar de esta rebaja, prevalecerá al respecto el criterio de la Secretaría de Hacienda.
-Todos aquellos artículos que estén exentos del pago de derechos aduana según el Arancel, tampoco satisfarán el impuesto consular.
