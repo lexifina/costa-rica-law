@@ -1,13 +1,14 @@
 Artículo 15.- Son atribuciones de la Junta de Gobierno:
 1) Convocar a asambleas generales, de acuerdo con la presente ley;
-2) Integrar, junto con las demás personas y organismos que indica la ley
-respectiva, la Asamblea Universitaria, y concurrir a todas sus reuniones;
+2) Integrar, junto con las demás personas y organismos que indica la
+ley respectiva, la Asamblea Universitaria, y concurrir a todas sus
+reuniones;
 3) Cooperar con los demás colegios profesionales en el establecimiento
 de una mutualidad;
 4) Gestionar o decretar, cuando fuere posible, los auxilios que se
 estimen necesarios para proteger a los biólogos que lo necesiten;
-5) Elegir las materias que han de ser objeto preferente de investigación
-y debate en las reuniones académicas del Colegio;
+5) Elegir las materias que han de ser objeto preferente de inv
+estigación y debate en las reuniones académicas del Colegio;
 6) Dirigir las publicaciones periódicas que se hagan por cuenta del
 Colegio y subvencionar las que estime convenientes para el desarrollo y
 difusión de la biología y disciplinas afines;
@@ -38,20 +39,20 @@ la Junta General;
 miembros de la Junta de Gobierno, para separarse de sus funciones, y
 nombrar las comisiones que juzgue necesarias;
 18) Conocer de las quejas contra los miembros del Colegio, por hechos
-que vayan en desdoro de la profesión por constituir delito o procedimiento
-incorrecto; por irregularidad de su conducta moral o por vicios que lo
-hagan desmerecer en el concepto público; y, si la queja fuere pertinente
-a juicio de la Directiva, levantar una información secreta por medio de su
-fiscal. Demostrada la falta, impondrá, de acuerdo con la gravedad de
-ella, cualquier de las penas siguientes:
+que vayan en desdoro de la profesión por constituir delito o
+procedimiento incorrecto; por irregularidad de su conducta moral o por
+vicios que lo hagan desmerecer en el concepto público; y, si la queja
+fuere pertinente a juicio de la Directiva, levantar una información
+secreta por medio de su fiscal. Demostrada la falta, impondrá, de
+acuerdo con la gravedad de ella, cualquier de las penas siguientes:
 a) Amonestación escrita o de palabra, hecha por el Presidente del
 Colegio y en este último caso, privadamente, en Asamblea General o en
 Junta de Gobierno, todo a juicio de esta última;
 b) Multa hasta de doscientos colones; y
 c) Suspensión temporal o definitiva de todos los derechos y
 prerrogativas inherentes a los biólogos.
-19) Intervenir, para tratar de allanar cualquier dificultad que surgiere
-entre profesionales de este Colegio;
+19) Intervenir, para tratar de allanar cualquier dificultad que
+surgiere entre profesionales de este Colegio;
 20) Las demás funciones que las leyes y reglamentos le señalen;
 21) Resolver las consultas que le sometan los Poderes de la Nación,
 corporaciones o particulares.

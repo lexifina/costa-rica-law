@@ -1,7 +1,7 @@
 CAPITULO IX
 Disposiciones Generales
-Artículo 36.- Sólo los profesionales incorporados a este Colegio, con
-un grado superior al de bachiller, debidamente autorizados para el
+Artículo 36.- Sólo los profesionales incorporados a este Colegio,
+con un grado superior al de bachiller, debidamente autorizados para el
 ejercicio de la profesión, están legalmente facultados para emitir y
 suscribir dictámenes de cualquier clase, ligados a la ciencia de la
 biología.
