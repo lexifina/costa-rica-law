@@ -1,0 +1,1 @@
+Artículo 5º—Los vehículos a que se refiere el artículo anterior, deberán ajustarse como mínimo a los requerimientos que se establecen en el Decreto Ejecutivo Nº 28280 MOPT-MINAE-S de fecha 28 de octubre de 1999, publicado en el Alcance 97 A a La Gaceta Nº 236 de fecha 6 de diciembre de 1999, así como a las disposiciones especiales que se emitan en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 19.—En caso de detectarse situaciones irregulares en el desempeño de las labores de los funcionarios públicos, cuyas funciones se regulan en el presente decreto, serán comunicadas a la máxima autoridad de la dependencia en la que laboran, para que se tomen las medidas pertinentes conforme al ordenamiento jurídico.

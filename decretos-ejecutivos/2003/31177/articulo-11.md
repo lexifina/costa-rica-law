@@ -1,0 +1,1 @@
+Artículo 11.—Una vez realizada la conversión indicada en los artículos precedentes el reconocimiento de la diferencia de la exención hasta completar el 100%, se efectuará proporcional al tiempo que falte para cumplir los cuatro años, tiempo en que se puede liberar el vehículo.

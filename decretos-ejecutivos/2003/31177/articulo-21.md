@@ -1,0 +1,7 @@
+Artículo 21.—De las liquidaciones. Si por razón de accidente, el vehículo exonerado es declarado en pérdida total antes del plazo de los cuatro años, los tributos de importación correspondientes a los meses por transcurrir deberán ser cancelados, antes de efectuar su venta o traspaso. De solicitar su sustitución, el derecho a la exoneración se aplicará proporcionalmente al número de meses por transcurrir.
+El beneficiario debe presentar al Departamento de Exenciones, solicitud de liquidación de tributos, aportando la siguiente documentación:
+a) Certificación de propiedad, emitida por el Registro Público de la Propiedad de Bienes Muebles.
+b) Certificación de concesión, emitida por el Consejo de Transporte Público, indicando calidades del concesionario, descripción del vehículo exonerado, así como fecha del vencimiento de la concesión.
+c) Documento que compruebe la situación del robo o de la declaratoria de pérdida total.
+Una vez realizados los trámites en la aduana respectiva, se debe entregar copia certificada de la declaración de liquidación de impuestos ante el Departamento de Exenciones y otra ante el Consejo de Transporte Público.
+El Instituto Nacional de Seguros, deberá comunicar al Consejo de Transporte Público, de los casos de accidente de los vehículos en la modalidad de taxi, en que se declare pérdida total, con el fin de que éste proceda a tomar las medidas correspondientes.

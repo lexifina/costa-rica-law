@@ -1,0 +1,3 @@
+CAPÍTULO SEGUNDO
+De las competencias
+Artículo 2º—Corresponderá al Ministerio de Hacienda, por medio de sus dependencias competentes, otorgar la autorización de las exoneraciones de acuerdo con la respectiva legislación, llevar a cabo el debido control en los trámites de exoneración y liquidación de tributos de los vehículos que correspondan para garantizar un adecuado control de los bienes exonerados; realizar estudios para verificar que las diversas oficinas involucradas cumplan adecuadamente con las funciones indicadas en el presente reglamento, así como las demás que señala la legislación atinente.

@@ -1,0 +1,3 @@
+CAPÍTULO SEXTO
+De los requisitos y procedimientos para solicitar la exoneración
+Artículo 12.—Para optar por la exoneración de un vehículo para el transporte remunerado de personas en la modalidad taxi conforme lo establece el artículo 60, transitorios VII y VIII de la Ley Nº 7969 de fecha 22 de diciembre de 1999, publicada en La Gaceta Nº 20 de fecha 28 de enero de 2000, el beneficiario deberá contar de previo con una concesión administrativa, debidamente formalizada mediante contrato con el Consejo de Transporte Público, conforme a la Sección I y III del Capítulo VI de esa Ley. Asimismo el vehículo deberá cumplir con las características indicadas en el artículo 51 de ese mismo cuerpo legal y las demás condiciones dispuestas en este Reglamento.

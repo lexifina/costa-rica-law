@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+De las características de los vehículos taxis
+Artículo 4º—Conforme al artículo 51 de la Ley Nº 7969 de fecha 22 de diciembre de 1999, publicada en La Gaceta Nº 20 de fecha 28 de enero de 2000, los vehículos nuevos, comprados para el transporte remunerado de personas en la modalidad taxi, incluso los de tipo rural y los adaptados para discapacitados, que tienen derecho a exoneración, deberán cumplir con las características dispuestas en el artículo 2º del Decreto Ejecutivo Nº 28913-MOPT de fecha 13 de setiembre de 2000, publicado en el Alcance 62 a La Gaceta Nº 179 de fecha 19 de setiembre de 2000 y cualquier otro decreto de tipo especial que se emita sobre el particular.
