@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° 17-04 de 5 de octubre del 2004, publicada en La Gaceta N° 209 de 26 de octubre del 2004.
