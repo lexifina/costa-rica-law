@@ -14,3 +14,4 @@ Manual de Procedimientos para la Revisión Técnica de Vehículos Automotores en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-17 | la propia norma |
+| 2 | 2004-09-14 | Reglamento 62 (2004-09-14) |
