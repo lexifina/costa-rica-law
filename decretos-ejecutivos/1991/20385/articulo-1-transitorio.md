@@ -1,0 +1,3 @@
+Transitorio único:
+Ante las restricciones existentes para nombrar personal con el propósito de implantar controles adecuados y efectivos en el sistema de cobro de peajes a que se refiere el presente decreto, y a efectos de ser congruentes con las políticas y directrices de las autoridades de Hacienda y de Reforma del estado de racionalizar al máximo los recursos existentes, la Comisión Nacional de Emergencia, a través del Consejo de Seguridad Vial, promoverán y adquirirán los equipos necesarios para la automatización del sistema de cobro de peajes en aquellas carreteras y autopistas, en que crean necesario implantar este sistema.
+Dado en la Presidencia de la República.- San José, a los dieciocho días del mes de abril de mil novecientos noventa y uno.
