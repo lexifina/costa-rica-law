@@ -1,0 +1,1 @@
+ARTICULO 3°.-Las comisiones tienen como finalidad investigar las causas de los riesgos del trabajo, recomendar las medidas para prevenirlos, vigilar que en el centro de trabajo se cumplan las disposiciones de salud ocupacional y promover la capacidad en esta materia a empleadores y trabajadores.
