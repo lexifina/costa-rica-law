@@ -14,3 +14,4 @@ Establece Reserva Forestal Cordillera Volcánica Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-07-11 | la propia norma |
+| 2 | 1975-10-28 | Decreto Ejecutivo 5386 (1975-10-28) |
