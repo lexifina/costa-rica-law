@@ -14,3 +14,4 @@ Instrucciones y Disposiciones, dirigidas a todos los Jerarcas de los Ministerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-20 | la propia norma |
+| 2 | 2002-02-08 | Directriz 34 (2002-02-08) |
