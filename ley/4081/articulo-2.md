@@ -12,6 +12,6 @@ industriales y agrícolas, para ponerlas al alcance de los inversionistas,
 nacionales y extranjeros.
 Con tales propósitos, el Centro facilitará sus servicios, dará
 información y prestará su colaboración a los agricultores, industriales y
-comerciales, así como a las Cámaras respectivas.
+comerciantes, así como a las Cámaras respectivas.
 Se ocupará asimismo de crear una imagen internacional favorable a la
 inversión en Costa Rica, a través de programas de divulgación.
