@@ -1,1 +1,0 @@
-Artículo 62.-El Secretario, Subinspector, es el suplente del Inspector General cuando éste se ausente por más de ocho días de su oficina, pero para ejercer sus funciones es indispensable que el Inspector General por nota le ordene ejercer la suplencia.

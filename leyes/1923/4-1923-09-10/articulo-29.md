@@ -1,1 +1,0 @@
-Artículo 29.-Los caminos y veredas de que se sirven los guardas en las montañas deben ser tenidos en estado de servicio; así como deben limpiar, en lo posible, los ríos y lagunas en que suelen navegar.

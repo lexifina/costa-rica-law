@@ -1,1 +1,0 @@
-Artículo 34.-Los guardas no harán uso de sus armas sin orden de su respectivo Jefe o para repeler una agresión armada. A su vez los jefes no darán esa orden sino en el caso de agresión o resistencia armada.

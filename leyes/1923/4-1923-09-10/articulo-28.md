@@ -1,1 +1,0 @@
-Artículo 28.-Cada Resguardo que tenga su asiento en tierras del Estado, o que le queden cerca, está obligado a cultivar, por lo menos, ocho hectáreas de las cuales cinco de potrero, una de caña, y el resto de cereales, frutales y verduras, todo para disfrute del mismo Resguardo.

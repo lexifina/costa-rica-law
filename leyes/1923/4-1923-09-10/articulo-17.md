@@ -1,1 +1,0 @@
-Artículo 17.-Las embarcaciones que utilicen los Resguardos en el Atlántico, se incorporarán a la Inspección Provincial de Limón; las que se utilicen en el Pacífico a la Inspección Provincial de Puntarenas; y aquellas de que se haga uso en los ríos y lagunas a la Inspección Provincial de la provincia respectiva.

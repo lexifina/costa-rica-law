@@ -1,1 +1,0 @@
-Artículo 57.-Cuando un Inspector o un Subinspector son sustituidos, corresponde al Visitador poner al sustituto en posesión de su cargo y dar fe de la entrega que se verificará por riguroso inventario.
