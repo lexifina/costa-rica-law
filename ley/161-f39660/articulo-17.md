@@ -1,0 +1,1 @@
+Art 17.- Si algún vecino se sintiere agraviado por providencias económicas o gubernativas dadas por la Municipalidad o por los Alcaldes sobre qualesquiera de los objetos que quedan indicados podrá ocurrir al Gefe Político Superior quien por si acudiendo al Gobierno, quando lo crea necesario, resolverá gubernativamente toda duda sin que por estos recursos se exija derecho alguno.

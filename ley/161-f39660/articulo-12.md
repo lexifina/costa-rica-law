@@ -1,0 +1,1 @@
+Art 12°.- Deberá cada Municipalidad rendir anualmente cuentas documentadas al Tribunal, dirigiéndolas por medio del Gefe Político, de la recaudación e inverción de los Caudales de propios y arvitrios composición de caminos, cofradidas, hermandades y fondos pios, que se administren en sus Pueblos conforme a las Leyes, é instituciones.

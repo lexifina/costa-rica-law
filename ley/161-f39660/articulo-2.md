@@ -1,0 +1,1 @@
+Art 2°.- Las Municipalidades embiarán al Gefe Politico del Estado, cada seis meses, una nota de los nacidos, casados y muertos en el Pueblo, estendida por los Curas Parrocos, con exprecion de sexos y edades concervando de ella un registro la Municipalidad.

@@ -1,0 +1,1 @@
+Art 21°.- Por último pertenece a las Municipalidades, cuidar de todos los demás objetos que les están encomendados por Leyes, Reglamentos y ordenanzas en todo lo que no se oponga á la presente instrucción, que se deberá tener a la vista el día de Sesion.
