@@ -1,1 +1,0 @@
-Artículo 30.—El INFOCOOP podrá rechazar, modificar o requerir información adicional de la solicitud de crédito o aval. En el último caso, la cooperativa solicitante dispondrá de quince días hábiles, posteriores a la comunicación formal para aportar los documentos informativos, en su defecto, se excluirá sin responsabilidad del Instituto.

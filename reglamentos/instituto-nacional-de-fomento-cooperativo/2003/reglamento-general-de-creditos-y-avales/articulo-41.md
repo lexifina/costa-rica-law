@@ -1,1 +1,0 @@
-Artículo 41.—La modalidad de financiamiento para cooperativas en crisis se regirá por el presente reglamento, así como por las disposiciones especiales de los artículos 42 al 46 de éste y que a continuación se señalan.

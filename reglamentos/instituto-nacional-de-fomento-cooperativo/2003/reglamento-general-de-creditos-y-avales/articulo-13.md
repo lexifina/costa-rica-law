@@ -1,1 +1,0 @@
-Artículo 13.—A fin de promover la integración cooperativa, las Federaciones, Uniones, Organismos Auxiliares y cualquier otro organismo de orden superior, serán sujetos de crédito para el INFOCOOP. El trámite de financiamiento se regirá por las mismas estipulaciones o regulaciones previstas para las cooperativas de base, en lo que les fuera aplicable.
