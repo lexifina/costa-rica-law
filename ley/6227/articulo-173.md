@@ -1,6 +1,8 @@
 Artículo 173.-
 1.Cuando la nulidad absoluta de un acto declaratorio de derechos fuere evidente y manifiesta, podrá declararse por la Administración en la vía administrativa sin necesidad de recurrir al contencioso de la lesividad señalado en los artículos 10 y 35 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa, previo dictamen favorable de la Procuraduría General de la República(*).
 (*)(Modificada su denominación por el artículo 47 (actual 50) de la Ley Orgánica de la Procuraduría General de la República, N° 6815 del 27 de setiembre de 1982)
+Cuando la nulidad verse sobre actos administrativos directamente relacionados con la Hacienda Pública, el dictamen favorable deberá rendirlo la Contraloría General de la República.
+(Así adicionado el párrafo anterior por el artículo 79° de la ley Orgánica de la Contraloría General de la República, N° 7428 del 7 de setiembre de 1994)
 2. Cuando se trate del Estado, la declaración de nulidad deberá hacerla el Consejo de Gobierno. Cuando se trate de otros entes, deberá hacerla el jerarca respectivo.
 3.En ambos casos el dictamen deberá pronunciarse expresamente sobre el carácter absoluto, manifiesto y evidente de la nulidad.
 4. La potestad de revisión oficiosa consagrada en este artículo caducará en cuatros años.
