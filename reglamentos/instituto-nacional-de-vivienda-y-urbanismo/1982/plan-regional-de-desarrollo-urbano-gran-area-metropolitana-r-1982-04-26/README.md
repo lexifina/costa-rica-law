@@ -15,3 +15,4 @@ Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Reglamento Parcial
 | --- | --- | --- |
 | 1 | 1982-07-02 | la propia norma |
 | 2 | 1983-04-20 | Reglamento 0 (1983-04-20) |
+| 3 | 1997-02-12 | Decreto Ejecutivo 25902 (1997-02-12) |

@@ -1,5 +1,6 @@
-PLAN REGIONAL DE DESARROLLO URBANO "GRAN AREA METROPOLITANA": REGLAMENTO PARCIAL DE ZONIFICACION (CUATRO DISTRITOS CENTRALES DE SAN JOSE)
-EL INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO Considerando:
+(El Reglamento Parcial de Zonificación Sector 1, Unidad de Planeamiento 1, San José, de 01 de octubre de 1985, publicado en La Gaceta N° 186 de 01 de octubre de 1985, Alcance 19 derogan el Reglamento de Zonificación de los Cuatro Distritos Centrales de San José y sus reformas y en su lugar se aplicarán las normas del presente Reglamento).
+(NOTA: El el artículo 4° del Decreto Ejecutivo N° 25902 de 12 de febrero de 1997, deroga en forma parcial este Reglamento, únicamente para el área del cantón de San José, quedando vigente para las zonas de Goicoechea y Tibás. En el área de San José, se aplicarán los lineamientos del Plan Director Urban de San José, publicado en La Gaceta núemro 18, alcance número 3 del 27 de enero de 1997).
+Considerando:
 I°—Que es su obligación velar por la seguridad, salubridad, comodidad y agrado del habitante y usuario del área central de San José mediante el control del uso y la intensidad del uso del suelo, aplicado en el sentido de:
 a) Evitar una alta intensidad de uso del terreno;
 b) Contribuir a evitar la elevación de los precios de la tierra a niveles tan altos que inhiban la gestión empresarial de edificación y uso;
