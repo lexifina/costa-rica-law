@@ -1,4 +1,6 @@
+(Derogado)
 N° 16
+(Esta ley fue derogada por el artículo 20 de la Ley Orgánica del Ministerio Público (1928), N° 35 del 13 de julio de 1916)
 (de 16 de abril)
 Reforma la Ley Orgánica del Ministerio Público
 LA COMISIÓN PERMANENTE

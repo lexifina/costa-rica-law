@@ -1,4 +1,6 @@
+(Derogado)
 N° XXXIV
+(Esta ley fue derogada por el artículo 20 de la Ley Orgánica del Ministerio Público (1928), N° 35 del 13 de julio de 1916)
 (de 27 de diciembre)
 Ley Orgánica del Ministerio Público
 PRESIDENTE DE LA REPÚBLICA DE COSTA RICA,
