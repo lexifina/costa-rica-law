@@ -1,1 +1,0 @@
-Artículo 9°-Todos los documentos, diplomas, certificaciones, etc., que extienden las instituciones particulares de enseñanza, para que surtan efectos en la República, estarán redactadas en idioma español, salvo los diplomas o títulos de conclusión de estudios que podrán serlo en latín, pudiendo emitirse copias en otros idiomas.

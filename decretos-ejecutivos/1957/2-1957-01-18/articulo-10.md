@@ -1,1 +1,0 @@
-Artículo 10-Derógase el Decreto Ejecutivo N° 9 del diecisiete de marzo de mil novecientos cincuenta y tres, publicado en “La Gaceta “N° 69 del veinticinco de marzo de mil novecientos cincuenta y tres.
