@@ -1,0 +1,4 @@
+REQUISITOS PARA TRAMITAR AMPLIACIÓN
+O CAMBIO DE ACTIVIDAD
+Los patentados podrán solicitar ampliaciones a la actividad lucrativa autorizada, o bien solicitar se autorice el cambio de la actividad lucrativa a explotar, para lo cual, deberán presentar escrito a la Sección de Licencias Municipales, manifestando su voluntad de obtener dicha ampliación o el cambio respectivo, y adjuntarán a dicha solicitud, aquéllos requisitos que sean necesarios para la explotación de la nueva actividad que pretenden, que no se encuentren en el expediente, o bien que se encuentren vencidos.
+Nota: Los documentos agregados a la solicitud, podrán ser presentados en copias certificadas por un notario público, o en copias simples que deberán ser confrontadas a su original por el funcionario municipal que reciba la documentación.
