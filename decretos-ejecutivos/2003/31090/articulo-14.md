@@ -1,0 +1,1 @@
+Artículo 14.—MIDEPLAN, a más tardar el 1° de abril del 2003, dictará en coordinación con el Ministerio de Hacienda los lineamientos técnicos y metodológicos a seguir por los ministerios y entidades públicas en la elaboración del PAO 2004, el cual será el instrumento para el seguimiento y la evaluación del PND y para la formulación del presupuesto del 2004.

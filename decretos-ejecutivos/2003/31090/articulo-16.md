@@ -1,0 +1,1 @@
+Artículo 16.—MIDEPLAN, en coordinación con el Ministerio de Hacienda, emitirá, a más tardar el 15 de junio de 2003, los lineamientos técnicos y metodológicos que los ministerios y entidades públicas deberán utilizar para la presentación del informe semestral y final referidos en los artículos anteriores.
