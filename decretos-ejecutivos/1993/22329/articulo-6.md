@@ -1,7 +1,2 @@
-ARTÖCULO 6§- La Comisi¢n analizar las solicitudes que se presenten
-para la aplicaci¢n de lo dispuesto en el art¡culo 3 de la Ley N§ 7017 de
-16 de diciembre de 1985 y formular en cada caso una recomendaci¢n al
-Ministro de Econom¡a, Industria y Comercio, a efecto de que el Poder
-Ejecutivo autorice o no la tarifa arancelaria reducida. La autorizaci¢n
-de la tarifa arancelaria reducida s¢lo podr otorgarse cuando la
-recomendaci¢n de la Comisi¢n haya sido favorable.
+Artículo 6º—La Comisión analizará las solicitudes que se presenten para la aplicación de lo dispuesto en el artículo 3 de la Ley Nº 7017 de 16 de diciembre de 1985 y formulará en cada caso una recomendación al Ministro de Comercio Exterior, a efecto de que el Poder Ejecutivo autorice o no la tarifa arancelaria reducida. La autorización de la tarifa arancelaria reducida sólo podrá otorgarse cuando la recomendación de la Comisión haya sido favorable.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 28379 de 16 de diciembre de 1999).

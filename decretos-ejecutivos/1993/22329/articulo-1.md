@@ -1,19 +1,10 @@
-ARTÖCULO 1§- La Comisi¢n a que se refiere el art¡culo 3 de la Ley
-N§ 7017 de 16 de diciembre de 1985 estar integrada de la siguiente
-manera:
-a) El Director de Integraci¢n Econ¢mica del Ministerio de Econom¡a,
-Industria y Comercio.
-b) El Director de Industrias del Ministerio de Econom¡a, Industria
-y Comercio.
+Artículo 1º—La Comisión a que se refiere el artículo 3 de la Ley Nº 7017 de 16 de diciembre de 1985 estará integrada de la siguiente manera:
+a) Un representante del Ministerio de Comercio Exterior.
+b) Un representante del Ministerio de Economía, Industria y Comercio.
 c) Un representante del Ministerio de Hacienda.
-ch) Un representante de la C mara de Industrias.
-d) Un representante de la C mara de Agricultura.
-Los representantes del sector p£blico ser n designados por el
-Ministro respectivo y los representantes del sector privado ser n
-designados por cada una de las C maras.
-En cada caso deber designarse un miembro titular y un suplente.
-Este £ltimo asistir a las sesiones en caso de ausencia del titular.
-La designaci¢n de cada representante del sector privado deber ser
-comunicada al Ministro de Econom¡a, Industria y Comercio para que
-formalice el nombramiento mediante la promulgaci¢n del acuerdo
-correspondiente.
+d) Un representante de la Cámara de Industrias.
+e) Un representante de la Cámara de Agricultura.
+Los representantes del sector público serán designados por el Ministro respectivo y los representantes del sector privado serán designados por cada una de las Cámaras.
+En cada caso deberá designarse un miembro titular y un miembro suplente. Este último asistirá a las sesiones en caso de ausencia del titular.
+La designación de cada representante del sector privado deberá ser comunicada al Ministro de Comercio Exterior para que formalice el nombramiento mediante la promulgación del acuerdo ejecutivo correspondiente.
+(Así reformado mediante artículo 1° del Decreto Ejecutivo N° 28379 de 16 de diciembre de 1999).

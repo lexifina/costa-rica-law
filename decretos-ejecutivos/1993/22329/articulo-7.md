@@ -1,5 +1,2 @@
-ARTÖCULO 7§- La Direcci¢n General de Integraci¢n Econ¢mica del
-Ministerio de Econom¡a, Industria y Comercio actuar como Secretar¡a de
-la Comisi¢n. En tal sentido, le corresponder recibir las solicitudes
-que se presenten, evaluarlas en forma preliminar, trasladarlas a la
-Comisi¢n y llevar un control de las actas y acuerdos de ‚sta.
+Artículo 7º—El Ministerio de Comercio Exterior, mediante la instancia que corresponda según la organización interna del Ministerio o la que determine el Ministro, actuará como Secretaría de la Comisión. En tal sentido, le corresponderá recibir las solicitudes que se presenten, evaluarlas en forma preliminar, trasladarlas a la Comisión y llevar un control de las actas y acuerdos de ésta.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 28379 de 16 de diciembre de 1999).

@@ -13,3 +13,4 @@ Reglamento Artículo 3º Convenio Regimen Arancelario y AduaneroCentroamericano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-23 | la propia norma |
+| 2 | 1999-12-16 | Decreto Ejecutivo 28379 (1999-12-16) |

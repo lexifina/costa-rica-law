@@ -1,3 +1,2 @@
-ARTÖCULO 3§- El Director de Integraci¢n Econ¢mica del Ministerio de
-Econom¡a, Industria y Comercio, o su suplente, presidir las sesiones de
-la Comisi¢n. En su ausencia se nombrar un presidente ad-hoc.
+Artículo 3º—El representante del Ministerio de Comercio Exterior, o su suplente en caso de ausencia del titular, presidirá las sesiones de la Comisión. En ausencia de ambos, se nombrará un presidente ad-hoc.
+(Así reformado por Artículo 1° del Decreto Ejecutivo N° 28379 de 16 de diciembre de 1999).

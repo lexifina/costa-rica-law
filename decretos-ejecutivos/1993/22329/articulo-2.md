@@ -1,6 +1,2 @@
-ARTÖCULO 2§- Los miembros de la Comisi¢n durar n en sus cargos dos
-a¤os y podr n ser reelectos indefinidamente, por per¡odos iguales. Su
-designaci¢n podr ser revocada en cualquier momento por el Ministro, o
-por la C mara respectiva, mediante comunicaci¢n al Ministro de Econom¡a,
-Industria y Comercio cuando proceda. La revocaci¢n ser efectiva hasta
-que entre en funciones el nuevo representante.
+Artículo 2º—Los miembros de la Comisión durarán en sus cargos dos años y se considerarán reelegidos indefinidamente por períodos iguales. Sin embargo, su designación podrá ser revocada en cualquier momento por el Ministro respectivo, o por la Cámara respectiva, mediante comunicación al Ministro de Comercio Exterior cuando proceda. La revocación se hará efectiva hasta que sea designado el nuevo representante.
+(Así reformado mediante artículo 1° del Decreto Ejecutivo N° 28379 de 16 de diciembre de 1999).
