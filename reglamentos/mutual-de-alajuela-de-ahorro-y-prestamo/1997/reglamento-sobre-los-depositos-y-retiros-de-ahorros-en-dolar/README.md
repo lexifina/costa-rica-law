@@ -14,3 +14,4 @@ Reglamento sobre los Depósitos y Retiros de Ahorros en Dólares Norteamericanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-02 | la propia norma |
+| 2 | 2001-07-23 | Reglamento 38 (2001-07-23) |
