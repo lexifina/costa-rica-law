@@ -1,0 +1,1 @@
+Artículo 11.-Lo dispuesto en el artículo precedente no comprende el caso en que el individuo entregado consienta libre y expresamente en que se le juzgue por cualquiera otro acto ni el caso en que después de puesto en libertad permanezca más de un mes en el Estado requirente ni en aquel en que se trate de delitos cometidos con posterioridad a la extradición.

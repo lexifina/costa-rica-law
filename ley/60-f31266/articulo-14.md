@@ -1,0 +1,1 @@
+Artículo 14.-Cuando los documentos que acompañan la solicitud sean considerados insuficientes por el Gobierno ante quien se haga, los devolverá para que sean suplidas las deficiencias o corregidos los defectos, y el individuo reclamado, si ha sido objeto de arresto provisional, continuará detenido hasta que venza el plazo a que se hace referencia en el precedente artículo.

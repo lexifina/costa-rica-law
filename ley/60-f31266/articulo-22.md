@@ -1,0 +1,1 @@
+Artículo 22.-La duración del presente Tratado será de cinco años que empezarán a contarse un mes después del canje de las ratificaciones. Vencido este término cualquiera de las Estados contratantes podrá denunciarlo, mediante aviso dado a la otra parte con un año de anticipación.
