@@ -1,0 +1,1 @@
+Artículo 11.-Con base en los estudios mencionados en el articulo anterior; la misma unidad informará a la Junta Directiva la demanda potencial de tierras en cada una de las zonas, delimitadas y recomendará un rango de tierras .a adquirir, en términos de hectáreas, para cada zona.

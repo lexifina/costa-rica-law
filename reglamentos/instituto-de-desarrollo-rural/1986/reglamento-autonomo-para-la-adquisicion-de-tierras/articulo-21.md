@@ -1,0 +1,1 @@
+Artículo 21.-Si la Junta Directiva resuelve la oferta de compra en forma; negativa, se procederá a informar al propietario, se registrará en el Banco de Datos y se archivará el expediente. Si la resolución es positiva, se procederá como se indica en los artículos siguientes.

@@ -1,0 +1,1 @@
+Artículo 18.- Los estudios técnicos a que se refiere el numeral anterior, serán el estudio agrológico y el avalúo de los inmuebles y los estudios legales serán los análisis de la situación registral de cada finca cuando se trata de inmuebles inscritos en el Registro Público, y de los documentos que demuestren su propiedad cuando los inmuebles carezcan de la inscripción referida.

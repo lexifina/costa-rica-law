@@ -1,0 +1,1 @@
+Artículo 17.La Presidencia Ejecutiva ordenará a los órganos correspondientes la realización de los estudios técnicos y legales de cada una de las fincas, a fin de determinar cuáles ofertas califican y cuáles deben ser descartadas

@@ -1,0 +1,1 @@
+Artículo 15.-Cuando un grupo tenga pretensiones sobre una finca especifica, la Presidencia Ejecutiva ordenará los estudios técnicos y legales a fin de determinar si es procedente o no su adquisici6n. Si la decisión fuese negativa, se le hará saber al grupo, que queda sujeto a ser ubicado en cualquier otra finca que se adquiera en la zona.

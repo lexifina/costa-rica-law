@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión estará integrada por el Jefe del Departamento de Estudios Básicos, el Jefe de la Sección de Estudios Agroeconómicos y el Jefe de Sección de Avalúos; además podrá ser reforzada con los funcionarios que se consideran necesarios a juicio de la presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Artículo 22.-Una .vez que la Junta Directiva .apruebe la compra de la. finca, la Comisión Técnica y el Departamento Legal coadyuvarán con el Secretario ,General en la redacción del acuerdo de compra, el que una vez firmado será remitido por la Presidencia Ejecutiva a los órganos correspondientes para su ejecución:
