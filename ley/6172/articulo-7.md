@@ -1,0 +1,13 @@
+Artículo 7º.- Los terrenos comprendidos dentro de las reservas, que
+sean de vocación forestal, deberán guardar ese carácter, a efecto de
+mantener inalterado el equilibrio hidrológico de las cuencas hidrográficas
+y de conservar la vida silvestre de esas regiones.
+Los recursos naturales renovables deberán ser explotados
+racionalmente. Unicamente podrán llevarse a cabo programas forestales por
+instituciones del Estado que garanticen la renovación permanente de los
+bosques, bajo la autorización y vigilancia de CONAI. Los guarda reservas
+indígenas, nombrados por el Gobierno, tendrán a su cargo la protección de
+los bosques y la vigilancia de ellas. La CONAI está expresamente facultada
+para revocar o suspender, en cualquier momento, los permisos extendidos;
+cuando estimare que existe abuso en la explotación o bien cuando se ponga
+en peligro el equilibrio ecológico de la región.
