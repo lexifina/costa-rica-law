@@ -1,0 +1,1 @@
+ARTÍCULO 5° Principiar la sesión por la lectura del acta del día anterior, que deber firmarse por el Presidente y Secretarios: en seguida estos últimos dar n cuenta con la correspondencia oficial que hayan recibido, con las proposiciones que nuevamente hayan hecho los Representantes, y por último se pasar tratar del asunto señalado con anterioridad.
