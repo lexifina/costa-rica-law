@@ -1,0 +1,1 @@
+Art. 2°-Durante el corriente mes, las Municipalidades de cada una de las cuatro Provincias del interior, procederán por mayoría relativa de votos, à la eleccion de un Consejero por cada una de éllas; y las Municipalidades de la de Guanacaste y Comarca de Puntarenas, eligirán otro.
