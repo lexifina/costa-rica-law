@@ -1,0 +1,1 @@
+ARTICULO 13.- Todos los empleados del establecimiento son obligados a trabajar con exactitud, ser fieles al Gobierno, y puntuales en la observancia de las órdenes que les comunique, sin pretender sobresueldos sino una gratificación, por los trabajos extraordinarios en días y horas inconsuetos que regulará el maestro de acuerdo con el Director.
