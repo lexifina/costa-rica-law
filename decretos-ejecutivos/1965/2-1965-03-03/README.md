@@ -25,3 +25,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | 10 | 1970-09-21 | Decreto Ejecutivo 1286 (1970-09-21) |
 | 11 | 1971-08-12 | Decreto Ejecutivo 1926 (1971-08-12) |
 | 12 | 1972-06-26 | Decreto Ejecutivo 2425 (1972-06-26) |
+| 13 | 1975-05-01 | Decreto Ejecutivo 4800 (1975-05-01) |

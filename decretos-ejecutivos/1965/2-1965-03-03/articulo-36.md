@@ -1,1 +1,1 @@
-Articulo 36. -La elección del Gobierno Estudiantil se hará en la primera quincena del segundo mes de labor, en presencia del director y el orientador del Colegio en la siguiente forma: Los miembros de los Consejos de Curso de cada nivel designarán, en votación secreta, cuál de sus presidentes formará parte de la directiva central, y resultará electo aquel que reciba más de la mitad de los votos emitidos.
+Articulo 36. -(Así derogado por el artículo N° 51 del decreto ejecutivo N° 4800 del 01 de mayo de 1975).

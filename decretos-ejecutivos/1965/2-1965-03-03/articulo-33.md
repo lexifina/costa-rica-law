@@ -1,3 +1,3 @@
 CAPITCLO VII
 a) Comunidad Estudiantil
-Artículo 33. -La Comunidad Estudiantil forma parte de la comunidad escolar y está integrada por todos los alumnos regulares de la institución, quienes vienen derecho a formar parte del gobierno estudiantil.
+Artículo 33.-(Así derogado por el artículo N° 51 del decreto ejecutivo N° 4800 del 01 de mayo de 1975).
