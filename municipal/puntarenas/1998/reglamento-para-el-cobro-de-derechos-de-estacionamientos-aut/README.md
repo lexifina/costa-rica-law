@@ -14,3 +14,4 @@ Reglamento para el Cobro de Derechos de Estacionamientos autorizados Ley N° 358
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-19 | la propia norma |
+| 2 | 1999-06-14 | Reglamento municipal 121 (1999-06-14) |
