@@ -1,0 +1,2 @@
+Art 8° Los dueños de minas serán obligados a dar el ingeniero, durante el tiempo que permanezca en sus minas, haciendo los trabajos y reconocimientos prevenidos, habitación y alimentos y a suministrarle los peones o jornaleros que necesite.
+A la Cámara de Representantes. Dado en el Salón de Sesiones, Palacio Nacional, San José, setiembre veintisiete de mil ochocientos sesenta y nueve. - Palacio Nacional, San José setiembre treinta de mil ochocientos sesenta y nueve.
