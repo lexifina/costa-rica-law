@@ -1,0 +1,4 @@
+Artículo 21.—El Comité de Activos y Pasivos estará integrado por el Gerente General del Banco, quien lo presidirá; el Subgerente de Negocios, quien será su vicepresidente, el Subgerente de Operaciones; los Directores de los Macroprocesos de Soporte Financiero y de Captación; el Tesorero y el Coordinador del Proceso de Administración del Riesgo, quienes se reunirán al menos dos veces al mes y no podrán delegar la función.
+Cuando se vayan a abordar temas relacionados con las sociedades propiedad del Banco, se incorporará a este Comité el Gerente de la respectiva sociedad, con voz y voto, lo cual será indispensable para que el tema sea tratado.
+Las actas de sus sesiones deberán ser firmadas por todos los presentes en la respectiva sesión en calidad de integrantes o asesores del Comité.
+(Así ADICIONADO por la Sesión N° 3987 celebrada el 16 de abril de 2002, publicada en La Gaceta N° 96 de 21 de mayo de 2002.)
