@@ -1,0 +1,1 @@
+Artículo 3º—Determinación de plazas nuevas. La Dirección de Operaciones, la Unidad Asesora de Planificación Institucional y la Dirección de Recursos Humanos, elaborarán un informe técnico que, en concordancia con el artículo 54 de la Ley, recomendará al Ministro la necesidad de nuevas plazas con su correspondiente grado dentro de la escala policial.

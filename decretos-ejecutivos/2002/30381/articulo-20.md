@@ -1,0 +1,1 @@
+Artículo 20.—Consejo. El Ministro o su representante presidirá el Consejo. Éste podrá asesorarse de las dependencias del Ministerio con el fin de evacuar consultas relacionadas con el desarrollo de sus funciones.

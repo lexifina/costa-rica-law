@@ -1,0 +1,1 @@
+Artículo 8º—Actividades de actualización. Todos los titulares de grados policiales deberán cumplir, cada dos años, ante la Escuela Nacional de Policía o instituciones debidamente acreditadas ante ella, un mínimo de cien horas de actividades académicas de actualización en materias relativas a las funciones desarrolladas.
