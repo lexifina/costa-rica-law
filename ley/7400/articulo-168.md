@@ -1,0 +1,2 @@
+ARTICULO 168.- Autorízase al Instituto de Desarrollo Rural(*) a donar un terreno de cinco hectáreas a la Asociación de Desarrollo Integral de Filadelfia, Carrillo, Guanacaste. Este terreno se encuentra ubicado contiguo al proyecto de vivienda del Bambú, con el propósito de ampliar esta urbanización y dotarla de zonas verdes.
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")

@@ -1,0 +1,2 @@
+ARTICULO 21.- Autorízase al Instituto de Desarrollo Rural(*) para donar una planta eléctrica en desuso a la Junta Administrativa de Servicios Eléctricos de Cartago (JASEC).
+(*) (Modificada su denominación por el artículo 14° de la Ley N° 9036 del 11 de mayo de 2012, "Transforma el Instituto de Desarrollo Agrario (IDA) en el Instituto de Desarrollo Rural (INDER) y Crea Secretaría Técnica de Desarrollo Rural")
