@@ -1,0 +1,5 @@
+Artículo 4 bis.—Disposiciones generales.
+Las disposiciones generales serán:
+a) La descripción de las mercancías gravadas en el anexo de esta Ley se funda en la nomenclatura aplicable conforme al Sistema Arancelario Centroamericano (SAC). Debe entenderse que dicha nomenclatura, a nivel de partida, subpartida, inciso o subinciso arancelario, incluye todas las mercancías comprendidas dentro de esa partida, subpartida, inciso o subinciso del arancel.
+b) Cuando el Consejo Arancelario Centroamericano modifique la clasificación arancelaria de una mercancía gravada con el impuesto selectivo de consumo, deberá considerarse implícitamente incluida la tarifa respectiva en las subdivisiones que se efectúen en la partida, subpartida, inciso o subinciso arancelario. Cuando la modificación implique ubicar la mercancía en otra partida, subpartida, inciso o subinciso arancelario, se harán las aperturas en la nueva clasificación y permanecerá la tarifa que tenía dicha mercancía en la anterior clasificación arancelaria.
+(Así adicionado por el artículo 24 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).
