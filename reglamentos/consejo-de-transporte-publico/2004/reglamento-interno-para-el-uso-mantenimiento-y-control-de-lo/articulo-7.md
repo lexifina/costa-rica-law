@@ -1,0 +1,1 @@
+Artículo 7º—Según lo prescrito por el artículo 234 de la ley 7331, los vehículos de uso administrativo no podrán destinarse a un uso diferente al que se establece en el artículo cuarto de este mismo reglamento. Asimismo se ajustará su utilización a los controles, informes y a la rutina de que se hable en el artículo once de la presente reglamentación.

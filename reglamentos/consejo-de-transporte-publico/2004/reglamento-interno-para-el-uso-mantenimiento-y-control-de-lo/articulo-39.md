@@ -1,0 +1,1 @@
+Artículo 39.—La Proveeduría del CTP no se hará responsable de facturas de reparación de vehículos cuyo trámite no se llevó a cabo mediante este procedimiento; asimismo, los servidores responsables de ellos se harán acreedores de las sanciones disciplinarias del caso según el "Reglamento Autónomo de Servicio del Consejo de Transporte Público".

@@ -1,0 +1,1 @@
+Artículo 21.—Toda solicitud para conducir vehículos del CTP debe exponer las razones que la justifiquen, deberá ser firmada por el funcionario solicitante y avalada por el superior inmediato; adjuntando copia de la cédula de identidad y de la licencia para conducir vehículos, ambos documentos deben estar vigentes.

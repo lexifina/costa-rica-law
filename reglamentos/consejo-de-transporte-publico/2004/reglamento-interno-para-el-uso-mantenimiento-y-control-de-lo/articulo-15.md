@@ -1,0 +1,1 @@
+Artículo 15.—La circulación de vehículos de uso administrativo general en horas y días no hábiles estará restringida, estrictamente, a la realización de labores no postergables o a la atención de emergencias inherentes a la labor del CTP. Se excluye de esta disposición al Director Ejecutivo y al Auditor Interno, por la naturaleza de las funciones que realizan.

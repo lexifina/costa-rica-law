@@ -1,0 +1,1 @@
+Artículo 42.—Control de Equipo es la dependencia encargada de velar porque se cumplan las disposiciones de tipo administrativo contenidas en este Reglamento, de acuerdo con las políticas dictadas por superior jerárquico del CTP.

@@ -1,0 +1,1 @@
+Artículo 27.—Quienes estén autorizados para operar vehículos del CTP, no deben permitir que personas no autorizadas para la función o el servicio que se propone brindar o personas ajenas al CTP viajen en los vehículos del CTP, salvo ocasiones especiales en que medie autorización previa de su superior inmediato y en casos de emergencia comprobada.

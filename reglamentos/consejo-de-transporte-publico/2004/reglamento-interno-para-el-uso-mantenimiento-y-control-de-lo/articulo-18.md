@@ -1,0 +1,1 @@
+Artículo 18.—Cuando un vehículo se encuentre en gira, al finalizar la jornada ordinaria deberá permanecer en la sede del CTP correspondiente o del Ministerio de Obras Públicas y Transportes, o en un lugar seguro a juicio del funcionario autorizado o del operador y bajo su entera responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 23.—Control de Equipo solicitará ante el órgano competente la suspensión del carné o autorización para operar vehículos del CTP a cualquier funcionario conductor que contravenga lo dispuesto en la regulación legal vigente o procedimientos establecidos.
