@@ -16,3 +16,4 @@ Créase "Taller Policial Interministerial" (Posteriormente se cambia su nombre a
 | 1 | 1990-05-30 | la propia norma |
 | 2 | 1994-02-04 | Decreto Ejecutivo 22881 (1994-02-04) |
 | 3 | 1994-11-01 | Decreto Ejecutivo 23820 (1994-11-01) |
+| 4 | 1997-04-07 | Decreto Ejecutivo 26059 (1997-04-07) |

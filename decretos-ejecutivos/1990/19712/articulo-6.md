@@ -1,1 +1,1 @@
-Artículo 6°—El personal de los tres Ministerios supracitados que sea trasladado a “El Taller”, seguirá dependiendo administrativamente de los Ministerios respectivamente a los cuales pertenecen, excepto en los asuntos de orden, mando y disciplina, para lo cual, se regirá por los reglamentos internos que para tal efecto elabore el Consejo Directivo de “El Taller”.
+Artículo 6°—Así Derogado por el Decreto Ejecutivo N° 26059 del 7 de abril de 1997.

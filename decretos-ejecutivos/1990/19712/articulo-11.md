@@ -1,1 +1,1 @@
-Artículo 11°—Los recursos que administre “El Taller” estarán sujetos a la fiscalización de la Contraloría General de la República.
+Artículo 11°—Así Derogado por el Decreto Ejecutivo N° 26059 del 7 de abril de 1997.

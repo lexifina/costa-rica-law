@@ -1,1 +1,1 @@
-Artículo 9°—Compete únicamente y exclusivamente al Consejo Directivo del Taller Policial Interministerial, el nombramiento del Director Ejecutivo, el cual se hará atendiendo razones de idoneidad, atestados académicos y experiencia profesional y laboral.
+Artículo 9°—Así Derogado por el Decreto Ejecutivo N° 26059 del 7 de abril de 1997.

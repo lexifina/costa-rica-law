@@ -1,2 +1,1 @@
-Artículo 4°—Quedan facultados los demás Ministerios que también tienen cuerpos policiales a utilizar directamente en forma exclusiva, los servicios que brinda “El Taller” para la reparación de sus respectivas unidades policiales, lo cual tendrá que hacerse con cargo a sus respectivos presupuestos, de conformidad con la normativa de administración financiera vigente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 23820 del 1° de noviembre de 1994)
+Artículo 4°— Así Derogado por el Decreto Ejecutivo N° 26059 del 7 de abril de 1997.
