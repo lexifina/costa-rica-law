@@ -1,0 +1,1 @@
+Artículo 35. -EI Ministerio no extenderá permiso de importación a aquellas personas que en el transcurso de los seis meses anteriores se les hubiere aplicado, como reincidentes, cualquiera de las penas señaladas en los artículos 32 y 34.

@@ -1,0 +1,1 @@
+Artículo 48.- A fin de proteger la industria apícola del país, el Poder Ejecutivo por medio de reglamento, delimitará zonas de protección apícola, en las cuales será regulado el uso de insecticidas que puedan ser dañinos para las abejas.
