@@ -1,0 +1,1 @@
+Artículo 3°-El personal de dicha Junta será de nombramiento de la Secretaría de Educación Pública, y se compondrá de tres miembros propietarios y dos suplentes, quienes durarán tres años en el ejercicio de sus funciones y serán renovados anualmente, por terceras partes, en la segunda quincena de julio, pudiendo ser reelectos.
