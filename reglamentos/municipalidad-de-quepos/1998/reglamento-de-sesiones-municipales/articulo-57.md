@@ -1,0 +1,1 @@
+57.—Cumplidas las sesiones remuneradas que establece el presente reglamento y el Código Municipal en su artículo 30. la Secretaría revisará en el registro pertinente la presencia tanto de sesiones del Concejo como la de comisiones para el pago correspondiente.

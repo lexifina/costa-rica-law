@@ -1,0 +1,2 @@
+51.—La Presidencia modera las intervenciones de los particulares y podrá llamarlos al orden y suspender la audiencia si el caso lo amerita. La. presidencia puede asistirse de las autoridades de Policía para hacer retirar a quien o quienes perturben el orden de las sesiones o bien que se componen indebidamente en el caso de particulares.
+También es contundente su aplicación a regidores, síndicos, propietarios y suplentes.

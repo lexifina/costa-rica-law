@@ -1,0 +1,1 @@
+56.—Para ausentarse temporalmente de la sesión municipal cualquier regidor o síndico propietario o suplente, deben de pedir permiso a la Presidencia quien decidirá el término para reincorporar a la sesión, solo en caso de emergencia calificada y será el Concejo Municipal quien decida el permiso.

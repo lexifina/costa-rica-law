@@ -1,0 +1,1 @@
+41.—Una vez designadas las comisiones por la Presidencia Municipal, sus miembros en la sesión de instalación que deberá celebrarse dentro de las ocho días siguientes, nombrara de su seno un Presidente (a), un vicepresidente (a), y un secretario (a).

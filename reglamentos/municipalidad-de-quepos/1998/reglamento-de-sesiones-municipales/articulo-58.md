@@ -1,0 +1,1 @@
+58.—Toda sesión tendrá como máximo una duración de tres horas, las cuales darán inicio a las diecisiete horas y finalizará a las veinte horas, en caso de no poder ver todos los asuntos anotados en el orden del día, estos se verán en la próxima sesión ordinaria.

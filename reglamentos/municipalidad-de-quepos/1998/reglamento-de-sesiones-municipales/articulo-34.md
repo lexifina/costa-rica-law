@@ -1,0 +1,1 @@
+34.—Presentada una moción de orden se concederá el uso de la palabra en primer término al proponente y luego a un regidor oponente que la solicite, sin que pueda exceder de dos minutos cada intervención.

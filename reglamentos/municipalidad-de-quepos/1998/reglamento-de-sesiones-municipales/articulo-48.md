@@ -1,0 +1,3 @@
+CAPITULO IV
+Intervención de los particulares
+48.—Cuando la índole de algún asunto lo amerite, previo acuerdo al respecto, podrá el Concejo invitar a personas particulares para que asistan a sesiones. Se establece como sesiones con audiencia al público la de los primeros y terceros lunes de cada mes. con un máximo de dos audiencias por sesión, por lo cual todo grupo comunal o vecino a efecto de poder ser atendido debe hacer la solicitud por escrito a la Secretaría con no menos de veinticuatro horas de anticipación, indicando el nombre del solicitante, lugar y motivo de la audiencia. El Concejo escuchará el asunto planteado y luego podrá formular preguntas, resolviendo el asunto en la sesión siguiente o en la misma.

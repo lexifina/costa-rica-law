@@ -1,0 +1,1 @@
+40.—Las comisiones formarán quorum la mitad más uno de los miembros. La Presidencia Municipal deberá realizar la juramentación solemne y formal de todos aquellos miembros de comisiones que no formen pane del Concejo, en sesión previa al inicio de sus funciones.

@@ -1,0 +1,1 @@
+36.—Para referirse a los asuntos en discusión la Presidencia del Concejo, inicia la intervención con las siguientes palabras: "Señores Regidores". Los señores regidores, síndicos propietarios y suplentes iniciarán sus intervenciones con la palabra: "Señora Presidenta" o "Señores Regidores".

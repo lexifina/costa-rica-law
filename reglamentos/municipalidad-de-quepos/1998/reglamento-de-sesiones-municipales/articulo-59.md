@@ -1,0 +1,1 @@
+59.—El regidor. Alcalde, síndico, secretario, contador o auditor que asista a una actividad, seminario, etc., en representación del Concejo Municipal se le otorgará licencia con goce de salario o según el caso dieta-

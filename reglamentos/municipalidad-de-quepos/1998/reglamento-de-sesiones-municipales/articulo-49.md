@@ -1,0 +1,1 @@
+49.—Cuando e] objeto de la audiencia sea un asunto de competencia del Alcalde, la Presidencia ordenará a la Secretaría remitir el memorial presentado a dicho funcionario para que éste le dé el tramite correspondiente. La Secretaría lo hará del conocimiento del interesado.
