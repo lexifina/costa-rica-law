@@ -1,0 +1,2 @@
+Artículo 3º.- Los documentos agregados a la solicitud podrán ser presentados en original o en copia auténtica, y podrá acompañarse de copia simple que una vez confrontada con su original se adjuntará, con la debida razón, a la solicitud presentada.
+Sin embargo, queda a discreción de la gobernación la posibilidad de exigir, por los medios pertinentes, la verificación de la autenticación para la solicitud y los documentos agregados a ésta.

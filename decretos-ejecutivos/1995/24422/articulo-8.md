@@ -1,0 +1,1 @@
+Artículo 8º.- Se faculta al Gobernador de Provincia, para que de oficio o a petición de parte, se realice personalmente o por medio de comisión, las diligencias que se considere convenientes para resolver lo solicitado en la mejor forma posible. Estas diligencias se consideran como parte los requisitos para otorgar los permisos.

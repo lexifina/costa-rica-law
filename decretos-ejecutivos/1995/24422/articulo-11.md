@@ -1,0 +1,1 @@
+Artículo 11.- Los permisos otorgados serán exclusivamente para las actividades solicitadas en caso que estas sean utilizadas para actividades de otra índole o utilizadas en establecimientos definidos a los autorizados, se procederá a la inmediata cancelación al permiso autorizado, previo cumplimiento de los procedimientos necesarios.
