@@ -1,0 +1,1 @@
+Artículo 3°.— A falta de disposición expresa en este Reglamento, en la Ley de Tierras y Colonización o en la Ley de creación del Instituto, se aplicarán en su orden el derecho público, la jurisprudencia, los principios generales de derecho público, la costumbre tas disposiciones del derecho agrario y del derecho privado que le fueren aplicables.
