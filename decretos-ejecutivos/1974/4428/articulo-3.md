@@ -1,2 +1,0 @@
-Artículo 3. Texto no disponible.
-(La Sala Constitucional mediante resolución N° 6432-98 del 04 de setiembre de 1998, anuló del inciso b), párrafo segundo de este artículo la definición "Reajuste de Precios" que decía "Es la actualización del precio de la obra tomando en cuenta las variaciones en el costo de los elementos predominantes siempre y cuando registre un aumento superior al 3% en un reglón de pago.")

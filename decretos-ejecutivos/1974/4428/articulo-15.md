@@ -1,2 +1,0 @@
-Artículo 15. Texto no disponible.
-(La Sala Constitucional mediante resolución N° 6432-98 del 04 de setiembre de 1998, anuló de este artículo -según reforma introducida por el Decreto Ejecutivo No. 11623-MEIC del 26 de junio de 1980- el párrafo que decía: "No serán admitidas para su trámite reclamaciones con fechas que se hayan presentado después de dos meses de la fecha de facturación en donde debió incluirse, lo cual se estimará para los efectos legales como extemporáneo.")
