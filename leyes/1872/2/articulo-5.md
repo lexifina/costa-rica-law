@@ -1,0 +1,1 @@
+Art 5° (referente al 28) Las votaciones se verificarán durante tres días consecutivos, desde las diez de la mañana hasta las dos de la tarde y de las cuatro a las seis, en cada uno ninguno de estos actos pueda abrirse o cerrarse antes o después de las horas mencionadas. El acto de abrirse o cerrarse cada votación se hará constar por una diligencia que así lo exprese.

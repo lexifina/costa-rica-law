@@ -1,0 +1,1 @@
+Art 6° (referente al 34) Dos o tres días después de terminadas las votaciones se reunirán las Juntas Electorales de Provincia, para hacer el escrutinio de los registros electorales, que han debido el virarles las Juntas de Distrito. Este escrutinio deberá estar concluido dentro de los ochos días siguientes a aquel en que terminamos las votaciones.
