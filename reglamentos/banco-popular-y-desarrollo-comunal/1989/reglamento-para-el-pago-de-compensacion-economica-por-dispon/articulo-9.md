@@ -1,0 +1,1 @@
+9°—Sé considerará falta grave del trabajador el incumplimiento de las disposiciones y obligaciones de este reglamento por lo que podrán serle aplicadas las sanciones que en derecho correspondan a este tipo de falta.
