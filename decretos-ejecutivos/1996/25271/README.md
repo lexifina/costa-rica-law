@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios del Ministerio de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-12 | la propia norma |
+| 2 | 1997-03-14 | Decreto Ejecutivo 25941 (1997-03-14) |

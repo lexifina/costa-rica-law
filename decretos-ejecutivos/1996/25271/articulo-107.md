@@ -14,7 +14,8 @@ i) Atender las observaciones, ideas e inquietudes del equipo de colaboradores y 
 j) Velar porque las relaciones interpersonales sean cordiales y se desarrollen dentro de los cánones del respeto mutuo.
 k) Crear en el equipo de colaboradores la capacidad de autodirigirse y autocontrolarse.
 I) Crear y mantener una cultura de trabajo, orientada a estimular en sus colaboradores el trabajo en equipo, sustentado en un enfoque de procesos y productos y en una vocación de creatividad y anticipación a los cambios.
-II) Cumplir con todas las responsabilidades que se le confieren y con aquellas contenidas en el Artículo 104 de la Ley General de la Administración Pública.
+II) Cumplir con todas las responsabilidades que se le confieren y las establecidas por el ordenamiento jurídico.
+(Así reformado por el artículo 10 del decreto ejecutivo N°. 25941 del 14 de marzo de 1997)
 m) Velar porque sus subordinados disfruten de sus vacaciones de modo tal que no se produzcan acumulaciones indebidas de estas.
 n) Brindar especial atención a los servidores (as) en los aspectos propios del desempeño de estos, durante el período de prueba. o) Cumplir sus funciones sin sujeción a los límites de la jornada establecida por este Reglamento, cuando fuere necesario, sin que ello genere remuneración.
 p) Elevar a decisión del Ministro(a) en el término improrrogable de tres días a partir del que tuvo conocimiento, las faltas graves en que incurrieron los servidores (as).

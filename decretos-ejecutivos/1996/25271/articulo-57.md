@@ -1,4 +1,5 @@
-Artículo 57.—El Ministro(a) podrá conceder licencias sin goce de salario y prorrogar las mismas, mediante resolución interna con apego estricto a las siguientes disposiciones:
+Artículo 57.—El Ministro (a) podrá conceder licencia sin goce de salario por más de un mes y prorrogar las mismas mediante resolución interna, con apego estricto a las siguientes disposiciones:
+(Así reformado por el artículo 8° del decreto ejecutivo N°. 25941 del 14 de marzo de 1997)
 a) Hasta seis meses para asuntos personales, la cual podrá ser prorrogada por seis meses más en casos muy especiales.
 b) Hasta un año para:
 1) Asuntos graves de familia, tales como enfermedad, convalecencia o tratamiento médico, cuando así lo requiera la salud del funcionario.

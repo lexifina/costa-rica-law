@@ -1,1 +1,2 @@
-Artículo 50.—El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por el servidor(a) durante las cincuenta semanas anteriores a adquirir el derecho, o durante el tiempo que le diera el derecho proporcional.
+Artículo 50.—Sólo se pagarán vacaciones cuando termine la relación de servicios del funcionario con el Ministerio y existan saldos pendientes de disfrutar.
+(Así reformado por el artículo 5° del decreto ejecutivo N°. 25941 del 14 de marzo de 1997)

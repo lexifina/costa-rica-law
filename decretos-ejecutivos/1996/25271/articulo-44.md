@@ -10,5 +10,7 @@ h) Contar con los instrumentos, equipos y materiales mínimos necesarios para re
 i) Ser escuchado(a) y atendido(a) por las instancias establecidas para resolver situaciones encubiertas o manifiestas de hostigamiento y acoso sexual.
 j) El pago de viáticos o zonaje según sea el caso, para los funcionarios (as) que por la índole de sus actividades laborales deban trasladarse a prestar sus servicios donde se les requiera y conforme a las regulaciones establecidas sobre este particular.
 k) El debido proceso para ejercer su derecho de defensa.
-1) Un periodo de lactancia de una hora y hasta por tres meses; siempre que las funcionarías demuestren requerirlo, pudiendo ser prorrogado cuando se compruebe necesidad. En todo caso, deberá presentar certificado médico extendido por la Caja Costarricense de Seguro Social o por médico de la institución.
+l) Un periodo de lactancia de una hora y hasta por tres meses; siempre que las funcionarías demuestren requerirlo, pudiendo ser prorrogado cuando se compruebe necesidad. En todo caso, deberá presentar certificado médico extendido por la Caja Costarricense de Seguro Social o por médico de la institución.
 m) No ser despedidos (as) de sus cargos a menos que incurran en causal de despido, de conformidad con la Legislación Laboral vigente, o cuando se trate de procesos de reestructuración.
+De acuerdo con lo fijado por la Contraloría General de la República.
+(Así adicionado por el artículo 3° del decreto ejecutivo N°. 25941 del 14 de marzo de 1997, el cual agregó el párrafo final)

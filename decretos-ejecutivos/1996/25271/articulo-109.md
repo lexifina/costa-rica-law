@@ -34,7 +34,8 @@ Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabaj
 25) Ejercer actividades profesionales cuando las mismas riñan con el ejercicio de las funciones que se estén desempeñando, o violen la prohibición que imponga la ley para el ejercicio liberal de la profesión, o violen los deberes del régimen de dedicación exclusiva, o servir de mediadores para facilitar a terceros sus actividades profesionales, valiéndose para ello del cargo o posición que ocupa.
 26) Salvo lo previsto en la ley, hacer reclamos u otras gestiones similares a favor de los particulares, en forma directa o indirecta, contra las diversas dependencias del Ministerio; llevar contabilidades o practicar auditorajes, excepto en cuanto a los negocios propios, de su cónyuge, ascendientes, descendientes y colaterales, hasta el tercer grado por consanguinidad o afinidad, debiendo comunicarlo a las autoridades respectivas.
 27) Ejercer presión, hostigar, acosar, tomar represalias contra compañeros (as) y subalternos (as), para obtener provecho personal en acciones relacionadas con credos políticos, religiosos, sexuales, económicos y de cualquier otra índole.
-28) Fumar en el centro de trabajo.
+28) Fumar en el centro de trabajo en áreas no autorizadas.
+(Así reformado por el artículo 11 del decreto ejecutivo N° 25941 del 14 de marzo de 1997)
 29) Hacer propaganda religiosa o contraria a las instituciones democráticas.
 30) Extraer del Ministerio documentos, expedientes, equipo, o en general cualquier bien del Ministerio, aunque sea para dar cumplimiento a labores del Ministerio, sin autorización expresa y previa del superior jerárquico.
 31) Tratar de resolver por medio de la violencia de hecho o de palabra las dificultades que surjan con jefes, servidores o usuarios.
