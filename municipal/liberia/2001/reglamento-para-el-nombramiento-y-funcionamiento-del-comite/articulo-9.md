@@ -1,0 +1,1 @@
+Artículo 9°—Personería jurídica instrumental. El comité cantonal de deportes y recreación de Liberta es un organismo adscrito a la municipalidad de Liberia con personería jurídica únicamente para el cumplimiento de los fines que la Ley y sus Reglamentos le otorguen, la certificación de personería será extendida por la secretaria municipal.

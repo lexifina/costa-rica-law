@@ -1,0 +1,1 @@
+Articulo 30.—De las resoluciones. Las resoluciones que tome el comité cantonal en las sesiones, se denominarán acuerdos o fallos. Son fallos todas aquellas resoluciones que resuelvan controversias o contengan un juicio de valor, siendo acuerdos todos los demás.

@@ -1,0 +1,1 @@
+Articulo 5°—Juramentación. La secretaría municipal a la brevedad comunicará a las personas nombradas y a las fuerzas vivas que participaron con sus ternas, el nombramiento efectuado. Asimismo la secretaria invitará a los nuevos integrantes del Comité para que se presenten en la sesión municipal inmediata siguiente al nombramiento para que reciban la respectiva juramentación.

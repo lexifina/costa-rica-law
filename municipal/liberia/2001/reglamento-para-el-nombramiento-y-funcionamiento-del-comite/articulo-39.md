@@ -1,0 +1,2 @@
+Articulo 39.—Entrega de actas. El proyecto de acta de cada sesión se entregará a los directivos del Comité Cantonal a más lardar veinticuatro horas antes en que será discutidas y aprobadas.
+El Secretario Ejecutivo responderá del cumplimiento de lo antes dispuesto y en la elaboración de las actas contará con la colaboración del Secretario y del Presidente de la Junta Directiva , quienes harán las revisiones, modificaciones o aclaraciones del caso según corresponda.

@@ -1,0 +1,1 @@
+Articulo 12.—Director del Deporte Local. El Comité Cantonal y los órganos que él designe son los encargados del deporte y la recreación en el Cantón de Liberia, según los planes municipales, los que deberán guardar concordancia con los planes nacionales que en esta materia dicten el INCODER y el MIDEPLAN de acuerdo a las leyes vigentes.

@@ -1,0 +1,1 @@
+Articulo 50. —Órganos dependiente El comité cantonal suministrará a lodos los órganos de su dependencia, un libro de tesorería y recibos por dinero, que deberán usarse en todas las gestiones de cobro que se realicen.

@@ -1,0 +1,1 @@
+Articulo 57.—Prioridad de uso. Los equipos afiliados, los del programa de iniciación deportiva, equipos de liga menor y selecciones local es que representen oficialmente a la comunidad y que estén reconocidos por el Comité Comunal, tendrán prioridad para el uso de instalaciones. Las competencias aficionadas tendrán preferencia sobre las relacionadas o profesionales.

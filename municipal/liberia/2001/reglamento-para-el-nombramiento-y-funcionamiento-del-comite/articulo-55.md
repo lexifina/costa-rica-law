@@ -1,0 +1,2 @@
+Articulo 55.—Clasificación de instalaciones. Las instalaciones deportivas serón clasificadas por el Comité Cantonal, en categorías de acuerdo con la infraestructura de éstas, también ordenara e! uso de las mismas por los usuarios de acuerdo con el tipo de actividad que realice.
+Con sustento en este ordenamiento se definirán las tarifas por derecho de uso de la-s instalaciones y el periodo que abarca dicha cuota.

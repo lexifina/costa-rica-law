@@ -1,0 +1,1 @@
+Artículo 10.—Domicilio legal. El domicilio legal del Comité Cantonal será el cantón de Liberia. pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo de la junta directiva.

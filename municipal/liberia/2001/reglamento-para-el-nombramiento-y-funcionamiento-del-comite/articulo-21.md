@@ -1,0 +1,1 @@
+Articulo 21. Periodo del cargo. Los miembros de la junta directiva durarán en su cargo dos años y podrán ser reelectos.

@@ -1,0 +1,1 @@
+Articulo 51. —Presentación de libros. Cada trimestre los tesoreros de los órganos dependientes del Comité Cantonal deberán presentar ante este, el libro de tesorería, adjuntando las facturas, comprobante y recibos correspondientes para su respectiva revisión, si este no se presentare el comité Cantonal paralizará cualquier gestión económica.
