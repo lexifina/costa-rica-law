@@ -153,3 +153,5 @@ respecto del Infocoop)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29484 de 18 de abril del 2001,
 respecto de las siguientes instituciones, Museo Histórico Cultural Juan Santamaría,
 Museo Nacional de Costa Rica y Teatro Popular Melico Salazar)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29502 de 19 de abril del 2001,
+respecto del Consejo Nacional de Producción)
