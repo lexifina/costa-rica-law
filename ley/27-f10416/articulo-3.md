@@ -1,0 +1,1 @@
+Art. 3. Los individuos que pertenezcan á alguna corporación ó tengan algún grado militar, cuando soliciten pasaporte, deberán presentar la licencia correspondiente de la corporación ó de los jefes respectivos, sin cuyo previo requisito no se les concederá.
