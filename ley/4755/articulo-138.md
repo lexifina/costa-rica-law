@@ -1,5 +1,2 @@
-Artículo 138.- Pruebas para mejor proveer. La autoridad
-administrativa debe impulsar de oficio el procedimiento. En cualquier
-estado del trámite, antes de dictar la resolución a que se refiere el
-artículo 141 de este Código, puede disponer la evacuación de pruebas para
-mejor proveer.
+Artículo 138.- Copia de resoluciones. Cuando se haga la notificación de una resolución, debe acompañarse copia literal de esta última.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 133 al actual)

@@ -1,0 +1,1 @@
+Transitorio X.- Reclamos contra avalúos inmobiliarios pendientes en el Tribunal Fiscal Administrativo. Los reclamos contra avalúos inmobiliarios que estén en trámite en el Tribunal Fiscal Administrativo a la fecha de entrada en vigencia de este Código, deben pasar a conocimiento de la Sala Segunda del nuevo Tribunal, para su resolución definitiva.

@@ -1,5 +1,2 @@
-Sección Segunda: Infracciones
-Artículo 67.- Concepto. Toda acción u omisión que importe
-violación de normas tributarias de índole sustancial o formal,
-constituye infracción punible en la medida y con los alcances
-establecidos en este Código o en leyes especiales.
+Artículo 67.- Responsabilidad en persona jurídica Los representantes, apoderados, directores, agentes, funcionarios o los empleados de una persona jurídica, serán responsables por las acciones o las omisiones establecidas en la presente ley. Tal responsabilidad no se presume y, por tanto, está sujeta a la demostración debida.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

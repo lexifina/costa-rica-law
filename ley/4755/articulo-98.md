@@ -1,8 +1,9 @@
-Artículo 98.- Penas. La infracción a que se refiere el inciso a) del
-artículo anterior, debe ser penada con un recargo del veinticinco por
-ciento del tributo no retenido o no cobrado. En cuanto a la indicada en el
-inciso b) de dicho artículo, debe sancionarse con un recargo del cincuenta
-por ciento del impuesto retenido o cobrado y no pagado en tiempo; y si la
-infracción tuviere las características señaladas en los artículos 88, 89,
-90 del presente Código, se debe aplicar la pena prevista en el artículo 91
-del mismo.
+ARTÍCULO 98.- Responsabilidad penal del funcionario público por
+acción u omisión dolosa
+Será sancionado con prisión de tres a diez años, el servidor público
+de la Administración Tributaria que, de manera directa o indirecta, por
+acción u omisión dolosa, colabore o facilite, en cualquier forma, el
+incumplimiento de la obligación tributaria y la inobservancia de los
+deberes formales del sujeto pasivo.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de
+1999)

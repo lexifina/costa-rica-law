@@ -1,5 +1,5 @@
-Artículo 126.- Obligación de los organismos que expiden patentes.
-Los Tesoreros Municipales deben enviar mensualmente a la oficina respectiva
-de la Administración Tributaria la nómina de las patentes comerciales
-otorgadas y el Ministerio de Industria y Comercio, por medio de la Oficina
-que corresponda, lo concerniente a las patentes industriales.
+Artículo 126.- Efectos de las liquidaciones o determinaciones tributarias de oficio
+Las liquidaciones o determinaciones tributarias de oficio serán previas o definitivas. Tendrán consideración de definitivas todas las practicadas mediante la comprobación por parte de los órganos de la fiscalización, de los hechos imponibles y su valoración, exista o no liquidación previa. Todas las demás tendrán carácter de determinaciones o liquidaciones previas.
+Las obligaciones de los contribuyentes, determinadas de oficio por la Administración Tributaria, solo podrán modificarse en contra del sujeto pasivo, cuando correspondan a determinaciones o liquidaciones previas. En estos casos deberá dejarse constancia expresa del carácter previo de la liquidación practicada, los elementos comprobados y los medios de prueba concretos que se utilizaron.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 121 al actual)
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de 1999)

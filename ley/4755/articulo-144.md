@@ -1,3 +1,28 @@
-Artículo 144.- Secreto de las actuaciones. Al ordenarse la
-investigación puede disponerse el secreto de las actuaciones durante un
-plazo que no debe exceder de treinta días.
+SECCION CUARTA
+Determinación por la Administración Tributaria
+ARTÍCULO 144.- Vista inicial
+Para realizar la determinación citada en el artículo 124 de este
+Código, debe principiarse trasladándole al contribuyente las observaciones
+o los cargos que se le formulen y, en su caso, las infracciones que se
+estime que ha cometido, así como las respectivas sanciones inherentes al
+proceso de determinación de la obligación tributaria. De previo, los
+órganos actuantes de la Administración deberán proponer al sujeto pasivo,
+la regularización correspondiente.
+El contribuyente podrá pagar, bajo protesta, el monto del tributo y
+sus intereses determinados en el traslado de cargos u observaciones. Por
+ninguna circunstancia, dicho pago se considerará como una rectificación de
+la declaración ni como una aceptación de los hechos imputados en el
+traslado. En este caso, el contribuyente podrá impugnar el traslado de
+cargos en los términos de los artículos 145 y 146 de este Código. En el
+evento de que la impugnación del contribuyente sea declarada, total o
+parcialmente, con lugar en sede administrativa o jurisdiccional, la
+Administración deberá reintegrar al contribuyente las sumas pagadas bajo
+protesta, junto con los intereses generados por estas desde la fecha del
+pago hasta la fecha del crédito, o desde el día en que se ponga a
+disposición del sujeto pasivo. La tasa de interés que deberá reconocer la
+Administración será la establecida en el artículo 57 de este Código.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia
+Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo
+139 al actual)
+(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de
+1999)

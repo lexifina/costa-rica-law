@@ -1,13 +1,7 @@
-CAPITULO II
-Disposiciones Especiales
-Sección Primera: Defraudación
-Artículo 88.- Concepto. Comete defraudación el contribuyente,
-responsable o tercero que, mediante simulación, ocultación, maniobra o
-cualquiera otra forma de engaño, induce a error a la Administración
-Tributaria, del que resulte para sí o un tercero un enriquecimiento
-indebido a expensas del derecho de aquélla a la percepción de los
-tributos.
-Es agravante especial la circunstancia de que la defraudación se
-cometa con la participación del funcionario o empleado público que, por
-razón de su cargo, intervenga o deba intervenir en los hechos
-constitutivos de la infracción.
+Artículo 88.- Reducción de sanciones
+Las sanciones indicadas en los artículos 78, 79, 81 y 83 se reducirán cuando se cumplan los supuestos y las condiciones que se enumeran a continuación:
+a) Cuando el infractor subsane, en forma espontánea, su incumplimiento sin que medie ninguna actuación de la Administración para obtener la reparación, la sanción será rebajada en un setenta y cinco por ciento (75%). El infractor podrá autoliquidar y pagar la sanción en el momento de subsanar el incumplimiento, en cuyo caso la reducción será del ochenta por ciento (80%).
+b) Cuando el infractor repare su incumplimiento después de la actuación de la Administración Tributaria, pero antes de la notificación del traslado de cargos, la sanción se rebajará en un cincuenta por ciento (50%). El infractor podrá autoliquidar y pagar la sanción en el momento de subsanar su incumplimiento; en cuyo caso la reducción será del cincuenta y cinco por ciento (55%).
+c) Cuando, notificado el traslado de cargos y dentro del plazo establecido para impugnarlo, el infractor acepte los hechos planteados en ese traslado y subsane el incumplimiento, la sanción será rebajada en un veinticinco por ciento (25%). El infractor podrá autoliquidar y pagar la sanción en el momento de reparar el incumplimiento; en cuyo caso la reducción será del treinta por ciento (30%). En estos casos, el infractor deberá comunicar a la Administración Tributaria, en el formulario que ella defina, los hechos aceptados y adjuntará las pruebas de pago o arreglo de pago de los tributos y sanciones que correspondan.
+Para los efectos de los párrafos anteriores, se entenderá como actuación de la Administración toda acción realizada con la notificación al sujeto pasivo, conducente a verificar el cumplimiento de las obligaciones tributarias referidas al impuesto y período de que se trate. También se concederán las rebajas citadas en los incisos b) y c) de este artículo a las sanciones dispuestas en el artículo 82. En estos casos y en el artículo 83, la rebaja de sanciones operará siempre y cuando los infractores comuniquen a la Administración Tributaria, en el formulario que ella defina, haber subsanado las infracciones cometidas y aporten, además, las pruebas correspondientes.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

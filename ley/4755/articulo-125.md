@@ -1,12 +1,6 @@
-Artículo 125.- Responsabilidad de los declarantes. Las declaraciones
-juradas o manifestaciones que formulen los contribuyentes se presumen fiel
-reflejo de la verdad y hacen responsable al declarante por los tributos que
-de ellas resulten, así como también por la exactitud de los demás datos
-contenidos en las mismas.
-El declarante no puede reducir el tributo determinado, mediante
-declaraciones posteriores, salvo si dentro del año siguiente al vencimiento
-del plazo legal para su pago demuestra, a juicio de la Administración
-Tributaria, que ha incurrido en un error evidente de concepto.
-Los errores de carácter puramente aritmético, visibles en la propia
-declaración jurada, se pueden rectificar en cualquier momento antes de que
-se opere la prescripción.
+Artículo 125.- Formas de determinación. La determinación por la Administración Tributaria se debe realizar aplicando los siguientes sistemas:
+a) Como tesis general sobre base cierta, tomando en cuenta los elementos que permitan conocer en forma directa los hechos generadores de la obligación tributaria; y
+b) Si no fuere posible, sobre base presunta, tomando en cuenta los hechos y circunstancias que, por su vinculación o conexión normal con el hecho generador de la obligación tributaria, permitan determinar la existencia y cuantía de dicha obligación.
+Sin perjuicio de lo dispuesto en los anteriores incisos, la determinación puede hacerse en forma provisional en los casos que señala el artículo 127 (*) de este Código.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 120 al actual)
+(*) (Así reformado tácitamente por el artículo 6 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 122, siendo ahora 127)

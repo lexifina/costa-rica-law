@@ -1,35 +1,11 @@
-CAPITULO II
-Medidas Cautelares
-Artículo 164.- Casos en que proceden. Con anterioridad a la
-interposición de la demanda, la Oficina de Cobros puede decretar las
-medidas cautelares que se indican en los artículos 165 y 166 siguientes
-para la percepción de los créditos a favor del Poder Central originados en
-tributos regulados por el presente Código, sus intereses, recargos y
-multas, en los casos siguientes:
-a) Cuando transcurre el plazo señalado en el artículo 162 de este
-Código, si el deudor no ha cancelado totalmente el crédito fiscal,
-cuya certificación se hubiere emitido con base en documentos
-emanados del mismo deudor o en resolución que agote la vía
-administrativa;
-b) Cuando exista, en caso de multas, sentencia ejecutoria, y si
-transcurrido el plazo a que alude el inciso anterior no se hubiere
-pagado el importe de la multa correspondiente;
-c) Cuando lo pida el propio interesado, para garantizar su deuda
-fiscal; y
-d) Cuando esté en vías de determinación un crédito fiscal y, a juicio
-de la autoridad administrativa competente, exista peligro de que
-el obligado se ausente, enajene o oculte sus bienes o realice
-qualquier maniobra tendiente a dejar insoluto el crédito. En estos
-casos, dicha autoridad debe solicitar a la Oficina de Cobros que
-decrete la correspondiente medida cautelar, e iniciar seguidamente
-el procedimiento necesario para determinar y liquidar el crédito
-fiscal en un plazo que no deje exceder de treinta días. Si el
-crédito fiscal se cubre dentro del término de quince días
-siguientes a la notificación de dicha liquidación, el deudor no
-está obligado a pagar gastos de ejecución.
-Si pasados treinta días de practicado el embargo, no se ha
-notificado la determinación y liquidación del crédito fiscal, la Oficina de
-Cobros debe proceder a levantar dicho embargo.
-Cuando se trate de créditos fiscales no regulados por el presente
-Código, estas medidas cautelares deben solicitarse a los órganos
-jurisdiccionales competentes.
+Artículo 164.- Todo miembro del Tribunal Fiscal Administrativo está impedido y debe excusarse de conocer de los reclamos de los contribuyentes, cuando:
+a) Tenga interés directo o indirecto en el reclamo venido en alzada al Tribunal;
+b) En el reclamo o asunto tenga interés su cónyuge, sus ascendientes o descendientes, hermanos, cuñados, tíos y sobrinos carnales, suegros, yernos, padrastros, hijastros, padres o hijos adoptivos;
+c) Sea o hubiere sido en los seis meses anteriores, tutor, abogado, curador, apoderado, auditor, contador, empleado, representante, administrador, o gerente de la persona o empresa interesada en el reclamo.
+Asimismo está prohibido a los miembros del Tribunal:
+i) Aplicar decretos, reglamentos, acuerdos u otras disposiciones que sean contrarios a la ley;
+ii) Ejercer la profesión por la que fueron nombrados, con la salvedad establecida en el artículo 118 (*) de este código; y
+iii) Expresar y aun insinuar privadamente su opinión respecto de los negocios que están llamados a fallar. El funcionario que contraviniere esta prohibición se hará acreedor a la pena prevista para el prevaricato.
+(Así reformado por el artículo 1º de la ley Nº 5179 de 27 de febrero de 1973).
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 155 al actual)
+(*) (Así reformado tácitamente por el artículo 6 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 113, siendo ahora 118)

@@ -1,13 +1,3 @@
-Artículo 94.- Penas. La falta de presentación o la presentación
-tardía de las declaraciones juradas deben ser penadas con un recargo
-equivalente al dos por ciento sobre el saldo adeudado, por cada mes o
-fracción de mes, transcurrido desde la fecha en que debió presentarse la
-declaración, hasta el día en que se presentó efectivamente o se practicó la
-determinación de oficio del tributo.
-Dicho recargo no puede exceder de un veinticuatro por ciento del saldo
-adeudado. Tampoco debe ser inferior a doscientos colones, si se trata de
-personas jurídicas; ni a cincuenta colones, si se trata de personas
-naturales. Si no existe obligación alguna por pagar, estos recargos
-mínimos se reducen a la mitad.
-El recargo a que se refiere este artículo se debe aplicar
-independientemente del que corresponda por mora en el pago del tributo.
+Artículo 94.- Acceso desautorizado a la información
+Será sancionado con prisión de uno a tres años quien, por cualquier medio tecnológico, acceda a los sistemas de información o bases de datos de la Administración Tributaria, sin la autorización correspondiente.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

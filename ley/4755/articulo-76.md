@@ -1,8 +1,3 @@
-Artículo 76.- Eximentes de responsabilidad. Excluyen la
-responsabilidad y, en consecuencia, no dan lugar a la aplicación de
-sanciones:
-a) La incapacidad absoluta;
-b) La fuerza mayor y el estado de necesidad;
-c) El error comprobado en cuanto al hecho que constituye la
-infracción; y
-d) El cumplimiento de la ley y la obediencia debida.
+Artículo 76.- Autoliquidación de sanciones
+El contribuyente podrá autodeterminar la multa correspondiente. En este caso, utilizando los medios que defina la Administración Tributaria, podrá fijar el importe que corresponda de acuerdo con la sanción de que se trate y, una vez realizada la autoliquidación, podrá pagar el monto determinado. La Administración Tributaria deberá verificar la aplicación correcta de la sanción.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

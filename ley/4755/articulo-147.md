@@ -1,19 +1,15 @@
-CAPITULO V
-Recursos
-Artículo 147.- Recurso de apelación. Contra las resoluciones
-administrativas a que se refieren los artículos 29, 43, 108 y 141 de este
-Código, los interesados pueden interponer recurso de apelación para ante el
-Tribunal Fiscal Administrativo o Junta de Avalúos Inmobiliarios, según
-corresponda, dentro de los quince días siguientes a aquel en que fueron
-notificados. Igual recurso procede si dentro del plazo de dos meses que
-señala el segundo párrafo del artículo 43 de este Código, la Administración
-Tributaria no dicta la resolución respectiva.
-El recurso de que trata este artículo se debe interponer ante la
-autoridad que dictó la resolución, quien lo debe elevar al Tribunal Fiscal
-Administrativo, dentro de los quince días siguientes al vencimiento del
-término para apelar que señala el primer párrafo de este artículo,
-juntamente con todos los antecedentes que obren en su poder.
-En ningún caso procede el recurso si el monto total en discusión es
-inferior a quinientos colones, salvo que se trate de recursos interpuestos
-contra los avalúos inmobiliarios practicados por la Administración
-Tributaria, en cuyo caso no rige ninguna licitación por razón del monto.
+Artículo 147.- Requisitos de la resolución. Toda resolución administrativa debe llenar los siguientes requisitos:
+a) Enunciación del lugar y fecha;
+b) Indicación del tributo, del período fiscal correspondiente y, en su caso, del avalúo practicado;
+c) Apreciación de las pruebas y de las defensas alegadas;
+d) Fundamentos de la decisión;
+e) Elementos de determinación aplicados, en caso de estimación sobre la base presunta;
+f) Determinación de los montos exigibles por tributos.
+(Así reformado el inciso anterior por el artículo 1º de la ley N° 7900 de 3 de agosto de 1999)
+g) Firma del funcionario legalmente autorizado para resolver.
+(Así reformado el inciso anterior por el artículo 1º de la ley N° 7900 de 3 de agosto de 1999)
+h) (Adicionado originalmente por el artículo 7 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995 y posteriormente derogado por el artículo 5º, inciso a), de la ley N° 7900 de 3 de agosto de 1999)
+En los casos en que el sujeto pasivo no impugne el traslado de los cargos aludidos en el artículo 144, bastará que la resolución se refiera a ese traslado para que se tengan por satisfechos los requisitos indicados en los incisos c), d) y e) de este artículo.
+(Así reformado el párrafo anterior por el artículo 1º de la ley N°.7900 de 3 de agosto de 1999)
+(Nota: Véase además el Transitorio I de la ley N° 7900)
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 142 al actual)

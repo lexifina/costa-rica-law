@@ -1,5 +1,8 @@
-Artículo 167.- Limitaciones al embargo administrativo y sustitución.
-El embargo administrativo que autorizan los artículos 165 y 166 de este
-Código se debe practicar observando las limitaciones que establecen los
-artículos 984 del Código Civil y 172 del Código de Trabajo, pudiendo ser
-sustituido por garantía suficiente a juicio de la Oficina de Cobros.
+Artículo 167.- Integración de la Oficina de Cobros. Para el cobro judicial o extrajudicial que le compete, la Oficina de Cobros debe estar integrada por:
+a) Un jefe, quien debe ser abogado, cuyas funciones son atender todo lo referente a la dirección, coordinación, supervisión y ejecución de las actividades y programas de la dependencia y ejercer las demás atribuciones que para tales efectos le correspondan;
+b) Un cuerpo de abogados que debe integrar la planta estable de la Oficina; y
+c) Un cuerpo de fiscales específicos, integrado también por abogados, que puede designar el Ministerio de Hacienda en el número que considere apropiado. El Poder Ejecutivo podrá reducir o aumentar el número de fiscales específicos, cuando así lo considere necesario el Ministerio de Hacienda. El nombramiento de ellos se hará mediante Decreto Ejecutivo, previa realización de un concurso de antecedentes.
+(Así reformado por el artículo 49 de la ley Nº 7293 de 26 de marzo de 1992).
+El Jefe de la Oficina y los abogados del cuerpo a que se refiere el inciso b) deben ser nombrados por el Ministerio de Hacienda, de acuerdo con las regulaciones del Estatuto de Servicio Civil.
+También debe contar dicha Oficina con el personal administrativo que requieran las necesidades del servicio a su cargo.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 158 al actual)
