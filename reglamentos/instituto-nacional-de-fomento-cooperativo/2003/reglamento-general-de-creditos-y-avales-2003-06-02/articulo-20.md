@@ -1,1 +1,0 @@
-Artículo 20.—Sin perjuicio de lo establecido en el Artículo 19, el plazo y la forma de pago a que se otorguen se fijará teniendo en cuenta las posibilidades del proyecto, y la vida útil de tipo de inversión, de acuerdo a los estudios y proyecciones que se practiquen en cada oportunidad.

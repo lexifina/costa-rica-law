@@ -1,8 +1,0 @@
-Artículo 16.—Sin perjuicio de lo establecido en el artículo 15, los Financiamientos que otorgue el INFOCOOP, no podrán ser superiores, en conjunto, a 10 veces el capital social pagado de cada organismo cooperativo, y el financiamiento de inversiones fijas no podrá sobrepasar el 80% del valor de las mismas, debiendo acreditar en cada caso la solicitante que cuenta con los recursos necesarios para cubrir la diferencia, excepto financiamientos para capitalización, en cuyo caso el monto del financiamiento será tomado en cuenta para esta relación.
-Se exceptúan de esta disposición todos aquellos organismos cooperativos de reciente inscripción y aquellas que presentan proyectos de inversión nuevos de organismos cooperativos autogestionarias que desarrollen proyectos para la incorporación de nuevos puestos de trabajo o mantenimiento de los ya existentes, siempre y cuando las personas que ocupen dichos puestos sean asociados a los organismos cooperativos.
-El monto a financiar se otorgará de acuerdo con el costo de los proyectos y la garantía real aportada por los asociados del organismo cooperativo.
-A saber:
-Proyectos con garantía real en un 100%, se financiará hasta el 90% del costo de inversión.
-Proyectos con garantía real en un 70%, se financiará hasta el 80% del costo de inversión del proyecto.
-Proyectos con garantía real en un 40%, se financiará hasta el 60% del costo de inversión del proyecto.
-En todo caso los activos financiados con el Financiamiento formarán parte de la garantía del proyecto, junto a la fianza solidaria de los miembros del Consejo de Administración y la Gerencia, por un monto que permita de acuerdo a lo establecido en el artículo 12 de este reglamento cubrir el monto que no cuenta con las garantías reales.
