@@ -1,0 +1,1 @@
+Art. 3. La Junta Itineraria podrá, can el propio fin que se expresa en el precedente artículo, aumentar el resguardo con empleados pagados de [imagen] sus fondos; pero ni á los ministros ni á los guardas de la Aduana debe asignar ninguna retribución especial por las funciones que el presente decreto les comete.

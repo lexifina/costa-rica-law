@@ -1,0 +1,1 @@
+Art. 5. Ningún dueño de bodega podrá consentir se dé principio al embarque del café que tenga [imagen] en ella, sin dar antes aviso al Administrador de Puntarenas, à fin de que este designe el guarda que debe presenciar la operacion de pasar y embarcar este fruto. [imagen]
