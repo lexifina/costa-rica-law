@@ -1,0 +1,1 @@
+Artículo 5.- El quórum para poder sesionar será de cinco miembros, y los acuerdos serán tomados por mayoría simple de los miembros presentes. En caso de empate, el Presidente gozará del derecho de doble voto.

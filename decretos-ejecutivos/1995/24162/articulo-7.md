@@ -1,0 +1,1 @@
+Artículo 7.- Dentro de su seno, la Comisión nombrará un Secretario, quien deberá hacer constar en las actas, los acuerdos adoptados en las sesiones, llevar un control de la correspondencia recibida y despachada, y apoyar al Presidente en su gestión, así como sustituirlo durante sus ausencias.
