@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva de la Caja Costarricense de Seguro Soci
 | --- | --- | --- |
 | 1 | 1988-08-24 | la propia norma |
 | 2 | 1997-01-07 | Reglamento 7091 (1997-01-07) |
+| 3 | 1998-06-09 | Reglamento 7230 (1998-06-09) |
