@@ -1,0 +1,1 @@
+Articulo 29.—De las prohibiciones a la caja chica: Es absolutamente prohibido cambiar cheques, pagar salaries o prestar dinero con los fondos de caja chica. Además, dichos fondos deberán estar separados de los ingresos (u otros) de la caja general.

@@ -1,0 +1,1 @@
+Articulo 37.—De la violación a la legislación: El funcionario o empleado que en nombre de INCOP contraiga obligaciones de cualquier naturaleza en contra de las leyes o sin autorización legal, será exclusivamente responsable ante los acreedores de la obligación civil
