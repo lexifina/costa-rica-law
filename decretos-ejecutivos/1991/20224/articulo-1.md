@@ -1,4 +1,5 @@
 N° 20224-G
+(Nota de Sinalevi: El Poder Ejecutivo emitió el Reglamento a la Ley N° 9050 de Impuesto a Casinos y Empresas de enlace de llamadas a apuestas electrónicas, aprobado mediante decreto ejecutivo N° 39231 del 27 de julio de 2015.)
 En uso de las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política,
 Considerando:
 1º.- Que el artículo 8º de la ley Nº 7088 de 30 de setiembre de 1987, dispone que solo podrán ser autorizados los casinos en aquellos hoteles clasificados de primera categoría, con tres o más estrellas, según lo establezca el Instituto Costarricense de Turismo.
