@@ -1,0 +1,1 @@
+Art. 3°-Caso que no fuere posible proveer las plazas destinadas á señoritas, el Ministerio del ramo las llenará con jóvenes varones elegidos entre aquellos que quieran dedicarse al profesorado normal de segunda enseñanza.
