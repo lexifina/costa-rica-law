@@ -1,0 +1,1 @@
+Artículo 2º—La Unidad de Equiparación de Oportunidades para Personas con Discapacidad desarrollará las mismas funciones asignadas en el artículo 4º del Decreto Nº 30391-MTSS, del 30 de abril del 2002.
