@@ -1,0 +1,1 @@
+Artículo 8°—La retención de los sobres y tarjetas, de respuesta pagada, no deberá exceder de los diez días naturales de cada mes. En caso de no ser retirados por los .destinatarios, se cancelará el permiso extendido y se abonará la garantía a los portes pendientes de pago.

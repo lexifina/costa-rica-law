@@ -1,0 +1,1 @@
+Artículo 5°—Antes de ser puestos en servicio, los sobres y tarjetas con respuesta comercial pagada deberán ser sometidos a la Dirección General de Correos, para que examine si cumplen. lo establecido en el artículo 3° de este decreto.

@@ -1,0 +1,1 @@
+Artículo 4°—La persona o firma interesada en usar la “Respuesta Comercial”, deberá solicitar previamente el respectivo permiso a la Dirección General de Correos que, en caso de autorizarlo, le asignará el número sucesivo que le corresponde.

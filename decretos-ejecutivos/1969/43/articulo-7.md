@@ -1,0 +1,1 @@
+Artículo 7°—Las Administraciones de Correos retendrán a la orden de los destinatarios los sobres o tarjetas de respuesta comercial, para ser entregados, previo comprobante de pago hecho en el Banco Central de Costa Rica, o Sucursal del Tesoro Público, en que conste haberse pagado el valor total de los portes.

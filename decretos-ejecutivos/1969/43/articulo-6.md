@@ -1,0 +1,1 @@
+Artículo 6°—Las personas o firmas comerciales que se acojan al beneficio de “Sobres con respuesta pagada”, que determinan los artículos 4° y 5° del presente decreto, se comprometerán a rendir garantía por la suma de cien colones (¢ 100.00), que depositarán, en el Banco Central mediante entero autorizado por la Auditoria General de Comunicaciones.
