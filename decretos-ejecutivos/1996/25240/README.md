@@ -13,3 +13,4 @@ Reglamento Regencias Profesionales Colegio Federado Químicos CFQIQ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-02 | la propia norma |
+| 2 | 1996-07-02 | SINALEVI (sin norma nombrada) |
