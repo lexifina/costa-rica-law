@@ -1,0 +1,1 @@
+Artículo 2°-Procédase á separar para la población, en el centro de esas tierras, un cuadrado de mil doscientos metros por lado y á dividir el mismo en hectáreas separadas unas de otras por calles rectas de veinte metros de ancho y á subdividir asimismo dichas hectáreas en seis lotes iguales, numerando aquéllas y éstos.
