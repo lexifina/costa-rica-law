@@ -1,6 +1,3 @@
-ARTICULO 7.- Cuando los patentados consideren demasiado alta la
-calificación dada a su actividad, podrán solicitar recalificación ante una
-comisión que, para tal efecto, estará integrada por el Ejecutivo Municipal,
-el contador municipal y un miembro de la Comisión de Hacienda y
-Presupuesto. Las resoluciones de tal comisión tendrán recurso de revisión
-ante el Concejo.
+ARTICULO 7.- DEROGADO.
+(Derogado por el artículo 23 de la Ley de impuestos municipales de
+Corredores No.7459 del 29 de noviembre de 1994)

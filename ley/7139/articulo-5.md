@@ -1,9 +1,3 @@
-ARTICULO 5.- El tipo y categoría correspondientes a cada actividad,
-y, por consiguiente, el monto del impuesto respectivo, serán fijados por
-la Municipalidad por medio de los funcionarios designados para tal efecto,
-quienes estarán facultados para visitar los establecimientos afectos al
-impuesto, con el fin de hacer un estudio del área del establecimiento, de
-las líneas de artículos que se venden o producen, del número de empleados,
-del grado de tecnología empleada y de cualquier otra característica de la
-actividad lucrativa que coadyuve a hacer más justa la aplicación del
-impuesto.
+ARTICULO 5.- DEROGADO.
+(Derogado por el artículo 23 de la Ley de impuestos municipales de
+Corredores No.7459 del 29 de noviembre de 1994)
