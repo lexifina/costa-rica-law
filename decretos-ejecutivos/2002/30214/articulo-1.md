@@ -19,7 +19,8 @@ Entidad Límite 2003 (Millones de colones)
 Academia Nacional de Ciencias 23,3
 Centro de Formación de Formadores 337,5
 Centro Cost. Producción Cinematográfica 58,1
-Centro Cultural Histórico José Figueres Ferrer 19,7
+Centro Cultural Histórico José Figueres Ferrer 23,8
+(Así modificado mediante artículo 1° del Decreto Ejecutivo N° 31133 de 4 de abril de 2003).
 Centro Nacional de Drogas 560,4
 Centro Univ. Para el Desarrollo del Trópico Seco 283.8
 (Así modificado mediante artículo 1° del Decreto Ejecutivo N° 31065 de 4 de febrero de 2003).
