@@ -15,3 +15,4 @@ Reglamento al artículo 12 del Anexo 3 de la Ley Nº 7017 "Ley de Incentivos par
 | --- | --- | --- |
 | 1 | 1997-06-13 | la propia norma |
 | 2 | 1997-08-26 | Decreto Ejecutivo 26306 (1997-08-26) |
+| 3 | 1998-08-19 | Decreto Ejecutivo 27246 (1998-08-19) |
