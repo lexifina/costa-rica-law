@@ -15,3 +15,4 @@ Reglamento de sesiones, acuerdos y comisiones municipales
 | --- | --- | --- |
 | 1 | 1994-12-01 | la propia norma |
 | 2 | 1999-02-23 | Reglamento municipal 0 (1999-02-23) |
+| 3 | 1999-02-23 | Ley 8 |
