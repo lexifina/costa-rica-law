@@ -1,0 +1,1 @@
+Artículo 5º.- Deróganse y modifícanse, según el caso, todas aquellas disposiciones legales que se opongan a la presente ley, y especialmente queda modificado el artículo 41 de la ley Nº 1738 de 31 de marzo de 1954 (arancel de Aduanas).
