@@ -1,0 +1,1 @@
+Artículo 37.—Cualquier funcionario municipal podrá ser llamado a las sesiones del Concejo, cuando este lo acuerde, y sin que por ello deba pagársele remuneración alguna, en atención a lo dispuesto en el artículo 40 del Código Municipal.

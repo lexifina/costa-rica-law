@@ -1,0 +1,2 @@
+Artículo 98.—La amonestación oral y la escrita podrán ser aplicadas por las Jefaturas de los Trabajadores previo seguimiento del debido proceso. Enviarán copia a la Unidad de Recursos Humanos para que las archive en el expediente de los trabajadores, en atención a lo dispuesto en el artículo 149 del Código Municipal.
+La suspensión y el despido serán acordados por el Alcalde, según el procedimiento indicado en los artículos 101 y 102 de este Reglamento.

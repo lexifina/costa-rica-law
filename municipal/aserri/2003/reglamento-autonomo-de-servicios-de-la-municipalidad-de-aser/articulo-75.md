@@ -1,0 +1,1 @@
+Artículo 75.—En caso de que un trabajador sufra un accidente del trabajo, y no pueda desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, la Municipalidad está obligada a reubicarlo a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizándole todos sus derechos.

@@ -1,0 +1,1 @@
+Artículo 58.—La Municipalidad capacitará por diversos medios los servidores municipales, en materias afines al servicio brindado por la Institución. Las licencias para asistir a estas actividades de entrenamiento serán con goce de salario y no aplica la reposición de tiempo.

@@ -1,0 +1,1 @@
+Artículo 36.—En ningún caso se reconocerá labores extraordinarias ejecutadas ni se aplicará compensación, sin la autorización previa del Alcalde Municipal, el Asistente y los Directores. Tampoco se reconocerá como tiempo extraordinario el requerido para subsanar los errores imputables al servidor, cometidos durante la jornada.

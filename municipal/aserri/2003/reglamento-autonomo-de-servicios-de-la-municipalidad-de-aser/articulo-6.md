@@ -1,0 +1,1 @@
+Artículo 6º—La Unidad de Recursos Humanos dispondrá de mecanismos de comunicación adecuados hacia el personal. En lo concerniente a las pizarras informativas de distintos pisos de la Institución, esta Unidad podrá autorizar la ubicación en éstas de todo comunicado que desee hacer por este medio.

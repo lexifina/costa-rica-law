@@ -1,0 +1,1 @@
+Artículo 131.—Para resolver un caso determinado, a falta de disposiciones de este Reglamento deberán tenerse como normas supletorias el Código Municipal, el Manual Descriptivo de Puestos, el Código de Trabajo, la Ley General de la Administración Pública, Convención Colectiva de Trabajo y demás leyes y reglamentos supletorios y conexos.

@@ -1,0 +1,1 @@
+Artículo 76.—Todo trabajador está en la ineludible obligación de dar aviso a la Unidad de Recursos Humanos o al jefe inmediato, de algún accidente que haya sufrido, dentro del día posterior al accidente, ya sea por escrito o por medio de otra persona.

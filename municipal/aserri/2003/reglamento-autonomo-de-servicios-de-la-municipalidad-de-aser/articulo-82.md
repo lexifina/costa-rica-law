@@ -1,0 +1,5 @@
+CAPÍTULO XIII
+Del registro y control de asistencia
+Artículo 82.—El Superior Jerárquico será responsable de velar porque se cumplan fielmente, en todos los casos, los horarios de trabajo y de descanso que establece el presente Reglamento, el registro de asistencia y puntualidad al trabajo; se llevará para todos los trabajadores, por medio de tarjetas individuales que deberán ser marcadas en el reloj electrónico que para ese fin se encuentre instalado a la entrada del centro de trabajo. Podrá emplearse otro medio idóneo de control de tiempo sustitutiva o complementariamente a juicio del Alcalde Municipal.
+La Unidad de Recursos Humanos será la encargada de controlar el registro de asistencia y puntualidad del personal individualmente, e informar al Superior Jerárquico acerca de las inconsistencias que ameriten sanción, detectadas en dichos registros, con el fin de que adopte las medidas que correspondan.
+Los servidores que no registran su asistencia y puntualidad deben respetar los horarios establecidos.

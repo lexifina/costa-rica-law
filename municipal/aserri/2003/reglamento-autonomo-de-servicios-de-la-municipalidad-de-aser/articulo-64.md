@@ -1,0 +1,4 @@
+Artículo 64.—El recargo de funciones puede darse cuando exista la partida correspondiente y bajo las siguientes condiciones:
+a) Que haya plena justificación de la necesidad del recargo (ausencia del titular con vigencia temporal hasta un máximo de un año).
+b) Que se consideren los elementos de idoneidad a quien se le asigna el recargo.
+c) Que no se practique un reconocimiento en cadena por ese concepto. El cálculo se hará por la diferencia entre los salarios básicos únicamente. Si quien sustituye tiene un salario base menor que el del sustituido, corresponde pagarle hasta completar el salario base de este último. Si es similar o mayor, no cabe reconocimiento salarial. El pago deberá hacerse por días naturales. Solo procederá recargo de funciones en empleados nombrados en propiedad.

@@ -1,0 +1,1 @@
+Artículo 18.—La Unidad de Recursos Humanos verificará la validez y autenticidad de los documentos presentados por los aspirantes, su experiencia laboral o cualquier circunstancia que sirva para ponderar su capacidad para el puesto sometido a concurso.

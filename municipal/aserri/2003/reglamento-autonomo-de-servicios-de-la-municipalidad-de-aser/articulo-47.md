@@ -1,0 +1,1 @@
+Artículo 47.—Los servidores gozarán sin interrupción de su periodo de vacaciones. Estas podrán ser divididas en dos o tres fracciones como máximo, cuando así lo convengan las partes, siempre que se trate de labores de índole tan especial que no permitan su ausencia prolongada del servidor y que su presencia sea necesaria para la buena marcha del servicio público.

@@ -1,0 +1,1 @@
+Artículo 111.—El servidor despedido podrá apelar de la decisión del Alcalde para ante el correspondiente tribunal de trabajo del circuito judicial a que pertenece la Municipalidad, dentro de un término de ocho días hábiles contados a partir de la notificación del despido.

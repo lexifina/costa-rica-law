@@ -1,0 +1,3 @@
+Artículo 60.—Los salarios de los servidores municipales no podrán ser inferiores a los básicos legales establecidos por el Consejo Nacional de Salarios.
+Dichos salarios estarán regidos por una escala de salarios y con consecuencia de la valoración de los deberes, responsabilidades y complejidades que componen cada uno de los puestos de la entidad.
+La Municipalidad adecuará y mantendrá actualizado el Manual Descriptivo de Puestos, el cual contendrá una descripción suscinta y completa de las tareas típicas y suplementarias de los puestos, los deberes, las responsabilidades y los requisitos mínimos de cada clase de puestos.

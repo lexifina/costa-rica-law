@@ -1,0 +1,3 @@
+Artículo 9º—La relación de servicio puede ser:
+a) Por tiempo indeterminado: Cuando tiene por objeto desarrollar las actividades propias y permanente de la Municipalidad.
+b) A plazo fijo o por tiempo determinado: Cuando el trabajador consiente en prestar sus servicios por un periodo determinado, cuya iniciación y terminación se conocen previamente. Podrá contratarse a un servidor bajo esta modalidad para sustituir a otro servidor con motivo de licencia, enfermedad o riesgo profesional o para la realización de trabajos que aunque se consideren del objeto propio de las actividades normales de la Municipalidad, son extraordinarios desde el punto de vista de la urgencia con que tienen que ser realizados.

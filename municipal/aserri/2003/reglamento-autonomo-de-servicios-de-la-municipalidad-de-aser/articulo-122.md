@@ -1,0 +1,1 @@
+Artículo 122.—La persona afectada por hostigamiento sexual podrá plantear la denuncia sea en forma verbal o escrita ante el Alcalde Municipal. De lo manifestado por la persona denunciante se levantará un acta con la colaboración del Asesor Legal de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 67.—Todos los trabajadores de la Municipalidad, excepto los excluidos por la ley estarán protegidos por una póliza contra riesgos del trabajo, conforme a lo dispuesto en la Ley Nº 6727 del 9 de marzo de 1982 y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 41.—En caso de terminación de la relación de servicios, antes de que el servidor cumpla el correspondiente periodo de cincuenta semanas, tendrá derecho, a vacaciones proporcionales por cada mes completo de servicios.

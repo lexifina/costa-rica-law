@@ -1,0 +1,3 @@
+Artículo 24.—Como resultado de los concursos aludidos en los incisos b) y c) del artículo 128 del Código Municipal, la Unidad de Recursos Humanos presentará al Alcalde una nómina de elegibles de tres candidatos como mínimo, en estricto orden descendente de calificación.
+Sobre esta base el Alcalde escogerá al sustituto.
+Mientras se realiza el concurso interno en propiedad, el Alcalde podrá autorizar el nombramiento o ascenso interino de un trabajador hasta por un plazo máximo de dos meses, atendiendo siempre las disposiciones de los artículos 116 y 130 del Código Municipal.

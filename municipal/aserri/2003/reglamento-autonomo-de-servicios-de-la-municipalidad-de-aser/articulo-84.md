@@ -1,0 +1,1 @@
+Artículo 84.—Están excluidos del registro de asistencia el Alcalde, el Asistente del Alcalde, el Auditor Interno y los Directores de Departamento. Todos los demás funcionarios deberán registrar el ingreso y la salida al trabajo.

@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad de Recursos Humanos llevará, por los medios idóneos que correspondan, un expediente personal de cada servidor, el que contendrá la documentación sobre el historial del servidor exclusivamente en lo atinente a la relación de servicio.

@@ -1,0 +1,3 @@
+Artículo 117.—Quien quiera denunciar acoso u hostigamiento sexual contra una persona o personas, cualquiera que sea su rango, podrá hacerlo en forma oral o escrita ante la Unidad de Recursos Humanos, ofreciendo en el mismo acto toda la prueba que considere oportuna.
+En caso de formularse la denuncia de manera oral, en el mismo acto se levantará acta; la cual deberá ser firmada por el o la denunciante.
+Inmediatamente después de recibida la denuncia, la Unidad de Recursos Humanos la hará del conocimiento del Alcalde Municipal, para que integre el órgano director del procedimiento de investigación y procedan a realizar los trámites correspondientes. Dicho Órgano deberá estar integrado con al menos un licenciado en Derecho.

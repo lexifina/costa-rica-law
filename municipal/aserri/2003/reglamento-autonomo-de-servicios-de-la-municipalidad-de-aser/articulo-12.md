@@ -1,0 +1,6 @@
+Artículo 12.—La relación de servicio de los funcionarios con la Institución finalizará por cualquiera de las razones siguientes:
+a) Cuando a juicio del respectivo Jefe el servidor nombrado interinamente no se desempeñe en forma eficiente durante el periodo de prueba, o cuando el servidor voluntariamente dispone a retirarse del cargo en dicho periodo.
+b) Por renuncia del servidor, en cuyo caso preavisará según los términos de ley.
+c) Por cese de funciones para acogerse al derecho jubilatorio, o por incapacidad permanente dictada por un órgano competente.
+d) Por despido con o sin responsabilidad patronal, en los casos en que proceda de conformidad con el ordenamiento jurídico vigente en esta materia.
+e) La relación de servicios de los servidores interinos en plaza vacante y de los servidores interinos sustitutos terminará, en caso de resolución de terna o nómina de elegibles de la Unidad de Recursos Humanos, o cuando ingrese el titular del puesto, según se trate. Igualmente, las personas que hayan sido contratadas por servicios especiales, no incluidas en los incisos anteriores y que se contraten a plazo fijo o por obra determinada, concluirán su relación de servicios, una vez vencido el plazo o concluida la obra. Dichos servidores tendrán derecho al pago de las prestaciones legales que procedan, de acuerdo con los requisitos y normativa aplicables.
