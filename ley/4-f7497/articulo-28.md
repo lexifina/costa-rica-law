@@ -1,0 +1,1 @@
+Artículo 28.-En ningún caso ni por ninguna de las estipulaciones de este contrato, será responsable el concesionario, ni perderá sus derechos, si por caso fortuito ó fuerza mayor no pudiese cumplir todas, alguna ó algunas de las obligaciones aquí contraídas.

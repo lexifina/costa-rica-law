@@ -1,0 +1,1 @@
+Artículo 24-Las mercaderías se despacharán de las bodegas en orden riguroso de prioridad de llegada á las estaciones; sin embargo, se dará preferencia á los objetos que con calidad de urgentes envíe ó pida el Gobierno.

@@ -1,0 +1,1 @@
+Artículo 26.-La obra será recibida por el Gobierno, y éste no podrá autorizar la explotación de ningún trayecto si no se han cumplido todas y cada una de las condiciones establecidas. En todo tiempo durante la concesión, tendrá el gobierno la inspección de la obra.
