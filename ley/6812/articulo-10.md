@@ -1,27 +1,4 @@
-Artículo 10.- Refórmanse los artículos 1º, 8º y 11 de la Ley sobre el
-Desarrollo de la Comunidad, Nº 3859 del 7 de abril de 1967, modificada por
-la Nº 4788 del 5 de julio de 1971, para que digan así:
-"Artículo 1º.- Créase la Dirección Nacional de Desarrollo de la
-Comunidad, como órgano del Poder Ejecutivo adscrito al Ministerio de
-Gobernación y Policía, y como instrumento básico de desarrollo, encargada
-de fomentar, orientar, coordinar y evaluar la organización de las
-comunidades del país, para lograr su participación activa y consciente en
-la realización de los objetivos del Plan Nacional de Desarrollo Económico
-y Social".
-"Artículo 8º.- Habrá un Consejo Nacional de desarrollo de la Comunidad,
-integrado por los siguientes miembros: el Ministro de Gobernación y
-Policía, o su representante; un Ministro de otra cartera, o su
-representante, que designará el Presidente de la República; tres miembros
-de las asociaciones de desarrollo y dos miembros de la unión de gobiernos
-locales. Los representantes de las asociaciones de desarrollo y de la
-unión de gobiernos locales serán nombrados de las ternas que deberán
-solicitarse a esas entidades. El Consejo será presidido por el Ministerio
-de Gobernación y Policía o su representante. Cuando las asociaciones de
-desarrollo están organizadas a escala nacional, serán los organismos
-nacionales los encargados de presentar las ternas correspondientes. La
-integración del Consejo se hará por decreto ejecutivo".
-"Artículo 11.- Los acuerdos del Consejo Nacional de Desarrollo de la
-Comunidad, sancionados por el Presidente de la República y por el Ministro
-de Gobernación y Policía, tendrán carácter obligatorio para los
-Ministerios en cuanto a las acciones relacionadas con programas de
-desarrollo comunal".
+Artículo 10.- Refórmanse los artículos 1º, 8º y 11 de la Ley sobre el Desarrollo de la Comunidad, Nº 3859 del 7 de abril de 1967, modificada por la Nº 4788 del 5 de julio de 1971, para que digan así:
+"Artículo 1º.- Créase la Dirección Nacional de Desarrollo de la Comunidad, como órgano del Poder Ejecutivo adscrito al Ministerio de Gobernación y Policía, y como instrumento básico de desarrollo, encargada de fomentar, orientar, coordinar y evaluar la organización de las comunidades del país, para lograr su participación activa y consciente en la realización de los objetivos del Plan Nacional de Desarrollo Económico y Social".
+"Artículo 8º.- Habrá un Consejo Nacional de desarrollo de la Comunidad, integrado por los siguientes miembros: el Ministro de Gobernación y Policía, o su representante; un Ministro de otra cartera, o su representante, que designará el Presidente de la República; tres miembros de las asociaciones de desarrollo y dos miembros de la unión de gobiernos locales. Los representantes de las asociaciones de desarrollo y de la unión de gobiernos locales serán nombrados de las ternas que deberán solicitarse a esas entidades. El Consejo será presidido por el Ministro de Gobernación y Policía o su representante. Cuando las asociaciones de desarrollo están organizadas a escala nacional, serán los organismos nacionales los encargados de presentar las ternas correspondientes. La integración del Consejo se hará por decreto ejecutivo".
+"Artículo 11.- Los acuerdos del Consejo Nacional de Desarrollo de la Comunidad, sancionados por el Presidente de la República y por el Ministro de Gobernación y Policía, tendrán carácter obligatorio para los Ministerios en cuanto a las acciones relacionadas con programas de desarrollo comunal".
