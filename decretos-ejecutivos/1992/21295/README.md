@@ -13,3 +13,4 @@ Reglamento Tránsito Aduanero Transporte Multimodal Marítimo- Terrestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-06-12 | la propia norma |
+| 2 | 1992-06-12 | Decreto Ejecutivo 25270 (1996-06-14) |
