@@ -1,0 +1,1 @@
+Artículo 2°.- La fijación de las referidas contribuciones deberá hacerse tomando como bases el monto del Detalle de Caminos Vecinales del año 1948 y el monto del tributo no podrá ser mayor del doble del que se cobró en ese año.
