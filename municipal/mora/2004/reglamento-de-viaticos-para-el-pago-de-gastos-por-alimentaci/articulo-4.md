@@ -3,3 +3,5 @@ Artículo 4º—La suma máxima a pagar por concepto de gastos de transporte a r
 • Regidores y síndicos procedentes de Piedras Negras, cuatro mil colones (¢4.000,00).
 Estos montos se actualizarán anualmente de acuerdo a los precios que rijan en ese momento.
 • Regidores y Síndicos procedentes de cualquier otro distrito, siempre y cuando cumpla con la disposición del artículo 2º de este Reglamento, se le dará una asignación de acuerdo con los precios que rijan en ese momento.
+• Los Regidores y Síndicos procedentes de Tabarcia, cuatro mil quinientos colones exactos.
+(Así adicionado mediante sesión N° 180 del 1° de noviembre del 2004)

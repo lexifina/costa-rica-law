@@ -14,3 +14,4 @@ Reglamento de Viáticos para el Pago de Gastos por Alimentación y Transporte a 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-13 | la propia norma |
+| 2 | 2004-11-01 | Reglamento municipal 180 (2004-11-01) |
