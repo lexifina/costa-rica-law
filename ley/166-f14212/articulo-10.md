@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Se formar una brigada de artillería, compuesta de dos compa¤¡as, y cada una de ‚ estas, dotada con un Capitán, un Teniente, un Subteniente, un Sargento 1° veterano, seis segundos, un tambor veterano y cuarenta soldados.

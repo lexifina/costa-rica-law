@@ -1,0 +1,1 @@
+ARTÍCULO 21.-La Inspección general recaer en una Junta compuesta de cuatro oficiales, y el Auditor general de guerra, cuyo nombre ser Junta de Guerra Consultiva y sus atribuciones las siguientes: 1° Consultar al ejecutivo en lo concerniente a la dirección y economía de la fuerza armada: 2¦. La Inspección general de las armas del Estado.

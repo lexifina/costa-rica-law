@@ -1,0 +1,1 @@
+ARTÍCULO 26.-Las causas criminales contra los individuos del ejército por delitos puramente militares, y faltas graves cometidas en el servicio, se sustanciarán y terminarán con arreglo al decreto Federal de 22 de mayo de 26.

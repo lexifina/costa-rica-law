@@ -1,0 +1,1 @@
+ARTÍCULO 23.-Las Ternas para la creación de todos los Jefes que demanda este Reglamento, se harán precisamente en los militares, pues siendo los ascensos el único est¡mulo que ‚estos tienen, en ellos únicamente deber verificarse.

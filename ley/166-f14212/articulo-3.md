@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Cuando el batallón estuviese en campaña, guarnición o asamblea, haciendo una resaca de veinte plazas por compa¤¡a, se formar otra de cazadores, escogiendo igualmente los oficiales m s peritos para este objeto.
