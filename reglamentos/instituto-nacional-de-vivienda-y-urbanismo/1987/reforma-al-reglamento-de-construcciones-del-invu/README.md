@@ -17,3 +17,4 @@ Reforma al Reglamento de Construcciones del INVU
 | 2 | 1987-08-03 | Reglamento 6 (1987-08-03) |
 | 3 | 1987-10-28 | Reglamento 28 (1987-10-28) |
 | 4 | 1988-03-23 | Reglamento 65 (1988-03-23) |
+| 5 | 1995-02-22 | Reglamento 4486 (1995-02-22) |
