@@ -1,0 +1,5 @@
+Art. —2°. Concluído el término de evacuar pruebas que concede el art. 18 de la Ley de juegos, se procederá como indica la Ley de Jurado, con las siguientes modificaciones para el caso de que conforme á ella debe intervenir ese Tribunal.
+1°. —El Agente Fiscal puede recusar sin causa en el acto del sorteo cinco de los jurados sorteados por primera vez, cuatro en la segunda y tres en la tercera.
+2°. —No hará en ningún caso jurado de acusación.
+3°. —El Jefe Político del cantón menor que tramite una causa de juego prohibido, puesta en estade de convocar jurado, la pasará al Agente de Policía de la ciudad cabecera de la provincia ó comarca, la cual tramitará la causa hasta el estado de sentencia, y la devolverá en seguida al Jefe Político respectivo.
+Los Jefes Políticos de los cantones que con el de San Ramón forman hoy distrito judicial, enviarán sus causas al de éste para los efectos indicados, El de San Ramón procederá con las suyas como los Agentes de Policía de las ciudades cabeceras de provincia ó comarca.
