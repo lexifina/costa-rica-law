@@ -1,0 +1,1 @@
+Artículo 3° No obstante, lo dispuesto en el artículo 1° podrán mantenerse en la circulación las actuales monedas de 10 y 5 céntimos, respectivamente, mientras al Poder Ejecutivo, no considere necesario su rescate y reacuñación en las condiciones fijadas por esta ley.
