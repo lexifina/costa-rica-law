@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -Las funciones de las juntas calificadoras duran hasta el aparecimiento de las que deben subrogarles. Dichas juntas cada año revisar n las listas de sufragantes para adiccionar los que de nuevo, conforme la ley, deban inscribirse, y testar los que según ella deban ser excluidos.

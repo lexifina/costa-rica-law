@@ -1,0 +1,1 @@
+ARTÍCULO 7°. -En los casos que ocurran de no reunirse ni una minoria de electores en la Asamblea electoral, corresponde al Presidente de dicha Asamblea el compelerlos todos para que, conforme a la ley, concurran desempeñar su encargo.

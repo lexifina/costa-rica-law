@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Para verificar las elecciones de Canton conforme lo prevenido en el artículo 73, se necesitan dos tercios del total de los electores, que se completar con suplentes en falta de los propietarios, con sujeción lo mandado en la ley de elecciones.

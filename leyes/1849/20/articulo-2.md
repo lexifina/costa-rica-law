@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -En los casos de que sea necesario llenar el vacio que resulte de la escusa de alguno de los individuos de las juntas calificadoras, como lo dispone el art. 4°, la misma Municipalidad nombrar uno que tenga las calidades prevenidas por la ley.
