@@ -1,9 +1,17 @@
 De conformidad con el artículo 19, párrafo 5º, de la Constitución de
 la Organización Internacional del Trabajo,
 DECRETA:
-Convenio Nº 117
-Relativo a las Normas y Objetivos Básicos
-de la Política Social
+CONVENIO Nº 117
+RELATIVO A LAS NORMAS Y OBJETIVOS BASICOS
+DE LA POLITICA SOCIAL
+(NOTA: De acuerdo con el artículo 3º de la ley de ratificación del
+presente Convenio, su ejecución debe entenderse realizada según el tenor
+de las disposiciones pertinentes de la Constitución Política y demás
+leyes de la República, así como de las reformas que establece el artículo
+2º de la presente ley y de los reglamentos que conforme a sus
+atribuciones, dicte el Poder Ejecutivo, y no implicará, fuera de lo
+previsto en el citado artículo 2º, modificación al ordenamiento jurídico
+vigente)
 La Conferencia General de la Organización Internacional del Trabajo:
 Convocada en Ginebra por el Consejo de Administración de la Oficina
 Internacional nacional del Trabajo, y congregado en dicha ciudad el 6 de
