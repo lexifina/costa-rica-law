@@ -1,0 +1,1 @@
+Artículo 25.—De las prohibiciones. En La Gacetica Estudiantil no se imprimirá ni se insertará publicidad comercial de los centros educativos, sin embargo, cuando el Consejo Directivo lo considere necesario podrá insertarse publicidad comercial de la Imprenta Nacional, ya sea impresa o en forma de volantes anexos.

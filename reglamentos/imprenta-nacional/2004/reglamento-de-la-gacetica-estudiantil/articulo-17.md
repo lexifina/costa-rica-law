@@ -1,0 +1,1 @@
+Artículo 17.—La documentación para ser publicada en La Gacetica Estudiantil debe ser entregada en un sobre cerrado por el director del centro educativo o bien por la persona que este funcionario designe por escrito, al Consejo Directivo.

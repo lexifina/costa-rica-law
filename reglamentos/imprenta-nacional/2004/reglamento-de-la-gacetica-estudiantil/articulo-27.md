@@ -1,0 +1,1 @@
+Artículo 27.—De la cantidad de ejemplares a imprimir. La cantidad de ejemplares de La Gacetica Estudiantil que se imprimirá estará sujeta al número de estudiantes del centro educativo y/o de la disponibilidad presupuestaria de la Junta Administrativa de la Imprenta Nacional.

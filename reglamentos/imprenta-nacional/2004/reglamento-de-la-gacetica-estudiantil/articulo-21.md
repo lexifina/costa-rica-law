@@ -1,0 +1,1 @@
+Artículo 21.—Del precio. La Dirección de los colegios o escuelas recibirán los periódicos de manera gratuita por parte de la Junta Administrativa de la Imprenta Nacional, como forma de incentivar los valores cívicos, culturales y sociales.

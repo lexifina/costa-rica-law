@@ -1,0 +1,1 @@
+Artículo 2º—La edición y dirección de La Gacetica Estudiantil estará a cargo de la Junta Administrativa de la Imprenta Nacional, quien nombrará a un Consejo Directivo constituido por tres personas, para que ejerzan funciones por un periodo de un año, de la integración quedará constancia impresa en la contraportada del periódico.

@@ -1,0 +1,1 @@
+Artículo 14.—En La Gacetica Estudiantil se publicará un máximo de tres fotografías las cuales deben presentarse en formato JPG-digital o impreso en papel fotográfico, a colores o blanco y negro y deberán indicar el número de página donde se colocarán.

@@ -1,0 +1,1 @@
+Artículo 5º—Debido a que el público meta del periódico en su mayoría esta compuesto por niños y jóvenes, La Gacetica Estudiantil tendrá una mascota con el fin de despertar y mantener el interés entre sus lectores.

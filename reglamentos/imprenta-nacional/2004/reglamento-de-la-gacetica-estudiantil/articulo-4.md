@@ -1,0 +1,1 @@
+Artículo 4º—Como parte del proyecto educativo, la Junta Administrativa de la Imprenta Nacional o a quien la misma designe, podrá realizar visitas a los centros educativos para impartir charlas sobre temas de interés. También podrá promover o patrocinar concursos entre los estudiantes, sobre temas que tengan afinidad con La Gacetica Estudiantil.

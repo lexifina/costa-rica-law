@@ -1,0 +1,1 @@
+Artículo 26.—De la producción. La Junta Administrativa de la Imprenta Nacional, podrá contratar la asesoría de profesionales en periodismo, educación o derecho para que supervise y coordine el trabajo editorial que demandará la producción de La Gacetica Estudiantil.

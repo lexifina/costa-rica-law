@@ -1,0 +1,1 @@
+Artículo 13.—Cuando se publiquen textos con errores, no atribuibles al Consejo Directivo, sino a los originales enviados, se enmendarán únicamente si media solicitud escrita de quien ordenó la publicación del original.

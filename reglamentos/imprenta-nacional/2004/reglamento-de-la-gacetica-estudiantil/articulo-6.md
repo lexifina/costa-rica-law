@@ -1,0 +1,1 @@
+Artículo 6º—De las solicitudes. El Consejo Editorial suministrará en la oficina que se designe para ese fin, un formulario para que los centros educativos realicen las respectivas solicitudes de participación de la edición de La Gacetica Estudiantil. Este documento debe ser firmado por el Director del centro educativo o por el funcionario designado ante la Administración.

@@ -1,0 +1,1 @@
+Artículo 16.—La recepción de documentos para publicar en La Gacetica Estudiantil la hará el Consejo Directivo en la oficina que se designe para ese fin, dichos documentos deberán ser entregados quince días antes de la fecha de publicación.

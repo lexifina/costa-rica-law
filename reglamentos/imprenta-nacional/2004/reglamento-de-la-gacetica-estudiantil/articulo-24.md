@@ -1,0 +1,2 @@
+Artículo 24.—Del material enviado para ser publicado. El Consejo
+Directivo no devolverá fotografías, ilustraciones ni los documentos que respaldan los textos publicados, ya que pasan a ser propiedad del Consejo, empero, la Imprenta Nacional conservará los documentos originales que se han publicado en La Gacetica Estudiantil, durante el tiempo que el Comité de Selección y Eliminación de la Imprenta Nacional determine. Después de ese tiempo la Imprenta procederá a destruirlos y no aceptará ningún reclamo por errores en las publicaciones.

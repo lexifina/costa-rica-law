@@ -1,0 +1,1 @@
+Artículo 3º—Cada centro educativo participante en el programa La Gacetica Estudiantil contará con un Consejo Editorial independiente de la Imprenta Nacional, el cual será responsable para los efectos legales de los contenidos de esa publicación. Su integración se consignará por escrito en la segunda página de cada publicación.

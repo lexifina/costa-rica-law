@@ -1,0 +1,1 @@
+Artículo 28.—De las obligaciones. El centro educativo que haya participado en el programa de La Gacetica Estudiantil, deberá guardar en su biblioteca o archivo institucional, al menos dos ejemplares por edición de este periódico.
