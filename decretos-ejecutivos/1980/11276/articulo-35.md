@@ -1,2 +1,2 @@
-Artículo 35.- De cada sorteo se levantará acta del resultado que deberán firmar los asistentes oficiales a que se refiere el artículo anterior.
+Artículo 35.-De cada sorteo se levantará acta del resultado, que deberán firmar los asistentes oficiales a que se refiere el artículo anterior.
 Copia autorizada del acta se enviará el día inmediato siguiente a la Imprenta Nacional para su publicación en el Diario Oficial. Asimismo, se imprimirá una lista oficial de premios para su máxima distribución en todo el país, debiendo enviarse un número de ellas suficientes a los medios de comunicación.
