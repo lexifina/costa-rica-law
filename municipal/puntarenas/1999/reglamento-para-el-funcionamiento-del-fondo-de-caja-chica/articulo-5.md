@@ -1,0 +1,1 @@
+5) Liquidaciones: Con e] propósito de loograr eficientemente en el uso de este fondo el Tesorero Municipal liquidará los gastos incurridos, cuando el fondo haya sido usado y liquidado en un 40% o antes, para no afectar la buena marcha de la Institución. A tal efecto, usará el formulario diseñado para el caso.

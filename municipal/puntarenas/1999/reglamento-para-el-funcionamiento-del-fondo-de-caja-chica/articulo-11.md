@@ -1,0 +1,1 @@
+11) Soporte: El funcionario de caja chica está regido además por lo establecido en el Código Municipal y en el manual de procedimientos para la contabilidad municipal en aspectos no contemplados por este Reglamento.

@@ -1,0 +1,1 @@
+9) Exclusividad: El efectivo y comprobante de caja chica serán mantenidos en caja reparada, en la cual no podrán mantenerse otros valores o documentos ajenos al fondo ya se trate de particulares o privados.

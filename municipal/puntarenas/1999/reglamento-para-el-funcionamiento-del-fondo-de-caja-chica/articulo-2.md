@@ -1,0 +1,1 @@
+2) Objetivo: Tiene como propósito, agilizar la adquisición de bienes y servicios que por su naturaleza y monto requieren trámite rápido, diferenciado del procedimiento corriente de orden de compra y pago, con cheques.

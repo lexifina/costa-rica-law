@@ -1,0 +1,1 @@
+12) Control: La Auditoría Municipal velará por el cumplimiento del presente Reglamento de Caja Chica y la sana administración del ; fondo autorizado, a través de aqueos y procedimientos de esa unidad revisora.
