@@ -1,0 +1,2 @@
+ARTÍCULO 24.-La proporción en que deba hacerse el pago de sueldos los empleados en esta clase de papel moneda, también ser señalada por el ministro de Hacienda, quien, para hacerlo, tendrá presente la conveniencia inconveniencia que de la ejecución de esta ley pueda resultar para el Tesoro público y aun para los mismos empleados.
+Dado en San José, a los veintisiete días del mes de abril de mil ochocientos cincuenta y nueve.

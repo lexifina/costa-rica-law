@@ -1,0 +1,1 @@
+ARTÍCULO 19°. -Los fondos dedicados la amortización de la deuda pública y al pago de sus intereses no se destinar n otro objeto. Los impuestos nuevamente decretados en esta Ordenanza se considerar n accidentales y cesar n tan luego como, llenado el objeto de su creación, deje de ser necesaria su exacción.

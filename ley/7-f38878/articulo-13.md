@@ -1,0 +1,1 @@
+ARTÍCULO 13°. -La Contaduría del Crédito Público liquidar y pagar todos los años, empezando desde el de 1860, el día 31 de agosto, los intereses de la parte de la deuda pública que los tiene asignados, procurando verificarlo con la mayor exactitud y religiosidad.
