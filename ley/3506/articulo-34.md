@@ -1,1 +1,0 @@
-Artículo 34.- La Contraloría General de la República no aprobará los presupuestos del Instituto, si los puestos de sus servidores no estuvieren asignados a la Ley de Salarios de la Administración Pública con la aprobación previa de la Dirección General de Servicio Civil. Igual norma regirá para la reasignación o revaloración de dichos puestos.

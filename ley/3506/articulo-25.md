@@ -1,1 +1,0 @@
-Artículo 25.- La elaboración de programas y el desarrollo de los cursos de nivelación previa, que indica el inciso c) del artículo 3º, se realizarán con la intervención del Ministerio de Educación, en lo que corresponda.
