@@ -1,0 +1,1 @@
+Transitorio II.—Los funcionarios de la Dirección de Crédito Público pasarán a formar parte de la Dirección de Tesorería Nacional y Crédito Público, mediante el proceso de reestructuración aprobado que se desarrolla en dicha dependencia con el fin de ser ubicados dentro de la estructura organizacional y ocupacional aprobada.
