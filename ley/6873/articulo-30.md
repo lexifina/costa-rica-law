@@ -1,0 +1,1 @@
+Trigésima: Las modificaciones al presente Contrato podrán hacerse por iniciativa de cualesquiera de los Miembros Regulares y requerirán la aprobación del Consejo Directivo por mayoría de dos tercios, actuando como Asamblea del CATIE en sesión especialmente destinada al efecto.

@@ -1,0 +1,1 @@
+Decimonovena: El Consejo Académico se ocupará de los asuntos relacionados con las actividades académicas del CATIE, bajo los términos y condiciones que se establezcan por el Convenio que se celebre entre el CATIE y la Universidad de Costa Rica.
