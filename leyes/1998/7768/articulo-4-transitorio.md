@@ -1,0 +1,1 @@
+TRANSITORIO IV.- En los próximos presupuestos, las instituciones y empresas públicas incluirán los recursos necesarios para cubrir los pagos resultantes de la derogación de las franquicias referidas en la disposición anterior. Esta derogación regirá a partir de la aprobación del presupuesto siguiente de cada entidad.
