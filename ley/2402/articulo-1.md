@@ -1,0 +1,7 @@
+N° 2277
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmase el artículo 65 de la Ley Orgánica del Registro Civil, el cual se leerá así:
+"Artículo 65.- La cédula de identidad llevará la firmas, o facsímiles por medio de la máquina protectora de firmas (protectographsigner), del Director del Registro y de uno de los Oficiales Mayores; y además de la persona a favor de quien se expide, lo mismo que la fotografía de ésta, marcada con el sello del Registro. Si ésta no pudiere firmar, por impedimento físico, el Director lo hará constar.
+Las autoridades o encargados de entregar cédulas llevarán un registro en el que firmará la persona que retire la cédula y si no pusiere o no pudiere, lo hará la otra persona a ruego, debiendo el titular de la cédula imprimir su huella digital (cualquier dedo de un de sus manos).
+La cédula contendrá los siguientes datos: número, nombre y apellidos del dueño de la cédula, sexo, nombres y apellidos de la padre y de la madre, estado civil, domicilio, profesión u oficio, edad, si sabe leer, escribir o al menos firmar, lugar y fecha de nacimiento y fecha de expedición".
