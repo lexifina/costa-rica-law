@@ -1,0 +1,1 @@
+Artículo 37.—Las deudas por concepto de pago del servicio de agua potable, constituirán hipoteca legal preferente sobre el respectivo inmueble, de conformidad con el artículo 70 del Código Municipal vigente.

@@ -1,0 +1,1 @@
+Artículo 17.—En ningún caso los usuarios podrán utilizar un único servicio (una paja), para dos o más unidades de ocupación. La Municipalidad procederá de oficio a instalar los servicios de agua que sean necesarios para que cada unidad de ocupación cuente con un solo servicio y viceversa.

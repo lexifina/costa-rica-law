@@ -1,0 +1,1 @@
+Artículo 15.—El solicitante deberá indicar siempre el uso que va a dar al servicio que solicita, y la Municipalidad podrá rechazar esa solicitud cuando técnica o reglamentariamente no sea posible por problemas de escasez de líquido u otros.
