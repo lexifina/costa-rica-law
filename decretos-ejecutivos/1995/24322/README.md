@@ -13,3 +13,4 @@ Reglamento de Organización del Registro Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-12 | la propia norma |
+| 2 | 1995-06-12 | SINALEVI (sin norma nombrada) |

@@ -18,8 +18,8 @@ articulo-17.md
 articulo-18.md
 articulo-19.md
 articulo-20.md
-articulo-20-2.md
 articulo-21.md
+articulo-22.md
 articulo-23.md
 articulo-24.md
 articulo-25.md
@@ -82,8 +82,8 @@ articulo-81.md
 articulo-82.md
 articulo-83.md
 articulo-84.md
-articulo-85.md
-articulo-85-2.md
+articulo-86.md
+articulo-86-2.md
 articulo-87.md
 articulo-88.md
 articulo-89.md
@@ -128,6 +128,9 @@ articulo-127.md
 articulo-128.md
 articulo-129.md
 articulo-130.md
-articulo-130-2.md
 articulo-131.md
 articulo-132.md
+articulo-133.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
