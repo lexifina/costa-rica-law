@@ -14,3 +14,4 @@ Crea Comprobante de Pago Unitario (CPU) de Trámites Migratorios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-30 | la propia norma |
+| 2 | 1990-09-05 | Decreto Ejecutivo 19904 (1990-09-05) |
