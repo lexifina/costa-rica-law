@@ -3,7 +3,8 @@ Todo contrato, además de especificar claramente su objetivo, duración, estimac
 a. El beneficiario se obliga:
 1. A informar sobre el desarrollo de sus estudios, enviando o presentando los atestados necesarios.
 2. A concluir satisfactoriamente los estudios o cursos respectivos, lo cual deberá demostrar al finalizar el mismo con los documentos y/o títulos obtenidos.
-3. A prestar sus servicios a la Municipalidad en forma regular, una vez concluido el plazo de estudios, por el tiempo concedido. En caso de subsidio, para establecer el término de la prestación de servicio, también se tomará en cuenta la erogación que fuere a hacer la Municipalidad.
+3. A prestar sus servicios a la Municipalidad en forma regular, una vez concluido el plazo de estudios, por el triple del tiempo concedido. En caso de subsidio, para establecer el término de la prestación de servicio, también sé tomará en cuenta la erogación que fuere a hacer la Municipalidad.
+(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 81 del 2 de marzo de 1995)
 4. En casos de renuncia, incumplimiento o cancelación del contrato por causa imputable al beneficiario, este reintegrará a la Municipalidad:
 4.1 Todas las sumas desembolsadas por cualquier concepto, incluyendo en las becas, el salario si hubiere gozado de ese beneficio.
 4.2 El equivalente en dinero del tiempo concedido de licencia, calculado de acuerdo con el salario al tiempo de recibir el beneficiario, y

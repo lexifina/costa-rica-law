@@ -14,3 +14,4 @@ Reglamento de becas, licencias y subsidios para estudios de graduación de la Mu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-17 | la propia norma |
+| 2 | 1995-03-02 | Reglamento municipal 81 (1995-03-02) |
