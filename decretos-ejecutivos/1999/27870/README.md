@@ -13,3 +13,4 @@ Declara de Interés Cultural Presentación Disco Ritmo de Los SantosDías 29 y 3
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-18 | la propia norma |
+| 2 | 1999-04-19 | SINALEVI (sin norma nombrada) |
