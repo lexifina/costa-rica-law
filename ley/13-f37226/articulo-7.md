@@ -1,1 +1,0 @@
-Artículo 7°-Los conductores de ferrocarril están obligados a recibir en su tren, a todo mordido de serpiente y a un acompañante suyo para ser conducidos al lugar donde pueda recibir tratamiento. Los gastos de traslado serán pagados al ferrocarril por la Subsecretaría de Higiene y Salud Pública.
