@@ -1,4 +1,4 @@
-Artículo 10.- No será aplicable lo dispuesto en el inciso c) del
+ARTICULO 10.- No será aplicable lo dispuesto en el inciso c) del
 artículo quinto y los incisos d), i) y j) del artículo noveno anterior, a
 los cirujanos dentistas extranjeros que sean contratados por
 instituciones del Estado para prestar servicios en el país, estos

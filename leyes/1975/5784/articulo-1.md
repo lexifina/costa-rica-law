@@ -1,4 +1,4 @@
-Artículo 1º.- El Colegio de Cirujanos Dentistas de Costa Rica es una
+ARTICULO 1º.- El Colegio de Cirujanos Dentistas de Costa Rica es una
 Corporación formada por todos los profesionales en Odontología,
 autorizados legalmente para ejercer esta profesión en el territorio
 nacional.

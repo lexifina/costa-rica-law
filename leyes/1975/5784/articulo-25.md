@@ -1,4 +1,4 @@
-Artículo 25.- Son atribuciones del Presidente:
+ARTICULO 25.- Son atribuciones del Presidente:
 a) Presidir las sesiones tanto de la asamblea general, como de la junta
 directiva;
 b) Proponer el orden en que deben tratarse los asuntos y dirigir los

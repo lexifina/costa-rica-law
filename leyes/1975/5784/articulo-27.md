@@ -1,4 +1,4 @@
-Artículo 27.- Son atribuciones del fiscal:
+ARTICULO 27.- Son atribuciones del fiscal:
 a) Velar por el fiel cumplimiento de estos estatutos, de los
 reglamentos, así como del movimiento económico del Colegio;
 b) Presidir las reuniones de la junta administrativa del Colegio;

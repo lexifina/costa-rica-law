@@ -1,4 +1,4 @@
-Artículo 24.- Las atribuciones de la junta directiva son:
+ARTICULO 24.- Las atribuciones de la junta directiva son:
 a) Acordar las convocatorias de la asamblea general ordinaria y de las
 asambleas extraordinarias conforme a la ley;
 b) Representar al Colegio de Cirujanos Dentistas en las asambleas

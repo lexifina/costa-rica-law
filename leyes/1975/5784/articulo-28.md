@@ -1,4 +1,4 @@
-Artículo 28.- Son atribuciones del tesorero:
+ARTICULO 28.- Son atribuciones del tesorero:
 a) Custodiar los fondos del Colegio y mantenerlos depositados en los
 bancos del Sistema Bancario Nacional;
 b) Velar por la recaudación de los ingresos del Colegio;
