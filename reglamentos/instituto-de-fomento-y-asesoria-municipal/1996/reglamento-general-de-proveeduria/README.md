@@ -14,3 +14,4 @@ Reglamento General de Proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-03 | la propia norma |
+| 2 | 1998-01-14 | Reglamento 2762 (1998-01-14) |
