@@ -1,0 +1,1 @@
+Artículo 5º—Para efectos de adecuar lo dispuesto en el presente decreto, córrase la numeración de los demás capítulos y artículos del Reglamento a la Ley General de Migración y Extranjería, Decreto Ejecutivo número 19010-G del once de mayo de mil novecientos ochenta y nueve.
