@@ -1,0 +1,1 @@
+Artículo 8º.- Los funcionarios del Servicio Exterior, deberán expedir un certificado en el que se haga constar que los inmigrantes al amparo de esta ley disfrutan de las rentas mínimas exigibles y remitirlo junto conlos documentos aprobatorios debidamente autenticados.

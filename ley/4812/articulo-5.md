@@ -1,0 +1,1 @@
+Artículo 5º.- Si el beneficiario renunciare a su condición de "Residente Pensionado" o de "Residente Rentista" dentro de los plazos señalados en los artículos 3º y 4º, deberá cancelar los impuestos de que fue eximido.
