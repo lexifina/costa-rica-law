@@ -1,0 +1,2 @@
+Art. 30-El denuncio de las 200 caballerías de tintes de Térraba, Bornea y Buenos-Aires.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones. -Palacio Nacional, en San José, a veintisiete de setiembre de mil ochocientos ochenta y dos- VICTOR GUARDIA, Presidente. -JESÚS SOLANO, Secretario. VICENTE C. SEGREDA 1er Pro-secretario. -Palacio Presidencial. San José, á veintisiete de setiembre de mil ochocientos ochenta y dos. – Ejecútese. – P. Fernández. – El Secretario de Estado en el Despacho de Fomento BERNARDO SOTO
