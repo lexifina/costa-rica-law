@@ -1,0 +1,1 @@
+ARTÍCULO 9°. -Nadie será juzgado ni penado por Jueces ni Tribunales especiales, sino por los que le sean competentes, conforme a las leyes a no ser en los casos en que éstas establezcan un enjuiciamiento especial.
