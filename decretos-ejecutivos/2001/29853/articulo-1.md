@@ -12,3 +12,4 @@ Considerando:
 5º—Que por lo anterior, resulta necesario ampliarle al IDA los límites de gasto presupuestario y efectivo para el 2002, así como adicionar una exclusión a estos límites. Por tanto,
 Decretan:
 Artículo 1°—Modifícase para el Instituto de Desarrollo Agrario, los límites de gasto para el año 2002, establecidos en el Decreto Ejecutivo N° 29511-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ¢6.525,9 millones, en ese período.
+(Modificados los límites de gasto del Instituto de Desarrollo Agrario, por el artículo 1 del decreto ejecutivo N° 30284 de 4 de abril del 2002)

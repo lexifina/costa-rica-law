@@ -14,3 +14,4 @@ Modifica los límites de gasto establecidos para el año 2002, del Instituto de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-04-04 | Decreto Ejecutivo 30284 (2002-04-04) |
