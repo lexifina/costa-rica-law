@@ -14,3 +14,4 @@ Reglamento especial que regula extracción de los materiales en los cauces de do
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-08-23 | la propia norma |
+| 2 | 1985-10-09 | Decreto Ejecutivo 16626 (1985-10-09) |
