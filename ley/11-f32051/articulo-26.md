@@ -1,1 +1,0 @@
-Artículo 26.- Toda Compañía de ferrocarril está obligada á llevar en el lugar de la República en donde tenga su domicilio, la contabilidad íntegra de todos sus negocios, ingresos y egresos, inclusas las operaciones que haga en el extranjero.
