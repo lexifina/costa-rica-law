@@ -19,3 +19,4 @@ Reglamento de Construcciones
 | 4 | 1987-10-28 | Reglamento 28 (1987-10-28) |
 | 5 | 1988-03-23 | Reglamento 65 (1988-03-23) |
 | 6 | 1991-06-12 | Reglamento 4142 (1991-06-12) |
+| 7 | 1991-06-12 | Reglamento 4230 (1992-07-30) |
