@@ -14,3 +14,4 @@ Reglamento del Plan Regulador Parcial de Playa Matapalo-Aguirre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-23 | la propia norma |
+| 2 | 1996-12-10 | Reglamento municipal 221 (1996-12-10) |

@@ -26,9 +26,10 @@ LA MUNICIPALIDAD DE AGUlRRE, AVISA POR ESTE MEDIO A LA
 COMUNIDAD DEL CANTON, LA ADOPCION DEL REGLAMENTO DE
 ZONIFICACION Y LA VIALIDAD DE PLAYA MATAPALO, QUE CONSTA
 DEL SIGUIENTE ARTICULADO.
+NOTA: Este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 221 del 10 de diciembre de 1996 y publicado en La Gaceta N° 38 del 24 de febrero de 1997, por lo que se reproduce a continuación:
 Artículo 1°-Objetivos del Reglamento:
-La Municipalidad del Cantón de Aguirre, Puntarenas, atendiendo a las disposiciones de la Ley N° 6043 y su Reglamento sobre la Zona Marítimo Terrestre, lo que refiere la Ley de Planificación Urbana en su artículo 15 con respecto a las áreas fuera de la Zona Marítimo Terrestre, dicta el presente Reglamento de Zonificación que será aplicable en toda la Zona Marítimo Terrestre.
-Complementa este Reglamento el mapa del Plan Regulador Parcial, además de todas las normas legales y reglamentarias que no se le opongan sobre desarrollo urbano y turístico.
+La Municipalidad del cantón de Aguirre, Puntarenas, atendiendo a las disposiciones de la Ley N° 6043 y su Reglamento sobre la Zona Marítimo Terrestre, lo que refiere la Ley de Planificación Urbana en su artículo 15 con respecto a las áreas fuera de la Zona Marítimo Terrestre, dicta el presente Reglamento de Zonificación que será aplicable en toda la Zona Marítimo Terrestre.
+Complementa este Reglamento el mapa del Plan Regulador Parcial, además, de todas las normas legales y reglamentarias que no se le opongan sobre Desarrollo Urbano y Turístico.
 El presente Reglamento tiene los siguientes objetivos:
 a) Proteger y conservar los recursos naturales del área.
 b) Controlar el desarrollo de infraestructura en la Zona Marítimo Terrestre.
