@@ -1,0 +1,1 @@
+Artículo 15.—Toda mejora que se introduzca se tendrá por incorporada al inmueble respectivo a la terminación del contrato por cualquier causa, sin que la Municipalidad tenga que pagar o indemnizar el costo de las mismas.

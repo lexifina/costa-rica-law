@@ -1,0 +1,8 @@
+CAPÍTULO X
+Disposiciones transitorias
+Artículo 31.—Aquellas personas físicas que en el momento de entrar en vigencia este reglamento, se encuentren registrados como arrendatarios de un local y de una actividad comercial aprobada por la municipalidad, deberán a más tardar en el plazo de un mes, formalizar contrato de arrendamiento y cumplir con lo establecido en el artículo 9, incisos c) y d), del presente reglamento.
+En el caso de personas jurídicas que en el momento de entrar en vigencia este reglamento, se encuentren registradas como arrendatarios de un local y de una actividad comercial aprobada por la municipalidad,
+deberán realizar la cesión del arrendamiento, según el procedimiento estipulado en el Artículo 18, a una persona física, quien será el nuevo adjudicatario, el cual debe cumplir con el párrafo anterior.
+En el caso de personas físicas, que en el momento de entrar en vigencia este reglamento, se encuentren registrados como arrendatarios de un local y de una actividad comercial aprobada por la municipalidad y que a la fecha tengan pendiente solicitud para realizar la cesión del
+arrendamiento, ésta será aprobada por parte del Concejo Municipal, según el procedimiento estipulado en el Artículo 18, a una persona física, quien será el nuevo adjudicatario, el cual debe cumplir con el párrafo primero de este artículo.
+El incumplimiento a cualquiera de los párrafos anteriores, según sea el caso, obliga al arrendatario a desocupar el local, después de cumplido el plazo indicado en el párrafo primero, con el fin de aplicar el Artículo 17, caso contrario se procederá por la vía judicial.

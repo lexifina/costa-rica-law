@@ -1,0 +1,1 @@
+Artículo 34.—Habrá una comisión de mercado, conformada por dos regidores del Concejo Municipal, dos inquilinos del mercado (propuestos por los arrendatarios) y dos funcionarios de la administración, cuyo nombramiento será potestad del Presidente Municipal cuando se realiza cambio de directorio.
