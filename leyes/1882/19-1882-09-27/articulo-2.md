@@ -1,0 +1,1 @@
+Art. 2° -Los Señores Figueroa y Bonilla, cuando se crean con derecho á esta recompensa, ocurrirán al Poder Ejecutivo, & quien se autoriza para adjudicarla, si del examen de la comisión que al intento nombre, resulta que el camino reúne las condiciones exigidas en el artículo anterior.
