@@ -1,0 +1,1 @@
+Artículo 12.—De los requisitos para la convocatoria. En dicha convocatoria, realizada mediante circular, se indicarán los requisitos, características del puesto, fecha límite para la recepción de solicitudes de participación, materia a examinar y tabla de ponderación de factores.

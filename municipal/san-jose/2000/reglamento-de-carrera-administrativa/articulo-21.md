@@ -1,0 +1,1 @@
+Artículo 21.—De la declaración del ganador. Una vez con el informe el Alcalde procederá a declarar al ganador mediante la comunicación formal en un plazo no mayor de 5 días hábiles, a la Dirección de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 8º—De la participación de funcionarios en plazas temporales. El procedimiento descrito en los artículos 5º, 6º y 7º, no excluye la participación de funcionarios en propiedad nombrados en plazas vacantes temporales.

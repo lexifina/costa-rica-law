@@ -1,0 +1,1 @@
+Artículo 14.—Del período para realizar las pruebas médicas o psicológicas. Luego de analizados los atestados y de valorados los factores relacionados a: récord disciplinario, antigüedad y experiencia, así como las pruebas teórico prácticas, se realizarán las pruebas psicológicas y médicas.

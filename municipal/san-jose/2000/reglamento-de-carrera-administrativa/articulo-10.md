@@ -1,0 +1,1 @@
+Artículo 10.—De la estimación de materias universitarias. Cuando un trabajador posea estudios de un nivel universitario y la carrera sea afín con el puesto al cual aspira o pretende ser reasignado, la cantidad de materias cursadas deberán equiparse de acuerdo con el programa de estudios de la carrera, de tal forma que pueda calificarse tales cursos en años.

@@ -1,0 +1,1 @@
+Artículo 22.—De la comunicación a cada participante. La Sección de Reclutamiento y Selección de Personal en un plazo no mayor a 5 días hábiles después de recibido el resultado, comunicará a cada participante, los porcentajes obtenidos por éste en cada ítem valorado, el funcionario ganador, la condición en la que queda y el respectivo agradecimiento por la participación.
