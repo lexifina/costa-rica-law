@@ -25,14 +25,14 @@ n) Mantener archivos actualizados de las leyes que ordenan erogaciones del Minis
 En materia de contabilidad general y auditoria externa:
 a) Llevar la contabilidad del Ministerio:
 b) Preparar las planillas de pago del personal del Ministerio;
-c) Llevar el control del movimiento de las distintas cuentas bancarias o depósitos en efectivo o cheques que manejen las diferentes reparticiones del .Ministerio, así como del movimiento de caja y fondos de las mismas, particularmente cuando se trate de depósitos para terceros;
+c) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
 d) Señalar normas sobre la función de intervención financiera entre los organismos que la ley señale, principalmente a las entidades públicas y privadas destinadas al bienestar social:
 e) Practicar la auditoría de los balances de gestión y otros documentos con. tales de las instituciones y servicios públicos y privados que la ley señale ocupadas en materias laboral y de bienestar social;
-f) Practicar auditoria de las operaciones generales de los almacenes, adquisiciones e inventarios y las operaciones de las dependencias del Ministerio que manejen recursos;
-g) Proponer a las diferentes dependencias los procedimientos contables necesarios para superar los defectos que en la función de auditoraje se encontraren ;
-h) Realizar auditorias generales en cada organismo o institución que solicite o indique la Dirección Nacional de Bienestar Social;
-i) Verificar el movimiento de caja en todos sus aspectos; las planillas de sueldos y salarios; las facturas pagadas o por pagar; y
-j) Efectuar auditoría de la ejecución de los diferentes programas del Ministerio de Trabajo y Bienestar Social.
+f) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
+g) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
+h) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
+i) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
+j) (Este inciso fue derogado mediante el artículo 33 del decreto ejecutivo N° 24458 del 06 de julio de 1995).
 En materia de personal:
 a) Vigilar el cumplimiento del Reglamento Interno de Trabajo;
 b) Sugerir estímulos y premios para el personal con objeto de levantar su moral administrativa;
