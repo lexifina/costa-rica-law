@@ -1,0 +1,1 @@
+Art 7.- El leproso que hiciere resistencia a la Justicia cuando le persiga, bien sea por fuga, o para recluirle, incurre por el hecho mismo en la pena de ser muerto en el acto, y los cobertores, o que de cualesquiera otra manera les den auxilio a sabiendas para fugarse, o escaparse de la Justicia, serán castigados con dos años de presidio, o cuatro de obras públicas.

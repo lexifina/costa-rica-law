@@ -1,0 +1,1 @@
+Art 6.- De entre los mismos leprosos nombrará el Jefe Político uno que haga de Juez, a cuyo cargo estarán el cuidado de esta clase de reos y castigo de los desórdenes que en el interior del Lazareto se cometan.
