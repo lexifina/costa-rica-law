@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Limitaciones al endeudamiento
+La programación macroeconómica también será utilizada por la Autoridad Presupuestaria como marco para proponer el límite al crédito del sector público no financiero. Este precisará el monto máximo del crédito que la Administración Central y las instituciones públicas no financieras podrán obtener del Sistema Bancario Nacional, elementos que se incluirán en los lineamientos de política presupuestaria. Estos límites permanecerán vigentes durante toda la extensión del ciclo presupuestario subsiguiente.

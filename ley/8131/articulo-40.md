@@ -1,0 +1,3 @@
+ARTÍCULO 40.- Apoyo en el proceso de discusión
+Para facilitar el análisis y la toma de decisiones, en el proceso de discusión del proyecto de presupuesto, la Asamblea Legislativa podrá requerir los servicios de funcionarios de otros órganos e instituciones públicas especializados en la materia.
+La Contraloría General de la República enviará, a la Asamblea Legislativa, a más tardar el 30 de setiembre del año que corresponda, un informe técnico sobre el proyecto de ley de presupuesto nacional. Para ello, el Poder Ejecutivo le remitirá, en la fecha fijada en el artículo 178 de la Constitución Política, copia del proyecto junto con la información razonable que la Asamblea haya solicitado con la debida anticipación, de conformidad con el reglamento de esta Ley.

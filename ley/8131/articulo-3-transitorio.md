@@ -1,0 +1,1 @@
+TRANSITORIO III.- La Dirección de Administración de Bienes y Contratación Administrativa dispondrá de seis meses, posteriores a la publicación de esta Ley, a fin de realizar las gestiones requeridas para asumir las nuevas funciones en materia de administración de bienes que se le asignan en la presente Ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 67.- Cuentas para manejar recursos del crédito externo
+En lo referente a los proyectos financiados con recursos del crédito externo que reciban los entes y órganos incluidos en los incisos a) y b) del artículo 1, la Tesorería Nacional podrá abrir cuentas, en colones u otras monedas, en el banco cajero general o en los cajeros auxiliares, para agilizar el recibo de estos recursos y transferirlos a las unidades ejecutoras respectivas.
