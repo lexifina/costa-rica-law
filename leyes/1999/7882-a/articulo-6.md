@@ -1,5 +1,1 @@
-ARTÍCULO 6.- Para efectos de Costa Rica, el acuerdo que tomen las
-Partes según el artículo 3.04 inciso 3, y las decisiones adoptadas por el
-Consejo Conjunto de Administración conforme al artículo 18.01, equivaldrán
-al instrumento referido en el artículo 121 inciso 4, párrafo segundo de la
-Constitución Política de la República de Costa Rica.
+ARTÍCULO 6.- Para efectos de Costa Rica, el acuerdo que tomen las Partes según el artículo 3.04 inciso 3, y las decisiones adoptadas por el Consejo Conjunto de Administración conforme al artículo 18.01, equivaldrán al instrumento referido en el artículo 121 inciso 4, párrafo segundo de la Constitución Política de la República de Costa Rica.
