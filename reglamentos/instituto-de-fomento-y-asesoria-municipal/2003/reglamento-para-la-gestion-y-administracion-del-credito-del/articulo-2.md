@@ -1,1 +1,0 @@
-Artículo 2º—Las operaciones crediticias del IFAM se ajustarán a las condiciones que se establecen en este documento, tomando en cuenta lo fijado por la Política de Crédito del IFAM o acuerdos específicos de la Junta Directiva.

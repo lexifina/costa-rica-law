@@ -1,1 +1,0 @@
-Artículo 28.—El documento de préstamo forma parte del contrato que firma el prestatario con el IFAM. La unidad administrativa encargada de los asuntos jurídicos elaborará el contrato para la formalización del crédito.

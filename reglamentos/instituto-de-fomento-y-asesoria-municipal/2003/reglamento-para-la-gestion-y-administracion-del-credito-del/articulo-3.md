@@ -1,1 +1,0 @@
-Artículo 3º—Los créditos se otorgarán y administrarán según lo establecido en la Política de Crédito, la sistematización del crédito, en el Plan de Inversiones anual aprobados por la Junta Directiva del Instituto, así como en las necesidades de los entes municipales a criterio de este Órgano Colegiado.

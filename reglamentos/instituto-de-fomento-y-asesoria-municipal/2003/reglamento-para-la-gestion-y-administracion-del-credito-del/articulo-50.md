@@ -1,1 +1,0 @@
-Artículo 50.—Si en un proyecto de varias etapas, se interrumpe la ejecución por un período de tres meses consecutivos a partir del último desembolso, sin que el prestatario justifique dicha situación, el proyecto se dará por terminado en la última etapa concluida, o en proceso cuando se trate de la primera etapa, liquidándose el préstamo por lo desembolsado a esa fecha.

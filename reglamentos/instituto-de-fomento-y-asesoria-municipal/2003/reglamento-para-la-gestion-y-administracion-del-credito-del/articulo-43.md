@@ -1,4 +1,0 @@
-Artículo 43.—En relación con las contrataciones administrativas de las municipalidades se procederá de la siguiente manera:
-a) El IFAM se abstendrá de intervenir directamente en los procesos de contratación administrativa.
-b) En casos excepcionales, a solicitud escrita del alcalde, previo acuerdo del concejo municipal y con la autorización de las autoridades superiores del IFAM, las dependencias administradoras del crédito podrán hacerse cargo de tramitar y concluir el respectivo proceso de contratación, para lo cual se cobrará los costos respectivos.
-c) En los procesos de contratación para la adquisición o reconstrucción de maquinaria y equipo para mantenimiento de la red vial, la municipalidad, si lo considera necesario, contratará los servicios profesionales del caso, en cuya circunstancia podrá incluir ese costo dentro del presupuesto total del proyecto.

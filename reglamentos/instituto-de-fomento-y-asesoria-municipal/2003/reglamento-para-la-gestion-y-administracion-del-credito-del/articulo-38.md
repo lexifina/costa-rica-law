@@ -1,1 +1,0 @@
-Artículo 38.—Si una vez refrendado el contrato de préstamo por la Contraloría General de la República, transcurre un período de 60 días naturales sin que el prestatario inicie los trámites para la contratación de la obra o adquisición del bien, el crédito será rescindido por la Junta Directiva.

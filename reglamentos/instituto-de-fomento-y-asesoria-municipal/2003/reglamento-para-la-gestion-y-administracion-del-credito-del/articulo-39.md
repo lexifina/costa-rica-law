@@ -1,1 +1,0 @@
-Artículo 39.—Una vez iniciadas las contrataciones por parte de la municipalidad, las dependencias administradoras del crédito del IFAM, dependiendo del proyecto, podrán solicitar a ésta que abra una cuenta corriente exclusiva para el proyecto; en ella se depositará el dinero correspondiente a los desembolsos, según el avance físico del proyecto.
