@@ -1,1 +1,0 @@
-Artículo 12.—Reutilización de los títulos. A criterio de la Tesorería Nacional, los títulos que hayan sido devueltos por la Procuraduría General de la República, y que aún se mantengan vigentes, podrán utilizarse nuevamente como garantía en procesos posteriores que así señale el ente Procurador, siguiendo los mismos requisitos señalados en artículos anteriores.

@@ -1,1 +1,0 @@
-Artículo 10.—Transmisión. Mediante endoso del título, el Procurador General de la República, entregará a la autoridad judicial respectiva, la garantía solicitada para hacer frente al respectivo embargo preventivo.
