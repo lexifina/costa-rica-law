@@ -1,0 +1,1 @@
+Articulo 29.— La Sección de Proveeduría tendrá la facultad para fiscalizar la existencia de los materiales en los diferentes departamentos de la Federación y podrá realizar inventarios cuando lo estime conveniente.

@@ -1,0 +1,1 @@
+Articulo 16.— La Comisión de Contratación Administrativa, estará integrada por e! Director Ejecutivo, quien tendrá la Coordinación de la misma, el Proveedor General, el Asesor Legal, y el Jefe de Departamento o Sección involucrado.

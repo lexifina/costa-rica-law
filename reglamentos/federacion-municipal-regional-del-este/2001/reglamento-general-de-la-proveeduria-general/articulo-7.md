@@ -1,0 +1,1 @@
+Articulo 7°—Las solicitudes de bienes y servicios deberán presentarse a la sección de Proveeduría por parte del Departamento para su trámite y éstas deben estar de acuerdo al programa de Compras de su Departamento.

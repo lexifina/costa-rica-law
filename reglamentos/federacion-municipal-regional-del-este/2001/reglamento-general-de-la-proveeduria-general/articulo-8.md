@@ -1,0 +1,1 @@
+Articulo 8°— La Sección de Proveeduría no dará trámite a las solicitudes de bienes y servicios que no rindan los requisitos mínimos estipulados en el articulo sexto. En todo caso la Sección de Proveeduría deberá devolver al Departamento solicitante dentro del día hábil siguiente los documentos incompletos, haciendo notar la razón por la cual se devuelven.

@@ -1,0 +1,1 @@
+Artículo 11. —Únicamente podrán ser tramitados, mediante compra directa, aquellos bienes y servicios que cumplan con lo estipulado en el articulo anterior, para las cuales se deberán realizar cotizaciones previas a la emisión de la orden de compra, de acuerdo a los procesos establecidos que en ningún caso sean inferior a tres.

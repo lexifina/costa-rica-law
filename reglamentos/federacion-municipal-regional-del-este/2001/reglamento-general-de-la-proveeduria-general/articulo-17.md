@@ -1,0 +1,1 @@
+Artículo 17.—Corresponderá a la sección de Proveeduría encausar y dirigir los trámites internos, para la obtención de los informes técnicos, jurídicos u otros necesarios, en relación con todas las Licitaciones Públicas y Privadas que deben someterse a la Comisión de Contratación Administrativa.

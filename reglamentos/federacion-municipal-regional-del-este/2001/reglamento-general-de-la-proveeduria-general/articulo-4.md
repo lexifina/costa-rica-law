@@ -1,0 +1,1 @@
+Articulo 4°—Antes de iniciar las compras de un nuevo periodo económico, la Proveeduría conjuntamente con los diferentes departamentos, deberá confeccionar un programa anual de compras, el cual deberá ser acorde con el presupuesto ordinario anual de la Federación.

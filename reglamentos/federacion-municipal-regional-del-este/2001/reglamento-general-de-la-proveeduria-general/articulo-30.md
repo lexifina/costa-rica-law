@@ -1,0 +1,1 @@
+Articulo 30. —Todo lo expuesto en el presente reglamento se regirá por las disposiciones de la Ley General de la Administración Financiera de la República y por el Reglamento de la Contratación Administrativa.

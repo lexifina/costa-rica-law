@@ -1,0 +1,1 @@
+Articulo 27.—En el caso de la mercadería que es recibida en la bodega, el encargado enviará a la Sección de Proveeduría, la factura junto con la orden de compra para su registro, para luego trasladar ambos a la Dirección Ejecutiva para el trámite de pago correspondiente.

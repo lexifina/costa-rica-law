@@ -1,0 +1,1 @@
+Articulo 5°—Cuando la Proveeduría no curse a alguna solicitud por cualquier causa, deberá comunicar a la dependencia solicitante la razón de su rechazo, dentro del término de cinco días hábiles a partir de la recepción de la solicitud.
