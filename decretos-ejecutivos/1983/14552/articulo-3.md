@@ -1,0 +1,1 @@
+ARTICULO 3º.-Los interesados deberán cancelar el importe previamente a su solicitud, ya que para la recepción de éstos es necesario acompañar copia del recibo debidamente cancelado. El pago del derecho mencionado no implica obligatoriedad de parte del Ministerio de Salud en cuanto al otorgamiento o no del permiso, dependiendo éste de las condiciones de sanidad que prevalezcan.
