@@ -1,3 +1,2 @@
-Artículo 41.— En toda solicitud de certificación, el interesado deberá presentar:
-Solicitud escrita en papel sellado de ¢ 1.00 firmada por él, especificando lo que desea que se le certifique.
-Además deberá indicar el lugar en el cual está ubicada la propiedad a cuyo servicio se refiere la certificación.
+Artículo 41.—En toda solicitud de certificación, el interesado deberá presentar petición escrita en papel común tamaño oficio, con reintegro de ¢12,50 (doce colones cincuenta céntimos) en timbres fiscales, debidamente firmada por el petente, especificando lo que desea que se le certifique. Además deberá indicar el lugar en el cual está ubicada la propiedad a cuyo servicio se refiere la certificación y sus datos de identificación.
+(Así reformado por acuerdo de Junta Directiva en su sesión N° 25 del 12 de julio del 2004)
