@@ -19,7 +19,8 @@ l) Comprobar el tiempo empleado en visitas a las instituciones aseguradoras;
 U) Prestar su colaboración a las comisiones de salud ocupacional del trabajo y otros similares que se integren;
 m) Cumplir las disposiciones internas que les incumba sin perjuicio de ejercer los recursos pertinentes en defensa de los derechos que estime lesionados;
 n) Mantener al Departamento de Relaciones con el Personal, informado sobre domicilio y demás pormenores necesarios para mantener actualizado su expediente personal;
-ñ) Acatar y hacer cumplir, en su caso, las medidas que tiendan a prevenir accidentes de trabajo o enfermedades profesionales;
+ñ) Acatar y hacer cumplir en su caso las medidas que tienden a prevenir riesgos del trabajo, entre otros incendios, accidentes y enfermedades, etc.
+(Así reformado inciso ñ) mediante sesión 2403 celebrada el 6 de mayo de 1987)
 o) Marcar su tarjeta de control de asistencia, cuando esté obligado a ello;
 p) Notificar a su jefe inmediato lo antes posible, cuando esté imposibilitado para asistir al trabajo, a más tardar dentro del segundo día de ausencia;
 q) Laborar jornada extraordinaria, hasta por el máximo legal, cuando sea requerido al efecto;
