@@ -1,0 +1,1 @@
+Artículo 4°-Que el artículo 27 de la Ley Forestal N° 7575 otorga a las municipalidades la potestad de otorgar permisos de corta de árboles en terrenos de uso agropecuario y sin bosque, por lo que nos vemos en la obligación de reglamentar internamente en la Municipalidad dicha Ley, para brindar ayuda para el fiel cumplimiento de los fines de la Ley Forestal.

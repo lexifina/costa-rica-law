@@ -1,0 +1,1 @@
+Artículo 18.-Lo no contemplado en este Reglamento Forestal Interno de esta Municipalidad se regirá por la Ley Forestal N° 7575 y su Reglamento, Código Municipal, Ley de Administración Pública, Ley del Ambiente y Código de Minería.

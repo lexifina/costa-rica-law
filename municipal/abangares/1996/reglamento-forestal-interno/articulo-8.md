@@ -1,0 +1,1 @@
+Artículo 8°-Si el procedimiento anterior se ha llevado a cabo ante la Administración Forestal del estado, sólo existirá un control cruzado con la Administración Forestal Municipal, con el fin de actualización del Catastro Forestal Municipal.

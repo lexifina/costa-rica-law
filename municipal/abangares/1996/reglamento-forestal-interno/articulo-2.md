@@ -1,0 +1,1 @@
+Artículo 2°-Que para llevar a la práctica la citada Ley Forestal y con base en el principio de seguridad jurídica que rige los actos de la administración pública, es necesario reglamentar los diferentes artículos establecidos en ella

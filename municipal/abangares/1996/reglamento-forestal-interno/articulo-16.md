@@ -1,0 +1,1 @@
+Artículo 16.-Con el fin de no entrabar la agilización de éstos permisos, mientras la Municipalidad pueda contar con el funcionario que desempeñará el cargo de Administrador Forestal, los permisos los concederá el Concejo Municipal, bajo recomendación del Ejecutivo Municipal y en lo sucesivo en ausencia temporal del Administrador Forestal, de igual forma se procederá.

@@ -1,0 +1,2 @@
+Artículo 14.-Queda establecido en este Reglamento que el Concejo Municipal de Abangares solo concederá permisos para transportar madera por caminos vecinales públicos y de reparación municipal del 1° de diciembre al 30 de abril de cada año y sólo se podrá conceder prórroga cuando a solicitud del interesado, el Concejo Municipal lo acuerde, con votación de mayoría calificada.
+La solicitud para uso de camino deberá venir firmada por el dueño de la propiedad y presentar la cédula de identidad.

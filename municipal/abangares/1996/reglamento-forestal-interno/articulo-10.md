@@ -1,0 +1,1 @@
+Artículo 10.-La Administración Forestal Municipal, el Administrador Forestal y los funcionarios que bajo esta Administración Forestal Municipal existan, tendrán el carácter de autoridad de policía, como tales y deberán denunciar ante las autoridades competentes, las infracciones que se cometan a la Ley Forestal y a su Reglamento, lo mismo que al presente Reglamento Interno.

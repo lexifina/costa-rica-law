@@ -1,0 +1,1 @@
+Artículo 6°-Bajo la Administración Forestal Municipal se establecerá un catastro forestal cantonal con el fin de determinar un registro cantonal de todas las propiedades cuyo objetivo será regular las áreas comprendidas dentro del patrimonio natural del estado y las que voluntariamente se sometan al régimen forestal.

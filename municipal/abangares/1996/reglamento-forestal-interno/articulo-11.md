@@ -1,0 +1,1 @@
+Artículo 11.-Las autoridades de policía estarán obligadas a I colaborar con los funcionarios de la Administración Forestal Municipal, I cada vez que ellos la requieran para cumplir, cabalmente, con las funciones y los deberes que la Ley Forestal, su Reglamento y este Reglamento impone.
