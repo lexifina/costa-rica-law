@@ -1,1 +1,0 @@
-Artículo 3º.- La violación a la disposición establecida en este decreto ejecutivo, será sancionada con las penas señaladas en la Ley de Sanidad Vegetal, Ley General de Salud, Reglamentos y otras leyes conexas vigentes.
