@@ -1,0 +1,15 @@
+Nº 30914-G
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las facultades establecidas en los artículos 9º y 140 incisos 3), 18), y 20), y 146 de la Constitución Política; artículos 4º, 11 y 25 inciso 1), de la Ley Nº 6227, del 2 de mayo de 1978, Ley General de la Administración Pública, y Ley Nº 7138, del 24 de noviembre de 1989.
+Considerando:
+1º—Que el artículo 60 de la Ley Nº 7138 del 24 de noviembre de 1989, establece la potestad del Poder Ejecutivo de remunerar las dietas de los miembros de las juntas directivas de las instituciones autónomas y demás juntas directivas nombradas por el Poder Ejecutivo, cuyo monto debe ser aumentado anualmente, de conformidad con el índice de inflación que determina el Banco Central de Costa Rica.
+2º—Que jurídicamente es posible integrar y armonizar la misma ley para establecerla como parámetro con el objeto de fijar el monto de las dietas que les corresponde devengar a los miembros del Consejo Nacional de Migración.
+3º—Que los miembros del Consejo Nacional de Migración designados por el Poder Ejecutivo, cumplen una función de interés público para el mejoramiento de las políticas migratorias del país.
+4º—Que mediante Decreto Ejecutivo Nº 29478-G publicado en el Diario Oficial La Gaceta 111 del 11 de junio del 2001, se estableció el monto de las dietas por sesiones ordinarias y extraordinarias de los miembros del Consejo Nacional de Migración, en la suma de quince mil quinientos cuarenta y un colones cincuenta y dos céntimos (¢15.541,52), con base en el índice de inflación acumulada del año 2000, establecido por el Área de Estadística y Censos del Ministerio de Economía, Industria y Comercio.
+5º—Que para actualizar la fijación del monto de las dietas que corresponde reconocer a los miembros del Consejo Nacional de Migración durante el año 2002, se hace necesario ajustar la variación del índice de precios al Consumidor del año 2001, para lo cual el Instituto Nacional de Estadística y Censos hizo constar que la variación porcentual acumulada en el período correspondiente del 1º de enero al 31 de diciembre del 2001 (12 meses), con base enero 1995=100, fue de 10,96 %.
+6º—Que con base en la indicada variación, el monto de cada sesión del Consejo Nacional de Migración para el 2002, se estima en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢ 17.244,87).
+7º—Que el pago de las dietas está sujeto al presupuesto de cada institución y a la asistencia a las correspondientes sesiones, según lo establece el artículo 6° del Reglamento a la Ley General de Migración y Extranjería, Decreto Ejecutivo Nº 19010-G, del 11 de mayo de 1989. Por tanto,
+Decretan:
+Artículo 1º—Se fijan las dietas que devengarán los miembros del Consejo Nacional de Migración por las sesiones ordinarias y extraordinarias que se celebren durante el año 2002, en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢17.244,87).

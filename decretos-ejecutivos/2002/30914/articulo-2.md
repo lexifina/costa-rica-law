@@ -1,0 +1,1 @@
+Artículo 2º—El número de sesiones remuneradas por mes, se establecerá de acuerdo con lo estipulado en el articulo 6° del Reglamento a la Ley General de Migración y Extranjería, Decreto Ejecutivo Nº 19010-G.
