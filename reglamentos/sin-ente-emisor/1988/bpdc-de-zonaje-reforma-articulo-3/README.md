@@ -13,3 +13,4 @@ BPDC: De Zonaje. Reforma artículo 3º
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-10 | la propia norma |
+| 2 | 2002-02-19 | Reglamento 3963 (2002-02-19) |
