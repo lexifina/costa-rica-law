@@ -14,3 +14,4 @@ Designan Consejo Público Provisional de Transporte (Modalidad Taxi)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-21 | la propia norma |
+| 2 | 2000-03-21 | Ley 8 |
