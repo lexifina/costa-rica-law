@@ -1,0 +1,1 @@
+Artículo 7°—Cualquier inferencia o extrapolación de los resultados de análisis, obtenidos de ítemes que hayan sido seleccionados estadísticamente de un lote o de una producción, deberán incluirse en un dictamen separado.

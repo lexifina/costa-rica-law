@@ -1,0 +1,1 @@
+Artículo 3°—Las correcciones o adiciones al informe de análisis después de su edición deben hacerse solamente mediante un documento adicional titulado apropiadamente, por ejemplo Anexo/Enmienda al informe de análisis, número de serie (u otro medio de identificación) y deberá cumplir con los requisitos correspondientes a los párrafos anteriores.
