@@ -13,3 +13,4 @@ Crea y Reglamenta Comisión Vigilancia Departamento Registro y ControlSustancias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-30 | la propia norma |
+| 2 | 1992-01-23 | Decreto Ejecutivo 21027 (1992-01-23) |
