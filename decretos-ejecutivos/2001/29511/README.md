@@ -29,3 +29,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 14 | 2002-01-01 | Decreto Ejecutivo 30000 (2001-11-22) |
 | 15 | 2002-01-01 | Decreto Ejecutivo 30034 (2001-11-22) |
 | 16 | 2002-01-01 | Decreto Ejecutivo 30025 (2001-11-27) |
+| 17 | 2002-01-01 | Decreto Ejecutivo 30076 (2001-12-12) |

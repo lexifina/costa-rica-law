@@ -122,3 +122,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo del Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica , por el artículo 1 del Decreto Ejecutivo N° 30000 de 22 de Noviembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto Nacional de las Mujeres , por el artículo 1 del Decreto Ejecutivo N° 30034 de 22 de Noviembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Instituto Costarricense de Turismo , por el artículo 1 del Decreto Ejecutivo N° 30025 de 27 de Noviembre del 2001)
+(Modificado el límite de gasto presupuestario y efectivo del Teatro Melico Salazar, por el artículo 1 del Decreto Ejecutivo N° 30076 de 12 de diciembre del 2001)
