@@ -1,0 +1,1 @@
+Artículo 5°.- Posteriormente al artículo 48, inclúyase el capítulo X. Otras Disposiciones. También varíase la numeración en forma consecutiva de los artículo posteriores a éste, hasta finalizar el decreto, de forma que el último numeral sea el 57.

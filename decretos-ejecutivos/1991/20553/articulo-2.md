@@ -1,0 +1,3 @@
+Artículo 2°.- Eliminar de decreto ejecutivo N° 20284-H del 20 de febrero de 1991, las normas incluidas en los artículo 18 y 25, para incorporarlas en un capítulo específico del mencionado cuerpo normativo, el cual a la letra dice:
+Artículo 18.- No se reconocerá el incentivo contemplado en el artículo anterior, a aquellos profesionales que quienes el trabajo cotidiano del puesto, sea el de coordinador o instructor de programas de capacitación.
+Artículo 25.- La experiencia docente en instituciones de enseñanza, no se reconocerá en el caso de los docentes cuando sea la índole de su trabajo. El tiempo laborado, se considerará como experiencia profesional en instituciones del Estado debiéndose cumplir con los literales a), b) y c) del artículo 19 del presente reglamento.

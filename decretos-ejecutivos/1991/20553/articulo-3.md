@@ -1,0 +1,1 @@
+Artículo 3°.- Varíase la numeración de los artículo del decreto ejecutivo N° 20284-H a partir del numeral 19 ( que deberá especificarse como 18), hasta terminar en el capítulo VIII, con el artículo 42.
