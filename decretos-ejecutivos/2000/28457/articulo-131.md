@@ -1,0 +1,1 @@
+ARTICULO 131 Criterios de aprobación del bachillerato Los postulantes que alcancen, según el procedimiento cálculo descrito en el artículo 130 anterior, una calificación final igual o superior a 70, se tendrán por aprobados en la respectiva asignatura.

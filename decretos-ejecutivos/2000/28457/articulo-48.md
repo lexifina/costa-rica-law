@@ -1,0 +1,1 @@
+ARTICULO 48 Del reconocimiento de cursos Se podrán reconocer, con arreglo a estas normas, cursos cuya temática y contenidos fueren equivalentes a los de la oferta educativa Académica y Técnica, excepto en el caso de aquellos alumnos que hubieran sido reprobados en los colegios del plan tradicional.

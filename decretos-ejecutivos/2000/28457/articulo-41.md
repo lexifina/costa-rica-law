@@ -1,0 +1,1 @@
+CAPITULO II Disposiciones especiales de evaluación en los colegios nocturnos ARTICULO 41 De las disposiciones especiales para colegios nocturnos Sin perjuicio de todo lo establecido en el Capítulo I de este Reglamento, en los Colegios Nocturnos, tanto académicos como técnicos, la evaluación estar sujeta, adicionalmente, a las normas especiales dispuestas en este Capítulo.

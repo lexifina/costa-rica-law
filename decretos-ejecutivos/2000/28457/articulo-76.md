@@ -1,0 +1,1 @@
+ARTICULO 76 De las condiciones para aplicar acciones correctivas La aplicación de las acciones correctivas al estudiante se har tomando como referencia el cumplimiento de los deberes que se señalan en el artículo 58 de este reglamento y en el Reglamento Interno de la Institución y de acuerdo con la tipificación señalada en el artículo anterior.

@@ -1,0 +1,1 @@
+ARTICULO 27 De la definición del concepto El concepto constituye el juicio profesional valorativo y global que emite el docente con respecto al desempeño y actitud que demuestra el estudiante durante el proceso de aprendizaje en cada una de las asignaturas. En esta calificación no deben considerarse la puntualidad y la asistencia.

@@ -1,0 +1,1 @@
+ARTICULO 75 De la tipificación de las faltas Las faltas de conducta que cometan los estudiantes se tipificarán como muy leves, leves, graves, muy graves y gravísimas, para todos los efectos de este reglamento.

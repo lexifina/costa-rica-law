@@ -1,0 +1,1 @@
+ARTICULO 3 Del concepto de evaluación de los aprendizajes La evaluación de los aprendizajes es un proceso de emisión de juicios de valor que realiza el docente, con base en mediciones y descripciones cualitativas, para calificar los aprendizajes alcanzados por los estudiantes.

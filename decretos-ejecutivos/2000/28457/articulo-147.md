@@ -1,0 +1,1 @@
+ARTICULO 147 Del envío de información por parte del director de la institución Ser obligación del Director de cada Institución remitir, en su oportunidad, en la forma y mediante el procedimiento que indique la Dirección del Centro de Control de Calidad, toda la información que se requiera para la adecuada administración del proceso.
