@@ -1,0 +1,1 @@
+Articulo 3°-El Ministerio de Recursos Naturales, Energía y Minas respetara en todos sus efectos las concesiones otorgadas en la zona por la Municipalidad de Nandayure, anteriores a la vigencia del presente decreto.
