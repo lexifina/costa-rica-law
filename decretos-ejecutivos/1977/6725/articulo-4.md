@@ -1,0 +1,2 @@
+Artículo 4°.- El Banco Central de Costa Rica girará directamente, cada mes, un dozavo de la suma establecida en el Presupuesto Nacional a cada institución de educación superior, con cargo al “fondo Especial para el Financiamiento de la Educación Superior”. El giro deberá entregarse entre el 20 y 25 de cada mes.
+La Tesorería Nacional pondrá a disposición del Canco Central de Costa Rica, con cargo al “Fondo General del Gobierno”, las sumas requeridas para completar el dozavo correspondiente, si fuera necesario.

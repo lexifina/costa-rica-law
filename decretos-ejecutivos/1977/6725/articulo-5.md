@@ -1,0 +1,1 @@
+Artículo 5°.- El Banco Central de Costa Rica hará mensualmente una liquidación del “Fondo Especial para el Financiamiento de la Educación Superior”, con el objeto de reintegrar a la Tesorería Nacional, los montos suplidos con cargo al “Fondo General del Gobierno”.

@@ -1,0 +1,1 @@
+Artículo 2°.- A más tardar el 31 de julio de cada año, el Ministerio de Hacienda comunicará a la Comisión de Enlace, creada por Decreto Ejecutivo número 4437-E de 23 de diciembre de 1974, el monto de los recursos a que se refiere el artículo 1° anterior, para que ésta proceda a su distribución de conformidad con lo establecido en el inciso b) del artículo 3° de ese decreto.

@@ -1,0 +1,2 @@
+Artículo Transitorio. El “Fondo Especial” constituido en el Presupuesto Nacional correspondiente a 1977 será girado por el Banco Central en dozavos, de acuerdo con la distribución institucional aprobada por la Comisión de Enlace, en su sesión celebrada el 21 de octubre de 1976: Universidad de Costa Rica 66.04%, Universidad Nacional 22.52% e Instituto Tecnológico de Costa Rica 11.44 %. Todo lo demás estará regulado por lo que dispone este decreto.
+Dado en la Casa Presidencial.- San José, a los veintiséis días del mes de enero de mil novecientos setenta y siete.

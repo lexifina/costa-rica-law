@@ -1,0 +1,1 @@
+Artículo 7°.- Las ampliaciones al Presupuesto Nacional que involucren variaciones a las rentas fiscales que constituya el “Fondo Especial”, estarán sujetas a las mismas regulaciones que establece este Reglamento.
