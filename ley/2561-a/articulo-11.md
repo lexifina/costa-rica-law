@@ -1,27 +1,7 @@
 ARTICULO 11
-1. Sólo podrán estar sujetos al trabajo forzoso u obligatorio los
-adultos aptos del sexo masculino cuya edad no sea inferior a dieciocho
-años ni superior a cuarenta y cinco. Salvo para las categorías de
-trabajo y previstas en el artículo 10 del presente Convenio, deberán
-observarse las limitaciones y condiciones siguientes:
-a) reconocimiento previo, siempre que sea posible, por un médico
-designado por la administración, para comprobar la ausencia de toda
-enfermedad contagiosa y la aptitud física de los interesados para
-soportar el trabajo impuesto y las condiciones en que habrá de
-realizarse;
-b) exención del personal escolar, alumnos y profesores, así como del
-personal administrativo en general;
-c) mantenimiento, en cada comunidad, del número de hombres adultos y
-aptos indispensables para la vida familiar y social;
+1. Sólo podrán estar sujetos al trabajo forzoso u obligatorio los adultos aptos del sexo masculino cuya edad no sea inferior a dieciocho años ni superior a cuarenta y cinco. Salvo para las categorías de trabajo y previstas en el artículo 10 del presente Convenio, deberán observarse las limitaciones y condiciones siguientes:
+a) reconocimiento previo, siempre que sea posible, por un médico designado por la administración, para comprobar la ausencia de toda enfermedad contagiosa y la aptitud física de los interesados para soportar el trabajo impuesto y las condiciones en que habrá de realizarse;
+b) exención del personal escolar, alumnos y profesores, así como del personal administrativo en general;
+c) mantenimiento, en cada comunidad, del número de hombres adultos y aptos indispensables para la vida familiar y social;
 d) respeto de los vínculos conyugales y familiares.
-2. A los efectos del apartado c) del párrafo 1 de este artículo, la
-reglamentación prevista en el artículo 23 del presente Convenio fijará la
-proporción de individuos de la población permanente masculina y apta que
-podrá ser objeto de un reclutamiento determinado, sin que esta proporción
-pueda, en ningún caso, exceder del 25 por ciento de esta población. Al
-fijar esa proporción, las autoridades competentes deberán tener en cuenta
-la densidad de población, el desarrollo social y físico de la misma; la
-época del año y el estado de los trabajos que van a efectuar los
-interesados en su localidad por su propia cuenta; de una manera general,
-las autoridades deberán respetar las necesidades económicas y sociales de
-la vida normal de la comunidad interesada.
+2. A los efectos del apartado c) del párrafo 1 de este artículo, la reglamentación prevista en el artículo 23 del presente Convenio fijará la proporción de individuos de la población permanente masculina y apta que podrá ser objeto de un reclutamiento determinado, sin que esta proporción pueda, en ningún caso, exceder del 25 por ciento de esta población. Al fijar esa proporción, las autoridades competentes deberán tener en cuenta la densidad de población, el desarrollo social y físico de la misma; la época del año y el estado de los trabajos que van a efectuar los interesados en su localidad por su propia cuenta; de una manera general, las autoridades deberán respetar las necesidades económicas y sociales de la vida normal de la comunidad interesada.
