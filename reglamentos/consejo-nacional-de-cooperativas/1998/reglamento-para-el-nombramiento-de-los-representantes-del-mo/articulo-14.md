@@ -1,0 +1,2 @@
+Artículo 14.—De conformidad con el artículo 13 del Reglamento para la integración de la Asamblea de Trabajadores del Banco Popular, este reglamento rige, exclusivamente, para la designación de los delegados del Movimiento Cooperativo a esta Asamblea, que se integrará en el mes de agosto de 1998.
+Rige a partir de su aprobación el 29 de junio de 1998, en la sesión N° 160-98 del Plenario del CONACOOP y será publicado en el Diario Oficial “La Gaceta”.

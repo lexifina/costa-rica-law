@@ -1,0 +1,1 @@
+Artículo 11.—Los delegados correspondientes al sector Autogestión serán designados de acuerdo con el procedimiento especial definido mediante el Decreto N° 27078-MP-MTSS de las 10 horas del 25 de mayo de 1998.

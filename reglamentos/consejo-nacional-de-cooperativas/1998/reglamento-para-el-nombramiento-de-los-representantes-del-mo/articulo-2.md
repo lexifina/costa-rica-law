@@ -1,0 +1,1 @@
+Artículo 2.—El nombramiento de los representantes que le corresponda designar al Movimiento Cooperativo de acuerdo con lo establecido en el Reglamento para la Integración de la Asamblea de Trabajadores del Banco Popular y de Desarrollo Comunal, se elegirán de las listas que propongan las diferentes cooperativas con derecho a designar candidatos.

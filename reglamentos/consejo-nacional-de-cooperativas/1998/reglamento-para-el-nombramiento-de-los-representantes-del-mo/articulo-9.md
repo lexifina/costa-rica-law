@@ -1,0 +1,1 @@
+Artículo 9.—Los candidatos que propongan las cooperativas deberán ser mayores de edad y figurar como copropietarios del Banco al momento de su elección y de la acreditación ante la Comisión para la Integración de la Asamblea. Este último requisito no será aplicable a los candidatos del sector de autogestión.

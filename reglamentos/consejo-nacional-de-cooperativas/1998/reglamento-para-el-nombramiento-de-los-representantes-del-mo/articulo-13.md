@@ -1,0 +1,1 @@
+Artículo 13.—Los recursos de revocatoria de los interesados sobre la asignación de cuotas de candidatos a las cooperativas y sobre el nombramiento de los representantes propietarios y suplentes serán resueltas en definitiva por el Consejo Nacional de Cooperativas.
