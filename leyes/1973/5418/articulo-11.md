@@ -1,0 +1,2 @@
+Artículo 11.- Esta ley rige a partir de su publicación.
+TRANSITORIO.- A partir de la vigencia de esta ley, las asociaciones deportivas no se inscribirán en el Registro Público de la Propiedad y las ya inscritas en él deberán reinscribirse conforme a esta ley dentro de los dos años siguientes, quedando sin valor legal la antigua inscripción en el citado Registro después de la expiración de esos dos años.
