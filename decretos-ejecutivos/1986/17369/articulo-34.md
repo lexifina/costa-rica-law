@@ -1,0 +1,1 @@
+Artículo 34.—Al cumplir diez años de servicio los funcionarios de la carrera podrán solicitar su retiro temporal hasta por cuatro años y quedarán durante ese tiempo en disponibilidad y sin goce de sueldo. Si no solicitaren su reincorporación antes de vencerse dicho plazo, quedarán automáticamente excluidos del Servicio.

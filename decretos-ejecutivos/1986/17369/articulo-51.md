@@ -1,0 +1,1 @@
+Artículo 51.—El uso indebido de los privilegios diplomáticos para fines lucrativos será falta grave que dará lugar a la aplicación de las sanciones indicadas en el artículo 37 del Estatuto del Servicio Exterior y puede ameritar la suspensión y hasta la destitución del funcionario, según sea la gravedad de la infracción.

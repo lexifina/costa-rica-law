@@ -1,0 +1,3 @@
+Dispocisiones Generales
+Artículo 71.—Los jefes de misiones diplomáticas y consulares deberán transmitir con la periodicidad que el Ministerio de Relaciones Exteriores determine, informes sobre la marcha de las labores de la representación, que incluyan elementos como las relaciones económicas y comerciales y posibilidad de incrementarlas, la política interna y la política externa del Estado receptor incluyendo evaluaciones y pronósticos que puedan ser de interés para el Gobierno de Costa Rica.
+Las misiones consulares deberán en sus informes enfatizar las posibilidades de comercio, inversiones y las posibilidades para la promoción de las exportaciones hacia el Estado receptor.

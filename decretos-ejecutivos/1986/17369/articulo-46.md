@@ -1,0 +1,3 @@
+Artículo 46.—Se preferirá al candidato que sea costarricense sobre cualquier otra nacionalidad, y en su defecto a un nacional de un tercer estado antes que al nacional del Estado receptor.
+Se requerirá que el candidato hable y escriba el idioma español, así como el del lugar de destino. En caso de que no hable el idioma español, el candidato deberá comprometerse a contratar los servicios de una persona que lo hable y escriba correctamente, cuyo nombre y calidades comunicará al Ministerio.
+El funcionario ad honorem deberá residir en el lugar de la sede de la oficina y deberá gozar de prestigio y tener buenas relaciones en la circunscripción para la que se le designa.

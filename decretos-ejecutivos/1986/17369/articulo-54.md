@@ -1,0 +1,3 @@
+CAPITULO NOVENO
+Deberes, prohibiciones y medidas disciplinarias
+Artículo 54.—El incumplimiento de los deberes enunciados en el artículo 34 o la infracción a las prohibiciones del artículo 35 del Estatuto del Servicio Exterior y las otras establecidas en este Reglamento, dará lugar a la aplicación de las medidas disciplinarias que se establecen en este capítulo y en el capítulo cuarto del Estatuto del Servicio Exterior.

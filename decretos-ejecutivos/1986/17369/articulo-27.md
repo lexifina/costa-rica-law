@@ -1,0 +1,1 @@
+Artículo 27.—El escalafón será utilizado para decidir cuáles funcionarios en cada categoría tendrán derecho a ascensos una vez que se produzcan vacantes en el grado y categoría inmediatamente superior, y se aplicará siguiendo un criterio de prelación y con arreglo a las disposiciones de los artículos 17 y 18 del Estatuto.

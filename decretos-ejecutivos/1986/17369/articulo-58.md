@@ -1,0 +1,3 @@
+Artículo 58.—Los funcionarios subalternos de las misiones diplomáticas y consulares no podrán dirigirle al Ministerio de Relaciones Exteriores para el despacho de cualquier asunto tanto de índole oficial como personal, a no ser a través del jefe de la misión en que sirven, o con su previo y expreso consentimiento .
+La transgresión de la anterior disposición se considerará falta que ameritará la imposición de las medidas disciplinarias de amonestación, y en caso de reincidencia, la de suspensión o destitución.
+De igual manera, el Ministerio de Relaciones Exteriores se abstendrá de todo contacto directo con los funcionarios subalternos de las misiones diplomáticas y consulares, sin que el mismo sea de conocimiento del jefe de misión.

@@ -1,0 +1,1 @@
+Artículo 63.—El jefe de misión deberá enviar, trimestralmente, a la auditoría interna del Ministerio de Relaciones Exteriores, una prestación de cuentas sobre la utilización de las partidas asignadas a su misión para gastos de cancillería.

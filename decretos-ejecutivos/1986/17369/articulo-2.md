@@ -1,0 +1,1 @@
+Artículo 2°—El Servicio Exterior de la República comprenderá indistintamente el Servicio Diplomático, el Servicio Consular y Servicio Interno y estará integrado por funcionarios de carrera. También formarán parte del Servicio Exterior el personal en comisión y el personal técnico y auxiliar requerido conforme lo autorizan los capítulos sexto y sétimo del Estatuto.

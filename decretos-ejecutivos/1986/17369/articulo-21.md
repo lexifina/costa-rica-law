@@ -1,0 +1,1 @@
+Artículo 21.—Ningún funcionario de la carrera podrá ser comisionado para puestos en el exterior antes de haber completado dos años de trabajo en el Servicio Interno del Ministerio, salvo que haya inopia.

@@ -1,0 +1,3 @@
+Artículo 55.—Los funcionarios del Servicio Exterior, antes de asumir su función o cargo, deberán jurar o prometer ejercer con toda lealtad y discreción las funciones que se le han encomendado, cumplir sus obligaciones acatando las disposiciones del Estatuto del Servicio Exterior y su Reglamento, y regir su conducta teniendo únicamente en cuenta a los intereses del país.
+Este juramento o compromiso deberá ser prestado oralmente ante el Ministro de Relaciones Exteriores o su representante.
+El acto de juramento será registrado por escrito y firmado por el funcionario y el Ministro de Relaciones Exteriores o su representante.

@@ -1,0 +1,1 @@
+Artículo 65.—Las medidas disciplinarias aplicables a los funcionarios del Servicio Exterior son amonestación verbal o escrita, suspensión y destitución. Las amonestaciones verbales y escritas las impondrá directamente el Ministro de Relaciones Exteriores.

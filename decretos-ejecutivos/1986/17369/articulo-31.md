@@ -1,0 +1,1 @@
+Artículo 31.—La División de Recursos Humanos del Ministerio llevará un control de los períodos de vacaciones de los funcionarios en el exterior, los cuales gozarán de un mes de vacaciones por cada año de servicio cumplido. Los funcionarios dei Servicio Interno gozarán de sus vacaciones de acuerdo con lo que dispone la Ley de Servicio Civil.

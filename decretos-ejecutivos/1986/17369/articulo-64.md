@@ -1,0 +1,1 @@
+Artículo 64.—Además de lo establecido en el artículo anterior, deberá enviarse anualmente cada fin de año al Ministerio de Relaciones Exteriores un inventario de los bienes muebles y equipo propiedad de las misiones diplomáticas y consulares con las explicaciones pertinentes en caso de diferencia con el inventario anterior.

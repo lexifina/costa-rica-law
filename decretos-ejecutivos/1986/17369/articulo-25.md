@@ -1,0 +1,1 @@
+Artículo 25.—Se exceptúan del proceso calificatorio a los embajadores que desempeñan cargos de la exclusiva confianza del Poder Ejecutivo y que hayan sido nombrados de conformidad con las disposiciones del artículo 10 del Estatuto del Servicio Exterior.

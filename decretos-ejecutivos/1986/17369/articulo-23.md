@@ -1,0 +1,1 @@
+Artículo 23.—El proceso calificatorio abarcará el período de trabajo comprendido entre el 1° de octubre de un año y el 30 de setiembre del año siguiente y se circunscribirá exclusivamente a las actividades desempeñadas en el cargo por los funcionarios en dicho lapso.

@@ -1,0 +1,2 @@
+Artículo 47.—Los funcionarios ad honorem, de conformidad, con lo que dispone el Decreto 13751-RE de 14 de julio de 1982, no tendrán derecho a pasaporte diplomático o de servicio.
+En casos excepcionales y a criterio exclusivo del Ministro de Relaciones Exteriores se podrá otorgar a los funcionarios ad honorem pasaporte de servicio, siempre y cuando ese documento de viaje sea indispensable para el mejor cumplimiento de sus funciones.

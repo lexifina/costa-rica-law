@@ -1,0 +1,2 @@
+Artículo 28.—Competerá a la Comisión Calificadora someter a la consideración del Ministro de Relaciones Exteriores las disposiciones reglamentarias del proceso de calificación.
+El Reglamento deberá contener las normas para el proceso de calificación e indicar en cada caso cuál es el funcionario calificador directo y el funcionario calificador superior, los conceptos para elaborar las calificaciones, así como los recursos que quepan en cuanto al proceso de calificación y la autoridad que debe conocer de dichos recursos.

@@ -1,0 +1,1 @@
+Artículo 45.—Antes de nombrar funcionarios honorarios, el Ministerio de Relaciones Exteriores deberá requerir el parecer favorable de la Comisión Calificadora para tal designación e indicar a ésta las ventajas y conveniencias que para el país derivarán de tal nombramiento. A esta información se deberá adicionar el curriculum vitae del candidato.

@@ -1,0 +1,2 @@
+Artículo 5°—Las misiones diplomáticas y consulares dependerán directamente del Ministerio de Relaciones Exteriores y sólo a éste corresponderá darles o transmitirles órdenes o instrucciones.
+Cuando funcionarios de otros órganos de la Administración Pública estén destinados a misiones diplomáticas u oficinas consulares, deberán coordinar sus actividades con los jefes de misión de Costa Rica en el país en que están acreditados .

@@ -1,0 +1,1 @@
+Articulo 19.—Los candidatos que hayan sido aprobados en los exámenes serán posteriormente entrevistados por los miembros de la Comisión Calificadora. Dicha entrevista tendrá una nota la cual será adicionada a las calificaciones de los exámenes para establecer el promedio final del concurso.

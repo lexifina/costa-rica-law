@@ -1,0 +1,1 @@
+Artículo 33.—El Ministerio de Relaciones Exteriores concederá licencias extraordinarias en casos urgentes de enfermedad o fuerza mayor. Los jefes de Misión podrán concederlas a sus funcionarios subalternos hasta por quince días, dando inmediato aviso al Ministerio con explicación de los motivos que las justifiquen.

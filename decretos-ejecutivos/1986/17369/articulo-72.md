@@ -1,0 +1,1 @@
+Artículo 72.—Los certificados de estudios obtenidos en el Estado receptor por los hijos de los funcionarios diplomáticos y consulares que correspondan a los que se otorgan en Costa Rica en la enseñanza básica, media o universitaria, serán válidos en el país para todos los efectos legales, previo reconocimiento de las autoridades pertinentes.

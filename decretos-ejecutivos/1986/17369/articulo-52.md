@@ -1,0 +1,1 @@
+Artículo 52.—Los privilegios e inmunidades que otorgue el Estado receptor a los funcionarios diplomáticos de Costa Rica no autoriza a éstos a ampararse a esas inmunidades para ignorar o incumplir las leyes y reglamentos del país en donde están acreditados.

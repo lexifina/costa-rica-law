@@ -1,0 +1,1 @@
+Artículo 10.—Cualquier miembro de la Comisión Calificadora podrá solicitar al Departamento de Recursos Humanos del Ministerio que le presente los documentos que prueben cualquier información, así como la ampliación de los datos suministrados por los interesados.

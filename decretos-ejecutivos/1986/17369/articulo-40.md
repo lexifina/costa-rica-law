@@ -1,0 +1,2 @@
+Artículo 40.—En la medida en que el Presupuesto Nacional lo permita, los sueldos de los funcionarios del Servicio Exterior se ajustarán en un porcentaje equivalente al coeficiente de costo de vida por lugar de destino, de conformidad con las tablas elaboradas por la Organización de las Naciones Unidas o por cualquier otro índice de igual idoneidad.
+Estos sobresueldos por lugar de destino no podrán ser tomados en cuenta en forma alguna para efectos tributarios ni para el cálculo de pensiones.

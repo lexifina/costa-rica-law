@@ -1,0 +1,1 @@
+Artículo 24.—El proceso calificatorio incluirá a los funcionarios que no tengan las condiciones para poder ser considerados funcionarios de la carrera y que hayan sido nombrados de conformidad con lo dispuesto en el capítulo sexto del estatuto.
