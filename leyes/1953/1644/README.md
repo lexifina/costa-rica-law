@@ -1,6 +1,6 @@
 # Ley Orgánica del Sistema Bancario Nacional
 
-Ley N° 1644 del 1953-09-26. SINALEVI, ficha 9925: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9925&param2=113771&param3=1>.
+Ley N° 1644 del 1953-09-26. SINALEVI, ficha 9925: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9925&param2=114866&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -13,3 +13,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 44 | 1995-11-27 | SINALEVI | 1968-08-22 |
 | 7 de 44 | 1995-11-27 | Ley 4623 | 1970-08-05 |
 | 8 de 44 | 1995-11-27 | SINALEVI | 1970-10-20 |
+| 9 de 44 | 1995-11-27 | Ley 4861 | 1971-10-19 |
