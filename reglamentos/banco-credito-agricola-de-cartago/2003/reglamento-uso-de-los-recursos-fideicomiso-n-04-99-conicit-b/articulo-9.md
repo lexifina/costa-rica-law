@@ -1,0 +1,1 @@
+Artículo 9º—Fideicomisario: es la persona que tiene derecho a recibir los beneficios del fideicomiso. En este caso serán los usuarios que soliciten financiamiento al fideicomiso Nº 04-99 CONICIT/BANCRÉDITO.

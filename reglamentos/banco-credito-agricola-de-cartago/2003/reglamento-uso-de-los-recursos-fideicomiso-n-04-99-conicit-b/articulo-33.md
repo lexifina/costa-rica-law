@@ -1,0 +1,1 @@
+Artículo 33.—En los casos en que los estudios de crédito realizados por el Banco Crédito Agrícola de Cartago no declaren al individuo como sujeto de crédito, el estudio con la justificación del caso se remitirá al Comité Especial de Crédito para su resolución.

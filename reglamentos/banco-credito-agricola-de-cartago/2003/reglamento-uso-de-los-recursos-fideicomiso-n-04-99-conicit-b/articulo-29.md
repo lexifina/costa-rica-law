@@ -1,0 +1,1 @@
+Artículo 29.—Cuando sea pertinente se establecerán planes de desembolsos detallando las actividades que a juicio del CONICIT deberá de cumplir satisfactoriamente el prestatario previo a cada desembolso.

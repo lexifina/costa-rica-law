@@ -1,0 +1,1 @@
+Artículo 7º—Bonificación de becas: se refiere a aquellas becas-crédito que el CONICIT ha asignado y el becario ha disfrutado, pero que podrá ser condonada total o parcialmente por esta institución de acuerdo a lo establecido en el Reglamento de Bonificación de Becas.

@@ -1,0 +1,1 @@
+Artículo 40.—El Banco Crédito Agrícola de Cartago permitirá al CONICIT o a quien éste autorice (Banco Interamericano de Desarrollo, Contraloría General de la República, empresas auditoras y otro), revisar la documentación correspondiente a la administración del fideicomiso en el momento en que se le solicite.

@@ -1,0 +1,1 @@
+Artículo 35.—Para el caso de las garantías prendarias el contrato correspondiente de prenda será renovado como mínimo cada dos años, conforme a las disposiciones pertinentes del Código de Comercio, registrándose en dichos periodos con todos los costos resultantes a cargo del prestatario.

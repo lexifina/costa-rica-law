@@ -1,0 +1,1 @@
+Artículo 19.—Los Reglamentos mencionados anteriormente definen las personas físicas o jurídicas elegibles, los criterios de elegibilidad, las condiciones generales de financiamiento, los requisitos de idoneidad, las obligaciones, los aspectos operativos y las áreas prioritarias de financiamiento.

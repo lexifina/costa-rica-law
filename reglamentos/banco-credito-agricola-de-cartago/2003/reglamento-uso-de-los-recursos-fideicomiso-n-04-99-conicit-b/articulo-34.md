@@ -1,0 +1,1 @@
+Artículo 34.—Se librará de toda responsabilidad al Banco Crédito Agrícola de Cartago en los casos en que el Comité Especial de Crédito decida otorgar un crédito a una persona física o jurídica en la que el Banco Crédito Agrícola de Cartago haya procedido según lo establece este Reglamento.

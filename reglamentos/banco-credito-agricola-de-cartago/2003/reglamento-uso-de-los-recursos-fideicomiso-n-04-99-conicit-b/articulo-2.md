@@ -1,0 +1,1 @@
+Artículo 2º—El objetivo de este Reglamento es establecer los términos y las condiciones que normarán la utilización de los recursos del citado fondo, explicitando las actividades del mismo, sus modalidades operativas y definir las funciones y responsabilidades del CONICIT y del Banco Crédito Agrícola de Cartago.

@@ -1,0 +1,1 @@
+Artículo 32.—En los casos en que el Comité Especial de crédito considere pertinente, librará de la responsabilidad de garantías hipotecarias presentadas y en su lugar se solicitarán garantías prendarias o de otra índole, sobre los bienes financiados.

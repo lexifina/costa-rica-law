@@ -1,0 +1,1 @@
+Artículo 22.—Para la presentación de las solicitudes, todo interesado deberá dirigirse al CONICIT; a la Dirección de Proyectos (cuando sean proyectos de investigación y desarrollo) o a la Área de Desarrollo Científico y Tecnológico (becas de postgrado y cursos cortos) y llenar los documentos respectivos.

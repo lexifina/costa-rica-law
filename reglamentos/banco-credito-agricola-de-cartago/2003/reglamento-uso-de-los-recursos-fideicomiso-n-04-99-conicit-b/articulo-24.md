@@ -1,0 +1,1 @@
+Artículo 24.—En el Banco Crédito Agrícola de Cartago, se atenderán los solicitantes que previamente CONICIT le haya remitido a fin de que se realicen los estudios del sujeto de crédito correspondientes. El Banco Crédito Agrícola de Cartago enviará al CONICIT, un dictamen sobre la elegibilidad o no desde el punto de vista crediticio de cada solicitud presentada.

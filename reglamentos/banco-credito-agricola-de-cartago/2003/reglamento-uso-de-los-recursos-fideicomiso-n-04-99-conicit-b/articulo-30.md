@@ -1,0 +1,1 @@
+Artículo 30.—El Banco Crédito Agrícola de Cartago previa notificación del CONICIT, tiene la obligación de suspender los desembolsos del préstamo y cobrar el monto adeudado si el beneficiario no cumpliera con las obligaciones contraídas.

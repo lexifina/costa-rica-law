@@ -1,0 +1,1 @@
+Artículo 8º—Capacitación de recursos humanos especializados: consiste en un conjunto de acciones e inversiones para fortalecer la capacidad de los recursos humanos en los centros de investigación y en las empresas productivas, en áreas prioritarias establecidas en el Contrato de Préstamo 544/OC-CR CONICIT/BID Subprograma A.

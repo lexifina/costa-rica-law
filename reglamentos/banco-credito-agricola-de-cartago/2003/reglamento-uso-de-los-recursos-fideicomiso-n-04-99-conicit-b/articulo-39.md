@@ -1,0 +1,1 @@
+Artículo 39.—El Área de Administración y Finanzas del CONICIT será el canal oficial mediante el cual se mantendrá informado sobre las decisiones que afecten la administración y manejo de los fondos fideicometidos.

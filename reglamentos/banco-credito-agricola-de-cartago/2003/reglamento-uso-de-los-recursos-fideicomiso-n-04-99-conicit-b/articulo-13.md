@@ -1,0 +1,1 @@
+Artículo 13º.—Préstamo Fondo Desarrollo Tecnológico: consiste en un crédito parcial que se otorga para proyectos de investigación y desarrollo que sean de interés directo de entidades productoras de bienes y servicios tanto de carácter privado como público.

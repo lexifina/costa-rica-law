@@ -1,0 +1,1 @@
+Artículo 26.—En el caso en que el Banco Crédito Agrícola de Cartago declare que el solicitante no es sujeto de crédito o que las garantías presentadas no son satisfactorias el Comité Especial de Crédito podrá proceder según se señala en los artículos 32, 33, 34 y 35 del presente Reglamento o bien denegar la solicitud.

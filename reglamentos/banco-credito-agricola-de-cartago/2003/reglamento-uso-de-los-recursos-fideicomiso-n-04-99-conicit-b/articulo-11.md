@@ -1,0 +1,1 @@
+Artículo 11º.—Fideicomitente: es la persona física o jurídica que trasmite la propiedad de bienes o derechos a un fiduciario para que los administre, de acuerdo a un convenio constitutivo. El CONICIT será el Fideicomitente.

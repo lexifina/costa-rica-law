@@ -1,0 +1,1 @@
+Artículo 12º.—Fiduciario: es la persona física o jurídica, con capacidad de adquirir derechos y contraer obligaciones. En el caso del Banco Crédito Agrícola de Cartago éste deberá poseer una estructura constitutiva que debe expresamente capacitarlo para recibir fideicomisos.

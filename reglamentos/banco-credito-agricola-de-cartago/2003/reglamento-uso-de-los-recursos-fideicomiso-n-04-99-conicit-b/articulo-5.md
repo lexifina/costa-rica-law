@@ -1,0 +1,1 @@
+Artículo 5º—De acuerdo con la cláusula 6.02 del mencionado contrato de préstamo, este fondo será para conceder préstamos y financiamiento para proyectos de investigación y desarrollo, otorgar becas-crédito para estudios de postgrado y adiestramiento en cursos cortos.

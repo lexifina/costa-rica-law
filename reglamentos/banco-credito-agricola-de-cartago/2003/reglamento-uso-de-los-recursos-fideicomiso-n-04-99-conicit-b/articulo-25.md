@@ -1,0 +1,1 @@
+Artículo 25.—Competerá al Comité Especial de Crédito, según se establece en la cláusula tercera del Contrato de Fideicomiso Nº 04-99, o a la Secretaría Ejecutiva aprobar las solicitudes de crédito, disponiendo para ello de toda la información necesaria (estudios técnicos realizados en el CONICIT y los estudios de crédito realizados por el Banco Crédito Agrícola de Cartago).
