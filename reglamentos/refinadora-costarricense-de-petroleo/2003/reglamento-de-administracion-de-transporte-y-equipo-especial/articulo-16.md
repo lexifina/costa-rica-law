@@ -1,0 +1,5 @@
+CAPÍTULO V
+De la utilización de los vehículos y equipo especial y equipo que se remolque
+Artículo 16.—Utilización del servicio de transporte y equipo especial y equipo que se remolque.
+a. Los vehículos que RECOPE asigna para servicio de transporte propios o alquilados deben ser utilizados únicamente por personas autorizadas para ello, exclusivamente en el desempeño de labores propias de la Empresa y las características de dicho vehículo deben ajustarse a las condiciones de operación a que es sometido. Corresponde tanto a la dependencia que tiene vehículos a su servicio, a las unidades administrativas desconcentradas de transporte como al Departamento de Administración de Servicios Generales por medio del Área de Transportes velar por el acatamiento de esta disposición.
+b. Los equipos especiales y equipo que se remolque propios o alquilados que RECOPE asigna para servicios operativos deben ser utilizados por personas autorizadas para ello, exclusivamente en labores únicas de la Empresa, excepto en aquellos casos en que el proveedor es el operador del equipo. Las Unidades operativas deben velar por el acatamiento de esta disposición.

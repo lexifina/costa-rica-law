@@ -1,0 +1,3 @@
+Artículo 14.—Autorización de servicio de transporte y uso de equipo especial y equipo que se remolque en horas y días no hábiles.
+a. Los vehículos de uso administrativo sólo podrán circular en horas y días que no correspondan al horario normal de RECOPE, en circunstancias especiales y con autorización especial escrita del jerarca de la unidad encargada del control de los vehículos y del superior jerárquico de la unidad solicitante.
+b. Los equipos especiales y de equipo que se remolque se podrán usar en horas y días no hábiles en circunstancias especiales con la autorización respectiva del encargado de la Unidad Operativa.

@@ -1,0 +1,1 @@
+Artículo 36.—Ocultamiento de daños causados al vehículo y equipo especial. El conductor que con conocimiento de un daño causado al vehículo y equipo especial propiedades o personas lo oculte, debe asumir la responsabilidad legal que por ello pueda imputársele.

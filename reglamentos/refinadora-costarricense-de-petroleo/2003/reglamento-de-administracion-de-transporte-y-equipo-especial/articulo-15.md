@@ -1,0 +1,3 @@
+Artículo 15.—Autorización del servicio de transporte y uso de equipo especial y equipo que se remolque en casos de urgencia.
+a. En casos de urgencia comprobada, el funcionario de mayor jerarquía presente está facultado para autorizar la salida del vehículo y debe comunicar las justificaciones pertinentes, a su superior inmediato y al Departamento de Administración de Servicios Generales, por medio del Área de Transportes y a la “unidad administrativa desconcentrada de transportes”, durante los siguientes cinco días hábiles posteriores a la fecha de inicio de la urgencia.
+b. Los equipos especiales y equipo que se remolque se podrán usar sin autorización en el momento en que se presente una urgencia.

@@ -1,0 +1,1 @@
+Artículo 19.—Control de ingreso y salida de vehículos y equipos especiales y equipos que se remolque. En todas las instalaciones de RECOPE se deben colocar sistemas para controlar el ingreso y salida de vehículos y equipo especial y equipos que se remolque y el control debe ser realizado por el Departamento de Seguridad y Vigilancia.

@@ -1,0 +1,1 @@
+Artículo 32.—Uso del “permiso para conducir”. Los funcionarios deben conducir únicamente vehículos y equipo especial según el tipo de “licencia de conducir” indicado en su “permiso para conducir extendido por el Ministerio de Obras Públicas y Transportes y RECOPE.
