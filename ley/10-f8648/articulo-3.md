@@ -1,0 +1,1 @@
+Art. 3°-En las aprehensiones que no verifique el Inspector General de Hacienda, hará sus veces para los efectos del artículo anterior, el Jefe del Resguardo aprehensor; y en los casos que ocurrieren fuera de la jurisdicción de esta Provincia, el Gobernador respectivo hará el nombramiento de los peritos que deban asociarse al Inspector ó Jefe del Resguardo, en su caso,
