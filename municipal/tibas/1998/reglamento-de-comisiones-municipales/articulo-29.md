@@ -1,0 +1,1 @@
+Artículo 29.—Los funcionarios y empleados municipales deberán brindar a las comisiones en forma directa toda la información que estas les soliciten en procura de una investigación o estudio de una moción o un proyecto que les hubiese remitido el Concejo.

@@ -1,0 +1,1 @@
+Artículo 16. —El quórum de las sesiones ordinarias y extraordinarias se formará con la presencia de la mitad más uno de sus miembros, y los acuerdos se lomarán válidamente cuando tengan una votación favorable de por lo menos la mitad más uno de los presentes.

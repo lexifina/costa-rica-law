@@ -1,0 +1,1 @@
+Artículo 5°—En cada comisión habrá dos Regidores Propietarios y Suplentes. Podrán también integrar estas Comisiones los Síndicos Propietarios y Suplentes, empleados de la Municipalidad y munícipes del Cantón.

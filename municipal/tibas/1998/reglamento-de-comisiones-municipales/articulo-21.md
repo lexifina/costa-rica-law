@@ -1,0 +1,1 @@
+Artículo 21. -Los comparecientes a una comisión podrán hacer uso de la palabra por un termino no mayor de quince minutos. Por vía de excepción, cuando el asunto amerite más tiempo, el presidente someterá a la comisión la ampliación del plazo hasta por otros quince minutos.

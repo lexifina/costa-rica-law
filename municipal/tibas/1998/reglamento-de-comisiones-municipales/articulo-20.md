@@ -1,0 +1,1 @@
+Artículo 20.—Las comisiones podrán conceder audiencia a los ciudadanos que requieran tratar sobre un asunto en conocimiento de la comisión. Asimismo la comisión podrá llamar a cualquier ciudadano que pueda aportar elementos de juicio sobre un asunto que la comisión esté conociendo.

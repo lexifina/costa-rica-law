@@ -1,0 +1,1 @@
+Artículo 7°—Los miembros de las comisiones que no sean Regidores o Síndicos serán reportados al Presidente del Concejo cuando no asistan injustificadamente a tres sesiones continuas o cinco alternas, en tal caso el Presídeme Municipal les instará a regresar, si tal cosa no ocurriere podrá sustituirlos informando al Concejo para que conste en actas.
