@@ -1,2 +1,2 @@
-Artículo 8°—En la primera página de cada uno de los libros, el Tribunal pondrá una razón suscrita por su Presidente en que se haga constar el objeto a que esté destinado, el número de páginas que contenga y de hallarse todos los folios sellados y ninguno de ellos manchado, escrito o inutilizado.
-Los asientos comenzarán a extenderse en la segunda página de los libros.
+Articulo 8°—En la primera página de cada uno de los libros, el rector del Registro Civil pondrá una razón suscrita en que se haga con el objeto a que esté destinado, el número de páginas que contenga y hallarse todos los folios sellados y ninguno de ellos manchado, escrito o inutilizado. Los asientos comenzarán a extenderse en la segunda página de los libros.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 2 del 18 de julio de 1968)
