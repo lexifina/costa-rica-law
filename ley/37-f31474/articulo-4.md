@@ -1,0 +1,2 @@
+ARTÍCULO 4°
+De los restantes siete vapores, cuatro también vendrán directamente de Europa, pero haciendo escala en los puertos de su acostumbrada ruta en la América del Sur, y los otros tres viajes serán hechos por uno ó más vapores de la misma compañía, que correrán entre Centro América y los vapores Valparaíso, conexionando en este último puerto con los vapores del "Kosmos" que salgan de Europa en las fechas correspondientes.

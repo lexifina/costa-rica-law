@@ -1,0 +1,2 @@
+ARTÍCULO 12.
+Los vapores de la Compañía "Kosmos" tendrán iguales preferencias y derechos que los otorgados á la Compañía "Pacific Mail", con respecto á que sus vapores sean recibidos á cualquiera hora del día en los puertos de la República donde deben tocar según este contrato, y á ser despachados en la hora señalada para la salida tanto del día como de la noche, en días de trabajo y feriados; y á fin de evitarles demora, el Gobierno dará sus órdenes á los capitanes de los puertos para que los reciban y despachen con la mayor eficacia y prontitud.
