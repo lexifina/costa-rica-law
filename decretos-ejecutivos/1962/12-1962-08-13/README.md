@@ -14,3 +14,4 @@ Reforma Reglamento General de Patronatos y Junta Directiva de Protección Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1962-08-21 | la propia norma |
+| 2 | 1980-02-27 | Decreto Ejecutivo 11276 (1980-02-27) |
