@@ -1,2 +1,0 @@
-Artículo 9°-El nombramiento de los 20 representantes del sindicalismo no confederado corresponde a una asamblea integrada por los secretarios generales -o sus representantes- de los sindicatos que según certificación del Ministerio de Trabajo no pertenezcan a las confederaciones sindicales existentes.
-El Ministerio de Trabajo convocará a cada sindicato y coordinará la asamblea, comunicando su resultado a la Secretaría de la Junta Directiva del Banco Popular.

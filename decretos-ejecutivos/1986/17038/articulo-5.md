@@ -1,1 +1,0 @@
-Artículo 5°-El nombramiento de los 20 representantes del movimiento solídarista corresponderá a una asamblea de asociaciones solidaristas convocada para ese efecto, la cual será supervisada por el Ministerio de Trabajo y deberá quedar debidamente acreditada en acta notarial.

@@ -1,1 +1,0 @@
-Artículo 10.-EI nombramiento de los 10 representantes del sector artesanal corresponde a una asamblea convocada al efecto por la Dirección General de Pequeña Industria y Artesanía del Ministerio de Industria, organismo que coordinará los procedimientos correspondientes.
