@@ -1,1 +1,0 @@
-Artículo 8°—La Caja colaborará en todo lo posible con las labores de los Comités, facilitando el local para que celebren sus reuniones, la papelería, el equipo y demás condiciones que requiere su mejor trabajo.

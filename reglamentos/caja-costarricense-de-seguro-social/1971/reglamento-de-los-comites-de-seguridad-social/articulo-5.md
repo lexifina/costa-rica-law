@@ -1,2 +1,0 @@
-Artículo 5°—Estos Comités serán integrados por 6 miembros propietarios y 6 suplentes, distribuidos cada dos miembros entre los trabajadores, los patronos y los funcionarios del Estado. En el caso de los trabajadores y de los patronos, la Caja dará preferencia al proceder a su nombramiento, a las proposiciones que formulen los grupos organizados que los representen.
-El quórum para sesionar será de la mitad más uno. En las reuniones los suplentes sólo tendrán voz, salvo que sustituyan a los propietarios.

@@ -1,1 +1,0 @@
-Artículo 10.—La primera reunión que celebre el Comité después de su integración debe efectuarse dentro de los quince días posteriores. En ella se elegirá el Presidente y el Secretario, los que durarán dos años en sus puestos.

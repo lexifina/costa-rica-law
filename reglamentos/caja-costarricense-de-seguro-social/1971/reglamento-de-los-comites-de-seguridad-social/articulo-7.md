@@ -1,1 +1,0 @@
-Artículo 7°—Si alguno de los miembros no desempeñare su cargo con eficiencia a juicio del Comité o no concurriera con la frecuencia que éste considerara apropiada a las reuniones, será reemplazado definitivamente por el suplente del sector que representa, quien a su vez será escogido y nombrado dentro de ese mismo sector.

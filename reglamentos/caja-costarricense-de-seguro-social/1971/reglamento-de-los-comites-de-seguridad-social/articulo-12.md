@@ -1,1 +1,0 @@
-Artículo 12.—Los cargos de propietarios y suplentes en los Comités serán adhonórem. En sus gestiones tendrán independencia de criterio, el que será respetado , por la Caja, en la misma forma en que los Comités deberán respetar el orden jerárquico, funcional y administrativo y las normas legales y reglamentarias que la rigen.
