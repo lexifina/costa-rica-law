@@ -13,3 +13,4 @@ Reforma Ley Oficialización Premios Anuales Periodismo y Teatro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-08-24 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
