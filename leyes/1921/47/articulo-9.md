@@ -1,0 +1,2 @@
+IX
+Los concesionarios pagarán al Gobierno dos centavos oro americano como tasa por palabra, por el servicio telegráfico de tierra de todos los mensajes trasmitidos por y para dichas estaciones radiográficas a las redes telegráficas o telefónicas del Gobierno. Dichos mensajes serán entregados por las oficinas del Gobierno en los lugares de la República donde no haya estaciones radiográficas instaladas y aun donde haya tales estaciones si los concesionarios desearen que dichas redes telegráficas o telefónicas efectúen la entrega de esos mensajes.
