@@ -1,0 +1,1 @@
+Artículo 4º—La información que se da en la fórmula respectiva deberá ser fidedigna. Si se compruebe lo contrario automáticamente se desechará la solicitud, la Comisión de Educación estará en plena autoridad para verificar la información cuando lo considere.

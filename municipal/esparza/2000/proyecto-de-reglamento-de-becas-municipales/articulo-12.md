@@ -1,0 +1,1 @@
+Artículo 12.—El estudiante que goce del beneficio de beca deberá entregar a la Secretaría Municipal, trimestralmente una copia de sus nota o reporte de calificaciones, además de una certificación o constancia emitida por el Departamento de Orientación o Registro de cada institución.

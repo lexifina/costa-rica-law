@@ -1,0 +1,1 @@
+Artículo 5º—El Alcalde Municipal deberá incluir en el presupuesto anual ordinario así como en los extraordinarios los recursos necesarios para dar cumplimiento al programa de becas municipales tomando en cuenta la recomendación que la Comisión de Educación emita, todo lo anterior después de la debida aprobación del Concejo Municipal.
