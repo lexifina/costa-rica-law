@@ -1,0 +1,1 @@
+Artículo 4°—La Comisión examinará los antecedentes y méritos del candidato para determinar si los mismos han sido realizados en el campo de acción señalado y si son significativos para ostentar tal galardón.

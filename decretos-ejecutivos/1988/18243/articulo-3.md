@@ -1,0 +1,1 @@
+Artículo 3°—La apertura para la recepción de candidaturas se publicará a través de los principales medios de comunicación colectiva, en la última semana del mes de mayo y durante el mes de junio, por iniciativa del Instituto del Café de Costa Rica.
