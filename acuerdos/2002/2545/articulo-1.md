@@ -1,0 +1,10 @@
+MINISTERIO DE GOBERNACIÓN Y POLICÍA Y SEGURIDAD PÚBLICA
+Nº2545 San José, 12 de junio del 2002
+LA PRIMERA VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA DE LA REPUBLICA Y EL MINISTRO DE GOBERNACIÓN Y POLICIA Y SEGURIDAD PUBLICA.
+Con fundamento en las atribuciones conferidas por los artículos 40, 146 de la Constitución Política y el artículo 27 inciso 1) de la Ley General de la Administración Pública y el artículo 8 de la Ley 3859 sobre el Desarrollo de la Comunidad.
+ACUERDAN:
+Artículo 1°—Integrar el Concejo Nacional de Desarrollo de la comunidad de la siguiente forma:
+1°—Designaba la señora Roxana Blanco Flores, portadora de la cédula de identidad número uno-seiscientos doce-trescientos trece, como representante del Ministro de Gobernación y Policía ante el Consejo Nacional de Desarrollo Comunal, del 7 de junio del 2002 al 7 de mayo del 2006.
+2°—Designar a los señores Jaime Fonseca Fonseca, cédula de identidad numero cinco-ciento veintidós- ciento noventa y nueve y a María Sancho Carvajal c.c Ligia, cédula de identidad número seis-cero cincuenta y tres-quinientos cuatro, como representantes de la Unión Nacional de Gobiernos Locales ante el Consejo Nacional de Desarrollo Comunal del 7 de junio al 30 de setiembre del 2002.
+3°—Designar a la Licenciada Virginia Maykall Mora, cédula de identidad número dos-ciento setenta y ocho-quinientos treinta y nueve, al señor Miguel Zumbado Ulate, cédula de identidad número cuatro-cero noventa y uno-quinientos cincuenta y nueve y al señor Antonio Salgado Cruz, cédula de identidad número dos-doscientos sesenta y uno-trescientos trece, como representantes del Movimiento de Desarrollo Comunal ante el Consejo Nacional de Desarrollo Comunal, del 12 de junio al 12 de diciembre del 2002.
+4°—Designar al señor Bernardo López González, cédula de identidad número uno-ochocientos cincuenta y dos-ochocientos ochenta y cinco, como representante de otra cartera, en representación del Ministro de Seguridad Pública ante el Consejo Nacional de Desarrollo Comunal, del 12 de junio del 2002 al 7 de mayo del 2006.
