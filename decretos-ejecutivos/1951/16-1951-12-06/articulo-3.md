@@ -1,0 +1,2 @@
+Artículo 3°.- Se suspenden los efectos de los artículo 17, 21 y 43 de los Estatutos vigentes, durante todo el tiempo que el Comité de la Cruz Roja Costarricense invierta en la preparación y redacción de los Estatutos, y en la transformación y acondicionamiento de la Institución a sus nuevas normas legales, tiempo que no podrá ser mayor de una ño a partir de la publicación de este decreto.
+Dado en la Casa Presidencial.- San José, a los seis días del mes de diciembre de mil novecientos cincuenta y uno.
