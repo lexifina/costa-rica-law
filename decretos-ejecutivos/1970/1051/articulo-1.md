@@ -92,8 +92,7 @@ VIII.-DEL SECRETO PROFESIONAL
 3) El secreto médico pertenece al paciente. El médico no incurre en responsabilidad si relata el secreto de que es depositario cuando es autorizado para ello por la persona que se lo ha confiado y siempre que dicha revelación no cause perjuicio a terceros.
 4) La revelación del secreto profesional podrá hacerse en los casos siguientes:
 a) Cuando así lo ordenen las leyes vigentes.
-b) Cuando en calidad de médico experto, como forense, médico oficial o de una empresa o institución pública tramite una opinión.
-c) Cuando en su calidad de médico tratante declare enfermedades infectocontagiosas ante la autoridad sanitaria y cuando expida certificaciones de defunción.
+b) Cuando en calidad de médico experto, como forense, médico oficial o de una empresa o institución pública tramite una opinión. c) Cuando en su calidad de médico tratante declare enfermedades infectocontagiosas ante la autoridad sanitaria y cuando expida certificaciones de defunción.
 d) En el caso de que un médico tenga conocimiento de que un colega está cometiendo falta al administrar un tratamiento indebido, tiene la obligación de señalarla al médico que está en el error. En caso de que éste no la corrija, el primer médico informará del caso a la autoridad médica competente.
 5) El médico puede, sin faltar a la ética, denunciar los delitos de que tenga conocimiento en el ejercicio de la profesión, de acuerdo con lo dispuesto en el Código Penal y cuando se trate de evitar un error judicial.
 6) Cuando el médico es citado ante un tribunal como testigo para declarar sobre hechos que ha conocido en, el ejercicio de su profesión, el requerimiento judicial ya constituye "justa causa" para la revelación y ésta no implica por lo tanto, una violación del secreto profesional. En estos casos el médico debe comportarse con mesura, limitándose a responder lo necesario, sin incurrir en excesos verbales.
@@ -122,7 +121,7 @@ X.-DE LOS HONORARIOS MEDICOS
 1) El médico y su esposa, sus hijos, mientras se encuentren sometidos a la patria potestad, y sus padres tienen derecho a servicios médicos gratuitos.
 2) Si por alguna causa proveniente del médico, como el olvido de una indicación terapéutica, necesidad de completar un examen, motivos de enseñanza o comodidad del médico, etc., deben efectuarse más visitas que las indispensables, no serán tomadas en cuenta para efectos de honorarios.
 3) Cuando el paciente, sin razón justificada, se niegue a cancelar los honorarios del médico, ésta puede demandarlo ante los tribunales. Es conveniente ponerlo en conocimiento de la entidad médico gremial correspondiente y pedir a ésta asesoramiento o representación legal ante la justicia.
-4) (Derogado por el artículo 1° del decreto ejecutivo N° 2565 del 06 de octubre de 1972)
+4) (Este inciso fue derogado por el artículo 1° del decreto ejecutivo N° 2565 del 06 de octubre de 1972)
 5) La participación de honorarios entre el médico tratante y cualquier otro profesional es un acto contrario a la dignidad profesional. Cuando en la asistencia del enfermo han tenido ingerencia otros profesionales, los honorarios se presentarán separadamente. Cuando se presenten en conjunto se detallarán los nombres y honorarios de los participantes.
 6) Constituye violación a la ética profesional la percepción directa de un porcentaje derivado de la prescripción de medicamentos, aparatos ortopédicos, lentes, etc., así como la retribución a intermediarios de cualquier clase entre médicos y pacientes.
 XI.-DE LA RESPONSABILIDAD PROFESIONAL
@@ -170,7 +169,7 @@ d) Si se ha analizado a fondo el problema nuevo que va a ser estudiado o tratado
 e) Si se obtiene el consentimiento del enfermo o de sus familiares responsables, advertidos de los riesgos.
 XVI.-LA EXPERIMENTACION CON NUEVAS DROGAS
 1) El médico que emplea sin información fehaciente una droga peligrosa que no conoce, no sólo incurre en un error de conducta, sino que contraviene los dictados de la moral .médica.
-2) En tales circunstancias, es recomendable estudiar más a fondo la droga o esperar que otros más calificados definan sus usos y riesgos.
+2)En tales circunstancias, es recomendable estudiar más a fondo la droga o esperar que otros más calificados definan sus usos y riesgos.
 XVII.-DE LA INVESTIGACION EN EL HOMBRE PARA DILUCIDAR
 PROBLEMAS DE CONOCIMIENTO, NO DE CURACION
 1) La investigación en el hombre para dilucidar problemas de conocimiento, no de curación, debe quedar reservada a los centros médicos calificados con investigadores y médicos competentes y con los equipos adecuados para el dominio inmediato de los riesgos.
@@ -191,16 +190,22 @@ Todo acto profesional que se haga en forma apresurada y deficiente para cumplir 
 Corresponde a los profesionales de la Medicina y, a sus representantes institucionales, luchar para lograr los esquemas administrativos necesarios que hagan posible a los médicos funcionarios poder cumplir con las exigencias de un trabajo eficiente.
 XXI.-DE LA EUTANASIA
 No es lícito al médico, en ningún caso o circunstancia proporcionar o suprimir a un paciente drogas, medicinas o tratamientos produciendo así la muerte.
-XXII.-DEL TRIBUNAL DE MORAL MEDICA
-1) Para Conocer y juzgar sobre cualquier infracción a las disposiciones del presente Código, se establece un Tribunal de Moral Médica, cuya jurisdicción se extiende a toda la República.
-2) El Tribunal de Moral Médica estará integrado en la siguiente forma:
-3 miembros de la Junta de Gobierno del Colegio de Médicos y Cirujanos los cuales serán el Vicepresidente y dos Vocales y 4 miembros del mismo Colegio, elegidos en Asamblea General.
-3) Los miembros del Tribunal elegidos por la Asamblea General durarán en sus funciones dos años. Los miembros de la Junta de Gobierno fungirán mientras permanezcan en su cargo directivo.
-4) El Tribunal podrá sesionar con la asistencia de cinco de sus miembros.
-Será presidido por el Primer Vocal de la Junta de Gobierno y en ausencia de éste, por el miembro de mayor edad. En caso de renuncia o muerte de un miembro, la Junta de Gobierno nombrará un sustituto por el resto del período.
-5)La Junta de Gobierno convocará al Tribunal de Moral Médica cuando se presente algún asunto de su competencia, habiendo levantado previamente la información correspondiente.
-6)Una vez conocido un asunto por el Tribunal, éste comunicará su resolución a la Junta de Gobierno la cual decidirá si impone sanción de acuerdo con los artículos 20, 21, 22 y 23 de la Ley Orgánica del Colegio de Médicos y Cirujanos.
-Contra las resoluciones de la Junta de Gobierno cabrán los recursos a que se refiere el artículo 24 de la Ley Orgánica del Colegio de Médicos y Cirujanos.
-Cuando se presente alguna queja por infracciones al presente Código y esa queja fuere retirada posteriormente, corresponderá a la Junta de Gobierno decidir si se continúa conociendo de la falta denunciada, o si se dan por terminados los procedimientos y se archiva el expediente.
+(*)XXIl.-Del Tribunal de Moral Médicas
+1°-Para conocer sobre las infracciones a las disposiciones del presente Código, de conformidad con la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica, se establece un Tribunal de Moral Médica, cuya jurisdicción se extiende a toda la República.
+2°-EI Tribunal de Moral Médica, estará integrado en la siguiente forma:
+Un representante del Ministerio de Salud.
+Un representante de la Facultad de Medicina de la Universidad de Costa Rica.
+Un representante de la Escuela de Medicina de la Universidad Autónoma de Centroamérica.
+Estos representantes serán escogidos de una terna que enviarán oportunamente las instituciones respectivas.
+Los otros cuatro integrantes serán nombrados directamente por la Junta de Gobierno.
+Es incompatible el cargo de miembro del Tribunal de Moral Médica, con el de integrante de la Junta de Gobierno.
+3°-La elección de los miembros del Tribunal se hará en la segunda sesión de la Junta de Gobierno, posterior al nombramiento del nuevo Presidente de dicha Junta y durará en sus funciones por dos años con el objeto de que los nombramientos coincidan con la fecha de nombramiento de miembros de Junta de Gobierno, que incluye el Presidente de la misma.
+4°-El Presidente del Tribunal será de escogencia de la Junta de Gobierno, de entre los miembros nombrados por ésta directamente. El Tribunal podrá sesionar con la asistencia de cinco de sus miembros.
+En caso de renuncia, inasistencia a más de tres sesiones consecutivas o muerte de alguno de los miembros, la Junta de Gobierno nombrará un sustituto para el resto del período.
+5°-El Presidente convocará al Tribunal cuando la Junta de Gobierno le envié algún asunto de su competencia.
+6°-Una vez conocido por el Tribunal éste comunicará su resolución a la Junta de Gobierno, la cual decidirá de acuerdo con los artículos 20, 21, 22 y 23 de la Ley Orgánica del Colegio de Médicos y Cirujanos.
+7°-Contra las resoluciones de la Junta de Gobierno, cabrán los recursos a que se refiere el artículo 24 de la Ley Orgánica del Colegio de Médicos y Cirujanos.
+8°-Cuando se presente alguna queja por infracciones al presente Código y fuera reiterado posteriormente, corresponderá a la Junta de Gobierno decidir si se continúa conociendo de la falta denunciada, o si se dan por terminados los procedimientos y se archiva el expediente
+(*)(Así reformado el punto anterior por el artículo 1° del decreto ejecutivo N° 10568 del 24 de setiembre de 1979)
 TRANSITORIO;
 Los cuatro miembros a que se refiere el inciso 2), serán elegidos, por primera vez, en la Asamblea General Ordinaria de enero de 1970.

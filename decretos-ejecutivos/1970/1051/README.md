@@ -15,3 +15,4 @@ Código de Moral Médica
 | --- | --- | --- |
 | 1 | 1970-08-18 | la propia norma |
 | 2 | 1972-10-06 | Decreto Ejecutivo 2565 (1972-10-06) |
+| 3 | 1979-09-24 | Decreto Ejecutivo 10568 (1979-09-24) |
