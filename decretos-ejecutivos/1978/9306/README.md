@@ -15,3 +15,4 @@ Declara Zona de Emergencia Nacional las Reservas Indígenas Chirripó, Estrella 
 | --- | --- | --- |
 | 1 | 1978-12-12 | la propia norma |
 | 2 | 1979-05-21 | Decreto Ejecutivo 10035 (1979-05-21) |
+| 3 | 1981-07-24 | Decreto Ejecutivo 12830 (1981-07-24) |
