@@ -14,3 +14,4 @@ Reglamento General de los Patronatos y Juntas Directivas de Protección Social
 | --- | --- | --- |
 | 1 | 1941-05-20 | la propia norma |
 | 2 | 1948-06-01 | Decreto Ejecutivo 106 (1948-06-01) |
+| 3 | 1949-05-06 | Decreto Ejecutivo 246 (1949-05-06) |
