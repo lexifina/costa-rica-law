@@ -1,0 +1,5 @@
+Artículo 22.- Tasa por depósito a última hora. Tasa por depósito fuera de las horas generales de apertura de ventanilla. Tasa de lista de Correos (Poste Restante). Tasa de entrega de pequeños paquetes.
+1. Las administraciones estarán autorizadas a cobrar a expedidor una tasa adicional, según su legislación, por los envíos entregados a última hora en sus servicios de expedición.
+2. Las administraciones estarán autorizadas a cobrar al expedidor una tasa adicional, según su legislación, por los envíos depositados en ventanilla fuera de las horas generales de apertura.
+3. Los envíos dirigidos a Lista de Correos podrán ser gravados por las administraciones de los países de destino con la tasa especial eventualmente fijada por su legislación para los envíos de la misma clase del régimen interno.
+4. Las administraciones de los países de destino estarán autorizadas a cobrar la tasa especial fijada en el artículo 21, letra d), por cada pequeño paquete que exceda del peso de 500 gramos entregado al destinatario.

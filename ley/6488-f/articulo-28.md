@@ -1,0 +1,6 @@
+Artículo 28.- Cupones respuesta internacionales.
+1. En los países miembros se expenderán cupones respuesta internacionales emitidos por la Oficina Internacional.
+2. El valor de los cupones respuesta será de 1 franco y el precio de venta fijado por las administraciones interesadas no podrá ser inferior a ese valor.
+3. Los cupones respuesta podrán canjearse en cualquier país miembro por uno o varios sellos postales que representen el franqueo mínimo de una carta ordinaria, expedida al extranjero por vía de superficie. Si los reglamentos de la administración del país donde se efectúe el canje lo autorizan, los cupones respuesta serán también canjeables por enteros postales. A la presentación de una cantidad suficiente de cupones respuesta las administraciones suministrarán los sellos postales necesarios para el franqueo mínimo de una carta ordinaria, a expedirse por vía aérea como envío con sobretasa.
+4. La administración de un país miembro podrá, además, reservarse la facultad de exigir la entrega simultánea de los cupones respuesta y de los envíos a franquear a cambio de esos cupones respuesta.
+5. Por derogación del párrafo 1º, las administraciones postales tendrán la facultad de no encargarse de la venta de cupones respuesta internacionales o de limitar su venta.

@@ -1,0 +1,3 @@
+Artículo 26.- Franqueo de envíos de correspondencia a bordo de navíos.
+1. Los envíos depositados a bordo de un navío durante el estacionamiento en los dos puntos extremos del recorrido o en una de las escalas intermedias deberán ser franqueados por medio de sellos postales y según la tarifa del país en cuyas aguas se hallare el navío.
+2. Si el depósito a bordo se efectuare en alta mar, los envíos podrán ser franqueados, salvo acuerdo especial entre las administraciones interesadas, por medio de sellos postales y según la tarifa del país al que pertenezca o del que dependa el navío. Los envíos franqueados en esas condiciones deberán ser entregados a la oficina de Correos de la escala lo más pronto posible después de la llegada del barco.

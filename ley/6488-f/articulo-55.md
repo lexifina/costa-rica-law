@@ -1,0 +1,2 @@
+Artículo 55.- Servicios extraordinarios.
+Los gastos de tránsito especificados en el artículo 52 no se aplicarán al trasporte por medio de servicios extraordinarios especialmente creados o mantenidos por una administración postal a petición de una o de varias otras administraciones. Las condiciones de esta categoría de transporte se reglamentarán de común acuerdo entre las administraciones interesadas.

@@ -1,0 +1,4 @@
+Artículo 65.- Encaminamiento.
+1. Las administraciones estarán obligadas a encaminar por las comunicaciones aéreas que utilicen para el transporte de su propia correspondencia-avión, los envíos de esta case que reciban de las demás administraciones.
+2. Las administraciones de los países que no dispongan de un servicio aéreo encaminarán la correspondencia-avión por la vías más rápidas utilizadas por el correo; lo mismo ocurrirá si, por alguna razón, el encaminamiento por vía de superficie ofreciere ventajas sobre la utilización de las líneas aéreas.
+3. Los despachos-avión cerrados deberán encaminarse por la vía solicitada por la administración del país de origen, siempre que esta vía sea utilizada por la administración del país de tránsito para la transmisión de sus propios despachos. Si ello no fuere posible o si el tiempo para el transbordo fuere insuficiente, se notificará a la administración del país de origen.

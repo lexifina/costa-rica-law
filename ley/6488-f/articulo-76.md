@@ -1,0 +1,2 @@
+Artículo 76.- Gastos de transporte aéreo del correo perdido o destruido.
+En caso de pérdida y de destrucción del correo a raíz de un accidente ocurrido en la aeronave o por cualquier otro motivo que comprometa la responsabilidad de la empresa de transporte aéreo, la administración de origen estará exenta de cualquier pago por el transporte aéreo del correo perdido o destruido en cualquier tramo del trayecto de la línea utilizada.
