@@ -1,0 +1,1 @@
+Artículo 4°-Autorízase al Ministerio de Obras Públicas y Transportes para llevar a cabo todos aquellos actos no contemplados en el presente decreto que tengan relación con el fiel cumplimiento de la intervención y sus derivaciones.
