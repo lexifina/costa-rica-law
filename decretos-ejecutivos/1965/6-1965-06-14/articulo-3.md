@@ -1,0 +1,1 @@
+Artículo 3°—La Oficina prestará servicios de asesoramiento a las diferentes dependencias del Ministerio de Educación Pública, en los aspectos técnicos que se requiera para la eficaz ejecución de las normas de política educativa establecidas por el Consejo.
