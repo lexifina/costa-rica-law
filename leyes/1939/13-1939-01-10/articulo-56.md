@@ -1,1 +1,0 @@
-Artículo 56.—El derecho de arrendamiento no podrá cederse sin consentimiento expreso del Poder Ejecutivo, quien no lo considerará si el pago del canon no está al día, o si se trata de persona o sociedades que se dediquen a la misma clase de explotaciones agrícolas o ganaderas, o de extranjeros que tengan menos de diez años de residencia en el país.

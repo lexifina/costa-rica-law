@@ -1,1 +1,0 @@
-Artículo 50.—Si la solicitud se conforma a los términos de ley, y la Secretaría de Hacienda considera justa la estimación dada por el técnico, la admitirá,, y pasará el expediente, con los planos y diligencias de medida, al Juzgado Civil de Hacienda para que saque a remate el lote con la base fijada por el Agrimensor y por el plazo concedido por la Secretaría de Hacienda.

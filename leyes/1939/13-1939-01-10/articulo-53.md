@@ -1,1 +1,0 @@
-Artículo 53.—Todos los gastos que ocasione la tramitación de las solicitudes de arrendamiento, así como los de la medida del terreno, serán por cuenta del solicitante; pero si otra persona adquiere en el remate el derecho al arrendamiento, deberá reembolsarlos a aquél.

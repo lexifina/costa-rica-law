@@ -1,1 +1,0 @@
-Artículo 27.—El término para presentar oposiciones será de treinta días a partir de la primera publicación del edicto y, si las hubiere, deberán resolverse por los trámites de los incidentes. La sentencia será apelable para ante la Sala Civil, cuyo fallo será definitivo y tendrá autoridad de cosa juzgada.
