@@ -1,0 +1,1 @@
+Artículo 18.—Por cada sesión ordinaria del Consejo Regional, sus integrantes excluido el del ICAFÉ devengarán por sus servicios una remuneración equivalente al 20% de las dietas aprobadas para los señores Directores de Junta Directiva. Las sesiones extraordinarias no devengarán remuneración alguna.

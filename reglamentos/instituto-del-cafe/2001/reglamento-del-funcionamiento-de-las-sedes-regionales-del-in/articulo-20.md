@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos del Consejo que conlleven correspondencia interna deben dirigirse a la Gerencia Técnica del Instituto del Café de Costa Rica para el trámite que corresponda. Los acuerdos del Consejo se tomarán por mayoría simple.

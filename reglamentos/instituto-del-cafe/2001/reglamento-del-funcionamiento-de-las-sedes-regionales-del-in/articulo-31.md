@@ -1,0 +1,3 @@
+La Auditoría Interna
+Artículo 31.—La Auditoría del ICAFÉ ejercerá en nombre y representación de la Junta Directiva la vigilancia, inspección y fiscalización sistemática de las sedes regionales.
+Los funcionarios de la Auditoría desempeñarán sus labores por delegación del Auditor y no como atribución propia del cargo, teniendo libre acceso en cualquier momento a todos los libros, archivos, valores y documentos de las sedes regionales, así como a otras fuentes de información relacionadas con su actividad. Asimismo, estos funcionarios obtendrán la colaboración , asesoría y facilidades necesarias que demande el ejercicio de su labor, de acuerdo con lo indicado en el capítulo V del Reglamento a la Ley Nº 2762.

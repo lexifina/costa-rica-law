@@ -1,0 +1,1 @@
+Artículo 17.—El Consejo se reunirá en las oficinas de la sede regional en forma ordinaria una vez cada mes y en forma extraordinaria cuando la mayoría de sus integrantes lo acuerden. El quórum lo constituyen la mayoría simple de sus miembros.
