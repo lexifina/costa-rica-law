@@ -1,0 +1,3 @@
+Art 7°. - Mientras se fabrica la grande acequia subterránea y central que debe recibir en todas las calles los desagües de las casas cuando estas tengan fuentes, los Gobernadores y Jefes de Policía cuidarán de cerrar todas las aberturas que atraviesan las calles de las ciudades, bajo la multa de veinticinco pesos que pagarán al respectivo fondo cuando se les pruebe que han descuidado el cumplimiento de esta obligación.
+Dado en San José, a los dos días del mes de noviembre de mil ochocientos cincuenta y siete.
+Por tanto, Ejecútese. - San José, noviembre tres de mil ochocientos cincuenta y siete.

@@ -1,0 +1,1 @@
+Art 6°. - Todas las Municipalidades de las principales poblaciones de la República son obligadas a levantar un plano de alineación de sus respectivas ciudades; y con arreglo a dicho plano mandarán fijar postes a nivel del sueldo, que marquen la dirección y posición de las nuevas construcciones.
