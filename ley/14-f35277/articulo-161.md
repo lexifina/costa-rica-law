@@ -1,0 +1,1 @@
+Art. 161.-En la expresada tarifa se fijará arresto proporcional, desde uno hasta treinta días, ó la reclusión en la misma escala, según la gravedad del caso, con que en defecto de multa deberá purgarse la falta cometida.

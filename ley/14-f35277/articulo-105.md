@@ -1,0 +1,2 @@
+Art. 105.-Toda embarcación que de noche visitare, sin el permiso que exige el artículo 104, cualquier buque fuera de puerto, caerá en pena de comiso; y las personas que fueren en ella, excepto su dueño, serán castigadas con una multa igual al valor de ésta, ó en su defecto á trabajos públicos hasta cubrir la ascendencia de la multa.
+§ único. -Para los efectos legales de la última parte de este artículo, los trabajos públicos se estimarán á razón de un peso diario por persona.

@@ -1,0 +1,1 @@
+Art. 77.-La correspondencia oficial y pública, que condujere un buque que se halle en uno de los casos expresados en los artículos 50, 51 y 60, será taladrada y fumigada en la playa de la cuarentena, bajo la inmediata inspección del médico de sanidad: sin que en ningún caso pueda llevarse al puerto sin ese requisito.

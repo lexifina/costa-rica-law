@@ -1,0 +1,1 @@
+Art. 150.-Si algún buque necesitare descubrir quilla, y no pudiere tener arreglo amistoso del capitán de otro para esa operación, el Capitán del puerto dispondrá al efecto de cualquiera embarcación nacional, ajustando previamente la debida gratificación á cargo de la parte favorecida.

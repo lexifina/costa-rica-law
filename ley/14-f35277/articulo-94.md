@@ -1,0 +1,1 @@
+Art. 94.-Cuando algún capitán solicite el permiso de poner su buque á la carga, acompañando la prueba de haber cubierto él ó su consignatario todos los derechos fiscales, el del puerto señalará día para la visita del fondeo, á fin de que á la hora que exprese estén á bordo el capitán y demás gente del buque.

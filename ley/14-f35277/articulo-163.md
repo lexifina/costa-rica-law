@@ -1,0 +1,1 @@
+Art. 163.-En los casos de que trata el artículo anterior, y en todos los demás de multas y pena de reclusión impuesta por el Capitán del puerto, podrán las partes interesadas acudir en queja al Ministerio de Guerra y Marina, una vez que hayan asegurado ó depositado la multa.

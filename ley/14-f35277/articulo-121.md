@@ -1,0 +1,1 @@
+Art. 121.-El buque anclado fuera de puerto, que necesitare auxilio, lo pedirá en la forma de estilo expresada en el artículo 19: todos los buques fondeados deben prestarlo, y el Capitán del puerto lo hará con la lancha de auxilio y la ronda de mar.

@@ -1,0 +1,2 @@
+Art. 194.-El Poder Ejecutivo podrá, según la experiencia lo aconseje, acordar la suspensión transitoria ó absoluta de una ó más disposiciones de este Reglamento; debiendo en ese caso dar cuenta al Congreso en su inmediata sesión legislativa, para que éste acepte ó impruebe la medida.
+Dado en San José, en el Palacio Presidencial, á los veintitrés días del mes de febrero de mil ochocientos ochenta y cuatro. -P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Marina. -BERNARDO SOTO.

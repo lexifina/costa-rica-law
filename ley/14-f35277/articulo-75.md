@@ -1,0 +1,1 @@
+Art. 75.-Si el capitán del buque carece de dinero y no tuviere consignatario en la República, el Administración de Rentas del lugar deberá prestarle el que necesite y pida en planillas visadas por el capitán del puerto, así para provisiones como para medicinas que el médico recete; y al pago de esas cantidades quedarán obligados el buque, sus aparejos y la carga.

@@ -1,0 +1,1 @@
+Art. 43.-Si por la comisión de algún delito hubiere de ponerse preso al capitán ú otro hombre del buque, 6 bien á toda la gente de éste, la prisión se verificará respetando las garantías individuales y la correspondencia privada, bajo la responsabilidad del capitán del puerto.

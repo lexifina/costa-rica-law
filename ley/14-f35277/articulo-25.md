@@ -1,0 +1,1 @@
+Art. 25.-Los prácticos irán con el médico del puerto á la visita de sanidad, y entregarán al capitán un ejemplar de este Reglamento, el que recogerán de manos del mismo cuando el buque vaya á hacerse en vela.

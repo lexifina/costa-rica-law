@@ -1,0 +1,2 @@
+Art. 34.-Al fin expresado en el artículo anterior deberán concurrir las lanchas auxiliares de los demás buques, así de guerra como mercantes, provistas de sus bombas contra incendio para sofocar el fuego, socorrer á la gente de á bordo para librarlos de las llamas ó de ser ahogados, recoger cuanto se salve, y depositarlo en los almacenes del puerto.
+§ único. -Si el buque incendiado contuviere pólvora, y ésta no ha podido echarse al agua con tiempo, se le hará fuego á pique antes que estalle, procurándose en todo caso, y aunque de lejos, socorrerá los que estén en el buque.

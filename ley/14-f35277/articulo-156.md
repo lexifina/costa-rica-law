@@ -1,0 +1,1 @@
+Art. 156.-Las operaciones de recibir y de arrojar lastre, así como la de pasarlo de uno á otro buque, serán vigiladas por un celador constituido á bordo, de entre los guardas por el Capitán del puerto; y el interesado pagará á ese celador el importe del jornal ordinario del lugar.

@@ -1,0 +1,1 @@
+Art. 104-Aun en los tres casos expresados en el precedente artículo, será necesaria la licencia del Capitán del puerto para que pueda visitarse un buque fuera de las horas que determina el articulo 102.

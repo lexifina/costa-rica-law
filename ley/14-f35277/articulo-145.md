@@ -1,0 +1,3 @@
+CAPÍTULO V.
+De los casos de anclas sueltas, y otros accidentes.
+Art. 145.-Ningún capitán ni patrón de buque deberá hacerse á la mar dejando abolladas sus anclas; pero si tal ocurriere por fuerza mayor, el Capitán del puerto lo participará al dueño ó al consignatario de la nave, si ésta fuere nacional, y si extranjera, al cónsul de la nación á que pertenezca, ó al consignatario, para que tan pronto como el tiempo lo permita las haga recoger; y caso de tardanza en efectuarlo, lo ordenará por sí mismo á cargo de la parte interesada, y expresará á ésta las gratificaciones que debe abonar á quienes ejecuten esa operación.

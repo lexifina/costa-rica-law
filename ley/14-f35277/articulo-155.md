@@ -1,0 +1,2 @@
+Art. 155.-A ningún buque es permitido pasar lastre á otro en las aguas de los puertos, sin licencia de los capitanes de éstos, quienes no la concederán sino á condición de que ambos buques se unan de bordo y de que tiendan velas ó fuertes encerados que impidan la caída del lastre al mar; todo bajo pena de multas.
+§ único.-Siempre que los capitanes de puertos impongan multas ó arrestos en uso de las facultades que les otorga este Reglamento, deberán dar parte al Ministerio de Guerra y Marina por el inmediato correo, para los fines convenientes.

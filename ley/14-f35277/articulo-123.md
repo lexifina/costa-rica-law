@@ -1,0 +1,1 @@
+Art. 123.-Todos los buques surtos en puertos y aguas jurisdiccionales de la República, deberán izar la bandera de su nación los domingos, y siempre que la costarricense esté enarbolada en la Capitanía del puerto.

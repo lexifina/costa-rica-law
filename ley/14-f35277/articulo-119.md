@@ -1,0 +1,1 @@
+Art. 119. -Ningún buque podrá mudar de fondeadero sin permiso del Capitán del puerto, ni hacerse. á la vela sin que precedan la visita, el reconocimiento y la licencia correspondientes; pena de quinientos pesos en el primer caso, y de comiso en el segundo.

@@ -1,0 +1,1 @@
+Art. 93.-Con vista de los partes dirigidos á los Ministerios de Hacienda y de Guerra y Marina, á que se refiere el artículo anterior, el Gobierno dispondrá que en el periódico oficial se publique una razonada noticia del embargo.

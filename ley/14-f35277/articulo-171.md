@@ -1,0 +1,1 @@
+Art. 171.-En casos de tormenta, el lapso que se fija en el artículo anterior deberá prorrogarse hasta pasado el peligro; y si la entrada en aguas de la República fuere debida á falta absoluta de víveres, por avería, la salida no será obligatoria sino veinticuatro horas después de haber concluído la provisión ó los reparos.

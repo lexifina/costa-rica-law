@@ -1,0 +1,2 @@
+Art. 113.-Antes de la visita de sanidad, y de estar á bordo un empleado de la Aduana, á ningún buque es permitido comunicarse con tierra ni con los demás que estuvieren fondeados dentro ó fuera de puerto; y ni aun después de la visita podrán sus botes comunicarse con las islas y demás lugares de las costas.
+§ único. -Una vez terminada la descarga, el Capitán del puerto los declarará en libre comunicación.

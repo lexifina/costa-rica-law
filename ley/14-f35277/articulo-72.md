@@ -1,0 +1,1 @@
+Art. 72.-El capitán de buque en cuarentena deberá, tan luego como llegue á ella, abrir las escotillas de sol á sol, hacer que diariamente se ponga al aire la ropa de los pasajeros, la suya y la de la tripulación, así como todo el servicio de las literas, y que se laven la cubierta y la cámara.

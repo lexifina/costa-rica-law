@@ -1,0 +1,1 @@
+Art. 136.-Además de las prevenciones contenidas en el artículo 135, el Comité de marina participará al consignatario y al Capitán del buque á que aquél se refiere que de no ser éste convenientemente reparado, no se le dará puerto en su próximo viaje en todas las aguas de la República.

@@ -1,0 +1,1 @@
+Art. 97.-Si el buque se hallare en condiciones de viajar sin riesgo, el capitán del puerto concederá la licencia de ponerlo á la carga; pero deberá prevenir al de aquél, que tan luego como acabe de recibirla, se le participe para volver á visitarlo.

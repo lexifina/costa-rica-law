@@ -1,0 +1,1 @@
+Art. 56.-A los buques de guerra y correos no se les exigirá que vayan á la cuarentena; pero no se les dará puerto, ni se les permitirá comunicación con gente de tierra, ni que sus pasajeros desembarquen, si se hallan en alguno de los casos que expresan los artículos 50, 51 y 53.

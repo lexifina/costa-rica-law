@@ -1,0 +1,1 @@
+Art. 178.-Si hallándose la República en guerra contra otra nación, se presentare pidiendo puerto un buque parlamentario, ó sea de cartel, mercante ó de guerra del enemigo, su bandera blanca le dará derecho á libre entrada; y así él como su Capitán y la tripulación gozarán consideraciones de neutrales.

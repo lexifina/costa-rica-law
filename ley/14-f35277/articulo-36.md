@@ -1,0 +1,1 @@
+Art. 36.-Los gastos que causare cualquiera de los casos de auxilio de que trata este capítulo, serán satisfechos por el capitán ó comandante del buque en peligro, á cuyo reintegro están afectados los mismos buques y su cargamento; pero deberán suplirse de la hacienda nacional, á fin de que no haya demora en el auxilio.

@@ -1,0 +1,2 @@
+Art. 11.-Desde que el práctico asume el mando del buque cuyo rumbo ó salvamento va á darle, debe ser obedecido en todo cuanto ordene á la tripulación con tales fines, hasta que dé la voz de fondo con el ancla ó anclas que él juzgue necesarias, y quede aquél fijo.
+§ único.-El práctico es responsable de las ave- rías que sufra el buque por culpa suya; pero no lo será si no se le recibe á bordo, ó no se le obedece en él.

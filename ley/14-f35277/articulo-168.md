@@ -1,0 +1,6 @@
+Art. 168.-Todo Capitán de puerto tendrá los siguientes libros:
+1° -Uno para diario de entradas de embarcaciones mayores y de cabotaje, en el que anotará la clase, nacionalidad y porte de cada buque, su nombre y el de su capitán, el número de sus tripulantes, su carga en general, su procedencia, días que haya empleado en el viaje, escalas intermedias con expresión de si han sido accidentales ó necesarias por la consignación de la carga, ó para completar ésta; los pasajeros que conduzca, anotando los que de éstos fueren tropa ó presos; y todas las noticias generales no reservadas que reciban al practicar la visita de fondeo.
+2°-Otro para diario de salidas: en él se asentará la de toda embarcación mayor ó de cabotaje, con referencia á la partida respectiva del libro de entradas y á los pasajeros y carga que haya dejado y tomado en el puerto.
+3°-Otro destinado á registrar las embarcaciones menores de propiedad particular que existan en cada puerto, en el que se expresarán sus números de orden, sus nombres, los de sus dueños y patrones, sus números de los cambios que ocurran de unos ú otros, el porte en quintales y los utensilios que tenga, y las carenas y reparaciones que hayan recibido, así como el día que fueron botadas al agua.
+4°-Otro dedicado exclusivamente á matrículas.
+5°-Otro para asentar la correspondencia oficial.

@@ -1,0 +1,1 @@
+Art. 22.-Tampoco se auxiliará con práctico, ni se dará puerto, á la escuadra ó convoy apestado que á la capa se dirija á éste, sea de la nacion que fuere; pero se les indicará que si les conviene se pongan a frente al puerto, mientras se da parte al Ministerio de Marina y se reciben sus órdenes. Si trataren de forzar el puerto, el capitán de éste hará repelerlo á viva fuerza.

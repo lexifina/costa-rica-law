@@ -1,0 +1,1 @@
+Art. 124.-Los comandantes, la oficialidad y gente de los buques de guerra, deben prestar el auxilio que les pida el Capitán del puerto y obedecer las órdenes de éste, y auxiliarlo los capitanes y demás individuos de los buques mercantes.

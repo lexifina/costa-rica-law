@@ -1,0 +1,1 @@
+Art. 146.-Si las anclas quedaren sin boya, el Capitán del puerto las hará recoger inmediatamente á cargo de los interesados, en los términos dichos en el precedente artículo. En ambos casos la tendrá en garantía de la paga; y si hubiere resistencia á efectuarla, las pondrá á disposición del juez que, si ha de haber demanda, deba conocer de ésta, conforme á las leyes.

@@ -1,0 +1,1 @@
+Art. 99.-Satisfecho el capitán del puerto de que todo está en orden en el buque, y de que éste está solvente con el Fisco, entregará al capitán del mismo la correspondiente licencia de registro para que se haga á la mar, y los papeles de que trata el artículo 86.

@@ -1,0 +1,1 @@
+Art. 116.-Con el fin de que se conserve con la necesaria consistencia el dique de Puntarenas, el Capitán de ese puerto hará que todo buque descargue su lastre en los sitios más convenientes del perímetro de la puntilla.

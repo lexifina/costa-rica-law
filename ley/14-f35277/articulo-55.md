@@ -1,0 +1,1 @@
+Art. 55.-Si la patente fuere sucia por términos expresos, ó por las razones dichas en los artículos 50, 51 y 53, no se admitirá el buque á plática; ni sus pasajeros ni nadie de á bordo podrán bajar á tierra.

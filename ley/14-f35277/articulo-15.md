@@ -1,0 +1,1 @@
+Art. 15.-Tan luego como el práctico ponga el buque al ancla, regresará á tierra para dar cuenta al capitán del puerto, así como antes de fondeado sin peligro, y cuando interese anclarlo dentro de estero ó río, según las órdenes que haya recibido.
