@@ -13,3 +13,4 @@ Reglamento de Ley Orgánica del Colegio de Médicos Veterinarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-21 | la propia norma |
+| 2 | 1989-09-21 | Decreto Ejecutivo 19369 (1989-11-20) |

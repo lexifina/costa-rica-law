@@ -1,4 +1,1 @@
-Artículo 100.-La Fiscalía debe vigilar y velar que los
-establecimientos citados en los artículos 106 y 107 cumplan con lo
-estipulado en la Ley Orgánica, los Decretos Ejecutivos, los Reglamentos y
-Códigos Internos de la Medicina Veterinaria.
+Artículo 100.-La Fiscalía debe vigilar y velar que los establecimientos citados en los artículos 106 y 107 cumplan con lo estipulado en la Ley Orgánica, los Decretos Ejecutivos, los Reglamentos y Códigos Internos de la Medicina Veterinaria.

@@ -1,8 +1,7 @@
 CAPITULO XVI
 DE LOS ESTABLECIMIENTOS MEDICO
 VETERINARIOS
-Artículo 102.-Son Establecimientos Médico Veterinarios los
-siguientes:
+Artículo 102.-Son Establecimientos Médico Veterinarios los siguientes:
 a. Hospitales Veterinarios;
 b. Clínicas Veterinarias;
 c. Consultorios Veterinarios;
