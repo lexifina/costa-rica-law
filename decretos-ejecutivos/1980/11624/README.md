@@ -13,3 +13,4 @@ Obligación Presentar Informes Empresas Obtengan Beneficios FiscalesDerivados Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-09 | la propia norma |
+| 2 | 1980-07-09 | SINALEVI (sin norma nombrada) |
