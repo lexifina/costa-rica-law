@@ -1,0 +1,2 @@
+Art 2.- Señalase para el juramento y posesión de estos individuos, el martes 31 del corriente, a cuyo efecto se presentaran en la sala del Consejo.- Comuniquese al Supremo Poder Ejecutivo para su cumplimiento y que de su orden, se imprima, publique y circule.- Dado en ciudad de Alajuela a los veintisiete días del mes de marzo de mil ochocientos treinta y cinco.
+Por tanto: Ejecutese. Alajuela marzo veintiocho de mil ochocientos treinta y cinco.
