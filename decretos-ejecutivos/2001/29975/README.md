@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de Tarifas électricas diferenciadas a las indus
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-26 | la propia norma |
+| 2 | 2001-12-19 | Decreto Ejecutivo 30098 (2001-12-19) |
