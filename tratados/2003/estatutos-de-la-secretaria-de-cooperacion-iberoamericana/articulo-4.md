@@ -1,0 +1,10 @@
+Artículo 4.—Presupuesto de la SECIB
+La SECIB deberá contar con los recursos humanos y financieros necesarios para el cumplimiento de sus funciones.
+1. El presupuesto deberá contemplar los siguientes conceptos de gastos: gastos de personal, incluido el Secretario y otros cargos, locales adecuados al desempeño de las funciones de la SECIB, incluido su mobiliario y equipo, gastos corrientes derivados del uso de los locales y de la contratación de los servicios necesarios y gastos operativos, incluidos los derivados de las funciones específicas.
+2. El presupuesto de la SECIB será financiado según lo establecido en el artículo quinto del Protocolo.
+Las formas de hacer efectivas las cuotas tendrán en cuenta las distintas posibilidades que el Convenio de Bariloche establece para las aportaciones a los Programas y Proyectos de Cooperación de las Conferencias Iberoamericanas.
+Los Estados podrán hacer contribuciones voluntarias por encima de su cuota correspondiente, y podrán vincularlas al desarrollo de actividades determinadas.
+En todo caso, las contribuciones hechas por los Estados a la SECIB, tanto las que sean obligatorias como las realizadas voluntariamente, no supondrán merma alguna en las aportaciones hechas a los distintos Programas y Proyectos en funcionamiento, ni podrán ser computadas como tales.
+Las aportaciones que deseen realizar organizaciones, instituciones o entidades, tanto públicas como privadas, para contribuir a un mejor desempeño de las funciones de la SECIB deberán contar con la aceptación previa de los Responsables de Cooperación y por su intermedio de los Coordinadores Nacionales.
+3. El proyecto de presupuesto del siguiente ejercicio será aprobado por consenso por los Responsables de Cooperación y por su intermedio por los Coordinadores Nacionales, durante su segunda reunión anual ordinaria.
+4. Las cuentas de cada ejercicio anual serán presentadas para su examen y aprobación ante la primera Reunión anual de los Responsables de Cooperación y por su intermedio a los Coordinadores Nacionales e irán acompañadas de un informe de auditores independientes de reconocido prestigio.
