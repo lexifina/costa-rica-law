@@ -14,3 +14,4 @@ Dicta Disposiciones Relativas a la Jornada de Trabajo del Cuerpos de Bomberos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1957-01-11 | la propia norma |
+| 2 | 1968-09-12 | Decreto Ejecutivo 7 (1968-09-12) |
