@@ -1,0 +1,6 @@
+PODER LEGISLATIVO
+N° 63
+El Congreso Constitucional de la República de Costa Rica
+Decreta:
+Artículo 1°- El artículo VII del decreto N° 16 de 9 de octubre de 1914, se leerá así:
+<<Artículo VII.- El banco será regido por una Junta Directiva integrada por siete miembros propietarios y cuatro suplentes de nombramiento del Poder Ejecutivo. Los suplentes repondrán a los propietarios en susencias temporales. Todos ellos deberán ser personas caracterizadas por su honorabilidad, competencia e idoneidad, versadas en negocios bancarios, agrícolas, comerciales e inductriales. No podrán ser deudores del Bano personalmente ni por interpuesta persona. La Junta elegirá de su seno un Presidente y dos Vicepresidentes, que serán a la vez Director y Primero y Segundo Subdirectores de Banco, respectivamente, y determinará los demás empleados del establecimiento, que el Director nombrará con aprobación de la Junta. La designación del Segundo Vicepresidente o segundo Subdirectos puede recaer en un suplente. El Presidente o Directos y los vicepresidentes o Subdirectores, tienen indistintamente la representación legal del Banco. La Junta directiva adoptará las disposiciones reglamentarias necesarias para la buena marcha del Banco y las someterá a la aprobación del Poder Ejecutivo>>
