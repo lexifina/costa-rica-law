@@ -1,0 +1,1 @@
+Artículo 7°—El contrato debe ser tramitado en original para la Institución, y cuatro copias: una para la Dirección Administrativa, la Auditoría Interna y el expediente del funcionario y una para el Servidor .
