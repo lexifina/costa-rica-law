@@ -1,0 +1,1 @@
+Artículo 21.-Salvo disposición diferente en el cartel, el plazo que el Instituto se reserva para el recibo de ofertas en la contratación de servicios técnicos o profesionales será de un mes calendario. Para este tipo de concurso se aplicará lo dispuesto en el artículo 69 del Reglamento General de Contratación Administrativa.

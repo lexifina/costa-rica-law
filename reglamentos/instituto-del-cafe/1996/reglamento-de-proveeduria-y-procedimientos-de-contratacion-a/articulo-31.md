@@ -1,0 +1,4 @@
+CAPITULO VIII
+De las cartas de crédito y cobranzas
+Artículo 31.-Por cada apertura de carta de crédito que realice el Departamento de Tesorería, deberá remitir copia a los Departamentos de Contabilidad y Presupuesto y Proveeduría, para que éstos la registren y lleven el control de entrega de mercaderías. El Departamento de Proveeduría se encargará de retirar de la entidad bancaria los documentos de embarque de aquellos pedidos cuya forma de pago sea carta de crédito o giro a la vista y efectuará los trámites necesarios para proceder al desalmacenaje de las mercaderías.
+Se deberá remitir también a la Sección de Suministros la documentación relacionada con los bienes y servicios adquiridos con el fin de que esta unidad cuente con información suficiente para realizar las labores de recepción, inspección o comprobación de lo comprado.

@@ -1,0 +1,7 @@
+CAPITULO III
+De la determinación del procedimiento
+y los trámites de contratación
+Artículo 10.-Las contrataciones se regularán por las disposiciones y regulaciones que de la Ley de Contratación Administrativa, su reglamento, las directrices que dicte Contraloría General de la República, y los lineamientos que establezca la Dirección Ejecutiva de la Institución:
+a. De acuerdo con lo establecido por el artículo 27 inciso e), de la Ley de la Contratación Administrativa,
+Las administraciones cuyo presupuesto ordinario sea inferior a cinco mil millones de colones (¢5.000.000.00,00), pero superior a mil millones de colones(¢1.000.000.000,00), utilizarán el procedimiento de licitación pública para las contrataciones superiores a setenta y cinco millones de colones(¢75.000.000,00), el procedimiento de licitación por registro para las contrataciones entre diez millones de colones (¢10.000.000,00) y setenta y cinco millones de colones (¢75.000.000,00), y el procedimiento de licitación restringida para las contrataciones inferiores a diez millones de colones (¢10.000.000,00).
+b. De acuerdo con lo estipulado en los artículos Nos. 55 y 109 de la Ley de la Contratación Administrativa se establece que: se denominará Licitación Menor a aquellas contrataciones superiores al monto máximo aprobado por Caja Chica, según corresponda, pero inferiores a un millón de colones (¢1.000.000,00), las cuales deberán requerir de al menos 3 (tres) cotizaciones o referencias de precios por escrito.

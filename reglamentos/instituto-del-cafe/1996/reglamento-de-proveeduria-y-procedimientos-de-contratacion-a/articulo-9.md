@@ -1,0 +1,1 @@
+Artículo 9°-Los requerimientos consignados en las solicitudes de compra de bienes o servicios son invariables. No obstante, podrán ser desaprobados o modificados previa consulta a la dependencia solicitante, debiendo quedar por escrito la aprobación de esta última. Constituye salvedad a lo anterior una orden escrita de la Dirección Ejecutiva.

@@ -1,0 +1,2 @@
+Artículo 28.-EI Departamento de Proveeduría emitirá el informe respectivo cuando haya recibido, y estudiado las ofertas, y lo someterá para su aprobación y/o adjudicación por parte de la Junta Directiva o la Dirección Ejecutiva.
+Asimismo deberá remitir a la Dirección Ejecutiva, y a los Departamentos de Auditoría, Contabilidad y Presupuesto, Tesorería y Servicios Generales una copia del contrato o del acta de adjudicación de la enajenación o alquiler de bienes o servicios.

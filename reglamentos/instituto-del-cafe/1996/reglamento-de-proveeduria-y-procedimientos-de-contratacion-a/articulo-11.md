@@ -1,0 +1,1 @@
+Artículo 11.-El Departamento de Proveeduría asignará un funcionario supervisor para cada contratación de bienes, servicios u obras, quien contará con la asesoría necesaria a efecto de cumplir a cabalidad su propósito. Los trámites de contratación deberán realizarse con estricto apego al Ordenamiento Jurídico.

@@ -1,0 +1,1 @@
+Artículo 8°-El Departamento de Proveeduría no tramitará solicitud alguna si no se ajusta a las condiciones descritas en el artículo precedente, de ser así la devolverá en el acto confiriendo dos (2) días para que se proceda a cumplir con los requisitos faltantes.

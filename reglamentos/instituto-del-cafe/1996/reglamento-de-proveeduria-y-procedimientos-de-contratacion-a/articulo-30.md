@@ -1,0 +1,1 @@
+Artículo 30.-Cuando el Departamento de Proveeduría realice un proceso de enajenación de bienes o servicios podrá solicitar toda la información que considere conveniente al departamento que corresponda o a cualquier persona física o jurídica que tenga relación con la misma.

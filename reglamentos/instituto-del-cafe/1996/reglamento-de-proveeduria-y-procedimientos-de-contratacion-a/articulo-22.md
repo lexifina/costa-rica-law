@@ -1,0 +1,1 @@
+Artículo 22.-De la adjudicación de licitaciones públicas, por registro y restringidas y contratación de servicios técnicos y profesionales, deberá consignarse un resumen del acto adjudicatario en el Libro de Actas de Licitaciones, que será firmado por el Director Ejecutivo y el Proveedor.

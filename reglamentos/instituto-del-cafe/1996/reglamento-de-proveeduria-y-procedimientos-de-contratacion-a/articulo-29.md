@@ -1,0 +1,1 @@
+Artículo 29.-Una vez depositado en la Caja General de la Institución el valor de los bienes enajenados, la Sección de Suministros procederá a su entrega, para lo cual deberá exigir el recibo del depósito, además deberá enviarle copia del recibo a los departamentos de Contabilidad y Presupuesto y Proveeduría.

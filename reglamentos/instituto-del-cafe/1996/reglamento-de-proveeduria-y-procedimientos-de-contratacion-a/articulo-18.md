@@ -1,0 +1,1 @@
+Artículo 18.-Una vez que esté firme la adjudicación de. una licitación pública por parte de la Junta Directiva, el acuerdo deberá ser notificado inmediatamente por parte de la Secretaría de la Junta Directiva al Departamento de Proveeduría y éste lo enviará para su debida publicación en el Diario Oficial "La Gaceta".

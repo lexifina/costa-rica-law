@@ -1,0 +1,1 @@
+Artículo 34.-Cumplidos los requisitos anteriores, el Departamento de Proveeduría clasificará a los proveedores y les asignará un código de acuerdo con la clase de productos o bienes y servicios que éstos ofrezcan.
