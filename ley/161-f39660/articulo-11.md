@@ -1,0 +1,1 @@
+Art 11°.- Cuidará muy especialmente la Municipalidad de promover el fomento de la agricultura, las Artes, la industria, y el comercio removiendo todos los obstáculos, y trabas que se opongan a su progreso y mejora.

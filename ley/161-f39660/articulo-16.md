@@ -1,0 +1,1 @@
+Art 16°.- El Secretario de cada Municipalidad, que no ha de ser de sus individuos sinó en el caso de la Ley debe ser nombrado por la misma Municipalidad, y aprobado por el mando Político Superior y no podrá ser removido ni su dotación variada, sino con aprobación del mismo.

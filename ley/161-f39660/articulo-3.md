@@ -1,0 +1,1 @@
+Art 3°.- Si se manifestase en el Pueblo alguna enfermedad reinante, ó epidémica, dará la Municipalidad inmediatamente cuenta al Gefe Politico, y con la frecuencia y oportunidad posible, avisará de la mortandad o estado de salud que se note.
