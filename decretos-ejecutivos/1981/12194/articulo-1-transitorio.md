@@ -1,0 +1,2 @@
+Transitorio.-Dentro de los treinta días siguientes a la publicación del presente decreto, las instituciones públicas que estén ejecutando o vayan a efectuar programas o proyectos de protección y mejoramiento del ambiente, deberán informar de ellos a la Oficina de Planificación Nacional y Política Económica, con copia al Presidente de la República.
+Dado en la Presidencia de la República , -San José, a los doce días del mes de enero de mil novecientos ochenta y uno.
