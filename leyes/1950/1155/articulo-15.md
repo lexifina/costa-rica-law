@@ -1,3 +1,5 @@
-Artículo 15.—No se otorgará la naturalización:
-1) Si apareciere que el solicitante pertenece a una nación con la cual Costa Rica estuviere en guerra; y
-2) Cuando se comprobare haber actuado el peticionario como agitador social, político o religioso, dentro o fuera del país, o que ha sido condenado en el extranjero por esa clase de actividades, o por delitos de estafa, robo, incendio, falsificación de moneda o títulos de crédito, o por otros de igual o mayor gravedad, medida ésta por las penas de nuestros Códigos respectivos
+Artículo 15.- No se le otorgará la naturalización:
+1) Cuando el solicitante perteneciera a una nación con la cual Costa Rica estuviera en guerra.
+2) Cuando se comprobara, judicialmente, que el petente hubiera sido condenado como agitador social, político o religioso, dentro o fuera del país o que hubiera sido condenado en el extranjero por esa clase de actividades o por delitos de estafa, de robo, de incendio, de falsificación de moneda o de títulos de crédito o por otros de igual o mayor gravedad, según las penas establecidas en nuestro Código represivo o en las leyes especiales para tales delincuencias.
+3) Cuando se comprobara, judicialmente, que el solicitante ha tenido relación con el tráfico internacional de sustancias estupefacientes, psicotrópicas, "inhalantes" o de sustancias químicas destinadas a la fabricación o disolución de drogas estupefacientes, en consonancia con los delitos que tipifica la Ley No. 7093 del 22 de abril de 1988.
+(Así reformado por el artículo 1° de la ley N° 7234 del 9 de mayo de 1991)
