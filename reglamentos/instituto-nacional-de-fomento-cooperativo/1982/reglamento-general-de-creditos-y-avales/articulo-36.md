@@ -1,1 +1,2 @@
-Artículo 36.—El INFOCOOP cobrará una comisión desde el 1% hasta el 2% anual por períodos anticipados no mayores de un año, sobre los saldos anuales vigentes, entendiéndose como tales aquellos que se produzcan desde el día en que el aval se otorgue hasta el día en que la cooperativa demuestre a satisfacción del INFOCOOP el pago correspondiente.
+Artículo 36.—Se considerará como garantía de avales que otorgue el INFOCOOP, todas aquellas garantías establecidas para los créditos directos en los artículos 8 y 9 de este Reglamento.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión No. 2297 de 07 de octubre de 1993.)

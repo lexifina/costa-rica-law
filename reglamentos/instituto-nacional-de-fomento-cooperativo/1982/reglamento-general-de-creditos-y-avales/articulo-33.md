@@ -1,13 +1,2 @@
-Artículo 33.—En todos los préstamos que otorgue el INFOCOOP, éste deberá incluir, entre las condiciones a exigir a las prestatarias en sus documentos de crédito, por lo menos, las siguientes:
-a) El derecho del INFOCOOP a examinar los registros contables, libros de actas y documentos de la prestataria, las veces que estime conveniente, así como a solicitar toda la información que se considere necesaria respecto a su situación administrativa, económica y financiera.
-b) El derecho del INFOCOOP a revisar todos los antecedentes y documentos que tengan relación con el proyecto antes, durante y con posteridad a su ejecución, así como inspeccionar las obras en ejecución.
-c) El compromiso de la prestataria de que los bienes y servicios que financie con el producto del préstamo, se utilizarán exclusivamente en la ejecución del respectivo proyecto.
-d) El derecho del INFOCOOP de suspender los desembolsos del producto del crédito y de tener por vencida la obligación, si la prestataria no cumple con sus obligaciones.
-e) 'El compromiso de la prestataria de que tomará las disposiciones necesarias para asegurar que los contratos de construcción, prestación de servicios y compras de bienes para el proyecto, se harán a un costo razonable, qué será generalmente el precio más bajo del mercado, tomando en cuenta factores de calidad, eficiencia y otros que sean del caso.
-f) La constitución por parte de la prestataria, de garantías específicas suficientes a favor del INFOCOOP y la conservación en buen estado de las mismas.
-g) Asegurar y mantener asegurados los bienes entregados en garantía por la suma y el tiempo que el INFOCOOP le indique, y entregarle las pólizas respectivas debidamente endosadas.
-h) Comprobar que cuenta con el seguro de fidelidad que establece el artículo 53 de la Ley de Asociaciones Cooperativas No 5185.
-i) La cooperativa deberá hacer los pagos en atención al crédito en dinero efectivo o mediante cheque de los Bancos del Sistema Bancario Nacional.
-j) La cooperativa se compromete a aceptar la Asistencia Técnica Integral que eventualmente le podría brindar el INFOCOOP y poner en práctica sus recomendaciones.
-k) Cuando proceda, y tratándose de un proyecto independiente, la cooperativa deberá llevar contabilidad independiente del mismo para efectos de evaluación y control.
-(Así ampliado por acuerdo de la Junta Directiva, en su sesión N° 1937 de 22 de febrero de 1990, el cual agregó los incisos i, j y k)
+Artículo 33.—De conformidad con el inciso e) del artículo 157 de la Ley de creación del INFOCOOP No 5185 y sus reformas del 20 de febrero de 1973 y sus reformas, este podrá otorgar avales, cuando sea necesario y conveniente, a las cooperativas, a los Organismos integrativos y auxiliares en los préstamos que contraen con entidades financieras nacionales o extranjeras.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión No. 2297 de 07 de octubre de 1993.)
