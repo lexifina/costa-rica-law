@@ -1,0 +1,1 @@
+Artículo 279.—Los ingenios permitirán a los mencionados representantes, el acceso a las instalaciones relacionadas con el recibo y la evaluación de la calidad de la caña, previa presentación de la identificación oficial emitida por la Liga.

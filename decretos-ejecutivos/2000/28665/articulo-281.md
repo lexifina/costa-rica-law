@@ -1,0 +1,1 @@
+Artículo 281.—Los miembros de la Comisión Asesora ejercerán el cargo por un año comprendido entre el 1º de octubre y el 30 de setiembre del año siguiente y podrán ser reelectos. La Comisión elegirá entre sus miembros propietarios, en su primera sesión anual, un Presidente, un Vicepresidente, un Secretario y un Vocal.

@@ -1,0 +1,1 @@
+Artículo 129.—El recurso se presentará por escrito al Consejo de Comercialización, el cual se limitará a ponerlo en conocimiento de la Asamblea General, sin admitirlo ni rechazarlo. Deberá acompañarle de un dictamen de la Asesoría Legal, en el que se exprese su criterio sobre el recurso.

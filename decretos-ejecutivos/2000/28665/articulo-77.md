@@ -1,0 +1,1 @@
+Artículo 77.—La Junta Directiva o cualquiera de los funcionarios competentes, deberán convocar a la Asamblea General, a sesión extraordinaria para conocer del recurso dentro de los quince días calendario siguientes a su presentación

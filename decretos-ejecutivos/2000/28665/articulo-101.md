@@ -1,0 +1,1 @@
+Artículo 101.—Las actas serán firmadas por el Presidente y el Secretario o por quienes los sustituyan, en la sesión en que se aprueben. También deberán firmarlas los miembros que hubieren hecho constar su voto disidente

@@ -1,0 +1,2 @@
+Artículo 359.—También se aplicará lo dispuesto en el artículo 358, cuando un ingenio cierre sus operaciones fabriles, durante la molienda, por cualquier motivo y haya quedado caña debidamente registrada sin recibir, con derecho a participar de la cuota de producción de azúcar otorgada a ese ingenio.
+Cualquier faltante de cuota que no corresponda a dicha caña, se distribuirá aplicando lo prescrito en el artículo 124 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 96.—En caso de ausencia o de enfermedad y, en general, cuando ocurra alguna causa justa, el Presidente, el Vicepresidente y el Secretario serán sustituidos así: el primero por el Vicepresidente, el segundo por un Vicepresidente ad-hoc y el tercero por un Secretario ad-hoc

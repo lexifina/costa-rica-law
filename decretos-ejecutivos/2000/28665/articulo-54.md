@@ -1,0 +1,1 @@
+Artículo 54.—El acto expreso o presunto que resuelve el recurso, producirá el agotamiento de la vía administrativa. Para dictar el acto expreso, será indispensable que la Junta Directiva consulte, previamente, al Asesor Legal de la Liga. Se aplicará lo dispuesto en los incisos 2 y 3 del artículo 356 de la Ley General de Administración Pública.

@@ -1,0 +1,3 @@
+Artículo 342.—Será obligación del exportador informar a la Liga el precio real del azúcar exportado, sin que se le permita deducir suma alguna no autorizada por la Ley y este Reglamento.
+Para verificar lo anterior, la Liga tomará en consideración, entre otros elementos de juicio, las condiciones y valores que priven en las principales bolsas en donde se negocie internacionalmente azúcar y los informes de entidades o firmas de reconocido prestigio en el ámbito azucarero internacional.
+En todo caso, para los efectos de la participación de los productores en el valor del azúcar, regirán las disposiciones contenidas en los artículos 111 y 112 de la Ley.

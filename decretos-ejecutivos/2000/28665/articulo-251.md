@@ -1,0 +1,3 @@
+Artículo 251.—La muestra en el momento de ser desintegrada, se recogerá en un recipiente adecuado, y se evitará cualquier pérdida de humedad o contaminación con materias extrañas. Así deberá conservarse hasta el momento del análisis, en que se abrirá el recipiente y se tomarán de su contenido cinco porciones al azar, hasta completar 500 gramos. El material restante deberá ser descartado hasta que se haya realizado el análisis del Brix y del Pol.
+La indicada cantidad de 500 gramos, se someterá en una prensa hidráulica a una presión de 250 kg/cm² durante 1 minuto. Esa prensa cumplirá las especificaciones dadas por el Departamento Técnico de la Liga.
+Como resultado de la anterior operación, se obtendrá la torta residual y el jugo extraído.

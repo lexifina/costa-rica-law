@@ -1,0 +1,4 @@
+Artículo 188.—Todo traspaso de la indicada cuota individual de referencia, en los supuestos autorizados por la Ley, deberá comprender, necesariamente, la totalidad de dicha cuota y deberá inscribirse en el Registro de Productores.
+Se exceptúan de lo anterior, los siguientes casos:
+a) Cuando la cuota de referencia constituya un bien ganancial y deba distribuirse en los supuestos establecidos en el Código de Familia. Si conforme a lo anterior procede, y salvo pacto en contrario, la cuota de referencia se dividirá entre los excónyuges, en las proporciones que correspondan, siempre que se haya procedido igual con el inmueble de donde procede la caña. Las cuotas de referencia resultantes se ejercerán en concordancia con lo dispuesto por la Ley y este Reglamento.
+b) En caso de fallecimiento del titular de la cuota de referencia, regirá lo dispuesto por el artículo 69 de la Ley, una vez que se haya aplicado lo dispuesto en el inciso anterior, si procede.

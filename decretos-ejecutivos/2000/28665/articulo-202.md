@@ -1,0 +1,4 @@
+Artículo 202.—La primera sesión anual se efectuará en la primera semana del mes de setiembre de cada año y será convocada por el Departamento Técnico, mediante nota escrita que remitirá a cada miembro. En dicha sesión, la Comisión procederá a lo siguiente:
+a) Elegir entre sus miembros propietarios un Presidente y un Vicepresidente. El Secretario de la Comisión será el miembro designado por la Liga de la Caña, para integrar dicha Comisión.
+b) Seleccionar el lugar en donde sesionará ordinariamente y en el que atenderá a los productores de caña, al ingenio o a cualquier otro interesado.
+c) Fijar el día y hora de las sesiones ordinarias, lo cual lo comunicará al Director Ejecutivo de la Liga, para que ordene su publicación en el Diario Oficial. También la Comisión, lo informará mediante aviso que colocará en los locales de las asociaciones de productores de caña y en las instalaciones de recibo de caña del ingenio respectivo.

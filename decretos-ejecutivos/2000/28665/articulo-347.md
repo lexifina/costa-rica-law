@@ -1,0 +1,1 @@
+Artículo 347.—Por la intervención de exportadores e intermediarios de cualquier clase en las transacciones de azúcar para exportación, no se reconocerá una suma mayor que la establecida por el artículo 162 de la Ley.

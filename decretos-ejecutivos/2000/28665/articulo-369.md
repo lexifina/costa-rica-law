@@ -1,0 +1,1 @@
+Artículo 369.—Para la conversión a que se refiere el antepenúltimo párrafo del artículo 14 de la Ley, se aplicará lo siguiente: La conversión de azúcares de diferente grado de polarización a azúcar de 96º Pol, se hará mediante la división de la polarización correspondiente entre 96º Pol.

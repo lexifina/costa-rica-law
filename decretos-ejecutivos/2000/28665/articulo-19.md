@@ -1,0 +1,1 @@
+Artículo 19.—El recurso de revocatoria deberá interponerse ante la Asamblea General, en el plazo de dos meses, a contar de la fecha en que se notifique o publique el acto, con los requisitos señalados en el artículo 60.

@@ -1,0 +1,1 @@
+Artículo 84.—El acuerdo de la Asamblea General que resuelva definitivamente el recurso de apelación, agotará la vía administrativa. Deberá cumplirse lo dispuesto por el artículo 356 de la Ley General de la Administración Pública

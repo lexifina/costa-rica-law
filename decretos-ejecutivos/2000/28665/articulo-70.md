@@ -1,0 +1,1 @@
+Artículo 70.—Terminada la comparecencia el asunto quedará listo para dictar el acto final, lo cual deberá hacer la Junta Directiva dentro de los treinta días calendario posteriores a la fecha de la citada comparecencia.

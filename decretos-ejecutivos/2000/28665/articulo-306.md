@@ -1,0 +1,1 @@
+Artículo 306.—Además de lo indicado anteriormente, se dispondrá de los reactivos, cristalería y demás elementos necesarios para operar el laboratorio, los cuales serán indicados por el Departamento Técnico de la Liga

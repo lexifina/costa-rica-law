@@ -1,0 +1,4 @@
+Artículo 338.—La disposición del azúcar para la exportación, conforme al artículo 155 de la Ley, será regida por contratos escritos, especificados, firmados y jurados que, para su perfeccionamiento y ejecución, deben inscribirse en la Liga, previa su aprobación.
+La Junta Directiva regulará los requisitos y condiciones generales de los citados contratos, cuyo cumplimiento será indispensable para la anotación de ellos en el registro que llevará la Liga.
+Los contratos deberán presentarse en las oportunidades que señale el presente Reglamento o en la normativa que dicte la Junta Directiva.
+La inscripción de los contratos de exportación de azúcar en la Liga de la Caña, no convalida los nulos o anulables, conforme a la ley y al presente Reglamento. El cumplimiento de las condiciones del convenio queda bajo la exclusiva responsabilidad de las partes contratantes.

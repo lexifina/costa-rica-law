@@ -1,0 +1,1 @@
+Artículo 350.—En el transcurso de los seis días hábiles siguientes a la fecha de embarque de un azúcar, las aduanas deberán enviar a la Liga, copia de la correspondiente declaración aduanera de exportación.

@@ -1,0 +1,1 @@
+Artículo 30.—Terminada la comparencia el asunto quedará listo para dictar el acto final, lo cual deberá hacer la Asamblea, dentro de los treinta días calendario posteriores a la fecha de la citada comparecencia, para lo cual será obligatoriamente convocada de inmediato, por el Presidente o por quien lo sustituya en ese momento.

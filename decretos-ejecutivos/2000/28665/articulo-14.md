@@ -1,0 +1,2 @@
+Artículo 14.—Los delegados presentes en una sesión, podrán pedirle al Presidente que ordene a cualquier funcionario de la Corporación, rendir los informes, explicaciones o asesorías que se requieran sobre los asuntos que se discuten, incluso oralmente.
+En el supuesto de que el Presidente no acogiera la petición, el delegado que la hizo podrá solicitar la revisión de lo dispuesto. Dicha revisión deberá discutirse y votarse de inmediato, alterando el orden del día, y si es aprobada por la mayoría absoluta de los delegados presentes, será de acatamiento obligatorio.

@@ -1,0 +1,5 @@
+Artículo 224.—Podrán pactarse por escrito acuerdos bilaterales, entre productores que entreguen a un mismo ingenio, para intercambiar el lapso de la entrega de caña, siempre que no excedan los montos que les correspondan. Dichos acuerdos deberán ser sometidos a la aprobación de la Comisión de Zafra, y tendrán que ajustarse a lo siguiente:
+a) Se consignarán el nombre completo, apellidos, cédula de identidad y dirección de las partes, si fueran personas físicas y tratándose de personas jurídicas la razón social o denominación, la cédula de persona jurídica, la dirección exacta y el nombre, apellidos y demás calidades del representante.
+b) Deberán indicarse los lapsos de la entrega programada de caña que se intercambian y las cantidades de caña comprendidas en esos lapsos.
+c) Deberán ser firmados por las partes contratantes y por dos testigos, cuyos nombres, apellidos y cédulas de identidad, se harán constar. Los testigos podrán sustituirse por la autenticación de las firmas de las partes, por un Abogado.
+d) Del convenio se entregarán copias firmadas al ingenio y a la Comisión de Zafra.

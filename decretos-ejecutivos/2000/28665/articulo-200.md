@@ -1,0 +1,1 @@
+Artículo 200.—Cuando el ingenio o la referida asociación, no efectúen el nombramiento referido, en la primera quincena de agosto, se entenderá, para todos los efectos, que han sido reelectas las personas que integran la Comisión, para el nuevo período legal. Sin embargo, se deberá hacer la elección que indica el inciso a) del artículo 202.

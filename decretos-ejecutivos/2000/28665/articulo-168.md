@@ -1,0 +1,1 @@
+Artículo 168.—La anotación a que se refiere el artículo 68 de la Ley, se consignará en el expediente del respectivo productor, a solicitud escrita del interesado, el cual deberá aportar copia fiel del documento en el que conste la transferencia de la propiedad del inmueble.

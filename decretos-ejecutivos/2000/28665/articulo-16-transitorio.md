@@ -1,0 +1,1 @@
+Transitorio XVI.—El programa de entrega de caña, establecido por las Comisiones de Zafra, antes de la vigencia de este ordenamiento y de acuerdo a la normativa existente, regirá para la zafra 99/2000. Las modificaciones que se hagan posteriormente, deberán ajustarse a este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 111.—Transcurrido un mes desde la interposición del recurso de reposición o revocatoria, sin que se haya producido y notificado la correspondiente resolución, se entenderá desestimado y agotada la vía administrativa

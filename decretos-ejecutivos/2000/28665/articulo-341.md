@@ -1,0 +1,2 @@
+Artículo 341.—Los traspasos de contratos de exportación de azúcar, sólo serán permitidos cuando sean aprobados por la Junta Directiva de la Liga, la cual deberá verificar que dicho traspaso no perjudica a los correspondientes productores de caña, en la determinación del precio final de su producto o en la oportunidad de su pago.
+El azúcar de que se trate debe ser del mismo ingenio e igual al pactado. Dicho traspaso no podrá afectar las cuotas de producción asignadas.

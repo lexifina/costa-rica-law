@@ -1,0 +1,5 @@
+Artículo 312.—El adelanto en dinero por el azúcar y la miel final contenidos en la caña entregada por los productores, lo deberán pagar los ingenios, en un plazo de ocho días hábiles, que se regulará así:
+a) Se contará a partir de la fecha de cada entrega de caña, según lo dispuesto en el artículo 98 de la Ley.
+b) Tratándose de modificaciones efectuadas en los citados adelantos, el referido plazo se contará a partir de la fecha en que rijan dichas modificaciones.
+c) En el caso de los ajustes que se hagan, en el transcurso de la molienda, de los porcentajes de adelanto de azúcar de 96º Pol y de la miel final contenidos en la caña entregada, conforme al párrafo primero del artículo 255, el referido plazo se contará a partir de la fecha en que el ingenio reciba la comunicación escrita de la Liga, lo cual deberá verificar el Director Ejecutivo.
+d) Para los ajustes que correspondan, una vez concluida la molienda, en aplicación de lo dispuesto en los artículos 239 y 241, el referido plazo se contará a partir de la fecha en que el ingenio reciba la comunicación escrita del Departamento Técnico, lo cual deberá verificar el Jefe de dicho Departamento

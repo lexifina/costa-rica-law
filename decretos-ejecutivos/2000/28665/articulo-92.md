@@ -1,0 +1,2 @@
+Artículo 92.—Los cuatro directores propietarios y los cuatro directores suplentes que corresponde nombrar a la organización del sector cañero, se designarán por su Asamblea General y de conformidad con lo señalado por el artículo 51 de la Ley.
+Cuando se proceda a los citados nombramientos, deberá indicarse cuales serán los dos propietarios y los dos suplentes que, junto a los otros directores designados, integrarán el Consejo de Comercialización Ampliado.

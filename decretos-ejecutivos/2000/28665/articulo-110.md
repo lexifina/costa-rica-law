@@ -1,0 +1,1 @@
+Artículo 110.—El recurso de reposición o revocatoria deberá interponerse ante el Consejo de Comercialización, en el plazo de quince días hábiles, a contar de la fecha en que se notifique el acto. Para esos efectos, regirá lo dispuesto en los artículos 45, 46 y 47 de este Reglamento.

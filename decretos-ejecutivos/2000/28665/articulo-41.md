@@ -1,0 +1,1 @@
+Artículo 41.—En caso de empate, se repetirá la votación en la siguiente sesión. Si el empate persiste, el asunto se enviará a la Asamblea General para que ésta resuelva. Necesariamente la convocatoria a sesión extraordinaria de dicho Órgano para la indicada finalidad, deberá acordarse en la sesión en que se produjo el segundo empate

@@ -1,0 +1,1 @@
+Artículo 227.—La Liga mediante su Asesoría Legal o mediante sus inspectores, podrá revisar los expresados contratos, en cualquier momento dentro de las horas hábiles de las oficinas de los ingenios, ubicadas en donde estén sus principales instalaciones.

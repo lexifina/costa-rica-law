@@ -1,0 +1,5 @@
+Artículo 214.—Le corresponderá al Departamento Técnico, determinar la cuota de referencia individual de cada productor independiente, antes del 31 de octubre de la zafra en que se aplicarán esas cuotas.
+Dicho Departamento hará la distribución de la cantidad de azúcar que los ingenios deben adquirir a cada productor independiente, dentro de la cuota de producción de azúcar que les fue asignada.
+Para los efectos anteriores, se observará lo dispuesto en los artículos 74 y siguientes de la Ley.
+La estimación a que se refiere el párrafo segundo del artículo 75 de la Ley se hará, provisionalmente, de conformidad con lo dispuesto en el numeral 72 y concordantes de dicho ordenamiento y se revisará en los ocho días calendario siguientes, a la conclusión del plazo para registrar la caña, según corresponda. El monto definitivo será fijado según lo dispuesto en el párrafo segundo del citado artículo 75.
+También el citado Departamento, establecerá la cantidad de azúcar que le corresponde a cada productor independiente, en los excedentes que elabore el ingenio, todo con sujeción al artículo 81 de la Ley.

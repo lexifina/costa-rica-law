@@ -1,0 +1,1 @@
+Artículo 197.—Los productores que no realicen el citado registro, por causas imputables a ellos, no participarán en la correspondiente programación de zafra, ni en la participación en la cuota de producción del ingenio de que se trate.

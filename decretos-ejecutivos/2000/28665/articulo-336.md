@@ -1,0 +1,1 @@
+Artículo 336.—El ingenio deberá vender el total del azúcar elaborado para la exportación, conforme a las cuotas individuales otorgadas dentro del respectivo año azucarero. En caso contrario, se aplicará lo dispuesto en los artículos 113 y 157, párrafo segundo de la Ley.

@@ -1,0 +1,1 @@
+Artículo 267.—Para desempeñar el cargo de inspector del Departamento Técnico de la Liga, se requiere ser egresado de segunda enseñanza o reunir la preparación equivalente, y aprobar los cursos que ordene el Departamento Técnico de la Liga. A dichos inspectores, la Liga los acreditará mediante la identificación correspondiente.

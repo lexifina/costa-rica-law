@@ -1,0 +1,1 @@
+Artículo 300.—La sección del laboratorio de los ingenios, que tenga a su cargo la aplicación del Sistema de Compra de Caña por Calidad, quedará sujeta para su operación, a la aprobación, por escrito, del Departamento Técnico de la Liga, la cual deberá renovarse cada año, antes del inicio de la molienda

@@ -1,0 +1,2 @@
+Transitorio VI.—La Asamblea Nacional Electoral Cañera deberá celebrar la sesión ordinaria, en los veintidós días calendario siguientes, a la fecha en que se hayan concluido los nombramientos indicados en el transitorio IV.
+El Órgano Directivo de la Federación de Cámaras de Productores de Caña, hará la convocatoria correspondiente, en esta oportunidad mediante un periódico de circulación diaria. Dicha publicación se efectuará con ocho días calendario de anticipación, por lo menos, a la fecha de la sesión.

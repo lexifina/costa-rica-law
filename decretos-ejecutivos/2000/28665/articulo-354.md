@@ -1,0 +1,1 @@
+Artículo 354.—Los exportadores de azúcar están obligados a mantener al día los datos de su inscripción en el respectivo registro, para lo cual informarán a la Liga, cualquier modificación que ocurra, dentro de los quince días hábiles siguientes.

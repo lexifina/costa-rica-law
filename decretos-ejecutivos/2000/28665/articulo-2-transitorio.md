@@ -1,0 +1,1 @@
+Transitorio II.—Las determinaciones, fijaciones y proporcionalidad a que se refieren los incisos a), b) y c) del artículo 144, las realizará la Liga, en los quince días calendario siguientes a la vigencia del Título Tercero de la Ley.

@@ -1,0 +1,1 @@
+Artículo 220.—El azúcar de 96º de polarización que calcule el Sistema Directo de Compra de Caña por su Calidad, de la caña entregada por cada productor, se ajustará al Factor de Adelanto de Azúcar (%AA) fijado al ingenio, para los efectos de hacer los cargos correspondientes al monto de azúcar que tiene derecho a entregar dentro de cuota y en régimen de extracuota.

@@ -1,0 +1,1 @@
+Artículo 138.—La forma de designar y constituir la Asamblea Nacional Electoral Cañera, la Asamblea General y el Órgano Directivo de la federación o unión del sector cañero, así como las atribuciones de esos Órganos, según se estatuye en la Ley, privarán sobre cualquier disposición estatutaria de dicha federación o unión, de la Ley de Asociaciones o su reglamento.

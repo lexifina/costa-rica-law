@@ -1,0 +1,3 @@
+Artículo 287.—El funcionario que reciba el recurso se limitará a remitir el expediente, sin admitirlo ni rechazarlo, a la expresada Junta. El recurso indicará el nombre completo, calidades y cédula de identidad si se trata de personas físicas y en el caso de personas jurídicas la razón social y el número de la respectiva cédula; en ambos casos se consignará la dirección exacta para notificaciones.
+El recurso contendrá indicación breve de los hechos y quejas que lo motivan, y no será necesaria la cita de normas legales ni la autenticación de la firma.
+En lo demás se seguirá el procedimiento administrativo ordinario o sumario, según proceda, establecido por la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Transitorio XV.—Las determinaciones a que se refiere el artículo 214, efectuadas por la Liga, con anterioridad a la vigencia de este Reglamento, tendrán validez para la zafra 99/2000. Las modificaciones que se hagan posteriormente en esas determinaciones, en dicho período, se sujetarán a lo dispuesto en el presente Reglamento.

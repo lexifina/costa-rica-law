@@ -1,0 +1,1 @@
+Artículo 135.—Las asociaciones que integren a la entidad a que se refiere el artículo anterior, deberán reunir, entre sus afiliados, a la mayor cantidad de entregadores de caña a los ingenios en las zonas agroindustriales establecidas en este ordenamiento

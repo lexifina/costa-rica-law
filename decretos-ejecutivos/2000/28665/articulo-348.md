@@ -1,0 +1,1 @@
+Artículo 348.—A los exportadores la Liga les cobrará, al costo, los gastos adicionales en que incurra por ventas directas de azúcar para la exportación, derivados de la fiscalización de la calidad y de la vigilancia del cumplimiento de la ley y sus reglamentos.

@@ -1,0 +1,1 @@
+Artículo 311.—El precio provisional o adelanto en dinero, que los ingenios deberán pagar a los productores, por cada kilogramo de azúcar de 96º Pol y de miel final contenidos en la caña que entreguen, corresponderá al azúcar de 96º Pol y a la miel final estimados, conforme al Sistema Directo de Compra de Caña por su Calidad.

@@ -1,0 +1,1 @@
+Artículo 362.—Para los efectos de los artículos 128 y 129 de la Ley, si el ingenio de que se trate ha recibido, ordinariamente, caña cultivada en otra zona, a ella se extenderá la zona del referido ingenio.

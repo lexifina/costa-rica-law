@@ -1,0 +1,1 @@
+Artículo 79.—La Asamblea General resolverá el recurso, en la sesión que para ese efecto ha sido convocada o a más tardar en una siguiente sesión, que deberá celebrarse dentro de los quince días calendario siguientes

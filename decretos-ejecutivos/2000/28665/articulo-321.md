@@ -1,0 +1,1 @@
+Artículo 321.—Valor neto del total producido dentro de la Cuota Nacional de Producción de Azúcar. El monto económico resultante de la aplicación de artículo 319, menos las deducciones indicadas en el artículo 320, constituirá el valor neto del total producido dentro de la Cuota Nacional de Producción de Azúcar

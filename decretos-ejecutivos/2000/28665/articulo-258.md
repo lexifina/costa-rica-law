@@ -1,0 +1,3 @@
+SECCIÓN CUARTA
+De la miel final
+Artículo 258.—En los primeros ocho días de cada mes, los ingenios están obligados a presentar al Departamento Técnico de la Liga, un informe que consigne la existencia de melaza (miel residual), la melaza vendida o usada por la empresa del ingenio y el precio a que se efectuaron las transacciones. Dichos informes tendrán el valor y trascendencia legales de una declaración jurada. Deberán ser firmados por persona debidamente autorizada por escrito. La inclusión de datos falsos o la alteración de los datos reales, será denunciada ante las autoridades competentes a efecto de que se aplique la sanción correspondiente al tipo penal referido en el artículo 138 de la Ley.

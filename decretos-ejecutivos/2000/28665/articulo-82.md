@@ -1,0 +1,1 @@
+Artículo 82.—Los directores recurrentes, sus Abogados o asesores, tendrán derecho en cualquier fase del procedimiento del recurso de apelación, a examinar, leer y copiar cualquier pieza del expediente, así como a pedir certificación de la misma.

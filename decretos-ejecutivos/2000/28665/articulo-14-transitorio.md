@@ -1,0 +1,1 @@
+Transitorio XIV.—Las fijaciones efectuadas por la Junta Directiva, en aplicación del artículo 79 de la Ley, regirán para la zafra 99/2000. Las modificaciones que se hagan posteriormente, en dicho período, se sujetarán a lo dispuesto en el presente Reglamento.

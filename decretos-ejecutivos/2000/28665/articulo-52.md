@@ -1,0 +1,1 @@
+Artículo 52.—Transcurridos dos meses desde la interposición del recurso de reposición o revocatoria, sin que se haya producido y notificado la correspondiente resolución, se entenderá desestimado y quedará expedita la vía contencioso administrativa. Regirá, además, lo prescrito en el numeral 127 de la Ley General de la Administración Pública.

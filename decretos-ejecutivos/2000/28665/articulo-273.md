@@ -1,0 +1,1 @@
+Artículo 273.—El inspector cuando realice inspecciones, procurará llevar los equipos electrónicos correspondientes al indicador e impresor, para sustituir al que estuviere defectuoso. Dichos equipos se prestarán al ingenio mientras se repara el que falló.

@@ -1,0 +1,1 @@
+Artículo 49.—Contra los actos de la Junta Directiva que no resuelvan definitivamente el procedimiento administrativo, procederá exclusivamente el recurso de reposición o de revocatoria, regulados por la Ley General de la Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 225.—La participación correspondiente a un productor en la cuota de producción de azúcar asignada a un ingenio, podrá ser intercambiada con la de otro productor independiente en otro ingenio, siempre que dichos ingenios y los respectivos productores estén de acuerdo y no se altere la cantidad equivalente en azúcar de 96º Pol.
+Lo anterior deberá hacerse constar por escrito y ajustarse a los incisos a), b) y c) del artículo anterior. Se enviará copia del documento respectivo a las correspondientes Comisiones de Zafra, para los efectos que procedan.

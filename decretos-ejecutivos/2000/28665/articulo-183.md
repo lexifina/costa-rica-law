@@ -1,0 +1,3 @@
+Artículo 183.—Con fundamento en la Ley General de la Administración Pública, los recursos que se interpongan, no tendrán efecto suspensivo de la ejecución del acto impugnado. Sin embargo, éste podrá ser suspendido por la Junta Directiva de la Liga de oficio o a petición de parte, por resolución motivada, si su ejecución pudiera causar perjuicios graves o de difícil reparación a la parte interesada.
+No cabrán recursos contra la resolución que suspenda los efectos del acto recurrido ni contra las conexas que sean de mero trámite.
+Las resoluciones de la Junta Directiva se notificarán de conformidad con los artículos 45, 46 y 47 de este Reglamento

@@ -1,0 +1,1 @@
+Transitorio XIII.—Si los nombramientos indicados en el transitorio anterior, no se han realizado al entrar en vigencia este Reglamento, deberán hacerse en los quince días calendario siguientes a la fecha de su publicación.

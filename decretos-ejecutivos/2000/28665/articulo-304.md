@@ -1,0 +1,1 @@
+Artículo 304.—El Departamento Técnico de la Liga dictará, cuando lo considere conveniente, las normas complementarias, con el fin de asegurar que los laboratorios reúnan las condiciones adecuadas, para su debido funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 42.—Los acuerdos y resoluciones quedarán firmes una vez que sea leída y aprobada el acta en donde consten. Podrán adquirir firmeza en la misma sesión en que se adopten, con el voto de los dos tercios de la totalidad de los miembros de la Junta

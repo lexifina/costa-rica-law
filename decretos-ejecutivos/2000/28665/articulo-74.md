@@ -1,0 +1,1 @@
+Artículo 74.—El recurso se presentará por escrito, a la Junta Directiva, la cual se limitará a ponerlo en conocimiento de la Asamblea General, sin admitirlo ni rechazarlo. Deberá acompañarle de un dictamen de la Asesoría Legal, en el que se exprese su criterio sobre el recurso

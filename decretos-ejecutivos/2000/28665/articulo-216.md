@@ -1,0 +1,1 @@
+Artículo 216.—Si se produjeren incrementos en la cuota de producción de azúcar del ingenio, se deberán recalcular por el Departamento Técnico las adjudicaciones efectuadas a cada productor independiente, según lo dispuesto por los artículos 74, 75 y 78 de la Ley. Lo anterior será comunicado a la Comisión de Zafra.

@@ -1,0 +1,1 @@
+Artículo 21.—El recurso de revocatoria no tendrá efecto suspensivo de la ejecución del acto. Sin embargo, la Asamblea General, en acto motivado, podrá suspender dicha ejecución, cuando ella pueda causar perjuicio grave o de imposible o difícil reparación.

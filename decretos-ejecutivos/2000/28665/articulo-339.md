@@ -1,0 +1,1 @@
+Artículo 339.—No se inscribirán ni se autorizarán los contratos de exportación de azúcar, efectuados por exportadores que no estén debidamente inscritos en el registro correspondiente o que se encuentren en mora, en el cumplimiento de las disposiciones de la Ley y este Reglamento.

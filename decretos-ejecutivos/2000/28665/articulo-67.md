@@ -1,0 +1,1 @@
+Artículo 67.—La ausencia injustificada de los que promovieron el recurso, no impedirá que la comparecencia se lleve a cabo, pero no valdrá como aceptación por ellos de los hechos, pretensiones ni pruebas de la administración o de la contraparte. En todo caso, se evacuará la prueba previamente ofrecida por la parte ausente, si ello es posible.

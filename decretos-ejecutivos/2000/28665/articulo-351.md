@@ -1,0 +1,1 @@
+Artículo 351.—La Junta Directiva podrá delegar en un funcionario calificado de la Liga, las aprobaciones o autorizaciones a que se refieren los artículos 338, 339, 340 y 341 de este Reglamento y, asimismo, el acto indicado en el numeral 343 ibidem. Se entenderá, para los efectos de la impugnación de dicho acto, que éste ha sido dictado por la Junta Directiva

@@ -1,0 +1,1 @@
+Artículo 125.—Terminada la comparecencia el asunto quedará listo para dictar el acto definitivo, lo cual deberá hacer el Consejo de Comercialización, dentro de los quince días hábiles posteriores a la fecha de la citada comparecencia

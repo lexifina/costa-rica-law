@@ -1,0 +1,3 @@
+Artículo 43.—En caso de que alguno de los miembros de la Junta Directiva, interponga recurso de revisión contra un acuerdo o resolución, el mismo será resuelto al conocerse el acta de esa sesión. Si la Junta aprueba la revisión, el asunto volverá al estado en que estaba, antes de votarse la cuestión que dio motivo a ella. Los acuerdos firmes carecerán del citado recurso.
+Aquellos que tengan interés directo en el asunto de que se trate, podrán interponer el citado recurso.
+Las simples observaciones de forma relativas a la redacción de los acuerdos, no serán consideradas, para efectos del párrafo primero, como recursos de revisión.

@@ -1,0 +1,1 @@
+Artículo 276.—Los ingenios deberán dar a los inspectores de la Liga, todas las facilidades que sean necesarias, para el cabal cumplimiento de sus responsabilidades. Tendrán libre acceso a las instalaciones relacionadas con el recibo y la evaluación de la calidad de la caña, en cualquier hora y día.

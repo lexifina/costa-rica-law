@@ -1,0 +1,1 @@
+Artículo 294.—El Departamento Técnico mediante los inspectores de calidad de azúcar, hará las revisiones de empaque para el azúcar destinado al consumo nacional, a que se refiere el artículo 144 de la Ley, y procederá, cuando se justifique, según lo estatuido en dicha disposición.

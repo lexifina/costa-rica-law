@@ -1,0 +1,3 @@
+Artículo 145.—La convocatoria indicada en el inciso g) del artículo anterior, la hará el Director Ejecutivo de la Liga de la Caña, para cada zona agroindustrial, por lo menos, con ocho días calendario de anticipación a la fecha señalada, indicando lugar y hora.
+La convocatoria se efectuará en una sola publicación, en un periódico de circulación nacional y por los otros medios de comunicación que considere convenientes el Director Ejecutivo de la Liga.
+Asimismo, podrá ordenar que, durante el citado período, se coloquen impresos con el mismo texto de la publicación, en un lugar visible de las instalaciones de recibo de caña de los ingenios

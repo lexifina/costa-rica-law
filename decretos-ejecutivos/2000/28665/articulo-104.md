@@ -1,0 +1,1 @@
+Artículo 104.—En caso de empate se repetirá la votación en la siguiente sesión. Si el empate persiste el Presidente lo resolverá mediante voto de calidad, salvo que se exigiere votación calificada superior a los votos resultantes

@@ -1,0 +1,2 @@
+Artículo 209.—El Secretario de la Comisión de Zafra, en el día hábil siguiente al recibo de la apelación, remitirá el expediente a la Junta Directiva de la Liga, sin mediar trámite alguno de rechazo o de admisión. El Secretario, en la siguiente sesión, informará de lo anterior a la Comisión de Zafra.
+La Junta Directiva resolverá en cualquiera de las dos sesiones ordinarias inmediatamente posteriores a la conclusión de los trámites indicados en los artículos 210 y 211.

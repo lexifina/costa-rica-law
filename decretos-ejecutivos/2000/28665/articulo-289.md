@@ -1,0 +1,1 @@
+Artículo 289.—La inspección de la calidad del azúcar, necesariamente, se efectuará previamente a su venta, y posterior a ella, en forma discrecional, por los inspectores de calidad de la Liga de la Caña, los cuales dependerán exclusivamente del Departamento Técnico

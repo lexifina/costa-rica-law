@@ -1,0 +1,1 @@
+Artículo 35.—En caso de ausencia o enfermedad o cuando ocurra alguna causa justa, el Presidente, el Vicepresidente y el Secretario serán sustituidos así: el primero por el Vicepresidente, el segundo por un Vicepresidente ad-hoc y el tercero por un Secretario ad-hoc.

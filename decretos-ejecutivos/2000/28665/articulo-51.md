@@ -1,0 +1,1 @@
+Artículo 51.—El recurso de reposición o revocatoria a que se refiere el artículo 48, debe interponerse ante la Junta Directiva, en el plazo de dos meses, a contar de la fecha en que se notifique o publique el acto, según lo señalado en el presente reglamento

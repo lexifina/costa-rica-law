@@ -1,0 +1,1 @@
+Transitorio V.—Las designaciones indicadas en el transitorio anterior, serán por el período comprendido entre la fecha en que concluyan los nombramientos efectuados según el Transitorio IV y el 31 de diciembre del 2002.

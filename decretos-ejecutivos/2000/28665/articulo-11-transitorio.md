@@ -1,0 +1,1 @@
+Transitorio XI.—Para los efectos de los artículos 195 y 196, los registros de entrega de caña efectuados, conforme a la reglamentación existente, a la entrada en vigencia del presente Reglamento se considerarán válidos para la zafra 1999/2000.

@@ -1,0 +1,4 @@
+Artículo 150.—En el supuesto del inciso e) del artículo 148, o en caso de muerte o renuncia, se observará lo siguiente:
+a) Si se trata de un miembro designado por una asociación de productores de caña, ésta hará la sustitución en los quince días calendario siguientes, a la fecha de la remoción o a la fecha en que haya tenido conocimiento del fallecimiento o renuncia.
+b) Si se trata de un miembro designado por personas que no estén afiliados a una asociación de productores de caña, la reunión para conocer de la sustitución, deberá efectuarse dentro de los treinta días calendario siguientes, a la fecha en que haya ocurrido la muerte o renuncia. En el caso de remoción, ese plazo se contará a partir de la fecha en que haya sido solicitada, al menos, por el diez por ciento de ellos a la Liga de la Caña.
+Regirá lo dispuesto en los artículos 144 inciso g), 145 y 146.

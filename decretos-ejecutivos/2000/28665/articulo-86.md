@@ -1,0 +1,2 @@
+Artículo 86.—Transcurrido un mes desde la interposición del recurso de apelación, sin que se haya notificado la correspondiente resolución, se entenderá desestimado y quedará expedita la vía contencioso administrativa. Regirá, además, lo prescrito en el numeral 127 de la Ley General de la Administración Pública.
+No obstante, en el supuesto del párrafo segundo del artículo 23 de la ley, el plazo indicado se contará desde que recibió el expediente respectivo, el Tribunal correspondiente

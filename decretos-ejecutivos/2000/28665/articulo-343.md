@@ -1,0 +1,2 @@
+Artículo 343.—La Junta Directiva, en aplicación del artículo 158 de la Ley, tendrá la facultad para rechazar cualquier negociación de exportación de azúcar, cuyo precio de venta sea visiblemente inferior a las cotizaciones prevalecientes en los mercados internacionales.
+En el caso de que se impugne lo resuelto por la citada Junta se aplicará lo dispuesto en la Sección Quinta del Capítulo Segundo del Título Segundo de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 340.—Para autorizar la exportación de azúcar, debe la Liga constatar, previamente, que se conforma en un todo con el sistema de cuota establecido, y que no viola los convenios internacionales suscritos por el país, ni afecta o dificulta el correcto cumplimiento de las cuotas otorgadas a Costa Rica, en los mercados preferenciales de azúcar.

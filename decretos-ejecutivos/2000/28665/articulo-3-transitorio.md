@@ -1,0 +1,1 @@
+Transitorio III.—La convocatoria para la reunión indicada en el inciso g) del artículo 144, la efectuará la Liga, por medio de la Dirección Ejecutiva, con ocho días calendario, por lo menos, de anticipación a la fecha establecida para dicha reunión.

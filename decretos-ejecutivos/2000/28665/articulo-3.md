@@ -1,0 +1,1 @@
+Artículo 3º—Los ingenios y la organización del sector cañero podrán designar suplentes para suplir a los miembros propietarios, con numeración consecutiva del uno en adelante. Los suplentes, en ese orden, sustituirán a los titulares en caso de ausencia de cualquiera de ellos.

@@ -1,0 +1,3 @@
+Artículo 293.—En tanto la multa a que se refiere el artículo 141 de la Ley o cualquier otra establecida por el ordenamiento jurídico, no sea pagada, no se practicarán nuevas calificaciones de azúcar al ingenio o al importador respectivos.
+Empero, mientras no se resuelva el procedimiento sancionatorio, podrán efectuarse calificaciones de azúcar, si se rindiera garantía satisfactoria, a juicio de la Junta Directiva, del pago de la multa.
+Corresponderá al Director Ejecutivo, comunicar por escrito al Departamento Técnico, los casos concretos en que no proceda practicar nuevas calificaciones de azúcar a un ingenio o a un importador y cuando se podrán hacer de nuevo.

@@ -1,0 +1,1 @@
+Artículo 105.—Los acuerdos y resoluciones quedarán firmes una vez que sea leída y aprobada el acta en donde consten. Podrán adquirir firmeza en la misma sesión en que se adopten, con el voto de la mayoría absoluta de la totalidad de los miembros del Consejo.

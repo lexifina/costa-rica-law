@@ -1,0 +1,2 @@
+Artículo 245.—Para los métodos analíticos no establecidos o referidos en este Reglamento, se aplicarán supletoriamente aquellos generalmente aceptados, según determinación que hará el Departamento Técnico de la Liga, previa consulta con la Comisión Asesora de dicha Corporación.
+Dichas determinaciones serán informadas a la Junta Directiva y deberán publicarse en el Diario Oficial.

@@ -1,0 +1,5 @@
+SECCIÓN QUINTA
+Sesiones
+Artículo 155.—La Asamblea Nacional Electoral Cañera sesionará ordinariamente, en las oportunidades en que le corresponda hacer los nombramientos indicados en el artículo 152; y extraordinariamente, cuando sea convocada por su Presidente, su Vicepresidente, la mayoría de los delegados de una zona o el Órgano Directivo de la federación o unión del sector cañero.
+Si el asunto que se pretende conocer, mediante la referida convocatoria, no está comprendido en las atribuciones de la Asamblea Nacional Electoral Cañera, el Presidente o en su defecto el Vicepresidente, previa consulta con el asesor legal de la federación o unión, rechazará de plano la solicitud.
+El Órgano Directivo de dicha federación o unión hará la convocatoria, mediante publicación en un periódico de circulación diaria y por nota escrita que se remitirá únicamente a los miembros que hubieren registrado su dirección en ella. Tanto la publicación como la remisión mencionadas, deberán hacerse, por lo menos, con diez días calendario de anticipación a la fecha de la sesión.

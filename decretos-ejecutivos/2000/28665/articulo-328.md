@@ -1,0 +1,1 @@
+Artículo 328.—Valor neto del total producido dentro de la Cuota Nacional de Producción de Azúcar. El monto económico resultante de la aplicación del artículo 326, menos las deducciones indicadas en el artículo 327, constituirá el valor neto del total producido dentro de la Cuota Nacional de Producción de Azúcar.

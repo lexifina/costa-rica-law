@@ -1,0 +1,1 @@
+Artículo 80.—Los recurrentes podrán asistir a las sesiones de la Asamblea General en que se conozca el recurso interpuesto, acompañados de sus Abogados o asesores. En esas oportunidades harán las alegaciones que consideren pertinentes, y sus Abogados y asesores podrán intervenir para sustentarlas

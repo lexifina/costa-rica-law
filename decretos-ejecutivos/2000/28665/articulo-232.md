@@ -1,0 +1,3 @@
+Artículo 232.—Cuando se perciban en el momento de recibirse una entrega de caña, por sus propiedades Órganolépticas, condiciones a juicio del inspector de la Liga, indicativas de un alto deterioro en dicha materia prima, resultado de la presencia de hongos, levaduras o deshidratación en los tallos, que pueda afectar sustancialmente el proceso de fabricación de azúcar, se procederá en la siguiente forma:
+a) Dicho inspector ordenará rechazar la entrega correspondiente.
+b) El citado inspector levantará acta sucinta de lo acontecido y del criterio que fundamentó el rechazo de la caña. De dicho documento se dará copia al productor interesado, al ingenio y al Departamento Técnico de la Liga.

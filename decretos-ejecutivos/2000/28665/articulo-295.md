@@ -1,0 +1,2 @@
+Artículo 295.—La Junta Directiva determinará, previo el asesoramiento técnico correspondiente, el máximo de temperatura al que los ingenios deberán envasar el azúcar para su comercialización. Lo anterior constituirá una norma de calidad, por cuanto su incumplimiento afectará el color.
+El azúcar envasado con infracción a la indicada norma, no podrá comercializarse. La venta de azúcar por un ingenio, con infracción a la indicada norma, lo hará acreedor a la sanción del inciso c) del artículo 167 de la Ley.

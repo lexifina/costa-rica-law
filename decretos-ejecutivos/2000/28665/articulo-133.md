@@ -1,0 +1,1 @@
+Artículo 133.—Transcurrido un mes desde la interposición del recurso de apelación, sin que se haya producido y notificado la correspondiente resolución, se entenderá rechazado, para todos los efectos.

@@ -1,0 +1,1 @@
+Artículo 231.—A cada entrega de caña se le asignará, en la oportunidad de pesarse, un código impreso u otro medio idóneo de identificación a juicio del Departamento Técnico. Dicho Departamento tomará las medidas complementarias, a efecto de asegurar que esta identificación se mantendrá hasta que la calidad de esa caña sea evaluada.

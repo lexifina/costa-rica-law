@@ -1,0 +1,1 @@
+Artículo 314.—En aquellos ingenios en los cuales se registren déficit, en la obtención de azúcar y de miel final de la caña procesada, con respecto al rendimiento mínimo a que están obligados, conforme al Sistema Directo de Compra de Caña por su Calidad, se asumirá que esos ingenios obtuvieron el referido mínimo.

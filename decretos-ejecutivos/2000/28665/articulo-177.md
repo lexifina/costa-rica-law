@@ -1,0 +1,1 @@
+Artículo 177.—En aquellos casos en que los registradores consideren indispensable, la apreciación jurídica de los defectos encontrados en la solicitud, elevarán el asunto al conocimiento de la Asesoría Legal de la Liga y su pronunciamiento será vinculante

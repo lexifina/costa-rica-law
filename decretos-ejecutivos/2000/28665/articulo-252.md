@@ -1,0 +1,1 @@
+Artículo 252.—Al jugo extraído se le determinará el % Brix y el % Pol, por los métodos analíticos comúnmente aceptados. En el caso del % Brix, deberá determinarse por refractómetro. Para este análisis podrán utilizarse otros equipos previamente autorizados por el Departamento Técnico.

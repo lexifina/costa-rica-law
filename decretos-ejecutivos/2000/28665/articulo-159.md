@@ -1,0 +1,1 @@
+Artículo 159.—Los miembros suplentes que nombre la Asamblea Nacional Electoral Cañera, en los Órganos de la federación o unión que represente al sector cañero, no tendrán derecho a estipendio alguno, salvo el que existiera cuando sustituyan a miembros propietarios

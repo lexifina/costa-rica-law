@@ -1,0 +1,1 @@
+Artículo 179.—El Registro es público y puede ser consultado por cualquier persona. Sin embargo, corresponderá al Jefe de ese Registro, determinar la forma en que la documentación podrá ser consultada sin riesgo de alteración, pérdida o deterioro

@@ -1,0 +1,1 @@
+Artículo 303.—Para los análisis de las calidades de los azúcares, el laboratorio deberá seguir la metodología de análisis establecida por ICUMSA (International Commission For Uniform Methods Sugar Analysis).

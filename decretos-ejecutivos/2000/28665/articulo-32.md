@@ -1,0 +1,2 @@
+Artículo 32.—Los tres directores propietarios y los tres directores suplentes que corresponde nombrar a la organización del sector cañero, se designarán por su Asamblea General y de conformidad con lo señalado por los artículos 25 y 51 de la Ley.
+En igual forma se procederá cuando deba sustituirse a cualquier miembro propietario o suplente, por las causas señaladas en el artículo 27 de la Ley o por razones de conveniencia o necesidad, fallecimiento o renuncia. En los casos anteriores deberá respetarse lo estatuido en el artículo 25 de la Ley.

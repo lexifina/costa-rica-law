@@ -1,0 +1,1 @@
+Artículo 349.—Cuando el ingenio actúe como exportador de su propio azúcar, le serán aplicables las mismas disposiciones y adquirirá las mismas obligaciones impuestas a los exportadores por la Ley y este Reglamento.

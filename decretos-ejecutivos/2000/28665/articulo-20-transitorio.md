@@ -1,0 +1,1 @@
+Transitorio XX.—Se autoriza a los ingenios cuyos comprobantes y recibos equivalentes a los indicados en los artículos 235 y 236 del presente ordenamiento, que no reúnan todos los requisitos previstos en dichos artículos, a utilizar en la zafra 1999-2000 aquellos que han venido emitiendo.

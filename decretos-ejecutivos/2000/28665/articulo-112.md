@@ -1,0 +1,1 @@
+Artículo 112.—El recurso de reposición o de revocatoria no tendrá efecto suspensivo de la ejecución del acto. Sin embargo, el Consejo de Comercialización podrá suspender dicha ejecución, cuando la misma pueda causar perjuicio grave o de imposible o difícil reparación

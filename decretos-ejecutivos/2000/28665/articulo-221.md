@@ -1,0 +1,5 @@
+Artículo 221.—El déficit que ocurra en la entrega de caña, de acuerdo con el programa establecido, será distribuido entre todos los demás productores independientes, en proporción a su cuota de referencia.
+El productor que incumpliere con la entrega de caña programada, perderá su derecho a la porción que le correspondía entregar. Lo anterior deberá ser notificado a dicho productor, en la forma que indican los artículos 45 y siguientes de este Reglamento.
+Los reajustes correspondientes serán efectuados por el Departamento Técnico de la Liga, al finalizar la molienda del respectivo ingenio, y deberán ser aprobados por la Comisión de Zafra.
+Dichos reajustes se comunicarán a todos los productores mediante avisos escritos que colocará la Comisión de Zafra, en un lugar visible de las instalaciones de recibo de caña del ingenio.
+Si la Comisión considera que el déficit se debió a caso fortuito o fuerza mayor, regirá lo dispuesto en el párrafo tercero del artículo 218. En el supuesto de que se determinare que ocurrieron las indicadas causales, la Comisión de Zafra modificará la respectiva programación de entrega y no se aplicará sanción.

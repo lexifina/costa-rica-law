@@ -1,0 +1,1 @@
+Artículo 132.—Si se presentaren recursos de revocatoria o reposición y de apelación, en forma simultánea, contra acuerdos y resoluciones del Consejo de Comercialización, deberá tramitarse en primer lugar el recurso de revocatoria. En caso contrario, se tramitarán según el orden de su presentación
