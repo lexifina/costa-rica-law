@@ -1,4 +1,6 @@
+(Derogado)
 Nº 797
+(Esta Ley fue derogada por el artículo 43 de la Ley Orgánica del Colegio de Ingenieros Agrónomos, aprobada mediante ley N° 3855 del 6 de abril de 1967)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 Considerando:
 1º.-Que por Decreto-Ley Nº 429 de 5 de enero del año en curso, se introdujeron algunas reformas a la Ley Orgánica del Colegio de Ingenieros Agrónomos Nº 30 de 20 de diciembre de 1941, por las cuales se otorgaban a los Ingenieros Agrónomos facultades exclusivas en actividades comunes a otras profesiones;
