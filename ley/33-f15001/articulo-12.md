@@ -1,0 +1,1 @@
+Art. 12: -Los cursos que deben ganarse, y las materias de examen para optar á los grados de Bachiller y de Maestro en Artes, así como á cualquiera de los expresados títulos periciales, son los determinados respectivamente en los capítulos IX, XII y XIII del reglamento citado.

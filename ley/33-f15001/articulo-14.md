@@ -1,0 +1,1 @@
+Art. 14. -El tribunal de examen, previo al grado y títulos referidos, será compuesto de cuatro examinadores competentes, nombrados por el Rector, quien tendrá voto decisivo en caso de empate. El mismo Rector presidirá, el acto, pudiendo hacer sus veces el Sub-Secretario de Instrucción Pública, ó cualquiera de los Vocales del Consejo de Instrucción, que el mismo Rector designe.

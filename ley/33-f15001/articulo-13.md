@@ -1,0 +1,1 @@
+Art. 13 -Para la admisión de todo memorial en que se solicite el grado, ó alguno de los títulos dichos, es de esencia que el postulante lo acompañe también de un atestado de su buena conducta, expedido por la autoridad superior de Policía del lugar de su residencia, sobre la base de una información que dicha autoridad seguirá al intento.
