@@ -1,0 +1,1 @@
+Artículo 26.-Fuera de las responsabilidades civiles que podrán derivarse del incumplimiento de esta ley, las transgresiones a la misma serán penadas con multa de ¢ 500.00 a ¢ 5.000.00 o pena de prisión en el grado correspondiente.

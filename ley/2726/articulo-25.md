@@ -1,0 +1,1 @@
+Artículo 25.-El Servicio tendrá personería Jurídica propia, el Gerente y el Subgerente tendrán, indistintamente, la representación judicial y extrajudicial de esta Institución, con las facultades que para los apoderados generalísimos determina el artículo 1253 del Código Civil.

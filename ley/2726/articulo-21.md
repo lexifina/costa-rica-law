@@ -1,0 +1,1 @@
+Artículo 21.-Todo proyecto de construcción, ampliación o modificación de sistemas de abastecimiento de agua potable y disposición de aguas servidas y pluviales, público o privado, deberá ser aprobado previamente por el Servicio, el que podrá realizar la inspección que estime conveniente para comprobar que las obras se realizan de acuerdo con los planes aprobados.
