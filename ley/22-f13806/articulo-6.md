@@ -1,0 +1,1 @@
+Art. 6. Si ademas de los libros que quedan prohibidos, se intentase introducir en el Estado otros escritos impíos ò que sean contrarios à nuestra sana religión, las mismas autoridades los detendrán y mantendràn bajo de llave; dando cuenta al Gobierno, para que èste la dé con él al ordinario diocesano.

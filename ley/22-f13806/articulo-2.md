@@ -1,0 +1,1 @@
+Art. 2. Se espera que el Ordinario Diocesano remita al Gobierno el índice de los demas libros que ataquen el dogma y costumbres, que hubiese prohibido, ò en adelante prohibiere, previa la legal censura y formalidades correspondientes; á cuyo efecto se le remitirà copia de este decreto.
