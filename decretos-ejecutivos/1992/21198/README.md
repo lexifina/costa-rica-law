@@ -18,3 +18,4 @@ Reforma Reglamento Ley Forestal
 | 3 | 1993-02-15 | Decreto Ejecutivo 22017 (1993-02-15) |
 | 4 | 1993-12-15 | Decreto Ejecutivo 23202 (1993-12-15) |
 | 5 | 1995-01-03 | SINALEVI (sin norma nombrada) |
+| 6 | 1995-09-28 | Decreto Ejecutivo 24740 (1995-09-28) |
