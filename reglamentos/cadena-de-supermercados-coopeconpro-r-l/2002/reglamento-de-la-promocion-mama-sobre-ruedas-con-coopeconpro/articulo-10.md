@@ -1,0 +1,1 @@
+10.—A cerca de los premios: Se establecen como premios para aquellos que acierten las rifas: bicicletas, hornos, grabadoras, teléfonos, disman, plantillas de gas, ollas de presión, fax, licuadoras y scooter Yamaha 2002.

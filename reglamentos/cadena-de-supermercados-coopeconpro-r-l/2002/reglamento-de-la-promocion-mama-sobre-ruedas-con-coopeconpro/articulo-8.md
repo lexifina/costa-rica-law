@@ -1,0 +1,1 @@
+8º—Los ganadores de los premios serán aquellos que acierten el número y el último número de la serie, del primero, en el sorteo de la lotería de cada domingo y no infrinjan los puntos de nulidad que se citan en el punto Nº 9.

@@ -1,0 +1,1 @@
+4º—Los productos patrocinadores de la promoción de Aniversario con Coopeconpro son productos Desinfectantes Tronex, productos del Campo, Shampoo Pantene, Insecticida Raid Off, Salsas Banquete, Papel Higiénico Scott, Saba, Detergente Rinso, Atún Tesoro del Mar, Cloro Los Conejos, Embutidos Zar, Pastas Roma, Pozuelo, Jabón Bactex, San Luis, Colgate, Cera Rex, Magi, Maxigel.
