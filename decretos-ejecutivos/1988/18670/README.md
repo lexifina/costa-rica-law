@@ -13,3 +13,4 @@ Reglamento a la Ley de Asociaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-12-20 | la propia norma |
+| 2 | 1988-12-20 | Decreto Ejecutivo 29496 (2001-04-17) |
