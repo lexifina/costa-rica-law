@@ -1,0 +1,4 @@
+Artículo 4º—De las audiencias: En cualquier momento que lo considere conveniente, la Comisión podrá nombrar comités de expertos ad hoc con funciones de asesoría, de conformidad con el artículo 16 de la Ley N° 7788 de Biodiversidad.
+Asimismo, la Comisión podrá nombrar asesores para que asistan a las reuniones con voz pero sin voto, cuando lo juzgue conveniente. Estos asesores deberán ser elegidos por mayoría.
+Cada miembro de la Comisión, por su propia cuenta podrá contar con un equipo de no más de dos asesores para las reuniones de la Comisión o de subcomisiones. Los asesores no tendrán voz ni voto, salvo en las subcomisiones donde tendrán voz. En las sesiones de la Comisión, los asesores canalizarán sus aportes a través del titular o del suplente.
+En cualquier momento que la Comisión lo considere oportuno, podrá convocar a las sesiones a invitados especiales para analizar temas complejos o aspectos específicos de su quehacer.

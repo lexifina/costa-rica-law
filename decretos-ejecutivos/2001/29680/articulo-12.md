@@ -1,0 +1,1 @@
+Artículo 12.—Procedimiento para resolver conflictos: El trabajo de la Comisión se normará por el presente reglamento, y bajo el espíritu de consenso con la que fue creada. En caso de conflicto, el Presidente podrá nombrar una subcomisión entre sus miembros que analizará y dirimirá el asunto y planteará opciones de solución en la siguiente sesión.
