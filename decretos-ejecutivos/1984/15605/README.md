@@ -15,3 +15,4 @@ Crea Comisión de la Actividad Lechera
 | --- | --- | --- |
 | 1 | 1984-09-11 | la propia norma |
 | 2 | 1988-08-30 | Decreto Ejecutivo 18503 (1988-08-30) |
+| 3 | 1988-11-16 | Decreto Ejecutivo 18766 (1988-11-16) |
