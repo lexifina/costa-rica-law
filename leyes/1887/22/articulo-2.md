@@ -1,0 +1,1 @@
+Art. 2°. El señor Vánder Laat no queda obligado á construir los ferrocarriles de vía angosta ó de un solo riel á que se refiere la cláusula VI; mas en caso de que á él le conviniese construirlos, gozará de la exención de derechos de aduana y de muellaje sobre la introducción de útiles y materiales para su construcción.
