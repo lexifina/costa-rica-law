@@ -1,0 +1,1 @@
+Artículo 3°-Podrán participar únicamente las personas mayores de edad, con cédula en mano y que aparezcan inscritas en el Padrón Electoral que para tal efecto llevará la Municipalidad y que será exhibido en el lugar destinado para la consulta.

@@ -1,0 +1,1 @@
+Artículo 8°-La Corporación Municipal del cantón Jiménez, en visitará el recinto del Concejo de Distrito de Tucurrique para oficializar su primera sesión y de paso indicarles el proceder en adelante según reglamentación que establecerá el Municipio, se deberá contar además con la presencia de todos los servidores municipales de Tucurrique.

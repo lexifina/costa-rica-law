@@ -1,0 +1,1 @@
+Artículo 4°-Se podrá llevar a cabo la elección de candidatos si en el recinto se cuenta con la presencia de un mínimo de 100 personas, que será comprobado mediante firma de cada uno de los asistentes.
