@@ -1,0 +1,4 @@
+La Junta Directiva del Instituto Costarricense de Turismo, en Sesión Nº 2988, artículo 7°, inciso I) de 18 de junio de 1979, acordó:
+Modificar el artículo 106 del Reglamento Financiero del ICT, a fin de agilizar el trámite de pago de salarios en la oficina en Miami, mediante la adición del siguiente texto:
+"...En igual forma, se girará de estos fondos, no obstante lo establecido en el artículo 82, inciso d), los salarios del personal administrativo de esta oficina, para lo cual la contabilidad elaborará la planilla correspondiente, emitiendo simultáneamente el cheque de reembolso respectivo a favor de este fondo de caja chica. Por su parte, la oficina de Miami, deberá devolver a vuelta de correo la planilla con las firmas de recibido conforme de cada uno de los funcionarios".
+San José, 2 de octubre de 1979.
