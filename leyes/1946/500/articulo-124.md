@@ -1,2 +1,0 @@
-Artículo 124.-Como el Diputado se elegí por la Nación, queda prohibida la nominación simultanea de una persona como candidato a Diputado por diferentes provincias. Cuando tal ocurra, el Director del Registro Electoral, tomando en cuenta la voluntad del candidato o de las personeros del Partido respectivo, inscribirá una de las nominaciones, suprimiendo las demás.
-Cuando el candidato o partido no expresare su voluntad después de tres días de prevenidos por el Director, este incluirá una de las nominaciones hechas a su libre arbitrio.

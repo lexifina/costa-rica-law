@@ -1,3 +1,0 @@
-Artículo 153.- Es prohibido intervenir con los electores en el local de la Junta Receptora para darles instrucciones sobre la manera de votar; esa es la labor que se reserve a los Partidos Políticos.
-Con el propósito de que los partidos ilustren a los electores sobre el modo de votar, el Registro Electoral hará imprimir, además de las papeletas dichas en el artículo 59, un numero prudencial de ellas que llevaran, como característica adicional al dorso, bien visible, la palabra “muestra”.
-Estas papeletas de muestra serán distribuidas entre los Partidos que han de intervenir en la elección, por iguales partes.

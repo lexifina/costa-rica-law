@@ -1,1 +1,0 @@
-Artículo 220.- Si una elección hubiere de verificarse en periodo de suspensión de garantías, el decreto que las suspenda no surtirá efecto alguno durante el día de la elección, sino en aquellos aspectos que no tengan relación con el proceso electoral, el cual ha de llevarse a cabo en un clima de libertad y garantía ciudadana irrestrictas.

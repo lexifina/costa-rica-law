@@ -1,1 +1,0 @@
-Artículo 103.- Durante el periodo de sus funciones, el Tribunal Nacional y las Juntas Electorales, mientras no tengan local propio, podrán por propia autoridad, ocupar para sus labores las escuelas y otros locales públicos que no estén prestando determinado servicio y que consideren apropiados para ese objeto.

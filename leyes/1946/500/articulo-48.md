@@ -1,2 +1,0 @@
-Artículo 48.- Las peticiones o reclamos que se formulen al Registro Electoral se enumeraran en orden sucesivo y se anotaran en un libro de registro, que se llevara para ese solo efecto, con expresión de la hora y fecha de presentación.
-A cada petición o reclamo, además del número, se le pondrá la hora y fecha de presentación y si fueren peticiones, se expresara en su razón de recibido, como en el libro de registro, el número de personas a que se refiere, escrito en letras.

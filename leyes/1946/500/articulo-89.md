@@ -1,1 +1,0 @@
-Artículo 89.- La ausencia de uno o varios propietarios y sus respectivos suplentes no impedirá la instalación, y el acto se llevara a cabo con los presentes, sin perjuicio de que luego se complete la juramentación.

@@ -1,1 +1,0 @@
-Artículo 98.-Para que los organismos electorales actúen válidamente, es necesaria, con las excepciones que expresamente se hacen en este Código, la asistencia de la mitad de sus miembros más cualquier exceso.

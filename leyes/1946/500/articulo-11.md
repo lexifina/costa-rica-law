@@ -1,4 +1,0 @@
-Artículo 11- El tribunal Nacional Electoral estará Formado por res miembros propietarios y tres suplentes que deben ser electos y que tendrán la delegación de los tres supremos poderes.
-A tal efecto, dentro de los últimos ocho días del mes de Octubre del año anterior a cada elección, previa convocatoria que deberá hacer el poder Ejecutivo, el Congreso y la Corte Plena por simple mayoría nombraran su delegado y un suplente y lo comunicaran al Poder Ejecutivo.
-Este poder hará las designaciones que le corresponden, de un propietario y de un suplente y , acogiendo obligadamente las hechas por el congreso y por la corte, por medio de decreto que deberá publicarse dentro de los primeros tres días del mes de Noviembre, declarara integrado el Tribunal Nacional Electoral.
-Si algún poder fuere remiso a tal designación el Poder Ejecutivo al declarar integrado el Tribunal, hará las designaciones que corresponden al remiso.

@@ -1,1 +1,0 @@
-Articulo 181.-No será nula ningún papeleta por borrones o manchas que contengan, ni por otros defectos que indique que se tuvo dificultad al utilizarla, siempre que sea posible determinar en forma cierta la voluntad electoral del votante.

@@ -1,1 +1,0 @@
-Artículo 30.- Solo puede cancelarse la inscripción de un ciudadano cuando le sobrevenga la muerte, la declaratoria de ausencia o presunción de muerte, la perdida de la ciudadanía, cuando se prueba la extranjería o que la persona inscrita se halla en uno de los casos de excepción del artículo 1°.

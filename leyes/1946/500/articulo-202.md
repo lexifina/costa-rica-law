@@ -1,2 +1,0 @@
-CAPITULO II
-Articulo 202.- Corresponde al congreso constitucional aprobar la calificación y escrutinio de los votos emitidos para elegir Presidente de la Republica, Diputados al Congreso y Representantes a una Constituyente; conocer en única instancia de las demandas de nulidad que lleguen a plantearse en relación con la declaratoria provisional de elección de los mismos; y hacer la declaratoria definitiva de elección que en cuanto a ellos corresponda.

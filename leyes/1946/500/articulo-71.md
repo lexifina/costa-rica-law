@@ -1,1 +1,0 @@
-Artículo 71.- El Director General deberá publicar semestralmente un boletín electoral en donde informe detalladamente de las inscripciones traslados anotaciones y cancelaciones que se hayan practicado durante ese lapso .

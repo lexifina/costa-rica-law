@@ -1,1 +1,0 @@
-Artículo 70.- No puede ser nombrado funcionario o empleado del Registro Electoral quien sea ascendiente, descendiente, hermano, tío o sobrino consanguíneo o a fin del Director General, Secretario y oficiales de Provincias.

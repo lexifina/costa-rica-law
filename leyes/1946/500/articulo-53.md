@@ -1,2 +1,0 @@
-Artículo 53.- Las peticiones o reclamaciones que se formulen ante el registro deberán ser resueltas dentro de los cinco días siguientes a la presentación, so pena de incurrir el Director en Inhabilitación absueltas para el ejercicio de sus derechos durante cuatro años en los términos del artículo 68 del Código Penal.
-Se entiende que esta obligación queda en suspenso, durante el término dicho en el artículo 57 respecto de las peticiones o reclamos que se hubieren presentado después del 10 de Noviembre a que se refiere el artículo 34.

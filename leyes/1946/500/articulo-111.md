@@ -1,1 +1,0 @@
-Artículo 111.- Vencido el plazo de objeciones, el Director del Registro, necesariamente dentro de los cinco días siguientes y sin más trámite acordara o denegara la inscripción con las formalidades del artículo 50.

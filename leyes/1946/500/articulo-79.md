@@ -1,3 +1,0 @@
-Artículo 79.- Las Juntas Provinciales estarán formadas por un elector delegado de cada uno de los partidos políticos inscritos en escala nacional.
-A tal efecto, antes del 20 de Noviembre, cada partido, por medio del presidente del Comité Ejecutivo de la Asamblea de Provincia, comunicará al Tribunal Nacional, por escrito, el nombre de su delegado por la respectiva provincial.
-El Tribunal Nacional, dentro de los tres días siguientes, hacienda la designación por los Partidos remisos y acogiendo necesariamente las designaciones hechas por los partidos, publicara el acuerdo en donde declare entregadas las Juntas Provinciales, siguiendo el mismo orden de la división territorial electoral.

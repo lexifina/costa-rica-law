@@ -1,1 +1,0 @@
-Artículo 208.-Las Juntas Cantonales, llamadas a conocer de tales demandas en primera instancia, apenas hayan recibido alguna de ellas, ordenaran publicarla en forma resumida, para conocimiento del público.

@@ -1,1 +1,0 @@
-Artículo108.- El partido inscrito en escala nacional se entenderá que lo está en escala Provincial en cada una de las provincias y , en escala cantonal en cada uno de los cantones del país; el que solamente estuviere inscrito en escala provincial, se entenderá que lo está en escala cantonal en cada uno de los cantones de la respectivo provincial.

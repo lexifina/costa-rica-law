@@ -1,2 +1,0 @@
-Artículo 80.- Dentro de los tres días posteriores a la publicación del acuerdo indicado en el artículo anterior y en la misma forma señalada en el artículo 12, se apersonaran los miembros de cada Junta Provincial ante el Gobernador de la respectiva provincial, a prestar juramento, designar de su seno Presidente y Secretario, y fijar horas y local de trabajo.
-De ello se levantara acta similar a la expresada en el citado artículo.

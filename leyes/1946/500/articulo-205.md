@@ -1,1 +1,0 @@
-Articulo 205.-El cargo de Representante a una constituyente es obligatorio; el de Diputado al congreso es voluntario y podrá renunciarse antes o después de prestar juramento, pero la renuncia no será admitida sino después de la declaratoria definitiva de elección.
