@@ -1,0 +1,1 @@
+Artículo 2°—Modificar el articulado del presente Reglamento para que donde se lea Gerente Administrativo Financiero y Gerente de Desarrollo Social se lea en adelante Subgerente Administrativo Financiero y Subgerente de Desarrollo Social.

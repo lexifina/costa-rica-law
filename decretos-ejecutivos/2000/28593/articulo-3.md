@@ -1,0 +1,1 @@
+Artículo 3°—Adiciónese un transitorio al Decreto Ejecutivo No 26940-MtVAH- MTSS, que establezca lo siguiente: Los funcionarios que actualmente se encuentran nombrados no se les exigirá el cumplimiento de los requisitos señalados en el artículo 28 del presente Decreto.
