@@ -1,0 +1,1 @@
+Artículo 12.—Los ministerios y las entidades públicas remitirán a la Unidad Coordinadora del Sistema Nacional de Evaluación de MIDEPLAN, a más tardar el 31 de enero de cada año, el informe final de autoevaluación sobre el cumplimiento de las acciones estratégicas del año anterior, a efecto de llevar a cabo la evaluación de la gestión institucional y sectorial.
