@@ -1,0 +1,1 @@
+Artículo 35.—No se permitirá la inhumación de más de un cadáver en la misma caja o en la misma fosa, solo si se trata de la madre y el producto del parto, muerto en el mismo momento del alumbramiento.

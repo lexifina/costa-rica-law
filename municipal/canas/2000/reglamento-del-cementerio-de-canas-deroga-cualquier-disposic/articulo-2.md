@@ -1,0 +1,1 @@
+Artículo 2°—El articulado aquí establecido se desprenden de las disposiciones emanadas del reglamento general del cementerio, según decreto ejecutivo N° 22183-5 del 6 de marzo del 1993 y el código Municipal.

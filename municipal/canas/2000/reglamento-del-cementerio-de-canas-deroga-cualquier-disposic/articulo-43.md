@@ -1,0 +1,1 @@
+Artículo 43.—No se autorizarán las exhumaciones solicitadas por el interesado de personas fallecidas con diagnostico de viruela, escarlatina, tifo exantemático, difteria, SIDA, cólera, o peste bubónica, salvo que se presente permiso de una autoridad del Ministerio de Salud del Cantón.

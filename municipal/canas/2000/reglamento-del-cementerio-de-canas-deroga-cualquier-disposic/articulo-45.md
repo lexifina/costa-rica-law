@@ -1,0 +1,1 @@
+Artículo 45.—Cuando el traslado es a otro cementerio el interesado deberá presentar una constancia de la Junta Administrativa del Cementerio, donde se hará el traslado, que indique la disposición de recibir los restos trasladados.

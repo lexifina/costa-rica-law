@@ -1,0 +1,1 @@
+Artículo 48.—Desde el momento en que tos restos salen del cementerio la Junta declina responsabilidad ante cualquier eventualidad. La asume el solicitante de traslado y el propietario de la bóveda que firmaren el acta de traslado.

@@ -1,0 +1,1 @@
+Articulo 41.—Las exhumaciones realizadas por el interés de la junta se harán en presencia del encargado del cementerio, un representante de la junta y deberá existir notificación previa a algún familiar del difunto, quien tendrá 10 días hábiles para comparecer ante la junta.

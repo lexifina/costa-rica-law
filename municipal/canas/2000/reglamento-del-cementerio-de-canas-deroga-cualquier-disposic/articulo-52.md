@@ -1,0 +1,1 @@
+Artículo 52.— La Junta y sus funcionarios no incurrirán en responsabilidad si mediante la actuación dolosa de un particular se efectúe el traspaso inhumación o traslados de restos, contrario lo dispuesto en este reglamento.

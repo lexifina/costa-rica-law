@@ -1,0 +1,1 @@
+Articulo 33.—La presentación de la orden de inhumación deberá presentarse al encargado de cementerio por lo menos con dos horas de anticipación. Lo anterior con el fin de que se verifique el sitio exacto y la ausencia de restos con menos de 5 años de inhumados.

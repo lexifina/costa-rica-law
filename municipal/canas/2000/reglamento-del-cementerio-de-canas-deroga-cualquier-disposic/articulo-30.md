@@ -1,0 +1,1 @@
+Articulo 30.— La Junta no traspasara derechos a terceros cuando en los nichos permanezcan restos mortales de adultos con menos de 5 años de inhumados o de niños con menos de tres años de haberse realizado el sepelio.

@@ -1,0 +1,1 @@
+Articulo 23.—Los derechos podrán construirse en toda su longitud pero deberán dejar 10 centímetros libres por cada costado en lotes sencillos y en los dobles deberán dejarse 15 centímetros por el costado.
