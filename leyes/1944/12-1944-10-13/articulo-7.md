@@ -1,4 +1,4 @@
-Artículo 7°—El objeto y los fines de la Caja serán la realización de las siguientes operaciones, con sus socios o accionistas, exclusivamente:
-a) Conceder anticipos de un mes de sueldo, jubilación o pensión, mediante el descuento del giro respectivo;
-b) Otorgar préstamos por sumas no mayores de tres mil colones (¢3,000.00), con garantía de los sueldos futuros y de las respectivas órdenes de retención de los giros, de los cuales serán deducidas las cuotas correspondientes; y
-c) Cuando la capacidad económica de la Caja lo periclita, acordar, a favor de los accionistas, y con garantía hipotecaria, préstamos que se destinarán a la construcción y mejoras de carácter permanente de la casa de habitación del propio accionista.
+Artículo 7°—El objeto y fines de la Caja serán :
+a) Otorgar préstamos a sus accionistas por las sumas que señale la Junta Directiva , de acuerdo con la capacidad económica de la Caja ;
+b) Administrar los ahorros que hagan los accionistas.
+(Así reformado pro el artículo 1° de la ley N° 4694 del 28 de diciembre de 1970)
