@@ -1,0 +1,7 @@
+Artículo 65.- Modificaciones de la Ley No. 6324
+Se modifican los artículos 29 y 30 de la Ley de Administración Vial, No. 6324, del 24 de mayo de 1979, cuyos textos dirán:
+"Artículo 29.- Contra las resoluciones o los acuerdos de las Direcciones Generales, la Comisión Técnica de Transportes y el Consejo de Seguridad Vial, cabrán recursos de revocatoria ante el mismo órgano y de apelación de la siguiente forma:
+a) De las Direcciones Generales y el Consejo de Seguridad Vial, ante el Ministerio de Obras Públicas y Transportes
+b) De la Comisión Técnica de Transportes, ante la Autoridad Reguladora de los Servicios Públicos. Los recursos deberán plantearse dentro de los cinco días siguientes a la notificación personal o por el diario oficial según proceda. En todos los casos, el escrito se acompañará con los documentos que acrediten la personería, la calidad de concesionarios del servicio público y el formar parte o tener interés legítimo en el asunto que se discute.
+c) En los recursos de revocatoria, el órgano administrativo tendrá quince días para resolver. Si transcurren sin haberse dictado resolución, el recurrente podrá presentar su gestión ante quien corresponda conocer del recurso de apelación."
+"Artículo 30.- El órgano que conozca de la apelación, de acuerdo con esta ley, contará con treinta días naturales para resolver. Si vence el plazo sin haberse dictado la resolución, excepto para la revisión tarifaria, se tendrá por rechazado el recurso y por agotada la vía administrativa."

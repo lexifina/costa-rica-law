@@ -1,0 +1,2 @@
+Artículo 19.- Aseguramiento
+Los bienes destinados a la prestación de servicios públicos podrána segurarse contra riesgos, con el Instituto Nacional de Seguros o en caso de inopia, con entidades aseguradoras del exterior, en la forma y plazo que estime conveniente la entidad que otorgó la concesión o el permiso. Tales seguros podrán ser adquiridos por las entidades respectivas siempre que su costo final no le encarezca los servicios públicos al usuario.

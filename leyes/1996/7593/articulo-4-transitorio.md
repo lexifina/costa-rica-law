@@ -1,0 +1,1 @@
+Transitorio IV.- El Consejo de Gobierno nombrará a los miembros de la Junta Directiva, en un plazo máximo de sesenta días naturales contados a partir de la publicación de esta ley, conforme al procedimiento fijado en ella.

@@ -1,0 +1,4 @@
+Artículo 28.- Corrección de anomalías
+Si la denuncia resulta fundada, la Autoridad Reguladora dictará las disposiciones pertinentes para que se corrijan las anomalías, y cuando en derecho corresponda, ordenará resarcir los daños en sede administrativa.
+Las resoluciones que se dicten serán vinculantes para las partes involucradas, sin perjuicio de los recursos ordenados en la ley. Si de la denuncia se desprenden responsabilidades penales, para cualquier involucrado, la Autoridad Reguladora deberá informarlo al Ministerio Público.
+Esa Autoridad tramitará los procesos administrativos hasta concluirlos, de conformidad con los procedimientos establecidos en la Ley General de la Administración Pública. Deberá informar del inicio de este procedimiento al ente que otorgó la concesión o el permiso.

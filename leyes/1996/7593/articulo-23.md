@@ -1,0 +1,3 @@
+Artículo 23.- Pruebas de exactitud y confiabilidad
+Los instrumentos y sistemas de medición o conteo por medio de los cuales se brinde o suministre un servicio público sujeto a regulación, serán sometidos a las pruebas de exactitud y confiabilidad que la Autoridad Reguladora considere necesarias. Esta Autoridad establecerá los procedimientos mediante los cuales deberá realizar esta labor.
+De oficio o a solicitud de parte, la Autoridad Reguladora intervendrá para garantizar el buen estado y la confiabilidad de los instrumentos y sistemas de medición y conteo que las entidades reguladas utilicen al prestar el servicio.
