@@ -1,0 +1,1 @@
+Artículo 32.—Consultas técnicas: El Departamento de Recursos Humanos podrá requerir la colaboración de otras unidades, departamento o direcciones, en lo referente a la elaboración y calificación de las pruebas, en cuyo caso la ayuda se limitará a la emisión de los criterios consultados.

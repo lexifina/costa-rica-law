@@ -1,0 +1,1 @@
+Artículo 43.—Obligación de trabajar horas extras: Los servidores estarán obligados a trabajar horas extraordinarias, cuando exista necesidad de parte del SENARA, y no exista justa causa del servidor para no hacerlo.

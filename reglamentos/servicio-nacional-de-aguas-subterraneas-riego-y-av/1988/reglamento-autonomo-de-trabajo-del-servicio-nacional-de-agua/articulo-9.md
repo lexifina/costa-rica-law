@@ -1,0 +1,1 @@
+Artículo 9°—Nombramientos interinos: Terminarán igualmente sin responsabilidad para el SENARA los nombramientos que se efectúen con carácter de interino, siempre que éstos no se prolonguen por un período superior a un año.

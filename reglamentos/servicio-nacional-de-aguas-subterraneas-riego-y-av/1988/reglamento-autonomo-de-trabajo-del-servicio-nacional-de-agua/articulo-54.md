@@ -1,0 +1,1 @@
+Artículo 54.— Adelanto: Podrán concederse vacaciones antes de completar el período, en proporción al tiempo trabajado y al derecho que correspondería si se hubiere trabajado el período completo, con el visto bueno del jefe correspondiente.
