@@ -13,3 +13,4 @@ MMONTESOCA: Reglamento de Ventas Callejeras y Ambulantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-21 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
