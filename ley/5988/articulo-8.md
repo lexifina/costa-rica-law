@@ -1,0 +1,2 @@
+Artículo 8§.-La Dirección Ejecutiva del Centro queda facultada para recibir en su nombre donaciones nacionales o internacionales, para la realización de sus fines, y para solicitar asistencia técnica a organismos nacionales o internacionales, previo parecer en ambos casos del Consejo Asesor.
+Los Fondos recibidos en donación serán depositados en cuenta especial en el denominado Fondo de Terceros en el Banco Central.
