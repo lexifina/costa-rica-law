@@ -1,0 +1,4 @@
+ARTICULO 10
+Pruebas Adicionales
+1) Si el Estado Requerido considera que las pruebas presentadas en apoyo de la solicitud de extradición de una persona reclamada no son suficientes para satisfacer los requisitos del presente Tratado, dicho Estado solicitará la presentación de las pruebas adicionales que estime necesarias. El Estado Requerido podrá establecer una fecha límite para la presentación de las mismas, y podrá conceder una prórroga razonable de ese plazo, a petición del Estado Requirente, el cual expresará las razones que lo mueven a solicitarla.
+2) Si la persona reclamada se encuentra privada de la libertad y las pruebas adicionales no son suficientes, o si dichas pruebas no se reciben dentro del plazo estipulado por el Estado Requerido, será puesta en libertad. Dicha libertad no impedirá que la persona sea detenida nuevamente y extraditada, siempre y cuando las pruebas adicionales se reciban posteriormente.

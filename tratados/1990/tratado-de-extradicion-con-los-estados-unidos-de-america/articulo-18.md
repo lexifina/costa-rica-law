@@ -1,0 +1,4 @@
+ARTICULO 18
+Entrega de Artículos, Instrumentos, Objetos y Documentos
+1) Todos los artículos, instrumentos, objetos de valor, documentos y demás pruebas concernientes al delito, podrán ser decomisados y, una vez que se haya otorgado la extradición, podrán ser entregados al Estado Requirente. Los efectos mencionados en este Artículo, podrán ser entregados aún cuando no se pueda otorgar o efectuar la extradición debido a muerte, desaparición o evasión de la persona reclamada. Los derechos de terceros, en cuanto a tales efectos, se respetarán debidamente.
+2) El Estado Requerido podrá condicionar la entrega de los efectos dichos, hasta que el Estado Requirente le garantice satisfactoriamente que los mismos le serán devueltos tan pronto como sea posible y puede retener su entrega si se necesitan como prueba en el Estado Requerido.

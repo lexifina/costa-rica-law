@@ -1,0 +1,9 @@
+ARTICULO 2
+Delitos que darán lugar a la extradición
+1) Un delito será considerado extraditable si el mismo está sancionado por las leyes de ambas Partes Contratantes con pena de privación de libertad cuyo extremo máximo es superior a un año o con otra pena más severa.
+2) La extradición también se concederá por la tentativa de cometer, o por la participación en la comisión, de cualquiera de los delitos estipulados en el párrafo 1) de este Artículo. Igualmente, será concedida la extradición por la asociación ilícita contemplada en la legislación
+costarricense respecto de cualquier delito estipulado por el párrafo 1) de este Artículo, o por la conspiración prevista en la legislación de los Estados Unidos de América respecto a los delitos mencionados
+3) Para los fines de este artículo, la extradición será concedida:
+a) Independientemente de que las leyes de ambas Partes Contratantes clasifiquen o no al delito en la misma categoría de delitos o usen la misma o distinta terminología para designarlo, o b) Independientemente de que el delito sea uno respecto del cual la Ley Federal de los Estados Unidos requiera, para la existencia de la jurisdicción de un Tribunal Federal de los Estados Unidos, prueba de transporte interestatal, del uso del correo o de otros medios que afecten el comercio interestatal o internacional, o de que el delito haya tenido algún efecto sobre dicho correo o comercio.
+4) Cuando se conceda la extradición por un delito extraditable, podrá ser concedida igualmente por cualquier otro delito especificado en la solicitud de extradición, aun cuando este otro delito sea punible con privación de libertad por un período menor de un año en cualquiera de los
+dos Estados, siempre y cuando reúna los requisitos para ser extraditable. El Estado Requirente presentará la documentación indicada en el Artículo 9 respecto de cada delito por el cual la extradición sea solicitada, de acuerdo con este párrafo.
