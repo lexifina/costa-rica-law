@@ -1,10 +1,17 @@
 Artículo 3º.- Las reservas indígenas son inalienables e
 imprescriptibles, no transferibles y exclusivas para las comunidades
 indígenas que las habitan. Los no indígenas no podrán alquilar, arrendar,
-comprar o de cualquier otra manera adquirir terrenos o fincas comprendidas
-dentro de estas reservas. Los indígenas sólo podrán negociar sus tierras
-con otros indígenas. Todo traspaso o negociación de tierras o mejoras de
-éstas en las reservas indígenas, entre indígenas y no indígenas, es
-absolutamente nulo, con las consecuencias legales del caso. Las tierras y
-sus mejoras y los productos de las reservas indígenas estarán exentos de
-toda clase de impuestos nacionales o municipales, presentes o futuros.
+comprar o de cualquier otra manera adquirir terrenos o fincas
+comprendidas dentro de estas reservas. Los indígenas sólo podrán
+negociar sus tierras con otros indígenas. Todo traspaso o negociación
+de tierras o mejoras de éstas en las reservas indígenas, entre indígenas
+y no indígenas, es absolutamente nulo, con las consecuencias legales del
+caso. Las tierras y sus mejoras y los productos de las reservas indígenas
+estarán exentos de toda clase de impuestos nacionales o municipales,
+presentes o futuros.
+(NOTA: Segun dictamen de la Procuraduría General de la República
+N° 277 del año2001, suscrito por el Lic. Juan Luis Montoya, Procurador
+Tributario, la exención generica objetiva en favor de las reservas indígenas
+que contiene este artículo, está tacitamente derogada por el artículo 1 de la
+Ley N° 7293 de 30 de marzo de 1992, Ley Reguladora de Exoneraciones
+vigentes, Derogatorias y Excepciones)
