@@ -1,0 +1,5 @@
+Artículo 5° Certificado de zona
+1 —A solicitud de cualquier interesado, la Municipalidad emitirá un certificado de zona, en el que se hará constar el tipo de zona o subzona que le corresponde determinado lote o finca.
+2 —Para los efectos de permisos de construcción, ampliación, remodelación o reconstrucción de edificios urbanizaciones el certificado de zona debe obtenerse de previo a cualquier tramitación y no se admitirán planos visados por otros organismos públicos como por ejemplo el Ministerio de Salud y la Dirección de Urbanismo, si no consta en el certificado de zona que el mismo ha sido exhibido y debidamente conocido por los entes públicos respectivos.
+3 —Para los efectos de solicitud de uso condicional o cambio, remodelación, ampliación o reconstrucción de un uso no conforme, será también exigido, por la municipalidad el certificado de zona. y que éste haya sido visto por la Dirección de Urbanismo.
+4 —Por su parte, la Municipalidad exigirá el certificada de zona para los efectos de concesión de patentes, visados de escrituras o cualesquiera otros.

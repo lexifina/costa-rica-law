@@ -1,0 +1,1 @@
+TRANSITORIO II, Cualquier modificación al Plan Vial del Cantón de Curridabat, será inconvencia Municipal, en contraposición de lo que establece la Ley de Planificación Urbana, en su Capítulo Primero, artículo 17
