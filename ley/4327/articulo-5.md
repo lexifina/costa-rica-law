@@ -1,0 +1,6 @@
+Artículo 5º.- Se reforman los artículos 16, 863 inciso f) 931 y 961 del Código de Comercio, a fin de que se lean así:
+"Artículo 16.- La quiebra de la empresa no acarrea la del propietario; sin embargo, si el gerente fuere condenado por el delito de quiebra fraudulenta o culpable, el Juez decretará, de oficio, embargo general sobre los bienes del propietario, en los términos del artículo 960 de este Código".
+"Artículo 863.
+f) Comunicación de la declaratoria al Juez Penal correspondiente a fin de que inicie proceso para detrminar si el quebrado ha incurrido en el delito de quiebra fraudulenta o culposa".
+"Artículo 931.- Distribuido el haber entre los acreedores, éstos conservarán, por todo el término de la prescripción de su respectivo crédito, derecho para cobrar al deudor el saldo que haya quedado en descubierto; sin embargo, si fuere absuelto en el proceso penal, no podrán embargar ni cobrar antes de tres años a partir del día en que quede firme el auto que aprobó la distribución. La prescripción empezará a contarse al vencer esos tres años".
+"Artículo 961.- Si se llegare a condenar por quiebra fraudulenta o culpable a los personeros de la sociedad, cualquiera de los acreedores de ésta podrá pedir que se declare también la quiebra de los socios ilimitadamente responsables".
