@@ -1,0 +1,2 @@
+Altura
+Artículo 14.—Los anuncios o rótulos que se coloquen en predios no edificados contiguo a las vías públicas, serán ubicados a la altura y distancia que indique la Municipalidad , a efecto de no perjudicar las condiciones mínimas de seguridad y visibilidad. Aquellos rótulos o anuncios que se encuentren sobre la acera no podrán tener una altura inferior a 2.50 m . entre el borde inferior del rótulo y la acera.

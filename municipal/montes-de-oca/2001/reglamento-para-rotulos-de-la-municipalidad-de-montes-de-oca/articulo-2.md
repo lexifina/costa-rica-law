@@ -1,0 +1,3 @@
+Artículo 2°—Definiciones:
+Rótulo: cartel cuyo propósito sea llamar la atención sobre algún producto o actividad, que se ofrezca o se lleve a cabo en el mismo sitio en que está ubicado el cartel.
+Anuncio: letrero, escritura, impreso, pintura, emblema, dibujo u otro medio informativo, colocado sobre el terreno, rocas, árboles o sobre cualquier edificio o estructura, natural o artificial, cuyos propósitos sean la propaganda comercial, llamar la atención hacia un producid, articulo, marca de fabrica, actividad comercial, negocio, servicio, recreación, profesión u ocupación domiciliaria, que se ofrezca, venda o lleven a cabo en un sitio distinto de aquel donde aparezca tal anuncio.
