@@ -1,4 +1,4 @@
-Artículo 6º.- Tanto las autoridades judiciales, como las
+ARTÍCULO 6º.- Tanto las autoridades judiciales, como las
 administrativas, deberán publicar un aviso en el Diario Oficial y por lo
 menos en uno de los periódicos nacionales, en el que se indicarán los
 objetos, mercancías y demás bienes en poder de las respectivas

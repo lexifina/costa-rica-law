@@ -1,6 +1,6 @@
-Artículo 8º.- Esta ley es de orden público y rige a partir de su
+ARTÍCULO 8º.- Esta ley es de orden público y rige a partir de su
 publicación.
-Transitorio: Se concede un plazo de tres meses, a partir de la
+TRANSITORIO: Se concede un plazo de tres meses, a partir de la
 entrada en vigencia de esta ley, para que aquellos propietarios de
 vehículos, cuyo depósito actual excediere de tres meses, y para los
 terceros que tuvieren a su favor gravámenes sobre vehículos depositados,

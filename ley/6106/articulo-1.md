@@ -1,4 +1,4 @@
-Artículo 1º.- Los bienes que se detallen en los incisos a), b), e),
+ARTÍCULO 1º.- Los bienes que se detallen en los incisos a), b), e),
 ch) y d) serán donados, en forma equitativa, a centros o instituciones de
 educación, de beneficencia, o a otras dependencias del Estado, que los
 necesiten para la realización de sus fines.
@@ -38,17 +38,22 @@ inmediato el juez ordenará que se haga la entrega a las instituciones
 mencionadas, por medio de la Proveeduría Judicial, si su dueño no las
 recogiere dentro de veinticuatro horas, sin previo requerimiento, o cuando
 exista posibilidad de que se decrete el comiso;
-ch) Los productos maderables deberán ser entregados a la Dirección
-General Forestal del Ministerio de Agricultura, para que los envíe a las
-instituciones referidas, si hubiere riesgo de que se dañen y no se
-estuviere en el caso de devolverlos a su dueño, o si éste fuere
-desconocido o no los retirare dentro del mes siguiente a su aprehensión;
-d) Cuando se esté en el caso de efectos rematados en las aduanas del
-país, que no fueron adjudicados en segundo remate, y de mercancías y
-vehículos caídos en comiso por las autoridades de investigación criminal y
-del tránsito, la donación o entrega se hará por medio de la Proveeduría
-Nacional, en coordinación con las dependencias depositarias de dichos
-bienes; y
+ch) DEROGADO
+(Derogado por el artículo 2º de la Ley Nº 6442 de 22 de mayo de
+1980)
+d) Cuando se trate de efectos rematados en las aduanas del país que
+no hayan sido adjudicados en segundo remate, mercancías y vehículos
+comisados por las autoridades de investigación criminal o de tránsito, la
+donación o entrega se efectuará por medio del Instituto Mixto de Ayuda
+Social (IMAS), en coordinación con las dependencias depositarias de esos
+bienes. A partir de la notificación de la disponibilidad de los bienes,
+el IMAS tendrá un plazo perentorio de treinta días hábiles para realizar
+la donación.
+Transcurrido dicho plazo, el Movimiento Nacional de Juventudes o, en
+su defecto, la institución encargada de desarrollar la política de
+juventud ejercerá la competencia en un plazo perentorio similar.
+(Así reformado este inciso por el artículo 1º de la ley No.7886 de
+29 de junio de 1999)
 e) El mobiliario, equipo de oficina y otros objetos que no sean
 ocupados por las instituciones autónomas y semiautónomas serán igualmente
 donados por intermedio de la Proveeduría Nacional.
