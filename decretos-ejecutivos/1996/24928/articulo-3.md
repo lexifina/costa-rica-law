@@ -1,0 +1,1 @@
+Artículo 3°- Se sustituye los términos de delegados cantonales o distritales por el término de comandantes en el Reglamento del Servicio Privado de Seguridad, decreto N° 23879-SP, publicado en "La Gaceta" N° 5 del viernes 6 de enero de 1995, artículo 24.

@@ -1,0 +1,1 @@
+Artículo 2°- Se procede a sustituir la denominación Delegaciones y Subdelegaciones Policiales" por "Comisarías y Subcomisarías" respectivamente, en el Reglamento de Organización de los Cuerpos Policiales Adscritos al Ministerio de Seguridad Pública, decreto N° 23881-SP, publicado en "La Gaceta" N° 6 del lunes 9 de enero de 1995.
