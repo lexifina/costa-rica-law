@@ -1,0 +1,1 @@
+Artículo 4°. —Concluida la amortización de que habla el artículo anterior, el recargo establecido por los artículos 1°. y 2°., se destinará á la mejora de las vías de comunicación existentes y á la apertura de otras nuevas.
