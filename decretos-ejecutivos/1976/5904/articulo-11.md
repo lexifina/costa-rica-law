@@ -1,0 +1,1 @@
+Artículo 11.—Los terrenos pertenecientes al ITCO, que se encuentren incluidos dentro de la demarcación de las Reservas Indígenas, deberán ser cedidos por dicha institución para destinarlos a asentamientos campesinos de comunidades indígenas.

@@ -1,0 +1,1 @@
+Artículo 7°—Ninguna persona podrá establecer de hecho o de derecho cantinas dentro de las reservas indígenas. Además ningún no indígena podrá construir casas o pulperías, ni podrá talar árboles, explotar los recursos maderables y minerales o plantar cultivos, para su provecho dentro de los límites de las mencionadas reservas.

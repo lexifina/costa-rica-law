@@ -1,0 +1,1 @@
+Artículo 4°— Declárase propiedad de las comunidades indígenas las reservas mencionadas en el artículo 1° de este decreto. El Estado reconoce la existencia y la personalidad jurídica de esas comunidades. La Procuraduría General de la República hará inscribir estas Reservas en el Registro Público.

@@ -1,0 +1,1 @@
+Artículo 10.—De la misma manera se modifica el Decreto Ejecutivo número 3886-A del 17 de junio de 1974, a efecto de liberar a favor de la reserva indígena de Chirripó la zona afectada por la demarcación de la Reserva Forestal de Río Macho, establecida en dicho decreto y que está comprendida dentro de la demarcación de la mencionada reserva indígena.

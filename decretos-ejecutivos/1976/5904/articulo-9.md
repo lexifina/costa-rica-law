@@ -1,0 +1,2 @@
+Artículo 9°—A efecto de establecer la demarcación de los límites de las Reservas Indígenas de la Zona Atlántica, se tiene por modificado el artículo 2° del Decreto Ejecutivo N° 4658 del 19 de febrero de 1975, en el sentido de liberar, a favor de dichas reservas indígenas los terrenos que en ese decreto se traspasan a JAPDEVA.
+(Nota de Sinalevi: La reforma referente al artículo 2°, fue consignada erróneamente en su publicación. No obstante; por su contenido la modificación corresponde al artículo 1° del decreto ejecutivo N° 4658 del 19 de febrero de 1975)

@@ -1,0 +1,3 @@
+Artículo 12.—Los terrenos comprendidos dentro de las reservas, que sean de vacación forestal deberán guardar ese carácter, a efecto de mantener inalterado el equilibrio hidrológico de las cuencas hidrográficas y de conservar la vida silvestre de esas regiones.
+Los recursos naturales deberán explotarse racionalmente de manera que permanezcan renovables. Únicamente podrán llevarse a cabo programas forestales por las instituciones del Estado que deban garantizar la renovación permanente de los bosques.
+La vigilancia y protección de los bosques será confiada a guardias escogidos entre los mismos indígenas.

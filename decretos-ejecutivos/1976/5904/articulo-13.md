@@ -1,0 +1,1 @@
+Artículo 13.—El Ministerio de Agricultura y Ganadería, el Ministerio de Salud, el INSA (Instituto Nacional Sobre Alcoholismo), DINADECO y otras entidades similares, deberán prestar asistencia técnico-profesional a las comunidades indígenas mencionadas en este decreto. La Comisión Nacional de Asuntos Indígenas, velará porque la asistencia de esas instituciones sea efectiva.
