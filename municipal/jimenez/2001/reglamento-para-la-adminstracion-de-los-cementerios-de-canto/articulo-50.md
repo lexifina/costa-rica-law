@@ -1,0 +1,1 @@
+Artículo 50.—Las inhumaciones se efectuarán entre las 24 y 30 horas al fallecimiento, a menos que el cadáver esté embalsamado y se obtenga permiso de la Jefatura de Salud o del Ministerio de Salud; sin embargo podrá reducirse a corto plazo cuando el jefe de sanidad certifique que la inhumación es urgente por existir peligro para la salud pública.

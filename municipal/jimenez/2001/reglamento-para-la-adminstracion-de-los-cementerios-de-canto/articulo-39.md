@@ -1,0 +1,1 @@
+Artículo 39.—Por cada servicio de inhumación deberán los interesados cancelar la suma acordada por ese servicio, posteriormente con un mínimo de dos horas de antelación a la inhumación, deberán presentar al Encargado de Cementerio el recibo debidamente cancelado.

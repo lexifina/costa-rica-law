@@ -1,0 +1,1 @@
+Artículo 35.—Cuando una sepultura de familia amenace ruina por negligencia o por muerte de los que en ella tengan derecho, la Municipalidad puede ordenar la demolición de los monumentos ruinosos. Los materiales provenientes de la demolición serán de propiedad municipal y se emplearán en trabajos del mismo cementerio.

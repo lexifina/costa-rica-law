@@ -1,0 +1,1 @@
+Artículo 36.—En general para toda refacción que modifique el estado de un mausoleo o de un nicho es necesaria la autorización de la Municipalidad, quienes ordenarán una inspección ocular y la negará si perjudicare las construcciones limítrofes a la que pretende refraccionar; pudiendo el interesado hacerla repellar, encalar o adornar.

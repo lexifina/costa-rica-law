@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la prestación de los diferentes servicios en los cementerios del Cantón, así como el arrendamiento de lotes en el mismo, y establece los derechos y deberes tanto de los contribuyentes del cementerio como de la Municipalidad.

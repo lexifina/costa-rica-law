@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad de Jiménez de acuerdo con el área disponible en el cementerio de la localidad, podrá dar en arrendamiento a quienes lo soliciten, parcelas o lotes para construcción de sepulcros o tumbas y mausoleos en ese cementerio. El arrendamiento se otorgará por un lapso no menor de dos años prorrogable por períodos iguales.
