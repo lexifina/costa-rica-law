@@ -1,0 +1,2 @@
+Artículo 63.-Los emisores, agentes pagadores, sociedades anónimas u otras entidades públicas o privadas que paguen y acrediten rentas de título no exentas del impuesto por ley especial o por contrato ley-cédulas, bonos, "deventures" y demás valores al portador-, deberán retener y depositar en el Banco Cajero del Estado el quince por ciento (15 %) de esa suma dentro de los quince días siguientes a la fecha de pago o crédito; el impuesto así pagado se considerará único y definitivo.
+(Así adicionado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
