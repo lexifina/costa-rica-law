@@ -1,0 +1,1 @@
+Artículo 2°.-A partir de la vigencia del presente Decreto, ante la Notaría del Estado se otorgarán las escrituras correspondientes al Instituto Nacional sobre Alcoholismo (INSA), Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA).
