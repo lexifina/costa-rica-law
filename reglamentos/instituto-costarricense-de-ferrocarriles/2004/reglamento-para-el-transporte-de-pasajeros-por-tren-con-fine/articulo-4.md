@@ -1,0 +1,54 @@
+Artículo 4º—Del control del servicio. Con la finalidad de controlar la prestación del servicio de transporte por tren de turistas, se deberán observar los siguientes aspectos:
+a) Control de la contratación del servicio: Para tal efecto los encargados de las zonas operativas a saber Dirección de Operaciones del Atlántico, Taller Siquirres y Dirección de Operaciones del Pacífico, llevarán un “Control de reservaciones de servicio de tren para turistas”, empleando el formato que se presenta en el Anexo 1. El cual deberá estar siempre actualizado. INCOFER podrá pedir, si así lo considera conveniente un depósito mínimo de ¢100.000,00 para cubrir posibles daños hechos por los pasajeros al equipo rodante, de previo al servicio de transporte. Si estos se dieren se cubrirá con dicho depósito los daños y se restituirá el resto al cliente. Si estos no existieren se hará la devolución de la totalidad del monto. Si resultaren superiores al monto, se hará nueva prevención al cliente o usuario.
+b) Cuando existan reservaciones provenientes de distintos clientes y que contemplen horarios similares, el INCOFER, en la medida de lo posible brindará el servicio, de acuerdo a la disponibilidad de equipo que tenga.
+c) En el caso de que existan dos o más reservaciones, con horarios similares a los cuales El INCOFER, no pueda dar el servicio, por limitaciones de equipo rodante tractivo - traccionado, el servicio se dará a aquel cliente que primero demuestre que canceló el servicio o aporte la orden de compra del mismo.
+d) La Gerencia Administrativa, eliminará el pago por medio de cheque cuando se presenten las siguientes situaciones:
+i) Inmediatamente se tenga conocimiento de la emisión de un cheque sin fondos, para lo cual la Tesorería informará por escrito a la Gerencia Administrativa en el plazo de un día como máximo, después de que se tenga conocimiento de la emisión de un cheque sin fondos, por parte del cliente.
+ii) Cuando se tenga conocimiento por parte de la Gerencia Administrativa, en términos razonables de una situación de insolvencia del cliente.
+iii) Por razones muy especiales a juicio de la Gerencia Administrativa.
+e) En las dos últimas situaciones, descritas en el punto anterior, la Gerencia Administrativa eliminará el pago con cheques previa presentación del caso a la Junta Directiva, que en última instancia decidirá por simple mayoría. Si a juicio de la Gerencia Administrativa la situación requiere que se actúe de inmediato, ésta podrá hacerlo, no obstante a más tardar en la siguiente sesión de Junta Directiva presentará el caso, para su respectiva aprobación.
+f) Cuando se elimine el pago por cheque de un cliente, la Gerencia Administrativa, comunicara en el plazo de un día, al responsable de zona operativa correspondiente, con copia a la Gerencia de Operaciones y a la Presidencia Ejecutiva, tal decisión. En este caso los responsables de Zona Operativa, no brindarán el servicio, cuando en el comprobante de depósito de cuenta bancaria, indique que este fue hecho mediante cheque.
+g) Cuando se emita un cheque sin fondos por parte del cliente, en el plazo de 8 días hábiles después de que se conozca tal situación, la Gerencia Administrativa gestionará ante el cliente de forma escrita, la cancelación del servicio en efectivo. Pasado este plazo la Gerencia Administrativa pasará el caso al Departamento Legal, el cual iniciará de inmediato la acciones legales correspondientes para que ingrese a la Tesorería General el respectivo pago, el cual deberá contemplar los incrementos del monto por intereses por vencimiento de plazo, costas de juicio si es del caso, etc.
+h) Control de la prestación del servicio. Para tal efecto se empleará el formato que se presenta en el Anexo 2.
+i) La Orden de Salida presentada en el formulario “Control de prestación de servicios de transporte por tren para turistas” (Anexo 2) será consecutivo y se utilizará para el control de la salida y entrada de trenes con fines turísticos. Se utilizará de la siguiente forma:
+j) Esta Orden de Salida será llenada y firmada por el responsable de la zona operativa, o por quien este designe, según donde se de el servicio y entregado a la oficina de coordinación, un día antes de prestar el servicio, la cual a su vez lo entregará al maquinista.
+k) Cuando el tren sale, el maquinista deberá presentar al guarda del portón de salida, La Orden de Salida debidamente llena y firmada.
+La presentación de este documento es requisito indispensable para que el tren pueda salir.
+l) El guarda del portón verificará en la orden de salida la hora real de salida y el número de coches que conforman el tren y devolverá al maquinista el documento. Cualquier cambio que detecte en el número de coches, el guarda deberá anotarlo en la orden de salida.
+m) El maquinista está en la obligación de portar a mano la orden de salida durante el tiempo que dure el servicio, como comprobante ante quien corresponda, de que el tren esta autorizado para circular.
+n) Cuando el tren regresa a su origen el guarda del portón de entrada recogerá la orden de salida, anotará la hora de entrada, lo firmará en el lugar previsto para tal efecto y como máximo al día siguiente, la devolverá al encargado de zona respectiva. Para cualquier efecto posterior este documento no tendrá validez sin la firma del guarda y el INCOFER podrá enviar copia de este documento al cliente a petición del mismo.
+ñ) Una vez realizado el servicio, al día siguiente los encargados de zona enviaran a la Gerencia de Operaciones, por fax si es del caso, copia de la orden de compra, para que esta Gerencia solicite de forma escrita al Departamento de Contabilidad al día siguiente como máximo, una vez recibido el documento, emita la respectiva factura de cobro y se inicie el trámite de cobro respectivo, de conformidad con lo indicado en el punto 9, de la Sección IV de este Reglamento.
+o) En el lugar previsto en la orden de salida, el maquinista informará sobre los eventos importantes acaecidos durante el viaje, tales como descarrilamientos, paradas, accidentes y otras causas que perjudiquen o afecten la eficiencia en la prestación del servicio.
+Con base en este informe el encargado de zona, tomará las medidas correspondientes para mejorar la eficiencia del servicio si es del caso, a la mayor brevedad posible.
+p) Cada zona operativa, será la encargada de imprimir los documentos
+necesarios para la prestación de los servicios de transporte de
+turistas, según los vaya necesitando, respetando la consecutividad,
+en el caso del formato del Anexo 2. En el caso de la orden de salida,
+en el formulario “Control de prestación de servicio de transporte por
+tren para turistas” (Anexo 2).
+q) Una vez impresas las ordenes de salida del formulario “Control de
+prestación de servicio de transporte por tren para turistas” Anexo
+2, los encargados de zona con la debida antelación, los remitirán
+a la Auditoría General del INCOFER, la cual será la encargada
+mediante su sello, de oficializar el documento y su consecutividad.
+Posteriormente los devolverá a las respectivas zonas como máximo
+dos días después de recibidos para su sellado. Para efectos
+posteriores, este documento no tendrá validez sin el sello de la
+Auditoría General.
+r) Para efectos de control, cada zona operativa deberá llevar dos
+archivos, uno con los originales de las ordenes de salida de los
+trenes, donde se pueda apreciar la consecutividad de los mismos y
+otro por cliente, que contenga:
+i) La reservación o reservaciones del servicio.
+ii) El original del comprobante de pago del servicio o de la orden de compra del servicio, los documentos solicitados al cliente de conformidad con el punto 2, de la sección IV de este reglamento, copia del control de salida de trenes (formato del Anexo 2) y todos aquellos documentos relacionados a la prestación del servicio.
+s) La Gerencia de Operaciones coordinará a nivel Institucional, para que ya sea en forma total o aleatoria, funcionarios de la institución inspeccionen los viajes turísticos. En el caso de que por falta de personal se decida hacer la inspección de forma aleatoria, la muestra será de mínimo un 25% de los viajes.
+t) La persona designada para la inspección, hará el recorrido del tours o excursión junto con los turistas. La inspección consistirá en observar si se cumplen los siguientes aspectos:
+i) Las normas de seguridad descritas en el punto 3 de la Sección V.
+ii) Si el tren sale y entra cumpliendo los requisitos, principalmente si cuenta con el permiso de salida debidamente lleno.
+iii) Que los archivos de control estén al día y con toda la documentación descrita en el punto 8 de esta sección.
+u) Máximo dos días después de efectuada la inspección, la persona designada rendirá a la Gerencia de Operaciones el informe correspondiente, para lo cual utilizará el formato que se muestra en el Anexo 3. La Gerencia de Operaciones enviará copia del informe a los respectivos responsables de zona, a la Presidencia Ejecutiva, a la Gerencia Administrativa y a la Auditoría Interna, para que se tomen las medidas del caso, para mejorar los aspectos que así lo requieran o subsanar los problemas detectados durante la inspección.
+v) La Gerencia de Operaciones será la encargada de llevar la estadística correspondiente de los viajes y/o excursiones turísticas. Estas estadísticas se llevarán mensualmente y contemplarán información mostrada en el formulario del Anexo Nº 4. La finalidad de estas estadísticas es la de apoyar la toma de decisiones dado el caso, y brindar informes a la Junta Directiva, a la Presidencia Ejecutiva y a la Auditoría Interna.
+w) La Gerencia de Operaciones será la encargada de realizar periódicamente a realizarse al menos cada tres meses, entre los clientes una encuesta con la finalidad de medir el nivel de satisfacción del cliente, respecto al servicio que se le brinda, para lo cual se utilizará el formato del Anexo Nº 5. La finalidad de esta encuesta es la de valorar dicho parámetro, con el objetivo de implementar las mejoras pertinentes, cuando se requiera, de tal manera que el cliente tenga un alto nivel de satisfacción del servicio que se le presta.
+x) La Gerencia de Operaciones coordinará, con la Gerencia Administrativa, para efectuar una reunión trimestral de evaluación del servicio, en la primera semana del mes correspondiente, tomado como base las estadísticas de transporte, y los informes generados por los inspectores y la Auditoría y las encuestas realizadas al cliente.
+Las medidas y/o directrices y/o recomendaciones que se derivan de la evaluación realizada serán informadas por escrito, máximo 5 días hábiles después de realizada la reunión a la Presidencia Ejecutiva.
+z) El incumplimiento por parte de los funcionarios de la Institución, de las responsabilidades que se derivan del presente Reglamento, será sancionado si es del caso con base a la legislación ferroviaria y laboral vigente y competente al caso.
