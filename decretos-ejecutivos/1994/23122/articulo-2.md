@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Registro Público de Vehículos del Registro Nacional para asignar placas oficiales a los vehículos inscritos a nombre de MIDEPLAN, cuyas placas particulares son 99952 y 99953.
