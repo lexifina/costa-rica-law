@@ -1,0 +1,1 @@
+Transitorio I.- Mientras el Colegio no emita el Timbre de Topografía a que se refiere el artículo 5º de esta ley, no será obligatorio el pago de dicho tributo. No obstante el Colegio deberá emitir tal timbre en un plazo no mayor de sesenta días a partir de la vigencia de esta ley.
