@@ -1,0 +1,1 @@
+Artículo 6°. -Art.38.-En cada uno de los ocho días señalados para las elecciones parroquiales, la Junta calificadora de Distrito estar en el lugar señalado para recibir los votos de los sufragantes, desde las nueve hasta las doce del día y desde las cuatro hasta las seis de la tarde.

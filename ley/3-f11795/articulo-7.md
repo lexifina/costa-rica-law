@@ -1,0 +1,2 @@
+Artículo 7°. -Art.59.-El Canton principal de la Provincia, la Asamblea ser presidida por el Gobernador político, y en los Cantones menores por el Jefe Político. Tanto uno como otro nombrar n para cada acto electoral un Secretario de dentro fuera de la Asamblea y ‚esta proceder a elegir por Escrutadores a dos individuos de su seno para formar el directorio.
+único. -En las faltas temporales del Presidente de la electoral, esta nombrar incontinente, de entre los mismos Electores, uno que la presida.
