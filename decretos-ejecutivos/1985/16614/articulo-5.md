@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección General de Catastro Nacional está autorizada para realizar el levantamiento de la cartografía catastral y el registro de oficio de los planos individuales necesarios para desarrollar el proyecto de titulación dentro del área del Refugio y el de las comunidades aledañas de Gandoca, Mata de Limón, San Miguel, Manzanillo y Puerto Viejo.

@@ -1,0 +1,3 @@
+Artículo 7°—La Dirección General Forestal a través del Departamento de Vida Silvestre y la Dirección General de Recursos Pesqueros y Acuacultura deberán elaborar un plan de manejo para la utilización de los recursos marinos, sus productos y subproductos. Ambas dependencias del Ministerio de Agricultura y Ganadería coordinarán con las asociaciones de desarrollo comunal de las localidades aledañas las actividades que tengan relación con los recursos mencionados en este artículo.
+(Ratificado por el artículo 1° del decreto ejecutivo N° 32753 de 16 de mayo de 2005).
+(Ratificado por el artículo 1° del decreto ejecutivo N° 34043 del 11 de setiembre del 2007)

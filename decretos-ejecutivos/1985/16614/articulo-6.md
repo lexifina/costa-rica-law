@@ -1,0 +1,1 @@
+Artículo 6°— Las áreas que de acuerdo con los estudios realizados por el Instituto Nacional de Vivienda y Urbanismo, estén comprendidos dentro de las zonas urbanas de Gandoca, Manzanillo y Puerto Viejo, no estarán sometidas a las regulaciones del presente Decreto.
