@@ -1,0 +1,1 @@
+Artículo 2°—Las sumas que se cobren por concepto de remolque, según lo estipulado en eI artículo anterior, serán destinadas a cubrir los costos irrogados por el transporte de vehículos en la susodicha situación infractora.

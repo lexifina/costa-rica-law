@@ -1,0 +1,1 @@
+Artículo 4°—Los fondos que ingresen por concepto de tarifa de remolque, deberán depositarse en la cuenta del Consejo de Seguridad Vial, de conformidad con lo que estipula el artículo 10 de la Ley de Administración Vial.
