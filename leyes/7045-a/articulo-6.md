@@ -1,0 +1,2 @@
+ARTICULO 6
+Deberán adoptarse medidas para promover las mayor comprensión posible de la necesidad de fomentar el desarrollo de organizaciones de trabajadores rurales y de la contribución que pueden aportar para mejorar las oportunidades de empleo y las condiciones generales de trabajo y de vida en las regiones rurales, así como para incrementar la renta nacional y lograr una mejor distribución de la misma.

@@ -1,0 +1,2 @@
+ARTICULO 4
+Uno de los objetivos de la política nacional de desarrollo rural deberá ser facilitar el establecimiento y expansión, con carácter voluntario, de organizaciones de trabajadores rurales fuertes e independientes, como medio eficaz de asegurar la participación de estos trabajadores, sin discriminación en el sentido del convenio sobre la discriminación (empleo y ocupación), 1958, en el desarrollo económico y social y en los beneficios que de él se deriven.
