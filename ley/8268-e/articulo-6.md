@@ -1,0 +1,1 @@
+6. El Garante se compromete a no tomar ninguna medida y, en el ámbito de su competencia legal, realizar lo pertinente para que no se tomen medidas que dificulten o impidan la ejecución del Proyecto o del PROYECTO SIEPAC u obstaculicen el cumplimiento de cualquier obligación del Prestatario establecida en el Contrato de Préstamo.

@@ -1,0 +1,1 @@
+7. El Garante se compromete también a informar a la mayor brevedad posible al Banco en caso de que en cumplimiento de sus obligaciones de fiador solidario bajo este Contrato estuviere realizando los pagos correspondientes al servicio del Préstamo
