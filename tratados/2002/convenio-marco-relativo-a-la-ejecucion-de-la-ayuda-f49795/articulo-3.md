@@ -1,0 +1,12 @@
+III. Puesta a disposición de los fondos
+Para la realización de pagos en moneda nacional relativos a proyectos objeto de un convenio de financiación firmado entre la Comisión Europea y el Gobierno de Costa Rica, la puesta a disposición de los fondos respetará los procedimientos siguientes:
+1. la administración de los fondos comunitarios será confiada al Beneficiario que es una entidad pública estatal. Sin embargo, dicho Beneficiario no será ejecutor ni gestor de los proyectos que cuenten con financiación comunitaria, dicha función será delegada a la Unidad de Gestión.
+2. dicho Beneficiario abrirá para cada proyecto:
+- una cuenta especial y exclusiva en Euros en un Banco Comercial de Costa Rica designado por el beneficiario con el acuerdo de la Comisión, en la que se depositarán los fondos comunitarios
+- una cuenta exclusiva en moneda nacional en un Banco Comercial, designado por el Beneficiario y con el acuerdo de la Comisión.
+Dichas cuentas estarán abiertas a nombre del Proyecto. El Beneficiario certificará las firmas autorizadas de los dos Co-directores para el manejo exclusivo de ambas cuentas.
+3. la Unidad de Gestión actuará en el estricto respeto de los POG Y POAs aprobados por las autoridades de tutela de cada proyecto, a saber, por una parte el Beneficiario firmante del convenio y por otra parte, la Comisión Europea. A este respecto, la Unidad de Gestión será la única habilitada para solicitar y realizar los pagos o transferencias requeridas.
+4. Dichas cuentas serán las únicas a través de las cuales transitarán los fondos comunitarios. La seguridad de dichos fondos está garantizada por el Gobierno de Costa Rica.
+5. La conversión de Euros a moneda nacional se efectuará a la tasa de cambio del mercado vigente el día de la transacción; en la medida que dichas cuentas no produzcan intereses, los cargos eventuales de mantenimiento serán asumidos directamente por el Beneficiario Directo.
+6. Dichas cuentas pueden ser auditadas por la Comunidad Europea en cualquier momento;
+7. El Beneficiario podrá solicitar toda información necesaria para el cumplimiento efectivo de sus responsabilidades. Por lo tanto efectuará un seguimiento y supervisión permanente de la administración de los fondos expresamente delegada a los dos Co-directores. Asimismo, informará inmediatamente al Coordinador Nacional y a la Delegación de la Comisión Europea sobre la posible existencia de irregularidades en cualquier pago solicitado y/o ejecutado por la Unidad de Gestión.
