@@ -1,0 +1,20 @@
+ARTÍCULO V
+Administración, Directores y Admisión de Personal
+1.- Ninguna de las Partes Contratantes podrá requerir que una empresa
+de esa Parte Contratante, que es una inversión en los términos de este
+Acuerdo, nombre en cargos de alta gerencia, a individuos de una
+nacionalidad determinada.
+2.- Una parte Contratante podrá requerir que una mayoría de la Junta
+Directiva, o de cualquier comité de la misma, de una empresa que es una
+inversión en los términos de este Acuerdo sea de una nacionalidad en
+particular, o residente en el territorio de la Parte Contratante, siempre
+y cuando el requisito no menoscabe materialmente la capacidad del
+inversionista para ejercer el control sobre su inversión.
+3.- Sujeto a sus leyes, reglamentos y políticas relativas a la
+entrada de extranjeros, cada Parte Contratante otorgará ingreso temporal
+a los ciudadanos de la otra Parte Contratante empleados por una empresa o
+una sucursal o filial de la misma, en cargos de alta gerencia o ejecutivos
+o que requieran conocimientos especializados. Sin embargo, para mayor
+certeza, nada en este Artículo será interpretado como una autorización
+para llevar a cabo una práctica profesional en el territorio de una Parte
+Contratante.
