@@ -1,0 +1,2 @@
+Art 2° Si para el mejor éxito de la averiguación judicial lo creyera conveniente, averiguación judicial lo creyere conveniente, podrá el Juez decretar el secreto de la sumaria, en cualquier estado ella, lo mismo que podrá levantar el secreto que hubiere ordenado. Para el Ministerio Público, no habrá secreto, pues él puede apersonarse como parte y desde el principio de toda sumaria. Pero no habrá necesidad de notificarle sino aquellas resoluciones que recayeron en peticiones suyas.
+Mas tratándose de delitos por calumnia o injuria, la sumaria será siempre pública.

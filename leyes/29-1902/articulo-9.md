@@ -1,0 +1,1 @@
+Art 9° La clasificación o calificación defectuosa que haya hecho del delito el auto motivado de prisión, no lo anula si el hecho concreto incriminado resulta bien fijado por el auto, de modo que la defensa haya podido hacerse cargo bien del ataque.
