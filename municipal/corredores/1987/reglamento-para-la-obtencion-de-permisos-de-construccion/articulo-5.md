@@ -1,0 +1,8 @@
+Artículo 5°—Para obtener permiso municipal de construcción, reparación, remodelación de demolición, el interesado deberá de presentar a la oficina del inspector de construcciones, los siguientes documentos:
+a) Brindar los datos que se encuentren en el formulario que la Municipalidad facilitará. A este formulario deberá adjuntársele un timbre fiscal de un colón y un timbre municipal por valor de cuarenta colones. Todos los datos requeridos deberán ser brindados, cualquier omisión dará lugar a que la solicitud no se tramite, sin ninguna responsabilidad para la Municipalidad.
+b) Presentar constancia extendida por la Oficina de Contabilidad Municipal de que está al día en el pago de los servicios o impuestos municipales.
+c) Póliza de riesgos profesionales.
+d) Presentar dos juegos de los planos correspondientes debidamente firmados por un profesional responsable, miembro activo del Colegio Federado de Ingenieros y Arquitectos de Costa Rica y aprobados por la Comisión Revisora de Permisos de Construcción del Instituto Nacional de Vivienda y Urbanismo. En el caso de viviendas meno-es de sesenta metros cuadrados y de interés social, no se exige la aprobación del Instituto Nacional de Vivienda y Urbanismo, hasta tanto no se instale una oficina regional para este efecto en la Zona Sur. En todo caso, los planos deberán estar diseñados de acuerdo con el Reglamento de Construcciones y los planos
+reguladores existentes en el cantón de Corredores.
+e) Copia fiel del documento de la propiedad donde va a construir.
+f) Constancia del Instituto Nacional de Acueductos y Alcantarillados y el Instituto Costarricense de Electricidad de que es factible brindar el servicio, cuando se trate de una área urbana.

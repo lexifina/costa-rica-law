@@ -1,0 +1,1 @@
+Artículo 18.—El propietario y el ingeniero o arquitecto de la edificación responderá de los datos que se indiquen en el diseño o proyecto. La Municipalidad será responsable únicamente por los datos que se refieren al alineamiento y niveles.
