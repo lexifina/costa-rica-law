@@ -6,9 +6,10 @@ CAJA CHICA MONTO ASIGNADO
 Caja Chica General C2.000.000.00
 PRESIDENCIA EJECUTIVA
 SAN JOSE
-Presidencia Ejecutiva C 150.000.00
+Presidencia Ejecutiva C 150 .000. 00
 SAN JOSE
-Caja Chica General C 400.000.00
+Caja Chica General C 1 000.000.00
+(Así modificado mediante Acuerdo 9-Sesión No. 2977 del 06-12-2000).
 OJO DE AGUA
 Caja Chica General C 100.000.00
 PUERTO QUEPOS

@@ -17,3 +17,4 @@ Reglamento de Caja Chica del Instituto de Costarricense de Puertos del Pacífico
 | 3 | 2000-07-26 | Reglamento 2945 (2000-07-26) |
 | 4 | 2000-10-11 | Reglamento 2964 (2000-10-11) |
 | 5 | 2000-10-18 | Reglamento 2966 (2000-10-18) |
+| 6 | 2000-12-06 | Reglamento 2977 (2000-12-06) |
