@@ -1,0 +1,1 @@
+Artículo 3°—El alquiler de la maquinaria pesada no tiene fines de lucro y se podrá realizar siempre y cuando no haya menoscabo o interferencia con la labor Municipal, reservándose la Municipalidad el derecho de suspender los trabajos de la maquinaria en actividades particulares cuando se requiera atender asuntos Municipales urgentes generados por caso fortuito o fuerza mayor.

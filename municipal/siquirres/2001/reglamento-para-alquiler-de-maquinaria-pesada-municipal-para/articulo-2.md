@@ -1,0 +1,1 @@
+Artículo 2°—El fin de este servicio es brindar apoyo a las Organizaciones Comunales - Pequeñas Empresas Agrarias, siempre y cuando necesiten realizar trabajos que requieren el uso de maquinaria pesada y que estén imposibilitados en encontrar empresas que presten este tipo de servicio.
