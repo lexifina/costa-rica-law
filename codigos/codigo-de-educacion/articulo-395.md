@@ -1,3 +1,2 @@
-Artículo 395.- A los alumnos becarios que sin causa alguna, no
-asistan a clases se les descontará de su pensión la parte proporcional
-a sus inasistencias.
+Artículo 395.- Cuando por cualquier causa y en cualquier momento del curso lectivo quede vacante alguna de las becas, la dirección del colegio podrá entregarla a un concursante que no hubiere podido obtenerla desde el primer momento por falta de becas disponibles. Es entendido que el concursante haya logrado obtener calificaciones suficientemente buenas. También podrá prestarla, previa autorización de la Dirección de Segunda Enseñanza y por el resto del curso, a un estudiante si se trata de una beca de ¢ 30.00, y a dos si se trata de una de ¢ 60.00, siempre que sean distinguidos y merezcan el auxilio del Estado. El préstamo no da derecho a continuar con la beca el año siguiente si no se llenan las formalidades estipuladas en el artículo 390 de este Código.
+(Así reformado por el artículo 1° de la ley N° 654 de 10 de agosto de 1949)

@@ -1,3 +1,5 @@
-Artículo 508.- Las pólizas y los derechos de los miembros de la
-Sociedad, de cualquier naturaleza, se consideran inembargables y fuera
-del comercio.
+Artículo 508.- Cuando un socio jubilado o pensionado, mayor de sesenta años esté en circunstancias especiales de pobreza, podrá solicitar un crédito a la Sociedad, ofreciendo en garantía hasta el cincuenta por ciento de su póliza.
+Las condiciones de estos préstamos, serán establecidas en el Reglamento de la Sociedad.
+La Sociedad gozará de la misma garantía que establece el inciso b) del artículo 507 anterior y podrá disponer para estas operaciones, de aquellas sumas que, de conformidad con sus programas sociales, se estimen suficiente para atender las necesidades de los miembros en las circunstancias previstas en el presente artículo.
+La Junta Directiva dictará un Reglamento para la Sociedad, en el cual se detallará su organización y funcionamiento; el monto, forma y condiciones en que se otorgarán los beneficios; los procedimientos para la formación o inversión del fondo de reservas; las normas de control contable y todo otro aspecto importante para la correcta marcha de la institución.
+(Así reformado por el artículo 1° de la ley N° 5283 de 31 de julio de 1973)

@@ -1,2 +1,1 @@
-Artículo 525.- El Contador General Escolar tiene el carácter de
-Agente Fiscal con jurisdicción en toda la República.
+Artículo 525.- (Derogado por el artículo 67° de la Ley Orgánica del Ministerio de Educación Pública, N° 3481 del 13 de enero de 1965)

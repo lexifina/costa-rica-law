@@ -1,4 +1,1 @@
-Artículo 319.- La pérdida de una de las pruebas de admisión,
-implica la pérdida de todas ellas; pero el sustentante podrá ser
-matriculado en el Colegio sin nuevo examen en el curso que señale la
-comisión examinadora.
+Artículo 319.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

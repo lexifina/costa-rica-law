@@ -1,8 +1,2 @@
-Artículo 212.- La enseñanza se impartirá en cursos lectivos de
-nueve meses que comenzarán, en las zonas lluviosas y de difíciles medios
-de comunicación, el primer lunes de enero; en las zonas cafetaleras, el
-primer lunes de febrero; y en el resto del país, el primer lunes de
-marzo, y concluirán respectivamente, el último sábado de setiembre, de
-octubre y de noviembre.
-La Secretaría de Educación determinará cuáles escuelas quedan
-comprendidas en cada zona.
+Artículo 212.- La enseñanza se impartirá en cursos de nueve meses que comenzarán el primer lunes de marzo y concluirán el último sábado de noviembre. En casos de necesidad bien comprobada la Secretaría de Educación Pública podrá variar, para determinada región.
+(Así reformado por el artículo 1° de la ley N° 48 de 15 de febrero de 1945)

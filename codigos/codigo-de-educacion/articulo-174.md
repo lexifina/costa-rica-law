@@ -1,5 +1,2 @@
-Artículo 174.- Las pensiones otorgadas a favor de funcionarios,
-cuya conducta no armonice con la que debe observar un educador, serán
-retiradas, previa información que ordenará levantar de oficio el
-Presidente de la Junta Administradora de Jubilaciones y Pensiones, que
-es a quien corresponde hacerlo.
+Artículo 174.. -Las pensiones otorgadas a favor de funcionarios, cuya conducta no armonice con la que debe observar un educador, serán retiradas, previa información que ordenará levantar de oficio el Presidente de la Junta Administradora de Jubilaciones y Pensiones, que es a quien corresponde hacerlo.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

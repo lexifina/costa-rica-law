@@ -1,16 +1,6 @@
 CAPITULO IV
 De los profesores y alumnos de la Universidad
-Artículo 437.- Los profesores y los Directores no podrán ser
-removidos de sus cátedras si no es por causas graves que hagan
-perjudicial su docencia a juicio de la respectiva Facultad.
-El Rector, el Secretario de la Universidad y los Directores y
-Profesores de sus Escuelas, lo mismo que su personal administrativo,
-tendrán derecho a jubilación voluntaria cuando cumplan sesenta años de
-edad y obligatoria cuando alcancen setenta. Con ese fin la Universidad
-contratará con el Banco Nacional de Seguros un Seguro Individual de
-Vejez y Retiro para cada uno de los funcionarios y empleados dichos,
-ajustándose a los términos que establece el decreto Nº 23 de 27 de
-noviembre de 1934 en cuanto a primas, aportes y beneficios, asumiendo
-la Universidad las obligaciones que corresponden al Estado, según aquel
-decreto. La pensión resultante no podrá ser conmutada ni está sujeta a
-ventas, embargos o trabas de ninguna especie.
+Artículo 437.- Los profesores y los Directores no podrán ser removidos de sus cátedras si no es por causas graves que hagan perjudicial su docencia a juicio de la respectiva Facultad. No obstante si completaren el número de ausencias que el estatuto señale, perderán su cátedra(*).
+(*) (Así adicionado el párrafo anterior por el artículo único de la ley N° 650 del 10 de agosto de 1949)
+El Rector, el Secretario de la Universidad y los Directores y Profesores de sus Escuelas, lo mismo que su personal administrativo, tendrán derecho a jubilación voluntaria cuando cumplan sesenta años de edad y obligatoria cuando alcancen setenta, salvo las excepciones contempladas en el artículo 446. Con ese fin, la Universidad contratará con el Banco Nacional de Seguros, un Seguro Individual de Vejez y Retiro para cada uno de los funcionarios y empleados dichos, ajustándose a los términos que establece el decreto Nº 23 de 27 de noviembre de 1934, en cuanto a primas, aportes y beneficios, asumiendo la Universidad las obligaciones que corresponden al Estado, según aquel decreto. La pensión resultante no podrá ser conmutada ni está sujeta a ventas, embargos o trabas de ninguna especie.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 171 del 21 de agosto de 1945)

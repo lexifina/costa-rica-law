@@ -1,3 +1,1 @@
-Artículo 5º.- Todo costarricense o extranjero es libre para dar
-o recibir la instrucción que a bien tenga en los establecimientos que
-no sean costeados por el Estado.
+Artículo 5º.- .-(Derogado por el artículo 49° de la Ley Fundamental de Educación, Nº 2160 de 25 de setiembre de 1957)

@@ -1,3 +1,1 @@
-Artículo 265.- Los Colegios estarán a cargo de un Director, quien
-tendrá los auxiliares docentes y administrativos que los fines de la
-institución requieren.
+Artículo 265.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

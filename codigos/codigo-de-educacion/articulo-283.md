@@ -1,7 +1,1 @@
-Artículo 283.- Para los efectos de ascenso y de pensión, los
-Profesores de Estado que sean nombrados por el Poder Ejecutivo para el
-desempeño de cualquier cargo relacionado con la educación pública
-podrán solicitar que se les computen esos servicios como prestados
-directamente a la segunda enseñanza, siempre que continúen contribuyendo
-al Fondo de Pensiones en la proporción que establece la ley, o bien que
-reintegren las sumas que dejaron de pagar, al presentar la solicitud.
+Artículo 283.- Para los efectos de ascenso y de pensión, los Profesores de Estado que sean nombrados por el Poder Ejecutivo para el desempeño de cualquier cargo relacionado con la educación pública podrán solicitar que se les computen esos servicios como prestados directamente a la segunda enseñanza, siempre que continúen contribuyendo al Fondo de Pensiones en la proporción que establece la ley, o bien que reintegren las sumas que dejaron de pagar, al presentar la solicitud.

@@ -1,7 +1,1 @@
-Artículo 528.- El Almacén Escolar suministrará a precio de costo
-a las Juntas de Educación y Administrativas de los Colegios, así como
-a los establecimientos particulares de enseñanza todos los elementos
-escolares que tenga en existencia y que se le soliciten.
-Se considera precio de costo de la mercadería adquirida por el
-Almacén Nacional Escolar, el precio de licitación más un 10% que se
-cargará para atender a los gastos de administración.
+Artículo 528.- El Almacén Escolar suministrará a precio de costo a las Juntas de Educación y Administrativas de los Colegios, así como a los establecimientos particulares de enseñanza todos los elementos escolares que tenga en existencia y que se le soliciten. Se considera precio de costo de la mercadería adquirida por el Almacén Nacional Escolar, el precio de licitación más un 10% que se cargará para atender a los gastos de administración.

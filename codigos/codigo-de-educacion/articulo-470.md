@@ -1,4 +1,1 @@
-Artículo 470.- El producto de los impuestos a que se refieren los
-artículos anteriores, figurará en una cuenta especial, y será destinado
-exclusivamente, junto con las asignaciones que señale el presupuesto
-fiscal de cada año, para los fines que indica el artículo anterior.
+Artículo 470.- El producto de los impuestos a que se refieren los artículos anteriores, figurará en una cuenta especial, y será destinado exclusivamente, junto con las asignaciones que señale el presupuesto fiscal de cada año, para los fines que indica el artículo anterior.

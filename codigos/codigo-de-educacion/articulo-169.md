@@ -1,5 +1,2 @@
-Artículo 169.- Puede también concederse jubilación extraordinaria,
-al funcionario que haya quedado imposibilitado de por vida para
-continuar sus servicios, a consecuencia de un acto de abnegación en que
-hubiere arriesgado su vida por interés público o por salvar la vida de
-otra persona.
+Artículo 169.- Puede también concederse jubilación extraordinario, al funcionario que haya quedado imposibilitado de por vida para continuar sus servicios, a consecuencia de un acto de abnegación en que hubiere arriesgado su vida por interés público o por salvar la vida de otra persona.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

@@ -1,9 +1,4 @@
-Artículo 189.- No se acumularán dos o más pensiones en una misma
-persona. En caso de que un funcionaria sea favorecido con más de una
-pensión, el interesado optará por la que le convenga.
-Cuando un funcionario de educación primaria pasare a prestar
-servicios a un colegio oficial de educación secundaria, normal o
-profesional, o viceversa, los años de servicio se sumarán
-indistintamente y el monto de la jubilación o pensión será el total de
-los promedios de los sueldos devengados en los distintos centros
-educativos en donde haya servido.
+Artículo 189.- No se acumularán dos o más pensiones en una persona, excepto que la suma de ellas no exceda de ¢ 300.00 (trescientos colones) por mes. En el caso de una agraciado con varias pensiones se limitará el monto de éstas a ¢ 300.00, siempre que ninguna de tales pensiones exceda de esa suma.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 1968 de 25 de octubre de 1955)
+Cuando un funcionario de educación primaria pasare a prestar servicios a un colegio oficial de educación secundaria, normal o profesional, o viceversa, los años de servicio se sumarán indistintamente y el monto de la jubilación o pensión será el total de los promedios de los sueldos devengados en los distintos centros educativos en donde haya servido.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

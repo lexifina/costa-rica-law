@@ -1,5 +1,1 @@
-Artículo 137.- Incurre en falta de asistencia el maestro que llegue
-después de 30 minutos de la hora fijada para presentarse en la escuela,
-conferencia, examen u otro acto reglamentario a que tenga obligación de
-concurrir por convocatoria de su jefe, o bien que se retire sin causa
-justa antes de la terminación de dicho acto.
+Artículo 137.- Incurre en falta de asistencia el maestro que llegue después de 30 minutos de la hora fijada para presentarse en la escuela, conferencia, examen u otro acto reglamentario a que tenga obligación de concurrir por convocatoria de su jefe, o bien que se retire sin causa justa antes de la terminación de dicho acto.

@@ -1,5 +1,1 @@
-Artículo 79.- Es prohibida la venta o distribución de cualquier
-clase de bebidas alcohólicas en las Reposterías, rifas y ferias que
-organicen los Patronatos, y la celebración de bailes de contribución y
-de cualesquiera espectáculos o actos que no se compaginen con los fines
-de la enseñanza.
+Artículo 79.- Es prohibida la venta o distribución de cualquier clase de bebidas alcohólicas en las Reposterías, rifas y ferias que organicen los Patronatos, y la celebración de bailes de contribución y de cualesquiera espectáculos o actos que no se compaginen con los fines de la enseñanza.

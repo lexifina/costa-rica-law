@@ -1,5 +1,3 @@
-Artículo 98.- Los maestros especiales que poseen el Certificado de
-Idoneidad para la enseñanza de la respectiva asignatura, así como los
-asistentes sanitarios escolares, se clasifican de igual manera en tres
-categorías de acuerdo con las mismas normas que fija el artículo
-anterior.
+Artículo 98.- Los maestros de asignaturas especiales se dividen en tres grupos y cada grupo en tres categorías. Forman el grupo A, los maestros que tienen títulos expedidos por la Escuela de Bellas Artes, el Conservatorio Nacional de Música o la Junta de Directores de Segunda Enseñanza y Normal; el grupo B, los egresados de la Escuela de Bellas Artes y del Conservatorio Nacional de Música sin título de Bachiller, las egresadas de la Escuela Profesional Femenina, los sacerdotes católicos que sean nombrados como maestros de Religión en las escuelas primarias y los maestros de Música que tengan el Certificado de Idoneidad y además el Certificado de Aprovechamiento expedido por la Universidad de Costa Rica; el grupo C, los que posean el Certificado de Idoneidad para la enseñanza de su correspondiente asignatura.
+Dentro de cada grupo se considera que pertenecen a la Primera Categoría los maestros que han prestado servicios docentes durante un lapso no menor de seis años; a la Segunda, los que tienen más de tres años de servicio y no han cumplido seis; y a la Tercera, los que no reúnan esas condiciones.
+(Así reformado por el artículo único de la ley Nº 1944 de 3 de octubre de 1955)

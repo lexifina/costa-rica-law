@@ -1,4 +1,1 @@
-Artículo 368.- Los programas de bachillerato abarcarán veinticinco
-tesis cada uno, serán redactados por la Junta de Directores y uniformes
-para todos los colegios. Cada tesis será suficientemente amplia para
-ocupar todo el tiempo que se concede a cada prueba.
+Artículo 368.- (Derogado por el artículo 1° de la ley N° 1927 del 20 de setiembre de 1955)

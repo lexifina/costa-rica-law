@@ -1,3 +1,2 @@
-Artículo 233.- Considérase de utilidad pública la expropiación de
-los inmuebles que se necesitaren para las casas de escuela y para la
-apertura de las calles que exija la división territorial escolar.
+c) Expropiaciones
+Artículo 233.-(Derogado por el artículo 64, inciso m) de la Ley de Expropiaciones, N° 7495 del 3 de mayo de 1995)

@@ -1,3 +1,1 @@
-Artículo 521.- El Museo Nacional se considera adscrito a la
-Universidad de Costa Rica y tanto su administración como la dirección
-técnica de sus actividades dependerán del Consejo Universitario.
+Artículo 521.- .-(Derogado por el artículo 7° de la ley N° 1542 de 7 de marzo de 1953, “Adscripción del Museo Nacional y del Parque Bolívar a Ministerios”)

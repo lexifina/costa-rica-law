@@ -1,5 +1,1 @@
-Artículo 250.- Los alumnos de escuelas particulares que soliciten
-el ingreso a las escuelas oficiales, serán incorporados al grado que
-corresponda conforme a sus conocimientos y edad mental, según resulte
-del examen general que les hará el Director de la escuela a que deseen
-ingresar.
+Artículo 250.- Los alumnos de escuelas particulares que soliciten el ingreso a las escuelas oficiales, serán incorporados al grado que corresponda conforme a sus conocimientos y edad mental, según resulte del examen general que les hará el Director de la escuela a que deseen ingresar.

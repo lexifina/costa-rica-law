@@ -1,4 +1,2 @@
-Artículo 180.- Cuando ocurriere el fallecimiento de un funcionario
-en las circunstancias dichas, las personas antes enumeradas tendrán
-derecho a pensión, como luego se expresa, sin otro trámite que el de su
-identificación.
+Artículo 180.- Cuando ocurriere el fallecimiento de un funcionario en las circunstancias dichas, las personas antes enumeradas tendrán derecho a pensión, como luego se expresa, sin otro trámite que el de su identificación.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

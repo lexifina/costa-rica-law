@@ -1,15 +1,2 @@
-Artículo 389.- La Junta de Directores estudiará las solicitudes
-presentadas y recomendará la adjudicación de las becas en vista de los
-atestados que acompañen a cada solicitud; a este efecto, tendrá amplia
-libertad para recomendar la adjudicación en la forma que considere más
-justa y beneficiosa a los intereses de la Educación. Sin embargo, dará
-preferencia:
-1º.- Al que presente mejores calificaciones;
-2º.- Al que tenga menos recursos propios o de familia;
-3º.- Al que resida en cantones más alejados del asiento del
-Colegio.
-Si la Junta lo considera oportuno, puede también convocar a
-exámenes a los aspirantes a fin de formar juicio sobre los méritos de
-cada cual, nombrando al efecto una comisión de profesores que practique
-las pruebas, las cuales versarán sobre Castellano y Matemáticas, y serán
-escritas y orales.
+Artículo 389.- La adjudicación de las becas corresponderá a la Dirección General de Segunda Enseñanza, que la hará en vista del informe respectivo de los Directores de Colegios y del Decano de la Facultad de Pedagogía. Con este fin, durante el mes de enero de cada año, el Departamento de Segunda Enseñanza publicará anuncios llamando a los interesados a presentar las solicitudes en la Dirección de los diferentes colegios y ante la Facultad de Pedagogía.
+(Así reformado por el artículo 1° de la ley N° 654 de 10 de agosto de 1949)

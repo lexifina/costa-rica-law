@@ -1,4 +1,1 @@
-Artículo 165.- En el caso de que un maestro abandone su puesto, el
-Inspector de Escuelas respectivo levantará una información para
-comprobar el hecho y la remitirá al Juez del Crimen para el juzgamiento
-de culpable.
+Artículo 165.- En el caso de que un maestro abandone su puesto, el Inspector de Escuelas respectivo levantará una información para comprobar el hecho y la remitirá al Juez del Crimen para el juzgamiento de culpable.

@@ -1,6 +1,3 @@
 TITULO III
 De las Juntas Administrativas
-Artículo 398.- Las Juntas Administrativas de los Colegios de
-Segunda Enseñanza se componen de tres miembros propietarios y dos
-suplentes, que serán nombrados por la Secretaría de Educación Pública
-por terceras partes, en la segunda quincena de julio de cada año.
+Artículo 398.- .-(Derogado por el artículo 49° de la Ley Fundamental de Educación, Nº 2160 de 25 de setiembre de 1957)

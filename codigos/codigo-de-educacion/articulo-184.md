@@ -1,5 +1,2 @@
-Artículo 184.- Si al ocurrir el fallecimiento, la esposa se hallare
-divorciada por culpa suya, o viviendo separada de hecho, o
-provisionalmente separada por su culpa y a pedimento del marido, no
-tendrá derecho a pensión y las otras personas a quienes correspondiere
-gozarán de ésta como si la viuda no existiere.
+Artículo 184.- Si al ocurrir el fallecimiento, la esposa se hallare divorciada por culpa suya, o viviendo separada de hecho, o provisionalmente separada por su culpa y a pedimento del marido, no tendrá derecho a pensión y las otras personas a quienes correspondiere gozarán de ésta como si la viuda no existiere.
+(Nota de Sinalevi: Véase el artículo 28 de Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 de 5 de setiembre de 1958, el cual ordena derogar en cuanto se opongan a dicha ley, todas las disposiciones que sobre pensiones del Magisterio contiene el Código de Educación)

@@ -1,29 +1,6 @@
-Artículo 60.- La recaudación de los fondos para los fines
-expresados en el artículo anterior, se verificará de la manera que
-indican este artículo y los que siguen.
-Si la naturaleza de la obra por ejecutarse exigiere la confección
-de un presupuesto de acuerdo con principios técnicos, la Secretaría de
-Fomento por medio del Departamento respectivo lo formulará. En los
-demás casos el presupuesto será formulado por la Junta de Educación del
-distrito en asocio del Inspector de Escuelas respectivo debiendo
-entonces hacerse especificación detallada de los gastos que hayan de
-cubrirse.
-En uno u otro caso, determinado el monto de la erogación, la Junta
-solicitará de la Secretaría de Educación, la aprobación respectiva. Si
-la Secretaría juzgara que la contribución que se va a exigir al distrito
-es superior a los recursos de éste, y que el Estado puede contribuir en
-parte a la ejecución de la obra, rebajará el monto de la suma global en
-la cantidad que estime equitativo.
-Aprobada la erogación por la Secretaría del ramo, la Junta
-interesada convocará a una reunión general a los vecinos del distrito
-escolar y a los que sin ser vecinos, sean dueños o peseedores de bienes
-muebles o de bienes raíces en el distrito, a efecto de que se cubra por
-suscripción voluntaria el monto de la erogación.
-La convocatoría a tal reunión se publicará en el Diario Oficial con
-una anticipación no menor de ocho días a la fecha señalada para su
-celebración.
-En las cuidades cabeceras de provincia se prescindirá de convocar
-a reunión, pero se invitará a los vecinos y poseedores dichos, a que
-durante un término de quince días, posteriores a la publicación de la
-invitación en el Diario Oficial manifiesten por escrito a la Secretaría
-de la Junta, el monto de la cuota voluntaria que suscriban.
+Artículo 60.- La recaudación de los fondos para los fines expresados en el artículo anterior, se verificará de la manera que indican este artículo y los que siguen.
+Si la naturaleza de la obra por ejecutarse exigiere la confección de un presupuesto de acuerdo con principios técnicos, la Secretaría de Fomento por medio del Departamento respectivo lo formulará. En los demás casos el presupuesto será formulado por la Junta de Educación del distrito en asocio del Inspector de Escuelas respectivo debiendo entonces hacerse especificación detallada de los gastos que hayan de cubrirse.
+En uno u otro caso, determinado el monto de la erogación, la Junta solicitará de la Secretaría de Educación, la aprobación respectiva. Si la Secretaría juzgara que la contribución que se va a exigir al distrito es superior a los recursos de éste, y que el Estado puede contribuir en parte a la ejecución de la obra, rebajará el monto de la suma global en la cantidad que estime equitativo.
+Aprobada la erogación por la Secretaría del ramo, la Junta interesada convocará a una reunión general a los vecinos del distrito escolar y a los que sin ser vecinos, sean dueños o peseedores de bienes muebles o de bienes raíces en el distrito, a efecto de que se cubra por suscripción voluntaria el monto de la erogación.
+La convocatoría a tal reunión se publicará en el Diario Oficial con una anticipación no menor de ocho días a la fecha señalada para su celebración.
+En las cuidades cabeceras de provincia se prescindirá de convocar a reunión, pero se invitará a los vecinos y poseedores dichos, a que durante un término de quince días, posteriores a la publicación de la invitación en el Diario Oficial manifiesten por escrito a la Secretaría de la Junta, el monto de la cuota voluntaria que suscriban.

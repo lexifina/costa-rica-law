@@ -1,6 +1,4 @@
-Artículo 507.- Todo servicio que hayan de prestar los socios será
-gratuito. Solamente el Secretario-Tesorero, en su carácter de
-intermediario para la entrega de giros, de contador, archivero, etc.,
-de la Sociedad, tendrá derecho a deducir los gastos que las operaciones
-de su cargo ocasionen y, además, un tres por ciento (3%) a título de
-honorarios, sobre las sumas recaudadas.
+Artículo 507.- Declárase inembargables las pólizas y los derechos que de ellas se derivan, y queda prohibido hacer negocio con esos títulos, salvo en los casos siguientes:
+a) Cuando se obtengan créditos con prenda de las pólizas, con el Instituto Nacional de Vivienda y Urbanismo, para construir o reparar casas de habitación; y
+b) Cuando los socios hagan operaciones de crédito con la Caja de Préstamos y Descuentos de la Asociación Nacional de Educadores, o en cualquiera otra institución del Estado o autorizada por éste, con la garantía de la póliza, de hecho quedará pignorada a esa institución, sin compromiso alguno para la sociedad y a cargo de la institución. Si el deudor falleciere, estando pendiente de pago el total o parte de la deuda, el administrador retendrá, al hacer la liquidación, la suma respectiva para pagar la deuda. Las deducciones hechas para los fines expuestos, no podrán ser origen de reclamaciones contra la sociedad, salvo error en la liquidación.
+(Así reformado por el artículo 1° de la ley N° 4204 de 21 de octubre de 1968)

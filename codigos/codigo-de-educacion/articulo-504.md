@@ -1,3 +1,2 @@
-Artículo 504.- Las solicitudes de pago que formulen los
-interesados, serán atendidas y resueltas por la Directiva en el orden
-de su presentación.
+Artículo 504.- Las solicitudes de cancelación de las pólizas que formulen los interesados serán atendidas y resueltas por la Directiva en su orden de presentación. En el caso de que al tramitar una solicitud medien intereses de menores, la parte correspondiente a éstos será depositada en el Patronato Nacional de la Infancia, para lo de su cargo.
+(Así reformado por el artículo 1° de la ley N° 715 de 14 de setiembre de 1949)

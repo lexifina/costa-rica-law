@@ -1,3 +1,1 @@
-Artículo 412.- El Tesorero de la Junta debe conocer de todas las
-operaciones que la Junta efectúe, pues todas ellas, cualquiera que sea
-su importancia, deben quedar registradas en sus libros de contabilidad.
+Artículo 412.- El Tesorero de la Junta debe conocer de todas las operaciones que la Junta efectúe, pues todas ellas, cualquiera que sea su importancia, deben quedar registradas en sus libros de contabilidad.

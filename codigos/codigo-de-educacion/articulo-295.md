@@ -1,9 +1,1 @@
-Artículo 295.- La ausencia injustificada será multada con cinco
-colones por lección; los Consejos de Profesores se tomarán por dos
-lecciones; los demás actos del Colegio valdrán por media lección. Esas
-multas se destinarán al socorro de los alumnos pobres y se entregarán
-mensualmente, mediante un giro, a la asociación que debe existir al
-efecto.
-Quedará cesante ipso facto, el profesor que incurra en un número
-de inasistencias inmotivadas, correspondiente al 25% de las horas a que
-deba asistir al Colegio durante un bimestre.
+Artículo 295.(Derogado por el artículo 2º de la Ley Nº 48 de 15 de febrero de 1945 y nuevamente por el artículo 1 de la ley No.3492 de 29 de enero de 1965)

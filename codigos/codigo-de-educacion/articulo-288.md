@@ -1,5 +1,1 @@
-Artículo 288.- A principios de cada año lectivo el Director de
-acuerdo con los profesores, distribuirá entre ellos los trabajos
-educativos y fijará el tiempo que cada profesor deba permanecer en el
-plantel fuera de las horas de clase, para la ejecución de estos
-trabajos.
+Artículo 288.-(Derogado por el artículo 2º de la Ley Nº 48 de 15 de febrero de 1945 y nuevamente por el artículo 1 de la ley No.3492 de 29 de enero de 1965)

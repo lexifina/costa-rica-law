@@ -1,7 +1,2 @@
-Artículo 394.- La Secretaría de Educación Pública, por medio del
-Departamento de Becas, vigilará el comportamiento y el aprovechamiento
-de los estudiantes favorecidos con estos auxilios. A este fin, los
-Directores de Colegios enviarán a dicho Departamento un duplicado de las
-calificaciones que reciba el becario, así como una copia de las notas
-que sobre conducta del mismo lleguen a figurar en los libros del
-establecimiento.
+Artículo 394.- Las becas se conceden por todo el tiempo que el agraciado necesite para realizar sus estudios, mientras no cambie de colegio. Si dicho cambio se hace durante el curso, el estudiante seguirá percibiendo por el resto del año lectivo su pensión como becario del colegio que abandona; pero el año siguiente habrá de hacer solicitud ante el nuevo colegio para obtener una beca vacante en él; tendrá prioridad sobre los otros solicitantes y no estará obligado a hacer exámenes previos.
+(Así reformado por el artículo 1° de la ley N° 654 de 10 de agosto de 1949)

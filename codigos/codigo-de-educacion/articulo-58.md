@@ -1,16 +1,13 @@
-Artículo 58.- Los Tesoreros Escolares tendrán como honorario; un
+Artículo 58.- Los Tesoreros Escolares tendrán como honorarios un
 cinco por ciento sobre las cantidades que mensualmente recauden, salvo
-sobre las sumas directamente entregadas por el Tesorero Público.
-Sobre estas entradas los honorarios se computarán así: hasta mil
-colones, el cinco por ciento, sobre el exceso de mil a cinco mil
-colones, el cuatro por ciento; sobre el exceso de cinco mil a diez mil
-colones, el tres por ciento; sobre el exceso de diez mil a veinte mil
-colones, el dos por ciento; sobre cualquier exceso adicional, el uno por
-ciento.
-Estos honorarios se calcularán sobre el valor total de la suma
-acordada del Tesoro Público a favor de la Junta de Educación aunque las
-sumas correspondiente se perciban por partes.
-Cuando los fondos sean calculados por Tesoreros Auxiliares, es
-entendido que a éstos corresponden únicamente los honorarios a que se
-refiere el presente artículo.
+sobre las sumas directamente entregadas por el Tesoro Público. Las Juntas
+pagarán las primas de las fianzas de los Tesoreros.
+En todo caso, los honorarios indicados no podrán exceder de mil
+colones mensuales.
+La Contraloría General de la República comprobará al final de cada
+años el cumplimiento de esta disposición y entablará, por medio de la
+Procuraduría General de la República, las acciones que correspondan para
+recobrar, en favor de cada Junta, cualquier exceso pagado.
+(Así reformado por la Ley Nº 2949 de 18 de diciembre de 1961, artículo
+1º)
 c) Detalles

@@ -1,11 +1,8 @@
-Artículo 97.- Los maestros de grado se dividen en tres grupos y
-cada grupo en tres categorías: forman el Grupo A los maestros que poseen
-título profesional expedido por Escuelas de Pedagogía o normales; el
-Grupo B, los que poseen el Certificado Superior de Aptitud para la
-Enseñanza Primaria; y el Grupo C los que poseen el Certificado Elemental
-de Aptitud para dicha enseñanza.
-Dentro de cada grupo se considera que pertenecen a la primera
-categoría los maestros que han prestado servicios docentes durante un
-lapso no menor de seis años; a la segunda, los que tienen más de tres
-años de servicios y no han cumplido seis; y a la tercera los que no
-reúnen esa condiciones.
+Artículo 97.-
+a) Los maestros de grado se dividen en cuatro grupos y cada grupo en tres categorías. Forman el grupo A, los maestros que poseen título profesional expedido por la Facultad de Pedagogía de la Universidad Nacional, los graduados en la antigua Escuela Normal de Costa Rica o en las antiguas Secciones Normales del Liceo de Costa Rica o del Colegio Superior de Señoritas, los graduados en las Escuelas Normales con base de bachillerato y los graduados en las Facultades de Ciencias y de Filosofía y Letras de la Universidad Nacional; el grupo B, los graduados en las Escuelas Normales Regionales que no tienen base de bachillerato y los egresados de la Facultad de Filosofía y Letras de la Universidad Nacional que sirvan en las escuelas primarias como maestros ordinarios; el grupo C, los que poseen el Certificado Superior de Aptitud para la enseñanza primaria; y el grupo D, los que poseen el Certificado Elemental de Aptitud para dicha enseñanza.
+b) Sin embargo, los maestros normales regionales estarán equiparados, para efectos de sueldo, a los del grupo A, y pasarán definitivamente a este último grupo después de seis años de servicios, siempre que sus calificaciones hayan sido de Bueno o superiores a Bueno.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 2584 del 17 de junio de 1960)
+c) Dentro de cada grupo se considera que pertenecen a la Primera Categoría los maestros que han prestado servicios docentes durante un lapso no menor de seis años; a la Segunda, los que tienen más de tres años de servicios y no han cumplido seis; y a la Tercera, los que no reúnan esas condiciones.
+Los alumnos del Instituto de Formación Profesional del Magisterio, sean maestros ordinarios o especiales, que aprueben los exámenes para su graduación, se considerarán incluidos en el grupo "b" del Escalafón, y pasarán al grupo "A" los que cursen y aprueben un año más, de acuerdo con los programas, materiales y planes de estudios que se adicionarán al reglamento de la Institución.
+Los profesores de Enseñanza media serán asimilados, para efectos de sueldo, al grupo "B", y si aprueban un año de post-graduados, serán incluidos en dicho grupo.
+(Nota de Sinalevi: El artículo 1° de la ley N° 2718 del 1 de febrero de 1961 adicionó originalmente tres párrafos al final del presente numeral. Posteriormente, el artículo 1 de ley N° 3254 del 12 de diciembre de 1963 los refunde en dos párrafos, con las modificaciones indicadas)

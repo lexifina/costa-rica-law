@@ -1,15 +1,4 @@
-Artículo 222.- Para la aplicación de las penas especificadas por
-el maestro respectivo; pero se citará al responsable con antelación de
-72 horas y señalamiento de día y hora para oír las excusas y defensas
-que presente.
-Para la comparecencia de las personas cuyo testimonio solicite el
-responsable dentro de las setenta y dos horas, prestará la autoridad
-todos los auxilios de que disponga. Las pruebas inoficiosas encaminadas
-a entorpecer el procedimiento, pueden ser desechadas desde luego.
-Si el padre, tutor o encargado no compareciere al llamamiento de
-la autoridad, se dictará el fallo que corresponda, el cual no se anulará
-sino en el caso de que el reo compruebe impedimento de fuerza mayor.
-De lo obrado se levantará una acta en que lacónicamente se exprese
-todo lo ocurrido: extracto de ella se remitirá al Inspector Provincial
-de Escuelas, para que toma las notas correspondientes en un registro que
-ha de llevar.
+Artículo 222.- Para la aplicación de las penas especificadas por el maestro respectivo; pero se citará al responsable con antelación de 72 horas y señalamiento de día y hora para oír las excusas y defensas que presente.
+Para la comparecencia de las personas cuyo testimonio solicite el responsable dentro de las setenta y dos horas, prestará la autoridad todos los auxilios de que disponga. Las pruebas inoficiosas encaminadas a entorpecer el procedimiento, pueden ser desechadas desde luego.
+Si el padre, tutor o encargado no compareciere al llamamiento de la autoridad, se dictará el fallo que corresponda, el cual no se anulará sino en el caso de que el reo compruebe impedimento de fuerza mayor.
+De lo obrado se levantará una acta en que lacónicamente se exprese todo lo ocurrido: extracto de ella se remitirá al Inspector Provincial de Escuelas, para que toma las notas correspondientes en un registro que ha de llevar.

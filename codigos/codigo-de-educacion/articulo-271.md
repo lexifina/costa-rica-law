@@ -1,3 +1,1 @@
-Artículo 271.- Las tareas docentes corrientes pueden ser reforzadas
-por medio de conferencias o lecturas periódicas, que den los profesores
-y los alumnos sobre cualquier tema.
+Artículo 271.- .(Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,5 +1,1 @@
-Artículo 467.- El sostenimiento del Departamento y el desarrollo
-de sus fines se cubrirá con el producto del timbre deportivo, que se
-emitirá de conformidad con las disposiciones del artículo 270 del Código
-Fiscal, para ser aplicado a los documentos que indican los artículos
-siguientes:
+Artículo 467.- El sostenimiento del Departamento y el desarrollo de sus fines se cubrirá con el producto del timbre deportivo, que se emitirá de conformidad con las disposiciones del artículo 270 del Código Fiscal, para ser aplicado a los documentos que indican los artículos siguientes.

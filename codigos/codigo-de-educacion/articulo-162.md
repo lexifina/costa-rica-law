@@ -1,5 +1,1 @@
-Artículo 162.- La resolución de la autoridad superior deberá
-dictarse en el término de cinco días, contados desde la fecha en que se
-reciba el expediente o se practiquen las últimas investigaciones, las
-que, a su vez, deberán llevarse a cabo en un plazo no mayor de diez
-días.
+Artículo 162.- La resolución de la autoridad superior deberá dictarse en el término de cinco días, contados desde la fecha en que se reciba el expediente o se practiquen las últimas investigaciones, las que, a su vez, deberán llevarse a cabo en un plazo no mayor de diez días.

@@ -1,8 +1,6 @@
-Artículo 444.- Los títulos que expida la Universidad serán válidos
-para el desempeño de las funciones públicas en que las leyes o los
-reglamentos exijan preparación especial, así como para el ejercicio
-libre de las profesiones cuya competencia acredita.
-Los alumnos que se gradúen en las Escuelas de Ciencias y Letras se
-considerarán por ese solo hecho Profesores de Estado en los ramos de su
-especialidad y gozarán de preferencia para ocupar las plazas respectivas
-en los Colegios de Segunda Enseñanza.
+Artículo 444.- Los títulos que expida la Universidad serán válidos para el desempeño de las funciones públicas en las que las leyes o los reglamentos exijan preparación especial, así como para el ejercicio libre de las profesiones cuya competencia acredita.
+Los alumnos que se gradúen en las Escuelas de Ciencias y Letras se considerarán por ese solo hecho Profesores de Estado en los ramos de su especialidad y gozarán de preferencia para ocupar las plazas respectivas en los Colegios de Segunda Enseñanza.
+También se considerarán Profesores de Estado en sus respectivos ramos:
+a)- Los alumnos que, habiendo cursado con aprobación el tercer año de la Segunda Enseñanza, obtengan títulos o certificados de conclusión de estudios en la Escuela de Bellas Artes o en el Conservatorio Nacional de Música;
+b)- (Derogado este inciso por el artículo 12° de la ley N° 837 del 4 de noviembre de 1949, dicho numeral indica: “Artículo 12°.-Quedan derogados... “los párrafos últimos del artículo 444 del Código de Educación reformado por ley Nº 14 de 14 de noviembre de 1945, a partir del que se inicia con la letra b), con la salvedad de la fecha de su publicación”)
+(Así reformado por el artículo 1° de la ley N° 14 del 14 de noviembre de 1945)

@@ -1,3 +1,1 @@
-Artículo 512.- Para ser empleado de la Biblioteca Nacional se
-requerirá, como requisito indispensable, ser Bachiller en Ciencias y
-Letras o Maestro Normal.
+Artículo 512.- (Derogado por el artículo 67° de la Ley Orgánica del Ministerio de Educación Pública, N° 3481 del 13 de enero de 1965)

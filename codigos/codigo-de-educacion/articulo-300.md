@@ -1,14 +1,4 @@
 Consejo de profesores
-Artículo 300.- El Consejo de Profesores se compondrá del Director,
-los Profesores, el Secretario y los Inspectores del Colegio. El
-Secretario y los Inspectores sólo tendrán voz en el Consejo; sin
-embargo, tendrán también el voto en asuntos que se relacionen con la
-disciplina.
-El Consejo no puede celebrar sesión sino con la mayoría absoluta
-de sus miembros. Se reunirá cada vez que el Director lo convoque o que
-lo soliciten de él cuatro o más de sus miembros.
-Las sesiones del Consejo tienen por objeto discutir y resolver las
-cuestiones que a dicho cuerpo le sean sometidas por el Director o por
-los profesores, con respecto a enseñanza, orden, disciplina y demás
-necesidades concernientes a educación y a la buena marcha del
-establecimiento.
+Artículo 300.- Cada institución de Educación Media tendrá un Consejo integrado por el Director, el Orientador, los profesores, los auxiliares de Orientación, el Bibliotecario y el Secretario, quienes sólo podrán dejar de asistir a las sesiones por justa causa. Se reunirá ordinariamente una vez al mes y extraordinariamente cuando el Director lo convoque por decisión propia o a petición de una cuarta parte del total de sus miembros. El Consejo no podrá celebrar sesión si no es con las dos terceras partes del total de sus miembros.
+El Presidente y el Vicepresidente de la Directiva del Gobierno Estudiantil podrán asistir con voz y voto, a las sesiones del Consejo cuando el Director considere conveniente invitarlos a concurrir a la sesión respectiva o cuando la Directiva mencionada, por acuerdo, haga saber al Director su deseo de ser recibidos para plantear cualquier gestión aprobada por ella.
+(Así reformado por el artículo 2° de la ley No.3492 de 29 de enero de 1965)

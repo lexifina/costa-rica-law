@@ -1,2 +1,1 @@
-Artículo 344.- La expulsión de la Segunda Enseñanza durará hasta
-tanto no levante la Junta de Directores.
+Artículo 344.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

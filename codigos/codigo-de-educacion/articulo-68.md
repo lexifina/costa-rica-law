@@ -1,6 +1,3 @@
-Artículo 68.- Los impuestos a que se refieren los decretos Nº 12
-de 31 de mayo de 1911 y Nº 170 de 23 de agosto de 1928, y la renta de
-destace creada en favor de las Juntas Escolares, constituirán el Fondo
-Nacional de Educación y serán dedicadas preferentemente a la
-construcción y reparación de edificios escolares y a la provisión de
-libros de texto y demás material de enseñanza a los estudiantes pobres.
+d) Fondo Nacional de Educación
+(Nota de Sinalevi: Véase el artículo 16 de la Ley de Administración Financiera de la República Nº 1279 de 2 de mayo de 1951, que regula los ingresos y egresos del Tesoro Nacional).
+Artículo 68.- Los impuestos a que se refieren los decretos Nº 12 de 31 de mayo de 1911 y Nº 170 de 23 de agosto de 1928, y la renta de destace creada en favor de las Juntas Escolares, constituirán el Fondo Nacional de Educación y serán dedicadas preferentemente a la construcción y reparación de edificios escolares y a la provisión de libros de texto y demás material de enseñanza a los estudiantes pobres.

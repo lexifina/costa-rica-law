@@ -1,8 +1,2 @@
-Artículo 266.- El curso se abre el segundo lunes de marzo y se
-cierra en la segunda quincena de noviembre. El tiempo restante se
-destina a vacaciones, excepto en cuanto a las labores necesarias para
-apertura y cierre del curso y aseo y cuidado del edificio. Cuando por
-causa imprevista el curso se interrumpiere. la Secretaría de Educación
-Pública puede reducir las vacaciones hasta en un mes.
-El Colegio tendrá también dos semanas de descanso en el mes de
-julio.
+Artículo 266.- El curso lectivo se iniciará el primer lunes de marzo y terminará el último sábado de noviembre. El lapso intermedio entre estas dos fechas se tendrá como vacaciones, excepto en cuanto a las labores necesarias para apertura y cierre del curso y aseo y cuidado del edificio, que queda a cargo del personal administrativo. Cuando por causa imprevista el curso se interrumpiere, el Ministerio de Educación Pública puede reducir las vacaciones hasta en un mes. Los colegios tendrán también dos semanas de descanso en el mes de julio.
+(Así reformado por el artículo 2° de la ley N° 1927 del 20 de setiembre de 1955)

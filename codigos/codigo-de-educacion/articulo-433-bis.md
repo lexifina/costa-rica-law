@@ -1,0 +1,1 @@
+Artículo 433 bis.- (La adición práctica de este artículo por el artículo único de la ley N° 611 del 18 de julio de 1946, posteriormente fue derogada por el artículo único de la norma N° 97 del 13 de julio de 1948)

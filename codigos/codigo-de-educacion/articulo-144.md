@@ -1,6 +1,2 @@
-Artículo 144.- Las maestras casadas que se encuentran en estado de
-gravidez deben solicitar licencia por los tres meses anteriores y el que
-siga al alumbramiento, con goce de la tercera parte de su sueldo. Si con
-posterioridad al tercer mes del curso lectivo se vieren obligadas a
-acogerse a este artículo, se considerarán separadas de su destino por
-el resto del curso, con goce de la tercera parte dicha.
+Artículo 144.- Las maestras casadas que se encuentren en estado de gravidez deben solicitar licencia por los tres meses anteriores y el que siga al alumbramiento, las cual se concederá con goce de su sueldo.
+Si con posterioridad al tercer mes del curso lectivo dichas maestras se vieren obligadas a acogerse a este artículo, se considerarán separadas de su destino por el resto del curso. Durante los meses lectivos posteriores al período dicho en el aparte anterior, gozarán solamente de la mitad de su sueldo.

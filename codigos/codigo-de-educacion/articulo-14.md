@@ -2,6 +2,4 @@ LIBRO I
 De la Educación Primaria
 TITULO I
 Disposiciones generales
-Artículo 14.- La escuela primaria tiene por objeto favorecer y
-dirigir gradual y simultáneamente el desarrollo moral, intelectual y
-físico del educando.
+Artículo 14.- .-(Derogado por el artículo 49° de la Ley Fundamental de Educación, Nº 2160 de 25 de setiembre de 1957)

@@ -1,4 +1,1 @@
-Artículo 371.- Los exámenes orales durarán veinte minutos en
-Castellano y Matemáticas; quince minutos en los demás ramos, si bien el
-Presidente del Tribunal podrá acortar o alargar ese término, por
-circunstancias especiales.
+Artículo 371.- (Derogado por el artículo 1° de la ley N° 1927 del 20 de setiembre de 1955)

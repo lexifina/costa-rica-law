@@ -29,28 +29,7 @@ expidan con destino al exterior, y de cincuenta céntimos de colón (¢
 destino al interior de la República.
 7º.- Un derecho de un colón mensual que pagará cada abonado al
 servicio telefónico, público o privado.
-8º.- Un derecho de cancelación de cédulas hipotecarias a razón de
-dos céntimos por cada diez colones de valor de la cédula que se cancela;
-y
-9º.- Un derecho sobre las adjudicaciones por concepto de herencia
-o de ganancias que se liquidará en relación con la porción que se
-adjudique a cada heredero o legatario o el cónyuge sobreviviente de
-acuerdo con las siguientes reglas:
-Primera.-Cuando la adjudicación corresponda al cónyuge, a los
-ascendientes o descendientes del causante, un uno por ciento sobre los
-primeros cien mil colones; un dos por ciento sobre el exceso de sin mil
-a quinientos mil colones; un tres por ciento sobre cualquier exceso
-adicional.
-Segunda.-Cuando la adjudicación corresponda a hermanos, tíos o
-sobrinos del causante, un dos por ciento sobre los primeros cien mil
-colones; un tres por ciento sobre el exceso de cien mil a quinientos mil
-colones; y un cuatro por ciento sobre cualquier exceso adicional.
-Tercera.-Cuando la adjudicación corresponda a persona no
-comprendidas en los incisos anteriores, un cuatro por ciento sobre los
-primeros cien mil colones; un cinco por ciento cobre el exceso de cien
-mil a quinientos mil colones y un seis por ciento sobre sumas mayores.
-El pago de los impuestos dichos se hará constar adhiriendo timbres
-universitarios por la suma que corresponda a las listas de pasajeros del
-servicio aéreo, a los recibos de cancelación del servicio telefónico,
-a las escrituras de cancelación de cédulas y a los expedientes
-respectivos, según proceda.
+8º.- DEROGADO.
+(DEROGADO por la Ley Nº 1234 de 29 de noviembre de 1950, artículo 4º)
+9º.- DEROGADO.
+(DEROGADO por la Ley Nº 2837 de 20 de octubre de 1961, artículo 2º)

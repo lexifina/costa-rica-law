@@ -1,9 +1,4 @@
-Artículo 134.- Cuando la licencia se conceda al maestro por razón
-de enfermedad debidamente comprobada, se girará a su favor una suma
-mensual equivalente a la tercera parte de su sueldo anterior a la
-licencia.
-Estos auxilios sólo se concederán por tiempo mayor a seis meses,
-cuando el maestro haya sido internado en el Sanatorio Durán u otra
-institución oficial de lucha contra la tuberculosis, en cuyo caso el
-auxilio se girará durante todo el tiempo que permanezca bajo
-tratamiento en tales establecimientos o bajo su control.
+Artículo 134.- Cuando la licencia se concede al maestro por razón de enfermedad debidamente comprobada, se girará, a su favor, y por un tiempo no mayor de seis meses, la mitad del sueldo anterior al disfrute de la licencia. En casos excepcionales puede autorizarse una prórroga de este beneficio hasta por dos trimestres más si el maestro enfermo demostrare su incapacidad para trabajar, con el testimonio del médico oficial y de un médico de la Caja Costarricense de Seguro Social.
+Cuando el maestro o profesor haya sido internado en instituciones oficialmente reconocidas para el tratamiento de enfermedades mentales, tuberculosis, lepra, cáncer o poliomielitis, se girará un auxilio igual a la totalidad de su sueldo. En los casos de enfermedades mentales, tuberculosis y lepra, este auxilio se otorgará durante el tiempo que el enfermo deba permanecer asilado, o en tratamiento ordenado por el Jefe de la respectiva institución, pero deberá renovarse la solicitud del mismo cada seis meses. Y en los casos de cáncer, poliomielitis, secuelas de accidentes vasculares y cerebrales, insuficiencia cardiaca crónica, secuelas post-encefalíticas y post-meningíticas y toda enfermedad que implique incapacidad total, se dará por el término que dure su tratamiento, debiendo revalidarse la solicitud de auxilio cada seis meses. Sin embargo, cuando el enfermo esté asegurado por el régimen de invalidez, vejes y muerte de la Caja Costarricense de Seguros Social, el auxilio será solamente por la suma que, agregada al subsidio que por ley debe otorgarle la Caja, complete el sueldo total. subsidio que, por ley debe otorgarle la Caja, complete el sueldo total.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 2582 del 17 de junio de 1960)
+(Así reformado por el artículo 1° de la ley N° 1944 de 3 de octubre de 1955)

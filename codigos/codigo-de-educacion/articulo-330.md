@@ -1,3 +1,1 @@
-Artículo 330.- La exención de derechos de matrícula corresponde al
-Director y podrá acordarse por premio, por derecho o por gracia y será
-otorgada por un año.
+Artículo 330.- (Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

@@ -1,7 +1,3 @@
-Artículo 447.- Los estatutos y reglamentos de la Universidad serán
-sometidos para su homologación y publicación en el Diario Oficial, a la
-Secretaría de Educación Pública.
-Los representantes de la Institución serán igualmente remitidos al
-Centro de Control y a la Secretaría dicha.
-Los giros por sueldos o gastos de cualquier especie serán
-necesariamente refrendados, para su pago, por el Centro de Control.
+Artículo 447.- Los estatutos y reglamentos de la Universidad serán sometidos para su homologación y publicación en el Diario Oficial, a la Secretaría de Educación Pública.
+Los representantes de la Institución serán igualmente remitidos al Centro de Control y a la Secretaría dicha.
+Los giros por sueldos o gastos de cualquier especie serán necesariamente refrendados, para su pago, por el Centro de Control.

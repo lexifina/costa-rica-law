@@ -1,10 +1,4 @@
-Artículo 499.- Los asociados pagarán mensualmente hasta tres cuotas
-a juicio de la Directiva, para cancelar igual número de pólizas.
-Si una vez puestos al día los pagos, transcurriere un mes sin que
-haya defunción o solicitud de pago de póliza, las cuotas serán siempre
-cobradas y su monto depositado por el Secretario Tesorero en el Banco
-Nacional de Costa Rica, a la orden de la Directiva, para constituir el
-fondo de reserva que se destinará a hacer anticipos urgentes a las
-familias de los socios fallecidos, al pago de polizas o a otras
-aplicaciones que la Directiva determine para beneficio de los socios
-previa aprobación de la Secretaría del ramo.
+Artículo 499.- Los asociados están obligados a contribuir mensualmente para formar el monto del seguro del asociado fallecido con una cuota cuyo monto determinará la Junta Directiva de acuerdo con los recursos de la Sociedad y los beneficios ofrecidos por ella. El monto de esa cuota se revisará periódicamente por lo menos cada cinco años, mediante un estudio actuarial de las finanzas de la Sociedad.
+Después de atender los beneficios por muerte, el remanente de lo recaudado formará la reserva que se destinará al pago de pólizas, si fuere necesario; al suministro de anticipos a los beneficiarios, para gastos urgentes de entierro, funerales, etc., de los socios fallecidos; a préstamo a los socios pensionados, como lo establece el artículo 508 de este Código; a subsidios a los socios en servicio oficial-docente o administrativo-que se retienen con licencia por enfermedad y con rebaja de su sueldo; a subsidios a asociados pensionados o jubilados enfermos de gravedad que reúnan las condiciones que establece el decreto Nº 3 de 14 de mayo de 1949; a las otras aplicaciones que establece este Código y a las que la Junta Directiva determine por Reglamento para beneficio de los asociados.
+El total de los anticipos hechos, será reintegrado a la reserva, al liquidarse las pólizas respectivas.
+(Así reformado por el artículo 1° de la ley N° 5043 de 9 de agosto de 1972)

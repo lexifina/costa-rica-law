@@ -1,5 +1,3 @@
 CAPITULO II
 Del Secretario de Estado
-Artículo 6º.- La dirección e inspección supremas de la educación
-común corresponde al Secretario del ramo, asistido por el Consejo
-Superior de Educación Pública.
+Artículo 6º.- (Derogado por el artículo 67° de la ley Orgánica del Ministerio de Educación Pública, Nº 3481 de 13 de enero de 1965)

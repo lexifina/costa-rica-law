@@ -1,7 +1,1 @@
-Artículo 111.- La hoja de servicios de cada maestro o asistente
-sanitario será extendida por el Director de la escuela respectiva, con
-el visto bueno del Visitador y del Inspector competentes en el caso de
-los maestros de grado, y el del Director Técnico que corresponde en el
-de los especiales; y la de los Directores de escuela serán extendidas
-por los respectivos Visitadores, con el visto bueno del Jefe Técnico
-de Educación Primaria.
+Artículo 111.- La hoja de servicios de cada maestro o asistente sanitario será extendida por el Director de la escuela respectiva, con el visto bueno del Visitador y del Inspector competentes en el caso de los maestros de grado, y el del Director Técnico que corresponde en el de los especiales; y la de los Directores de escuela serán extendidas por los respectivos Visitadores, con el visto bueno del Jefe Técnico de Educación Primaria.

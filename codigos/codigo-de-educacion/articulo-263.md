@@ -1,2 +1,1 @@
-Artículo 263.- Como instituciones del Estado, dependen de la
-Secretaría de Educación Pública.
+Artículo 263.- .(Derogado por el artículo 1° de la ley N° 3492 de 29 de enero de 1965)

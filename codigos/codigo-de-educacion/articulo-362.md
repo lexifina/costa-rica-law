@@ -1,16 +1,4 @@
 CAPITULO VIII
 Exámenes de bachillerato
-Artículo 362.- Los alumnos que hayan terminado con aprobación los
-estudios de Segunda Enseñanza y los Maestros Normales, podrán optar el
-título de Bachiller en Ciencias y Letras, mediante exámenes escritos y
-orales que se practicarán en cualquiera de los colegios facultados para
-expedir dicho título. Los colegios practicarán esos exámenes en el mes
-de febrero y diciembre de cada año; pero cuando haya exceso de
-aspirantes, los exámenes pueden dar principio en la segunda quincena de
-noviembre, previa consulta a la Secretaría de Educación. La Junta de
-Directores fijará la fecha de los escritos, los cuales deberán ser
-presentados antes que los orales, y cada Director fijará en su
-establecimiento los días y horas de éstos. Para los alumnos que hayan
-sido aplazados en una o dos de las pruebas orales prescritas para optar
-el título a que se refiere este capítulo, habrá además una convocatoria
-extraordinaria que tendrá lugar en la última semana de marzo.
+(Nota de Sinalevi: Este tema se reguló posteriormente en el Reglamento sobre Exámenes de Bachillerato, decreto ejecutivo No.18037 de 25 de febrero de 1988 – ya derogado –; así como en los artículos 109 y siguientes del Reglamento sobre Evaluación de Aprendizajes, decreto ejecutivo No.35355 de 2 de junio de 2009)
+Artículo 362.- (Derogado por el artículo 1° de la ley N° 1927 del 20 de setiembre de 1955)

@@ -1,7 +1,3 @@
 CAPITULO III
 De los Directores Técnicos de Asignaturas Especiales
-Artículo 28.- Corresponde a los Directores Técnicos de asignaturas
-especiales la inmediata dirección y vigilancia de los maestros
-especiales de su ramo, en toda la República o en la circunscripción que
-le fuere asignada a cada uno. sus deberes y atribuciones son las que
-señala el artículo 26 anterior, en lo pertinente.
+Artículo 28.- (Derogado por el artículo 1° de la ley Nº 794 de 2 de noviembre de 1949)
