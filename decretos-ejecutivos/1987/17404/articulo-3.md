@@ -1,1 +1,0 @@
-Artículo 3°-El personal de Transportes Metropolitanos, S. A., que sea trasladado a otras dependencias del Estado o Administración Pública en sentido amplio, conservan sus derechos y garantías laborales.

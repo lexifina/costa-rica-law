@@ -1,1 +1,0 @@
-Artículo 6°-Los créditos que tiene TRANSMESA con sus deudores, serán estimados con exactitud y debidamente documentados. Con dichos títulos valores se establecerá en el Sistema Bancario Nacional los fideicomisos respectivos, cuyos beneficios se destinarán mediante disposición administrativa a mejorar el servicio del transporte.

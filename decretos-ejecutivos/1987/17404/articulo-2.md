@@ -1,1 +1,0 @@
-Artículo 2°-Los miembros de esta Comisión permanecerán en sus cargos hasta la fecha de expiración de la misma y si actualmente están prestando servicios mediante contratos, éstos quedan prorrogados hasta esa fecha. Su integración estará a cargo del Ministro de Obras Públicas y Transportes.
