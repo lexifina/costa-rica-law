@@ -14,3 +14,4 @@ Reglamento para Consultas Populares y Mecanismos de Participación Ciudadana de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-02 | la propia norma |
+| 2 | 2004-09-29 | Reglamento municipal 0 (2004-09-29) |
