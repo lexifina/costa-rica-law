@@ -1,1 +1,1 @@
-Artículo 20.-El contrato turístico regirá desde la fecha de su suscripción, tendrá una vigencia de seis años a partir de la fecha en que se suscriba y se considerará prorrogado en forma automática por periodos iguales si ninguna de las partes manifiesta lo contrario dentro de los dos meses anteriores a su vencimiento.
+Artículo 20.-(Anulado por resolución de la Sala Constitucional N° 1830 del 10 de marzo de 1999)
