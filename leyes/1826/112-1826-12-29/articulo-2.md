@@ -1,0 +1,1 @@
+Art 2°.- Las apelaciones que establecen los artículos 35 y 37 de la Ley de diez y seis de Enero de este año recaerán en semejantes casos, en uno de los Magistrados Letrados de la Corte Superior de Justicia que designará la misma.
