@@ -1,2 +1,0 @@
-Artículo 17.-Cuando se tratare de omisión de recursos ordinarios, si la resolución fuere de las comprendidas en el inciso 2) del artículo 81 del Código de Procedimientos Civiles o en el artículo 493 del Código de Trabajo, se tendrá por interpuesto el recurso de alzada sin necesidad de gestión alguna, tan pronto haya transcurrido el término legal para apelar si la resolución fuere contraria a los intereses del Estado.
-Esta disposición no se aplicará a la materia penal, salvo cuando se trate de procesos por delito en daño de la Hacienda Pública.

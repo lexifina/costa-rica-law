@@ -1,2 +1,0 @@
-Artículo 20°.-No podrán desempeñar simultáneamente cargos de la Procuraduría General de la República, personas ligadas entre sí por parentesco de consanguinidad o afinidad. La prohibición abarca en ambos casos, toda la línea recta.
-En la colateral llegarán hasta tercer grado inclusive, si fuere de consanguinidad y hasta el segundo inclusive, si fuere de afinidad. En consecuencia, cesará en su cargo el funcionario que durante el ejercicio del mismo, contraiga matrimonio en virtud del cual resulte ligado por parentesco de afinidad que lo inhabilite de acuerdo con lo dicho.

@@ -1,1 +1,0 @@
-Artículo 12°.-Las oficinas de la Procuraduría General de la República, serán tenidas por las autoridades judiciales y administrativas como casas señaladas para oír las notificaciones que correspondan, en el circuito respectivo. sin necesidad de señalamiento especial.

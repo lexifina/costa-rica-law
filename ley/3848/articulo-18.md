@@ -1,1 +1,0 @@
-Artículo 18°.-Los funcionarios y empleados de la Procuraduría están obligados a asistir al Despacho a las mismas horas de servicio público de las oficinas del Poder Judicial. También están obligados los funcionarios a asistir al Despacho, sin derecho a remuneración adicional, durante todo el tiempo que el buen servicio de la oficina lo requiera.

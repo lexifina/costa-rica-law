@@ -1,1 +1,0 @@
-Artículo 27°.-La Procuraduría General de la República elaborará un proyecto de Ley Orgánica del Ministerio Público con el objeto de reestructurar las funciones propias de éste y de incorporarlo como órgano auxiliar de la administración de justicia.
