@@ -1,0 +1,1 @@
+TRANSITORIO III.- Por una única vez, el nombramiento de dos de los representantes del Poder Ejecutivo en la Junta Directiva será por un período que deberá coincidir con la mitad del período presidencial vigente.

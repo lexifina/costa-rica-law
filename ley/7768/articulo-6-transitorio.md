@@ -1,0 +1,1 @@
+TRANSITORIO VI.- A los funcionarios de la Dirección Nacional de Comunicaciones que, al entrar en vigencia esta ley, tengan préstamo con el Fondo de Vivienda de CORTEL, se les mantendrán el tipo de interés y las condiciones contractuales establecidas en el fideicomiso de vivienda de CORTEL, administrado por el Banco de Costa Rica y el Reglamento del Fondo de Vivienda de CORTEL.

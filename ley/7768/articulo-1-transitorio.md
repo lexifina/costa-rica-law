@@ -1,0 +1,1 @@
+TRANSITORIO I.- A partir de la vigencia de esta ley, Correos de Costa Rica asumirá las obligaciones y los derechos contraídos por la Dirección Nacional de Comunicaciones, su Junta Administrativa o el Ministerio de Gobernación y Policía, en actividades propias de correos y telecomunicaciones afines, al menos en los mismos términos y las condiciones en que fueron pactados.
