@@ -13,3 +13,4 @@ Declara Duelo Nacional por Muerte Presidente Yugoslavia J. Broz Tito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-22 | la propia norma |
+| 2 | 1980-05-22 | SINALEVI (sin norma nombrada) |
