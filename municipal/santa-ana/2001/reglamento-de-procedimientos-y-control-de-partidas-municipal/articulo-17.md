@@ -1,0 +1,1 @@
+Artículo 17.—En el caso de que una organización desee cambiar el destino de un saldo de una partida, deben de solicitar por escrito la anuencia al Concejo de la Municipalidad de Santa Ana. El Concejo Municipal puede aprobar la solicitud planteada y comunicarlo al Departamento de Control de Presupuesto de la Contraloría, para que ellos tomen nota del cambio realizado.

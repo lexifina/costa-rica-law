@@ -1,0 +1,1 @@
+Artículo 8°—En el caso de que se tengan partidas sin ejecutar en el período, deben de informarlo a la Municipalidad y presentar copia del último estado de cuenta bancaria, en donde se encuentren depositados los fondos.

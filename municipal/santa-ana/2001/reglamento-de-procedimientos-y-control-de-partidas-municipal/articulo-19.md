@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de que sea una partida ya entregada, del mismo período o de años anteriores, el Departamento de Contabilidad y de Auditoría Interna de la Municipalidad de Santa Ana, debe consignar el cambio en el expediente respectivo de la organización y no generará cambios contables solo de control.
