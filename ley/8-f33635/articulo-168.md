@@ -1,4 +1,1 @@
-CAPITULO III
-Reglas para determinar la jurisdicción por razón de la cuantía.
-Artículo 168
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 168.- Salvo disposición legal en contrario, todos los actos y procedimientos judiciales de quien no tiene facultad legal para ejecutarlos, serán absolutamente nulos.

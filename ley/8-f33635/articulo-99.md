@@ -1,2 +1,5 @@
-Artículo 99
-No podrá ser Arbitro de derecho el que ha intervenido como abogado o procurador de una de las partes en el negocio para que fuere nombrado, salvo que las partes, en la escritura o exposición de compromiso, lo hayan elegido con conocimiento de causa y así lo expresen.
+Artículo 99.- Los Tribunales Superiores de Familia conocerán:
+1.- De los recursos de apelación y consulta que procedan contra las resoluciones de los juzgados de familia y tutelares de menores.
+2.- De los impedimentos, excusas y recusaciones de sus jueces superiores propietarios o suplentes.
+3.- De los conflictos de competencia en materia de familia.
+4.- De los demás asuntos que determine la ley.

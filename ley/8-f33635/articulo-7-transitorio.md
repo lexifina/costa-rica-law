@@ -1,0 +1,1 @@
+Transitorio VII.- Mientras no se promulgue una nueva Ley Orgánica de Notariado, la Sala Segunda será el órgano competente para ejercer el régimen disciplinario sobre los notarios y para autorizar el uso de protocolos. Asimismo, le corresponderá al Presidente de la Corte autorizar el ejercicio del notariado e inscribir a los notarios en el Registro que al efecto se lleva.

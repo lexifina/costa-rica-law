@@ -1,4 +1,1 @@
-CAPITULO II
-Reglas para decidir las cuestiones de competencia en materia civil
-Artículo 175
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 175.- Todos los servidores judiciales están sujetos a responsabilidad disciplinaria en los casos y con las garantías establecidos en esta Ley.

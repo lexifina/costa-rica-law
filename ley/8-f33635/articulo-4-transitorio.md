@@ -1,0 +1,2 @@
+Transitorio IV.- Se faculta a la Corte Suprema de Justicia y al Consejo Superior del Poder Judicial para realizar los traslados de servidores judiciales, que resulten necesarios para adecuar la organización del Poder Judicial a la estructura que se establece en la presente Ley.
+En ningún caso podrá reducirse el salario que devenga el servidor. Se tendrá, para los efectos de la presente disposición, que la asignación de diferentes funciones a las encomendadas hasta el momento al servidor, no afecta la relación laboral.

@@ -1,2 +1,1 @@
-Artículo 167
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 167.- Los fallos y demás resoluciones serán ejecutados por el tribunal de primera instancia que falle el asunto. Tratándose de tribunales penales, la sentencia se ejecutará por el mismo tribunal, siempre que la misma condene a suma líquida.

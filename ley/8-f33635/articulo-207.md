@@ -1,2 +1,1 @@
-Artículo 207
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 207.- En la calificación de las probanzas, el órgano disciplinario se atendrá a lo que se encuentre consignado en el expediente y, en caso de duda, deberá resolver a favor del servidor, desestimando la causa disciplinaria y archivando el expediente; en ningún caso, podrá imponer más de una sanción por los mismos hechos; y tan sólo se podrán imponer las sanciones que establece esta Ley.

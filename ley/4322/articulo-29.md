@@ -1,1 +1,0 @@
-Artículo 29.- Las Salas de Apelaciones de la Corte, serán competentes para conocer, en su caso, de los juicios de responsabilidad civil o penal que se establezcan contra los Actuarios, por falta o delitos cometidos en el ejercicio de su cargo.

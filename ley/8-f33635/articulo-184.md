@@ -1,2 +1,1 @@
-Artículo 184
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 184.- El Tribunal de la Inspección Judicial es un órgano dependiente del Consejo Superior; ejerce control regular y constante sobre todos los servidores del Poder Judicial, incluidos los del Organismo de Investigación Judicial y con excepción de los señalados en los dos artículos anteriores; vigila el buen cumplimiento de los deberes; tramita las quejas que se presenten contra esos servidores; instruye las informaciones al tener conocimiento de alguna irregularidad y resuelve lo que proceda respecto del régimen disciplinario, sin perjuicio de las atribuciones que tengan en la materia otros órganos y funcionarios del Poder Judicial.

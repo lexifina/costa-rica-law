@@ -1,2 +1,1 @@
-Artículo 161
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 161.- La Corte dictará normas reguladoras para la selección de los curadores, de los notarios inventariadores en los procedimientos de concurso mercantil y civil y de los peritos judiciales en general.

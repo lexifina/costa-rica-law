@@ -1,2 +1,3 @@
-Artículo 190
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+CAPITULO III
+DE LAS FALTAS Y SANCIONES
+Artículo 190.- Las faltas cometidas por los servidores judiciales en el ejercicio de sus cargos se clasifican en gravísimas, graves y leves.

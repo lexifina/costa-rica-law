@@ -1,2 +1,4 @@
-Artículo 82
-( DEROGADO por el artículo 8º de la Ley Nº 6434 de 22 de mayo de 1980)
+Artículo 82.- Para los efectos de ejecutar el presupuesto del Poder Judicial promulgado por la Asamblea Legislativa, el Poder Ejecutivo girará al primero, por mensualidades adelantadas, los montos correspondientes a las transferencias que se le asignen, con excepción de los rubros que correspondan a salarios.
+El Consejo está autorizado para abrir cuentas a nombre del Poder Judicial en los bancos del Estado, con el propósito de depositar esos fondos y ordenar pagos contra ellos.
+Cuando las necesidades del servicio lo requieran, el Consejo podrá crear subpartidas y realizar traspasos entre gastos que le estén autorizados en las leyes de presupuesto, sin que exceda el monto total de los recursos asignados más el superávit acumulado.
+No obstante, no se podrán modificar los recursos destinados a cubrir sueldos o servicios personales, salvo que se trate de sumas acumuladas o no gastadas.

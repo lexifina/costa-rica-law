@@ -1,2 +1,0 @@
-Artículo 21.- Esos auxiliares también podrán ser destinados a servir en las dependencias judiciales que estén atrasadas o recargadas de trabajo, lo mismo que a adiestrar al personal subalterno o a colaborar con los nuevos funcionarios de las oficinas situadas en lugares lejanos.
-Mientras no hagan esto o no estén sustituyendo a algún funcionario o empleado o llenando temporalmente plazas vacantes, deberán laborar en los lugares que se señalan en cada caso.

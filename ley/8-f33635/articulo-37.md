@@ -1,2 +1,1 @@
-Artículo 37
-( DEROGADO por el artículo 2º de la Ley Nº 4087 de 8 de abril de 1968 )
+Artículo 37.- La obligación de residencia cesa cuando el funcionario o empleado goce de licencia o de vacaciones.

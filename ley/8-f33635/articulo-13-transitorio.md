@@ -1,0 +1,1 @@
+Transitorio XIII.- Los servidores judiciales que al entrar en vigencia la presente Ley tuvieran más de veinte años de servicio o cincuenta y cinco años de edad tendrán derecho a jubilarse, conforme a las reglas de la Ley Orgánica que ahora se reforma, siempre que reúnan todos los requisitos establecidos en esa Ley.

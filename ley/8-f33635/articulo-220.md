@@ -1,5 +1,1 @@
-CAPITULO II
-Procedimiento
-Artículo 220
-Las correcciones disciplinarias a que se refiere esta ley, se impondrán de acuerdo con las disposiciones de los artículos siguientes.
-( Así reformado por el artículo 6º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 220.- En el caso del artículo 217, el funcionario o tribunal hará constar en los autos, de forma lacónica, la falta cometida y, a continuación, dictará resolución fundamentada en la que impondrá la multa. La apelación que establezca el interesado, de acuerdo con el mencionado artículo, deberá interponerse dentro del tercer día.

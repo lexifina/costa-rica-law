@@ -1,7 +1,4 @@
-Artículo 29
-Los funcionarios que sirven puestos judiciales se suspenden:
-1. Por haberse dictado contra ellos auto firme de elevación a juicio o de citación a juicio, por cualquier delito doloso o por un delito culposo cometido en ejercicio de sus funciones. En los demás delitos culposos, la autoridad judicial que conozca del asunto comunicará dicho auto a la Corte Plena, a fin de que ésta resuelva si procede decretar la suspensión, atendiendo a la naturaleza de los hechos.
-2º.- Por sentencia que imponga la pena de suspensión;
-3º.- Por licencia legalmente concedida; y
-4º.- Por imposición de la corrección disciplinaria de suspensión.
-(Así reformado por el artículo 1º de la Ley Nº 6024 de 15 de diciembre de 1976.)
+Artículo 29.- Cuando por impedimento, recusación, excusa u otro motivo, un servidor tenga que separarse del conocimiento de un asunto determinado, su falta será suplida del modo siguiente:
+1.- Si se trata de un juez o de un alcalde, lo suplirá otro del mismo lugar y de la misma materia, por orden numérico y en rotación. Si ninguno de los de la misma materia pudiere conocer, tocará hacerlo a los de las otras materias, en la forma que establezca el Presidente de la Corte. Si tampoco estos pudieren conocer, serán llamados los suplentes respectivos y si ni aún estos pudieren hacerlo, el Consejo Superior del Poder Judicial nombrará un suplente.
+2.- Los Magistrados y los miembros de los tribunales colegiados, por los suplentes llamados al efecto, salvo lo dispuesto en el artículo 31 de esta Ley, cuando fuere aplicable.
+3.- Los demás servidores serán suplidos por otros del mismo despacho y de igual categoría; si no los hubiere, por el inmediato inferior y a falta de estos, se designará un servidor para el caso.

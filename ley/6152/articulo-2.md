@@ -1,1 +1,0 @@
-Artículo 2º.- La Dirección estará a cargo de un jefe, que se denominará Director Administrativo del Poder Judicial; deberá ser costarricense, mayor de treinta años, abogado con conocimientos y experiencia en administración, o licenciado en Ciencias Económicas con especialidad en administración.

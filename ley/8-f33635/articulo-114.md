@@ -1,2 +1,4 @@
-Artículo 114
-Cuando la falta del Secretario sea absoluta deberá nombrarse, dentro de los quince días siguientes, a su reemplazante en propiedad.
+CAPITULO III
+DE LAS ALCALDIAS
+Artículo 114.- Habrá el número de alcaldías que requiera el buen servicio.
+La Corte fijará su competencia territorial y por materia, así como su sede.

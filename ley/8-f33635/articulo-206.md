@@ -1,2 +1,1 @@
-Artículo 206
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 206.- Concluido el trámite, el expediente pasará a estudio de los restantes inspectores generales; cada uno lo estudiará por tres días; luego, dictarán sentencia en un plazo no mayor de cinco días.

@@ -1,3 +1,2 @@
-Artículo 20
-Si iniciado el período de un funcionario ocurriere vacancia por cualquier motivo, quien lo reponga se entenderá nombrado para el resto de dicho período, salvo lo dispuesto por la Constitución en cuanto a Magistrados.
-( Así reformado por el artículo 1º de la Ley Nº 1266 de 21 de febrero de 1951 )
+Artículo 20.- La garantía puede consistir en hipoteca, fianza, póliza de fidelidad del Instituto Nacional de Seguros o un depósito en efectivo.
+Para la calificación de la garantía y el otorgamiento de la escritura, en su caso, se seguirán, en lo conducente, las prescripciones del Código Fiscal y los decretos respectivos.

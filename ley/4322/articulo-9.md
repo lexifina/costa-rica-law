@@ -1,1 +1,0 @@
-Artículo 9º.- Corresponde al Jefe de la oficina resolver sobre la competencia del tribunal, de oficio o a solicitud de parte, lo mismo que dictar los autos que decidan sobre defensas previas y excepciones formales, y acerca de la deserción del juicio, y practicar las diligencias probatorias que hubiere ordenado para mejor proveer.

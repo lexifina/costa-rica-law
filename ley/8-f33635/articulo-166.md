@@ -1,2 +1,5 @@
-Artículo 166
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 166.- El juez con competencia para conocer de un asunto, la tiene también para conocer de sus tercerías y demás incidentes, salvo que en juicio de menor cuantía viniere una reconvención, compensación, tercería u otro incidente que deba tramitarse en juicio de mayor cuantía, pues en tal caso, deberán pasar tanto el juicio principal como el incidental, al conocimiento del juez superior, quien los tramitará conforme a la cuantía de cada uno. Igual procedimiento se observará cuando un proceso sucesorio de menor cuantía ejerza fuero de atracción sobre otro de mayor cuantía o inestimable.
+Sin embargo, no será motivo para inhibición en juicio de menor cuantía:
+1.- La compensación que se oponga de una deuda por una suma igual o superior a la de mayor cuantía, si el crédito fuere reconocido por el deudor.
+2.- La compensación y reconvención sobre los créditos de mayor cuantía, si el acreedor limitare su demanda a la suma señalada por la Corte como de menor cuantía, renunciando al exceso.
+3.- La ejecución de sentencia de mayor cuantía o los incidentes de mayor cuantía promovidos en ella.

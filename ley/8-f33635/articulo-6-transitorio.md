@@ -1,0 +1,1 @@
+Transitorio VI.- Mientras no sean creados los Tribunales Superiores de Casación en otras materias distintas de la penal, corresponderá decidir la cuestión de competencias que se susciten entre jueces de distinto territorio, a la Sala de Casación que habría de conocer de lo resuelto por el juez que previno en el conocimiento del asunto.

@@ -1,1 +1,0 @@
-Artículo 22.- El Director Administrativo, por sí mismo o a indicación del Consejo de Personal, determinará en qué oficinas del Poder Judicial deben servir los auxiliares, conforme a lo dispuesto en los dos artículos anteriores.

@@ -1,2 +1,3 @@
-Artículo 169
-( DEROGADO por el artículo 8º de la Ley Nº 7130 de 16 de agosto de 1989 )
+Artículo 169.- Cuando un funcionario estimare que es incompetente para conocer del asunto que se le somete, salvo el caso de prórroga de competencia, lo declarará así de oficio y ordenará remitir el expediente al funcionario que a su juicio corresponda conocer. Si mediare apelación de alguna de las partes o si, no habiéndola, este último funcionario desintiere de esa opinión, será el superior de ambos quien decida la competencia, sin más trámite y tan pronto como reciba los autos.
+El funcionario que, en definitiva, resulte competente continuará los procedimientos, si los trámites señalados por la ley para el juicio fueren los mismos iniciados por el funcionario que se separó del conocimiento del asunto. En caso de no ser así, repondrá los autos al estado necesario para que el proceso tome su curso normal.
+La competencia entre las autoridades administrativas y las judiciales se decidirá en la forma que determinen los respectivos códigos procesales.
