@@ -1,0 +1,2 @@
+TRANSITORIO IV.-
+Legislación de transición Antes de la entrada en vigencia de este Código, deberá aprobarse una ley que regule la organización de las oficinas judiciales, su competencia y la del Ministerio Público y, en general, se adecue la organización del Poder Judicial a los requerimientos de este Código. Esa ley deberá contener las reglas que regirán la transición de un sistema procesal a otro

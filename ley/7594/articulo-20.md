@@ -1,7 +1,2 @@
-ARTICULO 20.- Conversión de la acción pública en privada
-La acción pública podrá convertirse en privada a pedido de la
-víctima, siempre que el Ministerio Público lo autorice y no exista un
-interés público gravemente comprometido, cuando se investigue un delito
-que requiera instancia privada o un delito contra la propiedad realizado
-sin grave violencia sobre las personas. Si existen varios ofendidos, será
-necesario el consentimiento de todos.
+ARTICULO 20.-
+Conversión de la acción pública en privada La acción pública podrá convertirse en privada a pedido de la víctima, siempre que el Ministerio Público lo autorice y no exista un interés público gravemente comprometido, cuando se investigue un delito que requiera instancia privada o un delito contra la propiedad realizado sin grave violencia sobre las personas. Si existen varios ofendidos, será necesario el consentimiento de todos.
