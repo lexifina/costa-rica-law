@@ -1,0 +1,1 @@
+Articulo 8°-La Proveeduría abrirá un libro para consignar las actas de donación o entrega de bienes; y en ese, mismo libro se transcribirán las actas que envíen las oficinas judiciales que se indican en el artículo 7° anterior.

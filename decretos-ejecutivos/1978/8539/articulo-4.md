@@ -1,0 +1,1 @@
+Articulo 4°-La Proveeduría podrá ordenar que se trasladen a sus Oficinas en cualquier tiempo, los bienes que deban ser donados o entregados, según sea la naturaleza de esos bienes y el destino que habrá de dárseles.

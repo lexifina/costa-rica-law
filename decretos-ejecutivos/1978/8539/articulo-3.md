@@ -1,0 +1,3 @@
+Artículo 3°-La Proveeduría Judicial publicará un aviso en "La Gaceta” y en uno de los periódicos nacionales, en que se indicarán los objetos, mercaderías y además que deban distribuirse.
+Dentro de los quince días siguientes a la publicación, del aviso; los centros, instituciones o dependencias que se mencionan en el articulo 1° de la ley N° 6106. deberán hacer la correspondiente solicitud a la Proveeduría, para que ésta, resuelva sobre la donación o entrega.
+Periódicamente o en la oportunidad que las circunstancias justifiquen, la proveeduría deberá publicar nuevos avisos cuando existan más bienes para donar entregar.

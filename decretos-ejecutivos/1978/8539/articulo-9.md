@@ -1,0 +1,2 @@
+Artículo 9°-En. el caso de los productos alimenticios a que se refiere el inciso c) del artículo 1° de la ley N° 6106, la respectiva autoridad judicial ordenará la entrega de esos bienes a la institución o instituciones mencionadas que el determina, y lo comunicará a la Proveeduría judicial, a la que podrá comisionar para que realice la entrega si los bienes se hallaren en San José.
+Cuando exista posibilidad de que los productos estén en proceso de descomposición, el juez ordenará que seán examinados en un laboratorio oficial, a fin de comprobar si son aptos para el consumo.

@@ -1,0 +1,1 @@
+Artículo 10- Si se tratare de productos maderables que se encuentren en las situaciones previstas en el inciso del articulo ch) del artículo 1° de la. ley, la autoridad judicial ordenará entregarlos a la Dirección General Forestal del Ministerio de Agricultura y lo avisará a esa Dependencia, para que los reciba y les de el destino que corresponda.

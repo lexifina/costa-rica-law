@@ -1,0 +1,2 @@
+Artículo 2°- En todos los casos previstos en el artículo anterior, la autoridad judicial dictará una resolución en la causa respectiva para hacer constar que bienes quedan a la orden de la Proveeduría Judicial, de acuerdo con la Ley 6106.
+Además, en la lista que debe enviarse á la Proveeduría, la Autoridad, judicial expresará si se trata de bienes confiscados o caídos en comiso por resolución firme o de bienes no retirados por sus dueños.
