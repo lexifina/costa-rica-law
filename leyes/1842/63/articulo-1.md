@@ -1,0 +1,6 @@
+DECRETO LXIII.
+El Gobierno Provisorio deroga el Decreto de 21 de Junio de 1841, que prohíbe la venta de efectos en las calles y plazas. (1)
+(1) Aprobado con modificaciones por el artículo 14 del Decreto de la Asamblea Constituyente
+El General Jefe Supremo Provisorio del Estado de Costa Rica.
+Considerando: Que el libre desarrollo de la industria, es el mejor agente de la riqueza pública, dejando obrar el interés individual, sin otras trabas y restricciones que las muy indispensables al buen orden de la sociedad, que faltando á estos principios el Decreto del Jefe de Estado de 21 de Junio de 1841 despoja á una parte considerable de los Costarricenses del ejercicio de su libertad individual, por cuanto les prohíbe dedicarse á especulaciones mercantiles, sino es con el capital y bajo las condiciones en él establecidas: teniendo presente que al mismo tiempo que se revoque aquellas prohibiciones es conveniente para precaver los abusos que se trataron de evitar con el citado decreto detallado á los puestos de venta de efectos extranjeros. De acuerdo con el informe de la Junta creada por el Decreto de 18 de Abril último, decreta.
+Art. 1° Se deroga el Decreto de 21 de Junio de 1841 que prohíbe la venta de ropas ú otros efectos extranjeros en las plazas, calles, portales y demás lugares que no sean tiendas ó almacenes habilitados por la autoridad pública.
