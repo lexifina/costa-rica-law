@@ -1,0 +1,1 @@
+Artículo 25.—Todo caballo o yegua sin calificar dentro de los plazos de edad concedidos de acuerdo con la normativa de la raza, así como su posible descendencia, no podrá figurar en los libros de registro.

@@ -1,0 +1,1 @@
+Artículo 10.—Solo se podrán inscribir animales puros, es decir, que por todas las líneas genealógicas, tanto por la rama paterna como materna, descienda de animales registrados que fundaron la raza en su lugar de origen y cumplan con las características propias del prototipo étnico, fijadas por el registro de matrícula de España.

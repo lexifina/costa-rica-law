@@ -1,0 +1,1 @@
+Artículo 14.—Después de inscrito el producto, cualquier cambio en las senas, marcas y características será comunicado por el propietario al Registro, debiendo el Comité analizar si acepta la modificación y proceder a registrarla, o bien, decide anular la inscripción.

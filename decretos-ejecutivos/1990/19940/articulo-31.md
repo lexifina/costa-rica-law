@@ -1,0 +1,1 @@
+Artículo 31.—Los ganaderos que marquen sus productos a fuego con el hierro de su propiedad y quieran que esta marca sea reconocida y consignada en los libros del Registro, deberán facilitar el diseño del mismo, una vez aprobada por el Registro de Marcas del Registro Público de Ganado.

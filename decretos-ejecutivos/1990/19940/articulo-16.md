@@ -1,0 +1,1 @@
+Artículo 16.—Los criadores y propietarios de animales registrados, están obligados a denunciar, dentro de los quince días naturales después de ocurrido el hecho, los abortos simples o de mellizos, los nacimientos de productos no viables, las muertes y las castraciones.

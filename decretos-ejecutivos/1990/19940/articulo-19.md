@@ -1,0 +1,2 @@
+Artículo 19.-No se aceptará la inscripción de productos de paternidad dudosa. Solo se admitirá la certificación de servicio por mas de un semental, cuando entre el último salto del primer semental y el primer salto del siguiente semental, medie un lapso no menor de 50 días.
+La paternidad se establecerá rigurosamente en relación con la gestión y al nacimiento y tomando en cuenta las características del producto. El Comité de Registro podrá comprobar la paternidad por medio del tipo sanguíneo.

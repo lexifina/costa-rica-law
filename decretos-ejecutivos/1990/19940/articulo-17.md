@@ -1,0 +1,1 @@
+Artículo 17.—Los criadores y propietarios de animales inscritos están obligados a comunicar, dentro del término de quince días naturales, la circunstancia de que determinado producto se críe por medio de nodriza, por muerte o incapacidad de la madre.

@@ -1,0 +1,1 @@
+Artículo 29.—El potro o potranca que se desea registrar, debe ser reseñado por el inspector, mientras se encuentre amamantando y siempre antes del destete. Esta reseña será recogida en la solicitud de inscripción.

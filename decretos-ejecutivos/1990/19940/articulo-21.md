@@ -1,0 +1,1 @@
+Artículo 21.—El Comité de Registro deberá llevar también, un registro de propietarios y criadores de animales de esta raza, para lo cual, las personas físicas o jurídicas que deseen ser reconocidas como tales, deben aportar la documentación que les solicite el Comité.
