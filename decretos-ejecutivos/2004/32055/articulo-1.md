@@ -1,0 +1,13 @@
+Nº 32055
+LA PRIMERA VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, Decreto Ejecutivo Nº 30058-H-MP-PLAN de 19 de diciembre del 2001; y Ley Nº 6158, Ley de Creación del Centro Costarricense de Producción Cinematográfica del 25 de noviembre de 1977.
+Considerando:
+1º—Que por medio de la Ley Nº 6158, Ley de Creación del Centro Costarricense de Producción Cinematográfica, publicada en La Gaceta número 5 del 6 de enero de 1978, se crea el Centro Costarricense de Producción Cinematográfica, para fomentar y desarrollar la producción y cultura cinematográfica nacionales.
+2º—Que dicha ley constitutiva en su artículo 4° inciso e), faculta al Centro para adquirir o tomar en arriendo los bienes, equipos, materiales y locales que fueren necesarios para realizar sus actividades.
+3º—Que el Centro Costarricense de Producción Cinematográfica requiere adquirir equipo de producción para sustituir el que se encuentra dañado y desactualizado y realizar unas mejoras al edificio principal de esa entidad.
+4º—Que mediante el Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 del 29 marzo del 2004, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria para el 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario para el 2005, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que mediante oficio STAP-0406-04 del 12 de abril del 2004, se comunicó al Centro Costarricense de Producción Cinematográfica el gasto presupuestario fijado para el año 2005.
+6º—Que mediante oficio CCPC-254-04 del 9 de agosto del presente año, la entidad solicitó la ampliación del gasto presupuestario fijado, para financiar la compra y mejora de bienes, que le permitan ofrecer servicios de calidad.
+7º—Que por lo anterior, se hace necesario modificar el gasto presupuestario fijado al Centro Costarricense de Producción Cinematográfica para el año 2005. Por tanto:
+DECRETAN:
+Artículo 1º—Modificase al Centro Costarricense de Producción Cinematográfica, el gasto presupuestario fijado para el año 2005, establecido en el Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, de manera que este no podrá exceder la suma de ¢87.5 millones.
