@@ -1,0 +1,1 @@
+Art. 16. Quedan igualmente suprimidos los Jueces de 1ª Instancia de nombramiento del Gobierno, excepto el de Nicoya que continuará como hasta aquí conforme al artículo 5° de la ley de 14 de Abril de 831.

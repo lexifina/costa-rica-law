@@ -1,0 +1,1 @@
+Art. 18. En los negocios civiles que deban ventilarse en juicio escrito, no se admitirá este, sin la certificacion de haberse intentado, no solo el medio consiliatorio, sinò que tambien conste que en dicho acto fuero provocadas las partes á fenecer el asunto por medio de àrbitros ó arbitradores, debiéndose verificar asi precisamente en los juicios de concurso.

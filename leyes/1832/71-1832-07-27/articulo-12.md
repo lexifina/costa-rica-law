@@ -1,0 +1,1 @@
+Art. 12. En consecuencia del artículo 2° las juntas electorales de Partido, se reunirán el Domingo inmediato siguiente á la publicacion de esta ley, à sufragar por tres Magistrados propietarios y tres suplentes.

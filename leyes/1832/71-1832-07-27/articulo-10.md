@@ -1,0 +1,1 @@
+Art. 10. En cualquier asunto que la Corte conozca en apelacion, no se admitirà mas que un escrito por cada parte, en cuyo estado debe darse el fallo; à no ser que el negocio deba recibirse á pruebas, en los casos prevenidos en las leyes 4ª titulo 9. libro 4° Recop. de Castilla, y la 39 titulo 16. Partida 3ª
