@@ -1,0 +1,6 @@
+Artículo 13.- Para las reasignaciones, ascensos,
+sustituciones, recargo de funciones y cualquier otro movimiento de
+personal el servidor debe cumplir con los requisitos académicos y
+legales que exige el correspondiente Manual Descriptivo de Puestos.
+Los puestos que estén cubiertos por el Régimen del Servicio Civil
+se regirán por lo que establece su Estatuto y Reglamento.
