@@ -1,0 +1,1 @@
+Artículo 23.-Los derechos fiscales (valor del pagare y timbres), corren por cuenta del deudor, así como cualquier otro gasto que se derive de su comisión de cobro, si la deuda no fuere satisfecha conforme a los términos del contrato.

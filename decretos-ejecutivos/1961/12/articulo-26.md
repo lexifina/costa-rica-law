@@ -1,0 +1,1 @@
+Artículo 26.-Todos los préstamos acordados por la Junta Directiva , se harán por medio de cheques, firmados por la Presidenta y la Tesorera , previos los trámites del registro y control que para tales casos se establezcan.

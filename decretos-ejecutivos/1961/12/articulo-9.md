@@ -1,0 +1,1 @@
+Artículo 9°.-La mutualidad se cubrirá por una sola vez, a instancia del beneficiario y con fundamento en el informe que sobre el particular rinda la Te sorera. La Junta Directiva no podrá tomar más de diez días hábiles para dictar la decisión respectiva; pero en casos especiales se podrá autorizar anticipos con base en los cálculos correspondientes.

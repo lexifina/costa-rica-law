@@ -1,0 +1,1 @@
+Artículo 28.-No podrá autorizarse un nuevo préstamo, hasta tanto la anterior operación haya sido totalmente satisfecha por el deudor. En caso de abonos extraordinarios se ajustarán los intereses sobre los saldos pendientes.

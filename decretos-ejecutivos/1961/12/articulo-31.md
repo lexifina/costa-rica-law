@@ -1,0 +1,1 @@
+Artículo 31.-La Junta Directiva podrá conceder préstamos de trescientos colones (¢300.00) a las auxiliares de enfermería, sujetas a las mismas tasas de interés, condiciones y trámites anteriormente estipulados, de diez meses plazo para su cancelación.

@@ -1,0 +1,1 @@
+Artículo 13. -Las afiliadas al Colegio, después de seis meses de la aceptación como tales, tienen derecho a un auxilio de cinco colones diarios por un período de dos meses como máximo, en caso de enfermedad que las imposibilite para trabajar en un lapso mayor de un mes. El auxilio se contará a partir de la fecha en que se inicio la enfermedad.

@@ -1,0 +1,1 @@
+Artículo 17. -La incorporación al sistema de auxilios pecuniarios, creados por éste Reglamento, se estimará como admisión implícita de las modificaciones que posteriores evaluaciones actuariales lleguen a practicarse, sin que nadie pueda alegar la existencia de derechos adquiridos.

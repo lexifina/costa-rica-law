@@ -1,0 +1,1 @@
+Artículo 3°-De la cuota ordinaria, se distribuirá en primas de dos colones para la financiación del fondo de Mutualidad y Subsidio. Dicha cuota se distribuirá en partes adecuadas para el sostenimiento.

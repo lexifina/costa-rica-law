@@ -1,0 +1,1 @@
+Artículo 15.-Mientras se logra la consolidación del fondo de subsidios, el auxilio máximo por este beneficio será de trescientos colones par año. Posteriormente y previos los estudios del caso, los auxilios podrán modificarse de conformidad con las posibilidades económicas.

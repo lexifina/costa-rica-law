@@ -1,0 +1,1 @@
+Artículo 24.-Todo lo relativo a la custodia de valores, régimen contable, control sobre las operaciones crediticias, lo mismo que los aspectos legales y reglamentarios que fundamenten el sistema, quedan a cargo y vigilancia de la Tesorera , y la Fiscal en su caso, debiendo informar periódicamente a la Junta Directiva sobre las gestiones anteriores.

@@ -1,0 +1,1 @@
+Artículo 10. -La mutualidad consistirá en una suma de ¢ 1,000.00 en dinero efectivo que se entregará por una sola vez a los beneficiarios, legalmente autorizados para ello, cuando ocurra el fallecimiento de una colegiada.

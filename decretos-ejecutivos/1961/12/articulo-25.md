@@ -1,0 +1,1 @@
+Artículo 25.-Todos los gastos que demande la administración del sistema de préstamos, serán sufragados por las cuotas adicionales que en cada caso se cobran sabre el monto de las operaciones crediticias.

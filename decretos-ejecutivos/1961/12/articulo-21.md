@@ -1,0 +1,1 @@
+Artículo 21.-EI monto de las cuotas periódicas de cada préstamo, será deducido oficialmente del sueldo del deudor y el atraso en el pago de una cuota, dará derecho al Colegio a considerar vencido el saldo del crédito concedido, a fin de proceder judicialmente a su cobro.
