@@ -1,1 +1,0 @@
-Artículo II.-El presente Reglamento tiene por objeto, regular la organización y funcionamiento de los entes operadores de acueductos y alcantarillados sanitarios administrados por usuarios en comunidades.

@@ -1,1 +1,0 @@
-Articulo XXX.—Los miembros del ente operador deberán trabajar por el progreso y bienestar de la comunidad de conformidad con la presente normativa y de acuerdo a los principios de un servicio público eficiente y continuo.

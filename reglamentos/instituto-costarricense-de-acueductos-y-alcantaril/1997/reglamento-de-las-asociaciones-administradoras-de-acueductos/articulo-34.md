@@ -1,2 +1,0 @@
-Artículo XXXIV.—Los cambios que señala este Reglamento es de acatamiento obligatorio para todas las Asociaciones Administradoras de los Acueductos Rurales, antiguos comités que administraron con participación comunal un acueducto.
-El incumplimiento de las directrices que el AyA dicte por parte de una asociación o antiguo comité dará pie al AyA para que suspenda inversiones futuras y Asesoría hasta tanto el comité o asociación ejecute las disposiciones del ente rector AyA.

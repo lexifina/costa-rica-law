@@ -1,1 +1,0 @@
-Artículo X—Los miembros de la Junta Directiva y fiscal desempeñarán sus cargos ad honorem. Sin embargo, a solicitud del ente operador, el AyA, podrá autorizar dietas a sus miembros de acuerdo a la normativa vigente.

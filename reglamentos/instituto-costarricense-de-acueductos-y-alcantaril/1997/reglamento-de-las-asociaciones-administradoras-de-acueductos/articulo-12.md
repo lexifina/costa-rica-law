@@ -1,2 +1,0 @@
-Artículo XII.—La Junta Directiva podrá cesar de su cargo a cualquiera de sus miembros que faltara a tres reuniones consecutivas o cinco alternas sin causa justificada o cuando se le comprobaren faltas o hecho no compatibles con sus funciones, deberes y responsabilidades, previo debido proceso.
-El reemplazo de estos miembros, se realizará mediante Asamblea General de Asociados, una vez conocido el resultado del debido proceso.
