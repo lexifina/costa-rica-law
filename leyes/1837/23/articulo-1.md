@@ -1,0 +1,5 @@
+DECRETO XXIII
+Dicta Medidas para proteger a los labradores pobres, y la creación de nuevas poblaciones.
+“El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del estado libre de Costa Rica, considerando: que en el interior de los Pueblos hay una porción de familias pobres, sujetas a mendigar un pedazo de tierra para ocuparse en su labor con el sacrificio de una parte de la cosecha en beneficio del dueño del terreno; y que por lo mismo estas familias viven siempre en la miseria: deseando hacer de ellas propietarios útiles al Estado por su trabajo estimulando con la propiedad del terreno que cultivan, ha venido en decreto y decreta.
+Art 1°.- Se autoriza al Ejecutivo para que en los terrenos baldíos del Estado designe los mejores lugares, para levantar en ellos nuevas poblaciones, valiéndose de cuantos medios crea convenientes, a fin de exitar a los pobladores, concediéndoles gratis, a mas del solar de su habitación, la parte de terreno que necesiten para sus labranzas y cultivo.
