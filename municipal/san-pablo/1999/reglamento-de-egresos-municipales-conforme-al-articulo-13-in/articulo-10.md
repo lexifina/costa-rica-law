@@ -1,0 +1,1 @@
+Artículo 10.-EI Tesorero Municipal no realizará pago alguno, sin orden del Alcalde Municipal y el funcionario responsable del área financiera, so pena de incurrir en causal de despido y las demás responsabilidades que procedan.
