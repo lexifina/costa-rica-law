@@ -1,0 +1,3 @@
+Artículo 5
+1. Las medidas especiales de protección o asistencia previstas en otros convenios o recomendaciones adoptados por la Conferencia Internacional del Trabajo no se consideran como discriminatorias.
+2. Todo Miembro puede, previa consulta con las organizaciones de empleadores y de trabajadores, cuando dichas organizaciones existan, definir como no discriminatorias cualesquiera otras medidas especiales destinadas a satisfacer las necesidades particulares de las personas a las que, por razones tales como el sexo, la edad, la invalidez, las cargas de familia o el nivel social o cultural, generalmente se les reconozca la necesidad de protección o asistencia especial.
