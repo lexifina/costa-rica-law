@@ -1,0 +1,1 @@
+Artículo 4º.- El impuesto a que se refiere el artículo 3º se cobrará por trimestres adelantados y deberá ser pagado en la Tesorería del Colegio dentro de los primeros quince días hábiles de los meses de enero, abril, julio y octubre; pasado este plazo, la Junta Directiva podrá imponer una multa del veinticinco por ciento sobre el monto del impuesto a los patentados morosos.

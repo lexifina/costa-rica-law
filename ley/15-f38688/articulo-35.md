@@ -1,0 +1,1 @@
+Artículo 35.- La constancia dada por el Tesorero del Colegio con el visto bueno del Presidente de que, cualquiera de los patentados, farmacéutico o no, adeuda una determinada cantidad por motivos preestablecidos en esta ley, tendrá fuerza ejecutiva ante los Tribunales.
