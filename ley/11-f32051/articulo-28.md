@@ -1,1 +1,0 @@
-Artículo 28. -Las Compañías de ferrocarril, en el caso de que su Junta Directiva ó Consejo de Administración resida en el extranjero, tendrán en la República, en el lugar de su domicilio, una Junta local, compuesta de Directores ó Consejeros, nombrados conforme á sus estatutos y que formarán parte de la Junta Directiva.
