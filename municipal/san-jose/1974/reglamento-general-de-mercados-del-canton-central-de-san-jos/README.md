@@ -15,3 +15,4 @@ Reglamento General de Mercados del Cantón Central de San José
 | --- | --- | --- |
 | 1 | 1974-03-08 | la propia norma |
 | 2 | 1975-12-11 | Reglamento municipal 230 (1975-12-11) |
+| 3 | 1979-08-21 | Reglamento municipal 231 (1979-08-21) |
