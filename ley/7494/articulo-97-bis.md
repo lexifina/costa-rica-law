@@ -1,0 +1,2 @@
+Artículo 97 bis.—Exclusión del oferente. Si las faltas referidas en los Artículos 96 ter y 97, se producen cuando se encuentra en trámite un procedimiento de contratación, el oferente que con su participación haya contribuido en esas infracciones, directa o indirectamente, será excluido del concurso o, en su caso, se anulará la adjudicación respectiva, independientemente de si existió favorecimiento.
+(Así adicionado por el artículo 65 (actual 74) de la Ley N° 8422 Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, de 6 de octubre de 2004).
