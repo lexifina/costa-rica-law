@@ -1,1 +1,0 @@
-Artículo 3°—A excepción de la administración del cementerio del cantón central de Cartago, todos los demás bienes, derechos y obligaciones cuya administración correspondía a la Junta de Protección Social de Cartago, serán asumidos y administrados por la Dirección General de Salud del Ministerio de Salud.
