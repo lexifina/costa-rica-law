@@ -13,3 +13,4 @@ MBELEN: Reglamento del Departamento de Seguridad y Vigilancia Comunal(El texto d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-29 | la propia norma |
+| 2 | 2002-03-05 | Reglamento municipal 14 (2002-03-05) |
