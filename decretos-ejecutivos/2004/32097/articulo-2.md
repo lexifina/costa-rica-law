@@ -1,0 +1,1 @@
+Artículo 2º—De los Valores Cero Cupón. Se autoriza a la Tesorería Nacional para emitir y colocar valores sin cupones, cuyo precio se ha de negociar a través de una tasa de descuento, cuya venta se hará por un monto menor al del pago futuro prometido en su valor nominal.

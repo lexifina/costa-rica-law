@@ -1,0 +1,1 @@
+Artículo 15.—Forma de liquidación. La colocación del Pagaré del Tesoro se liquidará según las disposiciones que para tal efecto disponga el Tesoro, las cuales comunicará mediante los mecanismos usualmente empleados por los emisores en el mercado de valores.

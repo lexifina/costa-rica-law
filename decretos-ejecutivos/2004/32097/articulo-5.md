@@ -1,0 +1,1 @@
+Artículo 5º—Formas de adquisición para el sector público. El sector público podrá adquirir el título Cero Cupón mediante negociación directa o subasta, según las directrices en materia de inversión pública que para tales efectos dispongan las autoridades competentes, sin que estos sean adquiridos mediante comisión, de algún intermediario.

@@ -1,0 +1,1 @@
+Artículo 12.—Valor nominal. La Tesorería Nacional tendrá total discrecionalidad para asignar las ofertas y fijar los montos que se han de colocar en Pagarés de la Tesorería Nacional, de conformidad con las necesidades de caja del Fondo General.
