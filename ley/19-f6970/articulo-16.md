@@ -1,0 +1,2 @@
+Artículo 16.-Si es satisfactoria la información practicada y no se ha formulado oposición, o ha sido desechada ésta por sentencia ejecutoria, el Juez aprobará el expediente y ordenará que se haga en el Registro Público la inscripción solicitada mediante ejecutoria que, a solicitud del interesado, librará, con citación de partes.
+La inscripción se ordenará y se hará sin perjuicio de tercero de mejor derecho y el término de la prescripción decenal correrá desde la fecha en que se hiciera aquélla.

@@ -1,0 +1,1 @@
+Artículo 17.-El conocimiento de los denuncias e informaciones posesorias a que se refiere esta ley, corresponderá al Juez Civil de Limón, aunque el inmueble que se trate de denunciar o de titular colinde con propiedades del Estado, pero en este último caso se dará audiencia al Segundo Promotor Fiscal, en la forma aquí establecida.

@@ -1,0 +1,1 @@
+Artículo 8°-Fn el mismo acto, si no lo hizo en el escrito inicial, informará él solicitante qué cargas reales pesan sobre el fundo, el valor aproximado, de éste y la circunstancia de no estar inscrito.
