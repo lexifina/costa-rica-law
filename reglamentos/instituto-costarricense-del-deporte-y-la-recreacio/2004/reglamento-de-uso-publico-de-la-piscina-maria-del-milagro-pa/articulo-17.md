@@ -1,0 +1,1 @@
+Artículo 17.—De conformidad con la gravedad del hecho el encargado de la instalación podrá solicitar al usuario hacer abandono inmediato de las instalaciones con el fin de preservar el orden y evitar mayores disturbios o problemas de convivencia.

@@ -1,0 +1,1 @@
+Artículo 5º—El horario de uso de las facilidades es el siguiente: a. Piscinas de martes a sábados de las 6:00 a las 21:00 horas. Los domingos se habilitará en caso de competencias o eventos oficiales. Los lunes será día para el mantenimiento de las piscinas. b. Albergue de lunes a domingo con servicio de veinticuatro horas.

@@ -1,0 +1,1 @@
+Artículo 12.—En los casos que el usuario debe cancelar algún monto económico por el permiso de uso, deberá cancelar el monto indicado y en el plazo establecido en la Tesorería del ICODER mediante dinero efectivo o cheque certificado.

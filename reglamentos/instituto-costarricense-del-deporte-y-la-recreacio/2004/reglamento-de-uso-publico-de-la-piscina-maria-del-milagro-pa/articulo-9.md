@@ -1,0 +1,1 @@
+Artículo 9º—En el caso de personas físicas que deseen participar en alguno de los programas dirigidos a personas debe presentarse a la unidad respectiva con su identificación para tramitar el permiso de uso.

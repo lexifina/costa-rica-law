@@ -1,0 +1,1 @@
+Artículo 7º—La unidad administrativa del ICODER responsable de la operación y administración de la piscina, establecerá los horarios diarios del uso que tendrá cada programa, costo que deberá cancelar el usuario, de los requisitos, deberes y derechos específicos de los usuarios en caso necesario, además de los estipulados en el presente Reglamento.

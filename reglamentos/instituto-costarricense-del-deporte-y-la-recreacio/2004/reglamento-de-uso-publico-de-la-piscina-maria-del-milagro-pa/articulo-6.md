@@ -1,0 +1,1 @@
+Artículo 6º—Las piscinas tendrán los siguientes programas de uso dirigidos a diversos sectores de la población: enseñanza de la natación en sus diferentes modalidades, competencias oficiales nacionales e internacionales, hidroquinesia, terapéutica, actividad física, entrenamiento físico y técnico y cualquier otro uso que el solicitante lo indique y así sea autorizado.

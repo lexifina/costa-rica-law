@@ -1,0 +1,1 @@
+Artículo 11.—Aquellas actividades que impliquen la presencia de público espectador o que por la índole de la misma por ser organizada por una entidad privada o pública ajena al ICODER deberá de formalizar el permiso de uso de la piscina, mediante la firma de un convenio de permiso de uso, que contendrá todas las condiciones que deberá cumplir el solicitante.

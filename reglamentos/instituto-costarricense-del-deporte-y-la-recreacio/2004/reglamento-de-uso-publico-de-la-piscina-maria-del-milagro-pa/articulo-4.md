@@ -1,0 +1,1 @@
+Artículo 4º—El complejo deportivo de piscinas ofrece las siguientes facilidades: piscina olímpica de 50 x 25 metros, piscina pedagógica y albergue deportivo y cualquier otro que se autorice o en el futuro se habilite.

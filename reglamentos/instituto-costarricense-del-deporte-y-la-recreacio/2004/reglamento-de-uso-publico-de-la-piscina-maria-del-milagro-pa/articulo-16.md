@@ -1,0 +1,1 @@
+Artículo 16.—Del incumplimiento de las condiciones de permiso de uso. El incumplimiento de alguna de las condiciones de uso, será causal de inmediata suspensión temporal del permiso por parte de la unidad que concede el permiso con el fin de investigar las causales de la anómala situación. Luego de la investigación determinará mantener o suspender el permiso de uso.

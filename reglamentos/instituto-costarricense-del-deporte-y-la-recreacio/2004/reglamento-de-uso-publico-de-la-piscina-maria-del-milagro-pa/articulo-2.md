@@ -1,0 +1,1 @@
+Artículo 2º—La administración superior del ICODER determinará cual de las unidades administrativas o técnicas de la institución será la responsable de operar y administrar el control de uso de la piscina.

@@ -1,0 +1,1 @@
+Artículo 10.—La unidad administrativa responsable de tramitar los permisos, emitirá o rechazará las solicitudes de permiso de conformidad con la información presentada. En caso de proceder el permiso emitirá la correspondiente nota de permiso de uso, en la cual se incluirá las condiciones que deberá acatar el usuario.
