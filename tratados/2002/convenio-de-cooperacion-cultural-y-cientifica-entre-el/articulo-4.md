@@ -1,0 +1,1 @@
+Artículo 4º—Las Partes fomentarán el establecimiento y el desarrollo de contactos en el campo cultural y artístico, estimularán la cooperación entre las organizaciones culturales, asociaciones, fundaciones y otras instituciones de carácter cultural de ambos países.

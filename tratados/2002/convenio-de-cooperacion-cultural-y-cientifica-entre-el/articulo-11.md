@@ -1,0 +1,1 @@
+Artículo 11.—Las Partes estimularán la colaboración entre los medios de información masiva y contribuirán al establecimiento de vínculos entre editoriales y compañías de televisión y radio de ambos países.

@@ -1,0 +1,1 @@
+Artículo 12.—Las Partes estimularán la colaboración en la defensa de los derechos de autor y los derechos conexos. El procedimiento y las condiciones de dicha cooperación se determinarán en el acuerdo específico en conformidad con la legislación nacional y el Derecho Internacional.

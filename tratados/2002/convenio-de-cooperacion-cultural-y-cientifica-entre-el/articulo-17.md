@@ -1,0 +1,1 @@
+Artículo 17.—Las Partes contribuirán al desarrollo de la cooperación en el campo de la cultura física y el deporte, estimulando los contactos directos entre deportistas, entrenadores, dirigentes y equipos deportivos de sus países.

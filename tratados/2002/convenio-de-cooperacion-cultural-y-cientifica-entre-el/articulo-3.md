@@ -1,0 +1,1 @@
+Artículo 3.—Las Partes harán esfuerzos en aras de divulgar los valores artísticos y culturales del otro país, favoreciendo la participación de sus ciudadanos en las respectivas actividades apoyando con este fin las iniciativas sociales y privadas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 20.—Las condiciones financieras que regulan la ejecución del presente Convenio, se determinarán con base en reciprocidad y se especificarán en los programas adoptados en las reuniones de la Comisión Mixta, mencionada en el artículo 2 del presente Convenio.

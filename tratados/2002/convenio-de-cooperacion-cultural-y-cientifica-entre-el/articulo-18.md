@@ -1,0 +1,1 @@
+Artículo 18.—Las Partes contribuirán al desarrollo del intercambio turístico como medio activo de divulgación de la cultura de ambos países a la realización por sus organizaciones respectivas de programas de formación y capacitación de personas en el campo del turismo, tanto nacional como internacional.

@@ -1,0 +1,1 @@
+Artículo 8º—Las Partes contribuirán al estudio mutuo de experiencias en el campo cultura, turismo, literatura, deporte y la conservación del ambiente por medio de la organización de conferencias, simposios, foros científicos, así como mediante el intercambio de especialistas y de la realización de investigaciones científicas conjuntas.
