@@ -1,0 +1,11 @@
+ARTICULO 4
+1. Las autoridades competentes no deberán imponer o dejar que se
+imponga el trabajo forzoso u obligatorio en provecho de particulares, de
+compañías o de personas jurídicas de carácter privado.
+2. Si existiera tal forma de trabajo forzoso u obligatorio en provecho
+de particulares, de compañías o de personas jurídicas de carácter privado
+en la fecha en que el Director General de la Oficina Internacional del
+Trabajo haya registrado la ratificación de este Convenio por un Miembro,
+este Miembro deberá suprimir completamente dicho trabajo forzoso u
+obligatorio, desde la fecha en que para él entre en vigor el presente
+Convenio.
