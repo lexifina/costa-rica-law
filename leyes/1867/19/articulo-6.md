@@ -1,0 +1,1 @@
+Artículo 6°-El patrón que tratase con crueldad al peón ó sirviente en cualquiera condición que lo tuviese, ó que deje de darle los alimentos ó salario á que está obligado, pierde el derecho de conservarlo, y está sujeto á las indemnizaciones que corresponden, sobre todo lo cual resolverá verbalmente, dentro de setenta y dos horas, la autoridad á quien toque según el artículo 25.

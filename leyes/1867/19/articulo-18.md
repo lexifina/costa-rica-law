@@ -1,0 +1,1 @@
+Artículo 18°-No obstante, lo establecido en el artículo anterior, ningún sirviente por meses ó años sin término fijo, puede retirarse á la conclusión de su período, si con la anticipación de quinde días no ha manifestado su intención al patrón ó á quien haga sus veces.

@@ -1,0 +1,1 @@
+Artículo 25°-No obstante lo dispuesto en el artículo 24, cuando en una causa criminal apareciese cometida por el procesado alguna de las faltas sometidas al conocimiento de las autoridades políticas de policía, á prevención con los alcaldes constitucionales, la autoridad judicial puede castigarla, aplicando en la misma sentencia la pena que, según esta ley, corresponda.

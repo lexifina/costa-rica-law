@@ -1,0 +1,1 @@
+Artículo 8°-Son juegos absolutamente prohibidos, los determinados en el artículo 170 del Reglamento de Policía, y relativamente prohibidos los mencionados en los artículos 167, 171, 172 y 173 del propio Reglamento, cuando se verifican fuera de los establecimientos autorizados ó á horas ó en cantidad en que la ley no los permite.

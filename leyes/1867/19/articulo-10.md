@@ -1,0 +1,1 @@
+Artículo 10°-Este puede justificarse por todos los medios legales; declarándose que los simples espectadores del juego, siempre que no se ejecute en garitos, no habiendo tomado parte en él ni incurrido en otro hecho que les constituya cómplices ó receptadores, no están sujetos á pena alguna, y son testigos idóneos.
