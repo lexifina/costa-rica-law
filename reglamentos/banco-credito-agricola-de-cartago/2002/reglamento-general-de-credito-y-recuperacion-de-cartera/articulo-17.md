@@ -1,0 +1,1 @@
+Artículo 17.—De la Gestión de Recuperación de Créditos. Corresponderá a la Administración del Banco establecer los mecanismos necesarios, tales como plazos, medios y otras condiciones para realizar las gestiones de recuperación de créditos en mora.

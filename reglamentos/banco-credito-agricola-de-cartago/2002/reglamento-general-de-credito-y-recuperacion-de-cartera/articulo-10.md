@@ -1,0 +1,1 @@
+Artículo 10.—Políticas crediticias. Corresponde a la Junta Directiva General, analizar y aprobar las políticas crediticias que rigen para la colocación de créditos y para la recuperación de cartera. A la Gerencia General, le competerá establecer las disposiciones de ejecución y procedimientos que garanticen el fiel cumplimiento de estas políticas y promover su implementación.

@@ -1,0 +1,1 @@
+Artículo 18.—Del cobro judicial. El incumplimiento de cualquiera de las condiciones establecidas en el contrato de crédito, facultará al Banco para iniciar las respectivas acciones judiciales para la recuperación del crédito.
