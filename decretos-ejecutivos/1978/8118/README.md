@@ -13,3 +13,4 @@ Cruz Roja Costarricense como Unica Autorizada Bingo Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-03-22 | la propia norma |
+| 2 | 1978-03-22 | SINALEVI (sin norma nombrada) |
