@@ -1,0 +1,1 @@
+Artículo 15.—La Unidad de Gestión de Bienes y Servicios es la responsable de dictar la normativa que regulará el Registro de Proveedores, para lo cual atenderá la normativa general que podrá dictar el Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 44.—Los faltantes que resulten de las operaciones ordinarias de la caja chica y que sean debidamente comprobados al efectuar un arqueo, deben ser cubiertos por el responsable del fondo, una vez atendidos sus derechos de defensa. En caso de que se determine un sobrante, se debe depositar en forma inmediata en la cuenta corriente de la Municipalidad.

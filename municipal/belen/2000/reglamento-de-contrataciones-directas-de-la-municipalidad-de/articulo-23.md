@@ -1,0 +1,1 @@
+Artículo 23.—Corresponderá a la Unidad de Gestión de Bienes y Servicios, una vez adjudicada la contratación, preparar la respectiva orden de compra. La orden de compra es el documento por el cual se compromete el monto presupuestado y, a la vez, genera el compromiso con la empresa para la adquisición del bien o servicio seleccionado en los supuestos de contrataciones directas.

@@ -1,0 +1,1 @@
+Artículo 3º—Cada unidad deberá presentar un programa anual de adquisiciones, dentro de las posibilidades presupuestarias de la Municipalidad, el cual deberá ser incluido en el programa anual de adquisiciones de la Municipalidad. La publicidad del programa anual se regirá por lo dispuesto en el artículo 7º del Reglamento General de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad de Gestión de Bienes y Servicios y las unidades solicitantes, serán las encargadas de vigilar que las adquisiciones de bienes y servicios que requieran dentro de su ámbito de competencia no sean fraccionadas.

@@ -1,0 +1,1 @@
+Artículo 2º—Las contrataciones directas estarán bajo la dirección y supervisión de la Unidad de Gestión de Bienes y Servicios, la cual será responsable de llevar a cabo los procedimientos de contratación, en coordinación con las demás unidades de la Municipalidad.
