@@ -1,0 +1,1 @@
+Artículo 2.- Declárase oficial el mapa de esa circunscripción que el Instituto Geográfico Nacional prepare con base en la descripción comprendida en el segundo párrafo del artículo reformado en esta ley. Se faculta al Instituto para que, en caso de duda, defina con exactitud los límites de la zona desafectada.
