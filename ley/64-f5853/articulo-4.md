@@ -1,0 +1,1 @@
+ARTÍCULO 4°. - Habrá en la Administración Principal una arca de hierro con tres llaves distintas, de las cuales tendrá una cada uno de los empleados designados, y se depositarán en ella todos los caudales que entren en la oficina de dinero y vales nacionales, los pagarés, escrituras y cualesquiera otros documentos de importancia; y los libros de cuenta y razón.
