@@ -1,0 +1,1 @@
+Transitorio II.-La cuota que por subvención corresponde al Instituto conforme a los artículos 6° y 7°, se complementará en el Presupuesto General con las partidas necesarias para el servicio de los Bonos INVU 7% 1964, contemplados en el artículo 3°.

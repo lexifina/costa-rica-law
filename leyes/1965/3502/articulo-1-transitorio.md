@@ -1,0 +1,1 @@
+Transitorio I.-la subvención establecida en la reforma que introduce el artículo 7° anterior, comenzará a hacerse efectiva a partir de la aprobación del Presupuesto General del ejercicio correspondiente al año 1965.
