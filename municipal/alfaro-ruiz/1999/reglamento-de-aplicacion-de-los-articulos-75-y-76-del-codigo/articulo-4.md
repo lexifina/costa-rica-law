@@ -1,0 +1,1 @@
+Artículo 4º—La municipalidad coordinará acciones con los síndicos, Consejos de Distrito, Asociacones de Desarrollo y Comités de Vecinos, garantizar el cumplimiento de los deberes de los propietarios establecidos en este reglamento.
