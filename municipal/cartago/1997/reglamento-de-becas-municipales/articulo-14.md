@@ -1,1 +1,0 @@
-Artículo 14.-La Comisión de Educación, Cultura y Deportes de la Municipalidad, será la responsable de notificar una vez aprobado por el Concejo Municipal, cada uno de los beneficiarios de la adjudicación por parte de la Municipalidad de la beca, mediante telegrama o cualquier otro medio que considere apto.
