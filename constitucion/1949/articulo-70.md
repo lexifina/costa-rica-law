@@ -1,1 +1,1 @@
-Artículo 70.--Se establece una jurisdicción de trabajo, dependiente del Poder judicial.
+ARTÍCULO 70.- Se establecerá una jurisdicción de trabajo, dependiente del Poder Judicial.

@@ -1,1 +1,1 @@
-Artículo 137.-El Presidente y los Vicepresidentes prestarán juramento ante la Asamblea Legislativa; pero si no pudieren hacerla ante ella, lo harán ante Corte Suprema de Justicia.
+ARTÍCULO 137.- El Presidente y los Vicepresidentes prestarán juramento ante la Asamblea Legislativa; pero si no pudieren hacerlo ante ella, lo harán ante la Corte Suprema de Justicia.

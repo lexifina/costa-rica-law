@@ -1,7 +1,10 @@
-Articulo 14.-- Son costarricenses por naturalización:
-1) Los que han adquirido esta calidad en virtud de leyes anteriores;
-2) Los nacionales de los otros países de Centro América, de buena conducta y con un año de residencia en la República por lo menos, que manifiesten ante el Registro Civil su decisión de ser costarricenses:
-3) Los españoles o iberoamericanos por nacimiento que obtengan la carta respectiva ante el Registro Civil, siempre que hayan tenido su domicilio en el país durante los dos años anteriores a su solicitud;
-4) Los centroamericanos, españoles e iberoamericanos que no lo sean por nacimiento, y los demás extranjeros que hayan estado domiciliados en Costa Rica por el término mínimo de cinco años inmediatamente anteriores a la solicitud de naturalización, de acuerdo con los requisitos que indique la ley;
-5) La mujer extranjera que al casar con costarricense pierda su nacionalidad, o que manifieste su deseo de ser costarricense;
-6) Quienes reciban la nacionalidad honorífica de la Asamblea Legislativa.
+ARTÍCULO 14.- Son costarricenses por naturalización:
+1) Los que hayan adquirido esta nacionalidad en virtud de leyes anteriores.
+2) Los nacionales de otros países de Centroamérica, los españoles y los iberoamericanos por nacimiento que hayan residido oficialmente en el país durante cinco años y que cumplan con los demás requisitos que fije la ley.
+3) Los centroamericanos, los españoles y los iberoamericanos que no lo sean por nacimiento y los demás extranjeros que hayan residido oficialmente en el país durante siete años como mínimo y que cumplan con los demás requisitos que fije la ley.
+4) La mujer extranjera que al contraer matrimonio con costarricense pierde su nacionalidad.
+5) Las personas extranjeras que al casarse con costarricenses pierdan su nacionalidad o que luego de haber estado casadas dos años con costarricenses, y de residir por ese mismo período en el país, manifiesten su deseo de adquirir la nacionalidad costarricense.
+(Así reformado el inciso anterior por el artículo único de la ley N° 7879 de 27 de mayo de 1999)
+(La Sala Constitucional mediante resolución N° 3435-92, de las 16:20 horas, del día 11 de noviembre de 1992, dispuso en relación con el inciso anterior que: en aras de evitar desigualdades y discriminaciones futuras que pudieran surgir al aplicarse la Carta fundamental y otros instrumentos jurídicos vigentes, "cuando en la legislación se utilicen los términos "hombre" o "mujer", deberán entenderse como sinónimos al vocablo "persona", y con ello eliminar toda posible discriminación "legal" por razón de género.)
+6) Quienes ostenten la nacionalidad honorífica otorgada por la Asamblea Legislativa.
+(Así reformado por el artículo único de la ley N° 7065 de 21 de mayo de 1987)
