@@ -1,0 +1,1 @@
+Artículo 2°.- Si en el futuro el Estado llegase a adquirir los bienes de la mencionada empresa en la forma prevista en el contrato respectvio, o en virtud de convenio con la misma, el aporte municipal que se hace por esta ley deberá deducirse del valor total de tales bienes.
