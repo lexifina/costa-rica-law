@@ -1,0 +1,1 @@
+Artículo 2º—Mientras el Ministerio de Economía, Industria y Comercio no indique lo contrario se entenderá que las Marimbas y Guitarras clásicas, son los únicos instrumentos musicales producidos en el territorio nacional.
