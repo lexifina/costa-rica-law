@@ -1,3 +1,0 @@
-Artículo 2°—Veracidad y suficiencia de la información El prospecto deberá contener toda la información necesaria para que los inversionistas puedan formular un juicio fundado sobre la inversión.
-Toda la información que éste contenga debe ser verdadera, clara, precisa, suficiente y verificable; no deberá contener apreciaciones subjetivas, calificativos u omisiones que distorsionen la realidad. El representante legal del emisor será responsable de la información brindada, para lo cual rendirá una declaración jurada.
-La Superintendencia General de Valores podrá solicitar las aclaraciones que estime necesarias en relación con la información contenida en el prospecto, así como la documentación que respalde dicha información y su incorporación en el prospecto.

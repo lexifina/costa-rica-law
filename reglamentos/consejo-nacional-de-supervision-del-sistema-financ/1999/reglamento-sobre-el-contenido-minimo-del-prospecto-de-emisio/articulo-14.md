@@ -1,1 +1,0 @@
-Artículo 14.—Información financiera. En esta sección se incorporarán los estados auditados comparativos y sus notas, para los últimos tres períodos fiscales tratándose de acciones y los últimos dos períodos fiscales tratándose de deuda.

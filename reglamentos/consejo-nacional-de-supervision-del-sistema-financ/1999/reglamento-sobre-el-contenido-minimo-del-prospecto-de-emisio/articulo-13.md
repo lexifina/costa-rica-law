@@ -1,1 +1,0 @@
-Artículo 13.—Transacciones comerciales con el grupo de interés económico. En esta sección se brindará información sobre las transacciones comerciales de la empresa con su grupo de interés económico que tengan un efecto material para ella.

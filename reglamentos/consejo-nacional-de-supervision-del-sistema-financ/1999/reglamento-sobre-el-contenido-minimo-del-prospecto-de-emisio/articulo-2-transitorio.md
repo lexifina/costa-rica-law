@@ -1,1 +1,0 @@
-II.—Los emisores que se encuentren inscritos en la Superintendencia General de Valores a la entrada en vigencia de este Reglamento deberán modificar sus prospectos para adecuarlos a lo establecido en este Reglamento y en la Guía de Prospecto a que se refiere el Artículo 1 de este Reglamento dentro del plazo de tres meses contados a partir de la comunicación de la Guía respectiva.

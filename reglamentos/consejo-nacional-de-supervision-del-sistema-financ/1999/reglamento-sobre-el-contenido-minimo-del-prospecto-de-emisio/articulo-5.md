@@ -1,1 +1,0 @@
-Artículo 5°—Actualización del prospecto. El prospecto deberá actualizarse cada vez que se modifique la información relacionada con el contenido mínimo aquí establecido; todo ello de conformidad con lo que establezca el Superintendente General de Valores.
