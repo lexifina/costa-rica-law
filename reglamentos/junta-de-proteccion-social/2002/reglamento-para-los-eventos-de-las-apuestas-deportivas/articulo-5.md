@@ -1,0 +1,1 @@
+Artículo 5º—Obligaciones del concursante: El concursante es el único responsable de la correcta inclusión de la información de la apuesta y deberá comprobar en el momento de recibir el comprobante (para el caso de las apuestas vía ventanilla en alguna sucursal o agencia), si las apuestas y los pronósticos contenidos en él son de su conformidad.

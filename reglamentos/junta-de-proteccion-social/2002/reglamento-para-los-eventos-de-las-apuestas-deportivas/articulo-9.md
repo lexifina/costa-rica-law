@@ -1,0 +1,1 @@
+Artículo 9º—Tiempo límite para la recepción de apuestas: La recepción de apuestas se inicia a partir del momento en que la Junta lo defina en el sistema automatizado. El tiempo límite para la recepción de apuestas para cada quiniela, es de quince minutos antes del inicio del primer evento deportivo incluido en la quiniela correspondiente.
