@@ -1,0 +1,1 @@
+Artículo 2°-Autorízase al Poder Ejecutivo para que por medio del Ministro de Economía y Hacienda;. personalmente o representado por el Embajador de Costa Rica ante el Gobierno de los Estados Unidos de Norteamérica, otorgue la fianza solidaria del Estado de acuerdo con el artículo 1°.
