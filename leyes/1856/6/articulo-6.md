@@ -1,0 +1,2 @@
+Art 6°.- Los prestamistas que no enteren en las fechas señaladas en el art 4 de este decreto las cantidades que les hayan cabido, quedarán de hecho incursos en la pena del duplo, por el cual serán inmediatamente ejecutados y perderán además el derecho de cobrar interés por la cantidad a que monte la enunciada pena.-
+Dado en San José, a los veintiocho días del mes de febrero de mil ochocientos cincuenta y seis.

@@ -1,0 +1,1 @@
+Art 4°.- Cada uno de los prestamistas está obligado a entender en la Administración Principal, cuando más tarde el día 15 del próximo marzo, la mitad de la suma que le haya cabido, y la otra mitad el día último del mismo mes.
