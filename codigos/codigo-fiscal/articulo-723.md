@@ -1,9 +1,3 @@
-Artículo 723- Siempre que la cantidad de licor clandestino, adulterado
-o de introducción prohibida excediere de un litro, la autoridad
-encargada de la instrucción la dividirá, tan luego ingrese a la oficina,
-en dos partes: una de ese tanto que llevará el nombre legal de "muestra"
-y que reservará el despacho bajo la responsabilidad de la secretaría
-para las necesidades del proceso, y otra del resto, que debe, bajo
-recibo, depositarse en la Fábrica Nacional de Licores, en donde se
-guardará hasta la terminación de los procedimientos.
-(Así reformado por ley Nº 2905 de 24 de noviembre de 1961).
+Artículo 723- Siempre que la cantidad de licor clandestino, adulterado o de introducción prohibida excediere de un litro, la autoridad encargada de la instrucción la dividirá, tan luego ingrese a la oficina, en dos partes: una de ese tanto que llevará el nombre legal de "muestra" y que reservará el despacho bajo la responsabilidad de la secretaría para las necesidades del proceso, y otra del resto, que debe, bajo recibo, depositarse en la Fábrica Nacional de Licores, en donde se guardará hasta la terminación de los procedimientos.
+(Así reformado el párrafo anterior por el artículo 2° de la ley Nº 2905 de 24 de noviembre de 1961).
+Tanto la “muestra” como el deposito, deben ponerse en envases cerrados, que llevaran sobre el tapón, y en su caso sobre la precinta del sello de la oficina, con un mismo número de orden que será el que corresponda por turno en una numeración seguida. Es prohibido indicar en dicho sello o en otro lugar de los envases, el nombre del indiciado. En el expediente se hará constar, por acta formal, la forma y calidad de los envases, la cantidad depositada y la marca numérica respectiva
