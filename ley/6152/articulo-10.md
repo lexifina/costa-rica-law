@@ -1,0 +1,1 @@
+Artículo 10.- Para ingresar al servicio judicial se requiere reunir los mismos requisitos que determina el artículo 18 del Estatuto de Servicio Judicial, Ley Nº 5155 de 10 de enero de 1973, reformada por la Nº 5374 de 24 de octubre de 1973.
