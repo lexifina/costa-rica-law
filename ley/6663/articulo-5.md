@@ -1,4 +1,4 @@
-Artículo 5º.- Las escalas de aplicación de estos timbres, serán las
+Artículo 5º.-Las escalas de aplicación de estos timbres, serán las
 siguientes:
 a) En las certificaciones de cualquier índole, tales como cuentas o
 segmentos de balances, peritazgos, ingresos, estudios y recomendaciones de
