@@ -1,1 +1,2 @@
-Art. 12.-Si el sustentante fuere aprobado, el Presidente del Colegio señalará día para el segundo examen que versará sobre las mismas materias designadas para el primero, será pública y lo practicará la Junta Directiva del Colegio, votando también nominalmente por las notas de aprobado ó suspenso.
+Artículo 12. - Si el sustentante fuere a probado, el Presidente del Colegio, en la sesión inmediata que la Junta de Gobierno del Colegio celebre, y si ésta lo acordare, le conferirá el título de Notario, le recibirá el juramento constitucional y dispondrá que se le expida el diploma respectivo.
+(Así reformado por la ley N° 25 del 18 de junio de 1915).

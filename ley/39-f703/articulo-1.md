@@ -1,3 +1,4 @@
+(Derogado)
 N° 39
 (Esta ley fue derogado por ley N° 25 del 18 de junio de 1915)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
