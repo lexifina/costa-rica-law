@@ -1,1 +1,0 @@
-Artículo 24.- La prestación de los servicios descritos en el artículo anterior será excepcional, debiendo el Area de Conservación procurar, que estos servicios sean prestados en la medida de lo posible fuera de las áreas, por las comunidades vecinas.

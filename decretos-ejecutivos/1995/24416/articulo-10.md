@@ -1,1 +1,0 @@
-Artículo 10.- El pago de esta tarifa exonera del pago de la tarifa de ingreso a un máximo de tres investigadores; los demás miembros del equipo de investigación, deberán cancelar la tarifa de ingreso correspondiente.

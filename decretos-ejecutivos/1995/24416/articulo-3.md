@@ -1,2 +1,0 @@
-Artículo 3º.- Por derecho de ingreso a los parques nacionales y reservas biológicas, los visitantes extranjeros no residentes, pagarán por el concepto de ingreso a los mismos, un monto de seis dólares, moneda de los Estados Unidos de América (USD $ 6,00).
-(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 25045 de 20 de marzo de 1996, publicado en La Gaceta 64 de 01 de abril de 1996.)

@@ -1,1 +1,0 @@
-Artículo 4º.- Por derecho de ingreso al Parque Nacional Isla del Coco, los visitantes pagarán la suma de quince dólares USA ($ 15,00) o su equivalente en colones, por día. Tarifa que será la misma para nacionales y extranjeros residentes y no residentes.

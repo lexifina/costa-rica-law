@@ -1,1 +1,0 @@
-Artículo 23.- El Servicio de Parques Nacionales en coordinación con el área respectiva, podrá exonerar del pago de las tarifas establecidas en el artículo anterior, cuando se trate de personas que visitan el área en misión oficial, siempre que la misma sea de evidente interés para el Servicio de Parques Nacionales.

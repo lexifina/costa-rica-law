@@ -1,1 +1,0 @@
-Artículo 9º.- El pago de esta tarifa, da derecho al investigador para realizar la investigación en las zonas destinadas a tal fin en los planes de manejo del área, y/o por el Servicio de Parques Nacionales.

@@ -1,2 +1,0 @@
-Artículo 14.- Quedan exentas del pago de esta tarifa, las filmaciones de carácter científico, cultural o educativo, que así determine el Servicio de Parques Nacionales a solicitud del interesado.
-También están excluidas de esta tarifa, las filmaciones de aficionados que pretendan únicamente la preservación de un recuerdo sobre la visita al área y que por ello no persigue fines comerciales o lucrativos.
