@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza a la Refinadora Costarricense de Petróleo, S.A., para que siguiendo los trámites establecidos por la ley, acondicione la estructura del Muelle Petrolero, obras de protección y vías de acceso, actualmente en construcción, a fin de que, ocasionalmente, pueda efectuarse a través de dicho Muelle exportación de banano.

@@ -1,0 +1,1 @@
+Artículo 4°-Cuando las eventuales actividades de dicho muelle requiera, según se menciona en los dos artículos anteriores, trabajadores para la carga y descarga similares a los sistemas de estiba existentes en el actual Muelle Metálico de Limón, dichas tareas se harán por medio de cooperativas de obreros organizados según el Código de Trabajo y leyes conexas.
