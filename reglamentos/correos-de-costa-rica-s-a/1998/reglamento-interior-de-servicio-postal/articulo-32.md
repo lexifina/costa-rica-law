@@ -12,4 +12,6 @@ b) Por renuncia del cliente.
 c) Por el no pago de la tarifa correspondiente en el período establecido en el artículo 31 de este reglamento; y
 d) Por incumplimiento de las disposiciones establecidas en el presente Reglamento y del contrato de uso de Apartados.
 Se permite que los menores de edad, pero mayores de catorce años, adquieren un apartado pero a través de su representante legal o tutor.
+El usuario de un apartado podrá designar a un beneficiario para que en caso de ausencia, el beneficiario pueda seguir utilizando el servicio de apartado y pague en su nombre las tarifas correspondientes.
+(Así ampliado en sesión N° 132 de 24 de febrero de 2000).
 En el caso de los clientes que han perdido el derecho de uso del apartado. Correos de Costa Rica, a través de las sucursales correspondientes,--mantendrá la correspondencia por un período de un mes, para que pueda ser retirado por el destinatario a través de "entrega en ventanilla". Cumplido ese plazo, procederá a la devolución al destinatario o a rezago, según corresponda.
