@@ -1,6 +1,2 @@
-Artículo 5º.- Solamente con previa autorización del Colegio de
-Optometristas podrán venderse anteojos graduados, lentes de contacto y
-todos los demás aparatos ópticos que se prescriban para corregir defectos
-visuales dentro del campo de la optometría. En cuanto a los lentes de
-contacto, pueden ser aplicados tanto por los médicos oftalmólogos como por
-los optometristas.
+Artículo 5º.- ANULADO por Resolución de la Sala Constitucional Nº
+6696-93 de las 14:51 horas del 21 de diciembre de 1993.
