@@ -1,0 +1,1 @@
+Art 3° El que venda de contrabando aguardiente o mistelas del país y no confesare y probare de que la persona o fábrica hubo el artículo, se tendrá como destilador clandestino y sufrirá las mismas penas para estos señalados.
