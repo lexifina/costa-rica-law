@@ -1,0 +1,1 @@
+ARTÍCULO 9: Modifícase el inciso 1 del artículo 10 de la Ley N° 8288 de 4 de julio del 2002, en forma tal que se lea así: "1. La Unidad Ejecutora realizará las contrataciones necesarias, de conformidad con los procedimietos y las normas estipuladas en la ley N° 8154, Programa de Regularización del Catastro y registro."
