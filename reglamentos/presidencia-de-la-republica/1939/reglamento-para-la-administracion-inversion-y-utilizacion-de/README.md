@@ -14,3 +14,4 @@ Reglamento para la Administración, inversión y utilización del Fondo garantí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1940-01-19 | la propia norma |
+| 2 | 1940-01-19 | Reglamento 3 (1940-01-10) |
