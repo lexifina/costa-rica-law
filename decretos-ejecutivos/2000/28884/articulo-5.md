@@ -1,0 +1,1 @@
+Artículo 5º—Durante el período comprendido entre el día primero de agosto y el día treinta y uno de diciembre del año 2000 (ambas fechas inclusive) queda prohibida la caza o captura de las especies que no aparezcan contempladas en las listas de especies autorizadas para la caza.
