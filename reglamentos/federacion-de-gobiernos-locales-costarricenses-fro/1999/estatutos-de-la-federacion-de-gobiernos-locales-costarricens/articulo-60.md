@@ -1,0 +1,1 @@
+Artículo 60.—La separación de uno de los gobiernos locales integrados a la Federación, no invalida los acuerdos en vías de ejecución y sus aportes continuarán formando parte del patrimonio de la Federación.

@@ -1,0 +1,1 @@
+Artículo 4°—El retiro voluntario de un Gobierno Local del seno de la Federación, requerirá acuerdo del Concejo Municipal respectivo, tomado por la misma votación referida en el artículo dos del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 52.—Los gobiernos locales signatarios autorizan a la Contraloría General de la República a presupuestar de oficio la cuota anual para esta Federación, cuando alguno de éstos no incluyere la partida en el presupuesto ordinario conforme lo establece el inciso a) del artículo cincuenta y uno del presente estatuto.

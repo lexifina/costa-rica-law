@@ -1,0 +1,1 @@
+Artículo 61.—La Unión Nacional de Gobiernos Locales y el Instituto de Fomento y Asesoría Municipal podrán designar un representante a la Federación, quienes asistirán cuando sean convocados para efectos de asesoría, y tendrán únicamente derecho a voz.

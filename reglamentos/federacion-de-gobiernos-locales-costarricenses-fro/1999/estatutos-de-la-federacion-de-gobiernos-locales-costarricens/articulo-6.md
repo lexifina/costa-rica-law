@@ -1,0 +1,1 @@
+Artículo 6°—La exclusión procederá también cuando todos los representantes al Concejo Directivo de un Gobierno Local, falten durante el año respectivo a más de cinco reuniones debidamente convocadas de manera injustificada

@@ -1,0 +1,1 @@
+Artículo 3°—Para el ingreso de otros gobiernos locales interesados en formar parte de la Federación, deberán presentar al Concejo Directivo, solicitud escrita incluyendo la designación de sus representantes para la Asamblea.

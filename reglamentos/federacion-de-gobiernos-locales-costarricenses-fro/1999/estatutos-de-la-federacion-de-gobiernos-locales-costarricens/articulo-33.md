@@ -1,0 +1,1 @@
+Artículo 33.—La convocatoria a reuniones ordinarias se tendrá por realizada en la sesión de instalación; según los términos del artículo anterior En todo caso el Secretario comunicará a cada directivo el calendario de reuniones acordadas.

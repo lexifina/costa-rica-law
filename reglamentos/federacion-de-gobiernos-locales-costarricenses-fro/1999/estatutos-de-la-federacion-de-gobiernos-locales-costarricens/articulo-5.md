@@ -1,0 +1,1 @@
+Artículo 5°—Los gobiernos locales que integren la Federación quedarán excluidos de esta, cuando todos sus representantes a la asamblea general, falten consecutivamente a dos asambleas debidamente convocadas de manera injustificada.

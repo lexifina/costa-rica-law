@@ -1,0 +1,1 @@
+Artículo 2°—Para la integración de la Federación, se requerirá acuerdo firme del Concejo Municipal respectivo, y que haya sido aprobado por votación calificada de las dos terceras partes de la totalidad de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que la Asamblea no pueda realizarse por falta de quorum, según los términos indicados en el artículo anterior, se hará una nueva convocatoria para sesionar dentro de los quince días naturales siguientes; en este caso la asamblea dará inicio con los delegados presentes.

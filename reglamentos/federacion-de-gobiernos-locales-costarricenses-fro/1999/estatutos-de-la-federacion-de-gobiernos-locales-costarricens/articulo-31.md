@@ -1,0 +1,1 @@
+Artículo 31.—El Concejo Directivo nombrará en su reunión de instalación a un Presidente, un Vicepresidente, un Secretario, un Prosecretario, un Tesorero y cuatro Vocales; todos por un período de dos años, pudiendo ser reelectos. Dicha elección se ha de realizar en la primera quincena del mes de julio del año que corresponda.

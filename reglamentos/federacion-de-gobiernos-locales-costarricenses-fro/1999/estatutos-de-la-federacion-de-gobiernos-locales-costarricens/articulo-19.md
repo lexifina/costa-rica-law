@@ -1,0 +1,1 @@
+Artículo 19.—La Asamblea sesionará en forma extraordinaria las veces que sea convocada por el Concejo Directivo, La Fiscalía, por el acuerdo de dos concejos municipales afiliados o en los casos que lo establece el presente estatuto.

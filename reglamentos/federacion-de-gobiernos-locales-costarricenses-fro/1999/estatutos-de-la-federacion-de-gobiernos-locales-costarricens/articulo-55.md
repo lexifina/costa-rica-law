@@ -1,0 +1,1 @@
+Artículo 55.—Al extinguirse la Federación los bienes de ésta se distribuirán en proporción a lo aportado por cada Gobierno Local, para lo cual, se pedirá al Juez Civil de San Carlos el nombramiento de tres liquidadores al efecto.

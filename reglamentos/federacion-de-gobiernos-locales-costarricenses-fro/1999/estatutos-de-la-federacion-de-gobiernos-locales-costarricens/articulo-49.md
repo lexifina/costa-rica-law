@@ -1,0 +1,1 @@
+Artículo 49.—Si el puesto de Fiscal quedare vacante por cualquier razón, el Presidente deberá convocar extraordinariamente dentro de los quince días siguientes a la Asamblea General para nombrar un sustituto.

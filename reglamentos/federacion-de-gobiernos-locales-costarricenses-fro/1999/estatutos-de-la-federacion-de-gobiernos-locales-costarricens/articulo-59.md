@@ -1,0 +1,1 @@
+Articulo 59.—Los alcaldes municipales constituyen la Comisión Técnica Especial de Apoyo de la Federación, cuyas funciones se definirá en el respectivo reglamento. Esta Comisión estará obligada a rendir i informe cuando el Concejo Directivo así lo solicite.

@@ -1,0 +1,1 @@
+Artículo 32.—El Concejo Directivo se reunirá en forma ordinaria una vez al mes. En la sesión de instalación se acordarán la hora, día y lugar para las mismas. En forma extraordinaria se reunirá cuando así lo solicite el Presidente, El Director Ejecutivo, el Fiscal o cuando tres o más directivos así lo requieran en forma escrita al Presidente.

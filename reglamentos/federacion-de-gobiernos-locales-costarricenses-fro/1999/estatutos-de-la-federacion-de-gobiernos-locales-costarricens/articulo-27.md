@@ -1,0 +1,1 @@
+Artículo 27.—El Concejo Directivo estará compuesto por un Presidente, un Vicepresidente, un Secretario, un Prosecretario, un Tesorero cuatro vocales y un Fiscal, que se nombrarán de los delegados presentes en la Asamblea General, y durarán en sus cargos dos años, pudiendo si reelectos.

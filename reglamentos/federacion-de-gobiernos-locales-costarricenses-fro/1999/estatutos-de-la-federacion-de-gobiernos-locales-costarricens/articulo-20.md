@@ -1,0 +1,1 @@
+Artículo 20.—El quorum de la Asamblea se conformará por la presencia del sesenta por ciento de los Delegados. Si efectuada la primera convocatoria no se reuniese el quorum fijado, la Asamblea podrá llevarse a cabo una hora después, con un mínimo del cuarenta por ciento del total de Delegados integrantes de la Asamblea.

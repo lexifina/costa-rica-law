@@ -1,0 +1,1 @@
+Artículo 48.—El órgano fiscal estará conformado por un fiscal propietario que será escogido de los delegados a la asamblea y elegido por ésta, su nombramiento será por dos años pudiendo ser reelecto. Deberá ser persona de reconocida solvencia moral.

@@ -1,0 +1,1 @@
+Artículo 12.—Además de las funciones generales enunciadas, la Federación luchará conjuntamente con los Concejos Municipales asociados por la formulación y ejecución de planes, programas y proyectos, tendientes a solucionar los problemas más urgentes de los cantones fronterizos mediante acciones cooperativas.

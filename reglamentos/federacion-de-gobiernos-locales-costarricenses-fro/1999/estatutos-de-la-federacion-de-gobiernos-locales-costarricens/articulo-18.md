@@ -1,0 +1,1 @@
+Artículo 18.—La asamblea general sesionará de modo ordinario, dos veces al año, en la primera quincena del mes de julio y otra en la primera quincena del mes diciembre, en la primera se discutirá el presupuesto ordinario del período venidero.
