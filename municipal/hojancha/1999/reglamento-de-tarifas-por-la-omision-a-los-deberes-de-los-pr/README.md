@@ -14,3 +14,4 @@ Reglamento de Tarifas por la Omisión a los Deberes de los Propietarios de Inmue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-01 | la propia norma |
+| 2 | 2000-02-14 | Reglamento municipal 0 (2000-02-14) |

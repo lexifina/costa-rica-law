@@ -1,2 +1,2 @@
-Artículo 14.-Rige a partir de su publicación en el Diario Oficial “La Gaceta".
-Hojancha, 21 de junio de 1999.
+Artículo 14.—Cuando en un lote exista una edificación inhabitable que arriesgue la vida, el patrimonio o la integridad física de terceros, o cuyo estado de abandono favorezca la comisión de actos delictivos, la municipalidad podrá formular la denuncia correspondiente ante las autoridades de salud y colaborar con ellas en el cumplimiento de la Ley General de Salud.
+(Así reformado mediante publicación en La Gaceta N° 49 del 9 de marzo del 2000)
