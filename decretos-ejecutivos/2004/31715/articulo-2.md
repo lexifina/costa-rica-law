@@ -1,0 +1,1 @@
+Artículo 2°—Modifícase el Reglamento a la Ley de Régimen de Zonas Francas, Decreto Ejecutivo Nº 29606-H-COMEX del 18 de junio de 2001, publicado en el Diario Oficial La Gaceta N° 121 del 25 de junio de 2001 y sus reformas, para que en todos los artículos donde se incluya la frase “Acuerdo Ejecutivo”se sustituya por “Acuerdo de Otorgamiento”.
