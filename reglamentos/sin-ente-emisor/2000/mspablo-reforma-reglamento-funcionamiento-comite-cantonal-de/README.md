@@ -13,3 +13,4 @@ MSPABLO: Reforma Reglamento Funcionamiento Comité Cantonal Deportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-24 | la propia norma |
+| 2 | 2000-03-24 | Ley 7 |
