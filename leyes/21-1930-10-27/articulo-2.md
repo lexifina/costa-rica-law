@@ -1,0 +1,1 @@
+Artículo 2.- Cuando el declarante resida fuera de la capital, la declaración se hará ante el Gobernador de la Provincia en esté domiciliado; y éste hará ante le Gobernador de la Provincia en que éste domiciliado; y éste deberá enviar inmediatamente copia del acta del Registro Cívico General
