@@ -1,0 +1,1 @@
+Art. 2. Queda vigente el art. 7 de la referida ley, que faculta al Gobierno para aumentar ó disminuir empleados y dotaciones, y el 15 que suprime los juzgados de primera instancia. –Dado en San José á once de Noviembre de mil ochocientos cuarenta y dos. –José María Alfaro. –Al Ministro General del Despacho, Señor Francisco María Oreamuno.
