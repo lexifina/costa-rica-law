@@ -1,0 +1,1 @@
+Art. 44.-El remate será público. Si los bienes que deben rematarse fueren muebles, se procurará que estén á la vista; si fueren caldos, semillas ú otros semejantes, habrá una muestra; si fueren raíces, se pondrán de manifiesto los planos y títulos que hubiere.

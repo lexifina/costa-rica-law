@@ -1,0 +1,1 @@
+Art. 97.-Si el acreedor no presenta título ejecutivo, debe garantizar los daños y perjuicios que se originen del embargo. Esta garantía debe consistir en depósito de dinero efectivo, á la orden del Juez y debe ser del diez por ciento del valor del embargo.

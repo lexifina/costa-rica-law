@@ -1,0 +1,2 @@
+Art. 23. -La sentencia de remate apelada se ejecutará, si el ejecutante rinde fianza bastante á juicio del Juez. Si la sentencia fuere favorable al ejecutado y rinde fianza también bastante en concepto del Juez, se levantará el embargo.
+Para calificar la fianza rendida, oirá á la contraria en la siguiente audiencia; y pasado ese término, haya contestado ó no, resolverá sin más trámite lo que fuere de derecho.

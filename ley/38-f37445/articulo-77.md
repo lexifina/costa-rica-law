@@ -1,0 +1,1 @@
+Art. 77.-Si la ejecución tuviere por objeto exigir del deudor de una obligación de no hacer, el cumplimiento de ella, y si el documento presentado fuere ejecutivo, se procederá como está mandado en el artículo 73.

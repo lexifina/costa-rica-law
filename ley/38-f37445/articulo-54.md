@@ -1,0 +1,1 @@
+Art. 54. Si el rematario no hubiere hecho el depósito de diez por ciento, se procederá, si el remate no se hubiere llevado á efecto por su causa, á embargar valuar y rematar bienes del fiador ó del rematario, según el caso, sin más trámites que los precisos para llevar á cabo las diligencias dichas.

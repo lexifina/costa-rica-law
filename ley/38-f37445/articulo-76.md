@@ -1,0 +1,1 @@
+Art. 76.-Si el obligado á ejecutar alguna cosa le hiciere de distinto modo del fijado, se procederá á la destrucción de lo practicado y al debido cumplimiento de la sentencia, todo á costa del deudor.
