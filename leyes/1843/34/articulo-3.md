@@ -1,0 +1,1 @@
+Art. 3. Practicada liquidación en los términos expresos, se reconocerá la deuda en un documento autorizado por el Presidente y Secretario Municipal y se mandará a pagar de los fondos de propios respectivos, llevándose de todo, razón circunstanciada en un libro de papel común en que también serán extendidos dichos documentos.

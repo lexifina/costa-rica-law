@@ -1,0 +1,1 @@
+Art. 6. Las Municipalidades, oyendo á los Síndicos, á los Jueces de Policía, donde los haya, y a los Alcaldes del Cuartel podrán, atendida la localidad y necesidad, permitir se cierren algunas calles, y en este caso la indemnización será únicamente de la cera y árboles frutales destruidos.
