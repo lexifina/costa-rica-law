@@ -1,1 +1,1 @@
-ARTICULO 17.- El contrato de seguro para su validez debe constar por escrito; y lo acreditar la póliza de seguro. Esta sólo será obligatoria y admisible en juicio después de presentada al Registro de Pólizas de Seguro.
+Artículo 17.-E1 contrato de seguro para su validez debe constar por escrito; y lo acreditará la póliza de seguro. Esta sólo será obligatoria y admisible en juicio después de presentada al Registro de Pólizas de Seguro.

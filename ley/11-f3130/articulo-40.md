@@ -1,1 +1,1 @@
-ARTICULO 40.- Los gastos que se ocasionen al liquidar la indemnización, ser n pagados por partes iguales entre el asegurado y el asegurador, salvo aquellos a que innecesariamente diere lugar alguna de las partes, pues en ese caso estos serán pagados por la parte que los ha ocasionado.
+Artículo 40.-Los gastos que se ocasionen al liquidar la indemnización, serán pagados por partes iguales entre el asegurado y el asegurador, salvo aquellos a que innecesariamente diere lugar alguna de las partes, pues en ese caso éstos serán pagados por la parte que los ha ocasionado.
