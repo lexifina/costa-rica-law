@@ -1,0 +1,1 @@
+Artículo 26.—Reglamento. Para cada uno de los centros de atención integral referidos en el artículo 2º de la presente Ley, así como para las diferentes modalidades de atención integral se fijarán, en forma específica, los requisitos mínimos de operatividad, tomando en consideración las características particulares de la población atendida.

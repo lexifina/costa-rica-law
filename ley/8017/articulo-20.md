@@ -1,0 +1,1 @@
+Artículo 20.—Personal. Todo establecimiento dedicado a la atención integral de personas menores de edad, deberá contar con el personal idóneo y capacitado, de acuerdo con los requerimientos que, para tal efecto, se determinarán en los respectivos reglamentos para cada una de las modalidades.

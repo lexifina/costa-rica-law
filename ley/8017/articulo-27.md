@@ -1,0 +1,1 @@
+Artículo 27.—Derechos adquiridos. Los centros de atención infantil y hogares escuela que tramitaron el permiso de funcionamiento con los requisitos dispuestos en la Ley N° 7380, mantendrán los derechos adquiridos y las situaciones jurídicas consolidadas.

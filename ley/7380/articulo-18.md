@@ -1,1 +1,0 @@
-Artículo 18.—Los funcionarios técnicos y administrativos serán nombrados de conformidad con el reglamento que, para tal efecto establezca el Consejo Nacional de Guarderías Infantiles y Hogares Escuela.

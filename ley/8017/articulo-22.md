@@ -1,0 +1,1 @@
+Artículo 22.—Procedimiento. El Consejo, por medio de la secretaría ejecutiva, abrirá un procedimiento ordinario o sumario contra los establecimientos de atención integral de personas menores de edad que incumplan la presente Ley y su Reglamento, en concordancia con el artículo 308 y siguientes de la Ley General de la Administración Pública.

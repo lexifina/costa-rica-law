@@ -1,0 +1,1 @@
+Artículo 24.—Recursos. Contra la resolución final del Consejo cabrá el recurso de revocatoria, que deberá interponerse dentro de los quince días posteriores a la notificación. Contra lo resuelto, cabrá recurso de apelación ante el Ministro de Salud. La clausura del establecimiento se ejecutará a los cinco días hábiles siguientes a la firmeza del acto que la impuso.
