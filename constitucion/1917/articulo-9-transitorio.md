@@ -1,2 +1,0 @@
-ARTICULO 9º.-Durante el presente período constitucional, la representación por provincia será como sigue: San José, 9 Diputados y 4 Senadores; Alajuela, 7 Diputados y 3 Senadores; Cartago, 5 Diputados y 2 Senadores; Heredia, 3 Diputados y 2 Senadores; Guanacaste, 3 Diputados y 1 Senador; Puntarenas, 1 Diputado y 1 Senador; Limón, 1 Diputado y 1 Senador.
-Las renovaciones que ocurran durante los inmediatos seis años se harán de acuerdo con esta proposición.

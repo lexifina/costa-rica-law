@@ -1,3 +1,0 @@
-ARTICULO 73.-Las resoluciones de cada Cámara o del Congreso reunido se toman por mayoría absoluta de votos presentes, a menos que la Constitución requiera una superior.
-Para este caso y para cualquiera otro en que se exija mayoría absoluta, se tendrá por tal la mitad más uno, si el total fuere par. Si éste fuere impar se añadirá una unidad, y la mitad del número así formado será la mayoría absoluta.
-Para fijar en su caso los dos tercios o tres cuartos, se sacará la cuenta aritmética exacta. Si el resultado diere un número entero y una fracción, la mayoría buscada se formará agregando una unidad completa, en vez de la fracción, al número estero del resultado aritmético. Los Presidentes de las Cámaras solo votarán en caso de empate.

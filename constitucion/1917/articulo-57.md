@@ -1,1 +1,0 @@
-ARTICULO 57.-Los miembros del Colegio Electoral gozarán de inmunidad desde quince días antes de aquel en que haya de verificarse la elección de Presidente y mientras que no se haya verificado dicha elección, salvo caso de flagrante delito.

@@ -1,5 +1,0 @@
-ARTICULO 64.-el cargo de Diputado ó Senador, propietario o suplente, es incompatible con el de Regidor o empleado municipal y con todo empleo público retribuido o función o comisión de la misma naturaleza. Por excepción no lo será con el cargo de profesor en cualquiera escuela profesional sostenida o subvencionada por el Estado, si el nombramiento se hiciere por el Directorio de la Escuela.
-Ningún Diputado o Senador, propietario ni suplente que estén en funciones de propietario puede, durante las sesiones ordinarias o extraordinarias admitir del Ejecutivo comisión remunerada o empleo dependiente o de nombramiento del mismo, salvo que se tratare de un Ministerio de Estado o de una misión diplomática.
-Cuando las Cámaras no se hallaren en sesiones sí podrá el Diputado o Senador aceptar empleo de nombramiento o dependiente del Poder Ejecutivo.
-Dentro y fuera de sesiones, el Diputado o Senador puede libremente aceptar funciones judiciales.
-Pero en todo caso en que aceptare empleo o funciones de otro de los Poderes en los términos antedichos, perderá su asiento en la Cámara, salvo que sea para servir como Jefe en una misión Diplomática.

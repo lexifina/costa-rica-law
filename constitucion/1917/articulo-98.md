@@ -1,1 +1,0 @@
-ARTICULO 98.-El Presidente no podrá salir del territorio nacional mientras ejerza el Poder, ni antes de un año a contar del día en que lo hubiere dejado, salvo en ambos casos con permiso del Senado.Esta prohibición es aplicable al Vicepresidente titular o accidental por el tiempo que desempeñe la Presidencia y por el años siguiente.

@@ -1,1 +1,0 @@
-ARTICULO 53.-Para ejercer el sufragio es preciso que el ciudadano se halle provisto de una cédula personal, que se le dará libre de costo. En la cédula se hará constar, al recibirle el voto, que el ciudadano a quien pertenece ha votado ya en la elección de que se trate.
