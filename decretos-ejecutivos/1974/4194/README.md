@@ -13,3 +13,4 @@ Crea Fondo Revolutivo para Pago de Gastos de Viaje en el MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-10-12 | la propia norma |
+| 2 | 1974-10-12 | SINALEVI (sin norma nombrada) |
