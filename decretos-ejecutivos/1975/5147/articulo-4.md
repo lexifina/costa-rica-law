@@ -1,2 +1,0 @@
-Artículo 4°-El Consejo Agropecuario Nacional, la Oficina de Planificación Sectorial Agropecuaria y el Comité Técnico de Planificación Sectorial Agropecuaria, constituyen una unidad de trabajo. Esta unidad está adscrita al Ministerio de Agricultura y Ganadería, únicamente con el fin de facilitar su administración, sin que ello signifique dependencia.
-Dicha unidad contará con personal y presupuesto propios. El presupuesto debe estar debidamente identificado como un programa y debe ser administrado siguiendo las normas trazadas por el Consejo Agropecuario Nacional.

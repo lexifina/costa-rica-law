@@ -1,1 +1,0 @@
-Artículo 11.-El Director Ejecutivo de la Oficina de Planificación del Sector Agropecuario forma parte de los órganos de alta dirección, coordinación y asesoramiento. Su superior jerárquico es el Ministro de Agricultura y Ganadería.

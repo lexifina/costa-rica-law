@@ -1,1 +1,0 @@
-Artículo 9°-Para el cumplimiento de las funciones señaladas en la Oficina de Planificación Sectorial Agropecuaria estructurará unidades de planificación, coordinación y las otras que se consideren necesarias.
