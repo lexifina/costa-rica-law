@@ -1,0 +1,1 @@
+Artículo 5°-Exonérase del pago de toda clase de impuestos al equipo que adquiera la Municipalidad conforme a esta ley, y queda exento del pago de impuestos, tasas y timbres el documento que se suscriba para garantizar el mencionado empréstito.

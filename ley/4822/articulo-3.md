@@ -1,0 +1,1 @@
+Artículo 3°-La Municipalidad podrá gestionar ese empréstito con instituciones bancarias nacionales o extranjeras, o bien con las compañías interesadas en el suministro del equipo referido, bajo las condiciones establecidas en el artículo 1°.
