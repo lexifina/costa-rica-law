@@ -1,0 +1,1 @@
+Artículo 25.—Aprobación. El presente Reglamento fue aprobado por la Junta Directiva de la Junta de Protección Social de San José, según acuerdo JD 211, artículo V, inciso 6), de la sesión 32, del 10 de setiembre del 2002.

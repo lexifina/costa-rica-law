@@ -1,0 +1,1 @@
+Artículo 22.—Premios prescritos. Los premios disponibles en cada evento deportivo, que se hayan determinado como acertados y que no hayan sido cambiados al finalizar el período de caducidad, se consideran premios prescritos, procediéndose a remitirlos al Instituto Costarricense del Deporte y la Recreación, el cual define el fin que dará a los mismos.

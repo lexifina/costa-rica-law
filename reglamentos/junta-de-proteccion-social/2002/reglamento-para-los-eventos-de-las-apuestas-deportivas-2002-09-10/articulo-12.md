@@ -1,0 +1,1 @@
+Artículo 12.—Acumulación de premios no acertados. Los premios disponibles para cada categoría de premio que no sean acertados por los jugadores en cada jugada, se acumularán para la siguiente jugada en forma general, de manera que el total no acertado se suma a la bolsa total de premios a repartir para la siguiente jugada.

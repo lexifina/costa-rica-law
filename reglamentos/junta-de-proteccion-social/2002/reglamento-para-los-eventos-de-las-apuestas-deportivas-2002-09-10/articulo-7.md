@@ -1,0 +1,1 @@
+Artículo 7º—Acumulación de premios no acertados. Los premios disponibles que no sean acertados por los jugadores en cada jugada, se acumularán para la siguiente jugada en forma general, de manera que el total no acertado se suma a la bolsa total de premios a repartir para la siguiente jugada.
