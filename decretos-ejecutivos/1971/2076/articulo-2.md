@@ -1,0 +1,1 @@
+Artículo 2°.- Esta nueva unidad administrativa se denomina Mogote y su cabecera será la villa de Guayabo, contando además con los poblados siguientes: Rincón de la Cruz, San Jorge, Pueblo Nuevo, Manglar, Barro de olla, San isidro, ese, San Pedro, Horcones, Torno, Limonal. Fincas: Miravalles, Gloria.

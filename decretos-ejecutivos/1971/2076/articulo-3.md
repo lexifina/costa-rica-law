@@ -1,0 +1,1 @@
+Artículo 3°.- El nombre del distrito y el de los poblados señalados en el artículo anterior, solo podrá ser variado si se presentaran conflictos toponímicos previo informe de la Comisión Costarricense de Nomenclatura, creada por ley N° 3535.
