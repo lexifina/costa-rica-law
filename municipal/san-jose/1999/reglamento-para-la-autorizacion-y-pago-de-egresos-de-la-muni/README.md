@@ -14,3 +14,4 @@ Reglamento para la Autorización y Pago de Egresos de la Municipalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-13 | la propia norma |
+| 2 | 2002-05-28 | Reglamento municipal 4 (2002-05-28) |
