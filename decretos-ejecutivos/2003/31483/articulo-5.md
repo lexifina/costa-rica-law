@@ -1,0 +1,5 @@
+Artículo 5º—Se modifican los incisos g) y h) del artículo 12, para que en adelante se lean de la siguiente forma:
+"(…)
+g) Dictar la resolución final de adjudicación, declaratoria de deserción o de infructuosa, en los procedimientos de contratación administrativa de su institución, y suscripción de las formalizaciones contractuales derivadas de dichos procedimientos, en aquellos casos en que correspondiere dicho acto, ello en tanto estas funciones le sean delegadas formalmente por el Ministro del ramo, siguiendo para ello las disposiciones pertinentes de la Ley General de la Administración Pública.
+h) Revisar y autorizar en el sistema automatizado de contratación establecido al efecto, siempre y cuando esta función haya sido delegada, los pedidos originados en adjudicaciones firmes, los cuales deberá firmar únicamente con posterioridad a la aprobación en el mismo sistema automatizado, por parte de la Dirección General de Presupuesto Nacional o de la persona en que ésta delegue dicha función.
+(…)"
