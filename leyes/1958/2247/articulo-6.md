@@ -4,12 +4,11 @@ precisa de la parte del animal en donde se va a poner y la forma o
 dirección en que se va a usar.
 Dicha solicitud podrá presentarse a las Jefaturas Políticas o
 Gobernaciones de Provincias, cuyas oficinas enviarán los atestados
-respectivos al Registro Central para su admisión o rechazo.
-Recibida por el Registro Central la solicitud de inscripción, se
-cotejará con las ya inscritas y tanto en esa oportunidad, como si mediare
-oposición dentro del término que luego se fija, se rechazará la
-inscripción si existiere anteriormente otra igual o con una semejanza que
-pudiera traer confusión.
+respectivos al Registro Central para su admisión o rechazo. Recibida por
+el Registro Central la solicitud de inscripción, se cotejará con las ya
+inscritas y tanto en esa oportunidad, como si mediare oposición dentro
+del término que luego se fija, se rechazará la inscripción si existiere
+anteriormente otra igual o con una semejanza que pudiera traer confusión.
 Caso de que el Registrador no encontrare inconveniente al
 presentarse la solicitud, ordenará publicar un aviso en el Diario Oficial
 por tres veces, con indicación del nombre del solicitante, calidades,
@@ -21,7 +20,5 @@ Contra lo resuelto por el Registro Central cabrán recursos de
 revocatoria y apelación para ante la Sala Civil de la Corte Suprema de
 Justicia, dentro de los ocho días hábiles siguientes, contados desde la
 fecha de depósito de la nota respectiva en la Oficina de Correos.
-De toda resolución firme que dicte el Registro Central admitiendo o
-renovando una marca, enviará copia a las Gobernaciones de Provincia en
-donde se va a usar la marca para que estas oficinas mantengan un Registro
-auxiliar para información de los interesados.
+( El párrafo 5º fue derogado por el artículo 7º de la Ley Nº 7274 de
+10 de diciembre de 1991).

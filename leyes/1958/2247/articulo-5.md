@@ -1,7 +1,1 @@
-Artículo 5º.- La propiedad de la marca o fierro dura quince años a
-partir de la fecha de su inscripción, debiendo los interesados pedir su
-renovación antes del transcurso de ese término. La renovación podrá
-hacerse indefinidamente y por períodos sucesivos de quince años. La
-propiedad de una marca puede ser trasmitida por todos los medios
-permitidos por la ley, debiendo anotarse en el Registro todo cambio de
-propiedad.
+Artículo 5º.- La propiedad de la marca o fierro dura quince años a partir de la fecha de su inscripción, debiendo los interesados pedir su renovación antes del transcurso de ese término. La renovación podrá hacerse indefinidamente y por períodos sucesivos de quince años. La propiedad de una marca puede ser trasmitida por todos los medios permitidos por la ley, debiendo anotarse en el Registro todo cambio de propiedad.

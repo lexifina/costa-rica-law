@@ -1,4 +1,2 @@
-Artículo 9º.- Esta ley rige desde el día de su publicación.
-Transitorio.- Los dueños de marcas de ganado, inscritas de acuerdo
-con la ley que se deroga, gozarán de un término de un año para renovar su
-inscripción de acuerdo con la presente ley.
+Artículo 9º.- Esta ley rige a partir del 1º de enero de 1959.
+(Así reformado por el artículo 1º de la Ley Nº 2339 de 22 de abril de 1959).
