@@ -2,8 +2,9 @@ Artículo 7°—Funciones del Presidente y Vicepresidente: El Presidente del Con
 a) Presidir, abrir y cerrar las sesiones, las que podrá suspender en cualquier momento por causa justificada.
 b) Velar porque el Consejo cumpla las leyes y reglamentos relativos a las funciones y objetivos del PIMA,
 c) Fijar directrices generales e impartir instrucciones en cuanto a los aspectos de forma de las labores del Consejo.
-ch) Confeccionar la orden del día con el apoyo del Gerente, para lo cual deberá considerar las peticiones de los demás miembros, formuladas al menos con tres días de antelación.
+ch) Confeccionar el orden del día con el apoyo del Secretario del Consejo Directivo para lo cual deberá considerar las peticiones de los demás miembros formuladas al menos con tres días de antelación.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 638 de 28 de noviembre de 1985, publicada en La Gaceta N° 58 de 25 de marzo de 1986.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 688 de 28 de mayo de 1986, publicada en La Colección de Leyes y Decretos de 1986, II Semestre, Tomos II y III, p. 52.)
 d) Convocar a sesiones extraordinarias.
 e) Conceder la palabra a los Directores, y demás asistentes a sesiones; en el orden que lo soliciten, y llamar al orden cuando el caso lo amerite.
 f) Someter a votación, computar los votos y declarar la aprobación o rechazo de los asuntos sometidos a conocimiento del Consejo.

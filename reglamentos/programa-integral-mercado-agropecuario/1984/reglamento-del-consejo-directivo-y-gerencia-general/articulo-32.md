@@ -5,6 +5,7 @@ c) Comunicar a quien corresponda las resoluciones y acuerdos firmes del Consejo 
 ch) Llevar un expediente de cada sesión que incluirá el orden del día, los documentos y propuestas sometidos y la transcripción del acta.
 d) Formar parte de las comisiones de trabajo que se integren en la Institución acerca de las materias de su competencia y por acuerdo del Consejo Directivo.
 e) Extender certificaciones de los acuerdos y documentos que consten en sus archivos y en las actas del Consejo Directivo.
-f) DEROGADO por la Sesión Ordinaria N° 638 de 28 de noviembre de 1985, publicada en La Gaceta N° 58 de 25 de marzo de 1986.)
+f) Colaborar con el Presidente en la elaboración del orden del día.
 g) Encargarse de los actos preparatorios para la celebración de sesiones.
-h) Cualquier otra que le establezca el Consejo Directivo, los reglamentos o la ley.
+h) Verificar de previo si los asuntos pendientes de conocimiento del Consejo Directivo están debidamente planteados.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 688 de 28 de mayo de 1986, publicada en La Colección de Leyes y Decretos de 1986, II Semestre, Tomos II y III, p. 52, la cual reformó los incisos f) y h) del presente artículo.)
