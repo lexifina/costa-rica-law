@@ -1,0 +1,1 @@
+Artículo 3°-Las entidades bancarias privadas, además de los análisis de crédito correspondientes, deberán tener especial cuidado en verificar que efectivamente, sus clientes destinen los recursos a los programas arriba indicados y que no se produzcan desvíos de fondos. Para tal fin, deberán crear mecanismos de comprobación e inspección apropiados.

@@ -1,0 +1,1 @@
+Artículo 4°-Para verificar que las entidades bancarias privadas cumplan lo establecido en el presente decreto, estas entidades estarán sujetas a las regulaciones y supervisión que al efecto emita y realice la Superintendencia General de Entidades Financieras.
