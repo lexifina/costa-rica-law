@@ -13,3 +13,4 @@ Cesa Administración del Relleno Sanitario Río Azul por CNE y Ministerio de Sal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-20 | la propia norma |
+| 2 | 2001-03-09 | Decreto Ejecutivo 29400 (2001-03-09) |
