@@ -1,0 +1,1 @@
+Artículo 4º—Para los próximos 5 años, se establecerá una meta de al menos 30.000 hectáreas de plantaciones forestales, a razón de 6.000 mil hectáreas por año. Esta meta estará sujeta a la asignación presupuestaria para el PPSA.

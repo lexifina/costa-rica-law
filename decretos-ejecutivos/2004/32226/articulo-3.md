@@ -1,0 +1,1 @@
+Artículo 3º—Los contratos de pago de Servicios Ambientales formalizados con el Estado durante el año 2004 y que al cierre fiscal de ese año, no hayan recibido el pago respectivo, serán pagados en el año 2005 con los montos establecidos en el Decreto Ejecutivo Nº 31767-MINAE.

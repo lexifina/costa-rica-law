@@ -1,0 +1,1 @@
+Artículo 8º—El plazo para la presentación de presolicitudes para el pago de servicios ambientales en el año dos mil cinco vence: el treinta y uno de marzo del dos mil cinco, en el caso de reforestación y sistemas agroforestales y treinta y uno de mayo del dos mil cinco para protección.
