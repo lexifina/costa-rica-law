@@ -1,0 +1,1 @@
+Transitorio VII.—Además de lo estipulado en el transitorio anterior, el Poder Ejecutivo dispondrá de un plazo máximo de noventa días a partir de la publicación de esta Ley, para presentar la reglamentación correspondiente de la Ley Orgánica del Ministerio de Economía, Industria y Comercio, de conformidad con las disposiciones establecidas en la presente Ley.

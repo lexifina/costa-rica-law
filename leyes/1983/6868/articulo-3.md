@@ -42,3 +42,6 @@ programas actividades de capacitación en el sector agropecuario; para
 esto, deberá destinar una suma mínima del quince por ciento (15%) de sus
 presupuestos ordinarios y extraordinarios. Estos programas se ejecutarán
 en coordinación con las instituciones del sector agropecuario)
+j) Brindar, directamente o por subcontratación, asistencia técnica, programas de formación, consultoría y capacitación para mejorar la competitividad de las PYMES.
+k) Diseñar, elaborar y ejecutar programas de capacitación y formación profesional, tendientes a satisfacer las necesidades del sector empresarial formal, o bien procurar su formalización.
+(Así adicionados los incisos j) y k) por el inciso a) del artículo 32 de la Ley N° 8262 de 2 de mayo del 2002, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas)

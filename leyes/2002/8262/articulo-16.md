@@ -1,0 +1,1 @@
+Artículo 16.—El aporte del Estado a un proyecto consistirá en otorgar apoyo financiero no reembolsable por un monto máximo hasta del ochenta por ciento (80%) del costo total de dicho proyecto, programa, acción o plan, con base en los criterios técnicos emitidos por el CONICIT u otros entes técnicos competentes que la Comisión determine.

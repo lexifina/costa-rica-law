@@ -1,5 +1,2 @@
-Artículos 21.- El Instituto Nacional de Aprendizaje y la Comisión
-Nacional de Préstamos para Educación (CONAPE) podrán otorgar préstamos y
-ayudas económicas a personas de escasos recursos, participantes en los
-cursos que imparta la institución, de acuerdo con los reglamentos que al
-efecto dicten sus juntas directivas.
+Artículo 21.—El Instituto Nacional de Aprendizaje podrá otorgar préstamos y ayudas a personas de escasos recursos participantes en los cursos que imparta la Institución. En igual forma, podrá subcontratar asistencia técnica en beneficio de las pequeñas y medianas empresas que la requieran y que el Instituto Nacional de Aprendizaje, por la especialización de la asistencia requerida, no pueda satisfacer en el corto plazo.
+(Así reformado por el inciso c) del artículo 32 de la Ley N° 8262 de 2 de mayo del 2002, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas)

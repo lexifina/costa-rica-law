@@ -1,0 +1,1 @@
+Transitorio XI.—Conforme a lo dispuesto en el artículo 20 de esta Ley, en el plazo prorrogable de seis meses se procederá a realizar las reformas correspondientes al Reglamento General de Contratación Administrativa, para la aplicabilidad de las disposiciones de en ese artículo.

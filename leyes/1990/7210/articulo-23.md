@@ -1,9 +1,2 @@
-ARTÍCULO 23.- Las empresas nacionales que provean a las empresas
-establecidas en las Zonas Francas, servicios, materias primas nacionales,
-productos, partes o componentes, parcial o totalmente elaborados en el
-país, están exentas del pago de impuestos de ventas y de consumo en estas
-transacciones.
-Asimismo, sus ventas a las empresas en el Régimen de Zona Franca se
-considerarán como exportaciones, por lo que si tuvieran derecho al
-Certificado de Abono Tributario u otro incentivo a la exportación, podrán
-hacerlo efectivo en relación con el monto vendido.
+Artículo 23.—Las empresas nacionales que provean, a las empresas establecidas en las Zonas Francas, servicios, materias primas nacionales, productos, partes o componentes, parcial o totalmente elaborados en el país, en estas transacciones no deberán cobrar ni retener el impuesto de ventas ni el selectivo de consumo. Únicamente los proveedores nacionales deberán registrar y consignar, en la declaración del impuesto respectivo, el monto de ventas exentas, sea este de ventas o de consumo.
+(Así reformado por el artículo 33 de la Ley N° 8262 de 2 de mayo del 2002, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas)

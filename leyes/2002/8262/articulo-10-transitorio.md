@@ -1,0 +1,1 @@
+Transitorio X.—De conformidad con lo dispuesto en el capítulo IV de la presente Ley, se otorgará al CONICIT un plazo de seis meses para que los recursos financieros, derechos y activos que le hayan sido asignados de conformidad con el artículo 13 de esta Ley, sean destinados según con las disposiciones de ese capítulo.

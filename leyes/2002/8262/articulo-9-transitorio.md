@@ -1,0 +1,1 @@
+Transitorio IX.—La DIGEPYME , atendiendo los lineamientos del MEIC y los emanados del Consejo Asesor Mixto PYME, formulará la estrategia y presentará un documento de trabajo, a más tardar tres meses después de la sesión del Consejo en la cual se establezcan los lineamientos de trabajo.
