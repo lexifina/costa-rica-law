@@ -1,0 +1,1 @@
+Articulo 16.—De la acreditación de gastos previos. Las oficinas encargadas de la formalización, con base en el informe del notario de que el documento ha sido debidamente otorgado, procederán de inmediato a acreditarle en la cuenta abierta al efecto por este, el importe de los gastos previamente aprobados y requeridos para la inscripción del documento.

@@ -1,0 +1,1 @@
+Articulo 23.—De la evaluación de los notarios. La gerencia deberá presentar a conocimiento de la junta directiva, durante los meses de enero y julio de cada año, un informe sobre el resultado de la evaluación de la gestión que realizan los notarios del Banco.

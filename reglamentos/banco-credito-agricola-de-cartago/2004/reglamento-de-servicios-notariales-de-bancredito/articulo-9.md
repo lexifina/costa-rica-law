@@ -1,0 +1,1 @@
+Articulo 9°—Formatos de escrituras. La Accesoria Legal del Banco deberá dar respaldo a las oficinas encargadas del control, aplicación y dirección del notariado, para que estas mantengan actualizados y uniformados los formatos a conveniencia del Banco, en la confección de documentos que deberán tramitar los notarios.

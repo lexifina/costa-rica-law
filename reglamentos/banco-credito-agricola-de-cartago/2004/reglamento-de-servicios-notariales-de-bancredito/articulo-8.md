@@ -1,0 +1,4 @@
+CAPITULO SEGUNDO
+Obligaciones y prohibiciones de los notarios
+Articulo 8°—Responsabilidad del notario. El notario será responsable ante el Banco, por cualquier daño o perjuicio que le ocasione con motivo de su prestación u omisión de servicios que como notario haya desplegado para este o sus clientes, tales como la falta de presentación oportuna de escrituras al Registro Nacional o errores y defectos atribuibles al notario, que no hubieren sido advertidos o subsanados por el.
+Independientemente del Régimen Disciplinario establecido en este Reglamento, el Banco puede instaurar las acciones y diligencias que estime convenientes ante los órganos administrativos o jurisdiccionales correspondientes. Dichas acciones serán ejecutadas por la Asesoría Jurídica del Banco con instrucciones de la Gerencia General, previa documentación del caso por parte de las dependencias encargadas del control de la labor de los notarios.

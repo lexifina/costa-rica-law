@@ -1,0 +1,5 @@
+Articulo 13.—De la ausencia temporal del notario. Cuando un notario tenga que ausentarse de su oficina por cualquier motivo, y por un plazo que afecte el cumplimiento del objeto de su contrato, deberá comunicarlo de forma previa y por escrito al Banco, plazo en el que se le suspenderá la entrega de nuevas escrituras, al ser temporalmente excluido del rol por el lapso de su ausencia.
+Si la ausencia se prolonga mas de dos semanas, el notario deberá designar a otro notario el seguimiento de escrituras pendientes de inscripción a su cargo.
+Si la ausencia del notario se prolonga por mas de un mes, deberá pedir autorización a la Gerencia General, con una anticipación de al menos cinco días hábiles.
+Los permisos en ningún caso podrán ser renovados, ni exceder el plazo de 6 meses.
+Si la ausencia del notario se debe a motives de salud, estudio o nombramiento en cargo público legalmente incompatible con su labor, el periodo podrá ser ampliado por un periodo mayor, ajuicio de la Gerencia General.
