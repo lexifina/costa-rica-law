@@ -17,3 +17,4 @@ Reglamento del Consejo Nacional de Salarios
 | 2 | 1997-01-31 | Decreto Ejecutivo 25922 (1997-01-31) |
 | 3 | 1998-08-12 | Decreto Ejecutivo 27306 (1998-08-12) |
 | 4 | 2001-06-21 | Decreto Ejecutivo 29630 (2001-06-21) |
+| 5 | 2002-04-01 | Decreto Ejecutivo 30265 (2002-04-01) |
