@@ -1,0 +1,2 @@
+Artículo 28.—Trámite en casos de accidente. En caso de accidente, el funcionario autorizado que conduce un vehículo de la Institución no deberá aceptar arreglos extrajudiciales, por lo que se limitará a indicarle al particular que se apersone o comunique con el Departamento de Servicios Generales.
+Tampoco deberá hacer manifestaciones a ninguna otra autoridad que no sea la judicial, salvo la información que le solicite la autoridad de Tránsito.

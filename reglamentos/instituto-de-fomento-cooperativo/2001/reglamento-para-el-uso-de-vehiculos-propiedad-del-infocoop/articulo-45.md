@@ -1,0 +1,1 @@
+Artículo 45.—Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento, a las atribuciones y jurisdicción de la Jefatura o Encargado del Departamento de Servicios Generales, será resuelta en última instancia por la Junta Directiva.

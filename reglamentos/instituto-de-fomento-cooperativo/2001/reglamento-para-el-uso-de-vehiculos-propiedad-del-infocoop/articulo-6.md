@@ -1,0 +1,2 @@
+Artículo 6º—Los usuarios de los vehículos de uso discrecional en caso de accidente, robo y otros problemas deberán reportarlo al Jefe del Departamento de Servicios Generales y deberá cumplir con los requisitos establecidos en el artículo 17 de este Reglamento.
+Para los controles respectivos entregarán las copias de las facturas de combustible, lubricantes y reparaciones efectuadas fuera de la institución, al Departamento de Servicios Generales.

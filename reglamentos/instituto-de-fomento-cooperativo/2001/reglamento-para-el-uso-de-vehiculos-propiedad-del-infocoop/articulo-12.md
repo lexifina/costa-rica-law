@@ -1,0 +1,1 @@
+Artículo 12.—Para lograr el mayor aprovechamiento de los vehículos de uso administrativo, podrán agruparse en el mismo viaje, cuando las circunstancias lo permitan, a los funcionarios que requieran viajar hacia el mismo sitio o ruta. En estos casos se dará aviso oportunamente a los interesados para lograr una adecuada coordinación de los viajes.

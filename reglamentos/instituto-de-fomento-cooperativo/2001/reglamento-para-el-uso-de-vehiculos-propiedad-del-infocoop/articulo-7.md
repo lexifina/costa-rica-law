@@ -1,0 +1,1 @@
+Artículo 7º—Vehículos de uso administrativo. Los vehículos de uso administrativos son todos los que se mantienen bajo la custodia y administración del Departamento de Servicios Generales, para solventar las necesidades de transporte institucional.

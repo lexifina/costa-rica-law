@@ -1,0 +1,1 @@
+Artículo 35.—El Departamento de Servicios Generales, deberá llevar al día un registro de los funcionarios que conducen los vehículos de la Institución, debiendo incluirse dentro de otras cosas: copia licencia al día y carné, copia de cédula de identidad y toda otra documentación relevante.

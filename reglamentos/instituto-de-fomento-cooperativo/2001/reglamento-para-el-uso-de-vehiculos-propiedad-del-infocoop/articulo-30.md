@@ -1,0 +1,3 @@
+Artículo 30.—Cobertura de accidentes menores. El INFOCOOP con el propósito de incentivar a los funcionarios que conducen vehículos en misión de trabajo, asumirá el costo de las reparaciones que se originen en los casos de accidentes menores, entendiéndose éstos como: raspones, golpes leves, abolladuras y otros de esta naturaleza y en cuyos casos las autoridades de tránsito no levante parte alguno y se compruebe que no existió negligencia por parte del conductor.
+Los daños por considerar son hasta por el monto correspondiente al tope del deducible respectivo.
+El funcionario por su parte está en la obligación de presentar un informe con el detalle de lo sucedido al Departamento de Servicios Generales, con copia la Dirección Ejecutiva.

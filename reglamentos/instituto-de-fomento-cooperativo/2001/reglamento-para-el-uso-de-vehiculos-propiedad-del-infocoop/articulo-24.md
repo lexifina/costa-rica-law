@@ -1,0 +1,1 @@
+Artículo 24.—Una vez recibida y aprobada la solicitud por parte del Departamento de Servicios Generales, este anotará el número de placa del vehículo asignado y la trasladará a los vigilantes para los trámites de salida.

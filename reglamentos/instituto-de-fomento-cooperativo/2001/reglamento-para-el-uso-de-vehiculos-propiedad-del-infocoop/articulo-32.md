@@ -1,0 +1,2 @@
+Artículo 32.—Asesoría legal. El Departamento Legal del INFOCOOP, deberá brindar total asesoramiento legal a los servicios que sufran un accidente con vehículos de la Institución.
+Su asesoramiento dará inicio en el momento en que se produzca el accidente y durante todo el proceso por seguir. Para tal efecto deberá asignarse un abogado que acompañe al funcionario en el momento que tenga que dar las declaraciones que se le soliciten y brindar el apoyo que se requiera desde el inicio hasta finiquitar el caso.

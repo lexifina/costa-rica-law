@@ -1,0 +1,6 @@
+Artículo 40.—Todo funcionario autorizado para conducir vehículos del INFOCOOP, debe cumplir con las siguientes disposiciones:
+a. Conducir responsablemente.
+b. Reportar cualquier deficiencia, desperfecto mecánico o de carrocería. La denuncia deberá hacerla inmediatamente al concluir la gira o durante la misma si la gravedad lo amerita, al Departamento de Servicios Generales.
+c. Cumplir con todas las obligaciones que establece la Ley de Tránsito por Vías Públicas Terrestres, el presente Reglamento y el Manual sobre Normas Técnicas de Control Interno Relativas al Uso Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República.
+d. Informar por la vía más expedita sobre cualquier accidente o colisión en que se haya visto involucrado, acatando lo estipulado en el Capítulo VI "DE LOS ACCIDENTES DE TRANSITO EN QUE INTERVIENEN LOS VEHICULOS DEL INFOCOOP".
+e. Llenar y revisar, junto con el funcionario designado por el Jefe del Departamento de Servicios Generales, el formulario editado para el control del estado de los vehículos, sus accesorios e implementos, verificando que se cumpla con lo que dispone la Sección V de la Ley de Tránsito; tanto a la entrada como en la salida del vehículo.
