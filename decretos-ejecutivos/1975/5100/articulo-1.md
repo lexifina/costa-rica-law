@@ -9,4 +9,5 @@ Considerando:
 Por tanto,
 DECRETAN:
 CAPITULO PRIMERO
+(NOTA DE SINALEVI: Mediante el decreto ejecutivo N° 8486 del 27 de abril de 1978, se establece un Subsistema Sectorial Industrial y el artículo 14 indica que se modifica el presente decreto).
 Artículo 1°-Se establece un Sistema Sectorial Industrial, que tendrá como objetivo cumplir con lo establecido por la Ley de Planificación Nacional N° 5525 del 2 de mayo de 1974, con el Plan Nacional de Desarrollo y con las disposiciones que emanen del Ministerio de Economía, Industria y Comercio y de la Oficina de Planificación Nacional y Política Económica, en lo que respecta al sector industrial.

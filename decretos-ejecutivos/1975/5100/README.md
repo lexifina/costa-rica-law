@@ -15,3 +15,4 @@ Establece Sistema Sectorial Industrial
 | --- | --- | --- |
 | 1 | 1975-08-22 | la propia norma |
 | 2 | 1977-11-04 | Decreto Ejecutivo 7663 (1977-11-04) |
+| 3 | 1978-04-27 | Decreto Ejecutivo 8486 (1978-04-27) |
