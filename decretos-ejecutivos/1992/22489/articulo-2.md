@@ -1,0 +1,1 @@
+Artículo 2º.- Inscribirá igualmente, las prórrogas, cesiones, modificaciones y cancelaciones y los gravámenes hipotecarios que se constituyan; así como cualquier otro acto o contrato que afecte, limite, modifique o extinga los derechos derivados de las concesiones del Proyecto Turístico de Golfo Papagayo.

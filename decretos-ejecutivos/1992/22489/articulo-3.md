@@ -1,0 +1,1 @@
+Artículo 3º.- Conforme con lo anterior, los gravámenes que se puedan establecer, cuando otorguen créditos los bancos del Sistema Bancario Nacional y las instituciones del Estado, serán hipotecarios en el grado que corresponda, siguiendo el mismo régimen jurídico-registral fijado para la inscripción y gravámenes de los bienes inmuebles.
