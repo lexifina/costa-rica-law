@@ -15,3 +15,4 @@ Reglamento del Consejo Nacional de Adopciones y de los Consejos Regionales de Ad
 | --- | --- | --- |
 | 1 | 1997-03-03 | la propia norma |
 | 2 | 1997-11-17 | Reglamento 90 (1997-11-17) |
+| 3 | 1999-10-11 | Reglamento 87 (1999-10-11) |
