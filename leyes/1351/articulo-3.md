@@ -1,0 +1,2 @@
+Publicaciones del Banco:
+Artículo 3º.- El Banco Central deberá publicar estados mensuales del movimiento de divisas y de la situación de la balanza de pagos del país. Deberá también publicar en "La Gaceta", cuando menos semanalmente, un detalle de las autorizaciones concedidas de acuerdo con la presente ley, mencionando en cada caso, el nombre de las personas a quienes se otorgaron autorizaciones para la compra de divisas, el monto de dichas autorizaciones e indicación del artículo o servicio a cuyo pago van a ser aplicadas las divisas concedidas.
