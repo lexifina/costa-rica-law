@@ -15,3 +15,4 @@ Crea Comisión Nacional de la Cebolla
 | --- | --- | --- |
 | 1 | 1980-12-19 | la propia norma |
 | 2 | 1982-03-03 | Decreto Ejecutivo 13465 (1982-03-03) |
+| 3 | 1992-08-21 | Decreto Ejecutivo 21574 (1992-08-21) |
