@@ -1,0 +1,1 @@
+Artículo 19.—De la modificación del período de licencia por maternidad. Si el ser procreado naciere sin vida, el período original de la licencia se modificará otorgando una nueva licencia hasta por 45 días a partir de la fecha del parto o fecha de defunción del neonato.

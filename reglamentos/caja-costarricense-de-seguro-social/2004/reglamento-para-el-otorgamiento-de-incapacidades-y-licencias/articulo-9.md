@@ -1,0 +1,4 @@
+Artículo 9º—Anulado.
+De los plazos máximos de incapacidades. Los plazos máximos de incapacidad que pueden ser otorgados serán de hasta por un año (365 días), mismo que podrá ser ampliado por las respectivas Comisiones Médicas Locales Evaluadoras de Incapacidades según se señala en el artículo 10° de este Reglamento.
+El cómputo de días incapacidad, sean estos continuos o discontinuos para el plazo máximo de 365 días, se realizará dentro de un período de dos años (730 días) incluida la nueva incapacidad que vaya a otorgarse. Completado el plazo máximo indicado, más la prórroga en los casos en que ésta haya sido autorizada, el otorgamiento de nuevas incapacidades con derecho a subsidio procede únicamente cuando el trabajador se haya reincorporado a su actividad laboral.
+En este último caso, el pago de subsidios procede solo cuando haya transcurrido el plazo de un año calendario, desde el último día pagado.
