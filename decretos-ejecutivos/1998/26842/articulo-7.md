@@ -1,0 +1,1 @@
+Artículo 7°—Modifiqúese el artículo 23 del Decreto Ejecutivo No 11217-MEIC para que se lea correctamente artículo 455 del Código Procesal Civil en sustitución del artículo 691 del Código de Procedimientos Civiles.

@@ -1,0 +1,2 @@
+Artículo 5°—Modifiqúese el artículo 16 del Decreto Ejecutivo 11217-MEIC cuyo texto dirá:
+"Artículo 16.—En el caso de ser reservaciones individuales, la cancelación de las reservaciones podrá efectuarse sin que la empresa tenga derecho a indemnización o a retención del pago anticipado, si se hace por escrito y al menos con cuarenta y ocho horas de anticipación a la fecha fijada para la llegada. De no realizarse la cancelación de la reservación en dicho plazo la empresa sólo tendrá derecho a retener como indemnización, el equivalente a una tarifa diaria de hospedaje"
