@@ -1,0 +1,1 @@
+ART. 13.-La instrucción especial literaria comprende las siguientes asignaturas: psicología, lógica, ‚tica, estática, latín, griego, literatura española, literaturas comparadas, que dan opción al título de Bachiller en letras; y además: filosofía de las artes y psicología, que dan opción al título de Licenciado en letras.

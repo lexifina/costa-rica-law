@@ -1,0 +1,1 @@
+ART. 27.-La facultad de Leyes comprende los estudios siguientes: 1°. Filosofía del derecho. -2°. Derecho civil. -3°. Derecho penal. -4°. Derecho mercantil. - 5°. Procedimientos judiciales. -6° Derecho constitucional. -7°. Derecho internacional. -8°. Derecho administrativo. -9°. Economía política. - 10§. Sociología. - 11°.- Legislación comparada.

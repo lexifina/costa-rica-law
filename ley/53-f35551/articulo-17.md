@@ -1,0 +1,1 @@
+ART. 17.-Las asignaturas previas al título de perito mercantil, son las siguientes: estadística, geografía mercantil, teneduría de libros y contabilidad, estilo y correspondencia comercial, inglés, francés y alemán.

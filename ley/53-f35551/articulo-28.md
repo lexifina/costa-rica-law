@@ -1,0 +1,1 @@
+ART. 28.-El Bachiller en Letras que haya cursado, con aprobación, las asignaturas del anterior artículo, marcadas con los números 1°., 2°., 3°., 4°., 5°., 6°., 7°., y 8°., puede optar al grado de Licenciado en Leyes.
