@@ -1,1 +1,0 @@
-Artículo 37.—La modalidad de financiamiento para cooperativas en crisis se regirá por el presente reglamento, así como por las disposiciones especiales de los artículos 38 al 42 de éste y que a continuación se señalan.

@@ -1,1 +1,0 @@
-Artículo 34.—El INFOCOOP cobrará una comisión desde el 1% hasta el 3% anual por períodos anticipados no mayores de un año, sobre los saldos anuales vigentes, entendiéndose como tales aquellos que se produzcan desde el día en que el aval se otorgue hasta el día en que la cooperativa demuestre a satisfacción del INFOCOOP el pago correspondiente.
