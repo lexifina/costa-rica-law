@@ -1,0 +1,1 @@
+Artículo 3°—Se instruye a todas las instituciones públicas, tanto del sector centralizado como del descentralizado, y en especial a los centros de enseñanza, realizar actividades de promoción, educación, y divulgación en el marco de la Semana Nacional de los Derechos Humanos.
