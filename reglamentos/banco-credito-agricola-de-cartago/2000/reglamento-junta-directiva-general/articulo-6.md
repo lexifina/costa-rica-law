@@ -1,0 +1,1 @@
+Artículo 6º—Es obligación de los miembros de la junta, así como de los funcionarios que deben asistir a las sesiones, permanecer en la sesión durante todo el desarrollo de ésta. Ninguno de los asistentes podrá retirarse de la sesión si no es por motivo plenamente justificado, y a juicio de quien presida, en cuyo caso deberá constar en actas el período de ausencia correspondiente.

@@ -1,0 +1,7 @@
+CAPÍTULO VI
+De las actas
+Artículo 18.—De cada sesión de Junta Directiva se levantará un acta, en la cual se consignarán de modo general las consideraciones que justifiquen los acuerdos o resoluciones, los votos disidentes de los señores miembros de junta directiva, y cualquier otra manifestación de la cual se solicite dejar constancia por parte de su manifestante.
+En el acta igualmente se consignará el retiro del recinto de sesiones, de cualquiera de los concurrentes a la sesión de junta directiva, cuando por razones o circunstancias especiales este hecho ocurra.
+También se consignará el ingreso y retiro del recinto de sesiones de cualquiera de los invitados especiales llamados al momento de conocerse un punto específico de agenda.
+En cada acta se dejará consignado el número de sesión correspondiente con expresa indicación si se trata de una sesión ordinaria o de una sesión extraordinaria, la hora de inicio y la hora de conclusión de la respectiva sesión, la fecha y lugar en el cual se ha celebrado esa sesión, la nómina de los señores miembros de Junta Directiva presentes al inicio de la sesión y las circunstancias de ausencia de aquellos que no concurren, así como la nómina del restante personal del banco participante y presente en forma ordinaria en la respectiva sesión de Junta Directiva.
+La nómina de las sesiones y la redacción de las actas estarán a cargo del jefe de la Secretaría general de Junta directiva, quien asistirá en forma obligatoria a todas las sesiones salvo causa justificada.

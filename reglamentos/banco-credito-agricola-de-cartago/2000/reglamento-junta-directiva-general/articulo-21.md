@@ -1,0 +1,1 @@
+Artículo 21.—La secretaría atenderá todo lo relacionado con la Junta Directiva General. El jefe asistirá a todas las sesiones, salvo a las privadas a que se refiere el párrafo segundo del artículo 8º, redactará las actas en asocio con los empleados de la unidad y hará las comunicaciones de las resoluciones de la Junta Directiva que le correspon

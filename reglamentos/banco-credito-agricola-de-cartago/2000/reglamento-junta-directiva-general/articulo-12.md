@@ -1,0 +1,1 @@
+Artículo 12.—La Junta Directiva efectuará como máximo por mes calendario y en forma remunerada, el número de sesiones ordinarias y extraordinarias que indique la normativa vigente. Sin remuneración, podrá sesionar las veces que la misma junta disponga.

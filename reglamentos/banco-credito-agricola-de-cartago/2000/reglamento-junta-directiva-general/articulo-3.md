@@ -1,0 +1,3 @@
+Artículo 3º—El Presidente de la Junta Directiva tendrá las atribuciones, facultades y deberes prescritos por las leyes de la República.
+En caso de ausencia o impedimento transitorio del Presidente de la Junta directiva, será reemplazado por el vicepresidente quien, en tal evento, ejercerá con iguales atribuciones, facultades y deberes que aquel.
+Cuando en alguna sesión por cualquier motivo, causa, razón o circunstancia, el Presidente y el Vicepresidente de la Junta Directiva estuvieren ausentes o impedidos al ejercicio de su cargo, los restantes miembros de Junta Directiva nombrarán dentro de ellos a cualquiera otro como presidente Ad Hoc.
