@@ -9,7 +9,7 @@ Considerando:
 4°—Que habiendo sido efectuado el procedimiento administrativo correspondiente, y con base en los resultados del mismo, este Ministerio de Obras Públicas y Transportes determinó la remoción de los miembros de la Junta de Administración Portuaria del Muelle de Golfito, así como del señorAdministrador del referido Muelle.
 5°—Que el funcionamiento de la Junta de Administración Portuaria del Muelle de Golfíto, se encuentra regulado mediante el decreto ejecutivo N° 21965- MOPT del 10 de febrero de 1993, cuerpo normativo que contiene disposiciones improcedentes, por lo que lo pertinente es su derogatoria.
 6°—Que resulta absolutamente necesario, en razón del interés público sopesante, determinar las medidas inmediatas de solución, a efecto de mantener la debida operación y administración del referido Muelle. Por tanto,
-Decretan:
+DECRETAN:
 Artículo 1°—Conformar una Junta Administradora del Muelle de Golfito, adscrita al Ministerio de Obras Públicas y Transportes, constituyéndose este último en el Órgano Superior en la administración del Muelle y con las facultades suficientes para fijar las reglas y principios rectores del funcionamiento de la Junta, la cual estará integrada por:
 a) El Director de la División de Transportes del Ministerio de Obras Públicas y Transportes o su delegado, quien la presidirá.
 b) Dos profesionales de ese Ministerio, preferiblemente con experiencia en transporte marítimo, designados por el Ministro.

@@ -15,3 +15,4 @@ Conforma Junta Administradora del Muelle de Golfito adscrita al MOPT
 | --- | --- | --- |
 | 1 | 1995-05-26 | la propia norma |
 | 2 | 1998-07-23 | Decreto Ejecutivo 27294 (1998-07-23) |
+| 3 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |
