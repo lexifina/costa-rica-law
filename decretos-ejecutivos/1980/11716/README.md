@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicio de la Presidencia de la Repúbl
 | --- | --- | --- |
 | 1 | 1980-07-28 | la propia norma |
 | 2 | 1996-01-09 | Decreto Ejecutivo 24983 (1996-01-09) |
+| 3 | 2005-01-17 | Decreto Ejecutivo 32231 (2005-01-17) |

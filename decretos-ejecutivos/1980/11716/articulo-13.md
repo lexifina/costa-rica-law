@@ -21,3 +21,6 @@ q) Prestar su colaboración a las comisiones y subcomisiones de la seguridad e h
 r) No sobrepasar los límites de los descansos entre jornadas destinadas a tomar refrigerios, alimentación, etc., lo cual será calificado como abandono del servicio.
 s) Marcar la tarjeta de control de asistencia a la hora de entrada y salida, o registrar su asistencia por cualquier otro medio idóneo que se establezca.
 t) Velar porque la buena imagen de la Institución no se deteriore y no comprometerla con comportamientos inmorales o inadecuados, aun fuera de las horas de labor.
+u) Portar en todo momento y en forma visible el Carné de Identificación, mientras permanece en las instalaciones de estas dependencias.
+El carné será facilitado sin costo alguno, por la Presidencia de la República o el Ministerio de la Presidencia; en caso de daños, extravío o destrucción del mismo, será imputable al servidor, el cual deberá cubrir su valor.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 32231 del 17 de enero del 2005)
