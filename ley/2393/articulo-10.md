@@ -1,0 +1,1 @@
+Artículo 10.- Establecida en forma la demanda, se procederá de acuerdo con las disposiciones establecidas por el código de Procedimientos Civiles para los juicios ejecutivos, con las modificaciones que a continuación se expresan.

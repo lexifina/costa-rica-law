@@ -1,0 +1,1 @@
+Artículo 2º.- La Oficina de Cobros contará con el personal administrativo que requieran las necesidades del servicios. Esta Oficina atenderá la organización del cobro de impuesto y ejercerá inmediata vigilancia sobre el cuerpo de Fiscales Específicos de que habla el artículo siguiente.
