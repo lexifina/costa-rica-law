@@ -26,3 +26,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 11 | 1999-03-25 | SINALEVI (sin norma nombrada) |
 | 12 | 2000-01-13 | SINALEVI (sin norma nombrada) |
 | 13 | 2000-01-27 | SINALEVI (sin norma nombrada) |
+| 14 | 2000-09-28 | Reglamento 7482 (2000-09-28) |
