@@ -13,3 +13,4 @@ Modificación Presupuestaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-09 | la propia norma |
+| 2 | 1996-03-09 | SINALEVI (sin norma nombrada) |
