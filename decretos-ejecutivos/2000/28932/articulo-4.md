@@ -1,0 +1,1 @@
+Articulo 4°—Con el fin de facilitar al comité la realización de sus funciones, se le autoriza para gestionar por medio del Ministerio del Ambiente y Energía, el apoyo de organizaciones nacionales e internacionales.

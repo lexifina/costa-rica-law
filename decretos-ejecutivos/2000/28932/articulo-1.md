@@ -1,0 +1,14 @@
+N° 28932- MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+En uso de las facultades conferidas en los incisos 3) y 18) articulo 140 de la Constitución Política.
+Considerando:
+1°—Que de conformidad con la Ley de Biodiversidad, el país si divide en diversas Áreas de Conservación, que tienen a su cargo la administración y manejo de las áreas silvestres protegidas y de los recursos forestales y de vida silvestre.
+2°—Que las Áreas de Conservación conforman el Sistema Nacional de Áreas de Conservación, con la finalidad de darle unidad y coherencia al desarrollo de las políticas y estrategias nacionales sobre esta materia.
+3°—Que de conformidad con la Ley Orgánica del Ambiente y la Ley de Biodiversidad, e! Ministerio del Ambiente y Energía debe procurar la mayor participación de la sociedad civil en el desarrollo de esas políticas y estrategias, con la finalidad de involucrarlos en los procesos de desarrollo sostenible.
+4°—Que el Proyecto de Conservación y Desarrollo Arenal, apoyado financiera y técnicamente por la Agencia Canadiense de Desarrollo
+Internacional, ejecutó una serie de pequeños proyectos productivos demostrativos viables ecológicamente con grupos de escasos recursos, con el fin de incorporarlos a la economía nacional.
+5°—Que fa Dirección Conjunta del Proyecto de Conservación y Desarrollo Arenal y el Comité de Orientación del Proyecto (COP) en su reunión ordinaria del 29 de Junio de 1999, aprobó la propuesta "Alternativa de Transferencia de Responsabilidades y Recursos Relacionadas a la Cartera de Crédito y Fondo no Retornable de Pequeños Proyectos Productivos del Proyecto de Conservación y Desarrollo Arenal ] y II Etapa" y autorizó la conformación de un comité denominado "Comité para el Desarrollo de Pequeños Proyectos Productivos del Área de Conservación Arenal", para el aseguramiento de la continuidad de las Iniciativas Ambientales, Socio productivas para el seguimiento de acuerdo al Plan Estratégico y Planes de Trabajo aprobado por el COP.
+6°—Que el objetivo primordial del Comité conformado, será el promover el uso y manejo sostenible de los Recursos Naturales del ACÁ, teniendo como función principal el manejo y administración del Fideicomiso "Cartera de Crédito y Fondo no retornable de Pequeños Proyectos Productivos del Proyecto de Conservación y Desarrollo Arenal Etapas I y II". Por tanto,
+DECRETAN:
+Articulo 1°—Crear el Comité Directivo Ejecutivo para el Desarrollo de Pequeños Proyectos Productivos del Área de Conservación Arenal conforme con las disposiciones del inciso 7), párrafo 3 del articulo 116 de la Ley Orgánica de! Sistema Bancario Nacional, que tendrá como fin el aseguramiento de la continuidad de las Iniciativas Ambientales y Socio productivas de acuerdo al Plan Estratégico y Planes de Trabajo aprobado por el COP.

@@ -1,0 +1,1 @@
+Articulo 2°—Este comité será el encargado del manejo y administración del Fideicomiso denominado "Cartera de Crédito y Fondo no Retornable de Pequeños Proyectos Productivos del Proyecto de Conservación y Desarrollo Arenal Etapas I y II".
