@@ -1,0 +1,2 @@
+Artículo XIV.5 Divulgación de Información
+Ninguna disposición de este Tratado se interpretará en el sentido de obligar a una Parte a proporcionar o a dar acceso a información cuya divulgación pudiera impedir el cumplimiento de las leyes de la Parte o fuera contraria a sus leyes que protegen la privacidad de las personas o los asuntos financieros y las cuentas de clientes individuales de instituciones financieras.
