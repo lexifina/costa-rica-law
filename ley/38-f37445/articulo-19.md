@@ -1,0 +1,1 @@
+Art. 19.-Todas las excepciones se decidirán en sentencia definitiva y sólo podrá formarse artículo de previo pronunciamiento, cuando se aleguen contra la jurisdicción del Juez, hechos que éste no haya podido. legítima personería de las partes ó contra la legítima apreciar al despachar la ejecución.

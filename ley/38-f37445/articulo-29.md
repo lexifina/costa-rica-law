@@ -1,0 +1,3 @@
+Art. 29.-El acreedor tiene derecho á designar los bienes en que haya de practicarse el embargo.
+Si hecho ésto, alguna de las partes alega exceso ó defecto en el embargo, el Juez prevendrá á las partes que nombren peritos para estimar lo embargado; y según el resultado de la estimación pericial, se ampliará ó disminuirá el embargo; en uno ú otro caso, queda al acreedor la elección de lo que haya de embargarse ó desembargarse; pero cuando la cosa embargada no sea divisible, no se desembargará aunque su valor sea excesivo.
+Este incidente se tramitará y resolverá sin que los demás trámites del juicio se paralicen.

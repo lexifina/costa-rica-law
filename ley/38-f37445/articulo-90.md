@@ -1,0 +1,1 @@
+Art. 90.-Presentada en tiempo oportuno una demanda de tercería coadyuvante, y si el título en que se funda fuere ejecutivo, se prevendrá al ejecutante y al ejecutado se opongan á ella ó manifiesten su conformidad dentro de los cinco días siguientes.

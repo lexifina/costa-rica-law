@@ -1,0 +1,1 @@
+Art. 63.-Si la finca se vendiere en virtud de ejecución seguida por un acreedor con derecho real primero en grado, recibirá el comprador la finca libre de gravámenes; y si se vendiere por ejecución de un creedor con derecho real de grado inferior, la recibirá con los gravámenes anteriores; salvo en uno y otro caso lo dicho en el artículo 65.

@@ -1,0 +1,1 @@
+Art. 86. Si la tercería fuere excluyente de preferencia y no se acompañare título ejecutivo que compruebe el crédito del tercero, se dará audiencia á las partes por tres días comunes, y si una ó ambas se opusieren á las peticiones del tercero, se ventilará la cuestión con el actor y el reo ó con uno de ellos, según el caso, en juicio ordinario por separado.

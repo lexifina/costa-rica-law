@@ -1,0 +1,1 @@
+Art. 26.-En el juicio ejecutivo fundado en ejecutoria, se prescindirá de los trámites señalados en los artículos 16 y siguientes del capítulo 20, y, practicado el embargo, se procederá al avalúo y venta de los bienes.

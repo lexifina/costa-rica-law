@@ -1,0 +1,1 @@
+Art. 25.-Cuando la ejecución se hubiere despachado en virtud de documento dado por reconocido, ó de confesión ficta, no se admitirá al ejecutado á purgar la rebeldía; pero le queda su derecho para reclamar de pago indebido en el juicio correspondiente.

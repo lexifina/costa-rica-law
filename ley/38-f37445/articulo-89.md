@@ -1,0 +1,1 @@
+Art. 89.-En las tercerías excluyentes de dominio ó de preferencia, podrán intervenir con iguales derechos que el ejecutante, los demás terceros que hubiere, aunque todavía no haya sido juzgada su tercería, y aunque no reclamaren preferencia sobre el precio de los mismos.
