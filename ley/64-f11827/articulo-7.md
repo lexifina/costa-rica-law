@@ -1,0 +1,1 @@
+Art. 7. Las Municipalidades nombrarán una Comision de individuos de su seno, ó fuera de él, que deberá formar un Padron con la mejor claridad y distincion de los niños educando de sus respectivos Pueblos.

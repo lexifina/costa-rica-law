@@ -1,0 +1,1 @@
+Art. 5. Formaràn las mismas Municipalidades, un Reglamento para el órden, arreglo y gobierno de los Maestros; debiéndolo presentar, dentro el tèrmino de seis meses al Gefe Político Superior para su correspondiente aprobacion.
