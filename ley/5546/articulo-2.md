@@ -1,0 +1,1 @@
+Artículo 2º.- Los Concejos Municipales deberán incluir en sus presupuestos ordinarios, las sumas necesarias para cubrir las obligaciones que por esta ley se crean. La Contraloría General de la República no aprobará los presupuestos que no contemplen las partidas mencionadas.
