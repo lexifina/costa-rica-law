@@ -1,0 +1,1 @@
+Art. 2. Los poderes para demandar en terminación verbal, cuando la cantidad no exceda de ciencuenta pesos, pueden ser simples; es decir, otorgados por el poderdante ante dos testigos que firmen con él si supiere, y estendido en papel del sello 3°. –Dado en San José, á dos de diciembre de mil ochocientos cuarenta y uno.–Braulio Carrillo. –El Secretario general. –Manuel A. Bonilla.
