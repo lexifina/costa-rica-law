@@ -1,0 +1,1 @@
+Artículo 12.—Lo relativo al procedimiento se regirá por el Manual de Atención al Adulto Mayor que deberá elaborar la Dirección de Protección Especial en un plazo no mayor a un mes a partir de la entrada en vigencia de este acuerdo.

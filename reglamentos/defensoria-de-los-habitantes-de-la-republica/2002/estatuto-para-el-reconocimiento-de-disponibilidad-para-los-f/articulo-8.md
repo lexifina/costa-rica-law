@@ -1,0 +1,1 @@
+Artículo 8°—La Defensoría se obliga a retribuirle al servidor la disponibilidad por medio del pago de un sobresueldo del 15% sobre el salario base. correspondiente a 65 horas mínimas de disponibilidad mensuales y proporcionalmente de acuerdo al número de horas totales dispuesto en el contrato.

@@ -1,0 +1,1 @@
+Artículo 4°—El servidor sujeto a disponibilidad está obligado a prestar los servicios que le soliciten de acuerdo con el puesto que desempeña, los requerimientos del servicio y el compromiso adquirido.
