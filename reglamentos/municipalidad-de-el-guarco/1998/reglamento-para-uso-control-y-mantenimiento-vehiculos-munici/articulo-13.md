@@ -1,0 +1,3 @@
+Artículo 13.—El Concejo Municipal podrá, excepcionalmente, realizar convenios por escrito para préstamo de vehículos, entre Ministerios e Instituciones.
+Deberán ser por un período determinado, siempre y cuando no entorpezca el desarrollo norma! de las funciones de la municipalidad y que dichos vehículos, quien los adquiere los utilice con los fines ames descritos, éstos convenios deberán detallar al menos: los datos del vehículo, el plazo del préstamo, las obligaciones y responsabilidades de las panes.
+Estos convenios serán suscritos por los respectivos jerarcas, observando los trámites internos establecidos en casa caso.

@@ -1,0 +1,2 @@
+Artículo 14.—La conducción de los vehículos, estará a cargo de chóferes o funcionarios acreditados o autorizados para ello. Se autorizará a los chóferes para la conducción de vehículos y en caso de excepción se facultará a otros funcionarios siempre y cuando cumplan con los requisitos que exige la Ley de Tránsito.
+Esta autorización se formalizará mediante una identificación, que obligatoriamente deberá portar, mientras conduce un vehículo, así como la licencia de conducir debidamente actualizada.

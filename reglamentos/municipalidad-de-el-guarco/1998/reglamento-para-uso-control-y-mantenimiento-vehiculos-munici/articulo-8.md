@@ -1,0 +1,1 @@
+Artículo 8°—EI conductor de un vehículo será responsable de los daños que le causen o lo que le suceda, si se comprueba: imprudencia, impericia o negligencia en su manejo, así como responder por infracciones a las leyes de tránsito, salvo los causados por caso fortuito o fuerza mayor.
