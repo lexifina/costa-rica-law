@@ -1,4 +1,4 @@
-Artículo 3º.- Forman parte del Colegio:
+ARTICULO 3º.- Forman parte del Colegio:
 a) Los Geólogos graduados en la Universidad de Costa Rica;
 b) Los profesionales costarricenses graduados en ciencias geológicas en
 universidades extranjeras que sean incorporados por la Universidad de

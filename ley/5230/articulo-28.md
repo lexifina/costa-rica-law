@@ -1,4 +1,4 @@
-Artículo 28.- Son deberes y atribuciones del Secretario:
+ARTICULO 28.- Son deberes y atribuciones del Secretario:
 a) Redactar las actas de las sesiones suscribiéndolas con el Presidente;
 b) Llenar la correspondencia del Colegio que no sea del exclusivo
 resorte del Presidente, pero bajo su dirección;

@@ -1,4 +1,4 @@
-Artículo 12.- Son deberes de los miembros del Colegio:
+ARTICULO 12.- Son deberes de los miembros del Colegio:
 a) Cumplir los preceptos de esta ley, los reglamentos y códigos de
 ética profesional y acatar los acuerdos que tome el Colegio;
 b) Velar por el cumplimiento de los fines del Colegio;
