@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto de Fomento y Ases
 | 3 | 1994-03-09 | Reglamento 2379 (1994-03-09) |
 | 4 | 1995-09-06 | Reglamento 2529 (1995-09-06) |
 | 5 | 1995-12-18 | Reglamento 2557 (1995-12-18) |
+| 6 | 1996-03-12 | Reglamento 2579 (1996-03-12) |
