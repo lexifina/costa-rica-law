@@ -1,0 +1,1 @@
+Art. 4°-En los terrenos á que se refieré el articulo 1°, se prohibe áun á los que en propiedad los adquieran, la destruccion de los árboles situados á quinientas varas de uno y otro lado de los rios à cien de los riachuelos y a cincuenta de los arroyos; y también los arbolados de las montañas en el espacio comprendido entre la cima y cincuenta varas en contorno a ella.
