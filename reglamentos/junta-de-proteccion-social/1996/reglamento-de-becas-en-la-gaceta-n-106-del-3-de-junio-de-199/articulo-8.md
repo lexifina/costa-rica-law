@@ -1,0 +1,1 @@
+Artículo 8°—Se aprobarán para estudiar en centros universitarios, parauniversitarios y comerciales legalmente reconocidos e inspeccionados por el Estado. En caso de traslado de centro de estudios, deberá ser aprobado previamente por el Departamento de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 17.—El becario deberá presentar una certificación al final de cada año calendario, debidamente membretada y con el refrendo de la autoridad administrativa del Centro en que cursa estudios, incluyendo todas las materias aprobadas a la fecha y su calificación.

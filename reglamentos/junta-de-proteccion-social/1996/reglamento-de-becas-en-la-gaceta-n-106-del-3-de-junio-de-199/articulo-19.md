@@ -1,0 +1,1 @@
+Artículo 19.—Será deber del becario actuar con instructor en cursos o actividades de capacitación que versen sobre las materias o conocimientos adquiridos en el transcurso de sus estudios, o bien colaborar en la organización de cursos y seminarios que se impartan al personal de la Junta.

@@ -1,0 +1,1 @@
+Artículo 15.—Una vez que al becario se le comunique la aprobación de la beca, tendrá seis meses como máximo para matricularse en la Institución que corresponde. De no cumplir este requisito, pierde el derecho a la beca, salvo casos muy especiales ajuicio de la Directiva.

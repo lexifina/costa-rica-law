@@ -1,0 +1,1 @@
+Artículo 16.—El becario deberá presentar certificación del centro de estudios con el reporte de materias aprobadas, al finalizar cada ciclo lectivo. Esto será requisito indispensable para autorizar el trámite del próximo cheque por beca.
