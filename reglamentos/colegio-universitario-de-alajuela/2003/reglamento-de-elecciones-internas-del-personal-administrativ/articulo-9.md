@@ -1,0 +1,1 @@
+Artículo 9º—Una vez inscritos los candidatos, el Tribunal los convocará para un acto de ratificación de candidaturas, información general, evacuación de consultas y dudas. Esta reunión es de asistencia obligatoria para el candidato. El que faltaré a la misma será excluido del proceso.

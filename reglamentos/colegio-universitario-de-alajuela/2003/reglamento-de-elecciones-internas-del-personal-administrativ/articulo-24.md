@@ -1,0 +1,1 @@
+Artículo 24.—Todo elector del Cuna tendrá derecho solo a un voto. Aquellos electores que tengan más de un contrato laboral con la institución, deberán solicitar por escrito al Tecuna con quince días de anticipación al proceso de elecciones en cual sector desea votar, de lo contrario se empadronará donde tenga mayor jornada y tiempo laboral.

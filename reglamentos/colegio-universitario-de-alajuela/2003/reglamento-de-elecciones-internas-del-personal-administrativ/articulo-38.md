@@ -1,0 +1,1 @@
+Artículo 38.—Los casos no contemplados en el presente Reglamento serán resueltos por el Tecuna, de conformidad con los principios de justicia, equidad y pureza del sufragio y con apego al espíritu de las normas que conforman el presente Reglamento.

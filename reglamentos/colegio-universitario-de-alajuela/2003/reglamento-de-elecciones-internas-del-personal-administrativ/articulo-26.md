@@ -1,0 +1,2 @@
+Artículo 26.—Será declarado representante en cada sector el candidato que obtenga simple mayoría de los votos emitidos. Los votos nulos o en blanco no serán tomados en cuenta a favor de ningún candidato.
+En caso de empate se repetirá la votación ocho días naturales después entre quienes obtuvieron igual número de votos mayoritarios. Si persistiere el empate el Tecuna definirá el representante mediante rifa con la presencia de los candidatos.

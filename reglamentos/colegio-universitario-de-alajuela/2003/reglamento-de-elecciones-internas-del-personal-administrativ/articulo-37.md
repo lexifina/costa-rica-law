@@ -1,0 +1,2 @@
+Artículo 37.—El representante administrativo, docente o docente administrativo, o estudiantil que durante el plazo para el cual fueron electos, y que por cualquier circunstancia dejarán de ser funcionarios o estudiante regular, perderá su credencial y condición de representante.
+Corresponderá al Decano informar al Consejo Directivo, para que este proceda a integrar nuevamente el Tecuna y este lleve a cabo el proceso de elecciones para el nombramiento del nuevo representante.

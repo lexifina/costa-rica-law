@@ -1,0 +1,1 @@
+Artículo 3º—Cuando no se establezca una votación calificada, las decisiones del Tecuna serán tomadas por mayoría simple, son ejecutorias y no tendrán recurso, salvo el de revisión establecido en el artículo 36.

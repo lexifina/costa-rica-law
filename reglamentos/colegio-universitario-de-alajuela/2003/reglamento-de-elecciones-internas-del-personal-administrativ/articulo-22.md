@@ -1,0 +1,1 @@
+Artículo 22.—Los miembros de mesa harán entrega de papeletas debidamente firmadas y el votante marcará con una X el espacio asignado al candidato de su preferencia, mientras el Tecuna no establezca otro procedimiento de votación.

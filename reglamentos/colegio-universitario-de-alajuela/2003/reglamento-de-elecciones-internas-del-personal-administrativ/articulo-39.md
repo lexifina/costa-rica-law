@@ -1,0 +1,1 @@
+Artículo 39.—Una vez aprobado este Reglamento de elecciones por el Consejo Directivo del Cuna, se procederá a su publicación en el diario oficial La Gaceta en un plazo no superior a los treinta días naturales y regirá inmediatamente después de su publicación.

@@ -1,0 +1,1 @@
+Artículo 13.—El Tribunal podrá, por decisión de mayoría calificada de sus miembros, sancionar, o incluso retirarle su candidatura al postulante que de forma personal viole alguna de las disposiciones establecidas en el presente Reglamento, o que irrespete la autoridad del Tribunal o atente contra la integridad física o moral de alguno de sus miembros o de cualquier elector.

@@ -1,0 +1,1 @@
+Artículo 20.—El Tecuna designará los locales en que se celebrarán las votaciones de los sectores y dispondrá la confección de las papeletas correspondientes. Procurando la más absoluta seguridad en su elaboración.
