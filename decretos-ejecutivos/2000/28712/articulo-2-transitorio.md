@@ -1,0 +1,1 @@
+Transitorio II.—Dentro de los tres meses siguientes a la entrada en vigencia de este reglamento, los emisores de tarjetas de crédito, deberán tener ajustados los sistemas de cómputo, para el cumplimiento de los requisitos exigidos en la presentación de sus respectivos estados de cuenta.

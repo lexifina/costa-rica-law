@@ -1,0 +1,25 @@
+Artículo 2º—Definiciones. Para los efectos de este reglamento se entenderá por:
+1. Emisor: Es el agente económico que emite y/o comercializa tarjetas de crédito en Costa Rica, de uso nacional o internacional o ambas modalidades.
+2. Compañía miembro adquirente: Compañía procesadora de las transacciones realizadas por el tarjetahabiente a nivel nacional o internacional y que se relaciona con la afiliación y pago a negocios afiliados.
+3. Negocio afiliado (proveedor): Es aquella empresa que se afilia a un miembro adquirente con el objetivo de poder procesar los consumos directos que haga el tarjetahabiente en su establecimiento.
+4. Titular de la cuenta: Es la persona física o jurídica que, previo contrato con el ente emisor, es habilitada para el uso de una línea de crédito revolutiva.
+5. Tarjetahabiente: Usuario de la línea de crédito.
+6. Tarjeta de crédito: Se denomina tarjeta de crédito al documento de identificación del tarjetahabiente, que puede ser magnético o de cualquier otra tecnología, que acredita una relación contractual previa entre el emisor y el titular de la cuenta por el otorgamiento de un crédito revolutivo a favor del segundo, para comprar bienes, servicios, pagar sumas líquidas y obtener dinero en efectivo.
+7. Tarjeta adicional: Es aquella tarjeta de crédito que el titular autoriza a favor de las personas que designe.
+8. Contrato de emisión de tarjeta de crédito (contrato): Es aquel contrato que regula las condiciones generales de un crédito revolutivo en moneda nacional o extranjera y de la emisión y uso de la tarjeta de crédito, a las cuales se adhiere el tarjetahabiente por un plazo definido en el contrato. Dicho contrato se regirá por los principios y normas que regulan los contratos de adhesión.
+9. Límite de crédito: Se refiere al monto máximo, en moneda nacional o extranjera o ambas, que el emisor se compromete a prestar al titular de la cuenta mediante las condiciones estipuladas en el contrato.
+10. Principal o pasivo pendiente: Es el monto de todas las transacciones realizadas mediante el uso de la tarjeta de crédito.
+11. Sobregiro: Es el monto utilizado en exceso sobre el límite de crédito autorizado.
+12. Tasa de interés financiero o corriente: Es el porcentaje establecido por el emisor en el contrato por el uso del crédito, debe utilizarse para el cálculo de los cargos por servicio o cargos por intereses financieros, sobre el saldo del principal o pasivo, conforme con las condiciones que indique la legislación vigente.
+13. Cargos por servicios o cargos por intereses financieros: Corresponde al monto de los intereses corrientes por financiamiento, calculados sobre el principal adeudado sin incluir el consumo del período. Son aplicables cuando se opta por el financiamiento.
+14. Cargos bonificables: Corresponde al monto de los intereses financieros o corrientes calculados desde la fecha de compra hasta la fecha de corte y se calculan sobre cada uno de los consumos de un período. Estos cargos nos se cobran en el "pago de contado".
+15. Tasa de interés moratorio: Es el porcentaje establecido a cargo del tarjetahabiente, cuando incurre en algún retraso en los pagos. Debe utilizarse para el cálculo de los intereses moratorios sobre los días de atraso, en los términos que indique el contrato y conforme con las condiciones que indique la legislación vigente.
+16. Pago de contado: Corresponde al saldo adeudado por el tarjetahabiente a la fecha de corte, que no incluye los cargos bonificables del período, más los intereses de financiamiento del período anterior y las comisiones o recargos cuando correspondan.
+17. Fecha de corte: Corresponde a la fecha programada para la emisión del estado de cuenta del período correspondiente.
+18. Fecha límite de pago: Es la fecha en la cual el tarjetahabiente debe pagar para no constituirse en mora.
+19. Estado de cuenta: Es el documento confeccionado por el emisor que contiene el resumen mensual del manejo de la tarjeta de crédito, en el marco de la relación contractual, cuyo contenido se detalla en el artículo 3 inciso b, de este reglamento.
+20. Otros cargos: Corresponde a los servicios administrativos que cobra el emisor por la utilización de la tarjeta de crédito, acordados en el contrato de emisión de la misma. No corresponde a intereses ni comisiones y deben ser desglosados en el estado de cuenta.
+21. Comisiones: Son los porcentajes o montos en moneda nacional o extranjera que el emisor cobra al tarjetahabiente por el uso de ciertos servicios, acordados en el contrato de emisión de tarjeta de crédito. No corresponde a intereses ni a recargos.
+22. Pago mínimo: Corresponde a la mensualidad expresada en moneda nacional o extranjera o ambas, que cubre amortización al principal según el plazo de financiamiento, intereses a la tasa pactada, comisiones y recargos pactados, que el tarjetahabiente paga al emisor por el uso del crédito.
+23. Grado de aceptación: Se refiere al número de negocios afiliados, cajeros automáticos u otros, donde es aceptada la tarjeta de crédito.
+24. Cobertura: Es el ámbito geográfico o sector de mercado donde puede ser utilizada la tarjeta de crédito.
