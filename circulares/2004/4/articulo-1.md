@@ -1,0 +1,18 @@
+CIRCULAR Nº 4-2004
+ASUNTO: Regulación de las visitas de abogados a los privados
+de libertad recluidos en las celdas del Organismo de Investigación Judicial.
+A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 90-2003, celebrada el 27 de noviembre del 2003, artículo LXXVII, dispuso comunicarles las "Directrices para regular las visitas de Abogados a los privados de libertad recluidos en celdas del Organismo de Investigación Judicial", que a continuación se detallan, las cuales incluyen la modificación propuesta en el punto 7), a saber:
+DIRECTRICES PARA REGULAR LAS VISITAS
+DE ABOGADOS A LOS PRIVADOS DE LIBERTAD
+RECLUIDOS EN CELDAS DEL OIJ
+1) El área de celdas se considera zona restringida, por lo que deberán mantenerse cerrados todos sus accesos.
+2) El abogado que acuda a representar un privado de libertad, debe entregar su credencial respectiva al oficial que se encuentre a cargo de la puerta de ingreso al área de celdas, conjuntamente con boleta extendida por personal autorizado del despacho correspondiente, haciendo constar el o los profesionales que se encuentran apersonados en el expediente respectivo; caso contrario se denegará su ingreso.
+3) El encargado de las celdas debe consultar el listado de abogados suspendidos, a efecto de establecer si el profesional se encuentra en esa condición, de ser así, no autorizará su ingreso.
+4) Para hacer ingreso al área de celdas, el abogado debe someterse a una revisión física por medio de un detector de metales; en caso de localizarse algún objeto que a criterio del personal de la Sección de Cárceles y Transportes se considere peligroso, se le invitará a depositarlo en la oficina del encargado de celdas, y le será devuelto una vez, finalizada su visita. Esta revisión deberá incluir valijas ejecutivas, portafolios y otros.
+5) De encontrarse debidamente acreditado el profesional, será guiado por un conductor de detenidos hasta la celda en que se encuentre el privado de libertad que representa.
+6) El abogado que acuda a ofrecer sus servicios a un privado de libertad quien haya sido detenido en flagrancia, o con motivo de orden de captura en su contra, u otra situación análoga, será conducido hasta la celda en que se encuentre la persona a quien pretende representar, e informará el motivo de su presencia, y corresponde al privado de libertad aceptar o denegar los servicios que se le ofrecen, en presencia del conductor de detenidos, de no aceptarlo, el defensor debe ser escoltado hasta la salida.
+7) En toda visita que realice un abogado defensor a un privado de libertad, debe mantenerse a una distancia que no afecte al privado de libertad y a su defensor, un conductor de detenidos, con el fin de impedir que se le haga entrega al detenido de algún objeto prohibido, así como garantizar la seguridad del defensor.
+8) En caso de detenidos incomunicados, u otros casos especiales, la autoridad judicial competente, debe autorizar en cada caso particular, lo concerniente a; a- entrega de alimentos disímiles de los autorizados por la institución, b- medicinas, c- otros artículos de primera necesidad que se sospeche, puedan servir al imputado para eludir la incomunicación, o para atentar contra su vida o la ajena, d- ejercicio de otros derechos fundamentales como el de información, de recibir asistencia espiritual o la realización de actos civiles impostergables."
+San José, 14 de enero del 2004.
