@@ -1,0 +1,2 @@
+Artículo 9°-
+La autorización de la transferencia de los recursos de la cuenta especial del Fondo en el Banco Central de Costa Rica, a las cuentas bancarias correspondientes de proyectos, deberá ser firmada en forma mancomunada por dos miembros del Comité, uno de los cuales deberá ser necesariamente el Embajador o su representante. Para tal efecto deberán registrarse en el banco Central de Costa Rica, todas las firmas de los miembros del Comité.
