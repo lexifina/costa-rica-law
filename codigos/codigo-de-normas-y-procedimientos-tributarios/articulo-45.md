@@ -1,11 +1,4 @@
-SECCION TERCERA
-Compensación
-ARTICULO 45.- Casos en que procede.
-Se deben compensar de oficio o a petición de partes los créditos
-líquidos y exigibles del contribuyente por concepto de tributos y sus
-accesorios, con las deudas tributarias determinadas por él y no pagadas,
-o con las determinadas de oficio, referentes a períodos no prescritos,
-comenzando por los más antiguos y aunque provengan de distintos tributos
-siempre que sean administrados por el mismo órgano administrativo.
-También son compensables los créditos por tributos con los recargos
-y multas firmes establecidos en este Código.
+Sección Tercera: Compensación
+Artículo 45.- Casos en que procede. El contribuyente o responsable que tenga a su favor créditos líquidos y exigibles por concepto de tributos y sus accesorios, podrá solicitar que se le compensen con deudas tributarias de igual naturaleza y sus accesorios, determinadas por él y no pagadas, o con determinaciones de oficio, referentes a períodos no prescritos, siempre que sean administrados por el mismo órgano administrativo. Asimismo, la Administración Tributaria quedará facultada para realizar la compensación de oficio.
+También son compensables los créditos por tributos con los recargos y multas firmes establecidos en este Código.
+(Así reformado su párrafo primero, por el inciso b) del artículo 27 de de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).

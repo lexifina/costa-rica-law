@@ -1,9 +1,3 @@
-ARTÍCULO 98.- Responsabilidad penal del funcionario público por
-acción u omisión dolosa
-Será sancionado con prisión de tres a diez años, el servidor público
-de la Administración Tributaria que, de manera directa o indirecta, por
-acción u omisión dolosa, colabore o facilite, en cualquier forma, el
-incumplimiento de la obligación tributaria y la inobservancia de los
-deberes formales del sujeto pasivo.
-(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de
-1999)
+Artículo 98.—Responsabilidad penal del funcionario público por acción u omisión dolosa. Será sancionado con prisión de tres a diez años, y con inhabilitación, de diez a quince años, para el ejercicio de cargos y empleos públicos, cualquier servidor público que, directa o indirectamente, por acción u omisión dolosa, colabore o facilite en cualquier forma, el incumplimiento de la obligación tributaria y la inobservancia de los deberes formales del sujeto pasivo.
+La misma pena se le impondrá al servidor público que, sin promesa anterior al delito, ayude de cualquier modo a eludir las investigaciones de la autoridad sobre el incumplimiento o la evasión de las obligaciones tributarias, a substraerse de la acción de estas, u omita denunciar el hecho cuando esté obligado a hacerlo. Asimismo, será reprimido con prisión de ocho a quince años, y con inhabilitación de quince a veinticinco años para ejercer cargos y empleos públicos, el servidor público que, por sí o por persona física o jurídica interpuesta, reciba dádivas, cualquier ventaja o beneficios indebidos, de carácter patrimonial o no, o acepte la promesa de una retribución de cualquier naturaleza, para hacer, no hacer o para un acto propio de sus funciones, en perjuicio directo o indirecto del cumplimiento oportuno y adecuado de las obligaciones tributarias.
+(Así reformado por el inciso g) del artículo 27 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).
