@@ -1,0 +1,1 @@
+Artículo 2º—El certamen premiará al mejor expositor dentro de la población estudiantil de Preescolar, Primero, Segundo y Tercer Ciclos y, Educación Diversificada, en cualquiera de las áreas y temas sugeridos, que exprese y fortalezca los valores cívicos nacionales y que serán determinados por las Asesorías Nacionales de Educación.
