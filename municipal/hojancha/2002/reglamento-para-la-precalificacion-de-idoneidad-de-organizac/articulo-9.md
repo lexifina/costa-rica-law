@@ -1,0 +1,1 @@
+Artículo 9º—La precalificación obtenida por la O.N.G. no constituye compromiso u obligación alguna para la Municipalidad, toda vez que se requiere la calificación de la Contraloría General de la República para obtener los recursos aprobados y sujeta a cumplir otro requisito obligado para obtenerlos.

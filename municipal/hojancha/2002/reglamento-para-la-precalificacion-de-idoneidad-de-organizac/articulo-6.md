@@ -1,0 +1,1 @@
+Artículo 6º—Una vez recibida la solicitud, la Secretaría Municipal (Concejo) remitirá con sus anexos al presidente del Concejo, posterior a confeccionar el expediente con el nombre de la O.N.G. y proyecto (s), quien la someterá a conocimiento del Concejo en la sesión ordinaria inmediata posterior.

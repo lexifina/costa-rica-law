@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con lo que indica la Contraloría General de la República, las Municipalidades deben precalificar a las organizaciones no gubernamentales (O.N.G) como idóneas para administrar fondos públicos, de previo a que estas acudan a la Contraloría General de la República, a solicitar la respectiva calificación de idoneidad.
