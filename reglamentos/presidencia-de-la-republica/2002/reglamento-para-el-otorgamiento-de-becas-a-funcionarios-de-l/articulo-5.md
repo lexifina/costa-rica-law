@@ -1,0 +1,1 @@
+Artículo 5º—El organismo o institución beneficiada, una vez transferidos los recursos destinados a capacitación, los invertirá única y exclusivamente en la capacitación aprobada por la Comisión Coordinadora del Sistema y según el cronograma de actividades que se implemente al efecto.

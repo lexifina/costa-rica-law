@@ -1,0 +1,1 @@
+Artículo 6º—Los funcionarios beneficiados con la capacitación financiada por el Sistema deberán firmar un contrato con el organismo o institución para la cual trabajan. Dicho contrato especificará los deberes y derechos de esos trabajadores y la responsabilidad financiera que ellos tienen con el organismo o institución.

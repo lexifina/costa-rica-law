@@ -1,0 +1,1 @@
+Artículo 3º—La capacitación que financiará el Sistema será única y exclusivamente aquella relacionada directamente con la atención de las emergencias. Además, los temas de capacitación que solicite el organismo o institución serán previamente avalados por la Comisión Coordinadora del Sistema.

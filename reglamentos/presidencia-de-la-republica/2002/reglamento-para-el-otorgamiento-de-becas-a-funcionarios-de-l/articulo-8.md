@@ -1,0 +1,1 @@
+Artículo 8º—Con base en los informes trimestrales anteriormente citados, el organismo o institución requirente reintegrará al Sistema, si es del caso, los recursos transferidos para capacitación no utilizados según el cronograma aprobado y los recursos por la capacitación no aprobada por los funcionarios del organismo o institución requirente.
