@@ -1,0 +1,1 @@
+Artículo 126.—Se dará traslado de la denuncia al funcionario involucrado, concediéndole un plazo de cinco días hábiles para que se refiera a todos y cada uno de los supuestos que se le imputan y ofrezca los medios de prueba en descargo. Si el denunciado no ejerce su defensa se continuará con el proceso hasta el dictado de la resolución final, por parte del órgano decisor.

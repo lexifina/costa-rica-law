@@ -1,0 +1,1 @@
+Artículo 76.—Para efectuar una permuta, los interesados deben contar con igual clasificación de puestos, además cada uno hará una solicitud por escrito en la que se constará el visto bueno de los jefes inmediatos y el refrendo del Director General.

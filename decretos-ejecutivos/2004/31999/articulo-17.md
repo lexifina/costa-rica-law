@@ -1,0 +1,2 @@
+Artículo 17.—En los puestos de control migratorio, la Policía podrá exigir a los transportistas, conductores o demás personal, la presentación de la lista de pasajeros, y a los pasajeros sus pasaportes, salvoconductos u otros documentos, y verificar la autorización de ingreso o egreso al país, así como cualquier otro dato que se relacione con la condición migratoria.
+De ser necesario, podrán requisar a las personas en la respectiva oficina de migración o inspeccionar el medio de transporte en su interior.

@@ -1,0 +1,1 @@
+Artículo 48.—Si un servidor es reincidente en la comisión de faltas leves en el término de tres meses, se considerará que incurrió en falta grave y se remitirá el asunto al Departamento Legal de la Dirección General para lo procedente.

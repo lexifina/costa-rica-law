@@ -1,0 +1,1 @@
+Artículo 116.—Los programas Básico Policial, Básico de Investigación y de Administración Policial serán coordinados con la Escuela Nacional de Policía, a efectos de que los integrantes de la Policía asistan en cumplimiento de los requisitos establecidos para el ingreso al Estatuto Policial.

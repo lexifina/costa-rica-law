@@ -1,0 +1,1 @@
+Artículo 115.—La Escueta Nacional de Policía podrá equiparar los cursos policiales realizados dentro o fuera del país, para los efectos de reconocimiento de incentivos. De lo resuelto por esa Escuela se podrá interponer dentro del tercer día recurso de apelación ante el Ministro, quien resolverá en definitiva.

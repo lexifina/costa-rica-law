@@ -1,0 +1,1 @@
+Artículo 88.—El funcionario que ha recibido el beneficio de licencia con goce de salario, entregará al Departamento de Recursos Humanos comprobantes académicos u otros pertinentes, que demuestren a satisfacción el aprovechamiento.

@@ -1,0 +1,1 @@
+Artículo 36.—Todo servidor que ingrese al Estatuto Policial deberá aprobar satisfactoriamente un período de prueba de seis meses contados a partir de la fecha que surta eficacia su nombramiento, de conformidad con el artículo 63 de Ley. Dentro del período de prueba, el servidor deberá aprobar satisfactoriamente las exigencias que determine la Dirección General.

@@ -1,0 +1,1 @@
+Artículo 55.—El funcionario deberá comunicar a su superior inmediato del motivo de la irregularidad en la asistencia, sin embargo, podrá presentar la correspondiente justificación ante la dependencia competente dentro de los cinco días hábiles inmediatos posteriores, contando con el visto bueno de su superior inmediato.

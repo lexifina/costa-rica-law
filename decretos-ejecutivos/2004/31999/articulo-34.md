@@ -1,0 +1,1 @@
+Artículo 34.—El Departamento de Recursos Humanos aplicará las bases de selección y conformará una lista de candidatos elegibles para integrar las ternas para cada puesto. Dicha lista deberá ser refrendada por el Consejo de Personal, para que el Departamento de Recursos Humanos proceda a la elaboración de las ternas correspondientes; con un mínimo de tres candidatos.

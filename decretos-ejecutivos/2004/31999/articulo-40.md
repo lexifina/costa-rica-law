@@ -1,0 +1,1 @@
+Artículo 40.—Los servidores de la Policía están sujetos a las prohibiciones contempladas por los artículos 72 del Código de Trabajo y 58 del Reglamento Autónomo de la Dirección General de Migración y Extranjería.

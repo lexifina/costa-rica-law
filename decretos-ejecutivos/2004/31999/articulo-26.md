@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del Consejo de Personal
+Artículo 26.—De conformidad con el artículo 48 de la Ley, el Consejo de Personal estará integrado por el Director General, quien podrá ser representado por el Subdirector, el Jefe del Departamento Legal, el Jefe del Departamento de Recursos Humanos, y el Jefe de la Policía, todos de la Dirección General de Migración y Extranjería. El Consejo será presidido por el Director General y en su ausencia por el Jefe de Recursos Humanos. Podrá participar de este Consejo en calidad de observador, un representante de los trabajadores, debidamente acreditado, quien tendrá voz pero no voto.

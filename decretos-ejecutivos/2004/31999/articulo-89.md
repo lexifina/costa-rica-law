@@ -1,0 +1,1 @@
+Artículo 89.—Cuando la licencia se hubiere otorgado al funcionario sin goce de salario y con motivo de estudios, únicamente quedará obligado a presentar los informes indicados en el artículo anterior.
