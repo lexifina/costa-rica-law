@@ -1,0 +1,1 @@
+Artículo 2°—Invitar a que asistan como profesores de Formación y Ejecución de Planes, Programas y Políticas para el Desarrollo del Sector Agropecuario a los representantes de los siguientes países: Chile y Brasil.

@@ -1,0 +1,1 @@
+Articulo 3°—Los gastos de transporte (desde el país de origen hacia el país sede) y viáticos dentro del país, de los profesores extranjeros serán cubiertos con cargo a la Contrapartida del Proyecto MAG-BID 515-T-027-(PL-480).
