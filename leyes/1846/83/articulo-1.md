@@ -1,0 +1,6 @@
+DECRETO LXXXIII.
+Tarifa de sueldos para clases militares. (1)
+(1) Retundido en la tarifa de 3 de setiembre de 1852.
+"El Jefe Supremo Provisorio del Estado libre de Costa Rica.
+Considerando: que la dotacion asignada en el art. 5° de la tarifa de 1° de junio de 1841, à los empleados del departamento de guerra, desde sargentos primeros hasta soldados no guarda en el dia proporcion con los estipendios comunes, ni es competente hoy que los viveres han subido de precio, y que por lo mismo, la justicia demanda se les señale una mejor retribucion á que de otra parte son acreedores por la honradez con que siempre se han conducido à imitacion de sus virtuosos y valientes Jefes y oficiales; ha venido en decretar y decreta.
+Art. 1° Desde el 1° del mes entrante los sargentos primeros ganaran diezisiete pesos mensuales: los segundos en servicio, catorce: los cabos primeros trece: los segundos doce: los tambores mayores por su grado de sargento 1P arriba; los tambores de ordenes con despacho; 6 por órden general en campaña trece pesos: los demas tambores once, lo mismo que los pitos y demas músicos, excepto los cornetas y clarinetes que ganaràn doce: los soldados, prest diario de dos y medio reales.
