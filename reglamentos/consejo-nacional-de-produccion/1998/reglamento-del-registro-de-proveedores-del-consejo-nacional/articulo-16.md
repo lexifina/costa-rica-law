@@ -1,0 +1,1 @@
+Artículo 16.—El presente reglamento podrá ser modificado por la Junta Directiva del Consejo Nacional de Producción (previa consulta conforme a lo establecido en la ley), en caso de que lo considere pertinente, efectuando la publicación correspondiente en los medios de comunicación establecidos.

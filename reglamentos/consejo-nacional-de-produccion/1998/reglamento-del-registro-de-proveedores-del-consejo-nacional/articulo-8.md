@@ -1,0 +1,3 @@
+SECCIÓN III
+De la inclusión y exclusión al Registro
+Artículo 8°—Una vez recibida la solicitud de incorporación al Registro de Proveedores, el CNP, por medio de su Departamento de Proveeduría, verificará que toda la información solicitada en el artículo que antecede esté a derecho. En caso contrario, previo aviso por escrito que enviará el Departamento de Proveeduría, el interesado deberá subsanar los defectos en una plazo de ocho días hábiles contados a partir del recibido de la comunicación antes indicada. Si la prevención no es atendida en tiempo y forma, la solicitud se tendrá por rechazada y se procederá a su archivo, sin ser incluida en la base de datos indicada al inicio.

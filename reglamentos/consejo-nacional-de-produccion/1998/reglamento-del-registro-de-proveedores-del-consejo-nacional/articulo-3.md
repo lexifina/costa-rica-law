@@ -1,0 +1,1 @@
+Artículo 3°—Las personas físicas o jurídicas que deseen incorporarse al Registro de Proveedores serán evaluados y considerados en forma integral en cuanto a su historial, capacidad técnica, financiera y jurídica.
