@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Contratación privada
+Artículo 62.—Procedencia. La contratación privada se aplicará para aquellas compras cuyos montos se encuentren dentro de los límites que la Contraloría General de la República establezca para las Licitaciones Privadas de conformidad con el estrato en que se encuentre CONARROZ en atención al presupuesto aprobado para el año en que se inicie el procedimiento y su adjudicación corresponde única y exclusivamente a la Dirección Ejecutiva.
+Cuando se haya adoptado el procedimiento de contratación privada con fundamento en la estimación preliminar de la misma, y una vez hecho el análisis y la oferta ganadora supera en no más de un veinte por ciento sobre el monto límite para la aplicación de este procedimiento no se invalidará la contratación si se dispone de recursos presupuestarios suficientes para asumir la erogación.

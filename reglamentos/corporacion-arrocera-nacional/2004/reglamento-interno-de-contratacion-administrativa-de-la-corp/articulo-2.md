@@ -1,0 +1,2 @@
+Artículo 2º—Cobertura. El presente Reglamento regirá la contratación desarrollada por la Corporación Arrocera Nacional, de conformidad con lo establecido en la Ley Nº 8285 “Ley de Creación de la Corporación Arrocera Nacional”.
+Se exceptúa de la aplicación del presente Reglamento la actividad contractual ordinaria, entendiéndose esta los servicios que presta CONARROZ en el ámbito de su competencia.

@@ -1,0 +1,1 @@
+Artículo 20.—Actualización. A efecto de mantener actualizado el Registro, Conarroz invitará a los interesados en integrarlo mediante publicación que hará una vez al año, en el Diario Oficial y al menos en dos diarios de circulación nacional . Igualmente insertará en la publicación los requisitos que la Administración determine.

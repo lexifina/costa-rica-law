@@ -1,0 +1,1 @@
+Artículo 10.—Declaración de procedimientos Desiertos. La Junta o la Dirección Ejecutiva, según corresponda, podrá declarar desierto un procedimiento de contratación, cuando existan razones que justifiquen tal medida, debiendo quedar acreditadas en el expediente y comunicándolo oportunamente a los oferentes participantes. Ante la declaratoria de desierto no cabrá ningún recurso.

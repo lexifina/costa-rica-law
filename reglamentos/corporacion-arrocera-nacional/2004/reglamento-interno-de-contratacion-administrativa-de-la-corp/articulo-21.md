@@ -1,0 +1,2 @@
+Artículo 21.—Invitación. El Registro deberá mantenerse en medios confiables, y se utilizará sus datos para enviar las invitaciones, cuando corresponda al tipo de concurso. Cuando existieran más de diez proveedores , se deberá invitar como máximo a diez de ellos, pero en ningún caso a menos de tres proveedores.
+Podrá participar en el concurso cualquier proveedor no registrado , si antes del vencimiento del plazo fijado para la presentación de las ofertas, logra formalizar su inscripción.

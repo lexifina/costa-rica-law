@@ -1,0 +1,1 @@
+Artículo 40.—Verificación del régimen de prohibición. El encargado de Proveeduría está obligado a verificar el cumplimiento y respeto del régimen de prohibiciones establecido en los artículos anteriores.

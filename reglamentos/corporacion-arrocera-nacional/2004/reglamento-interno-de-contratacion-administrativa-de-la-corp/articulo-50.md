@@ -1,0 +1,1 @@
+Artículo 50.—Modificaciones y aclaraciones al Requerimiento. Las modificaciones o aclaraciones al Requerimiento deberán hacerse del conocimiento de los interesados a través del medio que Conarroz considere oportuno, apegándose a los principios de contratación, y estas se incorporarán al expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 33.—Reajuste de Precios. Con el fin de mantener el equilibrio económico del contrato, el Contratista o Conarroz cuando así corresponda, estarán autorizados para solicitar el reajuste de precios tanto de los contratos terminados o en ejecución.

@@ -1,0 +1,1 @@
+Artículo 36.—Posibilidad de cesión. En cualquier caso en que el contratista requiera ceder sus obligaciones contractuales, deberá obtener de previo la autorización de parte de la Dirección Ejecutiva o la Junta Directiva según corresponda.

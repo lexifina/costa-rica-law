@@ -1,0 +1,7 @@
+Artículo 13.—Perfeccionamiento y formalización del contrato. Se tendrá por perfeccionada la relación contractual entre Conarroz y el contratista, cuando el acto de adjudicación adquiera firmeza.
+El acto de adjudicación adquiere firmeza en los siguientes casos:
+a) Contrato por medio de Orden de Compra: a partir de la entrega de la misma por parte de Conarroz y la firma y fecha de recibido del contratista.
+b) Contrato en simple documento: a partir de la firma de las partes.
+c) Contrato sujeto a refrendo de la Contraloría: Una vez refrendado y comunicado al contratista por parte de Conarroz.
+d) Cuando corresponda, las compras estarán sujetas a los procedimientos estipulados en las Normas ISO-IEC-INTE-17025:2000 “Requisitos generales para la competencia de laboratorios de ensayo y calibración” y la ISO-9001: “Sistemas de gestión de calidad. Requisitos”. En los casos a y b, cuando así proceda, de acuerdo a las normas establecidas en el Reglamento sobre el refrendo de las contrataciones de la Administración Publica, emitido por la Contraloría General de la República, de previo a la firmeza del acto deberá contar con el refrendo del Departamento Legal de Conarroz.
+Sólo requieren formalización en escritura pública las contrataciones que deban inscribirse en el Registro Nacional y las que por ley tengan que sujetarse a ese requisito, caso en el cual el contratista deberá cancelar el cincuenta por ciento de los gastos y honorarios al Abogado que Conarroz designe.
