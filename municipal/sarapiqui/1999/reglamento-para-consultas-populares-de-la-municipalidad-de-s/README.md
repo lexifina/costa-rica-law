@@ -14,3 +14,4 @@ Reglamento para Consultas Populares de la Municipalidad de Sarapiquí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-28 | la propia norma |
+| 2 | 2000-05-08 | Reglamento municipal 19 (2000-05-08) |
