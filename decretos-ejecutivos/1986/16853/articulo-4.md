@@ -1,0 +1,1 @@
+Articulo 4° Las actividades forestales, agrícolas, ganaderas o de investigación que se fueran a realizar en la zona protectora, deberán contar con la respectiva autorización extendida por la Dirección General Forestal.

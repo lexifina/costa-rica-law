@@ -1,0 +1,1 @@
+Artículo 6° Se establece en 10 hectáreas el área de la parcela mínima productiva. Por lo tanto, no pueden autorizarse segregaciones cuyas parcelas resultantes sean inferiores a esa unidad mínima productiva.

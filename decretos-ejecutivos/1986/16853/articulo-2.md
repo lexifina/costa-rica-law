@@ -1,0 +1,1 @@
+Artículo 2° Las fincas inscritas de propiedad particular, así como aquellas amparadas por la prosesión decenal y ubicadas dentro de los límites de la reserva, quedan automáticamente sometidas al régimen forestal

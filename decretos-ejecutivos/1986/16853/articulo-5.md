@@ -1,0 +1,1 @@
+Articulo 5° Los lineamientos técnicos para el manejo y administración de esta zona protectora, estarán estipuladas inicialmente en un Plan Operativo, y posteriormente un Plan de Manejo de Recursos Naturales, el cual deberá elaborarse a mas tardar quince meses después de la firma de este Decreto.
