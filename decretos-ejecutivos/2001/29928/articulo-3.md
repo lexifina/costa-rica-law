@@ -1,0 +1,1 @@
+Artículo 3º—Para el cumplimiento del presente decreto, la Comisión Liquidadora del Programa de Compensación Social trasladará al IMAS y al INVU los casos y los expedientes de las familias a las cuales se hace referencia en el artículo anterior, con lo cual dicho órgano colegiado dará por terminada sus funciones con relación a los indicados reclamos.
