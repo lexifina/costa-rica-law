@@ -1,1 +1,0 @@
-Artículo 3º.- Para efectos de organización y estudio de los documentos, el Archivo estará formado por tres secciones: Administrativa-Legislativa-Histórica y Jurídica, las que podrán contar con las oficinas necesarias para el cumplimiento de sus fines.
