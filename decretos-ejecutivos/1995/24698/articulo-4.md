@@ -1,0 +1,1 @@
+Artículo 4º- Forman parte del Programa las siguientes entidades: Segunda Vicepresidencia de la República; Dirección Genera de Desarrollo Social y Asignaciones Familiares; Instituto Mixto de Ayuda Social; Instituto Nacional de Aprendizaje; Centro Nacional para el Desarrollo de la Mujer y la Familia, y los Comités Comunales".
