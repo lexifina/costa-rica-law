@@ -1,0 +1,1 @@
+Artículo 20.-La Orden Rafael Ángel Calderón Guardia que confiera la Municipalidad de San José, a las personas con méritos debidamente comprobados, consistirá en una condecoración mediante un pergamino y la medalla de oro, con una leyenda alusiva a la misma, como el “ MERITO SUPERIOR” por haberse destacado en los campos y áreas que señala esta normativa para su procedencia.

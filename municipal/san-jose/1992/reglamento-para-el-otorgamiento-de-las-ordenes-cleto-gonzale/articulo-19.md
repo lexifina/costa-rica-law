@@ -1,0 +1,1 @@
+Artículo 19.-La Orden Tomás López de El Corral, que confiera la municipalidad de San José, a las organizaciones con mérito un pergamino y medalla de oro con una leyenda alusiva a la misma, como el "MERlTO SUPERIOR" que otorgue la Ciudad de San José, a tan distinguida organización.
