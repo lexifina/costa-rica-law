@@ -1,0 +1,1 @@
+Artículo 12°-. Exceptúanse de las disposiciones del artículo anterior el robo, en cualquiera cuantía y el abigeato, los cuales quedan sujetos á las penas establecidas en los Capítulos 1° y 2°, Título 3°, lib. 3° parte 2a del Cód. general.

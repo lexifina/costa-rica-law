@@ -1,0 +1,1 @@
+Artículo 22°-La propia pena se aplicará, á petición del marido, á la mujer que sin autorización legal ó un grave motivo á juicio de la autoridad, mudase de habitación, abandono aquella que le estuviere destinada por el marido ó la autoridad.
