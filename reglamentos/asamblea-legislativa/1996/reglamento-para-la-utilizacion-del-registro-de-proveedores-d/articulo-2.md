@@ -1,0 +1,5 @@
+Artículo 2°-Órgano responsable
+1. El Departamento de Proveeduría será el órgano responsable de conformar y mantener actualizado el Registro de Proveedores.
+2. Las demás unidades administrativas de la Asamblea Legislativa deberán prestar la colaboración que el Departamento de Proveeduría requiera para garantizar que el Registro de Proveedores cumpla en debida forma, con su función.
+3. El Departamento de Proveeduría establecerá los requisitos a observar por los interesados en integrarse al Registro y señalará, sobre la base de las disposiciones del presente Reglamento, la documentación que deberá aportarse para lograr una debida. identificación de los potenciales oferentes. También requerirá toda la información que resulte necesaria para una adecuada categorización de los bienes y servicios que interesen.
+4. El Departamento de Proveeduría, con base en la información del Registro y la experiencia que vaya acumulando, podrá categorizar a los proveedores, según la naturaleza de los requerimientos propios de la Asamblea o los parámetros de medición del desempeño vinculados con plazos de entrega, calidad, cantidad, precios, servicios y otros.
