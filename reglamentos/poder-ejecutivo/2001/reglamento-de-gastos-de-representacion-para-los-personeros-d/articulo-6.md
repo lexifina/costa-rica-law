@@ -1,0 +1,1 @@
+Articulo 6°—Los gastos de representación sólo se reconocerán contra la presentación de la respectiva factura o tiquete de caja. En ningún caso se aceptará un justificante que sustituya la factura o el tiquete de caja.

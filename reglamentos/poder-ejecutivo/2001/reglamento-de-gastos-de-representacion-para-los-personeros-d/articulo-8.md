@@ -1,0 +1,1 @@
+Artículo 8° —Todo gasto de representación dentro del país. Deberá contar con el correspondiente contenido presupuestario y se deberá liquidar en un plazo no mayor a los diez días después de incurrido el gasto.

@@ -1,0 +1,1 @@
+Articulo 10. Los gastos de representación fuera del país, se regirán por lo que establece el "Reglamento de gastos de viaje y de transporte para funcionarios públicos", emitido por la Contraloría General de la República.

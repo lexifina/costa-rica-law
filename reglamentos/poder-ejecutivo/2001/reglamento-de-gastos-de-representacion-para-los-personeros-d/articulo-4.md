@@ -1,0 +1,1 @@
+Artículo 4°—Los personeros autorizados a gastos de representación dentro del país, quedan facultados, para solicitar anticipos de dinero para la ejecución del gasto, en los respectivos Centros de Negocios en donde esté ubicada su oficina, debiendo realizar la liquidación correspondiente en un plazo no mayor de diez días hábiles después de solicitado el anticipo.

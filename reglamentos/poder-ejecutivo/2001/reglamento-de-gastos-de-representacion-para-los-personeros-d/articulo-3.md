@@ -1,0 +1,1 @@
+Articulo 3°— Estarán autorizados a gastos de re presentación los siguientes personeros: miembros de Junta Directiva General, Gerente y Subgerentes Generales, Auditor y Subauditor Generales y los Gerentes de Centros de Negocios; estos últimos, dentro de su respectiva jurisdicción.
