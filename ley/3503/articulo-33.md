@@ -1,4 +1,4 @@
-Artículo 33.- Cuando se trate de concesiones para la
+Artículo 33(*).- Cuando se trate de concesiones para la
 explotación de transporte automotor de personas en vehículos
 colectivos, la tarifa se fijará por pasajero y se aplicará,
 uniformemente, a todas las personas que utilicen los vehículos,
@@ -17,3 +17,4 @@ Social.
 En caso de permisos, la tarifa podrá fijarse por pasajero,
 pasaje completo, tiempo o distancia recorrida.
 (Así reformado por el artículo 1 de la Ley No. 7936 de 15 de noviembre de 1999).
+(* Nota de SINALEVI : Según el Dictámen N° 037 de 25 de febrero del 2000, este artículo se encuentra derogado tácitamente por el artículo 57 de la Ley 7969 de 22 de diciembre de 1999, en cuanto que la fijación de las tarifas es competencia exclusiva de la ARESEP).
