@@ -1,0 +1,3 @@
+Artículo 80
+La elección de miembros de la Comisión se hará de entre los candidatos que figuren en la lista a que se refiere el artículo 79, por votación secreta de la Asamblea General y se declararán elegidos los candidatos que obtengan mayor número de votos y la mayoría absoluta de los votos de los representantes de los Estados Miembros. Si para elegir a todos los miembros de la Comisión resultare necesario efectuar varias votaciones, se eliminará sucesivamente, en la forma que determine la Asamblea General, a los candidatos que reciban menor número de votos.
+Sección 2. Corte Interamericana de Derechos Humanos

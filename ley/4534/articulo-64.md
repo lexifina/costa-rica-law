@@ -1,0 +1,3 @@
+Artículo 64
+Los Estados miembros de la Organización podrán consultar a la Corte acerca de la interpretación de esta Convención o de otros tratados concernientes a la protección de los derechos humanos en los Estados Americanos. Asimismo, podrán consultarla, en lo que les compete, los órganos enumerados en el capítulo X de la Carta de la Organización de los Estados Americanos, reformada por el Protocolo de Buenos Aires.
+La Corte, a solicitud de un Estado miembro de la Organización, podrá darle opiniones acerca de la compatibilidad entre cualquiera de sus leyes internas y los mencionados instrumentos internacionales.

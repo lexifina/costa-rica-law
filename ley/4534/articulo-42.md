@@ -1,0 +1,2 @@
+Artículo 42
+Los Estados Partes deben remitir a la Comisión copia de los informes y estudios que en sus respectivos campos someten anualmente a las Comisiones Ejecutivas del Consejo Interamericano Económico y Social del Consejo Interamericano para la Educación, la Ciencia y la Cultura, a fin de que aquélla vele por que se promuevan los derechos derivados de las normas económicas, sociales y sobre educación, ciencia y cultura, contenidas en la Carta de la Organización de los Estados Americanos, reformada por el Protocolo de Buenos Aires.

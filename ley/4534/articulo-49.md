@@ -1,0 +1,2 @@
+Artículo 49
+Si se ha llegado a una solución amistosa con arreglo a las disposiciones del inciso f) del artículo 48 de la Comisión redactará un informe que será transmitido al peticionario y a los Estados Partes en esta Convención y comunicarlo después, para su publicación, al Secretario General de la Organización de los Estados Americanos. Este informe contendrá una breve exposición de los hechos y de la solución lograda. Si cualquiera de las partes en el caso lo solicitan, se les suministrará la más amplia información posible.
