@@ -14,3 +14,4 @@ Reforma Régimen No Contributivo de Pensiones de Monto Básico.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-19 | la propia norma |
+| 2 | 2000-01-19 | Ley 8 |
