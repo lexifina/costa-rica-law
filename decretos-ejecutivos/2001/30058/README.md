@@ -18,3 +18,4 @@ Reglamento de la Ley de Administración Financiera de la República y Presupuest
 | 3 | 2002-12-09 | Decreto Ejecutivo 30903 (2002-12-09) |
 | 4 | 2003-08-25 | Decreto Ejecutivo 31337 (2003-08-25) |
 | 5 | 2003-10-03 | Decreto Ejecutivo 31433 (2003-10-03) |
+| 6 | 2004-08-13 | Decreto Ejecutivo 31975 (2004-08-13) |
