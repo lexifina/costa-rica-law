@@ -28,32 +28,30 @@ representadas como tales en el seno del Comité de Coordinación, sus
 representantes deberán ser designados entre los Estados miembros del Comité
 de Coordinación.
 3) El Comité de Coordinación:
-i) aconsejará a los órganos de las Uniones, a la Asamblea General,
-a la Conferencia y al Director General sobre todas las
-cuestiones administrativas y financieras y sobre todas las demás
-cuestiones de interés común a dos o varias Uniones, o a una o
-varias Uniones y a la Organización, y especialmente respecto al
-presupuesto de los gastos comunes a las Uniones;
+i) aconsejará a los órganos de las Uniones, a la Asamblea General, a
+la Conferencia y al Director General sobre todas las cuestiones
+administrativas y financieras y sobre todas las demás cuestiones de interés
+común a dos o varias Uniones, o a una o varias Uniones y a la Organización,
+y especialmente respecto al presupuesto de los gastos comunes a las
+Uniones;
 ii) preparará el proyecto de orden del día de la Asamblea General;
 iii) preparará el proyecto de orden del día y los proyectos de
 programa y de presupuesto de la Conferencia;
-iv) sobre la base del presupuesto trienal de los gastos comunes a
-las Uniones y del presupuesto trienal de la Conferencia, así
-como sobre la base del programa trienal de asistencia
-técnico-jurídica, adoptará los presupuestos y programas anuales
-correspondientes;
+iv) sobre la base del presupuesto trienal de los gastos comunes a las
+Uniones y del presupuesto trienal de la Conferencia, así como sobre la base
+del programa trienal de asistencia técnico-jurídica, adoptará los
+presupuestos y programas anuales correspondientes;
 v) al cesar en sus funciones el Director General o en caso de que
-quedara vacante dicho cargo, propondrá el nombre de un candidato
-para ser designado para ese puesto por la Asamblea General; si
-la Asamblea General no designa al candidato propuesto, el Comité
-de Coordinación presentará otro candidato, repitiéndose este
-procedimiento hasta que la Asamblea General designe al último
-candidato propuesto;
+quedara vacante dicho cargo, propondrá el nombre de un candidato para ser
+designado para ese puesto por la Asamblea General; si la Asamblea General
+no designa al candidato propuesto, el Comité de Coordinación presentará
+otro candidato, repitiéndose este procedimiento hasta que la Asamblea
+General designe al último candidato propuesto;
 vi) si quedase vacante el puesto de Director General entre dos
-reuniones de la Asamblea General, designará un Director General
-interino hasta que entre en funciones el nuevo Director General;
-vii) ejercerá todas las demás funciones que le estén atribuidas
-dentro del marco del presente Convenio.
+reuniones de la Asamblea General, designará un Director General interino
+hasta que entre en funciones el nuevo Director General;
+vii) ejercerá todas las demás funciones que le estén atribuidas dentro
+del marco del presente Convenio.
 4) a) El Comité de Coordinación se reunirá en sesión ordinaria una vez al
 año, mediante convocatoria del Director General. Se reunirá en principio,
 en la Sede de la Organización.

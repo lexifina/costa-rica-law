@@ -8,12 +8,11 @@ será inferior a seis años. Su nombramiento podrá ser renovado por otros
 períodos determinados. La duración del primer período y la de los
 eventuales períodos siguientes, así como todas las demás condiciones de su
 nombramiento, serán fijadas por la Asamblea General.
-4) a) El Director General es el más alto funcionario de la
-Organización.
+4) a) El Director General es el más alto funcionario de la Organización.
 b) Representa a la Organización.
 c) Será responsable ante la Asamblea General, y seguirá sus
-instrucciones en lo que se refiere a los asuntos internos y externos
-de la Organización.
+instrucciones en lo que se refiere a los asuntos internos y externos de la
+Organización.
 5) El Director General preparará los proyectos de presupuestos y de
 programas, así como los informes periódicos de actividades. Los
 transmitirá a los gobiernos de los Estados interesados, así como a los
@@ -39,8 +38,8 @@ más amplia posible.
 del personal es estrictamente internacional. En el cumplimiento de sus
 deberes, no solicitarán ni recibirán instrucciones de ningún gobierno ni de
 ninguna autoridad ajena a la Organización. Se abstendrán de todo acto que
-pueda comprometer su situación de funcionarios internacionales. Cada
-Estado miembro se compromete a respetar el carácter exclusivamente
+pueda comprometer su situación de funcionarios internacionales.
+Cada Estado miembro se compromete a respetar el carácter exclusivamente
 internacional de las funciones del Director General y de los miembros del
 personal y a no tratar de influir sobre ellos en el ejercicio de sus
 funciones.

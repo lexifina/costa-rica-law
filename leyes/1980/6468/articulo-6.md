@@ -10,27 +10,25 @@ la haya designado.
 2) La Asamblea General:
 i) designará al Director General a propuesta del Comité de
 Coordinación;
-ii) examinará y aprobará los informes del Director General
-relativos a la Organización y le dará las instrucciones
-necesarias;
-iii) examinará y aprobará los informes y las actividades del Comité
-de Coordinación y le dará instrucciones;
+ii) examinará y aprobará los informes del Director General relativos a
+la Organización y le dará las instrucciones necesarias;
+iii) examinará y aprobará los informes y las actividades del Comité de
+Coordinación y le dará instrucciones;
 iv) adoptará el presupuesto trienal de los gastos comunes a la
 Uniones;
 v) aprobará las disposiciones que proponga el Director General
-concernientes a la administración de los acuerdos
-internacionales mencionados en el Artículo 4. iii);
+concernientes a la administración de los acuerdos internacionales
+mencionados en el Artículo 4. iii);
 vi) adoptará el reglamento financiero de la Organización;
-vii) determinará los idiomas de trabajo de la Secretaría, teniendo
-en cuenta la práctica en las Naciones Unidas;
+vii) determinará los idiomas de trabajo de la Secretaría, teniendo en
+cuenta la práctica en las Naciones Unidas;
 viii) invitará a que sean parte en el presente Convenio a aquellos
 Estados señalados en el artículo 5. 2) ii);
 ix) decidirá qué Estados no miembros de la Organización y qué
-organizaciones intergubernamentales e internacionales no
-gubernamentales, podrán ser admitidos en sus reuniones a título
-de observadores;
-x) ejercerá las demás funciones que sean convenientes dentro del
-marco del presente Convenio.
+organizaciones intergubernamentales e internacionales no gubernamentales,
+podrán ser admitidos en sus reuniones a título de observadores;
+x) ejercerá las demás funciones que sean convenientes dentro del marco
+del presente Convenio.
 3) a) Cada Estado, sea miembro de una o de varias Uniones, dispondrá
 de un voto en la Asamblea General.
 b) La mitad de los Estados miembros de la Asamblea General constituirá

@@ -21,11 +21,11 @@ disposiciones administrativas de sus respectivos convenios.
 General haya recibido notificación escrita de su aceptación, efectuada de
 conformidad con sus respectivos procedimientos constitucionales, de tres
 cuartos de los Estados que eran miembros de la Organización y que tenían
-derecho de voto sobra la modificación propuesta según el apartado 2), en el
-momento en que la modificación hubiese sido adoptada por la Conferencia.
-Toda modificación así aceptada obligará los Estados que sean miembros de la
-Organización en el momento en que la modificación entre en vigor o que se
-hagan miembros en una fecha ulterior; sin embargo, toda modificación que
-incremente las obligaciones financieras de los Estados miembros, sólo
-obligará a los Estados que hayan notificado su aceptación de la mencionada
-modificación.
+derecho de voto sobra la modificación propuesta según el apartado
+2), en el momento en que la modificación hubiese sido adoptada por la
+Conferencia. Toda modificación así aceptada obligará los Estados que sean
+miembros de la Organización en el momento en que la modificación entre en
+vigor o que se hagan miembros en una fecha ulterior; sin embargo, toda
+modificación que incremente las obligaciones financieras de los Estados
+miembros, sólo obligará a los Estados que hayan notificado su aceptación de
+la mencionada modificación.
