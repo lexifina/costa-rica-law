@@ -1,0 +1,1 @@
+Artículo 25.—La fotografía de las personas que formarán parte de la Galería de la Mujer serán en blanco y negro, con las siguientes dimensiones: 50 cms de alto x 30 cms de ancho al pie de la cual figurará su nombre.

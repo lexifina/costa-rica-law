@@ -1,0 +1,1 @@
+Artículo 14.—Para efectos de votación se aprobará o se descartará una moción o propuesta con la mayoría absoluta de los presentes. Si después de dos rondas persiste el empate, el/la Presidente (a) de la Comisión ejercerá voto de calidad.

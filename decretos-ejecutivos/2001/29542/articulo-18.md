@@ -1,0 +1,1 @@
+Artículo 18.—Las candidaturas tendrán vigencia sólo para el período que se estipula en la convocatoria, éstas deben hacerse llegar por escrito al Área Especializada de Comunicación del INAMU, dentro del lapso señalado para la recepción de la misma.

@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión sesionará de forma ordinaria, una vez al mes y, extraordinariamente, cuando sea necesario, la cual será convocada por su Presidenta, de acuerdo al artículo 52, inciso 3 de la Ley General de la Administración Pública.
