@@ -15,3 +15,7 @@ café, se le dará especial atención a la introducción de prácticas de
 conservación de suelos; a la distribución de plantas de variedades
 superiores y seleccionadas; a la aplicación racional de abonos y al
 establecimiento de prácticas culturales que se consideren convenientes.
+( Al derogarse el impuesto establecido en esta ley - artículo 7º de
+la Ley Nº 1411 de 19 de enero de 1952 - y encontrándose derogado de
+manera tácita su artículo 3º - ver observaciones del mismo - el presente
+artículo quedó TACITAMENTE DEROGADO)
