@@ -1,0 +1,1 @@
+Articulo 14.— La Secretaría Ejecutiva , estará a cargo de un Director de libre nombramiento y remoción del Presidente del Consejo, previa consulta con los demás miembros del. Consejo Nacional Sectorial. El Director estará subordinado al Presidente del Consejo Nacional de Trabajo y Seguridad Social.
