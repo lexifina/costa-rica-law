@@ -1,0 +1,1 @@
+Artículo 4°.-La base para el remate de cada local o puesto de venta será fijada por el Gobernador o Jefe Político, el Presidente Municipal y el de la Comisión de Sanidad, si la hubiere; y esa fijación deber ser aprobada por el Poder Ejecutivo.
