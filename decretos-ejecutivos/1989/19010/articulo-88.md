@@ -1,3 +1,2 @@
-TITULO QUINTO
-Disposiciones finales
-Artículo 88.- El presente reglamento deja sin efecto el Reglamento General de Visas, número doce mil novecientos tres-S, de cuatro de agosto de mil novecientos ochenta y uno, y cualesquiera otra disposición o acuerdo de igual o inferior rango, que se le opongan.
+Artículo 88.—El procedimiento de cancelación de la permanencia se podrá iniciar de oficio o a instancia de parte.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 29964 del 5 de noviembre de 2001)
