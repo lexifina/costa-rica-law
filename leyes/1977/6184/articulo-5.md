@@ -1,1 +1,0 @@
-Artículo 5º.- Los préstamos tendrán un interés no mayor del ocho por ciento (8%) anual y un plazo no inferior a quince años con un período de gracia de cinco años. Los pagos sobre amortización e intereses se harán de acuerdo con el reglamento que establezca el Banco Central, según las explotaciones del bosque.
