@@ -1,0 +1,1 @@
+Art. 4. Todo el que sabiendo de la ocultacion de alguna arma o elemento de guerra, no la denunciase, incurrirá en las penas que establece el art. 20 de este decreto, y al denunciante en este caso se le darán yeinticineo pesos.
