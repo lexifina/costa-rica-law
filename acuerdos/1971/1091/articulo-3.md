@@ -1,0 +1,1 @@
+Artículo 3°- El Poder Ejecutivo contribuirá y procurará la repatriación de sus restos que reposaran en un parque en su memoria en San Rafael de Oreamuno, Cartago, lugar de su nacimiento, nombrando para ese propósito, una comisión de ciudadanos.
