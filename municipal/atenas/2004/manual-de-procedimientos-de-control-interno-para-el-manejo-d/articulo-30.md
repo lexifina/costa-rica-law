@@ -1,0 +1,1 @@
+Artículo 30.—Todo arqueo de caja chica se realizará en presencia de la Tesorera Municipal, según lo dispuesto en el numeral 109 del Código Municipal o en presencia del funcionario que esta designe para tales efectos. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.

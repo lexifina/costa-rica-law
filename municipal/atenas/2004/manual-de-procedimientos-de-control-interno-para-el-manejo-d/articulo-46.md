@@ -1,0 +1,1 @@
+Artículo 46.—Las sanciones que correspondan, según lo dispuesto en este Capítulo, serán aplicadas por el Alcalde Municipal, de conformidad con lo que establece en esta materia, la Convención Colectiva (si la hubiere), el Código Municipal, el Código de Trabajo y otras normas conexas.
