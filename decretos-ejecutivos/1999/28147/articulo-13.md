@@ -17,3 +17,6 @@ o) Definir prioridades de investigación en este campo, de acuerdo a resultados 
 p) Sistematizar a nivel nacional la información sobre mortalidades maternas, seleccionando los indicadores que alimentarán la base de datos, y mantenerlo actualizado.
 q) Investigar y corregir el registro de las mortalidades maternas en el país.
 r) Coordinar y retroalimentar al programa nacional parteras tradicionales.
+s) Convocar a reuniones ordinarias y extraordinarias a los Comités Hospitalarios y Regionales, para dar seguimiento, apoyo, capacitación y análisis en todo lo relacionado con el actuar de los Comités de Mortalidad Materna, siempre que cada miembro cuente con el permiso respectivo de su jefaturas y direcciones médicas, en respecto del orden jerárquico.
+t) Emitir recomendaciones a los Comités Hospitalarios y Regionales para mejorar la calidad de la atención a la población materno infantil.
+(Ampliado por el artículo 1° del Decreto Ejecutivo N° 28844, del 26 de julio del 2000)

@@ -14,3 +14,4 @@ Reglamento sobre el Sistema Nacional de Evaluación de Mortalidad Materna.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-22 | la propia norma |
+| 2 | 2000-07-26 | Decreto Ejecutivo 28844 (2000-07-26) |
