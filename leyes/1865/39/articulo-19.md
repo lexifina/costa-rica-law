@@ -1,0 +1,1 @@
+Art 19°. – Es a cargo de la autoridad judicial o de la policía mandar trasladar los individuos o cadáver de cuyo examen el Médico del pueblo haya de ocuparse, bien sean heridos o muertos, dementes o ebrios, a una localidad propia al efecto, en donde pueda suministrárseles socorros a efectuar el reconocimiento, proporcionando al Médico el personal auxiliar que necesite.

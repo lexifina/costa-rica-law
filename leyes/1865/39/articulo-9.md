@@ -1,0 +1,1 @@
+Art 9°. – Se considerarán notoriamente pobres y tendrán como tales derechos a la asistencia gratuita, solo aquellos enfermos que presentasen un certificado de pobreza expedido por el Gobernador respectivo, el cual los inscribirá en un registro que el efecto ha de llevar.

@@ -1,0 +1,2 @@
+Art 22° Debe velar por la ejecución y observancia de las leyes que tienen por objeto la conservación y mejora de la salud pública, dando aviso oportuno al Gobernador, de toda infracción que llegue a su conocimiento para la debida reparación.
+Especialmente le incumple la obligación de dar este aviso, luego de que tenga noticia de haber aparecido alguna enfermedad contagiosa o epidémica, proponiendo las medidas preventivas que deban tomarse a su juicio, y valiéndose de todos los recursos que estén a su alcance para impedir el progreso de la enfermedad.

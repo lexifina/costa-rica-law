@@ -1,0 +1,2 @@
+Art 11°. – El Médico del pueblo tendrá su resistencia en la cabecera de la Provincia (artículo 280 del Código Penal). En cada una de estas, la Municipalidad con audiencia del Médico del pueblo, fijará las distancias y los límites dentro de los cuales él mismo está obligado a visitar a los enfermos pobres en sus casas, siempre que no pudiesen salir de ellas.
+Los que residan en el campo fuera de la designada fuera de la distancia, designada, según el párrafo anterior, deben trasladarse a la ciudad, si quieren ocurrir al auxilio del Médico del pueblo.

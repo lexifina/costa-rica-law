@@ -1,0 +1,2 @@
+Art 14° Las Medicinas, y en su caso los alimentos, el lavado, etc., que necesitare el enfermo pobre, han de proporcionársele de los respectivos, fondos municipales, es decir, de los de la Provincia en que tiene su domicilio conforme a las órdenes que diere por escrito el Médico del pueblo. Si este tuviere botica propia, le es prohibido suministrar de ella los medicamentos, a o ser que la Municipalidad haya hecho con el de antemano un arreglo especial.
+No habiendo tal arreglo, las recetas se dirigirán a la botica que la Municipalidad designare.

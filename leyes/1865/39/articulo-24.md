@@ -1,0 +1,1 @@
+Art 24° El Médico del pueblo ha de dar aviso a la autoridad de policía de todos los casos de muerte violenta, envenenamiento, infanticidio, aborto voluntario, estupro violento, y de cualquiera lesión o maltratamiento graves que lleguen a su noticia, principalmente cuando existan indicios de haberse cometido un delito o culpa punible.

@@ -1,0 +1,1 @@
+Art 12° El Médico del pueblo ha de señalar una hora determinada para despachar diariamente en su casa, contestando consultas y recetando a los pobres que acudan, cualquiera que sea la distancia en que residan.

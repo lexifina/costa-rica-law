@@ -1,0 +1,1 @@
+Art 28° Si en los puertos de la República no hubiere Médicos especialmente empleados al efecto, el del pueblo a más de sus funciones ordinarias, está encargado de la policía sanitaria en las naves mercantes y demás embarcaciones particulares y cuidará principalmente de la estricta observancia de las disposiciones legales sobre cuarentena.

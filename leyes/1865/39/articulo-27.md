@@ -1,0 +1,1 @@
+Art 27° Cada tres meses, el Médico del pueblo presentará a la municipalidad por conducto del Gobernador, un informe razonado sobre el estado de la salud pública en su Distrito o Provincia quedando un duplicado en el archivo de su cargo.

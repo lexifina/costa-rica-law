@@ -1,0 +1,2 @@
+Art 5°. – Siempre que el Médico del pueblo quiera hacer renuncia de su destino, deben dar aviso a la Municipalidad, con un mes de anticipación.
+En las separaciones accidentales, que no pueden verificarse, sino con previa licencia del Gobernador, con tal que no excedan ocho días y de la Municipalidad si fuesen por más tiempo, el Médico del pueblo será sustituido por la persona que el mismo designase con aprobación del Gobernador.
