@@ -1,0 +1,1 @@
+Art. 3. Queda encargado el Presidente del Congreso de convocar A los Señores Representantes cuando haya tenido lagar el objeto de que habla el art. 1° -Al Poder Ejecutivo. -Dado en la ciudad de San José los veintinueve dias del mes de setiembre de mil ochocientos cuarenta y ocho. -Nazario Toledo. Diputado Vicepresidente incidental
