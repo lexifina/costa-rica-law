@@ -1,0 +1,8 @@
+N° 6373-A
+EL PRESIDENTE DE LA REPUBLlCA
+Y EL MINISTRO DE AGRICULTURA, GANADERIA Y COMERCIO,
+DECRETAN:
+Artículo 1°-Refórmase el artículo 27 del Reglamento de la Ley de Seguro Integral de Cosechas, emitido por Decreto Ejecutivo N° 70 de 16 de abril de 1970 y sus reformas, para que se lea así:
+"Artículo 27.-Cuando la ocurrencia de los riesgos indicados en el artículo anterior, arroje resultados que excedan del monto de la Reserva Técnica de Contingencias y de los Reaseguros en vigor, del Seguro Integral de Cosechas, la responsabilidad máxima del Instituto como asegurador; estará limitada al total de los expresados recursos; y, en consecuencia, pagará la indemnización que corresponda a cada póliza vigente, sin exceder del monto asegurado, con sujeción a la siguiente fórmula:
+| Monto Reserva Técnica de Contingencias del Seguro Integral de Cosechas más monto total de los Reaseguros en vigor para este régimen .. X 100
+Por ciento (%) de indemnización = (Menor al ciento por ciento) | = --------------------------------------------- Monto total de los reclamos
