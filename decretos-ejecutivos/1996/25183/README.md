@@ -13,3 +13,4 @@ Reestructura la División de Transportes del MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-11 | la propia norma |
+| 2 | 1996-05-16 | SINALEVI (sin norma nombrada) |
