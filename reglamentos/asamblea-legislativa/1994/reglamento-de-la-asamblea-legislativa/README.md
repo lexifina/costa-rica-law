@@ -20,3 +20,4 @@ Reglamento de la Asamblea Legislativa
 | 5 | 1998-11-02 | Reglamento 4053 (1998-11-02) |
 | 6 | 1999-11-09 | SINALEVI (sin norma nombrada) |
 | 7 | 2001-02-14 | Reglamento 5085 (2001-02-14) |
+| 8 | 2001-12-10 | Reglamento 0 (2001-12-10) |
