@@ -1,1 +1,0 @@
-Artículo 6°-Las entidades públicas y privadas que forman la Comisión Asesora de la Actividad Lechera, aportarán voluntariamente a ésta, la ayuda necesaria a fin de facilitarle el equipo, personal y presupuesto para el buen desempeño de sus funciones.
