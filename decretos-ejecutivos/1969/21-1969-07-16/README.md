@@ -13,3 +13,4 @@ Crea Concejo Distrito de Tucurrique Cantón Jiménez
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-08-01 | la propia norma |
+| 2 | 1969-08-01 | SINALEVI (sin norma nombrada) |
