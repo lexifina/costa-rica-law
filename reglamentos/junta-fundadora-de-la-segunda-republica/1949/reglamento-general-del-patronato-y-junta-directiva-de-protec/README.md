@@ -30,3 +30,4 @@ Reglamento General del Patronato y Junta Directiva de Protección Social de San 
 | 16 | 1970-05-30 | Decreto Ejecutivo 1033 (1970-05-30) |
 | 17 | 1971-05-08 | Decreto Ejecutivo 1688 (1971-05-08) |
 | 18 | 1971-09-16 | Decreto Ejecutivo 1950 (1971-09-16) |
+| 19 | 1972-09-20 | Decreto Ejecutivo 2534 (1972-09-20) |

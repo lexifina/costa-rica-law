@@ -1,2 +1,3 @@
-Artículo 53.-En representación de la Junta Directiva asistirá a los sorteos el Presidente de la misma o la persona que éste designe, debiendo recaer esa designación de preferencia en un miembro del Patronato. También concurrirá el Jefe del Departamento de Lotería o un delegado suyo, y en calidad de Inspector uno de los Alcaldes Penales del Cantón Central de San José. Todos deberán firmar el acta conteniendo la relación de las operaciones y el resultado del sorteo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 13 del 18 de setiembre de 1965).
+Artículo 53.-El Jefe del Departamento de Lotería. El Auditor de la Junta y un Alcalde Penal del Cantón Central de San José, presenciarán y darán fe de la corrección de todas las operaciones correspondientes a los sorteos incluso de las listas de premios publicadas, haciéndolo constar así en el Acta que firmarán al efecto.
+El Jefe de Loterías y el Auditor serán sustituidos en sus ausencias a los sorteos por los mismos funcionarios que los sustituyen reglamentariamente
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2534 del 20 de setiembre de 1972).
