@@ -1,4 +1,3 @@
-Artículo 29.- Las instituciones de enseñanza especial deberán
-suministrar a los padres de sus alumnos la información necesaria que les
-permita comprender y atender mejor los problemas de adaptación de sus
-hijos.
+ARTICULO 29.-
+Los centros educativos deberán suministrar a sus alumnos y a los padres, la información necesaria para que participen, comprendan y apoyen el proceso educativo.
+(Así reformado por el artículo 73 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad No.7600 del 2 de mayo de 1996)

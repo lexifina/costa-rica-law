@@ -1,7 +1,4 @@
 CAPITULO IV
 De la Educación Especial
-Artículo 27.- La Educación Especial es la que se imparte a los niños
-y adolescentes cuyas características físicas, mentales, emocionales o
-sociales se aparten del tipo normal, con el objeto de favorecer el
-desarrollo de sus capacidades y su incorporación a la sociedad como
-elementos útiles.
+ARTICULO 27.-La educación especial es el conjunto de apoyos y servicios a disposición de los alumnos con necesidades educativas especiales, ya sea que los requieran temporal o permanentemente.
+(Así reformado por el artículo 73 (actual 86) de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad No.7600 del 2 de mayo de 1996)

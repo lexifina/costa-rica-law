@@ -1,15 +1,4 @@
 CAPITULO X
 Disposiciones Finales
-Artículo 49.- Deróganse los artículos siguientes del Código de
-Educación: del Capítulo I, Principios Generales de la Educación, los
-artículos 1º, 2º, 3º, 4º y 5º. Del Libro I, de la Educación Primaria,
-Título I, Disposiciones Generales, el artículo 14, el primer párrafo del
-artículo 15, y los artículos 16 y 17. Del Capítulo V, de las Juntas de
-Educación, Disposiciones Generales, los artículos 31 y 32. Del Título
-VI, de las Escuelas Particulares de Educación Primaria, Capítulo I,
-Disposiciones Generales, los artículos 247, 248 y 249. Del Libro II, de
-la Educación Secundaria, Título I, de los Colegios Oficiales de Segunda
-Enseñanza, Capítulo I, Disposiciones Generales, el artículo 264. Del
-Título III, de las Juntas Administrativas, los Artículos 398 y 399. Del
-Libro V, de la Educación Especial, el artículo 471. Del Libro VI, de la
-Educación Vocacional, el artículo 472.
+ARTICULO 49.-
+Deróganse los artículos siguientes del Código de Educación: del Capítulo I, Principios Generales de la Educación, los artículos 1º, 2º, 3º, 4º y 5º. Del Libro I, de la Educación Primaria, Título I, Disposiciones Generales, el artículo 14, el primer párrafo del artículo 15, y los artículos 16 y 17. Del Capítulo V, de las Juntas de Educación, Disposiciones Generales, los artículos 31 y 32. Del Título VI, de las Escuelas Particulares de Educación Primaria, Capítulo I, Disposiciones Generales, los artículos 247, 248 y 249. Del Libro II, de la Educación Secundaria, Título I, de los Colegios Oficiales de Segunda Enseñanza, Capítulo I, Disposiciones Generales, el artículo 264. Del Título III, de las Juntas Administrativas, los Artículos 398 y 399. Del Libro V, de la Educación Especial, el artículo 471. Del Libro VI, de la Educación Vocacional, el artículo 472.

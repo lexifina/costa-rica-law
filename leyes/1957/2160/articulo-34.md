@@ -1,10 +1,3 @@
-Artículo 34.- Para que adquiera validez oficial la educación que
-imparten los establecimientos privados, el Consejo Superior de Educación
-deberá:
-a) Aprobar sus propósitos, planes de estudio y programas de acuerdo
-con el reglamento que con ese objeto se dicte;
-b) Autorizar la expedición de certificados y títulos que sean de
-categoría o validez legal similar a los oficiales; y
-c) Ejercer la vigilancia necesaria para que sus cuadros de
-profesores y funcionarios administrativos estén formados por personas que
-reúnan las condiciones señaladas por el artículo 38.
+ARTICULO 34.-
+Anulado.
+(Por resolución de la Sala Constitucional No. 3550 de las 16 horas del 24 de noviembre de 1992, se declara inconstitucional y se anula por conexidad éste articulo, cuyo texto disponía lo siguiente: "Para que adquiera validez oficial la educación que imparten los establecimientos privados, el Consejo Superior de Educación deberá: a) Aprobar sus propósitos, planes de estudio y programas de acuerdo con el reglamento que con ese objeto se dicte; b) Autorizar la expedición de certificados y títulos que sean de categoría o validez legal similar a los oficiales; y c) Ejercer la vigilancia necesaria para que sus cuadros de profesores y funcionarios administrativos estén formados por personas que reúnan las condiciones señaladas por el artículo 38").
