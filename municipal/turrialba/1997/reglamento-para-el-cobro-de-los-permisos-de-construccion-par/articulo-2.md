@@ -1,0 +1,1 @@
+Artículo 2°-El presente Reglamento se crea exclusivamente para aplicarlo a aquellas personas que sean beneficiarias del bono gratuito de la vivienda y que clasifiquen para esta clase de ayuda, según este reglamento.

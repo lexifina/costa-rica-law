@@ -1,0 +1,1 @@
+Artículo 3°-La administración municipal cobrará hasta un mínimo de un 0,25% del impuesto sobre los permisos de construcción, para aquellas personas que así lo soliciten por escrito al Departamento de Ingeniería Municipal y que clasifiquen para este beneficio, según este reglamento. .

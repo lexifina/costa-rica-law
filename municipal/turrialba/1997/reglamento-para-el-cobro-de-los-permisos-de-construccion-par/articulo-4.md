@@ -1,0 +1,1 @@
+Artículo 4°-Los solicitantes de este beneficio municipal deberán aportar además de los documentos respectivos que los acrediten como beneficiarios de un bono gratuito de la vivienda, la correspondiente certificación de interés social y un estudio socio-económico realizado por el !MAS.
