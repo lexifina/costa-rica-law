@@ -1,0 +1,12 @@
+Nº 31998-MCJD
+El PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE CULTURA, JUVENTUD Y DEPORTES
+Con fundamento en los artículos 140 y 146 de la Constitución Política de Costa Rica, 25.1, 27.1 y 28.2.b de la Ley General de la Administración Pública.
+Considerando:
+1º—Que en el año 2006, se conmemorará el 150 aniversario de la Campaña Nacional contra los Filibusteros, (1856-1857), acontecimiento histórico que ha sido de gran relevancia para la conformación de la nacionalidad costarricense, y que al igual que muchos otros, ha marcado nuestro devenir histórico, por lo que merece un reconocimiento, tanto oficial como de la ciudadanía.
+2º—Que mediante Decreto Ejecutivo Nº 31425-MCJD del 21 de julio del 2003, se creó la Comisión Nacional para la Conmemoración del Sesquicentenario de la Campaña Nacional contra los Filibusteros (1856-1857), estableciendo en su artículo primero, que dicha Comisión estará adscrita al Ministerio de Cultura, Juventud y Deportes y tendrá como responsabilidad la organización, divulgación y promoción de actividades alusivas a este acontecimiento histórico, en el territorio nacional.
+3º—Que la Ley Nº 5118 del 15 de noviembre de 1972, creó la Comisión Nacional de Conmemoraciones Históricas que tiene a su cargo la preparación de los actos, investigaciones, estudios y publicaciones que ella estime conveniente, para conmemorar las fechas de la Historia Patria que juzgue dignas de ser festejadas; estableciendo, la citada ley, que dicha Comisión estará ubicada en el Ministerio de Cultura, Juventud y Deportes y podrá designar comisiones auxiliares, para el mejor cumplimiento de su cometido.
+4º—Que con el fin de observar lo dispuesto por la Ley Nº 5118, es importante que la Comisión Nacional para la Conmemoración del Sesquicentenario de la Campaña Nacional contra los Filibusteros, se establezca como una Comisión Auxiliar de la Comisión Nacional de Conmemoraciones Históricas.
+Por tanto,
+DECRETAN:
+Artículo 1º—Refórmase el artículo primero del Decreto Ejecutivo Nº 31425-MCJD del 21 de julio del 2003, publicado en La Gaceta Nº 211 del 3 de noviembre del 2003, para que en adelante se lea de la siguiente manera:
+Artículo 1º—Créase una Comisión Auxiliar de la Comisión Nacional de Conmemoraciones Históricas, para la Conmemoración del Sesquicentenario de la Campaña Nacional contra los Filibusteros 1856-1857, que tendrá como responsabilidad la organización, divulgación y promoción de actividades alusivas a este acontecimiento histórico, en el territorio nacional.
