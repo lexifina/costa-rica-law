@@ -13,3 +13,4 @@ Declara de Interés Nacional Actividades de la ACIEPSAsociación Costarricense p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-13 | la propia norma |
+| 2 | 1999-10-13 | SINALEVI (sin norma nombrada) |
