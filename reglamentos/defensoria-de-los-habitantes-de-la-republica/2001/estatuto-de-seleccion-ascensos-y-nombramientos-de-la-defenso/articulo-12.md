@@ -1,0 +1,6 @@
+CAPÍTULO III
+De los predictores para los procesos de selección y nombramiento
+Artículo 12.—De los predictores. Corresponde al Departamento de Recursos Humanos proponer los predictores de selección para cada proceso de selección y nombramiento con sus respectivas ponderaciones.
+Los criterios para determinar cuáles predictores de selección aplicar y sus ponderaciones, deberán estar en función de las características de los puestos, de las necesidades de la Institución y de la oferta de trabajo institucional.
+En los procesos de selección y nombramiento, podrán aplicarse los siguientes predictores de selección: Actividades de capacitación, Evaluación del desempeño, Experiencia, Entrevistas, Experiencia en el ejercicio profesional, Información biográfica, Grado o condición académica, Muestra de trabajo, Pruebas psicométricas, Pruebas de conocimiento, Prueba oral grupal (POG),
+El procedimiento de estructuración de los predictores que se escojan para la realización de procesos de Selección y Nombramiento, deberá caracterizarse por su transparencia y objetividad, para lo cual el Departamento de Recursos Humanos y la Comisión de Selección y Nombramientos, en quienes se deposita esta responsabilidad, deberán acudir a los medios más apropiados que garanticen la seguridad, la agilidad y oportunidad requeridas.

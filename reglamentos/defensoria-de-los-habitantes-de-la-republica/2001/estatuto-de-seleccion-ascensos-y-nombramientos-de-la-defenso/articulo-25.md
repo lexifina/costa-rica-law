@@ -1,0 +1,3 @@
+Artículo 25.—Normas transitorias.
+- Transitorio uno: A partir de la vigencia de este Estatuto, los funcionario (as) que se encuentren nombrados en condición interina, a la vigencia del presente Estatuto, tendrán derecho a participar en los concursos que se efectúen de puestos iguales al de su nombramiento actual, aunque no estén nombrados en un puesto en propiedad.
+- Transitorio dos: En aquellos concursos que se efectúen antes de la evaluación anual del desempeño laboral de cada funcionario (a), estipulada en el Estatuto Autónomo de Servicio, se utilizará como predictor del desempeño laboral la evaluación que del Director (a) o Jefe (a) inmediato del funcionario (a), para efectos exclusivos del concurso.

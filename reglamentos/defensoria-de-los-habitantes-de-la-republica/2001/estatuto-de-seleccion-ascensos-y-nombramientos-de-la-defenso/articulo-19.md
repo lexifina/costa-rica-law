@@ -1,0 +1,1 @@
+Artículo 19.—De la calificación mínima. Un candidato (a) será considerado para integrar una nómina, cuando obtenga una calificación final mínima de 80%. Para algunos predictores podrá definirse una calificación mínima.

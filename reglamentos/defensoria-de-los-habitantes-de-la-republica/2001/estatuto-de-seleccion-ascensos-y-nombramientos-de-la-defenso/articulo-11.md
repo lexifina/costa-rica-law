@@ -1,0 +1,4 @@
+Artículo 11.—A los Directores o Jefes (as) de los funcionarios (as) que participarán para los puestos sujetos a concurso, les corresponde:
+a) Realizar los pedimentos de personal y brindar toda la información necesaria sobre los puestos vacantes, para que ella sea considerada por el Departamento de Recursos Humanos, en la definición de los predictores de selección a utilizarse en la evaluación de los candidatos participantes en el proceso de selección y nombramiento.
+b) Efectuar una recomendación para el nombramiento o ascenso en propiedad, de la nómina de candidatos que le presente la Comisión de Selección y Nombramientos, luego de efectuado el proceso de selección y nombramiento.
+c) Comunicar al Departamento de Recursos Humanos mediante acto razonado la justificación que motivó la no recomendación de alguno de los candidatos según se indica en el inciso anterior.

@@ -1,0 +1,2 @@
+Artículo 15.—La convocatoria del concurso. El Departamento de Recursos Humanos deberá efectuar la divulgación adecuada de la convocatoria al concurso, de manera que la información llegue a todos los funcionarios (as) interesados y tengan la opción de participar.
+En todo caso, entre la comunicación de la convocatoria del concurso y el plazo de entrega de los atestados, deberá transcurrir un plazo no menor a cinco días hábiles

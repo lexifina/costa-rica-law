@@ -1,0 +1,3 @@
+Artículo 4º—De los nombramientos en propiedad. Cuando se desee llenar un puesto vacante, la administración debe llevar a cabo un concurso interno de antecedentes u oposición, o ante inopia externo.
+Los concursos internos contemplados en el presente cuerpo normativo, son aquellos en que se reclutan y seleccionan funcionarios (as) de comprobada idoneidad, para pasar por vía de promoción de un puesto a otro de clase superior y diferente, que se encuentre vacante.
+El concurso externo se aplicará únicamente en aquellos casos que previo concurso interno se determine que no existen candidatos o éstos no satisfacen las características del puesto vacante.
