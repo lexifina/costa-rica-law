@@ -1,10 +1,2 @@
-Artículo 17.- Tampoco devengarán derecho de importación cualesquiera
-mercaderías que para uso oficial o personal internen los Jefes de Legaciones
-extranjeras acreditadas en Costa Rica, ni las que se introduzcan para los
-Consejeros, Secretarios y Agregados de las respectivas Legaciones, siempre
-que los respectivos bultos vengan a la consignación de esos mismos
-Funcionarios, que éstos tengan su residencia fija y permanente en Costa
-Rica, y que por escrito el Jefe de la Misión solicite para ellos la
-aplicación de ese favor, y que el Gobierno de los solicitantes aplique igual
-favor a los Consejeros, Secretarios o Agregados de las Misiones de Costa
-Rica, debiendo en ese caso sujetarse la importación a las fórmulas legales.
+Artículo 17.- Tampoco causarán derechos de importación las mercaderías de cualquier clase que, para uso oficial o personal, importen los Jefes de Misiones Extranjeras acreditadas ante el Gobierno de Costa Rica, ni las que introduzcan los Consejeros, Secretarios y Agregados de esas Misiones, siempre que los respectivos bultos vengan consignados a esos funcionarios, que éstos tengan su residencia fija y permanente en Costa Rica, que sean ciudadanos del país que los ha nombrado, que devenguen un sueldo por las funciones que desempeñan, que por escrito, y en cada caso, solicite para ellos el Jefe de Misión la aplicación de la franquicia, y que el Gobierno del país de los solicitantes aplique igual tratamiento a los Consejeros, Secretarios y Agregados de las Misiones de Costa Rica, debiendo en ese caso sujetarse la importación a las fórmulas legales.
+(Así reformado por la Ley Nº 1355 de 5 de octubre de 1951, artículo 1º
