@@ -1,0 +1,1 @@
+Artículo 6°—El cuaderno de bitácora de obra tendrá un original y dos copias; el original permanecerá en la obra y posteriormente pasará al Colegio Federado, la primera copia será para el profesional responsable y la segunda para el propietario.

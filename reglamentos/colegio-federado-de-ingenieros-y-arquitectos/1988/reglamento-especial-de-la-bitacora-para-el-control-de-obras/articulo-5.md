@@ -1,0 +1,2 @@
+Artículo 5°—El cuaderno de bitácora de obra deberá ser adquirido en el Colegio Federado por el profesional responsable durante la inscripción del contrato correspondiente, conforme con lo que se establece en los artículos 53 y 54 de la Ley Orgánica.
+Cuando el trámite de registro del contrato profesional no sea obligatorio por ley, de cualquier manera se tendrá que contar con el cuaderno de bitácora de obra antes de dar inicio la construcción.

@@ -1,0 +1,1 @@
+Artículo 15.—Si el profesional responsable no entregara el cuaderno de bitácora conforme con lo dispuesto en el artículo anterior, no podrá inscribir nuevos contratos; y si fuera del caso estaría expuesto a otras medidas disciplinarias que el Colegio considere procedentes.
