@@ -1,1 +1,2 @@
-Artículo 41.—Concluido el trámite del desembolso, el FONAFIFO vuelve al A.C., copia del contrato firmado, para la custodia e inicio del programa de control y seguimiento, a fin de verificar la información aportada por los beneficiario o beneficiarías.
+Artículo 41.—Concluido el trámite y firmado el contrato entre el Ministerio del Ambiente y Energía y el Oferente, se entregará una copia del expediente al Área de Conservación correspondiente, y FONAFIFO ejercerá el control y seguimiento de los proyectos aprobados. El SINAC podrá efectuar el seguimiento y control del programa según la estrategia de control que establezca.
+(Así reformado por Artículo 1° del Decreto Ejecutivo N° 30762 del 23 de agosto del 2002)

@@ -16,3 +16,4 @@ Reglamento a la Ley Forestal
 | 1 | 1997-01-23 | la propia norma |
 | 2 | 2000-11-13 | Decreto Ejecutivo 29147 (2000-11-13) |
 | 3 | 2002-04-17 | Decreto Ejecutivo 30310 (2002-04-17) |
+| 4 | 2002-08-23 | Decreto Ejecutivo 30761 (2002-08-23) |
