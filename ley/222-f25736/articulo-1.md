@@ -1,0 +1,5 @@
+DECRETO 222
+El Jefe Supremo del Estado libre de Costa Rica
+Por cuanto la Asamblea ha decretado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa Rica, debiendo proceder á la regulación y computación de los sufragios de las Juntas Electorales de Partido habidos para los tres Ministros, Presidente, Magistrados y Fiscal de la Corte Superior de Justicia en la nueva planta decretada en 20 del último abril; y habiéndose observado por las mismas Electorales cuanto les previene la ley y tabla de la materia; y por el Poder Legislativo, lo que prefijan los artículos 37 y 38 de la Ley Fundamental, ha tenido á bien decretar y decreta:
+Artículo 1°.- Se han por Ministros de la Corte Superior de Justicia electos por la Asamblea á los individuos siguientes: para Presidente, por renuncia hecha del Licenciado Ciudadano Manuel Aguilar, y con unanimidad de votos, el licenciado ciudadano José Sacasa: para Magistrado el Licenciado ciudadano Pedro Zeledón; y para Fiscal el Licenciado ciudadano Agustín Gutierrez
