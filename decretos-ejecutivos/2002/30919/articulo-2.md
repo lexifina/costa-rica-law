@@ -1,0 +1,1 @@
+Artículo 2°—Durante el año 2003, no se crearán plazas para los Ministerios y sus Órganos Adscritos. Se exceptúa de la aplicación de este artículo a las plazas de carácter docente y personal médico del Sector Salud.

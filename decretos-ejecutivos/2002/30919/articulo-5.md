@@ -1,0 +1,1 @@
+Artículo 5º—La Autoridad Presupuestaria deberá velar por el cumplimiento de las disposiciones contenidas en el presente Decreto e informará al Presidente de la República y al Ministro de Hacienda del cumplimiento del mismo.

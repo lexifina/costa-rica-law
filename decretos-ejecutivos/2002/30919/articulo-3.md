@@ -1,0 +1,1 @@
+Artículo 3°—Durante el ejercicio económico del 2003, no se autorizará a los Ministerios y sus Órganos Adscritos, la compensación de vacaciones en los términos del inciso c) del artículo 156 del Código de Trabajo.
