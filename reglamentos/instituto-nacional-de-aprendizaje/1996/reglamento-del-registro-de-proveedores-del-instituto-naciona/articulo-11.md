@@ -1,0 +1,2 @@
+Artículo 11.-Obligación de actualizar la información.
+Los proveedores incluidos en el Registro estarán obligados a comunicar en el momento en que ocurra a la Unidad de Recursos Materiales todo cambio en sus datos generales o descripción y característica de los bienes y servicios. En el formulario de inscripción se contemplará una manifestación del proveedor donde se obliga a informar por escrito a la Administración de cualquier cambio en la información antes referida.

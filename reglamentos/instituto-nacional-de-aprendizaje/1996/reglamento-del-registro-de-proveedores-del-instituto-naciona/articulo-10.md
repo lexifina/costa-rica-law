@@ -1,0 +1,9 @@
+Artículo 10.-Verificación Previa.
+La solicitud de inscripción podrá ser presentada a la Unidad de Recursos Materiales en la Sede Francisco J. Orlich o en cualquier Unidad Regional.
+Cuando la solicitud es recibida en una Unidad Regional, ésta deberá remitirla a la Unidad de Recursos Materiales dentro los cinco días hábiles siguientes a su recibo.
+Una vez recibida la solicitud y su documentación anexa en la Unidad de Recursos Materiales en la Sede Francisco J. Orlich, se procederá a hacer el estudio respectivo a fin de COnstatar si reúne los requisitos de inscripción establecido en este Reglamento y demás normativa. En caso de duda se podrá consultar a la Asesoría Legal lo que en derecho corresponda.
+En un plazo de diez días hábiles contados a partir de la recepción de la solicitud la Unidad de Recursos Materiales deberá emitir la resolución correspondiente. En caso de que exista un incumplimiento o defecto procederá a comunicar por escrito a la parte interesada otorgándole un plazo máximo de cinco días hábiles para que subsane y le prevendrá que de no subsanarse los defectos indicados, la solicitud se rechazará sin más trámite.
+Subsanado el vicio o defecto dentro del plazo establecido, la Unidad de Recursos Materiales tendrá un plazo de cinco días hábiles para emitir la resolución respectiva aprobando o rechazando la inscripción al registro. Si la prevención no es atendida dentro del plazo se dictará dentro de los cinco días hábiles siguientes a su vencimiento la resolución rechazando la solicitud.
+En la resolución que apruebe la inscripción se indicará el código con que el proveedor quedó registrado.
+Contra estas resoluciones serán oponibles los recursos que se indican en este Reglamento.
+No obstante lo anterior, cualquier proveedor al que le sea rechazada su inscripción, podrá presentar nuevamente su solicitud a la Unidad de Recursos Materiales para su estudio respectivo.

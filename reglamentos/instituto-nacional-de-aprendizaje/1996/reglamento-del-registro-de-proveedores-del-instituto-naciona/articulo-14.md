@@ -1,0 +1,3 @@
+Artículo 14.-Procedimiento.
+Salvo cuando la exclusión se fundamente en la manifestación expresa del interesado, muerte o extinción, en las demás ocasiones se deberá levantar una información administrativa.
+Para tal efecto la Unidad de Recursos Materiales trasladará a la Asesoría Legal la información que posea y ésta notificará al interesado la intención de excluirlo del Registro y en el mismo acto indicará la prueba existente y le concederá un plazo de cinco días hábiles para que formule los descargos y ofrezca prueba que estime pertinente. La resolución deberá ser. dictada por la Unidad de Recursos Materiales.

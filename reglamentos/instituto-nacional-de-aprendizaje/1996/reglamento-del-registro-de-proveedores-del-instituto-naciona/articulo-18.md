@@ -1,0 +1,1 @@
+Artículo 18.-El Instituto Nacional de Aprendizaje podrá utilizar los Registros de Proveedores de otras instituciones tal y como lo dispone el artículo 59 del Reglamento General de la Contratación Administrativa.
