@@ -1,0 +1,1 @@
+Artículo 26.—El Colegio de Farmacéuticos de Costa Rica enviará mensualmente al Departamento la nómina de los regentes farmacéuticos, así como el nombre y ubicación de los establecimientos en los cuales ejercen su regencia.

@@ -1,0 +1,1 @@
+Artículo 56.—Los importadores, establecimientos farmacéuticos, laboratorios industriales y cualquier otro que maneje estupefacientes, sicotrópicos, sustancias precursoras y disolventes, presentarán al Departamento informes mensuales del movimiento de estas sustancias.

@@ -1,0 +1,1 @@
+Artículo 18.—La Junta, bajo condiciones establecidas, podrá autorizar al Departamento la venta de estupefacientes para investigaciones científicas. Asimismo, podrá autorizar a los establecimientos farmacéuticos la venta de sicotrópicos para los mismos fines.

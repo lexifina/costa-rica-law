@@ -1,0 +1,1 @@
+Artículo 4°—Los miembros de la Junta no podrán ser propietarios, accionistas o tener relaciones laborales con las droguerías y los laboratorios fabricantes de drogas estupefacientes y sicotrópicos. Los miembros suplentes deberán reunir los mismos requisitos.

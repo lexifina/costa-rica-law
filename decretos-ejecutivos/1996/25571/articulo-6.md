@@ -1,0 +1,1 @@
+Artículo 6°—Con excepción del Director (a) General de Salud, los restante miembros propietarios y suplentes de la Junta, serán escogidos y designados por el Ministro, de una terna que a su petición sometan los colegios, en un plazo no mayor de dos semanas.

@@ -1,0 +1,1 @@
+Artículo 12.—La ejecución de las funciones administrativas de la Junta serán realizadas por el Departamento, cuyo director actuará como secretario de la Junta y asistirá a todas las sesiones donde tendrá derecho a voz pero no a voto.

@@ -1,0 +1,1 @@
+Artículo 39.—Para importación, exportación y tránsito por el territorio nacional de estupefacientes, sicotrópicos, sustancias precursoras y disolventes, los interesados solicitarán a la Junta un Certificado de Autorización, el cual, una vez emitido, no podrá ser modificado.

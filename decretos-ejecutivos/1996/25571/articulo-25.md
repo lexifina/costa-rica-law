@@ -1,0 +1,1 @@
+Artículo 25.—Para los efectos del artículo anterior, los Colegios de Médicos y Cirujanos de Costa Rica, de Cirujanos Dentistas de Costa Rica y de Médicos Veterinarios, deberán mantener y enviar al Departamento, cada seis meses, la nómina actualizada de sus profesionales activos.

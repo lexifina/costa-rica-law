@@ -1,0 +1,1 @@
+Artículo 38.—El Ministerio deberá contar con el arsenal terapéutico de estupefacientes necesario para suplir oportunamente la demandas justificadas de estos fármacos a nivel nacional. Para tal objeto el Departamento realizará el estudio de las necesidades del país y efectuará los trámites internacionales para facilitar la importación.

@@ -1,0 +1,1 @@
+Artículo 40.—La importación de estupefacientes, sicotrópicos, sustancias precursoras y disolventes, será autorizada y fiscalizada por la Junta, mediante el Departamento, verificando los desalmacenajes. Adicionalmente, se realizarán controles cruzados con los países exportadores.

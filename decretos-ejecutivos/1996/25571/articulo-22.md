@@ -1,0 +1,1 @@
+Artículo 22.—La compra de estupefacientes por parte del Ministerio se regirá por las leyes y disposiciones que rijan la materia, siendo responsabilidad de la Junta emitir el criterio técnico para la adjudicación de las licitaciones.

@@ -1,0 +1,3 @@
+CAPITULO II
+De la Junta de Vigilancia de Drogas Estupefacientes
+Articulo 2°—Corresponde al Ministerio, a través de la Junta, la regulación y la vigilancia de la importación, exportación, tránsito por el territorio nacional, compra, venta, distribución, donación, depósito y toda clase de contratación o convenio relacionado con las drogas estupefacientes, sicotrópicos y los preparados que los contengan, así como los precursores, disolventes y otras sustancias sujetas a control. Asimismo, la Junta velará por el cumplimiento de los compromisos nacionales e internacionales que en esta materia haya adquirido el Gobierno de la República.

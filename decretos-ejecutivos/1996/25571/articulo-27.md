@@ -1,0 +1,1 @@
+Artículo 27.—Para prescribir y dispensar estupefacientes y sicotrópicos, según corresponda, los profesionales médicos, odontólogos, médicos veterinarios y farmacéuticos deberán previamente registrar sus firmas en el Departamento, el cual mantendrá registros actualizados para su control.

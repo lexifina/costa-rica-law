@@ -1,0 +1,1 @@
+Artículo 33.—Las recetas de estupefacientes deberán ser retenidas por la farmacia y presentadas al Departamento en un plazo no mayor de tres meses posteriores a su despacho. Las recetas de sicotrópicos deberán ser retenidas por la farmacia y presentadas al Departamento con el informe mensual respectivo.

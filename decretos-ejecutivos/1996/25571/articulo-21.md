@@ -1,0 +1,1 @@
+Artículo 21.—Durante el primer trimestre de cada año, los interesados deberán presentar ante el Departamento, las previsiones de compra tanto de materia prima como de producto terminado del siguiente año.

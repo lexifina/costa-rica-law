@@ -1,0 +1,1 @@
+Artículo 51.—El Departamento llevara un registro diario, mensual, semestral y anual del movimiento de entradas y salidas de los estupefacientes bajo su responsabilidad y enviara los informes trimestrales y anuales a la Junta.
