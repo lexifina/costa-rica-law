@@ -1,0 +1,1 @@
+Artículo 8º.-En caso de expropiación forzosa para la ejecución de obras públicas sujetas a esta ley, cabrá la compensación entre el valor de lo expropiado y la contribución debida, pagándose solamente la diferencia que quede a cargo del Fisco o del interesado.
