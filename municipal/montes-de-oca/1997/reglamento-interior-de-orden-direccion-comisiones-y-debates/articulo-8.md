@@ -1,0 +1,1 @@
+ARTICULO 8.- El quórum para las sesiones será de cuatro Regidores Propietarios. Este número de Regidores deberán encontrarse presente en el Salón de Sesiones al inicio de la Sesión, durante las deliberaciones y al efectuarse las votaciones.

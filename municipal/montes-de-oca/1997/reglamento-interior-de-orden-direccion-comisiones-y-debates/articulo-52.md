@@ -1,0 +1,1 @@
+ARTICULO 52- La Secretaría remitirá a la Presidencia, en orden de presentación, las solicitudes que presenten los particulares. La Presidencia decidirá en Sesión si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

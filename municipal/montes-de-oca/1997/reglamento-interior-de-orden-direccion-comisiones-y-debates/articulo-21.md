@@ -1,0 +1,1 @@
+ARTICULO 21.- Cuando concurrieren al Concejo miembros de los Supremos Poderes, invitados especiales, representantes de organismos oficiales y extranjeros, representantes de las instituciones autónomas o semi-autónomas, se les recibirá en el Salón de Sesiones a la hora fijada al efecto o inmediatamente después del saludo de rigor, se les concederá el uso de la palabra.

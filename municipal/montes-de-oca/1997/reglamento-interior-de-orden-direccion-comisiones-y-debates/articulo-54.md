@@ -1,0 +1,1 @@
+ARTICULO 54- Si se presentaren memoriales que dirijan los particulares a la Municipalidad, la Secretaría los examinará y, si resulta que lo solicitado es dirigido a otra dependencia, se enviará donde corresponda. De lo anterior se informará a los firmantes.

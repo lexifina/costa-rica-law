@@ -1,0 +1,2 @@
+ARTICULO 55- Cuando concurriere a Sesión uno o varios particulares invitados o a quienes se les haya conferido audiencia, la Presidencia hará la presentación de rigor, exponiendo los motivos de su presencia y de inmediato les concederá el uso de la palabra para que hagan la exposición correspondiente.
+Se tratará en lo posible que la exposición sea breve y concisa concediendo diez minutos, prorrogables mediante la presentación de una moción de orden.

@@ -1,0 +1,1 @@
+ARTICULO 19.- Todo Regidor Propietario o Suplente en propiedad, presentará sus mociones o proposiciones por escrito y firmadas ante el Secretario del Concejo. El secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo que se trate de mociones de orden.

@@ -1,0 +1,1 @@
+ARTICULO 28.- En esta sesión solemne, tendrán derecho a hacer uso de la palabra los Jefes de Fracción de los partidos políticos representados en la Municipalidad, hasta por espacio de 5 minutos, para referirse a asuntos de interés para la Municipalidad.

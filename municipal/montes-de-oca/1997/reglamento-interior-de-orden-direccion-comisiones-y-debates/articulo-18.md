@@ -1,0 +1,1 @@
+ARTICULO 18.- La Presidencia Municipal calificará los asuntos de trámite y ordenará a la Secretaría incluirlos en el Orden del Día. En sesión podrán incluirse asuntos de trámite urgente por iniciativa de la Presidencia o de uno o más Regidores, si el Concejo así lo acuerda por simple mayoría, mediante la presentación, salvo que se trate de mociones de orden.

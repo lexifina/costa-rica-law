@@ -1,0 +1,1 @@
+ARTICULO 7.- La convocatoria o cambios pertinentes se notificarán personalmente a los miembros del Concejo o en su casa de habitación. En uno y otro casos firmará la persona que reciba la notificación, la cual deberá ser mayor de edad, debiendo la autoridad o el funcionario notificador hacerlo constar en el acta de la notificación.

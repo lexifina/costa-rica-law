@@ -1,0 +1,1 @@
+ARTICULO 51- Cuando el objeto de la audiencia fuere un asunto de competencia del Ejecutivo, la Presidencia ordenará a la Secretaría remitir el memorial presentado a dicho funcionario, para que éste le dé el trámite correspondiente.

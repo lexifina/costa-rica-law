@@ -1,0 +1,3 @@
+ARTICULO 24.- Para el cabal cumplimiento del artículo anterior en la sesión inmediata anterior se designará un Directorio Provisional, integrado por los Regidores Propietarios y Suplentes de mayor edad, el cual presidirá la sesión del primero de mayo y juramentará a la Presidencia y Vicepresidencia electos en ese día.
+Para efectos de cumplimiento, en la sesión de instalación del primer período del Concejo, en lo que
+se refiere al Directorio Provisional, se procederá conforme establece el Código Electoral vigente, integrándose el mismo con los Regidores de mayor edad por el Tribunal Supremo de Elecciones.
