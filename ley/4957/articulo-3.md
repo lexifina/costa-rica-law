@@ -21,3 +21,5 @@ que alude el inciso b) de este artículo y del régimen disciplinario,
 todo de conformidad con el artículo 216 de la Ley Orgánica del Poder
 Judicial; y
 g) De los demás asuntos que indiquen las leyes.
+(Reformado tácitamente por la Ley Nº 7333 de 5 de mayo de 1993, artículos
+97, 182, 184 y 185)
