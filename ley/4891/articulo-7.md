@@ -1,0 +1,1 @@
+Artículo 7º.- La Corte podrá ampliar a los distritos la jurisdicción de las Agencias Judiciales de cabecera de cantón, para que conozcan de faltas, contravenciones, diligencias de pensión alimenticia y otros hechos que por leyes especiales sean de conocimiento de esas autoridades, ocurridos antes o después de la vigencia del nuevo Código.

@@ -1,0 +1,1 @@
+Artículo 14.- Quedan en suspenso, para los efectos de aplicación de esta ley, todas las disposiciones legales que se le opongan o que sean incompatibles con los acuerdos que tome la Corte para distribuir el trabajo entre las oficinas judiciales y fijar su competencia.

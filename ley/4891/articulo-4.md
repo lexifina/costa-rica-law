@@ -1,0 +1,1 @@
+Artículo 4º.- Se faculta a la Corte para modificar la nomenclatura, funciones y atribuciones de los órganos jurisdiccionales de carácter penal, a fin de adecuarlos a las exigencias represente la aplicación del nuevo Código.
