@@ -1,0 +1,1 @@
+Artículo 2º—Modificase los artículos 4º, 11, 12, 13, 16, 24, 65, únicamente en cuanto dependencia jerárquica por lo que en adelante en vez de Departamento de Inspección Vial y Demoliciones de la Dirección de Policía de Tránsito, se deberá leer: Departamento de Inspección Vial y Demoliciones de la Dirección de Ingeniería de la División de Obras Públicas.
