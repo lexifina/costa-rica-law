@@ -1,6 +1,8 @@
+(Derogado)
 N° 31077-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+(DEROGADO, por el artículo 29 del Decreto Ejecutivo N° 31737 de29 de marzo de 2004)
 En el ejercicio de las facultades que les confiere el artículo 140, inciso 3) de la Constitución Política y de conformidad con la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestre (CITES), Ley Nº 5605 del 30 de octubre de 1974 y lo establecido en los artículos 6º, 12, 14 y 18 de la Ley de Conservación de la Vida Silvestre Nº 7317 de 30 de octubre de 1992.
 Considerando:
 1°—Que la administración de los recursos de vida silvestre, como la facultad para dictar medidas y establecer procedimientos necesarios para asegurar la conservación de la diversidad biológica del país, es función del Ministerio de Ambiente y Energía.
