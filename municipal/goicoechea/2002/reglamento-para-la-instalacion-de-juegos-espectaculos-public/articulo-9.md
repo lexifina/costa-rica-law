@@ -1,0 +1,1 @@
+Artículo 9º—Los mayores de 12 años y menores de 18 años no podrán permanecer en las salas de juegos, billares o pooles después de las veinte horas (8,00 p. m.), salvo en los casos en que se encuentren acompañados de un adulto.

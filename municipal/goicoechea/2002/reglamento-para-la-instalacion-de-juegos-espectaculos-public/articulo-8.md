@@ -1,0 +1,1 @@
+Artículo 8º—Se prohíbe el ingreso a toda hora, de menores de 12 años a los negocios cuya actividad principal sean los video - juegos, billares o pooles, salvo en los casos de negocios dedicados a brindar servicios de INTERNET en todas sus modalidades.

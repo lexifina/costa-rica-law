@@ -1,0 +1,12 @@
+SM-1149-02.
+El Concejo Municipal del Cantón de Goicoechea en sesión ordinaria N° 42-2002, celebrada el día 21 de octubre del 2002, artículo 23, aprobó por unanimidad y en firme Dictámen N° 5-02 de la Comisión de Patentes, que a la letra dice: "REGLAMENTO PARA LA INSTALACIÓN DE JUEGOS, ESPECTÁCULOS PÚBLICOS O DIVERSIONES Y PERMANENCIA DE MENORES EN ESTABLECIMIENTOS DONDE SE EXPENDE LICOR
+El Concejo Municipal de Goicoechea, con base en la Ley número siete mil seiscientos treinta y tres (7633), del veintiséis de setiembre de mil novecientos noventa y seis, el voto de la Sala Constitucional de la Corte Suprema de Justicia número diez mil noventa y nueve (10000-99), del 21 de diciembre de mil novecientos noventa y nueve, la Ley de Juegos N° 3 del 31 de agosto de 1922, el Reglamento a la Ley de Juegos N° 3510-G del 24 de enero de 1974 y el Reglamento de Máquinas para Juego Decreto Nº 8722 del 13 de junio de 1978, establece el presente Reglamento con el objetivo de regular el funcionamiento de todos y cualesquiera de los juegos, espectáculos públicos o diversiones permitidos por la Ley, en aquellos locales donde se expende licor y la permanencia de menores en dichos establecimientos, con el fin de garantizar la protección y la seguridad de las personas, así como el respeto al orden público.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Para los efectos del presente Reglamento se define como:
+a) Establecimientos expendedores de licor todo establecimiento, restaurante, bar, bar-restaurante, taberna o cantina, salones de baile o discotecas, donde se vendan bebidas alcohólicas para su consumo al detalle y dentro del local.
+b) Horario: Horas designadas para la apertura y el cierre de los negocios.
+c) Sala de juego: Es el lugar o espacio destinado a la explotación, como actividad principal, de máquinas, mesas de juego o algún otro tipo de diversión.
+d) Juegos: Todas aquellas máquinas que simulen juegos deportivos o de esfuerzo en las que el jugador participe con su habilidad y mediante el pago de monedas o fichas. Además del mobiliario o mesas dedicadas a billar, pool o futbolines.
+e) Ley Nº 7633: Regulación de horarios de funcionamiento en expendios de bebidas alcohólicas.
+f) Templo religioso: Inmueble dedicado al culto. Debe entenderse por culto todas aquellas actividades (que no se oponen a la moral universal, ni a las buenas costumbres) dedicadas a la difusión de un credo religioso, y realizadas por parte de grupos religiosos debidamente organizados en asociaciones, con personería jurídica e inscritas en los registros de ley.
