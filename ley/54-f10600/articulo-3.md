@@ -1,0 +1,1 @@
+Art. 3° -El profesor que se designe tendrá la obligación de practicar un reconocimiento diariamente de las mujeres reclusas, y dar boleta de sanidad á las que estén buenas, así como de cumplir y hacer que se cumplan las demás disposiciones del Reglamento respectivo.
