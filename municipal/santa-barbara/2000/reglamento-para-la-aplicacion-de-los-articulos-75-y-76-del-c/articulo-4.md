@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones finales
+Artículo 4º—Ordénase al señor Alcalde la publicación consultiva no vinculante de este reglamento por el término de diez días hábiles conforme al artículo 43 del Código Municipal.
