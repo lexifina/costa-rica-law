@@ -1,0 +1,1 @@
+Artículo 4°—Se deroga la resolución No 21-92 de las dos horas (sic) del tres de agosto de 1992. Asimismo, se deja sin efecto cualquier otra disposición que se oponga a lo establecido en el presente Decreto.

@@ -1,0 +1,1 @@
+Artículo 2°—Todo lo referente a la inscripción, declaración, determinación y pago del tributo por compraventa de artículos usados, de aquellas personas físicas o jurídicas, en que proceda la aplicación del crédito fiscal, se regirá por la normativa general establecida en la Ley del Impuesto General sobre las Ventas y su Reglamento.

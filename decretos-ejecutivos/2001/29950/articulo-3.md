@@ -1,0 +1,1 @@
+Artículo 3°—Sin perjuicio de lo indicado en los artículos anteriores, aquellos contribuyentes que se dedican a la compraventa de artículos usados, en los que la recaudación del tributo se ha fijado a nivel de aduanas, seguirán rigiéndose por lo dispuesto en las normativas concretas mediante las cuales se dispuso el cobro del impuesto a ese nivel.
