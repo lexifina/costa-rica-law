@@ -1,0 +1,1 @@
+Art 4° Una comisión que el Gobierno nombrará, debe proceder inmediatamente a redactar y presentar a la aprobación del Gobierno, un nuevo plan General de estudios que esté más en consonancia con las necesidades y conveniencias del país.

@@ -1,0 +1,1 @@
+Art 3° Se nombran como Directores, con todas las facultades y obligaciones señaladas a estos por los Estatutos, a los Señores Licenciados Don José Gregorio Trejos, Don Vicente Herrera y Don Juan José Ulloa y Señor Don Juan R. Mata.
