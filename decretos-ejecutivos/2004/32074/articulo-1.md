@@ -1,0 +1,13 @@
+Nº 32074
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001; Ley N° 7648, Ley Orgánica del Patronato Nacional de la Infancia de 9 de diciembre de 1996.
+Considerando:
+1º—Que por medio del artículo 1º de la Ley Nº 7648, publicada en La Gaceta Nº 245 del 20 de diciembre de 1996, se crea el Patronato Nacional de la Infancia (PANI) como una institución autónoma con administración descentralizada y presupuesto propio, con el fin de proteger especialmente y de forma integral a las personas menores de edad y sus familias, como elemento natural y pilar de la sociedad.
+2º—Que es necesario que el PANI incorpore recursos de la transferencia del Fondo de Desarrollo Social y Asignaciones Familiares (FODESAF) y del superávit existente en la entidad, para financiar gastos extraordinarios y la adquisición de bienes inmuebles para albergues que permiten el cumplimiento institucional y aseguran la protección integral de la infancia y la adolescencia, así como el reconocimiento de sus derechos y garantías.
+3º—Que mediante el Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta Nº 63 del 31 de marzo del 2003, se promulgaron las Directrices de Política Presupuestaria del 2004 para los ministerios, demás órganos según corresponda y entidades públicas cubiertas por el ámbito de la Autoridad Presupuestaria, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo la forma de cálculo y procedimiento para fijar el gasto máximo presupuestario del período 2004, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante Decreto Ejecutivo N° 31755-H, publicado en La Gaceta N° 85 del 3 de mayo del 2004, se amplió el gasto máximo presupuestario autorizado al PANI, para el período 2004.
+5º—Que a los efectos de cumplir con los objetivos propuestos, la entidad solicitó mediante oficio N° PE-2408-04 del 29 de julio del 2004, la ampliación del gasto presupuestario para el año 2004. Por tanto:
+DECRETAN:
+Artículo 1°—Modifícase al Patronato Nacional de la Infancia, el gasto presupuestario para el período 2004, establecido en el artículo 1º del Decreto Ejecutivo N° 31755-H, publicado en La Gaceta Nº 85 del 3 de mayo del 2004, de manera que no exceda la suma ¢ 8.812.72 millones.
