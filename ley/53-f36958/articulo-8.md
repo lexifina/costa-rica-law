@@ -1,0 +1,1 @@
+Art 8° Los Gobernadores llevarán un libro en que, con la mayor exactitud anotarán todas las patentes que espidan, dejando también conocimiento de los informes dados por los Jueces de paz o testigos a consecuencia de los cuales se hayan librado dichas patentes.

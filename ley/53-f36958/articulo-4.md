@@ -1,0 +1,1 @@
+Art 4°. El conductor que quiere hacer el doble tráfico de llevar y traer carga, está obligado a tomar dos patentes, para hacer uso de ambas, cuando las mercaderías pertenezcan a diferentes propietarios.

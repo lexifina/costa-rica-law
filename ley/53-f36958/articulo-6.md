@@ -1,0 +1,1 @@
+Art 6° A unas del depósito de la patente, el cargador puede exijir del conductor mayores garantías, cuando lo crea conveniente, en conformidad con lo dispuesto en el libro 1°, sección 3° del Código de comercio, para que la presente ley no altera en manera algunos las preexistencias.
