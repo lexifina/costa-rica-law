@@ -16,3 +16,4 @@ Normas Generales para Definir y Calcular el Patrimonio de las Entidades Fiscaliz
 | 1 | 2001-01-09 | la propia norma |
 | 2 | 2001-06-11 | Reglamento 231 (2001-06-11) |
 | 3 | 2002-08-20 | Reglamento 320 (2002-08-20) |
+| 4 | 2003-06-03 | Reglamento 374 (2003-06-03) |
