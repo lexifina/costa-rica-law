@@ -1,0 +1,7 @@
+Artículo 10.-Corresponden al Inspector, que depender de la Contaduría Mayor y tendrá carácter de Subinspector de Hacienda en lo relativo a la vigilancia y estricto cumplimiento de la presente ley, las siguientes atribuciones y obligaciones:
+1) Vigilar e inspeccionar las fábricas, depósitos y expendios de cigarrillos en lo que atañe a la buena percepción del impuesto;
+2) Examinar los informes de las fábricas junto con sus comprobantes, así como los depósitos de cigarrillos importados para verificar si la fabricación e importación se ajustan a los impuestos pagados;
+3) Informar a la Contaduría Mayor de su labor, denunciando cualquier infracción que tienda, en alguna forma, a defraudar el impuesto.
+4) Levantar la información correspondiente, sin la menor demora, de cualquier denuncia que se haga por violaciones a la presente ley, y dar cuenta de ella, junto con todos los detalles de la información, a la Contaduría Mayor y al Secretario de Estado en el Despacho de Hacienda para que ‚éste, a su vez, dé‚ instrucciones al Ministerio Público para que proceda a plantear la acusación contra el infractor;
+5) Rendir, por medio de la Contaduría Mayor, a la Secretaría de Hacienda y Comercio, informe mensual y anual del movimiento del impuesto de Consumo de los cigarrillos, formulando los cuadros respectivos;
+6) Llevar una estadística de todo lo relacionado con el impuesto y demás pormenores referentes al buen cumplimiento de la presente ley.

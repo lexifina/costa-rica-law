@@ -1,0 +1,1 @@
+Artículo 11.-Las Aduanas no darán curso a ningún pedimento de desalmacenaje de cigarrillos, si de conformidad con esta ley no vienen timbrados o si en su defecto no se timbran antes de su salida de la Aduana.
