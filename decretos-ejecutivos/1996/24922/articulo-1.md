@@ -10,4 +10,6 @@ Considerando:
 3º- Que en razón de lo anterior se hace necesario proceder a reglamentar la referida ley en lo que respecta al Juego Crea estipulado en la Ley de Loterías. Por tanto,
 DECRETAN:
 Artículo 1º- El Juego Crea consiste en un juego que requiere combinación de destreza, habilidad y una alta capacidad de memoria y de asociación visual por parte del jugador. La Fundación Hogares Crea Internacional de Costa Rica podrá poner en circulación en el mercado nacional el máximo de boletos que al año sean autorizados por el Poder Ejecutivo. Los boletos anuales autorizados podrán ser distribuidos en varias emisiones que se identifican en diferentes formas.
+En ningún caso el Juego Crea podrá consistir en loterías de cualquier tipo, sean éstas de carácter electrónico o por billetes, de raspar o similares, en las cuales el azar sea el elemento determinante del ganador.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 27208 de 04 de agosto de 1998).
 (Así reformado por el artículo 1° del decreto ejecutivo N° 25830 de 13 de febrero de 1997).

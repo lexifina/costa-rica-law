@@ -15,3 +15,4 @@ Reglamento del Juego CREA
 | --- | --- | --- |
 | 1 | 1996-02-16 | la propia norma |
 | 2 | 1997-02-13 | Decreto Ejecutivo 25830 (1997-02-13) |
+| 3 | 1998-08-04 | Decreto Ejecutivo 27208 (1998-08-04) |
