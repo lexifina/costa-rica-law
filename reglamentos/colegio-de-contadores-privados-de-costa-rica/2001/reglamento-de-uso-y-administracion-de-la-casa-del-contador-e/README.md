@@ -14,3 +14,4 @@ Reglamento de Uso y Administración de la Casa del Contador en los Consejos Regi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-31 | la propia norma |
+| 2 | 2003-12-14 | Reglamento 89 (2003-12-14) |
