@@ -1,0 +1,2 @@
+ARTICULO 11.- Toda declaración queda sujeta a ser revisada, según lo establece la ley. Si se comprueba que los datos suministrados son incorrectos, por cuya circunstancia se determinó un monto diferente del tributo, se procederá a efectuar la recalificación correspondiente.
+Asimismo, la declaración jurada que los patentados deben presentar ante la Municipalidad, queda sujeta a las disposiciones especiales de los artículos 88, 89 y 91 del Código Municipal, así como al artículo 309 del Código Penal.

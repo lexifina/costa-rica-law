@@ -1,0 +1,5 @@
+ARTICULO 13.- Las actividades citadas a continuación pagarán el impuesto de patentes, de conformidad con el criterio indicado para cada una. Cuando en un mismo establecimiento se realicen, conjuntamente, actividades diferentes de las señaladas en el presente artículo o en el anterior, para los efectos del tributo, cada una se considerará en forma separada.
+a) Los bancos y establecimientos financieros, excepto los estatales (casas de banca, de cambio, financieras y similares, y agencias aseguradoras) pagarán, cada trimestre, sobre los ingresos por intereses brutos o comisiones o por ambos, percibidos en el año anterior, ¢1,00 por cada ¢1.000,00.
+b) Los comercios de bienes inmuebles pagarán cada trimestre sobre las comisiones percibidas en el año anterior, ¢1,00 por cada ¢1.000,00.
+c) Los salones de diversión que exploten juegos de habilidad, aleatorios o ambos, permitidos por la ley, pagarán cada trimestre sobre los ingresos brutos del año anterior, ¢1,00 por cada ¢1.000,00.
+ch) Los establecimientos de hospedaje momentáneo pagarán cada trimestre sobre los ingresos brutos del año anterior, ¢1,00 por cada ¢1.000,00.
