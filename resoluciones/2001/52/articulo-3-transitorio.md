@@ -1,0 +1,1 @@
+Artículo transitorio 3.- Formará parte del valor en libros para efectos del cálculo de las ganancias o pérdidas por enajenación de activos fijos aludidas en el párrafo 6 del aparte C) del artículo 1° de esta resolución, las revaluaciones que los contribuyentes hayan aplicado hasta el día de entrada en vigencia de la ley de Simplificación y Eficiencia Tributaria.

@@ -1,0 +1,1 @@
+Artículo 2°- La presente resolución deja sin efecto cualquier otro criterio externado por esta Dirección General anteriormente, referente a los Principios de Contabilidad Generalmente Aceptados, que se oponga total o parcialmente, o que se haya interpretado en forma diferente.

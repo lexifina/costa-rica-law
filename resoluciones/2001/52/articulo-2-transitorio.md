@@ -1,0 +1,1 @@
+Artículo transitorio 2.- Serán deducibles las depreciaciones provenientes de revaluaciones que hubieren sido practicadas con anterioridad a la vigencia de la Ley de Simplificación y Eficiencia Tributaria, y siempre que se hubieren realizado de acuerdo con las resoluciones emitidas por la Dirección General de Tributación.
