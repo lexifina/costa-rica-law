@@ -1,0 +1,1 @@
+Artículo 4°-La Municipalidad del Cantón de Aserrí gestionará ante el MINAE para que los dueños de terrenos en estas áreas, reciban el pago de servicios ambientales a las tierras cubiertas con vegetación boscosa y donde su uso sea exclusivamente para la producción de agua para consumo de las comunidades.

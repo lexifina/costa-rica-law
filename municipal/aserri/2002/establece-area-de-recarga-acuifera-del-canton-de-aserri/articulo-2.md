@@ -1,0 +1,1 @@
+Artículo 2°-El Área de Recarga Acuífera, se denominará: la Reserva Hídrica del cantón de Aserrí, y comprende el territorio cuyo perímetro está definido por los vértices que se describirán infra, mediante sus coordenadas, según los mapas básicos del Instituto Geográfico Nacional, escala 1:50.000, hoja Abra 3345 I y hoja Caraigres 3345 II.
