@@ -1,0 +1,1 @@
+Artículo 4°.-A partir del recibo de los documentos relativos a las liquidaciones, la Oficina de Peaje proceder a realizar una revisión de los mismos, a fin de determinar si existe algún faltante de caja, para lo cual, a más tardar tres días después de haberse producido, lo comunicar al respectivo cajero.

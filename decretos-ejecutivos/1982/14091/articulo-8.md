@@ -1,0 +1,1 @@
+Artículo 8°.-Por la índole de sus funciones, tanto los supervisores como los coordinadores no deben tener faltantes. Caso de que los tuvieren, se les sancionar conforme con el procedimiento señalado en los articulo 5°, 6° y 7°de este Reglamento.

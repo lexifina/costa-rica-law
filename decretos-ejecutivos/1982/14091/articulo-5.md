@@ -1,0 +1,1 @@
+Artículo 5°.-Una vez comunicado al cajero el faltante, si éste existiera, contará con un máximo de tres días para cancelarlo. Caso contrario, la Oficina de Peaje proceder a reportar el faltante por escrito a la Dirección de Personal del Ministerio de Hacienda, para que ‚ésta actúe conforme con lo que establece el Reglamento Interior de Trabajo del citado Ministerio.
