@@ -1,0 +1,2 @@
+ARTÍCULO 9°— Integración
+El Consejo Asesor será integrado por personas de solvencia moral y de alto nivel académico y profesional que gozan de la confianza del Defensor de los Habitantes de la República y del Defensor Adjunto. Sus miembros no serán considerados funcionarios de la Defensoría, y su participación en el órgano asesor será ad-honorem y no estará sujeta a plazo. El Defensor de los Habitantes de la República hará el nombramiento respectivo mediante acuerdo que se publicará en el Diario Oficial. Las sesiones del Consejo Asesor las presidirá el Defensor Adjunto.
