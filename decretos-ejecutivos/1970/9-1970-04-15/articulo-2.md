@@ -1,0 +1,1 @@
+Artículo 2°-Esta Subdirección en cooperación con el Departamento o Sección respectiva del Ministerio de Salubridad Pública promoverá y mantendrá una campaña de control y erradicación de la Brucelosis en el país.

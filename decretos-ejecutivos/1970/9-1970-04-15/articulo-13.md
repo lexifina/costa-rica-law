@@ -1,0 +1,1 @@
+Artículo 13.-Prohíbese la presencia de animales bovinos, porcino, caprinos y ovinos en plazas, calles, carreteras o cualquier otro paraje público, por considerarse fuente potencial de contagio y de difícil control.
