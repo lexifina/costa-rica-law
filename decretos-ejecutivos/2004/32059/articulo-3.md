@@ -1,0 +1,1 @@
+Articulo 3°—La Comisión Consultora de Visas Restringidas tomara sus decisiones por simple mayoría, y sesionara cada vez que sea necesario, estando presentes todos sus miembros. Las solicitudes serán estudiadas en el mismo orden cronológico que fueron interpuestas.
