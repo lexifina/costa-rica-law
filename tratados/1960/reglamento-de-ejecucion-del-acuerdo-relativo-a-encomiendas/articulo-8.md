@@ -1,0 +1,8 @@
+ARTICULO 108
+Formación de Despachos
+1.-Las encomiendas se anotarán en una hoja de ruta modelo CP11 (Unión Postal Universal), con todos los detalles que ésta requiera y remitiéndose dos ejemplares de la misma a la oficina destinataria del despacho. Sin embargo, las Administraciones podrán ponerse de acuerdo para registrar las encomiendas en dicha fórmula de la manera que más convenga a su respectivo servicio.
+2. -Las Administraciones que decidan utilizar la tasa promedio por kilogramo, de acuerdo con las disposiciones del párrafo 3 del artículo 4°, indicarán en la lista de encomiendas el número de los mismos, el peso neto total, y el número total de sacos que componen cada despacho.
+3.-Las Oficinas de cambio expedidoras numerarán los despachos en forma correlativa anual para cada oficina de cambio destinataria. En el primer despacho de cada año constará el número del último despacho del año anterior.
+4. -Los bóletines de expedición, declaraciones de Aduana y demás documentos exigidos acompañarán a las encomiendas que contenga cada saco que forma el despacho. .
+5.-Los sacos se asegurarán con cierres que garanticen la integridad de su contenido, y llevarán una etiqueta de color amarillo ocre con la mención del número del despacho, número de orden del envase, cantidad de encomiendas que contiene y peso bruto del mismo. El marbete de los sacos que contengan encomiendas con valores declarados se singularizará con la letra "V" en color rojo.
+6. -En el último saco de los que compongan el despacho se incluirán las hojas de ruta CP11 (Unión Postal Universal), y en el marbete se singularizarán con la letra "F".
