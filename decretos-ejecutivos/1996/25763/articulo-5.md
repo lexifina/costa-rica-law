@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión queda facultada para promover iniciativas tendientes a canalizar recursos técnicos, profesionales y financieros locales y externos, para impulsar y apoyar acciones en el campo de la producción estadística con enfoque de género.
