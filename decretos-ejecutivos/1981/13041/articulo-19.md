@@ -1,0 +1,1 @@
+Artículo 19.—Los caminos no clasificados serán todos aquellos caminos públicos no clasificados dentro de las categorías antes descritas, tales como caminos de herradura, sendas, veredas o trillos. Por lo general proporcionan acceso a muy pocos usuarios, los cuales sufragarán los costos de mantenimiento y mejoramiento.

@@ -1,0 +1,1 @@
+Artículo 15.—Los caminos públicos de la Red Vial Cantonal únicamente podrán ser construidos y mejorados por el Ministerio de Obras Públicas y Transportes, mediante la previa autorización de este Ministerio a la que se refiere el artículo 2 de la Ley General de Caminos Públicos.

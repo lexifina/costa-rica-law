@@ -1,0 +1,1 @@
+Artículo 6°—Se clasificará como carretera secundaria a todo camino público que cumpla con los requisitos señalados en los artículos 7° y 8° del presente Reglamento, y cuya función sea tanto la de permitir el tránsito de vehículos automotores, como la de suministrar acceso a las propiedades aledañas.

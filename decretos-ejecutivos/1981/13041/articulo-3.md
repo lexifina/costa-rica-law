@@ -1,0 +1,1 @@
+Artículo 3°—Se clasificará como carretera primaria a todo camino público que cumpla con los requisitos señalados en los artículos 4° y 5º del presente Reglamento, y cuya función principal sea la de permitir el tránsito de vehículos automotores y, en menor proporción, el acceso a las propiedades aledañas.

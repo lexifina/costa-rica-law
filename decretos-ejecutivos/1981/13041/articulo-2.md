@@ -1,0 +1,1 @@
+Articulo 2°—El diseño, la construcción, el mejoramiento y el mantenimiento de la Red Vial Nacional estarán a cargo de los departamentos técnicos de la División de Obras Publicas del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 10.—En general, las carreteras terciarias servirán de rutas cómo mínimo del tránsito para las carreteras primarias y secundarias, y en relación con están tendrán longitudes medias de viaje y velocidades medias de recorrido menores. Además serán las rutas principales para los viajes dentro de una región o entre distritos importantes.

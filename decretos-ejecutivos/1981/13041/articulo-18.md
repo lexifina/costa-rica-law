@@ -1,0 +1,1 @@
+Artículo 18.—Las calles locales serán las vías públicas incluidas dentro del cuadrante de una área urbana, no clasificadas por el Ministerio de Obras Públicas y Transportes como travesías urbanas de la Red Vial Nacional.

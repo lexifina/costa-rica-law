@@ -1,0 +1,3 @@
+CAPITULO III
+De las Carreteras de Acceso Restringido y las Autopistas
+Artículo 20.—Se faculta al Ministerio de Obras Públicas y Transportes para que de acuerdo con los estudios que lleven a cabo los departamentos técnicos de su División de Obras Públicas, designe, dentro de la Red Vial Nacional, a las carreteras de acceso restringido, en las cuales sólo se permitirá el acceso o la salida de vehículos en determinadas intersecciones con otros caminos públicos. Esta clasificación complementaria se aplicará a aquellas carreteras en las cuales se determine que, por razones de capacidad y seguridad, sea conveniente limitar el acceso o la salida de vehículos, y generalmente por medio de distribuidores de tránsito a desnivel.
