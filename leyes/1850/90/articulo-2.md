@@ -1,0 +1,1 @@
+Art. 2. Si despues de pasados tres meses de estar los animales depositados y de haberse fijado lista en los Ingares públicos, no ocurriere su dueño, pagando los costos causados, se mandarán subastar, y su producto pasará al tesoro respectivo por via de depósito con nota del juez.
