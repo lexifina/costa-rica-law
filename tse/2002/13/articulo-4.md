@@ -1,0 +1,2 @@
+Artículo 4°.- A los fiscales presentes en cada mesa se les proporcionará una copia al carbón o impresa mediante herramientas informáticas de las boletas de escrutinio, una vez suscritas por el magistrado encargado. Mientras se mantenga el mecanismo tradicional de confección de tales boletas, si las copias del formulario no fueren suficientes, les serán entregadas al día siguiente.
+También se pondrá a disposición de cada partido copia de las actas de escrutinio, una vez autorizadas con la firma de los magistrados.
