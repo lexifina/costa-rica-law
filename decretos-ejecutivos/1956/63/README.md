@@ -13,3 +13,4 @@ Reglamento de Estaciones Inalámbricas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1956-12-16 | la propia norma |
+| 2 | 1956-12-16 | SINALEVI (sin norma nombrada) |
