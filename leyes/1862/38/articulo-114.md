@@ -1,0 +1,1 @@
+Art 114° En consecuencia todos los habitantes varones que residan en la República desde la edad de dieciocho años hasta la de sesenta, sin distinción alguna, están obligados a contribuir con ocho reales anuales para reparación, construcción, ampliados y mejora de los caminos públicos del lugar de su domicilio.

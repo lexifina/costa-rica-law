@@ -1,0 +1,1 @@
+Art 125° En el caso de proveerse contra un Gobernador auto de detención o motivado de prisión, no se ejecutarán y se pondrán inmediatamente en conocimiento del Poder Ejecutivo para que dentro el término los Tribunales continuarán la secuela de la causa conforme a derecho.

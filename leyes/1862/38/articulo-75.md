@@ -1,0 +1,1 @@
+Art. 75. Corresponde a los Secretarios escribientes, arreglo de los archivos de los Gobernadores: les estarán subordinados los demás oficiales que hubiere en la oficina, y por tanto son responsables de sus omisiones y descuidos, no menos que la conservación y buen orden de los papeles del archivo, los cuales se deben recibir y entregar por inventario.

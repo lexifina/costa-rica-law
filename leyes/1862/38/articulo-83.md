@@ -1,0 +1,1 @@
+Art. 83. Serán subrogados los Jefes Políticos en caso de enfermedad 6 licencia, por el Alcalde 1o de la cabecera de Cantón, o por la persona que el Gobernador designe, dando cuenta en este caso, o en el de separación absoluta de aquellos, al Poder Ejecutivo.

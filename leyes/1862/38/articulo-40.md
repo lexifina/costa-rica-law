@@ -1,0 +1,1 @@
+Art. 40. El Servicio de las Tesorerías subalternas lo prestará también una persona sola, de nombra- miento de las Municipalidades, amovible á voluntad de estas; debiendo asegurar su responsabilidad en la cantidad que las Municipalidades lo creyesen conveniente.

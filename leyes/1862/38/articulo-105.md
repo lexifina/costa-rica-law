@@ -1,0 +1,1 @@
+Art. 105 Los Jueces de Paz darán cumplimiento exacto a las órdenes que les serán comunicadas directamente por los Gobernadores de las Provincias y por los Jefes Políticos sea cual fuere el ramo á que ellos se refieren.

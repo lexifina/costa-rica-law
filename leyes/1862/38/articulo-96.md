@@ -1,0 +1,1 @@
+Art 96° Los Jefes Políticos procurarán averiguar que bienes o capitales hay6 en el Cantón pertenecientes o destinados a la educación o a cualquiera otro ramo de beneficencia pública, e informará a la respectiva Municipalidad para que esta por medio de quien corresponda, los asegure si no lo estuvieren y les dé la debida aplicación.

@@ -1,0 +1,1 @@
+Art. 65. Los Gobernadores tan luego como sepan que ha aparecido en la Provincia alguna enfermedad epidémica o por cualquier concepto peligrosa, 6 ha ya temor de que pueda aparecer, lo pondrán así, a la brevedad posible, en conocimiento del Supremo Poder Ejecutivo.

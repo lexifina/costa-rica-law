@@ -1,0 +1,1 @@
+Art 24° Cada seis meses exigirán las Municipalidades de los respectivos Párrocos tres estados comprensivos de los casados, nacidos y muertos habidos en el último semestre de las cuales remitirá un ejemplar a las Secretaria de Gobernación otro al Gobernador de la Provincia y el tercero que, para su conocimiento conservará en su archivo.

@@ -1,0 +1,1 @@
+Art 23° Las Municipalidades están obligadas a levantar el catastro y cada diez años, los censos de la población de la Provincia cuyas operaciones mandará practicar por persona de capacidad y conocida honradez.

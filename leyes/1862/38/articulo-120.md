@@ -1,0 +1,1 @@
+Art 120° Al entregar los Gobernadores las listas de que habla el artículo 117, entregarán también tantos recibidos impresos y firmados por ellos, cuantas sean las personas contribuyentes, dejando en su oficina una copia íntegra de cada lista para el respectivo contraste. Ninguna persona está obligada a pagar la contribución subsidiaria sin que se le dé este recibo.

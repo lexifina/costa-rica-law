@@ -1,0 +1,1 @@
+Art 122° Los caminos que interesen a los particulares serán compuestos por cuenta y a costa de estas y de todas los demás interesados, en justa proporción a la utilidad, interés que tengan y uso que hagan de dichos caminos, a juicio de los Gobernadores, quienes en tales casos prestarán a esos mismos particulares o interesados, la cooperación o auxilios debidos.

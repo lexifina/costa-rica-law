@@ -1,0 +1,1 @@
+Art. 61. Tienen los Gobernadores la superior inspección en los suministros que se hagan a los Cuerpos militares que se acantonen en las Provincias transiten por ellas por superior disposición; y cuidarán de que se les presten por las autoridades de su mando los posibles y necesarios auxilios.

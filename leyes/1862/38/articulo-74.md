@@ -1,0 +1,1 @@
+Art 74° Los Gobernadores tendrán para su Despacho en Secretario escribiente de nombramiento del Poder Ejecutivo, a propuesta en terna por ellos y los amanuenses que sean necesarios a juicio de aquellos.

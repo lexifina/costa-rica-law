@@ -1,0 +1,1 @@
+Art. 56. Celarán los Gobernadores la buena administración, recaudación é inversión legal de las rentas y bienes nacionales situados en la respectiva Provincia, así como las rentas y bienes de las Municipalidades ó de cualesquiera otros fondos públicos dentro de su jurisdicción, sean cuales fueren sus de- nominaciones.

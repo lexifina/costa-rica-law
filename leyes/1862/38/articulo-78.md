@@ -1,0 +1,1 @@
+Art, 78. La duración de los Gobernadores será la de tres años, pudiendo ser reelectos y removidos á juicio del Poder Ejecutivo; y mientras sean tales Gobernadores no podrán obtener otro empleo, ni ejercer otras funciones que las que le señala la ley: exceptúense de la disposición de la segunda parte de este artículo los de los puertos y fronteras.

@@ -1,0 +1,1 @@
+Art. 86. Los Jefes Políticos cuidarán especial, mente de la tranquilidad pública, del buen orden, de la seguridad de las personas, bienes y derechos de los ciudadanos y habitantes del Cantón y de todo lo demás que expresa el artículo 15 de esta ley.

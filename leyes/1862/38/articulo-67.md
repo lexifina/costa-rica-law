@@ -1,0 +1,1 @@
+67. La residencia de los Gobernadores deber ser en la capital de la Provincia, y solo podrán salir de ella por más de un día: 1° por orden del Poder Ejecutivo: 2° por causa de visita: 3° por alguna otra en el ejercicio de sus funciones; y 4. por algún otro motivo que sea previamente aprobado por el Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Art 71° Los Gobernadores remitirán al Poder Ejecutivo en el mes de Enero de todos los años, un estado de casados, nacidos y muertos habidos en sus respectivas Provincias en el curso del año anterior inmediato.

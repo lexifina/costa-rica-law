@@ -1,0 +1,1 @@
+Art 112° Para el arrendamiento de las fincas rústicas de que habla el primer artículo de la presente sección; una vez acordado por las Municipalidades, estas señalarán las bases para las posturas, observando también, con excepción de la primera, todas las demás reglas prescritas en el artículo anterior.

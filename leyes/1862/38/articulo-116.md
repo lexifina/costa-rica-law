@@ -1,0 +1,1 @@
+Art 116° Los mismos Gobernadores en las capitales de Provincia y los Jefes Políticos en los Cantones menores, mandarán formar listas minuciosas de todas y de cada una de las personas que deban contribuir a la reparación y mejora de los caminos.

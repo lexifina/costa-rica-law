@@ -1,0 +1,1 @@
+Art. 58. Los Gobernadores informarán al Poder Ejecutivo del mal desempeño de los empleados que dependen de su autoridad, remitiéndole los documentos que lo comprueben; y cuando el mal desempeño sea de tal naturaleza que dé lugar á formación de causa, pasará dichos comprobantes al Juez competen te, para los efectos de ley, dando también cuenta de lo ocurrido al Poder Ejecutivo.

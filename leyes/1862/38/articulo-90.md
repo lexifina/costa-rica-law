@@ -1,0 +1,1 @@
+. Art. 90. Cuidarán los Jefes Políticos de que los encargados del manejo de los fondos y rentas respondientes al Cantón, rindan sus cuentas en los tiempos prefijados por la ley; persiguiendo los abusos o defraudaciones que noten o de que tuvieren informes.

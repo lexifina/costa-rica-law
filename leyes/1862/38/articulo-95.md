@@ -1,0 +1,1 @@
+Arts. 95. Es un deber de los Jefes Políticos, el cuidar que á los niños de ambos sexos de sus respectivos Cantones, se les enseñen buenas costumbres, a leer y escribir, si fuesen capaces de esa educación, y de que se le destine al aprendizaje de algún oficio,

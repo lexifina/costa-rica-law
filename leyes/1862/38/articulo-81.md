@@ -1,0 +1,1 @@
+Art. 81. Los Jefes Políticos son la primera autoridad del Cantón, presiden todos sus actos, así como las funciones cívicas y religiosas que tengan lugar: están subordinados á los Gobernadores, y solo por medio de estos se comunicarán con el Secretario de Estado respectivo.

@@ -1,0 +1,1 @@
+Art. 57. Cuidarán así mismo los Gobernadores de que los empleados ó encargados del manejo de los fondos y rentas Municipales, rindan sus cuentas en los tiempos prefijados por la ley y procurarán averiguar, perseguir y corregir todos los abusos y defraudaciones de que, con perjuicio de dichos fondos tas, tenga conocimiento que se cometan.
