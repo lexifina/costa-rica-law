@@ -1,0 +1,1 @@
+Artículo 8º—Para toda solicitud de licencia, traslado, traspaso y renuncia de licencia será requisito indispensable que el interesado o patentado esté al día en el pago de los tributos y demás obligaciones municipales.

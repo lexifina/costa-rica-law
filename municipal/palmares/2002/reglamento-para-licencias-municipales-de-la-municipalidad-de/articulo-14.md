@@ -1,0 +1,1 @@
+Artículo 14.—Los establecimientos comerciales que opten por una licencia comercial debe contar con lo estipulado en la Ley de Construcciones y su Reglamento. Para verificar el cumplimiento de lo anterior, la Municipalidad ordenará una inspección de la cual se levantará un acta, que deberá ser incorporada en el expediente que a los efectos lleve el municipio.

@@ -1,0 +1,1 @@
+Artículo 46.—El procedimiento administrativo para realizar la determinación de oficio o la recalificación será de acuerdo a ubicación, homogeneidad, ecuaciones contables, apego a la realidad y demás medios al alcance.

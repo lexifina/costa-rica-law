@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 55.—Aplicación irrestricta de este Reglamento. Los procedimientos para cobrar el impuesto de patente, fijados en este Reglamento, no excluyen las actividades sujetas a licencia que por características especiales, sean objeto de gravámenes impositivos creados por leyes de alcance nacional.

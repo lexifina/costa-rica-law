@@ -1,0 +1,1 @@
+Artículo 33.—Base imponible. Salvo en los casos en que la Ley Nº 8241 determine un procedimiento diferente para fijar el monto del impuesto de patentes, se establece como factores determinantes para la imposición, los ingresos brutos anuales que perciban las personas físicas o jurídicas afectas al impuesto, durante el período fiscal anterior al año que se grava.

@@ -1,0 +1,1 @@
+Artículo 10.—Fiscalización. La Unidad realizará un informe trimestral de todas las licencias otorgadas, con su ubicación y propietario. Deberá remitirse copia de este informe al Alcalde Municipal y al Concejo para su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 15.—La aprobación de la solicitud de licencia se hará en la unidad correspondiente y será entregado un título, como único comprobante. Deberá colocarse en un lugar visible y renovarse anualmente.

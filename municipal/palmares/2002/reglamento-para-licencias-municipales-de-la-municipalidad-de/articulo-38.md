@@ -1,0 +1,1 @@
+Artículo 38.—La información suministrada por los contribuyentes del impuesto de patentes a la Unidad, tiene el carácter confidencial al que se refiere el artículo 117 del Código de Normas y Procedimientos Tributarios.

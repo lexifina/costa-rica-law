@@ -1,0 +1,1 @@
+Artículo 42.—La declaración jurada que deben presentar los patentados ante la Unidad, quedará sujeta a las disposiciones especiales de los artículos 122, 123 y 130 del Código de Normas y Procedimientos Tributarios, así como a lo que establece el artículo 311 del Código Penal.

@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad indicará a los interesados cuales solicitudes requieren permisos de funcionamiento de otras Instituciones Públicas o Privadas, que deben acompañarse con la solicitud de la licencia.
