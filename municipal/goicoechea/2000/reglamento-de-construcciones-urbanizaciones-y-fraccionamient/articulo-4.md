@@ -1,0 +1,4 @@
+Artículo 4°-Urbanizaciones:
+4.1. Anteproyectos Municipales: La Municipalidad montará a futuro una oficina de anteproyectos de urbanizaciones, debidamente equipada y financiada. Podrá hacer los anteproyecto s de urbanizaciones que considere conveniente, e intentará, en el transcurso del tiempo, cubrir todo el territorio urbanizable del cantón; a partir del anteproyecto, el urbanizador deberá hacer los Planos Constructivos correspondientes.
+Los condominios, en lo que son análogos a urbanizaciones, conllevan también la intervención Municipal en el diseño de sitio básico, pero en este caso, esta intervención se limitará a lo correspondiente a Estudios Preliminares, y a la aprobación.
+En la zona de Renovación Urbana de San Gerardo e Independencia y en la zona Borde de Boulevard, toda el área se considerará análoga a urbanización.

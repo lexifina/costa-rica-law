@@ -1,0 +1,1 @@
+Artículo 2°-Objetivos. El objeto de este Reglamento es complementar al Reglamento General de Fraccionamientos y Urbanizaciones y al Reglamento de Construcciones (Gl"neral) en lo atinente a necesidades de regular para conformar mejor la ciudad, en aspectos que el Plan Regulador considera importantes y que los Reglamentos Generales no cubren.
