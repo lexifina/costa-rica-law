@@ -1,35 +1,10 @@
-SECCION III.- DE LAS DEPENDENCIAS DE LA GUARDIA DE ASISTENCIA
+SECCION III .- DE LAS DEPENDENCIAS DE LA GUARDIA DE ASISTENCIA
 RURAL
-Artículo 30.- La Guardia de Asistencia Rural además de la Dirección
-General contará con las siguientes dependencias:
-a) Sección Administrativa. La Sección Administrativa es el órgano
-de apoyo subordinado a la Dirección General, encargada de la
-atención de las necesidades y dotación de recursos de este
-cuerpo policial, auxiliar en la Administración de Personal,
-atenderá además los asuntos secretariales, de archivo,
-estadística. Preparará el proyecto presupuestario de la Guardia
-de Asistencia Rural.
-b) Comisarías Policiales. Las Comisarías son aquellas dependencias
-administrativo-policial, donde se ubican las Unidades
-Policiales, sus oficinas principales, personal, detenciones,
-vehículos y material logístico. En la jurisdicción definida
-como Cantonal o Distrital funcionarán las Comisarías y
-Subcomisarías requeridas según las necesidades locales.
-Estarán subordinadas a la Dirección General.
-c) Subcomisaría Policial. La Subcomisaría es la Unidad Policial
-dependiente de las Comisarías, donde se ubican los Recursos
-Humanos, oficinas principales, detenciones, vehículos y
-material logístico su jurisdicción será definida de acuerdo a
-las necesidades de seguridad ciudadana de las localidades.
-Estará a cargo de un Subjefe Policial y un Supervisor Policial,
-quien sustituirá al Subjefe en sus ausencias.
-d) Destacamento Policial. El Destacamento Policial será la unidad
-organizativa policial, a cargo de un Supervisor Policial, que
-se conformará para operativos policiales específicos,
-emergencias temporales, o la apertura del servicio de seguridad
-ciudadana requerido en forma ocasional o permanente en una
-comunidad o territorio determinado. El Destacamento Policial
-será un órgano subordinado a la Comisaría o Subcomisaría
-Policial más cercano geográficamente.
-( Así reformado por el artículo 2º del Decreto Nº 24928 de 16 de
-enero de 1996).
+Artículo 30.- La Guardia de Asistencia Rural además de la Dirección General contará con las siguientes dependencias:
+a) Sección Administrativa. La Sección Administrativa es el órgano de apoyo subordinado a la Dirección General, encargada de la atención de las necesidades y dotación de recursos de este cuerpo policial, auxiliar en la Administración de Personal, atenderá además los asuntos secretariales, de archivo, estadística. Preparará el proyecto presupuestario de la Guardia de Asistencia Rural.
+b) (*) Comisarías. (*) La Comisaría son aquellas dependencias administrativo-policial, donde se ubican las Unidades Policiales, sus oficinas principales, personal, detenciones, vehículos y material logístico. En la jurisdicción definida como Cantonal o Distrital funcionarán las (*) Comisarías y (*) Subcomisarías requeridas según las necesidades locales. Estarán subordinadas a la Dirección General.
+(*) (Así modificada su denominación por el artículo 2º del decreto ejecutivo Nº 24928 de 16 de enero de 1996).
+c) (*) Subcomisaría. La (*) Subcomisaría es la Unidad Policial dependiente de las Comisarías, donde se ubican los Recursos Humanos, oficinas principales, detenciones, vehículos y material logístico su jurisdicción será definida de acuerdo a las necesidades de seguridad ciudadana de las localidades. Estará a cargo de un Subjefe Policial y un Supervisor Policial, quien sustituirá al Subjefe en sus ausencias.
+(*) (Así modificada su denominación por el artículo 2º del decreto ejecutivo Nº 24928 de 16 de enero de 1996).
+d) Destacamento Policial. El Destacamento Policial será la unidad organizativa policial, a cargo de un Supervisor Policial, que se conformará para operativos policiales específicos, emergencias temporales, o la apertura del servicio de seguridad ciudadana requerido en forma ocasional o permanente en una comunidad o territorio determinado. El Destacamento Policial será un órgano subordinado a la (*) Comisaría o (*) Subcomisaría más cercano geográficamente.
+(*) (Así modificada su denominación por el artículo 2º del decreto ejecutivo Nº 24928 de 16 de enero de 1996).

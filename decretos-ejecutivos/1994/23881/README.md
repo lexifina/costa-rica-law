@@ -15,3 +15,4 @@ Reglamento de Organización de los Cuerpos Policiales Adscritos al Ministerio de
 | --- | --- | --- |
 | 1 | 1995-01-09 | la propia norma |
 | 2 | 1995-01-09 | Decreto Ejecutivo 28845 (2000-07-12) |
+| 3 | 1996-01-16 | Decreto Ejecutivo 24928 (1996-01-16) |
