@@ -1,0 +1,2 @@
+Artículo 10.-Modificase la ley N° 264 de 23 de agosto de 1939 (Ley de Jubilaciones y Pensiones para los ex-empleados del Ferrocarril Eléctrico al Pacifico), a fin de que el artículo 5° se lea así:
+“Artículo 5°-El fallecimiento de los empleados y obreros, en servicio o jubilados, dará derecho a la viuda mientras permanezca en ese estado, y a falta de ‚esta a los hijos del fallecido, menores de edad no emancipados o mayores inválidos, a la pensión que disfrutaba el jubilado o que hubiera podido reclamar.”
