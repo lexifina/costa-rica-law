@@ -15,3 +15,4 @@ Otorgamiento Concesiones y Ampliaciones a Almacenes de Depósito Fiscal
 | 1 | 1990-09-13 | la propia norma |
 | 2 | 1990-09-13 | Decreto Ejecutivo 25270 (1996-06-14) |
 | 3 | 1996-06-14 | SINALEVI (sin norma nombrada) |
+| 4 | 1996-06-14 | Ley 8 |
