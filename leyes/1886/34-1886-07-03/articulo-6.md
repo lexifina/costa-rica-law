@@ -1,0 +1,2 @@
+Art. 6°. El Poder Ejecutivo reglamentará la forma de la emisión del empréstito, así como la distribución, percepción y administración de las mencionadas rentas.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los dos días del mes de julio de mil ochocientos ochenta y seis. A. ESQUIVEL, Presidente. A. VENEGAS, Secretario. MÁXIMO FERNÁNDEZ, Secretario. Palacio Presidencial. San José, á tres de julio de mil ochocientos ochenta y seis. Ejecútese. BERNARDO SOTO. -El Secretario de Estado en el despacho de Policía, CARLOS DURÁN.
