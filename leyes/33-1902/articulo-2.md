@@ -1,0 +1,1 @@
+Artículo 2° Esos jóvenes se dedicarán a los estudios siguientes: tenería, cultivo y preparación de frutas en conserva y desecas y cultivo y elaboración de fibras, mecánica y otros trabajos que el Ejecutivo indique, quien, a la vez, dará la reglamentación que corresponda.
