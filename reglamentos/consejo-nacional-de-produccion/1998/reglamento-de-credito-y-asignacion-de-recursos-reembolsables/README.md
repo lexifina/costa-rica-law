@@ -14,3 +14,4 @@ Reglamento de Crédito y Asignación de Recursos Reembolsables y No Reembolsable
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-05 | la propia norma |
+| 2 | 1999-04-07 | Reglamento 2078 (1999-04-07) |

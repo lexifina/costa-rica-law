@@ -1,4 +1,2 @@
-Artículo 14.—Rige a partir de su publicación.
-(Se corre la numeración por Adición Expresa del Artículo 13, según la Sesión N° 2078 de 07 de abril de 1999, publicado en La Gaceta N° 125 del 29 de junio del 2000.)
-El presente Reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción en sesiones 2023 artículo 2, y 2025, artículo 3, celebradas el 19 y 26 de agosto de 1998 respectivamente.
-San José, 21 de setiembre de 1998.
+Artículo 13.—Los beneficiarios del programa de Reconversión Productiva, cuentan con un plazo de sesenta días naturales, contados a partir de la comunicación de la Gerencia General del Acuerdo de Junta Directiva que aprueba el proyecto, para formalizar el contrato y suscribir las garantías. Vencido el mismo sin justificación técnica del interesado, la aprobación del proyecto queda sin efecto y liberado el compromiso de los recursos para otros proyectos que determine la Institución".
+(Así ADICIONADO por la Sesión N° 2078 de 07 de abril de 1999, publicada en La Gaceta N° 125 del 29 de junio del 2000.)
