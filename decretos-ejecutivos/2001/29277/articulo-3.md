@@ -1,0 +1,28 @@
+Artículo 3º—Declárase el Estero de Puntarenas como Humedal del Estero de Puntarenas y Manglares Asociados, que se describe según Hojas cartográficas del IGN denominada Golfo, Edición 3-IGNCR y Chapernal Edición 2-IGNCR, se parte de un punto ubicado en el extremo oeste del Barrio el Carmen de la Cuidad de Puntarenas de coordenadas Lambert 217850 Norte, 442980 E (1) (borde del Estero). Sigue por ese borde del Estero hasta la intersección con el estero Chacarita en el punto de coordenadas 218350 N-450400 E (2). De aquí toma una línea recta hasta el otro borde del estero de coordenadas 218500 N-450350 E (3), para seguir por esa margen del estero Chacarita con rumbo norte y este hasta llegar al punto 219900 N - 452850 E (4), que coincide con el límite externo del manglar tal y como lo describen las hojas Golfo y Chapernal ya citadas, por el que continúa hasta la orilla izquierda del río Guacimal, es decir pasando por puntos como los que a continuación se describen:
+219800 N – 452600E (5)
+220000 N – 452700 E (6)
+220500 N – 452450 E (7)
+221100 N – 452350 E (8) sobre estero de los Negros
+221500 N – 451450 E (9)
+220300 N – 450100 E (10)
+221500 N – 449500 E (11)
+221250 N – 448500 E (12)
+220600 N – 448200 E (13)
+221350 N – 447450 E (14)
+220700 N – 447300 E (15)
+221100 N – 447100 E (16)
+221000 N – 446500 E (17)
+220550 N – 446100 E (18)
+221200 N – 445700 E (19)
+220850 N – 444700 E (20)
+220450 N – 444550 E (21)
+221750 N – 443350 E (22)
+223300 N – 443000 E (23)
+222700 N – 441800 E (24)
+222900 N – 441500 E (25)
+222500 N – 441000 E (26)
+223200 N – 440600 E (27)
+223500 N – 439100 E (28)
+223250 N – 438800 E (29)
+Punto (29) ubicado en la margen izquierda del Río Guacimal por la que continúa aguas abajo hasta su desembocadura en el punto 222900 N -438100 E (30), para seguir por la línea de marea baja con rumbo sureste hasta la desembocadura del estero Pelusa de coordenadas 219900N - 443400 E (31). De aquí toma una línea recta con rumbo suroeste hasta alcanzar el punto inicial de la presente descripción del Humedal del estero de Puntarenas y Manglares asociados de coordenadas 217850 Norte, 442980 E (1) ubicado al borde del Estero, en el Barrio el Carmen de la Cuidad de Puntarenas.
+NOTA DE SINALEVI: Véase el artículo 2 del decreto ejecutivo Nº 32349 de fecha 25 de febrero del 2005, que amplía y delimita el área del Humedal Estero Puntatenas y Manglares Asociados; así como los artículos 3 y 4 del mismo decreto ejecutivo Nº 32349, que regulan las construcciones en el área Humedal Estero Puntarenas y Manglares Asociados.
