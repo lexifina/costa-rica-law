@@ -1,0 +1,1 @@
+Artículo 22.—Excepciones de aplicación de leyes al SINART S.A. El SINART, S. A., no estará sujeto a lo dispuesto en la Ley que crea la Autoridad Presupuestaria, Nº 6821, de 19 de octubre de 1982, ni a la Ley para el Equilibrio Financiero del Sector Público, Nº 6955, de 24 de febrero de 1984, tampoco a los alcances de dichas leyes.

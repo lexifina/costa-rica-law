@@ -1,0 +1,1 @@
+Transitorio II.—Los funcionarios (as) o empleados (as) que estén laborando al servicio del SINART al entrar en vigencia esta Ley, conservarán sus derechos laborales referentes a antigüedad, garantías sociales y propiedad de los cargos.

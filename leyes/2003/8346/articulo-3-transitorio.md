@@ -1,0 +1,1 @@
+Transitorio III.—Las prestaciones y los derechos laborales del personal que, con fundamento en un estudio técnico o de manera voluntaria, cese en sus funciones como consecuencia de la creación del SINART, S. A., podrán ser cancelados por el Ministerio de Hacienda, mediante una partida con cargo al presupuesto nacional.

@@ -1,0 +1,2 @@
+Artículo 13.—Organización y estructura del SINART, S. A. El SINART, S. A., por medio de los reglamentos que juzgue necesarios, establecerá la estructura y organización que requiera para la mejor realización de los fines del servicio que le asigna esta Ley.
+El presidente o la presidenta del Consejo Ejecutivo deberá someter a consideración del Consejo, para su discusión y aprobación, los proyectos de los reglamentos referidos en el párrafo anterior.
