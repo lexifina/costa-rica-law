@@ -1,0 +1,4 @@
+Según acuerdo de junta directiva SJD-500-2003, en sesión ordinaria Nº 5248, artículo 5, inciso VI), celebrada el día 3 de junio del 2003.
+Se acuerda: a) Atender las recomendaciones del Área de Contabilidad, según oficio C-334-2003 y aprobar la modificación de los artículo 59 y 64 del Reglamento para Contratos Administrativos, con el objeto de elevar el monto del Fondo Fijo en las Oficinas de los Puestos Fronterizos de Peñas Blancas y Paso Canoas, ya que según arqueos practicados se determinó que no supera el 30% mensual, para que se lea de la siguiente forma:
+Artículo 59.—Se establece el Fondo de Caja Chica Nº 2, con sede en las Oficinas Regionales de Peñas Blancas, en un monto de ¢35.000,00 (treinta y cinco mil colones 00/100).
+Artículo 64.—Se establece el Fondo de Caja Chica Nº 3, con sede en las Oficinas Regionales de Paso Canoas, en un monto de ¢35.000.00 (treinta y cinco mil colones 00/100).
