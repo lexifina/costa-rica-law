@@ -31,9 +31,14 @@ o perturbe su funcionamiento, si tales actos, por su naturaleza,
 constituyen un peligro para la seguridad de las aeronaves en vuelo;
 e) Comunique, a sabiendas, informes falsos poniendo con ello en peligro
 la seguridad de una aeronave en vuelo.
+1 bis.—Comete un delito toda persona que ilícita e intencionalmente, utilizando cualquier artefacto, sustancia o arma:
+a) ejecute un acto de violencia contra una persona en un aeropuerto que preste servicio a la aviación civil internacional, que cause o pueda causar graves lesiones o la muerte; o
+b) destruya o cause graves daños en las instalaciones de un aeropuerto que preste servicio a la aviación civil internacional o en una aeronave que no esté en servicio y esté situada en el aeropuerto, o perturbe los servicios del aeropuerto, si ese acto pone en peligro o puede poner en peligro la seguridad del aeropuerto.
+(Así adicionado el párrafo 1 bis anterior por el artículo 2 de la ley N° 8263 del 2 de mayo del 2002)
 2.- Igualmente comete un delito toda persona que:
 a) Intente cometer cualquiera de los delitos mencionados en el párrafo
-1 del presente artículo;
+1 o en el párrafo 1 bis del presente artículo;
+(Así reformado por el artículo 2 de la ley N° 8263 del 2 de mayo del 2002)
 b) Sea cómplice de la persona que los cometa o intente cometerlos.
 ARTICULO 2
 A los fines del presente Convenio:
@@ -102,6 +107,8 @@ delitos previstos en dichos incisos, en el caso de que el presunto
 delincuente se halle en su territorio y dicho Estado no conceda la
 extradición, conforme al artículo 8º, a los Estados previstos en el
 párrafo 1 del presente artículo.
+2 bis.—Asimismo, cada Estado contratante tomará las medidas necesarias para establecer su jurisdicción sobre los delitos previstos en el párrafo 1 bis del Artículo 1, así como en el párrafo 2 del mismo artículo, en cuanto este último párrafo se refiere a los delitos previstos en dicho párrafo 1 bis, en el caso de que el presunto delincuente se halle en su territorio y dicho Estado no conceda la extradición, conforme al Artículo 8, al Estado mencionado en el párrafo 1 a) del presente artículo.
+(Así adicionado el párrafo 2 bis anterior por el artículo 3 de la ley N° 8263 de 2 de mayo del 2002)
 3.- El presente Convenio no excluye ninguna jurisdicción penal
 ejercida de acuerdo con las leyes nacionales.
 ARTICULO 6

@@ -1,0 +1,3 @@
+Artículo VI
+1.—Tan pronto como diez Estados signatarios depositen los instrumentos de ratificación del presente Protocolo, éste entrará en vigor entre ellos treinta días después de la fecha de depósito del décimo instrumento de ratificación. Para cada Estado que deposite su instrumento de ratificación después de dicha fecha entrará en vigor treinta días después de la fecha de depósito de tal instrumento.
+2.—Tan pronto como el presente Protocolo entre en vigor, será registrado por los Depositarios de conformidad con el Artículo 102 de la Carta de las Naciones Unidas y con el Artículo 83 del Convenio sobre Aviación Civil Internacional (Chicago, 1944).

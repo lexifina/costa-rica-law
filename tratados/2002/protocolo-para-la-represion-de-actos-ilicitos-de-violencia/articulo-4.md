@@ -1,0 +1,2 @@
+Artículo IV
+A partir del 24 de febrero de 1988, el presente Protocolo estará abierto en Montreal a la firma de los Estados participantes en la Conferencia Internacional de Derecho Aéreo celebrada en Montreal del 9 al 24 de febrero de 1988. Después del 1º de marzo de 1988, el Protocolo estará abierto a la firma de todos los Estados en Londres, Moscú, Washington y Montreal, hasta que entre en vigor de conformidad con el Artículo VI.
