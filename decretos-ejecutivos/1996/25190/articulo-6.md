@@ -1,0 +1,1 @@
+Artículo 6°-La AP y su STAP quedan facultadas para solicitar a las Auditorías Internas o a las Oficinas de Recursos Humanos, o cualquier otra según corresponda, las constancias y certificaciones necesarias para la verificación del cumplimiento de las directrices y regulaciones respectivas.

@@ -1,0 +1,1 @@
+Artículo 7°-Toda modificación a la estructura organizacional, deberá contar con la aprobación previa del Ministerio de Planificación Nacional y Política Económica(MIDEPLAN) según el artículo 13° del decreto N° 23323-PLAN, Reglamento General de dicho Ministerio.
