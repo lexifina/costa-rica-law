@@ -1,0 +1,1 @@
+Art. 5. Los archiveros prestarán juramento ante la Corte Suprema de Justicia y responderán de las faltas cometidas en el ejercicio de sus funciones, ante los Jueces de 1' instancia de la respectiva Provincia. Su duración será la de su buen desempeño.

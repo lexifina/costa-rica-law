@@ -1,0 +1,5 @@
+DECRETO XLIII.
+Crea un archivero jeneral judicial en cada una de las cabeceras de Provincias
+"José María Montealegre, Presidente Provisorio de la República de Costa-Rica,
+En atención a que las repetidas traslaciones de los archivos judiciales ocasionan con frecuencia la pérdida de documentos importantes: que por consiguiente es de mayor interés que cuanto antes se les asigne una localidad fija y estable, que además deben encontrarse en un solo punto todos los protocoles y expedientes de los Juzgados de cada. Provincia bajo la vijilancia y responsabilidad de un funcionario especial, decreto:
+Art. 1° Se cria en cada una de las cabeceras de Provincia un archivo general judicial en donde se custodiarán todos los expedientes, causa protocolos custodiaran todos los expedientes, causas protocolos y demás instrumentos así de los Juzgados de 1° instancia, como de los municipios. Este archivo está a cargo de un empleado de nombramiento del Supremo Poder Ejecutivo a propuesta en terna de la Suprema Corte de Justicia.
