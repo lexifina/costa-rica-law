@@ -1,0 +1,1 @@
+Artículo 3º.- La Autoridad Presupuestaria no tendrá ninguna intervención en las políticas crediticias y monetarias de las instituciones del Sector Público Financiero Bancario, pero si en lo que respecta a ingresos que deban figurar en los presupuestos de esas instituciones.

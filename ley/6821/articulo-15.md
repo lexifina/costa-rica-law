@@ -1,0 +1,1 @@
+Artículo 15.- Se exceptúan del alcance de esta ley las universidades, el Instituto Tecnológico de Costa Rica y los gobiernos locales, instituciones que únicamente estarán obligadas a suministrar la información que requiera la Secretaría Técnica de la Autoridad Presupuestaria para sus diversos trabajos.
