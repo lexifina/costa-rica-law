@@ -1,0 +1,1 @@
+Artículo 3°—La adjudicación del premio la hará un jurado integrado por un delegado de la Asociación de Autores, uno del Ministerio de Cultura, Juventud y Deportes y otro del Colegio de Periodistas, el miembro que represente al Colegio de Periodistas, deberá ser un crítico teatral o un periodista de la Sección cultural.
