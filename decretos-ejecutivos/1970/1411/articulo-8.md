@@ -1,0 +1,1 @@
+Artículo 8°.- El Banco depositará en cuenta aparte estas comisiones , a la orden del Gobierno de la República, para ser aplicadas en la forma que indica la Ley N°4622 del 28 de julio de 1970 que le dio nuevo destino a la misma.

@@ -1,0 +1,1 @@
+Artículo 3°.- La acuñación de las monedas se hará en cualquiera de las casas de moneda en el Banco escoja entre las sugeridas por la empresa adjudicataria de la respectiva licitación, la cual también suscribirá los contratos actuando como único agente para estos fines.

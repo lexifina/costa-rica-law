@@ -1,0 +1,2 @@
+Artículo 4°.- En el contrato que sea suscrito entre la empresa adjudicataria y la casa o las casas de moneda encargadas de la acuñación, se hará constar que al Banco le debe ser conferido el derecho absoluto y sin restricciones de control sobre la acuñación.
+La acuñación se hará en cualquiera de las referidas casas que el Banco escoja; será notificada por ésta al Banco a medida que se vaya efectuando y el documento de notificación servirá de referencia para efectos de registro de la acuñación.

@@ -1,0 +1,1 @@
+Artículo 5°.- La Empresa adjudicataria correrá con todos los gastos que demande la acuñación, tales como adquisición de metales, diseños, costo de troqueles, costo de la acuñación, contrato con los cuños, gastos de exportación y ventas, aseguros requeridos, controles, propaganda y cualquier otro gasto no previsto.

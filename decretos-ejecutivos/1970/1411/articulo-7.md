@@ -1,0 +1,1 @@
+Artículo 7°.- Al recibo de cada comisión del 20% depositada a la orden del Banco Central de Costa Rica en un Banco del exterior que éste indique, aquélla Institución registrará la acuñación respectiva, según lo dispuesto en el artículo 4° hasta por el límite total establecido en este mismo Reglamento.
