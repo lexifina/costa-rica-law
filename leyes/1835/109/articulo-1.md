@@ -1,0 +1,5 @@
+DECRETO CIX
+Acuerda gracias y concesiones en favor de las compañías que se dediquen a abrir un camino al Norte.
+“ El Vice Jefe encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que la empresa de abrir caminos al mar del Norte es sumamente interesante al Estado, y que fomentarla es su primer deber por la influencia inmediata y necesaria que deben tener en el progreso de la agricultura, población e industria, ha tenido a bien decretar y decreta.
+Art 1°.- Sin perjuicio de las resoluciones del Supremo Gobierno Nacional a quien se ha dado cuenta con los expedientes promovidos por las Compañías establecidas en Alajuela y Cartago con el objeto de abrir un buen camino, la primera a Sarapiqui, y la segunda a Matina, el Estado por su parte, siempre que los caminos emprendidos den un buen resultado, les abonará no solamente todos los gastos de la empresa, sino también un premio de seis pesos anuales del capital invertido hasta amortise.
