@@ -14,3 +14,4 @@ Reforma al Reglamento General de Proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-27 | la propia norma |
+| 2 | 1999-01-27 | Ley 8 |
