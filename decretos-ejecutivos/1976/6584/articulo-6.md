@@ -1,0 +1,1 @@
+Artículo 6°. Los médicos, los directores y administrativos de entidades de salud públicas y privadas estarán obligados a suministrar las informaciones referentes al cáncer, dentro de las dos semanas siguientes al diagnóstico cierto.

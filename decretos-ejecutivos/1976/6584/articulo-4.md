@@ -1,0 +1,1 @@
+Artículo 4°. El Registro Nacional de Tumores, estará bajo la dirección técnica de los Departamentos de la Lucha contra el Cáncer y el Departamento de Estadística del Ministerio de Salud, en sus respectivos campos de trabajo. Los servicios técnicos y administrativos del Registro, serán atendidos con los recursos personales y materiales del Ministerio.
