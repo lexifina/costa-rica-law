@@ -1,0 +1,2 @@
+ARTICULO 32.-En tiempo de paz toda persona puede entrar en la República, salir de ella, viajar por su territorio y mudar de residencia.
+El ejercicio de este derecho de libre locomoción queda subordinado a las facultades de la autoridad, en los casos de responsabilidad criminal, civil o de policía, y a las disposiciones de la ley en cuanto regulen la emigración, inmigración y sanidad general o la expulsión administrativa de extranjeros perniciosos.

@@ -1,0 +1,1 @@
+ARTICULO 113.-Los sueldos de los Magistrados se fijarán cada diez años por una ley, y cada cinco los de los funcionarios que sirvan los juzgados y tribunales inferiores. Ni unos ni otros podrán ser disminuidos durante el período para que se fijaron.

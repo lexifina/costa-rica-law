@@ -1,0 +1,3 @@
+ARTICULO 54.-Salvo el caso de fragante delito, ninguna autoridad podrá detener al ciudadano o elector las horas de votación. Tampoco podrá exigírsele servicio militar.
+El funcionario público que imponga o trate de imponer a sus subalternos o a cualquier sufragante la manera cómo han de votar, perderá su puesto y sus derechos de ciudadano y será castigado como disponga la ley.
+No podrá situarse fuerza militar en las mesas o cerca de ellas. El Presidente de la mesa será el único con derecho a arreglar el servicio de policía en el recinto de votación y sus inmediatos alrededores, para mantener el orden.

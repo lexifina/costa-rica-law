@@ -1,0 +1,3 @@
+ARTICULO 63.-Para llenar la falta temporal o absoluta de un Diputado propietario se llamará a los Suplentes de la respectiva provincia por el orden en que aparecieren nombrados en el acto correspondiente a la elección de quien deba ser reemplazado. Si no hubiere suplentes de esa época, se llamará por el mismo orden a los elegidos en el otro trienio.
+Este principio se observará para suplir la falta de un Senador. En ninguno de los casos anteriores, el hecho de ser llamado un suplente a sustituir a un propietario implicará que puede exceder su período de seis años.
+Cuando se agote el número de suplentes, la Cámara respectiva podrá ordenar que en las próximas elecciones de renovación se elija nuevos suplentes.

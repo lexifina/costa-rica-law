@@ -1,0 +1,1 @@
+ARTICULO 45.-Son deberes de los costarricenses: observar la Constitución y las leyes, servir a la Patria, defenderla y contribuir para los gastos públicos. Además, están obligados a hacer que sus hijos y pupilos concurran a las escuelas públicas o privadas para obtener la educación primaria elemental, por el tiempo que la ley señale.

@@ -1,0 +1,1 @@
+ARTICULO 33.-El domicilio de los habitantes de la República es un asilo inviolable, y sólo podrá ser allanado en los casos especiales determinados por la ley en virtud de orden de autoridad competente.
