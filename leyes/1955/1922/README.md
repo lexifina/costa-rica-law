@@ -1,6 +1,6 @@
 # Ley de Pensiones e Indemnizaciones de Guerra
 
-Ley N° 1922 del 1955-08-05. SINALEVI, ficha 2455: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2455&param2=2608&param3=1>.
+Ley N° 1922 del 1955-08-05. SINALEVI, ficha 2455: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2455&param2=96024&param3=1>.
 
 Publicada en La Gaceta N° 178 del 1955-08-12.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1955-08-12 | Ley 1922 | 1955-08-05 |
 | 2 de 4 | 1995-09-14 | SINALEVI (15 normas) | 1955-08-05 |
+| 3 de 4 | 1995-09-14 | SINALEVI | 1963-04-30 |
