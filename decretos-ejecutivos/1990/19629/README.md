@@ -13,3 +13,4 @@ Declara Zona de Emergencia Lugares Adyacentes Río Turrialba
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-23 | la propia norma |
+| 2 | 1990-05-23 | SINALEVI (sin norma nombrada) |
