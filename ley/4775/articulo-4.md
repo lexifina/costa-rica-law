@@ -1,13 +1,2 @@
-Artículo 4º.- Los estudiantes de la Facultad de Derechos de la
-Universidad de Costa Rica que conforme al Reglamento respectivo estuvieren
-asistiendo a un Consultorio Jurídico, podrán comparecer a las diligencias
-de prueba en los juicios que tengan a su cargo y representar allí a la
-parte cuyos intereses defiende el Consultorio. Actuarán con las mismas
-atribuciones del Director del Consultorio a quien la parte le haya otorgado
-poder. Los estudiantes acreditarán su carácter, con certificación
-extendida por el Director del Consultorio, bajo su responsabilidad. El
-documento será extendido para cada juicio y podrá ser revocado en cualquier
-momento por el Director.
-Los estudiantes de derecho que sean empleados judiciales no estarán
-obligados a prestar sus servicios en los Consultorios Jurídicos. Ambas
-actividades se declaran incompatibles.
+Artículo 4º.- Los estudiantes de la Facultad de Derecho de la Universidad de Costa Rica que, conforme al reglamento respectivo, estuvieren asistiendo a un consultorio jurídico, podrán comparecer a las diligencias de prueba y debates de los juicios de cualquier clase, que estén a su cargo y representar allí a la parte cuyos intereses defiende el consultorio. Actuarán con las mismas atribuciones del Director del Consultorio a quien la parte le haya otorgado poder o designado abogado defensor. Los estudiantes acreditarán su carácter, con certificación extendida por el Director del Consultorio, bajo su responsabilidad. El documento será extendido para cada juicio y podrá ser revocado en cualquier momento por el Director.
+(Mediante resolución de la Sala Constitucional N°5420-01 de las 15:16 horas del 20/06/2001: Se interpretó que este artículo no es inconstitucional y tiene como fin cumplir con el principio de solidaridad social; razón por la cual nada impide que las universidades privadas contemplen en los programas de las respectivas carreras de Derecho cursos que cumplan esa misma función. En consecuencia, debe entenderse que las ventajas académicas y profesionales que poseen los estudiantes de la Universidad de Costa Rica se deben de entender de manera extensiva para todo estudiante de derecho de cualquier otra universidad nacional sea pública o privada. Por otra parte, las ventajas económicas y de exoneración fiscal, son dispuestas de manera exclusiva para la Universidad de Costa Rica porque así lo estableció el legislador y ello no resulta contrario al derecho de la Constitución. También debe ser entendido de manera extensiva la función consultiva y de asesoría jurídica que pueden llevar todas las Universidades públicas o privadas por medio de los consultorios jurídicos, pues para eso en la práctica no existe limitación alguna. Así mismo, mediante Resolución de la Sala Constitucional N° 9803-05, de las catorce horas cincuenta y dos minutos del veintisiete de julio del dos mil cinco, se interpretó este artículo en el sentido de que este no es inconstitucional siempre y cuando se interprete que los estudiantes de consultorios jurídicos no pueden asumir ninguna representación en causas penales por delito, contravención o infracciones.)
