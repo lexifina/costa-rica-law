@@ -1,0 +1,1 @@
+Artículo 27.—Al tercer día hábil siguiente al remate, el abogado deberá de informar por escrito al Departamento de Administración Tributaria, el resultado del remate, si pasado un lapso de ocho días no cumpliere con lo anterior, el Departamento enviará una nota solicitando el informe con copia al Concejo Municipal y al Alcalde Municipal para que proceda de conformidad.

@@ -1,0 +1,1 @@
+Artículo 17.—En el caso que por error se le de un trabajo a alguna persona física o jurídica que se encuentre morosa, el cheque que salga se debe retener hasta tanto no se cubra la deuda que tiene con la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 16.—No se podrá dar permisos de ningún tipo, a personas físicas o jurídicas que se encuentren morosas ante la Municipalidad, entiéndase de construcción, patentes, visado, espectáculos públicos, cualquier otro servicio prestado por la municipalidad. Ni ser proveedor de la municipalidad si no se encuentra al día con los tributos municipales.

@@ -1,0 +1,1 @@
+Artículo 8º—Los deudores con más de un trimestre vencidos recibirán dos avisos de cobro administrativos. De ser necesario, el abogado enviará un tercer aviso. Si aun así el deudor no comparece en la Oficina de Administración Tributaria, en los siguientes tres días hábiles la cuenta se atenderá en la instancia judicial (Cobro Judicial y embargo).

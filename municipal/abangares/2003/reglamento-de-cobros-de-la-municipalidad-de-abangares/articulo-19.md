@@ -1,0 +1,3 @@
+Artículo 19.—Se exceptúa del arreglo de pago:
+a) Licencias municipales y Patentes Municipales. Lo adeudado deberá hacerse de un solo monto. El Departamento de Administración Tributaria por medio de la Oficina de Patentes queda facultado para realizar el cierre del respectivo local comercial después de incumplimiento de pago por dos o más trimestres consecutivos (Art. 72 Código de Procedimientos Tributarios) y proceder al cierre de los locales que se encuentren en funcionamiento sin contar con su respectiva licencia municipal. (Patente) (Ley 8260 publicada en la Gaceta del 20 de mayo del 2002, "Tarifa de Impuestos Municipales del cantón de Abangares".)
+b) Los alquileres: Por este concepto no se aceptarán arreglos de pago; pues debe pagar por adelantado.

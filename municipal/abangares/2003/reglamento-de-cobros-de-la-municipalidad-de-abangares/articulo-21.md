@@ -1,0 +1,1 @@
+Artículo 21.—Para solicitar un arreglo de pago la cuenta deberá superar los dos trimestres de morosidad, una vez concedido el arreglo de pago. Los meses posteriores a este, deben pagarse puntualmente. De lo contrario se incumple el convenio de arreglo de pago.

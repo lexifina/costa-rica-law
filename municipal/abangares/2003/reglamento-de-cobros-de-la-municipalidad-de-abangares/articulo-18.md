@@ -1,0 +1,1 @@
+Artículo 18.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá de seis meses calendario, contados a partir de la firma del documento respectivo. El Departamento de Administración Tributaria elaborará una tabla donde se especificará el monto de los depósitos previstos a la formalización del arreglo de pago.
