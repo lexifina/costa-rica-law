@@ -1,0 +1,1 @@
+Artículo 5°-En su primera sesión la Comisión nombrará entre sus integrantes un Presidente, un Vicepresidente, un Secretario y un Fiscal. Además, podrá nombrar subcomisión para fines específicos en atención a la problemática del cultivo.
