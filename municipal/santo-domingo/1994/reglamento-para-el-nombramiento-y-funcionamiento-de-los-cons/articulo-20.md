@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos serán tomados por simple mayoría de los miembros presentes y se tendrán por firmes; si hubiera empate se someterá de nuevo a votación y si el mismo persistiera, el asunto se tendrá por desechado.

@@ -1,0 +1,1 @@
+Artículo 10.— La Comisión a que se refiere el artículo anterior, funcionará como órgano de coordinación de los Consejos de Distrito y el Concejo Municipal, con el fin de prestarles la asistencia que proceda en los proyectos que sean de interés para un Distrito o grupo de ellos aislada o conjuntamente.
