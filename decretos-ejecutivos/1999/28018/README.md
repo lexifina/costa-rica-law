@@ -14,3 +14,4 @@ Reglamento a la Ley de Relaciones entre Productores, Beneficiadores y Exportador
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-09 | la propia norma |
+| 2 | 2001-05-30 | Decreto Ejecutivo 29585 (2001-05-30) |
