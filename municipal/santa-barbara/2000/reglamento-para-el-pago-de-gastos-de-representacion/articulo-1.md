@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+La Municipalidad de Santa Bárbara de Heredia, bajo el artículo 5°, inciso a) de la sesión ordinaria N° 144, celebrada el 14 de noviembre del 2000, acuerda comunicar que al no haberse recibido en el lapso de diez días hábiles posteriores a la primera publicación, ninguna disconformidad respecto al fondo y forma de los siguientes reglamentos: Reglamento para Pago de Gastos de Representación, Reglamento a la Ley N° 7180 de Impuestos Municipales del cantón de Santa Bárbara del 8 de agosto de 1990 y reglamento para el Procedimiento de Cobro Administrativo y Judicial de la Municipalidad de Santa Bárbara, publicados en La Gaceta N° 210 del jueves 2 de noviembre del 2000, aprobarlos definitivamente.
+Votación unánime.
+Santa Bárbara de Heredia, 20de noviembre del 2000.
+(NOTA DE SINALEVI: Tal como se indica en el párrafo anterior, el texto corresponde al publicado en La Gaceta N° 210 del 2 de noviembre del 2000)
+La Municipalidad de Santa Bárbara de Heredia mediante acuerdo N° 468-00, tomado en la sesión ordinaria N° 137 celebrada el 26 de setiembre 1° del 2000, según artículo 5° y por votación unánime acuerda aprobar el proyecto de Reglamento Para Pago de Gastos de Representación y ordenase al señor Alcalde la publicación consultiva no vinculante de este Reglamento por el término de diez días hábiles conforme al artículo 43 del Código Municipal como sigue:
+REGLAMENTO PARA PAGO DE GASTOS DE REPRESENTACIÓN.
+Artículo 1°—Definición: Se entiende por gastos de representación aquellas erogaciones que se giran a ciertos funcionarios para sufragar gatos en que incurran con motivo de la atención a personas o representantes ajenas a la Municipalidad de Santa Bárbara.

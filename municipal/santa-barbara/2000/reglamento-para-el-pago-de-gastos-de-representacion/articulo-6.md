@@ -1,0 +1,1 @@
+Artículo 6°—Facultades de verificación: El Departamento de Tesorería de la Municipalidad de Santa Bárbara queda facultado para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.
