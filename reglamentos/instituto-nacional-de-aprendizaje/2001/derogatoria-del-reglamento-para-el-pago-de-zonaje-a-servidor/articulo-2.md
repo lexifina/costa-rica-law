@@ -1,0 +1,1 @@
+2°—Aplicar el Decreto 90-S-C del 13 de diciembre de 1965, que es el Reglamento para el Pago de Zonaje a los Servidores de la Administración Pública, para regular la materia referida al pago de zonaje a funcionarios de la Institución.
