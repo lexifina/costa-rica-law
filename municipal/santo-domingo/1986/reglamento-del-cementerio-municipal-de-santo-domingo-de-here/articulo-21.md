@@ -1,0 +1,1 @@
+Articulo 21.-Los traspasos permitidos de acuerdo con el decreto antes mencionado, se harán ante la administración mediante testimonio de escritura pública o ejecutoria de sentencia judicial. En caso de existencia de restos en el derecho, el documento deberá hacer constar el vinculo familiar respectivo entre los contratantes.

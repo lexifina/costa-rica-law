@@ -1,0 +1,1 @@
+Articulo 28. -Los derechos podrán ser ocupados porI a construcción en toda su longitud, pero deberan dejar 10 cm libres por cada costado, en caso de ser sencillo y 20 cm , en caso de ser dobles o triples.

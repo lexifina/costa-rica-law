@@ -1,0 +1,1 @@
+Articulo 24.-Los derechos solo se adjudicarán de común acuerdo entre el interesado y la Administración y según el plano regulador o aprobado por el Concejo y la disponibilidad de los mismos. Sobre el particular se acatarán las regulaciones que sobre venta de derechos establezca el Concejo.
