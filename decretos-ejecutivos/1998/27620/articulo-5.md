@@ -1,0 +1,2 @@
+Artículo 5°—Realizada las designaciones, la instalación del Consejo de Representantes deberá realizarse en un período máximo de 20 días; para lo cual el Director del SINAC, convocará con 8 días de anticipación a los profesionales de las diferentes instituciones. En esta sesión se nombrará un Coordinador del Consejo de Representantes de las Autoridades Científicas y un Secretario de Actas.
+La vigencia de los nombramientos será por un plazo de dos años prorrogables. Dichos nombramientos, deberán notificarse a la Autoridad Administrativa.
