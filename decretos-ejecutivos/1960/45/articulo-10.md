@@ -1,0 +1,2 @@
+Grados y Asimilaciones
+Artículo 10°─ Por razón de innegable conveniencia y previa ratificación que en el caso concreto haga el señor Ministro del Ramo (Seguridad Pública), se asimilan a Comandante, los jefes superiores del Cuerpo de Investigadores ad-honórem; a Capitán, los funcionarios administrativos miembros de Directiva y jefes de grupo, locales, provinciales o cantonales, ello de acuerdo con lo expresado en relación a grados en el articulado de este Reglamento.

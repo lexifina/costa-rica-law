@@ -1,0 +1,2 @@
+Del Quorum y Votaciones
+Artículo 31°─ El Directorio actuará con los miembros presentes, siempre y cuando se lleven a cabo las notificaciones con la antelación necesaria y que determinarán, el Director General de Detectives y el Subdirector conjunta o separadamente, estas notificaciones deberán ser hechas personalmente por el Prosecretario y bajo la responsabilidad de su superior, sea el Secretario Administrativo; para tal efecto la firma del convocado, en la lista de Directores confeccionada en cada caso, valdrá como notificación formal.

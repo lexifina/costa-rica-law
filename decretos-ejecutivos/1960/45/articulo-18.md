@@ -1,0 +1,1 @@
+Artículo 18°─ Los reconocimientos de labor distinguida y meritoria serán acordados por el Comité Directivo. Asimismo, ese cuerpo acordará las suspensiones a que se hagan acreedores sus miembros y demás integrantes del Cuerpo de Detectives ad-honorem.

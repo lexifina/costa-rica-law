@@ -1,0 +1,1 @@
+Artículo 16°─ En todo lo que se refiere a circunstancias personales, requisitos y atestados en general, el Cuerpo ad-honórem adopta los mismos formularios y exigencias de la Dirección General en ese sentido, y para ese efecto, usará la misma papelería y formularios.

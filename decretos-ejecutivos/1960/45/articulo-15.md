@@ -1,0 +1,1 @@
+Artículo 15°─ La integración de los sub-cuerpos o células cantonales, provinciales y eventualmente extranjeras del Cuerpo ad-honórem, queda abandonada a la prudencia y responsabilidad del Comité Directivo y como adelante se expresará.
