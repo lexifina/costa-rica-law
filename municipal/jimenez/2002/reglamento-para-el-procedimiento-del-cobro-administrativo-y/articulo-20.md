@@ -1,0 +1,1 @@
+Artículo 20.—Los abogados que por alguna razón personal, quieren dejar de servir a la institución, deberán comunicar esa decisión al Concejo Municipal con 30 días de antelación y enviar la totalidad de los expedientes judiciales que ellos manejan al Departamento de Cobros.

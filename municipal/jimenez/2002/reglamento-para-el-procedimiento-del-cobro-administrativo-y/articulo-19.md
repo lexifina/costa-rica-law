@@ -1,0 +1,1 @@
+Artículo 19.—Para efectos de determinar si los juicios se encuentran al día, el Departamento de cobros revisará periódicamente, con personal calificado, el número de expedientes y registros que consideren necesarios, de las operaciones entregadas a cada abogado tomado como base la documentación en poder del departamento de cobros.
