@@ -19,3 +19,4 @@ Reglamento del Registro del Estado Civil
 | 5 | 1942-08-18 | Decreto Ejecutivo 37 (1942-08-18) |
 | 6 | 1942-10-30 | Decreto Ejecutivo 59 (1942-10-30) |
 | 7 | 1952-08-22 | Reglamento 0 (1952-08-22) |
+| 8 | 1953-03-04 | Decreto Ejecutivo 11 (1953-03-04) |
