@@ -1,0 +1,1 @@
+Artículo 18.—Copias de recetas de medicamentos. En caso de pacientes cuyas patologías requieran de un tratamiento constante, se autoriza al profesional a emitir hasta un número de tres copias de la receta, anotando en la misma la fecha a la cual corresponden, así como el diagnóstico.
