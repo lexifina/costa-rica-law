@@ -1,2 +1,2 @@
-Artículo 12.- El Poder Ejecutivo reglamentará esta ley, dentro de los
-noventa días posteriores a su vigencia.
+"Artículo 12.- Esta ley es de orden público y rige a partir de su
+publicación".
