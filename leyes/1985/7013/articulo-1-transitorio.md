@@ -1,0 +1,2 @@
+Transitorio.- Los servidores públicos que al entrar en vigencia esta ley est‚n comprendidos dentro de las disposiciones de la ley Nº 148 del 23 de agosto de 1943 y sus reformas, conservarán todos los derechos que reconoce dicha ley en cuanto a edad, tiempo de servicio, monto de la cotización y cualesquiera otros extremos, los que se reconocerán como derechos adquiridos.
+Presidencia de la República.-San José, a los dieciocho días del mes de noviembre de mil novecientos ochenta y cinco.
