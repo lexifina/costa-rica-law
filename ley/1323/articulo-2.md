@@ -1,0 +1,1 @@
+Artículo 2°.- Destinase a Plaza Pública de recreo, la manzana N°10 de los terrenos del Barrio del Carmen de la ciudad de Puntarenas, con excepción del área ocupada, por las construcciones de la Asociación Benéfica de Cristo Obrero y que mide: al Norte, 45 metros, 12 centímetros; al sur 45 metros, 11 centímetros; con una superficie de 3146, 94.12 metros cuadrados.
