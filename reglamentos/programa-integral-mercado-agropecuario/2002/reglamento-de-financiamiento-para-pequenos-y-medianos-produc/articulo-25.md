@@ -1,0 +1,2 @@
+Artículo 25.—Avisos previos.
+La Unidad Ejecutora comunicará al beneficiario, en caso de comprobarse incumplimiento en la ejecución del proyecto, que se subsanen o corrijan - si procediere- las irregularidades cometidas dentro del plazo establecido por la Unidad Ejecutora a partir del aviso respectivo, bajo el apercibimiento de tomarse exigible la devolución de los montos de los recursos adelantados y asignados bajo la modalidad de reembolsables y la totalidad de los recursos no reembolsables.

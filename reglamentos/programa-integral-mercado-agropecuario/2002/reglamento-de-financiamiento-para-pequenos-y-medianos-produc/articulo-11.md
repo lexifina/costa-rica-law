@@ -1,0 +1,1 @@
+Artículo 11.—Distribución porcentual de los recursos. Del total de los recursos presupuestados para cada periodo, el 80% se destinará al financiamiento de proyectos bajo la modalidad de reembolsables y el 20% restante como fondos no reembolsable.

@@ -1,0 +1,1 @@
+Artículo 26.—De los cobros administrativos. Las organizaciones beneficiarías, que se encuentren atrasadas en la cancelación de dos cuotas consecutivas al PIMA, serán sujetas de cobro administrativo mediante trámite que realizara la Dirección Administrativa Financiera.

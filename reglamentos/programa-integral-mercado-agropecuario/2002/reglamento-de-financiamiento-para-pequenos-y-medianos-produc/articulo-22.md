@@ -1,0 +1,2 @@
+Artículo 22.—Del periodo para formalizar y retirar los dineros. El Beneficiario tendrá un periodo máximo de treinta días, después de aprobado el financiamiento por parte del Consejo Directivo, para formalizar el crédito y un periodo máximo de sesenta días naturales, después de formalizado el crédito para retirar el monto del total del financiamiento aprobado.
+El incumplimiento de lo anterior producirá la pérdida del derecho a recibir los montos pendientes, salvo casos muy calificados debidamente aprobados por el Consejo Directivo.

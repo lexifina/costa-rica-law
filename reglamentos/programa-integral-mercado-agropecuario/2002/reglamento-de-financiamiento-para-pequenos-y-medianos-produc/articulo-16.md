@@ -1,0 +1,1 @@
+Artículo 16.—Del periodo de gracia. El periodo de gracia para la amortización del crédito que se apruebe a favor del Beneficiario, será el que se determine con base en las características propias de cada proyecto. La cancelación de los intereses sobre el desembolso reembolsable girado se efectuará 60 días después de haberse girado el desembolso correspondiente.

@@ -1,0 +1,1 @@
+Artículo 5°—De los requisitos generales de acceso al financiamiento: Se establece expresamente que los Beneficiarios, en caso de personas jurídicas, sujetos del financiamiento aquí regulado, deberán encontrarse legalmente constituidos y vigentes de conformidad con la legislación existente en Costa Rica y que les habilite para ejercer derechos y contraer obligaciones.
