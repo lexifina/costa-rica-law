@@ -1,0 +1,1 @@
+Artículo 39.—La Administración de cementerios tiene a su cargo todas las actividades referentes al funcionamiento y administración del Cementerio General, el Metropolitano de Pavas y de cualquier otro que en el futuro administre la institución.

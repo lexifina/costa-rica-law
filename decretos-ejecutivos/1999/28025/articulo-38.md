@@ -1,0 +1,5 @@
+Artículo 38.—El Departamento de Revisión y Control es responsable de las siguientes funciones:
+a) Revisar los premios pagados por los cajeros del Departamento de Tesorería, a partir del día hábil siguiente de su pago, así como los pagados por las Agencias autorizadas por la Junta Directiva. Tiene bajo su responsabilidad la custodia de esta lotería hasta su prescripción y destrucción.
+b) Constatar el correcto pago, que a través de cheques u otros medios, realiza la Institución, comprobando la veracidad de la documentación que justifica el pago, así como su validez y suficiencia.
+c) Constatar que los documentos justificantes de las liquidaciones que presentan los beneficiarios de donaciones con fondos producto de premios prescritos y no vendidos de las loterías, así como los girados con recursos generados por concepto de superávit libre de operaciones, lotería instantánea y Consejo Técnico de Asistencia Médico Social.
+d) Cualquier otra función que se le asigne en materia de su competencia.

@@ -1,0 +1,7 @@
+Artículo 21.—El Departamento de Acción Social es responsable de las siguientes funciones:
+a) Proponer a la Gerencia diferentes políticas, planes y programas de trabajo por ejecutar en relación con los estudios socioeconómicos que esta debe realizar.
+b) Confeccionar, ejecutar y mantener actualizado el plan de programaciones de adjudicatarios, de elegibles para ser adjudicatarios, de beneficiarios de los recursos generados por la Institución y otros registros necesarios para el correcto desempeño de sus funciones.
+c) Preparar las investigaciones y estudios de carácter social y determinar la situación de los adjudicatarios y de los elegibles para convertirse en adjudicatarios, con el fin de brindar la asesoría en el campo de su competencia a los órganos superiores.
+d) Evaluar y realizar estudios referentes a las solicitudes de las organizaciones y de las entidades que requieren financiamiento de necesidades básicas y de proyectos con recursos producto de los premios prescritos y no vendidos, superávit libre de operaciones y otras utilidades de las loterías y emitir las recomendaciones pertinentes a la comisión institucional respectiva.
+e) Formar parte de las comisiones que le asigne la Gerencia y la Junta Directiva, así como las que se establecen en las leyes y los reglamentos existentes.
+f) Cualquier otra función especial o general que le asigne la Gerencia en el campo de su competencia.

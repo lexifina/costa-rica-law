@@ -1,0 +1,1 @@
+Artículo 3°—A la Junta Directiva de la Junta de Protección Social de San José, como órgano colegiado jerárquico superior, le corresponde dictar las normas que considere necesarias para el funcionamiento interno de la Institución.

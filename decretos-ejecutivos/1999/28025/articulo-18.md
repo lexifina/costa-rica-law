@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+De las Direcciones y Departamentos
+Artículo 18.—Para coordinar en forma eficaz los recursos y los servicios, con el fin de eliminar la duplicidad de funciones, ampliar el campo de especialización del personal y facilitar el control de las operaciones, la Junta tendrá las Direcciones, Departamentos y Servicios que se consideren convenientes para el debido funcionamiento de la Institución.
+Los Directores de Área son los superiores jerárquicos inmediatos de las jefaturas de los Departamentos y demás dependencias que conformen su área de trabajo. Son los responsables ante la Gerencia sobre el eficiente funcionamiento administrativo de la dirección a su cargo. Esa responsabilidad consiste en supervisar, controlar, organizar y dirigir al personal a su cargo, y dejar evidencia formal del desarrollo de sus funciones, establecidas en los manuales de organización, así como en la normativa que regula su actividad.

@@ -1,0 +1,16 @@
+Artículo 15.—-La Auditoría de la institución está a cargo de un Auditor Interno y de un Subauditor Interno, los cuales deben ser contadores públicos autorizados. El Auditor depende directamente de la Junta Directiva y está bajo el control y vigilancia de ésta. La Auditoría estará conformada por las áreas de fiscalización, que desde el punto de vista técnico defina el Auditor Interno.
+Las funciones encomendadas a la Auditoría son las siguientes:
+a) Confeccionar el programa anual de trabajo, el cual indicará los estudios de auditoría por realizarse, de conformidad con los recursos asignados. Los estudios se efectuarán con independencia de criterio en su materia de acuerdo con las normas de auditoría generalmente aceptadas y demás disposiciones emitidas por la Contraloría General de la República. Para el cumplimiento de sus funciones no está sujeta a procedimientos, autorizaciones, ni coordinaciones con las unidades administrativas de la Institución.
+b) Verificar el cumplimiento, la suficiencia y la validez del sistema de control interno establecido por la administración activa y proponer las medidas correctivas, todo ello deberá realizarse en coordinación con la jefatura de la Unidad respectiva, cuando se considere necesario. Tendrá acceso a todos los activos, lugares y documentos propiedad de la Junta de Protección Social de San José.
+c) Asesorar a la Junta Directiva y a la Presidencia en materia de su especialidad, así como a la Administración Activa, cuando procede.
+d) Velar por el cumplimiento de las recomendaciones giradas en sus informes o estudios especiales, e informar a la Gerencia o Junta Directiva sobre su acatamiento.
+e) Fiscalizar en el acto la realización de los sorteos de loterías y demás programas para verificar que se realicen con transparencia, seguridad y confiabilidad.
+f) Informar acerca de cualquier caso de fraude, desfalco, malversación o distracción de fondos públicos; cualquier conducta impropia de un funcionario u otra irregularidad grave que apareciera como resultado de su desempeño.
+g) Comprobar el cumplimiento de las disposiciones legales y reglamentarias, de las políticas y de los acuerdos que rigen la entidad, así como la correcta aplicación de las leyes y decretos que rigen a la Administración Pública.
+h) Fiscalizar en el acto la devolución de excedentes de loterías de los adjudicatarios.
+i) Verificar la impresión de las listas oficiales de premios de loterías de los sorteos que se efectúen los días domingos o en un día no laboral, el cual conlleve la apertura de las instalaciones del Departamento de Imprenta y Litografía.
+j) Designar a los auditores que ocuparán las plazas vacantes o temporales y los ascensos, de conformidad con los procedimientos de selección y reclutamiento de la Institución.
+k) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que legal o reglamentariamente, debe llevar la Institución.
+l) Realizar otras labores que estén enmarcadas dentro del contexto legal que cubre a las Auditorías Internas de las instituciones públicas y las que determine la Contraloría General de la República.
+m) Rendir los informes pertinentes a la Junta Directiva.
+n) Cualquier otra función que se le encomiende dentro del marco de su competencia.

@@ -1,0 +1,1 @@
+Artículo 6°—En todas las sesiones, el quorum lo formarán seis de los miembros. Sin embargo, si así lo dispusieren por unanimidad los miembros presentes, en caso urgente, se podrá sesionar válidamente treinta minutos después de la hora fijada para la reunión, con los asistentes que hubiere, siempre que éstos no sean menos de cuatro.
