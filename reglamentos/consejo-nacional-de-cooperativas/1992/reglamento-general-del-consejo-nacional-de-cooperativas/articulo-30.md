@@ -1,0 +1,1 @@
+Artículo 30.—La instalación del Directorio y la apertura de sesiones del Plenario del Consejo Nacional de Cooperativas se comunicará al Ministerio de Trabajo y Seguridad Social, al Instituto Nacional de Fomento Cooperativo y al los organismos en que participe el Consejo Nacional de Cooperativas.

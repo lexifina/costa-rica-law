@@ -1,0 +1,1 @@
+Artículo 19.—En cada Asamblea Sectorial existirá un Comité de Escrutinio, integrado por tres personas de reconocida honorabilidad, imparcialidad e identificación con el Movimiento Cooperativo, los cuales serán seleccionados por la Secretaría Ejecutiva del Consejo Nacional de Cooperativas.

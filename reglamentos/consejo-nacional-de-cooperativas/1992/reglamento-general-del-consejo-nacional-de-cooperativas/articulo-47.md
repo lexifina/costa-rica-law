@@ -1,0 +1,1 @@
+Artículo 47.—Las convocatorias a sesiones extraordinarias se harán siempre por escrito, con una antelación mínima de 48 horas, salvo casos de urgencia. Con la convocatoria se acompañará un detalle de los puntos a tratar, los cuales no podrán ser modificados en el curso de la sesión extraordinaria; salvo cuando asistan todos los miembros y así lo acuerden por unanimidad.

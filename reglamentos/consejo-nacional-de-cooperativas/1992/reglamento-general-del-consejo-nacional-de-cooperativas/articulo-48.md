@@ -1,0 +1,1 @@
+Artículo 48.—El quorum para que pueda sesionar válidamente el Plenario o el Directorio lo formará la presencia de la mitad más uno de sus miembros. Si no hubiere quórum se podrá sesionar válidamente en segunda convocatoria una hora después de la señalada para la primera con los miembros presentes, siempre que representen por lo menos el 20% del los miembros electos.

@@ -1,0 +1,2 @@
+Artículo 21.—El quorum de las Asambleas Sectoriales estará conformado por la mitad más uno de los delegados/as de las cooperativas con derecho a participar de acuerdo con la Clasificación Oficial que emita el Instituto Nacional de Fomento Cooperativo. Si una hora después de la fijada no se completa el número de delegados/as, se procederá a sesionar
+válidamente con la asistencia de por lo menos el veinte por ciento del total de las cooperativas indicadas.

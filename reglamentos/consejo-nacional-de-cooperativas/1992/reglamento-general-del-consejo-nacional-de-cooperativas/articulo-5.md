@@ -1,0 +1,5 @@
+Artículo 5°—El procedimiento para la designación de representantes por parte de los organismos cooperativos ante el Congreso Cooperativo, se hará de la siguiente manera:
+Corresponde al Consejo de Administración del Organismo Cooperativo correspondiente la designación de un representante propietario/a y un suplente ante el Congreso Cooperativo. El representante propietario/a tendrá derecho a voz y voto.
+El representante suplente tendrá derecho a voz; pero solamente tendrá derecho a voto si actúa en sustitución del propietario/a en sus ausencias temporales o definitivas. Ningún miembro del Plenario del Congreso Cooperativo podrá arrogarse ni asumir la representación en nombre de dos o más organismos cooperativos.
+c) Cada organismo cooperativo deberá comunicar al Secretario Ejecutivo del Consejo Nacional de Cooperativas, con no menos de ocho días de anticipación a la fecha señalada para la celebración del Congreso, la designación de su representante propietario/a y la del suplente acompañada de la certificación de personería jurídica
+vigente de la cooperativa.

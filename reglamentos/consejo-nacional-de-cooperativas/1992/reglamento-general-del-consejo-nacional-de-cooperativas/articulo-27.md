@@ -1,0 +1,1 @@
+Artículo 27.—La designación de los miembros del Directorio del Consejo Nacional de Cooperativas se hará puesto por puesto, eligiendo deesta forma a sus integrantes con la mayoría de votos válidos emitidos, de conformidad con el artículo 138 de la Ley 4179 y sus reformas.

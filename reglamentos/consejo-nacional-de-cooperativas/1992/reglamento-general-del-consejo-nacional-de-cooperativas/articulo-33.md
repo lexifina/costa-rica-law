@@ -1,0 +1,1 @@
+Artículo 33.—En sus sesiones participaran, con derecho a voz, un representante de cada una de las uniones regionales de cooperativas existentes en el país, una representante del Comité Nacional de las Mujeres Cooperativistas y un representante del Comité Nacional de la Juventud Cooperativista.
