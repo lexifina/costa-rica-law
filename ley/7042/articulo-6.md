@@ -1,0 +1,1 @@
+Artículo 6º.- Si transcurridos dos años después de haber entrado en vigencia el presente Convenio, el país no hubiere negociado y firmado el Tratado Permanente a que se refiere al Artículo XIV del Convenio Interino, el Gobierno de la Républica procederá a retirarse como Parte del citado Convenio, de conformidad con el procedimiento previsto en el Artículo XII del mismo convenio.
