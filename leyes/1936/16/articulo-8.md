@@ -1,1 +1,1 @@
-Artículo 8°—Los miembros de la Junta desempeñarán su cometido con absoluta independencia del Poder Ejecutivo, y serán, por lo mismo, los únicos responsables de su gestión. Por igual razón pesará sobre ellos cualquier responsabilidad legal que pueda atribuírseles.
+Artículo 8°—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

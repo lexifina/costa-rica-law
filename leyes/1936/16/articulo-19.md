@@ -1,2 +1,1 @@
-Artículo 19.—Queda prohibido al Banco hacer operaciones, directa o indirectamente, con los miembros de la Junta, y sus esposas, padres e hijos por afinidad o por consanguinidad, sin que esta prohibición se extienda a las operaciones realizadas antes del nombramiento respectivo.
-Ningún miembro de la Junta podrá asistir a la sesión en que se resuelvan operaciones en que esté interesado algún otro pariente suyo hasta el cuarto grado inclusive, por afinidad o por consanguinidad, u operaciones que interesen a sociedades de que él o sus parientes dichos sean socios, directores o empleados.
+Artículo 19.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

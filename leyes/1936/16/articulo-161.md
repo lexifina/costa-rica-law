@@ -1,1 +1,1 @@
-Artículo 161.—Estos préstamos hipotecarios serán otorgados en forma directa por el Departamento, pero quedarán sometidos a las mismas normas que establece esta ley para los préstamos hipotecarios concedidos mediante la emisión de bonos, en cuanto fueren aplicables.
+Artículo 161.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 33.—Los directores, gerentes y empleados del Banco que, a sabiendas, ejecuten o autoricen operaciones prohibidas por la presente ley, responderán personalmente con sus bienes de las pérdidas que con ellas se Irroguen al Banco, sin perjuicio de las otras sanciones legales que les correspondan.
+Artículo 33.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 98. — El Departamento Hipotecario podrá emitir bonos hipotecarios y bonos de prenda para los fines que esta ley determina.
+Artículo 98. — (Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

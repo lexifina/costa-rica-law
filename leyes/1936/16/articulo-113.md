@@ -1,1 +1,1 @@
-Artículo 113.—En toda escritura de hipoteca se harán constar las cuotas que deberá pagar el deudor, y los plazos acordados para su pago, que no podrán ser mayores de un trimestre.
+Artículo 113.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

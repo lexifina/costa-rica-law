@@ -1,1 +1,1 @@
-Artículo 10.—-El Poder Ejecutivo no tendrá intervención ninguna en la administración interna del Banco, la cual será de absoluta responsabilidad de la Junta.
+Artículo 10.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

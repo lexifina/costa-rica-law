@@ -1,3 +1,1 @@
-Artículo 20.- Toda sucursal que establezca el Banco estará a cargo de un Gerente nombrado por la Junta y cuyo período de serviio, atribuciones y obligaciones, serán determinados por el Reglamento.
-El Gerente presidirá, por derechopropio, la Junta Directiva local, a la cual corresponderá la administración de los negocios de la sucursal, en la forma y dentro de los límites que fije el reglamento. Se compondrá, además, de tres miembros propietarios, todos los cuales serán elegidos por la Junta directiva General, seberán ser veinos de la zona geográfica en que funcione la sucursal y estarán sujetos a las condiciones y restricciones que establecen los artículos 7° y 9° de esta ley. Duararán dos años en sus funciones, y podrán ser reelectos.
-(Así reformado por el artículo 1° de la ley N° 373 del 4 de febrero de 1949)
+Artículo 20.-(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 186.—Todo atraso en el pago de intereses o amortizaciones, dará al Banco el derecho de aplicar multas, cuya tasa no podrá exceder del doble del tipo de interés del préstamo, calculadas sobre el monto de los pagos atrasados.
+Artículo 186.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 122.—Mientras no exista en el país una Bolsa de Valores, legalmente organizada, la colocación de los bonos la hará directamente el Departamento Hipotecario.
+Artículo 122.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

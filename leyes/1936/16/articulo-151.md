@@ -1,1 +1,1 @@
-Artículo 151.—Sin perjuicio de lo dispuesto en el artículo anterior, el Banco se reservará el derecho de efectuar pagos extraordinarios, determinando por sorteo los bonos que han de retirarse. Los bonos sorteados dejarán de devengar intereses desde la fecha señalada para dicha amortización.
+Artículo 151.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

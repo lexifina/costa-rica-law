@@ -1,1 +1,1 @@
-Artículo 196. — Los reglamentos a que se refieren los artículos 192 a 195 de esta ley, necesitarán la aprobación del Poder Ejecutivo.
+Artículo 196. — (Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

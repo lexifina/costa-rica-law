@@ -1,1 +1,1 @@
-Artículo 116.—Los deudores deben obligarse a pagar puntualmente en las fechas convenidas, y por el plazo del préstamo, las cuotas correspondientes, que comprenderán los intereses, la amortización y la comisión.
+Artículo 116.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

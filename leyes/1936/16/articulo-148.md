@@ -1,1 +1,1 @@
-Artículo 148.—Las tasas de interés que regirán para los bonos de prenda serán fijadas por la Junta, y podrán ser distintas según el plazo de vencimiento de los bonos.
+Artículo 148.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 174.—Las sumas prestadas por el Banco deberán dedicarse exclusivamente a los fines estipulados en los respectivos contratos. Si el Banco comprueba con el informe escrito de dos de sus peritos que el total o parte del préstamo ha sido aplicado a fines distintos, podrá dar por vencido el plazo del préstamo.
+Artículo 174.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

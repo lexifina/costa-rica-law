@@ -1,1 +1,1 @@
-Artículo 125.—El conjunto de las hipotecas de largo plazo constituidas a favor del Banco responderá preferentemente a los bonos en circulación, los cuales estarán además garantizados con el activo general del Banco.
+Artículo 125.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,2 +1,1 @@
-Artículo 25.—Estos departamentos funcionarán con absoluta independencia entre sí y de los demás servicios del Banco, y con las limitaciones que establece esta ley.
-Por lo tanto, cada Departamento llevará su propia contabilidad, y presentará sus balances por separado, lo mismo que su cuenta de ganancias y pérdidas.
+Artículo 25.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

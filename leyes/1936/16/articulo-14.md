@@ -1,7 +1,1 @@
-Artículo 14.- La Junta designará un Gerente General que tendrá a su cargo la administración del Banco, de acuerdo con la ley uy con las instrucciones que le imparta la Junta; y dos subgerentes que reemplazarán al rpimero en suis ausencias temporales, y que, adempas tendrán las facultades y funnciones que la Junta y el Gerente señalen.
-El Gerente y los subgerentes deberán reunir los mismo requisitos que el artíulo 7° de esta ley señala para los miembros de la Junta.
-Dichos funionarios serán nombrados por un período de cuatro años, y podrán ser nuevamente designados por períodos sucesivos iguales; serán inamovibles, salvo el caso de que, a juicio de la Junta, no cumplan con su cometido, o de que llegare a declararse contra ellos alguna responsabilidad legal.
-Para la designación del Gerente y los Subgerentes se necesitará el voto favorable de la mayoría de los directores. Su remoción sólo podrá acordare con el voto de los dos tercios de la Junta.
-El Gerente nombrará los demás empleados del Banco a personas que estuvieren ligadas con los miembros de la Junta o del Consejo Directivo del Dapartamento Emisor, o con los Gerentes y Sugerentes, por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive.
-En caso de que fuere desgnado miembro de la Junta o del Consejo Directivo del Departamento Emisor, Gerente o Subgerente una persona que tuviese relaciones de parentesto en la forma indicada con un empleado en servicio del Banco, este hecho no podrá dar motivo a la remoción del empleado.
-(Así reformado por el artículo 1° de la ley N° 373 del 4 de febrero de 1949)
+Artículo 14.- (Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

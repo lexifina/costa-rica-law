@@ -1,2 +1,1 @@
-Artículo 179.—Todas las garantías, principales o adicionales, constituidas en favor del Banco en alguna de las formas especificadas en los artículos 169 y 177 de esta ley, le darán al Banco el privilegio de pago preferente de sus créditos con el valor de las garantías y los frutos o rendimientos que se obtengan de ellas, hasta la cancelación total del crédito, inclusive los intereses ordinarios y multas, y los gastos correspondientes.
-Este privilegio se extiende al valor de los asegures que hubiere, y a cualquier indemnización que tuvieren que abonar terceros por daños y perjuicios que sufra la cosa dada en garantía.
+Artículo 179.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
