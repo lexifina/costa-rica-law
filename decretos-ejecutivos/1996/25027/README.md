@@ -12,3 +12,4 @@ Declara de Interés Nacional Congresos de Cirugía y Colo-Proctología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-12 | la propia norma |
+| 2 | 1996-03-12 | SINALEVI (sin norma nombrada) |
