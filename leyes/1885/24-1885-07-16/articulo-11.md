@@ -1,0 +1,1 @@
+Art. 11.-El artículo 44 queda redactado así: "Las Asambleas electorales se reunirán respectivamente en la capital de cada provincia ó comarca, á las doce del día señalado por esta ley, para proceder á las elecciones de su cargo".

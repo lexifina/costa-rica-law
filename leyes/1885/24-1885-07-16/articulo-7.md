@@ -1,0 +1,1 @@
+Art. 7°-Lo dispuesto en el artículo 18 queda modificado en estos términos: "Para la formación de las listas, se tendrá en cuenta el censo electoral y la nómina de los ciudadanos hábiles para ejercer el sufragio, que actualmente se preparan en la Dirección General de Estadística, los cuales serán publicados ó comunicados oportunamente."
