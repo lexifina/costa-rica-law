@@ -67,3 +67,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 52 | 2001-10-01 | Decreto Ejecutivo 29875 (2001-10-01) |
 | 53 | 2001-10-05 | Decreto Ejecutivo 29911 (2001-10-05) |
 | 54 | 2001-10-05 | Decreto Ejecutivo 29921 (2001-10-05) |
+| 55 | 2001-11-01 | Decreto Ejecutivo 29953 (2001-11-01) |
