@@ -1,0 +1,1 @@
+Art 2° El Gobierno proveerá en lo sucesivo dichos licores para el consumo público por medio de contratos, procurando, en todo caso, al celebrarlos que los licores que se importen, sean de buena calidad y que los públicos no carezcan de los de consumo ordinario.
