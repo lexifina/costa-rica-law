@@ -1,0 +1,1 @@
+Art. 2°-En consecuencia, los asuntos que eran de la competencia del Inspector General de Tesorerías Subalternas y que se hallen pendientes ante los Alcaldes Constitucionales de la República, pasarán á la Alcaldía expresada.
