@@ -1,0 +1,2 @@
+Artículo 25.—La Mención de Honor consiste en el otorgamiento de un certificado que especifica el nombre del estudiante beneficiario y el promedio alcanzado en el ciclo lectivo.
+En términos económicos, el beneficio se traduce en Beca de Honor, e implica la Exoneración total del pago de matrícula, durante el ciclo lectivo inmediato posterior al de la obtención del rendimiento académico que lo acredita para el disfrute de este beneficio, siempre y cuando se matricule.

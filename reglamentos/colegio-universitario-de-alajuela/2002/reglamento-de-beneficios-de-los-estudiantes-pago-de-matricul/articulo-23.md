@@ -1,0 +1,1 @@
+Artículo 23.—Se suspenderá la ayuda económica, cuando el estudiante incumpla con lo establecido en los Artículos 20 y 22, o cometa algún tipo de anomalía en la Institución tipificada en el Reglamento Académico y Disciplinario.

@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Becas para funcionarios y/o hijos
+Artículo 35.—Los funcionarios del Colegio Universitario de Alajuela, que deseen matricular alguna de las Carreras que ofrece el CUNA, deben contar con la aprobación por parte de la Comisión de Recursos Humanos de la Institución, quien enviará el comunicado a la Unidad de Bienestar Estudiantil para la aplicación de la Exoneración de pago de matrícula, mientras se mantengan laborando para la Institución. Este beneficio también cubre a los hijos de los funcionarios. Es requisito indispensable, para estos, presentar oportunamente el Formulario de Solicitud de Beca en la Unidad de Bienestar Estudiantil. Este beneficio podrá ser utilizado solamente una vez y para una sola carrera. Según lo estipulado en el artículo 2 inciso c), para lo que deberá presentar la solicitud en el período establecido en el calendario de Actividades.
+La Exoneración no se aplicará para las carreras autofinanciadas.

@@ -1,0 +1,1 @@
+Artículo 15.—El estudiante puede solicitar revisión de la asignación del porcentaje de Exoneración ante la Comisión de Beneficios Estudiantiles, según el plazo establecido para tal efecto en el calendario de actividades.

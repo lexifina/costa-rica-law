@@ -1,0 +1,1 @@
+Artículo 33.—Los estudiantes que deseen acogerse a Becas por Convenio, deben presentar una constancia de recomendación extendida por su Institución. Además deberán renovar cada ciclo lectivo la constancia que demuestre su condición de funcionarios de la Institución que recomendó su Beca.

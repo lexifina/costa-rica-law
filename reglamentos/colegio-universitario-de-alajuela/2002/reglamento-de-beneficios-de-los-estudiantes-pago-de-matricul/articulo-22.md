@@ -1,0 +1,1 @@
+Artículo 22.—Todo estudiante que reciba ayuda económica, deberá estar dispuesto a brindar un servicio ad-honoren en alguna dependencia de la Institución cuando ésta lo requiera, hasta un máximo de 40 horas por ciclo lectivo según lo establezca la Comisión de Beneficios Estudiantiles.

@@ -1,0 +1,1 @@
+Artículo 14.—Los índices socioeconómicos que se utilizan para la codificación de Becas, (aprobados por el Consejo Directivo), se calculan con base en el monto diferencial entre el ingreso familiar (o del estudiante) y la suma de costos de los miembros que componen el hogar (o del estudiante individualmente considerado).

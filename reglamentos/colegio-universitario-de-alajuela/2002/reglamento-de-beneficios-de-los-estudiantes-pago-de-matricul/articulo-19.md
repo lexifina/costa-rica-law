@@ -1,0 +1,2 @@
+Artículo 19.—El período de venta (Unidad Financiero-Contable) y Recepción de Formularios de Beca (Unidad de Bienestar Estudiantil) será definido en el calendario de actividades.
+La publicación de resultados correspondientes a este período se hará quince días calendario antes del primer día de matrícula, junto con la "lista de morosos" y la de "actualización de Becas", excepto para los estudiantes de grupos oficiales, los cuales rinden informe la última semana del ciclo.

@@ -1,0 +1,1 @@
+Artículo 12.—Los estudiantes que matriculen cursos aislados de las Carreras cubiertas por el presupuesto ordinario estatal, sin propósito de obtener el titulo de Diplomado, pagarán lo establecido para las Carreras de modalidad Autofinanciada, según establece artículo 8, inciso "b".
