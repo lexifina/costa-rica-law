@@ -1,0 +1,15 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 004-SC.—San José, 20 de febrero del 2004
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-028-2004, se modifica la resolución DG-056-97, correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje para incluir la Carrera Ingeniería Electrónica y Comunicaciones en la clase Formador para el Trabajo 1, en el Proceso de Gestión Tecnológica del Núcleo Sector Eléctrico.
+DG-029-2004, se modifica la resolución DG-056-97, correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje con el fin de incluir en al Área de Gestión de Formación y Servicios Tecnológicos varias clases y atinencias.
+DG-030-2004, se modifica la resolución DG-056-97, correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje para incluir la Carrera de Ciencias de la Educación con énfasis en Administración de Programas de Educación no formal como atinente para la clase Formador para el Trabajo 1 en los Núcleos de Formación y Servicios Tecnológicos.
+DG-031-2004, se modifica la resolución DG-056-97, correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje, con el fin de incluir los procesos de trabajo en la Unidad de Auditoría Interna, la clase Profesional de Apoyo 3 en cada uno de los procesos anteriores e incluir las clases Profesional de Apoyo 3 y Profesional de Apoyo 1 ubicadas en dicho proceso.
+DG-032-2004, se modifica la resolución DG-056-97, correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje, incluyendo la Carrera de Gerencia en Comercio Internacional en la clase Profesional de Apoyo 1 en la Unidad de Recursos Humanos.
+DG-033-2004, se modifica su homóloga la DG-200-2002, correspondiente al Manual de Atinencias de Instrucción de la Dirección General de Aviación Civil, para incluir el Técnico de Apoyo niveles A y B con sus respectivas atinencias.
+DG-036-2004, se modifica la resolución DG-048-2001, en lo correspondiente a la inclusión de la Carrera de Diplomado y Bachillerato en Informática Administrativa, dentro de las atinencias académicas definidas para las clases Operador de Computador 1, 2 y 3, Programador de Computador 1, 2 y 3 y Analista de Información 1, 2, 3 y 4ª.
+DG-037-2004, se modifica su homóloga la DG-121-2003, correspondiente a las Vías de Carrera Administrativa Docente.
+DG-041-2004, se sustituye el nombre del Programa de
+Aseguramiento de la Calidad, por Programa de Gestión de la Calidad del Instituto Nacional de Aprendizaje.
+DG-042-2004, se incluye dentro del Manual de Clases de la Procuraduría General de la República, las atinencias de Licenciatura en Administración de Negocios con énfasis en Contaduría, para la Clase Coordinador del Núcleo Administración de Negocios con énfasis en Contaduría, para la Clase Coordinador del Núcleo Administrativo (Grupos A y B), así como la clase Director de Desarrollo Institucional.
+DG-043-2004, se incluye la Maestría Profesional con énfasis en Economía Agrícola, en el Manual Institucional de Clases del Ministerio de Salud.
