@@ -1,0 +1,1 @@
+Artículo 9º.- El personal subalterno del Ministerio estará integrado por funcionarios técnicos, empleados capacitados y empleados administrativos. Se considerarán funcionarios técnicos aquéllos que posean un título profesional y cuyas funciones estén expresamente señaladas.
