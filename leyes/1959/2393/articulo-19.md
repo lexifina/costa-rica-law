@@ -1,1 +1,1 @@
-Artículo 19.- Esta ley deroga cualquier disposición legal que se le oponga y expresamente, el artículo 4º de la ley Nº 1238 de 29 de noviembre de 1950, reglamento por Decreto Ejecutivo Nº 1 de 13 de marzo de 1951.
+Artículo 19.- Esta ley deroga cualquier disposición legal que se le oponga, y expresamente el artículo 4º de la ley Nº 1238 de 29 de noviembre de 1950 reglamentada por Decreto Ejecutivo Nº 1 de 13 de marzo de 1951.

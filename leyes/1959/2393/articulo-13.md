@@ -1,2 +1,3 @@
-Artículo 13.- Vencido el término que señala el artículo 439 del Código de Procedimientos Civiles habiendo expresado su conformidad el demandado, el Juez citará a las partes para dictar sentencia.
-En caso de oposición del demandado, la citación para dictar sentencia se hará, también de oficio, una vez transcurrido el plazo que concede el artículo 440 del mismo Código.
+Artículo 13.- No existirá el trámite de citación de partes para sentencia en esta clase de juicios. Si el ejecutado no se opusiere, dentro del término correspondiente, el tribunal respectivo declarará con lugar la demanda y ordenará continuar la ejecución, por medio de resolución razonada que no requerirá las formalidades de sentencia.
+(Así reformado por el artículo 2º de la Ley Nº 5984 de 8 de noviembre de 1976).
+(Derogado tácitamente por el Código Procesal Civil, Ley Nº 7130 de 16 de agosto de 1989: ver artículos 434 y 436).
