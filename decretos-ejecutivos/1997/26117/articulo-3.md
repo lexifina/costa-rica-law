@@ -1,0 +1,1 @@
+Artículo 3°—La Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA) será el Organismo concertador del proceso de integración de servicios del sector agropecuario, encargada de dictar o establecer los lineamientos, directrices u orientaciones que permitan mantener la continuidad del mismo.

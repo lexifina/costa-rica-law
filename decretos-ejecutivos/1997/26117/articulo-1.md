@@ -1,0 +1,11 @@
+N°26117-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+De conformidad con las facultades establecidas en el artículo 140 incisos 3) y 18) de la Constitución Política y la Ley No 7064 del 29 de abril de 1987,
+Considerando:
+1°—Que el Estado Costarricense en respuesta a la problemática de la sociedad, debe estar orientado a buscar la mayor eficiencia y eficacia en la utilización de los recursos públicos, para la prestación de los servicios que por imperativo legal debe cumplir en beneficio de la comunidad y de los sectores productivos.
+2°—Que dentro del panorama anterior, las instituciones públicas integrantes del Sector Agropecuario Nacional, han realizado y llevado acabo procesos de reestructuración institucional, en un afán de reducción de gastos, reorientación de sus servicios y disposición de recursos para los componentes de inversión, procesos que han sido implementados por el Instituto de Desarrollo Agrario, el Consejo Nacional de Producción, el Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, el Programa Integral de Mercadeo Agropecuario y el Ministerio de Agricultura y Ganadería.
+3°—Que como continuación de las acciones de reestructuración individuales realizados en dichas instituciones, es menester dentro de una visión de integración de los servicios que se prestan por parte de éstas, aunar esfuerzos y recursos, en beneficio directo de los usuarios o beneficiarios de los servicios que se brindan, dentro de las especialidades que cubre cada institución.
+4°—Que por las razones anteriores es necesario definir, implementar y realizar las acciones que fueren pertinentes, para establecer un programa de integración de los diferentes servicios que brindan dichas instituciones, como un eje estratégico de política y de acción, a fin de realizar los ajustes y reformas de carácter técnico-operativo que permita facilitar y lograr los resultados deseados. Por tanto,
+DECRETAN:
+Articulo 1°—Se establece como oficial y necesario la ejecución e implementación de un plan de integración para la prestación de servicios en el Sector Agropecuario por parte de las instituciones Consejo Nacional de Producción, Instituto de Desarrollo Agrario, Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, Programa Integral de Mercadeo Agropecuario y el Ministerio de Agricultura y Ganadería.
