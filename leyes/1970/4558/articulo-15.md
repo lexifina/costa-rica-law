@@ -1,1 +1,0 @@
-Artículo 15.- El Instituto de Tierras y Colonización procederá, dentro de los 30 días siguientes a la firmeza de la resolución a que se refiere el artículo 4º, a entregar a las respectivas municipalidades todos los contratos de arrendamiento vigentes en la zonas a que esta ley se refiere.

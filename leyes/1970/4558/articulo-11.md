@@ -1,2 +1,0 @@
-Artículo 11.- Cuando se trate de proyectos de desarrollo turístico integral y que por lo tanto comprenda una parte o la totalidad de una zona declarada turística, ninguna municipalidad podrá aprobarlos ni negociarlos sin intervención del Instituto Costarricense de Turismo.
-En todo caso de planeamiento general de una zona dedicada al turismo, además del área que han de cubrir las calles, deben reservarse porciones adecuadas de terreno para el establecimiento de jardines, parques, zonas de estacionamiento y de acampamiento, y otras instalaciones similares.
