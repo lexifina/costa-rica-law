@@ -1,0 +1,5 @@
+CAPÍTULO II
+Del proceso de afiliación
+Articulo II. -Las agrupaciones deportivas, atletas del distrito, que quieran afiliarse al Comité Comunal de Deportes y Recreación , deberán de cumplir con los siguientes requisitos:
+A) Demostrar que su organización y/o equipo cuenta con un mínimo de un 5O% de integrantes que pertenezcan al distrito al cual se está pidiendo la afiliación del mismo, esto por medio de fotocopia de cédula de sus integran les en caso de ser mayores de edad. O declaración Jurada en tal sentido de parte del presidente del equipo u organización respectiva. Si fuese un solo atleta debe aportar fotocopia de cédula y dirección exacta de su residencia la cual deberá estar dentro de los limites del distrito.
+B) Se debe demostrar que la organización y/o atleta que solicita la afiliación participa de forma plena en las competencias organizadas tanto por el Comité Comunal como por el Comité Cantonal, generando esto un beneficio en los aspectos de Recreación y Deportivos de sus integrantes y de sus Distrito. Esto mediante nota certificada por el secretario de la Junta Directiva del respectivo Comité Comunal.

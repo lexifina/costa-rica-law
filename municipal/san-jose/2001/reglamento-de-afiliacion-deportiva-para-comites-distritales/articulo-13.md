@@ -1,0 +1,3 @@
+Artículo Xlll. —Para todo lo anterior deberá de observarse la ley de Administración Pública y los procedimientos que ahí se indiquen, así mismo el Reglamento autónomo del Comité Cantonal de Deportes y Recreación de -San José y cualquier otro que por su naturaleza tenga una injerencia directa o indirecta para la aclaración y conclusión satisfactoria de los procedimientos a seguir el procedimiento sumario contemplado en la Ley de Administración Pública, como garantía al debido proceso.
+Este reglamento fue aprobado por la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José en su sesión numero , Acuerdo 8, Artículo IV del 12 de febrero del 2001.
+(Heiner Ugalde Fallas, Director Ejecutivo.—1 vez.—(32120).
