@@ -1,0 +1,3 @@
+Artículo 46.—Vigencia de la viabilidad (licencia) ambiental.
+1. La viabilidad (licencia) ambiental, una vez otorgada tendrá una validez máxima de dos años de previo al inicio de actividades de la actividad, obra o proyecto. En caso de que, transcurrido ese plazo, no se inicien las actividades, el desarrollador deberá requerir una convalidación de su vigencia ante la SETENA, conforme con el procedimiento que se establecerá en el Manual de EIA.
+2. Las actividades, obras o proyectos que se encuentren en operación, y cuenten con EIA aprobado estarán sujetos, conforme a lo que establece la Ley Orgánica del Ambiente y el presente reglamento, a un proceso de control y seguimiento ambiental en los términos establecidos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 76.—Sanciones administrativas a los consultores y empresas consultoras. La SETENA podrá sancionar a los consultores ambientales y las empresas consultoras de conformidad con lo señalado en los artículos 98 y 99 del presente Reglamento.

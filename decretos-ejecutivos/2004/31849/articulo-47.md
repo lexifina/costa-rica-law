@@ -1,0 +1,6 @@
+CAPÍTULO IV
+Control y seguimiento ambiental de actividades, obras o proyectos
+Artículo 47.—Trámite de informes ambientales ante la SETENA.
+1. A los desarrolladores que la SETENA, ha ordenado la presentación de informes ambientales, deberán hacer entrega de ellos, por medio de los responsables ambientales inscritos, de acuerdo a los términos y en los plazos indicados en la respectiva resolución administrativa.
+2. Los informes ambientales deberán ser entregados a la SETENA en original y 2 copias impresas, de conformidad con el procedimiento que establecerá la Secretaría Técnica en su Manual de EIA. La SETENA, de considerarlo necesario, podrá hacer llegar una copia del informe ambiental a las oficinas regionales del Ministerio del Ambiente y Energía y otra copia a la Municipalidad del Cantón donde se localice la actividad, obra o proyecto, a fin de coordinar los procesos de control y seguimiento ambiental.
+3. Los informes ambientales formarán parte del expediente administrativo, así como también lo conformarán los documentos internos de valoración e inspección, además de los comunicados que se pudieran dar entre la SETENA y el desarrollador o el responsable ambiental durante el proceso, y la demás documentación que verse sobre la actividad, obra o proyecto.

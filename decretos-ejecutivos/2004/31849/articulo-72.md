@@ -1,0 +1,14 @@
+Artículo 72.—Trámite de inscripción en el registro de consultores ambientales y de empresas consultoras ambientales. Para inscribirse en el registro de consultores ambientales y de empresas consultoras ambientales de la SETENA, las personas físicas o jurídicas, nacionales o extranjeras, deberán presentar completo el formulario de solicitud inscripción que se adquiere en la SETENA y adjuntarle lo siguiente:
+1. En caso de consultores ambientales:
+1.1. Original y fotocopia de la cédula de identidad, de residencia o pasaporte, o bien fotocopia certificada notarialmente.
+1.2. Original y fotocopia, o bien fotocopia certificada notarialmente, del título de los grados académicos que ostenten. En caso que hayan sido obtenidos en el exterior, el título deberá estar reconocido por el Consejo Nacional de Rectores (CONARE) e inscrito ante el Colegio Profesional respectivo, en caso de que exista. El documento deberá venir debidamente autenticado por el Ministerio de Relaciones Exteriores, previo trámite de autenticación en su país de origen.
+1.3. Presentar el currículum vitae.
+1.4. Recibo original y fotocopia de cancelación del monto de la inscripción. El cual será fijado vía decreto ejecutivo cada año calendario.
+1.5. Indicación clara de una dirección de correo electrónico, donde se le puedan enviar comunicaciones. Asimismo, debe indicar un número de facsímil para recibir notificaciones, y un número de teléfono al cual se le pueda localizar.
+1.6. Certificación del Colegio Profesional respectivo de que se encuentra debidamente habilitado para el ejercicio de sus funciones profesionales. Esta deberá ser presentada con no más de un mes de emitida. En caso de que no exista Colegio Profesional al cual colegiarse, deberá presentar declaración jurada indicando dicho hecho. La SETENA podrá establecer convenios con los colegios profesionales para tratar el tema del ejercicio ilegal de la profesión.
+1.7. Otros requisitos probatorios sobre la capacitación en el tema de EIA, de conformidad con los procedimientos que se definen en el Manual de EIA.
+2. En caso de empresas consultoras:
+2.1. Certificación de personería jurídica con no menos de tres meses de emitida, en la cual se incluyan todos los miembros de la Junta Directiva y apoderados de la sociedad. Todos los apoderados de dicha empresa deberán estar debidamente inscritos como consultores individuales de conformidad con lo señalado anteriormente.
+2.2. Currículum vitae y atestados actualizados, tanto de la empresa, como de cada uno de los profesionales (incluye certificación del colegio profesional respectivo de que se encuentra debidamente habilitado para el ejercicio de sus funciones profesionales, con no menos de un mes de emitido.)
+2.3. Áreas de especialización en la que se desempeña la empresa.
+2.4. Otros requisitos probatorios sobre la capacitación de su personal en el tema de EIA, de conformidad con los procedimientos definidos en el Manual de EIA.

@@ -1,0 +1,1 @@
+Artículo 11.—Alcance del trámite de EIA ante la SETENA. El cumplimiento del procedimiento de EIA no exime al desarrollador de una actividad, obra o proyecto del trámite a cumplir ante otras autoridades del Estado, de conformidad con las competencias y normativa vigentes, ni de cumplir con sus obligaciones o responsabilidades que de su gestión deriven.

@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 31849
+
+Reglamento General sobre los Procedimientos de Evaluación de Impacto Ambiental (EIA)
+
+- Tipo: Decreto Ejecutivo
+- Número: 31849
+- Fecha: 2004-05-24
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 125 del 2004-06-28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53029&param2=57713&param3=1 (ficha 53029)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2004-06-28 | la propia norma |
