@@ -14,3 +14,4 @@ Reforma al Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-04 | la propia norma |
+| 2 | 2004-01-26 | Decreto Ejecutivo 31633 (2004-01-26) |
