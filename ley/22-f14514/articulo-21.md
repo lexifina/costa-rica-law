@@ -1,0 +1,2 @@
+ARTICULO 21
+Si el deudor no hubiere satisfecho su crédito dentro de los diez días posteriores al cumplimiento del plazo, y la finca hipotecaria hubiere pasado a un tercer poseedor, podrá el Banco pedir que esta sea requerida de pago con plazo de otros diez días, pero si pasado éste, dicho pagado no se hubiere verificado, se procederá a la venta de la finca en conformidad con los artículos anteriores de este contrato
