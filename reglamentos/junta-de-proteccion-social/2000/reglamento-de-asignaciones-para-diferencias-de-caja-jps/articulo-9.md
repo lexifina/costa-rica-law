@@ -1,0 +1,1 @@
+Artículo 9°—Para el cálculo de la suma que recibirá el funcionario que tiene derecho a la asignación para diferencia de caja, no se deducen los días no trabajados por motivo de vacaciones o por enfermedad debidamente comprobada; las demás ausencias sí son tomadas en cuenta para este cálculo.

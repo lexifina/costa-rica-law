@@ -1,0 +1,1 @@
+Artículo 10.—Quienes sustituyan a funcionarios que tienen derecho a la asignación para diferencias de caja, recibirán una suma proporcional 3or el tiempo que ejecuten la labor. Queda entendido que se trata de días hábiles de trabajo.
