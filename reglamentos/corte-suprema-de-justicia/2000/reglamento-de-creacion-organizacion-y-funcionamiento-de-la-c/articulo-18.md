@@ -1,0 +1,1 @@
+Artículo 18.—-Suspensión de la tramitación de un caso la Controlaría suspenderá la instrucción de una investigación cuando el mismo hecho sea conocido por otra instancia administrativa o judicial competente para resolver.

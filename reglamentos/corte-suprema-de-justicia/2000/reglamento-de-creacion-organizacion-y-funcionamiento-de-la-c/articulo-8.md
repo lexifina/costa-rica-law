@@ -1,0 +1,2 @@
+Articulo S"—Libre acceso a las Dependencias Judiciales. La Contraloría tendrá libre acceso a todas las dependencias del Poder Judicial, así como a los expedientes Judiciales y administrativos para efectos de su competencia, y sobre los que tendrá el deber de confidencialidad. En el ejercicio de sus funciones, podrá visitar las oficinas judiciales sin previo aviso y requerir de ellas documentos e información necesarias para el
+adecuado cumplimiento de sus atribuciones.

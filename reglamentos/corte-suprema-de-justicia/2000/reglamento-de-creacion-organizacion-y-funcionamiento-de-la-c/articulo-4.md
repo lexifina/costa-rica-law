@@ -1,0 +1,1 @@
+Artículo 4°—Estructura. La Contraloría General de Servicios estará bajo la responsabilidad de un Contralor. Estará integrada además por un Subcontralor y el personal necesario para el cumplimiento de los objetivos propuestos.

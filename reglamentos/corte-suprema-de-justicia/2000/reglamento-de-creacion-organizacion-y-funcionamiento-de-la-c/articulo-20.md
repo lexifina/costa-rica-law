@@ -1,0 +1,1 @@
+Artículo 20.—Disposiciones transitorias. Mientras no empiecen a funcionar las Subcontralorías, la Oficina Central, tendrá la responsabilidad de asumir la competencia, a nivel nacional de las denuncias que se presenten y realizar las inspecciones que sean necesarias para monitorear los niveles de eficiencia en el servicio.
