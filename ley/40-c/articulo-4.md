@@ -1,0 +1,5 @@
+Artículo IV
+La presente Convención, después de firmada será sometida a las ratificaciones de los Estados signatarios. El Gobierno de Cuba queda encargado de enviar copias certificadas auténticas a los Gobiernos para el referido fin de la ratificación. El instrumento de ratificación será depositado en los archivos de la Unión Panamericana en Washington, quien notificará ese depósito a los Gobiernos signatarios; tal notificación valdrá como canje de ratificaciones. Esta Convención quedará abierta a la adhesión de los Estados no signatarios.
+En fe de lo cual los Plenipotenciarios expresados firman la presente Convención en español, inglés, francés y portugués, en la ciudad de la Habana, el día veinte de febrero de mil novecientos veintiocho.
+RESERVA DE LA DELEGACIÓN DE LOS, ESTADOS UNIDOS DE AMERICA
+Los Estados Unidos de América, al firmarse la presente Convención, hacen expresa reserva, haciendo constar que los Estados Unidos no reconocen y no firman la llamada doctrina del asilo como parte del Derecho Internacional.
