@@ -1,0 +1,2 @@
+Artículo 40.—Responsabilidad. El profesional (arquitecto o ingeniero civil) que firme el permiso de construcción del rótulo será responsable de la seguridad de este en cuanto a su estabilidad y riesgo estructural.
+Los posibles daños a terceros ocasionados por el desprendimiento total o parcial del rótulo serán responsabilidad del propietario, quien deberá contar con póliza de daños a terceros de acuerdo con el inciso g) del artículo 5º de este Reglamento.

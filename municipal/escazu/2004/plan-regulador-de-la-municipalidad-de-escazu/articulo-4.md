@@ -1,0 +1,13 @@
+Artículo 4º—Aplicación y modificación.
+4.1. Aplicación.
+La administración y aplicación del Plan Regulador estará a cargo de las dependencias administrativas municipales relacionadas con las materias reguladas por los reglamentos, en especial el Departamento de Desarrollo Urbano y la oficina del Plan Regulador.
+La Comisión del Plan Regulador vigilará la correcta aplicación de las normas, excepciones, incentivos y sanciones que dictan o autorizan los reglamentos, y debe estar conformada, de acuerdo con los artículos 59 y 60 de la Ley de Planificación Urbana, por regidores, vecinos interesados y funcionarios de la planta administrativa, con un máximo de siete personas en total.
+Dicha comisión podrá constituir, junto con los vecinos y expertos en la materia, los Comités Consultivos para las áreas específicas, como el patrimonio arquitectónico, cultural y ambiental. La comisión, por cuenta propia, a solicitud de residentes del cantón o por iniciativa del Concejo Municipal , analizará todas las actualizaciones y revisiones al documento original que sean necesarias conforme transcurran los años, a efecto de mantener el Plan actualizado.
+4.2. Modificación.
+Para la modificación, suspensión o derogación total o parcial del Plan Regulador, deben observarse los mismos requisitos que los del proceso de su implementación, conforme lo indica el artículo 17 de la Ley de Planificación Urbana.
+4.3. Flexibilidad de los límites de Zonificación.
+Podrá permitirse la variación de los requisitos del Plan Regulador en los siguientes casos:
+a. Cuando las condiciones especiales del predio, tales como su forma, topografía, geología y ubicación, además de los usos de los predios vecinos, tornen técnicamente imposible el proyecto en el marco del apego estricto a los requisitos generales para la zona.
+b. Cuando el caso corresponde a un proyecto catalogado como de emergencia o de interés social.
+c. Cuando el lote sea mayor a 2 500 metros cuadrados y cuando se proponga un proyecto de diseño innovador. Las áreas bajo esta disposición podrán pertenecer a varios propietarios.
+Será competencia de la Comisión de Plan Regulador analizar, en los anteriores casos, la viabilidad de variar los requisitos, máximo hasta en un veinticinco por ciento salvo cuando la zona esté afectada por amenazas de desastres naturales, en cuyo caso estos no se podrán modificar.
