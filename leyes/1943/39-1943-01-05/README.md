@@ -1,6 +1,6 @@
 # Ley Orgánica de Notariado
 
-Ley N° 39 del 1943-01-05. SINALEVI, ficha 9233: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9233&param2=104953&param3=1>.
+Ley N° 39 del 1943-01-05. SINALEVI, ficha 9233: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9233&param2=104954&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -26,3 +26,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 18 de 26 | 1981-04-27 | Ley 6575 | 1981-04-27 |
 | 19 de 26 | 1981-08-06 | Ley 6595 | 1981-08-06 |
 | 20 de 26 | 1984-03-02 | Ley 6955 | 1984-02-24 |
+| 21 de 26 | 1989-11-03 | Ley 7130 | 1989-08-16 |
