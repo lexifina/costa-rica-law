@@ -76,7 +76,7 @@ El ron se designará corno tal; opcionalmente podrá agregarse, siempre que cump
 TABLA 1. REQUISITOS QUÍMICOS
 Requisitos | Ron liviano | Ron pesado
 | Mínimo | Máximo | Mínimo | Máximo
-Título alcohólico, en porcentaje en volumen, a 20 °C (% vol.)...... | 40 | 55 | 40 | 55
+Título alcohólico, en porcentaje en volumen, a 20 °C (% vol.)...... (Así reformado mediante el artículo 1 del decreto ejecutivo N°21298 del 15 de mayo de 1992). | 38 | 55 | 38 | 55
 Extracto seco, en gramos por 1 000 ml de producto ............... | - | 20 | - | 20
 Azúcares totales, expresados en gramos de azúcares reductores por 1 000 ml del producto .......... | - | 20 | - | 20
 Alcoholes superiores (aceite fusel), en miligramos por 100 ml de alcohol etílico anhidro ............. | - | 150 | - | 400

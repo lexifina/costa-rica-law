@@ -14,3 +14,4 @@ Norma de Bebida Alcohólica Ron
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-10-07 | la propia norma |
+| 2 | 1992-05-15 | Decreto Ejecutivo 21298 (1992-05-15) |
