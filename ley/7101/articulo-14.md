@@ -1,5 +1,1 @@
-Artículo 14.- De cada pago, el arrendante, o quien lo represente,
-estará en la obligación de extender el correspondiente recibo, con
-indicación de la fecha exacta del pago, de la suma recibida, de si ésta
-incluye sólo el alquiler o si también comprende otros servicios como agua
-y electricidad, y del período cubierto por el pago.
+Artículo 14.- De cada pago, el arrendante, o quien lo represente, estará en la obligación de extender el correspondiente recibo, con indicación de la fecha exacta del pago, de la suma recibida, de si ésta incluye sólo el alquiler o si también comprende otros servicios como agua y electricidad, y del período cubierto por el pago.

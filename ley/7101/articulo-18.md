@@ -1,18 +1,5 @@
-Artículo 18.- Para poder ejercer la facultad señalada en el artículo
-15, el arrendatario deberá solicitar el propietario que lleve a cabo las
-reparaciones o adiciones mencionadas.
-El requerimiento lo hará el arrendatario mediante carta certificada,
-o personalmente, en compañía del delegado cantonal o distrital de la
-Guardia de Asistencia Rural, quien deberá practicar el requerimiento y
-extender constancia de ello, so pena de despido.
-El arrendante deberá iniciar las reparaciones o adiciones en el
-término de un mes, contado a partir del requerimiento o de la resolución
-judicial en que, de conformidad con el artículo siguiente, se le ordene
-proceder a realizarlas.
-En el último caso, el tribunal indicará prudencialmente el plazo
-dentro del cual deberá quedar terminadas las reparaciones o adiciones.
-El arrendante podrá acudir ante los tribunales comunes en el término
-de cinco días, a partir del requerimiento, para que, por medio del proceso
-sumario señalado en el Código Procesal Civil, se determine si el
-arrendatario tiene o no derecho a cesar el pago del alquiler, de
-conformidad con lo estipulado en el artículo 15.
+Artículo 18.- Para poder ejercer la facultad señalada en el artículo 15, el arrendatario deberá solicitar el propietario que lleve a cabo las reparaciones o adiciones mencionadas.
+El requerimiento lo hará el arrendatario mediante carta certificada, o personalmente, en compañía del delegado cantonal o distrital de la Guardia de Asistencia Rural, quien deberá practicar el requerimiento y extender constancia de ello, so pena de despido.
+El arrendante deberá iniciar las reparaciones o adiciones en el término de un mes, contado a partir del requerimiento o de la resolución judicial en que, de conformidad con el artículo siguiente, se le ordene proceder a realizarlas.
+En el último caso, el tribunal indicará prudencialmente el plazo dentro del cual deberá quedar terminadas las reparaciones o adiciones.
+El arrendante podrá acudir ante los tribunales comunes en el término de cinco días, a partir del requerimiento, para que, por medio del proceso sumario señalado en el Código Procesal Civil, se determine si el arrendatario tiene o no derecho a cesar el pago del alquiler, de conformidad con lo estipulado en el artículo 15.

@@ -1,6 +1,1 @@
-Artículo 31.- Cuando el inquilino hubiere sido desalojado con
-infracción a los derechos que le otorga la presente ley, en la sentencia
-condenatoria, independientemente de que se haya ejercido o no la acción
-resarcitoria, el tribunal podrá ordenar su reinstalación en el inmueble.
-CAPITULO V
-Disposiciones finales
+Artículo 31.- Cuando el inquilino hubiere sido desalojado con infracción a los derechos que le otorga la presente ley, en la sentencia condenatoria, independientemente de que se haya ejercido o no la acción resarcitoria, el tribunal podrá ordenar su reinstalación en el inmueble.

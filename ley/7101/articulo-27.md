@@ -1,19 +1,2 @@
-Artículo 27.- El arrendante tendrá derecho a visitar la casa o local
-una vez al mes, durante el día, estando presente el inquilino, para
-cerciorarse de la forma en que éste trata el inmueble arrendado. Para tal
-efecto, convendrá la hora y la fecha con el inquilino.
-Cuando la demanda de desahucio se fundamenta en el causal de que el
-inquilino causa daños de consideración al inmueble, antes de dictar la
-resolución inicial en que se le prevenga al desalojo, el tribunal, por
-medio de una inspección y de una prueba pericial, establecerá la
-existencia, la magnitud y el monto de los daños, sin perjuicio de lo que
-luego se dispute y resuelva en la sentencia. Esa prueba se ordenará y
-recibirá a la brevedad, sin señalamiento de hora y fecha. El inquilino
-podrá intervenir si estuviere presente y, en todo caso, se le podrá en
-conocimiento de la resolución inicial en que se le previene el desalojo.
-Si la demanda fuere declarada con lugar, en la sentencia se condenará
-al inquilino a pagar los daños y perjuicios causados, y se fijará un monto
-definitivo cuyo cobro se hará en el mismo proceso de desahucio, en la
-etapa de ejecución de la sentencia.
-CAPITULO IV
-Sanciones
+Artículo 27.- El arrendante tendrá derecho a visitar la casa o local una vez al mes, durante el día, estando presente el inquilino, para cerciorarse de la forma en que éste trata el inmueble arrendado. Para tal efecto, convendrá la hora y la fecha con el inquilino.
+Cuando la demanda de desahucio se fundamenta en el causal de que el inquilino causa daños de consideración al inmueble, antes de dictar la resolución inicial en que se le prevenga al desalojo, el tribunal, por medio de una inspección y de una prueba pericial, establecerá la existencia, la magnitud y el monto de los daños, sin perjuicio de lo que luego se dispute y resuelva en la sentencia. Esa prueba se ordenará y recibirá a la brevedad, sin señalamiento de hora y fecha. El inquilino podrá intervenir si estuviere presente y, en todo caso, se le podrá en conocimiento de la resolución inicial en que se le previene el desalojo. Si la demanda fuere declarada con lugar, en la sentencia se condenará al inquilino a pagar los daños y perjuicios causados, y se fijará un monto definitivo cuyo cobro se hará en el mismo proceso de desahucio, en la etapa de ejecución de la sentencia.
