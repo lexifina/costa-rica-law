@@ -1,0 +1,1 @@
+Articulo 4°—La Administración Tributaria queda facultada para variar el porcentaje a que se refiere el articulo 1.- anterior de esta resolución, previa la realización de los estudios que para tal efecto procedan, así como también para incluir o excluir las partidas arancelarias relacionadas con estos productos, a efectos de evitar posibles distorsiones en el mercado.
