@@ -14,3 +14,4 @@ Crea en el Ministerio de Trabajo y Seguirdad Social, la Unidad de Equidad de Gé
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-09 | la propia norma |
+| 2 | 2002-04-30 | Decreto Ejecutivo 30392 (2002-04-30) |

@@ -1,1 +1,1 @@
-Artículo 2°-La Unidad de Equidad de Género, depender técnica y administrativamente del Ministro del Trabajo y Seguridad Social.
+Artículo 2°-DEROAGDO por el artículo 6 del Decreto Ejecutivo N° 30392 de 30 de abril del 2002.
