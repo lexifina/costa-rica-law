@@ -1,0 +1,2 @@
+SEGUNDA-La Corte Suprema de Justicia se compondrá de una Corte de Casación con cinco miembros y de dos Salas de apelaciones, con tres miembros cada una. Las atribuciones de la Corte Suprema de Justicia, de la de Casación, y de las Salas de apelaciones serán determinadas por la ley.
+El Congreso designará los Magistrados que deban formar la Corte de Casación y cada Sala de apelaciones, así como cuál de ellos será su respectivo Presidente. El de la Corte de Casación lo será del Tribunal Supremo.
