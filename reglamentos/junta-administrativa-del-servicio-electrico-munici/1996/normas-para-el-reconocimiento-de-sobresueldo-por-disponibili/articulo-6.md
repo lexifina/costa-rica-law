@@ -1,0 +1,1 @@
+Artículo 6°-Todos los servidores de la Junta estarán sujetos a ser declarados disponibles, sin embargo el pago a que hace referencia el artículo 5 de este Reglamento sólo se hará a quienes de acuerdo a las regulaciones legales vigentes proceda hacerlo, en particular, sólo se reconocerá pago por disponibilidad al personal operativo.

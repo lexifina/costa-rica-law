@@ -1,0 +1,1 @@
+Artículo 11.-El pago de sobresueldo por disponibilidad no crea en favor de quien lo recibe. derechos adquiridos, dado que el acuerdo de pago del sobresueldo es por circunstancias particulares y excepcionales de tiempo y lugar que pueden variar, asimismo es una contraprestación a un servicio que se da a la empresa, el cual se paga si se da únicamente.

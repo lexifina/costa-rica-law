@@ -1,0 +1,1 @@
+Artículo 16.-EI incumplimiento del servidor de JASEC a estas normas se considerará falta grave en sus funciones y será sancionado de acuerdo a lo previsto en el Reglamento Autónomo de Trabajo y/o el Código de Trabajo y normas legales atinentes.

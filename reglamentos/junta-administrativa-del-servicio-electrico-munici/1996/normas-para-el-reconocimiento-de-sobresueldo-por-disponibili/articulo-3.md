@@ -1,0 +1,1 @@
+Artículo 3°-Cuando así se requiera, para mejor cumplir el compromiso anterior, el jerarca administrativo a petición razonada de la jefatura correspondiente, dictará resolución para declarar el servidor en disponibilidad.

@@ -1,0 +1,1 @@
+Artículo 12.-Cuando desaparezcan los motivos que originaron la declaratoria de servidor en disponibilidad, la jefatura inmediata lo debe comunicar al Departamento de Personal para que haga los cambios necesarios en el salario del servidor.

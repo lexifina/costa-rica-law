@@ -1,0 +1,1 @@
+Artículo 19.-Rige a partir de su aprobación, pero para cada trabajador el efecto cobra validez al ser declarado en estado de disponibilidad, incluido en el rol de disponibles y las asignaciones presupuestarias sean autorizadas por los entes externos según disposiciones regulatorias vigentes.
