@@ -1,0 +1,1 @@
+Articulo 13. -Las actas de las sesiones serán llevadas en un libro abierto al efecto por el Ministerio de Seguridad Publica. Una vez aprobada el acta será firmada al pie por los miembros que asistieron a la sesión correspondiente.

@@ -1,0 +1,1 @@
+Articulo 17.-Para la mejor distribución y ejecución de su labor, la Comisión podrá integrar, tantas subcomisiones de Estudio, como estime necesario, las cuales estarán formadas por dos miembros y los colaboradores que se designen.

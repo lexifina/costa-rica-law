@@ -1,0 +1,1 @@
+Articulo 12. -La Comisión sesionara ordinariamente una vez por semana y extraordinariamente cuando sea necesario a juicio del representante del Ministerio de Segundad Pública o de la mayoría de sus miembros, sin que pueda exceder las sesiones pagadas de ocho al mes. El quorum estará formado por . cinco miembros.
