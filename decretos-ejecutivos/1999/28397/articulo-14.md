@@ -1,0 +1,1 @@
+Articulo 14.-Cuando por motivo ajeno a su voluntad se paralicen las actividades docentes, el beneficiario debe reintegrarse a su puesto habitual para laborar, salvo que la ubicación geográfica no lo permita.

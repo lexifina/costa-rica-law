@@ -1,0 +1,1 @@
+Articulo 13.-Finalizados los estudios, el servidor debe reintegrarse a sus labores. Tratándose de estudios en el exterior, la reincorporación se hará después del término prudencial que el funcionario requiera para regresar al país, lo cual deberá comunicar previamente.

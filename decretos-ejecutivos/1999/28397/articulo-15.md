@@ -1,0 +1,1 @@
+Articulo 15.-De no cumplir con lo indicado en el artículo 10, el beneficiario debe pagar el monto total de la beca otorgada o proporcional dependiendo de los beneficios recibidos con forme con el artículo 7.

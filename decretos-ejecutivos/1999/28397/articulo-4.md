@@ -1,0 +1,1 @@
+Articulo 4°-La Junta Administrativa, con base en las propuestas de la Dirección Ejecutiva o la emitida por alguno de los miembros de la Junta Administrativa, podrá otorgar becas o cursos de capacitación para los funcionarios del CICAD y de las otras instituciones relacionadas con la lucha contra el narcotráfico.

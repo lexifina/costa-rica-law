@@ -1,0 +1,1 @@
+Articulo 5°-En la adjudicación de las becas o cursos de capacitación se buscará asegurar una participación igualitaria entre los solicitantes y se otorgan no solo en el caso de que no se afecte el buen funcionamiento de la oficina y la prestación del servicio público.
