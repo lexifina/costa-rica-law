@@ -1,0 +1,1 @@
+Artículo 250. El Registrador no certificar de los asientos del registro de las hipotecas por orden alfabético ni de los del Diario, salvo lo dispuesto en el segundo párrafo del artículo anterior, sin¢ cuando el juez lo mande o los interesados lo pidan expresamente.

@@ -1,0 +1,1 @@
+Artículo 42°. El acreedor que obtenga anotación su favor en los casos de los números 2°, 3° y 4° del artículo 40, ser preferido, en cuanto los bienes anotados solamente, los que tengan contra el mismo deudor otro crédito contraído con posterioridad dicha anotación.

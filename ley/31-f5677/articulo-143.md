@@ -1,0 +1,2 @@
+Artículo 143. Los bienes inmuebles derechos reales que se entreguen como dote estimada, se inscribir n nombre del marido en el registro de la propiedad, en la misma forma que cualquiera otra adquisición de dominio; pero expresándose en la inscripción, la cuantía de la dote de que dichos bienes hagan parte, la cantidad en que hayan sido estimados, y la hipoteca dotal que sobre ellos quede constituida.
+Al tiempo de inscribir la propiedad de tales bienes favor del marido, se inscribir la hipoteca dotal que sobre ellos se constituya, en el registro correspondiente.

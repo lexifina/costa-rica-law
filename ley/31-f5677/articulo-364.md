@@ -1,0 +1,1 @@
+Artículo 364. El Registrador, después de cumplir lo que previene la regla 4° del artículo anterior, examinar los índices existentes en los registros actuales, si los hallare incompletos o inexactos, los completar y reformar, siendo susceptibles de ello. Si no los hubiere, o los que haya fueren inútiles formar otros nuevos.

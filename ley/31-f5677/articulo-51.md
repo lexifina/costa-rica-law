@@ -1,0 +1,1 @@
+Artículo 51°. En el caso de hacerse la anotación por no poderse ejecutar la inscripción por falta de algún requisito subsanable, podrá exigir el interesado que el Registrado le d‚ copia de dicha anotación autorizada con su firma, y en la cual conste si hay no pendientes de registro, algunos otros títulos relativos al mismo inmueble, y cuales sean estos en su caso.

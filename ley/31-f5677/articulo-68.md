@@ -1,0 +1,1 @@
+Artículo 68. Ser Juez competente para ordenar la cancelación de una anotación preventiva, su conversión en inscripción definitiva, el mismo que la haya mandado hacer, el que le haya sucedido legalmente en el conocimiento del negocio que diera lugar ella.

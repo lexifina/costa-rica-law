@@ -1,0 +1,1 @@
+Artículo 279. Las infracciones de esta ley o de los reglamentos que se expidan para su ejecución, cometidas por el Registrador, aunque no causen perjuicio a tercero, ni constituyan delito, ser n castigadas, sin formación de juicio, por el Gobierno, con multa de veinticinco a doscientos cincuenta pesos.

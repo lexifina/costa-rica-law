@@ -1,0 +1,1 @@
+Artículo 256. El Registrador expedir las certificaciones que se le pidan en el más breve término posible; pero sin que este pueda exceder nunca del correspondiente a cuatro días por cada finca, cuyas inscripciones, libertad o gravámenes se trate de acreditar.

@@ -1,0 +1,1 @@
+Artículo 179. El hijo, cuya madre siendo o habiendo sido su tutora o curadora, contraiga nuevo matrimonio, antes de la aprobación de las cuentas de su tutela o curaduría, podrá exigir que le padrastro constituya sobre sus propios bienes, hipoteca especial bastante a responder de las resultas de dichas cuentas.

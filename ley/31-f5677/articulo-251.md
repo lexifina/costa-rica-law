@@ -1,0 +1,2 @@
+Artículo 251. Las certificaciones se expedir n literales o en relación, según se mandaren dar o se pidieren.
+Las certificaciones literales comprender íntegramente los asientos a que se refieran. Las certificaciones en relación, expresarán todas las circunstancias que los mismos asientos contuvieren, necesarias para su validez, según el artículo 28, las cargas que a la sazón pesen sobre el inmueble o derecho inscrito, según la inscripción relacionada, y cualquiera otro punto que el interesado señale o juzgue importante el Registrador.

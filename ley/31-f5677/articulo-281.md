@@ -1,0 +1,1 @@
+Artículo 281. Si se dedujeren dentro del término de los noventa días algunas reclamaciones, continuar suspendida la ejecución de la sentencia, hasta que recaiga sobre ellas ejecutoria, a no ser que la fianza bastare notoriamente para cubrir el importe de dichas reclamaciones, después de cumplida la ejecutoria.

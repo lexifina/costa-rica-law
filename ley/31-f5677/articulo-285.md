@@ -1,0 +1,1 @@
+Artículo 285. Si, admitida la demanda de indemnización, o pareciere bastante para asegurar su importe el de la fianza, deber el Juez decretar, a instancia del actor, una anotación preventiva sobre los bienes del Registrador.

@@ -1,0 +1,1 @@
+Artículo 188. Devengados y no satisfechos los dos dividendos o las dos anualidades de que tratan los dos artículos anteriores, deber constituirse la hipoteca por toda la cantidad que se debiere, y la inscripción no surtir efecto, sino desde su fecha.

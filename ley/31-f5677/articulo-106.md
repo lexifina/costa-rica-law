@@ -1,0 +1,1 @@
+Artículo 106.Lo dispuesto en los tres anteriores artículos, ser igualmente aplicable al caso en que deje de pagarse la parte del capital del crédito de los intereses, cuyo pago deba hacerse en plazos diferentes, si venciere alguno de ellos, sin cumplir el deudor su obligación.

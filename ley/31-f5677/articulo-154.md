@@ -1,0 +1,1 @@
+Artículo 154. El curador de la mujer podrá pedir la hipoteca dotal, aunque exista la madre o el que haya dado la dote, si no lo hubieren hecho una ni otro, dentro de los treinta días siguientes a la entrega de la dote. También deber el curador calificar y admitir la hipoteca ofrecida, si se negaren a hacerlo la misma madre o la persona que haya dado la dote.

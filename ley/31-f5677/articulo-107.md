@@ -1,0 +1,2 @@
+Artículo 107.Si, para el pago de alguno de los plazos del capital de los intereses, fuere necesario enajenar la finca hipotecada y aun quedaren por vencer otros plazos de la obligación, se verificar la venta y se trasferir la finca al comprador, con la hipoteca correspondiente la parte del crédito que no estuviere satisfecha, la cual, con los intereses, se deducir del precio.
+Si el comprador no quisiere la finca con esta carga, se depositar su importe con los intereses que le correspondan, para que sea pagado el acreedor al vencimiento de los plazos pendientes.

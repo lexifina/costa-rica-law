@@ -1,0 +1,1 @@
+Artículo 11° Las inscripciones hipotecarias de créditos, expresar n, en todo caso, el importe de la obligación garantida y el de los intereses, si se hubieren estipulado, sin cuya circunstancia no se considerar n asegurados, por la hipoteca, dichos intereses en los términos prescritos en la presente ley.

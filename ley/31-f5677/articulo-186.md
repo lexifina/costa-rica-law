@@ -1,0 +1,1 @@
+Artículo 186. El asegurador de bienes inmuebles, tendrá derecho a exigir una hipoteca especial sobre los bienes asegurados, cuyo dueño no haya satisfecho los premios del seguro de dos o m s años, o de dos o m s de los últimos dividendos, si el seguro fuere mutuo.

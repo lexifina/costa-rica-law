@@ -1,0 +1,1 @@
+Artículo 211. Al pie‚ de todo título que se inscriba en el registro de la propiedad o en el de las hipotecas, pondrá el Registrador una nota firmada por ‚l, que exprese la especie de inscripción que se haya hecho, la sección del registro, tomo y folio en que se halle, el número de la finca y de la inscripción ejecutada.

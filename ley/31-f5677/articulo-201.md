@@ -1,0 +1,1 @@
+Artículo 201. El registro por orden alfabético se considerar como ¡índice del llevado por orden de fechas. Los asientos que en él se hagan, no surtirán por sí solos los efectos de las inscripciones; pero servir n de prueba, a juicio de los Tribunales, en las cuestiones que se susciten sobre la validez de las mismas inscripciones.

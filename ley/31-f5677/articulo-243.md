@@ -1,0 +1,1 @@
+Artículo 243. Las certificaciones expresadas en el artículo anterior, podrán referirse, bien a un periodo fijo y señalado, o bien a todo el transcurrido desde la primitiva instalación del registro respectivo.

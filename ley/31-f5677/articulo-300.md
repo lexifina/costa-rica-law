@@ -1,0 +1,1 @@
+Artículo 300. El Registrador se sujetar estrictamente en la redacción de los asientos, notas y certificaciones, a las instrucciones y modelos que contendrá el Reglamento para la ejecución de esta ley.

@@ -1,0 +1,1 @@
+Artículo 119. Cuando se contraiga la obligación futura, se cumpla la condición suspensiva de que trata el párrafo 1° del artículo anterior, deberán los interesados hacerlo constar así, por medio de una nota al margen de la inscripción hipotecaria, sin cuyo requisito no podrá aprovechar ni perjudicar tercero, la hipoteca constituida.

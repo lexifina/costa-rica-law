@@ -1,0 +1,1 @@
+Artículo 272. La rectificación de los errores cometidos en asientos de cualquiera especie y que no traigan su origen de otros cometidos en los respectivos títulos, no liberar al Registrador de la responsabilidad en que pueda incurrir, por los perjuicios que hayan ocasionado los mismos asientos antes de ser rectificados.

@@ -1,0 +1,1 @@
+Artículo 161. Los bienes pertenecientes a la dote inestimada y los parafernales que se hallaren inscritos con su respectiva calidad, se sujetar n para su enajenación a las reglas del derecho común; y si se enajenaren, ser con la obligación de restituirlos el marido, y con sujeción a lo dispuesto en el artículo 158.

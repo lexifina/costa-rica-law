@@ -1,0 +1,1 @@
+Artículo 135. En cualquier tiempo en que llegaren ser insuficientes las hipotecas legales inscritas, podrán reclamar su ampliación deberán pedirla, los que, con arreglo esta ley, tengan respectivamente el derecho la obligación de exigirlas y de calificar su suficiencia.

@@ -1,0 +1,1 @@
+Artículo 16°. El Registrador calificar, bajo su responsabilidad, la legalidad de las formas extr¡nsecas de las escrituras, en cuya virtud se solicite la inscripción, y la capacidad de los otorgantes por lo que resulte de las mismas escrituras.

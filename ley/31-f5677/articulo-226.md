@@ -1,0 +1,1 @@
+Artículo 226. Los errores materiales que se cometan en la redacción de los asientos, no podrán salvarse con enmiendas, tachas ni raspaduras, ni por otro medio que un asiento nuevo, en el cual se exprese y rectifique claramente el error cometido en el anterior.

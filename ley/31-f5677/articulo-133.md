@@ -1,0 +1,1 @@
+Artículo133. La hipoteca legal, una vez constituida ‚ inscrita, surte los mismos efectos que la voluntaria, sin mas excepciones que las expresamente determinadas en esta ley, cualquiera que sea la persona que deba ejercitar los derechos que la misma hipoteca confiera.

@@ -1,0 +1,1 @@
+Artículo 148. Cuando se constituya dote inestimada en bienes no inmuebles, se apreciar n estos con el único objeto de fijar la cantidad que deba asegurar la hipoteca, para el caso de que no subsistan los mismos bienes al tiempo de su restitución, m s sin que, por ello pierda dicha dote su calidad de inestimada, si fuere calificada así en la escritura dotal.

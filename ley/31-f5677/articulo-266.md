@@ -1,0 +1,3 @@
+Artículo 266. Luego que el Registrador tome posesión del cargo, propondrá al Gobierno el nombramiento de un sustituto que el reemplace en sus ausencias y enfermedades, pudiendo elegir para ello, bien a alguno de los oficiales del mismo registro, o bien a otra persona de su confianza.
+Si el gobierno se conformare con la propuesta, expedir desde luego el nombramiento al sustituto; sino se conformar‚ por algún motivo grave, mandar al Registrador que le proponga a otra persona.
+El sustituto desempeñar sus funciones bajo la responsabilidad del Registrador, y ser removido, siempre que este lo solicite.

@@ -1,0 +1,1 @@
+Artículo 3° Para que puedan ser inscritos los títulos expresados en el artículo anterior, deberán estar consignados en escritura pública, ejecutorias documentos auténticos expedidos por el Gobierno sus agentes, en la forma que prescriben los reglamentos.

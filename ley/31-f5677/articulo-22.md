@@ -1,0 +1,1 @@
+Artículo 22°. Los títulos inscritos surtirán su efecto, aun contra los acreedores singularmente privilegiados por la legislación común, sin perjuicio de los derechos adquiridos antes de la emisión de la presente ley.

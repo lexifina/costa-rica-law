@@ -1,0 +1,1 @@
+Artículo 174. El curador del hijo diseño del peculio, estar obligado, en todo caso, a pedir la inscripción de los bienes y la constitución de la hipoteca legal, y si se anticipare a hacerlo, alguna de las personas indicadas en el artículo anterior; se dar a dicho curador conocimiento del expediente, el cual no se decidir sin su audiencia.

@@ -1,0 +1,4 @@
+Artículo 32. No obstante, lo declarado en el artículo anterior, los actos contratos que se ejecuten otorguen por persona que en el registro aparezca con derecho para ello, no se invalidar n en cuanto tercero, una vez inscritos, aunque después se anule resuelva
+el derecho del otorgante en virtud de título anterior no inscrito, de causas que no resulten claramente del mismo registro.
+Solamente en virtud de un título inscrito, podrá invalidarse, en perjuicio de tercero, otro título posterior también inscrito.
+Lo dispuesto en este artículo no producir efecto, hasta un año después que empiece regir la presente ley, y no ser aplicable, en ningún tiempo, al título inscrito con arreglo lo prevenido en el artículo 349, menos que la prescripción haya convalidado y asegurado el derecho que se refiere dicho título.

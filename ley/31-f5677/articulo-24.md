@@ -1,0 +1,1 @@
+Artículo 24. Para determinar la preferencia entre dos más inscripciones de una misma fecha, relativas a una misma finca o derecho, se atender a la hora de la presentación en el registro de los títulos respectivos.

@@ -1,0 +1,1 @@
+Artículo 218. Siempre que se de‚ al interesado conocimiento de la minuta, en la forma prevenida en el artículo anterior, y manifieste su conformidad, o no manifestándola, decida el Juez la forma en que aquella se deba extender, se hará mención de una u otra circunstancia, en el asiento respectivo.

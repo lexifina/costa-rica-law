@@ -1,0 +1,1 @@
+Artículo 284. El perjudicado por los actos del Registrador que no deduzca su demanda en el término de los noventa días, señalados en el artículo 280, deber ser indemnizado con lo que restare de la fianza o de los bienes del Registrador, y sin perjuicio de los dispuesto en el artículo 275.

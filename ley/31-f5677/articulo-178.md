@@ -1,0 +1,1 @@
+Artículo 178. El tutor o curador nombrado, conforme a lo convenido en el artículo anterior, prestar su hipoteca con las formalidades prescritas en el Código civil, oyéndose, además, para su aprobación al pariente o persona que, en su caso, haya pedido el nombramiento.

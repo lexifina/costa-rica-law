@@ -1,0 +1,1 @@
+Artículo 157. Cuando el marido no hubiere constituido hipoteca dotal y comenzare a dilapidar sus bienes, quedar a salvo a la mujer el derecho que le conceden las leyes, para eximir que los subsistan de su dote se le entreguen, se depositen en lugar seguro, o se pongan en administración.

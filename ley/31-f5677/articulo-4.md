@@ -1,0 +1,1 @@
+Artículo 4° También se inscribir n en el registro, los documentos títulos expresados en el artículo 2°, otorgados en país extranjero que tengan fuerza en Costa-Rica, con arreglo las leyes, y las ejecutorias de la clase indicada en el número 4° del mismo artículo, pronunciadas por tribunales extranjeros que deba darse cumplimiento en la República, con arreglo al Código civil.

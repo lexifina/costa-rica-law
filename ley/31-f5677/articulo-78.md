@@ -1,0 +1,1 @@
+Artículo 78. El Registrador calificar, bajo su responsabilidad, la legalidad de las formas extrínsecas de las escrituras; en cuya virtud se soliciten las cancelaciones, y la capacidad de los otorgantes en los términos prevenidos respecto las inscripciones en los artículos 16 y 17.
