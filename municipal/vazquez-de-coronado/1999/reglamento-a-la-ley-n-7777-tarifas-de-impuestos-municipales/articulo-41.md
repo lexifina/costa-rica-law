@@ -1,0 +1,1 @@
+Artículo 41.-Denegada la revocatoria, la Oficina de Patentes llevará el expediente al Concejo Municipal que deberá pronunciarse en el término de treinta días naturales. Denegada la apelación o transcurrido el término sin pronunciamiento del Concejo Municipal, se tendrá por agotada la vía administrativa.

@@ -1,0 +1,1 @@
+Artículo 46.-Las resoluciones de la Oficina de Patentes que ordene el cierre definitivo o clausura del establecimiento comercial en cumplimiento de órdenes emanadas por el Poder Ejecutivo y de instituciones de derecho público, tendrán oportunidad de solicitar la revocatoria o apelación ante el Concejo Municipal.

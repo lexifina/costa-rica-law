@@ -1,0 +1,1 @@
+Artículo 11.-La violación a lo dispuesto en este capitulo, dará lugar al cierre del local o la imposibilidad de comerciar ambulantemente, medidas que se ejecutarán por medio de las autoridades de policía, de seguridad cantonal o personal municipal debidamente autorizado.

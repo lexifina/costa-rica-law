@@ -1,0 +1,1 @@
+Artículo 30.-EI impuesto de la patente, tendrá vigencia para el año natural siguiente a la declaración; es decir rige desde el mes de enero hasta diciembre del año siguiente a la declaración y se divide en cuatro trimestres.

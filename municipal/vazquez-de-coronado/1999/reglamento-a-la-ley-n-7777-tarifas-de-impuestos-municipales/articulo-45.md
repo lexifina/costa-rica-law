@@ -1,0 +1,1 @@
+Artículo 45.-Las resoluciones que ordenen el cierre temporal o definitivo del establecimiento por incumplimiento o quebrantamiento de las leyes o de las buenas costumbres o disposiciones reglamentarias, tendrán los recursos de revocatoria y apelación que se tramitarán conforme 10 dispuesto en el artículo 156 y 162 del Código Municipal.

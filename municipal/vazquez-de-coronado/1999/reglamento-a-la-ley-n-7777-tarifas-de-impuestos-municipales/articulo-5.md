@@ -1,0 +1,1 @@
+Artículo 5°-El impuesto de patente se pagará durante todo el tiempo que se haya tenido el establecimiento abierto o cerrado o ejercido el comercio en forma ambulante, durante el tiempo en que se haya poseído la licencia sin que se haya rescindido la misma.

@@ -1,0 +1,1 @@
+Artículo 13.-Cuando resulte totalmente evidente el abandono de la actividad aún cuando el interesado no lo haya comunicado, y ante el no pago del trimestre correspondiente, la Oficina de Patentes, procederá a la cancelación de la misma.

@@ -1,0 +1,1 @@
+Artículo 43.-Las resoluciones de la Oficina de Patentes que ordenen la cancelación de la patente o clausura del negocio por el vencimiento o la revocatoria de permisos de funcionamiento, podrán ser apeladas ante el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 44.-Las resoluciones de la Oficina de Patentes que ordene la suspensión de la patente por falta de pago, no tendrá recurso alguno, y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.

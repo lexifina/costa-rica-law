@@ -1,0 +1,1 @@
+Artículo 33.-La Municipalidad por medio de la Oficina de Patentes, aplicará los aumentos de imposición en forma discrecional y principalmente tomando en consideración la analogía o comparación con establecimientos que ejerzan la misma actividad y estén incluidos dentro del artículo primero de la Ley.

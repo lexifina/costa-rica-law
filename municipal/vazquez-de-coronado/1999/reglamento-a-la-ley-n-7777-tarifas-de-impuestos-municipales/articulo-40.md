@@ -1,0 +1,1 @@
+Artículo 40.-Las recalificaciones tendrán los recursos de revocatoria y apelación para ante el Alcalde Municipal. Podrán estar fundadas en motivos de ilegalidad e inoportunidad, no suspenderá la ejecución del acto.

@@ -1,0 +1,4 @@
+Artículo 26.-Los formularios de declaración jurada constan de dos partes:
+a) Información general necesaria para la determinación del impuesto. incluye los datos de identificación de la actividad lucrativa, su ubicación, domicilio fiscal, monto de las ventas brutas, ingresos brutos, según el caso sobre estos se calcula el impuesto a pagar trimestralmente.
+b) Información específica, con indicación del monto del impuesto que debe pagar por concepto de patente y demás datos generales para identificación de la actividad.
+El formulario con información general (a) lo entregará el patentado a la oficina designada por la Dirección General de la Tributación Directa y el formulario con información específica (b) lo enviará directamente a la Oficina de Patentes de la Municipalidad, con la copia recibida del formulario con información general.

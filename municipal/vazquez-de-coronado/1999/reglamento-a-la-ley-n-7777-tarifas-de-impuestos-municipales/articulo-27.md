@@ -1,0 +1,1 @@
+Artículo 27.-La declaración jurada para los fines de este reglamento debe estar fundamentada en la declaración que el patentado presente ante la Dirección General de Tributación Directa para efectos del impuesto sobre la renta. La Municipalidad puede verificar ante la Dirección General de Tributación Directa los datos suministrados por el patentado.

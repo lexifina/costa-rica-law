@@ -1,0 +1,1 @@
+Artículo 4°-El impuesto deberá ser cancelado por trimestre adelantado, durante los meses de febrero, marzo, junio y setiembre de cada año. El atraso en el pago de cada trimestre genera recargos e intereses según el Código Municipal (art. 69).

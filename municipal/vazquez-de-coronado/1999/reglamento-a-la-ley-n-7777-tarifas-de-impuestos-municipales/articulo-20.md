@@ -1,0 +1,1 @@
+Artículo 20.-Ningún traslado o traspaso de licencia municipal, incluso de la venta de licores al menudeo, afectará los intereses municipales, hasta tanto no sea aceptada por la Oficina de Patentes; aceptación que se dará, si el nuevo local reúne los requisitos exigidos y si ambas partes están al día en el pago de tasas e impuestos municipales.

@@ -1,0 +1,1 @@
+Artículo 32.-Para fijar el monto del impuesto, la Oficina de Patentes solicitará al interesado, quien estará obligado a presentarla, la información necesaria para establecer los factores de imposición a que se refiere el artículo 4° de la Ley.

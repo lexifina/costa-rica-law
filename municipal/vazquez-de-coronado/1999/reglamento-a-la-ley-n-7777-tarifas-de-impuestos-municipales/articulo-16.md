@@ -1,0 +1,1 @@
+Artículo 16.-La no renovación del Permiso Sanitario de Funcionamiento, extendida por el organismo competente, en los casos que las leyes así lo exijan, será acreedor a la cancelación de la patente, previo trámite correspondiente.

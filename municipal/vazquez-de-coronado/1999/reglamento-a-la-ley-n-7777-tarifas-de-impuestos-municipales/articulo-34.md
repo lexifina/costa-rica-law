@@ -1,0 +1,1 @@
+Artículo 34.-En casos calificados y a solicitud del interesado, las tarifas mínimas serán aplicadas a personas físicas que atiendan personalmente sus actividades, y que los estudios que realice la Oficina de Patentes demuestren fehacientemente que no deben de ser tasados en categorías superiores.

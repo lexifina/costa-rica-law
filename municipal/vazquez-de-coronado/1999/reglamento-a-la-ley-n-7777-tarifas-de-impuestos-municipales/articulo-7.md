@@ -1,0 +1,1 @@
+Artículo 7°-El impuesto de la patente y licencia de venta de licores al menudeo se regulará por un capítulo especial salvo aquellas disposiciones de tipo administrativo que sean aplicables, en cuanto a solicitud, traspasos, traslados y cancelación de las mismas.
