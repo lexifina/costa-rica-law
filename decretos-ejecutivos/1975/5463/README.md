@@ -18,3 +18,4 @@ Reglamento para las Investigaciones y Experimentaciones en Seres Humanos
 | 3 | 1996-01-15 | Decreto Ejecutivo 24944 (1996-01-15) |
 | 4 | 1997-11-07 | Decreto Ejecutivo 26523 (1997-11-07) |
 | 5 | 1998-09-16 | Decreto Ejecutivo 27349 (1998-09-16) |
+| 6 | 2000-11-13 | Decreto Ejecutivo 29138 (2000-11-13) |
