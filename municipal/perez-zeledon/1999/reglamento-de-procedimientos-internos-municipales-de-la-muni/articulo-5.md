@@ -1,0 +1,13 @@
+CAPITULO II
+Del manejo de los expedientes administrativos
+Artículo 5º—Principios generales para los expedientes administrativos municipales. Todo trámite o procedimiento que se lleve a cabo y se desarrolle en la Municipalidad de Pérez Zeledón estará contenido en un Expediente Administrativo el cual se clasificará de acuerdo a una carátula que contenga los siguientes elementos:
+a) La Sección, Unidad, Departamento o Area de la Municipalidad de Pérez Zeledón que custodie y tramite el expediente.
+b) El número del expediente el cual estará compuesto por los siguientes elementos:
+i. Primero: contendrá una sigla de tres letras que designará el tipo de trámite con el que se inició en expediente: Se utilizará la sigla SOL para las solicitudes; la sigla PAT para patentes; la sigla PDC para permisos de construcción, la sigla REC para recursos, la sigla DEN para denuncias, la sigla QUE para quejas, la sigla OLC para ofertas, licitaciones o concursos y la sigla INC para incidentes.
+ii: Segundo: contendrá dos dígitos que corresponderán a los dos últimos números del año en que se inició.
+iii. Tercero: Contendrá un número de cuatro dígitos en el que se asignará un número consecutivo general en cada órgano municipal que irá del 0001 al 9999. Para asignar este número se seguirá un estricto orden consecutivo.
+iv. Cuarto: Finalmente se asignarán una sigla de tres letras que harán referencia al órgano que tramita el expediente así como lo señala el artículo 2° de este Reglamento en su parte final.
+c) Las partes que intervienen en el procedimiento señalando en cada caso si se trata de personas físicas o jurídicas y deberá consignarse el nombre y dos apellidos del representante legal o del sujeto interesado, así como la estimación de lo que se pide en el proceso en términos económicos, los lugares y direcciones señalados para notificaciones, teléfonos y facsímiles de las partes y los números de cédulas. Se escribirá en la carátula también los nombres y apellidos de los abogados de las partes si los hubiera.
+d) La fecha de inicio del procedimiento y la manera en que ésta inició, ya sea por medio de denuncia, queja, solicitud, etc.
+Cada uno de los órganos municipales tendrá asignado un color para la identificación de las carátulas de los expedientes que será decidido por una única vez de acuerdo a los criterios de conveniencia que fije al efecto la Proveeduría Municipal y a las competencias descritas en el artículo 3° de este Reglamento.
+Esta normativa que hace referencia a la manera en que se llevarán los expedientes tiene una base meramente funcional de procedimientos internos y complementa la ya existente desde el punto de vista orgánico.
