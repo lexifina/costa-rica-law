@@ -14,3 +14,4 @@ Reforma al Reglamento al Código de Minería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-07 | la propia norma |
+| 2 | 2004-04-28 | Decreto Ejecutivo 31792 (2004-04-28) |
