@@ -1,1 +1,3 @@
-Artículo 28. La Comisión Nacional de Bachillerato integrará tantos Tribunales como fueren necesarios para garantizar la oportuna y objetiva calificación de las pruebas. Los Tribunales actuarán en ámbito nacional
+Artículo 28.- La Comisión Nacional de Bachillerato integrará tantos tribunales como fueren necesarios para garantizar la oportuna y objetiva calificación de las pruebas. Los tribunales actuarán en ámbito nacional.
+No obstante, la validez y la confiabilidad de las pruebas y de los ítemes serán establecidas de acuerdo con los resultados de los análisis hechos con los procedimientos científicos y técnicos. Estos resultados proveerán los indicadores de validez y confiabilidad en función de las respuestas de los examinados y definirán la calidad y pertinencia de la prueba y las de los respectivos ítemes.
+(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 25229, del 18 de junio de 1996.)

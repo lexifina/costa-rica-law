@@ -14,3 +14,4 @@ Reglamento sobre Exámenes de Bachillerato en Educación Media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-25 | la propia norma |
+| 2 | 1996-06-18 | Decreto Ejecutivo 25229 (1996-06-18) |
