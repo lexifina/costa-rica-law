@@ -1,0 +1,1 @@
+Artículo 16.- Por entregada una certificación al Fiscal Específico, ni la Tributación Directa ni el Ministerio de Economía y Hacienda, aceptarán arreglos con el moroso, son que se contemple el pago de los honorarios y de las costas procesales que se hayan causado, salvo el caso contemplado en el artículo 4º de esta ley.

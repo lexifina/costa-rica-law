@@ -1,0 +1,1 @@
+Artículo 12.- Tratándose de entidades no constituidas legalmente, o que hallan dejado de existir al momento de establecer la demanda, la acción se dirigirá contra la persona o personas que aparezcan como firmantes de la declaración o informe que haya servido de base para la determinación del impuesto cobrado, según los libro o documentos de la Tributación Directa.
