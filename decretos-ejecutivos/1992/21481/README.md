@@ -14,3 +14,4 @@ Norma General Etiquetado y Declaración Propiedades AlimentosPreenvasados Destac
 | --- | --- | --- |
 | 1 | 1992-12-24 | la propia norma |
 | 2 | 2002-01-15 | Decreto Ejecutivo 30256 (2002-01-15) |
+| 3 | 2002-01-15 | Ley 8 |
