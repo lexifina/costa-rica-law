@@ -20,5 +20,6 @@ e) Indemnizar por los daños y perjuicios que se ocasionen a terceros
 como consecuencia de la ejecución de la concesión.
 f) Cumplir los compromisos financieros contraídos con la
 Administración concedente y derivados del otorgamiento de la concesión.
+(NOTA DE SINALEVI: El artículo 1 aparte b) punto 7) de la Ley N° 8643 del 30 de junio de 2008, adicionará el inciso f) a este numeral y en consecuencia se corre la numeración del inciso subsiguiente, a partir del día 17 de octubre de 2008, por lo que la respectiva adición será introducida a partir de la fecha indicada).
 g) Las demás obligaciones determinadas en esta ley o derivadas del
 contrato de concesión.
