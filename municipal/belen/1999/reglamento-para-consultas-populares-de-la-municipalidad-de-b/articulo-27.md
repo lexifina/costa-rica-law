@@ -1,0 +1,1 @@
+Artículo 27.-Reposición del alcalde propietario. Si el resultado de la consulta fuere la destitución del alcalde, el Concejo Municipal lo comunicara al Tribunal Supremo de Elecciones, el cual repondrá al alcaide por el resto del periodo, según el articulo 14 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 5°-Comisión Coordinadora de la Consulta Popular. El Concejo Municipal nombrara una comisión, conformada por cinco miembros escogidos entre regidores y síndicos, que se encargarán de la organización y dirección de la consulta. Esta comisión será provista d recursos suficientes para el cumplimiento de su cometido.
