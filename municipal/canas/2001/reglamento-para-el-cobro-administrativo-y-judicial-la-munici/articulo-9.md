@@ -1,0 +1,1 @@
+Artículo 9°-La Oficina de Cobros en coordinación con el profesional en Derecho estará autorizado para realizar arreglos de pago antes de presentar la demanda en sede judicial. Para ese efecto el profesional en Derecho devengará los honorarios que se determinen en él artículo 17 de este reglamento y que debe cancelar el contribuyente moroso.

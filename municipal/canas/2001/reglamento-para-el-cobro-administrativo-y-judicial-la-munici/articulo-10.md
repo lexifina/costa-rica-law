@@ -1,0 +1,1 @@
+Artículo 10.-EI abogado encargado del cobro judicial será nombrado por el Concejo Municipal. Puede recaer ese nombramiento en el Asesor Legal siempre y cuando no este afectado por el régimen de prohibición y / o dedicación exclusiva.

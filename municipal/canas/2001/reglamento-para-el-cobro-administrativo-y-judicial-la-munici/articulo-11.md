@@ -1,0 +1,1 @@
+Artículo 11.-Para una mejor gestión de cobro, a juicio del Concejo Municipal podrán nombrarse abogados externos para lo cual deberán seguirse los procedimientos de contratación administrativa aplicables.

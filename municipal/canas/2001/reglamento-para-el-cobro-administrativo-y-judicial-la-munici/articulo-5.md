@@ -1,0 +1,2 @@
+Artículo 5°-Esta oficina deberá iniciar a más tardar a partir del primer mes de atraso ]a gestión de cobro.
+Para lo que deberá enviar un comunicado al contribuyente por única vez, en el cual se hará saber su condición de moroso. Se le otorgará un plazo de 15 días naturales para apersonarse a fin de normalizar el crédito. De no hacerlo se remitirá toda la documentación pertinente al abogado para que proceda al cobro en sede judicial, dentro de los ocho días naturales siguientes al vencimiento del plazo dado al deudor.

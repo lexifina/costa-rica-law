@@ -1,0 +1,1 @@
+Artículo 12.-En caso de contar con abogados externos, estos deberán presentar sus documentos ante la Oficina de Cobro a efecto de obtener la firma del Alcalde en su condición de representante legal de la Municipalidad.

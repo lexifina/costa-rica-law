@@ -1,0 +1,1 @@
+Artículo 2°-Toda gestión de cobro se realizará de conformidad con lo establecido en este Reglamento, por lo tanto será de acatamiento obligatorio tanto para la Oficina de Cobros, como para el encargado de los procesos de cobro judicial.

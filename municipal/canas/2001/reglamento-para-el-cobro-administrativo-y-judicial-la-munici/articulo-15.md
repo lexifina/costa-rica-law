@@ -1,0 +1,1 @@
+Artículo 15.-La Oficina de Cobros antes de recibir pagos, arreglos o cancelaciones de deudas que se encuentran en cobro judicial, deberá tener presente que los honorarios se encuentren debidamente cancelados.

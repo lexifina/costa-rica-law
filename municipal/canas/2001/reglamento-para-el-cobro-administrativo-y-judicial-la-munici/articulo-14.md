@@ -1,0 +1,1 @@
+Artículo 14.-EI abogado responsable del cobro en la instancia judicial deberá presentar un informe de sus actividades cada 3 meses o cuando así lo solicite el Concejo Municipal, Alcalde Municipal o la Oficina de Cobros.

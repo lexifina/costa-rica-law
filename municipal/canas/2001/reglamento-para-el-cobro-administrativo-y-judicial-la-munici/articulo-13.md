@@ -1,0 +1,1 @@
+Artículo 13.-EI abogado designado para el cobro judicial, conforme a los artículos anteriores, cobrará honorarios sobre sus gestiones, los cuales deberán ser cancelados por los contribuyentes morosos según se establece en el capitulo IV de este Reglamento.
