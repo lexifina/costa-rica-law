@@ -1,0 +1,5 @@
+DECRETO I
+Concede seis meses de término a los que hayan contratado maderas de mayores dimensiones que las que señala la orden de 18 de octubre de 1853, para que las exporten.
+“Juan Rafael Mora, presidente de la República de Costa Rica.
+Considerando: que, a consecuencia de no haberse fijado término para que comenzasen a regir las disposiciones que comprende la orden n°455 de 18 de octubre del año anterior, referente al decreto n°2 de 7 de marzo del mismo año, se han hecho ante el Gobierno varias solicitudes para que conceda un término, dentro del cual puedan cumplir los contratos celebrados antes de la emisión de la citada orden, decreto:
+Art 1°.- Se concede seis meses de término, contados desde la publicación del presente decreto, para que los que hayan celebrado contratos de maderas para exportar, de mayores dimensiones que las que señala la orden citada de 18 de octubre último, las corten y exporten dentro dicho término, con tal que las enunciadas maderas sean o hayan sido cortadas en terrenos de propiedad particular.
