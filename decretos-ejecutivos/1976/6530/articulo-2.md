@@ -1,0 +1,1 @@
+Artículo 2°─ De acuerdo con esta declaratoria, se prohíbe la demolición total o parcial del inmueble citado. Las remodelaciones o modificaciones de su aspecto se harán con la aprobación del Ministerio de Cultura, Juventud y Deportes.
