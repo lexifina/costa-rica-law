@@ -1,1 +1,0 @@
-Transitorio 2º.- El excedente de la partida que autoriza el artículo antes mencionado, una vez traspasadas las sumas requeridas para cancelar los compromisos anteriores, se destinará a la atención de las obligaciones que establecen los artículos 2º y 3º de la presente ley.

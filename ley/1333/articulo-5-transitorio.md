@@ -1,1 +1,0 @@
-Transitorio 5º.- Si el Banco Central hubiere de ampliar su personal con motivo de la aplicación de la presente ley, procurará dar preferencia a los funcionarios y empleados que, según su especialidad o trabajo, formen el personal de la Caja de Amortización de la Deuda Pública.
