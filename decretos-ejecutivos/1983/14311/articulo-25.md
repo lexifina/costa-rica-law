@@ -1,1 +1,0 @@
-Artículo 25.-La División de Reforma Administrativa del Ministerio de Planificación Nacional y Política Económica, prestará asistencia técnica, según la necesidad de los equipos de trabajo, velando porque Las recomendaciones elaboradas en los comités sectoriales de reforma administrativa se ajusten a la política general del Gobierno y al Plan de Reforma Administrativa.

@@ -1,1 +1,0 @@
-Artículo 14.-Corresponderá a este comité la coordinación y armonización técnica de las actividades de los distintos sectores en la formulación, ejecución y evaluación del Plan de Reforma Administrativa y de otros lineamientos de política administrativa.

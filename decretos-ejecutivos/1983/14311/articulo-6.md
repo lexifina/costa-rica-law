@@ -1,8 +1,0 @@
-Articulo 6°-A la Comisión de Eficiencia Administrativa le corresponderá:
-a) Proponer al Presidente de la República objetivos, metas, prioridades y lineamientos de política administrativa, de conformidad con los artículos 15, 16 y 17 de la ley;
-b) Aprobar en primera instancia el Plan de Reforma Administrativa que el Ministro de Planificación Nacional y Política Económica presente; dicho Plan será promulgado por decreto del Presidente de la República y del Ministro de Planificación Nacional y Política Económica, a más tardar el último día del mes de octubre del primer año de gobierno;
-c) Analizar problemas y proponer lineamientos de política administrativa; en concordancia con el Plan Nacional de Desarrollo y el respectivo Plan de Reforma Administra1iva y dentro de los lineamientos específicos que transmita la Presidencia de la República;
-ch) Nombrar, cuando sea necesario, grupos de trabajo para la atención de problemas específicos;
-d) Mantener una estrecha coordinación con la División de Reforma Administrativa del Ministerio de Planificación Nacional y Política Económica, la cual fungirá como Secretaria Ejecutiva de la Comisión y el Director de ésta como Secretario Ejecutivo, para el cabal cumplimiento de las funciones enumeradas y de aquéllas que lleguen a considerarse de importancia para el establecimiento de una adecuada política administrativa del Estado.
-e) Controlar y evaluar la ejecución del Plan de Reforma Administrativa y de otros lineamientos de política administrativa, a través de su Secretaría Ejecutiva y cuando corresponda, de cualquier otro órgano del Subsistema; y
-f) Proponer al Presidente de la República las acciones correctivas que se requieran.
