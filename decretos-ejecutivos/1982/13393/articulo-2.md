@@ -1,0 +1,1 @@
+ARTICULO 2°.-La nueva denominación de la Reserva Biológica de Hitoy ser utilizada en adelante por el Instituto Geográfico Nacional para la próxima edición del mapa de Costa Rica, escala 1/50.000 y por el Servicio de Parques Nacionales del MAG, en los documentos que se refieren a la mencionada Reserva Biológica.
