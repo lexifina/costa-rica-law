@@ -14,3 +14,4 @@ Reglamento para el traspaso de fondos correspondientes a la cesantía de los tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-31 | la propia norma |
+| 2 | 2004-01-22 | Reglamento 3310 (2004-01-22) |

@@ -1,1 +1,1 @@
-Artículo 6º—El traspaso de las sumas indicadas en el artículo 1º de este Reglamento, que de conformidad con el artículo 8º de la Ley de Protección al Trabajador se consideren aporte al fondo de capitalización laboral, se llevará a cabo en los términos del artículo 10 de la indicada ley, y el traspaso del exceso se regirá por lo indicado en el artículo 23 ch. ii, de la Ley 7391.
+Artículo 5º—NOTA DE SINALEVI: En la publicación del presente Reglamento, hecha en La Gaceta N° 146 del 31 de julio de 2003, no se consignó el texto de este artículo.
