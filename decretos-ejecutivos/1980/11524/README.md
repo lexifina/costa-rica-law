@@ -13,3 +13,4 @@ Declara Reliquia Histórica Edificio Aduana Principal San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-04 | la propia norma |
+| 2 | 1980-06-04 | Decreto Ejecutivo 18895 (1989-03-09) |
