@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a las instituciones públicas y empresas del Estado para que, en la medida de sus posibilidades, brinden facilidades y cooperación para la realización de los fines mencionados en el párrafo anterior.
