@@ -1,0 +1,1 @@
+Art. 3. Al reglamentar el Ejecutivo, como le compete la administración é inversión de los fondos de propios puede también criar Tribunales para el exámen y glosa de las cuentas rezagadas y de las que se formen en lo sucesivo,
