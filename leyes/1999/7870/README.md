@@ -1,6 +1,6 @@
 # Acuerdo con Canadá sobre Promoción y Protección Recíproca Inversiones.
 
-Ley N° 7870 del 1999-05-05. SINALEVI, ficha 30958: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=30958&param2=32680&param3=1>.
+Ley N° 7870 del 1999-05-05. SINALEVI, ficha 30958: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=30958&param2=64013&param3=1>.
 
 Publicada en La Gaceta N° 100 del 1999-05-25.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2000-11-23 | SINALEVI (1 normas) | 1999-05-05 |
 | 2 de 3 | 2000-11-23 | SINALEVI | 1999-05-05 |
+| 3 de 3 | 2000-11-23 | Ley 8 | 1999-05-05 |
