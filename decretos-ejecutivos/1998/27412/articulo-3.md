@@ -1,0 +1,1 @@
+Artículo 3°—El plazo de vigencia del Refugio de Vida Silvestre de Propiedad Mixta ROMELIA, será por un periodo de diez años, los que serán prorrogables por periodos iguales si las partes están de común acuerdo.
