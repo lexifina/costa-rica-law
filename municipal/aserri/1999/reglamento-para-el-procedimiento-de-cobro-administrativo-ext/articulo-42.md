@@ -1,0 +1,1 @@
+Artículo 42.—Otras sanciones. La Municipalidad podrá realizar los tramites administrativos y/o judiciales respectivos contra el profesional en derecho, en aquellos casos en que se demuestre negligencia o impericia en la tramitación judicial de las obligaciones vencidas. Sanciones que podrá ser administrativas, disciplinarias o indemnizatorias.

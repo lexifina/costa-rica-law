@@ -1,0 +1,1 @@
+Artículo 9º—Labores en el local o sede del contribuyente. Los funcionarios de la Administración Tributaria Municipal, cuando ejecuten sus labores en el local del contribuyente, responsable, declarante o de tercero relacionados con estos, deberán practicar sus actuaciones procurando no perturbar el desarrollo normal de las actividades que allí se cumplan.
