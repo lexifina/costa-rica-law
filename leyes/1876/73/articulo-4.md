@@ -1,0 +1,2 @@
+Art 4° Siempre que sea llamado un Conjuez para determinada causa, se le comunicará por nota de oficio, indicándole el negocio en que deba conocer.
+Si el Conjuez llamado tuviese impedimento o excusa por la cual no deba conocer, lo manifestará así el Tribunal, por medio de otra nota de oficio, a fin de que se sustancie la excusa, suspendiéndose entre tanto la vista. Esto no obsta para que el Conjuez pueda excusarse en el acto de la vista, si hasta en ella puedo conocer el impedimento o excusa que lo exima de ser juez.

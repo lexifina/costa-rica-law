@@ -1,0 +1,1 @@
+Art 2° Para los casos de súplica que ocurran se sortearán de preferencia Conjueces entre los letrados que tengan cuarenta años de edad y hayan ejercido la profesión, por lo menos durante el término de cinco años. Solo en falta de abogados que reúnan esas condiciones, podrán ser llamados de los demás letrados que tengan los requisitos que se necesitan para ser Magistrados.
