@@ -1,0 +1,1 @@
+Art. 30. Toca al Secretario escribiente de la Gobernacion el arreglo en el despacho de la Secretarὶa; le están subordinados los demas oficiales que hubiere en ella y es responsable de sus omisiones y descuidos, no menos que de la conservación y buen órden del archivo, que se debe recibir y entregar por inventario.

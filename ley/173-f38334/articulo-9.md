@@ -1,0 +1,1 @@
+Art. 9. El Gobernador cuida de que los Representantes concurran á las sesiones, así en los periodos ordinarios como en las ocasiones extraordinarias en que el Congreso sea convocado por el Poder Ejecutivo.

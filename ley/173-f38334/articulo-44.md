@@ -1,0 +1,1 @@
+Art. 44. El Jefe Polὶtico instruye á la Municipalidad de los negociso en que debe ocuparse indicandole los medios conducentes para promover las mejoras útiles del Canton y remover los males que se adviertan.

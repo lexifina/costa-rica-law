@@ -1,0 +1,1 @@
+Art. 21. El Gobernador concede permiso á los empleados de la Provincia para separarse de sus funciones hasta por tres dias, y resuelve sobre las causales que sus subalternos presenten para separarse por mas tiempo, concediéndoles ó negándoles, en su virtud, la licencia necesaria; mas en el primer caso cuidará de que no se retarde el despacho, y darà cuenta al Poder Ejecutivo.

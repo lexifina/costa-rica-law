@@ -1,0 +1,1 @@
+Art. 98. Anualmente forman los jueces de paz una lista general de todos los habitantes de la ciudad, villa ó distrito parroquial que están obligados al servicio personal, fijando una en los lugares públicos para que cualquiera del pueblo pueda reclamar los errores ú omisiones que se hayan cometido en su formulacion.

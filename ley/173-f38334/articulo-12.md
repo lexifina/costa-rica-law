@@ -1,0 +1,1 @@
+Art. 12. El Gobernador cuida de que los encargados de los mismos fondos y rentas, rindan las respectivas cuentas con la regularidad y comprobacion debidas; y persigue todos los abusos y defraudaciones.

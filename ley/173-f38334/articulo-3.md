@@ -1,0 +1,1 @@
+Art. 3. En todo lo perteneciente al órden y seguridad de la Provincia y à su gobierno polὶtico y económico, están subordinados al Gobernador todos los funcionarios públicos, de cualquiera clase y denominación que sean, y que residan dentro de la misma Provincia, exceptuando en la capital de la Repùblica aquellas autoridades nacionales de quienes él depende.

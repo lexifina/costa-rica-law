@@ -1,0 +1,1 @@
+Art. 102. El Jefe Polὶtico del Canton exije frecuentes informes de los jueces de paz sobre la reparacion que demandan los caminos, y sale a visitar los trabajos que se hagan. El Gobernador de la Provincia cumple este mismo deber con respecto al Jefe Político y jueces de paz, y dà cuenta de todo al Supremo Poder Ejecutivo.

@@ -1,0 +1,1 @@
+Art. 78. Las Municipalidades crian y nombran el Alcaide ó Alcaides que juzguen necesarios para el servicio de las cárceles de las ciudades, villas y distritos parroquiales, asistencia de los presos y custodia de ellos, asignándoles del tesoro municipal el sueldo ò gaje que estimen conveniente y removiéndolos cuando lo crean necesario.
