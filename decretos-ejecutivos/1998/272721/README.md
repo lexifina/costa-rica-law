@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Consejo Superior de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-21 | la propia norma |
+| 2 | 1999-01-04 | Decreto Ejecutivo 27644 (1999-01-04) |
