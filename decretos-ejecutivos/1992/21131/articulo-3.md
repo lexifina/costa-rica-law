@@ -1,0 +1,1 @@
+Artículo 3°-El Ministerio de Cultura, Juventud y Deportes, solicitará en el mes de enero de cada año a las instituciones indicadas, la designación de su representante (propietario y suplente), que formarán parte del jurado encargado de otorgar el premio.
