@@ -1,0 +1,1 @@
+Artículo 5°—El ganador, ganadora o ganadores (as) recibirá un monto de $2.000 (o su equivalente en colones). En el caso de que sean varios los ganadores (as), el dinero se distribuirá en partes iguales entre los ganadores (as). El ganador, ganadora o ganadores (as) recibirán un pergamino que les acredita como tal.

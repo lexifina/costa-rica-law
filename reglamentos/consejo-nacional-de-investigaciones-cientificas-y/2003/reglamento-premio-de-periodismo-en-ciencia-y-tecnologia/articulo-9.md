@@ -1,0 +1,1 @@
+Articulo 9°—Para la integración del jurado, previa solicitud del CONICIT, las instituciones deberán enviar los nombres a más tardar en agosto del año segundo de la convocatoria. Si la institución a la que corresponde nombrar el (la) miembro (a) del jurado, como lo indica el Artículo 7 no lo hiciere, el CONICIT hará el nombramiento respectivo.

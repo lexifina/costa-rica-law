@@ -1,0 +1,1 @@
+Articulo 3°— El premio será entregado al comunicador o comunicadora. o al grupo de comunicadores (as) que realicen trabajos de divulgación sobre ciencia o tecnología, que el jurado designado al efecto escoja como el mejor.

@@ -1,0 +1,1 @@
+Artículo 10.—El CONICIT deberá divulgar los términos de la convocatoria al galardón entre los (as) interesados (as) por medio de una publicación en un diario nacional. En caso de no ser posible esta publicación por razones presupuestarias, el CONICIT deberá emplear otros medios idóneos.
