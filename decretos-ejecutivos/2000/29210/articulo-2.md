@@ -1,0 +1,1 @@
+Artículo 2°-A toda persona que haciendo uso de este Reglamento Técnico, encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, podrá notificarlo sin demora al Ministerio de Agricultura y Ganadería, aportando si fuera posible, la información correspondiente para que se efectúen las investigaciones pertinentes y se tomen las previsiones correspondientes.
