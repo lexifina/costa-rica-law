@@ -1,0 +1,1 @@
+Art 3° Forman el estudio de Humanidades y Filosofía las materias siguientes: Gramática castellana y latina: Retórica y Poética; Elementos de Literatura: Historia sagrada y profana; Geografía y Cronológica-matemáticas-física y química; Historia de la Filosofía.
