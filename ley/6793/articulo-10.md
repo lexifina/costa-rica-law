@@ -1,0 +1,7 @@
+Artículo 10.-Protección y asistencia
+1. Todos los heridos, enfermos y náufragos, cualquiera que sea la Parte a
+que pertenezcan, serán respetados y protegidos.
+2. En toda circunstancia serán tratados humanamente y recibirán, en toda
+la medida de lo posible y en el plazo más breve, los cuidados médicos que
+exija su estado. No se hará entre ellos ninguna distinción que no esté
+basada en criterios médicos.
