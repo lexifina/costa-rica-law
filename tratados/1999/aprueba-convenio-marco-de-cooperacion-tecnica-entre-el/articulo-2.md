@@ -1,0 +1,1 @@
+Artículo 2°.- La República de Costa Rica interpreta, según el inciso a) del artículo IV, que por familia inmediata se entenderá el o la cónyuge del técnico que deba trasladarse de su país de origen a la otra parte, al amparo de este Convenio, así como los hijos de ambos.
