@@ -1,0 +1,1 @@
+Artículo 7°—En caso de ausencia o impedimento temporal del Presidente, ejercerá sus funciones el Vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. En caso de ausencia de ambos, los directores nombrarán otro Director como Presidente ad hoc.

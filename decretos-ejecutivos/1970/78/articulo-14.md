@@ -1,0 +1,1 @@
+Artículo 14.—Para la elaboración de cada norma oficial y el análisis de propuestas de normas centroamericanas, el Comité consultará el parecer de los industriales, consumidores y organismos técnicos oficiales o privados que estime convenientes para obtener elementos de juicio sobre el asunto en estudio.

@@ -1,0 +1,1 @@
+Artículo 16.—El sello de patrón único autorizado por el artículo VI de la ley No 1698 de 26 de noviembre de 1953, será diseñado por el Comité de Normas y Asistencia Técnica Industrial y registrado a su nombre, de oficio, en el Registro de Marcas, dentro de los 30 días siguientes a la fecha en que este decreto se publique en "La Gaceta".

@@ -1,0 +1,1 @@
+Articulo 20.—La asistencia técnica en lo posible será gratuita, pero cuando su atención demandare gastos, éstos serán sufragados por la empresa beneficiaría, por el grupo de empresas respectivo o por el Ministerio de Industria y Comercio, a juicio del Comité, lo que previamente comunicará a fin de obtener la aprobación del presupuesto respectivo de quien deba cubrir el costo.

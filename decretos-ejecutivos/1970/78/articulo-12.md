@@ -1,0 +1,1 @@
+Artículo 12.—Como organismo oficial de normalización, el Comité debe emitir opinión sobre las propuestas de Normas Centroamericanas que elabore el Instituto Centroamericano de Investigación y Tecnología Industrial (ICAITI) . El Comité antes de emitir su opinión hará las consultas que ordena este Reglamento para la emisión de Normas Oficiales.

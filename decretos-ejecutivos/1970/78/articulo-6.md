@@ -1,0 +1,1 @@
+Artículo 6°—En la primera sesión de cada año calendario, los directores elegirán de su seno por mayoría de votos un Presidente y un Vicepresidente, que durarán un año en sus funciones, pudiendo ser reelectos. El Director Ejecutiva, por incompatibilidad de funciones, no podrá ejercer la presidencia del Comité.

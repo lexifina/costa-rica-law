@@ -1,0 +1,2 @@
+Artículo 10.—Son deberes de todos los directores del Comité:
+Asistir con regularidad a las sesiones ordinarias y a las extraordinarias a que se les convoque; acatar el presente reglamento, colaborar en forma eficiente en el cumplimiento de las funciones que le asignan las leyes al Comité; formular iniciativas tendientes al mejoramiento de la industria nacional en cualquiera de sus manifestaciones.

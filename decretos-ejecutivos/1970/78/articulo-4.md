@@ -1,0 +1,1 @@
+Artículo 4°—El Comité se reunirá ordinariamente una vez por semana y extraordinariamente cuando convoque el Presidente o por acuerdo tomado en sesión. Los miembros del Comité devengarán dietas hasta por cuatro sesiones a que asistan por mes.

@@ -1,0 +1,1 @@
+Artículo 13.—Las consultas de carácter técnico, que de acuerdo con las disposiciones del artículo IV de la ley No 1698, dirija el Comité a los colegios profesionales y dependencias técnicas oficiales se harán por escrito y serán dirigidas al jefe respectivo, quien es responsable de la pronta y adecuada respuesta.

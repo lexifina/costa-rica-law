@@ -1,0 +1,1 @@
+Artículo 3°—El Director General de Industrias como miembro del Comité, ejercerá el cargo de Director Ejecutivo. Las labores administrativas serán realizadas por la Dirección General de Industrias y sus dependencias.
