@@ -1,0 +1,2 @@
+Pena privativa de libertad
+Artículo 505.- Cuando el condenado a pena privativa de libertad no estuviere preso, se ordenará su captura y remisión a la cárcel o centro de detención que indique el Juez; practicada su captura o si estuviere preso se pondrá a la orden del Instituto Nacional de Criminología, al que se le remitirá testimonio de la sentencia y del cómputo de la pena efectuado por el Juez. Igual envío se hará al Juez de Ejecución.

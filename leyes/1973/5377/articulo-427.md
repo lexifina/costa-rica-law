@@ -1,0 +1,5 @@
+Procedimientos en lugares lejanos
+Artículo 427.- En las comunidades alejadas del asiento de una Alcaldía, el ofendido podrá denunciar el hecho ante el respectivo delegado cantonal o distrital de la Guardia de Asistencia Rural o proceder éstos por iniciativa propia. En estos casos, si el imputado confesare, se remitirá el acta al Alcalde respectivo para que dicte la resolución correspondiente.
+Si el imputado no reconoce el hecho, tendrá un término de veinticuatro horas para presentar sus pruebas de descargo y recibidas éstas, y las de cargo, a la mayor brevedad posible se enviarán las diligencias al Alcalde para que proceda conforme a los artículos anteriores.
+Pero si no se pudiere celebrar juicio oral y público por inasistencia de los interesados, podrá fallar conforme al mérito de las pruebas que consten en autos.
+(La Sala Constitucional mediante resolución Nº 7550-94 de las 16:45 horas del 22 de diciembre de 1994, interpretó de este artículo la palabra "interesados" en el sentido de que el término "sólo incluye al ofendido o a la autoridad que hizo la denuncia y no al acusado").

@@ -1,0 +1,3 @@
+Conciliación y retractación
+Artículo 438.-Cuando las partes se concilien en la audiencia o en cualquier estado del juicio, se sobreseerá en la causa y las costas respectivas estarán a cargo de cada una de ellas, salvo que convengan otra cosa. Tratándose de injuria, calumnia o difamación, si el querellado se retractare en la audiencia o al contestar la querella, la causa será sobreseída y las costas quedarán a su cargo. La retractación será publicada a petición del querellante, en la forma que el tribunal estime adecuada.
+( Así reformado por el artículo 4º de la ley Nº 5761 de 7 de agosto de 1975 ).

@@ -1,0 +1,2 @@
+Comienzo y término
+Artículo 140.- Los términos correrán desde que comience el día subsiguiente a aquel en que se efectuó la notificación que deba tenerse en cuenta, según sean individuales o comunes, y vencerán en el instante que, según la ley, deba cerrarse el despacho del tribunal u oficina donde haya de efectuarse la diligencia de que se trate; pero serán admisibles y válidas las gestiones o diligencias que se practiquen a la hora exacta en que se cierran las oficinas judiciales.

@@ -1,0 +1,3 @@
+Acumulación y sentencia firme
+Artículo 182.- Cuando en el supuesto del artículo 177 fuere posible la acumulación de las causas, de todas ellas conocerá la Corte Suprema. En caso contrario, la sentencia del Tribunal de Juicio no vincula de ningún modo a la Corte Suprema. Contra la sentencia de la Corte Suprema de Justicia no hay recurso alguno.
+(La Sala Constitucional mediante resolución N° 419 del 26 de enero de 1993, interpretó el presente artículo de manera que: “…la Corte Suprema de Justicia sólo debe conocer de las causas en las que intervengan sujetos protegidos por privilegio constitucional; y en consecuencia, los tribunales ordinarios son los competentes para continuar conociendo de las causas seguidas contra las demás personas”).

@@ -1,0 +1,3 @@
+Identificación de cadáveres
+Artículo 205.- Si la instrucción se realizare por causa de muerte violenta o sospechosa de criminalidad y el extinto fuere desconocido, antes de procederse al entierro del cadáver o después de su exhumación, hecha la descripción correspondiente se le identificará por medio de testigos, y se tomarán sus impresiones digitales.
+Si por los medios indicados no se obtuviere la identificación y su estado lo permite, el cadáver se expondrá al público por tiempo prudencial en la morgue del Organismo Médico Forense, a fin de que quien tenga datos que puedan contribuir al reconocimiento, los comunique al juez.

@@ -1,0 +1,2 @@
+Requisitos
+Artículo 57.- El escrito en que se apersone el actor civil deberá formularse personalmente o por mandatario y contendrá, bajo pena de inadmisibilidad: el nombre y domicilio del accionante; a qué proceso se refiere; los motivos en que la acción se basa, con indicación del carácter que se invoca y del daño que se pretende haber sufrido, aunque no se precise el monto; la petición de ser admitido como parte y la firma.

@@ -1,0 +1,2 @@
+Sujetos
+Artículo 9º.- La acción civil para la restitución del objeto materia del hecho punible, así como la indemnización de los daños y perjuicios causados por el mismo, sólo podrá ejercida por el damnificado o sus herederos en los límites de su cuota hereditaria o por los representantes legales o mandatarios de ellos, contra los partícipes del hecho punible y, en su caso, contra el civilmente responsable.

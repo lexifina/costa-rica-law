@@ -1,0 +1,3 @@
+Varios imputados
+Artículo 177.- Si el presunto delito fuere atribuido a varios imputados y sólo alguno de ellos gozare de privilegio constitucional, el proceso podrá evacuarse y seguir con respecto a los otros.
+(La Sala Constitucional mediante resolución N° 419 del 26 de enero de 1993, interpretó el presente artículo de manera que: “…la Corte Suprema de Justicia sólo debe conocer de las causas en las que intervengan sujetos protegidos por privilegio constitucional; y en consecuencia, los tribunales ordinarios son los competentes para continuar conociendo de las causas seguidas contra las demás personas”).
