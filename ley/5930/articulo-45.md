@@ -1,1 +1,0 @@
-Artículo 45.- Las personas en tránsito y turistas sólo podrán circular con sus vehículos, dentro del territorio nacional, si al ingresar al país se proveen del seguro obligatorio que establece esta ley.

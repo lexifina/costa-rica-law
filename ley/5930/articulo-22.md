@@ -1,1 +1,0 @@
-Artículo 22.- El Registro Público de la Propiedad de Vehículos Motorizados llevará un índice por número de placas y otro por nombre de propietarios. Efectuada la cancelación del asiento de inscripción se eliminará de los índices activos la inscripción correspondiente; pero se mantendrá una referencia en un índice de inscripciones canceladas.

@@ -1,1 +1,0 @@
-Artículo 41.- Para los efectos de responsabilidad civil, todos los vehículos del Estado y de sus instituciones, de diplomáticos y de misiones internacionales, así como sus conductores, quedan sujetos a las disposiciones de esta ley, sin perjuicio de los convenios o acuerdos internacionales vigentes.
