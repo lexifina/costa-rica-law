@@ -1,0 +1,2 @@
+Artículo 14.—Será atribución de la Junta Administrativa preparar proyectos de cuerdo de Junta Directiva sobre aquellos asuntos que sometan sus miembros, para posterior conocimiento de los señores directores, dentro de un espíritu de agilizar el trámite de lo que deban ellos conocer.
+Se excluye de esta atribución lo tocante a la política institucional, que deberá ser examinada exhaustivamente solo por la Junta Directiva.

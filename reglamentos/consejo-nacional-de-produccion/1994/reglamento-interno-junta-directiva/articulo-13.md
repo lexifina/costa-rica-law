@@ -1,0 +1,6 @@
+CAPITULO IV
+(Adicionado en Sesión de Junta Directiva N° 1365. artículo 8, celebrada el 19 de julio de 1988, publicado en "La Gaceta" N° 175 del 14 de setiembre de 1988)
+De la junta administrativa
+Artículo 13.-Habrá una Junta Administrativa, que tendrá el carácter de misión permanente de la Junta Directiva y que estará integrada por el Presidente Ejecutivo, el Gerente General, el Subgerente General, un Asesor de la Presidencia Ejecutiva, el Asesor-Coordinador del Programa de Mercadeo Agropecuario y los directores de las Divisiones de Finanzas. Fomento de Producción, Administrativa, Estabilización de Precios y de las Direcciones de Planificación y Recursos Humanos, lo mismo que por el Administrador General de la Fabrica Nacional de Licores, quienes asistirán a las sesiones con voz y voto.
+Asistirán a las sesiones de Junta Administrativa, con carácter fiscalizador y asesor, respectivamente, el Auditor General y el titular de la Dirección de Asuntos Jurídicos e igualmente lo harán por invitación aquellos otros funcionarios, cuya presencia se requiera por el tema o temas a ser discutidos, todos ellos con voz pero sin voto.
+(Modificado en Sesión Extraordinaria de Junta Directiva N° 1510. celebrada el 19 de febrero de 1991. publicado en "La Gaceta" N° 155 del 19 de agosto de 1991)

@@ -1,0 +1,1 @@
+Artículo 26.—Lo dicho en el artículo anterior es aplicable también en lo que compete a los recursos ordinarios y extraordinarios que quepan contra los acuerdos de la Junta Directiva. No obstante, en todos los casos, esta resolverá primero sobre la admisibilidad formal de la impugnación, para entonces, en caso de estimarse procedente, entrar a conocer sobre su fondo.

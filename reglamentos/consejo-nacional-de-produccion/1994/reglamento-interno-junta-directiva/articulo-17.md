@@ -1,0 +1,1 @@
+Artículo 17.—En la agenda de la Junta Directiva habrá un capítulo permanente para conocimiento y resolución de los proyectos que somete la Junta Administrativa, la presentación de los cuales será hecha por el Presidente Ejecutivo.

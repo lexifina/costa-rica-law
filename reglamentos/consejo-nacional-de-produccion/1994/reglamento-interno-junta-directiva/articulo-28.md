@@ -1,0 +1,1 @@
+Artículo 28.—Rige, una vez aprobado por la Contraloría General de la República, a partir de su publicación en el Diario Oficial, y deroga a toda otra disposición de rango igual o menor que se le oponga.
