@@ -1,1 +1,1 @@
-Artículo 43.- Los Bancos comerciales estatales deberán suscribir acuerdos, con el Banco a fin de prestarle a éste los servicios administrativos que fueren necesarios. El Banco Central fijará el costo de dichos servicios.
+Artículo 43.- Las cuentas de ahorro serán inembargables excepto por pensiones alimenticias.

@@ -1,2 +1,14 @@
-Artículo 34.- La Junta Directiva Regional designará, con los votos, por lo menos, de cuatro de sus miembros, un Gerente Regional que durará cuatro años en el ejercicio de sus funciones y podrá ser reelecto.
-El Gerente desempeñará las funciones administrativas de la oficina Regional y las que le asignen la presente ley, su Reglamento y los Reglamentos del Banco. Podrá ser removido de su cargo, con el acuerdo, por lo menos, de cuatro miembros de la Junta Directiva.
+CAPITULO IV
+De las operaciones
+Artículo 34.- Los recursos del Banco serán empleados en la concesión de préstamos a los trabajadores, artesanos, pequeños productores, asociaciones de desarrollo comunal, municipalidades, cooperativas y organizaciones sindicales. Asimismo se podrán financiar proyectos específicos de desarrollo comunal o regional realizados por medio de instituciones públicas o privadas.
+Los préstamos que otorgue el Banco se destinarán a:
+a) Liberar y prevenir de la usura a los trabadores;
+b) Adquirir herramientas, equipo de trabajo y suministrar capital de trabajo;
+c) Comprar, construir, repara, ampliar y liberar de gravámenes viviendas
+populares;
+d) Financiar gastos de educación;
+e) Financiar aportes a cooperativas de trabajadores y pequeños productores;
+f) Solucionar emergencias de carácter social;
+g) Adquirir bienes de consumo calificado;
+h) Financiar proyectos de Desarrollo Comunal y municipal;
+i) Financiar proyectos de organizaciones sindicales y cooperativas para realizar obras de bienestar colectivo.

@@ -1,1 +1,0 @@
-Transitorio VIII.- Hasta tanto el Banco no dicte el reglamento especial para su sección de pignoración, se aplicarán las normas sobre administración, custodia, liberación y remate que el Monte Nacional de Piedad tenga vigentes, al momento de promulgarse la presente ley.

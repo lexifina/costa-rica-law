@@ -1,1 +1,2 @@
-Artículo 21.- Para sustituir a los miembros de las Juntas Directivas durante sus ausencias temporales, se podrán hacer nombramientos interinos. Estos serán hechos por los organismos o grupos que representa el director a quien haya que sustituir de acuerdo con lo establecido en el artículo 15 de esta ley.
+Artículo 21.- Para sustituir a los miembros de la Junta Directiva durante sus ausencias temporales o definitivas, en la oportunidad en que se elijan los directores propietarios se nombrarán además suplentes para cada uno de los directores a que se refiere este artículo.
+El procedimiento para hacer estas designaciones lo fijará el Reglamento de la presente ley.
