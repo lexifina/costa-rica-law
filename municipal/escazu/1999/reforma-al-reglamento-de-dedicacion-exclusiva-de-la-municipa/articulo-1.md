@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE ESCAZÚ
+El Concejo Municipal del cantón de Escazú, en su sesión ordinaria No 46 celebrada el jueves catorce de enero de mil novecientos noventa y nueve, y ratificado en sesión ordinaria No 49, del martes dos de febrero de mil novecientos noventa y nueve, acordó: "Aprobar las modificaciones de los artículos 3, inciso b) y 17 del Reglamento del Régimen de Dedicación Exclusiva de la Municipalidad de Escazú, y se lea de la siguiente manera:
+b) Estar desempeñando o propuesto para desempeñar cualquier cargo dentro de la institución y que ostente como mínimo el grado académico que se indica en el inciso anterior, siempre que el funcionario demuestre que cuenta con dicho requisito.
+Artículo 17. El Alcalde y Vice-Alcaldes Municipales devengarán por concepto de dedicación exclusiva, calculado de acuerdo con su salario base, un treinta y cinco (35%) cuando sean bachilleres universitarios y un cincuenta y cinco por ciento (55%) cuando sean licenciadas o posean cualquier grado académico superior al señalado". Aprobado.
+Escazú, 10 de febrero de 1999.
