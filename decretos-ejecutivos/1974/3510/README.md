@@ -14,3 +14,4 @@ Reglamento a la Ley de Juegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-01-31 | la propia norma |
+| 2 | 1974-01-31 | SINALEVI (sin norma nombrada) |
