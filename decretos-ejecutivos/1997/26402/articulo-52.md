@@ -1,0 +1,1 @@
+Artículo 52.—Para cada uno de los programas o proyectos incluidos en la Ley de Presupuesto Nacional, el centro gestor con el apoyo de la Dirección General de Presupuesto Nacional, establecerá un conjunto de indicadores de actividades y gestión que serán incorporados al proceso presupuestario.

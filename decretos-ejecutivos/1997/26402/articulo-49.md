@@ -1,0 +1,1 @@
+Artículo 49.—Para el ejercicio del control contable del presupuesto se dispondrá de un sistema informático administrado por la Contabilidad Nacional en coordinación con Dirección General de Presupuesto Nacional, que será utilizado por todas las dependencias para efectos de registro contable del presupuesto.

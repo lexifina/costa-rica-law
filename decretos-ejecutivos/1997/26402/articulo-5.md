@@ -1,0 +1,1 @@
+Artículo 5°—El funcionario designado como Oficial Presupuestal dependerá técnicamente de la Dirección General de Presupuesto Nacional. Para ese efecto, ésta tendrá autoridad para impartirle instrucciones técnicas, de conformidad con el artículo 63 de la Ley de Administración Financiera de la República No 1279 de 2 de mayo de 1951.

@@ -1,0 +1,1 @@
+Artículo 50.—Como parte del control contable del presupuesto el sistema mencionado en el artículo anterior facilitará el seguimiento de las cuotas periódicas de gasto de los diferentes programas presupuestarios.

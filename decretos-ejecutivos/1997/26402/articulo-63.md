@@ -1,0 +1,1 @@
+Artículo 63.—La Dirección General de Presupuesto Nacional revisará los informes de autoevaluación y solicitará las aclaraciones correspondientes a los centros gestores en caso de identificar desviaciones en la programación.

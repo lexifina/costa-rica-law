@@ -1,0 +1,1 @@
+Artículo 45.—El control jurídico se ejercerá en primera instancia por medio de los Oficiales Presupuéstales de cada dependencia, atendiendo las disposiciones legales y reglamentarias; así como aquellas que por vía de resolución establezca la Dirección General de Presupuesto Nacional.

@@ -1,0 +1,1 @@
+Artículo 55.—Será obligación de las instituciones de la Administración Central informar sobre los resultados de su gestión, brindando información sobre el cumplimiento de los objetivos y metas previstas en el presupuesto y del comportamiento de los indicadores de eficiencia.

@@ -1,0 +1,1 @@
+Artículo 9°—Los presupuestos se elaborarán según la Técnica de Presupuesto por Programas. Para la definición de la estructura programática de cada dependencia se atenderán los lineamientos que al efecto establecerá la Dirección General de Presupuesto Nacional.

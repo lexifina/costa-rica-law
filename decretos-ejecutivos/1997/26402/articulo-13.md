@@ -1,0 +1,1 @@
+Artículo 13.—A partir de los objetivos institucionales, cada dependencia definirá sus objetivos específicos para cada ejercicio, así como los productos y metas que pretende alcanzar en su gestión y los indicadores con que medirá su desempeño.

@@ -1,0 +1,2 @@
+Artículo 56.—Para cumplir con la elaboración y presentación de los informes de evaluación presupuestaria, cada una de las instituciones que conforman la Administración Central deben definir la unidad o unidades internas que asumirán esta responsabilidad.
+Los responsables del control y evaluación deberán informar a los superiores jerárquicos los resultados de su trabajo y sugerir las acciones correctivas.

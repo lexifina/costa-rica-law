@@ -1,0 +1,1 @@
+Artículo 68.—Derógase los Decretos Ejecutivos No 22 "Reglamento General de la Preparación, Ejecución y Liquidación del Presupuesto" de 3 de mayo de 1952 y No 1607-H "Control Administrativo Previo" de 31 de marzo de 1971.

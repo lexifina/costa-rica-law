@@ -1,0 +1,1 @@
+Artículo 32.—La Contabilidad Nacional en coordinación con la Dirección General de Presupuesto Nacional liquidará el presupuesto a más tardar el 15 de febrero siguiente, cerrando definitivamente las cuentas del mismo.

@@ -1,0 +1,1 @@
+Artículo 47.—La Dirección General de Presupuesto Nacional brindará una adecuada capacitación a los Oficiales Presupuéstales, para lo cual propiciará la realización de reuniones periódicas y otro tipo de actividades a efectos de actualizar conocimientos y aclarar aspectos que resulten de interés para el cumplimiento de las funciones de éstos.

@@ -1,0 +1,1 @@
+Artículo 31.—Los créditos de presupuesto son abiertos únicamente para un ejercicio económico, terminado el cual no se podrán contraer compromisos con aplicación a ellos; pero sí podrán ser reconocidos y pagados los compromisos que hayan sido adquiridos de conformidad con el artículo 19 de este decreto.

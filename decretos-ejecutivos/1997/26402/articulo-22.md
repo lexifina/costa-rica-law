@@ -1,0 +1,1 @@
+Artículo 22.—En caso de que se celebren contratos que comprometan al Estado a efectuar pagos más allá del ejercicio económico, el presupuesto del ejercicio vigente solo se afectará con la cuota o cuotas que venzan dentro del mismo.

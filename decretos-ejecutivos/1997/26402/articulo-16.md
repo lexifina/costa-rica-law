@@ -1,0 +1,1 @@
+Artículo 16.—La programación y la presupuestación estarán a cargo de cada programa, atendiendo los lineamientos procedentes del Ministerio de Hacienda, Ministerio de Planificación Nacional y Política Económica, del nivel superior de la institución o de otras instancias ligadas al proceso.

@@ -1,0 +1,1 @@
+Artículo 29.—Para lograr la oportuna y correcta ejecución del presupuesto todas las dependencias involucradas en la ejecución presupuestaria establecerán la coordinación interna y externa necesaria para todo lo relacionado con el trámite de solicitudes, informes y demás documentos específicos de ejecución presupuestaria.

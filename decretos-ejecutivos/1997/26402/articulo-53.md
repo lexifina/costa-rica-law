@@ -1,0 +1,1 @@
+Artículo 53.—Los indicadores y metas de gestión serán considerados como un componente de la información presupuestaria que deben aportar los centros gestores. En ese sentido, deben considerarse como parte integrante del presupuesto e información oficial del gobierno.

@@ -1,0 +1,1 @@
+Artículo 59.—Las dependencias que conforman la Administración Central deberán presentar a la Dirección General de Presupuesto Nacional tres informes trimestrales de avance físico-financiero, en la forma solicitada por esa Dirección y dentro de los quince primeros días del mes siguiente al término del respectivo trimestre y el ejercicio económico sujeto de evaluación.

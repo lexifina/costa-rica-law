@@ -1,0 +1,2 @@
+Informe final de evaluación presupuestaria de la gestión
+Artículo 61.—Una vez concluido el ejercicio económico, cada dependencia elaborará un informe de autoevaluación presupuestaria, indicando los resultados alcanzados en el cumplimiento de las metas y el análisis de la evolución de los indicadores de actividades y gestión definidos para los programas o proyectos. Además de identificar las desviaciones con relación a las previsiones iniciales, se deben explicitar las justificaciones correspondientes.

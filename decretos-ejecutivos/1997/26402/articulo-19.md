@@ -1,0 +1,3 @@
+CAPITULO III
+DE LA EJECUCIÓN DEL PRESUPUESTO
+Artículo 19.—La vigencia de la ley de Presupuesto Nacional es por el término de un año, que comprende del 1° de enero al 31 de diciembre, periodo que comprende el ejercicio económico. Por su parte los compromisos presupuestarios legalmente constituidos al 31 de diciembre podrán reconocerse o liquidarse durante los seis meses posteriores a dicha fecha. Para estos efectos se consideran compromisos las órdenes de compra emitidas por la Proveeduría Nacional o las reservas de crédito especial, debidamente aprobadas por la Dirección General de Presupuesto Nacional y la Contraloría General de la República.

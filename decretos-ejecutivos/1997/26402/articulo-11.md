@@ -1,0 +1,2 @@
+Artículo 11.—El presupuesto extraordinario contendrá los ingresos extraordinarios que se presuman durante el ejercicio económico a que se aplique éste, sean provenientes de empréstitos, excedentes de ingresos de ejercicios anteriores o de cualquier otra fuente considerada como extraordinaria. Contendrá además, los egresos que deberán financiarse durante el ejercicio con dichos ingresos.
+Sólo por conducto del Ministerio de Hacienda podrá el Poder Ejecutivo presentar al Poder Legislativo proyectos de ley relativos al Presupuesto.

@@ -1,0 +1,1 @@
+Artículo 54.—La evaluación presupuestaria de la gestión estará a cargo de los propios centros gestores. Para ello cada dependencia de la Administración Central elaborará normas específicas de conformidad con las normas técnicas de carácter general que establezca la Dirección General de Presupuesto Nacional.

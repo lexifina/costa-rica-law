@@ -1,0 +1,2 @@
+Reservas de Crédito y Solicitudes de Mercancías o Servicios
+Artículo 36.—El jefe de un programa presupuestario o su delegado deberá autorizar las reservas de crédito especial y las solicitudes de mercancías o servicios, sin perjuicio de las disposiciones internas que establezca el superior jerárquico de la dependencia. Dicha autorización es requisito básico para su tramitación. Igualmente deberán ser aprobados por el Oficial Presupuestal (o quien ejerza dicha función) de cada dependencia.

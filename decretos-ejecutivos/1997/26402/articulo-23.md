@@ -1,0 +1,2 @@
+Programación Financiera de la Ejecución del Presupuesto
+Artículo 23.—Con el fin de mantener la relación de equilibrio entre los ingresos efectivos y los gastos autorizados a realizar en el presupuesto, la Dirección General de Presupuesto Nacional en coordinación con la Tesorería Nacional elaborarán la programación de la ejecución presupuestaria. Asimismo, los directores de dichas unidades darán el seguimiento a la misma e informarán al Ministro de Hacienda en caso de que presuman que puede producirse un desequilibrio y propondrán las medidas correctivas posibles.

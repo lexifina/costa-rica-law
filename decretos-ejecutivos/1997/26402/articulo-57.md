@@ -1,0 +1,3 @@
+Informes de ejecución físico-financiera
+Artículo 57.—Como principal instrumento para la evaluación presupuestaria de la gestión, el informe de ejecución físico-financiera debe contener un análisis de las realizaciones o metas alcanzadas en la ejecución de cada programa y proyecto y de la correspondiente utilización de los recursos asociados a esos propósitos.
+En el caso de programas que se ejecutan con base en financiamiento externo, se deberá enviar a la Dirección General de Presupuesto Nacional, copia de los informes de ejecución que se realicen en cumplimiento de cláusulas contenidas en los respectivos contratos.

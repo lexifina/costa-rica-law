@@ -1,0 +1,1 @@
+Artículo 66.—La Dirección General de Presupuesto Nacional, no tramitará ninguna modificación al presupuesto vigente de las dependencias que no cumplan con lo estipulado en el artículo 59 del presente Reglamento.

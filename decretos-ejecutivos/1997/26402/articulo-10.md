@@ -1,0 +1,1 @@
+Artículo 10.—El presupuesto ordinario contendrá las estimaciones de los ingresos ordinarios cuya percepción se considere probable durante el ejercicio económico de que se trate y los egresos ordinarios que durante ese mismo año se presuma requerirá la Administración Central.

@@ -1,0 +1,1 @@
+Artículo 21.—Para incurrir en un compromiso presupuestario se requerirá que el Oficial Presupuestal de cada dependencia constate, con la debida formalidad y de conformidad con los procedimientos que al efecto establezca la Dirección General de Presupuesto Nacional, la existencia de crédito suficiente para respaldar el gasto correspondiente.

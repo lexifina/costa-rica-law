@@ -1,0 +1,1 @@
+Artículo 46.—La Dirección General de Presupuesto Nacional supervisará el desempeño de los Oficiales Presupuéstales controlando y evaluando periódicamente las funciones encomendadas, sin perjuicio de las funciones que como órgano superior de fiscalización le corresponden a la Contraloría General de la República.

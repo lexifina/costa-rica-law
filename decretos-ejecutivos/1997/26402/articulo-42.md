@@ -1,0 +1,2 @@
+Catálogo de mercancías y servicios
+Artículo 42.—A efecto de facilitar el proceso de adquisición de bienes y servicios, así como uniformar la denominación de los mismos, se establecerá un catálogo de bienes y servicios que deberá ser utilizado por todos los órganos y entes de la Administración Central en sus procesos de adquisición. La Proveeduría Nacional será la responsable primaria de la administración y actualización de dicho catálogo, para lo cual coordinará con las demás dependencias involucradas en el proceso presupuestario de la Administración Central.

@@ -1,0 +1,1 @@
+Artículo 60.—La Dirección General de Presupuesto Nacional informará al Ministro de Hacienda las deficiencias identificadas en el uso de los recursos públicos y éste comunicará los resultados al jerarca correspondiente con la finalidad de que se adopten las medidas que sean necesarias.

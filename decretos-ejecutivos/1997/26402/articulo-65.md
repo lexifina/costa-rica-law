@@ -1,0 +1,1 @@
+Artículo 65.—A más tardar el primero de marzo de cada año el Ministro de Hacienda remitirá al Presidente de la República con copia a la Contraloría General de la República, el informe final de resultados de la gestión institucional de la Administración Central.

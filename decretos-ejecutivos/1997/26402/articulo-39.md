@@ -1,0 +1,3 @@
+Planillas de Gastos Fijos y Variables
+Artículo 39.—Las planillas de gastos fijos y variables serán procesadas por el Departamento de Recursos Humanos o el Departamento Financiero de cada ministerio, según corresponda. Con excepción de las planillas para cubrir servicios personales, las restantes serán aprobadas por el respectivo Oficial Presupuestal.
+La planilla mensual para la emisión de giros u órdenes de pago de Aportes y Subvenciones a las Comunidades aprobadas por la Asamblea Legislativa serán confeccionadas por la Dirección de Presupuesto Nacional, de conformidad con el Decreto Ejecutivo No 25617-H de 22 de noviembre de 1996.

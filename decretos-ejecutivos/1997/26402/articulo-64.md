@@ -1,0 +1,1 @@
+Artículo 64.—Con base en los informes de autoevaluación, la Dirección General de Presupuesto Nacional elaborará un informe consolidado del desempeño institucional de la Administración Central. Dicho informe será sometido a conocimiento del Ministro de Hacienda.

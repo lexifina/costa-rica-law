@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—En caso de que las dependencias no tengan acceso directo a los sistemas informáticos de la Administración Financiera, el registro de la información en dichos sistemas será realizada por la Dirección General de Presupuesto Nacional, sin demérito de la responsabilidad primaria de los oficiales presupuéstales respectivos y únicamente durante el tiempo que dure la Dependencia en lograr el acceso a los mismos.
