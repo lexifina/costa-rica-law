@@ -1,3 +1,0 @@
-Facultad de abstención
-Artículo 227.- No están obligados a testificar en contra del imputado, su cónyuge, ascendiente, descendiente o hermano.
-(La Sala Constitucional mediante resoluciones N° 264 del 06 de febrero de 1991, 1151y 1154 del 01 de marzo de 1994, declaró que el presente artículo no es inconstitucional y sus alcances son los mismos del artículo 36 constitucional…” y que “…la garantía de abstenerse de declarar en contra del "cónyuge" acá contenida, se debe entender que cobija a la compañera o compañero en unión de hecho y que, contraviene lo dispuesto en el artículo 36 de la Constitución Política, la diligencia realizada con la participación de un pariente en el grado establecido en esa norma, sin advertirle sobre su derecho de abstención”.)

@@ -1,3 +1,0 @@
-Sanciones
-Artículo 168.- Los oficiales y auxiliares de la policía judicial que violen disposiciones legales o reglamentarias, que omitan o retarden la ejecución de un acto propio de sus funciones o lo cumplan negligentemente, serán corregidos disciplinariamente, de oficio o a pedido del Ministerio Público y previo informe del interesado, sin perjuicio de la destitución que pueda acordar la Corte Suprema de Justicia, todo de conformidad con lo establecido en el estatuto de servicio judicial y de la responsabilidad penal que corresponda.
-El Poder Ejecutivo podrá imponer a los oficiales y agentes de la policía administrativa las sanciones pertinentes.

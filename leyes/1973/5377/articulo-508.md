@@ -1,2 +1,0 @@
-Inhabilitación absoluta
-Artículo 508.- El Juez transcribirá la parte resolutiva de la sentencia que condene a inhabilitación absoluta al Director del Registro Civil para los efectos consiguientes. Este funcionario acusará recibo inmediatamente. Si el Juez no recibiere el acuse de recibo dentro de los ocho días posteriores a la fecha de envío, remitirá otra comunicación, asegurándose de que sea recibida.

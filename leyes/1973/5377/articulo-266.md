@@ -1,3 +1,0 @@
-Medidas precautorias
-Artículo 266.- Cuando en el primer momento de la investigación de un hecho en que hubieran intervenido varias personas no fuere posible individualizar a los responsables y a los testigos, y no pueda dejarse de proceder sin peligro para la instrucción, el juez podrá disponer que los presentes no se alejen del lugar ni se comuniquen entre sí antes de prestar declaración, y aun ordenar el arresto, si fuere necesario.
-Ambas medidas no podrán prolongarse por más tiempo que el indispensable para recibir las declaraciones, a lo cual se procederá sin tardanza, y en ningún caso durarán más de 24 horas. Vencido este término podrá ordenarse, si fuere el caso, la detención del presunto culpable.

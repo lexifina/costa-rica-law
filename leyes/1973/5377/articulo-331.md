@@ -1,2 +1,0 @@
-Prueba y resolución
-Artículo 331.- Vencido el término dispuesto en el artículo anterior, el juez resolverá lo procedente; pero si las excepciones se basaren en hechos que deban ser probados, previamente ordenará la recepción de la prueba por un término que no podrá exceder de quince días y citará a las partes a una vista para que oral y brevemente hagan su defensa. El acta se levantará en forma sucinta.

@@ -1,3 +1,0 @@
-Forma
-Artículo 404.- Cuando corresponda citación directa, el Agente Fiscal practicará una información sumaria conforme a los artículos 169, 185 y 186, actuando por iniciativa propia, en virtud de denuncia o por comunicación de la policía, para reunir los elementos que servirán de base a su requerimiento; pero el de citación a juicio (412) podrá fundamentarse en el sumario de prevención, salvo lo dispuesto por el artículo 413.
-Los actos podrán cumplirse sin necesidad de observar las normas de la instrucción, excepto la declaración del imputado, las inspecciones, requisas personales y secuestros, y lo dispuesto por el artículo siguiente.

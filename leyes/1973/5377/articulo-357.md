@@ -1,2 +1,0 @@
-Sobreseimiento
-Artículo 357.- Si nuevas pruebas acreditaren que el acusado es inimputable, o se hubiere prescrito la acción penal, según la calificación legal del hecho admitido por el tribunal, o se produjere otra causa extintiva de dicha acción o el imputado quedare exento de pena, el tribunal dictará de oficio el sobreseimiento, siempre que, a su juicio, para comprobar esas causales no fuera necesario el debate.

@@ -1,3 +1,0 @@
-Modo de reconocer
-Artículo 257.- Después del interrogatorio se pondrá a la vista del que haya de verificar el reconocimiento, a la persona que deba ser reconocida, quien elegirá su colocación entre otras personas de condiciones exteriores semejantes. En presencia de ellas o desde un punto en que no pueda ser visto, según el juez lo estime oportuno, el deponente manifestará si allí se encuentra la persona a que haya hecho referencia, invitándosele a que en caso afirmativo la designe clara y precisamente.
-La diligencia se hará constar en acta, donde se consignarán todas las circunstancias útiles, incluso el nombre y de ser posible el domicilio de los que hubieren formado el grupo.

@@ -1,2 +1,0 @@
-Allanamiento de otros locales
-Artículo 211.- Las limitaciones establecidas en el artículo anterior no regirán para las oficinas administrativas, los establecimientos de reunión o de recreo, el local de las asociaciones o cualquier otro lugar cerrado que no esté destinado a habitación particular. En estos casos deberá darse aviso a las personas a cuyo cargo estuvieren los locales, salvo que ello fuere perjudicial a la investigación.

@@ -1,2 +1,0 @@
-Modo
-Artículo 263.- El careo podrá verificarse entre dos o más personas. Para efectuarlo se leerán, en lo pertinente, las declaraciones que se reputen contradictorias, y se llamará la atención a los careados sobre las discrepancias, a fin de que traten de ponerse de acuerdo. De la ratificación o rectificación que resulte se dejará constancia, así como de las reconvenciones que se hagan los careados y de cuanto en el acto ocurra; pero no se hará referencia a las impresiones del juez acerca de la actitud de los careados.
