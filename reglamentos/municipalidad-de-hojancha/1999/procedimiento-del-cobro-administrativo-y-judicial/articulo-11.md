@@ -1,1 +1,0 @@
-Artículo 11.—A fin de que haya mayor equidad posible, la oficina encargada de cobros hará la distribución de las cuentas que se asignan a cobro judicial, tomando en consideración el rol de los abogados y el monto a ejecutar judicialmente. No se tomarán en cuenta aquellos abogados que se encuentran suspendidos por incumplimiento de las disposiciones de este Reglamento.
