@@ -1,0 +1,1 @@
+11°.- Las Municipalidades en sus primeras sesiones nombrarán tantos Alcaldes de Quartel quantos sean los mismos Quarteles en que están divididas las poblaciones por virtud de lo prevenido en el artículo 3° de la misma Ley de 23 de Octubre Hecho el nombramiento que será

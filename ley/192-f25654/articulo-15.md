@@ -1,0 +1,1 @@
+15°.- El hueco de los Munícipes, Alcaldes Constitucionales, los de Quartel y Pedancos, será el de dos años, mas esto no impide la relección ya sea en sus propios destinos o removiéndolos de uno a otro dejando al arbitrio del relecto su admicion.

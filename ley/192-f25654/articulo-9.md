@@ -1,0 +1,1 @@
+9°.- Quando ocurriese enfermedad en alguno de los Alcaldes Constitucionales le sostituirá el Rejidor 1° en orden después del Presidente y se separará de la Municipalidad a exercer las funciones de tal.
