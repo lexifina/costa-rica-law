@@ -1,0 +1,1 @@
+Artículo 2°.- Resérvense las aguas territoriales del mar Caribe costarricense para la operación de embarcaciones pesqueras de bandera y registro nacional, cuya autonomía no sea superior a 12 millas náuticas.

@@ -1,0 +1,1 @@
+Artículo 3°.- El Ministerio de Agricultura y Ganadería otorgará permiso de pesca a las personas físicas que ejecuten la actividad directamente o a personas jurídicas, cuando se trate de asociaciones y cooperativas, siempre que sus asociados ejecuten directamente la actividad pesquera.

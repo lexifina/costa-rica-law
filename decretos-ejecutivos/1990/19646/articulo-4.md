@@ -1,0 +1,1 @@
+Artículo 4°.- Las personas físicas que gozando de un permiso de pesca de este tipo, sufran incapacidad temporal o permanente para ejecutar la actividad a la que están autorizadas, a criterio de la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros, se exceptúan de cumplir con la obligación de pescar directamente como lo establece el artículo 3°.
