@@ -16,3 +16,5 @@ Río San Juan. Según el tratado Cañas Jerez (1858) y el laudo Cleveland (1888)
 Río Colorado hasta su origen en el río San Juan, 40 klómetros.
 Río Tortuguero hasta el puerto del Aserradero, 8 kilómetros.
 Río Sixaola hasta el puente internacional ferroviario en Guabito, 17 kilómetros.
+Río San Carlos, en una longitud de cincuenta y cuatro kilómetros aguas arriba a partir de su desembocadura en el río San Juan.
+(Así adicionado el punto anterior por el artículo 6 del decreto ejecutivo N° 22 del 19 de setiembre de 1967)
