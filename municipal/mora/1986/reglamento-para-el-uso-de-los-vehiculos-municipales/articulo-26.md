@@ -1,0 +1,1 @@
+Artículo 26.—Los vehículos de la municipalidad no deberán ser estacionados frente a cantinas, tabernas o similares, ni frente a locales cuya fama riñese contra la moral y las buenas costumbres fuera del cantón.

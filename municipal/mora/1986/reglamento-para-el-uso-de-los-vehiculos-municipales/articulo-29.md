@@ -1,0 +1,1 @@
+Artículo 29.—Todo conductor al recibir su vehículo debe revisar el aceite, agua, líquido de frenos, líquido de baterías, etc. Si por negligencia en la no revisión cuidadosa se queda varado será acreedor a las sanciones correspondientes que van desde amonestación hasta despido, dependiendo de la reincidencia o gravedad de la falta.

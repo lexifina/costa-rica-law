@@ -1,0 +1,1 @@
+Articulo 25.—Los conductores que por imprudencia o negligencia, ocasionen accidentes y resulten culpables, además de sufrir las sanciones establecidas en el presente reglamento, deberán cubrir el 50% del valor de los deducibles fijados por el INS.

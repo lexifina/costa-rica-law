@@ -1,0 +1,1 @@
+Artículo 14.—El funcionario municipal que use los vehículos fuera de la jornada ordinaria sin previa autorización del Ejecutivo, queda sujeto a las disposiciones disciplinarias correspondientes, según el Código de Trabajo y el Reglamento Interno de Trabajo si lo hubiere.

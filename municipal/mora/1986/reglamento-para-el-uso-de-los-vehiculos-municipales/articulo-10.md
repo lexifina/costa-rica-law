@@ -1,0 +1,1 @@
+Artículo 10.—El Ejecutivo Municipal, procurará hasta donde sea posible suministrar los vehículos con su respectivo chófer, al que le está prohibido salvo en caso de emergencia, ceder la conducción a terceros.

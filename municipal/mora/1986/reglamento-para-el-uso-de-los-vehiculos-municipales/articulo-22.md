@@ -1,0 +1,1 @@
+Artículo 22.—Es responsabilidad de los chóferes asignados velar por el buen estado de limpieza, conservación y funcionamiento de los vehículos bajo su cuidado, e informar de los desperfectos que sufra el vehículo a superior jerárquico o al Ejecutivo

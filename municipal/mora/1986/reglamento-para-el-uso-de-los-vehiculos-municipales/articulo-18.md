@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier vecino podrá reportar al Concejo o al Ejecutivo toda irregularidad que observe en el uso de los vehículos municipales señalando hora, fecha y lugar del vehículo inculpado a fin de ordenar la investigación y sentar las responsabilidades del caso si es necesario y oportuno.

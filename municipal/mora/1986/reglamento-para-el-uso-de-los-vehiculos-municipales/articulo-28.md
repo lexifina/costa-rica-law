@@ -1,0 +1,1 @@
+Artículo 28.—Cualquier pérdida o sustracción de implementos de vehículos deberá comunicarse al Ejecutivo a las 24 horas de ocurrido. Al cabo de ese término el conductor responde automáticamente por los implementos extraviados.

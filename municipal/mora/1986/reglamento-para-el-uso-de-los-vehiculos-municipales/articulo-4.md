@@ -1,0 +1,1 @@
+Artículo 4°—Le corresponde al Ejecutivo Municipal el cumplimiento de las disposiciones contenidas en el presente reglamento y aplicar por recomendación del Concejo Municipal las sanciones correspondientes a los empleados que incumplan de acuerdo con el Código de Trabajo.
