@@ -20,3 +20,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 5 | 2002-01-14 | Reglamento 275 (2002-01-14) |
 | 6 | 2002-08-20 | Reglamento 320 (2002-08-20) |
 | 7 | 2002-12-10 | Reglamento 345 (2002-12-10) |
+| 8 | 2002-12-10 | Ley 8 |
