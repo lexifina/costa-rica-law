@@ -1,2 +1,0 @@
-Artículo 6.—Todo periódico, sin distinción de clase, excepto los oficiales, deberá tener un editor responsable. Sin tal requisito no será autorizada la fundación ó continuación de ninguna empresa periodística, y si, faltando el editor, se tratare de hacer circular el impreso, la edición será recogida y la infracción se castigará conforme á esta ley.
-El nombre y domicilio del editor deben indicarse siempre á la cabeza del impreso.

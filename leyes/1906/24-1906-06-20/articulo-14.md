@@ -1,2 +1,0 @@
-Artículo 14.—La pena indicada se impondrá en cada caso, y será aplicable conjuntamente, tanto á los que suscribieren la publicación en concepto de autores, como á los editores del periódico, folleto ó libro en que aparecieren.
-En caso de reincidencia se aumentará la pena en un grado, y si se tratare de un periódico, éste se suspenderá por un término que no bajará de tres meses, ni excederá de seis.
