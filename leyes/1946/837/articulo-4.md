@@ -7,5 +7,7 @@ c) Los Representantes Diplomáticos y Consulares de naciones extranjeras, respec
 d) Las rentas de bonos que gocen de esta exención, por disposición especial de la ley que autoriza su emisión;
 e) Las Cámaras de comercio, agricultura, industrias, cafetaleros y ganaderos y demás asociaciones de carácter gremial, así como los sindicatos legalmente registrados, siempre que unas y otros no realicen actividades de carácter lucrativo; y
 f) Los colegios y asociaciones de profesionales, así como las asociaciones organizadas o que se organicen con finalidades exclusivamente benéficas o culturales.
+g) Los aportes sociales, sean éstos en dinero o en especie.
+(Así adicionado el inciso anterior por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)
 (Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
 (Nota de Sinalevi: De conformidad con el numeral 6° de la ley N° 3020 del 16 de agosto de 1962, se establece que lo siguiente: “Esta ley rige desde su publicación y reforma en lo conducente el artículo 4º del Capítulo II de la ley Nº 837 de 20 de diciembre de 1946 y sus reformas, así como cualquier otra disposición que se oponga a lo aquí dispuesto.”)
