@@ -1,0 +1,2 @@
+Artículo 63.—Establécese como requisito previo, indispensable para operar en los servicios de cabotaje a los que este Reglamento se refiere, la formalización de un Contrato-Concesión en el que se incluirán las condiciones y requisitos del cartel y especificaciones y las demás que para el caso específico considere el Ministerio de su conveniencia.
+(Así ADICIONADO por el Decreto Ejecutivo No. 4361 de 06 de diciembre de 1974, publicado en La Gaceta No. 240 de 17 de diciembre de 1974.)
