@@ -13,3 +13,4 @@ Reglamento general de evaluación y normas de promoción de la educación genera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-04-04 | la propia norma |
+| 2 | 1978-09-20 | Decreto Ejecutivo 9162 (1978-09-20) |
