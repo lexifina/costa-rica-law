@@ -1,0 +1,7 @@
+Art. 3°-Lo dispuesto en el artículo 69 de aquella ley se varía así:
+1:-En caso de pérdida de un envío certificado, salvo fuerza mayor, tiene el remitente ó el destinatario derecho á una indemnización de diez pesos, aunque el envío valga menos que esa cantidad. La obligación de pagar esta indemnización corresponde á la oficina remisiva, á la cual se reserva su derecho para exigir el reintegro de la que resulte responsable.
+2°-Mientras no se justifique la entrega del certificado, la responsabilidad recae contra la oficina donde se certificó la pieza, si no se comprueba la trasmisión á la oficina siguiente.
+3°-La indemnización será pagada por partes iguales, entre todos los empleados de la oficina remisiva, á más tardar dentro de un mes contado desde el día en que se estableció la reclamación:
+4°-La Administración que resulte responsable queda obligada á reembolsar, inmediatamente á la oficina remisiva, de la cantidad pagada por ésta indebidamente.
+5°-El derecho de reclamar la indemnización prescribe en un mes, que se empezará á contar desde la fecha en que se depositó el certificado. Todo reclamo posterior del remitente es ineficaz.
+6°-Si la pérdida del envío tuviera lugar en alguna de las oficinas intermedias entre la hizo la que remisión y la destinataria, sin que fuere posible averiguar en cuál de aquéllas se extravió ó perdió el certificado, pagarán por mitades la indemnización la oficina que remite y la del lugar de la destinación.
