@@ -1,6 +1,8 @@
+(Derogado)
 N° 21197
 MIRENEM
 EL PRESIDENTE DE LA REPUBLICA Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS
+DEROGADO TOTAL Y EXPRESAMENTE por el artículo 3 del Decreto Ejecutivo No. 21703 de 06 de octubre de 1992, publicado en La Gaceta No. 233 de 03 de diciembre de 1992.
 En el ejercicio de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y de conformidad con lo dispuesto en los artículos 35, 36 de la Ley Forestal N° 7174 y 13 de la Ley N° 6084, y
 Considerando:
 1°-Que la función primordial de las áreas silvestres es garantizar a generaciones futuras, la conservación de la biodiversidad del país y de los recursos culturales y paisajísticos sobresalientes.

@@ -14,3 +14,4 @@ Amplía Área Parque Nacional Volcán Arenal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-04-23 | la propia norma |
+| 2 | 1992-10-06 | Decreto Ejecutivo 21703 (1992-10-06) |
