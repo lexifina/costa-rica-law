@@ -14,3 +14,4 @@ Reglamento para el Uso de Vehículos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-06-24 | la propia norma |
+| 2 | 1995-06-12 | Reglamento 3255 (1995-06-12) |
