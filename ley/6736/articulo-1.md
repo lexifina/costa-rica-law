@@ -11,8 +11,8 @@ b) Un miembro de la Asamblea Legislativa, designado por la Presidencia
 de la misma.
 c) Un miembro del Instituto de Fomento y Asesoría Municipal, designado
 por la Junta Directiva.
-ch) Un miembro de la Unión Nacional de Gobiernos Locales, designado por
-su Consejo Directivo.
+ch) Un miembro de la Unión Nacional de Gobiernos Locales, designado por su
+Consejo Directivo.
 d) Un miembro especializado en materia municipal, designado por los
 cuatro miembro anteriores, una vez electos. Esta elección deberá hacerse
 en la primera sesión de trabajo de la Comisión.
