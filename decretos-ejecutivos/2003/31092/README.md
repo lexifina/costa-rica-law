@@ -61,3 +61,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 46 | 2005-02-25 | Decreto Ejecutivo 32277 (2005-02-25) |
 | 47 | 2005-02-25 | Decreto Ejecutivo 32286 (2005-02-25) |
 | 48 | 2005-03-08 | Decreto Ejecutivo 32283 (2005-03-08) |
+| 49 | 2005-03-10 | Decreto Ejecutivo 32302 (2005-03-10) |
