@@ -1,0 +1,1 @@
+Artículo 31.—Revaloraciones Generales. Los servidores del Fondo disfrutarán en los mismos términos y condiciones de las revaloraciones salariales generales, y de las otras ventajas de carácter económico que se acuerden para los servidores del Poder Ejecutivo.

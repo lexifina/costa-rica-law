@@ -1,0 +1,6 @@
+Artículo 6°—Expediente Personal y Acciones de Personal. La Oficina formará un expediente personal a cada funcionario del Fondo.
+Se entiende por "expediente personal" la documentación foliada y sellada que contiene todo el historial del servidor en su relación de servicio.
+De cualquier acto o decisión que beneficie, perjudique o en cualquier forma se relacione con el servidor en su relación de servicio se deberá dejar constancia en el expediente, el cual deberá ser custodiado por la Oficina de Personal bajo su entera y absoluta responsabilidad.
+Todo acto de administración de personal deberá hacerse constar en una "Acción de Personal", la que deberá ser comunicada al interesado.
+Cuando el acto deba ser motivado, se hará una resolución que se notificará con la "Acción de Personal" respectiva.
+La "Acción de Personal" deberá llevar numeración corrida, y de esta numeración se llevará un libro de control.

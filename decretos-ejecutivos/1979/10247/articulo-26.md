@@ -1,0 +1,1 @@
+Artículo 26.—Incompensabilidad de Vacaciones. En ningún caso se admitirá la renuncia de las vacaciones a cambio de la remuneración correspondiente. Cuando por cualquier causa el funcionario termine su relación de servicio con la Oficina sin haber disfrutado total o parcialmente de sus vacaciones anuales, tendrá derecho al pago correspondiente.

@@ -1,0 +1,1 @@
+Artículo 14.—Incompatibilidad con Plazas del Presupuesto Nacional. Quienes ocupen plazas de la Oficina con cargo a la Ley del Presupuesto de la República y fueren nombrados en plazas del Fondo, sólo podrán adquirir la propiedad en éstas, al concluir el período de prueba, si presentan renuncia del puesto anteriormente ocupado.

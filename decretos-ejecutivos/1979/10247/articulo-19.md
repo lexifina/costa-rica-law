@@ -1,0 +1,2 @@
+Artículo 19.—Anulación de Despido. Salarios Caídos y Reinstalación. En caso de anulación de un despido, se indemnizarán al servidor sus salarios caídos, los cuales no podrán exceder de seis meses.
+Dentro del término de los siguientes quince días hábiles a la firmeza de la sentencia respectiva, el servidor optará por el pago del preaviso y del auxilio de cesantía, o bien por la reinstalación. En caso de silencio se entenderá que opta por la primera solución.

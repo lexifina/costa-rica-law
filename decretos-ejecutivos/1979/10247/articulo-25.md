@@ -1,0 +1,1 @@
+Artículo 25.—Adelanto, Acumulación y Fraccionamiento de Vacaciones. El adelanto de vacaciones podrá otorgarse sólo en la medida en que proporcionalmente se haya adquirido el derecho. El período de vacaciones sólo podrá ser acumulado por una vez y fraccionado hasta por tres veces.

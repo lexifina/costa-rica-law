@@ -1,0 +1,2 @@
+Artículo 7°—Sobresueldos a Servidores en Préstamo. El otorgamiento de un sobresueldo, con cargo al Fondo, a los funcionarios que laboren para la Oficina conforme al artículo 8° de la Ley de Planificación Nacional o en préstamo de otras instituciones públicas, no constituirá ninguna relación de servicio, sin perjuicio de que deba sin embargo cubrirse la parte proporcional del decimotercer mes correspondiente.
+Dichos sobresueldos podrán otorgarse sólo con autorización de la Contraloría General de la República.
