@@ -1,0 +1,5 @@
+Artículo 3º—Estudio de la solicitud y plazo para resolverla. Una vez que se han cumplido los requisitos indicados en el artículo anterior, el Grupo ICE contará con un plazo máximo de 30 días naturales, para analizar y resolver los siguientes aspectos:
+a. La capacidad del poste, atendiendo a la prioridad que tiene la red de distribución eléctrica y de telecomunicaciones.
+b. La verificación de otras instalaciones de redes de cable de televisión que se hubieren instalado en la zona geográfica utilizando los mismos postes, ya que únicamente se permitirá la instalación de un máximo de dos fijaciones de línea en un mismo poste.
+f. La Empresa deberá instalar sus propios sistemas de puesta a tierra, independientes y aislados de los sistemas de puesta a tierra del Grupo ICE.
+g. Los cables a instalar por La Empresa deben estar claramente identificados mediante calcomanías o placas fosforescentes del color a indicar en el contrato respectivo (Grupo ICE–La Empresa) que indique la razón social de La Empresa y el tipo de cable (coaxial o fibra óptica).

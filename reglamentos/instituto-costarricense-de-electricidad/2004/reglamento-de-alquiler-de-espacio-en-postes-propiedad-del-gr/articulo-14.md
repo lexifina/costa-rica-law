@@ -1,0 +1,1 @@
+Artículo 14.—Operación e integridad de las instalaciones electricas y telefónicas. La Empresa debe garantizar que sus redes de cable no afecten la operación continua e integridad de las instalaciones eléctricas, telefónicas o de otra índole, tanto al realizar los trabajos constructivos, como durante la operación y mantenimiento de las mismas.

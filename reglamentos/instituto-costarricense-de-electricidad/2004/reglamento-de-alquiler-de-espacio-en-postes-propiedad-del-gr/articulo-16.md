@@ -1,0 +1,1 @@
+Artículo 16.—Propiedad de la red de cable. La red de cable y los aditamentos que se instalen serán en su totalidad propiedad de La Empresa, en consecuencia, será su responsabilidad el mantenimiento de la misma.

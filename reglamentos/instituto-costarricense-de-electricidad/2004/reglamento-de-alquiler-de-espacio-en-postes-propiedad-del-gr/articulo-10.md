@@ -1,0 +1,1 @@
+Artículo 10.—Obligaciones y responsabilidades de las partes. En los contratos que se suscriban para el alquiler de uso de espacio en postes propiedad de la empresa del Grupo ICE de que se trate, se deberá indicar las obligaciones y responsabilidades de las partes.

@@ -1,0 +1,2 @@
+Artículo 22.—Derecho de uso provisional. El derecho de uso concedido en los contratos de alquiler de uso de espacio en postería no podrá ser interpretado como una concesión o autorización, a favor de los contratantes para explotar servicios de telecomunicaciones, ni como un derecho de uso de espacio exclusivo y permanente de los postes propiedad la empresa del Grupo ICE.
+La empresa del Grupo ICE podrá alquilar el uso de espacio disponible en sus postes, que de acuerdo a un estudio técnico puedan soportar.

@@ -1,0 +1,1 @@
+Artículo 11.—Solicitud de ampliacion de la red de cable a solicitud de La Empresa. Las solicitudes de ampliaciones de redes de cable que requieran utilizar más postes de los contratados, deberán cumplir con lo dispuesto en el Artículo 2 del presente reglamento. En el estudio de estas solicitudes, se observará el trámite establecido en el Artículo 3 de este reglamento.

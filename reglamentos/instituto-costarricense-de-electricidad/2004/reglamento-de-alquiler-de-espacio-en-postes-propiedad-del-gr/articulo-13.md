@@ -1,0 +1,1 @@
+Artículo 13.—Utilización de fuentes de poder. La Empresa deberá solicitar al Grupo ICE la autorización para colocar fuentes de poder y el suministro del servicio eléctrico y deberá esperar respuesta afirmativa antes de proceder a su instalación. Para este caso se instalará un medidor con tarifa comercial.

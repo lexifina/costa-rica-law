@@ -1,0 +1,2 @@
+Artículo 6º—Plazo para instalación de la red. Una vez suscrito el contrato, La Empresa contará con un plazo no mayor a dos meses, para instalar el cable, el cuál deberá estar claramente identificado, rotulado o marcado.
+Si transcurrido el plazo de dos meses La Empresa no ha procedido a la instalación del cable, se tendrá por finalizado el contrato por incumplimiento de La Empresa, sin derecho a devolución del precio pagado. El Grupo ICE queda en total libertad de alquilar dicho espacio a cualquier otra empresa.
