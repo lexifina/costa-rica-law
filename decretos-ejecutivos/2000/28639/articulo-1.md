@@ -115,3 +115,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29002 de 21 de setiembre del 2000)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29092 de 25 de octubre del 2000, para el Consejo Naional
 para Investigaciones Científicas y Tecnológicas)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29089 de 30 de octubre del 2000, para la Junta
+de Protección Social de San José)
