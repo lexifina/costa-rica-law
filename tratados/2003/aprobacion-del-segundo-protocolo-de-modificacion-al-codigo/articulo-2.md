@@ -1,0 +1,1 @@
+Artículo 2º—Las reservas hechas por Costa Rica al artículo 4º, en relación con el concepto de depósito temporal; al artículo 16, en relación con el segundo párrafo, referente a las personas jurídicas como agentes aduaneros, y al artículo 48 en su totalidad, consisten en la no aplicación de dichas disposiciones en el territorio costarricense.
