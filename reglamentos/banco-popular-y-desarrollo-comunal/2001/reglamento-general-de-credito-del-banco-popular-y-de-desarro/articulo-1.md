@@ -31,6 +31,13 @@ Descuento: Operación en la cual el cliente transfiere al Banco un crédito de v
 Factoraje: Operación en la cual el Banco adquiere, a título ^ oneroso, la totalidad o parte de sus créditos no vencidos, prestando - en algunos casos - servicios adicionales vinculados con la administración de tales créditos, todo ello, a cambio de una retribución previamente estipulada.
 Grupo de Interés Económico: Conjunto de dos o más personas físicas o jurídicas, o una combinación de ambas, entre las cuales se dan vinculaciones o relaciones de negocios, de capitales, de administración o de parentesco, que permitan a una o más de esas personas ejercer una influencia significativa en las decisiones de los demás.
 Línea de Crédito: Conjunto de créditos con características comunes, tales como planes de inversión, sujetos de crédito, garantías, tasas de interés, plazos, origen de los fondos, entre otras.
+MIPYME:* Unidad productiva, bajo la figura de persona física o persona jurídica, que se desarrolle o pretenda desarrollarse en actividades industriales, comerciales, agropecuarias, científicas, tecnológicas y de servicios. En la actualidad se definen en tres segmentos: Micro, Pequeñas y Medianas empresas.
+Microempresas: Empresas de hasta 10 empleados, incluido el propietario, con ventas brutas anuales, proyectadas o reales al momento del crédito, no mayores a US$ 150.000.
+Pequeñas empresas: Empresas de hasta 30 empleados, incluido el propietario, con ventas anuales, proyectadas o reales al momento del crédito, de hasta US$ 500.000.
+Medianas empresas: Empresas de hasta 100 empleados, incluido el propietario, con ventas brutas anuales, proyectadas o reales al momento del crédito, de hasta US$ 1.000.000.
+Proyecto nuevo: Aquél que se iniciará a partir de la concesión del crédito, o que al momento de solicitar financiamiento, tenga menos de un año de estar operando.
+Turismo laboral: Línea de crédito destinada a promover el disfrute del derecho vacacional.
+*(Así ampliado en sesión No. 4177 de 18 de diciembre de 2003 y publicado en La Gaceta No. 4 de 7 de enero de 2004)
 Medianas Empresas: Empresas de hasta 100 empleados, incluido el propietario, con ventas brutas anuales, proyectadas o reales al momento del crédito, de hasta US$ 1.000.000. (Fuente:
 Decreto No 26426-MEIC).
 Microempresas: Empresas de hasta 10 empleados, incluido el propietario, con ventas brutas anuales, proyectadas o reales al momento del crédito, no mayores a US$150,000. (Fuente: Decreto No

@@ -1,14 +1,21 @@
-Artículo 5º—Sin perjuicio de lo establecido en el artículo 4 anterior, y tratándose de créditos para personas físicas (incluye deudor y garante), los expedientes de crédito deben contener la siguiente información:
+Artículo 5º—En el caso de los créditos para personas físicas de la cartera financiera y de la cartera social (incluye deudor y garante), los expedientes de crédito deben contener la siguiente información:
 a) Solicitud de crédito completa y firmada por el solicitante.
-b) Copia cédula de identidad o de residencia (vigente). La cédula de residencia debe incluir las fechas de emisión y de última renovación.
+b) Copia cédula de identidad o de residencia (vigente).
+La cédula de residencia debe incluir las fechas de emisión y de última renovación.
 c) Constancia salarial que incluya fecha de emisión, tiempo de laborar para el patrono, nombre del puesto, salario bruto, salario neto e indicación de que el ingreso está libre de embargos o indicación de los que pesan sobre el mismo y la clase de contrato que sustenta el puesto (en propiedad, interino o por plazo determinado). Las constancias no deben tener más de un mes de emitidas al momento de ser recibidas por el Banco.
 d) Certificación de ingresos emitida por un Contador Público Autorizado (para deudores con actividad independiente). La certificación no debe tener más de treinta días de emitida al momento de ser presentada al Banco y debe indicar, al menos la siguiente información: Período revisado (no puede ser menor a seis meses), actividad, tiempo de estar en la actividad, si el ingreso tiene embargo y documentos revisados para hacer la certificación.
-e) Se podrán aceptar Constancias de Ingreso emitidas por un Contador Privado para solicitudes de crédito cuyo monto sea igual o inferior al equivalente a US$ 2.500,00 o el monto menor que de manera general establezca la Gerencia General del Banco, siempre que cumplan con los requisitos de forma solicitados para las certificaciones de un Contador Público Autorizado.
-f) Copia de la orden patronal. La orden patronal debe ser la del mes en que se está tramitando el crédito, aceptándose como máximo la del mes anterior. En el caso de empleados públicos que reciben la orden patronal cada seis meses, debe solicitarse la más reciente.
+e) Se podrán aceptar Constancias de Ingreso emitidas por un Contador Privado para solicitudes de crédito cuyo monto sea igual o inferior al equivalente a US$2.500,00 o el monto menor que de manera general establezca la Gerencia General del Banco, siempre que cumplan con los requisitos de forma solicitados para las certificaciones de un Contador Público Autorizado.
+f) Copia de la Orden Patronal. La orden patronal debe ser la del mes en que se está tramitando el crédito, aceptándose como máximo la del mes anterior. En el caso de empleados públicos que reciben la orden patronal cada seis meses, debe solicitarse la más reciente.
 g) Comprobante que servirá para verificar el domicilio de los participantes. Recibo de agua, electricidad, teléfono, servicios de televisión por cable, Internet u otro documento que sirva para verificar el domicilio de los participantes.
-h) Relaciones con el banco. Se debe adjuntar al expediente, la consulta por número de cédula sobre deudas o fianzas de los participantes. No se podrá girar ninguna nueva facilidad si algún crédito no está al día.
-i) Para solicitudes superiores al equivalente a US$ 5.000, los participantes deben llenar el formulario de autorización para solicitar referencias a la SUGEF. Para solicitudes equivalentes hasta US$ 10.000, dicho formulario podrá sustituirse por al menos dos referencias bancarias estatales, a criterio de la Jefatura correspondiente.
-j) En los créditos para vivienda, además de los requisitos anteriores, se debe aportar la documentación necesaria para valorar la garantía y supervisar adecuadamente el plan de inversión. Estos requisitos adicionales los establecerá la Gerencia en un formulario especialmente diseñado para tal fin.
-k) Cuando la persona física solicite un crédito con el fin de iniciar una actividad comercial, también deberá constar en el expediente:
-k-1 Flujo de caja elaborado por un profesional legalmente autorizado para ello, con documentación probatoria e indicación clara de los supuestos utilizados para su elaboración.
-k-2 Estudio de factibilidad elaborado por un profesional legalmente autorizado, estudios de mercado, anteproyectos, estudios de impacto ambiental; éstos se solicitarán de conformidad con el monto solicitado y la naturaleza del proyecto por financiar, a criterio de la jefatura respectiva y debidamente documentados.
+h) Relaciones con el Banco. Se debe adjuntar al expediente, la consulta por número de cédula sobre deudas o fianzas de los participantes. No se podrá girar ninguna nueva facilidad si algún crédito no está al día.
+i) Para solicitudes superiores al equivalente a
+US$5.000, los participantes deben llenar el formulario de autorización para solicitar referencias a la SUGEF. Para solicitudes equivalentes hasta US$10.000, dicho formulario podrá sustituirse por al menos dos referencias bancarias estatales, a criterio de la Jefatura correspondiente.
+j) En los créditos para vivienda, además de
+los requisitos anteriores, se debe aportar la documentación necesaria para valorar la garantía y supervisar adecuadamente el plan de inversión. Estos requisitos adicionales los establecerá la Gerencia en un formulario especialmente diseñado para tal fin.
+k) Cuando la persona física solicite un crédito con el fin de iniciar una actividad comercial, también deberá constar en el expediente: k-1 Flujo de caja elaborado por un profesional
+legalmente autorizado para ello, con
+documentación probatoria e indicación
+clara de los supuestos utilizados para su
+elaboración.
+K-2 Estudio de factibilidad elaborado por un profesional legalmente autorizado, estudios de mercado, anteproyectos, estudios de impacto ambiental; éstos se solicitarán de conformidad con el monto solicitado y la naturaleza del proyecto por financiar, a criterio de la jefatura respectiva y debidamente documentados.
+(Así reformado mediante sesión N° 4177 de 18 de diciembre de 2003, publicada en La Gaceta No. 4 de 7 de enero del 2004).

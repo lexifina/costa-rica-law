@@ -49,6 +49,8 @@ articulo-48.md
 articulo-49.md
 articulo-50.md
 articulo-51.md
+articulo-52.md
+articulo-53.md
 articulo-1-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
