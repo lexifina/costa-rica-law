@@ -1,0 +1,1 @@
+Art. 2- Perteneciendo este terreno á propiedad particular, se hará la expropiación al dueño de él con arreglo á las leyes, y su valor, conforme resultase del justiprecio verificado por peritos, será satisfecho del Tesoro Nacional.

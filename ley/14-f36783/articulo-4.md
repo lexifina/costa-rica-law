@@ -1,0 +1,1 @@
+Artículo 4°.- Al medirse las cincuenta caballerías, se dividirá todo el terreno en lotes de á diez manzanas, dejando las calles correspondientes para dar á todos salida cómoda, levantándose un plano general con la subdivisión que queda indicada, el cual se custodiará en la Municipalidad.
