@@ -1,0 +1,2 @@
+Artículo Transitorio.—Las solicitudes de traslado de menores que se hayan presentado al Ministerio de Justicia con fundamento en el Convenio sobre Aspectos Civiles del Traslado Internacional de Menores, que se encuentren en trámite, serán remitidos de inmediato para su conocimiento y atención al Patronato Nacional de la Infancia.
+(Así adicionado por el artículo 1 del Decreto Ejecutivo N° 29789 de 9 de agosto del 2001)

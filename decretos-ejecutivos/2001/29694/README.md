@@ -14,3 +14,4 @@ Deroga al decreto que Encarga a Ministerio de Justicia a Cumplir Convenio Sustra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-10 | la propia norma |
+| 2 | 2001-08-10 | Decreto Ejecutivo 29789 (2001-08-09) |
