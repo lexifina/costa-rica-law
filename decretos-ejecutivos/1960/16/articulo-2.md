@@ -1,0 +1,1 @@
+Artículo 2°─ Una vez cumplido el trámite anterior, el funcionario aforador deberá cumplimentar inmediatamente el pedimento respectivo, pasándolo entonces al Administrador de la Aduana para que si éste lo estima de caso examine nuevamente las mercaderías y proceda a ordenar el despacho de las mismas, bajo su entera responsabilidad.
