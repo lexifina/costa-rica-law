@@ -13,3 +13,4 @@ Manual de Operaciones de Tránsito Aduanero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-05 | la propia norma |
+| 2 | 2004-07-26 | Reglamento 27 (2004-07-26) |

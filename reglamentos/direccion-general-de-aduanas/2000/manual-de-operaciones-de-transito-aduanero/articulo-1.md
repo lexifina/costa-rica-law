@@ -97,8 +97,17 @@ Responsable: Funcionario Departamento de Control de Agentes Externos
 Si se trata de una DTI, completa en el dorso las casillas correspondientes a la aduana de salida o entrada indicando además el lugar de destino próximo. Anota su nombre, número de cédula, firma, la fecha y hora de continuación del tránsito. Además anota en el espacio para observaciones, si hubo revisión física de los bultos.
 24. En todos los casos deberá efectuar las anotaciones correspondientes en el dorso de la DAT, para la valoración de dicha información por parte de la jefatura correspondiente.
 42. Supervisión descarga y recepción de bultos en las instalaciones del auxiliar receptor
+24 bis: Responsable: Funcionario Departamento de Control de Agentes Externos:
+Verifica en las bases de datos establecidas: “Historial de sobrantes o faltantes por consignatario”, “Historial de denuncias a instancias judiciales”, “Historial de procedimientos administrativos (ordinarios y de aplicación de multas)”, “Historial de tiempos de permanencia de mercancías”, “Fichas informativas relacionadas con los tránsitos aduaneros objeto de recepción”, “Historial de supervisión de las descargas con anomalías detectadas”, y comunica a la jefatura la existencia de elementos de riesgo que justifiquen la necesidad de que exista presencia de la aduana en el proceso de descarga.
+(Así adicionado mediante circular N° 27 del 26 de julio del 2004)
 Responsable: Jefe Departamento de Control de Agentes Externos
-25. De conformidad con los criterios de selección contenidos en el “Reglamento sobre criterios generales y específicos para la selección de sujetos (exportadores, importadores y auxiliares de la función pública aduanera), mercancías y operaciones aduaneras a fiscalizar”, establece la programación de las unidades de transporte que van a ser objeto de supervisión de la descarga y los funcionarios responsables. Permanentemente evaluará su aplicación.
+25. De conformidad con los resultados de la verificación de las bases de datos establecidas y de los criterios de selección contenidos en el “Reglamento
+sobre criterios generales y específicos para la selección de sujetos (exportadores, importadores y auxiliares de la función pública aduanera), mercancía y
+operaciones aduaneras a fiscalizar", establece la programación de las unidades de transporte que van hacer objeto de supervisión de la descarga y los funcionarios responsables. Permanentemente evaluará su aplicación.
+(Así reformado mediante circular N° 27 del 26 de julio del 2004)
+25 bis: Responsable: Jefe Departamento de Control de Agentes Externos.
+Comunica por medio del Sistema de Control de Tránsitos (TRANSITA), a cada uno de los auxiliares receptores del tránsito, los tránsitos aduaneros cuya descarga de la mercancía se realizará con intervención de funcionario aduanero”. Si el funcionamiento del TRANSITA, estuviera temporalmente interrumpido, dicha comunicación se deberá realizar por otros medios (transmisión electrónica, facsímile, entre otros).
+(Así adicionado mediante circular N° 27 del 26 de julio del 2004)
 Responsable: Funcionario Departamento de Control de Agentes de Externos
 26. Se traslada dentro del plazo establecido, a las instalaciones del auxiliar donde se encuentra la unidad de transporte y comprueba que el número de la misma y el precinto, coincidan con lo consignado en la DAT.
 27. Ordena la descarga de los bultos de la unidad de transporte y verifica que correspondan con la cantidad y descripción consignados en cada línea de la DAT, que ampara el tránsito de las mercancías.
