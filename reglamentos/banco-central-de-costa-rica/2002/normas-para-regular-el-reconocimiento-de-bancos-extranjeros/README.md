@@ -14,3 +14,4 @@ Normas para Regular el Reconocimiento de Bancos Extranjeros como de Primer Orden
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-30 | la propia norma |
+| 2 | 2003-01-15 | Reglamento 5144 (2003-01-15) |
