@@ -14,3 +14,4 @@ Reglamento interno de contratación por escasa cuantía del Banco Crédito Agrí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-08 | la propia norma |
+| 2 | 2004-12-02 | Reglamento 7784 (2004-12-02) |
