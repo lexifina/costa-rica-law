@@ -1,0 +1,1 @@
+14.—Recomendar al MINAE, el nombramiento de inspectores ad honorem a efecto de que se dediquen a la proyección y conservación de mi ambiente sano., dentro del cantón de Moravia, como forma de participación ciudadana.

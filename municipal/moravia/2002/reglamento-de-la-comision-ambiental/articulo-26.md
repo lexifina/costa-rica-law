@@ -1,0 +1,1 @@
+26.—Impulsar propuestas al Concejo Municipal para su aprobación de políticas. Planese programas y proyectos ecológicos y ambientales, así como de desarrollo sostenible que permita a los administrados del cantón de Moravia desarrollarse en un ambiente sano y equilibrado.

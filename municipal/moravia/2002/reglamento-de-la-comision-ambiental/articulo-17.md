@@ -1,0 +1,1 @@
+17.—Atender denuncias en coordinación con la Contraloría de Servicios Municipales que en materia ambiental realicen los administrados. Debelan canalizarlas y hacerlas del conocimiento de los entes públicos y órganos administrativos y judiciales competentes.

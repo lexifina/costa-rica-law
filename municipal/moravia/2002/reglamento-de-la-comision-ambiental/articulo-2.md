@@ -1,0 +1,1 @@
+2º—En la protección del derecho a un ambiente sano, deberá promover y ejecutar todo tipo de actividades educativas en los temas de Recursos Naturales y el Ambiente, incluyendo la esfera jurídica en que se encuentran inmersos

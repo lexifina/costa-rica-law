@@ -1,0 +1,1 @@
+12.—Buscar los mejores medios de administración de parques y zonas protegidas, mediante grupos organizados u otros tipo de organizaciones ,bajo control y supervisen de nuestra Institución máxima cantonal, quien no estará limitada a la búsqueda de interesas comunes con otras instituciones u entes mayores.

@@ -1,0 +1,1 @@
+10.—Fomentar la creación de Asociaciones y Grupos Organizados para el análisis, la discusión, propuestas sobre el ambiente. Ejecución de programas de capacitación con relación al manejo de los recursos naturales, dentro de un marco de progreso sostenido de calidad de vida.

@@ -1,0 +1,1 @@
+11.—Incrementar el compromiso y el consentimiento de los ciudadanos, para operativizar las medidas de protección del medio ambiente, mediante órganos de prevención, tutela y administración de los recursos naturales, que puedan recurrir a las instancias de represión administrativa y judicial.

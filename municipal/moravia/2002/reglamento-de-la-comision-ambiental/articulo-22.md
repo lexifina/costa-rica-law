@@ -1,0 +1,1 @@
+22.—Pronunciarse ante los entes competentes sobre problemas de deforestación de la tala de árboles en el cantón de Moravia, de acuerdo con las Leyes vigentes en la materia y sus respectivos reglamentos.

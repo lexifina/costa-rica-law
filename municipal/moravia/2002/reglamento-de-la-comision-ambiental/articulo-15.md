@@ -1,0 +1,1 @@
+15.—Velar por la protección de los mantos acuíferos, así como el manejo, desarrollo y conservación de las cuencas hidrográficas. Igualmente ejercer vigilancia con lo relacionadlo a permisos de corta, extracción y transporte de madera
