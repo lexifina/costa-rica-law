@@ -1,0 +1,2 @@
+Artículo 11.—Recolección de boletos. Semanalmente tratándose de espectáculos permanentes o el día posterior a la realización del evento, en caso de espectáculos ocasionales, los inspectores de espectáculos públicos trasladarán a la oficina de la Municipalidad los boletos recolectados junto con los talonarios respectivos.
+Simultáneamente, el dueño o encargado del negocio o del espectáculo entregará al inspector un informe en el formato que diseñe la Municipalidad, de las entradas vendidas según su valor, correspondiente a la semana o evento sujeto de inspección.

@@ -1,0 +1,2 @@
+Artículo 20.—Del informe final de inspección. La Unidad de Administración Tributaria Municipal, por medio de los inspectores de espectáculos públicos y de conformidad con lo dispuesto en el artículo 16, revisarán los boletos y el informe de los contribuyentes y remitirá un informe a Tesorería.
+Una vez verificados los boletos, procederá mediante un acta y conjuntamente con la Tesorería a la incineración o destrucción de los mismos.

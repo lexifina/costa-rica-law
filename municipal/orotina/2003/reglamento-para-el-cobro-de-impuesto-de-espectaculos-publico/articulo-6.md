@@ -1,0 +1,1 @@
+Artículo 6º—Tarifa. La municipalidad del cantón de Orotina cobrará un impuesto del 5% sobre la base imponible definida en el artículo anterior, a todos los espectáculos públicos y de diversión no gratuitos señalados en el artículo 3º de este Reglamento.
