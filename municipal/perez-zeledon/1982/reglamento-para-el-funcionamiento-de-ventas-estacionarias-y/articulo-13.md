@@ -1,0 +1,1 @@
+Artículo 13.—Únicamente se permitirá ejercer la actividad en los puestos de los siguientes productos: frutas nacionales, hortalizas y verduras, golosinas, artesanía nacional, juguetes nacionales, periódicos, revistas, granizados y helados, flores, alimentos rápidos, pasamanería o buhonería, lotería y chances. No se permitirá la actividad de frutas y tarjetas importadas.

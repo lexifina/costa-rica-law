@@ -1,0 +1,1 @@
+Artículo 3°—La Licencia deberá ser solicitada ante la Administración Municipal, por escrito en papel sellado de un colón con veintiún colones de timbres Municipales, acompañada de una certificación de antecedentes penales (hoja de delincuencia), y del estudio socioeconómico del solicitante, así como del permiso de funcionamiento sanitario cuando corresponda.

@@ -1,0 +1,1 @@
+Artículo 22.—En caso de caducidad o renuncia de una licencia por cualquier motivo, la Municipalidad procederá a la adjudicación de esa licencia por medio de sorteo entre las solicitudes pendientes de licencia, por falta de lugares comerciales para el ejercicio de la actividad.

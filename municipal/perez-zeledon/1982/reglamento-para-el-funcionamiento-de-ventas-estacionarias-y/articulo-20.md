@@ -1,0 +1,1 @@
+Artículo 20.—Queda terminantemente prohibido la cesión, donación, venta o cualquier forma de traspaso de puestos estacionarios y sus licencias. Al que se le comprobase tal negociación se le cancelará la licencia.

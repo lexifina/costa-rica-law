@@ -1,0 +1,1 @@
+4°—Mientras la ley de patentes Municipales del cantón de Pérez Zeledón no disponga lo contrario se fija el pago de patente con forme a como está cada línea comercial tasada en la actual ley de patentes, si la actividad comercial no estuviera establecida, se aplicará la patente de comercio no clasificado a criterio de la Administración Municipal.
