@@ -1,0 +1,2 @@
+Artículo 2°-La Comisión de Recursos Humanos tendrá como función básica recomendar, ante el Ministro de Hacienda, las solicitudes de personal que considere conveniente tramitar; para lo cual contará con la colaboración de un grupo de trabajo, integrado con funcionarios especializados de la División de
+Reforma Administrativa de la Oficina de Planificación Nacional y Política Económica y de la Dirección General de Servicio Civil, que realizará el estudio metodológico de las solicitudes que presenten los Ministerios.
