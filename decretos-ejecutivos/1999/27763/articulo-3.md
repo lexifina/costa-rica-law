@@ -53,7 +53,7 @@ Código | Descripción | Monto
 31. | Recolecta de materiales para diagnóstico tales como: raspados, |
 | leche, sangre y otros por muestra | 350,00
 32. | Captura de murciélagos en finca captura | 9.000.00
-33. | Venta de redes para captura de murciélagos | 9.000,00
+33.* | Venta de redes para captura de murciélagos | ¢50.000,00
 34. | Venta de block de certificados oficiales a personal particular |
 | autorizado (por block de cincuenta fórmulas) | 4.000.00
 | Venta de vacunas y reactivos de diagnóstico (por dosis): |
@@ -217,4 +217,11 @@ Código | Descripción | Monto
 165. | Toma de muestra de productos y subproductos de |
 | origen animal importados | 1.200,00
 166. | Inspección de reinas para importación y exportación cada 10 reinas) | 1.800,00
-(Así reformado por el artículo 1° del decreto ejecutivo N° 28560 del 18 de febrero de 2000)
+| Otros Servicios |
+167. | Hongos y levaduras en alimentos: | 3.300,00
+168. | Salmonella en alimentos: | 4.000,00
+169. | Lectura por cromatografía de gases con detector de masas: | 33.000,00
+170. | Sta. aureus en alimentos | 3.300,00
+171. | Prueba de diagnóstico por PCR | 6.350,00
+(Así adicionados los códigos de servicios del 167 al 171 por el artículo 2° del decreto ejecutivo N° 29191 del 4 de diciembre de 2000, el cual reformó el artículo 1° del decreto ejecutivo N° 28560 que modificó el presente artículo)
+(* Así reformado el código de servicio N° 33 por el artículo 1° del decreto ejecutivo N° 29191 del 4 de diciembre de 2000, el cual reformó el artículo 1° del decreto ejecutivo N° 28560 que modificó el presente artículo)
