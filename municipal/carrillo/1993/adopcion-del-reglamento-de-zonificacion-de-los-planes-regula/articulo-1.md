@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE CARRILLO
+SECCIÓN DE CONCESIONES - ZONA MARÍTIMO TERRESTRE
+La Municipalidad de Carrillo, avisa por este medio a la comunidad del cantón y al público en general, la adopción del Reglamento de Zonificación de los Planes Reguladores de las siguientes playas. Playa Hermosa, aprobado mediante acuerdo número cuatro de la sesión extraordinaria número uno-ochenta y ocho, celebrada el día veintiuno de abril de mil novecientos ochenta y ocho. Playa Jurel, aprobado mediante acuerdo número cinco de la sesión ordinaria número treinta y ocho, celebrada el día cuatro de setiembre de mil novecientos ochenta y cuatro. Playa Gringo, aprobado mediante acuerdo número seis de la sesión ordinaria número cincuenta y nueve-ochenta y nueve, celebrada el día nueve de noviembre de mil novecientos ochenta y nueve.
+Filadelfia, 22 de abril de 1993
