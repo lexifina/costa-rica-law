@@ -9,7 +9,8 @@ b) Son requisitos para optar por una beca los siguientes:
 4- Haber ganado el curso lectivo del período anterior a la solicitud de la beca.
 (Así reformado mediante acuerdo tomado en sesión N° 75 de 21 de setiembre de 1998)
 5- La asignación de beca está sujeta al cumplimiento de las disposiciones estipuladas en este reglamento y al estudio socioeconómico que debe realizar la Comisión de Asuntos Sociales de cada solicitud.
-c) La beca se otorga por nueve meses correspondientes al curso lectivo. En caso de desear seguir optando por este beneficio debe renovarse la solicitud con todos los requisitos cada año.
+c) La beca se otorga por el curso lectivo correspondiente. En caso de desear seguir optando por este beneficio debe renovarse la solicitud con todos los requisitos cada año.
+(Así reformado mediante acuerdo tomado en sesión N° 32 de 7 de agosto del 2000)
 d) Los beneficiarios no podran ser parientes hasta un tercer grado de los regidores y síndicos (Propietarios o Suplentes) o del Ejecutivo Municipal.
 e) La beca se girara mensualmente. Además, es obligación para retirar la beca presentar las calificaciones obtenidas en el trimestre o semestre según sea el caso.
 f) Los servidores municipales podrán optar hasta por un máximo de dos solicitudes de beca, para que sus hijos estudien a nivel de secundaria, conforme a lo establecido en el artículo número 37 de la Convención Colectiva vigente. Para lo cual deberán retirar el formulario de beca en la fecha y lugar que indique la Comisión de Asuntos Sociales previa publicación en lugar visible, así como entregar la solicitud debidamente llena, adjuntando certificación del Registro Civil, en donde conste como hijo (a) del empleado (a), certificación del colegio de que cursa estudios regularmente. Además de los requisitos señalados en los subincisos 3 y 4 del inciso b) anterior.
