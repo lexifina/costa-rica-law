@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase al Estado y sus instituciones para que trasladen fondos a la Fundación Omar Dengo, cédula jurídica N° 3-006-084760, que se destinarán a sostener, fortalecer y ampliar el Programa de Informática Educativa. Los fondos que, por este concepto, reciba la Fundación estarán bajo la vigilancia superior de la Contraloría General de la República.

@@ -1,0 +1,2 @@
+Artículo 3º—Exonéranse de todo tipo de tributos, derechos y timbres de toda clase los bienes que la Fundación Omar Dengo adquiera para la ejecución del Programa de Informática Educativa. La solicitud de exoneración correspondiente deberá ser aprobada por el Ministerio de Hacienda en coordinación con el Ministerio de Educación Pública, los que vigilarán el correcto uso de los bienes exonerados.
+Rige a partir de su publicación.
