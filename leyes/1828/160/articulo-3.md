@@ -1,0 +1,1 @@
+Art 3°.- Los testigos, medidores, y tiradores de cuerda, deben ser hombres mayores de edad, Ciudadanos en exercicio de sus derechos y de conocida providad, gozando cada uno de estos ya seas de camino o ya trabajando, un peso diario.

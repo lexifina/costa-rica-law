@@ -1,0 +1,1 @@
+Art 2°.- Gozará de la dieta de dos pesos por cada seis leguas de camino de ida, vuelta hasta el terreno, y las de tres, por cada seis oras de trabajo en lo mecanico de la medida, con más los derechos de actuación conforme ak Arancel.
