@@ -1,0 +1,1 @@
+Artículo 5°.- Quedan facultades esas Municipalidades para liquidar los presupuestos de los Concejos de Distrito de Parrita y Puerto Jiménez, respectivamente, y para formular nuevos presupuestos para cubrir las necesidades del presente año y para atender a los pagos de prestaciones sociales a los trabajadores cuyos puestos quedan suprimidos.

@@ -1,0 +1,1 @@
+Artículo 2°.- Los Concejos Administrativos Municipales de los cantones “Aguirre” y “Golfito”, de la Provincia de Puntarenas, administrarán por su orden, los intereses de los Distritos de Parrita y Puerto Jiménez.

@@ -1,0 +1,1 @@
+Artículo 3°.- Quedan autorizadas ambas municipalidades para suprimir todos los puestos, sueldos, subvenciones y oficinas que se hacían necesarios con la existencia de los dos Concejos de Distrito que se suprimen.
