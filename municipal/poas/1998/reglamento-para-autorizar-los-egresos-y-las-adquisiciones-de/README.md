@@ -14,3 +14,4 @@ Reglamento para autorizar los egresos y las adquisiciones de bienes y servicios 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-03 | la propia norma |
+| 2 | 2004-06-15 | Reglamento municipal 109 (2004-06-15) |
