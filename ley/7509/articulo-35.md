@@ -1,0 +1,1 @@
+ARTICULO 35.- Reglamentación. El Poder Ejecutivo reglamentará la presente Ley en el plazo de cuatro meses, contados a partir de su publicación. Las municipalidades podrán complementar esta reglamentación en lo que corresponda.

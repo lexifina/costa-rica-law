@@ -1,0 +1,1 @@
+ARTICULO 30.- Limitación en el uso de los recursos. El Fondo de Desarrollo Municipal se constituirá en fideicomiso, en un banco del Sistema Bancario Nacional. Los recursos no podrán destinarse a cubrir los gastos operativos del (IFAM), las municipalidades o la Junta Planificadora.

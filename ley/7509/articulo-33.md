@@ -1,0 +1,1 @@
+ARTICULO 33.- Legislación supletoria. Para lo no previsto en la presente Ley, se aplicará supletoriamente el Código de Normas y Procedimientos Tributarios en cuanto sea compatible con ella. Sus normas se integran, delimitan e interpretan de conformidad con los principios aplicables del Derecho Tributario.
