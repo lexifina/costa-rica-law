@@ -1,1 +1,0 @@
-Artículo 8º—Las personas interesadas en una beca municipal deberán presentar aparte de la información requerida en el artículo Nº 4, copia del último informe de calificaciones certificado por la institución educativa correspondiente.

@@ -1,1 +1,0 @@
-Artículo 16.—La Tesorería realizará las gestiones correspondientes para abrir una libreta de ahorros para cada estudiante becado en el Banco Nacional, a fin de que en la primera semana de cada mes el monto correspondiente asignado por concepto de beca municipal sea depositado a cada uno de los beneficiados.

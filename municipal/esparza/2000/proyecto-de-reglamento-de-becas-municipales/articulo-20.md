@@ -1,1 +1,0 @@
-Artículo 20.—Una vez acordada la aprobación de la lista de becados por el Concejo Municipal, la Secretaría Municipal comunicará a la institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibo por el Departamento de Orientación.

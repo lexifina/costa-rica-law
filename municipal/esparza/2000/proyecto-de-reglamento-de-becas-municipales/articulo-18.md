@@ -1,1 +1,0 @@
-Artículo 18.—La Tesorería Municipal, no emitirá el primer pago sin haber recibido el listado general y la autorización de la Comisión de Educación, avalada por el Concejo Municipal, en la cuál se le comunica que el estudiante ha completado su documentación y se le ha asignado la beca por ese año.

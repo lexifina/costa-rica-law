@@ -1,1 +1,0 @@
-Artículo 11.—Todo estudiante que desea optar al beneficio de beca deberá haber ganado el año anterior, además durante el período que tenga beca deberá mantener su rendimiento académico general mínimo de un 80% ya que el incumplimiento de lo anterior autoriza automáticamente a la Comisión de Educación y a la Tesorería Municipal a suspender la beca por el resto del curso lectivo.

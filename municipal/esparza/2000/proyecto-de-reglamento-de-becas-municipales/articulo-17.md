@@ -1,1 +1,0 @@
-Artículo 17.—La Tesorería Municipal girará en los tres primeros días hábiles de cada mes el listado de becados y el monto general correspondiente de pago de becas municipales al Banco Nacional, para que dicha entidad bancaria deposite en la cuenta de ahorros correspondiente de cada becado el monto asignado para cada uno.
