@@ -1,0 +1,58 @@
+ARTICULO 21
+Las versiones inglesa y francesa del texto de este Convenio son
+igualmente auténticas.
+ARTICULO 2º.- Refórmanse los artículos 88, 281 y 288 de la ley Nº 2
+de 27 de agosto de 1943 (Código de Trabajo), los cuales se leerán así:
+"Artículo 88.-También queda absolutamente prohibido:
+a) El trabajo nocturno de los menores de dieciocho años y el
+diurno de éstos en hosterías, clubes, cantinas y en todos los expendios
+de bebidas embriagantes de consumo inmediato; y
+b) El trabajo nocturno de las mujeres, con excepción de las
+trabajadoras a domicilio o en familia, enfermeras, visitadoras sociales,
+servidoras domésticas y otras análogas quienes podrán trabajar todo el
+tiempo que sea compatible con su salud física, mental y moral; y de
+aquellas que se dediquen a labores puramente burocráticas o al expendio
+de establecimientos comerciales, siempre que su trabajo no exceda de las
+doce de la noche, y que sus condiciones de trabajo, duración de jornada,
+horas extraordinarias, etc., estén debidamente estipulados en contratos
+individuales de trabajo, previamente aprobados por la Inspección General
+del ramo.
+A dichos trabajos prohibidos se aplicará lo dispuesto en el
+párrafo segundo del artículo 87.
+En empresas que presten servicios de interés público y
+cuyas labores no sean pesadas, insalubres o peligrosas, podrá realizarse
+el trabajo nocturno de las mujeres durante el tiempo que sea compatible
+con su salud física, mental y moral, siempre que el Ministerio de Trabajo
+y Previsión Social, con estudio de cada caso, extienda autorización
+expresa al patrono respectivo.
+A los efectos del presente artículo se considerará período
+nocturno, para los menores, el comprendido entre las 18 y las 6 horas, y,
+para las mujeres, el comprendido entre las 19 horas y las 6 horas."
+"Artículo 281.-El Ministerio de Trabajo y Previsión Social
+también solicitará a los Tribunales de Trabajo la disolución de los
+sindicatos que, a su juicio, dejen de llenar los requisitos que para su
+constitución señalan los artículos 273, párrafo segundo y 275, inciso
+e)."
+"Artículo 288.-Dos o más sindicatos podrán formar federaciones y
+dos o más federaciones podrán formar confederaciones, las que se regirán
+por las disposiciones de este Capítulo en lo que les fuere aplicable.
+También tendrán unos y otras el derecho de afiliarse a organizaciones
+internacionales, de trabajadores o patronales.
+Sus estatutos determinarán, además de lo dispuesto en el artículo
+275, la forma en que los sindicatos que las componen serán representados
+en las Asambleas Generales: y el acta constitutiva expresará los nombres
+y domicilios de todos los sindicatos que las integran. Esta lista deberá
+repetirse, para los efectos del inciso d) del artículo 279, cada seis
+meses."
+ARTICULO 3º.- La ejecución de los Convenios que esta ley ratifica
+sólo debe entenderse realizada según el tenor de las disposiciones
+pertinentes de la Constitución Política y demás leyes de la República,
+así como de las reformas que establece el artículo 2º del Presente
+Decreto Legislativo, y de los reglamentos que, conforme a sus
+atribuciones, dicte el Poder Ejecutivo, sin implicar, fuera de lo
+previsto en el citado artículo 2º, modificación al ordenamiento jurídico
+vigente.
+ARTICULO 4º.- Conforme a lo prescrito por el párrafo 1 del artículo
+2 del Convenio Nº 96, relativo a las agencias retribuidas de colocación,
+acéptanse las disposiciones de la parte II de dicho Convenio.
+ARTICULO 5º.- Esta ley rige a partir de su publicación.
