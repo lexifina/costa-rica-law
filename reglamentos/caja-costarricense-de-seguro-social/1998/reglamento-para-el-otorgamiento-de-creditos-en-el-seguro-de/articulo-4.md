@@ -1,0 +1,1 @@
+Artículo 4°—La Comisión de Crédito, para cumplir con las funciones definidas en el artículo cuarto de este Reglamento, celebrara reuniones ordinarias una vez por semana, pudiendo sesionar con la presencia de tres de sus miembros. Los acuerdos de esta Comisión se tomarán por mayoría simple.

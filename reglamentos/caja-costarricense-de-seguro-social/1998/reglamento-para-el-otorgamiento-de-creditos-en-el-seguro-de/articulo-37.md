@@ -1,0 +1,1 @@
+Artículo 37.—No se podrá atender ninguna solicitud si hubiese nidos pendientes de cancelación por operaciones anteriores hechas por el interesado a este fondo especial, ni antes de tres años del préstamo anterior.

@@ -1,0 +1,1 @@
+Artículo 45.—Los préstamos se garantizaran con fianza o fianzas solidarias. las cuales deben cubrir suficientemente la cuantía de la cotización del crédito, incluidos sus intereses. No se aceptarán personas que sean fiadores en más de un préstamo para compra de microcomputadora.

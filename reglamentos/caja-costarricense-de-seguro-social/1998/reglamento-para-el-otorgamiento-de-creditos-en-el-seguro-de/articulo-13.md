@@ -1,0 +1,2 @@
+Artículo 13.—El ingreso mensual del solicitante y de su cónyuge. cuando fuere del caso, debe ser suficiente para atender la deuda que se va a contraer. Se entiende por ingreso suficiente aquel ingreso bruto familiar reportado a la Caja, cuyo 40% garantice la atención de la deuda que se contraiga.
+Si el solicitante o su cónyuge poseen otros ingresos por actividades económicas particulares, éstos podrán ser tomados en cuenta siempre que sean reportados al Seguro de Invalidez, Vejez y Muerte, a través de un seguro voluntario.

@@ -1,0 +1,1 @@
+Artículo 36.—La resolución de las solicitudes se hará atendiendo preferentemente las presentadas por profesionales que trabajan en las áreas rurales del país y de conformidad con el orden cronológico de presentación.
