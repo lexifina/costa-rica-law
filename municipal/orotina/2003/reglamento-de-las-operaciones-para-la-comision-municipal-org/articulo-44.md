@@ -1,5 +1,2 @@
-Artículo 44.—La liquidación de ingresos y gastos de la Comisión
-será remitida por el Contador o Auditor Municipal a esta Contraloría a
-más tardar 70 días después de finalizados los festejos, acompañados del
-informe a que se refiere el artículo 33, y de la documentación citada en el
-anexo de este manual.
+Artículo 44.—La liquidación de ingresos y gastos de la Comisión será remitida por el Contador o Auditor Municipal a la Contraloría General de la República a más tardar 60 días después de finalizados los festejos acompañados del informe a que se refiere el artículo 42 del presente Reglamento.
+(Así reformado parcialmente mediante el artículo III, aparte 6 del acta de sesión ordinaria No. 230, celebrada el día 18 de enero del 2005.)
