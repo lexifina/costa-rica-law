@@ -14,3 +14,4 @@ Declara de Interés Nacional el VII Festival Internacional de Artes San José 20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-28 | la propia norma |
+| 2 | 1999-07-28 | Ley 7 |
