@@ -1,1 +1,1 @@
-Artículo 11.-El elemento (i) se define como el factor de actualización al momento de calcular la tarifa, equivalente al parámetro publicado en "La Gaceta" por el CFA para fijar la hora profesional y que esté vigente a la fecha.
+ARTICULO 11.- El elemento (i) se define como el factor de actualización al momento de calcular la tarifa, equivalente al parámetro publicado en "La Gaceta" por el CFA para fijar la hora profesional y que esté vigente a la fecha.

@@ -13,3 +13,4 @@ Aranceles por Servicios Peritaje y Avalúo de Ingenieros y Arquitectos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-09-27 | la propia norma |
+| 2 | 1994-09-27 | Decreto Ejecutivo 24170 (1995-03-27) |
