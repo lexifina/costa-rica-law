@@ -75,6 +75,7 @@ Leyes y decretos de creación y modificaciones:
 -Decreto Ejecutivo 21936-G de 13 de enero de 1993 (reforma el decreto de creación del distrito Gravilias).
 -Decreto Ejecutivo 24822-G de 27 de noviembre de 1995 (ratifica creación del distrito Gravilias).
 -Decreto Ejecutivo 25039-G 27 de febrero de 1996 (designa cabecera al distrito Gravilias).
+-NOTA DE SINALEVI: Mediante Decreto Ejecutivo N° 31380 de 1° de setiembre de 2003, se crea el Distrito trece Los Guido.
 Distritos:
 103 01 DESAMPARADOS: Ciudad: 09º54'00" LAT.N./ 84º04'01" LONG. O.
 ALTITUD: 1161 m.
@@ -91,7 +92,7 @@ Barrios: Calle Amador, Constancia, Churruca, Huetares, Plazoleta, Pueblo Nuevo, 
 103 06 FRAILES: Villa: 09º45'07" LAT.N./ 84º03'24" LONG.O. ALTITUD: 1615 m.
 Poblados: Bajos de Tarrazú, Bustamante, Santa Elena (parte), Violeta.
 103 07 PATARRÁ: Villa: 09º53'03" LAT.N./ 84º02'13" LONG.O. ALTITUD: 1200 m.
-Barrios: Aguacate, Balneario, Don Bosco, Guatuso, Güízarro, Jeruzalém, Letras, Los Guido, Mesas, Quebrada Honda.
+Barrios: Aguacate, Balneario, Don Bosco, Guatuso, Güízarro, Jeruzalém*, Letras*, Los Guido*, Mesas, Quebrada Honda.
 103 08 SAN CRISTÓBAL: San Cristóbal Norte. Villa: 09º46'19" LAT.N./ 84º00'30" LONG.O. ALTITUD: 1700 m.
 Poblados: Empalme (parte), Guaria, Lucha (parte), San Cristóbal Sur, Sierra.
 103 09 ROSARIO: Villa: 09º47'39" LAT.N./ 84º05'10" LONG.O. ALTITUD: 1321 m.
@@ -102,6 +103,7 @@ Barrios: Cajita, Dorado, Dos Cercas, Fomentera, Nuestra Señora de la Esperanza,
 Barrios: Ángeles, Autofores, Balboa, Coopelot, Gardenia, Higuerones, Leo, Mónaco, Sagitario, Santa Cecilia, Tejar, Trevisa, Unidas, Valencia, Vizcaya.
 103 12 GRAVILIAS: Villa: 09º53'51" LAT. N./ 84º03'40" LONG. O. ALTITUD: 1150 m.
 Barrios: Cartonera, Claveles, Damasco, Diamante, Esmeraldas, Fortuna, Fortunita, Porvenir, Raya, Riberalta, Villanueva.
+*NOTA: Mediante Decreto Ejecutivo N° 31380 de 1° de setiembre de 2003, se crea el Distrito Los Guido, trece del Cantón Desamparados, el cual tendrá a la Villa Guidos como cabecera, contando con los poblados Jerusalem, Letras, todos segregados del Distritio setimo, Patarrá.
 Hojas del mapa básico 1:50 000 (IGN): Abra, Caraigres, Tapantí.
 Hojas del mapa 1:10 000 (IGN): Aczarrí, Cucubres, Curridabat, María Aguilar, Patarrá.
 CANTÓN 104: PURISCAL
