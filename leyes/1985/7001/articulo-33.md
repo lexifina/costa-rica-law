@@ -1,8 +1,8 @@
 Artículo 33.- El Instituto no será responsable por ninguna pérdida,
 daño o perjuicio causado a cualquier clase de bienes cuando sea por:
-a) Incumplimiento grave, por parte del usuario, de los reglamentos de
-orden, seguridad o vigilancia dictados por el Instituto, relacionados con
-la carga, descarga y almacenamiento de mercaderías, en lo que sean
+a) Incumplimiento grave, por parte del usuario, de los reglamentos
+de orden, seguridad o vigilancia dictados por el Instituto, relacionados
+con la carga, descarga y almacenamiento de mercaderías, en lo que sean
 aplicables al caso.
 b) Cargas no manifestadas.
 c) Causas originadas en fuerza mayor o caso fortuito.
