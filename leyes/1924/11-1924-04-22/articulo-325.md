@@ -1,0 +1,3 @@
+Artículo 325
+Funcionario que autorice el matrimonio ilegal
+El funcionario público que a sabiendas autorice un matrimonio de los comprendidos en los artículos 322 y 323 o interviniere en la simulación indicada en el artículo 324, sufrirá en su caso la misma pena señalada para los contrayentes o el simulador. Si lo autorizare sin conocer el impedimento, y su ignorancia proviniere de no haber llenado los requisitos prescritos por la ley para la celebración del matrimonio, la pena será multa mayor en su grado primero e inhabilitación temporal para cargos y oficios públicos, aplicada en cualquiera de sus grados.

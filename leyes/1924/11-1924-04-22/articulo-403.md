@@ -1,0 +1,2 @@
+Artículo 403
+Si el incendio se perpetrare en un barco en marcha en un templo durante los oficios religiosos que hayan congregado a la multitud, o en un teatro, circo u otro lugar de espectáculos públicos en los momentos en que éstos se celebren, o en una escuela o colegio u otro edificio o lugar cerrado, donde se hubiere reunido una muchedumbre, se aplicará la pena de presidio por tiempo indeterminado, aunque no haya víctimas.

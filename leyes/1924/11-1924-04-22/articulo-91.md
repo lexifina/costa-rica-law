@@ -1,0 +1,3 @@
+Artículo 91
+Colonias penales
+El Poder Ejecutivo organizará las colonias de relegados que el servicio penal exija, eligiendo para ello islas u otros lugares despoblados y lejanos de los centros ordinarios de población, en donde se disponga de una suficiente extensión de tierra laborable. Mientras dichas colonias se localizan y disponen con la dotación y requisitos enunciados en el artículo siguiente, los condenados a relegación serán sometidos a riguroso confinamiento bajo el régimen militar e incapacitados con inhabilitación absoluta y perpetua y con interdicción civil, en los parajes que el Poder Ejecutivo elija, donde serán ocupados en cualesquiera trabajos de pública utilidad, con goce del salario que el reglamento establezca.
