@@ -1,0 +1,1 @@
+Artículo 4º.-La contribución se regulará en cada caso, tomando en cuenta el carácter de la obra, su costo, el interés general del país y las ventajas especiales que reciban las propiedades o las industrias favorecidas.

@@ -1,0 +1,1 @@
+Artículo 5º.-La contribución se pagará de una sola vez, o en cuotas periódicas; en este caso durará todo el tiempo necesario para concluir la obra o para cubrir el costo de ella, o será permanente si se trata de servicios regulares.
