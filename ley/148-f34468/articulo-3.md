@@ -1,0 +1,7 @@
+Artículo 3º.- La Caja Costarricense de Seguro Social ejecutará la presente ley, con sujeción a las normas generales que rigen sus demás actividades. Los fondos destinados a su ejecución, se mantendrán separados de los otros fondos de la Caja y la respectiva contabilidad será llevada por aparte.
+La adquisición o venta de terrenos, se efectuará previo avalúo hecho por un perito de la Caja y por otro perito nombrado por el Banco Nacional de Costa Rica.
+Toda venta de terreno la hará por licitación pública.
+La adquisición de materiales por sumas menores de cinco mil colones, se hará mediante licitaciones privadas ente los comerciantes del ramo, y si excedieren de tal suma, mediante licitaciones públicas, sin perjuicio de la facultad que tiene la Caja para hacer importaciones directas, en las cuales pagará los correspondientes derechos. Cuando se trate de la adquisición de maderas, las licitaciones se otorgarán de preferencia, y en igualdad de condiciones, a los productores de madera.
+Esta condición deberá comprobarse debidamente.
+Los presupuestos de gastos, incluyendo los sueldos del personal del Departamento de la Habitación, serán publicados dos veces al año, así como los balances y cuentas de las sumas invertidas y en disponibilidad.
+La Caja informará anualmente al Poder Ejecutivo de la labor realizada en el cumplimiento de esta ley, con expresión de las rentas percibidas, las inversiones hechas, el número, situación y precios de las casas construidas y el nombre de los adquirentes. Ese informe deberá publicarse en el Diario Oficial.
