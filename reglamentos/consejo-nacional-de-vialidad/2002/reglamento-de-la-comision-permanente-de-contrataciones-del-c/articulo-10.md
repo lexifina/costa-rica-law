@@ -1,0 +1,3 @@
+Artículo 10.—La Comisión tendrá un plazo no mayor de diez días hábiles contados a partir de la fecha de la primera reunión sobre el asunto, para analizar la eventual contratación y emitir el criterio correspondiente.
+Cuando exista justificación para ampliar, por una única vez, el plazo indicado, el Secretario de la Comisión deberá informarlo al Director Ejecutivo, incluyendo el máximo plazo requerido.
+Si la recomendación no se brindare dentro del término señalado, el asunto deberá ser puesto formalmente por escrito en conocimiento de la Dirección Ejecutiva para que ésta determine, con base en los hechos o explicaciones pertinentes, si se le abre expediente administrativo al o los funcionarios responsables del retraso (si este es injustificado).

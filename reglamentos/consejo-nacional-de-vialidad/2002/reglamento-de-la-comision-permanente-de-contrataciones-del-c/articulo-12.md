@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión examinará y emitirá recomendaciones de todas las Contrataciones tramitadas mediante la modalidad de Licitación que deben ser sometidas a la aprobación del Consejo de Administración y que se realicen con cargo al Presupuesto del Consejo Nacional de Vialidad.

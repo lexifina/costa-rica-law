@@ -1,0 +1,2 @@
+Artículo 11.—Las recomendaciones u otras decisiones se tomarán por acuerdo, siendo necesario para ello la mayoría simple de los votos de los miembros permanentes. Las votaciones se realizarán sin abstención, debiéndose producir los votos, necesariamente, de manera afirmativa o negativa.
+En caso que la votación resultare con el mismo número de votos a favor y en contra, el presidente tendrá doble voto.
