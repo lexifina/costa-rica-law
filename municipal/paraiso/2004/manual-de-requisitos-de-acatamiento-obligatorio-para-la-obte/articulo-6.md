@@ -1,0 +1,1 @@
+6º—De los locales no autorizados. Queda prohibido la instalación de máquinas en locales ubicados a menos de 80 metros de distancia de centros educativos, templos religiosos o centros de salud autorizados según Ley de Juegos Nº 1387 del 21 de noviembre de 1951 y Reglamento de Juegos Decreto Ejecutivo 3510-G del 24 de enero de 1974.

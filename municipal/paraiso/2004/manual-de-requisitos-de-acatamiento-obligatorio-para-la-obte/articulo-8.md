@@ -1,0 +1,1 @@
+8º—Puntualidad en el pago. Tanto el propietario del negocio como el de las máquinas deberán estar al día con el pago de todos los impuestos y servicios municipales según Ley Nº 7140 de la Municipalidad de Paraíso.

@@ -1,0 +1,1 @@
+5º—Del permiso de funcionaniento. Cada máquina de juegos que se autorice deberá tener en un lugar visible el respectivo permiso de funcionamiento rotulado con el nombre de la empresa y de la leyenda “prohibido para menores de 18 años”, todo en la parte frontal de la máquina y de forma bien visible.
