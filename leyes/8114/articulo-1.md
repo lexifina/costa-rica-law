@@ -1,7 +1,5 @@
 Nº 8114
 LA ASAMBLEA LEGISLATIVA
-DE LA REPÚBLICA DE COSTA RICA, DECRETA:
-LEY DE SIMPLIFICACIÓN Y EFICIENCIA TRIBUTARIAS
 CAPÍTULO I
 Modificación de la carga tributaria
 que pesa sobre los combustibles
@@ -21,22 +19,22 @@ Queroseno | 23,00
 Diesel pesado (Gasóleo) | 15,00
 Nafta pesada | 11,00
 Nafta liviana | 11,00
-(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 30399 de 10 de abril del 2002 de la siguiente manera:
+(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 30575 de 8 de julio del 2002 de la siguiente manera:
 Tipo de combustible por litro | Impuesto en colones (¢)
 |
-Gasolina regular | 91,75
-Gasolina súper | 95,50
-Diesel | 54,00
-Asfalto | 18,25
-Emulsión Asfáltica | 13,75
-Bunker | 9,50
-LPG | 18,25
-Jet Fuel A1 | 55,00
-Av Gas | 91,75
-Queroseno | 26,25
-Diesel pesado (Gasóleo) | 17,25
-Nafta pesada | 12,50
-Nafta liviana | 12,20
+Gasolina regular | 93,00
+Gasolina súper | 97,00
+Diesel | 54,75
+Asfalto | 18,50
+Emulsión Asfáltica | 14,00
+Bunker | 9,75
+LPG | 18,50
+Jet Fuel A1 | 55,75
+Av Gas | 93,00
+Queroseno | 26,75
+Diesel pesado (Gasóleo) | 17,50
+Nafta pesada | 12,75
+Nafta liviana | 12,75
 )
 Exceptúase del pago de este impuesto el producto destinado a abastecer las líneas aéreas comerciales y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con lo establecido en la Ley Nº 7384.
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
