@@ -1,0 +1,1 @@
+Transitorio I.—Hasta tanto no se adopte el Plan Regulador del Cantón de San Pablo de Heredia, el Departamento de Desarrollo Urbano; emitirá las certificaciones respectivas sobre uso del suelo y zonificación; con planos mosaicos y/o con el GAM.

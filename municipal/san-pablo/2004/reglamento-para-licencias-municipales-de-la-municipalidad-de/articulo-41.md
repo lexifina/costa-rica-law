@@ -1,0 +1,1 @@
+Artículo 41.—Las ventas o ingresos brutos anuales, producto de la actividad realizada, determinarán el monto del impuesto de patentes que le corresponde pagar a cada contribuyente. Se aplicará el dos por mil, sobre los ingresos o ventas brutas, esta suma dividida entre cuatro, determinará el impuesto trimestral por pagar.

@@ -1,0 +1,1 @@
+Artículo 26.—La Administración Tributaria tendrá a su cargo las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente. Asimismo, recomendará a su Superior mediante un informe, la procedencia o improcedencia de otorgar la licencia solicitada.

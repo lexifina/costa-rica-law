@@ -1,0 +1,3 @@
+Transitorio III.—En aras de tutelar los derechos de aquellos propietarios de locales que al día de entrada en vigencia de esta normativa, cuenten con los planos visados de la Municipalidad, en los que se indique el uso del suelo determinado para su establecimiento, y que puedan verse afectados por las limitaciones que se establecen en este Reglamento, en cuanto a distancias y parqueos, indicadas en el artículo 13 anterior se les otorga el plazo de seis meses para solicitar las licencias respectivas, de lo contrario se les aplicarán las limitaciones supracitadas.
+Aprobado mediante acuerdo Nº 1443-04, tomado en la sesión ordinaria Nº 110-04 del 21 de junio del 2004.
+San Pablo de Heredia, 23 de junio del 2004.—
