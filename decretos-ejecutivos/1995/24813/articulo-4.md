@@ -1,6 +1,2 @@
-Artículo 4º.- El Ministerio del Ambiente y Energía establecerá un
-sistema de evaluación para el equipo de transporte de combustibles. Este
-sistema se basará en la seguridad y calidad de los combustibles y de los
-servicios que se prestan, criterios que le servirán para orientar su
-labor de fiscalización y para mantener informado al público sobre los
-resultados. Las normas de calidad serán las dictadas por el MEIC.
+Artículo 4º.- El Ministro del Ambiente y Energía establecerá un sistema de evaluación para el equipo de transporte de combustible, así como para verificar la pureza de combustible que acarrean. Este sistema se basará en la seguridad y calidad de los combustibles y de los servicios que se prestan, criterios que le servirán para orientar su labor de fiscalización y para mantener informado al público sobre los resultados.
+(Así reformado por artículo 1º del Decreto Ejecutivo Nº 25078 de 28 de febrero de 1996).

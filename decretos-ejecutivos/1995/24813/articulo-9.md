@@ -1,5 +1,2 @@
-Artículo 9º.- En caso de haber oposiciones se realizará el
-procedimiento administrativo, de conformidad con lo estipulado en el
-artículo 308 y siguientes de la Ley General de Administración Pública.
-Las oposiciones que carezcan de sustento fáctico o jurídico serán
-rechazadas de plano.
+Artículo 9º.- En caso de haber oposiciones se realizará el procedimiento administrativo, de conformidad con lo estipulado en el artículo 308 y siguientes de la Ley General de Administración Pública. Las oposiciones que carezcan de sustento fáctico o jurídico serán rechazadas de plano.
+(Suspendido temporalmente su aplicación por Artículo 1° del Decreto Ejecutivo N° 28346 del 01 de diciembre del 1999 en el siguiente sentido: "Artículo 1°.—Dentro del período comprendido entre el mes de diciembre de mil novecientos noventa y nueve y el treinta y uno de agosto del año dos mil, la Dirección General de Transporte y Comercialización de Combustibles del Ministerio del Ambiente y Energía no aplicará los requisitos contemplados en los artículos 7, 8, 9 y 10 del Decreto Ejecutivo No 24813-MINAE a las solicitudes para transporte de asfalto, gasóleo y emulsiones. Los permisos concedidos se otorgaran con fecha de cese de vigencia al treinta y uno de agosto del año dos mil.")

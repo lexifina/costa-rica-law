@@ -1,9 +1,2 @@
-Artículo 8º.- Previo a analizar la solicitud de operación de un
-cisterna. La Dirección General ordenará la publicación de un edicto en
-el Diario Oficial "La Gaceta" y en al menos uno de los diarios nacionales
-de mayor circulación. En este edicto se otorga un plazo de ocho días
-hábiles a partir de la última publicación, para que las personas físicas
-o jurídicas que se vean afectadas con la solicitud, hagan llegar a la
-Dirección General su criterio, opinión u oposición. El solicitante
-aportará el original de las publicaciones a la Dirección General. El
-costo de las publicaciones corre por cuenta del interesado.
+Artículo 8º.- Previo a analizar la solicitud de operación de un cisterna. La Dirección General ordenará la publicación de un edicto en el Diario Oficial "La Gaceta" y en al menos uno de los diarios nacionales de mayor circulación. En este edicto se otorga un plazo de ocho días hábiles a partir de la última publicación, para que las personas físicas o jurídicas que se vean afectadas con la solicitud, hagan llegar a la Dirección General su criterio, opinión u oposición. El solicitante aportará el original de las publicaciones a la Dirección General. El costo de las publicaciones corre por cuenta del interesado.
+(Suspendido temporalmente su aplicación por Artículo 1° del Decreto Ejecutivo N° 28346 del 01 de diciembre del 1999 en el siguiente sentido: "Artículo 1°.—Dentro del período comprendido entre el mes de diciembre de mil novecientos noventa y nueve y el treinta y uno de agosto del año dos mil, la Dirección General de Transporte y Comercialización de Combustibles del Ministerio del Ambiente y Energía no aplicará los requisitos contemplados en los artículos 7, 8, 9 y 10 del Decreto Ejecutivo No 24813-MINAE a las solicitudes para transporte de asfalto, gasóleo y emulsiones. Los permisos concedidos se otorgaran con fecha de cese de vigencia al treinta y uno de agosto del año dos mil.")

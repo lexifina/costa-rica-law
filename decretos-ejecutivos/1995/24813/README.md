@@ -14,3 +14,4 @@ Reglamento del Transporte y Acarreo de Derivados del Petróleo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-22 | la propia norma |
+| 2 | 1995-12-22 | SINALEVI (sin norma nombrada) |
