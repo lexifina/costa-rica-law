@@ -1,5 +1,3 @@
-ARTICULO 92.- Cumplimiento de las condiciones fijadas para suspender
-el proceso a prueba
-Cuando el menor de edad cumpla con las obligaciones impuestas en la
-resolución que ordena suspender el proceso, el Juez dictará una resolución
-que las apruebe, dará por terminado el proceso y ordenará archivarlo.
+ARTICULO 92.- Cumplimiento de las condiciones fijadas para suspender el proceso a prueba
+Cuando el menor de edad cumpla con las obligaciones impuestas en la resolución que ordena suspender el proceso, el Juez dictará una resolución que las apruebe, dará por terminado el proceso y ordenará archivarlo.
+(La Sala Constitucional mediante resolución N° 6857 del 24 de setiembre de 1998, declaró que el presente artículo no es inconstitucional “…siempre y cuando se interprete que es requisito esencial de la suspensión del proceso a prueba, la libre manifestación de voluntad del infractor, previa información detallada de los alcances y consecuencias de la medida”).
