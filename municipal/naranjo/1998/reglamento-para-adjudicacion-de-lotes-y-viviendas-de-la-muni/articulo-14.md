@@ -1,0 +1,1 @@
+14.—Los terrenos de acuerdo a la Ley N° 6282 serán vendidos en el monto que se fije de acuerdo con el costo de escritura y terreno y con las facilidades de pago según el ingreso familiar, debiendo los beneficiarios suscribir un contrato con la Municipalidad.

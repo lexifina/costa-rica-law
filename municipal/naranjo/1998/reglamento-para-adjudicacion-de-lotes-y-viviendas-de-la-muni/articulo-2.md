@@ -1,0 +1,1 @@
+2°—Presentar certificación del Registro Nacional de la Propiedad que demuestre no poseer bienes y que durante los últimos cinco años no haya poseído bienes o los haya traspasado a personas que tengan vínculos familiares. Se excluye aquellos traspasos efectuados por estricta necesidad.

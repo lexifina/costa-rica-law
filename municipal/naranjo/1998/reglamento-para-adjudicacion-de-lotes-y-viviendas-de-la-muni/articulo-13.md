@@ -1,0 +1,1 @@
+13.—El lote quedará gravado en segundo grado a la Municipalidad, proporcionando la oportunidad al adjudicatario de realizar gestiones en primer grado para construir con el Banco Hipotecario de la Vivienda, mutuales, cooperativas u otras instituciones encargadas de la vivienda.

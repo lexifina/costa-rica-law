@@ -1,0 +1,1 @@
+5°—Todo beneficiario deberá aceptar su conformidad con las disposiciones de la Contraloría General de la República, contenidas en el artículo 4, inciso 1) del Código Municipal y el Reglamento del Plan de Desarrollo Urbano según DE N° 11284-G del 29 de febrero de 1980. El incumplimiento de estas normas hará perder el beneficio otorgado.
