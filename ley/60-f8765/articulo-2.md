@@ -1,0 +1,1 @@
+Art. 2. Los que no lo verificaren, quedaràn incursos en la multa de cincuenta pesos por cada fusil, que se les exijirá ejecutivamente tan luego como se les averigüe la ocultacion de esta arma à de pertrechos de guerra; y sujetos ademas á las penas que establece el artículo 5° del decreto de ocho del corriente.
