@@ -1,0 +1,1 @@
+Artículo 20.-EI Presidente del Consejo Nacional Sectorial de Salud nombrará, en consulta con los demás miembros de éste, a cada funcionario responsable de. la coordinación de cada Comité en todas las regiones.

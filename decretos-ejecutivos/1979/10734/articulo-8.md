@@ -1,0 +1,1 @@
+Artículo 8°-A las sesiones del Consejo Nacional Sectorial de Salud podrán ser convocados por su Presidente, o por sugerencia de otros miembros del mismo Consejo, con derecho a voz, representantes de otras instituciones públicas o privadas, y en general todas aquellas personas a quienes el Consejo o su Presidente estime conveniente escuchar.
