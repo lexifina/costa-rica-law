@@ -14,3 +14,4 @@ Reglamento que Regula los Incentivos Salariales de los Funcionarios de la Unidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-14 | la propia norma |
+| 2 | 2002-02-18 | Decreto Ejecutivo 30193 (2002-02-18) |
