@@ -1,0 +1,2 @@
+Artículo 13-La secretaría de fomento hara preparar e imprimir fórmulas de solicitudes que tengan todos los datos y requisitos exigidos por esta ley y los repartirá profusamente a todos los Gobernadores y Jefes Políticos para que en dichas oficinas se les entregue gratuitamente a los interesados.
+Las autoridades dichas autenticarán esas firmas, las cuales pueden ser también autenticadas por abogados.
