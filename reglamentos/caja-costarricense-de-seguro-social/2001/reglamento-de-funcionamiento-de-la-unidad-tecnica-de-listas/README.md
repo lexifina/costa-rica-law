@@ -14,3 +14,4 @@ Reglamento de Funcionamiento de la Unidad Técnica de listas de espera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-31 | la propia norma |
+| 2 | 2001-12-03 | Reglamento 7605 (2001-12-03) |
