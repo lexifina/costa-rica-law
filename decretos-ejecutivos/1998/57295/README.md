@@ -14,3 +14,4 @@ Reglamento de Fijación de Tarifas en el Aeropuerto Internacional Santamaría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-17 | la propia norma |
+| 2 | 2001-04-30 | Decreto Ejecutivo 29454 (2001-04-30) |
