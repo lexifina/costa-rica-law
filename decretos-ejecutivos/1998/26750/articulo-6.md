@@ -1,0 +1,1 @@
+Artículo 6°—Ningún concesionario podrá pasar de la Fase I a la Fase II sin la debida valoración ambiental por parte de la SECRETARIA TÉCNICA NACIONAL AMBIENTAL, y previa solicitud de la Dirección General de Hidrocarburos.

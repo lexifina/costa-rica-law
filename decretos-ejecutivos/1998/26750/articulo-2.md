@@ -1,0 +1,1 @@
+Artículo 2°—El Estudio de Impacto Ambiental para exploración de hidrocarburos será dividido al menos en dos fases, en concordancia con el programa de exploración que se desarrollará conforme al avance de las actividades.

@@ -1,0 +1,1 @@
+Artículo 4°—La aprobación de la Fase I del estudio de impacto ambiental será el requisito indispensable y suficiente para que el acto adjudicatorio de una concesión petrolera sea declarado en firme, según lo requiere el artículo 41 de la Ley de Hidrocarburos.

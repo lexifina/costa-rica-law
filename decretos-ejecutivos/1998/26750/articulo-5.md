@@ -1,0 +1,1 @@
+Artículo 5°—La SECRETARIA TÉCNICA NACIONAL AMBIENTAL será el órgano encargado de establecer los términos de referencia para el estudio de impacto ambiental, y de su aprobación para cada una de las fases de exploración mencionadas, y para la explotación de hidrocarburos, de acuerdo con sus directrices internas de procedimiento.
