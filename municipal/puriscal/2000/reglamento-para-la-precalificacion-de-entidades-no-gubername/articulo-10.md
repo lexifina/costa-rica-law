@@ -1,0 +1,2 @@
+Articulo 10. — La Municipalidad establecerá los mecanismos y procedimientos necesarios para supervisar la ejecución de los programas, proyectos u obras financiadas con partidas especificas y deberá informar y denunciar lo que estime pertinente a las dependencias e instancias correspondientes.
+Se presenta el anterior proyecto y se concede el término establecido por ley para escuchar observaciones u oposiciones.
