@@ -1,1 +1,2 @@
-Artículo IV.—Para presentar la solicitud de permiso a que se refiere el articulo anterior, se deberá obtener de previo la autorización del Ministerio de Salud.
+Artículo IV.—Para presentar la solicitud de permiso a que se refiere el articulo anterior, se deberá obtener de previo la autorización del Ministerio de Salud, solicitud, permiso o pagos realizado por la Asociación de Compositores y Autores Musicales para tal evento, la persona autorizada para solicitar los permisos es el patentado o bien poder que este le de a otra persona.
+(Así ampliado por el Consejo Municipal en sesión N °46 del 15 de noviembre del 2004)

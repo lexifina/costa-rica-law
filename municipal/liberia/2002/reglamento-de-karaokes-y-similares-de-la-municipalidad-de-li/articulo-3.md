@@ -1,1 +1,2 @@
-Artículo III.—Toda actividad social con "Karaokes" que se programe en establecimientos comerciales, deberá de contar con el correspondiente permiso de la Municipalidad de Liberia, para su realización, en caso de no tener patente.
+Artículo III.—Toda actividad social con "Karaokes" que se programe en establecimientos comerciales, deberá de contar con el correspondiente permiso de la Municipalidad de Liberia, para su realización, en caso de no tener patente, queda entendido que bajo ninguna circunstancia no se permitirán otras actividades de espectáculo público “Bailes y otros”, salvo los que cuenten con las licencias o patente previamente aprobadas según la actividad.
+(Así ampliado por el Consejo Municipal en sesión N° 46 del 15 de noviembre del 2004)
