@@ -1,0 +1,1 @@
+Artículo 15.-Previamente a ser enviados a la Sección de Caja, los comprobantes de ingresos ordinarios, se anotarán en el formulario denominado "Control diario de recibos cancelados en la Caja Recaudadora".

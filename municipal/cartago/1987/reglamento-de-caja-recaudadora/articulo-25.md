@@ -1,0 +1,1 @@
+Artículo 25.-Los sobrantes habidos en los cierres de operación de Caja, se depositarán, en un plazo de un día hábil, en la misma caja, a favor de la Municipalidad, utilizando el comprobante de ingreso.

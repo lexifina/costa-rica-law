@@ -1,0 +1,1 @@
+Artículo 17 .-Los originales de los comprobantes de ingresos cancelados, se entregarán al contribuyente, las copias previa revisión y aprobación del Tesorero Municipal, se enviarán al Departamento de Contabilidad.

@@ -1,0 +1,1 @@
+Artículo 9°-La Caja Recaudadora tendrá a la venta timbres municipales, fiscales, de rehabilitación, forenses y de parques nacionales, así como aquellos que por leyes futuras se exijan para trámites municipales.

@@ -1,0 +1,1 @@
+Artículo 16.-Los comprobantes de ingresos extraordinarios, antes de ser enviados a la sección Caja, tendrán que ser sellados y firmados por la Sección de Ingresos, así como anotados en el formulario "Control diario de recibos cancelados en la Caja Recaudadora".

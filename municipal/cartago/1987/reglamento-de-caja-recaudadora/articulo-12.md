@@ -1,0 +1,3 @@
+Artículo 12.-En los casos de cancelación de comprobantes de ingresos, por medio de cheques, el título deberá ser expedido a favor de la Municipalidad; endosado debidamente, además se consignará el número de cédula y teléfono y debe estar certificado.
+Al recibo cancelado mediante cheque se le asentará la leyenda "La cancelación del presente recibo queda sujeto a que el cheque número (se indica el número de cheque), sea pagado por el banco (se indica cuál banco)".
+Asimismo, al comprobante de ingreso deberá anotársele el número de cheque que cancela el recibo, y en el cheque, el número de recibo que paga.
