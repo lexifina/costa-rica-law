@@ -11,7 +11,7 @@ general, todo ministerio u ocupación personal, se regirá por la ley del
 país en que los mismos se ejerzan, con estricta sujeción a la limitación
 o restricción que sobre esas actividades dicten, dentro del área de su
 competencia respectiva, las Autoridades, Colegios profesionales
-o Jerarguías correspondientes.
+o Jerarquías correspondientes.
 Los súbditos de ambas Partes Contratantes a que se hace referencia,
 en ningún caso podrán estar sometidas simultáneamente a las
 legislaciones de ambas en su condición de nacionales de las mismas, sino

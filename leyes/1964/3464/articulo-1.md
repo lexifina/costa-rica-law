@@ -3,6 +3,9 @@ Costa Rica y España, firmado en Madrid el 8 de junio de 1964 y cuyo
 texto es el siguiente:
 CONVENIO DE DOBLE NACIONALIDAD
 ENTRE COSTA RICA Y ESPAÑA
+(NOTA: El Protocolo Adicional de este Convenio No.7809 de 9 de junio
+de 1998 prevé la posibilidad de desvincularse de la aplicación del
+Acuerdo, por parte del ciudadano que se haya acogido a él)
 Su Excelencia el Presidente de la República de Costa Rica; y
 Su Excelencia el Jefe del Estado Español,
 Considerando:
