@@ -1,0 +1,1 @@
+Artículo 6°—El Consejo sesionará ordinariamente dos veces por semana durante el tiempo que sea necesario para normalizar el atraso en la tramitación de solicitudes de pensión. Luego sesionarán con la frecuencia que la naturaleza de las tareas les exijan. Sus miembros recibirán las dietas que determine El Consejo de Gobierno
