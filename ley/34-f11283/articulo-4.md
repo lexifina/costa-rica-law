@@ -1,0 +1,1 @@
+Art 4° Es obligación de todo subalterno ocuparse en la oficina del trabajo que le ordene su superior no puede excusarse con que el trabajo que se les ordena no es de su incumbencia, pues ningún empleado tiene trabajo especialmente señalado.

@@ -1,0 +1,1 @@
+Art 2° Los Jefes de Sección y el Tenedor de libros, disfrutarán del sueldo de mil doscientos pesos anuales; el oficial archivero, el de quinientos cuarenta pesos, y los escribientes y el portero del que les está asignado por la ley.
