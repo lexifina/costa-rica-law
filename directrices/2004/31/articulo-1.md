@@ -1,0 +1,25 @@
+Nº 31-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+Con fundamento en lo dispuesto en el artículo 140 incisos 3) y 18) de la Constitución Política y en la Ley 4179 de 22 de agosto de 1968 y sus reformas y,
+Considerando:
+1º—Que la Constitución Política de la República establece que es un compromiso del Estado el fomento del cooperativismo como un medio para mejorar la calidad de vida de los trabajadores.
+2º—Que la Ley número 4179 denominada Ley de Asociaciones Cooperativas y de Creación del Instituto Nacional de Fomento Cooperativo en su artículo 1, declara de conveniencia, utilidad pública y de interés social la constitución y funcionamiento de las asociaciones cooperativas, como uno de los medios más eficaces para el desarrollo económico, social, cultural y democrático de los habitantes del país.
+3º—Que el Plan Nacional de Desarrollo "Víctor Manuel Sanabria Martínez" para el cuatrienio 2002-2004, tiene como uno de sus principales ejes el combate a la pobreza y la generación de empleos, mediante el desarrollo de proyectos vinculados con el agro en las zonas rurales del país.
+4º—Que la Conferencia General de la Organización Internacional del Trabajo, congregada en Ginebra el 3 de junio de 2002 en su nonagésima reunión, adoptó la Recomendación sobre la Promoción de las Cooperativas, número 193. En ella se convoca a los Estados Miembros a la adopción de una legislación y una reglamentación específicas en materia de cooperativas, inspiradas en los valores y principios cooperativos.
+5º—Que la actual Administración en forma directa y a través de las instituciones encargadas del fomento y representación del cooperativismo participó significativamente en la elaboración de dicho documento y considera que la Recomendación es congruente con el artículo 64 Constitucional, el cual promueve la adopción de medidas tendientes a garantizar la más adecuada promoción de las cooperativas.
+6º—Que la Recomendación reconoce la importancia de las cooperativas para la creación de empleos, la movilización de recursos, la generación de inversiones, y su contribución a la economía y como instrumento para la promoción de la más completa participación de toda la población en el desarrollo económico y social.
+7º—Que es obligación del gobierno de Costa Rica atender la normativa dispuesta en los párrafos 5 y 6, ambos incisos b) del artículo 19 de la Constitución de la Organización Internacional del Trabajo (O.I.T), relativos a someter a las autoridades competentes, tanto los convenios como las recomendaciones adoptados por la Conferencia de ese organismo internacional.
+8º—Que la presente administración cree que es conveniente y necesario promover e impulsar iniciativas para incrementar la inversión social, así como destinar recursos para fortalecer la reactivación de la economía, mediante proyectos que generen oportunidades para la inclusión en la actividad productiva de sectores de la población afectados por el desempleo, especialmente en las zonas o sectores en riesgo o desventaja.
+9º—Que la actual Administración reconoce los esfuerzos y acciones que desde el movimiento cooperativo y sus Instituciones, han venido realizando en materia de financiamiento, asistencia técnica y capacitación para el desarrollo de proyectos cooperativos de gran impacto regional y nacional. Estos esfuerzos y acciones contribuyen significativamente al cumplimiento de las metas del Plan Nacional de Desarrollo y a la atención de las necesidades de reactivación que el país necesita.
+10.—Que del artículo 140 Constitucional, así como de los artículos 26 y 27 de la Ley General de la Administración Pública, se desprende que el Poder Ejecutivo puede hacer uso de los instrumentos legalmente concedidos, emitiendo las acciones necesarias para que la Administración cumpla con los fines públicos que justifiquen su existencia. Dicha obligación no se circunscribe solo a los órganos del Poder Ejecutivo, sino que comprende la relación Estado-Sector Descentralizado. Por tanto:
+Emiten la siguiente:
+DIRECTRIZ:
+Dirigida a los Ministerios y entidades públicas
+de la Administración Centralizada y
+Descentralizada y demás órganos
+públicos según corresponda
+para la aplicación de la
+Recomendación 193
+de la OIT
+Artículo 1º—Se instruye a los Ministerios y entidades públicas de la Administración Centralizada y Descentralizada y demás órganos públicos entidades, para que en el marco de su normativa particular y de sus competencias, ejecuten las acciones conducentes a la aplicación de la Recomendación 193 de la OIT. Para tal fin, en la medida de sus posibilidades jurídicas y materiales, podrán establecer convenios, mecanismos de coordinación y contribuir al fortalecimiento de las acciones que desarrollan las entidades públicas encargadas del fomento y representación del cooperativismo en lo concerniente al fortalecimiento de las cooperativas, como medio para el logro de las metas nacionales establecidas en materia de generación de empleo, combate a la pobreza y desarrollo socioeconómico con equidad.
