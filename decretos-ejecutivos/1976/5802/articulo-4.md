@@ -1,0 +1,3 @@
+Artículo 4°-Los recursos restantes los utilizará el Banco Popular para financiar a los artesanos y pequeños industriales y cooperativas que estos formen, de conformidad con los programas .y el Reglamento de Crédito Específico que dictará la Junta Directiva de esta Institución. Las solicitudes serán recibidas en la Oficina que tendrá el Consejo Nacional de Artesanía y Pequeña Industria en la sede del Banco Popular, facilitada por éste.
+Las solicitudes así recibidas por el Consejo serán .enviadas de inmediato a la unidad del Banco especializado, para su debido trámite .
+Los artesanos y pequeños industriales que realicen sus actividades en zonas rurales podrán presentar sus solicitudes por medio de las sucursales y de las oficinas auxiliares del Banco Popular.
