@@ -1,0 +1,1 @@
+Artículo 16.—Corresponderá a la Junta Directiva establecer su Reglamento Interno de Funcionamiento, la cual de conformidad con sus posibilidades, definirá e implementará dicho Reglamento dentro del plazo de tres meses calendario posteriores a la publicación del presente Decreto.

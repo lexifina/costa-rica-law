@@ -1,0 +1,3 @@
+Artículo 28.—Los recursos y las utilidades en el porcentaje que defina la asamblea general que obtenga la Corporación deberán ser utilizados para el logro de sus fines.
+La asamblea general de la coorporación al final de cada periodo fiscal, decidirá contra los estados financieros de la Corporación, la repartición de utilidades que haya generado el manejo de los recursos privados que administra, lo cual de conformidad con la ley, artículo 23, estará referido a los recursos de los incisos a), c), d), y f), y las donaciones provenientes del sector privado.
+La Junta Directiva presentará a la asamblea general, las propuestas o procedimientos para establecer o realizar la repartición de utilidades de la Corporación.

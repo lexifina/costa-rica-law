@@ -1,0 +1,1 @@
+Artículo 7°—La asamblea general, que estará integrada por los miembros de la Corporación, es la autoridad suprema de dirección y administración interna, esto último, durante el desarrollo de la asamblea.

@@ -1,0 +1,2 @@
+Artículo 17.—Corresponderá al Presidente de la Junta Directiva la representación judicial y extrajudicial de la Corporación, con facultades de apoderado generalísimo sin límite de suma, el cual es responsable total ante la Junta Directiva, la Corporación y sus afiliados por sus actuaciones.
+La Junta Directiva podrá de conformidad con las disposiciones legales que rigen la materia, otorgar poderes especiales para casos o circunstancias específicas, dándoles las atribuciones que considere necesario.

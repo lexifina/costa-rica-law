@@ -1,0 +1,2 @@
+Artículo 3°—En su actuación ordinaria, la Corporación se regirá por el derecho privado En el tanto administre fondos de la Hacienda Pública, estará sujeta a las regulaciones de derecho Público que rigen la materia.
+A los efectos anteriores, la Junta Directiva deberá disponer e implementar los procedimientos y sistemas financiero-contables y administrativos, que permitan garantizar y diferenciar los fondos públicos que estén bajo la administración de la Corporación, para los controles correspondientes.

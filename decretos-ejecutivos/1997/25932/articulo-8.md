@@ -1,0 +1,2 @@
+Artículo 8°—La Corporación Hortícola Nacional garantizara que el monto de la cuota de afiliación les permitirá participar a todos los agricultores o asociaciones del ramo, que estén al día en el pago y cumplimiento de sus obligaciones para con la Corporación.
+Para los efectos operativos iniciales, el monto de afiliación a la Corporación será de dos mil colones anuales, pagadera en un solo tracto o en pagos de quinientos colones trimestralmente, sujeta a las potestades de modificación y fijación de la asamblea general, según lo establecido en la ley.

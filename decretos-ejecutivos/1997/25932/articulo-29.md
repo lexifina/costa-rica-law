@@ -1,0 +1,2 @@
+Artículo 29.—La Corporación estará exenta del pago de derechos aduaneros, sobretasas y timbres, para importar materias primas, equipo y que se utilizaran en el desarrollo de sus proyectos. De esta disposición se exceptúan los vehículos.
+La adquisición de los bienes indicados mantendrá el espíritu de la ley, de buscar producir con ello beneficios a los afiliados, así como la prestación de mejores servicios y a precios más favorables para los mismos.

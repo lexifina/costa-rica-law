@@ -1,0 +1,1 @@
+Artículo 24.—La Junta Directiva podrá contratar las auditorías que fueren necesarias, para verificar el cumplimiento de los fines objetivos establecidos por la ley, y de sus propios programas, proyectos y actividades.
