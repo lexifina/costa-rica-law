@@ -1,2 +1,0 @@
-Artículo 17.- Todo pago de la Nación, inclusive los que corresponden a Empresas del Estado, se harán por medio de giros nominativos que expedirá la Tesorería Nacional.
-Para los que correspondan a jornales, que por su naturaleza justifican el sistema de planillas, si no pudieren hacerse por giro directo, se extenderán a la orden de la Pagaduría Nacional y sufrirán el trámite de control. El reglamento general de la Tesorería establecerá las formalidades que deben cumplirse en dichos pagos.

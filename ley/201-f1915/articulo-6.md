@@ -1,1 +1,0 @@
-Artículo 6°.- La Tesorería Nacional tendrá a su cargo la contabilidad oficial de la Nación. Abrirá una nueva contabilidad, implantando los más modernos sistemas, de acuerdo con el Centro de Control y aprobación de la Secretaría de Hacienda y extenderá su cuidado y vigilancia sobre todos los bienes de la Nación.
