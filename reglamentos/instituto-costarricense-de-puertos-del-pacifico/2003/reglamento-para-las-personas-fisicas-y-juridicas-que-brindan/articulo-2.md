@@ -1,0 +1,6 @@
+Artículo 2º—Conceptos. Para los efectos de este reglamento se definen los siguientes conceptos:
+Buque: Cualquier embarcación destinada a la navegación marítima, que se utiliza para el transporte de carga y/o pasajeros. INCOP: Instituto Costarricense de Puertos del Pacífico. Instalaciones: Toda obra de infraestructura de los puertos administrados por INCOP destinada a brindar cualquier atención y facilidad a los buques y a la carga.
+Muelle: Parte de la infraestructura del puerto, destinada para la estadía del buque a efecto de facilitar sus operaciones de carga y descarga.
+Permiso de operaciones: Es el permiso que obtiene toda persona física o jurídica que haya cumplido con los requisitos establecidos en este reglamento para poder brindar servicios o suministros dentro de las instalaciones de los puertos administrados por el INCOP. Persona física: Persona de existencia visible, susceptible de cualquier derecho, o contraer obligaciones.
+Puerto: Conjunto de áreas e instalaciones marítimas y terrestres construido para facilitar el traslado de carga de un medio de transporte marítimo a terrestre o viceversa.
+Sujetos beneficiarios: Toda persona física o jurídica que haya adquirido el permiso de operaciones mediante el acto administrativo correspondiente.

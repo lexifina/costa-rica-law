@@ -1,0 +1,1 @@
+Artículo 8º—Del envío del permiso de operaciones a los puertos administrados por INCOP. Una vez aprobada la solicitud del permiso de operaciones por parte de la Gerencia General se enviará a las respectivas administraciones de los puertos para su conocimiento y control.

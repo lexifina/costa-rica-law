@@ -1,0 +1,1 @@
+Artículo 9º—Del rechazo del permiso. El INCOP se reserva el derecho de aprobar o rechazar cualquier solicitud de permiso de operaciones, si a juicio de la Institución el solicitante no reúne las condiciones establecidas así como las condiciones mínimas de seguridad para la actividad que desea desarrollar.
