@@ -1,0 +1,1 @@
+Art 2°.- Los Contadores de la misma oficina entregarán en la Administración General de Alcabalas previo corte y demás formalidades que exige la ley, las existencias que tengan en billetes de exportación de café y papel sellado; y por inventario formal, todos los demás papeles, muebles y útiles que pertenezcan a la oficina.
