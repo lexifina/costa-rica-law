@@ -56,3 +56,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 41 | 2001-03-28 | Reglamento 5070 (2001-03-28) |
 | 42 | 2001-08-14 | Reglamento 5084 (2001-08-14) |
 | 43 | 2001-11-07 | Reglamento 5095 (2001-11-07) |
+| 44 | 2002-01-09 | Reglamento 5101 (2002-01-09) |
