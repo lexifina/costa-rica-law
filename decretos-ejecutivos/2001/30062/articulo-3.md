@@ -1,0 +1,1 @@
+Artículo 3º—Las instituciones del sector público, podrán contribuir con aportes periódicos o como protrocinadoras de esta publicación, cuando estén autorizadas por una ley para estos fines y en la medida de sus posibilidades, y sin perjuicio, del cumplimiento de sus propios objetivos, para la exitosa realización de dicha publicación.
