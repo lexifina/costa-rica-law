@@ -14,3 +14,4 @@ Reglamento del Consejo Nacional de Salarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-28 | la propia norma |
+| 2 | 1997-01-31 | Decreto Ejecutivo 25922 (1997-01-31) |

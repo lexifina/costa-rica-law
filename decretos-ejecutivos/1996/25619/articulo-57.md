@@ -1,4 +1,2 @@
-Artículo 57.—El Consejo debe comunicar al Ministro, inmediatamente la resolución que adopte sobre la solicitud de revisión de salarios mínimos o de inclusión de una nueva ocupación, para que en el lapso de diez (10) días le dé su aprobación o la devuelva al Consejo con las observaciones pertinentes.
-En este último caso, la objeción puede fundamentarse en razones de inconveniencia o por juzgar necesario hacerle reformas.
-Analizadas las observaciones enviadas por el Ministro, el Consejo las aprobará o rechazara y enviará la resolución a aquel para la publicación correspondiente. En caso de existir propuestas, éstas podrán ser acogidas total o parcialmente.
-En caso que el Ministro no hiciere observaciones dentro del término establecido en este artículo, la resolución correspondiente quedara firme.
+Artículo 57.—Cualquier modificación o derogatoria que se haga en el Decreto de Salarios Mínimos vigentes, entrará a regir diez (10) días naturales después de la publicación del Decreto correspondiente.
+(Corrida su numeración, por Decreto Ejecutivo N° 25922 de 30 de enero de 1987, al eliminar el anterior artículo 47 y ordenar correr la numeración, trasladó el antiguo artículo 58 al 57 actual).
