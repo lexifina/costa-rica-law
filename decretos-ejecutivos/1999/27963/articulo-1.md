@@ -1,5 +1,4 @@
-PODER EJECUTIVO
-DECRETOS
+(Derogado)
 Nº 27963-MINAE
 EL PRESIDENTE DE LA REPUBLICA
 Y LA MINISTRA DEL AMBIENTE Y ENERGIA
@@ -14,4 +13,4 @@ Considerando:
 7º—Que el propietario del inmueble colindante con el área de humedales ha accedido a incorporarse en forma voluntaria a este régimen de protección de ecosistemas y la vida silvestre, asumiendo las recomendaciones técnicas y legales del ordenamiento jurídico, comprometiéndose a no desarrollar ninguna actividad que comprometa la fragilidad de los diferentes ecosistemas existentes en la zona, sin contar con la correspondiente autorización del Area de Conservación Tempisque, del Sistema Nacional de Areas de Conservación del Ministerio de Ambiente y Energía. Así mismo, dará toda la colaboración necesaria para que los investigadores, inspectores de recursos naturales y otros funcionarios del MINAE, visiten dichas áreas en cumplimiento de sus funciones.
 8º—Que en los estudios preliminares efectuados en la zona se ha recomendado la creación de un área silvestre protegida para la protección de la biodiversidad para brindar oportunidades para la investigación científica y la recreación. Por tanto,
 Decretan:
-Artículo 1º—Se declara "Refugio Nacional de Vida Silvestre Caletas, Categoría Mixto, el área de humedal del tipo palustrino, delimitadas por las Coordenadas Horizontales 192 y 194 y Verticales 397 y 400, Hojas Cartográficas Río Ario y Puerto Coyote, proyección Lambert y los terrenos propiedad privada de la Empresa Agropecuaria Playa Caletas, S. A., cédula jurídica número 3-101-033721, finca Nº 44816-000, plano catastrado Nº G-415257-81, ubicadas en el distrito de Bejuco, cantón 9 Nandayure, provincia Guanacaste.
+Artículo 1º— DEROGADO por el artículo 1 del Decreto Ejecutivo N° 29849 de 30 de agosto del 2001.

@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre Caletas Categoría Mixto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-12 | la propia norma |
+| 2 | 2001-08-30 | Decreto Ejecutivo 29849 (2001-08-30) |
