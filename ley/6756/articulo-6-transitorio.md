@@ -1,0 +1,2 @@
+VI.-El personal y el presupuesto de la Oficina de Cooperativas del Ministerio de Trabajo y Seguridad Social deberá ser trasladado al Instituto Nacional de Fomento Cooperativo, a efecto de que el Instituto pueda cumplir con las funciones de inscripción y registro que la presente ley le confiere.
+Mientras no se haya cumplido con lo dispuesto en el párrafo anterior, el Ministerio de Trabajo y Seguridad Social, continuará prestando los servicios de inscripción y registro.
