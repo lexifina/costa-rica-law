@@ -1,0 +1,2 @@
+Artículo 17.-Las personas favorecidas con esta ley, no podrán, dentro de un período de cinco años, vender ni arrendar el lote adquirido si no es con autorización de la Municipalidad. esta disposición se consignará al otorgarse la escritura correspondiente.
+La aceptación de la adjudicación significa que los beneficiados reconocen que no tendrán derecho a reclamar indemnización alguna, por las construcciones que se les destruyeron o hubieren de destruirse, ni tampoco en virtud de habérseles adjudicado un lote de menor área al que hubieren poseído.

@@ -1,0 +1,2 @@
+Artículo 6°-Corresponderá a la Municipalidad aprobar o improbar lo resuelto por la Junta Calificadora en los conflictos excluyentes entre dos o más solicitudes que se refieran a un mismo lote, lo mismo que aprobar, modificar o improbar las adjudicaciones que efectúe la misma Junta, o su denegatoria.
+En contra de los resuelto por la Municipalidad, solo cabrán los recursos que las leyes establecen para impugnar acuerdos municipales.
