@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de Puntarenas a través del departamento de Recursos Humanos por medio de la comisión de becas, administrará el otorgamiento de becas de conformidad con lo dispuesto en el presente reglamento y con sujeción al presupuesto que actualmente se acuerde para este fin.

@@ -1,0 +1,1 @@
+Artículo 7º—La comisión se reunirá ordinariamente dos veces al mes. El presidente o dos de sus miembros podrán convocarla extraordinariamente cuando lo consideren con al menos 24 horas de anticipación.

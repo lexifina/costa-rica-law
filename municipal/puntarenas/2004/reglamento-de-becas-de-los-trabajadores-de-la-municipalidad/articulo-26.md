@@ -1,0 +1,2 @@
+Artículo 26.—Todas las becas que otorgue la comisión, provenientes de organismos nacionales o internacionales, deberán ser objeto de concurso entre los aspirantes, el cual será difundido por medio de un cartel aprobado previamente.
+En el cartel se indicarán todos los requisitos exigidos por la institución o por el gobierno que ofrece la beca, así como los aportes adicionales que a juicio de la Comisión procedan. La Comisión podrá recomendar requisitos adicionales para seleccionar el candidato idóneo.

@@ -1,0 +1,1 @@
+Artículo 38.—En caso de muerte o incapacidad permanente de un becado, acogido a los beneficios establecidos en este reglamento, si la misma se produce en el período de estudios o en el cumplimiento del compromiso laboral, quedan extinguidas las obligaciones contraídas con la Institución.

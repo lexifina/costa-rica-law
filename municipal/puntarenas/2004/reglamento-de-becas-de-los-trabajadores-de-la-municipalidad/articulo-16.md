@@ -1,0 +1,3 @@
+Artículo 16.—La Municipalidad otorgará a todos sus trabajadores afiliados y no afiliados una ayuda del 100% de los gastos correspondiente a estudios en los siguientes aspectos. a)Derechos de matrícula y materias a cursar
+b)Un aporte por textos y útiles, siempre y cuando éstos sean indispensables.
+c)Pago de derechos de examen de graduación. La aprobación de las becas quedará sujeta a la disponibilidad presupuestaria con que se cuente para ese efecto. En los casos de los incisos a), y b), el beneficiario deberá presentar a la Comisión los comprobantes respectivos para la debida liquidación o en su defecto las pro formas correspondientes.

@@ -1,0 +1,1 @@
+Artículo 29.—La divulgación de un concurso para beca deberá realizarse en un tiempo no menor de cinco días hábiles. Sin embargo, cuando proviene del exterior, se ofreciere una beca de evidente interés, la Comisión podrá autorizar el texto del cartel respectivo y divulgarlo, acortando o ampliando en lo posible, los correspondientes términos.

@@ -1,0 +1,1 @@
+Artículo 22.—Recibida la solicitud por la comisión esta hará una revisión general para cerciorarse que cumpla con los requisitos reglamentarios. Si observare algún defecto, lo comunicará al solicitante para que lo subsane en el plazo de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 9º—Créase la comisión de becas que será la encargada de aprobar las becas y controlar la aplicación de este reglamento, así como el aprovechamiento de las becas otorgadas por la Corporación de los empleados que deseen realizar estudios profesionales de conformidad con el presente reglamento. La comisión dictará las normas bajo las cuales regirá su funcionamiento.

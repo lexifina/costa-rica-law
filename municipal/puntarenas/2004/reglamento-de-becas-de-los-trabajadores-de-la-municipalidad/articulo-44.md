@@ -1,0 +1,1 @@
+Artículo 44.—Para lo no previsto en este reglamento en cuanto a becas se podrán aplicar las disposiciones contempladas en el Reglamento Interior de Trabajo, Código Municipal y la Convención Colectiva de Trabajadores vigente. En caso de discrepancia, prevalecerán éstas normas reglamentarias sobre aquellas citadas o cualesquiera otras, las que se entenderán derogadas.

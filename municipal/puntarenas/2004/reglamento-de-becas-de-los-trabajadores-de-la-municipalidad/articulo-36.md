@@ -1,0 +1,1 @@
+Artículo 36.—La persona que resultare beneficiada de una beca de estudio queda obligada a impartir a sus demás compañeros los conocimientos adquiridos en coordinación con el Departamento de Recursos Humanos que se encargará de promover las capacitaciones en este sentido.

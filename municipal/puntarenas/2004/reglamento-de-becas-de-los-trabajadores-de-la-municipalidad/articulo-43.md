@@ -1,0 +1,1 @@
+Artículo 43.—La reforma total o parcial de este reglamento solo podrá hacer el consejo Municipal, en sesión ordinaria y deberá de contar con la aprobación de 2-3 partes del total de sus miembros, sin que esto signifique retiro parcial total de los recursos asignados al becado las modificaciones que sufra el presente reglamento será comunicado de oficio a todos los funcionarios.
