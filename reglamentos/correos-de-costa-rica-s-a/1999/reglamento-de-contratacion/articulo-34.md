@@ -1,5 +1,1 @@
-Artículo 34.—Estimación de la contratación. En la estimación de la contratación se tomarán en cuenta el monto, al momento de cursar la invitación a participar, de todas las formas de remuneración, incluyendo el costo principal, los fletes, los seguros, las comisiones, los intereses, los tributos, los derechos, las primas y cualquier otra suma que deba reembolsar Correos de Costa Rica como consecuencia de la contratación.
-Cuando la contratación de objeto continuo, sucesivo o periódico, se celebrare por un plazo determinado, la estimación se efectuará sobre el valor total del contrato durante su vigencia.
-Si la contratación fuere por plazo indeterminado, con opción de compra o sin ella, la estimación se efectuará sobre la base del pago mensual estipulado multiplicado por dieciocho.
-Cuando en el contrato para satisfacer servicios por período menores de dieciocho meses se establezcan o existan prórrogas facultativas que puedan superar ese límite, o en caso de duda sobre si el plazo es indeterminado o no, se aplicará el método de cálculo previsto en el párrafo anterior.
-Cuando las bases del concurso contengan cláusulas que permitan cotizar bienes o servicios opcionales o alternativos, la base para estimarlos será el valor total de la compra máxima permitida, incluidas las posibles compras optativas.
+Texto no disponible

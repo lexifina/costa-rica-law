@@ -1,4 +1,1 @@
-Artículo 16.—Derecho de fiscalización. El contratista se encuentra obligado a ofrecer a Correos de Costa Rica las facilidades necesarias para la ejecución del contrato.
-Para el efectivo ejercicio del derecho de fiscalización. Correos de Costa Rica designará a la unidad técnica competente quien asumirá la obligación de tomar oponunamente las providencias necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato y a las demás obligaciones implícitas en éste.
-Corresponde a dicho órgano verificar el cumplimiento del objeto de la contratación, advertir, a quien corresponda de acuerdo con el régimen interno, la conveniencia de introducir modificaciones o señalar correcciones en la ejecución, recomendar la ejecución de las garantías o bien la rescisión o resolución del contrato cuando advierta fundamento para ello.
-La ausencia de fiscalización por parte de Correos de Costa Rica. No exime al contratista de cumplir a cabalidad con sus deberes, ni de la responsabilidad que por incumplimiento se derive.
+Texto no disponible

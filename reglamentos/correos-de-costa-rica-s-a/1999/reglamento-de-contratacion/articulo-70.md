@@ -1,2 +1,1 @@
-Artículo 70.—Exclusión de contrataciones realizadas por oficinas en el exterior. Las contrataciones que tienen por objeto la construcción, la instalación o la provisión de oficinas y servicios en el exterior, podrán celebrarse sin sujeción a los procedimientos ordinarios de contratación, pero Correos de Costa Rica deberá procurar que el contratista sea idóneo y garantice el fiel cumplimiento de sus obligaciones contractuales. La adjudicación definitiva de estas contrataciones deberá hacerse por la Junta Directiva.
-(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 66 al 70)
+Texto no disponible

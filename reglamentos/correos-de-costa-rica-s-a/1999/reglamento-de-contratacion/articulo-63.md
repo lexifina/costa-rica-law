@@ -1,3 +1,1 @@
-Artículo Nº 63.—Contratación Directa. En los supuestos de fuerza mayor, caso fortuito, proveedor exclusivo, proveedor único o extrema urgencia, la Gerencia General podrá contratar sin sujeción a concurso, para lo cual deberá quedar en el expediente de la contratación la justificación que origina la misma.
-Para la escogencia del contratista, Correos deberá acudir primeramente al Registro de Proveedores de la Empresa y en caso de no existir ningún proveedor acudirá a otros medios.
-(Así adicionado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
+Texto no disponible

@@ -1,1 +1,1 @@
-Artículo 14.—Extinción de los efectos contractuales por mutuo acuerdo. En cualquier momento podrán las partes poner término a la contratación de mutuo acuerdo, cuando medien circunstancias de interés de Correos de Costa Rica. suficientes para ello. Antes de acordarse la extinción, las panes deberán haber fijado con todo detalle las modalidades de liquidación o indemnización que correspondan.
+Texto no disponible

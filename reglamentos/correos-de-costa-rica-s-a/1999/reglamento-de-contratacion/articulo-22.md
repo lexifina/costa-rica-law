@@ -1,2 +1,1 @@
-Artículo 22.—Derecho a reconocimiento a intereses. Salvo pacto contrario por atrasos en el pago Correos de Costa Rica reconocerá a solicitud de parte intereses, calculados sobre la tasa básica pasiva a seis meses del Banco Central de Costa Rica para operaciones en moneda nacional y a la tasa "libor" para operaciones en dólares americanos.
-El reclamo deberá presentarse ante la Gerencia General quien dispondrá de un plazo de quince días hábiles a partir del recibo para dictar la resolución correspondiente. Si en dicha resolución se estableciera que el retardo es imputable a algún trabajador, se le solicitará al Departamento de Crédito y Cobro iniciar las gestiones cobratorias respectivas, con respeto al debido proceso.
+Texto no disponible

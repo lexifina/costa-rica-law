@@ -1,1 +1,1 @@
-Artículo 49.—Invitación a los oferentes. La invitación a participar se publicará en al menos un diario de circulación nacional. De estimarlo conveniente, a juicio de Correos de Costa Rica se podrá publicar en un diario extranjero.
+Texto no disponible

@@ -1,5 +1,1 @@
-Artículo 40.—Devolución de garantías. Las garantías serán devueltas, salvo disposición en contrario de las condiciones de la contratación, de la siguiente manera:
-a) La de participación, a pedido del interesado, dentro de los cinco días hábiles siguientes a la firmeza de la adjudicación, salvo en el caso del adjudicatario que le será devuelto hasta que rinda la garantía de cumplimiento. En aquellos en que se haya descalificado una oferta, el interesado podrá retirar la garantía desde el momento en que se constate dicha circunstancia.
-b) La de cumplimiento, dentro de los quince días hábiles siguientes a la fecha en que se tenga por ejecutado el contrato a satisfacción y se haya rendido el informe correspondiente.
-Se podrá aceptar la sustitución de garantías siempre y cuando se cubran los supuestos previstos al momento de fijarla.
-Aquellas garantías no retiradas después de transcurridos cuatro años a partir de los plazos establecidos en el presente artículo, pasaran a formar parte del capital de Correos de Costa Rica.
+Texto no disponible

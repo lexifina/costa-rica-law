@@ -1,1 +1,1 @@
-Artículo 26.—Levantamiento de la incompatibilidad. La prohibición indicada en los incisos d) y e) del artículo anterior no operará cuando las personas allí nombradas acrediten que se dedican en forma habitual a desarrollar la actividad empresarial potencial mente objeto de una contratación, por lo menos un año antes del surgimiento del supuesto de la inhibición. La solicitud se presentará ante la Junta Directiva quien resolverá lo que corresponda según sea el caso concreto.
+Texto no disponible

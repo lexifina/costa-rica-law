@@ -1,4 +1,1 @@
-Artículo 9°—Verificación y Reserva Presupuestaria. El responsable del programa presupuestario respectivo debe verificar la existencia de contenido suficiente para enfrentar la erogación y deberá dejar constancia expresa en la solicitud o pedimento.
-El Departamento de Compras y Contrataciones es el responsable de verificar el contenido presupuestario asignado a través del visto bueno del Departamento de Presupuesto, o del documento de reserva presupuestaria correspondiente. La insuficiencia de dicho requisito a excepción de los casos indicados en el artículo 8 de este reglamento causará la imposibilidad de iniciar el procedimiento.
-En aquellos casos en que la ejecución del contrato se realice en varios períodos presupuestarios, el departamento solicitante será el responsable de realizar las gestiones pertinentes ante la Dirección de Finanzas para asegurar la existencia de contenido presupuestario.
-Cuando se incumpliere esta obligación, al funcionario responsable se le aplicara la sanción que establezca el régimen disciplinario interno.
+Texto no disponible

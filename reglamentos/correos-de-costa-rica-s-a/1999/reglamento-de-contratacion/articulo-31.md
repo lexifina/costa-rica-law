@@ -1,3 +1,1 @@
-Artículo 31.—Monto de la contratación. La contratación general se aplica para compras superiores a quince millones de colones. Su adjudicación corresponde a la Junta Directiva. La contratación especial se aplica para compras de hasta dicha cantidad. Su adjudicación corresponde a la Gerencia General.
-El monto establecido en el párrafo anterior será ajustado por la Junta Directiva de Correos de Costa Rica cada año tomando como mínimo el porcentaje de la tasa de inflación acumulada desde la anterior fijación fundamentado en estudio técnico elaborado por la Gerencia de Administración y Finanzas. Dicho estudio deberá ser presentado a la Junta Directiva para su aprobación. Para la contratación excepcional se tomará en cuenta la naturaleza excepcional de la contratación no el monto de la misma.
-(Así reformado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
+Texto no disponible

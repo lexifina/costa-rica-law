@@ -1,1 +1,1 @@
-Artículo 24.—Posibilidad de solución de conflictos por vías no jurisdiccionales. Todas las controversias o diferencias que pudieran derivarse de los contratos de Correos de Costa Rica en que una de las partes sea Correos de Costa Rica. su ejecución liquidación interpretación podrán ser resueltas por la vía arbitral cuando así se pacte, de conformidad con el Reglamento del Centro de Conciliación y Arbitraje de la Cámara de Comercio de Costa Rica, a cuyas normas las partes podrán someterse en forma incondicional
+Texto no disponible

@@ -1,2 +1,1 @@
-Artículo 56.—Declaraciones juradas. La oferta contendrá declaración jurada de que el oferente se encuentra al día en el pago de todo tipo de impuestos nacionales. En caso de resultar adjudicatario, el contratista deberá aportar una certificación en donde se acredite oficialmente esta condición, antes de que se efectúe cualquier pago.
-Deberá declarar el oferente bajo juramento que no le alcanza ninguna de las prohibiciones que prevé el artículo 26 del presente Reglamento.
+Texto no disponible

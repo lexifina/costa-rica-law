@@ -1,3 +1,1 @@
-Artículo 72.—Autorización de contratación excepcional. La Junta Directiva podrá autorizar, mediante resolución motivada, la contratación excepcional en otros supuestos no previstos por las anteriores disposiciones, cuando existan razones suficientes para considerar que es la única forma de alcanzar la debida satisfacción del interés de evitar daños o lesiones a los intereses públicos.
-La solicitud que dirija la Gerencia General deberá contener una justificación detallada de las circunstancias que provocan que la utilización de los procedimientos ordinarios no sea conveniente, indicará los recursos presupuestarios con que haría frente a las eventuales erogaciones y detallará la forma en que tiene previsto seleccionar al contratista.
-(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 68 al 72)
+Texto no disponible

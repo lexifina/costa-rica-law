@@ -1,3 +1,1 @@
-Artículo 67.—Actividad ordinaria. Estamos en presencia de actividad contractual ordinaria cuando Correos de Costa Rica, dentro del ámbito de su competencia, a través de los servicios prestados y cuya relación contractual constante o frecuente con los clientes, tanto como el dinamismo que la naturaleza de su tráfico le impone, resultan incompatibles con el proceso concursal.
-Los acuerdos y contratos con otros Estados o con sujetos de derecho público internacional, estarán excluidos de los procedimientos de contratación, sin embargo, para su validez y eficacia, deberán documentarse por escrito y suscribirse por los funcionarios competentes.
-(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 63 al 67)
+Texto no disponible

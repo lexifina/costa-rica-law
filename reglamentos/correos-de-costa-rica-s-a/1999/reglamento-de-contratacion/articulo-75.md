@@ -1,4 +1,1 @@
-Artículo Nº 75.—Legitimación y plazos para interponer el recurso. Estará legitimado para recurrir quien haya presentado oferta y sea sujeto de adjudicación, y deberá interponer el recurso de revocatoria dentro del plazo de dos días hábiles siguientes a la notificación de la adjudicación.
-El recurso de fiscalización superior ante la Contraloría General de la República solo cabrá en materia de Contratación General, cuando corresponda, deberá presentarse dentro del plazo establecido por el ente fiscalizador, plazo que corre a partir de la notificación del rechazo del recurso de revocatoria o del comunicado de adjudicación, según corresponda.
-(Así reformado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
-(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 71 al 75)
+Texto no disponible

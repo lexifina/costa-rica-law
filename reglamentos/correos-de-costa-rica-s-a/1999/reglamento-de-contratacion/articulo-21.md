@@ -1,1 +1,1 @@
-Artículo 21.—Equilibrio económico del contrato. El derecho al mantenimiento del equilibrio económico del contrato por excepción se ejercerá de conformidad con las disposiciones adoptadas por la Junta Directiva de Correos de Costa Rica. en estricto respeto de nuestro ordenamiento jurídico.
+Texto no disponible

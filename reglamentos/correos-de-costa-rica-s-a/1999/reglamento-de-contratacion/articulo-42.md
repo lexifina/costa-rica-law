@@ -1,1 +1,1 @@
-Artículo 42.—Posibilidad de cesión. En cualquier caso en que el contratista requiera ceder sus derechos y obligaciones contractuales, deberá obtener de previo la autorización de parte de la Gerencia General de Correos de Costa Rica S.A.
+Texto no disponible

@@ -1,7 +1,1 @@
-Artículo Nº 77.—Plazos para resolver. El recurso de revocatoria o el de adición y aclaración deberán resolverse en un plazo máximo de hasta un mes calendario contados a partir de su interposición y el de fiscalización dentro de los plazos establecidos por ley para la Contraloría General de República.
-El escrito de revocatoria deberá indicar con precisión las infracciones sustanciales que se le imputan a la decisión de adjudicación o a los procedimientos, con indicación de las normas que se alegan como quebrantadas.
-El recurrente deberá aportar la prueba en que se apoyen sus argumentaciones, y en caso de que discrepe de los estudios técnicos tomados en cuenta por Correos, deberá aportar, estudios técnicos, preparados por profesionales calificados, que sustenten su posición. El ofrecimiento de prueba complementaria deberá hacerse en el escrito en que se recurre.
-El recurrente además en el momento de interponer sus recurso, deberá depositar en el Departamento de Tesorería por cualquiera de los medios señalados en el artículo 39 del presente Reglamento, un 25% del monto de su oferta, como requisito de admisibilidad del recurso.
-En caso de que el recurrente en su escrito de interposición no sustente su recurso y no cumpla con lo indicado en los tres párrafos anteriores, Correos lo rechazará Ad portas.
-(Así reformado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
-(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 73 al 77)
+Texto no disponible

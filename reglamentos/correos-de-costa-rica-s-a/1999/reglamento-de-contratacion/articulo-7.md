@@ -1,3 +1,1 @@
-CAPITULO III
-Requisitos previos de contratación
-Artículo 7°—Requisitos. El procedimiento de contratación se inicia con la decisión emitida por el funcionario o el órgano competente. La decisión deberá contener la justificación correspondiente de la necesidad que la motive respetando las políticas y planes dictados por Correos de Costa Rica. Una vez que se adopte la decisión inicial se formara un expediente debidamente foliado al cual se le incorporarán los estudios previos que motivaron el inicio de los procedimientos, y original o copia de todas las actuaciones internas o externas que tengan relación con la contratación. El Departamento de Compras y Contrataciones será el responsable de la tramitación del procedimiento y de realizar los actos de comunicación que correspondan. Además, mantendrá en custodia el expediente respectivo.
+Texto no disponible

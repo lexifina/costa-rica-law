@@ -1,5 +1,1 @@
-Artículo 12.—Resolución contractual. En caso de incumplimiento imputable al contratista. Correos de Costa Rica podrá resolver sus relaciones contractuales. De previo a la audiencia que se conferirá al interesado se verificará las causales de la resolución y se acreditará en el expediente que se levantará al efecto.
-El contratista dispondrá de un plazo de tres días hábiles para ejercer su derecho de defensa y aportar la prueba que considere oportuna. La comparecencia podrá evacuarse en forma oral dentro de ese mismo término a solicitud del interesado, debiendo gestionarla el día hábil siguiente de la notificación que comunica la resolución contractual.
-Una vez firme la decisión de resolver, se procederá a la ejecución de la garantía de cumplimiento y, de ser procedente, a la ejecución de las cláusulas penales previstas contractual mente en la proporción necesaria para resarcir a Correos de Costa Rica de los daños y perjuicios causados.
-La garantía de cumplimiento se ejecutará en la proporción necesaria para resarcir a la Empresa de los daños y perjuicios causados.
-En caso de que el incumplimiento del contratista haya ocasionado a Correos de Costa Rica daños y perjuicios no compensados con la ejecución de la garantía de cumplimiento, se dispondrá la adopción de las medidas necesarias para el debido resarcimiento.
+Texto no disponible
