@@ -1,0 +1,1 @@
+Artículo 28.-Toda iniciativa tendiente a adoptar, reformar suspender o derogar disposiciones reglamentarias debe ser presentado o acogido para su trámite por algún regidor y enviada a Comisión para su estudio y dictamen.

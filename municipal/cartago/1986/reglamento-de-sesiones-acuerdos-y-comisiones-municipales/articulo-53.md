@@ -1,0 +1,1 @@
+Artículo 53.-Las audiencias se fijarán los miércoles de cada semana salvo en casos de extremada urgencia o audiencia a altos funcionarios del Estado o diputados. La urgencia la declarará el Concejo por simple mayoría.

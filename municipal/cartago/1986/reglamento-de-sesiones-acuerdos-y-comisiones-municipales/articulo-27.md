@@ -1,0 +1,1 @@
+Artículo 27.-El recurso de revisión procederá contra los .acuerdos que no hubieran sido declarados firmes y deberá presentarse antes de ser aprobada el acta. La misma mayoría requerida para dictar el acuerdo sobre el que solicita revisión será necesaria para acordar ésta. Aceptada la revisión, el Presidente pondrá en discusión el asunto a que se refiere el acuerdo.

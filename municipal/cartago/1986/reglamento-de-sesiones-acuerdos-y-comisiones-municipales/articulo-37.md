@@ -1,0 +1,1 @@
+Artículo 37 .-Toda comisión estará integrada con un mínimo de tres miembros y dos de éstos, deberán escogerse necesariamente entre los regidores propietarios y suplente 3 . Podrán integrar estas comisiones, funcionarios o empleados de la Municipalidad y personas ajenas a ella. Los jefes de departamento formarán parte de las c-omisiones.

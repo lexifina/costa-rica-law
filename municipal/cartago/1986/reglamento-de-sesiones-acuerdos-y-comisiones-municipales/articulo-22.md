@@ -1,0 +1,1 @@
+Artículo 22,-Cuando concurrieren al Concejo miembros de los supremos poderes, invitados especiales, representantes de- las instituciones autónomas o semiautónomas, se les recibirá en el Salón de Sesiones a la hora fijada al efecto e inmediatamente después del saludo se les concederá el uso de la palabra.

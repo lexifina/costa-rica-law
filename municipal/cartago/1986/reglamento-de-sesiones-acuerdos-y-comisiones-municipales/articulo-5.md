@@ -1,0 +1,1 @@
+Artículo 5°-Podrán celebrarse sesiones extraordinarias en otros lugares del cantón cuando la índole de los asuntos a tratar así lo requiere y siempre que la convocatoria así lo especificara. En tal caso el Concejo lo decidirá por simple mayoría.

@@ -1,0 +1,1 @@
+Artículo 54.-Los documentos, papelería, correspondencia, expedientes y otros que han sido presentados para su trámite ante el Concejo, deberán permanecer en custodia de la Secretaría Municipal y de esta dependencia; no podrá salir ninguno de los documentos pendientes de trámite y ante el Concejo.

@@ -1,0 +1,1 @@
+Artículo 18.-Los dictámenes de comisiones serán Incluidos en la orden del, día siguiendo el orden en que fueran presentados a la secretaría, para ese efecto la Secretaría el recibir los dictámenes consignará al pie de ellos la hora y fecha de presentación.

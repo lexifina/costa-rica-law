@@ -1,0 +1,1 @@
+Artículo 2°-Las sesiones ordinarias del Concejo se celebrarán los días y a la hora fijada por el Concejo, previa publicación en el Diario Oficial. Se llevarán a cabo en el Salón de Sesiones Municipales y se desarrollarán conforme con el orden del día previamente elaborado.

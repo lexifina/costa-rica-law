@@ -1,0 +1,1 @@
+Artículo 39.-Las comisiones despacharán los asuntos a su cargo a la mayor brevedad posible. Salvo los casos especiales en que el Presidente del Concejo en forma expresa fijó un término menor o superior, las Comisiones deberán rendir sus dictámenes en un plazo no mayor de quince días, prorrogables por otros quince días a juicio del Presidente.

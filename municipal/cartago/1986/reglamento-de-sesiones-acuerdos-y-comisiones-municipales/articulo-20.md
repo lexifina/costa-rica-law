@@ -1,0 +1,1 @@
+Artículo 20.-En el capítulo de iniciativas de los Regidores, éstos presentarán sus mociones y proposiciones Por escrito y firmadas. El Secretario anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación salvo que se trate de mociones de orden.

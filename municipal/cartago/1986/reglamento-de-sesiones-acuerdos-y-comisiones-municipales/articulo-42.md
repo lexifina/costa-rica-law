@@ -1,0 +1,1 @@
+Artículo 42:-Los acuerdos de las comisiones se tomarán con el carácter de firmes y se decidirán por simple mayoría. Las comisiones se reunirán ordinariamente por lo menos dos veces al mes en los días y hora designados el día de institución. El quórum lo constituirá la mayoría simple.

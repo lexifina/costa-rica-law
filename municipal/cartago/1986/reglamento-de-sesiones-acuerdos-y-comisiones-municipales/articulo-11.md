@@ -1,0 +1,1 @@
+Artículo 11.-El Regidor propietario que llegare después de transcurridos quince minutos contados a partir de la hora señalada para iniciar La sesión perderá el derecho a devengar la dieta y no podrá hacer uso del derecho al voto, aunque no se hubiera efectuado su sustitución tendrá derecho únicamente a voz. Tendrá derecho a participar de las deliberaciones con voz, pero sin voto.

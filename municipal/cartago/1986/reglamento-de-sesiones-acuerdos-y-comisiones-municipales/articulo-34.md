@@ -1,0 +1,1 @@
+Artículo 34.-Para referirse a los puntos en discusión, los regidores y síndicos del Concejo iniciarán su intervención con las siguientes palabras: "Señor Presidente, señores regidores, señores síndicos". El Presidente, la iniciará así: "Señores regidores, señores síndicos.

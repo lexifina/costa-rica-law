@@ -1,0 +1,1 @@
+Artículo 21.-El Presidente no dará curso o declarará fuera de orden las proposiciones o mociones qué evidentemente resulten improcedentes o que simplemente tienden a dilatar u obstruccionar el curso normal del debate o la resolución de un asunto.

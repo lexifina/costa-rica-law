@@ -1,0 +1,1 @@
+Artículo 47. -Si se presentaren memoriales que dirijan los particulares al Concejo, la Secretaría los examinará, y si resulta que lo solicitado es de competencia del Ejecutivo, lo enviará a dicho funcionario para que le dé el trámite que le corresponda. De lo anterior se informará a los firmantes.

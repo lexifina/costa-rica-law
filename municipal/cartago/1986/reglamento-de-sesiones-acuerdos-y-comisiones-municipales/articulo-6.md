@@ -1,0 +1,1 @@
+Artículo 6°-La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de anticipación y en ella se indicará el o los asuntos a tratar. Se convocará a los regidores propietarios y suplentes y a los síndicos y al Ejecutivo Municipal en sesiones extraordinarias se conocerán exclusivamente los asuntos indicados en la convocatoria.

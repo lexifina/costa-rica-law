@@ -1,0 +1,1 @@
+Artículo 45. La Secretaría remitirá al Concejo en orden de presentación las solicitudes que presenten los particulares. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal y la oportunidad de cualquier otro elemento que se considere pertinente.

@@ -1,0 +1,1 @@
+Artículo 19.-El Presidente Municipal calificará los asuntos de trámite urgente y ordenará a la secretaría incluirlos en Ia orden del día. En sesión podrán incluirse asuntos de trámite por la iniciativa del Presidente o de uno o más regidores, si el Concejo así lo acuerda por simple mayoría.

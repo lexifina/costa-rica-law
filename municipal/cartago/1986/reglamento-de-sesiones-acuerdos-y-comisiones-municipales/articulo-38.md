@@ -1,0 +1,1 @@
+Artículo 38.-Una vez integradas las comisiones por el Presidente Municipal se procederá a su instalación en un plazo no mayor de quince días, debiendo nombrar de su seno a un Presidente y un Vicepresidente.

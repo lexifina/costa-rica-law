@@ -1,0 +1,1 @@
+Artículo 3°-Las sesiones extraordinarias deberán celebrarse el día, hora y lugar que se indiquen en la convocatoria. Las sesiones extraordinarias se celebrarán cuando así lo soliciten por escrito por lo menos dos regidores al Ejecutivo Municipal o en su defecto cuando el mismo Concejo, por simple mayoría de votos asó lo acuerde.

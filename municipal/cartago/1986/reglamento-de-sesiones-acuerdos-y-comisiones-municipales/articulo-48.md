@@ -1,0 +1,1 @@
+Artículo 48.- El término de la intervención de los particulares se fija en quince minutos cuando sea un solo representante el que habla en nombre del grupo, asociación o comité de vecinos, en caso de ser varios los representantes se fija un término de cinco minutos "para cada uno en un máximo de tres.
