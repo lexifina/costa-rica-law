@@ -1,0 +1,8 @@
+B. ZONA DE PROTECCIÓN DE QUEBRADAS (ZPQ):
+B.1. Propósito: sometida al control de] Estado, con el objetivo de proteger los suelos, cauces, cobertura vegetal de las márgenes, mejorar la calidad paisajística y aumentar la calidad ambiental de la zona, así como permitir el contacto hombre-naturaleza.
+B.2. Localización: Entre los mojones 358 y 359; 367 Y 368 Y los mojones 376 y 377.
+B.3. Usos permitidos: Proyectos comunales de reforestación y ornamentación con especies nativas, así como obras de infraestructura para la canalización, represado y contención, previo estudio aprobado y supervisado por la Municipalidad de Golfito y el MINAE.
+B4. Usos condicionales: Senderos peatonales y sitios aislados para estar, previo estudio aprobado por la Municipalidad y el MINAE.
+B.5. Usos conflictivos: No deben desarrollarse actividades pesadas ni edificaciones permanentes. Tampoco se permite la tala de árboles y plantas, ni la siembra de especies exóticas.
+B.6. Concesión: No se dan concesiones y los colindantes deben hacerse responsables del mantenimiento, conservación, limpieza y la funcionalidad de estas zonas en conjunto con la Municipalidad.
+La Zona de Protección de la Quebrada El Macho podría ser sujeto de incorporación al Bosque bajo Régimen Forestal para garantizar su protección, siempre y cuando su control no se interprete bajo el concepto de propiedad privada. Las zonas de protección de quebradas podrían ser incorporadas a las zonas relacionadas con la Estación Biológica, para que la Institución las someta a sus proyectos de mejoramiento ambiental, sin alterar sus condiciones de zonas bajo administración estatal, con el visto bueno del MINAE e INVU.

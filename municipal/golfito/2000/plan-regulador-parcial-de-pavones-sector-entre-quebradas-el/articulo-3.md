@@ -1,0 +1,6 @@
+C. ZONA DE VIVEROS (ZVI):
+C.1. Propósito: Destinados para desarrollar viveros forestales y agrícolas, mediante proyectos científicos que permitan la reproducción de la flora nativa y el uso de cultivos apropiados. Zona de soporte primario para la experimentación del centro universitario y como fuente de asesoría para los proyectos agroforestales de la comunidad.
+C.2. Localización: Se encuentra cercano a la vía paralela a la Quebrada El Higo, frente a los mojones 371 y 374.
+C.3. Usos permitidos: Viveros forestales nativos, desarrollo de viveros agrícolas, bodegas de insumos, área de pilas y riego, planta de preparación, invernaderos, senderos peatonales. CA. Usos condicionales: Áreas de regeneración forestal, desarrollo de viveros forestales exóticos y de zonas verdes.
+C.5. Usos conflictivos: Toda construcción de carácter duradero o usos no educativos o recreativos comunales. No se permita su uso turístico, comercial o residencial, ni producción pecuaria.
+C.6. Concesión: Sólo se darán concesiones a personas físicas o jurídicas, sin fines de lucro con interés en la conservación ambiental, la investigación y la divulgación de especies de la zona. Tendrá prioridad la Institución que obtenga la concesión del Centro Científico.
