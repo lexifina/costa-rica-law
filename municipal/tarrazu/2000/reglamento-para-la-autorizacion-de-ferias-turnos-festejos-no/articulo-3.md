@@ -1,0 +1,1 @@
+Articulo 3°—En la medida de lo posible y siempre que esto no cause perjuicio a alguna comunidad en particular, se respetaran las fechas tradicionales de cada una de ellas, sin embargo, las autorizaciones se otorgaran conforme las solicitudes completas se vayan presentando.

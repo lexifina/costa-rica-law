@@ -1,0 +1,1 @@
+Articulo 7°—En el caso de uso de pólvora y/o juegos pirotécnicos, autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Publica, póliza del INS y compromiso de utilizar un tubo de hierro ajustado a un hoyo y en tierra firme, para las detonaciones.

@@ -1,0 +1,1 @@
+Articulo 6°—Si se van a efectuar corridas de toros: permiso sanitario de funcionamiento del redondel, póliza que garantice la estructura del redondel y daños a terceros, documentación que garantice la participación de la Cruz Roja; personal medico o paramédico, autoridad policial, copia del contrato taurino y programación del evento.
