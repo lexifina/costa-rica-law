@@ -1,0 +1,1 @@
+Artículo 6º —Sin perjuicio de lo que se establezca en otras leyes o reglamentos aplicables, se considerará como desempeño irregular el del trabajador que por actos o hechos de naturaleza culpable ocasione trabas u obstáculos injustificados o arbitrarios a los administrados.

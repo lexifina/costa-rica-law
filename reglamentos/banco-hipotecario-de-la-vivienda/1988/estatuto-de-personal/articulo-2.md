@@ -1,0 +1,1 @@
+Artículo 2°—En defecto de disposiciones en este Estatuto, se aplicaran por su orden los principios generales del Derecho Administrativo y el Código de Trabajo y sus principios en cuanto sean compatibles con los principios del Derecho Administrativo.
