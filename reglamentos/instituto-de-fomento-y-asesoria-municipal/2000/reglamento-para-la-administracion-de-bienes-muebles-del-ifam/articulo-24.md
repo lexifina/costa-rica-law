@@ -1,0 +1,1 @@
+Articulo 24.—Los usuarios, a quienes se les haya asignado los bienes, son los responsables de que estos estén ubicados en el lugar correspondiente y deberán responder, a los funcionarios encargados de realizar los inventarios, por aquellos que no sean localizados en su sitio.

@@ -1,0 +1,1 @@
+Artículo 31.—-Ninguna Jefatura podrá ordenar el traslado de un activo, sin antes cumplir con lo estipulado en el articulo anterior, Articulo 32.—Es de competencia de la Jefatura velar porque las solicitudes de mobiliario y equipo, obedezcan a las necesidades del personal a su cargo, para el desempeño de sus funciones.

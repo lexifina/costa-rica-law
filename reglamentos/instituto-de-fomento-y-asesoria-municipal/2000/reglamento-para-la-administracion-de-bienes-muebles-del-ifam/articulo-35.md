@@ -1,0 +1,1 @@
+Articulo 35.—Cuando traslada el activo a otro usuario o a bodega por estar descompuesto o cuando ya no lo requiere, debe obtener la firma de quien lo recibe, para quedar relevado de su responsabilidad sobre el bien.

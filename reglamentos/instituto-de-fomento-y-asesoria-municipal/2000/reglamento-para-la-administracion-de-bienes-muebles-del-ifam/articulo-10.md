@@ -1,0 +1,1 @@
+Artículo 10.—Una vez recibida la solicitud, según lo indicado en los artículos anteriores, la Sección de Proveeduría debe realizar las gestiones de adquisición del activo, siguiendo los procedimientos establecidos para compra de bienes y servicios, según la Ley de Contratación Administrativa y el Reglamento de Proveeduría de la Institución.

@@ -1,0 +1,1 @@
+Articulo 29.—En caso de que se produzca la desaparición de bienes por casos fortuitos como robo e incendio las unidades administrativas afectadas, deberán comunicar a la Sección de Proveeduría el detalle de los bienes afectados, para que esta última proceda a realizar ante la Institución aseguradora respectiva los reclamos pertinentes y darle seguimiento.

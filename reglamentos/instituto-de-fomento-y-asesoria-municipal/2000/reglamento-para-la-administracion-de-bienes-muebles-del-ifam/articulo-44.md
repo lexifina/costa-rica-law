@@ -1,0 +1,1 @@
+Articulo 44.—De considerarse que el activo dañado no es susceptible de ser reparado, la Sección de Proveeduría enviará nota a la Sección de Contabilidad y Finanzas, solicitando el descargo del activo.
