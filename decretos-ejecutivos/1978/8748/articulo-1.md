@@ -9,4 +9,6 @@ Considerando:
 Por tanto
 DECRETAN :
 Artículo 1°—Declárase Parque Nacional la Isla del Coco y sus islotes, localizada en el Océano Pacífico entre los paralelos de latitud Norte cinco grados treinta minutos y cinco grados treinta y cuatro minutos; y los meridianos Oeste Greenwich, ochenta y siete grados un minuto y ochenta y siete grados seis minutos, con una extensión de veinticuatro kilómetros cuadrados.
-(NOTA DEL SINALEVI: mediante el artículo 1 del decreto ejecutivo N°15514 del 14 de junio de 1984, se amplían " los límites del Parque Nacional Isla del Coco, establecido por el Decreto Ejecutivo N° 8748-A de 22 de junio de 1978, para que comprenda hasta una distancia de cinco kilómetros alrededor de la isla, medidos a partir de la línea de bajamar de la costa").
+(NOTAS DEL SINALEVI:
+1. Mediante el artículo 1 del decreto ejecutivo N°15514 del 14 de junio de 1984, se amplían " los límites del Parque Nacional Isla del Coco, establecido por el Decreto Ejecutivo N° 8748-A de 22 de junio de 1978, para que comprenda hasta una distancia de cinco kilómetros alrededor de la isla, medidos a partir de la línea de bajamar de la costa").
+2. Mediante el artículo 1 del decreto ejecutivo N° 20260 del 09 de enero de 1991, se amplían "los límites del Parque Nacional Isla del Coco, establecido por decreto ejecutivo número 8748-A del 22 de junio de 1978, para que comprenda hasta una distancia de 15 kilómetros alrededor de la Isla, medidas a partir de la línea de bajamar de costa").
