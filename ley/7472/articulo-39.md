@@ -1,5 +1,6 @@
 Artículo 39.- Cláusulas abusivas en contratos de adhesión.
-La eficacia de las condiciones generales en los contratos de adhesión, está sujeta al conocimiento efectivo de ellas por parte del adherente o a la posibilidad cierta de haber tenido ese conocimiento con una diligencia ordinaria.
+En los contratos de adhesión, sus modificaciones, anexos o adenda, la eficacia de las condiciones generales está sujeta al conocimiento efectivo de ellas por parte del adherente o a la posibilidad cierta de haberlas conocido mediante una diligencia ordinaria
+(Así reformado el párrafo anterior por el artículo 1° aparte b) de la ley N° 7854 del 14 de dicembre de 1998)
 Son abusivas y absolutamente nulas las condiciones generales de los contratos de adhesión, civiles y mercantiles, que:
 a) Restrinjan los derechos del adherente, sin que tal circunstancia se desprenda con claridad del texto.
 b) Limiten o extingan la obligación a cargo del predisponente.
@@ -10,6 +11,8 @@ f) Obliguen al adherente a renunciar con anticipación a cualquier derecho funda
 g) Impliquen renuncia, por parte del adherente, a los derechos procesales consagrados en el Código Procesal Civil o en leyes especiales conexas.
 h) Sean ilegibles.
 i) Estén redactadas en un idioma distinto del español.
+j) Los que no indiquen las condiciones de pago, la tasa de interés anual por cobrar, los cargos e intereses moratorios, las comisiones, los sobreprecios, los recargos y otras obligaciones que el usuario quede comprometido a pagar a la firma del contrato
+(Así adicionado el inciso anterior por el artículo 2° aparte a) de la ley N° 7854 del 14 de dicembre de 1998)
 Son abusivas y relativamente nulas, las cláusulas generales de los contratos de adhesión que:
 a) Confieran, al predisponente, plazos desproporcionados o poco precisos para aceptar o rechazar una propuesta o ejecutar una prestación.
 b) Otorguen, al predisponente, un plazo de mora desproporcionado o insuficientemente determinado, para ejecutar la prestación a su cargo.
