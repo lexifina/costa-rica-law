@@ -1,0 +1,1 @@
+Art 3°.- A esta comisión como del Cuerpo legislativos se le harán los honores que la ley tiene designados, y, si lo creyese conforme, la misma podrá pedir al Gobierno la escola o guardia de honor correspondiente.
