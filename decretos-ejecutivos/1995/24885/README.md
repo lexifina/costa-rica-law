@@ -14,3 +14,4 @@ Reglamento a Ley sobre Enriquecimiento Ilícito de Servidores Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-01 | la propia norma |
+| 2 | 1996-02-01 | SINALEVI (sin norma nombrada) |

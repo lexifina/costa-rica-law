@@ -1,5 +1,7 @@
 Artículo 28.- Deben presentar declaración quienes ocupen los
-siguientes puestos:
+siguientes puestos o realicen las funciones correspondientes a dichos
+puestos, y que estén nombrados de conformidad con lo que se señala en el
+artículo 27 de este reglamento:
 I.- En el Poder Ejecutivo en general:
 Presidente de la República
 Vicepresidentes de la República
@@ -30,7 +32,8 @@ Migración
 Directores Generales de la Guardia de Asistencia Rural y de la
 Fuerza Pública
 ii. Ministerio de Hacienda
-Directores y Subdirectores de las Administraciones Tributarias
+Directores y Subdirectores Generales de las Administraciones
+Tributarias
 Contador y Subcontador Nacionales
 Tesorero y Subtesorero Nacionales
 Director General del Presupuesto Nacional
@@ -41,27 +44,32 @@ Miembros del Tribunal Fiscal Administrativo
 Jefes y Subjefes de Departamento de la Dirección General de
 Hacienda
 Director, Jefe o Encargado de la Policía de Control Fiscal
-Dirección General de la Tributación Directa:
+(Así reformado por el artículo 1º del Decreto Nº 24909 de 16 de
+enero de 1996)
+DIRECCION GENERAL DE TRIBUTACION DIRECTA:
 Director General
 Director General Adjunto
 Subdirectores Generales o Subdirectores Tributarios
 Administradores y Subadministradores Regionales Tributarios
-Dirección General de Aduanas:
+DIRECCION GENERAL DE ADUANAS:
 Director y Subdirector Generales de la Administración Tributaria
 Jefes y Subjefes de División
-Jefes y Subjefes de Departamento Administradores o Gerentes
-Subadministradores o Subgerentes Jefe y Subjefe del
-Departamento de Investigaciones Técnicas Aduaneras
+Jefes y Subjefes de Departamento
+Administradores o Gerentes
+Subadministradores o Subgerentes
+Jefe y Subjefe del Departamento de Investigaciones Técnicas
+Aduaneras
 Jefe Control de Depósitos Libres
-Jefes o Encargados de los puestos de Aduana
+Jefes o encargados de los puestos de aduana
 Profesionales Aduaneros
 Técnicos aduaneros o técnicos en operaciones aduaneras y
-tramitadores aduaneros (funcionarios nombrados en los cargos
-que realicen o supervisen funciones como las siguientes:
-inspección de carga y descarga de mercaderías, verificación y
-aforo de mercancías, determinación del origen, reconocimiento
-de mercancías, liquidación de los derechos o rentas aduaneras y
-contabilización de rentas aduaneras)
+tramitadores aduaneros (funcionarios nombrados en los cargos que realicen
+o supervisen funciones como las siguientes: inspección de carga y
+descarga de mercaderías, verificación y aforo de mercancías,
+determinación del origen, reconocimiento de mercancías, liquidación de
+los derechos o rentas aduaneras y contabilización de rentas aduaneras).
+( Así adicionado por el artículo 1º del decreto Nº 24991 del 13 de
+febrero de 1996).
 iii. Ministerio de Obras Públicas Y Transportes
 Miembros del Directorio de la Comisión Nacional de Emergencia
 Director y Subdirector Generales de cada una de las Divisiones

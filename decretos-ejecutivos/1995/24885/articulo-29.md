@@ -5,8 +5,9 @@ con lo que se señala en el artículo 27 de este Reglamento, en los órganos
 y entes de la Administración Pública Descentralizada, tanto estatales
 como no estatales, en las Empresas Públicas y en los Organos
 Desconcentrados:
-I.- Miembros propietarios de las juntas directivas o administrativas
-y consejos directivos, excepto fiscales sin derecho a voto
+I.- Miembros propietarios de las juntas directivas o
+administrativas y consejos directivos, excepto fiscales sin derecho a
+voto
 Miembros propietarios y suplentes de la Junta o Consejo
 Directivo de CENPRO
 Secretario de junta o consejo directivo
@@ -27,12 +28,18 @@ de Aprovisionamiento, Proveedurías Internas, o cargo similar
 Jefes o Encargados de Bodega de materiales y suministros,
 repuestos, combustibles y artículos de oficina, bienes
 embargados, etc., cuyo inventario mínimo de existencias sea
-igual o mayor a 20 millones.
-II.- En la Auditoría General de Entidades Financieras
-Auditor y Subauditor Generales
-Director de la Asesoría Jurídica
+igual o mayor a 20 millones de colones.
+( Así reformado por el artículo 2º del Decreto Nº 24909 de 16 de
+enero de 1996).
+II.- En la Superintendencia General de Entidades Financieras
+Miembros del Consejo Directivo
+Superintendente e Intendente Generales
+Directores Generales
+Director de la asesoría jurídica
 Auditor Interno
 Proveedor o cargo similar
+( Así reformado por el artículo 2º del Decreto Nº 24909 de 16 de
+enero de 1996).
 III.- En las Universidades Estatales e Instituto Tecnológico de Costa
 Rica
 Rector y Vicerrectores
@@ -53,7 +60,7 @@ Director o Jefe del Departamento, Area, Oficina o Sección
 Financiera
 Auditor Interno
 Proveedor o cargo similar
-VI.-Miembros que integran las Juntas
+VI.- Miembros que integran las Juntas
 Interventoras y AD-HOC
 Se excluyen de la obligación de presentar declaración jurada de
 bienes, las Juntas Administrativas de Colegios, Cementerios, Juntas de
