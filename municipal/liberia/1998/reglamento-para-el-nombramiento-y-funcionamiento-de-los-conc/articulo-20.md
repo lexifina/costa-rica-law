@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos serán tomados por simple mayoría de los votos de los miembros presentes y se tendrán por firmes, si hubiera empate se someterá de nuevo a votación, si persistiera el empate se dejará el asunto en discusión para la sesión siguiente para lo cual deberá incluirse en la agenda de ese día.

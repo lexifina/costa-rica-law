@@ -1,0 +1,1 @@
+Artículo 7°-—La Municipalidad velará por la integridad y fortalecimiento estructural de los Concejos de Distrito de su jurisdicción y los apoyará en las gestiones que por sí solos emprenden a su nombre, con organismos no gubernamentales y gubernamentales para lo cual los verá como una comisión municipal del distrito.
