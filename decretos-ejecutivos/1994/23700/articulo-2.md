@@ -1,0 +1,2 @@
+Artículo 2.—Modifiqúese el artículo 5 del mismo decreto ejecutivo, para que en lo sucesivo se lea así:
+“Artículo 5°: cuando se requiera copia fiel del plano catastrado el interesado cubrirá los costos de reproducción aportando los siguientes timbres de ley por cada copia solicitada: timbre de topografía (establecida por la ley N° 5361 del 16 de octubre de 1973), timbre forense de un colón, timbre de rehabilitación de un colón, timbre fiscal de tres colones, timbre del Registro Nacional de setenta y cinco colones”.
