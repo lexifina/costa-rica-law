@@ -1,0 +1,2 @@
+Articulo 4°—Medios para la comunicación de los hechos relevantes. Los comunicados de hechos relevantes deberán ser remitidos a la Superintendencia General de Valores por facsímil o entregados en papel, en las oficinas de la Superintendencia. En el caso de envío por facsímil, la entidad será responsable de establecer los controles necesarios para verificar la recepción del comunicado por parte de la Superintendencia,
+La Gerencia de la Bolsa establecerá los medios por los cuales deberán comunicarse los hechos relevantes a la bolsa respectiva,

@@ -1,0 +1,1 @@
+Articulo 10.—Divulgación de un hecho relevante al finalizar el plazo de la confidencialidad. A más tardar el día hábil anterior al vencimiento del plazo de confidencialidad otorgado, la entidad deberá remitir el hecho relevante debidamente actualizado. En caso de que la entidad no lo remitiera en ese plazo, la Superintendencia divulgará el hecho relevante originalmente enviado.

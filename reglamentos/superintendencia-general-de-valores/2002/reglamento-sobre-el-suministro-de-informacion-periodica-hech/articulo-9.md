@@ -1,0 +1,1 @@
+Artículo 9°—Prórrogas de confidencialidad. En los casos en que la entidad considerara necesaria una extensión del plazo de confidencialidad, deberá solicitarlo al Superintendente, de previo a la finalización del plazo conferido. La solicitud deberá reunir los mismos requisitos establecidos para la solicitud de confidencialidad.
