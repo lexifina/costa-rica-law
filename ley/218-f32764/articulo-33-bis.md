@@ -1,0 +1,2 @@
+Artículo 33 bis.- Según la gravedad de la falta, los tribunales de justicia podrán declarar inhabilitados para crear nuevas organizaciones de naturaleza similar hasta por diez años, a quienes, habiendo sido directivos de una asociación de bienestar social, hayan cometido delitos en perjuicio de la organización.
+(Así adicionado por el artículo 68 de la Ley Integral para la Persona Adulta Mayor, N° 7935 del 25 de octubre de 1999)
