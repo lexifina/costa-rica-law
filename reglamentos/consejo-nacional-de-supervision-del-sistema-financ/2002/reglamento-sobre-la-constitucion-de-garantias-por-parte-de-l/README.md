@@ -14,3 +14,4 @@ Reglamento sobre la Constitución de Garantías por parte de los Puestos de Bols
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-22 | la propia norma |
+| 2 | 2002-05-21 | Reglamento 301 (2002-05-21) |
