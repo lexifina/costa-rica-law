@@ -10,3 +10,11 @@ nuevo impuesto que les corresponde pagar a cada uno de ellos, queda
 facultada para cobrar durante los dos últimos trimestres del año 1975 los
 mismos impuestos de patente que cobra de conformidad con el Acuerdo de
 Gobernación Nº 57 de 22 de abril de 1935.
+TRANSITORIO III.- Cuando las municipalidades comprueben que el
+patentado autorizado por esta ley para el ejercicio de una actividad
+lucrativa en el cantón central de San José, ha infringido los incisos 1
+(y 2a) del artículo 400 del Código Penal, ante tal infracción podrá
+establecer, como sanción, la suspensión de la licencia municipal hasta
+por el término que al efecto se establezca en el reglamento de esta ley.
+(Así adicionado por el artículo 61, inciso 26, de la Ley de
+Presupuesto Ordinario Nº 7089 de 18 de diciembre de 1987)
