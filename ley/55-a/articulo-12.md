@@ -1,15 +1,23 @@
-ARTICULO XII. ORGANIZACION Y GOBIERNO
+ARTICULO XII. ORGANIZACION Y DIRECCIÓN
+(Así reformado el título anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
 1. Estructura del Fondo.- El Fondo tendrá una Junta de Gobierno, un Consejo Directivo, un Director Gerente y el personal correspondiente.
-2. Junta de Gobierno.-a) Las facultades del Fondo serán confiadas a la Junta de Gobierno, que se compondrá de un gobernador y un suplente por cada país, designados por éste en la forma que él mismo determine. Los gobernadores y los suplentes desempeñarán su cargo durante cinco años si cuentan con el favor de su gobierno y podrán ser reelectos. Los suplentes no podrán votar salvo en la ausencia de su propietario. La Junta designará presidente a uno de los Gobernadores.
+2. (*)Junta de Gobiernadores.-a) Las facultades del Fondo serán confiadas a la Junta de Gobierno, que se compondrá de un gobernador y un suplente por cada país, designados por éste en la forma que él mismo determine. Los gobernadores y los suplentes desempeñarán su cargo durante cinco años si cuentan con el favor de su gobierno y podrán ser reelectos. Los suplentes no podrán votar salvo en la ausencia de su propietario. La Junta designará presidente a uno de los Gobernadores.
+(*) (Así reformado el título de la sección 2) anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
 b) La Junta de Gobierno podrá delegar al Consejo Directivo autoridad para ejercer las facultades de la Junta, excepto las siguientes:
 I) admitir nuevos países asociados y estipular las condiciones en que hayan de admitirse;
-II) aprobar una modificación de las participaciones;
-III) aprobar una modificación uniforme de la paridad de las monedas de todos los asociados;
+II) Aprobar una revisión de cuotas, o resolver el pago, o la minoración de los efectos del pago, de los aumentos de cuotas propuestas como resultado de una revisión general de las mismas.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
+III) Aprobar una modificación uniforme de las paridades de las monedas de todos los países miembros, o decidir cuando esa modificación se efectúe que no serán aplicables las disposiciones relativas al mantenimiento del valor oro de los activos del Fondo.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
 IV) gestionar la cooperación con otras organizaciones internacionales (salvo gestiones informales de carácter transitorio o administrativo);
 V) disponer la repartición de los ingresos netos del Fondo;
 VI) exigir a un asociado que se retire del Fondo;
 VII) resolver la liquidación del Fondo;
 VIII) resolver las apelaciones originadas por la interpretación que dé a este acuerdo el Consejo Directivo.
+(ix) Revisar las disposiciones sobre recompra y revisar y complementar las normas para distribuir las recompras entre las clases de reservas.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
+(x) Hacer transferencias a la reserva general tomándolas de cualquier reserva especial.
+(Así adicionado el inciso anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
 c) La Junta de Gobierno se reunirá anualmente y en las fechas en que lo disponga la misma o la convoque el Consejo Directivo. Este convocará reuniones de la Junta cuando lo soliciten cinco países asociados o los países que ejerzan la cuarta parte de los votos.
 d) En las reuniones de la Junta de Gobierno habrá quórum cuando esté reunida una mayoría de gobernadores que a su vez represente no menos de las dos terceras partes de los votos.
 e) Cada gobernador tendrá derecho a emitir el número de votos que, de acuerdo con el párrafo 5 de este artículo, correspondan al país que lo ha designado.
@@ -43,8 +51,12 @@ I) por el incremento de un voto por el equivalente de cada 400,000 dólares mone
 II) por la disminución de un voto por el equivalente de cada 400,000 dólares moneda norteamericana de su compra neta de las monedas de otros países asociados hasta la fecha de la votación; a condición de que no se juzgue que la compra neta o la venta neta exceda en cualquier momento una cantidad igual a la participación del país de que se trata.
 c) Para los efectos de los cómputos que se efectúen conforme a este párrafo, la moneda norteamericana se definirá como del peso y ley en vigor al 1º de julio de 1944, modificada por cualquier cambio uniforme efectuado de acuerdo con el artículo IV, párrafo 7, si se hace una renuncia según lo prevé el párrafo 8, inciso d, de ese artículo.
 d) Salvo cuando se disponga lo contrario de un modo expreso, todas las resoluciones del Fondo se tomarán por mayoría de votos emitidos.
-6. Distribución de los ingresos netos.-a) La Junta de Gobierno determinará anualmente la proporción de los ingresos netos del Fondo que deberá adjudicarse a la reserva y la proporción, si la hubiere, que deberá repartirse.
-b) Si se hace una repartición, se distribuirá, en primer término, a cada asociado un pago del 2 por ciento no acumulativo, sobre la cantidad en que el 75 por ciento de su participación excedió la existencia media de su moneda en poder del Fondo durante el año. El remanente se pagará a - todos los asociados en proporción a sus participaciones. Se pagará a cada asociado en su propia moneda.
+6. (*)Reservas y Distribución de los ingresos netos.-a) La Junta de Gobierno determinará anualmente la proporción de los ingresos netos del Fondo que deberá adjudicarse a la reserva y la proporción, si la hubiere, que deberá repartirse.
+(*) (Así reformado el título de la sección 6) anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
+b) Si se hiciere alguna distribución de los ingresos netos de un año se procederá, en primer término a efectuar dicha distribución entre los países miembros a los que de conformidad con la Sección 9 del Artículo V corresponda percibir una remuneración por ese año, la cantidad en que el dos por ciento anual exceda de la remuneración que haya sido pagada por ese año. Cualquier distribución de los ingresos netos de este año que exceda dicha cantidad se hará a todos los países miembros en proporción a sus cuotas. Los pagos a cada país miembro se efectuarán en su propia moneda.
+(Así reformado el apartado b) anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
+(c) El Fondo podrá efectuar transferencias a la reserva general tomándolas de cualquier reserva especial.
+(Así adicionado el apartado c) anterior por el artículo 1° de la ley N° 4336 del 20 de mayo de 1969, "Primera Enmienda al Convenio Constitutivo del Fondo Monetario Internacional")
 7. Publicación de informes.-a) El Fondo publicará anualmente un informe que contenga un estado de cuentas certificado y publicará con intervalos de tres meses o menos un informe sumario de sus operaciones y de sus existencias de oro y monedas de los asociados.
 b) El Fondo podrá publicar cualesquiera otros informes que juzgue convenientes para realizar sus fines.
 8. Comunicación de opiniones de los asociados.- El Fondo tendrá en todo momento el derecho de comunicar sus opiniones informalmente a cualquier asociado y sobre cualquier asunto relativo a este Convenio. Podrá, por mayoría de tres cuartas partes de los votos, optar por publicar un informe presentado a un asociado, referente a la situación económica o monetaria del mismo y a los factores que tiendan directamente a producir un grave desequilibrio de las balanzas internacionales de pagos de los asociados. Si el asociado no tiene derecho a designar un director ejecutivo, lo tendrá a designar un representante de acuerdo con el párrafo 3, inciso j, de este artículo. El Fondo no publicará un informe que entrañe cambios en la estructura fundamental de la organización económica de los asociados.
