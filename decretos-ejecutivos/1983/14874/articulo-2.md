@@ -1,5 +1,5 @@
-Artículo 2°.- El precio de venta de los productos suministrados por RECOPE para consumo nacional, será determinado por el SNE de acuerdo con el siguiente procedimiento ordinario, el cual deberá aplicarse durante el primer trimestre de cada año, así como cuando la Refinadora Costarricense de Petróleo, lo estime necesario.
-(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 19870 del 23 de agosto de 1990)
+Artículo 2°.- El precio de venta de los productos suministrados por RECOPE para consumo nacional será determinado por la Autoridad Reguladora de los Servicios Públicos (ARESEP), de acuerdo con el siguiente procedimiento ordinario
+(Así reformado el párrafo anterior por el artículo 82° del Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos, aprobado mediante decreto ejecutivo N° 25903 del 17 de febrero de 1997)
 I) RECOPE presentará un estudio de revisión de precios completo, junto con la solicitud correspondiente, de los precios sugeridos para cada producto y brindará la información periódica que aquí¡ se señala o que en el futuro se considere necesario. Dicho estudio incluirá:
 En cuanto al mercado: Información que se enviará mensual y periódicamente.
 a) Ventas de combustibles por tipo de producto en volumen y colones, según destinatario; por meses.

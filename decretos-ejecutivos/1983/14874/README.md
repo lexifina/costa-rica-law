@@ -17,3 +17,4 @@ Reglamento a Ley NÂ° 6588 "Ley que Regula a la Refinadora Costarricense de PetrÃ
 | 2 | 1990-05-03 | Decreto Ejecutivo 19707 (1990-05-03) |
 | 3 | 1990-07-04 | Decreto Ejecutivo 19839 (1990-07-04) |
 | 4 | 1990-08-23 | Decreto Ejecutivo 19870 (1990-08-23) |
+| 5 | 1997-02-17 | Decreto Ejecutivo 25903 (1997-02-17) |

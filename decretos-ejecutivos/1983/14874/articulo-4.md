@@ -1,2 +1,2 @@
 Artículo 4°.- RECOPE podrá comercializar en el exterior petróleo y sus derivados, fijando las condiciones de venta que se logren llevar a cabo de acuerdo con los mercados internacionales, siempre y cuando en consumo nacional esté‚ garantizado de acuerdo con lo estipulado en el artículo 2° de este reglamento.
-Las transacciones que se lleven a cabo, al amparo de este artículo deberán ser refrendadas por el SNE.
+(El párrafo segundo original fue derogado por el artículo 83° del Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos, aprobado mediante decreto ejecutivo N° 25903 del 17 de febrero de 1997)
