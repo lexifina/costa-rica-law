@@ -1,0 +1,5 @@
+BANCO DE COSTA RICA
+La Junta Directiva General del Banco en sesión 34-03, artículo XII, del 5 de agosto del año en curso, aprobó modificar el artículo 88 del "Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica.
+Artículo 88.—Cobro de comisión por cambio de divisas en efectivo. En las transacciones que se efectúen en el sector turismo, órdenes de pago y compra de cheques, que se requieran billetes americanos, se cobrará ¢0.75 por cada dólar como comisión de servicio, adicional a los ¢0.25 que ya se cobraban por importación de billetes. Se aplicará la misma tarifa al retiro de billetes en cuentas corrientes o de ahorro en dólares cuando excedan US $5.000.00 diarios por cuenta.
+Tratándose de cheques emitidos por las embajadas a cargo de las cuentas corrientes que mantienen con nuestro banco, se exime a estas representaciones diplomáticas del cobro de ¢1.00 por dólar cuando efectúen retiros por montos superiores a $5.000.00 diarios.
+San José, 18 de agosto del 2003.—
