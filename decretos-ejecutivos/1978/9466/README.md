@@ -14,3 +14,4 @@ Crea Comisión de Recursos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-01-01 | la propia norma |
+| 2 | 1980-02-04 | Decreto Ejecutivo 11144 (1980-02-04) |

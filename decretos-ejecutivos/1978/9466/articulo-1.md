@@ -11,6 +11,8 @@ DECRETAN:
 Artículo 1°-Créase la Comisión de Recursos Humanos integrada con los siguientes funcionarios representantes de las instituciones que a continuación se detallan:
 Oficina de Planificación Nacional y Política Económica:
 Lic. German Vargas Alfaro, Jefe del Departamento de Recursos Humanos de la División de Reforma Administrativa.
+(*) Lic. Carlos Manuel Echeverría Esquivel, Director Adjunto de la Oficina de Planificación Nacional y Política Económica.
+(*) (Así adicionado mediante el artículo 1° del decreto ejecutivo N° 11144 del 4 de febrero de 1980).
 Dirección General de Servicio Civil:
 Lic. David Rodríguez Matamoros, Director General de Servicio Civil.
 Ministerio de Hacienda:
