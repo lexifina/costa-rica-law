@@ -1,0 +1,1 @@
+Artículo 20.- La Empresa queda entendida que el presente decreto no significa privilegio ni monopolio especial para ella y que el Poder Ejecutivo puede otorgar beneficios similares en igualdad absoluta de tratamiento y por el tiempo que falta para la expiración de este decreto.

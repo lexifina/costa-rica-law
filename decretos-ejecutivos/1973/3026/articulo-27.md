@@ -1,0 +1,2 @@
+Artículo 27.- En conformidad con las disposiciones de la Ley de Industrias del Cemento Nº 2465 de 10 de noviembre de 1959, reformada por la ley Nº 2890 de 16 de noviembre de 1961, este decreto para su validez requiere la sanción de la Asamblea Legislativa; su plazo de vigencia rige a partir de la fecha en que, una vez aprobado por la Asamblea Legislativa, aparezca publicado en el Diario Oficial "La Gaceta".
+Dado en la Casa Presidencial.- San José, a los ocho días del mes de junio de mil novecientos setenta y tres.

@@ -1,0 +1,1 @@
+Artículo 25.- El capital social de Cementos del Pacífico, Sociedad Anónima, será ciento por ciento costarricense, totalmente suscrito y pagado al entrar en operaciones la Planta. La Empresa se obliga a elevar el capital social a un mínimo de ¢ 85.000,000.00 (ochenta y cinco millones de colones).
