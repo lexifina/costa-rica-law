@@ -1,0 +1,1 @@
+Artículo 16.—Responsabilidad del Fiduciario. Para efectos de responsabilidad del FIDUCIARIO queda entendido cualquier incumplimiento estipulado en el presente reglamento; en el Contrato de Fideicomiso Nº 73-2002 y el Convenio Marco Inter-Institucional con el BANACIO.

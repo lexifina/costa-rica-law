@@ -1,0 +1,1 @@
+Artículo 15.—Registro Contable de Cualquier Incobrabilidad de la Garantía. Cuando se hayan agotado todas las gestiones usuales del cobro administrativo y judicial y se compruebe la incapacidad de pago del deudor y sus codeudores o fiadores, el Fideicomiso número 73-2002; registrará como pérdidas el monto pagado en las garantías; lo anterior previa aprobación del Comité Director.

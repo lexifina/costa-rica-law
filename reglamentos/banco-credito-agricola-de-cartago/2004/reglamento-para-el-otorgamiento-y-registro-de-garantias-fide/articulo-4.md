@@ -1,0 +1,1 @@
+Artículo 4º—Recursos. Los recursos que constituyen este Fondo de Garantía, provienen del Fideicomiso número 73-2002 BICSAIMAS-BANACIO, que se encuentran depositados en el Fideicomiso y corresponden al sesenta por ciento de los activos fideicometidos.

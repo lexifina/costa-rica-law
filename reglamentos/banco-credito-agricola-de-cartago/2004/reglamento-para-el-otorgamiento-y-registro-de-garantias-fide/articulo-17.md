@@ -1,0 +1,1 @@
+Artículo 17.—Modificaciones al Reglamento. Este Reglamento podrá ser modificado todo o en parte por mutuo acuerdo entre el FIDEICOMITENTE, EL FIDUCIARIO y el BANACIO y sus nuevas versiones serán efectivas una vez comunicadas a las instituciones participantes.
