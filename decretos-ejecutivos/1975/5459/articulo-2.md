@@ -1,0 +1,1 @@
+Artículo 2°─ El Gobierno dará todas las facilidades que estén a su alcance para que los trabajos presentados en dicho Congreso tengan la debida divulgación para beneficio de los agricultores del país.
