@@ -1,0 +1,1 @@
+Art. 2. Las Municipalidades respectivas procederán al nombramiento de alcaldes de cuartel y pedáneos de aquellos pueblos, y á recojer los archivos, debiendose destinar para las escuelas de ellos, los cabildos y continuando su administración Eclesiàstica como hasta el presente.
