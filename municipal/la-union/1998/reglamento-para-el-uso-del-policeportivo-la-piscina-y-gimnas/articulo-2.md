@@ -1,0 +1,1 @@
+Artículo 2°-El Polideportivo, la piscina y el gimnasio, está bajo la administración de la Municipalidad del Cantón, como actual poseedora de los inmuebles, en que se encuentran dichas Instalaciones. Esta nombrará una Junta Administrativa para el uso y disposición de las instalaciones bajo las cláusulas del presente reglamento la cual durará en sus funciones dos años.

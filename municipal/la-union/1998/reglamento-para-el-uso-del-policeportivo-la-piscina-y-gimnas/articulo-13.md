@@ -1,0 +1,1 @@
+Artículo 13.-Los permisos que se otorguen para uso de las Instalaciones se deberá pagar a la Tesorería de la Junta Administrativa en forma adelantada, el usuario que no acate esta disposición no podrá hacer uso de ellas.

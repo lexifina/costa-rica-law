@@ -1,0 +1,1 @@
+Artículo 17.-En cuanto a los partidos amistosos, deberán solicitar su permiso a la Junta por lo menos ocho días hábiles antes y por escrito. Cuando se trate de otras actividades, deberá de enviarse la solicitud por escrito con quince días hábiles para poder programar la actividad y otras que están completadas en el artículo XI.

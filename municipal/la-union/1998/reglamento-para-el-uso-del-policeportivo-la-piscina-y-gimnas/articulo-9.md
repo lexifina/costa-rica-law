@@ -1,0 +1,1 @@
+Artículo 9°-Los equipos organizados que soliciten el uso de las instalaciones, estarán obligados a pagar la tarifa correspondiente según lo disponga la Junta Administrativa mediarlte un acuerdo, respetando lo establecido en el artículo anterior.

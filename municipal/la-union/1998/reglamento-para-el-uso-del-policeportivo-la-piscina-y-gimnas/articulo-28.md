@@ -1,0 +1,1 @@
+Artículo 28.-Queda prohibida la venta de bebidas alcohólicas y el ingreso de éstas a las instalaciones, también está prohibido el ingreso de armas de fuego, armas punzo cortantes con bases de madera, envases de lata y de vidrio, así como banderas.

@@ -1,0 +1,1 @@
+Artículo 25.-Las organizaciones deportivas, culturales u otras que arriendan las Instalaciones no podrán celebrar contratos o convenios con segundas organizaciones, bien sean comerciales o publicitarias, si no es con la debida autorización de la Junta Administrativa de cada instalación.

@@ -1,0 +1,1 @@
+Artículo 18.-Los clubes, instituciones, organizaciones o personas físicas o jurídicas, que soliciten el inmueble, deberán firmar a priori un contrato responsabilizándose por los daños que se ocasionen con motivo de las actividades en estas instalaciones, más los costos de un trámite judicial y se reserva el derecho de elevar a Instancias judiciales o no.
