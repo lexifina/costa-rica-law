@@ -1,0 +1,1 @@
+Art 3° En un decreto posterior se fijarán las atribuciones de este Cuerpo y se dictará de Reglamento a que deba sujetarse en sus deliberaciones- Entre tanto ilustrará al Poder Ejecutivo en los asuntos que este le someta.
