@@ -1,0 +1,3 @@
+Artículo 2°—Modifiqúese el párrafo tercero del artículo 6° del "Reglamento para el Enriquecimiento de la Harina de Trigo de Calidad Alimentaria" Decreto Ejecutivo N° 26371-S del 18 de setiembre de 1997, para que en lo sucesivo se lean así:
+"Artículo 6°—Comercialización...
+...El etiquetado de la harina y sémola de trigo se ajustará a lo estipulado en la Norma General de Etiquetado de los Alimentos Preenvasados y deberá especificar que se trata de un producto enriquecido con la frase "HARINA DE TRIGO ENRIQUECIDA" o "HARINA DE TRIGO FORTIFICADA", además deberá contener un panel que incluya el contenido final total de micronutrientes (el adicionado y el contenido naturalmente)."
