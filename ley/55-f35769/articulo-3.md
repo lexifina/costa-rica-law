@@ -1,0 +1,1 @@
+Art. 3°-Si dentro de un año, à partir de esta fecha, el señor Volio no ha instalado sus trabajos, de acuerdo con las prescripciones determinadas en el pliego cerrado que ha de presentar al Ministerio de Fomento, por el mismo hecho caducará el privilegio.
