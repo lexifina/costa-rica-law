@@ -1,0 +1,2 @@
+Art. 72.-Cuando los comparecientes lo sean á nombre de otro, el Cartulario dará fe de su personalidad en vista del documento en que conste, que citará con especificación de su fecha y del funcionario que lo autoriza.
+Si el Cartulario no encontrare legitimada la personalidad con el documento que se le exhibe, lo advertirá así á los interesados, é insistiendo éstos en que se otorgue la escritura, insertará en ella el documento que se presente como justificativo de la personalidad.

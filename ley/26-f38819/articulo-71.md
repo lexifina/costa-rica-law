@@ -1,0 +1,2 @@
+Art. 71-Si el Cartulario no conociere á las partes ó á alguna de ellas, deben ocurrir al otorgamiento de la escritura dos testigos más que las conozcan y sean conocidos del Cartulario, para que él funde sobre el dicho de ellos la fe de identidad.
+En el caso de que el Cartulario no conozca á las partes ni puedan éstas presentar testigos de conocimiento, lo hará constar así en la escritura especificando en su caso, los documentos que le hubieren exhibido como comprobantes de su identidad y capacidad.

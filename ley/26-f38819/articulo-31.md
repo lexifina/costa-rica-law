@@ -1,0 +1,1 @@
+Art. 31.-Cuando por cualquier motivo un protocolo debiere pasar á otro Notario ó Cartulario ó al Archivero Judicial, inmediatamente después de la última es cr itura, extenderán y firmarán el funcionario que lo entregare y el que lo que lo recibiere, razón del número de folios es cr itos que contenga; de los que aun queden en blanco, y del motivo porque se hace el traspaso.

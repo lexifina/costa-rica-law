@@ -1,0 +1,2 @@
+Art. 100.-Cuando los actos ó contratos se celebren fuera del estudio del Notario, dentro de la población de su residencia, además de los derechos correspondientes á la escritura, según su valor, percibirá por la primera hora -------------------------------------------------------------2-00
+Y por cada una de las sucesivas-----------------------------------------------------------------------------1-00

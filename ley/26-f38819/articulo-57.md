@@ -1,0 +1,1 @@
+Art. 57.-En el caso en que hubiere quedado alguna escritura sin reponer cuando se archive el protocolo, podrá después el interesado solicitar á su costa la reposición ante el Juez, quien la ordenará y practicará la trascripción del testimonio que se le hubiere presentado.
