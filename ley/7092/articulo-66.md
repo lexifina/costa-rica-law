@@ -1,0 +1,3 @@
+CAPITULO XXVIII
+Valuación de operaciones en monedas extranjeras
+Artículo 66.- Todos los contribuyentes afectos a los tributos establecidos en esta ley, que realicen operaciones o reciban ingresos en monedas extranjeras que incidan en la determinación de su renta líquida gravable, deberán efectuar la conversión de esas monedas a moneda nacional utilizando el tipo de cambio “intercambio” establecido por el Banco Central de Costa Rica, que prevalezca en el momento en que se realice la operación o se perciba el ingreso. Todas las operaciones pendientes o los ingresos no recibidos al 30 de setiembre de cada ejercicio fiscal, se valuarán al tipo de cambio fijado por el Banco Central de Costa Rica a esa fecha.

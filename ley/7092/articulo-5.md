@@ -1,0 +1,8 @@
+CAPITULO IV
+De la determinación de la base imponible
+Artículo 5º.- Renta bruta.
+La renta bruta es el conjunto de los ingresos o beneficios percibidos en el período del impuesto por el sujeto pasivo, en virtud de las actividades a que se refiere el párrafo tercero del artículo 1º.
+La renta bruta de las personas domiciliadas en el país está formada por el total de los ingresos o beneficios percibidos o devengados durante el período fiscal, provenientes de cualquier fuente costarricense, de la explotación o negocio de bienes inmuebles, de la colocación de capitales -sean depósitos, valores u otros- o de las actividades empresariales.
+También forma parte de la renta bruta cualquier incremento del patrimonio que no tenga su justificación en ingresos debidamente registrados y declarados, a partir del período fiscal siguiente a la vigencia de esta ley.
+Para estos fines, el contribuyente está obligado a demostrar el origen de tal incremento y, además, que ha tributado de conformidad con las disposiciones legales aplicables al caso, o que está exento por ley; de lo contrario, dicho incremento del patrimonio se computará como renta bruta, en el momento que la Administración Tributaria lo determine, y afectará el período que corresponda, dentro del plazo de prescripción que establece el Código de Normas y Procedimientos Tributarios. Para esos efectos no se considera como incremento del patrimonio, la repatriación de capitales.
+Para la verificación de estos antecedentes, todo contribuyente obligado a declarar el impuesto sobre la renta deberá acompañar a su declaración anual un estado patrimonial de sus bienes, incluidos sus activos y pasivos, de acuerdo con lo que se disponga en el reglamento de esta ley.
