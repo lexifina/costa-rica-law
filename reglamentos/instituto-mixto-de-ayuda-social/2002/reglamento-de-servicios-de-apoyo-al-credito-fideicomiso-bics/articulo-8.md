@@ -1,0 +1,8 @@
+Artículo 8º—Usuarios (as) de los servicios de apoyo al crédito. El desarrollo de los programas de los servicios de apoyo al crédito, contemplará la realización de actividades grupales (talleres, seminarios, charlas, proyectos piloto, etc.) focalizadas en la siguiente población:
+• Mujeres y familias en condición de pobreza, calificadas como tales con los parámetros e instrumentos que ha establecido el Imas en el eje de Economía Solidaria, y en los programas insterinstitucionales Construyendo Oportunidades y Creciendo Juntas.
+• Costarricenses por nacimiento o nacionalizados (as), mayores de edad, de ambos sexos, de bajos ingresos económicos, del cual dependa el sustento de la familia.
+• Extranjeros (as) con cédula de residencia al día, mayores de edad, de ambos sexos, y de bajos ingresos económicos, del cual dependa el sustento de la familia.
+• Mujeres costarricenses por nacimiento o nacionalizadas, jefas de hogar, emprendedoras y creativas de bajos ingresos económicos que vengan a ser complementados con el desarrollo de una actividad, para el sustento de su familia.
+• Costarricenses por nacimiento o nacionalizados (as), mayores de edad, dueños de microempresas, con deseos de potenciar su negocio, mejorando la productividad y competitividad de los productos o servicios que ofrece en el mercado, asumiendo riesgos razonables y la responsabilidad de un financiamiento crediticio.
+• Emprendedores (as), creativos (as) y con espíritu de innovación, que emprendan actividades productivas (cuenta propia), en las diferentes ramas y subramas de actividad.
+• Organizaciones de empresarios (as) del sector de la microempresa, que presenten proyectos para su financiamiento total o parcial, que persigan el mejoramiento de competitividad de sus agremiados (as).

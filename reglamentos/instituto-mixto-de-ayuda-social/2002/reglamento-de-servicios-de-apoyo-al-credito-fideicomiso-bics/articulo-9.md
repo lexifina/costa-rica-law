@@ -1,0 +1,8 @@
+Artículo 9º—De los colaboradores. Serán colaboradores de los servicios de apoyo al crédito, las Gerencias Regionales del Imas, las oficinas sectoriales regionales agropecuarios que coordina el Ministerio de Agricultura y Ganadería y el Consejo Nacional de la Producción, las oficinas sectoriales del Instituto de Desarrollo Agrario, oficinas sectoriales que coordina el Ministerio de la Condición de la Mujer, las oficinas Municipales de la Mujer, y otras oficinas públicas o privadas que desean colaborar en la prestación de los servicios. Las instituciones que para este fin tienen la siguiente participación:
+a. Determinar necesidades de apoyo al crédito y presentarlas a la Unidad Ejecutora para su valoración.
+b. Apoyar en capacitación y asistencia técnica los proyectos financiados objeto del Convenio Marco de Cooperación y el Contrato de Fideicomiso.
+c. Recomendar proyectos productivos según las necesidades de apoyo al crédito que requieran.
+d. Recomendar prestarios de servicios de apoyo al crédito y gestionar ante la Unidad Ejecutora, la inscripción de con personas físicas o jurídicas o las organizaciones e instituciones.
+e- Tramitar ante la Unidad Ejecutora, la suscripción de cualquier contrato de servicios de apoyo al crédito, según la necesidad determinada.
+f. Ser verificadores de que los préstanos de los servicios de apoyo al crédito, cumplan con el plan de actividades y garantizar que los servicios se den en tiempo oportuno.
+g. Tramitar ante la Unidad Ejecutora los pagos por servicios de apoyo al crédito, según el plan de desembolsos establecido en el contrato por servicios. La solicitud de desembolsos debe contar con el visto bueno de la Gerencia Regional del Imas respectiva y según la reglamentación vigente.

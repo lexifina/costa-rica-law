@@ -1,0 +1,3 @@
+Artículo 7º—Plan anual de servicios de apoyo al crédito. Los Servicios de Apoyo al Crédito funcionarán con un Plan Anual emitido al efecto, donde se especificarán las prioridades institucionales.
+La Unidad Ejecutora formulará anualmente el plan supracitado atendiendo las necesidades detectadas, por los usuarios de las garantías, propuestas de organizaciones y grupos de microempresarios (as) y los estudios específicos contratados para tal efecto.
+Este Plan Anual Operativo (PAO) deberá ser aprobado por el Comité Director del Fideicomiso, previa presentación del Plan como tal y del presupuesto. Así como, de la aprobación de la Contraloría General de la República.
