@@ -1,0 +1,1 @@
+Artículo 3°-El Estudio de Impacto Ambiental (EIA), en ambas fases, deberá estar firmado por el representante legal de la empresa que realizará el proyecto, y por los profesionales responsables de su elaboración, de conformidad con las normas establecidas por los colegios profesionales respectivos.
