@@ -13,3 +13,4 @@ Crea el Departamento de Avalúos MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-13 | la propia norma |
+| 2 | 1980-06-13 | SINALEVI (sin norma nombrada) |
