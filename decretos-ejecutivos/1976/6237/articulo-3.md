@@ -43,7 +43,7 @@ Programa | Puesto | Código | Clave
 Asesoría y Control de Materia Hacendaria | | |
 Unidad de Economía y Control Hacendario | | |
 Departamento de Economía y Control Hacendario | Economista 3 | 09-09-005- | 15334”)
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 9462 del 16 de agosto de 1978, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 9462(*) del 16 de agosto de 1978, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
 Programa | Puesto | Código | Clave
 Administración de Impuestos Directos | | |
 Unidad de Dirección y Administración | | |
@@ -63,6 +63,20 @@ Grupo Avalúos Rurales | Perito Valuador Rural | 0949145 | 18027
 Grupo Servicios Auxiliares de Avalúos | Asistente Fiscal | 0949170 | 12528
 | Asistente Fiscal | 0949170 | 12529
 | Asistente Fiscal | 0949127 | 6001”)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo 10331 del 19 de julio de 1979, se acoró reformar el decreto ejecutivo N° 9462 del 16 de agosto de 1978, para que en lo sucesivo se lea de la siguiente manera:
+“Programa | Puesto | Código | Clave
+Unidad de Recaudación de Impuesto | | |
+Departamento de Recaudación | | |
+Sección Control Renta | Asistente Fiscal | 0945065 | 8680
+Unidad de Administración Tributaria | | |
+Departamento de Impuestos sobre la Renta, Ventas y Otros Impuestos Indirectos | | |
+Grupo Control de Morosos, Nóminas y Archivo | Asistente Fiscal | 0947185 | 6097
+Unidad de Administración del Impuesto Territorial | | |
+Sección de Anotación | Asistente Fiscal | 0949040 | 852
+Grupo Avalúos Rurales | Perito Valuador Rural | 0949145 | 18027
+Grupo Servicios Auxiliares de Avalúos | Asistente Fiscal | 0949170 | 12528
+| Asistente Fiscal | 0949170 | 12529
+| Asistente Fiscal | 0949127 | 6001”
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 9208 del 4 de octubre de 1978,, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
 Programa | Puesto | Código | Clave
 Administración de Impuestos | | |
