@@ -1,0 +1,1 @@
+Artículo 9°—Los miembros de los Concejos Municipales de Distrito tomarán posesión el primer día hábil siguiente a aquel en que quede firme el acta municipal que contenga el nombramiento, de conformidad con la nómina de selección elegida por consulta popular en el Distrito.

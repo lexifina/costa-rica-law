@@ -1,0 +1,1 @@
+Artículo 34.—Por votación de las dos terceras partes de la totalidad de los miembros y en situaciones calificadas de urgencia, podrá el Concejo Municipal de Distrito declarar sus acuerdos como definitivamente aprobados.

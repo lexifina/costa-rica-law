@@ -1,0 +1,1 @@
+Artículo 43.—En todo lo no dispuesto por este Reglamento aplicará supletoriamente el Código Municipal y sus Reformas, el Ordenamiento Jurídico Público vigente y demás fuentes del Derecho Público, de conformidad con lo dispuesto en los artículos 6, 7, 8, 9, 10, 11, 12 y siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 29.—Cualquier funcionario municipal podrá ser llamado a las sesiones del Concejo Municipal de Distrito, cuando así éste lo acordare y sin que por ello se deba pagar remuneración alguna. Tal convocatoria se hará solo en casos muy especiales y calificados, para tratar asuntos de suma urgencia, concernientes al Distrito.

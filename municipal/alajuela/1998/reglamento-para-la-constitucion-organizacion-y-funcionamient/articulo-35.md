@@ -1,0 +1,1 @@
+Artículo 35.—El Secretario del Concejo Municipal de Distrito formará un expediente para cada proyecto, de acuerdo al cual, se agregará el dictamen de Comisión y las mociones que se presenten durante el debate. Los acuerdos tomados se transcribirán con las firmas al pie del Presidente y del Secretario.

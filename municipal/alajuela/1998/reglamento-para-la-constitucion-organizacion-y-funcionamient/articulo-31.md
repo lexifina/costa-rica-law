@@ -1,0 +1,2 @@
+Artículo 31.—El Concejo Municipal de Distrito tomará sus acuerdos por simple mayoría de los votos de los miembros presentes, salvo en los casos en que este Reglamento prescriba una mayoría especial.
+Cuando se produjere un empate al efectuar una votación, ésta se repetirá en el acto y, de repetirse el empate el asunto se conocerá en la sesión ordinaria siguiente. De persistir el empate, el asunto se tendrá por desechado.

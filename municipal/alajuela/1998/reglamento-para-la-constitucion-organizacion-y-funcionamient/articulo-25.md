@@ -1,0 +1,1 @@
+Artículo 25.—Las sesiones del Concejo Municipal de Distrito deberán efectuarse en el local sede que para el caso definan por unanimidad sus miembros al iniciarse cada periodo de gestión. El local que se escoja deberá ser accesible a los vecinos y su cambio de sede requerirá de acuerdo adoptado por unanimidad de votos de sus miembros.
