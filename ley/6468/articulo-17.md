@@ -1,0 +1,31 @@
+ARTICULO 17
+Modificaciones
+1) Las propuestas de modificación del presente Convenio podrán ser
+presentadas por todo Estado miembro, por el Comité de Coordinación o por el
+Director General. Esas propuestas serán comunicadas por este último a los
+Estados miembros, al menos seis meses antes de ser sometidas a examen de la
+Conferencia.
+2) Todas las modificaciones deberán ser adoptadas por la Conferencia. Si
+se trata de modificaciones que puedan afectar a los derechos y obligaciones
+de los Estados parte en el presente Convenio que no sean miembros de alguna
+de las Uniones, esos Estados participarán igualmente en la votación. Los
+Estados parte en el presente Convenio que sean miembros por lo menos de una
+de las Uniones, serán los únicos facultados para votar sobre todas las
+demás propuestas de modificación. Las modificaciones serán adoptadas por
+mayoría simple de los votos emitidos, en la inteligencia de que la
+Conferencia sólo votará sobre las propuestas de modificación previamente
+adoptadas por la Asamblea de la Unión de Berna, de conformidad con las
+reglas aplicables en cada una de ellas a las modificaciones de las
+disposiciones administrativas de sus respectivos convenios.
+3) Toda modificación entrará en vigor un mes después de que el Director
+General haya recibido notificación escrita de su aceptación, efectuada de
+conformidad con sus respectivos procedimientos constitucionales, de tres
+cuartos de los Estados que eran miembros de la Organización y que tenían
+derecho de voto sobra la modificación propuesta según el apartado 2), en el
+momento en que la modificación hubiese sido adoptada por la Conferencia.
+Toda modificación así aceptada obligará los Estados que sean miembros de la
+Organización en el momento en que la modificación entre en vigor o que se
+hagan miembros en una fecha ulterior; sin embargo, toda modificación que
+incremente las obligaciones financieras de los Estados miembros, sólo
+obligará a los Estados que hayan notificado su aceptación de la mencionada
+modificación.
