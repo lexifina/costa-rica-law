@@ -1,0 +1,1 @@
+Artículo 15.-En caso de que un acontecimiento afecte a varias familias del cantón, la Federación ayudará a tantos vecinos como lo permitan los recursos establecidos y, ejercerá las acciones que estén a su alcance ante las instituciones del Estado, a fin de solventar de la mejor manera posible el problema de sus habitantes.
