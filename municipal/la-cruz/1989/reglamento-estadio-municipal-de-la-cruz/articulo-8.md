@@ -1,0 +1,1 @@
+Artículo 8°-La Junta Administrativa ha de llevar libros de actas, tesorería, debidamente registrados ante el Comité Cantonal de Deportes. Habrá de rendir informes mensuales de sus actividades a la Municipalidad con copia al Comité de Deportes.

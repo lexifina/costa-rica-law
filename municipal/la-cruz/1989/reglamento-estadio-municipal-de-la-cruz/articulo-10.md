@@ -1,0 +1,1 @@
+Artículo 10.-Para que las reuniones tengan validez, deberá contarse con un mínimo de cuatro miembros. En caso de no existir el quórum necesario a la hpra fijada, se darán quince minutos de espera. Transcurrido ese lapso se inicia o suspende la reunión, sea que exista o no el quórum. Los acuerdos se tomarán por simple mayoría.

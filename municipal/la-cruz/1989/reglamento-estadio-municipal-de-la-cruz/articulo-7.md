@@ -1,0 +1,1 @@
+Artículo 7°-Si algún miembro renunciara- o fuese removido de su cargo, la Municipalidad hará el nombramiento del sustituto por el tiempo que le quedase al miembro reemplazado, según los artículos 3°, 4° y 7°.
