@@ -12,10 +12,10 @@ representantes plenipotenciarios debidamente acreditados,
 CONVENCIDOS que la integración de América Latina como objetivo común
 de nuestros países, es un proceso histórico que requiere acelerarse y
 profundizarse;
-TENIENDO EN CUENTA que la participación de los pueblos latinoamericanos a
-través de la diversidad de sus corrientes políticas e ideológicas,
-representadas en sus parlamentos nacionales, afirma el fundamento democrático
-de la integración.
+TENIENDO EN CUENTA que la participación de los pueblos
+latinoamericanos a través de la diversidad de sus corrientes políticas e
+ideológicas, representadas en sus parlamentos nacionales, afirma el
+fundamento democrático de la integración.
 INSPIRADOS en las tradiciones de los héroes y fundadores de las patrias
 latinoamericanas, en lo relativo a la defensa de la independencia y al
 ejercicio pleno de la soberanía popular y nacional, y
@@ -35,58 +35,63 @@ inalterables:
 a) La defensa de la democracia;
 b) La integración latinoamericana;
 c) La no intervención;
-d) La autodeterminación de los pueblos para darse, en su régimen interior, el
-sistema político, económico y social que libremente decidan;
+d) La autodeterminación de los pueblos para darse, en su régimen
+interior, el sistema político, económico y social que libremente decidan;
 e) La pluralidad política e ideológica como base de una comunidad
 latinoamericana democráticamente organizada;
 f) La igualdad jurídica de los Estados;
-g) La condena a la amenaza y al uso de la fuerza contra la independencia
-política y la integridad territorial de los Estados;
+g) La condena a la amenaza y al uso de la fuerza contra la
+independencia política y la integridad territorial de los Estados;
 h) La solución pacífica, justa y negociada de las controversias
 internacionales, e
-i) La prevalencia de los principios de derecho internacional referentes a las
-relaciones de amistad y a la cooperación entre los Estados, de conformidad con
-la Carta de la Organización de las Naciones Unidas.
+i) La prevalencia de los principios de derecho internacional
+referentes a las relaciones de amistad y a la cooperación entre los
+Estados, de conformidad con la Carta de la Organización de las Naciones
+Unidas.
 ARTICULO 3
 Propósitos
 El Parlamento tendrá, entre otros, los siguientes propósitos:
-a) Fomentar el desarrollo económico y social integral de la comunidad
-latinoamericana y pugnar porque alcance, a la brevedad posible, la plena
-integración económica, política y cultural de sus pueblos;
+a) Fomentar el desarrollo económico y social integral de la
+comunidad latinoamericana y pugnar porque alcance, a la brevedad
+posible, la plena integración económica, política y cultural de sus
+pueblos;
 b) Defender la plena vigencia de la libertad, la justicia social, la
-independencia económica y el ejercicio de la democracia representativa con
-estricto apego a los principios de no intervención y de libre
+independencia económica y el ejercicio de la democracia representativa
+con estricto apego a los principios de no intervención y de libre
 autodeterminación de los pueblos;
-c) Velar por el estricto respeto a los derechos humanos fundamentales,
-y porque no sean afectados en ningún Estado latinoamericano en cualquier
-forma que menoscabe la dignidad humana;
-d) Luchar por la supresión de toda forma de colonialismo, neo-colonialismo,
-racismo y cualquier otra forma de discriminación en América Latina;
-e) Oponerse a la acción imperialista en América Latina, recomendando la
-adecuada legislación normativa y programática que permita a los pueblos
-latinoamericanos el pleno ejercicio de su soberanía permanente sobre sus
-recursos naturales, y su mejor utilización y conservación;
+c) Velar por el estricto respeto a los derechos humanos
+fundamentales, y porque no sean afectados en ningún Estado
+latinoamericano en cualquier forma que menoscabe la dignidad humana;
+d) Luchar por la supresión de toda forma de colonialismo,
+neo-colonialismo, racismo y cualquier otra forma de discriminación en
+América Latina;
+e) Oponerse a la acción imperialista en América Latina, recomendando
+la adecuada legislación normativa y programática que permita a los
+pueblos latinoamericanos el pleno ejercicio de su soberanía permanente
+sobre sus recursos naturales, y su mejor utilización y conservación;
 f) Luchar en favor de la cooperación internacional, como medio para
 instrumentar y fomentar el desarrollo armónico de la comunidad
 latinoamericana, en términos de bienestar general;
-g) Contribuir a la afirmación de la paz, la seguridad y el orden jurídico
-internacionales y luchar por el desarme mundial, denunciando y combatiendo el
-armamentismo y la agresión de quienes sustenten la política de la fuerza, que
-son incompatibles con el desarrollo económico, social, cultural y tecnológico a
-que tienen derecho los pueblos de América Latina;
-h) Canalizar y apoyar las exigencias de los pueblos de América Latina, en el
-ámbito internacional, respecto al justo reconocimiento de sus derechos, en la
-lucha por la instauración de un Nuevo Orden Económico Internacional;
-i) Propugnar, por todos los medios posibles, el fortalecimiento de los
-Parlamentos de América Latina, para garantizar la vida constitucional y
-democrática de los Estados, así como propiciar, con los medios a su alcance y
-sin perjuicio del principio de la no intervención, el restablecimiento de
-aquéllos que hayan sido disueltos;
+g) Contribuir a la afirmación de la paz, la seguridad y el orden
+jurídico internacionales y luchar por el desarme mundial, denunciando y
+combatiendo el armamentismo y la agresión de quienes sustenten la
+política de la fuerza, que son incompatibles con el desarrollo económico,
+social, cultural y tecnológico a que tienen derecho los pueblos de
+América Latina;
+h) Canalizar y apoyar las exigencias de los pueblos de América
+Latina, en el ámbito internacional, respecto al justo reconocimiento de
+sus derechos, en la lucha por la instauración de un Nuevo Orden Económico
+Internacional;
+i) Propugnar, por todos los medios posibles, el fortalecimiento de
+los Parlamentos de América Latina, para garantizar la vida constitucional
+y democrática de los Estados, así como propiciar, con los medios a su
+alcance y sin perjuicio del principio de la no intervención, el
+restablecimiento de aquéllos que hayan sido disueltos;
 j) Apoyar la constitución y fortalecimiento de Parlamentos
 subregionales de América Latina, que coincidan con el Parlamento en y sus
 principios y propósitos;
-k) Mantener relaciones con Parlamentos de todas las regiones geográficas, así
-como con organismos internacionales, y
+k) Mantener relaciones con Parlamentos de todas las regiones
+geográficas, así como con organismos internacionales, y
 l) Difundir la actividad legislativa de sus Miembros.
 ARTICULO 4
 Los Miembros
@@ -99,12 +104,12 @@ Organos
 Los órganos del Parlamento serán la Asamblea, La Junta Directiva, las
 Comisiones Permanentes y la Secretaría General.
 La Asamblea será el órgano supremo del Parlamento y adoptará, de
-conformidad con el presente Tratado, el Estatuto del Parlamento en el que se
-dispondrá todo lo relativo a la composición, atribuciones y funcionamiento de
-sus órganos.
+conformidad con el presente Tratado, el Estatuto del Parlamento en el que
+se dispondrá todo lo relativo a la composición, atribuciones y
+funcionamiento de sus órganos.
 La Asamblea tendrá, asimismo, la facultad de suspender a un
-Parlamento Miembro en su carácter de tal cuando no se cumplan, en su caso, los
-requisitos establecidos en el presente Tratado.
+Parlamento Miembro en su carácter de tal cuando no se cumplan, en su
+caso, los requisitos establecidos en el presente Tratado.
 ARTICULO 6
 Personalidad y Prerrogativas
 De conformidad con el derecho internacional, el Parlamento gozará de
