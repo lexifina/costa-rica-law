@@ -1,1 +1,0 @@
-Artículo 9°—El comerciante que procediere dolosamente, o fundiendo los avisos de periódico en que se da cuenta del resultado los sorteos o en cualquier otra forma, será denunciado por el Gobernador o Jefe Político ante las autoridades competentes, siempre uno o más interesados presentare queja escrita.

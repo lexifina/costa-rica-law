@@ -1,1 +1,0 @@
-Artículo 7°—En ningún caso practicará la Agencia Principal de Policía, llamada a hacerlo, o Jefatura Política, sorteo alguno usando fichas de propiedad del comerciante interesado en la rifa; esas autoridades dispondrán de sus propias fichas para ese efecto.

@@ -1,2 +1,0 @@
-Artículo 10.—Las disposiciones del presente decreto regirán para los sorteos que en lo sucesivo se verifiquen de clubes ya organizados cuando así lo prefieran los comerciantes que ya han sido autorizados por la Gobernación o Jefatura Política; y sin excepción, aplicarán a todo nuevo club o serie que a la fecha de su promulgación no hayan sido autorizados.
-Dado en la Casa presidencial.- San José, a los veintitrés días del mes de setiembre de mil novecientos cuarenta y dos.
