@@ -1,0 +1,1 @@
+Articulo 5°-Los montos que se recauden por tal concepto pasarán al Fondo de Seguridad Vial y serán utilizados preferentemente para el cumplimiento de los programas asignados a la Dirección General de Educación Vial, de acuerdo con lo establecido en el Decreto N° 15452·MOPT.

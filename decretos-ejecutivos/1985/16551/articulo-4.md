@@ -1,0 +1,1 @@
+Articulo 4°-Los interesados deberán cancelar previamente dichos montos en las oficinas centrales del Consejo de Seguridad Vial, para lo cual se les extenderá el respectivo recibo, el que deberán presentar obligatoriamente en la Dirección General de Educación Vial para la realización de la prueba o cualquiera de los cursos.

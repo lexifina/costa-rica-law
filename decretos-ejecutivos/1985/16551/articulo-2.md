@@ -1,0 +1,1 @@
+Articulo 2°-Para obtener permiso para conducir o licencia por primera vez, el interesado deberá aprobar el Curso Básico de Seguridad Vial y aspectos mecánicos elementales, cuyo valor se fija en la suma de ¢500,00 (quinientos colones).
