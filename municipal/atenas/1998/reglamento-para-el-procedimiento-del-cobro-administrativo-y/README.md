@@ -14,3 +14,4 @@ Reglamento para el Procedimiento del Cobro Administrativo y Judicial.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-25 | la propia norma |
+| 2 | 1999-03-01 | Reglamento municipal 64 (1999-03-01) |
