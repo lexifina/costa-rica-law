@@ -1,3 +1,3 @@
-Artículo 90.- En todos los casos de disolución, la Dirección nombrará un liquidador, el cual hará un inventario de los bienes y valores de la Asociación, los que serán administrados por ésta, hasta tanto ella proceda a reorganizar la antigua Asociación, los que serán administrados por ésta, hasta tanto ella proceda a reorganizar la antigua Asociación o a promover la constitución de una que la sustituya.
-El liquidador deberá denunciar ante los tribunales competentes, cualquier delito o falta de que tenga conocimiento en el ejercicio de sus funciones, atribuibles a los miembros de la Junta Directiva
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6426 del 4 de octubre de 1976)
+Artículo 90.- En todos los casos de disolución, la Dirección nombrara a un liquidador el cual hará un inventario de los bienes y valores de la entidad, y bajo su responsabilidad, los pondrá a la orden de la Dirección para que sean administrados por ésta, hasta tanto proceda a reorganizar la antigua asociación o a promover la creación de una que la sustituya.
+El liquidador deberá denunciar ante los tribunales comunes, cualquier delito o falta que tenga conocimiento en el ejercicio de sus funciones, atribuibles a los miembros de la Junta Directiva.
+(Así reformado por el artículo único del decreto ejecutivo N° 11153 del 8 de febrero de 1980)
