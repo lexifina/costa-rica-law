@@ -16,3 +16,4 @@ Reglamento del Registro Público
 | 1 | 1998-03-18 | la propia norma |
 | 2 | 1998-06-10 | Decreto Ejecutivo 27132 (1998-06-10) |
 | 3 | 1998-08-19 | Decreto Ejecutivo 27281 (1998-08-19) |
+| 4 | 1999-05-26 | Decreto Ejecutivo 27934 (1999-05-26) |
