@@ -1,0 +1,2 @@
+Artículo 13
+Revisión judicial Cada Miembro en cuya legislación nacional existan disposiciones sobre medidas antidumping mantendrá tribunales o procedimientos judiciales, arbitrales o administrativos destinados, entre otros fines, a la pronta revisión de las medidas administrativas vinculadas a las determinaciones definitivas y a los exámenes de las determinaciones en el sentido del artículo 11. Dichos tribunales o procedimientos serán independientes de las autoridades encargadas de la determinación o examen de que se trate.
