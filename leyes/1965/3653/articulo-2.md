@@ -1,4 +1,4 @@
-ARTICULO 2º.- Esta ratificación se hace en el entendido de que las
-Convenciones de México, de Washington y de San José, a que hace
-referencia la cláusula 15, sólo se invalidan en lo que respecta a las
-relaciones mutuas entre los países signatarios de la presente.
+ARTICULO 2º.- El centroamericano autorizado para ejercer su
+profesión en alguno de los Estados partes del Presente Convenio, quedará
+sujeto a todas las leyes, reglamentos, impuestos y deberes que se exigen
+a los nacionales de ese Estado.
