@@ -1,6 +1,6 @@
 # Ley de Pensiones para Expresidentes
 
-Ley N° 313 del 1939-08-23. SINALEVI, ficha 9662: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9662&param2=136157&param3=1>.
+Ley N° 313 del 1939-08-23. SINALEVI, ficha 9662: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9662&param2=136159&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 14 | 1961-10-26 | Ley 2835 | 1961-10-23 |
 | 5 de 14 | 1974-04-19 | Ley 5510 | 1974-04-19 |
 | 6 de 14 | 1977-12-26 | Ley 6191 | 1977-12-12 |
+| 7 de 14 | 1978-12-27 | Ley 6305 | 1978-12-21 |
