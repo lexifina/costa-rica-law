@@ -14,3 +14,4 @@ Reforma al Reglamento para la Concesión de Adelantos a Rentistas de Riesgos del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-09 | la propia norma |
+| 2 | 2002-05-06 | Reglamento 8540 (2002-05-06) |
