@@ -1,0 +1,1 @@
+Artículo 10º- Las situaciones especiales de rescate y operativos policiales de cualquier índole, deberán ser previamente coordinadas con la administración del área protegida y de Coordinador del ACCVC.
