@@ -1,0 +1,1 @@
+Artículo IV.—Se prohíbe la permanencia de personas no autorizadas para estar dentro de la misma, por lo tanto los días de sesión se abrirá media hora antes de dar inicio ésta, para que el público asistente se ubique en el lugar asignado sin cambiar el ordenamiento establecido del mobiliario. Los días de Sesiones Administrativas se abre una hora antes.

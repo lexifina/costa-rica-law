@@ -1,0 +1,1 @@
+Artículo VII.—Queda al servicio del público asistente dos servicios sanitarios ubicados en el sector norte de la Sala de Sesiones, asimismo quedan al uso de las personas autorizadas para permanecer dentro del recinto, dos servicios sanitarios en el sector sur.

@@ -1,0 +1,1 @@
+Artículo V.—Por estar regulado según decreto de Ley, la prohibición de fumar dentro de las instituciones públicas y por considerarse ésta entre ellas, se prohíbe terminantemente fumar en este recinto. (Ley No 173-98 SJ, publicado en el Diario Oficial " La Gaceta " N° 26 del 06 de febrero de 1987).

@@ -1,0 +1,1 @@
+Artículo VI.—Se prohíbe asistir en vestuario inadecuado; pantalonera, camiseta de tirantes, o bajo los efectos de cualquier droga o similares, portar armas de fuego o punzó-cortantes a personas no autorizadas por la Ley.

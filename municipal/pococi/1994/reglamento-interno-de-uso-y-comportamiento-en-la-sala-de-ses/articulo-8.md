@@ -1,0 +1,1 @@
+Artículo VIII.—Se autorizará la permanencia dentro del recinto separado por la baranda a los señores Regidores Propietarios, Suplentes y Síndicos, el Ejecutivo Municipal, el Secretario, el Personal Administrativo al servicio o toda aquella persona, que por acuerdo del Concejo se le autorice.

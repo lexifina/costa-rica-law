@@ -1,0 +1,1 @@
+Artículo IX.—El uso de las curules será en el siguiente orden: en el centro quien presida, a su derecha el Ejecutivo y cuatro Regidores, a su izquierda el Secretario y cuatro Regidores, los Suplentes se ubicarán en los costados del recinto.

@@ -1,0 +1,1 @@
+Artículo II.—Por ser un inmueble que está bajo las regulaciones de la supervisión administrativa según artículo No 57 del Código Municipal, su aplicación será bajo las normas establecidas por la Ley y bajo la responsabilidad de la Dirección Ejecutiva.

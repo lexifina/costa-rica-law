@@ -1,0 +1,1 @@
+Artículo XI.—Los cuatro aposentos ubicados en la parte trasera del recinto, se les dará el siguiente uso: el ubicado en el sector este, será utilizado por la Dirección Ejecutiva , los tres restantes en el sector oeste, serán utilizados uno por cada fracción.
