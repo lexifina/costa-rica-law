@@ -1,9 +1,9 @@
 CONVENIO PARA LA CONSERVACION DE LA BIODIVERSIDAD Y
 PROTECCION DE AREAS SILVESTRES PRIORITARIAS EN AMERICA CENTRAL
-ARTICULO 1.- Apruébase el Convenio para la Conservación de la
+Artículo 1.- Apruébase el Convenio para la Conservación de la
 Biodiversidad y Protección de Areas Silvestres Prioritarias en América
-Central, suscrito en Managua, Nicaragua, el 5 de junio de 1992, cuyo texto
-es el siguiente:
+Central, suscrito en Managua, Nicaragua, el 5 de junio de 1992, cuyo
+texto es el siguiente:
 "CONVENIO PARA LA CONSERVACION DE LA BIODIVERSIDAD
 Y PROTECCION DE AREAS SILVESTRES PRIORITARIAS
 EN AMERICA CENTRAL
@@ -32,16 +32,16 @@ sustentable, y reafirmando su decisión de enfrentar con acciones
 enérgicas, la preservación, rescate, restauración y utilización racional
 de nuestros ecosistemas, incluyendo especies de flora y fauna amenazada;
 CONVENCIDOS de que para mejorar la calidad de vida a los pueblos del
-istmo es preciso propiciar el respeto a la naturaleza y a la ley, fomentar
-la consolidación de la paz, y la utilización sustentable y el rescate de
-los recursos naturales;
+istmo es preciso propiciar el respeto a la naturaleza y a la ley,
+fomentar la consolidación de la paz, y la utilización sustentable y el
+rescate de los recursos naturales;
 DESTACANDO que para garantizar el desarrollo sustentable, la
-creación, manejo y fortalecimiento de las Areas Protegidas, juega un papel
-relevante para garantizar la reproducción de los procesos ecológicos
-esenciales y el desarrollo rural;
+creación, manejo y fortalecimiento de las Areas Protegidas, juega un
+papel relevante para garantizar la reproducción de los procesos
+ecológicos esenciales y el desarrollo rural;
 RECONOCIENDO a la Comisión Centroamericana de Ambiente y Desarrollo
-(CCAD), como la instancia idónea para formular las estrategias y planes de
-acción que pongan en práctica las decisiones sobre el cuidado del
+(CCAD), como la instancia idónea para formular las estrategias y planes
+de acción que pongan en práctica las decisiones sobre el cuidado del
 ambiente;
 APOYANDO la búsqueda de mecanismos financieros para respaldar
 concretamente todas las iniciativas en el campo de la conservación de
