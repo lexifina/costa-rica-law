@@ -13,3 +13,4 @@ Crea el Programa de Compensación Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-31 | la propia norma |
+| 2 | 1996-01-15 | Decreto Ejecutivo 24912 (1996-01-15) |
