@@ -19,3 +19,4 @@ Reserva Forestal de Río Macho.
 Refugio de Vida Silvestre Tapantí.
 Reservas Indígenas: Salitre, Ujarrás, Cabagra, Tayní, Telire, Talamanca
 Cabécar, Talamanca Bribrí, Alto. y Bajo Chirripó y el anexo de Barbilla. Jardín Botánico R. y C. Wilson.
+(NOTA DE SINALEVI: Mediante el artículo 4° del decreto ejecutivo N° 20468 del 20 de mayo de 1991, se establece que la Reserva Indígena Cabécar Nairi-Awari, es parte de la Reserva de la Biosfera de la Amistad (RBA)).

@@ -14,3 +14,4 @@ Crea Comisión Coordinadora de las acciones que desarrollarán las diferentes in
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-02 | la propia norma |
+| 2 | 1991-05-20 | Decreto Ejecutivo 20468 (1991-05-20) |
