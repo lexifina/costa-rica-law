@@ -1,0 +1,1 @@
+Artículo 40.—La Dirección Financiera, después de transcurrido un mes, sin que la persona interesada en la ayuda se apersone a la Municipalidad, deberá informar por escrito al Concejo de Distrito sobre la situación, a efecto de que ese dinero sea reasignado a otras ayudas para personas o familias que lo estén realmente necesitando.

@@ -1,0 +1,1 @@
+Artículo 28.—En caso de que a la fecha del artículo anterior no se haya completado el cupo de becas disponibles, el Concejo de Distrito está autorizada para abrir un plazo extraordinario de recepción de nuevos formularios, el cual no podrá ser posterior al quince de enero del año siguiente.

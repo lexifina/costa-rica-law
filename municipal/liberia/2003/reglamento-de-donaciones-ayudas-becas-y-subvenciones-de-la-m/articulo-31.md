@@ -1,0 +1,8 @@
+Artículo 31.—De la asignación de los recursos presupuestarios.
+a. Para becas de educación primaria anualmente se hará una asignación del 30% del total presupuestado para becas; se adjudicarán tantas becas como lo permitan los recursos destinados para este fin, siempre que estas representen una verdadera ayuda para el que la solicita.
+b. Para becas de educación secundaria anualmente se hará una asignación presupuestaria del 35% del total presupuestado para becas, las cuáles se adjudicarán tal como lo indica el inciso anterior.
+c. Dicha asignación se manejará a través de cuentas separadas, sea una para los efectos del artículo 62 del Código Municipal y otra distinta para cubrir las becas que se asignen conforme a la Convención Colectiva vigente en la Municipalidad.
+d. Toda beca importa una remuneración mensual, cuyo monto se establecerá anualmente y de acuerdo con los recursos con que se cuente para este fin, remuneración que se entregará durante todos los meses del año lectivo.
+e. Los montos de dinero a otorgar por concepto de becas municipales serán aumentados una vez al año, a fin de procurar que el beneficio se encuentre más acorde con la realidad económica del becario y en general con el costo de la vida.
+f. Dicha revisión estará a cargo de la Corporación Municipal de este Cantón, la cual podrá pedir criterio sobre el incremento a la instancia Municipal que considere competente.
+g. Para becas para realizar estudios de educación superior en el país anualmente se hará una asignación del 35% del total presupuestado para ese efecto, cuyos montos serán tres veces superior al de la beca asignada para educación secundaria y su pago efectivo se hará durante los meses que el solicitante curse las materias de la carrera que haya escogido.

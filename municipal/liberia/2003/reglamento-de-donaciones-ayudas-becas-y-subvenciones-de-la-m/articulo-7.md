@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad debe de disponer de recursos asignados anualmente en su presupuesto ordinario a través de una partida especifica para esos efectos, pues si no cuentan con dichos recursos, la entidad está inhibida para conferir ayudas de esa naturaleza, de acuerdo con la normativa vigente.

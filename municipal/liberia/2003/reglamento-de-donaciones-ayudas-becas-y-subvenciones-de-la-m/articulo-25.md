@@ -1,0 +1,1 @@
+Artículo 25.—Trámites para renovación de la beca. Para la tramitación de la solicitud de la renovación sea para primaria, secundaria o estudios superiores, la Secretaria de la Sección de Comisiones anexará a los cheques al mes de setiembre de cada año, una nota indicándole al becario que en la primer semana del mes de octubre deberá retirar el formulario de solicitud de beca.

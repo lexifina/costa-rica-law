@@ -1,0 +1,1 @@
+Artículo 27.—Sobre la recepción de los formularios de solicitud, con toda la información completa, será durante los primeros 15 días del mes de noviembre de cada año, y deberá anexarse a la solicitud toda la documentación requerida.

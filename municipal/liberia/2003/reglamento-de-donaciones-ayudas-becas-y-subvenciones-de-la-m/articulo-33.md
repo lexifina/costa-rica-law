@@ -1,0 +1,1 @@
+Artículo 33.—Del control de los expedientes. La Sección de Comisiones conformará un expediente en el que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios del becario.

@@ -1,0 +1,1 @@
+Artículo 35.—En caso de que el estudiante becario, sea, de una institución primaria, secundaria o universitaria, no haya aprobado alguna materia, deberá justificarlo razonablemente, con el objetivo de que sea analizado por asistencia Social y previo estudio correspondiente continúe gozando del beneficio.

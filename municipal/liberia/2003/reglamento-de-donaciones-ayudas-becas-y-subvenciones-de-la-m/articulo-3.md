@@ -1,0 +1,7 @@
+Artículo 3º—De los requisitos para acceder a la ayuda. Para ser
+beneficiario de ayudas por este concepto, los interesados deben cumplir con los siguientes requisitos:
+a. Ser vecino del cantón.
+b. Encontrarse en una situación de infortunio o desgracia, según lo dispuesto en el artículo anterior.
+c. Plantear ante el Concejo Municipal una solicitud escrita de ayuda la que será trasladada al Concejo de Distrito para su estudio y dictamen, quien a su vez, remitirá cada caso a la Sección de Bienestar Social-Laboral y Comunal de la Municipalidad con su respectivo expediente, para que se haga el estudio socio-económico pertinente.
+d. Aportar con su solicitud, los documentos que demuestren la situación de desgracia e infortunio que motivan la solicitud, así como aquella otra información o documentación que requiera el funcionario o el trabajador social de la Municipalidad.
+e. Someterse al estudio socio-económico que elaborará la Sección de Bienestar Social-Laboral y Comunal de la Municipalidad, quien verificará en primer término la situación socio-económica del solicitante y en segundo término, y en relación con la situación de desgracia e infortunio que valorará, rendirá el informe pertinente ante el Concejo de Distrito citado, quien de conformidad con el expediente que se levante al efecto, presentará el dictamen ante el Concejo Municipal, para la aprobación o importación de la ayuda requerida.
