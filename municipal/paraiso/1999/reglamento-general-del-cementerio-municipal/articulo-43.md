@@ -1,0 +1,1 @@
+Artículo 43.—Toda construcción no podrá sobresalir más de 20 cm. del suelo, ni podrá tener una profundidad mayor de 1.60 metros. El acceso al interior de los nichos deberá estar debidamente sellado por una lápida.

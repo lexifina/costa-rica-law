@@ -1,0 +1,2 @@
+De las Exhumaciones
+Artículo 11.—Las exhumaciones ordinarias a solicitud de los interesados se realizarán en presencia del encargado del cementerio o de aquel que sea nombrado por el Alcalde Municipal y dos parientes cercanos a la persona fallecida debiendo levantar el acta respectiva, con el fin de ocupar un espacio en el que hubieren transcurrido cinco años desde la última inhumación, requerirán la presencia de un representante de dicha administración. En ambos casos deberá levantarse un acta cuya fórmula dispondrá y suministrará la misma administración.

@@ -1,0 +1,1 @@
+Artículo 38.—Cualquier daño o deterioro ocasionado por la construcción será reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta por la Municipalidad y constituirá gravamen sobre el derecho respectivo.

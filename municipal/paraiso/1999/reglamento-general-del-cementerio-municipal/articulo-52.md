@@ -1,0 +1,1 @@
+Artículo 52.—La Municipalidad fiscalizará los trabajos que dentro del cementerio se lleven a cabo en la construcción, reparación o refacción de sepulturas. Igualmente fiscalizará los trabajos y materiales que se utilizan en los mismos.

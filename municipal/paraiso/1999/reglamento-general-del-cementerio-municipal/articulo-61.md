@@ -1,0 +1,1 @@
+Artículo 61.—No podrá, el peón del cementerio, por ser injerencia directa de la administración tomar decisiones tales como adjudicar lotes, eliminar cruces o trasladar restos de una fosa a otra o de un hueco a una fosa sin que medie previa autorización de la administración para tal efecto. De no acatar esta disposición deberá ser sancionado de acuerdo a la ley.

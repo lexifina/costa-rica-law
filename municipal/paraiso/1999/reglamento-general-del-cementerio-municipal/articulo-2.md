@@ -1,0 +1,1 @@
+Artículo 2°—Las materias tratadas en este reglamento están sujetas al previo cumplimiento de todo lo dispuesto en el reglamento general de cementerios (Decreto Ejecutivo Nº 704 del 07 de setiembre,1949) en materia de propiedad de derechos; en los artículos 36 y 329 de la Ley General de Salud (referente a inhumaciones y exhumaciones) y el resto en la legislación conexa.

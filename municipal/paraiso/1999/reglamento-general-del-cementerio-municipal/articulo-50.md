@@ -1,0 +1,1 @@
+Artículo 50.—Queda prohibido al Encargado del cementerio, contratar con arrendatarios o con terceras personas, la construcción, refacción y pintura en construcciones. Además le queda prohibido trabajar en esas obras dentro de la jornada laboral.

@@ -1,0 +1,1 @@
+Artículo 25.—Los derechos solo se adjudicacarán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con el plano regulador y se hará efectiva su ubicación solo en el momento en que el interesado diere inicio a la construcción.

@@ -1,0 +1,1 @@
+Artículo 41.—Los jarrones, macetas y otros recipientes que se coloquen sobre las bóvedas, deberán estar permanentemente drenados por medio de agujeros conforme a los dispuesto en el Decreto Nº 20 del 8 de nov. de 1938.

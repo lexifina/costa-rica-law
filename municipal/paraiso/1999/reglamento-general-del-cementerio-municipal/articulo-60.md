@@ -1,0 +1,2 @@
+De la Administración
+Artículo 60.—Queda terminantemente prohibido al encargado del cementerio, guardas o peones, cobrar dineros extra por realizar labores indicadas en su manual descriptivo de puestos, así como también realizar y cobrar por trabajos de limpieza o mantenimiento de fosas o cruces utilizando para ello tiempo dentro de su jornada ordinaria de trabajo. En ambos casos serán sancionados de acuerdo a la ley.

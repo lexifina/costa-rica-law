@@ -1,0 +1,1 @@
+Artículo 31.—La Municipalidad de Paraíso respetará los derechos de arrendamiento en el cementerio, adquiridos por aquellas personas que mantienen sus documentos en regla (recibos de pago, contratos de arrendamiento, etc.).

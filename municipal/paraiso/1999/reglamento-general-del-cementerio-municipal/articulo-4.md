@@ -1,0 +1,2 @@
+De las Inhumaciones
+Artículo 4°—Para las inhumaciones en el cementerio, el interesado se debe presentar a la Alcaldía Municipal con el certificado de defunción en la Municipalidad donde se le confeccionará el comprobante de Ingreso por el monto correspondiente de acuerdo a las tarifas vigentes al momento de pago. El encargado del cementerio no permitirá la inhumación si los deudos no presentan el comprobante de ingreso por el anterior concepto.
