@@ -1,0 +1,1 @@
+Art. 3°--El final del artículo 26 de la citada ley, se sustituye con el siguiente –“Una vez ejecutoriada, de cualquiera manera que sea, la sentencia de subasta y remate, la fianza de que habla este artículo, queda extinguida.
