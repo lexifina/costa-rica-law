@@ -1,0 +1,1 @@
+Artículo 103.- Solo en caso de mucha ó perentoria urgencia, a juicio del Senado y Poder Ejecutivo, podrá ser convocada extraordinariamente; mas entonces no podrá ocuparse sino de los asuntos a que haya sido convocada.

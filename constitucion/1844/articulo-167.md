@@ -1,0 +1,1 @@
+Artículo 167.- Todo preso debe ser interrogado dentro de cuarenta y ocho horas, y el Juez está obligado a decretar la libertad ó permanencia en la prisión dentro de las veinticuatro horas siguientes según el mérito de lo actuado.

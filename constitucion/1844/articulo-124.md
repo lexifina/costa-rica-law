@@ -1,0 +1,1 @@
+Artículo 124.- El Senado residirá en el mismo lugar que la Cámara de Representantes durante las sesiones de esta; pero en su receso, en el punto que acuerde con noticia de los otros poderes y dentro de los límites señalados en el artículo 105.

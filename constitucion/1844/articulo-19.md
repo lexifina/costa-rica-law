@@ -1,0 +1,1 @@
+Artículo 19.- Tienen así mismo los ciudadanos costarricenses el derecho de concurrir a la formación, ejecución y aplicación de la ley, por medio de los Poderes públicos electos y constituidos legítimamente.

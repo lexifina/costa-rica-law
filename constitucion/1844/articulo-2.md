@@ -1,0 +1,1 @@
+Artículo 2º.- Se instituye el Gobierno para asegurar el tranquilo goce de estos derechos. El poder y autoridad que éste ejerce, es inherente al pueblo, y conferido con el único objeto de mantener entre los asociados la paz, haciendo que todos mutuamente se respeten sus derechos individuales.

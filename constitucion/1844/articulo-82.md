@@ -1,0 +1,1 @@
+Artículo 82.- Hecha la elección de Representantes y Suplentes, los Directorios de cada sección pasarán, directamente a la Cámara de Representantes, en pliego cerrado, copia autorizada de la acta en que conste aquel nombramiento para su calificación.

@@ -1,4 +1,6 @@
+(Derogado)
 (NOTA DEL SINALEVI: El texto introducido en la presente Constitución Política corresponde al texto original y no contiene las reformas que se le efectuaron posteriormente)
+(Esta Constitución Política fue abolida mediante el artículo 200 de la Constitución Política del Estado Libre y Soberano de Costa Rica del 9 de abril de 1844 )
 LEY FUNDAMENTAL DEL ESTADO LIBRE DE COSTA RICA
 25 de Enero de 1825
 EL JEFE SUPREMO DEL ESTADO LIBRE DE COSTA RICA

@@ -1,0 +1,1 @@
+Artículo 125.- El Senado celebrará sus sesiones diariamente al mismo tiempo que la Cámara de Representantes; pero en los recesos de esta, tendrán dos sesiones por semana ordinariamente, y las extraordinarias a que su Presidente convoque.

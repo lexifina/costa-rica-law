@@ -1,0 +1,1 @@
+Artículo 5º.- Toda determinación sea en forma de ley, decreto, providencia, sentencia, auto u orden que proceda de cualquier poder, si atacan a alguno ó algunos de los derechos naturales del hombre ó de la comunidad ó cualquiera de las garantías consignadas en la ley fundamental, es por el mismo hecho, nula, y ninguno tiene obligación de acatarla y obedecerla.
