@@ -13,3 +13,4 @@ Declara de Interés Cultural Ballet Folklórico Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-05-18 | SINALEVI (sin norma nombrada) |
