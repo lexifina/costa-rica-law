@@ -1,0 +1,3 @@
+Artículo 15.—Cooperación Técnica.
+1. Los Estados Parte fomentarán la cooperación entre sus organismos de medidas de normalización y gestión metrológica proporcionando información o asistencia técnica, en la medida de sus posibilidades y en términos mutuamente acordados, con el fin de ayudar al cumplimiento de este reglamento y a fortalecer la integración centroamericana.
+2. Los Estados Parte procurarán realizar esfuerzos conjuntos con el objetivo de gestionar cooperación técnica para la región centroamericana procedente de terceros países y organismos internacionales, la cual será gestionada por el COMIECO.

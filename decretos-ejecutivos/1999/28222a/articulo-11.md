@@ -1,0 +1,1 @@
+Artículo 11.—Procedimientos de autorización. En relación con sus procedimientos de autorización, cada Estado Parte estará obligado a que se apliquen las letras a., b., c., d., e., f., o i. del párrafo 1 del artículo 10, sustituyendo para tales fines la referencia que se hace a los procedimientos de evaluación de la conformidad, por procedimientos de autorización.

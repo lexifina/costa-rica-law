@@ -1,0 +1,4 @@
+Artículo 9º—Armonización de las medidas.
+1. Sin perjuicio de los derechos que les confiera este Reglamento y tomando en cuenta las actividades internacionales de normalización, en el mayor grado posible, los Estados Parte armonizarán sus respectivas medidas de normalización, metrología y procedimientos de autorización, sin reducir el nivel de seguridad o de protección a la vida o a la salud humana, animal o vegetal, del ambiente o de los consumidores.
+2. Cada Estado Parte aceptará un reglamento técnico que adopte otro de los Estados Parte como equivalente a uno propio cuando, en cooperación con la otra Parte, la Parte importadora determine que los reglamentos técnicos de la Parte exportadora cumplen de manera adecuada con los objetivos legítimos de ésta.
+3. A solicitud de un Estado Parte exportador, el o los Estados Parte importadores le comunicarán por escrito sus razones de no haber aceptado un reglamento técnico conforme al párrafo 2.
