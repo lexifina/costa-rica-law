@@ -1,0 +1,1 @@
+Artículo 7°-Los programas que realice la Comisión de Olimpiadas Costarricense de Matemáticas, se le extienden los incentivos de la ley N° 7169, Ley de Promoción del Desarrollo Científico y tecnológico, que considere necesarios para el buen desempeño de sus funciones.

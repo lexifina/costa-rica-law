@@ -1,0 +1,1 @@
+Artículo 5°-La Comisión presentará al Ministerio de Ciencia y Tecnología, en el mes de marzo de cada año, el reglamento de competición, el plan de organización y el cronograma de actividades de las Olimpiadas Costarricenses de Matemáticas que se realizará durante ese período.

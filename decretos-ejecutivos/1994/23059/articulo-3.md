@@ -1,0 +1,1 @@
+Artículo 3°-Los miembros de la Comisión serán nombrados por las instituciones que representan y dejarán de pertenecer a la Comisión al concluir sus servicios en la institución a al ser sustituidos por la misma.

@@ -1,0 +1,1 @@
+Artículo 8°-Se declara de conveniencia nacional y de interés público las “Olimpiadas Costarricenses de Matemáticas”. Quedando autorizadas las instituciones nacionales a colaborar dentro de sus posibilidades, a la celebración de este evento.
