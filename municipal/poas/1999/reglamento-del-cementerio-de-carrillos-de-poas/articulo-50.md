@@ -1,0 +1,1 @@
+Artículo 50.-Los propietarios, beneficiarios y arrendantes de nichos o bóvedas podrán acudir al Municipalidad de Poás cuando no exista una Junta Administradora o esta se niegue a atender o resolver alguna inquietud propuesta por los mismos.

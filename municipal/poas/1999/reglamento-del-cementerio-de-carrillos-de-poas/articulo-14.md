@@ -1,0 +1,1 @@
+Artículo 14.-En caso de ausencia de propietarios y copropietarios y no mediando un beneficiario se procederá al remate judicial, teniendo prioridad para la adjudicación los parientes enunciados en el artículo doce, a falta de interés o a falta de estos se efectuará el remate abierto.

@@ -1,0 +1,1 @@
+Artículo 29.-En cada inhumación se anotará en el Registro: nombre, edad, sexo, fecha y el lugar exacto en que fue sepultada. Estos pisos se archivarán en la oficina de la Junta. Hacer referencia al artículo 9.

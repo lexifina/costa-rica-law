@@ -1,0 +1,1 @@
+Artículo 40.-Solamente con autorización del Ministerio de Salud podrá realizarse la exhumación de fallecidos por viruela, escarlatina, tifus exsantimático, difteria, cólera y peste bubónica, sida y cualquiera otra a criterio de dicho Ministerio.

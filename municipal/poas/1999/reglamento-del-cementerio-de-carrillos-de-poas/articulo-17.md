@@ -1,0 +1,1 @@
+Artículo 17.-Ninguna persona física o jurídica podrá tener más de un derecho en este cementerio. A quienes no se ajusten a esto se les otorgará un plazo de noventa días para ponerse a derecho, de lo contrario, la Junta dará por rescindidos los contratos de aquellas en que tenga parientes menos allegados.

@@ -1,0 +1,1 @@
+Artículo 31.-AI presentarse el interesado se consultará el Registro de Fosas y se llamará al panteonero para que constate si hay un nicho vacío, ya que de las fosas, bóvedas y mausoleos privados no pueden trasladarse restos al osario general ni a los nichos de alquiler.
