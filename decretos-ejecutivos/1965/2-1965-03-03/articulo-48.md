@@ -1,16 +1,26 @@
-Artículo 48. -Son atribuciones de los Auxiliares de Orientación:
-1) Estimular en los alumnos la cordialidad, la comprensión, el espíritu social y el respeto mutuo, así como el aprovechamiento escolar;
-2) Atender los problemas de disciplina que surgieren de las actividades realizadas por los alumnos fuera de las aulas, y elevar informes al Director del plantel con copia al Director del Departamento de Orientación de los casos difíciles;
-3) Conversar con los alumnos cuando problemas individuales de disciplina o desajuste escolar lo justifiquen;
-4) Efectuar reuniones con los alumnos a su cargo para tratar con ellos del comportamiento colectivo;
-5) Establecer contactos permanentes con las Directivas Estudiantiles, y ayudar a sus integrantes al estudio de los problemas escolares más agudos con miras a encontrar soluciones pedagógicas;
-6) Velar porque los estudiantes cumplan con las disposiciones reglamentarias que les conciernen;
-7) Reunirse con los padres de los alumnos, informarles de las actividades intelectuales y de las actitudes éticas de sus hijos, hacer les recomendaciones pedagógicas, y buscar su colaboración;
-8) Atender las visitas de los padres de familia;
-9) Formar parte del Consejo de Conducta;
-10) Colaborar en el proceso de matrícula;
-11) Confeccionar las tarjetas de calificaciones de los alumnos;
-12) Conceder bajo su responsabilidad, permisos a los alumnos para salir del colegio en casos muy urgentes;
-13) Llevar los registros de asistencia de los alumnos;
-14) Atender sus grupos en las ausencias ocasionales de los profesores;
-15) Todas las demás que dentro del campo de sus funciones le asigne el Director.
+Artículo 48.-Son funciones de los Orientadores Adjuntos:
+a) Planificar, ejecutar, supervisar y evaluar las acciones de orientación de los niveles que se les asignen.
+b) Investigar soluciones relacionadas con la orientación de los alumnos a su cargo y participar en las investigaciones que realice el Departamento de Orientación.
+c) Participar en la ejecución de acciones y experiencias innovadoras que se realicen en orientación.
+ch) Ofrecer orientación individual y colectiva a los alumnos a su cargo.
+d) Programar y desarrollar las horas de orientación colectiva de las secciones a su cargo.
+e) Detectar y organizar en grupos pequeños a los alumnos que necesiten atención especializada.
+f) Asesorar a los profesores guías, asesores de clubes, alumnos y padres de familia de los grupos a su cargo en aspectos relacionados con orientación.
+g) Informar a los padres de familia sobre las actividades escolares y actitudes de sus hijos, cuando la situación lo amerite.
+h) Coordinar acciones de orientación con profesores guías, docentes en general, directivas de sección, padres de familia, comités de la institución y organismos de la comunidad.
+i) Analizar la información sobre rendimiento, ausentismo y deserción de los grupos a su cargo y utilizar esa información en acciones de orientación.
+j) Participar con otros miembros del Departamento en la ubicación de los alumnos en los diferentes cursos, actividades y opciones que ofrece la institución.
+k) Asistir a las reuniones del núcleo de orientadores y a las reuniones del Departamento de Orientación de su institución y cumplir con las responsabilidades que se deriven de las mismas.
+l) Estudiar y atender las situaciones y problemas especiales de los alumnos y, si es necesario, remitirlos a un especialista, previa consulta al Jefe del Departamento.
+ll) Participar en el asesoramiento del personal docente y administrativo, para la prevención y atención de los problemas de disciplina que presenten los estudiantes.
+m) Mantener actualizados los expedientes de orientación de los estudiantes de los niveles que los correspondan.
+n) Aplicar, tabular e interpretar instrumentos de explotación del alumno, en coordinación con el Jefe del Departamento.
+ñ) Realizar estudios de seguimiento de los alumnos.
+o) Atender la orientación vocacional, profesional y del trabajo escolar y personal social de los educandos.
+p) Participar en las diversas actividades que promueva el Comité de Bienestar Estudiantil.
+q) Establecer medios de coordinación con otros sectores y organismos de la comunidad a fin de obtener recursos para los servicios de orientación y bienestar estudiantil.
+r) Llevar a cabo visitas a los hogares, en la medida en que las funciones anteriormente señaladas así lo exijan o aconsejen.
+s) Realizar al final del curso lectivo un estudio sobre el rendimiento académico y sus causas de los grupos a su cargo, así como planificar las acciones o proyectos del curso siguiente.
+t) Rendir un informe de labores al finalizar el año escolar.
+u) Ejecutar otras tareas propias del cargo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 13488 del 29 de marzo de 1982).
