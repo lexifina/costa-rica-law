@@ -1,0 +1,1 @@
+Artículo 5º—La Unidad Ejecutora para la Administración del Ferry Tempisque deberá adoptar las medidas que sean necesarias para garantizar que el servicio del ferry se brinde las veinticuatro horas del día, atendiendo las necesidades de los usuarios de este servicio público, a cuyo efecto establecerá los sistemas de roles y de servicios que mejor se adecuen a la demanda existente.

@@ -1,0 +1,2 @@
+Artículo 2º—Los servidores que prefieran que les sean cancelados los extremos laborales correspondientes, se procederá a su pago, conforme al procedimiento usual de la Administración y en tales casos las respectivas plazas podrán llenarse conforme lo dispone la normativa jurídica vigente.
+Quienes se acojan a la cancelación de los extremos laborales deberán comunicarlo a la Administración del ferry el día 30 de abril del 2001 como fecha límite e improrrogable.
