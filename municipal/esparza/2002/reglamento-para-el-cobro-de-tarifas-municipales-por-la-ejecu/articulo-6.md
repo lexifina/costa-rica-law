@@ -1,1 +1,0 @@
-Artículo 6º—Responsabilidad. En el caso de que el Munícipe no asuma dichas obligaciones oportunamente, y se cause daños a la salud, la integridad física o el patrimonio de terceros, este será responsable, por los daños y perjuicios causados.
