@@ -1,8 +1,4 @@
-ARTICULO 10.- Aplicación de medidas
-Planteada la solicitud, la autoridad competente ordenará, de
-inmediato, aplicar cualquiera de las medidas de protección solicitadas.
-Esta resolución deberá notificarse conforme al artículo 177 del Código
-Procesal Civil y no cabrá recurso alguno contra ella.
-No obstante, sin perjuicio de lo dispuesto en el párrafo anterior, el
-juzgado podrá ordenar, de oficio, la aplicación de otras medidas distintas
-de las solicitadas.
+Artículo 10.- Aplicación de medidas
+Planteada la solicitud, la autoridad competente ordenará, de inmediato, aplicar cualquiera de las medidas de protección solicitadas.Esta resolución deberá notificarse conforme al artículo 177 del Código Procesal Civil y no cabrá recurso alguno contra ella.
+No obstante, sin perjuicio de lo dispuesto en el párrafo anterior, el juzgado podrá ordenar, de oficio, la aplicación de otras medidas distintas de las solicitadas.
+(La Sala Constitucional mediante resolución N° 2896 del 14 de junio de 1996, estableció que el presente artículo no es inconstitucional, en relación con el artículo 3 inciso l de la presente ley, en tanto se entienda que“…contra la resolución del juez de familia que imponga una pensión alimenticia provisional conforme a ellos, procede recurso de apelación en un sólo efecto, que debe tramitarse y resolverse por la autoridad competente según la legislación especial que regula la materia alimentaría, ante la cual éste debe hacer llegar de inmediato el testimonio de piezas que ordena la presente Ley”).

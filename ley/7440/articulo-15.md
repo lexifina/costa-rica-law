@@ -9,7 +9,7 @@ públicos.
 d) Fungir como secretario del Consejo nacional de espectáculos
 públicos y afines, con voz pero sin voto.
 e) Procurar y administrar los recursos materiales que permitan el
-funcionamiento óptimo de los órganos de control establecidos en la
-presente Ley.
+funcionamiento óptimo de los órganos de control establecidos en
+la presente Ley.
 f) Formar parte de la Comisión de control y calificación de
 espectáculos públicos.
