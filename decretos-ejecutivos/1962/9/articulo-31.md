@@ -1,1 +1,0 @@
-Artículo 31.-Las resoluciones del Departamento Legal aprobadas por Contralor no tienen recurso administrativo alguno, y tendrán fuerza ejecutiva para el cobro judicial cuando se trate créditos a favor del Estado no pudiendo oponerse otra excepción que la de pago o prescripción.

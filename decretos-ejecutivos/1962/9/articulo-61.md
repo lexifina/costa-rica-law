@@ -1,4 +1,0 @@
-Artículo 61. -Corresponderá al Departamento de Auditoría e Inspecciones ejercer funciones de control posterior; jurídico contable, financiero y económico, sobre:
-a) Toda dependencia, institución, corporación, oficina, funcionario o empleado que maneje fondos públicos, nacionales o municipales, o de Instituciones Autónomas o Semiautónomas, o que intervengan en la ejecución de las leyes financieras;
-b) Toda gestión financiera que en el ejercicio de sus atribuciones realicen los funcionarios y empleados públicos tanto en la percepción como en la aplicación de fondos del Estado;
-c) Las oficinas de la Administración Pública y de las Instituciones y Corporaciones Autónomas o Semiautónomas que en alguna forma manejen, administren, o tengan bajo su custodia, bienes públicos, (muebles o inmuebles) : nacionales, municipales, o de las referidas instituciones o corporaciones, o que tengan a su cargo la ejecución, directa o indirecta, de las leyes relacionadas con estos bienes.

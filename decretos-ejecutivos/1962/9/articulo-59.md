@@ -1,1 +1,0 @@
-Artículo 59.-Si el Contralor lo creyere necesario para el mejor esclarecimiento de cualquier aspecto de liquidación de presupuesto, podrá conferirle una audiencia especial al Ministro de Hacienda o al Jefe de la Oficina de Presupuesto.

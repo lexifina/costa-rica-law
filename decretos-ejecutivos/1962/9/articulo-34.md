@@ -1,1 +1,0 @@
-Artículo 34. -De lo instruido se , dará audiencia a los funcionarios o empleados afectados, acordándoles un plazo prudencial no menor de tres días ni mayor de diez para que contesten y ofrezcan pruebas de descargos.

@@ -1,1 +1,0 @@
-Artículo 92. - Para los efectos de que dispone el artículo 9° de la Ley, Orgánica de la Contraloría, las Dependecias interesadas someterán a esta Oficina la solicitud de la resolución que interese suministrándole todos los documentos y antecedentes relativos a la cuenta que deba cobrarse.

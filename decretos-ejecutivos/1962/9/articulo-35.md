@@ -1,1 +1,0 @@
-Artículo 35.-Agotada la investigación por los medios más eficientes y justos, se dictará la resolución final siguiendo lo que fuere aplicable la forma que para sentencias prescribe el artículo 102 del Código de Procedimientos Penales.

@@ -1,1 +1,0 @@
-Artículo 26.-El Jefe del Departamento Legal atenderá al público que asista a su despacho pero no puede ofrecer resoluciones definitivas si las mismas no estuvieren debidamente aprobadas y firmadas por el Contralor o el Subcontralor.

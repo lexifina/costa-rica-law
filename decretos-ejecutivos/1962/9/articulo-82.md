@@ -1,1 +1,0 @@
-Artículo 82 .-Igualmente puede la Contraloría publicar folletos en que señale la organización que se hubiere convenido con alguna dependencia, señalando los beneficios obtenidos y sugiriendo que otras dependencias ajusten sus organizaciones, en lo que cupiere, a esa organización.

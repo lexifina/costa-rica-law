@@ -1,1 +1,0 @@
-Artículo 48.-Una vez aprobado el Presupuesto el Secretario Municipal en el término de los siguientes seis días remitirá dos copias del mismo a la Sección Municipal de la Contraloría General de la República, con el acuerdo que lo aprobó y debidamente firmado.

@@ -1,1 +1,0 @@
-Artículo 63.-El Departamento de Auditoría e Inspecciones ejercerá todas las demás funciones que la Constitución y las leyes le asignen a la Contraloría General de la República y que sean propias de su función básica de vigilancia sobre la Hacienda Pública y que corresponda llevar a cabo como medidas de control posterior.

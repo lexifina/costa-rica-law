@@ -1,1 +1,0 @@
-Articulo 24.-El Departamento Legal tramitará los asuntos a su cargo por orden cronológico, y para el efecto a todo documento se le pondrá la razón de recibido en que conste la hora y la fecha de ingreso al Departamento. No obstante, según indicación del Contralor o del Subcontralor puede alterarse el orden para la resolución de un asunto urgente.

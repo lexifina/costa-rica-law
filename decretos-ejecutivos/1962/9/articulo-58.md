@@ -1,2 +1,0 @@
-Liquidación del Presupuesto Nacional
-Artículo 58. -una vez recibida por la Contraloría la liquidación del presupuesto nacional que debe enviarle el Poder Ejecutivo, a más tardar el 1° de marzo, el Contralor lo pasará al Departamento de Control de Presupuestos, el cual confrontará esta liquidación con la presentada por la Sección de Presupuesto Nacional. El resultado de esta confrontación le será comunicado al Contralor a más tardar el 1° de abril siguiente y al mismo tiempo le someterá el proyecto del informe que debe rendir a la Asamblea Legislativa el próximo 1° de mayo.

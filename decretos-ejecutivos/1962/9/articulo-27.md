@@ -1,1 +1,0 @@
-Artículo 27 .-Los dictámenes del Departamento Legal se producirán con absoluta libertad intelectual y moral, pero su criterio no obliga al Contralor o al Subcontralor, aunque sí a los Jefes Departamentales, mientras los Contralores no hubieren dispuesto cosa distinta.

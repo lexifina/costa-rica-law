@@ -1,1 +1,0 @@
-Artículo 76.-EI Secretario General requerirá a los Departamentos las razones por las que no hubiere devuelto diligenciado un asunto en el término que el Contralor le hubiere señalado. De tales razones informará al Contralor.

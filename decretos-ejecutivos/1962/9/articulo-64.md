@@ -1,6 +1,0 @@
-Artículo 64.-Para cumplir debidamente las funciones anteriores, el Departamento de Auditoría e Inspecciones seguirá los siguientes procedimientos:
-a) Examinar, glosar, verificar y fenecer las cuentas de las instituciones y corporaciones del Estado Autónomas o no, y de los funcionarios públicos que custodien, manejen, administren, recauden o inviertan rentas, fondos o bienes de la Hacienda Pública. Para esos propósitos realizará arqueos, reconciliaciones bancarias y cualesquiera otros procedimientos universalmente aceptados en Auditoría;
-b) Extender los finiquitos de aquellas cuentas sometidas a su examen cuando una disposición legal así lo establezca ;
-c) Solicitar en la forma, momento y plazo que lo estime conveniente, los informes, datos, declaraciones, correspondencia o documentos públicos, que requiera para el cumplimiento de sus funciones, a cualquier persona natural o jurídica, institución o dependencia pública;
-d) Verificar por pruebas selectivas los inventarios de las dependencias gubernamentales, corporaciones, e instituciones Autónomas o Semiautónomas y según los resultados obtenidos, recomendar los sistemas de control más adecuados, como simple sugerencia ;
-e) Efectuar traspasos de fondos, documentos y bienes públicos cuando por alguna circunstancia la persona en cargada de su custodia dejara de serIo.

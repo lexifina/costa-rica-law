@@ -1,1 +1,0 @@
-Articulo 85. - Para cumplir con lo dispuesto en el inciso f) del artículo 6° de su Ley Orgánica, es obligación de todos los funcionarios y empleados de la Contraloría, Someter a conocimiento del Contralor su inquietud y su deseo de solicitar informes, y el Contralor dará su consentimiento sólo cuando sea para cumplir con lo dispuesto en el mismo.
