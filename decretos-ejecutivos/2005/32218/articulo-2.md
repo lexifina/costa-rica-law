@@ -1,0 +1,1 @@
+Artículo 2º—La moratoria establecida lo será por un plazo de un año calendario contado a partir de la publicación del Decreto Ejecutivo Nº 32180-MP-MOPT, con posibilidad de prórroga por periodos iguales o similares, de mantenerse las condiciones que han dado origen a la misma.
