@@ -1,0 +1,3 @@
+Artículo 9º—Recepción y entrega de mercancías. La recepción de las paletas y bultos, con mercancías, se realizará con base en la información que contiene el manifiesto de carga autorizado por la aduana de control.
+La entrega de las paletas y bultos, con mercancías, se realizará conforme con la autorización de la Declaración Aduanera de Recepción, Tránsito y Traslado de Mercancías y de la autorización del levante contemplada en las declaraciones aduaneras correspondientes, según los procedimientos aduaneros vigentes autorizados por la Dirección General.
+El Gestor Interesado comunicará a la aduana de control, por medios informáticos la entrega o recibo de paletas y bultos, con mercancías, por parte de las líneas aéreas.

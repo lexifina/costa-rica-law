@@ -1,0 +1,1 @@
+Artículo 15.—Operaciones autorizadas. Las mercancías no podrán ser paletizadas, despaletizadas, consolidadas ni desconsolidadas en el CTRM, salvo lo dispuesto en el artículo 236 del Reglamento a la Ley General de Aduanas, modificado con el presente Reglamento, en cuyo caso dicha actividad deberá realizarse en la Terminal de Carga Aérea.
