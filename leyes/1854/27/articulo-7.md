@@ -1,0 +1,1 @@
+Art 7°.- Con la parte que los Gobernadores colecten en dinero de los contribuyentes que no puedan dar trabajo personal, se proporcionaran los alimentos de la gente que se ocupe de perseguir la Langosta, siendo a cargo del Tosoro público llenar el déficit.

@@ -1,0 +1,1 @@
+Art 2°.- Los empleados que se hallen en actual servicio del Gobierno o en otros destinos que les impida prestar personalmente su trabajo, contribuirán en esta forma: los que ganen menos de treinta pesos mensuales darán doce reales en el turno: tres pesos los que disfruten de treinta a cincuenta y diez los que gozan de cincuenta arriba.

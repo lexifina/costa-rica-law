@@ -1,0 +1,1 @@
+Art 8°.- El dinero que reúnan los Gobernadores será entregado por los mismos, con cuenta y razón, en la Administración principal, y esta llevará cuenta separada de todos los ingresos y egresos que tenga en este concepto.

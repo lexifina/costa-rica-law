@@ -1,0 +1,1 @@
+Art 11°.- El trabajador que se desertare sufrirá la pena de dos meses de trabajo en destruir la Langosta por la primera vez y cuatro por la segunda, lo que se hará entender a los trabajadores al tiempo de salir.
