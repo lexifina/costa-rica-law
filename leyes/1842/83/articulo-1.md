@@ -1,0 +1,5 @@
+DECRETO LXXXIII.
+Declara que los Diputados a la Asamblea Constituyente no son obligados a admitir el cargo de Magistrados.
+El general Jefe Supremo Provisorio del Estado de Costa Rica. –Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+La Asamblea Constituyente del Estado de Costa Rica, teniendo presente: que los Señores Diputados electos para las plazas de los Magistraturas del Tribunal Superior de Justicia han manifestado que conforme á los principios Constitucionales no puede obligárseles á aceptar cualquiera otro destino mientras ocupan las sillas de Representantes: que el Diputado suplente Sr. Juan Rafael Ramos se ha escusado de admitir el nombramiento de 4° Magistrado y el Diputado Sr. Joaquín Bernardo Calvo, el de Fiscal; y que el Sr. Rafael Gallegos, Presidente electo de dicho Tribunal, ha comprobado en debida forma que se halla gravemente enfermo, decreta.
+Art. 1° Los Diputados electos para las plazas del Tribunal Superior de Justicia no son obligados á admitir con tal que hayan tomado asiento en el Cuerpo Legislativo.
