@@ -1,7 +1,7 @@
 CAPITULO VI
 Junta Directiva
 Integración.
-Artículo 46.- La Junta Directiva se compondrá de un Presidente, un
+ARTICULO 46.- La Junta Directiva se compondrá de un Presidente, un
 Vicepresidente, un Secretario, un Prosecretario, un Fiscal, un Tesorero y
 tres Vocales.
 Durarán en sus funciones dos años, sin poder ser reelectos

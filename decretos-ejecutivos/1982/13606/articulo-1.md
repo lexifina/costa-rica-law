@@ -1,3 +1,6 @@
+Nº 13606-E
+EL PRESIDENTE DE LA REPUBLICA
+Y LA MINISTRA DE EDUCACION PUBLICA,
 Con fundamento en el artículo 24, inciso o) de la ley Nº 1038 del 19
 de agosto de 1947 y artículo 140, inciso 3) de la Constitución Política,
 y
@@ -19,7 +22,7 @@ DE LA PROFESION DE CONTADOR PUBLICO
 CAPITULO I
 Del Ejercicio Profesional
 Regulación del ejercicio profesional.
-Artículo 1º.- El ejercicio de la contaduría pública se regirá por la
+ARTICULO 1º.- El ejercicio de la contaduría pública se regirá por la
 ley Nº 1038 del 19 de agosto de 1947 y sus reformas, por este Reglamento
 y por las disposiciones que emanen de la Junta General y de la Junta
 Directiva del Colegio.

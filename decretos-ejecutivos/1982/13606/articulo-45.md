@@ -1,5 +1,5 @@
 Informe anual de la Junta Directiva.
-Artículo 45.- El informe de la Junta Directiva se dividirá en cuatro
+ARTICULO 45.- El informe de la Junta Directiva se dividirá en cuatro
 secciones:
 a) Informe sobre aspectos generales, preparado por la presidencia;
 b) Informe sobre aspectos financieros, preparado por la Tesorería;

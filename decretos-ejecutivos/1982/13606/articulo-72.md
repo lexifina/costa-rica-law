@@ -1,5 +1,5 @@
 Sustitución temporal del Tesorero.
-Artículo 72.- En caso de ausencia temporal o muerte del Tesorero, la
+ARTICULO 72.- En caso de ausencia temporal o muerte del Tesorero, la
 Junta Directiva nombrará de Tesorero Interino al Vocal correspondiente,
 quien ejercerá mientras dure la ausencia o la Junta General haga el nuevo
 nombramiento.

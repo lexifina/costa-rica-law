@@ -1,4 +1,4 @@
 Quórum y votaciones.
-Artículo 49.- Harán quórum cinco miembros.
+ARTICULO 49.- Harán quórum cinco miembros.
 Las votaciones se tomarán por mayoría de los presentes.
 En caso de empate decidirá el Presidente.

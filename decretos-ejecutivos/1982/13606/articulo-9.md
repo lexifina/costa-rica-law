@@ -1,7 +1,7 @@
 CAPITULO II
 De las Funciones del Contador Público Autorizado
 Funciones.
-Artículo 9º.- Corresponde al Contador Público, sin perjuicio de lo
+ARTICULO 9º.- Corresponde al Contador Público, sin perjuicio de lo
 que sea normalmente reconocido como propio, de acuerdo a su formación
 académica:
 a) Las enumeradas en el artículo 7º de la ley Nº 1038 citada;

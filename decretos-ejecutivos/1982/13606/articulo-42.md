@@ -1,5 +1,5 @@
 Convocatoria.
-Artículo 42.- La convocatoria a sesión de la Junta General se hará
+ARTICULO 42.- La convocatoria a sesión de la Junta General se hará
 por publicación en "La Gaceta", dos días consecutivos, debiendo aparecer
 el primer aviso por lo menos cinco días naturales antes de la reunión. Se
 hará una publicación también en un diario de circulación nacional.

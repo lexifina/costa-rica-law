@@ -1,7 +1,7 @@
 CAPITULO III
 Incorporación e Inscripción de Miembros
 Requisitos para incorporarse al Colegio.
-Artículo 30.- Sólo podrá incorporarse al Colegio quien reúna los
+ARTICULO 30.- Sólo podrá incorporarse al Colegio quien reúna los
 siguientes requisitos:
 a) Poseer título universitario en la rama de contabilidad y
 auditoría, con grado de licenciatura, extendido por una universidad

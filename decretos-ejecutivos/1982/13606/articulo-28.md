@@ -1,5 +1,5 @@
 Derechos de los miembros.
-Artículo 28.- Se consideran derechos de los miembros del Colegio:
+ARTICULO 28.- Se consideran derechos de los miembros del Colegio:
 a) Ejercer la profesión,
 b) Integrar la Junta General; y
 c) Elegir y ser electos o designados en los diversos cargos.

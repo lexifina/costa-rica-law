@@ -1,5 +1,5 @@
 Obligaciones.
-Artículo 29.- Son obligaciones de los miembros del Colegio:
+ARTICULO 29.- Son obligaciones de los miembros del Colegio:
 a) Concurrir a las Juntas Generales y desempeñar cumplidamente los
 cargos o comisiones que le encomienden la Junta General o la Junta
 Directiva del Colegio;

@@ -1,5 +1,5 @@
 Fines.
-Artículo 25.- El Colegio tendrá como fines principales:
+ARTICULO 25.- El Colegio tendrá como fines principales:
 a) Vigilar y defender la aplicación profesional de la contaduría
 pública;
 b) Promover el progreso científico de la contabilidad y ciencias

@@ -1,5 +1,5 @@
 Ejercicio ilegal de la profesión.
-Artículo 3º.- Se reputará ejercicio ilegal de la contaduría pública
+ARTICULO 3º.- Se reputará ejercicio ilegal de la contaduría pública
 la prestación de los servicios comprendidos en ésta por personas no
 autorizadas por el Colegio.
 Se hará acreedor a la mitad de la pena correspondiente quien sin
