@@ -1,0 +1,2 @@
+PROGRAMA DE PROFILAXIS LABORAL
+Artículo V.-El Programa de Profilaxis Laboral se desarrollará mediante una programación anual que dará inicio la tercera semana de los meses de enero y julio de cada año, con una duración de cinco días hábiles, concluyendo este programa la segunda semana de los meses de febrero y agosto respectivamente. En dichas semanas se hará una distribución por cuadrillas para no afectar la ,continuidad del servicio.
