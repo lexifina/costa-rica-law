@@ -1,5 +1,6 @@
 articulo-1.md
 articulo-2.md
+articulo-2-bis.md
 articulo-3.md
 articulo-4.md
 articulo-5.md
@@ -10,4 +11,3 @@ articulo-9.md
 articulo-10.md
 articulo-11.md
 articulo-1-transitorio.md
-articulo-2-bis.md
