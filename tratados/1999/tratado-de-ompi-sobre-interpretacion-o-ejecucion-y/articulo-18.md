@@ -1,0 +1,3 @@
+ARTÍCULO 18
+Obligaciones relativas a las medidas tecnológicas
+Las Partes Contratantes proporcionarán protección jurídica adecuada y recursos jurídicos efectivos contra la acción de eludir medidas tecnológicas efectivas que sean utilizadas por artistas intérpretes o ejecutantes o productores de fonogramas en relación con el ejercicio de sus derechos en virtud del presente Tratado y que, respecto de sus interpretaciones o ejecuciones o fonogramas, restrinjan actos que no estén autorizados por los artistas intérpretes o ejecutantes o los productores de fonogramas concernidos o permitidos por la ley.

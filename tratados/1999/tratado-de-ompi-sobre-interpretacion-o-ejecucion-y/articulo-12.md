@@ -1,0 +1,5 @@
+ARTÍCULO 12
+Derecho de distribución
+1.- Los productores de fonogramas gozarán del derecho exclusivo de autorizar la puesta a disposición del público del original y de los ejemplares de sus fonogramas mediante venta u otra transferencia de propiedad.
+2.- Nada en el presente Tratado afectará a la facultad de las Partes Contratantes de determinar las condiciones, si las hubiera, en las que se aplicará el agotamiento del derecho del párrafo 1) después de la primera venta u otra transferencia de propiedad del original o de un ejemplar del fonograma con la autorización del productor de dicho fonograma.(10)
+(10) Declaración concertada respecto de los Artículos 2.e), 8, 9, 12 y 13: Tal como se utilizan en estos Artículos, las expresiones "copias" y "original y copias", sujetas al derecho de distribución y al derecho de alquiler en virtud de dichos Artículos, se refieren exclusivamente a copias fijadas que pueden ponerse en circulación como objetos tangibles (en esta declaración concertada, la referencia a "copias" debe ser entendida como una referencia a "ejemplares", expresión utilizada en los Artículos mencionados.
