@@ -14,3 +14,4 @@ Reglam. Precalificación ONG Administración Fondos Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-31 | la propia norma |
+| 2 | 2000-01-31 | Ley 7 |
