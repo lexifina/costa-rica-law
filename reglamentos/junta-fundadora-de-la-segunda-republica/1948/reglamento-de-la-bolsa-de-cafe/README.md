@@ -14,3 +14,4 @@ Reglamento de la Bolsa de Café
 | --- | --- | --- |
 | 1 | 1948-09-10 | la propia norma |
 | 2 | 1956-03-08 | Decreto Ejecutivo 11 (1956-03-08) |
+| 3 | 1962-11-14 | Ley 3062 |
