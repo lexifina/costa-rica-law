@@ -1,0 +1,1 @@
+27.—El descubrimiento de faltantes por parte de los Tesoreros Municipales tendrá que ser notificado a las Auditorías Municipales para lo que corresponda. En caso de sobrantes deberán ser depositados en partes iguales a favor de las Municipalidades de Curridabat y de La Unión.

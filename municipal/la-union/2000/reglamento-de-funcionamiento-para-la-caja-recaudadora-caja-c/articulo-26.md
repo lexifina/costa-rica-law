@@ -1,0 +1,1 @@
+26.—Cualquier diferencia entre las sumas percibidas de ingresos y la suma de los comprobantes, debe cubrirla el cajero del Relleno a más tardar un día después de haber ocurrido el faltante, caso contrario será informado ante las autoridades competentes para lo que corresponda.

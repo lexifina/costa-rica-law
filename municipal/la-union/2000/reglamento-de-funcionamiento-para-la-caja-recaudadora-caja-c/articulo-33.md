@@ -1,0 +1,1 @@
+33.—Cuando algún proveedor no esté registrado en alguno de los registros de proveedores (La Unión y Curridabat) al momento de cotizar, deberán hacerlo en la Municipalidad que no lo esté para lo que deberá coordinar con los Proveedores encargados.

@@ -1,0 +1,1 @@
+21.—Al finalizar el día, el responsable de la caja recaudadora del Relleno elaborará un reporte con los ingresos diarios, el cual debe coincidir con los comprobantes de ingreso y los depósitos bancarios, las facturas de crédito las remitirá al administrador para que realice el respectivo trámite de cobro.

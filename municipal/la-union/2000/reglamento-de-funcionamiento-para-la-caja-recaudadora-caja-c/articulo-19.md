@@ -1,0 +1,1 @@
+19º—La facturación se hará de acuerdo al peso neto indicado en la báscula y con base a este peso se hará el respectivo cobro, el cual deberá cancelarse en la caja recaudadora en forma inmediata cuando no sean municipales o no cuenten con un contrato de crédito firmado.

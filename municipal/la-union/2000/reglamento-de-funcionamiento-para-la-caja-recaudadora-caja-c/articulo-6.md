@@ -1,0 +1,1 @@
+6º—Al tramitar una compra por caja chica el encargado entrega el dinero a quien corresponda llenando la solicitud de vale, se reserva el original del comprobante y emite una copia al interesado. Una vez hecha la adquisición el encargado de caja chica solicita a la persona que realizó la compra los justificantes originales cancelados llenando el comprobante de pago de caja chica.

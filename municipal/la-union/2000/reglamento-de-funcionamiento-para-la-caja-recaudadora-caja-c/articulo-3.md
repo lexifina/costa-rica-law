@@ -1,0 +1,1 @@
+3º—El fondo se mantendrá en efectivo y servirá para atender exclusivamente la adquisición de bienes y servicios de verdadera urgencia y aquellos que por su naturaleza y monto se exceptúan de la orden de compra y de la cancelación directa de cheque.

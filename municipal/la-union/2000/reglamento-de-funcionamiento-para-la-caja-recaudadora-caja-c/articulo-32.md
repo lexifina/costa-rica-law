@@ -1,0 +1,1 @@
+32.—Se crea una comisión especial para analizar las ofertas de los proveedores para la adquisición de bienes y servicios para el Relleno Sanitario de Río Azul, compuesta por los Proveedores de La Unión y Curridabat y el Administrador del Relleno.

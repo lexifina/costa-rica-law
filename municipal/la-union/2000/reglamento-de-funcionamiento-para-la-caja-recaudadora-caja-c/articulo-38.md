@@ -1,0 +1,1 @@
+38.—Deberán fijarse las políticas de crédito de acuerdo con la disponibilidad de fondos del Relleno, las cuales serán comunicadas a las instituciones que gozan de crédito del Relleno Sanitario, con el fin de que tomen las acciones pertinentes oportunamente.

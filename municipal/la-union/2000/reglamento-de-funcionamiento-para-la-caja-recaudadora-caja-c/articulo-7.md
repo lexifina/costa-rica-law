@@ -1,0 +1,1 @@
+7º—El encargado de caja chica asignado por el Administrador del Relleno, consigna en el comprobante el código presupuestario, la firma y sella todos los tantos y recoge las firmas de la persona que retira el dinero para efectuar la compra.

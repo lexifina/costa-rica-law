@@ -1,0 +1,1 @@
+8º—Una vez entregado el dinero al funcionario para realizar la compra, éste tendrá hasta un máximo de veinticuatro horas para presentar la respectiva liquidación, de lo contrario será deducido de la planilla.

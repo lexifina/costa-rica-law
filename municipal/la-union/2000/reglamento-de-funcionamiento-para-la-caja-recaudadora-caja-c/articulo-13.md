@@ -1,0 +1,1 @@
+13.—Cuando los cheques estén debidamente autorizados, las Secciones de Tesorería de las Municipalidades de La Unión y Curridabat los harán efectivos y los remitirán a la sede del Relleno Sanitario en un plazo no mayor a tres días.

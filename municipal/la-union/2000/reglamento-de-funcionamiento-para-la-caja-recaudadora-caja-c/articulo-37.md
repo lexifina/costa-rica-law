@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del procedimiento de cobro
+37.—Uno de los Auxiliares de Contabilidad del Relleno, bajo la supervisión del Contador del Relleno estará a cargo del control del pendiente de cobro y de la gestión de cobro. Además está autorizado para retirar los cheques de ambas Municipalidades (La Unión y Curridabat) quien hará la respectiva liquidación al cajero del Relleno para que este realice los depósitos correspondientes. Durante la primera semana después de finalizado cada mes, el Contador del Relleno elaborará un informe con los cobros realizados durante el mes y el pendiente de cobro actualizado para ser remitido a los Contadores Municipales de La Unión y Curridabat.

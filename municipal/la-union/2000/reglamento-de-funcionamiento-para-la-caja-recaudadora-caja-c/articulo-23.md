@@ -1,0 +1,1 @@
+23.—El encargado de la caja, el Administrador, el facturador y el encargado de la gestión de cobro del Relleno deben contar con una póliza de fidelidad otorgada por el Instituto Nacional de Seguros (INS), además de estar incluidos en la póliza de dinero en tránsito.

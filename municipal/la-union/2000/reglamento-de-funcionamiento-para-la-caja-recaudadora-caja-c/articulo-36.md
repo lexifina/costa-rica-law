@@ -1,0 +1,1 @@
+36.—La recepción de los bienes y servicios estaría a cargo del Administrador del Relleno, quien elaborará una entrada de materiales con copias a cada una de las Proveedurías Municipales (La Unión - Curridabat). La custodia y utilización adecuada de los bienes adquiridos para el Relleno Sanitario será entera responsabilidad del Administrador del Relleno.

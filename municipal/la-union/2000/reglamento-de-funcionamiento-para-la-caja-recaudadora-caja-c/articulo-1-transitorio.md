@@ -1,0 +1,1 @@
+Transitorio I.—Las sanciones aplicables a los funcionarios del Relleno serán las indicadas por el Código Municipal, Código de Trabajo y Penal en su caso, quienes están sujetos a los mismos y en caso de falta grave se abrirá el debido proceso para la aplicación de la sanción correspondiente.
