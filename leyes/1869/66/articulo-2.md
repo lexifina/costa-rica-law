@@ -1,0 +1,1 @@
+Art 2° El Ingeniero deberá estar a disposición del Gobierno y ocuparse de ejecutar en la materia de su profesión, las obras y trabajos que este le señale sin hacer otros que no le sean ordenados por el Poder Ejecutivo.

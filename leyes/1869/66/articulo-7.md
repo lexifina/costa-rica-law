@@ -1,0 +1,1 @@
+Art 7° Los dueños de minas no matriculadas, que pretendan y soliciten el reconocimiento y trabajos de qué habla el artículo anterior podrán obtener todo esto, mediante el pago del cuádruplo valor del señalado a los matriculados.

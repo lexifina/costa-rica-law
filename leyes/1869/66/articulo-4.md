@@ -1,0 +1,1 @@
+Art 4° La contrata con el ingeniero deberá hacerse por el término de un año, quedando el Poder Ejecutivo, facultado para señalarse hasta la suma de mil libras, sin incluir los gastos de su venida, los cuales serán de cargo del Tesoro Nacional.
