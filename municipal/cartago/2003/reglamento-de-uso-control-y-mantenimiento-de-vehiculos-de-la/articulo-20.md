@@ -1,0 +1,1 @@
+Artículo 20.—Coordinación del servicio de transporte. Se reunirán las solicitudes de transporte para vehículo de uso administrativo que se generen a un mismo sitio o ruta, de acuerdo con criterios de razonabilidad, oportunidad y economía, dando un aviso oportuno a los interesados para lograr una adecuada coordinación del viaje.

@@ -1,0 +1,1 @@
+Artículo 28.—Circulación de vehículos fuera del país. Ningún vehículo podrá circular fuera del territorio nacional sin la autorización previa, debidamente justificada y escrita del jerarca de la Municipalidad.

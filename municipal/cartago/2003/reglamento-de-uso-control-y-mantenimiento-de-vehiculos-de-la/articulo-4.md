@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la asignación de los vehículos
+Artículo 4º—Asignación de vehículos. La asignación de los vehículos, para uso discrecional o administrativo, lo será únicamente con la finalidad de brindar un mejor servicio y en ningún caso debe ser considerado como un beneficio, mejora salarial, salario en especie o en alguna forma como parte del contrato de trabajo, ni dará lugar a derechos adquiridos a favor del funcionario.

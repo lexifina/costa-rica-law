@@ -1,0 +1,1 @@
+Artículo 36.—Herramientas, repuestos y piezas complementarias. Deberá llevarse un control minucioso de las herramientas, repuestos y piezas complementarias y disponibles con que cuenta cada uno de los vehículos propiedad de la Municipalidad.

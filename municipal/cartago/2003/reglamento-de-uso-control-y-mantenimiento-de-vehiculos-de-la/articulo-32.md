@@ -1,0 +1,1 @@
+Artículo 32.—Uso del lugar de estacionamiento para vehículos municipales. Se prohíbe el estacionamiento de vehículos particulares de los funcionarios municipales en los espacios de parqueo reservado a vehículos municipales, o en, su defecto, en el lugar que la Municipalidad haya contratado o destinado previamente para tal efecto.

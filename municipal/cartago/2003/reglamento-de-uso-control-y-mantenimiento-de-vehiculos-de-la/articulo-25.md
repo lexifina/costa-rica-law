@@ -1,0 +1,2 @@
+Artículo 25.—Autorización para conducir vehículos oficiales. La conducción de los vehículos estará a cargo de los choferes o funcionarios autorizados y acreditados para ello por el Departamento de Transportes de la Municipalidad
+Esta autorización se formalizará mediante una licencia o identificación que emita la Municipalidad y que deberá portar obligatoriamente todo trabajador mientras conduce el vehículo.

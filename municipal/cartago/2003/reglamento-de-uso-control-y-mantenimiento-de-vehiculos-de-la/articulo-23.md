@@ -1,0 +1,2 @@
+Artículo 23.—Placas y distintivos oficiales. Todos los vehículos oficiales de uso administrativo deberán portar permanentemente placas de matrícula oficial, y al menos en el centro de ambas puertas delanteras, un distintivo que los identifique con "MUNICIPALIDAD DE CARTAGO" y la leyenda "USO OFICIAL", según las características que ordena el Ministerio de Obras Públicas y Transportes y la Ley de Tránsito.
+En el caso de las motocicletas el distintivo se colocará en lugar visible.

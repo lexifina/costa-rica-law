@@ -1,0 +1,1 @@
+Artículo 35.—Inventario de vehículos. Se deberán realizar inventarios periódicos de todos los vehículos propiedad de la Municipalidad, a efecto de verificar la existencia, localización, estado físico y mecánico de todos los vehículos de la Municipalidad.
