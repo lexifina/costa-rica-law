@@ -1,0 +1,1 @@
+Art 2°.- Se han por Consejeros propietarios a los Ciudadanos Jefe Moya, y Manuel Antonio Bonilla, electos, el primero popularmente y el segundo por la Asamblea y por los suplentes a los Ciudadanos Venancio Sandoval y Presbiteros Felix Idalgo, y Nicolas Oreamuno, electos aquellos por el Poder Lejislativo, y este popularmente.
