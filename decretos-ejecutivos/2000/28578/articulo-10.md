@@ -18,4 +18,7 @@ n) Vigilar la acción de sus subordinados para constatar su legalidad, así como
 o) Adoptar las medidas necesarias para ajustar la conducta de sus subordinados a la ley y a la buena administración, revocándola, anulándola o reformándola, de oficio o a instancia de parte.
 p) Delegar sus funciones y avocar las del inmediato inferior, así como sustituirlo en casos de inercia culpable, o subrogarse a él ocupando temporalmente su plaza mientras no regrese o no sea nombrado un nuevo titular; todo dentro de los límites señalados por el ordenamiento jurídico.
 q) Resolver los conflictos de competencia o de cualquier otra índole que se produzcan entre las instancias u órganos inferiores.
-r) Las demás que señale el ordenamiento jurídico y las que le asignen las autoridades ministeriales.
+r) Establecer, ordenar y vigilar el movimiento y rotación periódica de los jefes regionales, inspectores de trabajo, conciliadores laborales y demás personal a su cargo.
+(Reformado este inciso mediante el artículo 1º del Decreto Ejecutivo 30931-TSS del 6 de enero del 2003)
+s) Las demás que señale el ordenamiento jurídico y las que le asignen las autoridades ministeriales.
+(Adicionado este inciso mediante el artículo 2º del Decreto Ejecutivo 30931-TSS del 6 de enero del 2003)
