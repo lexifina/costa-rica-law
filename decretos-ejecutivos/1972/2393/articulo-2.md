@@ -1,0 +1,1 @@
+Artículo 2°—Los ensayos clínicos con drogas, medicamentos, sustancias químicas, productos biológicos y extractos de plantas o cualquier otra sustancia no podrán realizarse si no es con autorización previa y expresa de la Dirección General de Salubridad del Ministerio de Salubridad Pública.

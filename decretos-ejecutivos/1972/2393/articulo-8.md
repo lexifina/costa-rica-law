@@ -1,0 +1,1 @@
+Artículo 8°—Este Comité, con vista de los estudios y antecedentes que se le presenten o que tenga a bien ordenar, rendirá informe sobre la conveniencia o inconveniencia de los ensayos que se pretende hacer: podrá igualmente dar las recomendaciones que estime procedentes en estas materias.

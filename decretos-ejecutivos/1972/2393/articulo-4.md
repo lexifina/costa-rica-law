@@ -1,0 +1,1 @@
+Artículo 4°—Además de los requisitos antes establecidos, en la solicitud deberá indicarse expresamente el nombre de la persona o personas que serán responsables, para todos los efectos, de la dirección técnica y científica de los trabajos.

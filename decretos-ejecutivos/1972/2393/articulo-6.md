@@ -1,0 +1,1 @@
+Artículo 6°—El Ministerio de Salubridad Pública podrá cancelar en cualquier tiempo los permisos otorgados, en el momento en que se determine que no se cumplen los requisitos establecidos o que los ensayos son perjudiciales o nocivos para la salud de los investigandos, todo a juicio del Ministerio.
