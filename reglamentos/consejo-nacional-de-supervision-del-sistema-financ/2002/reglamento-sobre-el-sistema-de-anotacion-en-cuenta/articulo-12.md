@@ -1,0 +1,1 @@
+Artículo 12— Organización del registro contable. Los registros contables de valores se organizarán bajo un sistema de dos niveles: un primer nivel constituido por el registro central, que llevará la central de anotación en cuenta o en su caso el Banco Central de Costa Rica y un segundo nivel constituido por los registros que llevarán las entidades de custodia.

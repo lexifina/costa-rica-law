@@ -1,0 +1,1 @@
+Artículo 10— Auditorías Externas. Las centrales de anotación en cuenta serán objeto de una auditoría externa anual, en los términos establecidos en el Reglamento de Auditores Externos. Esta auditoría deberá comprender la revisión de los procedimientos y de los sistemas informáticos en que se sustenta el registro, de acuerdo con los lineamientos que emita el Superintendente.
