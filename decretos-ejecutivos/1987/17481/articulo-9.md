@@ -1,10 +1,12 @@
-Artículo 9°—Se fijan las siguientes tarifas de honorarios para trabajos de titulación y asentamientos promovidas por el Instituto de Desarrollo Agrario (IDA).
-a) Terreno plano de fácil acceso c 5.050,00 p/km.
-b) Terreno plano de difícil accedo c 6.350,00 p/km.
-c) Terreno quebrado de fácil acceso c 6.050,00 p/km.
-d) Terreno quebrado de difícil acceso c 7.100,00 p/km.
-e) Parcelas menores de 1 hectárea (minifundio) se cobrará a mil trescientos colones por plano adicional al precio establecido por kilómetro en los puntos a), b), c), y d), según corresponda.
-f) En el replanteo de linderos según el grado de dificultad se incrementará el precio por kilómetro según corresponda a los puntos a), b), c) y d), hasta un 20% adicional para cada trabajo específico.
-g) En cada contrato por obra determinada, se incluirá una fórmula matemática de ajuste automático aprobado por la Contraloría General de la República, que considere incrementos en salarios, combustibles y variación en el tipo de cambio del dólar, (que incide directamente en los costos de equipo y vehículos), durante la ejecución de la obra; siempre y cuando la empresa se encuentre al día y en continuidad de los trabajos según la meta establecida originalmente. (Circular de la Contraloría del 3 de noviembre de 1982).
-El Instituto de Desarrollo Agrario (IDA) dará los linderos definidos en los artículos 51 y 52 del Reglamento de Catastro.
-Estas tarifas serán aplicables únicamente para trabajos del Instituto de Desarrollo Agrario (IDA), rurales con un número no menor de 30 parcelas en bloque, contenidas en un área mayor a 300 hectáreas. En caso contrario, aplíquese la tarifa general de agrimensura.
+Artículo 9°—Se fijan las siguientes tarifas de honorarios para trabajos de agrimensura en programas de titulación y asentamientos promovidos por el Instituto de Desarrollo Agrario (IDA):
+A) Terreno plano de fácil acceso = c 5.050,00 x i por kilómetro.
+B) Terreno plano de difícil acceso = c 6.350,00 x i por kilómetro.
+C) Terreno quebrado de fácil acceso = c 6.050,00 x i por kilómetro.
+D) Terreno quebrado de difícil acceso = c 7.100,00 x i por kilómetro.
+E) Parcelas menos de una hectárea (Minifundio) = c 1.300,00 x i por plano adicional al precio establecido por kilómetro en los puntos A),B),C)yD), según corresponda.
+F) En el replanteo de linderos, según el grado de dificultad, se incrementará en el precio por kilómetro; según corresponda a los puntos A), B), C) y D).
+Hasta un 20% adicional para cada trabajo específico.
+El Instituto de Desarrollo Agrario dará los linderos definidos en los artículos Nº 51 y 52 del Reglamento de Catastro.
+Estas tarifas serán aplicables únicamente para trabajos rurales del Instituto de Desarrollo Agrario, con un número no menos de treinta (30) parcelas en bloque, contenidos en un área mayor de trescientas hectáreas, en caso contrario, aplíquese la tarifa general de agrimensura.
+"i" es un factor de ajuste inflacionario; cuyo valor se obtendrá como se establece en el artículo 3° del presente decreto.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N°19048 de 19 de junio de 1989, publicado en La Gaceta N° 126 de 04 de julio de 1989.)
