@@ -1,1 +1,2 @@
-Artículo 16.—El mantenimiento de la Red Vial Cantonal estará a cargo municipalidades. Sin embargo, mientras estos organismos locales adquieren la capacidad necesaria para cumplir tal labor, el Ministerio de Obras Públicas y Trabajo continuará colaborando en la conservación de la Red Vial Cantonal, con base contratos que celebre con cada municipalidad fijando los alcances de la participación de cada institución.
+Artículo 16.—
+(Derogado expresamente por el artículo 43 del Decreto Ejecutivo Nº 30263 del 5 de marzo del 2002)

@@ -14,3 +14,4 @@ Reglamento sobre Clasificación Funcional Caminos Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-10-27 | la propia norma |
+| 2 | 2002-03-05 | Decreto Ejecutivo 30263 (2002-03-05) |

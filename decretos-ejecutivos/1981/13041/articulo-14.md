@@ -1,3 +1,4 @@
-CAPITULO
+CAPITULO II
 De la Red Vial Cantonal
-Artículo 14.—La Red Vial Cantonal estará constituida por los caminos vecinales, calles locales y otros caminos públicos no incluidos por el Ministerio de Obras Públicas y Transportes dentro de la Red Vial Nacional.
+Artículo 14.—
+(Derogado expresamente por el artículo 43 del Decreto Ejecutivo Nº 30263 del 5 de marzo del 2002)
