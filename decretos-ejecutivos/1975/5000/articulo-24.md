@@ -12,3 +12,5 @@ e) Hacer promoción a bienes y servicios con base en declaraciones falsas, conce
 f) Incumplir en cualquiera de sus condiciones con la oferta de regalos, muestras gratis y otras cosas gratuitas, hechas para inducir al público a la compra de otros bienes o servicios;
 g) Ofrecer garantías sobre bienes y servicios sin estar en capacidad de respaldarlas; y
 h) Cualesquiera otras prácticas publicitarias o de mercadeo de similar naturaleza que impliquen dolo.
+i) Anunciar rebajas u otros beneficios para el consumidor sin que se explique de manera clara en qué consiste la rebaja o el beneficio, tratándose de rebajas o descuentos en los precios, en todo caso deberá indicarse el precio anterior a la rebaja, descuento o beneficio.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 19689 del 3 de mayo de 1990)
