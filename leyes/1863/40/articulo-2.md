@@ -1,0 +1,1 @@
+Art 2° Aunque esta suma debe ser administrada por la Junta de Caridad, no se confundirá con las que leyes anteriores han asignado a este hospicio y al Hospital de San Juan de Dios, fundado en esta ciudad, sino que exclusivamente deben emplearse en el Lazareto.
