@@ -1,1 +1,0 @@
-Artículo 2°.—Queda prohibida la exportación de ganado vacuno durante el primer año de la vigencia de este decreto. Una ley posterior determinará la posibilidad de exportarlo y las condiciones en que entonces se haga.
