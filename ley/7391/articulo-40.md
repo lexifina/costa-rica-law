@@ -1,5 +1,4 @@
-Artículo 40.- Las federaciones podrán establecer, por reglamento, mecanismos financieros para crear fondos de liquidez, de depósitos y de estabilización en beneficio de sus cooperativas afiliadas.
-El fondo de liquidez se establece para administrar los depósitos que efectúen las cooperativas para cumplir con los requisitos relativos a su reserva de liquidez.
+Artículo 40.-Las federaciones podrán establecer, por reglamento, mecanismos financieros para crear fondos de liquidez, de depósitos y de estabilización en beneficio de sus cooperativas afiliadas. El fondo de liquidez se establece para administrar los depósitos que efectúen las cooperativas para cumplir con los requisitos relativos a su reserva de liquidez.
 El fondo de depósitos se establece para administrar los depósitos que efectúen las cooperativas con propósitos de inversión temporal, incluyendo la reserva que se establece en el artículo 26.
 El fondo de estabilización se establece para asegurar a las cooperativas afiliadas, la obtención de recursos en situaciones difíciles, de conformidad con los reglamentos que apruebe la federación.
 La administración de tales fondos la podrá efectuar un departamento de la federación o un ente controlado por esta, de conformidad con la ley.

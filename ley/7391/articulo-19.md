@@ -1,1 +1,2 @@
-Artículo 19.- Las operaciones de crédito que la cooperativa efectúe con los miembros del consejo de administración, los comités, los gerentes y los subgerentes, se regularán por las disposiciones especiales que deberá contener su estatuto, las cuales deberán notificarse a la Auditoría General.
+Artículo 19.- Las operaciones de crédito que la cooperativa efectúe con los miembros del consejo de administración, los comités, los gerentes y los subgerentes, se regularán por las disposiciones especiales que deberá contener su estatuto, las cuales deberán notificarse a la Superintendencia General (*).
+(*)(Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica No.7558 de 3 de noviembre de 1995)

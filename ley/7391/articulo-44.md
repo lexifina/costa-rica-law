@@ -1,1 +1,1 @@
-Artículo 44.- Las cooperativas podrán formar parte de organismos de integración y de sociedades cooperativas, mediante el voto afirmativo de las dos terceras partes de los miembros del consejo de administración.
+Artículo 44.-Las cooperativas podrán formar parte de organismos de integración y de sociedades cooperativas, mediante el voto afirmativo de las dos terceras partes de los miembros del consejo de administración.
