@@ -13,3 +13,4 @@ Reglamento Impuesto Traspaso Vehículos, Aeronaves y Embarcaciones
 | --- | --- | --- |
 | 1 | 1987-12-01 | la propia norma |
 | 2 | 1987-12-01 | Decreto Ejecutivo 21546 (1992-08-24) |
+| 3 | 1999-01-12 | Resolución 3 (1999-01-12) |
