@@ -13,3 +13,4 @@ Adopta Delimitación Crecimiento Urbano Sector Noreste Sistema UrbanoMetropolita
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-08 | la propia norma |
+| 2 | 1980-04-08 | SINALEVI (sin norma nombrada) |
