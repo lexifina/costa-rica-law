@@ -843,70 +843,76 @@ Se continúa aguas abajo por el río El Sol hasta su confluencia con el río Fr�
 Área de la Reserva 2 743 Ha. 5 897 m2.
 (Así reformada la Reserva Indígena de Guatuso anterior por el artículo 2° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 7962 del 15 de diciembre de 1977, se acordó modificar los límites de la Reserva Indígena de Guatuso, de tal manera que la superficie total quede similar, pero que se excluya de la Reserva los poblados de Los Angeles y de San Josecito (Cucaracha).)
-RESERVA INDÍGENA DE TALAMANCA
-La Reserva Indígena Bribri de Talamanca se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Amubri 3644 IV, Sukut 3644 III, Siola 3544 II, Telire 3544 I.
-La Reserva se localiza por los puntos cuyas coordenadas son las siguientes:
-Partiendo de la confluencia del río Yorkin con el río Telire, en coordenadas N 390 500 E 585 500, se sigue por el río Yorkin (límite internacional Costa Rica-Panamá) aguas arriba hasta el punto de coordenadas N 383 200 E 590 450.
-De ahí se continúa, siempre por la línea que señala el límite internacional Costa Rica- Panamá, pasando por los puntos de coordenadas:
-N 380 750 | E 580 200 | (cerro Namú-Uoki).
-N 370 750 | E 580 200 | (río Sukut).
-A partir de este punto, .el límite de la Reserva es el lindero común con el "Parque Nacional de la Cordillera de Talamanca" (Parque Internacional de la Amistad: Costa Rica-Panamá); de este punto, una recta hasta el punto de coordenadas: N 370 OCO E 578 280, a la confluencia del río Carbri con la quebrada Sinari.
-De ahí, se sigue aguas arriba por la quebrada Sinari hasta su naciente, en coordenadas N 369 700 E 577 260. De este punto se continúa por los puntos cuyas coordenadas son:
-N 369 720 | E 577 040 | (cerro, 1 199 m).
-N 368 000 | E 574 000 |
-N 368 000 | E 572 400 |
-N 370 350 | E 572 400 | (cerro Lumbeta, 1 045 m).
-N371 825 | E 570 450 | (cerro Pat).
-N 372 450 | E 566 550 | (unión de quebrada Orutu con el río Lari).
-N 372 700 | E 561 700 | (unión de quebrada sin nombre con el río Pare)
-N 378 100 | F 562 840 | (cerro, 1 559 m).
-A partir de este punto finaliza el límite común entre la Reserva Indígena Bribri de Talamanca y el Parque Nacional Cordillera de Talamanca (La Amistad), y se inicia el límite común con la Reserva Indígena Cabécar de Talamanca; el lindero sigue la fila divisoria de aguas entre las cuencas de los ríos Coén y Lari, pasando por los puntos de coordenadas siguientes:
-N 379 200 | E 564 250 | (cerro Piedra Pintada, 1 350 m).
-N 380 075 | E 564 350 | (cerro, 1 220 m).
-N 381 650 | E 566 475 | (cerro, 1 041 m).
-De este punto, una recta hasta la naciente en el mapa de un afluente sin nombre de la quebrada Orosi (Olotsi), en coordenadas N 382 750 E 566 075.
-Se sigue aguas abajo por este afluente hasta su confluencia con la quebrada Orosi, en coordenadas N 384 300 E 565 400, y de allí aguas abajo por la quebrada Orosi (Olotsi) hasta su confluencia con el río Coén (Cwen), en coordenadas N 384 950 E 566 400. De este punto, se continúa por el río Coén (Cwen) aguas abajo hasta la confluencia de una quebrada sin nombre en el mapa, en coordenadas N 385 025 E 567 275.
-El lindero sigue por esta quebrada, aguas arriba, hasta un punto de coordenadas N 386 500 E 566 725. De este punto, se continúa por los puntos de coordenadas siguientes:
-N 387 225 | E 566 500 | (cerro, 756 m).
-N 389 700 | E 567 100 | (confluencia de las dos nacientes de la quebrada Keri).
-De allí se sigue la quebrada Keri aguas abajo hasta el punto de coordenadas N 390 825 E 568 625. De este punto, una recta hasta el punto donde el camino de Urochico a Mojoncito cruza el río Xcuy (o Shcui), en coordenadas N 391 300 E 569 000. De ahí, una recta hasta el río Telire, en el punto de coordenadas N 391 950 E 569 650.
-De ahí, se sigue el río Telire aguas abajo hasta el punto de coordenadas: N 390 975 E 575 400. De este punto, una recta hasta la confluencia de la quebrada Secori con un brazo muerto del río Telire, en coordenadas N 391 725 E 576 000.
-El lindero continúa aguas abajo por el brazo muerto del río Telire, hasta el punto de coordenadas N 392 150 E 576 700. De este punto, se sigue por los puntos de coordenadas:
-N 392 800 | E 576 700 |
-N 393 425 | E 577 650 | (río Xiroles o Shiroles).
-De este punto, se continúa por el río Xiroles (o Shiroles), aguas arriba, hasta la confluencia de la quebrada Kirie (Clioc), en coordenadas N 394 100 E 577 600.
-De este punto, aguas arriba por la quebrada Kirie (Clioc) hasta su naciente en el mapa, y de allí una recta al cerro Mirador, en coordenadas N 396 050 E 577 600.
-A partir de este punto, el límite de la Reserva sigue la fila divisoria de aguas entre las cuencas del río Telire y de la Estrella (Duruy, Bitey), pasando por los puntos de coordenadas siguientes:
-N 396 150 | E 577 950 |
+RESERVA INDÍGENA CABÉCAR DE TALAMANCA
+(Nota de Sinalevi: mediante el artículo 3° del decreto ejecutivo N° 29448 del 21 de marzo de 2001, se modificar el artículo Nº 2 del decreto ejecutivo Nº 16306-G de La Gaceta Nº 116 de 20 de junio de 1985 para que de ahora en adelante se lea: para los efectos de la delimitación establecida en el artículo Nº 1 del presente decreto, modifíquense en lo conducente los decretos Nº 6036-G, Nº 7268-G, 13591-G y Nº 16306-G de manera que los terrenos establecidos como reservas indígenas por estos decretos y que han sido parte integrante de la Reserva Indígena Cabécar de Talamanca, se fusionan en una sola reserva indígena, que se llamará: Reserva Indígena Cabécar de Talamanca.)
+La "Reserva Indígena Cabécar de Talamanca", se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Telire 3544 I, Amubri 3644 IV, Siola 3544 II.
+La Reserva Indígena Cabécar de Talamanca se localiza por los puntos cuyas coordenadas son las siguientes:
+Partiendo de la confluencia entre el río Duruy (Duluy) y la Quebrada Guitarra (denominada así en el mapa) en el lugar llamado "Dos Bocas", en coordenadas N 398 750 E576 750. De ahí una recta al punto de coordenadas N 399 130 E 579 190 (Cero 518 metros). El lindero continúa pasando por los puntos de coordenadas:
+N 400 185 | E 579 375 |
+N 400 875 | E 582 095 |
+N 399 200 | E 581 150 |
+N 398 900 | E 581 600 | punto donde se inicia el límite común entre las reservas indígenas Cabécar de Talamanca y Bribrí de Talamanca. Se continúa por el límite común que corre por la divisoria de aguas entre la cuenca del río Telire, la del río Duruy y río Uatsi, pasando por los puntos de coordenadas:
+N 398 420 | E 581 440 |
+N 398 100 | E 580 950 | ( Cerro Dwe 515m)
+N 397 475 | E 580 000 | (Loma Kirióbata Kiryobata)
+N 396 925 | E 579 575 | (Cerro Uatsi (Watsi ) 630m)
 N 396 650 | E 578 825 |
-N 396 925 | E 579 575 | (cerro Uatsi o Watsi, 630 m).
-N 397 475 | E 580 000 | (Loma Kirióbeta o Kiryobata).
-N 398 100 | E 580 950 | (cerro Dwe, 515 m con este punto finaliza el límite común con la Reserva Indígena Cabécar de Talamanca).
-N 398 375 | E 581 440 |
-N 399 000 | E 581 700 |
-A partir de este punto, el límite de la Reserva se aparta de la fila divisoria de aguas, y pasa por los puntos de coordenadas:
-N 399 225 | E 582 160 |
-N 399 400 | E 582 260 |
-N 399 350 | E 582 875 | (río Sarabri).
-De este punto, se sigue el río Sarabri (sin nombre en el mapa) hasta su naciente, en coordenadas N 400 590 E 583 275.
-De este punto, se continúa por los puntos de coordenadas siguientes:
-N 400 940 | E 583 660 | (cerro Altamira ).
-N 400 290 | E 584 525 |
-N 400 150 | E 585 460 | (Fila Carbón).
-N 399 725 | E 585 590 | (río Carbón).
-N 399 775 | E 585 850 | (río Carbón).
-N 399 150 | E 586 125 |
-N 398 650 | E 586 790 |
-N 398 225 | E 586 825 |
-N 398 000 | E 586 725 |
-N 397 460 | E 586 800 | (plaza de Watsi).
-N 397 000 | E 587 000 |
-N 395 000 | E 586 550 |
-N 394 600 | E 587 000 | (cerro Chase, 150 m).
-N 393 890 | E 587 275 | (Piedra Grande, río Sixaola).
-De este punto se sigue aguas arriba por el río Sixaola, hasta la confluencia entre los ríos Telire y Yorkin, en coordenadas N 390 500 E 585 500, punto inicial de la descripción.
-Superficie de la Reserva Indígena Bribri de Talamanca: 43 690 hectáreas.
-(Así reformada la Reserva Indígena de Talamanca anterior por el artículo 1° del decreto ejecutivo N° 16307 del 16 de mayo de 1985)
+N 396 150 | E 577 950 |
+N 396 050 | E 577 600 | (Cerro Mirador)
+De allí el lindero baja por la quebrada Kirio (Clioc) hasta su confluencia con el río Shiroles (Xiroles), en coordenadas N 394 100 E 577 600 (*), de allí aguas abajo por el río Shiroles (Xiroles) hasta el punto de coordenadas N 393 425 E 577 650.
+(*)(Corregida la coordenada anterior mediante Fe de Erratas y publicada en La Gaceta N° 221 del 16 de noviembre de 2001, página N° 72. Anteriormente se indicaba: "N 394 00 E 577 600")
+De allí se sigue por los puntos de coordenadas:
+N 392 800 | E 576 700
+N 392 150 | E 576 700
+De este punto el límite continúa por un brazo muerto del río Telire hasta la antigua confluencia de la quebrada Secori con este brazo, en coordenadas N 391 725 E 576 000.
+De allí una recta al río Telire, hasta el punto de coordenadas N 390 975 E 575 400.
+De este punto se sigue aguas arriba el río Telire hasta un punto de coordenadas N 391 950 E 569 650.
+De allí una recta hacia el suroeste, hasta el punto donde el camino de Urochico o Mojoncito cruza el río Xcuy (o Shcui) en coordenadas N 391 300 E 569 000.
+De este punto a otro situado en la quebrada Keri, en coordenadas N 390 825 E 568 625. De allí se sigue la quebrada Keri aguas arriba hasta la confluencia de sus dos nacientes en coordenadas N 389 700 E 567 100.
+De este punto una recta (*) hacia el suroeste, hasta la cima de un cerro sin nombre en el mapa, de 756 m de altitud, en coordenadas N 387 225 E 566 500. De allí se sigue por una recta hasta un punto situado en una quebrada sin nombre en el mapa, en coordenadas N 386 500 E 566 725. De este punto, el lindero sigue aguas abajo por esta quebrada hasta su confluencia con el río Coén (Cwen), en coordenadas N 385 025 E 567 275.
+(*)(Corregida la palabra anterior mediante Fe de Erratas y publicada en La Gaceta N° 221 del 16 de noviembre de 2001, página N° 72. Anteriormente se indicaba: "resta")
+De este punto se sigue aguas arriba por el río Coén (Cwen) hasta la confluencia de la quebrada Orosi (u Olotsi), en coordenadas N 384 950 E 566 400. De allí se sigue aguas arriba por la quebrada Orosi (Olotsi) hasta su confluencia con un afluente, en coordenadas N 384 300 E 565 400. De este punto se sigue aguas arriba por el afluente hasta su naciente en el mapa en coordenadas N 382 750 E 566 075; de este punto sigue en línea recta hasta un cerro de 1041m de altitud, en coordenadas N 381 650 E 566 475.
+De este punto, se sigue por la fila divisoria de aguas entre las cuencas de los ríos Coén y Lari, pasando por los puntos de coordenadas siguientes:
+N 380 075 (*) | E 564 350 | (cerro 1220 m)
+N 379 200 | E 564 250 | (cerro) Piedra Pintada, 1350m
+N 378 100 | E 562 840 | (cerro, 1 559 m).
+(*)(Corregida la coordenada anterior mediante Fe de Erratas y publicada en La Gaceta N° 221 del 16 de noviembre de 2001, página N° 72. Anteriormente se indicaba: "N 380 075 E 564 350")
+A partir de este punto finaliza el límite común entre la Reserva Indígena Cabécar de Talamanca y la Reserva Bribrí de Talamanca e inicia el límite común entre la Reserva Cabécar de Talamanca con el Parque Nacional Cordillera de Talamanca (Parque Internacional La Amistad), pasando por los puntos de coordenadas siguientes:
+N 380 300 | E 561 160 | (Unión de quebrada Sirio con el río Suinxi )
+N 381 060 | E 556 880 |
+N 379 800 | E 553 160 | (cerro, 1180 m).
+N 379 250 | E 552 940 | (cerro Piedra Grande, 1 200 m)
+N 379 625 | E 552 030 | (Unión de quebrada Curarí con el río Coén)
+N 382 490 | E 552 300 | (cerros Kurkiribeta, 1 432 m)
+N 385 000 | E 552 000 |
+N 386 000 | E 553 000 |
+N 387 050 | E 554 400 |
+N 386 850 | E 555 650 |
+A partir de este último punto finaliza el límite común con el Parque Nacional Cordillera de Talamanca (P. Internacional La Amistad), y se inicia el lindero común con la Reserva Indígena Cabécar de Telire, el límite sigue la divisoria de aguas entre los ríos Quei (Tqey) y Coén, y se define por los puntos de coordenadas siguientes:
+N 387 225 | E 556 225
+N 388 725 | E 557 600
+De allí una recta a la naciente en el mapa del río Cavei (Cäbey), en coordenadas N 389 000 E 558 175. De este punto se sigue aguas abajo el río Cavei (Cäbey) hasta el punto de coordenadas N 393 475 E 561 100. De allí una recta al río Telire hasta un punto de coordenadas N 393 700 E 560 775.
+De este punto se sigue el río Telire aguas arriba hasta la desembocadura de la quebrada Buclari (sin nombre en el mapa). En coordenadas N 394 150 E 560 100 (*).
+(*)(Corregida la coordenada anterior mediante Fe de Erratas y publicada en La Gaceta N° 221 del 16 de noviembre de 2001, página N° 72. Anteriormente se indicaba: " N 394 E 560 100")
+A partir de este punto se inicia el límite común con la Reserva Biológica de Hitoy; se sigue la quebrada Buclari aguas arriba hasta su naciente, en coordenadas N 395 525 E 559 960.
+De allí una recta al punto de coordenadas N 396 350 E 559 560 (cerro Cuna).
+A partir de este punto, se continúa por la fila divisoria de aguas entre los ríos Hitoy y Telire por los puntos de coordenadas:
+N 397 000 | E 561 000 |
+N 397 000 | E 561 440 | (cerro Cachuc 700 m).
+N 397 450 | E 562 550 |
+N 397 750 | E 562 900 | (Fila Jabos)
+N 397 000 | E 565 000 |
+N 397 000 | E 565 450 | (Fila Secalic)
+N 296 200 | E 566 500 | (Fila Secalic)
+N 396 525 | E 566 750 |
+N 396 600 | E 567 400 | (cerro Tesbata, 700 m)
+N 397 100 | E 567 775 |
+N 397 200 | E 568 150 |
+N 397 150 | E 568 550 | (cerro Tanec bata, 665 m).
+De este punto, una recta hasta la naciente del río Moín (Moyn) en el mapa, en coordenadas N 397 775 E 569 000.
+De allí se continúa por el río Moín (Moyn) aguas abajo hasta el punto de coordenadas N 399 000 E 575 250.
+De este punto una recta hasta "Dos Bocas", punto inicial de la descripción en coordenadas N 398 750 E 576 750.
+(Así reformada la Reserva Indígena de Talamanca anterior por el artículo 1° del decreto ejecutivo N° 29448 del 21 de marzo de 2001)
 (*)El límite oeste de la Reserva Indígena Talamanca es en adelante la línea definida por las siguientes coordenadas:
 360 000 N | 553 000 E
 387 050 N | 554 400 E
@@ -1058,51 +1064,51 @@ RESERVA INDÍGENA BRIBRÍ DE KEKÖLDI (COCLES)(*)
 (*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 25296 del 24 de junio de 1996, se estableció que la Reserva Indígena Bribrí de Cocles se denominará en adelante "Reserva Indígena Bribrí de Keköldi (Cocles)".)
 La Reserva Indígena Bribrí de Këköldi se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 3644 IV, Sixaola 3644 I y Cahuita 3645 III, y se delimita por los puntos cuyas coordenadas son las siguientes:
 Partiendo de la Cima del Cerro Pirripli, 220m/snm, al sur de Puerto Viejo, en coordenadas N 399 825 E 600 825, se continúa hacia el este por una estribación del cerro Pirripli, pasando por los puntos de coordenadas:
-N 399 725 | E 601 405 | (cerro, 100 m.)
-N 399 800 | E 601 600 |
+N 399 725 E 601 405 (cerro, 100 m.)
+N 399 800 E 601 600
 De este último punto se sigue al punto de coordenadas N 399 525 E 601 715. De allí una recta siguiendo aproximadamente un camino hacia el sur, hasta el punto de coordenadas N 398 975 E 601 600, para continuar al punto de coordenadas N 398 700 E 601 450 (cerrito, 80 metros). Se continúa por los puntos de coordenadas siguientes:
-N 398 620 | E 601 425 |
-N 398 225 | E 602 075 | (Río Caño Negro)
+N 398 620 E 601 425
+N 398 225 E 602 075 (Río Caño Negro)
 Se sigue por el río Caño Negro aguas arriba, hasta la confluencia de sus dos nacientes principales, en coordenadas N 396 750 E 602 225. De ahí, una recta al punto de coordenadas N 396 575 E 601 800.
 El lindero continúa hacia el suroeste, por una estribación, hasta el punto de coordenadas N 396 150 E 601 275 (cerro, 112 m.).
 De este punto, se sigue con líneas rectas por los puntos de coordenadas siguientes:
-N 395 745 | E 601 280 | (cerrito, 80 m.)
-N 395 475 | E 598 725 | (cerro al norte de Margarita,120 m.)
-N 395 525 | E 597 630 |
-N 396 450 | E 595 600 |
-N 397 270 | E 593 600 |
-N 397 350 | E 593 100 | (cerro, 220 m.)
-N 397 450 | E 592 360 | (carretera de Home Creek a Bribrí)
-N 397 625 | E 591 875 |
+N 395 745 E 601 280 (cerrito, 80 m.)
+N 395 475 E 598 725 (cerro al norte de Margarita,120 m.)
+N 395 525 E 597 630
+N 396 450 E 595 600
+N 397 270 E 593 600
+N 397 350 E 593 100 (cerro, 220 m.)
+N 397 450 E 592 360 (carretera de Home Creek a Bribrí)
+N 397 625 E 591 875
 De este punto se continúa por la fila divisoria de aguas entre el Río Sand Box por una parte los Ríos Sixaola, Carbón y Quebrada Carbón; por otra parte, pasando por los puntos de coordenadas:
-N 397 840 | E 590 700 | (Cerro, 318 m.)
-N 398 740 | E 589 070 | (Cerro, 320 m., aproximadamente)
+N 397 840 E 590 700 (Cerro, 318 m.)
+N 398 740 E 589 070 (Cerro, 320 m., aproximadamente)
 El límite sigue por los puntos de coordenadas: N 399 075 E 588 480 (cerro, 342 m.), N 399 125 E 587 750, N 399 250 E 587 520.
 De este último punto, una recta al punto de coordenadas N 398 650 E 586 790. A partir de este punto, se inicia el límite común con la Reserva Indígena Bribrí de Talamanca, continuando el lindero por los puntos de coordenadas:
-N 399 150 | E 586 125 |
-N 399 775 | E 585 850 | (Río Carbón)
+N 399 150 E 586 125
+N 399 775 E 585 850 (Río Carbón)
 De ahí se sigue aguas arriba por el río Carbón, hasta el punto de coordenadas N 399 725 E 585 590, para tomar una recta con rumbo noroeste hacia la fila Carbón, en el punto de coordenadas N 400 150 E 585 460. En este último punto, termina el límite común descrito, siguiendo el límite de la Reserva Indígena de Këköldi, con una recta al punto de coordenadas N 401 000 E 585 900. Punto que interseca una naciente del Río Carbón ("Dos"), dibujada por curvas de nivel en el mapa. Se sigue aguas abajo por esta naciente, hasta su confluencia con la naciente principal del Río Carbón ("Dos"), hasta el punto de coordenadas N 185 250 E 660 375. Continúa aguas arriba por la naciente principal del río Carbón ("Dos") hasta el punto de coordenadas N 183 850 E 561 720. De ahí una recta al punto de coordenadas N 401 600 E 590 075. Punto que interseca un afluente de la quebrada Carbón. Se sigue aguas arriba por este afluente, hasta el punto de coordenadas N 400 975 E 590 075. De ahí, se continúa pasando por los puntos de coordenadas siguientes:
-N 400 340 | E 590 665
-N 99 775 | E 591 000
+N 400 340 E 590 665
+N 99 775 E 591 000
 De este punto, se sigue por la divisoria de aguas entre los ríos Carbón ("Dos"), Río Sand Box y Río Patiño, con las siguientes coordenadas:
-N 399 920 | E 591 400 | (Cerro, 390 m.)
-N 399 875 | E 592 225 |
-N 400 195 | E 593 000 | (Cerro, 320 m.)
-N 399 875 | E 594 100 |
-N 399 990 | E 594 520 | (Empalme entre la carretera principal y el camino viejo de Puerto Viejo a Patiño)
+N 399 920 E 591 400 (Cerro, 390 m.)
+N 399 875 E 592 225
+N 400 195 E 593 000 (Cerro, 320 m.)
+N 399 875 E 594 100
+N 399 990 E 594 520 (Empalme entre la carretera principal y el camino viejo de Puerto Viejo a Patiño)
 De este punto continúa por el camino viejo que va a Puerto Viejo, hasta el punto de coordenadas N 399 700 E 595 400.
 De allí, se sigue por los puntos de coordenadas siguientes:
-N 399 900 | E 595 440 |
-N 400 120 | E 595 750 | (Carretera de Home Creek a Puerto Viejo)
-N 399 995 | E 595 900 | (Carretera de Home Creek a Puerto Viejo)
-N 399 875 | E 595 800 |
-N 399 605 | E 596 050 |
-N 399 525 | E 596 800 |
-N 399 650 | E 596 900 |
-N 399 700 | E 597 780 |
-N 399 455 | E 598 950 | (Cerro, 100 m.)
-N 399 700 | E 599 105 |
-N 399 825 | E 600 825 | (Cerro Pirripli, punto inicial de la descripción).
+N 399 900 E 595 440
+N 400 120 E 595 750 (Carretera de Home Creek a Puerto Viejo)
+N 399 995 E 595 900 (Carretera de Home Creek a Puerto Viejo)
+N 399 875 E 595 800
+N 399 605 E 596 050
+N 399 525 E 596 800
+N 399 650 E 596 900
+N 399 700 E 597 780
+N 399 455 E 598 950 (Cerro, 100 m.)
+N 399 700 E 599 105
+N 399 825 E 600 825 (Cerro Pirripli, punto inicial de la descripción).
 (Así reformada la Reserva Indígena Bribrí de Keköldi (Cocles) anterior por el artículo 2° del decreto ejecutivo N° 25296 del 24 de junio de 1996)
 (Así adicionada la Reserva Indígena De Cocles anterior por el artículo 3° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 6° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Cocles es parte integrante de la Reserva Indígena de Talamanca y sus representantes serán integrados a la administración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como finca distinta (finca 2 Talamanca).)
 (Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 25296 del 24 de junio de 1996, se estableció que la carretera principal de Hone Creek Bribrí, por su carácter nacional, no forma parte de la Reserva Indígena de Keköldi.)
