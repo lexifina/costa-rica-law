@@ -1,0 +1,1 @@
+Art. 7. El contador de la administracion de la capital es obligado á presenciar la medida del aguardiente que se reciba de los proveedores y del que se distribuya para la venta; é intervendrá en todas las partidas que en ambos conceptos se deben asentar en los libros respecctivos.

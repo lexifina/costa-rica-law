@@ -1,0 +1,1 @@
+Art. 10. Todas las administraciones se proveerán de dos piezas redondas contiguas y con puerta à la calle; una destinará para oficina y otra para almacen. El precio de alquiler de estas, siempre que sea aprobado por la Intendencia general, se pagara puntualmente por las respectivas administraciones.
