@@ -1,2 +1,2 @@
-Artículo 57.-Para los efectos de esa distribución, las empresas exportadoras estarán obligadas a informar mensualmente al MEIC y al Centro el total de las exportaciones efectuadas al país cuya cuota se distribuyó y a suministrar cualquier otro dato o informe que se requiera.
+Artículo 57.-(Este artículo fue Derogado por el artículo 37 del decreto ejecutivo N° 18161 del 18 de mayo de 1988)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 56 al 57 actual)

@@ -1,2 +1,2 @@
-Artículo 58.-La distribución de la cuota se efectuará con base en el promedio de las exportaciones de la respectiva empresa durante el año inmediato anterior, destinadas al país cuya cuota se distribuyó pero sin tomarse en cuenta las que se hubieren efectuado de la cuota fijada, si fuere el caso.
+Artículo 58.-(Este artículo fue Derogado por el artículo 37 del decreto ejecutivo N° 18161 del 18 de mayo de 1988)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 57 al 58 actual)

@@ -1,2 +1,2 @@
-Artículo 62.-Para determinar la bondad de la distribución, el Centro efectuará la evaluación, durante el año de vigencia, de la cuota que se le asignó a cada empresa. Si como resultado de tal evaluación se determina la necesidad de adecuar o ajustar la cuota asignada, lo comunicará así al MEIC con su recomendación para que éste proceda como lo considere necesario.
+Artículo 62.-(Este artículo fue Derogado por el artículo 37 del decreto ejecutivo N° 18161 del 18 de mayo de 1988)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 61 al 62 actual)
