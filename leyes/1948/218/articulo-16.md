@@ -1,0 +1,3 @@
+Artículo 16.—Para las operaciones corrientes del Departamento Hipotecario se amplía el límite máximo de los préstamos hipotecarios agrícolas, a la suma de doscientos cincuenta mil colones( ¢ 250.000.00), y para los que conceda para la adquisición o construcción de edificios a cincuenta mil colones (¢50.000.00). En cuanto a este aspecto de límites máximos de crédito, queda modificado el artículo 104 de la ley N° 16 del 5 de noviembre del 1936.
+Este Decreto-Ley rige desde su publicación.
+Dado en el Salón de Sesiones de la Junta Fundadora de la Segunda República.- San José, a los trece días del mes de octubre de mil novecientos cuarenta y ocho.

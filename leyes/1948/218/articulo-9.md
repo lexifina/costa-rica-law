@@ -1,0 +1,1 @@
+Artículo 9°—Facúltase al Departamento Hipotecario del Banco Nacional de Costa Rica, para abrir una Sección de Crédito, a mediano y largo plazo con el único y exclusivo objeto de traspasar a ella, las operaciones a que se refiere el artículo 1° de esta ley, dedicándole los fondos que se le asignan como ampliación al capital.

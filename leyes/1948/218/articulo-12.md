@@ -1,0 +1,1 @@
+Artículo 12.—Las operaciones calificadas por el Banco Nacional como “Congeladas” se traspasarán a la nueva Sección del Departamento Hipotecario y los Bancos Comerciales recibirán en pago de las mismas, a la par y sin ningún descuento, los Bonos Refundición Deudas Bancarias.
