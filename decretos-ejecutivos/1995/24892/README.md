@@ -14,3 +14,4 @@ Medidas de Gestión y Control de Aprovechamiento de la Fauna Silvestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-01 | la propia norma |
+| 2 | 1996-04-23 | Decreto Ejecutivo 25141 (1996-04-23) |
