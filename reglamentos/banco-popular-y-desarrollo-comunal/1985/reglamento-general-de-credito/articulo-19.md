@@ -1,2 +1,0 @@
-Artículo 19.—Obligaciones de los deudores.
-Todo deudor queda obligado a mantener al día los impuestos, tributos, pólizas y demás obligaciones que afecten a los bienes dados en garantía; igualmente deberá mantenerlos en buen estado os uso y conservación. El deudor no podrá gravarlos, venderlos, traspasarlos o alquilarlos sin previa autorización del Banco, so pena de que éste pueda tener por vencida la operación.
