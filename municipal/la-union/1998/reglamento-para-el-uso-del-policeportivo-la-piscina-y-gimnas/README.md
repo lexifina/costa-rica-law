@@ -14,3 +14,4 @@ Reglamento para el Uso del Policeportivo, la Piscina y Gimnasio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-15 | la propia norma |
+| 2 | 1999-01-28 | Reglamento municipal 63 (1999-01-28) |
