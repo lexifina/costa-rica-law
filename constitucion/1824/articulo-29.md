@@ -1,0 +1,1 @@
+ARTICULO 29.- En las épocas de elección constitucional, se celebrarán el último domingo de octubre las juntas populares; el segundo domingo de noviembre las de distrito; y el primer domingo de diciembre las de departamento.

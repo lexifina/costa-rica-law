@@ -1,0 +1,1 @@
+ARTICULO 209.- Incorporados los senadores en el Congreso, se abrirá tercera vez la discusión, que no podrá prolongarse más de quince días; y si después de votarse no resultare la mayoría de los votos para dar la sanción, ni las dos terceras partes para negarla, la Constitución queda sancionada en virtud de este artículo constitucional.

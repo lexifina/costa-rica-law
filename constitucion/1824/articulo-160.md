@@ -1,0 +1,1 @@
+ARTICULO 160.- Todo preso debe ser interrogado dentro de cuarenta y ocho horas; y el juez está obligado a decretar la libertad o permanencia en la prisión dentro de las veinte y cuatro horas siguientes, según el mérito de lo actuado.

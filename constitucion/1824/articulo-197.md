@@ -1,0 +1,1 @@
+ARTICULO 197.- No podrán formarse nuevos Estados en el interior de otro Estado. Tampoco podrá formarse por la unión de dos o más Estados, o partes de ellos; si no estuvieren en contacto, y sin el consentimiento de las asambleas respectivas.

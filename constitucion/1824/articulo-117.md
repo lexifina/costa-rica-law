@@ -1,0 +1,1 @@
+ARTICULO 117.- Nombrará los funcionarios de la República que designa el art. 102 a propuesta del senado: los que designa el art. 139 a propuesta de la Suprema Corte de Justicia; y los subalternos de unos y otros, y los oficiales de la fuerza permanente, que no llegaren a la graduación de coronel, por igual propuesta a sus jefes o superiores respectivos.

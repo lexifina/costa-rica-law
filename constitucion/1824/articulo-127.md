@@ -1,0 +1,1 @@
+ARTICULO 127.- Cuando el Presidente sea informado de alguna conspiración o traición de la República y de que amenaza un próximo riesgo podrá dar ordenes de arresto e interrogar a los que se presuman reos; pero en el término de tres días los pondrá precisamente a disposición del Juez respectivo.
