@@ -1,0 +1,2 @@
+Art. 2° -Queda así reformado el párrafo 29, artículo26 de los Estatutos de 19 de junio de 1880, que rigen el establecimiento expresado.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á treinta de julio de mil ochocientos ochenta y tres.-JN. M. CARAZO, Presidente. VICENTE C. SEGREDA, Secretario. - R. CHAVARRÍA, 1er. Pro-secretario.-Palacio Presidencial.-San José, julio treinta y uno de mil ochocientos ochenta y tres. -Ejecútese.-P. FERNANDEZ.-El Secretario de Estado en el Despacho de Beneficencia, -DUSERIO FIGUEROA.
