@@ -1,0 +1,2 @@
+Artículo 4°.- El ochenta porciento restante de los fondos netos, se destinarán para el mejoramiento, construcción, reconstrucción y mantenimiento de las vías que se conectan en forma directa con las carreteras sujetas al cobro de peaje y que se ubican en su zona de influencia, según los programas de inversión que recomienden la División de Obras Públicas del Ministerio de Obras Públicas y Transportes.
+Dado en la Presidencia de la República.- San José, a los trece días del mes de octubre de mil novecientos noventa y dos.
