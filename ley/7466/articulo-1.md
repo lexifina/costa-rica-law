@@ -794,4 +794,4 @@ pagadera.
 Sección 7.- Retiro. En la fecha en que la notificación de su
 intención de retirarse sea efectiva conforme lo dispuesto por la Sección
 4 a) del Artículo 6 del Convenio del Fondo, el donante que haya
-presentado dicha notificación se reputará
+presentado dicha notificació
