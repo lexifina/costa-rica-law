@@ -1,0 +1,1 @@
+Artículo 32.- Denuncia al Ministerio Público. El Comité Institucional de Sección y Eliminación de Documentos denunciará ante el Ministerio Público aquellas personas que eliminen documentos incurrido en el tipo penal que establece el artículo 36 de la Ley del Sistema Nacional de Archivos Número 7202.

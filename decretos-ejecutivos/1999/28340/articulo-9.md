@@ -1,0 +1,4 @@
+CAPITULO III
+Del ingreso y clasificación de documentos
+Artículo 9°.- Patrimonio documental y material informativo. Se definirá y considerará patrimonio documental y material informativo del Ministerio todo documento recibido, por la Institución en el cumplimiento de sus funciones, independientemente de su formato o soporte en el que este contenido, así como toda la producción intelectual elaborada por sus funcionarios es el cumplimiento de sus responsabilidades y toda literatura que les sea entregada en seminarios, talleres, simposios y otros a los que asisten funcionarios del Ministerio.
+Cualquier de los documentos citados y aquellos que en su defecto establezca el comité Institucional de Sección y Eliminación de Documentos como título o valor de propiedad del ministerio que es necesario conservar por el Archivo de la Institución.

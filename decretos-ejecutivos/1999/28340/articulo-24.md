@@ -1,0 +1,2 @@
+Artículo 24°.- Solicitud de cuenta por escrito. Cuando los usuarios no efectúen la devolución de los documentos o expedientes al vencimiento del plazo conferido, el Archivo procederá a solicitarle por escrito la entrega de los mismos dentro de los siguientes tres días hábiles.
+Vencido el término anterior sin que el funcionario hiciera entrega la documentación facilitada, el Archivo no le prestará ningún documento, en tanto persista la situación.

@@ -1,0 +1,5 @@
+Artículo 13.- Clasificación de los documentos. Una vez recibidos satisfactoriamente los documentos, el Archivo procederá a clasificarlos, seleccionarlos, describirlos y ordenarlos, según su naturaleza y respetando el orden de procedencia de la archivalía. Para lo cual se procederá de la siguiente manera:
+a) Los documentos se organizarán en estantes debidamente clasificados y rotulados, con la enumeración, materia, Dirección, Departamento, Sección u Oficina gestora de la documentación.
+b) Los mismos se clasificarán según el sistema numérico simple y de ser necesario se podrá realizar una alteración alfabética o de dígitos, haciéndose constar el hecho en acta firmada por el funcionario que realizó la alteración y la firma de aprobación del encargado del Archivo.
+c) La descripción de la documentación se realizará por medio de inventarios y registros, los cuales se dividirán en series y subseries.
+d) Los instrumentos descriptivos solo pueden ser consultados por el personal del Archivo y por personas previamente autorizadas.
