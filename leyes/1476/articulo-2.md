@@ -1,0 +1,1 @@
+Artículo 2°.- Las Secciones Agrícola e Industrial que establezcan los bancos nacionales se regirán por las disposiciones de los artículos 170 a 190 y sus reformas de la Ley del Banco Nacional de Costa Rica.
