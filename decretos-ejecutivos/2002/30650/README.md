@@ -14,3 +14,4 @@ Integra la Comisión Evaluadora e Investigadora de alto Nivel que analizará el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
+| 2 | 2002-11-20 | Decreto Ejecutivo 30904 (2002-11-20) |
