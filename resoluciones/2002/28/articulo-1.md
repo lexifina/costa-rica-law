@@ -1,0 +1,12 @@
+HACIENDA
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° 28-02.—Dirección General de Tributación, a las ocho horas del veintiocho de mayo del dos mil dos.
+Considerando:
+1°—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley N° 4755 de 3 de mayo de 1971 y sus reformas, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+2°—Que la División de Informática del Ministerio de Hacienda, ha creado y desarrollado la Base de Datos, los Programas Fuente, y otros programas y subprogramas de cómputo, que conforman lo que se conoce como el Sistema Integral de Información Tributaria (SIIAT), los cuales se utilizan para la ejecución de labores propias de la Administración Tributaria.
+3°—Que asimismo, se han creado otros programas de cómputo, que conforman la página de Internet del Ministerio de Hacienda, para la captura de declaraciones electrónicas (SITEL) y del Software de Recaudación Bancaria.
+4°—Que el artículo 95 del Código de Normas y Procedimientos Tributarios, dispone que será sancionado con pena de tres a diez años de prisión, quien sin autorización de la Administración Tributaria, se apodere de cualquier programa de cómputo, utilizado por ella para administrar la información tributaria y sus bases de datos, lo copie, destruya, inutilice, altere, transfiera, o lo conserve en su poder , siempre que la Administración Tributaria los haya declarado de uso restringido mediante resolución.
+5°—Que dada la importancia que tienen la Base de Datos, los Programas Fuente, y otros programas y subprogramas de cómputo, que conforman lo que se conoce como el Sistema Integral de Información Tributaria (SIIAT), así como programas de cómputo, que conforman la página de Internet del Ministerio de Hacienda, para la captura de declaraciones electrónicas (SITEL) y del Software de Recaudación Bancaria, para las labores de la Administración Tributaria y la confidencialidad en su utilización, es necesario declarar algunos de ellos de uso restringido, a efecto de poder aplicar la disposición contenida en el artículo 95 citado. Por tanto,
+RESUELVE:
+Artículo 1°—Se declaran de uso restringido de la Administración Tributaria, los programas y subprogramas que conforman el Sistema Integral de Información Tributaria (SIIAT) que se encuentran contenidos en el siguiente listado:
+(NOTA: Por lo extenso y formato del contenido ver La Gaceta N° 111 de 11 de junio del 2002, pág. 8)
