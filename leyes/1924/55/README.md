@@ -1,0 +1,9 @@
+# Cancela Deuda al Ferrocarril al Pacífico
+
+Ley N° 55 del 1924-08-08. SINALEVI, ficha 980: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=980&param2=1052&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1924-08-08 | Ley 55 | 1924-08-08 |
