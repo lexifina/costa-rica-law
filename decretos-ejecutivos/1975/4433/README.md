@@ -13,3 +13,4 @@ Eleva a la categoría de Dirección General de Recursos Pesqueros y Vida Silvest
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-12-17 | la propia norma |
+| 2 | 1981-06-19 | Decreto Ejecutivo 12759 (1981-06-19) |
