@@ -1,0 +1,1 @@
+Artículo 6º.- Los gerentes y subgerentes de las instituciones citadas en el artículo 4º de esta ley serán nombrados para períodos de seis años y podrán ser reelectos. Sus nombramientos, así como sureelección, requerirán no menos de cuatro votos favorables de losdirectores de la Junta respectiva.
