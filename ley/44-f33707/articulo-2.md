@@ -1,0 +1,2 @@
+Art 2°-Para los fines del artículo anterior, se entiende por "efectos de comercio" los títulos y obligaciones trasmisibles por endoso ó tradición. Queda así modificado el artículo 1417 del Código Civil.
+Dado en el Palacio Presidencial. -San José, à los veintiún días del mes de julio de mil ochocientos ochenta y dos. P. FERNÁNDEZ-El Secretario de Estado en el Despacho de Hacienda y Comercio-LUIS D. SÁENZ.
