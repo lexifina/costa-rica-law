@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Cuando parte del salario se pague con prestaciones en especie, éstas no sólo habrán de ser apropiadas al uso personal del trabajador y su familia y redundar en beneficio de los mismos, sino que el valor que se les atribuye ha de ser justo y razonable. A estos efectos se dictará un reglamento que evaluará las prestaciones en especie.
