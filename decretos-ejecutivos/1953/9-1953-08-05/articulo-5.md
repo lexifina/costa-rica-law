@@ -1,1 +1,0 @@
-Artículo 5°-Resuelta de conformidad la solicitud, se remitirá a la Procuraduría de Hacienda el expediente y se le encargará del bastanteo, aceptación y formalización de la fianza ofrecida, así como de la resolución considerada denegando u otorgando la Patente, que será firmada por el Ministro de Economía y Hacienda, para su publicación en el periódico oficial.

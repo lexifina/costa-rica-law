@@ -1,1 +1,0 @@
-Artículo 7°-Cada dos años, contados a partir del otorgamiento de la Patente de Corredor Jurado, deberá el interesado comprobar ante la Procuraría de Hacienda la bondad de su fianza o presentar la constancia de haberse renovado ésta cuando se tratare de fianza de fidelidad extendida por el Instituto Nacional de Seguros.

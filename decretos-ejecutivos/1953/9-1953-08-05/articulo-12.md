@@ -1,1 +1,0 @@
-Artículo 12. -Cuando un Corredor Jurado, por cualquier motivo, cese en ejercicio de la Correduría, deberá depositar el Libro Registro en los Archivos Nacionales dentro de los treinta días siguientes a la cesación del cargo, con razón indicativa del número de folios usados hasta el momento del depósito. En caso de muerte deberán sus familiares hacer dicho depósito.
