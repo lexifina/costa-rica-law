@@ -1,3 +1,9 @@
+(Derogado)
+(NOTA: Esta norma ha sido tácitamente derogada por el artíclo 8 del Decreto Eejcutivo N° 29117, Reglamento a la
+Ley Orgánica del Ministerio de Economía, Industria y Comercio, al asignar a la Unidad de Asuntos Jurídicos la función
+de Asesorar al Ministerio de Comercio Exterior y cuando sea necesario participar, en las negociaciones internacionales
+destinadas a la revisión y modificación de las normas internacionales que regulan las prácticas de comercio
+desleal y la imposición de medidas de salvaguardia.)
 Nº 24772-MEIC-MAG
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE ECONOMIA, INDUSTRIA Y COMERCIO
