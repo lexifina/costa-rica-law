@@ -1,0 +1,3 @@
+Articulo 6°—El Instituto considerará caducado el contrato en estos casos;
+a) Cuando el suscriptor no pague una cuota ordinaria de ahorro dentro de los 90 días siguientes a la fecha de vencimiento; y
+b) Cuando el suscriptor no haga uso de la suma suscrita dentro de un plazo de 180 días, contados a partir de la fecha en que se le requirió hacer efectiva la operación del crédito correspondiente. Pasado el plazo señalado en este inciso, y si el Instituto, a solicitud del interesado, no rescindiera el contrato, sólo quedará obligado a otorgar el préstamo a solicitud del suscriptor, contando con un plazo de un año para hacerlo efectivo.

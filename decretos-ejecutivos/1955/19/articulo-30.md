@@ -1,0 +1,1 @@
+Articulo 30.—El suscriptor tiene el derecho de designar a los beneficiarios que considere de su conveniencia y cambiarlos cuantas veces lo desee, debiendo presentar personalmente, o autenticarla para este efecto, una carta en los términos correspondientes, y el testimonio del contrato para efectuar las anotaciones necesarias.

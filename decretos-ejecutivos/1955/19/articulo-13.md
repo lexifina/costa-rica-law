@@ -1,0 +1,1 @@
+Articulo 13.—El Instituto podrá solicitar, antes de la constitución del contrato, los documentos o certificados que juzgue convenientes a fin de comprobar la necesidad social de vivienda y la situación económica del suscriptor.

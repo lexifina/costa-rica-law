@@ -1,0 +1,2 @@
+Articulo 21.—Cuando se trate de créditos para adquisición de inmuebles o liberación de gravámenes, el servicio de amortización e intereses deberá comenzar a los 30 días de la fecha en que se hubiere efectuado la operación; cuando se trate de créditos para la construcción, ampliación o reparación de inmuebles, a los 30 días de haberse entregado la obra terminada y a más tardar en un término de 6 meses contados a partir de la fecha de adjudicación del crédito.
+El suscriptor tendrá derecho en cualquier tiempo a hacer abonos al principal.

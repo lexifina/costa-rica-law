@@ -1,0 +1,1 @@
+Articulo 32.—Queda expresamente entendido y convenido que los "Sistemas de Ahorro y Préstamo" se regirán por la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo, por este Reglamento y subsidiariamente por los otros reglamentos de la Institución que le sean aplicables.

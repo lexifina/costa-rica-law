@@ -1,0 +1,1 @@
+Artículo 29.—El suscriptor no podrá traspasar los derechos y obligaciones del contrato sino una vez transcurrido un año del otorgamiento del préstamo y con el consentimiento escrito de la Junta Directiva.

@@ -1,0 +1,7 @@
+Articulo 28.—Se establece, en beneficio de los suscriptores que estén al día en el depósito de sus cuotas de ahorro, el siguiente régimen de posesión anticipada:
+a) Las partidas destinadas a este beneficio adicional serán las que expresamente determine la Junta Directiva de acuerdo con los recursos disponibles;
+b) Los sorteos de posesión anticipada se practicarán periódicamente. Resultarán agraciados tantos suscriptores como sean necesarios para agotar el aporte que se creare por la Junta Directiva para cada sorteo;
+c) El derecho a participar en los sorteos de posesión anticipada corresponderá a los suscriptores cuyo contrato tenga por lo menos tres meses de vigencia;
+d) Cuando se trate de un crédito destinado a la compra de terreno y construcción o compra de la vivienda, el suscriptor agraciado podrá acogerse a los planes de vivienda comunales que realiza el Instituto;
+e) El importe del crédito que otorgue el. Instituto será igual a la diferencia entre el valor nominal de la suma suscrita y el importe de las cantidades que por concepto de cuotas ordinarias dé ahorro haya entregado el suscriptor a la fecha de otorgamiento del crédito; y
+f) El servicio de crédito se hará en la forma establecida en el artículo 20 de este Reglamento. El importe del exceso del crédito que se otorgue gracias a sorteo, sobre el estipulado en cada contrato, deberá cubrirse en el resto del periodo de integración de las cuotas ordinarias de ahorro.

@@ -1,0 +1,1 @@
+Articulo 10.—Mientras el suscriptor no haga efectiva la operación de crédito, deberá continuar pagando la cuota mensual ordinaria de ahorro estipulada en cada caso. Las cantidades que por este concepto entregue serán consideradas como cuotas extraordinarias de ahorro.

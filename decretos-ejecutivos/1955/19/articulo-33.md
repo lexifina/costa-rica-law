@@ -1,0 +1,1 @@
+Articulo 33.—Los contratos entrarán en vigor al ser aceptados por el Instituto, y para su constancia y conformidad se expedirá, debidamente firmado, un testimonio que reproduzca textualmente su contenido, conservándose copia del mismo en los archivos del Instituto.

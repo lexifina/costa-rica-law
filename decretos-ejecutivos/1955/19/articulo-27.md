@@ -1,0 +1,2 @@
+Articulo 27.—En caso de incumplimiento por parte del suscriptor de cualquiera de las estipulaciones consignadas en este Reglamento o en el contrato respectivo, el Instituto podrá considerar vencida y exigible la obligación, pudiendo, en consecuencia, proceder si fuere del caso, al cobro judicial de la misma, con daños y perjuicios, sin necesidad de requerimiento alguno.
+La falta de pago igual a dos mensualidades vencidas tendrá las mismas consecuencias señaladas en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 5°—La vigencia del contrato dependerá de la voluntad del suscriptor. de manera que en cualquier momento podrá solicitar su rescisión, sin verse obligado a hacer pagos ulteriores y sin más requisito que dar aviso por escrito al Instituto.

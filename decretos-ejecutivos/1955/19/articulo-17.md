@@ -1,0 +1,1 @@
+Artículo 17.—El Instituto se reserva el derecho de fiscalizar los trabajos, pudiendo suspender el pago de planillas, facturas por materiales o la entrega de éstos si a su juicio la construcción y los materiales empleados no se ajustan a las especificaciones, a los planos y al presupuesto que sirvieron -de base para el otorgamiento del crédito.

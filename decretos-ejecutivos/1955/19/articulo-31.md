@@ -1,0 +1,1 @@
+Artículo 31.—En el caso de que el suscriptor falleciere durante la vigencia del contrato, el beneficiario designado en éste, podrá mantenerlo en vigor en las mismas condiciones originales, atendiendo todas las obligaciones que del mismo deriven.

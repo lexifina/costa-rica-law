@@ -1,0 +1,2 @@
+Articulo 7°—En caso de rescisión del contrato por cualquiera de las causas expresadas en los dos artículos anteriores, el Instituto devolverá al suscriptor el importe de todas las cantidades que éste haya entregado más los intereses devengados, previa deducción de la cuota de ingreso fijada que retendrá el Instituto para resarcirse de los gastos administrativos que implica la contratación.
+En todo caso la devolución de fondos será hecha por el Instituto dentro de un plazo máximo de 60 días a partir de la fecha de rescisión del contrato.

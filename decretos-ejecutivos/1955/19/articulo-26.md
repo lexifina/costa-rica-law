@@ -1,0 +1,1 @@
+Articulo 26.—El contrato de préstamo se otorgará ante el notario que designe el Instituto, y contendrá todas las cláusulas que, según el plan, indique la Junta Directiva. Este Reglamento se considerará incluido tácitamente en el con, trato respectivo y aceptado por el suscriptor. Los gastos de islario correrán por cuenta del suscriptor.

@@ -1,0 +1,1 @@
+Articulo 9°—El Instituto deberá avisar por escrito al suscriptor—dirigiéndose al domicilio registrado para este fin—, que en un plazo de 180 días, contados a partir 'de la fecha de notificación, habrá de presentarse a formalizar la operación de crédito.

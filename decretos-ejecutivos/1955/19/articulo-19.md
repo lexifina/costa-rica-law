@@ -1,0 +1,1 @@
+Articulo 19.—Las entregas de las sumas suscritas serán hechas directamente por el Instituto a los vendedores cuando se trate de adquisición de inmueble, y a los acreedores hipotecarios cuando se trate de liberación de gravámenes.
