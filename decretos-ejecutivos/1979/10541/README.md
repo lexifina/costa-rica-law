@@ -13,3 +13,4 @@ Reglamento de Control de Ruidos y Vibraciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-09-27 | la propia norma |
+| 2 | 1979-09-27 | SINALEVI (sin norma nombrada) |
