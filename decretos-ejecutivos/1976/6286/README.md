@@ -14,3 +14,4 @@ Exoneraciones a Concesionarios Transporte Personas Vehículos Taxis
 | --- | --- | --- |
 | 1 | 1976-09-02 | la propia norma |
 | 2 | 1976-09-02 | SINALEVI (sin norma nombrada) |
+| 3 | 1977-02-07 | Decreto Ejecutivo 6788 (1977-02-07) |

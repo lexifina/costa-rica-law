@@ -11,7 +11,5 @@ Considerando:
 5º.- Que el artículo 12 de la ley Nº 4961 de 11 de marzo de 1972, también faculta al Poder Ejecutivo para que por conducto del Ministerio de Hacienda, del Ministerio de Economía, Industria y Comercio, con la previa aprobación del Banco Central, pueda modificar la lista de mercancías gravadas con Impuestos Selectivos de Consumo y sus respectivas tarifas.
 6º.- Que efectuados los trámites de consulta antes dichos, el Banco Central de Costa Rica emitió, dictamen favorable para efectuar las exoneraciones que se establecen en el presente Decreto. Por tanto,
 DECRETAN:
-Artículo 1º.- Las exoneraciones contempladas en el artículo 20, inciso b) de la ley Nº 5406 de 26 de noviembre de 1973, se otorgarán a los concesionarios del transporte remunerado de personas en vehículos taxis, debidamente inscritos en la Dirección General de Tránsito y Transporte Automotor, dependencia a cargo del Ministerio de Obras Públicas y Transportes.
-La autorización para la importación lo será hasta por mil vehículos automotores, los que se usarán como taxi y de acuerdo a las marcas y cantidades siguientes:
-a) 545 Vehículos automotores marca Datsun, diesel, modelo 220 C.
-b) 455 Vehículos automotores marca Peugeout, diesel, modelo 504 GL.
+Artículo 1°.- Las exoneraciones contempladas en el artículo 20, inciso b) de la ley N° 5406 de 6 de noviembre de 1973, se otorgarán a los concesionarios del transporte remunerado de personas en vehículos taxis, debidamente inscritos en la Dirección General de Tránsito y Transporte Automotor, dependencia a cargo del ministerio de Obras Públicas y Transportes, afiliados a Cooperativas debidamente inscritas en el Ministerio de Trabajo y seguridad Social y que tengan como actividad principal el transporte remunerado de personas en vehículos taxi.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 6788 del 7 de febrero de 1977)
