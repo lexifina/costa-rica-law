@@ -1,1 +1,1 @@
-Artículo 5°-La Fundación podrá gestionar ante el sector privado, gobiernos, organismos internacionales y agencias de cooperación internacional, fondos para la ejecución del presente proyecto.
+Artículo 5°-(Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)

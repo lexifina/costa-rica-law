@@ -14,3 +14,4 @@ Declara de interés cultural el proyecto de convertir al Sistema Nacional de Rad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-30 | la propia norma |
+| 2 | 2002-04-24 | Ley 8 |

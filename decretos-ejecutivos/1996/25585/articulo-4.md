@@ -1,1 +1,1 @@
-Artículo 4°-Para cubrir los costos de elaboración, producción y difusión de los programas educativos y culturales de Canal 13 y Radio Nacional, el Poder Ejecutivo destinará el 10% de sus presupuestos de publicidad al patrocinio de estos programas. Además, el Poder Ejecutivo incluirá las partidas necesarias para ejecutar el proyecto indicado, en los presupuestos ordinarios, extraordinarios y en las modificaciones presupuestarias.
+Artículo 4°--(Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)

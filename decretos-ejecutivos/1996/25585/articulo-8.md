@@ -1,1 +1,1 @@
-Artículo 8°-Incorporar en el convenio que necesariamente suscribirá el Poder Ejecutivo, la obligación a cargo de la Fundación de ceder tres horas diarias de transmisión a la Iglesia Católica y adicionalmente el espacio necesario para la difusión de la Santa Misa los días domingo. Estas horas de transmisión responderán a espacios de audiencia que permitan -equilibradamente cumplir con los objetivos señalados en el considerando tercero de este decreto ejecutivo.
+Artículo 8°-(Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)

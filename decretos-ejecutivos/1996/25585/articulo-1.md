@@ -1,4 +1,6 @@
+(Anulada)
 N° 25585-MP-MEP-C
+(Este decreto ejecutivo fue Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE LA PRESIDENCIA,
 DE EDUCACION PUBLICA
@@ -11,4 +13,4 @@ Considerando:
 4°-Con el propósito de garantizar que los bienes públicos que se darán en administración a la Fundación sean utilizados para cumplir los propósitos enumerados en el considerando anterior, así como otros ideales comunes de la colectividad social, el Gobierno de la República ha decidido designar como su representante en la Fundación a Presidente de la Conferencia Episcopal. Asimismo, ha solicitado a la Junta de Fundadores de la Fundación Ondas del Saber, designar en uno de los puestos directivos según distinguido intelectual adepto a la oposición política al Gobierno de la República. Finalmente, hace una respetuosa excitativa a la Municipalidad de San José, para que designe como su representante al Presidente del Consejo Nacional de Rectores.
 5°-Convencidos de que la necesidad del fortalecimiento de los principios morales y religiosos, contribuyen al desarrollo de los valores más positivos y arraigados a la nacionalidad costarricense, el Poder Ejecutivo velara para que en el convenio que suscribirá con la Fundación para la administración del programa, se incorpore la obligación a cargo de esta de ceder tres horas diarias de transmisión a la Iglesia Católica y adicionalmente lo que corresponda para la difusión de la Santa Misa los días domingo y en otras celebraciones religiosas de especial significación. Por tanto,
 DECRETAN:
-Artículo 1°-Se declara de interés cultural el proyecto de convertir al Sistema Nacional de Radio y Televisión Cultural en instrumento para promover la cultura nacional y universal, la educación humanista y el fortalecimiento de los valores morales y religiosos.
+Artículo 1°-(Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)

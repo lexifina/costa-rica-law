@@ -1,1 +1,1 @@
-Artículo 9°-Autorizar a todas las instituciones públicas, con clara observancia de las normas de administración financiera, a prestar todo tipo de ayuda material y económica al ente ejecutor del proyecto para convertir al Sistema Nacional de Radio y Televisión Cultural en instrumento de desarrollo.
+Artículo 9°-(Anulado por resolución de la Sala Constitucional N° 3816 del 24 de abril de 2002)
