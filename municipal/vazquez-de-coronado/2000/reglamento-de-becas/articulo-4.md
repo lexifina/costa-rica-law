@@ -1,0 +1,1 @@
+Artículo 4°—El derecho a una beca se otorgará a los estudiantes que llenen los requisitos estipulados en el artículo tres del presente reglamento. El dinero de la beca será entregado al Padre, Madre o Encargado, debidamente identificado.

@@ -1,0 +1,1 @@
+Artículo 8°—Se perderá el goce de la beca por los siguientes motivos: a) Retiro del alumno del curso lectivo; b) Mala conducta comprobada del alumno observada en el Centro de Enseñanza; c) Pérdida del curso lectivo; d) Por no retirar el efectivo durante dos meses consecutivos injustificadamente, e) Traslado del domicilio fuera del Cantón.

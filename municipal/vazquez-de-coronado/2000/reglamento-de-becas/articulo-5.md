@@ -1,0 +1,1 @@
+Artículo 5°—Las becas serán aprobadas por el Concejo Municipal, previo estudio y recomendación de la Comisión de Educación de la Municipalidad y el Concejo de Distrito respectivo, según artículo 57, inciso a) del Código Municipal y deberán ser resueltas 15 días antes de iniciar el curso lectivo en los Centros de Enseñanza.
