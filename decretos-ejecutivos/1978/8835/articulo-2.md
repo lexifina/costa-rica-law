@@ -1,0 +1,1 @@
+Artículo 2°—El sobresueldo por concepto de zonaje se pagará a aquellos servidores que presten servicio en cualquiera de los lugares a que se refiere el mencionado artículo 8°, aun cuando ese lugar haya sido desde antes su residencia habitual.

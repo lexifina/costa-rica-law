@@ -1,0 +1,1 @@
+Artículo 3°—Para determinar el monto del zonaje las zonas se clasifican en tres grupos, numerados del UNO, al TRES, tomando en cuenta los siguientes factores: a) clima y salubridad; b) medios y riesgos de transporte; c) condiciones locales de vida; y ch) posibilidades de educación y atención médica para el servidor y su familia.
