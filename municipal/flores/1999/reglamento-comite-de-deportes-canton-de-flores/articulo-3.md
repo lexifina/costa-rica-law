@@ -1,0 +1,1 @@
+Artículo III.—Elección de los miembros del Comité Cantonal de Deportes. El Consejo Municipal nombrará en forma nominal a los miembros del comité, los cuales serán nombrados por simple mayoría de votos, en caso de empate se irán a una nueva elección entre los empatados, de persistir el empate, cualquier forma al azar determinará el elegido.
