@@ -17,3 +17,4 @@ Reglamento del Mercado Libre
 | 2 | 2000-10-09 | Reglamento municipal 41 (2000-10-09) |
 | 3 | 2001-04-02 | Reglamento municipal 14 (2001-04-02) |
 | 4 | 2001-05-28 | Reglamento municipal 22 (2001-05-28) |
+| 5 | 2002-08-12 | Reglamento municipal 32 (2002-08-12) |
