@@ -1,0 +1,1 @@
+Artículo 16.—Recursos. Los sujetos pasivos del tributo podrán oponer contra la resolución administrativa de determinación de la Contribución Especial, los recursos de Revocatoria y Apelación ante el Alcalde, dentro de los cinco días siguientes a la notificación de la misma.

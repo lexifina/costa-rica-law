@@ -1,0 +1,1 @@
+Artículo 29.—De las sanciones a los funcionarios. El incumplimiento de deberes imputable a los funcionarios y empleados municipales en la aplicación del presente reglamento, acarreará las sanciones que establece el Código Municipal, la Ley General de la Administración Pública y la Legislación Penal de la República.

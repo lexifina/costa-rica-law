@@ -1,0 +1,2 @@
+Artículo 13.—Notificación a los sujetos pasivos. Una vez determinado el tributo regulado en este reglamento y revisado por el Alcalde el informe del DPR, mediante Resolución fundamentada notificará a cada uno de los sujetos pasivos de la carga tributaria.
+Concluidas estas actuaciones, los órganos actuantes de la Administración deberán proponerle al sujeto pasivo, mediante el procedimiento definido en este reglamento, la regularización que corresponda.

@@ -1,0 +1,4 @@
+Artículo 7º—Departamento de Desarrollo Urbano. El DDU colaborará con el proceso de implementación de los mecanismos establecidos en este Reglamento, para la recuperación de recursos públicos invertidos en obra pública. Al efecto será responsable de las siguientes actividades:
+a) Velará por el fiel cumplimiento y finalización de las obras públicas de la Municipalidad.
+b) El titular de este departamento, dentro de los treinta días siguientes a la finalización de una obra pública municipal, entregará al DPR un informe en el que indicará expresamente que la obra ya se terminó y el monto de los recursos invertidos en la misma.
+c) El titular del DDU deberá entregar en el Despacho del Alcalde en el primer mes del ejercicio económico correspondiente, un detalle de las obras que se van a realizar durante ese año y que al amparo del artículo 77 siguientes y concordantes del CM, sean sujetas de recuperación mediante el mecanismo de la especie.

@@ -1,0 +1,1 @@
+Artículo 8º—Hacienda Municipal. El titular de HM dispondrá por medio del Departamento de Catastro la entrega al DPR del detalle de los propietarios afectos al tributo de Contribución Especial correspondiente.

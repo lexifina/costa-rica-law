@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—En el primer mes de aprobado y publicado este Reglamento, el Departamento de Contabilidad preparará una fórmula matemática de cálculo para la determinación del tributo, tomando como relación de cálculo el costo total de la obra, sobre valor de la propiedad; medida lineal del frente de la misma; área del fundo, más una constante por estatus socio económico del propietario o poseedor del bien inmueble afectado por la obra.

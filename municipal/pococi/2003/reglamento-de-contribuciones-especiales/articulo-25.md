@@ -1,0 +1,2 @@
+Artículo 25.—Imposibilidad de refundir tributos. Los arreglos de pago por concepto de contribuciones especiales, no podrán comprender saldos de otros tributos, pero el incumplimiento de uno de los pagos de los arreglos aquí reglados, impedirá que se transe por tributos de diferente naturaleza.
+Tampoco podrá transar el incumpliente, por saldos de cargas tributarias de diferente naturaleza a la aquí reglada, hasta por el término de dos años contados a partir de la fecha del incumplimiento.

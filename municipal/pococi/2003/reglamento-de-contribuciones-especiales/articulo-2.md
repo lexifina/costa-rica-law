@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento es aplicable a toda obra pública efectuada por la Municipalidad de Pococí, mediante la que se produzca un beneficio en la plusvalía de los fundos aledaños a los trabajos, por obras de reparación o construcción, sean éstas para tránsito de vehículos o de personas físicas o para fines de cualquier otra índole.

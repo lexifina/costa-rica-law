@@ -1,0 +1,1 @@
+Artículo 9º—Alcaldía Municipal. Una vez aprobado el informe del DDU a que se refiere el inciso c del artículo anterior, el Alcalde remitirá al DPR copia del mismo para que le dé el seguimiento necesario a fin de recuperar las sumas invertidas en obra pública.
