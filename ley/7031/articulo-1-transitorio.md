@@ -1,0 +1,1 @@
+Transitorio I.- La Asamblea de los Trabajadores y la nueva Junta Directiva deberán quedar integradas en un plazo no mayor de tres meses, a partir de la vigencia de esta ley. Durante ese período, la dirección del Banco estará a cargo de una junta interventora nombrada por el Poder Ejecutivo.
