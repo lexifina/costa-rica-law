@@ -14,3 +14,4 @@ Reforma al Reglamento de Tarifas para la Inscripción de Planos en el Catastro N
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-20 | la propia norma |
+| 2 | 1994-11-16 | Decreto Ejecutivo 23855 (1994-11-16) |
