@@ -1,0 +1,1 @@
+Artículo 6º—Los patentados declarantes del impuesto sobre la renta deberán presentar, junto con la declaración jurada municipal, una copia de esa declaración, sellada por la Dirección General de Tributación.

@@ -1,0 +1,1 @@
+Artículo 11.—La determinación de oficio o la determinación por recalificación efectuada por la Municipalidad, deberá ser firmada por el alcalde o la alcaldesa municipal y notificada al contribuyente por la oficina destacada para este efecto, con las observaciones o los cargos que se le formulen y las infracciones que se estime ha cometido.

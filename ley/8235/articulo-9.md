@@ -1,0 +1,2 @@
+Artículo 9º—La Dirección General de Tributación, en su condición de Administración Tributaria, brindará a la Municipalidad información sobre el monto de los ingresos brutos que declaren los contribuyentes del impuesto sobre la renta, siempre y cuando también sean contribuyentes del impuesto de patentes municipales.
+Asimismo, cuando la citada Dirección recalifique el factor de ingresos brutos contenido en la declaración del impuesto sobre la renta que efectúen los contribuyentes de este impuesto, deberá comunicarlo de oficio a la Municipalidad para lo que corresponda.

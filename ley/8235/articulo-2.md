@@ -1,0 +1,1 @@
+Artículo 2º—En toda solicitud de otorgamiento, traslado o traspaso de licencia municipal, será requisito indispensable que los interesados estén al día en el pago de los tributos municipales, territoriales, servicios de recolección de basura, alumbrado, cordón y caño, a favor de esta Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 19.—Sobre los montos que deban pagarse por concepto de esta Ley, la Municipalidad destinará al menos un cinco por ciento (5%) para la atención, el mantenimiento y la limpieza de plazas, parques y áreas verdes del cantón.
