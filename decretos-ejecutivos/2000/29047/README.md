@@ -14,3 +14,4 @@ Reglamento sobre el Régimen de Tránsito Aduanero Internacional Terrestre, Form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-10 | la propia norma |
+| 2 | 2001-03-30 | Decreto Ejecutivo 29441 (2001-03-30) |
