@@ -1,0 +1,2 @@
+Art. 2°. -Con el presente decreto se dará cuenta al Congreso Nacional en la siguiente legislatura ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones Del Palacio Nacional en San José, á los veintiocho días del mes de setiembre de mil ochocientos ochenta y tres. -A de Jesús Soto, Presidente. -LEOVIGILDO CASTRO S., Secretario. -Palacio Presidencial. San José, á veintiocho de setiembre de mil ochocientos ochenta y tre. -Ejecútese. -P.Fernández. -El Secretario de Estado en el Despacho de Hacienda. -BERNARDO SOTO.
