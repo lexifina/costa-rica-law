@@ -1,0 +1,2 @@
+Artículo 146
+En el primer caso del artículo anterior, la suspensión será efectiva desde el enjuiciamiento o la sentencia firmes, y el profesional no recobrará sus derechos mientras no sea absuelto o no hubiere cumplido la pena o sido rehabilitado. Firme el enjuiciamiento o la sentencia, el funcionario respectivo lo comunicará a la Corte Plena para que ésta ordene su publicación en el Boletín Judicial, en lo conducente.

@@ -1,0 +1,6 @@
+Artículo 231
+El retiro será facultativo para los funcionarios y empleados judiciales que hayan servido cargos en el ramo judicial por treinta años o más y que tengan cincuenta y cinco o más años de edad. La jubilación se acordará en la siguiente forma:
+a) Si el retiro se produjere al cumplir treinta o más años de servicio y cincuenta y cinco o más de edad, la jubilación será igual al salario promedio del último año de servicio.
+b) Si el retiro se produjere al cumplir treinta o más años de servicio, pero sin haber cumplido los cincuenta y cinco años de edad, la jubilación se calculará de acuerdo con el salario promedio del último año de servicio, pero en proporción a la edad del servidor. Para fijarla se multiplicará el monto del salario promedio del último año de servicio por la edad del servidor, y el producto se dividirá entre cincuenta y cinco, cuyo resultado será el monto de la jubilación.
+c) Si el retiro se produjere antes de cumplir treinta años de servicio y cincuenta y cinco o más años de edad, la jubilación se acordará en proporción a los años laborados, siempre que el número de años servidos no sea inferior a diez. Para fijarla se aplicará lo dispuesto en el segundo párrafo del artículo 230 ibídem.
+( Así reformado por el artículo 1º de la Ley Nº 6869 de 9 de noviembre de 1982 )

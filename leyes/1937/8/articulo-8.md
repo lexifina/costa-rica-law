@@ -1,3 +1,7 @@
-ARTICULO 8°.- Procédase a la edición de la Ley Orgánica del Poder Judicial, del Código de Procedimientos Civiles y del Código de Procedimientos Penales, con las reformas que por esta ley se introducen.
-Publíquense, asimismo, por cuenta del Estado, las reformas planteadas por la Comisión de Magistrados, las reformas y adiciones introducidas por las Comisiones del Congreso y del Colegio de Abogados, la exposición de motivos de la Comisión de Magistrados, las minutas de las Comisiones del Congreso y del Colegio de Abogados y observaciones correspondientes, en la forma en que han sido ordenadas por el Magistrado señor Picado, según trabajo que la Comisión del Congreso ha tenido a la vista, a fin de que sirvan como fuente de información e interpretación a litigantes y Tribunales.
-Amplíase el Presupuesto en la suma necesaria para atender la edición y publicación referidas.
+Artículo 8
+No podrán los funcionarios que administran justicia:
+1. Aplicar leyes, decretos, acuerdos o resoluciones gubernativas que sean contrarios a la Constitución, cuando la inconstitucionalidadhaya sido declarada por los Tribunales correspondientes, de acuerdo con lo que dispone el Código de Procedimientos Civiles, de una manera especial o en casos iguales al que estuviere para serresuelto.
+2. Aplicar decretos, reglamentos, acuerdos u otras disposiciones que sean contrarias a la ley.
+3. Expresar y aun insinuar privadamente su opinión respecto de negocios judiciales que están llamados a fallar. Al funcionario que lo hiciere se le impondrá, en la causa que se tramitará al efecto, la pena que establece el Código Penal.
+4. Los Magistrados, al hacer los nombramientos, comprometer u ofrecer su voto o insinuar siquiera que acogerán esta o aquella designación. A quien se comprobare que ha violado esta prohibición, se le impondrá suspensión por quince días.
+( Así reformado por el artículo 1º de la Ley Nº 6024 de 15 de diciembre de 1976 )

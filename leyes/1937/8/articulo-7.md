@@ -1,1 +1,3 @@
-ARTICULO 7°.- Créase una Alcaldía Civil para la tramitación y resolución de los asuntos de cuantía mínima correspondientes al cantón central de San José. Su personal estará compuesto de Alcalde, Secretario, Prosecretario, Notificador y dos escribientes, con sueldos iguales a los asignados al personal de las Alcaldías Primera Segunda Civiles. Amplíase el Presupuesto en la suma necesaria para atender al pago de esos sueldos.
+Artículo 7
+Para hacer ejecutar sus sentencias o para practicar o hacer practicar los actos de instrucción que decreten, podrán los Tribunales requerir de las demás autoridades, el auxilio de la fuerza pública que de ellas dependa, y los otros medios de acción conducentes de que dispongan.
+Los particulares están también en la obligación de prestar los auxilios indispensables que pudieren dar.

@@ -1,0 +1,4 @@
+Artículo 228
+En la calificación de las probanzas, la Corte Plena tendrá amplia facultad de apreciación, y tan pronto adquiera la convicción moral de que el funcionario o empleado no responde por su preparación, conducta, criterio, carácter, diligencia o trabajo, a los fines de una sana y buena administración de justicia, revocará su nombramiento.
+En las actas de Corte Plena no se consignarán por ningún motivo manifestaciones, votos salvados o protestas de los magistrados, que en alguna forma, directa o indirecta, insinúen o indiquen el modo en que sus votos fueron dados o los detalles de la discusión o votación. Es igualmente prohibido para el Secretario de la Corte suministrar dato alguno en ese sentido, y a los magistrados, revelar o divulgar cualquier detalle de lo ocurrido durante las sesiones privadas.
+( Así reformado por el artículo 6º de la Ley Nº 7130 de 16 de agosto de 1989 )

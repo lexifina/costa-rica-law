@@ -1,0 +1,2 @@
+Artículo 92
+Cuando haya urgencia y el Juez respectivo no pueda por algún motivo hacerlo, los Alcaldes podrán adoptar providencias interinas, decretar arraigos y embargos preventivos, conocer de los demás prejuicios y, en general, de todos los casos que requieran una determinación que sin daño de los interesados no pueda diferirse, cualquiera que sea la cuantía de todos esos asuntos; pero de todo ello deberán dar cuenta sin demora al Juez, con remisión de los antecedentes.

@@ -1,1 +1,5 @@
-ARTICULO 5°.- Deróganse los artÍculos 7, 28, 30, 31, 32, 35, 37, 38, 135, 159, 178, 367, 377, 381, 38 a 394 inclusive, 406 a 409 inclusive, 461, 467, 526 a 528 inclusive del Código de Procedimientos Penales; la ley N° 26 de 21 de noviembre de 1910 (Ley de Procuradores); la N° 28 de 28 de junio de 1932 y el artículo 2° de la ley N° 10 de 3 de junio de 1924.
+Artículo 5
+Los Tribunales no podrán ejercer su ministerio sino a petición de parte, a no ser en los casos en que la ley los faculte para proceder de oficio.
+Reclamada su intervención en forma legal y en negocios de su competencia, no podrán excusarse de ejercer su autoridad por falta de ley que resuelva la contienda sometida a su decisión.
+No habiendo norma escrita ni uso o costumbres aplicables al caso, fallarán con arreglo a los principios generales del Derecho.
+( Así reformado por el artículo 3º de la Ley Nº 7020 de 6 de enero de 1986 )
