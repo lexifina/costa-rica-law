@@ -1,8 +1,2 @@
-ARTÍCULO 69.- Transferencia del nombre comercial
-El nombre comercial sólo puede transferirse junto con la empresa o el
-establecimiento que lo emplea o con la parte de la empresa o el
-establecimiento que lo emplea.
-La transferencia de un nombre comercial registrado o en trámite de
-registro se inscribirá en el Registro de la Propiedad Industrial, según el
-procedimiento aplicable a la transferencia de marcas, en cuanto
-corresponda, y devengará la misma tasa.
+Artículo 69°- Transferencia del nombre comercial. El nombre comercial sólo puede transferirse junto con la empresa o el establecimiento que lo emplea o con la parte de la empresa o el establecimiento que lo emplea.
+La transferencia de un nombre comercial registrado o en trámite de registro se inscribirá en el Registro de la Propiedad Industrial, según el procedimiento aplicable a la transferencia de marcas, en cuanto corresponda, y devengará la misma tasa.

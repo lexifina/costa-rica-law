@@ -1,5 +1,1 @@
-ARTÍCULO 85.- Abandono de la gestión
-Las solicitudes de registro y las acciones que se ejerciten bajo el
-imperio de esta ley, se tendrán por abandonadas y caducarán, de pleno
-derecho, si no se insta su curso dentro de un plazo de seis meses,
-contados desde la última notificación a los interesados.
+Artículo 85°- Abandono de la gestión. Las solicitudes de registro y las acciones que se ejerciten bajo el imperio de esta ley, se tendrán por abandonadas y caducarán, de pleno derecho, si no se insta su curso dentro de un plazo de seis meses, contados desde la última notificación a los interesados.

@@ -1,5 +1,5 @@
 CAPÍTULO V
-Transferencia y Licencia de Uso de la Marca
+Transferencia y licencia de uso de la marca
 Artículo 31°- Transferencia de la marca. El derecho sobre una marca registrada o en trámite de registro puede ser transferido por acto inter vivos o mortis causa. La transferencia debe constar por escrito y deberá inscribirse para que surta efecto frente a terceros. La inscripción devengará la tasa establecida en la presente ley.
 Toda solicitud de transferencia de marca deberá contener la información citada en los incisos a), b), c), d) y e) siguientes; asimismo, deberá acompañarse con los documentos mencionados en los incisos f), g) y h).
 a) Nombre de las partes y su dirección.

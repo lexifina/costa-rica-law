@@ -1,5 +1,5 @@
 CAPÍTULO IV
-Derechos, Obligaciones y Limitaciones Relativas al Registro
+Derechos, obligaciones y limitaciones relativas al registro
 Artículo 25°- Derechos conferidos por el registro. El titular de una marca de fábrica o de comercio ya registrada gozará del derecho exclusivo de impedir que, sin su consentimiento, terceros utilicen en el curso de operaciones comerciales, signos idénticos o similares para bienes o servicios iguales o parecidos a los registrados para la marca, cuando el uso dé lugar a la probabilidad de confusión. Por ello, el registro de una marca confiere, a su titular o a los derechohabientes, el derecho de actuar contra terceros que, sin su consentimiento, ejecuten alguno de los siguientes actos:
 a) Aplicar o colocar la marca o un signo distintivo idéntico o semejante sobre productos o servicios para los cuales fue registrada la marca o sobre productos, envases, envolturas, embalajes o acondicionamientos de esos productos relacionados con los servicios para los cuales se registró la marca.
 b) Suprimir o modificar la marca con fines comerciales después de haberla aplicado o colocado sobre los productos o servicios referidos en el literal precedente.

@@ -1,15 +1,3 @@
-ARTÍCULO 83.- Acumulación de pedidos
-Podrá solicitarse, mediante un pedido único, la modificación o
-corrección de dos o más solicitudes en trámite o de dos o más registros,
-cuando la modificación o corrección sea la misma para todos.
-Podrá solicitarse, mediante un pedido único, la inscripción de
-transferencias de la titularidad de dos o más solicitudes en trámite o de
-dos o más registros, cuando el transfiriente y el adquiriente sean los
-mismos en todos ellos. Esta disposición se aplicará, en lo pertinente, a
-la inscripción de las licencias de uso de los signos distintivos
-registrados o en trámite de registro.
-A efectos de lo previsto en los dos párrafos anteriores de este
-artículo, el peticionante deberá identificar cada uno de los registros o
-solicitudes en los que se hará la modificación, corrección o inscripción.
-Las tasas correspondientes se pagarán en función del número de solicitudes
-o registros involucrados.
+Artículo 83°- Acumulación de pedidos. Podrá solicitarse, mediante un pedido único, la modificación o corrección de dos o más solicitudes en trámite o de dos o más registros, cuando la modificación o corrección sea la misma para todos.
+Podrá solicitarse, mediante un pedido único, la inscripción de transferencias de la titularidad de dos o más solicitudes en trámite o de dos o más registros, cuando el transfiriente y el adquiriente sean los mismos en todos ellos. Esta disposición se aplicará, en lo pertinente, a la inscripción de las licencias de uso de los signos distintivos registrados o en trámite de registro.
+A efectos de lo previsto en los dos párrafos anteriores de este artículo, el peticionante deberá identificar cada uno de los registros o solicitudes en los que se hará la modificación, corrección o inscripción. Las tasas correspondientes se pagarán en función del número de solicitudes o registros involucrados.
