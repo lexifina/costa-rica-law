@@ -1,0 +1,1 @@
+Artículo 4.—Las bebidas alcohólicas que se ofrezcan en el mercado, así como las que se encuentren en bodegas, sin los requerimientos exigidos en el presente decreto, serán decomisadas por la autoridad aduanera competente, de forma que se siga con el procedimiento legal correspondiente en estos casos.
