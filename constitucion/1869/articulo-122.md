@@ -1,0 +1,1 @@
+Artículo 122.-Corresponde al Supremo Tribunal hacer el nombramiento de sus respectivos Secretarios, Jueces de 1° Instancia y demás funcionarios que designe la ley, conocer de las renuncias de estos y concederles licencias cuando las soliciten.
