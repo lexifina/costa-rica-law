@@ -1,0 +1,1 @@
+Artículo 5°— El impuesto deberá pagarse dentro de seis meses, á contar del día en que ocurra la muerte del causante. El no pago de la contribución se multará con dos por ciento mensual de su monto por el tiempo que se demore.
