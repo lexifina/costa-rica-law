@@ -14,3 +14,4 @@ Acuerdo sobre el Suministro de Información Periódica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-24 | la propia norma |
+| 2 | 2003-07-24 | Acuerdo 77 (2003-05-26) |
