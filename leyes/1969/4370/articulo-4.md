@@ -1,4 +1,4 @@
-Artículo 4º- Tendrán derecho a acogerse a los beneficios de esta
+ARTICULO 4º- Tendrán derecho a acogerse a los beneficios de esta
 ley, las empresas, que así lo soliciten ante el Ministerio de Hacienda,
 en el plazo de un mes, a partir de su vigencia.
 El Ministerio de Hacienda deberá hacer la liquidación de lo

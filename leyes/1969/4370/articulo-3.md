@@ -1,4 +1,4 @@
-Artículo 3º- Del monto de la deuda se deducirán las inversiones en
+ARTICULO 3º- Del monto de la deuda se deducirán las inversiones en
 adquisición, mejoras, mantenimiento y atención de los campos de aviación,
 durante el tiempo de mora en la devolución del impuesto recaudado, la
 justificación y comprobación de esas inversiones, se verificará ante la
