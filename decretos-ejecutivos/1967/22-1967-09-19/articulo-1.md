@@ -1,0 +1,10 @@
+N ° 22
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+Considerando:
+1°—Que el Instituto de Tierras y Colonización en cumplimiento de los que determinaron su creación y con el objeto de promover el desarrollo económico y social de la región Norte del país, proyecta establecer una colonia abarcará un área considerable de terrenos situados en la parte septentrional le la provincia de Alajuela, la cual se denominará "Colonia Chambacú".
+2°—Que es de conveniencia pública aprovechar la oportunidad para demarcar y dejar debidamente inscrita en el Registro Público a nombre del Estado, la zona fronteriza de dos mil metros de ancho en esta sección limítrofe con la República de Nicaragua, que señala el inciso f) del artículo 7° de la ley N° 2825 de 14 de octubre de 1961 y sus reformas, a efecto de localizar con mayor certeza a ubicación de la futura colonia y evitar hasta donde sea posible eventuales conflictos de dominio u ocupación de la expresada zona inalienable.
+3°—Que es asimismo de utilidad pública reservar para el uso común una zona fluvial de cincuenta metros de ancho a todo lo largo de la margen izquierda el río San Carlos que servirá de límite a la referida colonia, para lo cual resulta indispensable reformar el Decreto Ejecutivo N° 4 de 23 de febrero de 1966 —que determinó cuales son los ríos navegables de Costa Rica, para el establecimiento e la zona fluvial inalienable a que se refiere el inciso b) del citado artículo 7° de la Ley de Tierras y Colonización, en relación con el artículo 9° ibídem— y fiel cual se encuentra excluido el indicado río, no obstante ser en la práctica la principal vía fluvial de dicha zona.
+Por tanto,
+Decretan :
+Artículo 1°—Por encontrarse afecta a los fines de la ley número 2825 de 14 de octubre de 1961 y sus reformas, inscríbase a nombre del Estado en el Registro Público, Sección de la Propiedad, Partido de Alajuela, el área de terreno de la Reserva Nacional cuya situación, naturaleza, linderos y medida se describen en el artículo siguiente.

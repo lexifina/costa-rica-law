@@ -1,0 +1,1 @@
+Artículo 5°—Declárase oficial el plano levantado por la Sección de Ingeniería Agraria del Departamento de Colonización del Instituto de Tierras y Colonización, con fecha 30 de junio último, denominado "Plano de la Reserva Chambacú".

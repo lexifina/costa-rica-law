@@ -1,0 +1,1 @@
+Artículo 6°—Para los efectos de los artículos 7° inciso b) y 9° de la ley número 2825 de 14 de octubre de 1961 y sus reformas, modifícase el Decreto Ejecutivo N° 4 de 23 de febrero de 1966, declarando navegable el río San Carlos, en una longitud de cincuenta y cuatro kilómetros aguas arriba a partir de su desembocadura en el río San Juan.
