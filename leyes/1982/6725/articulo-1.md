@@ -1,4 +1,6 @@
-N° 6725
+N°6725
+(Nota de Sinalevi: Mediante la ley Cierre del Ministerio de Gobernación y Policía de Costa Rica y reordenamiento de sus competencias desconcentradas, N° 10983 del 9 de noviembre de 2026, se reformará la presente norma. De conformidad con la norma antes mencionada la misma empezará a regir a partir del 1° de mayo de 2027, por lo que a partir de esa fecha se harán las respectivas modificaciones.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
-Artículo 1°-Son feriados para los establecimientos y oficinas públicas, los días que se designen en cualquier población para celebrar fiestas cívicas, con tal de que no excedan de tres días en el año.
+Artículo 1.- Son feriados para los establecimientos y oficinas públicas, los días que se designen, en cada cantón, para celebrar sus fiestas cívicas, con tal de que no excedan de un día por año.
+(Así reformado por el artículo 1 de la Ley N° 7974 de 4 de enero del 2000)
