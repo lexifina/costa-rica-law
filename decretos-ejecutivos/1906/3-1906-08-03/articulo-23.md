@@ -1,0 +1,1 @@
+Artículo 23. —En el caso del artículo 6° de la ley, el Notario recogerá, hecha la liquidación, el sobrante que haya y lo depositará á la orden del dueño en la Tesorería Nacional, en el mismo día del remate ó en el siguiente a más tarde y lo hará saber al interesado por el aviso inserto en el Diario Oficial, y privadamente si le fuere posible.

@@ -1,0 +1,1 @@
+Artículo 13. —Toda casa de empeños avisará por escrito al Gobernador, y al público por el Diario oficial, las horas u los días que designe para las operaciones de préstamo. No por esto será irregulares las que efectúe fuera de ese tiempo.

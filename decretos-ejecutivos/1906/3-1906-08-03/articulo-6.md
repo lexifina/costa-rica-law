@@ -1,0 +1,2 @@
+Artículo 6°. —Todo informe expresará si los libros se llevan tal como lo disponen las leyes, el monto del capital empleado en préstamos por la casa visitada y las demás circunstancias que, á juicio del visitador, puedan en manera alguna contribuir al esclarecimiento de cualquier irregularidad ó delito.
+Para el desempeño de su comisión podrá el Procurador Síndico acompañarse de la persona que tenga á bien, previa aceptación del Gobernador.

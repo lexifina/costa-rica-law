@@ -1,0 +1,1 @@
+Artículo 26. —Se tendrán como hechas por el dueño de una Casa de Préstamos las operaciones que dentro del recinto de la misma efectuaren su esposa, ascendientes y descendientes, si vivieren con aquél y los dependientes ocupados ordinariamente en el tráfico del negocio. Se presume que las operaciones por estas personas realizadas se han hecho dentro del recinto de la casa.

@@ -1,0 +1,1 @@
+Artículo 20. —Todo deudor tiene el derecho de tanteo para tomar la prenda, en el acto del remate, por el precio en que se hubiere adjudicado á un tercero. Este derecho sólo podrá hacerse efectivo pagando de contado el valor lo más tarde en el momento de darse por concluído el remate.

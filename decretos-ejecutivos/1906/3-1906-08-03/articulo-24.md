@@ -1,0 +1,2 @@
+Artículo 24. —En el caso del inciso final del artículo 6°. de la ley, la autoridad de Policía anunciará por tres veces en el Diario Oficial, durante los quince días siguientes al remate, haber recogido las prendas de que allí se habla y, si fuere conocido el empeñante, se lo hará saber además personalmente.
+Tales prendas se custodiarán debidamente inventariadas en el despacho de la autoridad que las recogió, hasta que se presente su dueño á recibirlas.

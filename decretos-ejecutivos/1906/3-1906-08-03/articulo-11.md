@@ -1,0 +1,1 @@
+Artículo 11. —Cada vez que se renueva una obligación, se cambiara el marbete y al dorso del talón que deberá exhibir el deudor, lo mismo que al dorso del tronco en que conste el asiento, se pondrá la razón de prórroga, firmada por el prestamista.

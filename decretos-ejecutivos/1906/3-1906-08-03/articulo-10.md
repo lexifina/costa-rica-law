@@ -1,0 +1,1 @@
+Artículo 10. —Cuando el tamaño ó forma de la prenda ó el peligro de que este dañe impidan fijar en ella directamente el marbete, se atará aquélla con un cordón fuerte sin añadidura ni remiendo, cuyos extremos se fijaran en un cartón sobre el cual, y cubriendo tales extremos, se pegará el marbete con lacre ó goma.

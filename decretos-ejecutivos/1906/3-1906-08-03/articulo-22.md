@@ -1,0 +1,1 @@
+Artículo 22. —Además de los casos expresados en el artículo anterior, se dará por terminado un remate, dadas quesean las once de la noche. En tal caso las prendas que no hubieren podido venderse por falta de tiempo y aún aquellas para las cuales no se presentó postor, podrán rematarse al día siguiente comenzando a la misma hora que el anterior.

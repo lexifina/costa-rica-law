@@ -1,0 +1,1 @@
+Artículo 21. —Rematadas todas las prendas ó no presentándose licitadores para las que no hayan sido, la autoridad de Policía dará por concluída la venta y se procederá á extender en el libro correspondiente el acta de ley.

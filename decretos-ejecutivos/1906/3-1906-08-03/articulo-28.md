@@ -1,0 +1,1 @@
+Artículo 28. —Cuando una casa de préstamos pertenezca á una sociedad ó á otra persona civil, los deberes y obligaciones que la ley y este Reglamento imponen al dueño ó prestamista serán cumplidos por el gerente o administrados en su defecto ó por el representante legal.

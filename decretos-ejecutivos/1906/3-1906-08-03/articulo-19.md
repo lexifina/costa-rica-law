@@ -1,0 +1,1 @@
+Artículo 19. —Si el rematario no paga en el acto el precio del remate y el prestamista no consiente el por su cuenta y bajo su propia responsabilidad en concederle plazo, se tendrá por insubsistente la venta y se volverá á rematar la prenda.
