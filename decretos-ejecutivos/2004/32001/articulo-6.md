@@ -1,0 +1,1 @@
+Artículo 6º—Cada Director Regional de Educación en setiembre de cada año, deberá presentar y validar ante el Ministro de Educación, la política regional de educación ambiental, amparada en la Estrategia Nacional de Educación Ambiental.

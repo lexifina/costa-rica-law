@@ -1,0 +1,1 @@
+Artículo 5º—Será responsabilidad de los directores regionales de educación, la formulación de las políticas regionales ambientales, amparados en lo establecido en la Estrategia Nacional de Educación Ambiental.

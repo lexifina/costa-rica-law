@@ -1,0 +1,1 @@
+Artículo 2º—La Estrategia Nacional de Educación Ambiental (ENEA) se implementará en las veinte Direcciones Regionales de Educación del país, a través de políticas regionales que reflejen los objetivos de la misma.

@@ -1,0 +1,1 @@
+Artículo 11.—Cada Asesor Supervisor de Circuito debe garantizar la presencia de los objetivos de la Estrategia Nacional de Educación Ambiental en los planes institucionales de cada centro educativo, según se establece en el artículo 3 de este decreto.

@@ -1,0 +1,1 @@
+Artículo 12.—El Ministerio de Educación Pública debe garantizar las alianzas estratégicas con instituciones públicas y privadas, nacionales e internacionales para el logro de los objetivos propuestos en la Estrategia Nacional de Educación Ambiental.

@@ -1,0 +1,1 @@
+Artículo 7º—Todas las acciones que se desarrollen en el marco de la Estrategia Nacional de Educación Ambiental, se ejecutarán en coordinación directa con el Despacho del Ministro de Educación, a través de la Oficina de Educación Ambiental, oficina adscrita al despacho del Ministro.
