@@ -1,1 +1,0 @@
-Artículo 9.- Es deber de toda persona colaborar con la prevención de los delitos y del consumo ilícito de las drogas y demás sustancias a que se refiere esta Ley. El Estado deberá procurar la seguridad y las garantías que cada caso demande.
