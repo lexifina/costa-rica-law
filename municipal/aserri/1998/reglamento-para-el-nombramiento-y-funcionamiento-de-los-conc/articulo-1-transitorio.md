@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Los miembros de los Concejos de Distritos que se constituyan por primera vez, con posterioridad a la promulgación este Reglamento, durarán en sus cargos hasta la nueva designación de Regidores, según lo dispuesto por el Artículo 2 de este Reglamento.
