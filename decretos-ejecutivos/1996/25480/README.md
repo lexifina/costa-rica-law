@@ -13,3 +13,4 @@ Autoriza a Bancos Comerciales Privados Captación en Cuentas Corrientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-01 | la propia norma |
+| 2 | 1997-04-07 | Decreto Ejecutivo 26001 (1997-04-07) |

@@ -9,3 +9,5 @@ Considerando:
 DECRETAN:
 Artículo 1°-Los bancos privados que decidan acogerse a la alternativa señalada en el inciso ii), del artículo 59 de la Ley del Sistema Bancario Nacional, N° 1644 del 26 de setiembre de 1953 y sus reformas, para tener acceso a la captación de depósitos en cuenta corriente, además de cumplir con los demás requisitos que ahí se especifican, deberán mantener un saldo equivalente, por lo menos, al diez por ciento (10%), de sus captaciones totales a plazos de treinta días o menos, en moneda local o extranjera, una vez deducido el encaje correspondiente. en créditos dirigidos a la reconvención productiva de la micro y pequeña empresa industrial, agropecuaria o de servicio.
 El Ministerio de Economía, Industria y Comercio (MEIC) definirá cuáles empresas quedan comprendidas en las categorías de servicio y pequeña empresa.
+El Ministerio de Agricultura y Ganadería definirá cuales empresas quedan comprendidas en las categorías de micro y pequeña empresa agropecuaria.
+(Así adicionado el parrafo anterior, por el artículo 1° del decreto ejecutivo N° 26001 de 07 de abril de 1997)
