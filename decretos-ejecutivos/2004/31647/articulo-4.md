@@ -1,0 +1,1 @@
+Artículo 4º—Los órganos y entes del Estado cooperarán con el Ministerio de Educación en el cumplimiento de sus tareas por medio de convenios, acuerdos y cualesquiera otro instrumento idóneo, dentro del marco normativo vigente, destinados a coadyuvar en la ejecución efectiva y exitosa del Programa de Relanzamiento de la Educación Costarricense.

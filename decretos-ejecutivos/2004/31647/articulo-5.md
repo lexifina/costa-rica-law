@@ -1,0 +1,1 @@
+Artículo 5º—Invítase a la sociedad costarricense, por medio de sus organizaciones sociales, económicas y cívicas así como a la ciudadanía en general a identificar y llevar a cabo acciones que coadyuven al fortalecimiento, ampliación y mejoramiento de los servicios públicos y privados de educación.
