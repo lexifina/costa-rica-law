@@ -13,3 +13,4 @@ Aclaración a la Circular N° 5-2004 sobre el Documento a Utilizar para Notifica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-25 | la propia norma |
+| 2 | 2004-03-30 | Circular 47 (2004-03-30) |
