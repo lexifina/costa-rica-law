@@ -1,2 +1,3 @@
-Artículo 9º.- El impuesto se comenzará a cobrar sobre la cosecha
-1949-1950.
+Artículo 9º.- DEROGADO
+( DEROGADO por el artículo 2º de la Ley Nº 1211 de 16 de octubre de
+1950)

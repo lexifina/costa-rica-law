@@ -1,3 +1,4 @@
-Artículo 1º.- Cada fanega de café que reciban los beneficios, ya sea
-de producción propia o ajena, pagará un impuesto de dos y cuarto por
-ciento sobre el precio de liquidación respectivo en cada beneficio.
+(Derogado)
+Artículo 1º.- DEROGADO
+( Derogado por el artículo 7º de la Ley Nº 1411 de 19 de enero de
+1952)
