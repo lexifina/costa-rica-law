@@ -1,0 +1,12 @@
+N° 11858-J
+EL PRIMER VICEPRESIDENTE
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA,
+Considerando:
+I.—Que la Corte Suprema de Justicia, ha redactado un proyecto de reforma al “Reglamento de Zonaje para los Servidores del Poder Judicial”, emitido por Decreto Ejecutivo número 8835-G de 4 de julio de 1978, publicado este último en “La Gaceta” número 150 de 9 de agosto del mismo año.
+II.—Que la modificación se refiere al artículo 2° del Reglamento, el cual dispone que el sobresueldo por zonaje se pagará a los servidores que trabajen en cualquiera de los lugares que se indican en el artículo 8°, “aún cuando ese lugar haya sido desde antes su residencia habitual”. Explica la Corte que en el año 1979 no fue posible reconocer el zonaje en las condiciones dichas, por falta de recursos disponibles, y que lo mismo está ocurriendo en el presente año; que lo aconsejable es reformar el Reglamento, a fin de que el zonaje se pague únicamente a los funcionarios o empleados que tengan que trasladarse de residencia para trabajar en alguno de aquellos lugares, es decir, cuando se produzca un desplazamiento en esas circunstancias; que en favor de la reforma también podrían aducirse motivos de orden fiscal que recomiendan seguir una política restrictiva en los gastos, pero que la razón fundamental consiste en que el sobresueldo de zonaje sólo se justifica realmente cuando el servidor tiene que cambiar de residencia, para el desempeño del cargo en que ha sido nombrado, y que esa es la pauta que adoptan otros reglamentos de la misma índole, como el de los servidores del Poder Ejecutivo, dictado por decreto número 90-SC de 13 de diciembre de 1965.
+III.—Que la Corte Plena aprobó ese proyecto de reforma en sesiones celebradas el 12 de mayo de este año, artículo VII, y el 19 del mismo mes, artículo XXXV, y lo ha enviado al Poder Ejecutivo, a fin de que se emita el correspondiente decreto.
+Por tanto,
+DECRETAN :
+Artículo 1°—Refórmase el artículo 2° del “Reglamento de Zonaje para los Servidores del Poder Judicial”, decreto número 8835-G de 4 de julio de 1978, el cual se leerá así:
+“Artículo 2°—El sobresueldo por concepto de zonaje se pagará a los empleados o funcionarios judiciales que presten servicio en alguno de los lugares a que se refiere el mencionado artículo 8°, siempre que, con motivo del cargo que desempeñan, hayan tenido que trasladar su residencia habitual a ese lugar”.
