@@ -1,0 +1,1 @@
+Art. 14. Podrá así mismo la compañia imponer una pena triple cuádrupla del derecho que deben pagar de tránsito, al que contravenga las disposiciones que diete la sociedad para realizar los derechos establecidos en ese decreto, quedando autorizada, al efecto, para detener los bultos que contengan el fraude hasta tanto se verifique el pago de la multa.
