@@ -1,0 +1,3 @@
+Artículo 5°—De los responsables de solicitar y asignar el equipo:
+La asignación de equipos de telefonía móvil, línea telefónica y accesorios, deberá ser realizada por el Presidente del Directorio de la Asamblea de los Trabajadores, el Presidente de la Junta Directiva Nacional, el Auditor General, el Gerente General y los Subgerentes, dependiendo del área donde desempeñe sus labores el funcionario a favor de quien se pretende aprobar la asignación del equipo y sus accesorios.
+Los equipos de telefonía móvil deben estar en disposición de ser accesados al menos entre las 7 y las 21 horas en días hábiles.

@@ -1,0 +1,1 @@
+Artículo 12.—De la devolución del equipo: En caso de que el funcionario se ausente del Banco por un período mayor de 15 días hábiles, o sea trasladado a otra unidad administrativa, deberá devolver el equipo telefónico y sus accesorios a la jefatura que autorizó su asignación.

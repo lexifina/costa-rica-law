@@ -1,0 +1,1 @@
+Artículo 6°—Del recibo del equipo: Aprobada la asignación por la instancia competente y de previo a su formal entrega por el Subproceso de Compras, el funcionario a quien se haya aprobado la asignación, firmará un recibido conforme haciéndose responsable de los bienes que en él se describan.
