@@ -1,4 +1,4 @@
-Artículo 14.- Serán funciones de la Dirección General:
+ARTICULO 14.- Serán funciones de la Dirección General:
 a) Recomendar las líneas generales de orientación de toda actividad
 estadística nacional;
 b) Procurar la coordinación de las estadísticas nacionales para evitar
@@ -33,3 +33,10 @@ censos a que se refiere el artículo 16 de esta ley;
 l) Operar como Centro de Información Estadística; y
 m) Asumir por decreto Ejecutivo cualquier otra función que sea
 compatible con la naturaleza técnica que esta ley le confiere.
+n) Publicar, mensualmente, en el diario oficial La Gaceta,
+durante los primeros quince días de cada mes, el índice oficial
+de precios al consumidor.
+Este índice debe mostrar el incremento mensual de precios y
+acumulado del último año.
+(Así adicionado este inciso por el artículo 135 de la Ley de
+Arrendamientos Urbanos No.7527 del 10 de julio de 1995)

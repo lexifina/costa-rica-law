@@ -1,4 +1,4 @@
-Artículo 3º.- Todas las dependencias de la Administración Pública,
+ARTICULO 3º.- Todas las dependencias de la Administración Pública,
 las Instituciones Autónomas y Semiautónomas, los organismos
 internacionales que mediante acuerdo o convenio realicen en el país
 trabajos de naturaleza estadística, y en general, toda persona natural o
