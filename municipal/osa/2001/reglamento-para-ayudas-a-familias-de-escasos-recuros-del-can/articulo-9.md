@@ -1,0 +1,1 @@
+Articulo 9°—Este tipo de ayuda no se dará a personas que infrinjan la ley, que se encuentren en los derechos de vía, en la zona pública de la Zona Marítima Terrestre. Este Reglamento se apegará a la Ley de Zona Marítima Terrestre. Código Municipal y leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 10°—La ayuda a los beneficiarios para solución de vivienda será solamente en materiales para la construcción y esta será hasta un máximo de dos por ciento de la subpartida presupuestaria ordinaria.

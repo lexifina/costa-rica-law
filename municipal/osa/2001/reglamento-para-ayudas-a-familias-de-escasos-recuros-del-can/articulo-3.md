@@ -1,0 +1,1 @@
+Artículo 3°—La comisión en un termino de hasta 15 días dará su dictamen de comisión ante el Concejo Municipal para su respectiva aprobación. Con el visto bueno del análisis del estado socioeconómico de la familia, previa visita.

@@ -1,0 +1,1 @@
+Artículo 5°—El 80% del presupuesto del fondo serán destinados a solucionar problemas de vivienda del cantón. El restante 20 por ciento se destinara a solucionar otras necesidades de las familias o individuos tales como transpone, alimentación, salud, muerte, etc.

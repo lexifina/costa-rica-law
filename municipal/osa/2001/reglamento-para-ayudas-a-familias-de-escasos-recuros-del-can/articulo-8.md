@@ -1,0 +1,1 @@
+Artículo 8° —Los beneficiarios de esta ayuda no podrán obtener otra por el tiempo de un año calendario, excepto que sea por razones de fuerza mayor, incendios, huracanes, inundaciones, terremotos u otros.
