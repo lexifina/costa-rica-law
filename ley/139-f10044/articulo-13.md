@@ -1,9 +1,24 @@
-Artículo 13.- Los títulos que se otorguen de acuerdo con esta ley, no
-podrán exceder de cien hectáreas, salvo tratándose de fincas ganaderas
-existentes al 6 de enero de 1939, cuyo exceso de cien hectáreas puede
-titularse y hasta la cantidad solicitada, siempre que el solicitante base
-su derecho en la posesión de un terreno dedicado a la industria ganadera
-en la siguiente proporción con su ganado: una hectárea y cuarenta áreas
-por cada cabeza de ganado cuando se trate de repastos, y cinco hectáreas
-por cada cabeza cuando se refiere a potreros de pasto natural y sitios.
-En ningún caso el total de la cabida excederá de trescientas hectáreas.
+ARTÍCULO 13.- La cabida de las fincas inscritas antes del 23 de
+octubre de 1930 o sus segregaciones, podrá ser rectificada sin necesidad
+de expediente, y con la sola declaración del propietario en escritura
+pública; podrá ser aumentada hasta la cantidad que el plano indique,
+cuando este determine una cabida que no exceda de cinco mil metros
+cuadrados (5.000 m2 ), hasta un cincuenta por ciento (50%) en las fincas
+de más de cinco mil metros cuadrados (5.000 m2) e inferiores a cinco
+hectáreas; hasta un veinticinco por ciento (25%) de la cabida de las
+fincas de más de cinco hectáreas e inferiores a treinta hectáreas y hasta
+un diez por ciento (10%) de la cabida en las fincas de más de treinta
+hectáreas.
+En los casos citados en el párrafo anterior, el notario deberá dar fe
+de que la nueva medida es la indicada en el plano inscrito en la oficina
+de Catastro Nacional, levantado y firmado por cualquiera de las personas
+mencionadas en el artículo 2; deberán citarse el número y la fecha de
+inscripción del plano.
+En ningún caso, esas rectificaciones perjudicarán a terceros durante
+los tres años posteriores a la inscripción.
+Para consignar disminución de cabida de un inmueble, será requisito
+la manifestación expresa del propietario en escritura pública. Esta
+disminución debe efectuarse con base en un plano catastrado, de lo cual
+dará fe el notario.
+(Así reformado por el artículo 175 del Código Notarial No.7764 de 17
+de abril de 1998)

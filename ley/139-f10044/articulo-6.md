@@ -1,12 +1,10 @@
-Artículo 6º.- Los testigos declararán si les consta la posesión que
-afirma haber tenido el solicitante sobre la finca o fincas que trate de
-titular, por haberlo visto ejercer esa posesión como propietario y el
-tiempo que ha durado esa posesión aproximadamente. Si la información se
-refiere a fincas dedicadas a ganadería, estarán obligados a declarar
-también sobre la posesión de los ganados que el titulante afirme tener en
-el inmueble y si estos ganados no pertenecen a otras personas.
-El Representante del Ministerio Público, cuando lo crea conveniente,
-podrá preguntar al testigo a fin de depurar la verdad de sus declaraciones
-y pedir se practique cualquier diligencia encaminada a comprobar la
-veracidad de los hechos aportados al expediente; los gastos que ocasione
-la diligencia, serán por cuenta del titulante.
+ARTÍCULO 6º.- La justificación de la posesión se acreditará con la
+declaración de tres testigos, vecinos del cantón donde se halle situado
+el inmueble, a los cuales se interrogará desde cuándo conocen la finca,
+si les consta que ha estado sometida por el titulante o por anteriores
+dueños a posesión durante un período continuo no inferior a 10 años, si
+esa posesión ha sido en forma pública, pacífica y en concepto de dueño y
+en qué actos ha consistido. Asimismo el Juez interrogará a los testigos
+de oficio o a solicitud de parte, sobre cualquier otro dato que se
+considere de interés para probar la posesión. Todo lo anterior se hará
+sin necesidad de previo interrogatorio formulado por el interesado.

@@ -1,18 +1,4 @@
-Artículo 5º.- La justificación de la posesión se acreditará con las
-declaraciones de cuatro testigos vecinos del cantón en que se halle
-situado el inmueble, propietarios de bienes raíces.
-Para acreditar la calidad de vecino, servirá la cédula de identidad
-y, a falta de ella, constancia de la autoridad política del lugar,
-extendida en papel común; y para comprobar que tiene bienes, certificación
-del Registro Público o de la Tributación Directa.
-Sin embargo, tratándose de tierra situadas en lugares en donde no
-haya vecinos con bienes inscritos, no es necesario que los testigos sean
-propietarios de bienes registrados; basta con que sean dueños de tierras,
-vecinos a la posesión que se trata de titular, establecidos en ellas y
-siempre que sean personas de reconocida buena conducta. La condición de
-dueños de esas tierras y la buena conducta, se acreditarán por medio de
-constancia expedida por la autoridad política del lugar donde esté situado
-el inmueble; el Jefe Político a quien se le solicitare una constancia de
-propiedad de tierras, deberá enviar a la Tributación Directa todos los
-datos relativos a dichos inmuebles para su inscripción en la citada
-oficina.
+ARTÍCULO 5º.- Recibida la solicitud, el Juez procederá de inmediato a su estudio y si notara omisiones le ordenará al interesado que las subsane. Subsanadas las omisiones, el Juez citará a los colindantes, así como a los condueños, si los hubiere, para que en el término de un mes contado a partir de la notificación, se presenten a hacer valer sus derechos. No se citará a los que se den por notificados, ni a los que expresen por escrito su conformidad con la titulación, ni a los colindantes separados por calles públicas o linderos naturales.
+En la misma resolución se ordenará publicar por una vez un edicto en el "Boletín Judicial", en el cual se citará a los interesados para que dentro de un mes a partir de la publicación se presenten a reclamar sus derechos. El edicto contendrá un extracto de la solicitud.
+Se ordenará también tener como partes a la Procuraduría General de la República por medio del respectivo representante en el circuito judicial, en todo caso; y al Instituto de Tierras y Colonización cuando la finca sea rural. Para la notificación, a éste, se comisionará a uno de los Jueces Civiles de San José, cuando el Juez que conoce de la información no sea de esta jurisdicción.
+Después de la notificación a los representantes de los organismos tenidos como parte, éstos dispondrán de un mes a partir de la misma para oponerse. La falta de apersonamiento o gestión de éstos no estorbará el procedimiento en ningún caso. La calificación de la finca en rural o urbana, corresponderá al Juez.
