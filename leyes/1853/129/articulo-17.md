@@ -1,0 +1,4 @@
+Art 17.- Para el caso la Municipalidad del Cantón con conocimiento del Gobernador, dará a interés entre vecinos del distrito de Pacaca y con las seguridad debidas, el dinero existente por cinco años y en cantidades que no exceda de doscientos pesos.
+& 1°.- Si no hubiese vecinos del distrito que quieran temor a interés el todo o parte del dinero, puede en tal caso la Municipalidad darlo indistintamente a vecinos del Cantón.
+& 2°.- Los testimonios de las escrituras otorgados con las formalidades legales, se custodiarán en el archivo de la Municipalidad, y los intereses que se han de pagar anticipadamente ingresarán en el arca de propios para la escuela de primeras letras de Pacaca.
+& 3°.- En ningún caso ni por pretexto alguno podrá destinarse ni el capital ni los intereses mencionados a otros objetos que los que establecen por el presente decreto.

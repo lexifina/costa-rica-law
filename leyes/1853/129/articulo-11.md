@@ -1,0 +1,1 @@
+Art 11°.- También se formará el presupuesto correspondiente para la construcción o reedicación de la casa cural, y observado lo prevenido en el artículo anterior, librará el Gobernador así mismo las órdenes de pago.

@@ -1,0 +1,1 @@
+Art 13°.- Los planos para todas estas obras que deben ser proporcionados a la población se formarán según las reglas que acuerde el Gobernador y se construirán de los materiales que el mismo disponga.

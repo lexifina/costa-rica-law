@@ -1,0 +1,1 @@
+Artículo 4°.- Practicada la medida del terreno se valuará por peritos, tomando por base mínima en el precio, la deiziseis pesos por manzana, en las inmediaciones de la población, y la de seis en lugares más distantes, y de ahí para arriba se dará el que corresponde según la calidad y circunstancias del terreno.
