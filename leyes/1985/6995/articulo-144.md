@@ -1,0 +1,35 @@
+Artículo 144.- Adiciónase un nuevo artículo, que será el Nº 18,
+corriéndose la numeración al efecto, a la ley Nº 6899 de octubre de 1983,
+cuyo texto dirá:
+"Artículo 18.-Sin perjuicio de lo que establece el artículo 72 de la
+Ley Orgánica del Sistema Bancario Nacional, los bancos podrán explotar o
+dar en arrendamiento los bienes expresamente señalados en el artículo 72
+mencionado, lo que deberá efectuarse de la siguiente forma:
+a) Los bancos podrán explotar los bienes muebles embargados que se
+adjudiquen o que reciban en dación de pago únicamente dentro del período
+en que se ha de gestionar la venta, según lo consignado en este numeral.
+Para esos efectos ha de considerarse que la explotación es de suma
+importancia para el banco.
+b) Las entidades bancarias podrán dar en arrendamiento, en favor de
+terceros, los bienes en comentario, cuando en virtud de ello perciban una
+retribución económica acorde con el valor del servicio, el cual deberá ser
+determinado por la sección de Servicios Técnicos de las instituciones.
+c) En el caso de que los blancos den en arrendamiento los bienes
+dichos, lo que los terceros paguen por ese concepto se destinará, en
+primer lugar, a atención de los gastos generados por el arrendamiento, y
+el remanente se aplicará a la operación crediticia en que el bien hubiere
+sido embargado, adjudicado o que haya recibido en pago.
+d) El banco, de previo a la explotación del bien o a que lo dé en
+arrendamiento, deberá asegurarlo por una suma no inferior al valor del
+bien, y se consignará beneficiario de la póliza a la entidad.
+e) Los contratos de arrendamiento que al amparo del presente artículo
+formalicen las instituciones, en ningún caso podrán tener un plazo mayor al
+del año en que, según lo establece esta ley, ha de venderse esta clase de
+bienes. Por lo cual los bienes que por su naturaleza en materia de
+arrendamiento estén cobijados por la Ley de Inquilinato, debe entenderse
+que serán dados en alquiler por un plazo de un año, prorrogable por la
+voluntad exclusiva del banco arrendante, por lo que en materia inquilinaria
+consignan circunstancias contrarias en cuanto a esta clase de
+arrendamientos. No le es aplicable a estos casos la jurisprudencia
+relativa a la prórroga legal automática del plazo de arrendamientos dictada
+por los Tribunales de Justicia."

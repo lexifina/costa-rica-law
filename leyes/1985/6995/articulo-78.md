@@ -1,0 +1,3 @@
+Artículo 78. Anulado
+(Por resolución de la Sala Constitucional número 5908 de las quince horas del 18 de mayo del 2005 se anula el presente artículo, cuyo texto disponía:
+"La Municipalidad de Desamparados deslindará y traspasará a nombre de la Asociación Cultural Curime, la parte de la propiedad inscrita en el tomo 1985, folio 253, asiento 253, número 193429, actualmente ocupada por dicha asociación. El resto de la propiedad continuará a nombre de la Municipalidad del cantón de Desamparados. La Notaría del Estado hará la escritura correspondiente, la cual estará libre de todo tipo de impuestos, timbres, tasas o sobretasas".)
