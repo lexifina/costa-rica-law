@@ -1,0 +1,1 @@
+Artículo 12.— El COLSEVIC sesionará ordinariamente una vez al mes, extraordinariamente cuando se considere necesario a petición del presidente(a) del Comité Ejecutivo o dos de sus miembros, o por petición hecha en forma escrita al Comité Ejecutivo por al menos dos tercios de la totalidad de los miembros de dicho Consejo.

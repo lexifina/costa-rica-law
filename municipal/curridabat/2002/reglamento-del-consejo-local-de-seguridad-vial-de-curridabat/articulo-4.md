@@ -1,0 +1,1 @@
+Artículo 4º—Los lineamientos generales del COLSEVIC se sustentarán del Consejo de Seguridad Vial, del Departamento de Ingeniería de Tránsito de la Dirección General de Tránsito, de la Ley de Tránsito Nº 7331 y las necesidades detectadas por el mismo COLSEVIC.

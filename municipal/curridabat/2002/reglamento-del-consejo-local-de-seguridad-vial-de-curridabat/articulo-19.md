@@ -1,0 +1,1 @@
+Artículo 19.—La ejecución, el trámite y el control del gasto presupuestario que se derive de la gestión administrativa y operativa del COLSEVIC estará a cargo de la Municipalidad y se dará con base en el plan de trabajo de Seguridad Vial formulado por el COLSEVIC y aprobado por el Concejo Municipal y por el Consejo de Seguridad Vial.
