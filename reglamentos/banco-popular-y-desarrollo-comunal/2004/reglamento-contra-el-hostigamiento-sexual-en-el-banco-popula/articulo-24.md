@@ -1,0 +1,1 @@
+Artículo 24.—Tipos de sanciones. Para recomendar y establecer el tipo de sanciones, la Comisión Institucional, así como los Órganos Decisores, deberán valorar la gravedad de la falta, con base en los efectos perjudiciales en las condiciones materiales de empleo, cumplimiento laboral, estado general y personal de la víctima.

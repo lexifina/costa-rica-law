@@ -1,0 +1,1 @@
+Artículo 20.—Dictado del acto final. Cuando el asunto deba ser remitido a la Junta de Relaciones Laborales, ésta contará con un plazo no mayor de ocho días hábiles, contados a partir del recibo del expediente, para emitir la recomendación final. El Órgano Decisor contará con un plazo igual para dictar y comunicar el acto final.

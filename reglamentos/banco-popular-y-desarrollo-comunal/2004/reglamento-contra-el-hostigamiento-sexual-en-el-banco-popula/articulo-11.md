@@ -1,0 +1,1 @@
+Artículo 11.—Deber de colaboración. Todo(a) funcionario(a) o trabajador(a) del Banco está en la obligación de brindar su colaboración cuando le sea solicitada por la Comisión Institucional para la debida tramitación del procedimiento disciplinario. La desatención de este deber por parte del trabajador(a) responsable será considerada como falta grave en el desempeño de su cargo.

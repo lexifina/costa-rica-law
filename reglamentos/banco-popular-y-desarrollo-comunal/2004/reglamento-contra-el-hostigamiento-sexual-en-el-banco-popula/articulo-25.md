@@ -1,0 +1,1 @@
+Artículo 25.—De las denuncias falsas. En caso de denuncias falsas de hostigamiento o acoso sexual, se podrá incurrir, cuando así se tipifique, en los delitos de injuria, calumnia o difamación establecidos en el Código Penal.

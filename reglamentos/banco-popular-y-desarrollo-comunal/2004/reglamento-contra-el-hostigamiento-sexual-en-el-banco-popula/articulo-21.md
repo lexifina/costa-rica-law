@@ -1,0 +1,1 @@
+Artículo 21.—Prescripción. Los plazos contenidos en el presente capítulo se presumirán, para todos los efectos legales, como términos de prescripción, y su cómputo, suspensión, interrupción y demás extremos se regirán por lo que estipula el título décimo del Código de Trabajo.

@@ -1,0 +1,1 @@
+Transitorio único.—La Administración deberá resolver lo dispuesto en los artículos 5º, 6º y 7º de este Reglamento en un plazo no mayor de cuatro meses contados a partir de su publicación. Asimismo, deberá informar a la Junta Directiva sobre la implementación de este transitorio en un plazo de cuatro meses. San José, 25 de febrero del 2004.—

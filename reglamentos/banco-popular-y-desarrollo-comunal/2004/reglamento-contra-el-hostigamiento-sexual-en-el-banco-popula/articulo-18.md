@@ -1,0 +1,1 @@
+Artículo 18.—Valoración de la prueba. La Comisión Institucional o el Órgano Director respectivo deberán valorar las pruebas de forma objetiva de acuerdo con los principios de la sana crítica racional.
