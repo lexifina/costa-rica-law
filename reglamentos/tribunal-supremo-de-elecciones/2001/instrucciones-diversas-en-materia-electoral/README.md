@@ -15,3 +15,4 @@ Instrucciones Diversas en Materia Electoral
 | --- | --- | --- |
 | 1 | 2001-08-27 | la propia norma |
 | 2 | 2002-01-21 | Reglamento 1 (2002-01-21) |
+| 3 | 2002-03-20 | Reglamento 3 (2002-03-20) |
