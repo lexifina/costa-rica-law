@@ -1,12 +1,2 @@
-ARTÖCULO 3.- Esta Ley, regir , para los efectos del art¡culo
-s‚timo de la Constituci¢n Pol¡tica, tan pronto como entre en
-vigencia
-la "Convenci¢n de las Naciones Unidas sobre el Derecho del Mar"
-que,
-con ella se aprueba al completarse el sexag‚simo instrumento de
-ratificaci¢n o de adhesi¢n, de acuerdo con el art¡culo
-trescientos ocho
-de la citada Convenci¢n y tan pronto como sea publicada en el
-Diario
-Oficial.
-
+ARTÍCULO 3.-
+Esta Ley, regirá para los efectos del artículo sétimo de la Constitución Política, tan pronto como entre en vigencia la "Convención de las Naciones Unidas sobre el Derecho del Mar" que, con ella se aprueba al completarse el sexagésimo instrumento de ratificación o de adhesión, de acuerdo con el artículo trescientos ocho de la citada Convención y tan pronto como sea publicada en el Diario Oficial.
