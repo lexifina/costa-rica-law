@@ -1,0 +1,4 @@
+Artículo 23.—De la contratación directa de bienes y servicios. La contratación de bienes y servicios atenderán las siguientes disposiciones:
+a) Para las compras menores a cien mil colones (¢100.000,00) se podrá invitar a un solo proveedor, iguales a cien mil (¢100.000,00) y hasta doscientos mil colones (¢200.000,00) participarán como mínimo dos proveedores.
+b) Para compras mayores a doscientos mil colones (¢200.000,00) y hasta un millón quinientos mil colones (¢1.500.000,00) podrán participar como mínimo tres proveedores.
+c) Para compras directas mayores a un millón quinientos mil colones (¢1.500.000,00) y menores de dos millones quinientos mil colones (¢2.500.000,00) participarán como mínimo cinco proveedores. Estos montos serán revisados y actualizados de conformidad con lo que establezca la Contraloría General de la República en relación al Presupuesto Municipal.

@@ -1,0 +1,1 @@
+Artículo 32.—Funciones de la Unidad de Proveeduría. Corresponderá a la Unidad de Proveeduría encauzar y dirigir los trámites internos para la obtención de los informes técnicos, jurídicos u otros necesarios, en relación con las contrataciones que deban someterse al conocimiento de la Comisión, mediante un criterio.

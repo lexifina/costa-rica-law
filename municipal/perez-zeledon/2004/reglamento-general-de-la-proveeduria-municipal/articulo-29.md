@@ -1,0 +1,1 @@
+Artículo 29.—Compras con acuerdo de pago del Concejo. Cuando las compras directas sobrepasen el monto máximo de la Contratación Directa, establecida por el ente contralor, deberán contar previo a su ejecución con el acuerdo de pago por parte del Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 8º—De la Solicitud para la Adquisición de Bienes y Servicios. Cada órgano facultado de acuerdo al artículo 5º inciso a), de este Reglamento deberá proceder a la presentación ante la Proveeduría Municipal de la Solicitud para la Adquisición de Bienes y Servicios a más tardar el día 15 de noviembre de cada año si se tratare del Programa de Adquisiciones Ordinario.
+Si se tratare de una adquisición extraordinaria la misma se podrá dirigir a la Proveeduría al momento de surgir la necesidad de acuerdo a lo que establece el artículo 5º inciso b).
