@@ -1,0 +1,1 @@
+Art. 2. Se pone la población que se forme bajo la protección de la Virgen de Guadalupe cuyo nombre tendrá y desde luego se abrirá un campamento de dos manzanas en el lugar más propio para Iglesia y plaza coma y se fijará en él una cruz.
