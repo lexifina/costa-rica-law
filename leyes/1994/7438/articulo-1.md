@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 23927 del 13 de diciembre de 1994, la República de Costa Rica se adhiere al presente Convenio)
 CONVENIO DE BASILEA SOBRE EL CONTROL DE
 LOS MOVIMIENTOS TRANSFRONTERIZOS DE
 LOS DESECHOS PELIGROSOS Y

@@ -27,3 +27,10 @@ articulo-26.md
 articulo-27.md
 articulo-28.md
 articulo-29.md
+articulo-1-anexo.md
+articulo-2-anexo.md
+articulo-3-anexo.md
+articulo-4-anexo.md
+articulo-5-anexo.md
+articulo-6-anexo.md
+articulo-7-anexo.md
