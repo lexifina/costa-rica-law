@@ -1,20 +1,7 @@
-Artículo 27.- Departamento de Archivo Policial: el Departamento de
-Archivo Policial tendrá las siguientes funciones:
-a) Mantener un registro de identificación dactilar tanto de
-nacionales como de extranjeros que efectúen trámites
-migratorios, de residencia, permisos temporales y solicitudes
-de pensionados rentistas, matrículas y portación de armas y
-permisos de seguridad privada.
-b) Banco de huellas: de funcionarios públicos dados de alta en la
-Fuerza Pública, a quienes soliciten permisos de portación de
-armas y a quienes sean detenidos por la presunta comisión de un
-delito.
-c) Llevar un registro de todas las solicitudes de capturas y
-apremios corporales remitidos por las oficinas que administran
-justicia.
-d) Llevar un control actualizado de los resultados de las
-sentencias dictados por los Tribunales en los casos que han
-sido remitidos por el C.I.P.
-e) Llevar un registro fotográfico de todas las personas que han
-sido aprehendidas por la comisión de un delito por funcionarios
-de los cuerpos policiales.
+Artículo 27.- Departamento de Archivo Policial: el Departamento de Archivo Policial tendrá las siguientes funciones:
+a) Mantener un registro de identificación dactilar tanto de nacionales como de extranjeros que efectúen trámites migratorios, de residencia, permisos temporales y solicitudes de pensionados rentistas, matrículas y portación de armas y permisos de seguridad privada.
+b) Banco de huellas: de funcionarios públicos dados de alta en la Fuerza Pública, a quienes soliciten permisos de portación de armas y a quienes sean detenidos por la presunta comisión de un delito.
+c) Llevar un registro de todas las solicitudes de capturas y apremios corporales remitidos por las oficinas que administran justicia.
+d) Llevar un control actualizado de los resultados de las sentencias dictados por los Tribunales en los casos que han sido remitidos por el C.I.F.P.
+e) Llevar un registro fotográfico de todas las personas que han sido aprehendidas por la comisión de un delito por funcionarios de los cuerpos policiales.
+(La Sala Constitucional mediante resolución N° 8218 del 18 de noviembre de 1998, interpretó este artículo en sentido que: “…la información y datos que pueden ser tenidos en los archivos del Centro de Información Policial, relacionados con una persona a la que se le atribuyó la comisión de un hecho delictivo (incisos c) y e), es por un tiempo determinado, máximo de diez años a partir de su anotación, vencido el cual, esa información debe ser cancelada; y la información que se tiene en relación con las sentencias dictadas por los Tribunales de Justicia (inciso d) del artículo 27), el plazo debe ser por el mismo que rige la tenencia de los datos en el Registro de Delincuentes del Organismo de Investigación Judicial, sea diez años a partir del cumplimiento de la condena...”)

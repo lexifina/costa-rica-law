@@ -9,19 +9,18 @@ cuerpo policial, auxiliar en la Administración de Personal,
 atenderá además los asuntos secretariales, de archivo,
 estadística. Preparará el proyecto presupuestario de la Guardia
 de Asistencia Rural.
-b) Delegaciones Policiales. La Delegación Policial son aquellas
-dependencias administrativo-policial, donde se ubican las
-Unidades Policiales, sus oficinas principales, personal,
-detenciones, vehículos y material logístico. En la jurisdicción
-definida como Cantonal o Distrital funcionarán las Delegaciones
-y Subdelegaciones requeridas según las necesidades locales.
+b) Comisarías Policiales. Las Comisarías son aquellas dependencias
+administrativo-policial, donde se ubican las Unidades
+Policiales, sus oficinas principales, personal, detenciones,
+vehículos y material logístico. En la jurisdicción definida
+como Cantonal o Distrital funcionarán las Comisarías y
+Subcomisarías requeridas según las necesidades locales.
 Estarán subordinadas a la Dirección General.
-c) Subdelegación Policial. La Subdelegación Policial es la Unidad
-Policial dependiente de las Delegaciones Policiales, donde se
-ubican los Recursos Humanos, oficinas principales, detenciones,
-vehículos y material logístico su jurisdicción será definida de
-acuerdo a las necesidades de seguridad ciudadana de las
-localidades.
+c) Subcomisaría Policial. La Subcomisaría es la Unidad Policial
+dependiente de las Comisarías, donde se ubican los Recursos
+Humanos, oficinas principales, detenciones, vehículos y
+material logístico su jurisdicción será definida de acuerdo a
+las necesidades de seguridad ciudadana de las localidades.
 Estará a cargo de un Subjefe Policial y un Supervisor Policial,
 quien sustituirá al Subjefe en sus ausencias.
 d) Destacamento Policial. El Destacamento Policial será la unidad
@@ -30,5 +29,7 @@ se conformará para operativos policiales específicos,
 emergencias temporales, o la apertura del servicio de seguridad
 ciudadana requerido en forma ocasional o permanente en una
 comunidad o territorio determinado. El Destacamento Policial
-será un órgano subordinado a la Delegación o Subdelegación
+será un órgano subordinado a la Comisaría o Subcomisaría
 Policial más cercano geográficamente.
+( Así reformado por el artículo 2º del Decreto Nº 24928 de 16 de
+enero de 1996).

@@ -4,7 +4,7 @@ este cuerpo policial:
 a) Ejecutar labores de vigilancia y protección de instalaciones en
 los puestos fronterizos terrestres, marítimos, vías fluviales,
 insular y en las terminales áreas.
-b) tender, dentro su jurisdicción, por denuncia o por iniciativa
+b) Atender, dentro su jurisdicción, por denuncia o por iniciativa
 propia, aquellos actos que pudieren configurar delitos conforme
 al ordenamiento jurídico y coadyuvar con otros organismos del
 Estado en la prevención y represión de delitos.

@@ -26,8 +26,10 @@ h) Coordinar con las otras dependencias policiales del Ministerio
 y de otras instituciones, cuando fuere necesario sobre los
 planes a ejecutar. En especial debe verificar que dicha
 información sea de conocimiento de la Central de Comunicaciones
-de Radio y del Centro de Información Policial (C.I.P.) del
-Ministerio.
+de Radio y del Centro de Información de la Fuerza Pública
+(C.I.F.P.) del Ministerio.
+( Así reformado por el artículo 1º del Decreto Nº 24928 de 16 de
+enero de 1996).
 i) Dictar y fiscalizar las normas sobre la seguridad del personal,
 vehículos y las instalaciones fijas y móviles.
 j) Supervisar porque en la Unidad a su cargo se dé una debida
@@ -42,7 +44,7 @@ en las distintas unidades el servicio tenga cobertura de 24
 horas durante todo el año.
 m) Confeccionar y mantener actualizado el Manual de Procedimientos
 del cuerpo policial.
-n) Emitir la amonestaciones orales o escritas por faltas leves,
+n) Emitir las amonestaciones orales o escritas por faltas leves,
 sin más trámite que concederle previamente audiencia al
 subordinado.
 ñ) Velar porque exista una efectiva comunicación entre las

@@ -1,5 +1,7 @@
-Artículo 23.- De la Dirección General. El C.I.P. constará de una
+Artículo 23.- De la Dirección General. El C.I.F.P. constará de una
 Dirección y un subdirector quienes tendrán las siguientes:
+(Así reformado por el artículo 1º del Decreto Nº 24928 de 16 de
+enero de 1996).
 a) Velar por el fiel cumplimiento de las presentes disposiciones y
 por el buen funcionamiento de todas sus dependencias.
 b) Fijar los lineamientos y las directrices relativas a sus

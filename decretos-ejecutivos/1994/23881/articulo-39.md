@@ -23,10 +23,12 @@ c) La Sección de Operaciones. Será dirigida por un jefe con amplia
 experiencia en materia policial, y estará conformada por una
 Unidad de Inteligencia, una Unidad de Investigaciones
 Financieras, una Unidad de Control de Radio, la Oficialía de
-Guardia, las Delegaciones Regionales y una Supervisión de
-Delegaciones. Además contará con Unidades Técnicas específicas
+Guardia, las Comisarías Regionales y una Supervisión de
+Comisarías. Además contará con Unidades Técnicas específicas
 como la Unidad Canina, la Unidad de Montaña, la Unidad de
 Inteligencia.
+( Así reformado por el artículo 4º del Decreto Nº 24928 de 16 de
+enero de 1996).
 d) El Centro de Información y Archivo: en él estarán los
 expedientes debidamente clasificados relativos a las
 investigaciones realizadas por la Policía de Control de Drogas

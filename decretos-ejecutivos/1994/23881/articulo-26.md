@@ -1,6 +1,6 @@
-Artículo 26.- Departamento Administrativo. El departamento
-administrativo tendrá las funciones siguientes:
-a) Elaborar el presupuesto anual del C.I.P.
+Artículo 26.- Departamento Administrativo. El Departamento
+Administrativo tendrá las funciones siguientes:
+a) Elaborar el presupuesto anual del C.I.F.P.
 b) Establecer y ejercer los mecanismos de control necesarios para
 el buen uso del presupuesto.
 c) Coordinar con la Proveeduría del Ministerio lo referente al
@@ -20,3 +20,5 @@ cualquier incidencia en la relación de servicio (alta,
 vacaciones, méritos, calificaciones, curriculum).
 h) Velar por el buen uso y mantenimiento del equipo automotor
 asignado.
+( Así reformado por el artículo 1º del Decreto Nº 24928 de 16 de
+enero de 1996).

@@ -28,7 +28,7 @@ velará por el cumplimiento del artículo 10 inciso g) de la Ley
 General de Policía.
 g) Auxiliar a las autoridades judiciales y los órganos de Policía
 de Migración, Control Fiscal, Dirección de Inteligencia y
-Seguridad, Ministerio de Salud Recursos Naturales, Energía y
+Seguridad, Ministerio de Salud, Recursos Naturales, Energía y
 Minas y de Agricultura, cuando en cumplimiento de sus funciones
 lo requieran.
 h) Asistir a las autoridades judiciales y administrativas en las

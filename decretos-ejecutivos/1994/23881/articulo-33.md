@@ -23,6 +23,8 @@ responsable de la seguridad de las lnstalaciones
 aeroportuarias, instalaciones de la base aérea, aeronaves,
 equipo y armamento, tomando en consideración que en los
 aeropuertos de tráfico internacional, existirá una
-subdelegación policial y en los aeropuertos de tráfico
+subcomisaría policial y en los aeropuertos de tráfico
 nacional, de acuerdo con su magnitud e importancia estratégica,
 se asignarán los destacamentos policiales necesarios.
+( Así reformado por el artículo 2º del Decreto Nº 24928 de 16 de
+enero de 1996).

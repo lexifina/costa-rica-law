@@ -1,4 +1,4 @@
-Artículo 34.- Son deberes y responsabilidades de la subdelegación a
+Artículo 34.- Son deberes y responsabilidades de la subcomisaría a
 cargo de la seguridad aeroportuaria, las siguientes:
 a) Mantener la tranquilidad y orden público en las instalaciones y
 predios adyacentes de la terminales aéreas.
@@ -22,3 +22,5 @@ g) Establecer los enlaces de comunicación que garanticen la eficaz
 coordinación con las autoridades gubernamentales y civiles y
 otros entes privados, especialmente en situaciones de
 emergencia.
+( Así reformado por el artículo 2º del Decreto Nº 24928 de 16 de
+enero de 1996).
