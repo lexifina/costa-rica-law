@@ -1,8 +1,2 @@
-Artículo 6º.- Adiciónase el artículo 22 de la Ley Orgánica de la
-Procuraduría General de la República, Nº 3848 de 10 de enero de 1967, con
-el siguiente párrafo:
-"Como compensación por la prohibición que contiene el párrafo
-anterior, los funcionarios que desempeñen cargos de Procurador recibirán
-una suma adicional a sus salarios, no menor del 30% del sueldo base que
-para las correspondientes clases de puestos fije la Dirección General de
-Servicio Civil".
+ARTÍCULO 6º.- Adiciónase el artículo 22 de la Ley Orgánica de la Procuraduría General de la República, Nº 3848 de 10 de enero de 1967, con el siguiente párrafo:
+“Como compensación por la prohibición que contiene el párrafo anterior, los funcionarios que desempeñen cargos de Procurador recibirán una suma adicional a sus salarios, no menor del 30% del sueldo base que para las correspondientes clases de puestos fije la Dirección General de Servicio Civil.”
