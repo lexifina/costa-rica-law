@@ -1,0 +1,1 @@
+Artículo 4°—Toda institución pública relacionada con el tramite de visado de planos deberá remitir a la CONARAC a más tardar 3 meses a partir de la publicación del presente decreto, la normativa técnica en materia de construcción y cualquier otra información necesaria para la elaboración del Reglamento de Construcciones.
