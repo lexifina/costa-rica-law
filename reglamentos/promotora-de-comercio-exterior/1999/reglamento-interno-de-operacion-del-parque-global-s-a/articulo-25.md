@@ -1,0 +1,2 @@
+Artículo 25.—De la construcción de edificios u obras complementarias. Con el objeto de mantener la imagen del Parque, toda obra de construcción que se realice en el Parque deberá estar cercada y contar con los controles de entrada y salida de trabajadores, así como equipo y materiales. Igualmente deberán contar con las normas de seguridad ocupacional que garanticen un trabajo con el menor número de accidentes posible.
+El contratista que realice las obras deberá responsabilizarse porque las labores realizadas no dañen o deterioren el ornato y aseo del Parque.

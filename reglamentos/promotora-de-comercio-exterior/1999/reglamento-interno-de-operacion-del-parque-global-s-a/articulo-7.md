@@ -1,0 +1,1 @@
+Artículo 7º—Servicios de control aduanero. Con el propósito de asegurar el cumplimiento de las normas aduaneras aplicables, el Parque cuenta con los servicios de control aduanero establecidos por la Dirección General de Aduanas, quienes trabajan en unión y cooperación con los servicios de vigilancia y seguridad del Parque previstos por la Administración.

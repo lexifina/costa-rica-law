@@ -1,0 +1,1 @@
+Artículo 16.—Del ingreso de vendedores. Salvo autorización expresa por parte de la administración, está prohibido todo tipo de ventas dentro de las instalaciones del Parque o en sus accesos, incluyendo las ventas ambulantes.

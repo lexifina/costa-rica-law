@@ -1,0 +1,1 @@
+Artículo 40.—Ley General de Salud y Regulación Ambiental. En general, todos los aspectos relacionados con la protección del medio ambiente y de la salud de las personas se regirán por las regulaciones contenidas en la Ley General de Salud y en la Declaración Ambiental del Parque.

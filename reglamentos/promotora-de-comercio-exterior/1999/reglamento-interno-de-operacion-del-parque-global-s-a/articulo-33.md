@@ -1,0 +1,1 @@
+Artículo 33.—Acondicionamiento de locales. Las empresas son las responsables de proporcionar a su personal las instalaciones adecuadas para el consumo de alimentos, de acuerdo con las normas establecidas por el Ministerio de Salud y el Ministerio de Trabajo.

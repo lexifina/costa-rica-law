@@ -1,0 +1,2 @@
+Artículo 43.—De la co-responsabilidad de los ejecutivos. Es obligación de los ejecutivos de las empresas, trabajadores o vigilantes, denunciar a la administración del Parque, cualquier anomalía que en este sentido note o detecte, en beneficio de la buena marcha de las empresas, del prestigio de ellas y del Parque, y especialmente del cumplimiento de las normas legales respectivas.
+El presente reglamento fue aprobado por PROCOMER el 2 de diciembre de 1999.

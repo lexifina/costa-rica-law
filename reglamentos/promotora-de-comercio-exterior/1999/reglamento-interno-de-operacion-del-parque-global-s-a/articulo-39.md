@@ -1,0 +1,3 @@
+Artículo 39.—De los desechos de aguas industriales. El Parque cuanta con una planta de tratamiento de aguas residuales, cuyo uso y límites son de cumplimiento obligatorio para todas las empresas. Por ello, se prohibe dar curso libre a las aguas de desecho industrial y en especial en los siguientes casos:
+a) Está prohibido descargar desechos industriales en el alcantarillado sanitario, sin estar previamente tratados. En todo caso, la Administración podrá autorizar tal descarga cuando exista autorización previa del Ministerio de Salud y dentro de los límites que permita su sistema de tratamiento de aguas.
+b) Está prohibida la descarga de las aguas negras, de las aguas servidas y de residuos industriales en el sistema de alcantarillado pluvial.

@@ -1,0 +1,4 @@
+Artículo 19.—Rótulos. Para la colocación de rótulos por parte de las empresas, se deberá contar con la autorización de la administración.
+Los mismos deberán ser de un diseño arquitectónico compatible con el diseño de los edificios que identifican. Los materiales, acabados y colores deben ser coordinados con los del edificio y ubicarse en las áreas que la administración designe para tal efecto. La iluminación a los mismos debe ser de fuentes no destellantes.
+El rótulo estará limitado a indicar el nombre de la empresa y podrá incluir su logotipo e información de producto. El mismo podrá ubicarse en una estructura de concreto ubicada en el suelo. Rótulos colgando de la precinta o sobre postes no están permitidos.
+Se permite la instalación de postes para banderas, siempre y cuando los mismos no excedan de 10 metros de altura y las banderas no deberán exceder de 150 x 300 cm.
