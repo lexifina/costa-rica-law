@@ -14,3 +14,4 @@ Reglamento de Creación de Canon Ambiental por Vertidos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-01 | la propia norma |
+| 2 | 2005-01-01 | Decreto Ejecutivo 31858 (2004-06-02) |
