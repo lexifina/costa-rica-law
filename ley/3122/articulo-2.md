@@ -1,0 +1,1 @@
+Artículo 2°-La exoneración mencionada en el artículo anterior se refiere al vehículo y a los materiales eléctricos descritos en los carteles de las licitaciones números 11 y 13 de la Municipalidad de Turrialba, publicados en “La Gaceta el 16 de enero y el 23 de abril de 1963, respectivamente.
