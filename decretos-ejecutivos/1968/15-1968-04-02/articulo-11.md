@@ -1,0 +1,1 @@
+Artículo 11.-Los Fiscales Específicos deberán informar una vez al mes a la Oficina de Cobros de las gestiones que hubieren realizado en ese término. A dicho informe deberá acompañar las siguientes copias de documentos: demanda, suspensión y terminación de juicios y levantamiento de embargo.

@@ -1,0 +1,1 @@
+Artículo 8°-Una vez recibidas las certificaciones indicadas en el artículo 6°, la Oficina procederá a su distribución entre los Fiscales y los abogados de la Oficina. A los primeros se les entregará equitativamente según el número de cuentas y montos.

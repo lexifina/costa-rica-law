@@ -1,0 +1,2 @@
+Artículo 4°-El Ministerio de Hacienda nombrará a los abogados que integrarán el cuerpo de Fiscales Específicos. Los abogados de la Oficina de Cobros serán nombrados de acuerdo con las disposiciones que establece el Estatuto de Servicio Civil y su remuneración se hará conforme a la Ley de Presupuesto de la República.
+Para efecto de personería en la presentación de demandas y actuación judicial se considera que el Jefe de la Oficina de Cobros y los abogados de esta Dependencia forman parte del cuerpo de abogados de la Oficina.

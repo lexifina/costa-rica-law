@@ -1,0 +1,1 @@
+Artículo 9°-Los Fiscales Específicos no podrán negarse a efectuar el cobro de una cuenta, salvo que se tratare de asuntos contra sí mismo o parientes hasta el tercer grado por consanguinidad o segundo por afinidad o en casos muy calificados a juicio del Jefe de la Oficina.

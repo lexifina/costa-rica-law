@@ -1,0 +1,2 @@
+Artículo 14.-Para ejercer el cargo de Fiscal Específico o de Abogado de la Oficina se requiere además de las condiciones exigidas por la ley, la de estar al día en la presentación de declaraciones y pago de impuestos, tasas o créditos a favor del Gobierno. Los documentos comprobatorios de tal situación quedan a juicio de la Oficina de Cobros.
+Durante los meses de enero y febrero de cada año la Oficina de Cobros de oficio determinará la observancia de lo dispuesto en el párrafo anterior.
