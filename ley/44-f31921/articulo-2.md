@@ -1,0 +1,2 @@
+Art. 2°-Trasládase al Magistrado de 3a instancia, Licenciado Don Rafael Chacón, á la Sala 2a en subrogación del Licenciado Don Vicete Sáenz.
+AL PODER EJECUTIVO. Dado en el Salón de Sesiones.-Palacio Nacional. -San José, á los veinte días del mes de octubre de mil ochocientos ochenta y uno. -BRUNO CARRANZA, Presidente-Luis D. SAENZ, Pro-Secretario. -Por tanto: ejecútese. -Palacio Presidencial. San José, veintidós de octubre de mi ochocientos ochenta y uno; -SALVADOR LARA. -EI Secretario de Estado en el Despacho de Gracia y Justicia MANUEL ARGÜELLO.
