@@ -1,0 +1,1 @@
+Artículo 9°—El Fiscal del Comité designado por el solicitante, recibirá y resolverá las quejas que se presenten no relacionadas a los juzgamientos, el cual deberá entregar un informe por escrito con los aspectos más relevantes o anomalías ocurridas durante la exposición al Fiscal General, a más tardar quince días calendario después de finalizada la exposición.

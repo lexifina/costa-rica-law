@@ -1,0 +1,1 @@
+Artículo 20.—Es deber de todo expositor que sus animales sean presentados en la entrada al recinto de calificación, antes de que concluya la clase anterior. Los animales que no estén presentes en el momento de iniciar el juzgamiento, quedarán excluidos de la competencia.

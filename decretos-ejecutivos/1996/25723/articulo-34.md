@@ -1,0 +1,1 @@
+Artículo 34.—Se deroga el Decreto Ejecutivo N° 21458 M.A.G. del julio de 1992, publicado en “La Gaceta” N° 159 del 19 de agosto del 10 año y el Decreto Ejecutivo N° 22525 M.A.G. del 2 de setiembre de 1993 , publicado en “La Gaceta” N° 188 del 1 de octubre del mismo año.

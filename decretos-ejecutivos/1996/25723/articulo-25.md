@@ -1,0 +1,2 @@
+Artículo 25.—La declaratoria oficia) para los premios, la hará el Comité Organizador, la cual deberá ser avalada por la asociación respectiva, contando con la autorización previa del Fiscal de Raza. La declaratoria oficial será entregada al Comité Organizador como máximo las doce horas del día siguiente de finalizado el juzgamiento.
+Una vez hecha la declaratoria, el Comité Organizador procederá a’ entrega de los premios, a excepción de las cintas, las cuales se entregarán al finalizar el juzgamiento de cada clase.

@@ -1,0 +1,1 @@
+Artículo 22.—Queda terminantemente prohibida la entrada al recinto de calificación a toda persona ajena al personal de juzgamiento, excepto a los conductores de los animales en competencia. El Comité Organizador será el encargado del cumplimiento de dicha disposición y será fiscalizado por el Fiscal de Raza.
