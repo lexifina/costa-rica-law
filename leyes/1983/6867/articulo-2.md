@@ -1,8 +1,7 @@
 Artículo 2º.- Invenciones patentables.
 1. Una invención es patentable si es nueva, si tienen nivel inventivo y si
 es susceptible de aplicación industrial.
-2. Una invención no es patentable cuando sea objeto de litigio en el país
-de origen de la patente, aunque la misma haya sido patentada en otro país.
+2. DEROGADO por el artículo 4 de la Ley N° 7979 de 6 de enero del 2000.
 3. Una invención es nueva cuando no existe previamente en el estado
 de la técnica. El estado de la técnica comprenderá todo lo divulgado o
 hecho accesible al público en cualquier lugar del mundo y por cualquier
