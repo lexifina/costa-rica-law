@@ -1,0 +1,1 @@
+Art 2° Serán Juzgados como reos de alta traición a la patria, los que directa o indirectamente se pongan en relación con los perturbadores del orden, los que les concede auxilios o los que lo nieguen a las fuerzas y ajentes de Gobierno.
