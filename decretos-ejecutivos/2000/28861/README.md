@@ -14,3 +14,4 @@ Reglamento de Registro y Control de Medicamentos Veterinarios
 | --- | --- | --- |
 | 1 | 2000-08-23 | la propia norma |
 | 2 | 2001-07-26 | Decreto Ejecutivo 29762 (2001-07-26) |
+| 3 | 2001-09-20 | Decreto Ejecutivo 29830 (2001-09-20) |
