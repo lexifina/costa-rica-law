@@ -1,0 +1,1 @@
+Artículo 11.—En caso de capacitación financiada por proyectos o programas especiales, en los cuales las facilidades corran por cuenta, tanto del I.C.T. como de otras Instituciones, deberá también ser de conocimiento de la Comisión, para la respectiva evaluación y seguimiento.

@@ -1,0 +1,1 @@
+Artículo 31.—El beneficiario de la beca o curso de preparación complementaria en el exterior deberá notificar al Área de Personal, el día, hora y ruta de su viaje y a su regreso, rendir informe sobre los resultados obtenidos en el curso.

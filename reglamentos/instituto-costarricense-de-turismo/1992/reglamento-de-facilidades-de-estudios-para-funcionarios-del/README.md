@@ -1,0 +1,16 @@
+# Reglamento (1992-12-09)
+
+Reglamento de facilidades de Estudios para Funcionarios del Instituto Costarricense de Turismo
+
+- Tipo: Reglamento
+- Número: 4320
+- Fecha: 1992-12-09
+- Ente emisor: Instituto Costarricense de Turismo
+- Publicación: La Gaceta N° 238 del 1999-12-08
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52681&param2=57234&param3=1 (ficha 52681)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1992-12-09 | la propia norma |

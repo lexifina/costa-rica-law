@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión convocará a concurso mediante comunicación indicando características de la beca, los requisitos, dónde presentar las solicitudes, fecha y hora de cierre de recepción de documentos y todo otro dato que juzgue de importancia.
