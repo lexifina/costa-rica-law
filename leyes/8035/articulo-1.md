@@ -1,0 +1,6 @@
+Nº 8035
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL ESTADO PARA QUE DONE UNA PROPIEDAD A LA ASOCIACIÓN CENTRO DE REHABILITACIÓN PARA EL ADICTO (ACERPA)
+Artículo 1º—Autorízase al Estado, cédula jurídica 2-000-045522, para que segregue, de su propiedad inscrita en el Registro Público, partido de Cartago, folio real matrícula 83.603-000, el lote correspondiente al plano catastrado SJ 521057-98, libre de gravámenes hipotecarios y anotaciones y lo done a la Asociación Centro de Rehabilitación para el Adicto (ACERPA), cédula jurídica 3-002-148312. El inmueble se describe así: terreno para construir con trece edificaciones y un tanque para almacenar agua; mide 44.594,98 m2, sito en el distrito 8º Río Azul, cantón III, La Unión, provincia de Cartago; linda al norte con resto reservado, al sur con calle pública, al este con calle pública y resto reservado, y al oeste con resto reservado.
+El resto reservado se describe así: sito igual que el lote segregado, es terreno construido, linda al norte con río Tiribí, Instituto Nacional de Vivienda y Urbanismo (INVU) lote uno e INVU; al sur con lote segregado, calle pública, INVU y otros, al este con lote segregado, INVU, río Tiribí, calle y otros, y al oeste con río Tiribí, calle y otros; mide 890.737,97 m2.
