@@ -1,1 +1,2 @@
-Artículo 47.-La Junta señalará definitivamente la cantidad de billetes que haya de emitirse en cada sorteo, sin que pueda posteriormente variar la emisión del mismo; fijará el valor de cada billete y ordenará su venta por numeración corrida, sin que pueda reservar o reservarse número o billetes.
+Artículo -47.-La Junta, al aprobar un plan de loterías, señalará la cantidad de billetes que haya de emitirse para cada sorteo y el valor de cada billete. Si posteriormente decide modificar la emisión deberá anunciarlo por "La Gaceta" y por otros medios de publicidad con no menos de treinta días de anticipación a la fecha en que se ponga la emisión modificada a la venta.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 7 del 26 de marzo de 1956)
