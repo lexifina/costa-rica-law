@@ -1,7 +1,4 @@
-ARTICULO 3.- Ajuste de montos
-En el tanto en que los montos por concepto de cotizaciones sean
-menores que los egresos derivados del pago de beneficios, el Ministerio de
-Hacienda ajustará los montos actuales de pensión de todos los regímenes de
-pensiones con cargo al presupuesto nacional, para que equivalgan, como
-máximo, al ingreso de un diputado, entendiéndose por ese concepto las
-dietas y gastos de representación.
+ARTÍCULO 3.- Ajuste de montos
+En el tanto los ingresos por concepto de cotizaciones estatales, obreras y patronales sean menores que los egresos derivados del pago de los beneficios, se establece como tope máximo la suma resultante de diez veces el salario base más bajo pagado en la Administración Pública, según el índice de salarios emitido por la Dirección General del Servicio Civil. El Ministerio de Hacienda, en coordinación con la Dirección General de Pensiones del Ministerio de Trabajo y Seguridad Social, será el responsable de aplicar el tope máximo aquí fijado a los montos actuales de pensión de todos los regímenes contributivos de pensiones con cargo al presupuesto nacional.
+(Así reformado por el artículo 2º, inciso a), de la ley No.7858 de 22 de diciembre de 1998)
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 019485 del 21 de noviembre de 2018, se interpretó este numeral, en el sentido de que no resultan contrarias al principio de irretroactividad, si sus efectos son aplicables únicamente a aquellas personas que hubieran obtenido el derecho a la pensión o jubilación CON POSTERIORIDAD a la entrada en vigencia de la citada ley 7858.)
