@@ -14,3 +14,4 @@ Estatutos de la Orden Nacional Juan Mora Fernández
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-07-01 | la propia norma |
+| 2 | 2004-04-20 | Decreto Ejecutivo 31749 (2004-04-20) |
