@@ -1,0 +1,1 @@
+Artículo 2°—Que los órganos o entes contemplados en el inciso a) del artículo 1 de la Ley No 8131 que a la fecha no hayan creado su Proveeduría Institucional, deberán crearla antes del 1 de julio del 2002.

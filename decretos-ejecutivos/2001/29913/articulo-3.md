@@ -1,0 +1,1 @@
+Artículo 3°—Que todas las Proveedurías Institucionales que hayan sido creadas con anterioridad a la promulgación de la Ley No 8131 o dentro del plazo que por este Decreto se les otorga deberán encontrarse al 1 de julio del 2002 en ejercicio de las funciones que legalmente les han sido encomendadas,
