@@ -1,0 +1,4 @@
+Artículo 10.- Declárase de nivel prioritario nacional el cumplimiento
+de esta ley; a este efecto todos los organismos del Estado, abocados a
+programas de desarrollo, prestarán su cooperación, coordinados con la
+CONAI.
