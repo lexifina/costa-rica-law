@@ -1,0 +1,1 @@
+Artículo 4º—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión se le solicita notificarlo a la Dirección Sectorial de Energía aportando, de ser posible, la información pertinente para hacer las investigaciones correspondientes.
