@@ -1,0 +1,4 @@
+CAPITULO TERCERO
+Disposiciones relativas á las escrituras de hipoteca voluntaria.
+Artículo 25.-No se otorgará ninguna escritura de hipoteca, sin fijar en ella la cantidad de que ha de responder la finca ó derecho hipotecado. Cuando no sea cantidad cierta ó líquida entre los otorgantes, la que se trate de garantizar, el Cartulario les prevendrá que la fijen aproximadamente, advirtiéndoles que la que señalen será la única de que responderá la finca con perjuicio de tercero, si bien quedando á salvo en todo caso, la accion personal contra el deudor.
+Los dispuesto en el párrafo anterior no tendrá lugar cuando la escritura tenga por objeto asegurar un crédito refaccionario no líquido y que dé solo derecho á una anotacion preventiva, en cuyo caso se observará lo prevenido en el artículo 44 de la ley hipotecaria.

@@ -1,0 +1,1 @@
+Artículo 54.-Cuando los bienes que se enajenen ó graven sean propios del marido y estén hipotecados á la seguridad de la dote, se declarará en la escritura, que queda subsistente dicha hipoteca dotal, con la prelación correspondiente á su fecha.

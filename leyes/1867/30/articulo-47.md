@@ -1,0 +1,1 @@
+Artículo 47.-En toda escritura en que se constituya dote inestimada en bienes inmuebles ó semovientes se hará constar el precio de estos, espresándose que su estimacion no causa venta, ni tiene mas objeto que fijar la cantidad, cuya devolucion en su caso, deberá garantizarse con hipoteca.

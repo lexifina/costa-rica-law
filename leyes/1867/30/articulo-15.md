@@ -1,0 +1,1 @@
+Artículo 15.-En las escrituras de actos ó contratos que deban inscribirse y en que no medie precio, procurarán los Cartularios hacer constar el de los inmuebles y derechos reales á que se refieran, exijiendo de los otorgantes que manifiesten su valor, bien por documentos que lo acrediten y obren en su poder, ó bien por declaracion de los mismos otorgantes, á su eleccion.

@@ -1,0 +1,1 @@
+Artículo 37.-Los poderes para hipotecar podrán darse bien con limitacion á una finca determinada, ó bien para todas las que posea el poderdante, y en uno y en otro caso, con las demas condiciones que tenga á bien señalar el propietario. El apoderado, de este último modo, estará facultado para hipotecar cualquiera de las que pertenezcan al poderdante.

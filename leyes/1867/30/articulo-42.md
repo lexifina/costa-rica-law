@@ -1,0 +1,2 @@
+Artículo 42.-Otorgada la escritura de cesion del crédito hipotecario, estenderá y firmará el Cartulario una cédula en la cual certificará la celebración de dicho contrato, su fecha, el nombre, apellido, estado profesion y domicilio del cesionario, y el importe del crédito ó de la parte cedida del mismo.
+El Cartulario entregará ó hará entregar dicha cédula al deudor, en la forma prescrita en los artículos 143, 144 y 145 del Código de procedimientos.

@@ -1,0 +1,1 @@
+Artículo 18.-Las sociedades y establecimientos públicos se designarán por los nombres con que fueren conocidos, su razon social ó el nombre de los directores, administradores ó personas competentemente autorizadas para representarlos ó llevar su firma y por su domicilio.

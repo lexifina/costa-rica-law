@@ -1,0 +1,1 @@
+Artículo 45.-No se otorgará ninguna escritura de hipoteca legal, sin que la ofrecida e tal concepto resulte calificada y admitida, por la persona que respectivamente tenga la obligacion ó el derecho de hacerlo, segun los casos, con arreglo á lo prevenido en la seccion 3ª del título 5º de la ley hipotecaria.

@@ -1,0 +1,2 @@
+Art. 3º.-En todos los instrumentos públicos que otorguen desde el dia en que empiece á rejir la ley hipotecaria, relativos á bienes inmuebles ó derechos reales, sujetos á inscripcion, se hará mención espresa de hallarse estos inscritos, y del rejistro en que lo estuvieren.
+Si la inscripcion se hubiere verificado en los antiguos rejistros se hará la indicada referencia en cuanto sea conforme al sistema en que se han llevado. Si se hubiere hecho en en nuevo rejistro, se espesará el número con que, en el mismo estuviere señalada la finca, y el de su última inscripcion.

@@ -1,0 +1,5 @@
+Artículo 24.-El instrumento publico en cuya virtud deba cancelarse alguna inscripcion ó anotacion preventiva, expresará todas las circunstancias necesarias para que la cancelacion pueda contener las señaladas en el artículo 76 de la ley hipotecaria. En su consecuencia dará claramente á conocer:
+1º.-El derecho total ó parcialmente estinguido.
+2º.-El nombre, estado, edad, profesion y domicilio de la persona á cuya instancia se haga la cancelacion, o cuyo consentimiento sea necesario para hacerla válidamente.
+3º.-La representacion legal con que obra la persona á cuya instancia, ó con cuyo consentimiento se haga la cancelacion, si fuere distinta de aquella á cuyo favor estuviere hecha la inscripcion que deba cancelarse.
+4º.-Si la cancelacion fuere parcial, la parte del inmueble inscrito que haya desaparecido y la que quede subsistente; determinandose sus nuevos linderos, ó bien en su caso, la parte de la obligación estinguida y la que subsista, espresando siempre la causa de la reduccion del derecho.

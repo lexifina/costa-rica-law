@@ -1,0 +1,1 @@
+Artículo 35.-Todo el que tenga á su favor una hipoteca voluntaria, podrá á su vez hipotecar este derecho á la seguridad de otra obligacion, pero se declarará en la escritura, que esta segunda hipoteca queda pendiente de la resolucion de la primera.

@@ -1,0 +1,2 @@
+Artículo 58.-Todo instrumento público, en cuya virtud adquiera un hijo de familia bienes que han de constituir su peculio, espresará necesariamente esta circunstancia, así como la clase de peculio á que correspondan, y la de quedar enterados los otorgantes de la obligacion de inscribir con dicha calidad, los bienes inmuebles, y de asegurar el padre los demas, con la hipoteca correspondiente.
+Si los bienes pertenecieren á peculio, cuya administración no corresponda al padre, se omitirá la claúsula relativa á la obligacion de hipotecar.

@@ -1,0 +1,2 @@
+Art. 4º.-En todo instrumento público sujeto á rejistro, ya sea escritura pública, ó ya testimonio de sentencia, harán mencion los cartularios de los dispuesto en el art. 348 de la ley hipotecaria y 277 del Reglamento jeneral para su ejecucion.
+En la misma claúsula se declarará, que el acto ó contrato celebrado no podrá oponerse ni perjudicar á tercero, sinó desde la fecha de su inscripción en el Rejistro.

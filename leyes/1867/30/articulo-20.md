@@ -1,0 +1,1 @@
+Artículo 20 -Los Cartularios harán constar en toda escritura la capacidad legal de los otorgantes para celebrar el acto ó contrato á que se refieran, espresando las circunstancias que segun los casos, determinen dicha capacidad.

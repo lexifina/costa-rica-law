@@ -1,0 +1,1 @@
+Artículo 61.-El Cartulario que autorice escritura de esponsales, de carta dotal, ó de capitulaciones matrimoniales de cualquier viuda, tutora ó curadora de sus hijas, dará parte por escrito, del acto, dentro de los tres dias siguientes al de su celebracion, al juez que haya discernido el cargo á dicha tutora ó curadora.

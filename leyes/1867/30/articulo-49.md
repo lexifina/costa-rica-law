@@ -1,0 +1,1 @@
+Artículo 49.-Cuando se ofrecieren á la vez arras y donaciones esponsalicias, se espresará en la escritura el derecho de la mujer á optar porque se aseguren con hipoteca unas ú otras, en el término de veinte dias, y la condición de que, trascurrido dicho término, sin que la mujer haga uso de su derecho, ha de tener la opcion el marido.
