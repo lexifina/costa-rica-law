@@ -1,0 +1,1 @@
+Art. 5°-Si la venta de billetes de Aduana no produjere en un trimestre dado el cupo de (125,000- 00) ciento veinticinco mil pesos, el Gobierno lo completará, siempre que la diferencia no exceda del sobrante aplicado en el trimestre ó trimestres precedentes á la amortización de los billetes de la "Emisión de Guerra".
