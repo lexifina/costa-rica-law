@@ -14,3 +14,4 @@ Reglamento de establecimientos privados de enseñanza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1957-02-01 | la propia norma |
+| 2 | 1958-02-15 | Decreto Ejecutivo 2 (1958-02-15) |
