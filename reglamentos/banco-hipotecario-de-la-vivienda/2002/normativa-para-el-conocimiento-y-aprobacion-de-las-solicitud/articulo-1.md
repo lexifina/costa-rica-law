@@ -18,4 +18,5 @@ CON FUNDAMENTO EN EL ARTÍCULO
 59 DE LA LEY DEL SISTEMA
 FINANCIERO NACIONAL
 PARA LA VIVIENDA
-Artículo 1º—Competencia. Corresponde exclusivamente a la Junta Directiva del BANHVI conocer y aprobar o rechazar toda solicitud de subsidio extraordinario que se gestione al amparo del artículo 59 de la LSFNV. Para tal efecto, la Junta Directiva se fundamentará en la recomendación que emita la Comisión Especial que se crea en el artículo siguiente.
+Artículo 1º—Competencia. Corresponde exclusivamente a la Junta Directiva del BANHVI aprobar o rechazar toda solicitud de subsidio extraordinario que se gestione al amparo del artículo 59 de la LSFNV. Para tal efecto, la Junta Directiva se fundamentará en la recomendación técnica que para cada caso emita la Gerencia General del Banco.
+(Reformado por acuerdo de Junta Directiva, tomado en Sesión Nº 82 de 12 de diciembre de 2002.)
