@@ -1,0 +1,1 @@
+Transitorio: Es entendido que el aumento de ¢ 1.300 otorgado a los empleados públicos en enero de 1982 queda como sobresueldo para todas las categorías, y no será considerado para los efectos de lo que señala el artículo 15.

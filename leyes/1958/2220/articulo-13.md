@@ -1,4 +1,1 @@
-Artículo 13.- El Estado podrá subvencionar a los concesionarios
-cuando el interés público lo exija, y particularmente en los casos en que
-al establecerse una nueva línea, el escaso movimiento que tenga al
-principio no permita cubrir el costo de operación.
+Artículo 13.- El Estado podrá subvencionar a los concesionarios cuando el interés público lo exija, y particularmente en los casos en que al establecerse una nueva línea, el escaso movimiento que tenga al principio no permita cubrir el costo de operación.

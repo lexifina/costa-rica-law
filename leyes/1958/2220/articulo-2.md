@@ -1,3 +1,1 @@
-Artículo 2º.- El tráfico de cabotaje es el objeto de la presente ley
-y para los efectos de la misma se reputa como tal el efectuado entre dos
-puertos nacionales, costaneros o fluviales, de un mismo litoral.
+Artículo 2º.- El tráfico de cabotaje es el objeto de la presente ley y para los efectos de la misma se reputa como tal el efectuado entre dos puertos nacionales, costaneros o fluviales, de un mismo litoral.
