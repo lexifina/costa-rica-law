@@ -14,3 +14,4 @@ Reforma Reglamento de la Junta Médica Calificadora de la Incapacidad para el Tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-01 | la propia norma |
+| 2 | 2000-05-03 | Decreto Ejecutivo 28662 (2000-05-03) |
