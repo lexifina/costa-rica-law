@@ -1,7 +1,1 @@
-Artículo 14.- Una vez designados los siete miembros de la Junta
-Directiva, éstos procederán en su primera sesión a elegir un Presidente,
-un Vicepresidente, un Secretario, un Tesorero, un Fiscal y dos Vocales,
-señalando a la vez fecha y hora para las sesiones ordinarias. Asimismo,
-en esta primera sesión deberá nombrarse un Director Ejecutivo quien podrá
-ser miembro o no de la Junta directiva y tendrá las funciones que ésta le
-encomiende.
+Artículo 14.- Una vez designados los siete miembros de la Junta Directiva, éstos procederán en su primera sesión a elegir un Presidente, un Vicepresidente, un Secretario, un Tesorero, un Fiscal y dos Vocales, señalando a la vez fecha y hora para las sesiones ordinarias. Asimismo, en esta primera sesión deberá nombrarse un Director Ejecutivo quien podrá ser miembro o no de la Junta directiva y tendrá las funciones que ésta le encomiende.

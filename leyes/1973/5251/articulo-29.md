@@ -1,4 +1,1 @@
-Artículo 29.- Deróganse los decretos Ejecutivos Nos. 45 de 3 de
-diciembre de 1945, 34 de 15 de noviembre de 1956 y 34 de 17 de octubre de
-1968, así como el Decreto-Ley Nº 346 de 14 de enero de 1949 y la ley Nº
-4732 de 10 de marzo de 1971.
+Artículo 29.- Deróganse los decretos Ejecutivos Nos. 45 de 3 de diciembre de 1945, 34 de 15 de noviembre de 1956 y 34 de 17 de octubre de 1968, así como el Decreto-Ley Nº 346 de 14 de enero de 1949 y la ley Nº 4732 de 10 de marzo de 1971.

@@ -1,4 +1,1 @@
-Artículo 9º.- Para los efectos del inciso b) del artículo 8º, se
-faculta al Estado, a las instituciones autónomas o semiautónomas del país
-para prestar ayuda de cualquier índole a la Comisión Nacional de Asuntos
-Indígenas.
+Artículo 9º.- Para los efectos del inciso b) del artículo 8º, se faculta al Estado, a las instituciones autónomas o semiautónomas del país para prestar ayuda de cualquier índole a la Comisión Nacional de Asuntos Indígenas.
