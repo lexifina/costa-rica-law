@@ -1,0 +1,1 @@
+Artículo 19-La demarcatoria de la zona pública por parte del IGN no es indispensable para otorgar un permiso de ocupación" o uso, pero antes de otorgarlo la Municipalidad debe asegurarse de que el cálculo para establecer el límite de la zona pública sea hecho por alguien competente, preferiblemente un profesional en la materia.

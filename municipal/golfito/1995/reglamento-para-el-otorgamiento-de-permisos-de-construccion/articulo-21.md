@@ -1,0 +1,1 @@
+Artículo 21-EI canon por ocupación debe ser cancelado por anualidades adelantadas salvo que para casos específicos la Municipalidad determine otro plazo, y regirá a partir de la fecha en que quede firme la autorización que apruebe la solicitud.

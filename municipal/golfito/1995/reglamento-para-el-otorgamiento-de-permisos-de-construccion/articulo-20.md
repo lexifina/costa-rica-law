@@ -1,0 +1,1 @@
+Artículo 20-Para otorgar un permiso de ocupación o uso debe disponerse de un avalúo del terreno hecho por la Dirección General de Tributación Directa, Ministerio de Hacienda, que permita calcular el canon que pagará el permisionario de conformidad con lo establecido en el Transitorio VII de la Ley.

@@ -1,0 +1,1 @@
+Artículo 8°-El carácter de los permisos de ocupación o uso es temporal y precario puesto que se otorgan ante la imposibilidad de conceder concesiones por no existir un plan regulador determinado. En todo caso el plazo de vigencia será establecido por la Municipalidad de Golfito en este reglamento o de acuerdo al interés público debidamente motivado.

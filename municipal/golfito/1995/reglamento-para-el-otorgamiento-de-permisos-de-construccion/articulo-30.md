@@ -1,0 +1,1 @@
+Artículo 30-En los casos en donde se soliciten permisos de construcción y el sector cuente con la declaratoria de aptitud turística, los mismos requerirán de la autorización del JCT, del INVU, de la Oficina de Planificación y de la Municipalidad de Golfito.

@@ -1,0 +1,1 @@
+Artículo 14-Dado que los permisos de ocupación o uso no configuran ningún derecho subjetivo se otorgan a título muy personal y no se permite traspasarlo, este carácter personalísimo impide automáticamente que alguien pueda disfrutar de más de un permiso a la vez.

@@ -1,0 +1,1 @@
+Artículo 15-Si por cualquier razón un permisionario no puede seguir ejerciendo la ocupación que esta Municipalidad autorizó debe comunicarlo para que la institución decida el destino que considere conveniente a la parcela en cuestión.

@@ -1,0 +1,1 @@
+Artículo 32-EI permisionario tiene la facultad de renunciar a la ocupación que ejerce sobre un terreno otorgado por la Municipalidad, ya sea en forma expresa o tácita. Si lo ejecuta mediante el abandono de la parcela sin informar de su decisión a la Municipalidad de Golfito, queda inhabilitado para recibir un nuevo permiso de ocupación o uso.

@@ -1,0 +1,1 @@
+Artículo 13-Dado que este reglamento no pretende ir más allá de la Ley, las áreas y dimensiones de los permisos de ocupación y uso que se otorguen no deben exceder lo establecido para ello en la Ley 6043.

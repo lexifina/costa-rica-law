@@ -1,0 +1,2 @@
+Sobre los procedimientos
+Artículo 16-Los permisos de ocupación o uso se otorgarán directamente a los solicitantes que hagan sus gestiones personalmente ante la Municipalidad, por ello todo interesado deberá identificarse presentando su cédula de identidad y una fotocopia de la misma. Cuando se solicita una concesión y hasta tanto se pueda resolver en definitiva, la Municipalidad equipara dicha solicitud con una de un permiso de ocupación o uso si el interesado está de acuerdo y expresamente lo manifiesta.

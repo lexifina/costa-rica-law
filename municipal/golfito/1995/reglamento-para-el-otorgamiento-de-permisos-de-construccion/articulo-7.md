@@ -1,0 +1,2 @@
+Sobre la naturaleza de los permisos
+Artículo 7°-Esta Municipalidad entiende por permiso de ocupación o uso en lá zdna marítimo terrestre un bien de dominio público ocupado temporalmente y en forma precaria por alguien que lo ha solicitado, a lo que la Municipalidad de Golfito puede acceder bajo los términos contemplados en este reglamento de manera unilateral. Por su misma definición tal permiso no otorga ningún derecho a favor de su titular.
