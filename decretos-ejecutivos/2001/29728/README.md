@@ -14,3 +14,4 @@ Cesa miembros del Consejo Superior de Trabajo y nombra nuevos integrantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-15 | la propia norma |
+| 2 | 2003-05-14 | Decreto Ejecutivo 31184 (2003-05-14) |
