@@ -1,1 +1,0 @@
-Artículo 17.- Con el propósito de aplicar racionalmente los recursos económicos a que se refiere el artículo anterior, después de cinco años de regir esta ley, y cada vez que se haga necesario por medio de reforma a ella, podrá cambiarse el programa de aplicación de esos fondos, en los diversos niveles de adiestramiento que existan en el país.
