@@ -1,0 +1,1 @@
+Artículo 4°—La información debe ser remitida por los interesados a la Secretaría de la Comisión Nacional de División Territorial Administrativa, con sede en el Instituto Geográfico Nacional, Ministerio de Obras Públicas y Transportes.
