@@ -1,4 +1,1 @@
-Artículo 45.- La Comisión se reunirá ordinariamente cada tres meses y
-extraordinariamente cuando fuere convocada al efecto por el Ministro de
-Relaciones Exteriores. Sus decisiones se tomarán por mayoría absoluta de
-los votos presentes en cada reunión.
+Artículo 45.- La Comisión se reunirá ordinariamente cada tres meses y extraordinariamente cuando fuere convocada al efecto por el Ministro de Relaciones Exteriores. Sus decisiones se tomarán por mayoría absoluta de los votos presentes en cada reunión.
