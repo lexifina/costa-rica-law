@@ -14,3 +14,4 @@ Reglamento Interior del Colegio de Abogados
 | --- | --- | --- |
 | 1 | 1942-07-17 | la propia norma |
 | 2 | 1952-11-03 | Decreto Ejecutivo 8 (1952-11-03) |
+| 3 | 1957-11-09 | Decreto Ejecutivo 1 (1957-11-09) |
