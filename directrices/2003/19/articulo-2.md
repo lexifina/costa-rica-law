@@ -1,0 +1,4 @@
+Artículo 2º—Población objetivo. El perfil de las familias que el MIVAH desea impulsar en el desarrollo de proyectos habitacionales es la siguiente:
+- Preferiblemente familias con ingresos menores al correspondiente al estrato 1.5 (monto máximo de 1.5 salarios mínimos). Sin embargo, se considera importante que dentro de los proyectos se propicie la integración social, por medio de la participación de familias de diversos estratos socioeconómicos en un mismo proyecto.
+- Otro elemento que favorece la integración social es la incorporación de familias que poseen miembros con discapacidad o de la tercera edad, así como las familias jefeadas por una sola persona.
+- Las familias potenciales beneficiarias de proyectos de vivienda deberán ser preferiblemente habitantes de las zonas circundantes, con el fin de mantener, en la medida de lo posible, las redes sociales y económicas ya construidas y evitar el desarraigo.
