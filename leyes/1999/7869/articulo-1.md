@@ -1,6 +1,8 @@
 APROBACIÓN DEL ACUERDO PARA LA PROMOCIÓN
 Y PROTECCIÓN RECÍPROCA DE INVERSIONES
 ENTRE LA REPÚBLICA DE COSTA RICA Y EL REINO DE ESPAÑA
+(Ratificado por la República de Costa Rica, mediante Decreto Ejecutivo N° 29073
+de 15 de mayo del 2000)
 ARTÍCULO ÚNICO.- Apruébase, en cada una de sus partes, el Acuerdo
 para la Promoción y Protección Recíproca de Inversión entre la República
 de Costa Rica y el Reino de España, suscrito el 8 de julio de 1997. El
