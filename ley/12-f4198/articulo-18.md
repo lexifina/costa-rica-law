@@ -1,0 +1,1 @@
+Art. 18.-El que destazare una res sin satisfacer el impuesto de Subvención, será castigado, por cada falta, con la pena que señala el artículo 9 del decreto del 20 de octubre de 1856, no pudiendo, después de la tercera falta, obtener la licencia de que habla el artículo anterior.

@@ -1,0 +1,1 @@
+Art. 2°-Toda autoridad de policía esta en el deber de dar al Inspector General de Hacienda, todos los informes que pida y los auxilios que requiera, para la persecución de los delitos de que cometan en el ramo, y de imponer ó hacer que se impongan al culpable, las penas y correcciones á que trata el presente decreto.

@@ -1,0 +1,1 @@
+Art. 3°-Todos los Inspectores de matanza Jueces de galera, lo mismo que los Jueces de paz Comisarios encargados de matanzas, son subalternos del Inspector General de Hacienda, y cumplirán estrictamente las órdenes que de él reciban, en todo lo concerniente al ramo de Subvención.
