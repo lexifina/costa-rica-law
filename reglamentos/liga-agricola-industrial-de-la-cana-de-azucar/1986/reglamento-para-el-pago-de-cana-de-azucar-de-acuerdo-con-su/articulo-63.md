@@ -1,0 +1,2 @@
+Artículo 63.-De la entrega de caña que se quiera analizar, el inspector del Departamento Técnico tomará según su mejor criterio una muestra representativa de la entrega, a la cual le quitará la materia extraña. Posteriormente le aplicará a la muestra limpia el método de la prensa comprendido en el Sistema de Compra de la Caña por Calidad, con la finalidad de determinar el peso de la torta residual.
+(Así adicionado mediante sesión N° 017 del 19 de enero de 1999).

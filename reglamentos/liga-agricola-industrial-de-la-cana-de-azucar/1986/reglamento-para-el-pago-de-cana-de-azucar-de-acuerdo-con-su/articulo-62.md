@@ -1,0 +1,2 @@
+Artículo 62.-Cuando un productor, el ingenio o el inspector del Departamento Técnico de la Liga, en aquellos ingenios que no utilicen la cala mecánica para la obtención de la muestra de caña, considere que una determinada entrega de caña, sea propia o comprada, contiene una cantidad excesiva de materia extraña, se procederá a cuantificarla, conforme a lo dispuesto en los artículos 63, 64, 65 y 66 de este reglamento.
+(Así adicionado mediante sesión N° 017 del 19 de enero de 1999).

@@ -1,0 +1,2 @@
+Artículo 65.-EI peso de la torta residual obtenida aplicando lo señalado en el artículo anterior, se confrontará con el peso de la torta residual obtenida mediante el proceso regulado por el artículo N° 63, con el objeto de establecer la diferencia en los respectivos pesos, y aplicar, si procede, la sanción correspondiente a la materia extraña, la cual se regula en el artículo siguiente.
+(Así adicionado mediante sesión N° 017 del 19 de enero de 1999).
