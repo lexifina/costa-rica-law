@@ -1,0 +1,4 @@
+Artículo 7°-Dentro de las previsiones del artículo sexto precedente la Dirección General podrá autorizar a conductores remunerados para conducir estos vehículos, siempre y cuando se cumpla con los siguientes requisitos:
+a) El conductor remunerado debe estar asegurado ante la Caja con el salario mínimo que para el desempeño de este oficio establezca el Ministerio de Trabajo;
+b) Debe existir una verdadera relación obrero- patronal entre el conductor y el beneficiario, situación que será comprobada y certificada por el Departamento de Inspección de la Caja; y
+c) En el estudio precitado deberá comprobarse, como requisito Indispensable para el otorgamiento del permiso, que la principal fuente de ingreses económicos del conductor remunerado proviene de esa misma actividad, es decir, que su principal fuente de ingresos es el salario que recibe por conducir automóviles y que no es familiar del beneficiario.

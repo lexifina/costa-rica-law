@@ -1,0 +1,1 @@
+Artículo 5°-El vehículo adquirido al amparo del presente régimen circulará con placas de registro especiales, las que tendrán como distintivo las siglas "L. F. P." y llevaran colores diferentes a las placas convencionales.

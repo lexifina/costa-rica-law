@@ -1,0 +1,1 @@
+Artículo 21.-La Dirección General podrá en cualquier tiempo, tanto en las vías públicas como en los domicilios de los interesados, comprobar el uso que se dé a los vehículos exonerados y para ello podrá contar con la colaboración de las autoridades de tránsito y demás cuerpos policiales del país.

@@ -1,0 +1,1 @@
+Artículo 20.-La Dirección General podrá solicitar al Departamento de Medicina Legal del Organismo de Investigación Judicial, un análisis de los casos que a su juicio presenten dudas, con el objeto de desentrañar eventuales intentos de defraudación fiscal.

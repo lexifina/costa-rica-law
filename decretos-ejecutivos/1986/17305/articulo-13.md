@@ -1,0 +1,1 @@
+Artículo 13.-Las notas de exoneración deberán ser retiradas por el interesado directamente o bien, por medio de apoderado especial, el que deberá demostrar tal condición en forma idónea ante la Dirección General.

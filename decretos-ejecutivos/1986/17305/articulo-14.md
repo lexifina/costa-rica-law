@@ -1,0 +1,2 @@
+Artículo 14.-Cuando el beneficiario requiere conducir un vehículo modificado, deberá solicitar una licencia de conducir de tipo especial en la que se indicará el número de placas de registro del vehículo que se trate y sólo lo autorizará para conducir ese único vehículo u otros con idénticas modificaciones.
+En este caso, una vez obtenida la licencia de conducir, la Dirección General de Transporte Automotor autorizará la entrega de las placas de registro especial para que pueda circular por las vías públicas del país.

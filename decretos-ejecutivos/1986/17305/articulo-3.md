@@ -1,0 +1,1 @@
+Artículo 3°-La exoneración de tributos se concederá hasta para un valor aduanero de quince mil dólares moneda de los Estados Unidos de América (US$ 15.000,00) o su equivalente en moneda nacional. El valor aduanero del vehículo importado o comprado localmente será establecido, para efectos del presente régimen, por el Departamento de Valoración en cada caso.

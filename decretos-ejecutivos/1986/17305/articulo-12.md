@@ -1,0 +1,1 @@
+Artículo 12.-Dentro de los 15 días siguientes a la inscripción del vehículo en el Registro Público, el interesado deberá entregar a la Dirección General copia certificada de la póliza de des almacenaje y fotocopia del certificado de propiedad.

@@ -1,0 +1,1 @@
+Artículo 22.-Las autoridades de tránsito podrán ejercer control permanente sobre los vehículos exonerados por el presente régimen. Tanto los beneficiarios como los permisionarios están obligados a identificarse idóneamente cuando así lo requiera la autoridad competente.

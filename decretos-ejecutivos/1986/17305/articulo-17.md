@@ -1,0 +1,1 @@
+Artículo 17.-Aprobada la solicitud de permiso, la Dirección General expedirá un carné de identificación con vigencia de un año. El beneficiario deberá pagar, por medio de entero de Gobierno, el importe correspondiente al costo de dicho carné.

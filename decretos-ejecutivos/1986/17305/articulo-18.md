@@ -1,0 +1,1 @@
+Artículo 18.-Para la renovación del carné, a su vencimiento, se deberá cumplir con las disposiciones del artículo 16 anterior. En caso de extravío se deberá, además, interponer la denuncia correspondiente ante la autoridad competente.
