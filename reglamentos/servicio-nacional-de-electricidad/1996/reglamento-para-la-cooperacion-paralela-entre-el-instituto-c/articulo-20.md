@@ -1,0 +1,5 @@
+CAPITULO IV
+DISPOSICIONES SUPLEMENTARIAS
+Artículo 20.-Diferencias entre el ICE y el cliente por la Cooperación Paralela.
+El SNE resolverá las diferencias que se susciten entre el ICE y el cliente, con ocasión de la Cooperación Paralela.
+Previo a recurrir ante el SNE, el cliente gestionará su reclamo ante el ICE, quien resolverá la gestión en un plazo no mayor de treinta días naturales, a partir de su presentación.
