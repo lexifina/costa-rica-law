@@ -1,0 +1,2 @@
+Artículo 13.-Contra la resolución definitiva adoptada por el Concejo Municipal el contribuyente dentro del plazo de 30 días hábiles dos a partir del día hábil siguiente de efectuada en forma la calificación, podrá interponer la acción de impugnación correspondiente ante el Tribunal a que se refiere el articulo 10° de este Reglamento.
+Transcurrido dicho plazo sin que se hubiere interpuesto la acción de impugnación, la Municipalidad podrá interponer la acción ejecutiva a que se refiere el articulo 11° de este Reglamento.

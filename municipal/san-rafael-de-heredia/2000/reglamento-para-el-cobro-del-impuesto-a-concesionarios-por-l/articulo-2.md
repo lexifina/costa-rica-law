@@ -1,0 +1,1 @@
+Artículo 2°-Es sujeto activo de este impuesto, La Municipalidad de San Rafael de Heredia, la cual para los efectos de relación jurídico tributario hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios en su condición de Administración Tributaría de este impuesto.
