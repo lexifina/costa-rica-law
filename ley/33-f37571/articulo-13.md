@@ -1,0 +1,1 @@
+Art. 13.-Si el indiciado hubiere trabajado las tres cuartas partes de los días hábiles en los tres meses antes dichos, queda en la obligación de ocurrir por otros tres meses á declarar trabajo; pero la declaración se hará cada dos semanas.

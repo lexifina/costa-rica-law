@@ -1,0 +1,2 @@
+Art. 17.-De las causas de vagancia conocerán los Agentes Principales de Policía en las cabeceras de provincia y los Jefes Políticos en los cantones menores. La sentencia que dicten será apelable para ante el Gobernador de la provincia ó comarca respectiva; pero debe interponerse el recurso, para ser admisible, dentro de los tres días siguientes á la notificación en persona.
+El Gobernador puede confirmar, revocar ó reformar la sentencia del inferior.

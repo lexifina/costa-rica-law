@@ -1,0 +1,1 @@
+Art. 6°-La pena de vagancia se aumentará con una mitad más, si en poder del vago se encontraren ganzúas ú otros instrumentos propios para hurtos ó para penetrar en las casas; si se introdujere furtivamente ó de un modo sospechoso á una casa, tienda ó lugar cerrado; ó si contra él apareciere alguna otra fundada sospecha de delito.
