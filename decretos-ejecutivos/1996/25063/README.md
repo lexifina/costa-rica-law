@@ -14,3 +14,4 @@ Declara de utilidad pública Asociación Productores Agroindustrial Forestal APA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-23 | la propia norma |
+| 2 | 1996-04-23 | SINALEVI (sin norma nombrada) |
