@@ -1,2 +1,0 @@
-Emplazamiento
-Artículo 316.- Si el imputado no compareciere al ser citado o se sustrajere a la ejecución de la pena privativa de libertad, el tribunal fijará un término no mayor de diez días para que comparezca, sin perjuicio de ordenar la captura. La resolución será notificada al fiador y al imputado, apercibiéndolos de que la caución se hará efectiva al vencimiento del plazo, si el segundo no compareciere o no justificare un caso de fuerza mayor que lo impida.

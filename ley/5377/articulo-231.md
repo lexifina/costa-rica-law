@@ -1,2 +1,0 @@
-Residentes fuera de la ciudad
-Artículo 231.- Cuando el testigo no resida en la ciudad donde el tribunal actúa ni en sus proximidades, o sean difíciles los medios de transporte, se diligenciará la declaración, por exhorto o mandamiento, a la autoridad de su residencia, salvo que el juez considere necesario hacerlo comparecer en razón de la gravedad del hecho investigado y la importancia del testimonio; en este caso se fijarán prudencialmente las expensas que correspondan.

@@ -1,2 +1,0 @@
-Otras restricciones preventivas
-Artículo 295.- Cuando el procesado quedare en libertad provisional, el juez podrá imponerle que no se ausente de la ciudad o población en que reside, o que no concurra a determinado sitio, o que se presente a la autoridad los días que fije. Si la ley reprime el delito que se le atribuye con inhabilitación especial, también podrá disponer, preventivamente, que se abstenga de la actividad respectiva.

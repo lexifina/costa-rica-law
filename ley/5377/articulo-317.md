@@ -1,2 +1,0 @@
-Efectividad de la caución
-Artículo 317.- Al vencimiento del término previsto por el artículo anterior, el tribunal dispondrá, según el caso, la ejecución del fiador o la venta en remate público de los bienes hipotecados o emprendados. El dinero que se obtenga en ambos casos será transferido al Patronato de Construcciones, Instalaciones y Adquisición de Bienes de la Dirección General de Adaptación Social. Para la liquidación de las cauciones se procederá con arreglo al artículo 523.

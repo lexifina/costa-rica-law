@@ -1,2 +1,0 @@
-Casos de citación directa
-Artículo 167.- Cuando se investigue un delito para el que proceda citación directa (401), los oficiales de la policía redactarán un acta en la que harán constar, con la mayor exactitud posible, todas las diligencias que practiquen; inspecciones, operaciones técnicas, declaraciones recibidas; también cualquier otra circunstancia útil. Previa lectura, el acta será firmada por el oficial y en lo posible, por las demás personas que hubieren intervenido.

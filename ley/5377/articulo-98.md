@@ -1,3 +1,0 @@
-Contenido y formalidades
-Artículo 98.- Las actas deberán contener la fecha, el nombre y apellidos de las personas que actuaren; en su caso, el motivo de la inasistencia de quienes estaban obligados a intervenir; la indicación de las diligencias realizadas y de su resultado; las declaraciones recibidas; si éstas fueron hechas espontáneamente o a requerimiento, y si las dictaron los declarantes; previa lectura, la firma de todos los intervenientes que deban hacerlo, o cuando alguno no pudiere o no quisiere firmar, la mención de ello.
-Si una de las personas fuere ciego o analfabeto, se le informará que el acta puede ser leída y suscrita por una persona de su confianza, lo que se hará constar bajo pena de nulidad.

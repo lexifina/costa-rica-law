@@ -1,4 +1,0 @@
-Prisión y embargo
-Artículo 439.- El tribunal podrá ordenar la prisión preventiva del querellado, previa información sumaria y después de recibir su declaración, solamente cuando, además de concurrir los requisitos previstos en los artículos 286 y 291, hubiere motivos graves para creer que tratará de eludir la acción de la justicia.
-Cuando el querellante ejerza la acción civil, podrá pedir el embargo de los bienes del querellado, respecto de lo cual se aplicarán las disposiciones del Código de Procedimientos Civiles, sin necesidad de hacer depósito alguno.
-El decreto de embargo será comunicado al Registro Público para su anotación, sin causar derechos. Esta anotación indicará que la finca o fincas quedan sujetas a la responsabilidad civil proveniente del delito, sin necesidad de que se practique la diligencia de secuestro.
