@@ -1,0 +1,1 @@
+Artículo 7°.- Para la atención de la deuda que se le autoriza contraer, la Municipalidad dará en garantía hasta la totalidad de las rentas de sus presupuestos ordinarios anuales, hasta la total cancelación de la misma.
