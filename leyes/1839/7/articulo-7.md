@@ -1,0 +1,2 @@
+7.
+Presentado el manifiesto, con las formalidades presritas, se admitirá por el administrador; y con su firma lo pasará á la contaduria del ramo, dejando cópia integra de él en un libro que debe llevar al efecto. Se cotejarán por ésta, las cópias con el original; y firmando el contadorvista en este y aquellas, se entregará, la una al jefe del resguardo del muelle, para la debida cuenta y razon de lo que se desenbarque y almacene. El original se dirigirá, concluida que sea la descarga, á la Contaduria mayor de cuentas.

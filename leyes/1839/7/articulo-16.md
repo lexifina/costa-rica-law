@@ -1,0 +1,2 @@
+16.
+Luego que se dé por concluida la descarga de los buques, se practicará por el administrador; el jefe del resguardo y los dependientes respectivos, la visita del fondéo: se asegurará el administrador de la existencia de los efectos declarados de tránsito y trasbordo, en el manifesto, por un cotejo prolíjo del nùmero de bultos, sus márcas y numeros; y si se hallaren mercaderias no comprendidas en el manifiesto, se practicaràn las formalidades que disponen las leyes vigentes parar la daracion del comiso.

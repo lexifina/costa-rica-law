@@ -1,0 +1,2 @@
+60.
+Los maestres ó sobrecargos de los buques, recibirán en las aduanas de los puertos la plata y oro acuñado ó labrado en alhajas. Los administradores y contadores presenciarán el recuento del uno, y los pesos del otro; y éstos aforarán las alhajas que se registren. Estos artículos se mantendrán en las aduanas; y de ellas saldrán para el muelle con el correspondiente resguardo, y lo mismo del muelle al buque.

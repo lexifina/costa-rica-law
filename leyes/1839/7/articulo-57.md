@@ -1,0 +1,2 @@
+57.
+Las administraciones con los originales y duplicados de las pólizas, procederàn á ordenar el registro, formando al fin, resumen de lo registrado con el número de cada partida, nombre del cargador, y derechos causados y enterados. A esta operacion concurrirán los capitanes ó sobrecargos con sus respectivos libros de á bordo, para el debido cotejo de ellos con el registro. El duplicado de las pólizas con las formalidades anteriores, quedará en la administracion.

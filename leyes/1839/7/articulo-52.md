@@ -1,0 +1,2 @@
+52.
+Los cargadores, para que se les siente partida de registro de sus embarques, presentarán à los administradores, pólizas ó facturas de lo que embarcaren, con expresion del nombre del que carga, el del buque, y el del capitan; destino y numero de tercios con marcas y números, contenido de cada uno, y consignacion en el puerto adonde se dirijan: las polizas se han de dar por duplicado, firmadas por los cargadores y capitanes.
