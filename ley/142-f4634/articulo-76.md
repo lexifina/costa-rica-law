@@ -1,6 +1,6 @@
 Artículo 76
 Los objetivos básicos del régimen de administración fiduciaria, de
-acuerdo con los Propósitos de las Naciones Unids enunciados en el
+acuerdo con los Propósitos de las Naciones Unidas enunciados en el
 Artículo 1 de esta Carta, serán:
 a) fomentar la paz y la seguridad internacionales;
 b) promover el adelanto político, económico, social y educativo de

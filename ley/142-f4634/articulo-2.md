@@ -13,7 +13,7 @@ internacionales por medios pacíficos, de tal manera que no se pongan en
 peligro ni la paz y la seguridad internacionales ni la justicia.
 4. Los Miembros de la Organización, en sus relaciones
 internacionales, se obstendrán de recurrir a la amenaza o al uso de la
-fuerza contra la integridad territorial o la independencia política de
+furza contra la integridad territorial o la independencia política de
 cualquier Estado, o en cualquier otra forma incompatible con los
 Propósitos de las Naciones Unidas.
 5. Los Miembros de la Organización prestarán a ésta toda clase de

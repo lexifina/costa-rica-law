@@ -8,6 +8,6 @@ parte de la Secretaría.
 3. La consideración primordial que se tendrá en cuenta al nombrar
 el personal de la Secretaría y al determinar las condiciones del
 servicio, es la necesidad de asegurar el más alto grado de eficiencia,
-competencia e integridad. Se dará debida consideracicón también a la
+competencia e integridad. Se dará debida consideración también a la
 importancia de contratar el personal en forma de que haya la más amplia
 representación geográfica posible.
