@@ -1,9 +1,0 @@
-Artículo 20.—Créase el Comité de Activos y Pasivos, como órgano consultivo de las gerencias del Banco y sus Sociedades en la elaboración de las propuestas de política financiera, de inversiones y de riesgo, de formulación de las estrategias financieras, así como en la evaluación global de la gestión financiera, para lo cual:
-a. Analizará la coyuntura económica general y del sector financiero, revisando periódicamente la evolución de las variables externas que puedan incidir sobre los resultados del Banco y sus Sociedades.
-b. Analizará la exposición del Banco y sus Sociedades a riesgo de mercado (de tasa de interés, de tipo de cambio, de liquidez y otros que estime conveniente analizar) para definir la fijación de límites en términos de volúmenes, pérdidas máximas, características de los mercados y de los instrumentos financieros.
-c. Asesorará en el desarrollo de una política efectiva del manejo de la liquidez, acorde con los requerimientos del Banco y sus sociedades.
-d. Propondrá el establecimiento de políticas de capitalización.
-e. Asesorará, con base en los parámetros que fije la Junta Directiva, en la determinación de las tasas de interés activas y pasivas del Banco y el margen de intermediación, en función del flujo real de efectivo, las condiciones del mercado y las expectativas de la economía.
-f. Colaborará con las gerencias en el control del cumplimiento de las políticas y límites establecidos en materia de riesgo.
-El Gerente General del Banco y los gerentes de las sociedades -cuando corresponda - deberán discutir en el Comité de Activos y Pasivos las propuestas de política y de estrategia financiera que se pretendan impulsar, aunque la resolución de ese órgano no será vinculante.
-(Así ADICIONADO por la Sesión N° 3987 celebrada el 16 de abril de 2002, publicada en La Gaceta N° 96 de 21 de mayo de 2002.)

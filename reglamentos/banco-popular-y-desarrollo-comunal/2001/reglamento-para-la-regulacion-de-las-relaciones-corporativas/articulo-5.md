@@ -1,1 +1,0 @@
-Artículo 5°—De la organización de las Juntas Directivas. Las Juntas Directivas estarán conformadas por un Presidente, un Vicepresidente, un Secretario, un Tesorero y un Vocal, salvo en el caso de la Operadora de Pensiones, donde existirán tres vocales.
