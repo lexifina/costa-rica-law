@@ -13,8 +13,6 @@ Dichos proyectos son:
 Nombre del Proyecto Provincia Cantón Distrito
 Loremar San José Goicoechea Purral
 Tasba Pry Alajuela Los Chiles Los Chiles
-Dos Palmeras Cartago Paraíso Orosi
-Cerro Verde Cartago Paraíso Paraíso
 Bruma Azul Cartago Cartago Dulce Nombre
 La Victoria Heredia Sarapiquí Horquetas
 Las Hadas Heredia Flores Llorente
@@ -22,3 +20,4 @@ Año 2000 Heredia Flores Llorente
 Mar Azul Puntarenas Montes de Oro Miramar
 La Purruja Puntarenas Golfito Golfito
 Los Molinos Limón Pococí Jiménez
+(Así reformado por Decreto Ejecutivo N° 30861 de 12 de noviembre de 2002)

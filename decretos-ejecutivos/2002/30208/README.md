@@ -14,3 +14,4 @@ Declara de interés para el Estado los proyectos de vivienda que se encuentran e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-15 | la propia norma |
+| 2 | 2002-11-12 | Decreto Ejecutivo 30861 (2002-11-12) |
