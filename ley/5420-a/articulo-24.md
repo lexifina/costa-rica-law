@@ -1,0 +1,1 @@
+Artículo 24.- Antes de entrar en operación la planta, la compañía se obliga a elevar su capital a la suma mínima de ¢ 200.000,000.00 totalmente suscrito y pagado, representado por acciones comunes y nominativas.
