@@ -1,0 +1,1 @@
+Art 6° Las Autoridades de Policía, por si o por medio de sus agentes, procederán, desde luego, a cumplir con las obligaciones expresadas en el art 4, mientras se verifica el nombramiento de los Inspectores, no obstante, los cuales, pueden continuar ejerciendo las mismas funciones.
