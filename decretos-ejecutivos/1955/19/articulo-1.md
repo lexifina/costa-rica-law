@@ -5,13 +5,12 @@ EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
 DECRETA:
 El siguiente
 Reglamento para el Sistema de Ahorro y Préstamo
-Artículo 1°—Con base en el inciso k) del articulo 5° de la ley N° 1788 de 24 de agosto de 1954, se establecen sistemas de Ahorro y Préstamo y de Ahorro, a los cuales se refiere este Reglamento para financiar las operaciones que seguidamente se enumeran, relacionadas con la casa de habitación de las personas que se suscriben a cualquiera de los dos sistemas:
-1°—Compra de terreno y construcción o construcción en terreno propio
-2°—Compra, ampliación o reparación de la vivienda;
-3°—Cancelación de gravámenes que pesan sobre la casa propia; y
-4°—Compra del terreno por el dueño de la vivienda, cuando ésta hubiera sido construida en propiedad ajena.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 4° del Decreto Ejecutivo N° 1 de 05 de marzo de 1959, publicado en La Gaceta N° 70 de 31 de marzo de 1959.)
-Los préstamos con sujeción a los requisitos establecidos en el Reglamento respectivo, podrán también financiar a entidades públicas o privadas, obras de urbanización de proyectos de vivienda no lucrativos, en favor de sus servidores asociados, previo acuerdo de junta directiva.
-(Así AMPLIADO por la Sesión N° 4336 de 19 de agosto de 1993, publicada en La Gaceta N° 185 de 28 de setiembre de 1993, la cual adicionó el último párrafo del presente artículo.)
-Mediante el cual, a solicitud del suscriptor, los gastos por concepto de honorarios de abogado y formalización serán financiados dentro de los créditos sobre contratos de Ahorro y Préstamo que ya adquirieron la condición para avalar créditos (contratos maduros).
-(Así AMPLIADO por la Sesión N° 4837 de 04 de noviembre de 1998, publicada en La Gaceta N° 108 de 04 de junio de 1999.)
+Artículo 1º—Con base en el inciso k), artículo 5°, de la Ley Nº 1788 del 24 de agosto de 1954, se establecen sistemas de ahorro y préstamos, a los cuales se refiere este Reglamento para financiar las operaciones que seguidamente se enumeran, relacionadas con la casa de habitación de las personas que se suscriben a cualquiera de los sistemas:
+a) Compra de terreno y construcción.
+b) Construcción en terreno propio.
+c) Compra, ampliación o reparación de la casa.
+d) Cancelación de gravámenes que pesa sobre casa propia (este gravamen debe haberlo constituido el suscriptor, como garantía de préstamos relacionados con su vivienda).
+e) Compra de terreno (con la finalidad de construir su vivienda o de adquirir el lote donde la construyó).
+f) Adquisición de una vivienda mediante la cesión de acciones o cuotas de una Sociedad (La sociedad debe tener como único patrimonio la vivienda y estar al día en la presentación de declaraciones tributarias. Asimismo, los accionistas o representantes legales, deberán declarar bajo la fe de juramento que la misma fue constituida exclusivamente para ese fin). Los préstamos con sujeción a los requisitos establecidos en el Reglamento respectivo, podrán también financiar a entidades públicas o privadas, obras de urbanización de proyectos de vivienda no lucrativos, a favor de sus servidores o asociados, previo acuerdo de Junta Directiva.
+A solicitud del suscriptor, los gastos por concepto de honorarios de abogado y formalización serán financiados dentro de los créditos sobre contratos de ahorro y préstamo que ya adquirieron, la condición para avalar créditos (contratos maduros).
+(Así reformado en sesión No. 5350 de 11 de febrero de 2004)
