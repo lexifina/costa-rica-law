@@ -1,0 +1,1 @@
+Artículo 8º—Una vez verificado el cumplimiento de los requisitos que establece este Reglamento, la sección de Egresos solicitará al Departamento Control de Presupuesto y Análisis Financiero, se haga constar la asignación presupuestaria para cubrir estos gastos.

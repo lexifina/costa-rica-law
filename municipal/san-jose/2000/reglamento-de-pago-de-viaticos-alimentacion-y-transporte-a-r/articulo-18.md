@@ -1,0 +1,1 @@
+Artículo 18.—Reconocimiento de gastos por alimentación y transporte, cuando el lugar de la sede del Concejo coincide con el de su residencia. Cuando el regidor o síndico deba asistir a sesiones del Concejo Municipal, en el mismo lugar donde está su domicilio, no se cubrirá gasto alguno.

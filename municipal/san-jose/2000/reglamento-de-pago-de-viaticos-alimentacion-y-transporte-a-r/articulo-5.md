@@ -1,0 +1,1 @@
+Artículo 5º—Oportunidad del gasto. Deberá existir una estrecha relación entre el gasto, hora de salida de la sesión Municipal y el lugar en el cual radica cualquiera de las personas a que se refieren los artículo 3º y 4º de este Reglamento.

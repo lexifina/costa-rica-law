@@ -1,0 +1,1 @@
+Artículo 9º—El pago se hará dentro de los ocho días siguientes de recibida y aprobada la solicitud de pago de los viáticos correspondientes; las dependencias involucradas en el pago de tales viáticos deben darle un trámite expedito y prioritario, sin sobrepasar este plazo.

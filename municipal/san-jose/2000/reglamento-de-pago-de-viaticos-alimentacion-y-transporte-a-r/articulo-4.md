@@ -1,0 +1,1 @@
+Artículo 4º—Sujetos beneficiarios. Los gastos a que se refiere este Reglamento, únicamente serán cubiertos a los Regidores y/o Síndicos, propietarios o suplentes del Concejo Municipal, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado de la actividad respectiva.

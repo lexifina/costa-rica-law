@@ -1,0 +1,3 @@
+Artículo 16.—La suma a cobrar por el concepto de alimentación (cena) será de ¢1.500.00 (Mil quinientos colones netos).
+En cuanto a la suma a cobrar por transporte (taxi), será la que se reporte en el memorándum citado en el artículo 7º de este Reglamento, suma que se aumentará en un 10% anual, de acuerdo al costo de la vida y a lo estipulado por la Contraloría General de la República en lo referente al rubro por transporte.
+De utilizarse como medio de transporte, el servicio remunerado de personas, la tarifa a cubrir será la que determina el Reglamento de Gastos de Viaje y Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.

@@ -1,0 +1,4 @@
+Artículo 7º—Formato de la liquidación de gastos y presentación de cuentas, por medio de memorándum. La liquidación de gastos de alimentación y transporte, deberá hacerse mediante un memorándum.
+En cuanto a transporte deberá agregarse en el citado documento, el garaje al cual pertenece el taxi, el destino y por supuesto el monto pagado, si se usa el transporte remunerdo de personas, la línea o líneas empleadas y el monto pagado.
+Dicha liquidación deberá presentarse a más tardar quince días (15 días) naturales después de efectuada la erogación, acompañada de una constancia emitida por la secretaría Municipal, en la que se indique la asistencia a las sesiones respecto de las cuales se le liquidarán esos gastos.
+Las solicitudes que se presenten fuera de ese plazo no se les dará trámite alguno para el pago, pues se tendrán como extemporáneas.
