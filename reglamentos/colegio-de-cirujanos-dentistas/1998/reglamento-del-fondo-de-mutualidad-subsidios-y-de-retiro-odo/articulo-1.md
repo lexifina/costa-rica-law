@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO DE CIRUJANOS DENTISTAS DE COSTA RICA
+(Este Reglamente fue DEROGADO, mediante sesión extraordinaria celebrada el 14 de octubre del 2004)
 (Este reglamento fue aprobado en asamblea general el 17 de octubre de 1998 y reformado integramente en sesión extraordinaria N° 17 del 15 de mayo del 2003, cuyo texto se describe a continuación)
 El Colegio de Cirujanos Dentistas de Costa Rica, informa a todos los colegiados, que según acuerdo tomado por la asamblea general extraordinaria Nº 17-2003, celebrada el 15 de mayo del 2003, se aprobó las modificaciones del Reglamento del Fondo de Mutualidad, Subsidios y Retiro Odontológico, el cual se transcribe a continuación.
 "REGLAMENTO DE RETIRO ODONTOLÓGICO"

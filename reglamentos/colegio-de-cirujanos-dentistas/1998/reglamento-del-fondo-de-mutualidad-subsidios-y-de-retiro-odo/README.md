@@ -15,3 +15,4 @@ Reglamento del Fondo de Mutualidad, Subsidios y de Retiro Odontologico
 | --- | --- | --- |
 | 1 | 1998-12-01 | la propia norma |
 | 2 | 2003-05-15 | Reglamento 17 (2003-05-15) |
+| 3 | 2004-10-14 | Reglamento 0 (2004-10-14) |
