@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-El mismo Receptor recibir de la Intendencia general, con cuenta y razón, el papel sellado que debe expenderse en la República y proveer de ‚l a todas las Receptorías subalternas, las cuales deben entregar cada fin de mes en la Receptoría general el producto de este ramo, junto con el de Códigos, pólvora y salitre, cuyo expendio debe estar a cargo de ellos.

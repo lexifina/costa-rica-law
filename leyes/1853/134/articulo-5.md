@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Esta Receptoría recibir de la Administración Principal, por inventario, todos los valores que en ‚ esta existan en papel y demás £tiles de oficinas, y de la suma de ellos se formar el cargo correspondiente por medio de una partida igual a la de data que la Administración Principal debe asentar, al tiempo de hacer la entrega de dichos útiles.

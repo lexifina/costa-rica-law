@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-El Receptor general ocurrir a la Intendencia general oportunamente para que le provea de todos los artículos estancados que ‚l ha de expender, y de que debe abastecer las demás Receptorías subalternas.
