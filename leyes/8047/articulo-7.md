@@ -1,0 +1,1 @@
+ARTÍCULO 7.- En la selección de los beneficiarios, el CNP dará prioridad a aquellos que, considerando el estado de vencimiento de la operación crediticia y el bien afectado en la constitución de la garantía hipotecaria, requieran la cancelación urgente de los intereses corrientes y moratorios.

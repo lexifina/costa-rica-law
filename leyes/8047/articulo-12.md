@@ -1,0 +1,1 @@
+ARTÍCULO 12.- Autorízase a la Contraloría General de la República para que tramite, en el presente ejercicio económico, las modificaciones presupuestarias o los presupuestos extraordinarios que para hacer efectiva esta Ley realicen el INS y el CNP.
