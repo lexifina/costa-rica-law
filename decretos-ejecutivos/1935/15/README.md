@@ -15,3 +15,4 @@ Reglamento a la Ley de Almacenes Generales de Depósito
 | 1 | 1935-04-04 | la propia norma |
 | 2 | 1935-04-04 | SINALEVI (sin norma nombrada) |
 | 3 | 1936-11-05 | Ley 16 |
+| 4 | 1982-11-22 | Decreto Ejecutivo 14118 (1982-11-22) |
