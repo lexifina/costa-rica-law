@@ -1,0 +1,1 @@
+Artículo 12.—Sobre la comunicación de los resultados: Los resultados de las etapas del concurso serán comunicados a los participantes por el Alcalde Municipal. Contra esta comunicación podrá interponerse el recurso de revocatoria, el de apelación, o ambos, de conformidad con lo que establece el Código Municipal para estos efectos.
