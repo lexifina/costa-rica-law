@@ -1,6 +1,7 @@
 Artículo 2º-Son deberes de los miembros de la Junta Directiva:
 a- Asistir a las sesiones.
-b- Excusarse verbalmente por su inasistencia antes del inicio de cada sesión. En todo caso el Director está en la obligación de formalizar por escrito la excusa correspondiente antes del inicio de la siguiente sesión ordinaria ante la Secretaría de la Junta Directiva. Para todos los efectos se entenderá que un Director está ausente después de que ha transcurrido una hora desde el inicio de la sesión.
+b- Excusarse verbalmente por su inasistencia con no menos de veinticuatro horas antes del inicio de cada sesión. En todo caso el Director está en la obligación de formalizar de manera idóneo, la excusa correspondiente antes del inicio de la siguiente sesión ordinaria ante la Secretaría de la Junta Directiva.
+(Así reformado por Acuerdo AJDIP 120 de 11 de fecha 11 de marzo del 2005)
 c- Modificar ó aprobar el orden del día
 d- Emitir sus votos en los asuntos que se someten a conocimiento de la Junta Directiva.
 e- Desempeñar las comisiones que la Junta Directiva les encargue.

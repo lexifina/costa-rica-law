@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-03 | la propia norma |
+| 2 | 2005-03-11 | Reglamento 120 (2005-03-11) |
