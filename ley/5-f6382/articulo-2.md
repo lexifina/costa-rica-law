@@ -1,0 +1,2 @@
+Art 2° Llegada la época fijada, para la cesación de la venta, el Administrador del ramo formará corte de las existencias en especie, dando cuenta a la Secretaria de Hacienda con el resultado, para que esta disponga lo conveniente respecto de dichas existencias.
+Único. En el caso de que antes del 31 de diciembre se agotaren los licores extranjeros que existen actualmente en depósito, el mismo Administrador dará aviso a dicha Secretaria para ulteriores determinaciones del Gobierno.
