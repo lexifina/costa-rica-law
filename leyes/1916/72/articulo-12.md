@@ -11,3 +11,4 @@ b)-Si el total de propiedad inculta de una persona, física o moral, en toda la 
 2 % sobre el exceso de 4,000 hectáreas hasta 5,000 hectáreas.
 2 1/2 % sobre el exceso de 5,000 hectáreas.
 Cuando los terrenos incultos de un contribuyente tuvieren diferentes valores, el valor total de ellos se dividirá por el número de hectáreas ,y el cociente que resulte será el valor medio que se tome como base para el cálculo de este impuesto. Para los efectos del artículo 24, se estará al valor dado a cada inmueble.
+(Nota de Sinalevi: Por el artículo 25 de la Ley de caminos (1921) del 24 de agosto de 1921, se estableció que el presente artículo queda reformado).
