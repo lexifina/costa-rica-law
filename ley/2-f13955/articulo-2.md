@@ -1,0 +1,1 @@
+Art. 2. Los Jefes Políticos nombrarán para cada uno de los Pueblos de su Departamento, una comisión de los individuos que reciban la suscripción respectiva, y dén cuenta con las listas de los suscriptores á la misma autoridad, para que ésta las ponga en conocimiento del Gobierno,
