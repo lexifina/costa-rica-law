@@ -14,3 +14,4 @@ Reglamento General de Mercados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-03-14 | la propia norma |
+| 2 | 1985-08-19 | Reglamento municipal 0 (1985-08-19) |
