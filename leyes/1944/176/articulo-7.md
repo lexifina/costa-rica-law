@@ -1,6 +1,2 @@
-Artículo 7º.- Toda certificación expedida por las dependencias de
-los Poderes Ejecutivo y Judicial, Tribunal Supremo de Elecciones,
-instituciones autónomas y los notarios, pagarán Timbre Forense por valor
-de un colón, salvo los casos contemplados en leyes especiales.
-(Así reformado por el artículo 10 de la Ley Nº 3245 de 3 de diciembre de
-1963).
+Artículo 7º.- DEROGADO por el inciso u) del artículo 31 de la Ley N° 8114,
+Ley de simplificación y Eficiencia Tributarias de 4 de julio del 2001.

@@ -1,3 +1,2 @@
-Artículo 12.- El expendio de los timbres a que esta ley se refiere
-lo hará la Administración General de Rentas en las mismas condiciones en
-que se realiza la de los timbres fiscales.
+Artículo 12.- DEROGADO por el inciso u) del artículo 31 de la Ley N° 8114,
+Ley de simplificación y Eficiencia Tributarias de 4 de julio del 2001.
