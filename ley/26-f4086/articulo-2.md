@@ -1,0 +1,3 @@
+Art. 2°.- En los delitos por contrabando, aun cuando la pena á que sean acreedores los reos, no sea corporal ni infamante, no podrá concederse la excarcelación, sino en el caso del artículo 745 del Código de Procedimientos, siempre que la cantidad aprehendida no fuere menor de cinco botellas de aguardiente ó de diez libras de tabaco.
+AL PODER EJECUTIVO.-Dado en el Salon de Sesiones,-Palacio Nacional,- San José, julio veinticinco de mil ochocientos setenta y ocho.-BRUNO CARRANZA, Presidente: -T. SOLANO, Secretario.
+Por tanto: ejecútese.-Palacio Nacional-San José, julio veinticinco de mil ochocientos setenta y ocho.-T. GUARDIA. -El Secretario de Estado en el Despacho de Hacienda y Comercio, - SALVADOR LARA.
