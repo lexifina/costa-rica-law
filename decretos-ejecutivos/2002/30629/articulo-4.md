@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Agricultura y Ganadería, a través de la Dirección Nacional de Extensión Agropecuaria y sus demás direcciones, facilitará la realización de acciones y esfuerzos, así como la integración de recursos para la generación, ejecución, seguimiento, evaluación de planes y programas de desarrollo agropecuario, agroforestales, pesqueros y afines.

@@ -1,0 +1,2 @@
+Artículo 6º—De los informes económicos que se presenten a la Contraloría General de la República, los C. A. C. afiliados deberán obligatoriamente presentar una copia a la Confederación. Dicha copia se deberá presentar en un plazo no mayor de ocho días naturales, contados a partir de su presentación a la Contraloría General de la República.
+El incumplimiento de esta obligación será sancionada conforme lo establezcan los estatutos de la Confederación.

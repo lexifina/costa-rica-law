@@ -1,0 +1,1 @@
+Artículo 52.—La Comisión Liquidadora deberá estar compuesta por un representante de las organizaciones agrícolas del cantón, un miembro de la Confederación y uno de la Municipalidad del cantón de que se trate.

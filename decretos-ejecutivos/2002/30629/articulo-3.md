@@ -1,0 +1,4 @@
+CAPÍTULO II
+Fuentes de Financiamiento Público y Rendición de Informes
+Artículo 3º—El Consejo Nacional de Producción, el Ministerio de Agricultura y Ganadería, el Sector Agropecuario y demás Instituciones, Entes, Organizaciones Públicas y la Municipalidad de cada cantón, podrán canalizar recursos para financiar y apoyar proyectos agrícolas, agroforestales, pesqueros y afines, de acuerdo con lo dispuesto en los artículos 10 inciso b), 12 y 14 de la Ley. Los C. A. C serán receptores de estos recursos para financiar proyectos propios y de otras agrupaciones del cantón.
+Los C. A. C., las Federaciones y la Confederación deberán rendir un informe anual a la Contraloría General de la República, conforme con el artículo 13 de la Ley, con cierre al 30 de setiembre de cada año. Dicho informe se deberá presentar a más tardar el 30 de noviembre.

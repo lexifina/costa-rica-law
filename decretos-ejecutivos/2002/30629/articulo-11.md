@@ -1,0 +1,1 @@
+Artículo 11.—Las convocatorias a asambleas se realizarán por lo menos con treinta días naturales de anticipación, por los medios de difusión disponibles, preferiblemente mediante nota a cada afiliado inscrito en el padrón electoral del C. A. C. El proceso estará a cargo de la administración del C. A. C., respectivo.

@@ -1,0 +1,1 @@
+Artículo 53.—El acuerdo de disolución y de nombramiento de la Comisión Liquidadora deberá ser publicado por la Confederación en el diario oficial, por tres veces consecutivas. En el edicto se citará a los interesados y acreedores a hacer valer sus derechos.

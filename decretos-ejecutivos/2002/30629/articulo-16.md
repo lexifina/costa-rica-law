@@ -1,0 +1,2 @@
+Artículo 16.—Para los efectos del artículo anterior, el delegado acreditará su condición ante la Junta Directiva del C. A. C., con no menos de ocho días de anticipación a la fecha en que se verificará la Asamblea General.
+Dicha acreditación se hará mediante boleta que confeccionará la Junta Directiva del C. A. C. respectivo; la cual deberá contener nombre, apellidos, número de cédula y firma de los afiliados que lo designen.

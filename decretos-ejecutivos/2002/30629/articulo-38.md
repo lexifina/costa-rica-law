@@ -1,0 +1,2 @@
+Artículo 38.—Ante denuncia presentada por el órgano fiscalizador o por un tercero con interés legítimo, en segunda instancia la Confederación podrá anular una asamblea de un C. A. C., o Federación, cuando siguiendo el debido proceso determine anomalías graves en cuanto: a) convocatorias; b) desarrollo de la agenda; y c) falta de legitimidad en los procesos electorales.
+De lo anterior notificará formalmente al Registro, para los fines pertinentes.

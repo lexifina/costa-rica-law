@@ -1,0 +1,1 @@
+Artículo 55.—Una vez satisfechos los gastos legales que demande la liquidación, cobrados los créditos y satisfechas todas las obligaciones del C. A. C., el remanente pasará a la Municipalidad del cantón sede del C. A. C., en las condiciones y para los fines que establece el artículo 65 de la Ley.

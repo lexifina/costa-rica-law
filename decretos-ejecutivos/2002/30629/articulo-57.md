@@ -1,0 +1,1 @@
+Artículo 57.—La Comisión deberá rendir el informe final, dentro de los 90 días siguientes a la fecha de su constitución, con cuentas detalladas de sus actuaciones ante la autoridad que los haya nombrado; aportando copia de ese informe a la Confederación. Dicho plazo podrá ser ampliado a juicio de la autoridad judicial.

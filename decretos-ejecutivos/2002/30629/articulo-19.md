@@ -1,0 +1,1 @@
+Artículo 19.—En caso de ausencia temporal simultánea del presidente y del vicepresidente, la Junta Directiva nombrará un presidente interino. En caso de ausencia definitiva, se hará la designación que corresponda, tomando también en cuenta para tal efecto a los miembros suplentes, según el orden designado por la Asamblea General.

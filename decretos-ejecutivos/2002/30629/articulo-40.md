@@ -1,0 +1,1 @@
+Artículo 40.—La Confederación deberá dar trámite expedito a las denuncias del órgano fiscalizador o de terceros legitimados y responder en un plazo no mayor de 8 días hábiles después de terminado el debido proceso, el cual no podrá durar más de dos meses.

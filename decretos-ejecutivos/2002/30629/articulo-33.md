@@ -1,0 +1,1 @@
+Artículo 33.—Las Asambleas de las Federaciones serán convocadas por su Junta Directiva. Cuando se trate de la elección de dicho órgano, se realizará con un mes de antelación a su vencimiento. De no estar vigente la Junta Directiva, se podrán celebrar con un mínimo de tres C. A. C. que en ese momento estén a derecho.

@@ -1,0 +1,1 @@
+Artículo 12.—De no celebrarse la asamblea con base a lo estipulado en el artículo 29 de la Ley, los asistentes podrán convocar en el acto a una nueva asamblea que se realizará en el plazo que ellos determinen, reuniendo para este nuevo acto los mismos requisitos señalados en dicho artículo.

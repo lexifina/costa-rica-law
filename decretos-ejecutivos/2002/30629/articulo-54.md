@@ -1,0 +1,1 @@
+Artículo 54.—Los directores deberán entregar a la Comisión Liquidadora, mediante inventario, todos los bienes, libros y documentos del C. A. C. Salvo que demuestren haber actuado conforme con la Ley, serán solidariamente responsables por los daños y perjuicios que causen en caso de omisión.

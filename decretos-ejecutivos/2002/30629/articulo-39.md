@@ -1,0 +1,1 @@
+Artículo 39.—La Confederación atenderá los reclamos de terceros legitimados, sobre la realización de asambleas o de acuerdos inválidos, que se presenten por escrito con medios de prueba y dentro de un plazo no mayor de cinco días hábiles, posteriores a su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 58.—La Confederación notificará formalmente al Registro dentro los ocho días siguientes al recibo del informe final de la comisión y aportará copia de dicho informe, a efecto de que se realice la cancelación que corresponda.

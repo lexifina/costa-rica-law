@@ -1,0 +1,2 @@
+Artículo 43.—La finalidad del Registro es la inscripción de los documentos que le sean presentados, cuando reúnan los requisitos legales aplicables.
+Simplificar y acelerar los trámites de recepción e inscripción de esos documentos en dicha oficina es de conveniencia pública. Toda disposición o procedimiento que tienda a entorpecer o dificultar esos trámites o que su aplicación produzca tales resultados, es contraria al interés público.

@@ -1,0 +1,1 @@
+Artículo 31.—La Junta Directiva estará compuesta por un presidente, un vicepresidente, un tesorero, un secretario, un vocal y un suplente. Además habrá un fiscal. Todos durarán en su función dos años, pudiendo ser reelegidos.
