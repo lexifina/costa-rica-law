@@ -1,0 +1,1 @@
+Artículo 13.—La persona titular de la Dirección General, comunicará al Depto Financiero, las solicitudes aprobadas para laborar en jornada extraordinaria, especificando la cantidad de horas autorizadas.

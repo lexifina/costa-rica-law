@@ -1,0 +1,1 @@
+Artículo 11.—El Departamento Financiero revisará las solicitudes para laborar tiempo extraordinario y velará que cumplan con la normativa y procedimientos establecidos. Solo se aceptarán solicitudes cuyo respaldo presupuestario esté plenamente asegurado.

@@ -1,0 +1,1 @@
+Artículo 12.—Una vez recibida la solicitud, el Depto Financiero en los siguientes cinco días hábiles de recibida la solicitud trasladará ésta a la persona titular de la Dirección General para su autorización.

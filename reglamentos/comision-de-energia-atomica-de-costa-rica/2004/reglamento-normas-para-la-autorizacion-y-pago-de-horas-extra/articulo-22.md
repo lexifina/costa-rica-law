@@ -1,0 +1,1 @@
+Artículo 22.—El pago de estar contemplado en los límites de gasto establecido y dentro de los parámetros del bloque de legalidad y las indicaciones de la Contraloría General de la República, circular Nº 5126. Rige a partir de su publicación en el Diario Oficial La Gaceta.

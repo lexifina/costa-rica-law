@@ -1,0 +1,1 @@
+Artículo 18.—En aquellos casos en que a pesar de la ausencia de autorización, se realice trabajos en tiempo extraordinario, éste no podrá ser pagado por la Administración y generará responsabilidad para el jerarca que encargó el trabajo frente al servidor en el pago del servicio.

@@ -1,0 +1,1 @@
+Artículo 5º—No se podrá autorizar jornada extraordinaria a un mismo funcionario en forma sucesiva durante más de tres meses, en virtud de que desnaturaliza el carácter extraordinario de este tipo de jornada. En ningún caso, la jornada extraordinaria podrá ser de carácter permanente
