@@ -1,0 +1,1 @@
+Artículo 15.—Realización de las Obras de Oficio. En caso de que el vecino no realice las obras en el periodo establecido la Municipalidad establecerá un convenio con los comités de caminos amparados en las Asociaciones de Desarrollo, con las Asociaciones de Desarrollo o las demás ONGs autorizadas, con el fin de que éstos realicen el trabajo pendiente.

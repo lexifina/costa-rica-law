@@ -1,0 +1,1 @@
+Artículo 18.—Cobro Administrativo y Judicial. El propietario que haga caso omiso del pago de los trabajos ejecutados, será sujeto de los procedimientos de cobro administrativo y judicial que establece el Reglamento respectivo de la Municipalidad de Pérez Zeledón.
