@@ -1,0 +1,1 @@
+Articulo 13.—Será requisito para ser electo, haber participado activamente en alguna disciplina deportiva durante los últimos doce meses. El Concejo no podrá elegir dos miembros que representen una misma disciplina.

@@ -1,0 +1,1 @@
+Artículo 35.—Una vez conocido el monto correspondiente al 4% asignado, el Comité cantonal elaborará su presupuesto anual de acuerdo a sus planes y programas y lo remitirá al Concejo Municipal en el mes de noviembre para que lo conozca.

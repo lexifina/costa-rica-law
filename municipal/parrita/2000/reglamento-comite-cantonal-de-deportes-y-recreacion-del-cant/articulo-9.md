@@ -1,0 +1,1 @@
+Artículo 9°- Las sesiones deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, si pasados los quince minutos no hubiere quórum, se dejará constancia en el libro de actas y se tomará nómina de los miembros presentes.

@@ -1,0 +1,2 @@
+Del proceso de los Juegos Nacionales
+Articulo 43.—Los Juegos Deportivos Nacionales serán una de las máximas aspiraciones del Comité Cantonal y de los atletas del Cantón. La participación se iniciará con un proceso de promoción y de eliminatorias por distrito deportivo acatando los lineamientos y funciones que le asigne el Concejo Nacional de Deportes y la Recreación para el efecto, en especial las consignadas en el Artículo 12:2 del reglamento General de Competición y disciplinario de dicho órgano.

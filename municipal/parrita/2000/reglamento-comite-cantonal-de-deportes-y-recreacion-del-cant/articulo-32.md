@@ -1,0 +1,1 @@
+Articulo 32.—Será prioritario para el Comité de Deportes al distribuir el presupuesto asignar la mayor cantidad de los recursos para financiar el proceso dirigido a llevar la mayor representación cantonal a los Juegos Deportivos Nacionales.

@@ -1,0 +1,1 @@
+Articulo 44.—El Administrador deportivo será responsable de asesorar a todas las organizaciones deportivas del Cantón sobre la forma de participar en el proceso de los Juegos Nacionales, para tal efecto preparará un reporte mensual al Comité Cantonal sobre sus acciones al respecto.

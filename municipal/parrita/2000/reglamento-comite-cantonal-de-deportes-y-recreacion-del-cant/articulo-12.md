@@ -1,0 +1,4 @@
+De la elección de los representantes del Concejo Municipal en el Concejo Municipal en el Comité Cantonal.
+Articulo 12.—El Concejo Municipal nombrará en la tercera semana del mes de diciembre por acuerdo de mayoría relativa dos integrantes del Comité Cantonal de Deportes y Recreación, los cuales escogerá de entre los vecinos del cantón y deberán contar con reconocida solvencia moral.
+Cualquier Regidor o el Alcalde podrán proponer nombres para ser electos.
+La votación será secreta y cada regidor votará por el nombre de una de las personas incluidas en la lista de los propuestos, Se llevarán a cabo dos votaciones; una para la elección de cada representante que elegirá el Concejo. Serán electas las personas que en cada votación hayan obtenido la mayor cantidad de votos. En caso de empate, la suerte decidirá.

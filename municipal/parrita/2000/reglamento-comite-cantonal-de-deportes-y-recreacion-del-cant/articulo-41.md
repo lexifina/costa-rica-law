@@ -1,0 +1,1 @@
+Articulo 41.—El administrador deportivo será un subalterno del alcalde que se asignará a las tareas del comité de deportes. Su salario se financiará del presupuesto municipal separado del 4% que se asigna al Comité cantonal.

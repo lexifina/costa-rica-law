@@ -1,0 +1,1 @@
+Artículo 4°— En la sesión especial de instalación el Comité Cantonal nombrará de su seno un presidente, un vicepresidente, un tesorero, un secretario y un vocal. La hora y día de sesiones serán acordados por el Comité procurando que se ajuste a horarios de fácil asistencia para todos los miembros del mismo y comunicado por escrito al Concejo Municipal.

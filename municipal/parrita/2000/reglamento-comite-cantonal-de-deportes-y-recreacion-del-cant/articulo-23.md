@@ -1,0 +1,2 @@
+De los comités comunales de deporte y recreación
+Articulo 23.—El Comité Comunal estará integrado por cinco miembros, electos de entre los dos delegados que elija para tal efecto cada Junta directiva de las organizaciones deportivas y recreativas y las demás organizaciones restantes de la comunidad que se encuentren registradas en la Municipalidad y que en el expediente señalen el domicilio en la respectiva comunidad. Los electos en el comité comunal durarán en sus cargos dos años, pudiendo ser reelectos.

@@ -1,0 +1,1 @@
+Transitorio I. —Para la inscripción de las organizaciones deportivas y recreativas del Cantón referidas en el articulo 14 de este reglamento, no será necesario el visto bueno del Comité de Comunal cuando este aún no haya sido constituido en la respectiva comunidad a la que pertenece la organización deportiva.

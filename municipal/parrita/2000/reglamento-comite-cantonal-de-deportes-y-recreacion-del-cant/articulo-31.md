@@ -1,0 +1,2 @@
+Artículo 31.—El Comité Cantonal manejará en uno de los Bancos del Estado una cuenta corriente para el manejo de sus recursos.
+La Municipalidad depositará a dicha cuenta los recursos del 4% en partidas de 1/6 cada dos meses. Dicha cuenta registrará la firma del presidente, vicepresidente y tesorero del Comité Cantonal y para el giro de los recursos deberá existir acuerdo del Comité Cantonal y firmarán los cheques al menos dos de estas personas.

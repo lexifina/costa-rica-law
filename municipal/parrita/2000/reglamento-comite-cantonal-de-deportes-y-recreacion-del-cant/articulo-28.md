@@ -1,0 +1,3 @@
+Artículo 28. — Serán funciones del Comité Distrital:
+a) Promover e! desarrollo de la infraestructura para el deporte y recreación, las sana competencia y el intercambio permanente como proceso de promoción humana para llevar atletas del cantón a Juegos Deportivos Nacionales u otras competencias nacionales o internacionales. Procurará que en su distrito exista la infraestructura necesaria para practicar todas las disciplinas deportivas.
+b) Organizar actividades deportivas y sociales a nivel distrital para promover la participación de los diferentes atletas y recaudar fondos para el cumplimiento de sus fines.
