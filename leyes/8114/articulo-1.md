@@ -21,22 +21,22 @@ Queroseno | 23,00
 Diesel pesado (Gasóleo) | 15,00
 Nafta pesada | 11,00
 Nafta liviana | 11,00
-(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 29889 de 10 de octubre del 2001 de la siguiente manera:
+(Los montos aquí establecidos fueron modificados por el artículo 1° del Decreto Ejecutivo N° 30108 de 18 de enero del 2002 de la siguiente manera:
 Tipo de combustible por litro | Impuesto en colones (¢)
 |
-Gasolina regular | 88,25
-Gasolina súper | 91,50
-Diesel | 51,75
-Asfalto | 17,50
-Emulsión Asfáltica | 13,25
-Bunker | 9,00
-LPG | 17,50
-Jet Fuel A1 | 52,75
-Av Gas | 88,00
-Queroseno | 25,25
-Diesel pesado (Gasóleo) | 16,50
-Nafta pesada | 12,00
-Nafta liviana | 12,00
+Gasolina regular | 89,75
+Gasolina súper | 93,25
+Diesel | 52,75
+Asfalto | 17,75
+Emulsión Asfáltica | 13,50
+Bunker | 9,25
+LPG | 17,75
+Jet Fuel A1 | 53,75
+Av Gas | 89,75
+Queroseno | 25,75
+Diesel pesado (Gasóleo) | 16,75
+Nafta pesada | 12,25
+Nafta liviana | 12,25
 )
 Exceptúase del pago de este impuesto el producto destinado a abastecer las líneas aéreas comerciales y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con lo establecido en la Ley Nº 7384.
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
