@@ -1,0 +1,1 @@
+Artículo 2°—El Instituto del Café de Costa Rica procurará desestimular la producción del Café Lerdo, a través de -una efectiva labor de concientización y asesoría técnica de los caficultores, a quiénes mantendrá al tanto del avance de sus investigaciones.
