@@ -1,0 +1,3 @@
+Artículo 42.- Faltas a la confidencialidad
+Quienes contravengan las prohibiciones estipuladas en el artículo 11 de esta Ley serán sancionados con una multa en beneficio del propio fondo, que aplicará el ente regulador, por un monto equivalente al doble del beneficio obtenido determinado por el propio órgano regulador, previa audiencia al personal involucrado.
+Las personas que incurran en una de las infidencias a que se refiere el artículo 11, a solicitud del ente regulador, deberán ser destituidas por la operadora, mediante la aplicación de la legislación laboral correspondiente. Sin perjuicio de las sanciones penales que puedan aplicarse, al tenor de lo establecido en el artículo 203 del Código Penal.
