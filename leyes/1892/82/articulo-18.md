@@ -1,0 +1,2 @@
+Artículo XVIII.
+Es convenido que el vapor ó vapores con que Morenas establezca las comunicaciones á que este contrato se refiere, tendrán las condiciones de comodidad y capacidad que un buen servicio reclame, y navegación con una velocidad no menos de ocho millas por hora y con bandera francesa, la cual no podrá cambiarse en ningún tiempo por la de cualquiera otra nación, sin el consentimiento expreso del Gobierno de Costa Rica.

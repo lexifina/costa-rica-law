@@ -1,0 +1,2 @@
+Artículo XIX.
+El presente contrato no podrá transferirse á ninguna otra persona ó compañía, sin la autorización del Gobierno de Costa Rica, y en ningún caso ni bajo ningún concepto á Gobierno alguno extranjero. Si la nueva compañía ó comprador o compradores no dieren fiel cumplimiento á las estipulaciones consignadas, por el mismo hecho se considerará rescindido este contrato por parte del Gobierno de Costa Rica, sin lugar á reclamo.

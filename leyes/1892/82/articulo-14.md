@@ -1,0 +1,2 @@
+Artículo XIV.
+Si por equivocación ó por olvido los vapores del concesionario dejaren en Puntarenas ó en Santo Domingo (Golfo Dulce), correspondencia ó mercaderías destinadas á otros puertos, ó se vieren obligados á desembarcarlas para ser reembarcada por cualquier otro vapor, el Gobierno de Costa Rica concede á la Empresa la facultad de hacerlo sin que tenga que pagar por ello derecho ó contribución alguna.

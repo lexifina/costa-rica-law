@@ -1,0 +1,2 @@
+Artículo IX
+El Gobierno de Costa Rica tiene el derecho de construir á bordo de los vapores del concesionario, y por todo el tiempo que éstos permanezcan en los puertos de Puntarenas y Santo Domingo, un empleado fiscal ó cualquiera otra autoridad, en guarda de las disposiciones que dictare sobre embarque y desembarque de pasajeros, mercaderías y correspondencia, siendo obligación del concesionario proveer al mantenimiento de este empleado durante su permanencia á bordo, guardándole las consideraciones inherentes al carácter que revista.

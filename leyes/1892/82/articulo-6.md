@@ -1,0 +1,2 @@
+Artículo VI.
+En los pasajes de los empleados públicos que viajen en comisión de servicios por cuenta del Gobierno, de los presos y guarniciones, así como en los fletes de los artículos pertenecientes al Gobierno, hará Morenas una rebaja de 25% sobre los precios de tarifa que rijan para los particulares, siendo entendido que tal rebaja se hará únicamente en vista de una orden escrita de la autoridad competente, que el interesado ó interesados deberán presentar al solicitar la rebaja.

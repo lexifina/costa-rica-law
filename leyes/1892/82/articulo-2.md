@@ -1,0 +1,2 @@
+Artículo II.
+El vapor ó vapores del concesionario deberán permanecer en los puertos de Puntarenas y Santo Domingo (Golfo Dulce) el tiempo necesario para desembarcar y embarcar los pasajeros, la correspondencia y la carga; pero en ningún caso excederá la detención de tres horas de luz, salvo la conveniencia del concesionario. Sin embargo, siempre que el Gobierno lo exigiere ó si se ofrece cara suficiente, los vapores permanecerán en los puertos durante seis horas de luz.
