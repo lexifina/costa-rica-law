@@ -1,0 +1,1 @@
+Articulo 24.—La policía de orden y seguridad que debe ser enviada al Teatro cada vez que se efectúe una representación, estará a la orden del Administrador, quien la distribuirá en los sitios que mejor convenga para la prestación de sus servicios.

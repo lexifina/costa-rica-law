@@ -1,0 +1,1 @@
+Articulo 5°—El Comité de Vigilancia estará integrado por cinco miembros que durarán, a partir de su nombramiento, dos años en el ejercicio de sus funciones, pudiendo ser reelectos para el periodo siguiente.
