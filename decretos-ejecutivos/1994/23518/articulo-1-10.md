@@ -1,3 +1,4 @@
+#
 Artículo 19.- En el caso de que un producto no cumpla con las normas
 de calidad establecidas y sin perjuicio de lo que establece el artículo
 anterior, el Ministerio podrá ordenar al registrante la REFORMULACION,

@@ -13,3 +13,4 @@ Reglamento Control Calidad Sustancias Químicas y Biológicas UsoAgricultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-08-16 | la propia norma |
+| 2 | 1994-08-16 | Decreto Ejecutivo 27973 (1998-05-19) |

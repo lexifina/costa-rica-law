@@ -1,3 +1,4 @@
+#
 Artículo 13.- Los agroquímicos formulados, sean procedentes del
 exterior o elaborados en nuestro país, podrán ser muestreados en
 cualquier puerto de entrada al país y/o en cualquier lugar del territorio
