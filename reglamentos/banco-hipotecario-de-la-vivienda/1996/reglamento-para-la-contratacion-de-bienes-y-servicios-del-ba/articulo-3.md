@@ -1,0 +1,1 @@
+Artículo 3°-Principios de la contratación administrativa: En materia de principios generales de los procedimientos de contratación administrativa se aplicarán los principios dispuestos en la Ley de Contratación Administrativa y su reglamento, incluyendo los principios de publicidad del programa de adquisiciones, de conservación e informalismo y el régimen de nulidades.

@@ -1,0 +1,1 @@
+Transitorio.-Las contrataciones que hubiere celebrado el BANHVI al amparo del Reglamento para la Contratación de Bienes y Servicios derogado por medio de estas disposiciones, se continuarán tramitando hasta su ejecución definitiva al amparo de dicha normativa."

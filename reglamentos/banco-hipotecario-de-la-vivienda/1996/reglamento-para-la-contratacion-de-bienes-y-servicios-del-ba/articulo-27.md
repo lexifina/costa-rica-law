@@ -1,0 +1,2 @@
+Artículo 27.-Recepción de ofertas: A la hora y fecha señaladas se tendrá por cerrado el plazo para la presentación de ofertas. Acto seguido se abrirán las ofertas y se levantará un Acta. Al acto de apertura asistirán al menos un funcionario del BANHVI de las áreas administrativa y legal.
+Posteriormente no se aceptarán modificaciones a las ofertas, con excepción de aquellas indicadas en el artículo siguiente.

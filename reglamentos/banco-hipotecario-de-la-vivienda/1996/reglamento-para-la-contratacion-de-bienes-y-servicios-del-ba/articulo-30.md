@@ -1,0 +1,1 @@
+Artículo 30.-Licitación internacional: Cuando así lo considere necesario la Junta Directiva del BANHVI, se podrá invitar a participar en la contratación a los oferentes extranjeros, mediante avisos publicados en diarios extranjeros o comunicación a legaciones extranjeras acreditadas en el país.

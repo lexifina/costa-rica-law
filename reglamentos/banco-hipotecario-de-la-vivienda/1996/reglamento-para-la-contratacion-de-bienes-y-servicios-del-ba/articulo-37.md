@@ -1,0 +1,3 @@
+Sección Quinta
+Contratación Directa
+Artículo 37.-Supuestos en que procede: Sin perjuicio de lo señalado en el artículo subsiguiente, se podrá utilizar el procedimiento de contratación directa en aquellos casos en que la contratación no supere el límite máximo establecido para tales efectos por la Superintendencia General de Entidades Financieras conforme a la legislación respectiva. Esta modalidad de contratación estará sometida a los principios generales, requisitos previos, derechos y obligaciones de las partes, controles y régimen de prohibiciones y sanciones previstos en las presentes normas.

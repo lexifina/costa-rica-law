@@ -1,0 +1,4 @@
+CAPITULO II
+Sobre el Registro de Proveedores
+Artículo 4°-Definición: El BANHVI contará con un registro de Acreedores en el cual estarán registradas todas las personas físicas y jurídicas que podrán participar en los procedimientos de contratación administrativa con dicha entidad en aquellos casos en que se requiera acudir a dicho registro según lo establecido en las presentes normas. El registro contendrá la información que se requiera para identificar plenamente a dichas personas, así como una descripción de los bienes y servicios que las mismas están en capacidad de ofrecer al BANHVI.
+El BANHVI podrá establecer con el Estado, los entes públicos descentralizados y las empresas públicas, acuerdos de intercambio de información de sus registros de proveedores, para actualizar y ampliar la información correspondiente.

@@ -1,0 +1,3 @@
+CAPITULO VI
+Prohibiciones y Sanciones
+Artículo 43.-Disposiciones aplicables: En materia de prohibiciones y sanciones se aplicarán las disposiciones de los capítulos V y X de la Ley de la Contratación Administrativa y su respectiva reglamentación. La incompatibilidad a que se refieren los incisos d) y e) del artículo 22 de la Ley de Contratación Administrativa podrá ser levantada por la Junta Directiva del BANHVI a solicitud formal del interesado, cuando demuestre que se dedica en forma habitual a desarrollar la actividad objeto de la contratación, al menos un año antes del surgimiento de la inhibición.

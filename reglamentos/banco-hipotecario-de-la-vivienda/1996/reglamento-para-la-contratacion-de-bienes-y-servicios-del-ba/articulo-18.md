@@ -1,0 +1,1 @@
+Artículo 18.-Cláusula penal: El procedimiento de contratación podrá contemplar cláusula penales por ejecución tardía o prematura y defectuosa, o multas por defectos en la ejecución. Para la aplicación de estas cláusulas no es necesario demostrar el daño. En el respectivo cartel se especificarán las condiciones del caso.

@@ -1,0 +1,1 @@
+Artículo 45.-Derogatoria: El presente Reglamento deroga el Reglamento para la Contratación de Bienes y Servicios del Banco Hipotecario de la Vivienda publicado en "La Gaceta" del 26 de agosto de 1993 y sus respectivas modificaciones.
