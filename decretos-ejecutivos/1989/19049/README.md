@@ -15,3 +15,4 @@ Reglamento sobre Manejo de Basuras
 | 1 | 1989-07-07 | la propia norma |
 | 2 | 1989-07-07 | SINALEVI (sin norma nombrada) |
 | 3 | 1998-11-13 | Decreto Ejecutivo 27443 (1998-11-13) |
+| 4 | 2003-07-03 | SINALEVI (sin norma nombrada) |
