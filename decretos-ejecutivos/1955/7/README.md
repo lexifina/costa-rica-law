@@ -19,3 +19,4 @@ Reglamento para Préstamos Hipotecarios del Instituto Nacional de Vivienda y Urb
 | 4 | 1983-12-05 | Reglamento 3489 (1983-12-05) |
 | 5 | 1984-02-06 | Reglamento 3504 (1984-02-06) |
 | 6 | 1984-03-26 | Reglamento 3517 (1984-03-26) |
+| 7 | 1988-11-07 | Reglamento 3869 (1988-11-07) |
