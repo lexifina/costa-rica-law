@@ -1,1 +1,0 @@
-Artículo 9°—La información producto del proceso de investigación solo podrá ser publicada si los respectivos expedientes se encuentran ubicados en los Archivos Técnicos (Temporal u Oficial) y debe cumplir con las disposiciones que en cuanto a publicaciones define este reglamento.

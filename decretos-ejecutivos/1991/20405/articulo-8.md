@@ -1,1 +1,0 @@
-Artículo 8°—Las investigaciones se considerarán oficialmente terminadas hasta que el expediente original se encuentre en el Archivo Técnico Oficial de la Dirección Nacional, Dirección Regional o Estación Experimental respectiva.

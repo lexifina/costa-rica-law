@@ -1,3 +1,0 @@
-Artículo 5°—Deberá existir como mínimo un expediente original por investigación, que se ubicará en la Dirección Nacional, Dirección Regional o Estación Experimental sede de trabajo del investigador responsable.
-La Dirección Nacional respectiva definirá el número de copias que deben de existir del expediente en las diferentes instancias nacionales o regionales. El mecanismo de flujo de documentos entre la instancia regional y nacional y viceversa, será normado según lo establece el Marco Operativo de la Regionalización.
-La Dirección Regional si considera necesario ubicar copias del expediente nivel local, lo definirá en forma interna.

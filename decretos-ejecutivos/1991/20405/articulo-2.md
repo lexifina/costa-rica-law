@@ -1,1 +1,0 @@
-Artículo 2°—La implantación y posterior supervisión de los Archivos Técnicos será coordinada por la Dirección Superior de Operaciones Agropecuarias (DSOA) por medio de la Sección de Archivos Técnicos del Programa de Información y Comunicación Agropecuaria.

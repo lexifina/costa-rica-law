@@ -1,1 +1,0 @@
-Artículo 3°—Cada Dirección Nacional, Dirección Regional o Estación Experimental definirá el lugar físico donde estará el Archivo Técnico y nombrará un encargado oficial del mismo, cuyas funciones están definidas en este Reglamento.
