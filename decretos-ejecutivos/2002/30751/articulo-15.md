@@ -1,0 +1,1 @@
+Artículo 15.—Colaboración de otras instituciones del Estado. Las instituciones del Estado involucradas en la aplicación y buena marcha del presente Reglamento deberán prestar la debida colaboración para su cumplimiento.

@@ -1,0 +1,1 @@
+Artículo 6°—Obligación de informar al MOPT. La empresa de RTV queda obligada a informarle mensualmente a la dependencia del MOPT correspondiente de las revisiones técnicas realizadas fuera de sus instalaciones a vehículos importados en el primer nivel de comercialización.

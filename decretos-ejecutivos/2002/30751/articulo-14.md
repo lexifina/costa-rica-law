@@ -1,0 +1,1 @@
+Artículo 14.—RTV en las instalaciones de la Empresa de RTV. Cuando el Distribuidor Autorizado opte por realizar la RTV completa de los vehículos nuevos en las instalaciones de la Empresa de RTV, la fecha y la hora de las citas se fijarán de mutuo acuerdo ante la imposibilidad de regirse por el procedimiento establecido del ultimo dígito del número de placa de matrícula.

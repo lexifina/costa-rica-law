@@ -1,0 +1,1 @@
+Artículo 2°—Objeto. El presente Reglamento regula la forma en que los vehículos nuevos importados en un primer nivel de comercialización podrán cumplir con la revisión técnica vehicular, ya sea en las estaciones de la Empresa de RTV o fuera de ellas.

@@ -1,0 +1,1 @@
+Artículo 5°—Documentos para la inscripción del vehículo. La empresa de RTV extenderá la documentación de RTV requerida para inscribir el vehículo en el Registro Nacional únicamente a los vehículos nuevos que se les compruebe la inexistencia de defectos, lo cual se hará en un plazo máximo de tres (3) días hábiles, salvo razones de fuerza mayor.
