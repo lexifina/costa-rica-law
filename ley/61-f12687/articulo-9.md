@@ -1,0 +1,1 @@
+Art 9° El Poder Ejecutivo ejercerá la suprema inspección en los establecimientos de enseñanza primaria, por medio de los Gobernadores, Jefes Políticos y de un Inspector de su libre nombramiento y remoción.

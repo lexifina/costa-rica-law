@@ -1,0 +1,1 @@
+Art 8° Los maestros de enseñanza primaria superior elemental, serán pagados por el Tesoro Nacional. Su nombramiento corresponde al Ejecutivo, a propuesta de las respectivas Municipales y previa oposición y examen. Su remoción, previa formación de causa, a la autoridad judicial competentes, y sin causa y libremente al mismo Poder Ejecutivo.

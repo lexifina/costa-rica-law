@@ -1,0 +1,1 @@
+Art 7° Todo costarricense o extranjero es libre para dar o recibir la enseñanza que a bien tenga en los establecimientos que no sean costeados por fondos públicos, sin perjuicio de la vigilancia de la autoridad sobre la moralidad y conveniencia de las costumbres y doctrinas de los institutores.
