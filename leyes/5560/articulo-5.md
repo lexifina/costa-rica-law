@@ -1,1 +1,0 @@
-Artículo 5º.- Cuando las personas que deban consentir el uso de los órganos o materiales anatómicos para fines de trasplante, no supieren o no pudieren firmar, la manifestación de voluntad deberá hacerse ante el Director del centro hospitalario o clínico correspondiente, que levantará una acta que debe firmar con dos testigos.
