@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que la ausencia del puesto se deba a suspensión derivada de medida cautelar producto de investigación administrativa o producto de alguna medida disciplinaria, sea cual fuere el periodo de la misma, el vehículo deberá ser depositado en la Unidad de Transportes del Instituto.

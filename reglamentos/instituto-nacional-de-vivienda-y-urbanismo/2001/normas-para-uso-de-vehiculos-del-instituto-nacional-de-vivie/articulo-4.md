@@ -1,0 +1,1 @@
+Artículo 4º—Todos los vehículos del INVU llevaran un rotulo visible en sus costados con el nombre y logotipo del INVU (artículo 223, Ley de Tránsito y sus reformas.) Se exceptúan de esta disposición aquellos vehículos que se destinen a uso discrecional (artículo 225, Ley de Tránsito y sus reformas).

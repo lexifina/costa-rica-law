@@ -1,0 +1,1 @@
+Artículo 10.—Dentro de las funciones de la Unidad está el mantener boletas de control y registro de cada vehículo, que refleja las características de los mismos: reparaciones, suministros de lubricantes, combustible, recorridos de kilometraje, etc.

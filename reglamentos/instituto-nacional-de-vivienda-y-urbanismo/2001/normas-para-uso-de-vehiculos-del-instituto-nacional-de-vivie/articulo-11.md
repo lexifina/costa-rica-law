@@ -1,0 +1,1 @@
+Artículo 11.—Para el mayor aprovechamiento de los recursos, la Unidad se reserva el derecho de agrupar en un solo servicio varias solicitudes a un mismo sitio o ruta, siempre y cuando las circunstancias lo permitan, dando aviso a los interesados para lograr la mejor coordinación del viaje; así como cualquier otra resolución que se oriente a un uso racional de los servicios.

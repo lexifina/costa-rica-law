@@ -1,0 +1,1 @@
+Artículo 40.—Cualquier alteración de la ruta programada en la "Solicitud de Vehículo", será responsabilidad absoluta y personal del conductor. Asimismo, la determinación de la posibilidad o imposibilidad de circulación del vehículo en malos o inaccesibles caminos y sus consecuencias será responsabilidad del mismo.

@@ -1,0 +1,1 @@
+Artículo 38.—La conducción de vehículos estará a cargo del personal que asigne el INVU, operadores de equipo móvil y demás funcionarios autorizados para tal efecto, quienes estaran obligados a portar, sin excepción, la licencia de conducir al día y los documentos de autorización respectivos.

@@ -1,0 +1,1 @@
+Artículo 45.—Todos los funcionarios del INVU están obligados a reportar a la Unidad toda irregularidad que se observe en la utilización de los servicios señalando fecha, hora, lugar y numero de placa del vehículo Inculpado a fin de establecer las responsabilidades del caso y aplicar las sanciones correspondientes.

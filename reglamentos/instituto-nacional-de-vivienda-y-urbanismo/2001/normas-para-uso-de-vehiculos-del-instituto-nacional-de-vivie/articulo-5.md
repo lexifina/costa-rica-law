@@ -1,0 +1,1 @@
+Artículo 5º—Los vehículos propiedad del INVU son uso oficial, los mismos deberán ser utilizados en actividades propias del funcionamiento del INVU, por lo tanto los mismos no podrán ser cedidos a personas físicas o jurídicas ajenas a la Institución.

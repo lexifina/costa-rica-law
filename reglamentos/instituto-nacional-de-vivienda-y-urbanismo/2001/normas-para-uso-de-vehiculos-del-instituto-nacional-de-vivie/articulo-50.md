@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Prohibiciones y sanciones
+Artículo 50.—Esta prohibido al personal del INVU, salvo casos de fuerza mayor o que exista previa autorización para ello, ceder la conducción del vehículo a los usuarios. De presentarse esta situación, deberá de informar de inmediato por escrito a su regreso, las razones que le indujeron a ceder la conducción de automotor, de lo contrario se hará acreedor de las sanciones correspondientes, asimismo todo conductor deberá acatar estrictamente los periodos de tiempo asignados que fijan las "Solicitudes de Vehículo" En caso de accidente de transito, es igualmente responsable quien permita a otra persona conducir el vehículo oficial sin causa justificada o sin la debida autorización (artículo 238 de la Ley de Tránsito).

@@ -1,0 +1,1 @@
+Artículo 19.—Las facilidades o ventajas que haya representado o represente para los funcionarios o empleados el uso de vehículos oficiales discrecionales, no serán parte del respectivo contrato de trabajo.

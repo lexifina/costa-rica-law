@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 67.—Cualquier situación que se presente y que no esté prevista por este Reglamento, la Gerencia, resolverá transitoriamente, ya sea mediante soluciones concretas, mediante circulares de carácter general; todo sin perjuicio de que posteriormente, por medio de modificaciones aclaraciones o rectificaciones de la Junta Directiva, se adicione al Reglamento vigente y será competencia de la Gerencia General emitir el Instructivo necesario para su aplicación.

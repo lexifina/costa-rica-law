@@ -1,0 +1,1 @@
+Artículo 42.—Los vehículos asignados a las Oficinas Regionales u otras dependencias por desconcentración administrativa, deberán cumplir todas las disposiciones establecidas en este Reglamento y estarán bajo la responsabilidad del Encargado de la Región o dependencia, asimismo es su deber recomendar la cantidad de combustible necesario a utilizar mensualmente.

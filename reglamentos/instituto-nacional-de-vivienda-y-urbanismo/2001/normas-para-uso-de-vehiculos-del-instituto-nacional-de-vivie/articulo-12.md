@@ -1,0 +1,1 @@
+Artículo 12.—El uso del servicio de transportes estará regulado por las disposiciones del presente Reglamento, que señala deberes, responsabilidades y sanciones de los funcionarios en relación con la conservación y buena utilización de los automotores del INVU.

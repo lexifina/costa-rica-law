@@ -1,0 +1,1 @@
+Artículo 23.—Los funcionarios responsables de estos vehículos, deberán velar por que estos se sometan a las reparaciones que necesiten, porten los aditamentos necesarios y cumplan con los requerimientos legales necesarios para su circulación.

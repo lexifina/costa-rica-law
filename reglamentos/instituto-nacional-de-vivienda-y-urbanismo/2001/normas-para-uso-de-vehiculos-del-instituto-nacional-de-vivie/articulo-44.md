@@ -1,0 +1,1 @@
+Artículo 44.—Todos los conductores están obligados de informar a la Unidad sobre cada servicio realizado, por medio de la formula "Movimiento Diario de Vehículos", contando para ello con un plazo máximo de 24 horas despajes de finalizado el servicio.

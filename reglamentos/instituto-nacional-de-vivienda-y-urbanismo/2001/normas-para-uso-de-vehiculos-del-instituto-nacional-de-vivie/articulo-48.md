@@ -1,0 +1,1 @@
+Artículo 48.—Los usuarios del servicio de transporte deberán proyectar un comportamiento digno y decoroso, propio de los funcionarios del INVU. Los chóferes deberán usar completo y correctamente el uniforme. Por tanto es prohibido viajar en el vehículo usando camisetas sin mangas o pantalones cortos.

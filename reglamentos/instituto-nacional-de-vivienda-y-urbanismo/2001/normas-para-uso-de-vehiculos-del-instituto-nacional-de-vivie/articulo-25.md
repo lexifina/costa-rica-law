@@ -1,0 +1,2 @@
+Artículo 25.—Los controles que al menos se ejercerán sobre este tipo de vehículos, deben referirse a: asignación de vehículos con esta categoría, kilometraje recorrido por periodo, consumo de combustible por periodo, reparación y mantenimiento, seguros, y estado físico (carrocería, llantas, motor, herramientas y demás piezas complementarias).
+Corresponde al Proceso de Transportes asignada para tales efectos velar porque los vehículos se encuentren en buen estado de funcionamiento y otros, que impida el mínimo riesgo a la salud y vida de los usuarios.

@@ -1,0 +1,1 @@
+Artículo 18.—Cada vehículo únicamente podrá ser utilizado por el funcionario que tiene derecho a este en razón del cargo que ostenta, en estricto cumplimiento de las funciones propias del mismo y en ningún caso por otra persona ajena a la Institución.

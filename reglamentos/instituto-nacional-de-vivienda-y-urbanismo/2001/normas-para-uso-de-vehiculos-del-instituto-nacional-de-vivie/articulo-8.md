@@ -1,0 +1,3 @@
+Artículo 8º—Además corresponde a esta Unidad lo siguiente.
+a. Llevar los registros y controles que permitan conocer con exactitud el estado en que se encuentran los vehículos, antes y después de cada servicio y proceder con los trámites del caso cuando aparecieran daños imputables al funcionario responsable del vehículo durante el respectivo servicio, para lo cual se utilizarán las boletas confeccionadas para tal efecto.
+b. Llevar los registros necesarios para el control de todos los aspectos relacionados con el vehículo y los operadores de equipo móvil, utilizando para ello las fórmulas confeccionadas para ese fin.

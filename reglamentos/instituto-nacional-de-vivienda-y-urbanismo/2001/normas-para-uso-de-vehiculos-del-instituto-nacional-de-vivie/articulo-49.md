@@ -1,0 +1,1 @@
+Artículo 49.—Los conductores son responsables de la buena conservación de todas las pertenencias de los vehículos para su funcionamiento y control, así como también de aquellas herramientas o implementos que le son entregados.

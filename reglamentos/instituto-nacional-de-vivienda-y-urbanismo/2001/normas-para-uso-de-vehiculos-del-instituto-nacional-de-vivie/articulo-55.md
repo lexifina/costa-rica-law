@@ -1,0 +1,1 @@
+Artículo 55.—El conductor que por olvido o negligencia permita que su vehículo se quede varado será acreedor a las sanciones correspondientes, dependiendo de la reincidencia o gravedad de la falta. Dicha actitud del funcionario será catalogada como falta grave de servicio.

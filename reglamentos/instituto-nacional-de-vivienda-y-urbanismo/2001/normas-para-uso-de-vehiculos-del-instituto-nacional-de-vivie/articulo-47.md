@@ -1,0 +1,1 @@
+Artículo 47.—Es obligación de todos los operadores de equipo móvil y demás funcionarios autorizados, conducir con precaución, moderación, prudencia y cuidado para conservar los vehículos en óptimas condiciones.

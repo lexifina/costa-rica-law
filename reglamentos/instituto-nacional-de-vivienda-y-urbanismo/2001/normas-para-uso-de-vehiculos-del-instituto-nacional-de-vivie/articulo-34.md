@@ -1,0 +1,1 @@
+Artículo 34.—Únicamente en casos de excepción calificada, un vehículo de uso administrativo podrá ser guardado en casas de habitación de funcionarios o particulares, previa aprobación de la Presidencia, la Gerencia, el Proceso de Servicios Generales o el Jefe del Área al cual se asignó el vehículo.

@@ -1,0 +1,1 @@
+Artículo 52.—Los conductores no pueden, por ninguna circunstancia, ingerir bebidas alcohó1icas, narcotranquilizantes o cualquier otro tipo de droga, salvo aquellas que han sido suministrados bajo receta medica, durante la jornada laboral o fuera de esta en el caso de que conduzcan vehículos del INVU. Asimismo, es prohibido fumar dentro de los vehículos de la Institución.
