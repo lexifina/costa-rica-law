@@ -1,0 +1,1 @@
+Artículo 6º. – Las conferencias estarán abiertas a toda clase de auditorio y serán enteramente gratuitas para el público, al cual no deberá pedírsele ningún requisito de matrícula o de formación académica previa.

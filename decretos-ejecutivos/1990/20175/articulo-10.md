@@ -1,0 +1,1 @@
+Artículo 10º. – Las cátedras del Colegio no tendrán un carácter permanente, sino que serán creadas de acuerdo con la disponibilidad de talentos y con el interés despertado por cada materia específica.

@@ -1,0 +1,1 @@
+Artículo 7º. – Las enseñanzas impartidas en el Colegio de Costa Rica, no tendrán el otorgamiento o la obtención de grados académicos de ninguna especie; pero cuando se imparten conferencias o se realicen congresos o seminarios podrá otorgar certificados de participación.

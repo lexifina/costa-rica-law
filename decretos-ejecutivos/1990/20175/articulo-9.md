@@ -1,0 +1,1 @@
+Artículo 9º. – El Ministerio de Cultura Juventud y Deportes procurará que en las delegaciones que el Gobierno envíe a reuniones de organismos culturales internacionales, figure un miembro del Colegio de Costa Rica.

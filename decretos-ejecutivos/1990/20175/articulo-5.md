@@ -1,0 +1,1 @@
+Artículo 5º. – El instrumento principal de trabajo del Colegio de Costa Rica serán las conferencias dictadas en su sede, en otros sitios públicos y a través de los medios de comunicación colectiva, sin perjuicio de que cuente con otros medios de divulgación.
