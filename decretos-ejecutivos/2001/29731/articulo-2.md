@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones que conforman el Sector Salud darán a conocer a las comunidades, los programas y proyectos que tengan como resultado el mejoramiento de la calidad en las diferentes áreas que competen a cada institución.
