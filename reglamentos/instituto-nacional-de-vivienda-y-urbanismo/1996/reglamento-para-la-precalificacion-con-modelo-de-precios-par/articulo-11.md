@@ -1,0 +1,1 @@
+Artículo 11.-Las ofertas. El plazo de recepción de ofertas, su nido, forma, vigencia, precio, requisitos y formas de representación, se regirán por las disposiciones correspondientes del Reglamento General de Contratación Administrativa.

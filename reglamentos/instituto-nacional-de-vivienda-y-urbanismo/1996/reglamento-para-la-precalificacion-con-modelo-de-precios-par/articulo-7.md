@@ -1,0 +1,1 @@
+Artículo 7°-Inicio de los procedimientos. La decisión inicial para el inicio de los procedimientos de precalificación con modelo de precios la adoptará el Subgerente General, previa realización de los estudios técnicos correspondientes y la preparación del cartel por parte del Departamentos de Proveeduría y la Dirección de Proyectos.

@@ -1,0 +1,1 @@
+Artículo 12.-Apertura y calificación. La apertura de ofertas y su análisis y calificación estarán regídas por los principios de la Ley de Contratación Administrativa y su Reglamento General, y se aplicarán además los mecanismos de subsanación allí previstos.

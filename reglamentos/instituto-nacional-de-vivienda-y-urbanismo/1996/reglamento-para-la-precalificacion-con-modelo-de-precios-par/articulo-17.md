@@ -1,0 +1,1 @@
+Artículo 17.-Recursos. Contra la precalificación procederán los recursos que disponga la Ley de Contratación Administrativa, según la estimación total de los proyectos comprendidos dentro del concurso.

@@ -1,0 +1,1 @@
+Artículo 23.- Garantías, retenciones y cláusulas penales. Para efectos de garantizar el debido cumplimiento de la ejecución contractual, el INVU podrá establecer las garantías, porcentajes de retención y cláusulas penales que contempla el Reglamento General de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 21.-Recepción de obras. En la recepción de obras se aplicarán las regulaciones pertinentes del Reglamento General de Contratación Administrativa. En todo caso se firmará un finiquito contractual que se hará del conocimiento de la Junta Directiva.

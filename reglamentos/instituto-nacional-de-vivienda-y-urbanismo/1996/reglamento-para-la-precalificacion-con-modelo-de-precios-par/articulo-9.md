@@ -1,0 +1,1 @@
+Artículo 9°-Categorías de empresas. El cartel podrá contemplar la clasificación de las empresas participantes en categorías, de acuerdo con el puntaje final obtenido, de modo que dependiendo de la categoría alcanzada, la empresa únicamente podrá ser invitada a presentar ofertas para la ejecución de los proyectos correspondientes a su categoría.

@@ -1,0 +1,1 @@
+Artículo 6°-Precios máximos. Los precios o tarifas aprobados por la Contraloría General de la República se entenderán como máximos, lo que permitirá al INVU adjudicar por precios menores, cuando así lo permitan las circunstancias.
