@@ -1,0 +1,1 @@
+Artículo 8° Si las partes hubieren estado conformes en la estimación del inmueble, se prescindirá del avalúo judicial, y en tal caso, el juez o Alcalde prevendrá al deudor que consigne la suma dentro del cuarenta y ocho horas. Si así lo hiciere, se procederá como lo indica el artículo 6° y si no, se tendrá por desistida la demanda y se aplicará el artículo 7°.

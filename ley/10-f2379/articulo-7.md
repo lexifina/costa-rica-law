@@ -1,0 +1,2 @@
+Artículo 7° Si al deudor no conviniere el avaluó, podrá desistir de su demanda, pero si así lo hiciere, no podrá acudir de nuevo a este recurso de liberación, ni podrá tampoco hacerlo ninguno de sus sucesores en la propiedad del terreno.
+El simple transcurso de tres días hábiles, contados desde que se le notificare el avalúo definitivo, sin que el interesado haya consignado la suma en el juzgado o Alcaldía, se tendrá por desistimiento.

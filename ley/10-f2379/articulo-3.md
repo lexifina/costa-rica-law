@@ -1,0 +1,4 @@
+Artículo 3° El Juez o Alcalde, prevendrá al deudor y acreedor, que cada uno elija un perito, y él nombrará un tercero. Si pasados tres días después de notificada la prevención, alguna de las partes no hubiere hecho la elección de su perito, el juez o Alcalde nombrará el que corresponda al remiso.
+Si hubiere más de un acreedor, el perito será elegido conjuntamente por los hipotecarios pero si éstos no se pusieren de acuerdo, el Juez o Alcalde sorteará entre los puestos por los diversos acreedores. El Sorteo se hará en la hora y el día que la resolución determine con el objeto, y con citación de partes.
+Cuando siendo varios los acreedores, alguno o algunos de ellos no hicieren su indicación de perito, se tendrá por perito común de los hipotecarios, el que hubieren nombrado el otro acreedor o demás acreedores.
+Si las partes se pusieren de acuerdo en el nombramiento de un solo perito, el Juez o Alcalde, no elegirá el tercero.
