@@ -1,1 +1,0 @@
-Artículo 12.—Derogúese el decreto ejecutivo N 5463-SPPS del 5 de diciembre de 1975, con sus reformas N 24396-S del 6 de junio de 1995 y N 26523-S del 7 de noviembre de 1997 y todas aquellas disposiciones que se opongan a las normas y principios que se establecen en este decreto.
