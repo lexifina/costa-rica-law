@@ -1,0 +1,1 @@
+Art 2° Si a consecuencia de los embarazos puestos al descarrilamiento llegare a verificarse, resultado herida o confusiones de una o más personas, se impondrán al reo las penas que según las leyes merezcan por heridas o confusiones con circunstancias de asesinato, además de las que establezca el artículo anterior.
