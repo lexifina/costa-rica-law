@@ -1,0 +1,1 @@
+Articulo 2°—Las dependencias del sector público, tanto del sector centralizado como descentralizado e instituciones privadas, podrán colaborar en la realización de dicha actividad, dentro de los límites legalmente establecidos y sin perjuicio del cumplimiento de sus propios objetivos.
