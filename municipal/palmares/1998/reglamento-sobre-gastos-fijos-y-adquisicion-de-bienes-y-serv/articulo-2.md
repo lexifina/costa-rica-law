@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Alcalde Municipal, para realizar compras o adquisición de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Palmares actúe como parte, hasta por la suma de trescientos mil colones.
