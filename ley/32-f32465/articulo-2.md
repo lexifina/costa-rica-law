@@ -1,0 +1,1 @@
+Artículo II.-Los señores García y Bejarano enseñarán prácticamente sus sistemas de cultivo y la aplicación de las máquinas é instrumentos que empleen, para lo cual el Poder Ejecutivo indicará, de acuerdo con los interesados, las horas y el tiempo en que deba darse la enseñanza.
