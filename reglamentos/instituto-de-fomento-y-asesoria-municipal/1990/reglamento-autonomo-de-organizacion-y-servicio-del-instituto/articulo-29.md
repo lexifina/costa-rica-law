@@ -25,3 +25,5 @@ m- Recibir gratificaciones, de cualquier naturaleza que sean, por razón de sus 
 n- Visitar oíros lugares o unidades que no sean aquellos en donde deben prestar sus servicios. A menos que lo exijan las necesidades del trabajo, así como mantener conversaciones innecesarias con compañeros de trabajo o con terceras personas en perjuicio o con demora de las labores que están ejecutando.
 ñ- Hacer colectas, rifas o ventas de objetos, dentro de los locales en donde prestan, sus servicios y en horas de trabajo, así como propiciar dichos eventos.
 o- Fumar dentro de las instalaciones que conforma el centro de trabajo, salvo en aquellos lugares que la administración destine para tal efecto.
+p- Utilizar el equipo electrónico de la Institución, para observar o reproducir pornografía, así como exhibir material pornográfico dentro de las instalaciones físicas de la institución. El incumplimiento a esta disposición será considerado falta grave y acarreará despido sin responsabilidad patronal, previo debido proceso.
+(Así adicionado el inciso anterior mediante sesión N° 3123 del 17 de setiembre del 2001).
