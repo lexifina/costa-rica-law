@@ -1,0 +1,2 @@
+Artículo 180.- Una vez que se produzca la resolución de la Contraloría General de la República que fija la contribución del Estado al pago de los gastos de los partidos políticos, el Poder Ejecutivo tomará las medidas pertinentes a efecto de incluir en el proyecto de Ley de Presupuesto que ha de regir en el año en que se llevan a cabo las elecciones, la partida correspondiente, y para darle sustento económico podrá emitir títulos de la Deuda Pública , hasta por el monto fijado por la Contraloría .
+(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)

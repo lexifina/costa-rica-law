@@ -1,0 +1,2 @@
+Artículo 181.- Los bonos se denominarán "Bonos Deuda Política" y llevarán la indicación del año de la elecciones a que corresponden y el tipo de interés que devengarán. Dicho tipo de interés deberá ser igual al que corresponda a la última emisión de bonos hecha por el Estado y con anterioridad a ésta. Los bonos tendrán la garantía plena del Estado y estarán exentos, así como sus intereses, de todo impuesto presente y futuro. Tendrán la fecha que corresponda al día de las elecciones.
+(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)

@@ -1,0 +1,2 @@
+Artículo 185.- El Banco Central de Costa Rica será el encargado, como Agente Fiscal, de la atención y pago de los bonos y cupones de-intereses de pago de la Deuda Política y del manejo de la contabilidad de ellos, de acuerdo con lo dispuesto en el artículo 121 de su Ley Orgánica. El Banco sólo estará obligado a atender el servicio de dichos valores, cuando se le haga traspaso oportuno de los fondos necesarios para ese fin.
+(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
