@@ -1,0 +1,1 @@
+Artículo 16.—Periodicidad. La Junta se reunirá en sesión ordinaria una vez por semana y designará el día de sesión mediante acuerdo específico. Para celebrar sesión ordinaria no hará falta convocatoria especial, si el día fijado para sesionar lo es para todas las sesiones del año.

@@ -1,0 +1,9 @@
+Artículo 2º—Nombramientos: Tal y como lo regulan las leyes N° 5507 y N° 1917 los miembros de Junta Directiva electos de acuerdo con el inciso b) anterior, se regirán por las reglas que se resumen de la siguiente manera:
+a) Serán nombrados por períodos de ocho años, a partir del 1º de junio del año en que corresponda.
+b) Su nombramiento debe efectuarse en los últimos quince días del mes de mayo del mismo año.
+c) Cualquiera de los miembros de las Juntas Directivas puede ser reelecto.
+d) Una vez hecho el nombramiento de los directores y que éstos hayan entrado en funciones, el Consejo de Gobierno no podrá revocarlos si no es con base en información de la Contraloría General de la República, en la que se ponga de manifiesto que hay causa para ello conforme a las disposiciones legales y/o reglamentarias correspondientes.
+e) La renovación de los nombramientos de los directores se hará por mitades de modo que después de cada cambio de Gobierno se procederá a nombrar tres de los directores de cada Junta Directiva.
+f) El Consejo de Gobierno de acuerdo con el párrafo anterior, después de cada cambio de Gobierno, renovará el nombramiento de tres o los cuatro directores según corresponda, cuyo período de ocho años se venza.
+En todo caso la sustitución y nombramiento por renuncia, remoción justificada o por cualquier otra causa, se hará dentro del término de quince días y para el resto del período legal, siguiendo las normas establecidas en este artículo.
+En el caso de que el Consejo de Gobierno se separe de esta norma, los nombramientos que haga de los nuevos directores son nulos y los que hubieren sido separados de sus cargos sin esa previa información, se mantendrán en sus puestos por el resto de su período legal o hasta que la Contraloría General de la República encuentre que hay lugar a su separación.

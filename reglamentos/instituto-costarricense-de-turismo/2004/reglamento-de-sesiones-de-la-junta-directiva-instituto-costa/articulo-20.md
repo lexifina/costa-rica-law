@@ -1,0 +1,3 @@
+Artículo 20.—Quórum para sesionar. El quórum para que pueda sesionar válidamente la Junta Directiva lo integran cuatro miembros.
+Las sesiones de la Junta Directiva deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto, conforme al reloj oficial de la Junta. Pasados los treinta minutos indicados, si no hubiere quórum, se dejará constando en el libro de actas el nombre de los directores presentes. Verificado lo anterior, la Junta Directiva podrá sesiona válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera.
+En casos de urgencia, la Junta podrá sesionar después de media hora de la hora señalada para la primera convocatoria y para ello será suficiente la asistencia de tres de los miembros.

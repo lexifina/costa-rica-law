@@ -1,0 +1,3 @@
+Artículo 28.—Dietas. Las dietas que devengarán los miembros de Junta Directiva por sesión, serán las que estipula la Ley 3065 y sus reformas. Al mes no se podrá remunerar más de ocho sesiones, entre ordinarias y extraordinarias, siempre y cuando estas últimas sean necesarias. Las dietas se incluirán en el presupuesto de la Institución y no podrá sobrepasar en monto del límite legal. La suma de dietas en un año, se tomarán en cuenta para la determinación del aguinaldo.
+Para que un director tenga derecho a devengar la dieta respectiva, deberá participar al menos en tres cuartas partes de la sesión.
+Al director que no asistiera a una sesión, no se le reconocerá la dieta respectiva a la misma.

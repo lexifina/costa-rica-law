@@ -1,0 +1,25 @@
+Artículo 3º—Atribuciones de la Junta Directiva. Son atribuciones y deberes de la Junta Directiva.
+a) Definir la periodicidad de las sesiones que debe realizar de acuerdo con la ley y en atención a la cantidad y urgencia de los asuntos que atender y las necesidades institucionales.
+b) Establecer la política del Instituto y velar por la realización de los .fines que le encomienda su Ley constitutiva y otras leyes y reglamentos conexos.
+c) Establecer la estructura organizativa de la Institución, así como sus modificaciones, y la creación de sucursales en otros lugares del país y fuera de él.
+d) Nombrar, suspender, remover o sustituir temporalmente al Gerente, a Auditor y al Secretario de Actas de la Junta Directiva.
+e) Designar a los miembros de su seno que integrarán los Consejos y Comisiones adscritas a este instituto, creadas por leyes especiales.
+f) Designar a los integrantes de Consejos y Comisiones, misiones y representaciones que correspondan, los cuales deban ser nombrados por disposición expresa de ley o acuerdo ejecutivo, en relación con temas o asuntos de competencia del Instituto.
+g) Constituir comisiones especiales de trabajo, permanentes o temporales, de su seno o con participación de otros servidores.
+h) Aprobar el presupuesto ordinario, los presupuestos extraordinarios y las modificaciones presupuestarias, internas y externas, así como la liquidación presupuestaria y la memorial anual de la Institución y conocer los informes contables y presupuestarios correspondientes.
+i) Dictar su propio reglamento y aprobar los reglamentos de organización y funcionamiento del Instituto. Someter a la aprobación del Poder Ejecutivo los proyectos de reglamentos vinculados a la actividad turística.
+j) Aprobar la estructura orgánica y ocupacional, incluyendo las clases de puestos y su correspondiente valoración salarial, de previo a ser sometida a conocimiento de la Autoridad Presupuestaria
+k) Autorizar la contratación de empréstitos nacionales, internacionales o extranjeros, para el cumplimiento de sus fines.
+l) Aprobar previamente las negociaciones que por su cuantía o naturaleza, sean adjudicarles por licitación pública o por registro, los gastos de viaje al exterior de sus funcionarios y aquellas cuyo concepto no esté expresamente definido dentro del objeto del gasto o dentro de los programas de publicidad y promoción del Instituto.
+m) Conocer y resolver de oficio o a instancia de parte, los recursos administrativos que se presenten en contra de las resoluciones o actos adoptados por el Presidente Ejecutivo, el Gerente o el Auditor.
+n) Autorizar la adquisición, constitución de hipoteca o gravámenes de bienes inmuebles y la enajenación de bienes muebles.
+o) Poner en conocimiento del Consejo de Gobierno, el hecho de la ausencia del Presidente Ejecutivo por más de un mes, para que decida si designa un Presidente Ejecutivo interino.
+p) Autorizar el texto de anteproyectos de ley y dictámenes que remita el ICT por los medios pertinentes a la Asamblea Legislativa; asimismo deberá pronunciarse sobre los proyectos de ley que le sean remitidos por la Asamblea Legislativa, siempre y cuando se refieran a la materia especial para la cual se creó el ICT o bien, que lo afecten estructuralmente.
+q) Velar por que el Presidente Ejecutivo o el Gerente según corresponda, ejecuten o hagan ejecutar sus acuerdos. Igualmente podrá encomendar directamente a determinado Departamentos Sección, que se aboque a la elaboración o estudio de proyectos de cualquier índole afín con sus funciones. Lo anterior rige también tratándose de funciones permanentes.
+r) Delegar la instrucción de asuntos que deba resolver como función, para un acto determinado.
+s) Avocarse en el conocimiento de cualquier asunto de competencia de un servidor de inferior jerarquía, por razones de oportunidad o legalidad, respecto de los cuales ejerce control jerárquico. Lo anterior en las condiciones que determina la ley.
+t) Autorizar las ausencias y las salidas al exterior del Presidente Ejecutivo cuando éstas sean por un período mayor de ocho días.
+u) Ejercer las demás funciones que le corresponden de conformidad con la ley y los reglamentos.
+v) Analizar de inmediato, las observaciones, recomendaciones y disposiciones formuladas por la auditoria general, la Contraloría General de la República, la auditoria externa y cualquier otra institución de control y .fiscalización que correspondan.
+w) Asegurarse de que los sistemas de control interno cumplan al menos con lo establecido en los artículos 7, 13, 14, 15, 16 y 17 de la Ley General de Control Interno.
+El acuerdo que se adopte para nombrar al Auditor, deberá de contar con la aprobación de la Contraloría General de la República, según el artículo 31 de la Ley General de Control Interno. En caso de suspensión o remoción de dicho funcionario, deberá de existir justa causa y previa formación de expediente, con oportunidad suficiente de audiencia y defensa en su favor, así como dictamen previo favorable de la Contraloría General de la República, de conformidad con el artículo 15 de la Ley Orgánica de dicho ente.

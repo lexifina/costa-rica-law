@@ -1,0 +1,2 @@
+Artículo 19.—Privacidad de las sesiones. Las sesiones de la Junta serán siempre privadas salvo que, los miembros presentes acuerden por unanimidad, que el público en general o ciertas personas, puedan tener acceso a la sesión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+Cualquier funcionario o empleado del ICT está obligado a asistir a las sesiones de la Junta Directiva, cuando fuere citado por la Junta o el Presidente, con el propósito de verter criterio técnico sobre algún asunto o simplemente brindar mayor información.
