@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de presupuesto del MAG, para el cumplimiento de sus fines tendrá la facultad de solicitar en el tiempo y forma que se determine, los documentos, información y colaboración a los funcionarios del Ministerio, responsables de la gestión administrativa de los fondos públicos que estén bajo la responsabilidad de la custodia y/o tutela del MAG.

@@ -1,0 +1,1 @@
+Artículo 9º—Corresponderá a la Comisión de Presupuesto, velar porque las funciones asignadas al Oficial Presupuestal y a la Unidad de Planificación Estratégica, en cuanto al proceso presupuestario, sean ejecutadas en forma coordinada, eficiente y eficaz.
