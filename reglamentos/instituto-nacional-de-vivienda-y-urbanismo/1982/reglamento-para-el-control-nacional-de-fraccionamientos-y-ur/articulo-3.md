@@ -141,8 +141,10 @@ Industrial | 10 %
 Turístico | 20 %
 Multifamiliares | 20 %
 En el caso de fraccionamientos y urbanizaciones residenciales fuera de distritos urbanos, el INVU y la Municipalidad en forma conjunta, podrán reducir este porcentaje hasta el 5 °/o en el primer caso y el 10 °/o en el segundo. En proyectos turísticos cuando los terrenos comprenden zona marítimo terrestre, por lo menos la mitad del área a ceder deberá colindar con la zona de atracción turística, a juicio del I.C.T. y en no menos de un décimo (1/10 de la longitud de dicha colindancia).
-III.3.6.1.3 Del porcentaje citado, en los desarrollos industriales, comerciales y en los residenciales de baja densidad (menos de 80 hab./ha), se ubicará necesariamente en el sitio de la urbanización un tercio y podrán negociarse los otros dos tercios con el municipio, para que éste invierta el dinero en la compra de terrenos para uso comunal en otros sitios, todo de acuerdo con el artículo 41 de la Ley de Planificación Urbana. En estos casos, se deberá contar con el avalúo de Tributación Directa y recabar la autorización de la negociación a la Dirección de Urbanismo y a la Contraloría General de la República.
+III.3.6.1.3 Del porcentaje citado, en los desarrollos industriales, comerciales y en los residenciales de baja densidad (menos de 80 hab./ha), se ubicará necesariamente en el sitio de la urbanización un tercio y podrán negociarse los otros dos tercios con el municipio, para que éste invierta el dinero en la compra de terrenos para uso comunal en otros sitios, todo de acuerdo con el artículo 41 de la Ley de Planificación Urbana.
+En estos casos, se deberá contar con el avalúo de Tributación Directa y recabar la autorización de la negociación de la Dirección de Urbanismo.
 El dinero que se obtenga deberá invertirse en mejorar áreas comunales existentes o en la compra de nuevos terrenos para este uso donde se hayan reservado o se consideren necesarios.
+(Así reformado parcialmente por acuerdo de Junta Directiva, en su sesión de 17 de marzo de 1986, el cual modificó el párrafo 2°)
 III.3.6.2 Áreas Verdes :
 III.3.6.2.1 La porción del área que se ubique en la urbanización deberá destinarse prioritariamente a juegos infantiles y parque.
 Lo necesario para estos usos se calculará así : por lote o casa 10 m2/ para juegos infantiles.

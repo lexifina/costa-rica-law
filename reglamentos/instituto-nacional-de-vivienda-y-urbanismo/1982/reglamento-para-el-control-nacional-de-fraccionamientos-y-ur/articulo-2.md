@@ -27,5 +27,7 @@ Todo fraccionador de terrenos cederá gratuitamente para áreas verdes y equipam
 *1 Ver glosario de términos.
 II.3.1 La Municipalidad utilizará el área pública cedida según el orden de dotación indicado en el Artículo III.3.
 II.3.2 Servicios Particulares: Se aplicará lo indicado en el artículo III.3.6.3.2.
-Todas las áreas de uso público deberán ser traspasadas a favor del dominio municipal. No obstante, cuando éstas sean menores de 250 m2, el fraccionador deberá cancelar a la Municipalidad, en dinero el valor equivalente dentro del plazo que se le fije. En áreas mayores a los 250 m2 la cesión de las áreas públicas se dará en el sitio, pudiendo sin embargo, ser negociada a juicio de la Municipalidad, previa consulta al INVU y a la Contraloría.
-Las sumas que perciba el Municipio por el concepto indicado serán destinadas exclusivamente a la adquisición y mantenimiento de terrenos para uso público en sectores donde éstos hagan falta. Las áreas para servicios particulares deberán dejarse en todos los fraccionamientos.
+Todas las áreas de uso público deberán ser traspasadas a favor del dominio municipal. No obstante, cuando éstas sean menores de 250 metros cuadrados, el fraccionador deberá cancelar a la Municipalidad, en dinero, el valor equivalente dentro del plazo que se le fije. En áreas mayores a los 250 metros cuadrados la cesión de áreas públicas se dará en el sitio, pudiendo sin embargo ser negociada a juicio de la Municipalidad, previa consulta con el INVU.
+Las sumas que perciba el municipio por el concepto antes indicado serán destinadas exclusivamente a la adquisición y mantenimiento de terrenos para uso público en sectores donde estos trabajos hagan falta.
+Las áreas para servicios particulares deberán dejarse en todos los fraccionamientos cuando resulten mayores de 100 metros cuadrados.
+(Así reformado parcialmente por acuerdo de Junta Directiva, en sesión de 17 de marzo de 1986)
