@@ -14,3 +14,4 @@ Reforma decreto Créase "Taller Policial Interministerial"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-22 | la propia norma |
+| 2 | 1994-11-01 | Decreto Ejecutivo 23820 (1994-11-01) |
