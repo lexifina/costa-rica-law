@@ -1,4 +1,4 @@
-Artículo 9º.- En las diligencias judiciales sólo cabrá el recurso de
+Artículo 9º.-En las diligencias judiciales sólo cabrá el recurso de
 apelación contra la resolución final que fija el monto por el cual se
 indemniza. Ese recurso deberá plantearse dentro de los tres días hábiles
 siguientes a la fecha de la última notificación. Las demás resoluciones

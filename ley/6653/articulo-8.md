@@ -1,4 +1,4 @@
-Artículo 8º.- Efectuado el depósito de la suma fijada, el juzgado
+Artículo 8º.-Efectuado el depósito de la suma fijada, el juzgado
 autorizará a la institución para entrar en posesión de lo expropiado o
 confirmará, en su caso, la posesión autorizada, de acuerdo con el artículo
 seis de esta ley, y ordenará entregar los autos al notario que ella hubiera
