@@ -1,0 +1,1 @@
+Art. 4. Este decreto se imprimirá, circulará y publicarà para su cumplimiento. -Dado en la ciudad de San José, à los veintinueve dias del mes de marzo de mil ochocientos cuarenta y ocho.-Juan Rafael Mora,-Al Ministro de hacienda y guerra Señor Don Manuel José Carazo.”

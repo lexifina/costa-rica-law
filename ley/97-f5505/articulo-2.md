@@ -1,0 +1,1 @@
+Art 2. En consecuencia el EJÉRCITO PROTECTOR DE LA LEY les intimará se rindan à discrecion, entregando al Estado mayor generadas armas que han usurpado y de que hacen uso para resistir las ordenes del Gobierno.
