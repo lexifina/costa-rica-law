@@ -1,0 +1,1 @@
+Artículo 22.- En el caso de impedimento o falta accidental del Fiscal, del Tesorero, del Secretario y del Prosecretario, el Presidente designará un vocal para que haga las veces del ausente o impedido.

@@ -1,4 +1,6 @@
-N§ 172
+(Derogado)
+N° 172
+(La presente Ley fue derogada mediante Artículo 43 del la Ley N° 13 del 28 de Octubre de 1941 "Ley Orgánica del Colegio de Abogados")
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 ARTÖCULO 1§.- Modif¡canse los art¡culos que a continuaci¢n se

@@ -1,0 +1,1 @@
+Artículo 38.- El fallo del Tribunal deberá ser obedecido por los interesados, y si no lo fuere, dicho Tribunal suspenderá al profesional hasta por un año del goce de todas las prerrogativas que tienen los abogados inscritos en la lista del Colegio; y cuando el renuente fuese persona extraña al Foro, se ordenará como sanción la publicación de la sentencia.
