@@ -14,3 +14,4 @@ Reglamento al Artículo Noveno a la Ley para la Importación y Control de la Cal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-07-28 | la propia norma |
+| 2 | 1989-09-19 | Decreto Ejecutivo 19259 (1989-09-19) |
