@@ -7,7 +7,8 @@ Resumen de tarifas del cementerio
 a) Las cuotas de mantenimiento serán de ¢6,79 (seis colones, 79 céntimos) por metro cuadrado, por trimestre.
 b) La inhumación costará ¢200,00. Incluye la apertura y cierre de la fosa o el cierre del nicho y los materiales requeridos.
 c) El costo del arrendamiento de derechos tendrá el valor de mercado de la tierra de los alrededores del Camposanto sin hacer diferencia en el precio por la ubicación del lote. En la actualidad se fija en ¢500,00 por metro cuadrado.
-d) Los nuevos derechos serán de 1,70 metros de ancho por 2,40 metros de Largo, dando un área de 4,08 metros cuadrados.
+d) se debe establecer que los nuevos derechos serán de 2 metros de ancho por 2,50 metros de largo, dando un área de 5 metros cuadrados y el costo de estos derechos será de ¢50.000,00 para construcción de bóveda subterránea de cuatro nichos.
+(Así reformado el inciso anterior mediante sesión N° 78 del 24 de febrero de 1999).
 e) El espacio entre bóveda y bóveda deberá ser de 10 (diez) centímetros si es sencilla y de 20 (veinte) centímetros si es doble o triple.
 (Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 48 al 51 actual).
 San Rafael, octubre de 1984.-
