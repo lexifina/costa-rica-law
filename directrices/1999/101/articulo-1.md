@@ -1,4 +1,6 @@
+(Derogado)
 DIRECTRIZ Nº 99-0010 BIS
+(La presente Directriz es inaplicable según lo establece el artículo 28 de la Directriz 005-2001, dictada por la Dirección Nacional de Notariado a las diez horas del dieciocho de diciembre de dos mil uno)
 DIRECCION NACIONAL DE NOTARIADO.- A las diez horas del veinte de julio de mil novecientos noventa y nueve.
 R E S U L T A N D O:
 1.- Que esta Dirección, a las diez horas del veintitrés de junio, emitió la Directriz número 99-0010, referida a los procedimientos atienentes a la actividad judicial no contenciosa.-

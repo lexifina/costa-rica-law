@@ -13,3 +13,4 @@ Corrección error material de la Directriz 99-0010
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-28 | la propia norma |
+| 2 | 2001-12-18 | Directriz 5 (2001-12-18) |
