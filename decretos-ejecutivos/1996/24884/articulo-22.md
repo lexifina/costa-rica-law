@@ -1,0 +1,1 @@
+Artículo 22.—La distribución y recolección de los formularios de Evaluación del desempeño será responsabilidad de los jefes de las dependencias, quienes son los llamados a efectuarlas. Se informará si hay empleados incapacitados, de vacaciones u otros incidentes que alteren normal desempeño de la evaluación.

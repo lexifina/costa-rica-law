@@ -1,0 +1,1 @@
+Artículo 45.—La Dirección de Recursos Humanos, en el término de seis meses, elaborará los siguientes manuales: Manual Descriptivo de estos, Manual de Clasificación de Valoración de Clases y Sistema de Evaluación del Desempeño.

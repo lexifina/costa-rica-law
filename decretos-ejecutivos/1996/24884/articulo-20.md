@@ -1,0 +1,1 @@
+Artículo 20.—La calificación se realizará a través de los formulan confeccionados para tal efecto, por la Dirección de Recursos Humanos que se distribuirá a las unidades y se procederá mediante tablas d ponderación.

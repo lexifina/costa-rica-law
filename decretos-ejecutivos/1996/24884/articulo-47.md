@@ -1,0 +1,1 @@
+Artículo 47.—La Dirección de Recursos Humanos es el órgano encargado del control y registro de la capacitación de la Policía de Tránsito y además es la dependencia competente que planifica y ejecuta el proceso de enseñanza y aprendizaje de este cuerpo policial.

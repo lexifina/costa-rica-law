@@ -1,0 +1,3 @@
+Artículo 75.—La suspensión del trabajo por un máximo de un mes sin salario sin goce de salario, se aplicará una vez que se haya cumplido el trámite previsto por la Ley en los siguientes casos:
+a) Cuando el servidor viola en forma notable alguna de las obligaciones o prohibiciones de la Ley o Reglamento, cuando reincida en una falta después de habérsele sancionado con amonestación escrita o cuando reincida en una falta que haya ameritado suspensión sin goce de sueldo menor a ocho días.
+b) Cuando estando la falta contemplada entre las causales de despido, el Consejo de Personal, discrecionalmente y en atención a consideraciones tales como la antigüedad, calidad de servicio, méritos y no ser reincidente., determine no sustituir al servidor.

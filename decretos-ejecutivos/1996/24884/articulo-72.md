@@ -1,0 +1,1 @@
+Artículo 72.—Las sanciones no se aplicarán necesariamente tendiendo estrictamente el orden en que aparecen en el artículo anterior, si no conforme con las circunstancias de hecho y de derecho relacionadas con la falta cometidas, salvo que la misma tengan una sanción específica n este Reglamento el Código de Trabajo o Normas Supletorias.
