@@ -1,6 +1,9 @@
 CAPITULO VII
 Formalización y Condiciones de las Concesiones
 Artículo 12.- La concesión se formalizará mediante contrato que
-suscribirán el Ministro de Transportes y el concesionario, y que constará
-en el libro que al efecto llevará el Ministerio. Las concesiones deberán
-ser refrendadas por la Contraloría General de la República.
+suscriban el Ministerio de Obras Públicas y Transportes y el
+concesionario. La Autoridad Reguladora de los Servicios Públicos lo
+refrendará e inscribirá en el Registro de concesiones y permisos que
+llevará ese Ministerio.
+( Así reformado por el artículo 64 de la Ley Nº 7593 de 9 de agosto
+de 1996).
