@@ -1,0 +1,1 @@
+Artículo 2°-Derógase el artículo 33 del Decreto Ejecutivo N° 2545-H de 20 de setiembre de 1972 y los Decretos Ejecutivos Nos. 2337-H de 23 de mayo de 1972, 6593-H de 24 de noviembre de 1976, 6743-H de 25 de enero de 1977, 11981-P de 30 de octubre de 1980 y 12819-H de 23 de julio de 1981.
