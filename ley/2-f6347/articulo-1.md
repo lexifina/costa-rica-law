@@ -96,12 +96,13 @@ cualesquiera otras que emita en el futuro, a los interesados, quedando
 éstos y sus causahabientes autorizados a adquirir y traspasar
 sucesivamente el todo o cualquier parte de ellas.
 Es entendido que el valor nominal total del capital en acciones de
-la Compañía Sucesora en circulación en cualquier tiempo no podrá exceder
-del treinta y cinco (35) por ciento de la suma del valor nominal de
-dichas acciones y de todos los bonos y demás obligaciones a plazo fijo
-entonces en circulación, calculando en colones el valor nominal de bonos,
+la Compañía sucesora en circulación en cualquier tiempo no podrá exceder
+de la suma de todos los bonos y demás obligaciones a plazo fijo entonces
+en circulación, calculando en colones el valor nominal de bonos,
 obligaciones y acciones pagaderos en moneda extranjera a los tipos de
 cambio correspondientes fijados de acuerdo con este contrato.
+(Así reformado por el artículo 3º de la Ley Nº 4197 de 20 de setiembre de
+1968).
 (D) (1) También podrá la Compañía Sucesora consolidar el todo o
 parte de las obligaciones asumidas por ella, mediante emisiones de bonos
 pagaderos tanto el capital como los intereses en dólares de los Estados
@@ -129,9 +130,21 @@ tiempo, podrán pagar la tasa de interés que fuere acordado en cada caso
 de acuerdo con el artículo 2, así como cualesquiera otras condiciones que
 no sean inconsistentes con este contrato.
 (3) Es entendido que todos los citados bonos emitidos de acuerdo
-con los incisos (1) y (2) de este párrafo (D), en cualquier tiempo que
+con los incisos (1) y (2) de este párrafo d), en cualquier tiempo que
 sean emitidos, serán de igual grado y tendrán las mismas garantías,
-siendo clasificados pari passu en todo respecto.
+siendo clasificados "pari Passu" en todo respecto. Sin embargo la
+Compañía podrá vender liberándolas de ese gravamen, cualesquiera
+propiedades dadas en garantía de los citados bonos; en tal caso el
+precio íntegro de la venta pasará a formar parte de su activo y
+garantizará los bonos en igual forma que el bien vendido. Además, cuando
+el valaor bruto en libros de los bienes de la Compañía sea superior al
+doble del de los bonos en circulación, la compañía queda facultada para
+liberar de dichas garantías los bienes que excedan de ese monto, debiendo
+mantener igual proporción en caso de nuevas emisiones de bonos. La
+Compañía reformará sus Estatutos y Reglamento de Tenedores de Bonos en
+tal sentido.
+(Así reformado por el artículo 3º de la Ley Nº 4977 de 19 de mayo de
+1972).
 (4) Todas las obligaciones y deudas de la Compañía devengarán el
 interés que se estipule, sin que por eso queden sujetos a las
 disposiciones de la ley Nº 29 de 2 de junio de 1933 o cualquiera otra
@@ -139,7 +152,7 @@ tendiente a afectar el tipo de interés.
 (E) Todos los actos y contratos necesarios para la consolidación
 estipulada en este contrato, inclusive la constitución y organización de
 la Compañía Sucesora y la liquidación de las actuales; la emisión y
-traspaso de acciones; toda clase de traspaso de propiedad, servidumbres,
+traspa so de acciones; toda clase de traspaso de propiedad, servidumbres,
 derechos, obligaciones, créditos y concesiones; cancelaciones y canjes de
 obligaciones y otras clases de créditos, prendas e hipotecas, y
 constitución y emisión de nuevas; así como cualquier ingresos no
@@ -149,16 +162,9 @@ artículo 16 del presente contrato, gozará de exención absoluta de toda
 clase de derechos, impuestos y pagos a favor del Estado, municipalidades,
 juntas de educación, de protección social, deportivas u otras que puedan
 existir.
-(F) Se conviene expresamente en que las disposiciones contenidas en
-el contrato de 20 de noviembre de 1905 celebrado entre la Municipalidad
-de San José y The Costa Rica Electric Light and Traction Company Limited,
-en cuanto a lo que se refiere al negocio del tranvía, seguirá
-constituyendo un contrato para servicios tranviarios solamente y quedarán
-en vigencia hasta la terminación de dicho contrato, siendo entendido que
-los artículos XXI y siguientes con sus anexos únicamente en lo que no se
-refieren al tranvía eléctrico de San José han sido substituídos,
-ampliados y modificados por el presente contrato para ajustarse a las
-condiciones actuales y al desarrollo de la industria eléctrica.
+(F) DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 2-(A) En cuanto se refiere al financiamiento del costo de
 nuevas construcciones para el negocio eléctrico y salvo la excepción
 mencionada en el párrafo (D) de este artículo la Compañía no emitirá
@@ -367,52 +373,53 @@ objeto por medio de sus miembros o de personas empleadas y autorizadas
 por ella para verificar tales exámenes. La falta de inspección de parte
 de la Junta no exime la responsabilidad de la Compañía, en el caso de que
 alguna le alcanzare conforme queda dicho antes.
-Artículo 8.- Salvo que se probare ser debida a falta o negligencia
-de la Compañía, ésta no tendrá responsabilidad por daños que resulten de
-la calidad y estado de las instalaciones dentro de los predios, aunque
+Artículo 8º.- Salvo que se probare ser debida a falta o negligencia
+de la Compañía, ésta no tendrá responsabilidad por daños que resultaren
+de la calidad y estado de las instalaciones dentro de los predios, aunque
 las hubiere aceptado antes de hacer los empalmes con la red o las hubiere
 revisado por propia iniciativa o a pedido del consumidor, ni por el uso
-que se haga de la electricidad, ni por daños sufridos por los aparatos a
-causa de las variaciones en el voltaje, ni por las consecuencias de causa
-alguna que tenga su origen en el interior de tales predios.
-Artículo 9.-(A) La Compañía podrá seguir operando sus plantas
-hidroeléctricas actuales de acuerdo con las condiciones establecidas en
-las respectivas concesiones hidráulicas, las cuales quedarán en vigencia
-durante el término de este contrato.
+que se haga de la electricidad, ni por las consecuencias de causa alguna
+que tenga su origen en el interior de tales predios.
+Cuando se compruebe que los daños sufridos por los aparatos se deben
+a variaciones en el voltaje, mayores que las autorizadas en el presente
+contrato, la Junta podrá obligar a la Compañía a pagar el valor de los
+daños, de acuerdo con el valor que la Junta establezca, previa audiencia
+a las partes.
+(Así reformado por el artículo 4º de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 9º.- La Compañía podrá seguir operando sus plantas
+actuales de acuerdo con las condiciones establecidas en las respectivas
+concesiones, las cuales quedarán en vigencia durante el término de este
+contrato.
 Estas plantas, que conciernen a este contrato con las capacidades
 instaladas en máquinas generadoras son:
-"Anonos" setecientos cincuenta. . . . (750) KVA
-"Brasil" tres mil . . . . . . . . . . (3000) KVA
-"Belén" cinco mil trescientos quince. (5315) KVA
-"Electriona" tres mil cuatrocientos . (3400) KVA
-"Hatillo" cuatrocientos . . . . . . . (400) KVA
-"Porrosatí" trescientos . . . . . . . (300) KVA
-"Río Segundo" doscientos cincuenta. . (250) KVA
-La Compañía seguirá pagando los impuestos correspondientes a dichas
-concesiones a las tasas que han venido pagando hasta ahora.
-La Junta no asume obligación ni da garantía alguna a la Compañía
-respecto al volumen actual o futuro del agua que se utiliza para el
-desarrollo de fuerza eléctrica en las plantas mencionadas en este
-Artículo y en la concesión anexa a este contrato, entendiéndose que las
-concesiones y aprovechamientos lícitos actuales de aguas en los ríos y
-sus afluentes respectivos no son afectados por este contrato.
-(B) Para subsanar la situación actual creada por la escasez de
-fuerza, la Compañía se compromete a construir una nueva planta de acuerdo
-con la concesión que se le otorga en el proyecto anexo. Por lo menos una
-de las instalaciones de capacidad de dos mil quinientos (2500) kilowatts
-deberá estar concluída a más tardar dos años después del otorgamiento de
-dicha concesión, sujeta a las condiciones estipuladas en la misma.
-Siendo la construcción de la planta a que se refiere la concesión antes
-mencionada y sus correspondientes líneas de trasmisión, de utilidad
-pública, se aplicará en cuanto fuere necesario, el artículo 10 de la Ley
-Nº 77 de 31 de julio de 1928 sobre expropiación así como el artículo 27
-del Reglamento de la misma ley y las leyes número 36 de 26 de junio de
-1896 y Nº 78 de 24 de junio de 1938. Además, para ayudar a subsanar la
-escasez de fuerza, la Compañía queda autorizada para convenir con el
-Poder Ejecutivo los términos y condiciones de una posible interconexión
-del sistema de la Compañía con la planta de Tacares del Ferrocarril
-Eléctrico al Pacífico y el intercambio de servicios eléctricos en una
-forma equitativa para las dos empresas.
+"San Antonio" doce mil quinientos (12.500) KVA
+"Ventanas" doce mil quinientos (12.500) KVA
+"Belén" cinco mil trescientos quince ( 5.315) KVA
+"Electriona" tres mil cuatrocientos ( 3.400) KVA
+"Brasil" tres mil ( 3.000) KVA
+"Anonos" setecientos cincuenta ( 700) KVA
+"Nuestro Amo" nueve mil trescientos sesenta ( 9.360) KVA
+"Río Segundo" doscientos cincuenta ( 250) KVA
+La Compañía pagará los cánones correspondientes a las concesiones
+que tuviere, a las tasas fijadas por la Ley Orgánica del Servicio
+Nacional de Electricidad.
+La Junta no asume obligación ni da garantía a la Compañía, respecto
+al volumen actual o futuro del agua que se utiliza para el desarrollo de
+fuerza eléctrica en las plantas mencionadas en este artículo y en la
+concesión anexa a este contrato, entendiéndose que las concesiones y
+aprovechamientos ilícitos actuales de aguas en los ríos y en sus
+afluentes respectivos no son afectadas por este contrato.
+En el caso de que la Compañía decida suspender en forma definitiva,
+la operación de alguna de las plantas mencionadas en el párrafo segundo
+de este artículo, deberá garantizarle sus derechos al personal a cargo de
+ellas. Además, les dará oportunidad de reubicarlos dentro de la empresa
+o cancelarles una indemnización adicional que se convendrá con cada uno
+de ellos; en caso de no haber acuerdo, esa indemnización la determinará
+el Ministerio de Trabajo, tomando en cuenta la dificultad de
+reemplearse.
+(Así reformado por el artículo 5º de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 10.- Salvo lo estipulado en los artículos 24 y 25, y una
 vez en estado de aprovechamiento la primera instalación de la nueva
 planta a que se refiere el párrafo (B) del artículo 9, la Compañía queda
@@ -474,19 +481,20 @@ circulación de esta ciudad. Si surgiera un caso imprevisto y de
 emergencia, el aviso, si es posible, deberá darse personalmente o por dos
 estaciones de radiodifusión.
 Artículo 12.- La Compañía podrá controlar y medir los servicios que
-suministre teniendo derecho para revisar cualquiera instalación relacionada
-con ellos. La inspección podrá hacerla por medio de sus empleados
-debidamente autorizados y provistos de tarjetas de identificación. Por
-el hecho de aceptar un abonado los servicios eléctricos de la Compañía,
-se entiende que permitirá las inspecciones necesarias para el control de
-los servicios respectivos y exclusivamente para ese fin concretándose
-tales empleados a leer, inspeccionar, probar, reparar o cambiar medidores
-u otras instalaciones con ellos relacionadas o para comprobar la
-exactitud y cuantía de los servicios. Las visitas se harán de modo que
-causen la menor molestia posible al abonado y en horas adecuadas. Si un
-abonado, sin causa legítima, se negare a permitir requerido por dos veces
-en días distintos, la inspección o control de los servicios, habrá contra
-él la presunción de que está cometiendo fraude en daño de la Compañía.
+suministre teniendo derecho para revisar cualquiera instalación
+relacionada con ellos. La inspección podrá hacerla por medio de sus
+empleados debidamente autorizados y provistos de tarjetas de
+identificación. Por el hecho de aceptar un abonado los servicios
+eléctricos de la Compañía, se entiende que permitirá las inspecciones
+necesarias para el control de los servicios respectivos y exclusivamente
+para ese fin concretándose tales empleados a leer, inspeccionar, probar,
+reparar o cambiar medidores u otras instalaciones con ellos relacionadas
+o para comprobar la exactitud y cuantía de los servicios. Las visitas se
+harán de modo que causen la menor molestia posible al abonado y en horas
+adecuadas. Si un abonado, sin causa legítima, se negare a permitir
+requerido por dos veces en días distintos, la inspección o control de los
+servicios, habrá contra él la presunción de que está cometiendo fraude en
+daño de la Compañía.
 Artículo 13.- Mediante un representante o inspector nombrado para
 tal fin, la Junta intervendrá en todos los casos en que surjan
 dificultades entre la Compañía y sus abonados en relación con los
@@ -494,254 +502,12 @@ servicios a que este contrato se refiere. Si la Compañía o el abonado
 objetaren la actuación o resolución del representante de la Junta, ésta
 conocerá del asunto en alzada y lo resuelto por la Junta agotará la vía
 administrativa dejando a salvo el recurso de acudir a los tribunales.
-Artículo 14.-(A) La Compañía suministrará la energía eléctrica a
-una frecuencia prácticamente constante de sesenta períodos por segundo
-con una tolerancia en más o en menos de dos (2) por ciento.
-(B) Vencido el plazo otorgado para construir la primera unidad de
-la nueva planta mencionada en el artículo 9, o antes de ese término si
-esa obra ya estuviese concluída, la tensión eléctrica en las entradas de
-las propiedades de los abonados será mantenida a ciento diez (110)
-voltios con una tolerancia en más o en menos del cinco (5) por ciento. La
-tensión normal podrá ser en los sectores vecinos de las subestaciones de
-ciento quince (115) voltios y en los puntos extremos de la distribución
-de ciento cinco (105) voltios, con una tolerancia en ambos casos en más o
-en menos de un cinco (5) por ciento. Igualmente la Compañía podrá
-suministrar servicio trifilar de ciento diez-doscientos veinte (110/220)
-voltios y servicios para calefacción y fuerza motriz a doscientos veinte
-(220) voltios y contratar con abonados especiales, de acuerdo con sus
-necesidades una tensión distinta a las arriba mencionadas pero siempre
-con las mismas tolerancias dichas. Una vez que se haya fijado el voltaje
-a que se suministrará el servicio a uno o más abonados, no podrá variarse
-en forma permanente sin autorización de la Junta y aviso previo por lo
-menos de noventa (90) días.
-(C) En el caso de que la Compañía llegara a faltar a la obligación
-que determina el párrafo (B) anterior en cuanto se refiere al voltaje
-entregado a un sector determinado, la Junta le notificará tal falta y le
-fijará un término razonable para su corrección. Vencido ese plazo sin
-que la Compañía haya remediado la falta, le impondrá la Junta una multa
-de quinientos colones (¢ 500.00) y además cuando la disminución en el
-voltaje se mantuviere durante más de una (1) hora diaria en más de diez
-(10) días consecutivos, la Compañía rebajará a los abonados a tarifas a
-precio fijo una suma igual al exceso pagado de más por motivo de la
-deficiencia del voltaje durante la duración de la deficiencia pero por no
-más de un trimestre vencido y éstas serán las únicas multas o penas
-aplicables a la Compañía por tales motivos.
-(D) Las obligaciones de la Compañía antes especificadas en este
-artículo no serán aplicadas en los casos que resulten de fuerza mayor,
-caso fortuito u otros actos fuera del control de la Compañía.
-Artículo 15.- Salvo lo estipulado en los artículos 16 y 19 de este
-contrato, las tarifas que la Compañía cobrará para los servicios
-eléctricos que suministre, serán las siguientes:
-A- TARIFAS A PRECIO FIJO
-1º.- Alumbrado.- Servicio desde las diecisiete (17)
-horas a las seis (6) horas cada lámpara de cin-
-cuenta (50) watts o fracción, un colón........ (¢ 1.00) al mes
-Lámparas mayores de cincuenta (50) watts se
-cobrarán proporcionalmente como si cada cin-
-cuenta (50) watts o fracción fuera una lám-
-para adicional.
-Para servicio de día y noche se cobrará un cin-
-cuenta (50) por ciento de recargo.
-2º.- Calefacción.- Servicio continuo día y noche.
-Calentadores de cocina, cada calorífero hasta
-de cuatrocientos cuarenta (440) watts, cinco
-colones.. .. .. .. .. .. .. .. .. .. .. .. .. . (¢ 5.00) al mes
-Caloríferos mayores se cobrarán a razón de
-un colón veinticinco céntimos (¢ 1.25) men-
-sual por cada ciento diez (110) watts o fracción.
-Hornos hasta de cuatrocientos cuarenta (440)
-watts, cinco colones .. .. .. .. .. .. .. .. .. (¢ 5.00) al mes
-Hornos mayores se cobrarán a razón de un
-colón veinticinco céntimos (¢ 1.25) mensual
-por cada ciento diez (110) watts o fracción.
-Calentadores de baño hasta de mil (1000)
-watts, veinte colones .. .. .. .. .. .. .. .. . (¢20.00) al mes
-Calentadores de baño de más de mil (1000)
-watts, se cobrarán a razón de dos colones
-(¢ 2.00) al mes por cada cien (100) watts o
-fracción.
-Planchas eléctricas hasta de quinientos cin-
-cuenta (550) watts, cinco colones .. .. .. .. . (¢ 5.00) al mes
-Planchas mayores se cobrarán a razón de un
-colón (¢ 1.00) al mes por cada ciento diez
-(110) watts o fracción.
-3º.- Otros servicios eléctricos continuos, día y noche.
-Transformadores para timbre o campani -
-llas especiales construídas para ciento diez
-(110) voltios, cada cincuenta (50) watts o
-fracción, un colón .. .. .. .. .. .. .. .. .. . (¢ 1.00) al mes
-Aparatos de radio, ya sean trasmisores o re-
-ceptores, de telefonía, telegrafía, televisión
-u otras clases de difusión radioeléctrica, por
-cada cincuenta (50) watts o fracción, un colón (¢ 1.00) al mes
-Relojes eléctricos hasta cincuenta (50) watts,
-un colón .. .. .. .. .. .. .. .. .. .. .. .. .. (¢ 1.00) al mes
-4º.- Servicios a otros aparatos no especificados an-
-teriormente, continuos, día y noche.
-Cada aparato, por cada ciento diez (110) watts
-o fracción, un colón veinticinco céntimos .. .. (¢ 1.25) al mes
-5º.- Fuerza motriz.- Servicio desde las siete (7)
-horas hasta las diecisiete (17) horas.
-Motores hasta de un octavo (1/8) de caballo
-de fuerza, inclusive, cada motor, tres colones (¢ 3.00) al mes
-Motores de más de un octavo (1/8) hasta un
-cuarto (1/4) de caballo de fuerza, inclusive,
-cada motor, cuatro colones .. .. .. .. .. .. .. (¢ 4.00) al mes
-Motores de más de un cuarto (1/4) hasta me-
-dio (1/2) caballo de fuerza, inclusive, cada mo-
-tor, siete colones .. .. .. .. .. .. .. .. .. . (¢ 7.00) al mes
-Motores de más de un cuarto (1/2) hasta tres (3)
-caballos de fuerza, inclusive, por caballo de
-fuerza, doce colones .. .. .. .. .. .. .. .. .. (¢12.00) al mes
-Motores de más de tres (3) hasta quince (15)
-caballos de fuerza, inclusive, por caballo de
-fuerza, diez colones .. .. .. .. .. .. .. .. .. (¢10.00) al mes
-Motores de más de quince (15) hasta veinti-
-cinco (25) caballos de fuerza, inclusive, por
-caballo de fuerza, nueve colones .. .. .. .. .. (¢ 9.00) al mes
-Motores de más de veinticinco (25) caballos
-de fuerza, por caballo de fuerza, ocho colones (¢ 8.00) al mes
-Por servicio de día y de noche: cincuenta (50)
-por ciento de recargo.
-Cuando haya varios motores en una misma ins-
-talación es entendido que estos precios de fuer-
-za motriz se pagarán sumando los caballos de
-todos esos motores y aplicando a la suma ob-
-tenida el precio indicado anteriormente; ex-
-ceptuándose motores pequeños no mayores de
-medio caballo cada uno que se cobrarán como
-motor separado.
-6º.- Transformadores.
-Para instalaciones de fuerza motriz de más de
-dos (2) caballos e instalaciones para servicios
-de calefacción destinados a usos industriales
-o comerciales con consumo de dos mil (2000)
-o más watts, se cobrará un alquiler de un co-
-lón veinticinco céntimos (¢ 1.25) al mes por
-cada kilowatt instalado.
-7º.- Consumo de los aparatos.
-El consumo de los aparatos se medirá con va-
-tímetros adecuados y de suficiente exactitud.
-B.- TARIFAS POR MEDIDOR DE KILOWATT-HORAS
-1º- Alumbrado y calefacción para casas de habitación
-Servidos por un solo medidor:
-(¢ 0.16) dieciséis céntimos el kilowatt-hora para los primeros cinco
-(5) kilowatt-horas consumidos por cuarto durante el mes.
-(¢ 0.10) diez céntimos el kilowatt-hora para los siguientes cinco
-(5) kilowatt-horas consumidos por cuarto durante el mes.
-(¢ 0.05) cinco céntimos el kilowatt-hora por el exceso de kilowatt-
-horas consumidos durante el mes.
-Cuota mínima mensual: (¢ 0.25) veinticinco céntimos por
-cuarto y (¢ 2,00) dos colones por kilowatt o fracción ins-
-talados en cocinas y calentadores y en todo aparato cuya
-capacidad individual exceda de seiscientos cincuenta (650)
-watts.
-La cuota mínima mensual no será inferior a (¢ 4.00)
-cuatro colones, contando no menos de cuatro cuartos.
-Esta tarifa se aplicará también a los colegios en enseñanza,
-hospicios y hospitales. También se aplicará esta tarifa a
-las iglesias, contando cada toma-corriente como un cuarto.
-2º- Alumbrado y calefacción para otros usos que no sean los anteriores
-Servidos por un solo medidor:
-(¢ 0.18) dieciocho céntimos el kilowatt-hora para los primeros cinco
-(5) kilowatts-horas consumidos por toma-corriente du-
-rante el mes.
-(¢ 0.12) doce céntimos el kilowatt-hora para los siguientes cinco
-(5) kilowatts-horas consumidos por toma-corriente du-
-rante el mes.
-(¢ 0.07) siete céntimos el kilowatt-hora por el exceso de kilowatt-
-horas consumidos durante el mes.
-Cuota mínima mensual: (¢ 0.25) veinticinco céntimos por
-toma-corriente; y (¢ 2.00) dos colones por kilowatt o frac-
-ción instalado en calefacción y aparatos mayores de seis-
-cientos cincuenta (650) watts.
-La cuota mínima mensual no será inferior a (¢ 5.00) cinco
-colones contando no menos de cuatro toma-corrientes de
-doscientos (200) watts o fracción cada uno.
-Para abonados que tienen la mayor parte de sus servicios en
-calefacción y una parte menor en motores, toda la carga
-de calefacción y motores será reducida a kilowatts para
-la aplicación de la tarifa.
-3º- Fuerza motriz en general
-Servicio con un solo medidor para alumbrado y fuerza
-motriz, siempre que la potencia en alumbrado no exceda de
-un diez (10) por ciento de la carga conectada en total.
-(¢ 0.16) dieciséis céntimos el kilowatt-hora (KWH) para la suma
-de los KWH consumidos durante el mes calculado como
-sigue:
-(60) sesenta KWH por cada caballo o fracción para los
-primeros tres (3) caballos de fuerza contratada
-(C.F.C);
-(50) cincuenta KWH por cada caballo o fracción para
-los doce (12) siguientes C.F.C.;
-(45) cuarenta y cinco KWH por cada caballo o fracción
-para el exceso de C.F.C.
-(¢ 0.07) siete céntimos el KWH por los siguientes setecientos cin-
-cuenta (750) KWH consumidos durante el mes;
-(¢ 0.04) cuatro céntimos el KWH por el exceso de KWH consumidos
-durante el mes.
-Mínimo mensual: Hasta tres ( 3) caballos, seis colones
-(¢ 6.00) por caballo o fracción; de cuatro (4) hasta quince
-(15) caballos, cinco colones (¢ 5.00) por caballo o frac-
-ción; de dieciséis (16) hasta veinticinco (25) caballos,
-cuatro colones cincuenta céntimos (¢ 4.50) por caballo o
-fracción; de veintiséis (26) caballos en adelante, cuatro
-colones (¢ 4.00) por caballo o fracción.
-Para instalaciones de más de tres (3) caballos las mínimas
-aquí especificadas serán aumentadas a razón de un colón
-(¢ 1.00) por caballo de fuerza en los casos donde la Com-
-pañía suministre los transformadores.
-La cuota mínima mensual total para esta clase de servicios
-nunca será inferior a seis colones (¢ 6.00).
-Para los efectos de aplicar esta tarifa, hasta cinco (5)
-lámparas de cincuenta (50) watts no serán tomadas en
-cuenta.
-Servicios de fuerza motriz menores de cinco (5) caballos
-serán servidos con corriente monofásica, salvo aquellos
-casos en que los abonados paguen el costo de la instalación
-necesaria para suministrar fuerza trifásica.
-Cuando haya varios motores, el mínimo mensual se co-
-brará sumando las capacidades de todos esos motores y
-aplicando a la suma obtenida el mínimo correspondiente
-como si fuera un solo motor.
-Para los abonados con la mayor parte de sus servicios en
-motores y una parte menor en calefacción, toda la carga
-conectada será reducida a caballos de fuerza para la apli-
-cación de la tarifa.
-4º- Periódicos
-(¢ 0.16) dieciséis céntimos el kilowatt-hora para los primeros cua-
-trocientos (400) kilowatt-horas consumidos durante el mes.
-(¢ 0.07) siete céntimos el kilowatt-hora por el exceso de kilowatt-
-horas consumidos durante el mes.
-Cuota mínima mensual: según los mínimos de la tarifa de
-fuerza motriz en general pero nunca menos de quince (15)
-caballos, setenta y cinco colones (¢ 75.00).
-Para los caballos contratados bajo esta tarifa se sumará
-toda la carga conectada y se convertirá en caballos de fuer-
-za a razón de un caballo de fuerza por cada setecientos
-cincuenta (750) watts o fracción.
-5º- Beneficios de café
-(Para instalaciones no menores de quince (15) caballos):
-(¢ 0.16) dieciséis céntimos el kilowatt-hora para los primeros cua-
-trocientos (400) kilowatt-horas consumidos por caballo de
-demanda máxima durante el año.
-(¢ 0.07) siete céntimos el kilowatt-hora por el exceso de kilowatt-
-horas consumidos durante el año.
-Cuota mínima anual: según los mínimos de la tarifa de
-fuerza motriz en general multiplicados por doce (12) pero
-nunca menos de quince (15) caballos, novecientos colones
-(¢ 900.00).
-6º- Tarifas opcionales
-La Compañía podrá establecer cualesquiera otras tarifas
-opcionales para todos los abonados que estén en condiciones
-iguales, sin perjuicio del derecho de éstos de exigir que la
-Compañía proporcione servicios a las tarifas correspon-
-dientes especificadas en este artículo, notificando en cada
-caso a la Junta, para su correspondiente aprobación o
-desaprobación. Cuando un abonado elija una tarifa opcio-
-nal, no podrá cambiar por otra tarifa dentro de un plazo
-razonable fijado por la Compañía el cual no podrá exce-
-der de un año.
+Artículo 14.-DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 15.- DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 16-(A) Siempre que el promedio del tipo de cambio entre el
 colón y el dólar americano correspondiente a cualquier año del calendario
 (o sea del primero de enero al 31 de diciembre) fuera más de seis y medio
@@ -838,95 +604,57 @@ durante un período razonable.
 (2) Impuestos, contribuciones y participaciones aplicables al negocio
 eléctrico que se paguen al Gobierno Nacional, municipalidades u
 otras jurisdicciones nacionales o municipales.
-(3) Las sumas necesarias para pagos de intereses de todas las deudas y
-obligaciones de la Compañía de cualesquiera clases asumidas o
-contraídas según lo permite este contrato pendientes durante dicho
-período correspondientes al negocio eléctrico.
-Las deudas y obligaciones de la Compañía pendientes en la fecha en
-que este contrato entre en vigencia se repartirán entre los
-departamentos eléctrico y telefónico en proporción al total de
-las cuentas de capital fijo de estos departamentos tal como
-estuvieren en los libros de las compañías existentes en esa fecha,
-quedando facultada la Compañía para repartir, dentro de este límite,
-dichas deudas y obligaciones entre tales departamentos como ésta
-disponga. Las obligaciones y deudas contraídas en el futuro serán
-cargadas al departamento para el cual hayan sido incurridas.
+(3) DEROGADO
+(Derogado por el artículo 6º de la Ley Nº 4197 de 20 de setiembre de
+1968).
 (4) Una suma anual para la reserva de retiros y depreciación de
-propiedades eléctricas determinada aplicando los porcentajes
-apropiados según se enumera a continuación, al promedio a que
-asciende el capital fijo bruto correspondiente al negocio eléctrico
-durante dicho período según los libros de la Compañía:
-Cuando la reserva sea no mayor del quince (15) por
-ciento del promedio de dicho capital fijo bruto, dos y
-medio por ciento .. .. .. .. .. .. .. .. .. .. .. .. (2.5%)
-Cuando la reserva sea mayor del quince (15) por
-ciento del promedio de dicho capital fijo bruto pero
-no mayor del dieciocho (18) por ciento, dos y cuatro
-décimos por ciento .. .. .. .. .. .. .. .. .. .. .. .. (2.4%)
-Cuando la reserva sea mayor del dieciocho (18) por
-ciento del promedio de dicho capital fijo bruto pero
-no mayor del veintiuno (21) por ciento, dos y tres
-décimos por ciento .. .. .. .. .. .. .. .. .. .. .. .. (2.3%)
-Cuando la reserva sea mayor del veintiuno (21) por
-ciento del promedio de dicho capital fijo bruto pero
-no mayor del veinticuatro (24) por ciento, dos y dos
-décimos por ciento .. .. .. .. .. .. .. .. .. .. .. .. (2.2%)
-Cuando la reserva sea mayor del veinticuatro (24)
-por ciento del promedio de dicho capital fijo bruto
-pero no mayor del veintisiete (27) por ciento, dos y
-un décimo por ciento .. .. .. .. .. .. .. .. .. .. .. (2.1%)
-Cuando la reserva sea mayor del veintisiete (27) por
-ciento del promedio de dicho capital fijo bruto pero
-menor al treinta (30) por ciento, dos por ciento .. .. (2.0%)
-Cuando la reserva sea treinta (30) por ciento o más
-del promedio de dicho capital fijo bruto, la apropia-
-ción anual será la cantidad necesaria para mantener
-dicha reserva en treinta (30) por ciento de dicho ca-
-pital fijo bruto.
-(5) El monto en colones para cubrir un diez (10) por ciento (o cualquier
-otro porcentaje que se determine de acuerdo con el párrafo (A) de
-este artículo) por año sobre el promedio del capital neto invertido
-durante dicho período en el negocio eléctrico calculado de acuerdo
-con el párrafo (D) siguiente. Si este rendimiento no fuera
-suficiente para obtener las inversiones de esta clase que fueren
-requeridas en lo futuro y si de acuerdo con el artículo 2 la Junta
-tampoco pudiera conseguirlas a base de este rendimiento, dicho
-porcentaje será aumentado solamente en lo que se refiere a tales
-inversiones futuras en cuanto fuere necesario para igualarlo al tipo
-que fuere necesario para conseguirlas.
-(D) El promedio de capital neto invertido en el negocio eléctrico
-para cualquier período de los doce meses consecutivos se determinará,
-para los fines de este artículo como sigue:
-Se considerará como promedio de inversión bruta en el negocio
-eléctrico para tal período la suma de las siguientes partidas:
-(1) El promedio a que asciende el capital fijo bruto correspondiente a
-negocio eléctrico durante tal período según los libros de la
-Compañía.
-(2) Tres y medio (3 1/2) por ciento de la partida (1) antes mencionada
-para capital efectivo de operación, materiales y enseres.
-(3) La suma neta, si la hubiere, en que las entradas brutas acumuladas
-de electricidad durante el período desde que este contrato entre en
-vigencia hayan dejado de cubrir los requisitos acumulados de las
-partidas (1) a (5) inclusive del párrafo (C) anterior.
-Del promedio de la inversión bruta así determinada se rebajará
-lo siguiente:
-(4) El promedio del saldo durante tal período de doce meses consecutivos
-a que ascienda la reserva para retiros y depreciación aplicable a
-las propiedades eléctricas.
-(5) El promedio del valor nominal durante tal período de las deudas y
-obligaciones de la Compañía sobre las cuales se hayan incluído los
-intereses correspondientes a tal período de acuerdo con la partida
-(3) del párrafo (C) anterior menos cualquier saldo sin amortizar de
-gastos y descuentos correspondientes a tales deudas y obligaciones.
-El monto en colones de las obligaciones pagaderas en moneda
-extranjera será el que aparezca en los libros de la Compañía de
-acuerdo con este contrato.
-El saldo será considerado como el promedio del capital neto
-invertido durante dicho período en el negocio eléctrico.
-Todos los promedios a que se refiere este párrafo (D), serán
-calculados sobre la base de los saldos de las cuentas
-correspondientes al principio y al fin del período de los doce meses
-consecutivos correspondientes.
+propiedades eléctricas determinada, aplicando los porcentajes
+apropiados que fije el Servicio Nacional de Electricidad, en uso de
+sus facultades legales.
+(Así reformado por el artículo 7º de la Ley Nº 4197 de 20 de setiembre de
+1968)
+(5) El monto en colones para cubrir el porcentaje de rendimiento
+anual que fije el Servicio Nacional de Electricidad que le permita
+atender adecuadamente el programa de mejoras y de desarrollo, el servicio
+de sus deudas y una retribución justa a los accionistas, igual para todas
+las acciones comunes, la cual en lo que concierne al Instituto
+Costarricense de Electricidad, con la actual cantidad de acciones
+adquiridas, debe ser suficiente para cubrir la parte del servicio de la
+deuda contraída con Electric Bond and Share Company, con motivo de la
+adquisición de los valores de la Compañía, que no haya sido cubierta con
+la amortización e intereses de los bonos de que se es acreedor el
+Instituto Costarricense de Electricidad en la Compañía (o cualquier otro
+porcentaje que se determine de acuerdo con el párrafo (A) de este
+artículo). Ese rendimiento se fijará anualmente sobre el promedio del
+capital neto invertido durante dicho período en el negocio eléctrico
+calculado de acuerdo con el párrafo (D) siguiente.
+Si este rendimiento no fuere suficiente para obtener las inversiones
+de esta clase que fueren requeridas en lo futuro y si de acuerdo con el
+artículo 2º la Junta tampoco pudiera conseguirlas a base de este
+rendimiento, dicho porcentaje se aumentará solamente en lo que se refiere
+a tales inversiones futuras en cuanto fuere necesario para igualarlo al
+tipo necesario para conseguirlas.
+(Así reformado por el artículo 8º de la Ley Nº 4197 de 20 de setiembre de
+1968)
+(D) La base tarifaria o capital neto invertido para cualquier
+período anual, se determinará de la siguiente manera:
+Se considerará como inversión bruta la suma de las siguientes
+partidas:
+1) El Activo Fijo Bruto promedio de la empresa al 31 de diciembre
+del período que se analiza, de acuerdo con la contabilidad de la misma.
+2) Un máximo del 3% de la partida antes mencionada para capital de
+trabajo, o la suma que al efecto señale el Servicio Nacional de
+Electricidad de acuerdo con los estudios que presente la Compañía.
+De la inversión bruta así determinada se rebajará:
+3) El monto promedio de la reserva de depreciación debidamente
+autorizada por el Servicio Nacional de Electricidad.
+La diferencia así obtenida será considerada como la base tarifaria
+al 31 de diciembre del año que se analice.
+Esta base tarifaria será la que se aplicará para los efectos
+correspondientes en el inciso (5) del Aparte C de este artículo, así como
+en las demás disposiciones pertinentes del presente contrato.
+(Así reformado por el artículo 9º de la Ley Nº 4197 de 20 de setiembre de
+1968)
 (E) Las sumas que aparezcan en los libros y registros de la
 Compañía ajustados solamente según lo estipulado en este contrato serán
 usadas para cualquier ajuste de tarifas hecho de acuerdo con este
@@ -984,8 +712,8 @@ la Junta las modificaciones en las tarifas que le parezcan necesarias
 para ajustar las entradas brutas anuales del negocio eléctrico a la
 cantidad a que la Compañía tendrá derecho según se especifica en los
 párrafos (C) y (D) de este artículo. Si la Compañía no lo hiciere dentro
-de dicho término, la Junta podrá proponer modificaciones dentro de los treinta
-(30) días siguientes.
+de dicho término, la Junta podrá proponer modificaciones dentro de los
+treinta (30) días siguientes.
 Una vez que la Compañía haya sometido a la Junta sus propuestos
 cambios en las tarifas y dentro de los sesenta (60) días hábiles
 siguientes la Junta estudiará los argumentos y datos presentados por
@@ -996,8 +724,8 @@ resolverá si un ajuste de tarifas es procedente de acuerdo con lo
 estipulado en los párrafos (B) a (F) inclusive de este artículo, y si
 resolviere en sentido afirmativo, deberá aprobar los cambios propuestos
 por la Compañía como sean sometidos o con las modificaciones que
-considere propias para ajustarlos a lo estipulado en este artículo. Si
-la Junta no lo hiciere dentro de dicho término, las modificaciones en las
+considere propias para ajustarlos a lo estipulado en este artículo. Si la
+Junta no lo hiciere dentro de dicho término, las modificaciones en las
 tarifas propuestas por la Compañía se considerarán como aprobadas.
 Si cualquier resolución de la Junta a que se refiere este párrafo
 (G) no fuera aceptable a la Compañía, ésta podrá recurrir ante la Sala de
@@ -1012,6 +740,27 @@ ajustadas de acuerdo con lo estipulado en este artículo.
 (I) Se entiende por el término "negocio eléctrico" todo lo que se
 relacione con la generación, transformación, transmisión, distribución y
 compraventa de la energía eléctrica.
+(J) En cualquier mes en que la Compañía produzca energía eléctrica
+por medio de la operación de su planta térmica, un factor térmico de
+ajustes será determinado para los efectos de facturación del próximo mes,
+dividiendo el costo del aceite consumido durante el mes por el total de
+ingresos (excluyendo ajustes de combustible) provenientes de la venta de
+energía eléctrica para todas las clases de clientes durante el mismo mes.
+Las cuentas a cargo de los consumidores de energía eléctrica que se
+emitan en el mes siguiente serán aumentadas en el porcentaje que indique
+el factor térmico obtenido según el procedimiento anterior. Las
+disposiciones de este párrafo (j) se establecen sin perjuicio de las
+disposiciones contenidas en los párrafos (a), (b) y (c) de este artículo
+16; por consiguiente, todos los ingresos que perciba la Compañía de
+conformidad con este párrafo (j), serán incluídos en todos los cálculos
+que se hagan, de acuerdo con las estipulaciones que establecen los
+párrafos (b) y (c) de este artículo 16 y las disposiciones de este
+párrafo (j), serán aplicadas periódicamente a todas las tarifas que estén
+en vigor, lo mismo que a las modificaciones que estas tarifas puedan
+sufrir de acuerdo con las disposiciones establecidas en los párrafos (a),
+(b) y (c), mencionados.
+(Así adicionado Por Cláusula VI de la Tercera Concesión Anexa, aprobada
+por Ley Nº 1433 de 28 de marzo de 1952).
 Artículo 17.-(A) El costo de los medidores y los gastos de su
 instalación correrán por cuenta de la Compañía y ésta los mantendrá en
 correcto estado de funcionamiento para que den medida exacta de la
@@ -1030,13 +779,10 @@ una tolerancia de más de dos por ciento en perjuicio del abonado, el
 gasto de la inspección correrá a cargo de la Compañía y si resultare
 correcto dentro del límite indicado, el gasto de la inspección lo pagará
 el abonado.
-(C) La Junta cobrará por la comprobación de la exactitud de los
-medidores eléctricos como sigue:
-Medidores monofásicos de dos hilos, cada uno
-(un colón) .. .. .. .. .. .. .. .. .. .. .. ¢ 1.00
-Medidores monofásicos de tres hilos, cada uno
-(un colón y medio) .. .. .. .. .. .. .. .. 1.50
-Medidores polifásicos, cada uno (dos colones) 2.00
+(C) Por la comprobación de la exactitud de los medidores la Junta
+cobrará la misma tarifa que establezca para todas las empresas.
+(Así reformado por el artículo 10 de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 18.- Cuando más de una tarifa por medidor sea aplicable a
 un solo servicio, se aplicará la tarifa más favorable para el abonado.
 Si la Compañía aplicare una tarifa más alta que la que corresponde, salvo
@@ -1053,40 +799,9 @@ actualmente gozan algunos abonados en virtud de convenios y concesiones
 otorgadas por la Compañía, pero ésta queda obligada a informar a la Junta
 de esas ventajas ya concedidas y del nombre de los abonados que de ellas
 disfrutan.
-Artículo 20.- Es entendido que al computar las cuotas mínimas de
-todas las tarifas por medidor, se contarán los cuartos o toma-corrientes
-y la carga de calefacción o fuerza motriz, exceptuando todos los aparatos
-cuyo consumo no exceda en cada uno de ellos de seiscientos cincuenta
-(650) watts.
-En las residencias servidas por medidor se entienden por cuartos
-todas las piezas en las casas de habitación y sus anexos, tales como
-dormitorios, salas, bibliotecas, baños, cuartos del servicio, cocinas,
-garages, caballerizas, y en general todos los compartimentos de las casas
-habitadas. Se exceptúan las piezas que se utilicen exclusivamente para
-depósito. Para la computación respectiva, no se considerarán como
-cuartos, los corredores, zaguanes, pórticos, vestíbulos, galerías,
-arcadas, pasadizos, excusados sin baño, bodegas, sótanos no habitados,
-cuartos de lavado y todo cuarto o dependencia que no tenga una cabida
-mayor de tres metros cuadrados.
-En los establecimientos comerciales servidos por medidor se entiende
-por un toma-corriente cualquier enchufe, porta lámpara u otra conexión
-hecha a la instalación del edificio que no consuma más de doscientos
-(200) watts. En los toma-corrientes con un consumo mayor de doscientos
-(200) watts, para efectos de cobro de los servicios se considerará un
-toma-corriente por cada doscientos (200) watts o fracción.
-En todos los casos en que se suministre electricidad a un abonado en
-más de un punto de entrega, cada uno de esos puntos será considerado como
-si fuere un abonado distinto. Cuando la energía eléctrica sea
-regularmente entregada en un solo punto a más de un abonado, cada abonado
-será considerado como un abonado distinto.
-Si en una casa de habitación o en cualquier establecimiento el mismo
-abonado estableciere un negocio de otra clase que requiere servicios de
-otra clasificación, se considerará como si fuera otra instalación.
-La Compañía no está obligada a servir instalaciones especiales de
-alumbrado o anuncios eléctricos que funcionen con un factor de potencia
-menor de noventa (90) por ciento. La Compañía podrá desconectar sus
-servicios a tales establecimientos que no instalen el equipo necesario
-para corregir dicho factor de potencia.
+Artículo 20.- DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 21.- Cuando se trate de servicios temporales por un
 período menor de seis (6) meses, se cobrará un recargo de cincuenta (50)
 por ciento sobre la tarifa correspondiente, excepto si el servicio es
@@ -1099,68 +814,29 @@ Para beneficios de café, ingenios e instalaciones que reciben
 servicios en períodos de seis (6) meses o menores, el abonado instalará
 sus propios transformadores. En tales casos recibirá el voltaje de las
 líneas primarias de la Compañía.
-Artículo 22.- La Compañía suministrará servicios, únicamente por
-medidor, en los casos siguientes:
-a) A todo nuevo abonado conectado después de la fecha en que entre en
-vigor este contrato.
-b) A todo abonado actualmente en tarifa fija que cambie todos o una
-parte de sus servicios nocturnos por servicios continuos de día y de
-noche, y aquellos abonados también en tarifa fija que aumenten sus
-servicios en más de lo actualmente contratado según los porcentajes
-indicados a continuación:
-Veinte (20) por ciento para cargas hasta quinientos (500) watts;
-diez (10) por ciento para cargas mayores de quinientos (500) watts.
-c) A abonados encontrados con servicios no declarados y abonados que no
-hayan permitido las inspecciones de acuerdo con el artículo 12 o que
-hayan alterado las condiciones del servicio o los aparatos de
-control o que hayan sido sorprendidos con sus instalaciones en
-alguna forma que acuse consumo ilícito de energía.
-Se exceptúan de los casos a) y b) los abonados que reciban servicios
-de los circuitos de noche con una carga no mayor de doscientos cincuenta
-(250) watts, entendiéndose que en todo caso, salvo lo estipulado en el
-inciso c) anterior, tales abonados tendrán derecho a pagar sus servicios
-a tarifa fija.
-Artículo 23.- La Compañía no podrá obligar el uso del medidor a un
-abonado como consecuencia del uso fraudulento que haya hecho de energía
-eléctrica, a que se refiere el inciso c) del artículo anterior, así como
-en todo otro caso que deba calificarse de contrabando, sea por
-alteraciones de las condiciones del servicio o de los aparatos de
-control, sin la comprobación del hecho por la Junta, la cual para ese
-efecto deberá tener siempre el empleado o empleados necesarios.
-En los servicios a tarifa fija, cada lámpara, motor, calorífero,
-horno y todo otro aparato que se use, será contado separadamente y no
-será permitido el uso de la corriente para otros aparatos no declarados.
-Respecto de las cocinas equipadas con suiches especiales para permitir el
-uso de una o varias partes de la misma pero siempre con una carga no
-mayor de la contratada, si se comprobare el uso fraudulento de la
-energía, se le impondrán al abonado las sanciones a que se refiere el
-artículo siguiente.
-Artículo 24.- Cuando a un abonado se le obligue al servicio por
-medidor como consecuencia del uso fraudulento de energía eléctrica en
-cualquiera de las formas que eso signifique, debidamente comprobado por
-la Junta, la Compañía le exigirá además el pago de un trimestre vencido
-sobre el exceso de carga constatado. Si ya instalado el medidor,
-reincidiere una vez en la alteración del aparato de control o de su
-instalación en cualquier forma que acuse uso ilícito de la fuerza,
-debidamente constatado por la Junta, la Compañía le suspenderá los
-servicios por ocho (8) días y le cobrará un trimestre vencido
-deduciéndole lo pagado en ese tiempo a base de medidor. A la segunda y
-subsiguientes reincidencias que hayan sido constatadas por la Junta se le
-suspenderán los servicios hasta por un mes sin perjuicio de obligarle al
-pago del trimestre vencido sobre el exceso de carga constatado. En todos
-los casos de fraude, el abonado pagará los daños y perjuicios causados al
-medidor y su instalación. Si el contrabandista de energía eléctrica no
-pagare las sumas a que el uso indebido diera lugar, la Compañía podrá
-suspenderle los servicios eléctricos hasta tanto no pague lo debido por
-razón de servicios, multas y daños aquí especificados. Iguales sanciones
-se aplicarán a todo abonado con medidor que se le compruebe el uso
-ilícito de la fuerza.
+Artículo 22.- DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 23.- DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 24.-Cuando un abonado altere el aparato de medición, o su
+instalación en cualquier forma que acuse uso ilícito de la fuerza
+eléctrica, debidamente comprobado por la Junta, la Compañía le cobrará un
+trimestre vencido a tarifa fija de acuerdo con la carga constatada,
+deduciéndole lo pagado en ese período. A la segunda y subsiguiente
+oportunidades que al mismo abonado se le comprobare por la Junta uso
+ilícito de la energía eléctrica, la Compañía podrá suspenderle el
+servicio por un mes, sin perjuicio de obligarle al pago del trimestre
+vencido sobre el exceso de carga constatado.
+(Así reformado por el artículo 11 de la Ley Nº 4197 de 20 de setiembre de
+1968).
 Artículo 25.- La Compañía podrá suspender el servicio eléctrico por
 las siguientes causas:
 a) Por las que determina el artículo 24 de este contrato;
 b) Por la falta de pago mensual de los servicios suministrados;
-c) Por cualquier caso de emergencia que pueda ocasionar peligro
-para personas o propiedades.
+c) Por cualquier caso de emergencia que pueda ocasionar peligro para
+personas o propiedades.
 En todos estos casos y de acuerdo con el artículo 13 el abonado
 podrá apelar a la Junta si creyere que la Compañía ha procedido
 injustamente.
@@ -1169,8 +845,8 @@ los que se les hubiere desconectado por falta de pago o por otros motivos
 estipulados en el artículo 14 de este contrato y se les diere nueva
 conexión de los servicios eléctricos, un depósito como garantía que no
 exceda del valor calculado del consumo durante un mes a base de tarifa
-fija, sean estos abonados a tarifa fija o a base de medidor. Sobre
-las sumas provenientes de tales depósitos la Compañía reconocerá como ha
+fija, sean estos abonados a tarifa fija o a base de medidor. Sobre las
+sumas provenientes de tales depósitos la Compañía reconocerá como ha
 venido reconociendo y seguirá haciéndolo con los depósitos de abonados
 anteriores, un interés no menor del cuatro (4) por ciento anual. La
 Compañía queda obligada a hacer al 30 de junio de cada año una
@@ -1210,10 +886,10 @@ cobrarán proporcionalmente como si cada cincuenta (50) watts o fracción
 fuera una lámpara adicional.
 Por las lámparas en los postes ornamentales u otros que se instalen
 donde la Compañía repone las bombillas quemadas y mantiene el servicio,
-se cobrará por cada lámpara a razón de tres colones (¢ 3.00) mensuales por
-cada cien (100) watts o fracción, siendo por cuenta de la Municipalidad
-la instalación y mantenimiento de dichos postes con sus respectivos
-cables, lámparas, bombillas, tubos y demás accesorios.
+se cobrará por cada lámpara a razón de tres colones (¢ 3.00) mensuales
+por cada cien (100) watts o fracción, siendo por cuenta de la
+Municipalidad la instalación y mantenimiento de dichos postes con sus
+respectivos cables, lámparas, bombillas, tubos y demás accesorios.
 Por las lámparas de trescientos (300) watts cada una, dentro del
 perímetro de la ciudad de San José, la Compañía cobrará nueve colones
 (¢ 9.00) mensuales por cada lámpara, siendo por cuenta de la Compañía los
@@ -1308,3 +984,229 @@ Para los efectos del cobro de la participación de cinco (5) por
 ciento, la Compañía enviará cada mes un informe de las entradas
 correspondientes, y la Municipalidad tendrá en todo tiempo la libre
 inspección de los libros de la Compañía así como de las cuentas y papeles
+que con ellos se relacionen, para verificar dichas entradas.
+Artículo 33.- La Compañía estará constituída según las leyes de la
+República y sometida en todo a su legislación en lo que no se oponga a
+los términos de este contrato y sujeto a la jurisdicción de sus
+tribunales, siendo su domicilio y oficina principal en la ciudad de San
+José donde deberán encontrarse siempre sus libros de actas y
+contabilidad, registro de accionistas, si lo hubiere, como también los
+documentos originales de recibos y pagos relacionados con sus
+operaciones, lo mismo que sus contratos originales, todo lo cual no podrá
+ser trasladado sin el consentimiento de la Junta o sin orden judicial.
+Artículo 34.- Del total de empleados u obreros que la Compañía
+ocupe, el noventa (90) por ciento por lo menos deberá ser de ciudadanos
+costarricenses. La Compañía acatará las leyes de carácter general
+dictadas o que se dicten en favor y protección de los empleados u
+obreros, así como también las que se refieran a las diferentes formas de
+seguro social para ese personal.
+Artículo 35.- DEROGADO
+(Derogado por el artículo 14 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 36.-El presente Contrato Eléctrico y sus concesiones
+anexas continuarán en vigencia por veinticinco años más a partir del
+primero de julio de mil novecientos sesenta y ocho, y se considerará
+automáticamente prorrogado por un nuevo período igual, salvo acuerdo
+previo en contrario de las partes; al vencimiento del plazo que se
+hubiere convenido, la Compañía deberá disolverse, y el Instituto
+Costarricense de Electricidad asumirá y continuará el suministro de los
+servicios eléctrico en las localidades servidas hasta ese entonces por la
+Compañía; en esta eventualidad, el Instituto deberá proceder a adquirir
+la totalidad de las acciones de la Compañía y por consiguiente asumirá
+todo el activo de ésta, así como su pasivo en las condiciones y términos
+existentes en ese momento. La adquisición de las indicadas acciones se
+hará por el precio que determine el Tribunal Fiscal Administrativo de la
+Tributación Directa, operación que se considerará de utilidad pública
+para los efectos de la ley Nº 36 de 26 de junio de 1896, y las
+expropiaciones que sean necesarias se tramitarán por el procedimiento
+prescrito por la ley Nº 1371 de 10 de noviembre de 1951, ambas en lo
+pertinente.
+Las previsiones que anteceden tendrán aplicación asimismo en el caso
+de que el Instituto, con anterioridad al vencimiento de cualquiera de los
+plazos antes contemplados, decida adquirir la totalidad de las acciones
+de la Compañía, con el fin de proceder a la disolución de ésta.
+Bajo ningún concepto podrá ejercitarse la alternativa indicada en el
+párrafo segundo, antes del vencimiento del plazo de diecisiete años y
+medio, fijado para el pago de las obligaciones del Instituto
+Costarricense de Electricidad para con Electric Bond and Share Company.
+(Así reformado por el artículo 12 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 37.-Toda cuestión o diferencia que se suscite entre las
+partes con motivo de este Contrato, será sometida a los tribunales de la
+República y resuelto conforme a las leyes, salvo que las partes hayan
+convenido o convengan en someterla a arbitramiento.
+(Así reformado por el artículo 13 de la Ley Nº 4197 de 20 de setiembre de
+1968).
+Artículo 38.-(A) Es entendido y convenido que ni este contrato ni
+la concesión anexa ni cualquiera de las demás concesiones que tenga la
+Compañía podrá ser rescindido sino por alguno de los motivos siguientes,
+debidamente comprobado, y que corresponderá en cada caso al contrato u
+otra concesión que se pretenda rescindir:
+1) Por haber transcurrido el término fijado en la concesión
+correspondiente para dar principio a los trabajos, sin que esta
+condición se haya cumplido.
+2) Por no estar al servicio la nueva planta dentro del plazo fijado
+en la concesión, salvo alguna demora causada por fuerza mayor,
+caso fortuito u otros actos fuera del control de la Compañía.
+3) Por dejar de funcionar la planta o plantas por motivos que no
+sean de fuerza mayor, caso fortuito, u otro acto fuera del
+control de la Compañía, o necesidades de construcción,
+reparación o mantenimiento, cuando el funcionamiento de esa
+planta o plantas sea necesario para el cumplimiento por parte de
+la Compañía de las obligaciones de este contrato.
+4) Por cobrar, sin autorización de la Junta, tarifas mayores de las
+establecidas de acuerdo con este contrato, por un período de
+treinta (30) días después de aviso a tal efecto dado por escrito
+por la Junta a la Compañía. En caso de desacuerdo de la
+Compañía, este término se contará a partir de la fecha en que
+recaiga resolución administrativa o sentencia arbitral o
+judicial, que resuelva definitivamente sobre las tarifas
+objetadas.
+La Junta podrá ampliar en cualquier caso los términos mencionados en
+los incisos anteriores.
+Es entendido que la sanción de rescisión sólo se aplicará al
+contrato o concesión en que se incurra en la causal respectiva y que la
+rescisión declarada con respecto a uno de ellos no afectará a los demás.
+(B) En faltas contra lo convenido en este contrato u ordenado por
+la Junta conforme a los términos del mismo la Junta podrá sancionar a la
+Compañía de acuerdo con el procedimiento que ésta establezca, solamente
+con una multa hasta de quinientos colones (¢ 500.00), siempre que no sean
+motivos de rescisión o hayan sido sancionadas en otra forma de acuerdo
+con este contrato.
+(C) Antes de declarar una rescisión o imponer cualquier multa, la
+Junta notificará personalmente al representante legal de la Compañía las
+causales que se aleguen y la Compañía dispondrá de un término razonable
+que fije la Junta de no menos de sesenta (60) días contados desde que
+quede hecha la notificación respectiva, para rectificar o subsanar las
+faltas de que se le acusen o formule su defensa.
+Artículo 39.- El presente contrato no podrá ser transferido a
+ninguna persona o compañía sin el consentimiento expreso del Poder
+Ejecutivo el cual no podrá negarlo sin motivos justificados. Esto no
+obsta para que quede en pleno vigor la autorización expresada en el
+párrafo (A) del artículo 1 de este contrato.
+Artículo 40.- La aprobación de este contrato por el Congreso
+Constitucional y por el Poder Ejecutivo se considerará como modificación
+a cualesquiera leyes u ordenanzas y cualesquiera actos contractuales
+entre la Compañía y las Municipalidades, el Gobierno o la Junta, que
+puedan estar en conflicto con las estipulaciones de este contrato o de la
+concesión anexa, en cuanto sea necesario para dar efecto completo a las
+estipulaciones del contrato y concesión dichos.
+La concesión de aguas de Río Segundo y de otros, a que se refiere el
+Decreto Nº 187 de 29 de mayo de 1829, tal como se disfruta, queda
+vigente.
+Artículo 41.- Sin perjuicio de las bases establecidas en este
+contrato para la fijación del valor de la empresa eléctrica en efectiva
+explotación, el valor que represente esta contratación y sus concesiones
+no podrá ser incluído, para el efecto de los avalúos a que se refieren el
+párrafo (F) del Artículo 16 y el párrafo (A) del Artículo 35, en exceso
+del costo de las mismas debidamente comprobado.
+___________
+CONCESION ANEXA
+1.- Se otorga a la Compañía Nacional de Electricidad la concesión
+de las aguas para producir energía eléctrica por medio de una planta
+hidroeléctrica que se propone construir a la orilla del Río Virilla, con
+una capacidad total de diez mil (10,000) kilowatts instalados en
+maquinaria hidroeléctrica.
+2.- La planta estará situada en la provincia de Alajuela, al lado
+norte del Río Virilla, aproximadamente seiscientos (600) metros antes de
+llegar a la confluencia del Río Virilla con el Río Ciruelas, según el
+plano adjunto. Las aguas que se estiman en trece mil doscientos
+veintisiete (13,227) litros por segundo, serán captadas por medio de una
+presa de concreto o de mampostería construída en el Río Virilla
+aproximadamente mil quinientos (1,500) metros, en línea recta, río abajo
+del puente de "Las Ventanas", que atraviesa este río en el camino público
+entre la estación del Ferrocarril Eléctrico al Pacífico de "Ciruelas" y
+la finca "El Rodeo". Por medio de una corta atarjea el agua pasará a un
+túnel de aproximadamente dos mil setecientos (2,700) metros de largo que
+la conducirá al tanque de presión localizado en la falda del cerro al
+norte y noreste del sitio de la planta, de donde arrancarán uno o más
+tubos de acero que se conectarán a la maquinaria hidroeléctrica de la
+planta. Las aguas después de usarlas, volverán íntegras a su mismo cauce
+o sea al Río Virilla.
+3.- Los trece mil doscientos veintisiete (13,227) litros de agua
+por segundo y con una caída de noventa y cuatro y medio (94.5) metros
+producirán una cantidad teórica de fuerza de dieciséis mil seiscientos
+sesenta y siete (16,667) caballos, y la Compañía pagará por una sola vez
+un impuesto fijo de diez colones (¢ 10.00) por cada decena o fracción de
+caballos teóricos de fuerza o sea dieciséis mil seiscientos setenta
+colones (¢ 16,670.00), cuya cantidad será entregada al Banco Nacional de
+Costa Rica contra recibo del Servicio Nacional de Electricidad dentro de
+diez días de la autorización legal de esta concesión y su publicación en
+el Diario Oficial "La Gaceta".
+4.- Salvo alguna demora causada por fuerza mayor, caso fortuito u
+otros actos fuera del control de la Compañía, como demora en recibir
+materiales y equipos pedidos, ésta terminará la instalación primitiva con
+una capacidad de dos mil quinientos (2,500) kilowatts dentro del límite
+fijado en el párrafo (b) del artículo 9º del contrato celebrado el día 27
+de febrero de 1941 entre esta Compañía y el Servicio Nacional de
+Electricidad. La Compañía tendrá el derecho de hacer las instalaciones
+adicionales, hasta tener un total instalado de diez mil (10,000)
+kilowatts, conforme vayan aumentándose las necesidades para fuerza
+adicional en el sistema de la Compañía.
+5.- Si las aguas del Río Virilla mermaren a tal punto que no se
+puedan producir los diez mil (10,000) kilowatts en la forma mencionada,
+la Compañía tendrá el derecho de aumentar su caudal de agua con las aguas
+de los ríos Segundo y Ciruelas de la Provincia de Alajuela o cualquiera
+de éstos si esto resultare técnica y económicamente posible.
+6.- Esta concesión continuará en efecto durante la vigencia del
+contrato mencionado en el inciso 4º de esta concesión.
+En adición al impuesto fijo de diez (10) colones por cada decena o
+fracción de caballos de fuerza que la Compañía se compromete a pagar por
+una sola vez, ésta pagará también un canon de dos colones (¢ 2.00)
+semestrales por cada caballo teórico de fuerza utilizada. Este impuesto
+será de acuerdo con el agua que se capte para las varias instalaciones y
+variará con el progreso de la construcción de manera que al empezar a
+funcionar los primeros dos mil quinientos (2,500) kilowatts, este
+impuesto será basado en el agua tomada por segundo del río para esta
+instalación, y así sucesivamente hasta que la instalación total de diez
+mil (10,000) kilowatts sea instalada en la planta.
+Esta planta será interconectada con los sistemas eléctricos a que se
+refiere el contrato ya mencionado en el inciso 4º de esta concesión por
+medio de una o más líneas de trasmisión de alta tensión y la energía
+aumentará el servicio eléctrico disponible en dicho sistema y será
+distribuída de acuerdo con dicho contrato.
+Quedan autorizados cualquier traspaso o traspasos de esta concesión
+que sean necesarios para llevar a cabo la consolidación de las compañías
+concernientes estipulada en el contrato ya mencionado. Con esta
+excepción no podrá ser traspasada sin el consentimiento del Poder
+Ejecutivo, el cual no podrá negarlo sin motivos justificados.
+Francisco Ruiz F. M. G. Reed"
+El Presidente de la República acuerda: Aprobar el anterior
+contrato, sujeto a la aprobación del Congreso Constitucional.-Publíquese,
+Calderón Guardia.-El Secretario de Estado en el Despacho de Fomento,
+Alfredo Volio".
+Comuníquese al Poder Ejecutivo
+SEGUNDA CONCESION ANEXA
+( NOTA: La presente concesión fue adicionada por Ley Nº 37 de 6 de
+diciembre de 1945).
+1º- Se otorga a la Compañía Nacional de Fuerza y Luz, Sociedad
+Anónima, cesionaria de las empresas que suscribieron el contrato
+referido(*), la concesión de aguas de los ríos Segundo y Ciruelas, para
+aumentar, por medio de una planta hidroeléctrica que se propone construir
+en el punto denominado Nuestro Amo, con una capacidad de siete mil
+quinientos kilovatios (7,500 K.W.), la energía producida actualmente, de
+conformidad con las concesiones de que disfruta la Compañía en virtud del
+referido contrato. En consecuencia, la presente concesión debe
+considerarse como una Segunda Concesión Anexa al indicado contrato, y
+sometida en un todo a las obligaciones y derechos estipulados en él.
+Rigen las siguientes condiciones:
+(*) Se refiere al aprobado por la Ley Nº 2 de 8 de abril de 1941.
+a)- Para desarrollar esa fuerza eléctrica se utilizará el agua del
+río Ciruelas en cantidad de mil litros por segundo, que serán captados en
+la vecindad del puente del camino que va de Ciruelas a la Guácima, cantón
+central de Alajuela, y conducida por medio de secciones de canal y dos
+túneles, hasta caer en el Río Segundo. La longitud aproximada del
+acueducto será de dos mil setecientos metros, de los cuales mil
+novecientos irán por túnel y ochocientos por canal. Las aguas del río
+Segundo, que también serán aprovechadas en cantidad de mil seiscientos
+litros por segundo, junto con los mil litros del Ciruelas, serán captadas
+por medio de una presa de concreto o manpostería, que se localizará
+aproximadamente doscientos metros aguas abajo del puente situado en la
+finca de don Roberto Castro Beeche, por medio de un canal de mil noventa
+metros de longitud. Los dos mil seiscientos litros de agua por segundo
+pasarán a un tanque de almacenamiento de la capacidad necesaria que
+permita desarrollar siete mil quinientos kilovatios (7,500 K.W.), durante
+las horas de mayor consumo de energía eléctrica del sistema. Del tanque
+de almacenamiento, el agua pasará a un tanque de presión de donde
+arrancarán tres tubos de acero que se conectarán a la maquinaria
+hidroelé
