@@ -1,0 +1,3 @@
+Artículo 12.-El presente reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta".
+Reglamento aprobado por el Concejo Municipal de Guácimo, en la sesión ordinaria 06, celebrada el 10 de febrero 1999.
+Ciudad de Guácimo.-
