@@ -1,3 +1,4 @@
-Artículo 42.—Las sociedades que hubieren obtenido créditos conforme a los artículos 38 y siguientes, rendirán mensualmente al Banco Internacional un informe detallado de las operaciones de crédito verificadas en el mes anterior.
+Artículo 42.—Las sociedades que hubieren obtenido créditos conforme a los artículos 38 y siguientes, rendirán mensualmente al Banco Internacional (*) un informe detallado de las operaciones de crédito verificadas en el mes anterior.
+(*)(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 16 del 5 de noviembre de 1936 "Ley Orgánica del Banco Nacional de Costa Rica (BNCR)" se establece que el Banco Internacional de Costa Rica, se denominará en el futuro Banco Nacional de Costa Rica)
 La Directiva del Banco ordenará, de tiempo en tiempo, la inspección de los libros de contabilidad del Almacén, por medio de los delegados que al efecto nombre, a fin de comprobar la exactitud de aquellos informes y el cumplimiento de las leyes por parte de los Almacenes.
 La renuencia a rendir aquellos informes o a permitir estas investigaciones, constituye motivo suficiente para tener por vencido y exigible el crédito respectivo.

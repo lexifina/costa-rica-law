@@ -1,2 +1,3 @@
 Artículo 31.—Si no hubiere postor que cubra la base al contado, se practicará un nuevo remate con los mismos trámites del anterior, pero rebajada aquélla en un diez por ciento; y si tampoco hubiere postor en esta nueva subasta, se practicará una tercera, con rebaja de otro diez por ciento del precio primitivo, y así sucesivamente.
-Los Almacenes y el tenedor de los bonos de prenda pueden participar en los remates; pero este último tendrá preferencia sobre los primeros para adjudicarse las mercancías rematadas, en, igualdad de circunstancias.
+Los Almacenes y el tenedor de los vale de prenda (*) pueden participar en los remates; pero este último tendrá preferencia sobre los primeros para adjudicarse las mercancías rematadas, en, igualdad de circunstancias.
+(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgánica del Banco Nacional de Costa Rica")

@@ -1,6 +1,6 @@
 # Ley del Banco Internacional de Costa Rica
 
-Ley N° 16 del 1914-10-09. SINALEVI, ficha 36066: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36066&param2=86589&param3=1>.
+Ley N° 16 del 1914-10-09. SINALEVI, ficha 36066: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36066&param2=86623&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 6 | 1916-05-12 | Ley 5 | 1916-05-12 |
 | 4 de 6 | 1917-06-23 | Ley 3 | 1917-06-23 |
 | 5 de 6 | 1933-03-28 | Ley 63 | 1933-03-28 |
+| 6 de 6 | 1937-01-01 | Ley 16 | 1936-11-05 |

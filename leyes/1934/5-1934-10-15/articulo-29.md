@@ -1,3 +1,4 @@
-Artículo 29.—El bono de prenda que no fuere cancelado en la fecha de su vencimiento debe ser protestado dentro de los seis días ; hábiles siguientes.
+Artículo 29.—El vale de prenda (*) que no fuere cancelado en la fecha de su vencimiento debe ser protestado dentro de los seis días ; hábiles siguientes.
 El protesto se hará en el mismo Almacén que expidió el bono, contra el tenedor registrado del certificado de depósito correspondiente y de acuerdo con los trámites del protesto de letras de cambio. Las diligencias se entenderán directamente con el Almacén o sus representantes, sin que sea necesaria ninguna notificación al tenedor del certificado, ni su presencia.
-La anotación que el Almacén ponga en el bono de prenda o en hoja anexa de haber sido presentado y no pagado a su vencimiento, surte los mismos efectos que el protesto.
+La anotación que el Almacén ponga en el vale de prenda (*) o en hoja anexa de haber sido presentado y no pagado a su vencimiento, surte los mismos efectos que el protesto.
+(*)(Modificada su denominación por el artículo 199 de la ley N° 16 del 5 de noviembre de 1936, "Ley Orgánica del Banco Nacional de Costa Rica")
