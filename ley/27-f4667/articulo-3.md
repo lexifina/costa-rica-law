@@ -1,0 +1,1 @@
+Art 3°.- Desde la publicación de este decreto la Provincia de San José contribuirá con cien hombres, la de Cartago con cien, contribuirá con cien hombres, la de Cartago con cien, la de Heredia con igual número y la de Alajuela con cincuenta, en atención a que es la que más ha sufrido de la plaga y a que se ha ocupado ya por mucho tiempo de destruirla.

@@ -1,0 +1,1 @@
+Art 15°.- También son obligados los dueños de terrenos, donde ha estado el chapulin a ararlos y peinarlos, si fuere posible, para que se hagan menos sensibles a la agricultura los brazos ocupados en destruir la Langosta.

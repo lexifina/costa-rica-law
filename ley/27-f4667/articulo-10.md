@@ -1,0 +1,1 @@
+Art 10°.- Se pondrá a disposición de los Gobernadores y del Comandante General el dinero necesario para habilitar con cuatro realies a cada uno de los trabajadores con el fin de que provean de alimento el día de la salida y el siguiente.
