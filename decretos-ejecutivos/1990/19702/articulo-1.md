@@ -21,3 +21,4 @@ De las 5,00 a las 16,00 horas .............…......... $ 18,00
 De las 16,00 a las 22,00 horas ....................... $ 20,00
 De las 22,00 a las 5,00 horas ........................ $ 22,00
 Los montos indicados anteriormente pueden hacerse efectivos en colones al tipo de cambio vigente al arribo del buque a puerto nacional.
+NOTA: mediante el artículo 1° del decreto ejecutivo N° 31807 de 5 de marzo de 2004, se dispone excluir del cobro de derechos por servicios extraordinarios establecidos en este artículo, a los buques pesqueros nacionales dedicados a la actividad pesquera no deportiva que arriben a los puertos de Costa Rica y que soliciten servicios fuera de la jornada ordinaria.

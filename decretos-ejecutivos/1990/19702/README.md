@@ -14,3 +14,4 @@ Reglamento Cobro Derechos Servicios Extraordinarios Buques que arriben a puertos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-05-30 | la propia norma |
+| 2 | 2004-03-05 | Decreto Ejecutivo 31807 (2004-03-05) |
