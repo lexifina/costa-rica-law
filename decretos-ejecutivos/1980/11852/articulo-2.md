@@ -1,0 +1,1 @@
+Artículo 2°-La presente expropiación se realiza de conformidad con los avalúos N° 17.159 AV-E, N° 17.067 AV-E, N° 17.068 AV-E y 17.157 AV-E de la Dirección General de la Tributación Directa, respectivamente.
