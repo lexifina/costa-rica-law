@@ -1,0 +1,1 @@
+Artículo 40.—Si a su juicio fuere necesario el criterio de la Asamblea General se someterá a su conocimiento y se emitirá como opinión del Colegio la contenida en el dictamen acogido por la mayoría de los colegiados presentes.

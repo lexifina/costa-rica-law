@@ -1,0 +1,1 @@
+Artículo 29.—El Prosecretario asumirá las funciones del Secretario en las ausencias temporales de éste, pero en todo caso lo auxiliará en forma permanente, según un plan de trabajo que elaborará el Presidente.
