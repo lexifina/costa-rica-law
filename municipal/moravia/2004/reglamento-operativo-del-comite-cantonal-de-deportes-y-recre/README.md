@@ -14,3 +14,4 @@ Reglamento operativo del Comité Cantonal de Deportes y Recreación de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-04 | la propia norma |
+| 2 | 2004-09-20 | Reglamento municipal 123 (2004-09-20) |
