@@ -1,0 +1,1 @@
+Artículo 14.-Como tales, los Consejos Regionales o Locales de Desarrollo no pueden asumir la ejecución de ningún plan, programa o proyecto, función que en cada caso estará a cargo de los organismos públicos, nacionales o municipales, o de los organismos privados, según se determine en el plan regional o local correspondiente.
