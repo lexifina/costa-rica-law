@@ -1,0 +1,4 @@
+ARTICULO 96.- Estos fondos los hará efectivos el Director Ejecutivo
+de conformidad con los artículos 33, inciso e) y 46 inciso d) de la Ley
+Orgánica, y de acuerdo con las partidas específicas incluidas en el
+presupuesto anual de gastos del correspondiente Colegio.

@@ -1,0 +1,7 @@
+ARTICULO 58.- La solicitud de registro deberá presentarse a la
+Dirección Ejecutiva y, salvo que contenga defectos de presentación o
+insuficiente información, en cuyo caso el Director Ejecutivo así lo
+comunicará a los interesados para su corrección o complemento, al empresa
+quedará debidamente inscrita siempre que cubra la cuota de inscripción que
+será de ¢ 500.00. Las empresas constructoras o consultoras no inscritas en
+el Colegio Federado no podrán realizar actividades en esos campos.

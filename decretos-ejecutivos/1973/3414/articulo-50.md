@@ -1,0 +1,10 @@
+De las Comisiones Especiales
+ARTICULO 50.- Corresponderá a la Junta Directiva General integrar
+comisiones especiales del Colegio Federado, sin perjuicio de las
+comisiones que puedan nombrar las Juntas Directivas de los Colegios. En el
+nombramiento de estas comisiones deberá acatarse lo dispuesto en el
+párrafo final del artículo 28 de la Ley Orgánica.
+La labor de las comisiones se concretará en informes de mayoría y de
+minoría, si los hubiere, que se someterá a la Junta Directiva General para
+su resolución. Las comisiones deberán tener un mínimo de tres miembros y
+su quórum estará integrado por la mayoría de los mismos.

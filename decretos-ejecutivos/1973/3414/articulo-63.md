@@ -1,0 +1,7 @@
+ARTICULO 63.- La Dirección Ejecutiva enviará aviso al Ministerio de
+Salubridad Pública, a las municipalidades y demás oficinas e instituciones
+públicas, relacionadas con la aprobación de planos y construcción de
+obras, informándoles de la lista completa de miembros que están
+autorizados para el ejercicio profesional, así como las empresas
+constructoras y consultoras debidamente registradas Igual procederá cuando
+algún registro de empresa sea suspendido o cancelado.

@@ -1,0 +1,8 @@
+ARTICULO 78.- Si en el caso a que se refiere el artículo anterior o
+en cualquier otro caso, hubiere lugar a la formación de un Tribunal de
+Honor, la Junta Directiva General lo integrará con el Director Ejecutivo
+y dos miembros activos escogidos, uno del colegio a que pertenezca el
+acusado y el otro de libre nombramiento de la Junta Directiva General,
+siempre que uno y otro cumplan con los siguientes requisitos:
+Tener por lo menos cinco años de ejercer la profesión y no haber sido
+nunca sancionado por infracciones a la Etica Profesional.

@@ -1,0 +1,21 @@
+ARTICULO 9º.- Para ser miembro temporal se seguirá el siguiente
+trámite:
+a) Presentar certificación de la entidad estatal, profesional o
+privada que demande los servicios del profesional en cuestión, indicando
+en dicha certificación el tipo de asesoría que prestará y el tiempo que
+permanecerá en el país.
+b) Presentar fotocopia de su título y demás atestados profesionales,
+todo debidamente autenticado, además, su curriculum vitae, calidades
+personales y tres fotocopias recientes tamaño pasaporte.
+c) Los permisos correspondientes se entenderán por un término no
+mayor de un año, quedando a juicio del Colegio de renovación, según se
+solicite oportunamente y lo justifiquen los términos de la respectiva
+contratación.
+d) Para otorgar el permiso de tomará en cuenta la inopia en el campo
+profesional de la especialidad, o circunstancias especiales que lo
+ameriten, ambos extremos a juicio de la Junta Directiva General.
+e) La autorización será dada bajo la obligación de que el organismo
+estatal o entidad privada asigne a un ingeniero o a un arquitecto a
+trabajar junto con el miembro temporal, para que la experiencia que viene
+a dejar el miembro temporal en las diferentes ramas, sea asimilada al
+máximo posible por un miembro activo del Colegio Federado.

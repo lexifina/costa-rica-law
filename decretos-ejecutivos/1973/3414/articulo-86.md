@@ -1,0 +1,5 @@
+ARTICULO 86.- La asamblea de representantes acordará, suspenderá y
+modificará el régimen de auxilio del Colegio Federado y podrá en cualquier
+tiempo acogerse a otros sistemas de mutualidad, seguros o pensiones,
+variando parcial o totalmente los beneficios consignados en este
+Reglamento.

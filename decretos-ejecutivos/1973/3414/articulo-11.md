@@ -1,0 +1,9 @@
+ARTICULO 11.- Serán considerados asociados los que admitan como tales
+por el Reglamento especial respectivo que regulará sus derechos y
+obligaciones, pero quedan sometidos al régimen disciplinario del Colegio
+Federado de conformidad con lo que dispone la Ley Orgánica, el presente
+Reglamento y el Código de Etica del Colegio Federado, así como a las demás
+normas y reglamentos especiales del Colegio Federado que les sean
+aplicables.
+La calidad de asociado será indispensable para el ejercicio de la
+profesión respectiva.

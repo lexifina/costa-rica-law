@@ -1,0 +1,46 @@
+ARTICULO 55.- Para los efectos del artículo 52 de la Ley Orgánica, se
+entenderán por empresas consultoras y constructoras, las comprendidas en
+las siguientes definiciones:
+a) Por una empresa se entenderá toda aquella unidad económica formada
+por una persona jurídica o por una o varias personas físicas dedicadas a
+ejercer dichas actividades.
+b) Las empresas se dividirán en nacionales, cuando su capital
+pertenezca a costarricenses en no menos de un setenta por ciento y
+extranjeras cuando menos de ese porcentaje pertenezca a costarricenses.
+c) Se considerará como empresa consultora aquella cuyo objeto se
+dirija a la formulación y realización de estudios, consultas,
+asesoramiento, anteproyectos, proyectos, diseños, cálculos, programas,
+presupuestos, especificaciones, planes, carteles de licitación, inspección
+o dirección técnica de obras y demás tipos de obra intelectual relativos
+a las diversas disciplinas técnicas y científicas comprendidas en los
+campos de la arquitectura y de la ingeniería.
+Se entenderá igualmente dentro de las funciones propias de una
+empresa consultora la ejecución en la práctica de aquellos estudios,
+planes, etc., que impliquen tan sólo dirección o asesoría técnica, es
+decir aplicación exclusiva de trabajo intelectual, Bajo el criterio se
+considera consultoría la dirección técnica de una obra.
+Los estudios, diseños, cálculos y demás etapas de la preparación del
+proyecto, ejecutados conforme al contrato por servicios profesionales,
+deberán presentarse firmados por un miembro activo del Colegio Federado
+indicando su número de registro y dicho miembro será el responsable
+profesionalmente por el proyecto en todos los aspectos que competen a la
+consultoría.
+El proyecto podrá ser firmado por varios profesionales y en este caso
+cada profesional responderá por la parte que realizó en el proyecto.
+d) Se tendrá como empresa constructora a aquella cuyo objeto se
+dirija a la materialización de los proyectos resultantes del trabajo de
+empresas consultoras o de instituciones públicas
+Tal realización física se logrará mediante el suministro y uso
+adecuado , por parte de la empresa constructora, de los materiales,
+equipos, métodos de trabajo y recursos humanos y técnicos apropiados para
+la correcta obtención de la obra que se trate, respetando los planos,
+especificaciones e indicaciones de la o de las empresas consultoras o
+instituciones públicas, según sea el caso.
+Tales planos de construcción o de urbanización deberán ser firmados
+por un miembro activo del Colegio Federado, quien será el responsable
+profesionalmente de la realización de la obra.
+Estos planos podrá ser firmados también por varios profesionales y en
+este caso cada profesional responderá por la participación que tuviere en
+el ejecución de la obra.
+e) La responsabilidad civil por el diseño así como por la ejecución
+de la obra, se establecerá de acuerdo con lo que dispone el Código Civil.

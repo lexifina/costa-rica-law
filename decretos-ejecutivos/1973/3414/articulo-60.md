@@ -1,0 +1,4 @@
+ARTICULO 60.- Las empresas consultoras y constructoras deberán contar
+entre su personal técnico por lo menos con un miembro activo del Colegio
+Federado, quien será responsable de las actuaciones de estas empresas en
+los términos y condiciones estipulados en la ley y este reglamento.

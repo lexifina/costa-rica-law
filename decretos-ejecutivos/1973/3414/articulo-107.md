@@ -1,0 +1,7 @@
+ARTICULO 107.- La asamblea de representantes aprobará una suma para
+los presupuestos de los colegios que será repartida equitativamente al
+número de colegios miembros. Los colegios deberán presentar su programa de
+egresos a la Junta Directiva General para su debido conocimiento, previa
+aprobación de la asamblea respectiva.
+Los fondos no utilizados en el año económico, deberán devolverse al
+Colegio Federado.

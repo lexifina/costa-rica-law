@@ -1,0 +1,6 @@
+ARTICULO 104.- Caso de que el proyecto de presupuesto no fuere
+aprobado en la asamblea de representantes convocada para este efecto, será
+conocido en cualesquiera de las reuniones que se convoquen posteriormente
+y si iniciara el año fiscal sin que fuera aprobado, regirá para el
+siguiente año el presupuesto del año anterior, hasta tanto no se apruebe
+en definitiva el nuevo presupuesto.

@@ -1,0 +1,12 @@
+ARTICULO 17.- El que haya dejado de pertenecer al Colegio Federado,
+podrá de nuevo ingresar a éste, así:
+a) En caso de inhabilitación para el ejercicio de la profesión, una
+vez cumplida la pena o haber sido rehabilitado.
+b) En caso de retiro voluntario, cuando manifieste su deseo de volver
+a formar parte del Colegio, siempre que para entonces cumpla los
+requisitos exigidos por la ley y el reglamento para incorporarse al
+Colegio, excepto en el caso de quien ha sido miembro activo, ocasión en
+que bastará la solicitud formal de reingreso y el pago de la cuotas de
+mutualidad que hubiere dejado de pagar durante su retiro, a menos que
+se halle en alguno de los casos que contempla el artículo 14 de este
+Reglamento.

@@ -1,0 +1,5 @@
+ARTICULO 68.- Todas las consultas técnicas, excepto las formuladas
+por el Estado y sus instituciones, devengarán honorarios cuyo monto fijará
+la Junta Directiva General. Dichos honorarios deberán ser cubiertos por el
+interesado previamente a que la comisión especial respectiva rinda su o su
+dictámenes.
