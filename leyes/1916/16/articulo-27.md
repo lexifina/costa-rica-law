@@ -1,0 +1,1 @@
+Artículo 27.---Para mayor garantía de los tenedores de bonos hipotecarios, se establece que el conjunto de hipotecas constituidas a favor del Banco para emisión de bonos hipotecarios responde con privilegio especial al con junto de tenedores de dichos bonos, en caso de liquidación del Banco emisor.

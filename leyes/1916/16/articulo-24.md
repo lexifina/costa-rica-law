@@ -1,0 +1,1 @@
+Artículo 24. — Los administradores de establecimientos de beneficencia, los tutores de menores, curadores de inhábiles y representantes de ausentes, quedan autorizados para colocar los fondos que administren, en bonos hipotecarios.
