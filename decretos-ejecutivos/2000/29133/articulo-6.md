@@ -1,0 +1,1 @@
+Artículo 6-Las autoridades del Ministerio de Seguridad Pública y de Gobernación y Policía, seran obligados colaboradores del Ministerio de Agricultura y Ganadería, para la prevención, combate y erradicación de la enfermedad conocida como "Leprosis de los Cítricos".

@@ -1,0 +1,1 @@
+Artículo 3°-Todos los productores de cítricos del país están obligados a reportar al Ministerio de Agricultura y Ganadería, cualquier cambio, situación o anormalidad que noten en sus cultivos y que pudiera ser sospechosa de la presencia de la enfermedad conocida como "Leprosis de los Citricos".

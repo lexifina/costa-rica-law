@@ -1,0 +1,1 @@
+Artículo 5°-Toda persona física o jurídica, propietaria u ocupante, a cualquier título, de plantaciones de cítricos, o dedicada a la producción de cítricos, está en la obligación de asistir sus plantaciones, de tal manera que con ello se evite que en las mismas se desarrollen plagas perjudiciales para sus cultivos.

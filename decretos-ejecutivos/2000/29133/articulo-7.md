@@ -1,0 +1,1 @@
+Artículo 7-Se prohíbe el ingreso a Territorio Nacional, de plantas de cítricos o partes de ellas, provenientes de países en donde se encuentra presente la enfermedad conocida como "Leprosis de los Cítricos".

@@ -1,0 +1,1 @@
+Artículo 8-El incumplimiento de lo dispuesto en el presente Decreto, será sancionado conforme a lo dispuesto en el Capítulo VIII "De las Disposiciones Penales" de la Ley de Protección Fitosanitaria, N° 7664 del 8 de abril de 1997 y demás legislación conexa.
