@@ -1,0 +1,3 @@
+Transitorio. -Esta ley entrará en vigencia cuando la Secretaría de Fomento reciba de la Compañía Bananera de Costa Rica las tierras a que ella se refiere. Dicha Secretaría, al declarar en vigencia Dicha Secretaria, al declarar en vigencia la presente ley, publicará los datos de inscripción en el Registro Público, naturaleza, situación, medida y linderos y todos los demás detalles útiles para la identificación de los terrenos en referencia.
+COMUNÍQUESE AL PODER EJECUTIVO
+Dado en el Salón de Sesiones del Congreso. -Palacio Nacional San José, a los doce días del mes de diciembre de mil novecientos treinta y cinco. R.A. Calderón Guardia, Vicepresidente. Joaquin Vargas Coto, Primero Secretario. A. Baltodano b. Segundo Secretario.

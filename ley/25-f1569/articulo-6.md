@@ -1,0 +1,1 @@
+Artículo 6°-Con idénticos fines se destinan igualmente treinta hectáreas (30) de la finca «El Salvador para la Colonia Agrícola de Pococí. La Secretaría de Fomento procederá a demarcarlas de acuerdo con la ley que creó la Colonia y los fines indicados.
