@@ -1,5 +1,2 @@
-ARTICULO 27.- Las instituciones, órganos y demás dependencias del
-Estado están obligados a brindar la mayor colaboración a la Defensoría
-General de los Derechos Humanos para el buen desempeño de sus labores. Esta
-tendrá, dentro de su campo de acción, las mismas atribuciones de los
-procuradores.
+Artículo 27.- Las instituciones, órganos y demás dependencias del Estado están obligados a brindar la mayor colaboración a la Defensoría General de los Derechos Humanos para el buen desempeño de sus labores. Esta tendrá, dentro de su campo de acción, las mismas atribuciones de los procuradores.
+(Nota de Sinalevi: Sobre las funciones de la Defensoría de la Mujer indicadas en este artículo, véase la Ley de la Defensoría de los Habitantes de la República No.7319 de 17 de noviembre de 1992, así como los artículos 1,2 y 3 de la Ley de la Jurisdicción Constitucional, N° 7135 del 11 de octubre de 1989 y especialmente la Ley del Instituto Nacional de las Mujeres No.7801 de 30 de abril de 1998)

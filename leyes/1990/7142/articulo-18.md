@@ -1,4 +1,2 @@
-ARTICULO 18.- Para el cumplimiento de lo estipulado en el artículo
-anterior, el Ministerio de Educación Pública le impartirá la capacitación
-necesaria al personal docente, en coordinación con el Centro Nacional para
-el Desarrollo de la Mujer y la Familia.
+Artículo 18.- Para el cumplimiento de lo estipulado en el artículo anterior, el Ministerio de Educación Pública le impartirá la capacitación necesaria al personal docente, en coordinación con el Centro Nacional para el Desarrollo de la Mujer y la Familia(*).
+(*) (Nota: El artículo 26, inciso c), de la ley No.7801 de 30 de abril de 1998 indica que toda referencia al Centro Nacional para el Desarrollo de la Mujer y la Familia se entenderá referida al Instituto Nacional de las Mujeres)

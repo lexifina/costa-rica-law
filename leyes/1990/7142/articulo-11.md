@@ -1,3 +1,1 @@
-ARTICULO 11.- El Ministerio de Salud ejercerá, a nombre del Estado,
-las potestades de apertura, fiscalización y supervisión de los centros
-infantiles.
+Artículo 11.- (Derogado por el artículo 24 de la Ley General para Guarderías Infantiles y Hogares Escuela, No.7380 del 8 de marzo de 1994)
