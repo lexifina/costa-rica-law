@@ -1,9 +1,8 @@
-ARTÖCULO 4§.-El Pabell¢n que se use en los
-edificios p£blicos antes indicados y en la residencia
-del Presidente de la Rep£blica, ser n de
-lana, de cuatro metros de largo por dos metros
-setenta cent¡metros de ancho.
-Llevar estampado en el centro de la faja
-roja sobre fondo blanco el Escudo de Armas,
-que ocupar una circunferencia de ochenta y
-cuatro cent¡metros de di metro.
+Artículo 4º.- El pabellón que se izará en los edificios públicos que
+indica el artículo 2º, medirá dos metros de largo por un metro, veinte
+centímetros de ancho y llevará estampado en colores el Escudo Nacional,
+en la faja roja, dentro de una elipse blanca de treinta centímetros en su
+eje mayor por veinte en el menor, cuyo centro quedará a sesenta
+centímetros del extremo del pabellón sujeto al asta.
+( Así reformado por ley Nº 60 de 13 de junio de 1934 y por el artículo 1º
+de la ley Nº 3429 de 21 de octubre de 1964 ).
