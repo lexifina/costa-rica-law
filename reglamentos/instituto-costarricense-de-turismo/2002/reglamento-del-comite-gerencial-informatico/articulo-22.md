@@ -1,0 +1,1 @@
+Artículo 22.—En cada sesión se levantará un acta en la que constará quiénes asistieron, las circunstancias de tiempo y lugar en que se ha celebrado la reunión, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
