@@ -1,0 +1,1 @@
+Artículo 6º—El "encargado (a)" de transportes, será responsable por el buen uso y por el cumplimiento de las leyes de tránsito y conexas, reglamentos y disposiciones que sobre el uso y transportes, establezcan tanto la Municipalidad como otras autoridades competentes, así como lo relacionado con el mantenimiento y refacción de los vehículos propiedad de este municipio.

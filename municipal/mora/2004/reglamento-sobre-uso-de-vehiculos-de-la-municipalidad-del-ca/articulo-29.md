@@ -1,0 +1,1 @@
+Artículo 29.—La aplicación de este Reglamento es de responsabilidad del Alcalde o Alcaldesa. La Auditoría ejercerá sus controles sobre este particular, cuando lo juzgue conveniente dentro de su programa de trabajo o a solicitud del Concejo Municipal o de uno de sus miembros.
