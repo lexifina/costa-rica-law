@@ -1,20 +1,3 @@
-Artículo 63: Instrumento para Consignar los Acuerdos
-Los acuerdos y votos salvados deberán consignarse en un acta.
-Tratándose del Consejo de Análisis deberá remitirse copia del acta
-al coordinador de nivel y al Consejo Técnico Institucional en un plazo
-perentorio de quince días. La misma regla se aplicará al Consejo Técnico,
-pero el plazo será de siete días.
-El Consejo de Valoración enviará copia del acta al Instituto
-Nacional de Criminología en un plazo no mayor a los siete días hábiles
-posteriores a la fecha en que adquirieron firmeza los acuerdos de la
-sesión. Además remitirá en una separata adjunta la documentación
-respectiva de los privados y privadas de libertad en cuya valoración se
-acordó su reubicación del Nivel Institucional al Semiinstitucional En
-Comunidad y del Nivel Semiinstitucional al En Comunidad.
-Cuando el pronunciamiento del Concejo de Valoración sobre el Plan de
-Atención del privado o privada de libertad versare sobre los beneficios y
-gracias previstos en el Código Penal y Código de Procedimientos Penales
-que son competencia exclusiva del Instituto Nacional de Criminología, el
-Director del Centro o de Ambito según corresponda, elevará ante ese
-Organo el informe respectivo en forma directa para su resolución
-definitiva.
+Artículo 63.—Instrumento para Consignar los Acuerdos. Los acuerdos y votos salvados de los Consejos Técnicos y de Valoración deberán consignarse en un acta. Una copia del acta del Consejo Técnico será enviada a la Dirección del Departamento Técnico y al Coordinador del Nivel respectivo.
+Cuando el pronunciamiento de un Consejo de Valoración versare sobre el cambio del Nivel Institucional al Semi Institucional o viceversa u otros beneficios o gracias que son competencia exclusiva de pronunciamiento del Instituto Nacional de Criminología, el Director del Centro o ámbito, según corresponda, elevará ante ese órgano Superior los informes respectivos con el acuerdo del Consejo de Valoración para su resolución definitiva, una vez que los mismos hayan adquirido firmeza, sin que esto vaya en perjuicio de lo establecido en el capítulo III del Título segundo de este Reglamento, De los Recursos.
+(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 27510, del 17 de noviembre de 1998.)
