@@ -1,0 +1,1 @@
+Artículo 6º—Oportunidad de presentar la solicitud: JAPDEVA mantendrá abierta la posibilidad de recibir solicitudes para la prestación de diferentes servicios a los barcos en forma permanente, y los permisos se otorgarán una vez verificado el trámite que establece este Reglamento.

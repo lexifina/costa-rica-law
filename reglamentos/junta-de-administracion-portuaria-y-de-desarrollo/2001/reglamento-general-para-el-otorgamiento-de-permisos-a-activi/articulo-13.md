@@ -1,0 +1,1 @@
+Artículo 13.—Lugar para recibir notificaciones: Toda solicitud deberá ser presentada mediante escrito debidamente firmado por el solicitante, en el que señalará un lugar para recibir notificaciones dentro del perímetro de la ciudad de Limón.

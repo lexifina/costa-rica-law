@@ -1,0 +1,2 @@
+VI. CONTROLES
+Artículo 24.—Control de la actividad. La División Administrativo Financiera de JAPDEVA, llevará un expediente para cada uno de los permisionarios, a efectos de controlar y evaluar la calidad del servicio, de conformidad con los términos establecidos en la Ley de las Contralorías de Servicios y en el presente Reglamento. Por su parte, corresponderá a las respectivas Superintendencias controlar el desarrollo de su operación y exigir el cumplimiento de lo establecido en el Reglamento de Operaciones Portuarias dentro de las instalaciones portuarias.

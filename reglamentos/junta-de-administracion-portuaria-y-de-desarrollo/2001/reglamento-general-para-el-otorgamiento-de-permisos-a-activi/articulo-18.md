@@ -1,0 +1,1 @@
+Artículo 18.—Análisis de la solicitud: Una vez que la División Administrativa Financiera concluya el análisis, lo remitirá con las recomendaciones respectivas a la Gerencia Portuaria, para que dentro del plazo de cinco días hábiles lo eleve al Consejo de Administración de JAPDEVA el informe y la recomendación respectiva a fin de que ese Consejo tome la decisión final.
