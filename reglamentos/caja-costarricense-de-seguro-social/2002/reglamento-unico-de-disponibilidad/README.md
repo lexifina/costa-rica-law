@@ -14,3 +14,4 @@ Reglamento único de disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2004-01-16 | Reglamento 7825 (2004-01-16) |
