@@ -13,3 +13,4 @@ Declara Interés Arquitectónico e Histórico Iglesia de la Concepción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-03 | la propia norma |
+| 2 | 1980-06-03 | SINALEVI (sin norma nombrada) |
