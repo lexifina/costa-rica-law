@@ -1,0 +1,1 @@
+Artículo 4°─Las aduanas del país exigirán en cada desalmacenaje de leche descremada, la licencia de importación que para tal efecto deberá extender el Departamento de Comercio interior de la Dirección antes mencionada.
