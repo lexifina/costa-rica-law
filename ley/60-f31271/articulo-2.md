@@ -1,0 +1,1 @@
+Artículo 2°.-Todo pasaporte de emigración será extendido por los respectivos Gobernadores provinciales en un libreto que al efecto editará la Secretaría de Gobernación con las indicaciones y requisitos de ley, y al cual le será agregado el timbre correspondiente.
