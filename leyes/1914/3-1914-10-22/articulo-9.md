@@ -1,0 +1,1 @@
+Artículo 9.-Los reos empleados en trabajos públicos, no podrán durante el tiempo e sus labores, comunicarse con los particulares, sean o no familiares suyos, y sólo podrán hacerlo con sus superiores.-La contravención a este artículo, será considerada como falta de buena conducta.
