@@ -1,0 +1,1 @@
+Artículo 13.—Funciones y atribuciones. La Junta de Mediadores conocerá, mediará y propondrá alternativas, en aquellos casos donde los miembros del Foro de la Concertación tengan tales discrepancias que les impida llegar a decisiones por consenso. La Secretaría Ejecutiva velará por el adecuado funcionamiento de la Junta de Mediadores.

@@ -1,0 +1,1 @@
+Artículo 8°—Ampliación sectorial del Foro. La Mesa Coordinadora del Foro, en casos en que la naturaleza de la temática así lo requiera, podrá complementar, para su análisis y discusión, la representatividad del Foro de Concertación a una cantidad no mayor de tres personas provenientes de las organizaciones sociales vinculadas al tema

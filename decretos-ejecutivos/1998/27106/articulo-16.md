@@ -1,0 +1,1 @@
+Artículo 16.—Procedimiento en caso de incumplimiento. Si la Comisión de Verificación de Acuerdos detecta algún incumplimiento de los acuerdos alcanzados en el proceso de la Concertación, lo comunicará inmediatamente al Presidente de la República para que ejecute lo que corresponda.

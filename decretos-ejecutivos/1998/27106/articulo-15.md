@@ -1,0 +1,1 @@
+Artículo 15.—Funciones y atribuciones. La Comisión de Verificación de Acuerdos es el órgano que se encarga de verificar el fiel cumplimiento de cada uno de los acuerdos tomados en el proceso de Concertación.
