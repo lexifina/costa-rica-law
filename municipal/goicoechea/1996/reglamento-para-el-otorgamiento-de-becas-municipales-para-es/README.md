@@ -15,3 +15,4 @@ Reglamento para el Otorgamiento de Becas Municipales para Estudiantes de Secunda
 | --- | --- | --- |
 | 1 | 1997-03-17 | la propia norma |
 | 2 | 1998-09-21 | Reglamento municipal 75 (1998-09-21) |
+| 3 | 2000-07-31 | Reglamento municipal 31 (2000-07-31) |
