@@ -1,0 +1,1 @@
+Artículo 7°-La Refinadora Costarricense de Petróleo, S. A., reconocerá a partir de la vigencia de la resolución del Servicio Nacional de Electricidad a las estaciones de servicio, el márgen de utilidad que fije el Organismo Regulador.

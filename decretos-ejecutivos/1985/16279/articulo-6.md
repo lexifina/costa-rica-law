@@ -1,0 +1,3 @@
+Artículo 6°-Las dependencias ministeriales correspondientes, en un plazo que no exceda de noventa días, deberán verificar que las estaciones de servicio cumplan con lo establecido en el ordenamiento jurídico vigente.
+Aquellas que lo incumplieren se harán acreedoras a un márgen de utilidad establecido en el acápite tercero del artículo 4° de la sesión N° 2283 celebrada el 29 de abril de 1985 por la Junta Directiva del Servicio Nacional de Electricidad, modificando la certificación que establece el artículo 5° de este decreto.
+El incumplimiento imputado deberá establecerse mediante resolución razonada, previa audiencia al expendedor, a su asociación o representante.

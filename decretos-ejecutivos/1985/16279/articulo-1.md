@@ -1,0 +1,12 @@
+N° 16279-MIEM
+EL VICEPRESIDENTE
+EN EJERCICIO DE LA PRESIDENCT A DE LA RE PUBLICA
+y EL MINISTRO DE INDUSTRIA, ENERGIA Y MINAS,
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140 de la Constitución Política y con fundamento en el artículo 2° de la ley N° 6588,
+Considerando :
+1°- Que el artículo IV de la ley N° 6812 del 21 de setiembre de 1982 expresamente determina que "corresponde al Ministerio de Industria, Energía y Minas la formulación de la planificación de las políticas industriales, energéticas y mineras del Gobierno de Costa Rica, así como la dirección, la vigilancia y el control en los campos mencionados".
+2°- Que el artículo 29 de la ley N9 6588 establece que el precio de venta de los productos de la Refinadora Costarricense de Petróleo, S. A., será determinado por el Servicio Nacional de Electricidad, el cual deberá tener en cuenta para la determinación de los precios tanto los costos totales como el asegurar una rentabilidad que permita un crecimiento acorde con las necesidades del país. En razón de lo anterior la Refinadora Costarricense de Petróleo por sí sola no tiene competencia para fijar de modo imperativo tales márgenes de utilidad, aspecto que tiene incidencia directa en el precio de venta del producto y que conforme con la ley le corresponde fijar al Servicio Nacional de Electricidad.
+3°- Que mediante decretos números 14434-MIEM-PLAN y 15290-MIEM-PLAN Publicados el 25 de abril de 1983 y 6 de abril de 1984, respectivamente, se constituye el Sector Industria. Energía y Minas, al cual dentro de otras funciones le corresponde establecer una política de precios de los energéticos acorde con las prioridades que exige el desarrollo socio económico del país.
+4°- Que la Procuraduría General de la República, mediante los pronunciamientos números C-045 del 16 de marzo de 1982 y C-380 del 30 de noviembre de 1984, establece claramente que el porcentaje de utilidad de los gasolineros y transportistas debe ser establecido por el Servicio Nacional de Electricidad, como un rubro o factor más a considerar para efectos de determinación de los costos totales, de previo a fijar el precio de venta de los productos de RECOPE.
+Por tanto,
+Artículo 1°- Se autoriza al Servicio Nacional de Electricidad, para realizar la correspondiente fijación de márgenes de las estaciones de servicio y transportistas de combustibles, así como para dictar las normas de servicio tendientes al mejoramiento en la prestación del servicio al público que sustentarán los márgenes de utilidad.

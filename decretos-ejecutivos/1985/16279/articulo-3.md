@@ -1,0 +1,3 @@
+Artículo 3°-Para el cumplimiento de las tareas encomendadas al Servicio Nacional de Electricidad los expendedores de combustibles están obligados a cooperar con el Organismo Regulador y a suministrar la información que se le solicite.
+El Servicio Nacional de Electricidad tendrá acceso a los registros contables que llevan las estaciones de servicio, para verificar la información suministrada, cuando lo estime conveniente.
+Los expendedores adoptarán y mantendrán los sistemas contables, técnicos y estadísticos que determine el Servicio Nacional de Electricidad. Los sistemas estadísticos estarán referidos únicamente al expendio de combustibles.

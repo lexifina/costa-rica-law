@@ -1,0 +1,1 @@
+Artículo 5°- Otórgase a las estaciones de servicio actualmente en operación, la certificación a que se refiere el artículo 4°, acápite 2°, de la sesión ordinaria N° 2283, celebrada el día 29 de abril de 1985 por la Junta Directiva del Servicio Nacional de Electricidad, a efecto de que se hagan acreedores al márgen de utilidad en él indicado.
