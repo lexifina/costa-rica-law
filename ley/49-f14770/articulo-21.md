@@ -1,0 +1,2 @@
+XXI.
+Durante todo el tiempo de la presente concesión estará exento el Banco de pagar derecho alguno fiscal por las acciones y cédulas que emita, así como por la importación y exportación de metálico, y no podrán imponérsele ni por el Gobierno ni por ninguna otra autoridad del país, mayores ni distintas contribuciones de las que en la época en que el Banco abra sus operaciones paguen los demás Bancos.
