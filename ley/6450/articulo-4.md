@@ -1,0 +1,2 @@
+Artículo 4º.- Se prohíbe la constitución de sociedades anónimas con acciones al portador. Así como aquellas sociedades cuyas cuotas o acciones pertenezcan o vayan a pertenecer a una sociedad anónima con acciones al portador.
+Las sociedades anónimas ya constituidas, con acciones al portador, deberán convertir tales acciones en nominativas, en un plazo no mayor de un año, a partir de la vigencia de esta ley.

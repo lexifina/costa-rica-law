@@ -1,0 +1,20 @@
+N° 6450
+LA SAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+Decreta:
+Artículo 1º.- Refórmase el Código Fiscal, Título VII "Del Timbre", Capítulo I, artículo 273, en sus incisos 12), 13), 14) y 15) y adiciónase un inciso al final, que será el 28). Sus textos serán los siguientes:
+"Artículo 273.- En la aplicación del impuesto de timbre se observan las reglas y salvedades siguientes:
+12) Los vales o pagarés satisfarán el impuesto de timbre, a razón de dos céntimos por cada diez colones o fracción sobre el monto de la obligación principal.
+13) Las letras de cambio y cheques girados sobre plazas extranjeras pagarán diez colones de timbre en cada libranza. Las letras de cambio y cheques girados en el exterior, sobre plazas en Costa Rica, pagarán un colón de timbre en cada libranza cuando fueren a la vista.
+Las letras, pagarés y facturas, que impliquen créditos girados en el exterior contra entidades en Costa Rica, pagarán dos céntimos por cada diez colones o fracción sobre el de la obligación principal.
+Los timbres deberán adherirse al mismo tiempo de la emisión de las letras, facturas o cheques, si son girados en Costa Rica, o al de su presentación para ser pagados o aceptados, si han sido librados en otro país. Las letras a la vista o a plazo, giradas en Costa Rica y pagaderas en el mismo país, satisfarán dos céntimos de timbre por cada diez colones o fracción.
+Los cheques que se giren contra cuentas corrientes establecidas en los bancos del país deberán pagar un impuesto de treinta céntimos de colón.
+Este impuesto será cobrado por el banco respectivo, al momento de entregar los talonarios. Del monto recaudado, se girará a la Junta Administrativa del Archivo Nacional lo indicado en los artículos 7º y 8º de la ley Nº 5574, en la forma señalada en esa ley.
+Todos los pagarés o hipotecas deberán anotarse en el Departamento de Anotación de la Tributación Directa, en las oficinas regionales o en las delegaciones cantonales. Para los efectos de este artículo, el interesado presentará el documento original y una copia.
+A ambos documentos se les pondrá el "anotado" y el original deberá devolverse de inmediato al interesado.
+El Departamento de Anotación de la Tributación Directa, con la copia, deberá llevar, para fines fiscales, un registro de acreedores de estos documentos. Para el cálculo del pago del Impuesto sobre la Renta y únicamente para este efecto, se presumirá en estos documentos un interés no menor del uno por ciento (1%) mensual. Los documentos dichos deberán anotarse, dentro de un término no mayor de tres meses después de su expedición.
+El incumplimiento de lo dispuesto en este artículo dejará sin efecto el carácter de título ejecutivo de estos documentos, salvo en lo que se refiere a hipotecas. Se exceptúan de esta disposición los documentos que suscriban las instituciones estatales y el Banco Popular y de Desarrollo Comunal y las cooperativas de ahorro y préstamo.
+14) Los poderes para negocios, que excedan de un mil colones (¢1.000,00) y sus sustituciones, pagarán cien colones (¢ 100,00) de timbres; los poderes y sustituciones para negocios de menor cuantía y las cartas poderes pagarán cinco colones (¢ 5,00) de timbre.
+15) Los pasaportes y salvoconductos de cualquier índole, que se expidan o visen a ciudadanos costarricenses y a residentes extranjeros, pagarán cincuenta colones (¢ 50,00) de timbres. Igual suma corresponderá pagar por las visas a cualquier parte del exterior del país. Los trabajadores agrícolas que hayan ingresado al país, en razón de su empleo, pagarán dos colones (¢ 2,00) de timbre.
+Las cédulas de residencia que se expidan y los derechos anuales que deberá cancelar su titular pagarán timbre, conforme al detalle siguiente: cada cédula de residencia que se expida; quince colones (¢ 15,00); los derechos de residencia correspondientes, de conformidad con lo establecido en la ley Nº 5358 del 29 de setiembre de 1973.
+Se exceptúan del pago del timbre los pasaportes diplomáticos y oficiales.
+28) Todo documento que deba ser inscrito en el registro de importación del Banco Central pagará timbre de diez colones (¢ 10,00).
