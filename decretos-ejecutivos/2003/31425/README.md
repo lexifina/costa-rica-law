@@ -14,3 +14,4 @@ Crea Comisión Nacional para la Conmemoración del Sesquicentenario de la Campa�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-03 | la propia norma |
+| 2 | 2004-06-23 | Decreto Ejecutivo 31998 (2004-06-23) |

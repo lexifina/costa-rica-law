@@ -8,4 +8,5 @@ Considerando:
 3º—Que este hecho, al igual que muchos otros que han marcado el devenir histórico costarricense, merece un reconocimiento, tanto oficial como de la ciudadanía.
 4º—Que para la adecuada conmemoración de este hecho fundamental para la historia costarricense, se hace necesario la constitución de un órgano oficial, que dirija y coordine las importantes actividades a realizar.
 DECRETAN:
-Artículo 1º—Créase la Comisión Nacional para la Conmemoración del Sesquicentenario de la Campaña Nacional contra los Filibusteros, 1856-1857, que estará adscrita al Ministerio de Cultura, Juventud y Deportes y que tendrá como responsabilidad la organización, divulgación y promoción de actividades alusivas a este acontecimiento histórico, en el territorio nacional.
+Artículo 1º—Créase una Comisión Auxiliar de la Comisión Nacional de Conmemoraciones Históricas, para la Conmemoración del Sesquicentenario de la Campaña Nacional contra los Filibusteros 1856-1857, que tendrá como responsabilidad la organización, divulgación y promoción de actividades alusivas a este acontecimiento histórico, en el territorio nacional.
+(Así reformado parcialmente por el artículo 1° del Decreto Ejecutivo N° 31998 de 23 de junio de 2004.)
