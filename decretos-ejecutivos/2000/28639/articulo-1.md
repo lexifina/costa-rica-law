@@ -144,3 +144,5 @@ respecto del Patronato de Construcciones, Instalaciones y Adquisición de Bienes
 para la Junta de Protección Social)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29503 de 23 de marzo del 2001,
 respecto del Programa Integral de Mercadeo Agropecuario)
+(Modificado por el Decreto Ejecutivo N° 29434 de 5 de abril del 2001,
+respecto de la Fabrica Nacional de Licores)

@@ -113,4 +113,8 @@ Junta Administrativa del registro Nacional)
 (Modificado por el artículo 1 del decreto Ejecutivo N° 29205 de 20 de noviembre del 2000,
 con respecto de la Junta Administrativa de la Imprenta Nacional)
 (Modificado por el artículo del Decreto Ejecutivo N° 29233 de 13 de diciembre del 2000, que
-adiciona exclusiones a diferentes instituciones)
+adiciona exclusiones a diferentes instituciones de acuerdo a lo estipulado en el
+inciso b) )
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29434 de 5 de abril del 2001,
+que aiciona exclusiones a diferentes instituciones, de acuerdo a lo estipulado en el
+inciso b) )
