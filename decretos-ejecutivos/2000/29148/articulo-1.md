@@ -1,3 +1,4 @@
+(Derogado)
 PODER EJECUTIVO DECRETOS N° 29148-MINAE
 EL PRESIDENTE DE LA REPUBLICA Y LA MINISTRA DEL AMBIENTE Y ENERGIA
 En el ejercicio de las facultades que les confiere el articulo 140, inciso 3) de la Constitucion Politica y de conformidad con la Convencion sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestre (CITES), Ley N° 5605 del 22 de octubre de 1974 y lo establecido en los articulos 6, 7, 12, 14 y 18 de la Ley de Conservacion de la Vida Silvestre N° 7317 de 30 de octubre de 1992.
@@ -11,4 +12,4 @@ Por tanto, Decretan:
 REGULACIONES PARA LA CAZA MENOR Y MAYOR Y PESCA CONTINENTAL E INSULAR
 CAPITULO I
 LaCaza en areas protegidas
-Articulo 1°-Se prohibe la caza mayor y menor, la caza menor de aves canoras y de plumaje, asi como la pesca en Parques Nacionales, Reservas Biologicas, Monumentos Naturales, Reservas Forestales, Zonas Protectoras del pais, Reservas Indigenas (excepto la caza de subsistencia) y Refugios de Vida Silvestre, (excepto cuando se trate de programas o planes de manejo que realice el Sistema Nacional de Areas de Conservacion del MINAE)
+Articulo 1°-DEROGADO por el artículo 31 del Decreto Ejecutivo N° 30102 del 27 de noviembre del 2001.
