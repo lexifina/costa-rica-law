@@ -1,0 +1,1 @@
+Transitorio.-Esta ley entrará en vigencia tan pronto hay partida en el Presupuesto General de Gastos de 1950, para el pago de personal de la citada Alcaldía, y para lo cual se formula atenta excitativa al Poder Ejecutivo
