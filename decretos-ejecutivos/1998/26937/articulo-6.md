@@ -1,2 +1,2 @@
-Artículo 6.—De las sesiones. El Consejo sesionará ordinariamente dos veces al mes. Será convocado por el Presidente con al menos veinticuatro horas de anticipación y sesionará de manera extraordinaria cuando el Presidente lo estime necesario.
-Los miembros del Consejo que no sean funcionarios del Ministerio de Justicia ganarán dietas conforme a la Ley.
+Artículo 6.—De las sesiones. El Consejo sesionara ordinariamente dos veces al mes. Será convocado por el Presidente con al menos veinticuatro horas de anticipación y sesionará de manera extraordinaria cuando el Presidente lo estime necesario. Además se regirá por lo dispuesto en los artículos 49 y siguientes de la Ley General de la Administración Pública.
+(Así reformado por el artículo 7° del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)

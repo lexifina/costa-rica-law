@@ -1,1 +1,1 @@
-Transitorio Segundo: Se ratifica el nombramiento de los miembros del Consejo y la Comisión según su integración actual, quienes continuarán en sus cargos hasta cumplir el plazo de cuatro años.
+Transitorio Segundo: (Derogado por el artículo 26 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)

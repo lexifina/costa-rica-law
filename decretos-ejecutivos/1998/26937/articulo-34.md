@@ -1,1 +1,2 @@
-Artículo 34.—De la difusión de anuncios o avances de otros materiales. En las películas de vídeo, cine y televisión calificadas para menores de edad, solo se autorizará la presentación de avances, anuncios o atracciones de otros materiales que hayan sido calificadas para ese grupo etáreo.
+Artículo 34.—De la difusión de anuncios o avances de otros materiales. En las películas de vídeo, cine y televisión calificadas para menores de edad. se autorizara la presentación de avances, anuncios o atracciones de otros materiales que no hayan sido calificados para ese grupo etáreo, siempre que no contengan escenas no aptas para el grupo al que se dirigen en ese momento.
+(Así reformado por el artículo 17 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
