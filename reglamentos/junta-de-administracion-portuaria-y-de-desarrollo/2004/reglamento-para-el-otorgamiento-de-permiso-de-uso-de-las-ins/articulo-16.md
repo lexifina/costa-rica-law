@@ -1,0 +1,2 @@
+Artículo 16.—Del proceso de cancelación del permiso: La cancelación del permiso por alguna de las causas aquí indicadas se tramitará mediante procedimiento sumario seguido por la Unidad de Cruceros de JAPDEVA, quien lo remitirá al Consejo de Administración, para su revocatoria.
+Contra la resolución que dicte la Unidad de Cruceros sólo cabrá el recurso de apelación ante el Consejo de Administración, debidamente justificada por escrito, en un plazo no mayor de tres días hábiles, contados a partir del día siguiente de la notificación.
