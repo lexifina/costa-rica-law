@@ -15,6 +15,8 @@ iii) Saldo diario de recursos captados del público en moneda nacional y en mone
 iv) Saldos del día viernes de cada semana del crédito y depósitos del público.
 v) Saldos a fin de mes del crédito y depósitos del sector público.
 vi) Información para el cálculo de las reservas monetarias internacional en poder del Sistema Bancario Nacional.
+vii) Saldo mensual de los créditos directos y líneas de crédito contratados en el exterior.
+(Así adicionado el epígrafe anterior mediante sesión N° 5116-2002 del 2 de mayo del 2002).
 Los bancos estatales, privados, cooperativos y solidaristas deberán preparar las estadísticas semanales y mensuales anteriores, siguiendo el formato del anexo correspondiente elaborado por el Departamento Monetario de la División Económica.
 2.-Las empresas financieras no bancarias deberán remitir al Departamento Monetario del Banco Central de Costa Rica y a la Auditoría General de Entidades Financieras, un informe mensual acerca de la Ejecución del Financiamiento al Sector Privado. La información deberá ser entregada en cada una de las dependencias indicadas a más tardar 20 días naturales después del término de cada mes, siguiendo los formatos del Anexo N° 2.
 Además deberán presentar al Departamento Monetario dentro de los primeros veinte días hábiles de cada mes, el Balance de Situación con cierre al último día mes anterior, según formato y cuadros adicionales del Anexo N° 3.
