@@ -2,4 +2,4 @@ Artículo 9º.—Los autobuses dedicados a esta actividad, deberán llevar pinta
 1) "Servicios Especiales".
 2) "Transporte de Estudiantes".
 Deberán además llevar pintado en la parte trasera ub rótulo que diga "ALTO", en un hexágono inscrito en un círculo de 40 centímetros de diámetro.
-No se podrá prestar el servicio de transporte de estudiantes con vehículos de modelo inferior a cinco años del año vigente, ni podrá circular a una velocidad superior a los 40 kilómetros por hora en carretera y 25 en la ciudad.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 29584 del 22 de marzo de 2001)

@@ -1,2 +1,5 @@
-Artículo 5º.—Para la explotación de los servicios especiales, deberá utilizarse únicamente los vehículos autorizados por la Dirección General de Transporte Automotor, los cuales no podrán tener, en ningún caso, una capacidad inferior a veinticinco pasajeros o un modelo inferior a diez años del año siguiente, salvo que la revisión técnica determinare cosa contraria en forma fehaciente.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20141 del 14 de diciembre de 1990)
+Artículo 5º.—Para la explotación de los servicios especiales regulados en el presente reglamento, deberán utilizarse únicamente los vehículos autorizados por el Consejo de Transporte Público, los cuales deberán tener el rango de antigüedad máximo permitido que sea establecido, según la normativa que para tales efectos emita el Consejo de Transporte Público.
+Los vehículos autorizados para la transportación de servicios especiales de estudiantes de educación primaria y secundaria, *(así como de transportación de turismo), deberán tener una capacidad mínima de 15 (quince) asientos.
+(*) Por resolución de la Sala Constitucional N° 2236 de las 14:38 hrs. del 2 de marzo del 2005, se anula la frase de este párrafo segundo que dice: "...así como de transportación de turismo..."
+(Por resolución de la Sala Constitucional N° 846 de las 11:28 hrs. del 28 de enero del 2005, se anuló el párrafo tercero de éste articulo).
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29584 del 22 de marzo de 2001)

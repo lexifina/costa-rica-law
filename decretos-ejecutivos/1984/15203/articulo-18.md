@@ -1,2 +1,3 @@
-Artículo 18.—Los permisos para servicios especiales únicamente serán otorgados si se cumplen en un todo y en forma estricta las anteriores disposiciones; y pueden ser cancelados si se comprueba algún incumplimiento de las disposiciones y condiciones con que deben prestar el servicio.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 20141 del 14 de diciembre de 1990, el cual agregó la última oración)
+Artículo 18.—Los permisos para explotación de servicio de transportes especiales, serán otorgados, únicamente si cumplen en su totalidad los requisitos formales y condiciones para su emisión, así como las anteriores disposiciones.
+Si en el curso de su vigencia se demostrase algún tipo de incumplimiento a los recorridos, horarios, paradas y en general a los cuadros operativos autorizados a los operadores de servicios especiales, el Consejo de Transporte Público podrá cancelar la autorización otorgada, conforme a las disposiciones contenidas en el artículo 154 de la Ley General de la Administración Pública.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29584 del 22 de marzo de 2001)
