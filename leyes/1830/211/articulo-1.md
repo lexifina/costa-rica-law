@@ -1,0 +1,5 @@
+DECRETO 211
+El Jefe Supremo del Estado libre de Costa Rica
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa Rica, teniendo á la vista la solicitud de Fray Francisco Quintana (religioso de la orden menor de San Francisco), de que se le socorra con una limosna mensual de los fondos que pertenecían al convento sería un deber de éste mantener con sus rentas á los religiosos desvalidos: observando últimamente, que pueden presentarse en lo sucesivo, casos de igual o semejante naturaleza, ha venido en decretar y decreta.
+Artículo 1°.- Se asistirá a Fray Francisco Quintana, con ocho pesos mensuales, pagaderos de los fondos que pertenecían al convento de San Francisco en Cartago, por el término de su inhabilidad, para procurarse la subsistencia y por el orden y forma establecida en el artículo 5° de la ley de 12 de marzo del corriente año, sobre la mesada que se ha de suministrar á los religiosos legos que se hallen en el caso de inhabilidad
