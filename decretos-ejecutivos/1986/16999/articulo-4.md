@@ -1,0 +1,1 @@
+Artículo 4º.- Corresponderá a la Dirección autorizar las exoneraciones de tributos que correspondan a las adquisiciones locales o importaciones previo cumplimiento de las disposiciones que la ley establece y de conformidad con las normas de este Reglamento.

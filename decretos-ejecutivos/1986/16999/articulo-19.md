@@ -1,0 +1,1 @@
+Artículo 19.- Excepcionalmente, los bienes adquiridos mediante exoneración de tributos podrán ser traspasados o vendidos a un tercero. En todo caso deberá tramitarse ante la Secretaría Técnica una solicitud de traspaso o venta de los bienes, según corresponda, debiendo finalmente el Ministerio de Hacienda efectuar la respectiva liquidación de los tributos.

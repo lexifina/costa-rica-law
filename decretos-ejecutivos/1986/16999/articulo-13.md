@@ -1,0 +1,1 @@
+Artículo 13.- Los vehículos se rotularán en ambas puertas con la frase "Al Servicio de la Exportación" y portarán placas de registro especiales con numeración otorgada por el Registro Público de Vehículos. El Ministerio de Obras Públicas y Transportes velará por lo dispuesto en este artículo e informará a la Dirección sobre los casos en que se incumpliese.
