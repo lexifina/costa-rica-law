@@ -24,3 +24,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 9 | 2004-09-21 | Decreto Ejecutivo 32055 (2004-09-21) |
 | 10 | 2004-09-21 | Decreto Ejecutivo 32071 (2004-09-21) |
 | 11 | 2004-09-21 | Decreto Ejecutivo 32056 (2004-09-21) |
+| 12 | 2004-10-13 | Decreto Ejecutivo 32088 (2004-10-13) |
