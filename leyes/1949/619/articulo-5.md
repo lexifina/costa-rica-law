@@ -1,0 +1,1 @@
+Artículo 5°-La Dirección General de Prisiones llevará la anotación del descuento de cada reo, de acuerdo con los informes de los Directores de los Penales, y ordenará la libertad de los reos, si así resultare de los cómputos del descuento por trabajo.

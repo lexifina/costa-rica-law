@@ -1,0 +1,2 @@
+Artículo 3°-Los Directores de los Penales donde se aplique el sistema, serán los encargados de llevar la inspección y vigilancia del trabajo y la anotación del tiempo trabajado por los reos. Asimismo, llevarán un control de la conducta de cada reo, para todo lo cual la Dirección General de Prisiones les suministrará los libros que sean necesarios.
+La calificación de la conducta se hará de acuerdo con el Capítulo II del Título II del decreto N° 110 de 18 de mayo de 1945.
