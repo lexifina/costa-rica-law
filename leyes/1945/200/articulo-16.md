@@ -1,1 +1,0 @@
-Artículo 16.- La ejecución de toda obra pública, contratada o no, está sujeta de pleno derecho a ser inspeccionada por delegados del Centro de Control, con la atribución éstos de exigir que perentoriamente se ponga el correctivo que en el caso quepa, o que se suspendan las obras, para ajustarlas a las especificaciones concertadas o aconsejadas por el técnico oficial.

@@ -1,1 +1,0 @@
-Artículo 12.- La planta de empleados de su propia oficina, sueldos y distribución de tareas secundarias, quedan encomendados a la atención del Jefe; sin perjuicio de tener que enviar con la debida oportunidad su presupuesto al Congreso, para que éste lo apruebe en definitiva y lo haga figurar en el ordinario anual de las dependencias legislativas.

@@ -1,1 +1,0 @@
-Artículo 11.- El Subjefe, aparte de las funciones propias, sustituirá al Jefe durante las ausencias u otras interrupciones del servicio. Cada cual de ellos para poder ejercer, debe estar provisto de una póliza de fidelidad por cincuenta mil colones.

@@ -1,2 +1,0 @@
-Artículo 30.- Si el cuentadante no se hallare conforme, en el plazo improrrogable de tres días a contar de la notificación del fallo en la casa señalada, podrá interponer recurso de apelación ante el Centro.
-Sin necesidad de citación y emplazamiento, dentro de los siguientes ocho días a la admisión del recurso, el apelante exhibirá al tribunal de alzada toda la documentación complementaria, las demás pruebas preconstituídas que le amparen y los alegatos escritos que juzgue del caso.
