@@ -1,30 +1,12 @@
-ARTICULO 58.- En la convención colectiva se especificará todo lo relativo
-a:
-a) La intensidad y calidad del trabajo;
-b) La jornada de trabajo, los descansos y las vacaciones;
-c) Los salarios;
-d) Los profesiones, oficios, actividades y lugares que comprenda;
-e) La duración de la convención y el día en que comenzará a regir. Es
-entendido que no podrá fijarse su vigencia por un plazo menor de
-un año ni mayor de tres, pero que en cada ocasión se prorrogará
-automáticamente durante un período igual al estipulado, si ninguna
-de las partes la denuncia con un mes de anticipación al respectivo
-vencimiento. Cuando la denuncia la hicieren los trabajadores,
-deberán representar por lo menos el sesenta por ciento de la
-totalidad de los miembros que tenían el sindicato o sindicatos que
-la hubieren celebrado; y cuando la formulen los patronos, éstos
-deberán en ese momento tener trabajando por lo menos igual
-porcentaje de los afectados por la convención.
-Copia de dicha denuncia debe hacerse llegar a la Oficina de Asuntos
-Gremiales y de Conciliación Administrativa del Ministerio de Trabajo
-y Seguridad Social antes de que se inicie el trascurso del mes a que
-alude el párrafo anterior;
-f) Las demás estipulaciones legales en que convengan las partes. No
-será válida la cláusula que obligue al patrono a renovar el
-personal a solicitud del sindicato de trabajadores, o cualquier
-otra que ponga en condiciones de manifiesta inferioridad a los no
-sindicalizados, y
-g) El lugar y fecha de la celebración de la convención y las firmas
-de las partes o de los representantes de éstas.
-( Los nombres fueron así reformados por las leyes No. 3372 de 6 de
-agosto de 1964 y Nº 5089 del 18 de octubre de 1972. )
+ARTICULO 58.-
+En la convención colectiva se especificará todo lo relativo a:
+La intensidad y calidad del trabajo;
+La jornada de trabajo, los descansos y las vacaciones;
+Los salarios;
+Los profesiones, oficios, actividades y lugares que comprenda;
+La duración de la convención y el día en que comenzará a regir. Es entendido que no podrá fijarse su vigencia por un plazo menor de un año ni mayor de tres, pero que en cada ocasión se prorrogará automáticamente durante un período igual al estipulado, si ninguna de las partes la denuncia con un mes de anticipación al respectivo vencimiento. Cuando la denuncia la hicieren los trabajadores, deberán representar por lo menos el sesenta por ciento de la totalidad de los miembros que tenían el sindicato o sindicatos que la hubieren celebrado; y cuando la formulen los patronos, éstos deberán en ese momento tener trabajando por lo menos igual porcentaje de los afectados por la convención.
+Copia de dicha denuncia debe hacerse llegar a la Oficina de Asuntos Gremiales y de Conciliación Administrativa del Ministerio de Trabajo y Seguridad Social antes de que se inicie el transcurso del mes a que alude el párrafo anterior;
+Las demás estipulaciones legales en que convengan las partes. No será válida la cláusula que obligue al patrono a renovar el personal a solicitud del sindicato de trabajadores, o cualquier otra que ponga en condiciones de manifiesta inferioridad a los no sindicalizados, y
+El lugar y fecha de la celebración de la convención y las firmas de las partes o de los representantes de éstas.
+(Los nombres fueron así reformados por las leyes No. 3372 de 6 de agosto de 1964 y Nº 5089 del 18 de octubre de 1972)
+(Interpretado por la Sala Constitucional en el sentido que: "a) son inconstitucionales las convenciones colectivas reguladas por los artículos 54 y siguientes del Código de Trabajo que se celebran en el sector público, cuando se trata de personal regido por la relación de empleo de naturaleza pública (relación estatutaria); b) no son inconstitucionales las convenciones colectivas que se celebran en el sector público, cuando las celebran obreros, trabajadores, funcionarios o empleados del sector público, cuyas relaciones laborales se regulan por el Derecho común; c) igualmente son compatibles con el Derecho de la Constitución, los instrumentos colectivos que se han negociado y se han venido prorrogando o modificando, en aplicación de la política general sobre convenciones colectivas en el Sector Público, salvo que se trate de negociaciones con personal en relación de empleo de naturaleza pública, en cuyo caso esos instrumentos resultan inconstitucionales; d) corresponde a la administración y a los jueces que conocen en los juicios laborales, en su caso, de la aplicación de las convenciones colectivas, determinar si los trabajadores involucrados, dada la naturaleza de las funciones que cumplen o cumplían, están regulados por el Derecho público o el común, a los efectos de definir si pueden o no ser sujetos activos en la aplicación de las convenciones colectivas". Resolución 4453-00 de las 14:56 horas del 24/05/2000, publicado en el Boletín Judicial N°124 del 28/06/2000.)
