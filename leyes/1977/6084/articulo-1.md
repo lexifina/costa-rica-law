@@ -1,4 +1,3 @@
-Artículo 1º.- Créase el Servicio de Parques Nacionales del Ministerio
-de Agricultura y Ganadería, que tendrá como función específica el
-desarrollo y administración de los parques nacionales para la conservación
-del patrimonio natural del país.
+ARTICULO 1º.- Créase el Servicio de Parques Nacionales del Ministerio de Agricultura y Ganadería, que tendrá como función específica el desarrollo y administración de los parques nacionales para la conservación del patrimonio natural del país.
+(Nota: La Ley Nº 7152 de 5 de junio de 1990, traslada el Servicio de Parques Nacionales al Ministerio de Ambiente y Energía(*))
+(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología, N° 9046 del 25 de junio de 2012)

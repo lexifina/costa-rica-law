@@ -1,4 +1,4 @@
-Artículo 13.- Corresponderá al Servicio de Parques Nacionales
+ARTICULO 13.- Corresponderá al Servicio de Parques Nacionales
 proponer al Poder Ejecutivo la creación de nuevos parques nacionales.
 Estos serán establecidos mediante decreto ejecutivo, en el que se
 indicarán, con toda precisión, los límites que previamente haya señalado
