@@ -1,1 +1,0 @@
-Artículo 33.—De todo accidente de tránsito en que participe un vehículo del PANI, Servicios Generales formará un expediente y elaborará un informe, el que será remitido a la Dirección Administrativa cuando determine que el conductor ha infringido la normativa vigente y recomendará la acción a tomar.

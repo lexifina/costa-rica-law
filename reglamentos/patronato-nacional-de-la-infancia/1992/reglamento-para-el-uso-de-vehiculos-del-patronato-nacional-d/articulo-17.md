@@ -1,2 +1,0 @@
-Artículo 17.—La circulación de vehículos del PANI en días u horas no hábiles, sólo se autorizará en casos muy calificados. La autorización deberá obtenerse en Servicios Generales y portarse en el vehículo.
-En el caso de vehículos asignados a la División de Servicios Integrales Descentralizados o a centros de atención a menores, la autorización será extendida por el Jefe de la oficina o del centro.

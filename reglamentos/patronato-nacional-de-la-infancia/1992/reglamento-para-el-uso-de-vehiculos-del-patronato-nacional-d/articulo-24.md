@@ -1,1 +1,0 @@
-Artículo 24.—Los conductores no deben permitir que personas particulares viajen los vehículos del PANI si no cuentan con la aprobación del jefe de la dependencia que solicitó el servicio, el cual asume toda la responsabilidad que de ello pueda derivarse.

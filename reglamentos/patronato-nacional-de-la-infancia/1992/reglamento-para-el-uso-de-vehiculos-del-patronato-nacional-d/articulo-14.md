@@ -1,1 +1,0 @@
-Artículo 14.—Servicios Generales no asignará vehículos en aquellos casos en que existan posibilidades de realizar un viaje utilizando el servicio de transporte remunerado de personas, si ello no perjudica la efectividad y oportunidad del trabajo.

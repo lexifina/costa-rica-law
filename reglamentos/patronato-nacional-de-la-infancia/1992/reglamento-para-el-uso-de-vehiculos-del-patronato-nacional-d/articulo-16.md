@@ -1,1 +1,0 @@
-Artículo 16.—Ningún vehículo podrá circular si, por su estado mecánico o de carrocería, incumple alguno de los requisitos de circulación señalados por las leyes, decretos ejecutivos o este reglamento.

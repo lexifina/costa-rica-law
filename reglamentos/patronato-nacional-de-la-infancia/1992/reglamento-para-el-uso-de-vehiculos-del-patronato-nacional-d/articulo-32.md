@@ -1,5 +1,0 @@
-Artículo 32.—Si el conductor del PANI fuere declarado culpable Tribunales de Justicia y se le comprobare negligencia o imprudencia, deberá pagar la totalidad del monto correspondiente a los deducibles que eventualmente tendrá la institución al INS.
-También deberá pagar la totalidad del gasto incurrido en las indemnizaciones que pague el PANI a terceros afectados mediante arreglos extrajudicial, cuando el costo del daño sea menor o inferior al monto de los deducibles.
-Deberá asimismo, asumir y pagar la totalidad del monto originado en las reparaciones, en los casos en que la culpabilidad se fundamente en la ingestión por parte del conductor, de bebidas alcohólicas, narcotranquilizantes o cualquier otro tipo de droga sicotrópica.
-Igualmente, será responsable aquel que permita a otras personas conducir un vehículo del PANI sin causa justificada y sin autorización, debiendo cubrir la totalidad de los deducibles y de los gastos incurridos en la reparación de la unidad.
-Lo aquí dispuesto será aplicado sin perjuicio de las sanciones disciplinarias a que se haga acreedor el trabajador.

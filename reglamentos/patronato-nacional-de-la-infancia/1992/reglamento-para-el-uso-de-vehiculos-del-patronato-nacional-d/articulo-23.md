@@ -1,1 +1,0 @@
-Artículo 23.—Los conductores no podrán hacer intercambio de accesorios o ponentes de los vehículos, si no cuentan con la aprobación de Servicios Generales. En ningún caso podrán utilizar, indebidamente, materiales o equipos destinados al funcionamiento, conservación o limpieza de los vehículos.

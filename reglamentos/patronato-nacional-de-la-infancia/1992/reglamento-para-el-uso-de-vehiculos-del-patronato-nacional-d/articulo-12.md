@@ -1,1 +1,0 @@
-Artículo 12.—Cuando un vehículo deba ser custodiado en casas de habitación de funcionarios, se requiere la aprobación de Servicios Generales y la autorización del Departamento de Servicios Administrativos de Apoyo.

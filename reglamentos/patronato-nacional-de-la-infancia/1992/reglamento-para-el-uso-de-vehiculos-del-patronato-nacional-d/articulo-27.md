@@ -1,1 +1,0 @@
-Artículo 27.—Se prohibe colocar adornos o calcomanías, tanto en el interior como en el exterior de los vehículos, o mantener objetos en el panel de instrumentos, excepto que sirvan para salvaguardar la integridad del vehículo o para facilitar su manejo.

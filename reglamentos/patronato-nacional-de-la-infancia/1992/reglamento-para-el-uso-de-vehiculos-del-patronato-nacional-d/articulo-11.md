@@ -1,1 +1,0 @@
-Artículo 11.—Los vehículos deberán guardarse, al terminar la jornada de trabajo en el estacionamiento de la institución o en los lugares indicados por las Delegaciones o Representaciones. Se exceptúan de esta disposición aquellos vehículos que, por motivo de gira, se encuentren distantes de los sitios señalados y los que, en situaciones especiales, determine Servicios Generales.

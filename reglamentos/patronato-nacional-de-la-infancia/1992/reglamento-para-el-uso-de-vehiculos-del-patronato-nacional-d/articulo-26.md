@@ -1,1 +1,0 @@
-Artículo 26.—Todo conductor, independientemente del recorrido que realice, deberá llenar, por cada servicio prestado o realizado, la fórmula "movimiento diario vehículos", la cual, verificada y firmada diariamente por la jefatura o persona autorizada que corresponda, deberá remitirse a Servicios Generales.

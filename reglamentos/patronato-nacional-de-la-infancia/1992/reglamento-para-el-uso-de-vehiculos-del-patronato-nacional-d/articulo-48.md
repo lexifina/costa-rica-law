@@ -1,1 +1,0 @@
-Artículo 48.—En ningún caso las facilidades o ventajas que haya representado o represente, para los funcionarios o empleados del PANI el uso de vehículos de la institución, sean estos de uso administrativo o discrecional, serán considerados salario en especie.

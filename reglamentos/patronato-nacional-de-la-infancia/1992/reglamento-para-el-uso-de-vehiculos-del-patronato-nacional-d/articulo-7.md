@@ -1,2 +1,0 @@
-Artículo 7°—La solicitud de transporte se presentará durante las horas hábiles de oficina los días de cada semana que Servicios Generales disponga, con el fin de programar y coordinar adecuadamente los recursos vehiculares para la siguiente semana.
-Los servicios cortos o imprevistos dentro del Área Metropolitana, serán prestados al momento de su solicitud, siempre y cuando se cuente con vehículo disponible.

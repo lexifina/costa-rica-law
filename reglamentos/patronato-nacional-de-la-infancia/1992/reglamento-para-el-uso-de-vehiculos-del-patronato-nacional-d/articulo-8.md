@@ -1,1 +1,0 @@
-Artículo 8°—Para el mejor aprovechamiento de los recursos institucionales Servicios Generales podrá agrupar, en un solo servicio, a varios solicitantes de un mismo sitio o ruta, siempre que las circunstancias lo permitan, dando aviso oportuno a los interesados , para lograr la mayor coordinación en el viaje.

@@ -1,3 +1,0 @@
-Artículo 46.—Los vehículos de uso discrecional son aquellos que están asignados al Director Ejecutivo de la entidad y no cuentan en su uso con restricciones en cuanto a los horarios de operación y recorrido, aunque sí están sujetos a aquellas otras disposiciones contenidas en este reglamento, que les resulten aplicables en razón del servicio que prestan.
-Portarán placas particulares y no se les pondrán marcas visibles que los distingan como vehículo del PANI.
-Deben ser utilizados única y exclusivamente en aquellas tareas que tengan relación con el cumplimiento de las funciones propias del cargo del servidor al que se asignan.
