@@ -1,0 +1,1 @@
+Artículo 3 °—Dentro de los límites del Parque Nacional Palo Verde regirán las disposiciones y prohibiciones establecidas para los parques nacionales, correspondiendo la administración de esta área al servicio de parques nacionales.

@@ -1,0 +1,1 @@
+Artículo 2°—Deróguense los decretos ejecutivos No 10535-A, de 17 de setiembre de 1979, No 1258-A de 24 de abril de 1981, No 15119-MAG de 4 de enero de 1984 y No 19238-MIRENEM de 29 de agosto de 1989, que crearon el Refugio de Fauna Silvestre "Rafael Lucas Caballero Rodríguez".
