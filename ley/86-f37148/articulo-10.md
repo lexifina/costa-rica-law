@@ -1,0 +1,1 @@
+Art 10. Para calificarlas de tales y adjudicarles la Municipalidades formados lista de ellas reconvendrá a sus dueños por oficio dentro del año si fuesen conocidas para que las reconozcan y cultiven, sino lo hiciesen o seguida una información que prueve su abandono quando los dueños no sean conocidos las adjudicará a otros cumplido el año.
