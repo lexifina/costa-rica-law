@@ -1,0 +1,1 @@
+Artículo 2°-Autorizase al Estado para otorgar su fianza en este empréstito, el cual una vez negociado, se remitirá a la Asamblea Legislativa para su aprobación definitiva, conforme lo ordena la Constitución Política.
