@@ -1,5 +1,6 @@
 Artículo 273.- En la aplicación del impuesto de timbre se observarán las reglas y salvedades siguientes:
-1) Los documentos de actos o contratos cuyo valor sea indeterminado o cuya cuantía sea inestimable, pagarán dos colones (¢ 2.00) de timbre;
+1) Por los documentos de actos o contratos cuyo valor sea indeterminado, o cuya cuantía sea inestimable, se pagará conforme lo establece el artículo 244.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
 2) Si en un mismo documento se consignan varios contratos o se contraen obligaciones distintas, se pagará el impuesto que corresponda a cada uno de ellos;
 3) Si el documento no expresa cantidad determinada y contiene máximum y mínimum, como los créditos en cuenta corriente, pagará el impuesto con relación al límite mayor de la obligación;
 4) En las permutas o cambios, el timbre será regulado por el importe total de los objetos del cambio;
@@ -10,48 +11,57 @@ Artículo 273.- En la aplicación del impuesto de timbre se observarán las regl
 9) En los contratos de préstamo, el impuesto se calculará sobre el capital o el valor de la cosa presentada;
 10) En los contratos relativos a servidumbre, la base será el valor estimativo dado a éstas;
 11) En los escritos de transacción o arreglo entre litigantes, el impuesto lo regulará la cuantía de la acción fijada en el juicio;
-12) Los vales o pagarés satisfarán el impuesto de timbre, a razón de dos céntimos por cada diez colones o fracción sobre el monto de la obligación principal.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
-13) Las letras de cambio y cheques girados sobre plazas extranjeras pagarán diez colones de timbre en cada libranza. Las letras de cambio y cheques girados en el exterior, sobre plazas en Costa Rica, pagarán un colón de timbre en cada libranza cuando fueren a la vista.
-Las letras, pagarés y facturas, que impliquen créditos girados en el exterior contra entidades en Costa Rica, pagarán dos céntimos por cada diez colones o fracción sobre el de la obligación principal.
-Los timbres deberán adherirse al mismo tiempo de la emisión de las letras, facturas o cheques, si son girados en Costa Rica, o al de su presentación para ser pagados o aceptados, si han sido librados en otro país. Las letras a la vista o a plazo, giradas en Costa Rica y pagaderas en el mismo país, satisfarán dos céntimos de timbre por cada diez colones o fracción.
-Los cheques que se giren contra cuentas corrientes establecidas en los bancos del país deberán pagar un impuesto de treinta céntimos de colón.
-Este impuesto será cobrado por el banco respectivo, al momento de entregar los talonarios. Del monto recaudado, se girará a la Junta Administrativa del Archivo Nacional lo indicado en los artículos 7º y 8º de la ley Nº 5574, en la forma señalada en esa ley.
-Todos los pagarés o hipotecas deberán anotarse en el Departamento de Anotación de la Tributación Directa, en las oficinas regionales o en las delegaciones cantonales. Para los efectos de este artículo, el interesado presentará el documento original y una copia.
-A ambos documentos se les pondrá el "anotado" y el original deberá devolverse de inmediato al interesado.
-El Departamento de Anotación de la Tributación Directa, con la copia, deberá llevar, para fines fiscales, un registro de acreedores de estos documentos. Para el cálculo del pago del Impuesto sobre la Renta y únicamente para este efecto, se presumirá en estos documentos un interés no menor del uno por ciento (1%) mensual. Los documentos dichos deberán anotarse, dentro de un término no mayor de tres meses después de su expedición.
-El incumplimiento de lo dispuesto en este artículo dejará sin efecto el carácter de título ejecutivo de estos documentos, salvo en lo que se refiere a hipotecas. Se exceptúan de esta disposición los documentos que suscriban las instituciones estatales y el Banco Popular y de Desarrollo Comunal y las cooperativas de ahorro y préstamo.
-(Así reformado el inciso 13) anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
+12) Los vales o pagarés satisfarán el impuesto, a razón de cinco céntimos por cada diez colones o fracción sobre el monto de la obligación principal. El mínimo que se pagará será de diez colones (¢10,00) de timbre.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+13) Por las fórmulas de cheques de cuentas corrientes de cualquiera de los bancos establecidos en en país, se pagará un impuesto de treinta céntimos de colón, el cual será cobrado por el banco respectivo en el momento de entregar los talonario. Del monto recaudado se girará a la Junta Administrativa del Archivo Nacional, lo indicado en los artículos 7º y 8º de la ley Nº 5574 del 17 de setiembre de 1974, según ahí se señala.
+(Así reformado el inciso anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
 14) Los poderes para negocios, que excedan de un mil colones (¢1.000,00) y sus sustituciones, pagarán cien colones (¢ 100,00) de timbres; los poderes y sustituciones para negocios de menor cuantía y las cartas poderes pagarán cinco colones (¢ 5,00) de timbre.
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
-15) Los pasaportes y salvoconductos de cualquier índole, que se expidan o visen a ciudadanos costarricenses y a residentes extranjeros, pagarán cincuenta colones (¢ 50,00) de timbres. Igual suma corresponderá pagar por las visas a cualquier parte del exterior del país. Los trabajadores agrícolas que hayan ingresado al país, en razón de su empleo, pagarán dos colones (¢ 2,00) de timbre.
-Las cédulas de residencia que se expidan y los derechos anuales que deberá cancelar su titular pagarán timbre, conforme al detalle siguiente: cada cédula de residencia que se expida; quince colones (¢ 15,00); los derechos de residencia correspondientes, de conformidad con lo establecido en la ley Nº 5358 del 29 de setiembre de 1973.
-Se exceptúan del pago del timbre los pasaportes diplomáticos y oficiales.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
-16) Todo aviso, anuncio o edicto en interés particular que haya de publicarse en el periódico oficial, pagará diez céntimos (¢ 0.10) de timbre;
-17) Los documentos de toda acción en sociedades, compañías, empresas o establecimientos mercantiles o de carácter civil, pagarán el timbre de cuatro céntimos por cada diez colones o fracción que la acción represente;
-18) Cada patente de establecimiento de comercio pagará cincuenta céntimos (¢ 0.50) de timbre;
-19) Toda primera certificación de una matrícula o inscripción de embarcaciones destinadas al cabotaje en aguas costarricenses, pagará el timbre a razón de dos colones (¢ 2.00) por tonelada de registro o fracción;
-20) Toda primera certificación o constancia del asiento o acta original de matrícula o inscripción de chinos, pagará por cada uno de éstos cinco colones (¢ 5.00); pero cada segunda certificación que de la misma matrícula se extienda para uso particular del interesado, pagará timbre por valor de cincuenta colones (¢ 50.00);
-21) Toda certificación o copia autorizada de piezas de expedientes, o de actas o asientos de libros, apud acta o extendida por separado, a solicitud particular, o en virtud de mandamiento o resolución judicial, pagará dos colones (¢ 2.00) de timbre por la primera hoja o fracción, un colón (¢ 1.00) por cada hoja o fracción de hoja adicional. Las certificaciones que extiendan los Registros Públicos, excepto el de la Propiedad, pagarán cuatro colones (¢ 4.00) de timbre por cada asiento que se certifique; pagará asimismo cuatro colones (¢ 4.00) de timbre, la certificación de que no aparece inscrito un asiento. Las certificaciones en materia penal, las expedidas por el Registro de la Propiedad, las extendidas para fines electorales, para efectos de pensión y las extendidas de oficio para servicios o intereses públicos, estarán exentas del impuesto de timbre.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 4407 del 2 de setiembre de 1969)
-22) Las patentes de privilegios exclusivos pagarán timbres de veinte colones (¢ 20.00). Cada ejemplar de modelo de marca de fábrica o de comercio pagará timbre de cinco colones (¢ 5.00). Toda certificación de inscripción, traspaso, cancelación o enmienda, etc., de marcas de fábrica o de comercio o de propiedad científica, literaria o artística, pagará dos colones (¢ 2.00) de timbre, y toda inscripción de esta propiedad llevará timbre de cinco colones (¢ 5.00);
-23) Los títulos universitarios o profesionales que se ostenten o hagan valer en Costa Rica, pagarán cuatro colones (¢ 4.00) de timbre;
-24) En los libros de contabilidad mercantil, se pagará el impuesto de un céntimo por cada folio u hoja. El total del timbre se agregará al pie de la razón que debe poner la Dirección General de la Tributación Directa, y será cancelado por dicha oficina;
-25) Las ejecutorias no inscribibles en el Registro Público de la Propiedad, pagarán timbre así: dos colones (¢ 2.00) las de sentencias dictadas en negocios de cuantía inestimable; en las demás, el impuesto tendrá por base la estimación de la cuantía del juicio;
+15) Por pasaportes, salvoconductos de cualquier índole y documentos de identidad que se expidan para viajes, se pagará dos mil colones de timbres. Por las visas de salida a cualquier parte del exterior del país, se pagarán quinientos colones.
+Todo extranjero que haya permanecido en el país por más de treinta días, en calidad de turista, requerirá visa de salida del territorio nacional, salvo que por convenios internacionales se haya establecido un Plazo mayor de permanencia.
+Por la renovación de pasaportes y de documentos de identidad para viajes, se pagará, cada vez, la suma de quinientos colones en timbres fiscales.
+(Así reformado el inciso 15) anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+16) Por todo aviso, anuncio o edicto en interés particular, que haya de publicarse en el Diario Oficial y en el Boletín Judicial, se pagarán diez colones en timbre fiscal.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+17) (Derogado por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+18) Por cada patente de establecimiento de comercio se pagará cien colones (¢ 100,00) de timbres fiscales.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+19) Por toda primera certificación de una matrícula o inscripción de embarcaciones destinadas al cabotaje en aguas costarricenses, se pagará el timbre a razón de diez colones por tonelada de registro o fracción.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+20) Por toda certificación o constancia extendida por la autoridad judicial competente de pensiones alimenticias, para efectos de salida del país, se pagarán veinticinco colones en timbres.
+(Así reformado el inciso anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+21) Por toda certificación o copia autorizada de piezas de expedientes, o de actas o asientos de libros, apud acta o extendida por separado, a solicitud particular, o en virtud de mandamiento o resolución judicial, se pagarán cinco colones (¢5,00) de timbre por la primera hoja o fracción y dos colones (¢ 2,00) por cada hoja o fracción de hoja adicional. Por las certificaciones que extiendan los registros públicos se pagarán diez colones (¢ 10,00) de timbre fiscal por asiento, lo mismo que cuando no aparezca asiento inscrito. Las certificaciones en materia penal, las expedidas para efectos o fines electorales, para efectos de pensión, y las extendidas de oficio para intereses o servicios públicos, están exentas del impuesto del timbre.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+22) Por patentes de privilegios exclusivos se pagarán timbres de doscientos cincuenta colones (¢ 250,00). Por cada ejemplar de modelo de marca de fábrica o de comercio se pagará de timbre fiscal cien colones (¢ 100,00). Por toda inscripción o certificación de inscripciones, traspaso, cancelación o enmienda y otros, de marca inscritas en el Registro Nacional, se pagarán cien colones (¢ 100,00) de timbres fiscales.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+23) Por los títulos universitarios o profesionales que se obtengan o hagan valer en Costa Rica, se pagarán las sumas que a continuación se detallan, de acuerdo con el grado académico otorgado o con el nivel profesional obtenido:
+Doctorado ¢ 750,00
+Maestría 600,00
+Licenciatura 350,00
+Bachillerato 250,00
+Diplomado 150,00
+Otros títulos 100,00
+La suma correspondiente se cancelará por medio de timbres fiscales o por entero del Banco Central o de los bancos del Estado".
+(Así reformado el inciso 23) anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+24) Por cada libro de contabilidad mercantil se pagarán cien colones (¢ 100,00) de timbre fiscal. El timbre se agregará al pie de la razón que debe poner la Dirección General de la Tributación Directa, y será cancelado por dicha oficina.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+25) Por las ejecutorias no inscribibles en el Registro Nacional se pagarán timbres así: diez colones (¢ 10,00) las sentencias dictadas en negocios de cuenta inestimable; en las demás el impuesto tendrá como base la estimación de la cuantía del juicio.
+(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
 26) Los testimonios de protocolizaciones de documentos en cuyo original se ha pagado el impuesto de timbre, estarán exentos de contribuir de nuevo, siempre que dé fe el Notario o Cartulario; y
-(*)27) Estarán además exentos del impuesto del timbre: la revocación de poderes; los exhortos y mandamientos en lo judicial; los testimonios de escrituras complementarias o adicionales, que no aumenten la cuantía ni modifiquen sustancialmente el contenido del contrato principal; toda garantía - caución, hipoteca, prenda o fianza - si se otorga en el mismo documento en que consta la obligación que se garantiza; las pólizas de compañías nacionales de seguros de vida, y las cancelaciones o pagos, que se hagan constar en el mismo documento de la obligación principal o en otro documento, en que el mismo deudor contraiga nueva obligación.
-Todo otro documento en que especialmente se haga constar cancelación, satisfará el impuesto general de un céntimo de colón de timbre, por cada diez colones o fracción. Lo anterior, tratándose de documentos no inscribibles en el Registro de la Propiedad, pues en cuanto a los inscribibles, se estará a lo dispuesto en la ley respectiva. Los endosos, modificaciones y prórrogas por el total o saldo, en su caso, que se practiquen en el Registro General de Prendas, pagarán el timbre de acuerdo con la siguiente tabla:
-De ¢ 1.00 a ¢ 1.000.00 Timbre de ¢ 1.00
-De ¢ 1,001.00 a 5.000.00 Timbre de 2.00
-De ¢ 5,001.00 a 10.000.00 Timbre de 5.00
-De ¢ 10,001.00 a 20.000.00 Timbre de 10.00
-De ¢ 20,001.00 a 50.000.00 Timbre de 20.00
-De ¢ 50,001.00 en adelante Timbre de 20.00
-más cincuenta céntimos de colón (¢ 0.50), por cada mil o fracción.
-(*)(Así reformado el inciso anterior por el artículo 1° de la ley N° 4407 del 2 de setiembre de 1969)
-28) Todo documento que deba ser inscrito en el registro de importación del Banco Central pagará timbre de diez colones (¢ 10,00).
+(*)27) Además, estarán exentos del impuesto de timbre: la revocación de poderes; los exhortos y mandamientos en lo judicial; los testimonios de escrituras complementarias o adicionales, que no aumenten la cuantía ni modifiquen sustancialmente el contenido del contrato principal; toda garantía-caución, hipoteca, prenda o fianza, si se otorga en el mismo documento en que consta la obligación que se garantiza; las pólizas de compañías nacionales de seguros de vida; y las cancelaciones o pagos, que se hagan constar en el mismo documento de la obligación principal o en otro documento, en que el mismo deudor contraiga nueva obligación.
+(**)Por los endosos, modificaciones y prórrogas por el total o el saldo, en su caso, que se practiquen en el Registro General de Prendas, se pagará el timbre de acuerdo con la siguiente tabla:
+De ¢ 1 a ¢ 1.000 .. .. .. .. .. .. 2,00
+De 1.001 a 5.000 .. .. .. .. .. .. 4,00
+De 5.001 a 10.000 .. .. .. .. .. .. 10,00
+De 10.001 a 20.000 .. .. .. .. .. .. 20,00
+De 20.001 a 50.000 .. .. .. .. .. .. 40,00
+De 50.001 en adelante .. .. .. .. .. 40,00, más
+un colón (¢ 1,00) por cada millar o fracción."
+(**)(Así reformado el párrafo anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+(*)(Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
+28) Por todo documento que deba ser inscrito en el Registro de Importaciones del Banco Central, se pagará veinte colones (¢20,00) de timbre fiscal."
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
+(Así reformado el inciso 28) anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
 29)Los testimonios o certificaciones de instrumentos o documentos públicos, no sujetos a inscripción en el Registro Público, que se soliciten para hacerlos valer como tales o como títulos ejecutivos, pagarán el timbre que corresponda al acto de origen; pero, si fueren a aducirse únicamente como prueba o por orden de los tribunales para ese fin, deben satisfacer únicamente el timbre que indica el inciso 21) de este artículo.
 (Así adicionado el inciso anterior por el 4° de la ley N° 6145 del 18 de noviembre de 1977)
 (Corrida la numeración del inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980, que lo traspaso del antiguo inciso 28) al 29)
