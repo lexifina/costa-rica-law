@@ -13,3 +13,4 @@ Reforma Integral del Reglamento de Máquinas para Juegos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-06-26 | la propia norma |
+| 2 | 1995-07-11 | SINALEVI (sin norma nombrada) |
