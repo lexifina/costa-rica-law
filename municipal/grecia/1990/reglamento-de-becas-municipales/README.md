@@ -15,3 +15,4 @@ Reglamento de Becas Municipales.
 | --- | --- | --- |
 | 1 | 1990-07-26 | la propia norma |
 | 2 | 1995-06-22 | Reglamento municipal 52 (1995-06-22) |
+| 3 | 1999-01-18 | Reglamento municipal 0 (1999-01-18) |
