@@ -16,3 +16,4 @@ Reglamento de la Educación Superior Parauniversitaria
 | 1 | 1981-07-02 | la propia norma |
 | 2 | 1981-12-03 | Decreto Ejecutivo 13188 (1981-12-03) |
 | 3 | 1982-01-29 | Decreto Ejecutivo 13380 (1982-01-29) |
+| 4 | 1984-03-14 | Decreto Ejecutivo 15309 (1984-03-14) |
