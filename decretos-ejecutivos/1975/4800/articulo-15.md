@@ -1,0 +1,1 @@
+Artículo 15.-Los cinco miembros serán representativos de los cinco niveles del centro educativo y serán electos por votación directa, universal y secreta por toda la Comunidad Estudiantil. En caso de que la institución tenga seis niveles, se nombrará entonces un miembro más.

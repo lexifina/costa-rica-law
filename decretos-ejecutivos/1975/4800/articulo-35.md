@@ -1,0 +1,1 @@
+Artículo 35 .-Las sesiones del Gobierno Estudiantil deberán efectuarse fuera del horario lectivo, para no entorpecer la marcha normal de la institución. En casos especiales, debe solicitarse el permiso respectivo a la Dirección del Centro Educativo.

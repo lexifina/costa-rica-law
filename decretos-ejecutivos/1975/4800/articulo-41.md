@@ -1,0 +1,1 @@
+Artículo 41.-Todas las actividades que realice la Directiva de sección serán anotadas en Libros de Actas, previamente inscritos y registrados en el Departamento de Orientación. Las actas serán periódicamente revisadas por el Profesor Consejero.

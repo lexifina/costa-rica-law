@@ -1,0 +1,1 @@
+Artículo 7°-La elección del Gobierno Estudiantil, en lo que respecta a su Comité Ejecutivo, se realizará en la primera semana de junio, como culminación de una Semana de Formación Cívica del Estudiante, dedicada exclusivamente para tal fin y regulada para efectos de la elección por el Tribunal Electoral estudiantil.

@@ -1,0 +1,1 @@
+Artículo 48.-Las Directivas de sección estarán asesoradas por el Profesor Consejero respectivo, el cual a su vez será asesorado, para estas funciones, por el Departamento de Orientación del establecimiento educativo.

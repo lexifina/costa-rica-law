@@ -1,0 +1,1 @@
+Artículo 42.-Todo movimiento económico realizado por la Directiva de sección será claramente estipulado en el Libro de Actas. El Comité Ejecutivo o la Asamblea de Representantes podrán pedir a la Directiva todo tipo de información y documentación sobre el movimiento económico y ésta debe brindarlas.

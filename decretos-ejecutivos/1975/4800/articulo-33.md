@@ -1,0 +1,1 @@
+Artículo 33.- La Asamblea participará conjuntamente don el Comité Ejecutivo, en los casos anotados en los incisos j) y k) del artículo 34 de este Reglamento y bajo las condiciones estipuladas en e! inciso 1) del mismo artículo.
