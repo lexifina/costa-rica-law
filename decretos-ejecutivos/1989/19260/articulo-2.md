@@ -1,1 +1,0 @@
-Artículo 2°.-Amplíese el plazo otorgado, en el transitorio único del decreto ejecutivo N° 18458-MAG-S, únicamente para el almacenamiento, tránsito, venta y uso del CAPTAFOL como ingrediente activo, hasta por un periodo máximo de dieciocho meses, a partir de la vigencia de este decreto ejecutivo.
