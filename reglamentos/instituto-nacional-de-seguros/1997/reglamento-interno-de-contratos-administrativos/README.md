@@ -14,3 +14,4 @@ Reglamento Interno de Contratos Administrativos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-04 | la propia norma |
+| 2 | 1998-07-20 | Reglamento 8201 (1998-07-20) |
