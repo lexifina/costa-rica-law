@@ -1,0 +1,9 @@
+DECRETO VII.
+Designa el numero de Ministros jueces suplentes que deben nombrarse para la Excma. Corte de Justicia. (1)
+(1) Véanse los artículos 6 y 1° de la ley orgánica n° 4 de 18 de febrero de 1852.
+"Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica, considerando: que el número de Magistrados propietarios y suplentes que actualmente existen no es bastante, muchas veces, para formar el Tribunal de 3º Instancia compuesto según las leyes vigentes, de cinco Ministros Jueces; y que tambien ha sucedido que falte número para formar Cámara de 2° Instancia en razon de las muchas recusaciones y escusas que con frecuencia se presentan; interinamente y para mientras se emite la ley organica de Tribunales, decreta.
+Artículo único. Mientras se publica la ley orgánica de Tribunales, el número de Ministros Jueces suplentes para la Excelentísima Corte Suprema de Justicia, será el de diez con las calidades que la Constitucion exige para ejercer la Magistratura.
+§1° En consecuencia, el Congreso nombrara cinco suplentes que con los cinco existentes completen dicho número.
+§2° Cuando hubiere de llamarse uno ó mas suplentes para componer alguna de las salas, la Corte sacará por suerte à los que deban completarlas.
+§3° Queda así reformado el artículo 186 de la ley reglamentaria de 1 de noviembre de 1845.-Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes en San José á los veintitres dias del mes de mayo de mil ochocientos cincuenta y uno. Nazario Toledo, Diputado Vice-Presidente,-Modesto Guevara, Secretario.~-Manuel Zamora, Secretario. -Por tanto: EJECUTESE. Palacio Nacional. San José mayo veintiocho de mil ochocientos cincuenta y uno. -Juan Rafael Mora.--El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."
