@@ -1,0 +1,1 @@
+Artículo 22.- La interposición de los recursos no suspenden la ejecución del acto impugnado, salvo que interlocutoriamente y en casos muy calificados, el Ministro -en forma razonada- así lo disponga provisionalmente para evitar perjuicios graves o de imposible o difícil reparación.

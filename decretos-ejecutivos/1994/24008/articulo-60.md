@@ -1,0 +1,1 @@
+Artículo 60.- La entrega de muestras médicas como propaganda o promoción de medicamentos solo podrá ser hecha a los profesionales en Ciencias de la Salud por visitadores médicos debidamente acreditados.

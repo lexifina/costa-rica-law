@@ -1,0 +1,2 @@
+Artículo 13.- El quórum para que pueda sesionar válidamente el Consejo será de tres miembros, y salvo los casos expresamente contemplados por este Reglamento, la generalidad de los acuerdos y resoluciones del Consejo serán adoptados por la mayoría absoluta, mitad más uno, de los miembros presentes.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes no menos de cuatro miembros del Consejo y se produzca votación favorable -no inferior a cuatro- que declare la urgencia de conocer el caso.

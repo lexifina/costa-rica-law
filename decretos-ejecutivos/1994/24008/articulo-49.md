@@ -1,0 +1,1 @@
+Artículo 49.- Toda modificación en el texto del etiquetado e información adjunta deberá ser autorizado por el Departamento. Esta deberá ser solicitada por el representante legal o apoderado de la persona física o jurídica interesada en el producto.

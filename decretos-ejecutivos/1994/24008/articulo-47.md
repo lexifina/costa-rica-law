@@ -1,0 +1,1 @@
+Artículo 47.- El etiquetado de estos productos debe ser en español, aunque se permite el uso simultáneo de otros idiomas, o bien si el texto es en otro idioma, se podrá presentar con un inserto en español.

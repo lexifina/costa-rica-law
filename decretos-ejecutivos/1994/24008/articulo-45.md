@@ -1,0 +1,1 @@
+Artículo 45.- Los cosméticos de igual fórmula, de diferente tamaño, aromas o colores, se inscribirán en un solo registro. Deben presentar las fórmulas cualitativas y cuantitativas de todas las formulaciones.

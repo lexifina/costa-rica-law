@@ -1,0 +1,1 @@
+Artículo 40.- El Consejo, oyendo de previo el criterio del Departamento, podrá eximir de las pruebas que se exigen para la inscripción, a los productos homeopáticos que se encuentren descritos en farmacopeas homeopáticas o en textos técnicos de muy reconocida autoridad.

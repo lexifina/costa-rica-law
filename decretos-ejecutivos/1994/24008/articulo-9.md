@@ -1,0 +1,1 @@
+Artículo 9.- La Secretaría del Consejo estará a cargo del Director del Departamento de Drogas Estupefacientes, Controles y Registros, quién deberá asistir a todas las sesiones y en ellas tendrá derecho a voz, pero sin voto. Por sus servicios y funciones devengará la misma dieta que la Ley de Presupuesto Nacional asigne a los miembros del Consejo.

@@ -1,0 +1,1 @@
+Artículo 30.- Si se requiere registrar un producto nuevo en diferentes formas farmacéuticas o en diferentes concentraciones, será necesario gestionar inscripciones separadas para cada una de las variantes.

@@ -1,0 +1,1 @@
+Artículo 58.- Sólo será permitida la propaganda o promoción al público de medicamentos de venta libre, declarados como tales en el Decreto N° 23163-S, del 21 de marzo de 1994 y sus reformas, presentando previamente los textos de la propaganda al Departamento para su autorización.

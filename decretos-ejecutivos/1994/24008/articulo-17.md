@@ -1,0 +1,2 @@
+Artículo 17.- Los actos de alcance general que emita el Consejo serán publicados en el Diario Oficial “La Gaceta”.
+Los actos concretos que emita el Consejo, que afecten particularmente a una persona física o jurídica, serán debidamente notificados a la persona señalada para tales efectos por el interesado; la notificación se practicará mediante entrega con razón de recibo- de copia de lo resuelto por el Consejo; pudiendo también hacerse mediante envío de carta certificada o telegrama a la dirección postal señalada.

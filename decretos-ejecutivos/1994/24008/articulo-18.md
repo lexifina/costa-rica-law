@@ -1,0 +1,1 @@
+Artículo 18.-Los actos del Consejo que afecten intereses legítimos o derechos subjetivos de los administrados, serán impugnables mediante el recurso de revocatoria y de apelación, ante el Ministro, siendo potestativo usar ambos.

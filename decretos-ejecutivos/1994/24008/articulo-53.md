@@ -1,0 +1,1 @@
+Artículo 53.- En el caso de la importación de principios activos para la fabricación de medicamentos, el laboratorio fabricante nacional debe estar registrado y vigente. Además, debe presentar la solicitud con original y copia de la factura firmada por el regente.

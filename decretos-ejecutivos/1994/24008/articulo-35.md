@@ -1,0 +1,1 @@
+Artículo 35.- Los empaques primarios de tabletas, cápsulas, supositorios y óvulos deberán rotularse bajo la modalidad de unidosis con el nombre genérico, potencia, laboratorio fabricante, y en el caso de óvulos y supositorios indicar vía de administración.

@@ -1,0 +1,1 @@
+Artículo 64.- Este Decreto deroga los Decretos Ejecutivos N° 17243-S de 10 de octubre de 1986 y sus reformas, N° 23191-S de 26 de abril de 1994 y sus reformas y el N° 23833-S del 18 de noviembre de 1994 y sus reformas.

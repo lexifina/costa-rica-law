@@ -1,0 +1,4 @@
+CAPITULO IX
+Disposiciones Finales
+Artículo 62.- Los documentos oficiales extranjeros, que deban aportarse en razón de las gestiones de inscripción, deberán estar redactadas en idioma español o, en su defecto, acompañados de la correspondiente traducción oficial. En todo caso, tales documentos deberán estar autenticados por el Cónsul de Costa Rica acreditado en el país o ciudad de origen del mismo, pasando por los trámites de rigor de autenticación ante el Ministerio de Relaciones Exteriores y Culto; o bien, por un notario público costarricense. En ausencia de Consulado costarricense, podrá acudirse a los servicios del Cónsul de un país que esté autorizado a representar a Costa Rica en su nombre.
+En el tanto los hechos acreditados en los anteriores documentos estén vigentes, los interesados podrán remitir a los mismos para efectos de otros trámites de inscripción, para lo cual bastará la referencia en la solicitud y adjuntar una fotocopia del documento.
