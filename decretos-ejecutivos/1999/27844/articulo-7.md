@@ -1,0 +1,8 @@
+Artículo 7°—Sobre el uso de los laboratorios o computadoras en el aula. La Junta de Educación podrá, facilitar el uso de los laboratorios o de las computadoras en el aula únicamente a entidades públicas o a la Fundación Omar Dengo, siempre y cuando se sujete a lo establecido en la Ley de Contratación Administrativa y su Reglamento si es del caso, o medie algún convenio suscrito con el Ministerio de Educación y se cumpla con los siguientes requisitos adicionales:
+a) Suscribir previamente el respectivo instrumento jurídico (contrato, convenio, etc.) en el cual deberán tutelarse los derechos e intereses del laboratorio y los de las computadoras en el aula.
+b) Garantizar que la contraprestación económica por el uso del laboratorio o computadoras en el aula sea equitativa y razonable a la luz del uso del mismo, su deterioro y cantidad de horas cuyo uso se facilita.
+c) Garantizar que no sea afectará el derecho preferente, el horario de uso ni la consecución de los objetivos del PIE MEP-FOD.
+d) Garantizar que no se alterará de ninguna forma la configuración definida para los equipos instalados y se tomará todas las medidas de precaución para evitar la introducción de virus.
+e) Contemplar en el respectivo contrato o convenio que la entidad contratante acepta resarcir los daños causados al equipo mientras haga uso del mismo.
+f) Enviar copia del respectivo contrato o convenio a la Dirección Regional de Educación correspondiente para su refrendo, registro y control.
+g) Requerir por escrito y de manera previa al Director del centro educativo y al tutor o tutores, su no objeción sobre el convenio o contrato a suscribir.

@@ -1,0 +1,2 @@
+Artículo 12.—De las Potestades de la FOD. La FOD pondrá en conocimiento del Ministro de Educación las irregularidades que lleguen a su conocimiento por el mal uso de las computadoras en el aula, los laboratorios y el equipo en general, con el fin de adoptar las medidas correctivas necesarias de manera que tales irregularidades no afecten negativamente el PIE MEP-FOD.
+Igualmente propondrá al Ministro de Educación las recomendaciones técnicas y administrativas necesarias para el adecuado funcionamiento de los laboratorios y/o computadoras en el aula.

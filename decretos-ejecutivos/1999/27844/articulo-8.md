@@ -1,0 +1,1 @@
+Artículo 8°—De las sanciones. Los miembros de la Junta de Educación, el Director del centro educativo y el tutor o tutores serán acreedores de la responsabilidad legal correspondiente, por el incumplimiento de los deberes y responsabilidades contemplados en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—De las sanciones al Director y el Tutor. El Director del centro educativo y el tutor serán acreedores de las medidas disciplinarias contempladas en el Estatuto de Servicio Civil y el Código de Trabajo, sin perjuicio de las responsabilidades civiles y penales que procedan.

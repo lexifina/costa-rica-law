@@ -1,0 +1,1 @@
+Artículo 9°—De las sanciones a las Juntas de Educación. Los miembros de la Juntas de Educación se harán acreedores de las medidas contempladas en el Reglamento General de Juntas de Educación y Administrativas, sin perjuicio de las responsabilidades civiles y penales que procedan por el incumplimiento de los deberes en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Del inventario de los bienes. La Proveeduría del MEP deberá llevar un inventario permanente de todos los bienes asignados a los laboratorios o computadoras en el aula y velará en forma general por la aplicación del Reglamento del Sistema de Bienes de la Administración Central, Decreto Ejecutivo No 26544-H del 30 octubre de 1997.

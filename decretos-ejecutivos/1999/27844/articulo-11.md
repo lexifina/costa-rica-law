@@ -1,0 +1,2 @@
+Artículo 11.—De las Potestades del MEP. El MEP podrá ordenar los auditorajes, los estudios y evaluaciones que estime necesarios en los laboratorios o computadoras en el aula y disponer las medidas preventivas y correctivas que estime a bien, las que son de obligado e inmediato acatamiento.
+Así mismo, podrá intervenir o suspender el funcionamiento ^1 laboratorio o computadoras en el aula, cuando la conservación y el uso adecuado del equipo estén amenazados o el interés público lo exija.

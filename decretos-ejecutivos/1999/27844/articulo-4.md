@@ -1,0 +1,9 @@
+Artículo 4°—De las Responsabilidades de las Juntas Educación. Las Juntas de Educación, en su condición de órganos auxiliares de la administración, tienen las siguientes obligaciones y responsabilidades respecto a los laboratorios y computadoras en el aula.
+a) Garantizar la adecuada instalación y seguridad física de los equipos de cómputo del Programa de Informática Educativa MEP-FOD.
+b) Velar por la construcción, el buen estado y mejora de la planta física donde se ubique el laboratorio de informática educativa o las computadoras en el aula.
+c) Aplicar, en lo procedente, el Reglamento General de Juntas de Educación y Juntas Administrativas, Decreto Ejecutivo No 17763-E del 3 de setiembre de 1987.
+d) Garantizar el uso y la administración de los laboratorios o las computadoras en el aula para la consecución de los fines del programa PIE MEP-FOD, tanto en periodo lectivo como no lectivo.
+e) Formalizar el instrumento jurídico correspondiente cuando los laboratorios o las computadoras en el aula se faciliten a entidades públicas o a la FOD, acto que requiere no obstante, previa autorización de la Dirección del PIE MEP-FOD. Dicha autorización se requerirá también cuando las Juntas de Educación deseen brindar servicios en forma directa utilizando los laboratorios y las computadoras en el aula.
+f) Presupuestar los recursos económicos que se generen por la venta de servicios derivados de los laboratorios o computadoras en el aula, según artículo 7, y que se utilicen exclusivamente en el mejoramiento de los mismos, previa propuesta de inversión que le formule la Dirección de la escuela la que, además, deberá requerir dictamen previo de la dirección del PIE MEP-FOD.
+g) Solicitar el asesoramiento técnico cada vez que el caso lo justifique al PIE-MEP-FOD.
+h) Realizar el trámite que corresponda, en coordinación con el Director, para formalizar el reclamo ante las instituciones correspondientes derivados de las pólizas de seguros.
