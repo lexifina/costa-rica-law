@@ -1,0 +1,1 @@
+Artículo 12.—El SENARA cobrará el servicio de agua para piscicultura directamente en sus Oficinas. También podrá, previa comunicación a los usuarios, realizar la recaudación de las tarifas por medio de un tercero, con el cual suscriba un contrato para este fin.

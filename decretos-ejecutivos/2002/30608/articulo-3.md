@@ -1,0 +1,1 @@
+Artículo 3º—La piscicultura deberá desarrollarse en forma compatible con el sistema de riego y sujeta a la disponibilidad de agua en las fuentes del DISTRA y a la capacidad de la infraestructura existente.

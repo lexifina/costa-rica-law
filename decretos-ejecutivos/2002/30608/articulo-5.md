@@ -1,0 +1,1 @@
+Artículo 5º—Las aguas excedentes de proyectos de piscicultura deben ser devueltas al sistema de riego en el sitio que SENARA defina y de conformidad con la reglamentación vigente sobre la calidad de aguas residuales. Sin embargo, el SENARA podría, por razones de interés público, autorizar que las aguas excedentes no sean devueltas al sistema de riego sino a un drenaje natural.
