@@ -1,0 +1,1 @@
+Artículo 4°.- Si existiere un sobrante una vez canceladas las Letras del Tesoro, esa suma quedará bajo la custodia del Banco Central como un fondo para llenar el fin previsto en el artículo 3°, inciso b) del Decreto-Ley N°318 de 29 de diciembre de 1948.

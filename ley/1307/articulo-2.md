@@ -1,0 +1,1 @@
+Artículo 2°.- Quedarán sujetas al pago de recargos cambiarios todas las mercaderías de la categorías Preferencial y Primera, que a la fecha de vigencia de esta ley se encuentren ingresadas al país o en tránsito, para determinar lo cual se tomará la fecha del conocimiento de embarque o de la guía aérea o postal según el caso.
