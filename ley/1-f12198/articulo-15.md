@@ -1,0 +1,1 @@
+ARTÍCULO 15.-Las sumas de dinero ó su equivalente, pertenecientes la masa del concurso, serán depositadas inmediatamente que se perciban, en el Banco Nacional, excluyendo únicamente las reservas á que se refiere el artículo 137.

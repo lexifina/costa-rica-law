@@ -1,0 +1,1 @@
+ARTÍCULO 16.-Queda derogada la ley de 29 de diciembre de 1877, y las que esa disposición puso en vigor; quedan igualmente derogadas todas las demás disposiciones que se opongan directamente la Ley de Concurso que se restablece, aun cuando no fuesen expresamente derogadas

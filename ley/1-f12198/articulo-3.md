@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -El artículo 114 se leerá de este modo: -"En el curso de los procedimientos de la quiebra, puede decretarse el arresto, ó su repetición, por los motivos arriba indicados, y principalmente cuando el quebrado desobedeciere las providencias del Tribunal, ó no correspondiere los requerimientos del curador [art. 109] ó quebrantase el arraigo."
