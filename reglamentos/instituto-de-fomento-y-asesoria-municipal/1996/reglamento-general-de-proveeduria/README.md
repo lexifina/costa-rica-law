@@ -20,3 +20,4 @@ Reglamento General de Proveeduría
 | 5 | 2000-10-18 | Reglamento 3033 (2000-10-18) |
 | 6 | 2002-01-09 | Reglamento 3150 (2002-01-09) |
 | 7 | 2002-04-02 | Reglamento 3176 (2002-04-02) |
+| 8 | 2002-10-14 | Reglamento 3227 (2002-10-14) |
