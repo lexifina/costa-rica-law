@@ -548,6 +548,7 @@ b) La contratación de empréstitos y la concesión de créditos por un monto su
 c) La aceptación de transacciones y compromisos arbitrales.
 Artículo 165.- La Junta Directiva sesionará ordinariamente ocho veces por mes y extraordinariamente cuando la convoque el Presidente o el Director Ejecutivo.
 Sus miembros serán remunerados mediante dietas cuyo monto no será superior a ciento cincuenta colones por sesión y el número de sesiones remuneradas mensualmente no podrá exceder de doce.
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 6908 del 3 de noviembre de 1983 se dispuso lo siguiente: "Refórmase el artículo 165 de la Ley de Asociaciones Cooperativas, Nº 6756 del 5 de mayo de 1982, a fin de que la Junta Directiva del INFOCOOP se rija, en lo referente al número de sesiones y al pago de dietas, de acuerdo con lo que establece la ley")
 Artículo 166.- La administración general del INFOCOOP estará a cargo de un director ejecutivo, nombrado por la Junta Directiva por un período de cuatro años, pudiendo ser reelecto.
 Artículo 167.- El nombramiento del director ejecutivo deberá recaer en persona de reconocida capacidad y probada experiencia en asuntos cooperativos.
 Artículo 168.- En ningún caso podrá nombrarse director ejecutivo a quien fuera miembro de la Junta Directiva o lo hubiere sido en el año anterior al nombramiento, o a personas que fueran cónyuges o parientes por consanguinidad o afinidad hasta el tercer grado inclusive, de cualquiera de los miembros de la Junta Directiva y del auditor o del subdirector.
