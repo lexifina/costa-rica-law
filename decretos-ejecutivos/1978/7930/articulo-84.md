@@ -1,1 +1,2 @@
-Artículo 84.-La resolución que admita e! desistimiento dará por terminadas las gestiones que tenga el solicitante, dejando la situación en el estado en que se hallaban antes de presentarse el escrito de desistimiento.
+Artículo 84.- En caso de que el Ministerio de Economía, Industria y Comercio apruebe la solicitud de los beneficios, lo comunicará al Banco para que éste entregue al interesado los CAT., previo cumplimiento de los requisitos establecidos para tal efecto por el Banco. El Ministerio de Economía, Industria y Comercio remitirá copia de la resolución debidamente firmada y por correo certificado al interesado, al Banco y al CENPRO.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979)
