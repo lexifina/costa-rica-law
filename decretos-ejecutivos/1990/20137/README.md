@@ -14,3 +14,4 @@ Tarifas Servicio Transbordo Puntarenas a Playa Naranjo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-01-18 | la propia norma |
+| 2 | 1992-02-10 | Decreto Ejecutivo 21063 (1992-02-10) |
