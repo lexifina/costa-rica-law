@@ -14,3 +14,4 @@ Modifica límite de gasto prersupuestario y efectivo del año 2002, para el Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-01-25 | Decreto Ejecutivo 30163 (2002-01-25) |
