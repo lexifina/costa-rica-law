@@ -1,0 +1,1 @@
+Artículo 5º—Las oficinas del Sistema Nacional de Áreas de Conservación en las cuales el Instituto Costarricense de Electricidad deba acudir a solicitar los permisos correspondientes agilizarán los trámites con el fin de que el Proyecto Pirrís entre a operar en el período programado.

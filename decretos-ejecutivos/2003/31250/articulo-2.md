@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la presente declaratoria el Instituto Costarricense de Electricidad, podrá previa autorización de la Oficina correspondiente del Sistema Nacional de Áreas de Conservación, proceder a la corta de árboles ubicados en las áreas de protección del Río Pirrís y las quebradas Napoleón y Zapote.
