@@ -1,0 +1,3 @@
+Artículo 3°-Los miembros de la Comisión Asesora de la Actividad Lechera, durarán un año en sus funciones, pudiendo ser reelectos para períodos consecutivos.
+Los representantes oficiales serán nombrados en forma directa por los Ministros respectivos y por el Presidente Ejecutivo en el caso del Consejo Nacional de Producción y perderán sus credenciales al concluir sus servicios en el organismo oficial al cual representan.
+Los representantes de las plantas cooperativas e industrializadoras privadas y los representantes de los productores serán nombrados mediante temas que deberán ser presentadas ante el Consejo Nacional de Producción.

@@ -1,0 +1,1 @@
+Artículo 7°-Para la fijación de precios, la Dirección General de Comercio Interior, atenderá en forma especial las recomendaciones que emita la Comisión y consultará los estudios de costos que en forma permanente debe llevar la Comisión.
