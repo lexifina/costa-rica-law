@@ -1,0 +1,8 @@
+CONCEJO MUNICIPAL DISTRITO PEÑAS BLANCAS
+Con el propósito de continuar con los procedimientos ordenados por el Concejo Municipal de distrito, transcribo el acuerdo Nº 12 del acta Nº 21-2003 de la sesión, ordinaria, celebrada el día 25 de noviembre de 2003, al ser las quince horas con quince minutos, que en lo conduce dice: Acuerdo 12.—El Concejo Municipal de Peñas Blancas, acuerda: Habiéndose publicado el proyecto de reglamento de karahokes, disco móviles, música en vivo y similares, en el diario oficial La Gaceta Nº 220 del día 14 de noviembre de 2003 y no existiendo oposiciones al mismo (o existiendo se incorporaron), lo aprueba en definitiva y rige a partir de la publicación del presente acuerdo.
+Peñas Blancas, 6 de enero del 2004
+NOTA DE SINALEVI: El texto corresponde, tal y como lo indica el acuerdo anterior, al publicado como proyecto en la Gaceta No. 220 de 14 de noviembre de 2003.
+REGLAMENTO DE KARAOKES, DISCOMÓVILES, MÚSICA EN VIVO Y SIMILARES
+Artículo 1º—Objetivo: La comunidad de Peñas Blancas ha experimentado en los últimos años un crecimiento acelerado de las actividades comerciales, entre las que se destacan la diversión en bares y salones.
+Esta situación a traído consigo una actividad que a pesar de su antigüedad en el medio es novedosa en el comercio: Los denominados Karahokes, instalados en cantinas restaurantes, salones de baile y otros centros de diversión.
+La actividad no ha sido regulada por la Municipalidad, por lo que en lugares donde se ha proliferado, realizan esta actividad sin ningún control de horarios ni límite de ruido, lo que ocasiona molestias a los vecinos en su horas de descanso. Este reglamento busca todas las actuaciones relacionadas con las actividades citadas.
