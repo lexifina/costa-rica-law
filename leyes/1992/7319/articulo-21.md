@@ -1,8 +1,10 @@
 ARTICULO 21.- Términos y plazos.
-El Defensor de los Habitantes de la República decidirá,
+La Defensoría de los Habitantes de la República decidirá,
 definitivamente, los asuntos sometidos a su conocimiento, dentro del
 término de dos meses contados a partir de la interposición de la queja
 o solicitud.
+(Así reformada la denominación del órgano por el artículo 3 de la
+ley No.7423 del 18 de julio de 1994)
 El recurso de hábeas corpus deberá interponerlo dentro de las doce
 horas siguientes al momento en que tuvo conocimiento de los hechos que
 lo ameritan.
