@@ -1,0 +1,1 @@
+Artículo 3°—Se establece en 10 hectáreas el área de la parcela mínima productiva. Por lo tanto no pueden autorizarse segregación cuyas parcelas resultantes sean inferiores a esa unidad mínimo productivo.
