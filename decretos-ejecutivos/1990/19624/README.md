@@ -13,3 +13,4 @@ Deroga Reglamento Autónomo Servicio Ministerio Gobernación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-27 | la propia norma |
+| 2 | 1990-04-27 | Decreto Ejecutivo 20039 (1990-10-08) |
