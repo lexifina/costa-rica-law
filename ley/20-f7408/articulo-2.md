@@ -1,0 +1,1 @@
+Art. 2°-La deuda consolidada continuará subsistente, y los intereses de la misma vencidos hasta el 30 del actual, se considerarán como deuda diferida para los efectos consignados en el artículo anterior.
