@@ -1,0 +1,1 @@
+Artículo 2°.- Para ser miembro del Patronato se requiere ser persona de reconocida honorabilidad y buenas costumbres, cubrir las cuotas de ingreso y mensuales que señale el Reglamento y cumplir con los deberes que el mismo indique.
