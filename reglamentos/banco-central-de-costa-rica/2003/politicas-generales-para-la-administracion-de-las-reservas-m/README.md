@@ -14,3 +14,4 @@ Políticas Generales para la Administración de las Reservas Monetarias Internac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-30 | la propia norma |
+| 2 | 2005-01-30 | Reglamento 5202 (2004-06-16) |

@@ -1,7 +1,2 @@
-Artículo 10.—Instrumentos elegibles. Las reservas monetarias internacionales podrán ser invertidas en los siguientes instrumentos:
-a) Bonos gubernamentales;
-b) valores de deuda emitidos por agencias gubernamentales, no garantizados por hipotecas u otro tipo de activos, ni redimibles anticipadamente;
-c) depósitos e instrumentos a la vista y bonos emitidos por entidades supranacionales o multilaterales;
-d) depósitos bancarios a la vista y a plazo;
-e) fondos federales y depósitos overnight; y,
-f) acuerdos de préstamos de títulos, recompra y reventa con instrumentos del Tesoro o títulos de agencias de los Estados Unidos.
+Artículo 10.—Composición por monedas. Las reservas monetarias internacionales del Banco Central de Costa Rica se invertirán en activos denominados en dólares de los Estados Unidos de América o bien en otras divisas internacionales. La exposición en monedas diferentes al dólar de los Estados Unidos de América deberá ser contrarrestada mediante la adquisición de instrumentos de cobertura.
+(Nota: El texto anterior de este artículo fue eliminado en la sesión N° 5202 del 16 de junio del 2004, no obstante en esa misma sesión se acordo incluir el texto actual.)

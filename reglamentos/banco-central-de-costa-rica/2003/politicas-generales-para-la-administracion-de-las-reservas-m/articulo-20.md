@@ -1,1 +1,1 @@
-Artículo 20.—Agentes negociadores para Bonos del Tesoro. El Banco Central efectuara las operaciones de compra y venta de Bonos del Tesoro de los Estados Unidos de América a través de agentes negociadores de activos en los mercados internacionales. Estos deberán ser negociadores de bonos gubernamentales primarios en el mercado estadounidense, así reconocidos por el Banco de la Reserva Federal de Nueva York.
+Artículo 20.—Así Derogado y corrida su numeración, en sesión N° 5202 de 16 de junio de 2004, que lo traspasó del antiguo 16 al 20 actual del artículo)
