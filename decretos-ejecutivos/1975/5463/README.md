@@ -14,3 +14,4 @@ Reglamento para las Investigaciones y Experimentaciones en Seres Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-12-19 | la propia norma |
+| 2 | 1995-06-06 | Decreto Ejecutivo 24396 (1995-06-06) |

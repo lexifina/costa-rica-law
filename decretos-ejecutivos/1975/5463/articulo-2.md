@@ -1,2 +1,3 @@
-Artículo 2°—El Comité deberá conocer y dictaminar sobre la ética y utilidad científica de los programas de investigación y experimentación en seres humanos que se sometan al Ministerio de Salud para su autorización.
-Los integrantes del Comité estarán impedidos para conocer de los programas en que ellos vayan a participar, directa o indirectamente. En tales casos, serán sustituidos por los suplentes o por un representante "ad-hoc".
+Artículo 2.— El Comité Científico Institucional deberá conocer y dictaminar sobre la ética y utilidad científica de los programas de investigación y experimentación en seres humanos, que se sometan al Ministerio de Salud para su autorización, para lo cual podrá asesorarse por la Comisión Científica Hospitalaria del Hospital respectivo o por especialistas idóneos en el campo de la investigación.
+Los integrantes del Comité y de las Comisiones estarán impedidos para conocer de los programas o protocolos en que ellos van a participar directa o indirectamente. En tales casos serán sustituidos por un representante "ad-hoc".
+(Así reformado por el artículo 1° del decreto ejecutivo N° 24396 del 6 de junio de 1995)
