@@ -13,3 +13,4 @@ Reglamento de Reestructuración del Servicio Nacional de Aduanas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-08 | la propia norma |
+| 2 | 1994-04-08 | Decreto Ejecutivo 25270 (1996-06-14) |

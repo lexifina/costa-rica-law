@@ -1,36 +1,24 @@
-ARTÖCULO 24.- El Laboratorio Aduanero tendr las siguientes
+Laboratorio Aduanero.
+Artículo 24.- El Laboratorio Aduanero tendrá las siguientes
 funciones:
-a) Elaborar los dict menes qu¡micos y merceol¢gicos;
-determinar las
-propiedades f¡sicas y qu¡micas que pueden tener influencia en la
-calidad
-de las mercanc¡as y que afecten su valoraci¢n.
-b) Colaborar con el Departamento de Verificaci¢n, en la
-emisi¢n de
+a) Elaborar los dictámenes químicos y merceológicos; determinar las
+propiedades físicas y químicas que pueden tener influencia en la calidad
+de las mercancías y que afecten su valoración.
+b) Colaborar con el Departamento de Verificación, en la emisión de
 criterios arancelarios de valor y origen; dar recomendaciones
-merceol¢gicas acerca de productos importados que se env¡an al
+merceológicas acerca de productos importados que se envían al
 Laboratorio.
-c) Coordinar las actividades de asesoramiento t‚cnico,
-relativas al
-rea del Laboratorio y brindar ese tipo de asesor¡a a las
-diferentes
-dependencias del Servicio Nacional de Aduanas; procurar porque
-los
-procedimientos metodol¢gicos utilizados en los analisis qu¡micos
-y
-cient¡ficos, est n correctos.
-d) Dirigir y ejecutar investigaciones para orientar y
-establecer
-nuevos m‚todos de an lisis qu¡micos y f¡sicos; velar porque se
-elaboren y
-mantengan actualizadas las cartillas con las caracter¡sticas
-f¡sicas,
-qu¡micas y merceol¢gicas de las mercanc¡as, con el fin de que
-sean
-f cilmente reconocidas para su correcta clasificaci¢n.
-e) Evaluar los resultados de las investigaciones y
-experimentos que
+c) Coordinar las actividades de asesoramiento técnico, relativas al
+área del Laboratorio y brindar ese tipo de asesoría a las diferentes
+dependencias del Servicio Nacional de Aduanas; procurar porque los
+procedimientos metodológicos utilizados en los analisis químicos y
+científicos, están correctos.
+d) Dirigir y ejecutar investigaciones para orientar y establecer
+nuevos métodos de análisis químicos y físicos; velar porque se elaboren y
+mantengan actualizadas las cartillas con las características físicas,
+químicas y merceológicas de las mercancías, con el fin de que sean
+fácilmente reconocidas para su correcta clasificación.
+e) Evaluar los resultados de las investigaciones y experimentos que
 realiza el Laboratorio y extraer las conclusiones de rigor.
-f) Otras que le encomiende la Jefatura de la divisi¢n.
-El Laboratorio Aduanero estar a cargo de un Jefe.
-Divisi¢n de Estad¡stica, Registro y Divulgaci¢n.
+f) Otras que le encomiende la Jefatura de la división.
+El Laboratorio Aduanero estará a cargo de un Jefe.
