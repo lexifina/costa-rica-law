@@ -1,0 +1,1 @@
+Artículo 6º—Las personas nombradas para la junta inician su labor a partir de la juramentación ante el Concejo Municipal. Los nombrados durarán en sus cargos dos años y podrán ser reelectos, no pudiendo ser removidos sin justa causa.

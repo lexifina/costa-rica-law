@@ -1,0 +1,1 @@
+Artículo 10.—La junta administrativa regulará el uso de las instalaciones, su atención técnica para su mantenimiento y conservación. Solo en casos graves se podrán suspender prácticas o actividades deportivas, incluso actividades que se encuentren previamente programadas.

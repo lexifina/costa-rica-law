@@ -1,0 +1,1 @@
+Artículo 4º—A efecto de dar cumplimiento a las actividades deportivas y demás que se desarrollaren en esas instalaciones, la junta mantendrá estrecha coordinación con la Municipalidad. Y a la vez podrá recibir todo tipo de donaciones por parte de las instituciones públicas y privadas, nacionales y extranjeras, pero dentro de lo dispuesto por las leyes de la República.

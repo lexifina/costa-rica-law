@@ -1,0 +1,1 @@
+Artículo 17.—Los equipos deportivos o grupos del cantón que organicen campeonatos y que sean avalados por el Comité Cantonal de Deportes, gozarán de preferencia en cuanto al uso de las instalaciones y gozan de una tarifa preferencial, definida por la junta y serán responsables de los daños a las instalaciones.

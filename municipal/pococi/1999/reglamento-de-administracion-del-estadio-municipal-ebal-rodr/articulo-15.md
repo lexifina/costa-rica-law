@@ -1,0 +1,1 @@
+Artículo 15.—La junta deberá tomar las medidas necesarias para el ingreso de personas, vehículos y/o cualquier tipo de materiales a las instalaciones, así mismo quedando completamente prohibido la introducción y consumo de bebidas alcohólicas, cualquier droga enervante y armas, y pólvora.

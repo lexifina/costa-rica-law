@@ -1,0 +1,1 @@
+Artículo 16.—Para la asignación del uso de las instalaciones, la junta determinará los días y horas que corresponda a las diferentes disciplinas deportivas, capacitación, sesiones de estudio y reuniones diversas en estricto orden de solicitud.

@@ -1,0 +1,1 @@
+Artículo 12.—Las solicitudes que formulen escuelas y colegios y ligas menores de cualquier disciplina del cantón para el uso de las instalaciones, deberán ser avaladas por el Comité Cantonal de Deportes y como mínimo con 2 semanas de anticipación. El uso de las instalaciones, para estos casos, será gratuita.

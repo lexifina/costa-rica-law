@@ -1,0 +1,1 @@
+Artículo 14.—La junta podrá alquilar las instalaciones para actividades conexas, siempre que no afecte el giro principal de sus actividades. Toda solicitud de las instalaciones deberán resolverse en un plazo máximo de 8 días naturales a partir de la presentación por escrito de la solicitud.
