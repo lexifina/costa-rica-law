@@ -137,3 +137,4 @@ Se cobrará un monto igual a los rubros establecidos para la emisión y registro
 Se establece una tarifa equivalente al 25% del valor de la emisión de la licencia original.
 8. Reproducción de certificados de validez de licencias.
 Se establece una tarifa equivalente al 25% de la emisión de la licencia original.
+(NOTA DE SINALEVI: Este decreto fue reformado por el numeral 1° del Decreto Ejecutivo N° 24168 de 27 de marzo de 1995, no obstante, el Juzgado Contencioso Administrativo y Civil de Hacienda mediante Sentencia N° 312 de las trece horas del 23 de mayo de dos mil uno, declaró nulo el decreto N° 24168, indicando la vigencia de esta norma. Dicha sentencia fue confirmada por la Sección Segunda del Tribunal Contencioso Administrativo del Segundo Circuito Judicial de San José por sentencia No. 561 de 21 de noviembre de 2003).
