@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de la "Dirección Territorial Administrativa de la República de Costa Rica", la Reserva Indígena Guaymí de Conteburica, se compone de los caseríos: Alto Conte, La Vaca, Río Claro, Progreso, Las Vegas, Santa Rosa, La Peñita, Carones, Río Coco, y Río Caña Blanca.
