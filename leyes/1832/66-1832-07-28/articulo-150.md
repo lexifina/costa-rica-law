@@ -1,0 +1,1 @@
+Art. 150. A estas visitas asistirán todos los Jueces inferiores, que tengan reos en las cárceles, y cada uno de ellos llevará lista en que consten el nombre y vecindad de los reos presos por si mismos, causa de su prision, dia en que se capturaron, en que se inició el proceso,y estado de éste.

@@ -1,0 +1,1 @@
+Art. 166. En lo demas de impedimento, escusa y recusacion, se observarán las Leyes, Cèdulas, y reales órdenes de Castilla é Indias que tratan de los Consejeros, Oidores, Alcaldes de Corte, Chancillerias, y Audiencias, cuando juntos en sus respectivas Salas, conocían como Tribunal Superior, de los negocios en vista, revista y segunda suplicación.

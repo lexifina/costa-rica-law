@@ -1,0 +1,1 @@
+Art. 143. Toda sentencia de la Corte, contendrá las partes que previene el artículo 39 de la Ley de 16 de Enero de 826, y despues de firmada por los individuos que compongan el Tribunal, se autorizará por el Secretario, y en seguida, ò en uno de los dias inmediatos la leerà (en publica audiencia, y en presencia del Secretario) el individuo menos antiguo del Tribunal.

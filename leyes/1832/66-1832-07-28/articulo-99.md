@@ -1,0 +1,1 @@
+Art. 99. Evacuados estos traslados, si hubiere tachas, se harà lo que para semejantes casos previene el derecho; y sino las hubiere, se dará el juicio por concluso para sentencia, y se señalará dia para el sorteo citando a las partes para que lo presencien si quieren.

@@ -1,0 +1,1 @@
+Art. 75. Al pié de la autorizacion de toda sentencia, y antes de notificarla á las partes, pondrà razon de haberse hecho la publicacion con las formalidades correspondientes, expresando el nombre del Magistrado que la haya leído en audiencia pública, y el dia de la fecha en que se publicò.

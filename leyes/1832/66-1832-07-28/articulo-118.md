@@ -1,0 +1,1 @@
+Art. 118. En las causas criminales que vinieren á la Corte en consulta de la sentencia, si de la vista de autos, oído el Fiscal, resultare que debe confirmarse se ejecutará asi, sin algun otro tramite.

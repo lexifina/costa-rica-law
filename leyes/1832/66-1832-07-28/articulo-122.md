@@ -1,0 +1,1 @@
+Art. 122. Las que se instruyan contra el Ministro General del Despacho, y los Gefes Politicos, de Hacienda, y Militar por abuso en el ejercicio de sus deberes, se substanciaràn por el Magistrado à quien toque en virtud del repartimiento que se haga en la Sesion, y se juzgarán y fallarán por la Corte plena sin otro recurso.

@@ -1,0 +1,1 @@
+Art. 155. Ademas de estas visitas particulares, se harán todos los años por todo el Tribunal, visitas generales, el Sabado de Ramos, las vísperas de Pascua del Espiritu Santo, y del Nacimiento del Señor.

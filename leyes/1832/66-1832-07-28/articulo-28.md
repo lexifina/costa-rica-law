@@ -1,0 +1,1 @@
+Art. 28. Con este objetivo le pasará el Secretario cada tres meses lista de las multas de que aun no haya dado cuenta la tesorería haberse pagado, y el Fiscal en vista de ella pedirá lo conveniente en la Sesion.

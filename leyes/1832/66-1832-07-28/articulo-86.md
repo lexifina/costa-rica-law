@@ -1,0 +1,1 @@
+Art. 86. Cualquiera Magistrado que se halle en la Sesion, tiene derecho à salvar su voto; debiendo hacerlo sin fundarlo, dentro de veinte y cuatro horas, y en el libro de votaciones secretas, que habrá guardado en un cajon de la mesa, cuya llave custodiará el Presidente.

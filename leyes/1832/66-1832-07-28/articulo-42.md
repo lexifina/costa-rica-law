@@ -1,0 +1,1 @@
+Art. 42. El Secretario de la Corte Superior deberá ser mayor de veinte y tres años, Ciudadano en ejercicio de sus derechos, de conocida aptitud y honradez, y adornado de las demàs calidades precisas para el buen desempeño de su cargo, que deberà jurar con el Pro-Secretario previo exámen.

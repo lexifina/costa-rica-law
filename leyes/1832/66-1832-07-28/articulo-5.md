@@ -1,0 +1,1 @@
+Art. 5. Cuando alguno de los Magistrados de la Corte Superior de Justicia tenga que separarse hasta dos meses, por necesidad ó enfermedad, solo gozarà de la mitad del sueldo; y el que haya de suplir las faltas de cada uno de los Ministros, gozarà de la otra mitad con arreglo á la Ley de 14 de Mayo del año proximo pasado.

@@ -1,0 +1,1 @@
+Art. 140. Las faltas de 4ª clase en los Jueces inferiores, se castigaran con apercibimiento, extrañamientos, reprensiones, conminaciones de penas, ó con multas que no pasen de cincuenta pesos; que dando esplicados con este artículo los cinco primeros de la Ley de 22 de Abril de 1830.

@@ -1,0 +1,1 @@
+Art. 113. Son tambien objetos de estas Sesiones los comprendidos en el artìculo 83, parrafos 7, 8, 9, 10, 11, 12, 13, 14, 15, y últimamente todos los fallos que dè el Tribunal, y cuanto este juzgue deberse tratar de acuerdo entre todos los Magistrados.

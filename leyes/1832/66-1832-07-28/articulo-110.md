@@ -1,0 +1,1 @@
+Art. 110. Los despachos y proviciones que cause la substanciacion, ó la sentencia de estas causas se firmaràn por los Ministros que las hubiesen dictado y en caso de muerte ò ausencia de alguno de ellos, suplirá la firma el menos antiguo, ó el que quedare repitiendose la suya propia, y poniendo antes de ella. “Por el Magistrado F.”

@@ -1,0 +1,1 @@
+Art. 134. Hecha la declaracion quedará el Juez suspenso del ejercicio de sus funciones, hasta que se concluya la causa, que se intruirà en los mismos tèrminos que previene este Reglamento, con respecto al Ministro Jeneral y Gefes que expresa el artículo 122.

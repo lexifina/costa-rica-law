@@ -1,0 +1,1 @@
+Art. 123. En las acusaciones contra los Jueces de primera instancia y los Alcaldes Constitucionales, por abuso en el ejercicio de sus funciones judiciales, conocerà la Corte con arreglo al artículo anterior.

@@ -1,0 +1,1 @@
+Art. 138. Por las causas de 4ª clase, solamente podràn acusar à los Jueces inferiores, los inmediatamente agraviados, y el Fiscal, cuando el fallo é infracciones hayan recaido en causas criminales ó de interés público. En estos dos casos podrá tambien procederse de oficio, aun cuando no haya acusado el Fiscal.

@@ -1,0 +1,1 @@
+Art. 4. Podrá conceder licencias à unos y à otros para ausentarse à negocios particulares, por el tèrmino de un mes ya sea continuo, ó discontinuo en cada año, con tal que el permiso que conceda no frustre la Sesion ó las tareas de la Secretaría: esta noticiarà siempre al Ejecutivo la licencia ó separacion de los Magistrados de la Corte para los fines que puedan convenir.

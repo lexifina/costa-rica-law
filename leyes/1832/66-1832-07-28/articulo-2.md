@@ -1,0 +1,1 @@
+Art. 2. En caso de hallarse impedido lo avisarà al Magistrado para que este haga sus veces, y siendo el impedimento perpetuo, lo comunicará el mismo Magistrado al Ejecutivo, á fin de que se tomen las convenientes providencias para llenar el vacío.

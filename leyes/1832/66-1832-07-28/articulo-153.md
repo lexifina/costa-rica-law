@@ -1,0 +1,1 @@
+Art. 153. Los Magistrados tomaràn en las visitas, providencias competentes para la seguridad de los reos: para el buen orden que entre estos, el Alcalde y demas que los custodien debe observarse; y remediarán la demora que padezcan las causas previniendo lo conveniente para el curso de ellas a los Jueces inferiores.

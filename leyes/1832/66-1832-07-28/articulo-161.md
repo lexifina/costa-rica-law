@@ -1,0 +1,1 @@
+Art. 161. Los Especìficos que se nombraren para subrogar à los Magistrados de la Corte, no podran oponer, por si, otro impedimento ni escusa que una manifiesta imposibilidad fisica comprobada; pues en este caso se reemplazarà al imposibilitado.

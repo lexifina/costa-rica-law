@@ -1,0 +1,1 @@
+Art. 95. Para que pueda concederse término para hacer probanzas fuera de la República, se ha de pedir cinco dias cuando mas tarde, despues de concluido el término ordinario de dentro del Estado, ò la Repùblica, y expresar la especie de prueba que se intenta hacer designando los testigos, documentos, ó justificaciones que se pretendan traher al juicio.

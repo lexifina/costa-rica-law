@@ -1,0 +1,1 @@
+Art. 124. Estas se reducirán à las siguientes: 1ª continuada y repetida embriaguez: 2ª fuerza à muger que se halle presa, que litigue, ò sea citada ante él como testigo: 3ª el cohecho: 4ª el soborno: 5ª juzgar á sabiendas contra derecho, por afecto ó desafecto hacia alguna persona: 6ª repeticion de fallo contra ley expresa despues de corregido por la Corte.

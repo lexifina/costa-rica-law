@@ -1,0 +1,1 @@
+Art. 12. Estarà á cargo del Presidente la policía interior del Edificio del Tribunal: escitará el zelo de los Magistrados para que llenen sus correspondientes deberes: hará que se guarde el òrden, y que los Subalternos cumplan con sus respectivas obligaciones.

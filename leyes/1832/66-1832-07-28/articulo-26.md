@@ -1,0 +1,1 @@
+Art. 26. Las faltas de los Magistrados se suplirán nombrando en cada asunto un abogado, Bachiller en derecho civil, ó Canonico; y en falta de estos á alguna persona de probidad é inteligencia, no pudiendo nombrarse ninguno de los últimos sin que se manifieste la recusacion ó impedimento de los primeros, ya sea por constancia de autos ó por expresion de ellos mismos.

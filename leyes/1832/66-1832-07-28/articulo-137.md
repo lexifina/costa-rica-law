@@ -1,0 +1,1 @@
+Art. 137. Por la tercera de las causas de tercera clase, solo podràn acusar los que se sintiesen inmediatamente agraviados, ò el Fiscal; pero no quedan excluidos los procedimientos de su oficio si los fallos han sido en causas criminales, ó de interés pùblico.

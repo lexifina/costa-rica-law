@@ -1,0 +1,1 @@
+Art. 10. Oirá las quejas de los Litigantes sobre la demora de parte de la Secretaria en el despacho de sus negocios, y proverá lo conducente para que dé cuenta de ellos, segun el òrden de su antigüedad, ò con la preferencia que establezcan las Leyes.

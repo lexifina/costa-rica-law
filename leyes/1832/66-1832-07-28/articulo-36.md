@@ -1,0 +1,1 @@
+Art. 36. Si el culpado no tuviese como satisfacer la multa que se le imponga en virtud de los artículos anteriores, sufrirá la pena que conforme al artículo 5° de la Ley de 27 de Abril de 830, corresponda á la multa que se le haya impuesto.

@@ -1,0 +1,1 @@
+Art. 87. Si el voto lo hubiese salvado el individuo en alguna con sulta, informe, petición, ó reclamo, que se hiciese à la Asambléa, Cuerpo Conservador, y Gefe Supremo, tendrá derecho á que se adjunte (à la consulta, informe, peticion, contestacion ó reclamo) el voto particular que haya dado, extendiendolo con las razones y fundamentos en que lo apoya.

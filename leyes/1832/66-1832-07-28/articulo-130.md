@@ -1,0 +1,1 @@
+Art. 130. Ademas de las penas expresadas en los artículos 125, 127 y 129, deberàn ser condenados dichos Jueces à resarcir los daños y perjuicios que hubieren ocasionado à las partes, y lo mismo respectivamente los Asesores.

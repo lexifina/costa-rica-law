@@ -1,0 +1,1 @@
+Art. 131. Dichas penas se impondrán sin perjuicio de las que (siguiendose las causas por los trámites ordinarios del derecho) les correspondan como à particulares por los delitos comunes; pues que en los artìculos anteriores solo se les castiga en razon de Jueces y Asesores.

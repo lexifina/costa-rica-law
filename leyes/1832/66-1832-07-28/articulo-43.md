@@ -1,0 +1,1 @@
+Art, 43. Para obtener las Plazas de Escribiente y portero se requiere la calidad de Ciudadano en el ejercicio de los derechos de tal; ser de conocida moralidad y aptitud, y ademas la edad de veinte y tres años.
