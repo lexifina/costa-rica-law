@@ -16,3 +16,4 @@ Reforma Régimen Tarifario para la Prestación de Servicios y Facilidades Aeropo
 | 1 | 1994-02-17 | la propia norma |
 | 2 | 1994-03-07 | Decreto Ejecutivo 23007 (1994-03-07) |
 | 3 | 1995-02-24 | Decreto Ejecutivo 24088 (1995-02-24) |
+| 4 | 1995-03-27 | Decreto Ejecutivo 24144 (1995-03-27) |
