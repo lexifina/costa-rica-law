@@ -1,0 +1,1 @@
+Transitorio III.—Del plazo para el cumplimiento de requisitos de los fondos de inversión admisibles. El plazo para el cumplimiento de los requisitos establecidos en el literal b) del Artículo 22, para invertir en los fondos de inversión los recursos de los fondos administrados, será seis meses después de la vigencia de estas regulaciones.

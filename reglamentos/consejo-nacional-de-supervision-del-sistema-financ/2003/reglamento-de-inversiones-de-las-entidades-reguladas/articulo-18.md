@@ -1,0 +1,4 @@
+Artículo 18.—Riesgos de mercado. Las entidades, en la administración del riesgo de mercado, deberán como mínimo:
+a) Evaluar y dar seguimiento a todas las posiciones sujetas a riesgo de mercado, utilizando para tal efecto modelos que permitan medir la pérdida potencial en dichas posiciones asociada a movimientos de precios, tasas de interés o tipos de cambio, con un nivel de probabilidad dado y horizonte definido.
+b) Definir normas cuantitativas y cualitativas para la elaboración y uso de los modelos para evaluar la diversificación del riesgo de mercado de sus posiciones.
+c) Comparar las estimaciones de riesgo de mercado con los resultados efectivamente observados. En caso de que los resultados proyectados y los observados difieran significativamente se deberá analizar los supuestos y modelos utilizados para realizar las proyecciones y, en su caso, modificar dichos supuestos o modelos.

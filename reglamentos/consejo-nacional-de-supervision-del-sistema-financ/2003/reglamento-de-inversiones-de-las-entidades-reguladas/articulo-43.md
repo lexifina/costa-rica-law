@@ -1,0 +1,1 @@
+Artículo 43—De los límites a la inversión. La inversión de los recursos deberá cumplir con los límites de concentración establecidos en el literal b) del Artículo 27 de este reglamento. Estos fondos adquirirán participaciones de fondos de inversión de corto plazo para el manejo de su liquidez.

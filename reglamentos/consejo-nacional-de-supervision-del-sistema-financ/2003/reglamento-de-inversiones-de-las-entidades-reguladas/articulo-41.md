@@ -1,0 +1,1 @@
+Artículo 41.—De las comisiones. El costo de intermediación incurrido por cada transacción deberá ser imputado al valor del instrumento negociado. Todos aquellos costos correspondientes a custodia, asesoramiento, investigación y otros, serán imputados a la entidad autorizada.

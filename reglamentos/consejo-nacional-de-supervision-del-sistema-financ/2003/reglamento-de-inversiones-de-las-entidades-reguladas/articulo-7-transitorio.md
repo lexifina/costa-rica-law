@@ -1,0 +1,2 @@
+Transitorio VII.—Cumplimiento del límite máximo estipulado en el Artículo 48, para las inversiones del capital mínimo de funcionamiento. El cumplimiento de los requisitos de inversión del capital de funcionamiento serán de acatamiento obligatorio seis meses después de la vigencia de estas regulaciones. No obstante, deberán presentar un plan de ajuste dentro de los 30 días naturales posteriores a la entrada en vigencia de este reglamento.
+Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta".

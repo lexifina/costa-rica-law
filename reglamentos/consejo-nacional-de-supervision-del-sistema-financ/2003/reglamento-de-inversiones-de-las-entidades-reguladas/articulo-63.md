@@ -1,0 +1,1 @@
+Artículo 63.—De las comisiones de custodia. Las comisiones por los servicios de custodia serán pactadas entre la entidad autorizada y la entidad que le preste el servicio y serán cubiertos en su totalidad por la entidad.

@@ -1,0 +1,3 @@
+Artículo 5º—De los libros de actas. La entidad autorizada llevará los acuerdos tomados por su Comité de Inversiones en un libro de actas electrónico con los requisitos que para tal efecto dicte el Superintendente.
+Las políticas y decisiones de inversión se consignarán en el libro de actas, en el cual se debe indicar con claridad a qué fondo o fondos corresponde la decisión tomada. Las actas deberán ser firmadas por el Presidente y el Secretario. Los miembros del comité son igualmente responsables de que el contenido de las actas corresponde a lo discutido y aprobado en cada sesión.
+El libro de actas, así como la información en la que se respalden las decisiones de inversión, deberá estar disponible para la Superintendencia.

@@ -1,0 +1,1 @@
+Artículo 62.—Cuentas corrientes de custodia. Las entidades autorizadas abrirán una cuenta corriente denominada en dólares en un banco nacional o extranjero según las indicaciones de la entidad de custodia. Estas cuentas se utilizarán únicamente para completar las transacciones efectuadas con los instrumentos de inversión.

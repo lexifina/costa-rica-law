@@ -1,0 +1,1 @@
+Artículo 49.—Prohibición. Queda prohibido invertir los recursos del capital mínimo de funcionamiento mediante operaciones de recompra o reporto, derivados financieros o realizar cualquier otra operación que implique pignorar o dar en garantía los títulos que respaldan el capital de funcionamiento.

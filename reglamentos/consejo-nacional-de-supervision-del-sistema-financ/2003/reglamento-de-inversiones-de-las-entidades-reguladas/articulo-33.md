@@ -1,0 +1,1 @@
+Artículo 33.—De los instrumentos derivados. El Superintendente de Pensiones podrá autorizar la utilización de instrumentos derivados con el fin de alcanzar coberturas de riesgo de tasa de interés y de tipo de cambio. Para estos efectos establecerá, por disposición general, los aspectos operativos y requisitos de contraparte referidos a estos instrumentos.

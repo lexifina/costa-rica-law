@@ -1,0 +1,7 @@
+Artículo 20.—Requisitos mínimos de la auditoría de riesgos. La auditoría en Administración de Riesgos deberá contemplar, entre otros, los siguientes aspectos:
+a) El desarrollo de la Administración de Riesgos de conformidad con lo establecido en las presentes disposiciones y en el Manual de Políticas y Procedimientos para la Administración Integral de Riesgos de la entidad.
+b) La organización de la Unidad para la Administración Integral de Riesgos y su independencia de las demás áreas, o en caso de que este servicio lo preste un tercero el cumplimiento del contrato celebrado entre las partes.
+c) Programas de revisión del cumplimiento de objetivos, procedimientos y controles en la celebración de operaciones, así como de los límites de exposición al riesgo, semestralmente, o bien, con una mayor frecuencia cuando por las condiciones del mercado se justifique.
+d) Sistemas de almacenamiento, procesamiento y manejo de información que permitan el desarrollo de una Administración de Riesgos.
+e) Aplicación y difusión de los planes de acción para casos de contingencia, por caso fortuito o fuerza mayor, que impidan el cumplimiento de los límites de exposición al riesgo establecidos.
+f) Programas de capacitación para el personal de la Unidad para la Administración Integral de Riesgos, tanto para el caso de que ésta forme parte de la estructura de la Administradora como para cuando se contrate con un tercero, y para todo aquel involucrado en las operaciones que impliquen riesgo para los fondos administrados.

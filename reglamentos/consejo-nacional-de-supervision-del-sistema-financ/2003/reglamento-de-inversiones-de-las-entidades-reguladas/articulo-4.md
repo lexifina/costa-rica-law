@@ -1,0 +1,5 @@
+Artículo 4º—Funciones del Comité de Inversiones. El Comité de Inversiones desempeñará las siguientes funciones:
+a) Aprobar la política de inversiones adoptada para la gestión de cada uno de los fondos administrados, de modo que ésta se encuentre enmarcada dentro de la presente normativa.
+La política de inversiones, entre otros factores que determine cada entidad, según lo considere conveniente, deberá incluir cuando menos los objetivos y políticas de inversión de la cartera administrada, sus criterios de diversificación, así como los procedimientos y prácticas de inversión.
+b) Deberá sesionar al menos una vez al mes con el objeto de determinar la política, la estrategia de inversión y la composición de los activos de los fondos gestionados, e informar a los Órganos de dirección de las decisiones tomadas por el comité.
+c) El Comité de Inversiones de cada entidad seleccionará los instrumentos que serán adquiridos y vendidos por la misma de conformidad con el régimen de inversión previsto y los límites de riesgos vigentes.

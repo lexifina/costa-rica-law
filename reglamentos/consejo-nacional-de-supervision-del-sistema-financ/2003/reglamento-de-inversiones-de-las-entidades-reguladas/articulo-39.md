@@ -1,0 +1,1 @@
+Artículo 39.—De los administradores de cartera. El Superintendente de Pensiones podrá autorizar la utilización de administradores de cartera cuando lo considere conveniente y bajo los requisitos que establezca para tal efecto.

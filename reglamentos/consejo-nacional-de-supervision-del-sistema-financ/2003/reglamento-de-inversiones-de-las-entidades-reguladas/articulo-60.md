@@ -1,0 +1,1 @@
+Artículo 60.—Autorización para operar con un custodio internacional. Las entidades autorizadas deberán acreditar el cumplimiento de los requisitos establecidos en el Artículo 57. Este requisito se cumplirá por medio de un auditor extranjero registrado como tal en el organismo correspondiente en el mercado autorizado y que cuente con un reconocido prestigio internacional.

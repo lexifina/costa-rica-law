@@ -1,0 +1,1 @@
+Artículo 54.—Pérdida de requisitos. El Superintendente establecerá el procedimiento para que las entidades informen el monto, explicación de las causas, plan de acción y plazo para ajustarse a los requisitos en caso de que un valor adquirido por la entidad autorizada pierda alguno o varios de los requisitos exigidos para su admisión en los fondos.

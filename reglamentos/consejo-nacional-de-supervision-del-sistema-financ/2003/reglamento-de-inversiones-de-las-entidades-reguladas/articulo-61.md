@@ -1,0 +1,1 @@
+Artículo 61.—Responsabilidades de entidades autorizadas al depositar valores en custodia. Las entidades autorizadas serán las responsables de mantener un adecuado control de las transacciones que registra el custodio.

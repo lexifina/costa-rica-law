@@ -1,0 +1,1 @@
+Artículo 38.—Modalidades de adquisición no permitidas. Las entidades autorizadas no podrán suscribir contratos con la modalidad de cuentas de requerimiento de margen (margin accounts) ni realizar inversiones financiadas.

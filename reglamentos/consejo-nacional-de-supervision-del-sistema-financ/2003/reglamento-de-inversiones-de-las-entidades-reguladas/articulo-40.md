@@ -1,0 +1,1 @@
+Artículo 40.—De la responsabilidad de las entidades autorizadas. Las entidades autorizadas serán responsables de las inversiones realizadas con independencia de la modalidad de administración de inversiones en mercados internacionales.

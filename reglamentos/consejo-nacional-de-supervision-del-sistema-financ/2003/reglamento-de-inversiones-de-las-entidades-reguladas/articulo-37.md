@@ -1,0 +1,2 @@
+Artículo 37.—Condiciones contractuales. Los contratos suscritos con los intermediarios nacionales deberán ajustarse a lo establecido por la Superintendencia General de Valores.
+Los contratos suscritos con los intermediarios internacionales deberán contener una cláusula que haga referencia expresa a que las decisiones de inversión serán tomadas por la entidad autorizada sin perjuicio de la asesoría que reciba por parte del intermediario.
