@@ -1,0 +1,2 @@
+(NOTA DE SINALEVI: La Junta Directiva del Instituto Nacional de Aprendizaje, mediante acuerdo consignado en el artículo VI, de la sesión Nº 4045 celebrada el 10 de marzo del 2003, acordó la aprobación de un nuevo Reglamento de Contratación de Servicios de Capacitación y Formación Profesional, publicado en La Gaceta N° 94 del 19 de mayo del 2003, el cual puede consultarse en el sistema).
+Artículo 1°.-
