@@ -1,0 +1,1 @@
+Artículo 2°-Se exime del pago del impuesto de donaciones y de cubrir derechos de Registro y Timbre Universitario, la donación a que se refiere la citada ley N° 2884, que autoriza al Asilo de Ancianos de Cartago, para donar un lote de terreno a la Congregación de Religiosas Terciarias Franciscanas de la Purísima.
