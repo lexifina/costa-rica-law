@@ -1,0 +1,17 @@
+N° 31122-MOP
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las prerrogativas y facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política; artículo 15 del Convenio sobre Aviación Civil Internacional de Chicago de 1944; artículos 4º, 5º, 10, 11, 25 y 26, inciso b) de la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978; artículos 1º y 2º, inciso b) de la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786 del 5 de julio de 1971 y la Ley de Aviación Civil N° 5150 del 14 de mayo de 1973 y sus reformas.
+Considerando:
+1º—Que la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley N° 7593 establece en su artículo 5°, inciso g) la potestad de dicha entidad para fijar los precios y las tarifas de los servicios públicos prestados a los aeropuertos nacionales, así como velar por el cumplimiento de las normas de calidad, cantidad, confiabilidad, continuidad, oportunidad y prestación óptima de los servicios públicos.
+2º—Que el Convenio sobre Aviación Civil Internacional de Chicago del 7 de diciembre de 1944, debidamente ratificado mediante Ley N° 877 del 4 de julio de 1947, en el artículo 15 establece que corresponde a los Estados contratantes establecer los derechos aeroportuarios y otros similares para el uso de los aeropuertos e instalaciones y servicios para la navegación aérea.
+3º—Que la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos con estricto apego a los procedimientos de su Ley, aprobó mediante acuerdo de Junta Directiva Nº 8-83-98 del 24 de julio de 1998 el Reglamento de los Servicios Aeroportuarios.
+4º—Que mediante el Decreto Ejecutivo N° 27380-MOPT, publicado en La Gaceta N° 203 del 20 de octubre de 1998, Alcance N° 74 se emitió el Reglamento de Servicios Aeroportuarios, el cual fija en su artículo 4° que las modificaciones tarifarias por procedimiento ordinario deberán ser presentadas al menos cada año, dentro del primer cuatrimestre de cada año.
+5º—Que mediante Informe DFOE-OP 1-2003 de la Contraloría General de la República, denominado "Informe sobre el ajuste de tarifas de los servicios prestados en el Aeropuerto Internacional Juan Santamaría, correspondiente al período 2002-2003", el ente Contralor requiere "Disponer de inmediato las acciones necesarias a efecto de que los excesos, incorrecciones y errores detectados en las tarifas 2002-2003 y comprobados, según se expone en este documento, se corrijan y se hagan los ajustes correspondientes, mediante los mecanismos que defina el CETAC y en lo pertinente ese Consejo en conjunto con la ARESEP".
+6º—Que la Administración requiere de tiempo razonable para cumplir con lo dispuesto en el Informe de la Contraloría General de la República DFOE-OP 1-2003 a fin de salvaguardar el interés público y los derechos de los usuarios del Aeropuerto Internacional Juan Santamaría.
+Decretan:
+Artículo 1º—Refórmase el artículo 4º del Reglamento de Servicios Aeroportuarios, Decreto Ejecutivo N° 27380-MOPT, publicado en La Gaceta N° 203 de 20 octubre de 1998, Alcance N° 74, para agregarle un segundo párrafo que dirá:
+"Artículo 4º—Modificaciones a las tarifas.
+[…]
+En el evento de que exista hecho de la Administración, razones justificadas de fuerza mayor, o caso fortuito, no imputable directamente al Consejo Técnico de Aviación Civil o disposiciones vinculantes de los órganos de control que deban ser cumplidas, ese plazo podrá ampliarse hasta por dos meses más".
