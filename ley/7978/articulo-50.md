@@ -1,0 +1,6 @@
+ARTÍCULO 50.- Cambios en el reglamento de empleo de la marca
+colectiva
+Los cambios introducidos en el reglamento de empleo de la marca
+colectiva serán comunicados por su titular al Registro de la Propiedad
+Industrial. Se inscribirán en el registro mediante el pago de la tasa
+establecida en el artículo 94 de esta ley.

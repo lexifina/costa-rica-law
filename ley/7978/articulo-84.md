@@ -1,0 +1,9 @@
+ARTÍCULO 84.- Efectos de la declaración de nulidad
+Los efectos de la declaración de nulidad de un registro se
+retrotraerán a la fecha de la concesión respectiva, sin perjuicio de las
+condiciones o excepciones que se dispongan en la resolución declaratoria
+de la nulidad.
+Cuando se declare la nulidad de un registro respecto al cual se haya
+concedido una licencia de uso, el licenciante estará eximido de devolver
+los pagos efectuados por el licenciatario, salvo que este no se haya
+beneficiado por la licencia.

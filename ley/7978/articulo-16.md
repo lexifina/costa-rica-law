@@ -1,0 +1,4 @@
+Artículo 16°- Oposición al registro. Cualquier persona interesada podrá presentar oposición contra el registro de una marca, dentro del plazo de dos meses contados a partir de la primera publicación del aviso que anuncia la solicitud. La oposición deberá presentarse con los fundamentos de hecho y de derecho; deberá acompañarse de las pruebas pertinentes que se ofrecen.
+Si las pruebas no se adjuntaron a la oposición, deberán presentarse dentro de los treinta días calendario siguientes a la fecha de interpuesta la oposición.
+La oposición se notificará al solicitante, quien podrá responder dentro del plazo de dos meses contados desde la fecha de la notificación.
+Vencido este período, el Registro de la Propiedad Industrial resolverá la solicitud, aun cuando no se haya contestado la oposición.

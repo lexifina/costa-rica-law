@@ -1,0 +1,1 @@
+Artículo 28°- Elementos no protegidos en marcas complejas. Cuando la marca consista en una etiqueta u otro signo compuesto por un conjunto de elementos, la protección no se extenderá a los elementos contenidos en ella que sean de uso común o necesario en el comercio.

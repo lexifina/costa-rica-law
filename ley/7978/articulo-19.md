@@ -1,0 +1,1 @@
+Artículo 19°- Certificado de registro. El Registro de la Propiedad Industrial expedirá al titular un certificado de registro de la marca, el cual contendrá los datos incluidos en el registro correspondiente y los fijados por las disposiciones reglamentarias.
