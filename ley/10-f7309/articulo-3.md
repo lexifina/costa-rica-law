@@ -1,0 +1,1 @@
+ARTICULO 3°. -Caer igualmente en comiso toda embarcación menor matriculada que, ocupándose del comercio de cabotaje, salga del Golfo de Nicoya para dirigirse a cualquier otro punto del litoral de la República para salir fuera de sus aguas, sin las licencias del Capitán de Puerto, según se dispone en el artículo 15 del citado Reglamento de Marina.
