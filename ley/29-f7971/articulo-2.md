@@ -1,0 +1,1 @@
+Art 2° El Rector girará por sueldos de empleados de ambos establecimientos, contra el Tesoro Nacional, cuyos giros visados por la Secretaría de Hacienda, serán cubiertos por el Banco Nacional, debiendo el mismo funcionario pasar cada fin de mes antes de expedir los giros a la Secretaría de Instrucción Pública, la correspondiente lista de servicio.
