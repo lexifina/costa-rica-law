@@ -1,0 +1,1 @@
+Artículo 5°—La Asociación de Desarrollo de la Reserva Indígena Bribrí de Talamanca traspasará la escritura de la Reserva de Cocles, a la Asociación de Desarrollo Integral de Cocees en cuanto esta esté constituida.

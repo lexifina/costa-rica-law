@@ -1,0 +1,1 @@
+Artículo 4°—Constituyese, en un plazo no mayor de 6 meses a partir de la publicación de este Decreto, la Asociación de Desarrollo Integral de la Reserva Indígena de Cocles, que será la representante oficial de esta comunidad, conforme con la Ley Indígena No 6172 y decretos conexos.
