@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad se encuentra exenta del pago de impuestos, por lo tanto cuando no se haga uso de la boleta de exoneración, los impuestos cobrados correrán por cuenta del funcionario que realice la compra.

@@ -1,0 +1,1 @@
+Artículo 9°—Unicamente se autoriza la compra de bienes y servicios, estipulados en la respectiva solicitud de vale de caja chica, caso contrario, el que incurra en esta falta deberá reintegrar el dinero solicitado
