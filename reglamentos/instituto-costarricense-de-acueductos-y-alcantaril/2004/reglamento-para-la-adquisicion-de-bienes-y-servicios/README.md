@@ -14,3 +14,4 @@ Reglamento para la adquisición de bienes y servicios.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-29 | la propia norma |
+| 2 | 2005-02-24 | Reglamento 126 (2005-02-24) |
