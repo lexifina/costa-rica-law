@@ -1,0 +1,5 @@
+N° 5156
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Prorrógase hasta el 31 de diciembre de 1973 el funcionamiento de la Comisión integrada para estudiar la Legislación Penal y leyes conexas, a que se refiere el artículo 1º de la ley Nº 4120, integrada por las siguientes personas: Dr. Guillermo Padilla castro, Lic. Luis Casafont Romero, Lic. José María Fernández Iglesias, Lic. Jorge Arturo Montero Castro, Lic. Luis Alberto Azofeifa Solís, Lic. Ulises Valverde Solano, Lic. Ulises Odio Santos, Lic. Antonio Arroyo Alfaro, Dr. Alberto Izaguirre Aguirregaviria y señora Betty Barrientos Moscoa, como Secretaría de la Comisión.
+Se suspenden, por el plazo indicado, los efectos de las disposiciones de los artículos 49 de la Ley de la Administración Financiera, 13 de la Ley de Salarios del Poder Judicial, 6º de la Ley de Pensiones y Jubilaciones del Magisterio Nacional, Nº 2248 y las disposiciones del Presupuesto Ordinario de la República, que se opongan al normal funcionamiento de dicha Comisión y al pago de las respectivas dietas.
