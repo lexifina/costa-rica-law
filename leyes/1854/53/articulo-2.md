@@ -1,0 +1,2 @@
+Art 2°.- Cuando haya de conmutarse la pena de presidio u obras públicas con multas en dinero, se hará a razón de veinte pesos el mes por el tiempo de la condena; la conmutación de reclusión con obras públicas o presidio, se hará por la mitad del tiempo que debía durar aquella, subrogable también en dinero.
+Dado en la Ciudad de San José, a los diecisiete días del mes de octubre de mil ochocientos cincuenta y cuatro.
