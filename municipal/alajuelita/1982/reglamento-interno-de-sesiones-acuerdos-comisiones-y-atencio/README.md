@@ -14,3 +14,4 @@ Reglamento Interno de Sesiones, Acuerdos, Comisiones y Atención a Particulares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-07-27 | la propia norma |
+| 2 | 2002-06-11 | Reglamento municipal 6 (2002-06-11) |
