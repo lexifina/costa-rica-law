@@ -13,3 +13,4 @@ CONAPE: Reglamento Uso Estacionamiento Vehículos Funcionarios CONAPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-18 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
