@@ -1,0 +1,1 @@
+ARTICULO 32.- En la sala de composición deben conservarse limpias las cajas, tipos y demás útiles, procurando que no se rieguen fuera de sus depósitos las letras, y que sean distribuidos oportuna y cuidadosamente los moldes que ya han servido.

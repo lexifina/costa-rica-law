@@ -1,0 +1,1 @@
+ARTICULO 27.- El Director de la imprenta hará circular la Gaceta por medio de los oficiales o aprendices de su oficina; pero antes se pondrán en la Secretaría del Gobierno los ejemplares que correspondan. El mismo Director se entenderá con el valor de las suscripciones y el producto de venta de los números sueltos.

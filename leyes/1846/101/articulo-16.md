@@ -1,0 +1,1 @@
+ARTICULO 16.- Todos los costos de imprenta, tinta y papel son a cargo del Gobierno; pero el Director tiene obligación de ocurrir oportunamente a la Intendencia para que se surta la oficina de todos los artículos que hagan falta.

@@ -1,0 +1,1 @@
+ARTICULO 7º.- El director es obligado a presentar mensualmente al Gobierno el estado de las impresiones verificadas, con expresión de gastos y productos, y con designación de especies, quien lo pasará a la Intendencia para los objetos de ley.

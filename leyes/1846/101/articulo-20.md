@@ -1,0 +1,1 @@
+ARTICULO 20.- Los originales de papeles anónimos que se han publicado, serán quemados después de un año, sino fueren antes denunciados, y en tal caso terminará con el original la responsabilidad del escritor.

@@ -1,0 +1,1 @@
+ARTICULO 33.- En la oficina de prensas es más necesaria la limpieza en la cama y frasquetas, en los bolos, mesas y secadores, comprendiéndose las máquinas en general, uso de la tinta y cubos en agua para el mojado del papel, de tal suerte, que todo concurra a que la impresión sea clara, limpia y modelada con perfección.

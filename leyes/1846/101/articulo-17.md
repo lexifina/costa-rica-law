@@ -1,0 +1,2 @@
+ARTICULO 17.- El Director de la imprenta, en atención a los cargos que este reglamento le impone, disfrutará el sueldo de treinta pesos mensuales; el maestro impresor el de veintidos; el primer oficial diecisiete; el segundo dieciséis; y el tercero doce. El aprendiz más antiguo tendrá seis pesos, y los demás tres pesos cada uno. (1)
+(1) Actualmente (junio de 1862) todos los sueldos que preceden están aumentados en virtud de órdenes Supremas; y se hallan reunidos en una sola persona los destinos de Director y Redactor.
