@@ -13,3 +13,4 @@ Reglamento para el Transporte Terrestre de Productos Peligrosos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-01 | la propia norma |
+| 2 | 1995-11-01 | SINALEVI (sin norma nombrada) |

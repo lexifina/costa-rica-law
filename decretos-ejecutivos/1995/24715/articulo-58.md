@@ -25,7 +25,8 @@ d- Nombre del transportador o compañía transportista y número
 o código de identificación del vehículo.
 e- Nombre y firma del conductor.
 f- Descripción del material peligroso, conforme al siguiente
-orden: f.1. Nombre de embarque apropiado para el producto.
+orden:
+f.1. Nombre de embarque apropiado para el producto.
 f.2. Clasificación primaria (clase) y subsidiaria (categoría
 y subcategoría) del producto peligroso.
 f.3. Esquema del tipo de placa y la etiqueta identificadoras
