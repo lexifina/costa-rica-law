@@ -1,0 +1,2 @@
+Art. 3. El Ejecutivo harà que esta declaratoria se imprima, publique y circule, con el dictamen que la motivó, dentro y fuera del Estado. —Al Poder Ejecutivo.—
+Dado en San Josè à los dieziocho dias del mes de Marzo de mil ochocientos treinta y uno.—Rafael Osejo D. Presidente.—José Gabriel del Campo D. Secretario.-José Julian Blanco D. Secretario.—Por tanto: ejecutese. San Josè Marzo veintiuno de mil ochocientos treinta y uno—Juan, Mora.—Al C. Joaquin Bernardo Calyo.”

@@ -1,0 +1,1 @@
+Art. 2. Quedan, por tanto, expeditos en el ejercicio de sus funciones respectivas para continuar en el despacho y conclusion de los negocios pendientes en la Corte y de que han conocido hasta ahora los mismos.
