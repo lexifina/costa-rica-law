@@ -1,0 +1,1 @@
+Articulo 6°—Se establece que en ningún caso la Administración autorizara el desarrollo de actividades de karaoke, mas allá de las 11:00 p.m. con esta hora como limite deberán cesar completamente todas las actividades de este tipo. En virtud de que la Corporación Municipal debe acatar con sentido restrictivo, resguardando, primordialmente el interés publico.
