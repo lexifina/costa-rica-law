@@ -1,0 +1,2 @@
+Artículo 3° Los diputados suplentes que concurran en lo sucesivo accidentalmente a las sesiones, gozarán del sueldo del receso en proporción al número del sesiones ordinarias a que concurran.
+Los propietarios que falten sin justa causa tendrán derecho a sueldo en el receso, en proporción al número de sesiones ordinarias a que asistan. No se considerarán como faltas para este efecto aquellas para las cuales se haya obtenido la correspondiente licencia.
