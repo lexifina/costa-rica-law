@@ -1,0 +1,3 @@
+SECCIÓN VIII
+Disposiciones generales
+Artículo 28.—Ninguna autoridad de tránsito ad honórem podrá recibir pago alguno en el ejercicio de sus funciones; sin embargo en el caso de funcionarios contratados por Instituciones Públicas y que dentro de sus horas laborales también quieran actuar como autoridades de tránsito lo podrán hacer con previa autorización del Director General de Tránsito, de acuerdo con lo establecido en la sección v de este Capítulo; autorización que puede ser revocada por el Director. Igualmente el funcionario contratado por el Ministerio de Obras Públicas y Transportes o por el Consejo de Seguridad Vial no podrá recibir pago alguno de otro órgano en el ejercicio de sus funciones.

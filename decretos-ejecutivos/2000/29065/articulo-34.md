@@ -1,0 +1,1 @@
+Artículo 34.—Uniforme de Gala: Se utilizará un uniforme de gala cuando así lo dispusiere la Dirección General de la Policía de Tránsito y para cubrir eventos especiales, el que estará compuesto por un saco azul marino, con ribetes dorados en las mangas y charreteras con botones dorados.

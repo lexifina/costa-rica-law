@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá al Director General de la Policía de Tránsito efectuar el nombramiento de los policías de tránsito ad-honórem, sin embargo estos no gozarán de estabilidad en su nombramiento, así mismo todo policía ad honórem puede renunciar libremente.

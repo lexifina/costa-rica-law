@@ -1,0 +1,1 @@
+Artículo 30.—Del ámbito de aplicación: Las presentes disposiciones regirán para todo el personal policial que sean miembros de la Dirección General de la Policía de Tránsito, incluyendo los que prestan servicio en otras instituciones.

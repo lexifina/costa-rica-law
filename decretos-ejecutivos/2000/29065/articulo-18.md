@@ -1,0 +1,1 @@
+Artículo 18.—Debe existir en cada delegación y en cada institución pública autorizada, un Libro de Comunicados para los policías ad honórem, donde se registrarán las órdenes, citaciones y novedades para esos funcionarios, quienes podrán consultarlo en cualquier momento. Deberá ser consultado y firmado por dichos oficiales cada quince días, como mínimo.

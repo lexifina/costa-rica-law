@@ -1,0 +1,1 @@
+Artículo 22.—En sus actuaciones los policías ad honórem deberán utilizar el uniforme exclusivo de la Policía de Tránsito, salvo cuando por disposición escrita del Director General de la Policía de Tránsito, se les autorice a usar una vestimenta diferente. Únicamente podrán utilizar con el uniforme las insignias o distintivos autorizados por la Dirección General de Tránsito.

@@ -1,0 +1,1 @@
+Artículo 4º—De la Supervisión Nacional. La Dirección General de la Policía de Tránsito podrá constituir una Supervisión Nacional de los policías ad honórem, distinta e independiente de la que supervisa a los policías regulares; y responderá solo ante el Director General.
