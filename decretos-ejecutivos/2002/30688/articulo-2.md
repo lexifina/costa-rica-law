@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá a DINADECO determinar la viabilidad de los compromisos adquiridos por la anterior Dirección General del Triángulo de Solidaridad, al amparo de las disposiciones legales y políticas gubernamentales vigentes.

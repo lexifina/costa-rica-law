@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los artículos 2º, 4º, 5º, 6º, 7º, 8º, 9º, 10, 11, 12, 13, 14, 15, 16, 17, 18, 19, 20, 21, 22 del Decreto N° 27842-C, del 26 de abril de 1999, publicado en La Gaceta N° 86 del 5 de mayo de 1999.
