@@ -1,0 +1,1 @@
+Art. 8. La Junta Itineraria, a quien está encomendada la apertura y conservacion de los caminos públicos, se hará cargo de la obra de este camino asi como de su mantenimiento, para la cual, si lo tuviere a bien agregará á la Comision que nombre dos o mas hacendados conocedores del local por donde ha de atravesar el camino.
