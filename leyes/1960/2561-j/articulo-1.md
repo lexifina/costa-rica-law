@@ -21,6 +21,10 @@ CONFERENCIA INTERNACIONAL DEL TRABAJO
 CONVENIO (NUM. 96) RELATIVO A LAS AGENCIAS
 RETRIBUIDAS DE COLOCACION
 (REVISADO EN 1949)
+(NOTA: de acuerdo con el artículo 4º de la ley de aprobación,
+conforme a lo prescrito por el párrafo 1 del artículo 2 del Convenio Nº
+96, relativo a las agencias retribuidas de colocación, acéptanse las
+disposiciones de la parte II de dicho Convenio)
 La Conferencia General de la Organización Internacional del Trabajo:
 Convocada en Ginebra por el Consejo de Administración de la
 Oficina Internacional del Trabajo, y congregada en dicha ciudad el 8 de
