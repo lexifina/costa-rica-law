@@ -15,3 +15,4 @@ Reglamento de la Contraloría General de la República
 | --- | --- | --- |
 | 1 | 1962-03-29 | la propia norma |
 | 2 | 1968-06-17 | Decreto Ejecutivo 126 (1968-06-17) |
+| 3 | 1970-11-04 | Decreto Ejecutivo 1331 (1970-11-04) |
