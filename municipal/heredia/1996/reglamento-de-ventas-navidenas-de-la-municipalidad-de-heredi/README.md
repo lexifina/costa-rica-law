@@ -14,3 +14,4 @@ Reglamento de ventas navideñas de la Municipalidad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-06 | la propia norma |
+| 2 | 2004-10-21 | Reglamento municipal 208 (2004-10-21) |
