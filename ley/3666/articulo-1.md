@@ -1,76 +1,11 @@
-Artículo 1º.- Refórmase el Capítulo IV, Título VI de la Ley Orgánica
-del Poder Judicial, para que se lea así:
+Artículo 1º.- Refórmase el Capítulo IV, Título VI de la Ley Orgánica del Poder Judicial, para que se lea así:
 "CAPITULO IV
 De los Defensores Públicos y de Oficio
-Artículo 133.- Los defensores públicos son funcionarios dependientes
-del Poder Judicial, de nombramiento de la Corte Plena, y tendrán a su cargo
-la defensa de los menores de edad, sordomudos, enajenados mentales, reos
-ausentes y personas desvalidas, salvo que éstas se defiendan por sí mismas
-cuando la ley lo permita, o que en el caso de menores o inhábiles, sus
-representantes legales los provean de defensor; o cuando tratándose de reos
-ausentes hicieren la designación el cónyuge o un ascendiente, descendiente
-o hermano, que no tengan interés opuesto.
-Los defensores públicos deben ser mayores de edad, ciudadanos en
-ejercicio y del estado seglar. Serán nombrados por períodos de cuatro
-años, y la Corte Plena fijará su número, la forma en que se retribuirán
-sus servicios y el territorio donde deben desempeñar sus funciones. Se
-juramentarán ante el Presidente de la Corte o ante el funcionario que éste
-comisione.
-Para hacer el nombramiento de defensores públicos, la Corte Plena
-realizará los estudios que correspondan, a fin de determinar el número de
-los que deban designarse en cada jurisdicción, o si un solo defensor puede
-atender dos o más jurisdicciones, o bien, si la designación no se
-justifica por el poco trabajo de las respectivas oficinas.
-Cuando en una misma jurisdicción territorial hubiere más de un
-defensor público, la Corte regulará la distribución del trabajo entre
-ellos, por medio de acuerdo.
-Artículo 134.- Los abogados, bachilleres en leyes y procuradores
-judiciales, tendrán preferencia para ser designados como defensores
-públicos; pero en el caso de inopia de esos profesionales en determinada
-jurisdicción territoria, la Corte podrá nombrar a los egresados de la
-Facultad de Derecho, a los estudiantes de la misma que estén cursando el
-quinto año de estudios, o a personas sin título que sean prácticas en
-derecho, en ese orden. Sin embargo, los profesionales siempre desplazarán
-a las personas que carezcan de título, aún cuando no hubiere fenecido el
-período de nombramiento, y con ese fin dirigirán la correspondiente
-solicitud a la Corte.
-No podrá ser nombrado defensor público ninguno de los individuos que
-se indican en el artículo 14, ni tampoco el que fuere cónyuge,
-ascendiente, descendiente, hermano, tío o sobrino, por consanguinidad o
-afinidad, del Magistrado, Juez o Alcalde ante quien deba ejercer sus
-funciones.
-Artículo 135.- La Corte Plena ejercerá la jurisdicción disciplinaria
-sobre los defensores públicos, los corregirá por las faltas que cometan en
-sus funciones, de conformidad con lo establecido en el Título X de esta
-ley.
-El Juzgador, tan pronto como tenga conocimiento de que el defensor
-público ha descuidado la defensa, lo hará saber a la Corte para que
-investigue los hechos, bajo pena de ser corregido disciplinariamente si lo
-omitiere. Caso de resultar comprobada la falta atribuida al defensor, la
-Corte revocará su nombramiento.
-El cargo de defensor público no es incompatible con el ejercicio de
-la profesión de abogado o notario; pero el defensor deberá excusarse de
-intervenir en los procesos en que tuviere alguna de las causales de
-impedimento o recusación previstas en los artículos 199 y 201.
-Cuando se separe a un defensor público de intervenir en un asunto
-determinado, será reemplazado por otro de la misma jurisdicción; y si no
-lo hubiere, el juez le nombrará al reo un defensor de oficio.
-Artículo 136.- En las jurisdicciones territoriales donde no exista
-defensor público nombrado por la Corte, la defensa de los procesados a que
-se refiere el artículo 133, estará a cargo de defensores de oficio, de
-nombramiento del funcionario que conozca el asunto.
-Los defensores de oficio sustituirán a los defensores públicos en el
-caso previsto en el párrafo final del artículo anterior.
-Todo abogado, bachiller en leyes y procurador judicial con oficina
-abierta, está en la obligación de aceptar hasta dos defensas de oficio
-simultáneamente. Los estudiantes de la Facultad de Derecho que estén
-cursando o hayan cursado el quinto año de sus estudios, podrán ser
-nombrados defensores de oficio si así lo solicitaren a los tribunales,
-para lo cual deberán comprobar su calidad con certificación expedida por
-el Secretario de la Facultad.
-Los prácticos en derecho podrán ser nombrados defensores de oficio a
-falta de abogados, bachilleres en leyes, procuradores judiciales o
-estudiantes de derecho.
-El cargo de defensor de oficio es gratuito, y la persona en que
-recaiga el nombramiento sólo podrá excusarse de servirlo por motivo justo,
-a juicio del tribunal respectivo."
+Artículo 133.- Los defensores públicos son funcionarios dependientes del Poder Judicial, de nombramiento de la Corte Plena, y tendrán a su cargo la defensa de los menores de edad, sordomudos, enajenados mentales, reos ausentes y personas desvalidas, salvo que éstas se defiendan por sí mismas cuando la ley lo permita, o que en el caso de menores o inhábiles, sus representantes legales los provean de defensor; o cuando tratándose de reos ausentes hicieren la designación el cónyuge o un ascendiente, descendiente o hermano, que no tengan interés opuesto. Los defensores públicos deben ser mayores de edad, ciudadanos en ejercicio y del estado seglar. Serán nombrados por períodos de cuatro años, y la Corte Plena fijará su número, la forma en que se retribuirán sus servicios y el territorio donde deben desempeñar sus funciones. Se juramentarán ante el Presidente de la Corte o ante el funcionario que éste
+comisione. Para hacer el nombramiento de defensores públicos, la Corte Plena realizará los estudios que correspondan, a fin de determinar el número de los que deban designarse en cada jurisdicción, o si un solo defensor puede atender dos o más jurisdicciones, o bien, si la designación no se justifica por el poco trabajo de las respectivas oficinas. Cuando en una misma jurisdicción territorial hubiere más de un defensor público, la Corte regulará la distribución del trabajo entre ellos, por medio de acuerdo.
+Artículo 134.- Los abogados, bachilleres en leyes y procuradores judiciales, tendrán preferencia para ser designados como defensores públicos; pero en el caso de inopia de esos profesionales en determinada jurisdicción territorial, la Corte podrá nombrar a los egresados de la Facultad de Derecho, a los estudiantes de la misma que estén cursando el quinto año de estudios, o a personas sin título que sean prácticas en derecho, en ese orden. Sin embargo, los profesionales siempre desplazarán a las personas que carezcan de título, aun cuando no hubiere fenecido el período de nombramiento, y con ese fin dirigirán la correspondiente solicitud a la Corte. No podrá ser nombrado defensor público ninguno de los individuos que se indican en el artículo 14, ni tampoco el que fuere cónyuge, ascendiente, descendiente, hermano, tío o sobrino, por consanguinidad o afinidad, del Magistrado, Juez o Alcalde ante quien deba ejercer sus funciones.
+Artículo 135.- La Corte Plena ejercerá la jurisdicción disciplinaria sobre los defensores públicos, los corregirá por las faltas que cometan en sus funciones, de conformidad con lo establecido en el Título X de esta ley.
+El Juzgador, tan pronto como tenga conocimiento de que el defensor público ha descuidado la defensa, lo hará saber a la Corte para que investigue los hechos, bajo pena de ser corregido disciplinariamente si lo omitiere. Caso de resultar comprobada la falta atribuida al defensor, la Corte revocará su nombramiento.
+El cargo de defensor público no es incompatible con el ejercicio de la profesión de abogado o notario; pero el defensor deberá excusarse de intervenir en los procesos en que tuviere alguna de las causales de impedimento o recusación previstas en los artículos 199 y 201.
+Cuando se separe a un defensor público de intervenir en un asunto determinado, será reemplazado por otro de la misma jurisdicción; y si no lo hubiere, el juez le nombrará al reo un defensor de oficio.
+Artículo 136.- En las jurisdicciones territoriales donde no exista defensor público nombrado por la Corte, la defensa de los procesados a que se refiere el artículo 133, estará a cargo de defensores de oficio, de nombramiento del funcionario que conozca el asunto. Los defensores de oficio sustituirán a los defensores públicos en el caso previsto en el párrafo final del artículo anterior. Todo abogado, bachiller en leyes y procurador judicial con oficina abierta, está en la obligación de aceptar hasta dos defensas de oficio simultáneamente. Los estudiantes de la Facultad de Derecho que estén cursando o hayan cursado el quinto año de sus estudios, podrán ser nombrados defensores de oficio si así lo solicitaren a los tribunales, para lo cual deberán comprobar su calidad con certificación expedida por el Secretario de la Facultad. Los prácticos en derecho podrán ser nombrados defensores de oficio a falta de abogados, bachilleres en leyes, procuradores judiciales o estudiantes de derecho. El cargo de defensor de oficio es gratuito, y la persona en que recaiga el nombramiento sólo podrá excusarse de servirlo por motivo justo, a juicio del tribunal respectivo."
