@@ -1,0 +1,1 @@
+Art 16.- El Presidente y Fiscal continuará gozando el sueldo que hasta aquí, y los Magistrados disfrutarán el de sesenta pesos al mes, y además percibirán los derechos de actuación en lo civil, y en lo criminal solo en aquellas causas en que asi lo determine la Corte, más no tendrán la cartulación que les quedará a los Alcaldes (1)

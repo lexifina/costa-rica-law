@@ -1,0 +1,1 @@
+Art 9°.- Si durante los recesos de la Corte ocurriese algún negocio urgente de los de su resorte, como juicios sumarísimo, recursos de agravio o de competencia, el Presidente y Fiscal llamarán al Juez de 1° Instancia más inmediato que no esté impedido y los tres terminaran el negocio definitivamente cuando no deba tener más progreso.

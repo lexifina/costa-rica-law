@@ -1,0 +1,1 @@
+Art 2.- El Presidente y Fiscal serán precisamente Letrados, y los cinco Magistrados podrán ser legos, prefiriéndose siempre en su nombramiento a los Letrados, en su defecto a los Bachilleres en Derecho, y por falta de unos y otros a las personas que tengan más conocimiento o práctica en materias judiciales, y en todos, una acreditada probidad.
