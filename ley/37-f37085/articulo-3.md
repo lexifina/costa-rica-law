@@ -1,0 +1,1 @@
+Artículo 3°.- Los telegrafistas al servicio nacional, en circunstancias de guerra exterior o de conmoción interior, estarán sometidos al régimen militar y su servicio temporalmente lo regulará la Comandancia en Jefe del Ejército.
