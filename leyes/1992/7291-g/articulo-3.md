@@ -1,0 +1,84 @@
+ARTÖCULO 3
+Constituci¢n del tribunal arbitral
+Para los efectos del procedimiento previsto en este Anexo,
+el
+tribunal arbitral se constituir , a menos que las partes acuerden
+otra cosa, de la forma siguiente:
+a) A reserva de lo dispuesto en el apartado g), el tribunal
+arbitral estar integrado por cinco miembros;
+b) La parte que incoe el procedimiento nombrar un miembro,
+de
+preferencia elegido de la lista mencionada en el art¡culo 2 de
+este
+Anexo, el cual podr ser nacional suyo. El nombramiento se
+incluir
+en la notificaci¢n prevista en el art¡culo 1 de este Anexo;
+c) La otra parte en la controversia nombrar , dentro de los
+30
+d¡as siguientes a la recepci¢n de la notificaci¢n mencionada en
+el
+art¡culo 1 de este Anexo, un miembro, de preferencia elegido de
+la
+lista, que podr ser nacional suyo. Si no se efectuare el
+nombramiento en ese plazo, la parte que haya incoado el
+procedimiento podr pedir, dentro de las dos semanas siguientes
+al
+vencimiento del plazo, que el nombramiento se haga de conformidad
+con el apartado e);
+d) Los otros tres miembros ser n nombrados por acuerdo entre
+las partes. Ser n elegidos preferentemente de la lista y ser n
+nacionales de terceros Estados, a menos que las partes acuerden
+otra cosa. Las partes en la controversia nombrar n al presidente
+del tribunal arbitral de entre esos tres miembros. Si en un plazo
+de 60 d¡as contado desde la fecha de recepci¢n de la notificaci¢n
+mencionada en el art¡culo 1 de este Anexo las partes no pudieren
+llegar a un acuerdo sobre el nombramiento de uno o varios de los
+miembros del tribunal que deban ser nombrados de com£n acuerdo,
+o
+sobre el nombramiento del presidente, el nombramiento o los
+nombramientos pendientes se har n de conformidad con lo dispuesto
+en el apartado e), a solicitud de una de las partes en la
+controversia. Esa solicitud se presentar dentro de las dos
+semanas
+siguientes al vencimiento del mencionado plazo de 60 d¡as;
+e) Salvo que las partes acuerden encomendar a una persona
+o a
+un tercer Estado elegido por ellas cualquiera de los
+nombramientos
+previstos en los apartados c) y d), el Presidente del Tribunal
+Internacional del Derecho del Mar efectuar los nombramientos
+necesarios. Si el Presidente no pudiere actuar con arreglo a lo
+previsto en este apartado o fuere nacional de una de las partes
+en
+la controversia, el nombramiento ser efectuado por el miembro
+m s
+antiguo del Tribunal Internacional del Derecho del Mar que est‚
+disponible y que no sea nacional de ninguna de las partes. Los
+nombramientos previstos en este apartado se har n eligiendo de
+la
+lista mencionada en el art¡culo 2 de este Anexo en un plazo de
+30
+d¡as contado desde la fecha de recepci¢n de la solicitud y en
+consulta con las Partes. Los miembros as¡ nombrados ser n de
+nacionalidades diferentes y no estar n al servicio de ninguna de
+las partes en la controversia, no residir n habitualmente en el
+territorio de una de esas partes ni ser n nacionales de ninguna
+de
+ellas;
+f) Las vacantes ser n cubiertas en la forma establecida para
+los nombramientos iniciales;
+g) Las Partes que hagan causa com£n nombrar n conjuntamente
+un
+miembro del tribunal de com£n acuerdo. En caso de que haya varias
+partes que tengan intereses distintos, o de que haya desacuerdo
+acerca de si hacen o no causa com£n, cada una de ellas nombrar
+un
+miembro del tribunal. El n£mero de miembros del tribunal
+nombrados
+separadamente por las Partes ser siempre inferior en uno al
+n£mero
+de miembros del tribunal nombrados conjuntamente por las Partes;
+h) Los apartados a) a f) se aplicar n, en toda la medida de
+lo
+posible, a las controversias en que intervengan m s de dos
+Partes.
