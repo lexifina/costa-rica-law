@@ -1,0 +1,1 @@
+Artículo 104: La licencia para ausentarse del trabajo debe solicitarlo el trabajador a su jefe inmediato por escrito y en forma razonada. En caso de una licencia urgente que no exceda de tres días, el trabajador puede solicitarlo verbalmente y el jefe resolverlo en la misma forma, en el entendido de que el trabajador tramitará inmediatamente el documento oficial.

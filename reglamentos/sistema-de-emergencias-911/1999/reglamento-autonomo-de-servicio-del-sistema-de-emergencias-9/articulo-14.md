@@ -1,0 +1,1 @@
+Artículo 14: Se produce suspensión del contrato de trabajo cuando un trabajador, por cualquier razón o causa y en forma temporal, deja de prestar el servicio para el cual fue contratado. Los derechos del trabajador, adquiridos por antigüedad, porque lo estipula la Ley y/o por el mismo contrato de trabajo, no se pierden en razón de la suspensión de ese contrato.

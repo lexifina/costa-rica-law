@@ -1,0 +1,2 @@
+TITULO XVI REGISTRO DE ASISTENCIA.
+Artículo 72: El patrono dispondrá los mecanismos de registro que estime convenientes a fin de establecer el control de asistencia, al cual deberán someterse los trabajadores. El incumplimiento de los mecanismos de control de asistencia por parte del trabajador, podrá reputarse como ausencia durante el correspondiente período de trabajo. No obstante lo anterior, el Director General del Sistema podrá excluir de esa obligación a los funcionarios que expresamente así disponga.

@@ -1,0 +1,1 @@
+Artículo 26: Los funcionarios del Sistema que ocupen cargos de jefaturas, reconocidas en su estructura organizacional, y que no posean título universitario, podrán recibir un complemento salarial igual a un 40% de su salario base, por dedicarse tiempo completo a sus cargos, sin ejercer actividades relacionadas a sus funciones fuera de los horarios de trabajo establecidos.

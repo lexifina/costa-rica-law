@@ -1,0 +1,1 @@
+Artículo 71: El procedimiento disciplinario laboral se regirá por lo que establezcan la Ley General de la Administración Pública, el Código Procesal Civil y la Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales, en lo que corresponda. Se debe garantizar al trabajador el cumplimiento de los principios que rigen el Debido Proceso y el Derecho de Defensa.

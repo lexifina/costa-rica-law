@@ -1,0 +1,1 @@
+Artículo 77: Las asistencias al Seguro Social o al Instituto Nacional de Seguros, cuando sean en horas laborales, se considerarán como licencias con goce de salario y deberán ser reportadas al superior jerárquico inmediato acompañadas de los comprobantes que esas instituciones emitan.

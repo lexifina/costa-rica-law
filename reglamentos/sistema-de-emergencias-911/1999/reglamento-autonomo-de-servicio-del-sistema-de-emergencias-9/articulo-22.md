@@ -1,0 +1,2 @@
+TITULO V CATEGORIAS Y SALARIOS.
+Artículo 22: Las categorías de trabajadores, los salarios base correspondientes y sus respectivas anualidades en ningún caso podrán ser inferiores a los mínimos establecidos por el Estado. Dichos salarios y sus anualidades son los mismos que aparecen en el anexo de este Reglamento. La anualidades se regularán por lo dispuesto en el Ley Nº 2166 del 9 de octubre de 1957 y sus reformas.

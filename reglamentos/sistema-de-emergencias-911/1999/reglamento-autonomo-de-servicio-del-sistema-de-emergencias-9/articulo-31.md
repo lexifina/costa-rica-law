@@ -1,0 +1,1 @@
+Artículo 31: Se pagará un reconocimiento adicional de un 10% de su salario base, al profesional o técnico que le corresponda en forma regular realizar trabajos en lugares distintos a de la circunscripción territorial del asiento de su centro de trabajo.

@@ -1,0 +1,2 @@
+TITULO XV: PROCEDIMIENTO DISCIPLINARIO.
+Artículo 70: La Jefatura respectiva solicitará, por escrito, a la Dirección General del Sistema el despido sin responsabilidad patronal del trabajador que haya cometido una falta que lo amerite. La Dirección General, después de conocida la solicitud, nombrará un Organo Director, que se encargará de instruir cada caso en concreto y emitirá una resolución donde se recomiende la sanción a imponer, la cual no es vinculante para el Director General, quien en definitiva resolverá.

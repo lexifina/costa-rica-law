@@ -1,0 +1,1 @@
+Artículo 27: Los funcionarios del Sistema, profesionales en Derecho, debidamente autorizados para ejercer el Notariado, podrán percibir un porcentaje adicional equivalente al 60% de salario base del Profesional en Derecho, por sus servicios prestados cuando dan fe de los contratos y otro tipo de actos relacionados con las responsabilidades del Sistema.

@@ -1,0 +1,2 @@
+Artículo 83.—Cuando se produjere una llegada tardía superior a quince minutos, contados a partir de la hora de entrada, podrá acarrear la pérdida salarial de la fracción o de la media jornada correspondiente, considerándose la no prestación de servicios por este motivo como ausencia injustificada. En casos muy calificados, a juicio del jefe inmediato, podrá autorizarse el trabajo de la media jornada o de la fracción correspondiente.
+(Así reformado por acuerdo tomado en fecha 29 de febrero del 2000)

@@ -1,0 +1,1 @@
+Artículo 89: Toda solicitud de cambio de turno se considera un privilegio y se ha de aprobar con base en las necesidades de la Institución. El patrono se reserva el derecho de rechazar tales solicitudes en forma razonada. Los cambios de horario del mes siguiente se deben presentar a la jefatura inmediata antes del día 15 de cada mes.

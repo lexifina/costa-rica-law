@@ -1,0 +1,1 @@
+Artículo 12: Además de los contratos por tiempo indefinido, en el Sistema se suscribirán contratos a plazo fijo, por obra determinada, de aprendizaje, de temporada, ocasionales y eventuales, los cuales se regirán por los principios legales y doctrinarios que los sustentan.

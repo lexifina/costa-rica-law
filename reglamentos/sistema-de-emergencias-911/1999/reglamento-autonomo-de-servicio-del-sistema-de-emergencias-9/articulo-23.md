@@ -1,0 +1,1 @@
+Artículo 23: El Sistema paga salarios quincenalmente. Podrá hacerlo en su local, sito en la Casa Administrativa los días 15 y 30 de cada mes, o el día hábil inmediato anterior si aquél coincide con un día feriado o libre. Igualmente el pago podrá ser depositado en la cuenta corriente o de ahorros que el trabajador notifique por escrito.

@@ -1,0 +1,1 @@
+Artículo 34: A los funcionarios que administren fondos de trabajo superiores a un millón de colones, se les hará un reconocimiento económico semestral, igual al 20% del salario base mensual del puesto que desempeñen.

@@ -1,0 +1,1 @@
+Artículo 32: Los funcionarios del Sistema que realizan actividades propias de su cargo y además se les adiciona la responsabilidad de conducir un vehículo, recibirán por ello un sobresueldo equivalente al 15% de su salario base.

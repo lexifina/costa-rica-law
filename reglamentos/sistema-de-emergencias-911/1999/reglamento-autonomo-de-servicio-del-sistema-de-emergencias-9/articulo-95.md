@@ -1,0 +1,1 @@
+Artículo 95: Según el artículo 195 del Código de Trabajo: "Constituyen riesgos del trabajo los accidentes y enfermedades que ocurran a los trabajadores, con ocasión o por consecuencia del trabajo que desempeñen en forma subordinada, y remunerada, así como la agravación o reagravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes y enfermedades".

@@ -1,0 +1,1 @@
+Artículo 8: Previo acuerdo del Director General del Sistema y el jerarca de la institución correspondiente, se puede realizar el traspaso de un funcionario de una institución a otra y viceversa. El Sistema asumirá el pasivo laboral del trabajador que ingrese mediante el traspaso señalado anteriormente, tratando en lo posible de mantener todos sus derechos adquiridos.

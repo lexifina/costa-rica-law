@@ -1,0 +1,1 @@
+Artículo 28: Los funcionarios de las áreas técnica y profesional del Sistema, que cumplen con funciones directamente relacionadas con el servicio público que presta la institución y cuya responsabilidad les exija estar alerta y acudir a su trabajo en cualquier caso, las veinticuatro horas del día, podrán recibir un pago adicional de un 15% sobre su salario base.
