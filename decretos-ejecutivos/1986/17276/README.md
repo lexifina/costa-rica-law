@@ -14,3 +14,4 @@ Integración del Consejo Nacional Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-12 | la propia norma |
+| 2 | 1987-03-26 | Decreto Ejecutivo 17530 (1987-03-26) |
