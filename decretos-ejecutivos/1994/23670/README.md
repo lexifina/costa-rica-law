@@ -13,3 +13,4 @@ Reglamento Ley Desarrollo Social y Asignaciones Familiares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-04 | la propia norma |
+| 2 | 1995-07-06 | Decreto Ejecutivo 24458 (1995-07-06) |
