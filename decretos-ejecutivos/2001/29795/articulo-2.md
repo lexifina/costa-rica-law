@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección General de Servicio Civil y la Universidad de Costa Rica, coordinarán con las instituciones y Empresas Estatales los asuntos correspondientes a su organización y planeamiento; quienes deberán brindar todas las facilidades y cooperación necesaria en procura del desenvolvimiento exitoso del evento.
