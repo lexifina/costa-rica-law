@@ -1,1 +1,0 @@
-Artículo 4°-Si trascurriere un año desde la fecha en que el propietario de un fundo inicio la destrucción de los hormigueros sin que esta se haya llevado a cabo de una manera completa, la autoridad de policía procederá a efectuarla imponiendo además al propietario renuente la respectiva multa.
