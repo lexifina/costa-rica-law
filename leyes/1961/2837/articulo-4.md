@@ -1,1 +1,0 @@
-Artículo 4º.- Para los efectos del artículo anterior, la Universidad de Costa Rica hará anualmente la liquidación correspondiente del impuesto a que esta ley se refiere, con intervención de la Contraloría General de la República, para girar el monto correspondiente a la Editorial Costa Rica y dividir el saldo en la forma mencionada.
