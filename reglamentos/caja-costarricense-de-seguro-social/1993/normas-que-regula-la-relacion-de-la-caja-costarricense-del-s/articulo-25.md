@@ -1,0 +1,6 @@
+ARTICULO 25: Estabilidad Laboral.
+La Caja garantizará a todos sus empleados la estabilidad en su trabajo.
+Solo podrá ser despedido un trabajador cuando medie justa causa con base en las disposiciones del artículo 81 del Código de Trabajo y siempre que se demuestre que el trabajador cometió la falta que se le atribuye.
+Cuando los Tribunales de Trabajo declaren que el trabajador no incurrió en la falta que se le reprocha, o que la falta no tenía la trascendencia para justificar el despido, la Caja estará obligada a reinstalarlo inmediatamente, en el mismo puesto o en otro de igual categoría y salario dentro de la misma jurisdicción geográfica. En tal caso la Caja pagará los salarios correspondientes, desde la fecha que fue separado injustamente, hasta la fecha en que efectivamente sea reinstalado, junto con cualquier otra resultante.
+El trabajador podrá optar por la reinstalación con las resultantes antes indicadas, o por la percepción de las indemnizaciones consistentes en el importe del preaviso, vacaciones que le hubieren correspondido y auxilio de cesantía de conformidad con
+su antigüedad laboral hasta por un máximo de doce salarios, los cuales se calcularán con base en el salario promedio de los últimos seis (6) meses que le hubiere correspondido anteriores al momento de quedar firme la sentencia.

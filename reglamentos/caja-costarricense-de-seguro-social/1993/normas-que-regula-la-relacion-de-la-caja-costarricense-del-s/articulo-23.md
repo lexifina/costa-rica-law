@@ -1,0 +1,3 @@
+ARTICULO 23: Remuneración por recargo.
+El recargo de funciones se reconocerá al trabajador que por ausencia del titular asuma parte de las labores de un puesto superior al suyo, siempre que conozca las funciones del empleado ausente, sin desmedro de las propias y durante períodos cortos.
+El recargo temporal de funciones se pagara al trabajador que por lo menos durante tres días consecutivos o cuatro (4) alternos dentro del mismo mes, se haga cargo de los deberes y responsabilidades de un puesto mejor remunerado que el suyo, siempre y cuando el recargo se haga bajo idoneidad comprobada y cumpla con los requisitos legales para el puesto. Se cancelara la diferencia salarial, que resulte entre ambos salarios base.

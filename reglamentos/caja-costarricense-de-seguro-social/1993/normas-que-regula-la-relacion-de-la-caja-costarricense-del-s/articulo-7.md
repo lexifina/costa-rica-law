@@ -1,0 +1,2 @@
+ARTICULO 7: Tiempo de traslado.
+Cuando un trabajador sea desplazado en funciones propias de su cargo fuera de su sede habitual de trabajo, el tiempo empleado en su traslado de ida y regreso, será considerado como parte de su jornada efectiva de trabajo para cualquier efecto. Se le reconocerán los viáticos en los montos que fije el Reglamento de Pasajes y Viáticos de la Contraloría General de la República para los funcionarios públicos y sus reformas, cuando así corresponda.

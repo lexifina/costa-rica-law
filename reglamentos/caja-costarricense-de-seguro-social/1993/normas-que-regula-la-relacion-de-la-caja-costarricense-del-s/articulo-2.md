@@ -1,0 +1,3 @@
+ARTÍCULO 2: Definiciones.
+Para los efectos de estas disposiciones, los términos Caja, Patrono, Institución y Empleador, son sinónimo e identifican siempre a la Caja Costarricense de Seguro Social. En el término "Representantes Patronales" están incluidos: el Presidente Ejecutivo, los Gerentes de División, los Directores Regionales, los Directores de Hospital, los Administradores, los Jefes de Departamento, los Jefes de Sección y cualesquiera otros que realicen funciones de Dirección, Administración y Jefatura.
+Sindicato: Toda organización de los trabajadores constituida al amparo del Código de Trabajo, que incluya como afiliados a trabajadores de la Caja, y cuya personería se encuentre vigente.

@@ -1,0 +1,4 @@
+ARTICULO 62: Licencia para visitas.
+La Caja dará a los dirigentes sindicales previa identificación, todas las facilidades para el mejor desempeño de sus labores, que incluye el libre acceso a las instalaciones previo permiso de la jefatura inmediata correspondiente, excepto en aquellas de acceso restringido debido a los servicios técnico - profesionales que se presten. En caso de negación del permiso, lo hará saber así por escrito indicando las razones. El sindicato podrá apelar la resolución ante la Dirección, Administración o Superior Jerárquico del Jefe Inmediato.
+El Director o Jefatura Superior de cada centro de trabajo establecerá con base técnica o científica debidamente razonada, las zonas o áreas de acceso restringido.
+En caso de que la parte obrera incurra en excesos, la Institución podrá pedir regulación de las visitas a la Junta Nacional de Relaciones Laborales.

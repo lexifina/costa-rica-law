@@ -1,0 +1,4 @@
+ARTICULO 28: De la oposición a la gestión disciplinaria,
+El trabajador tendrá un plazo de cinco (5) días hábiles a partir de la notificación para oponerse a la gestión disciplinaria, vencido el plazo quedara firme la sanción y se ejecutará.
+Si el trabajador se opusiere a la gestión disciplinaria, lo hará constar mediante escrito ante su jefe inmediato y razonara su defensa mediante escrito también, ante la Comisión de Relaciones Laborales del centro de trabajo.
+Si en el centro de trabajo no existe comisión de relaciones laborales, el trabajador siempre presentara su oposición ante su jefe inmediato y éste la enviara al órgano competente De prevalecer la sanción el trabajador podrá elevar su caso siguiendo la vía administrativa, en cuyo caso y luego de agotada podrá proceder conforme a sus intereses.

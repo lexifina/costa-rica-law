@@ -1,0 +1,2 @@
+ARTICULO 63: Uso de medios de comunicación.
+La Caja facilitará a los sindicatos el uso de los medios de comunicación telefónica, radial y de valijas de correspondencia interna, sin perjuicio del uso prioritario que ésta tiene de esos medios. También facilitará el uso de los equipos de sonido ambientales en el centro de trabajo donde se encuentren instalados, previa autorización de la Dirección o Administración del centro de trabajo a quien se le someterá el contenido del mensaje a transmitir.

@@ -1,0 +1,4 @@
+ARTICULO 54: Libertad sindical.
+La Caja conforme con sus reiteradas políticas, garantiza que no ejercerá represalias contra los trabajadores por el hecho de estar afiliados a los sindicatos, ni contra los dirigentes sindicales y representantes electos o candidatos a esas funciones, atrás tengan esa calidad y aun después de cesar en su ejercicio.
+La Institución mantendrá una política respetuosa de la libertad sindical y garantiza a todos los trabajadores la libre sindicalización, y no podrá realizar ningún de presiones o halagos con el fin de que los empleados se desafilien o para impedir Filiación al sindicato u otras organizaciones sociales, o bien para que usen la representación o asesoría de ellos.
+Igualmente, los sindicatos con autorización escrita o expresa del interesado -á acceso a los archivos y documentos de naturaleza laboral correspondiente a él.

@@ -1,0 +1,8 @@
+ARTICULO 5: Jornadas de trabajo
+Las jornadas de trabajo en la Caja son:
+a) Una jornada ordinaria de trabajo no mayor de ocho horas en el día, de siete horas cuando se trate de jornada mixta, de seis horas en la noche; para un máximo de cuarenta y ocho horas a la semana, con seis días de trabajo y el día de descanso semanal, para todo el personal hospitalario, personal que rota en otros centros de trabajo, o que tiene el III turno fijo, excepto el personal profesional de enfermería, que estarán a 44 horas semanales con una regulación específica.
+b) Una jornada ordinaria de trabajo no mayor de ocho horas en el día, siete en jornada mixta, de seis en la noche y de cuarenta y ocho horas por semana, para el personal chofer (operador de Equipo Móvil 1 y 2). Después de estos límites se pagaran horas extras de conformidad con lo establecido por el artículo 139 del Código de Trabajo.
+c) Una jornada de cuarenta y cuatro horas ordinarias semanales, para el personal de clínicas, consulta externa y sucursales.
+d) Una jornada de cuarenta y cuatro horas ordinarias semanales en todos los demás centros de trabajo de la Institución.
+Para la aplicación de esta cláusula se estará a lo dispuesto por la Junta Directiva en el artículo 14 de la sesión Na 6268, así como a la circular NQ 21.847 del 9 de diciembre-88, suscrita por las Gerencias de División.
+Para el personal profesional de enfermería, se estará a lo dispuesto por la Junta Directiva en el artículo 11, sesión Na 6.647 del 13 de agosto-92, así como a las circulares Nos. 22.827 y 25.570 del 14 de octubre y 17 de noviembre de 1992, respectivamente, suscritas por la Gerencia División Médica.

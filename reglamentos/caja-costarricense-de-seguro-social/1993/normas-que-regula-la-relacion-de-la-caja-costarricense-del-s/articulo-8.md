@@ -1,0 +1,2 @@
+ARTICULO 8: Días de descanso semanal.
+Los días feriados que se encuentran comprendidos entre lunes y sábados, la Caja no los podrá aplicar a los trabajadores hospitalarios en sustitución de los días libres que por semana les corresponda por cambio de turno, o por descanso semanal. Las anteriores disposiciones rigen para el personal que labora en servicios que deben ser prestados todos los días del mes, y que por esa razón laboran en turnos rotativos y el día libre semanal varía.

@@ -1,0 +1,3 @@
+ARTÍCULO 13: Rebajo de los salarios pagados de más.
+Los salarios pagados indebidamente, se deducirán durante la vigencia de la relación laboral, en un mínimo de seis meses siempre y cuando el pago lo haya recibido el trabajador de buena fe. En lo que no se oponga a esta disposición continúa vigente la circular NQ 11070 del 26 de mayo de 1981 referente a:
+"Disposiciones a seguir en casos de salarios pagados de más a trabajadores de la Caja Costarricense de Seguro Social", y debe tomarse como modificada únicamente en cuanto al plazo de recuperación del salario pagado en exceso cuando medie la buena fe.

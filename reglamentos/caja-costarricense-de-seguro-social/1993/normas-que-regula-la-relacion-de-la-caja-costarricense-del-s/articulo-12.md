@@ -1,0 +1,4 @@
+ARTÍCULO 12: Forma de pago del salario.
+El salario del trabajador de la Caja será cancelado de viernes de por medio, o en su defecto el día hábil inmediato anterior a éste, cuando sea feriado o de asueto, conforme al mismo criterio que expresó el Tribunal Superior de Trabajo en Resolución N° 897 de las 10,45 horas del 9 de setiembre de 1988. Se adjuntara a cada cheque informe detallado de los pagos y deducciones efectuadas.
+Las deducciones o retenciones de los salarios se originarán únicamente en obligaciones legales o en disposiciones reglamentarias de la Institución, no pudiéndose hacer deducciones de otro tipo, sea por solicitud del propio trabajador o de terceras personas, salvo orden judicial en contrario.
+Entre las obligaciones legales se comprenden los salarios indebidamente pagados de más, por error, los cuales se rebajaran de los pagos posteriores, conforme a las previsiones del artículo siguiente.

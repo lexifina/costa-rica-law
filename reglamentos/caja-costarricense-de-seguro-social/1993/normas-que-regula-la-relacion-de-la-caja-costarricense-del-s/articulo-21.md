@@ -1,0 +1,4 @@
+ARTICULO 21: Uniformes y útiles de trabajo.
+Los uniformes de uso obligatorio para el personal, estarán a cargo de la Caja y serán entregados a razón de tres por ano. Se programará la entrega de éstos para los meses de enero, mayo y setiembre, salvo situaciones de fuerza mayor o de caso fortuito. La Institución suplirá un cuarto uniforme en los casos extraordinarios que a juicio de la Administración así lo amerite.
+Asimismo se podrá entregar al trabajador en efectivo, el costo del uniforme.
+Todo de acuerdo a las posibilidades de la C.C.S.S. en razón del costo de oportunidad y la reglamentación existente. De así preferirlo el trabajador, la Caja podrá entregarle la tela necesaria para la confección de sus uniformes, por su cuenta.

@@ -1,0 +1,2 @@
+ARTICULO 4: Respeto mutuo entre las partes.
+Los superiores jerárquicos y sus subalternos deben guardarse mutuo respeto y consideración en sus relaciones. Los trabajadores deben acatar las órdenes e instrucciones que les impartan sus superiores, que tengan por objeto la realización de actos necesarios para el buen desenvolvimiento de la Caja en función del interés público, y que no atente contra su integridad física o moral. Las órdenes deben impartirse de forma clara, respetuosa y, dependiendo de su importancia, en forma escrita.

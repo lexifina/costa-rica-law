@@ -1,0 +1,2 @@
+ARTICULO 55: Derecho a celebrar reuniones.
+La Caja garantiza el derecho a cada sindicato, para celebrar reuniones en los os de trabajo, así como el de los trabajadores a asistir. El uso de las instalaciones se otorgará previa solicitud. El permiso se otorgara de acuerdo con las posibilidades pació físico, horario de trabajo y sitio de la reunión. En todo caso el permiso lo ú jefe de la unidad correspondiente.
