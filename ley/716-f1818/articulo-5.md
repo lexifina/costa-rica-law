@@ -1,4 +1,4 @@
-Artículo 5º.- Tendrá la Junta capacidad para celebrar contratos de
+ARTICULO 5º.- Tendrá la Junta capacidad para celebrar contratos de
 todo orden lícito; para comprar, vender y arrendar bienes muebles e
 inmuebles; para financiar toda clase de operaciones, y para toda otra
 forma de gestión comercial y legal que sea necesaria al desempeño de su
