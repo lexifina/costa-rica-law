@@ -1,0 +1,1 @@
+Artículo 2°- Vencido el plazo de dos meses indicado en el artículo anterior, deberá pagar la totalidad de los derechos que le correspondan de conformidad con el período que haya estado en las bodegas.
