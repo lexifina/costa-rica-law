@@ -14,3 +14,4 @@ Reglamento para el Trámite de Visado de Planos para la Construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-16 | la propia norma |
+| 2 | 2005-03-02 | Decreto Ejecutivo 32303 (2005-03-02) |

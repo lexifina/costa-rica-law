@@ -1,2 +1,2 @@
-Artículo 7°—Planos básicos. Se entiende por plano básico aquel que incluye, como mínimo, las plantas de conjunto, plantas de distribución, fachadas, secciones, elevaciones y plantas de techo. Adicional mente deberá contener el criterio de la solución de los sistemas de evacuación y suministro de aguas (sistemas de tratamiento de aguas servidas. agua potable y agua pluvial), tratamiento de desechos sólidos y sistema eléctrico.
-En el caso de urbanizaciones, los planos básicos adicionalmente deben incluir la distribución de los lotes, geometría de las calles, indicación de las áreas comunales y curvas de nivel.
+Artículo 7°—Planos básicos.
+(Derogado mediante artículo 82 del Decreto Ejecutivo N° 32303 del 2 de marzo del 2005)
