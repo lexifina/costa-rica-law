@@ -1,0 +1,1 @@
+Artículo 20.—En caso de dañarse un buzón, de forma tal que no garantice la seguridad, deberá ser repuesto en un plazo máximo de veinticuatro horas por el dueño del establecimiento, cuando se trate de una actividad o espectáculo público no consetudinario, la reposición o cambio de situación no deberá extenderse en el plazo mayor a una hora.

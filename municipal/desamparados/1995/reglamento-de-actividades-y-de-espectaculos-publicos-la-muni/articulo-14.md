@@ -1,0 +1,1 @@
+Artículo 14.—En caso de que el Concejo Municipal aprobare la conmutación del presente impuesto los interesados deberán presentarse a la oficina de la Tesorería Municipal y realizar la cancelación respectiva con anterioridad a la fecha de realización de la actividad o espectáculo público, por lo que el citado departamento emitirá el respectivo recibo.

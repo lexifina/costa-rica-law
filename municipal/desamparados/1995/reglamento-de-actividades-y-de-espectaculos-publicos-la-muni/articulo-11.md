@@ -1,0 +1,1 @@
+Artículo 11.—El valor de la conmutación se revisara anualmente, tomando como referencia los índices de inflación, para poner las sumas fijas a tono con los cambios en los ingresos probables de las actividades.

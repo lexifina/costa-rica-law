@@ -1,0 +1,3 @@
+Artículo 5°—Para los efectos del artículo anterior podrán seguirse las siguientes alternativas:
+a) La Municipalidad pondrá a la venta y a precio de costo las emisiones de los boletos timbres, debidamente numerados por orden ascendente del cero al infinito por serie y valoración, los cuales deberán ser adquiridos con anticipación a la actividad o espectáculo público en el Departamento de Tesorería, además del pago del 5 % (cinco por ciento), por concepto del impuesto de espectáculo público.
+b) El gestor responsable físico o jurídico de la actividad confeccionará los boletos timbre y procederá a sellarlos, para su registro respectivo en el Departamento de Tesorería.

@@ -1,0 +1,1 @@
+Artículo 35.—La Municipalidad de Desamparados se reserva el derecho de establecer en casos extraordinarios y por las características mismas de la actividad o espectáculo público requisitos adicionales para su realización, en aras de la seguridad de los participantes.
