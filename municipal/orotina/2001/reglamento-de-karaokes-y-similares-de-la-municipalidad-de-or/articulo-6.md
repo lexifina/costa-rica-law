@@ -1,0 +1,1 @@
+Artículo VI. —En ningún caso la Administración autorizará el desarrollo de actividades con Karaoke más allá de las 12.00 medianoche, con esta hora como límite deberán cesar completamente todas las actividades de este tipo.

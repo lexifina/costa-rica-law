@@ -1,0 +1,1 @@
+Artículo X. —-Por la celebración de actividades con karaoke se deberá pagar el impuesto sobre espectáculos públicos cuando aquellas se enmarquen en la definición que del hecho generador de la obligación hace el artículo I del Reglamento para al Aplicación del Impuesto sobre Espectáculos Públicos N° 27762-H-C.
