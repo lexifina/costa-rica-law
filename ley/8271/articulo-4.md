@@ -1,0 +1,2 @@
+Artículo 4º—Autorízase al INCOFER o al ente, órgano o dependencia de la Administración Pública que por cualquier motivo llegue a ser titular de su patrimonio, para que, una vez rehabilitada y puesta en operación la planta por parte de la ESPHSA, pueda negociar con ella durante la vigencia del convenio referido en el artículo 1 de esta Ley, el traspaso a título oneroso, bajo las condiciones que ambas determinen y de acuerdo con el monto de un avalúo técnicamente elaborado para tales efectos.
+Rige a partir de su publicación.
