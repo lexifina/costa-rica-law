@@ -12,11 +12,10 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°.- Se establecen las siguientes tarifas de peaje en las autopistas y carreteras que se citan a continuación:
-Carretera | Vehículo liviano | Autobús | Camión de 2 ejes | Camión de 3 ejes | Camión de 5 ejes
-| ₵ | ₵ | ₵ | ₵ | ₵
-General Cañas | 15,00 | 15,00 | 30,00 | 30,00 | 60.00
-Bernardo Soto | 40,00 | 40,00 | 80,00 | 80,00 | 200,00
-Próspero Fernández | 15,00 | 15,00 | 30,00 | 30,00 | 60,00
-Florencio del Castillo | 15,00 | 15,00 | 30,00 | 30,00 | 60,00
-Braulio Carrillo | 65.00 | 75,00 | 200,00 | 200,00 | 500,00
-(Así reformado por el artículo 2 del decreto ejecutivo N° 20385 del 18 de abril de 1991)
+Carretera | Autobús | Liviano | Camión 2 ejes | Camión 3 ejes | Camión 5 ejes
+General Cañas | 20 | 20 | 40 | 40 | 70
+Bernardo Soto | 50 | 50 | 100 | 100 | 250
+Próspero Fernández | 20 | 20 | 40 | 40 | 70
+Florencio del Castillo | 20 | 20 | 40 | 40 | 70
+Braulio Carrillo | 80 | 70 | 200 | 200 | 500
+(Así reformado por el artículo 2 del decreto ejecutivo N° 21382 del 9 de junio del2025)
