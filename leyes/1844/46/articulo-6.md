@@ -1,0 +1,1 @@
+Art 6°.-El porte de las encomiendas se cobrar a razón de tres reales libra por cada cien leguas que hubiesen atravesado; y aunque el punto de su procedencia no está‚ a treinta leguas, siempre se cobrará para la francatura.

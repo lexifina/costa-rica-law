@@ -1,0 +1,1 @@
+Art. 13.-Quedan derogados los artículos 24 y 25 de la 5° sección 2a del susodicho Reglamento de Hacienda, emitido el 10 de Diciembre de 1839, y reformados los demás artículos de la misma sección y párrafo que están en oposición con lo dispuesto en el presente decreto."

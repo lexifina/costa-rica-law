@@ -1,0 +1,1 @@
+Art. 4°.-Los Correos extraordinarios que se despachen por cuenta del Estado, o a solicitud de particulares, se pagar n como ordinarios: en el segundo caso los correos se costear n por los interesados, y la Receptoría solo cobrar según tarifa, los portes de la correspondencia que aquellos conduzcan.
