@@ -1,4 +1,3 @@
-TRANSITORIO I.- Durante los primeros cinco años a partir de la
-vigencia de esta ley, se dispondrá de un tres por ciento (3%) de las
-ganancias de las instituciones autónomas y empresas del Estado. El monto
-será ingresado al Fondo Nacional de Emergencias.
+Transitorio I.—Durante los primeros cinco años a partir de la entrada en vigencia de esta Ley, se dispondrá de un tres por ciento (3%) de los superávit presupuestarios y las ganancias de las instituciones del Poder Ejecutivo, las instituciones autónomas y las empresas del Estado. Del monto que se recaude por este concepto, al Fondo Nacional de Emergencias se le entregará un dos coma siete por ciento (2,7%) y al Observatorio Vulcanológico y Sismológico de Costa Rica-Universidad Nacional, un cero coma tres por ciento (0,3%).
+(Así reformado por Ley N° 8276 de 2 de mayo del 2002)
+(NOTA DE SINALEVI: El artículo único de la Ley N° 8276 del 2 de mayo de 2002, que reformó éste transitorio, fue Derogado por el artículo 56 de la Ley N° 8488 del 22 de noviembre del 2005)
