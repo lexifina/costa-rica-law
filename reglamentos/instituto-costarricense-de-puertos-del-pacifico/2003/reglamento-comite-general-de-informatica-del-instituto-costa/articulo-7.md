@@ -1,0 +1,1 @@
+Artículo 7º—Del quórum y los acuerdos. El Comité Gerencial de Informática podrá sesionar válidamente con la presencia de la mitad más uno de sus miembros y los acuerdos serán aprobados por simple mayoría de los presentes.
