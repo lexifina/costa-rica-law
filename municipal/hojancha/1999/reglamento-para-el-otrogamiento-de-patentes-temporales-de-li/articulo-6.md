@@ -1,0 +1,1 @@
+Artículo 6°-Todas las solicitudes de Patentes Temporales de Licores, deberán ser conocidas o aprobadas por el Concejo Municipal, quien deberá enviar copia del acuerdo a las autoridades de policía correspondiente.

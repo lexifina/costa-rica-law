@@ -1,0 +1,1 @@
+Artículo 5°-Previo a iniciar las actividades, los solicitantes deberán obligatoriamente contar con el Permiso de Funcionamiento Sanitario, emitido por el centro de salud local, en caso contrario no podrá funcionar dicha actividad.
