@@ -1,4 +1,3 @@
-ARTICULO 22.- Deróganse el artículo 22 de la ley No. 7131 del 16 de
-agosto de 1989 (Presupuesto Extraordinario para 1989), y el artículo 7 de
-la Ley de Nacionalización de Aguas, Fuerzas Hidráulicas y Eléctricas, No.
-258 del 18 de agosto de 1941.
+ARTICULO 22.- Vigencia de los contratos.
+Los contratos de compraventa de electricidad no podrán tener una vigencia mayor de veinte años y los activos de la planta eléctrica en operación deberán ser traspasados, libres de costo y gravámenes, al ICE al finalizar el plazo del contrato.
+(Así adicionado por el artículo 3º de la ley No.7508 del 9 de mayo de 1995)

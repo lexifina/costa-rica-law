@@ -1,8 +1,3 @@
-ARTICULO 3.- Se declara de interés público la compra de electricidad
-por parte del Instituto Costarricense de Electricidad, a las cooperativas
-de electrificación rural y a aquellas empresas privadas en las cuales, al
-menos, el sesenta y cinco por ciento (65%) del capital social pertenezca a
-costarricenses, que establezcan centrales eléctricas de limitada capacidad
-para la explotación del potencial hidráulico en pequeña escala, y de
-fuentes no convencionales de energía, siempre y cuando éstas no hayan sido
-previamente parte del sistema eléctrico nacional.
+ARTICULO 3.- Interés público.
+Se declara de interés público la compra de electricidad, por parte del ICE, a las cooperativas y a las empresas privadas en las cuales, por lo menos el treinta y cinco por ciento (35%) del capital social pertenezca a costarricenses, que establezcan centrales eléctricas de capacidad limitada para explotar el potencial hidráulico en pequeña escala y de fuentes de energía que no sean convencionales.
+(Así reformado por el artículo 2º de la ley No.7508 del 9 de mayo de 1995 y modificado por Resolución de la Sala Constitucional Nº 6556-95 de las 17:24 horas del 28 de noviembre de 1995, que anuló su última frase.)

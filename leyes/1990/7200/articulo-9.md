@@ -1,6 +1,1 @@
-ARTICULO 9.- Lo que resuelvan el Instituto Costarricense de
-Electricidad y el Ministerio de Recursos Naturales, Energía y Minas, por
-medio de sus correspondientes departamentos, sobre la declaratoria de
-elegibilidad, el primero, y sobre el estudio ambiental, el segundo, será
-apelable ante el respectivo superior jerárquico, dentro de los quince días
-hábiles posteriores a su notificación.
+ARTICULO 9.- Lo que resuelvan el Instituto Costarricense de Electricidad y el Ministerio de Recursos Naturales, Energía y Minas, por medio de sus correspondientes departamentos, sobre la declaratoria de elegibilidad, el primero, y sobre el estudio ambiental, el segundo, será apelable ante el respectivo superior jerárquico, dentro de los quince días hábiles posteriores a su notificación.
