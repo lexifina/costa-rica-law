@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la Municipalidad o el MOPT o cualquier otra institución estatal requiera hacer una mejora en la vía, el local podrá ser ubicado o eliminado sin ninguna responsabilidad para la Administración.

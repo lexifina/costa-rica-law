@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del funcionamiento
+Artículo 8º—Las ventas ambulantes y estacionarias funcionarán de acuerdo con requerimientos técnicos municipales y no podran estar contrarias con las disposiciones contenidas en los artículos 10, 28 y 32 de la Ley General de Caminos Públicos Nº 5060 del 22 de agosto de 1972; los artículos 5.6, 13.30, 31 y 32 de la Ley de Construcciones Nº 633 del 2 de noviembre de 1949, artículos 220 inciso 33), 130 inciso n) y 205 de la Ley de Tránsito por Vías Públicas Terrestres Nº 7331 de 22 de abril de 1993, el artículo 154 de la Ley General de la Administración Pública, y demás legislación vigente, conexa y aplicable.
