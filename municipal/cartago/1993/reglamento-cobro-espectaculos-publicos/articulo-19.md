@@ -1,0 +1,1 @@
+Artículo 19.-Los funcionarios municipales responsables de la efectiva recaudación del impuesto coordinarán con la Gobernación de la provincia, Guardia de Asistencia Rural y Guardia Civil, a fin de obtener la colaboración de éstos en la aplicación de este Reglamento. .

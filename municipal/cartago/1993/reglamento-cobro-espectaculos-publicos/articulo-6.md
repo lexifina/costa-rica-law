@@ -1,0 +1,1 @@
+Artículo 6°-El organizador del evento a que se refiere este Reglamento, deberá dentro de los ocho días siguientes a la finalización del espectáculo, presentar la liquidación correspondiente ante el Departamento de Rentas y Cobranzas Municipal, y acompañar a esta declaración los talonarios previamente sellados e incluso aquellos que no fueron utilizados.

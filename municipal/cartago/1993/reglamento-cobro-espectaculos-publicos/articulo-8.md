@@ -1,0 +1,1 @@
+Artículo 8°-La persona física o jurídica que haya sido autorizada por el Concejo Municipal para realizar una actividad de las definidas en la Ley de Espectáculos Públicos, está obligada a presentar por lo menos 48 horas antes del inicio de la actividad los talonarios de entradas para que sean debidamente selladas por el Departamento de Rentas y Cobranzas.

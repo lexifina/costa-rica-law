@@ -1,0 +1,1 @@
+Artículo 11.-La Municipalidad instalará un buzón recolector de entradas, uno de cada establecimiento en que se realicen las actividades, debidamente cerrado, el cual sólo podrá ser abierto por el Departamento de Rentas y Cobranzas de la Municipalidad, o por la persona que se designe, mediante una nota.

@@ -1,0 +1,1 @@
+Artículo 7°-En la determinación del monto del impuesto de espectáculos públicos, el Departamento de Rentas y Cobranzas Municipales, podrá utilizar la analogía, ya sea utilizando negocios similares al objeto de tasación o los anteriores del negocio.

@@ -1,0 +1,2 @@
+Sanciones:
+Artículo 18.---Cualesquiera forma de evasión de pago del impuesto, será penado con una multa igual a diez veces el monto dejado de pagar (Ley N° 6844, del 11 de enero de 1983, artículo 3°). Para determinar este monto, se realizará por parte del Departamento de Contabilidad, Sección de Ingresos, una estimación del impuesto no pagado, la que servirá de base para el cálculo de la multa respectiva.

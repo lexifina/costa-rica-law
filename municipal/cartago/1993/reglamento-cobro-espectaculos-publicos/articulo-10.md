@@ -1,0 +1,1 @@
+Artículo 10.-La persona física o jurídica responsable del evento, que se le sorprenda vendiendo entradas sin el sello respectivo de la Municipalidad, se le considerará como evasor del respectivo impuesto, y se le aplicarán las sanciones a que se refiere la Ley N° 6844 del 11 de enero de 1983, y este Reglamento.

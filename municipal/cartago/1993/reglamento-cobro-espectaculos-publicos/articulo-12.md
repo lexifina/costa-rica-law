@@ -1,0 +1,1 @@
+Artículo 12.-Todo buzón recolectar de entradas en caso de ser dañado en forma tal que no garantice seguridad, deberá ser repuesto en un plazo de veinticuatro hora por el dueño del establecimiento. La responsabilidad del buen estado del buzón recolector de entradas corresponde al dueño del establecimiento.

@@ -1,0 +1,1 @@
+Artículo 17.-Los inspectores municipales de espectáculos públicos, contarán con una identificación extendida y firmada por el señor Ejecutivo Municipal, o Jefe del Departamento de Personal. la cual llevará impreso el sello de la Municipalidad.
