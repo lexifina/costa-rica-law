@@ -1,0 +1,1 @@
+Artículo 3-Se destina para el pago de las cantidades designadas la suma de cuatro millones doscientos ochenta y siete mil seiscientos ochenta y seis pesos ochenta y nueve centavos [$ 4287686-89], á que asciende el presupuesto de ingresos.
