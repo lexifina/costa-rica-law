@@ -1,0 +1,1 @@
+Artículo 4º.- De acuerdo con lo dispuesto en la Ley Orgánica del Banco Central de Costa Rica, Nº 1552 de 23 de abril de 1953, su Junta Directiva determinará la política que deberán seguir los Gobernadores como representantes del país ante el Banco Interamericano de Desarrollo.
