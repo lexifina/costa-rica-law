@@ -1,0 +1,1 @@
+Artículo 2°—La cuota de importación indicada en el articulo anterior deberá negociarse en tractos de doscientas cincuenta toneladas métrica (250 TM), durante los meses de octubre, noviembre y diciembre de este año y enero del 2001, hasta que se agote la cuota establecida y el producto deberá ingresar al país a más tardar el 31 de enero del 2001.
