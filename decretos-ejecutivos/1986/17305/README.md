@@ -14,3 +14,4 @@ Reglamento al inciso 15) del artículo 36 de la ley N° 7040 de 25 de abril de 1
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-04 | la propia norma |
+| 2 | 1990-11-26 | Decreto Ejecutivo 20078 (1990-11-26) |

@@ -1,1 +1,3 @@
 Artículo 6°-La Dirección General podrá autorizar a terceros para conducir los vehículos exonerados por el presente régimen, cuando a su juicio el beneficiario se encuentre imposibilitado para conducirlo personalmente o que de hacerlo, pueda eventualmente generar peligro para la seguridad de terceros o de la suya propia.
+El vehículo podrá ser conducido por un tercero sin necesidad de autorización expresa de la Dirección, en el único caso de que el beneficiario viaje en el mencionado automotor.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 20078 del 26 de noviembre de 1990)
