@@ -1,0 +1,2 @@
+Artículo 10.—Contra la prevención que se realice, así como contra la decisión de incoar acciones judiciales, que adopte la Dirección Nacional de Inspección de Trabajo, sólo cabrá el Recurso de Revisión ante dicha instancia, conforme con lo establecido en el artículo 139 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social, dentro del plazo de tres días hábiles siguientes al de su notificación.
+Emitida en la Presidencia de la República.—San José, a las diez horas del diecisiete de octubre de dos mil dos.

@@ -1,0 +1,1 @@
+Artículo 2º—Corresponde a cada una de las instancias administrativas en las que labore el médico citado anteriormente, la verificación periódica del cumplimiento de la anterior obligación, so pena de la sanción disciplinaria que corresponda aplicar en caso de su inobservancia.

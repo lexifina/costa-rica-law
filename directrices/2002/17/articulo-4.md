@@ -1,0 +1,1 @@
+Artículo 4º—En virtud de que el certificado médico previsto es un requisito del Contrato de Embarco, según lo dispuesto en el artículo 120, en relación con el 23 del Código de Trabajo, todo patrono, sea persona física o jurídica, deberá exigirlo como requisito para formalizar el referido contrato y cualquier omisión lo hará incurrir en las sanciones legales pertinentes.

@@ -1,0 +1,1 @@
+Artículo 7º—La Dirección Nacional de Empleo dispondrá lo necesario, con el fin de que los modelos contractuales encomendados se encuentren disponibles en sus oficinas centrales, así como en la sede central de la Dirección Nacional de Inspección de Trabajo y en sus Oficinas Regionales.
