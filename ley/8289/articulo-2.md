@@ -1,0 +1,2 @@
+Artículo 2º—Adiciónase el artículo 24 bis a la Ley Orgánica del Ministerio de Salud, N° 5412, de 8 de noviembre de 1973. El texto dirá:
+"Artículo 24 bis.—El Instituto administrará sus fondos mediante las cuentas corrientes propias, estrictamente necesarias, en cualquiera de los bancos del Sistema Bancario Nacional; estarán sujetas a la fiscalización y los controles financieros de la auditoría interna correspondiente, así como a las demás disposiciones que rigen la materia."
