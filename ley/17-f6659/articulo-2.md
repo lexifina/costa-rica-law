@@ -1,0 +1,2 @@
+Art. 2°-El precio de los diez lotes se recaudará; y será administrado é invertido por la junta de construcción del mismo Templo Parroquial, organizada conforme á las leyes vigentes, bajo la vigilancia y superior dirección del Obispo diocesano.
+Al Poder Ejecutivo. -Dado en el Salón de Sesiones -Palacio Nacional MANUEL SANDOVAL, Secretario.-Palacio Presidencial en San José, á veintiséis de setiembre de mil ochocientos ochenta y dos.- Ejecútese. -P. FERNÁNDEZ. -El Secretario del Culto-F. CHAVES CASTRO.
