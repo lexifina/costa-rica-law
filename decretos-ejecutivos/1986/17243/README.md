@@ -15,3 +15,4 @@ Reglamento de inscripciones y propaganda medicamentos y cosméticos
 | --- | --- | --- |
 | 1 | 1986-10-30 | la propia norma |
 | 2 | 1987-08-05 | Decreto Ejecutivo 17697 (1987-08-05) |
+| 3 | 1988-03-22 | Decreto Ejecutivo 18077 (1988-03-22) |
