@@ -1,0 +1,1 @@
+Artículo 6°—Recursos Materiales, apoyado en la Sección de Transportes, realizará el estudio correspondiente y remitirá un informe a la Dirección Administrativa, quien aprobará o no el ingreso del funcionario a este sistema.

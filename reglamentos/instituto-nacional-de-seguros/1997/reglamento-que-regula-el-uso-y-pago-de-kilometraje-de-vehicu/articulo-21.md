@@ -1,0 +1,1 @@
+Artículo 21.—El pago correspondiente a la liquidación de la gira se hará por mes vencido, dentro de los primeros ocho días hábiles de cada mes conforme con los trámites internos establecidos por el I.N.S.

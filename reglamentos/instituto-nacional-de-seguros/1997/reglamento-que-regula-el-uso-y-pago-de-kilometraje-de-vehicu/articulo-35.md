@@ -1,0 +1,1 @@
+Artículo 35.—Toda modificación al presente reglamento es potestad exclusiva de la Junta Directiva y para su aplicación debe obtener la autorización de la Contraloría General de la República y publicarse en el Diario Oficial “La Gaceta”.

@@ -1,0 +1,1 @@
+Artículo 24.—A los trabajadores que se encuentren bajo este sistema, se les facilitará la movilización en vehículos del I.N.S, únicamente en casos especiales previa justificación escrita de la Jefatura respectiva.
