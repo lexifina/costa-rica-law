@@ -15,3 +15,4 @@ Reglamento sobre Importación Temporal
 | 1 | 1982-12-20 | la propia norma |
 | 2 | 1982-12-20 | SINALEVI (sin norma nombrada) |
 | 3 | 1996-06-14 | SINALEVI (sin norma nombrada) |
+| 4 | 1996-06-14 | Ley 8 |
