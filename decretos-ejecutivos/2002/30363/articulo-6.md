@@ -1,0 +1,1 @@
+Artículo 6º—Sustituciones. Las ausencias temporales serán suplidas por los miembros suplentes designados por el Juez Instructor conforme el turno que corresponda, debiendo cumplir los suplentes los mismos requisitos, derechos y obligaciones exigidos para los titulares.

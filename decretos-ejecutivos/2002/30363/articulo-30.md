@@ -1,0 +1,2 @@
+Artículo 30.—Audiencia Oral y Privada. Cuando sea procedente dentro de los primeros diez días de estudio, el Juez asignado podrá solicitar al Tribunal en pleno que se convoque a una audiencia oral y privada a las partes, en aquellos casos excepcionales que por su complejidad así se requiera para la mejor consecución de los fines del proceso.
+El Tribunal resolverá sobre la procedencia de dicha solicitud y señalará fecha y hora para la audiencia en caso de autorizarse.

@@ -1,0 +1,2 @@
+Artículo 3º—Naturaleza Jurídica. El Tribunal es un órgano de desconcentración máxima, adscrito al Ministerio de (*)Justicia y Paz, con personalidad jurídica instrumental para ejercer las funciones y competencias que le asigna la ley. Sus atribuciones serán exclusivas y tendrá independencia funcional y administrativa.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)

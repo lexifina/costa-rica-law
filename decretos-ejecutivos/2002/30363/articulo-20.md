@@ -1,0 +1,3 @@
+Artículo 20.—Revocatoria. Si alguna de las partes dentro de las veinticuatro horas siguientes a la respectiva notificación, pidiere revocatoria negando la causal, deberá indicar en ese acto las pruebas conducentes. Al efecto se procederá así:
+1- Si se tratare de uno o más miembros del Tribunal, los demás miembros podrán evacuar o comisionar al Juez Instructor para que reciba la prueba que admitieren y, una vez practicada ésta, resolverán en definitiva si procede o no la separación; y
+2- Si se tratare de todos los miembros del Tribunal, los suplentes admitirán las pruebas que a su juicio sean pertinentes y, una vez practicadas éstas directamente o por medio del Juez Instructor, resolverán en definitiva acerca de si procede o no la separación.

@@ -1,0 +1,1 @@
+Artículo 7º—Sesiones: Los miembros del Tribunal sesionarán al menos una vez por semana y tantas veces sea necesario, para garantizar la adecuada prestación del servicio público. El Presidente convocará a dichas sesiones.

@@ -1,0 +1,1 @@
+Artículo 17.—Nulidad de Votación. Es nula cualquier resolución que dictare el Tribunal, cuando concurra un integrante con causal de abstención o recusación, siempre que el motivo conste en el expediente respectivo o sea del conocimiento del integrante, previo al dictado de la respectiva resolución.

@@ -1,0 +1,1 @@
+Artículo 18.—Recursos. Las resoluciones que dicte el Tribunal, sobre la abstención o recusación interpuestas tendrán el recurso de reconsideración, el cual deberá interponerse dentro de los tres días hábiles siguientes a la notificación.

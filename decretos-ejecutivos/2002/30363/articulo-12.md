@@ -1,0 +1,1 @@
+Artículo 12.—Voto Contrario: Los miembros del Tribunal podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exento de las responsabilidades que pudieren derivarse de los acuerdos o votos tomados.
