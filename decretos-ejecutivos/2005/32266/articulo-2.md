@@ -1,0 +1,2 @@
+Artículo 2º—Refórmese el artículo 46 del Decreto Ejecutivo No. 29625-MOPT publicado en el Diario Oficial La Gaceta Nº 131 del 9 de julio del 2001 “Reglamento de Organización y Servicio de las Autoridades de Tránsito” para que se lea lo siguiente:
+“Artículo 46.—Incentivos Salariales. En concordancia con el artículo 86 de la Ley General de Policía, se establece la administración de los incentivos salariales para garantizar la Carrera Policial, los que se aplicarán de la forma en que se indicará a los siguientes artículos.”
