@@ -1,1 +1,1 @@
-Artículo 93.- El producto de la liquidación, constatado por inventario anual correspondiente, deducidos los gastos generales, las cargas sociales y las amortizaciones de todo género, constituyen el excedente o saldo del período respectivo.
+Artículo 93.—Al concluir el trámite de liquidación a que se refiere este capítulo, el Ministerio de Trabajo y Seguridad Social cancelará la inscripción correspondiente y procederá a publicar en el Diario Oficial, por tres veces consecutivas, la orden de cancelación.

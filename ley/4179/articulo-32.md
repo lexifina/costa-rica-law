@@ -1,2 +1,5 @@
-Artículo 32.- El Departamento de Cooperativas, en lo que se refiere a deberes y atribuciones señalados en esta ley, actuará con criterio eminentemente cooperativo, y en consecuencia no le serán aplicables las disposiciones de la ley Orgánica del Sistema Bancario Nacional, ni las reglamentaciones internas del Banco Nacional de Costa Rica sobre la actividad propiamente bancaria.
-Cuando se presente oposición entre las estipulaciones de la presente ley y las que regulen esta actividad, prevalecerán las primeras.
+Artículo 32.—Para que sea autorizado el inicio de sus actividades, las asociaciones cooperativas deberán presentar a la Oficina de Cooperativas del Ministerio de Trabajo y Seguridad Social los siguientes documentos, debidamente autenticados por un abogado:
+a) El estudio de posibilidades, viabilidad y utilidad de la cooperativa, realizado por el INFOCOOP o por alguna entidad capacitada para hacerlo;
+b) Copia del acta de la asamblea constitutiva de la asociación, con expresión del nombre, los dos apellidos, nacionalidad, domicilio, profesión u oficio de los miembros fundadores, el monto de los certificados de aportación suscritos y los que hubiera pagado cada uno, así como los nombres de los integrantes del Consejo de Administración del Gerente, del Comité de Vigilancia y los otros comités que se hubieren designado.
+c) Copia de los estatutos aprobados por la Asamblea Constitutiva; y
+d) Certificación del INFOCOOP sobre la existencia del 25% del patrimonio social suscrito por los asociados.

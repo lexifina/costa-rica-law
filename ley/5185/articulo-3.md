@@ -1,0 +1,3 @@
+Artículo 3°—Refórmanse los artículos 1° y 3° de la ley N° 2634 del 20 setiembre de 1960 (Cooperativa para la operación del Matadero Nacional de Montecillos), para que se lea así:
+“Artículo 1°—Inciso a): La Cooperativa será administrada por una Junta Directiva que se compondrá de siete Miembros, 1 de los cuales será designado por el Consejo Nacional de Producción, dos por el Instituto Nacional de Fomento Cooperativo y cuatro por los asociados de la Cooperativa".
+"Artículo 3°—Cuando los asociados de la Cooperativa y el Consejo así lo acuerden, el Consejo deberá ir cediendo a ellos sus acciones mediante el pago de las mismas por su valor nominar”.

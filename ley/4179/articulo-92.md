@@ -1,4 +1,5 @@
-CAPITULO VIII
-De los Saldos y Excedentes
-Artículo 92.- Para los efectos legales y de acuerdo con los principios establecidos en el artículo 3º, se estimará que las cooperativas no tienen utilidades.
-Los saldos a favor que arroje la liquidación del ejercicio económico correspondiente, son ahorros o excedentes que pertenecen a sus miembros, producidos por la gestión económica de la asociación, y por ellos no se pagará el Impuesto sobre la Renta.
+Artículo 92.—Los miembros de la Comisión Liquidadora, tendrán las siguientes facultades:
+a) Concluir las operaciones sociales que hubieren quedado pendientes al tiempo de la disolución, cuando ello fuere legalmente posible;
+b) Cobrar los créditos y satisfacer las obligaciones de la cooperativa;
+c) Vender los bienes de la asociación por el precio autorizado, según las normas de liquidación; y
+d) Elaborar el estado final de liquidación e informarlo al Ministerio de Trabajo y Seguridad Social y al INFOCOOP.

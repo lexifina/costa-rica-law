@@ -1,1 +1,1 @@
-Artículo 9º.- Las cooperativas, sin lesionar el derecho de los asociados de retirarse y decidir el aporte que hubieren hecho, podrán reglamentar el ejercicio del derecho de retiro, con el fin de no poner en peligro su estabilidad y buena marcha.
+Artículo 9°—Las cooperativas podrán extender sus servicios a personas no asociadas si a juicio de la Asamblea la buena marcha de ella lo aconseja y con previa aprobación del INFOCOOP.

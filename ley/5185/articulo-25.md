@@ -1,0 +1,1 @@
+Artículo 25.—El nombramiento del Auditor debe recaer en persona que tenga el título de Contador Público Autorizado. La Junta Directiva podrá nombrar otra persona de preparación equivalente, cuando sacado a concurso por dos veces el cargo, ningún profesional con el título indicado haga solicitud para servirlo o no acepte las condiciones determinadas por el INFOCOOP.

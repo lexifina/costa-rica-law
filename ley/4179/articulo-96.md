@@ -1,1 +1,1 @@
-Artículo 96.- La Asamblea podrá acordar, por mayoría simple, la aprobación de convenios por medio de los que se extienda la seguridad social a los asociados, y caso de ser necesario, en igual forma acordar el aumento del porcentaje destinado al fondo de Bienestar Social.
+Artículo 96.—La constitución, administración y funcionamiento de las uniones, federaciones y la confederación de cooperativas, se regirán por la presente ley en cuanto fuere aplicable, y por las normas que establezcan sus propios estatutos.
