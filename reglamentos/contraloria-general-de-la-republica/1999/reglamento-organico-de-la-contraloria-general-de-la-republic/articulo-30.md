@@ -1,2 +1,3 @@
 Artículo 30.—La Dirección General de Asuntos Jurídicos solo estará obligado a evacuar consultas provenientes de las distintas entidades públicas y en materia propia de fiscalización superior. No estará obligado a contestar consultas verbales. Las escritas serán evacuadas mediante dictámenes firmados por el Director, el Director Adjunto, un Subdirector, o bien por los abogados de la Dirección debidamente autorizados.
 Las disposiciones de este articulo rigen igualmente para la Dirección General de Contratación Administrativa.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 20 de setiembre de 1999)

@@ -13,3 +13,4 @@ Artículo 29.—En su condición de asesor jurídico le corresponde a la Direcci
 12) Refrendar los contratos y acuerdos que conforme con la ley deben satisfacer ese requisito.
 13) Efectuar el estudio jurídico de las emisiones de bonos y otros títulos que constituyan obligación para el Estado, previo a su refrendo.
 14) Cumplir todas aquellas otras funciones, propias de la Dirección, que le deleguen los contralores.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 20 de setiembre de 1999)

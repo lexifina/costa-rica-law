@@ -12,3 +12,4 @@ Artículo 27.—A la Dirección General de Contratación Administrativa fundamen
 11) Tramitar y resolver las solicitudes de contratación directa que ' formulen a la Contraloría General los entes públicos.
 12) Asesorar a los superiores y a las demás Direcciones y oficinas en materia de contratación administrativa.
 13) Efectuar todas aquellas otras funciones, propias de la Dirección, que le deleguen los contralores, y las que le asigne a la Contraloría el ordenamiento jurídico en materia de contratación administrativa.
+(DEROGADO por el artículo 2º emitido por Resolución de la Contraloría General de la República del 20 de setiembre de 1999)
