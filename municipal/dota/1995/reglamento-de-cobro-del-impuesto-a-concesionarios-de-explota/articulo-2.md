@@ -1,0 +1,1 @@
+Artículo dos.—Es sujeto activo de este impuesto, la Municipalidad del cantón de Dota, la cual para los efectos de la relación jurídico tributaria, hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios en su condición de Administración Tributaria de este impuesto.

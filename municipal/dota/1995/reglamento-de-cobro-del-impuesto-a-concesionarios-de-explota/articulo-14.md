@@ -1,0 +1,2 @@
+Artículo catorce.—De conformidad con el artículo 47 del Código Municipal, por afectar a terceros, se somete a consulta pública este proyecto de reglamento, por el plazo de diez (10) hábiles, contados a partir del día siguiente de la presente publicación, transcurridos los cuales, sin que exista oposición, se publicará nuevamente y regirá a partir de su publicación.
+Aprobado por el Concejo Municipal de Dota, mediante artículo VI, de la sesión ordinaria No 24, celebrada el día 25 de octubre de 1994.
