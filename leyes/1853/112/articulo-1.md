@@ -1,0 +1,6 @@
+DECRETO CXII
+Dispone el modo como deben dar su testimonio el Presidente de la República y el Obispo Diocesano.
+“ Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto el Excelentísimo Congreso Constitucional ha decretado lo siguiente:
+El Excelentísimo Congreso Constitucional de la República de Costa Rica, habiendo considerado el artículo 217 de la 3° parte del Código general y el artículo 21 de la ley adicional número 24 de 1° de junio de 842 que modifica al primero y siendo necesario reformarlos, ha tenido a bien decretar y decreta:
+Artículo único: Toda persona debe dar su testimonio no por certificación o informe, sino por declaratoria bajo juramento ante el Juez de la causa, pena de nulidad, excepto el Presidente de la República a quien en caso necesario se pedirá certificado por la autoridad que corresponda por medio de nota que pasará al Ministerio de Relaciones.- De igual prerrogativa gozará en los mismos casos el Ilustrísimo Obispo Diocesano.- Al Poder Ejecutivo.- Dado en el Salón de sesiones en San José, a los quince días del mes de junio de mil ochocientos cincuenta y tres.
+Por tanto Ejecútese: Palacio Nacional, San José, junio diezseis de mil ochocientos cincuenta y tres.
