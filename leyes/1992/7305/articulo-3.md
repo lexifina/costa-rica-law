@@ -1,7 +1,4 @@
-ARTICULO 3.- Modifícase el artículo 84 de la Ley Nº 6734 del 29 de
-marzo de 1982, el que en el futuro se leerá así:
-"Artículo 84.- Esta Ley es de orden público y deroga la Ley Nº 4545
-del 20 de marzo de 1970 (Ley de Informaciones Posesorias Administrativas)
-y cualquier otra disposición legal que se le oponga, excepto la Ley Nº
-5064 del 22 de agosto de 1972 (Ley de Titulación Múltiple de Tierras), la
-que queda vigente."
+ARTICULO 3.- ANULADO
+(Anulado por Resolución de la Sala Constitucional Nº 786-94 de las
+15:18 horas del 8 de febrero de 1994, aclarada por Resolución Nº 123-I-95
+de las 14:40 horas del 22 de febrero de 1995)
