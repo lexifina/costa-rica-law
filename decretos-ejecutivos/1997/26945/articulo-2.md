@@ -1,0 +1,1 @@
+Artículo 2°—En adelante el área demarcada por linderos descritos en el artículo uno se adicionará al Parque Nacional Volcán Irazú y será administrada por el Ministerio del Ambiente y Energía, bajo la categoría de Parque Nacional, pasará a formar parte del Patrimonio Forestal del Estado de conformidad dada con la ley N° 7575 del 16 de abril de 1996.
