@@ -1,0 +1,1 @@
+Artículo 46.- Quien adquiera derechos en un edifico regulado por esta ley, quedará sujeto al Reglamento existente. El reglamento será aprobado inicialmente por una mayoría de votos que represente no menos de dos tercios del valor total del edificio. Pero una vez vigente, sólo podrá modificarse por acuerdo unánime de los propietarios.

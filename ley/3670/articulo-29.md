@@ -1,0 +1,1 @@
+Artículo 29.- Si un propietario infringiere las prohibiciones y limitaciones contenidas en esta ley, las acordadas en el reglamento de condominio o en las asambleas de propietarios, los restantes, conjunta o separadamente, podrán exigir judicialmente que el infractor cese en sus actos, sin perjuicio de las demás responsabilidades civiles y penales en que pudiere haber incurrido.

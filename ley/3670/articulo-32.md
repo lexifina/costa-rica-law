@@ -1,0 +1,1 @@
+Artículo 32.- El Administrador podrá expedir certificación de las sumas que los propietarios deban por concepto de su cuota en los gastos comunes. Estas certificaciones, refrendadas por un contador público autorizado y autenticadas por un abogado, tendrán carácter de título ejecutivo contra los propietarios morosos.

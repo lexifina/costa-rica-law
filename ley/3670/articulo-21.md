@@ -1,0 +1,3 @@
+Artículo 21.- Las cosas comunes pertenecen a todos los titulares del edificio, quienes tendrán un derecho en ellas proporcional al porcentaje que represente el valor fijado a su apartamento, piso o local, dentro del conjunto del edificio.
+No obstante, ningún propietario podrá ser limitado en el uso y goce racionales de las cosas comunes, ni podrá alegar ninguno que tiene un mayor derecho al disfrute de esas cosas por razón de que su porcentaje en ellas sea superior al de otros propietarios.
+El porcentaje de que habla este artículo se fijará en la escritura constitutiva de la propiedad y condominio, y no podrá ser variado sino mediante el acuerdo expreso de la totalidad de los propietarios en el edificio.

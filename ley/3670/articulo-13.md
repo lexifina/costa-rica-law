@@ -1,0 +1,1 @@
+Artículo 13.- Para la inscripción en el Registro de Propiedad Horizontal de la escritura de compra-venta de un piso, apartamento o local, separadamente de las demás partes del edificio, es indispensable que se haya inscrito previamente la escritura constitutiva.

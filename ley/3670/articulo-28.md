@@ -1,0 +1,2 @@
+Artículo 28.- Serán por cuenta de los propietarios las obras de conservación que requieran los techos-pisos medianeros, y las paredes u otras divisiones que tengan el mismo carácter.
+Los propietarios del último piso costearán las obras de conservación de los cielos rasos de su propiedad; y los propietarios del piso bajo o primero, las obras de conservación que necesiten los suelos o pavimentos de éste.
