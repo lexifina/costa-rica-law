@@ -1,0 +1,1 @@
+Art. 3. Cuidarán asi mismo de la ejecución de cuanto en la materia acuerden las Municipalidades de su respectivo departamento, y especialmente la del de su residencia acuerden las municipalidades de su respectivo departamento, y especialmente la del de su residencia.

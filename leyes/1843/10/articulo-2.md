@@ -1,0 +1,1 @@
+Art. 2. A cargo de estos Jueces es la exacta y activa ejecución de las leyes de policía en todo lo correspondiente á esta: educación, moralidad, seguridad, abasto, salubridad, comodidad, decencia y orden.
