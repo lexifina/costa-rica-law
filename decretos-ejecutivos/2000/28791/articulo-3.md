@@ -1,0 +1,1 @@
+Artículo 3º—En el caso de establecimientos privados de atención médica, no son vinculantes las disposiciones contenidas al efecto sobre la responsabilidad del Laboratorio Nacional de Citologías, ya que los mismos se encuentran sujetos a la contratación de laboratorios privados
