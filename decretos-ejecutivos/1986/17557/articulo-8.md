@@ -65,7 +65,7 @@ f) Si es absorbido por la planta y transportado a las partes comestibles de ést
 g) Medidas y precauciones personales necesarias para la limpieza y mantenimiento de los equipos de aplicación.
 e) Uso solicitado:
 Indicar:
-l.-Nombre común y científico de Ias plagas y enfermedades para las cuales se recomienda el producto. .
+1.-Nombre común y científico de Ias plagas y enfermedades para las cuales se recomienda el producto. .
 2.-Nombre común y científico de las plantas o animales para los cuales el producto ofrece protección, indicando:
 a) Las partes y épocas en que se debe aplicar.
 b) Intervalo de aplicación.
@@ -73,7 +73,8 @@ c) Intervalo entre la última aplicación y la cosecha, el sacrificio del animal
 3.-Dosis recomendada para cada uso solicitado, en unidades del sistema métrico decimal expresadas en cantidades de ingrediente activo y/o de producto formulado por cada unidad de superficie o volumen, o por kilo de peso vivo del animal.
 4.-Método adecuado para preparar el material final de aplicación.
 5.-Tiempo mínimo de espera entre la aplicación y la entrada de personas y animales domésticos al área tratada.
-6.-Presentar estudios experimentales en los que se demuestre la eficacia del producto para los usos solicitados, bajo nuestras condiciones agroecológicas o similares.
+6.- Presentar estudios experimentales en los que se demuestre la eficacia del producto para los usos solicitados, bajo nuestras condiciones agroecológicas o similares, salvo que se trate de productos debidamente inscritos en el país en cuyo caso bastará indicar las citas bibliográficas correspondientes.
+(Así reformado el inciso anterior por el artículo 3° del decreto ejecutivo N° 22078 del 17 de marzo de 1993)
 7.-Tolerancia del ingrediente activo o metabolitos en los cultivos de consumo y sus partes, para los cuales está recomendado dicho producto o su fuente bibliográfica, incluyendo la referencia bibliográfica.
 f) Efectos físicos, químicos y biológicos en el ambiente derivados de la aplicación del plaguicida. Indicar las siguientes características del producto en relación con el ambiente:
 1.-Movilidad y translación del producto (lixiviación en suelo, dispersión en la atmósfera).
@@ -82,3 +83,5 @@ f) Efectos físicos, químicos y biológicos en el ambiente derivados de la apli
 4.-Forma de degradación y tiempo requerido.
 5.-Persistencia en el suelo y 'en el agua.
 6.-Efedos letales o subletales sobre organismos a los que no ha sido destinado el producto, incluyendo para peces y abejas.
+El registrante estará en la obligación de mantener actualizada la información referente al producto que ha registrado, y en caso de comprobarse incumplimiento de esta obligación los Departamentos podrán revocar el registro del producto cura información no sea debidamente actualizada.
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 22078 del 17 de marzo de 1993)
