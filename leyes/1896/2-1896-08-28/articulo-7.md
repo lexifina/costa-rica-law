@@ -1,0 +1,1 @@
+Art 7° Las actas de inscripción irán debidamente numeradas al margen se extenderá unas a continuación de otras, sin dejar entre ellas claros que permitan la suposición de otras nuevas- Quedan prohibidas las entrerrenglonaduras, enmendaduras un acta se cometa, si no fuere posible salvarlo a continuación, lo será por medio de nota al pie, antes de las firmas.

@@ -1,0 +1,2 @@
+Art 14° El libro indicado será de las dimensiones necesarias para pegar en cada uno de sus folios, al lado derecho y en columna, dos modelos, quedando al lado izquierdo un margen de nueve centímetros.
+Este margen servirá para señalar cada modelo con el número correspondiente a la respectiva inscripción y hacer las indicaciones que ocurran referentes al traspaso de una marca, renuncia del derecho de usarla o caducida de ese mismo derecho.
