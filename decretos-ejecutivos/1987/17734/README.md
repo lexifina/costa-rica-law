@@ -13,3 +13,4 @@ Crea Consejo de la Asamblea Trabajadores Banco Popular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-08-28 | la propia norma |
+| 2 | 1999-04-12 | Decreto Ejecutivo 27819 (1999-04-12) |
