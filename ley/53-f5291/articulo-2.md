@@ -1,0 +1,1 @@
+Art 2° Se nombran igualmente Magistrados propietarios á los Señores. Licenciados Don Manuel Alvarado, Don Ramón Loria, Don Concepción Pinto, Don Manuel Arguello y Don Gregorio Trejos y Fiscal al Sr Dr. D. Eusebio Figueroa. - El primero de los Magistrados nombrados en este artículo presidirá la 2° Sala.
