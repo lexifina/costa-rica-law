@@ -1,0 +1,1 @@
+Art 4. Habrá en Puntarenas una Junta de caridad, compuesta del Gobernador que la presidirá, del Cura y de tres vecinos de representación de aquel puerto con sus respectivos suplentes que nombre el gobierno: estos últimos y sus suplentes se renocarán cada tres años.
