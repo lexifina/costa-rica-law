@@ -1,0 +1,1 @@
+Artículo 13.—Insumos. El secretario del Comité de Inversiones debe coordinar la provisión de los insumos necesarios para el mantenimiento eficaz de las sesiones. Asimismo, los miembros permanentes del Comité de Inversiones podrán solicitar a diferentes áreas de la Institución la información necesaria para soporte técnico de las sesiones.

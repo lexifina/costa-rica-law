@@ -1,0 +1,1 @@
+Artículo 5º—Sesiones. Las sesiones del Comité de Inversiones son de dos clases: Ordinarias y Extraordinarias. Las ordinarias son las que se desarrollan periódicamente dentro de un cronograma establecido por la Gerencia General. Las extraordinarias son convocadas en casos especiales, mediatizadas por la formalidad de su convocatoria y a solicitud expresa de la Gerencia General.

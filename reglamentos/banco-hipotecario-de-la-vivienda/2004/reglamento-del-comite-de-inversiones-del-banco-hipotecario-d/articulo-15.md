@@ -1,0 +1,1 @@
+Artículo 15.—Salvedad del voto y opinión. Cualquiera de los miembros permanentes del Comité de Inversiones podrá salvar justificadamente su voto en los procesos de votación que eventualmente tuvieran lugar en el seno del mismo. Asimismo podrá solicitar que su opinión sea incluida expresamente en el acta correspondiente.

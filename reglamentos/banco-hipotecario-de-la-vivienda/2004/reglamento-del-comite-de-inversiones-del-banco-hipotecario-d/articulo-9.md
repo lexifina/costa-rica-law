@@ -1,0 +1,1 @@
+Artículo 9º—Miembros transitorios. Son miembros transitorios aquellas personas naturales, funcionarios o no de la Institución, que por su conocimiento, idoneidad o experiencia pudieren colaborar al logro del buen fin de las sesiones. Los miembros transitorios tienen voz pero no voto.

@@ -1,0 +1,1 @@
+Artículo 3º—Organización. El Comité de inversiones es un comité de apoyo tanto de la Junta Directiva como de la Gerencia General, sin embargo, podrá prestar tal apoyo a favor de otras instancias de la Organización.
