@@ -1,8 +1,12 @@
-Artículo 3°—Se agrega como anexo a la Reserva Indígena de Conte-Burica la "Reserva Indígena Guaymí de Abrojos-Montezuma".
+Artículo 3°—Se agrega como anexo a la *Reserva Indígena Guaymí de Conteburica la *"Reserva Indígena Guaymí de Abrojo de Montezuma".
+*(Modificada su denominación por el artículo 1°del decreto ejecutivo N° 16052 del 3 de diciembre de 1984 y mediante el artículo 3° se indica que el nombre correcto es Reserva Indígena Guaymi de Conteburica).
 Los límites de esta Reserva son los mencionados a continuación:
-RESERVA INDÍGENA GUAYMÍ DE ABROJOS-MONTEZUMA
-Establécese la Reserva Indígena Guaymí de Abrojos-Montezuma.
-La Reserva Indígena Guaymí de Abrojos-Montezuma se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
+*RESERVA INDÍGENA GUAYMÍ DE ABROJO DE MONTEZUMA
+*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
+Establécese la *Reserva Indígena Guaymi de Abrojo de Montezuma.
+*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
+La *Reserva Indígena Guaymi de Abrojo de Montezuma se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
+*(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984).
 La reserva está delimitada por los puntos cuyas coordenadas se detallan a continuación:
 N 288 950 | E 588 150 | Río Abrojos.
 N 289 100 | E 587 650 |

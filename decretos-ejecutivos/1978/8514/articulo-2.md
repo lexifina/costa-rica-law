@@ -1,6 +1,8 @@
 Artículo 2°—Los límites de la Reserva son los mencionados a continuación:
-Reserva Indígena Guaymí de Conte-Burica.
-La Reserva Indígena Guaymí de Conte-Burica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
+Reserva Indígena Guaymí de Conteburica.
+(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
+La Reserva Indígena Guaymí de Conteburica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
+(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
 La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
 Partiendo de un punto en la playa en coordenadas N 254 850 E 560 450, se continúa con los puntos de coordenadas siguientes:
 N 255 300 | E 560 825 |
@@ -43,5 +45,6 @@ N 246 200 | E 578 025 | (Quebrada La Peñita).
 De allí se sigue aguas abajo la quebrada La Peñita hasta su desembocadura en el mar, en coordenadas:
 N 243 250 | E 576 600
 A partir de este punto se continúa por la playa hasta el punto origen de la presente descripción, en coordenadas N 254 850 E 560 450.
-Superficie de la Reserva Indígena Guaymí de Conte-Burica: 11 910 hectáreas.
+Superficie de la Reserva Indígena Guaymí de Conteburica: 11 910 hectáreas.
+(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
 (Así reformado mediante el artículo 2° del decreto ejecutivo N° 13545 del 26 de abril de 1982).

@@ -10,4 +10,4 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°—La Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica".
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 13545 del 26 de abril de 1982).
+(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
