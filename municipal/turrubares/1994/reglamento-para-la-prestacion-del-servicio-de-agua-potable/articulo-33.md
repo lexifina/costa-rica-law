@@ -1,0 +1,1 @@
+Artículo 33.—El usuario que incurra en uso indebido o desperdicio de agua potable, se le notificará por escrito, que corrija su falta dándole un plazo de siete días, de persistir en la infracción será denunciado ante la autoridad judicial competente, por violación a la Ley General de Agua Potable, No 1634 y la Ley General de Salud N° 5395 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 32.—En ningún caso podrán los abonados reconectar un servicio de agua que ha sido suspendido. De hacerlo, se procederá a desconectarlo de nuevo y no será reconectado - si fuera el caso - hasta tanto no se haya hecho el pago o arreglo de pago ante la Municipalidad.

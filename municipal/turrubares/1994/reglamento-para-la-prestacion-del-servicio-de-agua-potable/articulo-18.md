@@ -1,0 +1,1 @@
+Artículo 18.—Los usuarios que disfrutan del servicio de agua, podrán solicitar a la Municipalidad , cambio en el nombre de la cuenta y cambio en el uso del servicio (Diferente Categoría), para lo cual el Gobierno Local determinará si se justifica, la solicitud del usuario.

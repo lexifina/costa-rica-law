@@ -1,0 +1,2 @@
+Artículo 25.—Las tarifas propuestas por la Municipalidad , deberán ser aprobadas por el Servicio Nacional de Electricidad, de conformidad con el artículo tercero de la Ley Constitutiva del Instituto Costarricense de Acueductos y Alcantarillados y sus reformas.
+Las tarifas deberán publicarse en el Diario Oficial " La Gaceta " y entrarán en vigencia a partir del día primero del mes inmediato siguiente a la fecha en que fueron aprobadas por el Servicio Nacional de Electricidad (SNE).

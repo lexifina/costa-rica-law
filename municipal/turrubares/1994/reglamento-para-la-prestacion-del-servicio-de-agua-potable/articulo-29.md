@@ -1,0 +1,1 @@
+Artículo 29.— LA Municipalidad , podrá suspender el servicio de agua, solamente en los lugares en donde exista servicio de fuente pública, por demora en el pago, previa notificación y plazo de quince días.
