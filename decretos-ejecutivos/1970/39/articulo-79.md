@@ -1,0 +1,2 @@
+Artículo 79.-Conclusión y resolución. En el plazo de quince días naturales después de la comparecencia y evacuación de la prueba, el Organo Director informará por escrito al Presidente de la Junta Directiva las conclusiones del trámite administrativo con las recomendaciones disciplinarias en caso de que se consideren aplicables. El Presidente tendrá cinco días naturales para resolver en definitiva.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 26295 del 10 de junio de 1997)

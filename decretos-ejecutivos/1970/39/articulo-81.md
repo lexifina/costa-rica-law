@@ -1,0 +1,4 @@
+CAPITULO XIII
+De las otras disposiciones
+Artículo 81.-De conformidad a lo estatuido en los artículos 6°, 7° Y 36 de la Ley Orgánica N° 4288, así como en los incisos b) y d) del artículo 7°, incisos a) y b) del artículo 8°, incisos c) y d) del artículo 9°, artículos 16, 17, 19,44 Y 52 del Reglamento a la Ley Orgánica del Colegio, la Junta Directiva reglamentará lo relativo a la hora profesional mínima liberal del biólogo y de los biólogos especialistas, al considerar la especialidad biológica que ostenten tal y como lo define el artículo 2° de este mismo Reglamento y el Reglamento de Especialidades Biológicas. Esas tarifas mínimas serán revisadas anualmente por la Junta Directiva al observar el índice de inflación oficial trasanterior, para actualizar el cobro de honorarios por los servicios que prestarán los miembros del Colegio, en materia biológica.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 26295 del 10 de junio de 1997)

@@ -1,0 +1,2 @@
+Artículo 73.-Instalación del Órgano Director, En el plazo de tres días hábiles siguientes al recibo de la denuncia, el presidente, procederá a instalar el Órgano Director que tendrá bajo su \ responsabilidad, la tramitación del procedimiento administrativo y disciplinario. El Órgano estará conformado por tres miembros de la Junta Directiva.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 26295 del 10 de junio de 1997)

@@ -1,0 +1,2 @@
+Artículo 78.-Valoración de la prueba. Para la valoración de la prueba deberán tomarse en consideración todos los elementos indiciarios y directos aportados. Para los efectos probatorios del hecho deberá considerarse el estado de ánimo de la persona que presenta la denuncia así como su desempeño, cumplimiento y dinámica laboral. Cualquier valoración sobre la vida personal de la persona denunciante, será improcedente.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 26295 del 10 de junio de 1997)
