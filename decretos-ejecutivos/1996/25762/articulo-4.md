@@ -1,0 +1,1 @@
+Artículo 4°-Las instituciones públicas que la Comisión considere en sus planes de trabajo, deberán en la medida de sus posibilidades y de acuerdo con disposiciones sobre restricción de gasto público, incorporar en los proyectos de presupuesto de 1998, los fondos que sean necesarios para la ejecución de los actos conmemorativos.
