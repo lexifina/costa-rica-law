@@ -1,0 +1,1 @@
+Artículo 12°- Desistimiento de la solicitud. El solicitante podrá desistir de su solicitud en cualquier momento del trámite. El desistimiento de una solicitud no dará derecho al reembolso de las tasas que se hayan pagado.

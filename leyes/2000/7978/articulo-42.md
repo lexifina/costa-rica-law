@@ -1,0 +1,1 @@
+Artículo 42°- Prueba del uso de la marca. La carga de la prueba del uso de la marca corresponderá a quien alegue la existencia de la nulidad. El uso de la marca se acreditará por cualquier medio de prueba admitido por la ley, que demuestre que ha sido usada efectivamente.

@@ -1,0 +1,10 @@
+Artículo 6°- Cotitularidad. La cotitularidad de las solicitudes para los efectos del registro correspondiente cuando no exista acuerdo en contrario, se regirá por las siguientes normas:
+a) La modificación, la limitación o el desistimiento de una solicitud en trámite debe hacerse en común.
+b) Cada cotitular puede usar personalmente el signo distintivo objeto de la solicitud o el registro; pero debe compensar equitativamente a los cotitulares que no exploten ni usen el signo ni hayan concedido una licencia para el uso de este. En defecto de acuerdo, la compensación será fijada por el tribunal competente.
+c) La transferencia de la solicitud o el registro se hará de común acuerdo, pero cada cotitular puede ceder por separado su cuota; los demás gozarán del derecho de tanteo durante un plazo de tres meses contados desde la fecha en que el cotitular les notifique su intención de ceder su cuota.
+d) Cada cotitular puede conceder a terceros una licencia no exclusiva de uso del signo distintivo objeto de la solicitud o el registro; pero debe compensar, equitativamente, a los cotitulares que no usen el signo ni hayan concedido una licencia de su uso. En defecto de acuerdo, la compensación será fijada por el tribunal competente.
+e) Una licencia exclusiva de explotación o de uso solo puede concederse de común acuerdo.
+f) La renuncia, limitación o cancelación voluntaria, total o parcial, de un registro se hará de común acuerdo.
+g) Cualquier cotitular puede notificar, a los demás, que abandona en beneficio de ellos su cuota de la solicitud o registro, con lo cual queda liberado de toda obligación frente a ellos, a partir de la inscripción del abandono en el registro correspondiente o cuando se trate de una solicitud, a partir de la notificación del abandono al Registro de la Propiedad Industrial. La cuota abandonada se repartirá entre los cotitulares restantes, en proporción a sus derechos en la solicitud o el registro.
+h) Cualquier cotitular puede iniciar las acciones correspondientes en caso de infracción del derecho.
+Las disposiciones del derecho común sobre la copropiedad se aplicarán en lo no previsto en el presente artículo.

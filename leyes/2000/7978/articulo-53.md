@@ -1,0 +1,21 @@
+ARTÍCULO 53.- Nulidad del registro de la marca colectiva
+A pedido de cualquier persona interesada y previa audiencia del
+titular del registro de la marca, el Registro declarará la nulidad del
+registro de una marca colectiva en cualquiera de los siguientes casos:
+a) Si la marca fue registrada en contravención de los artículos 7 u
+8 de la presente ley.
+b) Si el reglamento de empleo de la marca es contrario a la moral o
+el orden público.
+c) Si, durante más de un año, la marca colectiva es usada solo por su
+titular y no por las personas autorizadas conforme al reglamento de empleo
+de la marca.
+d) Si el titular de la marca colectiva la usa o permite usarla de
+manera que contravenga las disposiciones de su reglamento de empleo o de
+modo que resulte susceptible de engañar a los medios comerciales o al
+público, sobre el origen o cualquier otra característica de los productos
+o servicios para los cuales se emplea la marca.
+El Registro actuará de oficio y declarará la nulidad, si la marca fue
+registrada en contravención de los artículos 7 o 47 de la presente ley. En
+todo caso, debe garantizarse la aplicación de los principios del debido
+proceso y de lo dispuesto en los incisos 1) al 3) del artículo 173 de la
+Ley General de Administración Pública, No. 6227, de 2 de mayo de 1978.

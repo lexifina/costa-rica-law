@@ -1,0 +1,9 @@
+Artículo 21°- Procedimiento de renovación del registro. La renovación de registros se efectuará presentando ante el Registro de la Propiedad Industrial el pedido correspondiente, que contendrá:
+a) Nombre y dirección del titular.
+b) Número del registro que se renueva.
+c) Nombre y dirección del apoderado en el país, cuando sea el caso, pero sólo será necesario acreditar el poder cuando el apoderado sea diferente del designado en el registro que se renueva o en la renovación precedente; de ser el mismo, deberá indicar el expediente, el nombre de la marca y el número de la presentación o el registro donde se encuentra el poder.
+d) Una lista de los productos o servicios conforme a la reducción o limitación deseada, cuando se quiera reducir o limitar los productos o servicios comprendidos en el registro que se renueva. Los productos o servicios se agruparán por clases conforme a la Clasificación internacional de productos y servicios, señalando el número de cada clase.
+e) El comprobante de pago de la tasa establecida.
+El pedido de renovación solo podrá referirse a un registro y deberá presentarse dentro del año anterior a la fecha de vencimiento del registro que se renueva. También podrá presentarse dentro de un plazo de gracia de seis meses posteriores a la fecha de vencimiento; pero, en tal caso, deberá pagarse el recargo determinado, además de la tasa de renovación correspondiente. Durante el plazo de gracia el registro mantendrá su vigencia plena.
+La renovación del registro de una marca produce efectos desde la fecha de vencimiento del registro anterior, aun cuando la renovación se haya pedido dentro del plazo de gracia.
+Cumplidos los requisitos previstos en los párrafos primero y segundo del presente artículo, el Registro de la Propiedad Industrial inscribirá la renovación sin más trámite. La renovación no será objeto de examen de fondo ni de publicación.
