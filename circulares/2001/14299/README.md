@@ -13,3 +13,4 @@ Regulaciones sobre la fiscalización y el control de los beneficios patrimoniale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-18 | la propia norma |
+| 2 | 2002-10-22 | Resolución 0 (2002-10-22) |
