@@ -1,0 +1,5 @@
+DECRETO XV
+El Congreso Nacional prorroga sus sesiones ordinarias.
+"Juan Rafael Mora Presidente de la República de Costa Rica,-Por cuanto el Exceleatísimo Congreso constitucional ha decretado lo siguiente.
+El Excelentisimo Congreso constitucional de la República de Costa Rica, teniendo en consideración que hay varios negocios pendientes que no han podido despacharse durante el periodo de dos mess que fija la Constitucion, decreta:
+Artículo único. Se prorogan las sesiones ordinarias por el tiempo necesario, siempre que no exceda del término señalado en la Constitucion,- Al Poder Ejecutivo. -Dado en el Palacio de los Supremos Poderes, en San José á los treinta dias del mes de junio de mil ochocientos cincuenta y uno.~-Francisco Maria Oreamuno, Presidente.-Manuel Zamora, Secretario. - Miguel Mora, Secretario,-Por tanto: EJECUTESE. Palacio Nacional. San José julio primero de mil ochocientos cincuenta y uno. -Juan Rafael Mora. AI Ministro de Estado en el Despacho de Gobernación, Joaquín Bernardo Calvo."
