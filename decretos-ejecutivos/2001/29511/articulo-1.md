@@ -157,3 +157,7 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, de la Comisión Nacional de Préstamoa para la Educación, por el artículo 1 del Decreto Ejecutivo N° 30683 de 19 de agosto del 2002)
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, del Instituto Costarricense del Deporte y la Recreación, por el artículo 1 del Decreto Ejecutivo N° 30692 de 27 de agosto del 2002)
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, del Instituto Costarricense del Deporte y la Recreación, por el artículo 1 del Decreto Ejecutivo N° 30692 de 27 de agosto del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, de la Dirección General de Migración y Extranjería, por el artículo 1 del Decreto Ejecutivo N° 30774 de 26 de setiembre del 2002)
+(Modificado el límite de gasto presupuestario y efectivo del Colegio Universitario de Puntarenas para el 2002, por el artículo 1 del decreto ejecutivo N° 30775 de 18 de setiembre del 2002)
+(Modificado el límite de gasto presupuestario y efectivo del 2002, para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, por el artículo 1 del decreto ejecutivo N° 30776 de 18 de setiembre del 2002)
+(Modificado el límite de gasto presupuestario y efectivo del 2002, para el Instituto Nacional de las Mujeres, por el artículo 1 del decreto ejecutivo N° 30782 de 3 de julio del 2002)
