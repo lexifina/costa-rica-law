@@ -1,0 +1,1 @@
+Artículo 3º—De la asignación. La Presidencia Ejecutiva valorará en forma objetiva y en observancia de los principios de razonabilidad, sana administración y protección de los intereses institucionales, la necesidad de asignar de manera restrictiva, equipos de telefonía celular y radiolocalización a los funcionarios o funcionarias de la Institución.

@@ -1,0 +1,2 @@
+Artículo 17.—Disposición transitoria: A partir de la publicación del presente reglamento, se otorga un plazo de quince días naturales para que los funcionarios mencionados en los artículos 4 y 5 del presente reglamento procedan a rubricar el respectivo contrato con la Institución.
+En caso de que dentro de dicho término el funcionario no suscriba el indicado contrato o se niegue expresamente a hacerlo, el Administrador General procederá en forma inmediata a retirar el equipo asignado y cancelar el servicio.

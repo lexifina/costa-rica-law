@@ -1,0 +1,1 @@
+Artículo 16.—Del Incumplimiento. En caso de incumplimiento a lo establecido en este Reglamento se aplicará lo dispuesto en el Reglamento Autónomo de Servicios del IMAS en lo que se refiere a las responsabilidades disciplinarias que se pudieren originar por dicho motivo.
