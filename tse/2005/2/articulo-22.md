@@ -1,0 +1,1 @@
+Artículo 22.—El Tribunal brindará los recursos que requieran los órganos establecidos en este reglamento para el cumplimiento de sus funciones y facilitará los proyectos de capacitación necesarios, de acuerdo con sus posibilidades materiales y económicas.

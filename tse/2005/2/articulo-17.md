@@ -1,0 +1,1 @@
+Artículo 17.—Previa comunicación del Coordinador del CCE y del Responsable Operativo, las jefaturas de quienes integren una Brigada o el mismo CCE permitirán, salvo causa debidamente justificada, que éstos asistan a reuniones, simulacros, prácticas u otros que a criterio del CCE sean necesarios para el buen desempeño de las acciones que demande una emergencia o desastre.

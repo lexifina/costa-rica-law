@@ -1,0 +1,1 @@
+Artículo 7º—Corresponderá a la secretaría del consultorio médico, ejecutar las tareas secretariales del Comité, como lo son recibir y enviar correspondencia, llevar archivos al día y transcribir actas, entre otras afines.

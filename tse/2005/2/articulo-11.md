@@ -1,0 +1,1 @@
+Artículo 11.—El Tribunal otorgará 4 horas al mes para que los brigadistas ejecuten el plan de acondicionamiento físico a que se refiere el artículo anterior. Por su parte, los brigadistas dedicarán igual cantidad de tiempo, en horas no laborales, para ese mismo fin.

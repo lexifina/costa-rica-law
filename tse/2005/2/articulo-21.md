@@ -1,0 +1,1 @@
+Artículo 21.—El funcionario que de manera injustificada irrespete las órdenes o instrucciones referidas en el artículo anterior, podrá ser sancionado de conformidad con lo dispuesto en el artículo 54 del Reglamento Autónomo de Servicios, previo procedimiento según el artículo 55 del mismo reglamento.

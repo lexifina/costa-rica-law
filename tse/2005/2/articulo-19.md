@@ -1,0 +1,1 @@
+Artículo 19.—Con posterioridad a una emergencia, las Brigadas involucradas evaluarán la aplicación de sus respectivos planes y procedimientos, adoptarán las medidas correctivas necesarias para mejorar su capacidad de respuesta y elaborarán un informe con sus recomendaciones al Comité.

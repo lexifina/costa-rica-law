@@ -1,0 +1,1 @@
+Artículo 20.—Todo funcionario del Tribunal, así como los usuarios de los servicios que presta la institución, deberán acatar las instrucciones y órdenes que imparta el Comité, tanto de carácter preventivo, como las que gire en situaciones de emergencia.
