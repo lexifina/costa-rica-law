@@ -1,2 +1,3 @@
 Artículo 165.- La Junta Directiva sesionará ordinariamente ocho veces por mes y extraordinariamente cuando la convoque el Presidente o el Director Ejecutivo.
 Sus miembros serán remunerados mediante dietas cuyo monto no será superior a ciento cincuenta colones por sesión y el número de sesiones remuneradas mensualmente no podrá exceder de doce.
+(Nota de Sinalevi: Mediante el artículo 2 de la Ley N° 6908 del 3 de noviembre de 1983, se dispuso lo siguiente: "...Refórmase el artículo 165 de la Ley de Asociaciones Cooperativas, Nº 6756 del 5 de mayo de 1982 (la norma referda reformó integramente esta ley), a fin de que la Junta Directiva del INFOCOOP se rija, en lo referente al número de sesiones y al pago de dietas, de acuerdo con lo que establece la ley....")
