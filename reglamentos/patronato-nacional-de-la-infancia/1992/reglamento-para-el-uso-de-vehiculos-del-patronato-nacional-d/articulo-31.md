@@ -1,0 +1,1 @@
+Artículo 31.—Ningún conductor del PANI está autorizado para efectuar arreglos extrajudiciales en los casos de accidentes de tránsito; únicamente debe indicarse al particular que se comunique con Servicios Generales para efectuar las gestiones pertinentes.

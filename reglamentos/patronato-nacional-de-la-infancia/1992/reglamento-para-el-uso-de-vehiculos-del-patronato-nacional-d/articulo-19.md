@@ -1,0 +1,1 @@
+Artículo 19.—Servicios Generales recomendará desechar aquellos vehículos que, por alguna circunstancia, han dejado de ser rentables, útiles o seguros para el PANI, lo que hará siguiendo los procedimientos legales y reglamentarios vigentes.
