@@ -1,0 +1,3 @@
+Comisión de Arbitraje
+Artículo 15.—Tan pronto sea posible, el Poder Ejecutivo procederá a nombrar una Comisión de Arbitraje, integrada por dos miembros de la Junta Directiva del Banco Centrar, dos miembros de la Junta Directiva del Banco Nacional de Costa Rica, por un Gerente de cada uno de estos Bancos, por el Auditor General de Bancos y por el Auditor del Banco Nacional de Costa Rica.
+Toda controversia o disparidad de criterio surgida entre la Junta Directiva del Banco Central y la Junta Directiva del Banco Nacional, en cuanto a la división de bienes antes mencionada, será resuelta por dicha Comisión, cuyas resoluciones serán apelables ante el Ministerio de Hacienda.

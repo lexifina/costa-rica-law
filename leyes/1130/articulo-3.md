@@ -1,0 +1,1 @@
+Artículo 3°—El Banco Central, llamado en adelante en la presente ley indistintamente así, o simplemente el Banco, tendrá por domicilio la ciudad de San José, capital de la República y estará autorizado para establecer agencias o sucursales en todo el territorio del país.
