@@ -1,0 +1,1 @@
+Artículo 2º—La Dirección de Gestión Municipal del Ministerio de Obras Públicas y Transportes coordinará con las municipalidades el apoyo necesario que deberá brindarse a la División de Obras Públicas y la Dirección de Planificación para la actualización de los inventarios de la Red Vial Cantonal en el menor plazo posible.
