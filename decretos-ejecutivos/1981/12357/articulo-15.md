@@ -1,0 +1,1 @@
+Artículo 15.-Este Reglamento se aplicará sin perjuicio de lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios o empleados del Estado, emitido por la Contraloría General de la República y publicado en "La Gaceta" N° 168 del 3 de setiembre de 1980.
