@@ -1,0 +1,3 @@
+Artículo 15.--"
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, al primer día del mes de setiembre de mil novecientos noventa y tres.
