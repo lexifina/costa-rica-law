@@ -14,3 +14,4 @@ Crea Distritos Peralta La Suiza y Turrialba de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-08-31 | la propia norma |
+| 2 | 1969-01-27 | Decreto Ejecutivo 5 (1969-01-27) |
