@@ -4,4 +4,4 @@ b) Se prohibe todo traslado, traspaso o cesión del derecho de uso del apartado 
 c) Se prohibe brindar información al cliente sobre la correspondencia depositada en su apartado.
 d) Se prohibe la explotación y prestación del servicio de apartados postales por parte de personas, físicas o jurídicas, ajenas a Correos de Costa Rica S.A.
 e) Todo traspaso o cesión del derecho de uso del apartado debe hacerse a través de la Gerencia General o el Coordinador respectivo debidamente autorizado. Si el cliente realiza el acto sin la autorización correspondiente, el mismo no será válido y se tendrá como único usuario del apartado aquella persona que se encuentre registrada como tal en los archivos que al efecto se llevan.
-f) Se prohibe tener más de un apartado en un mismo local donde hayan instalados apartados postales para personas físicas o jurídicas. No obstante; en casos muy calificados debidamente justificados, sujeto a estudio y resolución de la Gerencia se puede adquirir otro apartado.
+f) (DEROGADO, por acuerdo N° 2551 tomado en la sesión N° 473 de 29 de enero de 2004).

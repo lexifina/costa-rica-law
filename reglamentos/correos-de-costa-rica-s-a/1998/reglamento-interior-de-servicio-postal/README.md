@@ -16,3 +16,4 @@ Reglamento Interior de Servicio Postal
 | 1 | 1998-12-18 | la propia norma |
 | 2 | 1999-07-01 | Reglamento 75 (1999-07-01) |
 | 3 | 2000-02-24 | Reglamento 132 (2000-02-24) |
+| 4 | 2004-01-29 | Reglamento 473 (2004-01-29) |
