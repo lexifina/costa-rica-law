@@ -1,8 +1,8 @@
 BANCO POPULAR Y DE DESARROLLO COMUNAL
 REGLAMENTO PARA LA OPERACIÓN Y CONTROL DE FONDOS
 DE CAJA CHICA
-Artículo 1°- Se entenderán como cajas chicas, tanto generales como específicas, los fondos asignados a dependencias del Banco Popular y de Desarrollo Comunal, que se destinarán única y exclusivamente para adquirir bienes y servicios que:
-- Se requieran con urgencia
-- Su valor sea de poca cuantía y/o necesariamente deban ser cancelados en efectivo al momento de la compra.
-- No existan en ese momento en la Bodega del Departamento de Proveeduría.
-- Materiales bibliográficos (libros, folletos, revistas, boletines) solicitados exclusivamente por la biblioteca del Banco.
+Artículo 1º—Se entenderán como cajas chicas, tanto generales como específicas, los fondos asignados para que las dependencias del Banco Popular y de Desarrollo Comunal los destinen única y exclusivamente para adquirir bienes y servicios que
+-Se requieran con urgencia.
+-Su valor sea de escasa cuantía según lo establezca la Gerencia General en la Circular Anual de Políticas y Procedimientos y/o necesariamente deban ser cancelados en efectivo al momento de la compra.
+-No existan en ese momento en la Bodega de Compras.
+(Así reformado mediante sesión N° 3812 del 21 de febrero de 2001)

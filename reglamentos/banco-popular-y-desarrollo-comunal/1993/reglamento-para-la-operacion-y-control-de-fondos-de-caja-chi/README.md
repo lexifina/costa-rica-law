@@ -14,3 +14,4 @@ Reglamento para la Operación y Control de Fondos de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-05 | la propia norma |
+| 2 | 2001-02-21 | Reglamento 3812 (2001-02-21) |
