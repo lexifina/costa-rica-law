@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Además de lo que dispone el Código Penal, es prohibida la fabricación, introducción, venta y posesión de las armas mencionadas en el inciso 1° del artículo 4° de la presente ley, bajo la pena establecida en el artículo 311 del citado Código.
