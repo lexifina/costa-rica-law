@@ -1,0 +1,7 @@
+N° 1594
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETAN:
+Artículo 1º.- Adiciónese el Código Electoral emitido por decreto Nº 1356 de 10 de diciembre de 1952, para las elecciones del 26 de julio de este año, con los siguientes Transitorios:
+"Transitorio 1º.- Se autoriza al Tribunal Supremo de Elecciones para ordenar la impresión de las papeletas electorales a que se refieren los artículos 26 y 78 del Código Electoral, si fuere necesario en imprentas particulares, prescindiendo del sistema de licitación pública que exige la Ley de Administración Financiera de la República. Los partidos políticos que inscribieron candidaturas de conformidad con la ley, podrán acreditar fiscales ante tales imprentas.
+Transitorio 2º.- Se autoriza al Tribunal Supremo de Elecciones para variar prudencialmente los plazos contenidos en el Título III. Capítulo IV del Código Electoral, debiendo comunicar cualquier variación inmediatamente a los personeros de los partidos políticos inscritos.
+Transitorio 3º.- Se autoriza al Tribunal Supremo de Elecciones para facultar a los funcionarios a los cuales se refiere el artículo 50 del Código Electoral, con el fin de que procedan a la juramentación e instalación de las Juntas Receptoras de Votos, tan pronto como la Junta Cantonal respectiva les haya comunicado por escrito la nómina de los integrantes de cada una de ellas, con copia para el Tribunal Supremo de Elecciones, y siempre que dicha comunicación se haga antes del cierre de sus despachos el día víspera de dichas elecciones.
