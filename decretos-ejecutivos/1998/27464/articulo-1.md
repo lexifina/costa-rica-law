@@ -22,6 +22,4 @@ REGLAMENTO DE RACIONALIZACIÓN DE LA CARGA TRIBUTARIA A
 LOS VEHÍCULOS AUTOMOTORES Y SUS ACCESORIOS
 CAPÍTULO I
 Disposiciones para desalmacenar vehículos
-Artículo 1°—Para la interpretación y aplicación del presente decreto, se establecen las siguientes condiciones:
-Vehículo nuevo: Aquel que se importa sin uso, desde un país de donde es originario, o desde un tercer país, y corresponde al modelo del año o del siguiente, o a un modelo de años anteriores que no haya sido inscrito o registrado en el país de origen o de exportación.
-Vehículo usado: Aquel vehículo que haya sido registrado o matriculado en el país de origen o de exportación.
+Artículo 1°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

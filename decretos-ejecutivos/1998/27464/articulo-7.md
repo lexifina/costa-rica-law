@@ -1,1 +1,1 @@
-Artículo 7°—No se podrán desalmacenar vehículos usados si no se presentan los documentos de propiedad que, conforme a la legislación del mercado de origen acrediten legalmente que el importador o consignatario es el legítimo propietario del vehículo.
+Artículo 7°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

@@ -1,1 +1,1 @@
-Artículo 10.—Los importadores mayoristas de vehículos para su venta a terceros deberán extender factura autorizada a sus compradores al efecto del pago del impuesto de ventas.
+Artículo 10.—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

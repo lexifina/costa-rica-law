@@ -1,6 +1,1 @@
-Artículo 4°—Sólo se admitirá el valor de compra al por mayor (average wholesale price), para los efectos de los cálculos indicados en los artículos anteriores, si el importador mayorista cumple con los siguientes requisitos:
-a) Estar inscrito en el registro de importadores establecido en el artículo 246 de la Ley General de Aduanas.
-b) Poseer o arrendar un local comercial destinado principalmente para la venta de vehículos, abierto al público; contar y mantener al día las patentes del caso y, llevar los libros legales debidamente registrados en la Dirección General de Tributación.
-c) Estar inscrito en los registros de contribuyentes respectivos que al efecto lleve la Dirección General de Tributación y cumplir con las disposiciones de carácter tributario y aduaneras vigentes.
-Los requisitos establecidos en los incisos b) y c) deberán hacerse constar en la Dirección General de Aduanas.
-Anualmente deberán renovar ante la Dirección General de Aduanas su condición de mayorista, aportando los requisitos antes mencionados. Mientras no actualice su condición de mayorista, el valor que se utilizará para determinar los impuestos respectivos, será el valor promedio de venta al detalle (average retail price).
+Artículo 4°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

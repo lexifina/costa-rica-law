@@ -1,1 +1,1 @@
-Artículo 5°—Todos los importadores de vehículos deben cumplir con las reglas comerciales y financieras aplicables a las importaciones y las ventas a plazo, en su caso. Además deben otorgar por escrito, las garantías y hacer las advertencias que, conforme a ley de Promoción de Competencia y Defensa Efectiva de los Consumidores ley N° 7472, todo vendedor de mercancía debe hacer y dar a sus clientes.
+Artículo 5°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

@@ -1,1 +1,1 @@
-Artículo 6°—Los importadores mayoristas de automóviles, nuevos o usados, deben realizar sus transferencias financieras necesariamente a través del sistema bancario y financiero sometido a regulación por las correspondientes autoridades, nacionales y/o extranjeras y, en caso de operaciones en efectivo, cumplir con lo que la ley indica.
+Artículo 6°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

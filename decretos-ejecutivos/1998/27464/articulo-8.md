@@ -1,2 +1,1 @@
-Artículo 8°—El agente de aduanas responsable del desalmacenaje de vehículos, debe consignar en la declaración aduanera una descripción detallada de las características de éstos, en los términos que disponga la Dirección General de Aduanas, conforme al artículo 86 de la Ley General de Aduanas.
-El importador que presente a desalmacenaje vehículos fabricados originalmente con volante a la derecha, deberá presentar una certificación emitida por el fabricante, de que ese tipo de automóvil, puede estructuralmente ser modificado para cambiar el volante a la izquierda, sin afectar la seguridad de los pasajeros.
+Artículo 8°—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)

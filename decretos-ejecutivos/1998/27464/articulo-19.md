@@ -1,1 +1,1 @@
-Artículo 19.—La vigencia de lo dispuesto en los Capítulo II y III, excepto lo del artículo 12, así como en el artículo 18 del presente decreto, queda condicionada a la aplicación íntegra de lo regulado en el Capítulo I, de lo contrario se aplicarán las disposiciones y tarifas que estaban vigentes antes de la publicación del presente decreto.
+Artículo 19.—(DEROGADO por el artículo 1° del decreto ejecutivo N° 29263 del 23 de enero de 2001)
