@@ -1,0 +1,1 @@
+Artículo 4°—El nitrito y nitrato de sodio y de potasio o mezcla de ellos, así como la sal de cura o sal de braga, para uso alimentario, deberán cumplir con las especificaciones de pureza propios de la calidad alimentaria según se describe en el "Food Chenücal Codex" en su edición actualizada.

@@ -1,0 +1,1 @@
+Artículo 5°—Queda prohibida la importación de productos alimenticios que conteniendo nitratos y nitritos de sodio y de potasio o mezcla de ellos, así como la sal de cura o sal de braga, no cumplan con las dosis de empleo señaladas en el Codex Alimentarius.

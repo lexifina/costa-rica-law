@@ -1,0 +1,1 @@
+Artículo 2°—Se prohíbe la venta y uso de nitratos y nitritos de sodio y de potasio, o mezcla de ellos, así como la sal de cura o sal de braga, como aditivos alimentarios si sus envases y empaques no están debidamente etiquetados, de acuerdo con la legislación vigente. Las respectivas etiquetas deben ser previamente aprobadas por el Ministerio de Salud.

@@ -1,0 +1,1 @@
+Articulo 6°—Los nitratos y nitritos de sodio y de potasio, o mezcla de ellos, así como la sal de cura o la sal de braga, como aditivo alimentario, deben ser debidamente identificados en la industria cárnica, por lo tanto deberá contener colorante alimenticio permitido por las Normas del Codex Alimentarius.
