@@ -1,4 +1,4 @@
-Artículo 6º.- La presente ley rige a partir de su publicación, pero,
+ARTICULO 6º.- La presente ley rige a partir de su publicación, pero,
 sin embargo, las Instituciones que no hubiesen hecho en sus presupuestos
 las provisiones necesarias para hacer frente al pago del décimotercer
 sueldo en el presente año, deberán pagarlo en los primeros tres meses del
