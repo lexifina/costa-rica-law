@@ -1,0 +1,2 @@
+Artículo VI
+Las Partes contratantes procurarán que las estipulaciones de los cinco artículos anteriores, á saber: sobre arbitraje, unión de Centro América por los medios pacíficos, integridad de su territorio, no intervención é inviolabilidad del derecho de asilo, que ellas reconocen y proclaman como principios del Derecho Público centroamericano, sean reconocidos y aceptados de igual modo por los demás Gobiernos centroamericanos.

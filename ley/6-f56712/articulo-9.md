@@ -1,0 +1,3 @@
+Artículo IX
+Los costarricenses en El Salvador y los salvadoreños en Costa Rica podrán ejercer, con arreglo á las leyes del país en que residan, sus profesiones ú oficios, sin más requisitos previos que la presentación del título ó diploma debidamente autenticado, la justificación de la identidad de la persona, si fuere necesaria, y él. pase correspondiente del Poder Ejecutivo.
+También serán válidos los estudios científicos ó literarios hechos en las Universidades, Escuelas, Facultades é Institutos de segunda enseñanza en uno ú otro país, previas las autenticaciones de los documentos que acrediten dichos estudios y la prueba de identidad correspondiente.
