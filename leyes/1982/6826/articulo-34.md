@@ -1,18 +1,5 @@
-ARTICULO 34.- Los contribuyentes que se acojan al régimen de
-tributación simplificada podrán solicitar, en cualquier momento, su
-reclasificación al régimen normal, por lo que quedan obligados a
-comunicar, a la Administración Tributaria, cualquier variante en los
-elementos tomados en cuenta para otorgarles el régimen, que pudieran
-tener como efecto su reclasificación en el régimen normal. En este caso,
-los contribuyentes tendrán derecho a que se les reconozca, como crédito
-fiscal, el impuesto pagado sobre las existencias que mantengan en
-inventario, lo cual deberán probar mediante presentación escrita ante la
-Administración Tributaria.
-Asimismo, la Administración Tributaria queda facultada para
-reclasificar, de oficio, cuando determine variaciones de importancia en
-la situación de un contribuyente, en cuyo caso no procederá aplicar
-créditos fiscales por existencias en inventarios. En ambos casos, la
-reclasificación regirá a partir del período fiscal siguiente a aquel en
-que quede firme la respectiva comunicación.
+Artículo 34.—Facultad de reclasificación. Los contribuyentes que se acojan a un régimen de tributación simplificada, de estimación objetiva, en cualquier momento podrán solicitar su reinscripción en el régimen normal, dado su carácter opcional; dicha reinscripción regirá a partir del período fiscal siguiente. Tal reinscripción devendrá obligatoria, si se presenta cualquier variante en los elementos tomados en cuenta para acceder al régimen, que puedan tener como efecto el incumplimiento de los requisitos de este; se deberá proceder a dicha reinscripción en el momento en que tales requisitos dejen de cumplirse. En este caso, los contribuyentes tendrán el derecho de que se les reconozca, como cuota deducible, el impuesto pagado sobre las existencias que mantengan en inventario, lo cual deberán probar mediante la presentación escrita ante la Administración Tributaria.
+Asimismo, la Administración Tributaria quedará facultada para que reclasifique de oficio al contribuyente, cuando determine el incumplimiento de los requisitos del régimen, sea desde un inicio o por variaciones en la situación de un sujeto pasivo que impliquen el incumplimiento de los requisitos del régimen; en tal caso, no procederá aplicar la cuota deducible por existencias en inventarios. En tal caso, se aplicarán todas las sanciones que puedan corresponder por incumplimientos en el régimen general y el sujeto pasivo deberá pagar cualquier diferencia que se llegue a establecer entre el tributo cancelado mediante el régimen simplificado y el que le corresponda pagar por el régimen normal, desde la fecha en que dejaron de cumplirse los requisitos del régimen.
+(Así reformado por el artículo 73 de la Ley N° 8343 de 27 de diciembre de 2002, Ley de Contingencia Fiscal)
 (Así adicionado por el artículo 3 de la Ley de Ajuste Tributario Nº
 7543 del 14 de setiembre de 1995)
