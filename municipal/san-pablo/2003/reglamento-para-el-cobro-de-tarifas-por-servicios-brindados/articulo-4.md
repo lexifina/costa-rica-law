@@ -1,0 +1,1 @@
+Artículo 4º—De previo a la efectiva prestación del servicio respectivo, la Municipalidad notificará por una única vez al propietario correspondiente del inmueble para que proceda por su cuenta a cumplir con su obligación legal, concediéndole al efecto el plazo perentorio de cinco días hábiles, pasados los cuales, la Municipalidad procederá de conformidad

@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad de San Pablo cobrará una tasa trimestral por los servicios de limpieza de vías y mantenimiento de zonas verdes y parques o cuando tenga que prestar servicios a los propietarios de bienes inmuebles que omitan el cumplimiento de los deberes indicados en el artículo anterior.
