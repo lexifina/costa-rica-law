@@ -1,0 +1,3 @@
+De la tramitación de las solicitudes
+Artículo 3°—La solicitud se deberá de dirigir a la Secretaría Ejecutiva de la CNCF, la cual dejará constancia con sello de recibido de la hora y fecha de presentación.
+La Secretaría Ejecutiva, dentro de un plazo máximo de 10 días hábiles revisará que la documentación esté completa y la remitirá a la CNCF. Caso contrario comunicará al solicitante para que subsane los defectos u omisiones, para lo cual por una sola vez, le concederá un plazo de hasta 15 días hábiles. Transcurrido ese plazo, sin que el interesado cumpla con lo pedido, su solicitud se tendrá por no presentada y si, archivarán los antecedentes.

@@ -1,0 +1,3 @@
+De la garantía de cumplimiento
+Artículo 7°—La persona física o jurídica que obtenga la acreditación deberá aportar, antes de la publicación oficial, una garantía de cumplimiento por el período de la acreditación, equivalente a cinco por ciento del valor de la póliza de fidelidad vigente para el regente forestal, para lo cual deberá suscribir con la AFE una letra de cambio. El monto de la garantía se ajustará anualmente conforme a los aumentos que sufra la citada póliza.
+La garantía de cumplimiento estará en función de respaldar acciones del ente certificador. En caso de ejecución de la garantía de incumplimiento del ECF, se utilizará para cubrir el costo total o parcial de los daños causados, previa valoración por un equipo profesional electo por la AFE y/o la CNCF.

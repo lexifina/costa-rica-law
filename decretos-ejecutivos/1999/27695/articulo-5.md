@@ -1,0 +1,1 @@
+Artículo 5°—La CNCF analizará el informe del equipo revisor, y procederá a enviar a la AFE el informe de recomendación final sobre la solicitud con indicación del plazo recomendado de vigencia, dentro de un plazo máximo de 15 días hábiles, indicando las razones de su aprobación o desaprobación.

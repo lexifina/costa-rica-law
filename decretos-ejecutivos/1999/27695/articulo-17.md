@@ -1,0 +1,2 @@
+Artículo 17.—Al momento del cese de la acreditación, toda la documentación (informes, registros, archivos, etc.) que sustentan las operaciones certificadas por el ECF, pasarán bajo custodia a la CNCF y deberán ser enviadas de inmediato por el ECF.
+Esta documentación podrá ser traspasada a otro ECF, a solicitud expresa de las empresas forestales, propietarios de bosque o plantaciones involucrados; para que se le de continuidad al proceso de certificación. Cualquier atraso o perjuicio causado por la desacreditación, no, será responsabilidad de la CNCF o la AFE.
