@@ -1,0 +1,1 @@
+Artículo 5º—Los títulos serán denominados en colones y se emitirán en montos mínimos de ¢1.000.000,00. Para montos mayores las denominaciones serán de ¢1.000.000,00, ¢5.000.000,00, ¢10.000.000,00, ¢50.000.000,00 y ¢100.000.000,00.

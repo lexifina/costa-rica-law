@@ -1,0 +1,1 @@
+Artículo 3º—La tasa de rendimiento será la Tasa Básica calculada por el Banco Central de Costa Rica y vigente dos días antes del inicio del semestre correspondiente. Los intereses serán pagaderos semestralmente.

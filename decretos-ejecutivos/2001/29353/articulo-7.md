@@ -1,0 +1,1 @@
+Artículo 7º—Se colocarán en emisiones seriadas, de manera que todos los títulos de una misma serie tendrán la mismas condiciones. Para cada serie ofrecida el Ministerio de Hacienda anunciará previamente la tasa facial a reconocer durante la vida del título.
