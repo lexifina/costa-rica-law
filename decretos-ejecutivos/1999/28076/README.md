@@ -14,3 +14,4 @@ Declara de Interés Cultural Festival Flores de la Diáspora Africana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-31 | la propia norma |
+| 2 | 1999-08-31 | Ley 8 |
