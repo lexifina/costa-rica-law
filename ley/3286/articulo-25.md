@@ -1,0 +1,1 @@
+Artículo 25.- No podrá ser nombrado Director o Subdirector Ejecutivo, Auditor, ni empleado del Patronato, quien hubiere sido miembro de la Junta Directiva, durante los 12 meses inmediatamente anteriores.

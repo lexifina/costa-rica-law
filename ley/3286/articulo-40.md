@@ -1,0 +1,1 @@
+Artículo 40.- Quien se negare a acatar alguna resolución u orden relativa a las atribuciones del Patronato, será sancionado por la autoridad penal competente con arresto de veinte a ciento ochenta días o la multa correspondiente. En caso de reincidencia el arresto será inconmutable. Los que no acaten las órdenes de citación podrán ser conducidos por la Fuerza Pública.

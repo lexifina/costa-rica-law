@@ -1,0 +1,1 @@
+Artículo 23.- El Director Ejecutivo será el administrador general de la institución; el Subdirector Ejecutivo, reemplazará al primero en sus ausencias temporales y tendrá las funciones que la Directiva y el Director Ejecutivo le asignen.

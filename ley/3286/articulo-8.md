@@ -1,0 +1,1 @@
+Artículo 8º.- Entre ellos, y como miembro ex oficio, designado por el Presidente de la República, figurará un Ministro de Gobierno, quien podrá delegar su representación en un funcionario de su Ministerio.
