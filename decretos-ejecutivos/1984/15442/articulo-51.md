@@ -1,0 +1,2 @@
+Artículo 51: Para el caso de solicitudes de permiso de exploración o concesiones de explotación de canteras, la unidad de medida mínima podrá ser inferior a un kilómetro cuadrado. La concesión deberá ajustarse a los límites programados por los planos catastrados del propietario o del derechohabiente, debidamente inscritos.
+En el caso de cauce de ríos deberá presentar un plano de ubicación levantado por un topógrafo debidamente colegiado.

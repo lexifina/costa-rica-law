@@ -1,0 +1,1 @@
+Artículo 30: Para poder tramitar ante la DGMH cualquier gestión de traspaso, arriendo o de explotación indirecta, el titular de una concesión o permiso deberá de haber obtenido previamente el consentimiento de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 37.-El titular deberá adjuntar un original y cuatro copias como mínimo del EIA, firmado por profesional correspondiente. Solo en caso necesario y a solicitud de la DGMH el titular deberá aportar más copias.

@@ -1,0 +1,1 @@
+Artículo 7º: Este programa será analizado por la DGMH la cual se permitirá hacer las sugerencias pertinentes y podrá pedir al interesado que aclare o defina por una sola vez y dentro del plazo improrrogable de 30 días, aspectos controversiales del mismo.

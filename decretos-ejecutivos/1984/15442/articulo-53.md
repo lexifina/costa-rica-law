@@ -1,0 +1,2 @@
+De las servidumbres
+Artículo 53.-Para llevar a cabo el establecimiento de la servidumbre el interesado deberá presentar ante la DGMH una solicitud escrita a este respecto, justificando la petición de la misma e indicando el plazo por el cual se solicita la servidumbre. Con base en dicha solicitud la DGMH realizará una inspección a efecto de establecer la necesidad de la servidumbre, cuyos gastos pagará el interesado.

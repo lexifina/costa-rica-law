@@ -1,0 +1,1 @@
+Artículo 42: El impuesto del 10% establecido en el artículo 54 del Código de Minería, será pagado ante el Banco Central de Costa Rica y este lo girará a la DGMH para dar cumplimiento a los fines establecidos en el precitado artículo.

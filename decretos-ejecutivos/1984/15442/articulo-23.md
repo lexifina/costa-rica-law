@@ -1,0 +1,1 @@
+Artículo 23.-Si la DGMH considera incompleto o incorrecto un informe anual, prevendrá al titular, para que el geólogo o ingeniero de minas responsable mediante anexo cumpla con el requerimiento, en un plazo no mayor de un mes, no pudiendo repetirse este procedimiento. De no cumplirse con lo requerido caducará la concesión de explotación requerida.

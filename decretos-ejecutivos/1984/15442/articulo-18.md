@@ -1,0 +1,1 @@
+Artículo 18: De previo a la aprobación del informe y a criterio de la DGMH se realizará una inspección de campo cuyos gastos serán cubiertos por el titular. La DGMH fijará la fecha de inspección, para la cual deberá estar presente el geólogo o ingeniero de minas responsable del informe.

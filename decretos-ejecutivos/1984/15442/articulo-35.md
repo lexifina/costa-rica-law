@@ -1,0 +1,1 @@
+Artículo 35.-Este EIA deberá ser refrendado por un profesional en ciencias naturales, con afinidad a la actividad minera e incorporado al colegio profesional respectivo, quien será el responsable del contenido del mismo, siendo la aplicación de este responsabilidad del titular del permiso o concesión minera.

@@ -1,0 +1,1 @@
+Artículo 19: El titular de un permiso de exploración podrá iniciar los trámites de una solicitud de explotación, con la presentación del proyecto de explotación correspondiente adjuntada a su solicitud inicial. Cada documento debe ser firmado por el profesional competente.

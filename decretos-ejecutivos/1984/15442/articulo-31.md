@@ -1,0 +1,1 @@
+Artículo 31: La Contraloría General de la República no tramitará ni autorizará el traspaso, arriendo o explotación indirecta sin escuchar el criterio técnico de la DGMH en cuanto a la conveniencia para el Estado de ese acto.
