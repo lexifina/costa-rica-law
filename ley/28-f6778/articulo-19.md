@@ -1,0 +1,1 @@
+Art. 19-Los cursos que dan acceso al examen para el profesorado, son dos, los cuales comprenden todas las materias determinadas en el artículo 49, cuya distribución en la tabla adjunta bajo el número 3, debe observarse.

@@ -1,0 +1,1 @@
+Art. 38. – Así terminado el expediente, lo devolverá el Gobernador al Secretario de Instrucción Primaria, quien en mérito de tales diligencias, decretará se libre el título de maestro ó maestra (según corresponda) de Instrucción Primaria, à favor del postulante, y lo expedirá el mismo Secretario, conforme al modelo adjunto bajo el número 4.

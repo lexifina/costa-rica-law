@@ -1,0 +1,1 @@
+Art. 15.-La matrícula, según se solicite, puede darse para cursar todas las materias de enseñanza, ó únicamente la Pedagogía; mas, el que tome la última tiene el derecho, no obligación de asistir a su arbitrio, a la explicación de cualquiera de los demás ramos del programa.

@@ -1,0 +1,1 @@
+Art. 2° Las escuelas normales son de la privativa dependencia de la Cartera de Instrucción Pública, con cuyo secretario de Estado se comunicarán los maestros de ellas; pero los gobernadores ejercerán, respectivamente, sobre tales establecimientos, celosa inspección, y darán de todo lo que a éstos interese, cuenta á la Secretaría del ramo.

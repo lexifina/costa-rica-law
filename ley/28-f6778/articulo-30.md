@@ -1,0 +1,1 @@
+Art. 30. – El resultado de los exámenes anuales de toda escuela normal, se publicará en el Diario Oficial, con determinación del nombre de cada alumno y del calificativo que en cada materia hubiere merecido
