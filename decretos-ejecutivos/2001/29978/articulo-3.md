@@ -1,0 +1,5 @@
+Artículo 3°—Publicar la "Lista de Valores de Vehículos", incorporándole la totalidad de los valores de referencia para vehículos
+automotores y el respectivo mecanismo para estimar los valores específicos; la totalidad de los valores de referencia registrados en la base de
+datos del Sistema de Información Integral de la Administración Tributaria (SIIAT), cuyas características y valores han sido actualizados en el
+período comprendido entre el 1° de enero de 2001 y el 30 de setiembre de 2001. Se define el valor para los bienes en mención de conformidad
+con la lista adjunta.
