@@ -1,0 +1,1 @@
+Artículo 2º—Alcance de la prohibición. Los funcionarios sujetos a la prohibición, están inhibidos para prestar sus servicios a otras dependencias públicas, independientemente de que exista relación de dependencia y de carácter remunerado o no de tales servicios. Igualmente están inhibidos para desempeñar actividades profesionales en la empresa privada.

@@ -1,0 +1,1 @@
+Artículo 6º—Requisitos para el otorgamiento del beneficio. Para el otorgamiento de la compensación económica prevista en los artículos anteriores, el funcionario deberá acreditar su condición académica, la cual deberá ser afín con la naturaleza y requisitos del puesto.

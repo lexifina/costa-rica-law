@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia de la prohibición. La compensación económica por prohibición regirá a partir del nombramiento del funcionario sujeto a ella, independientemente de su carácter interno o en propiedad, y tendrá vigencia por todo el tiempo que dure el nombramiento del funcionario en el puesto que origina.
