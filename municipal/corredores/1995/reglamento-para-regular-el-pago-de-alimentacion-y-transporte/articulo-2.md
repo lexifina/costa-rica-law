@@ -1,0 +1,2 @@
+Artículo 2.—Los gastos a que se refiere este Reglamento únicamente serán cubiertos a aquellos Regidores y Síndicos propietarios y suplentes que ejerzan el cargo en la Municipalidad de Corredores y siempre y cuando estuvieren presentes durante todo el tiempo que dure la sesión correspondiente:
+a) Se cancelarán gastos de alimentación, cuando el horario de las sesiones coincida con la hora del desayuno, almuerzo o cena, en el siguiente horario 8 a .m., 1 p.m., y 7 p.m., conforme al punto primero de este artículo.

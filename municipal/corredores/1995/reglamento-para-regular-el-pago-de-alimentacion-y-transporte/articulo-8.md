@@ -1,0 +1,1 @@
+Artículo 8.—Bajo ningún concepto se aceptarán pagos de transporte, alimentación y hospedaje, si éstos no están debidamente autorizados por el funcionario que indica el artículo 5 del presente Reglamento.

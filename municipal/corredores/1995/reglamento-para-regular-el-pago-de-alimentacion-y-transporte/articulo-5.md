@@ -1,0 +1,1 @@
+Artículo 5.—Corresponderá al Ejecutivo Municipal de la Municipalidad de Corredores autorizar los gastos de transporte, alimentación y hospedaje de los Regidores y Síndicos propietarios o suplentes dentro del Cantón de Corredores.

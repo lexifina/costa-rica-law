@@ -1,0 +1,1 @@
+Artículo 13.—En todo lo no previsto en el presente Reglamente el mismo se regirá por lo establecido en el Reglamento de Gastos de Viaje y de transporte para Funcionarios Públicos, vigente y aprobado por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4.—Las sumas establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos aprobado por la Contraloría General de la República , son asignaciones máximas, en consecuencia la Municipalidad de Corredores en casos muy especiales que a su Juicio así lo Justifiquen, pueden aplicar tarifas menores a las establecidas en dicho Reglamento.

@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE CORREDORES
+REGLAMENTO PARA REGULAR EL PAGO DE ALIMENTACIÓN
+Y TRANSPORTE DE REGIDORES Y SÍNDICOS MUNICIPALES
+La Municipalidad del Cantón de Corredores de conformidad con los artículos 21 inciso c) 47 y 76 del Código Municipal, éste último reformado por Ley número 7385 del 16 de marzo de 1994 y del acuerdo 16 de la Sesión ordinaria No 101, celebrada el día 14 de julio de 1995, acordó aprobar el presente proyecto de Reglamento para regular el pago de alimentación, transporte y hospedaje de los Regidores y Síndicos propietarios y suplentes, para asistir a las Sesiones del Concejo dentro del Cantón de Corredores, que se regirá por los siguientes artículos:
+Artículo 1°—El presente Reglamento establece las disposiciones generales a que deberán someterse las erogaciones que por concepto de gastos de alimentación, transporte deban realizar los Regidores, y Síndicos propietarios y suplentes que residan a una distancia no menor de cinco kilómetros de la sede Municipal y deban trasladarse para asistir a sesiones del Concejo Municipal de Corredores.

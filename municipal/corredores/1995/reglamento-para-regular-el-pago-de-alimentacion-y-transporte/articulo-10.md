@@ -1,0 +1,1 @@
+Artículo 10.—No se podrá cubrir gastos de transporte, alimentación y hospedaje a los Regidores, Síndicos propietarios y suplentes cuya habitación o residencial no se enmarque dentro de lo establecido en el artículo primero del presente Reglamento.
