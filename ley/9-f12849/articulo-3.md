@@ -1,0 +1,1 @@
+Art 3°.- Para reintegrar la cantidad que hubiese tomado aplicará los sobrantes anuales destinados a la amortización de la deuda del Estado; quedando en el ínterin suspensa la ley de 24 de Marzo de 832.
