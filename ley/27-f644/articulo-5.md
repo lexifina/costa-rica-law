@@ -1,0 +1,1 @@
+Artículo 5.- Toda solicitud para gozar de la gracia que otorga esta ley, será dirigida á la secretaría de Hacienda, acompañada con una información de pobreza y todos los documentos justificativos del parentesco y la edad. El poder Ejecutivo acordará en su caso la pensión.
