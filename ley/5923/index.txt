@@ -8,5 +8,10 @@ articulo-7.md
 articulo-8.md
 articulo-9.md
 articulo-10.md
+articulo-11.md
 articulo-12.md
 articulo-13.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md
+articulo-3-transitorio.md
+articulo-4-transitorio.md
