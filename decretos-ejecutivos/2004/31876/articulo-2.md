@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones públicas tanto del sector centralizado como descentralizado y las instituciones y empresas privadas, podrán colaborar en la medida de sus posibilidades legales con recursos humanos, económicos, materiales, así como cualquier otro, en la realización de este proyecto.
