@@ -1,0 +1,2 @@
+Transitorio.—Aquellos funcionarios públicos que han venido devengando gastos de representación personales continuarán percibiéndolos en la misma forma y monto que los habían percibido hasta antes de la entrada en vigencia de la Ley Nº 8398 o Ley de Presupuesto Ordinario de la República para el Ejercicio Económico del 2004, mientras se mantengan en la misma situación que originó el derecho adquirido.
+Dado en la Presidencia de la República.—San José, a los treinta y un días del mes de marzo del dos mil cuatro.

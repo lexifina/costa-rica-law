@@ -1,0 +1,2 @@
+Artículo 7º—El acuerdo del jerarca que autorice la salida del país podrá también autorizar y fijar el monto del gasto de representación en el exterior y establecer el tipo de atención que el funcionario que goce de esa prerrogativa puede brindar a las personas con que se relacionará en el cumplimiento de su misión.
+Dicho monto, además de ser razonable, debe guardar relación con la categoría del cargo del funcionario que efectúa el gasto y con el evento que lo origina.
