@@ -1,0 +1,12 @@
+DECRETO N°1
+(de 8 de junio)
+Declara no haber lugar a formación de causa contra el Licenciado don Ascensión Esquivel
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+Considerando:
+1° Que según la manifestación hecha por el señor don Juan Rojas a esta Cámara en la declaración que obra en autos, este señor dice con sorpresa ha visto convertir en título de acusación un derecho que sólo a él le correspondería y mucho más en el caso presente, en la firma puesta en el escrito que motiva la acusación, lo fue por el mismo declarante, quien en uso de legítimo derechos pudo hacer suscrito pliegos en blanco y dejarlos en poder de la persona acusada, con lo cual sólo se demuestra la alta y merecida confianza que el señor Rojas tenía en el señor Esquivel.
+2° Que según manifiestan bajo su firma la mayoría de abogados de nuestro Foro en ejercicio, es práctica corriente que los litigantes pongan en manos de sus directores pliegos con su firma en blanco, con objeto de que éstos los llenen con los procedimientos o diligencias necesarias, lo cual sólo demuestra que los miembros del Foro costarricense se han hecho acreedores por su honradez y correctos manejos a la confianza de sus clientes.
+3° Que en el caso presente, el señor Esquivel no ha presentado el escrito que motiva la acusación como abogada que autentica, firmas, sino como parte, que, por consiguiente, si responsabilidad hubiera, no sería por cierto del abogado que se presenta como parte, sino de la Secretaría del Tribunal que admitió un escrito sin que todos los interesados lo presentaran o estuviera debidamente autenticado.
+4° Que aun suponiendo el caso de que la firma del señor Esquivel estuviera garantizado la verdad de las demás firmas que cubrían el escrito, pudo perfectamente hacerlo, sin que las partes firmantes estuvieran presentes, pues la autenticación de una firma no puede significar que ella ha sido puesta a presencia del abogado que autentica, sino que a este le consta que ha sido puesta por la persona interesada, y de conformidad con la fracción 3° del artículo 91 de la Constitución.
+Decreta:
+Articulo único: Se declara que no habiendo en que basar la acusación antes referida, no ha lugar a formación de causa antes referida, no ha lugar a formación de causa contra el Licenciado don Ascensión Esquivel Ibarra, Ministro Plenipotenciario nombrado para la República de Colombia.
+Dado en el Salón de Sesiones del Congreso, Palacio Nacional, a los ocho días del mes de junio de mil ochocientos noventa y seis.
