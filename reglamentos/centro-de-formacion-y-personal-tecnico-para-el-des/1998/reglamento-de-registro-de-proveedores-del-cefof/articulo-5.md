@@ -1,0 +1,1 @@
+Artículo 5°—Forma de pago. Todos los proveedores, por el solo hecho de la incorporarse al Registro de Proveedores, se entiende que aceptan y se someten a la forma de pago establecida por el CEFOF, que será de crédito a 30 días a partir de su entrega. Quedan a salvo las excepciones que se dispongan expresamente en la respectiva invitación a participar.

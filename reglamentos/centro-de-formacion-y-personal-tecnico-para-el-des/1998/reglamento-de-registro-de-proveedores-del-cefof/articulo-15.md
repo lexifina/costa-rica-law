@@ -1,0 +1,1 @@
+Artículo 15.—Existirá la facultad de exclusión unilateral de Registro de Proveedores por parte de la Administración, previo procedimiento de traslado cuando las circunstancia lo ameriten, previa comunicación al proveedor, que en caso de inconformidad, podrá recurrir la actuación por medio de los recursos ordinarios que establece la ley.

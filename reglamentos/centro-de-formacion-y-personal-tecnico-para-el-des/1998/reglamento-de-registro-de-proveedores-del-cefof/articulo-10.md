@@ -1,0 +1,1 @@
+Artículo 10.—Las personas físicas o jurídicas que se inscriban se obligan a informar oportunamente cualquier cambio que ocurra en la empresa, ya sea en los productos registrados o cambios en poderes otorgados.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuando a un proveedor se le aplique el debido procedimiento de traslado se dará una sanción o exclusión para contratar con la institución, con apego a la regulación que sobre la materia contenga el ordenamiento jurídico, tal circunstancia se hará constar en el Registro de Proveedores.
