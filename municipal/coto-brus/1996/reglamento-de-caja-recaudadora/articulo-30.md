@@ -1,0 +1,2 @@
+Artículo 30.—La Caja Recaudadora Auxiliar estará a cargo del Tesorero Municipal, quien deberá efectuar el cierre diario de la misma, observando la corrección de los cálculos relativos al estado de caja y verificar la consecutividad numérica de los comprobantes de ingreso correspondientes; confeccionará el correspondiente depósito del dinero recaudado y mantendrá en custodia en la Caja Fuerte de la Municipalidad, el fondo fijo de la Caja Auxiliar.
+(Así adicionado mediante sesión N° 92 del 19 de febrero del 2000).
