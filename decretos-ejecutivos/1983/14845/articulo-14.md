@@ -1,0 +1,1 @@
+Artículo 14.-La condición de refugiado se reconocerá por extensión a los menores de edad dependientes del refugiado hasta el segundo grado por consanguinidad o afinidad y al cónyuge o compañero a quienes se le otorgarán los documentos establecidos en el artículo 13.

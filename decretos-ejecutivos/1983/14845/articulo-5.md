@@ -1,0 +1,2 @@
+Artículo 5º.-El abogado, Jefe de la Oficina de refugiados, hará un informe evaluativo sobre la apreciación general de los hechos expuestos y sobre la validez de la solicitud, inspirado en los principios de la Convención y en las situaciones imperantes en el país de origen, así como en los principios de la buena fe y credibilidad del aplicante y presentará sus recomendaciones al Director General del Migración.
+La Oficina de Refugiados podrá dar audiencia por el plazo de tres días al ACNUR, para que manifieste su criterio sobre la solicitud.

@@ -1,0 +1,1 @@
+Artículo 7º.-El Director General de Migración decidirá sobre la condición de refugiado, según lo establecido por el Decreto Ejecutivo Nº 13964-G tomando en cuenta la recomendación de la Oficina para Refugiados. Dicha decisión deberá ser tomada dentro de los treinta días siguientes a que se complete el expediente personal previsto en el artículo anterior.
