@@ -63,18 +63,16 @@ Artículo 7°—Las fincas inscritas en el Registro Público y las amparadas por
 Artículo 8°—Las fincas no comprendidas en el artículo anterior formarán parte del patrimonio forestal del Estado, previos los trámites legales.
 Artículo 9°—La Dirección General Forestal podrá celebrar convenios con la Universidad de Costa Rica, la Universidad Nacional, el Instituto Interamericano de Ciencias Agrícolas, el Centro Agronómico Tropical de Investigaciones y Enseñanza (CATIE), con las dependencias del Gobierno Central, los entes autónomos y semiautónomos y los organismos internacionales, tendientes a la organización de estudios experimentales, construcciones, y cualquier otra actividad afín, dentro de la demarcación de la reserva.
 Artículo 10.—La administración de la Reserva Forestal Cordillera Volcánica Central, está a cargo de la Dirección General Forestal con la colaboración de un “Comité Interinstitucional Permanente”, integrado por representantes de cada una de las siguientes instituciones:
--Ministerio de Agricultura y Ganadería (Programa Regional Forestal Zona Atlántica).
--Ministerio de Planificación Nacional y Política Económica.
--Instituto Costarricense de Electricidad.
--Instituto Nacional de Acueductos y Alcantarillados.
--Municipalidad de Siquirres, Pococí, Guácimo y Sarapiquí.
--Ministerio de Obras Públicas y Transportes.
--Dirección Nacional de Desarrollo Comunal.
--Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.
--Instituto de Desarrollo Agrario.
--Ministerio de Gobernación y Policía.
--Servicio de Parques Nacionales.
--Centros Agrícolas Cantonales (Siquirres, Pococí, Guácimo, Sarapiquí).
--Ministerio de Trabajo y Seguridad Social.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 17489 del 8 de abril de 1987)
+(*) Dos representantes del Ministerio de Recursos Naturales, Energía y Minas, uno por la Dirección General Forestal y otro por el Servicio de Parques Nacionales.
+Un representante del Instituto Costarricense de Electricidad.
+Un representante del Instituto de Acueductos y Alcantarillados.
+Un representante del Ministerio de Obras Públicas y Transportes.
+Un representante de cada una de las municipalidades de Siquirres, Pococí, Guácimo y Sarapiquí.
+Un representante de la Dirección Nacional de Desarrollo Comunal.
+Un representante del Instituto de Desarrollo Agrario.
+Un representante del Instituto Costarricense de Turismo.
+Un representante del Ministerio de Gobernación y Policía.
+Un representante de la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.
+Un representante por las comunidades involucradas.
+(*) (Así reformado mediante los artículos 1° y 2° del decreto ejecutivo N° 18075 del 18 de diciembre de 1987).
 Artículo 11.—La financiación del proyecto se hará con préstamos de instituciones internacionales, con el presupuesto ordinario y con las partidas que para este fin aprueben las instituciones mencionadas en el artículo anterior".

@@ -14,3 +14,4 @@ Reforma Integral Establece Reserva Forestal Cordillera Volcánica Central
 | --- | --- | --- |
 | 1 | 1975-10-28 | la propia norma |
 | 2 | 1987-04-08 | Decreto Ejecutivo 17489 (1987-04-08) |
+| 3 | 1987-12-18 | Decreto Ejecutivo 18075 (1987-12-18) |
