@@ -1,0 +1,1 @@
+Transitorio único. Los asuntos que al inicio de la vigencia de estas disposiciones se encuentren pendientes de resolución en las materias aquí reguladas serán de conocimiento de la Gerencia de Asesoría y Gestión Jurídica, y resueltas por el Gerente de División, quien podrá incorporar al acto de la resolución a cualquiera de los otros funcionarios del colegio.
