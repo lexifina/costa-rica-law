@@ -1,0 +1,3 @@
+Artículo 3º—Otorgamiento de permisos. Para la obtención de permisos sanitarios de funcionamiento para organizar espectáculos públicos, además de los ya establecidos en la Ley General de Salud, Reglamento para el Otorgamiento de los Permisos Sanitarios de Funcionamiento por parte del Ministerio de Salud, Reglamento de Construcciones, y demás normativa aplicable, el organizador o responsable de la actividad, deberá cumplir con los siguientes requisitos:
+a) Contemplar y demarcar en el plano del sitio, los espacios reservados para personas con discapacidad.
+b) Aportar un plan de emergencias que contemple la evacuación, expedita y segura para personas con movilidad reducida.

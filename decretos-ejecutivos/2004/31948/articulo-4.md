@@ -1,0 +1,1 @@
+Artículo 4º—Proporcionalidad. La suma de los espacios reservados será igual al 5% del aforo; dentro de ese 5%, uno de cada cinco espacios o el 20% de los espacios reservados o fracción, deberá destinarse a personas que utilicen sillas de ruedas. Los demás espacios se destinarán a personas con otras discapacidades.

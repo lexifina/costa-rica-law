@@ -1,0 +1,4 @@
+Artículo 8º—Disposiciones sobre espacios en graderías.
+a) Los espacios reservados en graderías, deben tener una clara y fuerte diferenciación cromática entre la huella y la contrahuella o sea, plano horizontal y vertical.
+b) Las circulaciones verticales que den acceso a los espacios reservados, cumplirán con lo estipulado en el Decreto Ejecutivo Nº 26831-MP publicado en La Gaceta Nº 75 del 20 de abril de 1998, el cual reglamenta la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Nº 7600, y con lo que para los efectos establece el Instituto de Normas Técnicas de Costa Rica, en las normas INTE.03-01-08-02; 03-01-06-02 y 03-01-04-02.
+c) En graderías de auditorios, teatros, cinemas y salas de proyecciones u otros espacios diseñados en pendiente, las áreas reservadas estarán colocadas en el mismo nivel de las circulaciones de entrada y salida.

@@ -1,0 +1,8 @@
+Artículo 7º—Disposiciones sobre el espacio físico reservado para personas con movilidad reducida. Será obligatorio para el organizador o responsable del espectáculo público:
+a) Mantener los espacios de acceso y salida de personas con movilidad reducida, u otras discapacidades, libres de mobiliario u otros objetos en el piso y en una proyección vertical desde el nivel de piso terminado hasta 2,10 metros.
+b) Los espacios reservados para usuarios de sillas dé ruedas, muletas, animales de asistencia o cualquier otra ayuda técnica, deberán estar dispuestos de tal forma que la persona pueda movilizarse libremente sin perjuicio de su limitación, tomándose en cuenta la presencia de dichas ayudas técnicas, o incluso, de un acompañante.
+c) Los espacios tendrán que estar demarcados con el símbolo internacional de accesibilidad, según lo establece el Instituto de Normas Técnicas de Costa Rica en su norma INTE.03-01-12-02 a nivel de piso; con dimensiones mínimas de 0,5 metros x 0,5 metros y otro en un plano vertical, cuando se pueda instalar, con dimensiones mínimas de 0,15 metros x 0,15 metros.
+d) El nivel de piso terminado del espacio reservado, deberá ser horizontal y sin accidentes.
+e) La textura del piso de los espacios reservados, debe ser antideslizante en toda su extensión y desde el pasillo que los sirve.
+f) En las áreas reservadas para sillas de ruedas, se considerará como mínimo un espacio individual de 0,80 metros x 1,20 metros, cuando el acceso sea frontal y de 1,60 metros x 1,50 metros, cuando el ingreso sea lateral.
+g) En los espacios reservados en auditorios, teatros u otros sitios diseñados en pendiente, los espacios reservados estarán colocados en el mismo nivel de las circulaciones de salida y entrada.

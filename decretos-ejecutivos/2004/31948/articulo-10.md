@@ -1,0 +1,1 @@
+Artículo 10.—Del espacio físico destinado para personas con baja visión. Quienes presentan baja visión, deben ubicarse en los primeros asientos del área reservada para personas con discapacidad, para facilitar su visibilidad.
