@@ -1,1 +1,0 @@
-Artículo 11.-La Oficina Ejecutora estudiará, y en su caso, aprobará y tramitará la solicitudes de desembolso ante el BCCR, para que este proceda a transferir de la cuenta especial del FONDO, a las cuentas bancarias de las instituciones beneficiarias, los desembolsos aprobados.

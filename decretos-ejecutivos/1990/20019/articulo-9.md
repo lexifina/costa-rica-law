@@ -1,9 +1,0 @@
-Artículo 9°-Las funciones de la Oficina Ejecutora serán:
-a) Apoyar la ejecución de los proyectos y contribuir para que se cumplan en forma oportuna los objetivos y metas de los mismos.
-b) Supervisar y controlar la ejecución de los proyectos financiados con recursos del FONDO, mediante visitas a los mismos, velando porque los responsables de estos presenten los informes de avance físico y financiero de los proyectos con la periodicidad indicada en los Convenios Interinstitucionales que habrán de elaborarse entre el CONSEJO y entes beneficiarios.
-c) Elaborar para todo proyecto de desarrollo que se financie con recursos del FONDO un convenio de Cooperación Interinstitucional, en el cual se deberán establecer los objetivos del proyecto, las cláusulas que regularán su ejecución y los compromisos de los beneficiarios del FONDO. Estos convenios serán suscritos por el Consejo y el representante legal de la institución beneficiada y deberán ser refrendados por la Contraloría General de la República.
-d) Presentar al CONSEJO para su aprobación, los proyectos de convenios de cooperación a suscribirse con las instituciones beneficiadas por el FONDO.
-e) Evaluar de previo los sistemas de control financiero-contable de las instituciones beneficiarias del FONDO y hacer las recomendaciones que considere pertinentes.
-f) Presentar al CONSEJO, informes semestrales generales y específicos de ejecución del FONDO Y de los Proyectos.
-g) Establecer los procedimientos de inspección y control que estime convenientes y las medidas correctivas que sean necesarias, para asegurar el desarrollo satisfactorio del Programa, para ello podrá solicitar auditorias externas independientes, cuando lo considere necesario, las cuales serán financiadas con los recursos del FONDO, previa aprobación del CONSEJO.
-h) Ejecutar cualesquiera otras disposiciones emanadas del CONSEJO.
