@@ -1,0 +1,1 @@
+Art 18°.- Siendo la carretera un objeto de intereses vital para toda la nación, cuando falten peones, carteros, cocineras, etc, etc, para las obras que se ejecuten, los Señores Gobernadores y Alcaldes vecinos, deberán obligar a ir a todos los que los que Superintendentes pidan abonándoles su debido salario.
