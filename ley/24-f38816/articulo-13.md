@@ -1,0 +1,1 @@
+Art. 13.-Se sustituyen las palabras finales del artículo 47, que dicen: "Jefe del Gobierno y á la Secretaría de la Convención Nacional", por estas: "Secretaría de Estado en el despacho de Gobernación y al Congreso Constitucional". La fracción segunda queda en vigor.
