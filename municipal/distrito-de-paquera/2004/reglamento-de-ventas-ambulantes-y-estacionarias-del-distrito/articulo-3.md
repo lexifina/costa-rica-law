@@ -1,0 +1,1 @@
+Artículo 3º—La licencia deberá ser solicitada por escrito en papel sellado y aportar recibo de contribución a la Cruz Roja, por ¢1000,00, acompañada del estudio socioeconómico de las instituciones que indica la Ley.
