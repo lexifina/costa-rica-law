@@ -1,0 +1,4 @@
+Artículo 257 bis.—En el transcurso de la molienda, cuando la producción real del ingenio exceda el % AM, establecido conforme al artículo anterior, en 7 o más kilogramos de miel final, se deberá reconocer dicho remanente, en forma retroactiva al inicio de la molienda, a toda la caña entregada, equivalente en miel final, ajustando el % AM de tal manera que el remanente, durante el periodo que corresponda, no sea inferior al equivalente a 5 kilogramos de miel final.
+Al concluir la molienda el remanente que existiera, una vez hechos los ajustes anteriores, será reconocido a toda la caña entregada en su equivalente en miel final.
+Los ajustes mencionados serán comunicados conforme al procedimiento previsto en el artículo 256.
+(Así adicionado por el artículo 2 del Decreto Ejecutivo N° 30270 de 19 de marzo del 2002)
