@@ -1,0 +1,1 @@
+Artículo 17.—El Comité Cantonal, deberá comunicar al ICODER los nombramientos de los Comités Comunales, las Juntas Administradoras de instalaciones y Comités Administradores de instalaciones de instituciones educativas.

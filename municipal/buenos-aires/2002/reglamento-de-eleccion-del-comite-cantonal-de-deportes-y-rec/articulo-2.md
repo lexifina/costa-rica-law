@@ -1,0 +1,1 @@
+Artículo 2º—El domicilio legal del Comité Cantonal de Deportes y Recreación, será la Ciudad de Buenos Aires de Cantón de Buenos Aires, de la provincia de Puntarenas, su sede puede variar temporalmente para situaciones especiales.

@@ -1,0 +1,1 @@
+Artículo 4º—El Comité Cantonal en su carácter de Órgano rector del deporte, será el único facultado para atribuir la potestad de representación del cantón de Buenos Aires a equipos o atletas en los campeonatos o torneos nacionales e internacionales.
