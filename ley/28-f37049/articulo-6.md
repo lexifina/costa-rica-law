@@ -1,0 +1,1 @@
+Artículo 6°—Las Tesorerías cantonales de Enseñanza Primaria que tengan asiento en las capitales de provincia, permanecerán abiertas todos los días hábiles durante las horas de servicio determinadas por el Poder Ejecutivo, para las oficinas de su dependencia; y las demás, tres días por semana señalados de acuerdo con la autoridad política local.

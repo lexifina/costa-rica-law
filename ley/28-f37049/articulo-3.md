@@ -1,0 +1,1 @@
+Artículo 3°—Bajo ningún pretexto deben distraerse los fondos de un distrito escolar de los objetos que determina la ley, ni tomar el dinero perteneciente á un distrito para hacer frente á los gastos ocasionados en otro.
