@@ -13,3 +13,4 @@ Regula Descarga de Agentes Contaminantes en los Cuerpos de Agua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-04-21 | la propia norma |
+| 2 | 1995-04-21 | Decreto Ejecutivo 26042 (1997-04-14) |
