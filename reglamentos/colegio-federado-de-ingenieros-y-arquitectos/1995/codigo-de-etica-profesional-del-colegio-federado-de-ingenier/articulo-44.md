@@ -1,0 +1,1 @@
+Artículo 44.- Se impondrá suspensión de uno a dos años, a quien revelare datos reservados de carácter técnico, financiero o personal, sobre los intereses confiados a su estudio o custodia por clientes o empleadores.

@@ -1,0 +1,1 @@
+Artículo 37.- Se impondrá suspensión de seis meses a dos años, a quien participare en competencia desleal sobre la base de un precio inferior al mínimo establecido por las tarifas del Colegio Federado de Ingenieros y de Arquitectos para conseguir un encargo profesional.

@@ -1,0 +1,1 @@
+Artículo 34.- Se impondrá suspensión de seis meses a dos años al miembro del Colegio Federado de Ingenieros y de Arquitectos que sin estar autorizado para ello, ejerza funciones propias de otra profesión.

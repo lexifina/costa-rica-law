@@ -1,0 +1,1 @@
+Artículo 31.- Se impondrá suspensión de seis meses a dos años a quien violare o entrare en complicidad para que otros violen las leyes del Colegio Federado, sus reglamentos, normas, acuerdos y disposiciones que emitan los órganos del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica relacionados con el ejercicio profesional.

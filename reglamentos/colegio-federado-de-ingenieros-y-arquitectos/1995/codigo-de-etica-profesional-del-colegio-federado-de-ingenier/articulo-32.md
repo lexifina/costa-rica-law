@@ -1,0 +1,1 @@
+Artículo 32.- Se impondrá amonestación confidencial o suspensión hasta de seis meses, a quien hiciere propaganda con lenguaje de propia alabanza utilizando términos superlativos que exalten sus cualidades en forma desmedida o de cualquier otra manera que afecte la dignidad de la profesión.
