@@ -1,0 +1,1 @@
+Artículo 25.-La comisión de becas estará integrada por el Alcalde Municipal, el jefe de recursos humanos, el director administrativo, un regidor y un funcionario de la Municipalidad nombrado por la Asociación Solidarista.

@@ -1,0 +1,1 @@
+Artículo 2°-Las becas a que se refiere este reglamento serán otorgadas a los empleados de la Municipalidad de Belén que tengan nombramiento en propiedad y que hayan laborado para la institución dos años como mínimo.
