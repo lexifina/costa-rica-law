@@ -14,3 +14,4 @@ Reglamento sobre las exoneraciones a vehículos de transporte público de person
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-23 | la propia norma |
+| 2 | 2003-11-05 | Decreto Ejecutivo 31442 (2003-11-05) |

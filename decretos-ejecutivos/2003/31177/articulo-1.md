@@ -24,7 +24,8 @@ d) Policía de Control Fiscal: Dependencia del Ministerio de Hacienda, con facul
 e) Beneficiario de la exoneración: Persona física que tenga un contrato de concesión administrativa formalizado para la explotación del servicio de transporte remunerado de personas en la modalidad taxi, firmado con el Consejo de Transporte Público.
 f) Ley Nº 7293 de fecha 31 de marzo de 1992, publicada en La Gaceta Nº 66 de fecha 3 de abril de 1992: Ley Reguladora de todas la Exoneraciones Vigentes, su Derogatoria y sus Excepciones.
 g) Ley Nº 7969 de fecha 22 de diciembre de 1999, publicada en La Gaceta Nº 20 de fecha 28 de enero de 2000: Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi.
-h) Vehículo nuevo: Vehículo automotor del año modelo igual o mayor al vigente.
+h) Vehículo nuevo: Vehículo automotor con año de comercialización del modelo igual, mayor o inmediatamente inferior al año vigente, que no ha sido inscrito ni utilizado por un usuario final anteriormente y cuenta con la garantía del fabricante y/o de su distribuidor autorizado.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31442 del 29 de setiembre de 2003, publicado en La Gaceta No. 213 de 02 de setiembre de 2003, Alcance N° 51.)
 i) Tecnología tradicional: Aquella que utiliza combustible tradicional.
 j) Combustible tradicional: Se considera como combustible tradicional, la gasolina y el diesel.
 k) Tecnología limpia: Conjunto de procedimientos o sistemas industriales utilizados por vehículos automotores que permite utilizar fuentes energéticas, que emiten a la atmósfera un grado de tóxicos significativamente menor o nulo respecto de las tecnologías tradicionales.
