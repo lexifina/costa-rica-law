@@ -1,0 +1,1 @@
+Artículo 5°-Es obligatorio el empleo de una vacuna Brucella Abortus Cepa XIX, como medio profiláctico, en las zonas y hatos que el Departamento de Veterinaria estime conveniente para fines de control.

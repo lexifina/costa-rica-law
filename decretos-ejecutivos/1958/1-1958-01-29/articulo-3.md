@@ -1,0 +1,1 @@
+Artículo 3°-Los animales bovinos que resulten con reacción positiva en la prueba de seroaglutinación serán marcados en forma indeleble en la mejilla derecha, y los de las otras especies con un arete en la oreja.
