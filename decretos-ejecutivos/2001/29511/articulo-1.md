@@ -129,3 +129,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gastos para el año 2002 del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, por el artículo 1 del Decreto Ejecutivo N° 30162 de 24 de enero 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Museo Nacional de Costa Rica para el año 2002 , por el artículo 1 del Decreto Ejecutivo N° 30153 de 30 de enero 2002)
 (Modificado el límite de gasto presupuestario y efectivo del Colegio Universitario de Alajuela para el año 2002 , por el artículo 1 del Decreto Ejecutivo N° 30203 de 4 de febrero 2002)
+(Modificado el límite de gastos para el año 2002 de la Dirección de Servicios Fitosanitarios del Estado , por el artículo 1 del Decreto Ejecutivo N° 30161 de 6 de febrero del 2002)
