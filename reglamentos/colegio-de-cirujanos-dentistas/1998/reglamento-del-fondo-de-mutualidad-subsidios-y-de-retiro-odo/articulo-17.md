@@ -1,1 +1,1 @@
-Artículo 17.—De conformidad con lo dispuesto por la Ley del Timbre Odontológico No 3752 del 4 de octubre de 1966, en el aparte c) del inciso 5), deducidos los gastos de administración y comisión que corresponden al banco administrador por concepto de venta del timbre odontológico, la Junta Directiva deberá asegurar que se aparte anualmente una suma para el Fondo de Mutualidad y Subsidios, que nunca podrá ser menor del 10% de la entrada global
+Artículo 17—Derogado en Asamblea General Extraordinaria, celebrada el día 15 de mayo de 2003.

@@ -1,1 +1,1 @@
-Artículo 4°—La Junta Directiva deberá exigir a través del contrato responsabilidad fiduciaria al ente administrador que se contrate, que ejerza una actividad discrecionaria o control sobre el manejo del Fondo, su administración y la de sus activos contables.
+Artículo 4.—La Junta Directiva deberá exigir a través del contrato responsabilidad fiduciaria al ente administrador que se contrate, que ejerza una actividad discrecionaria o control sobre el manejo del Fondo, su administración y la de sus activos contables.

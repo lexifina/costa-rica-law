@@ -1,1 +1,1 @@
-Artículo 11.—La edad para comenzar a disfrutar del beneficio de vejez se fija en los sesenta años de edad. A partir de esta edad, el beneficiario recibirá el beneficio en forma vitalicia. Lo anterior no implica retiro automático del ejercicio profesional privado o institucional
+Artículo 11.—La edad para comenzar a disfrutar del beneficio de vejez se fija en los sesenta años de edad. A partir de esta edad, el beneficiario recibirá el beneficio en forma vitalicia. Lo anterior no implica retiro automático del ejercicio profesional privado o institucional.

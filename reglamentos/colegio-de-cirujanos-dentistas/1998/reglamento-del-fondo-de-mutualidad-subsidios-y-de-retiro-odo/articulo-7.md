@@ -1,1 +1,1 @@
-Artículo 7°—Tendrá derecho al beneficio de invalidez aquel miembro que demuestre a satisfacción de la Junta Directiva que se encuentra incapacitado para dedicarse al ejercicio de su profesión y que la causa de su invalidez sea permanente e irrecuperable.
+Artículo 7—Tendrá derecho al beneficio de invalidez aquel miembro que demuestre a satisfacción de la Junta Directiva que se encuentra incapacitado para dedicarse al ejercicio de su profesión y que la causa de su invalidez sea permanente e irrecuperable.
