@@ -1,0 +1,1 @@
+Artículo 2°.- El producto de ese empréstito lo destinará en su totalidad a procurar la construcción de cañerías en los barrios del cantón donde no existan y a la reconstrucción de la cañería de la ciudad de Naranjo.

@@ -1,0 +1,1 @@
+Artículo 4°.- La suma emprestada devengará intereses del 6% anual y será pagada con amortizaciones de veinte mil colones (¢20,000.00) anuales, con los ingresos que perciba la Municipalidad anualmente por concepto de ese impuesto.
