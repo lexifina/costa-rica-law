@@ -1,1 +1,0 @@
-Artículo 2°.- La cantidad de un millón quinientos mil colones (¢ 1.500.000,00) que queda disponible en virtud de las reducciones expresadas, la dedicará el Banco Internacional de costa Rica, a préstamos agrícolas garantizados con primera hipoteca de finca rurales en explotación.
