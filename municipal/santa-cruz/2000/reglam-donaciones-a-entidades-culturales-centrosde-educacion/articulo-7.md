@@ -1,0 +1,1 @@
+Artículo 7º—Deberán las entidades beneficiadas, cuando así lo solicite el Concejo Municipal, rendir un informe y documentos contables, para verificar la forma en que fueron invertidos los dineros o ayudas de materiales donados por la Municipalidad de Santa Cruz, o en su defecto los avances de obras.

@@ -1,0 +1,1 @@
+Artículo 2º—Que la entidad o grupo organizado interesado en ser merecedor de los beneficios antes descritos, deberá solicitarlo por escrito al Alcalde Municipal de Santa Cruz, demostrando que realiza actividades, servicios, obras o ayudas comunales que son de gran importancia e interés para el cantón de Santa Cruz y sus ciudadanos.

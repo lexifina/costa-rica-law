@@ -1,0 +1,1 @@
+Artículo 8º—Una vez entregado el estudio e informe de la Comisión de Presupuesto, el Concejo Municipal lo conocerá y someterá a discusión y votación, mismo que podrá ser aprobado o improbado por mayoría simple.

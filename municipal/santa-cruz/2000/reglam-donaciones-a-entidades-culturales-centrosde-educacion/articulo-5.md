@@ -1,0 +1,1 @@
+Artículo 5º—Que los personeros representantes de las entidades, se comprometen mediante la suscripción de un Convenio con la Municipalidad de Santa Cruz a que los dineros o ayudas sean exclusivamente usados para lo que se solicita.

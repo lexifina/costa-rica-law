@@ -1,0 +1,1 @@
+Artículo 3º—toda entidad deberá estar inscrita en el registro que legalmente le corresponde y contar con su respectiva Cédula de Persona Jurídica y contar con la Personería de sus Representantes Vigentes.

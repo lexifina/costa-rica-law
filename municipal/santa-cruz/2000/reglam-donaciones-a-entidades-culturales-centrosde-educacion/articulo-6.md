@@ -1,0 +1,1 @@
+Artículo 6º—Que el Concejo Municipal, previo ha aprobar o improbar la petición hecha por la entidad interesada, deberá enviarla a la Comisión de Hacienda y Presupuesto, la cual deberá rendir informe al Concejo recomendado o no la petición solicitada, el plazo máximo es de 15 días hábiles, después de que el Concejo haya acordado enviarlo a estudio e informe.
