@@ -14,3 +14,4 @@ Reglamento Interno del Centro de Resolución de Conflictos del Colegio Federado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-11 | la propia norma |
+| 2 | 2004-05-13 | Reglamento 22 (2004-05-13) |
