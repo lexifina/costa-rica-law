@@ -1,0 +1,1 @@
+Artículo 97.—El adjudicatario rendirá una garantía de cumplimiento que tiene por objeto asegurar al Ministerio de Relaciones Exteriores y Culto la ejecución del contrato conforme con los términos del cartel y la oferta. Se regirá también por el Reglamento susodicho.

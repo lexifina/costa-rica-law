@@ -1,0 +1,1 @@
+Artículo 115.—Una vez refrendada la “Orden de Compra” se podrá entregar a la casa comercial contra la presentación del recibo extendido por el Departamento Financiero, en el que se haga constar que se depositó la garantía de cumplimiento.

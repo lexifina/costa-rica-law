@@ -1,0 +1,1 @@
+Artículo 48.—Esta Comisión tiene la función de asesoría, dirigida hacia la Autoridad Superior del Ministerio y la Proveeduría en lo referente a contratos administrativos y hacia los funcionarios o unidades que requieran de sus recomendaciones por encargo específico y en cumplimiento de sus actividades.

@@ -1,0 +1,1 @@
+Artículo 58.—La Auditoría Interna dentro de sus atribuciones fiscalizará en. forma posterior la correcta aplicación de las normas y procedimientos indicados en este Reglamento, la Ley de la Administración Financiera de la República, el Reglamento de la Contratación Administrativa y todas las demás formalidades impuestas por el sistema de control interno vigente.

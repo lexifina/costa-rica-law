@@ -1,0 +1,1 @@
+Artículo 96.—Toda oferta deberá acompañarse de una garantía de participación que se regirá por las normas establecidas en el capítulo 4? del título III del Reglamento de la Contratación Administrativa.

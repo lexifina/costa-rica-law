@@ -1,0 +1,1 @@
+Artículo 69.—Una vez concluidos los pasos del artículo anterior, la Unidad de Planeación de Compras remitirá la información a la Jefatura de la Proveeduría; para que, esta última, ordene se proceda a confeccionar el documento “Solicitud de Mercancías y Servicios”.

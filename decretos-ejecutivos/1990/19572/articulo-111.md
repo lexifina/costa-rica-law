@@ -1,0 +1,1 @@
+Artículo 111.—Toda adjudicación se hará a la persona física o jurídica que aparece en la propuesta correspondiente, como el oferente. Ningún contrato, pedido u orden de compra podrá ser traspasado a terceros sin el consenso previo del Ministerio de Relaciones Exteriores y Culto y de la Contraloría General de la República.

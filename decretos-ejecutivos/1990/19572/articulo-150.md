@@ -1,0 +1,1 @@
+Artículo 150.—Cualquier falta o contravención al presente Reglamento, se reputará como falta grave y será sancionada de conformidad con lo que dispone el Reglamento Interior de Trabajo del Ministerio, el Código de Trabajo y leyes conexas.

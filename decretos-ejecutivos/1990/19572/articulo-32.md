@@ -1,0 +1,1 @@
+Artículo 32.—El objetivo fundamental de la Sección de Evaluación y Control es procurar que los bienes y servicios se entreguen en el tiempo y lugar convenidos con las características específicas y en las calidades y cantidades que se solicitaron.

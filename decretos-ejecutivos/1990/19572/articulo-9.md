@@ -1,0 +1,1 @@
+Artículo 9°—La Sección de Planeación de Compras tiene como objeto fundamental conocer los bienes y servicios que requerirá la dependencia; en qué cantidad y calidad; con qué características y especificaciones técnicas; el tiempo y el lugar en que se necesitarán; y la jerarquía o prioridad que les corresponde en el programa anual de adquisiciones.

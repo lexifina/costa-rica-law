@@ -1,0 +1,1 @@
+Artículo 122.—Cuando se promueva una licitación privada se procurará invitar a participar a los interesados que figuren en la lista de registro de proveedores potenciales. Si el número de inscritos hace impráctico invitar a todos ellos, en futuras contrataciones se tratará de darles oportunidad a los no seleccionados en la inmediata anterior.

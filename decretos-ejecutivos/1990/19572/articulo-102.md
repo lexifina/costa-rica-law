@@ -1,0 +1,1 @@
+Artículo 102.—Recibida formalmente una oferta, no podrá ser retirada. Si el oferente deseare dejarla sin efecto o introducirle alguna modificación, deberá hacerlo por escrito antes de la apertura de ofertas, indicando en forma clara la oferta que enmienda en sobre cerrado que entregará a la Proveeduría, y en e) que se indicará la hora y fecha de recibo.

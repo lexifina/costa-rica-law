@@ -1,0 +1,1 @@
+Artículo 70.—La Jefatura de la Proveeduría procederá a refrendar la solicitud de mercancías y servicios, y además, buscará la firma del Ejecutor del Programa correspondiente, de acuerdo con el artículo 15 del Reglamento de la Contratación Administrativa, incisos b) y c).

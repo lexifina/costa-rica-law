@@ -1,0 +1,1 @@
+Artículo 99.—Las ofertas y la literatura que se acompañe deben ser presentadas en el idioma español. Si la literatura fuera en otros idiomas porque el cartel lo permite, se acompañará la traducción al español bajo la exclusiva responsabilidad del oferente. El representante de casas extranjeras no está autorizado como tal para presentar traducciones a la literatura aportada.

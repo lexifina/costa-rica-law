@@ -1,0 +1,1 @@
+Artículo 4°—La Proveeduría tendrá como objetivo principal garantizar la oportuna disponibilidad de los bienes y servicios requeridos para el cumplimiento eficaz y eficiente de las actividades sustantivas y de apoyo de las dependencias del Ministerio.

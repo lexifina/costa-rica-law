@@ -1,0 +1,1 @@
+Artículo 73.—La Proveeduría clasificará por monto y por objeto del gasto las solicitudes que queden o que devuelva el Fondo Circulante sin cotizar o cotizadas parcialmente, para proceder a definir el procedimiento de contratación administrativa a seguir.

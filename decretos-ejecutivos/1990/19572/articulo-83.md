@@ -1,0 +1,1 @@
+Artículo 83.—Definida la adjudicación, la Jefatura de la Proveeduría ordenará la confección de la orden de compra y gestionará el refrendo correspondiente, luego de lo cual entregará el original del documento a la casa comercial adjudicataria.

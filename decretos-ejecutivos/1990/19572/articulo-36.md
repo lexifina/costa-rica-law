@@ -1,0 +1,1 @@
+Artículo 36.—El objetivo fundamental de la sección de Almacén es mantener las existencias en un nivel óptimo en cuanto a cantidades disponibles, control de inventarios, condiciones ambientales y de seguridad de los materiales.

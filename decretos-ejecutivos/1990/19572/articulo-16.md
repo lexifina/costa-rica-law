@@ -1,0 +1,1 @@
+Artículo 16.—Las unidades destinatarias deben reportar sus adquisiciones fuera del programa, mediante requisiciones que contengan los datos relativos a las especificaciones de los bienes requeridos del programa original o de un aumento del mismo. En ambas circunstancias, se procederá a hacer el ajuste respectivo al programa de adquisiciones.

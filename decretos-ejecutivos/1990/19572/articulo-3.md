@@ -1,0 +1,1 @@
+Artículo 3|—En la formulación de los contratos, la Proveeduría deberá solicitar la cooperación de las unidades técnicas correspondientes para precisar las características de los bienes o servicios objeto de compra, así como la colaboración de la Unidad Jurídica dé la dependencia para precisar los aspectos legales de los mismos.

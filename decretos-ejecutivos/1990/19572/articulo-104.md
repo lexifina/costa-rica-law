@@ -1,0 +1,1 @@
+Artículo 104.—Todas las actuaciones y documentos relativos a los diferentes procedimientos de contratación administrativa mediante concurso desde los acuerdos iniciales hasta el último acto de liquidación, se conservarán en expedientes individuales, debidamente foliados y serán conservados en la Proveeduría.

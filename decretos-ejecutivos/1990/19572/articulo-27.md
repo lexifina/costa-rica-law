@@ -1,0 +1,1 @@
+Artículo 27.—La selección de tramitación y entrega de contratos y pedidos tiene como objetivo fundamental cubrir los requisitos legales que demandan los pedidos, contratos y licitaciones, tanto los internos como los que indica la Ley de la Administración Financiera y su Reglamento.

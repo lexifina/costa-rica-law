@@ -1,0 +1,1 @@
+Artículo 72.—Al recibir la Proveeduría, las solicitudes de mercancías o servicios aprobadas por el Ministerio de Hacienda, las clasificará por objeto del gasto, luego las solicitudes cuyos artículos vende el Fondo Circulante, deberá enviarlas a este para su cotización.

@@ -1,0 +1,1 @@
+Artículo 126.—Dentro del plazo fijado para la recepción de ofertas, las casas comerciales deberán presentar ante f a Proveeduría, sus cotizaciones, muestras y demás requisitos solicitados en el cartel.

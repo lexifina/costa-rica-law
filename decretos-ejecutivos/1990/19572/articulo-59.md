@@ -1,0 +1,3 @@
+CAPITULO V
+Responsabilidades de los funcionarios encargados de trámites de contratación administrativa
+Artículo 59.—Ningún funcionario del Ministerio de Relaciones Exteriores y Culto será relevado de responsabilidad por haber procedido contra la Ley de la Administración-Financiera de la República o las disposiciones reglamentarias en lo relativo a trámites que le corresponda cumplir en el proceso de contratación administrativa. Cualquier anomalía debe ser objetada por escrito ante su superior jerárquico, con copia a la máxima autoridad del Ministerio y a la Auditoría Interna según lo determina el artículo 8’-‘ de la Ley de la Administración Financiera de la República.

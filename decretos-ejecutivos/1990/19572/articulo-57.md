@@ -1,0 +1,1 @@
+Artículo 57.—Previo a la formulación de una contratación administrativa, eí Departamento Financiero determinará la existencia de la partida presupuestaria 3 hará las reservas del caso, siendo requisito indispensable para que la Proveeduría continúe con los trámites previos e inmediatamente comunicarlo a la Comisión,

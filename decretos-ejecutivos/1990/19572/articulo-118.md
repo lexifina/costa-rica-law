@@ -1,0 +1,1 @@
+Artículo 118.—En caso de incumplimiento por parte de la casa comercial, la Unidad de Evaluación y Control informará por escrito a la Proveeduría, oficina que coordinará con la Comisión de Planeación y Adjudicación de Compras la ampliación del plazo de entrega o bien la sustitución de adjudicatarios.

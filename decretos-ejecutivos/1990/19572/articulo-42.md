@@ -1,0 +1,1 @@
+Artículo 42.—El objetivo fundamental de la Sección de Control de Bienes y Servicios es suministrar todos aquellos artículos, materiales, bienes y servicios suplementarios y misceláneos para llevar a cabo las actividades del Ministerio.

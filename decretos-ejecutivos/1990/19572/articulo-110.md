@@ -1,0 +1,1 @@
+Artículo 110.—La resolución adjudicatoria debidamente razonada deberá constar en el libro de actas de adjudicación con las referencias necesarias para la identificación del concurso y se publicará en “La Gaceta” a la mayor brevedad posible.

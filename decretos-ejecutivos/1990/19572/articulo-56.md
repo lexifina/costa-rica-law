@@ -1,0 +1,1 @@
+Artículo 56.—El Departamento Financiero, verificará si existe contenido económico para respaldar la orden y en caso afirmativo procederá a codificarla y firmarla Si no hubiere contenido económico deberá devolverla a la Proveeduría, quien deberé hacerlo de conocimiento de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 76.—Las compras de artículos o materiales para mantener en existencia en el Almacén estarán sujetas al trámite de cotización tomándose en cuenta preferiblemente la calidad, precio y tiempo de entrega, debiendo invitarse a participar a no menos de tres oferentes.

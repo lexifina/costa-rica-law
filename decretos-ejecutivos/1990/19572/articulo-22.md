@@ -1,0 +1,1 @@
+Artículo 22.—El objetivo fundamental de la Sección de Adjudicación y Formulación de Pedidos es el de realizar las compras de bienes y servicios que figuran en el programa anual de adquisiciones y aquellos fuera de programa o imprevistos en las mejores condiciones de precio y calidad,

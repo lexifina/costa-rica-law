@@ -1,0 +1,1 @@
+Artículo 119.—Cuando la recepción de materiales se realice sin ningún problema ni incumplimiento, sé deberá preparar la “Entrada a Bodega” correspondiente, y en la “Factura de Gobierno” se estampará el sello con el número de entrada a bodega, la fecha y la firma del encargado del Almacén, aparte de estampar el sello correspondiente.

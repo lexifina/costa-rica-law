@@ -1,0 +1,1 @@
+Artículo 79.—Las solicitudes de mercancías a tramitarse por compra directa remitirán a la Unidad de Análisis de las Fuentes de Suministro y Selección de Proveedores, para que conjuntamente con el Jefe de Servicios Generales determinen los potenciales proveedores, mínimo tres por artículo.

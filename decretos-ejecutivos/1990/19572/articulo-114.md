@@ -1,0 +1,1 @@
+Artículo 114.—El período de vigencia de la garantía de cumplimiento será comunicado por la Jefatura de la Proveeduría, de conformidad con lo estipulado en los artículos 62 y 63 del Reglamento de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 141.—Efectuar un análisis de los antecedentes y establecer un orden de excelencia, luego remitir un informe y todo el expediente a la Comisión, para que ellos decidan finalmente el orden de excelencia definitivo.

@@ -1,0 +1,1 @@
+Artículo 132.—La Comisión resolverá lo que corresponda a más tardar dentro de los diez días hábiles posteriores a la presentación del recurso y comunicará el fallo al recurrente y al adjudicatario en el caso de ser declarado con lugar dentro de los tres días siguientes.

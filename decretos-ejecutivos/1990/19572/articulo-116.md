@@ -1,0 +1,1 @@
+Artículo 116.—Entregada la “Orden de Compra” a la casa comecial, la Jefatura de la Proveeduría remitirá copia de esa orden a la Unidad de Evaluación y Control y a la Unidad de Almacén para que controlen los plazos de entrega ofrecidos por los adjudicatarios.

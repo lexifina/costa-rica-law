@@ -1,0 +1,1 @@
+Artículo 84.—Se deberán controlar los plazos de entrega, realizar los trámites de recepción, almacenamiento y ubicación de las mercaderías en el Almacén del Ministerio y los documentos conforme lo establecido.

@@ -1,0 +1,1 @@
+Artículo 103.—En el momento de la apertura se levantará un acta en el Libro de Apertura de Licitaciones legalizado por la Contraloría General de la República, en el que se dejará constancia del nombre de los concursantes, el monto de las cotizaciones y las observaciones o aclaraciones hechas.

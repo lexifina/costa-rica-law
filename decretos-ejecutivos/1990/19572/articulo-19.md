@@ -1,0 +1,1 @@
+Artículo 19.—El funcionario encargado de ello, estará responsabilizado básicamente a recabar información sobre las personas físicas o jurídicas de las que se pueda adquirir con la mayor eficiencia, los bienes y servicios que demandan los programas de la dependencia.

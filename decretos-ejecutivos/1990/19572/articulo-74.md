@@ -1,0 +1,1 @@
+Artículo 74.—El procedimiento de contratación administrativa a utilizar estará determinado por el monto, los cargos que deberán cubrir al contratista y las autoriza-cines escritas por la Contraloría General de la República, conforme lo establecido en la Ley de la Administración Financiera de la República y el Reglamento de la Contratación Administrativa.

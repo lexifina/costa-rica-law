@@ -1,0 +1,1 @@
+Artículo 133.—Una vez firme el acto de adjudicación bastará para tener por formalizado el contrato, con la recepción de la orden de compra por parte del adjudicatario, sin perjuicio de que en casos especiales se proceda conforme lo disponen los artículos 223 y 224 del Reglamento de la Contratación Administrativa, lo cual se advertirá expresamente en el cartel.

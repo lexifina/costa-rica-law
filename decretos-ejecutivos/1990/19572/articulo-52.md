@@ -1,0 +1,1 @@
+Artículo 52.—El Secretario de la Comisión será el Jefe de la Oficina de Servicios Generales. Le corrresponde presentar todos los documentos e información relativa de la materia a tratar en cada reunión, llevar un acta de cada sesión donde anote los acuerdos tomados por los miembros de la Comisión, así como velar por el cumplimiento de esos acuerdos.

@@ -1,0 +1,1 @@
+Artículo 113.—Una vez firme la adjudicación, la Jefatura de la Proveeduría ordenará la confección de la “Orden de Compra”, en original y diez copias, la cual será revisada y firmada por la Jefatura de Servicios Generales y luego pasada al Director General y al íefe del Departamento Financiero para las respectivas firmas.

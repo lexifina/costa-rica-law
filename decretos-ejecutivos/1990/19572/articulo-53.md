@@ -1,0 +1,1 @@
+Artículo 53.—Los integrantes de la Comisión serán responsables de mantener la confidencialidad que requieran las contrataciones administrativas según lo establecen las leyes de la Administración Pública, Financiera y el Reglamento correspondiente. En caso de incumplimiento quedan sujetos a las sanciones de ley pertinentes.

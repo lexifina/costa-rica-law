@@ -1,0 +1,1 @@
+Artículo 80,—La Unidad de Tramitación y Entrega de Contratos y Pedidos, con la información anterior, confeccionará las facturas proformas, y las distribuirá y recogerá a las casas comerciales en un plazo prudencial.

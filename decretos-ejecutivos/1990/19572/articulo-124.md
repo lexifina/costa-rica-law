@@ -1,0 +1,1 @@
+Artículo 124.—La Jefatura de la Proveeduría, una vez definido que procede la licitación privada y preparado el cartel correspondiente, formulará por escrito a cada posible interesado, la invitación para participar en el negocio, señalando las condiciones del concurso y las especificaciones del objeto requerido.

@@ -1,0 +1,1 @@
+Artículo 128.—Los análisis y los cuadros técnicos derivados de esta, se remitirán a la Comisión de Planeación y Adjudicación de Compras, luego de haberse obtenido el visto bueno de un asesor legal en los aspectos que a él le conciernen.

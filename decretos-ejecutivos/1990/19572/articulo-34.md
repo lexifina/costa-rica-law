@@ -1,0 +1,1 @@
+Artículo 34.—Este funcionario debe constituir el elemento que permita evaluar la eficiencia con que los demás funcionarios desarrollen sus funciones, así como detectar los problemas que se presenten en su operación, a fin de sugerir los cambios que procedan, con el propósito de eliminarlos y elevar, en conjunto, la eficiencia de la Unidad.

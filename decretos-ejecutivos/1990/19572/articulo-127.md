@@ -1,0 +1,1 @@
+Artículo 127.—El procedimiento para la recepción de ofertas, apertura y anotaciones en el Libro de Actas de los pasos anteriores, deberán tener el mismo tratamiento que los que se realizan en la licitación pública.

@@ -1,0 +1,1 @@
+Artículo 88.—La Unidad de Planeación de Compras conjuntamente con la Jefatura de Proveeduría procederán a confeccionar el cartel de licitación, teniendo en cuenta que este constituye un cuerpo de especificaciones que debe reunir las siguientes condiciones: técnico, claro, suficiente, concreto, objetivo y amplio.

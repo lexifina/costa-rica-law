@@ -1,0 +1,4 @@
+Artículo 142.—Aunque el precio no constituye factor primordial para adjudicar un concurso, debe tenerse en cuenta lo siguiente:
+a) Cuando el precie u honorarios correspondientes al servicio estuviesen regulados taxítativamente por aranceles profesionales obligatorios (no el máximo ni el mínimo), se entenderá la oferta, en cuanto a compensación económica, regida por los mismos.
+Si estuviesen regulados por- aranceles profesionales mínimos, regirá como precio u honorario el mínimo de la tarifa correspondiente.
+b) Cuando no existiesen aranceles profesionales obligatorios para la remuneración de tales servicios, los honorarios deberán cotizarse en sobre cerrado, independientemente ole la propuesta de antecedentes. Los sobres de honorarios no serán abiertos sino una vez establecido el orden de excelencia de las ofertas de antecedentes en acto formal convocado al efecto con señalamiento de la fecha respectiva, previa notificación a las firmas participantes.

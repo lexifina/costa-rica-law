@@ -1,0 +1,1 @@
+Artículo 131.—Los participantes que se sintieren lesionados en sus derechos con la resolución de adjudicación podrán pedir revocatoria de ese acto dentro de los tres días hábiles siguientes a la respectiva notificación.

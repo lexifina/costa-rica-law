@@ -1,0 +1,1 @@
+Artículo 24.—Para cumplir eficientemente con sus objetivos y funciones este funcionario debe tener presente, al adjudicar los contratos y licitaciones, además de las disposiciones legales que rigen la materia, los criterios que orientan la política de desarrollo económico y social del país.

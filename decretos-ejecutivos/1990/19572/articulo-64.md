@@ -1,0 +1,1 @@
+Artículo 64.—El retiro de los artículos del Almacén será responsabilidad del funcionario que los recibe y del superior jerárquico que los autoriza, debiendo estar en disposición de justificar su uso o destino ante sus superiores o ante la Auditoria Interna cuando fuere necesario.

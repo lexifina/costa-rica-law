@@ -1,0 +1,1 @@
+Artículo 145.—Ajuicio de la administración y según la naturaleza del concurso, se podrá exigir garantías de participación y cumplimiento dentro de los límites y regulaciones que señalan los artículos 56 y 57 del Reglamento mencionado.

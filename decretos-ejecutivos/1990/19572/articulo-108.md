@@ -1,0 +1,1 @@
+Artículo 108.—La Comisión de Planeación y Adjudicación de Compras evaluará y verificará el informe que presente el analista y emitirá un dictamen sobre la contratación, que contenga las conclusiones y recomendaciones del caso.

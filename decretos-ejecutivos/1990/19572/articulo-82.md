@@ -1,0 +1,1 @@
+Artículo 82.—Una vez recibidas las facturas proformas de las casas comerciales se deberá analizar la información en el “Análisis de Ofertas para Contratación Directa”. El análisis técnico de la contratación estará a cargo de la Comisión de Planeación y Adjudicación de Compras.

@@ -1,0 +1,1 @@
+Artículo 71.—La Proveeduría remitirá el formulario completo, menos las copias de archivo, al Departamento de la Oficialía Presupuestal; esta oficina realizará el trámite correspondiente en el Ministerio de Hacienda.

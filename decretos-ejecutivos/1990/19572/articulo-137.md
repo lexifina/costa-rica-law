@@ -1,0 +1,1 @@
+Artículo 137.—El concurso de antecedentes debe publicarse en “La Gaceta” desde la invitación a participar y sus condiciones hasta la resolución de adjudicación, incluyendo aclaraciones, ampliación de pía/os para el recibo de ofertas, etc.

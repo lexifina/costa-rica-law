@@ -1,0 +1,1 @@
+Artículo 29.—La eficiencia de este funcionario es determíname para que la dependencia en su conjunto obtenga los bienes y servicios con la oportunidad con que sean requeridos, y pueda, al reducir el tiempo de tramitación, obtener mejores condiciones de compra por parte de los proveedores.

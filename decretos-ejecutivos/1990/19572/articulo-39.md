@@ -1,0 +1,1 @@
+Artículo 39.—La Sección de Patrimonio Institucional tiene como objetivo fundamental mantener un eficaz control y fiscalización de los activos de este Ministerio de conformidad con lo que establece el decreto ejecutivo N° 2487-H y el Reglamento de Control y Fiscalización de Activos.

@@ -1,0 +1,2 @@
+Artículo 109.—Dentro de los treinta días hábiles al acto de apertura de las ofertas o dentro del mayor plazo señalado en el cartel, la Comisión de Planeación y Adjudicación de Compras procederá a adjudicar la licitación. Si el estudio determinara que las ofertas no son convenientes a los intereses del Ministerio de Relaciones Exteriores y Culto, se declarará desierto el procedimiento.
+Cualquier incumplimiento de una oferta en relación con las condiciones y especificaciones esenciales del cartel, la excluye del concurso, por lo tanto no podrá recaer en ella la adjudicación.

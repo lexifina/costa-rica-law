@@ -1,0 +1,1 @@
+Artículo 130,—El acto de adjudicación o declaratoria de desierto del concurso será notificado a través de la Proveeduría en forma escrita a los concursantes dentro de los quince días hábiles siguientes de tomado el acuerdo (artículo 170 del Reglamento de la Contratación Administrativa).

@@ -1,0 +1,1 @@
+Artículo 91.—Antes de iniciar la confección del cartel, el encargado de confeccionarlo deberá tener todos los elementos necesarios, a saber: solicitud(es) de mercan-cía(s) o servicio(s), especificaciones técnicas, número de contratación, fecha y hora de apertura, fecha en que se debe publicar y cualquier otra necesaria.

@@ -1,0 +1,1 @@
+Artículo 87.—Programar la licitación; consiste en asignarle el número consecutivo correspondiente, según el orden establecido. Llevar el “Registro y Control de Licitaciones”, con lo cual se garantiza que no se va a presentar choqué o atrasos en las aperturas especialmente, y permite llevar el control del tiempo para la recepción de ofertas.
