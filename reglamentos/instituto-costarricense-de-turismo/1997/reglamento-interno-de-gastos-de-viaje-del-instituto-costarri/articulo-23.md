@@ -1,2 +1,4 @@
-Artículo 23.—En caso de funcionarios que sean invitados o designados a asistir a eventos internacionales, cuyo organizador financie la totalidad o parte de los gastos de alimentación, transporte y alojamiento, deberá presentar el programa de actividades, tanto en el momento de solicitar el adelanto de viajes como en la presentación de la correspondiente liquidación. Dicho financiamiento no se presumirá.
-(Asi reformado por acuerdo tomado en sesión N° 4791 de 12 de enero de 1998)
+Artículo 23.—Variación de rutas y fechas originalmente aprobadas por la Junta Directiva.
+Cuando las rutas originalmente aprobadas por Junta Directiva son variadas antes o durante el transcurso del viaje, y esto implique un cambio en la asignación de viáticos respectiva, dichos cambios deberán hacerse de conocimiento de la Junta Directiva, de ser posible antes del viaje, o si no posteriormente, con el propósito que se apruebe el ajuste que corresponda.
+(Así REFORMADO por Acuerdo tomado en Sesión N° 4851 de 25 de agosto de 1998)
+(Así MODIFICADA su numeración por la Sesión Ordinaria de Junta Directiva N° 4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta N° 180 del 20 de setiembre de 2000, que lo pasó del 22 al 23.)

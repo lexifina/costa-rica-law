@@ -1,3 +1,2 @@
-Artículo 15.—Obligaciones al momento en que se suspenda una gira
-En el momento en que se suspenda una gira y la solicitud del adelanto está en trámite, se debe enviar nota de anulación del mismo dirigida a Contabilidad con copia al encargado de liquidaciones, con la finalidad de actualizar los controles de liquidaciones y contables.
-En caso de que el cheque de adelanto haya sido retirado y se suspende la gira, se reintegrara el dinero inmediatamente y también se enviará la nota de anulación en los términos expuestos anteriormente.
+Artículo 15.—Carencia del concepto original del gasto en el formulario de liquidación Cuando el concepto del gasto que se va a liquidar no esté estipulado en el formulario de liquidación originalmente, se deberá anotar el objeto del gasto con los números de facturas, para efectos de codificación entre otros.
+(Así MODIFICADA su numeración por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000que lo pasó del 14 al 15.)

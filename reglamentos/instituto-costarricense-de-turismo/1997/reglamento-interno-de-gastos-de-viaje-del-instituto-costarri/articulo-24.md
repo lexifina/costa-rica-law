@@ -1,3 +1,3 @@
-Artículo 24.—Trámite de boletos aéreos
-En el trámite de boletos aéreos, cuando así lo disponga la junta directiva, se hará mediante los contratos turísticos amparados a la ley 6990, o a la cuota de accionistas de LACSA, hasta donde sea posible de acuerdo con las rutas y condiciones establecidas por las líneas aéreas. Solo podrá ser adquirido mediante compra con la previa autorización de la misma junta directiva y una vez agotadas las gestiones para su obtención, de las cuales debe quedar evidencia por escrito, a través de dichos contratos o cuota de LACSA, por el precio que resulte más conveniente, a los intereses de la Institución.
-(Así reformado por acuerdo tomado en sesión N° 4791 de 12 de enero de 1998)
+Artículo 24.— (DEROGADO TOTAL Y EXPRESAMENTE mediante la Sesión Ordinaria de Junta Directiva N° 4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta N° 180 del 20 de setiembre de 2000.)
+(Asi REFORMADO por Acuerdo tomado en Sesión N° 4791 de 12 de enero de 1998)
+(Así MODIFICADA su numeración por la Sesión Ordinaria de Junta Directiva N° 4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta N° 180 del 20 de setiembre de 2000, que lo pasó del 23 al 24.)

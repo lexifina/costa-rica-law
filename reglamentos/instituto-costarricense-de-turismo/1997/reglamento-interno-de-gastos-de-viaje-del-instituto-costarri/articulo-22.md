@@ -1,3 +1,4 @@
-Artículo 22.—Variación de rutas y fechas originalmente aprobadas por la Junta Directiva.
-Cuando las rutas originalmente aprobadas por Junta Directiva son variadas antes o durante el transcurso del viaje, y esto implique un cambio en la asignación de viáticos respectiva, dichos cambios deberán hacerse de conocimiento de la Junta Directiva, de ser posible antes del viaje, o si no posteriormente, con el propósito que se apruebe el ajuste que corresponda.
-(Así reformado por acuerdo tomado en sesión N° 4851 de 25 de agosto de 1998)
+Artículo 22.—Casos especiales
+Los casos especiales no contemplados en este reglamento serán resueltos por la junta directiva dentro del marco del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos de la Contraloría General de la República.
+(Así REFORMADO por Acuerdo tomado en Sesión N° 4791 de 12 de enero de 1998)
+(Así MODIFICADA su numeración por la Sesión Ordinaria de Junta Directiva N° 4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta N° 180 del 20 de setiembre de 2000, que lo pasó del 21 al 22.)

@@ -1,4 +1,3 @@
-CAPITULO II
-De los viajes en el interior del país
-Artículo 11.—Lavado y planchado de ropa
-En complemento a lo estipulado en el Reglamento de Gastos de Viaje, sobre el lavado y planchado de ropa, las facturas por este concepto deberán ser emitidas en el lugar donde se estuvo de gira, con el desglose correspondiente y contar con la firma, número de cédula, número telefónico y dirección de la persona que prestó el servicio, además si la factura no es timbrada, debe acompañarse con la justificación correspondiente. En ningún caso se aceptará reintegro de sumas pagadas por este servicio cuando es suministrado en el mismo lugar de residencia del funcionario.
+Artículo 11.—Presentación del Programa de Actividades.
+En caso de funcionarios que sean invitados o designados a asistir a eventos internacionales, cuyo organizador financie la totalidad o parte de los gastos de alimentación, transpone y alojamiento, y así consta claramente en la correspondiente invitación o programa de actividades, se hará la deducción respectiva. La invitación y el programa se acompañará a la solicitud de adelanto y a la liquidación de gastos. En situaciones de duda se considerara a lo que el liquidante declare, sin perjuicio de que la Administración pueda recabar mayor información.
+(Así ADICIONADO EXPRESAMENTE por la Sesión Ordinaria Nº4982, celebrada el 13 de diciembre de 1999, publicada en La Gaceta Nº180 del 20 de setiembre de 2000.)
