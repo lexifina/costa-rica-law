@@ -103,6 +103,8 @@ Transporte y Fletes Internacionales
 Canon ARESEP
 Canon Aviación Civil
 Comisión sobre tarjetas de crédito.
+Póliza Todo Riego,
+Daño Físico y Póliza Responsabilidad Civil por venta de combustibles de aviación-aeropuertos.
 Servicio Nacional de Aguas Transferencia a SEPSA según
 Subterráneas, Riego y Avenamiento Ley N° 6064.
 (SENARA) Transferencia a: Compañía Nacional
@@ -114,4 +116,5 @@ Agropecuario Productiva.
 (Así Adicionado mediante artículo 2 del Decreto Ejecutivo 29867 de 24 de setiembre del 2001)
 (Modificado el inciso b) por el artículo 2 del Decreto Ejecutivo N° 29511 de 24 de setiembre del 2001)
 (Así Adicionado mediante artículo 2 del Decreto Ejecutivo 29905 de 04 de octubre del 2001)
-(Mediante Decreto Ejecutivo N° 30142 de 25 de nero del 2002, se excluye del límite de gasto presupuestario y efectivo fijado a la Junta Administrativa del Registro Nacional para el año 2002, la transferencia que girará al Tribunal Registral Administrativo amparada en la Ley Nº 8039).
+(Mediante Decreto Ejecutivo N° 30142 de 25 de enero del 2002, se excluye del límite de gasto presupuestario y efectivo fijado a la Junta Administrativa del Registro Nacional para el año 2002, la transferencia que girará al Tribunal Registral Administrativo amparada en la Ley Nº 8039).
+(Mediante Decreto Ejecutivo N° 30784 de 2 de octubre del 2002, se incluye en lo relativo a RECOPE los conceptos de Póliza Todo Riego, Daño Físico y Póliza Responsabilidad Civil por venta de combustibles de aviación-aeropuertos).
