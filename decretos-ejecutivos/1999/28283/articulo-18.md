@@ -1,0 +1,2 @@
+Artículo 18.—Prohibición de uso de vehículos en horas y días inhábiles: Está prohibida la circulación de vehículos de uso administrativo general en horas y días no hábiles o de asueto. Dicha circulación sólo estará permitida para casos especiales en que se amerite, para desarrollar funciones impostergables del servicio a cargo del Ministerio.
+Corresponderá a la Oficialía Mayor y Dirección General autorizar el uso de vehículos en días y horas inhábiles, aún en el caso de las oficinas regionales.

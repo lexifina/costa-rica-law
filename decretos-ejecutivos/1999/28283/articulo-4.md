@@ -1,0 +1,1 @@
+Artículo 4º—Asignación de vehículos de uso discrecional: Ningún vehículo estará asignado a funcionario determinado, con excepción de los señalados por la Ley de Tránsito; lo cual, en todo caso, para todo efecto legal, no constituye salario en especie.

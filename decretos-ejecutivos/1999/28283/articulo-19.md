@@ -1,0 +1,1 @@
+Artículo 19.—Prohibición de uso de vehículos en mal estado: Está prohibido a la Unidad de Transportes y a quien tenga a cargo vehículos del Ministerio, ponerlos en uso cuando no estén en condición de ser utilizados o cuando no hayan pasado el proceso de revisión mínima usual, al término de la última diligencia efectuada.

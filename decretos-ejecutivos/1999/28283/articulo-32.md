@@ -1,0 +1,1 @@
+Artículo 32.—Prohibición de celebrar arreglos extrajudiciales: Está prohibido a todo chofer o conductor de vehículos del Ministerio efectuar arreglos extrajudiciales, en caso de accidentes. Unicamente deberán indicarle al particular que se apersone o comunique con la Unidad de Transportes, para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 16.—Agrupación de solicitudes: Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Unidad de Transportes o quien tenga a cargo los vehículos, podrá agrupar para un mismo viaje varias solicitudes de diferentes funcionarios u oficinas que tengan como destino un mismo lugar o ruta, previo aviso oportuno a los interesados.

@@ -1,0 +1,3 @@
+Artículo 35.—Informe del accidente: La Unidad de Transportes analizará todo accidente de tránsito en que participe un vehículo del Ministerio y rendirá un informe a la Oficialía Mayor y Dirección General, inmediatamente después de ocurrido el hecho, salvo causa justificada.
+Si dicho informe no es compartido por el chofer o conductor, tendrá derecho a ser escuchado por la Oficialía Mayor y Dirección General, dentro de los tres días hábiles posteriores, para hacer valer sus derechos y presentar las pruebas de descargo que estime convenientes.
+Una vez concluido este procedimiento, la Oficialía Mayor y Dirección General emitirá la resolución correspondiente, todo de conformidad con los artículos 320 y siguientes de la Ley General de la Administración Pública.

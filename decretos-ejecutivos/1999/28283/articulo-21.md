@@ -1,0 +1,2 @@
+Artículo 21.—Personas autorizadas para conducir vehículos: Con fundamento en las disposiciones de los artículos 13 y 15 del Reglamento Autónomo de Servicio de este Ministerio, la Oficialía Mayor y Dirección General, podrá autorizar el manejo de vehículos de uso administrativo general a otros funcionarios diferentes a los chóferes, en los casos especiales y de excepción que se justifique.
+Los vehículos de uso discrecional sólo podrán ser conducidos por las personas que los tienen asignados o por el funcionario que sea autorizado por éste para hacerlo.

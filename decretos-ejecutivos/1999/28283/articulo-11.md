@@ -1,0 +1,4 @@
+CAPITULO III
+Del uso de vehículos en las oficinas regionales del Ministerio
+Artículo 11.—Uso de vehículos en las oficinas regionales: Todos los vehículos destinados a prestar servicio en las Direcciones u Oficinas Regionales del Ministerio, deberán permanecer en el establecimiento que se les ha destinado para su custodia y guarda durante los días y horas no hábiles. Cuando no estén en uso o estén fuera de servicio por cualquier motivo, los vehículos asignados a las oficinas regionales deberán guardarse en las instalaciones que se haya destinado o en las dependencias públicas que para tal efecto se definan. Todo bajo la responsabilidad del superior jerárquico de la Oficina correspondiente.
+Ningún funcionario o dependencia podrá alegar derechos adquiridos sobre dichos vehículos. Estos vehículos tampoco podrán ser utilizados en actividades o fines ajenos a los del Ministerio.
