@@ -1,1 +1,0 @@
-Artículo 5º—La SGE se mantendrá en vigencia por un año, sin demérito de revisiones periódicas en forma conjunta por parte de los Ministerios de Comercio Exterior; Economía, Industria y Comercio y Agricultura y Ganadería a fin de determinar su adecuación a la evolución de los mercados internacionales.
