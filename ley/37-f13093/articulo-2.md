@@ -1,0 +1,1 @@
+Art. 2°-El término señalado en el artículo anterior principiará á contarse desde la fecha en que la fábrica quede definitivamente instalada siempre que su instalación se verifique dentro del término de diez ocho meses, contados desde la fecha de la publicación del presente decreto.
