@@ -1,54 +1,13 @@
 ARTICULO 22
 Disposiciones Penales
-1. a) A reserva de lo dispuesto en su Constitución, cada una de las
-Partes considerarán como delito, si se comete intencionalmente todo acto
-contrario a cualquier ley o reglamento que se adopte en cumplimiento de
-las obligaciones impuestas por este Convenio y dispondrá lo necesario para
-que los delitos graves sean sancionados en forma adecuada, especialmente
-con penas de prisión u otras penas de privación de libertad.
-b) No obstante, cuando las personas que hagan uso indebido de
-sustancias sicotrópicas hayan cometido esos delitos, las Partes podrán, en
-vez de declararlas culpables o de sancionarlas penalmente o, además de
-sancionarlas, someterlas a medidas de tratamiento, educación,
-postratamiento, rehabilitación y readaptación social de conformidad con lo
-dispuesto en el párrafo 1, del artículo 20.
-2. A reserva de las limitaciones que imponga la Constitución
-respectiva, el sistema jurídico y la legislación nacional de cada Parte:
-a) i) Si se ha cometido en diferentes países una serie de actos
-relacionados entre sí que constituyan delitos de conformidad con el
-párrafo 1, cada uno de esos actos será considerado como un delito
-distinto;
-ii) la participación deliberada o la confabulación para cometer
-cualquiera de esos actos, así como la tentativa de cometerlos, los actos
-preparatorios y operaciones financieras relativas a las mismas, se
-considerarán como delitos, tal como se dispone en el párrafo 1;
-iii) las sentencias condenatorias pronunciadas en el extranjero por
-esos delitos serán computados para determinar la reincidencia; e
-iv) los referidos delitos graves cometidos tanto por nacionales como
-por extranjeros serán juzgados por la Parte en cuyo territorio se haya
-cometido el delito, o por la Parte en cuyo territorio se encuentre el
-delincuente, si no procede la extradición de conformidad con la ley de la
-Parte a la cual se la solicita, y si dicho delincuente no ha sido ya
-procesado y sentenciado.
-b) Es deseable que los delitos a que se refiere el párrafo 1, y el
-inciso ii), del apartado a), del párrafo 2, se incluyan entre los delitos
-que dan lugar a extradición en todo tratado de extradición concertado o
-que pueda concertarse entre las Partes, y sean delitos que den lugar a
-extradición entre cualesquiera de las Partes, que no subordinen la
-extradición a la existencia de un tratado o acuerdo de reciprocidad, a
-reserva de que la extradición sea concedida con arreglo a la legislación
-de la Parte a la que se haya pedido, y de que esta Parte tenga derecho a
-negarse a proceder a la detención o a conceder la extradición si sus
-autoridades competentes consideran que el delito no es suficientemente
-grave.
-3. Toda sustancia sicotrópica, toda otra sustancia y todo utensilio,
-empleados en la comisión de cualquiera de los delitos mencionados en los
-párrafos 1 y 2, o destinados a tal fin, podrán ser objeto de aprehensión
-y decomiso.
-4. Las disposiciones del presente artículo quedarán sujetas a las
-disposiciones de la legislación nacional de la Parte interesada en materia
-de jurisdicción y competencia.
-5. Ninguna de las disposiciones del presente artículo afectará al
-principio de que los delitos a que se refiere han de ser definidos,
-perseguidos y sancionados de conformidad con la legislación nacional de
-cada Parte.
+1. a) A reserva de lo dispuesto en su Constitución, cada una de las Partes considerarán como delito, si se comete intencionalmente todo acto contrario a cualquier ley o reglamento que se adopte en cumplimiento de las obligaciones impuestas por este Convenio y dispondrá lo necesario para que los delitos graves sean sancionados en forma adecuada, especialmente con penas de prisión u otras penas de privación de libertad.
+b) No obstante, cuando las personas que hagan uso indebido de sustancias sicotrópicas hayan cometido esos delitos, las Partes podrán, en vez de declararlas culpables o de sancionarlas penalmente o, además de sancionarlas, someterlas a medidas de tratamiento, educación, postratamiento, rehabilitación y readaptación social de conformidad con lo dispuesto en el párrafo 1, del artículo 20.
+2. A reserva de las limitaciones que imponga la Constitución respectiva, el sistema jurídico y la legislación nacional de cada Parte:
+a) i) Si se ha cometido en diferentes países una serie de actos relacionados entre sí que constituyan delitos de conformidad con el párrafo 1, cada uno de esos actos será considerado como un delito distinto;
+ii) la participación deliberada o la confabulación para cometer cualquiera de esos actos, así como la tentativa de cometerlos, los actos preparatorios y operaciones financieras relativas a las mismas, se considerarán como delitos, tal como se dispone en el párrafo 1;
+iii) las sentencias condenatorias pronunciadas en el extranjero por esos delitos serán computados para determinar la reincidencia; e
+iv) los referidos delitos graves cometidos tanto por nacionales como por extranjeros serán juzgados por la Parte en cuyo territorio se haya cometido el delito, o por la Parte en cuyo territorio se encuentre el delincuente, si no procede la extradición de conformidad con la ley de la Parte a la cual se la solicita, y si dicho delincuente no ha sido ya procesado y sentenciado.
+b) Es deseable que los delitos a que se refiere el párrafo 1, y el inciso ii), del apartado a), del párrafo 2, se incluyan entre los delitos que dan lugar a extradición en todo tratado de extradición concertado o que pueda concertarse entre las Partes, y sean delitos que den lugar a extradición entre cualesquiera de las Partes, que no subordinen la extradición a la existencia de un tratado o acuerdo de reciprocidad, a reserva de que la extradición sea concedida con arreglo a la legislación de la Parte a la que se haya pedido, y de que esta Parte tenga derecho a negarse a proceder a la detención o a conceder la extradición si sus autoridades competentes consideran que el delito no es suficientemente grave.
+3. Toda sustancia sicotrópica, toda otra sustancia y todo utensilio, empleados en la comisión de cualquiera de los delitos mencionados en los párrafos 1 y 2, o destinados a tal fin, podrán ser objeto de aprehensión y decomiso.
+4. Las disposiciones del presente artículo quedarán sujetas a las disposiciones de la legislación nacional de la Parte interesada en materia de jurisdicción y competencia.
+5. Ninguna de las disposiciones del presente artículo afectará al principio de que los delitos a que se refiere han de ser definidos, perseguidos y sancionados de conformidad con la legislación nacional de cada Parte.
