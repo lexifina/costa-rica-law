@@ -1,0 +1,2 @@
+Transitorio único.—En un plazo no mayor a tres días hábiles, a partir de la instalación de la Comisión Ministerial, deberá quedar conformada la Secretaría Técnica para lo cual, cada uno de los jerarcas de los ministerios señalados en el artículo 3º de este decreto deberán comunicar por escrito al coordinador de la comisión ministerial la designación correspondiente.
+Dado en la Presidencia de la República.—San José, a los doce días del mes de enero del dos mil cuatro.

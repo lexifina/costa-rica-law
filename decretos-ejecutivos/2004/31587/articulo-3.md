@@ -1,0 +1,1 @@
+Artículo 3º—Créase una Secretaría Técnica a la que le corresponderá preparar los insumos necesarios para el buen funcionamiento de la Comisión Presidencial. Esta Comisión estará integrada por el Director General Administrativo de la Presidencia de la República, quien la coordinará y por un profesional designado por cada uno de los integrantes de la Comisión.
