@@ -1,0 +1,1 @@
+Artículo 2°—Para la adquisición de bienes y servicios el Alcalde Municipal de Poás podrá girar contra las cuentas corrientes de la Municipalidad, la suma de hasta 450.000,00 (cuatrocientos cincuenta mil colones sin céntimos).
