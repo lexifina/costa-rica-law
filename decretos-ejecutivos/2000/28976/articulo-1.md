@@ -1,4 +1,6 @@
+(Suspendida)
 N° 28976-H
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 29034 del 12 de octubre de 2000, se suspende los efectos del presente decreto hasta tanto se subsanen los impedimentos surgidos para la interconexión de las aduanas y el acceso de los usuarios por medio del servicio que brindará RACSA)
 ELPRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades que le confieren los artículos 140 incisos 3) y 18) de la Constitución Política, el artículo 28 inciso b) de la Ley General de la Administración Publica, el Código Aduanero Uniforme Centroamericano II, la Ley N° 7475 (Aprobación del Acta Final en que se incorporan los resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales), la Ley General de Aduanas N° 7557 y su Reglamento promulgado mediante Decreto N° 25270-H del 14 de junio de 1996.
