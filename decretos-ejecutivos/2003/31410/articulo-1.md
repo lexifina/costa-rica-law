@@ -1,0 +1,77 @@
+Nº 31410-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) 18) y 146 de la Constitución Política; así como lo dispuesto en las Leyes N° 8131 o Ley de la Administración Financiera de la República y Presupuesto Públicos del 18 de setiembre del 2001, N° 8341 o Ley de Presupuesto Ordinario y Extraordinario de la República, Fiscal y por Programas para el Ejercicio Económico del año 2003 del 9 de diciembre del 2002 y el Decreto Ejecutivo N° 30906-H del 12 de diciembre del 2002.
+Considerando:
+1º—Que en el Anexo Nº 1 de la Ley Nº 8341 publicada en el Alcance N° 93 a La Gaceta N° 251 del 30 de diciembre del 2002, en la Relación de Puestos de los Programas Presupuestarios pertenecientes al Poder Ejecutivo, se contempla la Coletilla Nº 180 para financiar resoluciones de reasignaciones, asignaciones y reajustes salariales, emitidas por la Dirección General de Servicio Civil y la Autoridad Presupuestaria, y reconocer diferencias salariales producto de los procesos de ubicación por reestructuración como producto de estudios individuales de puestos, así como por reestructuraciones institucionales. (A distribuir por Decreto Ejecutivo).
+2º—Que se hace necesario adecuar la Relación de Puestos del Ministerio de Justicia y Gracia afectado por movimientos de Asignación y Reasignación, de conformidad con resoluciones emitidas por la Dirección General del Servicio Civil y la Autoridad Presupuestaria. Por tanto,
+DECRETAN:
+Artículo 1º—Modificase el Anexo Nº 1 de la Ley Nº 8341 publicada en el Alcance N° 93 a La Gaceta N° 251 del 30 de diciembre del 2002, en la forma que se indica a continuación:
+REBAJAR:
+000 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2003
+119 MINISTERIO DE JUSTICIA
+Cuota Cuota
+Código Clase Detalle de los puestos Mensual Anual
+119.784 REGISTRO NACIONAL
+119.784-00.01 UNIDAD SERV. DE REGIST. NAL. 2.555.850
+119.784-00.01.0001 DIRECCIÓN GENERAL 1.406.650
+11673 1 PROFESIONAL LICENCIADO 2 (7.0 meses) (Puesto: 11293) 200.950 1.406.650
+119.784-00.01.0006 DEPARTAMENTO DE PERSONAL 1.149.200
+Cuota Cuota
+Código Clase Detalle de los puestos Mensual Anual
+14719 1 TÉCNICO ADMINISTRATIVO B (8.0 meses) (Puesto: 11537) 143.650 1.149.200
+119.784-00.02 UNIDAD DE REG. DE LA PROPIEDAD 4.950.350
+119.784-00.02.0001 REGISTRO PÚBLICO 4.141.950
+3116 1 CERTIFICADOR TÉCNICO B (9.0 meses) (Puesto: 11307) 156.550 1.408.950
+12675 1 REGISTRADOR DE REG. NAC. A (10.0 meses) (Puesto: 11275) 156.550 1.565.500
+1600 1 ASIST. SERVICIOS TÉCNICOS 1 A (10.0 meses) (Puesto: 111131) 116.750 1.167.500
+119.784-00.02.0002 DEPARTAMENTO DE LIMPIEZA 808.400
+15955 1 TRABAJADOR CALIFICADO 1 (8.0 meses) (Puesto: 11249) 101.050 808.400
+119.784-00.03 UNIDAD SERV. DE REGIST. DE PREND. 1.808.550
+119.784-00.03.0001 REGISTRO PRENDAS 1.808.550
+12677 1 REGISTRADOR DE REG. NAC. C (9.0 meses) (Puesto: 11451). 200.950 1.808.550
+119.784-00.05 UNIDAD REG. DE LA PROP. INDUST. 2.834.000
+119.784-00.05.0001 PROPIEDAD INDUSTRIAL 2.834.000
+12676 1 REGISTRADOR DE REG. NAC.B (10.0 meses) (Puesto: 111203) 166.650 1.666.500
+1600 1 ASIST. SERVICIOS TÉCNICOS 1 A (10.0 meses) (Puesto: 11196). 116.750 1.167.500
+180 PARA DAR FINANCIAMIENTO A LAS RESOLUCIONES DE REASIGNACIÓN, ASIG- NACIÓN Y REAJUSTES DE SALARIOS, EMITIDAS POR LA DGSC A LA AUTORIDAD PRESUP. COMO PRODUCTO DE ESTUDIOS INDIVIDUALES DE PUESTOS ASÍ COMO REESTRUCT. INSTIT. (DISTRIB. POR DECRETO EJECUT.) 4.175.265
+TOTAL REBAJAR SUELDOS
+PROGRAMA: 784 REGISTRO
+NACIONAL 16.324.015
+TOTAL REBAJAR SUELDOS
+TÍTULO: 119 MINISTERIO DE
+JUSTICIA 16,324,015
+TOTAL REBAJAR SUELDOS 16,324,015
+AUMENTAR:
+119 MINISTERIO DE JUSTICIA
+119.784 REGISTRO NACIONAL
+119.784-00.01 UNIDAD SERV. DE REGIST.
+NAL. 2.816.850
+119.784-00.01.0001 DIRECCIÓN GENERAL 1.483.650
+11674 1 PROFESIONAL LICENCIADO 3 (7.0 meses) (Puesto: 11293) 211.950 1.483.650
+119.784-00.01.0006 DEPARTAMENTO DE PERSONAL 1.333.200
+11503 1 PROFESIONAL BACHILLER 1 (8.0 meses) (Puesto: 11537) 166.650 1.333.200
+119.784-00.02 UNIDAD DE REG. DE LA PROPIEDAD 6.445.850
+119.784-00.02.0001 REGISTRO PÚBLICO 5.568.650
+1601 1 ASIST. SERVICIOS TÉCNICOS 1 B (10.0 meses) (Puesto: 111131) 143.650 1.436.500
+3858 1 COORDINADOR GENERAL (9.0 meses) (Puesto: 11307) 235.850 2.122.650
+12677 1 REGISTRADOR DE REG. NAC. C (10.0 meses) (Puesto: 11275). 200.950 2.009.500
+119.784-00.02.0002 DEPARTAMENTO DE LIMPIEZA 877.200
+15956 1 TRABAJADOR CALIFICADO 2 (8.0 meses) (Puesto: 11249) 109.650 877.200
+119.784-00.03 UNIDAD SERV. DE REGIST. DE PREND. 2.037.150
+119.784-00.03.0001 REGISTRO PRENDAS 2.037.150
+3903 1 COORDINADOR REGISTRAL 2 (9.0 meses) (Puesto: 11451) 226.350 2.037.150
+Cuota Cuota
+Código Clase Detalle de los puestos Mensual Anual
+119.784-00.05 UNIDAD REG. DE LA PROP. INDUST. 3.575.000
+119.784-00.05.0001 PROPIEDAD INDUSTRIAL 3.575.000
+12675 1 REGISTRADOR DE REG. NAC. A (10.0 meses) (Puesto: 11196) 156.550 1.565.500
+12677 1 REGISTRADOR DE REG. NAC. C (10.0 meses) (Puesto: 111203) 200.950 2.009.500
+115 RETRIBUCIÓN POR LA PROHIBICIÓN DEL EJERCICIO PROFESIONAL (LEY Nº 5867 DEL 15/12/75 Y SUS REFORMAS) 1.207.150
+125 RETRIBUCIÓN SOBRE SUELDO MÍNIMO (ARTICULO 5° LEY DE LA ADMINISTRACIÓN PÚBLICA Nº 6835) DEL 22/12/82 242.015
+TOTAL AUMENTAR SUELDOS
+PROGRAMA: 784 REGISTRO
+NACIONAL 16.324.015
+TOTAL AUMENTAR SUELDOS
+TÍTULO: 119 MINISTERIO DE JUSTICIA 16.324.015
+TOTAL AUMENTAR SUELDOS 16.324.015
