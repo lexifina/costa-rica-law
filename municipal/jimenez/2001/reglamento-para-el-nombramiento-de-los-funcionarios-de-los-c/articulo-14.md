@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones ordinarias deben efectuarse en el caserío designado como cabecera del distrito, en el local que indique el Concejo Municipal, pudiendo el Concejo de Distrito celebrar sesiones extraordinarias en otros caseríos o distritos del mismo cantón o cantones aledaños, para tratar asuntos de interés común.
