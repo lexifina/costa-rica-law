@@ -1,0 +1,1 @@
+Artículo 3º—Todas las gestiones de cobro que sobre sus cuentas lleve la Municipalidad, se regirá por las disposiciones del presente reglamento, sin perjuicio de que la Municipalidad puede recurrir a un procedimiento más expedito, en aquellos casos que las circunstancias lo ameriten.

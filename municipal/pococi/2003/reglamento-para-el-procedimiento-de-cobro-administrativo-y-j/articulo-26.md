@@ -1,0 +1,3 @@
+Artículo 26.—Cuando un abogado deje de prestar los servicios a la municipalidad por cualquier motivo, excepto por el incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los honorarios de acuerdo con el grado de avance en que se encuentren los juicios, una vez finalizada la acción judicial y estos correrán por cuenta del deudor. En caso de discrepancia el tribunal respectivo los fijará.
+Por unanimidad, se acuerda: aprobar el Reglamento para el procedimiento de cobro administrativo y judicial de la Municipalidad de Pococí, publicarlo en el Diario Oficial La Gaceta.
+Guápiles, 24 de junio del 2003.
