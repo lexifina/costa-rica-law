@@ -1,0 +1,1 @@
+Artículo 5º.-El cargo de director de los Centros Agrícolas Cantonales será gratuito y quienes lo sirvan deberán ser vecinos del cantón o propietarios o arrendatarios de bienes rurales dedicados a explotaciones agropecuarias, mayores de edad, de notoria honorabilidad y con amplios conocimientos de los problemas del cantón.
