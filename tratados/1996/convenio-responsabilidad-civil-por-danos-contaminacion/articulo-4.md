@@ -1,0 +1,2 @@
+Artículo IV
+Cuando se produzcan fugas o descargas de hidrocarburos procedentes de dos o más buques y de ello resulten daños ocasionados por contaminación, los propietarios de todos los buques de que se trata, a menos que en virtud del artículo III gocen de exención, serán mancomunada y solidariamente responsables respecto de todos los daños que no quepa asignar razonablemente a nadie por separado.

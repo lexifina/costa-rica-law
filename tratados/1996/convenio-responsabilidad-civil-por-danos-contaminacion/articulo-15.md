@@ -1,0 +1,3 @@
+Artículo XV
+1.- El presente Convenio entrará en vigor el nonagésimo día siguiente a la fecha en que los Gobiernos de ocho Estados, entre los cuales figuren cinco Estados que respectivamente cuenten con no menos de un millón de toneladas de arqueo bruto de buques tanque, lo hayan firmado sin reserva en cuanto a ratificación, aceptación o aprobación o hayan depositado ante el Secretario General de la Organización los oportunos instrumentos de ratificación, aceptación, aprobación o adhesión.
+2.- Para todo Estado que posteriormente ratifique, acepte o apruebe el presente Convenio o que se adhiera al mismo, el Convenio entrará en vigor el nonagésimo día siguiente a la fecha en que el Estado de que se trate haya depositado el oportuno instrumento.

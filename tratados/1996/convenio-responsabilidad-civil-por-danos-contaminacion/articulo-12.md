@@ -1,0 +1,2 @@
+Artículo XII
+El presente Convenio derogará cualesquiera otros convenios internacionales que, en la fecha en que se abra a la firma, estén en vigor o abiertos a la firma, ratificación o adhesión, pero sólo en la medida en que tales convenios estén en pugna con él; nada de lo dispuesto en el presente artículo afectará a las obligaciones que los Estados Contratantes tengan para con los Estados no Contratantes en virtud de esos convenios.

@@ -1,0 +1,9 @@
+Artículo III
+1.- Salvo en los casos estipulados en los párrafos 2 y 3 del presente artículo el propietario del buque al tiempo de producirse un suceso o, si el suceso está constituido por una serie de acaecimientos, al tiempo de producirse el primero de estos, será responsable de todos los daños ocasionados por contaminación que se deriven de una fuga de hidrocarburos o de la descarga de estos desde el buque a resultas del suceso.
+2.- No se imputará responsabilidad alguna al propietario si este prueba que los daños ocasionados por contaminación:
+a) Se debieron totalmente a un acto de guerra, hostilidades, guerra civil o insurrección, o a un fenómeno natural de carácter excepcional, inevitable e irresistible, o
+b) se debieron totalmente a la acción o a la omisión de un tercero que actuó con la intención de causar daños, o
+c) se debieron totalmente a la negligencia o a una acción lesiva de otra índole de cualquier Gobierno o autoridad responsable del mantenimiento de luces o de otras ayudas náuticas, en el ejercicio de esa función.
+3.- Si el propietario prueba que los daños ocasionados por contaminación se debieron total o parcialmente a la acción o a la omisión de la persona que los sufrió, la cual actuó así con la intención de causarlos, o a la negligencia de esa persona, el propietario podrá ser exonerado total o parcialmente de su responsabilidad ante esa persona.
+4.- No podrá promoverse contra el propietario ninguna reclamación de indemnización de daños ocasionados por contaminación que no se ajuste al presente Convenio. No podrá promoverse ninguna reclamación relacionada con daños ocasionados por contaminación, ajustada o no al presente Convenio, contra los empleados o los agentes del propietario.
+5.- Nada de lo dispuesto en el presente Convenio irá en perjuicio del derecho del propietario a interponer recurso contra terceros.

@@ -1,0 +1,2 @@
+Artículo VIII
+Los derechos de indemnización estipulados en el presente Convenio prescribirán a menos que se interponga una acción en virtud del mismo dentro de un plazo de tres años, contados a partir de la fecha en que se haya producido el daño. Sin embargo, en ningún caso podrá interponerse acción alguna, una vez transcurridos seis años desde la fecha del suceso que ocasionó los daños. Cuando este suceso esté constituido por una serie de acaecimientos, el plazo de seis años se contará a partir de la fecha del primer acaecimiento.

@@ -1,0 +1,3 @@
+Artículo XIV
+1.- La ratificación, aceptación, aprobación o adhesión se efectuarán depositando el oportuno instrumento oficial ante el Secretario General de la Organización.
+2.- Todo instrumento de ratificación, aceptación, aprobación o adhesión depositado después de la entrada en vigor de una enmienda al presente Convenio respecto de todos los Estados Contratantes que lo sean en ese momento, o de que se hayan cumplido todos los requisitos necesarios para la entrada en vigor de la enmienda respecto de dichos Estados Contratantes, se considerará aplicable al Convenio modificado por esa enmienda.
