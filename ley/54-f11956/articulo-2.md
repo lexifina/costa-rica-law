@@ -1,0 +1,1 @@
+Art.2° Se aprueban tambien las capitulaciones que se refieren al proyecto del camino de Sarapiquiy canalizacion del rio de este nombre reformadas, sepun se nota en los artículos 1'2° 3°4°5°6°7°y 8° del ejemplar que se remite al Supremo Gobierno para los efectos que correspondan.
