@@ -1,0 +1,3 @@
+CAPITULO IV
+De la ejecución
+Artículo 12.—En caso de que el acreedor decidiese ejecutar la prenda sobre los árboles en pie: ya sea por incumplimiento del deudor o de los terceros obligados de las obligaciones estipuladas contractual o legalmente, por la verificación de cualquiera de los supuestos del Código Civil en cuanto al vencimiento anticipado de las obligaciones en perjuicio del deudor, o por el simple vencimiento del plazo, podrá solicitar ante el Sistema Nacional de Áreas de Conservación los permisos de aprovechamiento correspondiente, los cuales serán entregados por orden del juez que conoce del proceso una vez adjudicado en el remate de árboles.

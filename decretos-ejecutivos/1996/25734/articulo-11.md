@@ -1,0 +1,1 @@
+Artículo 11.—Junto con la presentación del certificado de prenda se presentará un segundo testimonio al Registro de la Propiedad de bienes inmuebles, a fin de que se inscriba la autolimitación establecida en la matriz, sobre la ejecución del proyecto y las limitaciones que de este se desprenden.

@@ -1,0 +1,1 @@
+Artículo 5°—En aquellos casos en que el deudor prendario no sea el propietario de la finca en donde se encuentren los árboles en pie objeto de pignoración: deberá comparecer en el documento de prenda el propietario de la finca relacionada, y manifestar su anuencia en el gravamen impuesto, con las renuncias y estipulaciones del caso.
