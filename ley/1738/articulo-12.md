@@ -1,0 +1,1 @@
+Artículo 12.- Salvo especificación expresa en contrario, la gasolina que ingrese al país libre de derechos en razón de contratos o leyes especiales, pagará un impuesto de cincuenta céntimos de colón, por cada galón, de conformidad con lo dispuesto en la ley Nº 29 de 13 de diciembre de 1940.

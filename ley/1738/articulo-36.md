@@ -1,0 +1,1 @@
+Artículo 36.— Se considerarán láminas de metales comunes aquellos cuyo espesor equivalga hasta al N° 5 de la escala calibrada de la Manufactures Standar Gage, o sea 0.2145 pulgadas, que equivale a 5.45 mm. Los espesores mayores se considerarán como planchas.

@@ -1,0 +1,1 @@
+Artículo 17.— Los artículos de producción nacional que fueren reimportados, dentro del término de seis meses, contados desde su exportación, ingresarán al país libres de derechos. El importador deberá demostrar ineludiblemente que se trata de la misma mercadería que se exportó y justificar su reimportación.
