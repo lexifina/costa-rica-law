@@ -1,0 +1,1 @@
+Art 4°.- De los primeros productos se pagarán los cosechadores, quedando el resto a disposición del Ejecutivo para proveer a la seguridad del Estado y cubrir sus demás atenciones, pudiendo indemnizar con el mismo fruto a los empleados civiles sus alcances.
