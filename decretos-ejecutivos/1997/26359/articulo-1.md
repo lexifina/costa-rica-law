@@ -1,0 +1,12 @@
+N° 26359-H
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE HACIENDA,
+En uso de las facultades del artículo 140, incisos 3) y 18) de la Constitución Política de la República, artículos 25 y 26 de la Ley General de la Administración Pública, y artículo 13, inciso c) de la ley N° 7088 de 30 de noviembre de 1977.
+Considerando:
+1°-Que el artículo 9 del Reglamento de la Ley del Impuesto a la Transferencia de Vehículos Automotores, Aeronaves y Embarcaciones Usados, establece que las personas físicas o jurídicas, que sean agencias de compraventa de vehículos usados, deberán inscribirse en la Tributación Directa, a efecto de que en la adquisición de vehículos destinados a la comercialización no tengan que pagar el impuesto de transferencia de dichos automotores.
+2°-Que el sistema actual, para que las agencias dedicadas a la compra venta de vehículos, no paguen el impuesto cuando la adquisición del vehículo es para su comercialización es lento y engorroso, por lo que se hace necesario modificarlo. Por tanto,
+DECRETAN:
+Artículo 1°-Modifícase el artículo 9° del Reglamento de la Ley del Impuesto a la Transferencia de Vehículos Automotores, Aeronaves y Embarcaciones Usadas, N° 17880-H del 1° de diciembre de 1987 y sus reformas, para que se lea así:
+"Artículo 9°-Inscripción de agencias de compraventa de vehículos usados: Las personas físicas o jurídicas dedicadas a la compra de vehículos automotores usados adquiridos exclusivamente para su comercialización, deberán inscribirse como contribuyentes de este impuesto, en la Dirección General de la Tributación Directa, a efecto de que en la adquisición de vehículos no tengan que pagar el impuesto. Cuando se trate de compra de vehículos para el desarrollo propio de sus actividades, si estará afecto al pago de este tributo.
+La Dirección General de la Tributación Directa, deberá extender a las Agencias dedicadas a la comercialización de vehículos usados, un documento donde conste que la agencia está inscrita como contribuyente del impuesto. Dicho documento deberá ser presentado ante el Registro Público de la Propiedad, cuando las agencias inscriban a su nombre los vehículos comprados exclusivamente para su venta.
+La Dirección General de la Tributación Directa, deberá suministrar al Registro Público de la Propiedad, un listado de las agencias dedicadas a la compraventa de vehículos que se encuentran inscritas como contribuyentes del impuesto. Asimismo, cada vez que, una nueva agencia se inscriba, deberá expresamente comunicárselo.
