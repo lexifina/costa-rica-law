@@ -1,0 +1,2 @@
+Artículo 2° Todos aquellos sujetos ya calificados en el Plan de Restitución de Áreas, deberán reportar a CORBANA en un término de TRES MESES A PARTIR DE LA PUBLICACIÓN DE ESTE DECRETO el área total sembrada.
+Asimismo, todas aquellas empresas que fueren calificadas después de la promulgación de este decreto, tendrán un plazo igual de TRES MESES, que se contará a partir de que sea comunicada su calificación, para informar a CORBANA sobre la totalidad del área sembrada.

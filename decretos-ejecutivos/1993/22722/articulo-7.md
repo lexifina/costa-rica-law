@@ -1,0 +1,1 @@
+Artículo 7°-La CORPORACIÓN BANANERA NACIONAL como Ente ejecutor del Plan de Restitución de Arcas, de conformidad con el artículo 1° del Decrete N° 16563-MAG. de 24 de setiembre de 1985 y sus reformas, velará por el cumplimiento de la presente normativa.
