@@ -15,3 +15,4 @@ Integración del Sector Finanzas
 | --- | --- | --- |
 | 1 | 1980-03-25 | la propia norma |
 | 2 | 1980-04-21 | Decreto Ejecutivo 11726 (1980-04-21) |
+| 3 | 1981-06-09 | Decreto Ejecutivo 12693 (1981-06-09) |
