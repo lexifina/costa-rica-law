@@ -14,3 +14,4 @@ Reglamento para el reconocimiento del incentivo por peligrosidad en la lucha con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-03 | la propia norma |
+| 2 | 1999-04-14 | Decreto Ejecutivo 27796 (1999-04-14) |
