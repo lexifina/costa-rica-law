@@ -8,5 +8,5 @@ efectuarse por el medio pertinente.
 Los abogados podrán inscribirse en forma genérica en el servicio,
 para los asuntos que atienden; pero, en cada caso, deberán indicar que el
 asunto está bajo su responsabilidad y, de separarse del trámite, también
-estarán obligados a indicarlo. La advertencia de notificación no tendrá el
-valor legal de las notificaciones.
+estarán obligados a indicarlo. La advertencia de notificación no tendrá
+el valor legal de las notificaciones.
