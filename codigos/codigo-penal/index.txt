@@ -437,3 +437,4 @@ articulo-420.md
 articulo-421.md
 articulo-422.md
 articulo-423.md
+articulo-184-ter.md
