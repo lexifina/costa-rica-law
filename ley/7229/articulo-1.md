@@ -72,7 +72,7 @@ En fe de lo cual firman el presente documento, en dos ejemplares de
 un mismo tenor e igual fuerza obligatoria, uno para cada parte, en el
 lugar y fecha indicados al principio del mismo.
 REPUBLICA DE COSTA RICA BANCO CENTROAMERICANO DE
-INTEGRACION ECONOMICA
+INTEGRACION ECONOMICA.
 ANEXO A
 DOCUMENTO INCORPORADO AL CONVENIO DE REGULARIZACION SUSCRITO
 CON LA REPUBLICA DE COSTA RICA
@@ -81,33 +81,29 @@ PRESTAMOS OTORGADOS A LA
 REPUBLICA DE COSTA RICA Y COMO GARANTE DE
 OTROS PRESTAMOS CUYO PAGO HA
 ASUMIDO LA REPUBLICA DE COSTA RICA
-(NOTA: Por razones técnicas no es posible mostrar aquí el contenido del
-presente documento. No obstante, puede verse en La Gaceta No.103 del 3 de
-junio de 1991, página 1. )
+(NOTA: Por razones técnicas no es posible mostrar la tabla
+correspondiente, por lo que debe verse en la Gaceta).
 DOCUMENTO INCORPORADO AL CONVENIO DE REGULARIZACION
 SUSCRITO CON LA REPUBLICA DE COSTA RICA
 DEUDA VENCIDA EN DIVISAS AL 30 DE JUNIO DE 1989
 PRESTAMOS OTORGADOS A LA REPUBLICA DE COSTA RICA Y COMO GARANTE
 DE OTROS PRESTAMOS CUYO PAGO HA ASUMIDO LA REPUBLICA DE COSTA RICA
-(NOTA: Por razones técnicas no es posible mostrar aquí el contenido del
-presente documento. No obstante, puede verse en La Gaceta No.103 del 3 de
-junio de 1991, página 1. )
+(NOTA: Por razones técnicas no es posible mostrar la tabla
+correspondiente, por lo que debe verse en La Gaceta)
 DOCUMENTO INCORPORADO AL CONVENIO DE REGULARIZACION
 SUSCRITO CON LA REPUBLICA DE COSTA RICA
 DEUDA VENCIDA EN DIVISAS AL 30 JUNIO DE 1989
 PRESTAMOS OTORGADOS A LA REPUBLICA DE COSTA RICA Y COMO GARANTE
 DE OTROS PRESTAMOS CUYO PAGO HA ASUMIDO LA REPUBLICA DE COSTA RICA
-(NOTA: Por razones técnicas no es posible mostrar aquí el contenido del
-presente documento. No obstante, puede verse en La Gaceta No.103 del 3 de
-junio de 1991, página 1. )
+(NOTA: Por razones técnicas no es posible mostrar la tabla
+correspondiente, por lo que debe verse en La Gaceta).
 DOCUMENTO INCORPORADO AL CONVENIO DE REGULARIZACION
 SUSCRITO CON LA REPUBLICA DE COSTA RICA
 DEUDA VENCIDA EN DIVISAS AL 30 JUNIO DE 1989
 PRESTAMOS OTORGADOS A LA REPUBLICA DE COSTA RICA Y COMO GARANTE
 DE OTROS PRESTAMOS CUYO PAGO HA ASUMIDO LA REPUBLICA DE COSTA RICA
-(NOTA: Por razones técnicas no es posible mostrar aquí el contenido del
-presente documento. No obstante, puede verse en La Gaceta No.103 del 3 de
-junio de 1991, página 1. )
+(NOTA: Por razones técnicas no es posible mostrar la tabla
+correspondiente, por lo que debe verse en La Gaceta).
 El Banco y el Prestatario aceptan que el saldo adeudado al 30 de junio
 de 1989, en otras divisas distintas al dólar de los Estados Unidos de
 América (US$), en adelante llamado "dólar" o "dólares", queden adeudados a
