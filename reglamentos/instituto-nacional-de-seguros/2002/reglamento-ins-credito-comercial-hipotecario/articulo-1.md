@@ -1,0 +1,4 @@
+INSTITUTO NACIONAL SE SEGUROS
+REGLAMENTO INS CRÉDITO COMERCIAL HIPOTECARIO
+Artículo 1º—Objetivo del Reglamento. Regular la concesión de crédito comercial hipotecario del Instituto Nacional de Seguros, en colones o dólares, de acuerdo con lo establecido tanto por los artículos 21 y 22 de la Ley Nº 12 del 30 de octubre de 1924 y sus reformas, así como por el artículo 1 de la Ley 2170 del 19 de octubre de 1957, en relación con los planes de inversión a que se refiere el Artículo Nº 2 de este Reglamento.
+Este producto financiero se designa, para todos los fines, "INS Crédito Comercial Hipotecario" y está dirigido a personas o empresas jurídicas con una amplia trayectoria institucional, aspecto que será evaluado de acuerdo con el perfil que se definirá en las disposiciones complementarias a este Reglamento.
