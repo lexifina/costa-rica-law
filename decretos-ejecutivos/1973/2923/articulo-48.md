@@ -1,8 +1,9 @@
-Artículo 48.-Para calcular el volumen de la madera sobre el cual se impondrá el impuesto general se usará la fórmula:
-V = II/4 D2 L.07
+Artículo 48.-Para determinar el volumen de la madera sobre el cual se impondrá el impuesto general, así como el derecho señalado en el inciso 2) del artículo 52 de la Ley Forestal, se utilizará la fórmula:
+V= 0,7854 ( D+d/2) 2 L
 En donde:
-V-Volumen de la troza en metros cúbicos.
-II/4- 0.7854.
-D2- Diámetro en centímetros de la troza elevado al cuadrado. L- Longitud de la troza en metros.
-0.7- Factor de corrección.
-El diámetro se tomará sin corteza en la cara menor de la troza. En cuanto a trozas labradas se tomará la distancia diagonal mayor como diámetro, por la cara menor de la troza.
+V = Volumen
+0,7854 = Factor II/4
+D = Diámetro mayor de la troza
+d = Diámetro menor de la troza
+L = Longitud
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12491 del 16 de marzo de 1981)

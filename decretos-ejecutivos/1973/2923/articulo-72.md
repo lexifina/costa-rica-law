@@ -1,5 +1,2 @@
-Artículo 72.-Todo beneficiario de permiso o de concesión para el aprovechamiento de maderas, deberá pagar un derecho anual por área que se rige la siguiente forma:
-a) Hasta cien hectáreas el derecho será de tres colones por hectárea.
-b) Hasta quinientas hectáreas el derecho correspondiente a las cien hectáreas más una tasa de treinta céntimos por hectárea del exceso de cien hectáreas
-c) Hasta mil quinientas hectáreas el derecho correspondiente a quinientas hectáreas más una tasa de veinte céntimos por hectárea del exceso quinientas hectáreas.
-d) Extensiones mayores de mil quinientas hectáreas, el derecho correspondiente a esta área más una tasa de diez céntimos por hectárea del de mil quinientas hectáreas.
+Artículo 72.-El beneficiario de un permiso o concesión para el aprovechamiento de productos forestales deberá pagar un derecho anual que se calculará según las características de los aprovechamientos, es decir, en base a la superficie concedida, la especie o especies existentes, accesibilidad, obras de infraestructura a realizar y otros factores que analizará la Dirección General Forestal, a razón de diez a cincuenta colones (¢ 10,00 a ¢ 50,00) por hectárea.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12491 del 16 de marzo de 1981)

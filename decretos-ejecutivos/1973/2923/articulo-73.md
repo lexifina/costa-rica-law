@@ -1,4 +1,2 @@
-Artículo 73.-Todo beneficiario de permiso o de concesión para el aprovechamiento de maderas deberá pagar un derecho sobre el volumen a extraer de la siguiente manera:
-Maderas de clase A: cuarenta colones sin céntimos (¢ 40.00) por metro cúbico.
-Maderas de clase B: veinte colones sin céntimos (¢20.00) por metro cúbico.
-Maderas de clase C: diez colones sin céntimos (¢10.00) por metro cúbico.
+Artículo 73.-El beneficiario de un permiso o concesión, asimismo, pagará un derecho sobre el volumen a extraer a razón de sesenta a cien colones (¢ 60,00 a ¢ 100,00) por cada metro cúbico, una vez analizados también por la Dirección General Forestal los factores -o algún otro- indicados en el artículo anterior.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12491 del 16 de marzo de 1981)
