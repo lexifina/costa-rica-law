@@ -14,3 +14,4 @@ Regulaciones y Política Institucional para el Otorgamiento de Permisos de Inact
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-31 | la propia norma |
+| 2 | 2003-02-21 | Acuerdo 64 (2003-02-21) |
