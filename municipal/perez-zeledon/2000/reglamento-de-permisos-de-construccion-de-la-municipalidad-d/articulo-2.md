@@ -1,0 +1,1 @@
+Articulo 2°—Área de influencia geográfica de aplicación. Este Reglamento podrá ser aplicado para todas aquellas actividades que impliquen la realización de obras que requieran permiso municipal de acuerdo a la Ley de Construcciones vigente y ubicadas en el cantón de Pérez Zeledón.

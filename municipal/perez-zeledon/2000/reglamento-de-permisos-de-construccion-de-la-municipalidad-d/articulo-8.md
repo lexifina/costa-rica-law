@@ -1,0 +1,1 @@
+Articulo 8°—Plazo para el cumplimiento de los diferentes requisitos. Todos los requisitos generales, especiales y extraordinarios que señalan los artículos precedentes de este Reglamento deberán ser presentados junto con la solicitud de trámite del permiso de construcción, bajo pena de inadmisibilidad.

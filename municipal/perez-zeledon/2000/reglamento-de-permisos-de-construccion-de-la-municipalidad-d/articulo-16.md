@@ -1,0 +1,1 @@
+Artículo 16.—Formularios de declaración. La declaración de la que se habla en el artículo anterior de este Reglamento deberá ser hecha por el solicitante en un formulario que la Municipalidad facilitará con este fin. Estos formularios serán entregados y recibidos en la Municipalidad de Pérez Zeledón en horarios y jornadas hábiles.
