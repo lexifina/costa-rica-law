@@ -1,0 +1,1 @@
+Art 139° Cualquier duda que ocurra en la ejecución sobre la inteligencia de alguna o algunas de las disposiciones de esta Ordenanza, la resolverá el Supremo Poder Ejecutivo conforme al espíritu de esta ley.

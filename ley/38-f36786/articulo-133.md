@@ -1,0 +1,1 @@
+Art 133° Las autoridades encargadas de dar o conceder los capitales a interés, en igualdad de circunstancias, darán la preferencia a los agricultores más en todo caso exigirán las seguridades que tienen establecidas las leyes particulares que arreglan los diferentes fondos.

@@ -1,0 +1,1 @@
+Art. 18. Las Municipalidades tendrán un Presidente nombrado por las mismas el 19 de enero, de cada año por mayoría absoluta de votos de los individuos que concurran a su instalación y dentro de Para el caso de que falte temporalmente. El Presidente, las mismas nombrarán un Vice-Presidente, también de entre sus individuos. Uno y otro nombramiento recaerá en los propietarios.

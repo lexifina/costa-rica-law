@@ -1,0 +1,1 @@
+Art. 82. Los Jefes Políticos serán pagados del Tesoro público: disfrutarán de la dotación que les señala la ley; y tendrán un Secretario escribiente de nombramiento de los Gobernadores, á propuesta en terna de aquellos y con la dotación que se les asigne de las rentas Municipales, proveyendo las mismas á los gastos de escritorio.

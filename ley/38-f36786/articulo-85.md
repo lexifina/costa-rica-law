@@ -1,0 +1,1 @@
+Art. 85. Las leyes y decretos del Congreso, los decretos, órdenes y resoluciones del Poder Ejecutivo, los acuerdos Municipales y las órdenes de los Gobernadores, se comunicarán en cada Cantón por conducto de su respectivo Jefe Político.

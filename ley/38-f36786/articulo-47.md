@@ -1,0 +1,1 @@
+Art. 47. Están obligados los Tesoreros particulares de que habla el artículo 38, sección 6 a rendir en el primer mes de cada año económico, al Tesorero general de la respectiva Provincia, las cuentas de los caudales que hubiesen manejado en el año anterior, bajo las mismas penas, si no cumplen, que están señaladas por los Tesoreros generales.

@@ -1,0 +1,1 @@
+Art 119° Los Gobernadores y Jefes Políticos exigirán frecuentemente de los Jueces de Paz, sobre las reparaciones que demanden los caminos y visitarán con frecuencia tanto estos como los trabajos que en ellos se hagan o establezcan.

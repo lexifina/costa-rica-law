@@ -1,0 +1,1 @@
+Art. 87. Velarán los Jefes Políticos porque los funcionarios públicos del Cantón de su mando, cumplan con los deberes que les corresponden, informando á los Gobernadores sobre aquellos que desempeñen mal sus destinos o de quienes noten, faltas en el ejercicio de sus funciones, acompañando los documentos que los comprueben para los efectos que ha ya lugar,

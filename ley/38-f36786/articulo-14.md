@@ -1,0 +1,1 @@
+Art. 14. Las Municipalices pueden trasferir sus sesiones ordinarias cuando por algún motivo importante lo creyesen. conveniente, mas sin tal motivo en ningún case, dejarán de celebrarlas en los días prefijados.
