@@ -1,0 +1,1 @@
+Artículo 3°—El propósito fundamental del programa es el diseño, coordinación, desarrollo y evaluación de las acciones policiales tendientes a mejorar las condiciones de seguridad de los turistas, tanto nacionales como extranjeros.

@@ -1,0 +1,1 @@
+Artículo 2°—Para el funcionamiento del programa, el Director General de la Guardia Civil, en coordinación con la señora Ministra de Seguridad Pública, deberá nombrar un encargado general y disponer de los recursos humanos y materiales mínimos para asegurar el cumplimiento de sus objetivos.
