@@ -1,0 +1,1 @@
+Artículo 5°—Las Altas Partes Contratantes enviarán inmediatamente al Consejo de Seguridad de las Naciones Unidas, de conformidad con los artículos 51 y 54 de la Carta de San Francisco, información completa .sobre las actividades desarrolladas o proyectadas en ejercicio del derecho de legítima defensa o con el propósito de mantener la paz y la seguridad interamericanas.

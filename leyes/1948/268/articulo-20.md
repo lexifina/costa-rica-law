@@ -1,0 +1,1 @@
+Artículo 20.—Las decisiones que exijan la aplicación de las medidas relacionadas en el artículo 8° serán obligatorias para todos los Estados signatarios del presente Tratado que lo hayan ratificado, con la sola excepción de que ningún Estado estará obligado a emplear la fuerza armada sin su consentimiento.

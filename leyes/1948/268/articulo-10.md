@@ -1,0 +1,1 @@
+Artículo 10.—Ninguna de las estipulaciones de este Tratado se interpretará en el sentido de menoscabar los derechos y obligaciones de Altas Partes Contratantes de acuerdo con la Carta de las Naciones Unidas.
