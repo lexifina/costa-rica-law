@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Deberes del notario
+Además de las obligaciones y los deberes resultantes de la presente ley, los notarios públicos están obligados a tener una oficina abierta al público y brindar los servicios que se les requieran, de lo cual solo pueden excusarse por causa justa, moral o legal. Deben asesorar debidamente a quienes les soliciten los servicios para la correcta formación y expresión legal de su voluntad en los actos jurídicos que realicen.

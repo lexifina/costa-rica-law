@@ -1,0 +1,2 @@
+ARTÍCULO 167.- Obligación de dar recibo
+Los notarios deberán extender recibos oficiales por todas las sumas de dinero que reciban y dejar constancia de haber recibido o no los honorarios y derechos de las escrituras inscribibles en alguno de los registros públicos; también indicarán las cantidades recibidas y el concepto. La omisión de esta razón hará presumir que los honorarios y demás gastos necesarios fueron cubiertos satisfactoriamente.

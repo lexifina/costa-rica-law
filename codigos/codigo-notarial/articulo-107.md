@@ -1,0 +1,4 @@
+ARTÍCULO 107.- Efectos de la protocolización de documentos privados
+La protocolización de documentos privados no les confiere la condición de instrumentos públicos; tampoco sirven para provocar inscripciones en los registros ni en las oficinas públicas, excepto cuando se trate de actas o piezas cuyo contenido deba inscribirse conforme a la ley.
+Si en un proceso judicial o administrativo se invocare la protocolización de un documento, pretendiendo derechos con base en ella, y se cuestionare la autenticidad del contenido incorporado al protocolo, el documento notarial será ineficaz para fundar el derecho y el pretensor deberá presentar el documento original.
+En toda protocolización, el notario debe conservar, en el archivo de referencias, copia del documento, acta o pieza a que se refiere la intervención.

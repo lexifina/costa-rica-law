@@ -1,0 +1,2 @@
+ARTÍCULO 52.- Razón de cierre
+Al concluirse cada tomo de protocolo, luego del último instrumento público el notario debe consignar una razón de cierre, en la cual indicará el número de instrumentos que contiene, su estado y que todos están debidamente firmados por los otorgantes y testigos, en su caso, así como cualquier otra circunstancia que estime importante. Después del último instrumento público, el notario debe tener cuidado de reservar espacio suficiente para dicha razón.

@@ -1,0 +1,2 @@
+ARTÍCULO 113.- Expedición de testimonio
+Solamente el notario podrá expedir testimonios de los instrumentos públicos otorgados en su protocolo, mientras el respectivo tomo esté en su poder. Si ya el protocolo hubiere sido devuelto a la oficina correspondiente, los testimonios podrán ser expedidos por el notario o el funcionario encargado de custodiar el tomo, salvo lo dispuesto por el artículo 123.

@@ -1,0 +1,5 @@
+CAPÍTULO V
+DEL NOTARIADO CONSULAR
+ARTÍCULO 14.- Notario consular.
+Los cónsules de Costa Rica en el extranjero ejercerán el notariado público en su circunscripción territorial, respecto de los hechos, actos o contratos que deban ejecutarse o surtir efecto en Costa Rica. Ejercerán la función de conformidad con este código. Para el notariado consular no se aplicará lo dispuesto en el inciso c) del artículo 3 de esta ley.
+Corresponde a los notarios consulares vigilar y atender todas las disposiciones, prohibiciones y demás estipulaciones que asumen los notarios públicos de acuerdo con el presente código. Serán igualmente sancionables y su función estará sujeta a la fiscalización del órgano correspondiente. La dejación del cargo produce, de pleno derecho, la cesación de la función notarial y la obligación de devolver el protocolo, con la razón de cierre correspondiente y en el estado de uso en que se halle. Cuando la cesación se produzca, el Ministerio de Relaciones Exteriores y Culto debe comunicarla a la Dirección Nacional de Notariado y al Archivo Notarial.
