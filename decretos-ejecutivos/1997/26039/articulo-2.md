@@ -1,0 +1,1 @@
+Artículo 2°-Las relaciones de servicio que surjan con ocasión del trabajo entre el proceso y sus servidores, serán reguladas por el Reglamento Interno de Trabajo del Consejo de Seguridad Vial y las restantes disposiciones normativas de nuestro ordenamiento jurídico.
