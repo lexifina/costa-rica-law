@@ -17,3 +17,4 @@ Cambia nombre de Reserva Indígena de Burica en Reserva Indígena Guaymí de Con
 | 2 | 1980-12-09 | Decreto Ejecutivo 12115 (1980-12-09) |
 | 3 | 1982-04-26 | Decreto Ejecutivo 13545 (1982-04-26) |
 | 4 | 1984-12-03 | Decreto Ejecutivo 16052 (1984-12-03) |
+| 5 | 2001-03-22 | Reglamento 29450 (2001-03-22) |

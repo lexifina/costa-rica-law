@@ -1,50 +1,42 @@
-Artículo 2°—Los límites de la Reserva son los mencionados a continuación:
-Reserva Indígena Guaymí de Conteburica.
-(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
-La Reserva Indígena Guaymí de Conteburica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
-(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
-La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
-Partiendo de un punto en la playa en coordenadas N 254 850 E 560 450, se continúa con los puntos de coordenadas siguientes:
+Artículo 2°—La Reserva Indígena Guaymí de Conteburica se localiza en las hojas cartográficas del Instituto Geográfico Nacional, Escala l:50,000 Pavón 3541-II, Río Caña Blanca 3540 y Puerto Armuelles 3640 IV.
+La Reserva Indígena Guaymí de Conteburica se delimita por los puntos de coordenadas siguientes:
+N 254 850 | E 560 450 |
 N 255 300 | E 560 825 |
 N 255 475 | E 560 750 |
 N 256 750 | E 560 750 |
 N 257 800 | E 560 000 |
-N 258 875 | E 560 250 | ( Río Claro ).
-De este punto se sigue el Río Claro aguas arriba hasta el punto de coordenadas N 258 825 E 560 425.
-De este punto, se sigue con los puntos de coordenadas:
-N 259 225 | E 560 775 |
-N 259 600 | E 560 300 |
+N 258 875 | E 560 250 | (Río Claro)
 N 259 900 | E 560 300 |
 N 260 250 | E 560 525 |
 N 260 100 | E 561 450 |
-N 259 750 | E 561 725 |
-N 259 375 | E 561 800 | (Cerro, 406 m).
-N 260 000 | E 563 000 | (Quebrada La Yerba).
-N 260 200 | E 564 550 | (Quebrada Honda).
-N 261 000 | E 565 400 |
-N 261 425 | E 565 300 |
-N 263 225 | E 566 625 |
-N 263 600 | E 567 325 | (Río Conté)
-N 264 100 | E 568 775 |
-N 263 450 | E 569 425 |
-N 262 725 | E 569 250 |
-N 262 500 | E 569 750 |
-N 260 950 | E 570 150 | (Quebrada Vueltas)
-N 259 950 | E 569 825 |
-N 259 725 | E 570 550 | (Unión de los dos brazos del río La Vaca)
+N 260 050 | E 562 075 |
+N 260 200 | E 564 550 | (Quebrada Honda)
+De este último punto, el límite de la reserva toma aguas abajo por la quebrada Honda, hasta el punto de coordenadas N 261 600 E 564 600.
+De ahí una recta al punto d coordenadas N 261 425 E 565 300, Se continúa por la fila divisoria de aguas del brazo izquierdo del Río Conte y de la Quebrada Honda, hasta el punto de coordenadas N 262 850 E 566 350. De este punto se continúa al punto de coordenadas N 263 475 E 566 200, punto que toma la naciente de un pequeño afluente del río Conte, sin nombre en la hoja Cartográfica respectiva. El lindero sigue aguas abajo por este afluente, hasta su confluencia con e Río Conte, en el punto de coordenadas N 264 035 E 567 300. Se continúa aguas abajo por el Río Conte, hasta su confluencia con un afluente en coordenadas N 264 475 E 567 800. De este último punto, se sigue por los puntos de coordenadas:
+N 264 600 | E 568 150
+N 264 100 | E 568 775
+N 263 450 | E 569 425
+N 262 725 | E 569 250
+N 262 500 | E 569 750
+A partir de este último punto, el límite de la reserva continúa al punto de coordenadas N 262 050 E 569 975. Punto que interseca la naciente de una pequeña quebrada dibujada en el mapa por curvas de nivel. El lindero sigue aguas abajo por esta quebrada, hasta su confluencia con la quebrada Vueltas, en el punto de coordenadas N 260 770 E 670 E 670 850.
+Continúa el límite aguas abajo por la quebrada hasta la unión de ésta con el Río La Vaca, en coordenadas N 260 550 E 570 920. De ahí se sigue por rectas, pasando por los puntos de coordenadas:
 N 259 650 | E 571 450 |
 N 258 575 | E 571 225 |
-N 258 175 | E 571 500 | (Cerro, 493 m).
-N 257 325 | E 572 900 | (Frontera de Panamá).
-A partir de este punto, se sigue por el límite fronterizo entre Costa Rica y Panamá, primero hacia el suroeste y después hacia el sureste, hasta el punto de coordenadas:
-N 247 250 | E 578 950 | (Frontera de Panamá).
-De allí se sigue por los puntos de coordenadas:
+N 258 175 | E 571 500 | (Cerro, 493 m)
+N 257 325 | E 572 900 | (Frontera de Panamá)
+A partir de este punto, se sigue por el límite fronterizo entre Costa Rica y Panamá, señalando en las hojas cartográficas correspondientes el cual toma rumbo.
+Sur Oeste de este último punto y después Sur Este, hasta el punto de coordenadas N 247 250 E 578 950 ( frontera de Panamá). De ahí se sigue por los puntos de coordenadas:
 N 246 775 | E 578 950 |
 N 246 200 | E 578 400 |
-N 246 200 | E 578 025 | (Quebrada La Peñita).
-De allí se sigue aguas abajo la quebrada La Peñita hasta su desembocadura en el mar, en coordenadas:
-N 243 250 | E 576 600
-A partir de este punto se continúa por la playa hasta el punto origen de la presente descripción, en coordenadas N 254 850 E 560 450.
-Superficie de la Reserva Indígena Guaymí de Conteburica: 11 910 hectáreas.
-(Mediante el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indica que el nombre correcto es Reserva Indígena Guaymí de Conteburica).
-(Así reformado mediante el artículo 2° del decreto ejecutivo N° 13545 del 26 de abril de 1982).
+N 246 200 | E 578 025 | (Quebrada La Peñita)
+La Reserva continúa con su límite aguas abajo por la quebrada La Peñita, hasta el punto de coordenadas N 245 340 E 577 545. Punto en donde desemboca un afluente de la quebrada La Peñita.
+De este último punto, se continúa por los puntos de coordenadas:
+N 244 700 | E 577 700
+N 244 400 | E 577 725
+N 243 930 | E 577 705
+N 243 750 | E 577 750
+N 243 175 | E 577 675
+N 242 675 | E 577 800
+N 242 400 | E 577 250
+De este punto, el lindero corre por la línea de costa en sentido Noroeste, hasta el punto de origen de la presente descripción, en coordenadas N 254 850 E 560 450.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 29450 del 22 de marzo del 2001, se reforman los límites de la presente reserva indígena y artículo 3° establece que para los efectos de la "Dirección Territorial Administrativa de la República de Costa Rica", la Reserva Indígena Guaymí de Conteburica, se compone de los caseríos: Alto Conte, La Vaca, Río Claro, Progreso, Las Vegas, Santa Rosa, La Peñita, Carones, Río Coco, y Río Caña Blanca).
