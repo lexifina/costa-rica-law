@@ -1,0 +1,1 @@
+Art. 49.-· El Gobernador designará el punto único de desembarque en la isla, á fin de que toda embarcación, desde su arribo hasta que se separe de la isla, pueda. ser bien vigilada. Por el sólo hecho de llegar A otro punto, salvo que sea en arribada forzosa, la embarcación autorizada para ir á la isla, incurrirá en la propia multa del artículo anterior.

@@ -1,0 +1,1 @@
+Art. 17.-Al entrar el reo en el establecimiento, se le quitarán las armas, el dinero, alhajas y cualesquiera otros objetos que tenga consigo, que no sean necesarios para su uso ordinario. -Estos objetos se depositarán con la debida seguridad, y no se devolverán sino hasta que el dueño salga del establecimiento.

@@ -1,0 +1,1 @@
+Art. 30.- Toda orden de pago y todo embargo que á solicitud de parte legitima se libre por autoridad competente sobre el fondo de un presidiario, para hacer efectiva la responsabilidad civil procedente del delito que purga, se ejecutará conforme á lo dispuesto en la 2a parte del citado artículo 90 del Código Penal.
