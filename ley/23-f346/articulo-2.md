@@ -1,0 +1,1 @@
+Artículo 2°-La hospitalización de los enfermos se hará en los hospitales nacionales; sin embargo, mientras en la ciudad de Limón no se haya construido un hospital nacional, la hospitalización podrá efectuarse en el de la Compañía Bananera de Costa Rica.
