@@ -1,0 +1,1 @@
+Artículo 10.—En caso de que el medicamento no cumpla con los requisitos de calidad u otros del registro sanitario y el interesado no esté de acuerdo con la disposición podrá interponer los recursos ordinarios de ley.
