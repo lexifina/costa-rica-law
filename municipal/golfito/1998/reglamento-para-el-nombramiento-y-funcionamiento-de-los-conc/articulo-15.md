@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones ordinarias deben efectuarse en el caserío designado por la Municipalidad como cabecera del distrito, pudiendo el Concejo de Distrito celebrar sesiones extraordinarias del mismo cantón para tratar asuntos de interés interdistrital.
