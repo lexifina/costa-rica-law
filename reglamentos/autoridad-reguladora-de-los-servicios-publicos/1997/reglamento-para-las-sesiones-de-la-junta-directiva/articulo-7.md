@@ -1,0 +1,1 @@
+Artículo 7°—La Junta Directiva señalará el día y la hora para la celebración de las sesiones ordinarias. No se podrá sesionar válidamente si transcurridos 30 minutos, después de la hora señalada para iniciar la sesión, no hubiese el quórum mínimo; excepto que alguno de los Directores -que constituyan quórum-solicite la ampliación del plazo.

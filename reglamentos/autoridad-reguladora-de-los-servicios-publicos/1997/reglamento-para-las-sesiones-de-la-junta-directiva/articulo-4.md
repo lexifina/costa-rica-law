@@ -1,0 +1,1 @@
+Artículo 4°—Devengarán dieta los miembros de la Junta Directiva, con excepción del Regulador General, por sesión a la que asistan. El monto de las dietas será el que fije la Ley y los Reglamentos aplicables a los integrantes de las Juntas Directivas de las instituciones autónomas del Estado, según los lineamientos que dicte la Contraloría General de la República.

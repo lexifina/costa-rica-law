@@ -1,0 +1,1 @@
+Artículo 5°—Los miembros de la Junta Directiva deberán excusarse de participar, retirándose de la sesión, en la resolución de asuntos en los cuales ellos o sus parientes por consanguinidad o afinidad hasta el cuarto grado inclusive, estén interesados o interesen a sociedades anónimas o compañías cuyos dueños o empleados sean los parientes referidos
