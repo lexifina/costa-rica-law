@@ -1,0 +1,1 @@
+Artículo segundo. Para los efectos de lo que dispone la cláusula sexta del contrato preinserto, modifícase el Artículo primero del decreto Nº 2 de 4 de setiembre de 1930 en el sentido de que el impuesto de dos centavos allí decretado continuará en vigor hasta la fecha fijada en la mencionada cláustlla sexta.
