@@ -1,0 +1,5 @@
+ARTICULO 324
+Para el ejercicio de acciones reales sobre bienes muebles, será
+competente el juez de la situación, y si no fuere conocida del
+demandante, el del domicilio, y en su defecto el de la residencia del
+demandado.
