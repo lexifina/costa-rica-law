@@ -1,5 +1,6 @@
-(Derogado)
+(Anulada)
 N°2
+(Anulado mediante resolución de la Sala Constitucional, N° 3550 del 24 de noviembre de 1992)
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA
 A propuesta del Consejo Superior de Educación,
 El siguiente

@@ -14,3 +14,4 @@ Reglamento de establecimientos privados de enseñanza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1958-03-11 | la propia norma |
+| 2 | 1992-11-24 | SINALEVI (sin norma nombrada) |
