@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SARAPIQUI
+REGLAMENTO PARA LA AUTORIZACIÓN Y PAGO DE EGRESOS
+De conformidad con lo establecido en los artículos 169 y 170 de la Constitución Política, 2, 3, 4, párrafo primero e inciso a), 13 inciso c), 17 inciso h), 43, 101, 103, 109 siguientes y concordantes del Código Municipal, Ley 7794 publicada en el Diario Oficial; “La Gaceta” N° 94 del 18 de mayo de 1998 y lo dispuesto en los artículos 4 y 5 de la Ley de Contratación Administrativa N° 7494 del 3 de mayo de 1995, sus reformas y su Reglamento, el Concejo Municipal de Sarapiquí en la sesión extraordinaria N° 11-98 celebrada el día veintinueve de octubre, en uso de sus atribuciones, emite el presente Reglamento para la Autorización y Pago de los Egresos de la Municipalidad de Sarapiquí, el cual se regirá por las siguientes disposiciones:
+CAPITULO I
+De la autorización de egresos
+Artículo 1°—El Alcalde Municipal está facultado para autorizar los gastos fijos de la Municipalidad y aquellos gastos por adquisición de bienes y servicios, cuando estos no superen la suma de trescientos mil colones. Sin embargo deberá acatar siempre lo dispuesto por la Ley de Contratación Administrativa y su Reglamento. El límite de la suma autorizada podrá ser aumentada cuando el Concejo Municipal por acuerdo así lo considere.

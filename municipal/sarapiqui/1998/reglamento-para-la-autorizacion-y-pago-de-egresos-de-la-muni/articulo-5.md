@@ -1,0 +1,1 @@
+Artículo 5° — Tanto los gastos autorizados por el Alcalde, como por el Concejo, serán ordenados por el Alcalde y por el funcionario encargado del Área Financiera, así establecido en el artículo 109 del Código Municipal.

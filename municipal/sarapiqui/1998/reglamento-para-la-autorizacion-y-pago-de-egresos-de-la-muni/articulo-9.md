@@ -1,0 +1,1 @@
+Artículo 9° — Todo pago que se ordene debe hacerse contra la documentación de respaldo (orden de compra y orden de pago y ella deberá acreditarse el nombre de los funcionarios que lo ordenaron e insertarse las firmas del mismo como respaldo del egreso ordenado.

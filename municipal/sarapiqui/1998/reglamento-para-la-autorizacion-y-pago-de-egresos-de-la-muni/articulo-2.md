@@ -1,0 +1,1 @@
+Artículo 2°—Corresponde al Concejo por acuerdo municipal que se tome al efecto y con base en lo dispuesto en el artículo 13 inciso e) del Código Municipal, autorizar los gastos por bienes y servicios, cuando estos superen la suma límite autorizada al Alcalde Municipal, excepto los gastos fijos que no requieren de esta autorización.

@@ -1,0 +1,1 @@
+Artículo 11. — Todo pago deberá hacerse con cargo a la partida presupuestaria respectiva de conformidad con lo contemplado en los artículos 101 y 103 del Código Municipal. Para estos efectos la Tesorería Municipal debe constar de previo, que existe el respectivo contenido presupuestario en relación con el pago que se trate.

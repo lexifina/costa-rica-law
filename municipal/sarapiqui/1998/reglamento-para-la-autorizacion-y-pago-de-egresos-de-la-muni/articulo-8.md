@@ -1,0 +1,1 @@
+Artículo 8° — Todo pago por concepto de órdenes de compra y pagos por servicios se efectuarán mediante cheque, excepto aquellos que se realicen por medio de caja chica, de acuerdo con las normas del artículo 6 de este Reglamento.
