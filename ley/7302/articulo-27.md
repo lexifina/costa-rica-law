@@ -1,10 +1,3 @@
-ARTICULO 27.- El Departamento Nacional de Pensiones del Ministerio
-de Trabajo y Seguridad Social efectuará el estudio de cada expediente de
-solicitud de pensión y, completado este, rendirá un dictamen favorable o
-desfavorable al otorgamiento de la pensión. Este se elevará a
-conocimiento y resolución final del Ministerio de Hacienda. Dicha
-resolución deberá darse dentro del plazo de cuatro meses después de
-presentada formalmente la solicitud. Contra lo que este Ministerio
-resuelva solo cabrá recurso de reposición dentro de los cinco días hábiles
-siguientes a la resolución respectiva y esta dará por agotada la vía
-administrativa.
+ARTICULO 27.-El Departamento Nacional de Pensiones del Ministerio de Trabajo y Seguridad Social efectuará el estudio de cada expediente de solicitud de pensión o jubilación y, completado éste, rendirá un dictamen favorable o desfavorable al otorgamiento del beneficio. La resolución del Ministerio de Trabajo deberá darse dentro del plazo de noventa días naturales después de presentada formalmente la solicitud.
+Contra lo que el Departamento Nacional de Pensiones resuelva cabrá el recurso de reposición, dentro de los cinco días hábiles siguientes, ante el Ministerio de Trabajo, el cual deberá resolver dentro de los treinta días naturales siguientes a la fecha de presentación del recurso; pasado este término se dará por agotada la vía administrativa.
+(Así reformado por el artículo 1 de la ley No.7359 del 20 de setiembre de 1993)
