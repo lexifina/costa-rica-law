@@ -1,1 +1,1 @@
-Artículo 8°—Las fincas sin escriturar vuelven al Patrimonio del Estado previos los trámites legales.
+Artículo 8°—Las fincas no comprendidas en el artículo anterior formarán parte del patrimonio forestal del Estado, previos los trámites legales.

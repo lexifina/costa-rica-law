@@ -14,3 +14,4 @@ Establece Reserva Forestal Juan Castro Blanco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-07-09 | la propia norma |
+| 2 | 1975-10-28 | Decreto Ejecutivo 5387 (1975-10-28) |
