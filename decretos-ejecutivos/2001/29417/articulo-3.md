@@ -1,0 +1,1 @@
+Artículo 3º—El acuerdo final que se formalice deberá ser suscrito por el Presidente de la República, la Ministra del Ambiente y Energía y el Ministro de Hacienda, en representación del Estado y por el o los representantes de la empresa S. A. Toro Rojo.

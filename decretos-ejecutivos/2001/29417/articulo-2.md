@@ -1,0 +1,1 @@
+Artículo 2º—El procedimiento que se autoriza se realizará de conformidad con el acuerdo que se suscriba y lo que al efecto dispone la Ley sobre la Resolución Alternativa de Conflictos y Promoción de la Paz Social.
