@@ -1,0 +1,1 @@
+Artículo 5°-Este decreto deroga el N° 10057-SPPS de veintiocho de mayo de mil novecientos setenta y nueve y modifica en lo que se le oponga el decreto el decreto N° 9526-SPPS de veinticuatro de enero de mil novecientos setenta y nueve.

@@ -1,0 +1,1 @@
+Artículo 3°-El Poder Ejecutivo, tomará las medidas que sean necesarias para que en un término no mayor de seis meses, se cierren o clausuren todas las oficinas, clínicas o establecimientos donde ejerzan la práctica dental algunas personas no autorizadas en este decreto.
