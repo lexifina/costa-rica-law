@@ -1,0 +1,1 @@
+Artículo 25.- Los derechos, beneficios y ventajas que concede esta ley serán considerados en la emisión de una Ley General de Pensiones de servidores del Estado, que deberá ser presentada a la Asamblea Legislativa para su tramitación antes del 1º de enero de 1960. Esa Ley General de Pensiones deberá respetar los derechos obtenidos por el Magisterio Nacional en esta ley.
