@@ -1,0 +1,1 @@
+Artículo 22.-La concesión se otorgará por un término no mayor de 5 años. Sin embargo, mediante acuerdos entre la Dirección de Geología y Minas y el titular de la concesión se podrá dar una prórroga hasta por 5 años más, siempre que el titular haya cumplido con todas las obligaciones durante el período inicialmente otorgado.

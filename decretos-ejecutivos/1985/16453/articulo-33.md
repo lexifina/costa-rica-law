@@ -1,0 +1,1 @@
+Artículo 33.-Si a Juicio de la Comisión Gubernamental de Control Ambiental, se considera incompleto en Estudio de Impacto Ambiental o los sistemas usados para la recuperación ambiental, se prevendrá al titular para que haga las correcciones necesarias en un plazo no mayor de tres meses. De no cumplirse con lo requerido en el plazo otorgado, se caducará la concesión.

@@ -1,0 +1,1 @@
+Artículo 21.-Hecha la demarcación del área solicitada y aprobado el plano correspondiente, la Dirección de Geología y Minas hará la inspección en la zona para verificar los mojones, y los gastos serán cubiertos por el interesado.

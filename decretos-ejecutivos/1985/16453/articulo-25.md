@@ -1,0 +1,2 @@
+DE AL EXCAVACION DEL LECHO DEL RIO
+Artículo 25.-No se permitirá excavar el lecho más allá de lo determinado en las condiciones de otorgamiento de la concesión. Sin embargo, si éstas resultaren diferentes de las que inicialmente se fijaron, y variare el espesor del material sedimentado explotable o la calidad del mismo, se paralizará la explotación hasta que se haga un nuevo estudio y se emitan las recomendaciones de caso, so pena de ser declarada caduca la respectiva concesión de explotación, en caso de incumplimiento.

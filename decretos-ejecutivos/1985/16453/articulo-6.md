@@ -1,0 +1,1 @@
+Artículo 6º.-Una vez aprobada la información a que hace referencia el inciso g) del artículo 4º, el solicitante está obligado a correr con los gastos de la correspondiente inspección de campo, a la que queda supeditada la aprobación final de dicha información.
