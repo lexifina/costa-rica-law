@@ -1,0 +1,1 @@
+Articulo 12.-EI presente reglamento regirá una vez cumplido el procedimiento y plazos establecidos en el artículo 43 de la Ley 7794 podrá ser reformado, suspendido o derogado siguiendo lo establecido en el mismo articulo para esos fines.

@@ -1,0 +1,1 @@
+Artículo 8°-La ayuda que otorgue la Municipalidad para este concepto se dará por un espacio máximo de tres meses. En casos muy especiales podrá prorrogarse hasta por tres meses más, previo acuerdo del Concejo.

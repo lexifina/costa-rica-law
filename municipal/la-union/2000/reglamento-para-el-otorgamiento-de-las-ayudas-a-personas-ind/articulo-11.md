@@ -1,0 +1,1 @@
+Articulo 11.-Se autoriza al señor Alcalde Municipal a tener una caja chica por un monto de cincuenta mil colones (¢50.000) para ayudas a entes en forma inmediata. para casos de enfermedad o de muerte.

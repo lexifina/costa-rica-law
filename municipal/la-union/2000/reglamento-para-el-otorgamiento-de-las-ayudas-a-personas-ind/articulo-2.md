@@ -1,0 +1,1 @@
+Artículo 2°-Para conocer y dictaminar sobre tales casos, créase la Comisión Especial de Ayuda al Indigente, integrada por el Presidente Municipal, un representante de cada una de las fracciones políticas que conforman el Concejo Municipal, así como Asesores en el campo social y el señor Alcalde Municipal.

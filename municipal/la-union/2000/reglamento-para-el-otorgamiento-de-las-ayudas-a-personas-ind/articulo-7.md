@@ -1,0 +1,1 @@
+Artículo 7°-La comisión conocerá los casos requeridos para su análisis y dictamen, dentro de los tres días posteriores a su remisión por parte del Concejo. a efecto de poder atender con prontitud la situación que se plantea.

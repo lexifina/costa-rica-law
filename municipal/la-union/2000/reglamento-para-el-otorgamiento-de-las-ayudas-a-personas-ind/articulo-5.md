@@ -1,0 +1,1 @@
+Articulo 5°-Para tales fines la Municipalidad creará un Fondo de Ayuda al Indigente de un 1 % del monto total del Presupuesto Ordinario de los Extraordinarios que se den para cada año y éste será acumulativo.

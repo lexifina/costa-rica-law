@@ -1,0 +1,1 @@
+Articulo 9°-Corresponde al alcalde hacer efectiva la ayuda aprobada por el Concejo, dentro de las 24 horas posteriores a la aprobación del acuerdo correspondiente y creará un expediente para cada caso e informará inmediatamente al Concejo de las acciones ejecutadas al respecto.
