@@ -1,0 +1,4 @@
+ORDEN II
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
+Determina que el articulo 2° del decreto n° 12 de 24 de octubre próximo pasado que establecio la aduana de “Sarapiqui” tenga efecto hasta pasados seis meses despues de su publicacion.
+REPUBLICA DE COSTA RICA. MINISTERIO DE HACIENDA Y GUERRA.-N° 602.-Palacio Nacional. San José noviembre 5 de 1850.- S Intendente General.-Para que las disposiciones del decreto número 12 de 24 de octubre último no dañen en manera alguna los intereses del comercio, dispone S. E. el Presidente de la República que al artículo 2° del referido decreto solamente pueda tener efecto basta pasados seis meses de la fecha de su publicación; y que durante este tiempo se aforen los efectos introducidos por la via.de Sarapiquí segun el arancel y tarita de 10 de Junio de 846.-
