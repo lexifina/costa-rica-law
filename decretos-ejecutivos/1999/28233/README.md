@@ -14,3 +14,4 @@ Declara de Interés Cultural Primer Simposio Internacional Artes 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-23 | la propia norma |
+| 2 | 1999-11-23 | SINALEVI (sin norma nombrada) |
