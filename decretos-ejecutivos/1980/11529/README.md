@@ -13,3 +13,4 @@ Crea Comisión Coordinadora de Divulgación en el Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-30 | la propia norma |
+| 2 | 1980-05-30 | SINALEVI (sin norma nombrada) |
