@@ -13,3 +13,4 @@ Reglamento a Ley del Proyecto Fénix
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-09-24 | la propia norma |
+| 2 | 1982-09-24 | Decreto Ejecutivo 14353 (1983-02-09) |
