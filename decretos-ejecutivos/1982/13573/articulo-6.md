@@ -1,28 +1,29 @@
-Artículo 6°—La lista oficial de las comunidades y reservas indígenas de Costa Rica es la siguiente:
-Grupos étnicos | Reservas indígenas
-(Etnias) | (comunidades indígenas)
-1. BRIBRI ... ... ... ... . | 1. Salitre
-| 2. Cabagra
-| 3. Bribrí de Talamanca
-| 4. Cocles
-2. CABECAR ... ... ... | 1. Chirripó
-| 2. Bajo Chirripó
-| 3. Tayni
-| 4. Telire
-| 5. Cabécar de Talamanca
-| 6. Ujarrás
-3. GUAYMI ... ... ... ... | 1. Guaymi de Coto Brus
-| 2. Abrojo de Montezuma
-| 3. Conteburica
-| 4. Guaymi de Osa
-4. BRUNKA ... ... ... ... ... | 1. Boruca
-| 2. Curré
-5. TERRABA ... ... ... ... | 1. Torraba
-6. HUETAR (Pacacua) | 1. Quitirrisi
-| 2. Zapatón
-7. MALEKU (Guatuso) ... ... | 1. Guatuso
-8. CHOROTEGA ............ | 1. Matambú
-Por tanto, se reconocen así oficialmente 21 reservas indígenas y 21 comunidades indígenas.
-(NOTAS DE SINALEVI:
-(1. Así reformado mediante el artículo 1° del decreto ejecutivo N° 16569 del 25 de setiembre de 1985).
-(2. Mediante el artículo 1° del decreto ejecutivo N° 16570 del 25 de setiembre de 1985, se divide la Reserva Indígena de Boruca-Térraba en tres reservas distintas con los nombres oficiales de Reserva Indígena Brunka de Boruca, Reserva Indígena Brunka de Curré y Reserva Indígena de Térraba. Asimismo indica que la Reserva Indígena Brunka de Boruca incluye los caseríos y poblados de Boruca centro, Yan, Maíz de Boruca y Santa Cruz, la Reserva Indígena Brunka de Curré incluye los caseríos y poblados de Curré, Chánguena y Lagarto y la Reserva Indígena de Térraba incluye los caseríos y poblados de Térraba, San Antonio de Térraba, Doboncragua, Ceibón y Bijagual y artículo 3° modifica el presente artículo de manera a tomar en cuenta lo establecido por el artículo 1° del decreto ejecutivo N° 16570).
+Artículo 6°.-La lista oficial de las Comunidades Indígenas de Costa rica es la siguiente:
+GRUPOS ETNICOS (ETNIAS) | RESERVAS INDIGENAS (COMUNIDADES INDIGENAS)
+A-Bribrí | 1.-Salitre
+| 2.-Cabagra
+| 3.-Bribrí de Talamanca
+| 4.-Kekoldi (Cocles)
+B-Cabecar | 1.-Chirripó (Duchii)
+| 2.-Bajo Chirripó (Duchii-ñac)
+| 3.-Nairi-Awari
+| 4.-Tayni
+| 5.-Telire
+| 6.-Cabecar de Talamanca
+| 7.-Ujarrás
+C-Guaymí | 1.-Guaymí de Coto Brus
+| 2.-Abrojo de Montezuma
+| 3.-Conteburica
+| 4.-Guaymí de Osa
+GRUPOS ETNICOS (ETNIAS) | RESERVAS INDIGENAS (COMUNIDADES INDIGENAS)
+Ch- Brunca | 1.-Boruca
+| 2.-Curré (Rey Curré)
+D- Térraba | 1.-Térraba
+E- Huetar (Pacacua) | 1.-Quitirrisí
+| 2.-Zapatón
+F- Maleku (Guatuso) | 1.-Guatuso
+G- Chorotega | 1.-Matambú
+Por lo tanto se reconocen así oficialmente 8 grupos étnicos y 22 Reservas Indígenas (22 Comunidades Indígenas).
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 20645 del 5 de agosto de 1991).
+RESERVA INDÍGENA GUAYMÍ DE OSA
+(Así adicionada la Reserva Guaymí de Osa anterior por el artículo 1° del decreto ejecutivo N° 16310 del 16 de mayo de 1985. Asimismo, el artículo 2° del decreto ejecutivo antes mencionado indica que la delimitación de la Reserva Indígena Guaymí de Osa, será efectuada por la CONAI (Comisión Nacional de Asuntos Indígenas), en un plazo no mayor de seis meses a partir de la publicación de este Decreto, y tramitada ante el Poder Ejecutivo para que este emita el Decreto Ejecutivo correspondiente.)

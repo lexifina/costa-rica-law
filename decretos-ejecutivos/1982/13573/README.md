@@ -19,3 +19,4 @@ Reconoce existencia oficial de Grupos Étnicos Indígenas en Costa Rica
 | 4 | 1985-09-25 | Decreto Ejecutivo 16569 (1985-09-25) |
 | 5 | 1985-09-25 | Decreto Ejecutivo 16570 (1985-09-25) |
 | 6 | 1985-09-25 | Decreto Ejecutivo 16568 (1985-09-25) |
+| 7 | 1991-08-05 | Decreto Ejecutivo 20645 (1991-08-05) |
