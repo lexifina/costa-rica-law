@@ -1,0 +1,5 @@
+CAPÍTULO II
+Del pago de zonaje
+Artículo 3º—Sobre la procedencia del pago de zonaje: El zonaje es una compensación económica adicional que pagara el INA al personal que tenga que prestar sus servicios permanentemente en lugar distinto al de su domicilio legal o del que fueron contratados, o que eventualmente permanezcan fuera de alguna de esas circunscripciones territoriales por más de seis meses. El zonaje regirá desde el primer día del traslado.
+Cuando por facilidad de acceso, naturaleza de la jornada o cualesquiera otras circunstancias no contempladas expresamente en este Reglamento, el funcionario, con la autorización del INA, no traslade su residencia y viaje diariamente a la zona a desempeñar su labor, a éste no se le pagará zonaje alguno, ya que la situación queda regulada por lo dispuesto en el Reglamento de Viáticos y Transportes para Funcionarios Públicos emitido por la Contraloría General de la República.
+No procederá el pago de zonaje por el tiempo que el beneficiario esté en tránsito en un lugar en el que realice los trámites administrativos necesarios para trasladarse a laborar a otro sitio. En este caso se pagará el viático, según corresponda.

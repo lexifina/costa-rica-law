@@ -1,0 +1,1 @@
+Artículo 2º—Definiciones: INA: Instituto Nacional de Aprendizaje. Domicilio legal: Entiéndase por domicilio legal el lugar donde una persona física mantiene su residencia y haya establecido la sede principal de sus negocios. Beneficiario: Funcionario INA que goza del beneficio de zonaje
