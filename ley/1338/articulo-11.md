@@ -1,1 +1,1 @@
-Artículo 11.-Las sumas adeudadas por concepto de detalles en favor de los caminos públicos y vecinales constituyen un gravamen real de carácter legal sobre los bienes de las personas obligadas al pago en razón de dichos bienes. En todo acto de disposición de éstos, va implícito aquel gravamen y el adquirente contrae las mismas obligaciones que pesan sobre el trasmitente para el pago de la suma adeudada.
+Artículo 11.- (Derogado por el artículo 1° del la ley N° 1561 del 6 de mayo de 1953)
