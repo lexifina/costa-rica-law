@@ -1,0 +1,1 @@
+Art 5° Las onzas fuertes se recibirán en las oficinas fiscales a razón de diecisiete pesos cuatro reales cada una; pero los submúltiplos o fracciones solamente en la proporción de diecisiete pesos por onza.
