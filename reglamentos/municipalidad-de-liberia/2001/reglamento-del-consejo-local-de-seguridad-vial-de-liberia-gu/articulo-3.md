@@ -1,0 +1,1 @@
+Artículo 3°—La implementación de políticas y acciones de COLOSEVILI, se regirán por lo dispuesto en el Decreto Ejecutivo No 29390-MOPT-S suscrito el 6 de marzo del ano 2001 y publicado en el Diario Oficial La Gaceta No 59 del 23 de marzo del 2001.

@@ -1,0 +1,2 @@
+Artículo 19.—La ejecución, el trámite y el control del gasto presupuestario que se derive de la gestión administrativa y operativa del COLOSEVILI estará a cargo de la Municipalidad y se dará con base en el plan de trabajo de Seguridad Vial formulado por el COLOSEVILI y aprobado por el Concejo Municipal y por el Consejo de Seguridad Vial.
+Reglamento elaborado por lo miembros del COLOSEVILI de Liberia, aprobado en la sesión 2-2001 del 4 de diciembre del 2001.

@@ -1,0 +1,1 @@
+Artículo 18.—Para la implementación de los programas y proyectos que formule y recomiende el COLOSEVILI este Consejo podrá gestionar donaciones y recursos adicionales provenientes de instituciones públicas y privadas del cantón así como de la población.

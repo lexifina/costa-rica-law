@@ -1,0 +1,1 @@
+Artículo 9°—Los archivos del COLOSEVILI y demás documentos serán custodiados y administrados por la institución pública o privada a cargo de la secretaria y se compromete a entregarlos completos y en buen estado a la persona de la institución que asuma esa responsabilidad cuando se elija para un nuevo Comité Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 4°—Los lineamientos generales de COLOSEVILI se sustentará del Consejo de Seguridad Vial, del Departamento de Ingeniería de Tránsito de la Dirección General de Tránsito, de la Ley de Tránsito N° 7331 del Concejo Municipal de Liberia y las necesidades detectadas del propio COLOSEVILI.

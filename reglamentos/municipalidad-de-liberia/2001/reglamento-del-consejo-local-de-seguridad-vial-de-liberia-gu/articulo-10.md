@@ -1,0 +1,1 @@
+Artículo 10.—En caso de ausencia a las sesiones de alguno (a) de los integrantes del Comité Ejecutivo, el cargo que obstenta será asumido temporalmente por el miembro del COLOSEVILI que designe el presidente en ejercicio.

@@ -1,0 +1,1 @@
+Artículo 12.—Al COLOSEVÍLI sesionará ordinariamente una vez al mes y extraordinariamente cuando se considere necesario a petición del presidente (a) del comité ejecutivo o por lo menos de dos de sus miembros.
