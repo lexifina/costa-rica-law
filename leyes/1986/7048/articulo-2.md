@@ -1,0 +1,1 @@
+Artículo 2°—De conformidad con el inciso 15) del artículo 121 de la Constitución Política , la Asamblea Legislativa deberá aprobar cualquier financiamiento o empréstito otorgado al Gobierno de Costa Rica o a cualquier organismo público o privado, en el cual el Estado sea el que lo avale o sea garante solidario
