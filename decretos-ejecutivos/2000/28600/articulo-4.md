@@ -1,0 +1,1 @@
+Artículo 4º—Coordinación entre el Administrador y el Ingeniero Residente. El Administrador del Puerto deberá realizar sus funciones en coordinación con el Ingeniero Residente; no obstante, en caso de surgir entre ellos diferencias de criterio privará el criterio del Ingeniero Residente.

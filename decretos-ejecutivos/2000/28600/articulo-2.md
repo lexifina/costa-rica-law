@@ -1,0 +1,4 @@
+Artículo 2º—Del Ingeniero Residente. El ingeniero residente deberá poseer un título académico en Ingeniería Civil o en Construcción, tener una disponibilidad de tiempo completo, atestados que deberá acreditar ante la Junta Directiva, para su nombramiento.
+Tendrá a cargo el planeamiento, la dirección, supervisión y fiscalización técnica de todas las obras y proyectos de mantenimiento, rehabilitación y construcción, conforme a los planes y programas previstos por la Junta Directiva; a su vez, deberá coordinar las operaciones para atraque y desatraque de buques, tránsito, de mercancías y vehículos automotores y peatones en el recinto portuario.
+El Ingeniero deberá aprobar todo el recurso humano que sea requerido para la ejecución de obras portuarias civiles.
+En términos generales, brindará soporte técnico a la Junta Directiva y a sus unidades administrativas en todo asunto relativo a su formación técnica, funciones y obligaciones encomendadas.
