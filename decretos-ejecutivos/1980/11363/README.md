@@ -14,3 +14,4 @@ Traspasa terrenos en forma gratuita al Instituto de Tierras y Colonización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-18 | la propia norma |
+| 2 | 1981-04-14 | Decreto Ejecutivo 12576 (1981-04-14) |
