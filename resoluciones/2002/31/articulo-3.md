@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección de la Subdirección de Actuaciones Tributarias Complejas se encomendará a un subdirector y contara con los equipos de fiscalización integrados por un jefe de equipo y otros funcionarios profesionales, que se entiendan necesarios.
