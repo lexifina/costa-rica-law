@@ -1,1 +1,0 @@
-Artículo 66.-También se reunirá extraordinariamente, cuando al efecto sea convocado por el Poder Ejecutivo. En el decreto de convocatoria se determinarán los asuntos de que exclusivamente deben ocuparse las Cámaras.

@@ -1,1 +1,0 @@
-Artículo 57.-El objeto de estas juntas es el nombramiento de electores que correspondan al distrito, a razón de tres propietarios y un suplente por cada mil individuos de población, mas el distrito que no los tenga, nombrará sin embargo los cuatro electores dichos.

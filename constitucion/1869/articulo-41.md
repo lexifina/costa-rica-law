@@ -1,1 +1,0 @@
-Artículo 41.-Todo costarricense ó extranjero, ocurriendo a las leyes, debe encontrar remedio para las injurias ó daños que haya recibido en su persona, propiedad u honra. Debe hacérsele justicia cumplidamente y sin denegación, prontamente y sin delación, y en estricta conformidad con las leyes.

@@ -1,1 +1,0 @@
-Artículo 3º.-Los límites del territorio de la República son los siguientes: con el Océano Atlántico por el Norte con el Pacífico por el Sur; con los Estados Unidos de Colombia los del uti possidetis de 1826; y con Nicaragua los que fija el tratado de 15 de Abril de 1858.

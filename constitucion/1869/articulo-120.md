@@ -1,1 +1,0 @@
-Artículo 120.-A los funcionarios que administren justicia no podrá suspendérseles de sus destinos, sin que preceda declaratoria de haber lugar a formación de causa; ni deponérseles, sino en virtud de sentencia ejecutoriada.

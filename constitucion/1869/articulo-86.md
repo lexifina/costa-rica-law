@@ -1,1 +1,0 @@
-Artículo 86.-En ningún tiempo los senadores y Representantes serán responsables ante autoridad alguna por las opiniones que emitan y votos que den, a no ser en el caso de violación expresa de la Constitución.

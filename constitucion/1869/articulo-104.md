@@ -1,1 +1,0 @@
-Artículo 104.-Si el presidente electo no pudiere prestar el juramento constitucional ante el Congreso el día prefijado en el artículo anterior, ó durante las sesiones ordinarias, lo hará el encargado del Poder Ejecutivo con la solemnidad correspondiente.

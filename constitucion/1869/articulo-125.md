@@ -1,1 +1,0 @@
-Artículo 125.-La Sala 1ª conocerá privativamente en 3ª y última Instancia de los asuntos civiles y criminales escritos que determine la ley, de los recursos extraordinarios de nulidad, injusticia notoria, y de los demás recursos y asuntos que la ley de designe.
