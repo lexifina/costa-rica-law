@@ -1,0 +1,1 @@
+Artículo 54.- La Confederación de Centros Agrícolas elegirá a una Junta Directiva compuesta por un Presidente, un Vicepresidente, un tesorero, un secretario y tres vocales, y procurará que exista representación de todas las regiones.

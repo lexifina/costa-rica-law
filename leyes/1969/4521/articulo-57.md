@@ -1,0 +1,1 @@
+Artículo 57.- Los fiscales podrán asistir a las sesiones de Junta Directiva con voz, pero sin voto, podrán tener acceso a la información de la administración y conformarán la comisión encargada de contratar las auditorías anuales.

@@ -1,0 +1,1 @@
+Artículo 49.- El comité de fiscalización podrá asistir a las sesiones de Junta Directiva con voz pero sin voto; podrá tener acceso a la información de la administración y conformará la comisión encargada de contratar las auditorías anuales.

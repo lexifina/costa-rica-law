@@ -1,0 +1,1 @@
+Artículo 45.- El reglamento de esta ley regulará lo referente a los deberes y las atribuciones de la Junta Directiva como órgano director y los del cuerpo de fiscalía, así como las funciones del Presidente, el Vicepresidente, el secretario, el tesorero, los directores y los suplentes.

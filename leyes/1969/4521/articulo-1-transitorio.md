@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio Unico.—Los centros agrícolas cantonales, las federaciones de centros agrícolas y la Confederación Nacional de Centros Agrícolas, se registrarán en el Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social, para los efectos correspondientes, conforme venza su personería jurídica emitida por el Ministerio de Agricultura y Ganadería, vigentes a la fecha de publicación de esta ley."

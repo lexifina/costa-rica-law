@@ -1,0 +1,3 @@
+Artículo 61.—La Confederación Nacional de Centros Agrícolas podrá solicitar la disolución de los centros agrícolas que, a su juicio, muestren evidente estado de inactividad, o no cumplan con los requisitos legales dispuestos en el artículo 62 de esta ley.
+Asimismo, mediante notificación personal o en casa de habitación, deberá comunicar al representante legal y a los afiliados del centro agrícola, por escrito o por un anuncio publicado en un diario de circulación nacional, el preaviso de disolución, para que se corrijan los defectos señalados en un plazo máximo de dos meses calendario; de lo contrario, se dará curso al proceso de disolución ante los tribunales de justicia.
+El trámite de liquidación se regulará en el reglamento de la presente ley.

@@ -1,0 +1,1 @@
+Artículo 50.- La vigilancia y fiscalización internas corresponderán al comité de fiscalización y al auditor. Sobre las funciones del cuerpo fiscal se aplicará por analogía, lo establecido para la fiscalía de los centros agrícolas.

@@ -1,0 +1,2 @@
+Artículo 36.- La Junta Directiva se conformará en la siguiente forma: un Presidente, un Vicepresidente, un secretario, un tesorero y tres vocales. El Presidente de la Junta Directiva tendrá las facultades de apoderado generalísimo con límite de suma, salvo en cuanto a la representación judicial, que será sin limitación de suma.
+La Junta Directiva, por votación de dos terceras partes de la totalidad de sus miembros, podrá autorizar al gerente o administrador para que represente al centro agrícola con los poderes que estime convenientes.

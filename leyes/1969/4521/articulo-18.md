@@ -1,3 +1,5 @@
-Artículo 18.- Se confiere a los Centros Agrícolas Cantonales la capacidad y personería jurídica suficientes para el mejor cumplimiento de los fines que esta ley persigue.
-El Presidente de cada uno de dichos organismos tendrá la representación judicial y extrajudicial con las facultades que para el apoderado generalísimo determina del Código Civil.
-(Así adicionado por el artículo 1° de la ley N° 5320 del 17 de agosto del 1973)
+Artículo 18.- El centro agrícola, al realizar su asamblea constitutiva, emitirá un acta que deberá contener los siguientes elementos:
+a) Nombre completo y número de cédula de los asistentes a la asamblea; así como nombre, cargo y demás calidades de los miembros de la Junta Directiva.
+b) Acuerdos tomados por la Asamblea.
+c) Indicación del domicilio que tendrá el centro agrícola.
+d) Otros elementos que se designarán vía reglamento.
