@@ -1,6 +1,6 @@
 # Ley de Pago de Aguinaldo para los Servidores Públicos
 
-Ley N° 1835 del 1954-12-11. SINALEVI, ficha 1313: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1313&param2=80790&param3=1>.
+Ley N° 1835 del 1954-12-11. SINALEVI, ficha 1313: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1313&param2=80794&param3=1>.
 
 Publicada en La Gaceta N° 283 del 1954-12-15.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1954-12-15 | SINALEVI | 1954-12-11 |
 | 3 de 5 | 1965-12-15 | Ley 3618 | 1965-12-10 |
 | 4 de 5 | 1967-08-11 | Ley 3929 | 1967-08-08 |
+| 5 de 5 | 1968-12-19 | Ley 4271 | 1968-12-16 |
