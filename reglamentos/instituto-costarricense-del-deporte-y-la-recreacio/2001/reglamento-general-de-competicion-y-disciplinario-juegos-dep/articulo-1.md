@@ -1,3 +1,5 @@
+(Derogado)
+(NOTA: este Reglamento fue DEROGADO TACITAMENTE por el artículo 68 del Reglamento General de Competición y Disciplina Juegos Deportivos Nacionales, publicado en La Gaceta N° 28 de 10 de febrero de 2003).
 Definición de juegos deportivos nacionales
 El Programa de Juegos Deportivos Nacionales tiene como propósito la Promoción del Deporte en las Etapas Cantonales y Regionales e impulsar y ejecutar la competición deportiva de niños y jóvenes del país.
 Naturaleza

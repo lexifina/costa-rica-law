@@ -14,3 +14,4 @@ Reglamento General de Competición y Disciplinario Juegos Deportivos Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-06 | la propia norma |
+| 2 | 2003-02-10 | Reglamento 0 (2003-02-10) |
