@@ -7,4 +7,5 @@ será cancelado el permiso para operar el garaje.
 La resolución que acuerde cancelar uno de estos permisos, tendrá
 recurso de apelación para ante el Ministro de Obras Públicas y
 Transportes, este recurso deberá ser interpuesto dentro del término y con
-las formalidades establecidas en el artículo 13 del presente Reglamento.
+las formalidades establecidas en el artículo 13 del presente
+Reglamento.

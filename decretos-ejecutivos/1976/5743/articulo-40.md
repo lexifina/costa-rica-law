@@ -21,4 +21,20 @@ este Reglamento, estando sujetos para su validez, únicamente a la
 aprobación del Ministro de Obras Públicas y Transportes conforme el
 artículo 6º de la ley Nº 5406 del 26 de noviembre de 1973 y a lo
 estipulado por las partes en el contrato de cesión.
+NOTA: EL TRANSITORIO VII DE LA LEY Nº 7593 DE 9 DE AGOSTO DE 1996,
+DISPONE:
+"TRANSITORIO VII.- Se autoriza al Ministerio de Obras Públicas y
+Transportes para que, durante un plazo improrrogable de doce meses
+contados a partir de la entrada en vigencia de esta ley, pueda otorgar
+nuevos permisos de transporte público de personas, modalidad taxi. Para
+esto, deberá considerar los estudios técnicos y los dictados de la
+presente ley.
+Conservarán su derecho por un plazo de treinta y seis meses más, los
+permisionarios que, al entrar en vigencia esta ley, gocen de un permiso
+de transporte público de personas en la modalidad taxi y cumplan con los
+requisitos solicitados cuando se les otorgó el permiso.
+Cumplido el término señalado, deberá publicarse el cartel de
+licitación de concesiones para este tipo de servicio público lo cual
+obliga a que, una vez resuelto y firme el concurso, los permisos
+otorgados queden fuera de circulación".
 .e

@@ -17,10 +17,10 @@ prestando el servicio dentro de las prevenciones legales;
 e) Por el vencimiento del plazo de la concesión originalmente
 pactado y si no hubiere mediado solicitud de renovación con la
 anticipación indicada en el artículo 6º de este ordenamiento;
-f) Por renuncia de la concesión que se haga el concesionario, en
-cuyo caso el derecho reverterá a favor del Estado, quien
-procederá a licitar de nuevo el servicio, si así lo estima
-necesario en beneficio del usuario; y
+f) Por renuncia de la concesión que haga el concesionario, en cuyo
+caso el derecho reverterá a favor del Estado, quien procederá a
+licitar de nuevo el servicio, si así lo estima necesario en
+beneficio del usuario; y
 g) Por la negativa del concesionario a la formalización del
 respectivo contrato de concesión, dentro de los 60 días
 siguientes a la prevención que al efecto le notifique el

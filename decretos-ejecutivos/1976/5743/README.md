@@ -13,3 +13,4 @@ Reglamento Ley Reguladora Transporte Remunerado Personas Taxis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-02-18 | la propia norma |
+| 2 | 1976-02-18 | SINALEVI (sin norma nombrada) |

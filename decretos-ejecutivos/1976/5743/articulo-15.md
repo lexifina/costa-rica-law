@@ -1,6 +1,6 @@
 Artículo 15.- Las concesiones serán otorgadas, obligatoriamente,
 mediante el trámite de licitación pública.
-La Dirección de Transporte Automotor a solicitud de la Comisión
+La Dirección de Transporte Automotor(*) a solicitud de la Comisión
 elaborará y publicará el correspondiente cartel, indicando los estudios
 que evidenciaron la necesidad a satisfacer. En dicho cartel se expresarán
 cuando menos los siguientes requisitos:
@@ -20,3 +20,5 @@ m) Financiación de unidades para operar;
 n) Mantenimiento de unidades;
 o) Contrato de concesión;
 p) Cualquier otro requisito que se estime necesario.
+(*) Actualmente y conforme lo dispone el artículo 249 de la Ley 7331
+de 13 de abril de 1993, Dirección General de Transporte Público.

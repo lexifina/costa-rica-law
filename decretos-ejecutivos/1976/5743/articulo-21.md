@@ -1,4 +1,4 @@
-Artículo 21.- La licencia para conducir taxis tendrá vigencia por un
+Artículo 21.- La licencia para conducir taxis tendra vigencia por un
 año debiendo pagarse sus derechos por anualidades, de acuerdo con lo
 dispuesto por la Ley de Tránsito y su Reglamento. Su expedición estará
 exenta del pago del papel sellado, timbres o impuestos, cuando haya sido

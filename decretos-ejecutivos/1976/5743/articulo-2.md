@@ -1,12 +1,10 @@
 Artículo 2º.- El Ministerio de Obras Públicas y Transportes podrá
 tomar a su cargo la prestación del servicio público que se reglamenta, en
 forma directa, a través de otras instituciones del Estado o bien conceder
-derecho para explotarlo a cooperativas debidamente inscritas en el
-Instituto Nacional de Fomento Cooperativo (INFOCOOP), con el objeto de
-dedicarse al transporte remunerado de personas en vehículos taxis; o a
-particulares que reúnan los requisitos de ley, sus reglamentos y el
-cartel respectivo, cuando se trate de lugares donde no existan
-cooperativas.
+derecho para explotarlo.
+( La parte final de este párrafo fue anulada por Resolución de la
+Sala Constitucional Nº 2409-96 de las 15:27 horas del 21 de mayo de
+1996).
 El Ministerio velará en todo caso lo relativo al tránsito y al
 transporte en taxis de personas en el país y ejercerá la vigilancia,
 control y regulación de esta actividad, con el objeto de garantizar los

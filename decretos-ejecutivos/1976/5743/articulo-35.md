@@ -25,3 +25,6 @@ sobre la Renta, por aquella parte de las utilidades de la
 asociación gremial que reinvierta en mejoras, tanto en la propia
 empresa como en vivienda para los trabajadores y que comprueben
 debidamente ante la Tributación Directa.
+( Tácitamente derogado por el artículo 66.b) de la Ley Nº 7593 de 9
+de agosto de 1996 al derogar los artículos 20 y 21 de la Ley objeto de
+reglamentación -Nº 5406- contentivos de estas exoneraciones).
