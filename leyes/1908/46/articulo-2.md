@@ -1,0 +1,2 @@
+Artículo 2° Sin perjuicio de lo establecido en el artículo anterior, durante el periodo de sesiones, el Presidente y los Secretarios, el Vicepresidente y los Prosecretario, cuando sustituyan a los primeros, devengaran una sobre dieta de cinco colones los que presiden y de dos colones cincuenta céntimos los otros, por cada sesión.
+Los diputados cuyo domicilio no sea la capital de la República, tendrán derecho a los gastos de permanencia y viático asignados en la misma ley.
