@@ -84,6 +84,7 @@ Salchichas, no enlatadas ni envasadas herméticamente...........................
 Sorgo sin moler, no envasado………………….. | 045-09-03
 Tiza en barritas para escribir y dibujar.................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-05
 Tortillas de maíz…………………………………... | 048-09-04
+Tortillas de harina de trigo (tipo ("paninas") (Así adicionada la mercancía anterior por el artículo 1° del decreto eejcutivo N° 16110 del 22 de marzo de 1985) | 048-04-05
 Transportadores................................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
 Trigo y escanda (incluso comuña) sin moler (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 041
 Uniformes escolares (sólo camisa, pantalón y enagua) a juicio de la Administración Tributaria...... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 841-05
