@@ -10,3 +10,4 @@ h) Coordinar el proceso de planificación institucional.
 i) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
 j) Rendir cuentas por el desempeño de las funciones a su cargo.
 k) Ejecutar las demás labores que le asigne el Contralor General de la República.
+* NOTA DEL SINALEVI: La presente Sección Cuarta cuenta con vigencia atribuida mediante Resolución 0 del 21 de octubre de 1999, de la Contraloría General de la República.)
