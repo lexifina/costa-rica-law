@@ -1,0 +1,1 @@
+Artículo 3°-Exonérase de toda clase de impuestos la importación de un vehículo de las mismas características indicadas en el artículo 1°, que será adquirido por el Colegio Marista de Alajuela para ser rifado. El producto íntegro de la rifa se destinará a cubrir las necesidades más urgentes del mismo Colegio.
