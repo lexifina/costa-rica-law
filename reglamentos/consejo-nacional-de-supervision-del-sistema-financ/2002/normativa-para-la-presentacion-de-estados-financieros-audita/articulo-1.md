@@ -1,1 +1,0 @@
-Artículo 1º—Ámbito de aplicación. Esta normativa es aplicable a las revelaciones a los estados financieros que harán las entidades y grupos financieros supervisados por la Superintendencia General de Entidades Financieras (SUGEF), Superintendencia General de Valores (SUGEVAL), la Superintendencia de Pensiones (SUPEN).
