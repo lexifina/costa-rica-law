@@ -1,0 +1,1 @@
+Artículo 200.-Además del Actuario, el Tribunal contará con un Secretario, un Prosecretario, y el personal técnico y administrativo que para el cabal cumplimiento de su función sea necesario. Este personal estará protegido por el Régimen de Servicio Civil.

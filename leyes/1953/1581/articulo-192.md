@@ -1,0 +1,1 @@
+Artículo 192.-El cargo de Actuario estará protegido por el Régimen de Servicio Civil y será nombrado por el Tribunal de una terna que le propondrá la Dirección General. Para ser Actuario se requiere ser abogado, tener experiencia en la materia propia del Régimen de Servicio Civil y reunir los demás requisitos que se establezcan en el Manual Descriptivo de Puestos.

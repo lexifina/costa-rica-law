@@ -1,55 +1,26 @@
-Artículo 37.- Los servidores del Poder Ejecutivo protegidos por esta
-ley gozarán de los siguientes derechos:
-a) No podrán se despedidos de sus cargos a menos que incurran en
-causal de despido, según lo establece el Código de Trabajo, o por
-reducción forzosa de servicios, ya sea por falta de fondos o para
-conseguir una mejor organización de los mismos, de conformidad con lo
-establecido en el artículo 47 de esta ley.
-b) Disfrutarán de una vacación anual de quince días hábiles durante
-el primer lustro de servicios, de veinte días hábiles durante el segundo
-y de un mes después de diez años de servicios. Estos podrán no ser
-consecutivos.
-Quedan a salvo los derechos del Personal Docente del Ministerio de
-Educación Pública, el cual se regirá al respecto por el Código de
-Educación.
-c) Podrán disfrutar de licencia ocasional de excepción con goce de
-salario o sin él según lo establecerá el Reglamento de esta ley.
-d) Podrán gozar de licencia para asistir a cursos de estudio, siempre
-que sus ausencias no causen evidente perjuicio al servicio público, de
+CAPITULO VII
+De los derechos y deberes
+Artículo 37.- Los servidores del Poder Ejecutivo protegidos por esta ley gozarán de los siguientes derechos:
+a) No podrán se despedidos de sus cargos a menos que incurran en causal de despido, según lo establece el Código de Trabajo, o por reducción forzosa de servicios, ya sea por falta de fondos o para conseguir una mejor organización de los mismos, de conformidad con lo establecido en el artículo 47 de esta ley.
+b) Disfrutarán de una vacación anual de quince días hábiles durante elprimer lustro de servicios, de veinte días hábiles durante el segundo y de un mes después de diez años de servicios. Estos podrán no ser consecutivos.
+Quedan a salvo los derechos del Personal Docente del Ministerio de Educación Pública, el cual se regirá al respecto por el Código de Educación.
+c) Podrán disfrutar de licencia ocasional de excepción con goce de salario o sin él según lo establecerá el Reglamento de esta ley.
+d) Podrán gozar de licencia para asistir a cursos de estudio, siempre que sus ausencias no causen evidente perjuicio al servicio público, de
 acuerdo con el Reglamento de esta ley.
-e) Podrán ver las calificaciones periódicas que, de sus servicios,
-deberán hacer sus superiores.
-f) Si cesaren en sus funciones por supresión del empleo, tendrán
-derecho a una indemnización de un mes de sueldo por cada año o fracción
-de seis o más meses de servicios prestados, salvo que pudieren acogerse a
-la pensión o jubilación que les correspondiere de acuerdo con la ley.
-Tal indemnización se satisfará por mensualidades consecutivas, del monto
-del sueldo devengado, a partir de la supresión del empleo y hasta
-completar el límite del derecho respectivo. Es entendido que si en razón
-del derecho preferente que concede el artículo 47, en su penúltimo
-párrafo, el empleado cesante volviere a ocupar un puesto en la
-Administración, antes de haber recibido la totalidad de las mensualidades
-a que tenga derecho por concepto de indemnización de despido, cesará de
-inmediato el pago de las mismas. En caso de nuevo despido por supresión
-de empleo, y salvo que pudiere acogerse a la pensión o jubilación que le
-correspondiere, para determinar la indemnización a que tenga derecho, se
-sumará, al tiempo servido en el nuevo cargo, el monto de las
-mensualidades no pagadas y con causa en el primer despido por supresión
-de empleo de que hubiere sido objeto.
-g) Todo servidor público cuyo salario mensual no pase de trescientos
-colones, gozará de un subsidio mensual por cada hijo menor de quince años
-a su cargo. Si el cónyuge del servidor público trabajare para el Poder
-Ejecutivo, sólo uno de ellos gozará de este derecho. En los presupuestos
-anuales se fijará una partida para este efecto.
-h) Tendrán derecho a un sueldo adicional en el mes de diciembre de
-cada año, excepto si han servido menos de un año, en cuyo caso les
-corresponderá una suma proporcional al tiempo servido.
-El sueldo a que se refiere este inicio no puede ser objeto de venta,
-traspaso o gravamen de ninguna especie ni puede ser perseguido por
-acreedores, excepto para el pago de pensiones alimenticias, en el tanto
-que determina el Código de Trabajo.
-i) Todo servidor público tendrá derecho al retiro con pensión después
-de haber servido a la Administración Pública durante el término y demás
-condiciones que disponga la Ley General de Pensiones que habrá de emitirse
-para los efectos de este inciso. El servidor retirado continuará gozando
-del derecho establecido en el inciso anterior.
+e) Podrán ver las calificaciones periódicas que, de sus servicios, deberán hacer sus superiores.
+f) Si cesaren en sus funciones por supresión del empleo, tendrán derecho a una indemnización de un mes por cada año o fracción de seis o más meses de servicios prestados. Tal indemnización se satisfará por mensualidades consecutivas, del monto del sueldo devengado, a partir de la supresión del empleo y hasta completar el límite del derecho respectivo. Es entendido que si en razón del derecho preferente que concede el artículo 47, en su penúltimo párrafo, el empleado cesante volviere a ocupar un puesto en la administración,antes de haber recibido la totalidad de las mensualidades a que tenga derecho por concepto de indemnización de despido, cesará de inmediato el pago de las mismas. En caso de nuevo despido por supresión de empleo, para determinar la indemnización a que tenga derecho, se sumará, al tiempo servido en el nuevo cargo, el monto de las mensualidades no pagadas y con causa en el primer despido por supresión de empleo de que hubiere sido objeto.
+Para el pago de las mensualidades a que se refiere este inciso, se usarán los fondos del Presupuesto Ordinario que corresponden a la plaza suprimida, y para tal fin se mantendrá la partida hasta que se cancele totalmente la obligación.
+(Inciso así reformado por el artículo 1º de la ley Nº 4906 de 29 de noviembre de 1971, reforma que a su vez fue INTERPRETADA AUTENTICAMENTE por la ley N 5173 de 10 de mayo de 1992, artículo 1º, en el sentido de que "los trabajadores que se acojan -aún voluntariamente- a jubilación, pensión de vejez, muerte o de retiro, concedidas por la Caja Costarricense de Seguro Social o por los diversos sistemas de pensiones de los Poderes del Estado, por el Tribunal Supremo de Elecciones, por las Instituciones Autónomas, semiautónomas, y las municipales, tienen derecho a que el patrono les pague el auxilio de cesantía.")
+g) Todo servidor público cuyo salario mensual no pase de trescientos colones, gozará de un subsidio mensual por cada hijo menor de quince años a su cargo. Si el cónyuge del servidor público trabajare para el Poder Ejecutivo, sólo uno de ellos gozará de este derecho. En los presupuestos anuales se fijará una partida para este efecto.
+h) Tendrán derecho a un sueldo adicional en el mes de diciembre de cada año, excepto si han servido menos de un año, en cuyo caso les corresponderá una suma proprcional al tiempo servido. El sueldo a que se refiere este inciso no puede ser objeto de venta, traspaso o gravamen de ninguna especie ni puede ser perseguido por
+acreedores, excepto para el pago de pensiones alimenticias, en el tanto que determina el Código de Trabajo.
+Para los efectos de calcular el sueldo adicional a que tienen derecho los servidores del Gobierno, el año para el cómputo de las sumas recibidas y tiempo servido, será el comprendido entre el 1º de noviembre del año anterior y el 31 de octubre del año respectivo. En cuanto a los trabajadores pagados por el sistema de jornales o planillas, el Ministerio de Economía y Hacienda podrá adoptar el procedimiento que estime más apropiado al caso.
+(Párrafo adicionado por el artículo 2º de la ley Nº 1835 de 11 de diciembre de 1954 y luego reformado por el artículo 2º de la ley Nº 3929 de 8 de agosto de 1967)
+i) Todo servidor público tendrá derecho al retiro con pensión después de haber servido a la Administración Pública durante el término y demás condiciones que disponga la Ley General de Pensiones que habrá de emitirse para los efectos de este inciso. El servidor retirado continuará gozando del derecho establecido en el inciso anterior.
+j) Todo servidor del Poder Ejecutivo electo al cargo de Diputado, al momento de asumirlo y mientras dure en funciones suspenderá toda relación laboral con el Estado. Una vez finalizado el período a que corresponda dicha elección, será reintegrado a su puesto con los mismos derechos y obligaciones que tenía al momento de la suspensión de su contrato.
+Quien ocupe el cargo dejado temporalmente vacante por el Diputado, estará sometido al Régimen de Servicio Civil, salvo en cuanto a inamovilidad.
+(Inciso adicionado por ley Nº 4593 de 1 de julio 1970)
+k) Toda servidora en estado de gravidez tendrá derecho a licencia por cuatro meses, con goce de sueldo completo. Este período se distribuirá un mes antes del parto y tres después.
+Durante este período, el Gobierno pagará a la servidora el monto restante del subsidio que reciba del Seguro Social, hasta completar, el ciento por ciento (100%) de su salario.
+Los beneficios de este inciso se extienden a las servidoras del Tribunal Supremo de Elecciones, Registro Civil, Asamblea Legislativa y Contraloría General de la República, y a las servidoras del Poder Ejecutivo excluidas del Régimen de Servicio Civil.
+(Inciso adicionado por el artículo 1º de la ley Nº 6440 de 16 de mayo de 1980).

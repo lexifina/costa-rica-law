@@ -1,0 +1,1 @@
+Artículo 172.-Las licencias sin goce de salario, hasta por una semana, serán autorizadas por el jefe inmediato, solamente en casos excepcionales, previa solicitud escrita del interesado. Las licencias que excedan de dicho término, deberán tener la aprobación del Departamento de Personal.

@@ -1,1 +1,3 @@
-Texto no disponible
+Artículo 79.- La sede del Tribunal de Carrera Docente estará en las oficinas centrales del Ministerio de Educación Pública y contará con los servicios administrativos necesarios a cargo del presupuesto del Ministerio.
+Los miembros del Tribunal devengarán dietas de acuerdo con lo que disponga el Reglamento de esta ley. Las dietas del representante de las organizaciones de educadores serán pagadas por dichas entidades, las de los representantes del Ministerio de Educación y de la Dirección del Servicio Civil serán pagadas por el Ministerio de Educación Pública.
+(Así reformado por el artículo 1 de la Ley Nº 4889 de 17 de noviembre de 1971).

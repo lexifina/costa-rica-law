@@ -1,0 +1,1 @@
+Artículo 184.-Las ausencias temporales de los miembros propietarios, así como las vacantes mientras no haya nombramiento, serán llenadas por los respectivos suplentes. En caso de imposibilidad de asistencia del suplente respectivo se llamará a uno de los otros.

@@ -1,0 +1,1 @@
+Artículo 71.-Evacuadas las pruebas del acusado se tendrá por concluida la investigación. El Director del Departamento de Personal pasará el expediente al Tribunal de la Carrera Docente para lo que proceda en derecho salvo que, en autos, no resulte comprobada en forma evidente falta grave, en cuyo casos resolverá lo pertinente.

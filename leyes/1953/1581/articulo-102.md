@@ -1,0 +1,1 @@
+Artículo 102.-Las personas que resultaren afectadas por la aplicación del inciso a) del artículo 101, gozarán de prioridad para ocupar las plazas vacantes, de ubicación más próxima a su puesto anterior.

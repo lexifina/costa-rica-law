@@ -1,0 +1,2 @@
+Artículo 76.-Si estuviere en trámite gestión de despido y el servidor incurriere en nueva falta grave, el Ministro la pondrá, de inmediato, en conocimiento del Tribunal de Servicio Civil.
+(Nota de Sinalevi: En relación al "Procedimiento de Despido", ahora se regula de conformidad con las disposiciones de los artículos 21 inciso f) y 22 de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

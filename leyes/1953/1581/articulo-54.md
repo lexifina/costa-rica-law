@@ -1,0 +1,1 @@
+Artículo 54.- Se consideran comprendidos en la Carrera Docente los siguientes servidores del Ministerio de Educación Pública: quienes impartan lecciones, realicen funciones técnicas propias de la docencia o sirvan en puestos para cuyo desempeño se requiera poseer título o certificado que acredite para ejercer la función docente de acuerdo con el Manual Descriptivo de Puestos.

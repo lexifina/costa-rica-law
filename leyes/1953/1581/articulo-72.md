@@ -1,0 +1,1 @@
+Artículo 72.-Si el servidor incurriere en nueva causal de despido durante el período de instrucción, se acumularán los cargos en el expediente en trámite y se procederá conforme a lo establecido en este capítulo.

@@ -1,0 +1,1 @@
+Artículo 206.-En cuanto no contraríen el texto y los procedimientos referentes a la organización del Tribunal, que contiene este título, se aplicarán supletoriamente las disposiciones de la Ley Orgánica del Poder Judicial y del Código de Trabajo.

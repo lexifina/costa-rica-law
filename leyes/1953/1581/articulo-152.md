@@ -1,0 +1,1 @@
+Artículo 152.-La evaluación deberá tomarse en cuenta en toda "Acción de Personal" que beneficie al servidor y como factor que se considerará para los traslados aumentos de sueldos, licencias y, en general, para los restantes efectos consignados en la presente ley y otras disposiciones legales y reglamentos aplicables.

@@ -1,0 +1,3 @@
+Artículo 82.-Conocidas las informaciones instruidas por el Departamento de Personal contra los servidores, por faltas cometidas en el ejercicio de sus funciones y en su vida social, cuando éstas sean de las comprendidas en el artículo 60 de esta ley, el Tribunal establecerá si las mismas ameritan el despido del servidor, sin responsabilidad para el Estado, en cuyo caso procederá conforme al artículo 74.
+No obstante lo establecido en el inciso c), in fine, del artículo anterior, podrá solicitarse, dentro de tercero día, adición o aclaración al mismo fallo.
+Resuelto lo pertinente, el Tribunal procederá según se establece en el artículo 74.

@@ -1,0 +1,1 @@
+Artículo 199.-La potestad disciplinaria será ejercida, indistintamente, por el Presidente del Tribunal y por el Actuario en los casos en que determine el Reglamento, pero éste o aquél deberán abstenerse de intervenir cuando el otro lo hubiera hecho.

@@ -1,0 +1,5 @@
+Artículo 81.-El Tribunal de la Carrera Docente tendrá las siguientes atribuciones:
+a) Conocer, conforme al procedimiento que esta ley indica, de todos los conflictos que se originen dentro del Ministerio de Educación Pública, tanto por el incumplimiento de las obligaciones, como por el no reconocimiento de los derechos del personal docente; y dictar el fallo que en cada caso corresponda;
+b) Conocer de lo resuelto por el Director del Departamento de Personal, en relación con la peticiones de los servidores, sobre derechos inherentes a ellos en sus puestos. La resolución, en estos casos, tendrá alzada ante el Ministro de Educación Pública. Tal trámite agota la vía respectiva;
+c) Conocer de las apelaciones que se presentaren contra resoluciones dictadas por el Director del Departamento de Personal, en los procedimientos de esta Capítulo. Lo resuelto por el Tribunal en este caso, no tiene recurso ulterior; y
+d) Las demás funciones que esta ley o cualquiera otra disposición legal le otorgaren.

@@ -1,0 +1,3 @@
+Artículo 69.-Si de la instrucción no resultare mérito para continuar las diligencias, el Director del Departamento de Personal, mediante resolución razonada, ordenará el archivo del expediente.
+En caso contrario, formulará por escrito los cargos que resultaren, de los cuales le dará traslado al servidor por un término de 10 días, que notificará personalmente o por correo certificado. Dentro del plazo indicado, el servidor deberá presentar por escrito sus descargos y ofrecer las pruebas en abono de los mismos.
+Cuando, sin justa causa, no presentare sus descargos en el plazo que le concede el párrafo anterior, se entenderá que renuncia a ese derecho.

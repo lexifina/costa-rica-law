@@ -1,0 +1,3 @@
+Artículo 137.-Los profesores autorizados de Enseñanza Especial se clasifican en dos grupos, denominados: EAU-2 y EAU-1.
+a) Forman el grupo EAU-2 los profesionales en ramas afines a la Enseñanza Especial, sin estudios pedagógicos, y los profesionales comprendidos en el inciso c) del artículo anterior, que no tengan los estudios ni la experiencia que ahí se indican. También los sacerdotes y quienes, a más del título de maestro o profesor, posean un certificado que acredite para la enseñanza de la Religión; y
+b) Forman el grupo EAU-1 los profesionales comprendidos en el inciso d) del artículo anterior, que no tengan los estudios ni la experiencia que ahí se indican, además, quienes posean un certificado que acredite para la enseñanza de la Religión.

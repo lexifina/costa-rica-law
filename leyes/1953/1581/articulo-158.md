@@ -1,0 +1,1 @@
+Artículo 158.-El procedimiento establecido en el primer párrafo del artículo 157 no será aplicable a los servidores que, por alguna circunstancia, no pudieren ser habidos en el período de la evaluación y calificación de servicios; en esta caso los interesados gozarán del derecho que establece el artículo siguiente.

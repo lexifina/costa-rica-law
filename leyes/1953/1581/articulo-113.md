@@ -1,0 +1,1 @@
+Artículo 113.-Podrán concursar para puestos en propiedad las personas comprendidas en los grupos de titulados y quienes se ubican en los grupos de autorizados, que en cada caso se indican, siempre que cumplan con los requisitos que, para las diferentes clases, determine la Dirección General de Servicio Civil.

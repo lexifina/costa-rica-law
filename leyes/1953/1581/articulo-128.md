@@ -1,0 +1,1 @@
+Artículo 128.-El profesor titulado de Enseñanza Media que labore en una especialidad ajena a la suya, será ubicado, para los efectos de esta ley, dentro del grupo MAU-2; pero será considerado en la otra especialidad, dentro del grupo de titulados al cual corresponde, por sus estudios, una vez cumplido el quinto año de servicio bien calificados.

@@ -1,0 +1,1 @@
+Artículo 109.-Son profesores autorizados los que, sin poseer título o grado específico para el cargo que desempeñan, ostenten otros que sean afines, según será determinado, para cada caso, en la presente ley.

@@ -1,0 +1,2 @@
+Artículo 183.-Los miembros del Tribunal durarán en sus cargos seis años, cada dos años se renovará uno de ellos y podrán ser reelectos. Si ocurriere una vacante será cubierta hasta completar el período del antecesor conforme lo dispone el artículo 182.
+(Nota de Sinalevi: Este tema se regula de conformidad con las disposiciones del Transitorio XIII de la Ley Marco de Empleo Público (LMEP) No. 10159 del 8 de marzo de 2022)

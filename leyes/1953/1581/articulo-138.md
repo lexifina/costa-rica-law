@@ -1,0 +1,1 @@
+Artículo 138.-Los profesores autorizados de Enseñanza Especial que reúnan los requisitos de estudio y experiencia o, en su defecto, de la experiencia equivalente, indicados en el inciso c) del artículo 136, podrán concursar para puestos en propiedad y, una vez escogidos de la nómina respectiva, gozarán de los derechos que confiere la presente ley a los servicios regulares.

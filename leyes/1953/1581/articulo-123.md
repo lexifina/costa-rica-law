@@ -1,0 +1,3 @@
+Artículo 123.- Los profesores autorizados de Enseñanza Primaria se clasifican en dos grupos: PAU-2 y PAU-1.
+a) Son profesores autorizados del grupo PAU-2 los que hayan aprobado el segundo año en una escuela normal, que tenga base en bachillerato; los que tengan aprobados los estudios generales y un año en la Facultad de Educación, y los egresados de I.F.P.M., con título de bachiller; y
+b) Son profesores autorizados del grupo PAU-1 los que posean otro título o certificado que acredite para ejercer la función docente los que hayan aprobado el primer año de los estudios conducentes al título de profesor de Enseñanza Primaria, en una escuela normal con base en bachillerato; y los que tengan aprobado el quinto año en el I.F.P.M.

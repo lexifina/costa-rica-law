@@ -1,0 +1,1 @@
+Artículo 91.-Los miembros del Jurado podrán solicitar, a la Dirección General de Servicio Civil, la información que juzguen conveniente, relativa a la calificación de los candidatos a fin de verificar la correcta evaluación de los atestados que se ponderan.

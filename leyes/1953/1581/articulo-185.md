@@ -1,0 +1,1 @@
+Artículo 185.- En el desempeño de su cometido, el Tribunal gozará de independencia funcional y de criterio, así como de la atribución de darse su propio reglamento interior y de hacer los nombramientos y renovaciones de su personal administrativo, con sujeción al Régimen de Servicio Civil.

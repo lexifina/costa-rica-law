@@ -1,0 +1,1 @@
+Artículo 194.-Las resoluciones y actuaciones del Actuario serán firmadas por él y por el Secretario de la oficina, o por quienes puedan sustituir a éste de acuerdo con lo que disponga el Reglamento del Tribunal.

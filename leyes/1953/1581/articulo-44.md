@@ -1,20 +1,3 @@
-Artículo 44.- Las partes tendrán un término de tres días hábiles,
-contados a partir del siguiente al de la notificación del fallo del
-Tribunal de Servicio Civil, para apelar. El recurso se concederá para
-ante el Tribunal Superior de Trabajo, y se limitará, exclusivamente, a
-las cuestiones de derecho que comprenda el fallo o puedan tener relación
-directa con el mismo. Las cuestiones de hecho, conforme las haya
-determinado la sentencia de primera instancia, deberán ser aceptadas por
-el superior. El fallo del Tribunal Superior de Trabajo será definitivo,
-y si tuviere por comprobada violación, interpretación errónea o mala
-aplicación de la ley, y por tal motivo fuera el caso de revocar la
-sentencia de primera instancia, dictará en el mismo acto nuevo fallo,
-ajustándolo a las disposiciones legales pertinentes cuya infracción
-hubiere sido alegada oportunamente, y resolverá si procede el despido o
-la restitución del empleado a su puesto, con el pleno goce de sus
-derechos y el pago en su favor de los sueldos caídos. El servidor podrá
-renunciar en ejecución del fallo a la reinstalación, a cambio de la
-percepción inmediata del importe del preaviso y del auxilio de cesantía
-que le pudieran corresponder y, a título de daños y perjuicios, de los
-sueldos que habría percibido desde la terminación del contrato hasta el
-momento en que quede firme el fallo respectivo.
+Artículo 44.-Las partes tendrán un término de tres días hábiles, contados a partir del siguiente al de la notificación del fallo del Tribunal del Servicio Civil, para apelar. El recurso se concederá en ambos efectos para ante el * (Tribunal Superior de Trabajo). El fallo del * (Tribunal Superior) será definitivo y si se revocare la sentencia apelada, dictará en el mismo acto nuevo fallo, y resolverá si procede el despido o la restitución del empleado a su puesto, con pleno goce de sus derechos y el pago en su favor de los salarios caídos. El servidor podrá renunciar en ejecución del fallo a la reinstalación, a cambio de la percepción inmediata del importe del preaviso y del auxilio de cesantía que le pudieren corresponder, y, a título de daños y perjuicios, de los salarios que habría percibido desde la terminación del contrato hasta el momento en que quede firme la sentencia. (Así reformado por ley Nº 4186 de 9 de setiembre de 1968. Interpretado por Resolución de la Sala Constitucional Nº 1148-90 de las 17 horas del 21 de setiembre de 1990).
+(Este artículo fue interpretado por resolución de la Sala Constitucional N° 1148, del 21 de setiembre de 1990, en el sentido de que: “la existencia y competencia del Tribunal de Servicio Civil no es contraria per se a la Constitución , siempre que no se le otorgue carácter jurisdiccional sino únicamente administrativo, a efecto de tener por agotada esa vía como previa a la judicial contencioso-administrativa o, en su caso a la laboral.” De tal manera, “…es inconstitucional la interpretación o aplicación de las disposiciones relativas al Tribunal de Servicio Civil, en la medida en que con aquélla se atribuya a éste o a sus competencias carácter jurisdiccional, o que se reconozca a sus fallos autoridad de cosa juzgada.” )
+* (Las frases descritas entre paréntesis fueron anuladas mediante resolución de la Sala Constitucional número 6866 de las catorce horas con treinta y siete minutos del primero de junio de 2005).

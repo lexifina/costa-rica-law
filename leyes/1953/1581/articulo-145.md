@@ -1,0 +1,1 @@
+Artículo 145.-Son profesores de Enseñanza Especial Superior que laboren en instituciones formadoras de profesores para la Enseñanza Media, Técnico-Profesional o Especial, en funciones docente-administrativas, de investigación, o impartiendo lecciones sobre materias del respectivo plan de estudios.

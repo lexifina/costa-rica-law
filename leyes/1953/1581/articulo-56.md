@@ -1,0 +1,1 @@
+Artículo 56.-Es obligación del Ministerio de Educación Pública y derecho del educador, velar porque se mantenga al día el expediente personal de servicio. No obstante, el servidor deberá aportar aquellos documentos que, con posterioridad a la apertura del expediente, puedan favorecer, de algún modo, su situación profesional.

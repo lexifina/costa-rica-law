@@ -1,0 +1,1 @@
+Artículo 160.-Las calificaciones de Insuficiente o Inaceptable deben llevar, adjunta, una explicación de las causas que la motivaron y las advertencias y observaciones formuladas al servidor, tendientes a la superación del mismo.

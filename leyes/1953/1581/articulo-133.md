@@ -1,0 +1,1 @@
+Artículo 133.-El Profesor de Enseñanza Técnico-Profesional titulado, que labore en otro campo ajeno a su especialidad, será considerado, para los efectos de esta ley, dentro del grupo MAU-2; pero será ubicado dentro del grupo de titulados al cual corresponda por sus estudios, una vez cumplidos tres años de servicios calificados con la nota mínima de Bueno.
