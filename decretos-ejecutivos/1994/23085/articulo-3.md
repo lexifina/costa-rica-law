@@ -1,11 +1,1 @@
-ARTÖCULO 3§.- Con excepci¢n de las placas o distintivos
-autorizados
-a los Expresidentes de la Rep£blica, en todos los dem s casos
-previstos
-en la Ley y en el presente Reglamento, deber n hacer devoluci¢n
-de las
-placas o distintivos oficiales al t‚rmino de su funci¢n p£blica,
-cuando
-‚stos sean usados en veh¡culos propiedad de los miembros de los
-Supremos
-Poderes del Estado.
+Artículo 3º.- Con excepción de las placas o distintivos autorizados a los Expresidentes de la República, en todos los demás casos previstos en la Ley y en el presente Reglamento, deberán hacer devolución de las placas o distintivos oficiales al término de su función pública, cuando éstos sean usados en vehículos propiedad de los miembros de los Supremos Poderes del Estado.

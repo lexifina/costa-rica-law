@@ -14,3 +14,4 @@ Reglamento para regular el uso bandera en placas y distintivos oficiales en veh√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-08 | la propia norma |
+| 2 | 1994-04-08 | SINALEVI (sin norma nombrada) |
