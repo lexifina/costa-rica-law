@@ -1,6 +1,4 @@
 CAPITULO VIII
 ESTABILIZACION DE PRECIOS
 ARTÍCULO 20
-1. Para los fines de este Convenio, el precio del azúcar será el precio para pronta entrega (spot) en moneda de los Estados Unidos, por libra avoirdupois libre al costado del buque en puerto cubano, establecido por la Bolsa del Café y del Azúcar de Nueva York (New York Coffee and Sugar Exchange), en relación con azúcar cubierto por el contrato Ni9 4, o cualquier otro precio que pueda ser establecido conforme al párrafo 2 de este artículo, y se entenderá que el precio prevaleciente es superior o inferior a una cifra determinada, si su promedio durante un periodo de diecisiete días consecutivos de bolsa ha sido superior o inferior a dicha cifra, según sea el caso, siempre que el precio para pronta entrega en el primer día del periodo y durante no menos de doce días de dicho periodo haya sido superior o inferior a la cifra citada, según los casos.
-2. En el caso de que el precio referido en el párrafo 1 de este artículo no esté a disposición del Consejo durante un periodo sustancial, este usara cualquier otro criterio que considere apropiado.
-3. Cualquiera de los precios establecidos en los artículos 18 y 21 podrá ser modificado por el Consejo por votación especial.
+(Mediante el artículo 3° del Protocolo para prolongarla vigencia del Convenio Internacional del Azúcar (1958), Tratado Internacional N° 3211 del 8 de octubre de 1963, el presente artículo se consideró no vigente)

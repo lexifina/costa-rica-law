@@ -1,4 +1,5 @@
 Convenio Internacional del Azúcar de 1958
+(Nota de Sinalevi: Mediante el artículo 1° del Protocolo para prolongar la vigencia del Convenio Internacional del Azúcar (1958), Tratado Internacional N° 3211 del 8 de octubre de 1963 , dispuso prorrogar hasta el 31 de diciembre de 1965, la vigencia de este Tratado Internacional)
 Los Gobiernos que son Partes en este Convenio han acordado lo siguiente:
 CAPITULO I
 OBJETIVOS GENERALES‑

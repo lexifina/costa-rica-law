@@ -1,2 +1,2 @@
 ARTÍCULO 15
-El presente Convenio no se aplicara a las transacciones de azúcar entre la Unión Económico Belgo-Luxemburguesa (incluido el Congo Belga), Francia, la Republica Federal de Alemania, Italia y el Reino de los Países Bajos hasta una cantidad neta de 150,000 toneladas de azúcar por año.
+(Mediante el artículo 3° del Protocolo para prolongarla vigencia del Convenio Internacional del Azúcar (1958), Tratado Internacional N° 3211 del 8 de octubre de 1963, el presente artículo se consideró no vigente)

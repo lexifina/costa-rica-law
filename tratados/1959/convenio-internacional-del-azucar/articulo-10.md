@@ -1,2 +1,2 @@
 ARTÍCULO 10
-El Gobierno de cada país exportador participante conviene en ajustar la producción de azúcar de su país durante la vigencia de este Convenio, y en cuanto sea factible en cada año-cuota, mediante la reglamentación de la fabricación de azúcar o, cuando esto no sea posible, de la superficie de cultivo o de siembra, de modo que su producción de azúcar sea la cantidad necesaria para satisfacer el consume interno, las exportaciones permitidas conforme a este Convenio y las reservas establecidas en el artículo 13.
+(Mediante el artículo 3° del Protocolo para prolongarla vigencia del Convenio Internacional del Azúcar (1958), Tratado Internacional N° 3211 del 8 de octubre de 1963, el presente artículo se consideró no vigente)

@@ -1,0 +1,2 @@
+ARTICULO 7
+Para los efectos de la aplicación del Convenio, cuando se haga referencia a los gobiernos o países enumerados, mencionados o incluido en artículos determinados, se considerará como enumerado, mencionado o incluido en dichos artículos todo país que no esté mencionado en los artículos 33 ó 34 del Convenio cuyo gobierno se haya adherido al Convenio antes del 1º de enero de 1964 de conformidad con el párrafo 4) del artículo 41 del Convenio, o que participe en este Protocolo de conformidad con los artículos 3 y 4 del mismo.

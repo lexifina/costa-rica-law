@@ -1,2 +1,2 @@
 ARTÍCULO 17
-Las exportaciones de azúcar a los Estados Unidos de América, para su propio consumo, no serán consideradas exportaciones al mercado libre y no serán cargadas a las cuotas de exportación establecidas en este Convenio.
+(Mediante el artículo 3° del Protocolo para prolongarla vigencia del Convenio Internacional del Azúcar (1958), Tratado Internacional N° 3211 del 8 de octubre de 1963, el presente artículo se consideró no vigente)
