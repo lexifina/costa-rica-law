@@ -1,0 +1,1 @@
+Artículo 4°—El Poder Ejecutivo incluirá, en la primera modificación al Presupuesto Ordinario de la República de 1975, la partida necesaria para la adquisición del inmueble indicado en la presente ley.
