@@ -1,0 +1,1 @@
+Articulo 9°—En el caso del inciso 2) del artículo 13 de la Constitución Política el progenitor costarricense, mientras el hijo sea menor de edad, podrá ocurrir personalmente o por medio de apoderado especialísimo ante el Registro Civil, que se tenga a su hijo como costarricense por nacimiento.
