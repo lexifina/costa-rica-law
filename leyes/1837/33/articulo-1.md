@@ -1,0 +1,6 @@
+DECRETO XXXIII
+Fija término a los tenedores de tabaco para consumirlo o exportarlo
+“ El Jefe Supremo del Estado libre de Costa Rica.- Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional de Estado libre de Costa Rica, considerando: que dada por el Congreso Nacional la ley de 17 de junio de 836 que apropió la renta de tabacos para la Federación, debe en su virtud establecerse en el Estado por cuenta de la misma administración y venta este fruto: que con tal objeto el Ejecutivo del Estado, consecuentemente a exitación del Supremo Nacional, ha representado la necesidad de fijar término a los tenedores de Tabaco, por consecuencia de la adjudicación que les hizo, a fin de que consuman o expendan, para que tengan su cumplimiento las disposiciones federales sobre la materia y que según el próximo mayo estarán ya planteadas las tercenas de esta especie, decreta
+Art único: Los tenedores de tabaco en el Estado lo consumirán o expederán fuera de él lo más tarde el último de abril de 1838, en el concepto de que no verificándolo así, por el mismo hecho será decomisado.-Al Consejo Representativo.- Dado en la ciudad de Heredia de mil ochocientos treinta y siete.
+Por tanto: Ejecutese: San José noviembre veinticinco de mil ochocientos treinta y siete.
