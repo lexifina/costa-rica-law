@@ -1,1 +1,1 @@
-Artículo 10°.—Al quedar completamente lleno cualquiera de los libros del Registro, se cerrará poniendo al fin una razón en que se haga constar la época que comprende. Esta razón será firmada por el Registrador y por dos testigos de asistencia.
+Artículo 10°—Los libros llevados en campaña, terminada ésta, pasarán a la oficina central; y el Director del Registro cuidará entonces de practicar todas las inscripciones que aquéllos contengan.

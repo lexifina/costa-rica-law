@@ -1,2 +1,1 @@
-Artículo 53.—El parte de que habla el artículo anterior se debe dirigir a la Oficina Central dentro de veinticuatro horas, si la inhumación se verificase en esta capital y dentro del término más breve que presente el servicio de correos, tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 251 del Código Civil.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 52 al 53 actual)
+Artículo 53.—Los fallecimientos ocurridos en viajes por tierra, dentro del territorio de la República, se declararán ante el Registrador Auxiliar del lugar en que haya de enterrarse el cadáver.

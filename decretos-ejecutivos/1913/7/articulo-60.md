@@ -1,5 +1,2 @@
-TITULO X
-Rectificaciones de los asientos del Registro
-CAPÍTULO ÚNICO
-Artículo 60.—Son prohibidas en los asientos del Registro las raspaduras, entrerrenglonaduras y enmiendas. Los errores u omisiones se salvarán por medio de notas puestas al pie del asiento y antes de las firmas.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 59 al 60 actual)
+Artículo 60.—Las certificaciones contendrán copia literal del asiento con todas sus notas marginales y cita del tomo y página en que se encuentre y estarán autorizadas con el sello de la oficina y la firma del Director del Registro o del Oficial Mayor Civil o del Secretario o del funcionario encargado de expedir certificaciones.
+Sin embargo las certificaciones sobre nacimiento se expedirán refiriéndolas al asiento original y según resulte de las modificaciones motivadas por los asientos marginales, salvo que el solicitante las requiera en forma literal, en cuyo caso se extenderán conforme a la solicitud.

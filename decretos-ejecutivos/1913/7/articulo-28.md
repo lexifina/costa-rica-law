@@ -1,1 +1,1 @@
-Artículo 28.—(Derogado y publicado en la Colección de Leyes y Decretos del año 1952, Semestre II, Tomo I, página 133)
+Artículo 28.—Si el niño muriese antes de estar inscrito en el Registro se hará la inscripción de nacimiento antes que la de muerte, caso de tenerse a la vista el cupón de nacimiento; de lo contrario, se procederá inmediatamente a inscribir la defunción.

@@ -1,2 +1,1 @@
-Artículo 48.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 47 al 48 actual)
+Artículo 48.—El parte de defunción se debe dirigir al Registro Civil dentro de veinticuatro horas, si la inhumación se verificase en esta capital y dentro del término más breve que sea posible conforme al servicio de correos, tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 31 de la Ley Orgánica del Registro Civil.

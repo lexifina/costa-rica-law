@@ -1,3 +1,0 @@
-Artículo 79.—Tanto los funcionarios públicos como los particulares, en su caso, que no cumplieren con la obligación de dar al Registro, en tiempo oportuno, las noticias, o presentar los certificados que previene esta ley, pagarán una multa que no bajará de cinco colones ni excederá de veinticinco, según el caso. IGUAL MULTA SE IMPONDRÁ AL PÁRROCO QUE BAUTICE Y AL PADRE O ENCARGADO DE LA PERSONA BAUTIZADA SIN LAS FORMALIDADES DEL ARTÍCULO 72.
-(Así reformado por el artículo 3° del decreto ejecutivo N° 13 del 19 de setiembre de 1917)
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 78 al 79 actual)

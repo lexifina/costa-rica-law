@@ -1,1 +1,4 @@
-Artículo 37.—Si antes de celebrarse el matrimonio se denunciare algún impedimento, el funcionario lo hará constar así en la información y remitirá la denuncia ratificada al Juez de 1° instancia Civil de la respectiva provincia, para que siga el juicio correspondiente.
+TITULO VII
+CAPITULO ÚNICO
+Registro de Matrimonios
+Artículo 37.—El Registro Civil procederá a la inscripción de los matrimonios civiles, según la certificación que reciba de! respectivo funcionario, quien está en la obligación de remitirla por el correo inmediato al día en que se verificó el matrimonio.

@@ -1,2 +1,1 @@
-Artículo 43.—Los matrimonios celebrados por la Iglesia Católica se inscribirán en virtud de las certificaciones extendidas por los párrocos.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 42 al 43 actual)
+Artículo 43.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.

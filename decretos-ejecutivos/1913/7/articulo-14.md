@@ -1,1 +1,1 @@
-Artículo 14.—En los libros que lleven los Agentes Consulares, las diligencias para abrir y cerrar cada libro, se formalizarán por notas del Cónsul encargado del Registro, autorizadas con el sello del Consulado y con la firma del Agente diplomático de la República, si lo hubiere, y en caso contrario, con las de dos testigos de asistencia.
+Artículo 14.—Todas las páginas de los libros tendrán un margen vertical en blanco, del ancho de la cuarta parte de una página, destinado a anotaciones posteriores.

@@ -1,1 +1,1 @@
-Artículo 32.—Si el niño muriese antes de estar, inscrito en el Registro, se hará la inscripción de nacimiento antes que la de muerte, caso de tenerse a la vista el cupón del nacimiento; de lo contarlo, se procederá inmediatamente a inscribir la defunción.
+Artículo 32.—Ratificada verbalmente la solicitud y llenados los requisitos del artículo 64 del Código Civil, el funcionario que haya de celebrar el matrimonio mandará publicar los edictos de ley en el periódico oficial, y señalarán día para el examen de los testigos.

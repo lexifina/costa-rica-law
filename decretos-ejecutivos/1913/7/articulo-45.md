@@ -1,2 +1,4 @@
-Artículo 45.—Las certificaciones de los matrimonios católicos celebrados en el territorio de la República, se enviarán por los señores párrocos, en el término más corto que permita el servicio de Correos, al Registro Central.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 44 al 45 actual)
+TITULO VIII
+CAPITULO ÚNICO
+Registro de Defunciones
+Articulo 45.—La inscripción de un fallecimiento se hará en virtud de parte escrito que de él deben dar los Tesoreros de las Juntas de Protección Social, Jefes Políticos, Agentes de Policía y demás empleados encargados de expedir boletos de entierro.

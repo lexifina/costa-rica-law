@@ -1,1 +1,1 @@
-Artículo 38.—Terminada la información, y pasado el término de los edictos sin haber habido oposición al matrimonio o sin haberse denunciado impedimento, o ejecutoriada en su caso la sentencia que lo declare sin lugar, el funcionario terminará el expediente, señalando el lugar, día y hora en que deba celebrarse el matrimonio.
+Artículo 38.—Los matrimonios celebrados por la Iglesia Católica se inscribirán en virtud de las certificaciones extendidas por los párrocos.

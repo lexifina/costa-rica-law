@@ -1,1 +1,1 @@
-Artículo 31.—En el asiento de inscripción de nacimiento de hijos ilegítimos no se expresará quién es el padre, a no ser que por documento público se halle establecida la paternidad.
+Artículo 31.—Con la solicitud se acompañarán los documentos que comprueben los requisitos que previenen los incisos 2°, 3° y 4° del artículo 64 del Código Civil.

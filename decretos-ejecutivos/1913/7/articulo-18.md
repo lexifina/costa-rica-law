@@ -1,1 +1,4 @@
-Artículo 18.—Cada libro del Registro tendrá su índice respectivo llevado por orden alfabético. Para ese efecto se formarán con el abecedario todas las combinaciones posibles de dos letras; se pondrá la combinación en la parte superior del frente de cada foja, procurando destinar a cada una de aquéllas el número de éstas que se conceptúe necesario.
+TITULO IV
+CAPITULO ÚNICO
+Disposiciones Comunes a Todas las Inscripciones
+Articulo 18.—Los asientos y sus marginales se practicarán con estudio y confrontación de los correspondientes documentos, y serán firmados por los respectivos oficiales de inscripción, quienes, serán responsables de su cometido; el Director General, de acuerdo con la facultad indicada en el inciso 2) del artículo 5°, dispondrá la distribución del trabajo entre los dichos oficiales con la mayor equidad posible.

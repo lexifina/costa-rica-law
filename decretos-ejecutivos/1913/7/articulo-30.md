@@ -1,1 +1,4 @@
-Artículo 30.— Los objetos encontrados con el niño expósito o abandonado, los remitirá el funcionario al Registrador General para que, si fueren documentos se archiven en la forma dicha en el artículo 24, y si fueren de otra ríase, pero de fácil conservación, se custodien también en el mismo archivo, marcándose de manera conveniente para que en todo tiempo puedan ser reconocidos.
+TITULO VI
+CAPITULO ÚNICO
+De la Celebración del Matrimonio
+Artículo 30.—Los que pretendan contraer matrimonio civil presentarán su solicitud por escrito, conforme lo prescribe el artículo 61 del Código Civil, ante el Gobernador o Jefe Político, según el caso, del lugar donde resida cualquiera de los pretendientes. En esa solicitud se nombrará a los testigos que deben presentar los contrayentes, para que declaren sobre la libertad de estado y aptitud legal de los mismos.

@@ -1,3 +1,1 @@
-CAPÍTULO III
-Libros de Registros Auxiliares
-Artículo 20.—Los encargados de los Registros Auxiliares llevarán un libro para asentar las actas de los matrimonios que celebren y otro libro talonario, para tomar nota de los nacimientos que se declaren ante ellos.
+Articulo 20.—Son prohibidas en los asientos del Registro las raspaduras, entrerrenglonaduras y enmiendas. Los errores u omisiones se salvarán por medio de notas puestas al pie del asiento y antes de las firmas.

@@ -1,2 +1,0 @@
-Artículo 82.—Tanto los Registradores Auxiliares como los .Tesoreros de las Juntas de Caridad y encargados de Cementerios, están en la obligación de corregir o anular en su caso, todos los documentos que el Registrador General les devuelva por defectuosos, siempre que no se hubieren inscrito en los libros del Registro Central, pues en este caso se observará lo dispuesto en el título X.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 81 al 82 actual)

@@ -1,2 +1,1 @@
-Artículo 64.—(Derogado por el artículo 2° del decreto ejecutivo N° 11 del 4 de marzo de 1953)
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 63 al 64 actual)
+Artículo 64.—Por los asientos que se extienden en el Registro Civil y las declaraciones que se hagan a los Registradores Auxiliares. Tesoreros de las Juntas de Protección Social, etc.. no se cobrará remuneración alguna.

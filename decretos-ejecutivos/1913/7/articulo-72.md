@@ -1,2 +1,0 @@
-Artículo 72.—Una vez que el Tribunal devuelva el expediente con la resolución, se hará el asiento, si así se hubiere ordenado, haciendo constar en él, que se practica en virtud de resolución del Tribunal o bien se devolverá al Registro para su entrega al interesado.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 71 al 72 actual)

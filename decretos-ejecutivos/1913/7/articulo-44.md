@@ -1,2 +1,2 @@
-Artículo 44.—Los matrimonios celebrados en la República por los Ministros diplomáticos y Cónsules que conforme a los tratados puedan hacerlo, se inscribirán en virtud de certificación expedida por el Agente Diplomático o Consular, previa la traducción legalmente hecha.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 43 al 44 actual)
+Artículo 44.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en los libros destinados a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
+Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1020 y siguientes del Código de Procedimientos Civiles.

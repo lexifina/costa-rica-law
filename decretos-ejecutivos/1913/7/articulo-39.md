@@ -1,2 +1,1 @@
-Artículo 39.- En las Gobernaciones de Provincia, cuando se trate de la tramitación de los expedientes y de la celebración de matrimonios civiles, en ausencia de los Gobernadores y en sustitución de éstos, como Registradores Auxiliares, podrán actuar sus Secretarios.
-(Así adicionado por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939)
+Artículo 39.—Las certificaciones de los matrimonios católicos celebrados en el territorio de la República, se enviarán por los señores párrocos, en el término más corto que permita el servicio de Correos, al Registro Civil.

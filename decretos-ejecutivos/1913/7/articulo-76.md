@@ -1,2 +1,0 @@
-Artículo 76.—Los artículos 188 y 189 de la Ley Orgánica de Tribunales serán aplicables a los Registradores, en cuanto quepa; y las correcciones disciplinarias que podrán imponerse por la Secretaría de Gobernación, serán advertencia, reprensión y multa que no exceda de veinticinco colones.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 75 al 76 actual)

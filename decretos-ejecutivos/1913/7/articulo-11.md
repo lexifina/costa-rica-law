@@ -1,1 +1,1 @@
-Artículo 11 — Siempre que haya cambio en la persona del funcionario encargado del Registro, se pondrá en todos los libros una razón, que firmarán el empleado que entrega y el que recibe, en que se haga constar el estado del libro y el número de folios escritos.
+Artículo 11.—En los libros que lleven los Agentes Consulares, las diligencias para abrir y cerrar cada libro, se formalizarán por notas del Cónsul encargado del Registro, autorizadas con la firma del funcionario y el sello del Consulado .

@@ -1,2 +1,0 @@
-Artículo 78.—Las certificaciones contendrán copia literal del asiento con todas sus notas marginales y cita del tomo y folio en que se encuentren y estarán autorizadas con el sello de la oficina y la firma del Registrador General o la del Oficial Mayor o Secretario.
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 77 al 78 actual)

@@ -1,1 +1,1 @@
-Artículo 13.—Los libros llevados en campaña, terminada ésta, pasarán a la oficina central; y el Registrador General cuidará entonces de practicar en sus libros todas las inscripciones que aquéllos contengan.
+Articulo 13.—Se llevará además un cuaderno talonario para extender ¡os recibos de los documentos que se presenten para su inscripción. Cada foja formará un recibo.

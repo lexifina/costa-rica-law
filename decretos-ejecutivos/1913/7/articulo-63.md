@@ -1,2 +1,1 @@
-Artículo 63.—(Derogado por el artículo 2° del decreto ejecutivo N° 11 del 4 de marzo de 1953)
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 14 del 15 de febrero de 1939, que lo pasó del anterior artículo 62 al 63 actual)
+Artículo 63.—Tanto los Registradores Auxiliares corno los Tesoreros de las Juntas de Protección Social y encargados de Cementerios, están en la obligación de corregir o anular en su caso, todos los documentos que el Registro Civil les devuelva por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a este reglamento.

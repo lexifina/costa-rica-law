@@ -1,1 +1,1 @@
-Artículo 2°—El Registro Central estará a cargo de la Oficina Central y su personal se compondrá de un Registrador General y de los empleados necesarios, todos los cuales serán de libre nombramiento y remoción de la Secretaría de Gobernación.
+Artículo 2°—Cuando el ejército se hallare en campaña, el Jefe de todo cuerpo o columna que deba operar con independencia, encargará del servicio del Registro a un oficial, el cual se sujetará a las prescripciones legales para inscribir provisionalmente los actos civiles que ocurran.
