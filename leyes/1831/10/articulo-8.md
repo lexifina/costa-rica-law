@@ -1,0 +1,1 @@
+Art. 8. Cualquiera de los Ministros de la Casa de Moneda que contravenga á lo dispuesto en el artículo 5 de esta ley, sufrirà por la primera vez veinticinco pesos de multa, cincuenta por la segunda, y por la tercera y cada una de las que sucedan, setenta y cinco, aplicadas al denunciante.

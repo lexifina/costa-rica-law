@@ -1,0 +1,1 @@
+Art. 6. El Ministro Ensayador serà obligado à cumplir exàctamente con lo dispuesto en los artìculos 1 y 2, sin que valga pretexto alguno; bajo la pena de veinte pesos de multa por la primera vez, cuarenta por la segunda, y sesenta por la tercera y las demas que sucedan, aplicadas al denunciante.
