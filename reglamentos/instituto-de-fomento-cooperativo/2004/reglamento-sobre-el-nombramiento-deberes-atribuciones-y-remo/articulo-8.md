@@ -1,0 +1,1 @@
+Artículo 8º—Dispensa de requisitos. Cuando los oferentes para el puesto de representante técnico no reunieren todos los requisitos establecidos en este Reglamento, la Junta Directiva podrá dispensar uno o varios de estos y proceder a nombrar a la persona que considere más calificada.

@@ -1,0 +1,1 @@
+Artículo 4º—Reelección y prórroga. El representante con perfil técnico podrá ser reelegido para nuevos períodos para lo cual se elaborará un dictamen técnico sobre su desempeño y deberá realizarse la respectiva prórroga contractual. En el caso del representante de Junta Directiva su reelección será decidida a discreción de ese órgano colegiado.

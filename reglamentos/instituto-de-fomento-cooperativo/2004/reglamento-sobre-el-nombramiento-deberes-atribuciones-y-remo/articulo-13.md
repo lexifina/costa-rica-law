@@ -1,0 +1,2 @@
+Artículo 13.—Procedimiento sancionatorio. Para la remoción antes del vencimiento del plazo, en el caso del representante nombrado en el seno de la Junta Directiva se seguirá el debido proceso. Para la remoción se requerirá del voto de la mayoría calificada de los miembros de la Junta Directiva.
+Para el caso del representante con perfil técnico, el INFOCOOP podrá solicitar o autorizar la rescisión del contrato cuando se constate incumplimiento del contratado de las cláusulas contractuales.

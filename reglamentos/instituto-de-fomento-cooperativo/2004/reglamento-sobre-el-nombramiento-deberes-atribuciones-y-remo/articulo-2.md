@@ -1,0 +1,1 @@
+Artículo 2º—Del número de representantes. El INFOCOOP designará dos representantes ante el Consejo de Administración de AGRIATIRRO, R. L.; uno de ellos tendrá un perfil técnico y el otro podrá ser escogido dentro del seno de la Junta Directiva.

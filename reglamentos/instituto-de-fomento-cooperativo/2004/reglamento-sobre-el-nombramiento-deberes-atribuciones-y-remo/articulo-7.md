@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos para el miembro de Junta Directiva nombrado como representante. Este nombramiento no estará sujeto a los requisitos señalados anteriormente, en cuanto a nivel académico y experiencia.
