@@ -1,3 +1,1 @@
-Artículo 299.- En los casos en que, a petición del interesado, deban
-recibirse pruebas cuya realización implique gastos que no deba soportar la
-Administración, ésta podrá exigir el depósito anticipado de los mismos.
+Artículo 299.-En los casos en que, a petición del interesado, deban recibirse pruebas cuya realización implique gastos que no deba soportar la Administración, ésta podrá exigir el depósito anticipado de los mismos.

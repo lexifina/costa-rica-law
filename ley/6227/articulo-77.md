@@ -1,5 +1,1 @@
-Artículo 77.- Planteado el conflicto positivo o negativo de
-competencia, por considerarse competente el otro Ministerio en el primer
-caso, o incompetente en el segundo, se elevarán las actuaciones al
-Presidente de la República, quien decidirá el conflicto a la mayor
-brevedad.
+Artículo 77.-Planteado el conflicto positivo o negativo de competencia, por considerarse competente el otro Ministerio en el primer caso, o incompetente en el segundo, se elevarán las actuaciones al Presidente de la República, quien decidirá el conflicto a la mayor brevedad.
