@@ -14,3 +14,4 @@ Reglamento General Sistema Presupuestario de la Administración Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-28 | la propia norma |
+| 2 | 2000-06-30 | Decreto Ejecutivo 28760 (2000-06-30) |

@@ -169,12 +169,15 @@ Artículos y gastos para recepciones
 664 Transferencias a instituciones descentralizadas
 665 Transferencias a empresas públicas
 666 Transferencias a organismos financieros
+667 Aporte Patronal al Régimen Obligatorio de Pensiones Complementarias (Ley de Protección al Trabajador N° 7983 de 16 de febrero del 2000).
+668 Aporte Patronal Fondo de Capitalización Laboral. (Ley de Protección al Trabajador N° 7983 de 16 de febrero del 2000).
 669 Transferencias a otras instituciones públicas
 680 Cuotas a organismos internacionales mundiales
 681 Cuotas a organismos de sistema interamericano
 682 Cuotas a organismos centroamericanos
 683 Cuotas a otros organismos
 684 Donaciones corrientes al exterior
+(Adicionados Tácitamente los puntos 667 y 668 por el artículo 1 del Decreto Ejecutivo N° 28760 de 30 de junio del 2000)
 7 TRANSFERENCIAS DE CAPITAL
 700 Aportes a instituciones de asistencia médico-social
 701 Aportes a instituciones culturales y educativas
