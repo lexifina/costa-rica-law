@@ -18,3 +18,4 @@ Reglamento para la Comisión de Becas del Ministerio de Agricultura y Ganadería
 | 3 | 1987-05-28 | Decreto Ejecutivo 17567 (1987-05-28) |
 | 4 | 1987-07-07 | Decreto Ejecutivo 17666 (1987-07-07) |
 | 5 | 1994-01-21 | Decreto Ejecutivo 22876 (1994-01-21) |
+| 6 | 1997-04-28 | Decreto Ejecutivo 26063 (1997-04-28) |
