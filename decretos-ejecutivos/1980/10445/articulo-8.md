@@ -1,0 +1,3 @@
+Artículo 8º.- Los Bonos favorecidos dejarán de devengar intereses a partir
+de la fecha en que conforme al sorteo respectivo puedan ser cobrados, debiendo
+presentare al cobro con todos sus cupones no vencidos.
