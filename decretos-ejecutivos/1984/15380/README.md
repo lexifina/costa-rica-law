@@ -13,3 +13,4 @@ Integra Comisión Ejecutiva Cacaotera (CEAC)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-30 | la propia norma |
+| 2 | 1989-03-28 | Decreto Ejecutivo 18930 (1989-03-28) |

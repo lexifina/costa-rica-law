@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 2° del decreto ejecutivo N° 18930 del 28 de marzo de 1989).
 N° 15380
 EL PRESIDENTE DE LA RE PUBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA,
