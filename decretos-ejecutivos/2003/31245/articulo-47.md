@@ -1,0 +1,1 @@
+Artículo 47.—El Área de Capacitación del Departamento de Recursos Humanos deberá establecer los procedimientos pertinentes para el desarrollo eficiente de las actividades y responsabilidades de la Comisión y las suyas propias.
