@@ -13,3 +13,4 @@ Reglamento Inmunidades y Privilegios Diplomáticos Consulares yOrganismos Intern
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-01-04 | la propia norma |
+| 2 | 1985-01-04 | SINALEVI (sin norma nombrada) |
