@@ -1,0 +1,1 @@
+Artículo 5°—Las unidades de trabajo encargadas de la administración de los recursos humanos, en cada entidad empleadora se ocuparán de todos los aspectos administrativos inherentes a los procedimientos de reclutamiento y selección, para lo cual cada entidad aplicara su normativa interna.

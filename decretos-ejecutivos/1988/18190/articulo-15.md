@@ -1,0 +1,1 @@
+Artículo 15.—Sólo se podrá hacer nombramientos interinos cuando sean necesarios para sustituir temporalmente al titular de la plaza, o para llenar las necesidades que se originen mientras una plaza permanezca vacante, durante el trámite del concurso y de la adjudicación de la plaza o el trámite para el nombramiento en propiedad.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la clasificación de los puestos de enfermería
+Artículo 18.—Cuando se considere la existencia de una variación sustancial y permanente de tareas y responsabilidades en un puesto de enfermería, el jefe autorizado solicitará al empleador correspondiente, el estudio de reasignación de dicho puesto. El empleador por medio de la Unidad de Clasificación de Puestos tramitará y resolverá la solicitud en la forma que proceda, según el resultado del estudio técnico y lo comunicará al jefe autorizado, salvo lo referente a los puestos bajo el Régimen de Servicio Civil, los que se regirán por el Estatuto de Servicio Civil y su Reglamento.

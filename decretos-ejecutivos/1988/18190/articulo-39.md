@@ -1,0 +1,1 @@
+Artículo 39.—En lo relativo a impedimentos, recusaciones y excusas de los árbitros se aplicará lo dispuesto en el título IX de la Ley Orgánica del Poder Judicial, en lo conducente. Si quedare incompleto el Tribunal por estas razones, se proveerán nuevos nombramientos para el caso en la misma forma dispuesta para los nombramientos originales.

@@ -1,0 +1,2 @@
+Artículo 17.—Cuando una plaza de enfermera de la clase 1 a la 3, ha pasado el trámite de los tres concursos, seguirá saliendo en los siguientes, como concurso externo.
+Tratándose de plazas que requieren grado académico universitario, de no haber candidato al término de los tres concursos, se comenzará de nuevo el ciclo, para lo cual se exigirá, únicamente, el ser incorporado al Colegio y tener la especialidad cuando se requiera. La enfermera nombrada en tales condiciones tendrá todos los derechos que garantice la ley N° 7085 y este Reglamento.

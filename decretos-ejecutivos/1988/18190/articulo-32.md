@@ -1,0 +1,1 @@
+Artículo 32.—La Comisión en su primera sesión nombrará un presidente; que será uno de los delegados del Colegio y un secretario; fijará el lugar de sus reuniones y adoptará todas las disposiciones y reglamentaciones que considere pertinentes para su funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 8°—Los interesados en participar en el concurso, deberán presentar todos los atestados en el lugar y plazo establecidos en la convocatoria respectiva, quien así no lo haga, quedará totalmente excluido del procedimiento.

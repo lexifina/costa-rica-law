@@ -1,0 +1,2 @@
+Transitorio 5°.—Ante gestión del Ministerio de Salud, como ente rector del Sector Salud Pública, y según los términos del artículo 2° del Estatuto de Servicios de Enfermería, créase un nivel intermedio entre las clases de puestos de enfermera 7 y 8 en el que se ubicarán los puestos de subjefes de enfermería en el nivel nacional, cuya clasificación y valoración, serán definidas por la Dirección General de Servicio Civil, mediante resolución.
+Dado en la Presidencia de la República.—San José, a los veintidós días del mes de junio de mil novecientos ochenta y ocho.

@@ -1,0 +1,1 @@
+Transitorio 2°—Para efectos de la ley N° 7085 y este Reglamento se considerarán como especialistas hasta 1988 inclusive, todas las enfermeras reconocidas como tales por el Colegio de Enfermeras de Costa Rica.

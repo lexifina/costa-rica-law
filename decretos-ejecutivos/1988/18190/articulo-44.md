@@ -1,0 +1,1 @@
+Artículo 44.—El laudo será apelable en el plazo de cinco días comunes, a partir de su notificación para ante el Tribunal Superior de Trabajo de San José. El recurso se interpondrá ante el Tribunal Arbitral y los agravios contra el laudo se expresarán ante dicho Tribunal Superior dentro del término de emplazamiento que será de tres días comunes a las partes.

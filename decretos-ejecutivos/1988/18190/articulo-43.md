@@ -1,0 +1,1 @@
+Artículo 43.—En caso de que un árbitro no fuera reelecto, conservará sin embargo sus atribuciones para resolver los asuntos que conocía el Tribunal de que formaba parte, salvo que su figuración en el propio tribunal hubiera dependido del ejercicio de un cargo en el desempeño del cual se nombró.

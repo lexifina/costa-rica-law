@@ -1,0 +1,1 @@
+Artículo 27.—La anterior estructura salarial no afecta cualquier otro sobresueldo, beneficio o incentivo salarial que en la actualidad disfrutan los profesionales en enfermería o que lleguen a disfrutar en el futuro, ya sea por ley, reglamento o convención, todo conforme con la normativa respectiva.

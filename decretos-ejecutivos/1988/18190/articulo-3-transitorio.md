@@ -1,0 +1,2 @@
+Transitorio 3°—Sin perjuicio de los derechos adquiridos y en igualdad de condiciones, las enfermeras diplomadas incorporadas al Colegio de Enfermeras podrán participar en los concursos, sin necesidad de que cumplan los requisitos académicos que se exigen en este Reglamento. Esta disposición rige hasta el día 31 de diciembre de 1995.
+Esta misma disposición, tratándose de las bachilleres incorporadas, rige hasta el día 31 de diciembre del año 2000.
