@@ -1,0 +1,9 @@
+Articulo 4°-Se prohibe la caza de las siguientes aves canoras y de plumaje, en los lugares que se indican a continuacion:
+a) Aves silvestres canoras y de plumaje, en los distritos de Los Angeles, Piedades Norte y San Rafael del canton de San Ramon, el distrito de Monterrey de San Carlos; en la zona comprendida entre la carretera que conduce de San Ramon a la Fortuna entre los rios la Esperanza y Burro, margen izquierda hasta colindar con El Bosque Eterno de los Niños en los distritos de La Tigra de San Carlos y San Isidro de Peñas Blancas del canton de San Ramon.
+b) Aves silvestres canoras y de plumaje en los cantones de Puriscal, Turrubares, Mora, Dota y Tarraza de la provincia de San Jose
+c) Aves canoras y de plumaje en el canton de Aguirre, provincia de Puntarenas.
+d) La caza del jilguero (Myadestes melanops) en:
+1). el canton de Perez Zeledon y en la fila Cruces, partiendo del punto 1, ubicado en el puente sobre el rio Piedras Blancas la carretera interamericana sur hasta el punto 2 en Ciudad Neily, continuando por la carretera que conduce hasta el punto 3 en San Vito de Coto Brus, siguiendo por la carretera hacia Paso Real, pasando por la Union hasta el punto 4 ubicado en el cruce a San Gerardo, de este punto se sigue hacia el punto 5, en Paraiso, continuando con una l¡nea recta con rumbo suroeste hasta las nacientes del rio Piedras Blancas, punto 6; continuando por la margen izquierda aguas abajo hasta el puente sobre la carretera interamericana sur, punto de inicio.
+2). El distrito central del canton de Turrialba y el canton de Jimenez, provincia de Cartago.
+3). En la zona de amortiguamiento de un kilometro de ancho alrededor del Parque Nacional Braulio Carrillo y la Reserva Forestal Cordillera Volcanica Central.
+e) Un kilometro en ambas margenes del rio Virilla, en la zona comprendida entre el puente sobre la autopista General Cañas y el puente de Piedras Negras en la carretera que comunica Puriscal con Turrucares de Alajuela.
