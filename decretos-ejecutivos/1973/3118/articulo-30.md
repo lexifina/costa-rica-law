@@ -1,0 +1,1 @@
+Artículo 30° La Dirección General de Aviación Civil deberá implementar debidamente al referido Consejo, con suficiente espació, equipo de oficina y personal ocasional de secretariado y tendrá en forma permanente a su cuidado los archivos, libros y documentos propios del Consejo, de los cuales será depositario y directamente responsable.

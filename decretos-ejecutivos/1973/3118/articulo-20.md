@@ -1,0 +1,1 @@
+Artículo 20° Los miembros del Consejo no podrán estar presentes en las sesiones mientras se conozca algún asunto en que esté interesado su pariente suyo, hasta el cuarto grado inclusive, o que intereses a empresa o sociedades en que tengan relación o interés, sean socios sus parientes dichos.

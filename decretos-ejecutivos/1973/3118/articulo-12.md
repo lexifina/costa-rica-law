@@ -1,0 +1,1 @@
+Artículo 12° Todo permiso, autorización, certificado, concesión o modificación de cualquiera de estos actos que impliquen un compromiso unilateral o bilateral del Estado a favor de un tercero, otorgado por el Consejo, deberá ser firmado por el Consejo, por el concesionario en su caso y refrenando por el Ministro de Obras Públicas y Transportes.

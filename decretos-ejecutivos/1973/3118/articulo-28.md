@@ -1,0 +1,1 @@
+Artículo 28° Todo permiso, autorización, contratación o modificación de cualquiera de estos actos que impliquen un compromiso bilateral o unilateral del Estado a favor de un tercero, promovido por la Dirección de Aviación Civil deberá ser firmado por el Director General, por el concesionario en su caso y refrendado por el Ministerio de Obras Públicas y Transportes.

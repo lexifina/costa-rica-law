@@ -1,0 +1,1 @@
+Artículo 4° El Consejo sujetará sus actos a lo dispuesto en la ley número 5150, en leyes complementarias relativas al planeamiento, regulación, control y vigilancia del transporte y tránsito aéreo a cargo del Ministerio de Obras Públicas y Transportes, al presente Reglamento regulador de su gestión y a las demás que dicte y promulgue el Poder Ejecutivo.

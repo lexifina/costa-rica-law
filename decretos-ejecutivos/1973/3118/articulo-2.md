@@ -1,0 +1,1 @@
+Artículo 2° Para regular el tránsito y transporte aéreo, existirá en el Ministerio de Obras Públicas y Transportes un Consejo Técnico de Aviación Civil y la Dirección General de Aviación Civil, como dependencias técnicas especializadas con las facultades y obligaciones que establecen la ley N° 5150 y el presente reglamento ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 7° El Consejo funcionara bajo la dirección general de los miembros que lo integran, los cuales serán nombrados por el Poder Ejecutivo en la forma en que lo dispone la ley. Durarán en sus funciones cuatro y podrán ser reelectos.

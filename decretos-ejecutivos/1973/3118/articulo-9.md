@@ -1,0 +1,10 @@
+Artículo 9° Dejará de ser miembro del Consejo.
+a) El que perdiere su ciudadanía costarricense, su capacidad para el cargo o fuere condenado por delito contra la propiedad.
+b) El que se ausentare del país por mas de tres meses sin autorización del Consejo o con ella por más de un año.
+c) El que, por cualquier causa no justificada debidamente, a juicio del Consejo, hubiere dejado de concurrir a tres sesiones ordinarias consecutivas.
+d) El que infringiere alguna de las disposiciones contenidas en las leyes, decretos, reglamentos u otras disposiciones contenidas en las leyes, decretos, reglamentos u otras disposiciones contenidas en las leyes, decretos, reglamentos u otras disposiciones superiores jerárquicas aplicables al objetivo del Consejo o consintiere en su infracción.
+e) El que por incapacidad física o moral no haya podido desempeñar sus funcione durante un año.
+f) El que renunciare a su cargo o se incapacitare legalmente; y
+g) El que fuese destituido por el Poder Ejecutivo por comprobársele, mediante expediente creado al efecto, procederse incorrectos, violatorios de la ley, de sus reglamentos o de las demás disposiciones administrativas superiores aplicables a sus actos.
+En todos estos casos y en el de muerte de un miembro del Consejo, se dará cuenta al Poder Ejecutivo a través del Ministerio de Obras Públicas y Transportes para que proceda a declarar la separación y hacer el reemplazo respectivo, sin que la pérdida de su cargo libere a la persona separa del mismo de la responsabilidad en que hubiere podido incurrir. Si algún miembro del Consejo incurriere e alguna de las causales previstas en este artículo, entre los incisos a) a f) y esto llegará a conocimiento del Ministerio de Obras Públicas y Transportes por cualquier otro medio que no sea el de aquél, éste procederá a informarlo al Poder Ejecutivo el cual podrá a la destitución correspondiente.
+La reposición se hará dentro de los quince días siguientes a aquel en que ocurrió la vacante y el nuevo nombrado, ejercerá el cargo por el resto del periodo legal de su antecesor.

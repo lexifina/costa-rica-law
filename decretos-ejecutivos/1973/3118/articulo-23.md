@@ -1,0 +1,1 @@
+Artículo 23° Cuando por justa causa un miembro del Consejo no pudiere asistir a una sesión, deberá comunicarlo al Secretario del mismo con la anticipación debida, lo cual deberá ser del conocimiento de los demás miembros del Consejo.

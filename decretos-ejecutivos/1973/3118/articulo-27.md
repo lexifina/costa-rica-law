@@ -1,0 +1,1 @@
+Artículo 27° La Dirección General de Aviación Civil sujetará sus actos a lo dispuesto en la ley N°5051 y en las relativas al planeamiento, regulación, control y vigilancia del transporte y tránsito aéreo a cargo del Ministerio de Obras Públicas y Transportes, al presente Reglamento regulador de su gestión y a los demás que dicte y promulgue el Poder Ejecutivo.

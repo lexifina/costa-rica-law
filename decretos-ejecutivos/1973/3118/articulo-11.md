@@ -1,0 +1,1 @@
+Artículo 11° No podrán designarse como miembros del Consejo a quienes estén ligados entre si por parentesco consanguíneo directo o colateral hasta el tercer grado inclusive o por vinculo de afinidad hasta segundo grado inclusive.
