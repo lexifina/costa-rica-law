@@ -1,0 +1,1 @@
+Art. 47 —Un agente especial, que tomará el titulo de Conductor de Trabajos, será encargado de la inspección y conservación de los edificios y obras de arte, bajo las órdenes inmediatas del Ingeniero de Trabajos.

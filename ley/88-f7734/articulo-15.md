@@ -1,0 +1,1 @@
+Art. 15.—El Ingeniero, Jefe de Estudios Técnicos, será nombrado por la secretaría de Fomento; y los dibujantes y expedicionarios lo serán por el Director General, previo un examen sobre aritmética, geometría y dibujo; pero estos empleados no empezarán a funcionar, mientras la Secretaría de Fomento no hubiere impartido su aprobación á los nombramientos.

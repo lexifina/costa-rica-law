@@ -1,0 +1,1 @@
+Art, 6°El personal regular será escogido en cuanto sea posible, de entre los empleados del servicio auxilar, que llenen las condiciones prescritas en este Reglamento, y que hayan hecho una pasantía por la cual se pueda apreciar su actividad y aptitudes.

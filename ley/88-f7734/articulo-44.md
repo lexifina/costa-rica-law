@@ -1,0 +1,1 @@
+Art. 44.— Los ayudantes serán escogidos ente los mandadores más aptos que hayan trabajado lo menos dos años en estos servicios, ó entre los jóvenes que tengan instrucción técnica suficiente y que hayan prestado un año de servicios, por lo menos, en la oficina de Estudios Técnicos de la Dirección. Serán nombrados por el Director.

@@ -1,0 +1,1 @@
+Art. 19.—Todos los trabajos nuevos que deban ejecutarse por cuenta del Gobierno y que demanden un gasto mayor de quinientos pesos, se harán por contrato, previa licitación, y se adjudicará el contrato al que ofrezca ejecutarlo en mejores condiciones para el Gobierno.

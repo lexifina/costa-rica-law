@@ -1,0 +1,1 @@
+Art. 83.—Cuando deba entrar material en el Almacén, el Ingeniero de Trabajos enviará al Jefe del Depósito un detalle del material comprado, con indicación de la cantidad, calidad, precio y dimensiones.

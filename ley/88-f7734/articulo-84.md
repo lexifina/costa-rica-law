@@ -1,0 +1,1 @@
+Art. 84. —El Jefe del Depósito, una vez que haya verificado y anotado en sus libros todo el material que debe entrar en el Almacén, dará recibo al Ingeniero y procederá á almacenarlos cuidadosamente por clases y marcas.

@@ -1,0 +1,1 @@
+Art. 57.-En casos de urgencia y tratándose de reparaciones menores de caminos, edificios y obras de arte, tiene facultad el Director de contratar la ejecución de los trabajos, sin que sea necesaria la formalidad de la adjudicación, pero si la aprobación de la Secretaría de Fomento.
