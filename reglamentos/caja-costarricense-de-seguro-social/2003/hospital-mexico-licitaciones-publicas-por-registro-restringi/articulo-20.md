@@ -1,0 +1,1 @@
+20.—El oferente, sea persona física o jurídica, deberá aportar junto con su oferta copia de la cédula correspondiente y en el caso de personas jurídicas deberá presentarse además copia de la personería jurídica actualizada con no más de 60 días de emitida.

@@ -1,0 +1,1 @@
+14.—Los medicamentos que se compran amparados al artículo Nº 117, de la Ley General de Salud, deberán aportar copia del Certificado de Libre Venta del país de origen y del Certificado de Aprobación de Control de Calidad, emitido por el laboratorio fabricante.

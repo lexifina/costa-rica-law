@@ -1,0 +1,1 @@
+13.—El oferente deberá presentar copia del Certificado de Regencia, extendido por el Colegio de Farmacéuticos de Costa Rica y del Permiso de Operación de la Droguería extendido por el Ministerio de Salud, los cuales deben estar vigentes.
