@@ -3,6 +3,6 @@ Artículo 3º.- Refórmase el segundo párrafo del transitorio IV de la ley núm
 El INFOCOOP deberá girar los recursos que le correspondan de la siguiente manera:
 a) El cincuenta por ciento directamente al Centro de Estudios y Capacitación Cooperativa (CENECOOP), para sus programas de educación y capacitación cooperativa.
 b) El treinta y cinco por ciento (35%) del rendimientofinanciero de los recursos asignados al BANCOOP,mediante fondos de MIDEPLAN, resultantes de una emisiónde bonos autorizados por el artículo 6 de la ley No.6839 del 5 de enero de 1983, se asignará al Programa deCooperativas Juveniles de Producción.
-(Así reformado por el inciso 27 del artículo 61 de la ley Nº 7089 de 28 de diciembre de 1987)
+(Así reformado el inciso anterior por el aparte 27) del artículo 61 de la ley Nº 7089 de 18 de diciembre de 1987)
 c) El doce y medio por ciento a la Editorial Cooperativa, R. L. (EDICOOP, R. L.) con el propósito de desarrollar programas de educación, conjuntamente, con el movimiento sindical y con el solidarista, así como para atender la obligatoriedad de la enseñanza del cooperativismo en todos los centros educativos del país, según la ley Nº 6437 del 15 de mayo de 1980.
 ch) El doce y medio por ciento directamente al Consejo Nacional de Cooperativas (CONACOOP). El INFOCOOP deberá girar, al menos, trimestralmente, todos los porcentajes mencionados."
