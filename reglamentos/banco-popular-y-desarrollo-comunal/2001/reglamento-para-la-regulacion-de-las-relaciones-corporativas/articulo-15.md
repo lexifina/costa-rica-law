@@ -1,1 +1,1 @@
-Artículo 15.—De la elaboración de los presupuestos. La elaboración de los presupuestos de cada Sociedad se llevará a cabo en estrecha coordinación con la Gerencia General del Banco y debe contar con la aprobación de la Junta Directiva de cada Sociedad.
+Articulo 15.—De la elaboración de los presupuestos. La elaboración de los presupuestos de cada Sociedad se llevará a cabo en estrecha coordinación con la Gerencia General del Banco y debe contar con la aprobación de la Junta Directiva de cada Sociedad.

@@ -1,3 +1,2 @@
-Artículo 20.—Vigencia.
-Rige a partir de su publicación en el Diario Oficial. Acuerdo firme.
-San José, 18 de julio del 2001.—Subgerencia de Operaciones.— Hazel Cepeda Hodgson, Subgerente.
+Articulo 19.—De la supervisión de las auditorías. La Auditoria Interna del Banco supervisara y evaluará la labor que lleve a cabo la unidad de Auditoria Interna de cada sociedad. En concordancia con lo anterior examinara los planes, de trabajo anuales y los respectivos informes de labores de forma que su ejecutoria resulte concordante con objetivos corporativos de fiscalización y administración del riesgo en forma integral.
+El Auditor General del Banco fungirá con carácter de Auditor Corporativo y la Auditoría a su cargo podrá realizar las actividades de fiscalización y supervisión que estime necesarias, coordinando las mismas con el Auditor de cada Sociedad Anónima, de manera que se complemente y fortalezca la actividad de vigilancia que lleva a cabo cada Auditoría Interna de las Sociedades Anónimas.
