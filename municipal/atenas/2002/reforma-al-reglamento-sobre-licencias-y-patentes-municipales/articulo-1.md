@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE ATENAS
+La Municipalidad de Atenas acuerda, agregar al Reglamento sobre Licencias y Patentes Municipales, Ley Nº 7546 del 18 de setiembre de 1995, lo siguiente:
+Artículo 42.—El Departamento de Rentas y Cobranzas de la Municipalidad de Atenas, recibirá, tramitará y aprobará las solicitudes de nuevas patentes y licencias, traspasos, traslados de lugar y todo lo que se refiera a patentes, excepto patentes y licencias especiales que previo a contar con la aprobación del Departamento de Rentas y a juicio del citado Departamento requieran ser analizadas por el Consejo y Asesor Legal, estando obligado el Departamento de Rentas a hacer llegar un resumen semanal al Concejo para su inclusión en el Libro de Actas".
+Acuerdo unánime. Publíquese en el Diario Oficial. Artículo XIV. Sección Ordinaria Nº 3 celebrada el 13-5-2002.
