@@ -1,5 +1,5 @@
 CAPÍTULO II
-Derechos de los artístas e intérpretes o ejecutantes
+Derechos de los artistas interpretes o ejecutantes
 ARTÍCULO 5
 Derechos morales de los artistas intérpretes o ejecutantes
 1.- Con independencia de los derechos patrimoniales del artista intérprete o ejecutante, e incluso después de la cesión de esos derechos, el artista intérprete o ejecutante conservará, en lo relativo a sus interpretaciones o ejecuciones sonoras en directo o sus interpretaciones o ejecuciones fijadas en fonogramas, el derecho a reivindicar ser identificado como el artista intérprete o ejecutante de sus interpretaciones o ejecuciones excepto cuando la omisión venga dictada por la manera de utilizar la interpretación o ejecución, y el derecho a oponerse a cualquier deformación, mutilación u otra modificación de sus interpretaciones o ejecuciones que cause perjuicio a su reputación.

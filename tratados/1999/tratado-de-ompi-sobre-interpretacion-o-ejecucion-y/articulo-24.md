@@ -1,5 +1,5 @@
 CAPÍTULO V
-Cláusula administrativas y finales
+Cláusulas administrativas finales
 ARTÍCULO 24
 Asamblea
 1.- a) Las Partes Contratantes contarán con una Asamblea.

@@ -1,4 +1,4 @@
-ARTÍCULO 2
+ARTÍCULO 2°
 Definiciones
 A los fines del presente Tratado, se entenderá por:
 a) "artistas intérpretes o ejecutantes", todos los actores, cantantes, músicos, bailarines u otras personas que representen un papel, canten, reciten, declamen, interpreten o ejecuten en cualquier forma obras literarias o artísticas o expresiones del folclore;
