@@ -13,3 +13,4 @@ Crea Comité de Normas y Asistencia Técnica Industriales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1951-09-21 | la propia norma |
+| 2 | 1952-12-20 | Decreto Ejecutivo 20 (1952-12-20) |
