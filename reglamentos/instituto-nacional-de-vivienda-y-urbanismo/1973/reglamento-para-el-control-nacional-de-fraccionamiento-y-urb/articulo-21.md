@@ -1,1 +1,0 @@
-Articulo 21.—Es entendido que la venta de lotes del fraccionamiento o la urbanización y la construcción en ellos, sólo será permitida si se han ejecutado las obras de urbanización indicadas en el respectivo permiso o, en su lugar, se haya rendido la garantía a que hace referencia el articulo 39 de la ley No. 4240.

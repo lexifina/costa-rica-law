@@ -1,4 +1,0 @@
-Artículo 12.—El plazo para resolver afirmativa o negativamente el visado no excederá de un mes, vencido el cual, sin haberse producido resolución alguna, se considerarán aprobados tanto la solicitud referida como los planos. La misma regla regirá para el caso de variaciones o correcciones que se introduzcan al proyecto original, a partir de la presentación de los planos corregidos.
-El visado tendrá una vigencia de dos anos, por lo que, si no se han ejecutado las obras dentro de ese plazo, el fraccionador o urbanizador deberá solicitar la renovación del mismo en el curso del último trimestre de su vigencia.
-La resolución sobre prórroga por otro período igual podrá condicionarse o denegarse, según sea el caso, con fundamento en el articulo 35 de la ley NQ 4240. El término para resolver será el indicado en el artículo 12.
-Expirada la vigencia del visado, el interesado deberá cumplir con los requisitos de una nueva solicitud.

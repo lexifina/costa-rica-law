@@ -1,3 +1,0 @@
-Artículo 18.—La aceptación de las obras y de las áreas públicas se efectuará conforme a las disposiciones reglamentarias que tengan en vigor la municipalidad del cantón y los demás organismos públicos que al respecto ejerzan funciones de control.
-Ninguna omisión de detalles en los planos aprobados, libera al urbanizador y al profesional responsable de las obligaciones que les conciernen en cuanto a la total y satisfactoria entrega de las obras, al tenor de lo establecido en el respectivo reglamento .
-El urbanizador y el profesional responsable que firman la solicitud de visación de los planos de construcción, son garantes de la estricta conformidad de las obras con los requisitos reglamentariamente exigibles, conforme a lo prescrito en las leyes aplicables.

@@ -1,1 +1,0 @@
-Artículo 22.—El nombre propuesto para una urbanización y sus calles no deberá ser igual ni parecido a otro desarrollo dentro de la circunscripción cantonal en donde esté localizada. La función denominativa de la municipalidad del cantón, está limitada por la atribuida a la Comisión de Nomenclatura, en los casos contemplados en la ley No. 3535 del 3 de agosto de 1965.

@@ -1,4 +1,0 @@
-Articulo 8—Dentro de los quince días hábiles posteriores a su presentación, el Instituto deberá emitir criterio sobre la consulta del plano preliminar sugiriendo en un caso las modificaciones necesarias.
-La consulta del plano preliminar, constituye un servicio de mera orientación para el interesado, previo a la presentación de los planos de construcción y, por lo tanto, no autoriza al urbanizador para ejecutar obras o proceder a la venta de lotes.
-En uso de sus facultades legales, el INVU podrá rectificar su criterio provisional de orientación en casos de excepción justificada.
-El criterio de orientación favorable, incluyendo las sugerencias, deberá ser revisado mediante nueva solicitud si dentro de los seis meses siguientes a la fecha de aprobación del plano preliminar no se hubieren presentado los planos de construcción.

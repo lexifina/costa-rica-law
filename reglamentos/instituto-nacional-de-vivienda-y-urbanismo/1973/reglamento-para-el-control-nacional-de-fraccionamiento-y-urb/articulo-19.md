@@ -1,2 +1,0 @@
-Artículo 19.—Del área total a fraccionar o urbanizar, deberá cederse gratuitamente para vías, parques y facilidades comunales, el porcentaje que corresponda, según el tamaño promedio de los lotes, el uso que se pretenda dar al terreno y las normas señaladas en este Reglamento, todo conforme a lo prescrito en el artículo 40 de la ley No 4240.
-El traspaso de las áreas correspondientes a calles y demás espacios de uso general podrá tener efecto sin la formalidad de escritura pública, de acuerdo con lo previsto en el artículo 44 de la ley No. 4240.

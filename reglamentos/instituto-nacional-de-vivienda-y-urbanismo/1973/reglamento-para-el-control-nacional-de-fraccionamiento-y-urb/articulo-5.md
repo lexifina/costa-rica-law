@@ -1,2 +1,0 @@
-Articulo 5—Las reglas del presente Reglamento se interpretarán y aplicarán en armonía con los sentidos y alcances de las disposiciones contenidas, por su orden, en la Ley de Planificación Urbana, de Erradicación de Tugurios y Defensa de sus Arrendatarios y la de Construcciones.
-(Así ampliado por el artículo 1 del Reglamento aprobado por la Junta Directiva del Instituto Nacional de Vivienda y Urbanismo en Sesión No. 3332 de 26 de abril de 1982, Anexo 4.)

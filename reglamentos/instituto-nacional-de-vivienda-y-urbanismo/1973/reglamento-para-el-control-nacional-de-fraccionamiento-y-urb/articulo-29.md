@@ -1,1 +1,0 @@
-Articulo 29.—La aplicación de las normas mínimas ha de corresponder en forma integral al interés social de reducir, en lo posible, el costo de la vivienda popular destinada a familias de bajos ingresos.
