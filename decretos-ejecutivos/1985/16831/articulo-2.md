@@ -1,0 +1,1 @@
+Artículo 2°.-El Instituto tendrá a su cargo los servicios de formación y rehabilitación de las personas ciegas adultas. Subsidiariamente atenderá a los adolescentes entre los dieciséis y dieciocho años, que procedan de algún programa residencial o integrado con clasificación de ceguera o deficiencia visual, de conformidad con las disposiciones jurídicas respectivas.
