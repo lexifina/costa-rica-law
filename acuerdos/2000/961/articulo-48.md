@@ -1,0 +1,1 @@
+Artículo 48.—La Unidad de Mantenimiento es la encargada de contratar la empresa que brindará el servicio, siempre y cuando el monto no supere la cantidad máxima de caja chica en efectivo (ver artículo 44 de este manual).

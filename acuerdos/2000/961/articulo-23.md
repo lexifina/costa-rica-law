@@ -1,0 +1,1 @@
+Artículo 23.—La Unidad de Mantenimiento enviará, cada semana, una copia del informe semanal de entradas y salidas (fórmula No 040) a la Unidad de Control de Bienes Muebles del Departamento de Proveeduría, con el fin de colaborar en el control de los activos propiedad de la Asamblea Legislativa.

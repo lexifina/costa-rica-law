@@ -1,0 +1,1 @@
+Artículo 40.—Una vez valorado el costo de la reparación. La empresa debe presentar la factura proforma a la Unidad de Mantenimiento. Esta factura debe indicar los datos consignados en la fórmula "Control de salida de bienes" así como cualquier otro detalle necesario para describir el bien. Este proceso no debe demorar más de veinticuatro (24) horas.

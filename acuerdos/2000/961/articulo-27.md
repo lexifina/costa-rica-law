@@ -1,0 +1,1 @@
+Artículo 27.—La empresa deberá atender el reporte en un tiempo máximo de cuatro (4) horas, desde el momento en que la Unidad de Mantenimiento reporta el equipo defectuoso hasta que la empresa se presenta en la oficina donde se encuentra el activo reportado.

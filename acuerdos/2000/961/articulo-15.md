@@ -1,0 +1,1 @@
+Artículo 15.—La Unidad de Mantenimiento no dará su visto bueno a la cancelación de facturas o giros de dinero por contratos de mantenimiento, hasta tanto los equipos atendidos no hayan sido recibidos a satisfacción por el usuario, igualmente se procederá cuando se refiera a reparaciones no cubiertas por el contrato.

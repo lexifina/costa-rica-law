@@ -1,0 +1,1 @@
+Artículo 2°—Todo funcionario de la Asamblea Legislativa que no acate las disposiciones establecidas en este procedimiento, le serán aplicadas las sanciones que correspondan, según el Reglamento Interior de Trabajo de la Asamblea Legislativa y el Manual de Normas y Procedimientos para la Administración y Control de Bienes Muebles.

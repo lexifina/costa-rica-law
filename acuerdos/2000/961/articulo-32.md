@@ -1,0 +1,1 @@
+Artículo 32.—La Unidad de Mantenimiento será la responsable de velar porque los activos que salen de la institución para ser reparados, ingresen oportunamente. En caso de incumplimiento por parte de la empresa, el Encargado de mantenimiento de Equipos deberá tomar las medidas pertinentes.

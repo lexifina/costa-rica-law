@@ -1,0 +1,1 @@
+Artículo 12.—Es requisito indispensable que la empresa o la persona que prestó el servicio entregue la fórmula No 001 "Servicio de Reparación", con todos los datos que ahí se solicitan, en sus secciones denominadas "Evaluación del trabajo" y "Trabajo realizado", a fin de que el Departamento Financiero gire los pagos correspondientes.

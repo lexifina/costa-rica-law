@@ -1,0 +1,2 @@
+Artículo 44.—Esta Unidad será la responsable de recomendar y de remitir al Departamento de Servicios Generales la información, a efecto de que decida cuál es la mejor oferta y proceda a remitir la adjudicación al Departamento de Proveeduría para su trámite correspondiente.
+Cuando la reparación tenga un costo inferior al monto máximo a pagar por caja chica en efectivo, la Unidad de Mantenimiento buscará un proveedor determinado para que realice la reparación.

@@ -1,0 +1,3 @@
+Artículo 51.—La empresa será responsable de entregar las prendas o persianas en el mismo lugar donde las retiró y no demorarse más de cuatro (4) días en la entrega. La persona que requirió el servicio revisará que el trabajo realizado sea satisfactorio y lo asentirá con su firma.
+De percatarse que el trabajo no es idóneo, lo informará de inmediato a la Unidad de Mantenimiento y la empresa deberá llevársela nuevamente.
+De comprobarse que la ropa fue deteriorada por la empresa, deberá reponerla. En el caso de cortinas y persianas, se considera que es parte del servicio desinstalarlas y reinstalarlas.

@@ -1,0 +1,1 @@
+Artículo 10.—La empresa cumplirá con los procedimientos de control de entrada y salida de los bienes establecidos por la Unidad de Mantenimiento, quien podrá modificar el procedimiento cuando así lo considere necesario. Los cambios que efectúe los deberá comunicar, por escrito, a la empresa, a más tardar ocho (8) días hábiles antes de que entren en vigencia.

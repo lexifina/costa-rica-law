@@ -1,0 +1,1 @@
+Artículo 39.—En caso de que la empresa cobre sus sen icios para valorar el equipo, deberá presentar una factura refrendada por la Unidad de Mantenimiento y seguir el proceso establecido por el Departamento Financiero en estos casos.

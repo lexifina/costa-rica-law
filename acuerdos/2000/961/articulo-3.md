@@ -1,0 +1,1 @@
+Artículo 3°—Todo trabajo de mantenimiento, reparación o modificación de bienes muebles, excepto los equipos de cómputo o redes de datos los cuales serán responsabilidad del Departamento de Informática, deberán tramitarse sin excepción, por medio de la Unidad de mantenimiento, que dará su autorización previo a que se proceda a realizar el trabajo y los trámites correspondientes.

@@ -1,0 +1,1 @@
+Artículo 43.—Si el costo de la reparación supera el monto máximo de pago por caja chica, será necesario que el Departamento de Proveeduría cotice el trabajo por lo menos con tres empresas diferentes y remita las cotizaciones a la Unidad de Mantenimiento, conforme lo establece la Ley de Contratación Administrativa vigente.

@@ -1,0 +1,1 @@
+Artículo 18.—Cuando el tamaño, peso u otras circunstancias provoque que el equipo deba salir o entrar por otro punto de acceso, la Unidad de Mantenimiento indicara en la fórmula No 005 "Control de Salida de Bienes", por cuál de los puestos de seguridad puede salir el equipo. Para ingresar nuevamente el equipo, se debe utilizar el puesto por donde salió.

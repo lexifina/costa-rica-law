@@ -1,0 +1,1 @@
+Artículo 6°—El mantenimiento correctivo consiste en la reparación del equipo cada vez que falle. Cada activo deberá tener un registro individual en el que se indique el tipo de problema y las soluciones que se aplicarán en cada caso.

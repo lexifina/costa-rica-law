@@ -1,0 +1,1 @@
+Artículo 37.—La empresa debe atender el reporte en un tiempo máximo de cuatro (4) horas, desde el momento en que la Unidad de Mantenimiento reportó el equipo dañado hasta que esta se presenta en la oficina donde se encuentra el activo.

@@ -1,0 +1,1 @@
+Artículo 13.—Para la cancelación de facturas por servicios de mantenimiento, será necesario el visto bueno del Encargado de Mantenimiento de Equipos de la Unidad de Mantenimiento, quien verificara que no se haya omitido ningún paso del procedimiento y confeccionará la fórmula No 041 "Boleta de Inspección".

@@ -1,0 +1,1 @@
+Artículo 19.—Cada activo tendrá una fórmula "Control de salida de bienes" y no se aceptarán fórmulas colectivas. En caso de que se detecte alguna anomalía, cambio o dato incorrecto, se deberá reportar de inmediato a la Unidad de Mantenimiento.

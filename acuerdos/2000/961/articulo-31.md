@@ -1,0 +1,2 @@
+Artículo 31.—El representante de la empresa debe llenar la sección denominada "Trabajo realizado" de la fórmula No 001 "Servicio de reparación" e indicar a la Unidad de Mantenimiento, las partes sustituidas en el activo, las cuales deberá entregarle junto con la fórmula debidamente llena.
+Asimismo, deberá entregar el equipo reparado en un plazo máximo de setenta y dos (72) horas; sin embargo, si se demorara más, la empresa deberá justificarlo por escrito a la Unidad de Mantenimiento.

@@ -1,0 +1,1 @@
+Artículo 50.—Para regresar la ropa, la empresa deberá presentar al agente de seguridad de tumo la copia "Control de Salida de Bienes". El oficial debe corroborar los datos consignados y completar la fórmula No 003 "Control de Entrada de Bienes", posteriormente adjuntará la copia de la fórmula "Control de Salida de Bienes", para enviarlas a la Unidad de Mantenimiento.
