@@ -1,0 +1,1 @@
+Artículo 2°—La persona o personas que firmen un título otorgado por escuela o colegio no autorizados o cuya autorización haya cancelado la Secretaría de Educación Pública, incurrirán en una multa de quinientos a mil colones. La reincidencia hará obligatoria la imposición del máximum de esa pena.

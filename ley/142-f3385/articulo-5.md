@@ -1,0 +1,2 @@
+Artículo 5°—Ningún establecimiento de educación particular podrá entregar títulos a sus alumnos, si tales títulos no están registrados en un libro especial que al efecto llevará la Inspección de Escuelas y Colegios Particulares.
+En la inscripción se harán constar la escuela o colegio que expida el título, el nombre de los funcionarios que lo autorizan, la especialidad a la cual corresponde, el nombre del graduado, la fecha del otorgamiento y el número de orden del registro.
