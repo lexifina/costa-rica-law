@@ -1,0 +1,1 @@
+Artículo 2°-Las existencias de arroz, frijoles y maíz, al momento de publicarse este decreto, en poder de mayoristas y detallistas, en su totalidad deberán ser vendidas a los precios que regían anteriormente.
