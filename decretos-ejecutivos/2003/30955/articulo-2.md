@@ -1,0 +1,2 @@
+Artículo 2º—Todo funcionado público que reciba órdenes judiciales con el fin de realizar retenciones y depósitos por concepto de salario escolar deberá tramitarlo de forma prioritaria sobre cualquier otra obligación que tenga el deudor alimentario y con la mayor celeridad. En caso de incumplimiento, se aplicará lo establecido en el artículo 62 de la Ley de Pensiones Alimentarias;
+Dado en la Presidencia de la República.—San José, a los trece días del mes de enero del dos mil tres.
