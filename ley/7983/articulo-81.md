@@ -1,5 +1,5 @@
 SECCIÓN II
-Reformas de la Ley Reguladora del Mercado de Valores, N°7732
+Reformas de la Ley Reguladora del Mercado de Valores, No. 7732
 ARTÍCULO 81.- Reforma de la Ley No. 7732. Refórmanse los artículos 8 y 171, de la Ley Reguladora del Mercado de Valores, No. 7732, de 17 de diciembre de 1997. Los textos dirán:
 "Artículo 8.-
 Atribuciones del Superintendente. Al Superintendente le corresponderán las siguientes atribuciones:

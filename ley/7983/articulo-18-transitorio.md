@@ -1,0 +1,1 @@
+TRANSITORIO XVII.- Sobre el primer traslado del ahorro del Banco Popular a las cuentas individuales del Régimen Obligatorio de Pensiones Complementarias establecido en el inciso a) del artículo 13 de esta ley, no se le aplicarán los límites establecidos en el párrafo final de dicho artículo.

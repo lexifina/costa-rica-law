@@ -1,0 +1,1 @@
+TRANSITORIO XV.- Para los afiliados a un plan colectivo o individual de fideicomiso, que deseen participar en el Régimen Voluntario de Pensiones Complementarias y Ahorro Voluntario, trasladando la totalidad o parte de los recursos acumulados en el fideicomiso, se les respetará la antigüedad acumulada y las demás condiciones establecidas en los contratos respectivos.

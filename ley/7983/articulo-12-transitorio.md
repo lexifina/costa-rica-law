@@ -1,0 +1,1 @@
+TRANSITORIO XI.- En tanto no exista un órgano regulador y supervisor en materia de seguros, la Superintendencia se encargará de aprobar los contratos que se celebren entre las operadoras y las compañías aseguradoras autorizadas.
