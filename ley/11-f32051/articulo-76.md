@@ -1,0 +1,1 @@
+Artículo 76.- Todos los avisos, reglamentos, formularios, comunicaciones, guías y demás documentos que tienen relación con el público destinados á el, deberán ser redactados en idioma español. El mismo idioma deberán hablarlo todos los empleados que estén en contacto directo con el público.

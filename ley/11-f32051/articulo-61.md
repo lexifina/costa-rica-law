@@ -1,0 +1,1 @@
+Artículo 61.- Cuando un ferrocarril deba cruzar por encima de un camino público ó vecinal, la Empresa deberá construir un puente sólido en una longitud equivalente por lo menos al ancho del camino y á una altura mínima de tres metros.

@@ -1,0 +1,3 @@
+Artículo 49.-El viajero que no presente el billete que le da derecho á ocupar un asiento en los trenes, ó que teniéndolo de clase inferior, ocupe uno de la superior pagará cincuenta céntimos de colón además del precio, según tarifa.
+Si el viajero va más allá del punto indicado por su billete, abonará sólo lo no pagado, si hubiere avisado al conductor, en caso contrario pagará el doble de precio de lo recorrido sin billete.
+Si por falta de carros ocupare un asiento en clase superior, nada pagará de diferencia; pero si ocupare una clase inferior, el conductor por cuenta de la Empresa deberá devolverle el exceso pagado. Esa devolución ha de hacerse antes de llegar al punto de destino del viajero.

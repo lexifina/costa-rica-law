@@ -1,0 +1,1 @@
+Artículo 64.-Cuando dos líneas férreas pertenecientes á diferentes Empresas, hayan de conectarse y hayan de usar de la misma vía, en cualquier extensión de ella, las dos Empresas deberán entenderse previamente, por escrito y con intervención del Ministerio de Fomento, sobre la manera de hacer el servicio de conexión y pago de las recíprocas indemnizaciones á que hubiere lugar.

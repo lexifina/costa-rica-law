@@ -1,0 +1,1 @@
+Artículo 35.-Los inspectores del Gobierno no podrán, sin autorización de éste, recibir comisiones de ninguna Empresa aunque sea diferente de aquella en que ejercen sus funciones, ni recibir de ellas sueldos, emolumentos, gratificaciones ó pagos, ni hacer con ellas contrato alguno.

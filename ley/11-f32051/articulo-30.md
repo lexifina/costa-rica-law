@@ -1,0 +1,1 @@
+Artículo 30 -Ninguna Empresa de ferrocarril podrá directa ó indirectamente comprar ó arrendar, ni celebrar contrato alguno como consecuencia del cual adquiera ó tenga preponderancia en la propiedad el manejo, la administración ó inspección de otra línea construida ó en vía de construcción.

@@ -1,0 +1,1 @@
+Artículo 45.- Durante la marcha de un tren, los pasajeros y empleados del mismo, están bajo la autoridad del conductor, pero tienen su derecho á salvo para reclamar contra éste cuando se le atribuyan actos arbitrarios ó maliciosos.

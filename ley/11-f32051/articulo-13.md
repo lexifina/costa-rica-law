@@ -1,0 +1,1 @@
+Artículo 13.-EI Gobierno de la República no podrá tampoco comprar un ferrocarril ó entrar en negociaciones con una Empresa para rescindir el convenio de concesión, sin que medie autorización legislativa especial.

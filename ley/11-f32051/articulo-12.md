@@ -1,0 +1,1 @@
+Artículo 12.-Las acciones, obligaciones ó bonos emitidos por la Empresa y que fueren adquiridos por un Gobierno ó Estado extranjero, desde el momento de esa adquisición) quedarán sin efecto ni valor alguno para el tenedor de ellos, perdiendo éste, en beneficio de la Nación, todos los derechos correspondientes á las expresadas acciones, obligaciones ó bonos.

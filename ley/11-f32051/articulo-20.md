@@ -1,0 +1,1 @@
+Artículo 20.-EI depósito constituido garantiza el cumplimiento de las obligaciones contraídas por el concesionario y se devolverá á éste cuando estén totalmente concluidas las obras objeto de la concesión.

@@ -1,0 +1,1 @@
+Artículo 56.-Las empresas de ferrocarril están sometidas en cuanto á responsabilidad por el trasporte de viajeros ó mercancías, á las leyes comunes referentes á porteadores terrestres. Deberán trasportar la mercancía en el tiempo convenido, indemnizarán las averías que ocurran en los efectos y pagarán el valor de los que se extraviaren.
