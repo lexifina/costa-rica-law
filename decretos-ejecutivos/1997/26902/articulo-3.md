@@ -1,0 +1,1 @@
+Artículo 3°—Si es solicitado por el comprador, el fabricante debe proveer un certificado de conformidad, extendido por un ente debidamente acreditado, de que todos los materiales entregados cumplen con los requisitos del presente reglamento técnico.

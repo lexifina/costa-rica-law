@@ -1,0 +1,2 @@
+Artículo 2°—Por acuerdo entre fabricante y consumidor se podrán suministrar tubos con diámetros internos que no corresponden a los de la tabla 2, siempre y cuando cumpla con los valores de rigidez estipulados en la tabla 1.
+El productor debe especificadas en las indicaciones de fabricación, el tipo de perfil (por ejemplo adentro liso, afuera con perfil o adentro y afuera liso y el perfil dentro del espesor de la pared).
