@@ -1,0 +1,1 @@
+Artículo 4°-Los acuerdos se tomarán por simple mayoría de votos, ya sea, en reunión ordinaria o extraordinaria. Las reuniones ordinarias serán una vez a la semana, y las extraordinarias cuando su presidente las convoque o tres de sus miembros.

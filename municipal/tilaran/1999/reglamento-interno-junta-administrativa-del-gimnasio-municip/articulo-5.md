@@ -1,0 +1,1 @@
+Artículo 5°-La Junta tendrá derecho a recaudar fondos para el mantenimiento del gimnasio y rendirá informes contables y administrativos trimestrales al Concejo Municipal con copia al Comité Cantonal de Deportes.

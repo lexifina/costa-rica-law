@@ -1,0 +1,1 @@
+Artículo 27.-EI empresario queda obligado a abrir las puertas de salida para la evacuación del recinto en el menor tiempo posible, ya sea porque finalice la actividad o por otras razones. La Junta no será responsable por accidentes que ocurran por negligencia en apertura de los puertas o cualquier otro motivo.

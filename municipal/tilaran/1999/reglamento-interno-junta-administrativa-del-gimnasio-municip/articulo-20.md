@@ -1,0 +1,1 @@
+Artículo 20.-EI empresario se compromete a recurrir a la fuerza pública para mantener el orden en las instalaciones del recinto, con un mínimo de un guarda. Mientras el guarda no se presente no se abrirá el recinto cedido.

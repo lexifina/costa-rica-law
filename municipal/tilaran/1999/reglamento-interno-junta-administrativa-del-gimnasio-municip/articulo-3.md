@@ -1,0 +1,2 @@
+Artículo 3°-lnc. a) Forman esta junta, cinco miembros mayores de edad, representantes de distintas instituciones u organizaciones; de ellos uno será representante de la Municipalidad y otro del Comité Cantonal de Deportes. La Junta designará por elección de su propio seno, el presidente, vicepresidente, secretario, tesorero, vocal.
+Inc. b) La Junta Administrativa será nombrada por un período de dos años y sus miembros pueden ser reelectos. La elección se realizará en el mes de enero.

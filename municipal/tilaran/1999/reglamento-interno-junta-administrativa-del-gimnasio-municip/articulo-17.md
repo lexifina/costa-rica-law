@@ -1,0 +1,1 @@
+Artículo 17.-EI empresario deberá depositar a la tesorería de la Junta un monto equivalente al valor del salario mínimo establecido por ley por concepto de limpieza del recinto. El depósito se hará en efectivo al firmar el contrato.

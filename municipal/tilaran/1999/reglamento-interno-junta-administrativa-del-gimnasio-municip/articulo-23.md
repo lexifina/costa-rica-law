@@ -1,0 +1,1 @@
+Artículo 23.-La Junta, por medio de su guarda o uno de sus miembros, levantará actas en el momento de entregar el recinto, de igual manera a la hora de recibirlo. Ambas firmadas por el empresario y el autorizado de la Junta.
