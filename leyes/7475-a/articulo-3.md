@@ -1,0 +1,7 @@
+Artículo III
+Funciones de la OMC
+1.- La OMC facilitará la aplicación, administración y funcionamiento del presente Acuerdo y de los Acuerdos Comerciales Multilaterales y favorecerá la consecución de sus objetivos, y constituirá también el marco para la aplicación, administración y funcionamiento de los Acuerdos Comerciales Plurilaterales.
+2.- La OMC será el foro para las negociaciones entre sus Miembros acerca de sus relaciones comerciales multilaterales en asuntos tratados en el marco de los acuerdos incluidos en los Anexos del presente Acuerdo. La OMC podrá también servir de foro para ulteriores negociaciones entre sus Miembros acerca de sus relaciones comerciales multilaterales, y de marco para la aplicación de los resultados de esas negociaciones, según decida la Conferencia Ministerial.
+3.- La OMC administrará el Entendimiento relativo a las normas y procedimientos por los que se rige la solución de diferencias (denominado en adelante "Entendimiento sobre Solución de Diferencias" o "ESD") que figura en el Anexo 2 del presente Acuerdo.
+4.- La OMC administrará el Mecanismo de Examen de las Políticas Comerciales (denominado en adelante "MEPC") establecido en el Anexo 3 del presente Acuerdo.
+5.- Con el fin de lograr una mayor coherencia en la formulación de las políticas económicas a escala mundial, la OMC cooperará, según proceda, con el Fondo Monetario Internacional y con el Banco Internacional de Reconstrucción y Fomento y sus organismos conexos.
