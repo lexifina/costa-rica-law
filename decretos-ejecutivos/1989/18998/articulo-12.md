@@ -1,3 +1,1 @@
-Artículo 12.- El Consejo Nacional de Desarrollo de la Comunidad,
-nombrará un secretario ejecutivo para la atención y tramitación de los
-asuntos internos, quien estará al servicio del presidente del Consejo.
+ARTICULO 12.- El Consejo Nacional de Desarrollo de la Comunidad, nombrará un secretario ejecutivo para la atención y tramitación de los asuntos internos, quien estará al servicio del presidente del Consejo.

@@ -1,5 +1,1 @@
-Artículo 10.- En el caso de desintegración del Consejo, por muerte,
-renuncia o pérdida de titularidad de alguno o alguno de sus miembros, el
-Poder Ejecutivo solicitará, en un plazo no mayor de ocho días, a las
-organizaciones ahí representadas, las ternas para la sustitución de esos
-miembros.
+ARTICULO 10.- En el caso de desintegración del Consejo, por muerte, renuncia o pérdida de titularidad de alguno o alguno de sus miembros, el Poder Ejecutivo solicitará, en un plazo no mayor de ocho días, a las organizaciones ahí representadas, las ternas para la sustitución de esos miembros.

@@ -14,3 +14,4 @@ Reglamento de la Ley sobre el Desarrollo de la Comunidad (1989)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-09 | la propia norma |
+| 2 | 1989-06-09 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,1 @@
-Artículo 21.- Reunido el vecindario en asamblea, en el día, hora y
-lugar determinados, el representante de la Dirección procederá a
-verificar si el número de asistentes forma quórum para la asamblea y en
-caso afirmativo, la declarará instalada y en funciones.
+ARTICULO 21.- Reunido el vecindario en asamblea, en el día, hora y lugar determinados, el representante de la Dirección procederá a verificar si el número de asistentes forma quórum para la asamblea y en caso afirmativo, la declarará instalada y en funciones.
