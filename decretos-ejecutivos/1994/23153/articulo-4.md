@@ -1,0 +1,1 @@
+Artículo 4º.-Los terrenos de particulares existentes en este Parque Nacional se considerarán parte del mismo, cuando el Estado los adquiera, mientras ésto no ocurra, los propietarios gozarán de todos los atributos de dominio.
