@@ -1,0 +1,3 @@
+Artículo 2°—Agrégase al artículo 9° del decreto No 9306-G, el texto siguiente como párrafo No 3:
+"Las parcelas así delimitadas serán adjudicadas por la comunidad indígena correspondiente, representada por su Asociación de Desarrollo Integral, a sus nuevos ocupantes indígenas, en forma definitiva, con asesoría y la Dirección de la Sección de Asuntos Indígenas del I.T.CO.
+La escritura de adjudicación llevará la firma del Presidente de Comisión de Emergencia Nacional, del Jefe de la Sección de Asuntos Indígenas del I.T.C.O., así como las firmas del Presidente y de cuatro miembros más de la Junta Directiva de la Asociación de Desarrollo de la Reserva Indígena, que deberán reconocer en el campo los linderos de las parcelas adjudicadas".
