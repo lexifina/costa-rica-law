@@ -1,5 +1,3 @@
-COMITE DE SELECCION
-Artículo 20.- El Comité de Selección estará integrado:
-a) Por el Presidente y Secretario del Consejo Directivo;
-b) Por cuatro miembros que escogerá el Consejo Directivo de seis candidatos que propondrá la Asamblea, siendo sus suplentes los dos no escogidos.
-Cuando por la índole de la obra del Comité de Selección lo considere necesario, podrá asesorarse con no más de tres personas de reconocida capacidad en la materia. En este caso, informará al Consejo Directivo para que nombre los asesores propuestos, quienes completarán, como miembros ad hoc, dicho Comité.
+Del Administrador General
+Artículo 20.- Habrá un gerente que desempeñará las funciones ejecutivas de la Editorial, quien tendrá la representación legal, judicial y extrajudicial de la Institución, con carácter de apoderado general.
+(Así reformado por el artículo 1º de la Ley Nº 7047 de 7 de octubre de 1986).

@@ -1,2 +1,2 @@
-Artículo 16.- Los miembros del Consejo Directivo serán designados para un período de un año y podrán ser reelectos.
-Los nombramientos de los miembros del Consejo que deban sustituir a los que hayan cumplido su período, deberán hacerse dentro de los treinta días anteriores al vencimiento de tal período, en la forma prevista.
+Artículo 16.- Los miembros del Consejo Directivo serán nombrados por un período de tres años y podrán ser reelegidos. El nombramiento de los miembros del Consejo que deban sustituir a los que hayan cumplido su período, deberá hacerse en la forma prevista, dentro de los treinta días anteriores al vencimiento del período respectivo.
+(Así reformado por el artículo 1º de la Ley Nº 7047 de 7 de octubre de 1986).
