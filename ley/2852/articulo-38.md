@@ -1,0 +1,1 @@
+Artículo 38.- Toda planta o producto vegetal o artículos con material de empaque que ingrese al país contraviniendo las disposiciones de esta ley, o sus reglamentos, serán destruidos o reembarcados por cuenta de los interesados, sin que ello dé lugar a reclamo alguno .

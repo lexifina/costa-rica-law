@@ -1,0 +1,1 @@
+Artículo 21 .-.El peritazgo a que se refiere el artículo anterior, se consignará en la forma más amplia del caso, en acta notarial que levantará el notario público que a solicitud del Ministerio designe la Procuraduría General de la Republica. Dicho peritazgo tendrá el carácter de definitivo.

@@ -1,0 +1,1 @@
+Artículo 49.- El Ministerio Señalará que especies de animales o plantas son beneficiosas en la lucha contra las plagas o enfermedades agrícolas a fin de tomar las medidas adecuadas para su protección y propagación.
