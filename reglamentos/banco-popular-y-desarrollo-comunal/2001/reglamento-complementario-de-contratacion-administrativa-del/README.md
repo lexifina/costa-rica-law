@@ -14,3 +14,4 @@ Reglamento Complementario de Contratación Administrativa del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-06 | la propia norma |
+| 2 | 2002-06-11 | Reglamento 4010 (2002-06-11) |
