@@ -1,1 +1,0 @@
-Artículo 10.- Las entidades públicas no estatales o privadas que se constituyan legalmente para cumplir finalidades de interés cantonal sólo podrán ejecutar obras de interés o servicios públicos con la aprobación del Concejo Municipal o mediante concierto con la corporación.

@@ -1,3 +1,0 @@
-Artículo 15.- Los convenios de coparticipación tienen fuerza de ley entre las municipalidades participantes y requerirán, para su eficacia, la aprobación de la Contraloría General de la República, la cual se pronunciará dentro del mes siguiente de recibido el convenio. Si vencido este término no se hubiere producido la resolución, el convenio respectivo se tendrá por aprobado.
-En caso de que estos convenios impliquen la creación de un organismo diferente al que las partes contratantes representan, requerirán, además, la aprobación de la Asamblea Legislativa.
-(Así reformado por el artículo 1º de la ley Nº 6890 de 14 de septiembre de 1983).

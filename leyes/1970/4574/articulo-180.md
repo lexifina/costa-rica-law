@@ -1,2 +1,0 @@
-Artículo 180.- Contra todo acto no emanado del Concejo y que no fuere de materia laboral, cabrá recurso extraordinario de revisión, cuando no se hubieren establecido oportunamente los recursos que facultan los artículos precedentes de este Capítulo, siempre que no hubieren transcurrido cinco años de dictado el acto y éste no hubiere agotado totalmente sus efectos, a fin de que el acto no surta o siga surtiendo efectos.
-El recurso se interpondrá ante el Concejo y éste lo acogerá sólo si el acto fuere absolutamente nulo.

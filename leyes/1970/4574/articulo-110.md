@@ -1,1 +1,0 @@
-Artículo 110.- Las compras en que el precio deba cubrirse en todo o en parte con fondos de futuros períodos fiscales, estarán sujetas a las disposiciones de este capítulo en lo pertinente, aunque sólo requerirá autorización de la Contraloría General de la República.

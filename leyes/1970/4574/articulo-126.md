@@ -1,1 +1,0 @@
-Artículo 126.- Contra los acuerdos municipales que aprueben presupuestos ordinarios o extraordinarios o sus modificaciones ampliaciones, el Ejecutivo Municipal podrá formular las observaciones que estime pertinentes, las que se remitirán a la Contraloría General de la República conjuntamente con el proyecto acordado.

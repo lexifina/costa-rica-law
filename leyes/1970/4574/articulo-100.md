@@ -1,2 +1,0 @@
-Artículo 100.- La licencia a que se refiere el artículo 98 sólo podrá suspenderse por falta de pago de dos a más trimestres, o por cumplimiento de los requisitos que exigen las leyes para el desarrollo de la respectiva actividad, o cuando se compruebe que el patentado ha infringido los incisos 1) y 2) del artículo 400 del Código Penal.
-(Así reformado por el artículo 61 de la Ley 7089 de 18 de diciembre de 1987 )

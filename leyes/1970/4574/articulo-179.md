@@ -1,1 +1,0 @@
-Artículo 179.- Las decisiones de los funcionarios que no dependan directamente del Concejo tendrán los recursos de revocatoria y de apelación, dentro de un plazo de cinco días, para ante el Ejecutivo; podrán estar fundados en motivos de ilegalidad o inoportunidad y suspenderán la ejecución del acto.

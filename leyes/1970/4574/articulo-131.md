@@ -1,2 +1,0 @@
-Artículo 131.- El superávit libre de los presupuestos extraordinarios se dedicará en primer término a conjugar el déficit del presupuesto ordinario, y en segundo término podrá presupuestarse para atender obligaciones de carácter ordinario o para inversiones.
-El superávit específico de los presupuestos extraordinarios se presupuestará para atender el cumplimiento de los fines específicos correspondientes.

@@ -1,1 +1,0 @@
-Artículo 129.- Con el informe de ejecución de presupuestos ordinarios y extraordinarios al 31 de diciembre, la Contraloría General de la República realizará las liquidaciones correspondientes, las que deberán estar aprobadas y enviadas a la respectiva municipalidad a más tardar el 31 de marzo.

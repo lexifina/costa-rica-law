@@ -1,2 +1,0 @@
-Artículo 128.- El Ejecutivo confeccionará diariamente una nómina de las órdenes de pago que extienda, en la que anotará el número de cada orden, su monto, la persona en favor de quien se extiende, y la subpartida contra la cual se hará el cargo.
-Dos copias de esa nómina se remitirán diariamente al Auditor o Contador, quien enviará también cada día al Tesorero una de esas copias firmada y con la razón de anotado.

@@ -1,2 +1,0 @@
-Artículo 120.- A más tardar el 15 de diciembre de cada año, la Contraloría General de la República remitirá al Ejecutivo Municipal el original y tres copias del presupuesto ordinario que regirá en el próximo período.
-El Ejecutivo informará de inmediato al Concejo del presupuesto aprobado y dejará el original en custodia de la municipalidad. Dejará en su poder una copia, y las demás dos copias las dará al Auditor o Contador y al Tesorero.

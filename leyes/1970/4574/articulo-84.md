@@ -1,1 +1,0 @@
-Artículo 84.- Las certificaciones de los Contadores Municipales relativas a deudas por impuestos, contribuciones o tasas municipales serán título ejecutivo y en el juicio correspondiente sólo podrá oponerse excepción de pago o de prescripción.

@@ -1,1 +1,0 @@
-Artículo 70.- Al tramitar los presupuestos municipales la Contraloría General de la República sólo aprobará las partidas para gastos a que se refieren los artículos 18, 67, 68 y 69 si guardan proporción con la situación económica de la Corporación.

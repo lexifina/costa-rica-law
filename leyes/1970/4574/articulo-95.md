@@ -1,3 +1,0 @@
-Artículo 95.- Podrán las municipalidades aceptar el pago de las contribuciones por arreglo o mantenimiento de caminos vecinales, mediante prestación de servicios personales.
-Las obras de mantenimiento de los caminos vecinales podrán ser realizadas directamente por los interesados, con autorización de la municipalidad y con sujeción a las condiciones que ésta imponga. La municipalidad fijará el porcentaje del monto de inversión autorizado a cada interesado que será imputado al pago de detalle.
-Para efecto de lo dispuesto en el artículo 24 de la Ley General de Caminos Públicos Nº 1851 de 28 de febrero de 1955, se tomará en cuenta los detalles cancelados en la forma establecida en este artículo.
