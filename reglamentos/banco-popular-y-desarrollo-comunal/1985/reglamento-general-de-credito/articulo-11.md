@@ -1,0 +1,2 @@
+Artículo 11.—Sanciones por información falsa o incumplimiento de condiciones.
+Cuando el Banco compruebe que un deudor ha suministrado información falsa, incumplido el plan de inversión, o cualesquiera de las condiciones convenidas en la contratación del préstamo o establecidas en este Reglamento, podrá dar por vencida la obligación y exigir la cancelación inmediata de su saldo y en casos graves hasta suspender a este deudor el uso futuro de los servicios crediticios de la institución hasta un término máximo de 5 años.
