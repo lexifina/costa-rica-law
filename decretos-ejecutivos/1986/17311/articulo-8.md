@@ -1,0 +1,3 @@
+Artículo 8° El primer cuaderno de Bitácora, debidamente legalizado por la Fiscalía se registrará conjuntamente con el contrato de servicios profesionales, para dar inicio con la regencia del establecimiento. Este trámite se hará cada vez que el establecimiento cambie de regente. Excepto en casos de ausencia temporal, permiso o vacaciones (no mas de 30 días naturales) donde el titular los Ministerios con la anticipación que éstos indiquen.
+Las Bitácoras siguientes no requieren un nuevo registro del contrato de servicios profesionales, excepto que éste haya sido modificado.
+Las Bitácoras de regencia deberán de ser adquiridas por el establecimiento a través del regente, único responsable del uso de la misma.

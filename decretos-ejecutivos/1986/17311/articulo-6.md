@@ -1,0 +1,1 @@
+Artículo 6° La Bitácora constará de original y cuatro copias, el original permanecerá en la Bitácora para posterior depósito en la fiscalía del Colegio Ministerio Veterinario, primera copia para el establecimiento segunda copia Ministerio de Agricultura y Ganadería, tercera copia Ministerio de Salud y cuarta copia para el regente.

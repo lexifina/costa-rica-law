@@ -1,0 +1,1 @@
+Artículo 15° El Regente del establecimiento no permitirá por ningún motivo que en el cuaderno de bitácora se consigne instrucciones técnicas por personas no incorporadas al Colegio, si esto ocurriera las mismas serán nulas. El Profesional está obligado a denunciar ante el Colegio, las situaciones de ejercicio legal de la profesión.

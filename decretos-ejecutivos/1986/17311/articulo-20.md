@@ -1,0 +1,1 @@
+Artículo 20° La inexistencia o no presentación de la Bitácora en el momento que sea requerida será considerada como una violación a este Reglamento y causará la suspensión del respectivo permiso de funcionamiento del establecido.

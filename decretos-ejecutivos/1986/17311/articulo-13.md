@@ -1,0 +1,1 @@
+Artículo 13° En el cuaderno de bitácora no podrán hacerse anotaciones a lápiz, ni borrones, tachones, las correcciones deberán realizarse mediante nota al pie. Las fechas de todas las anotaciones deberán aparecer en el cuaderno de bitácora de regencia en estricto orden cronológico.

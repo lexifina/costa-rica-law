@@ -1,0 +1,1 @@
+Artículo 18° Las copias para los Ministerios deberán ser entregadas en los primeros cinco días de cada mes. En caso de requerirse por los Ministerios o de considerarlo conveniente el regente, podrá acortarse este lapso.

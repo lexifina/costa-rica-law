@@ -1,0 +1,1 @@
+Artículo 5° La contraportada de la bitácora, se destinará para identificar al establecimiento, su regente el número de Bitácora, así como indicar el cumplimiento de los trámites de inscripción y registros.

@@ -1,0 +1,1 @@
+Artículo 16° El Regente del establecimiento y los supervisores Médicos Veterinarios, de los Ministerios cuando lo consideren necesario, pueden solicitarle al encargado, gerente o propietario, firmar la bitácora con el fin de dejar establecido, que las indicaciones del primero fueron recibidas. En caso de renuncia a firmar, debe indicarse en la bitácora.

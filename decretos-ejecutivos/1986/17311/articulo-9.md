@@ -1,0 +1,2 @@
+Artículo 9° El Regente deberá de requerir al establecimiento con anterioridad (8 días naturales) y por escrito (utilizándola bitácora), la adquisición de una nueva Bitácora. El regente a mas tardar treinta días naturales después debe depositarla en el Colegio de Médicos Veterinarios, el cual se guardará por no menos de cinco años.
+Cualquier no venderá nuevas bitácoras si el regente no cumple con el requisito de depositar la anterior.

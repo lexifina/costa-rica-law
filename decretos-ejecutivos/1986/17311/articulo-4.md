@@ -1,0 +1,1 @@
+Artículo 4° La bitácora consiste en un cuaderno debidamente numerado, foliado, inscrito y registrado por la Fiscalía del Colegio. El Regente anotará las observaciones de acuerdo a las instrucciones de la Fiscalía, de los Ministerios y que las que a su criterio considere importantes de consignar.
