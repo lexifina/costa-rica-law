@@ -1,0 +1,1 @@
+Art 4°.- El primero contingente que han de dar las Provincias indicadas se exigirá tomando una mitad del centro de la capital de Provincia y exigiéndolo de preferencia de los capitalistas, y la otra mitad se tomará de los Distritos respectivos. Con tal objeto los Gobernadores formarán con anticipación las listas correspondientes.
