@@ -1,0 +1,10 @@
+N° 23008-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PUBLICAS Y TRANSPORTES
+En ejercicio de las atribuciones conferidas en los incisos 3), 8) y 18) del artículo 140 de la Constitución Política, la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978, la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 4786 del 5 de julio de 1971 y sus reformas, la Ley General de Aviación Civil, N° 5150 del 14 de mayo de 1973 y sus reformas.
+Considerando:
+1.—Que por Decreto Ejecutivo N° 21614-MOPT del 28 de setiembre de 1992, publicado en “La Gaceta” N° 202 del 21 de octubre de 1992, se reformó el Decreto Ejecutivo N° 3326-T del 25 de octubre de 1973, publicado en ‘”La Gaceta” N° 221, Alcance N° 171 del 23 de noviembre de 1973 para que se estableciera la obligación para los concesionarios de un certificado de explotación, de rendir una garantía de cumplimiento de las obligaciones pecuniarias contraídas frente al Consejo Técnico de Aviación Civil, por servicios aeronáuticos o por el uso de instalaciones aeroportuarias.
+2.—Que las motivaciones del Poder Ejecutivo para emitir el decreto, consistieron en que ante la declaratoria de quiebra o cesación de pagos de empresas que ostentan un certificado de explotación, la Administración carece de garantías que respalden las obligaciones contraídas por concepto de servicios aeroportuarios y uso de instalaciones.
+3.—Que al observarse que no todas las concesionarias mantienen deudas por el uso de esos servicios e instalaciones y siendo el respaldo de tales deudas la motivación principal de la garantía que se ha requerido, procede concretar los alcances de la obligación, para que recaiga únicamente sobre los concesionarios que mantienen crédito por servicio y uso de instalaciones. Por tanto,
+DECRETAN:
+Artículo 1°.—Los concesionarios de un certificado de explotación se obligan a pagar con puntualidad y de forma inmediata los compromisos que adquieran con el Consejo Técnico de Aviación Civil, que se deriven de la operación aeronáutica y de conformidad con el Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias.
