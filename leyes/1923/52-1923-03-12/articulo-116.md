@@ -1,1 +1,0 @@
-ARTICULO 116.-Para el establecimiento de nuevos cementerios o para el ensanche de los que actualmente existen, se seguirán las instrucciones que se dicten en el reglamento sanitario, o en defecto de ‚este, las que dicte para cada caso la Subsecretaría de Higiene y Salud Pública.

@@ -1,1 +1,0 @@
-ARTICULO 46.-En las escuelas, colegios y demás establecimientos de enseñanza, tanto del Estado, como municipales o particulares, se exigir de cada alumno el certificado de haber sido vacunado con ‚éxito favorable o revacunado, según la edad, y se proceder a la vacunación o revacunación de los alumnos que la necesitan, de acuerdo con el artículo 43 de la presente ley.

@@ -1,2 +1,0 @@
-ARTICULO 160.-Todo habitante del país que no está‚ justamente impedido, tiene la obligación de concurrir al llamamiento de las autoridades sanitarias de su jurisdicción que se le hiciere para declarar en cualquier asunto de servicio relacionado con la salud pública. Asimismo cuando fuere requerido para ello por la autoridad, debe prestarle auxilio.
-El que desobedeciere, sin justa causa, podrá ser conducido por la fuerza pública, sin perjuicio de lo que dispusiere el Código Penal, y podrá además, imponérsele disciplinariamente, una multa no mayor de cincuenta colones.

@@ -1,1 +1,0 @@
-ARTICULO 129.-Toda nave que arribe a un puerto costarricense queda sometida durante su permanencia en ‚l a la inspección del Jefe de Sanidad Marítima, y a las medidas de profilaxia prescritas por el Reglamento de Policía Sanitaria Marítima.

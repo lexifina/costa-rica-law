@@ -1,7 +1,0 @@
-ARTICULO 12.-Para dichas ciudades la Municipalidad respectiva propondrá a la Subsecretaría de Higiene y Salud Pública un Reglamento Sanitario comprendiendo las medidas de protección siguientes:
-1) Las precauciones que deben tomarse para prevenir o hacer cesar las enfermedades trasmisibles indicadas en el artículo 22 de la presente ley y especialmente las medidas de desinfección y aun de destrucción de los objetos usados por los enfermos o que hayan sido contaminados por ellos, y en general cualquier objeto que pueda servir de vehículo al contagio;
-2) Las prescripciones para asegurar la salubridad de las habitaciones y sus dependencias; de las casas de vecindad; de las vías públicas y privadas; de los departamentos de arriendo amueblados o no; de hospitales, casas de salud, teatros, escuelas, talleres, fábricas, mercados, mataderos, cárceles, hospicios y de los lugares en donde haya aglomeraciones de cualquier naturaleza que sean;
-3) Las prescripciones relativas a la provisión de agua potable o a la evacuación de las materias usadas;
-4) Las prescripciones concernientes al personal y a los locales destinados a la preparación, producción, venta y conservación de los artículos alimenticios y las referentes a la venta o al ofrecimiento de venta o transporte para la venta de estos artículos, falsificados, corrompidos, deteriorados, adulterados o nocivos;
-5) Las reglas sobre la policía sanitaria de los animales;
-6) La reglamentación de los establecimientos clasificados como insalubres, peligrosos o incómodos.

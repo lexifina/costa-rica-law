@@ -1,3 +1,0 @@
-ARTICULO 15.-En cualquier tiempo puede una Municipalidad disponer que su respectivo cantón forme un circuito separado de la Medicatura del Pueblo en cuanto al servicio sanitario se refiere y proceder a organizar la oficina respectiva bajo la autoridad del Jefe de Sanidad.
-En el caso de que no exista o no resida en una localidad médico del pueblo, pueden las Municipalidades nombrar un empleado especial que con el nombre de Agente Sanitario Municipal se encargue de velar por el cumplimiento de las leyes, ordenanzas y reglamentos sanitarios.
-En ambos casos el pago de los gastos que su mantenimiento ocasione ser a cargo de la Municipalidad.

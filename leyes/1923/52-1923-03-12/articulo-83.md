@@ -1,1 +1,0 @@
-ARTICULO 83.-El profesional que haga alteraciones deliberadas en el diagnóstico o en el certificado de defunción o proporcione de intento datos falsos a las autoridades sanitarias para la ocultación de alguna enfermedad en caso presente, curado ya o fallecido, incurrir en la pena de ley.

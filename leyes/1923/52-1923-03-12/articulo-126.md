@@ -1,1 +1,0 @@
-ARTICULO 126.-Todo cementerio queda sujeto a la inspección de las autoridades tanto administrativas como sanitarias y a las disposiciones sobre policía mortuoria que determina el Reglamento Sanitario.

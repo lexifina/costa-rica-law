@@ -1,1 +1,0 @@
-ARTICULO 14.-Las Municipalidades de los cantones menores pueden organizar la Jefatura de Sanidad, bajo la autoridad del respectivo médico del pueblo, que es como queda dicho en el artículo 5, el Jefe de Sanidad en su circuito, y se dar el Reglamento Sanitario de acuerdo con las prescripciones contenidas en el artículo 12.

@@ -1,1 +1,0 @@
-ARTICULO 118.-Queda prohibida la construcción de nichos sobre la superficie del suelo en los nuevos cementerios que se establezcan, o en las ampliaciones de los existentes, a menos que sean para la sepultación de cadáveres reducidos ya a osamenta.

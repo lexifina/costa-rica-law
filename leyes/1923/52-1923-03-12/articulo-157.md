@@ -1,1 +1,0 @@
-ARTICULO 157.-Los contraventores a las disposiciones de esta ley o de los reglamentos respectivos o los que no dieren cumplimiento a las órdenes del Jefe de Sanidad o del Agente Sanitario o del Delegado de la Subsecretaría de Higiene y Salud Pública, en materias sanitarias, que no paguen la multa a que fueron condenados, sufrir n un día de arresto por cada dos colones de multa.

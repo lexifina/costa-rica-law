@@ -1,3 +1,0 @@
-ARTICULO 91.-Toda droguería, botica o botiquín deber ser regentado por un farmacéutico incorporado en el Colegio de Farmacia de la República. Esta disposición se entiende sin perjuicio de lo dispuesto sobre botiquines establecidos en lugares en donde no exista la regencia dicha y para los cuales el Colegio de Farmacéuticos autorizar la dirección de ellos por personas que a su juicio sean competentes.
-Una misma persona no podrá regentar más de un establecimiento a la vez.
-La permanencia del regente en el establecimiento se exige por todo el tiempo necesario para que la regencia sea verdadera y eficiente.

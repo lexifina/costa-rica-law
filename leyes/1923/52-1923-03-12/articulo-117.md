@@ -1,1 +1,0 @@
-ARTICULO 117.-En las ciudades capitales de provincia, habrá en el cementerio una sala mortuoria adecuada para depositar los cadáveres que se lleven antes del termino de 24 horas de ocurrido el fallecimiento o que por razones suficientes se solicite depositar allí, todo conforme a los reglamentos.

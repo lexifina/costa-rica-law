@@ -1,2 +1,0 @@
-ARTICULO 71.-El Reglamento Sanitario clasificar los talleres, fábricas, industrias o demás establecimientos insalubres, peligrosos o incómodos, cuya instalación dentro de los límites urbanos o poblados debe prohibir la Municipalidad, y los que pueda permitir, si se someten a condiciones determinadas.
-Indicar , además, las reglas de higiene que la autoridad sanitaria debe exigir a los propietarios de establecimientos insalubres, peligrosos o incómodos para prevenir o atenuar los inconvenientes sanitarios a que estos puedan dar lugar, y para proteger la salud de los obreros.

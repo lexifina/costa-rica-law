@@ -1,2 +1,0 @@
-ARTICULO 101.-Las recetas despachadas, salvo las indicadas en el artículo 99, serán devueltas al dueño, selladas con el sello del establecimiento, numeradas con número de orden del copiador de recetas y con la hora y fecha de su preparación. Los dueños de las recetas no solo pueden exigir los originales, sino también copia cuando no tuvieren aquella.
-Estas recetas pueden repetirse libremente en cualquier botica del país, con las restricciones del caso, indicadas en el artículo anterior.

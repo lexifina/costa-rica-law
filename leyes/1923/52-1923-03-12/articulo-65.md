@@ -1,1 +1,0 @@
-ARTICULO 65.-Los edificios o habitaciones insalubres, serán rehabilitados por declaración del Jefe de Sanidad, previa información de la Dirección de Obras Municipales que establezca que han sido practicadas las reparaciones que indicó la Sanidad.

@@ -1,1 +1,0 @@
-ARTICULO 88.-No obstante lo dicho antes cualquiera persona autorizada que elabore productos o sustancias medicamentosas o aplicables a la industria, podrá vender libremente a los establecimientos autorizados para despachar recetas de médicos y expender drogas peligrosas, sus productos o sustancias.

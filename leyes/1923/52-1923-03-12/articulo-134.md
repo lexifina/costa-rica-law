@@ -1,1 +1,0 @@
-ARTICULO 134.-Los derechos sanitarios que se cobren en los puertos por boletas de sanidad, visitas sanitarias, desinfección de naves, equipajes y mercaderías, as¡ como por estadas en los locales de aislamiento o de observación, serán fijados por un decreto del Poder Ejecutivo y su producto deber aplicarse al sostenimiento de los servicios de higiene pública.

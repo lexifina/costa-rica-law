@@ -1,1 +1,0 @@
-ARTICULO 125.-No podrá hacerse la exhumación de ningún cadáver antes de la destrucción de las partes blandas; el plazo fijado para ello no puede ser en ningún caso, menor de 5 años. Se exceptúan las exhumaciones de niños que sean autorizadas por el Jefe de Sanidad y las ordenadas por la autoridad judicial.

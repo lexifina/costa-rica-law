@@ -1,6 +1,0 @@
-ARTICULO 155.-Se hará notificación por cédula:
-1.-Cuando la parte que ha de ser notificada hubiere indicado domicilio para notificaciones;
-2.-Cuando sea conocido el domicilio del que debe ser notificado y no se le encuentre en persona.
-Dicha cédula se entregar a cualquiera de las personas mayores de 15 años que se hallen en la casa u oficina señalada o en la del domicilio; mas si no se encontrare a nadie en ella o si la persona a quien va a entregarse la cédula no quisiera recibirla, o si se encontrare cerrada la puerta, se entregar la cédula al vecino mas próximo que fuere habido, con encargo de entregarla oportunamente al interesado. En todo caso el acta de la diligencia expresar esas circunstancias, la entrega de la cédula y el nombre de la persona que la reciba ésta deber firmar con el notificador, pero si no supiere o no pudiere, el funcionario lo hará constar así bajo su responsabilidad. El notificador, al entregar la c‚dula, marcar al pie de ella la fecha y hora de su entrega.
-La cédula para notificaciones expresar el nombre de la persona a quien va a notificarse, extracto de la solicitud resuelta y copia literal de la parte dispositiva de la resolución que haya de notificarse, se extender en papel común y ser firmada por el notificador.
-El mismo procedimiento se seguir para la notificación de las resoluciones de segunda instancia.
