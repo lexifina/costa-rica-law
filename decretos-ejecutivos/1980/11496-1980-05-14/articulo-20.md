@@ -1,0 +1,1 @@
+Artículo 20.- Este Reglamento deroga el anterior (Reglamento del Museo Nacional, decreto número 2812-C de 14 de febrero de 1973), así como los decretos números 13 de 5 de agosto de 1967; y 45 de 19 de noviembre de 1964.

@@ -1,0 +1,1 @@
+Artículo 9º.- La Junta podrá organizar el Patronato de Amigos del Museo, teniendo como miembros de él a las personas o entidades que contribuyan mediante donativos en dinero u objetos, o en otra forma a juicio de la Junta, al progreso de la Institución. A este efecto, la Junta queda autorizada para extender los certificados o títulos que considere convenientes.

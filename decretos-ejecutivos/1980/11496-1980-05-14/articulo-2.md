@@ -1,0 +1,1 @@
+Artículo 2º.- La Junta celebrará por lo menos una sesión cada mes, en la fecha y lugar que ella designe y, además, las sesiones extraordinarias que se requieran a juicio del Presidente de la Junta, de tres de sus miembros o de la Dirección del Museo. Habrá quórum cuando concurran cinco de los miembros. Las convocatorias se harán siempre por escrito.

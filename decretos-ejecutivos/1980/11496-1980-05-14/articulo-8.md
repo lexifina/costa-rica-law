@@ -1,0 +1,10 @@
+Artículo 8º.- Son atribuciones de la Junta Directiva:
+1) Administrar e invertir los fondos que obtenga para el sostenimiento y progreso del Museo y que provengan del Estado o de donativos o contribuciones, así como de otros ingresos según los artículos 9º, 10 y 11 de este Reglamento.
+2) Dirigir la marcha administrativa del Museo, dictando las disposiciones necesarias para la conservación, guarda y adquisición de objetos y mantenimiento del mobiliario y edificios de la Institución.
+3) Examinará y resolverá, previa consulta a los departamentos del Museo, las solicitudes de exportación de cualesquiera objetos o partes del patrimonio cultural, histórico, artístico y científico del país.
+4) Hacer cumplir las disposiciones de la ley número 7 del 6 de octubre de 1938, o de las modificaciones que de ella se hagan, o de nuevas leyes sobre protección y conservación del patrimonio cultural nacional, que no releven al Museo de esa obligación, ejerciendo las funciones y atribuciones que esas leyes encargan a las autoridades y a la Dirección del Museo.
+5) Nombrar y remover los empleados del Museo, señalarles sus dotaciones y horas de trabajo, de acuerdo con la Ley de Servicio Civil y el Reglamento interior de Trabajo o mediante contratos específicos que a este efecto le someta la Dirección del Museo.
+6) Elaborar conjuntamente con la Dirección del Museo los programas técnicos de la Institución.
+7) Promover el interés de particulares y de entidades nacionales o extranjeras por el Museo, tanto en los aspectos científicos y culturales, como para obtener donativos y contribuciones para la implementación y mejoramiento de los programas de la Institución.
+8) Organizar las asociaciones de amigos del Museo y promover conferencias y publicaciones para divulgar el conocimiento de nuestras riquezas prehistóricas e históricas, de las ciencias y artes relacionadas con las actividades del Museo, así como realizar todas aquellas gestiones públicas necesarias para el buen funcionamiento de la Institución.
+9) Presentar anualmente al Ministerio de Cultura, Juventud y Deportes, un informe de las actividades del Museo.

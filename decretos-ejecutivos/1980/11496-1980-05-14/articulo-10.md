@@ -1,0 +1,1 @@
+Artículo 10.- Como medio de fomentar las industrias, las artesanías nacionales, la divulgación de información científica y popular y el interés de los visitantes, la Junta podrá permitir la venta al público de objetos, publicaciones, etc., dentro del edificio del Museo, cobrando por ello un derecho en dinero.

@@ -1,0 +1,1 @@
+Artículo 11.- La Junta fijará un derecho de admisión, no aplicable a estudiantes nacionales, para visitar el Museo durante los días que permanezca abierto al público. Queda facultada la Dirección para eximir del derecho de admisión a persona o personas que a su juicio así lo ameriten.

@@ -1,0 +1,1 @@
+Artículo 17.- La Junta Directiva y Dirección del Museo podrá, conjuntamente, nombrar asesores para las distintas actividades o programas del Museo. Los asesores serán ad honórem y podrán ser permanentes o temporales. El dictamen que rindan los asesores debe considerarse un elemento de juicio y nunca será de carácter impositivo.

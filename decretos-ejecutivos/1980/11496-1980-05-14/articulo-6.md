@@ -1,0 +1,1 @@
+Artículo 6º.- El Secretario redactará las actas de las sesiones de la Junta, las firmará en unión del Presidente o del Vicepresidente y suscribirá con ellos, o sólo en los casos de tramitación corriente, los documentos que expida la Junta.

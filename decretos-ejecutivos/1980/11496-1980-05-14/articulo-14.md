@@ -1,0 +1,1 @@
+Artículo 14.- Los derechos y obligaciones del personal del Museo se especifican en el Reglamento Interior de Trabajo, debidamente aprobado por la Dirección General de Servicio Civil y el Ministerio de Trabajo y Seguridad Social.

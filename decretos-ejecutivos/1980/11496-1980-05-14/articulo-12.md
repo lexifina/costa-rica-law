@@ -1,0 +1,1 @@
+Artículo 12.- El Museo permanecerá abierto al público todos los días de la semana excepto los lunes y los feriados oficiales. Las horas de visita serán de 8,30 a 17,00 horas entre semana y de 9,00 a 17,00 horas los domingos y los feriados en que abre el Museo. Queda facultada la Dirección para considerar circunstancias especiales que requieran alteración de horarios.
