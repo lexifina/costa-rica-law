@@ -1,0 +1,1 @@
+Artículo 3°-Los trabajadores que hubieren cotizado para alguno de los regímenes de pensiones municipales, y que al entrar en vigencia la presente ley estuvieren incluidos en el régimen de Invalidez, Vejez y muerte de la Caja Costarri cense de Seguro Social, tendrán derecho a que les sean devueltas las cuotas con que han contribuido al régimen municipal.
