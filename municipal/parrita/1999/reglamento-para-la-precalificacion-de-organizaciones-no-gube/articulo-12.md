@@ -1,0 +1,1 @@
+Artículo 12.-Presentación de proyecto. La organización solicitante deberá presentar con su solicitud, un perfil sobre el proyecto que pretende desarrollar, con base en la Guía para la Presentación de Proyectos emitida por la Oficina del Presupuesto Nacional, a fin de determinar si cumple con los requisitos solicitados y la viabilidad del mismo.

@@ -1,0 +1,1 @@
+Artículo 16.-Acuerdo Municipal corresponderá al Concejo Municipal, previo conocimiento del dictamen elaborado por la Comisión Calificadora, resolver en definitivo si otorga o no la precalificación a la ONG como entidad privada idónea para administrar fondos públicos.

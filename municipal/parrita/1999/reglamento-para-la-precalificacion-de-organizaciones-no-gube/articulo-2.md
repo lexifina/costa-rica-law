@@ -1,0 +1,1 @@
+Artículo 2°-Finalidad. El presente Reglamento tiene como finalidad establecer los requisitos y procedimientos que deben cumplir las Organizaciones no Gubernamentales, para obtener la precalificación de idoneidad, con el fin de administrar fondos públicos provenientes de las partidas específicas asignadas al cantón de Parrita.

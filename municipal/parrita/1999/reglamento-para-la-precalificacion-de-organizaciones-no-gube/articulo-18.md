@@ -1,0 +1,1 @@
+Artículo 18.-Vigencia de la declaración de idoneidad. La vigencia de la precalificación como entidad idónea para administrar fondos públicos será un año, a partir de la firmeza del acuerdo respectivo.

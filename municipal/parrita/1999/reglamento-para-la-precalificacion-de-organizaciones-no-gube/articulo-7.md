@@ -1,0 +1,1 @@
+Artículo 7°-Referencias. La Municipalidad, por medio de la Comisión, podrá solicitar a otras organizaciones o instituciones, referencias de los personeros o personal técnico con el fin de acreditar su idoneidad ética, moral y técnica para el manejo de los fondos públicos y desarrollo de proyectos.

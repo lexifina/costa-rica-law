@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE PARRlTA
+REGLAMENTO DE LA MUNICIPALIDAD DE PARRITA
+PARA LA PRECALIFICACION DE ORGANIZACIONES NO GUBERNAMENTALES EN EL MANEJO DE FONDOS PUBLICOS PROVENIENTES DE PARTIDAS ESPECIFICAS
+La Municipalidad de Parrita con fundamento en los artículos 169 y 170 de la Constitución Política, en los artículos 4 inciso a), I3 inciso c) y 43 del Código Municipal, en los artículos 2 y 4 inciso J) de la ley 7755, y en la circular de la Contraloría General de la República del 3 de noviembre de 1998, publicada en "La Gaceta" N° 227, Alcance 82-A del 23 de noviembre de 1998, emite el presente Reglamento para la Precalificación de Organizaciones no Gubernamentales en el Manejo de Fondos Públicos Provenientes de Partidas Específicas.
+CAPITULO I
+Disposiciones Generales
+Artículo 1°-Fundamento. Considerando el papel activo e importante que tienen las municipalidades en la priorización de las necesidades y selección final de los proyectos y programas que serán financiados con partidas específicas, según lo establecido en el artículo 4 inciso d) de la Ley 7755, "Control de Partidas Específicas con Cargo al Presupuesto Nacional", es imperativo que las municipalidades precalifiquen a las Organizaciones no Gubernamentales como idóneas para administrar fondos públicos provenientes de dichas partidas, previo a que esas entidades acudan a la Contraloría General de la República a solicitar la respectiva calificación de idoneidad.

@@ -1,0 +1,1 @@
+Artículo 15.-Plazo para resolver. Toda solicitud de precalificación deberá ser resuelta dentro del tiempo de quince días hábiles siguientes contados a partir de su presentación o de completados los requisitos de que hablan los artículos 7 y 14 inciso c) de este Reglamento.
