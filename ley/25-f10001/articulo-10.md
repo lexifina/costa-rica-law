@@ -1,0 +1,1 @@
+Art 10. El presente decreto se pablicara en los idiomas español, ingles y frances. -Dado en la ciudad de San José á los cuatro dias del mes de julio de mil ochocientes cuarenta y nueve. -José Maria Castro. El Ministro de hacienda y guerra.- José Maria Cañas."
