@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLI.
+(Derogado por la Ley No. 13 de 14 de junio de 1858).
 Reduce el parentesco al segundo de consanguinidad, según la computación civil.
 N° 26
 “Juan Rafael Mora, Presidente de la República de Costa Rica, por cuanto el Excelentísimo Congreso ha decretado lo siguiente.
