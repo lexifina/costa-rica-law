@@ -1,0 +1,1 @@
+Artículo 13.-Las transgresiones al presente Reglamento serán elevadas a conocimiento de la Junta de Gobierno del Colegio de Médicos y Cirujanos, la cual decidirá de acuerdo con los lineamientos dictados por el Tribunal de Moral Médica.
