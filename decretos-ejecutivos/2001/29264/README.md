@@ -14,3 +14,4 @@ Reglamento General de Gestión, Fiscalización y Recaudación Tributaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-07 | la propia norma |
+| 2 | 2001-07-10 | Decreto Ejecutivo 29643 (2001-07-10) |
