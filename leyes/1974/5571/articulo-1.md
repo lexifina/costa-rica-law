@@ -1,0 +1,4 @@
+N° 5571
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA.
+Decreta
+Artículo 1°-De la reunión que se hará de las fincas del Estado del Partido de Cartago, números 38062, 38064, 38066, 38067, 38068, 38069, 38070, 38071, 38072 y 38073, traspásase a título gratuito al Instituto Mixto de Ayuda Social, el lote que se describe así: terreno ocupado por construcciones y cultivos varios, situado en Río Azul de La Unión, distrito 89, cantón 3° de la provincia de Cartago, que mide, según plano inscrito en el Catastro, número C-9827-74, 35 hectáreas, 3922 metros cuadrados y 36 decímetros cuadrados, que colinda por el Norte con e! resto de la. reunión; por el Sur calle pública en medio con el resto de la reunión: ál Este con Industrial Centroamericana S. A., con servidumbre de paso en medio; y al Oeste, otras propiedades del Estado.

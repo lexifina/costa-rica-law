@@ -1,0 +1,1 @@
+Artículo 4°-Se autoriza a la Procuraduría General de la República para que, por medio de la Notaría del Estado, se otorguen las escrituras necesarias para la realización del indicado traspaso y venta.

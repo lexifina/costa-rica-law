@@ -1,0 +1,2 @@
+Artículo 2°-Autorízase al Estado para vender de la reunión citada en eI artículo anterior, el lote que se describe así: potrero llamado Las Quebradas, SItuado igual que el lote anteriormente descrito, que mide 30 hectáreas, 6073 metros, 86 decímetros, 5 centímetros cuadrados. Linda: Norte, calle en medio con el lote anteriormente descrito; Sur, con Carlos Arias; Este, Carlos Arias y Salvador Cruz; y Oeste, Productos de Concreto S. A.
+El precio de venta será por una suma no menor a la que fije la Dirección General de la Tributación Directa.
