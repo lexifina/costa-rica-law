@@ -1,5 +1,9 @@
 ARTICULO 19: De las licencias y permisos sin goce de salario.
-a) Toda madre en época de lactancia debidamente comprobada, tiene derecho a una licencia de hora y media todos los días con goce de salario, para amamantar a su bebé, hasta por un período de seis meses, a partir del término de la licencia por maternidad. Esa licencia podrá disfrutarla de la siguiente manera: completa en las mañanas o en la tarde, o separadamente; cuarenta y cinco minutos en la mañana e igual tiempo en la tarde, según lo convenga la Jefatura y la trabajadora.
+a) Toda madre en época de lactancia debidamente comprobada, tiene derecho a una licencia de hora y media todos los días con goce de salario, para amamantar a su hijo, por todo el periodo de lactancia que el médico pediatra tratante determine. Esa licencia podrá disfrutarla de la siguiente manera: Completa en la mañana o en la tarde o separadamente: cuarenta y cinco minutos en la mañana e igual tiempo en la tarde, según lo convenga la Jefatura y la trabajadora.
+El procedimiento para la concesión de este derecho es el siguiente:
+1. La trabajadora que después de haberse reintegrado a su trabajo, posterior a la incapacidad post-parto; quiere acogerse a esta licencia, debe hacer la solicitud a su Jefe inmediato, aportando certificado del médico pediatra tratante, demostrando que está amamantando a su bebé. El certificado tendrá vigencia por un plazo máximo de un mes.
+El Jefe aprobará el permiso, para lo que tramitará movimiento de personal, indicando las fechas y el horario de disfrute".
+(Así reformado inciso a) mediante sesión 7069, celebrada el 15 de octubre de 1996)
 b) Además, la Caja otorgará licencias con goce de salario en los siguientes casos:
 I. Por el nacimiento de los hijos (as) del trabajador: tres días naturales a partir
 del nacimiento.

@@ -14,3 +14,4 @@ Normas que regula la Relación de la Caja Costarricense del Seguro Social con su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-01-01 | la propia norma |
+| 2 | 1996-10-15 | Reglamento 7069 (1996-10-15) |
