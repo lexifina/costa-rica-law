@@ -1,0 +1,1 @@
+Artículo 2°-Asimismo el Ministerio de Agricultura y Ganadería, designará con carácter de urgencia al Notario Público que levantará el acta respectiva de la destrucción del plantío, este podrá ser particular.
