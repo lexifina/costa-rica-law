@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión de Obras Públicas funcionará como órgano de la coordinación de los Concejos de Distrito con el fin de presentarles la asistencia que proceda en los proyectos que sean de interés para un Distrito o Grupo de ellos aislada o conjuntamente.
