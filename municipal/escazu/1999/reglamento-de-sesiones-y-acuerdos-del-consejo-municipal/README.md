@@ -14,3 +14,4 @@ Reglamento de Sesiones y Acuerdos del Consejo Municipal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
+| 2 | 2002-07-24 | Reglamento municipal 4 (2002-07-24) |
