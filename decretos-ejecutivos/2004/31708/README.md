@@ -20,3 +20,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 5 | 2004-07-26 | Decreto Ejecutivo 31984 (2004-07-26) |
 | 6 | 2004-09-03 | Decreto Ejecutivo 31940 (2004-09-03) |
 | 7 | 2004-09-07 | Decreto Ejecutivo 31941 (2004-09-07) |
+| 8 | 2004-09-07 | Decreto Ejecutivo 31947 (2004-09-07) |
