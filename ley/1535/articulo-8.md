@@ -1,4 +1,0 @@
-Artículo 8º.- Cuando el Registrador fuere impuesto de un error que no sea de los que indican los párrafos segundo y tercero del artículo anterior, podrá en el asiento respectivo una nota marginal de advertencia, y publicará por tres veces en “La Gaceta” un aviso sobre el particular para que los interesados, dentro de ocho días posteriores a la primera publicación, aleguen sus derechos.
-Vencido el término indicado se agregará a las diligencias en todo caso, una certificación del asiento; y si los hubiere, los documentos o alegatos presentados por los interesados, así como las indicaciones que estimare pertinentes el Director, el cual, enviará al Tribunal los autos, para su resolución definitiva.
-La resolución que dicte el Director elevando los autos al conocimiento del tribunal se notificará a los interesados para que puedan apersonarse si lo desean.
-(Así reformado por el artículo 1° de la ley N° 2926 del 28 de noviembre de 1961)
