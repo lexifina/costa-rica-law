@@ -1,0 +1,1 @@
+Artículo 6º—En caso de violación a las disposiciones establecidas en el presente decreto, se procederán a aplicar las medidas especiales y sanciones señaladas en la Ley General de Salud, sin perjuicio de lo dispuesto en otras leyes y reglamentos conexos.

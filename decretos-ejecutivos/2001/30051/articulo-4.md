@@ -1,0 +1,1 @@
+Artículo 4º—Se autorizará el registro, importación, y uso de materia prima o producto elaborado de Bifenilos Polibromurados para cualquier uso científico o de análisis, sólo previo estudio del caso y autorización expresa del Ministerio de Salud.
