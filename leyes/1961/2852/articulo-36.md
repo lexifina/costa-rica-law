@@ -1,0 +1,1 @@
+Artículo 36.-Sin perjuicio de las sanciones penales que pudieran corresponderle, el ingeniero agrónomo regente del establecimiento comercial que incumpliere las disposiciones del artículo 28 de esta ley, quedará legamente incapacitado para regentar cualquier establecimiento comercial por el término de un mes.

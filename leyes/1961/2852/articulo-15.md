@@ -1,0 +1,1 @@
+Artículo 15 .-En los casos de combate de plagas y enfermedades declaradas de carácter nacional, los sistemas de procedimientos técnicos dictados por el Ministerio son de obligatoria observancia para todos los agricultores del país y tendrán por objetivo fundamental el exterminio o control de las plagas y enfermedades, así como evitar su difusión fuera del país.

@@ -1,0 +1,1 @@
+Artículo 12.-Para garantizar el estado sanitario de los productos que se exportan evitando el traslado de plagas y enfermedades a otros países, el Ministerio extenderá el certificado correspondiente, expedido en formulario de conformidad con los Tratados Internacionales vigentes.

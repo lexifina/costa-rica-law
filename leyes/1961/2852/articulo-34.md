@@ -1,0 +1,1 @@
+Artículo 34. -EI Ministerio, además procederá a la inmediata destrucción de todo organismo, planta o material importado o introducido en tránsito terrestre o fluvial, en contravención a lo establecido en los artículos 4°, 5° y 6°, así como la de aquellas plantas, productos vegetales que se hayan importado sin llenar los requisitos estatuidos en el artículo 8° de esta ley.

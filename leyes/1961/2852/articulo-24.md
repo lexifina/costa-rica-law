@@ -1,0 +1,1 @@
+Artículo 24.- El Poder Ejecutivo por medio de decretos podrá declarar zonas y períodos de cuarentena, interior o exterior, totales o parciales cuando a su juicio la infestación de los productos constituya gran peligro como medio de difusión de plagas y enfermedades.

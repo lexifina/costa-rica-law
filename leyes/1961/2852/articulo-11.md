@@ -1,0 +1,1 @@
+Artículo 11.- Todo Inspector de Cuarentena, debidamente identificado como tal estará facultado para inspeccionar a cualquier persona o vehículo que entre al territorio nacional, confiscar o destruir, y/o demandar tratamiento a aquellos organismos, productos vegetales o material de empaque que hayan ingresado en contravención a la presente ley o a sus reglamentos.
