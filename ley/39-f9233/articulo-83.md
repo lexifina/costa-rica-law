@@ -1,2 +1,0 @@
-Artículo 83.-Los primeros testimonios deberán extenderse en el mismo acto de firmarse la escritura original o dentro de los diez días hábiles siguientes, e irán firmados por el notario, así como por las partes cuando aquél o éstas así lo desearen. Sin embargo, los testimonios de testamentos deben expedirse en el acto de otorgamiento de la escritura original y firmarse por el notario, los testadores que sepan y puedan hacerlo, y los testigos instrumentales.
-(Así reformado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)
