@@ -14,3 +14,4 @@ Reglamento a la Ley de Régimen de Zonas Francas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-25 | la propia norma |
+| 2 | 2001-09-22 | Decreto Ejecutivo 29962 (2001-09-22) |

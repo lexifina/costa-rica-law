@@ -1,1 +1,1 @@
-Transitorio V.—Hasta tanto se realicen los ajustes pertinentes con respecto a la transmisión de la Declaración Aduanera de Zona Franca la empresa deberá utilizar el procedimiento vigente para tal efecto. En todo caso estos ajustes deberán realizarse dentro del plazo máximo de tres meses a partir de la entrada en vigencia de este reglamento.
+Transitorio V.— DEROGADO por el artículo 5 del Decreto Ejecutivo N° 29962 de 22 de setiembre del 2001.
