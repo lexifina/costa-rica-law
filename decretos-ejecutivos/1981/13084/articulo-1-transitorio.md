@@ -1,2 +1,0 @@
-Disposición transitoria.-Los permisos de uso que haya otorgado el Consejo Nacional de Deportes, antes de la fecha de vigencia del presente reglamento, se cumplirán conforme a las disposiciones dictadas en su oportunidad por el Consejo Nacional de Deportes para cada uno de ellos.
-Dado en la Presidencia de la República.-San José, a los cuatro días del mes de noviembre de mil novecientos ochenta y uno.

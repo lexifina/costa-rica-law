@@ -1,1 +1,0 @@
-Artículo 31.-Las radioemisoras que deseen retransmitir eventos en las instalaciones de la Dirección General de Educación Física y Deportes, deberán cancelar con anterioridad al inicio de cada actividad, una suma no menor de doscientos cincuenta colones por concepto de ese derecho.

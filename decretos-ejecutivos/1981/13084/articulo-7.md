@@ -1,1 +1,0 @@
-Artículo 7º.-Cuando se trate de personas físicas o jurídicas, que no sean entidades deportivas oficializadas, el Consejo Nacional de Deportes, procederá a conocer de la solicitud conforme le sea presentada y si es aprobada, se procederá al otorgamiento de las escritura pública en que se establecerá el permiso de uso y derechos y obligaciones que de él se derivan.

@@ -1,1 +1,0 @@
-Artículo 16.-Todos los gastos correrán por cuenta del empresario, ya sea montaje, construcción de escenarios o similares, sillas, boleterías, vigilancia, etcétera. Como consecuencia de los anterior, el empresario libera en este acto a la Dirección General de Educación Física y Deportes, y por ente el Estado, de cualquier responsabilidad.

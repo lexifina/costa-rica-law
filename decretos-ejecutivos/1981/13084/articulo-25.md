@@ -1,1 +1,0 @@
-Artículo 25.-Queda absolutamente prohibido al empresario hacer entrega de premios o reconocimientos en artículos que no hayan sido previamente aprobados por la Dirección. En consecuencia, para hacer entrega de esos premios o reconocimientos deberá previamente solicitar el permiso a la Dirección indicando en su solicitud en qué consiste el premio o reconocimiento.
