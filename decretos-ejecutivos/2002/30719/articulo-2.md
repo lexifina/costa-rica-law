@@ -1,0 +1,1 @@
+Artículo 2º—La administración, manejo, control y protección del Refugio Nacional de Vida Silvestre Isla Chora, le corresponderá al Ministerio del Ambiente y Energía, quien la ejercerá a través del Área de Conservación Tempisque del Sistema Nacional de Áreas de Conservación.
