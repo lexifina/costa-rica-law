@@ -1,1 +1,0 @@
-Artículo 17.-Los funcionarios y empleados de las Juntas que no sean nombrados por período fijo, permanecerán en el desempeño de sus funciones mientras lo hagan en forma activa y eficiente, y demuestren competencia para el cargo.

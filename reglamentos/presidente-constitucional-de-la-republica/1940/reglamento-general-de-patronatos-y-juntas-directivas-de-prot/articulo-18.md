@@ -1,1 +1,0 @@
-Artículo 18.-Serán aplicables a las demás corporaciones que regenten establecimientos de asistencia pública y beneficencia, las disposiciones del presente capítulo, mientras no estén en contradicción con su propia Ley Orgánica.

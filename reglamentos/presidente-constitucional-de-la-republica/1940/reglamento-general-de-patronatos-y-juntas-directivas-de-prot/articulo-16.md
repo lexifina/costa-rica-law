@@ -1,2 +1,0 @@
-Artículo 16.-Toda Junta tendrá un Representante Legal para actuar en juicio, que lo será el abogado que esa corporación designe conforme a la Ley de Impuesto de Beneficencia y que tendrá las facultades de un apoderado general judicial.
-El abogado asesorará a la Junta de todos los asuntos legales que se presenten y será el notario que autorice las escrituras en que sea parte la Junta. Mientras no se publique nuevo nombramiento, el abogado existente continuará representando la Junta.

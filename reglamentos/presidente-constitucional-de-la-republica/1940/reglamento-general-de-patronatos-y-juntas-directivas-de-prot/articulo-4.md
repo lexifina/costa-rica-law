@@ -1,2 +1,0 @@
-Artículo 4°-Se considerará como grado de parentesco prohibido, para los efectos de este Reglamento, el que tienen entre sí: los ascendientes y descendientes en cualquier grado: hermanos, tíos, sobrinos, padrastros y entenados, todos por afinidad o consanguinidad, legítimos, o naturales y los cónyuges.
-Se considerará como mayoría absoluta, para los efectos de este reglamento, la mitad más cualquier número, de votos de presentes.

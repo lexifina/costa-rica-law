@@ -1,3 +1,0 @@
-Artículo 22.-La cuota de los miembros del Patronato será de cinco colones trimestrales. El que deje de pagar dos cuotas consecutivas quedará suspendido en el uso de sus derechos, pudiendo recuperados desde que cancele tales obligaciones. Pero sí llegare a deber tres cuotas consecutivas, se le dará de baja definitivamente, no pudiendo reingresar al Patronato.
-También se dará de baja a los miembros del Patronato que renuncien, sean condenados por delito, sean declarados en estado de insolvencia, concurso o quiebra y los que pierden su capacidad civil.
-Los fondos que se recojan por concepto de cuota de ingreso o trimestral se destinarán exclusivamente a la conservación y mejora de los cementerios.
