@@ -1,6 +1,6 @@
 CAPITULO VII
 De los Recursos Administrativos
-Artículo 29.- Contra las resoluciones o los acuerdos de las
+Artículo 29(*).- Contra las resoluciones o los acuerdos de las
 Direcciones Generales, la Comisión Técnica de Transportes y el Consejo de
 Seguridad Vial, cabrán recursos de revocatoria ante el mismo órgano y de
 apelación de la siguiente forma:
@@ -20,3 +20,7 @@ resolución, el recurrente podrá presentar su gestión ante quien
 corresponda conocer del recurso de apelación.
 ( Así reformado por el artículo 65 de la Ley Nº 7593 de 9 de agosto
 de 1996).
+(* Nota de SINALEVI: Según el Dictámen N° 037 de 25 de febrero del 2000, este artículo
+ha sido derogado parcial y tácitamente por los artículos 11 y 22 de la Ley N° 7969 de 22 de
+diciembre de 1999, en lo referente a la Comisión Técnica de Transportes y la Dirección General de Transporte Público que han
+sido sustituidas por el Consejo de Transporte Público).
