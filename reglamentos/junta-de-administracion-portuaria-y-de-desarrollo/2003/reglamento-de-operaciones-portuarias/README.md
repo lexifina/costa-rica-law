@@ -14,3 +14,4 @@ Reglamento de Operaciones Portuarias.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-14 | la propia norma |
+| 2 | 2003-08-07 | Reglamento 29 (2003-08-07) |
