@@ -1,0 +1,1 @@
+Artículo 7°-De ocurrir lo establecido en el artículo 6 anterior; JASEC cobrará al empleado responsable, el costo del carné a su valor de reposición, sin perjuicio del régimen disciplinario laboral que se le aplicará, conforme reglamentos y legislación vigente a tal efecto.

@@ -1,0 +1,1 @@
+Artículo 17.-Si quien hace la advertencia, contenida en el artículo 14, es el jefe inmediato y la misma no es acatada, entonces éste coordinará con el Jefe del Departamento de Personal para aplicar lo que laboralmente corresponda.

@@ -1,0 +1,1 @@
+Artículo 15.-Si el guarda hace la advertencia, contenida en el artículo 14 anterior, y no se acata ni justifica debidamente su no observancia, entonces anotará en un registro, que llevará al efecto, al empleado que incumpla la normativa establecida.

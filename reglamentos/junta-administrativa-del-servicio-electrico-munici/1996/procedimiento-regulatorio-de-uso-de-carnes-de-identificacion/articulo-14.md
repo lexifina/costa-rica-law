@@ -1,0 +1,1 @@
+Artículo 14.-En caso de incumplimiento de lo establecido en el artículo 13, anterior, esa situación deberá ser advertida a los infractores por los guardas y los jefes inmediatos superiores, conforme corresponda y según lo determinen, debiendo la persona en falta colocarse el respectivo carné.

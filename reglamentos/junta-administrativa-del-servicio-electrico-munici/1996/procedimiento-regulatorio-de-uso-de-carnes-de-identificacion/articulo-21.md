@@ -1,0 +1,2 @@
+Artículo 21.-Una vez que el guarda u operador reciba, del empleado de JASEC la autorización para ingresar, lo anotará en el formulario que a tal efecto llevará, en el cual se deberá consignar el nombre y número de cédula del empleado, la fecha y hora de la entrada y la dependencia donde va a estar. De igual manera la hora de salida. Este control de entradas y salidas igualmente se llevará para el personal comprendido en el artículo 19.
+Agosto de 1 996.

@@ -1,0 +1,1 @@
+Artículo 9°-La falta en que incurra el empleado conforme lo establecido en el artículo 8 anterior, se considerará como incumplimiento de sus deberes y obligaciones laborales, por lo que se aplicará el régimen disciplinario laboral, conforme reglamentos y legislación vigentes a tal efecto.

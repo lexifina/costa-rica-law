@@ -1,0 +1,1 @@
+Artículo 18.-Si el ingreso de los empleados de JASEC se produce fuera de horas y días hábiles, sin excepción, el guarda u operador requerirá autorización escrita firmada por el jefe inmediato del autorizado a ingresar, la que deben quedar en poder del guarda u operador.

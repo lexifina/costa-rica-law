@@ -1,0 +1,1 @@
+Artículo 16.-El registro establecido en el artículo 15, será enviado semanalmente al Jefe del Departamento de Personal, quien coordinará con las jefaturas inmediatas de los infractores, para aplicar lo que laboral mente corresponda.

@@ -1,0 +1,1 @@
+Artículo 12.-Los empleados de JASEC que desempeñan funciones de seguridad, vigilancia y operación en los distintos centros de trabajo, determinados como zonas de acceso restringido, serán los encargados de llevar por escrito, estricta y rigurosamente, el control de ingreso a esas instalaciones de los empleados, tanto en horas y días hábiles como no hábiles.
