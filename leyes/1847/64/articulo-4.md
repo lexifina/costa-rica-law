@@ -1,0 +1,1 @@
+Art. 4. Imprimase, circúlese y publíquese para que surta sus efectos. -Dado en la ciudad de San José à los quince dias del mes de octubre de mil ochocientos cuarenta y siete .-José Maria Castro. -Al Ministro de hacienda, guerra y marina Sr. Don Manuel José Carazo.”
