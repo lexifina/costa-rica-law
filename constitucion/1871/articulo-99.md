@@ -1,4 +1,0 @@
-ARTICULO 99.- Para que se considere objetado por el Poder Ejecutivo
-un proyecto de ley, es indispensable que sea devuelto a la Secretaría del
-Congreso, dentro del preciso término de diez días hábiles. Si así no se
-verificare, se tendrá por ley de la República.

@@ -1,8 +1,0 @@
-ARTICULO 132.- Las faltas temporales de los Magistrados, cualesquiera
-que sean sus causas o duración, serán llenadas por medio de sorteo entre
-los Magistrados suplentes. Las definitivas lo serán por elección del
-Congreso, al cual se dará cuenta inmediatamente; si estuviere reunido en
-sesiones ordinarias o extraordinarias, procederá sin más trámites a la
-reposición; si no estuviere reunido, la reposición se hará al comenzar las
-próximas sesiones ordinarias o extraordinarias.
-(Así reformado por ley Nº 136 de 20 de agosto de 1935)
