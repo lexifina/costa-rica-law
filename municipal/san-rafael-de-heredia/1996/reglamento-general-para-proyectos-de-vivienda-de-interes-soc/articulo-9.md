@@ -1,0 +1,2 @@
+Artículo 9°—Notariado y gastos de inscripción.
+De conformidad con el artículo 30 del Reglamento de la Ley del Plan Municipal de Desarrollo Urbano, los gastos y honorarios de Notario que se ocasionen en virtud de traspasos de propiedad, serán cubiertos así, por partes iguales entre la Municipalidad y el respectivo adjudicatario en relación con la venta del lote, en relación con la hipoteca la totalidad la cagará el beneficiario. Sin excepción las escrituras públicas las expedirá el Notario que esté al servicio de la Municipalidad. ^

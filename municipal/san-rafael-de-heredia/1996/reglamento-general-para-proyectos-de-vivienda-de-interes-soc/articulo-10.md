@@ -1,0 +1,2 @@
+Artículo 10.—Comisión de Vivienda Municipal.
+Créase la Comisión de Vivienda Municipal, como órgano permanente del Concejo Municipal, la que está integrada de conformidad como lo designe el presidente del Concejo Municipal, según lo indica el artículo 53, inciso g) del Código Municipal. No podrá exceder más de cinco miembros permanentes, pudiendo ampliarse hasta con tres miembros más, cuando así lo requiere la comisión.

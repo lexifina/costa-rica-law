@@ -1,0 +1,14 @@
+Artículo 5°—Distribución y organización de los beneficiarios:
+El proyecto de lotificación o vivienda municipal estará dividido en bloques, de acuerdo con la distribución de esos lotes en los planos del proyecto de lotificación municipal. Cada bloque tendrá una letra con el que se diferenciará de los demás.
+La ubicación de los beneficiarios en cada bloque se hará mediante público que será convocado por la Comisión de Vivienda Municipal, que se crea en el presente reglamento. Cada bloque nombrará un coordinador, un secretario y un tesorero, para su organización interna. El coordinador representará el bloque ante la Comisión de Vivienda Municipal. Los miembros indicados durarán en sus cargos seis meses, vencido dicho plazo el bloque deberá elegir nuevamente para esos cargos, admitiéndose la reelección solo por dos periodos más.
+Los miembros durarán en sus cargos seis meses, vencido dicho plazo el bloque deberá elegir nuevamente para esos cargos, admitiéndose a reelección solo por dos periodos más.
+Los beneficiarios regularán las actividades a realizar para la obtención de recursos económicos, los que deberán aportar a la Municipalidad de San Rafael de Heredia, para solventar los costos de la infraestructura y otros que el proyecto demande.
+La Municipalidad de San Rafael de Heredia no se hará responsable de los dineros que no ingresen a sus arcas, aunque hayan sido solicitados 3or cualquier persona, ya sean coordinadores o demás miembros de los aloques, a título personal a nombre de la Municipalidad. Los beneficiarios velarán y serán garantes de todos los dineros que tengan que ser depositados en la cuenta corriente de la Municipalidad de San Rafael de Heredia.
+Los coordinadores de cada bloque deberán presentar un informe mensual que contendrá los siguientes elementos:
+1. Identificación del bloque y el nombre del coordinador, secretario y tesorero.
+2. Actividades realizadas, resultado económico de las mismas, aportaciones hechas por los beneficiarios, o donatorios.
+3. Todos los aspectos que se consideren de importancia, como:
+Aquellos beneficiarios que no participen.
+Beneficiarios que demuestren, expresa o implícitamente, no tener interés en pertenecer al proyecto.
+Beneficiarios cuya situación económica varió a una más favorable que lo descalifique del proyecto de vivienda municipal.
+En caso de que la Comisión de Vivienda tenga la presunción de que se ha cometido un acto anómalo e incluso ilícito, hará las investigaciones del caso, dando la oportunidad de defensa a las personas cuestionadas, en caso de que la investigación sea compleja, recomendará al Concejo Municipal las acciones a seguir, incluyendo el pedir la intervención de las autoridades competentes, y en caso de que los hechos investigados puedan constituir delitos, el Concejo Municipal ordenará la presentación de la denuncia en forma inmediata.
