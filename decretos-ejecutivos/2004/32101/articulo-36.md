@@ -1,0 +1,4 @@
+Artículo 36.—Del análisis de la solicitud de liberación parcial de garantía: Para efectos del estudio detallado de la solicitud, que debe elaborar el Área de Trámite, Análisis y Control de Expedientes de la Unidad Técnica del Fideicomiso, de previo a la resolución del Comité de Fideicomiso, son de obligatoria observancia los siguientes requisitos:
+a. El interesado deberá presentar solicitud formal ante el Comité de Fideicomiso.
+b. Se realizará un avalúo, por parte de un perito designado por el Fiduciario, del resto de finca que queda en garantía, para determinar si la garantía subsistente es suficiente para cubrir el saldo adeudado, para tal efecto el solicitante debe suministrar el plano debidamente catastrado del lote a ser segregado, así como del resto de finca que queda en garantía.
+c. Se revisará si en el avalúo practicado se recomienda la constitución de una póliza de seguros contra los riesgos usuales.

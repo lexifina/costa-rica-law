@@ -1,0 +1,1 @@
+Artículo 86.—De las modificaciones al Reglamento: El presente Reglamento, podrá ser modificado en todo o en parte, por el Poder Ejecutivo, siempre y cuando tales modificaciones, no contravengan las normas jurídicas establecidas en la Ley.

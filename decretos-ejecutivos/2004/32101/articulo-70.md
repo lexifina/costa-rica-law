@@ -1,0 +1,1 @@
+Artículo 70.—De los bienes adjudicados: Realizado el remate del bien que garantiza el crédito, y habiéndoselo adjudicado el Fiduciario del Fideicomiso Agropecuario. Este procederá en un plazo no mayor a sesenta días luego de haberse inscrito la protocolización de piezas a publicar la oferta pública de venta. Bajo el procedimiento que se dirá más adelante.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Concesión de prórrogas
+Artículo 51.—De la solicitud de prórrogas: El fideicomisario que demuestre y justifique fehacientemente, la imposibilidad de cancelar el crédito que le ha sido documentado y formalizado por el Fideicomiso, en el plazo originalmente pactado, podrá presentar una solicitud de prórroga del mismo, ante el Comité del Fideicomiso, adjuntando a tal solicitud, los medios probatorios de su imposibilidad de cumplimiento. Tales prórrogas no limitan la posibilidad al amparo de la Ley Nº 8147 y las obligaciones del Fiduciario, de que éste ejerza las acciones necesarias para la recuperación de los recursos, lo cual posibilitaría los arreglos de pago provisionales con el deudor.

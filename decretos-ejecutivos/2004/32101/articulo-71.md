@@ -1,0 +1,1 @@
+Artículo 71.—Bienes sujetos a venta pública: Se considerarán como bienes sujetos a la venta pública por parte del Fiduciario del Fideicomiso aquellos que hayan sido recibidos en dación en pago de alguna operación de crédito que mantuviere algún cliente del Fideicomiso o bien aquellos que hayan sido adjudicados al Fideicomiso en un proceso judicial.

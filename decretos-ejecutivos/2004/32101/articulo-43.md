@@ -1,0 +1,1 @@
+Artículo 43.—Del trámite de los desembolsos a los acreedores originales: El Fiduciario deberá tramitar y documentar los desembolsos a los acreedores originales para la compra y readecuación de las deudas de los fideicomisarios que hayan sido previamente aprobadas por el Comité del Fideicomiso.

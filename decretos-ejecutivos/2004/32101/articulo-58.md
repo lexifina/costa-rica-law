@@ -1,0 +1,4 @@
+CAPÍTULO XIV
+Integración del Comité del Fideicomiso
+Artículo 58.—De los miembros del Comité de Fideicomiso: Por disposición de la Ley Nº 8147, la integración del Comité del Fideicomiso se establece de la siguiente manera: dos representantes nombrados por el Ministerio de Agricultura y Ganadería, quienes deberán contar con experiencia en materia de análisis crediticio, siendo de libre remoción por el Ministerio de Agricultura y Ganadería. Se contarán como integrantes del Comité, dos agricultores representantes de las organizaciones de productores con representación a nivel nacional, y finalmente como quinto y último miembro del Comité, se nombrará a un representante por parte del Fiduciario.
+En el caso de los representantes de las organizaciones de productores, su nombramiento se rige bajo los requisitos establecidos en el siguiente artículo.

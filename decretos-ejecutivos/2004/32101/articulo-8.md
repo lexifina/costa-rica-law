@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los fideicomisarios
+Artículo 8º—De las personas físicas o jurídicas elegibles como fideicomisarios: Serán elegibles como fideicomisarios de estos recursos, las personas físicas o jurídicas que se encuentren organizados o no, deudor original de un crédito, fiadores solidarios, avalistas solidarios o heredero de una propiedad que soporte gravamen derivado de una deuda que pudiese haber sido fideicometida por el deudor original, según documento idóneo que demuestre tal condición y que cumplan con las disposiciones estipuladas en el artículo 1º de la Ley N° 8147 y sus reformas Leyes Nº 8332 y Nº 8390. Debiendo cumplir con las obligaciones previstas en el artículo 4º de la Ley Nº 8147.

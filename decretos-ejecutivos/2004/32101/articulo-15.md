@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Trámite de solicitudes de compra y readecuación
+Artículo 15.—Del trámite y registro de las solicitudes: Los posibles fideicomisarios deberán presentar las solicitudes para acogerse a los beneficios del fideicomiso ante las Agencias de Servicios Agropecuarios del Ministerio de Agricultura y Ganadería, de conformidad con los requisitos establecidos en la Ley Nº 8147 y sus reformas y este Reglamento, quienes a su vez lo harán llegar a las respectivas Direcciones Regionales del MAG, las cuales procederán en primera instancia a la conformación del expediente físico del solicitante y al registro de la información pertinente en la Base de Datos del Fideicomiso.

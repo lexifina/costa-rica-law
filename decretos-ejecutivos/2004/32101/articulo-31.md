@@ -1,0 +1,1 @@
+Artículo 31.—De los faltantes de garantía: En los casos en que existan operaciones con garantía real cuyo valor del avalúo no cubre el cien por ciento de la deuda, el Fideicomiso podrá aceptar que se refuerce la garantía con fianza solidaria, según los términos que establece este Reglamento para este tipo de garantía.

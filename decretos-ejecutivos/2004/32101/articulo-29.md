@@ -1,0 +1,1 @@
+Artículo 29.—De la posibilidad de ofrecer nueva garantía hipotecaria: Como garantía de una operación, el beneficiario puede ofrecer hipoteca sobre bienes inmuebles de su propiedad o de un tercero que consentirá el gravamen; podrá sin perjuicio también constituir otro tipo de garantía.

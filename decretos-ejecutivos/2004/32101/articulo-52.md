@@ -1,0 +1,2 @@
+Artículo 52.—Del análisis técnico y la aprobación: En caso de que así lo requiera el Comité de Fideicomiso, el Fiduciario previamente realizará el análisis del historial de la atención de la operación por parte del fideicomisario y emitirá la recomendación técnica al Comité de Fideicomiso para su evaluación y posterior aprobación o rechazo de la solicitud.
+Para acoger la solicitud el beneficiario deberá estar al día en el pago de los intereses corrientes y moratorios adeudados, y en caso de ser aprobada no podrá exceder el plazo de quince años estipulados en la Ley.

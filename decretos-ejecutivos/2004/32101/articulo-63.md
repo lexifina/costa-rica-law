@@ -1,0 +1,1 @@
+Artículo 63.—De la votación del Comité de Fideicomiso: Para que los acuerdos del Comité sean válidos, deben de haber votado afirmativamente la mitad más uno de los presentes, en cuyo caso quienes voten de forma negativa podrán salvar su voto, y de forma razonada hacerlo constar en la propia acta. En caso de empate, el Presidente del Comité del Fideicomiso tendrá doble voto.

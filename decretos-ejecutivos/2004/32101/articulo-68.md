@@ -1,0 +1,3 @@
+CAPÍTULO XX
+Del cobro judicial, adjudicación y bienes recibidos en dación de pago
+Artículo 68.—Del envío a cobro judicial: Toda operación formalizada a favor del Fideicomiso Agropecuario será enviada a cobro judicial por los abogados externos que haya nombrado el Fiduciario para tal fin, una vez que se presente un atraso en el pago de principal y/o de intereses por más de sesenta días. Dentro de ese plazo y previo al envío a cobro judicial, el Fiduciario a través de los mecanismos que estime convenientes realizará el cobro administrativo de dicha operación, con lo cual se intentará la recuperación del crédito sin recurrir a la sede judicial.

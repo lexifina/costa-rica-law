@@ -1,0 +1,1 @@
+Artículo 5º—De la utilización de los recursos: La utilización de los recursos del Fideicomiso, tendrá las mismas limitaciones o restricciones contenidas en las disposiciones normativas que establece la Ley, sin posibilidad alguna para el Fiduciario, el Fideicomitente, o el Comité de Fideicomiso, de obviar el cumplimiento de esas limitaciones o restricciones.
