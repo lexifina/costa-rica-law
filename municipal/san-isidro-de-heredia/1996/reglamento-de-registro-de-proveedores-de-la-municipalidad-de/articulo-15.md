@@ -1,0 +1,1 @@
+Artículo 15.-La inscripción en el Registro de Proveedores se entenderá por tiempo indefinido y se deberá mantener actualizada según los cambios o variaciones que realicen los proveedores, de lo contrario se presumirá que las condiciones se mantienen invariables.

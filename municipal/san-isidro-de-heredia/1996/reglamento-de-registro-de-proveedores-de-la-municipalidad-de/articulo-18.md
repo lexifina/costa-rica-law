@@ -1,0 +1,1 @@
+Artículo 18.-Cuando al proveedor se le aplique las sanciones previstas en los artículos 99 y 100 de la Ley de Contratación Administrativa y 106 del Reglamento General de Contratación administrativa, tal circunstancia se hará constar en el Registro de Proveedores, en un aparte de registro de sanciones a efecto de dar cumplimiento a las mismas y para efectos de terceros.

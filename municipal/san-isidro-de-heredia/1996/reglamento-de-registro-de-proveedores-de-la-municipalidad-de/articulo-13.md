@@ -1,0 +1,1 @@
+Artículo 13.-Subsanados los vicios o defectos apuntados a la solicitud de inscripción, la Municipalidad cuenta con un plazo de cinco días hábiles para emitir la resolución de aprobación o denegación de la misma.
