@@ -1,0 +1,1 @@
+Artículo 9°—De los permisos de funcionamiento. Los establecimientos aquí regulados, deberán cumplir con lo establecido en el Reglamento de Permisos de Funcionamiento, emitido por el Ministerio de Salud.

@@ -1,0 +1,8 @@
+Artículo 5°—Del almacenamiento. Los establecimientos a los que se refiere el presente Reglamento, deberán cumplir con las siguientes normas sobre almacenamiento:
+a) Los estantes para el almacenamiento de los productos, deben ser de material resistente al fuego e impermeable. El almacenamiento de los productos en el estante debe permitir la circulación interna del aire. La altura máxima para colocar los productos no podrá ser mayor de las tres cuartas partes de la altura total del establecimiento. No deben existir instalaciones descubiertas o iluminación artificial, sobre los estantes. Estas deben estar sobre áreas del paso.
+b) Los productos deben almacenarse identificados con sus correspondientes etiquetas; ser agrupados de acuerdo a su afinidad físico química, atendiendo su grado de toxicidad y manteniendo una adecuada separación entre cada grupo, entre ellos y con la pared, de manera que se favorezca la ventilación. Los productos inflamables deberán almacenarse en una zona especialmente diseñada para este tipo de materiales, que esté separada de los demás agroquímicos, por una pared de material incombustible, con una resistencia mínima al fuego de una hora.
+c) La separación entre los estantes y la pared será de la siguiente:
+- En locales con área de hasta 200 metros cuadrados, 25 cm.
+- En locales con áreas mayores a 200 metros cuadrados, 50 cm.
+- Deben existir pasillos entre una estiba y otra, o entre los estantes; los cuales deben ser iguales o mayores a 80 cm.
+- Si el local se ubica en un terreno inundable, los agroquímicos se deberán colocar a una altura de un 20% mayor, que el nivel de la inundación más alta registrada.

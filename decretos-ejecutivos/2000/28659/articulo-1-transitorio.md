@@ -1,0 +1,1 @@
+Transitorio I.—Se concede un plazo de dieciocho meses, a partir de la publicación de este Decreto, para que los establecimientos que ya cuentan con el permiso de funcionamiento, se ajusten a la presente normativa.
