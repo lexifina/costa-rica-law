@@ -1,0 +1,2 @@
+Artículo 5º—Disposiciones finales. Serán aplicables a este reglamento, las disposiciones del Código Procesal Civil en cuanto se refiere al procedimiento sumario para el cobro en sede judicial, Código Municipal, Ley General de la Administración Pública, Ley Orgánica de la Jurisdicción Contencioso Administrativa, así, como cualquier otra disposición normativa que resulte aplicable en función de materia.
+El presente Reglamento se le da el sustento en los artículos 2º, 3º, 13, incisos c) y d), 43, 68, 69, 70, 71, 74 del Código Municipal.
