@@ -1,0 +1,6 @@
+Artículo 5
+1. La Corporación se encontrará exonerada del pago de derechos arancelarios o de aduanas que graven la importación de vehículos, bienes y equipo técnico, necesarios para la operación de su Oficina de Representación. Asimismo, éstos podrán ser reexportados posteriormente libres de derechos y otras cargas fiscales, de conformidad con la legislación de Costa Rica que rige en la materia.
+2. Los funcionarios y empleados de La Corporación en el territorio de Costa Rica (no ciudadanos de la República de Costa Rica, ni extranjeros con residencia permanente en el país) gozarán de exenciones, concesiones y privilegios no menores a los otorgados a instituciones internacionales en relación con impuestos, derechos arancelarios o de aduanas y otros.
+Dichos funcionarios y empleados:
+a) No estarán sujetos a impuestos u otras cargas tributarias por los sueldos y salarios que reciban de La Corporación; y
+b) Podrán importar su menaje de casa y efectos personales libres de derechos arancelarios o de aduana, siempre que tal importación sea realizada dentro de los seis (6) meses siguientes a su llegada a Costa Rica. Los bienes podrán ser igualmente reexportados libres de derechos y otras cargas fiscales, al final de la permanencia del funcionario o empleado en Costa Rica.

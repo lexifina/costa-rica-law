@@ -1,0 +1,3 @@
+Artículo 8
+Costa Rica brindará a La Corporación, así como a sus funcionarios y empleados, el mismo trato, sin interesar si La Corporación mantiene una oficina, un agente, un gerente, un representante o cualquier otro empleado en el territorio de Costa Rica. Lo señalado es sin perjuicio de las exenciones y privilegios que pudieran otorgarse exclusivamente al personal de una oficina de representación de La Corporación.
+Las exenciones y privilegios serán aplicables a cualquier subsidiaria propiedad exclusiva de La Corporación, que cuente con la aprobación escrita del Gobierno de Costa Rica para el desarrollo de sus actividades.

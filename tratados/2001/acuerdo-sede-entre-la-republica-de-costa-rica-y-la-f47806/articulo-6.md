@@ -1,0 +1,2 @@
+Artículo 6
+Costa Rica facilitará la expedición de visas, permisos y autorizaciones para que los funcionarios y empleados de La Corporación, y sus familias, puedan desarrollar sus actividades en Costa Rica; permitiendo que éstos ingresen, permanezcan, residan y salgan del país en cualquier momento, para dar cumplimiento a los propósitos de La Corporación, observando y dando cumplimiento a las leyes de Costa Rica.
