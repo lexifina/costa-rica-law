@@ -1,0 +1,13 @@
+DECRETOS
+Nº 31135-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140 incisos 3) y 18), y 146, de la Constitución Política; artículos 26 y 27 de la Ley General de la Administración Pública, la Ley N° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre de 2001 y la Ley N° 7839 del 15 de octubre de 1998.
+Considerando:
+1º—Que el Instituto Nacional de Estadística y Censos (INEC), creado mediante Ley N° 7839, denominada "Ley del Sistema de Estadística Nacional" publicada en el Alcance N° 77-B, a La Gaceta N° 214 del 4 de noviembre de 1998, como institución autónoma de derecho público, es el órgano rector técnico de las Estadísticas Nacionales y Coordinador del Sistema Estadístico Nacional (SEN).
+2º—Que con fundamento en el artículo 35° de la Ley que crea el INEC, esta institución puede recibir transferencias, aportes y donaciones de instituciones públicas, personas físicas o jurídicas y de cualesquiera otras entidades nacionales o extranjeras, así como recursos de cooperación internacional puestos a disposición del Estado para financiar actividades vinculadas con la recolección, procesamiento y difusión de la información estadística.
+3º—Que el Instituto Nacional de Estadística y Censos requiere realizar la Encuesta de Ingresos y Gastos de los Hogares y actualización del índice de Precios al Consumidor, ejecutar el proyecto "Encuesta sobre Trabajo Infantil y Desarrollo de una Base de Datos sobre el Trabajo Infantil"; así como la elaboración del Censo Cafetalero en las Regiones de Turrialba y Coto Brus.
+4º—Que mediante Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2003, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito la Autoridad Presupuestaria.
+5º—Que el límite fijado al INEC en el artículo 1° del Decreto Ejecutivo N° 30214-H, no contempla los gastos que conlleva la ejecución de encuestas indicados en el punto 3 anterior, por lo que resulta necesario ampliar el límite de gasto presupuestario de dicha institución. Por tanto,
+Decretan:
+Artículo 1º—Modificase el artículo 1° del Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, para fijar en ¢1.100,2 millones el límite de gasto presupuestario del Instituto Nacional de Estadísticas y Censos para el año 2003.
