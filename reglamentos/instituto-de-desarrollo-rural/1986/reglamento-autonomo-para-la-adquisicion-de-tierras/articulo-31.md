@@ -40,12 +40,7 @@ Define el tamaño de las fincas, para efectos agrarios en pequeñas, medianas y 
 D.- Criterios económicos:
 D.1) Costo de asentamientos por familia:
 Se calcula, dividiendo el último valor de oferta de la finca entre la cabida estimada de familias a asentar calculada por el punto A.3.
-D.2) Forma de pago:
-Valora la forma como el vendedor de la finca acéptale pago respectivo y su relación con el porcentaje de bonos agrarios en la negociación.
-E.-Otros criterios:
-Son criterios, que a discreción de Junta Directiva valoran otras condiciones favorables para la adquisición de una finca.
-a) Sólo una finca que se ofrece en la zona.
-b) Existe un proyecto de desarrollo que requiere un proceso agrario de apoyo.
-c) Parámetros de pobreza y mala distribución de la tierra en la zona donde se ubica la finca.
+D.2) (Este punto fue eliminado mediante sesión N° 065 del 09 de setiembre de 1997).
+E.-(Este inciso fue eliminado mediante sesión N° 065 del 09 de setiembre de 1997).
 (Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 25 al 27 actual).
 (Así corrida su numeración mediante sesión N° 060 del 29 de octubre de 1996, que lo traspasó del anterior artículo 27 al 31 actual).

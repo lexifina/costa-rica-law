@@ -4,5 +4,5 @@ a) Recomendación técnica por escrito del Departamento Servicios para el Desarr
 b) Recomendación por escrito de la dirección regional respectiva.
 c) Avalúo del inmueble por técnicos del IDA y/o Ministerio de Hacienda, Dirección General de Tributación Directa.
 d) Estudio de la situación legal de la propiedad, elaborado por funcionarios del Departamento de Ordenamiento Agrario.
-e) Nota de la municipalidad donde se ubica el inmueble, haciendo constar que no existe impedimento para desarrollar el proyecto; la que debe ser presentada por el director regional respectivo.
+e) (Este inciso fue eliminado mediante sesión N° 065 del 09 de setiembre de 1997).
 (Así adicionado mediante sesión N° 060 del 29 de octubre de 1996).

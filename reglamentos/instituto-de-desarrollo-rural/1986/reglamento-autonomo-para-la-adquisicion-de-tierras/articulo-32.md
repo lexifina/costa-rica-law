@@ -18,11 +18,11 @@ más de 2 años | 3 |
 e) Procedencia | | 1
 del cantón | 1 |
 fuera del cantón | 0 |
-A 2) Acceso a servicios básicos | | 6
-educación | 2 |
-transporte | 2 |
-salud | 1 |
-otros | 1 |
+A 2) Acceso a Servicios Básicos | 9 Puntos |
+Educación | 3 |
+Transporte | 3 |
+Salud | 2 |
+Otros (Así reformado el punto anterior mediante sesión N° 065 del 09 de setiembre de 1997). | 1 |
 A.3) Cabida familiar estimada | | 12
 20 familias | 3 |
 40 familias | 6 |
@@ -31,13 +31,12 @@ A.3) Cabida familiar estimada | | 12
 Puntaje = 0,15 x (cabida familiar) | |
 B.- Criterios Técnicos | | 30
 B.1) Capacidad de uso | |
-Tierra Clase I | 25 |
-Tierra Clase II | 23 |
-Tierra Clase III | 20 |
-Tierra Clase IV | 15 |
-Tierra Clase V | 8 |
-Tierras clase VI | 5 |
-Tierras clase VII y más (Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990). | 0 |
+Tierras Clase I y II | 30 |
+Tierras Clase III | 2 5 |
+Tierras Clase IV | 22 |
+Tierras Clase V | 16 |
+Tierras Clase VI | 5 |
+Tierras Clase VII y más (Así reforrmado el punto anterior mediante sesión N° 065 del 09 de setiembre de 1997). | -5 |
 B 2) Disponibilidad de aguas: | |
 Superficiales | | 5
 Todo el año. Buena distribución y acceso | 5 |
@@ -49,12 +48,11 @@ certificación del Registro público conteniendo propietario, gravámenes, anota
 documento de propiedad en fincas sin inscribir | 3 |
 plano catastrado del área en negociación | 1 |
 C.2) Acceso a la finca | | 10
-medio automotor permanente | 10 |
-automotor restringido | 5 |
-medio ferrocarril | 3 |
-tracción animal | 5 |
-medio lancha | 7 |
-sin acceso | 10 |
+Medio automotor permanente | 12 |
+Automotor restringido | 7 |
+Tracción animal | -5 |
+Lancha | -7 |
+Sin acceso (Así reformado el punto anterior mediante sesión N° 065 del 09 de setiembre de 1997). | -10 |
 C.3). Tamaño de la finca | | 2
 menores de 200 ha | 0 |
 de 200 a 500 ha | 1 |
@@ -65,32 +63,26 @@ De 100 a 300 Has. | 2 |
 Mayores de 300 Has (Así adicionado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990). | 3 |
 D. Criterios Económicos
 D.1 Costo de asentamiento por familia
-COSTO DE ASENTAMIENTO POR FAMILIA
-SEGUN REGION
-(en miles de colones)
-Central | P,central | Brunca | Chorot. | H. Norte | H. Atl. | Puntaje
-750 | 625 | 500 | 500 | 625 | 500 | 15
-1.125 | 938 | 750 | 750 | 938 | 750 | 7.5
-1.500 | 1.250 | 1.000 | 1.000 | 1.250 | 1.000 | 0
-1.875 | 1.563 | 1.250 | 1.250 | 1.563 | 1.250 | -7.5
-2.250 | 1.875 | 1.500 | 1.500 | 1.875 | 1.500 | -15
-Nota: Estos valores serán revisados y ajustados en forma anual, de acuerdo al índice de inflación oficial.
-(Así reformado el inciso anterior mediante sesión N° 91 del 06 de diciembre de 1993).
+Puntaje | Central | Pac. Central | Chorotega | Brunca | H. Atlántica | H. Norte
+15 | 1197,75 | 998,13 | 798. 50 | 798.50 | 998.13 | 998,13 | 15
+7.5 | 1796.63 | 1497,99 | 1197.75 | 1197.75 | 1497.99 | 1497,99 | 7,5
+0 | 2395,50 | 1996.25 | 1597,00 | 1597.00 | 1996,25 | 1996,25 | 0
+-7.5 | 2994,38 | 2496.11 | 1996,25 | 1996,25 | 2496,11 | 2496.11 | -7.5
+-15 | 3.593,25 | 2994,38 | 2395,50 | 2395,50 | 2994,38 | 2994,38 | -15
+El Departamento de Formación de Asentamientos en conjunto con la presidencia ejecutiva revisará y ajustará en forma automática, cada año los valores anteriores, basándose para ello en el índice de inflación reportado por el Banco Central de Costa Rica.
+(Así reformado el punto anterior mediante sesión N° 065 del 09 de setiembre de 1997).
 D.2 Cálculo de puntaje según región
-Para las regiones Huetar Atlántica, Bronca y Chorotega: Puntaje = 30-0,0375 (costo por familia en miles de colones) Regiones Pacífico Central y Huetar Norte:
-Puntaje = 30-0,030 (costo por familia en miles de colones) Región Central:
-Puntaje = 30-0,025 (costo por familia en miles de colones)
-Puntaje = 0,1 x (% de bonos negociados).
-(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
-D.3 Forma de pago 5
-100/0 en bonos 1
-200/0 en bonos 2
-30% en bonos 3
-40% en bonos 4
-50% en bonos 5
-(Así adicionado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
-E.-Otros criterios | | 5
-favorables | 5 |
-desfavorables | 0 |
+Se calcula de la siguiente forma: 30 menos la multiplicación del costo de asentamiento por familia en miles de colones por el factor de ponderación, según la siguiente tabla:
+Factor Ponderación
+Central 0,012523
+Pacífico Central 0,015028
+Chorotega 0,018785
+Brunca 0,018785
+Huetar Atlántica 0,015028
+Huetar Norte 0,015028
+(Así reformado el punto anterior mediante sesión N° 065 del 09 de setiembre de 1997).
+D.3 (Este punto fue eliminado mediante sesión N° 065 del 09 de setiembre de 1997).
+(Así adicionado el punto anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+E.- (Este inciso fue eliminado mediante sesión N° 065 del 09 de setiembre de 1997).
 (Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 26 al 28 actual).
 (Así corrida su numeración mediante sesión N° 060 del 29 de octubre de 1996, que lo traspasó del anterior artículo 28 al 32 actual)

@@ -20,3 +20,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | 5 | 1990-11-26 | Reglamento 85 (1990-11-26) |
 | 6 | 1993-12-06 | Reglamento 91 (1993-12-06) |
 | 7 | 1996-10-29 | Reglamento 60 (1996-10-29) |
+| 8 | 1997-09-09 | Reglamento 65 (1997-09-09) |
