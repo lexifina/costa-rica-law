@@ -1,1 +1,1 @@
-Artículo 32.-Rige a partir de su publicación.
+Artículo 32.- Rige a partir de su publicación.

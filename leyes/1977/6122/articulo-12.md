@@ -1,3 +1,1 @@
-Artículo 12.- El que incumpliere cualquiera de las obligaciones
-prescritas en los artículos diez y once será sancionado con diez a sesenta
-días multa.
+Artículo 12.- (Derogado expresamente por el artículo 250 de la Ley 7331 de 13 de abril de 1993).

@@ -1,3 +1,1 @@
-Artículo 5º.- El permiso deberá ser renovado anualmente y en la solicitud
-de renovación se indicarán las variaciones que se hubieran producido en
-cuanto a los datos consignados en la solicitud original.
+Artículo 5º.- El permiso deberá ser renovado anualmente y en la solicitud de renovación se indicarán las variaciones que se hubieran producido en cuanto a los datos consignados en la solicitud original.

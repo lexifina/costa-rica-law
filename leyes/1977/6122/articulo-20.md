@@ -1,11 +1,2 @@
-Artículo 20.- Previamente a conceder la autorización o la renovación
-anual, el Gobernador deberá proceder conforme a lo establecido por el
-artículo cuarto de esta ley.
-Cuando la Gobernación comprobare que el propietario del
-establecimiento o alguno de sus empleados o dependientes hubiera sido
-condenado por alguno de los delitos contra la propiedad o la buena fe de
-los negocios, ya sea como autor o como cómplice, encubridor o receptador,
-revocará inmediatamente la autorización concedida. Igual medida aplicará
-cuando trabajare, sirviere o estuviere presente en el negocio, de modo
-regular, alguna persona que no hubiera sido declarada conforme lo ordena
-el inciso c) del artículo dieciocho.
+Artículo 20.- Previamente a conceder la autorización o la renovación anual, el Gobernador deberá proceder conforme a lo establecido por el artículo cuarto de esta ley.
+Cuando la Gobernación comprobare que el propietario del establecimiento o alguno de sus empleados o dependientes hubiera sido condenado por alguno de los delitos contra la propiedad o la buena fe de los negocios, ya sea como autor o como cómplice, encubridor o receptador, revocará inmediatamente la autorización concedida. Igual medida aplicará cuando trabajare, sirviere o estuviere presente en el negocio, de modo regular, alguna persona que no hubiera sido declarada conforme lo ordena el inciso c) del artículo dieciocho.
