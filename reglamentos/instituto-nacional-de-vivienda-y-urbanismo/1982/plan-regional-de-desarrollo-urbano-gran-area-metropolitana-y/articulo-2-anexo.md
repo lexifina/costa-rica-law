@@ -45,9 +45,10 @@ Como ampliación de lo que indica el Reglamento para el Control Nacional de Frac
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
 Zonas de protección especial "Proyecto de riego del río Itiquís".
 Artículo 8°—El área de "Proyecto de riego del río Itiquís", comprendida dentro de la Zona de Protección indicada en el Plan Regional Metropolitano para las ciudades del valle central, se somete a las siguientes regulaciones:
-a) No se permitirá ejecutar fraccionamiento en parcelas resultantes menores a 5 Ha salvo frente a calle pública existente en lotes con fondos no mayores de 50 metros cuadrados y siempre que no estén afectados por canales a juicio de la autoridad competente del Distrito de Riego. El límite de 5 hectáreas es orientador, pudiendo la autoridad de riego ajustarlo de acuerdo con las características de productibilidad del suelo.
-b) No se permiten urbanizaciones, salvo en los sitios indicados en el artículo 29 del Plan Regional de Desarrollo Urbano.
+a).—No se permitirá ejecutar fraccionamientos en parcelas resultantes menores de 2 ha, salvo frente a calle pública existente en lotes no menores de 150 m2 ni mayores de 500 m2 y si las fincas tienen más de 75% del área dentro de los 50 m lineales de fondo se puede segregar toda, siempre qué no estén afectados por canales de riego a juicio de la autoridad competente del Distrito de Riego.
+b).—No se permiten urbanizaciones, salvo en los sitios indicados en el artículo 4° del Plan Regional de Desarrollo Urbano".
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+(Así reformado por Acuerdo de Junta Directiva del INVU N°3539, publicado en La Gaceta Nª 151 de 10 de agosto de 1984).
 Artículo 9°—En la zona del proyecto de riego sólo se permitirán las siguientes construcciones:
 a) Viviendas para uso de los propietarios y otras necesarias para uso o servicio de las fincas a juicio de la autoridad del Distrito de Riego.b) Agroindustria y centros de mecanización agrícola;
 c) Relacionadas con la producción agropecuaria local;
@@ -87,10 +88,11 @@ En estas zonas son incompatibles los siguientes usos: culto, institucional, educ
 f) Zona 3 Agrícola.
 Son incompatibles todos los usos, a excepción de la agricultura. Se prohibe el fraccionamiento y la urbanización. No se concederán permisos de construcción.
 g) El trámite de permisos de aquellas edificaciones de más de dos pisos que se pretendan localizar dentro de un radio de 6 Km, con centro en el edificio terminal del Aeropuerto Internacional Juan Santamaría y fuera de las zonas mencionadas anteriormente deberán contar con la aprobación de la DGAC.
-Quedan involucradas en esta restricción los siguientes distritos: en el cantón de Santa Ana; Pozos, Uruca, Piedades y Brasil; en el cantón de Escazú: San Rafael; en el cantón central de San José: Pavas y La Uruca; en el cantón de Belén:
-Asunción, Ribera y San Antonio; en el cantón central de Heredia: Ulloa y San Francisco; en el cantón de San Joaquín de Flores: Llórente, San Joaquín y Barrantes;
-en el cantón de Santa Bárbara: San Juan y San Pedro; en el cantón central de Alajuela: Desamparados, Río Segundo, Alajuela, Tambor, San Isidro, San José, San Antonio y San Rafael.
+Quedan involucradas en esta restricción los siguientes distritos: en el cantón de Santa Ana; Pozos, Uruca, Piedades y Brasil; en el cantón de Escazú: San Rafael; en el cantón central de San José: Pavas y La Uruca; en el cantón de Belén:Asunción, Ribera y San Antonio; en el cantón central de Heredia: Ulloa y San Francisco; en el cantón de San Joaquín de Flores: Llórente, San Joaquín y Barrantes;en el cantón de Santa Bárbara: San Juan y San Pedro; en el cantón central de Alajuela: Desamparados, Río Segundo,
+La Dirección General de Aviación Civil, hechos los estudios necesarios de cada caso, puede autorizar vivienda en las zonas A y B o la segregación en parcelas de menor tamaño que las establecidas en cada caso, si considera que con ello no se causa perjuicio al desarrollo del Aeropuerto Internacional Juan Santamaría. En las citadas zonas no se permitirán urbanizaciones.
+Los límites entre zonas podrán ser modificados por la Dirección General de Aviación Civil para que colindantes con una misma calle tengan iguales restricciones.
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).
+(Así ampliado por Acuerdo de Junta Directiva del INVU N°3539, publicado en La Gaceta Nª 151 de 10 de agosto de 1984).
 Artículo 17.—Aeropuerto Tobías Bolaños
 En los alrededores del Aeropuerto Tobías Bolaños, según plano que puede ser consultado en la Dirección General de Aviación Civil, la Dirección de Urbanismo del INVU y Municipalidad de San José, se establece una franja de control de altura que se medirá del centro del edificio terminal 250 m al norte y 250 m al sur hasta una distancia de 2 Km en direcciones este y oeste. Para este efecto cualquier edificación deberá contar con la autorización de la Dirección General de Aviación Civil.
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta Nª 74 de 20 de abril de 1983).

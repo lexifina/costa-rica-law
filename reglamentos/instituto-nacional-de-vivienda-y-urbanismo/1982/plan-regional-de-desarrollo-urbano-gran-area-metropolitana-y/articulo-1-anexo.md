@@ -63,8 +63,9 @@ Heredia | Central | Heredia Mercedes San Francisco Ulloa
 | San Pablo | San Pablo
 Artículo 2°— Establecer en el área anterior una "Zona Especial de Protección de conformidad con el artículo 25 de la Ley de Planificación Urbana y una "Zona de Crecimiento Urbano", según plano cuyo original puede ser consultado en el INVU, MIDEPLAN y municipalidades correspondientes. El límite indicado en dichos planos será ajustado por la Dirección de Urbanismo conforme con las características de la zona tomando en consideración, cuando menos, los aspectos geofísicos que incluyan entre otros, potencial y vocación del duelo y urbanísticos (accidentes naturales, pendientes, hidrografía, calle, luz, agua, etc.).
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
-Artículo 3°—Las fincas que tengan terrenos en ambas zonas podrán extender cualquiera de los usos en un porcentaje a estudiar en cada caso.
+Artículo 3°—Las fincas por cuyos terrenos se definió el límite de contención .urbana o que estén próximos con este a no más de 100 m podrán extender el uso urbano dentro del área de protección en un porcentaje no mayor del 50% del área total de la finca o hasta 200 m del límite, cualquiera que fuese menor".
 (Así adiciónado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
+(Así reformado por Acuerdo de Junta Directiva del INVU N° 3539, publicado en La Gaceta N°151 de 10 de agosto de 1984)
 Artículo 4°—La zona especial de protección tendrá un uso predominantemente agrícola y queda sometida a las siguientes regulaciones:
 Dentro de la misma se permitirán urbanizaciones en las áreas de expansión urbana de los siguientes poblados y de cualquier otro de características similares a juicio de la Dirección de Urbanismo.
 1 l-U-2 2 2-2.2 3 2-1-3 4 2.1.6 5 2-1-7 6 2-1.13 2-5-1 2-8-1 9 2-8-8 10 3-1-8 U 3-2.2 12 3-2-2 13 3-2-3 14 3-6-1 15 3-6-3 16 3-6-2 17 3-7-5 18 4-2.2 19 4-4-1 20 4-4-4 21 4-6-1 22 4.6-2 | Las Nubes San José Cinco Esquinas Itiquis Sabanilla Tuetal Norte Atenas Sen Pedro San Rafael Tierra Blanca Ujarrás Ajenjal Orosi Pacayas• Capellades Cot •San Martín San Pedro Santa Bárbara Jesús San Isidro San José | San Rafael, Vázquez de Coronado Alajuela Carrizal, Alajuela San Isidro, Alajuela Alajuela Tambor., Alajuela Alajuela Poás, Alajuela Pois, Alajuela Cartago Paraíso Santiago de Paraíso Cartago Cartago Cartago Cartago Santa Rosa, Cartago Barva Heredia Santa Bárbara, Heredia Heredia San Isidro de Heredia
@@ -86,6 +87,7 @@ Artículo 5°—En la Zona Especial de Protección sólo se permitirán las sigu
 4) Para servicios estatales.
 5) Para establecimientos educacionales privados y organismos internacionales;
 con una cobertura no mayor de 10%.
-6) Para clubes campestres o proyectos multifamiliares en terrenos no menores de 5 hectáreas y con una cobertura no mayor de 10%.
+6).—Para clubes campestres o proyectos multi-familiares en terrenos no menores de 2 hectáreas y con una cobertura no mayor de 10%.
 7) De infraestructura para redes nacionales y para redes locales necesarias para el servicio de la zona.
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
+(Así reformado por Acuerdo de Junta Directiva del INVU N° 3539, publicado en La Gaceta N°151 de 10 de agosto de 1984)
