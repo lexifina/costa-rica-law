@@ -1,0 +1,3 @@
+Artículo 43.—El Comité Cantonal deberá someter su presupuesto a la aprobación del Concejo Municipal, sujeto a las disposiciones de la ley orgánica de la Contraloría General de República. Debe presentarlo en la fecha indicada en el inciso p) del articulo 5 de este reglamento.
+El presupuesto del Comité Cantonal y sus distintos órganos, debe elaborarse reflejando los planes propuestos y programas que se ejecutarán en el periodo que éste cubre; los gastos presupuestarios no pueden exceder los ingresos estimados.
+Asimismo debe contener una estimación de ingresos, incluyendo una descripción clara y concisa de lo que se persigue hacer durante el año fiscal.

@@ -1,0 +1,1 @@
+Artículo 45.—Los recursos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los limites del cantón, así como en la capacitación de atletas. entrenadores, árbitros y dirigentes isidreños.

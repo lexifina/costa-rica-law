@@ -1,0 +1,1 @@
+Artículo 89.—Cualquier reforma que se proponga a este reglamento, se pondrá en conocimiento del Comité Cantonal para su valoración y recomendación, la que remitirá al Concejo Municipal para su aprobación o rechazo.

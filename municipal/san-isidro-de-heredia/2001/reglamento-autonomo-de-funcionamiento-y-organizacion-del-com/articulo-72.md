@@ -1,0 +1,1 @@
+Artículo 72.—Los Comités Comunales pueden nombrar las comisiones que consideren necesarias para el desempeño de sus facultades y obligaciones. A estas comisiones se les aplicará la misma reglamentación estipulada en la Sección VIII del Capítulo III del Titulo 1 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 2°—El Concejo Municipal de la Municipalidad de San Isidro de Heredia promulga el presente reglamento, de conformidad con el articulo 165 del Código Municipal, para regular y reglamentar la organización y funcionamiento del Comité Cantonal de Deportes y Recreación del cantón.

@@ -1,0 +1,1 @@
+Transitorio II.—Dentro del mes siguiente a la publicación de este Reglamento, el Comité Cantonal debe realizar todo el procedimiento para la elección de los Comités Comunales de los cuatro distritos del cantón.

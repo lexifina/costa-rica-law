@@ -1,0 +1,2 @@
+Artículo 84.—Para la realización de eventos o actividades deportivas como ferias, bingos, fiestas, etc., dentro de las instalaciones deportivas o en los alrededores de las mismas debe contarse con la autorización escrita del Comité Cantonal, o del Comité Comunal si la administración de la instalación deportiva a sido delegada en éste.
+Para su otorgamiento la el Comité Cantonal o el Comité Comunal debe exigir una garantía de cumplimiento en dinero constante, por un monto suficiente, para resarcir el pago de los eventuales daños que puedan ocasionarse al inmueble.

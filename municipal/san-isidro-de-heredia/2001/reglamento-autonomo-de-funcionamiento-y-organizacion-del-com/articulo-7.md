@@ -1,0 +1,2 @@
+Artículo 7°—Los miembros y demás órganos que integran el Comité Cantonal en el desempeño de sus funciones deberán ajustarse a las normas y procedimientos que señale la Ley y el presente Reglamento.
+Cada miembro desempeñara sus funciones de conformidad con las disposiciones de esa normativa y será responsable de cualquier actuación contraria a la misma, excepto en los casos en donde de manera expresa y manifiesta haya salvado su voto y así conste en actas.

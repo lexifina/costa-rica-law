@@ -1,0 +1,2 @@
+Artículo 35.—Cuando algún miembro del Comité Cantonal u otro órgano adscrito a dicho comité incurriese en una actividad dolosa o falta a la moral, se le tramitará el respectivo expediente que será enviado al departamento legal de la Municipalidad para lo que corresponda.
+El Comité Cantonal y el Concejo Municipal procederán de inmediato a reponer el miembro separado de conformidad con el articulo anterior.

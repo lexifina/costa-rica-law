@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros de la Junta Directiva durarán en sus cargos dos años, podrán ser reelectos, y no devengarán dietas ni remuneración alguna, ya que el cargo es ad honorem. Tampoco gozarán del reconocimiento de gastos de viaje, ni de representación, excepto en los casos que estos gastos hayan sido presupuestados para representación oficial del Comité Cantonal.

@@ -1,0 +1,2 @@
+Artículo 88.—Para gozar de cualquier reconocimiento, así como de todos los beneficios e implementos deportivos, excepción de impuestos, participación en los juegos cantonales, juegos deportivos nacionales y campeonatos a nivel federado u oficiales, toda organización deportiva o recreativa puede afiliarse a los órganos dependientes del Comité Cantonal.
+Para efectos anteriores el Comité Cantonal emitirá el reglamento correspondiente donde se establecerán los requisitos que se requieren en tal caso.

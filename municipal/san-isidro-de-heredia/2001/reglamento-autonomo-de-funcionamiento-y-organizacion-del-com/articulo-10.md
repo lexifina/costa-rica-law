@@ -1,0 +1,1 @@
+Artículo 10.—Todas las organizaciones adscritas al Comité Cantonal, deberán entregar a éste dentro de los segundos quince días del mes de junio de cada año. los planes de trabajo para el año inmediato, los cuales serán sujeto de aprobación por parte del Comité Cantonal y se ejercerán los controles para su ejecución.

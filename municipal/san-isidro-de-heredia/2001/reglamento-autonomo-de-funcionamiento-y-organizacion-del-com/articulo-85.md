@@ -1,0 +1,2 @@
+Artículo 85.—El Comité Cantonal podrá autorizar la colocación de rótulos en las instalaciones deportivas, previa cancelación de la tarifa por tal servicio de conformidad con el inciso q) del articulo 5 de este Reglamento.
+Tales rótulos no podrán hacer alusión a publicidad para bebidas alcohólicas, anuncio de cigarrillos o aquellos que por su contenido atenten contra los principios morales de la comunidad.

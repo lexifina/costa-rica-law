@@ -1,0 +1,1 @@
+Artículo 75.—El Comité Cantonal deberá darle participación a todos los grupos deportivos organizados de la comunidad, en estricto apego al orden prioritaria establecido en el artículo 70 de este reglamento, en el cual se reglamenta que los equipos organizados de liga menor contarán con privilegio especial para el uso de dichas instalaciones.

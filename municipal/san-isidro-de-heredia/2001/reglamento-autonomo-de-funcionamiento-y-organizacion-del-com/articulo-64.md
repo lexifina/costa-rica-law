@@ -1,0 +1,2 @@
+Artículo 64.—Cada organización deportiva, recreativa y comunal del respectivo distrito, podrá postular tantos candidatos como lo tenga a bien. los cuales deberán registrarse en el Comité Cantonal a más tardar dos días antes de la Asamblea respectiva.
+Una vez finalizado el periodo concedido para las postulaciones, el Comité Cantonal levantara una lista con todos los postulantes, la cual se hará visible en cada una de las asambleas respectivas.
