@@ -1,0 +1,1 @@
+Transitorio II.—El beneficio por invalidez será revisado cinco años después de aprobado este Reglamento, de manera que si las condiciones actuariales y financieras del Fondo lo permiten, el mismo pueda ser modificado a efecto de ampliar los beneficios para los trabajadores que con posterioridad a la respectiva reforma entren en estado de invalidez.

@@ -1,0 +1,3 @@
+SECCIÓN IV
+De la contabilidad y fiscalización
+Artículo 17.—De la Contabilidad y fiscalización. La contabilidad del Fondo será llevada por la Gerencia de Gestión Contable del Banco. Las revisiones periódicas se efectuarán a discreción de la Auditoría del Banco y los auditorajes externos conjuntamente con las que se realizan al Banco o cuando la Junta Administrativa así lo requiera, todo de conformidad con lo que dispone el Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, Creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de IVM al particular.

@@ -1,0 +1,6 @@
+Artículo 23.—De la constitución de las Reservas. Las reservas estarán constituidas de la siguiente manera:
+1. Cuenta de Capitalización Individual: Esta cuenta se constituirá de la siguiente forma.
+a) Por la acreditación en la cuenta individual de los aportes del 10% que hace el Banco al Fondo, sobre el total de salarios de cada trabajador.
+b) El aporte del 5% del salario ordinario, que hace al Fondo cada trabajador integrante de éste, a su cuenta individual, según se establece en el artículo 21 del presente Reglamento.
+c) Las utilidades provenientes de las inversiones en valores. Estas sumas se acreditarán, en proporción a las sumas que el empleado tenga individualizadas, en cuentas transitorias de resultados que se liquidarán semestralmente, una vez deducidas las sumas que se incluirán en la Reserva Fondo Contingente.
+2. Reserva del Fondo Contingente: Esta reserva estará compuesta por una fracción no mayor del 10% de los rendimientos que se obtengan de la Reserva Individualizada. En caso de que en algún momento la Evaluación Actuarial respectiva determine, que por razón del perfil de beneficios consignado en el Reglamento, tal fracción deba ser superior a un 10% de los rendimientos, deberá ajustarse el perfil de beneficios para que el costo actuarial no supere tal nivel.

@@ -1,0 +1,4 @@
+Transitorio III.—En adición a las reservas señaladas en el artículo 22, el Fondo mantendrá una Reserva para Pensiones en Curso de Pago, para los jubilados que se acogieron al perfil de beneficios del Reglamento aprobado en junio de 1989.
+Esta reserva estará conformada por el actual monto consignado en la reserva para el pago de las pensiones en curso, más las utilidades que se obtengan por medio de la administración de los activos de la Reserva. En el evento de que se produzca una subvaluación de la reserva, la Junta Administrativa, con fundamento en un estudio actuarial, podrá autorizar el ajuste de dicha reserva, obteniendo los recursos, en su orden, del producto de las utilidades logradas en cada período, de los aportes del 10% del Banco y de los aportes de los empleados.
+Aprobado por nuestra Junta Directiva General en sesión Nº 7-03, artículo XIX, del 11 de febrero del 2003.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

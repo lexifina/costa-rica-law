@@ -1,0 +1,1 @@
+Artículo 12.—Del quórum de reunión y de votación. El quórum estará conformado por lo menos con tres miembros de la Junta. Los acuerdos se tomarán por simple mayoría. En caso de empate y después de una segunda votación, el (la) presidente ejercerá el voto de calidad.

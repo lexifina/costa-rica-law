@@ -1,0 +1,6 @@
+SECCIÓN III
+De los montos de las prestaciones
+Artículo 28.—Prestación por vejez. El trabajador que cumpla con los requisitos establecidos en el artículo 25, podrá optar por una de las siguientes modalidades de renta, o por una combinación entre la renta permanente y la renta vitalicia (conforme al artículo 22 de la Ley de Protección al Trabajador):
+a) Renta Permanente: La prestación por vejez que reciba el trabajador por parte del Fondo, consiste en el producto de los rendimientos netos de la inversión del monto acumulado en su cuenta individual. El saldo se entregará en forma proporcional a los beneficiarios a la muerte del afiliado.
+b) Renta Vitalicia: En caso de que el trabajador decida tomar la totalidad o parte de los recursos acumulados en su cuenta individual para adquirir una renta vitalicia con una entidad aseguradora, el Fondo hará efectivo el traslado del monto a la entidad seleccionada, en un plazo no mayor de quince días.
+c) Renta Programada: Plan de beneficios en el que el fondo gira al afiliado un monto periódico con cargo a su cuenta de capitalización individual, durante un plazo que contempla la expectativa de vida al momento del retiro. En caso de fallecimiento del trabajador, la suma remanente se distribuirá entre sus beneficiarios.

@@ -1,0 +1,3 @@
+SECCIÓN III
+Del Comité de Inversiones
+Artículo 15.—Del Comité de Inversiones. La Junta Administrativa creará un Comité de Inversiones integrado por dos de sus miembros, el (la) Gerente del Fondo y un miembro ajeno a la entidad. El (la) Gerente de Banca de Inversión y el (la) Gerente del Puesto de Bolsa, serán asesores de esta comisión y asistirán a las sesiones de la misma con derecho a voz. Este Comité operará de acuerdo con los lineamientos del Reglamento para la Regulación de los Sistemas de Pensiones Complementarias, Creados por Ley Especial o Convención Colectiva y los Regímenes Públicos Sustitutos del Régimen de IVM.

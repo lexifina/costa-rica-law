@@ -1,0 +1,1 @@
+Artículo 19.—De la Competencia de la Auditoría Interna del Banco. La Auditoría Interna del Banco tendrá competencia para vigilar el adecuado cumplimiento y aplicación de este Reglamento, la correcta contabilidad y registro de sus operaciones y el normal desarrollo de sus actividades.
