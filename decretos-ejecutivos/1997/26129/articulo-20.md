@@ -1,0 +1,2 @@
+Artículo 20.—En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, el Presidente y el Secretario serán sustituidos por el Vicepresidente, o por un Presidente ad-hoc y un Secretario suplente, respectivamente.
+El Vicepresidente en ausencia del Presidente o del Secretario tendrá las facultades y atribuciones indicadas en los artículos 18 y 19 de este reglamento interno, respectivamente.

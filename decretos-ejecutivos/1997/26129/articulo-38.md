@@ -1,0 +1,1 @@
+Artículo 38.—Los miembros de CONACE serán responsables de realizar las gestiones necesarias para que las instituciones y empresas incorporen en sus respectivos presupuestos las partidas requeridas por sus representantes, para llevar a cabo las funciones encomendadas por la CONACE.

@@ -1,0 +1,1 @@
+Artículo 25.—Con base en el PRONACE se realizará el Programa de Trabajo Anual de la CONACE para el año en ejercicio, el cual será ejecutado por las Subcomisiones y se presentará en la reunión ordinaria del mes de junio ante el Ministro del Ambiente y Energía y los jerarcas de las instituciones del sector energía.

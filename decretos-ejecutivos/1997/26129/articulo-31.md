@@ -1,0 +1,1 @@
+Artículo 31.—Los Planes de Trabajo Anuales de las Subcomisiones, para el siguiente período presupuestario deberán ser aprobados en los cuatro primeros meses del año por la CONACE, para ser presentados en la reunión ordinaria del mes de junio ante el Ministro del Ministerio del Ambiente y Energía y los jerarcas de las instituciones del sector energía.

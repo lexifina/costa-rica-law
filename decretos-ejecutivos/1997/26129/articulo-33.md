@@ -1,0 +1,1 @@
+Artículo 33-—La operación de las subcomisiones quedara a criterio de una de ellas, con el fin de que se ejecute con buenos resultados el Programa de Trabajo Anual aprobado. En caso que se incumpla el Programa de trabajo por causas injustificadas, se presentara la situación en el seno de la CONACE- para analizar la situación v tomar las acciones correctivas del caso.

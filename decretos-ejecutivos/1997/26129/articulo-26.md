@@ -1,0 +1,1 @@
+Articulo 26.—La CONACE establecerá los mecanismos para dar seguimiento y control para el mercadeo de los proyectos del PRONACE que no cuentan con financiamiento para su ejecución, el cual será presentado en un Portafolio de Proyectos, mismo que deberá estar actualizado en el mes de marzo de cada año, con el apoyo de los miembros de la CONACE.

@@ -1,0 +1,1 @@
+Artículo 23.—La CONACE debe elaborar el Programa Nacional de Conservación de Energía (PRONACE) en el cual deberán incluirse todos los proyectos en Conservación de Energía actualmente en ejecución o a nivel de perfil de proyecto, sea para realizarse con fondos propios de las empresas de CONACE o con financiamiento externo.

@@ -1,0 +1,1 @@
+Artículo 32.—El Informe de Labores Anual de las Subcomisiones deberán rendirlo ante la CONACE en la primera sesión ordinaria del año en ejercicio, ante el Ministro del Ministerio del Ambiente y Energía y los jerarcas de las instituciones del sector energía.

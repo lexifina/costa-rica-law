@@ -1,0 +1,1 @@
+Artículo 27.—La CONACE hará un Informe de Labores tanto de su gestión como de las Subcomisiones que la apoyan, presentando los resultados del Programa de Trabajo del año, en la primera sesión ordinaria del año en ejercicio, o sea en el mes de enero, ante el Ministro del Ministerio del Ambiente y Energía y los jerarcas de las instituciones del sector energía.

@@ -1,0 +1,1 @@
+Artículo 14.—Los miembros de CONACE podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que en su caso, derivase de dichos acuerdos.

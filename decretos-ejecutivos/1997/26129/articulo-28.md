@@ -1,0 +1,1 @@
+Artículo 28.—La CONACE contara con el apoyo y asesoramiento técnico de los funcionarios de las diferentes instituciones y empresas, mediante la formación de Subcomisiones de trabajo en las siguientes áreas : Energía Eléctrica, Hidrocarburos, Fuentes Nuevas y Renovables de Energía e Información y Divulgación.

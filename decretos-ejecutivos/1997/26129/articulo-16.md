@@ -1,0 +1,1 @@
+Artículo 16.—Para las reuniones extraordinarias que tienen por Sede las instalaciones de una institución o empresa, el asistente ejecutivo de la Comisión, designado según el artículo 24 de este reglamento interno coordinará con el representante de dicha institución o empresa la hora de la sesión que sea más conveniente.

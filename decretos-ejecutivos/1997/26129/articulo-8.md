@@ -1,0 +1,1 @@
+Artículo 8°—En caso que el miembro propietario y el suplente de una institución o empresa no puedan asistir a las sesiones, uno de ellos designara por escrito a otro funcionario de la misma institución ante CONACE. La nota podrá ser presentada a la Presidencia de CONACE al menos 30 minutos antes de iniciar la sesión.

@@ -1,0 +1,1 @@
+Artículo 37.—Los representantes de la CONACE podrán cubrir los gastos en que incurran en el ejercicio de sus funciones, de los presupuestos de sus respectivas instituciones o empresas, de acuerdo a lo establecido en el Decreto No 23335-MIRENEM del 6 de junio de 1994.
