@@ -1,0 +1,2 @@
+Artículo 31.—Cuando el Presidente del Colegio tuviere conocimiento de que existe entre colegiados un conflicto que pudiere originar un incidente personal, ofrecerá inmediatamente la mediación amistosa del Tribunal de Honor.
+En estos asuntos, el presidente y los miembros del Tribunal de Honor actuarán en forma confidencial y con toda la reserva que exige el caso. Las proposiciones y respuestas que se produzcan se harán de palabra y se guardarán los antecedentes bajo la fe profesional.

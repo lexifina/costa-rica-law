@@ -1,0 +1,1 @@
+Artículo 20.—Los miembros del Colegio tendrán siempre presente que éste es un ente público no estatal que desempeña funciones que el Estado le ha delegado y por ello el país debe recibir beneficios con la ejecución de esas funciones, como única manera de justificar la existencia del Colegio.

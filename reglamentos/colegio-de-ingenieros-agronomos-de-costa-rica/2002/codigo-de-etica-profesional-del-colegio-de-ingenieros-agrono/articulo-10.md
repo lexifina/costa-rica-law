@@ -1,0 +1,1 @@
+Artículo 10.—Las relaciones de los miembros del Colegio con sus colegas deberán estar fundadas en los principios de lealtad, respeto mutuo, consideración y justa solidaridad. Deberán respetar en todo momento el buen nombre, dignidad y honra del colega y abstenerse de toda expresión o juicio que pueda ir en mengua de su reputación o prestigio.

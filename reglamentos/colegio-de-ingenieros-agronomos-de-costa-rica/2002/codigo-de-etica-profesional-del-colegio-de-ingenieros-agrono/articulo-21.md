@@ -1,0 +1,1 @@
+Artículo 21.—Los miembros del Colegio emplearán en el ejercicio profesional, su conocimiento científico, en favor del país y la comunidad y nunca usarán su conocimiento para causar daños o poner en peligro la vida de los trabajadores o el entorno social o ambiental en el cual se desempeñan.

@@ -1,0 +1,1 @@
+Artículo 4º—Los miembros del Colegio, como parte del conjunto profesional, contribuirán con su aporte intelectual y material a las actividades de investigación y difusión de sus resultados. Asimismo, deberán esforzarse por actualizar y ampliar sus conocimientos profesionales y su cultura general.

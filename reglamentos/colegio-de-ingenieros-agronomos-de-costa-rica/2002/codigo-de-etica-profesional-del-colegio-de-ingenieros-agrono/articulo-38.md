@@ -1,0 +1,1 @@
+Artículo 38.—La Fiscalía, la Junta Directiva, motu propio, la Junta Directiva por recomendación del Tribunal de Honor y la Asamblea General, podrán aplicar las sanciones citadas en el artículo anterior, acorde con lo establecido en este capítulo.

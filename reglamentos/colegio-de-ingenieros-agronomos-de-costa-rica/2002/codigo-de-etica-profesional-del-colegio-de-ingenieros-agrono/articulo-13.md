@@ -1,0 +1,1 @@
+Artículo 13.—En las publicaciones de trabajos científicos, los miembros del Colegio no deberán prevalecerse de su posición jerárquica para publicar en su nombre trabajos de sus subalternos, aún cuando sean ejecutados bajo su orientación.

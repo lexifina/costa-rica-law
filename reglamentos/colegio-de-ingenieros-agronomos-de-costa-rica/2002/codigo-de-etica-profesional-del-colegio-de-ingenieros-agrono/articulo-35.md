@@ -1,0 +1,2 @@
+Artículo 35.—Ningún miembro del Tribunal de Honor podrá conocer asuntos en los cuales tenga con el encausado, parentesco por consanguinidad o afinidad hasta el segundo grado inclusive, relaciones laborales o interés en las resultas del caso.
+En tal situación, el miembro del Tribunal de Honor será sustituido temporalmente por un suplente que nombrará la Junta Directiva, para la resolución del asunto en cuestión.

@@ -1,0 +1,1 @@
+Artículo 44.—De acuerdo con lo establecido por el inciso ch) del artículo 40 del Reglamento General de la Ley Orgánica del Colegio, la Asamblea General podrá suspender o revocar el nombramiento de un miembro de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 5º—Los miembros del Colegio deberán cimentar su reputación en la honradez, laboriosidad, probidad, capacidad profesional y buena fe, observando las normas de ética mas elevadas en todos sus actos, así como el debido decoro en su vida privada.

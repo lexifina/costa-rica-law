@@ -1,0 +1,1 @@
+Artículo 7º—Los miembros del Colegio deberán actuar con irreprochable dignidad, no sólo en el ejercicio de su profesión, sino también en la relación con sus colegas. Su conducta jamás deberá infringir las normas del honor y de la delicadeza que caracterizan a toda persona de bien.

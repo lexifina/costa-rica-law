@@ -1,0 +1,1 @@
+Artículo 18.—Los miembros del Colegio no podrán conceder a terceras personas, directa o indirectamente, comisiones, corretajes o participación en los honorarios de su trabajo. Tampoco podrán aceptar comisiones, corretajes o recompensas de cualquier índole, de personas cuyos productos o servicios hayan sido sugeridos a un cliente en el ejercicio de su profesión.

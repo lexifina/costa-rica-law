@@ -1,0 +1,2 @@
+Artículo 50.—Cuando los hechos denunciados puedan constituir un delito, la acción disciplinaria prescribe en los plazos respectivos señalados para ese delito en el Código Penal. Las demás faltas prescriben en dos años.
+La prescripción de la acción disciplinaria se interrumpe con la presentación de la denuncia ante el Colegio de Ingenieros Agrónomos y con todas las actuaciones que en el trámite de dicha queja se realicen posteriormente.

@@ -1,0 +1,1 @@
+Artículo 17.—En el ejercicio profesional, tanto en el orden privado como en el público, los miembros del Colegio procederán con la más absoluta buena fe, poniendo al servicio de los intereses que representan su lealtad, capacidad y dedicación.

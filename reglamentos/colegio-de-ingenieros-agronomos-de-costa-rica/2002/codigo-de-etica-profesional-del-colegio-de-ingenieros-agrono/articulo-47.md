@@ -1,0 +1,1 @@
+Artículo 47.—Cada vez que la Fiscalía o la Junta Directiva realicen suspensiones o revocatorias de nombramientos, la Fiscalía deberá comunicar lo pertinente al regente, a la empresa regentada y a las autoridades competentes que regulan la actividad correspondiente.

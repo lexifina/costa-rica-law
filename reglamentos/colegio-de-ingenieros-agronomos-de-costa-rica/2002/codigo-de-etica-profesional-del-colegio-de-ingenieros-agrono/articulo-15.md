@@ -1,0 +1,2 @@
+Artículo 15.—Los miembros del Colegio tendrán la obligación de guardar celosamente el secreto profesional y de no revelar, por ningún motivo, los hechos, datos o circunstancias de que tengan conocimiento en el ejercicio de su profesión, a menos que lo autorice el interesado o sea requerido para ello por autoridad competente. El secreto profesional perdurará aún después de cesada la prestación de sus servicios.
+Esta norma no cubre a los funcionarios públicos en cuanto a su obligación de ser acuciosos en la divulgación de los resultados de su ejercicio profesional.

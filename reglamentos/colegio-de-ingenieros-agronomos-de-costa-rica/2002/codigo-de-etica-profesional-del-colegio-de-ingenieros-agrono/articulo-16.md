@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros del Colegio no se prestarán a acciones que lesionen o pudieren lesionar derechos de terceras personas, cuando tengan a su cargo la dirección de trabajos y haya discrepancias entre sus comitentes o empleadores y el ejecutor del trabajo; siempre intervendrán con absoluta imparcialidad, interpretando con lealtad las condiciones pactadas por las partes.

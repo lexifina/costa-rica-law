@@ -1,0 +1,1 @@
+Artículo 48.—Las correcciones disciplinarias a que alude este Código se harán constar en el expediente personal del miembro del Colegio y se impondrán sin perjuicio de las responsabilidades penales y civiles en que haya incurrido el miembro del Colegio.
