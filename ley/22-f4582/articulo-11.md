@@ -1,0 +1,1 @@
+Art 11° Se extiende a un año para lo que no tuvieren títulos, y a dos para los que los tengan, el término de cuatro meses que el artículo 88 de las Ordenanzas fija para poderse denunciar una mina como abonada y desierta.

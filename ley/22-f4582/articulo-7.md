@@ -1,0 +1,1 @@
+Art 7° Se establece en San Mateo una Tesorería a cargo de un individuo responsable y abonado, de nombramiento del Juez de Hacienda; dicho empleado devengará un seis por ciento de los fondos que administre.
