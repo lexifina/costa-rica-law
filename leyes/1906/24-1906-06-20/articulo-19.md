@@ -1,0 +1,1 @@
+Artículo 19.—Las contravenciones indicadas y penadas en los artículos anteriores, serán juzgadas y falladas por el Tribunal de Casación, siendo aplicables las disposiciones de la ley de 12 de julio de 1902, en lo que cupieren. Las multas de que habla el artículo 12, serán impuestas sumariamente por los respectivos Gobernadores.
