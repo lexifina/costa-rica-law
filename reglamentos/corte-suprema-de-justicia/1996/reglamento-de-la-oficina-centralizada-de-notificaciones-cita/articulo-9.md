@@ -1,0 +1,1 @@
+Artículo 9°—Todos los sistemas manuales de control acordados, podrán ser sustituidos o rediseñados, en su oportunidad, por sistemas informáticos que se vayan incorporando en cualquier momento. El personal de apoyo, así como los Notificadores y los citadores, recibirán cursos de capacitación, para esos efectos.

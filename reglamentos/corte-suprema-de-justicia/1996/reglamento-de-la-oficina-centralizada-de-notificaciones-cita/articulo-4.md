@@ -1,0 +1,1 @@
+Artículo 4°—Es deber del Despacho Judicial donde se dicta la resolución a notificar, proveer a la Oficina Centralizada de Notificaciones, de los documentos y datos necesarios, para que la notificación pueda realizarse rápidamente.

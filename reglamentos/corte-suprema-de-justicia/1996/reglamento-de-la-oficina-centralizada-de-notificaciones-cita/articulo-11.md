@@ -1,0 +1,1 @@
+Artículo 11.—Los Notificadores realizarán sus actuaciones respecto de las resoluciones de todas las materias y en relación con todos los despachos judiciales. En lo de su cargo, lo mismo harán los citadores.

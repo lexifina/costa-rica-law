@@ -1,0 +1,1 @@
+Artículo 12.—Las copias a que se refiere el artículo 2 de la Ley, en su último párrafo, serán enviadas a la Oficina, con transcripción o fotocopia de la razón de recibido. Las demás copias se remitirán por los respectivos despachos, para su entrega, a la oficina centralizada.

@@ -1,0 +1,1 @@
+Artículo 8°—A efectos de pago de viáticos u otros gastos, la notificación, en horas fuera de horario de los despachos, se hará sólo cuando así lo ordene expresamente el Juez respectivo o, en su caso, el Coordinador.
