@@ -1,0 +1,1 @@
+Artículo 5°-La evaluación, calificación y ponderación de los resultados lo hará el jefe inmediato de cada funcionario de conformidad con las facultades establecidas en los artículos 135 y siguientes del Código Municipal. El funcionario encargado remitirá toda la información respectiva al Alcalde Municipal para su debido refrendo.

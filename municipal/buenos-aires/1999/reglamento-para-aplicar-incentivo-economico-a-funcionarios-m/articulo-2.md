@@ -1,0 +1,1 @@
+Artículo 2°-El incentivo económico tiene el objetivo de motivar al servidor como estímulo para impulsar una mayor eficiencia y rendimiento que se reflejará mediante la evaluación y calificación de servicios.
