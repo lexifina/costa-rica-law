@@ -1,0 +1,3 @@
+Artículo 11.—El zonaje dejará de pagarse cuando el servidor cese de trabajar en el puesto en que fue nombrado con disfrute de dicho beneficio o cuando se modifiquen las circunstancias que motivaron ese pago adicional.
+La supresión de dicho beneficio se realizará, previo debido proceso, mediante resolución del Departamento de Recursos Humanos que se comunicará con treinta días de anticipación a la fecha en que se hará efectiva. Contra dicha resolución cabe los recursos de revocatoria y apelación en los términos y condiciones contemplados en la Ley General de la Administración Pública.
+Es entendido que no habrá necesidad de procedimiento administrativo, si el servidor de que se trate manifiesta su conformidad por escrito.

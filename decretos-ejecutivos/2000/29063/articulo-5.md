@@ -1,0 +1,1 @@
+Artículo 5º—En toda acción de personal deberá indicarse el monto de zonaje que se reconozca al servidor, su domicilio, el lugar donde presta sus servicios y al cual se le traslada, o el lugar donde se le nombra cuando se trate de un ingreso.

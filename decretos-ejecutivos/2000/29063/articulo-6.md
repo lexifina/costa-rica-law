@@ -1,0 +1,2 @@
+Artículo 6º—Corresponde al Departamento de Recursos Humanos realizar el trámite de todo lo relacionado con el pago de zonaje previsto en este Reglamento, de acuerdo con las disposiciones del Régimen de Servicio Civil que resulten aplicables.
+Todos los servidores del Ministerio están obligados a brindar los datos que al efecto se les solicite, así como observar y acatar las disposiciones y procedimientos que dicho Departamento dicte al efecto.

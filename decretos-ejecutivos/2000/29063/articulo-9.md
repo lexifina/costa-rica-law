@@ -1,0 +1,2 @@
+Artículo 9º—El Departamento de Recursos Humanos ajustará de oficio los porcentajes de zonaje anteriormente indicados, de conformidad con los máximos y mínimos que establezca la Contraloría General de la República, según lo dispuesto en el artículo 3° del Reglamento para el Pago de Zonaje a los Servidores de la Administración Pública.
+Dichas acciones de personal deberán ser aprobadas previamente por la Dirección General de Servicio Civil, de conformidad con los mecanismos establecidos al efecto.
