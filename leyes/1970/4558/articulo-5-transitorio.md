@@ -1,0 +1,2 @@
+Transitorio V.- El Instituto Costarricense de Turismo podrá arrendar o vender, en forma directa, parcelas situadas en la zona marítimo-terrestre de su propiedad, ubicada al Sureste de la desembocadura del río Barranca. Igual facultad tendrá dicha institución en las demás porciones de la zona indicada, que le lleguen a pertenecer en virtud de lo dispuesto en la presente ley.
+Casa Presidencial.-San José, a los veintidós días del mes de abril de mil novecientos setenta.
