@@ -14,3 +14,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-20 | la propia norma |
+| 2 | 1996-08-29 | Reglamento 56 (1996-08-29) |
