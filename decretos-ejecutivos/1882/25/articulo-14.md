@@ -1,0 +1,1 @@
+Art. 14.-—Antes de separarse de la oficina, el Contador Cajero hará un balance de los valores de billetes y dinero en Caja, para cerciorarse de si estos están en conformidad con el Libro de Caja; y el Administrador y el Tenedor de Libros se satisfarán de que el balance es exacto, y pondrán sus respectivas iniciales en frente de los saldos expresados en el referido libro.

@@ -1,0 +1,2 @@
+Art. 26.—Los Administradores especiales y los Receptores guardarán, bajo llave, todos los libros de fórmulas, de órdenes y recibos, y los sellos y estampillas de su respectiva oficina, siendo responsables por cualquier descuido en esta parte.
+Dado en el Palacio Presidencial, en San José, á los cuatro días del mes de diciembre dé mil ochocientos ochenta y dos.—P. Fernández.—El Secretario de Estado en el Despacho de Hacienda y Comercio.—Bernardo Soto.

@@ -1,0 +1,1 @@
+Art. 25.—Al tiempo de rendir cuentas al Tribunal del ramo, los varios administradores entregarán los recibos del Secretario de Hacienda, y cuidarán de que en el acto el Contador que los reciba, ponga razón en el cuerpo del documente, junto con sus iniciales, para impedir que se extraigan de las oficinas.

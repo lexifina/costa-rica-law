@@ -1,0 +1,1 @@
+Art. 18.—Esta orden será impartida por los empleados que estén autorizados para ello por las leyes vigentes. No se pagará ningún giro á la vista, que no lleve estampado el sello de la Secretaría de Hacienda; y los giros á plazo, además del sello referido, llevarán la orden de "páguese" del Secretario de Hacienda.
