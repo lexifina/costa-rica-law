@@ -1,0 +1,3 @@
+Artículo 4°. — Al cabo de los diez años el arrendatario tendrá opción para apropiar el terreno siempre que pague el precio que se fije mediante un nuevo avalúo hecho por peritos nombrados, uno por cada parte y el tercero por la Secretaría de Gobernación.
+Los peritos en este caso sólo tomarán en cuenta lo que valga el disfrute del suelo prescindiendo del valor de las construcciones.
+Si el arrendatario no quisiere ejecutar la opción de compra, tendrá derecho a una prórroga de arriendo por cinco años, siempre que pague la renta que fije el nuevo avalúo. Las prórrogas por período de cinco años pueden ser indefinidas, pero por cada período procederá un avalúo hecho en los términos antes expresados

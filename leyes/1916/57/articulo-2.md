@@ -1,0 +1,1 @@
+Artículo 2°.—La Municipalidad procederá a dividir el dicho terreno en lotes y a delinear las calles de acuerdo con el Poder Ejecutivo. Se reservarán los lotes que se destinen a las plazas, parques o edificios públicos. Además el Poder Ejecutivo se reservará los lotes que estime convenientes para fines nacionales.
