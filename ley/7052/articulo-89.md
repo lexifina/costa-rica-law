@@ -1,5 +1,5 @@
-Artículo 89.- El gerente de la mutual tendrá las siguientes obligaciones y
-funciones:
+Artículo 89.- El gerente de la mutual tendrá las siguientes
+obligaciones y funciones:
 a) Cumplir con las disposiciones de la presente ley, de sus reglamentos
 y de las resoluciones del directorio.
 b) Informar al directorio, por lo menos una vez al mes, sobre la

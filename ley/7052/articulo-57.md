@@ -1,6 +1,6 @@
-Artículo 57.- Los pagos sobre la obligación garantizada por la
-segunda hipoteca los hará el deudor en la entidad autorizada que le
-hubiere otorgado el préstamo, o en la que expresamente autorice el BANHVI
-para ese efecto, que actuará como recaudador sin costo para el BANHVI.
-Las entidades autorizadas deberán girar mensualmente al BANHVI los montos
-recaudados por ese concepto.
+Artículo 57.- El Banco será la única institución facultada para
+aprobar las condiciones para el otorgamiento del beneficio del Fondo. Este
+se tramitará y calificará, exclusivamente, por medio de las entidades
+autorizadas.
+(Así reformado por el artículo 165 de la Ley Orgánica del Banco
+Central de Costa Rica No.7558 del 3 de noviembre de 1995)

@@ -1,5 +1,3 @@
-Artículo 87.- Las mutuales necesitarán la aprobación previa del Banco
-para:
-a) Abrir sucursales y agencias o cambiar su domicilio.
-b) Efectuar inversiones en inmuebles para instalar sus oficinas, sucursales o
-agencias.
+Artículo 87.- DEROGADO.
+(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
+de Costa Rica, Nº 7558 de 3 de noviembre de 1995)

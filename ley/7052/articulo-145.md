@@ -2,14 +2,15 @@ TITULO SETIMO
 DISPOSICIONES FINALES
 CAPITULO UNICO
 Disposiciones generales
-Artículo 145.- La inscripción de las hipotecas y las compraventas
-generadas por el sistema estarán exentas del pago del ciento por ciento
-(100%) de los derechos de registro, hasta por la suma de seiscientos mil
-colones (¢ 600.000,00), y del cincuenta por ciento (50%), de seiscientos
-mil un colones (¢ 600.001,00) hasta un millón doscientos cincuenta mil
-colones (¢ 1.250.000,00). Estas sumas se refieren al valor de la
-hipoteca.
-Estos límites podrán ser variados por el Banco, cuando lo estime
-conveniente para el mejor desenvolvimiento del Sistema. Para este efecto,
-servirán de referencia los índices de variación de los precios debidamente
-refrendados por el Ministerio de Economía y Comercio.
+Artículo 145.- Las inscripciones de las escrituras principales y
+adicionales, en las que se formalicen las operaciones de las soluciones
+individuales de vivienda declaradas de interés social, de acuerdo con los
+reglamentos del Sistema, estarán exentas del pago del ciento por ciento
+(100%) de los derechos de registro, de los timbres fiscales, de los
+timbres, de las cargas de los colegios profesionales y del impuesto de
+transferencia de bienes inmuebles.
+Tratándose de créditos internos, esta exención es aplicable
+únicamente a los tributos que deban ser pagados por el ejecutor o
+constructor.
+( Así reformado por el artículo 1º de la ley No.7208 del 21 de noviembre
+de 1990 ).

@@ -1,7 +1,11 @@
-Artículo 148.- La construcción de viviendas de carácter social que se
-financien dentro del Sistema, y la compraventa de ellas por parte del
-primer comprador, estarán exentas del pago de timbres fiscales, timbres y
-otros cargos de los colegios profesionales, de los derechos de registro,
-del pago de permisos de urbanización y de construcción, de los derechos de
-catastro de planos y de los impuestos de transferencia de inmuebles, así
-como de todo otro tributo, de conformidad con el artículo 38 de esta ley.
+Artículo 148.- Todos los actos y contratos que, en cuanto a
+operaciones del Sistema, realicen el Banco y las entidades autorizadas
+entre sí o entre otras personas físicas o jurídicas, estarán exonerados
+del pago de todo tipo de tributos. Esta exención se aplicará únicamente
+en lo que se refiere a los tributos pagaderos por el Banco o por la
+respectiva entidad autorizada. Asimismo, estará exento del pago de
+honorarios notariales, el traspaso de terrenos -a título gratuito u
+oneroso- de las instituciones públicas a entidades autorizadas, para el
+desarrollo de proyectos de vivienda.
+( Así reformado por el artículo 1º de la ley No. 7208 del 21 de noviembre
+de 1990 ).

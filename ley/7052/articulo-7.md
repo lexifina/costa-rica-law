@@ -1,6 +1,2 @@
-Artículo 7º.- Para el cumplimiento de sus objetivos de carácter social,
-y con el propósito de poner al alcance de las familias la posibilidad de
-adquirir casa propia, el Banco Hipotecario de la Vivienda podrá promover
-programas de desarrollo de vivienda rural y de vivienda mínima urbana, en
-condiciones preferenciales de crédito, y proyectos habitacionales que se
-desarrollen al amparo de incentivos fiscales.
+Artículo 7.- El Banco Hipotecario de la Vivienda (BANHVI) deberá promover programas de desarrollo de vivienda rural y urbana en condiciones preferenciales de crédito y proyectos habitacionales que se desarrollen al amparo de incentivos fiscales, para cumplir los objetivos de carácter social y el propósito de que las familias y los adultos mayores sin núcleo familiar, de escasos recursos económicos, tengan la posibilidad de adquirir casa propia.
+Asimismo, para el mejor cumplimiento de sus fines, el Banco podrá conceder créditos por medio de las entidades autorizadas para la construcción de viviendas de carácter social, sus obras y los servicios complementarios. Las garantías de estos créditos serán las que el Banco considere satisfactorias. (Así reformado por el artículo 1, inciso b) de la Ley No. 7950 de 7 de diciembre de 1999).

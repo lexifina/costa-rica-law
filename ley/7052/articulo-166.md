@@ -1,3 +1,3 @@
-Artículo 166.- La propaganda, publicidad y promoción relativas a la
-oferta al público de los servicios de las entidades autorizadas, deberán
-sujetarse a las normas que dicte el Banco.
+Artículo 166.- DEROGADO.
+(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
+de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
