@@ -1,0 +1,1 @@
+Artículo 10.—Depósitos de garantía o primas. La existencia de un depósito de garantía o prima al inicio del contrato no implica necesariamente que el arrendamiento sea financiero, por lo que no es determinante para la distinción entre contratos de arrendamiento operativo de los financieros.

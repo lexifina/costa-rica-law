@@ -1,0 +1,1 @@
+Artículo 9º—Costos ejecutorios. Los costos ejecutorios a que alude el numeral iv) del artículo 2° corresponden a los gastos por seguros, mantenimiento e impuestos, relativos a los activos tangibles arrendados.

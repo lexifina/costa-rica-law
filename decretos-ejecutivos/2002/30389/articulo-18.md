@@ -1,0 +1,2 @@
+Artículo 18.—Impuesto General sobre las Ventas. La expresión "arrendamiento con opción de compra" contenida en la Ley del Impuesto General sobre las Ventas, Ley Nº 6826 del 8 de noviembre de 1982 y sus Reformas, debe entenderse, para todos los fines tributarios, referida al arrendamiento financiero.
+El tratamiento del Impuesto General sobre las Ventas aplicable a los arrendamientos financieros, será el establecido en la Ley del Impuesto General sobre las Ventas y su Reglamento, Decreto Ejecutivo Nº 14082-H del 29 de noviembre de 1982.
