@@ -19,3 +19,4 @@ Reforma total al Reglamento Constitución y Funcionamiento de Grupos Financieros
 | 4 | 2000-05-23 | Reglamento 153 (2000-05-23) |
 | 5 | 2000-06-20 | Reglamento 157 (2000-06-20) |
 | 6 | 2001-08-27 | Reglamento 248 (2001-08-27) |
+| 7 | 2001-11-26 | Reglamento 266 (2001-11-26) |
