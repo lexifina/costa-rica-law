@@ -1,0 +1,1 @@
+Artículo 3°.- El ministerio de Economía, Industria y Comercio, rechazará mediante resolución razonada, cualquier solicitud que se presente en amplia contradicción con leyes y reglamentos, con el principio de interés público, con la eficiencia y continuidad del servicio o con los planes y obras que sobre política y planificación económica esté realizando o realice el Ministerio.
