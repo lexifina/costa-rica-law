@@ -1,0 +1,2 @@
+Artículo 14.—En los convenios preventivos de concursos o quiebras en que se actúe como abogado del deudor, los honorarios serán la cuarta parte de los establecidos en el artículo 7°, calculados sobre el monto de los créditos.
+Los honorarios de abogado del acreedor que solicite el concurso o quiebra, serán considerado como crédito de la masa, y se fijan en la misma proporción del párrafo anterior, sea la cuarta parte de los establecidos en el artículo 7°, sobre el monto del crédito de ese acreedor.

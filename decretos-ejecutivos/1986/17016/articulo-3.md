@@ -1,0 +1,2 @@
+Artículo 3°—-Los honorarios corresponden al profesional que presta sus servicios. No obstante, si se trata de asociaciones profesionales en cualquier forma, podrá convenirse que ingresen a un fondo común, pero la actuación de cada uno es estrictamente personal y por lo tanto el profesional es responsable de su ejercicio en todo sentido.
+Queda prohibido al profesional en Derecho toda participación de sus honorarios con personas ajenas a su profesión excepto que se trate de estudiantes o egresados de esa materia que laboren para aquél.

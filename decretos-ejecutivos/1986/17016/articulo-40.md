@@ -1,0 +1,1 @@
+Artículo 40.—Por la tramitación de asuntos extra judiciales no previstos expresamente en estas normas el profesional podrá convenir sus honorarios con su cliente. A falta de convenio el honorario mínimo, por asunto, será de ¢3.000,00.

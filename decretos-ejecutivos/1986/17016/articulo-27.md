@@ -1,0 +1,1 @@
+Artículo 27.—En las causas penales de citación directa y por delitos de acción privada en las que se celebrare debate, los honorarios profesionales no podrán ser inferiores a ¢12.000,00. Si concluyeren antes, Ios honorarios no podrán ser inferiores a ¢5.000,00.

@@ -1,0 +1,1 @@
+Articulo 67.—Cuando un instrumento contuviere varias operaciones referentes a las mismas partes o sobre los mismos bienes, se cobrarán los honorarios totales sobre la operación de mayor valor y la mitad respecto a las otras pero si fueren distintas partes u operaciones diferentes, cada una debe cubrir sus propios honorarios.

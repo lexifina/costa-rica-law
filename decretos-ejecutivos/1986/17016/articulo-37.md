@@ -1,0 +1,1 @@
+Artículo 37.—Por la dirección en sindicatos, asociaciones solidaristas, asociaciones comunes, cooperativas, fundaciones y otras entidades similares no contempladas en este artículo se cobrará un honorario mínimo de ¢10.000,00.

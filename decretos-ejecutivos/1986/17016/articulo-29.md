@@ -1,0 +1,1 @@
+Artículo 29.—En diligencias de amparo y extradición los honorarios no podrán ser inferiores a ¢10.000,00'; y, en diligencias de hábeas corpus, los honorarios no podrán ser menores a ¢3.000,00. Si todas estas diligencias concluyeren antes de sentencia, ese mínimo se reducirá a la mitad.

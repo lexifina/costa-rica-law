@@ -1,0 +1,1 @@
+Artículo 65.—Por «afectación de finca a propiedad horizontal se pagará la mitad de la tarifa señalada en el artículo 55 sobre el valor del inmueble incluyendo la edificación, con un mínimo de ¢ 2.500,00 por cada finca filial y cada zona comunal y de ¢5.000,00 por el reglamento respectivo.

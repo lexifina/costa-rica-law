@@ -1,0 +1,1 @@
+Artículo 50.—A menos que hubiere convenio en contrario, los honorarios de notario se pagarán por iguales partes entre los interesados en el acto o contrato, excepto en las constituciones y cancelaciones de hipoteca que serán por cuenta del deudor.

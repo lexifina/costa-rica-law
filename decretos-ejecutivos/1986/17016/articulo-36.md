@@ -1,0 +1,5 @@
+Artículo 36.—Por la dirección profesional en licitaciones y contratos administrativos, regirá el convenio entre las partes, que deberá constar por escrito, con sujeción a las siguientes regulaciones como mínimo:
+a) Se distinguen en el proceso de contratación administrativa las siguientes etapas: estudio del cartel y preparación de la oferta, revisión de la oferta presentada por el cliente, revisión y estudio de las ofertas de la competencia impugnación del acto de adjudicación, mantenimiento del acto adjudicador, firma del contrato y reclamaciones por reajuste de precios;
+b) El convenio de servicios profesionales, indicará cuál o cuáles etapa realizará el profesional, así como el monto de los honorarios que se fijan en cada una de ellas;
+c) El Colegio de Abogados no intervendrá en controversias que surjan entre las partes interesadas, si no existe el convenio debidamente documentado; y
+d) En los casos en que el oferente concurra por medio de apoderado, distribuidor exclusivo o representante de casas extranjeras, deberá indicarse con toda claridad, a cargo de quién estará el pago de los honorarios.

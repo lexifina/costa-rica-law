@@ -1,0 +1,4 @@
+Artículo 6°—El abogado no podrá cobrar menor cantidad de honorarios que la señalada en este arancel. Los tribunales tampoco podrán fijar sumas inferiores a las que aquí se señalan, cuando definan los honorarios entre abogado y su cliente, salve lo establecido en el artículo anterior. La violación de la prohibición establecida en este artículo será sancionada por la Junta Di rectiva del Colegio de Abogados, de conformidad con las disposiciones respectivas.
+Como excepción a lo aquí dispuesto, el abogado o notario podrá no cobrar honorarios si lo hiciere en forma total y de manera expresa y siempre que se trate de ascendientes, descendientes o parientes colaterales, consanguíneos o afines, hasta tercer grado, o si el cliente fuere un colega.
+No estarán sujetos a lo aquí establecido, los abogados que presten servicios a sus clientes por un sueldo fijo.
+El profesional podrá cobrar un interés no mayor del 2% mensual por atrasos en el pago de honorarios.

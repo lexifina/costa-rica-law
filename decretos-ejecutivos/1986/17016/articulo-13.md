@@ -1,0 +1,1 @@
+Artículo 13.—En juicios sucesorios los honorarios serán de una mitad de los establecidos en el artículo 7° sobre la totalidad del capital inventariado, incluyendo los gananciales en su caso, calculados por el avalúo, monto o estimación definitivos de los bienes.

@@ -1,0 +1,3 @@
+Artículo 12. — En los demás juicio de desahucio los honorarios de abogado serán el equivalente al cincuenta por ciento de la estimación de la demanda, pero en ningún caso serán inferiores a ¢4.000,00.
+En las diligencias para la fijación de alquileres conforme con la Ley de Inquilinato, los honorarios de abogado de la parte actora serán iguales a tres mensualidades del aumento obtenido y los del abogado de la parte demandada iguales a tres veces el monto del aumento solicitado por el actor y no concedido en sentencia. En ningún caco los honorarios serán inferiores a ¢1.500,00.
+En las diligencias de prevención de desalojo los honorarios de abogado de la parte promovente no serán inferiores a ¢1.500,00.
