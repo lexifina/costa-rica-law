@@ -1,4 +1,6 @@
+(Derogado)
 N° 27
+(Esta norma fue derogada por el artículo 1° de la ley N° 32 del 26 de diciembre de 1930)
 EL CONGRESO CONSTITUCIONAL
 DE LA REPUBLICA DE COSTA RICA
 DECRETA:
