@@ -1,0 +1,1 @@
+Artículo 31.—A partir de la entrada en vigencia de este Reglamento, no podrá otorgarse donaciones, por lo que aquel funcionario o funcionarios que las otorguen, apartándose de lo aquí normado, se tendrá por falta grave y FEDEMUR podrá, atendiendo a las características del caso, prescindir de sus servicios sin responsabilidad patronal.

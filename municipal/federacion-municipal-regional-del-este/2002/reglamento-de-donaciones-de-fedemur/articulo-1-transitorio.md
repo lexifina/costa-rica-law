@@ -1,0 +1,1 @@
+Transitorio 1º—Cualquier modificación al presente Reglamento, deberá ser aprobada por mayoría calificada del Consejo Directivo y entrará en vigencia a partir de la publicación en el Diario Oficial "La Gaceta".

@@ -1,0 +1,1 @@
+Artículo 3º—Este Reglamento tendrá vigencia para todas aquellas organizaciones estatales, no gubernamentales y personas físicas, en casos de fuerza mayor o fortuitos que tengan su domicilio establecido y constituido en algún lugar dentro del área de influencia geográfica de las Municipalidades.

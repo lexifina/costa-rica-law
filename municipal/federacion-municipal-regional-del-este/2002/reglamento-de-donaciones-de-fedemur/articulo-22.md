@@ -1,0 +1,1 @@
+Artículo 22.—Toda donación de servicios será de competencia exclusiva del Consejo Directivo. Solo en casos de emergencia debidamente justificada en la siguiente sesión, podrán hacerse por parte del Presidente.

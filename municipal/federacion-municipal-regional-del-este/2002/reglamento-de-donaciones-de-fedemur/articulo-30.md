@@ -1,0 +1,1 @@
+Artículo 30.—En aquellos casos que el bien a donar no sea parte del patrimonio de FEDEMUR, la compra del mismo se deberá ajustar a los trámites de contratación administrativa, aplicables y vigentes a FEDEMUR.

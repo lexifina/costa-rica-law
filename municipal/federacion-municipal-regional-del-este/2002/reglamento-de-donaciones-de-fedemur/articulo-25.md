@@ -1,0 +1,1 @@
+Artículo 25.—Aquella persona física que solicite una donación, deberá acompañar con su solicitud una copia de la cédula de identidad, documento idóneo que lo ubique como residente del área de influencia geográfica de las municipalidades; además una descripción de cuales son los motivos que fundan su solicitud.

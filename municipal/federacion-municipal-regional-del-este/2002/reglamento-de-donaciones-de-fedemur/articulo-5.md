@@ -1,0 +1,1 @@
+Artículo 5º—Toda solicitud de donación deberá ser completada y presentada ante las oficinas centrales de FEDEMUR, por el representante legal de la persona jurídica que solicita la misma, o por la persona física, en aquellos casos que proceda y de acuerdo al formulario denominado "Solicitud de donación", el cual representa el anexo único de este Reglamento.

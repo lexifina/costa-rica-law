@@ -1,0 +1,1 @@
+Artículo 21.—La Dirección Ejecutiva, deberá analizar la solicitud, tomando en cuenta: El costo del servicio, su plazo de ejecución, la disponibilidad de recursos y emitirá un informe ante el Consejo Directivo, con la recomendación que apruebe la donación o que se deniegue la solicitud.

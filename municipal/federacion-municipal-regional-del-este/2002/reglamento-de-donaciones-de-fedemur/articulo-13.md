@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el objeto a dar en donación supere la suma de los quinientos mil colones o aunque inferior a dicha suma, sea necesaria su inscripción en el Registro Nacional, corresponderá al Consejo Directivo acordar la donación.

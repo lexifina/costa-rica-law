@@ -1,0 +1,1 @@
+Artículo 8º—En razón del principio de reserva legal que rige en la materia para el Sector Público, en caso de que la solicitud sea presentada por alguna institución comprendida en el Sector Público, de previo a su estudio y aprobación, deberá demostrarse la ley que le autoriza recibir donaciones.

@@ -1,0 +1,1 @@
+Artículo 2º—La finalidad de este Reglamento es regular y normar los procedimientos y requisitos a los cuales se deben sujetar tanto las instituciones estatales como no gubernamentales y personas físicas que soliciten donaciones o ayudas a FEDEMUR.
