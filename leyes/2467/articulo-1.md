@@ -1,0 +1,9 @@
+N° 2467
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmase el inciso d) del artículo 4º de la ley Nº 2248 de 5 de setiembre de 1958, el cual se leerá así:
+Artículo 4º.-
+a) ...
+b) ...
+c) ...
+d) La jubilación extraordinaria se calculará multiplicando el número de años de servicio por la treintava parte del promedio mensual de los sueldos y sobresueldos de los últimos diez años trabajados".
