@@ -1,1 +1,0 @@
-Artículo 33.-En materia criminal nadie está obligado a declarar contra sí mismo, ni contra su consorte, ascendientes, descendientes u otros parientes dentro del tercer grado de consanguinidad, ó segundo de afinidad.

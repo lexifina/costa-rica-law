@@ -1,1 +1,0 @@
-Artículo 103.-El período del Presidente de la República principiará a contarse desde el día ocho de Mayo en que debe tomar posesión de su destino, y terminado éste, cesa por el mismo hecho en el ejercicio de sus funciones.
