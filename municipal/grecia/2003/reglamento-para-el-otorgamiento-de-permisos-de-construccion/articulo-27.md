@@ -1,0 +1,1 @@
+Artículo 27.—Cuando por motivo de una construcción se causen daños a la propiedad municipal, los mismos deberán ser reparados por cuenta del propietario particular o por aquella persona que ocasionó el daño.

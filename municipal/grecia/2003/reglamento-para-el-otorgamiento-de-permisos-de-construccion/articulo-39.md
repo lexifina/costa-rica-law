@@ -1,0 +1,1 @@
+Artículo 39.—Todo edificio destinado para uso comercial o para oficinas públicas y particulares cuya área de construcción sea superior a los cien metros cuadrados, establecerá un espacio para estacionamiento por cada cincuenta metros cuadrados de área comercial bruta o fracción mayor a veinticinco metros cuadrados adicionales de la construcción.

@@ -1,0 +1,1 @@
+Artículo 40.—En los centros comerciales planificados, que incluya locales de uso comerciales y para oficinas públicas y particulares, se considerará un estacionamiento por cada cincuenta metros cuadrados de área bruta de construcción.

@@ -1,0 +1,2 @@
+Artículo 24.—Los dueños de construcciones que deben retirarse con arreglo al alineamiento oficial no podrán ejecutar en ellas, obras que tiendan a consolidarse en su totalidad y por lo tanto a perpetuar su estado actual.
+Se entenderá por obras que tiendan a consolidar su estado actual, los cambios de paredes, refuerzo de estructuras, cambio de construcción total o parcial de los techos, remodelación de fachadas, apertura de puertas o ventanas o cierre de ellas o sustitución de unas por otras.

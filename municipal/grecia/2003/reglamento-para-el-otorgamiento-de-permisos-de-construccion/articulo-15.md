@@ -1,0 +1,1 @@
+Artículo 15.—En los planos deberán estar consignadas las especificaciones necesarias para la ejecución de la obra, tales como la calidad y resistencia de ciertos materiales, recubrimientos de la armadura y otras que se estime conveniente tener a mano durante la construcción.

@@ -1,0 +1,1 @@
+Artículo 13.—Todo edificio que se construya o reconstruya en lo sucesivo frente a vía publica deberá ajustarse al alineamiento señalado por la Municipalidad o por el Ministerio de Obras Públicas y Transportes.

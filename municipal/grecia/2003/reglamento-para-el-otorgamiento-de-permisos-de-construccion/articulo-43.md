@@ -1,0 +1,3 @@
+Artículo 43.—De conformidad con el numeral 89, inciso A) de la Ley de Construcciones y artículo 82 del Código Municipal, cuando se diere el caso del inicio de una construcción sin el respectivo permiso municipal, se aplicará la siguiente sanción:
+Una multa por concepto de recargo de 2%, que se cobrará por cada mes, o fracción de mes, el cual por ningún motivo podrá exceder del 50% del monto del impuesto adeudado. Por concepto de interés moratorio, el usuario está obligado a pagar un 2% que se calcula sobre la suma total de lo debido, las multas que corresponden hasta el día del pago efectivo.
+La referida multa y el interés correspondiente se cobrarán por la Municipalidad a partir del día siguiente en que las obras dieron inicio sin la respectiva licencia.

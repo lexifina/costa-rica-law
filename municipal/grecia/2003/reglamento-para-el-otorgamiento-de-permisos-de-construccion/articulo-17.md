@@ -1,0 +1,1 @@
+Artículo 17.—Contra las resoluciones que se dicten durante la tramitación del permiso, se pueden interponer los recursos de revocatoria y apelación de conformidad con la Ley General de Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 11.—Para solicitar alineamientos y niveles, el interesado debe presentar nota de solicitud, especificar el uso que se le dará a la construcción, dos planos catastrados, originales o copias certificadas, dirección exacta del propietario, así como dirección dentro de la jurisdicción del cantón para atender las notificaciones.
+Todo alineamiento otorgado por la Municipalidad tendrá una vigencia de un año a partir de la fecha en que fue otorgado. Si no se hiciera uso del mismo al cabo de ese tiempo, deberá tramitarse de nuevo la respectiva solicitud.

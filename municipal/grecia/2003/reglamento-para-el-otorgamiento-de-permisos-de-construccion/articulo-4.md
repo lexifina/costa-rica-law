@@ -1,0 +1,1 @@
+Artículo 4º—Si en la ejecución de una obra debe ocuparse una vía o acceso público, el subsuelo o espacio aéreo de la misma deberá obtener un permiso de vía de la Municipalidad o del Ministerio de Obras Públicas y Transportes, según corresponda.

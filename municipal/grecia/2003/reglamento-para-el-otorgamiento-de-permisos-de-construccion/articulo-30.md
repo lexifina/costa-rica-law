@@ -1,0 +1,1 @@
+Artículo 30.—No se permite construir cerca de una pared medianera: pozos, cloacas, acueducto, hornos, fraguas, chimeneas, establos, depósitos de materiales corrosivos, máquinas de vapor y otros, que pueden ser peligrosos o nocivos sin guardar distancia mínima de dos metros de dicha pared.

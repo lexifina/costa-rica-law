@@ -1,0 +1,1 @@
+Artículo 12.—El nivel del terreno debe ser como mínimo de diez centímetros sobre el nivel de la acera. Además, el ingeniero responsable de la obra deberá establecer dentro de los planos una solución técnica para el desagüe pluvial y las aguas servidas.
