@@ -1,7 +1,7 @@
 De conformidad con el artículo 19, párrafo 5º de la Constitución de la
 Organización Internacional del Trabajo,
 DECRETA:
-ARTIULO 1º.- Ratifícanse los Convenios Nº 29 relativo al trabajo
+ARTICULO 1º.- Ratifícanse los Convenios Nº 29 relativo al trabajo
 forzoso u obligatorio, 1930; Nº 81 relativo a la inspección del trabajo,
 1947; Nº 87 relativo a la libertad sindical y a la protección del derecho
 de sindicación, 1948; Nº 88 relativo a la organización del servicio de
