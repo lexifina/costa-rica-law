@@ -13,3 +13,4 @@ Reglamento Ley Orgánica Ministerio Economía,Industria y Comercio (1977
 | --- | --- | --- |
 | 1 | 1977-09-20 | la propia norma |
 | 2 | 1977-09-20 | SINALEVI (sin norma nombrada) |
+| 3 | 1977-09-20 | Ley 8 |
