@@ -1,0 +1,1 @@
+|Artículo 2º—Se restringe la comercialización, para el consumo humano, del fríjol, nacional o importado, que no cumpla con la exigencia del tiempo de cocción. Los demás factores deben acondicionarse antes de su comercialización.

@@ -1,0 +1,1 @@
+Artículo 8º—A toda persona que haciendo uso de este reglamento encuentre razón sustentada para pedir revisión, se le solicita notificarlo sin demora al Ministerio de Agricultura y Ganadería, de Economía, Industria y Comercio o de Salud, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.

@@ -1,0 +1,1 @@
+Artículo 9º—Derogar los Decretos Ejecutivos Nº 29557-MEIC, Nº 29487-MEIC, Nº 21061-MEIC, Nº 18817-MEIC, Nº 18825-MEIC, publicados en La Gaceta Nº 107 de martes 5 de junio del 2001, Nº 94 de jueves 17 de mayo del 2001, Nº 50 miércoles 11 de marzo de 1992, Nº 37 martes 21 de febrero de 1989 y Nº 42 de martes 28 febrero de 1989, respectivamente.
