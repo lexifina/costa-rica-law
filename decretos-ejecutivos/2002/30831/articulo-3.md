@@ -1,0 +1,1 @@
+Artículo 3º—La Comisión tendrá amplias facultades para el cumplimiento de sus fines y objetivos, en estricto apego a las disposiciones normativas aplicables en la materia y a los procedimientos correspondientes.

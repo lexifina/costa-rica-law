@@ -1,0 +1,1 @@
+Artículo 2º—Para su gestión, la Comisión contará con el apoyo material, logístico y humano del Consejo de Educación Vial, Órgano al que se autoriza a brindar todo su apoyo y colaboración a la misma. Así mismo, el Ministerio de Obras Públicas y Transportes coadyuvará a efecto del cumplimiento de los objetivos asignados a la Comisión.
