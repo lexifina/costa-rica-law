@@ -1,10 +1,9 @@
-Artículo 90.—La capacitación recibida se reconocerá siempre que:
-a) Los servidores la hayan recibido después de haber obtenido como mínimo la condición de bachilleres de un plan educativo de nivel superior.
-b) Sea atinente a la especialidad del puesto desempeñado.
-c) Haya sido coordinada por la Dirección, por el Departamento de Personal de MIDEPLAN o por el Departamento de Adiestramiento de la Dirección General de Servicio Civil.
-d) Haya sido reconocida y clasificada, según su modalidad y duración, por el Departamento de Personal de MIDEPLAN, quien podrá atender en tal evaluación los criterios establecidos por la Dirección General de Servicio Civil para casos similares.
-e) No consista en los cursos regulares de una carrera universitaria.
-f) Los excedentes que resulten de cada evaluación en la capacitación en las modalidades de aprovechamiento y de participación, se acumularán para efectos de su reconocimiento.
-g) Cuando se haya agotado el máximo puntaje establecido para la modalidad de aprovechamiento, tanto sus excedentes como posterior capacitación recibida en dicha modalidad podrán aplicarse a la modalidad de participación, en los términos y puntaje acordados para esta modalidad, sin sobrepasar su máximo puntaje establecido.
-h) Los posgrados no reconocidos ni equiparados por las universidades facultadas para ello, los cursos recibidos aisladamente y pertenecientes a esos programas de posgrados, así como los cursos de idiomas extranjeros, serán evaluados por el Departamento de Personal de MIDEPLAN para su aceptación, atendiendo su congruencia con las funciones del puesto que ocupen los servidores.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 22497 del 12 de agosto de 1993)
+Artículo 90.—La capacitación recibida en el Subsistema de Adiestramiento de Personal o fuera de éste, se reconocerá siempre que:
+a) Los servidores la hayan recibido después de haber obtenido como mínimo la condición de bachiller de un plan educativo de nivel superior.
+b) Sea atinente a la especialidad de los puestos desempeñados en la Administración Pública, a juicio razonado del Departamento de Personal de MIDEPLAN.
+c) Haya sido reconocida y clasificada, según su duración y modalidad (aprovechamiento o participación), por el Departamento de Personal de MIDEPLAN, el que podrá atender en tal evaluación los criterios establecidos por la Dirección General de Servicio Civil para casos similares.
+d) No consista, en cursos regulares de una carrera universitaria.
+e) Los excedentes de la capacitación en la modalidad de aprovechamiento y de participación, se acumularán para efectos de su reconocimiento.
+f) Cuando se haya agotado el número máximo de veinte puntos previsto para las actividades de aprovechamiento y hubieran excedentes, éstos podrán ser considerados para la modalidad de participación, concediéndose un punto por cada ochenta horas naturales de capacitación, siempre y cuando no se haya alcanzado el límite máximo de veinte puntos por actividades de esta índole.
+Los postgrados no reconocidos ni equiparados por las universidades facultadas para ello, asimismo, aquellos cursos recibidos aisladamente y pertenecientes a dichos programas, y los cursos de idiomas extranjeros, serán evaluados por el Departamento de Personal de MIDEPLAN para su aceptación, de acuerdo con los criterios establecidos en este artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26939 del 20 de abril de 1998)

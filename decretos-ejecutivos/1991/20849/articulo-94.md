@@ -1,1 +1,4 @@
-Artículo 94.—La ponderación de la experiencia laboral profesional será proporcional a la jornada de trabajo de los puestos que desempeñen los servidores que se acojan al beneficio por carrera profesional.
+Artículo 94.—La experiencia laboral acumulada antes de la obtención del grado profesional requerido, podrá ser reconocida cuando además de la condición de egresados, los servidores reunieren una de las siguientes condiciones:
+a) Si por razón de inopia o por permitirlo el requisito de la clase, los servidores hubiesen sido nombrados en un puesto de nivel profesional.
+b) Los servidores hubiesen ocupado un puesto de la clase inmediata inferior al puesto profesional en que tiene opción al reconocimiento del beneficio. En este caso se tomará en cuenta una experiencia mínima de un año, y hasta un máximo de cuatro, siempre que sea específica del puesto que se trate y que el mismo hubiese sido reasignado a una clase de puesto de nivel profesional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26939 del 20 de abril de 1998)

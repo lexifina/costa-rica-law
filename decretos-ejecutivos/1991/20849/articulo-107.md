@@ -1,1 +1,2 @@
-Artículo 107.—El Departamento de Personal de MIDEPLAN registrará la fecha de presentación de las solicitudes formuladas y las presentará ante la Comisión de Carrera Profesional para los servicios de la Dirección, a los efectos de su respectiva evaluación.
+Artículo 107.—Si los servidores beneficiarios no aceptan la decisión tomada por el Departamento de Personal de MIDEPLAN podrán recurrir ante la Comisión de Carrera Profesional en el término de ocho días hábiles a partir de la fecha en que reciban la comunicación, la que en un plazo similar deberá pronunciarse sobre el reclamo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26939 del 20 de abril de 1998)
