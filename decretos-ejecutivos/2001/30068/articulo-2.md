@@ -1,0 +1,1 @@
+Artículo 2º—Este decreto rige a partir del 31 de diciembre del año 2001 y por el período mencionado en el artículo anterior, sin demérito de las potestades del Poder Ejecutivo para efectuar las modificaciones o revisiones que se consideren oportunas y la aplicación del mismo se hará de conformidad con las normas y principios correspondientes en materia aduanera.
