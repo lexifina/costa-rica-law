@@ -1,3 +1,1 @@
-ARTICULO 2.- Las empresas privadas que contribuyan a los fines de la
-Fundación a que se refiere la presente Ley, podrán deducir su donación del
-monto total objeto del pago del impuesto sobre la renta, por una sola vez.
+ARTICULO 2.- Las empresas privadas que contribuyan a los fines de la Fundación a que se refiere la presente Ley, podrán deducir su donación del monto total objeto del pago del impuesto sobre la renta, por una sola vez.
