@@ -1,0 +1,1 @@
+Artículo 11.—El Banco podrá apersonarse en dicha información, y la corporación o dependencia concederá a los inspectores o representantes del Banco,- toda clase de facilidades (excepto las pecuniarias) y autorización para proseguir sus investigaciones y para revisar las cuentas u otros documentos que posea la corporación o dependencia, en relación con dicho asunto.

@@ -1,0 +1,3 @@
+Artículo 12.—Si en la información levantada por b corporación o dependencia, quedaren comprobados los cargos imputados al fiado, y se hubiera determinado el monto a -que asciende la pérdida de
+que sea legalmente responsable el mismo, lo notificará aquélla al Banco, por escrito, y el Banco integrará el importe de la suma que por tal motivo se le reclame, dentro del monto de su póliza, en la Tesorería de la corporación o dependencia, a más tardar, diez días naturales después de su notificación.
+El Banco puede pedir que dicho reclamo tenga la conformidad de la Secretaría de Hacienda, órgano correspondiente.

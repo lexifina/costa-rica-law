@@ -1,0 +1,2 @@
+. Artículo 14.—El hecho de que el Banco haya abonado el monto a que asciende la pérdida, o el de su póliza, no exime a la corporación o dependencia de su obligación de entablar los juicios que según las leyes o reglamentos respectivos corresponda iniciar para el castigo del delincuente y sus corresponsables.
+Si antes no lo hubiere hecho, la corporación o dependencia iniciará el proceso correspondiente al serle solicitado por el Banco.

@@ -1,0 +1,1 @@
+Artículo 7°—Si el fiado fuere llevado a otro puesto, cargo o comisión en que también tenga que garantizar su manejo, la misma póliza con autorización del Banco, podrá hacerse extensiva a dicho nuevo puesto, cargo o comisión. Dicho cambio, sin embargo, deberá hacerse constar por el Banco al dorso de la respectiva póliza.

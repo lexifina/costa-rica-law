@@ -1,0 +1,2 @@
+Artículo 5°— El monto asegurado podrá aumentarse en cualquier tiempo de la vigencia de la póliza, mediante el consentimiento del Banco y el pago de la prima correspondiente a tal aumento. Igualmente podrá reducirse dicho monto, y en tal caso el Banco devolverá la prima no devengada que corresponda a la reducción.
+El aumento o reducción del monto asegurado, para que surta efectos, debe hacerse constar por el Banco al dorso de la respectiva póliza.

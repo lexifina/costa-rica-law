@@ -1,0 +1,1 @@
+Artículo 3°— La póliza se expedirá por un año, -pero podrá ser renovada, de acuerdo con el Banco, de año en año. De renovarse la póliza, la renovación por ningún concepto se considerará con efectos acumulativos respecto al monto por el cual se expida la póliza.

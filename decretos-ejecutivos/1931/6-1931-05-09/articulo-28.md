@@ -1,0 +1,1 @@
+Artículo 28.—Caducará el derecho de reclamar ‘al Banco por hechos u omisiones que no le fueren denunciados durante la ejecución del contrato o -concesión, o dentro del año siguiente a su terminación o suspensión.

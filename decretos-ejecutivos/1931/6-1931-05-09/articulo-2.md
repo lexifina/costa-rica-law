@@ -1,0 +1,1 @@
+Artículo 2° — La responsabilidad del Banco en ningún caso excederá del monto expresado en su póliza, ni se extenderá a hechos u. omisiones ocurridos en una época distinta de la comprendida por ella, o en el desempeño de otro puesto, comisión o cargo que el estipulado en la referida póliza.

@@ -1,0 +1,2 @@
+Artículo 23.—Si el contratista o concesionario dejare de cumplir total o parcialmente cualquier condición de su contrato o concesión, la corporación o dependencia lo avisará inmediatamente al Banco, por escrito. En tal- evento, si a éste le conviniere, podrá asumir por su cuenta la continuación del contrato u obra. Para decidir esto, gozará de diez días de plazo.
+La corporación o dependencia, en este caso, reconocerá al Banco los mismos derechos y privilegios a que estaba obligada con el fiado.

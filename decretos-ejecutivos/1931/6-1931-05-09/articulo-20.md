@@ -1,0 +1,1 @@
+Artículo 20.—La póliza del Banco tampoco responde por accidentes ocurridos a los operarios, ni por daños a terceros, ni por demoras ocasionadas involuntariamente de parte del contratista, por huelgas, disturbios obreros o causas no atribuibles al mismo.

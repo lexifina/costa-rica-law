@@ -1,0 +1,2 @@
+Artículo 26.—Si el laudo fuere adverso al Banco, éste pagará los gastos de arbitraje e integrará en la tesorería de la corporación o dependencia, dentro de diez días después de su notificación, la suma que en el mismo laudo se fije por la pérdida que los acto’s u omisiones del fiado hubieren hecho sufrir a la corporación o dependencia, sin perjuicio del derecho del Banco . a ventilar sus diferencias ante los tribunales comunes.
+La condenatoria contra el Banco no podrá exceder del monto de la póliza.
