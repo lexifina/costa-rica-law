@@ -1,0 +1,1 @@
+5º—Instruir a la Administración para que, en el plazo de un mes, presente a esta Junta Directiva una propuesta de modificación integral al Reglamento de Capacitación y Profesionalización vigente, de forma tal que se subsane una serie de condiciones que actualmente deben responder más a la realidad institucional."
