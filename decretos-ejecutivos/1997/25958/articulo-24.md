@@ -1,0 +1,1 @@
+Artículo 24.—Al Cartel de Licitación o pliego de condiciones, se entienden por incorporadas todas las normas jurídicas vigentes aplicables al procedimiento, establecidas en la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 54.—Una vez ingresado el material, se llenará el formulario diseñado para dar fe de que efectivamente el material se encuentra bajo la responsabilidad de la Institución y ha cumplido con las especificaciones señaladas en la orden de compra respectiva.
