@@ -1,0 +1,1 @@
+Artículo 2° Las reglas establecidas por la presente normativa no podrán ser variadas por ninguna dependencia administrativa de la Municipalidad , salvo las reformas que en ejercicio de sus potestades haga el Concejo Municipal.

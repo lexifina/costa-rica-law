@@ -1,0 +1,1 @@
+Artículo 7°—Una vez hecho el arreglo de pago, de inmediato se descargará el mismo de la cuenta individual del contribuyente, pasándose a cuentas por arreglo de pago que para esos efectos debe abrir el Departamento de Contabilidad.

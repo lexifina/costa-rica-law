@@ -1,0 +1,1 @@
+Artículo 3°—El presente reglamento solo será aplicado al contribuyente que así lo solicite expresamente y del modo que en cada caso se especifica, previo estudio del Departamento de Cobranzas y Rentas sobre la procedencia del arreglo, tomando en cuenta antecedentes, actividad y situación.
