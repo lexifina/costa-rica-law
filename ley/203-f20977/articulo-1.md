@@ -1,0 +1,5 @@
+DECRETO 203
+El Jefe Supremo del Estado Libre de Costa Rica.
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa-Rica, teniendo en consideración el cúmulo de atenciones de la dirección de siembras y factoría de tabacos en su planta actual: que es de tenerse presente que sobre haberse suprimido la plaza de Fiel de almacenes, á pesar de la incorporación de la factoría de tabacos y ramo de pólvora, es al mismo tiempo por la ley de 5 de junio del año próximo pasado, la Tesorería de la federación de las rentas que de la misma se administran en el Estado: penetrada de una parte que el artículo 48 de la expresada ley de 5 de junio, fundó su administración en el Ministro Director y Fiel Interventor, únicamente sin otro clavero que coadyuve sus operaciones; y de otra que la provisión de éste es indispensable, para que subrogue la plaza de Fiel Interventor, en los casos necesarios, ha tenido á bien decretar y decreta:
+Art, 1°—Se establece en la Dirección de Siembras y Factoría de Tabacos, la plaza de un Fiel de Almacenes, dotado con trescientos sesenta pesos anuales.
