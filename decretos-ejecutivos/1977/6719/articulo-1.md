@@ -1,0 +1,5 @@
+N° 6719-T
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS TRANSPORTES,
+Decretan:
+Artículo 1°.- De conformidad con lo dispuesto por el artículo 23 de la Ley General de Caminos Públicos N° 5060 de 22 de agosto de 1972 y Ley de Creación del Ministerio de Obras Públicas y Transportes N° 4786 de 5 de julio de 1971 y por no aceptar el precio, expropiar a Ambaco Comercial Sociedad Anónima y Jaime Badilla Castro, la primera representada por los señores Jaime Badilla Castro y Javier Angulo Zamora, en su carácter de Presidente y vicepresidente, respectivamente una faja de terreno que mide 1 143.00 metros cuadrados, según plano levantado por el Ministerio de Obras Públicas y Transportes, que se segregará de la finca inscrita al Partido de San José, tomo 1516, folio 124 y 125, número 136…286, asiento 4 y 7, situada en San Rafael, distrito segundo, cantón tercero de la provincia de San José, necesaria para el derecho de vía de la carretera San José-Ciudad Colón, Sección Escazú-Santa Ana.
