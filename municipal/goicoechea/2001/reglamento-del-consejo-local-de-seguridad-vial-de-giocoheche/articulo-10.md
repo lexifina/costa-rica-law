@@ -1,0 +1,1 @@
+Articulo 10.—En caso de ausencia a las sesiones de alguno (a) de los (a) integrantes del Comité Ejecutivo el cargo será asumido por el (la) miembro (a) del COLOSEVI que designe el (la) presidente (a) en ejercicio.

@@ -1,0 +1,1 @@
+Articulo 18—La ejecución el trámite y el control del gasto presupuestario que se derive de la gestión administrativa y operativa del COLOSEVI estará a cargo de la Municipalidad y se dará con base en el plan de trabajo de seguridad vial formulado por el COLOSEVI y aprobado por el Concejo Municipal y por el Consejo de Seguridad Vial.

@@ -1,0 +1,1 @@
+Articulo 17—Para la implementación de los programas y proyectos que formule y recomiende el COLOSEVI este Consejo podrá gestionar recursos adicionales provenientes de instituciones públicas y privadas del Cantón así como de la población.
