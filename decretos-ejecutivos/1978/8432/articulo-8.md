@@ -1,0 +1,1 @@
+Artículo 8°-Los acuerdos de la Asamblea General, una vez aprobados por el Consejo Nacional de Política Regional y Urbana, tendrán carácter vinculante para las instituciones y entidades que integran el Consejo Regional.
