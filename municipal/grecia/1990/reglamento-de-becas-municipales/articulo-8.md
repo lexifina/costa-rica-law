@@ -1,1 +1,0 @@
-Artículo 8°—Los becados deberán presentar a la Comisión fotocopia del informe de calificaciones, por cada período en que lo rinda la institución respectiva y debidamente llenado, el formulario del estudio socieconómico, que a ese efecto se les entregará.
