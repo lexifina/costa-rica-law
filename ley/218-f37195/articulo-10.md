@@ -1,0 +1,1 @@
+Artículo 10.—Para los efectos de esta ley, los Bancos Comerciales deberán presentar al Banco, lo más tarde 60 días después de la vigencia de la presente ley, una lista de las operaciones que ellos consideren como "Congeladas" y que se encuentren dentro de las disposiciones respectivas.

@@ -1,0 +1,9 @@
+N° 218
+LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
+Considerando:
+Que en los últimos años no ha habido en el país crédito suficiente de largo plazo, que permitiera hacer mejoras reproductivas en las explotaciones agrícolas, ganaderas e industriales, que necesitan esa clase de crédito para desarrollarse.
+Que no obstante lo anterior, muchos agricultores, ganaderos e industriales, con el objeto de crear riqueza nacional, han invertido fondos de préstamo a Corto Plazo en esa clase de inversiones, pasando por serias dificultades al vencimiento de los mismos, por cuanto la lentitud de la recuperación de las inversiones, no los capacita económicamente para hacer frente a esos compromisos.
+Que ante esa situación, los Bancos Comerciales del país han sufrido un gran lastre de sus “Carteras”, congelándose muchos créditos y restándoles disponibilidades para atender otros aspectos del desenvolvimiento y creación de la riqueza nacional, que no pueden descuidarse sin perjuicio evidente, y que por conveniencia pública es necesario ponerle remedio a esta situación de hecho, así como tomas medidas para el futuro, dotando a la agricultura, ganadería e industria de los medios que para su desenvolvomiento requiere el país.
+Por tanto,
+Decreta:
+Artículo 1°—Amplíase en veinte millones de colones, el capital del Departamento Hipotecario del Banco Nacional de Costa Rica, que se destinarán a la concesión de créditos, con el único y exclusivo objeto de traspasar a este Departamento aquellas operaciones que actualmente existan en los Bancos Comerciales, con el carácter de "Congeladas" por haber invertido sus deudores estos fondos de "Corto Plazo" en mejoras de explotaciones agrícolas, ganaderas o industriales, todo con el objeto de crear más riqueza nacional, debidamente justificado y estudiado en cada caso.

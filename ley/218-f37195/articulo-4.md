@@ -1,0 +1,1 @@
+Artículo 4°—Estos Bonos devengarán un interés del seis por ciento (6%) anual, que se pagará por trimestres vencidos y tendrán una amortización del siete por ciento (7 %) anual en fondo acumulativo, mediante sorteos trimestrales.

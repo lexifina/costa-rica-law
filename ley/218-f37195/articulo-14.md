@@ -1,0 +1,1 @@
+Artículo 14.—El monto de estos préstamos será hasta el mismo monto que el deudor adeude en el Banco Comercial y en cuanto a márgenes de garantía, porcentaje de las mismas y demás, serán determinados por la Junta Directiva General del Banco Nacional.

@@ -1,0 +1,1 @@
+Artículo 3°—Autorízase al Poder Ejecutivo para emitir veinte millones de colones, en títulos de la Deuda Pública, que se denominarán ''Bonos Refundición Deudas Bancarias", cuyo producto será destinado a la integración del Capital del Banco Nacional de Costa Rica. Estos Bonos tendrán la garantía del Estado y también la garantía del activo total del Banco Nacional de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 15.—Los fondos que no se usen de los previstos para la nueva Sección de Crédito, así como los que reciba el Departamento Hipotecario en concepto de amortizaciones y cancelaciones de estas operaciones, los dedicará en adelante a conceder préstamos de largo y mediano plazo, de conformidad con las disposiciones de su ley constitutiva.
