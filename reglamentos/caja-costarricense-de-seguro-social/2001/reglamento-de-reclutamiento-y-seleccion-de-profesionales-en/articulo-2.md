@@ -1,0 +1,39 @@
+Artículo 2°—De los puestos y sus requisitos. En este capítulo se incluye la nomenclatura y los requisitos de los diferentes puestos que conforman las disciplinas de Farmacia, Nutrición, Odontología y Trabajo Social.
+2.1 Profesionales en Farmacia |
+Nombre del puesto | Requisitos
+Farmacéutico 1 | - Licenciatura en Farmacia -Incorporación al Colegio de Farmacéuticos de Costa Rica.
+Farmacéutico 2 | - Licenciatura en Farmacia. -Incorporación al Colegio de Farmacéuticos de Costa Rica. - Experiencia en labores administrativas en Farmacia, cuando el puesto lo requiera, mínimo un año. - Experiencia en labores profesionales del cargo, no menos de dos años.
+Farmacéutico 3 | - Licenciatura en Farmacia. -Incorporación al Colegio de Farmacéuticos de Costa Rica. - Experiencia en labores administrativas en Farmacia, cuando el puesto lo requiera, mínimo un año. - Experiencia en labores profesionales del cargo, no menos de 3 años
+Farmacéutico 4 | - Licenciatura en Farmacia. -Incorporación al Colegio de Farmacéuticos de Costa Rica - Experiencia en labores profesionales en Farmacia, relacionadas con el cargo, no menor de 5 años. - Experiencia y conocimientos administrativos en farmacia, no menor de 3 años
+Farmacéutico 5 | - Licenciatura en Farmacia. -Incorporación al Colegio de Farmacéuticos de Costa Rica - Experiencia en labores profesionales en Farmacia, relacionadas con el cargo, no menor de 5 años. - Experiencia y conocimientos administrativos dentro de la Institución, no menor de 4 años
+Farmacéutico 6 | - Licenciatura en Farmacia - Especialidad en Administración de Servicios de Salud o en áreas afines a la Administración . - Incorporación al Colegio de Farmacéuticos de Costa Rica. - Inscripción en el Registro de Especialidades del Colegio de Farmacéuticos de Costa Rica, en la especialidad respectiva. - Experiencia en labores profesionales en farmacia dentro de la Institución, no menor de 10 años. - Experiencia y conocimientos administrativos dentro de la Institución como Farmacéutico, no menor de 6 años.
+|
+2.2 Profesionales en Nutrición |
+Nombre de puesto | Requisitos
+Profesional 1 | - Bachiller universitario en Nutrición. - Incorporado al Colegio respectivo (si lo hay en el momento del concurso).
+Profesional 2 | - Licenciatura en Nutrición - Incorporación al Colegio respectivo (si lo hay en el momento del concurso). - Experiencia en labores profesionales relacionadas con el cargo.
+Profesional 3 | - Licenciatura en Nutrición - Incorporación al Colegio respectivo (si lo hay en el momento del curso). - Experiencia en labores profesionales de 2 años como Nutricionista Clínico
+|
+Jefe Unidad Administrativa 3 | - Bachiller Universitario en Nutrición. - Incorporación al Colegio respectivo (si lo hay en el momento del concurso). - Experiencia en labores profesionales de 3 anos como Nutricionista Clínico - Experiencia y conocimientos en labores administrativas.
+|
+Jefe Unidad Administrativo 4 | - Licenciatura en Nutrición - Incorporación al Colegio respectivo, si lo hay en el momento del concurso. - Experiencia en labores profesionales relacionadas con el cargo, no menor de 4 años - Experiencia y conocimientos administrativos en el campo de la Nutrición, no menor de 2 años.
+Jefe Unidad Administrativo 6 | - Licenciatura en Nutrición - Incorporación al Colegio respectivo, si lo hay en el momento del concurso. -Especialidad en Administración de Servicios de Salud o en áreas afines -Experiencia y conocimientos administrativos dentro de la Institución como Jefe Unidad Administrativa 4 y /ó 5 en Nutrición, no menor de 5 años.
+|
+2.3 Profesionales en Odontología |
+Nombre del puesto | Requisitos
+Odontólogo 1 | -Licenciatura en Odontología -Incorporación al Colegio de Cirujanos Dentistas de Costa Rica
+Odontólogo 2 | -Licenciatura en Odontología -Incorporación al Colegio de Cirujanos Dentistas de Costa Rica -Conocimiento y experiencia en Administración de Servicios de Salud o afín a esta. -Experiencia en labores profesionales relacionadas con el cargo, no menor de 2 anos.
+Odontología 3 | -Licenciatura en Odontología -Especialidad en el área clínica del puesto a ocupar. -Incorporación al Colegio de Cirujanos Dentistas de Costa Rica en el registro de especialidades --Experiencia en labores profesionales relacionadas con el cargo, no menor de 3 años.
+Odontología 4 | -Licenciatura en Odontología -Especialidad en Administración de Servicios de Salud o en áreas a fínes, o en Odontología General Avanzada cuando el puesto lo requiera. -Incorporación al Colegio de Cirujanos Dentistas de Costa Rica en el registro de especialidades. -Experiencia en labores profesionales relacionadas con el cargo, no menor de 4 años. -Experiencia y conocimientos administrativos, no menor de 3 años.
+Odontología 5 | - Licenciatura en Odontología - Especialidad en Administración de Servicios de Salud o en afínes, o especialidad clínica cuando el puesto lo requiera. - Incorporación al Colegio de Cirujanos Dentistas de Costa Rica en el registro de especialidades. -Experiencia y conocimientos administrativos dentro de la Institución como Odontólogo, no menor de 4 años. -Experiencia en labores profesionales relacionadas con el cargo, no menor de 5 anos.
+Odontólogo 6 | -Licenciatura en Odontología - Especialidad en Administración de Servicios de Salud o en áreas afínes. -Incorporación al Colegio de Cirujanos Dentistas de Costa Rica en el registro de especialidades. - Experiencia y conocimientos administrativos dentro de la Institución como Odontólogo 4 y/o 5, no menor de 5 años. -Experiencia en labores profesionales relacionadas con el cargo, no menor de 10 años.
+|
+2.4 Profesionales en Trabajo Social |
+Título del puesto | Requisitos
+Profesional 1 | -Bachiller universitario en Trabajo Social. -Incorporación al Colegio de Trabajadores Sociales de Costa Rica.
+Profesional 2 | -Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica. -Experiencia en labores profesionales relacionadas con el cargo.
+Profesional 3 | -Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica -Experiencia en labores profesionales relacionadas con el cargo no menor de 2 años. -Experiencia profesional en dirección de proyectos sociales, no menor de 2 años. -Conocimientos administrativos en el área de su especialidad.
+Profesional 4 | -Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica -Experiencia en labores profesionales relacionadas con el cargo, no menor de 3 años. -Experiencia en dirección de proyectos sociales. -Experiencia y conocimientos en labores Administrativas.
+Jefe Unidad Administrativa 4 | -Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica -Experiencia en labores profesionales relacionadas con el cargo, no menor de 4 años. -Experiencia y conocimientos en labores administrativas en la Caja, no menor de 3 años.
+Jefe Unidad Administrativa 5 | -Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica -Especialidad en Administración de Servicios de Salud o áreas afínes, o preparación equivalente a nivel de post-grado. -Experiencia y conocimientos en labores administrativas, dentro de la Institución no menor de 4 años. -Experiencia y conocimientos en labores administrativas dentro de la Institución como Jefe Unidad Administrativa 4.
+Jefe Unidad Administrativa 6 | - Licenciatura en Trabajo Social -Incorporación al Colegio de Trabajadores Sociales de Costa Rica. -Especialidad en Administración de Servicios de Salud o en áreas afínes o preparación equivalente a nivel de post - grado. -Experiencia en labores profesionales relacionadas con el cargo, no menor de 10años. -Experiencia y conocimientos Administrativos dentro de la Institución como Jefe Unidad Administrativo 5 en Trabajo Social, no menor de 5 años.

@@ -1,0 +1,4 @@
+Artículo 4°—Modalidades de concurso. Para ser admitido a concurso el candidato o candidata debe tener como mínimo los requisitos exigidos según la categoría del puesto en concurso, y cumplir con las pruebas dispuestas en el presente Reglamento de acuerdo con lo estipulado en cada disciplina.
+Las plazas vacantes de profesionales de las disciplinas referidas, se llenarán mediante concurso interno o externo, de acuerdo con el siguiente detalle:
+Concurso Interno: En este concurso podrán participar los funcionarios de la Institución nombrados en propiedad o en forma interina como mínimo hasta la fecha de cierre del concurso, que cumplan con los requisitos establecidos en este Reglamento y en el cartel del mismo.
+Concurso Externo: Se publica para ocupar las plazas que no fueron adjudicadas en el concurso anteriormente citado. En éste pueden participar todos los profesionales de las disciplinas referidas del país. habilitados legalmente para el ejercicio de la profesión.
