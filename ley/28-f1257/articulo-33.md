@@ -1,0 +1,2 @@
+Art. 33.-Esta ley comenzará á regir el quince del presente mes.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á primero de julio de mil ochocientos ochenta y siete.-A. Es- QUIVEL, Presidente. -A. VENEGAS, Secretario.-FRANCO. M: FUENTES, Prosecretario.-Palacio Presidencial. San José, á los dos días del mes de julio de mil ocho- cientos ochenta y siete. -Ejecútese.-BERNARDO SOTO. El Secretario de Esado en el despacho de Gracia y Justicia ,-CLETO GONZÁLEZ VÍQUEZ.

@@ -1,0 +1,2 @@
+Art. 10.-Los jurados á quienes se llame á formar tribunal, podrán excusarse si tienen en su abono alguna de las causas que señala el artículo 4°, ó si para el proceso les asiste alguna de las causales que pueden excusarse para un negocio determinado por los Jueces de 1a Instancia.
+La excusa se presentará dentro de veinticuatro horas después de notificados, al Juez del Crimen, quien resolverá sobre ella, evacuando las pruebas que crea necesarias.
