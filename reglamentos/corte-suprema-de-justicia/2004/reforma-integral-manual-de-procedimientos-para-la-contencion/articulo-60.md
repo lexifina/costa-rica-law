@@ -1,1 +1,0 @@
-Artículo 60.—El conductor de detenidos tiene la facultad de desalojar con consentimiento de la autoridad judicial a cuya orden se encuentre el privado de libertad, las personas que considere pueden interrumpir u obstaculizar la presentación de éste en el despacho judicial.

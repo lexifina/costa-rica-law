@@ -1,1 +1,0 @@
-Artículo 62.—El conductor de detenidos debe actuar en estricta coordinación con los otros compañeros asignados a la diligencia, y con la respectiva jefatura, a fin de garantizar el correcto desempeño de sus funciones previa planificación del trabajo a realizar. En toda diligencia, la Jefatura debe señalar un responsable.

@@ -1,1 +1,0 @@
-Artículo 45.—La revisión del espacio destinado a los privados de libertad, debe realizarse minuciosamente, a fin de detectar daños en la estructura, localizar objetos no permitidos que puedan servir para agredir a otra persona, intentar fugarse, o que hayan sido robados a otro privado de libertad.

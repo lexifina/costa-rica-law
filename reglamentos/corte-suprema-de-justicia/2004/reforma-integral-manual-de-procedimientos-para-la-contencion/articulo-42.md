@@ -1,1 +1,0 @@
-Artículo 42.—Durante el traslado el conductor de detenidos, no debe permitir que ninguna persona se acerque a éste para saludarlo, abrazarlo, besarlo o cualquier otra situación que pueda afectar las medidas de seguridad. En estos casos debe impedir el acercamiento de manera respetuosa haciendo valer la autoridad de la que está investido.

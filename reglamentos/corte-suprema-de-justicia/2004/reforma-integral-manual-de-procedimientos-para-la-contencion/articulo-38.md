@@ -1,1 +1,0 @@
-Artículo 38.—El arma de fuego deberá entregarse respetando las medidas de seguridad, tales como: Vacía, abierta, revisar que no contenga munición y con los cargadores separados. Lo anterior también aplica cuando el arma es enviada para mantenimiento.

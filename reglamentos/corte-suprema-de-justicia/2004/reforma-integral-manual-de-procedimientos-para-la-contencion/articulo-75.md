@@ -1,1 +1,0 @@
-Artículo 75.—Cuando el imputado no comprenda el idioma oficial o presente alguna discapacidad que le impida comunicarse, tendrá derecho a que se le designe un traductor o intérprete, sin perjuicio de que por su cuenta nombre uno de su confianza.

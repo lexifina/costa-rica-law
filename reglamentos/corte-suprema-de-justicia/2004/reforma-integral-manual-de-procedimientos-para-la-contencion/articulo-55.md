@@ -1,1 +1,0 @@
-Artículo 55.—Si durante el traslado, el privado de libertad debe realizar una necesidad fisiológica y se hace necesario detener el vehículo, el conductor de detenidos debe tratar de ubicar algún sitio adecuado donde puedan facilitarle el servicio sanitario; lugar que previamente debe ser revisado, para tomar las medidas de seguridad del caso e impedir cualquier intento de fuga.

@@ -1,1 +1,0 @@
-Artículo 49.—En cualquiera de los dos casos anteriores, ante un eventual ataque los oficiales encargados de la escolta, procederán a enfrentarlo y los oficiales a cargo de la ambulancia se retirarán sin pérdida de tiempo, procurando el auxilio necesario.

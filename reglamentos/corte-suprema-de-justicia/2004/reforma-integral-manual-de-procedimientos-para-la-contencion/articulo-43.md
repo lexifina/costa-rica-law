@@ -1,1 +1,0 @@
-Artículo 43.—Cuando las circunstancias lo requieran, los Jefes de las distintas Unidades policiales y la Sección de Cárceles y Transportes podrán coordinar con otros entes policiales especializados, el traslado de detenidos peligrosos así como la vigilancia interna y externa de los inmuebles judiciales, de común acuerdo con la autoridad que solicita la diligencia.

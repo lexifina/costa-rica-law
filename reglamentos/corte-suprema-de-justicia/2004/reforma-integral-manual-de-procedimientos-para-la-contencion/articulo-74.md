@@ -1,1 +1,0 @@
-Artículo 74.—El defensor del imputado podrá presenciar la realización del acto, en los términos en que lo establece el Código Procesal Penal. El Fiscal o Juez que participe en la diligencia deberá velar porque el defensor no interfiera en el normal desarrollo de la diligencia.

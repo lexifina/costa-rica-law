@@ -1,1 +1,0 @@
-Artículo 30.—El Conductor de detenidos deberá cumplir fielmente con los controles establecidos por la Jefatura de Cárceles y Transportes para la entrega y devolución de armas y equipo especial que se utilice en el traslado de privados de libertad. Dicho control establecerá un detalle por caso, en forma completa e individualizada sobre el uso de cada arma.

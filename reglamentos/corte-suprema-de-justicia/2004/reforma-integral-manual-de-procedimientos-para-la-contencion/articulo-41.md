@@ -1,1 +1,0 @@
-Artículo 41.—Los Defensores y representantes del Ministerio Público debidamente acreditados, podrán solicitarle al conductor de detenidos que se mantenga a una distancia prudente mientras conversa con su cliente, siempre que las condiciones del lugar lo permitan y sin que se descuiden las correspondientes medidas de seguridad.

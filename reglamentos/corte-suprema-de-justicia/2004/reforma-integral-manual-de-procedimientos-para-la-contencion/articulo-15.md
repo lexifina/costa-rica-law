@@ -1,1 +1,0 @@
-Artículo 15.—Toda revisión corporal de personas privadas de libertad, debe efectuarse en un lugar adecuado que garantice la seguridad del detenido, del custodio y de cualquier otra persona que tenga contacto directo o indirecto con aquél.

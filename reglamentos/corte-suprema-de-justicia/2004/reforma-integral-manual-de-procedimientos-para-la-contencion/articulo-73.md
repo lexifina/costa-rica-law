@@ -1,5 +1,0 @@
-Artículo 73.—Cuando el privado de libertad se oponga a la intervención corporal y exista orden de la autoridad competente de realizarla aún en contra de su voluntad, los Conductores de Detenidos o el personal de Investigación del Organismo deberán proceder de la siguiente manera:
-a) El privado de libertad se trasladará a las celdas del Complejo mientras se reúne el personal de apoyo en el consultorio designado por la Sección de Clínica Médico Forense.
-b) Cumplido el punto anterior se procederá a la evaluación médica para determinar el estado de salud que permita la contención.
-c) El psiquiatra forense o el psicólogo clínico explicará al privado de libertad lo ordenado por la autoridad judicial y el procedimiento a seguir y solicitará su colaboración. En caso de rehusarse se procederá a la contención mecánica y restricción de movimientos como lo dicta el arte médico, auxiliándose del mobiliario requerido para procurar la integridad del privado de libertad y los intervinientes en la pericia.
-d) Se notificará a la autoridad competente el resultado de la diligencia.
