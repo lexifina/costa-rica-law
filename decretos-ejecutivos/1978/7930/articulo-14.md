@@ -14,4 +14,7 @@ f) Indicación de que el título es al portador;
 g) Indicación de la Ley que lo autoriza; y
 h) Fecha de emisión, fecha de validez para el pago de impuestos y fecha de caducidad.
 Al dorso se imprimirán los artículos 6° y 7° de la Ley.
+(*)EI CAT caducará veinticuatro meses después de su fecha de emisión. En caso que dicha fecha correspondiera a un día hábil. se tendrá como fecha de caducidad la del día hábil próximo siguiente.
+(*)A aquellas personas físicas o jurídicas que habiendo solicitado la emisión del Certificado en la forma debida y dentro del término establecido. no hayan recibido materialmente los títulos dentro del término de dos años contados a partir de la fecha de ingreso de las divisas, el Consejo Nacional de Inversiones les otorgará la posibilidad para que soliciten nuevamente la respectiva emisión y se les haga entrega material de los títulos. En estos casos, la inercia de la Administración para emitir los títulos no podrá perjudicar los derechos de los particulares, por lo que la fecha de emisión de los mismos será la de la confección de los mismos.
+(*)(Así adicionado por el artículo 1° del decreto ejecutivo N° 20028 del 31 de octubre de 1990)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 13 al 14 actual)

@@ -36,3 +36,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | 21 | 1989-08-31 | Decreto Ejecutivo 19170 (1989-08-31) |
 | 22 | 1989-09-27 | Decreto Ejecutivo 19204 (1989-09-27) |
 | 23 | 1990-09-13 | Decreto Ejecutivo 19921 (1990-09-13) |
+| 24 | 1990-10-31 | Decreto Ejecutivo 20028 (1990-10-31) |
