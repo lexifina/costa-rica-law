@@ -1,0 +1,1 @@
+Art. 3°-Las Municipalidades harán que dentro del término expresado en el artículo primero, se rectifique el trazo del ensanche de las poblaciones, de modo que éste obedezca á un plan regulador y ordenado.
