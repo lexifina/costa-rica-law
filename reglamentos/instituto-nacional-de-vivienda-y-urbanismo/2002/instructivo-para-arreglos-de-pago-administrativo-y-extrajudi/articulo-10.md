@@ -1,0 +1,1 @@
+Artículo 10.—En caso de incumplimiento, se tramitará de acuerdo con lo establecido en el "Reglamento para Operaciones Atrasadas" y al Instructivo para el cobro de operaciones morosas mediante la designación de abogados externos.

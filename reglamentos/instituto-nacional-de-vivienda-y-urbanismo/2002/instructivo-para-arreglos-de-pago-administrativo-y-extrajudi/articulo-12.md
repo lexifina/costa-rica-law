@@ -1,0 +1,1 @@
+Artículo 12.—En el término de un año, no podrá concederse más de un arreglo de pago ni readecuación del crédito. Si existe incumplimiento de arreglo, en el plazo establecido, éste solo se podrá mantener si se cubren las cuotas dejadas de pagar en el arreglo, poniendo éste al día.

@@ -1,0 +1,1 @@
+Artículo 9º—El trámite de la readecuación, se regirá por normas establecidas en los Reglamentos del INVU para préstamos hipotecarios. En relación con la capacidad de pago y las condiciones a convenir por los deudores, se considerarán, como máximo, las vigentes en el Sistema Bancario Nacional.

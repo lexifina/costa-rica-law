@@ -1,0 +1,2 @@
+Artículo 15.—De los gastos incurridos. En caso de aquellos créditos que se determinen como incobrables y cuando no exista posibilidad de que el obligado cancele cualquiera de los gastos originados por concepto del cobro administrativo o judicial, correrá por cuenta de la institución cubrir lo correspondiente a su costo y el de los honorarios respectivos.
+Igual situación sucederá cuando el respectivo obligado demuestre encontrarse al día, en el pago de las respectivas cuotas ante la Unidad de Gestión de Cobro.

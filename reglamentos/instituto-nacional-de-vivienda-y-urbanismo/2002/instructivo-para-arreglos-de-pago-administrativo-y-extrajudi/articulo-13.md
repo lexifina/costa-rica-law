@@ -1,0 +1,4 @@
+Artículo 13.—Se podrá conceder arreglo de pago especial a aquellos deudores cuya situación económica es precaria y así reconocida mediante formulario socioeconómico debidamente justificado con todos los antecedentes necesarios.
+El mismo será autorizado por el Jefe del Proceso de Cobros, previa recomendación del Trabajador Social o funcionario designado.
+Este tipo de arreglo consistirá en la cancelación de media cuota por mes por un año, al final del cual el deudor deberá cancelar la cuota completa durante el segundo año y al inicio del tercer año deberá formalizar un arreglo de pago con la normativa vigente.
+Casos extraordinarios y de condición paupérrima, se podrá autorizar la cancelación de media cuota por dos años, posteriormente se procederá conforme lo señalado en el párrafo anterior.

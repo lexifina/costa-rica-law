@@ -1,0 +1,5 @@
+Artículo 5º—Son funciones del Proceso de Cobros:
+a) Conocer y pronunciarse en relación con los arreglos de pago, administrativos y extrajudiciales, solicitados por los interesados y analizados conforme los parámetros establecidos en el presente instructivo.
+b) Dictaminar sobre las posibles readecuaciones de deudas solicitadas y el financiamiento, mediante el otorgamiento de un crédito que cubra los intereses moratorios, las cuotas vencidas, el principal vencido y por vencer, gastos administrativos, pendientes de las operaciones que solicitan este tipo de arreglo, en el cual el interesado deberá aportar los gastos legales y cualquier otro gasto generado por la formalización de la deuda. Dichos montos deberán ser pagados previa formalización del arreglo de pago o readecuación de la deuda.
+c) Darle seguimiento a los arreglos de pago readecuaciones y financiamientos aprobados por el Proceso de Cobros o Gerencia General, según corresponda.
+d) Coordinar junto con la Dirección Administrativa Financiera y la Gerencia General, la formación de políticas de recuperación de recursos de operaciones atrasadas y comunicarlas a la Junta Directiva para su aprobación.

@@ -1,0 +1,1 @@
+Artículo 2º—Se consideran deudores morosos por obligaciones financieras, aquellas personas que presenten atrasos en una o más cuotas, según los saldos contables que emita el Sistema de Préstamos Institucionales.

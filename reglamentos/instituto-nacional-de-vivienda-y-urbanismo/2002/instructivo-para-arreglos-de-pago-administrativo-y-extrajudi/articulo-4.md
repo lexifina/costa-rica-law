@@ -1,0 +1,1 @@
+Artículo 4º—La Unidad de Gestión de Cobro podrá solicitar la contratación de localizadores y notificadores, a fin de hacer más eficaz y eficiente el proceso de localización y notificación de las resoluciones administrativas de cobro administrativo.

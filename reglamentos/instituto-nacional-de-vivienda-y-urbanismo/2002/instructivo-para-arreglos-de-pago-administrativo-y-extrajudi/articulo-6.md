@@ -1,0 +1,3 @@
+Artículo 6º—Es atribución del Jefe del Proceso de Cobros, el cobro administrativo o judicial o de su sustituto, autorizar arreglos de pago hasta por un monto de dos millones de colones, en aquellos casos de operaciones en mora en trámite de cobro administrativo judicial.
+Para la aprobación de los arreglos de pago deberá existir un informe del Trabajador Social y/o el funcionario que se tenga designado para el efecto por el Proceso de Cobros.
+En aquellos casos superiores a dos millones de colones, ser resueltos por la Gerencia General, con base en el informe que suscriba el jefe del Proceso de Cobros y/o el funcionario encargado de evaluar la condición socioeconómica.

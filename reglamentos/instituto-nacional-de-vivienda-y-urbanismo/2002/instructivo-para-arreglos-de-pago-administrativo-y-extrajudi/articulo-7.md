@@ -1,0 +1,1 @@
+Artículo 7° Para efectuar arreglos de pago administrativos y extrajudiciales, el solicitante deberá cubrir en principio, como mínimo dos cuotas del atraso, el cual deberá incluir los intereses, los gastos administrativos, los honorarios profesionales (si los hubiere), así como cualquier otro gasto incurrido.
