@@ -5,5 +5,6 @@ a) elaboración de consideraciones preliminares, viabilidades
 técnico-económicas, y desarrollo de proyectos;
 b) elaboración de procesos tecnológicos, documentación técnica y
 suministro de equipos industriales;
-c) entrega de tecnología, intercambio de datos técnicos y documentación;
+c) entrega de tecnología, intercambio de datos técnicos y
+documentación;
 d) instrucción laboral de técnicos y especialistas.
