@@ -17,8 +17,8 @@ organizaciones y entidades, o en colaboración con las mismas. En tales
 casos, el Director Ejecutivo dará cuenta detallada al Consejo de los
 recursos que ello exigiría por parte de la Organización y por parte de la
 entidad o entidades asociadas al proyecto.
-4.- Los estudios e informes que la Organización promueva en virtud de
-lo dispuesto en el presente artículo serán financiados con cargo a los
+4.- Los estudios e informes que la Organización promueva en virtud
+de lo dispuesto en el presente artículo serán financiados con cargo a los
 recursos consignados en el Presupuesto Administrativo elaborado de
 conformidad con las disposiciones del ordinal 1 del artículo 22, y serán
 llevados a cabo por el personal de la Organización y por asesores

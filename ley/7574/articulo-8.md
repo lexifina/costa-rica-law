@@ -24,5 +24,5 @@ funcionamiento de este Convenio.
 5.- Los Gobiernos de los países Miembros, con excepción del Gobierno
 huésped, concederán a la Organización las mismas facilidades que se
 otorguen a los organismos especializados de las Naciones Unidas, en lo
-relativo a restricciones monetarias o cambiarias, mantenimiento de cuentas
-bancarias y transferencias de sumas de dinero.
+relativo a restricciones monetarias o cambiarias, mantenimiento de
+cuentas bancarias y transferencias de sumas de dinero.

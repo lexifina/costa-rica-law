@@ -12,8 +12,8 @@ las condiciones que el Consejo estipule.
 Gobierno será interpretada en el sentido de que incluye una referencia a
 la Comunidad Europea o a una organización intergubernamental con
 competencia comparable en lo que respecta a la negociación, celebración y
-aplicación de convenios internacionales, y en particular a convenios sobre
-productos básicos.
+aplicación de convenios internacionales, y en particular a convenios
+sobre productos básicos.
 4.- Una organización intergubernamental de tal naturaleza no tendrá
 voto alguno, pero, en caso de que se vote sobre cuestiones de su
 competencia, estará facultada para depositar colectivamente los votos de
@@ -21,10 +21,10 @@ sus Estados Miembros. En ese caso, los Estados Miembros de esa
 organización intergubernamental no estarán facultados para ejercer
 individualmente su derecho de voto.
 5.- Una organización intergubernamental de tal naturaleza no podrá
-ser elegida para integrar la Junta Ejecutiva con arreglo a lo dispuesto en
-el ordinal 1 del artículo 17, pero podrá participar en los debates de la
-Junta Ejecutiva sobre cuestiones de su competencia. En caso de que se vote
-sobre cuestiones de su competencia, y sin perjuicio de las disposiciones
-del ordinal 1 del artículo 20, los votos que sus Estados Miembros estén
-facultados para depositar en la Junta Ejecutiva podrán ser depositados
-colectivamente por cualquiera de esos Estados Miembros.
+ser elegida para integrar la Junta Ejecutiva con arreglo a lo dispuesto
+en el ordinal 1 del artículo 17, pero podrá participar en los debates de
+la Junta Ejecutiva sobre cuestiones de su competencia. En caso de que se
+vote sobre cuestiones de su competencia, y sin perjuicio de las
+disposiciones del ordinal 1 del artículo 20, los votos que sus Estados
+Miembros estén facultados para depositar en la Junta Ejecutiva podrán ser
+depositados colectivamente por cualquiera de esos Estados Miembros.

@@ -13,11 +13,11 @@ productivos y el aumento y mantenimiento de los niveles de empleo e
 ingresos en el sector cafetero de los países Miembros, para así lograr
 salarios justos, un nivel de vida más elevado y mejores condiciones de
 trabajo;
-Considerando que una estrecha cooperación internacional en materia de
-comercio de café fomentará la diversificación económica y el desarrollo de
-los países productores de café, y contribuirá a mejorar las relaciones
-políticas y económicas entre países exportadores e importadores de café y
-a aumentar el consumo de café;
+Considerando que una estrecha cooperación internacional en materia
+de comercio de café fomentará la diversificación económica y el
+desarrollo de los países productores de café, y contribuirá a mejorar las
+relaciones políticas y económicas entre países exportadores e
+importadores de café y a aumentar el consumo de café;
 Reconociendo la conveniencia de evitar el desequilibrio entre la
 producción y el consumo, que puede ocasionar marcadas fluctuaciones de
 precios, perjudiciales tanto para los productores como para los
@@ -45,8 +45,8 @@ a los productores mercados para su café a precios remuneradores, y que
 propicien un equilibrio a largo plazo entre la producción y el consumo;
 3.- facilitar la ampliación del comercio internacional del café
 mediante la recopilación, análisis y difusión de datos estadísticos y la
-publicación de precios indicativos y otros precios del mercado, y acendrar
-así la transparencia de la economía cafetera mundial;
+publicación de precios indicativos y otros precios del mercado, y
+acendrar así la transparencia de la economía cafetera mundial;
 4.- servir de centro para la recopilación, intercambio y publicación
 de información económica y técnica acerca del café.
 5.- promover estudios e informes sobre cuestiones cafeteras; y
