@@ -1,0 +1,1 @@
+Artículo 2°- En todos los artículos de dicho decreto, donde se lea “Delegación Ejecutiva”, “Subdelegación Ejecutiva”, “Delegado Ejecutivo” y “Subdelegado Ejecutivo” debe leerse correctamente “Dirección Ejecutiva”, “Subdirección Ejecutiva”, “Director Ejecutivo” y “Subdirector Ejecutivo” respectivamente.
