@@ -13,3 +13,4 @@ De Interés Nacional Congreso Ejercicio Profesional Ciencias Salud Actividades S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-23 | la propia norma |
+| 2 | 1999-08-23 | Ley 7 |
