@@ -1,0 +1,1 @@
+Artículo 16.—Uso de la protectora de cheques: La protectora de cheques deberá usarse con anterioridad a la revisión y firma de cheques. Estará bajo la absoluta responsabilidad del funcionario encargado de confeccionar los cheques, quien será el único autorizado para usarla. Deberá quitar la llave cuando no esté utilizándola, y debe guardarse en el local de la bóveda de seguridad.

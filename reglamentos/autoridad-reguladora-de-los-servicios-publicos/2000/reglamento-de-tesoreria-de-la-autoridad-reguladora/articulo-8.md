@@ -1,0 +1,3 @@
+Artículo 8º—Forma de llevar las Cajas General y Chica: La Caja General y la Caja Chica tienen que llevarse independientemente, sin que se provoque confusión alguna de valores o comprobantes de cada una de ellas.
+La Caja General es el dinero en efectivo disponible para los fines ordinarios de operación o para la reposición de activos.
+Todos los días el Cajero de la Institución realizará el arqueo de los ingresos generados en la Caja General, con la supervisión del Jefe de la Oficina de Tesorería, del cual quedará constancia por escrito. Sí producto del arqueo resultare una diferencia, ésta deberá justificarla el Cajero y de inmediato deberá depositar el sobrante o faltante.

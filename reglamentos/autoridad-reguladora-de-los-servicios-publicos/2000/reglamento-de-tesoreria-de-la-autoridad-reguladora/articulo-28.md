@@ -1,0 +1,1 @@
+Artículo 28.—Control y custodia de garantías de pago a la ARESEP: ara cualquier tipo de documento que garantice a la Institución el pago de una deuda, la Tesorería llevará su respectivo control y custodia, en el que se detallará el monto total a cobrar, forma de pago, tipo de interés y fecha de vencimiento.

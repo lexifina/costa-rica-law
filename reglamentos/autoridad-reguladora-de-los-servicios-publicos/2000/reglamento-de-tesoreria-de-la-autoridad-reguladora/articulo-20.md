@@ -1,0 +1,3 @@
+Artículo 20.—Entrega de cheques a los beneficiarios: La entrega de los cheques a los beneficiarios solo podrá hacerla la Tesorería. Al efectuarse la entrega de cheques, debe cumplirse con lo siguiente:
+a) Que la persona que se presenta a retirar el cheque sea el beneficiario del mismo o persona debidamente autorizada o que se encuentre inscrito en boleta de autorización para el retiro de cheques. Se exigirá la presentación de la cédula de identidad (válida) de la persona que retira el cheque.
+b) Se procederá a la entrega de cheques una vez que el beneficiario o persona autorizada haya firmado el comprobante respectivo en señal de recibo de conformidad.

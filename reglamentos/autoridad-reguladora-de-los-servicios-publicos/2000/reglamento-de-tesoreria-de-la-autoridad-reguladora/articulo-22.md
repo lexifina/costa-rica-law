@@ -1,0 +1,3 @@
+Artículo 22.—Anulación de cheques: Cuando un cheque deba anularse por error en la confección u otra causa, la dependencia emisora estampará en el mismo y en las copias su sello de anulado, indicando por escrito el motivo de la anulación. Las copias se archivarán en la Tesorería y el original en la Oficina de Contabilidad.
+Los cheques emitidos no cambiados por los beneficiarios serán anulados previa autorización de la Jefatura del Departamento de Finanzas, al cumplir un año después de su emisión.
+En todos los casos de cheques anulados (emitidos) se comunicará por escrito a la Oficina de Contabilidad para que efectúen los ajustes correspondientes.
