@@ -1,1 +1,0 @@
-Articulo 3°—Habrá un Delegado para cada provincia quien actuará además como Delegado en el Cantón Central y un Delegado por cada uno de los restantes cantones, sin perjuicio de que el Tribunal Supremo de Elecciones pueda aumentar ese número en los lugares en que así se estime necesario a juicio del Jefe del Cuerpo de Delegados.

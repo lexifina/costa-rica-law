@@ -1,1 +1,0 @@
-Artículo 8°—Habrá un Cuerpo Permanente de Delegados del cual formarán parte aquellos Delegados que se hagan acreedores a ese nombramiento por haber servido en anteriores elecciones, todo a juicio del Tribunal Supremo de Elecciones.
