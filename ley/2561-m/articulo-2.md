@@ -1,0 +1,13 @@
+ARTICULO 2
+1. Todo Miembro deberá, empleando medios adaptados a los métodos
+vigentes de fijación de tasas de remuneración, promover y, en la medida
+que sea compatible con dichos métodos, garantizar la aplicación a todos
+los trabajadores del principio de igualdad de remuneración entre la mano
+de obra masculina y la mano de obra femenina por un trabajo de igual
+valor.
+2. Este principio se deberá aplicar sea por medio de:
+a) la legislación nacional;
+b) cualquier sistema para la fijación de la remuneración establecido
+o reconocido por la legislación;
+c) contratos colectivos celebrados entre empleadores y trabajadores; o
+d) la acción conjunta de estos diversos medios.
