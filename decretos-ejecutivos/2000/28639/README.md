@@ -63,3 +63,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 48 | 2001-08-31 | Decreto Ejecutivo 29888 (2001-08-31) |
 | 49 | 2001-09-13 | Decreto Ejecutivo 29821 (2001-09-13) |
 | 50 | 2001-09-18 | Decreto Ejecutivo 29835 (2001-09-18) |
+| 51 | 2001-09-27 | Decreto Ejecutivo 29876 (2001-09-27) |
