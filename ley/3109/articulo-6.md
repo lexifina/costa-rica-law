@@ -1,0 +1,1 @@
+Artículo 6°.- El Banco Central de Costa Rica estará exento de cualquier impuesto, presente o futuro, en todo el territorio de la República, para exportar billetes o monedas emitidas por cualesquiera de los países de Centroamérica.
