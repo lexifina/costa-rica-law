@@ -1,0 +1,1 @@
+Artículo 4°.- Los trabajos de la Comisión serán coordinados por el Viceministro de salud y el viceministro de juventud. En caso de ausencia temporal de ambos, la comisión nombrará de su seno la persona que los reemplazará en esa función.

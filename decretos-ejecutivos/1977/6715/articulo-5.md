@@ -1,0 +1,1 @@
+Artículo 5°.- El departamento de Programación y Estudios de la Dirección General de Juventud del Ministerio de Cultura, Juventud y Deportes, tendrá a su cargo el secretariado ejecutivo de esta Comisión.
