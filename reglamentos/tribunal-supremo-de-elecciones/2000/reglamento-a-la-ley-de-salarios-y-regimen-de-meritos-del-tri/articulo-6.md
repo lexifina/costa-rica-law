@@ -1,0 +1,7 @@
+JEFATURAS DE LA INSTITUCIÓN
+Artículo 6°—Son responsabilidades de las jefaturas:
+a) Completar y remitir la solicitud para llenar la plaza vacante existente en un término de cinco días hábiles a partir del día siguiente de la fecha en que la recibe. En ella debe brindar toda la información necesaria sobre el puesto, para que el Departamento de Recursos Humanos defina los factores de selección que se utilizará en la evaluación de los participantes en el concurso.
+b) Efectuar por escrito la recomendación pertinente para el nombramiento, la cual debe basarse en la nómina de candidatos que el citado Departamento le facilite una vez efectuada la evaluación del concurso correspondiente. La jefatura que no cumpla con este trámite dentro de los cinco días hábiles después de haber recibido los documentos, dará a entender que todos los candidatos que integran la nómina respectiva cuentan con su anuencia.
+c) Colaborar con el Departamento de Recursos Humanos, cuando resulte necesario, en la actualización del Manual Descriptivo de Puestos del Tribunal.
+d) Brindar la información veraz y objetiva que se requiera durante los estudios de Clasificación y Valoración de Puestos, así como pronunciarse sobre la información suministrada por sus funcionarios en los formularios destinados para tales efectos.
+e) Cualquier otra que le asigne la Ley, el Reglamento Autónomo de Servicios o acuerde el Tribunal.

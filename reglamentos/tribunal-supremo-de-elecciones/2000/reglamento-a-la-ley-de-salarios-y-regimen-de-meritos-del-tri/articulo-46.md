@@ -1,0 +1,1 @@
+Artículo 46.- Cuando un funcionario ocupe temporalmente por recargo de funciones un puesto de categoría superior, tendrá derecho a devengar el salario base de la nueva categoría, los aumentos anuales correspondientes a ésta y los demás beneficios o incentivos que de ella se deriven.

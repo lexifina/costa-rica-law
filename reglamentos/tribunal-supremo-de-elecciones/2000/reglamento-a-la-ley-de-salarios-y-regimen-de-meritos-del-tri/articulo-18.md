@@ -1,0 +1,3 @@
+Artículo 18.—El Departamento de Recursos Humanos integrara la nómina para llenar la plaza que se encuentra vacante, de acuerdo con lo indicado en el articulo 19 de este Reglamento.
+En caso de que la Dirección o la Secretaria se aparten de la recomendación formulada por el jefe inmediato, deberán justificar su posición al elaborar la tema respectiva. No obstante, tratándose del nombramiento del personal de auditoría, se respetará la recomendación que formule el Auditor Interno de acuerdo con lo que establece el Reglamento de la Auditoría Interna de la Institución.
+Si no hubiere una unidad administrativa debidamente identificada, la nómina podrá remitirse directamente a la Dirección, a la Secretaría o al Tribunal.

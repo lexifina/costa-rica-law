@@ -1,0 +1,1 @@
+Artículo 21.- Si en los concursos el número de candidatos no es suficiente para integrar una terna, por no haber más elegibles, queda a criterio del Tribunal acordar el nombramiento o realizar otro concurso.

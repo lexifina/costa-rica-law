@@ -1,0 +1,12 @@
+Articulo 12.—Los factores o criterios de evaluación citados en el articulo anterior se definen de la siguiente manera:
+a) Calificación de servicios (Evaluación del desempeño): es el proceso para determinar el nivel de eficiencia y actuación de los funcionarios durante un determinado período laboral, que efectúa la jefatura inmediata del funcionario por medio del formulario que para tales efectos distribuye el Departamento de Recursos Humanos.
+b) Formación académica: los títulos extendidos por centros de educación legalmente reconocidos por las autoridades correspondientes, que llevan a la obtención de un diploma, certificado o grado académico.
+c) Antigüedad: el tiempo servido en diferentes instituciones del Estado.
+d) Experiencia: el conocimiento práctico que se acumula por el desempeño en puestos similares o relacionados con el que está sometido a concurso.
+e) Pruebas psicométricas: las muestras del comportamiento humano en condiciones estandarizadas, que verifican la capacidad o aptitud para generalizar y prever la conducta en determinado trabajo.
+f) Pruebas de conocimiento: el instrumento a través del cual se mide lo que ha aprendido el candidato, en función del puesto, a partir de muestras objetivas del respectivo proceso.
+g) Muestra de trabajo: un conjunto estandarizado de tareas relevantes de un puesto, mediante las cuales se evalúa a los aspirantes observando y midiendo directamente su desempeño en el puesto.
+h) Entrevistas: la técnica de observación directa de la conducta, que consiste en una conversación previamente estructurada, con el propósito de obtener información objetiva y evaluar aspectos tales como características de personalidad, intereses, preferencias, actitudes, aptitudes, motivación, experiencia laboral y formación de la persona entrevistada.
+i) Información biográfica: el cuestionario estandarizado mediante el cual se obtiene información sobre antecedentes personales, laborales y académicos de cada candidato a un puesto de trabajo.
+j) Prueba oral grupal: la prueba de situación en que se asigna a un grupo de personas que participan como candidatos para un puesto de trabajo, uno o varios temas de discusión durante un período especificado, mientras dos examinadores observan y estiman la actuación de cada persona, pero sin tomar parte en la discusión o análisis que se genera en el proceso de grupo.
+k) Trayectoria laboral: los logros o méritos que formen parte del historial de los funcionarios.

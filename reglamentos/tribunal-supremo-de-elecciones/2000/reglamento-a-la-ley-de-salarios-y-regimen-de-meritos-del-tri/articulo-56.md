@@ -1,0 +1,1 @@
+Artículo 56.- Las reasignaciones o reclasifícaciones sólo podran efectuarse si se cumplen los requisitos técnicos señalados en los artículos anteriores y si el funcionario titular del cargo reúne los requisitos establecidos en el Manual Descriptivo de Puestos.

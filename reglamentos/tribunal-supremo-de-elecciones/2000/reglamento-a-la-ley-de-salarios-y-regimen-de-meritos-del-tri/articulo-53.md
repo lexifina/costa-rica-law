@@ -1,0 +1,1 @@
+Artículo 53.- Para la clasificación de un puesto nuevo, el Departamento de Recursos Humanos elaborara la descripción del cargo con la colaboración de la jefatura correspondiente si fuese necesario, luego de lo cual la elevará al Tribunal para su aprobación definitiva y posterior inclusión en el Manual Descriptivo de Puestos.

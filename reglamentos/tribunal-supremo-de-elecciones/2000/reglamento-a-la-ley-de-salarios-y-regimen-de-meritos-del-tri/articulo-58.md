@@ -1,0 +1,1 @@
+Artículo 58.- El Departamento de Recursos Humanos mantendrá actualizado el sistema de clasificación que servirá de base para la valoración de puestos, el reclutamiento y selección, la capacitación y otras áreas de la administración de recursos humanos.

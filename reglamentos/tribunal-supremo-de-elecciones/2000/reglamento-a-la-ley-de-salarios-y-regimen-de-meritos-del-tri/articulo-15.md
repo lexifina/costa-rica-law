@@ -1,0 +1,1 @@
+Articulo 15.- Vencido el periodo de recepción de ofertas, el Departamento de Recursos Humanos las estudiará y rechazará las que no satisfagan los requisitos del puesto, mientras que aquellas que sí los reúnan continuarán con el proceso de selección.

@@ -1,0 +1,1 @@
+Artículo 36.- Únicamente el Tribunal, comando con la colaboración del Departamento de Recursos Humanos y con la recomendación del respectivo jefe, podrá acordar el ascenso de un puesto a otro, aún existiendo una o varias clases de por medio, siempre que el interesado cumpla con los requisitos exigidos para este y demuestre satisfactoriamente su idoneidad para desempeñarlo.

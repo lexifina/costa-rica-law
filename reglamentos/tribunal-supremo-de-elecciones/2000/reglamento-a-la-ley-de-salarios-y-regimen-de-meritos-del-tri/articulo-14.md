@@ -1,0 +1,1 @@
+Artículo 14.- La convocatoria al concurso debe incluir al menos la siguiente información: nombre de la unidad administrativa donde se encuentra la vacante, nombre del cargo, tipo de concurso, fecha, salario (incluye incentivos si los tiene), requisitos generales del cargo, lugar, fecha y hora limite para presentar las ofertas de servicios.

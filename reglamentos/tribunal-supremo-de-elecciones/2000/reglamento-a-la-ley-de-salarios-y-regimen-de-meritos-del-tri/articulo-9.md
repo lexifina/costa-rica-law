@@ -1,0 +1,1 @@
+Articulo 9°—Los concursos serán internos o externos de conformidad con la existencia de recursos humanos en la Institución. Sin embargo, se exceptúan de concurso los ascensos directos, puestos de confianza, funcionarios especializados y los interinazgos inferiores a seis meses y sus prórrogas.

@@ -1,0 +1,1 @@
+Artículo 39.- Cuando las necesidades del servicio público lo requieran, el Tribunal podrá trasladar o reubicar personal en forma unilateral, siempre que no se cause perjuicio al funcionario y procurando en lo posible la anuencia de las jefaturas involucradas.

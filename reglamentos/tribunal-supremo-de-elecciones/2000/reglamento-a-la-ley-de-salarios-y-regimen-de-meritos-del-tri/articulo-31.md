@@ -1,0 +1,1 @@
+Artículo 31.- Los documentos aportados por los integrantes del Registro de Elegibles serán custodiados en el Departamento de Recursos Humanos durante la vigencia de ese registro. Al perder vigencia, se podra proceder a su destrucción, salvo que se trate de títulos originales en cuyo caso se emplazará a los interesados para que los retiren.
