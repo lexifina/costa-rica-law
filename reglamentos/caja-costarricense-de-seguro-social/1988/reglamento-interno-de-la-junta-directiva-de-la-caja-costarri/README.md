@@ -1,0 +1,16 @@
+# Reglamento (1988-07-21)
+
+Reglamento Interno de la Junta Directiva de la Caja Costarricense de Seguro Social
+
+- Tipo: Reglamento
+- Número: 6234
+- Fecha: 1988-07-21
+- Ente emisor: Caja Costarricense de Seguro Social
+- Publicación: La Gaceta N° 160 del 1988-08-24
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53123&param2=57813&param3=1 (ficha 53123)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1988-08-24 | la propia norma |

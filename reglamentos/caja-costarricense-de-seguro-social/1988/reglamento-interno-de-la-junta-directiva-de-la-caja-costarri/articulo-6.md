@@ -1,0 +1,1 @@
+Artículo 6°—La inasistencia del director a sesiones ocasionará la pérdida de la dieta, excepto por enfermedad o por estar fuera del país, con la representación oficial del Gobierno de la República o del sector al que representa. •
