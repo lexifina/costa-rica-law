@@ -1,0 +1,1 @@
+Artículo 2°.- El Comité señalará la periodicidad de sucesiones así como las tareas que se asignan a cada uno de sus integrantes. Entrará en funciones a partir de la vigencia de este decreto y hasta la finalización del citado evento internacional.

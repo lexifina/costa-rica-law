@@ -1,0 +1,1 @@
+Artículo 3°.- A partir de la vigencia de este decreto, todas las dependencias del poder ejecutivo quedan obligadas a colaborar con el organismo que por el presente texto se establece, el especial especialmente facilitando, personal, medios de transporte y mobiliario de oficina.
