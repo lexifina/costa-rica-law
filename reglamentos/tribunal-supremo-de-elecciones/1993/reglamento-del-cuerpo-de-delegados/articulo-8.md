@@ -1,1 +1,0 @@
-OCTAVO.-DEL RÉGIMEN DE RESPONSABILIDAD: Los actos y disposiciones que, en ejecución de sus funciones, llegaren a adoptar los Delegados del Tribunal estarán sujetos al régimen de responsabilidad que se consigna en el título Sétimo del Libro Primero de la Ley General de la Administración Pública.

@@ -1,6 +1,0 @@
-SEXTO—FUNCIONES DE LOS DELEGADOS: Corresponderá a los delegados:
-a) Velar por el cabal y correcto cumplimiento de las instrucciones, órdenes y demás medidas que el Tribunal establezca, imparta o llegare a girar a los efectos de que el proceso electoral se desarrolle y transcurra en condiciones de garantías y libertad irrestrictas.
-b) Actuar como representante del Tribunal ante los Gobernadores, autoridades de la Guardia Civil y de la Guardia Rural, y ante cualesquiera otras autoridades de policía o de otro tipo.
-c) Vigilar el desarrollo de las reuniones públicas, mitines políticos y demás actos y manifestaciones que organizaren los partidos políticos y aplicar respecto de dichas actividades las medidas; que resulten oportunas y convenientes para que las reuniones, mitines políticos o desfiles que organicen los partidos políticos -previa autorización de las autoridades competentes- se lleven a cabo con respeto absoluto de la propiedad privada, la integridad y seguridad de los administrados y el orden público.
-d) Ejecutar las órdenes e instrucciones que el Tribunal les imparta a los efectos de que en la fecha que señala el artículo 98 del Código Electoral las elecciones se verifiquen en condiciones de orden, respeto y libertad absoluta e irrestricta.
-e) Las demás funciones que por ley, o por acuerdo del Tribunal se les ordene ejecutar.
