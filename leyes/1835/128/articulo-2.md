@@ -1,0 +1,1 @@
+Art 2.- En consecuencia los Eclesiástico no anunciarán otros al pueblo por de guarda o de precepto: los empleados de cualquiera clase se ocuparan en los demás del año en el desempeño de sus respectivas funciones: y los particulares no interrumpirán su trabajo y labores, cuidando las autoridades que así verifique.
