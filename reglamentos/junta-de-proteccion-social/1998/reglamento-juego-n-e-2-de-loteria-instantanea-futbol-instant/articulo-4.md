@@ -1,0 +1,1 @@
+Artículo N° 4—Guarde la sección con la foto del jugador, para participar en la rifa de cinco premios de ¢2.000.000 (equivalentes a pasajes). El número impreso en el reverso de la foto será su número para la rifa de dichos premios. Esta rifa se efectuará una vez declarada la finalización oficial de este juego.

@@ -1,0 +1,1 @@
+Artículo N° 2—Cada uno de los tres juegos que se indican en el boleto es independiente. Si “Tu Marcador” es mayor al “Marcador Rival” en un mismo juego, se gana el monto indicado en la casilla “Premio”.
