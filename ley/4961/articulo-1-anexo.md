@@ -8,11 +8,17 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 2402 Cigarros (puros) (incluso despuntados), cigarritos (puritos) y cigarrillos, de tabaco o de sucedáneos del tabaco.
 2403 Los demás tabacos y sucedáneos del tabaco, elaborados; tabaco "homogeneizado" o "reconstituido", extractos y jugos de tabaco.
 3208 Pinturas y barnices a base de polímeros sintéticos o naturales modificados, dispersos o disueltos en un medio no acuoso; disoluciones definidas en la nota 4 de este capítulo.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3209 Pinturas y barnices a base de polímeros sintéticos o naturales modificados, dispersos o disueltos en un medio acuoso.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3210 Las demás pinturas y barnices; pigmentos al agua preparados del tipo de los utilizados para el acabado del cuero.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 321100000 Secativos preparados.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3212 Pigmentos (incluidos el polvo y escamillas metálicos) dispersos en medios no acuosos, líquidos o en pasta, del tipo de los utilizados para la fabricación de pinturas; hojas para el marcado a fuego; tintes y demás materias colorantes presentados en formas o en envases para la venta, al por menor.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3214 Masilla, cementos de resina y demás mastiques; plastes (enduidos) utilizados en pintura; plastes (enduidos) no refractarios del tipo de los utilizados en albañilería.
+(NOTA: Mediante Decreto Ejecutivo N° 30634 de 9 de agosto del 2002, se reduce a un 5% la aplicación de la tarifa del Impuesto Selectivo de Consumo a esta partida)
 3305 Preparaciones capilares.
 3307 Preparaciones para afeitar o para antes o después del afeitado, desodorantes corporales, preparaciones para el baño, depilatorios y demás preparaciones de perfumería, de tocador o de cosmética, no expresadas ni comprendidas en otra parte; preparaciones desodorantes de locales, incluso sin perfumar, aunque tengan propiedades desinfectantes.
 3401 Jabón; productos y preparaciones orgánicos tenso activos usados como jabón, en barras, panes, trozos o piezas troqueladas o moldeadas, aunque contengan jabón; papel, guata, fieltro y tela sin tejer, impregnados, recubiertos o revestidos de jabón o de detergentes.
@@ -38,15 +44,7 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 8527 Aparatos receptores de radiotelefonía, radiotelegrafía o radiodifusión, incluso combinación en la misma envoltura (gabinete) con grabador o reproductor de sonido o con reloj.
 8528 Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o con grabador o reproductor de sonido o imagen incorporado; videomonitores y videoproyectores.
 8702 Vehículos automóviles para transporte de diez o más personas, incluido el conductor.
-8703 .COCHE DE TURISMO Y DEMÁS VEHÍCULOS AUTOMOVILES CONCEBIDOS PRINCIPALMENTE PARA TRASNPORTE DE PERSONAS (EXCEPTO LO DE LAS PARTIDAS N° 87.02), INCLUIDOS LOS VEHÍCULOS DEL TIPO FAMILIAR (“BREAK” O “STATION WAGON”)Y LOS DE CARRERAS
-(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
-8703.90-Los demás
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
-8703.90.10 -Movidos por energía eléctrica
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
-8703.90.90 -Los demás
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
-(Corregido la numeración anterior mediante Fe de Erratas y publicada en La Gaceta N° 186 del 29 de setiembre de 1997. Anteriormente se indicaba: 8703.90.19)
+8703 Coches de turismo y demás vehículos automóviles concebidos principalmente para transporte de personas.
 8704 Vehículos automóviles para transporte de mercancías.
 8706 Chasis de vehículos automóviles de las partidas Nº 87.01 a 87.05, equipados con su motor.
 8707 Carrocerías de vehículos automóviles de las partidas Nº 87.01 a 87.05, incluidas las cabinas.
