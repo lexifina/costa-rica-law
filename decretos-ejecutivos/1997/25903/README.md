@@ -14,3 +14,4 @@ Reglamento a la Ley de la Autoridad Reguladora de Servicios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-01 | la propia norma |
+| 2 | 1997-04-01 | SINALEVI (sin norma nombrada) |
