@@ -1,0 +1,2 @@
+Artículo 2°-—Suprímase la nomenclatura actual del denominado Taller Policial Interministerial” y desígnese él mismo, en adelante, como Taller Mecánico de la Fuerza Pública; teniéndose dicho taller como una unidad administrativa adscrita al Ministerio de Seguridad Pública, la cual contará con el apoyo técnico y presupuestario de dicho Ministerio.
+Sus funciones serán aquellas relativas al orden del mantenimiento y reparación de los vehículos oficiales de uso policial del Estado.

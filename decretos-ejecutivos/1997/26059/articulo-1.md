@@ -1,0 +1,14 @@
+.
+No 26059
+EL PRESIDENTE DE LA REPÚBLICA
+LOS MINISTROS DE SEGURIDAD PUBLICA,
+Y OBRAS PUBLICAS Y TRANSPORTES
+En pleno uso de las facultades y atribuciones conferidas por el numeral 140, incisos 3) y 18). de la Constitución Política: la Ley General de la Administración Pública, No 6227 del 02 de mayo de 1978; la Ley de Creación del Ministerio de Obras Públicas v Transportes, No 4786 del 05 de julio de 1971; y la Ley General de Policía, No 7410 del 19 de mayo de 1994.
+Considerando:
+1°—Que no obstante en sus inicios y como uno de sus fines se determinó que el Taller Policial Interministerial, creado mediante el Decreto Ejecutivo No 19712-SP-G-MOPT del 16 de abril de 1990, publicado en “La Gaceta” No 102 del 30 de mayo de 1990 y sus reformas, sería una dependencia administrativa adscrita al Ministerio de Obras Públicas y Transportes; lo cierto y real es que en lo prioritario y mayoritario tal Taller ha operado y opera sus servicios en favor del Ministerio de Seguridad Pública, particularmente como consecuencia de la emergencia declarada mediante el Decreto Ejecutivo No 20421-SP-G-MOPT, del 07 de mayo de 1991, publicado en “La Gaceta” No 100 del 28 de mayo de 1991.
+2°—Que en lo actual y verdadero, según lo acotado en el apartado inmediato anterior, el Ministerio de Obras Públicas y Transportes hace uso mínimo o ningún uso de los servicios que brinda el Taller Policial Interministerial. Habiendo, a esta fecha, incluso retirado su personal otrora asignado en el Taller. Manteniéndose el Taller operando con personal del Ministerio de Seguridad Pública.
+3°—Que el Taller Policial Interministerial y sus talleres Satélites, se ubican en terrenos de propiedad estatal, bajo el patrimonio directo del Ministerio de Obras Públicas y Transportes. 4°—Que a la fecha el Ministerio de Obras Públicas y Transportes desarrolla una acción total de reestructuración y/o reorganización de funciones y servicios; la cual está en su etapa final.
+5°—Que es evidente la necesidad e interés público por brindar un servicio constante de mantenimiento y reparación a la flota vehicular utilizada por los cuerpos policiales de nuestro país. Particularmente aquellos bajo el mando y dirección del Ministerio de Seguridad Pública.
+6°—Que en virtud y rigor de lo expresado, resulta necesario el ajustar a lo real y debido la situación del Taller Policial Interministerial. Por tanto,
+decretan:
+Artículo 1°—Modifíquense o deróguense, condecentemente y en lo que se opongan a lo aquí determinado, los Decretos Ejecutivos No 19712 SP-G-MQPT del 20 de mayo de 1990. publicado en “La Gaceta” No 102 del 30 de mayo de 1990;- No 20421-SP-G-MOPT del 7 de mayo de 1991, publicado en “La Gaceta” No 100 del 28 de mayo de 1991; N” 23820-SP- MOPT-G del de noviembre de 1994, publicado en “La Gaceta” No 234 del 09 de diciembre de 1994; y el No 22881-SP-G-MOPT del 4 de febrero de / 1994. publicado en “La Gaceta” No 37 del 22 de febrero de 1994.

@@ -1,0 +1,2 @@
+Artículo 10.—El Taller Mecánico de la Fuerza Pública funcionará bajo la responsabilidad y administración de un Director Ejecutivo designado por el Ministro de Seguridad Pública, el cual no podrá estar ligado con el Ministro de Seguridad Pública, por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive.
+El Director Ejecutivo del Taller será una persona de reconocida capacidad y experiencia. Deberá ser costarricense por nacimiento o naturalización. Permanecerá en su cargo por dos años y podrá ser renovada su designación por períodos iguales.
