@@ -1,0 +1,1 @@
+Artículo 3°—El proyecto de desarrollo turístico de Bahía Culebra, que surja como consecuencia de este estudio de factibilidad, será realizado por el Estado costarricense, de conformidad con la ley especial que la Asamblea Legislativa deberá emitir con ese propósito.
