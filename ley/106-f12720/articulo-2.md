@@ -1,0 +1,1 @@
+Art. 2. Sus respectivas Municipalidades, harán el denuncio que corresponde, procurando verificarlo en las estensiones baldías mas inmediatas á cada ciudad y mas pobladas de montañas, que ofrezcan el recurso de abundantes leñas y de maderas de construccion. Las dos leguas asignadas á esta capital, pueden darse separadamente una al norte y otra al sur de dicha población.

@@ -1,0 +1,1 @@
+Art. 3. El Intendente general nombrará el Agrimensor que ha de practicar las medidas, cuyos costos junto con los demas que causen los expedientes y títulos, deben pagarse de los respectivos fondos de propios.

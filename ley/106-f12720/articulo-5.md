@@ -1,0 +1,1 @@
+Art. 5. Las tierras cubiertas de montañas, no podrán ocuparse jamás de otra cosa que del cultivo de estas y de la plantacion de cedros, guachipelines y demas maderas de construccion, y se dejarán crecer nuevamente los árboles que se corten cualquiera, sea sea su calidad.
