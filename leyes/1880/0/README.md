@@ -1,6 +1,6 @@
 # Código Penal (1880)
 
-Ley  del 1880-04-27. SINALEVI, ficha 7306: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7306&param2=96690&param3=1>.
+Ley  del 1880-04-27. SINALEVI, ficha 7306: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7306&param2=96694&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 7 de 17 | 1906-07-06 | Ley 30 | 1906-07-06 |
 | 8 de 17 | 1907-01-09 | Ley 29 | 1907-01-09 |
 | 9 de 17 | 1909-10-19 | Ley 118 | 1909-10-19 |
+| 10 de 17 | 1909-10-22 | Ley 124 | 1909-10-22 |
