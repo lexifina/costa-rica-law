@@ -1,0 +1,2 @@
+Artículo 4°—Se excluyen, de la lista del artículo 5 del Reglamento indicado, las partidas arancelarias 30.03\30.04 referentes a medicamentos. Se agrega un artículo 5-bis a ese reglamento, que dirá:
+"Artículo 5-bis.—Para efectos de la comparación de precios indicada en el artículo anterior, pero relativa a los medicamentos incluidos dentro de las partidas arancelarias 30.03\30.04, se agregará al valor CIF de la importación, un 2% por costos de internamiento, además del derecho arancelario vigente".

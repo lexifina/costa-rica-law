@@ -1,0 +1,2 @@
+Artículo 5°—Se agrega un artículo 7-bis al Reglamento citado, que dirá:
+"Artículo 7-bis.—En el caso de los medicamentos incluidos dentro de las partidas arancelarias 30.03\30.04 y para los efectos de comparación de precios entre los bienes nacionales y de los originarios de los países que conforman el Mercado Común Centroamericano, las instituciones del Estado señaladas en el artículo primero deberán agregar, al valor CIF de la importación, un 1% por concepto de costos de internación y 1 % por concepto del impuesto que establece la Ley No 6946.
