@@ -1,0 +1,2 @@
+Artículo 5º—De la revisión de los documentos de liquidación. La Gerencia General encargará a un funcionario en especial para que reciba y revise la liquidación, quien deberá comprobar que todos los documentos que respaldan la misma estén en regla.
+Dicho funcionario deberá consignar, por medio de un sello, la fecha en que fueron recibidos estos documentos. Si la liquidación no se presenta en el término de siete días, deberá informarlo así al Departamento de Recursos Humanos para las sanciones que correspondan.
