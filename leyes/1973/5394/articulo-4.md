@@ -1,0 +1,1 @@
+Artículo 4º.- Para el cumplimiento de sus fines, el Ministro de Gobernación pondrá a disposición de la Junta el personal necesario dentro de sus posibilidades presupuestarias. El Director de la Imprenta tendrá la representación judicial y extrajudicial de la Junta; y será su personero ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 5º.- A partir del 1º de enero de 1974, los ingresos que produzcan al Estado la Imprenta Nacional y lo que dicha Imprenta recaude por cualquier otro concepto, se ingresará en una cuenta especial en un Banco del Estado a nombre de la Junta que aquí se crea.

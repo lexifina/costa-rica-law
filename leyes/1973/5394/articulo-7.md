@@ -1,0 +1,1 @@
+Artículo 7º.- Con los ingresos que produzca la Imprenta se creará un fondo especial, dedicado exclusivamente a la adquisición de maquinaria, equipo, materiales, servicios, repuestos y otros bienes necesarios para su modernización y buen funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 11.- La Junta Administrativa de la Imprenta Nacional queda facultada para señalar e imponer las tarifas que considere convenientes, adecuándolas a los precios de costo de los materiales de impresión y edición de las publicaciones que efectúe.
