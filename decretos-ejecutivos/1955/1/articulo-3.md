@@ -1,0 +1,1 @@
+Artículo 3°.- El crédito presupuestario que se autoriza por este Decreto, quedará sin efecto en la fecha en que el Poder Ejecutivo considere terminado el actual estado de emergencia, mediante comunicación que al efecto hará al Ministerio de Economía y Hacienda.

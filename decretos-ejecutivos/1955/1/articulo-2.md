@@ -1,0 +1,1 @@
+Artículo 2°.- Todos los gastos en que se haya incurrido, hasta la fecha, por las mismas causas a que se refiere el artículo anterior, con cargo al Presupuesto Ordinario vigente, serán aplicados a este mismo crédito adicional, mediante los asientos correspondientes que deberán hacer las dependencias encargadas de la ejecución y control del Presupuesto.
