@@ -1,3 +1,5 @@
-CAPITULO VII
-De los Privilegios e Inmunidades en Costa Rica
-Vigésimoctava: El Gobierno de Costa Rica concederá al CATIE y al personal profesional no costarricense que preste servicios en él, los derechos, privilegios e inmunidades concedidas al IICA por el Contrato Ley Nº 29 del 19 de diciembre de 1942, en acuerdo aprobado por Decreto Legislativo Nº 3367 de 6 de agosto de 1964 y en el Convenio aprobado por Decreto Ejecutivo Nº 51 de 26 de noviembre de 1968, así como otras ventajas que puedan resultar de contratos, acuerdos o convenios posteriores.
+Vigesimaoctava.- El capital del CATIE lo constituyen:
+a) El usufructo por todo el plazo de este contrato del patrimonio constituido por las fincas, los edificios, instalaciones, equipos y otros bienes muebles e inmuebles, aportados por el IICA con igual carácter a la Asociación CATIE constituida por Contrato suscrito el 12 de enero de 1973, más las mejoras que a ese patrimonio hayan accedido.
+b) Los bienes que la Asociación CATIE antes aludida haya adquirido; y
+c) Los bienes que la Asociación CATIE que en este acto se constituye adquiera.
+De los bienes a que se alude en los puntos a) y b) anteriores, se levantará inventario por acta notarial.

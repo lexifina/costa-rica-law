@@ -38,3 +38,7 @@ articulo-37.md
 articulo-38.md
 articulo-39.md
 articulo-40.md
+articulo-41.md
+articulo-42.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md

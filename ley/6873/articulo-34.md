@@ -1,1 +1,1 @@
-Trigésimocuarta: La Asociación podrá disponer libremente de sus divisas extranjeras para sus operaciones en o desde Costa Rica.
+Trigesimacuarta.- Las modificaciones al presente Contrato podrán hacerse por iniciativa de cualquiera de los Miembros Regulares. Requerirán la aprobación, por mayoría de dos tercios de sus miembros, por parte de Consejo Superior del CATIE y de la Junta Interamericana de Agricultura. Posteriormente, deberán ser ratificadas por la Asamblea Legislativa de la República de Costa Rica.

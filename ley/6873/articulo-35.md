@@ -1,1 +1,3 @@
-Trigésimoquinta: En todo lo que le fuere aplicable y no contradiga ni la letra ni el espíritu de esta contratación, la Asociación se regirá además, por la Ley de Asociaciones de Costa Rica.
+CAPÍTULO IX
+DESTINO DE LOS BIENES
+Trigesimaquinta.- Cuando se termine el presente Contrato, se regresará al IICA los bienes dados en usufructo mencionados en la cláusula vigesimaoctava de este Contrato, junto con sus mejoras. Los bienes restantes se distribuirán entre el IICA, el Gobierno de Costa Rica y los Miembros Regulares que en el momento de la terminación fueran miembros activos, en proporción a sus aportes históricos totales.

@@ -1,1 +1,1 @@
-Trigésimosetima: Para la validez oficial de este Contrato será necesaria la ratificación de la Asamblea Legislativa de Costa Rica, y entrará en vigencia el día dos del mes de junio de 1983.
+Trigesimasétima.- La Biblioteca Conmemorativa Orton no forma parte del aporte del IICA al capital de la Asociación, pero quedará ubicada en el CATIE bajo la administración conjunta del IICA y el CATIE.

@@ -1,3 +1,3 @@
-CAPITULO II
-De los Miembros y su Admisión
-Cuarta: Los Miembros del CATIE podrán serlo Regulares o Adherentes
+CAPÍTULO II
+DE LOS MIEMBROS Y SU ADMISIÓN
+Cuarta.- Los miembros del CATIE podrán ser Regulares o Adherentes.

@@ -1,3 +1,1 @@
-CAPITULO VI
-La Administración y Control Financiero
-Vigésimosexta: El Consejo Directivo, en un plazo de seis meses a partir de la vigencia de este Contrato, dictará los reglamentos correspondientes a los órganos del CATIE y los reglamentos financieros y de personal. Estos dos últimos se basarán en las normas y procedimientos que al efecto tiene el IICA.
+Vigesimasexta.- El IICA otorgará la condición de personal Asociado a los funcionarios profesionales del CATIE y proporcionará a éste y a sus funcionarios el amparo jurídico e institucional necesario, similar al que otorga a su personal, para el desarrollo de actividades fuera de Costa Rica, de acuerdo con el Convenio bilateral entre el IICA y el CATIE, que especifique las condiciones, costos y financiamiento de los servicios que ambas instituciones se brinden mutuamente.
