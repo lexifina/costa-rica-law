@@ -1,0 +1,1 @@
+Artículo 12.—Es responsabilidad del Alcalde Municipal, velar de que la Proveeduría y la Unidad de Ingeniería Municipal, observen las normas de control interno sobre el uso, asignación y mantenimiento de los vehículos municipales.

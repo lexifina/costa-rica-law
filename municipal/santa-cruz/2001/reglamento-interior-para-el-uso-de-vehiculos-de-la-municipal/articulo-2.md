@@ -1,0 +1,1 @@
+Artículo 2º—El Alcalde Municipal velará por el cumplimiento de las disposiciones contenidas en el reglamento interior para el control sobre el uso y mantenimiento de vehículos de la Municipalidad de Santa Cruz.

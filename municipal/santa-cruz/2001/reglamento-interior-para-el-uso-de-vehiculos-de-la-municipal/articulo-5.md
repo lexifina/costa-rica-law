@@ -1,0 +1,1 @@
+Artículo 5º—Todo vehículo adquirido por la Municipalidad de Santa Cruz, debe ser inscrito en el Registro de la Propiedad de Vehículos Automotores del Registro Público a nombre de la corporación, así como desincribirlos cuando ya no pertenezcan a ésta o sean retirados de la circulación. El Alcalde Municipal velará porque los trámites sean cumplidos fiel y eficientemente.

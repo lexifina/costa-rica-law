@@ -1,0 +1,2 @@
+Artículo 20.—En caso de accidentes de tránsito, es obligación del conductor u acompañantes, avisar a las autoridades de tránsito, a su superior jerárquico, al hospital y salvaguardar el vehículo hasta recibir ordenes superiores.
+El conductor está obligado a brindar toda la información requerida a las autoridades de tránsito y de dar las declaraciones antes las instituciones respectivas y de brindar todos los reportes ante el Instituto Nacional de Seguros.

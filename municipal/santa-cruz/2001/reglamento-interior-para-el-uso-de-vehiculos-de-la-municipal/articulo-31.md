@@ -1,0 +1,1 @@
+Artículo 31.—Las comisiones que nombre el Concejo Municipal, para el cumplimiento de sus funciones, quedan autorizadas para que le soliciten al Alcalde Municipal, la asignación y uso de los vehículos administrativos.

@@ -1,0 +1,1 @@
+Artículo 33.—La Unidad de Auditoría Interna ejercerá sus controles sobre la aplicación de este reglamento, cuando lo juzgue conveniente dentro de su programa de trabajo o a solicitud del concejo Municipal.

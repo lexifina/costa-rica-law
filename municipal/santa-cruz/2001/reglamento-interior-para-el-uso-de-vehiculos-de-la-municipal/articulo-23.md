@@ -1,0 +1,1 @@
+Artículo 23.—Corresponderá a la Unidad de Ingeniería Municipal, investigar todo lo relacionado con el accidente de tránsito, percances, robos, hurtos o malversación, en que se involucre un vehículo propiedad de la Municipalidad de Santa Cruz y rendirá un informe con las recomendaciones al Alcalde Municipal.

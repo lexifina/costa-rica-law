@@ -1,0 +1,1 @@
+Artículo 16.—Los vehículos de uso administrativo solo podrán circular en horas y días que no correspondan al horario normal de la Municipalidad, cuando se realicen giras, en circunstancias especiales, con autorización por escrito del Alcalde Municipal.

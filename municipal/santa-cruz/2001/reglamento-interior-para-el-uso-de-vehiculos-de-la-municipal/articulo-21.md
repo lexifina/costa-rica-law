@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que el conductor sea calificado como responsable del accidente, se hará acreedor de las sanciones correspondientes, pagará el monto del deducible, indemnizaciones a terceros, cuanto el costo del daño sea inferior al monto del deducible.

@@ -1,0 +1,1 @@
+Artículo 18.—Las comisiones municipales, para el cumplimiento de sus funciones, queda autorizadas para solicitarle al Alcalde Municipal, el uso de los vehículos de uso administrativo, para realizar su trabajo.
