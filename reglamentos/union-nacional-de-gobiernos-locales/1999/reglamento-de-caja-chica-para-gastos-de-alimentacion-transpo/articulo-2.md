@@ -1,0 +1,1 @@
+Artículo 2°-El fondo estará bajo la custodia del tesorero o contador quién será el funcionario responsable de su administración, el cual deberá estar incluido en la póliza colectiva que tiene la Institución.

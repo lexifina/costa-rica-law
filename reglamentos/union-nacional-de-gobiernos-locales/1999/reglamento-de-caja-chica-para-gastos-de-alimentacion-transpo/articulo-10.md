@@ -1,0 +1,1 @@
+Artículo 10-Cada vez que se sustituya al administrador del fondo, temporal o definitivamente, deberá realizarse el arqueo respectivo, cuyo resultado será firmado por dos funcionarios, uno de los cuales será necesariamente quien recibe los recursos del fondo.

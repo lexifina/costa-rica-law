@@ -1,0 +1,1 @@
+Artículo 6°-Las sumas a reintegrar, en giras efectuadas sin anticipo debidamente justificadas, por el jefe inmediato o por el Director Ejecutivo no podrá sobrepasar el monto correspondiente a cinco días de gira.

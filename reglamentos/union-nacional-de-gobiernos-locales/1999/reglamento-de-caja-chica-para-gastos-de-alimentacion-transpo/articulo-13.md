@@ -1,0 +1,1 @@
+Artículo 13.-El funcionario responsable de los fondos de Caja Chica no podrá mantener en esta o donde se guarden los fondos y valores de la Unión, documentos, efectivos o cheques que sean propiedad particular, como tampoco deberá suplir dinero de su propiedad para realizar o completar pagos que correspondan a la Unión Nacional de Gobiernos Locales.

@@ -1,0 +1,2 @@
+Artículo 16.-Si al revisar un arqueo resultara un faltante, el encargado de la caja chica deberá suplirlo con sus propios recursos en un plazo máximo de veinticuatro horas después de que éste haya sido detectado.
+Dependiendo de las circunstancias en que se hubiere originado dicho faltante, podrá considerarse falta simple, grave o hacerse acreedor de las sanciones correspondientes que se establece para tal efecto.

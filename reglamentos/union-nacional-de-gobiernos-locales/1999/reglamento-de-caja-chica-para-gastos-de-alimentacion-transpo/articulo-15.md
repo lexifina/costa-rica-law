@@ -1,0 +1,1 @@
+Artículo 15.-El fondo de la Caja Chica estará sujeto a arqueos administrativos periódicos y sin aviso previo, el cual quedará constando por escrito y deberá ser firmado por la persona que lo efectuare y por el Administrador de la caja chica.

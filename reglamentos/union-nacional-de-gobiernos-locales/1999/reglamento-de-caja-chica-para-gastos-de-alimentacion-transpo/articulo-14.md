@@ -1,0 +1,2 @@
+Artículo 14.-Si durante un período de un año en el caso de funcionarios, se presenta extemporánea e injustificadamente la liquidación, se sancionará la primera vez con amonestación escrita, segunda suspensión de un día sin goce de salario, tercera vez suspensión de tres días sin goce de salario, cuarta vez suspensión de ocho días y quinta vez despido sin responsabilidad patronal.
+El Departamento contable informará al Director Ejecutivo los atrasos que hubiere, para su aplicación.

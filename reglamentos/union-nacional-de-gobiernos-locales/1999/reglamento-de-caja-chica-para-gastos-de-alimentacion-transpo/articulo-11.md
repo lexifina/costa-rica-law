@@ -1,0 +1,1 @@
+Artículo 11-Salvo los gastos por hospedaje y alimentación, cualquier otro gasto imputable directamente a la gira, sólo se podrá reconocer mediante la presentación de las respectivas facturas justificantes.

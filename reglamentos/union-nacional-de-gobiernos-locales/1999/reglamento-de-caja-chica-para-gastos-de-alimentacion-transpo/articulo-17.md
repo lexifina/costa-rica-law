@@ -1,0 +1,1 @@
+Artículo 17.-En evento de que se produzca un sobrante, deberá ser depositado en la cuenta corriente de la UNGL y efectuar las revisiones pertinentes para determinar su origen. En caso de no poder determinarlo la suma sobrante será liquidada al finalizar el ejercicio anual.

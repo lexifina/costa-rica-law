@@ -1,0 +1,1 @@
+Artículo 12.-Previamente a la emisión del cheque para reintegrar el fondo de Caja Chica, el funcionario designado del Departamento Contable, realizará la revisión detallada de los comprobantes y justificaciones del citado reintegro, a efectos de verificar que estén correctos.
