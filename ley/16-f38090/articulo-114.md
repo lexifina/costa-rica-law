@@ -1,1 +1,1 @@
-Artículo 114.—La escritura de hipoteca deberá consignar la renuncia del domicilio del deudor y de los trámites del juicio ejecutivo.
+Artículo 114.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

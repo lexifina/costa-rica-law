@@ -1,1 +1,1 @@
-Artículo 146.—Con la anotación de cualquier préstamo en el registro mencionado en el artículo anterior, la prenda que garantiza dicho préstamo se considerará como legalmente constituida en favor de los bonos, con carácter preferente a cualquiera otra prenda o gravamen que pudiera afectarla.
+Artículo 146.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

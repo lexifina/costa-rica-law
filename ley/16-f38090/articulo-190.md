@@ -1,1 +1,1 @@
-Artículo 190.—Las operaciones que efectúe la Sección de Crédito Agrícola e Industrial y cuyo monto no pase de ¢ 2,500.00, gozarán de una reducción del 50 % en el impuesto de timbre y en los derechos de Registro Público. La misma rebaja regirá también para las tarifas notariales y honorarios de peritos.
+Artículo 190.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

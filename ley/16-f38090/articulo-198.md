@@ -1,1 +1,1 @@
-Artículo 198.—La autorización del artículo primero de la ley N° 79 del 4 de julio de 1933, para emitir ocho millones de colones en cédulas, se limitará a la suma de siete millones quinientos mil colones (¢ 7.500,000.00).
+Artículo 198.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

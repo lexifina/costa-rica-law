@@ -1,1 +1,1 @@
-Artículo 4°—El establecimiento o supresión de agencias podrá hacerse por simple mayoría de votos de la Junta Directiva; el establecimiento o supresión de sucursales necesitará el acuerdo de las dos terceras partes de los votos de la Junta.
+Artículo 4°—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

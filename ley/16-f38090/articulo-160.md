@@ -1,1 +1,1 @@
-Artículo 160.—El capital pagado mediante la amortización o cancelación de las operaciones a que. se refiere el artículo anterior, será destinado por el Departamento Hipotecario a la concesión de nuevos préstamos hipotecarios.
+Artículo 160.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 35.—Las ganancias netas del Banco se determinarán sumando las ganancias brutas de los tres Departamentos, y restando los gastos generales y de administración, los intereses e impuestos pagados, los castigos del edificio y mobiliario, las pérdidas sufridas por demérito de propiedades, otras pérdidas y gastos, y, además, las ganancias de los Departamentos provenientes de operaciones efectuadas entre ellos.
+Artículo 35.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

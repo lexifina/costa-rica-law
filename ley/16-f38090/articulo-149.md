@@ -1,1 +1,1 @@
-Artículo 149.—Los intereses devengados serán pagados a los tenedores de bonos trimestralmente, a la presentación de los cupones respectivos en las oficinas del Banco, y desde el mismo día de su vencimiento.
+Artículo 149.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,6 +1,1 @@
-Artículo 170.—En los préstamos que el Banco otorgue a arrendatarios de tierras agrícolas, deberá exigir a éstos que comprueben su derecho a la explotación de las tierras cuyos productos o útiles de labranza dan en prenda.. El plazo del arrendamiento deberá prolongarse, por lo menos, un año más que el plazo del préstamo.
-Para la comprobación del mencionado derecho, el Banco exigirá la presentación del contrato de arrendamiento, inscrito en el Registro o constante en documento de fecha cierta.
-En caso de que esté inscrito el contrato, se hará constar el préstamo en el asiento respectivo, sin cobro de derechos.
-El Banco deberá exigir, además, al prestatario, la presentación de los recibos que acrediten que está al día en el pago del arriendo correspondiente. Caso de que no existan tales recibos, la comprobación de dicho pago la deberá extender el arrendador por escrito.
-En los casos en que el precio del arriendo, en parte o en su totalidad, deba ser pagado en frutos, la prenda en favor del Banco comprenderá únicamente la parte de la cosecha que quede a libre disposición del arrendatario, y los límites del préstamo se fijarán en relación con esta parte.
-En cada caso, el Banco deberá notificar al arrendador, por escrito, todo préstamo que conceda al arrendatario, indicándole el monto, plazo, interés y demás detalles que sean parte sustancial del contrato de préstamo, y obtener su consentimiento.
+Artículo 170.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

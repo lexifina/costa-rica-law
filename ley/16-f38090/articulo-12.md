@@ -1,1 +1,1 @@
-Artículo 12.—El Presidente y el Vicepresidente de la Junta serán designados por un período de un año, que podrá ser prorrogados por períodos iguales. Serán inamovibles durante el período de su cometido, salvo los casos previstos en el artículo 9° de esta ley.
+Artículo 12.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

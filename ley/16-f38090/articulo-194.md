@@ -1,1 +1,1 @@
-Artículo 194.—El Consejo Directivo del Departamento Emisor dictará un reglamento especial referente a la compra y venta de oro físico, de acuerdo con las disposiciones de los artículos 78 a 84 de esta ley.
+Artículo 194.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

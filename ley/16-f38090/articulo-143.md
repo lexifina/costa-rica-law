@@ -1,1 +1,1 @@
-Artículo 143.—El producto de los bonos emitidos se pondrá a disposición del Departamento Comercial, el cual lo colocará en operaciones destinadas al fomento de la agricultura, ganadería e industrias, de acuerdo con las disposiciones del artículo 169 de esta ley.
+Artículo 143.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

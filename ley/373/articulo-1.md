@@ -1,4 +1,6 @@
+(Derogado)
 N° 373
+(Esta ley fue derogada por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
 LA JUNTA FUNDADORA DE LA SEGUDA REPÚBLICA
 Decreta:
 Los artículo 14 y 20 de la ley N° 16 del 5 de noviembre de 1936, quedan reformados del modo siguiente

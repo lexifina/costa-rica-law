@@ -1,1 +1,1 @@
-Artículo 110.—Los edificios que se hipotequen al Banco, deberán estar asegurados contra incendio por una suma no inferior a la que, en cada caso, fijará la Junta. La suma exigida por ésta no podrá exceder del monto del préstamo, más un 10 %. La póliza de seguro deberá transferirse al Banco, dándose el aviso correspondiente al asegurador.
+Artículo 110.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

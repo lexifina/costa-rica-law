@@ -1,1 +1,1 @@
-Artículo 154.—Los que falsificaren bonos hipotecarios o de prenda, y los que pusieren en circulación bonos falsificados, serán castigados con las penas máximas señaladas para los falsificadores de títulos de crédito público.
+Artículo 154.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

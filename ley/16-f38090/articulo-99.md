@@ -1,7 +1,1 @@
-Artículo 99.- El Departamento tendrá a su cargo:
-1) Facilitar a personas naturales o jurídicas préstamos hipotecarios a mediano y largo plazo, mediante la emisión de Bonos Hipotecarios o en forma de préstamos directos, siempre que su producto sea destinado:
-a) A la adquisición de tierras para la agricultura, y a la financiación de obras agrícolas reproductivas;
-b) A la adquisición, reparación o construcción de edificios, o a otros fines en que esté garantizado el carácter reproductivo de la inversión a que se destine el préstamo; y
-c) A la construcción de viviendas populares, en las condiciones y con las facilidades que determine el Reglamento que para esta clase de préstamos elabore la Junta Directiva. Las casas que se construyan con préstamos de esta Sección no podrán ser traspasadas a favor de terceros, ni embargadas, mientras estuviere pendiente la respectiva deuda con el Banco, si no mediare autorización de la Junta Directiva. El Registro Público deberá tomar nota de esta condición en Propiedad, al presentarse el respectivo documento, para que afecte a terceros.
-2) La contratación de obligaciones directas a plazos superiores a cinco años, mediante la emisión de Bonos de Prenda, cuyo producto sea destinado a la financiación de operaciones del Departamento Comercial, de acuerdo con el artículo 169 de esta ley.
-(Así reformado por el artículo 1° de la ley N° 1487 del 8 de agosto de 1952)
+Artículo 99.-(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

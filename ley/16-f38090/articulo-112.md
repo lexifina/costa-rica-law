@@ -1,1 +1,1 @@
-Artículo 112.—Cualquier información falsa que diere el solicitante, lo mismo que la omisión, a sabiendas, de circunstancias que signifiquen un gravamen, suspenderán la tramitación de la solicitud, perdiendo el interesado los gastos que hubiere hecho.
+Artículo 112.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

@@ -1,1 +1,1 @@
-Artículo 32.—Las faltas de cumplimiento de lo prescrito en este capítulo, o la alteración, a sabiendas, cíe cualquiera de los datos a que el mismo se refiere, harán incurrir al Banco en las sanciones que establece la Ley General de Bancos.
+Artículo 32.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

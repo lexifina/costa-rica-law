@@ -1,2 +1,1 @@
-Artículo 119.—Si una cuota no se pagare en el plazo estipulado, el Banco tendrá el derecho de aplicar multas, que no podrán exceder del doble de la tasa de interés fijada en la escritura respectiva, y se calcularán sobre el monto de las cuotas atrasadas.
-Si un deudor se atrasare en el pago de las cuotas durante seis meses consecutivos y, requerido por el Banco, no pagare en el término de treinta días, será exigible la deuda. En estos casos el Banco procederá de acuerdo con las prescripciones de la Ley General de Bancos.
+Artículo 119.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

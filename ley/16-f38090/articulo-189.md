@@ -1,1 +1,1 @@
-Artículo 189.—Los bienes raíces que el Banco adquiera o se adjudique en remate, deberán ser vendidos dentro del plazo fijado por la Ley General de Bancos.
+Artículo 189.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")

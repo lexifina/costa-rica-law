@@ -1,1 +1,1 @@
-Artículo 23.—El capital y las reservas del Banco se distribuirán entre sus tres departamentos, en la forma que se dispone en esta ley.
+Artículo 23.—(Derogado por el artículo 174 (actual 189) de la ley N° 1644 del 26 de setiembre de 1953 "Ley Orgánica del Sistema Bancario Nacional")
