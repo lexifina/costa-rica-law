@@ -13,3 +13,4 @@ Normas de Ceremonial del Estado y Orden de Precedencias Diplomática
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-05-09 | la propia norma |
+| 2 | 1985-05-09 | SINALEVI (sin norma nombrada) |

@@ -1,8 +1,1 @@
-Artículo 38.- El nuevo jefe de misión solicitará por intermedio de
-la Dirección General de Protocolo y Ceremonial del Estado, se conceda la
-audiencia correspondiente para que su señora esposa visite a la señora
-del Presidente de la República y a la señora del Ministro de Relaciones
-Exteriores y Culto. Estas audiencias no tendrán protocolo especial.
-Asimismo la señora visitará a las esposas del Viceministro de Relaciones
-Exteriores y Culto, del Director General del Ministerio y del Director
-General de Protocolo y Ceremonial del Estado.
+Artículo 38.- El nuevo jefe de misión solicitará por intermedio de la Dirección General de Protocolo y Ceremonial del Estado, se conceda la audiencia correspondiente para que su señora esposa visite a la señora del Presidente de la República y a la señora del Ministro de Relaciones Exteriores y Culto. Estas audiencias no tendrán protocolo especial. Asimismo la señora visitará a las esposas del Viceministro de Relaciones Exteriores y Culto, del Director General del Ministerio y del Director General de Protocolo y Ceremonial del Estado.

@@ -1,17 +1,3 @@
-Artículo 34.- En el vestíbulo de la Presidencia de la República se
-detendrán para escuchar el Himno Nacional de Costa Rica. Inmediatamente
-después es conducido el jefe de misión al Despacho del señor Presidente
-donde es anunciado por el Jefe de Protocolo de la Presidencia. El jefe
-de misión, al escuchar el anuncio, saluda con una venia, se adelanta y
-pronuncia las frases de estilo haciendo entrega de las cartas
-credenciales y las de retiro de su antecesor saluda al señor Presidente,
-al Ministro de Relaciones Exteriores y Culto y al Director General de
-Protocolo y Ceremonial del Estado y solicita la venia para presentar a
-los miembros de su personal. El Presidente de la República invitará al
-jefe de misión para un cambio de impresiones. El Presidente dará por
-concluida la entrevista oportunamente.
-Finalizada la entrevista, el jefe de misión se despedirá, avanzará
-hasta la puerta deteniéndose y hará una venia antes de retirarse.
-En el vestíbulo de la Presidencia de la República se detendrá la
-comitiva para escuchar el Himno Nacional del país al que el jefe de
-misión pertenece.
+Artículo 34.- En el vestíbulo de la Presidencia de la República se detendrán para escuchar el Himno Nacional de Costa Rica. Inmediatamente después es conducido el jefe de misión al Despacho del señor Presidente donde es anunciado por el Jefe de Protocolo de la Presidencia. El jefe de misión, al escuchar el anuncio, saluda con una venia, se adelanta y pronuncia las frases de estilo haciendo entrega de las cartas credenciales y las de retiro de su antecesor saluda al señor Presidente, al Ministro de Relaciones Exteriores y Culto y al Director General de Protocolo y Ceremonial del Estado y solicita la venia para presentar a los miembros de su personal. El Presidente de la República invitará al jefe de misión para un cambio de impresiones. El Presidente dará por concluida la entrevista oportunamente.
+Finalizada la entrevista, el jefe de misión se despedirá, avanzará hasta la puerta deteniéndose y hará una venia antes de retirarse.
+En el vestíbulo de la Presidencia de la República se detendrá la comitiva para escuchar el Himno Nacional del país al que el jefe de misión pertenece.

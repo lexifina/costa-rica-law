@@ -1,4 +1,1 @@
-Artículo 47.- El jefe de la misión costarricense acreditado ante el
-Gobierno cuyo Jefe de Estado ha fallecido, hará llegar sus sentimientos
-de pesar, y a criterio del señor Presidente de la República podrá ser
-designado para representar al Gobierno en las honras fúnebres.
+Artículo 47.- El jefe de la misión costarricense acreditado ante el Gobierno cuyo Jefe de Estado ha fallecido, hará llegar sus sentimientos de pesar, y a criterio del señor Presidente de la República podrá ser designado para representar al Gobierno en las honras fúnebres.
