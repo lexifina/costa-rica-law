@@ -13,3 +13,4 @@ MTIALARAN: Nombramiento y Funcionamiento de Concejos Distrito Tilarán
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-21 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
