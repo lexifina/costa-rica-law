@@ -1,7 +1,1 @@
-ARTICULO 60.- IMPLANTACION DEL SISTEMA
-El jerarca del ente, empresa u órgano públicos, primordialmente, y el
-titular subordinado de cada órgano componente serán responsables de
-establecer, mantener y perfeccionar sus sistemas de control interno.
-Las normas que dicte al respecto la Contraloría General de la
-República serán guías de acatamiento obligatorio para la administración
-responsable de implantar y operar el sistema.
+Artículo 60.-(Derogado por el artículo 46 de la Ley de Control Interno, N° 8292 de 31 de julio del 2002)

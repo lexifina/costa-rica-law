@@ -1,0 +1,4 @@
+SECCIÓN II
+Sistema Específico de Valoración del Riesgo
+Artículo 18.—Sistema específico de valoración del riesgo institucional. Todo ente u órgano deberá contar con un sistema específico de valoración del riesgo institucional por áreas, sectores, actividades o tarea que, de conformidad con sus particularidades, permita identificar el nivel de riesgo institucional y adoptar los métodos de uso continuo y sistemático, a fin de analizar y administrar el nivel de dicho riesgo.
+La Contraloría General de la República establecerá los criterios y las directrices generales que servirán de base para el establecimiento y funcionamiento del sistema en los entes y órganos seleccionados, criterios y directrices que serán obligatorios y prevalecerán sobre los que se les opongan, sin menoscabo de la obligación del jerarca y titulares subordinados referida en el artículo 14 de esta Ley.

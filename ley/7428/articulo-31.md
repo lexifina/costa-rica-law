@@ -1,10 +1,3 @@
-ARTICULO 31.- POTESTAD DE INFORMAR Y ASESORAR
-La Contraloría General de la República rendirá a los órganos
-parlamentarios y a cada uno de los diputados los informes que estos le
-soliciten, o de oficio rendirá los que estime pertinentes, de conformidad
-con lo dispuesto en el párrafo segundo del artículo 22 de esta Ley.
-La Contraloría podrá rendir los informes que le soliciten los sujetos
-pasivos.
-La Contraloría asesorará a los órganos parlamentarios de la Asamblea
-Legislativa y les prestará el personal y la colaboración técnicos que
-estos requieran, para el ejercicio de sus competencias constitucionales.
+Artículo 31.—Potestad de informar y asesorar. La Contraloría General de la República rendirá, a los órganos parlamentarios y a cada uno de los diputados, los informes que estos le soliciten; lo realizará de oficio cuando su participación se haya solicitado de conformidad con el segundo párrafo del artículo 22 de la presente Ley. En razón del carácter de órgano auxiliar en el control y la fiscalización de la Hacienda Pública, la Contraloría General de la República remitirá al Plenario Legislativo copia de todos los informes restantes que rinda en el ejercicio de dichas potestades
+La Contraloría asesorará a los órganos parlamentarios de la Asamblea Legislativa y les prestará el personal y la colaboración técnicos que estos requieran, para el ejercicio de sus competencias constitucionales.
+(Así reformado su párrafo primero por el inciso a) del artículo 45 de la Ley de Control Interno, N° 8292 de 31 de julio del 2002)
