@@ -14,3 +14,4 @@ Reforma decreto que crea el Bosque Nacional Diriá (Actualmente "Refugio Naciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-05-08 | la propia norma |
+| 2 | 1993-02-08 | Decreto Ejecutivo 22003 (1993-02-08) |

@@ -3,7 +3,8 @@ EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS,
 En uso de las facultades que les confiere el artículo 140, incisos 3) y 18) de la Constitución Política y la Ley Forestal ?7174 del 28 de junio de 1990.
 Considerando:
-Que la aplicación práctica del decreto ejecutivo No 20517-MIRENEM, publicado en “La Gaceta” N” 129 del 9 de julio de 1991, hacen necesario la modificación del Sector A, del denominado Bosque Nacional Diriá. Por tanto,
+Que la aplicación práctica del decreto ejecutivo No 20517-MIRENEM, publicado en “La Gaceta” N” 129 del 9 de julio de 1991, hacen necesario la modificación del Sector A, del denominado *Bosque Nacional Diriá. Por tanto,
+(*NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 22003 del 8 de febrero de 1993, el Bosque Nacional Diriá será considerado como "Zona Protectora")
 DECRETAN:
 Artículo 1°—Modifiqúese el sector A, artículo 1° del decreto ejecutivo No 20517- MIRENEM publicado en “La Gaceta” No 129, del 9 de julio de 1991, la zona comprendida en los mapas básicos Diriá (3046-1) y Cerro Brujo (3046-11), 1:50.000, según el Instituto Geográfico Nacional, la encontramos entre los siguientes linderos:
 Sector A: Partiendo de un punto ubicado en la margen derecha del Río Tigre, en coordenadas N 243.100 y E 367.680, continúa con rumbo sureste aguas arriba hasta un sector en coordenadas N 242.000 y E 367.800, se sigue con orientación este hasta un punto con coordenadas N 242.180 y E 368.580, para continuar con rumbo sur por una serie de puntos con coordenadas:
