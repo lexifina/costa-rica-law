@@ -1,0 +1,1 @@
+Artículo 6 -Las aulas del edificio de toda Escuela están exclusivamente destinadas á la enseñanza de los profesores y á los servicios de la misma escuela. No pueden usarse para ningún otro fin, á menos que especialmente lo autorice el Consejo de la Escuela.

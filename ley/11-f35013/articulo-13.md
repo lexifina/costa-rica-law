@@ -1,0 +1,2 @@
+Artículo 13.-El Consejo de la Escuela de Derecho, para los estudiantes que en ella se matriculen, y el Consejo del Liceo de Costa Rica para las demás Escuelas generales y especiales, juzgarán si los estudios de segunda enseñanza hechos fuera de los Colegios nacionales, equivalen á los referidos para el certificado de madurez.
+El Director de la Escuela, en la cual se hace la inscripción, determinará el año á que corresponden los estudios hechos fuera de ella.

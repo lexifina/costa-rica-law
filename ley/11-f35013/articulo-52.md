@@ -1,0 +1,1 @@
+Artículo 52.-Los empleados de la Escuela están bajo la dependencia del Director, y á su cargo está la conservación del edificio y material científico de la Escuela y la vigilancia del archivo, contabilidad y Biblioteca de la misma.

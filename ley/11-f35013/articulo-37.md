@@ -1,0 +1,1 @@
+Artículo 37.-Fallando la segunda vez, no en todas, sino en algunas materias, la comisión de exámenes determinará el tiempo dentro del cual podrá presentarse el estudiante á nuevo examen, en dichas materias.

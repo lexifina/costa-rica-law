@@ -1,0 +1,1 @@
+Artículo 34.-Los estudiantes que hayan fallado en una materia, ó en dos, á lo más, podrán hacer nuevo examen en las materias que determine el Tribunal; pero si el examen fuere para el Doctorado, no podrán recibir el diploma.
