@@ -17,3 +17,4 @@ Reglamento General de Proveeduría.
 | 2 | 1998-01-08 | Reglamento 2670 (1998-01-08) |
 | 3 | 1998-08-05 | Reglamento 2766 (1998-08-05) |
 | 4 | 1999-05-26 | Reglamento 2837 (1999-05-26) |
+| 5 | 1999-06-02 | Reglamento 2838 (1999-06-02) |
