@@ -14,3 +14,4 @@ Modifica Precios Venta Arboles de Viveros Forestales Estatales
 | --- | --- | --- |
 | 1 | 1997-10-27 | la propia norma |
 | 2 | 2002-04-02 | Decreto Ejecutivo 30345 (2002-04-02) |
+| 3 | 2002-04-02 | Ley 8 |
