@@ -1,1 +1,0 @@
-Artículo 2°—Los terrenos propiedad del Estado, abarcados en la anterior demarcación, son inalienables y no susceptibles de inscripción mediante información posesoria, pues la posesión de ellos, según lo preceptuado por el artículo 25 de la Ley Forestal, no origina derechos de especie alguna.

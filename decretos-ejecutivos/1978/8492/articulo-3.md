@@ -1,1 +1,0 @@
-Artículo 3°—La administración de la Reserva estará a cargo del Servicio de Parques Nacionales, que deberá preparar y ejecutar los planes de manejo y. desarrollo, correspondiéndole al Instituto Geográfico Nacional la demarcación en el terreno de sus respectivos linderos.
