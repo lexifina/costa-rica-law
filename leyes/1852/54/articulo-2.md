@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -En consecuencia dichos libros se formarán de papel común en todas las parroquias bajo las reglas que acuerde el Ilustrísimo Señor Obispo Diocesano; mas las certificaciones que se pidan de los asientos que aparezcan en los mismos libros, se librar n en papel de sello 3° con arreglo a lo que prescribe el artículo 18° y sección citados.-"
