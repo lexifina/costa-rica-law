@@ -1,0 +1,1 @@
+Artículo 11.—Financiamiento de trabajos y tesis de graduación. El CENADRO podrá financiar trabajos de investigación o tesis de graduación para ampliar los contenidos, estudios y análisis de los datos obtenidos de las distintas instituciones. Para la financiación de investigaciones deberá respetar los reglamentos y lineamientos de financiación de su Presupuesto Operativo.

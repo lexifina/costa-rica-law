@@ -1,0 +1,2 @@
+Artículo 10.—De la publicación de la información. La CIDED deberá realizar anualmente una publicación del contenido público de sus resultados, tanto de datos y estadísticas como de los análisis técnicos o científicos de esos datos.
+Cuando entre en vigencia el Mecanismo de Evaluación Multilateral (MEM) de la Comisión Interamericana para el Control del Abuso de Drogas (CICAD-OEA), solo se otorgará los datos y estadísticas elaborados por la CIDED y los estudios que se desprendan de estos datos.

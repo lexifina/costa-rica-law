@@ -1,0 +1,1 @@
+Artículo 5°—Del nombramiento del representante. Los representantes de cada una de las Instituciones que componen la CIDED serán nombrados por el jerarca de cada institución, considerando su idoneidad, funciones, experiencia y conocimiento sobre el manejo de datos y estadísticas en relación con el fenómeno de las drogas.

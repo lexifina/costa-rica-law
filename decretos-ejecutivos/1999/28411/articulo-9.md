@@ -1,0 +1,1 @@
+Artículo 9°—De las reuniones. La CIDED se reunirá una vez al mes, o cuando sea convocada extraordinariamente por el coordinador, a solicitud de alguno de sus miembros. El coordinador deberá convocar a la CIDED cada vez que reciba cuestionarios de datos y estadísticas de los organismos internacionales, con el fin de confrontar la información que debe ser remitida.
