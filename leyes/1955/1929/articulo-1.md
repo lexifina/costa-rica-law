@@ -1,0 +1,14 @@
+N° 1929
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA
+DE COSTA RICA,
+Decreta :
+Artículo único.—Refórmanse los artículos 2°, 4°, 5°, 7°, inciso b); 8°, inciso d): 10 y 12 de la ley N°12 de 13 de octubre de 1944, reformada por la ley N° 60 de 2 de mayo de 1947 y por el Decreto-Ley N° 513 de 3 de mayo de 1949, para Que se lean así:
+“Artículo 2°—Serán socios o accionistas de la Caja , con obligación de suscribir por lo menos cinco acciones cada uno, todos los funcionarios y empleados en servicio o con licencia, y los jubilados o pensionados del Ministerio de Educación Pública.
+Artículo 4°—Las acciones serán pagadas por medio de deducciones mensuales de dos colones que harán las oficinas que formulan listas de sueldos, de jubilaciones o pensiones del Ministerio de Educación Pública, a cada accionista de la Caja , a favor de la cual serán giradas las sumas correspondientes.
+Las acciones que paguen los accionistas con sumas extraordinarias, es decir, fuera de la cuota mínima a que se refiere el párrafo anterior, ganarán intereses al tipo que cada año señale la Junta Directiva , y podrán ser redimidas por la Caja a solicitud del propio accionista, o ser aplicadas por él a la cancelación de préstamos que le haya concedido la Caja.
+Artículo 5°—El Capital de la Caja será de ¢5.000,000.00 (cinco millones de colones), y estará representado por 50.000 (cincuenta mil) acciones de cien colones cada. una.
+Artículo 7°—Inciso b) Otorgar préstamos por sumas no mayores de ¢3,000.00 (tres mil colones), con garantía de los sueldos futuros y de las respectivas órdenes de retención de los giros, de los cuales serán deducidas las cuotas correspondientes.
+Artículo 8°—Inciso d) Recibir en depósito de los fondos que pertenezcan a las sociedades y a las asociaciones de educadores inscritas de conformidad con la ley, siempre que ellas estén de acuerdo.
+Artículo 10.—Para la administración y la representación judicial y extrajudicial de la Caja , su Junta Directiva nombrará cada dos años un Gerente y un Subgerente que tendrán las facultades y las obligaciones que señale la ley N° 1644 de 26 de setiembre de 1953.
+Artículo 12.—Los préstamos a que se refiere el inciso b) del artículo 7°, se concederán solamente a los accionistas, y su cancelación se efectuará en un plazo no mayor de cuatro años, mediante el sistema de cuotas fijas mensuales, que comprenderán el pago de la amortización, los intereses y los gastos que fije la Junta Directiva de acuerdo con los reglamentos y tablas que adopten, y estarán garantizados durante todo el tiempo que dure el pago, por los sueldos que devengue el deudor en cualquier dependencia de la Administración Pública , además de las garantías que la Junta Directiva estime conveniente o necesarias.
+Casa Presidencial.- San José, a los veintidós días del mes de setiembre de mil novecientos cincuenta y cinco.
