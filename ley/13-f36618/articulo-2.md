@@ -1,0 +1,1 @@
+Art. 2°-La separación del abogado ó procurador debe pedirse dentro de los primeros cinco días, contados desde que la parte tenga noticia de que di- cho pariente dirige el negocio como abogado, ó gestiona en él como procurador. Pasado ese término sin pedir la separación, se tendrá por renunciado el derecho de hacerlo.
