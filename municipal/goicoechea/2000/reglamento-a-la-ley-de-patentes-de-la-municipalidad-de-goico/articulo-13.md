@@ -1,0 +1,2 @@
+Artículo 13.—La licencia solo podrá suspenderse por incumplimiento de los requisitos que exigen las leyes y este reglamento. La suspensión de la licencia implicará el cierre del local o el impedimento de comerciar ambulantemente.
+La licencia caducará cuando se abandone la actividad y así sea comunicado al Departamento de Licencias y Patentes por el interesado, o cuando venza el plazo para el que se haya dado, tratándose de comercio o industrias temporales.

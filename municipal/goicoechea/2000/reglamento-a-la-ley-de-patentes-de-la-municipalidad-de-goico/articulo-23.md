@@ -1,0 +1,1 @@
+Artículo 23.—Las resoluciones de la Municipalidad que ordenen recalificaciones deberán ser modificadas al interesado en el local donde se realiza la actividad las cuales podrán ser impugnadas dentro de los cinco días hábiles siguientes.

@@ -1,0 +1,1 @@
+Artículo 11.—La violación a lo dispuesto en este capítulo, dará lugar al cierre del local o a la imposibilidad de comerciar ambulantemente, medidas que se ejecutarán por medio de las autoridades de policía.

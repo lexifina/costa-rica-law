@@ -1,0 +1,1 @@
+Artículo 3º—Para la determinación mediante declaración jurada se aplicará el procedimiento establecido en la Ley y el Capítulo V de este Reglamento para la imposición directa se aplicará lo dispuesto en el Capítulo VI de este Reglamento y en los artículos 9° , 15° y 16° de la Ley.

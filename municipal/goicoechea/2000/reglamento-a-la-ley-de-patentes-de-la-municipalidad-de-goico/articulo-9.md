@@ -1,0 +1,3 @@
+Artículo 9º—La licencia deberá ser solicitada por escrito, suscrita por el interesado y su firma deberá estar debidamente autenticada.
+Para los efectos de este artículo, basta la sola manifestación en la solicitud de la persona que firma como propietaria del local y su firma será innecesaria en caso en que el solicitante demuestre fehacientemente a juicio del Departamento de Licencias y Patentes Municipales que es titular del derecho de arrendamiento, autorizado para ejercer la actividad solicitada.
+Además la solicitud deberá ser acompañada por una constancia de que el interesado y el dueño del local se encuentran totalmente al día en el pago de impuestos, tasas y contribuciones municipales.

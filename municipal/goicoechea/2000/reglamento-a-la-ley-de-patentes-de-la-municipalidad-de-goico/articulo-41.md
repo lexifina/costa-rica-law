@@ -1,0 +1,1 @@
+Artículo 41.—Las resoluciones del Departamento de Licencias y Patentes que ordenen la cancelación de la patente por falta de pago, no tendrán recurso alguno, y su tramitación no admitirá prueba en contrario, salvo la excepción de pago.

@@ -1,0 +1,1 @@
+Artículo 5º—El Impuesto de Patente se pagará durante todo el tiempo en que se haya tenido establecimiento fijo abierto o ejercido el comercio en forma ambulante y durante el tiempo que se haya poseído licencia, aunque la actividad no se hubiere realizado.

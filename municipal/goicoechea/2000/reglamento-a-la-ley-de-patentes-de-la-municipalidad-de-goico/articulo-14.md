@@ -1,0 +1,1 @@
+Artículo 14.—Cuando resulte totalmente evidente el abandono de la actividad, aún cuando el interesado no lo haya comunicado al Departamento de Licencias y Patentes, se procederá a cancelar la licencia.

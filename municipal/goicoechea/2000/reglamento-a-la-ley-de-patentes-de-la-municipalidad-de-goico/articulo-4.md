@@ -1,0 +1,2 @@
+Artículo 4º—El Impuesto de Patente, deberá ser cancelado por trimestre adelantado. El atraso en la cancelación generará multas e intereses moratorios que se calcularán según el Código de Normas y Procedimientos Tributarios.
+Además, cuando el atraso corresponda a dos o más trimestres, la licencia podrá suspenderse, dando lugar a la clausura del local, de acuerdo con lo estipulado en el artículo 81 Bis del Código Municipal.

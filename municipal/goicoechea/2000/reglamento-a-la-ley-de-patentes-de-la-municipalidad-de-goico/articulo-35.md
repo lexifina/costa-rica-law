@@ -1,0 +1,1 @@
+Artículo 35.—Es obligación de los inspectores informar directamente el resultado de visitas e inspecciones o cualquier otra función encomendada al Jefe del Departamento de Licencias y Patentes o quien este designe.

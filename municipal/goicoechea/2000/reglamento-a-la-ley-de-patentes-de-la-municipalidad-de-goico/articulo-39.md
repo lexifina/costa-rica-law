@@ -1,0 +1,1 @@
+Artículo 39.—Para la tramitación de los recursos contra la calificación o recalificación, será requisito formal que el interesado se encuentre totalmente al día en el pago de la imposición determinada por el Departamento de Licencias y Patentes.

@@ -1,0 +1,2 @@
+Artículo 31.—La Municipalidad por medio del Departamento de Licencias y Patentes, aplicará los aumentos de imposición en forma discrecional y principalmente tomando en cuenta en consideración la analogía o comparación con establecimientos que ejerzan la misma actividad y estén incluidos dentro del artículo 1° y 14° de la ley.
+Determinada la analogía, la Municipalidad aplicará las tarifas superiores a la que guarda similitud.

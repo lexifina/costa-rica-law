@@ -1,0 +1,1 @@
+Artículo 42.—Las resoluciones que ordenen el cierre temporal o definitivo de establecimientos por incumplimiento o quebrantamiento de las leyes, de las buenas costumbres o disposiciones reglamentarias, tendrán los recursos de revocatoria y apelación que se tramitarán conforme lo dispuesto en el artículo 161 del Código Municipal.

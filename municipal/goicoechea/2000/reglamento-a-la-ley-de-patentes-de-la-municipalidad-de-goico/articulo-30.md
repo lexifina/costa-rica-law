@@ -1,0 +1,1 @@
+Artículo 30.—Para fijar el monto del impuesto, el Departamento de Licencias y Patentes la tramitación y resolución de todo lo relacionado a la Ley de Patentes solicitará al interesado, quien estará obligado a suministrar la información, los datos necesarios para establecer los factores de imposición a que se refiere el artículo 15 de la Ley.
