@@ -1,0 +1,1 @@
+Artículo 25.—Programas de calidad en la exportación. El Consejo por medio de la Dirección de Calidad Agrícola desarrollará programas de verificación de calidad para productos agropecuarios de exportación priorizados por la Junta Directiva, en coordinación con otros entes públicos y privados, a fin de proteger la imagen del país en los mercados internacionales.

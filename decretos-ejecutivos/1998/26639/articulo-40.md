@@ -1,0 +1,1 @@
+Artículo 40.—Criterios de crédito. Le corresponderá al Consejo mediante reglamentación interna establecer los criterios para la recepción, análisis, supervisión y ejecución de los proyectos, incluido en esto la cronología de los desembolsos, la aprobación de políticas y de planes generales de trabajo.

@@ -1,0 +1,1 @@
+Artículo 18.—Licitaciones. Variación de monto. El monto establecido en el artículo anterior puede variarse mediante acuerdo de Junta Directiva, tomando como parámetro la actualización del monto del artículo 84, inciso d) de la Ley de Contratación Administrativa número 7494.

@@ -1,0 +1,1 @@
+Artículo 14.—Atención de emergencia. Alimentos. El Consejo será el encargado de suministrar a la Comisión Nacional de Emergencias, los alimentos y artículos de consumo básico popular que tuviere en existencias o pudiere adquirir y que sean requeridos por ésta, para la atención de las emergencias.

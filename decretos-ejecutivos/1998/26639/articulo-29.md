@@ -1,0 +1,9 @@
+CAPITULO CUARTO
+Del nombramiento de los representantes estipulados en los incisos 6,
+7, 9 y 10 del artículo 15 ante la Junta Directiva del
+Consejo Nacional de Producción
+Artículo 29.—Nombramientos representantes. Para efectos de la elección de los representantes ante la Junta Directiva, estipulados en los incisos 6, 7, 9, 10 del artículo 15 de la ley orgánica del CNP, modificada por la ley 7742, se procederá de la siguiente manera:
+a) El Ministro convocará a la Junta Directiva de la Cámara Nacional de Agricultura y Agroindustria a una sesión en la cual se procederá a elegir el representante ante la Junta Directiva del Consejo Nacional de Producción, de acuerdo con lo estipulado en el inciso 6) artículo 15 de la ley orgánica del CNP.
+b) El Ministro convocará al Comité Ejecutivo de la Unión Nacional de Pequeños y Medianos Productores Agropecuarios a una sesión en la cual se procederá a elegir el representante ante la Junta Directiva del Consejo Nacional de Producción, de acuerdo con lo estipulado en el inciso 7) del artículo 15 de la ley orgánica del CNP.
+c) El Ministro convocará a los representantes del sector agrícola industrial del CONACOOP a una sesión en la cual se procederá a elegir el representante ante la Junta Directiva del Consejo Nacional de Producción, de acuerdo con lo estipulado en el inciso 10) del artículo 15 de la ley orgánica del CNP.
+d) El Ministro convocará, a través de al menos dos medios de comunicación colectiva de cobertura nacional, a las organizaciones de pequeños productores agropecuarios legalmente constituidas para que presenten las ternas respectivas para elegir al representante estipulado en el inciso 9 del artículo 15 de la ley orgánica del CNP.

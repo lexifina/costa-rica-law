@@ -1,0 +1,1 @@
+Artículo 15.—Venta de ser vicios. Para cumplir con lo dispuesto en el artículo 5°, inciso v) de su Ley Orgánica, el Consejo podrá comprar o vender servicios en áreas propias de su giro normal, mediante contratación directa sin perjuicio de que pueda utilizar otro procedimiento de contratación administrativa que convenga a sus intereses.

@@ -1,0 +1,3 @@
+CAPITULO TERCERO
+Del mercadeo agropecuario y de la calidad y afines
+Artículo 22.—Definiciones. La calidad es el conjunto de propiedades o características de un producto o servicio, que le confieren su aptitud para satisfacer necesidades expresadas o implícitas. El control de calidad son las técnicas y actividades de carácter operativo utilizadas para satisfacer los requisitos relativos a la calidad e inocuidad en el consumo. La inocuidad es la garantía de que los productos no causarán daño al consumidor cuando se preparen y/o consuman de acuerdo con el uso a que se destinan y que afecten su calidad.
