@@ -14,3 +14,4 @@ Reglamento sobre Normativa Prudencial Aplicable a los Puestos de Bolsa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-20 | la propia norma |
+| 2 | 2001-06-18 | Reglamento 234 (2001-06-18) |
