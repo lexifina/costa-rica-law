@@ -1,0 +1,41 @@
+N° 3660
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+Decreta:
+Artículo 1°—Apruébanse los siguientes Acuerdos entre los Estados Unidos de América y la República de Costa Rica para Cooperar en un programa de carreteras en Costa Rica suscritos el 12 de agosto de 1963 y el 19 de setiembre de 1964, respectivamente:
+AMENDMENT N° 2 TO AGREEMENT OF COOPERATION FOR A HIGHWAY PROGRAM IN COSTA RICA BETWEEN THE UNITED STATES OF AMERICA AND THE REPUBLIC OF COSTA RICA | ENMIENDA N° 2 AL ACUERDO ENTRE LOS ESTADOS UNIDOS DE AMERICA Y LA REPÚBLICA DE COSTA RICA PARA COOPERAR EN UN PROGRAMA DE CARRETERAS EN COSTA RICA
+The above-titled agreement, entered into between the United States of America, acting through its Bureau of Public Roads in the Department of Commerce, and the Republic of Costa Rica, represented by its Ministry of Public Works (now Ministry of Transportation), which became effective October 12, 1961, provides for cooperation between the parties thereto for the purpose of providing, in accordance with the provision of Section 308, Title 23, United States Code (72 Stat 885, 914), technical advice and supervisions by the Bureau of Public Roads to the Ministry of Public Works (now Ministry of Transportation) in the execution of the highway project financed in part by the International Bank for Reconstruction and Development and the International Development Association, and | El arriba mencionado acuerdo convenido entre los Estados Unidos de América, representado por el Bureau of Public Roads en el Department of Commerce y la República de Costa Rica representada por su Ministerio de Obras Públicas (ahora Ministerio de Transportes), el cual se hizo efectivo el 12 de octubre de 1961, para la cooperación de las partes con el fin de obtener, de acuerdo con lo establecido en la Sección 308, Título 23, del Código de los Estados Unidos (72 Stat 885, 914), asesoramiento técnico y supervisión del Bureau of Public Roads al Ministerio de Obras Públicas (ahora Ministerio de Transportes) en la ejecución del proyecto de carreteras financiado en parte por el Banco Internacional de Reconstrucción y Fomento y la Asociación Internacional de Desarrollo, y
+Whereas, the Ministry of Transportation has now requested the Bureau of Public Roads to provide the engineering services required under the terms of the Alliance for Progress Loan Agreement, IBRD/AID Highway Program, AID Loan M° 515-L-009. dated July 23, 1963, | Por cuanto, el Ministerio de Transportes ha solicitado que el Bureau of Public Roads provea los servicios de Ingeniería requeridos, conforme a las estipulaciones del Acuerdo de Empréstito de la Alianza para el Progreso, Programa de Carreteras IBRD/AID, Empréstito AID N° 515-1.-009. fechado el 23 de julio de 1963.
+Now therefore, in consideration of the promises and of the several promises set forth in the said Agreement of Cooperation, the Bureau of Public Roads hereby agrees to provide the aforementioned engineering services for the Ministry of Transportation in accordance with the provisions of the said Alliance for Progress Loan Agreement. | Por tanto, en consideración de las estipulaciones y de las obligaciones varias expuestas en el Acuerdo de Cooperación, el Bureau of Public Roads acuerda por la presente proveer al Ministerio de Transportes con el servicio de ingeniería antes mencionado, conforme con las disposiciones de este Acuerdo de Empréstito de la Alianza para el Progreso.
+In witness whereof, the parties hereto have caused this Amendment to be executed in their behalf by the affixing of the signatures of their respective officers hereunder. This Amendment shall become effective as of the 12th day of August, 1963. | En fe de lo cual, las partes contratantes han creado esta Enmienda para ser ejecutada por medio de las firmas de sus respectivos representantes. Esta Enmienda entrará en vigencia el 12 de agosto de 1963.
+POR LA REPUBLICA
+DE COSTA RICA
+MINISTERIO DE MINISTERIO DE TRANSPORTES
+RELACIONES EXTERIORES
+________________________________________________________________________________
+Daniel Oduber, Carlos Espinach E.,
+Ministro de Relaciones Exteriores. Ministro de Transportes.
+BY THE UNITED STATES OF
+AMERICA DEPARTMENT OF
+COMMERCE BUREAU OF
+PUBLIC ROADS
+______________________________
+Rix M. Whitpon,
+Federal Highway Administrator.
+AMENDMENT N° 3 TO AGREEMENT OF COOPERATION FOR A HIGHWAY PROGRAM IN COSTA RICA BETWEEN THE UNITED STATES OF AMERICA AND THE REPUBLIC OF COSTA RICA | ENMIENDA N° 3 AL ACUERDO ENTRE LOS ESTADOS UNIDOS DE AMERICA Y LA REPUBLICA DE COSTA RICA PARA COOPERAR EN UN PROGRAMA DE CARRETERAS EN COSTA RICA
+The above-titled agreement, entered into between the United States of America, acting through its Bureau of Public Roads, Department of Commerce, and the Republic of Costa Rica, represented by its Ministry of Public Works (now Ministry of Transportation), which became effective October 12, 1961, provides for cooperation between the parties thereto for the purpose of providing, in accordance with the provisions of Section 308, Title 23, United States Code (72 Stat 885, 914), technical advice and supervision by the Bureau of Public Roads to the Ministry of Public Works (now Ministry of Transportation) in the execution of the highway project financed in part by the International Bank for Reconstruction and Development and the International Development Association, and | El arriba mencionado acuerdo convenido entre los Estados Unidos de América, representado por el Bureau of Public Roads en el Departamento de Comercio y la República de Costa Rica representada por su Ministerio de Obras Públicas (ahora Ministerio de Transportes), el cual se hizo efectivo el 12 de octubre de 1961, para la cooperación de las partes con el fin de obtener, de acuerdo con lo establecido en la Sección 308, Título 23, del Código de los Estados Unidos (72 Stat 885, 914), asesoramiento técnico y supervisión del Bureau of Public Roads al Ministerio de Obras Públicas (ahora Ministerio de Transportes) en la ejecución del proyecto de carreteras financiado en parte por el Banco Internacional de Reconstrucción y Fomento y la Asociación Internacional de Desarrollo, y
+Whereas, the Ministry of Transportation has now requested the Bureau of Public Roads to extend its services to include a program of construction and re-construction of approximately 616 Km. of farm-to-market roads, which are to be financed in part by the Inter-American Development Bank. | Por cuanto, el Ministerio de Transportes ha solicitado que el Bureau of Public Roads provea también los servicios de ingeniería requeridos al programa de construcción y reconstrucción de aproximadamente 616 kilómetros de Caminos Vecinales que será financiado en parte por el Banco Interamericano de Desarrollo.
+Now therefore, in consideration of the premises and of the several promises set forth in said Agreement of Cooperation, the Bureau of Public Roads hereby agrees to provide the aforementioned technical advice and supervision in accordance with the provisions of said contractual commitments between the Republic of Costa Rica and the Inter-American Development Bank. | Por tanto, en consideración de las estipulaciones y de las obligaciones varias expuestas en el Acuerdo de Cooperación el Bureau of Public Roads acuerda por la presente proveer a! Ministerio de Transportes con el servicio de ingeniería antes mencionado conforme con las disposiciones de dicho contrato acuerdo entre la República de Costa Rica y el Banco Interamericano de Desarrollo.
+In witness whereof, the parties hereto have caused this Amendment to be executed in their behalf by affixing the signatures of their respective officers hereunder. This Amendment shall become effective as of September 1, 1964. | En fe de lo cual, las partes contratantes han creado esta Enmienda para ser ejecutada por medio de las firmas de sus respectivos representantes. Esta Enmienda entrará en vigencia el 1° de setiembre de 1964.
+POR LA REPUBLICA
+DE COSTA RICA
+MINISTERIO DE MINISTERIO DE TRANSPORTES
+RELACIONES EXTERIORES
+Daniel Oduber, Ricardo Echandi Z.,
+Ministro de Relaciones Exteriores. Ministro de Transportes.
+BY THE UNITED STATES OF
+AMERICA DEPARTMENT OF
+COMMERCE BUREAU OF
+PUBLIC ROADS
+______________________________
+Rix M. Whitpon,
+Federal Highway Administrator.
