@@ -11,3 +11,6 @@ artículos 14 a 23 de la presente ley en cuanto le fueren aplicables dada
 la naturaleza de su cargo y el origen de su nombramiento. La remoción del
 Auditor sólo podrá acordarse con el mismo número de votos necesarios para
 su nombramiento.
+(NOTA: Este numeral es complementado por el artículo 7 - que trata del
+impedimento para ser nombrados - de la ley No.4646 de 20 de octubre de
+1970).
