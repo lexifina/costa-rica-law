@@ -1,0 +1,1 @@
+Art. 6°-En el caso del artículo anterior, se fijará el equivalente en dinero por dos peritos. Si la parte acompaña la estimación de dos Corredores Jurados, no habrá necesidad de dictamen pericial; pero en este último caso, podrá el ejecutado impugnar la estimación en el término que se le da para oponerse.

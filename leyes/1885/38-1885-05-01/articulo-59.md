@@ -1,0 +1,2 @@
+Art. 59.-En los casos de los dos artículos anteriores, podrá apersonarse en la ejecución el tercer poseedor, y proponer en el término de la oposición, las excepciones que demuestren inexistencia en todo ó parte del crédito ó del derecho hipotecario.
+Si el tercer poseedor no tuviere noticia judicial de que el acreedor persigue su cosa, sino después de trascurrido en todo ó en parte el término que se concede al deudor para oponerse á la ejecución, tendrá derecho á gozar de un término igual al concedido por la ley á éste, para oponerse á las pretensiones del actor.

@@ -1,0 +1,2 @@
+Art. 88.-Si el crédito del tercero que alegare preferencia, constare en documento ejecutivo, se prevendrá al ejecutante y ejecutado se opongan á la tercería ó manifiesten su conformidad con ella dentro de los cinco días siguientes.
+La oposición del primero se limitará á negar la existencia del privilegio ó derecho real por causa de la no existencia de la deuda; la del segundo podrá fundarse en todas las excepciones que caben contra un ejecutante.

@@ -1,0 +1,1 @@
+Art. 17.-Si el ejecutado se opusiere á la ejecución, deberá en los cinco días de que habla el artículo anterior, proponer sus excepciones y la prueba de ellas, prueba que deberá rendirse dentro de los cinco días inmediatos

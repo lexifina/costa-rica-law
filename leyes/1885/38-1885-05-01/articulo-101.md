@@ -1,0 +1,1 @@
+Art. 101.-El acreedor presentará su demanda dentro de los treinta días siguientes al del embargo. Presentada la demanda con título ejecutivo y admitida por el Juez, se confirmará el embargo y se devolverá el depósito hecho por el actor.

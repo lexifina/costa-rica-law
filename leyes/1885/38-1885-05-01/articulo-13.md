@@ -1,0 +1,1 @@
+Art. 13.-Si el demandado pagare dentro del término de veinticuatro horas de que habla el artículo anterior, la suma reclamada y las costas, se hará constar en los autos, se entregará al actor la suma satisfecha y se dará por terminado el juicio.

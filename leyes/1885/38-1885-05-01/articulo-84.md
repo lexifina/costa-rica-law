@@ -1,0 +1,1 @@
+Art. 84.-Si el embargo se hubiere hecho en pensiones, aun después de dada sentencia de remate en favor del ejecutante, podrán los terceros acreedores que también hayan obtenido sentencia de remate, presentarse para el efecto de que los sueldos ó ensueldos ó pensiones no devengados se distribuyan proporcionalmente, según el monto de los respectivos créditos.

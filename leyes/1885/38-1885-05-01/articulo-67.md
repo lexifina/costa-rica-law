@@ -1,0 +1,1 @@
+Art. 67.-Si pagados los acreedores de que trata el artículo 65, ó depositado en su caso lo que les corresponda, hubiere todavía sobrante, y no lo hubieren embargado acreedores comunes, se entregará al ejecutado.

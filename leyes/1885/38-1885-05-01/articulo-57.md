@@ -1,0 +1,1 @@
+Art. 57.-Si, antes de vencerse el plazo del crédito, no hubiere el deudor enajenado la cosa gravada, deberá el Juez, á instancia del acreedor, prevenir al tercer poseedor pague la suma porque responda la finca, dentro de diez días. Si no lo hiciere, se entiende desamparada la finca, y, para el efecto de desinteresar al poseedor, se reputará ella propiedad del deudor.

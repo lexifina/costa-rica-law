@@ -1,0 +1,1 @@
+Art. 72.-En caso de la venta del inmueble hipotecado á que se refiere el artículo 70, serán aplicables las disposiciones de los artículos 61 y siguientes, si sobre el inmueble pesaren otros gravámenes reales.

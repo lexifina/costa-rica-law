@@ -1,0 +1,1 @@
+Art. 33.-La nota á que se refiere el artículo 31 producirá los efectos de la anotación preventiva, si dentro de los diez días siguientes se presentan al Registro los mandamientos de que habla el artículo anterior. Puede el Juez prorrogar ese término hasta por diez días más, á pedimento de parte y por justa causa.

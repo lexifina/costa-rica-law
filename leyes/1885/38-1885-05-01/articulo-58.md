@@ -1,0 +1,1 @@
+Art. 58.-En los casos en que el tercer poseedor haya adquirido la finca, estando ya vencida la obligación, no habrá necesidad de requerirlo, y se considerará la finca como si no hubiese salido del poder del deudor, en lo que respecta á los derechos del acreedor hipotecario.

@@ -1,0 +1,1 @@
+Art. 30.-Los bienes embargados serán puestos en depósito de la persona que las partes elijan. En defecto de convenio de las partes, se depositarán en la persona de responsablidad que el nombre el Jues ó el ejecutor. Queda á salvo la designación que la ley haga para depositario de determinados bienes.

@@ -1,0 +1,2 @@
+Art. 70.-En caso de que al constituirse la hipoteca hubiere renunciado el deudor los trámites del juicio ejecutivo, deberá el Juez, á instancia del actor, ordenar la venta inmediata del inmueble, previo avalúo por peritos, si las partes no hubieran anticipadamente fijado precio que sirva de base para el remate.
+El importe de las mejoras hechas por el deudor ó su causa-habiente en la finca hipotecada, después de la constitución del gravamen, se unirà al precio fijado para el remate en la escritura, aunque tales mejoras hayan sido hechas sin anuencia del acreedor.

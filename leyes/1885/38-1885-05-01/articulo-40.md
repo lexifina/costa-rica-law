@@ -1,0 +1,1 @@
+Art. 40.-Si fueren valores de comercio, con valor corriente en la plaza, se hará su venta por el Corredor Jurado, agente ó comerciante que el Juez designe; se unirá á los autos la cuenta de la negociación, con expresión de haberse hecho ésta al cambio corriente el día de la venta.

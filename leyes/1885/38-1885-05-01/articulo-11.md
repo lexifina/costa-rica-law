@@ -1,0 +1,1 @@
+Art. 11.-Si el actor acredita su personería, y si el título presentado es ejecutivo, el Juez despachará la ejecución, ordenando el embargo de bienes suficientes á cubrir la cantidad demandada y las costas.
