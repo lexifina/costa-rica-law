@@ -1,0 +1,1 @@
+Artículo 4°—No se otorgará permiso para que en los parques públicos se desarrollen actividades ideológicas partidistas o de credos religiosos, así como otras que por su naturaleza vayan contra la moral y las buenas costumbres de sus habitantes.

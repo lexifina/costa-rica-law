@@ -1,0 +1,1 @@
+Artículo 9°—Se prohíbe transitar dentro del parque o sus aceras en bicicleta o patineta, así como con animales u otro tipo de objetos que puedan deteriorar sus instalaciones y causar accidentes a los usuarios del mismo.

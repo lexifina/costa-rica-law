@@ -1,0 +1,1 @@
+Artículo 5°—Conforme lo establece el código municipal la municipalidad cobrará tasas para el mantenimiento de parques y zonas verdes públicas, para cada uno de los distritos conforme el costo de inversión para cada uno de ellos.
