@@ -1,0 +1,1 @@
+Art 3° Cada oficina tendrá un mensajero, que podrá dedicarse también al aprendizaje, si sus aptitudes lo recomiendan y si obtiene el permiso necesario, en cuyos casos se le auxiliará con el sueldo adicional de cinco pesos mensuales.

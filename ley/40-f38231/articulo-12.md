@@ -1,0 +1,1 @@
+Art 12° Además de la pena impuesta a los telegrafistas en los artículos 28 y 30 del Reglamento de 28 de julio de 1871, por faltas cometidas en el desempeño de sus funciones, se impondrá por el Director General, la multa de cinco a diez pesos, según la gravedad de la falta, como lo dispone la orden gubernativa número 78 de 27 de abril del corriente año.
