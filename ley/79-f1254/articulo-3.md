@@ -1,0 +1,1 @@
+Artículo 3°--Encárganse, interinamente, al mismo señor Jiménez las Secretarías de Estado en los despachos de Gobernación, Hacienda y Carteras anexas. Palacio Presidencial.-San José, ocho de noviembre de mil ochocientos ochenta y nueve.-CARLOS DURÁN. El Secretario de Estado en el despacho de Gobernación, -MAURO FERNÁNDEZ.
