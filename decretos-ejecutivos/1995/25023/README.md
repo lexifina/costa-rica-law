@@ -13,3 +13,4 @@ Finaliza Vigencia Beneficios e Incentivos Restitución Areas Bananeras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-26 | la propia norma |
+| 2 | 1996-03-26 | SINALEVI (sin norma nombrada) |
