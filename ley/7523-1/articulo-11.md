@@ -1,0 +1,4 @@
+Artículo 11.- Confidencialidad de la información
+Los miembros de la Junta Directiva, los apoderados, los gerentes, los administradores y cualquier persona que, en razón de su labor en una operadora, tengan acceso a información de las inversiones de los recursos de un fondo que aún no se haya divulgado oficialmente en el mercado y que, por su naturaleza, sea capaz de influir en las cotizaciones de los valores de dichas inversiones, deberán guardar estricta confidencialidad respecto de esa información.
+Asimismo, se prohíbe a las personas mencionadas valerse, directa o indirectamente, de la información reservada para obtener, para sí o para otros distintos del fondo de pensiones, ventajas mediante la compra o venta de valores.
+Ninguna información registrada en las cuentas individuales podrá ser suministrada a terceros, excepto en los casos previstos en esta Ley.

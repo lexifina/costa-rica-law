@@ -1,0 +1,2 @@
+Artículo 10.- Establecimiento de la comisión extra-ordinaria
+Las operadoras podrán cobrar una comisión extraordinaria por servicios de carácter voluntario, adicionales a los derivados de la administración del fondo. Esos servicios deberán detallarse y justificarse siempre y cuando el cobro de la comisión haya sido aprobado por el ente regulador y, posteriormente, comunicado a todos los afiliados y los cotizantes.
