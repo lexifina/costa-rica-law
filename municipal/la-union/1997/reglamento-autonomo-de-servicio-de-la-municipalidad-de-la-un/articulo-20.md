@@ -1,0 +1,2 @@
+Artículo 20.-(Marca de la tarjeta que no corresponde)
+El Servidor que en forma dolosa marque una tarjeta que no le corresponde, será sancionado la primera vez con cinco días de suspensión sin goce de salario y en caso de reincidir, con el despido inmediato sin responsabilidad patronal, por considerarse el acto falta grave. Igual sanción le será aplicada al Servidor cuya tarjeta resulte marcada por otro, con su ) consentimiento.

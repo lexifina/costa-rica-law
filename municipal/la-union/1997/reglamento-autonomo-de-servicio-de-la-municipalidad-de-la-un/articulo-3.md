@@ -1,0 +1,2 @@
+Artículo 3°-(De los encargados de aplicar el Reglamento)
+El Ejecutivo Municipal, los Directores de Departamento o Áreas de Servicio, Jefes de Sección, Jefes de Unidades y en general todos aquellos funcionarios que tengan bajo su responsabilidad la Administración y Supervisión de Personal, serán responsables ante la Municipalidad de velar por la correcta aplicación de todas las disposiciones del presente Reglamento.

@@ -1,0 +1,2 @@
+Artículo 14.-(Obligación de respetar la jornada de trabajo)
+Los Servidores están obligados al desempeño de su cargo durante todos los días hábiles y horas reglamentarías y no podrán concederse privilegios, prerrogativas o concesiones que autoricen una asistencia irregular, salvo los casos de licencias de estudio, enfermedad comprobada de algún familiar hasta tercer grado de consanguinidad o afinidad que requiera la presencia temporal del Servidor para su atención y los demás que determine este Reglamento y el ordenamiento jurídico vigente.

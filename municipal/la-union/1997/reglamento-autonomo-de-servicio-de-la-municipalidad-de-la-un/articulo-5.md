@@ -1,0 +1,2 @@
+Artículo 5°-(Existencia de la Relación de Servicio)
+Se establecerá la existencia de una relación de servicio entre la Municipalidad y los Servidores, cuando el funcionario realiza una tarea determinada de tipo material o intelectual a cambio de una retribución salarial. Lo anterior en virtud de un acto válido y eficaz de nombramiento, el cual cumplirá con los requisitos legales pertinentes dependiendo del régimen aplicable al servidor, el cual se determinará de acuerdo con las funciones que ejecuta el Servidor.

@@ -1,0 +1,2 @@
+Artículo 38.-(De las vacaciones proporcionales)
+En casos de urgente necesidad podrá el Servidor que así lo solicite y fundamente, disfrutar de vacaciones antes de completar el período, en proporción al tiempo de trabajo servido. El jefe inmediato resolverá sobre la petición anterior, considerando las razones alegadas por el Servidor y las necesidades del servicio. Si la solicitud fuere denegada el Servidor podrá recurrir al Organo Superior Jerárquico, quien en definitiva resolverá el asunto.

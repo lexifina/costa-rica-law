@@ -1,0 +1,2 @@
+Artículo 50.-(De la aplicación de las sanciones)
+En la aplicación de sanciones de tipo disciplinario al Servidor, por faltas, se procederá a realizar la instrucción del caso por parte del órgano director, respetando las normas del debido proceso y dando oportunidad al Servidor de ejercer su defensa, siguiendo el procedimiento establecido en Código Municipal.

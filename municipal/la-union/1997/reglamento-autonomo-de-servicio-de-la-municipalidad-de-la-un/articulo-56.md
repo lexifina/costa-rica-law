@@ -1,0 +1,2 @@
+Artículo 56.-(Procedimiento)
+El Servidor afectado por posible acoso u hostigamiento sexual, deberá plantear la denuncia en forma escrita y mediante el aporte de las pruebas que respalden la misma, para ante el Órgano Superior Jerárquico, quien deberá abrir un proceso para determinar la misma, guardando la imagen, confidencialidad y principios que rigen la actividad administrativa so pena de incurrir en falta grave en caso contrario.

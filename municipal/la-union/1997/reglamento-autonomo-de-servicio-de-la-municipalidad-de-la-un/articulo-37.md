@@ -1,0 +1,2 @@
+Artículo 37.-(Época de disfrute de vacaciones)
+El jefe inmediato de cada funcionario señalará la época en que estos disfrutarán de su periodo de vacaciones, tomando en consideración las necesidades del servicio y en lo posible los intereses del Servidor. Si han pasado treinta días naturales desde que el Servidor tiene derecho a sus vacaciones y la fecha para su disfrute no ha sido señalada, por ninguna de las partes el Órgano Superior Jerárquico, las ordenará de oficio, fijando la época en que el Servidor las disfrutará.

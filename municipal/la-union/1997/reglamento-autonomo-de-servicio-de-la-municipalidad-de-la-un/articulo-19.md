@@ -1,0 +1,2 @@
+Artículo 19.-(De las omisiones de marca)
+La omisión de marca de las horas de entrada o salida a las jornadas de trabajo, hará presumir la inasistencia del servidor a la jornada correspondiente, lo que acarreará la reducción salarial. El Servidor deberá justificar ante su Jefe inmediato la omisión, a fin de que esta sea remitida para lo correspondiente, a la Oficina de Personal. No se aplicará lo anterior, cuando la omisión de marca se debe al cumplimiento de funciones propias del cargo, encomendadas al Servidor o a razones de fuerza mayor o caso fortuito.

@@ -1,0 +1,3 @@
+Artículo 6°-(Terminación de la Relación de Servicio)
+La Municipalidad podrá dar por concluida la relación de servicio con sus funcionarios de conformidad con lo dispuesto en el Código Municipal, Código de Trabajo y demás normas aplicables al caso concreto.
+La Municipalidad no incurrirá en responsabilidad pecuniaria por la terminación de la relación de servicio con sus funcionarios, cuando se deba a causas imputables al Servidor, o cuando se dé durante el periodo de prueba. Igual situación se dará cuando el servidor haya sido contratado por un plazo determinado o para la ejecución de una obra especifica.
