@@ -1,0 +1,1 @@
+Artículo 163.- El personal de la Aduana, los agentes aduaneros o el consignatario o propietario, en su caso, están obligados a dar cuenta al Administrador de Aduana, por escrito, de toda pérdida o daño de mercancías que por cualquier medio llegue a su conocimiento.

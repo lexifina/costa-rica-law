@@ -1,0 +1,1 @@
+Artículo 122.- Las mercancías deberán ser aforadas previamente a su ingreso a los almacenes generales de depósito a efecto de determinación en forma provisional el monto de los derechos aduaneros y demás cargos aplicables que corresponderán sin perjuicio del aforo definitivo que se efectúe en el momento de su destinación.
