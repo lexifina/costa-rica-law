@@ -1,0 +1,1 @@
+Transitorio II.—El Ministerio de Salud, por medio de la Dirección de Desarrollo de la Salud contará con un plazo de seis meses para elaborar y publicar las normas de atención integral para los niños niñas y adolescentes en situaciones de sospecha o abuso comprobado, los cuales deberán ser divulgadas a todo el personal dentro de los doce meses siguientes a su aprobación.
