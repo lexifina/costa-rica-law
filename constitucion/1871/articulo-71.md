@@ -1,0 +1,1 @@
+Artículo 71.- Los Diputados del Congreso no podrán admitir empleos del Poder Ejecutivo, durante las sesiones. Podrán solamente aceptar las Secretarías de Estado y los cargos diplomáticos, dejando vacante su puesto en el Congreso. No podrán tampoco ser miembros del Municipio.

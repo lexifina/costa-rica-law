@@ -1,0 +1,1 @@
+Artículo 113.- Cuando la gravedad de algún asunto lo exigiere, podrá aumentarse el Consejo del Gobierno con los miembros de la Comisión Permanente, y con los demás individuos que el Presidente de la República tenga a bien invitar.
