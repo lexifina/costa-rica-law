@@ -12,3 +12,4 @@ Reglamento a la Ley de Protección al Consumidor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-07-10 | la propia norma |
+| 2 | 1975-07-10 | SINALEVI (sin norma nombrada) |
