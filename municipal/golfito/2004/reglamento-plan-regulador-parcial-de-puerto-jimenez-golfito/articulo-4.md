@@ -1,0 +1,4 @@
+Artículo 4º—Zona Pública (ZP)
+a) Propósitos: Cumplir con el espíritu de la Ley 6043 y su Reglamento, en cuanto al derecho de uso público de los 50 metros medidos a partir de la pleamar ordinaria. Se debe mantener al máximo la arborización existente en la zona de la berma de la playa, que es el sector donde no llega la influencia de las mareas ordinarias, las arenas de la berma son propensas a la remoción, por lo que debe de mantenerse la vegetación que la retiene.
+b) Localización: Está limitada por los mojones colocados por IGN y enumerados del N° 865 al N° 975, incluye la berma de la playa que se ubica paralela al amojonamiento de esta zona según la lámina de zonificación 5.
+c) Usos Permitidos, Conflictivos y Condicionales: Todos los que señale la Ley sobre la Zona Marítimo Terrestre N° 6043 y su Reglamento.
