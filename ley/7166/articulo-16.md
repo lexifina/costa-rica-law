@@ -1,6 +1,2 @@
-ARTICULO 16.- Para gravar cualquier actividad lucrativa recién
-establecida, por lo cual no pueda sujetarse al procedimiento impositivo del
-artículo 4, la Municipalidad podrá hacer una estimación, por analogía u
-otros medios pertinentes. Esta imposición tendrá carácter provisional y
-deberá ser modificada con base en la primera declaración que le corresponda
-efectuar al patentado.
+Artículo 16.- Cada extranjero que, por la frontera de Peñas Blancas, ingrese al país o salga de él, pagará a la Municipalidad del cantón de La Cruz, la suma de tres dólares estadounidenses (US$3.00), al tipo de cambio que fije el Banco Central de Costa Rica. Los costarricenses solo pagarán por efecto de salida. Las autoridades del Servicio de Migración quedan obligadas a exigir el pago efectivo de este impuesto.
+(Así reformado por Ley N° 8024 del 27 de setiembre del 2000)
