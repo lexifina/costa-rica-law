@@ -14,3 +14,4 @@ Dispone el inicio de traspaso de propiedades del Estado a Japdeva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1964-09-29 | la propia norma |
+| 2 | 1966-04-29 | Decreto Ejecutivo 12 (1966-04-29) |
