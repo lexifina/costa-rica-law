@@ -1,0 +1,4 @@
+Artículo 29.—De las cotizaciones con varios patronos. Cuando la persona incapacitada labora simultáneamente con varios patronos, el cálculo se hace individualmente con base en los salarios registrados con cada uno de ellos, de manera que permita establecer si se trata de subsidio o ayuda económica, conforme el plazo de calificación existente con cada patrono.
+Lo anterior, en razón de que los plazos máximos que otorga la Caja, están concebidos en relación directa con los periodos de cotización.
+Por otra parte, tratándose de patronos no simultáneos, pero únicamente para efectos de calificar el derecho, pueden considerarse cotizaciones con patronos anteriores, con el fin aplicar el concepto de subsidio en vez de ayuda económica. En tal caso, el subsidio se calcula con base en el salario que reporta el patrono actual del trabajador.
+Estas normas son también aplicables en caso de licencias por maternidad y licencias a los responsables de pacientes fase terminal.

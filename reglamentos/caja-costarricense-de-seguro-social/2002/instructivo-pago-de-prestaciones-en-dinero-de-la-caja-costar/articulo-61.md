@@ -1,0 +1,2 @@
+Artículo 61.—De los pensionados. Por fallecimiento de personas con pensión en trámite, se requiere que la misma esté en curso de pago, entendiéndose para estos únicos efectos haber presentado la solicitud y que a la fecha del deceso se hubiesen consolidado derechos en un régimen contributivo.
+Las constancias que se requieren para efectuar el pago, deben ser emitidas por la Oficina autorizada del régimen de pensiones correspondiente y deben indicar fecha de otorgamiento de la condición de pensionado cotizante directo, o de pensionado(a) por viudez.

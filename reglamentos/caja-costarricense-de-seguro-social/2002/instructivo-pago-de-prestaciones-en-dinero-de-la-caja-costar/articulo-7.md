@@ -1,0 +1,1 @@
+Artículo 7°—Del lugar de adscripción. Se entiende como lugar de adscripción, el centro médico donde el asegurado normalmente reside y en el cual debe realizar sus gestiones sanitarias y administrativas, considerándose para estos efectos las Áreas de Salud y los Ebais.

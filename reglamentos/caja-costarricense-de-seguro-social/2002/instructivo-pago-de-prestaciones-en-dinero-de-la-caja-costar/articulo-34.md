@@ -1,0 +1,1 @@
+Artículo 34.—Del plazo de calificación para los subsidios. Para el pago de los subsidios por maternidad se requiere que la trabajadora activa haya cotizado al menos 3 meses consecutivos, inmediatamente anteriores a la licencia o el parto, o 06 no necesariamente consecutivos dentro de los 12 anteriores a la licencia o el parto.

@@ -1,0 +1,1 @@
+Artículo 38.—De la modificación del plazo de la licencia. Si el ser procreado naciere muerto o falleciere dentro del primer mes, para efectos del pago, conforme lo establece el Reglamento de Salud, el plazo de la licencia debe ser modificado por los servicios médicos, otorgándose una nueva licencia por 45 días, a partir de la fecha del parto.

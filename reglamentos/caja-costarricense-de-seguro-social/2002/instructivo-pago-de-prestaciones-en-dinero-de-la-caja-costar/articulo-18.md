@@ -1,0 +1,1 @@
+Artículo 18.—Del derecho. Los trabajadores (as) activos cotizantes, incapacitados (as) por los médicos de la Institución o de cualquier sistema o proyecto aprobado por la Caja, tienen derecho al pago de subsidios y ayudas económicas, conforme a los plazos de calificación que señalan los artículos 34° y 38° el Reglamento del Seguro de Salud.

@@ -1,0 +1,4 @@
+CAPÍTULO II
+Pago incapacidades por enfermedad
+Artículo 17.—Del propósito de los subsidios. El subsidio tiene como propósito sustituir parcialmente la pérdida del ingreso que sufra el trabajador (a) activo (a), por causa de una incapacidad por enfermedad o licencia por maternidad, así expresamente señalado en el artículo 28° del Reglamento del Seguro de Salud. Por lo tanto, no es procedente considerar para el cálculo de los subsidios ingresos por otros conceptos tales como pago vacaciones, bonos y regalías. Cuando se trate de pagos acumulados, la parte que puede tomarse en cuenta, es la proporción que corresponde al mes o meses que sirven de base para el cálculo.
+Por extensión, este principio debe aplicarse en el pago de las ayudas económicas y subsidios por licencias a los responsables de pacientes en fase terminal.

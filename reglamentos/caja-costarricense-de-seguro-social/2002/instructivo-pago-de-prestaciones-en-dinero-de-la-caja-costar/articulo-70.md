@@ -1,0 +1,1 @@
+Artículo 70.—De los familiares. Conforme lo establecido en el artículo 6° del Instructivo que regula las "Normas para las Prestaciones Odontológicas", previa valoración y recomendación de la Sección de Odontología, la Gerencia Medica puede autorizar la confección de prótesis para los asegurados familiares.

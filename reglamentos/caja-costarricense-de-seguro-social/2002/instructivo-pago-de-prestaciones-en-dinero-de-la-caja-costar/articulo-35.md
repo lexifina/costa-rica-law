@@ -1,0 +1,4 @@
+Artículo 35.—De la cuantía. La cuantía del subsidio o de la ayuda económica es equivalente a 3.333 veces la cotización derivada de los salarios o ingresos, procesados por la Caja en los tres meses anteriores al inicio de la licencia o el parto, o de los que sirvieron de base a la cotización, con el patrono con el cual se incapacita la trabajadora.
+Tratándose de trabajadoras independientes la cotización derivada se obtiene multiplicando el porcentaje total de cotización (8 % o el porcentaje de cotización que corresponda que incluye la cuota de la trabajadora y del Estado)
+El pago puede hacerse hasta por 30 días adelantados o si la trabajadora lo desea, al terminar la licencia.
+Cuando la trabajadora no cumple con el plazo de calificación señalado para al pago de subsidios, puede recibir una ayuda económica de conformidad con lo que establece el articulo 28° de este Instructivo.

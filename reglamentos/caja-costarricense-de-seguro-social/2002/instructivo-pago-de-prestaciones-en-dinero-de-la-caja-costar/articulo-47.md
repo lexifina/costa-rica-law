@@ -1,0 +1,2 @@
+Artículo 47.—De los cargos presupuestarios. Los cargos presupuestarios tanto por concepto de traslados como de hospedajes, se hacen a la unidad asistencial que genera el gasto. Tratándose de referencias médicas el cargo se hace al centro médico que dio la referencia; si se dieren nuevas citas los costos corresponden al centro médico especializado que las autoriza.
+En caso de emergencias el cargo corresponde al centro médico que autoriza el traslado.

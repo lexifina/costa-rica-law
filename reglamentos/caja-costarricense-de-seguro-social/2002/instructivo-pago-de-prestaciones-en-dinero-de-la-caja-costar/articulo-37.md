@@ -1,0 +1,1 @@
+Artículo 37.—De la simultaneidad de pagos. No procede el pago de los subsidios o ayudas económicas por maternidad simultáneamente con subsidios o ayudas económicas por enfermedad o licencia fase terminal. Cuando se diere esta doble posibilidad, el pago por maternidad prevalece sobre los otros.

@@ -1,0 +1,1 @@
+Artículo 55.—De la cesantía. Cuando un asegurado se encuentre cesante, fallece él o su cónyuge, compañero o compañera, procede el pago siempre y cuando el asegurado directo haya cumplido con el plazo de calificación señalado en el artículo 53° anterior.

@@ -1,0 +1,1 @@
+Artículo 42.—De los hospedajes. La ayuda por concepto de hospedaje sólo se paga cuando por razones de distancia o por la índole de la dolencia, resulte indispensable la permanencia del asegurado en el lugar donde se ubica el centro especializado.

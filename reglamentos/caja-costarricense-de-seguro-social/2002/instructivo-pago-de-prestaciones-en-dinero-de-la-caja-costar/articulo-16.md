@@ -1,0 +1,1 @@
+Artículo 16.—De los cesantes. Cuando el asegurado (a) directo (a) se encontrare cesante, salvo la ayuda para gastos de funeral, no procede el pago de las prestaciones en dinero. Tratándose de incapacidades y licencias, podrán pagarse sólo aquellas otorgadas antes de la fecha de cesantía.

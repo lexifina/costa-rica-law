@@ -1,0 +1,1 @@
+Artículo 46.—Del lugar de pago. Todo traslado u hospedaje se pagará en el lugar de adscripción del asegurado directo. En casos especiales, ajuicio de la Jefatura de la Sucursal podrán autorizarse pagos conforme la adscripción del asegurado familiar.

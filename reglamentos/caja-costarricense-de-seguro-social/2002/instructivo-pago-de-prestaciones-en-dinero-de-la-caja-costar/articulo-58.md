@@ -1,0 +1,2 @@
+Artículo 58.—Del monto de la ayuda. Por fallecimiento de un asegurado directo, la ayuda que se paga es el equivalente al monto autorizado por la Junta Directiva, definido de acuerdo con la recomendación que hace la Dirección Actuarial y de Planificación Económica.
+Por fallecimiento del cónyuge, compañero o compañera, viudo o viuda, la ayuda a otorgar equivale a las dos terceras partes del monto autorizado para el asegurado directo.

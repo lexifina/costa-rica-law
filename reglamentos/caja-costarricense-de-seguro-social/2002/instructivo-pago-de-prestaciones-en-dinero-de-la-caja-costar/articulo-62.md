@@ -1,0 +1,1 @@
+Artículo 62.—De la doble condición. Si fallece un asegurado en su doble condición de directo y cónyuge, compañero o compañera o pensionado por viudez, procede el pago por el monto mayor que le corresponda. Si la doble condición se da como asegurado directo, se suman los montos con cada una de ellos, sin que la suma total a pagar en ningún caso sobrepase el monto vigente.

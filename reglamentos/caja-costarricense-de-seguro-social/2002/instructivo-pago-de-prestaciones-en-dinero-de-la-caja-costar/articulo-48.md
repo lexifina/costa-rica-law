@@ -1,0 +1,1 @@
+Artículo 48.—Del plazo de prescripción. El derecho para cobrar los traslados y los hospedajes prescribe en el término de seis meses, contados a partir de la fecha de atención. Dicho término no correrá en perjuicio de los asegurados que se encuentren internados en los centros hospitalarios, caso en el cual el plazo rige a partir de la fecha del egreso hospitalario.

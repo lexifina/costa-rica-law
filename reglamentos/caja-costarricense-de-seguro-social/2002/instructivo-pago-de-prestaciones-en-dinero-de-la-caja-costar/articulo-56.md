@@ -1,0 +1,1 @@
+Artículo 56.—De la facturación de oficio. Cuando se hayan facturado planillas de oficio a un patrono, dándose el caso de que fallece alguno de sus trabajadores o beneficiarios, puede pagarse la ayuda para gastos de funeral siempre que el interesado presente una constancia patronal donde se indique la condición de trabajador activo o en su defecto se cite la fecha de cesantía.

@@ -1,0 +1,1 @@
+Artículo 24.—Del plazo de calificación para los subsidios. El derecho al pago de subsidios se concreta en el momento en que el trabajador activo, asalariado o independiente, haya aportado al menos 6 cuotas mensuales en los 12 meses anteriores, siempre que los últimos tres meses sean consecutivos e inmediatamente anteriores a la fecha de inicio de la incapacidad.
