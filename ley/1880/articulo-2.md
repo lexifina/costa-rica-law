@@ -1,4 +1,3 @@
-Artículo 2º.- La Administración General de Rentas y las Tesorerías
-Auxiliares tasarán y recaudarán esa multa, en el momento de efectuarse el
-pago. El cajero que omita efectuar este cobro responderá personalmente
-del pago del mismo.
+Artículo 2º.- DEROGADO
+( Derogado por el artículo 169 de la Ley Nº 4755 de 3 de mayo de
+1971).
