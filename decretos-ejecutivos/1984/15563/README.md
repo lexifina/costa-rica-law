@@ -14,3 +14,4 @@ Reglamento para la protección de la industria apícola nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-08-20 | la propia norma |
+| 2 | 1985-09-09 | Decreto Ejecutivo 16573 (1985-09-09) |
