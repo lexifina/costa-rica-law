@@ -1,0 +1,1 @@
+2º-Derógase el "Manual sobre normas técnicas de control interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización", publicado en La Gaceta Nº 104 del 31 de mayo de 1982.

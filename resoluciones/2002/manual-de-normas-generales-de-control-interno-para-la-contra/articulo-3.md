@@ -1,0 +1,1 @@
+3º—La presente normativa es de acatamiento obligatorio para la Contraloría General de la República y las instituciones y órganos sujetos a su fiscalización y prevalecerá sobre cualquier disposición en contrario que emita la Administración.
