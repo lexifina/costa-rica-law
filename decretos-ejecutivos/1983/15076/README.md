@@ -14,3 +14,4 @@ Crea Consejo Nacional de la "Tercera Edad"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-04 | la propia norma |
+| 2 | 1986-08-26 | Decreto Ejecutivo 17167 (1986-08-26) |
