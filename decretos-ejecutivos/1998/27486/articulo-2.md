@@ -1,0 +1,1 @@
+Artículo 2°—Esta declaratoria prohíbe la destrucción o alteración de! farallón rocoso, las medidas de conservación y protección serán dadas por el Centro de Investigación y Conservación del Patrimonio Cultural, del Ministerio de Cultura, Juventud y Deportes.
