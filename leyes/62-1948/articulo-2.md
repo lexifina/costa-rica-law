@@ -1,0 +1,1 @@
+2°-La Procuraduría General evacuará las consultas jurídicas que la Municipalidad le someta y la representará en todo asunto judicial en que ésta sea parte, por medio de los servicios de uno o varios Procuradores Municipales, quienes se acreditarán ante los Tribunales mediante el acuerdo de su nombramiento y acta de aceptación publicados en La Gaceta Oficial.
