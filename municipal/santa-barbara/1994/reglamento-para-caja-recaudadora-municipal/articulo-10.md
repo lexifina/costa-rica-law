@@ -1,0 +1,1 @@
+Artículo 10.—El Tesorero Municipal, cuando sea recaudador, no podrá tener en su poder fondos y valores por una suma mayor al cincuenta por ciento (50%) del monto a que asciende la garantía de fidelidad que hayan rendido (según Artículo 133 del Código Municipal).

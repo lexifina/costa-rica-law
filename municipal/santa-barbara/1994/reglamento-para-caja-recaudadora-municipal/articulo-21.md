@@ -1,0 +1,1 @@
+Artículo 21.— La Caja Recaudadora Municipal, contará en lo posible con una Caja Metálica de Seguridad donde el Cajero pueda custodiar el dinero y valores que por sus funciones tenga en su poder en horas hábiles. Fuera de éstas los ingresos deben quedar en la Caja Fuerte de la Tesorería.

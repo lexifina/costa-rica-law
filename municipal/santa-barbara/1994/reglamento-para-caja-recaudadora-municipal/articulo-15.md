@@ -1,0 +1,1 @@
+Artículo 15.—En el evento de que la recaudación supere el cincuenta por ciento (50 %) de la Póliza de Fidelidad antes de la hora fijada para el cierre diario, el cajero debe entregar el dinero al Tesorero, mediante el documento "Remesas parciales a Tesorería".

@@ -1,0 +1,1 @@
+Artículo 11.—Todo Cajero que funcione como tal en una Caja Recaudadora de la Municipalidad de Santa Bárbara de Heredia, cerrará la Caja delante del Tesorero Municipal y posteriormente éste revisará el cierre delante del cajero. En caso de que el cajero sea el Tesorero, éste procederá a hacer el cierre en presencia del Contador.
