@@ -1,6 +1,2 @@
-ARTÖCULO 19
-La presente Convenci¢n quedar abierta a la adhesi¢n de
-cualquier
-otro Estado. Los instrumentos de adhesi¢n se depositar n en la
-Secretar¡a
-General de la Organizaci¢n de los Estados Americanos.
+ARTICULO 19
+La presente Convención quedará abierta a la adhesión de cualquier otro Estado. Los instrumentos de adhesión se depositarán en la Secretaría General de la Organización de los Estados Americanos.

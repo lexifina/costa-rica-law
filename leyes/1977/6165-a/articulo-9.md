@@ -1,10 +1,2 @@
-ARTÖCULO 9
-El ¢rgano jurisdiccional requerido podr rehusar, conforme el
-Art¡culo 2, inciso primero, el cumplimiento del exhorto o carta
-rogatoria
-cuando tenga por objeto la recepci¢n u obtenci¢n de pruebas previas
-o
-procedimiento judicial o cuando se trate del procedimiento conocido
-en los
-pa¡ses del "Common Law" bajo el nombre de "pretrial discovery of
-documents".
+ARTICULO 9
+El órgano jurisdiccional requerido podrá rehusar, conforme el Artículo 2, inciso primero, el cumplimiento del exhorto o carta rogatoria cuando tenga por objeto la recepción u obtención de pruebas previas o procedimiento judicial o cuando se trate del procedimiento conocido en los países del "Common Law" bajo el nombre de "pretrial discovery of documents".

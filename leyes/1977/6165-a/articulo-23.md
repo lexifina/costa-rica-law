@@ -1,27 +1,3 @@
-ARTÖCULO 23
-El instrumento original de la presente Convenci¢n, cuyos
-textos en
-espa¤ol, franc‚s, ingl‚s y portugu‚s son igualmente aut‚nticos,
-ser
-depositado en la Secretar¡a General de la Organizaci¢n de los
-Estados
-Americanos. Dicha Secretar¡a notificar a los Estados Miembros de
-la
-Organizaci¢n de los Estados Americanos y a los Estados que se hayan
-adherido a la Convenci¢n, las firmas, los dep¢sitos de instrumentos
-de
-ratificaci¢n, adhesi¢n y denuncia, as¡ como las reservas que
-hubieren.
-Tambi‚n les transmitir la informaci¢n a que se refieren el
-Art¡culo 10 y
-el p rrafo segundo del Art¡culo 11, as¡ como las declaraciones
-previstas
-en los Art¡culos 15 y 21 de la presente Convenci¢n.
-En Fe de lo Cual, los plenipotenciarios infrascritos,
-debidamente
-autorizados por sus respectivos Gobiernos, firman la presente
-Convenci¢n.
-Hecha en la ciudad de Panam , Rep£blica de Panam , el d¡a de enero
-de mil
-novecientos setenta y cinco.
-
+ARTICULO 23
+El instrumento original de la presente Convención, cuyos textos en español, francés, inglés y portugués son igualmente auténticos, será depositado en la Secretaría General de la Organización de los Estados Americanos. Dicha Secretaría notificará a los Estados Miembros de la Organización de los Estados Americanos y a los Estados que se hayan adherido a la Convención, las firmas, los depósitos de instrumentos de ratificación, adhesión y denuncia, así como las reservas que hubieren. También les transmitirá la información a que se refieren el Artículo 10 y el párrafo segundo del Artículo 11, así como las declaraciones previstas en los Artículos 15 y 21 de la presente Convención.
+En Fe de lo Cual, los plenipotenciarios infrascritos, debidamente autorizados por sus respectivos Gobiernos, firman la presente Convención. Hecha en la ciudad de Panamá, República de Panamá, el día de enero de mil novecientos setenta y cinco.
