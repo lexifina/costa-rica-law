@@ -10,5 +10,5 @@ Considerando :
 5°- Que el Decreto Ejecutivo N° 16563-MAG, estableció que sus regulaciones serían complementadas mediante otras normas de igual rango, en los aspectos en que fuere omiso o fuese necesario durante el desarrollo del plan.
 Por tanto,
 DECRETAN :
-Artículo 1°—El Fondo de Contingencias Bananeras. El Fondo de Contingencias se formará con US$ 0,01 que, de conformidad con el artículo 11 del decreto ejecutivo N° 16563-MAG de 24 de setiembre de 1985, donarán los productores de banano por cada caja exportada; y con la suma que corresponda al 50% del impuesto que se pagare por el número de cajas de banano que se exportaren más allá de las metas fijadas por el artículo 59 del decreto ejecutivo N° 16564-P-H- MEC de 24 de setiembre de 1985.
-(Así reformado por el artículo 12 del decreto ejecutivo N° 18995 del 8 de mayo de 1989)
+Artículo 1 °—El Fondo de Contingencias Bananeras. El Fondo de Contingencias se formará con la suma que corresponda al 50% del impuesto que se pagare por el número de cajas de banano que se exportaren más allá de las metas fijadas por el artículo 5” del decreto ejecutivo N° 16564-P-H-MEC de 24 de setiembre de 1985.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 19532 del 9 de marzo de 1990)
