@@ -1,0 +1,1 @@
+Artículo 27.—En caso de situaciones de emergencia tanto en la finca como a nivel nacional. Que obliguen al productor a utilizar prácticas no aceptadas por el presente Reglamento, el productor debe comunicar al Ministerio las medidas a tomar y este definirá el lapso de tiempo necesario para poder comercializar el café como sostenible.

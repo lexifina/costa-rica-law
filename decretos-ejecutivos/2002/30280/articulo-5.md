@@ -1,0 +1,1 @@
+Artículo 5º—Para los efectos de este Reglamento, queda protegido con la denominación de café sostenible, beneficiado sostenible, y comercialización de café sostenible los que se ajusten a la definición y demás condiciones establecidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.—Cada tipo de café deberá representar el sabor característico y singular de la región de origen. Todos ellos deben proporcionar una taza perfectamente limpia, con cuerpo medio a denso, y excelente aroma. Todos los cafés deberán tener una densidad de grano, y acidez adecuada.

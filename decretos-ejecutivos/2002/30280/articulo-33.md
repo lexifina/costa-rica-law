@@ -1,0 +1,2 @@
+Artículo 33.—Para el cumplimiento de los artículos anteriores de este Reglamento el inspector encargado deberá llenar un formulario o encuesta directamente en la finca o beneficio.
+Artículo 34.—El inspector para velar por el cumplimiento del artículo 28 del presente Reglamento, deberá realizar visitas exhaustivas para verificar directamente en el campo el correspondiente manejo de la plantación o en el beneficio el respectivo proceso del café sostenible.

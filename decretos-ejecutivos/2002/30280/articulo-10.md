@@ -1,0 +1,1 @@
+Artículo 10.—Las certificaciones de productores y beneficiadores se harán por separado, sin que estén condicionadas o relacionadas entre si. Un productor puede certificarse independientemente de que el Beneficio donde entrega su café este certificado. De igual forma un Beneficio puede certificarse independientemente de que reciba o no café certificado como sostenible.
