@@ -1,4 +1,4 @@
-ARTICULO 318.- Medios de prueba.
+ARTÍCULO 318.- Medios de prueba.
 Son medios de prueba los siguientes:
 1) Declaración de las partes.
 2) Declaración de testigos.

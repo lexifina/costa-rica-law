@@ -1,14 +1,6 @@
-ARTICULO 729.- Dictamen del curador.
-Por lo menos tres días antes de la junta convocada, el curador
-dictaminará acerca de los extremos del párrafo segundo del artículo 710,
-y sobre todos aquellos aspectos que contribuyan a ilustrar al juzgado
-acerca de la verdadera condición del deudor. En la preparación de sus
-informes, el curador gozará de las facultades de un funcionario público,
-que podrá gestionar y obtener toda clase de documentos en papel común,
-libres de todo tributo fiscal.
-El informe del curador se aprobará o improbará por el juzgado, el que
-en este último caso hará las correcciones que estime oportunas por medio
-de resolución motivada, la cual se tendrá por notificada a todos los
-acreedores, al curador y al deudor, a partir de la fecha en la que se
-realice la junta. En la misma resolución el juzgado admitirá o rechazará
-provisionalmente la nòmina de créditos .
+ARTÍCULO 729.- Trámite y discusión del plan
+Los acreedores, incluidos los que no figuren en lista suministrada por el deudor y que se apersonaron haciendo valer su derecho, podrán plantear por escrito, dentro del término del emplazamiento, las observaciones pertinentes al plan presentado por el deudor.
+Dentro del mes siguiente a la admisión del procedimiento, el interventor y los demás miembros del comité, nombrado el primero, en forma conjunta o separada, presentarán un informe pormenorizado acerca del plan y emitirán su opinión.
+Transcurrido el emplazamiento y rendido el dictamen, si el juzgado lo considerare necesario, convocará al titular de la empresa o a sus representantes legales, al promoviente si no fuere el deudor, al interventor, a los acreedores que presentaron objeciones al plan y a los miembros del comité asesor, a una comparecencia dentro de ocho días, para discutir los pormenores del plan y las observaciones, de lo cual se levantará un acta concisa.
+A fin de emitir el pronunciamiento, podrán ordenarse las pruebas necesarias para mejor proveer, las cuales deberán sustanciarse en forma breve.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

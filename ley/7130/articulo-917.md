@@ -1,16 +1,18 @@
-ARTICULO 917.- Cuenta final.
-La cuenta final del albacea será presentada por éste dentro de
-treinta días, contados desde que cesó en su cargo, y será tramitada en el
-respectivo legajo de estados mensuales. Sobre ella se oirá por ocho días
-a todos los interesados. Pasado ese plazo sin que haya oposición, el
-tribunal aprobará las cuentas y declarará exento de responsabilidad al
-albacea, si tales cuentas tienen comprobación en lo fundamental en el
-expediente, si no discrepan con los estados mensuales u otros datos de
-aquél y no comprenden partidas que estén reñidas con disposiciones
-expresas de la ley. En el caso contrario, el tribunal hará las
-rectificaciones correspondientes.
-Si se hiciere alguna objeción, se sustanciará en la vía incidental
-Cuando hubiere cambio de albacea, el sustituto glosará la cuenta del
-anterior.
-Si todos los interesados fueren mayores y capaces, podrán eximir al
-albacea de la obligación de presentar la cuenta final.
+ARTÍCULO 917.- Declaración de apertura.
+Cumplidos los requisitos establecidos en los dos artículos
+anteriores, y llenadas las formalidades del caso cuando se trate de
+testamentos cerrados, el tribunal declarará abierto el proceso sucesorio;
+llamará al albacea testamentario para que acepte el cargo, o nombrará el
+provisional; proveerá lo concerniente a la representación de los menores;
+conferirá la audiencia de ley al Patronato Nacional de la Infancia y a la
+Procuraduría General de la República; y citará a los herederos,
+legatarios, acredores y, en general, a todos los interesados para que,
+dentro del plazo de treinta días, comparezcan a hacer valer sus derechos,
+con el apercibimiento, a los que crean tener derecho a la herencia, de
+que, si no se presentan en ese plazo, aquélla pasará a quien corresponda.
+La citación de interesados se hará por medio de un edicto que se
+publicará una vez en el Boletín Judicial, y el emplazamiento comenzarán a
+correr desde la fecha de la publicación.
+(La numeración de este artículo fue así modificada por el artículo 1º
+de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo
+894 al actual)

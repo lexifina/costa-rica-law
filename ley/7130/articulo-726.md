@@ -1,6 +1,5 @@
-CAPITULO II
-Convenio preventivo.
-ARTICULO 726.- Proposición y requisitos.
-El deudor que se encuentre en estado de insolvencia podrá proponer
-convenio a sus acreedores, mediante escrito, al cual se le aplicará lo
-dispuesto en el artículo 710.
+ARTÍCULO 726.- Incumplimiento y sanciones
+El interventor y los miembros del comité asesor deberán dar cuenta al juzgado de cualquier violación grave de los deberes y de las actuaciones indebidas que observen en la administración. El juzgado, después de oír al titular o a los administradores por tres días, podrá separarlos de la administración si resultare comprobado el hecho atribuido. En tal caso, el interventor asumirá la administración en los términos del inciso 6) del artículo 719 y se procederá, de inmediato, en la forma ahí señalada.
+Al mismo tiempo, si los efectos de esos hechos agravaren sustancialmente la situación económica o financiera de la empresa, el juzgado podrá, en resolución considerada, tener por insubsistente el procedimiento y declarar el estado de quiebra o insolvencia. Igual medida podrá acordarse, previa audiencia de tres días a los representantes de la empresa o a su titular, al interventor y a los miembros del comité, cuando en el expediente existan suficientes elementos de convicción de que la empresa carece de viabilidad económica o financiera.
+También procederá la declaratoria de quiebra o el concurso, si el empresario o el representante legal estuvieren renuentes a cumplir los requisitos del artículo 713 o cuando, una vez cumplidos, resultare que la empresa no puede ser beneficiaria del procedimiento.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

@@ -1,4 +1,4 @@
-ARTICULO 258.- Cesación de los efectos.
+ARTÍCULO 258.- Cesación de los efectos.
 A petición de la Procuraduría General de la República o de la parte
 contraria, dejará de surtir sus efectos el beneficio de pobreza si se
 demostrare que el beneficiario ocultó sus verdaderos recursos, o que ha
@@ -13,3 +13,6 @@ también obligado a garantizar las costas del proceso. Mientras no pague la
 multa y no rinda la garantía de costas, no se dará curso a sus gestiones,
 las cuales se tendrán por presentadas, sin retroacción de plazos, en el
 instante en que cumpla.
+(NOTA: este numeral fue erróneamente derogado por la ley No.7709 de
+20 de noviembre de 1997. Fue corregido posteriormente mediante fe de
+erratas publicada en La Gaceta No.217 de 11 de noviembre de 1997, p.56)

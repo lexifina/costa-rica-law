@@ -1,5 +1,3 @@
-ARTICULO 838.- Inscripción del cargo.
-El juez remitirá, por duplicado, mandamiento al Registro Público, que
-ha de contener lo mismo que la certificación de que habla el artículo
-anterior, a fin de que haga la respectiva inscripción en la Sección de
-Personas.
+ARTÍCULO 838.- Comunicación.
+Firme la resolución, el juez la comunicará al funcionario respectivo para que celebre el matrimonio o se abstenga de su celebración.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 815 al 838)

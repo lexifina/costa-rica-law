@@ -1,11 +1,15 @@
-ARTICULO 650.- Anuncio del remate.
-Valorados los bienes, se mandará sacarlos a subasta pública, y se
-anunciará la venta por edictos, que se publicarán por tres veces en el
-Boletín Judicial, con expresión del día, la hora y el sitio en el que haya
-de celebrarse el remate. Este no se verificará si no hubieren transcurrido
-ocho días después de la primera publicación de los edictos, en caso de
-muebles, y quince días en caso de inmuebles, plazo en el que se contará el
-día de la publicación y el del remate.
+ARTÍCULO 650.- Anuncio del remate.
+Valorados los bienes, ordenará subastarlos públicamente y la venta se
+anunciará por edictos que se publicarán por dos veces en el Boletín
+Judicial, con expresión del día, la hora y el sitio donde haya de
+celebrarse el remate. La subasta, sea de bienes muebles o inmuebles, podrá
+verificarse siempre que hayan transcurrido ocho días desde la publicación
+del primer edicto en el Boletín Judicial. Dentro de este plazo se contarán
+los días de la publicación y el remate. Este mismo plazo deberá
+transcurrir entre la notificación del auto que ordena el remate al dueño
+de los bienes subastados y la fecha de celebración.
+(Así reformado este primer párrafo por el artículo único, inciso d),
+de la ley No.7725 de 9 de diciembre de 1997)
 No deberá incluirse en el edicto los datos referentes a los
 gravámenes que pesen sobre la finca, cuando ésta deba recibirla el
 rematante libre de gravámenes.

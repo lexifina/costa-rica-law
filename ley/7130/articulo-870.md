@@ -1,19 +1,5 @@
-ARTICULO 870.- Consignación.
-Si el acreedor no aceptare las ofertas y el deudor quisiere
-descargarse, por medio de la consignación, procederá éste a solicitar el
-depósito judicial ante el tribunal del lugar en el que deba verificarse el
-pago. A su escrito el deudor le acompañará copia auténtica del acta en la
-que se compruebe el haberse hecho las ofertas en forma legal, y el no
-haber sido aceptadas.
-Con vista de los documentos expresados, el tribunal ordenará el
-depósito, en el establecimiento señalado por la ley para el efecto, o en
-persona de notorio abono, que reúna las condiciones necesarias para ser
-depositario judicial, según el caso.
-Realizado el depósito, se dará audiencia por tres días al acreedor,
-quien, si la aceptare, deberá pagar los gastos de las ofertas reales y de
-la consignación, los que se fijarán en el mismo expediente, y se pagarán
-de lo depositado, si éste fuere dinero. El tribunal entregará luego lo
-depositado al acreedor y al deudor el título debidamente cancelado. Si se
-tratare de inscripciones o anotaciones en los registros públicos, la
-cancelación se ordenará por mandamiento, ya sea total o parcialmente,
-según corresponda.
+ARTÍCULO 870.- Normas aplicables.
+Las disposiciones contenidas en la sección anterior, referentes a la aceptación, al discernimiento de la tutela y a la remoción del tutor, serán aplicables a los casos de curatela, cuando proceda.
+Será aplicable a la materia de tutela y de curatela lo dispuesto en el párrafo segundo del artículo 810 (*).
+(* El artículo indicado es ahora el 833)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 847 al 870)

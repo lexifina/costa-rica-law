@@ -1,17 +1,3 @@
-Sección tercera
-Legalización, examen y reconocimiento de créditos
-ARTICULO 748.- Deber de legalizar y reclamar privilegio.
-Todos los acreedores, salvo los hipotecarios, los prendarios y los
-de crédito reconocido en sentencia, deberán legalizar sus créditos y
-reclamar oportunamente el privilegio que tuvieren.
-Los acreedores residentes en el extranjero, que no tengan apoderado
-en el país, gozarán de un plazo de dos meses para legalizar y reclamar el
-privilegio.
-El acreedor que no legalizare su crédito, oportunamente, perderá el
-privilegio que pudiera corresponderle y se convertirá en un acreedor
-común; pero, mientras el concurso estuviere pendiente, podrá alegar su
-crédito para que sea tomado en cuenta en las reparticiones que estuvieren
-por hacerse, sin derecho alguno a las que se hubieren hecho con
-anterioridad.
-No será oído el acreedor que se presentare a legalizar su crédito
-cuando ya estuviere repartido en su totalidad el haber del concurso.
+ARTÍCULO 748.- Comprobación del pasivo
+En cuanto a la verificación de los créditos, se estará a lo dispuesto en la Sección III del Capítulo III del Título V, inclusive con la modificación que resulte de la norma siguiente.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 748 es ahora 771)

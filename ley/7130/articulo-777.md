@@ -1,11 +1,6 @@
-ARTICULO 777.- Ejecución del convenio aprobado.
-Inmediatamentedespués de la aprobación, el curador tomará las providencias
-necesarias para asegurar el cumplimiento de las obligaciones impuestas al
-concursado por el convenio, y satisfará los reclamos de los acreedores de
-la masa y de los reivindicantes, o depositará lo que les corresponda a
-éstos, si sus créditos no estuvieren aun reconocidos o comprobados.
-Verificadas estas diligas, se tgas, se tendrá por terminado el
-concurso, lo que se publicará de la misma manera que la declaración de él;
-y el curador procederá, en su caso, a entregarle al concursado todos los
-bienes, efectos, libros y papeles, y a rendirle cuenta de su
-administración, en los quince días siguientes.
+ARTÍCULO 777.- Informes mensuales.
+El curador deberá rendir informes mensuales sobre el estado de los ingresos y egresos; el juez formará con ellos un legajo aparte y se limitará a tenerlos por presentados sin resolución alguna, salvo que considere necesario hacer alguna observación al curador.
+En casos muy calificados, a criterio del juez, podrá dispensarse al curador de la obligación de rendir informes mensuales.
+Cuando hayan desempeñado el cargo varios curadores, se formará un legajo para cada uno de ellos.
+El juez cuidará de que el curador deposite en el lugar que señale la ley las cantidades que, según los estados mensuales, aparezca tener sobrantes. No obstante, el curador podrá mantener en su poder la suma de diez mil colones (¢10.000) para gastos de administración.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 754 al 777)

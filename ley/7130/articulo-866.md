@@ -1,15 +1,3 @@
-CAPITULO IX
-Consignación
-ARTICULO 866.- Ofertas reales.
-Para que pueda verificarse laconsignación de lo que el deudor
-ofreciere en descargo de su deuda, será necesario que le haga ofertas al
-acreedor.
-Las ofertas de pago deberá hacerlas un notario, quien las hará en el
-lugar designado para el pago, o en su defecto en el domicilio del
-acreedor. Donde no hubiere notario, podrá hacerlas el alcalde del lugar.
-Si la deuda fuere pagadera en tractos, las ofertas reales se
-limitarán al primero de ellos que las hiciere necesarias.
-En el acta que debe levantar el funcionario que hiciere las ofertas
-deberá hacerse constar si son de una suma de dinero, de alhajas o de
-efectos de comercio, la cantidad y la calidad de las especies ofrecidas y
-el hecho de haber sido reales las ofertas.
+ARTÍCULO 866.- Reposición del tutor.
+Si hubiere que proveer de nuevo tutor a un pupilo, por excusa, remoción, incapacidad o muerte del que ejercía la tutela, una vez aceptada la excusa, firme la resolución en la que decreta la remoción, o acreditada la muerte, se procederá al nuevo nombramiento por los trámites antes dichos.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 843 al 866)

@@ -1,12 +1,12 @@
-ARTICULO 679.- Presentación de los bienes y remate porcomisionado.
+ARTÍCULO 679.- Presentación de los bienes y remate por
+comisionado.
 El tribunal, de oficio o a solicitud de parte, podrá prevenir al
 deudor que presente las cosas objeto de ejecución, a fin de hacer una
 inspección o para tenerlas a la vista, a efecto de que los posibles
 postores puedan examinarlas. Si por su naturaleza no pudieren ser
 trasladados al juzgado o alcaldía, podrá ordenarse la inspección en el
 lugar donde se hallen y, si lo considerare conveniente, que el remate se
-verifique en ese mismo lugar. La ocultación de los bienes o la rebeldía
-del deudor a ponerlos a la disposición del tribunal, cuando éste lo
-ordene, dará lugar al apremio corporal, que se mantendrá por todo el
-tiempo que no se cumpla lo ordenado, sin perjuicio de lo establecido en
-los artículos 1002 y 1003 del Código Civil.
+verifique en ese mismo lugar.
+(ANULADO PARCIALMENTE por Resolución de la Sala Constitucional No.
+6165-99 de las 11:54 horas del 6 de agosto de 1999, modificada por
+Resolución 6192-99 de las 14:03 horas del 10 de agosto de 1989).

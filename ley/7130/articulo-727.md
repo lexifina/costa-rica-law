@@ -1,11 +1,5 @@
-ARTICULO 727.- Rechazo de plano o desestimación del convenio.
-El juzgado rechazará de plano la solicitud si no se cumpliera con
-lo establecido en el artículo anterior.
-También podrá, de oficio, declarar la desestimación del convenio, si
-en el curso del procedimiento llegara a constatar, oídos previamente por
-tres días el curador y el deudor, que éste último ha falseado los datos o
-documentos aportados en apoyo de su demanda, o que no está materialmente
-capacitado para hacer frente al convenio propuesto.
-En ambos casos, el juzgado deberá declarar el concurso, de oficio,
-en la misma resolución en la que se rechace la solicitud o desestime el
-convenio preventivo.
+ARTÍCULO 727.- Verificación de los créditos
+Los acreedores que constan en la lista suministrada por el deudor no están obligados a legalizar su crédito; pero, si se apersonaren, deberán presentar los títulos que amparen su derecho.
+Dentro de los quince días posteriores a la aceptación del cargo, el interventor rendirá un informe detallado de los pasivos de la empresa.
+Los acreedores que no aparezcan en la lista suministrada por el deudor, deberán reclamar su derecho a que se les tenga como tales y presentar observaciones al plan, dentro del plazo indicado en el párrafo 3 inciso 8) del artículo 719. En este caso, se oirá por tres días al interventor y al deudor o a su representante y, recibidas las pruebas que se hayan ofrecido se resolverá lo que corresponda. El trámite de la verificación, en cuanto a estos acreedores y a los objetados por el interventor, se efectuará incidentalmente y no obstaculizará el curso del proceso de discusión y aprobación del plan de salvamento.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

@@ -1,4 +1,2 @@
-ARTICULO 77.- Plazo para interponerla.
-Las recusaciones de los árbitros nombrados por las partes deberán
-oponerse dentro de los tres días inmediatos a aquel en que se conozca la
-existencia de la causal.
+ARTÍCULO 77.- Plazo para interponerla.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

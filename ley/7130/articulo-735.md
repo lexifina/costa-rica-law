@@ -1,8 +1,3 @@
-ARTICULO 735.- Personas afectadas por el convenio.
-El convenio aprobado por la sentencia firme afectará a todos los
-acreedores de crédito anterior al auto de apertura del procedimiento.
-Tratándose de una sociedad, el convenio afectará a los socios
-ilimitadamente responsables.
-En cuanto a los fiadores y a los obligados solidariamente regirá lo
-dispuesto en los artículos 968 del Código Civil y 943 del Código de
-Comercio, según se trate de un concurso o de una quiebra.
+ARTÍCULO 735.- Depósito de gastos
+El deudor o la administración tendrán la obligación de depositar a la orden del juzgado, los productos de la gestión, que deberán destinarse a cubrir los gastos procesales.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

@@ -1,4 +1,2 @@
-ARTICULO 523.- Facultades procedimentales del presidente.
-En cuestiones de procedimiento, si no hubiere mayoría decidirá el
-voto del presidente; si el tribunal hubiere autorizado al árbitro
-presidente, éste decidirá lo que corresponda.
+ARTÍCULO 523.- Facultades procedimentales del presidente.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

@@ -1,4 +1,2 @@
-ARTICULO 536.- Rechazo de plano.
-La demanda será rechazada de plano cuando sea manifiestamente
-infundada, o sea evidente que no está de por medio una cuestión de
-inconstitucionalidad.
+ARTÍCULO 536.- DEROGADO.-
+(Derogado por el artículo 113 de la Ley de Jurisdicción Constitucional, Nº 7135 de 11 de octubre de 1989)

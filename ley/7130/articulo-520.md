@@ -1,4 +1,2 @@
-ARTICULO 520.- Validez de los actos.
-Cuando haya caducado el compromiso, los actos consumados legalmente
-serán válidos únicamente con la finalidad de ser utilizados en un
-arbitraje ulterior.
+ARTÍCULO 520.- Validez de los actos.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

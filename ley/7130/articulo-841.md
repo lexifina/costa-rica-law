@@ -1,8 +1,3 @@
-ARTICULO 841. -Incidentes.
-Las excusas de los tutores nombrados, las causas de incapacidad para
-ejercer la tutela, las de exclusión y cualquier otra cuestión que surja en
-el expediente sobre el nombramiento de tutor y el
-discernimiento del cargo, se sustanciarán y decidirán por los trámites
-señalados para los incidentes.
-Por los mismos trámites de los incidentes se tramitará la remoción
-del tutor.
+ARTÍCULO 841.- Oposición del Patronato.
+El Patronato Nacional de la Infancia podrá oponerse a la aprobación del convenio en lo relativo a los hijos menores, en este caso propondrá las modificaciones que estime procedentes, las cuales el juzgado hará del conocimiento de los cónyuges para que, dentro de tres días, manifiesten si las aceptan. Si no las aceptaren o si no hicieren ninguna manifestación, el juzgado resolverá lo que corresponda, con cuidado de que los derechos de los hijos menores queden bien garantizados.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 818 al 841)

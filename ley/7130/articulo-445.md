@@ -1,4 +1,4 @@
-ARTICULO 445.- Sentencia estimatoria.
+ARTÍCULO 445.- Sentencia estimatoria.
 En la sentencia estimatoria se confirmarán la ejecución y el embargo,
 y se ordenará la continuación del procedimiento, hasta que se le haga pago
 al acreedor por las sumas y extremos que indicará.

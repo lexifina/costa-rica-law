@@ -1,8 +1,4 @@
-ARTICULO 818.- Oposición del Patronato.
-El Patronato Nacional de la Infancia podrá oponerse a la aprobación
-del convenio en lo relativo a los hijos menores, en este caso propondrá
-las modificaciones que estime procedentes, las cuales el juzgado hará del
-conocimiento de los cónyuges para que, dentro de tres días, manifiesten si
-las aceptan. Si no las aceptaren o si no hicieren ninguna manifestación,
-el juzgado resolverá lo que corresponda, con cuidado de que los derechos
-de los hijos menores queden bien garantizados.
+ARTÍCULO 818.- Quiebra.
+Lo dispuesto sobre la administración por intervención judicial y el convenio preventivo será aplicable a la quiebra.
+Las demás disposiciones de este título también se aplicarán a la quiebra, en cuanto no estén previstas en el Código de Comercio.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 795 al 818)

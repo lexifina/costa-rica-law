@@ -1,14 +1,7 @@
-ARTICULO 875.- Procedimiento.
-La información se tramitará conforme con el siguiente
-procedimiento:
-1) Presentado el escrito por el promovente se hará señalamiento de
-hora y día para que declaren los testigos.
-2) En la misma resolución se citará y tendrá como interesada a la
-Procuraduría General de la República, a la que se le dará audiencia por
-tres días. La Procuraduría tendrá el deber de contestar la audiencia.
-3) El juez tendrá el deber de ampliar el interrogatorio con las
-preguntas que estime pertinentes, para asegurarse de la veracidad de su
-dicho. Igual deber tendrá la Procuraduría General de la República.
-4) Una vez recibidas las declaraciones de los testigos, se declarará
-terminada la información, y se entregará al interesado copia certificada
-de la ella.
+ARTÍCULO 875.- Administración.
+Declarada la ausencia en auto firme, la administración de los bienes se regirá por las siguientes disposiciones:
+1) Si hubiere testamento se procederá a su apertura o comprobación por el trámite correspondiente. Se convocará a los herederos e interesados con arreglo a lo dicho en el proceso sucesorio; todo lo anterior se hará en el mismo expediente de ausencia.
+2) Las (sic) garantía exigida en el párrafo segundo del artículo 54 del Código Civil, deberá rendirse de previo a la administración, en el mismo expediente, si fuere personal, o si fuere de otra naturaleza se pondrá constancia de haberse dado.
+3) Si los bienes admitieren cómoda división, cada heredero, legatario, donatario o quien tenga un derecho subordinado a la muerte del ausente, administrará la parte que le corresponda, previa la garantía respectiva. Si no admitieren cómoda división, los herederos nombrarán de entre ellos un administrador general; si no hubiere acuerdo, el juez lo nombrará de entre los mismos herederos. Este administrador general deberá rendir la garantía de administración. Es aplicable lo dicho en el inciso anterior. Si una parte admitiere cómoda división y otra no, respecto de ésta se nombrará administrador general.
+4) La entrega de los bienes se hará constar en el acta que firmarán el juez, el secretario y los interesados.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 852 al 875)

@@ -1,12 +1,3 @@
-ARTICULO 923.- Aceptación de la herencia y publicación.
-El albacea y los herederos se presentarán ante un notario con el
-testimonio del testamento, para hacer constar en acta notarial que
-solicitan la tramitación del sucesorio, que aceptan la herencia, y que el
-albacea formará el inventario.
-Deberán acompañar certificación de la defunción del causante o, en su
-defecto, y con vista de la inscripción en el Registro Civil, el notario
-dará fe en el acta.
-El notario publicará estas manifestaciones por una vez en el Boletín
-Judicial y citará a los interesados para que, dentro de treinta días,
-concurran a hacer valer sus derechos. Al efecto, formará el expediente.
-El plazo comenzará a correr desde la fecha de la publicación.
+ARTÍCULO 923.- Inclusión y exclusión de bienes.
+En cualquier momento los interesados pedir que se incluyan en el inventario, o que se excluyan de él, cualesquiera bienes que se hubieren omitido o incluido indebidamente. La solicitud se tramitará con el albacea en pieza separada y por los trámites establecidos para los incidentes. El mismo trámite se seguirá si se denunciare ocultación de bienes.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 900 al 923)
