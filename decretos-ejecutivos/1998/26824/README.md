@@ -14,3 +14,4 @@ Declara "Refugio Nacional de Vida Silvestre Pejeperro".
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-17 | la propia norma |
+| 2 | 2000-01-25 | Decreto Ejecutivo 28550 (2000-01-25) |
