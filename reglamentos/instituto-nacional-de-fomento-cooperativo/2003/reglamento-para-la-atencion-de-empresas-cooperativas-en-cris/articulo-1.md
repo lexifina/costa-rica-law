@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO NACIONAL DE FOMENTO COOPERATIVO
+(Así Derogado en sesión N° 3374 del 6 de setiembre del 2004)
 PROCESO DE ADMINISTRACIÓN Y FINANZAS - PROVEEDURÍA
 La junta directiva de la Institución en la Sesión 3.261, artículo único, inciso 2), celebrada el 14 de julio del 2003, acordó aprobar el siguiente:
 REGLAMENTO PARA LA ATENCIÓN

@@ -15,3 +15,4 @@ Reglamento para la Atención de Empresas Cooperativas en Crisis.
 | --- | --- | --- |
 | 1 | 2003-08-06 | la propia norma |
 | 2 | 2003-12-02 | Reglamento 3299 (2003-12-02) |
+| 3 | 2004-09-06 | Reglamento 3374 (2004-09-06) |
