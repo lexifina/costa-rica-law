@@ -1,0 +1,1 @@
+Artículo 40.-Caso de que a quien se le imputen los hechos o actos irregulares o ilegítimos expresamente admita su comisión en el expediente, se prescindirá de audiencia y se dictará la resolución ordenando lo que proceda, lo cual deberá ser cumplido por la administración activa.

@@ -1,0 +1,1 @@
+Artículo 13.-Este Departamento, conforme con sus necesidades, se subdividirá en secciones. Estará a cargo de un director asistido por los jefes de sección y contará con el, personal técnico y administrativo que requiera para el cumplimiento de sus funciones.

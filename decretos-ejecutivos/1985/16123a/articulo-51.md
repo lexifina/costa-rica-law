@@ -1,0 +1,2 @@
+Artículo 51.-Cuando se reciba en la Contraloría General gestión para que se revise un pronunciamiento emitido por un departamento, este, salvo reconsideración, o que se haya agotado la vía administrativa, elevará dicha gestión con un informe al superior, para que decida sobre el particular.
+Dado en la Presidencia de la República.-San José, a los veintiséis días del mes de marzo de mil novecientos ochenta y cinco.

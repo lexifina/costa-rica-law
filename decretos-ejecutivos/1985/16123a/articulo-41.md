@@ -1,0 +1,1 @@
+Articulo 41.-Caso contrario, instruido el expediente .se pondrá en cono: cimiento del o de los interesados, con el objeto de que aleguen lo que deban alegar y aporten prueba de descargo, lo cual deberán hacer dentro del plazo que se les señale que no será menor de tres días ni mayor de diez.

@@ -1,0 +1,1 @@
+Artículo 37. -En dicho procedimiento se deberá comprobar exhaustivamente de oficio la verdad real de los hechos o actos reputados de irregularidades o ilegítimos y de los correspondientes elementos de prueba.

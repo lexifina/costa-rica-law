@@ -1,0 +1,1 @@
+Artículo 49.-Los funcionarios de la Contraloría debidamente identificados tendrán autoridad para solicitar información, documentos, etc., que requieran para el mejor cumplimiento de su acción fiscalizadora.
