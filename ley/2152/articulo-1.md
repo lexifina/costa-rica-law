@@ -1,4 +1,5 @@
 N° 2152
+(Nota de Sinalevi: Mediante el artículo 4° de la ley N° 5282 del 27 de julio de 1973 “Autoriza compra propiedad de la Penitenciaría Central”, se establece lo siguiente: “Derogase expresamente la ley que destinó los terrenos mencionados en el artículo primero de la presente ley a la construcción de un edificio para la Asamblea Legislativa y la Contraloría General de la República, sea la N° 2152 de 23 de agosto de 1957”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Decreta:
 Artículo 1º.- Se autoriza al Poder Ejecutivo para que traspase al Banco Central de Costa Rica parte de la manzana situada entre Avenidas Central y Primera y Calles Segunda y Cuarta de la ciudad de San José, para la construcción de su edificio y una zona de arboleda, y la parte restante a la Municipalidad de San José, para la ampliación de las vías públicas circundantes, de acuerdo con las siguientes condiciones:
