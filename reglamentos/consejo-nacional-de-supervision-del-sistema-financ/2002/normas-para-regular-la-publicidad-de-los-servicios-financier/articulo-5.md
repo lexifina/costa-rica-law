@@ -1,0 +1,2 @@
+Artículo 5°—Aplicación. Las presentes normas son de aplicación obligatoria por parte de las entidades financieras fiscalizadas por la SUGEF; sin perjuicio de las acciones legales que pudieren establecer los Usuarios de los servicios financieros ofrecidos por la entidad financiera, por aquellos daños y perjuicios ocasionados por el uso de la información errónea o engañosa.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
