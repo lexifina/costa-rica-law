@@ -1,0 +1,1 @@
+Artículo 2º—Agradecer los servicios brindados por el señor Mario Lachner Sáenz, cédula de identidad número 1-508-434, durante el lapso en que estuvo fungiendo como integrante de la indicada Comisión Nacional de Emergencia.
