@@ -14,3 +14,4 @@ Reglamento General a Ley Orgánica del Colegio de Ingenieros Agrónomos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-12-13 | la propia norma |
+| 2 | 2001-03-02 | Decreto Ejecutivo 29410 (2001-03-02) |
