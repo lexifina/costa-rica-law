@@ -1,0 +1,16 @@
+DIRECCIÓN GENERAL DE HACIENDA
+N° 1-92.- Dirección General de Hacienda y Dirección General de Tributación Directa.-San José, a las quince horas, del catorce de julio de 1992.
+Considerando:
+1°.-Que la ley N° 3394 del 24 de setiembre de 1964, concede entre otros beneficios, exención del Impuesto General sobre las Ventas a las adquisiciones que realicen los diplomáticos y extranjeros acreditados en el país.
+2°.-Que algunas embajadas acreditadas en nuestro país, han solicitado a esta Dependencia se les conceda a los funcionarios de esas misiones el beneficio de exención sin que medie para cada adquisición el trámite de autorización mediante nota de Hacienda.
+3°.-Que algunos gobiernos extranjeros, otorgan este beneficio a los diplomáticos costarricenses acreditados en dicho país.
+4°.-Que conforme con el principio de reciprocidad deben reconocerse a los diplomáticos acreditados en el país, los mismos beneficios fiscales que se otorguen a los diplomáticos costarricenses acreditados en cada uno de los países respectivos.
+Por tanto,
+RESUELVE
+1°.-Conceder autorización genérica y permanente en favor de los miembros de las Misiones Diplomáticas, a efecto de que realicen compras de bienes en el Mercado Nacional exentas del Impuesto General sobre las Ventas, prescindiendo de la autorización para cada adquisición mediante nota de exención emitida por el Departamento de Exenciones de la Dirección General de Hacienda.
+2°.-El Ministerio de Relaciones Exteriores y Culto emitirá un carné en favor del beneficiario mediante el cual se hará constar que está debidamente acreditado como miembro de la misión diplomática. El carné citado deberá contener un sello estampado por la Dirección General de Hacienda. Mediante el sello en mención se indicará expresamente que el beneficiario está debidamente autorizado para efectuar compras a su nombre exentas del Impuesto General sobre ventas.
+3°.-La autorización se aplicará cuando las adquisiones las realice personalmente el beneficiario de la exención, previa demostración de si identidad, mediante la presentación del carné correspondiente.
+4°.-La factura deberá especificar detalladamente el monto del impuesto y contener expresa manifestación de que la compra en referencia está exenta del Impuesto General sobre las Ventas.
+5°.-En poder del vendedor deberá permanecer una copia de la factura con el nombre del beneficiario de la exención, su firma y su número de carné.
+6°.-Para cumplir con los controles correspondientes que debe llenar la Dirección citada, donde se consignará el nombre del beneficiario, el cargo que desempeña su número de carné y su firma. Estos registros de beneficiarios deberán mantenerse actualizados ante cualquier variación al respecto.
+De incumplirse cualquiera de las condiciones aquí estipuladas, se dejará sin efecto el reconocimiento de la exención bajo el procedimiento aquí definido.
