@@ -1,0 +1,2 @@
+Artículo 36.—Del derecho a voz: Los ciudadanos participantes harán llegar al Presidente, en forma escrita, su solicitud para utilizar la palabra, la cual deberá contener su nombre completo, su número de cédula. Las mismas serán receptadas por el sector municipal y concedidas por el presidente Municipal en el orden numérico que el sector secretario haya consignado en la misma solicitud.
+Del derecho a voz será ejercido por todos los presentes mayores de dieciocho años.
