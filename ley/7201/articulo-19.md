@@ -1,0 +1,1 @@
+Artículo 19.- El gerente de la Comisión Nacional de Valores deberá ser un funcionario de tiempo completo y de dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público ni ejercer profesiones liberales.

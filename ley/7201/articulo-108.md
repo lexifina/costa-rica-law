@@ -1,0 +1,1 @@
+Artículo 108.- Los valores emitidos por las empresas promovidas se valuarán aplicando, en lo conducente, el artículo 88 de esta ley y conforme con las disposiciones de carácter general que dicte la Comisión Nacional de Valores.

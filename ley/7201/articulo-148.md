@@ -1,0 +1,1 @@
+Artículo 148.- Las sociedades anónimas de capital abierto tendrán la obligación de suministrar la información que la Tributación Directa requiera sobre las obligaciones o requisitos que les exija esta ley, su reglamento o el contrato que suscriban.

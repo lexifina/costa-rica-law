@@ -1,0 +1,1 @@
+Artículo 162.- Si las partes no expresaren lo contrario, las operaciones serán de contado y deberán liquidarse dentro de un plazo de siete días hábiles, u otro menor que se establezca en el reglamento de cada bolsa.

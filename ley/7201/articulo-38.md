@@ -1,0 +1,5 @@
+Artículo 38.- Si en el propio acuerdo de emisión se autoriza, podrá entregarse en depósito, a la Central, para los efectos de este capítulo, un sólo certificado múltiple, comprensivo de todos los títulos de la emisión, o parte de ellos.
+La Central de Depósito podrá efectuar sobre ese certificado, todas las operaciones que se enumeran en el artículo 37 de esta ley que afecten los títulos individuales, sin que éstos sean emitidos, siempre que las respectivas operaciones se realicen exclusivamente por medio de la bolsa.
+Si una persona debidamente legitimada, exige la emisión de algún título relativo al certificado de depósito, el emisor lo hará mediante la cancelación parcial del certificado ante la Central. No se podrá hacer emisión alguna sin esta cancelación.
+La bolsa que emitiere constancias en contravención de esta disposición, será sancionada conforme con lo dispuesto en el artículo 28.
+La Central podrá emitir constancias, que no serán título valor, de las operaciones realizadas sobre el certificado múltiple.

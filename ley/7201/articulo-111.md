@@ -1,0 +1,1 @@
+Artículo 111.- La adquisición del control del diez por ciento (10%) o más de acciones representativas del capital de una sociedad operadora de sociedades de inversión, mediante una o varias operaciones de cualquier naturaleza, simultáneas o sucesivas, deberá someterse a la previa autorización de la Comisión Nacional de Valores.

@@ -1,0 +1,1 @@
+Artículo 152.- Las obligaciones pueden ser nominativas o al portador. También pueden ser nominativas con cupones al portador. Serán emitidas en denominaciones de cien unidades de moneda nacional o extranjera o de sus múltiplos.

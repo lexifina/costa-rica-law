@@ -1,0 +1,1 @@
+Artículo 93.- Las sociedades de inversión sólo podrán operar con aquellos valores que autorice la Comisión Nacional de Valores o una bolsa de valores, excepto que se trate de las sociedades de inversión de capital, cuyas operaciones podrán efectuarse con cualquier clase de valores y documentos, con arreglo a lo dispuesto por el artículo 100 de esta ley.

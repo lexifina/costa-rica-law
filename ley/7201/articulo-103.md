@@ -1,0 +1,3 @@
+Artículo 103.- En las sociedades de inversión de renta fija, el valor de la acción será determinado diariamente por los funcionarios de la sociedad facultados para ello en los estatutos sociales. Queda bajo su responsabilidad el registro de dichas utilidades o pérdidas en los estados de contabilidad.
+Los funcionarios de la sociedad que sean responsables de la infracción de este artículo, quedarán ilimitados y solidariamente obligados a entregar a la compañía una cantidad igual al daño patrimonial causado, lo cual se substanciará por el trámite de los incidentes.
+Lo anterior sin perjuicio de otras acciones civiles o penales que puedan ejercitarse en su contra.
