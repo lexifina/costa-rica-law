@@ -14,3 +14,4 @@ Reforma al artículo 89 del Reglamento Autónomo de Organización y Servicio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-22 | la propia norma |
+| 2 | 2000-08-22 | Ley 8 |
