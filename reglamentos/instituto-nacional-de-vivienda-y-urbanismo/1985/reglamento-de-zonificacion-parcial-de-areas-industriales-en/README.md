@@ -14,3 +14,4 @@ Reglamento de Zonificación parcial de Áreas Industriales en La Gran Área Metr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-06-18 | la propia norma |
+| 2 | 1985-12-04 | Reglamento 0 (1985-12-04) |
