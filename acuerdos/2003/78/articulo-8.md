@@ -1,0 +1,2 @@
+Artículo 8º—Comunicación de cambios en las tarifas.
+Para los efectos de lo dispuesto en el artículo 10 del Reglamento, los cambios en las tarifas pactadas originalmente entre el custodio y sus clientes, deberán ser comunicados a estos con al menos quince días hábiles de antelación a su vigencia, por los mismos medios y al domicilio contractual que se hubiera acordado en el contrato para el envío de información.
