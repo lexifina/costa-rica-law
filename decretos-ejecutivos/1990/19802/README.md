@@ -14,3 +14,4 @@ Fija los Precios máximos de venta del maíz amarillo para consumo animal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-07-23 | la propia norma |
+| 2 | 1990-08-27 | Decreto Ejecutivo 19858 (1990-08-27) |

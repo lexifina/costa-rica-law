@@ -11,9 +11,10 @@ Considerando:
 6°-Que se ha considerado conveniente establecer un margen de comercialización del 5% a todos los importadores de granos básicos con el propósito de estimular su participación. En el caso particular del Consejo Nacional de Producción este margen se destinará a financiar programas de apoyo a los pequeños productores agropecuarios, particularmente aquellos dedicados a las actividades de exportación y al establecimiento de programas de estabilización de precios de productos perecederos especialmente de huevos. Por tanto,
 En uso de las facultades conferidas por los incisos 3) y 18) del artículo 140 de la Constitución Política y con fundamento en la ley N° 5665 de! 28 de febrero de 1975, Ley de Protección al Consumidor,
 DECRETAN:
-Artículo 1° -Fijar los siguientes precios máximos de venta del maíz amarillo para consumo animal, de la siguiente manera:
-De importador a detallista
-Saco de 46 kg netos, ₡ 830,95 c/u.
-De detallista a consumidor
-Saco de 46 kg netos, ₡ 930,65 c/u.
-Por kilogramo ₡ 20,25.
+Artículo 1°-Fijar los siguientes precios máximos de venta del maíz amarillo para consumo animal, de la siguiente manera:
+DE IMPORTADOR A DETALLISTA
+Saco de 46 kg netos c/u.: ₡ 791,25.
+DE DETALLISTA A CONSUMIDOR
+Saco de 46 kg netos c/u.: ₡ 886,20.
+Por kilogramo: ₡ 19,25.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 19858 del 27 de agosto de 1990)
