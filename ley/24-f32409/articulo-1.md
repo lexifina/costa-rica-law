@@ -1,0 +1,17 @@
+DECRETO No XXIV.
+[de 11 de Junio].
+Aprueba un contrato.
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE
+COSTA RICA,
+DECRETA:
+Artículo único,-Apruébase el contrato celebrado el día primero de Abril anterior, entre el señor Secretario de Estado en el despacho de Fomento y el señor Walter Merivale, en que se le prorrogan los términos estipulados en el contrato "Alvárado-Smith", para la construcción del Ferrocarril al Pacífico.
+El referido contrato, tal como ha sido aprobado, literalmente dice así: "Pedro León Páez, Secretario de Estado en el despacho de Fomento, competentemente autorizado por el señor Presidente de la República, Walter Merivale, casado, súbdito inglés, residente aquí, en su carácter de representante y apoderado generalísimo de la Sociedad "The Costa Rica Sindicate Limited," domiciliada en Londres, y Walter J. Ford y Leatherbarrow, también mayor de edad, casado y de este vecindario, en su carácter de apederado generalísimo del señor Minor C. Keith y Meiggs, mayor de edad, casado, ciudadano norteamericano y de este vecindario, han convenido en lo siguiente:
+I.-El Gobierno conviene en prorrogar:
+1°-Hasta el veinticinco de Octubre de este año, el término señalado en la cláusula VIII del contrato "Alvarado-Smith", de veintinueve de Enero de mil ochocientos noventa, para que el concesionario dé aviso al Gobierno de que tiene reunido y disponible el capital que exija la construcción del Ferrocarril del Pacífico de Costa Rica;
+2°-Hasta el quince de Junio del año venidero, el término señalado en el artículo sétimo de dicho contrato, para dar principio á la construcción de la línea;
+3°-Hasta el quince de Junio de mil ochocientos noventa y cinco, el término concedido en el artículo sétimo citado, para que queden completamente terminados los trabajos y puesta la línea al tráfico público.
+II-Merivale declara y reconoce que por la supresión de la cláusula XXXIX del contrato "Alvarado-Smith", hecha en el decreto número 50, de 19 de Agosto de 1890, el Gobierno no contrajo responsabilidad de ninguna especie para el caso de que llegase á declararse procedente à favor de cualquier otra empresa el derecho de tanteo á que esa cláusula se refiere.
+III.-Ford, en nombre de su poderdante y con instrucciones suyas, hace renuncia formal, absoluta é incondicional, del derecho de tanteo que para la construcción del "Ferrocarril del Pacífico de Costa Rica" pudiera corresponderle á su poderdante, en virtud de lo estipulado en la cláusula XXV del contrato "Soto-Keith", de 21 de Abril de 1884, así como también de los reclamos que en virtud de tal derecho y por lo que respecta á la obra mencionada pudieran corresponderle.
+IV. Este contrato se someterá á la aprobación del Poder Legislativo.-En fe de lo dicho, los otorgantes firman en la ciudad de San José, en el Palacio Nacional, á doce de Abril de mil ochocientos noventa y dos.-(f.) Pedro León Páez.-(f.) Walter Merivale.-A. M. J. C. E.-(f.) Walter J. Ford.-Palacio Nacional, San José, trece de Abril de mil ochocientos noventa y dos. -Apruébase el contrato anterior.-Hay una rúbrica.-Rubricado por el señor Presidente.-LEÓN PÁEZ."
+AL PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los once días del mes de Junio de mil ochocientos noventa y dos.-CARLOS DURÁN. JOSÉ JOAQUÍN TREJOS, Secretario.-INOCENTE MORENO, Prosecretario. Palacio Nacional.-San José, once de Junio de mil ochocientos noventa y dos.-Ejecútese.-José J. RODRÍGUEZ. El Secretario de Estado en el despacho de Fomento,-J. VARGAS M.
