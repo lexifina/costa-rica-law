@@ -1,0 +1,2 @@
+Artículo 4°
+Siguiendo los preceptos del Comité Internacional, tratará de obtener la autorización oficial del Estado por medio de una ley que la proteja contra los entorpecimientos que pudieran detener su marcha y progreso; así como e! reconocimiento oficial de sus uniformes, insignias, condecoraciones, distintivos, brazal y bandera adoptados desde su principio como signo de neutralidad el 22 de agosto de 1864 en la Convención de Ginebra.
