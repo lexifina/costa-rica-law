@@ -1,0 +1,1 @@
+Artículo 3º—Las entidades públicas no podrán realizar reasignaciones individuales de puestos mientras se encuentre en trámite una propuesta de reestructuración para su aprobación ante MIDEPLAN, o durante el proceso de verificación de cumplimiento de directrices y regulaciones de un estudio integral de puestos por parte de la STAP.

@@ -1,0 +1,1 @@
+Artículo 17.—Los ministerios, entidades públicas y demás órganos según corresponda reconocerán el auxilio de cesantía hasta el máximo establecido por el artículo 88 de la Ley de Protección al Trabajador, que modificó el artículo 29 del Código de Trabajo, con las excepciones establecidas en el Procedimiento de las Directrices de Política de Empleo y Salarios.
