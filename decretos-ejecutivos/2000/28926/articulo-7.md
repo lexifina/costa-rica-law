@@ -1,4 +1,7 @@
 Artículo 7º—Efectos:
 1. Cuando se trate de las causales referidas en los incisos a) y b) del artículo 3 de este reglamento, la orden de cierre recaerá en el establecimiento de comercio, industria, oficina o sitio donde se ejerza la actividad u oficio.
 2. Cuando se trate de las causales c), d) y e) del artículo 3º de este reglamento, se aplicará la sanción de cierre a todos los establecimientos de comercio, industria, oficina o sitio donde se ejerza la actividad o el oficio de los sujetos pasivos requeridos, debiendo indicarse en la orden de cierre, todos los negocios a los que se les aplicará.
-La imposición de la sanción de cierre de negocio no impedirá iniciar el procedimiento para que se impongan las sanciones penales correspondientes.
+3. La imposición de la sanción de cierre de negocio no impedirá iniciar el procedimiento para que se impongan las sanciones penales correspondientes.
+4. Con fundamento en la resolución firme de la Administración Tributaria o de la resolución del Tribunal Fiscal Administrativo, al momento de ejecutar el cierre del negocio que impone la sanción, se desconocerá el traspaso por cualquier título del negocio o del establecimiento perfeccionado con posterioridad al inicio del procedimiento de cierre del negocio y se podrá efectuar el cierre correspondiente.
+Los requisitos de la certificación que debe emitir la Administración Tributaria, sobre la existencia de un procedimiento abierto sobre el cierre de negocios, serán establecidos mediante resolución general.
+(Así ampliado por el artículo 3° del Decreto Ejecutivo N° 30994 de 13 de enero de 2003)
