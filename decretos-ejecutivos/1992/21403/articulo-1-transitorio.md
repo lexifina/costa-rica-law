@@ -1,0 +1,1 @@
+Transitorio único: Mientras no entre en vigencia la Ley Marco de Pensiones con Cargo al Presupuesto Nacional, los Departamentos de Estudios Estadísticos y de Estudios Actuariales no entrarán en funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 5°-Este Decreto deroga a las disposiciones reglamentarias que se le opongan, y en particular el decreto ejecutivo 1508 del 16 de febrero de 1971, Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Seguridad Social.
