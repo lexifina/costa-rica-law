@@ -1,2 +1,1 @@
-Artículo 50.-En el caso de suspensión de la vista, el tribunal señalará para ella nuevo día, sin alterar el orden de los señalamientos.
-El Tribunal, para el caso previsto en el inciso 5° del artículo anterior, así como para el figurado n el inciso 1° del mismo, deberá sin interrumpir los señalamientos hechos en otros negocios, señalar un día de los nueve siguientes al de la vista diferida para que ésta se efectúe, a la hora que permitan las demás ocupaciones del Tribunal.
+Artículo 50.-(Dejado sin efecto por el artículo 2° de la ley N° 61 del 23 de junio de 1938)
