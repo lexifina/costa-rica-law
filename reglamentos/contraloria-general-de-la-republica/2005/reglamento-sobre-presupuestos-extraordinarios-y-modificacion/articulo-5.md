@@ -1,0 +1,14 @@
+Artículo 5º—Disposiciones específicas sobre modificaciones presupuestarias externas e internas.
+5.1. Se deberán remitir a la Contraloría General de la República, para trámite de aprobación, las modificaciones que:
+5.1.1. Incorporen recursos para ajustes salariales que modifiquen la relación de puestos de sueldos para cargos fijos, jornales fijos y servicios especiales, tales como incrementos salariales, creación o eliminación de plazas, incorporación de nuevos beneficios, cambios en la metodología de cálculo de los ya existentes y cambios en la base legal.
+5.1.2. Incorporen nuevas partidas o subpartidas de egresos, según corresponda.
+5.1.3. Incorporen nuevos servicios en el Programa II Servicios Comunales.
+5.1.4. Incorporen o se eliminen proyectos u obras, en los programas III Inversiones y IV Partidas Específicas.
+5.1.5. Afecten transferencias corrientes y de capital por aportes o subvenciones a entidades públicas o privadas o personas físicas, así como los aportes en especie. Se exceptúa de lo anterior los ajustes en la subpartida de incapacidades.
+5.1.6. Utilicen como recursos rebajos en la partida Asignaciones Globales.
+5.2. La aplicación de los fondos que por ley tienen una finalidad específica, sólo podrán modificarse para cubrir gastos dentro del destino que señala la ley.
+5.3. No podrán rebajarse los montos asignados para hacer frente a compromisos legales o contractuales, en el tanto ellos no se hayan atendidos, salvo situaciones debidamente justificadas de conformidad con el bloque de legalidad.
+5.4. Los fondos sin asignación presupuestaria podrán tomarse como recursos para una modificación presupuestaria externa, si la recaudación total de los ingresos al momento de realizar la modificación respalda la estimación aprobada.
+5.5. Las modificaciones presupuestarias podrán efectuarse siempre y cuando los programas, servicios, proyectos, obras, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario y no podrán utilizarse esos recursos para cubrir gastos ejecutados.
+5.6. El empleo de las modificaciones presupuestarias deberá obedecer a una adecuada planificación y uso racional en cuanto al número y su apropiada distribución en el tiempo. En ese sentido, deberán observarse los principios presupuestarios relacionados, previstos en el artículo 5º de la Ley de Administración Financiera de la República y Presupuestos Públicos y la norma 502 del "Manual de normas técnicas sobre presupuesto".
+5.7. Como parte del componente de información del sistema de control interno que establezca la Administración para el adecuado manejo de los fondos públicos, la documentación relativa a las modificaciones presupuestarias internas deberá estar disponible para el ejercicio de las funciones de fiscalización y control sobre el manejo de los fondos públicos.
