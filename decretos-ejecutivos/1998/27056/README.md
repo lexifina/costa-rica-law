@@ -14,3 +14,4 @@ Norma RTCR 213:1997 Toma de muestras para análisis de residuos de plaguicidas e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-11 | la propia norma |
+| 2 | 1998-09-11 | Ley 8 |
