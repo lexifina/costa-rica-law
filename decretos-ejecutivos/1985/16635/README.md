@@ -13,3 +13,4 @@ Conserva y amplía beneficios Ley Carrera Docente en Riesgos de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-11-27 | la propia norma |
+| 2 | 1985-11-27 | SINALEVI (sin norma nombrada) |
