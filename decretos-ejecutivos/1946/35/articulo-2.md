@@ -1,1 +1,0 @@
-Artículo 2°—Las necesidades de intercambio comercial de que hace mención el artículo 1°, inciso a) de la referida ley, se dividirán en tres categorías para el efecto de la tramitación que debe dar la Junta de Control de Exportación de Productos a las solicitudes de divisas extranjeras, para atender al pago de tales necesidades.
