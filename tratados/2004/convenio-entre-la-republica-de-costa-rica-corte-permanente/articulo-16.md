@@ -1,0 +1,1 @@
+Artículo 16.—A solicitud del Gobierno, la Universidad para la Paz o la Corte Permanente de Arbitraje, se entablarán consultas en relación con la modificación del presente Convenio. Cualesquiera modificaciones se realizarán con el consentimiento de todas las Partes en el presente Convenio y entrarán en vigencia de conformidad con el artículo 15 del mismo

@@ -1,0 +1,1 @@
+Artículo 17.—De conformidad con el artículo 121, inciso 4, párrafo 3 de la Constitución Política de la República de Costa Rica, se autoriza al Poder Ejecutivo para celebrar con la Corte Permanente de Arbitraje y la Universidad para la Paz acuerdos complementarios del presente Convenio.

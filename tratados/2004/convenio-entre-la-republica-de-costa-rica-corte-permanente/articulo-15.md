@@ -1,0 +1,1 @@
+Artículo 15.—El presente Convenio entrará en vigencia cuando el Gobierno haya informado a las otras Partes en este Convenio, que todos los requisitos constitucionales han sido cumplidos por parte de Costa Rica.
