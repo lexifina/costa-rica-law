@@ -1,20 +1,14 @@
-Artículo 12.- Los préstamos que autoriza el inciso b) del artículo
-7º, se concederán únicamente a los asociados que lo soliciten para
-atender gastos extraordinarios en que hayan incurrido o deban incurrir
-por causas que encuentren justificadas la Directiva Central de la ANEJ o
-la de sus filiales, o, en su caso, las Directivas Centrales o las
-filiales de las otras asociaciones de empleados judiciales que existan en
-ese momento y a las cuales pertenezca el servidor judicial solicitante,
-tales como el hecho de contraer matrimonio, haber tenido él o quienes de
-él dependan una enfermedad, haberse visto obligado a atender a los gastos
-de funeral y entierro de algún miembro de su familia u otras de índole
-parecida.
-La cancelación de tales préstamos se efectuará en un plazo no mayor
-de cuatro años, mediante el sistema de cuotas mensuales fijas que
-comprendan el pago de intereses y una suma acumulativa para amortización
-y gastos de cobro y administración que fijará la Directiva de la Caja, de
-acuerdo con los reglamentos y tablas matemáticas respectivas, y estará
-garantizada durante todo el tiempo que cubra el período de amortización,
-por los sueldos que devengue el deudor en cualquier dependencia de la
-Administración Pública, con preferencia a cualquier otro crédito que
-tenga.
+CAPITULO III
+Operaciones
+ARTÍCULO 12.- La Caja hará los anticipos a que se refiere el inciso
+a) del artículo 7º en forma de descuento o compra de giro o giros a que
+tenga derecho el solicitante, de acuerdo con el salario de su cargo en
+propiedad, sobre cuyo monto deducirá un uno por ciento (1%) en concepto de
+intereses y hasta un diez por ciento (10%), en carácter de amortización y
+con el fin de que el solicitante pueda redimir paulatinamente el descuento
+o anticipos concedidos. Cuando la Caja, por medio de su Junta Directiva
+lo estime conveniente, puede disminuir de una manera general el tanto por
+ciento correspondiente a intereses.
+En la misma forma y con iguales deducciones, comprará o descontará el
+giro o los giros quienes tengan derecho a recibirlos en calidad de
+pensionados o jubilados del Poder Judicial.

@@ -1,7 +1,9 @@
-Ley Constitutiva de la Caja de Empleados del Poder Judicial
+LEY CONSTITUTIVA DE LA CAJA DE EMPLEADOS DEL PODER JUDICIAL
+(NOTA: La ley No.6063 reformó integramente el texto de la presente
+normativa en la forma que sigue)
 CAPITULO I
 Constitución, Fines y Propósitos
-Artículo 1º.- Créase la Caja de Préstamos y Descuentos de los
-Empleados del Poder Judicial, la cual tendrá por objeto facilitar
+ARTÍCULO 1º.- Creáse la Caja de Préstamo y Descuentos de los
+Servidores del Poder Judicial, la cual tendrá por objeto facilitar
 créditos a sus accionistas en las condiciones y para los fines que esta
 ley determina.
