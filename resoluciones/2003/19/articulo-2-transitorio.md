@@ -1,0 +1,1 @@
+Transitorio II.—El requisito de distinción de las salidas de personas exentas del pago del impuesto que se indica en el articulo 3° de esta resolución, deberá de estar vigente a más tardar en el plazo de un mes a partir de la publicación de la presente resolución.

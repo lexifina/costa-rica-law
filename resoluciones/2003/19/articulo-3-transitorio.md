@@ -1,0 +1,1 @@
+Transitorio III .—En tanto no se defina conforme al articulo 4 de esta resolución un procedimiento distinto al de este transitorio, el procedimiento para cumplir con el objetivo del control de ía recaudación seré que para el manejo del comprobante aplica que éste se adjunte al - documento migratorio de salida, como soporte a la labor de control de pago del impuesto.
