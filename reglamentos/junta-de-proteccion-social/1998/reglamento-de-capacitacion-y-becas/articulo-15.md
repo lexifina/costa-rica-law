@@ -1,0 +1,1 @@
+Artículo 15.—El becario deberá iniciar sus estudios en el ciclo lectivo inmediato siguiente a la aprobación de la beca solicitada. De no cumplir este requisito, pierde el derecho a la beca, salvo casos muy especiales ajuicio de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 31.—El Departamento de Recursos Humanos realizará anualmente un Diagnóstico de Necesidades de Capacitación, con el objeto de determinar cuáles son los requerimientos de la Institución en este campo.

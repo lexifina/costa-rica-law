@@ -1,0 +1,1 @@
+Artículo 29.—Para los cursos no contemplados en el Plan Anual de Capacitación, el Departamento de Recursos Humanos elaborará un informe técnico, con el objeto de determinar la necesidad real de la instrucción.

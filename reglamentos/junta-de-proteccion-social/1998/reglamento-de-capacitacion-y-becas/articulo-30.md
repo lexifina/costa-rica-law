@@ -1,0 +1,1 @@
+Artículo 30.—En caso de que la solicitud de capacitación la remita directamente la Gerencia al Departamento de Recursos Humanos, verificará que ésta se ajuste a los requerimientos del puesto y la autorizará sin más trámites.

@@ -1,0 +1,1 @@
+Artículo 27.—Toda solicitud de capacitación no incluida en el Plan Anual de Capacitación, deberá ser remitida al Departamento de Recursos Humanos, por el jefe de departamento del funcionario (a) para quien se solicita la instrucción, con un mínimo de 15 días previos a la realización del curso.

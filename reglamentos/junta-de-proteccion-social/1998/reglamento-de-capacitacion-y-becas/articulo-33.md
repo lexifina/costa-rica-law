@@ -1,0 +1,1 @@
+Artículo 33.—Las solicitudes de cursos no incluidos en el Plan Anual de Capacitación, serán atendidas por el Departamento de Recursos Humanos, de acuerdo con los recursos destinados para este fin, la importancia Institucional sobre la necesidad de la capacitación y la fecha de presentación de la solicitud.

@@ -1,0 +1,1 @@
+Artículo 21.—Además de las obligaciones señaladas, la Junta podrá establecer otras en el Contrato que se firmará al momento de otorgar el beneficio, atendiendo a la modalidad de la beca que se otorga y a los intereses de la Institución.

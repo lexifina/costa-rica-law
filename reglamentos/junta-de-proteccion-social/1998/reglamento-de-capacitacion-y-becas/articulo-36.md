@@ -1,0 +1,1 @@
+Artículo 36.—Todas las jefaturas de la Junta, estarán obligadas a otorgar las facilidades necesarias a los funcionarios que hayan sido seleccionados para participar en cursos, de conformidad con lo normado en este reglamento, en el entendido que no exista perjuicio en los servicios que presta la Institución.

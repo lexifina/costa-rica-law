@@ -1,0 +1,1 @@
+Artículo 38.—Además de las obligaciones normadas en este Reglamento, la Junta podrá establecer otras en el Contrato de Capacitación que se firmará con el (la) funcionario(a), atendiendo a la modalidad de la capacitación que se autoriza y a los intereses de la Institución.

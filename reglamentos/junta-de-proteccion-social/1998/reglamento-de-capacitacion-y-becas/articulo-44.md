@@ -1,0 +1,1 @@
+Artículo 44.—Excepcionalmente, para aquellos casos en que no prevalezcan circunstancias originadas por el becario, la Institución podrá autorizar el pago de materias bajo la modalidad de “Tutoría o Suficiencia”. Para lo anterior, será requisito indispensable, la elaboración de un informe técnico del Departamento de Recursos Humanos, que asegure el cumplimiento de este artículo.

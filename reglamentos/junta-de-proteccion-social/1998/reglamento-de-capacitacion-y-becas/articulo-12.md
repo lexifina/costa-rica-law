@@ -1,0 +1,1 @@
+Artículo 12.—El tiempo estipulado para terminar los estudios becados, incluye tanto el lapso para concluir con el programa curricular, como para cumplir con los requisitos de graduación respectivos (tesis o pruebas de grado).

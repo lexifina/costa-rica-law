@@ -1,0 +1,1 @@
+Artículo 35.—Toda actividad de capacitación autorizada, contratada, organizada, coordinada o financiada por la Junta, deberá estar dirigida a funcionarios (as) cuyas tareas del puesto, estén estrechamente relacionadas con el contenido de la actividad de capacitación.

@@ -1,0 +1,1 @@
+Artículo 6°—Si el becario no pudiera concluir sus estudios en el tiempo fijado, podrá solicitar una prórroga debidamente justificada al departamento de Recursos Humanos; quien emitirá su criterio técnico y recomendará su aceptación. La Comisión aprobará o improbará la prórroga.

@@ -1,0 +1,1 @@
+Artículo 28.—La solicitud deberá incluir la justificación de la jefatura, señalando la importancia por la cual el (la) funcionario (a) requiere recibir la instrucción, cómo contribuirá la actividad a aumentar la productividad y eficiencia en el Departamento, y por ende, los beneficios que obtendrá la Institución.

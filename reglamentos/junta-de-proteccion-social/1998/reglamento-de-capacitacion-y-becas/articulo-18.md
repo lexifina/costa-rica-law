@@ -1,0 +1,1 @@
+Artículo 18.—Luego de concluidos los estudios, el becario deberá prestar sus servicios a la Institución por un período mínimo de cuatro años; entendiéndose que el primer año de servicio inicia con su graduación.

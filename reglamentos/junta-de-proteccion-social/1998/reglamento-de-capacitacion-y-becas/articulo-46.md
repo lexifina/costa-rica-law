@@ -1,0 +1,1 @@
+Artículo 46.—Este Reglamento fue aprobado por la Junta Directiva de la Junta de Protección Social de San José, según artículo II), inciso 32) del acta N° 8-98, de la sesión celebrada el 26 de febrero de 1998.

@@ -1,0 +1,1 @@
+Artículo 32.—El Departamento de Recursos Humanos, programará en forma prioritaria los cursos determinados previamente en el Diagnóstico de Necesidades, de acuerdo con los fondos asignados en el Presupuesto Anual de Capacitación.
