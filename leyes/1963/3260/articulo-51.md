@@ -1,1 +1,1 @@
-Artículo 51.- Sin perjuicio de lo establecido en el artículo 71, toda resolución de los Juzgados Tutelares será ejecutada inmediatamente, pero el Juez, de oficio o a petición de parte interesada, podrá revocar o modificar sus pronunciamientos en cualquier momento.
+Artículo 51.- El modo de practicar las diligencias quedará a la prudencia y al criterio del juez. Todas se harán constar en actas concisas que contendrán, en cada caso, la fecha de la diligencia, su objeto y una síntesis de lo actuado. Estas actas deberán ser firmadas por el juez y por su secretario.

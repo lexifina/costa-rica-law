@@ -1,1 +1,1 @@
-Artículo 5º.- Las autoridades judiciales y administrativas que tuvieren conocimiento de que algún menor se encuentra en las condiciones indicadas en el artículo 2º de esta ley, estarán obligados a comunicarlo inmediatamente al Juez Tutelar.
+Artículo 5º.- Los distintos tribunales quedarán obligados a remitirse, recíprocamente, copias de las pruebas y actuaciones firmadas por el juez y por el secretario; todo ello para mantener, en lo posible, conexos los procesos a los que se refiere el artículo anterior.

@@ -1,2 +1,1 @@
-Artículo 9º.- La resoluciones indicadas en el artículo 69 serán comunicadas al Registro Judicial de Delincuentes, y no se suministrarán datos sobre ellas a ninguna autoridad ni se inscribirán en los archivos policíacos.
-Los resúmenes de esas resoluciones no serán inscritos en el casillero de penados que lleva el Registro, sino en una sección especial que deberá establecer esa oficina para efectos estadísticos y de información social, conforme al artículo siguiente.
+Artículo 9º.- La aprehensión y la conducción de los menores que deban remitirse a los juzgados tutelares, pueden efectuarlas agentes, inspectores tutelares debidamente identificados u otras autoridades de policía; siempre y cuando se respete y se tenga en cuenta la condición del menor.

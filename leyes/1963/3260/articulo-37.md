@@ -1,1 +1,1 @@
-Artículo 37.- Cuando se acuerde la internación de un menor, el Juez enviará al establecimiento que deba recibirlo, copia de la resolución dictada, con las observaciones y recomendaciones que considere convenientes.
+Artículo 37.- La internación total sólo procederá en casos de extrema gravedad, cuando la familia del menor sea notoriamente inconveniente para su debido tratamiento y no se pueda recurrir a la libertad asistida, al depósito en un hogar sustituto ni dejarlo en libertad. En todo caso, el juez deberá fundamentar debidamente la resolución.

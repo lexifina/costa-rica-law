@@ -1,2 +1,1 @@
-Artículo 18.-Para ejercer el cargo de Agente Tutelar de Menores se requiere haber cursado por lo menos la primera enseñanza, dándose preferencia a quienes sean padres o madres de familia. Además de la aprehensión y conducción de los menores, deberán estos agentes cumplir cualquiera otra diligencia que les encomiende el Juzgado.
-(Así reformado por el artículo 1° de la ley N° 3534 del 23 de julio de 1965)
+Artículo 18.- Además de las funciones que le confiere la ley, el Secretario tendrá el cargo de jefe del personal y responderá por la administración de la oficina ante el juez. En materia administrativa, los jefes de departamentos también responderán ante el juez.

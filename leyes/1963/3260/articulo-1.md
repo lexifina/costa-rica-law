@@ -1,8 +1,11 @@
 Ley Nº 3260
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
+(Nota de Sinalevi: El texto de esta norma fue reformado en forma integra por el artículo 1° de la ley N° 7383 del 16 de marzo de 1994 , por lo que se reproduce a continuación)
 TÍTULO I
-DISPOSICIONES GENERALES
+Disposiciones Generales
 CAPÍTULO I
-De la Jurisdicción Tutelar
-Artículo 1º.- Corresponderá a la Jurisdicción Tutelar de Menores conocer de la situación de los menores cuya edad no exceda de diecisiete años y que se encuentren en estado de peligro social, resolver exclusivamente sobre las medidas aplicables a dichos menores y ejecutar las resoluciones que dicte, todo ello con la finalidad de readaptarlos moral y socialmente. Para los efectos de esta ley, se entenderá por menor de edad al que en este artículo se define.
+De la jurisdicción tutelar
+Artículo 1º.- Corresponderá a la Jurisdicción Tutelar de Menores conocer de la situación de los menores con edades comprendidas entre los doce años y menos de dieciocho años, a quienes se les atribuya la comisión de una contravención o delito.
+Además, le corresponderá resolver exclusivamente sobre las medidas aplicables a dichos menores y ejecutar sus resoluciones, con la finalidad de rehabilitarlos y readaptarlos, moral y socialmente.
+Para los efectos de esta Ley, se entenderá por menor de edad el que define este artículo.

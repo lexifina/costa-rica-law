@@ -1,1 +1,2 @@
-Artículo 57.- El Juzgado mantendrá un solo expediente para cada menor que se le remita, el cual será reabierto cada vez que se deba conocer de una nueva infracción, y tendrá carácter confidencial.
+Artículo 57.- En los demás casos, para comprobar los hechos que dieron origen a la remisión del menor al juzgado y su participación en ellos, el juez ordenará practicar las pruebas que estime convenientes o que los interesados soliciten dentro del proceso, siempre y cuando no atenten contra la dignidad del menor; también ordenará elaborar los respectivos estudios médico siquiátricos, psicológicos y sociales.
+Todos los medios de prueba autorizados por el Código de Procedimientos Penales serán admisibles y ellos tendrán el valor que en éste se asigna.

@@ -1,1 +1,1 @@
-Artículo 32.- La libertad asistida podrá confiarse al Patronato Nacional de la Infancia, al Consejo Superior de Defensa Social o a otra institución social similar, del lugar de resistencia del menor.
+Artículo 32.- La libertad asistida consistirá en confiar el menor a su familia o a un guardador, con la asistencia del Departamento de Trabajo Social del juzgado o de otro organismo, de acuerdo con las recomendaciones que el juez estime convenientes.

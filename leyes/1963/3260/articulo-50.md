@@ -1,1 +1,1 @@
-Artículo 50.- Quedará a la prudencia y al criterio del Juez, el modo de practicar las demás diligencias. Todas ellas se harán constar en actas concisas que contendrán, en cada caso, la fecha de la diligencia, su objeto, y una síntesis de lo actuado, y que deberán ser firmadas por el Juez y su Secretario.
+Artículo 50.- Todas las diligencias que se practiquen con el menor se desarrollarán en una forma tendiente a inspirarle confianza y, en ningún caso, las entrevistas que se realicen con él revestirán ni el carácter ni la forma de una indagatoria.
