@@ -1,4 +1,3 @@
-Artículo 12.—Lista no exhaustiva de hechos relevantes. De conformidad con las atribuciones conferidas a este Despacho, se adjunta a este Acuerdo una lista de hechos relevantes. La lista tendrá carácter ejemplificativo, y no taxativo. En ese sentido, esta lista no releva a las entidades de su obligación de evaluar en cada caso si un determinado factor, hecho o decisión constituye un hecho relevante a la luz de lo establecido en el Reglamento sobre el suministro de información periódica, hechos relevantes y otras obligaciones de información, con independencia de si tal hecho se encuentra o no en la lista que se anexa a este Acuerdo. No obstante los criterios que aquí se establecen pueden tomarse de guía para tal evaluación.
 Sin perjuicio de lo anterior y como regla general, en los casos cuantificables. se define como hecho relevante aquel factor, hecho o decisión cuyo efecto es igual o superior en un 15% a la partida que se define en cada caso como variable de referencia; salvo aquellos casos en que el propio Acuerdo defina un porcentaje diferente. Para esta cuantificación, se tomará el monto en cuestión (monto de la transacción, efecto del hecho o decisión, según corresponda) y se dividirá entre el saldo de la variable de referencia a la fecha del cierre mensual anterior a la fecha de la transacción. En los casos en que exista más de una variable, bastará con que en una de ellas se alcance el porcentaje establecido.
 En los casos en que el Acuerdo no establezca una variable de referencia, la comunicación deberá hacerse siempre que ocurra el hecho o decisión a la que se refiera el Acuerdo,
 La lista no exhaustiva está estructurada por tipo de entidad sujeta a la regulación o fiscalización de esta Superintendencia:
@@ -40,9 +39,16 @@ porcentaje de participación en el mercado,
 1.28 Prórrogas aprobadas para la presentación de la información periódica, con indicación del plazo otorgado para su presentación.
 1.29 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga.
 (Así reformado por el artículo 3 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003 y corrida la numeración por su artículo 4.)
-1.30 Otros hechos relevantes aplicables a emisores de deuda y/o acciones, no contemplados en esta lista.
-1.31 Atraso en la actualización de la calificación.
-(Así ampliado por el artículo 2 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003)
+1.30 Atraso en la actulización de calificación. Atraso en la actualización de las calificaciones de riesgo de las emisiones de deuda.
+(El inciso anterior fue reformado parcialmente y cambiada su numeración, que lo pasó del 1.31 al 1.30, mediante el Artículo 1° del Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+1.31. Modificación en el nombramiento de los auditores externos, con indicación de las razones que motivaron el cambio
+(El inciso anterior fue adicionado Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+1.32. Modificación en el nombramiento de la empresa calificadora de riesgo, con indicación de las razones que motivaron el cambio.
+(El inciso anterior fue adicionado Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+1.33 Prórrogas aprobadas para la actualización del prospecto, con indicación del plazo otorgado para su presentación.
+(El inciso anterior fue adicionado Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+1.34 Otros hechos relevantes aplicables a emisiores de deuda y/o acciones, no contemplados en esta lista.
+(El inciso anterior fue cambiada su numeración, que lo pasó del 1.30 al 1.34, por Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 2) EMISORES DE ACCIONES
 2.1 Convocatoria a asamblea de accionistas. Deberá indicarse la agenda de temas a tratar; así como la fecha de cierre del libro de accionistas para efectos de determinar cuales accionistas tendrán derecho de asistir a la asamblea. El emisor deberá aclarar el efecto que tiene el ciclo de asignación de transacciones en el mercado accionario sobre esta fecha; de modo que exista absoluta claridad sobre los accionistas que podrán participar en la asamblea. Los emisores accionarios procurarán que la fecha de cierre del libro de accionistas para la asistencia a la asamblea, sea la fecha anterior más próxima a su realización, pero en ningún caso podrá ser anterior en más de tres días hábiles a la fecha de realización de la asamblea,
 2.2 Resumen de acuerdos de asamblea de accionistas, ordinarias y extraordinarias. En el caso de que el acuerdo se refiera a decisiones de aumento o disminución del capital social, desdoblamientos o desdoblamientos inversos de acciones y declaración de dividendos, el hecho relevante deberá incluir en forma clara la fecha fijada para determinar los socios sobre los cuales recaerá el acuerdo. Con el propósito de evitar fluctuaciones innecesarias en el precio de las acciones, esta fecha deberá ser posterior al menos en ocho días hábiles a la fecha de celebración de la asamblea, de modo que durante ese plazo las acciones se continuarán negociando sin que se realice un ajuste en su precio. El hecho relevante incluirá también la fecha de entrega de acciones o de pago de dividendos, cuando corresponda. De haberse acordado el pago de dividendos en cuotas periódicas deberá incorporarse el cronograma completo, con todas las fechas de pago periódico.
@@ -55,14 +61,22 @@ porcentaje de participación en el mercado,
 3.2Cambios en la integración del comité de inversión.
 3.3 Cualquier cambio en las comisiones cobradas al fondo, dentro de las bandas establecidas en el prospecto.
 3.4 Cesación de pago por parte de algún emisor, en el caso de los fondos concentrados. Variable de referencia; cuando el porcentaje de concentración supere el 15%,
-3.5 Situaciones de desocupación en el caso de los fondos inmobiliarios. Variable de referencia: 25% de los activos del fondo.
-3.6 Distribución de dividendos.
-3.7 Modificaciones al prospecto cuando éstas se refieran a; cambio en la naturaleza (abierta o cerrada) del fondo, la política de inversión, las comisiones, los montos mínimos y las series.
-3.8 Acuerdos de Asamblea de inversionistas, en el caso de los fondos cerrados.
+3.5 Situaciones de desocupación en el caso de los fondos inmobiliarios. Variable de referencia: 25% de los ingresos del fondo.
+Situaciones de desocupación en el caso de los fondos inmobiliarios. Variable de referencia: 25% de los activos del fondo.
+(Reformado parcialmente y cambiada su numeración mediante el Reglamento SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+3.6 Convocatoria y acuerdos de Asamblea de inversionistas, en el caso de los fondos cerrados.
+(Reformado parcialmente mediante acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+3.7.Distribución de beneficios, con indicación del monto por participación, la fecha de pago y la fecha de corte, de manera que exista total claridad de cuáles inversionistas tendrán derecho al beneficio.
+(Reformado parcialmente mediante acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+3.8. Modificaciones al prospecto cuando éstas se refieran a; cambio en la naturaleza (abierta o cerrada) del fondo, la política de inversión, las comisiones, los montos mínimos y las series.
+(Reformado parcialmente mediante acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 3.9 Prórrogas aprobadas para la presentación de la información periódica, con indicación del plazo otorgado para su presentación.
 3.10 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga.
 (Así reformado por el artículo 3 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003)
-3.11 Otros hechos relevantes aplicables a fondos de inversión, no incluidos en esta lista
+3.11 Compra, venta o valoración de bienes inmuebles que se adquieran para formar parte de la cartera de los fondos de inversión inmobiliarios. Variable de referencia: total de los activos del fondo.
+(El inciso anterior fue adicionado por Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
+3.12 Prórrogas aprobadas para la actualización del prospecto, con indicación del plazo otorgado para su presentación.
+(El inciso anterior fue adicionado por Acuerdo SGV-A-81 de las once horas del 17 de octubre de dos mil tres, publicado en La Gaceta N° 245 del 19 de diciembre de 2003)
 4) BOLSAS DE VALORES
 4.1. Comunicación de la fecha a partir de la cual las acciones se negociarán sin derecho al dividendo, al aumento de acciones o al derecho económico acordado en asamblea, de conformidad con el punto 2.2,
 4.2. Suspensión de negociación de un emisor o cualquier otra medida precautoria adoptada, con indicación del plazo.
@@ -78,5 +92,5 @@ legales con facultades de apoderado general o generalísimo.
 6.5 Prórrogas aprobadas para la presentación de la información periódica, con indicación del plazo otorgado para su presentación, en el caso de los Puestos de Bolsa y las Sociedades Administradoras de Fondos de Inversión.
 6.6 Atrasos en la presentación de información periódica de carácter público solicitada por la Superintendencia General de Valores. Los atrasos se contarán a partir de la fecha máxima de presentación ordinaria, o en su defecto, la fecha extraordinaria establecida en caso de que se haya otorgado prórroga.
 (Así reformado por el artículo 3 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003)
-6.7 Otros hechos relevantes aplicables a Bolsas, Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Calificadoras de riesgo no incluidos en esta lista,
+6.7 Otros hechos relevantes aplicables a Bolsas, Puestos de Bolsa, Sociedades Administradoras de Fondos de Inversión y Calificadoras de riesgo no incluidos en esta lista.
 (Así reformado parcialmente en cuanto a su numeración por el artículo 4 del acuerdo de Junta Directiva N° 72 de 19 de marzo de 2003)
