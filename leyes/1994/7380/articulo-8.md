@@ -2,9 +2,9 @@ TÍTULO II
 DE LA CREACIÓN Y FUNCIONAMIENTO DE LAS GUARDERÍAS
 INFANTILES Y DE LOS HOGARES ESCUELA
 CAPÍTULO I
-De la Creación y los Requisitos de las Guarderías y
-de los Hogares Escuela
-Artículo 8.- La entidad pública o privada que desee crear una guardería infantil o un hogar escuela deberá presentar, ante la Dirección Nacional de Seguridad Social del Ministerio de Trabajo y Seguridad Social, una solicitud que incluya lo siguiente:
+De la Creación y los requisitos de las guarderías
+y de los hogares escuela
+Artículo 8°.—La entidad pública o privada que desee crear una guardería infantil o un hogar escuela deberá presentar, ante la Dirección Nacional de Seguridad Social del Ministerio de Trabajo y Seguridad Social, una solicitud que incluya lo siguiente:
 a) El proyecto de guardería o de hogar escuela.
 b) Un estudio de factibilidad, en el que se indique la población que será atendida, por sexo y por edades, así como la condición de los padres y de las madres beneficiarios.
 c) Información sobre los recursos existentes para la instalación del proyecto.

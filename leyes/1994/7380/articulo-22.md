@@ -1,2 +1,2 @@
-Artículo 22.- Autorízase al Estado y a los demás entes públicos, para que faciliten, de conformidad con esta Ley, la organización de las guarderías infantiles y de los hogares escuela necesarios para la atención de los niños y de las niñas de sus trabajadores.
+Artículo 22.—Autorízase al Estado y a los demás entes públicos, para que faciliten, de conformidad con esta Ley, la organización de las guarderías infantiles y de los hogares escuela necesarios para la atención de los niños y de las niñas de sus trabajadores.
 Las facilidades a que se hace referencia pueden ser de equipo, mobiliario e instalaciones físicas; pero no el pago de salarios ni remuneraciones del personal que labore en las guarderías infantiles u hogares escuela.
