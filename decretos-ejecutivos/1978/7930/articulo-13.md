@@ -1,4 +1,5 @@
-Artículo 13.-Las solicitudes de emisión de CAT correspondientes a cada exportación deben ser presentadas al Banco en formulario que el mismo suplirá, acompañadas de copia de los siguientes documentos:
+Artículo 13.-Las solicitudes de emisión de CAT correspondientes a cada exportación deben ser presentadas al Banco por lo menos 3 meses antes de la fecha de caducidad, en formularios que el mismo suplirá, acompañadas de copia de los siguientes documentos.
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 8035 del 24 de febero de 1978)
 -Licencia de exportación y su correspondiente factura comercial que compruebe el valor F.O.E. de la exportación.
 -Póliza de exportación, emitida por la aduana correspondiente debidamente cumplimentada.
 -Guía de embarque: marítima, aérea, terrestre o postal que indique si los fletes han sido pagados o son a cobrar.
