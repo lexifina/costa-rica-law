@@ -1,4 +1,6 @@
+(Derogado)
 N° 6302
+(Esta norma fue derogada por el artículo 10 de la Ley de Impuestos Municipales de Pérez Zeledón, N° 7068 del 29 de julio de 1987)
 LA ASAMBLEA LEGISLATIVA DE LA.REPUBLICA DE COSTA RICA
 Decreta:
 Artículo único.—Autorízanse los siguientes impuestos a la Municipalidad del Cantón de Pérez Zeledón:
