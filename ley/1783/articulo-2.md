@@ -1,0 +1,1 @@
+Artículo 2°—Se garantizará dicho empréstito con las rentas correspondientes al impuesto ad-valórem, no aprobando los Presupuestos la Contraloría General de la República si en los egresos no va incluida la Partida anual para amortización e intereses.
