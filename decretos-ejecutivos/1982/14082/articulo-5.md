@@ -26,6 +26,8 @@ Otras harinas de cereales y derivados
 Canelones, excepto los rellenos
 Caracoles, excepto los rellenos
 Caracolitos, excepto los rellenos
+Calzones plásticos para bebe
+(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 25360 del 5 de julio de 1996)
 Chop suey Fideos, excepto los rellenos
 Conchas, excepto los rellenos
 Conchitas, excepto los rellenos
@@ -249,7 +251,8 @@ Pañales para bebé‚
 Toallas sanitarias
 Sirope de caña de azúcar
 Cepillo dental
-Cepillo de raíz, de uso doméstico
+Cepillo de raíz y sus similares (de cualquier material) de uso doméstico, excepto el cepillo para piso
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 25360 del 5 de julio de 1996)
 Mechas para piso, de uso doméstico
 Palas para basura, de uso doméstico
 Escobas, de uso doméstico
@@ -559,6 +562,8 @@ Equipo electrónico de navegación (radar, sonar, ecosondas, radioboyas, navegad
 Estopa para calafate
 Flotadores o boyas de plástico o corcho (todo tamaño) de red de pesca o casa marina
 Gacilla de acero inoxidable para línea tiburonera
+Gasolina para la pesca no deportiva, siempre y cuando se adquiera bajo el procedimiento establecido en la resolución N° A-JD.I 138-94 del 3 de noviembre de 1994 y sus reformas, del Instituto Costarricense de Pesca y Acuacultura (INCOPESCA).
+(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 25360 del 5 de julio de 1996)
 Grilletes galvanizados (toda medida)
 Guardacabos galvanizados
 Guía y prensaestopa de timón y propela
