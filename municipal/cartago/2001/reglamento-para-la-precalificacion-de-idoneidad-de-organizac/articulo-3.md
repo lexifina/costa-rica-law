@@ -1,0 +1,1 @@
+3°—La documentación señalada en los puntos uno y dos de este Reglamento, deberá presentarse en original y copia ante la secretaria del Consejo Municipal, ésta no recibirá solicitudes incompletas o carentes de los requisitos señalados.

@@ -1,0 +1,1 @@
+5°—EI Concejo Municipal conocerá y resolverá las solicitudes, valorando los requisitos exigidos, dentro del mes siguiente a su presentación, de conformidad con el articulo 331 de la Ley General de la Administración Pública.
