@@ -1,12 +1,1 @@
-Artículo 181.- El concejo municipal del cantón podrá disolver el
-concejo municipal de distrito, de conformidad con las siguientes reglas:
-a) El acuerdo de disolución deberá ser justificado y aprobado por dos
-terceras partes, como mínimo, del total de los miembros del concejo
-municipal del cantón.
-b) El concejo municipal del cantón deberá asumir las obligaciones
-contraídas por el concejo municipal de distrito y dará prioridad al pago
-de las indemnizaciones laborales. Para la liquidación, la municipalidad
-dispondrá del plazo de un año, contado a partir del día siguiente a la
-firmeza del acuerdo de disolución. Las prestaciones legales de cada
-trabajador se pagarán dentro de los tres meses siguientes a su despido.
-(Así adicioandao por Ley N° 7812 de 8 de julio de 1998)
+Artículo 181. —(Nota de Sinalevi:: Este artículo fue adicionado mediante el inciso a) del artículo único de la Ley N° 7812 del 8 de julio de 1998. Posteriormente fue ANULADO por Resolución de la Sala Constitucional N° 5445-99 de las 14:30 horas del 14 de julio de 1999, adicionada por las sentencias números 06218-99, de las 15:21 horas del 10 de agosto de 1999, 09811 de las 15:21 horas del 14 de diciembre de 1999, 07728-00 de las 14:45 horas del 30 de agosto de 2000 y 8861-000 de las 14:30 horas del 11 de octubre de 2000. Por último la adición practicada por la Ley N° 7812 del 8 de julio de 1998, fue derogada por el artículo 13 de la Ley N° 8173 del 7 de diciembre del 2001, Ley General de Concejos Municipales de Distrito)
