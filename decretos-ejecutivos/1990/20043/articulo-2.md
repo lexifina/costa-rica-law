@@ -1,0 +1,1 @@
+Artículo 2º.-La Administración de esta Zona Protectora estará a cargo de la Dirección General Forestal (DGF), con la colaboración de una Comisión Interinstitucional para la protección de la Cuenca del Río Banano, que se creará por decreto ejecutivo.

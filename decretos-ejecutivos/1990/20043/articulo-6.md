@@ -1,0 +1,1 @@
+Artículo 6º.-Las fincas debidamente inscritas como propiedad particular, así como aquellas amparadas por la posesión decenal y ubicadas dentro de los límites de la Zona Protectora, lo mismo que las propiedades adquiridas como patrimonio particular de instituciones estatales y municipales, quedan sometidas al Régimen Forestal.

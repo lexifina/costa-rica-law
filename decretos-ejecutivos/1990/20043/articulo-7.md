@@ -1,0 +1,1 @@
+Artículo 7º.-El desarrollo de las actividades dentro de la Zona Protectora, deberá orientarse bajo el principio de protección con desarrollo. De tal forma que cualquier actividad deberá estar sujeta a la aprobación del Plan de Manejo.

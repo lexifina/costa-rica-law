@@ -1,0 +1,1 @@
+Artículo 5º.-la Comisión Interinstitucional y la Dirección Forestal gestionarán (a través del MIRENEM) la implementación de convenios específicos, con entes públicos o privados, nacionales o extranjeros, para la aportación de recursos de toda índole, que contribuyan al manejo, control y desarrollo de la Zona Protectora.
