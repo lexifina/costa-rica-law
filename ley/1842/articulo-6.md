@@ -1,0 +1,2 @@
+Artículo 6º.- Las tierras traspasadas por la Compañías Bananera al Estado de acuerdo en la cláusula XII del contrato, necesariamente habrán de destinarse a planes de parcelación y colonización, en beneficio preferente de los agricultores que se encontraren establecidos en ellas con anterioridad a la emisión de esta ley.
+Casa Presidencial.-San José, a los veinticuatro días del mes de diciembre de mil novecientos cincuenta y cuatro.
