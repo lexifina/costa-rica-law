@@ -1,0 +1,3 @@
+Artículo 29.-Cuando se hiciere una revaloración total de puestos protegidos por el Régimen de Servicio Civil, motivada por aumento el costo de la vida, o se acordaren aumentos de sueldos, por la misma razón, en las demás instituciones docentes y relacionados con la categoría, cargo o empleo que originó la pensión la Junta deberá mejorar los derechos jubilatorios en el mismo porcentaje del incremento de los sueldos.
+Para pagar aquel reajuste y estos aumentos se destinará la aportación referida en los artículos 17 a 23, excepto la aportación de los pensionados, la cual deberá girarse a la Junta para los fines que señalan los artículos 19 y 20 de esta ley.
+(Así adicionado por el artículo 3° de la ley N° 5639 del 9 de diciembre de 1974)
