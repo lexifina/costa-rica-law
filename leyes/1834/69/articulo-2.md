@@ -1,0 +1,1 @@
+Art 2. La parte que faltase al cumplimiento del convenio o contrato celebrado sin las tachas de que habla el artículo anterior y sin cualesquiera otro impedimento legítimamente comprobado, es obligada a su cumplimiento, á responder ante los jueces y Tribunales por su omisión, y a indemnizar daños y perjuicios.
