@@ -1,0 +1,1 @@
+Artículo 8°-Los cambios o variaciones importantes de lo que existe y que surjan como consecuencia de la puesta en marcha del Plan de Reforma Administrativa, serán concretados en acuerdos formales con la participación de los organismos involucrados.
