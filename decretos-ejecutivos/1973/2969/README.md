@@ -13,3 +13,4 @@ Reglamento de Aeronavegabilidad de Aeronaves Civiles
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-05-12 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
