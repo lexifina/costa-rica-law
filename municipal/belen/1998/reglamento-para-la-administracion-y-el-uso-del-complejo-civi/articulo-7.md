@@ -1,0 +1,2 @@
+Artículo 7°—De la Administración. La administración del “Complejo Cívico Cultural de Belén” corresponde a una Junta Administradora, que trabajará ad honorem, sin devengar ningún tipo de dieta, cuya sede estará en la Casa de la Cultura Belemita, y estará integrada poi; siete miembros: Presidente, Vicepresidente, Secretario, Tesorero, y tres vocales.
+La Junta Administradora se reunirá, ordinariamente, dos veces al mes, y extraordinariamente “cada vez que sea necesario, a solicitud de cualquiera de sus miembros.

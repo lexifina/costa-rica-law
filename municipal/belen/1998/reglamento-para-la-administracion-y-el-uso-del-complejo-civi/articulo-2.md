@@ -1,0 +1,3 @@
+Artículo 2°—De los objetivos generales. La creación del “Complejo Cívico Cultural de Belén” tiene como objetivos generales:
+a) Dotar a la comunidad de espacios físicos apropiados para la custodia y conservación de objetos y documentos históricos, así como para la promoción, enseñanza y presentación de actividades artístico culturales, y de protección al medio ambiente, que permitan el desarrollo y la formación integral del individuo.
+b) Servir de plataforma y ente facilitador para la coordinación, y de ser posible, para la unificación de esfuerzos, que diferentes grupos del Cantón de Belén realizan en el campo de la cultura.

@@ -1,0 +1,9 @@
+Artículo 14.—De los deberes de los usuarios. Será obligación de los usuarios de cualquiera de las instalaciones del Complejo Cívico Cultural de Belén:
+a) Acatar en forma estricta el calendario y horarios que la Junta Administradora establezca para la realización de las diferentes actividades culturales.
+b) Mantener el orden necesario durante la realización de su actividad, y dejar debidamente limpio el espacio físico utilizado para la ejecución de la misma.
+c) Responsabilizarse, durante su estadía en el inmueble, del cuido y protección de todos aquellos objetos de valor histórico que eventualmente puedan estar expuestos en sus instalaciones, así como de los enseres o equipos permanentes que se mantengan en los edificios.
+d) No utilizar ningún equipo, o sacar del edificio objetos o bienes propios, o que estén bajo custodia de la Junta Administradora, sin la autorización previa y por escrito de ésta.
+e) Colaborar con el mantenimiento y mejoramiento de la planta física, en aquellos casos de personas, grupos u organizaciones, que cuenten con un permiso de uso permanente dentro del calendario anual de actividades.
+f) No manipular dentro del inmueble sustancias o materiales volátiles, o de peso excesivo, que puedan provocar incendios en perjuicio del edificio, o daños al mobiliario que en forma permanente se utilizan en la Casa de la Cultura Belemita o en cualquiera de los locales del Centro Cívico Cultural El Nacimiento.
+g) Obedecer toda disposición que emita la Junta Administradora en el ejercicio de sus funciones tendiente a la protección de la Casa de la Cultura Belemita y del Centro Cívico Cultural El Nacimiento, y al mejoramiento de los servicios que esos entes brinden a la comunidad.
+h) En caso de realización de talleres, retirar de la planta física sus pertenencias, una vez finalizado aquel, pues no se permitirá que se instalen en forma permanente en el inmueble.

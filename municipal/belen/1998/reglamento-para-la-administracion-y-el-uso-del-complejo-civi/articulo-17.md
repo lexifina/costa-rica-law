@@ -1,0 +1,1 @@
+Artículo 17.—La solución de cualquier problema que se suscite por violación de las normas que anteceden, o causado por hechos no contemplados en el presente reglamento, será competencia exclusiva de la Junta Administradora, que a su vez y de ser necesario, impondrá las sanciones correspondientes, por el voto de mayoría simple de sus miembros.
