@@ -15,3 +15,4 @@ Instructivo de llenado para la declaración del valor en aduanas
 | --- | --- | --- |
 | 1 | 2001-01-09 | la propia norma |
 | 2 | 2004-10-05 | Resolución 129 (2004-10-05) |
+| 3 | 2004-11-02 | Resolución 140 (2004-11-02) |
