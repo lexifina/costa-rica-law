@@ -1,0 +1,2 @@
+Artículo 126.-Transcurrido el plazo otorgado el órgano Director citará a las partes a una comparecencia oral y privada observando las formalidades consignadas en el Título Tercero del libro segundo de la Ley General de la Administración Pública en lo aplicable. En ese acto se evacuará toda prueba presentada, así como la oportunidad de presentar sus conclusiones o alegatos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

@@ -1,3 +1,4 @@
 CAPITULO XXII
-Disposiciones finales
-Artículo 118.-A falta de disposiciones en el presente Reglamento aplicables a un caso determinado, deberán tenerse como normas supletorias el Estatuto de Servicio Civil y su Reglamento. la Ley General de la Administración Pública en cuanto sean aplicable, la jurisprudencia administrativa, los principios generales de derecho público, la costumbre (administrativa), el Código de Trabajo y la legislación conexa, así como la jurisprudencia laboral, siempre y cuando no se opongan a la naturaleza jurídica de la relación de servicio.
+Disposiciones de Procedimiento Especial
+Artículo 118.- El presente capítulo regulará todo procedimiento especial que de conformidad con el artículo 5 de la Ley Nº 7476, el Ministerio de Obras Públicas y Transportes debe observar en sus relaciones con sus servidores, en los casos de denuncias por hostigamiento sexual.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio del Ministerio de Obras Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-11 | la propia norma |
+| 2 | 1996-03-26 | Decreto Ejecutivo 25075 (1996-03-26) |

@@ -1,1 +1,2 @@
-Artículo 121.-El presente Reglamento deroga el anterior Reglamento Interior de Trabajo del Ministerio de Obras Públicas y Transportes y cualquiera otra disposición de rango igualo inferior, en tanto se le opongan.
+Artículo 121.-La persona ofendida podrá agregar a su denuncia la solicitud para su reubicación temporal en la Institución, teniendo la posibilidad de plantearla en cualquier estado del proceso; así como solicitar ayuda de profesionales médicos de la institución, si considera que su salud mental y física ha sido afectada.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).

@@ -1,1 +1,2 @@
-Articulo 120.-EI presente Reglamento entrará en vigencia quince días hábiles después de su publicación en el Diario Oficial "La Gaceta".
+Artículo 120.-Todo funcionario que se considere afectado por actos y hostigamiento sexual conforme los definen los artículos 3º y 4º de la Ley Nº 7476 podrá plantear la denuncia en forma verbal o escrita ante la Dirección General de Recursos Humanos de la Institución. Si se plantea en forma verbal se procederá a levantar un acta consignando las manifestaciones de la persona denunciante.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 25075 del 26 de marzo de 1996).
