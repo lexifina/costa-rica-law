@@ -1,0 +1,3 @@
+Artículo 524
+Casos de equiparación
+Para los efectos de los artículos anteriores, queda equiparada a la falsificación o alteración de la moneda, la de los titulo s y cupones de la deuda pública nacional o municipal, de los billetes de banco legalmente autorizados, de los giros o libranzas del Tesoro Público o de los tesoros municipales y de los títulos, cédulas y acciones emitidas por los bancos o compañías autorizados para ello.

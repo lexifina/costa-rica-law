@@ -1,0 +1,4 @@
+Artículo 552
+Uso indebido de insignias o títulos
+Será castigado con multa menor en cualquiera de sus grados, el que públicamente lleve insignias o distintivos de un cargo que no tenga, o se arrogue grados académicos o títulos profesionales que no le correspondan conforme a las leyes de la República.
+Si el culpable no se arrogare el grado académico o título profesional por mera ostentación, sino para recomendarse en el ejercicio del oficio o profesión a que se refieran, la pena se aplicará en su máximum.

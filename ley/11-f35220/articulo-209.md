@@ -1,0 +1,5 @@
+Artículo 209
+En caso de Homicidio
+Si se tratare de homicidio, el importe de la reparación del daño se fijará atendiendo a las siguientes reglas:
+1.° Si el occiso fuere un padre de familia o fuere su esposa, comprenderá el pago al cónyuge sobreviviente, o en su defecto a los hijos, y a falta de éstos, a los nietos, de una pensión mensual equivalente a la suma que en la condición y capacidades del interfecto, podría él proporcionar cada mes a su familia, o en que deba apreciarse la asistencia familiar, si se tratare de la esposa, durante todo el tiempo que transcurra mientras el menor de los hijos, o en su caso, los nietos, no llegue a su mayor edad. Dicha pensión no podrá bajar nunca de sesenta colones mensuales.
+2.° Si el homicidio se cometiere en persona soltera o viuda y sin hijos, ni nietos, la reparación se cumplirá pagando el penado a los herederos del ofendido una suma que debe regularse teniendo en cuenta la fortuna del reo y las necesidades de dichos herederos, sin que pueda ser inferior a mil colones.
