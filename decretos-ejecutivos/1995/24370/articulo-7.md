@@ -1,0 +1,1 @@
+Artículo 7°—Para los efectos pertinentes, se tiene como aprobado el denominado "Manual de Operaciones Portuarias", elaborado por la Dirección General de Transporte Marítimo, como instrumento técnico a disposición de cualquier interesado, debidamente foliado y sellado, en la citada dependencia técnica.
