@@ -1,2 +1,1 @@
-Artículo 8º.- Créase el Departamento de la Habitación de la Caja Costarricense de Seguro Social, para la Ejecución de la presente ley, según lo disponga la Junta Directiva y el Reglamento.
-El Jefe y demás personal serán nombrados y actuarán conforme a las normas que rigen los demás Departamentos de la Caja.
+Artículo 8º.- (Derogado por el artículo 47 de la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo INVU, N° 1788 del 24 de agosto de 1954, que expresamente dispone: "Artículo 47.-Deróganse expresamente: la ley Nº 148 de 8 de agosto de 1945 que traspasa a la Caja Costarricense de Seguro Social obligaciones y haberes de la Junta Nacional de la Habitación, excepto el inciso 1) del artículo 4º;...")
