@@ -9,5 +9,6 @@ Considerando:
 Por tanto,
 DECRETAN:
 Artículo 1°—Agrégase al artículo 4° del decreto No 9306-G, del 6 de noviembre de 1978, publicado en "La Gaceta" N° 236 del 12 de diciembre de 1978, el texto siguiente:
-"Las escrituras de compra de mejoras o de fincas serán efectuadas por la Comisión de Emergencia Nacional según el mecanismo utilizado por la Comisión anterior; firmarán el Presidente, el Secretario, dos miembros más de la Comisión, y un abogado quien hará el protocolo de dichas escrituras".
+"Las escrituras de compra de mejoras o de fincas, serán efectuadas por la Comisión de Emergencia Nacional Reservas Indígenas, CENRI, según su procedimiento usual; firmarán el Presidente, el Tesorero y el Secretario de la Comisión; las escrituras serán luego validadas por el Procurador Agrario de la República, quien le dará también trámite a todas las escrituras anteriores".
+(Así reformado el párrafo anterior mediante el artículo 2° del decreto ejecutivo N° 12830 del 24 de julio de 1981).
 En estas escrituras, la propiedad de las mejoras y fincas adquiridas a través de la Comisión, se traspasará directamente a la Reserva Indígena correspondiente, la cual será representada por su Asociación de Desarrollo Integral, quien tiene personería jurídica".

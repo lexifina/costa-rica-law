@@ -14,3 +14,4 @@ Reforma Decreto que Declara Zona de Emergencia Nacional las Reservas Indígenas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-05-30 | la propia norma |
+| 2 | 1981-07-24 | Decreto Ejecutivo 12830 (1981-07-24) |
