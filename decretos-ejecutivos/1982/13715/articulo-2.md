@@ -1,0 +1,1 @@
+Artículo 2°-El presente decreto deroga los Decretos Ejecutivos Nos. 10834-C-SPPS.-TSS-E-OP, publicado en "La Gaceta" del 1° de febrero de 1980 y 12248-C-SPPS-TSS-E, publicado en "La Gaceta" del 29 de enero de 1981.
