@@ -1,1 +1,0 @@
-Artículo l7.—Como ejecutor de los acuerdos de la Junta Directiva, el Director General velará por el cumplimiento de los pronunciamientos de ese organismo; deberá tomar todas las providencias necesarias para el buen funcionamiento del Archivo Nacional.

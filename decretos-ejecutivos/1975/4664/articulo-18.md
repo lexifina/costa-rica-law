@@ -1,1 +1,0 @@
-Artículo 18.—La asistencia a las sesiones es obligatoria para los Directores y su no presencia debe justificarse oportunamente. Tres inasistencias sin justificar, son causal suficiente para perder su credencial de miembro de la Junta. En tal caso de inmediato la Junta debe comunicar al organismo correspondiente el hecho, para efecto de que sea nombrado el nuevo miembro.
