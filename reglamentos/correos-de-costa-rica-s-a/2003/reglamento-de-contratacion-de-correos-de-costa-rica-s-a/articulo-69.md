@@ -1,0 +1,7 @@
+Artículo 69.—Fuerza mayor, caso fortuito, proveedor exclusivo, proveedor único y extrema urgencia. Para optar por los supuestos de fuerza mayor, caso fortuito, proveedor exclusivo, proveedor único y extrema urgencia, se tomará en consideración los siguientes conceptos:
+Fuerza mayor: Se entiende por fuerza mayor a aquel acontecimiento que no ha podido preverse o que previsto y que impide hacer lo que se debía o era posible y lícito, ajeno a las fuerzas naturales.
+Caso fortuito: Aquel evento proveniente de la naturaleza, que no se puede prever ni resistir, producido con independencia de la voluntad del hombre.
+Proveedor exclusivo: Aquella circunstancia en donde solamente existe una persona física o jurídica que tenga la exclusividad por la naturaleza del objeto a contratar, de brindar un bien, obras o servicios.
+Proveedor único: Cuando el objeto a contratar solo pueda ser adquirido a través de un único oferente y no exista otro medio para satisfacer las necesidades de Correos.
+Extrema urgencia: Situación en la cual atendiendo a las circunstancias de la necesidad de la adquisición del bien o servicio y con el fin de evitar un daño al patrimonio del contrato como al servicio que se presta, se podrá contratar directamente con un solo proveedor.
+En todo caso para optar por los supuestos señalados en este artículo será necesaria la motivación del acto en una resolución firmada por la Gerencia General o la Junta Directiva, según corresponda, utilizando para la determinación de la competencia los montos señalados para la contratación general y especial.

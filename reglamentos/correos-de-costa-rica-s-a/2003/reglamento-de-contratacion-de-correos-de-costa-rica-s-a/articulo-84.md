@@ -1,0 +1,1 @@
+Artículo 84.—De la recomendación. Atendiendo al procedimiento adoptado, la recomendación de la aplicación de una sanción corresponderá al Departamento Legal, el cual deberá garantizar el debido proceso al Contratista.

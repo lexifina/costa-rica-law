@@ -1,0 +1,3 @@
+Artículo 72.—Venta de bienes muebles e inmuebles. En atención a la naturaleza del bien, Correos venderá mediante este procedimiento, tanto activos fijos muebles como inmuebles y otros bienes.
+Cuando lo que se desee vender sean activos fijos, la adjudicación corresponde a la Junta Directiva, para lo cual se seguirá el procedimiento en lo que le sea aplicable, de la contratación general.
+Cuando sean otros bienes, el procedimiento a seguir, en lo que le sea aplicable, será el de la contratación especial.

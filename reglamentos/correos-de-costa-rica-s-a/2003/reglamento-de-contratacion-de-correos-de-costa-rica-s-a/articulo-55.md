@@ -1,0 +1,3 @@
+Artículo 55.—Selección. Posterior al acto de apertura, Correos procederá al análisis de las ofertas, y podrá conceder un plazo de tres días ocho días hábiles para que se subsane los defectos que se indiquen, siempre que con ello no se modifique su contenido de acuerdo a lo solicitado en el Requerimiento.
+Si la prevención para subsanar no es atendida en tiempo, Correos procederá a descalificar la oferta de que se trate, en los casos que el defecto a subsanar sea indispensable para la admisibilidad de la oferta.
+Luego de establecido cuales ofertas son elegibles, Correos procederá a la calificación de éstas, de acuerdo con los parámetros establecidos para la contratación.

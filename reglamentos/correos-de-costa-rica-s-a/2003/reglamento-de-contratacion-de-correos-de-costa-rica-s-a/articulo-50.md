@@ -1,0 +1,1 @@
+Artículo 50.—Vigencia de la oferta. Por el solo hecho de su presentación, se entiende que la oferta se somete al plazo de vigencia indicado en el Requerimiento, o en ausencia de este, por el plazo previsto para dictar el acto de adjudicación.

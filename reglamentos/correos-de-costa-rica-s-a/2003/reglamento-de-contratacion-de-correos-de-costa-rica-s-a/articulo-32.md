@@ -1,0 +1,1 @@
+Artículo 32.—Posibilidad de cesión. En cualquier caso en que el contratista requiera ceder sus obligaciones contractuales, deberá obtener de previo la autorización de parte de la Gerencia General o la Junta Directiva según corresponda.

@@ -1,0 +1,1 @@
+Artículo 56.—De las mejoras y descuentos. Las mejoras y descuentos que fueren sometidas a Correos en la oferta y después de la apertura respectiva, no serán tomadas en cuenta en la valoración de las propuestas, pero obligarán a quienes la formulen una vez firme la adjudicación.

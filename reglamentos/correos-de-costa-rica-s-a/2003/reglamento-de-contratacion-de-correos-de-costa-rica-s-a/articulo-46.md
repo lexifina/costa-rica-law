@@ -1,0 +1,1 @@
+Artículo 46.—Modificaciones y aclaraciones al Requerimiento. Las modificaciones o aclaraciones al Requerimiento deberán hacerse del conocimiento de los interesados a través del medio de comunicación que Correos considere oportuno, estos se incorporarán al expediente respectivo.
