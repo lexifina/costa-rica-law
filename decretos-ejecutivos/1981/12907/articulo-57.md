@@ -1,49 +1,28 @@
-Artículo 57: Los requisitos para la inscripción en el Registro de Variedades
-Comerciales son:
-a) Que se haya comprobado en los ensayos oficiales de identificación que la
-variedad es distinta, homogénea y estable. La Oficina Nacional de Semillas
-determinar los protocolos de realización de estos ensayos, así como los
-descriptores varietales que se deberán utilizar en cada especie.
-b) Poseer un valor agronómico comprobado en el menos tres
-ciclos agrícolas, de ensayos comparativos de campo, que correspondan a la
-misma ‚poca de siembra. Los protocolos de realización de estos
-ensayos serán determinados por la Oficina Nacional de Semillas que coordinar y
-supervisar el desarrollo y realización de los mismos recibiendo los
-resultados para su estudio y análisis.
-Para las variedades destinadas exclusivamente a la
-exportación, así como para aquellas especies y variedades que determine la
-Oficina Nacional de Semillas, no ser precisa la comprobación del valor
-agronómico a nivel nacional.
-c) La denominación con que quede inscrita la variedad debe
-ser distinta de la asignada a cualquier otra variedad de la misma especie
-o especies próximas que estén o hayan estado inscritas en el Registro de
-Variedades Comerciales.
-Si la variedad ha sido obtenida en el extranjero debe ser en lo posible de la
-misma con la que figure inscrita, o se conozca, en el país de origen. La
-Oficina Nacional de Semillas determinar si la
-denominación propuesta es aceptada. Ser obligatorio utilizar la denominación con
-que la variedad quede inscrita en el Registro, en cualquier proceso de
-producción y/o comercialización de material correspondiente a la misma.
-d) Al término de los ensayos de identificación y valor
-agronómico, cuando requieran los correspondientes a una variedad, se dará
-conocimiento de los resultados al comité calificador respectivo, que tras
-estudiarlos recomendará, si procede, la inclusión de la variedad en el Registro.
-La inscripción en el Registro de Variedades Comerciales la hará la Oficina
-Nacional de Semillas, conforme con el siguiente procedimiento.
-1) Conocidos los resultados de los ensayos del primer
-año, si estos fueran promisorios la Oficina Nacional de Semillas podrá
-conceder la inscripción provisional de la variedad en cuestión, que supondrá
-una autorización para la utilización de cantidades limitadas de material de
-la variedad destinado a la realización de pruebas semicomerciales. Estas
-cantidades serán determinadas en cada caso por la Oficina Nacional de Semillas.
-Mientras tanto, se continuar la realización de los ensayos requeridos
-hasta su finalización.
-2) La inscripción de una variedad en el Registro obliga
-al solicitante a mantener la variedad de acuerdo con las características con que
-ha quedado inscrita.
-La Oficina Nacional de Semillas realizar los controles precisos para verificar
-la conservación.
-3) El solicitante de una inscripción quedar obligado al pago del canon correspondiente
-a los servicios prestados por concepto de realización de ensayos
-oficiales de identificación.
-(Así reformado por Decreto Ejecutivo N° 19323 del 31 de octubre de 1989)
+Artículo 57.—El trámite de inscripción de una variedad en el Registro de Variedades Comerciales se iniciará con la presentación de una solicitud la cual tendrá el carácter de declaración jurada, acompañada de la información y documentos anexos respectivos. Las solicitudes de inscripción deberán ser suscritas por el obtentor o su causahabiente, representante legal en Costa Rica o un patrocinante.
+Cuando se trate de un solicitante extranjero no radicado en Costa Rica, deberá acreditar un representante, persona natural o jurídica con domicilio legal en el país.
+La inscripción de variedades de dominio público o de obtentor no reconocido, podrá hacerse de oficio por Instituciones Nacionales de Investigación o mediante iniciativa de terceros. En casos muy calificados de interés nacional, la Oficina Nacional de Semillas podrá de oficio proceder a la inscripción de estas variedades.
+Toda solicitud deberá presentarse ante la Oficina Nacional de Semillas en los formularios que para tal efecto se faciliten. Tanto la solicitud de inscripción como sus anexos y documentación complementaria deberá presentarse en idioma español o en su defecto contará con su traducción.
+El formulario de solicitud de inscripción comprenderá como mínimo la siguiente información:
+a) Nombre y dirección del solicitante.
+b) Nombre y dirección del obtentor o su causahabiente.
+c) Clasificación botánica (género, especie, subespecie o variedad botánica).
+d) Denominación varietal propuesta.
+e) País de origen donde fue obtenida la variedad.
+f) Método de obtención (selección, hibridación, mutación, transgénesis, etc.).
+g) Información en caso de estar inscrita o en proceso de inscripción en registros o en listas de otros países.
+Documentos que se deben adjuntar:
+I. Historial del proceso de evaluación y selección de la variedad.
+II. Informe de los resultados de validación agronómica realizados (valor agronómico).
+III. Descripción de la variedad.
+IV. Informe del evento de transformación (si la variedad es organismo genéticamente modificado).
+V. Indicación de las condiciones agroecológicas, zonas y épocas de siembra más adecuadas para el cultivo de la variedad.
+VI. Información complementaria (fotografías, diagramas, dibujos, material vegetal, etc.).
+VII. Descripción del manejo agronómico con que fue obtenida la información.
+Para las variedades de especies ornamentales y las que en su oportunidad determine la Oficina Nacional de Semillas, se podrá establecer un sistema facilitado de registro, pudiéndose convalidar información foránea extrapolable o no requerirse la presentación de resultados de pruebas de valor agronómico efectuados en el país.
+Si la solicitud de inscripción no se ha presentado de acuerdo con lo que se establece en este Reglamento y en los reglamentos específicos para cada especie o grupo de especies si fuera el caso, la Oficina Nacional de Semillas determinará un plazo perentorio para completar la información requerida, pasado el cual y si no se cumple con lo solicitado, se dará por rechazada.
+Recibida la solicitud de inscripción de la variedad, se deberá pagar la tarifa correspondiente, debiendo el solicitante adjuntar a la misma el comprobante de pago respectivo.
+La inscripción de una variedad en el Registro de Variedades Comerciales, se realizará por acuerdo de la Junta Directiva de la Oficina Nacional de Semillas, a propuesta del Director Ejecutivo, visto el informe remitido por el Departamento Técnico de la Oficina, posterior al examen de la solicitud y de la información aportada.
+La Oficina Nacional de Semillas podrá conceder, con base en los resultados del primer ciclo de validación en el país, una inscripción provisional de la variedad solicitada, por un periodo de dos años. Cumplido este periodo y en caso de que la variedad haya evidenciado un comportamiento satisfactorio o se aporte información adicional generada en el país antes de este plazo, podrá otorgarse la inscripción definitiva si así correspondiese.
+Se podrá aportar información generada en el exterior sobre la descripción varietal así como de otros países con condiciones agroecológicas similares a las de Costa Rica en lo que respecta al valor agronómico y/o de uso, a efectos de agilizar el proceso de inscripción y reducir el tiempo de validación en el país.
+La Oficina Nacional de Semillas publicará anualmente la lista de variedades comerciales de los diferentes cultivos; en los casos de inscripción provisional, la variedad aparecerá en la lista con esa indicación. Cuando se apruebe o rechace la inscripción de una variedad o se excluya una variedad ya inscrita, se comunicará tal resolución al solicitante y publicará oficialmente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31736 del 03 de marzo de 2004)

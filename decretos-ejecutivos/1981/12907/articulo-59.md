@@ -1,4 +1,9 @@
-Artículo 59.-Las variedades de semilla que hayan perdido sus condiciones , en
-virtud de las cuales fueron inscritas o fueren claramente superadas por otras
-nuevas,
-serán eliminadas del Registro de Variedades.
+Artículo 59.—Se anulará la inscripción de una variedad si:
+a) Se comprueba que se ha aportado información falsa o fraudulenta para su inscripción.
+b) Se determina que la variedad inscrita ha dejado de ser distinta, estable o suficientemente homogénea.
+c) El propio obtentor, su causahabiente o derechohabiente lo solicita.
+d) No se paguen las tarifas correspondientes.
+e) Expira el plazo de solicitud de renovación del registro sin haberse efectuado tal solicitud.
+f) Se comprueba que la variedad ha perdido sus condiciones, en virtud de las cuales fue inscrita. Principalmente cuando se determina que la variedad es severamente afectada por plagas o enfermedades nuevas para el cultivo, o que pueda favorecer su diseminación.
+g) Una variedad que ha sido inscrita en carácter de provisionalidad, denota algún comportamiento o condición desfavorables no evidenciados inicialmente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31736 del 03 de marzo de 2004)

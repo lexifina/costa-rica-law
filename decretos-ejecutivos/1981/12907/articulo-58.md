@@ -1,8 +1,5 @@
-Artículo 58.-La Oficina Nacional de Semillas establecerá para cada especie
-un manual de inscripción en el que se detallarán y
-especificarán los procedimientos, ensayos y requisitos exigidos para la correspondiente
-especie.
-La Oficina Nacional de Semillas crear los comités calificadores de variedades
-de cada cultivo y tendrá como función básica, emitir opinión
-indicativa acerca de la aprobación de variedades.
-(Así reformado por Decreto Ejecutivo N° 19323 del 31 de octubre de1989)
+Artículo 58.—Las variedades de origen centroamericano que a la fecha de la presentación de la solicitud de inscripción, se encuentren inscritas en algún registro oficial de variedades en cualquiera de los países del istmo, podrán optar por la convalidación o reconocimiento del Registro de Variedades Comerciales, con solo un ciclo adicional de validación en el ámbito nacional. Igualmente se aceptará para efectos de registro la información de evaluaciones realizadas a través de organismos regionales de investigación.
+La Oficina Nacional de Semillas podrá conformar Comités Calificadores de Variedades para determinadas especies o grupos de especies, cuya integración estará fundamentada en los conocimientos, especialización o reconocida competencia de sus miembros en cada uno de esos cultivos. La función de estos Comités es la de asesorar a la Oficina en materia de registro varietal y asuntos relacionados. La Oficina Nacional de Semillas podrá someter a conocimiento del Comité Calificador de Variedades respectivo las solicitudes de inscripción de variedades comerciales, el cual emitirá los informes con las recomendaciones correspondientes.
+Los ensayos y trabajos tendientes a la identificación y determinación del valor agronómico y de uso de las variedades para su posible inscripción en el Registro de Variedades Comerciales podrán ser realizados por el solicitante, instituciones de investigación u otros organismos nacionales o internacionales públicos o privados; estos ensayos deberán ser avalados por ingenieros agrónomos debidamente incorporados al colegio profesional respectivo. La Oficina Nacional de Semillas podrá llevar a cabo inspecciones de seguimiento de estas evaluaciones si así se estima pertinente.
+En situaciones muy calificadas de interés nacional a criterio del Ente Rector en materia agrícola, se podrán inscribir en el registro, variedades notoriamente conocidas, con referencias técnicas de su uso en otros países con ambientes similares al de Costa Rica, aunque no cuenten con una validación nacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31736 del 03 de marzo de 2004)

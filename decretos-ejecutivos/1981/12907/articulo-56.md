@@ -1,37 +1,10 @@
-Registro de variedades:
-Artículo 56.-Las variedades obtenidas por los sectorespúblico y privado,
-nacional o extranjero, para propósitos de certificación y/o
-comercialización en cualquiera de las categorías de semilla en el país, deberán
-ser inscritas en el Registro de Variedades Comerciales de la Oficina Nacional
-de Semillas.
-1) Para iniciarse los trámites de inscripción se deber
-presentar ante la Oficina Nacional de Semillas por el obtentor de la variedad, su
-causahabiente o su representante, una solicitud en los términos específicos
-en el formulario que para tal efecto facilitar dicha Oficina y que
-contendrá la siguiente información:
-a) Nombre o razón social del solicitante.
-b) Dirección del solicitante.
-c) Nombre o razón social del obtentor.
-d) Dirección del obtentor.
-f) Especie botánica.
-g) Nombre o designación propuesta para la variedad.
-h) Lugar de obtención.
-i) Método de obtención y genealogía de la variedad.
-j) Descripción del procedimiento a utilizar en la conservación de la variedad.
-k) Información sobre ensayos a que se ha sometido la variedad.
-l) Información sobre la situación de la variedad en registros de otros países,
-si la hubiere.
-m) Indicación de las condiciones agroecológicas y ‚poca
-de siembra más adecuada para el cultivo de la variedad.
-n) Descripción de la variedad utilizando el formulario
-que a tal efecto facilite la Oficina Nacional de Semillas.
-2) Cuando se trate de un obtentor o causahabiente extranjero no radicado en
-Costa Rica, se precisar la actuación de un representante con domicilio
-legal en el país, que deberá entregar un poder otorgado
-por el obtentor o causahabiente, debidamente identificado.
-3) El solicitante deberá suministrar a la Oficina Nacional de Semillas el material
-genético que se desea inscribir para efectuar los ensayos de evaluación
-agronómica y/o de identificación así como para el
-mantenimiento de una muestra de referencia. La Oficina Nacional de Semillas
-determinar las cantidades necesarias para cada especie.
-(Así reformado por Decreto Ejecutivo N° 19323 del 31 de octubre de 1989)
+Registro de variedades comerciales
+Artículo 56.—Se inscribirán en el Registro de Variedades Comerciales las variedades que reuniendo las condiciones técnicas y legales establecidas en la Ley de Semillas, este Reglamento y normas complementarias que se determinen para tal fin, posean un valor agronómico de uso comercial. No será necesario la inscripción cuando se trate de variedades cuya semilla se destinará exclusivamente a la exportación, excepto cuando se trate de semilla certificada, en cuyo caso se requerirá únicamente de la descripción varietal para efectos de registro, información que serviría de referencia para las inspecciones de campo dentro del sistema de certificación.
+En las especies en las que se haya establecido el Registro de Variedades Comerciales, solo podrán producirse e importarse con fines comerciales, semilla de aquellas variedades inscritas en este Registro.
+Para la inscripción en el Registro de Variedades Comerciales, la variedad candidata debe cumplir con los siguientes requisitos:
+a) Distinta de las variedades que están inscritas en el Registro o lo estuvieron anteriormente. Se exceptúan los casos de reinscripciones de variedades cuando a solicitud del interesado o por la misma Oficina se juzgue conveniente. Se considera que una variedad es distinta, si se diferencia claramente por uno o más caracteres importantes y de poca fluctuación, de cualquier otra variedad inscrita o en proceso de inscripción en el Registro de Variedades Comerciales.
+b) Homogénea. Se considera que una variedad es homogénea, si los individuos que la componen, con exclusión de los tipos aberrantes cuyo número debe mantenerse dentro de límites razonables, son semejantes para el conjunto de caracteres que la definan, teniendo en cuenta las particularidades de su sistema de reproducción sexual o multiplicación vegetativa.
+c) Estable. Se considera que una variedad es estable, si después de reproducciones o multiplicaciones sucesivas, o al final de un ciclo particular de reproducción o multiplicación -cuando se haya definido tal ciclo-, permanece conforme con la descripción en cuanto a sus caracteres esenciales.
+d) Poseer valor agronómico o de uso comprobado durante un mínimo de dos ciclos de pruebas en las zonas agroecológicas más representativas, o ambientes de uso, salvo las excepciones indicadas en este Reglamento.
+Se considera que una variedad es de valor agronómico o de uso comercial, si en comparación con otras variedades inscritas en el Registro de Variedades Comerciales, representa para el conjunto de sus cualidades, por lo menos al cultivarse en una zona o ambiente determinados, un valor que sea como mínimo similar al de otras variedades registradas, ya sea en relación con su cultivo, a su productividad, utilización, calidad o productos derivados. La inferioridad en alguno de sus caracteres puede quedar compensada por otros que se presenten como favorables.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31736 del 03 de marzo de 2004)
