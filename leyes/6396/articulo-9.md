@@ -1,0 +1,1 @@
+Artículo 9º.- Para todos los efectos legales, se tendrá por derogado el Decreto Ley Nº 716 de 14 de setiembre de 1949 que creó la Junta Administrativa de Servicios Eléctricos Municipales de Alajuela y sus modificaciones posteriores, así como la ley Nº 4408 del 31 de agosto de 1969, en el momento en que se llenen a cabalidad las precisiones del artículo segundo de la presente ley.
