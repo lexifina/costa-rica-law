@@ -1,5 +1,3 @@
-CAPÍTULO XXVIII
-DISPOSICIONES FINALES Y TRANSITORIAS
-ARTÍCULO 109.- El Centro Nacional de Prevención contra Drogas podrá
-nombrar de su propio seno subcomisiones asesoras o integradas por personas
-que no son miembros del Consejo.
+SECCIÓN II
+Dirección General
+Artículo 109.—La Dirección General es un órgano subordinado del Consejo Directivo; estará a cargo de un director general y de un director general adjunto, quienes serán los funcionarios de mayor jerarquía, para efectos de dirección y administración del Instituto. Les corresponderá colaborar, en forma inmediata, con el Consejo Directivo en la planificación, la organización y el control de la Institución; así como en la formalización, la ejecución y el seguimiento de sus políticas. Además, desempeñará las tareas que le atribuyan los reglamentos y le corresponderá incoar las acciones judiciales en la defensa de los derechos del Instituto, cuando lo determine el Consejo Directivo.

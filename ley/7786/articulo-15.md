@@ -1,12 +1,8 @@
-ARTÍCULO 15.- Asimismo, estarán sometidos a esta ley, quienes
-desempeñen, entre otras, las siguientes actividades:
-a) Operaciones sistemáticas o substanciales de canje de dinero y
-transferencias mediante cualquier instrumento, tales como cheques, giros
-bancarios, letras de cambio o similares.
-b) Operaciones sistemáticas o substanciales de emisión, venta,
-rescate o transferencia de cheques de viajero o giro postal.
-c) Transferencias sistemáticas o substanciales de fondos, realizadas
-por cualquier medio.
-d) Captación y colocación de fondos.
-e) Cualquier otra actividad sujeta a la supervisión de las
-autoridades bancarias, bursátiles o financieras.
+Artículo 15.—Estarán sometidos a esta Ley, además, quienes desempeñen, entre otras actividades, las citadas a continuación:
+a) Operaciones sistemáticas o substanciales de canje de dinero y transferencias mediante instrumentos, tales como cheques, giros bancarios, letras de cambio o similares.
+b) Operaciones sistemáticas o substanciales de emisión, venta, rescate o transferencia de cheques de viajero o giros postales.
+c) Transferencias sistemáticas substanciales de fondos realizadas por cualquier medio.
+d) Administración de fideicomisos o de cualquier tipo de administración de recursos efectuada por personas físicas o jurídicas que no sean intermediarios financieros.
+Las personas físicas o jurídicas que desempeñen las actividades indicadas en los incisos anteriores y no se encuentren supervisadas por alguna de las superintendencias existentes en el país, deberán inscribirse ante la SUGEF, sin que por ello se interprete que están autorizadas para operar; además, deberán someterse a la supervisión de esta respecto de la materia de legitimación de capitales, establecida en esta Ley. La inscripción será otorgada por el Consejo Nacional de Supervisión del Sistema Financiero, previo dictamen afirmativo de esa Superintendencia, cuando se cumplan las disposiciones legales y reglamentarias aplicables. Las municipalidades del país no podrán extender nuevas patentes ni renovar las actuales para este tipo de actividades, si no se ha cumplido el requisito de inscripción indicado.
+La SUGEF, la SUGEVAL y la SUPEN, según corresponda, deberán velar porque no operen, en el territorio costarricense, personas físicas o jurídicas, cualquiera que sea su domicilio legal o lugar de operación que, de manera habitual y por cualquier título, realicen sin autorización actividades como las indicadas en este artículo.
+Cuando, a juicio del Superintendente, existan motivos de que una persona física o jurídica está realizando alguna de las actividades mencionadas en este artículo, la Superintendencia tendrá, respecto de los presuntos infractores, las mismas facultades de inspección que le corresponden, según esta Ley, respecto de las instituciones sometidas a lo dispuesto en este título, en lo referente a legitimación de capitales.

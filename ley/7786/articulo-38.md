@@ -1,11 +1,5 @@
-ARTÍCULO 38.- Al ingresar al país o salir de él, toda persona
-nacional o extranjera estará obligada a presentar y declarar el dinero en
-efectivo que porte, si la cantidad superare los diez mil dólares
-estadounidenses (US$10.000,00) o su equivalente en otra moneda; asimismo,
-deberá declarar los títulos valores que porte por un monto superior a los
-cincuenta mil dólares estadounidenses (US$50.000,00). Para tal efecto,
-deberá emplear los formularios oficiales elaborados con este fin, los
-cuales serán puestos a su disposición por la Dirección General de Aduanas,
-en los puestos migratorios. La manifestación se hará en la fórmula de
-declaración jurada y los formularios serán remitidos al Centro de
-Inteligencia Conjunto Antidrogas, para el análisis correspondiente.
+CAPÍTULO II
+Licencias e Inscripciones
+Artículo 38.—Con la finalidad de que se conozcan la naturaleza y el alcance de las actividades que desarrollan, las personas físicas o jurídicas dedicadas a alguna de las actividades enumeradas en el artículo 36 de esta Ley, deberán:
+a) Someter sus establecimientos al control, la inspección y la fiscalización del Instituto Costarricense sobre Drogas, cuando este lo determine necesario.
+b) Inscribir sus establecimientos en dicho Instituto e indicar la naturaleza del negocio y las actividades que realiza, así como el nombre y las calidades del responsable legal y del regente profesional, si la empresa está legalmente obligada a contar con los servicios de regencia.

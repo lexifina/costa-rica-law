@@ -1,11 +1,4 @@
-ARTÍCULO 93.- El Centro Nacional de Prevención contra Drogas contará
-con un fondo rotatorio para la consecución de sus fines, que estará
-constituido por:
-a) Los recursos que se le asignen anualmente en los presupuestos
-ordinarios y extraordinarios de la República. Se autoriza al Consejo para
-gestionar, ante el Poder Ejecutivo, las partidas que considere necesarias
-para la consecución de los fines del Centro.
-b) Los recursos y las asignaciones presupuestarias autorizados por
-esta ley, para el cumplimiento de los fines del Centro.
-c) Las donaciones internacionales que reciba.
-d) Cualquier otro recurso que pueda percibir.
+CAPÍTULO III
+Terceros de Buena Fe
+Artículo 93.—Las medidas y sanciones referidas en los artículos precedentes a este capítulo, se aplicarán sin perjuicio de los derechos de los terceros de buena fe.
+Conforme a derecho, se les comunicará la posibilidad de apersonarse en el proceso, a fin de que hagan valer sus derechos, a quienes puedan alegar interés jurídico legítimo sobre los bienes, productos o instrumentos.

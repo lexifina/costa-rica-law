@@ -1,1 +1,2 @@
-Texto no disponible
+Artículo 61.—Se impondrá pena de prisión de tres a diez años a quien, mediante promesa remunerada, exhorte a un funcionario público para que procure, por cualquier medio, la impunidad o evasión de las personas sujetas a investigación, indiciadas o condenadas por la comisión de alguno de los delitos tipificados en esta Ley.
+Igual pena se impondrá a quien altere, oculte, sustraiga o haga desaparecer los rastros, las pruebas o los instrumentos de esos delitos, o asegure el provecho o producto de tales actos.

@@ -1,7 +1,1 @@
-ARTÍCULO 4.- Es deber de todas las personas colaborar con la
-prevención y la represión de los delitos y el consumo ilícito de drogas y
-demás sustancias citadas en esta ley. El Estado está obligado a procurar
-la seguridad y las garantías para proteger a quienes brinden la
-colaboración mencionada en este artículo, incluso los programas de
-protección a testigos, que estarán a cargo del Ministerio de Seguridad
-Pública.
+Artículo 4º—Todas las personas deben colaborar a la prevención y represión de los delitos y el consumo ilícito de las drogas y las demás sustancias citadas en esta Ley; asimismo, de delitos relacionados con la legitimación de capitales provenientes de delitos graves. El Estado tiene la obligación de procurar la seguridad y las garantías para proteger a quienes brinden esta colaboración; los programas de protección de testigos estarán a cargo del Ministerio de Seguridad Pública.

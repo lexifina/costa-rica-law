@@ -1,13 +1,6 @@
 CAPÍTULO X
-PROGRAMAS DE CUMPLIMIENTO OBLIGATORIO POR
-PARTE DE LAS INSTITUCIONES FINANCIERAS
-ARTÍCULO 28.- Las instituciones sometidas a lo dispuesto en este
-capítulo, bajo las regulaciones y la supervisión citada en este capítulo,
-deberán adoptar, desarrollar y ejecutar programas, normas, procedimientos
-y controles internos para prevenir y detectar los delitos tipificados en
-esta ley. Estos programas incluirán, como mínimo:
-a) El establecimiento de procedimientos para asegurar un alto nivel
-de integridad del personal y un sistema para evaluar los antecedentes
-personales, laborales y patrimoniales del programa.
-b) Programas permanentes de capacitación del personal y de
-instrucción en cuanto a las responsabilidades establecidas en esta ley.
+Obligaciones de las Autoridades Competentes
+Artículo 28.—Conforme a derecho, los órganos dotados de potestades de fiscalización y supervisión tendrán, entre otras obligaciones, las siguientes:
+a) Vigilar el cumplimiento efectivo de las obligaciones de registro y notificación señaladas en esta Ley.
+b) Dictar los instructivos y determinar el contenido de los formularios para el registro y la notificación de las operaciones indicadas en el artículo 20 de esta Ley, a fin de presentar las recomendaciones que apoyen a las instituciones financieras en la detección de patrones sospechosos en la conducta de sus clientes. Estas pautas tomarán en cuenta técnicas modernas y seguras para el manejo de activos y servirán como elemento educativo para el personal de las instituciones financieras.
+c) Cooperar con las autoridades competentes y brindarles asistencia técnica, en el marco de las investigaciones y los procesos referentes a los delitos tipificados en esta Ley.

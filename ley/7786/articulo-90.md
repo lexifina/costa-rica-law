@@ -1,10 +1,2 @@
-ARTÍCULO 90.- Cuando las autoridades policiales decomisen marihuana,
-cocaína, heroína o cualquier otra droga a las que se refiere esta ley, de
-inmediato la pondrán a disposición de la autoridad judicial competente
-para que la Sección de Investigaciones Físico Químicas del Organismo de
-Investigación Judicial tome las muestras de cantidad y peso, así como
-cualquier otra circunstancia útil a la investigación.
-Realizado lo anterior, la autoridad judicial competente podrá ordenar
-la destrucción de la droga incautada. De no ordenarse, la destrucción, la
-droga deberá entregarse al Organismo de Investigación Judicial para su
-custodia y posterior destrucción.
+Artículo 90.—Si transcurrido un año del decomiso del bien no se puede establecer la identidad del autor o partícipe del hecho o este ha abandonado los bienes de interés económico, los elementos y los medios de transporte utilizados, la autoridad competente ordenará el comiso definitivo de dichos bienes, los cuales pasarán a la orden del Instituto para los fines previstos en esta Ley.
+Asimismo, cuando transcurran más de tres meses de finalizado o cerrado el proceso penal sin que quienes puedan alegar interés jurídico legítimo sobre los bienes de interés económico utilizados en la comisión de los delitos previstos en esta Ley, hayan hecho gestión alguna para retirarlos, la acción del interesado para interponer cualquier reclamo caducará, y el Instituto podrá disponer de los bienes, previa autorización del tribunal que conoció de la causa. Para tales efectos, se seguirá lo dispuesto en el artículo 89 de esta Ley.

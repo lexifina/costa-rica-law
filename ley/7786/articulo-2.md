@@ -1,13 +1,2 @@
-ARTÍCULO 2.- El comercio, el expendio, la industrialización, la
-fabricación, la refinación, la transformación, la extracción, el análisis,
-la preparación, el cultivo, la producción, la importación, la exportación,
-el transporte, la prescripción, el suministro, el almacenamiento, la
-distribución y la venta de drogas, sustancias o productos referidos en
-esta ley, así como de sus derivados y especialidades, serán actividades
-limitadas estrictamente a las cantidades necesarias para el tratamiento
-médico, los análisis toxicológicos y químicos, el entrenamiento de los
-animales detectores utilizados por los cuerpos de policía, los análisis
-farmacocinéticos, en materia médica o deportiva, para elaborar y producir
-legalmente los medicamentos y otros productos de uso autorizado o para las
-investigaciones. Solo las personas legalmente autorizadas podrán
-intervenir en todo lo relacionado con tales sustancias.
+Artículo 2º—El comercio, el expendio, la industrialización, la fabricación, la refinación, la transformación, la extracción, el análisis, la preparación, el cultivo, la producción, la importación, la exportación, el transporte, la prescripción, el suministro, el almacenamiento, la distribución y la venta de drogas, sustancias o productos referidos en esta Ley, así como de sus derivados y especialidades, serán actividades limitadas estrictamente a las cantidades necesarias para el tratamiento médico, los análisis toxicológicos y químicos, el entrenamiento de los animales detectores utilizados por los cuerpos de policía y los análisis fármaco-cinéticos en materia médica o deportiva; para elaborar y producir legalmente medicamentos y otros productos de uso autorizado, o para investigaciones. Solo las personas legalmente autorizadas podrán intervenir en todo lo relacionado con tales sustancias.
+Es deber de los profesionales autorizados prescribir los estupefacientes y psicotrópicos usados en la práctica médica o veterinaria, utilizar los formularios oficiales que facilitarán el Ministerio de Salud y el de Agricultura y Ganadería, según corresponda, o los que vendan y controlen las corporaciones profesionales autorizadas. Los datos consignados en estas recetas tendrán carácter de declaración jurada.

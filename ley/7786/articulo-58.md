@@ -1,3 +1,2 @@
-ARTÍCULO 58.- El tránsito aduanero y el transbordo de sustancias
-incluidos en estas regulaciones, así como las máquinas y los accesorios,
-estarán sometidos al régimen estatuido en los artículos precedentes.
+Artículo 58.—Se impondrá pena de prisión de ocho a quince años a quien, sin autorización legal, distribuya, comercie, suministre, fabrique, elabore, refine, transforme, extraiga, prepare, cultive, produzca, transporte, almacene o venda las drogas, las sustancias o los productos referidos en esta Ley, o cultive las plantas de las que se obtienen tales sustancias o productos.
+La misma pena se impondrá a quien, sin la debida autorización, posea esas drogas, sustancias o productos para cualquiera de los fines expresados, y a quien posea o comercie semillas con capacidad germinadora u otros productos naturales para producir las referidas drogas.

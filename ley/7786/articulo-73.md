@@ -1,6 +1,2 @@
-ARTÍCULO 73.- Será sancionado con pena de prisión de uno a tres años
-el propietario, directivo, administrador o empleado de las entidades
-financieras supervisadas, así como el representante o empleado del órgano
-de supervisión y fiscalización que, por culpa en el ejercicio de sus
-funciones apreciada por los tribunales, haya facilitado la comisión de un
-delito de legitimación de capitales provenientes del narcotráfico.
+Artículo 73.—Se impondrá pena de prisión de ocho a quince años a quien produzca, fabrique, prepare, distribuya, transporte, almacene, importe o exporte precursores u otros productos químicos incluidos en esta regulación, además de máquinas y accesorios, para utilizarlos en la comisión de alguno de los delitos tipificados en esta Ley.
+La pena será de ocho a veinte años de prisión cuando el delito se cometa mediante la constitución o el empleo de una organización delictiva.

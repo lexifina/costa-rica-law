@@ -1,0 +1,1 @@
+Artículo 133.—El auditor será nombrado por el Consejo Directivo, mediante el voto favorable de dos terceras partes de sus miembros. Permanecerá en el cargo un período de seis años y podrá ser reelegido. Estará sujeto a las mismas limitaciones que la presente Ley y sus Reglamentos establecen para la Dirección General, en cuanto le sean aplicables.

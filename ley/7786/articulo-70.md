@@ -1,5 +1,1 @@
-ARTÍCULO 70.- Será sancionado con pena de prisión de cinco a quince
-años quien aporte, reciba o utilice dinero u otro recurso financiero
-proveniente del tráfico ilícito de drogas, de la legitimación de capitales
-provenientes del narcotráfico o de delitos conexos, con el propósito de
-financiar actividades político electorales o partidarias.
+Artículo 70.—Será sancionado con pena de prisión de uno a tres años el propietario, directivo, administrador o empleado de las entidades financieras, así como el representante o empleado del órgano de supervisión y fiscalización que, por culpa en el ejercicio de sus funciones, apreciada por los tribunales, haya facilitado la comisión de un delito de legitimación de capitales.

@@ -1,0 +1,1 @@
+Artículo 153.—Facúltase al Instituto Costarricense sobre Drogas para que, además de cumplir las disposiciones establecidas en este capítulo, establezca los procedimientos que juzgue pertinentes para la administración, el registro y el control de los fondos transferidos de conformidad con la ley.

@@ -1,14 +1,1 @@
-CAPÍTULO XIII
-PROPÓSITO Y ÁMBITO DE APLICACIÓN
-ARTÍCULO 39.- Las normas contenidas en el presente capítulo controlan
-la producción, la fabricación, la industrialización, la preparación, la
-refinación, la transformación, la extracción, la dilución, la importación,
-la exportación, la distribución, el comercio, el transporte, el análisis,
-el envasado o el almacenamiento de las sustancias que puedan utilizarse
-como precursores o químicos esenciales en el procesamiento de sustancias
-estupefacientes, psicotrópicas o inhalables susceptibles de causar
-dependencia, de conformidad con el artículo 1 de esta ley.
-Además, se controlarán la importación, la comercialización y la
-fabricación de máquinas y accesorios que se utilicen para el entabletado,
-encapsulado y comprimido de estupefacientes, sustancias psicotrópicas u
-otras de efecto semejante.
+Artículo 39.—Los distribuidores mayoristas y los fabricantes de las sustancias sometidas a lo dispuesto en este título, deberán remitir muestras de cada uno de los productos que manejan o fabrican, al Instituto Costarricense sobre Drogas y al Departamento de Ciencias Forenses del Organismo de Investigación Judicial, cuando les sean solicitadas; junto con las muestras deberán enviar la respectiva ficha técnica, con una descripción exacta de la metodología para el análisis químico. Igual obligación tendrán los laboratorios o las industrias nacionales que elaboren o suministren productos que contengan en su formulación precursores o químicos esenciales.

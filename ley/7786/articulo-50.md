@@ -1,3 +1,1 @@
-ARTÍCULO 50.- Quienes se dediquen a alguna de las actividades
-señaladas en el artículo 39 deberán mantener un inventario completo,
-fidedigno y actualizado de las sustancias, las máquinas o los accesorios.
+Artículo 50.—Quienes se dediquen a alguna de las actividades señaladas en el artículo 36 de esta Ley, deberán informar de inmediato a la unidad especializada del Instituto Costarricense sobre Drogas sobre las transacciones efectuadas o propuestas en las que ellos sean parte, cuando tengan motivos razonables para considerar que aquellas sustancias, máquinas y accesorios pueden utilizarse en la producción, fabricación, extracción o preparación ilícita de estupefacientes, sustancias psicotrópicas u otras con efectos semejantes.

@@ -1,4 +1,3 @@
-ARTÍCULO 97.- El fin básico del Centro será la lucha contra el
-tráfico ilícito de drogas y delitos conexos. Para tales fines, en su seno
-se coordinarán todas las acciones requeridas en la prosecusión de esta
-lucha.
+Artículo 97.—Para realizar las peritaciones necesarias, la autoridad judicial competente autorizará que se tome una muestra bajo los procedimientos y en las cantidades recomendadas por el Departamento de Ciencias Forenses del OIJ, la cual quedará en la misma sección para lo dispuesto en el artículo anterior. El resto de la droga incautada será destruido públicamente, en presencia de los medios de comunicación que quieran asistir, previa convocatoria, y de al menos un miembro del Ministerio de Salud y del OIJ, lo cual deberá cumplirse siguiendo los procedimientos técnicos adecuados que ordene el órgano competente del Ministerio de Salud.
+La autoridad judicial competente deberá informar, por cualquier medio de comunicación, del lugar, el día y la hora en que se realizará el acto de destrucción, y deberá actuar personalmente en el procedimiento de destrucción de la droga.
+Una copia del acta de destrucción será enviada por la autoridad judicial competente al Instituto Costarricense sobre Drogas.

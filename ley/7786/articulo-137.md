@@ -1,0 +1,2 @@
+Artículo 137.—El Consejo Directivo del Instituto será el responsable de implementar las recomendaciones emitidas por la Unidad de Auditoría Interna. Si la Administración discrepa de dichas recomendaciones, deberá emitir por escrito un acuerdo fundamentado, en un plazo de treinta días hábiles, el cual contendrá una solución alternativa.
+De mantenerse la divergencia de criterio entre la Administración y la Unidad de Auditoría Interna, corresponderá a la Contraloría General de la República aclarar las divergencias, a solicitud de las partes interesadas.

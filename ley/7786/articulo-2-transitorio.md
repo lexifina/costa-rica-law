@@ -1,0 +1,1 @@
+Transitorio II.—Todos los bienes, recursos, equipo, documentos, expedientes, bases de datos y valores pertenecientes al Centro Nacional de Prevención contra Drogas, al Centro de Inteligencia Conjunto Antidrogas y al Área de Precursores del Ministerio de Salud, pasarán a integrar el patrimonio del Instituto Costarricense sobre Drogas.
