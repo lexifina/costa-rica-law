@@ -1,0 +1,1 @@
+Artículo 7°—El Ministerio de Agricultura y Ganadería, dispondrá dentro de sus competencias, los medios necesarios para la implementación y aplicación de las regulaciones establecidas en este decreto, pudiendo solicitar la colaboración de otros Entes Públicos de competencia a fin en la materia, en particular, el Ministerio de Salud.

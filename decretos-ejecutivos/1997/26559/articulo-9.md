@@ -1,0 +1,1 @@
+Artículo 9°—El Ministerio de Agricultura y Ganadería, a través de sus instancias y funcionarios competentes, mantendrá el nivel de confidencialidad necesaria y requerida de la información, datos y conocimientos de que fueran impuestos en razón del ejercicio de las competencias por la aplicación del sistema SARCPC.

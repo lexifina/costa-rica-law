@@ -1,0 +1,1 @@
+Artículo 8°—Los recursos generados y obtenidos por el Ministerio por la venta de servicios en aplicación de lo dispuesto por el presente decreto, deberán ser destinados a la Dirección de Salud Animal, Departamento de Servicios Zoosanitarios Internacionales, para ser invertidos en el mejoramiento de los mismos servicios.
