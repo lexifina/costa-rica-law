@@ -1,1 +1,0 @@
-Artículo 4º—Requisito previo. Toda solicitud de materiales, y servicios deberá contener indicación expresa, cuando menos, del presupuesto de materiales, el plan de financiamiento, la fecha de inicio de la obra y el formulario "Solicitud de Materiales para Obras Comunales".
