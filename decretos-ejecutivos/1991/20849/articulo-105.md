@@ -1,1 +1,2 @@
-Artículo 105.—Las decisiones que adopte la Comisión de Carrera Profesional serán tomadas por mayoría simple.
+Artículo 105.—Las decisiones que adopte la Comisión de Carrera Profesional para los Servidores de la Dirección serán tomadas por mayoría simple y se harán constar en actas. El Departamento de Personal de MIDEPLAN tramitará mediante la respectiva Acción de Personal, los acuerdos relativos al incentivo de Carrera Profesional que entrañen contenido económico.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 22497 del 12 de agosto de 1993)
