@@ -14,3 +14,4 @@ Reglamento de Becas del Distrito de Colorado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-02 | la propia norma |
+| 2 | 2004-03-08 | Reglamento municipal 10 (2004-03-08) |
