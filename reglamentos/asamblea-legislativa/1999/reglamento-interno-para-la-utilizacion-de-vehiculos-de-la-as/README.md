@@ -14,3 +14,4 @@ Reglamento Interno para la Utilización de Vehículos de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-10 | la propia norma |
+| 2 | 2001-03-08 | Reglamento 205 (2001-03-08) |
