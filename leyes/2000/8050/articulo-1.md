@@ -1,0 +1,7 @@
+PODER LEGISLATIVO
+Ley de Presupuesto Ordinario y Extraordinario de la República, para el Ejercicio Económico del 2001
+Ley N° 8050
+Artículo 1°: Aprúebase los siguientes Ingresos Ordinarios y Extraordinarios, tanto Internos como Externos para el Ejercicio Ecónomico de 2001.
+Inciso A: (...)
+Inciso B: (...)
+Inciso C: (...)
