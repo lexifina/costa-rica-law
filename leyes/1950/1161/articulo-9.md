@@ -1,1 +1,0 @@
-Artículo 9º.- Recibido el recurso, será rechazado de plano si de los términos del mismo apareciera que no es propiamente materia de Amparo la amenaza o agravio acusado, o que se encuentra en alguno de los incisos del artículo 3º. La resolución del Juez rechazando de plano el recurso será apelable para ante la Sala respectiva.

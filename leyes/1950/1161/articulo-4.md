@@ -1,1 +1,0 @@
-Artículo 4º.- El recurso procederá contra cualquier autoridad, funcionaria o empleado, ya sea que obre por sí o en cumplimiento de órdenes superiores. En este último caso también se entenderá establecido el recurso contra el superior.
