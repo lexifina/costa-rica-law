@@ -14,3 +14,4 @@ Reglamento del Servicio de Vigilancia y Seguridad para los Señores Presidentes 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-20 | la propia norma |
+| 2 | 2003-10-20 | Decreto Ejecutivo 31958 (2003-10-20) |

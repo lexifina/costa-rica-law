@@ -1,2 +1,2 @@
-Artículo 7º—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los treinta y un días del mes de marzo del dos mil tres.
+Artículo 7º—El mismo servicio podrá brindarse en igualdad de condiciones con base en los mismos parámetros y requisitos, a las exprimeras damas de la República, cuando por alguna circunstancia, legalmente acreditada no convivan con el expresidente. En todo caso, tanto las exprimeras damas como los expresidentes deberán de solicitar el servicio de vigilancia por escrito ante el Ministro de Seguridad Pública.
+(Así reformado mediante Decreto Ejecutivo No. 31958-SP, de fecha 20 de octubre del 2003.)
