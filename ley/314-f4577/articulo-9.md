@@ -1,0 +1,1 @@
+Artículo 9º.- Los otros miembros de la comisión deberán ser nombrados por quien corresponda, dentro de los ocho días hábiles siguientes a la vigencia de este Decreto-Ley. Todos los integrantes de la comisión servirán sus cargos ad-honórem y no devengarán dieta o remuneración de ninguna especie.

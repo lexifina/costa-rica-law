@@ -1,0 +1,1 @@
+Artículo 2º.- Al recibo de los títulos provisionales a que se refiere el artículo anterior, los bancos procederán a contabilizar los asientos correspondientes a efecto de fijar sus respectivos capitales y reservas legales en las sumas establecidas en el artículo 3º del Decreto-Ley Nº 313 de 30 de diciembre de 1948.
