@@ -1,0 +1,5 @@
+ARTICULO 17
+Todo acuerdo o resolución de las juntas, se tomar por mayoría absoluta de votos presentes, entendiéndose por tal mayoría la mitad de ellos m s cualquier exceso: exceptuase los acuerdos sobre nombramiento de juntas cantonales, principales de distrito y auxiliares, que se tomarán por voto proporcional, como queda dispuesto.
+Las resoluciones se tendrán por notificadas veinticuatro horas después de expuestas al público-en la parte exterior y visible del respectivo local-en cédulas que expresen el día y hora en que ha sido fijadas.
+El recurso de apelación debe interponerse dentro de las cuarenta y ocho horas siguientes a la notificación de lo resuelto, y ante la junta provincial o juez, según el caso, que debe conocer en segunda instancia. Las apelaciones deben interponerse por escrito y pueden interponerse por telégrafo.
+Recibido el escrito o telegrama de alzada la junta o el juez, ante quien se apela, pedir inmediatamente el expediente respectivo y resolver dentro de las cuarenta y ocho horas siguientes.

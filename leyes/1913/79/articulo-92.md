@@ -1,0 +1,2 @@
+Artículo 92
+Los miembros de las juntas electorales, que, sin motivo insuperable, no concurrieren a su instalación el día señalado o que faltaren a las reuniones o no asistieren a sesiones que por su culpa no pudieren verificarse o que habiendo asistido a ellas abandonaren sus puestos en los días de sesiones o votaciones, o que se negaren a firmar los registros, listas, actas o resoluciones, serán reprimidos con la pena de presidio interior menor en su grado mínimo.

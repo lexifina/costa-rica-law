@@ -1,0 +1,4 @@
+ARTÖCULO 40
+Inmediatamente después de practicada la elección, cada presidente de junta principal o auxiliar remitir con la debida seguridad, toda la documentación eleccionaria, a sus respectivos destinos, así enviar a la junta electoral provincial respectiva, las papeletas, uno de los libros de votaciones y los demás documentos relativos a la elección de Presidente de la República y diputados; enviar a la junta electoral cantonal correspondiente, las papeletas, un libro de votaciones y demás documentos
+relativos a la elección de regidores municipales y procuradores síndicos.
+Los presidentes de juntas, Gobernadores y Jefes Políticos, tendrán a su cargo la custodia de todo documento electoral que hubieren recibido, para los efectos de la responsabilidad penal que pudiera exigírseles en casos de infidelidad.

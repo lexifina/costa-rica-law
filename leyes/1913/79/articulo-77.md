@@ -1,0 +1,2 @@
+Articulo 77
+Todo decreto o resolución que se pronuncie, se sujetar a los preceptos constitucionales o a las prescripciones de esta ley, pudiendo recurrirse a los principios de derecho a falta de disposición legal taxativa. la realidad y eficacia de las pruebas aducidas serán apreciadas con sana crítica, sin ánimo de partidarismo, a fin de que toda resolución se inspire siempre en la defensa honrada de las instituciones de la República.

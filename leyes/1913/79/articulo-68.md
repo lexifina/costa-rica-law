@@ -1,0 +1,2 @@
+Artículo 68
+Corresponde a la junta electoral cantonal conocer en primera instancia, y a la junta electoral provincial decidir en segunda instancia y sin ulterior recurso, salvo el de responsabilidad penal, de toda reclamación que se haga por nulidad de elecciones de munícipes y síndicos examinando y juzgando de su legalidad con arreglo a los textos constitucionales, y a las disposiciones de esta ley

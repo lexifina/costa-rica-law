@@ -1,0 +1,2 @@
+Artículo 60
+Cuando un mismo individuo sea nombrado en distintas provincias para diputado, podrá hasta el día de la próxima instalación del Congreso, indicar a este, la representación que acepta; más si el diputado no hiciere elección ninguna, el Congreso sortear la provincia por la cual ha de quedar de representante. En ambos casos, si fuere necesario, el congreso mandar repetir la elección, para llenar la vacante.
