@@ -1,0 +1,2 @@
+Artículo 2º.- Adicionase la referida ley, con un artículo nuevo que diga lo siguiente:
+"Artículo 15.-Las pensiones o jubilaciones a que se refieren los artículos 3º y 4º; en ningún caso podrán ser inferiores a quinientos colones (¢ 500.00), y las inferiores a esa suma que ya se hubieren otorgado, se reajustarán de oficio al mínimo que ahora se establecen, y a partir del mes siguiente a la fecha de vigencia de esta ley".
