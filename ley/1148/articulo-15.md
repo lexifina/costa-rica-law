@@ -1,0 +1,2 @@
+Recursos de Empresas Extranjeras
+Artículo 15.- Las sucursales, agencias u oficinas de las empresas extranjeras mencionadas en el inciso c) del artículo 7º de esta ley, que recibieran divisas extranjeras destinadas a cubrir sus gastos internos en moneda nacional, deberán declararlas al Banco a más tardar dentro de los tres días hábiles siguientes a al fecha en que las reciben y venderlas en el mercado oficial a medida de las necesidades de sus negocios.

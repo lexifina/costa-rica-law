@@ -1,0 +1,2 @@
+Derogatorias
+Artículo 52.- Quedan derogados la ley Nº 57 de 23 de febrero de 1935 y los Decretos-Leyes números 215, 216 y 219 del 13 de octubre de 1948; 332 de 29 de diciembre de 1948 y 360 de 26 de enero de 1949, y todas las disposiciones que se hayan dictado para reformar, interpretar o reglamentar dicha ley y decretos, salvo en los casos previstos en las disposiciones transitorias de la presente ley, así como las demás que se le opongan.

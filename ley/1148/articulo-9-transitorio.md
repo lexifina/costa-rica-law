@@ -1,0 +1,2 @@
+Artículo 9º.- Durante todo el tiempo de la vigencia de esta ley y para los efectos de control de precios, el cálculo de las mercaderías que no fueren adquiridas con divisas controladas, será hecho al tipo de cambio con que fectivamente se compraron las divisas en el mercado libre.
+La anterior disposición no cubre aquellas importaciones o compras respecto de las cuales se hubiere autorizado o convalidado la solicitud de divisas.

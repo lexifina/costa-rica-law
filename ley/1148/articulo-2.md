@@ -1,0 +1,3 @@
+Duración
+Artículo 2º.- La presente ley tiene carácter temporal y deberá modificarse o derogarse tan pronto desaparezcan las circunstancias que la motivan, a fin de establecer un nuevo régimen de cambios que se adapte a los principios que rigen las disposiciones del acuerdo sobre el Fondo Monetario Internacional.
+El Banco Central deberá rendir a la Asamblea Legislativa un informe de las operaciones realizadas y de los resultados obtenidos con la aplicación de la ley, al 30 de setiembre de 1950. Deberá indicar también, si fuere del caso, las reformas que sean necesarias para adaptar la ley a las nuevas circunstancias.
