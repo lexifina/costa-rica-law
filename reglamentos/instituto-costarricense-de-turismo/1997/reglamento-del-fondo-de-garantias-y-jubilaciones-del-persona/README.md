@@ -14,3 +14,4 @@ Reglamento del Fondo de Garantías y Jubilaciones del Personal del Instituto Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-10 | la propia norma |
+| 2 | 2002-02-11 | Reglamento 5159 (2002-02-11) |
