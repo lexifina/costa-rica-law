@@ -1,0 +1,2 @@
+La Presidencia Ejecutiva mediante oficio PE-2002-0678 autorizó la modificación del artículo 12 de las Disposiciones sobre el Procedimiento Administrativo para Entidades Comercializadoras de Seguros y Agentes Acreditados, en los siguientes términos:
+"Artículo 12.—Del Órgano Director. Corresponde al Órgano Director, conformado por dos funcionarios de la Intendencia de Comercialización, cursar el procedimiento administrativo.
