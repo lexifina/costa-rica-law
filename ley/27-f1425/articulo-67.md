@@ -1,0 +1,1 @@
+Art. 67.-Las mismas consecuencias tendrán lu- gar si el deudor ha ocultado á la sociedad alguna causa de hipoteca legal, ó de disolución ó rescisión del contrato, y que puedan alterar la condición de los bienes hipotecados.

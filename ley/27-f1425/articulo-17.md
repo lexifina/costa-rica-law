@@ -1,0 +1,1 @@
+Art. 17. -Los derechos y obligaciones anexos á cada acción, siguen el título de ellas, sean cuales fueren las manos á que pase. La posesión de una acción lleva consigo de derecho la adhesión á los estatutos de la sociedad y á las deliberaciones de la asamblea general.

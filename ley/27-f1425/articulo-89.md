@@ -1,0 +1,3 @@
+CAPÍTULO X.
+Del inventario y cuentas anuales.
+Art. 89.-El año económico de la sociedad empieza el primero de enero y concluye el treinta y uno de diciembre: del primer ejercicio comprenderá hasta el 31 de diciembre que siga à la fecha de la constitución. El consejo de administración cuidará de que cada semestre se forme un estado que comprenda el activo y el pasivo de la sociedad: ese estado se pondrá á disposición de los comisarios. Aparte de esto, se formará cada año un inventario contenga el activo y el pasivo de la sociedad. El inventario, el balance y la cuenta de ganancias y pérdidas, serán puestas á disposición de los comisarios, cuando más tarde cuarenta días antes de la asamblea general.

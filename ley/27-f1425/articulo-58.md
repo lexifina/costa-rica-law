@@ -1,0 +1,1 @@
+Art. 58.-El monto del préstamo no puede exceder de la mitad del valor del inmueble hipotecado. Los edificios de los establecimientos fabriles y manufactureros no se valúan sino en razón del valor independiente de su aplicación industrial.

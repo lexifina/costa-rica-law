@@ -1,0 +1,2 @@
+Art 74.-Luego que la propiedad sea debidamente reconocida y justipreciada por peritos nombrados y juramentados por la junta consultiva, el director-administrador estipulará la cantidad y las condiciones del préstamo.
+El nombramiento de peritos se hará de preferencia en personas interesadas como accionistas en el Banco; y si eso no fuere posible, en las que reunan la cantidad de competencia y de honradez notoria.

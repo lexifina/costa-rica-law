@@ -1,0 +1,2 @@
+Art. 88.-Las obligaciones hipotecarias pagadas á consecuencia del sorteo serán marcadas en el acto con un sello que indica su anulación, y destinadas al fuego en presencia del consejo de administración en París ó de la junta consultiva en Costa-Rica, redactando sobre esta operación una acta firmada por los miembros presentes del consejo ó junta.
+Las obligaciones devueltas á la sociedad á consecuencia de un pago anticipado, serán también marcadas por el director, con un sello de cancelación, y reducidas á cenizas, bajo las mismas formalidades que requiere el párrafo anterior.
