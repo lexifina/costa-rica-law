@@ -14,3 +14,4 @@ Normas para Establecer la Suficiencia Patrimonial de las Entidades Fiscalizadas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-09 | la propia norma |
+| 2 | 2001-07-09 | Reglamento 231 (2001-06-11) |
