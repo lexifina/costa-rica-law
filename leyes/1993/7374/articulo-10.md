@@ -1,0 +1,1 @@
+ARTICULO 10.- El Gobierno como prestatario, por medio del Ministerio de Hacienda incluirá, en el Presupuesto Nacional Ordinario y Extraordinario, los recursos provenientes de los créditos que se aprueban mediante esta Ley. Estos recursos serán trasladados a la Caja Costarricense de Seguro Social, por transferencia presupuestaria.

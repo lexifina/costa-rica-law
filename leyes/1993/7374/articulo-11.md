@@ -1,0 +1,5 @@
+ARTICULO 11.- Autorízase a la Tesorería Nacional el siguiente procedimiento, para el manejo de los desembolsos de los préstamos que se aprueban mediante esta Ley, una vez incorporados en el Presupuesto Nacional y trasladados presupuestariamente a la Caja Costarricense de Seguro Social:
+a) El Banco Interamericano de Desarrollo entregará los fondos solicitados por la Caja Costarricense de Seguro Social, como unidad ejecutora del proyecto.
+b) Los recursos provenientes de los desembolsos que realice el Banco Interamericano de Desarrollo se depositarán en cuentas especiales de la Tesorería Nacional, una en dólares y otra en colones.
+c) La Tesorería Nacional transferirá directamente los recursos, cuando la Caja Costarricense de Seguro Social lo solicite.
+ch) La Caja Costarricense de Seguro Social, como unidad ejecutora del proyecto, una vez efectuados los gastos, presentará la justificación respectiva y preparará la solicitud de desembolso al Banco Interamericano de Desarrollo, para constituir nuevamente el monto requerido, a fin de continuar con el programa.

@@ -1,0 +1,1 @@
+ARTICULO 13.- Los recursos provenientes de los créditos, que mediante esta Ley se aprueban, se aplicarán a la cancelación parcial de los adeudos que el Gobierno mantiene con la Caja Costarricense de Seguro Social. Las cancelaciones de la deuda se aplicarán, por tractos, conforme ingresen a la Caja Costarricense de Seguro Social los recursos de los préstamos indicados.

@@ -1,0 +1,2 @@
+TRANSITORIO UNICO: Autorízase al Ministerio de Salud para trasladar, a la Caja Costarricense de Seguro Social, el personal destacado en los programas que esta asumirá, dentro del marco de las regulaciones establecidas en los artículos 1, 2, 3, 4, 5 y 6 de la Ley Nº 5541 del 10 de julio de 1974.
+Dado en la Presidencia de la República. -San José, a los tres días del mes de diciembre de mil novecientos noventa y tres.

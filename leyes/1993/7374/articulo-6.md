@@ -1,0 +1,1 @@
+ARTICULO 6.- El costo de atención de la población indigente se cubrirá con los recursos provenientes de las partidas del Fondo de Asignaciones Familiares, para lo cual se utilizará como referencia el porcentaje de cotización media, calculado por la Dirección Técnica Actuarial de la Caja Costarricense de Seguro Social.
