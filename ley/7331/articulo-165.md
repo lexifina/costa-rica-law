@@ -1,6 +1,5 @@
-ARTÍCULO 165.- En el momento de su comparecencia, el imputado puede
-rechazar los cargos o abstenerse de declarar. Asimismo en dicho acto
-puede ofrecer su prueba de descargo, la cual también es de recibo si la
-ofrece dentro de los cinco días posteriores a su comparecencia, sin
-perjuicio de la prueba para mejor resolver que acuerde recibir el
-Tribunal.
+Artículo 165.—Si las partes concurren ante la autoridad judicial de tránsito con el fin de llegar a un arreglo, el juzgado, sin más trámite, atenderá la gestión. Esta podrá hacerse mediante escrito fundado, o bien, mediante manifestación ante el juez, siempre que no afecte intereses de terceros, ni exista participación de vehículos del Estado.
+Si en el arreglo que se plantea está de por medio la aplicación de pólizas, la entidad aseguradora deberá autorizarlo expresamente. Cumplidas las condiciones del arreglo, si existen, el juez procederá a pasar el expediente para el dictado de la sentencia de sobreseimiento y, en el mismo acto, ordenará el levantamiento de los gravámenes, si existen. Si las partes comparecen a declarar y ofrecen medio o lugar para atender notificaciones, pero no ofrecen prueba, el juzgado señalará hora y fecha para la audiencia de conciliación; si esta no prospera, se pasará a fallo, conforme lo dispuesto en el artículo 173 de esta Ley.
+Cuando, en un proceso de colisión, exista una infracción que implique aplicar una medida de inhabilitación o suspensión de licencia, procede la conciliación entre las partes procesales, solo respecto de asuntos de índole patrimonial, sin perjuicio de lo que el juzgador establezca respecto de la suspensión o inhabilitación de la licencia.
+En el momento de la comparecencia, el imputado podrá aceptar o rechazar los cargos, así como abstenerse de declarar; asimismo, en dicho acto podrá ofrecer su prueba de descargo, la cual también será de recibo, si la ofrece dentro de los cinco días posteriores a la comparecencia, sin perjuicio de la prueba para mejor resolver que el tribunal acuerde recibir.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)

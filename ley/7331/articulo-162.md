@@ -1,14 +1,3 @@
-ARTÍCULO 162.- En el acto de su comparecencia, so pena de nulidad
-absoluta, se le advertirá al imputado sobre su derecho a defenderse en
-forma personal o por medio de un abogado y sobre su derecho a abstenerse
-de declarar.
-Asimismo, se le advertirá que debe señalar un lugar para atender las
-notificaciones, dentro del perímetro judicial correspondiente. Si no lo
-señala o el lugar señalado no existe o la dirección es imprecisa, o si se
-niega a recibir la notificación, las resoluciones -incluyendo la
-sentencia- se tendrán por notificadas por el solo transcurso de
-veinticuatro horas. En caso de que el lugar esté cerrado, la citación se
-le entregará al vecino más próximo, a quien el notificador instruirá de
-que debe entregar la cédula con la mayor brevedad; pero si el vecino se
-niega a recibir la notificación, la dejará debajo de la puerta del lugar
-señalado para oír notificaciones.
+Artículo 162.—En el acto de comparecencia, so pena de nulidad absoluta, se le advertirá al imputado sobre su derecho a defenderse en forma personal o por medio de un abogado y sobre su derecho a abstenerse de declarar.
+Asimismo, se le advertirá que debe señalar un medio o un lugar para atender las notificaciones, dentro del perímetro judicial correspondiente. Bajo el apercibimiento de que, si el lugar o el medio señalado no es habido por impreciso o inexacto, si no existiera o hubiese negativa a recibir las notificaciones, todas las resoluciones que se dicten, incluso la sentencia, se tendrán por notificadas, en el transcurso de veinticuatro horas, y que, en general se procederá conforme a lo establecido por la Ley de notificación, citaciones y otras comunicaciones judiciales.
+(Así reformado mediante el artículo único de la Ley No. 8431, del 10 de diciembre del 2004.)
