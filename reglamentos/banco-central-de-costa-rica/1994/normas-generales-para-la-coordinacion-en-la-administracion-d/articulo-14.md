@@ -1,0 +1,2 @@
+Artículo 14*.—La custodia, conservación, restauración, movilización y valoración de los objetos de las colecciones ubicados en las oficinas administrativas del Banco Central de Costa Rica, con excepción de los que se encuentran en el edificio de Museos, será responsabilidad de esa Institución, para cuyo efecto se designa a la División Administrativa.
+(*Modificado por Sesión 4741-94, artículo 13, del 15 de junio de 1994)

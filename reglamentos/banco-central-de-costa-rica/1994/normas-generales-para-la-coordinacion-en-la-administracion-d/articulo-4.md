@@ -1,0 +1,1 @@
+Artículo 4°—Los objetivos de la Fundación se establecen en el artículo 3 de la citada Ley No 7363 y, para cumplir a cabalidad con sus objetivos y funciones, la Fundación contratará y pagará el personal que se requiera, excepto el destinado a la vigilancia del edificio, el cual seguirá siendo responsabilidad del Banco Central de Costa Rica.

@@ -1,0 +1,3 @@
+Artículo 23*.— La Fundación establecerá, en coordinación con la dependencia encargada de la seguridad del Banco Central, un estricto sistema de seguridad en el edificio que alberga los Museos, el cual debe estar acorde con el valor y naturaleza de las colecciones.
+Cuando la fundación requiera efectuar actividades especiales, fuera del horario normal de apertura al público, la dependencia encargada de la seguridad del Banco, proveerá los recursos humanos necesarios para ese fin, correspondiendo a la fundación, cubrir el pago de esa jornada extraordinaria, con cargo a su propio presupuesto.
+(*Modificado por Sesión 4713-94, artículo 2, del 2 de marzo de 1994)
