@@ -14,3 +14,4 @@ Reestructura la División de Transportes del MOPT
 | --- | --- | --- |
 | 1 | 1996-05-11 | la propia norma |
 | 2 | 1996-05-16 | SINALEVI (sin norma nombrada) |
+| 3 | 1996-07-22 | Decreto Ejecutivo 25379 (1996-07-22) |
