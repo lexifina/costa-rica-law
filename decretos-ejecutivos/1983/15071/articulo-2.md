@@ -1,0 +1,1 @@
+Artículo 2°.-El agente recaudador estará en la obligación de retener del agricultor la suma correspondiente al porcentaje obligado de contribución al Fondo, según sea establecido por el Poder Ejecutivo para la correspondiente actividad agrícola.

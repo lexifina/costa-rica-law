@@ -1,0 +1,1 @@
+Artículo 6°.-La Junta administrativa del Fondo Nacional de Contingencias Agrícolas queda autorizada para ejercer una estricta labor de fiscalización de la correcta aplicación de este Decreto Ejecutivo. Para esos efectos, podrá requerir todas la documentación que crea pertinente a los agentes recaudadores, quedando a salvo las prohibiciones establecidas por ley.
