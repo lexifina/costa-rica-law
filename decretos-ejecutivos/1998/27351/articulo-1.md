@@ -1,0 +1,17 @@
+N°27351-MP-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA
+Y DE ECONOMÍA, INDUSTRIA Y COMERCIO,
+En uso de las facultades que les confieren el artículo 140 incisos 3) y 18) de la Constitución Política de la República y el inciso 2.b del artículo 28 de la Ley General de la Administración Pública; y, Considerando:
+1 °—Que el país cuenta con gran cantidad de regulaciones y trámites que conllevan duplicidades y denotan descoordinación entre las dependencias del Sector Público, tanto para la promulgación de aquellas como para su aplicación y control. Ello implica a su vez, que las regulaciones resulten inefectivas, desincentivadoras de la inversión, reductoras de la competitividad y de difícil aplicación para las autoridades públicas y para el sector público.
+2°—Que para la Administración la situación antes descrita necesariamente la obliga a incurrir en costos e inversiones innecesarias, muchas veces duplicadas, lo que además le significa serias dificultades al momento de aplicar las regulaciones, sin dejar de mencionar los constantes conflictos de competencia que origina la promulgación desarticulada de las diferentes disposiciones que rigen el quehacer nacional. En consecuencia, la prestación de los servicios públicos y el buen funcionamiento del aparato estatal se ve obstaculizado, sin que a la fecha se hayan adoptado las políticas y acciones integrales, que bajo una perspectiva política, recomienden medidas para dar soluciones viables a esta problemática.
+3°—Que en esta materia es fundamental mantener el apropiado equilibrio entre aquellas regulaciones que como mínimo deben mantenerse para satisfacer el interés público inmerso en los diferentes procesos, las que más bien son producto de acciones aisladas por parte de la Administración Pública, que lejos de satisfacer ese interés, lo perjudican.
+4°—Que el sector privado, consciente también de la situación antes indicada en los Considerandos anteriores, y anuentes a colaborar con la Administración, reconoce la importancia de realizar una labor conjunta, del más alto nivel y compromiso, para lo cual está dispuesto a prestar la debida colaboración en las acciones que al efecto se adopten.
+5°—Que es imperativo e incuestionable que en esta materia el país a une esfuerzos, de manera que se obtengan resultados positivos y prontos, que permitan la atracción y consolidación de las inversiones en el país, sin el menoscabo de la exigencia de los requerimientos necesarios para cumplir con los mandatos constitucionales y legales, en las diferentes áreas involucradas. Por tanto,
+DECRETAN:
+Artículo 1°—Créase la Comisión Nacional de Desregulación, cuyos objetivos serán:
+a) Coordinar y liderar los esfuerzos e iniciativas de las diferentes instancias en materia de desregulación.
+b) Analizar y evaluar propuestas específicas de su seno o provenientes de otras instancias, como por ejemplo, los administrados y las instituciones 'públicas para la simplificación y agilización de trámites y regulaciones.
+c) Recomendar a las instancias correspondientes y sugerir la implementación, en los casos en que proceda, de las medidas correctivas específicas para lograr una mayor eficiencia en trámites y regulaciones concretas.
+d) Recomendar la derogatoria o modificación de leyes y decretos ejecutivos en materia de regulación y tramitología.
+e) Constituir comisiones técnicas para estudiar temas específicos.

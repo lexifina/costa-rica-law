@@ -1,0 +1,1 @@
+Artículo 3°—La Comisión será coordinada por el Ministro de Economía, Industria y Comercio, quien tendrá potestad de dirección y elevará las acciones y recomendaciones de la Comisión a las instancias correspondientes.
