@@ -1,0 +1,1 @@
+Artículo 2º.- La Oficina Técnica Mecanizada, y la oficina respectiva en las instituciones autónomas y semiautónomas, deberán practicar las retenciones que les autoricen los empleados cuando éstos estuvieren en deuda con el fondo de pensiones.
