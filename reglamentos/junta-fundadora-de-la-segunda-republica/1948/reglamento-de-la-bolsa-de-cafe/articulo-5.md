@@ -1,0 +1,2 @@
+Artículo 5°-El precio oficial de venta del café de consumo interno y el de cualquiera correspondiente a las clases superiores de exportación pactada en el país en condición de "venta en firme" sobre muestra y marca, o "para entrega futura" sobre descripción y marca, será aquel que conste en las actas de subasta, para el primero; y para el segundo el acusado en los contratos inscritos en el Registro que al efecto establezca la Bolsa.
+La Junta de Liquidaciones no podrá, en consecuencia, considerar o tomar en cuenta otro precio que el oficial, expresado.

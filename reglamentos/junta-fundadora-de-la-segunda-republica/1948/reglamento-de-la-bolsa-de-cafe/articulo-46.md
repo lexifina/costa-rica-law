@@ -1,0 +1,1 @@
+Artículo 46.-Pueden inscribirse como Agentes Corredores. además de las personas de responsabilidad reconocida y de notoria buena conducta, las sociedades comerciales organizadas conforme a las leyes de la República y siempre que su capital sea mayor ¢ 25.000.00, en cuyo nombre actuarán los Gerentes o sus Apoderados Generalísimos Especiales.

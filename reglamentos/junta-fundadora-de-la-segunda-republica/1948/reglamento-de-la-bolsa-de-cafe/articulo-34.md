@@ -1,0 +1,3 @@
+Artículo 34.-El Presidente de la Bolsa, en las siguientes 24 horas de haberse presentado la solicitud de peritazgo o arbitraje, dictará las providencias adecuadas para que se reúna la Comisión o el Tribunal y se inicien los procedimientos.
+El veredicto de la Comisión Oficial de Peritos deberá emitirse 36 horas después de iniciado el negocio, y el fallo del Tribunal de Arbitros, en los siguientes diez días al de su instalación.
+Dentro de las veinticuatro horas siguientes al veredicto de la Comisión Oficial de Peritos a solicitud del interesado, deberá el Presidente de la Bolsa pronunciarse sobre la subsistencia o insubsistencia de los remates, sin que en ningún caso pueda acarrear responsabilidad para la Bolsa la decisión que recayere.

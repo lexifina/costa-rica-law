@@ -1,0 +1,1 @@
+Artículo 19.-Las operaciones de la Bolsa y los actos que de ellas se originen crean obligaciones y derechos cuyo cumplimiento y ejercicio se realizan, en primer término mediante los procedimientos que determina el presente Reglamento, y en segundo, con arreglo a las leyes ordinarias de la República.

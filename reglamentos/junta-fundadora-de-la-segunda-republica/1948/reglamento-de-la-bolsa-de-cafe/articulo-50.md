@@ -1,0 +1,1 @@
+Artículo 50.-En caso de pérdida de café por causa de robo o de siniestro, el interesado deberá comunicarlo a la Oficina en los siguientes 10 días; si dejare de hacerlo en el término dicho, la responsabilidad de la pérdida para los efectos de este Reglamento, recaerá sobre el interesado.

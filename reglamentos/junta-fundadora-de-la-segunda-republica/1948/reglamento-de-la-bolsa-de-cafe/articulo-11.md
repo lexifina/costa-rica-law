@@ -1,0 +1,4 @@
+Artículo 11. -Verificada la subasta sin que el lote o lotes fueren adjudicados, será opción del productor o beneficiador:
+a)Pedir que se le adjudique por el precio de base; esa petición debe hacerse el mismo día del remate;
+b)Retirar la oferta para presentarla de nuevo dentro del periodo de subastas de la misma cosecha, previo pago de la totalidad de los derechos de remate.
+En el caso de que el interesado no se resolviera por alguno de los dos extremos que comprende la opción dicha, la Bolsa lo subastará con rebaja del 10 % del precio de base, tantas veces como fuere necesario, hasta llegar al precio mínimo oficial. Si verificadas dos subastas al precio mínimo oficial el café no fuere adjudicado, deberá el interesado sustituirlo por otro lote. A los efectos del presente artículo fijase en ¢ 75.00 el precio mínimo por quintal de 46 kilogramos.

@@ -1,0 +1,1 @@
+Artículo 25.-Los permisos de exportación caducan un mes después de la fecha de su expedición, y pueden ser revalidados a solicitud de los exportadores, quienes asumen la obligación de exportar el café que hayan adquirido.

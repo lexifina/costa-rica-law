@@ -1,0 +1,3 @@
+Artículo 29.-En los casos en que se produzcan diferencias relativas a la condición del café entregado en cumplimiento o ejecución de la venta por subasta, el reclamo que proceda deberá presentarse el mismo día del recibo del grano.
+Las muestras depositadas en el Archivo de la Bolsa y las que extraigan los peritos, del café entregado, constituyen el elemento de comparación y examen que para su veredicto considerará la Comisión Oficial de Peritos.
+En el caso de que no haya conformidad en el veredicto, se procederá de acuerdo con lo que establece el artículo siguiente para la elección de un tercer árbitro, en el nombramiento de un tercer perito.

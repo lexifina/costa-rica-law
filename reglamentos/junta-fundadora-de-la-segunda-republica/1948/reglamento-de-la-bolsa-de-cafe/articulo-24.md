@@ -1,0 +1,1 @@
+Articulo 24.-La responsabilidad que se produzca en los casos de infracción a este Reglamento, con relación al café vendido con cargo a la cuota de exportación, será imputada al exportador. Tal responsabilidad le será atribuida aI beneficiador si el exportador comprueba que aquél no le hizo la respectiva entrega del café.

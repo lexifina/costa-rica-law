@@ -1,0 +1,1 @@
+Artículo 53.-Las infracciones del presente Reglamento que no tengan específicamente señalada pena en el mismo, serán castigadas con multa de cien a mil colones cada vez. Las respectivas acusaciones serán presentadas ante el Agente Principal de Policía Específico del Café, por el Director de la Oficina.
