@@ -1,0 +1,1 @@
+Artículo 24.—Deber de informar sobre conductas sancionables. Es deber de los inspectores de espectáculos públicos, así como de la fuerza pública o de la policía municipal, informar a la municipalidad de las personas físicas o jurídicas que contravengan lo dispuesto en el presente Reglamento. Dichos informes serán canalizados por medio del Departamento Legal de la Municipalidad.

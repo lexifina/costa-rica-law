@@ -1,0 +1,1 @@
+Artículo 32.—Pago del impuesto. Por la celebración de actividades con karaoke se deberá pagar el impuesto de espectáculos públicos cuando las mismas se enmarquen en el hecho generador de la obligación tributaria a que se refiere el artículo primero del presente reglamento.
