@@ -14,3 +14,4 @@ Declara Interés Cultural Espectáculo Musical El Gigante Egoístael 4 de junio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-16 | la propia norma |
+| 2 | 2000-03-16 | Ley 7 |
