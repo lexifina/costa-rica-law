@@ -14,3 +14,4 @@ Reglamento para el Régimen Interno del Consejo de Salud Ocupacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-11-04 | la propia norma |
+| 2 | 1990-04-06 | Decreto Ejecutivo 19677 (1990-04-06) |
