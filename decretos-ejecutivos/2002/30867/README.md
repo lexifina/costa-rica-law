@@ -14,3 +14,4 @@ Reglas para la distribución de asinagción no reembolsable proveniente del Pres
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-06 | la propia norma |
+| 2 | 2003-09-16 | Decreto Ejecutivo 31368 (2003-09-16) |
