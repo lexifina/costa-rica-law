@@ -1,4 +1,1 @@
-Artículo 26.- Al que efectúe cualquier acto traslativo de dominio de
-un objeto arqueológico, no contemplando por esta ley, o al que comercie con
-objetos arqueológicos, se le impondrá prisión de uno a tres años y se le
-decomisarán los objetos, que pasarán a ser propiedad del Estado.
+Artículo 26.- Al que efectúe cualquier acto traslativo de dominio de un objeto arqueológico, no contemplando por esta ley, o al que comercie con objetos arqueológicos, se le impondrá prisión de uno a tres años y se le decomisarán los objetos, que pasarán a ser propiedad del Estado.
