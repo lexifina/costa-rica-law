@@ -1,0 +1,1 @@
+Artículo 11. Cuando el asunto de que deba tratarse sea arduo, se pasar a comisión de uno dos de los individuos del Consejo, quienes presentar n su dictamen en la sesión inmediata. Si se tratase de un asunto que demande conocimientos especiales, podrá el Consejo agregar a la Comisión unas dos personas de fuera de su seno, pero solo para ilustrarlo con su dictamen.

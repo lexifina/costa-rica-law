@@ -1,0 +1,1 @@
+Artículo 26. Los Consejeros pueden excusarse y ser recusados por las mismas causas que los demás jueces superiores. Así las excusas, como las recusaciones ser n decididas por los demás individuos del Consejo, siguiendo la tramitación establecida por las leyes para los Tribunales Colegiados.

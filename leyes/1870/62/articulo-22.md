@@ -1,0 +1,1 @@
+Artículo 22. Puesta la causa en estado de sentencia el Presidente del Consejo, dentro de tres días a mas tardar, señalar el día en que deba verse la causa con un término que no se exceder de otros tres días.

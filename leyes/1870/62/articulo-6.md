@@ -1,0 +1,1 @@
+Artículo 6° Firmada que sea el acta, el Secretario dar cuenta con la correspondencia oficial que se haya recibido y con los demás asuntos que hubiere al despacho. No se podrá pasar de un asunto a otro sin que se haya resuelto sobre el anterior.

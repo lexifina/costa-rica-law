@@ -1,0 +1,1 @@
+Artículo 27. Si un Consejero hubiese de ser separado del conocimiento de la causa, ser subrogado por uno de los Magistrados de la Corte Suprema de justicia que no tengan impedimento, sacado por la suerte y, si todos los Magistrados estuviesen impedidos, se hará el sorteo entre los Conjueces natos del mismo Tribunal.

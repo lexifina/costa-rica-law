@@ -1,0 +1,1 @@
+Artículo 15. Cuando de la votación resultare empate, el asunto de reservar para otra sesión en que están presentes todos los individuos del Consejo. En esta sesión se discutir de nuevo el asunto y se proceder a votarlo por todos los individuos, pudiendo cada uno separarse de su voto anterior si lo tuviere por conveniente.

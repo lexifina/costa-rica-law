@@ -1,0 +1,1 @@
+Artículo 28.-En la secuela de estas causas se observarán todos los trámites establecidos por las leyes en las causas de responsabilidad de los individuos de los Supremos Poderes, en todo lo que no se oponga al presente Reglamento.
