@@ -1,0 +1,1 @@
+Art 42° Los alumnos efectivos que por su aplicación y buena conducta se hagan acreedores a una recompensa, a juicio del Director, serán inscritos en un Cuadro de Honor que figurará en lugar visible de la Escuela.

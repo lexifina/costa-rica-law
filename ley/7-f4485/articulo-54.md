@@ -1,0 +1,1 @@
+Art 54° De las obras que se ejecuten en virtud de lo dispuesto en el artículo anterior, se destinará al Museo Nacional de Pintura y Escultura aquellas que, a juicio del Consejo, sean dignas de figurar en él, y las demás serán devueltas a sus autores o conservadas en la Escuela, a juicio del Director.
