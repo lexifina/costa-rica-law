@@ -1,0 +1,1 @@
+Artículo 2º.-El actor propondrá su demanda ante el alcalde que por turno corresponda, exponiendo lacónicamente los hechos en que se basa y ofreciendo pruebas sobre ellos. Dentro de las veinticuatro horas siguientes al planteamiento de la demanda, el alcalde dará el traslado de ella al demandado.
