@@ -1,0 +1,1 @@
+Artículo 5°.- La presente resolución deja sin efecto la resolución N° 03-99 de las ocho horas del 12 de enero de mil novecientos noventa y nueve, publicada en “La Gaceta” N° 54 del 18 de marzo de 1999.

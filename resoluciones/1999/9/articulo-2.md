@@ -1,0 +1,1 @@
+Artículo 2°.- La base imponible sobre la cual se calculará el Impuesto General Sobre las Ventas en la comercialización de vehículos usados es el precio neto de venta de los vehículos, establecido según las disposiciones del artículo 11 de la Ley de Impuesto General sobre las Ventas.

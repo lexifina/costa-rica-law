@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° 09-99.- Dirección General de Tributación.- San José, a las ocho horas del veintitrés de marzo de mil novecientos noventa y nueve.
+Considerando:
+1°.- Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2°.- Que de conformidad con los artículo 2 de la Ley de Impuesto General sobre las Ventas y 3-a) de su Reglamento, el hecho generados de dicho tributo es la transferencia de dominio de las mercancías ya sean nuevas o usadas, a título oneroso o gratuito: y según el artículo 4 de la ley mencionada, están en la obligación de ser contribuyentes del impuesto general sobre las ventas las personas físicas o jurídicas que en forma habitual realicen ventas de mercancías gravadas.
+3°.- Que el artículo 10 del decreto N° 27.464-H-MEIC de 26 de noviembre de 1998, publicado en el alcance N° 86-A, “La Gaceta” N° 232 de 30 de Noviembre de 1998, expresamente dispone que los importadores mayoristas de vehículos para su venta a tercero deberán extender factura autorizada a sus compradores al efecto del pago de impuesto de ventas.
+4°.- Que el Reglamento de la Ley de Impuesto General sobre las Ventas no contiene disposiciones en que se establezca el procedimiento para la determinación de la base imponible del tributo de referencia, para los casos en que se comercialicen artículo usados. Por tanto,
+RESUELVE:
+Artículo 1°.- Todos los importadores personas físicas o jurídicas que en forma habitual efectúen ventas de vehículos usados, están en la obligación de recaudar el Impuesto General Sobre las Ventas, para cuyo propósito deben inscribirse como responsables del tributo en la Administración Tributaria del lugar donde ejerzan su actividad comercial.
