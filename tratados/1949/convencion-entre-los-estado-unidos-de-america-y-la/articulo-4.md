@@ -1,0 +1,2 @@
+ARTÍCULO IV
+Nada de lo estipulado en esta Convención se interpretar como modificación de ningún tratado o convención existente referente a las pesquerías del Pacífico Oriental anteriormente suscrito por una de las Altas Partes Contratantes ni como exclusión de una Alta Parte Contratante para concertar tratados o convenciones con otros Estados en relación con estas pesquerías, siempre que sus términos no sean incompatibles con esta Convención.
