@@ -1,0 +1,1 @@
+Artículo 5°—La Autoridad Presupuestaria, según su proceder Administrativo y Técnico, hará extensivas las resoluciones, que emita la Dirección de Servicio Civil, a las instituciones que corresponda y así mismo, autorizará el aumento que proceda, para las instituciones bajo su ámbito no homologadas.

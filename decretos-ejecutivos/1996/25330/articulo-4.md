@@ -1,0 +1,1 @@
+Artículo 4°—La Dirección General de Servicio Civil modificará la Escala de Salarios de la Administración Pública, según sus facultades conferidas por Ley, a fin de ajustaría a las nuevas condiciones salariales.
