@@ -1,0 +1,1 @@
+Artículo 2°—En consecuencia dicho Centro Educativo podrá emitir los certificados de Aprobación de Estudios de I y II Ciclos de la Educación General Básica el cual se equiparará con el del Sistema Educativo Estatal.
