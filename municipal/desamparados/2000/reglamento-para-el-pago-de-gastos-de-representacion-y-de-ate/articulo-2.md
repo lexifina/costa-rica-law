@@ -1,0 +1,1 @@
+Artículo 2º—Definición: Se entiende por gastos de representación y atención, aquellas erogaciones en que incurran ciertos funcionarios para sufragar gastos con motivo de actividades de interés municipal, a personas o representantes de entidades ajenas a la Municipalidad de Desamparados.
