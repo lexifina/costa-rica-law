@@ -1,0 +1,13 @@
+N°11
+EL PRESIDENTE CONSTITUCIONAL DE LA REPUBLICA,
+Considerando:
+1°-Que desde el mes de setiembre de 1954 se ha venido tiñendo todo el café de consumo interno para un mejor control del mismo, de conformidad con la política establecida de común acuerdo por la Oficina del Café y el Ministerio de Economía y Hacienda;
+2°-Que a pesar de que para efectuar esta medida la Oficina del Café ha encontrado respaldo legal en las disposiciones contenidas en el artículo 12 de la ley N° 1616 de 3 de agosto de 1953 y en el Decreto Ejecutivo N° 4 de 13 de febrero de 1954, subsisten disposiciones en contrario por no haber sido expresamente derogadas, como la del artículo 9° del Reglamento de la Bolsa del Café (Acuerdo Ejecutivo N° 101-H de 10 de setiembre de 1948);
+Por tanto,
+DECRETA:
+Artículo 1°-Reformase el artículo 9° del Reglamento de la Bolsa del Café, aprobado por Acuerdo Ejecutivo N° 101-H de 10 de setiembre de 1948, el cual se leerá así:
+Artículo 9°-Los beneficiadores están en la obligación de situar el café que hayan inscrito para el remate en las bodegas o Planta de teñir de la Oficina del Café, en los días y a las horas que ésta disponga para su recibo. Los compradores, a su vez, en la de retirar el café de la Planta en los días y horas que la Oficina reglamente para tal fin.
+Queda facultada la Oficina para trasladar el café a algún almacén de depósito cuando vencido el término máximo para el retiro, que se fija en ocho días, el comprador no lo haya efectuado, corriendo por cuenta de dicho comprador el correspondiente bodegaje y demás gastos.
+La Oficina del Café queda autorizada para eximir de la obligación de trasladar a la Planta de teñir el café procedente de los beneficios que, a su juicio, deban librarse de ese compromiso cuando la distancia a que están situados, o las dificultades de transporte lo justifiquen, y en todo caso tomará las precauciones necesarias para que sea destinado únicamente al consumo local. La Oficina podrá revocar la exención de que habla este artículo, si lo considera necesario.
+Los compradores de café subastado, para retirado, están obligados a presentar en la Planta de teñir la orden del vendedor, o en su defecto a depositar el saldo del precio del remate en cheque certificado o dinero efectivo, en la Bolsa del Café, a más tardar en un plazo de seis días que contarán a partir del remate.
+En casos de incumplimiento incurrirán los beneficiadores en las sanciones establecidas por el artículo 53, y los compradores. en la pérdida del depósito exigido por el artículo 12 de este Reglamento, el que se entregará al vendedor, y suspensión o cancelación de sus funciones como comprador adscrito, según imponga el Presidente de Bolsa.
