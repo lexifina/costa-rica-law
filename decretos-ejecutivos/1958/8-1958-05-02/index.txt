@@ -1,4 +1,0 @@
-articulo-1.md
-articulo-8.md
-articulo-40.md
-articulo-41.md
