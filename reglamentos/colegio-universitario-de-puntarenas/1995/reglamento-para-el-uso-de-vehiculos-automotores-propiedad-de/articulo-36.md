@@ -1,0 +1,1 @@
+Artículo 36.—De ocurrir un accidente en el que resulten lesionados particulares, no autorizados previamente a viajar en el vehículo de la Institución, el responsable del servicio se hará acreedor al despido, sin responsabilidad patronal.

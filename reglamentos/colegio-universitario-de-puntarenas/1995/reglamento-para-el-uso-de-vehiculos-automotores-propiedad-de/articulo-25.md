@@ -1,0 +1,1 @@
+Artículo 25.—Solamente se podrá programar servicios a otras instituciones u organizaciones de la comunidad, cuando exista permiso expreso del Decano de la Institución o Director Administrativo y no se interfiera en las actividades académicas propias de la institución.

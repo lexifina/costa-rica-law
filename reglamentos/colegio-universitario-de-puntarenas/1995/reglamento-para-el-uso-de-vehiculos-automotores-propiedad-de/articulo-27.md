@@ -1,0 +1,1 @@
+Artículo 27.—Para todas las salidas de los vehículos prestados a otras instituciones u organizaciones fuera de Puntarenas se deberá confeccionar un acta de salida del vehículo con las autorizaciones y especificaciones respectivas.

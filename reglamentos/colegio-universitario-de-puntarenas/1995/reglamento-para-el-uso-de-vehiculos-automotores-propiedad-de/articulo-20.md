@@ -1,0 +1,1 @@
+Artículo 20.—Es responsabilidad del usuario acudir al sitio de partida a la hora indicada. Después de 15 minutos de espera y previa autorización del Encargado del viaje, el conductor podrá marcharse con las personas presentes, sin responsabilidad alguna de su parte.

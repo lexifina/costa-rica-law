@@ -1,0 +1,1 @@
+Artículo 34.—Cuando un vehículo del C.U.P. sufra un accidente, el chofer o conductor no podrá mover el vehículo hasta tanto la autoridad de tránsito no emita el parte correspondiente. El que incumpla esta disposición deberá pagar todos los costos derivados del accidente. En caso de lugares apartados se recurrirá a la Guardia Rural.

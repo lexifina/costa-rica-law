@@ -1,0 +1,1 @@
+Artículo 23.—Con base en la programación semestral, de las unidades, el departamento de Servicios Generales hará una programación global de los servicios. Solamente y con autorización del Decano o un Director de Programa, se incluirá una gira no contemplada en esa programación.

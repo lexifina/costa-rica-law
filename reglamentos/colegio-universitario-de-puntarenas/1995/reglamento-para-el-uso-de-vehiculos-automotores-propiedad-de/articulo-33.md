@@ -1,0 +1,1 @@
+Artículo 33.—El conductor o chofer que con conocimiento de un daño causado a vehículos, personas o propiedades lo ocultare, asumirá toda la responsabilidad legal del caso, habiendo además incurrido en causal de despido sin responsabilidad patronal.

@@ -1,0 +1,3 @@
+CAPITULO VI
+Responsabilidades en caso de accidente
+Artículo 31.—El chofer o conductor del C.U.P. a quien se le impute un accidente de tránsito por negligencia, impericia, imprudencia o inobservancia de las leyes de tránsito, etc., deberá pagar el monto de deducible de acuerdo con la póliza del Instituto Nacional de Seguros, sin perjuicio de las sanciones estipuladas en este reglamento. Para tal efecto debe mediar resolución del Tránsito que establezca la responsabilidad del caso sobre el funcionario del C.U.P. Si el valor de las reparaciones es menor que el deducible, el funcionario sólo pagará las reparaciones.

@@ -1,0 +1,1 @@
+Artículo 8°—Todo vehículo propiedad de la Institución debe estar cubierto por una póliza de seguro del Instituto Nacional de Seguros contra todo riesgo; correspondiendo al Departamento Financiero, el oportuno y permanente cumplimiento de esta disposición.

@@ -1,0 +1,3 @@
+CAPITULO II
+Del personal conductor
+Artículo 15.—La conducción de vehículos estará a cargo del personal nombrado expresamente para esas labores. Sin embargo, a falta de ellos, el Decanato o la Dirección Administrativa, podrán autorizar a otros funcionarios a realizar esta labor, siempre y cuando posean la licencia respectiva al día, la suficiente experiencia como conductores y estén cubiertos por las correspondientes pólizas de riesgos. La Dirección Administrativa deberá revisar periódicamente la vigencia de las licencias de conducir de los funcionarios que conduzcan los vehículos de la Institución.

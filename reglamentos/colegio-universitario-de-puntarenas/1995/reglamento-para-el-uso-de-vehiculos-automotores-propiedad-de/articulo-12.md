@@ -1,0 +1,1 @@
+Artículo 12.—Ninguna persona que conduzca vehículos de la Institución podrá estacionarlos cerca de lugares públicos, que por su condición de centros de diversión u otros, puedan lesionar la imagen del C.U.P.

@@ -1,0 +1,1 @@
+Artículo 38.—Si se comprueba la culpabilidad del servidor, el Director Administrativo procederá a gestionar la sanción respectiva ante quien corresponda, siguiendo los canales existentes para cada efecto.

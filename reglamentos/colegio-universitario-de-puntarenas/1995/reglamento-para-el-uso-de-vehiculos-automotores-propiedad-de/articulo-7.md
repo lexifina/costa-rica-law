@@ -1,0 +1,1 @@
+Artículo 7°—En horas no hábiles, fines de semana, asueto y días feriados, los vehículos del C.U.P, deben permanecer en las instalaciones de la Institución, con excepción de los que por circunstancias especiales o naturaleza del servicio que prestan, tengan que usarse, única y exclusivamente para el cumplimiento de funciones propias del Colegio.

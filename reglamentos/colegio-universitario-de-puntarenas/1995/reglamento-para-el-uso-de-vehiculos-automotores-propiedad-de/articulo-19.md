@@ -1,0 +1,1 @@
+Artículo 19.—Cuando por razones de ingerir alimentos debidamente justificados, los usuarios deban acudir a establecimientos mixtos (alimentos y licores), el conductor estacionará el vehículo a una distancia prudencial no pudiendo ser obligado por los usuarios a hacerlo frente al sitio público.

@@ -1,0 +1,1 @@
+Artículo 6°—Cuando haya que hacer traslados de personal a aquellos lugares del país en que existan medios de transporte colectivo más económicos (aéreos, ferroviarios, etc.), se procurará al máximo utilizar esta opción.

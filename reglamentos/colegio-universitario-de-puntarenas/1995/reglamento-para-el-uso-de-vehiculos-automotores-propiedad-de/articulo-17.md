@@ -1,0 +1,1 @@
+Artículo 17.—Cuando el conductor u otro funcionario esté autorizado para llevarse el vehículo a su casa, será responsable de guardar el vehículo en garaje, con todas las seguridades necesarias. Si por el incumplimiento de esta disposición el vehículo sufre algún daño, el conductor deberá pagar todos los daños ocasionados.

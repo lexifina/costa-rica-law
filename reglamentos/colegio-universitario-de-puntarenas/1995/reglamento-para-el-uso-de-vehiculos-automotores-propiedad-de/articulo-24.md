@@ -1,0 +1,1 @@
+Artículo 24.—Los servicios que no puedan programarse semestralmente, deberán solicitarse a más tardar con una semana de anticipación ante el Director respectivo. Este podrá autorizar la realización del viaje, siempre que no exista para la fecha solicitada programación alguna.

@@ -1,0 +1,1 @@
+Artículo 22.—Los programas deberán presentarse firmados por el Director respectivo y deberán contener la siguiente información: destino (lugar preciso de las giras), fecha, hora de salida y regreso, número de pasajeros, nombre del profesor o funcionario responsable del viaje, nombre del curso o proyecto, motivo del viaje.

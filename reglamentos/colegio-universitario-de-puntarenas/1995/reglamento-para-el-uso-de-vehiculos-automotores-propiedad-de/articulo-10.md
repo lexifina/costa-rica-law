@@ -1,0 +1,1 @@
+Artículo 10.—Todo vehículo deberá llevar la placa de matrícula especial con carácter de oficial permanente (placas oficiales) en los lugares donde reglamentaria éstas deban colocarse y además llevarán un rótulo visible en los costados o puertas del mismo en el cual se indique clara-mente el nombre de la institución.
