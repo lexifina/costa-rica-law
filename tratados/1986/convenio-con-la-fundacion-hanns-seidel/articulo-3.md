@@ -1,0 +1,6 @@
+ARTICULO III.-1) La "Fundación" enviará un experto, quien actuará en nombre de la "Fundación" con base en el presente Convenio, como Representante Permanente en San José, de Costa Rica.
+2) El representante permanente de la "Fundación", llevará a cabo objetivos en colaboración con el "Gobierno" o con sus representantes, las autoridades de país con diferentes contrapartes.
+3) El representante permanente de la "Fundación" está autorizado a representar a la "Fundación" en todos los trámites relacionados con el presente Convenio y a efectuar todos los asuntos legales necesarios, en nombre de la "Fundación", dentro del marco de sus instrucciones.
+4) En caso necesario y de acuerdo con el "Gobierno", y la "Fundación" podrá enviar otros expertos y especialistas con encargos de tiempo limitado, que estarán subordinados al representante permanente.
+5) La "Fundación" cubrirá todos los gastos del representante permanente y de los expertos, enviados por parte de la "Fundación". El personal enviado por la "Fundación" estará exclusivamente subordinado a la autoridad de la "Fundación".
+6) Además, de los objetivos fijados en el artículo I del presente Convenio, el representante permanente podrá tomar parte activa en el trabajo internacional de capacitación de la "Fundación".

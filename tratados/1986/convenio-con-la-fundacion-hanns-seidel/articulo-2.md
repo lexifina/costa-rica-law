@@ -1,0 +1,3 @@
+ARTICULO II.- La "Fundación" desarrollará sus tareas en asocio con instituciones costarricenses, con independencia y con las garantías que ofrece la organización democrática de Costa Rica.
+(Nota de Sinalevi: Mediante el Tratado Internacional denominado “Protocolo de Enmienda al Convenio entre el Gobierno de la República de Costa Rica y la Fundación Hanns Seidel (República Federal de Alemania”), se modifica este numeral para que se lea de la siguiente manera:
+“…ARTICULO II.- La "Fundación" desarrollará sus tareas en asocio con instituciones costarricenses estatales y con las garantías que ofrece la organización democrática de Costa Rica. Los funcionarios de la "Fundación" tendrán el rango de MISION INTERNACIONAL (MI)”)

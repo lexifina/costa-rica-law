@@ -1,0 +1,4 @@
+ARTICULO IV.- En vista del interés social de las actividades de la “Fundación”, y para el buen desarrollo de las mismas, el “Gobierno” concederá libre importación de enseres y equipos necesarios.
+Las exenciones correspondientes podrán alcanzar un monto anual equivalente al 10% del presupuesto de inversión asignado para ese mismo año.
+(Nota de Sinalevi: Mediante el Tratado Internacional denominado “Protocolo de Enmienda al Convenio entre el Gobierno de la República de Costa Rica y la Fundación Hanns Seidel (República Federal de Alemania”), se modifica este numeral para que se lea de la siguiente manera:
+“…ARTICULO IV.- En vista del carácter beneficiosos de las actividades de la "Fundación", y para el buen desarrollo de las mismas, el "Gobierno" concederá libre importación de enseres, vehículos automotores y equipos necesarios. Las exenciones correspondientes podrán alcanzar un monto anual equivalente al 10% del presupuesto de inversión asignado para ese mismo año”)
