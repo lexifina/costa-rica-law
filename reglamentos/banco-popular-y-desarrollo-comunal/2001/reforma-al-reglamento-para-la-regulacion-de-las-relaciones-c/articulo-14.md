@@ -1,1 +1,0 @@
-Artículo 14.—De la coordinación operativa. La coordinación operativa entre el Banco y las Sociedades Anónimas se realizará mediante la conformación de un comité denominado Comité de Negocios Corporativos, el cual estará constituido por los gerentes de las Sociedades Anónimas, el Subgerente de Operaciones, y el Subgerente de Negocios del Banco, quien lo presidirá.

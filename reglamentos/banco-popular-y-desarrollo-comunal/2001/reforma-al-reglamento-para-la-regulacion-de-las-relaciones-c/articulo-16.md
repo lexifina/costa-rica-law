@@ -1,1 +1,0 @@
-Artículo 16.—De la coordinación de sistemas de información. La Administración de cada Sociedad deberá coordinar con el Macroproceso de Tecnología de Información del Banco todos los proyectos de desarrollo tecnológico, a efectos de garantizar la compatibilidad de los sistemas automatizados de información y comunicación, y de los respectivos equipos.
