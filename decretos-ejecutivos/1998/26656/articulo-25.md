@@ -1,0 +1,1 @@
+Artículo 25.—La Unidad Técnica Asesora contará con un coordinador(a), que deberá ser un profesional, con nivel mínimo de Maestría en Salud Pública o área afín y reconocida experiencia en investigación, vigilancia y docencia en salud, quien es el responsable de garantizar el cumplimiento de las funciones establecidas para la UTA.

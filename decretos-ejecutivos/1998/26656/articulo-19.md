@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección es el órgano de mayor jerarquía ejecutivo-administrativa dentro del Instituto y en consecuencia, le corresponde al Director(a) planear, organizar, coordinar, ejecutar y evaluar todo lo que se relacione con el INCIENSA.

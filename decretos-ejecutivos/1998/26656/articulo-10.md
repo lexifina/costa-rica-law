@@ -1,0 +1,1 @@
+Artículo 10.—El Consejo Técnico sesionará ordinariamente cada mes; y extraordinariamente, cuando sea convocado por el Presidente(a), por el Director(a) del INCIENSA o a solicitud de dos o más miembros del Consejo.

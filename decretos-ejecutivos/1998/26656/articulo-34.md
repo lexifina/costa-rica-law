@@ -1,0 +1,1 @@
+Artículo 34.—El Área de Proyectos y CDRs tendrá un coordinador(a) que deberá ser un profesional, con nivel de Maestría en Salud Pública o área afín, con capacitación en planificación y gestión de proyectos y con reconocida experiencia en el ámbito de la investigación, enseñanza y transferencia de información en salud.
