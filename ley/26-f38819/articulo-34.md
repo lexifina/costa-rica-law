@@ -1,2 +1,2 @@
-Art. 34.-Los Jueces de 1ª Instancia de las demás provincias y comarcas, en el caso del artículo anterior, una vez puesta la razón dicha, lo avisarán á la Sala 1ª de Apelaciones.
-La Sala comisionará al Gobernador respectivo para que practique el examen prevenido, á reserva de que lo revea en su visita el Magistrado visitador, ó suspenderá tal examen para que lo practique éste oportunamente.
+Artículo 34.-Será aplicable el apremio corporal en materia civil a todo notario o cartulario que, después; de prevenido por el Juez Civil, de su jurisdicción, no enviare sus protocolos a los Archivos Nacionales o al Juzgado, según corresponda, dentro del término que se fijare
+(Así reformado por el artículo 1° de la ley N° 97 del 11 de julio de 1934).

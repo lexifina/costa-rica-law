@@ -1,1 +1,1 @@
-Art. 38.-El Ministerio de Hacienda podrá también, siempre que lo estime conveniente, mandar examinar los protocolos por lo que respecta á los derechos é impuestos que ocasionen las escrituras.
+Art. 38.-(Derogado por el artículo 2° de la ley N° 97 del 11 julio de 1934).
