@@ -1,0 +1,1 @@
+Artículo 9°—No se permitirá la presencia de personas o grupos de personas sin guía, en la playa durante la noche, entre las dieciocho horas y las cinco de la mañana, del día primero del mes de marzo hasta el treinta y uno de octubre de cada año.

@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios del Ministerio de Recursos Naturales, Energía Minas, están facultados para desalojar a cualquier visitante que viole o no acate las disposiciones contenidas en este Decreto.
