@@ -1,0 +1,5 @@
+DECRETO XX.
+Declara la elección de Senador suplente en la persona de Don Venancio Sandoval.
+"El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica.--Por cuanto las Camaras han decretado lo siguiente.
+La Asamblea general del Estado libre de Costa Rica: habiendo procedido al escrutinio de los sufragios, que por segunda vez, han emitido las secciones electorales para un Senador suplente; y no resultando eleccion popular, en observancia de lo dispuesto por los articulos 88 y 117 de la ley fundamental, decreta.
+Art. único. Se ha por Senador suplente al Sr. Venancio Sandoval electo por la Asamblea.-Comunìquese al Supremo Poder Ejecutivo para que lo haga imprimir, circular y publicar. -Dado en la ciudad de San José á los veintisiete dias del mes de junio de mil ochocientos cuarenta y cinco. - José Maria Castro, Representante Presidente. -Rafael Ramirez, Representante primer Secretario. Gordiano Fernandez, Representante segundo Secretario. Por tanto: EJECUTESE. San José, Junio ceintiocho de mil ochocientos cuarenta y cinco. –José Rafael de Gallegos. –Al Ministro de relaciones y gobernación.”
