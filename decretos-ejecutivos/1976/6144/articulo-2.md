@@ -1,1 +1,0 @@
-Artículo 2°—Las Instituciones Públicas estarán obligadas a prestar amplia colaboración a la Oficina de Información de la Casa Presidencial, así como proporcionarle la información necesaria para el cumplimiento de sus funciones.
