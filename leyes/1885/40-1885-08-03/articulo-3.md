@@ -1,0 +1,2 @@
+Art. 3°-Autorízase al Poder Ejecutivo para celebrar con los concesionarios el contrato correspondiente.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los tres días del mes de agosto de mil ochocientos ochenta y cinco.- JN. M. CARAZO, Presidente.-VICENTE C. SEGREDA, 1er Secretario.-JUAN J. ULLOA G., 20 Secretario.-Palacio Presidencial.-San José, tres de agosto de mil ochocientos ochenta y cinco.-Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Fomento, C. DURÁN.
