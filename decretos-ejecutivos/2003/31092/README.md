@@ -43,3 +43,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 28 | 2004-07-07 | Decreto Ejecutivo 32007 (2004-07-07) |
 | 29 | 2004-07-08 | Decreto Ejecutivo 32008 (2004-07-08) |
 | 30 | 2004-07-08 | Decreto Ejecutivo 32013 (2004-07-08) |
+| 31 | 2004-07-13 | Decreto Ejecutivo 31982 (2004-07-13) |
