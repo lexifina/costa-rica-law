@@ -16,3 +16,4 @@ Reglamento para la Organización y Funcionamiento del Mercado Municipal.
 | 1 | 2001-02-09 | la propia norma |
 | 2 | 2001-10-31 | Reglamento municipal 0 (2001-10-31) |
 | 3 | 2002-06-28 | Reglamento municipal 0 (2002-06-28) |
+| 4 | 2004-07-14 | Reglamento municipal 115 (2004-07-14) |

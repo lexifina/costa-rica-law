@@ -1,4 +1,5 @@
-Artículo 15.—Los inquilinos de puestos fijos no podrían vender, ceder, subarrendar, comprometer o utilizar cualquier forma análoga que implique el traspaso o entrega del local o del derecho de arrendamiento.
-La infracción a lo expuesto en el párrafo anterior dará lugar a la disolución del contrato de arrendamiento y como consecuencia se producirá el cierre del local, lo que le será comunicado al propietario dándole un término de 8 días para el desalojo administrativo o legal según sea el caso, cumpliendo así con el debido proceso.
-El adjudicatario que no pueda atender el local, podrá utilizar los servicios de un dependiente mediante contrato laboral autenticado por abogado y notario. Una copia de contrato laboral, se adjuntará al contrato de arrendamiento de local
-(Así reformado mediante sesión ordinaria celebrada el 28 de junio del 2002)
+Artículo 15.—Los inquilinos de puestos fijos no podrán vender o subsanar, el local o el derecho de arrendamiento.
+La infracción a lo expuesto dará lugar a la disolución del contrato de arrendamiento y como consecuencia se producirá el cierre del local, lo que le será comunicado al propietario dándole un plazo de 8 días hábiles para el desalojo administrativo o legal según sea el caso, cumpliéndose así el debido proceso.
+El adjudicado no podrá separarse de la atención personal del local salvo por enfermedad comprobada, el alcalde podrá otorgar permiso hasta por un mes.
+El Concejo Municipal podrá otorgar permiso hasta por seis meses en casos muy calificados. La presencia ocasional del adjudicatario en el local, no es suficiente para demostrar la atención del mismo.
+(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 115 el 14 de julio de 2004)
