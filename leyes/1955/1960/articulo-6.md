@@ -1,0 +1,1 @@
+Artículo 6º.- Las disposiciones del artículo VI del Convenio de Fundación de la Corporación Financiera Internacional, tendrán fuerza de ley en todo el territorio de la República desde la fecha de inauguración de la citada Corporación.
