@@ -1,0 +1,1 @@
+Artículo 8°—Perderá su calidad de miembro de la Junta Directiva, el que dejare de asistir sin justa causa a cuatro sesiones ordinarias consecutivas o a seis no consecutivas, en un semestre de calendario.

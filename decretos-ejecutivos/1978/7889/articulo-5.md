@@ -1,0 +1,1 @@
+Artículo 5°—La Junta Directiva estará integrada por siete miembros de libre elección del Poder Ejecutivo, que durarán en sus funciones cuatro años y podrán ser reelectos indefinidamente. Los que sean nombrados para llenar vacantes por renuncia o muerte de los miembros, serán electos por e! resto del periodo.

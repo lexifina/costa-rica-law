@@ -1,0 +1,2 @@
+Artículo 31.—El concesionario pagará al Administrador la suma fijada por la Junta Directiva para el uso del Teatro Nacional, así como los impuestos que corresponden al 10% sobre la entrada bruta de los espectáculos extranjeros.
+La Junta Directiva podrá exonerar del pago del uso de Teatro Nacional. Y también exonerar del pago del 10% sobre la entrada bruta a los espectáculos extranjeros o nacionales, cuando a su Juicio el precio de las localidades estén al alcance de la mayoría de! público.

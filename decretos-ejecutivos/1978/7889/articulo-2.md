@@ -1,0 +1,1 @@
+Articulo 2°—Para el cumplimiento de sus fines cuenta con sus instalaciones propias que son: el edificio denominado Teatro Nacional sobre avenidas 29 y Central, calles 3 y 5, también las de la Plaza de la Cultura que se le asignen y otras que en el futuro se le otorguen.

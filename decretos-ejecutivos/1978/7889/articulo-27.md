@@ -1,0 +1,3 @@
+Articulo 27.—La Junta Directiva sólo podrá conceder el uso del Teatro Nacional para los siguientes actos:
+a) Espectáculos de alta calidad artística y cultural, de acuerdo con su criterio, el que ejercerá en la misma forma cuando contrate espectáculos por su propia cuenta.
+b) Sesiones inaugurales de congresos o conferencias internacionales de tipo gubernamental, y también de carácter privado mientras el Estado no tenga otras instalaciones adecuadas, siempre que esas sesiones no interfieran con la presentación de espectáculos artísticos o con trabajos de mantenimiento o restauración del Teatro Nacional.
