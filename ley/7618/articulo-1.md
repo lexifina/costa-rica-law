@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 25528 del 23 de setiembre de 1996, la República de Costa Rica se adhiere al presente Convenio)
 APROBACION DEL CONVENIO INTERNACIONAL DEL AZUCAR
 ARTICULO 1.- Apruébase la adhesión de la República de
 Costa Rica al Convenio internacional del azúcar y su anexo, suscritos en
