@@ -1,0 +1,1 @@
+Artículo 4°—SEPSA estará a cargo de un Director Ejecutivo de nombramiento y remoción del Ministro de Agricultura y Ganadería, previa consulta con los demás miembros del Consejo Nacional Sectorial Agropecuario (CAN).

@@ -1,0 +1,1 @@
+Artículo 10.—La capacitación del personal de SEPSA es atribución del Ministro de Agricultura y del Director Ejecutivo, para tal fin se atenderá lo establecido por el Estatuto del Servicio Civil en esta materia.
