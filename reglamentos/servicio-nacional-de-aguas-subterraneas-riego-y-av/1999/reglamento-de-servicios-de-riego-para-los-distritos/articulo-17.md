@@ -1,0 +1,1 @@
+Artículo 17.—Cuando las facturas no fuesen pagadas dentro del período de cobro establecido, el SENARA suspenderá el servicio de riego. Una vez cumplida la fecha de vencimiento de la factura por servicios de riego, sin que la misma haya sido cancelada por el usuario, la deuda generará un recargo por morosidad del 2,50% mensual, durante el tiempo en que persista esa morosidad.

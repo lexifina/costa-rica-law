@@ -1,0 +1,1 @@
+Artículo 22.—La suspensión del servicio se mantendrá mientras persista la situación que le dio origen. Aún cuando el servicio esté suspendido, por causas imputables al usuario, ello no lo exime del pago de la tarifa y los recargos correspondientes.
