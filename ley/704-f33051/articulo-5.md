@@ -1,0 +1,2 @@
+Artículo 5º.- El copropietario de lotes particulares en los cementerios, o de las edificaciones que éstos contengan, no podrá traspasar sus derechos a terceras personas.
+Si los copropietarios no convienen en traspasar a alguno o a algunos de ellos la totalidad de tales derechos, reintegrando al otro u otros en dinero, se procederá, a petición de uno cualquiera de ellos, al remate judicial; pero sólo los parientes enumerados en el artículo primero estarán facultados para adquirirlos en esa forma.

@@ -1,4 +1,6 @@
+(Derogado)
 N° 58
+(Esta norma fue derogada por el artíuclo 9° de la ley N° 704 del 7 de setiembre de 1949, "Regulación sobre las propiedades y arrendamiento de tumbas en los cementerios")
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
