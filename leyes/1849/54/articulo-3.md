@@ -1,0 +1,1 @@
+Art. 3° Se aprueban de la misma manera las capitulaciones que tienen por objeto la colonizacion de algunos terrenos de la República con las reformas que constan en los artículos 1°2°3°4°5°6°7°8°y 9° del ejemplar que adjunto se manda elevar al conocimiento del Supremo Gobierno para los efectos que convengan.
