@@ -1,0 +1,5 @@
+Artículo 6°—De conformidad con lo establecido en el inciso c) del artículo 14 de la Ley Constitutiva de la Caja, corresponderá a la Gerencia de la División Financiera ejecutar la política de inversión establecida por la Junta Directiva para cada ejercicio económico, según las siguientes disposiciones:
+a) Inversiones a la vista: La Junta Directiva autorizara a la Gerencia de la División Financiera un monto determinado de inversiones a realizar para cada ejercicio económico, asi como la determinación de las directrices y políticas por seguir para este tipo de inversión.
+b) Inversiones de corto plazo: Las ejecutará la Gerencia de la División Financiera, de acuerdo con las recomendaciones de la Comisión de Inversiones con sujeción a los parámetros establecidos en los acuerdos de la Junta Directiva.
+c) Inversiones mediano y largo plazo: Las ejecutará la Gerencia de la División Financiera con sujeción al acuerdo concreto de la Junta Directiva en el que se señalaran todas las condiciones de la inversión.
+La Gerencia de la División Financiera, al ejecutar los acuerdos de inversiones diversificará la cartera de inversiones, entre los diversos emisores autorizados.

@@ -1,0 +1,1 @@
+Articulo 14.—Por medio de la Dirección Financiero Contable, la Gerencia de la División Financiera presentará ante la Gerencia de la División de Pensiones, la ejecución de las inversiones la ejecución de las inversiones a Corto, Mediano y Largo Plazo del Seguro de Salud, de acuerdo con las Políticas de Inversión aprobadas por la Junta Directiva y la normativa vigente.

@@ -1,0 +1,1 @@
+Articulo 3°—Las inversiones del las reservas técnicas diseñadas por la Dirección Actuarial y de Planificación Económica, se realizarán de conformidad con el articulo 2° del presente reglamento y con las políticas y los porcentajes que fije la Junta Directiva para estas inversiones.

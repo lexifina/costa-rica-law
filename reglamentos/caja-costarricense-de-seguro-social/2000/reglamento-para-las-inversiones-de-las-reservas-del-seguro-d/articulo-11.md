@@ -1,0 +1,1 @@
+Articulo 11.—Por razones de oportunidad, debidamente justificadas, y ante eventuales problemas de liquidez del Seguro de Salud, se faculta al Gerente de la División Financiera, para proponer ante la Comisión de Inversiones la venta de Títulos Valores del Seguro de Salud al Seguro de Pensiones, de conformidad con la política de inversión.
