@@ -1,0 +1,1 @@
+Artículo 59.—Disposiciones supletorias. En todo aquello no previsto en este Reglamento se aplicarán las disposiciones de la Ley General de la Administración Pública, Estatuto del Servicio Civil y su Reglamento, el Reglamento Autónomo de Servicios, las disposiciones conexas o complementarias, la jurisprudencia judicial y administrativa y los principios generales del derecho.

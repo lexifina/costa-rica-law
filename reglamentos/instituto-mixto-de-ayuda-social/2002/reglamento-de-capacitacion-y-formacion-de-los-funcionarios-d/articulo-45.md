@@ -1,0 +1,1 @@
+Artículo 45.—Prorrogas de beneficios. Las solicitudes de prórroga de los beneficios otorgados cuando correspondan, deberán presentarse dentro del mes anterior a que finalice el beneficio concedido, junto con los atestados que justifiquen esa prórroga, ante la Comisión de capacitación para su aprobación.

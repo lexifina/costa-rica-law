@@ -1,0 +1,1 @@
+Artículo 47.—Nuevos beneficios. No se aprobará un nuevo beneficio a aquellas personas que tengan deudas pendientes con el IMAS, originadas en resarcimientos y arreglos de pago por incumplimiento en actividades anteriores de capacitación o que no haya amortizado al menos un 75 % del capital de un préstamo de estudio anterior.

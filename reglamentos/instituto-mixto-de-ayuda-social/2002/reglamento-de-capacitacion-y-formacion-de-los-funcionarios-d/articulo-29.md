@@ -1,0 +1,1 @@
+Artículo 29.—Votos contrarios. Los miembros de la Comisión podrán hacer constar en el acta su voto contrario o su abstención al acuerdo adoptado y los motivos que lo justifiquen, quedando exentos de las responsabilidades que, en su caso, pudieren derivarse de tales acuerdos. En este supuesto deberán firmar el acta correspondiente.

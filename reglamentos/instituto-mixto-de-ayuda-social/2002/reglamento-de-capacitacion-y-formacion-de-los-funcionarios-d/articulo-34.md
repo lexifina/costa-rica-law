@@ -1,0 +1,19 @@
+Artículo 34.—De los beneficios. Los beneficios que pueden disfrutar los funcionarios consisten en uno o varios de los que a continuación se indican, los cuales serán aprobados por la Gerencia previa recomendación de la Comisión, siempre y cuando las actividades que motiven estos beneficios sean de interés y aplicación institucional y se encuentren contemplados en el Plan Anual de Capacitación. En caso de que algún funcionario solicite algún beneficio no contemplado en este Reglamento o que el monto o tiempo que se requiera para cursar estudios en áreas de interés institucional sea superior al aprobado, será el Consejo Directivo el que determine su concesión previo análisis y recomendación de la Comisión y la Gerencia.
+Los beneficios son los siguientes:
+a) Licencia con goce de salario hasta por seis meses.
+b) Licencia con goce de salario parcial, hasta un máximo de tres años.
+c) Permiso de estudio con goce de salario hasta por un máximo de 10 horas semanales, siempre y cuando el horario del curso (s) requiera utilizar el tiempo laboral como única opción para asistir a lecciones.
+d) Permiso sin goce de salario de conformidad con lo que dispone el Reglamento Autónomo de Servicios.
+e) Descuento de horas extras acumuladas o reposición de tiempo hasta por diez horas semanales, siempre y cuando el horario de los cursos requiera utilizar tiempo laboral como única opción.
+f) Pago de matrícula, materias, colegiatura, participación o inscripción en cursos, seminarios, congresos, etc.
+g) Préstamo para estudios.
+h) Monto económico para la compra de material bibliográfico siempre y cuando el mismo no forme parte del acervo bibliográfico del Centro de Documentación del IMAS. Esta cantidad formará parte del monto máximo anual que podrá disfrutar un funcionario.
+i) Préstamo para la confección de tesis o trabajo final de graduación y pago de aranceles para su defensa, cuando haya interés institucional en la investigación o se presenten condiciones que impidan desarrollar un tema de interés y aplicación estricta en la Institución.
+j) Permiso con goce de salario para prepararse y presentar pruebas de grado y para efectuar el trabajo de investigación de tesis. En estos casos, el funcionario podrá disfrutar de 3 días de permiso por cada prueba de grado y de hasta 20 días hábiles para la preparación y defensa de la tesis, pudiendo ser fraccionados, de común acuerdo con el superior jerárquico.
+k) Gastos de viaje y de transporte dentro del país, de conformidad con lo dispuesto en el Reglamento de gastos y Viajes para el servidor público.
+l) Pasantías.
+m) Licencia con goce de salario a tiempo completo, medio tiempo, días u horas, para asistir a actividades de capacitación gestionadas o financiadas por los funcionarios, siempre que éstas sean congruentes con las necesidades de capacitación detectadas en la Institución y se requieran para el desempeño del puesto que ocupa. Cuando la licencia exceda de tres meses se deberá suscribir el respectivo contrato y el trabajador quedará obligado a presentar servicios a la Institución una vez concluida la capacitación, de acuerdo con lo estipulado en el artículo 46 inciso g).
+n) Gastos de alimentación y traslado para instructores que brinden su colaboración sin costo alguno.
+o) Un día para asistir al acto de graduación.
+El monto máximo anual que se otorgará a los funcionarios para cubrir alguno (s) de los beneficios citados, se ajustará anualmente con base en los precios de los materiales y servicios de docencia y será aprobado por el Consejo Directivo.
+En casos muy calificados, a juicio de la Gerencia, el funcionario podrá, simultáneamente disfrutar de préstamo de estudio por el monto máximo que se defina al respecto. En este caso, el funcionario deberá cancelar la deuda a un año plazo, la que se deducirá de su salario y estará constituida por el monto principal más un interés de un 10 % anual.

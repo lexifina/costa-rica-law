@@ -1,0 +1,1 @@
+Artículo 40.—Impedimento en relación con becas postgrado o maestría. El becario de estudios de postgrado o maestría, no podrá disfrutar de igual beneficio sino después de transcurridos cuatro años a partir de su finalización, a menos que el nuevo curso sea una continuación de aquél y que sumados ambos no sobrepasen los cuatro años.

@@ -1,0 +1,1 @@
+Artículo 11.—Las actividades o acciones esencialmente informativas, cuyo propósito es dar a conocer a los funcionarios instrumentos, procedimientos o técnicas de trabajo que se deriven de las actividades propias del facilitador en razón de su trabajo y su puesto, no se reconocerán como capacitación.

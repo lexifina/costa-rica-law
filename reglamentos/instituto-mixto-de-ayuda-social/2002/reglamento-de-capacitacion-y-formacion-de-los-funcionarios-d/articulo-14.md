@@ -1,0 +1,1 @@
+Artículo 14.—Modificaciones al plan. La unidad de capacitación y formación podrá adicionar al plan acciones no previstas originalmente, justificadas en función de las necesidades institucionales, y que sean debidamente aprobadas por la Gerencia.

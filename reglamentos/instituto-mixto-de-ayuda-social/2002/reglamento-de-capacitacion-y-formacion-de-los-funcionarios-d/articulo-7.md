@@ -1,0 +1,1 @@
+Artículo 7º—El tiempo que el funcionario dedique a su capacitación en virtud de los programas desarrollados o aprobados por la Comisión de capacitación, la Gerencia o el Consejo Directivo, será reconocido y considerado como tiempo de trabajo efectivo para todos los efectos legales que correspondan. Se exceptúan de esta disposición los permisos sin goce de salario.

@@ -1,0 +1,1 @@
+Artículo 2º—La unidad de capacitación y formación tendrá a su cargo la consecución y gestión de los medios pertinentes para dotar de capacitación y formación de los funcionarios del IMAS, según se establece en el presente Reglamento.

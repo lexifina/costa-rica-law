@@ -1,0 +1,1 @@
+Artículo 5º—Las normas, disposiciones y procedimientos contenidos en este Reglamento son de aplicación obligatoria en todas las acciones tendientes a la dotación, perfeccionamiento y refrescamiento de conocimientos, habilidades, destrezas y actitudes requeridas para el desempeño exitoso del trabajador.

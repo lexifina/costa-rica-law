@@ -1,0 +1,1 @@
+Artículo 54.—Incumplimiento de obligaciones por los responsables de unidades administrativas. El incumplimiento a las obligaciones establecidas en este Reglamento por parte de los superiores jerárquicos de unidades administrativas, se considerará falta grave y se tramitará conforme a las disposiciones del Reglamento Autónomo de Servicios.

@@ -1,0 +1,1 @@
+Artículo 33.—Extensión de los beneficios. El IMAS podrá otorgar parcial o totalmente beneficios para que sus trabajadores realicen estudios que complementen y mejoren su capacitación y formación, siempre que ello contribuya efectivamente a su rendimiento laboral y que se encuentren en concordancia con el plan de capacitación y formación.

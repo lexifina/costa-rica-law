@@ -1,0 +1,5 @@
+Artículo 48.—Garantía.
+a) Los becarios, en los casos en que corresponda, deberán aportar una garantía que cubra el cien (100%) por ciento estimado del beneficio concedido. Dicha garantía podrá otorgarse mediante fianza solidaria, o cualquier otro tipo de garantía admisible legalmente. Quedarán exentos de esta obligación los becarios que participen en acciones de capacitación que no superen las ciento veinte horas. Recursos Humanos llevará un control de las garantías rendidas por los beneficiarios. En caso de fianza solidaria, los ingresos de los fiadores deberán cubrir al menos un 30 % del beneficio solicitado.
+b) Una misma persona no podrá fungir como fiadora en más de dos casos en forma simultánea.
+c) Los fiadores podrán ser funcionarios o no del IMAS. En caso de que el fiador propuesto labore en empresa privada, se requerirá además de la constancia salarial, copia de la orden patronal.
+d) La Asesoría Jurídica del IMAS deberá realizar la confección y trámite de ejecución de las garantías que establezca la Gerencia.

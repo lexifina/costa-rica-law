@@ -1,0 +1,1 @@
+Artículo 57.—Derogatoria. Quedan derogadas cualquiera otras normas dictadas por el Consejo Directivo que se opongan al presente Reglamento, así como también el Reglamento de Becas, Préstamos de estudio y Licencia de estudios del IMAS vigente, a partir del día 3 de junio de 1992.
