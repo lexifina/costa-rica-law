@@ -1,0 +1,4 @@
+CAPÍTULO XIV
+Del mantenimiento de planta física y equipos
+generadores de radiaciones ionizantes
+Artículo 69.—Del programa de mantenimiento preventivo y Correctivo. Todas las instalaciones físicas que alberguen equipos generadores de radiaciones ionizantes, fuentes, materiales y desechos radiactivos; así como los equipos emisores de radiación y los que contengan fuentes o material radiactivo, deben contar con un programa de mantenimiento preventivo y correctivo y, a su vez, las unidades responsables de la calibración electromecánica de los equipos, cada vez que se realice una actividad de mantenimiento que pueda descalibrarlos se debe entregar un informe donde se certifique la calibración del haz de radiación. Dichos valores para las áreas de medicina nuclear y radioterapia deben ser verificados conjuntamente con el físico médico (cuando se cuente con este recurso humano en el servicio) para su aprobación.

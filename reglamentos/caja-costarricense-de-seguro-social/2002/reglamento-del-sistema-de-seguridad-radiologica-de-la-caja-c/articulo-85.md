@@ -1,0 +1,1 @@
+Artículo 85.—De los desechos radiactivos de tipo gaseosos o Aerotransportados. Para el caso de los desechos radiactivos de tipo gaseosos o aerotransportados, las instalaciones deberán disponer de los sistemas de filtros adecuados para retenerlos y cumplir con los límites derivados de descargas autorizados por la Autoridad Competente.

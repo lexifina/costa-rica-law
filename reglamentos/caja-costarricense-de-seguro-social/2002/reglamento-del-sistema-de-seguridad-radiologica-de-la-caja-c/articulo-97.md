@@ -1,0 +1,1 @@
+Artículo 97.—De las mujeres embarazadas. Desde el momento en que una mujer ocupacionalmente expuesta presente su certificación de embarazo y hasta el término de la gestación, debe ser trasladada a otras labores que no involucren contacto directo o indirecto con radiaciones ionizantes.

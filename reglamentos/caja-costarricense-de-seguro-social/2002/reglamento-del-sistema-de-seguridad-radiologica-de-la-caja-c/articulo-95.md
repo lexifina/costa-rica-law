@@ -1,0 +1,1 @@
+Artículo 95.—De las dosis que excedan los límites máximos. Las situaciones en las que se excedan los límites máximos de las dosis establecidas, el Comité Local de Seguridad Radiológica, con la participación de los funcionarios del nivel local que estimen pertinentes procederán a efectuar la investigación correspondiente, a solicitud del Titular de la Licencia de la Instalación.

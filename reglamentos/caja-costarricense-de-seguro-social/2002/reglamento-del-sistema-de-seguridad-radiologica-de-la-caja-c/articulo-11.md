@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del marco normativo institucional en Seguridad Radiológica
+Artículo 11.—De la actualización del Reglamento del Sistema de Seguridad Radiológica. El Titular de la Gerencia División de Operaciones, es responsable de presentar al análisis y aprobación de la Junta Directiva las modificaciones a este Reglamento, que técnicamente el DCCPR conjuntamente con el Consejo Técnico de Seguridad Radiológica, identifiquen necesarias para el fortalecimiento de la protección a los pacientes, trabajadores ocupacionalmente expuestos, público en general y ambiente contra exposiciones a radiaciones ionizantes perjudiciales.

@@ -1,0 +1,8 @@
+Artículo 62.—De la contratación del transporte de material, fuentes o equipos emisores de radiación con terceros. En la contratación de terceros para el transporte de material, fuentes o equipos emisores de radiación, en el pliego de condiciones respectivo se debe solicitar al oferente:
+a) Presentar el permiso sanitario de funcionario vigente otorgada por la Autoridad Competente para transportar fuentes de radiación.
+b) Lista de personas que viajarán en el vehículo en que se transportarán materiales y fuentes radiactivas y que cuentan con la correspondiente autorización de la Autoridad Competente para ese efecto.
+c) Presentar certificación de la Autoridad Competente en que conste que los bultos y contenedores que se utilizan para el transporte de materiales radiactivos cuentan con la aprobación de esa entidad.
+d) Garantizar que el vehículo que se va a utilizar exclusivamente será para el transporte del material, las fuentes y/o los equipos generadores de radiaciones ionizantes.
+e) Presentar en un plano, la ruta a seguir para el transporte de los bienes radiactivos, detallando origen (punto de partida), ruta y destino (punto de arribo).
+f) Presentar del plan o procedimientos de emergencia iniciales que adoptará el transportista en caso de accidente en el trayecto, a efecto de evitar la dispersión de contaminación o pérdida de fuentes y los mecanismos de comunicación oportuna y ágil con el titular de la licencia de la instalación para las acciones posteriores que procedan.
+g) Presentar documento legalmente válido, en que conste que ha certificado ante la Autoridad Competente los requerimientos establecidos en el artículo 37 del Reglamento sobre protección contra radiaciones ionizantes.

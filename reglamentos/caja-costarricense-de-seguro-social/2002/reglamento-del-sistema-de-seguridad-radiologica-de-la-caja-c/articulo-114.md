@@ -1,0 +1,5 @@
+Artículo 114.—Del responsable de ordenar el cierre temporal de una instalación y los criterios que lo fundamentan. El Titular del DCCPR, es la persona técnica institucional facultada para ordenar el cierre temporal de una instalación, cuando como resultado del seguimiento de una evaluación, tengan lugar una o varias de las siguientes situaciones:
+a) Imposibilidad de garantizar la seguridad radiológica de la instalación, en que opera el servicio, ya sea por motivos funcionales o estructurales. Estos criterios deben estar basados en normas internas, nacionales o internacionales.
+b) Cuando se incumplan los requisitos establecidos para la obtención de la licencia de funcionamiento de la instalación y por lo tanto resulta imposible garantizar la seguridad radiológica.
+c) En ausencia del sistema de control de dosimetría personal, al no poder garantizar la seguridad del personal ocupacionalmente expuesto, se procederá al cierre respectivo del servicio.
+Sin obviar lo antes expuesto la Autoridad Competente está facultada para ordenar el cierre temporal de un servicio cuando reciba información de que se presenta uno o varias de las situaciones antes descritas.

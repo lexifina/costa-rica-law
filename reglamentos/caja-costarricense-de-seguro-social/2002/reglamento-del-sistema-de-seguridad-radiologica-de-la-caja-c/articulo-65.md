@@ -1,0 +1,5 @@
+Artículo 65.—Del almacenamiento temporal de material, fuentes o equipos emisores de radiación. El almacenamiento temporal de material, fuentes o equipos emisores de radiación puede efectuarse en espacio contratado con terceros o bien en bodegas de la Caja, por ello es necesario observar lo siguiente:
+a) Se debe disponer de espacios habilitados expresamente para el almacenamiento de este tipo de bienes.
+b) Las áreas para almacenamiento de material, fuentes o equipos emisores de radiaciones ionizantes, deben estar identificadas con el símbolo internacional de presencia de radiactividad.
+c) El acceso a esos espacios es exclusivo para personal autorizado de la empresa contratada y de los funcionarios autorizados por el titular de la licencia de la instalación o el DCCPR (para los casos en que la compra se desarrolla en la Sede Central).
+d) Es prohibido el uso de bodegas para almacenamiento temporal de este tipo de bienes que se encuentren ubicadas junto a elementos inflamables, explosivos o corrosivos.

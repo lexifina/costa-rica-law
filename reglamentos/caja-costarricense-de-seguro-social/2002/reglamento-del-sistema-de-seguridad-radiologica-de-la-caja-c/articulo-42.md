@@ -1,0 +1,2 @@
+Artículo 42.—Del operador. El operador es el trabajador ocupacionalmente expuesto, es decir, es aquella persona que realiza actividades técnicas directas o indirectas vinculadas con el uso, y manipulación de material radiactivo dentro de una instalación o bien que opera equipos generadores de radiaciones ionizantes.
+Se entiende que este personal incluye técnicos y profesionales que laboren bajo las condiciones del párrafo anterior en los servicios.

@@ -1,0 +1,5 @@
+Artículo 41.—De la vigencia y actualización de la licencia del responsable de protección radiológica. La licencia de responsable de protección radiológica siempre deberá estar vigente, es responsabilidad de este funcionario su renovación y deberá solicitarse ante la autoridad competente con un mes de anticipación a su vencimiento y con los siguientes documentos:
+a) Historial dosimétrico.
+b) Certificado de conocimientos actualizados en protección radiológica.
+c) Certificado de condiciones psico-físicas compatibles con la función que desempeñará.
+En caso de que las licencias de responsable de protección radiológica o de operador estén vencidas, el funcionario será suspendido del cargo de responsable de protección radiológica, sin perjuicio de las acciones disciplinarias y sanciones que pudieran corresponder, salvo que haya presentado la documentación oportunamente a la Autoridad Competente y ésta no haya resuelto en el plazo reglamentaria previsto. En este caso las actuaciones del responsable de protección radiológica quedan bajo la responsabilidad de la Autoridad Competente.

@@ -1,0 +1,1 @@
+Artículo 124.—De disposiciones internas que se opongan al Reglamento. Este Reglamento deja sin efecto cualquier otra disposición interna de la CCSS en materia de seguridad y protección radiológica (normas reglamentarias, circulares u otros) que se le oponga.

@@ -1,0 +1,2 @@
+Artículo 38.—Del responsable de la protección radiológica. El responsable de protección radiológica de cada instalación debe formular, implementar y mantener un programa de protección radiológica operacional que permita verificar que los niveles de radiación externos e incorporados, no excedan los valores autorizados por la Autoridad Competente.
+Además será su obligación contar con la respectiva licencia de responsable de protección radiológica otorgada por la Autoridad Competente y mantenerla vigente.

@@ -1,0 +1,4 @@
+Artículo 63.—De los términos del contrato de transporte de material,fuentes y equipos emisores de radiación. Dentro de las cláusulas del contrato respectivo indispensablemente se debe indicar:
+a) Para el traslado del material radiactivo se utilizarán contenedores y bultos autorizados por la Autoridad Competente mediante (se indica la referencia al documento correspondiente detallando, número sí tiene, fecha y funcionario que lo firma).
+b) Durante el traslado del (se indica específicamente el material radiactivo de que se trate) el transportista es responsable de que los bultos y contenedores estén visibles, asegurados a la estructura del vehículo y debidamente etiquetados".
+c) El transportista es responsable de que el etiquetado de los bultos o embalajes proporcione como información mínima el índice de tipo de transporte y la categoría del bulto la forma física del material radiactivo y la actividad del contenedor expresado en Becquerel.

@@ -1,0 +1,3 @@
+Artículo 54.—Del responsable de solicitar la autorización de construcción y/o remodelación de una instalación. Si la instalación a construir o remodelar clasifica como de Tipo I requiere de una autorización de construcción por parte de la Autoridad Competente, gestión que es responsabilidad del:
+a) Director del Proyecto designado por la Caja, cuando se trata de una instalación parte de una clínica u hospital nuevo que se construye por primer vez.
+b) Director Médico si la instalación se construirá por primera vez, como parte de una clínica u hospital ya en funcionamiento o bien si la instalación será reubicada o remodelada y es parte de una clínica u hospital en funcionamiento.

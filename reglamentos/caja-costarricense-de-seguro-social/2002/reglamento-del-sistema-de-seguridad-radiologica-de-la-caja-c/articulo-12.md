@@ -1,0 +1,1 @@
+Artículo 12.—De la actualización de Normas Generales de Seguridad Radiológica. La Gerencia División de Operaciones está facultada por la Junta Directiva, para emitir, y actualizar las normas generales específicas, concordantes y complementarias a las contenidas en este Reglamento.

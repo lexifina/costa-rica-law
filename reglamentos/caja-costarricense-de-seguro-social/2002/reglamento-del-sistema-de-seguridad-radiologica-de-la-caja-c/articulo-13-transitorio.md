@@ -1,0 +1,1 @@
+Transitorio 13.—Del Monitoreo de área. El DCCPR contará con cuatro meses a partir de la comunicación de la aprobación de este reglamento, para que proponga a la Gerencia División de Operaciones la norma para el monitoreo de área que se utilizará para la protección y seguridad radiológica.

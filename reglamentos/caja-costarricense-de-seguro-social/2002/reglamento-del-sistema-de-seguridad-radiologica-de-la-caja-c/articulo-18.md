@@ -1,0 +1,4 @@
+CAPÍTULO V
+De los requisitos del personal que labora en el SSR
+Artículo 18.—De los nombramientos en los puestos del SSR. En los diferentes puestos necesarios para el funcionamiento del SSR tanto en los servicios de los centros hospitalarios que utilizan radiaciones ionizantes, como en el DCCPR, se nombrará únicamente a personal que cumpla con los requisitos legales, técnicos y/o profesionales definidos para un puesto específico en el Manual Descriptivo de Puestos de la Caja, indistintamente que se trate de nombramientos en propiedad o temporales.
+Son responsables de velar por el cumplimiento de esta disposición las unidades de recursos humanos de los establecimientos médicos y la de Oficinas Centrales para el caso del DCCPR; así mismo compete al área especializada correspondiente de la Dirección de Recursos Humanos, mantener actualizados todos los requisitos para los puestos que se desempeñan dentro de este sistema.

@@ -1,0 +1,3 @@
+CAPÍTULO XXVIII
+Del manejo de desechos
+Artículo 82.—De la disponibilidad y controles del lugar para el almacenamiento temporal de desechos radiactivos. En las instalaciones de Tipo I y de Tipo II ya existentes o nuevas, definidas en el artículo 8 del Reglamento sobre Protección contra radiaciones ionizantes, de la Autoridad Competente y el artículo 26 de este Reglamento, donde se empleen fuentes o material radiactivo, debe existir un lugar especialmente diseñado para el almacenamiento temporal de desechos radiactivos, debidamente autorizado por la Autoridad Competente. El titular de la licencia de la instalación debe garantizar la existencia de procedimientos documentados de control de radiaciones en estas instalaciones.

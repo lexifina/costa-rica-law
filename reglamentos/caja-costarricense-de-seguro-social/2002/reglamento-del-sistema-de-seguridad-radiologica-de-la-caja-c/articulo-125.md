@@ -1,0 +1,1 @@
+Artículo 125.—De la vigencia del Reglamento. Este reglamento rige, una vez aprobado por la Junta Directiva de la Caja, a partir de su publicación por parte de la Gerencia División de Operaciones de la Caja.

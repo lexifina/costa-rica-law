@@ -1,0 +1,1 @@
+Artículo 96.—De la potestad del uso de límites secundarios. Cuando así se requiera el DCCPR hará uso de los límites secundarios y derivados; establecidos en las normas de protección radiológica más recientes emitidas por el O.I.E.A.

@@ -1,0 +1,1 @@
+Artículo 29.—De las zonas controladas o supervisadas. Las áreas de trabajo donde se realicen prácticas con material radiactivo serán zonas controladas o supervisadas, según sean definidas por el responsable de protección radiológica, valoradas por el titular de la licencia y aprobadas por la Autoridad Competente.

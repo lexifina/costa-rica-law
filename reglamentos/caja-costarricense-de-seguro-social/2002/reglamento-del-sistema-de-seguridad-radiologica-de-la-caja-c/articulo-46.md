@@ -1,0 +1,1 @@
+Artículo 46.—Del personal que labora en zonas supervisadas. Todo trabajador que labore en zonas supervisadas quedará sujeto, en cuanto al uso del dosímetro, a la evaluación y decisión de la Autoridad Competente.
