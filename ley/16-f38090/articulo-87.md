@@ -1,2 +1,2 @@
-Artículo 87.- El total de las operaciones que efectúe el Departamento Emisor con un mismo Banco de Acuerdo con lo establecido en los incisos 1) a 4) del artículo 85 de esta ley, no podrá exceder del 50% del activo realizable de dicho Banco aceptado por el Superintendente.
-(Así reformado por el artículo 1° de la ley N° 3 del 14 de mayo de 1941)
+Artículo 87.- Todos los documentos redescontados, aceptados como garantía o constituyentes de un préstamo, deberán ser plenamente garantizados con la firma del banco comercial que los entregó u otorgó al Departamento; y deberán ser pagados y retirados por dicho banco en la fecha de su vencimiento, sin perjuicio de que puedan ser pagados y retirados, previo pago de su importe, en cualquier momento; pero los intereses correspondientes se calcularán y cobrarán por el Departamento por períodos mínimos sucesivos de 30 días.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

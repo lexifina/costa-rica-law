@@ -1,2 +1,2 @@
-Artículo 53.—Los miembros del Consejo desempeñarán su cometido con absoluta independencia del Poder Ejecutivo, el cual no podrá hacer conocer su criterio en las decisiones del Consejo sino por la voz y el voto de su representante.
-Los miembros del Consejo serán responsables de su gestión en el manejo del Departamento, y pesa sobre ellos cualquier responsabilidad que conforme a las leyes pueda atribuírseles.
+Artículo 53.- El Consejo se reunirá en sesión ordinaria una vez por semana, y en sesión extraordinaria cada vez que sea convocado por el Gerente del Banco, por propia iniciativa o a petición de uno de sus miembros, con indicación, por escrito, del motivo de la reunión. El Gerente, o los Subgerentes cuando lo reemplacen en sus funciones, deberán asistir a las sesiones del Consejo, en las cuales tendrán voz pero no voto.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

@@ -1,2 +1,2 @@
-Artículo 76.—Las intervenciones del Banco en el mercado de divisas deberán ser guiadas únicamente con el fin de amortiguar fluctuaciones que provengan del aumento o disminución de la oferta o la demanda de divisas por razones de la estación, de circunstancias especiales de carácter pasajero, o de la acción de especulaciones indebidas.
-El Banco no deberá intervenir para regular fluctuaciones de cambio que provengan de una desvalorización o revalorización de monedas, o que, a juicio del Consejo, tengan carácter de tendencias debidas al desarrollo interior de la economía o de los mercados extranjeros.
+Artículo 76.- Las cotizaciones determinadas por la Comisión de Cambios serán expuestas por el Banco en un lugar visible de la oficina central, de fácil acceso para el público, y serán publicadas diariamente en "La Gaceta" para conocimiento general.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

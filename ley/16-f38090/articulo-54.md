@@ -1,1 +1,2 @@
-Artículo 54.—El Consejo se reunirá en sesión ordinaria una vez por semana, y en sesión extraordinaria cada vez que sea convocado por el gerente del Banco, o a petición de uno de sus miembros, con indicación, por escrito, del motivo de la reunión. El gerente, o los subgerentes cuando lo reemplacen, deberán asistir a las sesiones del Consejo, en las cuales tendrán voz pero no voto.
+Artículo 54.- Los tres miembros del Consejo, propietarios y suplentes en su caso, formarán quórum. Los acuerdos se tomarán por mayoría de votos, salvo disposición legal en contrario.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

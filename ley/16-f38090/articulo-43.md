@@ -1,1 +1,2 @@
-Artículo 43.—El Consejo Directivo del Departamento Emisor—llamado en adelante el Consejo—se compondrá de tres miembros propietarios y tres suplentes. Estos repondrán a sus respectivos propietarios en las ausencias temporales.
+Artículo 43.- El Consejo Directivo del Departamento Emisor,-llamado en adelante el Consejo-, será integrado por tres miembros propietarios y tres suplentes; éstos repondrán a sus respectivos propietarios en sus ausencias temporales. Las funciones y atribuciones del Consejo son las determinadas por la presente ley y por cualesquiera otras disposiciones legales pertinentes.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
