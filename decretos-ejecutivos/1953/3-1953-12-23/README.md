@@ -14,3 +14,4 @@ Reglamenta Ley Prohíbe Alteración Café
 | --- | --- | --- |
 | 1 | 1954-01-27 | la propia norma |
 | 2 | 1954-01-27 | SINALEVI (sin norma nombrada) |
+| 3 | 1964-12-12 | Decreto Ejecutivo 69 (1964-12-12) |
