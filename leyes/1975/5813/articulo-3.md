@@ -1,0 +1,1 @@
+Artículo 3º.- El Catastro no visará planos de particulares que se refieran a terrenos incluidos en las reservas nacionales o las indígenas, salvo que existiere autorización escrita de la entidad respectiva.
