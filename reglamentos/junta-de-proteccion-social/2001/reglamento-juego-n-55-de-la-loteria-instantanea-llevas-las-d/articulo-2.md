@@ -1,0 +1,1 @@
+Articulo 2°—Reglas del Juego: Raspe el área de Juego. Si una misma cantidad aparece tres (3) veces, gana esa cantidad. Pero si una misma cantidad aparece tres (3) veces y también el símbolo del billete, gana el doble de esa cantidad. Si aparece la palabra "RASPA"', participa directamente en el sorteo La Rueda de la Fortuna.
