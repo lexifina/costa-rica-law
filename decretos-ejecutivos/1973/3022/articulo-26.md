@@ -1,0 +1,1 @@
+Artículo 26.—La Junta Directiva integrará una nómina de miembros activos del Colegio para la designación de Delegados a las pruebas de graduación, previas al conferimiento de títulos de Contador legalmente exigible o su equivalente, de conformidad con las normas que regulan la materia.

@@ -1,0 +1,1 @@
+Artículo 49.—La Junta Directiva gestionará en la forma que crea conveniente que los dueños de empresas, gerentes, administradores, etc., tomen al Colegio como fuente de información para el caso de que necesiten contadores en sus labores.

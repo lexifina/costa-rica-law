@@ -1,0 +1,2 @@
+Artículo 40.—La Junta Directiva expedirá a nombre de cada miembro incorporado un documento que certifique su condición de tal, indicando la fecha de su incorporación, la Ley Orgánica y Reglamento del Colegio, suscrito por el Presidente y Secretario en ejercicio.
+Este documento o cualquiera otra credencial extendida por el Colegio, deberá ser devuelta a la Junta Directiva cuando el colegiado renuncie o pierda su condición de miembro activo.

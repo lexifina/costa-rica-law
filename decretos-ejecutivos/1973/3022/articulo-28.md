@@ -1,0 +1,4 @@
+CAPITULO VII
+Comisiones de Consulta y Tribunales de Honor
+Artículo 28.—Las Comisiones de Consulta las designará la Junta Directiva, cuando lo juzgue conveniente o cuando se recabe La opinión técnica del Colegio en materias de su incumbencia. Estarán integrados por tres miembros de reconocida rectitud e idoneidad.
+La Comisión no podrá demorar la rendición de sus informes por más de 30 días, salvo que la Junta Directiva amplié el plazo en atención a la complejidad del punto que se someta a su consulta. Si transcurrido el término concedido no se hubiese presentado el informe, los integrantes de la Comisión serán de inmediato reemplazados con otros miembros por la Junta Directiva, a instancia de uno de sus miembros o de cualquier interesado en la consulta, sin perjuicio de las sanciones disciplinarias procedentes.

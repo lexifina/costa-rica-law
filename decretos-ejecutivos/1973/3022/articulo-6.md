@@ -1,0 +1,2 @@
+Artículo 6°—La solicitud de incorporación se hará en las fórmulas que el Colegio adopte. Se dirigirá a la Secretaria acompañada de los documentos que comprueben que el solicitante está calificado para incorporarse de conformidad con lo previsto en el articulo anterior, y del importe de la cuota de ingreso. (Artículo 44 Reglamento).
+La Junta Directiva podrá ordenar que se complemente la prueba aprobada por el peticionario.

@@ -1,0 +1,1 @@
+Artículo 11.—El acta de juramentación se publicará en el Diario Oficial y se transcribirá al Ministerio de Educación Pública, al Consejo Universitario y a las otras instituciones que la Junta Directiva estime oportuno.

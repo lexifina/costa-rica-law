@@ -1,0 +1,1 @@
+Artículo 17.—La ausencia inmotivada de uno de los miembros de la Junta Directiva a tres sesiones ordinarias consecutivas, o a cinco alternas en el término de 4 meses, dará lugar a que su credencial como miembro de la Junta Directiva quede cancelada de conformidad con lo dispuesto en los incisos c) y e) de los artículos 9° y 14 de la Ley Orgánica.

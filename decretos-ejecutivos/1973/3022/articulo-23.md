@@ -1,0 +1,1 @@
+Artículo 23.—El Presidente, el Primer Secretario, el Tesorero y el Fiscal, tendrán a su cargo la vigilancia inmediata del local y el cuido de los muebles, enseres, bibliotecas y documentos del Colegio. Así como del personal administrativo que se designe para el cumplimiento de sus fines, en la forma que lo disponga la Junta Directiva atendiendo las funciones de cada uno.

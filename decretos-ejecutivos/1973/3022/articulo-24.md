@@ -1,0 +1,1 @@
+Artículo 24.—Corresponde a loa Vocales reemplazar por su orden a cualquiera de los demás miembros de la Junta Directiva en sus ausencias o faltas temporales previa autorización por acuerdo de la Junta Directiva.

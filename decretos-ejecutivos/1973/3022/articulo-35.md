@@ -1,0 +1,1 @@
+Artículo 35.—Los derechos de ingreso al Colegio y su distribución, serán fijados por acuerdo de Junta Directiva. La cuota periódica mensual y su distribución será la que fije la asamblea general de conformidad con el artículo 99 de la Ley Orgánica.

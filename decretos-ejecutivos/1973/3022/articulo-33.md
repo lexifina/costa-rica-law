@@ -1,0 +1,2 @@
+Artículo 33.—Si la corrección fuere de multa, el corregido deberá depositarla en la Tesorería del Colegio dentro de los ocho días siguientes al día que haya quedado firme la resolución respectiva, y si no lo hiciere, la Junta Directiva declarará la pena pecuniaria convertida en suspensión temporal a razón de diez colones por día.
+El acatamiento a estas sanciones no dará origen a responsabilidades de derecho social.

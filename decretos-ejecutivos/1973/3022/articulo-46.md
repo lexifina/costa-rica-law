@@ -1,0 +1,1 @@
+Artículo 46.—Las compras de más de cincuenta colones hasta mil y por compras o gastos mayores de ¢1,000.00 (mil colones) hasta ¢5,000.00 den realizar por medio de compra directa, previo acuerdo de la Junta Directiva (cinco mil colones) por licitación privada, y más de ¢5,000.00 (cinco mil colones) por licitación pública.

@@ -1,0 +1,1 @@
+Artículo 29.—Los miembros de los Tribunales de Honor serán designados por la Junta Directiva en casos de diferencias de orden moral entre los colegiados por motivo de su ejercicio profesional, a instancia de cualquiera de ellos.

@@ -1,0 +1,3 @@
+Artículo 13.—La Junta Directiva se reunirá por lo menos una vez al mes, preferentemente en el local del Colegio, extraordinariamente, se reunirá cuando la convoque el Presidente a iniciativa suya, o a instancia de tres de sus miembros la cual está en la obligación de atender.
+Para la reunión extraordinaria hasta la convocatoria verbal hecha por la Secretaría con lo menos de veinticuatro horas de antelación e informando de líos asuntos a tratar.
+(La Procuraduría General de la República, mediante pronunciamiento N° C-019-1999 del 27 de enero de 1999, estimó que este artículo “quedó derogado tácitamente en cuanto a la convocatoria a las sesiones extraordinarias, por el numeral 52 inciso 3) de la Ley General de la Administración Pública.”)
