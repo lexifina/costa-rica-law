@@ -1,6 +1,6 @@
 CAPITULO XVII
 Terminación de la relación de servicios
-Artículo 88º- Los servidores regulares terminarán su relación de
+Artículo 88.- Los servidores regulares terminarán su relación de
 servicio con el Instituto cuando se dé una de la siguientes situaciones:
 a) Renuncia del servidor.
 b) Despido del servidor, con causa o sin ella, por parte del

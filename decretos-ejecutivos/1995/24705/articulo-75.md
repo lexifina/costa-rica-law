@@ -1,4 +1,4 @@
-Artículo 75º- Queda prohibido a los servidores:
+Artículo 75.- Queda prohibido a los servidores:
 a) Impedir o entorpecer el cumplimiento de las medidas que señala
 el programa de salud ocupacional.
 b) Remover, sin autorización, los resguardos y protecciones de las

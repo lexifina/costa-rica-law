@@ -1,4 +1,4 @@
-Artículo 34º- Las ausencias al trabajo por enfermedad que excedan de
+Artículo 34.- Las ausencias al trabajo por enfermedad que excedan de
 cuatro días, deberá justificarlas el servidor incapacitado con
 certificado médico y cuando estuviere asegurado en la Caja Costarricense
 del Seguro Social, o en el Instituto Nacional de Seguros, con certificado

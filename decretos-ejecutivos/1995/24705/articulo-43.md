@@ -1,4 +1,4 @@
-Artículo 43º- Las jefaturas inmediatas fijarán la época en que los
+Artículo 43.- Las jefaturas inmediatas fijarán la época en que los
 servidores disfrutarán sus vacaciones, procurando establecerla dentro de
 las quince semanas posteriores al día en que se cumplan las cincuenta
 semanas de servicio continuo, evitando que se altere la buena marcha de

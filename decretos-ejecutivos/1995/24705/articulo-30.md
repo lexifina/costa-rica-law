@@ -1,4 +1,4 @@
-Artículo 30º- Las llegadas tardías injustificadas mayores de cinco
+Artículo 30.- Las llegadas tardías injustificadas mayores de cinco
 minutos y que no excedan de treinta minutos, computables en un mismo mes
 calendario, se sancionarán de la siguiente forma:
 a) Por cuatro días: amonestación escrita

@@ -1,6 +1,6 @@
 CAPITULO IV
 De la jornada de trabajo
-Artículo 15º- La jornada de trabajo se regirá por el horario
+Artículo 15.- La jornada de trabajo se regirá por el horario
 siguiente: jornada acumulativa y continua de 42 horas semanales; de lunes
 a jueves, de siete y treinta a las dieciséis horas y los viernes de las
 siete y treinta a las quince horas con treinta minutos.

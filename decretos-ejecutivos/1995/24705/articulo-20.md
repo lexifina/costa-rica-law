@@ -1,4 +1,4 @@
-Artículo 20º- Se eximirá del control de asistencia mediante tarjeta
+Artículo 20.- Se eximirá del control de asistencia mediante tarjeta
 a aquellos profesionales con grado académico de licenciatura que realicen
 labores afines a la especialidad para la que están nombrados, previa
 recomendación de la jefatura correspondiente y después de un período

@@ -1,6 +1,6 @@
 CAPITULO XI
 De las prohibiciones a los trabajadores
-Artículo 60º- Además de lo dispuesto en los artículos 40 del
+Artículo 60.- Además de lo dispuesto en los artículos 40 del
 Estatuto de Servicio Civil, 51 de su reglamento y otras normas del
 presente Reglamento, queda absolutamente prohibido a todos los
 servidores:

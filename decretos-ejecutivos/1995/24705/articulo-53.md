@@ -1,4 +1,4 @@
-Artículo 53º- Los servidores del Instituto tendrán derecho a:
+Artículo 53.- Los servidores del Instituto tendrán derecho a:
 a) La carrera administrativa, en igualdad de condiciones y
 requisitos, en cada plaza vacante, a los servidores regulares
 más antiguos, que por su capacidad y responsabilidad, resulten

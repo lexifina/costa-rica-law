@@ -1,4 +1,4 @@
-Artículo 58º- Los servidores del Instituto, asociados a los
+Artículo 58.- Los servidores del Instituto, asociados a los
 diferentes sindicatos y asociaciones ya existentes o que llegasen a
 constituirse, y cuyos estatutos hayan sido previamente aprobados de
 acuerdo con la normativa vigente, contarán con permiso para que puedan

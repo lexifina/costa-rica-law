@@ -1,4 +1,4 @@
-Artículo 37º- El abandono injustificado del trabajo acarreará las
+Artículo 37.- El abandono injustificado del trabajo acarreará las
 siguientes sanciones:
 a) Primera vez: amonestación verbal.
 b) Segunda vez: amonestación por escrito.

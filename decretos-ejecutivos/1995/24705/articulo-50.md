@@ -1,4 +1,4 @@
-Artículo 50º- Las licencias con goce de salario o sin él serán
+Artículo 50.- Las licencias con goce de salario o sin él serán
 reguladas por el artículo 33 del Reglamento del Estatuto de Servicio
 Civil. Las licencias con goce de salario o sin él por causas debidamente
 justificadas, no contempladas en el artículo 33 citado, serán concedidas

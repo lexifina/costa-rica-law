@@ -1,4 +1,4 @@
-Artículo 65º- Las amonestaciones verbales o escritas deberán
+Artículo 65.- Las amonestaciones verbales o escritas deberán
 imponerse, por parte de la jefatura inmediata, dentro de los ocho días
 posteriores a aquel en que se cometió la falta o en el momento que se
 conociese de la misma. Las suspensiones o despidos se harán en el

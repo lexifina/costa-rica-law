@@ -1,4 +1,4 @@
-Artículo 74º- Todo trabajador deberá acatar y cumplir, en lo que le
+Artículo 74.- Todo trabajador deberá acatar y cumplir, en lo que le
 es aplicable, los reglamentos de salud ocupacional que se promulguen y
 las recomendaciones que, en esta materia, le formulen las autoridades
 competentes.

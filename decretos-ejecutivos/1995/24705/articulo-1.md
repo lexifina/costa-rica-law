@@ -2,8 +2,8 @@ Nº 24705-S
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE SALUD,
 En uso de las facultades que les confieren los artículos 140,
-incisos 3) y 18) de la Constitución Política; 28 de la Ley General de la
-Administración Pública.
+incisos 3) y 18) de la Constitución Política; 28 de la Ley General
+de la Administración Pública.
 Considerando:
 1º.- Que el Instituto sobre Alcoholismo y Farmacodependencia (IAFA),
 es un órgano adscrito al Despacho del Ministro de Salud según

@@ -1,4 +1,4 @@
-Artículo 69º- El despido se acordará sin responsabilidad para la
+Artículo 69.- El despido se acordará sin responsabilidad para la
 institución en los siguientes casos:
 a) Cuando al servidor se le haya impuesto, en tres ocasiones, una
 suspensión disciplinaria e incurra en causal para una cuarta

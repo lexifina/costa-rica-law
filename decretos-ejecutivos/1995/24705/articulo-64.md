@@ -1,6 +1,6 @@
 CAPITULO XIII
 De las medidas disciplinarias
-Artículo 64º- Las faltas en que incurran los servidores serán
+Artículo 64.- Las faltas en que incurran los servidores serán
 sancionadas con las siguientes medidas disciplinarias:
 a) Amonestación verbal.
 b) Amonestación escrita.

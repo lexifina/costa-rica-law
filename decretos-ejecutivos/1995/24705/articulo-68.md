@@ -1,4 +1,4 @@
-Artículo 68º- La suspensión del trabajo sin goce de salario se
+Artículo 68.- La suspensión del trabajo sin goce de salario se
 aplicará como sanción al servidor en los casos y por los plazos que
 específicamente contemple el presente Reglamento, además de los
 siguientes:

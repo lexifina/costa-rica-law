@@ -1,4 +1,4 @@
-Artículo 77º- Serán tipificadas como manifestaciones del acoso
+Artículo 77.- Serán tipificadas como manifestaciones del acoso
 sexual las siguientes:
 1.a) Promesa, implícita o explícita de un trato preferencial,
 respecto de la situación actual o futura, de empleo o de

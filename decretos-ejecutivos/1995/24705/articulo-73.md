@@ -1,4 +1,4 @@
-Artículo 73º- Existirá una Comisión de Salud Ocupacional, al tenor
+Artículo 73.- Existirá una Comisión de Salud Ocupacional, al tenor
 de los dispuesto en el artículo 288 del Código de Trabajo, la cual tendrá
 a su cargo todo lo relacionado con la salud ocupacional, investigar las
 causas de los riegos del trabajo, y proponer medidas y sistemas técnicos

@@ -1,4 +1,4 @@
-Artículo 45º- Las funciones de los servidores que se encuentren
+Artículo 45.- Las funciones de los servidores que se encuentren
 gozando de vacaciones, así como las que de aquellos que no asistan a sus
 labores por enfermedad o licencia con goce de sueldo, serán encomendadas
 al resto del personal, sin derecho a remuneración adicional, siempre que

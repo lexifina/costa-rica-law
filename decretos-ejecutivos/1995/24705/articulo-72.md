@@ -1,4 +1,4 @@
-Artículo 72º- El Instituto adoptará las medidas necesarias para
+Artículo 72.- El Instituto adoptará las medidas necesarias para
 proteger, eficazmente, la salud ocupacional de sus servidores, conforme
 con lo que establece la ley y las recomendaciones que, en esta materia,
 formulen tanto el Consejo de Salud Ocupacional como las autoridades de

@@ -1,6 +1,6 @@
 CAPITULO IX
 Peticiones y reclamos en general
-Artículo 46º- Los servidores deberán ser atendidos en sus
+Artículo 46.- Los servidores deberán ser atendidos en sus
 sugerencias en general, en todo aquello que estimule su iniciativa
 personal, su eficiencia y el mejoramiento de las condiciones de su
 trabajo.

@@ -1,4 +1,4 @@
-Artículo 25º- Los servidores que, por dolo, marque tarjetas o
+Artículo 25.- Los servidores que, por dolo, marque tarjetas o
 registros de asistencia que no les correspondan, incurrirán en falta
 grave a sus obligaciones y se harán acreedores a las siguientes
 sanciones:

@@ -1,4 +1,4 @@
-Artículo 32º- Las ausencias injustificadas al trabajo, dentro de un
+Artículo 32.- Las ausencias injustificadas al trabajo, dentro de un
 mismo mes calendario, se sancionarán de la siguiente forma:
 a) Por una fracción de jornada (media jornada): amonestación
 escrita.

@@ -1,4 +1,4 @@
-Artículo 27º- Los servidores de la Institución que marquen
+Artículo 27.- Los servidores de la Institución que marquen
 puntualmente la tarjeta de control de asistencia durante tres meses
 consecutivos, sin reportar ninguna llegada tardía ni omisión de marca por
 asuntos personales, tendrán derecho, como estímulo, a medio día hábil

@@ -1,6 +1,6 @@
 CAPITULO XV
 Del hostigamiento o acoso
-Artículo 76º- De conformidad con el artículo 3 de la Ley Nº 7476 de
+Artículo 76.- De conformidad con el artículo 3 de la Ley Nº 7476 de
 fecha 3 de marzo de 1995 se entenderá por acoso u hostigamiento sexual
 toda conducta sexual indeseada por quien la recibe, reiterada y que
 provoca efectos perjudiciales en los siguientes casos:

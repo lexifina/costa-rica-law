@@ -1,6 +1,6 @@
 CAPITULO VIII
 De las vacaciones
-Artículo 41º- Los servidores disfrutarán de vacaciones anuales en la
+Artículo 41.- Los servidores disfrutarán de vacaciones anuales en la
 siguiente proporción:
 a) Quince días hábiles: Si han prestado servicios durante un
 período entre cincuenta semanas a cuatro años y cincuenta

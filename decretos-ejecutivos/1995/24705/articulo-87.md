@@ -1,6 +1,6 @@
 CAPITULO XVI
 De los riesgos profesionales
-Artículo 87º- Riesgos profesionales son los accidentes y las
+Artículo 87.- Riesgos profesionales son los accidentes y las
 enfermedades que sufran los servidores, con ocasión de la labor que
 desempeñen en forma subordinada o remunerada, así como la agravación que
 resulte como consecuencia directa, inmediata o indudable de esos

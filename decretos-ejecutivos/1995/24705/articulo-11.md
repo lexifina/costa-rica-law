@@ -1,4 +1,4 @@
-Artículo 11º- De conformidad con lo que señala el artículo 13 de la
+Artículo 11.- De conformidad con lo que señala el artículo 13 de la
 Ley de Salarios de la Administración Pública y artículo 22 bis, inciso b)
 del Reglamento del Estatuto de Servicio Civil, al acordarse un recargo
 total de funciones, el servidor sustituto tendrá derecho a recibir su

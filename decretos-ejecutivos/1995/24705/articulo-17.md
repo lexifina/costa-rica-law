@@ -1,4 +1,4 @@
-Artículo 17º- Cuando las necesidades del servicio así lo requieran,
+Artículo 17.- Cuando las necesidades del servicio así lo requieran,
 los servidores quedarán en la ineludible obligación de laborar horas
 extraordinarias, dentro de los límites señalados por los artículos 140 y
 141 del Código de Trabajo, salvo que exista una causa justa o fuerza

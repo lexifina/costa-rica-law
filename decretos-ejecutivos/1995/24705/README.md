@@ -13,3 +13,4 @@ Reglamento Autónomo de Servicio del IAFA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-02 | la propia norma |
+| 2 | 1995-11-02 | Decreto Ejecutivo 29139 (2000-11-16) |

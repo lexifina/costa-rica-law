@@ -1,4 +1,4 @@
-Artículo 47º- En caso de que el servidor lo solicitare, se nombrará
+Artículo 47.- En caso de que el servidor lo solicitare, se nombrará
 al efecto una Comisión de Asuntos Laborales conformada por seis miembros:
 tres representantes de la administración y tres representantes de los
 servidores.

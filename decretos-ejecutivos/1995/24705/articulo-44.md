@@ -1,4 +1,4 @@
-Artículo 44º- Los servidores del Instituto disfrutarán sus
+Artículo 44.- Los servidores del Instituto disfrutarán sus
 vacaciones sin interrupción. Estas podrán ser divididas en tres
 fracciones como máximo, cuando así lo convengan las partes y siempre que
 se trate de labores de índole especial.

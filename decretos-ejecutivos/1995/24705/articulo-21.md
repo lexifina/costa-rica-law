@@ -1,4 +1,4 @@
-Artículo 21º- La jefatura inmediata de los servidores exentos de
+Artículo 21.- La jefatura inmediata de los servidores exentos de
 registro de asistencia deberá reportar, por escrito, a la Sección de
 Recurso Humanos, con copia al departamento respectivo, a más tardar
 dentro de los tres días hábiles posteriores, las ausencias en que
