@@ -1,0 +1,1 @@
+Artículo 4°-Se permite el traslado de plazas entre las dependencias a que se refiere el artículo 1° de este decreto con el fin de no disminuir el nivel de servicio público a los usuarios, según las directrices que oportunamente se dictaran.

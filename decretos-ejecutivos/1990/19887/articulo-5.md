@@ -1,0 +1,1 @@
+Artículo 5°-A partir de la fecha de vigencia de este decreto, las solicitudes para reasignaciones de puestos que no se hayan formalizado por medio del acto administrativo correspondiente, quedan en suspenso. Asimismo, y hasta el 31 de diciembre de 1991, no se aprobarán plazas nuevas en las entidades a que se refiere este decreto.

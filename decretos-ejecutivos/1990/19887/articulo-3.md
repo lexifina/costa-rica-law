@@ -1,0 +1,2 @@
+Artículo 3°-Todas las plazas ocupadas por personal interino a la entrada en vigencia de este decreto se considerarán no vacantes, así como aquellas denominadas, Puestos de Confianza, comprendidas en el artículo 4° de estatuto de Servicio Civil.
+(NOTA DE SINALEVI: Si bien, de acuerdo al artículo 1° del decreto ejecutivo N° 20100 del 07 de noviembre de 1990, se indica ampliar el presente artículo, el texto de tal adición no aparece en la norma citada).
