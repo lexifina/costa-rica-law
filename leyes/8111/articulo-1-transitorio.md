@@ -1,0 +1,1 @@
+Transitorio I.—En el plazo de seis meses a partir de la promulgación de la presente Ley, la Comisión se abocará a diseñar y planificar la creación del Banco Nacional de Vacunas referido en el artículo 9 de esta Ley.

@@ -1,0 +1,1 @@
+Artículo 14.—Campañas de vacunación. Las autoridades sanitarias desarrollarán campañas educativas permanentes, con el fin de informar a la población sobre el riesgo que representa la falta de vacunación oportuna contra las enfermedades de prevención posible.

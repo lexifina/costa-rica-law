@@ -1,0 +1,1 @@
+Artículo 9º—Banco Nacional de Vacunas. La Comisión Nacional de Vacunación y Epidemiología creará, adscrito a la Caja Costarricense de Seguro Social, el Banco Nacional de Vacunas, donde se almacenarán y custodiarán las vacunas.

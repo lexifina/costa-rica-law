@@ -1,0 +1,4 @@
+Artículo 3º—Obligatoriedad. De conformidad con la presente Ley, son obligatorias las vacunaciones contra las enfermedades cuando lo estime necesario la Comisión Nacional de Vacunación y Epidemiología, que se crea en esta Ley, en coordinación con el Ministerio de Salud y la Caja Costarricense de Seguro Social.
+Las vacunas aprobadas deberán suministrarse y aplicarse a la población, sin que puedan alegarse razones económicas o falta de abastecimiento en los servicios de salud brindados por instituciones estatales.
+Estas vacunas aprobadas se refieren al esquema básico oficial que se aplique a toda la población, y a las vacunas para esquemas especiales dirigidos a grupos de riesgo específicos.
+La Comisión Nacional de Vacunación y Epidemiología deberá elaborar una lista oficial de vacunas, que se incluirá en el Reglamento de la presente Ley. La lista podrá ser revisada y analizada periódicamente, atendiendo los frecuentes cambios tecnológicos en este campo.
