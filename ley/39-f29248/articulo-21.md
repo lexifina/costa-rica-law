@@ -1,1 +1,0 @@
-Artículo 21 —El portador del warrant pierde todo derecho contra los endosantes si no hubiere hecho el protesto o no hubiere solicitado la venta de los efectos depositados dentro del plazo de diez días después del vencimiento, ero conservará expedita su acción contra el deudor.
