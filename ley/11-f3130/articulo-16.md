@@ -1,2 +1,2 @@
-ARTICULO 16.- La exoneración hecha por el asegurado a favor de uno o varios de los aseguradores, legalmente obligados, produce el efecto del pago en cuanto a la parte que a éstos correspondiere en la prorrata; el asegurado, en tal caso, sólo tendrá acción contra los demás aseguradores por la parte que les corresponde.
+Artículo 16.-La exoneración hecha por el asegurado a favor de uno o varios de los aseguradores, legalmente obligados, produce el efecto de1 pago en cuanto a la parte que a éstos correspendiere en la prorrata; el asegurado, en tal caso, sólo tendrá acción contra los demás aseguradores por la parte que les corresponde.
 En caso de reaseguro, éste no podrá hacerse efectivo si el asegurado exoneró al asegurador.
