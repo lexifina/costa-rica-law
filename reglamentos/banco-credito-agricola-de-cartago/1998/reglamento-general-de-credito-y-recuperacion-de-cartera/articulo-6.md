@@ -1,0 +1,2 @@
+Artículo 6°--Garantías.
+El riesgo crediticio en los créditos que se concedan deberá estar respaldado con garantía a satisfacción del Banco, para cuya valoración se considerarán las políticas establecidas por la institución. El Banco se reserva el derecho de aceptar, rechazar o solicitar mejores garantías que cubran a su satisfacción el riesgo crediticio a tomar.
