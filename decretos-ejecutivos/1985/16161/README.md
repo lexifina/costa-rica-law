@@ -14,3 +14,4 @@ Declara Emergencia Nacional Compra Maquinaria y Equipo del MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-04-17 | la propia norma |
+| 2 | 1985-04-17 | SINALEVI (sin norma nombrada) |
