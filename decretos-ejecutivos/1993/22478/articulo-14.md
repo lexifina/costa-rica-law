@@ -1,0 +1,1 @@
+Artículo 14.—La Administración del Parque Nacional Barra Honda, facilitará a los guías el equipo de espeleología, para lo cual cobrara la tarifa respectiva. Los guías serán los responsables del uso debido del equipo, así como del mantenimiento posterior a su uso y el pago de cualquier daño que a este le produzca.

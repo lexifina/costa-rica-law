@@ -1,0 +1,2 @@
+Artículo 3°—El acceso al Parque Nacional Barra Honda, será regulado; toda persona que pretenda ingresar a alguno de los lugares autorizados para los visitantes del Parque, deberá hacerlo por el puesto indicado en el artículo inmediato anterior, lugar en el cual deberá reportarse a los guardaparques y cancelar los derechos correspondientes.
+Es obligatorio para el visitante, conservar en todo momento el tíquete de admisión, el cual podrá exigirse en cualquier momento por los funcionarios del Servicio de Parques Nacionales.

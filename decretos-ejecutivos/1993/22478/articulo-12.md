@@ -1,0 +1,1 @@
+Artículo 12.—Los visitantes y los guías de cavernas únicamente podrán transitar tanto dentro como fuera de las cavernas, por aquellos lugares indicados por la Administración del Parque, queda prohibido salirse de las rutas establecidas.

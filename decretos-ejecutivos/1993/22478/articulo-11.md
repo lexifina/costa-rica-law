@@ -1,0 +1,1 @@
+Artículo 11.—Para efecto de visita a las cavernas, el ingreso será en grupos de 8 personas, con un tiempo máximo de recorrido en la caverna de 45 minutos, debidamente acompañados por guías de cavernas.

@@ -1,0 +1,1 @@
+Artículo 7°—Toda basura o desecho que produzca el visitante durante su estancia en el Parque, deberá depositarlo en los lugares previstos para ello o en su defecto depositarlo fuera del Parque y disponer de estos convenientemente.

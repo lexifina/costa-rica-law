@@ -1,0 +1,2 @@
+Artículo 9°—El acceso a las cavernas únicamente podrá llevarse a cabo bajo el acompañamiento y dirección de un guía autorizado por el Área de Conservación Tempisque (ACT).
+Se entenderá por guías autorizados del Parque Nacional Barra Honda, aquellas personas que se encuentran capacitadas para el uso de equipo de espeleología, con conocimientos de primeros auxilios, historia natural y que conozca el recorrido de las cavernas.

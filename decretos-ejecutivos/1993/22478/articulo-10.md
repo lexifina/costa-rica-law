@@ -1,0 +1,2 @@
+Artículo 10.—Todo ingreso a las cavernas, deberá ser programado con la administración del Parque con al menos 4 días de anterioridad. Las personas que hagan el ingreso, deberán reportarse a la administración el día y hora acordada, en caso de no presentarse en la hora indicada, se les dará un tiempo prudencial de 30 minutos, pasado este se suspenderá la visita o quedará sujeto a disponibilidad de equipo y guías.
+En caso de que personas o grupos se presenten a visitar las cavernas sin haber programado la visita, quedarán sujetos a la disponibilidad de equipo y guías.

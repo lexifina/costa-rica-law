@@ -1,0 +1,1 @@
+Artículo 13.—Los guías de cavernas, tienen la obligación de portar un botiquín de primeros auxilios. Sin dicho botiquín no se permitirá el ingreso a las cavernas. La responsabilidad de portar el botiquín, será de los guías.

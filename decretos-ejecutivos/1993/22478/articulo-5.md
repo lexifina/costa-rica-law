@@ -1,0 +1,1 @@
+Artículo 5°—La capacidad máxima permisible de visitación para el Parque Nacional Barra Honda será de 70 personas. Los visitantes podrán hacer su ingreso en grupos no mayores de veinte personas en los senderos.
