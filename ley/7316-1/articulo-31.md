@@ -1,0 +1,2 @@
+Artículo 31
+Deberán adoptarse medidas de carácter educativo en todos los sectores de la comunidad nacional, y especialmente en los que estén en contacto más directo con los pueblos interesados, con objeto de eliminar los prejuicios que pudieran tener con respecto a esos pueblos. A tal fin, deberán hacerse esfuerzos por asegurar que los libros de historia y demás material didáctico ofrezcan una descripción equitativa, exacta e instructiva de las sociedades y culturas de los pueblos interesados.

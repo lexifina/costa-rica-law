@@ -1,0 +1,5 @@
+Artículo 25
+1. Los gobiernos deberán velar porque se pongan a disposición de los pueblos interesados servicios de salud adecuados o proporcionar a dichos pueblos los medios que les permitan organizar y prestar tales servicios bajo su propia responsabilidad y control, a fin de que puedan gozar del máximo nivel posible de salud física y mental.
+2. Los servicios de salud deberán organizarse, en la medida de lo posible, a nivel comunitario. Estos servicios deberán planearse y administrarse en cooperación con los pueblos interesados y tener en cuenta sus condiciones económicas, geográficas, sociales y culturales, así como sus métodos de prevención, prácticas curativas y medicamentos tradicionales.
+3. El sistema de asistencia sanitaria deberá dar la preferencia a la formación y al empleo de personal sanitario de la comunidad local y centrarse en los ciudadanos primarios de salud, manteniendo al mismo tiempo estrechos vínculos con los demás niveles de asistencia sanitaria.
+4. La prestación de tales servicios de salud deberá coordinarse con las demás medidas sociales, económicas y culturales que se tomen en el país.
