@@ -1,0 +1,1 @@
+Art 4° Se destina para el pago de las cantidades designadas la suma de tres millones trece mil novecientos noventa pesos setenta y cuatro centavos ($ 3.913,990.74) a que asciende el presupuesto general de Ingreso de las rentas nacionales en el citado año económico, según detalle que ha presentado la Secretaría de Hacienda, marcado con la letra F.
