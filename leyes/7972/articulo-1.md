@@ -14,5 +14,11 @@ CAPÍTULO I
 TRIBUTOS
 SECCIÓN I
 IMPUESTO ESPECÍFICO SOBRE LAS BEBIDAS ALCOHÓLICAS
-ARTÍCULO 1.- Créase un impuesto específico de dieciséis colones (¢16,00) por unidad de consumo de bebidas alcohólicas, que recaerá sobre la producción nacional y la importación de estos productos.
-(NOTA: Mediante Resolución No. 29 de 6 de noviembre de 2003 se actualiza el impuesto aquí creado a la suma de ¢22,66 (veintidós colones con sesenta y seis céntimos) por unidad de consumo).
+Artículo 1º—Créase un impuesto específico por cada mililitro de alcohol absoluto contenido en cualquier bebida alcohólica de producción nacional o importada, indistintamente de su presentación, según la concentración de alcohol por volumen, de acuerdo con la siguiente tabla:
+Porcentaje de alcohol por volumen | Impuesto (colones por mililitro de alcohol absoluto)
+Hasta quince por ciento (15%) | Un colón con treinta y cuatro céntimos(¢1,34)
+Más de quince por ciento (15%) y hasta treinta por ciento (30%) | Un colón con cincuenta nueve céntimos (¢1,59) ciento
+Más de treinta por ciento (30%) | Un colón con ochenta y cuatro céntimos (¢1,84)
+Este impuesto no se aplicará a las bebidas de producción nacional destinadas a la exportación.
+(Así reformado por el artículo 1° del la Ley N° 8399 de 19 de diciembre de 2003, publicada en La Gaceta N° 21 de 30 de enero de 2004).
+NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asímismo sobre la actualización de este impuesto veáse el Transitorio Unico de la ley referida.
