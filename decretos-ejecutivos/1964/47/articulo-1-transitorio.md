@@ -1,0 +1,1 @@
+Artículo Transitorio I.- Los servidores del Ministerio de Economía y Hacienda y sus Dependencias que gocen de licencias para estudios, seguirán entrando y saliendo de sus labore de acuerdo con el anterior horario de trabajo, por todo el tiempo que falte para la conclusión del presente curso lectivo.
