@@ -1,0 +1,1 @@
+Art 7°.- Los comprendidos en los artículos 1° y 2° quedarán indultados de la pena de la vida si dejasen sus destinos y se presentasen al Gobierno antes de romperse las hostilidades.-Dado en la ciudad de San José a los seis días del mes de octubre de mil ochocientos treinta y cinco.

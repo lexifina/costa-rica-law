@@ -1,0 +1,1 @@
+Art 5°.- Todo aquel que prestase sus servicios personales, o diese auxilio de cualquiera manera a los conspiradores contra el Gobierno, bien sea con armas, caballos, viveres o elementos de guerra, incurren en las penas que las leyes tienen impuestas por semejantes delitos.

@@ -1,0 +1,1 @@
+Art 4°.-Son libres de toda responsabilidad los soldados que se presenten con fusil a dar obediencia al Gobierno, y además se les premiará con cuatro pesos. Son también libres de responsabilidad los paisanos que se nieguen a dar servicio o auxilio a los rebeldes.
