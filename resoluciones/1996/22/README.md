@@ -1,0 +1,15 @@
+# Resolución 22
+
+DGTD: Fija Base Imponible Impuesto Ventas de Gas LPG en Etapa Envasado
+
+- Tipo: Resolución
+- Número: 22
+- Fecha: 1996-11-14
+- Publicación: La Gaceta N° 241 del 1996-12-16
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42926&param2=45249&param3=1 (ficha 42926)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-12-16 | la propia norma |
