@@ -1,18 +1,20 @@
 Artículo 25.—Atribuciones.
-Las áreas para la fiscalización superior tienen las siguientes atribuciones:
-a) Aprobar los presupuestos ordinario y extraordinarios, así como las modificaciones a éstos; fiscalizar la formulación del presupuesto nacional; fiscalizar la ejecución y la evaluación de los presupuestos públicos desde la perspectiva del gasto y del ingreso: elaborar diagnósticos institucionales; desarrollar trabajos de campo para la fiscalización de sistemas, operaciones, procesos y los demás aspectos que surjan como consecuencia de la labor de evaluación que desarrollarán los equipos de trabajo. Esto aplicará a todas las áreas de fiscalización excepto las que fiscalizan actividades generales de la Administración, como lo es el caso de Ingresos Públicos que certificará la efectividad fiscal de los ingresos comentes de los Presupuestos Ordinarios y Extraordinarios de la República, además de fiscalizar el proceso integral de la gestión y administración de los ingresos del Sector Público.
-b) Coadyuvar con la Secretaría Técnica en la emisión de la normativa necesaria para esta área de la fiscalización.
-c) Evacuar las consultas formuladas en el área de su competencia.
-d) Atender las denuncias asignadas por la Secretaría Técnica.
-e) Analizar la información disponible en la Unidad de Servicios de Información referente a la actividad contractual de las administraciones que señala la Ley de la Contratación Administrativa, de tal forma que pueda ser utilizada como insumo en el proceso de fiscalización que efectúa este Órgano Contralor.
-f) Poner en conocimiento del Ministerio Público o del Organismo de Investigación Judicial, según corresponda, aquellos informes y documentos que revelen indicios de hechos irregulares, improcedentes o ilegítimos, que puedan generar posibles ilícitos penales en el manejo de los fondos públicos.
-g) Colaborar con las otras áreas de fiscalización en lo que se requiera para el buen cumplimiento de sus funciones.
-h) Contribuir en coordinación con las otras áreas de la fiscalización brindando el apoyo y la asesoría que requieran para cumplir con sus funciones.
-i) Colaborar con la Gerencia de División en la elaboración de las directrices, políticas, disposiciones y normas.
-j) Proveer la información pertinente que se genere, a la Unidad de Servicios de Información.
-k) Definir y evaluar permanentemente las metodologías de trabajo, de acuerdo con sus necesidades y lineamientos generales que emita la Secretaría Técnica en coordinación con la Gerencia de División.
-l) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un sólo plan de la División.
-m) Utilizar los recursos de forma racional en la consecución de los objetivos de fiscalización evaluativa y operativa.
-n) Rendir cuentas por el desempeño de las funciones que le competen.
-o) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+a) Uniformar y asesorar respecto a los criterios técnicos, en la materia de su competencia, resultantes del trabajo realizado por cada área de fiscalización.
+b) Ejercer una adecuada coordinación técnica con la División de Desarrollo Institucional, y con las demás unidades de la organización que se requiera.
+c) Emitir la normativa y los lineamientos técnicos necesarios para este proceso de fiscalización.
+d) Dar soporte a los equipos de trabajo en el área de auditoria de sistemas.
+e) Evaluar las denuncias que ingresen a la Contraloría General y darles el trámite correspondiente.
+f) Coordinar con el Centro de Relaciones para el Fortalecimiento del Control y la Fiscalización la elaboración de directrices, políticas, criterios y normativa técnica en materia de fiscalización y control para apoyar el desempeño de los entes y órganos que integran la Hacienda Pública.
+g) Coadyuvar con cada área de fiscalización en la revisión, uniformidad y mejoramiento de las metodologías de trabajo aplicadas en esta área de la fiscalización.
+h) Coordinar con la unidad de Estrategia Institucional en cuanto al desarrollo de investigaciones que permitan la innovación, adaptabilidad y mejora continua de las metodologías de trabajo de fiscalización integral.
+i) Mantener una adecuada atención sobre la política de rotación de los funcionarios, de forma tal que no se menoscabe la labor de fiscalización.
+j) Contribuir a la coordinación de las otras áreas de la fiscalización brindando el apoyo que requieran para cumplir con sus funciones.
+k) Generar la información que requiera la Gerencia de División para elaborar sus directrices, políticas, disposiciones y normas.
+l) Proveer a la Unidad de Servicios de Información la información pertinente.
+m) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un sólo plan de la División.
+n) Definir las metodologías de trabajo, de acuerdo con sus necesidades y lineamientos generales que emita la Gerencia de División.
+o) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
+p) Rendir cuentas por el desempeño de las funciones a su cargo.
+q) Ejecutar las demás labores que le asigne el Contralor General o la Gerencia de División.
 * NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
+(Modificada la numeración de este artículo, mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, que subió la numeración de los artículos 39 y 40 de la anterior Sección Sétima del Capítulo VI de este Reglamento, que fue reemplazada por una nueva sección "Sección Sexta del Capítulo III, compuesta ahora por un nuevo artículo 15 y 16", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 23 a ser el N° 25).

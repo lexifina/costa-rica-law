@@ -1,16 +1,19 @@
-Artículo 27. Atribuciones.
-a) Proponer y desarrollar conjuntamente con las unidades que la integran, políticas, estrategias, planes y metodologías de trabajo que permitan contar con una visión compartida del soporte técnico a la fiscalización, que contribuyan al logro de los objetivos de la Institución, y evaluar su cumplimiento.
-b) Emitir directrices y lineamientos técnicos relativos al Ordenamiento de Control y Fiscalización Superiores, en materia de su competencia y velar por su eficiente funcionamiento.
-c) Velar porque el trabajo que realizan las unidades que la conforman, generen un mejoramiento sustantivo en la gestión de los órganos y entes sujetos a su fiscalización y promueva una imagen adecuada de la Contraloría General de la República.
-d) Evaluar los enfoques y procesos de fiscalización, así como los servicios y productos que brinda la División, con el fin de innovarlos continuamente y adaptarlos a las necesidades de sus usuarios y a los cambios del entorno.
-e) Establecer alianzas estratégicas con los órganos de control y relaciones de cooperación con el resto de la hacienda pública, para el fortalecimiento de la fiscalización superior y de la gestión pública.
-f) Implementar mecanismos que permitan una interacción coordinada entre esta área y los demás procesos de la organización.
-g) Promover una filosofía de trabajo inspirada por liderazgos compartidos, polifuncionalidad, autocontrol, excelencia, mejoramiento e innovación continuas y dedicación al usuario.
-h) Definir, con el Contralor General, los estándares de rendimiento que promuevan la excelencia y recomendarle las herramientas estratégicas para medir el desempeño de los funcionarios que laboran en esta área de la fiscalización.
-i) Integrar los planes anuales operativos de las unidades que dirige y elaborar uno solo de la División, de acuerdo con prioridades, lineamientos y objetivos definidos por el Contralor General.
-j) Velar porque se dote a las unidades de los recursos necesarios para que desarrollen sus labores de soporte técnico, rectoría del ordenamiento de control y fiscalización superiores y de capacitación de manera efectiva.
-k) Mantener una adecuada atención sobre la política de rotación de los funcionarios, definida en el ámbito institucional, de forma tal que no se menoscabe la labor de fiscalización.
-l) Utilizar los recursos de forma racional para contribuir en la consecución de los objetivos institucionales.
-m) Rendir cuentas por el desempeño de sus funciones.
-n) Ejecutar cualesquiera otras labores que le asigne el Contralor General.
-* NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
+Artículo 27.—Atribuciones.
+Las áreas para la fiscalización superior tienen las siguientes atribuciones:
+a) Aprobar los presupuestos ordinario y extraordinarios, así como las modificaciones a éstos; fiscalizar la formulación del presupuesto nacional; fiscalizar la ejecución y la evaluación de los presupuestos públicos desde la perspectiva del gasto y del ingreso: elaborar diagnósticos institucionales; desarrollar trabajos de campo para la fiscalización de sistemas, operaciones, procesos y los demás aspectos que surjan como consecuencia de la labor de evaluación que desarrollarán los equipos de trabajo. Esto aplicará a todas las áreas de fiscalización excepto las que fiscalizan actividades generales de la Administración, como lo es el caso de Ingresos Públicos que certificará la efectividad fiscal de los ingresos comentes de los Presupuestos Ordinarios y Extraordinarios de la República, además de fiscalizar el proceso integral de la gestión y administración de los ingresos del Sector Público.
+b) Coadyuvar con la Secretaría Técnica en la emisión de la normativa necesaria para esta área de la fiscalización.
+c) Evacuar las consultas formuladas en el área de su competencia.
+d) Atender las denuncias asignadas por la Secretaría Técnica.
+e) Analizar la información disponible en la Unidad de Servicios de Información referente a la actividad contractual de las administraciones que señala la Ley de la Contratación Administrativa, de tal forma que pueda ser utilizada como insumo en el proceso de fiscalización que efectúa este Órgano Contralor.
+f) Poner en conocimiento del Ministerio Público o del Organismo de Investigación Judicial, según corresponda, aquellos informes y documentos que revelen indicios de hechos irregulares, improcedentes o ilegítimos, que puedan generar posibles ilícitos penales en el manejo de los fondos públicos.
+g) Colaborar con las otras áreas de fiscalización en lo que se requiera para el buen cumplimiento de sus funciones.
+h) Contribuir en coordinación con las otras áreas de la fiscalización brindando el apoyo y la asesoría que requieran para cumplir con sus funciones.
+i) Colaborar con la Gerencia de División en la elaboración de las directrices, políticas, disposiciones y normas.
+j) Proveer la información pertinente que se genere, a la Unidad de Servicios de Información.
+k) Definir y evaluar permanentemente las metodologías de trabajo, de acuerdo con sus necesidades y lineamientos generales que emita la Secretaría Técnica en coordinación con la Gerencia de División.
+l) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un sólo plan de la División.
+m) Utilizar los recursos de forma racional en la consecución de los objetivos de fiscalización evaluativa y operativa.
+n) Rendir cuentas por el desempeño de las funciones que le competen.
+o) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
+(Modificada la numeración de este artículo, mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, que subió la numeración de los artículos 39 y 40 de la anterior Sección Sétima del Capítulo VI de este Reglamento, que fue reemplazada por una nueva sección "Sección Sexta del Capítulo III, compuesta ahora por un nuevo artículo 15 y 16", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 25 a ser el N° 27).

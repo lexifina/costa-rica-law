@@ -1,10 +1,14 @@
 Artículo 38.—Atribuciones.
-a) Coadyuvar en la identificación de necesidades y en la definición de prioridades para el desarrollo de sistemas de información y de comunicación, así como para la aplicación de tecnologías de información.
-b) Apoyar la creación, aplicación y mantenimiento de los sistemas de información y comunicación, de acuerdo con una visión integrada e innovadora.
-c) Diseñar, implantar y desarrollar la infraestructura física y lógica necesaria, así como los sistemas complementarios, para el apropiado funcionamiento de los sistemas de comunicación.
-d) Promover el uso y el mayor provecho posible de los sistemas y tecnologías de información, considerando la dinámica de este mercado en particular y la orientación estratégica de la Institución.
-e) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
-f) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un solo plan de la División.
-g) Rendir cuentas por el desempeño de las funciones que le competen.
-h) Ejecutar cualesquiera otras labores que le asigne el Gerente de División o el Contralor General.
+a) Promover y coordinar el desarrollo de los sistemas, las bases de datos, conexión a otras redes nacionales e internacionales y la adquisición de tecnología moderna, para satisfacer apropiadamente las necesidades de información de la Contraloría General de la República.
+b) Atender los requerimientos de información que se realicen a la Contraloría General de la República o efectuar su traslado a otras unidades de la Institución.
+c) Identificar y difundir información oficial que sea útil para las diferentes unidades de la Contraloría General de la República, para sus usuarios e interesados en general.
+d) Preparar la Memoria Anual de la Contraloría General de la República, de tal forma que resulte un instrumento útil para la toma de decisiones y que permita informar apropiadamente, tanto a la Asamblea Legislativa como a la ciudadanía, sobre los resultados de la fiscalización superior y la gestión pública.
+e) Brindar el servicio de recepción y distribución de correspondencia en forma oportuna.
+f) Recibir, clasificar y facilitar el acervo documental de la Institución.
+g) Organizar y coordinar los servicios bibliotecarios de la Institución y promover la compra o suscripción de material bibliográfico, revistas, periódicos u otros medios, que resulten necesarios para la atención de las necesidades de los usuarios.
+h) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
+i) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un solo plan de la División.
+j) Rendir cuentas por el desempeño de las funciones que le competen.
+k) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
 * NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
+(Modificada la numeración de este artículo, mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, que subió la numeración de los artículos 39 y 40 de la anterior Sección Sétima del Capítulo VI de este Reglamento, que fue reemplazada por una nueva sección "Sección Sexta del Capítulo III, compuesta ahora por un nuevo artículo 15 y 16", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 36 a ser el N° 38).

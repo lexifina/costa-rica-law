@@ -1,19 +1,16 @@
-Artículo 23.—Atribuciones.
-a) Uniformar y asesorar respecto a los criterios técnicos, en la materia de su competencia, resultantes del trabajo realizado por cada área de fiscalización.
-b) Ejercer una adecuada coordinación técnica con la División de Desarrollo Institucional, y con las demás unidades de la organización que se requiera.
-c) Emitir la normativa y los lineamientos técnicos necesarios para este proceso de fiscalización.
-d) Dar soporte a los equipos de trabajo en el área de auditoria de sistemas.
-e) Evaluar las denuncias que ingresen a la Contraloría General y darles el trámite correspondiente.
-f) Coordinar con el Centro de Relaciones para el Fortalecimiento del Control y la Fiscalización la elaboración de directrices, políticas, criterios y normativa técnica en materia de fiscalización y control para apoyar el desempeño de los entes y órganos que integran la Hacienda Pública.
-g) Coadyuvar con cada área de fiscalización en la revisión, uniformidad y mejoramiento de las metodologías de trabajo aplicadas en esta área de la fiscalización.
-h) Coordinar con la unidad de Estrategia Institucional en cuanto al desarrollo de investigaciones que permitan la innovación, adaptabilidad y mejora continua de las metodologías de trabajo de fiscalización integral.
-i) Mantener una adecuada atención sobre la política de rotación de los funcionarios, de forma tal que no se menoscabe la labor de fiscalización.
-j) Contribuir a la coordinación de las otras áreas de la fiscalización brindando el apoyo que requieran para cumplir con sus funciones.
-k) Generar la información que requiera la Gerencia de División para elaborar sus directrices, políticas, disposiciones y normas.
-l) Proveer a la Unidad de Servicios de Información la información pertinente.
-m) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un sólo plan de la División.
-n) Definir las metodologías de trabajo, de acuerdo con sus necesidades y lineamientos generales que emita la Gerencia de División.
-o) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
-p) Rendir cuentas por el desempeño de las funciones a su cargo.
-q) Ejecutar las demás labores que le asigne el Contralor General o la Gerencia de División.
+Artículo 23.—Coordinación.
+1. Con su superior jerárquico y con las otras gerencias de división.
+a. En las sesiones del Consejo Consultivo.
+b. Por medio de comunicación formal por medios escritos y electrónicos.
+c. A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por titulares de las unidades, coordinadores, o miembros de los equipos.
+2. Con las unidades de apoyo y asesoría y el Despacho del Contralor y Subcontralor Generales.
+a. Por medio de comunicación formal por medios escritos o electrónicos.
+b. Mediante nexos de cooperación mutua.
+c. A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario, o equipos de trabajo constituidos por titulares de las unidades, coordinadores u otros funcionarios.
+3. Con las áreas de fiscalización superior y unidades a su cargo.
+a. Por medio de comunicación formal por medios escritos o electrónicos.
+b. Mediante reuniones con los titulares de las áreas de fiscalización o de la creación temporal de equipos de trabajo para la toma de decisiones sobre asuntos específicos.
+c. A través de personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por funcionarios o equipos de trabajo constituidos por titulares de las unidades, coordinadores, miembros de equipos de trabajo especializados o expertos en el asunto, o bien unidades organizativas.
+Los anteriores mecanismos de coordinación se complementan y apoyan con la estandarización de los métodos y procedimientos de trabajo, la especificación de los resultados esperados de las tareas que se ejecutan y de la especificación de las competencias de gestión, de conocimiento, afectivas y de aquellas otras que sean necesarias para administrar eficientemente el recurso humano.
 * NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
+(Modificada la numeración de este artículo, mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, que subió la numeración de los artículos 39 y 40 de la anterior Sección Sétima del Capítulo VI de este Reglamento, que fue reemplazada por una nueva sección "Sección Sexta del Capítulo III, compuesta ahora por un nuevo artículo 15 y 16", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 21 a ser el N° 23).

@@ -1,6 +1,6 @@
-* CAPÍTULO IV
-División de Asesoría y Gestión Jurídica
-Artículo 15.- Objetivo; relación jerárquica.
-1. Actuar en procura de la aplicabilidad y perfeccionamiento del ordenamiento jurídico relacionado con la Hacienda Pública, velando porque las actuaciones de la Contraloría General de la República sean conformes con dicho ordenamiento, particularmente en los asuntos estratégicos relacionados con el control y la fiscalización superior de la Hacienda Pública. Llevará a cabo los procedimientos administrativos atinentes para verificar la responsabilidad administrativa y civil de los funcionarios públicos, la declaratoria de nulidad absoluta de los actos y contratos administrativos, y los que corresponda en materia de contratación administrativa. Asímismo tendrá a su cargo la atención de los procesos judiciales relacionados con la Hacienda Pública de acuerdo con la legitimación que la ley conceda a la Contraloría General de la República.
-2. Depende del Contralor General y está a caergo de un Gerente de División.
-* NOTA DEL SINALEVI: El presente Capítulo IV cuenta con vigencia atribuida mediante Resolución 0 del 20 de setiembre de 1999, de la Contraloría General de la República.)
+SECCIÓN SEXTA
+Cooperación Internacional
+Artículo 15.—Objetivo. Relación jerárquica.
+1. Manejar las relaciones que establezca la Contraloría General de la República con otras instituciones y organizaciones internacionales de fiscalización superior o análogas.
+2. Depende del Contralor General.
+(Así reformado parcialmente este artículo -anterior artículo 39, Sección Sétima del Capítulo VI- mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, la cual a su vez en forma tácita sube la numeración del mismo al ahora artículo 15, corriendo así la numeración del restante articulado de este Reglamento.)
