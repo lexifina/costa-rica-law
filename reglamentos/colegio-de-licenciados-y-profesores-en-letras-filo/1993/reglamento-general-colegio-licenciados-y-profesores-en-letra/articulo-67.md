@@ -1,5 +1,0 @@
-Artículo 67.- Jurado Calificador
-El premio lo otorgará el Colegio de Licenciados y Profesores, por medio de su Junta Directiva, con base en el fallo de un Jurado Calificador que debe integrarse cada año en la última semana del mes de abril. Estará compuesto por cinco miembros colegiados de probada competencia en el campo de las obras que juzgarán.
-La fecha máxima para entregar las obras que concursarán será la primera semana laborable de diciembre.
-Los miembros del Jurado devengarán una dieta única por su trabajo, de acuerdo al presupuesto aprobado por la Asamblea General.
-El fallo del jurado será inapelable.

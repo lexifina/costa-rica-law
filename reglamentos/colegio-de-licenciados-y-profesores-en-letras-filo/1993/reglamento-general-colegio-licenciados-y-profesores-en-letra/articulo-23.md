@@ -1,2 +1,0 @@
-Artículo 23.- Dietas
-Los miembros de la Junta Directiva tendrán derecho a dietas por asistencia a sesiones en igual monto que el autorizado para los directores de las Instituciones Autónomas dentro de los límites de la respectiva ley (monto dieta y número de sesiones remuneradas por mes), y no percibirán estipendios o dietas cuando asisten a otros actos del Colegio, o formen parte de sus comisiones; pero conservarán el derecho a pago de dieta de Junta Directiva cuando dentro del horario de sesión se encuentren en Misión Oficial, siempre y cuando se realice la sesión.

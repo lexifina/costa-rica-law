@@ -1,1 +1,0 @@
-TRANSITORIO 1: Los Colegiados que hayan sido incorporados sin juramentación a la fecha, se tendrán como miembros regulares sin necesidad de cumplir con este requisito. En lo sucesivo, la Junta Directiva no tendrá por incorporado ni podrá certificar la incorporación, a ningún nuevo solicitante que no se haya juramentado.

@@ -1,2 +1,0 @@
-Artículo27. PROFESIONAL EN ADMINISTRACION
-La Junta Directiva nombrará dos Profesionales en Administración, uno para la Dirección Ejecutiva y otro para la Administración de las Instalaciones del Centro Cultural y Recreativo y de la Finca del Colegio de Licenciados y Profesores en Alajuela. El nombramiento de Director Ejecutivo y Administrador del Centro Cultural y Recreativo y la Finca se realizarán mediante votación con mayoría de dos terceras partes del total de los miembros de la Junta Directiva. (5)

@@ -1,2 +1,0 @@
-Artículo 17.- De la Junta Directiva
-La Junta Directiva es el órgano Director y Ejecutivo de "El Colegio" y está integrada como lo establece el artículo 18 de la Ley Orgánica y sus atribuciones son las consagradas en el artículo 23 ibídem.

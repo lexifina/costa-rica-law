@@ -1,5 +1,0 @@
-Artículo 40.- Presupuesto
-El Tesorero es el responsable de la elaboración del proyecto de presupuesto, que deberá presentar a Junta Directiva para su estudio, en la primera semana del mes de marzo. En él, se incluirá una partida para responder a egresos no previstos. El Proyecto de Presupuesto pasará a dictamen de una Comisión nombrada por Junta Directiva, que rendirá informe a ella, dentro de los 8 días naturales siguientes.
-Aceptado en todo, en parte o rechazado, lo pondrá en conocimiento de la Asamblea General Ordinaria, para su estudio y aprobación, a tenor de los artículos 13 y 14 de la Ley Orgánica.
-En ningún caso los egresos podrán ser superiores a los ingresos presupuestados.
-La Asamblea General sólo podrá conocer el Presupuesto y las modificaciones presentadas por la Junta Directiva, sin perjuicio de sus facultades de improbación o modificación, que ejercerán los asambleístas por moción.
