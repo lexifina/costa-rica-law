@@ -1,0 +1,1 @@
+Art 2°.- Para el caso de no acceder a esta solicitud protestará que Costa rica, no reconocerá en adelante qualesquiera acuerdos del Congreso o Seno, emitidos en sesión en que la representación presente de los demás Estados no exeda a la del Guatemala y no hará asi entender a los Representantes de este Estado para que en semejantes circunstancias eviten asistir.
