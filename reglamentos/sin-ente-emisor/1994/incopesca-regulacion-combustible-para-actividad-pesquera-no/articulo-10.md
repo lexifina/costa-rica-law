@@ -1,0 +1,1 @@
+Artículo 10.—Las órdenes de compras serán prenumeradas en estricto orden y la Unidad de Control del Combustible llevará para cada Oficina Regional un archivo numérico de las órdenes de compra emitidas y anuladas, acompañadas de las correspondientes solicitudes.

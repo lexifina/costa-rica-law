@@ -1,0 +1,1 @@
+Artículo 22.—Las ventas de combustible estarán sujetas a los procedimientos ordinarios y normas establecidas por RECOPE en su operación normal, esto significa que, entre otras disposiciones, se respetarán las cuotas mínimas de combustible a entregar, así como el depósito del valor de la compra, previo a su entrega.
