@@ -1,0 +1,6 @@
+Artículo 9º—Decisión de recomendación. Para tomar la decisión de recomendar la exención, el Departamento de Cooperación Internacional deberá considerar las siguientes situaciones:
+a) La persona o grupo deberá asistir a eventos artísticos culturales, como: Ferias de artesanos, festivales culturales, juveniles, presentaciones culturales, ferias de libros, concursos artístico-culturales, actividades de capacitación, foros juveniles, debates, seminarios, entre otros.
+b) Las actividades religiosas no serán sujetas de recomendación de Exención de los Impuestos de Salida del país.
+c) Los eventos artístico-culturales eminentemente lucrativos, no serán sujetos de recomendación de Exención de los Impuestos de Salida.
+d) El Departamento de Cooperación Internacional podrá solicitar referencias a cualquier órgano del Ministerio de Cultura, Juventud y Deportes y éste estará obligado a responder en un lapso no mayor a 5 días hábiles, sobre cualquier persona o grupo que haya solicitado la recomendación para una Exención de los Impuestos de Salida.
+e) Las actividades juveniles artísticas y culturales podrán ser sujetas de recomendación de Exención de los Impuestos de Salida, siempre que cumplan los requisitos establecidos en los incisos anteriores.

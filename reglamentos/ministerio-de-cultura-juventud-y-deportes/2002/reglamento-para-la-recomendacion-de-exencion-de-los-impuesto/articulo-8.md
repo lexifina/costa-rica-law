@@ -1,0 +1,1 @@
+Artículo 8º—Valoración de la información. El Departamento de Cooperación Internacional valorará la información y recomendará lo correspondiente, si es procedente o no, la Exención de los Impuestos de Salida.

@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos. Los sujetos que se beneficiarán del presente reglamento, serán todas aquellas personas físicas o jurídicas, individuales o colectivas que mediante una actividad que realizarán en el extranjero representarán, promocionarán, o expresarán algún componente de la cultura costarricense, sin carácter lucrativo, político o religioso.

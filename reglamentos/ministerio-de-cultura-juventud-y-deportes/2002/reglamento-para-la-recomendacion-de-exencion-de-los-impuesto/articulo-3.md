@@ -1,0 +1,1 @@
+Artículo 3º—Los interesados. Los interesados iniciarán la gestión solicitando formalmente a la Jefatura del Departamento de Cooperación Internacional del Ministerio de Cultura, Juventud y Deportes, la recomendación de Exención de los Impuestos de Salida del país.

@@ -1,0 +1,1 @@
+Artículo 13.—Retiro de documentos para la exención de impuestos. El o los interesados deben presentarse a retirar la recomendación de exención de impuestos, o bien, podrán consultar vía telefónica sobre el avance de su gestión.

@@ -1,0 +1,1 @@
+Artículo 12.—Error del solicitante. En el caso que por error del solicitante se tenga que elaborar nuevamente el acuerdo de viaje, el Departamento de Cooperación Internacional contará con 3 días hábiles para corregir el error por una única vez, y a solicitud por escrito del interesado.
