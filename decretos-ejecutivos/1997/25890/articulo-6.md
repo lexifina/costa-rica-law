@@ -1,0 +1,1 @@
+Artículo 6°—El marco operativo del Programa Internacional para la Erradicación del Trabajo Infantil (IIPEC) de la Organización Internacional del Trabajo deberá ajustarse al Plan Nacional de Lucha Contra el Trabajo Infantil que establezca el Comité supra-citado.

@@ -1,0 +1,1 @@
+Artículo 8°—El Comité nombrará de su seno una Junta Directiva compuesta por presidente, secretario, tesorero y fiscal, nombrados por mayoría absoluta por un periodo de un año, pudiendo ser reelegidos consecutivamente una sola vez.
