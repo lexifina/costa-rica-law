@@ -1,0 +1,18 @@
+RESOLUCION DG-019-2001
+DIRECCION GENERAL DE SERVICIO CIVIL. Area de Instrumentación Tecnológica. San José, a las nueve horas del día veinte de febrero del año dos mil uno.
+CONSIDERANDO:
+Que el artículo 13 del Estatuto de Servicio Civil confiere facultades a la Dirección General de Servicio Civil en materia de clasificación y valoración de puestos.
+Que mediante la Resolución No. DG-154-98 del 20 de octubre de 1998, esta Dirección General de Servicio Civil aprobó el Manual de Clases Institucional que identifica las clases del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA).
+Que el Coordinador de Recursos Humanos del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud (INCIENSA), mediante el Oficio No. ORH-408-2000 del 2 de octubre del 2000, remite un ejemplar del Manual Institucional de Clases del INCIENSA, con las modificaciones y ajustes realizados, a raíz de los cambios que se han suscitado en el mismo, desde octubre de 1998 hasta la fecha, con la petición de que sea revisado y aprobado.
+Que la mayoría de los ajustes realizados al Manual Institucional de Clases del INCIENSA, se derivan de la Resolución DG-024-2000, del siete de febrero del dos mil, en donde se reforma la Clase Profesional de Centro Nacional de Referencia (artículo 1) y se insta a la Unidad de Recursos Humanos a realizar los ajustes técnicos estructurales convenientes y las modificaciones en la estructura de requisitos de las demás clases del Manual Institucional, de conformidad con las variaciones incluidas a la clase antes mencionada (artículo 2).
+Que La Resolución DG-023-99, del 22 de febrero de mil novecientos noventa y nueve, modifica las clases Profesional de Apoyo, Profesional de Servicios de Informática 1 y Profesional de Servicios de Informática 2.
+Que el Proceso de eficiencia y Organización del Trabajo, mediante Informe No. IT-EOT-109-2000 del 5 de diciembre de 2000, procedió a analizar los cambios realizados al Manual Institucional de Clases del INCIENSA e hizo varias nuevas observaciones, las cuales fueron consideradas en la versión final recomendada por dicho Proceso.
+Que las modificaciones recomendadas al Manual Institucional de Clases del INCIENSA, obedecen a la necesidad de un nuevo planteamiento, acorde a la realidad institucional y al entorno que influye la creación de este documento.
+Que las observaciones realizadas al Manual Institucional de Clases del INCIENSA fueron planteadas y analizadas con el Coordinador de Recursos Humanos de esa institución y su equipo de trabajo en este proyecto, con quienes se analizaron todos los cambios requeridos en el referido Instrumento clasificador de puestos.
+Que el Proceso de Normatización Técnica realizó el estudio de los salarios de las clases afectadas por la modificación del Manual Institucional de Clases del INCIENSA y, mediante el informe IT-NT-003-2001, emitió el respectivo criterio técnico.
+Que la Asesoría Jurídica de esta Dirección General, mediante el Oficio AJ-067-2001 de fecha 20 de febrero del 2001, autorizó el texto de la presente Resolución.
+POR TANTO,
+EL DIRECTOR DEL ÁREA DE INSTRUMENTACIÓN TECNOLÓGICA
+En uso de las facultades que le confieren el Estatuto de Servicio Civil, así como el Aviso Número 13-SC, publicado en La Gaceta No.116 del 16 de junio de 1999.
+RESUELVE:
+Artículo 1º- Modificar el artículo 1 de la Resolución DG-154-98, de las ocho horas del veinte de octubre de mil novecientos noventa y ocho y sus modificaciones, para que el Manual Institucional de Clases del INCIENSA, aprobado a través de ésta, sea sustituido por el que se anexa a esta Resolución.
