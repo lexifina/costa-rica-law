@@ -1,4 +1,10 @@
-CAPITULO XVII
-Disposiciones finales
-Artículo 123.—En todo aquello no contemplado expresamente (este Estatuto, se recurrirá a lo dispuesto por la Ley de Salarios y Régimen de Méritos de la Contraloría General de la República y su Reglamento, Ley General de la Administración Pública, Ley Orgánica de la Contraloría General de la República, la Ley General de la Administración Pública, el Estatuto del Servicio Civil y su Reglamento y el Código de Trabajo en ese orden.
-(Así reformado por acuerdo tomado en sesión N° 19 de 13 de noviembre de 1996)
+"CAPITULO XVII
+De la reorganización y supresión de plazas
+Artículo 122.—La supresión de plazas y la consecuente finalización de la relación de servicio de sus titulares, únicamente procederá por reorganización y deberá ajustarse al siguiente procedimiento:
+i. elaboración de un estudio técnico que determine la necesidad de la reorganización y de la supresión de la plaza como parte de aquella;
+ii. el acto de traslado de la posible supresión de plaza será emitido mediante resolución motivada del Contralor General;
+iii. al funcionario potencialmente afectado se le concederá traslado por tres días hábiles para que ejerza su derecho de defensa:
+iv. la supresión de la plaza por reorganización será emitida mediante
+resolución razonada del Contralor General;
+v. el funcionario que cese su relación de servicio por la supresión de su plaza, será indemnizado en los términos que establece el Estatuto de Servicio Civil y su Reglamento.
+(Así adicionado por acuerdo tomado en sesión de fecha 7 de junio de 1999)

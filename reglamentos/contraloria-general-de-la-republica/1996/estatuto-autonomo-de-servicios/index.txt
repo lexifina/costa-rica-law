@@ -123,3 +123,7 @@ articulo-123.md
 articulo-124.md
 articulo-125.md
 articulo-126.md
+articulo-127.md
+articulo-128.md
+articulo-12-bis.md
+articulo-82-2.md
