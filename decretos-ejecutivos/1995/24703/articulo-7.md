@@ -1,0 +1,1 @@
+Artículo 7º.- El ingreso para prácticas de rescate o similares, deberá contar con autorización de la Dirección del Área de Conservación y sin excepción debe haber participación de por lo menos un funcionario del Parque. Las prácticas no se realizarán en zonas o sectores que usen los visitantes. La autorización deberá solicitarse con al menos tres días de antelación.

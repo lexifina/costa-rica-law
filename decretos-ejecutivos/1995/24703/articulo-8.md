@@ -1,0 +1,1 @@
+Artículo 8º.- Toda basura o desecho que produzca el visitante durante su estancia en el Parque, deberá depositarlo en los lugares previstos para ello o en su defecto sacarlo fuera del área y disponer de estos convenientemente.

@@ -1,0 +1,1 @@
+Artículo 6º.- En los recorridos por los senderos, tanto las personas particulares como los grupos organizados de agencias de viajes y estudiantes, deberán respetar el tiempo máximo de dos horas, para recorrerlos.
