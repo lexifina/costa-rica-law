@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Asesoramiento contra la Legitimación de Capitales provenientes de delitos graves. Se crea la Comisión de Asesoramiento contra la Legitimación de Capitales provenientes de delitos graves, como comisión asesora encargada de atender de manera institucional, permanente e integral, los diferentes aspectos relacionados con la Ley Nº 8204 y este Reglamento.
