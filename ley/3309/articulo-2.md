@@ -1,0 +1,1 @@
+Artículo 2°-Las operaciones de crédito que realicen los bancos comerciales de acuerdo con las leyes y reglamentos originados en esa emergencia, estarán libres de impuestos, tasas y derechos de cualquier naturaleza. Para este efecto bastará la calificación que en el correspondiente documento dé el Banco a la operación respectiva.
