@@ -13,3 +13,4 @@ Reglamento para la Valoración de Mercancías Averiadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-04-06 | la propia norma |
+| 2 | 1983-04-06 | SINALEVI (sin norma nombrada) |
