@@ -1,0 +1,1 @@
+Artículo 4º—Las fechas indicadas en los artículos 1 y 2, no excluyen las labores de los docentes inherentes a la apertura y cierre del curso, la celebración del acto de clausura y la práctica de pruebas de recuperación

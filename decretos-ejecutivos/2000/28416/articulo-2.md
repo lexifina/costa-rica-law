@@ -1,0 +1,1 @@
+Artículo 2º—Los períodos de vacaciones para este curso lectivo serán tres a saber: el primero: del 17 al 21 de abril (correspondiente a toda la Semana Santa); el segundo del 3 al 14 de julio (correspondiente a las vacaciones de medio año) y el tercer período estará comprendido entre el final del curso lectivo del año 2000 y el inicio del curso lectivo del año 2001
