@@ -1,0 +1,1 @@
+Artículo 9°. - Concluida la instrucción y pasada al Juez del Crimen, ‚este recibir al reo la confesión con cargos, y le conceder el término de cinco días para pedir las pruebas, las cuales ser n evacuadas dentro del más preciso término, a juicio prudente del Juez.
