@@ -1,0 +1,2 @@
+Art. 3°-Los funcionarios públicos encargados de la Administración de Justicia en lo criminal, quedan revestidos de la jurisdicción militar necesaria para la persecución y castigo de los hechos á que esta ley se refiere.
+Dado en el Palacio Presidencial, en San José, á los diez y seis días del mes de marzo de mil ochocientos ochenta y cinco.-BENARDO SOTO.-El Secretario de Estado en el despacho de la Guerra.-SANTIAGO DE LA GUARDIA.
