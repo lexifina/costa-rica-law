@@ -1,0 +1,3 @@
+Artículo 3º.- Modifícase el artículo 11 Relación de Puestos
+de Servicios Especiales, contenido en la ley número 7375 del 17 de
+diciembre de 1993, en la forma que se indica a continuación: ...
