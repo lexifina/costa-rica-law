@@ -1,0 +1,1 @@
+ARTICULO 10.-Las penas de comiso y multa que se imponen por el presente Decreto, deben entenderse, sin perjuicio de las demás a que sean responsables los infractores por los otros delitos que se cometan y que deben juzgarse por la vía judicial con arreglo las leyes.
