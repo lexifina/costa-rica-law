@@ -14,3 +14,4 @@ Reglamento para otorgar becas de la Municipalidad de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-22 | la propia norma |
+| 2 | 2000-01-24 | Reglamento municipal 160 (2000-01-24) |

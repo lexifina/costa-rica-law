@@ -10,3 +10,5 @@ c. Otros ingresos del hogar.
 f. Constancia del colegio donde indique que no recibe beca de otra institución o empresa.
 g. Nómina de personas que dependen de los ingresos familiares y su edad.
 h. El alumno al que se le asigne beca por parte de esta Municipalidad, debe ser de conducta intachable en la institución.
+I. Certificación de bienes inmuebles de ambos padres.
+(Así ampliado en sesión N° 16 de 24 de enero de 2000).
