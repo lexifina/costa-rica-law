@@ -1,0 +1,50 @@
+Artículo 10.- Los factores precitados para efecto de reconocimiento
+en la carrera profesional, se valorarán en puntos de la siguiente forma:
+a) Grados académicos:
+1) Bachillerato 10 puntos
+2) Licenciatura 16 puntos
+3) Especialidad 26 puntos
+4) Maestría 32 puntos
+5) Doctorado 40 puntos
+6) Licenciatura adicional 5 puntos
+7) Especialidad adicional 7 puntos
+8) Maestría adicional 10 puntos
+9) Doctorado adicional 12 puntos
+b) Cursos de capacitación recibidos:
+1) De aprovechamiento
+Un punto por cada 40 horas naturales efectivas de instrucción hasta
+un máximo de 20 puntos.
+2) De participación recibida
+Un punto por cada 80 horas naturales efectivas hasta un máximo de 20
+puntos.
+A partir del 1 de marzo de 1994, la suma máxima de puntos que se
+podrá otorgar por cada actividad de capacitación recibida será de 5
+(cinco).
+Los cursos de participación no inferiores a las 12 horas naturales
+de instrucción y los excedentes, se acumularán para efecto de su
+reconocimiento. La variación en el número de horas de 20 a 12 rige a
+partir del 1 de marzo de 1993.
+c) Cursos de capacitación impartidos.
+Un punto por cada 24 horas naturales efectivas de instrucción hasta
+un máximo de 20 puntos.
+A partir del 1 de marzo de 1994 el monto máximo de puntos que se
+otorgará por cada actividad de capacitación impartida será de 8 (ocho).
+d) Experiencia profesional en instituciones del Estado.
+Un punto por cada año, hasta 5 años. De 6 años en adelante 1,5
+puntos por cada año.
+e) Experiencia profesional en organismos públicos
+internacionales.
+Un punto por cada semestre hasta un máximo de 20 puntos.
+f) Experiencia docente en instituciones de enseñanza de
+nivel universitario o parauniversitario sean públicas o
+privadas, debidamente reconocidas por el Consejo de
+Educación Superior Universitaria Privada (CONESUP) y el
+Consejo Nacional de Rectores (CONARE).
+Un punto por cada año de experiencia docente universitaria o
+parauniversitaria, hasta un máximo de 20 puntos.
+g) Publicaciones efectuadas.
+a- Un punto por cada publicación realizada con carácter de
+ensayo, artículo, antología o compilación hasta un máximo
+de 20 puntos.
+b- Cinco puntos por cada libro, hasta un máximo de 20
+puntos.

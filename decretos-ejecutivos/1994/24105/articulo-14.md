@@ -1,0 +1,6 @@
+Artículo 14.- Si ya se hubiere agotado el número máximo de 20 puntos
+previstos para las actividades de aprovechamiento y existieran
+excedentes, éstos podrán ser considerados para la modalidad de
+"participación". Concediéndose un punto por cada 80 horas naturales de
+capacitación, siempre y cuando no se haya alcanzado el límite máximo de
+20 puntos por actividades de esta índole.

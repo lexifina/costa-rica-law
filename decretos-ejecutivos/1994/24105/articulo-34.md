@@ -1,0 +1,4 @@
+Artículo 34.- Una vez definido el monto del incentivo, de acuerdo
+con los factores evaluados, la comisión trasladará al jerarca ejecutivo
+el formulario en que conste la decisión tomada y los documentos
+probatorios.

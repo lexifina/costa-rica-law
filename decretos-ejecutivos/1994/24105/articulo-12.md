@@ -1,0 +1,23 @@
+De los cursos de capacitación recibidos:
+Artículo 12.- Las modalidades de aprovechamiento y participación de
+los cursos de capacitación (recibidos por los funcionarios de nivel
+profesional) se definen para los efectos de reconocimiento como factores
+objeto de incentivos en el presente reglamento, de la siguiente manera:
+a) Aprovechamiento: Se denomina a aquellas actividades de
+adiestramiento y capacitación, impartidas a los
+funcionarios de nivel profesional, iguales o mayores a
+las cuarenta horas naturales de instrucción efectiva, en
+las cuales se debe obtener un mínimo de setenta por
+ciento como promedio final en sus calificaciones y un
+ochenta y cinco por ciento de asistencia mínima.
+b) Participación: Se conceptúa a aquellas actividades de
+adiestramiento y capacitación impartidas a los
+funcionarios de nivel profesional, iguales o mayores a
+las ochenta horas naturales de instrucción efectiva, en
+las cuales se debe cumplir con una asistencia no inferior
+al ochenta y cinco por ciento del total de aquellas y con
+un mínimo de 12 horas reloj de instrucción efectiva.
+Sin embargo, los cursos de capacitación recibidos en la modalidad de
+participación no inferiores a las 12 horas naturales de instrucción, y
+los excedentes que resulten en cualesquiera de las modalidades se
+acumularán para efectos de su reconocimiento.
