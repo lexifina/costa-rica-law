@@ -1,0 +1,1 @@
+4. La Municipalidad de Alajuela deberá adquirir inmuebles para ser destinados a ser divididos o fraccionados con el fin de vender lotes debidamente acondicionados a Jefes de Familia que comprobadamente lo necesitaren. Deberá incluir todas las facilidades en cuanto a servicios públicos que contempla el Código Municipal.

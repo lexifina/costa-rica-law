@@ -1,0 +1,1 @@
+5. Conforme lo establece el decreto No. 11284-G. los fraccionamientos que realice la Municipalidad se ajustarán a lo establecido por la Ley de Planificación Urbana. Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.

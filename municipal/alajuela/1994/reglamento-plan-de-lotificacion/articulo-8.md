@@ -1,0 +1,1 @@
+8. Los planos de fraccionamientos o urbanizaciones deberán ser elaborados por el Departamento Técnico de la Municipalidad de Alajuela de tal manera que el valor del lote deberá adicionar los costos de planos e infraestructura en caso de ser necesario realizar obras.

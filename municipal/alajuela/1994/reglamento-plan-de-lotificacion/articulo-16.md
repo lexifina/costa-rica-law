@@ -1,0 +1,1 @@
+16. La Municipalidad de Alajuela una ve/, que tenga los terrenos habilitados, definidos el lote y aprobada la gestión del solicitante autorizará el otorgamiento de la escritura respectivamente ante el notario que designe la Municipalidad.
