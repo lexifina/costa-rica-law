@@ -14,3 +14,4 @@ Reglamento Interior de Trabajo Ministerio Economía y Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1961-12-07 | la propia norma |
+| 2 | 1964-10-02 | Decreto Ejecutivo 47 (1964-10-02) |
