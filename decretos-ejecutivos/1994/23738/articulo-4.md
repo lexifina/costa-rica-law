@@ -1,0 +1,15 @@
+Artículo 4º.-Funciones del Ente Administrador del Fondo:
+Corbana, como administradora del Fondo, cumplirá las siguientes
+funciones: a) Administrar los recursos recibidos, ejerciendo el
+debido control administrativo, contable, financiero y técnico de
+los mismos, para lo cual llevará libros especiales de contabilidad
+debidamente legalizados por la Oficina de Legalización de Libros de
+la Tributación Directa, en los cuales registrará todos los ingresos
+y egresos del Fondo. b) Establecer y verificar, en cada caso, que
+se cumplan los requisitos necesarios, por parte de los productores
+bananeros solicitantes de los recursos del Fondo; c) Distribuir el
+fondo entre los productores que califiquen para hacerse
+beneficiarios del mismo y pagar las sumas correspondientes; ch)
+Presentar oportunamente a la Dirección General de Hacienda y al
+Banco Central informes detallados sobre la operación y distribución
+de los recursos del Fondo.
