@@ -14,3 +14,4 @@ Adhesión de la República de Costa Rica al Convenio Constitutivo del Arreglo de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-12-05 | la propia norma |
+| 2 | 1996-12-05 | SINALEVI (sin norma nombrada) |
