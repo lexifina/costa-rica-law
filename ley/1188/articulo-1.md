@@ -1,4 +1,6 @@
+(Derogado)
 N° 1188
+(Esta norma fue derogada por el artículo 50 de la ley de Pagos lnternacionales, N° 1351 del 29 de setiembre de 1951)
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 Interpretando en forma auténtica la ley N° 1180 de 4 de julio de 1950.
 DECRETA:

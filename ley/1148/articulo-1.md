@@ -1,5 +1,8 @@
+(Derogado)
+Ley 1148
 LEY DE CONTROL DE LAS
 TRANSACCIONES INTERNACIONALES
+(Esta norma fue derogada por el artículo 50 de la ley de Pagos lnternacionales, N° 1351 del 29 de setiembre de 1951)
 CAPITULO I
 SECCION UNICA
 Régimen de Cambios
