@@ -1,0 +1,1 @@
+Artículo 8°—Si al servidor se le traslada de una zona de operación con derecho de zonaje a otra que ostente el mismo beneficio, por un lapso mayor de un mes, se procederá al pago correspondiente realizando el ajuste de acuerdo con la tabla de zonas establecido en el artículo 5.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando el Ministerio de Salud ponga en funcionamiento un establecimiento de salud no contemplado dentro del presente Reglamento en su artículo 5, se reconocerá al funcionario la tarifa asignada al lugar más cercano ya establecido.

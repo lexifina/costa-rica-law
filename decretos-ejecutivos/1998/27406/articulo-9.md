@@ -1,0 +1,4 @@
+Artículo 9°—Todo movimiento que tenga que ver con el pago de zonaje o suspensión del zonaje, se canalizará mediante una solicitud, en la cual se indiquen las razones para que el servidor sea trasladado a prestar sus servicios en una zona de condiciones diferentes y retirada de su domicilio legal, de la siguiente manera:
+Si la solicitud se produjera:
+a) A Nivel Central. El Jefe del Departamento o del Programa respectivo será responsable de tramitar la solicitud ante la Subdivisión de Recursos Humanos, en la cual justifique el por
+b) A Nivel Regional. El encargado de Recursos Humanos de la Región, conjuntamente con el Jefe del Departamento o Programa respectivo, serán responsables de tramitar las solicitudes ante la Subdivisión de Recursos Humanos, en la cual justifique el por qué otorgar o suprimir dicho beneficio, acompañada de la certificación del domicilio legal.

@@ -1,0 +1,1 @@
+Artículo 13.—El monto de zonaje en ningún caso podrá ser inferior al Monto Mínimo de Zonaje, ni mayor al Monto Máximo de Zonaje definido por la Contraloría General de la República, mientras competa a este organismo asignarlos.

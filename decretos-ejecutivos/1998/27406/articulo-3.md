@@ -1,0 +1,1 @@
+Artículo 3°—Tendrán derecho a zonaje aquellos servidores que sean nombrados o trasladados en forma definitiva o por más de un mes, a prestar sus servicios en algunos de los lugares a que se refiere al artículo 5, siempre y cuando la institución lo requiera y que con motivo del cargo que desempeñan deban trasladar su residencia habitual a ese lugar donde prestarán sus servicios.

@@ -1,0 +1,1 @@
+Artículo 12.—Se suspenderá el pago de zonaje, cuando dejen de existir las causas que originaron su concesión, a lo cual el servidor que lo disfrutó no podrá alegar derechos adquiridos, ya que el pago se acuerda con motivo de circunstancias particulares que pueden variar.

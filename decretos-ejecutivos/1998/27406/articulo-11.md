@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el servidor incumpla las disposiciones contenidas en el presente Reglamento, por culpa, dolo o negligencia, será sancionado de acuerdo con las normas y procedimientos que al efecto ha establecido el Reglamento Autónomo de Trabajo, el Estatuto de Servicio Civil y la Ley General de Administración Pública.

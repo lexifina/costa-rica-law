@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos de este Reglamento se entiende por "Domicilio Legal" el lugar donde la ley presume sin admitir prueba en contra, que una persona reside de una manera permanente para el ejercicio de sus derechos y cumplimiento de sus obligaciones, aunque de hecho no esté allí presente.
