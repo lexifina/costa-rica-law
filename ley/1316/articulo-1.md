@@ -1,241 +1,53 @@
-Artículo 1º.- Apruébase el contrato suscrito entre el señor Ministro
-de Agricultura e Industrias en representación del Gobierno de la
-República y el señor Vito Sansonetti Clarini en representación de la
-Sociedad Italiana de Colonización Agrícola de Roma, Italia, Que
-literalmente dice:
-Nº 24.- Nosotros, Claudio Antonio Volio Guardia, Ministro de
-Agricultura e Industrias, debidamente autorizado por el señor Presidente
-de la República, por una parte que en adelante se llamará "el Gobierno de
-la República"; y por la otra la Sociedad Italiana de Colonización
-Agrícola, de Roma, Italia, representada por el Comandante Vito Sansonetti
-Clarini, mayor de edad, casado, de nacionalidad italiana, residente en
-San José, hemos convenido en celebrar el siguiente contrato, con base en
-las disposiciones generales de la ley Nº 18 de 26 de setiembre de 1927:
+N° 1316
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+Decreta:
+Artículo 1º.- Apruébase el contrato suscrito entre el señor Ministro de Agricultura e Industrias en representación del Gobierno de la República y el señor Vito Sansonetti Clarini en representación de la Sociedad Italiana de Colonización Agrícola de Roma, Italia, Que literalmente dice:
+Nº 24.- Nosotros, Claudio Antonio Volio Guardia, Ministro de Agricultura e Industrias, debidamente autorizado por el señor Presidente de la República, por una parte que en adelante se llamará "el Gobierno de la República"; y por la otra la Sociedad Italiana de Colonización Agrícola, de Roma, Italia, representada por el Comandante Vito Sansonetti Clarini, mayor de edad, casado, de nacionalidad italiana, residente en San José, hemos convenido en celebrar el siguiente contrato, con base en las disposiciones generales de la ley Nº 18 de 26 de setiembre de 1927:
 PRIMERO
-La Sociedad Italiana de Colonización Agrícola, organizada con el
-propósito de fomentar el establecimiento de agricultores italianos en los
-países de América, brindándoles cooperación económica y dirección técnica
-para el desarrollo de sus colonias, conforme a las recomendaciones de los
-organismos superiores de las Naciones Unidas, deseosa de encauzar hacia
-Costa Rica parte de la corriente migratoria de agricultores italianos que
-aprovechan actualmente otros países de América y de incrementar así las
-vinculaciones sociales y económicas que existen entre los pueblos de
-Italia y de Costa Rica, se obliga:
-1) A fomentar, con la ayuda del Instituto Nacional de Créditos para
-Trabajadores Italianos en el Extranjero (I.C.L.E.), de Roma, Italia, la
-emigración a Costa Rica de familias de auténticos agricultores italianos,
-de reconocida honorabilidad, sanas costumbres y probada ideología
-democrática;
-2) A procurarles con ese objeto los recursos necesarios para el viaje
-de Europa a Costa Rica, así como los que requieran para la subsistencia
-mientras no devenguen en sus ocupaciones propias el equivalente al
-salario semanal mínimo que rija en la República;
-3) A construir en los terrenos que más adelante se dirán las casas de
-habitación necesarias para instalar a dichos trabajadores, a razón de una
-por cada familia, dotándolas del menaje apropiado;
-4) A organizar, con base en tales trabajadores, una Colonia Agrícola
-que tendrá como propósito el cultivo y la explotación racional de los
-terrenos que le fueren adjudicados; siempre y cuando tenga concluídos,
-con la cooperación del Ministerio de Agricultura, los estudios técnicos
-suficientes de carácter agrológico, topográfico y climatológico del lugar
-de ubicación de tales terrenos, que garanticen el favorable desarrollo
-vegetativo y económico de la Colonia;
-5) A construir en ellos todos los edificios que requiera la
-administración de la propia Colonia, incluyendo una casa de escuela, uan
-capilla dedicada al culto católico y un dispensario médico;
-6) A instalar en los mismos terrenos, conforme lo exija el desarrollo
-ded los cultivos, las maquinarias necesarias para el aprovechamiento de
-los productos agrícolas industrializables de la Colonia, tales como
-planta eléctrica, aserradero, lechería, beneficio de café, ingenio de
-azúcar, destilería de aceites esenciales, telar para sedería, etc.;
-7) A fraccionar las tierras, teniendo en cuednta que la extensión de
-éstas, dada la calidad de la tierra y la clase de explotación para que
-sea apta, provea a la subsistencia de una familia no menor de seis
-personas y con un rendimiento que les permita mejorar sus condiciones de
-vida y la eficiencia de la explotación. A traspasar a los colonos que
-fueren cabeza de familia o mayores de veintiún años, por su valor de
-costo más los intereses legales respectivos, la propiedad de las casas
-que habitaren y los lotes que hubieren quedado debidamente sembrados con
-cultivos estables como café o caña de azúcar, en la proporción debida, a
-fin de que cada uno de ellos sea propietario de una casa y una finca no
-menor de 10 mi mayor de 20 hectáreas, de las cuales cuatro hectáreas han
-de estar cultivadas en la forma dicha. El traspaso a que se refiere esta
-cláusula debe ser hecho a más tardar dos años después de haber ingresado
-el colono al país o al cumplir la mayoridad;
-8) A conceder plazos mínimos de diez años para el pago del precio de
-tales ventas o traspasos, el cual será cancelado mediante fórmula de
-cuotas fijas iguales conprensivas de interés legal y amortización en
-fondo acumulativo, y garantizado con hipoteca o cédula hipotecaria de
-primer grado sobre la respectiva casa y parcela y prenda agrícola sobre
-las cosechas relacionadas. Las cuotas de amortización e intereses
-acordados sólo empezarán a contarse después del segundo año; pero cuando
-se tratare de cultivos de producción a largo plazo, tales como el café,
-árboles frutales, etc., la primera cuota se pagará a partir del
-vencimiento del cuarto año. En casos de que no hubiese producción anual
-o se perdiese por fuerza mayor o caso fortuito o imprevisible
-debidamente comprobado, la cuota respectiva se aplazará hasta el año
-siguiente, sin acumularse a la de éste y sin interés alguno por la mora,
-a no ser que ya se hubiere establecido el Seguro sobre las Cosechas;
-9) A recibir a los colonos los productos agrícolas y pecuarios de los
-lotes que hubieren adquirido, tales como café y caña de azúcar, así como
-los capullos de seda, los animales bovinos, cerdosos y avícolas, los
-huevos y las hortalizas que produzcan en ellos, para su industrialización
-y venta; y a liquidarles el valor de los mismos de acuerdo con las
-siguientes normas:
-a) Del precio total de venta, se deducirán los gastos causados en la
-preparación y colocación del producto industrializado en el mercado
-nacional o extranjero, desde que fueron entregados en los
-establecimientos industriales de la Colonia hasta su venta final y además
-los intereses del capital invertido en la instalación de los
-establecimientos y maquinarias industriales, la suma porcentual por
-depreciación de los mismos que reconoce la Oficina de Tributación
-Directa y la suma proporcional al volumen de ventas que reconocen las
-Juntas Liquidadoras del Café y la Caña de Azúcar, como equitativa
-rentabilidad del capital; y
-b) El saldo será distribuido entre los colonos, considerados como
-socios de una Cooperativa de Producción, en proporción al valor de venta
-de los productos aportados por cada uno;
-10) A reservar permanentemente para la silvicultura uno o varios lotes
-con una extensión conjunta de dos mil hectáreas de terrenos, mediante la
-renovación o sustitución de las maderas finas que se corten, de acuerdo
-con las indicaciones de sus técnicos y los del Departamento respectivo
-del Ministerio de Agricultura;
-11) A efectuar ensayos sobre las posibilidades agrícolas y económicas
-de las siembras de trigo, ajonjolí, olivos y plantas adecuadas para la
-extracción de aceites esenciales, así como de la cría de ovejas, en los
-terrenos de la Colonia; a informar acerca de sus resultados a los
-Ministerios de Econonía y de Agricultura; y a desarrollarlas si esos
-resultados son favorables;
-12) A recibir como colonos, con los mismos derechos y en las mismas
-condiciones que a los inmigrantes europeos y previa aprobación del
-Ministerio de Agricultura a agricultores costarricenses de reconocida
-ideología democrática y probadas buenas costumbres, hasta en un número
-que no exceda del veinte por ciento del total de los colonos. Entre los
-aspirantes a colonos de nacionalidad costarricense se establecerá la
-siguiente prelación:
-a) Padres de familia, agricultores o criadores, de acuerdo con el
-número de hijos que vivna con ellos;
+La Sociedad Italiana de Colonización Agrícola, organizada con el propósito de fomentar el establecimiento de agricultores italianos en los países de América, brindándoles cooperación económica y dirección técnica para el desarrollo de sus colonias, conforme a las recomendaciones de los organismos superiores de las Naciones Unidas, deseosa de encauzar hacia Costa Rica parte de la corriente migratoria de agricultores italianos que aprovechan actualmente otros países de América y de incrementar así las vinculaciones sociales y económicas que existen entre los pueblos de Italia y de Costa Rica, se obliga:
+1) A fomentar, con la ayuda del Instituto Nacional de Créditos para Trabajadores Italianos en el Extranjero (I.C.L.E.), de Roma, Italia, la emigración a Costa Rica de familias de auténticos agricultores italianos, de reconocida honorabilidad, sanas costumbres y probada ideología democrática;
+2) A procurarles con ese objeto los recursos necesarios para el viaje de Europa a Costa Rica, así como los que requieran para la subsistencia mientras no devenguen en sus ocupaciones propias el equivalente al salario semanal mínimo que rija en la República;
+3) A construir en los terrenos que más adelante se dirán las casas de habitación necesarias para instalar a dichos trabajadores, a razón de una por cada familia, dotándolas del menaje apropiado;
+4) A organizar, con base en tales trabajadores, una Colonia Agrícola que tendrá como propósito el cultivo y la explotación racional de los terrenos que le fueren adjudicados; siempre y cuando tenga concluídos, con la cooperación del Ministerio de Agricultura, los estudios técnicos suficientes de carácter agrológico, topográfico y climatológico del lugar de ubicación de tales terrenos, que garanticen el favorable desarrollo vegetativo y económico de la Colonia;
+5) A construir en ellos todos los edificios que requiera la administración de la propia Colonia, incluyendo una casa de escuela, una capilla dedicada al culto católico y un dispensario médico;
+6) A instalar en los mismos terrenos, conforme lo exija el desarrollo de los cultivos, las maquinarias necesarias para el aprovechamiento de los productos agrícolas industrializables de la Colonia, tales como planta eléctrica, aserradero, lechería, beneficio de café, ingenio de azúcar, destilería de aceites esenciales, telar para sedería, etc.;
+7) A fraccionar las tierras, teniendo en cuenta que la extensión de éstas, dada la calidad de la tierra y la clase de explotación para que sea apta, provea a la subsistencia de una familia no menor de seis personas y con un rendimiento que les permita mejorar sus condiciones de vida y la eficiencia de la explotación. A traspasar a los colonos que fueren cabeza de familia o mayores de veintiún años, por su valor de costo más los intereses legales respectivos, la propiedad de las casas que habitaren y los lotes que hubieren quedado debidamente sembrados con cultivos estables como café o caña de azúcar, en la proporción debida, a fin de que cada uno de ellos sea propietario de una casa y una finca no menor de 10 mi mayor de 20 hectáreas, de las cuales cuatro hectáreas han de estar cultivadas en la forma dicha. El traspaso a que se refiere esta cláusula debe ser hecho a más tardar dos años después de haber ingresado el colono al país o al cumplir la mayoridad;
+8) A conceder plazos mínimos de diez años para el pago del precio de tales ventas o traspasos, el cual será cancelado mediante fórmula de cuotas fijas iguales comprensivas de interés legal y amortización en fondo acumulativo, y garantizado con hipoteca o cédula hipotecaria de primer grado sobre la respectiva casa y parcela y prenda agrícola sobre las cosechas relacionadas. Las cuotas de amortización e intereses acordados sólo empezarán a contarse después del segundo año; pero cuando se tratare de cultivos de producción a largo plazo, tales como el café, árboles frutales, etc., la primera cuota se pagará a partir del vencimiento del cuarto año. En casos de que no hubiese producción anual o se perdiese por fuerza mayor o caso fortuito o imprevisible debidamente comprobado, la cuota respectiva se aplazará hasta el año siguiente, sin acumularse a la de éste y sin interés alguno por la mora, a no ser que ya se hubiere establecido el Seguro sobre las Cosechas;
+9) A recibir a los colonos los productos agrícolas y pecuarios de los lotes que hubieren adquirido, tales como café y caña de azúcar, así como los capullos de seda, los animales bovinos, cerdosos y avícolas, los huevos y las hortalizas que produzcan en ellos, para su industrialización y venta; y a liquidarles el valor de los mismos de acuerdo con las siguientes normas:
+a) Del precio total de venta, se deducirán los gastos causados en la preparación y colocación del producto industrializado en el mercado nacional o extranjero, desde que fueron entregados en los establecimientos industriales de la Colonia hasta su venta final y además los intereses del capital invertido en la instalación de los establecimientos y maquinarias industriales, la suma porcentual por depreciación de los mismos que reconoce la Oficina de Tributación Directa y la suma proporcional al volumen de ventas que reconocen las Juntas Liquidadoras del Café y la Caña de Azúcar, como equitativa rentabilidad del capital; y
+b) El saldo será distribuido entre los colonos, considerados como socios de una Cooperativa de Producción, en proporción al valor de venta de los productos aportados por cada uno;
+10) A reservar permanentemente para la silvicultura uno o varios lotes con una extensión conjunta de dos mil hectáreas de terrenos, mediante la renovación o sustitución de las maderas finas que se corten, de acuerdo con las indicaciones de sus técnicos y los del Departamento respectivo del Ministerio de Agricultura;
+11) A efectuar ensayos sobre las posibilidades agrícolas y económicas de las siembras de trigo, ajonjolí, olivos y plantas adecuadas para la extracción de aceites esenciales, así como de la cría de ovejas, en los terrenos de la Colonia; a informar acerca de sus resultados a los Ministerios de Economía y de Agricultura; y a desarrollarlas si esos resultados son favorables;
+12) A recibir como colonos, con los mismos derechos y en las mismas condiciones que a los inmigrantes europeos y previa aprobación del Ministerio de Agricultura a agricultores costarricenses de reconocida ideología democrática y probadas buenas costumbres, hasta en un número que no exceda del veinte por ciento del total de los colonos. Entre los aspirantes a colonos de nacionalidad costarricense se establecerá la siguiente prelación:
+a) Padres de familia, agricultores o criadores, de acuerdo con el número de hijos que vivan con ellos;
 b) Los que se organicen en cooperativas o sindicatos;
-c) Quienes hayan terminado sus estudios en las facultades de
-Agronomía, Escuelas Vocacionales Agrícolas, Planteles Normales Rurales, y
-en otros Institutos similares; y
-d) Quienes posean tierras insuficientes para el sustento de su
-familia. Estas y las demás condiciones económicas-sociales que se
-consideren aconsejables para la selección del personal, se harán constar
-en cuestionarios individuales que elaborará el Ministerio de
-Agricultura.
-13) A tener instaladas en los terrenos de la Colonia, con casa y
-cultivos apropiados, un mínimum de veinticinco familias de agricultores
-dentro de los dos años siguientes de haber sido reservados los terrenos;
-y no menos de doscientas cincuenta familias en el curso de los diez años
-siguientes hasta llegar a un máximo de trescientas familias;
-14) A respetar las áreas que estén ocupadas en la actualidad, con
-cultivos o habitaciones, por cualesquiera personas, auque carezcan de
-título legítimo para ello;
-15) A pagar al Estado el precio o derecho de adjudicación de diez
-colones (¢ 10.00) por hectárea que fija la ley Nº 18 de 26 de setiembre
-de 1927, dentro del plazo que esa misma ley señala;
-16) A someterse a todas las disposiciones médico-sanitarias que dicte
-el Ministerio de Salubridad Pública, para asegurarse de la salud física
-de los inmigrantes colones; y
-17) A someter cualquier diferencia que sujar en la interpretación o
-ejecución de este Contrato a la decisión de los Tribunales de la
-República, sin ocurrir ningún caso a la vía diplomática.
+c) Quienes hayan terminado sus estudios en las facultades de Agronomía, Escuelas Vocacionales Agrícolas, Planteles Normales Rurales, y en otros Institutos similares; y
+d) Quienes posean tierras insuficientes para el sustento de su familia. Estas y las demás condiciones económicas-sociales que se consideren aconsejables para la selección del personal, se harán constar en cuestionarios individuales que elaborará el Ministerio de Agricultura.
+13) A tener instaladas en los terrenos de la Colonia, con casa y cultivos apropiados, un mínimum de veinticinco familias de agricultores dentro de los dos años siguientes de haber sido reservados los terrenos; y no menos de doscientas cincuenta familias en el curso de los diez años siguientes hasta llegar a un máximo de trescientas familias;
+14) A respetar las áreas que estén ocupadas en la actualidad, con cultivos o habitaciones, por cualesquiera personas, auque carezcan de título legítimo para ello;
+15) A pagar al Estado el precio o derecho de adjudicación de diez colones (¢ 10.00) por hectárea que fija la ley Nº 18 de 26 de setiembre de 1927, dentro del plazo que esa misma ley señala;
+16) A someterse a todas las disposiciones médico-sanitarias que dicte el Ministerio de Salubridad Pública, para asegurarse de la salud física de los inmigrantes colones; y
+17) A someter cualquier diferencia que sujar en la interpretación o ejecución de este Contrato a la decisión de los Tribunales de la República, sin ocurrir ningún caso a la vía diplomática.
 SEGUNDO
-El Gobierno de la República, por su parte, deseoso de favorecer la
-inmigración de agricultores europeos al país, en condiciones semejantes a
-las que ofrecen otros Estados de América, conforme a las recomendaciones
-de los organismos superiores de las Naciones Unidas, y de acuerdo con los
-principios generales de la ley Nº 18 de 26 de setiembre de 1927, se
-compromete:
-1) A reservar como zona indenunciable, destinada exclusivamente al
-establecimiento de la Colonia a que se refiere este contrato, conforme lo
-dispone el artículo 1º de la referida ley, uno o varios lotes con una
-superficie conjunta de 10.000 hectáreas en los terrenos propiedad del
-Estado o en baldíos nacionales en la región del Sur del país, haciéndolos
-inscribir en el Registro Público como fincas individualizadas de
-propiedad del Estado;
-2) A permitir a la Sociedad Colonizadora la ejecución paulatina y
-racional de los trabajos de deforestación y utilización de maderas y
-terrenos que se requieran en dichos terrenos como obras preliminares de
-habilitación y colonización;
-3) A otorgar título inscribible de propiedad a favor de la Sociedad
-Colonizadora, de lotes de terreno que segregará de las fincas a que se
-refiere el aparte 1) anterior, de acuerdo con las solicitudes que
-presenta la misma Sociedad, en la proporción de diez hectáreas por cada
-persona que se establezca en la Colonia como jefe o miembro de familia;
-Sin embargo, después de inscritas las primeras dosceintas cincuenta
-hectáreas, de acuerdo con la disposición anterior, a nombre de la
-Sociedad Colonizadora, el Estado no otorgará nuevos títulos de propiedad
-en favor de la Sociedad, sino para reponerle los terrenos que ésta haya
-traspasado a los colonos de acuerdo con la cláusula 7) del artículo
-primero, en la proporción de diez hectáreas de baldíos por seis hectáreas
-de terrenos traspasados conforme a dicha cláusula;
-4) A mantener exención de todo impuesto de importación, inclusive
-muellaje, para los útiles agrícolas, muebles, víveres y otros enseres que
-por una sola vez traigan los inmigrantes para la instalación de su
-Colonia. Para acordar tal liberación, en cada caso se requiere orden
-expresa del Ministro de Hacienda;
-5) A mantener en favor de los colonos la exención de impuestos
-territorial y de la renta por el término de diez años, que se contarán a
-partir de la entrega de cada lote, siempre que ellos se ajusten a los
-reglamentos que se dicten para el establecimineto de la Colonia;
-6) A permitir la exportación de aquellos productos agrícolas,
-pecuarios o industriales que se obtengan de la Colonia y que no absorva
-el mercado nacional, o que por su elevado costo de transporte a la Meseta
-Central no puedan ser acarreados para su venta en condiciones favorables;
-y
-7) A construir la carretera a que se refiere la ley Nº 18 de 26 de
-setiembre de 1927, destinando especialmente a ello el producto total de
-los derechos de adjudicación que indica ese mismo decreto, y si no fuere
-suficiente la renta indicada, ello se hará comforme lo permitan los
-recursos del Estado.
+El Gobierno de la República, por su parte, deseoso de favorecer la inmigración de agricultores europeos al país, en condiciones semejantes a las que ofrecen otros Estados de América, conforme a las recomendaciones de los organismos superiores de las Naciones Unidas, y de acuerdo con los principios generales de la ley Nº 18 de 26 de setiembre de 1927, se compromete:
+1) A reservar como zona indenunciable, destinada exclusivamente al establecimiento de la Colonia a que se refiere este contrato, conforme lo dispone el artículo 1º de la referida ley, uno o varios lotes con una superficie conjunta de 10.000 hectáreas en los terrenos propiedad del Estado o en baldíos nacionales en la región del Sur del país, haciéndolos inscribir en el Registro Público como fincas individualizadas de propiedad del Estado;
+2) A permitir a la Sociedad Colonizadora la ejecución paulatina y racional de los trabajos de deforestación y utilización de maderas y terrenos que se requieran en dichos terrenos como obras preliminares de habilitación y colonización;
+3) A otorgar título inscribible de propiedad a favor de la Sociedad Colonizadora, de lotes de terreno que segregará de las fincas a que se refiere el aparte 1) anterior, de acuerdo con las solicitudes que presenta la misma Sociedad, en la proporción de diez hectáreas por cada persona que se establezca en la Colonia como jefe o miembro de familia;
+Sin embargo, después de inscritas las primeras doscientas cincuenta hectáreas, de acuerdo con la disposición anterior, a nombre de la Sociedad Colonizadora, el Estado no otorgará nuevos títulos de propiedad en favor de la Sociedad, sino para reponerle los terrenos que ésta haya traspasado a los colonos de acuerdo con la cláusula 7) del artículo primero, en la proporción de diez hectáreas de baldíos por seis hectáreas de terrenos traspasados conforme a dicha cláusula;
+4) A mantener exención de todo impuesto de importación, inclusive muellaje, para los útiles agrícolas, muebles, víveres y otros enseres que por una sola vez traigan los inmigrantes para la instalación de su Colonia. Para acordar tal liberación, en cada caso se requiere orden expresa del Ministro de Hacienda;
+5) A mantener en favor de los colonos la exención de impuestos territorial y de la renta por el término de diez años, que se contarán a partir de la entrega de cada lote, siempre que ellos se ajusten a los reglamentos que se dicten para el establecimiento de la Colonia;
+6) A permitir la exportación de aquellos productos agrícolas, pecuarios o industriales que se obtengan de la Colonia y que no absorva el mercado nacional, o que por su elevado costo de transporte a la Meseta Central no puedan ser acarreados para su venta en condiciones favorables; y
+7) A construir la carretera a que se refiere la ley Nº 18 de 26 de setiembre de 1927, destinando especialmente a ello el producto total de los derechos de adjudicación que indica ese mismo decreto, y si no fuere suficiente la renta indicada, ello se hará conforme lo permitan los recursos del Estado.
 TERCERO
-En relación con este contrato, el Gobierno de la República se
-reserva especialmente:
-1) El derecho de verificar por todos los medios a su disposición los
-antecedentes de los posibles inmigrantes, a fin de cerciorarse de que sus
-condiciones de salud, moralidad y afinidades políticas, así como su
-expeciencia de agricultores, los califica como inmigrantes recomendables,
-pudiente desde luego negar el permiso de ingreso al país y al
-Colonizacón y la respectiva visa consular a quien no reúna tales
-requisito;
-2) El derecho de verificar que los artículos importados al amparo de
-la exención otorgada en este contrato son destinados efectivamente a los
-trabajos que se efectúan en la Colonia; y
-3) El derecho de reservarse dento de la zona destinada para la
-Colonia Agrícola una extensión hasta de doscientas hectáreas, con la
-finalidad de incrementar el desarrollo de futuras poblaciones que habrán
-de exigir la instalación de servicios de interés colectivo: escueleas,
-locales para espectáculos y reuniones, plaza para deportes, servicios
-sanitarios, mercados, oficinas públicas, viveros, parque forestales y
-bosques municipales y demás servicios necesarios al cumplido
-desemvolvimiento de una comunidad rural.
-Como también el de ocupar y sin pagar otra indemnización que las
-mejoras hechas, como cultivos y construcciones, hasta un diez por ciento
-de la zona reservada, siempre que ello fuere necesario para la ejecución
-de cualquier obra de vialidad, sinidad, aprovechamiento de aguas o
-desarrollo de fuezas hidráulicas.
-Es entendido que fuera de las reservas anteriores el Ministrio de
-Agricultara señalará, además, las zonas protectoras de suelos y aguas.
+En relación con este contrato, el Gobierno de la República se reserva especialmente:
+1) El derecho de verificar por todos los medios a su disposición los antecedentes de los posibles inmigrantes, a fin de cerciorarse de que sus condiciones de salud, moralidad y afinidades políticas, así como su experiencia de agricultores, los califica como inmigrantes recomendables, pudiente desde luego negar el permiso de ingreso al país y a la Colonia y la respectiva visa consular a quien no reúna tales requisitos;
+2) El derecho de verificar que los artículos importados al amparo de la exención otorgada en este contrato son destinados efectivamente a los trabajos que se efectúan en la Colonia; y
+3) El derecho de reservarse dentro de la zona destinada para la Colonia Agrícola una extensión hasta de doscientas hectáreas, con la finalidad de incrementar el desarrollo de futuras poblaciones que habrán de exigir la instalación de servicios de interés colectivo: escuelas, locales para espectáculos y reuniones, plaza para deportes, servicios sanitarios, mercados, oficinas públicas, viveros, parque forestales y bosques municipales y demás servicios necesarios al cumplido desenvolvimiento de una comunidad rural.
+Como también el de ocupar y sin pagar otra indemnización que las mejoras hechas, como cultivos y construcciones, hasta un diez por ciento de la zona reservada, siempre que ello fuere necesario para la ejecución de cualquier obra de vialidad, sanidad, aprovechamiento de aguas o desarrollo de fuezas hidráulicas.
+Es entendido que fuera de las reservas anteriores el Ministerio de Agricultura señalará, además, las zonas protectoras de suelos y aguas.
 CUARTO
-Es entendido que los colonos viajan por su cjenta y riesgo, y que
-asumen, y asimismo la sociedad referida, las siguientes obligaciones y
-circunstancias adicionales:
-1) No tendrán derecho alguno de reclamar al Estado de Costa Rica,
-por el incumplimiento que hiciere la sociedad de las obligaciones que
-indica la Sección Primera del presente contrato;
-2) El Estado se reserva el derecho de repatriar a los colonos que se
-desplazaren en sus actividades a campos distintos de los agropecuarios,
-salvo que por motivo justo las autoridades de migración, consultado el
-parecer del Ministerio de Agricultura, autorizaren ese desplazamiento;
-3) La sociedad garantiza que sufragará los gastos de las
-repatriaciones que acordare el Estado, y si incumpliere esta obligación
-queda facultado éste para dar por suspenso o resuelto el contrato, sin
-reclamo de la sociedad ni de los colonos, que al ingresar al país serán
-impuestos de la presente condición, siendo obligatorio de la sociedad
-hacerla saber a los mismos antes de salir de Italia; y
-4) Los colonos se obligan a respetar y cumplir, además de las leyes
-y reglamentos del país, los propios a la materia agropecuaria y a seguir
-las normas técnicas que en relación a la preservación de los recursos
-naturales, acuerden los Poderes Legislativo o Ejecutivo.
+Es entendido que los colonos viajan por su cuenta y riesgo, y que asumen, y asimismo la sociedad referida, las siguientes obligaciones y circunstancias adicionales:
+1) No tendrán derecho alguno de reclamar al Estado de Costa Rica, por el incumplimiento que hiciere la sociedad de las obligaciones que indica la Sección Primera del presente contrato;
+2) El Estado se reserva el derecho de repatriar a los colonos que se desplazaren en sus actividades a campos distintos de los agropecuarios, salvo que por motivo justo las autoridades de migración, consultado el parecer del Ministerio de Agricultura, autorizaren ese desplazamiento;
+3) La sociedad garantiza que sufragará los gastos de las repatriaciones que acordare el Estado, y si incumpliere esta obligación queda facultado éste para dar por suspenso o resuelto el contrato, sin reclamo de la sociedad ni de los colonos, que al ingresar al país serán impuestos de la presente condición, siendo obligatorio de la sociedad hacerla saber a los mismos antes de salir de Italia; y
+4) Los colonos se obligan a respetar y cumplir, además de las leyes y reglamentos del país, los propios a la materia agropecuaria y a seguir las normas técnicas que en relación a la preservación de los recursos naturales, acuerden los Poderes Legislativo o Ejecutivo.
