@@ -14,3 +14,4 @@ Declara de utilidad pública para los intereses del Estado la “Federación Cru
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-25 | la propia norma |
+| 2 | 1986-02-25 | Ley 8 |
