@@ -1,6 +1,6 @@
 # Crea el Ministerio de Transportes en sustitución del actual Ministerio de Obras Públicas
 
-Ley N° 3155 del 1963-08-05. SINALEVI, ficha 31734: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31734&param2=89784&param3=1>.
+Ley N° 3155 del 1963-08-05. SINALEVI, ficha 31734: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31734&param2=89790&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 12 | 1966-01-24 | Ley 3604 | 1965-12-02 |
 | 5 de 12 | 1968-11-14 | Ley 4220 | 1968-11-08 |
 | 6 de 12 | 1971-07-05 | Ley 4786 | 1971-07-05 |
+| 7 de 12 | 1971-07-05 | Ley 6309 | 1979-01-04 |
