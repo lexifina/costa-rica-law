@@ -1,0 +1,4 @@
+Artículo 3º.-Requisitos para el otorgamiento:
+La Dirección General de Migración otorgará el pasaporte que este reglamento regula, a los inversionistas extranjeros que acrediten los siguientes extremos:
+a) Mediante certificación emitida por el Instituto Costarricense de Turismo, que son residente pensionados o residente rentistas. En este último caso la certificación hará constar que, para general la renta, el interesado mantiene en depósito, en una institución el Sistema Bancario Nacional, o en otra reconocida oficialmente, y por un término no menor de cinco años, bono u otros títulos valores del Estado o sus instituciones, adquiridos con dinero provenientes del exterior; y
+b) Mediante certificación emitida por el CENPRO, que el interesado, independientemente de las inversiones que generan la renta contempla en el inciso anterior, mantiene otras en el país por un monto no menor del equivalente a $ 30.000,00 (treinta mil dólares), de conformidad con el artículo 4º.

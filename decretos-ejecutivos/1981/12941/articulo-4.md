@@ -1,0 +1,3 @@
+Artículo 4º.-Naturaleza de las inversiones:
+Las inversiones a que se refiere el artículo 3-b) anterior, podrán ser bienes inmuebles o valores negociables de carácter nominativo y de curso legal reconocidos para estos efectos por el Banco Central de Costa Rica, incluyéndose expresamente entre ellos los valores emitidos por las entidades mutualistas y la Caja Central del Sistema Nacional de Ahorro y Préstamo.
+Dichos bienes y títulos deberán permanecer debidamente registrados a nombre del titular del pasaporte, mientras éste tenga el beneficio de ese documento de viaje. El valor de los bienes inmuebles debe estar determinado, en cada caso, por la Tributación Directa o por un banco del Sistema Bancario Nacional.
