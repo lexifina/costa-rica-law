@@ -13,3 +13,4 @@ Reglamento Ley Plan Municipal Desarrollo Urbano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-25 | la propia norma |
+| 2 | 1980-03-25 | SINALEVI (sin norma nombrada) |
