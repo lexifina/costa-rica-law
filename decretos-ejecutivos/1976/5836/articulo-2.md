@@ -1,0 +1,1 @@
+Artículo 2°- Se autoriza al Instituto Geográfico Nacional la interpretación de los límites descritos, de acuerdo con el avance cartográfico del mapa básico del país, la publicación de un mapa separado de esta reserva cuya extensión aproximada es de 50 000 hectáreas.

@@ -1,0 +1,1 @@
+Artículo 10.—Para la financiación de las actividades que conlleven al desarrollo de este proyecto, las instituciones mencionadas deberán incluir dentro de sus presupuestos ordinarios, las correspondientes partidas.

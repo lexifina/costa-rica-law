@@ -1,0 +1,1 @@
+Artículo 3°—La Procuraduría General de la República, hará inscribir en el Registro Público, como finca individualizada del Patrimonio Forestal del Estado, los terrenos incluidos mediante este decreto, como Reserva Forestal.

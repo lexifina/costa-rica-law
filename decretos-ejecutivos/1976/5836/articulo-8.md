@@ -1,0 +1,1 @@
+Artículo 8°—El aprovechamiento de cualquiera de los recursos naturales de la reserva, sólo será permitido bajo normas técnicas que la Dirección General Forestal fije de acuerdo a los principios de manejo técnico, según se estatuye en la Ley Forestal N° 4465.
