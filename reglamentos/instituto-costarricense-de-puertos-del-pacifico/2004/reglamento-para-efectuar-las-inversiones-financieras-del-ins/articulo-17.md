@@ -1,0 +1,1 @@
+Artículo 17.—Del órgano asesor. Para asegurar la correcta aplicación de los recursos disponibles del INCOP y por ser una actividad que requiere un conocimiento altamente técnico del personal, se constituirá un Comité Técnico de Inversiones como Órgano Asesor de la Gerencia General.

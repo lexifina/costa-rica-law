@@ -1,0 +1,1 @@
+Artículo 15.—De la custodia y archivo de las inversiones. La Tesorería deberá archivar, mediante expedientes, los documentos sobre inversiones, con un orden lógico que incluya toda la información referente a las mismas. Esta deberá de estar archivada de manera que facilite y agilice la localización de la información en cualquier momento.

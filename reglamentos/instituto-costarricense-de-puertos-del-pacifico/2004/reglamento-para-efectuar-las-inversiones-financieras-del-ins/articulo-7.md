@@ -1,0 +1,1 @@
+Artículo 7º—Del plazo de las inversiones superiores a un año. Cuando se trate de recursos que permitan ser invertidos en un plazo mayor a un año, deberán de ser presupuestados y bajo las mismos trámites de aprobación correspondientes.

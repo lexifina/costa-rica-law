@@ -1,0 +1,1 @@
+Artículo 24.—De las recomendaciones del Comité Técnico. Las recomendaciones se adoptarán por simple mayoría, se anotarán en el libro de actas, que se llevará al respecto y se dejará constancia escrita de las opiniones contrarias.

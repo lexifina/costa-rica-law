@@ -1,0 +1,1 @@
+Artículo 13.—De los informes a la Gerencia General. La Gerencia General ordenará al Departamento de Tesorería la elaboración de informes periódicos, que contengan aspectos relevantes para la Administración sobre el manejo de las inversiones en títulos valores o fondos de inversión.

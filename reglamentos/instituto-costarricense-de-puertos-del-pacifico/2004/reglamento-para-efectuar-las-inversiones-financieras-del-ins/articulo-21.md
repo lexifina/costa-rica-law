@@ -1,0 +1,1 @@
+Artículo 21.—Del ámbito del Comité Técnico. Este Comité decidirá sobre la materia de inversiones en títulos valores u otras inversiones, siempre y cuando, el INCOP no tenga impedimento legal para acceder a ellos.

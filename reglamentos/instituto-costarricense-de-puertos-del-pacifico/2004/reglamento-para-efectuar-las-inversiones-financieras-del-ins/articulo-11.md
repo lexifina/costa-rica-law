@@ -1,0 +1,1 @@
+Artículo 11.—De las medidas para el registro de las inversiones. El Departamento de Tesorería tomará las medidas pertinentes y necesarias a efecto de que el registro de las inversiones contenga la información suficiente, relevante y oportuna para la Administración.

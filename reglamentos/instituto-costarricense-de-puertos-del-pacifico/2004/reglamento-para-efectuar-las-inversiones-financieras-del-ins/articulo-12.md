@@ -1,0 +1,1 @@
+Artículo 12.—De la fiscalización de la Auditoria General y otros. Las inversiones podrán ser objeto de fiscalización por parte de la Auditoria General y por otros entes facultos para esos efectos, para lo cual la unidad encargada de la custodia de los valores, los deberá poner a disposición en el momento que éstos así lo requieran.

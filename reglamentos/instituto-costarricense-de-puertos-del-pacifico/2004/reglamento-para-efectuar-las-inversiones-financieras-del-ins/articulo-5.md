@@ -1,0 +1,1 @@
+Artículo 5º—De la exclusividad en la inversión de los recursos. Considerando los aspectos expresados en el artículo anterior, la inversión de recursos deberá efectuarse exclusivamente en fondos de inversión y títulos valores del Sector Público cuando así proceda y conforme a las regulaciones existentes en la materia.
