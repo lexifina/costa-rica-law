@@ -1,0 +1,1 @@
+Artículo 2º—El Instituto Mixto de Ayuda Social deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la confección de la respectiva escritura pública de propiedad del inmueble que le fue asignado.
