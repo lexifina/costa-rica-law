@@ -14,3 +14,4 @@ Crear el Certamen de Bellas Artes "José María Zeledón Brenes".
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-26 | la propia norma |
+| 2 | 2003-10-23 | Decreto Ejecutivo 31498 (2003-10-23) |
