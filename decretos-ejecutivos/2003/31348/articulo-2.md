@@ -1,0 +1,1 @@
+Artículo 2º—Nombrar en sustitución del señor Peralta Volio, al señor Fernando Campos González, cédula de identidad 6-039-271, como representante propietario del Sector Empresarial ante el Consejo Nacional de Salarios.
