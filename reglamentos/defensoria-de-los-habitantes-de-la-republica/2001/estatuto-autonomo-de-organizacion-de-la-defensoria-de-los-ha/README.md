@@ -14,3 +14,4 @@ Estatuto Autónomo de Organización de la Defensoría de los Habitantes de la Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-11 | la propia norma |
+| 2 | 2003-05-07 | Reglamento 739 (2003-05-07) |
