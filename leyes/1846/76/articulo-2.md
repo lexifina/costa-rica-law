@@ -1,0 +1,1 @@
+Art. 2. Todos los funcionarios y empleados que actualmente existen en todos los ramos de la administracion pública; ya sean de nombramiento del Gobierno o de eleccion popular, se conservan y continúan en sus respectivos destinos, y en consecuencia serán acatarlos y obedecidos con arreglo á las leyes en los objetos de su encargo.
