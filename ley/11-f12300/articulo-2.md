@@ -1,0 +1,2 @@
+Art. 2°-El cargo de Juez de 1a Instancia Civil y del Crimen de dicha Comarca, es anexo al de Gobernador de la misma, mientras el Poder Ejecutivo no lo separe, nombrando para ejercerlo distinta persona.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones. Palacio Nacional, -San José, à veinticinco de abril de mil ochocientos ochenta y uno. -BRUNO CARRANZA, Presidente. -JESÚS SOLANO, Secretario. Por tanto, ejecútese-Palacio Nacional. -San José, Abril veintiséis de mil ochocientos ochenta y uno. T. GUARDIA. -El Secretario de Estado en el Despacho de Justicia.-JOSÉ MARÍA CASTRO.
