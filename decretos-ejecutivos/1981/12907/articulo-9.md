@@ -5,6 +5,6 @@ b) Revisar y actualizar el costo de los servicios brindados;
 c) Actualizar la información concerniente a la disponibilidad de semillas y
 estimará,
 previa coordinación, las necesidades del país; y
-d) Publicar anualmente la lista de variedades aprobadas para certificación
-y
+d) Publicar anualmente la lista de variedades aprobadas para certificación y
 para la producción de semilla autorizada.
+(Así reformado por Decreto Ejecutivo N° 19323 del 31 de octubre de 1989)
