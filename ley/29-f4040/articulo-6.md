@@ -1,0 +1,2 @@
+Art. 6°-Examinados todos los opositores á una misma escuela, el tribunal resolverá cuál es el más digno de ella, y se la conferirá, prefiriendo, en igualdad de circunstancias, que últimamente hubiere estado en posesión de la misma. De cada una de estas colaciones el Tribunal dará cuenta á la Secretaría del ramo, á la cual toca disponer lo consiguiente.
+Dado en el Palacio Presidencial, en San José, veintidós de diciembre de mil ochocientos ochenta y dos. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Instrucción Pública. -JOSÉ Ma CASTRO.
