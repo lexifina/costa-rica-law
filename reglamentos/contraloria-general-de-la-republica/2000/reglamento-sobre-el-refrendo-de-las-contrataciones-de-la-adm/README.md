@@ -14,3 +14,4 @@ Reglamento sobre el Refrendo de las Contrataciones de la Administración Públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-09 | la propia norma |
+| 2 | 2002-12-17 | Reglamento 0 (2002-12-17) |
