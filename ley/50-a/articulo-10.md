@@ -1,5 +1,1 @@
-ARTICULO 10
-A las cuestiones sobre nacionalidad de origen en que no esté
-interesado el Estado en que se debaten, se aplicará la ley de aquella
-de las nacionalidades discutida en que tenga su domicilio la persona de
-que se trate.
+ARTICULO 10 A las cuestiones sobre nacionalidad de origen en que no esté interesado el Estado en que se debaten, se aplicará la ley de aquella de las nacionalidades discutida en que tenga su domicilio la persona de que se trate.
