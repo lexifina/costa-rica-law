@@ -1,0 +1,1 @@
+ARTÍCULO 8°.-Tanto el Auditor, como el escribano y Secretario de la Corte de Justicia percibir n sus honorarios y derechos £nicamente en las causas y casos que previene la Ordenanza, arreglándose para su tasación al nuevo arancel.
