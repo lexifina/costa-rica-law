@@ -14,3 +14,4 @@ Reglamento de Zonificación del Sector Costero Turístico de Punta Dominical
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-22 | la propia norma |
+| 2 | 2001-01-22 | Ley 8 |
