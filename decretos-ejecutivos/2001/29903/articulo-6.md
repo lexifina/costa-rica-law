@@ -1,0 +1,1 @@
+Articulo 6°—No se reconocerá el auxilio económico a ningún trabajador o trabajadora pescador(a) que no esté íncluido(a) en la lista certificada por el INCOPESCA o que fuese reportado extemporáneamente.
