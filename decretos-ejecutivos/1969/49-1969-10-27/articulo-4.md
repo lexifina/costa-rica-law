@@ -1,0 +1,1 @@
+Artículo 4°-Los beneficios que en virtud de este decreto se otorgan a "Inmapro Limitada", podrán ser modificados o regulados en virtud de convenios, protocolos o resoluciones de los Organismos del Tratado General de Integración Económica Centroamericana.
