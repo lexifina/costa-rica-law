@@ -9,17 +9,13 @@ Considerando:
 4º—Que la AP de conformidad con los artículos 1°, 11, 21, 23, 24 y 25 de la ley Nº 8131, está facultada para formular las directrices generales y específicas de política presupuestaria del Sector Público.
 5º—Que la AP formuló las siguientes directrices y demás regulaciones en acuerdo número 6356, tomado en sesión Nº 03-02, celebrada el 28 de febrero del 2002.
 6º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo 3 de la Sesión Nº 183, celebrada el 5 de marzo del 2002. Por tanto,
-Decretan:
-DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA
-DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS
-SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS
-CUBIERTAS POR EL ÁMBITO DE LA
-AUTORIDAD PRESUPUESTARIA
+DECRETAN:
+DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS
+SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDADPRESUPUESTARIA
 CAPÍTULO I
 Del gasto presupuestario
 Artículo 1º—El gasto presupuestario de las entidades públicas para el año 2003, podrá incrementarse hasta un máximo del 7 % con respecto al límite presupuestario establecido para el 2002, del cual se deducen los gastos no recurrentes, resultando los siguientes montos máximos permitidos para cada entidad:
-Entidad Límite 2003
-(Millones de colones)
+Entidad Límite 2003 (Millones de colones)
 Academia Nacional de Ciencias 23,3
 Centro de Formación de Formadores 337,5
 Centro Cost. Producción Cinematográfica 58,1
@@ -29,9 +25,9 @@ Centro Univ. Para el Desarrollo del Trópico Seco 283.8
 (Así modificado mediante artículo 1° del Decreto Ejecutivo N° 31065 de 4 de febrero de 2003).
 Colegio de San Luis Gonzaga 97,4
 Colegio Universitario de Alajuela 917,7
-Colegio Universitario de Cartago ¢722.7 millones.
-( Así modificado por el Decreto Ejecutivo N° 31012 del 04 de febrero del 2003).
-Colegio Universitario de Puntarenas ¢446.2
+Colegio Universitario de Cartago ¢ 722.7 millones.
+( Así modificado por el Decreto Ejecutivo N° 31012 del 04 de febrero de 2003).
+Colegio Universitario de Puntarenas ¢ 446.2
 Comisión de Energía Atómica 33,0
 Comisión Nacional de Asuntos Indígenas 153,7
 Comisión Nacional de Gestión para la Biodiversidad 96,5
@@ -63,15 +59,16 @@ Fondo de Parques Nacionales 1.762
 Fondo Forestal 76,2
 Fondo Nacional Ambiental 6,3
 Fondo Vida Silvestre 11,6
-Instituto Costarricense de Investigaciones y Enseñanza en
-Nutrición y Salud (incluye Asignaciones Fam.) 916,9
+Instituto Costarricense de Investigaciones y Enseñanza en Nutrición y Salud
+(incluye Asignaciones Fam.) 916,9
 Instituto Cost. del Deporte y la Recreación 2.660,5
 (Así modificado por Decreto Ejecutivo N° 31047 de 17 de febrero de 2003)
 Instituto Costarricense de Acued. y Alcantarillado 28.129,2
 Instituto Costarricense de Ferrocarriles 1.293,7
 Instituto Costarricense de Pesca 833,4
 Instituto Costarricense de Puertos del Pacífico 4.874,1
-Instituto Costarricense de Turismo 5.397,5
+Instituto Costarricense de Turismo 6.518,6
+(Así modificado por Decreto Ejecutivo N° 31057 de 26 de marzo de 2003)
 Instituto de Desarrollo Agrario 6.447,7
 Instituto de Fomento y Asesoría Municipal 1.125,4
 Instituto Geográfico Nacional 150,0
@@ -80,14 +77,14 @@ Instituto Mixto de Ayuda Social 20.426,2
 Instituto Nacional de Estadística y Censos 924,4
 Instituto Nacional de Fomento Cooperativo 1.012,5
 Instituto Nacional de las Mujeres 1062.0
-(Así modificado por artículo 1° del Decreto Ejecutivo N° 31067 de 20 de febrero de 2003)
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31067 de 20 de febrero de 2003)
 Instituto Nacional de Vivienda y Urbanismo 6.102,0
 Instituto sobre Alcoholismo y Farmacodependencia IAFA 945.3
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
-Junta de Administración Portuaria y de
-Desarrollo Económico de la Vertiente Atlántica 12.984,7
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
+Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica 16.471,7
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 31113 de 2 de abril de 2003)
 Junta Administrativa de la Imprenta Nacional 623.9
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
 Junta Administrativa del Registro Nacional 3.923,3
 Junta de Desarrollo Portuario del Muelle de Golfito 99,1
 Junta de Desarrollo Regional de la Zona Sur 2.156,8
@@ -100,10 +97,10 @@ Museo Nacional 571,5
 Museo Rafael A. Calderón Guardia 57,6
 Oficina del Arroz 140,6
 Oficina de Cooperación Internacional de la Salud OCIS 2.930.0
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
 Oficina Nacional de Semillas 136,0
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes 2.685.5
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
 Patronato Nacional de Ciegos 27,0
 Patronato Nacional de la Infancia 6.115,5
 Patronato Nacional de Rehabilitación 153,3
@@ -116,14 +113,14 @@ Refinadora Costarricense de Petróleo 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. 1.501,4
 Sistema Nacional de Radio y Televisión SINART 782.10
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
-(Así modificado por el artículo 1 del Decreto ejecutivo N° 30920 de 28 de noviembre de 2002)
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre de 2002)
+(Así modificado por el artículo 1° del Decreto Ejecutivo N° 30920 de 28 de noviembre de 2002)
 Teatro Nacional 322.3
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+(Así adicionado por el artículo 1° del Decreto Ejecutivo N° 30824 de 22 de octubre del 2002)
 Teatro Popular Melico Salazar 570,6
 Unidad Ejecutora PPZN MIDEPLAN 10,3
 (Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
-(Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modificapara el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
+(Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modifica para el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30784 de 2 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30822 de 24 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30832 de 7 de octubre del 2002 se modifica para Consejo Nacional para Investigaciones Científicas y Tecnológicas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
