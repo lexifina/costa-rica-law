@@ -12,3 +12,4 @@ Norma Oficial para Jugos de Frutas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-12-16 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
