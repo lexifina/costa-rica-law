@@ -1,0 +1,1 @@
+8. Los presos que por deudas se alimentarán con el real diario que les deben suministrar sus acreedores, conforme lo dispuesto en el cap 4° lib. 2° tit.4° parte 3° del Código General, siempre que ellos lo reclamen.

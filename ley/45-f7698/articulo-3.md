@@ -1,0 +1,1 @@
+3° los criminales incomunicados por orden del Juez que conozca de su causa, permanecerán con centinela de vista mientras él mismo Juez dispone otra cosa, y los que no estuvieron incomunicados podrán hablar con sus deudos y amigos.

@@ -1,0 +1,1 @@
+21. Las Autoridades Civiles y Miliatares son obligadas á prestar auxilio á los Jueces y Alcaides cuando lo exijan, para hacer cumplir y obedecer á los reos en el caso de resistencia, y en los demás que convenga con arreglo á las leyes.

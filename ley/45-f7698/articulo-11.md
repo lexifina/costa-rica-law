@@ -1,0 +1,1 @@
+11. De las ocho a las doce de la mañana, pueden sacarse los presos comunicables al patio o corredores, siempre que lo pidan. Los detenidos y presos por deudas, tienen libertad de pasearse en los corredores o patios, de las seis de la mañana a las seis de la tarde.
