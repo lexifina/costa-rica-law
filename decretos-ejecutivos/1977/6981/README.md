@@ -14,3 +14,4 @@ Reforma Reglamento General de los Patronatos y Juntas Directivas de Protección 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-04-13 | la propia norma |
+| 2 | 1980-02-27 | Decreto Ejecutivo 11276 (1980-02-27) |
