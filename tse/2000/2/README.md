@@ -14,3 +14,4 @@ Reglamento de la Dirección Ejecutiva del Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-25 | la propia norma |
+| 2 | 2001-06-10 | Decreto TSE 12 (2001-06-10) |
