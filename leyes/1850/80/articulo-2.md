@@ -1,0 +1,1 @@
+Art. 2° Destiérranse de la República, por el término de cinco años, los reos José Manuel Quiroz, Máximo Blanco, Juan Manuel Quiroz, Francisco Quiroz y Pedro Quiroz; y por el de tres años Salvador Saures, Juan José Borbon, Florencio Quiroz y Romualdo Quiroz.
