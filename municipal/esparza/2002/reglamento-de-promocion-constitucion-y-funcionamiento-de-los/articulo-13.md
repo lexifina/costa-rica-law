@@ -1,0 +1,1 @@
+13. La Municipalidad gestionará la asesoría del Consejo Nacional de la Política Pública de la Persona Joven para el desarrollo del proceso de promoción, constitución y funcionamiento de los Comités Cantonales, según los requerimientos que esta actividad demande.

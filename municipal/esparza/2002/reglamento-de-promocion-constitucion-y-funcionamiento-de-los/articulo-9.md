@@ -1,0 +1,1 @@
+9. El Comité Cantonal de la Persona Joven tendrá su ámbito de acción en las instancias locales, una vez constituido legalmente. Sus miembros fingirán en el puesto por el periodo de un año y sesionarán al menos dos veces al mes.
