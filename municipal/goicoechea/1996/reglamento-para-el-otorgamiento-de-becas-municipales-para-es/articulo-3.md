@@ -9,10 +9,13 @@ b) Son requisitos para optar por una beca los siguientes:
 4- Haber ganado el curso lectivo del período anterior a la solicitud de la beca.
 (Así reformado mediante acuerdo tomado en sesión N° 75 de 21 de setiembre de 1998)
 5- La asignación de beca está sujeta al cumplimiento de las disposiciones estipuladas en este reglamento y al estudio socioeconómico que debe realizar la Comisión de Asuntos Sociales de cada solicitud.
+6. El becado o encargado del becado, debe tener cuenta de ahorros activa, con la entidad bancaria que designe la Municipalidad.
+(Así adicionado mediante acuerdo tomado en sesión N° 37 de 16 de setiembre del 2002)
 c) La beca se otorga por el curso lectivo correspondiente. En caso de desear seguir optando por este beneficio debe renovarse la solicitud con todos los requisitos cada año.
 (Así reformado mediante acuerdo tomado en sesión N° 32 de 7 de agosto del 2000)
 d) Los beneficiarios no podran ser parientes hasta un tercer grado de los regidores y síndicos (Propietarios o Suplentes) o del Ejecutivo Municipal.
-e) La beca se girara mensualmente. Además, es obligación para retirar la beca presentar las calificaciones obtenidas en el trimestre o semestre según sea el caso.
+e) La beca se depositará mensualmente a la cuenta de ahorros de cada becado y con el propósito de establecer el control respectivo la Secretaría Municipal confeccionará boleta que entregará a cada becado en el mes de febrero y será su obligación retirar las boletas, así como de presentar la boleta al Departamento de Secretaría a lo sumo el último día hábil del mes, o bien podrá presentar mensualmente documento extendido por el Centro Educativo, en el cual conste que cursa estudios a nivel de secundaria o de primaria, en el caso de que no se presente la boleta o documento mencionado no se girará la beca. Además, es obligatorio presentar al Departamento de Secretaría fotocopia de las calificaciones obtenidas en el trimestre o semestre según sea el caso.
+(Así reformado mediante acuerdo tomado en sesión N° 37 de 16 de setiembre del 2002)
 f) Los servidores municipales podrán optar hasta por un máximo de dos solicitudes de beca, para que sus hijos estudien a nivel de secundaria, conforme a lo establecido en el artículo número 37 de la Convención Colectiva vigente. Para lo cual deberán retirar el formulario de beca en la fecha y lugar que indique la Comisión de Asuntos Sociales previa publicación en lugar visible, así como entregar la solicitud debidamente llena, adjuntando certificación del Registro Civil, en donde conste como hijo (a) del empleado (a), certificación del colegio de que cursa estudios regularmente. Además de los requisitos señalados en los subincisos 3 y 4 del inciso b) anterior.
 (Así adicionado el inciso f) mediante acuerdo tomado en sesion N° 31 de 13 de julio del 2000)
 g) Cuando dos servidores municipales sean cónyuges entre si, el presente beneficio se le otorgará solamente a uno de ellos.
