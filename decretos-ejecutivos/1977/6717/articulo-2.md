@@ -1,0 +1,1 @@
+Artículo 2°.- Entiéndase por “Zona de Influencia” al área comprendida en un radio de doscientas cincuenta millas naúticas (250m/n) de casa Aeropuerto Internacional habilitado fuera del territorio nacional, en el cual la Línea Aérea de Bandera Nacional realice operaciones regulares de transporte de pasajeros.

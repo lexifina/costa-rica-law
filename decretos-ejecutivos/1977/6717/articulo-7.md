@@ -1,0 +1,2 @@
+Artículo 7°.- La Dirección General de Aviación Civil ante la presentación de la correspondiente solicitud de autorización de un vuelo tipo todo incluido, deberá pronunciarse al respecto en un término que no exceda las cuarenta y ocho horas, todo en arreglo con los términos expresos del presente decreto.
+Dado en la Casa presidencia.- San José, a los veinte días del mes de enero de mil novecientos setenta y siete.

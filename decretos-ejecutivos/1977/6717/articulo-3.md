@@ -1,0 +1,1 @@
+Artículo 3°.- En el evento en que la línea aérea nacional que opere regularmente en un determinado Aeropuerto Internacional en el exterior no esté en posibilidades materiales de brindarlo, se autoriza para que cualquier empresa de aviación realice vuelos de fletamento desde las zonas de influencia hacia Costa Rica.

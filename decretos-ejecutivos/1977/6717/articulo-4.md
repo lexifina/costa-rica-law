@@ -1,0 +1,1 @@
+Artículo 4°.- No se consideran incluidos dentro del área de influencia a aquellos aeródromos de alternativa al aeropuerto regular utilizado por la línea aérea nacional, cuyos servicios has de ser requeridos por la misma en casos extraordinarios.
