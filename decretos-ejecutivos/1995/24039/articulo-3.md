@@ -1,0 +1,4 @@
+Artículo 3º.- Dichos inmuebles estarán sometidos a la categoría de
+Refugio de Vida Silvestre durante un período de cinco años prorrogables
+por periodos iguales para lo cual los propietarios deberán solicitarlo
+con un mes de antelación a la finalización de dicho periodo.
