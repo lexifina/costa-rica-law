@@ -1,0 +1,1 @@
+Artículo 9º—El Consejo Asesor. El Consejo Asesor estará formado por el Director de la Policía de Control Fiscal, quien lo presidirá, el Director General de Aduanas, el Director General de Tributación, el Director General de Informática, el Director General de Hacienda, o sus representantes debidamente designados.
