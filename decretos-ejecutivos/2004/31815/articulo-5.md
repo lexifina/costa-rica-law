@@ -1,0 +1,1 @@
+Artículo 5º—En la zona de fondeo solo podrá navegar y fondear aquella embarcación autorizada por el Departamento Marino de JAPDEVA. No se permitirán embarcaciones fondeadas entre la zona de fondeo y los puestos de atraque de Puerto Limón.

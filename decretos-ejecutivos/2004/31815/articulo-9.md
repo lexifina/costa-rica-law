@@ -1,0 +1,1 @@
+Artículo 9º—El Ministerio de Obras Públicas y Transportes brindará la asesoría que la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica le requiera, con el propósito que se adquieran los equipos necesarios para la debida señalización de las áreas descritas en el presente decreto.

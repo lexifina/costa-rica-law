@@ -1,0 +1,1 @@
+Artículo 4º—El nuevo muelle turístico deberá ser señalado con la colocación de una baliza ubicada en el extremo del mismo en el último duque de alba. Su posición será: Latitud: 09°00’ 22" Norte y Longitud: 83° 01’ 22" Oeste, con una luz de destellos color rojo en intervalos de 10 segundos.
