@@ -14,3 +14,4 @@ Establece las características y requisitos que deben cumplir los combustibles d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-01 | la propia norma |
+| 2 | 2003-04-01 | Decreto Ejecutivo 30771 (2002-10-01) |
