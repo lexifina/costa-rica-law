@@ -14,3 +14,4 @@ Reglamento a la Ley N° 7180 Ley de Impuestos Municipales del cantón de Santa B
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-07 | la propia norma |
+| 2 | 2002-04-16 | Reglamento municipal 216 (2002-04-16) |
