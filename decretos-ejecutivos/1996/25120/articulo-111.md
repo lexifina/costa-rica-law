@@ -1,2 +1,5 @@
-Artículo 111.- REQUISITOS PARA LA FABRICACION DE EXPLOSIVOS.
-Los establecimientos autorizados por el Departamento dedicados a la fabricación de explosivos industriales, artículos de pólvora pirotécnica espectacular o pólvora menuda de lucería deberán contar con los requisitos y condiciones que el Ministerio de Salud exija, al igual que con el respectivo permiso otorgado por ese ente vigente.
+SECCION SEGUNDA
+De la importación y exportación de explosivos y sus aditamentos
+Artículo 111.- RETIRO DE EXPLOSIVOS DEL DOMINIO FISCAL.
+Para la importación y exportación de los productos explosivos industriales, pirotécnicos y sus aditamentos, el Departamento designará un representante ante la respectiva aduana, para que a los interesados se les permita el retiro del dominio fiscal o la salida del país, de conformidad con el artículo 78 de la Ley.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 103 al 111).

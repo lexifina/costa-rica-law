@@ -1,3 +1,4 @@
-Artículo 45.- RENOVACION DEL PERMISO DE PORTACION Y EL ESPECIAL.
-El permiso de portación y el especial, podrán ser renovados por periodos iguales, observándose el mismo trámite de la primera vez o vez anterior e indicando en la solicitud que se trata de renovación.
-El Departamento podrá solicitar al petente, información adicional si lo estima pertinente.
+Artículo 45.- REQUISITOS PARA OBTENER EL PERMISO.
+Para obtener el permiso de portación de armas de reglamento, para los servidores de los cuerpos policiales y de la Policía Judicial, deben presentarse ante el Departamento: solicitud por escrito suscrita por el jefe inmediato, nombre y apellidos del oficial de policía, indicando el lugar donde se encuentra destacado, dos fotografías tamaño pasaporte, fotocopia de la cédula de identidad, certificación emitida por la Escuela Nacional de Policía en donde conste la idoneidad en el manejo del arma de reglamento.
+Los miembros de los Supremos Poderes, deben de aportar solicitud por escrito, donde conste el nombre, apellidos, calidades y domicilio, cargo que ocupa, características del arma a portar, indicar a nombre de quien se encuentra inscrita el arma, fotocopia de la cédula de identidad, dos fotografías tamaño pasaporte y la certificación de la Escuela Nacional de Policía sobre la idoneidad en el manejo del arma.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 37 al 45).

@@ -1,2 +1,3 @@
-Artículo 94.- INFORME SOBRE SALDOS DE EXPLOSIVOS.
-Toda persona física o jurídica, autorizada para la compra de explosivos industriales y sus aditamentos, deberá presentar al Departamento por escrito, la cantidad y la clase de explosivos y sus aditamentos que pretende adquirir. Así mismo, presentará una nota extendida por el vendedor, donde indique los saldos de explosivos que posee el comprador, pendientes de retiro.
+Artículo 94.- PERMISOS A MENORES.
+Los menores de edad, mayores de catorce anos, podrán usar armas de cacería y tiro al blanco, exclusivamente para la práctica de esos deportes, cuando los acompañe un adulto autorizado.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 86 al 94).

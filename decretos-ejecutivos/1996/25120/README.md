@@ -17,3 +17,4 @@ Reglamento a la Ley de Armas y Explosivos
 | 2 | 1996-06-13 | SINALEVI (sin norma nombrada) |
 | 3 | 1999-03-18 | Decreto Ejecutivo 27728 (1999-03-18) |
 | 4 | 2000-11-10 | Decreto Ejecutivo 29280 (2000-11-10) |
+| 5 | 2003-07-09 | Decreto Ejecutivo 31383 (2003-07-09) |

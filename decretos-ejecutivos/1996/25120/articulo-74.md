@@ -1,2 +1,3 @@
-Artículo 74.- ENAJENACION DE COLECCIONES.
-Las armas permitidas que formen parte de una colección podrán ser vendidas, o, donadas para esos mismos fines, previa autorización del Departamento, en conjunto o en unidades. La autorización deberá ser solicitada personalmente por el interesado en adquirirlas indicando nombre y apellidos, cédula de identidad, domicilio y demás calidades que permitan identificar plenamente al comprador y donatario, y copia del permiso de autorización para coleccionar.
+Artículo 74.- PERMISO TEMPORAL DE EXPORTACION DE ARMAS.
+El permiso de exportación temporal de armas permitidas, faculta al interesado para sacarlas del país para una actividad determinada y por el tiempo específicamente señalado. Este permiso se extenderá cada vez que se requiera sacar las armas del país.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 66 al 74).

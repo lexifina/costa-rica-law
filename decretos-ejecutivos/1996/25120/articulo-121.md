@@ -1,2 +1,5 @@
-Artículo 121.- CANCELACION DE INSCRIPCION.
-El Departamento cancelará la inscripción de las armas permitidas que caigan en comiso.
+Artículo 121.- CONDICIONES PARA LOS TRABAJADORES.
+Las condiciones para los trabajadores deberán ajustarse a lo establecido en la Ley de Riesgos del Trabajo.
+Dentro de la fábrica todo trabajador contará con ropa que no genere chispa ni corrientes estáticas y equipos que garanticen la protección necesaria para evitar accidentes, los zapatos deberán ser de suelas antideslizantes y anticonductoras de electricidad.
+Toda herramienta o máquina que utilice en la fabricación de explosivos deben ser de materiales que no desprenda chispas, selladas.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 113 al 121).

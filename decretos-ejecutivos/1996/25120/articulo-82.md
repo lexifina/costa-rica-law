@@ -1,2 +1,3 @@
-Artículo 82.- ARMAS PARA DEPORTISTAS.
-Las armas que podrán autorizarse a los deportistas de tiro y cacería, son aquellas indicadas en el artículo 60 de la Ley de Armas y Explosivos, (Ley Nº 7530), para poseer en su domicilio y para portar con el respectivo permiso.
+Artículo 82.- ENAJENACION DE COLECCIONES.
+Las armas permitidas que formen parte de una colección podrán ser vendidas, o, donadas para esos mismos fines, previa autorización del Departamento, en conjunto o en unidades. La autorización deberá ser solicitada personalmente por el interesado en adquirirlas indicando nombre y apellidos, cédula de identidad, domicilio y demás calidades que permitan identificar plenamente al comprador y donatario, y copia del permiso de autorización para coleccionar.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 74 al 82).

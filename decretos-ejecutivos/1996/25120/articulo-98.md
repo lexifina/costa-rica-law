@@ -1,3 +1,7 @@
-Artículo 98.- REQUISITOS PARA EL USO OCASIONAL DE EXPLOSIVOS.
-Toda persona física o jurídica, cuando necesite utilizar explosivos industriales, no siendo el giro normal de sus actividades, puede solicitar por escrito al Departamento su debido permiso, autenticado por abogado.
-Según corresponda, debe de indicar: nombre, apellidos, calidades completas y dirección exacta del solicitante, persona física o del representante legal de la persona jurídica. Nombre de la sociedad, citas de inscripción en el Registro Público, número de cédula jurídica, número telefónico y el domicilio exacto donde realiza sus actividades comerciales. Explicación del tipo de trabajo a realizar, así como la dirección exacta donde se realizarán los trabajos, distancia del lugar poblado más cercano, nombre completo con sus calidades de la persona encargada de uso de los explosivos, así como la experiencia en este tipo de trabajos. Cantidad y clase de explosivos y sus aditamentos que utilizarán y nombre del proveedor de los mismos. El Departamento podrá inspeccionar el lugar antes de otorgar el debido permiso.
+CAPITULO SETIMO
+Comercio, importación, exportación, fabricación y actividades conexas de explosivos y sus aditamentos
+SECCION PRIMERA
+Comercialización de explosivos y sus aditamentos
+Artículo 98.- FACULTADES DEL DEPARTAMENTO.
+El Departamento tendrá facultades de control y fiscalización en la fabricación, comercialización, importación, exportación, desalmacenaje, almacenaje y traslado de explosivos industriales, pirotécnicos y sustancias químicas. El importador, vendedor, comprador, fabricante, o exportador será responsable de cualquier daño ocasionado a terceros.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 90 al 98).

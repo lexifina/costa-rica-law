@@ -1,2 +1,4 @@
-Artículo 83.- PERMISO DE INSCRIPCION DE ARMAS PARA EL TIRO AL BLANCO, AL PLATO O CACERIA.
-El permiso de inscripción de armas permitidas para el tiro al blanco, al plato o para cacería faculta al portador para utilizar las armas, exclusivamente para esos fines en los lugares especialmente acondicionados para la práctica de esos deportes.
+Artículo 83.- COLECCION DE ARMAS PROHIBIDAS.
+Sólo las instituciones del Estado pueden coleccionar armas prohibidas, con valor histórico, estético, cultural, criminalístico o mecánico. Los artefactos explosivos serán previamente desactivados.
+Las armas de fuego deberán ser objeto de examen balístico y figurar en el inventario del Registro de Armas, salvo que su estado no lo permita, previo dictamen del Departamento.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 75 al 83).

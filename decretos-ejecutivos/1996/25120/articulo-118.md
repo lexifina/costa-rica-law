@@ -1,4 +1,3 @@
-CAPITULO OCTAVO
-Del Comiso y Decomiso
-Artículo 118.- DEL PROCEDIMIENTO DEL DECOMISO
-En todo procedimiento de decomiso de un arma, la autoridad policial competente, deberá levantar un acta, consignando: lugar, de fecha, hora, nombres y apellidos de la persona a quien se le decomisa el arma, características e identificación plena del arma, nombre y apellidos y demás calidades de las personas que actúan, indicando las diligencias realizadas. Se entregará una copia del acta del decomiso a la persona interesada. De todo lo actuado se deberá informar al Departamento en forma inmediata por las autoridades competentes, atendiendo las directrices dadas por el Departamento.
+Artículo 118.- REQUISITOS PARA LAS OPERACIONES DE MANUFACTURA.
+Las operaciones de manufactura de los explosivos industriales, artículos de pólvora pirotécnica espectacular o pólvora menuda de lucería, deben efectuarse en establecimientos diseñados únicamente para este tipo de actividades y contar con el respectivo permiso del Ministerio de Salud.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 110 al 118).

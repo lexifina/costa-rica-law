@@ -1,6 +1,3 @@
-CAPITULO SETIMO
-Comercio, importación, exportación, fabricación y actividades conexas de explosivos y sus aditamentos
-SECCION PRIMERA
-Comercialización de explosivos y sus aditamentos
-Artículo 90.- FACULTADES DEL DEPARTAMENTO.
-El Departamento tendrá facultades de control y fiscalización en la fabricación, comercialización, importación, exportación, desalmacenaje, almacenaje y traslado de explosivos industriales, pirotécnicos y sustancias químicas. El importador, vendedor, comprador, fabricante, o exportador será responsable de cualquier daño ocasionado a terceros.
+Artículo 90.- ARMAS PARA DEPORTISTAS.
+Las armas que podrán autorizarse a los deportistas de tiro y cacería, son aquellas indicadas en el artículo 60 de la Ley de Armas y Explosivos, (Ley Nº 7530), para poseer en su domicilio y para portar con el respectivo permiso.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 82 al 90).

@@ -1,4 +1,3 @@
-Artículo 112.- REQUISITOS DEL EDIFICIO.
-Toda fábrica de explosivos industriales o de pirotecnia, deberá contar como mínimo con dos bodegas, una para producto terminado, otra para materia prima y un local para la elaboración del producto, los cuales deberán de estar independientes entre sí debidamente protegidas, quedando prohibido el almacenamiento en ellas de otros productos o materiales.
-Deben de estar provistas de buena ventilación y cada bodega deberá contar con su extintor portátil contra incendio de conformidad con el tipo de materias primas, cantidad y producto elaborado.
-Las puertas deben de estar debidamente rotuladas.
+Artículo 112.- PERMISO DE IMPORTACION DE EXPLOSIVOS Y SUS ADITAMENTOS.
+La persona física o jurídica, que tenga el permiso vigente para la fabricación o venta de explosivos industriales v sus aditamentos o de pirotécnica, puede importar dichos productos así como sus materias primas, para lo cual presentará solicitud por escrito al Departamento debidamente autenticada o personalmente por el interesado. Según corresponda, debe de indicar: nombre, apellidos, calidades completas, dirección exacta del interesado o del representante legal de la persona jurídica. Nombre de la sociedad, número de la cédula jurídica, cantidad y clase de los productos, nombre de la aduana por donde ingresarán, así como la fecha, tipo de transporte que se usará para remitirlos al destino final.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 104 al 112).

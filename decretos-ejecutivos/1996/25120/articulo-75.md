@@ -1,3 +1,3 @@
-Artículo 75.- COLECCION DE ARMAS PROHIBIDAS.
-Sólo las instituciones del Estado pueden coleccionar armas prohibidas, con valor histórico, estético, cultural, criminalístico o mecánico. Los artefactos explosivos serán previamente desactivados.
-Las armas de fuego deberán ser objeto de examen balístico y figurar en el inventario del Registro de Armas, salvo que su estado no lo permita, previo dictamen del Departamento.
+Artículo 75.- PERMISO DE FABRICACION DE ARMAS PERMITIDAS.
+Se permitirá la fabricación de armas permitidas a las compañías de reconocido prestigio, cuyo giro normal sea la fabricación de armas. Siempre que posean los requisitos de Seguridad y calidad en el funcionamiento de las armas a producir. Así como con los requisitos exigidos por la Ley de Riesgos del Trabajo, permisos de salubridad y funcionamiento de la Ley General de Salud y demás leyes Laborales.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 67 al 75).

@@ -1,2 +1,2 @@
-Artículo 27.- CONSULTA DEL DICTAMEN.
-Si el Departamento lo estima pertinente podrá consultar el dictamen de idoneidad aportado por el petente, con el órgano idóneo del Colegio Profesional respectivo.
+Artículo 27.—Protocolos de las pruebas de idoneidad mental. El colegio profesional respectivo será el encargado de establecer los protocolos correspondientes para las pruebas de idoneidad mental que sus agremiados aplicarán a los solicitantes que pretendan adquirir o matricular armas de fuego y permisos de portación. De igual forma, dichos colegios profesionales deberán implementar los procedimientos necesarios para que los agremiados que aplicarán las pruebas, se informen de los detalles correspondientes para realizarlas según el estándar aprobado por el colegio respectivo.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 31383 del 9 de julio de 2003)

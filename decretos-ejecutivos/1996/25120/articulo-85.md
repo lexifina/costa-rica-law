@@ -1,4 +1,3 @@
-Artículo 85.- PERMISO A EXTRANJEROS PARA INGRESAR ARMAS Y TIROS.
-Los extranjeros que temporalmente ingresen armas permitidas para uso exclusivo de competencias deportivas, podrán importar como parte de su equipaje hasta quinientos tiros libres del pago de derechos.
-También podrán ingresar al país, temporalmente, hasta con cuatro armas permitidas para uso exclusivo de competencias deportivas o con fines cinegéticos.
-Deberán obligatoriamente informarlo a las autoridades aduaneras en el momento del ingreso. Estas autoridades anotarán el número de serie y demás características de las armas en el respectivo pasaporte e informarán en forma inmediata al Departamento. Al abandonar el país el turista deberá mostrar a las autoridades correspondientes las armas que trajo consigo o una constancia del Departamento que justifique tal omisión.
+Artículo 85.- PRESTAMO DE ARMAS PROHIBIDAS.
+Las instituciones del Estado que coleccionen armas prohibidas sólo podrán prestar armas a otras instituciones para fines culturales, y, deberán dar aviso a la Dirección. No podrán prestarlas para fines cinematográficos.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 77 al 85).

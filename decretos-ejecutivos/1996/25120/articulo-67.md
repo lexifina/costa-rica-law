@@ -1,2 +1,3 @@
-Artículo 67.- PERMISO DE FABRICACION DE ARMAS PERMITIDAS.
-Se permitirá la fabricación de armas permitidas a las compañías de reconocido prestigio, cuyo giro normal sea la fabricación de armas. Siempre que posean los requisitos de Seguridad y calidad en el funcionamiento de las armas a producir. Así como con los requisitos exigidos por la Ley de Riesgos del Trabajo, permisos de salubridad y funcionamiento de la Ley General de Salud y demás leyes Laborales.
+Artículo 67.- PERMISO DE IMPORTACION DE ARMAS Y MUNICIONES POR PARTE DE LOS CUERPOS POLICIALES.
+La solicitud de importación de armas por parte de los cuerpos policiales y demás entes estatales autorizados por ley para poseer, portar y usar armas para el ejercicio de sus funciones, deberá formularla el jerarca de la institución al Ministro con copia al Departamento, indicando: cantidad, tipo, características de las armas y municiones, finalidad que se les darás a las armas, lugar de procedencia y desalmacenaje.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 59 al 67).

@@ -1,2 +1,3 @@
-Artículo 44.- REQUISITOS PARA LOS FUNCIONARIOS PUBLICOS.
-La solicitud del permiso especial de portación de armas por parte de funcionarios públicos, deberá formularse por escrito ante el Departamento en papel membretado de la institución, indicando: nombre, apellidos, calidades, domicilio exacto y cargo que ocupa el petente, las razones que justifiquen la solicitud, características del arma, número de patrimonio del arma asignada. La solicitud deberá estar debidamente autorizada por el jerarca de la institución. Adjuntando dos fotografías recientes tamaño pasaporte, fotocopia de la cédula de identidad por ambos lados o de residencia, fotocopia de los documentos donde haga constar la idoneidad en el manejo de armas de fuego y de la aprobación del examen sicológico.
+Artículo 44.- VIGENCIA DEL PERMISO DE PORTACION.
+El permiso de portación de armas de los cuerpos policiales, y de los miembros de los Supremos Poderes, tendrá una vigencia de dos años, pudiéndose renovar por periodos iguales.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 36 al 44).

@@ -1,2 +1,3 @@
-Artículo 114.- OBLIGATORIEDAD DE INFORMAR.
-Los fabricantes de explosivos industriales informarán al Departamento cada mes, sobre la cantidad de explosivos fabricados y sus aditamentos fabricados, los que se vendieron durante dicho período, indicando los nombres de las personas que adquirieron los explosivos y sus aditamentos.
+Artículo 114.- PERMISO DE EXPORTACION DE EXPLOSIVOS Y SUS ADITAMENTOS.
+La persona física o jurídica, que tenga el permiso vigente para la fabricación o venta de explosivos industriales y sus aditamentos o de pirotecnia, puede exportar dichos productos presentando solicitud por escrito autenticada por un abogado al Departamento; indicando nombre y apellidos y demás calidades completas, domicilio del interesado o del representante legal de la persona jurídica. Cantidad y clase de los productos a exportar, país de destino, tipo de transporte, fecha de la exportación. Se adjuntará además el permiso de importación del país de destino, de conformidad con el artículo 77 de la Ley.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 106 al 114).

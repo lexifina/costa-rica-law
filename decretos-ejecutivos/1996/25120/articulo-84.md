@@ -1,2 +1,3 @@
-Artículo 84.- CANTIDAD DE ARMAS PERMITIDAS.
-Toda persona física podrá tener más de tres armas destinadas a la cacería, al tiro al blanco, al plato aunque sean del mismo calibre.
+Artículo 84.- INSPECCION DE COLECCIONES.
+Todas las colecciones de armas podrán ser inspeccionadas por la Dirección, como mínimo dos veces al año.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 76 al 84).

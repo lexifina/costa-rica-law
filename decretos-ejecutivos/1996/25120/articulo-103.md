@@ -1,4 +1,4 @@
-SECCION SEGUNDA
-De la importación y exportación de explosivos y sus aditamentos
-Artículo 103.- RETIRO DE EXPLOSIVOS DEL DOMINIO FISCAL.
-Para la importación y exportación de los productos explosivos industriales, pirotécnicos y sus aditamentos, el Departamento designará un representante ante la respectiva aduana, para que a los interesados se les permita el retiro del dominio fiscal o la salida del país, de conformidad con el artículo 78 de la Ley.
+Artículo 103.- REQUISITOS DE ALMACENAMIENTO DE LOS EXPLOSIVOS INDUSTRIALES.
+En los lugares donde se utilicen explosivos industriales debe ser seguros, secos, ventilados, y encontrarse a distancia mínima de veinticinco metros de carreteras y áreas pobladas.
+El Departamento, podrá establecer una mayor distancia, según sea la cantidad de explosivos almacenados. Los explosivos y los fulminantes no podrán almacenarse en el mismo lugar.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 95 al 103).

@@ -1,3 +1,3 @@
-Artículo 78.- SEGURIDAD PARA LAS COLECCIONES.
-Las personas responsables de la custodia de las colecciones de armas deberán guardar las seguridades necesarias para evitar pérdidas, cuando éstas ocurran deberán reportarlo inmediatamente al Departamento presentando un informe suscinto de como sucedieron los hechos.
-Los recintos donde se custodien las colecciones deben reunir los requisitos de seguridad suficientes que a criterio del Departamento considere necesarios para impedir el robo, el extravío o el deterioro de las armas.
+Artículo 78.- REQUISITOS PARA LA MATRICULA.
+Toda persona física o jurídica que desee coleccionar armas permitidas deberá cumplir con todos los requisitos necesarios para la inscripción de armas permitidas, salvo que su estado material no lo permita previo dictamen razonado del departamento.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 70 al 78).

@@ -1,2 +1,3 @@
-Artículo 64.- REQUISITOS DE DESALMACENAJE.
-Para desalmacenar las armas y municiones de la aduana respectiva, los interesados deberán comunicar al Departamento descrito con dos días de anticipación comunicando día y hora en que este se efectuará, aportando fotocopia del permiso de importación expedido por el Departamento, así como la documentación fiscal de la mercadería importada.
+Artículo 64.- PERMISO REGULAR PARA IMPORTAR ARMAS Y MUNICIONES.
+Toda persona física o jurídica que su giro comercial normal incluya la comercialización de armas y municiones, deberá gestionar el permiso regular de importación ante el Departamento.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 56 al 64).

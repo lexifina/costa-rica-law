@@ -1,3 +1,3 @@
-Artículo 102.- MODALIDADES DE COMERCIALIZACION.
-En los comercios autorizados para la venta de pólvora pirotécnica permitida, no podrán exhibir ni comercializar dichos productos en las ventanas expuestas a la vía pública.
-Como medida de seguridad para la ciudadanía no se permitirá la venta de pólvora pirotécnica menuda en los negocios estacionarios o ambulantes que se encuentren ubicados en la vía pública.
+Artículo 102.- INFORME SOBRE SALDOS DE EXPLOSIVOS.
+Toda persona física o jurídica, autorizada para la compra de explosivos industriales y sus aditamentos, deberá presentar al Departamento por escrito, la cantidad y la clase de explosivos y sus aditamentos que pretende adquirir. Así mismo, presentará una nota extendida por el vendedor, donde indique los saldos de explosivos que posee el comprador, pendientes de retiro.
+(Así corrida su numeración por el artículo 8° del decreto ejecutivo N° 31383 del 9 de julio de 2003, que lo traspaso del antiguo artículo 94 al 102).
