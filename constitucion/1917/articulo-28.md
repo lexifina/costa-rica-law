@@ -1,1 +1,0 @@
-ARTICULO 28.-Las leyes que organicen el procedimiento penal, deberán asegurar de modo eficaz los derechos de defensa del acusado; y consiguientemente el de que se le oigan sus descargos, se le reciban las pruebas pertinentes que aduzca y se le ampare por el defensor que él mismo elija, o no teniéndolo, por el que elija el tribunal.

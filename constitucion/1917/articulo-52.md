@@ -1,1 +1,0 @@
-ARTICULO 52.-Habrá elecciones populares el primer domingo de marzo, cada tres años, a partir de 1922 inclusive. En ellas se elegirá la mitad de Senadores, mitad de Diputados, mitad de Regidores, lo mismo que Síndicos e Intendentes Municipales.

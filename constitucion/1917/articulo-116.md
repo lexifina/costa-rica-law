@@ -1,6 +1,0 @@
-CAPITULO VII
-DEL REGIMEN MUNICIPAL
-ARTICULO 116.-Para los efectos de la administración general de los negocios nacionales, el territorio de la República continuará dividido en las siete provincias de San José, Alajuela, Cartago, Heredia, Guanacaste, Puntarenas y Limón. Las provincias se dividen en cantones y éstos en distritos.
-En adelante no se creará cantón alguno que no cuente a lo menos con cinco mil habitantes; tampoco si al cantón o a cada uno de los cantones desmembrados para constituir la nueva circunscripción, no les quedare una población al menos de seis mil almas y territorio suficiente para las necesidades de su desarrollo.
-La ley que cree un nuevo cantón, señalará sus límites de modo indubitable.
-El Poder Ejecutivo dictará las disposiciones oportunas, a fin de que cuanto antes se determinen de modo claro los linderos de las provincias y cantones existentes. Si las Municipalidades interesadas se convinieren en la delimitación total o parcial, el Poder Ejecutivo aprobará el convenio y se tendrá como línea divisoria la acordada entre las partes. En caso contrario someterá el asunto en la parte controvertida a la decisión de la Cámara de Diputados para que por ley de defina la cuestión, se señalen los límites y se adopten los naturales en cuanto sea posible.

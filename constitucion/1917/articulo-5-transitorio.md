@@ -1,1 +1,0 @@
-ARTICULO 5º.-La Asamblea se transformará en Congreso ordinario y permanecerá en sesiones ordinarias hasta el 31 de agosto del corriente año y a efecto de constituir el personal de las Cámaras Legislativas, observará las reglas de distribución establecidas en la presente Constitución.

@@ -1,2 +1,0 @@
-ARTICULO 21.-Todo costarricense o extranjero, ocurriendo a las leyes, debe encontrar remedio a las injurias o daños que haya recibido en su persona, propiedad u honra. Debe hacérsele pronta y cumplida y en estricta conformidad con las leyes.
-Los tribunales no podrán excusarse de ejercer su autoridad por falta de ley que resuelva la contienda o decida el caso sometido a su fallo. No habiendo ley aplicable, acudirán a los principios de derecho y de eterna justicia.

@@ -1,2 +1,0 @@
-ARTICULO 69.-Las Cámaras no podrán abrir sus sesiones ni ejercer sus funciones legales, sin la concurrencia de los dos tercios de sus miembros. Cuando llegado el día señalado para abrir sus sesiones no puedan verificarlo, o cuando iniciadas las sesiones no puedan continuarlas por faltas del quórum indicado, los concurrentes, cualquiera que sea su número, apremiarán a los ausentes conforme a sus respectivos reglamentos.
-Las sesiones de las Cámaras serán públicas, salvo que, por razones de conveniencia general, se acordare tratar de algún determinado asunto en sesión secreta.

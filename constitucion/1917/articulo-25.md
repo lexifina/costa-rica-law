@@ -1,3 +1,0 @@
-ARTICULO 25.-Ninguno puede ser juzgado por comisión, tribunal o juez especialmente constituidos, sino por el tribunal que señale la ley y que se haya establecido por ésta con anterioridad.
-No se sujetará a la jurisdicción militar sino a los que cometieren delito de sedición y rebelión y a los individuos del ejército que se hallaren en servicio activo, por los delitos de cualquier clase que cometan. Se equipararán a militares los cuerpos armados que se rijan militarmente, según la ley.
-De los recursos de apelación y casación, que se interpongan en asuntos militares, conocerán los tribunales comunes, siendo consultable siempre toda sentencia o auto de sobreseimiento que se dicte.

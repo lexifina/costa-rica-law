@@ -1,1 +1,0 @@
-ARTICULO 10.-Los Jueces y Alcaldes que actualmente desempeñaran funciones judiciales no serán removidos hasta la expiración del período vigente conforme a la ley orgánica, sin perjuicio de lo dispuesto al final del artículo 114.

@@ -1,1 +1,0 @@
-ARTICULO 104.-Los Ministros de Estado pueden concurrir a las sesiones de cualquiera de las Cámaras y tomar parte en las discusiones. Pero deberán retirarse del recinto de la Cámara antes de la votación.

@@ -1,1 +1,0 @@
-ARTICULO 20.-Ninguna persona podrá hacerse justicia por sí misma ni ejecutar violencia para reclamar su derecho. La facultad de juzgar las causas civiles y criminales, pertenece exclusivamente a los tribunales de justicia.
