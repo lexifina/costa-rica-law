@@ -1,1 +1,0 @@
-Artículo 2°- Los tesoreros municipales enviarán en la primera quincena de cada mes a la Imprenta Nacional para su publicación en La Gaceta, un cuadro que demuestre las entradas y salidas correspondientes á cada distrito durante el mes anterior con una breve explicación de cada una de ellas, so pena de incurrir de plano en la pérdida de su empleo.
