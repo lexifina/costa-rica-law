@@ -1,0 +1,1 @@
+Artículo 4º—Revisión Técnica. Los vehículos que se encuentren dentro de las condiciones anteriormente citadas no realizarán el control de emisiones y del costo respectivo se les rebajará el monto que proporcionalmente corresponda. Deberán someterse al resto de aspectos contenidos en el Manual y en el Certificado deberá consignarse esta situación especial y transitoria.

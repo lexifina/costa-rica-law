@@ -1,0 +1,1 @@
+Artículo 6º—Vigencia. Rige a partir de su publicación. A partir de la vigencia de este Decreto y durante los dos meses siguientes, los vehículos a que se refiere este Decreto, con placas terminadas en 1, 2, 3 y 4. no serán sujetos de infracción.
