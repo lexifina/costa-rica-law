@@ -3,3 +3,5 @@ para un período de cuatro años, pudiendo ser reelectos.
 Los nombramientos de los miembros de la Junta que deban sustituir a
 los que hayan terminado a su período, deberán hacerse dentro de los
 treinta días anteriores al vencimiento de tal período.
+(NOTA: Este artículo ha sido TACITAMENTE REFORMADO por el artículo 5 de
+la ley No.4646 de 20 de octubre de 1970).

@@ -25,8 +25,8 @@ d) Desarrollar sus planes y programas debidamente coordinados en sus
 diferentes etapas de investigación socio-económica, de planeamiento y de
 construcción, así como en las actividades educativas y asistenciales que
 exija la administración de los mismos;
-e) Asesorar a los organismos del Estado y demás Instituciones Públicas
-y coordinar las iniciativas públicas en asuntos de vivienda y
+e) Asesorar a los organismos del Estado y demás Instituciones
+Públicas y coordinar las iniciativas públicas en asuntos de vivienda y
 urbanización, cuando así se solicite; y
 f) Adecuar sus planes y estudios a los programas nacionales de
 desarrollo económico y social, sometiéndolos a la aprobación del

@@ -7,11 +7,11 @@ Instituto de sus operaciones y resultados económicos y demás actividades
 internas, durante el año en referencia;
 b) Exposición resumida de las principales actividades relativas a
 vivienda y urbanismo desarrolladas en el país durante el año;
-c) Resumen relativo al estado de los problemas de vivienda y urbanismo;
-y
-ch) Análisis explicativo de la política de inversiones seguida por el
-Instituto durante el período anterior.
+c) Resumen relativo al estado de los problemas de vivienda y
+urbanismo; y
+ch) Análisis explicativo de la política de inversiones seguida por
+el Instituto durante el período anterior.
 Además, los cuadros numéricos, gráficos y anexos estadísticos que se
 consideren convenientes y el texto completo de las disposiciones legales
-dictas durante el período que se reseña, en relación con las funciones y
-operaciones del Instituto.
+dictadas durante el período que se reseña, en relación con las funciones
+y operaciones del Instituto.
