@@ -1,0 +1,1 @@
+Articulo 2°—El Centro de Enseñanza Permanente de la Conservación de la Energía, albergará y administrará los museos; Nacionales del Ferrocarril y de la Ciudad de San José, como testimonio histórico del período de ocupación como centro de comunicación y transporte ferroviario y urbano de la ciudad Josefina.

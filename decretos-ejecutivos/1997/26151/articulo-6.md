@@ -1,0 +1,1 @@
+Artículo 6°—La Dirección General de Museos del Ministerio Cultura, Juventud y Deportes brindaré al Museo Nacional del Ferrocarril al Museo de la Ciudad de San José asesoría técnica y apoyo financiero acuerdo con sus posibilidades.

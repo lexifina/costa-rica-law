@@ -1,0 +1,1 @@
+Articulo 9°—El Centro contará con un Comité Técnico, formado por las instituciones involucradas y otras interesadas en participar. Entre sus funciones deberá coordinar aspectos que faciliten e! cumplimiento de los objetivos en aspectos técnicos y de recopilación de información tecnológica aplicada a la conservación energética y otros aspectos relacionados.

@@ -1,0 +1,1 @@
+Artículo 7°—Para el mejor desarrollo y cumplimiento de objetivos del Centro de Enseñanza Permanente de Conservación de Energía, la Compañía Nacional de Fuerza y Luz, S, A-, podrá suscribir, para su administración y financiamiento, convenios con organizaciones públicas, privadas u otras.
