@@ -1,0 +1,1 @@
+Artículo 14.—Los usuarios particulares e internos deberán hacer silencio en el local de consulta, no rayar los documentos, no comer. Asimismo se prohíbe fumar en cualquiera de las tres áreas del Archivo Central.

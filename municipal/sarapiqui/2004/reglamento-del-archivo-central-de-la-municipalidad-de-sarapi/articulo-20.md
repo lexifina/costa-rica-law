@@ -1,0 +1,1 @@
+Artículo 20.—El Concejo Municipal, la Alcaldía Municipal y la Unidad de Archivo Central, deberán promover exposiciones, conferencias y seminarios con el fin de acercar el Archivo a los ciudadanos y dar a conocer especialmente a estudiantes nuestra historia.
