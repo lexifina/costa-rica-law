@@ -1,0 +1,1 @@
+Artículo 76.—Sólo en casos muy calificados, a juicio del jefe respectivo, con la aprobación del Director del Departamento de Personal y para efectos de no aplicar la sanción disciplinaria correspondiente, se justificarán las llegadas tardías.

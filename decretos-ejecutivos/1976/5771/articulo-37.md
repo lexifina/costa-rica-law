@@ -1,0 +1,1 @@
+Artículo 37.—La compensación de las vacaciones sólo será posible cuando el servidor haya dejado de trabajar y tenga a su favor algún pago por este concepto. Durante la prestación de sus servicios no lo permite la Ley de Presupuesto.

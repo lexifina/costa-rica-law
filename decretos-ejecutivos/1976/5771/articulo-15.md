@@ -1,0 +1,1 @@
+Artículo 15.—La jornada ordinaria de trabajo semanal será de cuarenta y cuatro horas: sin embargo para efectos de su pago se reputará como de cuarenta y ocho horas. Se laborará en forma acumulativa, de conformidad con el horario que establece en el artículo siguiente.

@@ -1,0 +1,1 @@
+Artículo 35.—Los servidores deberán gozar sin interrupciones de su período de vacaciones. Estas sólo podrán dividirse en dos períodos como máximo, de común acuerdo entre las partes, cuando se trate de labores de índole especia) que no permitan una ausencia muy prolongada del empleado.

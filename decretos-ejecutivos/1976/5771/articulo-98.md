@@ -1,0 +1,1 @@
+Artículo 98.—Las gestiones a que alude el artículo 96 del presente Reglamento deberán ser resueltas de igual forma por el Jefe ante quien se plantearán, dentro de los ocho días siguientes a la fecha en que se recibieron.

@@ -1,0 +1,1 @@
+Artículo 51.—El trabajador que, por dolo o complacencia, marque una tarjeta que no le corresponde, incurrirá en falta grave a sus obligaciones laborales y se hará acreedor del despido. Incurrirá en la misma falta y se aplicará igual sanción, al trabajador a quien se le compruebe haber consentido para que otra persona le marcara su tarjeta.

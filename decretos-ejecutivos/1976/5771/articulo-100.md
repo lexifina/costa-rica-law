@@ -1,0 +1,1 @@
+Artículo 100.—El Ministerio, de conformidad con lo dispuesto por el artículo 29 del Decreto Ejecutivo N° 4 del 26 de abril de 1966, formulará instructivos o circulares, de obligado acatamiento por los servidores, con el objeto de regular otros aspectos de organización y funcionamiento de sus dependencias.

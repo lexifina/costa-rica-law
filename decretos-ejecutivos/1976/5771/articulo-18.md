@@ -1,0 +1,1 @@
+Artículo 18.—Los empleados estarán obligados al desempeño de sus cargos durante los días hábiles y las horas reglamentarias y no se podrá, por lo mismo, conceder privilegio, prerrogativa o licencia alguna que autorice una asistencia irregular, con excepción de lo establecido específicamente en otras disposiciones de este Reglamento, o en los contratos individuales de trabajo.

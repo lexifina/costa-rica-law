@@ -1,0 +1,1 @@
+Artículo 97.—Las gestiones de los servidores, de acuerdo con el artículo anterior, deberán ser planteadas por escrito; pero podrán serlo en forma verbal cuando así lo exija la urgencia de una resolución, o si la menor importancia del asunto indica este procedimiento.

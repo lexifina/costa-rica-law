@@ -1,0 +1,1 @@
+Artículo 13.—Todo nombramiento, ascenso, traslado, permuta, aumento de sueldo, permiso, incapacidad, renuncia, sanción, despido o cualquier otro movimiento de personal, será tramitado mediante la fórmula Acción de Personal y por los procedimientos que indica el Estatuto de Servicio Civil y sus Reglamentos, con la aprobación del Ministro o del funcionario en quien éste delegue.

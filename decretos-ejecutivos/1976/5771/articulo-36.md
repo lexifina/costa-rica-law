@@ -1,0 +1,1 @@
+Artículo 36.—No interrumpirán la continuidad del trabajo, las licencias sin goce de salario, los descansos otorgados legalmente, las enfermedades justificadas, la prórroga o renovación inmediata del contrato de trabajo u otra causa análoga que no termine con éste.

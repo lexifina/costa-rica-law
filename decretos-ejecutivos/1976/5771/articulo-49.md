@@ -1,0 +1,1 @@
+Artículo 49.—Cada tarjeta deberá ser marcada solamente por el trabajador a quien corresponda, con cuidado, de manera que quede impresa con claridad, toda vez que las marcas defectuosas, manchadas o confusas que no se deban al desperfecto del reloj se tomarán por no hechas para efectos de sanción.

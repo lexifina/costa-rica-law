@@ -1,0 +1,1 @@
+Artículo 83.—Habrá en el Ministerio un Comité de Seguridad e Higiene de Trabajo, compuesto por el Jefe de Personal o el servidor en quien éste delegue esas funciones, un delegado de la Sección de Servicios Generales y un miembro del Consejo Directivo de cada uno de los Sindicatos constituidos en el Ministerio.

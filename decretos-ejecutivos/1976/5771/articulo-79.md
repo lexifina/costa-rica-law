@@ -1,0 +1,1 @@
+Artículo 79.—El abandono de trabajo podrá ser justificado en casos muy calificados, por el jefe inmediato, quien hará constatar las razones que motiven la justificación en la tarjeta de asistencia o medio de control que se establezca.

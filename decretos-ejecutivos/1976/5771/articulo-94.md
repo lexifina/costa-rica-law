@@ -1,0 +1,1 @@
+Artículo 94.—Los subsidios y licencias por razón de maternidad se regularán por los artículos 170 del Estatuto de Servicio Civil y 68 del Reglamento de la Carrera Docente, cuando se trate de servidoras de dicha carrera y por el artículo 144 del Código de Educación las administrativas.

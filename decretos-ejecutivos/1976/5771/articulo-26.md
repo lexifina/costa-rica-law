@@ -1,0 +1,1 @@
+Artículo 26.—El pago por concepto de zonaje se regulará por lo que dispone la Ley y los Reglamentos respectivos sobre el pago de viáticos y zonaje. El Ministerio está obligado a aplicar en todos sus extremos tales Leyes y Reglamentos y a hacer efectivos los importes correspondientes a más tardar quince días después de su publicación en "La Gaceta", por orden cronológico.

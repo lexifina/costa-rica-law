@@ -1,0 +1,1 @@
+Artículo 4°—El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre el Ministerio y sus empleados; pero la representación inmediata estará delegada en el Ministerio de Educación Pública, en lo sucesivo denominado "Ministro".

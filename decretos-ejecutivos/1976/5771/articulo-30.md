@@ -1,0 +1,1 @@
+Artículo 30.—Los servidores Técnico Docente o Administrativo Docentes disfrutarán de un mes de vacaciones anuales, de conformidad con lo estipulado por el párrafo segundo del artículo 74 del Reglamento de la Carrera Docente.

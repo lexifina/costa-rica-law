@@ -1,0 +1,1 @@
+Artículo 85.—Las labores del Comité y Subcomité serán desempeñadas gratuitamente por sus integrantes dentro de las horas de trabajo. El Ministerio dará las facilidades del caso para el cumplimiento eficiente de sus funciones.

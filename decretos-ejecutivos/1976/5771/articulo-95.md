@@ -1,0 +1,1 @@
+Artículo 95.—El servidor que permaneciere enfermo por un tiempo mayor de tres meses y que hubiere disfrutado de la totalidad de subsidio a que tuviere derecho, conforme a las estipulaciones anteriores, podrá, a juicio del Ministerio, ser separado del puesto, mediante el pago del importe del preaviso y del auxilio de cesantía correspondiente.

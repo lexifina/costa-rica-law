@@ -1,0 +1,1 @@
+Artículo 69.—Cuando se compruebe mediante una investigación seria e imparcial incapacidad o deficiencia en el desempeño de un puesto, el servidor podrá ser trasladado a otro de grado inferior, disposición que se aplicará únicamente de acuerdo con los resultados de la calificación periódica y una vez que se haya oído al servidor.

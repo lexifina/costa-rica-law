@@ -1,0 +1,1 @@
+Artículo 55.—Cuando se trate de servidores Técnico Docentes o Administrativo Docentes, se seguirán los procedimientos establecidos por el Título II del Estatuto de Servicio Civil y el Reglamento de la Carrera Docente y se tendrán como penas máximas las ahí establecidas.

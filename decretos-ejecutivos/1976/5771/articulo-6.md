@@ -1,0 +1,1 @@
+Artículo 6°—La División Administrativa, por delegación del Ministro, a través del Departamento de Personal, tendrá a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones del mismo con la Dirección de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 34.—Las vacaciones podrán acumularse por una sola vez, mediante resolución razonada del Ministerio, únicamente en aquellos casos en que sea absolutamente necesario y se haga difícil el reemplazo del servidor, de acuerdo con lo estatuido por el artículo 159 del Código de la materia.

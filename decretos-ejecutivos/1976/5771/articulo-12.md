@@ -1,0 +1,1 @@
+Artículo 12.—Los contratos de trabajo a plazo fijo o por obra determinada, una vez vencido el plazo o concluida la obra, terminará sin responsabilidad para el Ministerio, siempre que los mismos no sean de duración superior a un año. Cuando se tratare de servicios que requieran preparación técnica especial, la duración podrá ser, en las mismas condiciones, hasta de tres años.

@@ -1,0 +1,23 @@
+CAPÍTULO X
+Obligaciones de los Servidores
+Artículo 42.—Además de las consignadas en el Código de Trabajo, Estatuto de Servicio Civil y en otros artículos del presente Reglamento, son obligaciones de los servidores del Ministerio:
+a) Prestar los servicios personalmente, en forma regular y continua cumpliendo con la jornada de trabajo correspondiente;
+b) Comenzar las labores de conformidad con el horario estipulado exactamente a la hora señalada, no pudiendo abandonarla ni suspenderla sin causa justificada antes de haber cumplido su jornada de trabajo;
+c) Ejecutar el trabajo con la capacidad, dedicación y diligencia que el cargo lo requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones;
+ch) Cumplir con la mayor diligencia y buena voluntad las órdenes e instrucciones de sus jefes, relativos al servicio y a los deberes del puesto que desempeñan, auxiliando en su trabajo a cualquiera de los demás empleados, cuando su jefe o quien lo representa lo solicite;
+d) Atender con diligencia, afán de servicio, corrección y cortesía al público que acuda a las oficinas del Ministerio, así como guardar al público, sus jefes y compañeros de trabajo en las relaciones surgidas del ejercicio de su cargo toda la consideración debida, de modo que no se originen quejas justificadas por mal servicio, desatención, mal trato e irrespeto;
+e) Durante las horas de trabajo vestir correctamente, de conformidad con el cargo que desempeñan y los lugares en donde presten sus servicios;
+f) Guardar las más absoluta reserva sobre los asuntos privados del Ministerio y la discreción necesaria sobre lo relacionado con su trabajo que por naturaleza o en virtud 'de disposiciones legales e instrucciones especiales las requieran, aun después de haber cesado en el cargo, sin perjuicio de la obligación en que estará de denunciar ante quien corresponda los hechos incorrectos o delictuosos que lleguen a su conocimiento;
+g) Comunicar a los jefes respectivos las observaciones que su experiencia y su conocimiento le sugieran para prevenir daños o perjuicios a los intereses del Ministerio, de sus compañeros de trabajo y de las personas que, eventual o permanentemente, se encuentren dentro de los lugares en que presten sus servicios;
+h) Responder por los objetos, máquinas, útiles o herramientas del Ministerio que tengan en uso y reponer o pagar aquellos cuyo deterioro, destrucción o pérdida les sea imputable.
+i) Cuidar las máquinas, el mobiliario, equipo y útiles de propiedad o al servicio de la Institución y no usarlos para fines distintos de aquellos a que están destinados, velar porque no sufran más deterioro que el que exige el trabajo. Asimismo, cuidar de la conservación de bienes y muebles de la soda-restaurant del Ministerio de Educación Pública;
+j) Mantener al día las tareas encomendadas, siempre que no lo impidan motivos justificados;
+k) Presentar a su jefe inmediato constancia del tiempo empleado en sus visitas a las instituciones aseguradoras (C.C.S.S., I.N.S.);
+I) Rendir cuenta de las sumas de dinero que reciben adelantadas por concepto de viáticos, dentro de los dos días hábiles posteriores a la determinación de la labor encomendada;
+II) Los empleados que deban realizar giras para atender asuntos propios de su labor deberán rendir un informe adecuado y oportuno de los resultados de la misma, así como la liquidación de los gastos reales incurridos en dicha gira por concepto de viáticos y transportes;
+m) Informar de inmediato al Departamento de Personal de todo cambio de domicilio, estado civil y demás pormenores que sean necesarios para mantener los respectivos expedientes personales en orden y actualizados;
+n) Acatar y hacer cumplir las medidas que tiendan a prevenir el acaecimiento de accidentes de trabajo y enfermedades profesionales;
+ñ) Marcar su tarjeta de control de asistencia a las horas de entrada y salida o registrar su asistencia por cualquier medio idóneo que se establezca. Quedan excluidos de la presente obligación los Viceministros;
+o) Notificar al jefe inmediato lo antes posible —verbalmente, telefónicamente o por escrito— de las causas que le impiden asistir a su trabajo, cuando se encuentre imposibilitado para hacerlo, sin esperar hasta el segundo día de ausencia para avisar;
+p) Laborar jornadas extraordinarias cuando fuere convocado para tal efecto; y
+q) Cumplir las disposiciones que imponen las leyes de trabajo y las de este Reglamento, así como todas aquellas de orden interno en vigencia o que lleguen a dictarse y, en general, todas las disposiciones administrativas actuales o futuras que alcancen a cada uno, sin perjuicio de que puedan hacer valer sus derechos si en alguna forma los consideraren lesionados.

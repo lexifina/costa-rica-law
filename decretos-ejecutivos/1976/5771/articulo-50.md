@@ -1,0 +1,1 @@
+Artículo 50.—Salvo los casos previstos en este Reglamento, la omisión de una marca en la tarjeta a cualquiera de las horas de entrada y' salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar en la fracción de la jornada siguiente a aquella en la que el hecho sucedió.

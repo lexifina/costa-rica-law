@@ -1,0 +1,1 @@
+Artículo 101.—A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias, el Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes y Reglamento conexos.

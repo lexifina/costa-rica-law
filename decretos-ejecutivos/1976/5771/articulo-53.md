@@ -1,0 +1,1 @@
+Artículo 53.—El señor Ministro, tomando en consideración la naturaleza de las funciones y la forma de prestación de los servicios, podrá dispensar a determinados funcionarios de la marca mediante tarjeta que en este Capítulo se establece.

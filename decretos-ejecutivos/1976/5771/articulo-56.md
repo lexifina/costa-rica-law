@@ -1,0 +1,1 @@
+Artículo 56.—Corresponde a los jefes inmediatos sancionar a sus empleados cuando se hagan acreedores de una amonestación verbal o escrita y enviar una copia al Departamento de Personal, cuando aquella fuere escrita, o informar a ese Departamento cuando fuere verbal.
