@@ -27,3 +27,4 @@ Expediente Nº 13.985. Creación de la Procuraduría de la ética pública.
 ?Expediente Nº 13.987. Creación de la Fiscalía Penal de Hacienda y de la función pública.
 ?Expediente Nº 14.340. Reforma a la Ley General de Aduanas, Nº 7557 del 20 de octubre de 1995.
 (Así ampliado expresamente por el artículo 1 del Decreto Ejecutivo No. 29704-MP del 9 de agosto de 2000).
+(Así ampliado expresamente por el artículo 1 del Decreto Ejecutivo No. 29727 del 20 de agosto de 2001).
