@@ -14,3 +14,4 @@ Reglamento para Uso de Vehículos Automotores del Ministerio de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-08 | la propia norma |
+| 2 | 2002-11-25 | Decreto Ejecutivo 30865 (2002-11-25) |

@@ -1,0 +1,2 @@
+Artículo 44.—Definición de controles internos adicionales: La Oficialía Mayor y Dirección General definirá las normas y procedimientos de control interno adicionales que estime necesarias, tendientes a lograr el más racional, adecuado, eficiente y equitativo uso de los vehículos del Ministerio.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 30865 de 25 de noviembre del 2002, que lo paso del 41 al 44)

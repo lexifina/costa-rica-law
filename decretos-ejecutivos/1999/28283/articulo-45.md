@@ -1,0 +1,2 @@
+Artículo 45.—Responsabilidad por cumplimiento de normativa reglamentaria: Es responsabilidad exclusiva de cada chofer o conductor y del Jefe de la Unidad de Transportes, en lo que corresponda a cada uno, observar el debido cumplimiento de lo establecido en este Reglamento.
+(Así modificada su numeración por el artículo 2 del decreto ejecutivo N° 30865 de 25 de noviembre del 2002, que lo paso del 42 al 45)
