@@ -1,0 +1,1 @@
+Art 4° El aprovechamiento de cualesquiera de los recursos naturales de la reserva sólo será permitido bajo normas técnicas que la Dirección General Forestal aprobará en su oportunidad y según la zonificación que para tal efecto se establezca.
