@@ -1,0 +1,1 @@
+Articulo 2°—Para ése fin, la Municipalidad del cantón central de San José, levantará un censo de los actuales poseedores en precario de los terrenos que va a donar, determinará el área que corresponde a cada parcela ocupada y los linderos que la enmarcan.

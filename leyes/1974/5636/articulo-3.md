@@ -1,0 +1,1 @@
+Artículo 3°—Quienes pretendan la condición de ocupantes actuales deberán probar ese extremo a satisfacción de la Municipalidad de San José, por lo cual demostrarán que han ejercido posesión por varios años sobre el lote respectivo. Asimismo, deberán probar que no tienen bienes inmuebles inscritos a su nombre o a nombre de su cónyuge, compañero o compañera en su caso.
