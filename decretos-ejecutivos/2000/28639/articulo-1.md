@@ -142,3 +142,5 @@ para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y S
 respecto del Patronato de Construcciones, Instalaciones y Adquisición de Bienes)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29351 de 13 de marzo del 2001,
 para la Junta de Protección Social)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29503 de 23 de marzo del 2001,
+respecto del Programa Integral de Mercadeo Agropecuario)
