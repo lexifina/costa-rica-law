@@ -1,0 +1,1 @@
+Artículo 9º.- La Autorización para establecer una empresa, dentro de las zonas procesadoras de exportación, será otorgada por el Ministerio de Economía, Industria y Comercio, previa recomendación de la Corporación.

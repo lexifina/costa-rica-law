@@ -1,0 +1,8 @@
+Artículo 3º.- La Corporación queda facultada para:
+a) Construir o contratar la construcción de los edificios necesarios para el buen funcionamiento de las zonas procesadoras de exportación, ya sea para uso propio, o para ser arrendados a las empresas que se establezcan en ellas.
+b) Dar en arrendamiento propiedades y tierras, propias, o que le hayan sido dadas en administración, para que las empresas puedan construir, hacer construir o modificar por cuenta propia, los edificios diseñados para llenar sus requisitos específicos. Las construcciones y mejoras hechas en inmuebles de la Corporación, al término del arrendamiento, pasarán a ser propiedad de la Corporación, sin costo alguno de su parte, si el propietario no quesiere desmantelarlas y llevárselas por su cuenta, dentro del plazo señalado por la Corporación.
+c) Establecer las facilidades aduaneras, de seguridad y de salubridad necesarias, de acuerdo con los con los requerimientos y recomendaciones de los Ministerio de Hacienda y de Salud, y del Instituto Nacional de Seguros, según sea el caso.
+ch) Construir, contratar y coordinar con las instituciones estatales respectivas, la construcción de instalaciones de infraestructura y servicios públicos necesarios, para el debido cumplimiento de sus fines.
+d) Recomendar, canalizar y regular los respectivos permisos de las empresas, que deseen establecerse en las zonas procesadoras de exportación, en coordinación con las instituciones gubernamentales correspondientes.
+e) Estimular la formación y el establecimiento de industrias en las zonas procesadoras de exportación.
+f) Ejecutar cualesquiera otros actos lícitos, que sean necesarios para el cumplimiento de sus fines.

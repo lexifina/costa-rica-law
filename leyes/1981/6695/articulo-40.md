@@ -1,0 +1,1 @@
+Artículo 40.- Los reglamentos a que se refiere la presente ley, deberán estar confeccionados y promulgados por las instituciones respectivas, en un plazo no mayor de noventa días, contados a partir de la publicación de esta ley. La falta de reglamentación, a que se refiere este artículo, no impedirá la aplicación de la ley.

@@ -1,0 +1,5 @@
+Artículo 33.- El Ministerio de Economía, Industria y Comercio podrá revocar, sin responsabilidad para el Estado, el otorgamiento de los incentivos fiscales a las personas beneficiarias, en los siguientes casos:
+a) Cuando dieren uso o destino diferente al especificado en el acuerdo respectivo, a la maquinaria, equipo, materias primas, productos semielaborados y cualesquiera otros artículos que la empresa haya adquirido al amparo de los incentivos otorgados;
+b) Cuando la persona beneficiaria no haya cumplido con las condiciones mínimas, fijadas en el acuerdo, especialmente en el mantenimiento del nivel ocupacional y los requisitos de inversión;
+c) cuando por causa imputable al beneficiario, no se diere inicio a las operaciones de la empresa en el plazo señalado en el acuerdo respectivo; y
+ch) Por incumplimiento o violación a las disposiciones de la presente ley y sus reglamentos, o cuando el beneficiario se haya hecho acreedor a la imposición de una o más multas, en el mismo ejercicio fiscal, cuyo monto conjunto sea igual o exceda de cincuenta mil colones.
