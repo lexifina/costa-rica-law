@@ -7,5 +7,6 @@ Cuando fallecieren los expresidentes y exvicepresidentes de la República la pen
 Tendrán derecho a una pensión igual a la de las viudas de los ex Presidentes o ex Vicepresidentes de la República, aquellas personas que hubieran tenido la condición de Primera Dama.
 (Así adicionado el párrafo anterior por el artículo 9° punto 49) de la ley de Presupuesto, N° 6542 del 22 de diciembre de 1980)
 Tendrán derecho a una pensión igual a la de las viudas de los ex Presidentes o ex Vicepresidentes de la República, aquellas personas que hubieran tenido la condición de Primera Dama.
-(Así adicionado el párrafo anterior por el punto 48) de la ley de Presupuesto N° 6700 del 23 de diciembre de 1981. Nótese que el párrafo adicionado por la ley en mención ya había sido adicionado anteriormente por el artículo 9 punto 49) de la ley de Presupuesto, N° 6542 del 22 de diciembre de 1980)
+(Así adicionado el párrafo anterior por el punto 48) artículo 9 de la ley de Presupuesto N° 6700 del 23 de diciembre de 1981. Nótese que el párrafo adicionado por la ley en mención ya había sido adicionado anteriormente por el artículo 9 punto 49) de la ley de Presupuesto, N° 6542 del 22 de diciembre de 1980)
 (Así reformado por el artículo 1° de la ley N° 6413 del 5 de mayo de 1980)
+(Nota de Sinalevi: El artículo 29 de la Ley de Presupuesto No.7108 del 08 de noviembre de 1988 dispone que: "El monto de las pensiones de los señores ex Presidentes de la República será igual al monto del salario de un diputado.")
