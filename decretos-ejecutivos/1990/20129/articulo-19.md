@@ -1,0 +1,2 @@
+Artículo 19.—No se aceptará la inscripción de productos de paternidad dudosa, así como los hijos de fecundación artificial. Solo se admitirá la certificación de servicio por más de un semental, cuando entre el último salto del primer semental y el primer salto del siguiente semental, medie un lapso no menor de 50 días naturales.
+La paternidad se establecerá rigurosamente en relación con la gestación y al nacimiento y tomando en cuenta las características del producto. El Comité de Registro comprobará la paternidad por medio del tipo sanguíneo.

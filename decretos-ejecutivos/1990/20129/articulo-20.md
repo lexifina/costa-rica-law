@@ -1,0 +1,4 @@
+Artículo 20.—Para inscribir equinos en este registro, además de los requisitos anteriormente indicados, se debe considerar que sean aptos para la cría:
+a) Animales nacidos y criados dentro del territorio costarricense, hijos de padre y madre debidamente inscritos en el Registro Genealógico Costarricense de Caballos Pura Sangre.
+b) Productos de yeguas importadas en estado de preñez, debidamente inscritas en el Registro Costarricense. En este caso, el propietario deberá aportar como requisitos para la inscripción, el respectivo certificado de servicio y la constancia de inscripción del padrote en el registro autorizado oficialmente, donde se efectuó el servicio, o
+c) Animales nacidos en el extranjero, inscritos como puros en el registro oficial del país del que proceden y que su identidad, pedigrí y documentación estén a satisfacción del Comité de Registro.

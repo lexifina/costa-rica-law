@@ -1,0 +1,1 @@
+Artículo 9°—Al realizarse la solicitud de inscripción; el propietario propondrá un nombre para el producto. En el caso de que ya estuviera registrado otro animal con el mismo nombre, se comunicará al interesado, quien deberá indicar otro nombre dentro de un plazo de quince días naturales.

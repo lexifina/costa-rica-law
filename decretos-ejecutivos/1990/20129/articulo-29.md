@@ -1,0 +1,1 @@
+Artículo 29.—Todo lo concerniente al Registro, la interpretación de este reglamento, y lo no estipulado en él, será resuelto por el Comité mediante un simple acuerdo, y sus resoluciones deberán ser notificadas a los usuarios previa autorización del MAG.

@@ -1,0 +1,1 @@
+Artículo 12.—Transcurrido el plazo indicado, solo se aceptarán solicitudes de inscripción, siempre que se justifiquen las causas de la demora. La aceptación de una solicitud extemporánea quedará a juicio del Comité de Registro.

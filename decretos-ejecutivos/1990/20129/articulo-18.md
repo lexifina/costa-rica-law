@@ -1,0 +1,2 @@
+Artículo 18.—Los propietarios de yeguas madres inscritas en el Registro, declararán antes de tres meses después de ser servidas, en formularios proporcionados para ese efecto, el nombre de la yegua, el lugar en donde se encuentra el nombre del semental que la cubrió y las fechas de monta.
+Los propietarios de sementales que hayan servido yeguas de otros dueños, declararán antes de tres meses después de efectuado el hecho, en formulario especial, el nombre del semental, nombre de la yegua servida y las fechas y horas en que se efectuaron los saltos.

@@ -1,0 +1,1 @@
+Artículo 22.—Para los animales debidamente inscritos en este Registro y que salgan temporalmente del país, a su regreso deberán presentar ante el Comité del Registro una certificación de las pólizas de exportación e importación, anotándose esa información en los asientos del registro.

@@ -1,0 +1,1 @@
+Artículo 11.—Las solicitudes de inscripción deberán ser presentadas en un término no mayor de dos meses a partir de la fecha de nacimiento del producto. Para este efecto los interesados deberán llenar el formulario que proporcionará el Comité de Registro, indicando todos los elementos que identifiquen el animal (color, marcas, remolinos, tatuajes y tipo de sangre).
