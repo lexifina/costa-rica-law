@@ -1,0 +1,1 @@
+Artículo 10.—La Asociación, trimestralmente deberá rendir ante el Ministerio de Hacienda, un estado de cuenta avalado por un profesional en la materia en donde señale el producto neto obtenido por la venta de los huevos. Además debe aportar copia de documento probatorio, que ante la caja única del Estado se hizo el depósito correspondiente al 40% del producto neto obtenido.

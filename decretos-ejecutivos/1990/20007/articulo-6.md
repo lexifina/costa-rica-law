@@ -1,0 +1,1 @@
+Artículo 6°—La Asociación, para la comercialización de los huevos extenderá una factura de venta que deberá ser presentada por los interesados a las autoridades de policía v a los funcionarios de la Dirección General de Recursos Pesqueros y Acuacultura del Ministerio de Agricultura y Ganadería, cuando estos lo requieran.

@@ -1,0 +1,1 @@
+Artículo 8°—La Asociación, podrá donar con linos de sustento, hasta 100 huevos de tortuga lora por arribada, a cada jefe de familia de localidades circunvecinas que se apersonen al lugar a conseguir dicho producto, extendiendo un comprobante donde así lo señale.
