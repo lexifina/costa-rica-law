@@ -13,3 +13,4 @@ Reglamento Sobre Protección Contras las Radiaciones Ionizantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-08 | la propia norma |
+| 2 | 1998-04-22 | Decreto Ejecutivo 26983 (1998-04-22) |
