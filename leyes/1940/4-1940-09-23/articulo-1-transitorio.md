@@ -1,0 +1,2 @@
+Transitorios
+1°-Los que por más de treinta años hubieren desempañado cargos del Gobierno de la República en el Ramo de Comunicaciones que contempla esta ley, pero que actualmente se hallaren fuera del servicio; que observen buena conducta; que carezcan de patrimonio y cuya edad pase de los sesenta años, podrán pedir y obtener una pensión mensual equivalente a las dos terceras partes del último sueldo que devengaron.
