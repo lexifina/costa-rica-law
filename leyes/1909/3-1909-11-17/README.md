@@ -1,0 +1,9 @@
+# Ley de Informaciones Posesorias (1909)
+
+Ley N° 3 del 1909-11-17. SINALEVI, ficha 32050: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32050&param2=33804&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1919-07-28 | SINALEVI (1 normas) | 1909-11-17 |
