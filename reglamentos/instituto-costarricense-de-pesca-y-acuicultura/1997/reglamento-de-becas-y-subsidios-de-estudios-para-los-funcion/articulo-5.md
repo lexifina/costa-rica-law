@@ -1,0 +1,1 @@
+Articulo 5°—Para que un funcionario se haga acreedor a cualquiera de los beneficios contemplados en este Reglamento, deberá tener no menos 6 meses continuos de prestar servicios para el INCOPESCA y ser funcionario fijo en propiedad, salvo casos excepcionales debidamente fundamentados.

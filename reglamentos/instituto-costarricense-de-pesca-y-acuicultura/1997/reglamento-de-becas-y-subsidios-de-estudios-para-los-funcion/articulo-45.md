@@ -1,0 +1,1 @@
+Articulo 45.—El incumplimiento de las disposiciones establecidas en el presente Reglamento por parte de los funcionarios encargados de aplicarlo, se considerara una falta en la relación de servicio y sancionable de acuerdo con la gravedad del hecho.
