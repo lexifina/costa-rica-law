@@ -13,3 +13,4 @@ Norma Oficial de Productos Cárnicos.Clasificación y Características
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-15 | la propia norma |
+| 2 | 1997-03-11 | Decreto Ejecutivo 25982 (1997-03-11) |
