@@ -1,0 +1,2 @@
+Transitorio.- El Poder Ejecutivo, dentro de los seis meses siguientes a la promulgación de esta ley, deberá emitir el respectivo reglamento. En tanto no se promulgue éste, y en lo que no se oponga a la presente ley, se aplicará el reglamento de inscripción de planos, Decreto Ejecutivo número 9682-J del 1º de marzo de 1979.
+Presidencia de la República.-San José, a los veinticinco días del mes de marzo de mil novecientos ochenta y uno.
