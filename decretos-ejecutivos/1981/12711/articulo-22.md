@@ -1,0 +1,1 @@
+Artículo 22.—La Oficina de Planeamiento e Investigación llevará a cabo los estudios que sean necesarios para justificar la apertura, desarrollo y cierre de carreras cortas de nivel parauniversitario; así como la elaboración de aquellos proyectos tendientes al desarrollo integral de la institución.

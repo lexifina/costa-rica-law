@@ -1,0 +1,1 @@
+Artículo 24.—La coordinación general de carreras tendrá a cargo la dirección, organización y orientación de las carreras cortas de nivel parauniversitario propias de las instituciones. Cada carrera estará a cargo de un coordinador específico.

@@ -1,0 +1,1 @@
+Artículo 34.—Los estudiantes, además del cumplimiento de los requisitos académicos y administrativos, deberán reunir condiciones morales acordes con su condición y mantener una actitud constante de superación, crítica, respeto y disciplina.

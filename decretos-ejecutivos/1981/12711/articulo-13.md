@@ -1,0 +1,1 @@
+Artículo 13.—Los integrantes del Consejo Directivo que no sean funcionarios de la institución tendrán una retribución económica por concepto de asistencia a sesiones fijada en el presupuesto. No podrá retribuirse más de cuatro sesiones al mes. El representante estudiantil gozará de exención de pago por concepto de matrícula y laboratorios.

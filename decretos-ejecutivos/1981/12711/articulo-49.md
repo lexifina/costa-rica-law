@@ -1,0 +1,1 @@
+Artículo 49.—Los institutos o escuelas de educación superior parauniversitaria privados tendrán como mínimo un Director, responsable directo de la administración y a quien corresponderé la representación judicial y extrajudicial.

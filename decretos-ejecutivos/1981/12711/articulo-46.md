@@ -1,0 +1,1 @@
+Artículo 46.—Toda operación o contratación que realicen los colegios universitarios deberá ser ejecutada conforme lo señala la Ley de la Administración Financiera de la República y la Ley General de la Administración Pública.

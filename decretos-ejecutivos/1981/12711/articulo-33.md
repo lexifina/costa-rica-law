@@ -1,0 +1,1 @@
+Artículo 33.—Los estudiantes tendrán derecho a representación en aquellos órganos que el presente reglamento y las disposiciones internas de cada institución señalen. El representante ante el Consejo Directivo será nombrado en Asamblea General de Estudiantes de la institución.

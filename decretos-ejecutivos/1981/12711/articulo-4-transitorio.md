@@ -1,0 +1,1 @@
+IV.—Los institutos o escuelas de Educación Superior Parauniversitaria Privados que a partir de la vigencia de este reglamento tengan también carreras de niveles diferentes al Superior Parauniversitario, contarán con un plazo de seis meses para ubicar en personas jurídicas diferentes los niveles de educación que atienden.

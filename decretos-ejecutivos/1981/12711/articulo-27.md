@@ -1,0 +1,1 @@
+Artículo 27.—El personal de los Colegios Universitarios estará excluido del régimen de Servicio Civil. No obstante, la valoración de sus puestos será la que fije la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 60.—La solicitud de reconocimiento de un instituto o escuela de Educación Superior Parauniversitaria Privado debe ser presentada ante el Consejo Superior de Educación por el representante legal de la entidad interesada, en oficio debidamente autenticado y con estricta sujeción a las disposiciones legales y reglamentarias correspondientes.
