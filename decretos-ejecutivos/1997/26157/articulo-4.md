@@ -1,0 +1,1 @@
+Artículo 4°-La Comisión definirá su régimen interno de funcionamiento y la periodicidad de sus reuniones. Harán quórum para sesionar cinco de sus miembros y sus acuerdos se tomarán por mayoría simple de votos presentes.
