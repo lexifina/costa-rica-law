@@ -1,0 +1,1 @@
+Artículo 3° Queda autorizado el Poder Ejecutivo para hacer en los diferentes ramos de la Administración Pública las modificaciones que creyere indispensables y reorganizar el servicio de las oficinas de su dependencia, pudiendo hacer en los sueldos y gastos las alteraciones necesarias.
