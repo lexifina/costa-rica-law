@@ -1,0 +1,1 @@
+Artículo 166.—Siempre que en las Zonas de Control Especial se permita el uso de estacionamientos públicos o privados, o terminales de transporte publico, lo será en arreglo a lo estipulado en el Reglamento de Vialidad y Transporte del P. D.U.

@@ -1,0 +1,1 @@
+Artículo 211.—USO A FOMENTAR. Tiendas de artesanía, restaurantes, oficinas de servicios profesionales, servicios personales complementarios al uso residencial, hoteles, instalaciones culturales y similares.

@@ -1,0 +1,1 @@
+Artículo 234.—Toda restauración o ampliación que se haga de un edificio declarado Patrimonio si. debe ser aprobado por las Instituciones correspondientes y en especial por el Ministerio de Cultura, Juventud y Deportes quienes velarán porque se mantengan los trazos del diseño original, siempre tomando en cuenta lo estipulado en las normas internacionales para estos efectos.

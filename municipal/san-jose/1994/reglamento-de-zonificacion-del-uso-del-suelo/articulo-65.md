@@ -1,0 +1,1 @@
+Artículo 65.—En lo relativo a nuevas urbanizaciones se aplicarán las disposiciones que se encuentren vigentes en el Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones en sus artículos III.3.6.3. y III 3.6.3.2, relativo a los servicios comunales y particulares.

@@ -1,0 +1,1 @@
+Artículo 243.—Para proteger los sitios de valor Histórico y Cultural de interés Municipal, ésta procederá a recaudar los fondos necesarios, con Organismos Internacionales. Países Amigos, Fundaciones y fundamentalmente haciendo convenios con los propietarios de los edificios u obras, motivándolos para que ellos continúen con el ejercicio de dichas actividades.

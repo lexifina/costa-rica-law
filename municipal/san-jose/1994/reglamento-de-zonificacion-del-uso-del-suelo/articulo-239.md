@@ -1,0 +1,1 @@
+Artículo 239.—La Municipalidad conjuntamente con el Ministerio de Cultura Juventud y Deportes sentará las bases para llevar a cabo un verdadero inventario del Patrimonio Histórico Cultural del Camón proponiendo los edificios y sitios de valor histórico cultural, paisajístico y urbanístico que deben ser protegidos.

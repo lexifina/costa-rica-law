@@ -1,0 +1,1 @@
+Artículo 53.—La estructura urbana propuesta para el Cantón pretende crear un espacio agradable, funcional y eficiente, con un ordenamiento territorial que responda a las exigencias del rol a jugar por la ciudad capital. En cada UNIDAD se establece el uso del suelo predominante y, si es del caso, usos complementarios.

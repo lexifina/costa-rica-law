@@ -1,0 +1,1 @@
+Artículo 13.—El Certificado de conformidad o no conformidad del Uso del Suelo, debe ser exigido como un requisito previo e indispensable por parte de cualquier dependencia pública o privada que autorice construcciones, ampliaciones, remodelaciones, urbanizaciones, industrias, parques industriales, etc.

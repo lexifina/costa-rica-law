@@ -1,0 +1,1 @@
+Artículo 10.—Las propuestas de modificación al P.D.U., tendrán por fundamento los estudios realizados por el órgano de planificación urbana de la Municipalidad, para lo cual podrán utilizarse estudios y la asesoría de otras instituciones, de empresas o agencias de cooperación, que se consideren relevantes.

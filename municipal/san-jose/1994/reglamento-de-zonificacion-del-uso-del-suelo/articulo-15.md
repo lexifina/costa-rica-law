@@ -1,0 +1,1 @@
+Artículo 15.—Para el trámite de patentes también se exigirá la presentación del Certificado de Uso del Suelo correspondiente, de conformidad con el artículo 29 de la Ley de Planificación Urbana. La concesión de patentes queda condicionada a la conformidad de la actividad con los usos permitidos por el P.D.U. en cada zona.

@@ -1,0 +1,1 @@
+Artículo 241.—La Municipalidad podrá establecer "Distritos Históricos", zonas de control especial, planes parciales. proyectos de rehabilitación- en porciones del suelo urbano de San José, que pueden tener como núcleo ceñirá uno o varios edificios de importancia, preservando las casas, edificios y demás elementos urbanos en sus alrededores.

@@ -1,0 +1,2 @@
+Artículo 41.—COBERTURA. Se define como la proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
+La cobertura de construcción será establecida para cada una de las zonas, de acuerdo con la intensidad del uso del suelo que se quiera lograr en cada una de ellas, lo cual estará determinado por la infraestructura y servicios que haya en cada una de las zonas, así como por el upo de uso del suelo a que se desune el terreno de que se trate.

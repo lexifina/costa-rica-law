@@ -1,0 +1,1 @@
+Artículo 82.—USOS MIXTOS. En algunas áreas indicadas como de uso mixto también se permiten actividades comerciales y de servicios considerados compatibles, tal como se detalla en el título X de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 49.—OCHAVAS. Las edificaciones en lotes esquineros que dejen un retiro mayor al exigido, para conformar espacios urbanos esquineros más amplios y así aumentar la concavidad en las esquinas, podrán obtener como incentivo la posibilidad de aumentar la altura. Para lo anterior se aplicará lo expuesto en artículo 44, en sus dos últimos párrafos.

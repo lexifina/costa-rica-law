@@ -1,0 +1,1 @@
+Artículo 79.—Los requisitos que se exigen a las viviendas ubicadas en zonas no residenciales serán fijados de acuerdo a la densidad máxima permitida en esa zona. Para estos efectos se consultará el Plano de Densidades Residenciales.

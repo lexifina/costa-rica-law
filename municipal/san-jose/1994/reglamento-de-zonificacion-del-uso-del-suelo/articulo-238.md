@@ -1,0 +1,1 @@
+Artículo 238-—La Municipalidad coordinara con el Ministerio de Cultura, Juventud y Deportes, a efecto de que los inmuebles propiedad de particulares reciban el mantenimiento adecuado durante los dos años que dure la opción de compra.

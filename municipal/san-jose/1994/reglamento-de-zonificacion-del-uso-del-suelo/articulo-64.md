@@ -1,0 +1,1 @@
+Artículo 64.—Cuando la actividad comercial no sea complemento de la residencial, únicamente se otorgará la respectiva patente si se asegura la total independencia funcional y espacial entre ambas actividades, lo cual debe verificar el Ministerio de Salud antes de que la Municipalidad otorgue la respectiva licencia de funcionamiento.

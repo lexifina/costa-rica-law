@@ -1,0 +1,1 @@
+Artículo 233.—Cuando transcurridos los dos años de la opción de compra de que dispone el para formalizar la compra-venta. sin que esta se haya formalizado, el propietario del edificio e demoler, ampliar y restaurar, debe acreditar ante las instituciones correspondientes tal hecho para obtener el correspondiente permiso.

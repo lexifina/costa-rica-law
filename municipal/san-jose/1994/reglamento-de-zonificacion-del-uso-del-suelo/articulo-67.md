@@ -1,0 +1,3 @@
+CAPITULO II
+Zona Residencial Alta Densidad ( Zrad )
+Artículo 67.—PROPOSITO. Es la parte del suelo urbanizado o urbanizable del Cantón, donde se persigue el uso más intenso del suelo. Esta ubicada como se señala en los Mapas de Uso de Suelo y Densidades Residenciales y abarca la nueva área residencial propuesta en Pavas, donde está el aeropuerto Tobías Bolaños y sus alrededores. El objetivo es lograr un estándar de densidad neta de 150 viviendas por hectárea, mediante la construcción de conjuntos residenciales multifamiliares. No obstante el cálculo de la densidad máxima estará sujeto a la capacidad de la infraestructura básica existente en la zona.
