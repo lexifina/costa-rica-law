@@ -1,0 +1,3 @@
+Art 2° El Congreso niega su aprobación al Decreto n°12 de 6 de abril del presente año, que atribuye al Inspector y Subinspector de Hacienda, a prevención con los Gobernadores de las provincias y comarcas, el conocimiento de las causas sobre delitos de contrabando, con recurso al Poder Ejecutivo y establece penas corporales contra sus autores, cómplices, auxiliadores o fautores por consiguiente, dicho decreto no será considerado en lo sucesivo como ley de la República.
+Al Poder Ejecutivo. – Dado en el Salón de Sesiones, Palacio Nacional, San José, julio cinco de mil ochocientos setenta y seis.
+Palacio Nacional, San José, julio cinco de mil ochocientos setenta y seis.
