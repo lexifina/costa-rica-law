@@ -14,3 +14,4 @@ Establece División Regional del Territorio de Costa Rica, para los efectos de i
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-02-02 | la propia norma |
+| 2 | 1979-01-11 | Decreto Ejecutivo 9501 (1979-01-11) |
