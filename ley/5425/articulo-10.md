@@ -1,2 +1,0 @@
-Artículo 10
-Los Estados Contratantes se comprometen a realizar las gestiones necesarias para poner en vigor, antes del 30 de junio de 1975, una nueva política arancelaria común, que, entre otras cosas, se haga cargo de la solución de los problemas que el vencimiento de los beneficios fiscales pudiera ocasionar a las empresas clasificadas, en el entendido de que aquélla no será sustitutiva de una política de fomento a las actividades manufactureras, sino que esta materia deberá ser parte de un esquema integral de política industrial.
