@@ -1,0 +1,4 @@
+ARTÍCULO 5.- Este Protocolo queda abierto a la adhesión de las
+Repúblicas de Honduras y de Nicaragua, en el marco del Plan de Acción para
+la Implementación del Tratado de Libre Comercio, instrumento que sirvió de
+base para la negociación de este Protocolo.
