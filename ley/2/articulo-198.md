@@ -1,2 +1,4 @@
-Artículo 198.- Queda terminantemente prohibida la introducción y el uso
-de bebidas o drogas embriagantes en los lugares de trabajo.
+ARTICULO 198.-
+Cuando el trabajo que se ejecuta actúe directamente como factor desencadenante, acelerante o agravante de un riesgo del trabajo, ni la predisposición patológica, orgánica o funcional del trabajador, ni la enfermedad preexistente, serán motivos que permitan la disminución del porcentaje de impedimento que debe establecerse, siempre que medie, en forma clara, relación de casualidad entre el trabajo realizado y el riesgo ocurrido, y que se determine incapacidad parcial o total permanente.
+En los demás casos en que se agraven las consecuencias de un riesgo de trabajo, sin que se determine incapacidad parcial o total permanente. La incapacidad resultante se valorará de acuerdo con el dictamen médico sobre las consecuencias que, presumiblemente, el riesgo hubiera ocasionado al trabajador, sin la existencia de los citados factores preexistentes, pudiendo aumentar el porcentaje de incapacidad permanente que resulte, hasta en un diez por ciento de la capacidad general.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

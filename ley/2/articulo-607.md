@@ -1,7 +1,2 @@
-Artículo 607.- Salvo disposición especial en contrario, todos los
-derechos y acciones provenientes de este Código, de sus Reglamentos y
-de sus leyes conexas, que no se originen en contratos de trabajo,
-prescribirán en el término de tres meses. Este plazo correrá para los
-patronos desde el acaecimiento del hecho respectivo y para los
-trabajadores desde el momento en que estén en posibilidad efectiva de
-reclamar sus derechos o de ejercitar las acciones correspondientes.
+ARTICULO 607.- Salvo disposición especial en contrario, todos los derechos y acciones provenientes de este Código, de sus Reglamentos y de sus leyes conexas, que no se originen en contratos de trabajo, prescribirán en el término de tres meses. Este plazo correrá para los patronos desde el acaecimiento del hecho respectivo y para los trabajadores desde el momento en que estén en posibilidad efectiva de reclamar sus derechos o de ejercitar las acciones correspondientes.
+(Interpretado en cuanto al plazo de la prescripción que corre para los trabajadores por Resolución de la Sala Constitucional Nº 5969-93 de las 15:21 horas del 16 de noviembre de 1993 y aclarado por Resolución 280-I-94 de las 14:32 horas del 7 de junio de 1994)

@@ -1,21 +1,5 @@
-Artículo 538.- Cuando la denuncia se hiciere ante una autoridad
-política o de trabajo, ésta debe poner el caso en conocimiento del
-respectivo Juez de Trabajo a la mayor brevedad que le sea posible; y
-mientras no reciba instrucciones concretas del citado funcionario
-judicial, empezará a levantar la información sumaria correspondiente en
-averiguación de lo hechos.
-El Juez, una vez recibida la denuncia, podrá constituirse en el
-lugar donde ocurrió el riesgo profesional o comisionar, de conformidad
-con lo dispuesto por el artículo 414, a cualquier autoridad judicial,
-política o de trabajo de su jurisdicción territorial para que continúe
-levantando la información del caso, parcialmente o hasta poner el asunto
-en estado de fallar.
-Para ese efecto, el Juez podrá elegir a la autoridad con
-jurisdicción en el lugar donde ocurrió el hecho o donde esté situado el
-establecimiento al que concurre el trabajador a prestar sus servicios.
-Si el patrono y la víctima, o los causahabientes de ésta, en caso de
-muerte, tuvieren el mismo domicilio, podrá también comisionar a la
-autoridad cuya jurisdicción corresponda a dicho domicilio.
-Cualquier diligencia que hubiere de practicarse fuera de la
-jurisdicción de la autoridad comisionada, se encargará a la del lugar
-donde deba aquélla verificarse.
+SECCION IV
+Disposiciones comunes a los procedimientos de conciliación y de arbitraje:
+ARTICULO 538.- Los Tribunales de Conciliación y de Arbitraje tienen la más amplia facultad para obtener de las partes todos los datos e informes confidenciales necesarios para el desempeño de su cometido, los que no podrá divulgar sus miembros sin previa autorización de quien los haya dado, bajo pena de las sanciones que prevén los artículos 409, párrafo segundo, de este Código y 256 del Código Penal.
+Cada litigante queda obligado, bajo apercibimiento de tener por ciertas y eficaces las afirmaciones de la otra parte, a facilitar por todos los medios a su alcance la realización de estas investigaciones.
+(La Sala Constitucional, mediante resolución N° 1696 del 23 de junio de 1992, declaró inconstitucional el presente artículo “…respecto de las administraciones públicas con régimen de empleo de naturaleza pública…”. “…Igualmente, considera necesario la Sala hacer la aclaración de tener por excluidos de este régimen, a los obreros, trabajadores y empleados que no participan de la gestión pública de la administración, cuando los mismos sean contratados por el Estado conforme al ejercicio de su capacidad de Derecho Privado…” De acuerdo con el contenido de la sentencia, los procedimientos de resolución de los conflictos colectivos de carácter económico y social, no son aplicables del todo a las administraciones regidas por el derecho público de empleo, ni al resto de las administraciones, en tanto no se subsanen las omisiones referentes a la falta de un régimen administrativo laboral adecuado a nuestro texto constitucional, y no se cree una norma administrativa expresa que permita al Estado, someterse a los tribunales de arbitraje en aras de solucionar conflictos colectivos.)

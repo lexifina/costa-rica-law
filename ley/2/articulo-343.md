@@ -1,9 +1,4 @@
-Artículo 343.- En todo caso, el capital sólo podrá disminuirse hasta
-en el cincuenta por ciento de su cifra inicial y siempre que se halle
-distribuido por lo menos entre el número de socios con que se constituyó
-la cooperativa.
-La disminución de capital que se acuerde en una Asamblea General
-deberá comunicarse a los socios inasistentes sin pérdida de tiempo, por
-medio de un aviso que se insertará tres veces consecutivas en el Diario
-Oficial y sólo surtirá efectos treinta días después de aquél en que se
-hizo por primera vez dicha publicación.
+ARTICULO 343.- Se reconoce a los patronos y a los trabajadores el derecho de formar sindicatos sin autorización previa, pero dentro de los treinta días siguientes deberán iniciar los trámites a que se refiere el artículo siguiente:
+Sin embargo, no podrá constituirse ninguno con menos de doce miembros si se trata de un sindicato, ni con menos de cinco patronos de la misma actividad, cuando se trate de sindicatos patronales.
+(Así reformado el párrafo anterior por el artículo 2º de la ley N° 7360 del 4 de noviembre de 1993)
+(Así reformado por la Ley sobre Riesgos del Trabajo Nº 6727 de 9 de marzo de 1982, artículo 2º, que reubicó el antiguo artículo 273 al presente)

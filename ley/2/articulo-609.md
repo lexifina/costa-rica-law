@@ -1,7 +1,3 @@
-Artículo 609.- En materia de faltas se aplicará supletoriamente el
-Código de Policía en cuanto se refiere a extinción y prescripción de la
-acción penal y de la pena, efectos de la sentencia condenatoria,
-aplicación de las penas y demás disposiciones contenidas en la parte
-general del mencionado Cuerpo de Leyes, siempre que no hubiere
-incompatibilidad con las disposiciones legales relativas al trabajo o
-con las leyes de previsión social.
+ARTICULO 609.- En esta materia, el juzgador apreciará la prueba, con base en las reglas de la sana crítica y en las circunstancias de hecho del respectivo proceso.
+Para los efectos de su sanción, las faltas se tendrán por cometidas desde el momento en que se produzcan.
+(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)

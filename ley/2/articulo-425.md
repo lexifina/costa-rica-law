@@ -1,9 +1,1 @@
-Artículo 425.- Cuando por impedimento, recusación, excusa u otro
-motivo, un miembro del Tribunal Superior de Trabajo tuviere que
-separarse del conocimiento de un negocio determinado, se procederá de
-conformidad con estas disposiciones:
-a) El Presidente será sustituído por un Magistrado suplente, que con
-ese fin será sorteado por la Corte Plena, y
-b) Los otros miembros del Tribunal serán sustituídos por sus
-respectivos suplentes y, en defecto de éstos, la Corte Plena
-elegirá libremente al representante que corresponda.
+ARTICULO 425.- Si un litigante interpusiere la excepción de incompetencia con notoria temeridad, a fin de retrasar el curso del juicio, el Tribunal encargado de resolverla, le impondrá como corrección disciplinaria una multa de veinticinco a cien colones. El monto de esta sanción se regulará atendiendo a la calidad de patrono o de trabajador de quien interpuso el incidente y se aplicará sólo al abogado director cuando el litigante lo tuviere.

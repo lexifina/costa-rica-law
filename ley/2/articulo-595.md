@@ -1,3 +1,1 @@
-Artículo 595.- Los Inspectores de Trabajo gozarán de franquicia
-telegráfica cuando tengan que comunicarse, en casos muy urgentes y para
-asuntos propios de su cargo, con otras autoridades o con el Superior.
+ARTICULO 595.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

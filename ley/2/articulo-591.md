@@ -1,11 +1,1 @@
-Artículo 591.- Los Inspectores de Trabajo tendrán derecho a visitar
-los lugares de trabajo, cualquiera que sea su naturaleza, en distintas
-horas del día y aun de la noche, si el trabajo se desarrollare durante
-ésta. Podrán revisar libros de contabilidad, de salarios, planillas,
-medios de pago y cualesquiera otros documentos y constancias que
-eficazmente lea ayuden a realizar su cometido; y si encontraren
-resistencia injustificada darán cuenta de lo sucedido al Juez de Trabajo
-que corresponda.
-En casos especiales y en los que la acción de los Inspectores deba
-ser inmediata, podrán requerir el auxilio de las autoridades de policía,
-únicamente para que no se les impida el cumplimiento de sus deberes.
+ARTICULO 591.- .-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

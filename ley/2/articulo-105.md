@@ -1,8 +1,2 @@
-Artículo 105.- En los contratos de trabajo relativos al servicio
-doméstico los primeros quince días se considerarán de prueba y
-cualquiera de las partes puede ponerles fin por su propia voluntad, sin
-aviso previo ni responsabilidad.
-Después de este período será necesario dar un aviso con quince días
-de anticipación o, en su defecto, abonar el importe correspondiente;
-pero si el servidor doméstico tiene más de un año de trabajo continuo,
-deberá observar la regla del inciso c) del artículo 28.
+ARTICULO 105.- En los casos de enfermedad calificada como de declaración obligatoria por el artículo 153 del Código Sanitario, si el patrono o el servidor doméstico se vieren expuestos a contagio, podrán suspender el contrato de trabajo durante el tiempo que dure la enfermedad, salvo que ésta hubiere sido contraída en los términos del párrafo final del inciso h) del artículo anterior.
+( Así reformado por Ley Nº 3458 de 20 de noviembre de 1964, art. 1º).

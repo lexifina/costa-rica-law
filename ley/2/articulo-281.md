@@ -1,6 +1,2 @@
-Artículo 281.- La Secretaría de Trabajo y de Previsión Social también
-ordenará la disolución de los sindicatos que, a su juicio, dejen de
-llenar los requisitos que para su constitución señalan los artículos 273
-párrafo segundo, y 275, inciso e). Sin embargo, oirá previamente por
-un término no menor de diez días las razones que en defensa de la
-asociación pueda aducir su Presidente o Secretario General.
+ARTICULO 281.- El consejo preparará, en coordinación con la Oficina de Planificación Nacional y Política Económica, un plan nacional de salud ocupacional para corto, mediano y largo plazo, al cual deberá ajustar sus planes anuales de trabajo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,7 +1,2 @@
-Artículo 334.- Los socios salientes por cualquier causa continuarán
-respondiendo por las obligaciones contraídas por la cooperativa hasta
-el momento de su retiro o exclusión, durante uno o tres años, contados
-desde su salida, según sea la sociedad de responsabilidad suplementada
-o ilimitada.
-En el caso previsto por el inciso a) del artículo 299, la
-responsabilidad del socio cesa con su salida.
+ARTICULO 334.- Las organizaciones sociales no podrán conceder privilegios ni ventajas especiales a sus fundadores y directores, salvo las que sean inherentes al desempeño de un cargo; invariablemente se regirán por los principios democráticos del predominio de las mayorías, del voto secreto y de un voto por persona, sin que pueda acordarse preferencia alguna en virtud del número de acciones, cuotas o capital que sus socios hayan aportado.
+(Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo 2º, trasladó el original artículo 264 al presente)

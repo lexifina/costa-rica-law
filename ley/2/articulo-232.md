@@ -1,4 +1,5 @@
-Artículo 232.- Cuando la víctima tuviere que acudir a los Tribunales
-de Trabajo por llamamiento de éstos, el patrono reconocerá al trabajador
-y, si el estado del damnificado lo exige, a sus acompañantes, los gastos
-de traslado, permanencia y pérdida de tiempo en que incurrieren.
+ARTICULO 232.- Cuando un trabajador que no esté asegurado sufra un riesgo del trabajo, y acuda al Instituto Nacional de Seguros, o a cualquier hospital, clínica o centro de salud, público o privado, en demanda de las prestaciones médico-sanitarias y de rehabilitación que establece este Título, tendrá derecho a que se le suministren de inmediato los servicios que su caso requiera. En este caso el patrono podrá nombrar un médico, para que controlo el curso del tratamiento que se le suministre al trabajador.
+Las instituciones prestatarias de esa asistencia cobrarán el costo de ésta al patrono, para el cual el trabajador prestaba sus servicios al ocurrir el riesgo.
+Para los efectos del cobro, constituirán título ejecutivo, de acuerdo con los términos del artículo 425 del Código de Procedimientos Civiles, las certificaciones expedidas por el Jefe del Departamento de Riesgos de Trabajo del Instituto Nacional de Seguros, por la Subgerencia Médica de la Caja Costarricense de Seguro Social, o por directores de las instituciones privadas.
+Igual procedimiento seguirá el Instituto Nacional de Seguros para el cobro de cualquier suma que se le adeude, derivada de la aplicación del régimen de riesgos del trabajo que establece este Código.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

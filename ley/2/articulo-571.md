@@ -1,8 +1,2 @@
-Artículo 571.- Para el cobro de las multas procederán los Jueces
-de Trabajo como se dispone en los artículo 36 y 37 del Código de
-Policía; éstas se aplicarán a favor de la Secretaría de Trabajo y de
-Previsión Social, se destinarán a cubrir los gastos de que habla el
-último párrafo del artículo 524 y a otros fines análogos que determinará
-el Reglamento. Al efecto se dará aviso a la Contabilidad Nacional.
-Cuando la multa se hubiere satisfecho, el Secretario certificará
-en autos el recibo expedido por la Tesorería en donde fue pagada.
+ARTICULO 571.- A continuación de la diligencia que encabeza, serán practicadas en una sola acta la indagatoria y confesión de cargos del inculpado. Si el reo reconociere su falta, se procederá a continuación a dictar el fallo, por resolución formal, a más tardar dentro de las veinticuatro horas siguientes a aquélla en que concluyó la diligencia.
+Mas si el indicado negare el hecho que se le atribuye, se practicará la investigación sumaria del caso, dentro del término improrrogable de diez días y transcurrido ese plazo, o evacuadas las pruebas, será pronunciada en seguida sentencia, a más tardar cuarenta y ocho horas después.

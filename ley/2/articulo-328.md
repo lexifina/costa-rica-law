@@ -1,8 +1,2 @@
-Artículo 328.- Los miembros de la Junta Directiva y el Gerente que
-ejecuten o permitan ejecutar actos notoriamente contrarios a los
-intereses de la cooperativa, o que infrinjan la ley o los estatutos,
-responderán solidariamente con sus bienes de las pérdidas que dichas
-operaciones irroguen a la sociedad, sin perjuicio de las demás penas que
-les correspondan.
-El Director o Gerente que desee salvar su responsabilidad personal,
-solicitará que se haga constar su voto contrario en el libro de actas.
+ARTICULO 328.- En cuanto no contraríen el texto y los principios que contiene este Capítulo, se aplicarán las normas generales contenidas en otras disposiciones de este Código y del Código de Procedimientos Penales.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

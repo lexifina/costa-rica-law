@@ -1,5 +1,2 @@
-Artículo 470.- Todo habitante del país que no esté justamente impedido
-o comprendido por las excepciones de ley, tiene obligación de concurrir
-al llamamiento judicial que se le haga para declarar en un juicio de
-conocimiento de los Tribunales de Trabajo, sobre lo que fuere
-preguntado.
+ARTICULO 470.- Acerca de las excepciones opuestas, el Juez dará audiencia por tres días a la parte contraria, la cual podrá dentro de ese término, ofrecer la prueba que le interese.
+(Así reformado por el artículo 1 de la ley No.3702 del 22 de junio de 1966)

@@ -1,8 +1,3 @@
-Artículo 178.- El sistema que para la fijación de los salarios mínimos
-se establece en los siguientes artículos se aplicará a todos los
-trabajadores, con excepción de los que sirven al Estado o a sus
-Instituciones y cuya remuneración esté determinada en un presupuesto
-público. Sin embargo, aquél y éstas harán anualmente en sus respectivos
-presupuestos las rectificaciones necesarias a efecto de que ninguno de
-sus trabajadores devengue un salario inferior al mínimo que les
-corresponda.
+ARTICULO 178.-
+Los salarios mínimos que se fijen conforme a la ley regirán desde la fecha de vigencia del Decreto respectivo para todos los trabajadores, con excepción de los que sirven al Estado, sus Instituciones y Corporaciones Municipales y cuya remuneración esté específicamente determinada en el correspondiente presupuesto público. Sin embargo, aquél y éstas harán anualmente, al elaborar sus respectivos presupuestos ordinarios, las rectificaciones necesarias a efecto de que ninguno de sus trabajadores devengue salario inferior al mínimo que le corresponda.
+(Así reformado por el artículo 2° de la ley N° 3372 de 6 de agosto de 1964)

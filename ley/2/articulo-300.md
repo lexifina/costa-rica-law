@@ -1,11 +1,3 @@
-Artículo 300.- Ninguna cooperativa, especialmente las de consumo, de
-compra y venta, de habitación, podrá imponer en sus estatutos
-condiciones muy vigorosas para el ingreso de nuevos socios, capaces de
-impedir su crecimiento constante, armónico y ordenado.
-No obstante, se considerarán válidas las cláusulas que vinculen la
-calidad de socio a la de trabajador; las que pongan un límite máximo al
-monto de la fortuna o de los bienes que puedan poseer sus miembros, y
-las que restrinjan durante su primer año de actividades el ingreso de
-socios que no reúnan, a juicio de la Junta Directiva, condiciones de
-profesión, oficio o trabajo iguales o semejantes a las de los socios
-fundadores.
+ARTICULO 300.- Toda empresa que ocupe, permanentemente, más de cincuenta trabajadores está obligada a mantener una oficina o departamento de salud ocupacional.
+Reglamentariamente y en consulta con el Consejo de Salud Ocupacional, se establecerán los requisitos de formación profesional que deben tener las personas encargadas de tal oficina o departamento, para lo cual se tomará en cuenta el número de trabajadores de la empresa, la actividad a la cual se dedica y la existencia de recursos humanos especializados en salud ocupacional en el mercado de trabajo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

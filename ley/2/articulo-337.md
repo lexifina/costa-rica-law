@@ -1,9 +1,4 @@
-Artículo 337.- Se podrá estipular que el pago del setenta y cinco por
-ciento del capital suscrito se efectúe por cuotas a plazos semanales,
-mensuales o anuales, o que se entere el valor de las acciones que lo
-representan con una parte o con el todo de lo que corresponda a los
-socios y, en su caso, a los particulares, a título de excedentes.
-También se podrá estipular que el socio abone un módico derecho de
-admisión, el cual se destinará al fondo de reserva, o que cubra en
-ciertas circunstancias una cuota de solidaridad obligatoria. En estos
-casos no habrá derecho a retribución alguna.
+ARTICULO 337.- Corresponderá al Ministerio de Trabajo y Seguridad Social llevar a cabo, por medio de la Oficina de Sindicatos del Ministerio de Trabajo y Seguridad Social, la más estricta vigilancia sobre las organizaciones sociales, con el exclusivo propósito de que éstas funcionen ajustadas a las prescripciones de ley.
+Al efecto cumplirán las obligaciones y ejercerán el derecho de que habla el inciso f) del artículo 69.
+(El nombre de la institución fue cambiado por el artículo 1º de la ley Nº 3372 de 6 de agosto de 1964.
+(La Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982, artículo. 2º, trasladó el original 267 al presente)

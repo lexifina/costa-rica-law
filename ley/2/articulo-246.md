@@ -1,4 +1,2 @@
-Artículo 246.- Los servicios hospitalarios o asistenciales que el Banco
-Nacional de Seguros requiera de las instituciones privadas o públicas
-respectivas, se suministrarán por éstas al costo neto, con un recargo
-máximo del veinte por ciento.
+ARTICULO 246.- La renta a que se refiere este capítulo es anual, y se pagará en cuotas mensuales adelantadas, a partir del día en que cese la incapacidad temporal del trabajador, u ocurra su muerte, a consecuencia del infortunio.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,4 +1,1 @@
-Artículo 134.- Toda infracción a las prescripciones de este Título será
-sancionada con multa de cien a mil colones, de acuerdo con la
-importancia de la falta y el número de trabajadores que ocupe el
-patrono.
+ARTICULO 134.- (Derogado por el artículo 6º de la ley N° 7360 del 4 de noviembre de 1993)

@@ -1,18 +1,20 @@
-Artículo 243.- Salvo que se hubieren conmutado las rentas, se podrán
-revisar los dictámenes médicos que determinen la incapacidad de la
-víctima, cuando haya sobrevenido alguna modificación en las condiciones
-físicas de ésta.
-La solicitud correspondiente será admitida por el Juez en cualquier
-tiempo mientras dure la incapacidad temporal del trabajador; pero una
-vez extendido el dictamen final sólo será admisible la revisión doce
-meses después, y así sucesivamente, a partir de la fecha del último
-informe médico que sirvió a la autoridad o a las partes para acordar a
-reintegración al trabajo o para fijar la indemnización, excepto en el
-caso de una notable atenuación o agravación de las lesiones, o cuando
-el médico en el mismo dictamen fijare un plazo inferior.
-El procedimiento aplicable en estos casos es el mismo que determina
-el artículo anterior para cuando hubiere abandono o renuencia del
-trabajador a seguir el tratamiento médico. Si éste rehusare, sin motivo
-justificado, acudir al llamamiento de la autoridad para someterse al
-examen respectivo, perderá su derecho a las indemnizaciones aún no
-recibidas.
+ARTICULO 243.- Cuando un riesgo del trabajo produzca la muerte al trabajador, las personas que a continuación se señalan, tendrán derecho a una renta anual, pagadera en dozavos, a partir de la fecha de defunción del trabajador, o bien a partir del nacimiento del hijo póstumo derechohabientes, calculada sobre el salario anual que se determine que percibió el occiso, en el siguiente orden y condiciones:
+Una renta equivalente al 30% del salario establecido, durante un plazo de diez años, para el cónyuge supérstite que convivía con aquél, o que por causas imputables al fallecido estuviere divorciado, o separado judicialmente o de hecho, siempre que en estos casos el matrimonio se hubiese celebrado con anterioridad a la fecha en que ocurrió el riesgo y siempre que se compruebe que el cónyuge supérstite dependía económicamente del trabajador fallecido.
+Esta renta se elevará al 40% del salario anual, si no existieran los beneficiarios comprendidos en el inciso b) siguiente.
+Si el cónyuge no hubiere contraído nupcias, y demostrare una definitiva dependencia económica de la renta para su manutención, a juicio del Instituto Nacional de Seguros, el pago de la renta podrá ser prorrogado por períodos sucesivos de cinco años al vencimiento de los mismos.
+Cuando el cónyuge supérstite fuere el marido, sólo tendrá derecho a rentas si justifica que es incapaz para el trabajo, y que no tiene bienes o rentas suficientes para su manutención;
+Una renta que se determinará con base en las disposiciones que luego se enumeran, para los menores de dieciocho años, que dependían económicamente del trabajador fallecido.
+No será necesario comprobar la dependencia económica, cuando los menores sean hijos de matrimonio del occiso, o extramatrimoniales reconocidos antes de la ocurrencia del riesgo.
+En todos los demás casos se deberá comprobar fehacientemente la dependencia económica. La renta de estos menores será del 20%, si hubiera sólo uno; del 30% si hubieran dos; y del 40% si hubieran tres o más. Cuando no haya beneficiario con derecho a renta, de acuerdo con los términos del inciso a) inmediato anterior, la renta de los menores se elevará al 35%, su hubiera sólo uno y al 20% para cada uno de ellos si fueran dos o más, con limitación que se señala en el artículo 245.
+Estas rentas se pagarán a los menores hasta que cumplan dieciocho años de edad, salvo que al llegar a esta edad demuestren que están cursando estudios a nivel de cuarto ciclo en alguna institución de enseñanza secundaria, o de enseñanza superior, en cuyo caso las rentas se harán efectivas hasta que cumplan veinticinco años de edad.
+Para los efectos de la extensión del pago de rentas de los dieciocho a veinticinco años de edad, los interesados deberán presentar al Instituto Nacional de Seguros, una certificación trimestral del centro de enseñanza en donde cursan estudios, en la que se hará constar su condición de alumno regular y permanente, lo mismo que su rendimiento académico. Es entendido que la suspensión de estudios, o un notorio bajo rendimiento en los mismos harán perder el derecho a las rentas en forma definitiva, excepto en los casos en que el beneficiario pueda demostrar incapacidad física prolongada por más de un mes, eventualidad en la que se podrán continuar pagando las rentas, si se comprueba la reanudación de los estudios.
+La extensión en el pago de las rentas se perderá definitivamente si el beneficiario estudiante tuviera cualquier tipo de ingresos, suficientes para su manutención;
+Si no hubiera esposa en los términos del inciso a), la compañera del trabajador fallecido, que tuviere hijos con él, o que sin hijos haya convivido con éste por un plazo mínimo ininterrumpido de cinco años, tendrá derecho a una renta equivalente al 30% del salario indicado, durante el término de diez años, que se elevará al 40% si no hubiere beneficiarios de los enumerados en el inciso b) de este artículo. Para ello deberá aportar las pruebas que demuestren su convivencia con el occiso. Perderá el derecho a esa renta la compañera que contraiga matrimonio, o entre en unión libre;
+ch) Una renta del 20% del salario dicho, durante un plazo de diez años, para la madre del occiso, o la madre de crianza, que se elevará al 30% cuando no hubiere beneficiarios de los que se enumeran en el inciso b) de este artículo;
+Una renta del 10% de ese salario, durante un plazo de diez años, para el padre, en el caso de que sea sexagenario, o incapacitado para trabajar;
+Una renta del 10% del referido sueldo, durante un plazo de diez años, para cada uno de los ascendientes, descendientes y colaterales del occiso, hasta tercer grado inclusive, sexagenarioso incapacitados para trabajar, que vivían bajo su dependencia económica, sin que el total de estas rentas pueda exceder del 30% de ese salario.
+Se presumirá que estas personas vivían a cargo del trabajador fallecido, si habitaban su misma casa de habitación, y si carecen del todo o en parte, de recursos propios para su manutención;
+La renta que se fije a cada beneficiario no será inferior al resultado de la siguiente relación: mil quinientos por el porcentaje de renta que le corresponda al causahabiente, dividido entre setenta y cinco.
+Si al momento de la muerte del trabajador sólo hubiera uno o dos causahabientes, la renta conjunta que perciban no podrá ser inferior a quinientos colones; y
+Las rentas que se fijen con base en este artículo tendrán el carácter de provisionales durante los dos primeros años de pago, y no podrán ser conmutadas durante ese plazo.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,5 +1,1 @@
-Artículo 596.- Las actas que levanten los Inspectores y los
-informes que rindan en materia de sus atribuciones, tendrán el valor de
-prueba muy calificada y sólo se prescindirá de ella si hubiere otras que
-de modo evidente revelen la inexactitud, falsedad o parcialidad del acta
-o informe.
+ARTICULO 596.-(Derogado por el artículo 119 de la ley Nº 1860 de 21 de abril de 1955 y por el artículo 139 de la ley Nº 3095 de 18 de febrero de 1963, la cual reprodujo íntegramente la anterior.)

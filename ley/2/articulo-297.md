@@ -1,6 +1,2 @@
-Artículo 297.- A ninguna sociedad cooperativa le será permitido:
-a) Establecer con comerciantes combinaciones acuerdos que hagan
-participar a éstos, directa o indirectamente, de los beneficios y
-franquicias que otorga la presente ley, y
-b) Remunerar en forma alguna a quien aporte nuevos socios o coloque
-acciones.
+ARTICULO 297.- Las casas de habitación que el patrono suministre a los trabajadores dependientes de él, deberán llenar todos lo requisitos que se establezcan en el reglamento de la ley.
+(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)

@@ -1,6 +1,1 @@
-Artículo 421.- Las acciones para obtener la disolución o alguna
-prestación de las organizaciones sociales, se establecerán ente el Juez
-del domicilio de éstas.
-Sin embargo, se estará a lo dispuesto por el artículo anterior
-cuando las organizaciones sociales actuaren como patronos en caso
-determinado.
+ARTICULO 421.- Los Tribunales de Trabajo no pueden delegar su jurisdicción para el conocimiento de todo el negocio que les está sometido ni para dictar su fallo. No obstante, podrán delegarla para la práctica de ciertas diligencias a un funcionario de inferior categoría que administre justicia o a una autoridad política o de trabajo, cuando el delegado pertenezca a su mismo territorio; o a un funcionario de categoría igual o inferior que administre justicia o a una autoridad política o de trabajo, cuando el delegado pertenezca a otro territorio.

@@ -1,6 +1,1 @@
-Artículo 441.- Ninguna organización social podrá gestionar
-judicialmente mientras no compruebe en autos su personería jurídica.
-Es entendido que toda organización social podrá ser representada
-en juicio por un profesional en Derecho, siempre que la respectiva Junta
-Directiva o el Presidente, Secretario General o Gerente otorgue, en
-nombre de ésta, el poder que corresponda.
+ARTICULO 441.- Las recusaciones de los funcionarios subalternos se tramitarán y resolverán por el Tribunal de Trabajo que conozca del negocio, de acuerdo con las reglas de los artículos anteriores, en lo que fueren aplicables, y contra lo resuelto no cabrá recurso alguno.

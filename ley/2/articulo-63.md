@@ -1,7 +1,8 @@
-Sección II.- De las convenciones colectivas de industria, de
-actividad económica o de región determinada:
-Artículo 63.- Para que la convención colectiva se extienda con fuerza
-de ley para todos los patronos y trabajadores, sindicalizados o no, de
+SECCION II
+De las convenciones colectivas de industria, de actividad
+económica o de región determinada:
+ARTICULO 63.- Para que la convención colectiva se extienda con fuerza de
+ley para todos los patronos y trabajadores, sindicalizados o no, de
 determinada rama de la industria, actividad económica o región del país,
 será necesario:
 a) Que se haga constar por escrito, en tres ejemplares, uno para cada
@@ -14,8 +15,8 @@ c) Que esté suscrita por el sindicato o sindicatos que comprendan las
 dos terceras partes de los trabajadores sindicalizados en ese
 momento en la rama de la industria, actividad económica o región
 de que se trate;
-d) Que cualquiera de las partes dirija una solicitud escrita a la
-Secretaría de Trabajo y de Previsión Social para que, si el Poder
+d) Que cualquiera de las partes dirija una solicitud escrita al
+Ministerio de Trabajo y Seguridad Social para que, si el Poder
 Ejecutivo lo creyere conveniente, declare su obligatoriedad
 extensiva; la petición, si se reúnen los requisitos a que se
 refieren los incisos b) y c), será publicada inmediatamente en
@@ -35,13 +36,15 @@ que las empresas que afecte tengan celebrados, salvo en aquellos
 puntos en que estas estipulaciones sean más favorables a los
 trabajadores.
 Para los efectos de este inciso, cuando se presentare una
-oposición en tiempo, la Secretaría de Trabajo y de Previsión Social
+oposición en tiempo, el Ministerio de Trabajo y de Seguridad Social
 dará audiencia por diez días comunes a quien la hiciere y a los
 signatarios de la convención para que aleguen lo pertinente; este
 término se empezará a contar desde el día siguiente a aquél en que
 se practicó la última notificación por un Inspector de Trabajo y,
-una vez trascurrido, la mencionada Secretaría emitirá dictamen
+una vez trascurrido, el mencionado Ministerio emitirá dictamen
 definitivo; caso de declarar con lugar la oposición, procurará
 avenir a las partes sometiéndoles un nuevo proyecto de convención,
 que si fuere aprobado por éstas, será declarado de extensión
 obligatoria en los términos a que se refiere el párrafo anterior.
+( El nombre del Ministerio fue así reformado por la Ley No. 5089
+de 18 de octubre de 1972 )

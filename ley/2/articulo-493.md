@@ -1,5 +1,1 @@
-Artículo 493.- El recurso de apelación sólo cabrá en los casos
-expresamente señalados en este Título o cuando se ejercite contra las
-sentencias definitivas o contra los autos que pongan término al litigio
-o imposibiliten su continuación, siempre que se interponga dentro de
-tercero día.
+ARTICULO 493.- Salvo disposición expresa en contrario de este Código, en la sentencia se apreciará la prueba en conciencia, sin sujeción a las normas de Derecho Común; pero el Juez, al analizar la que hubiere recibido, está obligado a expresar los principios de equidad o de cualquier otra naturaleza en que funde su criterio.
