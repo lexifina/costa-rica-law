@@ -1,0 +1,1 @@
+6°—Cuando la comunicación se refiera a la adquisición de acciones u otros valores y como resultado de ésta se alcance una participación superior al 10% en el capital social bastará con realizar la comunicación requerida en virtud del artículo 34.

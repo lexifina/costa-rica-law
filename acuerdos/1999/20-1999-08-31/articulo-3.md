@@ -1,0 +1,1 @@
+3°—La obligación de comunicar cubre la adquisición y enajenación de acciones, tanto a título oneroso como gratuito; así como 1a suscripción de cualquier otro contrato que dé derecho a la adquisición o enajenación de acciones.
