@@ -1,2 +1,3 @@
-Artículo 42.--Un mismo juez no puede serlo en diversas instancias para la decisión de un mismo punto. Nadie podrá ser juzgado más de una vez por el mismo hecho punible.
-Se prohíbe reabrir cansas penales fenecidas y juicios fallados con autoridad de cosa juzgada, salvo cuando proceda el recurso de revisión.
+ARTÍCULO 42.- Un mismo juez no puede serlo en diversas instancias para la decisión de un mismo punto. Nadie podrá ser juzgado más de una vez por el mismo hecho punible.
+Se prohíbe reabrir causas penales fenecidas y juicios fallados con autoridad de cosa juzgada, salvo cuando proceda el recurso de revisión.
+(La Sala Constitucional mediante resolución N° 353 del 12 de febrero de 1991, interpretó el presente artículo en el sentido de que “…al expresar que "un mismo Juez no puede serlo en diversas instancias para la decisión de un mismo punto", se refiere exclusivamente a que el Juez que dicta una resolución, no puede resolver el recurso de apelación ni el extraordinario que proceda contra ella”.)
