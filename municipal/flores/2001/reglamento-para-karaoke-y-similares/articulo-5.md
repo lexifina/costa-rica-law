@@ -1,1 +1,0 @@
-Articulo 5°—No se dará permiso para realizar este tipo de actividad a los establecimientos comerciales que en su patente de funcionamiento esté determinada la venta de licores como actividad secundaria.

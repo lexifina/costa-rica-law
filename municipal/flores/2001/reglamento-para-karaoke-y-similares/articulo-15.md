@@ -1,1 +1,0 @@
-Artículo 15.—El Concejo Municipal se reserva el derecho de denegar una solicitud cuando haya incumplimiento de cualquier imposición de éste reglamento o por situaciones excepcionales como duelo nacional, calamidad pública y otros que afecten los interesas de la comunidad a criterio del Concejo Municipal.
