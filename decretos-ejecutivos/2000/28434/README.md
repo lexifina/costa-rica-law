@@ -14,3 +14,4 @@ Reglamento Aeronáutico CostarricenseParte I Operaciones de Transporte Aéreo Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-10 | la propia norma |
+| 2 | 2000-03-10 | Ley 7 |
