@@ -1,0 +1,1 @@
+Artículo 3°-La ratificación que se otorga en el artículo 2°, no comprende la obligación del Gobierno de Costa Rica de recabar autorización expresa del Banco Interamericano de Desarrollo para constituir gravamen sobre sus bienes o rentas fiscales como garantía de una deuda externa.
