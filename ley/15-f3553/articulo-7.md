@@ -1,1 +1,2 @@
-Artículo 7°-No obstante lo dispuesto en los artículos anteriores, en ningún caso será mayor de doscientos cincuenta colones (¢ 250.00) mensuales la pensión que se conceda a los Directores o músicos de las Bandas Militares.
+Artículo 7º.- No obstante lo dispuesto en los artículos anteriores, en ningún caso será mayor de quinientos colones (¢ 500.00) mensuales, la pensión que se conceda a los Directores y músicos mayores de las Bandas Militares, ni de doscientos cincuenta colones (¢ 250.00), la que se conceda a los músicos que no tuvieren ese cargo.
+(Así reformado por el artículo 1° de la ley N° 1400 del 6 de diciembre de 1951)
