@@ -13,3 +13,4 @@ Reitera Circular N°019-2001: Obligación de utilizar los documentos originales 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-28 | la propia norma |
+| 2 | 2004-03-30 | Circular 47 (2004-03-30) |
