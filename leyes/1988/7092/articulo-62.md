@@ -1,0 +1,2 @@
+Artículo 62.- El Consejo Nacional de Inversiones y de Comercio Exterior.
+Se crea el Consejo Nacional de Inversiones y de Comercio Exterior, integrado por dos ministros del sector económico, o sus representantes, por el Director Ejecutivo del Centro para la Promoción de las Exportaciones y las Inversiones, y por dos representantes del sector privado pertenecientes a esta última dependencia, escogidos por el Presidente de la República. El Poder Ejecutivo reglamentará su funcionamiento.

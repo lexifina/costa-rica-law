@@ -1,0 +1,4 @@
+Artículo 41.- Intereses por la mora en el pago.
+El retenedor obligado a este impuesto estará sujeto también al pago de los intereses contemplados en el artículo 57 del Código de Normas y Procedimientos Tributarios.
+Efectuada la compensación de créditos y deudas por tributos, establecidas en los artículos 45 y 46 del Código de Normas y Procedimientos Tributarios, la Administración Tributaria registrará un crédito contable del dos por ciento (2%) mensual, sobre los saldos líquidos y exigibles del impuesto sobre la renta que resulten a favor de los contribuyentes o personas físicas.
+El registro del crédito contable estará vigente hasta tanto no se establezca el sistema que le permita a la Administración Tributaria la devolución de dichos saldos en un plazo no mayor de sesenta (60) días naturales, a partir de la solicitud presentada por el contribuyente.

@@ -1,0 +1,1 @@
+Transitorio II.- Los intereses, comisiones y otros gastos financieros pagados en el exterior, que al entrar en vigencia esta ley estén gravados con el diez por ciento (10%), se mantendrán gravados con ese porcentaje hasta la cancelación de la obligación que los originó.

@@ -1,0 +1,3 @@
+Artículo 46.- Libros y normas contables.
+En el reglamento de la presente ley se fijarán los requisitos y condiciones en cuanto a los libros de contabilidad y otros que deberán llevar los contribuyentes, y también en cuanto a los sistemas especiales que ellos puedan solicitar.
+Las disposiciones de esta ley que afecten la contabilidad de los contribuyentes tienen el carácter de ajustes a los resultados mostrados por aquella, necesarios para determinar la renta imponible, pero no son principios de contabilidad a que deban sujetarse. La Administración Tributaria prescribirá los registros que requiera para llevar -en cuentas de memorándum- los ajustes señalados en este párrafo.
