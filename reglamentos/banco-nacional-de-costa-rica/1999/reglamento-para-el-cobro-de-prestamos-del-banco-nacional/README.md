@@ -23,3 +23,4 @@ Reglamento para el Cobro de Préstamos del Banco Nacional
 | 8 | 2002-12-03 | Reglamento 11181 (2002-12-03) |
 | 9 | 2003-08-12 | Reglamento 11221 (2003-08-12) |
 | 10 | 2003-08-19 | Reglamento 11223 (2003-08-19) |
+| 11 | 2004-03-22 | Reglamento 0 (2004-03-22) |

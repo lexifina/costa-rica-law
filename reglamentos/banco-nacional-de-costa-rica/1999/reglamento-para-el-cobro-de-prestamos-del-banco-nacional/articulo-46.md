@@ -1,2 +1,4 @@
 Artículo 46.—Los honorarios por los servicios de abogacía se calcularán con base en el arancel respectivo, decretado y publicado por el Poder Ejecutivo a partir de la recomendación del Colegio de Abogados de Costa Rica, de conformidad con lo dispuesto en los artículos 9° inciso 4) y 22° inciso 15) de la Ley Orgánica del Colegio de Abogados y los numerales 233, 234 y 237 del Código Procesal Civil.
+Cuando por cualquier transacción o arreglo de pago, si en los autos consta fehacientemente que ha habido señalamiento de remate, notificación de partes, publicación de edictos, aunque el remate no se realice por efecto de esa transacción o pago el profesional en derecho tendrá derecho a la totalidad o a la parte restante de sus honorarios.
+(Así adicionado el párrafo anterior y publicado en La Gaceta N° 62 de 29 de marzo de 2004).
 (Así reformado mediante sesión N° 11.002 del 12 de octubre de 1999).
