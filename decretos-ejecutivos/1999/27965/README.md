@@ -13,3 +13,4 @@ Crea Comisión Asesora de Artes Audiovisuales en Ministerio de Cultura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-09 | la propia norma |
+| 2 | 1999-07-09 | SINALEVI (sin norma nombrada) |
