@@ -1,0 +1,1 @@
+Transitorio.—De conformidad con la Ley N° 7794 del 30 de abril de 1998. a partir del primer lunes de febrero del año 2003. los miembros electos popularmente. Junto con el Síndico Municipal nombrarán un Presidente y los demás cargos.

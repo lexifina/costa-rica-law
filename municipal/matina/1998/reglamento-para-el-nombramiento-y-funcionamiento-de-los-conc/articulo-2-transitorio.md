@@ -1,0 +1,1 @@
+Transitorio.—De acuerdo con la Ley 7794 del 30 de abril de 1998 (Código Municipal), la integración de los Concejos de Distrito será por medio de elección popular el primer domingo del mes de diciembre del año 2002.
