@@ -1,3 +1,2 @@
 ARTICULO 30.-
-Obligación del Ministerio de Trabajo y Seguridad Social El Ministerio de Trabajo y Seguridad Social mantendrá un servicio con profesionales calificados para brindar el asesoramiento en readaptación, colocación y reubicación en el empleo de las personas con discapacidad.
-Para facilitar sus acciones, este servicio deberá mantener contacto con las organizaciones de personas con discapacidad.
+Obligación del Ministerio de Trabajo y Seguridad Social El Ministerio de Trabajo y Seguridad Social mantendrá un servicio con profesionales calificados para brindar el asesoramiento en readaptación, colocación y reubicación en el empleo de las personas con discapacidad. Para facilitar sus acciones, este servicio deberá mantener contacto con las organizaciones de personas con discapacidad.
