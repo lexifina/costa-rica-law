@@ -14,3 +14,4 @@ Reglamento del Archivo Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-05-06 | la propia norma |
+| 2 | 1999-08-30 | Reglamento municipal 96 (1999-08-30) |
