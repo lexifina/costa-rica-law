@@ -1,4 +1,0 @@
-Procedimiento ante Tribunal Colegiado
-Artículo 121.- Créanse Tribunales Colegiados para el conocimiento de las infracciones a esta ley y sus reglamentos, las cuales se tramitarán por los procedimientos en ella establecidos. Si se tratare de infracciones sancionadas con multa fija, conocerá de ellas uno de los miembros del Tribunal, aun cuando el infractor compareciere en tiempo a manifestar su disconformidad con la imposición de la multa, caso en el cual el miembro del Tribunal celebrará la audiencia oral y pública y resolverá el asunto, de acuerdo con las reglas de los artículos 108 y 110.
-La Corte Suprema de Justicia dispondrá la instalación y asiento de esos Tribunales, en el momento y lugar que estime conveniente, y señalará la jurisdicción territorial que les corresponda.
-(Así reformado por el artículo 1º de la ley No. 6249 de 2 de mayo de 1978).

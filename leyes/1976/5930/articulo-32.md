@@ -1,1 +1,0 @@
-Artículo 32.- El modelo de la licencia para conducir, así como las clases de vehículos para los cuales es válida, se extenderá conforme al acuerdo centroamericano sobre circulación por carreteras y del reglamento de la presente ley.

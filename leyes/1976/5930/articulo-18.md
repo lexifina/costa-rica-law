@@ -1,9 +1,0 @@
-Artículo 18.- Por vía de nota o mandamiento expedido por autoridad judicial competente, pueden anotarse al margen del respectivo asiento en el Registro Público de la Propiedad de Vehículos Motorizados:
-a) La demanda sobre propiedad o modificación de derechos reales sobre vehículos inscritos.
-b) La demanda sobre cancelación o rectificación de inscripción o anotación en el Registro.
-c) El decreto de embargo sobre vehículos inscritos. Sus efectos caducan sin necesidad de declaratoria, si dentro de los tres meses siguientes no se presentare el acta de traba de embargo para su anotación, sin que proceda repetirlo. Las autoridades judiciales podrán auxiliarse de las autoridades de tránsito para la práctica de embargo sobre vehículos; en cuyo caso solicitarán, a la Dirección General de Tránsito, la detención del vehículo y ésta lo comunicará de inmediato a la autoridad judicial que la haya solicitado, para que se practique el embargo dentro de los quince días siguientes a aquel en que haya recibido la comunicación. De no trabarse el embargo, en el plazo dicho, el vehículo deberá ser devuelto a su propietario y no podrá ser detenido de nuevo para ese efecto.
-Para la traba del embargo del vehículo detenido en jurisdicción distinta a la autoridad solicitante, podrá comisionarse de oficio y mediante telegrama a la autoridad del lugar de detención, siempre y cuando el interesado hubiere depositado los honorarios del juez ejecutor.
-d) El embargo practicado.
-e) El gravamen legal o el judicialmente decretado con motivo de accidente de tránsito.
-La anotación de embargo practicado caduca de pleno derecho a los cuatro años y el Registrador, al inscribir nuevos títulos o al certificar el asiento respectivo, hará caso omiso de ella.
-Ni la Dirección General de Tránsito, ni ninguna otra autoridad podrán hacer uso de los vehículos decomisados, y serán responsables por los daños que se produzcan en ellos, mientras se encuentren en su poder.

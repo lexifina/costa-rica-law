@@ -1,1 +1,0 @@
-Artículo 57.- La Dirección General de Tránsito no extnederá ninguna licencia de circulación ni de prueba sin que el propietario del vehículo haya suscrito a satisfacción la póliza a que se refiere el artículo anterior. En la licencia de circulación se hará la anotación respectiva.

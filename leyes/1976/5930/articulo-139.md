@@ -1,1 +1,0 @@
-Artículo 139.- Los usuarios de los vehículos de servicio público están exentos del pago del pasaje correspondiente, cuando esos vehículos, por causa de fallas mecánicas o de otra índole, no completaren su ruta o el camino convenido.

@@ -1,2 +1,0 @@
-Artículo 114.- En los procesos por delitos culposos o contravenciones cometidas por personas bajo los efectos de bebidas alcohólicas o drogas enervantes, la autoridad correspondiente ordenará que se practiquen de inmediato los exámenes periciales necesarios para comprobar esa circunstancia.
-(Texto Modificado por Resolución de la Sala Constitucional Nº 526-93 de las 14:27 hrs. del 3 de febrero de 1992 ).

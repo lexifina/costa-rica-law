@@ -1,1 +1,0 @@
-Artículo 37.- Los derechos de licencia se pagarán por el período para el cual se solicitare. No podrán cobrarse al interesado derechos por más de dos años de atraso. La Dirección General de Tránsito está obligada a adoptar las medidas necesarias para impedir que el pago de derechos de licencias se atrase por un período mayor de dos años.

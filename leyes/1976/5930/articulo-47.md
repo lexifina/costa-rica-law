@@ -1,2 +1,0 @@
-Límites y Coberturas
-Artículo 47.- El seguro obligatorio para vehículos automores, por lesión o muerte de personas, tendrá los límites que señale el reglamento de esta ley y en ningún caso será inferior a veinticinco mil colones por persona y cincuenta mil colones por accidente; en cuanto a vehículos de transporte remunerado de personas, el límite por accidente no podrá ser inferior al cuarenta por ciento del múltiplo representado por el número de pasajeros autorizados.

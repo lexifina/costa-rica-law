@@ -1,1 +1,0 @@
-Artículo 55.- El Instituto Nacional de Seguros propondrá al Poder Ejecutivo las disposiciones reglamentarias correspondientes al seguro obligatorio para vehículos automotores, por lesión o muerte de personas.

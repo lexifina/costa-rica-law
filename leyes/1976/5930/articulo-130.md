@@ -1,1 +1,0 @@
-Artículo 130.- El gravamen o anotación, a que se refiere el artículo 129, mientras no sea satisfecha la multa o no la descuente el infractor en arresto, impide la renovación de las licencias de conducir o de circulación del vehículo, inscripción de gravámenes prendarios o de traspaso a un tercero, salvo que el acreedor o el adquirente acepte expresamente el gravamen.

@@ -1,1 +1,0 @@
-Artículo 26.- Los vehículos, inclusive los contemplados en el artículo 29 de esta ley, deben presentarse para su revisión cuando se publique convocatoria para ese efecto o cuando, por razones justificadas, sean requeridos por las autoridades de tránsito.
