@@ -14,3 +14,4 @@ Crea el Premio Nacional Clodomiro Picado Twight
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-12-22 | la propia norma |
+| 2 | 1979-01-24 | Decreto Ejecutivo 9540 (1979-01-24) |
