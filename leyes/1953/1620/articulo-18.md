@@ -1,1 +1,0 @@
-Artículo 18.- Si el obligado hiciere solicitud fundado en que las pensiones atrasadas que hubiere acumulado no puede pagarlas sino con facilidades, en varios tractos, y comprobare la necesidad que de ello tuviere, podrá accederse a su solicitud, total o parcialmente, tomando en cuenta las posibilidades del obligado y necesidades del demandante.

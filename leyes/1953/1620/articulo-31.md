@@ -1,1 +1,0 @@
-Artículo 31.- Si el demandado alegare que los peticionarios menores no tienen la relación de paternidad que correspondiere conforme a las leyes, y no resultare prueba en contrario de los autos, el Agente en sentencia, enviará a juicio ordinario a las partes a ventilar sus derechos.

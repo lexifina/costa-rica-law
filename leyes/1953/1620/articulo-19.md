@@ -1,4 +1,0 @@
-Artículo 19.- Ningún deudor de alimentos que estuviere condenado al pago de una pensión alimenticia, ante cualquiera de las autoridades competentes según esta ley, podrá abandonar el país sin dejar suficientemente garantizado el pago de aquella en un lapso de un año.
-A ese efecto, se llevará un archivo en la Agencia Judicial de Pensiones Alimenticias de la ciudad de San José, en que consten los nombres de los obligados al pago de una pensión.
-Para formar ese archivo, toda autoridad que imponga el pago de pensión, comunicará a dicha Agencia, por la vía más rápida, la sentencia que haya dictado de la obligación, cuando se produjere.
-(Así reformado de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N°6123 del 23 de noviembre de 1993, que dimensiona los efectos de esta declaratoria, únicamente a aquellas personas que al resolverse las acciones, tuvieren pendientes trámites para obtener la visa de salida del país.)

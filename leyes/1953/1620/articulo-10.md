@@ -1,2 +1,0 @@
-Artículo 10.- Tienen personería para demandar alimentos en favor de menores de edad o de mayores que por su discapacidad no tienen acceso a la presentación personal de los trámites judiciales, tanto sus representantes legales como sus simples guardadores; en tal caso, estas circunstancias deberán probarse junto con la demanda.
-(Así reformado por el artículo 78 (actual 91) de la ley de Igualdad de Oportunidades para Personas con Discapacidad, N° 7600 del 2 de mayo de 1996)

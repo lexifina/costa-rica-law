@@ -1,1 +1,0 @@
-Artículo 35.- Después de dictada la resolución que imponga la pensión o que la denegare en relación al estado y situación económica de las partes, podrá intentarse dentro del mismo expediente, por vía de solicitud incidental para modificar la situación creada, aduciendo las pruebas correspondientes, ello con ajuste a los trámites antes indicados.

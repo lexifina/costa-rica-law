@@ -1,2 +1,0 @@
-Artículo 6º.- Cuando se reclamaren alimentos en favor de menores, probado que fuere el parentesco que señala el artículo 162 del Código Civil, procederá la autoridad juzgadora a ordenar el pago inmediato de una pensión provisional a cargo del obligado u obligados, imponiéndola en la misma resolución que de traslado de la querella al demandado.
-Esa fijación se hará prudencialmente, en suma capaz de llenar de momento las necesidades más perentorias de los menores, y subsistirá mientras no fuere variada de conformidad con la presente ley.
