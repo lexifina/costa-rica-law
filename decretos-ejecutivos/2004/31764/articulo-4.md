@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión de Espectáculos Públicos debe catalogar los juegos de vídeo o juegos cibernéticos que se comercializan en el país, de manera que sea obligatoria su rotulación según la edad del público al que va dirigido y sus niveles de violencia según las escenas que contienen.

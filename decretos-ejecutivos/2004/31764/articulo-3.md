@@ -1,0 +1,1 @@
+Artículo 3º—A los locales que no adecúen la utilización, alquiler y venta de los vídeo juegos a lo regulado en el presente decreto les será revocado el permiso sanitario de funcionamiento otorgado por el Ministerio de Salud, en cuyo caso se observará y cumplirá con la garantía constitucional del Debido Proceso y los principios que la conforman.

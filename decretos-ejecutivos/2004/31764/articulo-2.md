@@ -1,0 +1,1 @@
+Artículo 2º—Para la clasificación etárea de los vídeo juegos se atenderá a lo dispuesto en la Ley General de Espectáculos Públicos, Materiales Audiovisuales e Impresos, Nº 7440 del 11 de octubre de 1994 y su reglamento.
