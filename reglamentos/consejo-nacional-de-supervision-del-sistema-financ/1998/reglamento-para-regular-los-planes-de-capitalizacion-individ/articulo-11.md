@@ -1,0 +1,2 @@
+Artículo 11.—De la Protección de los recursos. En ningún caso la Operadora podrá ceder, gravar ni enajenar los recursos provenientes de los planes de capitalización individual. Los activos de esos recursos tendrán como contrapartidas las cuentas individuales de los afiliados.
+Los afiliados sí pueden usar los recursos aportados por ellos como garantía en operaciones de crédito; sin embargo, bajo ninguna circunstancia podrán utilizar como garantía en operaciones de crédito, los recursos depositados por los aportantes a su nombre.

@@ -1,0 +1,1 @@
+Artículo 2°—Del plazo y la moneda. Los planes de capitalización individual deberán constituirse a plazos de cinco años o más. Después de transcurrido el quinto año de formalizado el contrato se podrá efectuar retiros anticipados, conforme lo disponga el respectivo contrato. Dichos planes pueden ser formalizados en moneda nacional o en moneda extranjera.

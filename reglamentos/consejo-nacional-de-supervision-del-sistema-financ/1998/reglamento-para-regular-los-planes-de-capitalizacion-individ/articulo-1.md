@@ -1,0 +1,19 @@
+BANCO CENTRAL DE COSTA RICA
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 11, del acta de la sesión 49-98, celebrada e! 5 de noviembre de 1998, analizó la propuesta de reglamento remitida en el documento SP-601-98 del 13 de octubre de 1998, considerando:
+a) Que el desarrollo en los últimos años del mercado financiero se ha sustentado en el principio de especialización, tanto de los intermediarios y de sus servicios y productos, como de los entes reguladores;
+b) Que la ley 7732, Ley Reguladora del Mercado de Valores autorizó la creación y regulación de los planes de capitalización individual destinados a fomentar y estimular la previsión y el ahorro a mediano y largo plazo como un producto adicional que podía ser gestionado por las operadoras de fondos de pensiones;
+c) Que por otra parte el artículo 61 de la ley 7732 creó la figura de los fondos de inversión como el principal producto a través del cual se masifica la captación de ahorro público por medio del mercado de valores, y que dicha figura únicamente puede ser administrada por las Sociedades Administradoras de Fondos de Inversión;
+d) Que por ende la regulación de los planes de capitalización debe establecer una clara distinción entre este producto y los fondos de inversión, con el fin de preservar el espíritu de especialización que ha orientado el desarrollo del sistema financiero;
+e) Que la distinción entre los fondos de inversión y los planes de pensiones debe fundamentarse en el objetivo que el legislador asigna a los planes de capitalización y la necesaria armonización que debe haber entre estos últimos y los fondos de pensiones administrados actualmente por las operadoras de fondos de pensiones;
+f) Que en consecuencia la prohibición de retiro antes de cinco años que la ley 7523, Ley del Régimen privado de pensiones complementarias y reformas de la Ley Reguladora del Mercado de Valores y del Código de Comercio impone a los fondos de pensiones, se presenta como el medio por excelencia para plasmar este objetivo de especialización que inspira toda la legislación financiera así como la armonización entre los planes de capitalización y los fondos de pensiones;
+g) Que esta prohibición establece, una clara diferencia entre los fondos de inversión y los planes de capitalización, de tal manera que adicionalmente se eliminan los riesgos de arbitraje regulatorio por parte de los grupos financieros y permite diseñar estrategias de desarrollo institucional y comercial como productos claramente diferenciados,
+convino en:
+Aprobar, conforme al texto que se consigna más adelante, el “Reglamento para regular los Planes de Capitalización Individual administrados por las Operadoras”.
+“Reglamento para regular los Planes de Capitalización Individual
+administrados por las Operadoras”
+Artículo 1°—De los planes de capitalización individual. Las Operadoras podrán ofrecer planes de capitalización individual, los cuales deben cumplir con las siguientes características:
+i) Fomentar la previsión y el ahorro a mediano y largo plazo, distinto de pensiones.
+ii) El plan debe establecer cuotas periódicas de los afiliados.
+iii) Los recursos captados deben ser administrados por las Operadoras en un fondo colectivo, el cual es patrimonio exclusivo de los afiliados y debe estar acreditado mediante cuentas individuales para cada afiliado.
+iv) La afiliación al plan es voluntaria y se formaliza mediante la firma de un contrato individual que recoge las condiciones y características particulares solicitados por cada afiliado. Dicho contrato debe establecer, al menos, la finalidad específica del ahorro, la comisión a cobrar y la modalidad del retiro.
+v) En el caso de los planes colectivos o corporativos, la Operadora deberá firmar un contrato marco con la persona física o jurídica y con cada afiliado incluido en dicho contrato en el cual se establezca la propiedad individual de los recursos

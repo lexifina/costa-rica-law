@@ -1,0 +1,1 @@
+Artículo 10.—Uso de los recursos para el pago de servicios adicionales. Cuando un afiliado contrate por medio de una operadora, servicios adicionales, tales como coberturas de invalidez y muerte y así lo haya autorizado en el contrato de! plan de capitalización individual, podrá utilizar los recursos acumulados en sus cuentas para el pago de esos servicios.

@@ -1,0 +1,1 @@
+Artículo 6°—Del aportante. Con el fin de fortalecer los beneficios del afiliado a un plan de capitalización individual, cualquier persona podrá contribuir voluntariamente en la formación del fondo como aportante. Esos recursos adicionales pasan a ser propiedad del afiliado, quien podrá disponer de ellos según las condiciones establecidas en su contrato de afiliación.

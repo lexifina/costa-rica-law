@@ -1,0 +1,1 @@
+Artículo 3°—De la Administración. Los recursos provenientes de ios planes de capitalización individual deberán ser administrados por la Operadora en un fondo o fondos separados de los fondos de pensiones.

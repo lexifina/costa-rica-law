@@ -1,0 +1,1 @@
+Artículo 12.—De las medidas precautorias. En la actividad de administración de los recursos provenientes de los planes de capitalización individual se aplicarán, en lo pertinente, las medidas precautorias establecidas en la directriz para el plan de reducción de riesgo, la intervención administrativa y la suspensión de Operadoras de Fondos de Pensiones Complementarias
