@@ -1,1 +1,1 @@
-ARTICULO 61.- Los interesados deberán depositar en la Superintendencia, como derechos, al solicitar la aprobación del contrato de seguro, diez colones, si la cosa o cosas de que se trata estuvieren en San José, y quince colones si estuvieren fuera de la capital.
+Artículo 61.-Los interesados deberán depositar en la Superintendencia, como derechos, al solicitar la aprobación del contrato de seguro, diez colones, si la cosa o cosas de que se trata estuvieren en San José, y quince colones si estuvieren fuera de la capital.

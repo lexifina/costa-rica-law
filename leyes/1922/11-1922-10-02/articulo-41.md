@@ -1,1 +1,1 @@
-ARTICULO 41.- El asegurador podrá adquirir para si los objetos salvados, siempre que abone su valor, conforme el avalúo que les hayan dado los peritos en su dictamen sobre los daños causados por el incendio.
+Artículo 41.-El asegurador podrá adquirir para sí los objetos salvados, siempre que abone su valor, conforme el avalúo que les hayan dado los peritos en su dictamen sobre los daños causados por el incendio.

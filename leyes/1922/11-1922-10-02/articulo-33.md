@@ -1,2 +1,2 @@
-ARTICULO 33.- En todo seguro se regular la indemnización por el valor que tuviere la cosa asegurada al tiempo del siniestro. Ese valor podrá determinarse por todos los medios reconocidos en derecho; y aun podrá el Juez en caso de ser insuficientes las pruebas, deferir el juramento al asegurado.
+Artículo 33.-En todo seguro se regulará la indemnización por el valor que tuviere la cosa asegurada al tiempo del siniestro. Ese valor podrá determinarse por todos los medios reconocidos en derecho; y aun podrá el Juez en caso de ser insuficientes las pruebas, deferir el juramento al asegurado.
 No por resultar el valor del objeto inferior a la suma asegurada, tendrá obligación el asegurador de devolver parte alguna de las primas.

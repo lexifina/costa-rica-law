@@ -8,10 +8,10 @@ DECRETA:
 La siguiente
 LEY DE SEGUROS
 CAPITULO I
-ARTICULO 1°- El seguro puede tener por objeto todo interés estimable en dinero y toda clase de riesgos, no mediando prohibición expresa de la ley. Puede comprender entre otras cosas:
-1°- Los riesgos de incendio;
+Artículo 1° - El seguro puede tener por objeto todo interés estimable en dinero y toda clase de riesgos, no mediando prohibición expresa de la ley. Puede comprender entre otras cosas:
+1°-Los riesgos de incendio;
 2°- Los riesgos de cosechas;
-3°- La duración de la vida de uno o m s individuos;
-4°- Los accidentes corporales;
-5°- Los riesgos del mar;
-6° Los riesgos de trasporte por tierra, por ríos y aguas interiores.
+3°-La duración de la vida de uno o más individuos;
+4°-Los accidentes corporales;
+5°-,Los riesgos del mar;
+6°- Los riesgos de trasporte por tierra, por ríos y aguas interiores
