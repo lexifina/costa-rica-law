@@ -1,1 +1,0 @@
-Artículo 13.- A las personas físicas o jurídicas que no hayan presentado la declaración del Impuesto sobre la Renta por estar excluidas de tal obligación, se les aplicará la tarifa que establece el artículo 18 de esta Ley.
