@@ -1,0 +1,1 @@
+Artículo 27—La Junta Directiva del Colegio queda facultada para contratar los servicios externos necesarios para el debido planeamiento y control técnico-actuariales del Fondo, tomando de la suma indicada en el artículo 15 los fondos para el pago.

@@ -1,0 +1,1 @@
+Artículo 16.—La Junta Directiva tiene la obligación de girar al Fondo la suma especificada en el artículo anterior de la cuota de colegiatura recaudada. Esto deberá hacerse en los primeros cinco días del mes subsiguiente a la recaudación.

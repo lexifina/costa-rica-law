@@ -1,0 +1,1 @@
+Artículo 21.—El aporte mensual de los miembros del Fondo se iniciará en el momento de la incorporación al Colegio de Cirujanos Dentistas de Costa Rica y terminará en la fecha de su muerte o en la fecha que se acojan al beneficio de vejez o invalidez de acuerdo con este Reglamento.

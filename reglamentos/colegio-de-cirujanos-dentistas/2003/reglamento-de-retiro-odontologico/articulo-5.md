@@ -1,0 +1,1 @@
+Artículo 5.—La Junta Directiva tiene la obligación de instituir la debida auditoría y fiscalización externa del Fondo, que debe abarcar el área especializada de tipo técnico-actuarial, indispensable en planes de beneficio definido.

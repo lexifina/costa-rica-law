@@ -1,0 +1,1 @@
+Artículo 24—El ente administrador externo es el encargado de llevar la contabilidad del Fondo, cuya ejecución se regirá de acuerdo a la sana práctica profesional, los principios de contabilidad generalmente aceptados y las disposiciones de la Junta Directiva del Colegio.

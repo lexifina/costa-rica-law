@@ -1,0 +1,3 @@
+II. De los beneficios y contribuciones
+A. De los beneficios por invalidez
+Artículo 6.—El beneficio de invalidez es vitalicio salvo las excepciones del artículo 9, se paga mensualmente e incluye el pago del décimo tercer mes proporcional a los montos pagados durante el año. El monto mensual del beneficio de invalidez se fija en ¢15.200,00 (quince mil doscientos colones), cifra que podrá ser aumentada sólo si una Valuación Actuarial comprueba matemáticamente que el Fondo puede asumir el aumento sin entrar en déficit actuarial. Además dicho aumento no podrá hacerse efectivo hasta tanto no se cumpla estrictamente con lo especificado en el artículo 13.
