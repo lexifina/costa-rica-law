@@ -1,0 +1,1 @@
+Art 8°.- El Presidente, Fiscal y Secretario de la Corte, residirán en el mismo lugar que el Poder Legislativo y durante los recesos de la misma Corte se ocuparán por repartimiento que hagan entre los dos primeros, en la sustanciación con el tercero, de todos los negocios del conocimiento de la misma Corte hasta ponerlos en estado de resolución.

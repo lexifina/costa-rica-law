@@ -1,0 +1,1 @@
+Art 4°.- Para los negocios que admiten 3° Instancia se dividirá la Corte en dos Salas: la 1° de dos Magistrados que se sacarán por suerte, y el Presidente, sino estuviese impedido, o en su defecto el Fiscal, y la 2° de los otros tres que hayan quedado libres en el sorteo.
