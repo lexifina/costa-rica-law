@@ -1,0 +1,2 @@
+Art 4° Los terrenos cultivados dentro de las zonas indenunciables a que esta ley se refiere, se adjudicarán a los cultivadores por los precios y en las condiciones establecidas por la ley y sin necesidad de remate.
+Los cultivos han de ser estables y formales, y su naturaleza y extensión se comprobarán por medio del informe del agrimensor que practique la medida y de la declaración de cuatro testigos vecinos del cantón donde se halle situado el terreno.
