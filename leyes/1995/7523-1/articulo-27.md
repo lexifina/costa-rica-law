@@ -1,0 +1,3 @@
+Artículo 27.- Fondos adicionales
+En adición a lo indicado en el artículo anterior, todo patrono podrá destinar, de común acuerdo con cada trabajador y con cargo a la cuenta de auxilio de cesantía, un porcentaje de esa obligación contingente para crear un fondo de pensión complementaria en favor del empleado. Esta contribución será deducible como gasto, para fines del cálculo del impuesto sobre la renta del empleador.
+El trabajador tendrá libre elección, en cuanto a la operadora que administrará estos recursos, los que se contabilizarán en una subcuenta de la cuenta individual que el afiliado mantenga en el fondo de su elección.

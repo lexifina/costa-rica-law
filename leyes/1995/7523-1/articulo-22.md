@@ -1,0 +1,5 @@
+Artículo 22.- Libre transferencia
+El afiliado podrá utilizar la facultad de libre transferencia, a que se refiere el inciso j) del artículo 2, una vez transcurridos seis meses de su afiliación a una operadora o del último traslado.
+La operadora contará con un plazo máximo de cuarenta y cinco días, contados a partir de la solicitud de transferencia, para proceder a transferir los recursos del afiliado a la operadora que éste designe. No obstante, la operadora podrá efectuar la transferencia antes de transcurrido el plazo de los cuarenta y cinco días.
+Esa transferencia deberá realizarse en efectivo o cheque y sólo podrá usarse otra forma de pago si así lo acuerdan ambas operadoras.
+Si la operadora no transfiere los recursos en el plazo máximo de cuarenta y cinco días, el afiliado adquirirá frente a ella un derecho de crédito por las sumas e intereses respectivos, que podrá ejercer en la vía ejecutiva correspondiente, sin perjuicio de las demás acciones con que esta Ley y otras leyes lo faculten. La presentación del contrato de afiliación y de la respectiva solicitud de transferencia constituirán título ejecutivo en vía jurisdiccional.

@@ -1,0 +1,5 @@
+Artículo 26.- Fortalecimiento de beneficios
+Con el propósito de fortalecer los beneficios en favor de los trabajadores afiliados, todo patrono podrá contribuir, voluntariamente, como cotizante, con un porcentaje sobre el salario de cada uno de ellos, que no podrá ser retirado salvo que se trate de lo dispuesto en el artículo 23 de esta Ley, la muerte o la invalidez del propio trabajador.
+Mientras se mantenga el compromiso entre el cotizante y la operadora, la contribución deberá pagarse en forma mensual a la operadora en la que el trabajador se encuentre afiliado.
+En ningún caso, la empresa podrá deducir, como gasto por este concepto, para efecto del cálculo del impuesto sobre la renta de su empresa o negocio, un porcentaje sobre el salario del trabajador, superior a la tasa máxima de cotización patronal al Régimen de Invalidez, Vejez y Muerte de la Caja Costarricense de Seguro Social. Ningún cotizante gozará de los beneficios de un afiliado.
+Se prohíbe al Estado, a las instituciones autónomas, las semiautónomas y a los demás entes descentralizados del sector público cotizar como patrono a estos sistemas de pensiones.
