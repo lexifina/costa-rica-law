@@ -1,3 +1,2 @@
-ARTICULO 22.- En todo caso, esta pensión no podrá ser inferior a la
-tercera parte ni superior a la remuneración mensual vigente para un
-Diputado.
+ARTICULO 22.- DEROGADO.-
+(Derogado por el artículo 5º de la ley No.7605 de 2 de mayo de 1996)

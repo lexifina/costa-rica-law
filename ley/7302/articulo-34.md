@@ -6,3 +6,4 @@ ARTICULO 34.- Refórmase el inciso c) del artículo 15 de la Ley No. 14 del 2 de
 "Artículo 15.-
 ... c) Cuando se trate de pensiones no contempladas en los incisos anteriores, siempre que no excedan de treinta mil colones (¢30.000). Este monto se reajustará cuando el Poder Ejecutivo decrete incrementos para los servidores públicos, por variaciones en el costo de la vida y en los mismos porcentajes decretados para estos.
 No existirán pensiones inferiores a diez mil colones (¢10.000). Este monto se reajustará por el procedimiento establecido en el párrafo anterior."
+(Anulado este artículo mediante resolución de la Sala Constitucional N° 15058-10 del 8 de setiembre de 2010, misma que anuló por inconstitucionales “los artículos 14 y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935 y sus reformas…” -el destacado es nuestro-).

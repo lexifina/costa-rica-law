@@ -1,9 +1,2 @@
-ARTICULO 2.- Esta Ley no será aplicable a las personas cubiertas por
-el Régimen de Invalidez, Vejez y Muerte que administra la Caja
-Costarricense de Seguro Social ni a los regímenes de Pensiones y
-Jubilaciones del Magisterio Nacional ni al del Poder Judicial. Sin
-embargo, los servidores de este Poder deberán haber cumplido al menos
-sesenta años de edad para jubilarse en forma ordinaria. No obstante lo
-dispuesto anteriormente, las personas acogidas al Régimen de Pensiones y
-Jubilaciones del Magisterio Nacional no podrán jubilarse ordinariamente
-antes de cumplir los cincuenta años de edad.
+ARTICULO 2.- Este régimen no será aplicable a las personas cubiertas por el Régimen de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social, ni a los Regímenes de Pensiones y Jubilaciones del Magisterio Nacional ni al del Poder Judicial. Sin embargo, en lo que se refiere a la edad, los servidores acogidos a este último régimen estarán afectos a lo establecido en el artículo 4 de esta Ley.
+(Así reformado por el artículo 1 de la ley No.7359 del 20 de setiembre de 1993)
