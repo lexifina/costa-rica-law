@@ -1,0 +1,1 @@
+Artículo 25.—El cálculo de los Honorarios Profesionales de ser realizado únicamente por el Profesional en derecho tomando como base el decreto de Honorarios de Abogado, que estuviere vigente y los mismos serán cancelados por el deudor.

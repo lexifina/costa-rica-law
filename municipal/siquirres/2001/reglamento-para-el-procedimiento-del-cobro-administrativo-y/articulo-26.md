@@ -1,0 +1,2 @@
+Artículo 26.—Cuando un Abogado deje de prestar los servicios a la Municipalidad, por cualquier motivo, excepto por incumplimiento de sus obligaciones, tendrá derecho a que se le paguen los Honorarios Profesionales de acuerdo con el grado de avance en que se encuentren los Juicios, una vez finalizada la acción judicial y estos correrán por cuenta del Deudor.
+En caso de discrepancias el Tribunal respectivo los fijará.

@@ -1,0 +1,1 @@
+Artículo 11.—A fin de que haya la mayor equidad posible la Oficina de Cobro hará la distribución de las cuentas que se asignan a Cobro Judicial, tomando en consideración el rol de Abogados que se encuentren suspendidos por incumplimiento de las disposiciones legales de este Reglamento.
