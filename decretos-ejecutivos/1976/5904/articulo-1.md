@@ -242,12 +242,42 @@ A partir de este punto se sigue aguas abajo por la quebrada de Platanillo hasta 
 Reserva Indígena Cabécar de Awari(*), situada al Este del río Pacuare y al Norte de la Reserva Bukeri.
 (*) (Así modificada la denominación de la reserva anterior por el artículo 1° del decreto ejecutivo N° 10706 del 24 de octubre de 1979. Anteriormente se indicaba: "La Reserva de "El Tigre")
 (Así adicionada la reserva anterior por el artículo 6° del decreto ejecutivo N° 8515 del 2 de mayo de 1978)
-La Reserva Indígena Cabécar de Awari, se localiza en la hoja cartográfica del IGN, escala 1/50.000 Tucurrique 3545 I y está determinada por los puntos cuyas coordenadas se dan a continuación:
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
-Partiendo de la unión del río Pacuare con la Quebrada Temible (Alcantarilla) en N 217 700, E 586 050; continúa aguas arriba de la Quebrada Temible (Alcantarilla) hasta N 217 700, E 586 500; N 218 475, E 586 700; N 219 150, E 587 450; N 219 150, E 588 200; N 218 550, E 589 250; N 217 450, E 589 825; N 215 350, E 590 950; N 215 000, E 591 000; N 214 000, E 591 000; N 213 550, E 589 750; N 214 600, E 589 325; N 216 000, E 588 150; N 216 000, E 587 800; N 217 700, E 586 050, punto inicial de la presente descripción.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
-Área aproximada: 1 332 hectáreas.
-(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
+La Reserva Indígena Cabécar de Awari se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1/50.000, Tucurrique 3445 I, Bonilla 3446 II, Matina 3546 III, Barbilla 3545 IV y esta determinada por los puntos cuyas coordenadas se dan a continuación:
+Partiendo de la unión del río Pacuare con la quebrada Temible o Awari (llamada Alcantarilla en el mapa), en coordenadas N 217 700 E 586 050, se continúa aguas arriba por la quebrada Temible (Alcantarilla) hasta el punto de coordenadas N 217 700 E 586 500.
+De ahí se sigue por los puntos de coordenadas siguientes:
+N 218 475 | E 586 700 | (límite provincias Cartago y Limón)
+N 219 150 | E 587 450 |
+N 219 150 | E 588 200 |
+N 218 550 | E 589 250 |
+N 217 950 | E 589 600 |
+De este punto se sigue aguas abajo (hacia el norte) la naciente occidental de la quebrada Nori (quebrada Fría) hasta su confluencia con la naciente oriental de esta misma quebrada en coordenadas N 219 075 E 590 225.
+De este punto, se sigue aguas abajo por la quebrada Nori (o quebrada Fría), hasta su confluencia en el río Pacuare, en coordenadas N 221 750 E 589 650.
+De este punto, se continúa aguas abajo por el río Pacuare hasta la confluencia de una quebrada sin nombre, en coordenadas N 223 450 E 591 600.
+Se sigue aguas arriba por la quebrada sin nombre, hasta el punto de coordenadas N 222 400 E 591 650 y de ahí se continúa por los puntos de coordenadas:
+N 221 600 | E 592 325 |
+N 221 050 | E 592 350 |
+N 220 975 | E 592 175 |
+N 220 000 | E 592 400 |
+N 219 300 | E 591 600 |
+N 218 950 | E 591 850 |
+N 218 575 | E 591 825 | (naciente de una quebrada intermitente).
+Se sigue la quebradilla aguas abajo (hacia el sur) hasta su confluencia con la quebrada Konori (afluente de río Dantas (sin nombre en el mapa) en coordenadas N 217 550 E 592 450. Se sigue aguas abajo por la quebrada Konori hasta su confluencia con el río Dantas (Venado o Nairi), en coordenadas N 217 650 E 592 900.
+De ahí se sigue aguas arriba por el río Dantas (Nairi) hasta su naciente, en coordenadas N 214 575 E 593 100.
+De allí se sigue por los puntos de coordenadas:
+N 214 450 | E 593 075 |
+N 214 450 | E 591 850 | (Cerro, 1 030 m)
+N 214 050 | E 591 125 | (Cerro, 968 m)
+N 213 575 | E 589 750 | (Cerro, 1 169 m).
+De ahí se sigue por la fila divisoria de aguas entre Pacuare y Alcantarilla por los puntos de coordenadas siguientes:
+N 214 550 | E 589 350 |
+N 216 000 | E 588 150 |
+N 216 000 | E 587 750 | (Cerro, 889 m).
+De ahí se sigue por la fila divisoria de aguas entre Pacuare y Alcantarilla (Temible) hasta el punto inicial de la descripción (confluencia Pacuare-Alcantarilla) en coordenadas N 217 700 E 586 050.
+Superficie de la Reserva Indígena Cabécar de Awari: 2 953 hectáreas':
+(Así reformada la Reserva Indígena Cabécar de Awari anterior por el artículo 4° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984)
+Caseríos de la Reserva Indígena Cabécar de Awari: Awari (al oeste), Jameycäri (al norte) y Naíri (al sur).
+(Así adicionado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984)
+(Así reformado el párrafo anterior referente a los Caseríos de la Reserva Indígena Cabécar de Awari anterior por el artículo 5° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984)
 (Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 13391 del 26 de febrero de 1982, se indicó que las reservas o parcelas constituyentes de la Reserva Indígena de Chirripó y llamadas: Nimari-Bukeri (decretos N° 7267-G y N° 7736-G), Alto Pacuare (decreto N° 7268-G), Chirripó Corina (decreto N° 7268-G y N° 10038-G), Oso-Molejones (decreto N° 8515-G), Pacuare Amicata (decreto N° 8515-G), Puerto Rico Norte, Pacuare Arriba, Tsipiri-Wari (decreto N° 10038-G), Sirac Bata (decreto N° 10706-G), quedan en adelante fusionadas con la Reserva Indígena principal, o sea incluidas en la demarcación establecida en el artículo 1° del decreto ejecutivo N° 13391 del 26 de febrero de 1982, que reformó la Reserva Indígena de Chirripó).
 (Nota de Sinalevi: Mediante el artículo 7° del decreto ejecutivo N° 13391 del 26 de febrero de 1982, se indicó que la Reserva Cabécar de Chirripó (Duchiy) se compone de los caseríos:
 1. PAGUARE (JACUY); Poblados: Alto Pacuare, Paso Marcos.
@@ -822,37 +852,31 @@ A partir de este punto se sigue aguas abajo por la quebrada Súrtuba hasta el pu
 Área de la Reserva: 1 336 Ha. 7 562 m2.
 (Así adicionada la reserva Indígena Alto-Pacuare anterior por el artículo 4° del decreto ejecutivo N° 7268 del 9 de agosto de 1977. Asimismo, indica dicho numeral 4° que la Reserva Indígena la zona de "Alto Pacuare" (finca Chirripó), comprende los terrenos situados en la hoja cartográfica del Instituto Geográfico Nacional, Pejibaye 3445 II y localizados por los puntos cuyos rumbos, distancias y coordenadas, descritos anteriormente. Asimismo, por el artículo 6° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, la finca " finca "Alto-Pacuare", son parte integrante de la Reserva Indígena de Chirripó, serán inscritas en el Registro de la Propiedad a nombre de la Comunidad Cabécar de Chirripó, pero como finca; distintas (fincas 3 y 4 Chirripó).)
 RESERVA INDÍGENA CABÉCAR DE BARBILLA
-Establécese la Reserva Indígena Cabécar de Barbilla-Dantas. Esta reserva indígena se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1/50.000, Matina 3546 III y Barbilla 3545 IV.
-La reserva está limitada por los puntos cuyas coordenadas se dan a continuación:
-Partiendo de un punto situado a la confluencia del río Barbilla con la quebrada Socri, en coordenadas N 224 550 E 604 625, se sigue aguas arriba por el río Barbilla hasta un punto de coordenadas N 224 000 E 604 600; de ahí se sigue con los puntos de coordenadas siguientes:
+Establécese la Reserva Indígena Cabécar de Barbilla. Esta Reserva Indígena se localiza en las hojas cartográficas del Instituto Geográfico Nacional, escala 1/50.000, Matina 3546 III y Barbilla 3545 IV.
+La Reserva esta limitada por los puntos cuyas coordenadas se dan a continuación:
+Partiendo de un punto situado a la confluencia del río Barbilla con la quebrada Socri, en coordenadas N 224 E 604 625, se sigue aguas arriba por el río Barbilla hasta un punto de coordenadas N 224 000 E 604 600; de ahí se sigue con los puntos de coordenadas siguientes:
 N 223 850 | E 604 800 |
 N 222 625 | E 604 650 |
-N 221 350 | E 604 350 | (cerro, 392 m.).
-N 221 000 | E 603 875 | (quebrada Surubre o Dicari).
-De este punto se sigue la quebrada Surubre aguas arriba hasta el punto de coordenadas: N 220 500 E 604 275.
-A partir de este punto, el límite de la reserva indígena de Barbilla-Dantas continúa acorde a los límites establecidos para la Reserva Biológica de Barbilla (Decreto N° 13379-A), localizados por los puntos cuyas coordenadas son las siguientes:
+N 221 350 | E 604 350 | (Cerro, 392 m).
+N 221 000 | E 603 875 | (quebrada Surubre o Dicari)
+De este punto se sigue la quebrada Surubre aguas arriba hasta el punto de coordenadas N 220 500 E 604 275.
+A partir de este punto, el límite de la Reserva Indígena de Barbilla continúa acorde con los límites establecidos para la Reserva Biológica de Barbilla (decreto N° 13379-A), localizados por los puntos cuyas coordenadas son las siguientes:
 N 220 325 | E 603 850 |
 N 220 000 | E 601 100 |
 N 220 600 | E 600 650 |
 N 220 550 | E 600 250 |
 N 221 050 | E 599 900 | ("Dos Ramas", confluencia del río Dantas (Venado o Naíri) con el río Barbilla).
-De este punto se sigue aguas arriba por el río Dantas (Naíri) hasta la confluencia de la quebrada Barreal (Caño Seco o Paxteri), en coordenadas N 221 080 E 598 850; de ahí se sigue la quebrada Barreal (Paxteri) aguas arriba hasta el punto de coordenadas N 221 100 E 597 700; de allí al punto de coordenadas N 220 200 E 597 925 (río Dantas).
-De este punto, se sigue el río Dantas (Naíri) aguas arriba hasta el punto de coordenadas N 217 675 E 595 900.
-A partir de este punto, el límite de la reserva indígena de Barbilla-Dantas se aparta de la Reserva Biológica de Barbilla y continúa por los puntos de coordenadas siguientes:
-N 219 100 | E 596 025 |
-N 219 175 | E 596 200 |
-N 220 050 | E 595 850 |
-N 220 425 | E 596 700 |
-N 221 250 | E 596 875 | (quebrada Barreal o Paxteri).
-N 221 800 | E 597 425 | (cerro, 356 m).
+De este punto se sigue aguas arriba por el río Dantas (Naíri) hasta la confluencia de la quebrada Barreal (Caño Seco o Paxteri), en coordenadas N 221 080 E 598 850; de ahí se sigue la quebrada Barreal (Paxteri) aguas arriba hasta el punto de coordenadas N 221 250 E 596 875.
+De este punto se sigue por los puntos de coordenadas siguientes:
+N 221 800 | E 597 425 | (Cerro, 356 m).
 N 222 375 | E 597 625 |
 N 222 875 | E 598 150 |
 N 222 600 | E 599 450 |
 N 222 800 | E 599 750 |
 N 222 800 | E 600 000 |
 N 223 150 | E 600 600 |
-N 223 125 | E 600 975 | (quebrada Cañabral).
-De ahí se sigue la quebrada Cañabral aguas abajo hasta la confluencia con una quebrada sin nombre, en coordenadas N 223 025 E 601 000.
+N 223 125 | E 600 975 | (Quebrada Cañabral).
+De ahí se sigue la quebrada Cañabral aguas abajo hasta la confluencia con una quebrada sin nombre en el mapa, en coordenadas N 233 025 E 601 000.
 Se continúa luego por los puntos de coordenadas siguientes:
 N 222 750 | E 601 250
 N 222 850 | E 602 000
@@ -860,10 +884,11 @@ N 223 150 | E 602 250
 N 223 200 | E 602 600
 N 223 650 | E 602 750
 N 224 150 | E 603 200
-De allí al punto de coordenadas N 224 550 E 604 625, punto inicial de la descripción.
-Superficie de la reserva indígena Cabécar de Barbilla-Dantas: 2 450 hectáreas
+De ahí al punto de coordenadas N 224 550 E 604 625, punto inicial de la descripción.
+Superficie de la Reserva Indígena Cabécar de Barbilla: 1 867 hectáreas."
 (Así adicionada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 3° del decreto ejecutivo N° 10706 del 24 de octubre de 1979)
-(Así reformada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 1° del decreto ejecutivo N° 13452 del 10 de marzo de 1982)
+(Así reformada la Reserva Indígena Cabécar de Barbilla anterior por el artículo 3° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16059 del 3 de diciembre de 1984, se excluyó de la Reserva Indígena Cabécar de Barbilla-Dantas la parte sur de esta reserva)
 RESREVA INDÍGENA CABÉCAR DE XARA
 Reserva Indígena Cabécar de Xara.
 La Reserva Indígena de Xara se encuentra localizada en la hoja cartográfica del Instituto Geográfico Nacional, escala 1/50.000, Chirripó 3545 III.
