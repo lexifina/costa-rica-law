@@ -66,21 +66,50 @@ finales de pruebas de eficacia biológica. | 260.000,00
 20 Anotaciones marginales (por unidad) | 1.500,00
 21 Ampliaciones (por unidad) | 1.000,00
 22 Información impresa (por hoja) | 50,00
-B. SERVICIOS EN EVALUACIÓN DE TIERRAS
-1 Visado de planos parcela mínima productiva. | 800,00
-2 Mapa impreso a color papel bond 8.5 x 11 | 1.300,00
-3 Mapa impreso a color papel bond 8.5 x 14 | 1.500,00
-4 Mapa impreso a color papel glossy 8.5 x 11 | 1.600,00
-5 Mapa impreso a color papel glossy 8.5 x 14 | 1.800,00
-6 Mapa impreso en plotter de inyección a color 34 x 60 | 1.500,00
-7 Información impresa de base de datos (por hoja) | 100,00
-8 Asesoría y capacitación (hora profesional |
-ministerial involucrada) | 5.000,00
-9 Información digitalizada en formato no editable |
-(precio mínimo dependiendo de tamaño) | 5.000,00
-10 Estudio detallado de suelos | 8.000,00/ha.
-11 Estudio semidetallado de suelo | 3.000,00/ha.
-12 Estudio de Reconocimiento | 1.000,00/km2
+B. SERVICIOS EN ESTUDIOS DE SUELOS Y EVALUACIÓN DE TIERRAS
+1 Visado de planos parcela mínima productiva | 800,00
+2 Mapa impreso en impresora de inyección a color 21.6 x 28.0 cm | 2.500,00
+3 Mapa impreso en impresora de inyección a color 21.6 x 35.6 cm | 2.500,00
+4 Mapa impreso a color papel Glossy 21.6 x 28.0 cm | 3.000,00
+5 Mapa impreso a color papel Glossy 21.6 x 35.6 cm | 3.000,00
+6 Mapa impreso en plotter de inyección color 85 x 150 cm. | 25.000,00
+7 Información impresa de base de datos por hoja | 100,00
+8 Asesoría y capacitación (hora profesional ministerial involucrada) | 5.000,00
+9 Información digitalizada en formato no digitable (precio mínimo dependiendo de su tamaño) | 5.000,00
+10 Estudio detallado de suelos de: |
+1 a 50 has. | 12.000,/ha
+51 a 100 has. | 11.000/ha.
+101 a 500 has. | 10.000/ha.
+501 a 1000 has. | 9.000/ha.
+Más de 1000 has. | 8.000/ha.
+11 Estudio semidetallado de suelos de: |
+1 a 50 has. | 7.000/ha
+51 a 100 has. | 6.000/ha.
+101 a 500 has. | 5.000/na.
+501 a 1000 has. | 4.500/ha.
+Más de 1000 has. | 4.000/ha.
+12 Estudio de reconocimiento de suelos de: |
+1 a 50 has. | 2.000/ha
+51 a 100 has. | 1.500/ha.
+101 a 500 has. | 1.000/ha.
+501 a 1000 has. | 500/ha.
+Más de 1000 has. | 250/ha.
+13 Certificados de suelos y evaluación de tierras: |
+a)Uso conforme del suelo | 1100
+b)Capacidad de uso de las tierras | 1100
+c)Aptitud de uso de tierras para riego | 1100
+14 Por inspección de: |
+a)Uso conforme del suelo | 18000
+b)Capacidad de uso de las tierras | 18000
+c)Aptitud de uso de tierras para riego | 4.000/ha.
+15 Por cuota anual de: |
+a)Certificadores de uso conforme del suelo | 10.000
+b)Agencias certificadoras de uso conforme del suelo | 10.000
+16 Por acreditación de: |
+a)Certificadores de uso conforme del suelo | 10.000
+b)Agencias certificadoras de uso conforme del suelo | 150.000
+17 Por planificación del uso de la tierra | 1000/ha.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 30166 del 19 de noviembre de 2001)
 C. SERVICIOS EN LABORATORIO DE SUELOS
 1 Análisis químico completo ( por cada muestra de |
 suelo). Para pequeños agricultores, asociaciones y |
@@ -107,6 +136,9 @@ de campo y marchitez permanente, (suelo por muestra) | 1.000,00
 19 Determinación de boro en aguas | 1.000,00
 20 Determinación de sulfatos en agua | 1.000,00
 21 Información impresa (por hoja) | 50,00
+22 Conductividad eléctrica | 1000
+23 Conductividad hidráulica de muestras inalteradas | 1000
+(Así adicionados los códigos de servicios N° 22 y 23 por el artículo 2° del decreto ejecutivo N° 30166 de 19 de noviembre de 2001)
 D. SERVICIO EN SEMILLAS
 1 Trillada de frijol y maíz - 46 kgs | 25,20
 2 Secado de semilla – 46 kg. | 310,00

@@ -19,3 +19,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 4 | 2000-08-04 | Decreto Ejecutivo 28868 (2000-08-04) |
 | 5 | 2000-12-04 | Decreto Ejecutivo 29191 (2000-12-04) |
 | 6 | 2001-01-16 | Decreto Ejecutivo 29327 (2001-01-16) |
+| 7 | 2001-11-19 | Decreto Ejecutivo 30166 (2001-11-19) |
