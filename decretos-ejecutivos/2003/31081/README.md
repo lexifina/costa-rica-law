@@ -14,3 +14,4 @@ Determina distribución de dinero para el pago de servicios ambientales en el a�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
+| 2 | 2004-01-26 | Decreto Ejecutivo 31634 (2004-01-26) |
