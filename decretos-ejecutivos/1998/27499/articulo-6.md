@@ -1,0 +1,3 @@
+Artículo 6°—
+1. Las prestaciones económicas a las que se refiere el Acuerdo, concedidas en virtud de las disposiciones legales de las Partes Contratantes no serán objeto de reducción, suspensión, extinción, descuentos, quitas no gravámenes, fundados en el, hecho de que el beneficiaste resida en el territorio de la otra Parte Contratante.
+2. Las prestaciones debidas por una de la Partes Contratantes se harán efectivas a los beneficiarios de la otra Parte, que residan en un tercer país, en las mismas condiciones y con igual extensión que a los beneficiarios de la primera Parte que residan en el referido tercer país.

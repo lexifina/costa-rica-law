@@ -1,0 +1,1 @@
+Artículo 16.—Para determinar el derecho a las prestaciones en base al Acuerdo, la Entidad Gestora de cada Parte aplicará la Ley vigente a la fecha de la última censación en el servicio, aunque ésta se hubiese producido en la otra Parte o de la muerte en su caso, salvo disposición legal en contrario.

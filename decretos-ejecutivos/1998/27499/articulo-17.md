@@ -1,0 +1,1 @@
+Artículo 17.—En la aplicación del Acuerdo se tendrán en cuenta también los períodos de cotización cumplidos entes de su entrada en vigor, cuando los interesados acrediten períodos de cotización a partir de dicha vigencia. En ningún ello dará derecho a la percepción de prestaciones fundadas en el Acuerdo con anterioridad a la fecha de su vigencia.

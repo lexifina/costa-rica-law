@@ -1,0 +1,5 @@
+Artículo 10.—
+1. El derecho a prestaciones de quienes, teniendo en cuenta la totalización del período de cotización, no cumplan al mismo tiempo las condiciones exigidas por las disposiciones legales de ambas Partes Contratantes, se determinará con arreglo a las disposiciones de cada una de las disposiciones de cada una de ellas a medida que se vayan cumpliendo dichas condiciones.
+2. Los interesados podrán optar porque los derechos les sean reconocidos conforme de las reglas del párrafo anterior o separadamente, de acuerdo con las disposiciones legales de una Parte Contratante, con independencia de los períodos de cotización en la otra Parte.
+3. El interesado debida y previamente informado el respecto, podrá renunciar a la aplicación de las disposiciones del Acuerdo sobre totalización y prorrata, en este caso las prestaciones se determinarán separadamente por la Entidad Gestora, según su respectiva Legislación, independientemente de los períodos de cotización cumplidos en la otra Parte.
+4. La opción podrá ser ejercida por una sola vez.

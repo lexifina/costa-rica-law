@@ -1,0 +1,2 @@
+Artículo 23.—Se establecen como organismos de enlace: En la República de costa Rica, el Ministerio de Trabajo y Seguridad Social a la Institución que este designe a tales efectos. En la República Oriental del Uruguay, el Banco de Previsión Social (Asesoría Letrada del Directorio).
+Las autoridades Competentes de cada Parte Contratante podrán establecer otros Organismos de Enlace, comunicación a la Autoridad Competente de la otra Parte.

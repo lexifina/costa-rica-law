@@ -1,0 +1,2 @@
+Artículo 9°—Cada Entidad Gestora determinará con arreglo a su Legislación y teniendo en cuenta la totalización de los períodos, si el interesado cumpla con las condiciones requeridas para obtener la prestación
+En caso afirmativo, determinará el importe teórico a que el interesado tendría derecho, como si todos los períodos totalizados se hubieran cumplido bajo su propia Legislación y fijará el definitivo en proporción a los períodos cumplidos, exclusivamente, bajo dicha Legislación.

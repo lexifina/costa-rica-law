@@ -1,0 +1,4 @@
+Artículo 27.—
+1. Los organismos de Enlace y las Entidades Gestoras de cada parte deberán comprobar la veracidad de los hechos o actos y la autenticidad de los documentos, que invoquen o presenten los interesados, de acuerdo con las formalidades vigentes en su respectiva Parte, dejando constancia de ello en los formularios correspondan. Dicha constancia, suscrita por persona autorizada hará fe y sustituirá, en su caso la remisión de los documentos originales.
+2. Las entidades Gestoras de cada Parte tendrán por acreditados los hechos o actos cuya veracidad o autenticidad hubiera sido comprobada por el Organismo de Enlace o Entidad Gestora de la Parte en que se cumplieron o realizaron.
+3. Para la aplicación de las disposiciones del Acuerdo serán utilizados los formularios que se establezcan en el Acuerdo Administrativo que suscribirán las partes Contratantes.

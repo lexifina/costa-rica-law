@@ -1,0 +1,1 @@
+Artículo 3°—El Acuerdo será aplicable a los trabajadores que estén o hayan estado sujetos a las Legislaciones de Seguridad Social, Previsión Social o Seguros Sociales de una y otra parte Contratante, así como a sus familiares y sobrevivientes.

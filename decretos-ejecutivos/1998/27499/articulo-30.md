@@ -1,0 +1,1 @@
+Artículo 30.—Las autoridades competentes deberán acordar las disposiciones que garanticen los derechos en curso de adquisiciones derivados de los períodos de cotización, cumplidos con anterioridad a la fecha de derogación del Acuerdo.

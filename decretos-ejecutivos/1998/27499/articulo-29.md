@@ -1,0 +1,1 @@
+Artículo 29.—El Acuerdo tendrá vigencia anual prorrogable tácitamente. Podrá ser denunciado por las Partes Contratantes en cualquier momento la denuncia surtirá efecto a los seis meses a contar del día de su notificación, sin que ello afecte los derechos ya adquiridos.

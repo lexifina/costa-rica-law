@@ -1,0 +1,1 @@
+Artículo 4°—Las personas protegidas de una Parte Contratante que pasen a quedar sometidas a la Legislación de otra parte, tendrán en esta ultima los mismos derechos y obligaciones que los nacionales de dicha última Parte.
