@@ -1,0 +1,1 @@
+Art. 2. Queda así reformada la tarifa de l° de junio de 1841,--Dado en la ciudad de San José á los vertidos dias del mes de julio de mil ochocientos cuarenta y seis. -José Maria Alfaro. –Al Ministro de hacienda y guerra.
