@@ -1,3 +1,4 @@
+(NOTA: Reformada por Ley N° 59 de 30 de noviembre de 1849).
 DECRETO CXXXVI.
 Aprueba los tratados de amistad, comercio y navegación celebrados entre la "Gran Bretaña" y "Costa Rica."
 N° 17.
