@@ -1,0 +1,1 @@
+Artículo 6°—Periódicamente, la Dirección Actuarial y de Planificación Económica deberá realizar un estudio sobre el Fondo, a fin de que se realicen los ajustes pertinentes que garanticen la sostenibilidad financiera del Programa de Prestaciones Sociales.

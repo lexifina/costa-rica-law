@@ -1,0 +1,1 @@
+Artículo 8°—Bajo ninguna circunstancia se podrán destinar recursos del Fondo al financiamiento de otro tipo de prestaciones o servicios, distintos de los estipulados en el Capitulo III de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 14.—En los casos que se requiera la contratación de servicios profesionales u otros, para el desarrollo de los programas de prestaciones sociales, ésta se realizará conforme las normas aplicables del Reglamento General de Contratación Administrativa.

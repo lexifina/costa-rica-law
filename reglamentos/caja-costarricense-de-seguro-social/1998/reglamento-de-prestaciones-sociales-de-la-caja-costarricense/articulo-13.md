@@ -1,0 +1,1 @@
+Artículo 13.—La ejecución de los planes, programas, proyectos y servicios sociales, para los asegurados y pensionados en todas las regiones del país, estará a cargo de las unidades prestadoras de servicios. Para tal efecto se regirá por lo dispuesto en el presente reglamento.

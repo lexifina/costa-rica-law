@@ -1,0 +1,1 @@
+Artículo 7°—El gasto total anual destinado a Prestaciones Sociales correspondientes al Seguro de Invalidez, Vejez y Muerte y al Régimen No Contributivo, será financiado con los recursos provenientes del Fondo.

@@ -1,0 +1,1 @@
+Artículo 4°—El Fondo de Prestaciones Sociales, en adelante Fondo, estará constituido por un aporte anual del 3% de los gastos totales en prestaciones económicas del Seguro de Invalidez, Vejez y Muerte y del 5% en el caso del Régimen No Contributivo.

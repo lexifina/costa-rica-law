@@ -1,0 +1,1 @@
+Artículo 11.—El detalle de las prestaciones sociales que se ofrecerán en cada uno de los programas indicados en el artículo diez, se normará mediante los instructivos que dictará la Gerencia de Pensiones.

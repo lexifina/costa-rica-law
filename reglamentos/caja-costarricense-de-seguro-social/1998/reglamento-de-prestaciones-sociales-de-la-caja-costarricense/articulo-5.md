@@ -1,0 +1,1 @@
+Artículo 5°—Los recursos de este fondo, una vez satisfechas sus necesidades, serán invertidos en las mejores condiciones de seguridad y rentabilidad, de conformidad con el reglamento de las reservas del Seguro de Invalidez, Vejez y Muerte.
