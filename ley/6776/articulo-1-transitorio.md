@@ -1,0 +1,3 @@
+Transitorio único: Los funcionarios de la Asamblea Legislativa que estén ubicados en la escala de salarios de la Administración Pública serán reubicados en la escala de salarios de la Asamblea Legislativa, en la categoría cuyo monto corresponde a igual clase de puesto.
+Para aplicar la nueva escala de sueldos, en cada clase de puestos se tomará como base el salario que resulte igual al que tenía el servidor como salario inicial, en la categoría modificada por esta ley; sumado el correspondiente sobresueldo anterior a la aplicación de esta escala. En el caso de que la suma no coincida, la respectiva clase de puestos se ubicará en la categoría inmediata superior.
+Presidencia de la República.-San José, a los veintiséis días del mes de julio de mil novecientos ochenta y dos.
