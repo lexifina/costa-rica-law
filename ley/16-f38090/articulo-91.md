@@ -1,2 +1,4 @@
-Artículo 91.—El Departamento Emisor no podrá redescontar o descontar documentos sobre los cuales hayan cargado los bancos intereses superiores en un "tres por ciento, inclusive comisiones y otras cargas, a las tasas fijadas por el Departamento para la misma clase de documentos.
-Para que el Departamento pueda descontar o redescontar documentos que provengan de las operaciones de crédito a que se refiere el inciso 3) del artículo 85 de esta ley, las tasas de descuento o de interés cobradas por los bancos deberán ser iguales a las que cobre el Departamento Comercial de conformidad con las disposiciones de los incisos respectivos del artículo 169 de esta ley.
+Capítulo VI
+Depósitos, Bonos de Estabilización Monetaria y Cámara de Compensación
+Artículo 91.- El Departamento Emisor podrá recibir de cualquier persona natural o jurídica depóstos en cuenta corriente en moneda naciona, que en ningún caso devengarán intereses. Cuando así lo exija el desarrollo de su política monetaria y de crédito, el Departamento podrá recibir de los bancos comerciales o de cualquier persona natural o jurídica depósitos a plazo en moneda nacional, cuyas condiciones, vencimientos y tasas de interés serán determinadas libremente por el Consejo.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

@@ -1,2 +1,2 @@
-Artículo 75. — El Departamento Emisor calculará diariamente un tipo de cambio medio de las diferentes monedas, sobre la base de las transacciones realizadas por el Banco y los bancos comerciales. Para las monedas en que no hubiere habido transacciones, se calculará el promedio de los tipos de compra y de venta cotizados por el Departamento.
-Estos promedios tendrán carácter de tipos legales de cambio para los asuntos que se tramiten ante los tribunales de justicia.
+Artículo 75.- Los tipos de cambio fijados por la Comisión para las operaciones del Banco tendrán carácter de oficiales y serán considerados como tipos legales de cambio para los asuntos que se tramiten ante los Tribunales de Justicia.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
