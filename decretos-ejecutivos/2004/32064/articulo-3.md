@@ -1,0 +1,1 @@
+Artículo 3º—El Registro que se conceda tendrá una vigencia de un año a partir de la fecha de emisión. Vencido el plazo, los registrados no podrán realizar gestiones relacionadas con la importación hasta que se renueve la inscripción.

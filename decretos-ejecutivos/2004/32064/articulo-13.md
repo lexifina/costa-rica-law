@@ -1,0 +1,1 @@
+Artículo 13.—La cancelación antes dicha, no impedirá que el establecimiento pueda ser nuevamente autorizado, para lo cual deberá acreditar a satisfacción de las autoridades, el cumplimiento de todas las regulaciones establecidas en el presente Decreto y las demás disposiciones que rigen la materia.

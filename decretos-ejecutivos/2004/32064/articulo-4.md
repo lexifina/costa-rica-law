@@ -1,0 +1,1 @@
+Artículo 4º—Será función del Departamento de Cuarentena Animal de la Dirección de Salud Animal del Ministerio de Agricultura y Ganadería, aprobar o rechazar las solicitudes que se presenten por los interesados.

@@ -1,0 +1,1 @@
+Artículo 2º—Toda persona, física o jurídica, que importe animales, productos, subproductos y derivados de origen animal, destinados para consumo humano y / o uso industrial, deberá previamente, estar inscrito en este Registro.
