@@ -1,0 +1,1 @@
+Artículo 4°.- Quedan obligadas ambas Municipalidades a continuar las obras iniciadas por los Concejos de Distrito a que esta ley se refiere, y a respetar los contratos que los mismos hubieren celebrado y estén en ejecución, esto último sin perjuicio de poder pedir la revisión de ellos o la rescisión, de estimarse conveniente hacerlo, - por lo medios que brindan las leyes.-
