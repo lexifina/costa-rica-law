@@ -1,0 +1,2 @@
+Articulo 5°—Modifíquese el artículo 8 inciso a) del puntaje de la empresa para que diga:
+"a) En caso de empresas con declaratoria turística, si no ha tenido algún tipo de sanciones ante el ICT en tos tres años anteriores y en el caso de asociaciones y empresas con el Certificado de Sostenibilidad Turística, si no han incumplido compromisos u obligaciones con el Instituto en los tres años anteriores. Puntaje 10%".
