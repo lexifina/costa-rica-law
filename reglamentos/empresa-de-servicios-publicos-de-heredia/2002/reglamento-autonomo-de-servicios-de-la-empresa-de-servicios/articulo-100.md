@@ -1,6 +1,4 @@
 CAPÍTULO XI
 De los permisos con y sin goce de salario
-Artículo 100.—Mediante el Departamento de Recursos Humanos, la Gerencia o el contralor según corresponda podrá otorgar permiso con goce de salario hasta por treinta días hábiles al año, previa solicitud de la jefatura respectiva:
-a. Al servidor cuyo cónyuge, compañero, hijo (a), padres, hermanos o abuelos hayan enfermado y necesiten su atención personal.
-b. Al servidor que se encuentre en alguna otra situación que el Departamento de Recursos Humanos, considere lo amerite.
-Cualquier circunstancia por la que se solicite este permiso debe demostrarse mediante prueba fehaciente.
+Artículo 100.—La Gerencia General y la Subgerencia Administrativa podrán autorizar permisos con goce de salario hasta por treinta días naturales, a servidores regulares de la Empresa, previa solicitud a la Jefatura respectiva, cuyo cónyuge, compañero (a), hijo (a) o padres sufran de un accidente o enfermedad grave o terminal, que requiera de su cuidado y atención personal por carecer en el núcleo familiar de otra persona que pueda brindar los cuidados paliativos necesarios, siempre que haya agotado el período de vacaciones, todo previa demostración mediante el dictamen médico correspondiente, extendido por un médico de la Caja Costarricense del Seguro Social. El Proceso de Recursos Humanos hará los estudios para verificar los hechos que justifican la solicitud, previo a la autorización que emita la Gerencia General o Subgerencia Administrativa.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N°2531, celebrada el 27 de octubre de 2003, publicada en La Gaceta N°222 del 18 de noviembre de 2003.)
