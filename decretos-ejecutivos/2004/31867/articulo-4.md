@@ -1,0 +1,1 @@
+Artículo 4º—En el caso de que durante su ejecución, se presentaran eventuales contingencias, el Poder Ejecutivo, por medio del Ministerio de Hacienda, podrá dentro de la disponibilidad presupuestaria existente, asignar al CONAVI, fondos adicionales a su presupuesto ordinario para cubrir el pago de aquellas que resulten legalmente procedentes.
