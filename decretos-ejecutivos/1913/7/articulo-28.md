@@ -1,1 +1,1 @@
-Artículo 28.—Para el acto de la declaración del nacimiento pueden los padres hacerse representar por otra persona, por medio de carta-poder.
+Artículo 28.—(Derogado y publicado en la Colección de Leyes y Decretos del año 1952, Semestre II, Tomo I, página 133)
