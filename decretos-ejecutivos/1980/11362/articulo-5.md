@@ -1,0 +1,1 @@
+Artículo 5°-La Dirección General de Servicio Civil y la Oficina Técnica Mecanizada no tramitarán ningún tipo de nombramiento de personal en los ministerios que no hubieren cumplido con lo antes dispuesto.

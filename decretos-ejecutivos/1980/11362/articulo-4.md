@@ -1,0 +1,1 @@
+Artículo 4°-Las listas de puestos vacantes con sus respectivos códigos, claves y número de puesto, deberán ser presentadas a la Comisión de Recursos Humanos, a los efectos de que en lo sucesivo los ministerios puedan hacer nombramientos, ascensos y traslados cumpliéndose únicamente con los trámites ordinarios a que obliga el Estatuto de Servicio Civil y su Reglamento.
