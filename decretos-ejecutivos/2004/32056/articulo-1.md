@@ -10,4 +10,5 @@ Considerando:
 6º—Que mediante el oficio STAP-0418-04 del 12 de abril del 2004, se comunicó al ICODER el gasto presupuestario máximo fijado para el año 2005.
 7º—Que por lo anterior, resulta necesario modificar el gasto presupuestario fijado para el ICODER en el oficio citado. Por tanto:
 DECRETAN:
-Artículo 1º—Modifícase el gasto presupuestario establecido para el año 2005 al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, fijando el mismo en ¢2.309,6 millones.
+Artículo 1º—Modifícase el gasto presupuestario establecido para el año 2005 al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 31708-H y sus reformas, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, fijando el mismo en ¢2.317,60 millones.
+(Así reformado parcialmente mediante el artículo 1° del Decreto Ejecutivo No. 32220, del 12 de enero del 2005.)
