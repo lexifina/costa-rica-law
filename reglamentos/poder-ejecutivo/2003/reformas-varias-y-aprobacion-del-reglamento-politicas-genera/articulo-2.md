@@ -1,0 +1,1 @@
+II.—Dejar sin efecto las "Normas para la administración de las reservas monetarias internacionales", aprobadas por la Junta Directiva del Banco Central de Costa Rica, en la sesión 5058-2000. Artículo 11, celebrada el 6 de diciembre de 2000.

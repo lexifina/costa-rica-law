@@ -1,0 +1,1 @@
+IV.—Dejar establecido que, en adelante, los límites máximos de inversión, para los diferentes tipos de instrumentos, serán establecidos por el Comité de Reservas, según se consigna en las Políticas aprobadas en el numeral anterior.
