@@ -1,9 +1,0 @@
-Destino de los Beneficios Netos del Banco, mientras exista el
-Servicio de los Bonos del Sistema Bancario Nacional 7 %, 1949
-Artículo 7°—Mientras exista el servicio de amortización e intereses de los bonos del Sistema Bancario Nacional 7 %, 1949, se dispondrá dé las utilidades del Banco Central de la siguiente manera:
-a) En primer término se segregará la suma necesaria para cubrir la aportación establecida actualmente a cargo del Departamento Emisor del Banco Nacional de Costa Rica, según el inciso a) del articulo 3° de la ley N° 318 de 29 de diciembre de 1948;
-b) Se apartará, además, una cantidad igual a la tercera parte de la suma, que, conforme a las leyes N° 30 de 8 de octubre de 1931 y N° 118 de 13 de julio de 1934, se requerían para el servicio de los Bonos Carreteras y que actualmente se destina al servicio de los Bonos del Sistema Bancario Nacional 7 %, 1949, según el inciso d) del artículo 3° de la ley N° 318 de 29 de diciembre de 1948; y
-c) separado lo anterior, el remanente se distribuirá en la siguiente forma:
-1.- El veinticinco por ciento (25%) para cubrir parcialmente la obligación q existe sobre el Banco Nacional de Costa Rica, establecida en el inciso III, párrafo a) del artículo 36 de la ley N° 16 de 5 de noviembre de 1936m confirmada en el inciso c) del artículo 3° de la ley N° 318 de 29 de diciembre de 1948 y que, en lo proporcional, destinaba el Departamento Emisor a la formación de un Fondo de Saneamiento de la Deuda Pública;
-2.- El diez por ciento (10%) para la constitución de un Fondo de Pensiones y Jubilaciones de los empleados del Banco Central, no pudiendo en ningún caso exceder esta suma del diez por ciento (10%) al total de los sueldos pagados en el año respectivo; y
-3.- El sobrante será distribuido en la forma que lo determine la Junta Directiva.

@@ -1,2 +1,1 @@
-Artículo 82.- Si los vendedores estipulan el pago del oro sobre la base del análisis hecho en el exterior, el Departamento les adelantará, en el momento de la compra, el 70% del valor que resulte del análisis hecho en el país. El valor restante, deducido el porcentaje a que se refiere el artículo anterior, será pagado inmediatamente después de recibido por el Departamento el resultado del análisis definitivo acordado.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 82.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

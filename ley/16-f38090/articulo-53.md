@@ -1,2 +1,1 @@
-Artículo 53.- El Consejo se reunirá en sesión ordinaria una vez por semana, y en sesión extraordinaria cada vez que sea convocado por el Gerente del Banco, por propia iniciativa o a petición de uno de sus miembros, con indicación, por escrito, del motivo de la reunión. El Gerente, o los Subgerentes cuando lo reemplacen en sus funciones, deberán asistir a las sesiones del Consejo, en las cuales tendrán voz pero no voto.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 53.-(Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

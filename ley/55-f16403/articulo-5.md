@@ -1,1 +1,2 @@
-Artículo 5°.- Las ganancias o pérdidas que resultaren de las operaciones del Departamento Emisor con el Fondo Monetario Internacional y con el Banco Internacional de Fomento y Reconstrucción, correrán por cuenta del citado Departamento.
+Artículo 5°.- Las ganancias o pérdidas que resultaren de las operaciones del Banco Central de Costa Rica(*) con el Fondo Monetario Internacional y con el Banco Internacional de Fomento y Reconstrucción, correrán por cuenta del citado Banco Central de Costa Rica(**).
+(*) (Modificada su denominación por el artículo 127 (actual 146) de la Ley Orgánica del Banco Central de Costa Rica, N° 1552 del 23 de abril de 1953. Anteriormente se indicaba: "*Departamento Emisor, **Departamento")

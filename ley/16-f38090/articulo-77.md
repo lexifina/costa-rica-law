@@ -1,2 +1,1 @@
-Artículo 77.- Las pérdidas que se originen en operaciones con oro y divisas como consecuencia de una revaluación de la moneda nacional, serán cargadas por el Departamento al Fondo de Regulación de Cambios.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 77.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

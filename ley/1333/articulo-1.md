@@ -1,4 +1,6 @@
+(Derogado)
 N° 1333
+(Derogado por el artículo 128 (actual 147) de la ley Orgánica del Banco Central de Costa Rica, N° 1552 del 23 de abril de 1953)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 Considerando:
 1º.- Que dentro del principio de unidad de caja, acogido por esta Asamblea, deben centralizarse los egresos de las rentas públicas, tanto las destinadas a los gastos ordinarios como el servicio de la Deuda y poner en manos de una sola institución el manejo de esos fondos;

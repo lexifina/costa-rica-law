@@ -1,2 +1,0 @@
-Representante de los otros Bancos
-Artículo 22.—Los otros bancos del país estarán representados conjuntamente en la Junta Directiva por dos delegados de su nombramiento, que tendrán voz pero no voto. Esos delegados serán designados en forma rotativa por tales instituciones, para un período de cuatro años, pudiendo ser reelectos. Si por cualquier motivo los bancos no hicieren el nombramiento o la reposición de los delegados que les corresponden, eso no constituirá impedimento ni obstáculo en el desarrollo de las funciones o labores de la Junta Directiva.

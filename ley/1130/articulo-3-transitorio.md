@@ -1,1 +1,0 @@
-Artículo 3°—Aun cuando los miembros de la Junta Directiva del Banco y el Gerente y Subgerente del mismo, serán nombrados tan pronto sea promulgada esta ley, sus periodos legales comenzarán a contarse a partir del 1° de enero de 1950.

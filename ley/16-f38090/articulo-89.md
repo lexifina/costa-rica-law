@@ -1,2 +1,1 @@
-Artículo 89.- El Consejo nombrará una Comision de Redescuento pemanente, integrada por el Gerente y los Subgerentes del Banco, quienes podrán ser suplidos en sus ausencias temporales por otros funcionarios del Banco, designado por el Consejo. Esta Comisión tendrá a su cargo el estudio y la resolución de las operaciones de crédito que se propongan al Departamento con carácter de urgentes y funcionará de acuerdo con las instrucciones que el Consejo le imparta, a las cuales quedan supeditadas sus facultades y atribuciones.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 89.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

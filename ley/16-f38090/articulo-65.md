@@ -1,2 +1,1 @@
-Artículo 65.- El Estado no podrá emitir, ni autorizar a ninguna persona natural o jurídica, de derecho público o privado, para que emita bonos, cédulas, obligaciones o títulos de cualquier clase, convertibles en billetes.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 65.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

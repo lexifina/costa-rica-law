@@ -1,2 +1,1 @@
-Artículo 81.- El precio que el Departamento pagará por el oro que compre será calculado sobre la base del precio del oro fino en New York, deducido un porcentaje fijado por el Consejo para poder cubrir el importe de los gastos de análisis en el país y en el exterior, transporte, seguro, fundición y demás gastos accesorios que se originen en su reducción a oro fino y de su depósito para custodia en un banco central extranjero.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 81.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

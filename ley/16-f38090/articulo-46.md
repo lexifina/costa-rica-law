@@ -1,2 +1,1 @@
-Artículo 46.- El representante de los bancos comerciales y su suplente, serán elegidos por estos, por mayoría de votos. El suplente no podrá ser director, gerente, personero o empleado del mismo banco a que pertenezca el propietario.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 46.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")
