@@ -1,10 +1,2 @@
-Artículo 104.—La Administración, de oficio y de previo a la devolución o aplicación a facturaciones futuras de pagos repetidos, encomendará al funcionario responsable, el levantamiento de un expediente debidamente foliado, en el cual se incorpore toda la documentación que en forma fehaciente e indubitable se acredite la procedencia de la devolución.
-Entre otros documentos deberá de incorporarse:
-1) Una resolución del encargado del área comercial de la respectiva Región, ordenando la apertura del procedimiento de devolución.
-2) El documento oficial expedido por la Unidad correspondiente, en la cual se acrediten los pagos repetidos para una misma facturación, o en su caso las modificaciones en los montos facturados, con indicación del origen, la justificación, los elementos probatorios, el número de NIS, fecha de la facturación, fecha del pago, monto de los pagos, nombre del agente recaudador en donde se realizaron los pagos, y cualesquiera otra circunstancia necesaria que acredite la verdad real.
-3) En el caso de cobro y pago de sumas por servicios no prestados, deberá de acreditarse fehacientemente el origen, las causas por las cuales no se brindó el servicio, las fechas y documentos de soporte.
-4) En todos los casos en forma indubitable el responsable del Área Comercial deberá acreditar con documento suscrito bajo su responsabilidad el monto correspondiente. Y la recomendación al Director Regional, para que emita la resolución.
-5) De previo a practicar la devolución, deberá de elaborarse una resolución debidamente numerada, fechada, razonada, fundamentada, haciendo relación a cada uno de los hechos y elementos probatorios, y el monto a devolver, la cual será firmada por el Director Regional y comunicada al usuario, a la Auditoría, a la Gerencia General y al Director comercial.
-6) Transcurrido el plazo de diez días, sin que existan objeciones de ninguna de las indicados en el inciso anterior, se procederá a practicar la devolución según los numerales que anteceden.
-(Así adicionado mediante Sesión 2004-85 del 30 de noviembre del 2004)
-Rige a partir de su publicación en el Diario Oficial.
+Artículo 104.—En cada caso se deberá levantar un expediente debidamente foliado, en el cual se incorpore toda la documentación que en forma fehaciente e indubitable acredite la procedencia de la devolución.
+(Así reformado mediante Acuerdo No. 2005-144, de la sesión ordinaria No. 2005-007, celebrada el 22 de febrero del 2005.).

@@ -22,3 +22,4 @@ Reglamento de Prestación de Servicios al Abonado
 | 7 | 2004-02-13 | Reglamento 442 (2004-02-13) |
 | 8 | 2004-05-05 | Reglamento 247 (2004-05-05) |
 | 9 | 2004-11-30 | Reglamento 85 (2004-11-30) |
+| 10 | 2005-02-22 | Reglamento 7 (2005-02-22) |
