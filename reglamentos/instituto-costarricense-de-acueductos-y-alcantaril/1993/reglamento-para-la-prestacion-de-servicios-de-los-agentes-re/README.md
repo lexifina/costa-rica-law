@@ -14,3 +14,4 @@ Reglamento para la Prestación de Servicios de los Agentes Recaudadores del A y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-12 | la propia norma |
+| 2 | 2004-12-14 | Reglamento 87 (2004-12-14) |
