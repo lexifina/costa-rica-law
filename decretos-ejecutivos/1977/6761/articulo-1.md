@@ -1,0 +1,11 @@
+N° 6761-G
+PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICÍA, JUSTICIA Y GRACIA,
+Considerando:
+1°.- El Instituto Costarricense de Electricidad necesita adquirir para que forme parte de El Embalse del Proyecto Hidroeléctrico Arenal, como su propiedad T-52, tres inmuebles contiguos propiedad de don Joaquín Alfaro Fuentes.
+2°.- Las citadas propiedades fueron valoradas por la Sala Segunda del Tribunal Fiscal Administrativo en resolución N° 221 de las 12:50 horas del 21 de julio de 1975, en la suma global de ¢87.176.70 (ochenta y siete mil ciento setenta y seis colones, setenta céntimos), cantidad que incluye además de los terrenos, el valor de una casa de habitación de madera e instalaciones allí existentes conforme las describe el respectivo avalúo, y se hace necesario recurrir a los trámites de expropiación forzosa en virtud de no haber sido aceptado dicho avalúo por el propietario.
+3°.- La Ley N° 2292 de 20 de noviembre de 1958, declara de utilidad pública la adquisición de inmuebles y la constitución de servidumbres de cualquier naturaleza, necesarios para los programas de electrificación del referido Instituto, remitiendo la misma en los casos de expropiación forzosa al procedimiento prescrito por la ley N° 1371 de 10 de noviembre de 1951, de expropiación para el Aeropuerto “El Coco”, hoy Juan Santamaría.
+4°.- De acuerdo con estudios técnicos realizados por dicho Instituto, está suficientemente demostrada la utilidad pública y la urgencia de la adquisición de los inmuebles citados, por lo que de conformidad con lo dispuesto por el artículo 45 de la Constitución Política, y Leyes números 2292 y 1371 mencionadas, procede decretar la expropiación correspondiente.
+Por tanto,
+Decretan:
+Artículo 1°.- Exprópiase al señor Joaquín Alfaro Fuentes, sus fincas del Partido de Guanacaste así: a) Tomos 1550 y 1770, folios 390 y 258, N° 13101, asientos 7) y 8), que es resto de terreno cultivado totalmente de café y además detalles que indica el Registro: b) tomo 1575, folio 223, N° 13316, asiento 2, que es terreno de agricultura. Todos los inmuebles están situados en tronadora, distrito 3° del cantón 8° de Guanacaste. La expropiación se realiza de conformidad con el plano N° T-52 levantado por el Instituto Costarricense de Electricidad en setiembre de 1974.
