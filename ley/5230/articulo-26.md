@@ -1,6 +1,6 @@
 CAPITULO V
 De las Funciones de los Directores
-Artículo 26.- Son deberes y atribuciones del Presidente:
+ARTICULO 26.- Son deberes y atribuciones del Presidente:
 a) Presidir las sesiones de la Junta Directiva y de la Asamblea General;
 b) Autorizar los gastos del Colegio hasta por el monto que le fije la
 Junta Directiva e informar a dicha Junta;

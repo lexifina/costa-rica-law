@@ -1,4 +1,4 @@
-Artículo 25.- Son atribuciones de la Junta Directiva:
+ARTICULO 25.- Son atribuciones de la Junta Directiva:
 a) Convocar a Asamblea General, de acuerdo en un todo con la presente
 ley;
 b) Nombrar los representantes del Colegio ante los organismos en que

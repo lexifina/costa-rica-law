@@ -1,4 +1,4 @@
-Artículo 2º.- El Colegio de Geólogos tiene por objeto:
+ARTICULO 2º.- El Colegio de Geólogos tiene por objeto:
 a) Promover y estimular el progreso de las Ciencias Geológicas;
 b) Cooperar con la Universidad y con otras instituciones del Estado en
 el mejoramiento y desarrollo de las profesiones en ciencias geológicas; y
