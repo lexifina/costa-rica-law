@@ -1,0 +1,1 @@
+Art 2°.- El Jefe Supremo del Estado tendrá el sueldo de cien pesos al mes, y el Secretario General del Despacho, el de sesenta. La Ley no hace diferencia entre propietarios o interinos respecto de estos funcionarios

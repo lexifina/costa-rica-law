@@ -1,0 +1,1 @@
+Art 4°.- El Factor de tabacos gozará de sueldo de sesenta y cinco pesos al mes; el Interventor, el de cincuenta: el escribiente, el de veinte, y los dos Guardas de la Factoría, el de veinte pesos cada uno; y cuando pasen a los partidos de Bagaces y Nicoya a practicar los cortes de tercenas, harán también los de Receptorías sin premio alguno.
