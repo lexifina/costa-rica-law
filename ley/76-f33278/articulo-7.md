@@ -1,0 +1,1 @@
+Art. 7. El precio de los licores extranjeros comunes que se vendan al menudeo no bajarà ni subira de cinco reales la botella; pero el de los finos, que nunca bajara, podrà subir segun el mérito y costo original de ellos.

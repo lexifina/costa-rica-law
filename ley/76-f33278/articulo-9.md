@@ -1,0 +1,1 @@
+Art. 9 El presente decreto empezarà à tener todos sus efectos desde el 19 de enero de 1818. Dado en la ciudad de San José á les veintisiete dias del mes de noviembre de mil ochocientos cuarenta y siete. Jose Maria Castro.-Al Ministro de hacienda guerra y marina Señor Don Manuel José Carazo.
