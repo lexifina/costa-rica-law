@@ -28,6 +28,8 @@ Director General de Transporte Automotor.
 Miembros del Tribunal Fiscal Administrativo.
 Miembros del Tribunal de Servicio Civil.
 Miembros del Consejo Nacional de Deportes.
+Todos aquellos asesores o funcionarios de gobierno que sean nombrados con rango de Ministro, quedan obligados a rendir declaración jurada de bienes, dentro de los plazos que señalan los artículos 12 y 16 de la ley N° 6872/83.
+(Así adicionado el párrafo anterior y publicado en La Gaceta N° 9 del 12 de enero de 1989)
 b) Del Poder Legislativo:
 Director Ejecutivo de la Asamblea Legislativa.
 Proveedor de la Asamblea Legislativa.
@@ -66,3 +68,5 @@ Subgerentes de dichas empresas estatales.
 Directores Ejecutivos de dichas empresas estatales.
 Auditores Internos de dichas empresas estatales.
 Proveedor (o cargo similar) de dichas empresas estatales.
+i) Todo funcionario que desempeñe funciones propias de los cargos que se señalan en este artículo, deberá cumplir con el requisito de presentar declaración juradas de bienes, aunque esté nombrado en una plaza diferente al cargo que ejerce.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 9 del 12 de enero de 1989)

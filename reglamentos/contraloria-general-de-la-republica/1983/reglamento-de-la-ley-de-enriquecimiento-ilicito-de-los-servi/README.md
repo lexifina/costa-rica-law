@@ -14,3 +14,4 @@ Reglamento de la Ley de Enriquecimiento Ilícito de los Servidores Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-10-20 | la propia norma |
+| 2 | 1989-01-03 | Reglamento 0 (1989-01-03) |
