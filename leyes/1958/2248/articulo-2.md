@@ -1,7 +1,9 @@
 Artículo 2º.- Las jubilaciones serán ordinarias o extraordinarias. Tendrán derechos a acogerse a una jubilación ordinaria quienes se hallaren
 en uno de los siguientes casos:
 a) Quienes hubieren prestado treinta años de servicio.
-b) Quienes hubieren servido veinticinco años, siempre que diez años consecutivos o quince en forma alterna, lo hubieren sido en zonas calificadas como insalubres o incómodas, a juicio de los Ministerios de Salubridad y Educación, respectivamente. Esta calificación de zonas será revisada cada dos años.
+b) Quienes hubieran servido veinticinco años, siempre que durante diez años consecutivos o quince alternos lo hubieran hecho en la enseñanza especial o en zonas calificadas como insalubres o incómodas, a juicio delos Ministerios de Salud y de Educación Pública, respectivamente.
+Esta calificación de zonas será revisada cada dos años.
+(Así reformado el inciso b) anterior por el artículo 1° de la ley N° 6140 del 17 de noviembre de 1977)
 c) Quienes en ejercicio de su profesión alcanzaren sesenta años de edad, aunque no tuvieren los años de servicio establecidos en los incisos anteriores. Cuando de estos casos se tratare y el solicitante tuviere veinte años de servicio, el cálculo del beneficio se hará como si se tratara de pensiones ordinarias contempladas en el inciso a) de este artículo.
 En los dos primeros casos la jubilación será voluntaria y se concederá a solicitud del interesado; en el tercero será obligatoria y se acogerá de oficio.
 Los años de servicio a que se refiere este artículo, deberán probarse mediante certificación emitida por el Departamento de Personal del Ministerio de Educación.
