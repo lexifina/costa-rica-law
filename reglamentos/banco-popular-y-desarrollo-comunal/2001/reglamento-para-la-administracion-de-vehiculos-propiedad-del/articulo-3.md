@@ -1,0 +1,1 @@
+Articulo 3°—Los vehículos propiedad del Banco deberán estar convenientemente asegurados a criterio de la Gerencia, e inscribirse a su nombre en el Registro de la Propiedad de Vehículos Automotores del Registro Público, debiendo desinscribirse los que dejen de pertenecerle.

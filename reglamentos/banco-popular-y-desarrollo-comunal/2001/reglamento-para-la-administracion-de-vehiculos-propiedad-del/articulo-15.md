@@ -1,0 +1,1 @@
+Artículo 15. --El presente Reglamento deroga el "Reglamento para uso de vehículos del Banco Popular y de Desarrollo Comunal", publicado en el Diario Oficial del 22 de Julio cié 1994, así como cualquier oirá disposición anterior, relativa u la materia, que se le oponga.

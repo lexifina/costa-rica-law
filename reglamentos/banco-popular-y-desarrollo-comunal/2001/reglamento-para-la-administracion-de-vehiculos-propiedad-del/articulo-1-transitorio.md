@@ -1,0 +1,2 @@
+Transitorio. - Dentro de los 30 días siguientes a la publicación de este Reglamento, la Gerencia General deberá dictar por escrito las instrucciones que en caso de accidente deban seguir, tanto el conductor como su acompañante, las cuales deberán ser conformes con este Reglamento y contemplar al menos lo indicado en el punto 317.02 del "Manual sobre técnicas de control interno relativas al control sobre el uso y mantenimiento de vehículos" dictado por la Contraloría General de la República.
+Rige a partir de su publicación en el Diario Oficial

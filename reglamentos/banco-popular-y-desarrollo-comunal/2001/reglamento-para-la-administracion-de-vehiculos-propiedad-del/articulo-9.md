@@ -1,0 +1,2 @@
+Artículo 9.—Cada Sucursal tendrá asignado permanentemente vehículo de uso administrativo, estando en ese caso a cargo del Gerente la Sucursal, las funciones asignadas a la Gerencia o a la Dependencia
+Transporte en los artículos 4, segundo párrafo: 7, segundo y tercer párrafos; 8. incisos b, c, d, e, f, g, h, i, j; y 12, incisos ñ y o de este Reglamento; así como indicar cuáles empleados o funcionarios del Banco están autorizados para conducirlo.

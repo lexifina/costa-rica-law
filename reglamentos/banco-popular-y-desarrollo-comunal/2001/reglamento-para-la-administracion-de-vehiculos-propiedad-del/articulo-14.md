@@ -1,0 +1,1 @@
+Artículo 14. - Salvo en los casos en que exista 'sentencia firme en sede judicial, la responsabilidad civil que ante el Banco pueda caberles a funcionarios o empleados del Banco por violación al presente Reglamento y demás disposiciones indicadas en su artículo I", será determinada, previo debido proceso, por la Gerencia, salvo que ello corresponda a la Junta Directiva Nacional.

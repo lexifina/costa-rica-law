@@ -1,0 +1,5 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión extraordinaria 3848 acordó por mayoría:
+Autorizar a la Secretaría de la Junta Directiva Nacional para que proceda a publicar en el Diario Oficial la Gaceta la aprobación del Reglamento para la Administración de vehículos propiedad del Banco Popular y de Desarrollo Comunal de conformidad con el siguiente texto;
+REGLAMENTO PARA LA ADMINISTRACIÓN DE VEHÍCULOS PROPIEDAD DEL BANCO POPULAR Y DE DESARROLLO COMUNAL
+Articulo 1°—El uso, control y mantenimiento de los vehículos propiedad del Banco Popular y el uso de este están regulados por el presente Reglamento, así como por todos aquellos otros reglamentos, circulares, órdenes, y demás disposiciones que señalen deberes y obligaciones de los empleados y funcionarios del Banco en relación con la conservación de los bienes de la Institución. Dichas normas son de conocimiento y acatamiento obligatorio por parte de los conductores, así como de los usuarios de dichos vehículos.
