@@ -5,3 +5,4 @@ ANEXO 1
 (Así MODIFICADO mediante artículo 1° del Decreto Ejecutivo N°31362 del 10 de setiembre de 2003, publicado en La Gaceta N° 184 del 25 de setiembre de 2003.)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N°31410 del 09 de octubre de 2003, publicado en La Gaceta N° 207 del 28 de octubre de 2003.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE mediante Decreto Ejecutivo N° 31426 de 31 de octubre de 2003, publicado en el Alcance N°49 a La Gaceta N° 210 del 31 de octubre de 2003.)
+(REFORMADO PARCIAL Y EXPRESAMENTE mediante Decreto Ejecutivo N° 31476 de 7 de noviembre 2003, publicado en e La Gaceta N° 228 del 26 de noviembre de 2003).
