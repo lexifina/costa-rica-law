@@ -1,0 +1,1 @@
+Art. 2° -Si el que pretende la adjudicación no hubiere sido directamente agraciado, sino que poseyere hoy por virtud de algún título traslativo de dominio, que derivase mediata ó inmediatamente de algún agraciado, deberá justificar el derecho con que posee por prueba fundamentada o testimonial.
