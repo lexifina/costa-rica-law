@@ -1,0 +1,1 @@
+Artículo 5°.- La Contraloría General de la República no autorizará presupuestos a esta Corporación, si no se consignan las partidas de amortización e intereses necesarias para la atención de este empréstito.
