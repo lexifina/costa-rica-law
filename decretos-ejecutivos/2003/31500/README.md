@@ -14,3 +14,4 @@ Convoca a la Asamblea Legislativa sesiones extraordinarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-27 | la propia norma |
+| 2 | 2003-12-15 | Decreto Ejecutivo 31560 (2003-12-15) |
