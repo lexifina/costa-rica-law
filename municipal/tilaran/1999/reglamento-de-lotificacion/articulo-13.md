@@ -1,0 +1,1 @@
+13.—Los miembros de esta comisión tendrán voz y voto y harán informes al Concejo Municipal, aprobando e improbando las solicitudes. Al Concejo Municipal corresponde la decisión final con amparo a lo decidido por la comisión y los documentos aportados.

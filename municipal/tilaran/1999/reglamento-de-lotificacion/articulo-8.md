@@ -1,0 +1,1 @@
+8°—Los planos de fraccionamiento o urbanización deberán ser elaborados por un profesional responsable, de tal manera que el valor del lote deberá adicionar los costos de planos e infraestructura en caso de ser necesario realizar este tipo de obras.

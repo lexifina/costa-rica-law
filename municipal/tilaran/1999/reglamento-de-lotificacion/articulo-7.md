@@ -1,0 +1,1 @@
+7°—Dado el carácter social de estos proyectos, los beneficiarios no podrán vender, ceder, gravar o enajenar bajo ninguna forma, el inmueble sin la autorización previa y por escrito de la Municipalidad. La venta se permitirá solo si en forma inmediata se cancela el crédito en su totalidad, y que no hayan transcurrido menos de diez años desde la fecha de la respectiva adjudicación.

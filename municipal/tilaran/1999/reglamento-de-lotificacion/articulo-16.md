@@ -1,0 +1,1 @@
+16.—La Municipalidad de Tilarán una vez que tenga los terrenos habilitados, definido el lote y casa a adquirir y aprobada la gestión del solicitante, autorizara el otorgamiento de la escritura respectiva ante el notario que designe la Municipalidad.

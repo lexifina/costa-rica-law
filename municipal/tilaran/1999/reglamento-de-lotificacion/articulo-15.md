@@ -1,0 +1,1 @@
+15.—Corresponde al Alcalde Municipal ejecutar los acuerdos del Concejo en relación con el Plan de Lotificación y Crédito en su caso. También deberá notificar a los interesados sobre el resultado de su gestión.
