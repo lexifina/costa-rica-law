@@ -1,0 +1,11 @@
+N° 17490-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+En ejercicio de las facultades que les confieren los incisos 3) y 18 del de la Constitución Política, y dé las disposiciones de la ley N° 2825 de 14 de octubre de 1961 y de los artículos 18, inciso r), y 32 de la ley N° 29 de marzo de 1982.
+Considerando:
+1°—Que el Instituto de Desarrollo Agrario es el ente estatal encargado por ley de la ejecución de toda clase de programas a fin de hacer efectivo el principio de la función social de la propiedad y la justa y. equitativa distribución de la riqueza y los medios de producción.
+2°—Que dicha institución es propietaria de una finca sin inscribir, situada en distrito primero del cantón trezavo (Úpala) de la provincia de Alajuela, y que forma parte del asentamiento llamado Los Ingenieros. Dicha finca se describe, según plano catastrado No A-626149 de fecha 22 de abril de 1986, levantado por el agrimensor Eduardo Esquivel Mora, de la siguiente forma: naturaleza, terreno para la agricultura. Linderos; norte, Abraham Ruiz Brizuela y río Zapote; sur, Virgilio Zamora Barrientes y en parte río Zapote; este, Abraham Ruiz Brizuela y calle pública, con un frente de ochocientos cincuenta y seis metros sesenta y dos centímetros; oeste, río Zapote. Mide cien hectáreas cuatro mil setenta y un metros veintisiete decímetros cuadrados.
+3°—Que para dar cumplimiento a los fines que persigue la Legislación Agraria, es necesario que las fincas que sean propiedad del Instituto de Desarrollo Agrario se encuentren debidamente inscritas en el Registro Público de la Propiedad.
+Por tanto,
+DECRETAN:
+Artículo 1°—Se ordena al Registro Público de la Propiedad la inscripción a nombre del Instituto de Desarrollo Agrario de un lote de terreno situado en el distrito primero del cantón trezavo, Úpala, de la provincia de Alajuela, que es terreno para la agricultura, cuyos linderos son: norte, Abraham Ruiz Brizuela, y Zapote; sur, Virgilio Zamora Barrientos y en parte río Zapote; este, Abraham Ruiz Brizuela y calle pública con un frente de ochocientos cincuenta y seis metros sesenta y dos centímetros; oeste; río Zapote. Mide cien hectáreas cuatro mil setenta y un metros veintisiete decímetros cuadrados.

@@ -1,0 +1,1 @@
+Articulo 2°—Quedan autorizados los notarios del Instituto de Desarrollo Agrario para que procedan a la protocolización del presente decreto, a fin de que se inscriba la citada finca a nombre del Instituto en el Registro Público.
