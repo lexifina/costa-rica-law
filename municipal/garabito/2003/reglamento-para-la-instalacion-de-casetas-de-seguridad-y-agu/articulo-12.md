@@ -1,0 +1,2 @@
+Artículo 12.—Al ordenarse el desmantelamiento de la aguja por medio del Alcalde Municipal, o por instrucciones del Concejo Municipal, bastará con que se le notifique al vecino representante del grupo comunal de dicha actuación y los motivos que la originaron.
+Contra este acto no hay recurso alguno por cuanto se trata de una autorización de uso en beneficio de bienes demaniales, cuya administración compete al Gobierno, siempre siguiendo las normas del debido proceso y las leyes administrativas.

@@ -1,0 +1,2 @@
+Artículo 13.—La autorización para el uso de las vías públicas o bienes del dominio Municipal, regulada en el presente Reglamento, constituye un uso en precario de dichos inmuebles, por lo que quienes se beneficien con dicho permiso no podrán alegarlo como un derecho adquirido, y en consecuencia puede ser revocado en cualquier momento por el Gobierno Local.
+Es con motivo de lo anterior, que las obras realizadas al amparo de este Reglamento en vías públicas se consideran municipales, por lo que no opera sobre ellas el impuesto de construcciones.

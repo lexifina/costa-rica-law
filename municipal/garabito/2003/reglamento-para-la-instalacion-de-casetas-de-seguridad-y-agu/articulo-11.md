@@ -1,0 +1,1 @@
+Artículo 11.—El Concejo Municipal podrá solicitar al Alcalde se ordene a la inmediata desmantelación de la aguja de seguridad, cuando considere que no están respetando la normativa establecida en el artículo 9 de este Reglamento, o bien, cuando cualquier sujeto de derecho se sienta razonablemente perjudicado por esta afectación de la calle pública.
