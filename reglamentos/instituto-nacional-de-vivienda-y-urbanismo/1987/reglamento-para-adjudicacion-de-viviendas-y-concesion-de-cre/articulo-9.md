@@ -1,0 +1,1 @@
+Artículo 9°—A propuesta de la Comisión de Vivienda de los empleados, la Junta Directiva fijará, en acuerdo general, el tipo de interés y cualquier otra condición de los créditos sujeta a revisión periódica, como lo pueden ser el plazo y el monto máximo del financiamiento. (Lo anterior en función de La devaluación monetaria y el incremento de costos de la construcción).

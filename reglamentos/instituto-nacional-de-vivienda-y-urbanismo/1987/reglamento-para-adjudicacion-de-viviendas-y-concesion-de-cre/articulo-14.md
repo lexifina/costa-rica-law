@@ -1,0 +1,1 @@
+Artículo 14.—Supletoriamente a estas disposiciones se aplicarán por su orden las contenidas en: los Reglamentos de Reparaciones y Mejora y Préstamos Hipotecarios de este Instituto, en el caso de préstamos y tratándose de adjudicación de vivienda se aplicará el reglamento para adjudicación de vivienda.

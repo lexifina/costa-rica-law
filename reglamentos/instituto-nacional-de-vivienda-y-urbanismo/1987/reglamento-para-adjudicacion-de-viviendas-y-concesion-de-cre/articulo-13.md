@@ -1,0 +1,1 @@
+Artículo 13.—En caso de que el empleado o funcionario deje de laborar permanentemente para la Institución el tipo de interés será aumentado al tipo de interés que rija para operaciones normales a particulares en el INVU.
