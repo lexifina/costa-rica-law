@@ -13,3 +13,4 @@ De Utilidad Pública Asociación Hogar Salvando al Alcohólico de Aserrí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-09 | la propia norma |
+| 2 | 1999-06-09 | SINALEVI (sin norma nombrada) |
