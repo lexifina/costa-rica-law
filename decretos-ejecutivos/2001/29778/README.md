@@ -14,3 +14,4 @@ Concede Autorización a los funcionarios de la administración central a sumarse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-05 | la propia norma |
+| 2 | 2001-09-06 | Decreto Ejecutivo 29781 (2001-09-06) |

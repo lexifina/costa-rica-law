@@ -10,3 +10,4 @@ Considerando:
 5º—Que el Gobierno de la República, realizará un merecido homenaje a los jugadores y cuerpo técnico de la Selección Nacional Mayor de Fútbol, que quiere compartir con toda la ciudadanía, en vista del innegable apoyo del pueblo costarricense a esta gesta deportiva. Por tanto,
 Decretan:
 Artículo 1º—En vista de que el jueves 6 de setiembre del 2001, el Gobierno de la República ofrecerá un homenaje a los jugadores y cuerpo técnico de la Selección Nacional de Fútbol, concédese autorización de las 11 horas a las 13 horas de ese mismo día, a todos los funcionarios de la administración central, a fin de que puedan sumarse a dicha actividad.
+(Este plazo se amplía hasta las 14:30 horas, de acuerdo al artículo 1° del Decreto Ejecutivo N° 29781-MP del 6 de setiembre del 2001)
