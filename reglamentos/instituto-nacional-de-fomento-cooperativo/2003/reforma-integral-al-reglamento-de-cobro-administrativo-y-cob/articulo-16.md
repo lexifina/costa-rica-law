@@ -1,0 +1,2 @@
+Artículo 16.—El abogado director de cualquier cobro judicial está obligado a presentar un informe escrito bimensual con dos copias al proceso de operaciones, sobre el estado del proceso judicial, su criterio y recomendaciones al respecto, con el propósito de medir el resultado de las acciones cobratorias.
+Para emitir el informe utilizará el formato que para los efectos el INFOCOOP haya definido. Deberá entregarlo durante los primeros cinco días del mes de enero, marzo, mayo, julio, setiembre y noviembre.

@@ -1,0 +1,1 @@
+Artículo 17.—Trimestralmente el proceso de operaciones presentará a la dirección ejecutiva un informe individualizado de cada cobro judicial pendiente, con las recomendaciones del caso. Se entregará en los primeros diez días del mes siguiente de finalizado el trimestre.

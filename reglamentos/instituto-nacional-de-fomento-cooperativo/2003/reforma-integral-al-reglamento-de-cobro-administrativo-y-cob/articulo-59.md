@@ -1,0 +1,1 @@
+Artículo 59.—Cuando el abogado encargado de la operación de cobro judicial se muestra poco diligente en la realización del trabajo encomendado, el proceso de operaciones deberá proceder lo más pronto posible. Podrá dirigir una nota correctiva al profesional o informar, debiendo agotarse las gestiones y sanciones que se detallan en este Reglamento.

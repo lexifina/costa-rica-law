@@ -1,0 +1,1 @@
+Artículo 63.—En caso de mala praxis del abogado director, el INFOCOOP presentará la denuncia respectiva ante la Fiscalía del Colegio de Abogados sin perjuicio de acudir a la vía judicial correspondiente, o utilizar otros medios que estime conveniente.

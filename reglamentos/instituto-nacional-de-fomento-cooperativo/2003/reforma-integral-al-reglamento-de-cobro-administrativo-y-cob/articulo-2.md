@@ -1,0 +1,5 @@
+Artículo 2º—Para los fines de este Reglamento se entiende por operación crediticia irregular:
+a) Aquellas que presentan atraso en el pago de amortización y/o intereses el día previamente establecido en el contrato de crédito, y no han suscrito un arreglo de pago satisfactorio para el INFOCOOP, o se encuentran vencidas, sin que medie un proceso autorizado de readecuación o refundición de deuda.
+b) Aquellas que presenten un incumplimiento en el plan de inversión, disposición de garantía, o que muestren un acelerado deterioro de ésta, que ponga en peligro la recuperación efectiva del crédito, sin que previamente se hubiere establecido un proceso para subsanar esos incumplimientos.
+c) Aquellas que se encuentren en alguna de las cláusulas pactadas entre el INFOCOOP y la deudora, y que facultarán al INFOCOOP para dar por vencido, en forma anticipada, el plazo del crédito, como es el caso de incumplimiento no justificado de recomendaciones técnicas.
+d) Aquellas en que el prestatario incurra en cualquiera de las causales de vencimiento anticipado, que contemplan las leyes y reglamentos aplicables.

@@ -1,0 +1,4 @@
+Artículo 27.—En los casos en que realizada la inspección judicial resultare que los bienes no fueron presentados por el deudor, el abogado director inmediatamente deberá:
+a) Solicitar al Juzgado se le aplique al deudor el apremio corporal por ocultar los bienes o por rebeldía del deudor a ponerlos a disposición del tribunal, que se mantendrá por todo el tiempo que no se cumpla lo ordenado, según se estipula al final del artículo 679 del Código Procesal Civil vigente.
+b) El abogado director deberá emitir un informe detallado y remitirlo al proceso de operaciones, que deberá contener la recomendación, de que si los hechos podrían calificarse dentro del delito de estelionato.
+El proceso de operaciones deberá analizar el caso, la recomendación emitida por abogado director, e informar a la dirección ejecutiva para que ésta tome la decisión de iniciar o no la acción penal y civil correspondiente.

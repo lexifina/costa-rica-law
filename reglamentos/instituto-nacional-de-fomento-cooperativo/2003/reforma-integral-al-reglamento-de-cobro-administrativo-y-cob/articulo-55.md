@@ -1,0 +1,2 @@
+Artículo 55.—Cuando el abogado encargado de la operación se muestra poco diligente en la realización del trabajo encomendado, el proceso de operaciones deberá proceder lo más pronto posible. Podrá dirigir una nota correctiva al profesional o informar a la Comisión de Servicio de Abogacía, debiendo agotarse las gestiones y sanciones que se detallan en este Reglamento.
+Si se decide que el abogado no debe continuar a cargo del juicio, se informará a la dirección ejecutiva para que lo ratifique, y designe otro abogado que retome el caso.

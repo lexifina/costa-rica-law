@@ -1,0 +1,1 @@
+Artículo 10.—El coordinador del proceso de operaciones, en casos especiales, cuando demuestre que el incumplimiento constituye un grave riesgo para los intereses del INFOCOOP, con la autorización de la dirección ejecutiva, iniciará el trámite de la acción cobratoria por la vía judicial, aunque se encuentre dentro del plazo de cobro administrativo.

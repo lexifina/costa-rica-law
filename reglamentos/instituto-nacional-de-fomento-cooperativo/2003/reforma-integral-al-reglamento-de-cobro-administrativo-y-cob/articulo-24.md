@@ -1,0 +1,1 @@
+Artículo 24.—Todo embargo de bienes debe contar de previo con un estudio registral que determine la conveniencia de practicar el embargo, salvo que sea indispensable proceder inmediatamente para que la gestión no se malogre.

@@ -1,0 +1,2 @@
+Artículo 6º—Corresponde al proceso de operaciones realizar las gestiones de cobro administrativo para la recuperación efectiva de las obligaciones crediticias irregulares.
+Igualmente le corresponde al Proceso de Operaciones, con la asesoría legal correspondiente, ejercer el control y seguimiento a las gestiones de cobro judicial que realicen él o los abogados externos asignados. En todo caso dicha Dependencia deberá informar y emitir recomendaciones a la Dirección Ejecutiva sobre situaciones anómalas que se presenten en estos procesos cobratorios.
