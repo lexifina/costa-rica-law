@@ -1,0 +1,1 @@
+Artículo 13.—El inicio de la prestación del servicio de disponibilidad y su correspondiente retribución correrá a partir de la fecha en que ambas partes firmen el contrato a que se hace referencia en el artículo anterior.

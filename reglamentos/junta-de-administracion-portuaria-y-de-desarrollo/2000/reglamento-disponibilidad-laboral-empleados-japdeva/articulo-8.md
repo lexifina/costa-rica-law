@@ -1,0 +1,3 @@
+CAPÍTULO II
+Procedimiento para solicitar el régimen de disponibilidad
+Artículo 8º—Cuando se determine que algún puesto requiera la prestación del servicio de disponibilidad, la jefatura a la que pertenezca el puesto con el visto bueno de su superior inmediato, deberá hacer la solicitud a la Gerencia respectiva, en dicha solicitud deberá estipularse una amplia y detallada explicación que motive y justifique la necesidad institucional para la aplicación de la disponibilidad laboral del funcionario, la Gerencia trasladará la solicitud a conocimiento de una comisión de análisis sobre disponibilidad laboral para su dictamen, el cual lo devolverá a la Gerencia respectiva para que esta lo analice y de ser positivo elevarlo a consideración de la Junta Directiva.

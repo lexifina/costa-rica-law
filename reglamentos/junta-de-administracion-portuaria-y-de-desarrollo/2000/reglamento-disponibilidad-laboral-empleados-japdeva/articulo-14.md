@@ -1,0 +1,1 @@
+Artículo 14.—El pago de la Disponibilidad Laboral lo recibirá el trabajador que este ejerciendo el puesto que de acuerdo con este reglamento se le aplique, ya sea el titular o quien lo sustituya. El trabajador al aceptar un puesto para el cual se requiere disponibilidad de pleno derecho estará sujeto a todas las disposiciones de este reglamento.

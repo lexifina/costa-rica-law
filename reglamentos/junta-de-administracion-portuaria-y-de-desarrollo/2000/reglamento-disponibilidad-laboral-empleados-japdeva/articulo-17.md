@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la eliminación y suspensión del servicio
+Artículo 17.—La comisión de análisis de Disponibilidad Laboral, deberá realizar por lo menos una vez al año y cuando lo estime pertinente una evaluación y análisis de los puestos afectados a la disponibilidad. Si se determinará que para algún puesto ya no se requiere la disponibilidad o no se ajusta a lo establecido en este reglamento, el contrato indicado en el artículo 12 se rescindirá de pleno derecho, correspondiendo al Presidente Ejecutivo comunicar al trabajador y a la jefatura correspondiente lo actuado, para todo efecto se seguirá el debido proceso, previo a la revocatoria del beneficio.

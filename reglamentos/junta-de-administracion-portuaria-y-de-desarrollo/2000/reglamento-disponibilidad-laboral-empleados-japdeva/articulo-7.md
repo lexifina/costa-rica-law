@@ -1,0 +1,1 @@
+Artículo 7º—La Disponibilidad Laboral se aprobará hasta por dos años si las labores a ejecutar son de carácter continuo, o hasta por un año si son de carácter temporal para trabajos específicos o por tiempo determinado.

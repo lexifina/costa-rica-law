@@ -1,0 +1,1 @@
+Artículo 19.—Será motivo de eliminación del beneficio cuando el trabajador incumpla con cualquiera de sus obligaciones establecidas en el artículo 16 de este reglamento, o cuando sin justa causa no se presente con la prontitud debida ante el llamado de la emergencia o necesidad institucional.
