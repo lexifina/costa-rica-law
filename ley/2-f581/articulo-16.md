@@ -1,0 +1,1 @@
+Artículo 16° Las máquinas escafandros, tubos de hule y demás implementos que se empleen quedan sujetos al pago de derechos de importación. Pagarán igualmente derechos de importación los víveres conducidos a bordo de las naves que vengan de otros puertos extraños a ejercer el buceo con arreglo a la presente ley.
