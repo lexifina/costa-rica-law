@@ -1,2 +1,0 @@
-Artículo 2°—La Junta de Salud estará integrada por siete personas, mayores de edad, domiciliadas permanentemente dentro del área de atracción del hospital. Serán personas de gran solvencia moral, prestigio, sensibilidad social y competencia, identificadas con los problemas de salud de la comunidad y con disponibilidad de tiempo para atender sus compromisos con la Junta de Salud. El cargo será ejercido en forma ad honorem.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 7158 de 09 de octubre de 1997, publicada en La Gaceta N° 176 de 09 de setiembre de 1998.)

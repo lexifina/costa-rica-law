@@ -1,1 +1,0 @@
-Artículo 18.—Los cargos de Presidente, Vicepresidente y Secretario, se designaran por un año y sus titulares podrán ser reelectos hasta por una vez en forma consecutiva, y sin límite alguno, en forma alterna. Su designación se hará en la primera sesión de cada año.

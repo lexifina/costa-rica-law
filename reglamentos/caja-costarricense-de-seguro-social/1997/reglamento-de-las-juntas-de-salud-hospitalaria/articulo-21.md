@@ -1,1 +1,0 @@
-Artículo 21.—En todo lo que no esté previsto en este Reglamento se actuará de conformidad con las normas que fueren aplicables de la Ley Constitutiva de la Caja, de la Ley General de Administración Pública y de las disposiciones concretas que considerare necesario dictar la Junta Directiva de la Caja Costarricense de Seguro Social.
