@@ -1,1 +1,1 @@
-Artículo 5°-La comisión reorganizadora del Servicio Nacional de Aduanas tendrá carácter temporal y estará integrada de la siguiente manera: Clara Zomer Resler, quien la Presidirá, Pedro Dobles Villela, Antonio López Escarré, Alberto Moya Mora. Harry Odio Jiménez, Ricardo Thompson Thompson y OIga Marta Alfaro Salas, quien ejercerá la secretaría ejecutiva de la comisión reorganizadora .
+Artículo 5°-(Este artículo fue Derogado por el artículo 1° del decreto ejecutivo N° 17360 del 28 de noviembre de 1986)

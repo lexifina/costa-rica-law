@@ -1,1 +1,1 @@
-Artículo 2°-Para establecer todas las acciones necesarias tendientes a garantizar la probidad y su funcionamiento normal, créase la comisión reorganizadora del Servicio Nacional de Aduanas que actuará como unidad ejecutora.
+Artículo 2°-(Este artículo fue Derogado por el artículo 1° del decreto ejecutivo N° 17360 del 28 de noviembre de 1986)

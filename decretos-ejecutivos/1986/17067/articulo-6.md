@@ -1,1 +1,1 @@
-Artículo 6°-La unidad ejecutora podrá requerir la colaboración de cualquier dependencia pública para obtener mejor resultado de su gestión.
+Artículo 6°-(Este artículo fue Derogado por el artículo 1° del decreto ejecutivo N° 17360 del 28 de noviembre de 1986)

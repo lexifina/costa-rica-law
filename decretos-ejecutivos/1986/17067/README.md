@@ -15,3 +15,4 @@ Declara emergencia nacional el funcionamiento del Sistema Aduanero Nacional y cr
 | --- | --- | --- |
 | 1 | 1986-12-24 | la propia norma |
 | 2 | 1986-12-24 | Decreto Ejecutivo 17217 (1986-09-30) |
+| 3 | 1986-12-24 | Decreto Ejecutivo 17360 (1986-11-28) |

@@ -10,3 +10,4 @@ Considerando:
 Por tanto.
 DECRETAN:
 Artículo 1°-Se declara emergencia nacional el funcionamiento del Sistema Aduanero Nacional.
+(NOTA: Mediante el artículo 6° del decreto ejecutivo N° 17360 del 28 de noviembre de 1986, se prorroga la vigencia de este artículo, por un período de doce meses a partir del 1° de diciembre de 1986)
