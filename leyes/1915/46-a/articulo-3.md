@@ -1,0 +1,1 @@
+Artículo 3°—Si hubiera acuerdo para constituir una . jurisdicción especial, se consignarán en el convenio que así lo decida, las reglas confirme a las cuales funcionará el tribunal que haya de conocer las cuestiones a que den origen las reclamaciones a que se refiere el artículo 1° del presente Tratado.
