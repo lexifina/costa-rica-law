@@ -1,0 +1,1 @@
+Artículo 5°—El Ministerio de Gobernación y Seguridad Pública brindará la vigilancia que el área requiera bajo las normas y supervisión que el Ministerio de Agricultura y Ganadería considere procedentes, con el objeto de garantizar los fines que persiguen en el presente decreto.

@@ -1,0 +1,1 @@
+Artículo 4°—Para la construcción de cualquier tipo de instalación o desarrollo en el área señalada en el artículo 1° del presente decreto, se requerirá el criterio técnico favorable del Ministerio de Agricultura y Ganadería.

@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Agricultura y Ganadería podrá construir instalaciones con sus propios recursos o mediante proyectos cooperativos con otras instituciones cuando tenga como fin propiciar la investigación científica o proteger el recurso dentro del área señalada en el artículo 1°.

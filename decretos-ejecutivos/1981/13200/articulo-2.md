@@ -1,0 +1,1 @@
+Artículo 2°—La administración del área estará a cargo del Ministerio de agricultura y Ganadería a través de su Dirección General de Recursos Pesqueros y Acuicultura y para cumplir con los fines que se persiguen en el presente decreto, deberá de promover la suscripción de convenios de cooperación científica con instituciones nacionales o extranjeras.
