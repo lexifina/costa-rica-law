@@ -1,6 +1,6 @@
-ARTICULO 26.- Facúltase a la Dirección General de Vida Silvestre
-del Ministerio de Recursos Naturales, Energía y Minas para otorgar
-permisos de importación de especies de vida silvestre.
+ARTICULO 26.- Facúltase a la Dirección General de Vida Silvestre del
+Ministerio de Ambiente y Energía para otorgar permisos de importación de
+especies de vida silvestre.
 Toda solicitud para esos permisos deberá presentarse, ante esa
 Dirección, con una evaluación del impacto ambiental la que, para los
 efectos de esta Ley, se considerará documento público y deberá incluir
@@ -16,8 +16,8 @@ los siguientes requisitos:
 9.- Enfermedades, plagas y parásitos.
 10.- Potencial de la especie como depredador.
 11.- Potencial de la especie como plaga.
-12.- Potencial de la especie como competidor por recursos o
-espacio con las especies nativas.
+12.- Potencial de la especie como competidor por recursos o espacio
+con las especies nativas.
 13.- Potencial de hibridación con especies nativas.
 14.- Potencial de dispersión a partir del sitio de introducción.
 15.- Métodos de control de la población para la especie.
@@ -26,10 +26,9 @@ espacio con las especies nativas.
 introducir.
 18.- Sistema apropiado de transporte de los animales.
 19.- Experiencias de introducción de la especie en otros países.
-La Dirección General de Vida Silvestre del Ministerio de Recursos
-Naturales, Energía y Minas contará con un mes, a partir de
-la fecha de presentación, para estudiar y resolver la solicitud
-planteada.
+La Dirección General de Vida Silvestre del Ministerio de Ambiente y
+Energía contará con un mes, a partir de la fecha de presentación, para
+estudiar y resolver la solicitud planteada.
 El permisionario deberá cancelar las siguientes tasas, de acuerdo
 con los animales y plantas autorizados antes de la salida de estos del
 puerto de embarque:
@@ -38,8 +37,10 @@ Un cinco por ciento (5%) del valor "CIF" para plantas.
 Un dos por ciento (2%) del valor "CIF" para plantas y animales de
 laboratorio.
 En el caso de especies ornamentales como se establece en el
-Reglamento de esta Ley, el Ministerio de Recursos Naturales, Energía y
-Minas podrá prescindir del estudio de impacto ambiental.
+Reglamento de esta Ley, el Ministerio de Ambiente y Energía podrá
+prescindir del estudio de impacto ambiental.
 Los permisos de importación otorgados no serán transferibles a
 terceras personas, sin previa autorización de la Dirección General de
-Vida Silvestre del Ministerio de Recursos Naturales, Energía y Minas.
+Vida Silvestre del Ministerio de Ambiente y Energía.
+(Así modificado el nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

@@ -1,8 +1,9 @@
-ARTICULO 100.- Será sancionado con multa de veinticuatro mil
-colones (¢24.000) a cincuenta mil colones (¢50.000), convertible en
-pena de prisión de seis meses a un año y con el comiso de las piezas,
-quien exporte animales silvestres, sus productos y derivados, sin el
-respectivo permiso de la Dirección General de Vida Silvestre del
-Ministerio de Recursos Naturales, Energía y Minas, cuando se trate de
-animales que no se encuentran en peligro de extinción ni con
-poblaciones reducidas.
+ARTICULO 100.- Será sancionado con multa de veinticuatro mil colones
+(¢24.000) a cincuenta mil colones (¢50.000), convertible en pena de
+prisión de seis meses a un año y con el comiso de las piezas, quien
+exporte animales silvestres, sus productos y derivados, sin el respectivo
+permiso de la Dirección General de Vida Silvestre del Ministerio de
+Ambiente y Energía, cuando se trate de animales que no se encuentran en
+peligro de extinción ni con poblaciones reducidas.
+(Así modificado el nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)

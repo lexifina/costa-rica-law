@@ -1,9 +1,3 @@
-ARTICULO 24.- Las instituciones científicas, así como los
-particulares y toda persona física o jurídica que se dediquen a la
-taxidermia y al procesamiento de la flora y la fauna silvestres, de sus
-productos o subproductos, están obligados a llevar registros de los
-especímenes que procesen o atiendan. Las instituciones científicas
-deberán estar registradas, debiéndose especificar claramente a qué se
-dedican, a efecto de que la Dirección General de Vida Silvestre del
-Ministerio de Recursos Naturales, Energía y Minas realice una
-inspección en cualquier momento.
+ARTICULO 24.-
+Las instituciones científicas, así como los particulares y toda persona física o jurídica que se dediquen a la taxidermia y al procesamiento de la flora y la fauna silvestres, de sus productos o subproductos, están obligados a llevar registros de los especímenes que procesen o atiendan. Las instituciones científicas deberán estar registradas, debiéndose especificar claramente a qué se dedican, a efecto de que la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía realice una inspección en cualquier momento.
+(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 de 4 de octubre de 1995)
