@@ -1,0 +1,1 @@
+Artículo 62.—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad actúe como parte, hasta por la suma que el Concejo Municipal autorice.

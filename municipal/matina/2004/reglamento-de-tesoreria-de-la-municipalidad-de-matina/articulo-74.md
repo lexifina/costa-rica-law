@@ -1,0 +1,1 @@
+Artículo 74.—Los formularios de cheque serán guardados en un armario o similar de metal de las llaves, que estarán en poder del Contador, sin embargo, para retirar los cheques deberá hacerse con la presencia de otro funcionario municipal del Departamento de Tesorería o con la presencia del Alcalde Municipal.

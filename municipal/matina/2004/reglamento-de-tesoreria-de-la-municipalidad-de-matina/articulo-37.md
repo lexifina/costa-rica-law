@@ -1,0 +1,1 @@
+Artículo 37.—La Caja Chica recibida devoluciones de dinero, únicamente en efectivo, sin excepción de ninguna clase. Según el artículo 109 Municipal, podrán por Caja Chica adquirirse bienes y servicios, así como pagar viáticos y gastos de viaje, fijados en montos mensuales por Caja Chica autorizado por el Concejo Municipal y autorizados los egresos por el Alcalde Municipal.

@@ -1,0 +1,1 @@
+Artículo 72.—El Auditor o Contador pueden realizar en cualquier momento y sin previo aviso todas las revisiones o arqueos que crean convenientes sobre los valores y documentos en custodia en la Tesorería o sobre los procedimientos o medidas de control internos.

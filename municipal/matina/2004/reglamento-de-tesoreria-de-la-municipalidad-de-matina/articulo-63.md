@@ -1,0 +1,1 @@
+Artículo 63.—Semestralmente rendirá el Alcalde Municipal un informe al Concejo Municipal, el cual contendrá los egresos que hubiese autorizado. Lo anterior con el artículo 17, inciso f) del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 17.—Los cheques se emitirán bajo la responsabilidad absoluta del Tesorero y Alcalde Municipal previa consulta a los fondos municipales, para asegurarse de que existen fondos suficientes en las cuentas bancarias. Si no hubiere fondos suficientes de inmediato se informara al Tesorero para que determine lo que corresponde.

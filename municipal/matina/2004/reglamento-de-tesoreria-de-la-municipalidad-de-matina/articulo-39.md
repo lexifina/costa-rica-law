@@ -1,0 +1,1 @@
+Artículo 39.—El vale de Caja Chica debe emitirse en original y copia en el formulario prenumerado en forma consecutiva que será suministrado a las jefaturas de las dependencias municipales, por el Departamento de Tesorería de la Municipalidad.
