@@ -1,0 +1,2 @@
+Artículo 6°- Modificaciones. Las partidas específicas incorporadas en los proyectos de presupuestos públicos únicamente podrán variarse a propuesta de las municipalidades.
+Las modificaciones incorporadas por los diputados en el monto y destino de las citadas partidas presupuestarias con violación de lo dispuesto en el párrafo anterior, no podrán ejecutarse; en consecuencia, el Ministerio de Hacienda no podrá girar la partida respectiva.

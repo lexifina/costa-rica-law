@@ -1,0 +1,1 @@
+Artículo 2°- Beneficiarias. Serán beneficiarias de las partidas específicas las municipalidades y las entidades privadas idóneas para administrar fondos públicos, calificadas así por la Contraloría General de la República y escogidas por las comunidades, siempre que sus propuestas se canalicen por medio de la municipalidad donde se ejecutará la obra o se brindará el servicio.

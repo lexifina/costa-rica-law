@@ -1,0 +1,1 @@
+Transitorio I.- No obstante lo dispuesto en la vigencia para dar cumplimiento efectivo a lo establecido en esta ley, a partir de los presupuestos y sus modificaciones que rijan en el ejercicio económico de 1999, el Poder Ejecutivo, para los efectos consiguientes, deberá publicar en mayo de 1998 la cifra indicativa referida en el artículo 5 de la presente ley.
