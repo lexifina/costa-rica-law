@@ -32,8 +32,8 @@ Artículo 2°—Se reconocen como Especialidades Médicas:
 - Obstetricia.
 - Hematología.
 - Homeopatía
-(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
 (La Sala Constitucional mediante resolución N° 110 del 09 de enero de 1998 estableció que se declara sin lugar la acción en cuanto al artículo 1 del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994, mismo que adiciono este artículo “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)
+(Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)
 - Infectología.
 - Medicina crítica y cuidados intensivos
 (Ampliado mediante el artículo 1° del Decreto Ejecutivo N° 23105 del 11 de marzo de 1994)

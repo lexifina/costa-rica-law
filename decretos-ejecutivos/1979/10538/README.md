@@ -17,3 +17,4 @@ Reglamento de Especialidades Médicas
 | 2 | 1986-11-24 | Decreto Ejecutivo 17307 (1986-11-24) |
 | 3 | 1994-03-11 | Decreto Ejecutivo 23105 (1994-03-11) |
 | 4 | 1997-08-20 | Decreto Ejecutivo 26294 (1997-08-20) |
+| 5 | 1998-01-09 | SINALEVI (sin norma nombrada) |
