@@ -1,0 +1,2 @@
+Art 5° Las cincuenta manzanas de gracia concedidas por el artículo 6° a los que hoy tienen terrenos cultivados fuera de la zona de 2,000 varas a ambos lados del Ferrocarril del Limón a Pacuare, no podrán ser denunciados fuera de la Comarca del Limón, y los denunciados tendrán implícita la condición 5° del artículo 3°.
+Dado en el Palacio Nacional, en San José a veinticinco de agosto de mil ochocientos setenta y cinco.
