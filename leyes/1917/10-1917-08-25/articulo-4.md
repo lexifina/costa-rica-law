@@ -1,0 +1,3 @@
+Artículo 4º.- El artículo 392 del mismo Código, se leerá así:
+«Artículo 392.- Los telegramas oficiales llevarán siempre el timbre o sello del funcionario u oficina que los dirija. Los partes oficiales serán concisos en su redacción y no contendrán fórmulas ajenas al servicio telegráfico.
+Los jefes de oficinas telegráficas no trasmitirán los mensajes que con carácter de oficiales pongan otras personas que las expresadas en el artículo 390. Tampoco trasmitirán los que con el mismo carácter se refieran a asuntos particulares; en este último caso, y salvo lo dispuesto en el artículo 394, dichos jefes darán cuenta inmediata al Director General, para que este empleado, bajo su responsabilidad, confirme o revoque la negativa del telegrafista».
