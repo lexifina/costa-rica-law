@@ -1,0 +1,2 @@
+Artículo 15.—El rol de asignaciones será de acuerdo con el saldo que presente la operación en el momento de ser incluida en cobro judicial y se asignará de acuerdo con la lista alfabética de abogados que lleva cada Centro de Administración de Crédito.
+Cuando el saldo de la operación sea igual o superior al 1.5% del límite máximo de endeudamiento por deudor o grupo de interés económico vigente, se asignará entre varios abogados, uno por cada 1.5% o fracción de ese límite máximo de endeudamiento.

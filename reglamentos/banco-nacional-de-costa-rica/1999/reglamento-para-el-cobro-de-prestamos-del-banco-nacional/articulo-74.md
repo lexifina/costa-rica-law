@@ -1,0 +1,1 @@
+Artículo 74.—De previo a resolver, la Comisión otorgará una audiencia de tres días hábiles al abogado investigado. Concluido este lapso de tiempo, la Comisión resolverá dentro de los cinco días hábiles siguientes. De acuerdo con el resultado final, el Abogado podrá apelar ante la Junta Directiva si lo considera necesario.

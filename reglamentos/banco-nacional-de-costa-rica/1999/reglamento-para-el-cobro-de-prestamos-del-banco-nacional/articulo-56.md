@@ -1,0 +1,1 @@
+Artículo 56.—En caso de bienes inmuebles, el Abogado Director deberá coordinar con el Ejecutor la fecha de la toma de posesión del bien y estar presente junto con la persona designada como Depositario Judicial por parte del Banco en el acto.

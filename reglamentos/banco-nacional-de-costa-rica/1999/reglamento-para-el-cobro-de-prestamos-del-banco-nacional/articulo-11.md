@@ -1,0 +1,1 @@
+Artículo 11.—Los abogados contarán con cinco días hábiles a partir de la fecha de recibido el expediente respectivo para entregar al Centro de Administración de Crédito, copia de la demanda debidamente sellada por el Despacho Judicial.

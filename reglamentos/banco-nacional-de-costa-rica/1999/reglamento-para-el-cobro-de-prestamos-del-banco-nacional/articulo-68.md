@@ -1,0 +1,1 @@
+Artículo 68.—En caso de retiro o suspensión de un abogado por el motivo que fuere, el Banco se reserva la facultad de relevarlo en la Dirección de los procesos judiciales a su cargo y de reasignarlos a otro abogado del rol, quien tendrá la obligación de asumirlos en el estado en que se encuentren. El nuevo abogado deberá realizar un informe pormenorizado del estado del proceso.

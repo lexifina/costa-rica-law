@@ -1,0 +1,1 @@
+Artículo 105.—El abogado elaborará el edicto bajo su responsabilidad y lo deberá publicar en el Diario Oficial por una sola vez, a más tardar diez días hábiles antes de su celebración. Este deberá ajustarse a lo estipulado en la Ley General de Almacenes de Depósito referente al remate.

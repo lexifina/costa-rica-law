@@ -1,0 +1,1 @@
+Artículo 49.—Todo abogado deberá, como mínimo, contar en su oficina con teléfono, faxsimil. correo electrónico y casillero en el circuito judicial, así como cuenta corriente a su nombre con el Banco Nacional para el respectivo pago de honorarios y gastos.

@@ -1,0 +1,1 @@
+Artículo 94.—A juicio del Banco, luego de celebrado un remate, en el que no hubo postores, el Abogado Director solicitará al despacho judicial un nuevo señalamiento para realizarlo o en su defecto, el Banco podrá adjudicarse los bienes con base en lo establecido en el párrafo primero del artículo 655 del Código Procesal Civil.

@@ -1,0 +1,2 @@
+Artículo 83.—En caso de incumplimiento se continuará con la tramitación normal del proceso, no siendo posible el otorgamiento de un nuevo arreglo si no media el pago de al menos los gastos, honorarios e intereses para la regularización.
+Todo arreglo aprobado por persona ajena al Centro de Administración de Crédito deberá ser por escrito y tramitado a través del Jefe de la Oficina, Gerente o Agente en cada caso.

@@ -1,0 +1,1 @@
+Artículo 71.—Cuando el abogado haya acumulado tres sanciones, entre amonestaciones y suspensiones temporales del rol de cobro judicial, en un año calendario, será retirado definitivamente del rol de abogados.

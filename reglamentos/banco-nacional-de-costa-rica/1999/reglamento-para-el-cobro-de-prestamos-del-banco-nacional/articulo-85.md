@@ -1,0 +1,1 @@
+Artículo 85.—Cuando se suscribe un arreglo de pago y se cuente con elementos suficientes para la formalización del mismo, la oficina respectiva podrá efectuar la suspensión provisional y en caso de duda del avance del proceso judicial de la operación, se consultará al abogado respectivo, si conviene o no a los intereses del Banco la suspensión provisional.

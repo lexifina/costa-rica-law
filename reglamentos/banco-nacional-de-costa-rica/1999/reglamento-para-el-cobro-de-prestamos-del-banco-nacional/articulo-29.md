@@ -1,0 +1,1 @@
+Artículo 29.—Cuando un abogado renuncie o sea separado en sus servicios, los juicios a su cargo no concluidos, serán asignados a otro abogado siguiendo el rol por el jefe de la Oficina del Banco del Centro de Administración de Crédito respectivo.

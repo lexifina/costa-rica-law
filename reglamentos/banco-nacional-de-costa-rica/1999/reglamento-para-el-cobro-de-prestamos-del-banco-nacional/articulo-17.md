@@ -1,0 +1,2 @@
+Artículo 17.—Cuando se cobra judicialmente una obligación de un deudor que tenía otra operación ya asignada a un abogado o con la misma garantía, se debe asignar el caso al mismo profesional que dirige el primer caso.
+El abogado director del proceso de cobro del Banco, tiene a su vez la responsabilidad profesional de atender y velar por los intereses de la Institución, en relación con las ejecuciones judiciales de otros acreedores sobre las mismas garantías y clientes, y deberá realizar las gestiones judiciales que se requieran y sean correspondientes.

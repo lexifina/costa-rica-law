@@ -1,0 +1,1 @@
+Artículo 111.—El abogado asignado actuando en su condición de notario levantará en ese momento una "Acta Notarial de Remate", en la cual se detallará el nombre de las personas presentes, el resultado y pormenores del mismo y recogerá la firma de esas personas.

@@ -1,0 +1,1 @@
+Artículo 53.—En el caso de que haya personas que no se han podido localizar, el Centro de Administración de Crédito analizará la posibilidad de desistir de dicha persona en el juicio, para lo cual es importante conocer el criterio del Abogado Director del proceso.

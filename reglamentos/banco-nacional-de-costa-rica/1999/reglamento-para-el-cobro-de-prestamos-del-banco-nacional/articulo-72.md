@@ -1,0 +1,1 @@
+Artículo 72.—Las sanciones contempladas en el presente capítulo, se aplicarán sin perjuicio de la responsabilidad en que incurra el profesional en derecho; razón por la cual el Banco se reserva el derecho de reclamar los daños y perjuicios que le fueran ocasionados, por los medios y vías correspondientes.

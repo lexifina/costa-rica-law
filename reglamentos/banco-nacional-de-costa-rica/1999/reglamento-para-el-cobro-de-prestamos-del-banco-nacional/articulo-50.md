@@ -1,0 +1,1 @@
+Artículo 50.—Es responsabilidad del Abogado Director informar por escrito a la Administración de Crédito respectivo, cuales personas físicas o jurídicas no han podido ser notificadas dentro de cada uno de los procesos por falta de una efectiva localización y el Banco con los medios de que dispone, tratará de localizarlos.

@@ -1,0 +1,1 @@
+Artículo 10.—El abogado contará con cinco días hábiles a partir de la fecha de retiro del expediente para justificar a satisfacción del Banco si tiene imposibilidad de dirigir el proceso. El Centro de Administración de Crédito tiene la potestad de aceptar o no el retiro, quedando a criterio de dicho Centro si repone o no el caso.

@@ -1,0 +1,1 @@
+Artículo 99.—Si adjudicados los bienes, el producto de dicha adjudicación no alcanzare para cancelar el total adeudado, el Abogado Director presentará liquidación al juzgado, a fin de que se fije el saldo al descubierto, para proceder a perseguir otros bienes a los demandados.

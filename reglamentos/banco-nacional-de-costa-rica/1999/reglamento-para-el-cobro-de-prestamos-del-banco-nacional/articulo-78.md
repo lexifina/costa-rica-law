@@ -1,0 +1,1 @@
+Artículo 78.—En el escrito inicial de demanda se incluirá el otorgamiento de un poder especial al abogado director del proceso, el cual deberá contar con la firma de un representante legal del Banco con Poder Generalísimo.

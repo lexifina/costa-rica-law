@@ -1,0 +1,1 @@
+Artículo 43.—Si producto de algún incumplimiento, imputable al abogado, a lo estipulado en el artículo anterior, la Institución inicia un proceso judicial en contra del mismo; lo excluirá en forma definitiva del rol de abogados.

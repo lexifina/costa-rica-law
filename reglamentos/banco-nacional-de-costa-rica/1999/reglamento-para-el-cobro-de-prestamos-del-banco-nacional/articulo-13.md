@@ -1,0 +1,1 @@
+Artículo 13.—De la Asignación de los Juicios. La asignación de p juicios a los abogados, será responsabilidad del Jefe de la oficina del Banco donde se ubica el Centro de Administración de Crédito respectivo.

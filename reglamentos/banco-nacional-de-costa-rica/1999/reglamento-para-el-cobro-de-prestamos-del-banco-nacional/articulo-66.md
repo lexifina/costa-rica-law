@@ -1,0 +1,1 @@
+Artículo 66.—En los casos en que se determine mala praxis, la corrección de la falta no implicará el levantamiento de la sanción establecida; en todo caso, la Comisión tendrá facultades suficientes para determinar si procede o no el levantamiento de la sanción.
