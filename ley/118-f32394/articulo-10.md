@@ -1,0 +1,1 @@
+Articulo 10.—El "Concejo de Distrito", por medio de su Intendente, informará cada tres meses a la Municipalidad de su cantón del movimiento de ingresos y egresos, con especificación de las obras realizadas y en proyecto. Copia de tal informe le será enviado a la Inspección General de Hacienda Municipal.
