@@ -13,3 +13,4 @@ Reglas prácticas para orientar el ejercicio de la potestad disciplinaria y el f
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-11 | la propia norma |
+| 2 | 2004-03-01 | Reglamento 7 (2004-03-01) |

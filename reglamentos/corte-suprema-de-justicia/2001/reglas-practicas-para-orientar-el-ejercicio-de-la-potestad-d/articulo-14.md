@@ -1,0 +1,2 @@
+14. No se iniciará procedimiento administrativo disciplinario después de pasados cuatro años a partir de la comisión de la falta.
+(NOTA DE SINALEVI: Este punto fue adicionado, en sesión N° 7 de 1° de marzo de 2004, y publicado mediante circular No. 60-2004. Se hace la observación de que la Circular No. 60-2004, fue publicada en dos ocasiones primeramente en el Boletín N° 94 de 14 de mayo de 2004 y luego en el Boletín N° 195 de 6 de octubre de 2004. El Texto de esta adición corresponde a la segunda publicación).
