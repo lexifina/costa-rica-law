@@ -1,0 +1,5 @@
+CAPITULO III
+Declaración para efectos del Impuesto sobre la Renta
+Artículo 15.-El sistema de determinación de la base imponible, para efectos de establecer la retención por concepto del impuesto sobre la renta regulado por el presente Reglamento, no exime a los productores de café de cumplir con las obligaciones que en materia de declaraciones, registros contables, comprobantes y demás disposiciones, establecen la Ley del Impuesto sobre la Renta y su Reglamento.
+Si al presentar la respectiva declaración del impuesto mencionado, se evidencia que el productor de café debe pagar un monto mayor que el importe que le ha sido retenido durante el periodo fiscal de que se trate, el impuesto deberá ser ajustado en la forma que corresponda, de acuerdo con las disposiciones generales de la Ley del Impuesto sobre la Renta y su Reglamento. En tal caso, las retenciones se aplicarán como pago a cuenta del impuesto que realmente deba cancelarse.
+Si el tributo resultante de la declaración es inferior a las retenciones, éstas constituirán el importe mínimo que deban pagar los productores de café por concepto del impuesto sobre la renta.

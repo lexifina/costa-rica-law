@@ -1,0 +1,1 @@
+Artículo 18.-La liquidación final de la cosecha correspondiente al año fiscal de que se trate podrá ser incluida en el ejercicio fiscal siguiente, en virtud del nuevo régimen de pago del impuesto sobre la renta acordado para la actividad cafetalera, conforme a las modificaciones efectuadas por la Ley N° 7551 de 22 de setiembre de 1995.

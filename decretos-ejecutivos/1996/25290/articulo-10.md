@@ -1,0 +1,1 @@
+Artículo 10.-La retención que aquí se reglamenta es el único adelanto, por concepto del impuesto de la renta, que el sector productor de café debe efectuar durante cada ejercicio fiscal. En caso de que un productor de café desarrolle, además, actividades de otra índole, estará en la obligación de efectuar pagos parciales de impuesto sobre la renta en forma ordinaria.
