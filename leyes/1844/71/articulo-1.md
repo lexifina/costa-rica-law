@@ -1,0 +1,6 @@
+DECRETO LXXI.
+Pone a cargo de los hacendados de Pavas el cuidado y conservación de
+la paja de agua que sale del “Tiribi.”
+“El Jefe Supremo Provisorio del Estado Libre de Costa Rica.
+Con presencia del derecho de 17 de Julio de 1840 que estableció un censo en favor del tesoro municipal de esta ciudad por el uso de las tierras de las Pavas de la misma, y previene se saque una fuente de agua desde el río Tiribí para el uso de las haciendas que se estableciesen en dichas tierras. Observándo: que hasta la fecha no ha tenido efecto esa obra de importancia y de necesidad, no obstante haberla ofrecido el Gobierno, reclamarla imperiosamente el interés de los hacendados y aún de mucha parte de la población y haberse consumido ya sin éxito sumas considerables: no estando reglamentada en esta parte de la ejecución de aquel decreto y con mérito á lo pedido por dichos hacendados y a los informes de la municipalidad de jefes políticos, en uso de la autorización concedida al Ejecutivo por el 8° art. 135 de la Constitución, y sin consulta del Senado por no haberse reunido aun, decreta.
+Art° 1° Es á cargo de los hacendados de café en las tierras de las Pavas la dirección, trabajo y mejoras de la fuente de agua que del río TiribÍ debe salir para aumentar la de esta Ciudad y surtir las haciendas de aquel punto y aún parte de la población general.
