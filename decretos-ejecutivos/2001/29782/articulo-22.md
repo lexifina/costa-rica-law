@@ -1,0 +1,1 @@
+Artículo 22.—En caso de situaciones de emergencia tanto en la finca como a nivel nacional, que obliguen al productor a utilizar practicas no aceptadas por el presente reglamento, el productor debe comunicar al organismo de control las medidas a tomar y este definirá el lapso de tiempo necesario para poder comercializar el producto como orgánico.

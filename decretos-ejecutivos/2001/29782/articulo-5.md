@@ -1,0 +1,1 @@
+Artículo 5º—No se podrá inscribir registrar o patentizar ningún producto , actividad o marca comercial o industrial con el nombre de orgánico o sus análogos, en cualquier idioma, como propiedad privada.

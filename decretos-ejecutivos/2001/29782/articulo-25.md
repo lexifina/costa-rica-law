@@ -1,0 +1,1 @@
+Artículo 25.—Se prohíbe la producción paralela. Únicamente se permite cuando el productor sea capaz de demostrar documentalmente a la agencia certificadora, mediante un registro, la separación de las actividades convencionales y orgánicas. La producción paralela no puede existir por un tiempo mayor a cinco años.

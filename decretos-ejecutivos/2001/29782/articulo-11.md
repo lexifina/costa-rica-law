@@ -1,0 +1,2 @@
+REQUISITOS MÍNIMOS DE CONTROL Y MEDIDAS PRECAUTORIAS PARA LA PRODUCCIÓN ORGÁNICA
+Artículo 11.—La producción deberá llevarse a cabo en una unidad cuyas parcelas, zonas de producción y almacenes estén claramente separados de cualquier otra unidad que no produzca con arreglo a las normas del presente reglamento; las instalaciones de transformación y/o envasado podrán formar parte de dicha unidad cuando ésta se limite a la transformación y/o envasado de su propia producción agrícola.

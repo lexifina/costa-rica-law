@@ -1,0 +1,1 @@
+Artículo 89.—Para la inscripción en los registros correspondientes, las personas físicas y/o jurídicas inscritas quedan obligadas al cumplimiento de las disposiciones de este Reglamento y los acuerdos que, dentro de sus competencias, dicten los organismos del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 88.—Sólo las personas físicas o jurídicas cuyas fincas, industrias o establecimientos estén inscritas en los correspondientes registros podrán cultivar, producir, elaborar, envasar, comercializar o almacenar productos con la denominación de Orgánica.

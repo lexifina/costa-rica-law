@@ -1,0 +1,1 @@
+Artículo 71.—Toda agencia certificadora, inspector orgánico, productor orgánico, finca orgánica o en transición, establecimiento de procesamiento, de comercialización, almacenamiento y elaboración de productos orgánicos, deberá registrarse como tal ante la Dirección.

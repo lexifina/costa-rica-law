@@ -1,0 +1,1 @@
+Artículo 97.—Exportación. La exportación de productos agropecuarios orgánicos deberán darse en condiciones acordes con los requisitos nacionales e internacionales de producción orgánica y deberán ir acompañados por un certificado de exportación oficial.

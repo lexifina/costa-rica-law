@@ -1,0 +1,1 @@
+Artículo 15.—Queda prohibido cualquier almacenamiento sin separación en la unidad productiva, de las materias primas e insumos, distintos de aquellos cuya utilización sea compatible con las disposiciones del presente Reglamento.

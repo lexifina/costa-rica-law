@@ -1,0 +1,1 @@
+Artículo 98.—Todo exportador de productos de origen agropecuario orgánico debe registrarse ante la Dirección con el fin de que sus exportaciones sean respaldadas oficialmente por "un certificado de exportación de productos orgánicos".
