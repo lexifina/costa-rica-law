@@ -1,0 +1,1 @@
+Art 3°.- Para ser nombrado Defensor Público, se requieren, además de las condiciones exigidas para todo funcionario judicial por artículo 12 de la Ley Orgánica de Tribunales, ser por lo menos bachiller en Leyes o Procurador judicial, salvo el caso de inopia de tales profesiones, en que bastará para ello tener conocimiento generales de Derecho.

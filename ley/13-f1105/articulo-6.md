@@ -1,0 +1,1 @@
+Art 6°.- Los Defensores Públicos actuarán en las causas cuyo conocimiento corresponda a los Jueces del Crimen en primera instancia, a los Alcaldes de los cantones de San Ramón y Santa Cruz, cada uno dentro de su respectivo jurisdicción.

@@ -1,0 +1,1 @@
+Art 8°.- Los Defensores Públicos aceptarán el cargo y prestarán el juramento de ley, ante el juez del Crimen de la localidad en que deban desempeñar sus funciones y será este funcionario quien extienda los giros correspondientes a los sueldos de los Defensores.
