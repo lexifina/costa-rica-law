@@ -99,7 +99,7 @@ Radiográfica Costarricense .S.A. | 4.152,9
 Refinadora Costarricense de Petróleo | 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario | 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. | 1.501,4
-Sistema Nacional de Radio y Televisión SINART (Así modificado por el artículo 1° del decreto ejecutivo N° 30920 de 28 de noviembre de 2002) | 782.10
+Sistema Nacional de Radio y Televisión SINART (Así reformado parcial y tácitamente por el artículo 1° del decreto ejecutivo N° 31234 de 06 de junio de 2003) | 861.10
 Teatro Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31179 de 2 de mayo de 2003) | 322.3
 Teatro Popular Melico Salazar (Así modificado por el artículo 1° del Decreto Ejecutivo No. 31201 de 12 de mayo de 2003, publicado en La Gaceta No. 11 de 11 de junio de 2003) | 570,6
 Unidad Ejecutora PPZN MIDEPLAN | 10,3
