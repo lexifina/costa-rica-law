@@ -14,3 +14,4 @@ Reglamento de Uso de Vehículos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-08-10 | la propia norma |
+| 2 | 1995-01-17 | Decreto TSE 1 (1995-01-17) |
