@@ -1,0 +1,1 @@
+Artículo 42.—No se concederán constancias municipales de que un contribuyente está al día en el pago de sus tributos, si éste se encuentra moroso.

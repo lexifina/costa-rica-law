@@ -1,0 +1,1 @@
+Artículo 19.—Si el deudor cuenta con representante, las notificaciones deberán ser dirigidas solamente a éstos, excepto si la ley o la naturaleza del acto exigen que aquellas también sean notificadas.

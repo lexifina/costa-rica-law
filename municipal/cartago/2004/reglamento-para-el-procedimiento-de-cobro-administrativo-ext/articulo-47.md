@@ -1,0 +1,2 @@
+Artículo 47.—No sujeción a plazo. La contratación no estará sujeta a cumplir con un plazo determinado, sino que dependerá del plazo que dure la tramitación del proceso o procesos judiciales asignados al abogado.
+Sin embargo, corresponderá al Proceso de Cobro Administrativo, verificar mediante los informes u otros medios, que los procesos judiciales están activos, de lo contrario, se aplicarán las sanciones que regula este Reglamento contra el abogado externo que incumpla con esta obligación.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del cobro administrativo
+Artículo 12.—Del cobro administrativo. Es el conjunto de actividades, métodos, mecanismos y procedimientos realizados para identificar los sujetos deudores, clasificarlos en grupos homogéneos relevantes, comunicarse con estos y brindarles las condiciones apropiadas para que cancelen los tributos municipales. Constituye una función administrativa, desarrollada por el Proceso de Cobro Administrativo a través de procedimientos y actos administrativos que se ejecutan desde el día siguiente al del vencimiento del plazo para el cumplimiento voluntario, hasta el momento en que el crédito es asignado al área de cobro judicial.

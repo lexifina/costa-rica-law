@@ -1,0 +1,1 @@
+Artículo 18.—Desde el primer momento, que el deudor tributario notificado en los términos de ley, se apersone a la Municipalidad deberá señalar, dentro del perímetro municipal, un domicilio fiscal, entendido como el lugar especial para ser notificado, de conformidad con lo dispuesto por el Código de Normas y Procedimientos Tributarios y la Ley de Bienes Inmuebles y su reglamento.

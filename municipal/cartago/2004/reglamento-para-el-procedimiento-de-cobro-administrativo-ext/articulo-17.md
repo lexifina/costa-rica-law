@@ -1,0 +1,2 @@
+Artículo 17.—Se crea el perímetro municipal de la jurisdicción del cantón central de Cartago, definido por el Casco Urbano del Cantón (ver mapa adjunto), a fin de que los deudores y demás contribuyentes dispongan de un domicilio especial que permita la adecuada utilización de recursos municipales en la labor de determinación y recaudación tributaria, de conformidad con las normas contenidas en el Código de Normas y Procedimientos Tributarios y la Ley de Bienes Inmuebles y su reglamento.
+Ver mapa en La Gaceta impresa N° 224 del 16 de noviembre del 2004.

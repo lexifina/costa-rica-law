@@ -1,0 +1,1 @@
+Artículo 50.—De la ausencia temporal. Cuando un abogado deba ausentarse de su bufete por más de ocho días hábiles, deberá comunicarlo al Proceso de Cobro Administrativo, de previo y en forma escrita, indicando el profesional que queda a cargo de los casos que le fueron asignados.

@@ -1,0 +1,1 @@
+Artículo 6º—Composición. El Proceso estará conformado por un gestor, un subgestor, ejecutivos de cuenta y los demás funcionarios que se requiera para el mejor cumplimiento de sus fines. El coordinador del Eje Tributario y de Recaudación ejercerá la supervisión inmediata de las actuaciones de este Proceso.

@@ -1,0 +1,1 @@
+Artículo 53.—Fiscalización. Para efecto de determinar si los juicios se encuentran al día, el Proceso de Cobro Administrativo revisará mensualmente, el número de expedientes y registros de operaciones entregadas a cada abogado, tomando como base la documentación en poder de la Oficina.

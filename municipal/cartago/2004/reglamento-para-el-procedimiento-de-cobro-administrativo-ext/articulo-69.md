@@ -1,0 +1,1 @@
+Artículo 69.—A los efectos anteriores, los Procesos dichos deberán remitir sus solicitudes de inspección o notificación al Gestor de la Unidad con la suficiente antelación, debiendo el Gestor de la Unidad asignar los asuntos a sus inspectores de forma tal que se logre una distribución justa y razonable.

@@ -1,0 +1,2 @@
+Artículo 40.—Solicitud de certificación del adeudo: Una vez verificada la falta oportuna de cancelación de la deuda, se procederá por parte del funcionario encargado del proceso, a confeccionar un oficio para el contador municipal, adjuntando las certificaciones para su firma. Se solicita mediante ese oficio al contador certificar los montos y los períodos de pago atrasados del contribuyente.
+Certificada la deuda del contribuyente, el expediente administrativo será enviado mediante anotación al abogado interno o externo asignado según corresponda.

@@ -1,0 +1,1 @@
+Artículo 26.—Procedencia. Únicamente procederá el arreglo de pago, cuando el cobro se encuentre en la etapa de cobro administrativo. El arreglo de pago extrajudicial o judicial solo procederá en casos debidamente justificados a juicio del Gestor del Proceso de Cobro Administrativo y de conformidad con las normas de este Reglamento y deberá ser comunicado al abogado director.

@@ -1,0 +1,5 @@
+Artículo 35.—Requisitos para la aceptación de la garantía: De acuerdo a la modalidad de la caución requerida se establecen los siguientes requisitos:
+1. Si la garantía es fiduciaria, los fiadores deberán estar al día en sus obligaciones tributarias municipales y estar nombrados en propiedad -en caso de que laboren para la Administración Pública- o tener más de un año de laborar en los otros casos. Deben presentar constancia salarial vigente con no más de un mes de emitida que detalle lo anterior así como el salario bruto y neto.
+2. Cuando la garantía sea real, deberá solicitarse el avalúo correspondiente.
+3. Títulos valores emitidos por una entidad debidamente autorizada del Sistema Bancario Nacional.
+4. Para constituir garantía hipotecaria sobre bienes inscritos, el deudor deberá otorgar escritura pública ante Notario Público. En estos casos la validez de la aprobación de la solicitud quedará condicionada a la inscripción del gravamen para lo cual se otorgará un plazo que no podrá ser superior al mes contado a partir de la solicitud de arreglo. Asimismo, se deberá cubrir el importe correspondiente a honorarios profesionales y timbres.
