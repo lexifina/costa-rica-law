@@ -1,1 +1,0 @@
-Artículo 74.- En las intersecciones en que no haya señalamiento en los centros urbanos, los vehículos que circulen por avenida tendrán prioridad sobre los que transiten por calle. En las carreteras tendrán prioridad los que circulen sobre la vía principal.

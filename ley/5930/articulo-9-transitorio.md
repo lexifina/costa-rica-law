@@ -1,1 +1,0 @@
-Transitorio IX.- Se autoriza al Poder Ejecutivo para hacer los traslados presupuestarios de las partidas destinadas a la Dirección General de Tránsito, a efecto de que se traspasen del Ministerio de Seguridad Pública al de Obras Públicas y Transportes.
