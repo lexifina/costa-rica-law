@@ -14,3 +14,4 @@ Reglamento a la Ley de Seguro Integral de Cosechas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-13 | la propia norma |
+| 2 | 1973-08-23 | Decreto Ejecutivo 3192 (1973-08-23) |
