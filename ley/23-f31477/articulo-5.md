@@ -1,0 +1,1 @@
+Art 5° Las concesiones a que refiere este decreto quedarán de hecho sin efecto si transcurrieren los dieciocho meses señalados en el inciso 1° del artículo 2° de esta Ley, sin que haya sido montada e instalada la maquinaria y este ya en estado de funcionar.
