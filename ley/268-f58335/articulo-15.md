@@ -1,0 +1,1 @@
+Artículo 15.—El Consejo Directivo de la Unión Panamerica efectuará en todo lo concerniente al presente Tratado como órgano de entre los Estados signatarios que lo hayan ratificado y entre éstos y las Naciones Unidas.

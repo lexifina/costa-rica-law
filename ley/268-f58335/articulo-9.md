@@ -1,0 +1,3 @@
+Artículo 9°—Además de otros actos que en reunión de consulta puedan caracterizarse como de agresión, serán considerados como tales:
+a) El ataque armado, no provocado, por un Estado, contra el territorio, la población o las fuerzas terrestres, navales o aéreas de otro Estado;
+b) La invasión, por la fuerza armada de un Estado, del territorio de Estado Americano, mediante el traspaso de las fronteras demarcadas de conformidad con un tratado, sentencia judicial, o laudo arbitral, o, a falta de fronteras así demarcadas, la invasión que afecte una región que esté bajo la jurisdicción efectiva de otro Estado.
