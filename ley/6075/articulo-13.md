@@ -1,0 +1,1 @@
+Artículo 13.- El traslado de los gastos autorizados, que se origina con el traspaso del Programa 095 del Ministerio de Seguridad Pública al de la Presidencia se hará en cada subpartida en base al monto efectivamente disponible, a la fecha de vigencia de la presente ley.

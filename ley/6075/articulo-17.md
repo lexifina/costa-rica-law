@@ -1,0 +1,2 @@
+Artículo 17.- Autorízase al Instituto de Tierras y Colonización para que adquiera directamente la finca situada en Golfito, Distrito Primero, cantón sétimo de Puntarenas, que es potrero con los siguientes linderos: Norte, Rodolfo Chavarría Mora; Sur, Aníbal Ramírez; Este, Enrique Mora; y Oeste, Aníbal Ramírez. Además dicho inmueble se encuentra debidamente catastrado en la Oficina respectiva, bajo el número P -dos mil cuatrocientos cuarenta y dos- setenta, de fecha 22 de abril de 1970
+El valor de la adquisición será determinado mediante avalúo de la Tributación Directa.
