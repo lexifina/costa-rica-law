@@ -1,4 +1,6 @@
+(Derogado)
 DECRETO XLIV
+(Esta norma fue derogada por el artículo 17 del Reglamento de Aguardiente, aprobado mediante decreto ejecutivo N° 136 del 5 de setiembre de 1835)
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
 Se reglamenta el ramo de Aguardientes. (2)
 (2) Derogado en todas sus partes por el Reglamento de 7 de Diciembre de 1837.
