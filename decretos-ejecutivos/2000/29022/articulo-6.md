@@ -1,0 +1,1 @@
+Artículo 6°-Queda obligada la Dirección de Seguridad Marítima y Portuaria a llevar registros y controles sobre los permisos que otorgue, así como sobre su cancelación. La Dirección mencionada comunicar lo correspondiente a la Dirección General de Aduanas.

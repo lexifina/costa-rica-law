@@ -1,0 +1,1 @@
+Artículo 9°-Queda la Dirección de Seguridad Marítima y Portuaria de la División de Puertos del Ministerio de Obras Públicas y Transportes, investida con las facultades pertinentes para velar por el fiel cumplimiento de lo establecido en el capítulo V y VII del Reglamento a la Ley de Concesión y Funcionamiento de Marinas Turísticas.
