@@ -1,0 +1,7 @@
+Artículo 17.-La presente Convención comenzará a regir entre los Estados signatarios que la ratifiquen, tres meses después de que comuniquen su ratificación al Gobierno de Cuba, y permanecerá en vigor entre todos ellos hasta un año después de la fecha de la denuncia. Esta denuncia será dirigida al gobierno cubano y no tendrá efecto sino respecto del país que la haya hecho.
+En fe de lo cual los Plenipotenciarios expresados firman la presente Convención en español, inglés, francés y portugués, en la ciudad de la Habana el día diez y ocho de febrero de mil novecientos veintiocho.
+RESERVA DE LA DELEGAClÓN DE CHILE
+La Delegación de Chile acepta en general la modificación de la Convención de Buenos Aires que se acaba de aprobar, pero debe hacer reserva respecto de los puntos en que esta Convención modificada se halla en oposición con la legislación vigente en Chile.
+Esta reserva no disminuye nuestro anhelo de alcanzar la adopción de principios jurídicos que amparen por igual en todos los países de América la propiedad intelectual.
+RESERVA DE LA DELEGACION DE VENEZUELA
+La Delegación de Venezuela reserva la firma de esta Convención hasta el momento que su Gobierno resuelva de un modo concreto acerca de ella, porque tanto la Convención de Buenos Aires, que Venezuela no sólo no ha ratificado sino que sul Congreso expresamente negó, como ésta, contienen disposiciones contrarias a nuestra tradición jurídica y a nuestras leyes positivas sobre la materia.

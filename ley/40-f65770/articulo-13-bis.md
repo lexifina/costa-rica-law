@@ -1,0 +1,1 @@
+Artículo 13 bis.-Los autores de obras literarias o artísticas al cederles en pleno ejercicio de su derecho de propiedad, no ceden sino el derecho de goce y el cle la reproducción. Conservarán sobre ellas un derecho moral de contralor inalienable, que les permitirá oponerse a toda reproducción o exhibición pública de sus obras, alteradas, mutiladas () modificadas.
