@@ -1,0 +1,3 @@
+Artículo 3°
+La presente Convención no se aplicará á personas sentenciadas ó acusadas por delitos políticos. El individuo que fuese entregado por infracción de otras leyes penales, no podrá ser juzgado ni condenado en ningún caso, por crímen ó delito político anteriormente cometido, ni por cualquier hecho relativo á este crímen ó delito.
+Tampoco podrá ser el mismo individuo procesado ó condenado por cualquiera otra infracción anterior á la extradición, aun cuando está prevista en la presente Convención, á ménos que despues de haber sido castigado ó absuelto del delito que motivó la extradición, no hubiese cuidado de salir del país antes de que trascurriese el término de tres meses, ó que hubiese regresado despues.
