@@ -17,8 +17,8 @@ j) Copias de los acuerdos de Junta Directiva, relativos a la finca objeto de est
 k) Nuevo estudio de registro a la fecha de firma de la escritura.
 l) Copia de la escritura de compra por parte del IDA.
 ll) Informe o cuadro del Departamento Financiero sobre la forma en que se pagó o se está pagando la finca.
-m) Copia del "Acta de Recibo de la Finca", suscrita por el respectivo jefe subregional. un delegado de la Proveeduría (cuando corresponda), un delegado de la Auditoría Interna y el vendedor.
-(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+m) Copia del "Acta de Recibo de la Finca", suscrita por el respectivo Jefe Sub-Regional, un delegado de la Unidad de Control de Activos y el Vendedor".
+(Así reformado el inciso anterior mediante sesión N° 91 del 06 de diciembre de 1993).
 n) Informe de la Sección de Topografía sobre la cabida real del inmueble con base en plano" formales levantados por el IDA.
 o) La Dirección Técnica de Operaciones tendrá bajo su responsabilidad la custodia y archivo adecuado de todos y cada uno de los expedientes en mención, los cuales deberán contener íntegramente la información antes indicada.
 (Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).

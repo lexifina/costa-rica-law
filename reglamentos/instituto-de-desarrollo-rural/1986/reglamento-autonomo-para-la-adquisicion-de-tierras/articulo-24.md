@@ -19,8 +19,8 @@ a) Descripción de los inmuebles.
 b) Precio, forma de pago y valor por hectárea.
 c) Retención de dinero de parte del precio para la comprobación de área y levantamiento de .anotaciones.
 ch) Orden para .la Sección de Topografía a fin de que verifique en el terreno el área real .adquirida. En tratándose de fincas sin inscribir, la orden para el levantamiento topográfico y catastro del área respectiva. Ambas obligaciones deberá ser ejecutadas en un plazo de dos meses después de la suscripción de la escritura de traspaso.
-d) Orden a la Sección de Proveeduría, a la Auditoría Interna y a la Oficina Subregional correspondiente, para que de inmediato, en coordinación con el propietario, procedan a la recepción del inmueble y al inventario de los bienes que se adquieren. De dicha recepción se levantará un acta de recibo, según formulario recomendado por la Auditoría, acta que suscribirán el Jefe Subregional, el Delegado de la Proveeduría (cuando corresponda) y el vendedor.
-(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+d) Orden a la Unidad de Control de Activos y a la Oficina Subregional Correspondiente, para que de inmediato en coordinación con el propietario, procedan a la recepción del inmueble y al inventario de los bienes que se adquieran. De dicha recepción se levantará un acta de recibo, según formulario recomendado por la Unidad de Control de Activos, que suscribirán el Jefe Subregional, el Delegado de la Unidad de Control de Activos y el vendedor.
+(Así reformado el inciso anterior mediante sesión N° 91 del 06 de diciembre de 1993).
 e) Orden a la Sección Selección de Beneficiarios para que efectúen los estudios de los grupos que ocupan o vayan a ocupar el inmueble adquirido.
 f) Orden al notario asignado para que confeccione la escritura de compra,. previo estudio de registro el mismo día de la firma de ese documento, independientemente de .los otros estudios legales que se haya efectuado antes.
 (Así adicionado el inciso anterior mediante sesión N° 83 del 06 de noviembre de 1987).

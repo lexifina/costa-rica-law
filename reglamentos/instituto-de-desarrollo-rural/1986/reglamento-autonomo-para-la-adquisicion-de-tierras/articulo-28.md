@@ -63,17 +63,19 @@ C.4 Tamaño de la finca | 3 |
 Menores de 100 Has. | 1 |
 De 100 a 300 Has. | 2 |
 Mayores de 300 Has (Así adicionado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990). | 3 |
-D.1 Costo de asentamiento por familia 15
-COSTO DE ASENTAMIENTO POR FAMILIA SEGUN REGIO N
-(En miles de colones)
-Central | P. Central | Brunca | Chorotega | H.Norte | H. Atlántica | Puntaje
-600 | 500 | 400 | 400 | 500 | 400 | 15
-900 | 750 | 600 | 600 | 750 | 600 | 7,5
-1.200 | 1.000 | 800 | 800 | 1.000 | 800 | 0
-1.500 | 1.250 | 1.000 | 1.000 | 1.250 | 1.000 | -7,5
-1. 800 | 1.500 | 1.200 | 1.200 | 1.500 | 1.200 | -15
-NOTA: Estos valores serán revisados y ajustados en forma anual. de acuerdo con el índice de inflación oficial.
-(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+D. Criterios Económicos
+D.1 Costo de asentamiento por familia
+COSTO DE ASENTAMIENTO POR FAMILIA
+SEGUN REGION
+(en miles de colones)
+Central | P,central | Brunca | Chorot. | H. Norte | H. Atl. | Puntaje
+750 | 625 | 500 | 500 | 625 | 500 | 15
+1.125 | 938 | 750 | 750 | 938 | 750 | 7.5
+1.500 | 1.250 | 1.000 | 1.000 | 1.250 | 1.000 | 0
+1.875 | 1.563 | 1.250 | 1.250 | 1.563 | 1.250 | -7.5
+2.250 | 1.875 | 1.500 | 1.500 | 1.875 | 1.500 | -15
+Nota: Estos valores serán revisados y ajustados en forma anual, de acuerdo al índice de inflación oficial.
+(Así reformado el inciso anterior mediante sesión N° 91 del 06 de diciembre de 1993).
 D.2 Cálculo de puntaje según región
 Para las regiones Huetar Atlántica, Bronca y Chorotega: Puntaje = 30-0,0375 (costo por familia en miles de colones) Regiones Pacífico Central y Huetar Norte:
 Puntaje = 30-0,030 (costo por familia en miles de colones) Región Central:
