@@ -8,6 +8,7 @@ c. Presentar, ante el Asesor Legal del Colegio, una declaración jurada en la cu
 d. Inscribirse como candidato llenando el formulario elaborado para tal efecto y presentándolo en la sede legal del Colegio en forma personal o por medio de su representante legal; aportar la información que se le solicite y cumplir los requisitos señalados para la correcta administración del proceso.
 e. Ratificar su participación personalmente, o por medio de su representante legal, en la reunión de ratificación de candidatos que organiza el Tribunal.
 Específicos:
-a. No estar ocupando un cargo activo en el Tribunal.
+a. No estar ocupando un cargo activo en el Tribunal, a menos que tenga derecho a reelección.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
 b. No haber ocupado en el último año anterior a la Asamblea, un cargo en la Junta Directiva o en el Tribunal, a menos que tenga derecho a la reelección.
 c. No presentarse como candidato a más de un cargo o a más de un órgano en el proceso electoral de la respectiva Asamblea General.

@@ -1,1 +1,2 @@
-Artículo 54.—Queda prohibida la propaganda electoral que emplee instrumentos musicales o similares, equipos de sonido, equipos electrónicos sonoros, altoparlantes, megáfonos y otros que interfieran con la sesión del plenario de la Asamblea General.
+Artículo 54.—Queda prohibida la propaganda electoral que emplee instrumentos musicales o similares, equipos de sonido, equipos electrónicos sonoros, altoparlantes, megáfonos y otros que interfieran con la sesión del plenario de la Asamblea General. El Tribunal tomará las medidas apropiadas para el cumplimiento de esta disposición.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)

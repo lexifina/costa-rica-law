@@ -6,6 +6,7 @@ c. Presentar, ante el Tribunal, una declaración en la cual da fe de no tener an
 Específicos:
 a. Vivir o laborar en la región.
 b. Estar presente en la elección correspondiente.
-c. No ser miembro de la Junta Directiva ni de otro órgano.
+c. No ser miembro de la Junta Directiva.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
 d. No haber ocupado en la Directiva Regional en el último año anterior a la Asamblea el mismo cargo al que aspira, a menos que tenga derecho a la reelección.
 e. No estar ocupando un cargo activo en el Tribunal.

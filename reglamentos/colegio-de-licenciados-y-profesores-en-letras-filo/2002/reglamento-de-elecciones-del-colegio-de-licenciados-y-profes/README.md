@@ -14,3 +14,4 @@ Reglamento de Elecciones del Colegio de Licenciados y Profesores en Letras, Filo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-01 | la propia norma |
+| 2 | 2003-02-08 | Reglamento 97 (2003-02-08) |

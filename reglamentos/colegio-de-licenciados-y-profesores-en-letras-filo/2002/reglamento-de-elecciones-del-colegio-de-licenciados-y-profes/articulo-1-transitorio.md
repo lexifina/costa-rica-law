@@ -1,4 +1,5 @@
 Transitorio 1
-a) Los actuales miembros del Tribunal Electoral permanecerán en sus funciones hasta la Asamblea General Ordinaria de 2003.
-b) La Asamblea General Ordinaria de 2003 nombrará en el Tribunal Electoral dos propietarios, el suplente uno y el suplente dos para un período de dos años y tres propietarios y el suplente tres para un período de un año.
-c) Los actuales miembros del Tribunal tendrán derecho a presentarse como candidatos.
+a) Los actuales miembros del Tribunal Electoral permanecerán en sus funciones hasta treinta días después de la Asamblea General Ordinaria de 2003.
+b) La Asamblea General Ordinaria de 2003 nombrará por votación, de acuerdo con el orden decreciente de votos, los cinco miembros propietarios y los dos suplentes del Tribunal Electoral. De los propietarios, dos lo serán por tres años, dos por dos años y el restante por uno. En la Asamblea General Ordinaria de 2004 se remplazará al propietario nombrado por un año y a los dos suplentes; en la de 2005, a los propietarios nombrados por dos años y a los suplentes, y en la de 2006, a los nombrados por tres años y a los suplentes. En los tres casos, los nuevos propietarios ocuparán sus puestos durante tres años, como lo indica el artículo 5 de este Reglamento.
+c) Los actuales miembros del Tribunal tendrán derecho a presentarse como candidatos en las elecciones de 2003.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
