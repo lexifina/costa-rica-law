@@ -1,0 +1,1 @@
+Art. 2. También serán admisibles las expresadas certificaciones en el pago íntegro de tierras baldías, rebajándose el diez por ciento al valor de los terrenos que se satisfagan con estos documentos. –Dado en San José á veintisiete de Febrero de mil ochocientos cuarenta y tres. –José María Alfaro. –Al Secretario general del Despacho, Señor Doctor José María Castro.
