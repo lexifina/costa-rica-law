@@ -1,0 +1,1 @@
+ARTICULO 110.- Una ley arreglará la administración de Justicia en todos conceptos, bajo las reglas prescritas en este Capítulo, y en términos que un mismo Juez no pueda serlo en dos diversas instancias

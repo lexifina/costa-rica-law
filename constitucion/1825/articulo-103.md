@@ -1,0 +1,1 @@
+ARTICULO 103.- Todo preso debe ser interrogado sobre los motivos por lo que está dentro de cuarenta y ocho horas: tanto este acto como su confesión deberán ser sin juramento que a nadie ha de exigirse, en materias criminales, sobre hecho propio.

@@ -1,0 +1,1 @@
+ARTICULO 38.- Si de este hecho resultase mayoría absoluta para alguno de los oficios a que se controle el artículo anterior, la elección se tendrá por hecha en la persona designada; pero si esto no tuviese lugar el Congreso elegirá inmediatamente entre todos los designados sin consideración a los más ó menos votos que hayan tenido.

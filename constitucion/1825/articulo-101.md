@@ -1,0 +1,1 @@
+ARTICULO 101.- En asuntos criminales, ninguno podrá ser preso, sin que preceda orden por escrito de Juez competente para darla y esta no podrá expedirse sin previa información sumaria por las que conste un hecho que según la Ley debe castigarse con pena más correccional

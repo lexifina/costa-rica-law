@@ -1,0 +1,1 @@
+ARTICULO 47.- Ningún Diputado es responsable en tiempo alguno por la opinión que adopte ó palabras que profiera en puntos de su cargo, y ninguna autoridad por pretexto alguno podrá por ello reconvenirlo.

@@ -1,0 +1,1 @@
+ARTICULO 10.- Los Costarricenses deben: 1º, obedecer religiosamente , y respetar la Ley , y los Magistrados y Agentes del Gobierno cuando son los ejecutores de ella: 2º Contribuir con proporción a sus haberes para los gastos del Estado: 3º Servir y defender a la Patria todas las veces que sea llamado por la Ley aun con Sacrificio de su vida, e intereses.

@@ -1,0 +1,1 @@
+ARTICULO 73.- Para dar ó negar la sanción, tendrá el Consejo el término de diez días, debiendo en los cinco primeros oír el informe del Poder Ejecutivo. Pasado aquel sin darla ó negarla por el mismo hecho se tiene por dada.
