@@ -14,3 +14,4 @@ Modifica límite de Gasto Presupuestario y Efectivo del 2001, para el Museo Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
+| 2 | 2001-07-18 | Decreto Ejecutivo 29690 (2001-07-18) |

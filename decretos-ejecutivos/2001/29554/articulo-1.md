@@ -14,3 +14,4 @@ Artículo 1º—Modifícase los límites de gasto presupuestario y efectivo esta
 En millones de colones
 Gasto presupuestario 522,9
 Gasto efectivo 600,4
+(Así Modificado por Artículo 1 de Decreto Ejecutivo 29554 del 18 de julio del 2001)
