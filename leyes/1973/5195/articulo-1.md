@@ -1,0 +1,1 @@
+Artículo 1º.- Establécese un impuesto de ¢ 1.00 (un colón), sobre cada litro de licor corriente de producción nacional (aguardiente, ron, ginebra, anisado), que expenda la Fábrica Nacional de Licores. (Modificaciones Presupuestarias)
