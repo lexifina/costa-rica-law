@@ -14,3 +14,4 @@ Reglamento sobre el Sistema de Anotación en Cuenta.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-13 | la propia norma |
+| 2 | 2003-09-09 | Reglamento 391 (2003-09-09) |
