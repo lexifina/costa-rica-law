@@ -1,7 +1,4 @@
-ARTICULO 143.- La autoridad paternal confiere los derechos e impone
-los deberes de educar, guardar, vigilar y en forma moderada, corregir al
-hijo. Faculta para pedir al Tribunal que autorice la adopción de medidas
-necesarias para coadyuvar a la orientación del menor, que pueden incluir
-su internamiento en un establecimiento adecuado por un tiempo prudencial.
-(Así modificada su numeración por el artículo 2 de ley No.7538 del 22
-de agosto de 1995, que lo traspasó de 130 al 143)
+Artículo 143.—Autoridad parental y representación. Derechos y deberes
+La autoridad parental confiere los derechos e impone los deberes de educar, guardar, vigilar y, en forma moderada, corregir al hijo. Asimismo, faculta para pedir al tribunal que autorice la adopción de medidas necesarias para coadyuvar a la orientación del menor, las cuales pueden incluir su internamiento en un establecimiento adecuado, por un tiempo prudencial. Igual disposición se aplicará a los menores de edad en estado de abandono, riesgo social o que no estén sujetos a la patria potestad, en cuyo caso la solicitud podrá hacerla el Patronato Nacional de la Infancia. El internamiento se prolongará hasta tanto el tribunal no decida lo contrario, previa realización de los estudios periciales que se requieran para esos efectos, los cuales deberán ser rendidos en un plazo contado a partir del internamiento.
+(Así reformado por el artículo único de la Ley N° 8409 de 26 de abril de 2004).
+(Así modificada su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó de 130 al 143)
