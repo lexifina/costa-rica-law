@@ -14,3 +14,4 @@ Reglamento Organización y Funciones Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-04 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
