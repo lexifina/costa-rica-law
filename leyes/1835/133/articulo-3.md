@@ -1,0 +1,2 @@
+Art 3.- En las pequeñas porciones de tierra que no esté cercada, se pagará el derecho de medio real por cada dos manzanas hasta el número de dieziseis; mas si pasase de allí, se tendrá por caballería abierta y pagará cuatro reales.- Al Consejo Representativo.- Dado en la ciudad de Alajuela a los veintisiete días del mes de agosto de mil ochocientos treinta y cinco.
+Por tanto: Ejecutese.-Alajuela Setiembre dos de mil ochocientos treinta y cinco.
