@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 31608
+
+Reglamento de Radiocomunicaciones
+
+- Tipo: Decreto Ejecutivo
+- Número: 31608
+- Fecha: 2004-06-24
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 125 del 2004-06-28, Alcance 28
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=53028&param2=57708&param3=1 (ficha 53028)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2004-06-28 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 88.—Reservas al servicio de televisión por suscripción. Los servicios de televisión por suscripción, transmitirán en forma íntegra, sin modificaciones, incluyendo la publicidad de los canales nacionales que transmitan.

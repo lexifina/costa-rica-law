@@ -1,0 +1,1 @@
+Artículo 87.—Interferencia. La operación del servicio de televisión o audio por suscripción no deberá interferir o distorsionar la señal o ser obstáculo, en forma alguna, para la transmisión o recepción de otros servicios de radiocomunicación.

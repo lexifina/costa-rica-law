@@ -1,0 +1,1 @@
+Transitorio V.—Para las frecuencias otorgadas como enlace de los servicios comprendidos en el artículo 23 del presente Reglamento, la vigencia de la concesión será la misma establecida en el servicio para el cual se requiere el enlace.
