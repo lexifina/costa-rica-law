@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+Nº 14-04.—Dirección General de Tributación.—San José, a las ocho horas del día cuatro de agosto del dos mil cuatro.
+Considerando:
+1º—Que mediante el Decreto Ejecutivo número 27146-H de 21 de mayo de 1998, publicado en La Gaceta número 136 del 15 de julio de 1998, se aprobó el Reglamento de Organización y Funciones de la Dirección General de Tributación.
+2º—Que en el artículo 5º, inciso 2), subinciso c) se faculta al Director General para aprobar resoluciones, instrucciones o directrices que resulten oportunas para el logro de los objetivos de la dependencia.
+3º—Que el inciso 2), subinciso d) del citado artículo, también faculta al Director General para desarrollar la estructura orgánica y funcional. Y finalmente el artículo 6, inciso 2) dispone que la estructura y funcionamiento interno será aprobado mediante resolución dictada por el Director General de la Dirección General de Tributación.
+4º—Que en el proceso de modernización de la administración tributaria, se hace necesario instaurar nuevas políticas para el mejoramiento del servicio al contribuyente, para lo cual se ha impulsado la incorporación del módulo de sanciones en el sistema, el que permite asociar los formularios de autoliquidación de sanciones, “D-116”, con los incumplimientos o irregularidades detectados por medio del citado sistema. Por tanto,
+RESUELVE:
+Artículo 1º—La División de Gestión será la encargada de preparar los proyectos de resolución resumida a que hace referencia el artículo 150 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 de 3 de mayo de 1971, producto de la autoliquidación de sanciones que el contribuyente realice, siempre y cuando se trate de infracciones o irregularidades detectadas por medio del sistema de Información de la Administración Tributaria y la autoliquidación se pueda asociar en forma razonable con un incumplimiento identificado en el Sistema de Información de la Administración Tributaria.
