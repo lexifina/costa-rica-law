@@ -1,0 +1,1 @@
+Artículo 20. -Los miembros podrán solicitar que se hagan constar en el acta sus opiniones; y los votos disidentes siempre se harán constar. Los miembros deberán guardar absoluta reserva acerca de las deliberaciones correspondientes a aquellos casos que se declaren confidenciales.

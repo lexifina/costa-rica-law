@@ -1,0 +1,1 @@
+Artículo 18.-Cuando alguno de los asistentes a las sesiones del Comité tuviere interés personal en el trámite de un asunto, o lo tuviere la empresa de que forma parte o parientes dentro del tercer grado de consanguinidad o segundo de afinidad, inclusive, deberá retirarse de la respectiva sesión, mientras se discute y resuelve el asunto en que está interesado

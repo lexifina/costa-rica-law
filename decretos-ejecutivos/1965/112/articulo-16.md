@@ -1,0 +1,1 @@
+Artículo 16.-El quórum estará formado por tres miembros. Los acuerdos se tomarán por mayoría de votos presentes, salvo los casos en que las leyes o reglamentos exigieren un mayor número de votos. En caso de empate el voto del Presidente se computará por dos.
