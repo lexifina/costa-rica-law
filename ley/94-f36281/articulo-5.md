@@ -1,0 +1,1 @@
+Art 5°.- Para el caso, las listas se han de estender por triplicado y de ellas se dirigirán un ejemplar al Gobernador, otro quedará en poder del Jefe político y el restante lo reservará el Juez de paz respectivo para la exacción de los jornales y del dinero que exhiban los contribuyentes inscriptos.
