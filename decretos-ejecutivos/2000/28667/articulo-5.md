@@ -1,0 +1,1 @@
+Artículo 5°-La Secretaría Técnica del Consejo es una instancia permanente, encargada de proponer, estudiar, analizar y coordinar alternativas técnicas al Consejo, quien definirá los proyectos prioritarios para su ejecución a través de la instancia correspondiente.
