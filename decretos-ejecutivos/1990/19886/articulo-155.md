@@ -1,1 +1,1 @@
-Artículo 155.-(Derogado por el artículo 4° del decreto ejecutivo N° 21198 del 23 de marzo de 1992)
+Artículo 155.-(Derogado por el artículo 4° del decreto ejecutivo N° 21198 del 23 de marzo de 1992. Posteriormente se deroga nuevamente este artículo por el artículo 1° del decreto ejecutivo N° 21445 del 30 de junio de 1992)
