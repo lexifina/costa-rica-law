@@ -1,0 +1,1 @@
+2º—Para el óptimo desarrollo de este congreso, se insta atentamente a todas las dependencias del Gobierno, Ministerios e instituciones afines, para que brinden toda la ayuda necesaria para el mejor desarrollo del mismo.
