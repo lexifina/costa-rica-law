@@ -1,0 +1,1 @@
+TRANSITORIO I.- Créase el Refugio de Vida Silvestre Ostional que, para los efectos de esta Ley, estará ubicado en los doscientos metros de la zona marítimo terrestre que se extiende desde Punta India hasta Punta Guiones, Cantón de Nicoya, Provincia de Guanacaste. El Poder Ejecutivo demarcará el Refugio dentro de los treinta días siguientes a la publicación de esta Ley.

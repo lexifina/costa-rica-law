@@ -1,0 +1,1 @@
+Artículo 9.- Las asociaciones de caza y pesca deberán aportar fotocopias certificadas de su inscripción en la Dirección General de Vida Silvestre del Ministerio de Recursos Naturales, Energía y Minas, según lo disponga el Reglamento de la presente Ley. El Comité Asesor de la Vida Silvestre les oirá cuando traten aspectos que afecten sus intereses.

@@ -1,0 +1,1 @@
+ARTICULO 12.- Facúltase al Poder Ejecutivo para establecer, por medio del Reglamento de esta Ley, los procedimientos y requisitos necesarios para la conservación de la vida silvestre continental o insular, acuática o terrestre, en todo el territorio nacional.
