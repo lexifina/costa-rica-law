@@ -1,9 +1,8 @@
 ARTICULO X
-Este Tratado entrará en vigor a partir del canje de ratificaciones y
-lo estará ininterrumpidamente hasta tanto que una de las Partes lo
-denuncie por escrito, con un año de anticipación.
-En fe de lo cual, los Plenipotenciarios arriba nombrados, suscriben
-el presente Tratado, en dos ejemplares de un mismo tenor y estampan sus
-respectivos sellos, en la ciudad de San José, a los nueve días del mes de
-enero del año mil novecientos cincuenta y tres.- f.) Fernando Lara.-
-f.) José María Cavanillas.-
+Las Altas Partes Contratantes podrán encomendar a Comisiones Mixtas
+la coordinación y seguimiento de los asuntos de interés común, conforme a
+las directrices emanadas de la reunión anual de Ministros de Relaciones
+Exteriores.
+(Así adicionado por el artículo 2º del Protocolo de Enmienda de este
+Tratado, aprobado por el artículo 1º de ley No.7382 del 9 de marzo de
+1994)
