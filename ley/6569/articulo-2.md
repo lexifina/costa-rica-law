@@ -1,0 +1,1 @@
+Artículo 2°—Autorízase al Poder Ejecutivo para que adhiera al citado Protocolo y deposite un Instrumento de Adhesión en la Secretaría de la Organización de los Estados Americanos, como se estipula en la Resolución AG/324 (VIII-0/78) aprobada en la quinta sesión plenaria de dicho organismo, el 19 de julio de 1978.
