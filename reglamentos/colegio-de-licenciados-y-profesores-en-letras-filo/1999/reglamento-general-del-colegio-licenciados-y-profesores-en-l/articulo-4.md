@@ -1,2 +1,2 @@
-Artículo 4º—Recepción de Correspondencia. Toda correspondencia dirigida a "El Colegio" o a sus funcionarios, será recibida por la Secretaría, la cual, le pondrá la razón de "recibido" y la distribuirá a quien corresponda.
-Ningún otro funcionario podrá recibir correspondencia a nombre de "El Colegio". Quedan a salvo las denuncias que se presenten al Presidente o Fiscalía.
+Artículo 4º—Recepción de correspondencia. Toda correspondencia dirigida a “El Colegio” o a sus funcionarios, será recibida en las oficinas administrativas del Colegio ubicadas en San José y Alajuela o en las Oficinas Regionales. El funcionario receptor, pondrá la razón de “recibido” la secretaría la distribuirá a quien corresponda. Quedan a salvo las denuncias que se presenten al presidente o fiscalía.
+(Así reformado por la Asamblea General Extraordinaria XCVIII, del día 06 de diciembre del 2003.)

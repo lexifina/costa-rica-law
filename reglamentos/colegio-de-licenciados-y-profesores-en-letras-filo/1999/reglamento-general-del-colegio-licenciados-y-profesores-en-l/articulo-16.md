@@ -1,3 +1,1 @@
-Artículo 16.—Sanciones por inasistencia a sesiones de Asamblea.
-De conformidad con los artículos 9 inciso a) y 13 inciso g) de la Ley 4770, a quienes no asistan a sesiones de Asamblea General Ordinaria y no lo justifiquen por escrito dentro de dos meses calendario posteriores a partir de la fecha de la Asamblea, se les aplicará la multa equivalente a un mes de colegiatura. Dicho monto se rebajará mediante trámite administrativo y se usará únicamente para reforzar los proyectos relacionados con obras de infraestructura de las regionales.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
+Artículo 16.— (DEROGADO por la Asamblea General Extraordinaria XCVIII, del 06 de diciembre del 2003.)

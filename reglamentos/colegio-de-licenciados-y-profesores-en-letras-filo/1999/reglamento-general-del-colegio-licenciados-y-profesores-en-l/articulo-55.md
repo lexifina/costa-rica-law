@@ -5,6 +5,8 @@ b) Suspensión del ejercicio profesional hasta por un mes.
 Las faltas graves son penadas con:
 c) Suspensión del ejercicio profesional hasta por el término de un año.
 d) Expulsión del Colegio Profesional hasta por el plazo máximo permitido por nuestra legislación.
+e) Suspensión del ejercicio profesional por un máximo de cinco años.
+(Así ampliado por la Asamblea General Extraordinaria XCVIII, del 06 de diciembre del 2003.)
 Falta leve es la violación a los deberes y obligaciones que la Ley Orgánica, Reglamentos de la Corporación, los acuerdos firmes de la Junta o la Asamblea General.
 Falta grave es la que implica desdoro o desprestigio de la profesión y en general violaciones graves al Código de Etica Profesional.
 La aplicación de la sanción descrita en el inciso a) de este artículo corresponde a la Junta Directiva y contra ésta cabrá recurso de revocatoria y la apelación subsidiaria.
