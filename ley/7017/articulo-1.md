@@ -7463,4 +7463,21 @@ Fracción Arancelaria | Descripción | DAI
 | mascar incluso recubiertos |
 | de azúcar |
 1704.90.00 | - Los demás | 15%
+(NOTA: El Decreto Ejecutivo N° 30985 de 3 de febrero de 2003, hizo una modificación a los Derechos Arancelarios a la Importación en lo siguiente:
+1) Del 3 de febrero del 2003 al 15 de junio del 2003:
+SAC | Descripción | DAI
+0713.3 | Frijoles (judías, alubias fréjoles) |
+| (Vigna spp., Phaseolus spp.) |
+0713.32.00 | Adzuki (rojos pequeños) |
+| (Phaseolus o Vigna angularis) | 46%
+0713.33 | Comunes (Phaseolus vulgaris) |
+0713.3310 | Negros | 46%
+2) Del 16 de junio del 2003 al 14 de diciembre del 2003:
+SAC | Descripción | DAI
+0713.3 | Frijoles (judías, alubias fréjoles) |
+| (Vigna spp., Phaseolus spp.) |
+0713.32.00 | Adzuki (rojos pequeños) |
+| (Phaseolus o Vigna angularis) | 30%
+0713.33 | Comunes (Phaseolus vulgaris) |
+0713.3310 | Negros | 30%
 )
