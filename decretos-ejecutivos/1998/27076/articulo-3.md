@@ -1,2 +1,0 @@
-Artículo 3°—Los Concejos Municipales podrán integrarse a este mecanismo de coordinación de políticas, programas y proyectos de desarrollo humano, como gestores y promotores de los intereses locales y convocadores de las comunidades por medio de los correspondientes acuerdos municipales, de convenios interinstitucionales e intermunicipales.
-En aquellos casos en que los Concejos Municipales no se integren, el Gobierno de la República trabajará en forma directa con las comunidades.
