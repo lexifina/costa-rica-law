@@ -1,0 +1,2 @@
+Artículo 43°. - Este decreto rige a partir de su publicación y modifica, en lo correspondiente, el Decreto Ejecutivo N° 4822-E de 28 de abril de 1975, publicado en “La Gaceta” mediante el Alcance N° 71 a “La Gaceta” N°91, el día viernes 16 de mayo de 1975, asimismo deroga cualquier otra disposición que se le ponga o contrarié.
+Dado en la Casa Presidencial. - San José, a los quince días del mes de marzo de mil novecientos setenta y seis.

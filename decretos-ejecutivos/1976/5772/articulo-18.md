@@ -1,0 +1,1 @@
+Art 18°. - La promoción será definida con base en el promedio de los resultados obtenidos en los tres trimestres. Sin embargo, la nota inferior a 65 obtenida en el último trimestre producirá el aplazamiento del alumno en la respectiva asignatura o curso, cualquiera que sea el promedio anual.

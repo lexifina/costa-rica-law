@@ -1,0 +1,1 @@
+Art 29°. - La pérdida del curso motivada por la nota de comportamiento, obligará al alumno a repetir el año en todas las asignaturas del Núcleo Común de la Rama Académica, o asignaturas del Núcleo Común y de Tecnologías, en las ramas técnicas y artísticas.

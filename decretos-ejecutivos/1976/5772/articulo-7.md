@@ -1,0 +1,4 @@
+Artículo 7°.- A las asignaturas, actividades y cursos propios de los núcleos citados en el artículo 6°, se les otorgan créditos, con excepción de las Actividades de Grupo, y el total de esos créditos en cada rama, se exigirá como requisito para alcanzar la conclusión de la Educación Diversificada.
+Los alumnos que no aprobaren alguna de las asignaturas, o cursos de cualquiera de los núcleos complementarios, tendrán derecho a presentar pruebas por suficiencia en los meses de mayo y setiembre del curso inmediato.
+Estas pruebas pueden ser teóricas o prácticas según la naturaleza de las asignaturas o cursos.
+Los alumnos que no hayan aprobado alguna de las asignaturas, o cursos en referencia, al finalizar en último año de la rama que cursan, podrán presentarlas por suficiencia en las fechas que el Ministerio señale.
