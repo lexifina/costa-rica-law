@@ -1,0 +1,1 @@
+Artículo 2°—En las laderas de los cauces de agua no se podrán realizar movimientos de tierra que alteren la topografía natural del terreno, ésto implica prohibición de terraceo y depósito o extracción de materiales.

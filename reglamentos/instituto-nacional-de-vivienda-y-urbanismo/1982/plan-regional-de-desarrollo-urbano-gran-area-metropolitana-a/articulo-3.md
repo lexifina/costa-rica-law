@@ -1,0 +1,1 @@
+Artículo 3°—En el caso de terrenos con pendientes de más del 20% con laderas a orillas de cauces de agua, se deberá presentar, acompañando al anteproyecto de la urbanización, estudios geológicos de la zona a urbanizar que demuestren que los terrenos son aptos para construir.
