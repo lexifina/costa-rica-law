@@ -1,0 +1,2 @@
+Art. 2. Señàlase para el juramento y posesion de estos individuos el Viernes cuatro del corriente, à cuyo efecto se presentaràn en la Sala del Consejo.—Comuniquese al Poder Ejecutivo.—
+Dado en San José à los dos dias del mes de Marzo de mil ochocientos treinta y uno.—Rafael Osejo D. Presidente.—José Gabriel del Campo D. Secretario.—José Julian Blanco D. Secretario.—Por tanto: ejecutese. San José Marzo tres de mil ochocientos treinta y uno.—Juan Mora.—Al C. Joaquin Bernardo Calvo.”
