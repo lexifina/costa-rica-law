@@ -1,0 +1,2 @@
+Artículo 14.-La Municipalidad aplicará la tarifa que establece el artículo 18 durante el primer período, para gravar toda actividad lucrativa nueva que no pueda sujetarse al procedimiento impositivo del articulo 6º, por falta de declaración sobre la renta.
+Esta imposición tendrá el carácter de provisional. La Municipalidad deberá recalificar el impuesto para el segundo año, conforme a la declaración sobre la renta del primer ejercicio económico.
