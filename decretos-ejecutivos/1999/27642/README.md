@@ -14,3 +14,4 @@ Declara Patrimonio Histórico la Iglesia de Santa Teresita ubicada en San José.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-18 | la propia norma |
+| 2 | 1999-02-18 | SINALEVI (sin norma nombrada) |
