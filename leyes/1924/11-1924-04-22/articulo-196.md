@@ -1,4 +1,10 @@
 Artículo 196
-Clasificación del indulto
-El indulto es especial, si se refiere a la pena infligida al reo o reos por un delito determinado.
-Es general, cuando se refiere a todos los condenados con motivo de un suceso o acción complejos, sin limitar sus efectos a determinada o determinadas personas con exclusión de las que no se indiquen.
+Conmutación.-La facultad de otorgar la conmutación se ejercerá conforme a las siguientes prescripciones:
+1°-La pena de presidio por tiempo indeterminado puede ser conmutada cuando el reo la hubiere sufrido por quince años, imponiendo en su lugar la relegación;
+2°-la pena de relegación, transcurridos los dos primeros años puede ser cambiada por extrañamiento en su grado sexto;
+3°-Las penas de presidio temporal, prisión, extrañamiento, confinamiento y destierro, una vez descontada la mitad de la condena, pueden ser conmutadas: la primera por prisión que durará el tiempo correspondiente a la otra mitad o por extrañamiento que comprenderá doble tiempo; la segunda, por extrañamiento que comprenderá un lapso igual al que falte de la primitiva condena, o por confinamiento que comprenderá dicho resto aumentado en un tercio, la tercera, por multa mayor en sus grados cuarto a sexto, la cuarta por multa mayor en sus grados primero a tercero; y la quinta, por multa menor en sus grados cuarto a sexto;
+4°-la pena de arresto puede ser conmutada por la de multa, que se computará a dos colones por día. Si el reo no se encuentra privado de libertad, para que se dé curso a su solicitud es indispensable que presente constancia de haber depositado en la tesorería escolar respectiva una suma equivalente al monto de la multa que tendría que satisfacer en caso de obtener conmutación;
+Si el reo estuviere preso, la conmutación por multa no se considerará firme sino a partir del momento en que el favorecido haya satisfecho en la respectiva tesorería escolar la suma que corresponda, y el jefe del establecimiento penitenciario no podrá permitir la salida del delincuente si no se le presenta el recibo de entero en que conste haberse pagado la multa;
+5°-No cabe la conmutación si una ley especial declara inconmutable la pena de un delito o de una falta;
+6°-La conmutación será revocada siempre que el reo quebrante en cualquier momento la pena con que se haya sustituído la del fallo, o incurra en un nuevo delito: la Corte Suprema de Justicia hará en el primer caso la declaratoria correspondiente ; en el segundo corresponde hacerla al Tribunal respectivo, de acuerdo con lo estatuído en el artículo 204.
+(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)

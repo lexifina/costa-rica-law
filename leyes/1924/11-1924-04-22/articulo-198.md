@@ -1,7 +1,6 @@
+CAPITULO SEGUNDO
+CONCESIONES QUE NO IMPLICAN CONMUTACIÓN
 Artículo 198
-Reglas especiales del indulto
-Sin perjuicio de lo que sobre esta materia se estatuye en otros artículos, el indulto está regido por los siguientes preceptos:
-1°. El indulto de la pena principal llevará consigo el de las accesorias, excepto la inhabilitación para cargos u oficios públicos o profesiones titulares, que no debe estimarse comprendida, si el acuerdo de concesión no lo establece expresamente.
-2.° Cabe indultar al reo de las penas accesorias con exclusión de la principal, cuando por su naturaleza o efectos no sean inseparables.
-3.° El indulto de la pena pecuniaria exime al reo del paga de la cantidad no satisfecha aún, sin constituir derecho para obtener la devolución de lo pagado.
-4.° Excepto en los casos figurados en los incisos 1.°, 3.° y 4.° del artículo siguiente, la comisión de nuevo delito dentro del término que hubiera sido necesario para prescribir la pena remitida, trae como consecuencia la revocación de la gracia por resolución judicial.
+Cambio de confinamiento.-El Poder Ejecutivo podrá conceder el cambio de lugar de confinamiento, sea ésta la pena directa, sea el resultado de una conmutación, cuando a su juicio hubiere una razón poderosa para disponerlo. Pero en todo caso deberá observarse lo prescrito en el artículo 105 de este Código, respecto a distancia entre el lugar del confinamiento y el del delito.
+Para conceder el cambio, no es preciso oír el parecer de la Corte Suprema de Justicia, pero sí deberá cumplirse el requisito de publicación del acuerdo en el periódico oficial, expresando las razones que se tuvieren en cuenta para conceder el traslado.
+(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)
