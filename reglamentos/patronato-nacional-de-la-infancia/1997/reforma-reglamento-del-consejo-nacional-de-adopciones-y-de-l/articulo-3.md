@@ -1,0 +1,6 @@
+3. Artículo 13.—Modificarlo en el siguiente sentido:
+3.1. Inciso "A)": Léase en adelante así: "A) acatar las directrices que en materia de adopción existen en la legislación, tomando en consideración el interés superior del niño".
+3.2. Inciso "M": Léase en adelante así: "M) coordinar en sus funciones con la Secretaría Técnica, así como controlar y supervisar el funcionamiento de los Consejos Regionales".
+3.3. Agregar un nuevo inciso bajo la letra "N", el cual deberá leerse así: "N) valorar, sin carácter vinculante, las decisiones de la Secretaría Técnica".
+3.4. En virtud de la adición de dicho literal "N", ajustar los siguientes incisos, de manera que, en lo sucesivo, el señalado con la letra "N" se leerá como "O"; el "O" como "P"; el "P" como "Q"; el "Q" como "R"; el "R" como "S", y el "S" como "T".
+3.5. Inciso "R": léase en adelante: "R) supervisar periódicamente, con el apoyo de la Secretaría Técnica, los Centros Públicos y Privados donde se encuentren personas menores de edad en condición de institucionalización, a fin de verificar la situación jurídica y psicosocial de cada uno de los niños (as) con posibilidades de ser adoptados (as), y tomar las medidas pertinentes con el fin de salvaguardar el interés superior de los niños."
