@@ -14,3 +14,4 @@ Reglamento de Capacitación y Profesionalización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-26 | la propia norma |
+| 2 | 2003-08-28 | Reglamento 4142 (2003-08-28) |
