@@ -1,1 +1,1 @@
-2°—La asamblea autoriza a la Junta Directiva para que publique este Reglamento en el Diario Oficial La Gaceta.
+2. La Asamblea General autoriza a la Junta Directiva para que publique este Reglamento en el diario oficial La Gaceta.

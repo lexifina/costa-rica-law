@@ -1,3 +1,3 @@
-CAPÍTULO PRIMERO
-De los Consejos Regionales
-Articulo 2°—Se establecen los Consejos Regionales como medio de enlace entre la Junta Directiva del Colegio y la comunidad contable que ésta representa.
+CAPITULO PRIMERO
+DE LOS CONSEJOS REGIONALES
+Artículo 2° .- Se crean los consejos regionales, que serán el medio de enlace entre la Junta Directiva del Colegio y la comunidad contable que ésta representa.

@@ -1,2 +1,5 @@
-Artículo 26.—La Junta Directiva del Colegio será la encargada de administrar los bienes adquiridos o dañados y adscritos a cualquier consejo y, de ser necesario, se recurrirá a la asesoría técnica y profesional, cuando se trate de bienes inmuebles, cuya área mínima será de 150 metros cuadrados*.
-*Así corregido mediante FE DE ERRATAS, publicada en La Gaceta No. 137 de 17 de julio de 2001.
+Artículo 26.- Los consejos podrán utilizar fondos para:
+a) Contratar profesionales en materia contable especializados en actualizar los conocimientos de sus afiliados, así como cubrir todos los gastos ocasionales que esta actividad ocasione.
+b) Adquirir mobiliario y equipo.
+c) Pago de alquileres para el establecimiento de sus oficinas administrativas y el desarrollo profesional, cuyo monto será aprobado por la Junta Directiva del Colegio.
+En cuando a lo que se autoriza en este artículo, será necesario el establecimiento del debido control interno para coadyuvar satisfactoriamente en los planes anuales.

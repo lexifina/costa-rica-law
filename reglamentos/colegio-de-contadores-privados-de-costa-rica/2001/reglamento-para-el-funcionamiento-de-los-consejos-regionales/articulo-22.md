@@ -1,1 +1,2 @@
-Artículo 22.—En todo lo aquí dispuesto serán aplicables las disposiciones de la Ley Orgánica del Colegio y su Reglamento.
+SEGUNDA PARTE: OPERACIONES FINANCIERO-CONTABLES
+Artículo 22.- Este Reglamento fijará las normas para poder utilizar los recursos económicos de FOCORE para facilitar servicios y actividades programadas para los Consejos Regionales.

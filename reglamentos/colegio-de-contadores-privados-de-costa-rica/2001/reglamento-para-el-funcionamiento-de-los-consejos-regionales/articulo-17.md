@@ -1,2 +1,1 @@
-Articulo 17.—La elección del Consejo Directivo se hará bajo la responsabilidad del Consejo de Elecciones del Colegio, que la delegará en dos representantes de su seno.
-Será válida cuando haya sido convocada con la anticipación y la divulgación establecidas y concurran a respectiva asamblea no menos de ocho miembros debidamente inscritos.
+Artículo 17.- La asamblea general ordinaria en que los consejos regionales deban elegir a su respectivo consejo directivo no podrá ser convocada fuera del término de los quince días hábiles posteriores a la fecha en que venza el período del consejo directivo anterior.

@@ -1,1 +1,1 @@
-Artículo 19.—La dieta mensual que devengarán los miembros de la Junta Directiva de los Consejos Regionales se asignará por medio del presupuesto aprobado por la asamblea general del Colegio.
+Artículo 19.- El Consejo de Administración de FOCORE velará por el correcto cumplimiento de las obligaciones que competen a los Consejos y que estipula este Reglamento.

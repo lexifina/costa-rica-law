@@ -1,2 +1,5 @@
-Artículo 27.—Si fuere necesario levantar una construcción, su diseño y distribución serán estándares y estarán integrados en siguiente forma: Administración, 20 metros cuadrados; Junta Directiva, 20 metros cuadrados; Cómputo y Laboratorio, 20 metros cuadrados; servicio sanitario, 10 metros cuadrados, y otros servicios, cinco metros cuadrados.
-Compete a la Junta Directiva del Colegio la adquisición de terreno y la construcción de edificaciones, en acatamiento de todas las regulaciones legales y reglamentarias que existan al respecto.
+Artículo 27.- Para determinar la necesidad de comparar terrenos o edificaciones o realizar construcciones, la Junta Directiva del Colegio considerará, entre otras, las siguientes condiciones:
+a) El número de contadores activos de la localidad.
+b) El aporte mensual por concepto de cuotas recaudadas.
+c) La zona de estrategia territorial en cuanto a lo económico y lo comercial.
+d) La proyección de ingresos que permita hacerle frente a los gastos en que se incurra.

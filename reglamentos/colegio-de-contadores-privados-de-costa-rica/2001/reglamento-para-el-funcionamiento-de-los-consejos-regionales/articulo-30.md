@@ -1,1 +1,1 @@
-Articulo 30.—Cada Consejo deberá formular su proyecto de supuesto anual, que deberá remitirse, a más tardar el último día hábil, a cimiento y análisis de la Junta Directiva del Colegio, a fin de integrarlo en el presupuesto general para lo pertinente.
+Artículo 30.- Este Reglamento deroga cualquier disposición anterior que se le oponga y rige a partir de su publicación.

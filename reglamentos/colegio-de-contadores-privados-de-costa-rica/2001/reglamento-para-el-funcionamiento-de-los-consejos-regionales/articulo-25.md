@@ -1,2 +1,2 @@
-Artículo 25.—Los Consejos reconocerán mensualmente un 20%* al Colegio por concepto de cobro, administración y registro contable. Lo recaudado el mes inmediato anterior deberá estar depositado a más tardar el día quince del mes inmediato posterior.
-*Así corregido mediante FE DE ERRATAS publicada en La Gaceta N° 137 de 17 de julio de 2001.
+Artículo 25.- Si fuere necesario levantar una construcción, su diseño y distribución tendrán medidas estándares y estarán integrados en siguiente forma: Administración, 20 metros cuadrados; Junta Directiva, 20 metros cuadrados; Cómputo y Laboratorio, 20 metros cuadrados; servicio sanitario, 10 metros cuadrados, y otros servicios, cinco metros cuadrados.
+Compete a la Junta Directiva del Colegio la adquisición de terreno y la construcción de edificaciones, en acatamiento de todas las regulaciones legales y reglamentarias que existan al respecto.

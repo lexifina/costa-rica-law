@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de los Consejos Regionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-27 | la propia norma |
+| 2 | 2003-12-14 | Reglamento 89 (2003-12-14) |
