@@ -1,0 +1,1 @@
+Artículo 4°-Previo a la comercialización en el país, toda nueva variedad deberá cumplir con los requisitos para su inscripción en el Registro de Variedades Comerciales (artículo 57 al 59 del Reglamento a la Ley N° 6289).
