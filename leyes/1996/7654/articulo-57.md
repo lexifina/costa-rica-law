@@ -1,8 +1,2 @@
-ARTICULO 57.- Recurso de apelación por inadmisión
-El recurso de apelación por inadmisión se regirá por lo dispuesto en
-los artículos 583 a 590 del Código Procesal Civil. Sin embargo, no
-existirá devolución del expediente para emplazar sino que, en la nota
-donde se pida el expediente cuando la autoridad judicial tenga su asiento
-en otro lugar, se apercibirá a las partes para que señalen lugar para
-atender notificaciones ante el superior. Por el carácter sumario del
-procedimiento, no procederá el trámite de apelación adhesiva.
+Artículo 57.- Recurso de apelación por inadmisión
+El recurso de apelación por inadmisión se regirá por lo dispuesto en los artículos 583 a 590 del Código Procesal Civil. Sin embargo, no existirá devolución del expediente para emplazar sino que, en la nota donde se pida el expediente cuando la autoridad judicial tenga su asiento en otro lugar, se apercibirá a las partes para que señalen lugar para atender notificaciones ante el superior. Por el carácter sumario del procedimiento, no procederá el trámite de apelación adhesiva.
