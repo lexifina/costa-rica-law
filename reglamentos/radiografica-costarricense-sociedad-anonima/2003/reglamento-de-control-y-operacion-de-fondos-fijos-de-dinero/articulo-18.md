@@ -1,0 +1,12 @@
+Artículo 18.—Solicitudes para la compra de bienes considerados como activos.
+18.1 Para la compra de activos el "vale de caja chica" que presente el solicitante al responsable del fondo fijo de caja chica, debe contener el visto bueno del Departamento de Planificación Financiera. Además cumplir con los siguientes requisitos:
+18.1.1 Que el bien no sea un artículo normalizado. En caso de que se trate de un artículo de este tipo y de que no haya en bodega en ese momento, el solicitante debe aportar la autorización respectiva de parte de la Jefatura del Departamento de Administración de Materiales o de quien esté autorizado para ello.
+18.1.2 La autorización debe ser emitida por un funcionario habilitado para ello.
+18.1.3 Que se cuente con los sellos de contenido presupuestario del Departamento de Planificación Financiera.
+18.1.4 El solicitante no puede tener un vale pendiente de liquidación.
+18.1.5 Cuando se trate de compras mayores a los ¢75.000,00, el solicitante debe presentar un mínimo de tres cotizaciones.
+18.1.6 Cuando se trate de compras sujetas a retención del 2% de renta( factura individual cuyo subtotal, exceda el salario base de un oficinista 1), se debe llenar "Comprobante Retención del 2% de impuesto sobre la renta". (Ver el anexo Nº 9). Además, antes de realizar la compra el solicitante debe verificar que el proveedor está inscrito en el registro respectivo, caso contrario, debe solicitar al encargado la inscripción.
+18.1.7 Las facturas sujetas a retención del 2% de renta deben ser reintegradas en forma individual, adjuntando copia que respalda la retención.
+18.2 Una vez realizada la compra, el solicitante debe acudir al Departamento de Planificación Financiera, con el comprobante de liquidación de caja chica, para que el monto exacto de la adquisición sea aplicado en el presupuesto de inversiones y se le asigne el sello correspondiente.
+18.3 Toda compra de activos debe ser reportada por el solicitante al Departamento de Administración de Materiales para su respectivo registro y asignación de número de activo y firma del comprobante de asignación de responsabilidad.
+18.4 El cumplimiento del trámite anterior debe ser corroborado por el Responsable del fondo fijo de caja chica mediante la identificación del sello del Departamento de Administración de Materiales, en la factura y en el comprobante de liquidación de caja chica, mediante el cual se asignó el activo a un funcionario en particular.

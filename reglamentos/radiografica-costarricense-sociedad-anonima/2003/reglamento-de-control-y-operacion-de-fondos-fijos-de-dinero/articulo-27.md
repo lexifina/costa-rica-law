@@ -1,0 +1,4 @@
+Artículo 27.—Sanciones.
+27.1 Los anticipos para bienes y servicios o gastos de viaje y transporte, para funcionarios públicos en el interior del país, no liquidados oportunamente en el plazo establecido. De igual forma la compra de bienes o servicios sin contenido presupuestario por omisión de sello requerido. Cualquiera de las sanciones antes mencionadas, se reportarán de oficio a la Dirección de Recursos Humanos, para la deducción automática en la planilla inmediata siguiente, sin perjuicio de las sanciones disciplinarias aplicables, a criterio del superior competente de la dirección a la que pertenece el funcionario involucrado.
+27.2 También cabe la aplicación de la sanción disciplinaria de acuerdo con el Estatuto de Personal, cuando el responsable del fondo de caja chica no reporte la caducidad de los adelantos bajo su responsabilidad.
+27.3 Cabe una sanción en caso del incumplimiento del artículo 26 de este reglamento.

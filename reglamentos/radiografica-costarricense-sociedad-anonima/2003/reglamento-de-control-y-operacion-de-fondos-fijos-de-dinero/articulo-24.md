@@ -1,0 +1,4 @@
+Artículo 24.—Diferencias de caja chica.
+24.1 Los trabajadores que tengan bajo su responsabilidad el manejo de un fondo de caja chica contarán con un fondo para diferencias de caja, para cubrir faltantes menores detectados en los arqueos. Este fondo para diferencias de caja será liquidado al final de cada periodo fiscal por el Departamento de Contabilidad, de conformidad con el monto fijo asignado.
+24.2 En el caso de existir faltantes mayores al fondo asignado para diferencias de caja, éstos deberán ser cubiertos por el responsable del fondo de caja chica. De igual forma, cualquier sobrante deberá ser depositado en las cajas de Tesorería ubicadas en el 1er piso en el Centro de Telecomunicaciones, mediante el recibo correspondiente.
+24.3 La reiteración de faltantes de caja chica obligará a la jefatura de la dependencia a realizar las investigaciones que correspondan.
