@@ -1,2 +1,3 @@
 Artículo 4°—El adelanto de viáticos en dinero efectivo se hará, únicamente, para viajes que no excedan de tres días consecutivos.
-La Administración mantendrá en existencia los formularios para el trámite respectivo. La solicitud y la respectiva liquidación deberá ser firmada por el superior jerárquico inmediato; en el caso de funcionarios que dependen de la junta directiva, la firmará el presidente o director ejecutivo.
+La administración mantendrá en existencia los formularios para el trámite correspondiente. La solicitud y la respectiva liquidación deberá ser firmada por el superior jerárquico inmediato. En el caso de los funcionarios que dependan de la Junta Directiva, así como sus miembros firmarán las personas titulares de la Presidencia o Dirección Ejecutiva, de conformidad con los acuerdos de autorización de Junta Directiva o en su caso del Presidente Ejecutivo.
+(Así reformado en sesión N° 3264 de 3 de marzo de 2003).

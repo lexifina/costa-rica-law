@@ -14,3 +14,4 @@ Reglamento de Caja Chica para Gastos de Viaje y de Transporte en el interior del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-16 | la propia norma |
+| 2 | 2003-03-03 | Reglamento 3264 (2003-03-03) |
