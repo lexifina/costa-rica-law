@@ -15,3 +15,4 @@ Delimita Reserva Indígena Cabécar de Talamanca
 | --- | --- | --- |
 | 1 | 1985-06-20 | la propia norma |
 | 2 | 1985-09-25 | Decreto Ejecutivo 16571 (1985-09-25) |
+| 3 | 2001-03-21 | Decreto Ejecutivo 29448 (2001-03-21) |
