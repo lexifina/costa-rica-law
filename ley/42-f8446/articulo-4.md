@@ -1,0 +1,1 @@
+Art°. 4°. Para la seguridad del fondo se cerrarán en potreros las que se puedan sin prejuicio del mejor camino público quedando en beneficio del común las sobrantes de estos y de la indegnisacion de los compradores.

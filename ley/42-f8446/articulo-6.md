@@ -1,0 +1,1 @@
+Art°. 6°. Gozarán del privilegio de la matricula los contribuyentes, y sus descendientes hasta que por las divisiones, y subdivisiones se reduzcan sus derechos al valor de un peso en cuyo caso quedan amortizados; más entre tanto este beneficio no podrá ser vendido, prestado ni alquilado por el que le goza a otra persona.
