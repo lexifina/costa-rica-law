@@ -17,3 +17,4 @@ Reglamento para la Prestación de Servicios Notariales del Banco Nacional de Cos
 | 2 | 2002-05-16 | Reglamento 0 (2002-05-16) |
 | 3 | 2002-08-20 | Reglamento 11164 (2002-08-20) |
 | 4 | 2002-08-20 | Ley 8 |
+| 5 | 2002-08-20 | SINALEVI (sin norma nombrada) |
