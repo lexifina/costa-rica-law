@@ -1,5 +1,7 @@
+(Derogado)
 JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 N° 90
+(Esta norma fue derogada por el artículo 51 del Estatuto de Servicio Cívil, ley N° 1581 del 30 de mayo de 1953)
 Considerando
 1.-Que es propósito de la Junta Fundadora de la Segunda Republica establecer un sistema de servicio civil que asegure a la Administración un personal estable y bien entrenado;
 2.-Que para lograr esta finalidad ya se esta preparando una legislación adecuada, y se ha abierto una Oficina de Selección de Personal que habrá de formar en su oportunidad los cuadros del escalafón administrativo;
