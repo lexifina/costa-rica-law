@@ -1,0 +1,1 @@
+Artículo 6º—El INTA producto de su gestión dispondrá de productos y servicios de interés estratégico, ambiental y social para el país, orientados principalmente hacia el pequeño y mediano productor, sin que ello limite la participación de otros grupos del Sector Agropecuario.

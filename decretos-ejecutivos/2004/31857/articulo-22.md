@@ -1,0 +1,2 @@
+Artículo 22.—Los funcionarios gubernamentales y el fiscal ejercerán sus funciones directivas sin percibir dietas. Los demás miembros directivos, salvo que sean funcionarios públicos, devengarán dietas cuyo monto no podrá ser superior al establecido para las instituciones autónomas, que no pertenezcan al Sistema Bancario Nacional; se les reconocerá el pago de hasta dos sesiones ordinarias por mes y tres extraordinarias por año.
+El monto de las dietas citadas en el párrafo anterior será fijado por el Poder Ejecutivo.

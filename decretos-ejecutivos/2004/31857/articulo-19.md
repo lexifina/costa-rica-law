@@ -1,0 +1,1 @@
+Artículo 19.—Los miembros de la Junta Directiva durarán en sus cargos un período de tres años, excepto los representantes del Poder Ejecutivo definidos en los incisos a), b) y c) del artículo 13, quienes permanecerán en sus cargos por un período presidencial o en su defecto, durante el tiempo que ocupen su puesto en el Poder Ejecutivo.

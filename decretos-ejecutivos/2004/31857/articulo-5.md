@@ -1,0 +1,1 @@
+Artículo 5º—Las funciones establecidas en la Ley Nº 7779 del 30 de abril de 1998, "Ley de Uso, Manejo y Conservación de Suelos" que correspondían al Departamento de Suelos de la Dirección Nacional de Investigaciones Agropecuarias del Ministerio de Agricultura y Ganadería, pasan a formar parte según corresponda, del marco de funciones y competencias específicas del INTA.

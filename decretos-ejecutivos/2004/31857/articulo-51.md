@@ -1,0 +1,1 @@
+Artículo 51.—Para todos los efectos formales, operativos y administrativos, se suprime de la estructura orgánica del Ministerio de Agricultura y Ganadería, la Dirección Nacional de Investigaciones Agropecuarias.

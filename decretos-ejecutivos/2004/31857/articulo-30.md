@@ -1,0 +1,1 @@
+Artículo 30.—La Dirección Ejecutiva podrá establecer mecanismos de coordinación con la Secretaría Ejecutiva de Planificación del Sector Agropecuario (SEPSA) y otras direcciones del Ministerio de Agricultura y Ganadería, para articular acciones conjuntas en beneficio de los productores agrícolas.

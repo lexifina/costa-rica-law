@@ -1,0 +1,1 @@
+Artículo 42.—Aquellas variedades vegetales desarrolladas por el INTA como resultado de su propia gestión; el Instituto deberá inscribirlas en el Registro de Variedades Protegidas que lleva la Oficina Nacional de Semillas -ONS-, de acuerdo con la Ley de Semillas Nº 6289 y con la normativa correspondiente en materia de protección de obtenciones vegetales.

@@ -1,0 +1,1 @@
+Artículo 27.—El proceso de selección para efectuar el nombramiento de la persona que ocupe el cargo de Director Ejecutivo, será definido por la Junta Directiva del INTA y se regirá según lo establecido en el Artículo 4, inciso g) del Estatuto del Servicio Civil.

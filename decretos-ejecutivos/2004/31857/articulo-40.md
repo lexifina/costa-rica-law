@@ -1,0 +1,1 @@
+Artículo 40.—El INTA deberá proteger los derechos de propiedad industrial de aquellas innovaciones obtenidas a partir de su propia gestión o iniciativa, en líneas de investigación tales como: diseño industrial, maquinaria, equipos, software, métodos analíticos y otros.

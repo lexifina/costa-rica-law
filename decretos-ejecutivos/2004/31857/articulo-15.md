@@ -1,0 +1,1 @@
+Artículo 15.—El Ministro de Agricultura y Ganadería o su representante será el Presidente de la Junta Directiva. La Junta elegirá de entre sus miembros a un vicepresidente y un secretario, siendo los miembros restantes vocales.

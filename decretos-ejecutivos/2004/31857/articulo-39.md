@@ -1,0 +1,1 @@
+Artículo 39.—El Instituto deberá inscribir en los Registros que correspondan, las marcas, signos, mapas, información de carácter intelectual, tales como textos, audiovisuales, material divulgativo y todo nuevo desarrollo intelectual que resulte de su propia iniciativa.

@@ -1,0 +1,1 @@
+Artículo 17.—La convocatoria para la presentación de las ternas para efectuar el nombramiento de los representantes de los pequeños y medianos productores, se realizará mediante publicación en un diario de amplia circulación nacional. Transcurridos treinta días calendario, contados a partir de la publicación, se procederá a realizar el nombramiento respectivo.
