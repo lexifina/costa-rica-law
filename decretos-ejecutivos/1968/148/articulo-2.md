@@ -1,0 +1,1 @@
+Artículo 2°—Todo permiso u ocupación de hecho es de carácter personalísimo y, por tanto, intransferible. Caducará necesariamente cuando el titular abandonare el puesto o falleciera, o si suspende su permiso por infracciones al presente Reglamento.

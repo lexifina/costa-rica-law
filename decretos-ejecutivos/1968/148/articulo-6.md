@@ -1,0 +1,1 @@
+Artículo 6°—Todos los puestos de ventas a que se refiere el presente decreto estarán sometidos a las regulaciones que dicten las autoridades de Sanidad, Salubridad Pública, Tránsito y Policía, de conformidad con las leyes vigentes.

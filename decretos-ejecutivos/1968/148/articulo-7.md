@@ -1,0 +1,1 @@
+Artículo 7°—A partir de la vigencia del presente decreto, queda terminantemente prohibida la instalación de nuevos puestos de ventas en las vías públicas. Las autoridades de policía procederán a retirar los que se instalen y a poner a los infractores a la orden de las autoridades competentes.

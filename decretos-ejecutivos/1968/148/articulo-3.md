@@ -1,0 +1,1 @@
+Artículo 3°—Ninguna entidad, pública o privada, gremial o particular, podrá percibir directa o indirectamente pagos de ninguna naturaleza ni por ningún concepto, con motivo de las ventas a que se refiere el presente decreto. Todo acuerdo que al respecto exista será nulo, sin perjuicio de las sanciones que correspondan a quienes infringieren la presente disposición.
