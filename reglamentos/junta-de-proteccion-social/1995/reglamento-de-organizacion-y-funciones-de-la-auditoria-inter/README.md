@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Auditoría Interna de la Junta de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-11 | la propia norma |
+| 2 | 1995-09-07 | Reglamento 0 (1995-09-07) |
