@@ -1,3 +1,0 @@
-4º—Del régimen de los delegados
-El cargo de Delegado del Tribunal Supremo de Elecciones es ad honorem. La relación que se establezca entre los Delegados y el Tribunal no se considerará en modo alguno como una relación laboral. Sin embargo, le serán aplicables las disposiciones contenidas en el Título Quinto del Libro Primero de la Ley General de la Administración Pública.
-El cargo de Delegado es renunciable en cualquier momento, debiendo el interesado comunicarlo así por escrito, a la Jefatura Nacional de Delegados, con copia a la Secretaría del Tribunal, con al menos 15 días de antelación. Con esa misma comunicación el delegado deberá devolver el carné y las insignias de acreditación que se le hubieren entregado.

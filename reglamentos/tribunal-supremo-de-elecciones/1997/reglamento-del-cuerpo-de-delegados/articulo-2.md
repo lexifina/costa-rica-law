@@ -1,2 +1,0 @@
-2°—Requisitos para ser miembro
-Podrán ser miembros del Cuerpo de Delegados los costarricenses domiciliados permanentemente en el país. Asimismo, se requerirá ser ciudadano en ejercicio, de conducta intachable, de notoria imparcialidad política y estarán sujetos a las causales de impedimento que se indican en el párrafo segundo del ordinal 27 de la Ley Orgánica del Tribunal Supremo de Elecciones y Registro Civil.
