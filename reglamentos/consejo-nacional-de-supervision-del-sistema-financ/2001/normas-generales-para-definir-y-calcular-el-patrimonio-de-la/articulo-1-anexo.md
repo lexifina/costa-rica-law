@@ -51,14 +51,12 @@ NOTAS:
 (Así reformada la Nota 1, en sesión No. 381 de 22 de julio de 2003).
 2/ Las estimaciones genéricas serán determinadas de conformidad con el siguiente procedimiento:
 D(20041) Estimaciones genéricas XXXX
-C(139) Estimación para cartera de créditos XXXX
-C(252) Estimación para incobrabilidad
-de créditos contingentes XXXX
+*C(139) Estimación para cartera de créditos XXXX
+*C(149.08.M.03) Estimación por deterioro e incobrabilidad de productos por cobrar por cartera de crédito XXXX
+*C(252) Estimación para incobrabilidad de créditos contingentes XXXX
 Menos
-D(20042) Monto de las Estimaciones Mínimas
-para la cartera clasificada en categorías
-de riesgo B2, C, D y E, según el
-Acuerdo SUGEF 1-95 XXXX
+*D(20042) Monto de las Estimaciones Mínimas para la cartera clasificada en categorías de riesgo B2, C, D y E, según el Acuerdo SUGEF 1-95 XXXX
+*(Así reformado parcialmente mediante sesión ordinaria N° 408, celebrada el 09 de diciembre de 2003.)
 Las estimaciones genéricas elegibles para su inclusión como capital base estarán limitadas hasta el 1,25% de los activos totales ponderados por riesgo según el Acuerdo SUGEF 26-00 "Normas para Establecer la Suficiencia Patrimonial de Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda".
 3/ Hasta el 50% de las restantes partidas del capital base.
 4/ Equivale también a la diferencia entre la cuenta 500 y 400, siempre que la cuenta 400 (gastos) sea mayor a la cuenta 500 (ingresos).
