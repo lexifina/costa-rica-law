@@ -1,8 +1,7 @@
-Artículo 30.- El Ministro resolverá el recurso dentro de los treinta
-días siguientes a la fecha en que quede terminado el expediente respectivo,
-por haberse recibido las pruebas o los informes que el Ministerio hubiere
-pedido para mejor proveer. Si no se hubiere ordenado dicho trámite, el
-término se contará a partir del día en que el expediente esté listo para
-dictar la resolución.
-La resolución del Ministro agotará la vía administrativa y surtirá
-efecto desde el día de su publicación en el Diario Oficial.
+Artículo 30.- El órgano que conozca de la apelación, de acuerdo con
+esta ley, contará con treinta días naturales para resolver. Si vence el
+plazo sin haberse dictado la resolución, excepto para la revisión
+tarifaria, se tendrá por rechazado el recurso y por agotada la vía
+administrativa.
+( Así reformado por el artículo 65 de la Ley Nº 7593 de 9 de agosto
+de 1996).

@@ -3,4 +3,4 @@ a) El Consejo de Seguridad Vial;
 b) La Comisión Técnica de Transportes;
 c) La Dirección de Ingeniería de Tránsito;
 ch) La Dirección de la Policía de Tránsito; y
-d) La Dirección de Transportes Automotor.
+d) La Dirección General de Transporte Público.
