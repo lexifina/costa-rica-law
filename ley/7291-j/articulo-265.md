@@ -1,0 +1,2 @@
+Artículo 265 Medidas provisionales
+Mientras no se resuelva una controversia de conformidad con las secciones 2 y 3 de la Parte XV, el Estado o la organización internacional competente a quien se haya autorizado a realizar un proyecto de investigación científica marina no permitirá que se inicien o continúen las actividades de investigación sin el consentimiento expreso del Estado ribereño interesado.

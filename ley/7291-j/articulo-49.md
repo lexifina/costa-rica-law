@@ -1,0 +1,5 @@
+Artículo 49 Condición jurídica de las aguas archipelágicas, del espacio aéreo sobre las aguas archipelágicas y de su lecho y subsuelo
+1.- La soberanía de un Estado archipelágico se extiende a las aguas encerradas por las líneas de base archipelágicas trazadas de conformidad con el artículo 47, denominadas aguas archipelágicas, independientemente de su profundidad o de su distancia de la costa.
+2.- Esa soberanía se extiende al espacio aéreo situado sobre las aguas archipelágicas, así como al lecho y subsuelo de esas aguas y a los recursos contenidos en ellos.
+3.- Esa soberanía se ejerce con sujeción a las disposiciones de esta Parte.
+4.- El régimen de paso por las vías marítimas archipelágicas establecido en esta Parte no afectará en otros aspectos a la condición jurídica de las aguas archipelágicas, incluidas las vías marítimas, ni al ejercicio por el Estado archipelágico de su soberanía sobre esas aguas, su lecho y subsuelo, el espacio aéreo situado sobre esas aguas y los recursos contenidos en ellos.

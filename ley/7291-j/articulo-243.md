@@ -1,0 +1,2 @@
+Artículo 243 Creación de condiciones favorables
+Los Estados y las organizaciones internacionales competentes cooperarán, mediante la celebración de acuerdos bilaterales y multilaterales, en la creación de condiciones favorables para la realización de la investigación científica marina en el medio marino y en la integración de los esfuerzos de los científicos por estudiar la naturaleza e interrelaciones de los fenómenos y procesos que tienen lugar en el medio marino.

@@ -1,0 +1,2 @@
+Artículo 115 Indemnización por pérdidas causadas al tratar de prevenir daños a cables y tuberías submarinos
+Todo Estado dictará las leyes y reglamentos necesarios para que los propietarios de buques que puedan probar que han sacrificado un ancla, una red o cualquier otro aparejo de pesca para no causar daños a un cable o a una tubería submarinos sean indemnizados por el propietario del cable o de la tubería, a condición de que hayan tomado previamente todas las medidas de precaución ranozables.

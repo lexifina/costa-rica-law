@@ -1,0 +1,2 @@
+Artículo 114 Ruptura o deterioro de cables o tuberías submarinos causados por los propietarios de otros cables o tuberías submarinos
+Todo Estado dictará las leyes y reglamentos necesarios para que las personas sometidas a su jurisdicción que sean propietarias de cables o tuberías en la alta mar y que, al tender o reparar los cables o tuberías, causen la ruptura o el deterioro de otro cable o de otra tubería respondan del costo de su reparación.

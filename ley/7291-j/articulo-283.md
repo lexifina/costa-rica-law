@@ -1,0 +1,3 @@
+Artículo 283 Obligación de intercambiar opiniones
+1.- Cuando surja una controversia entre Estados Partes relativa a la interpretación o la aplicación de esta Convención, las partes en la controversia procederán sin demora a intercambiar opiniones con miras a resolverla mediante negociación o por otros medios pacíficos.
+2.- Asimismo, las partes procederán sin demora a intercambiar opiniones cuando se haya puesto fin a un procedimiento para la solución de una controversia sin que ésta haya sido resuelta o cuando se haya llegado a una solución y las circunstancias requieran consultas sobre la forma de llevarla a la práctica.

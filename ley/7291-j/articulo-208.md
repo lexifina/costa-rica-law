@@ -1,0 +1,6 @@
+Artículo 208 Contaminación resultante de actividades relativas a los fondos marinos sujetos a la jurisdicción nacional
+1.- Los Estados ribereños dictarán leyes y reglamentos para prevenir, reducir y controlar la contaminación del medio marino resultante directa o indirectamente de las actividades relativas a los fondos marinos sujetas a su jurisdicción y de las islas artificiales, instalaciones y estructuras bajo su jurisdicción, de conformidad con los artículos 60 y 80.
+2.- Los Estados tomarán otras medidas que puedan ser necesarias para prevenir, reducir y controlar esa contaminación.
+3.- Tales leyes, reglamentos y medidas no serán menos eficaces que las reglas, estándares y prácticas y procedimientos recomendados, de carácter internacional.
+4.- Los Estados procurarán armonizar sus políticas al respecto en el plano regional apropiado.
+5.- Los Estados, actuando especialmente por conducto de las organizaciones internacionales competentes o de una conferencia diplomática, establecerán reglas y estándares, así como prácticas y procedimientos recomendados, de carácter mundial y regional, para prevenir, reducir y controlar la contaminación del medio marino a que se hace referencia en el párrafo 1. Tales reglas, estándares y prácticas y procedimientos recomendados se reexaminarán con la periodicidad necesaria.

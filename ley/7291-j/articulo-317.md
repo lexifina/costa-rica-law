@@ -1,0 +1,4 @@
+Artículo 317 Denuncia
+1.- Todo Estado Parte podrá denunciar esta Convención, mediante notificación escrita al Secretario General de las Naciones Unidas, e indicar las razones en que funde la denuncia. La omisión de esas razones no afectará a la validez de la denuncia. La denuncia surtirá efecto un año después de la fecha en que haya sido recibida la notificación, a menos que en ésta se señale una fecha ulterior.
+2.- La denuncia no dispensará a ningún Estado de las obligaciones financieras y contractuales contraídas mientras era Parte en esta Convención, ni afectará a ningún derecho, obligación o situación jurídica de ese Estado creados por la ejecución de la Convención antes de su terminación respecto de él.
+3.- La denuncia no afectará en nada al deber del Estado Parte de cumplir toda obligación enunciada en esta Convención a la que esté sometido en virtud del derecho internacional independientemente de la Convención.

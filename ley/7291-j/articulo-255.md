@@ -1,0 +1,2 @@
+Artículo 255 Medidas para facilitar la investigación científica marina y prestar asistencia a los buques de investigación
+Los Estados procurarán establecer reglas, reglamentos y procedimientos razonables para fomentar y facilitar la investigación científica marina realizada, de conformidad con esta convención, más allá de su mar territorial y según proceda y con sujeción a lo dispuesto en sus leyes y reglamentos, facilitar el acceso a sus puertos y promover la asistencia a los buques de investigación científica marina que cumplan las disposiciones pertinentes de esta Parte.

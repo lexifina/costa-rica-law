@@ -1,0 +1,4 @@
+Artículo 28 Jurisdicción civil en relación con buques extranjeros
+1.- El Estado ribereño no debería detener ni desviar buques extranjeros que pasen por el mar territorial, para ejercer su jurisdicción civil sobre personas que se encuentren a bordo.
+2.- El Estado ribereño no podrá tomar contra esos buques medidas de ejecución ni medidas cautelares en materia civil, salvo como consecuencia de obligaciones contraídas por dichos buques o de responsabilidades en que éstos hayan incurrido durante su paso por las aguas del Estado ribereño o con motivo de ese paso.
+3.- El párrafo precedente no menoscabará el derecho del Estado ribereño a tomar, de conformidad con sus leyes, medidas de ejecución y medidas cautelares en materia civil en relación con un buque extranjero que se detenga en su mar territorial o pase por él procedente de sus aguas interiores.

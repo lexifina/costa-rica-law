@@ -1,0 +1,3 @@
+Artículo 75 Cartas y listas de coordenadas geográficas
+1.- Con arreglo a lo dispuesto en esta Parte, las líneas del límite exterior de la zona económica exclusiva y las líneas de delimitación trazadas de conformidad con el artículo 74 se indicarán en cartas a escala o escalas adecuadas para precisar su ubicación. Cuando proceda, las líneas del límite exterior o las líneas de delimitación podrán ser sustituidas por listas de coordenadas geográficas de puntos en cada una de las cuales se indique específicamente el datum geodésico.
+2.- El Estado ribereño dará la debida publicidad a dichas cartas o listas de coordenadas geográficas y depositará un ejemplar de cada una de ellas en poder del Secretario General de las Naciones Unidas.

@@ -1,0 +1,5 @@
+Artículo 303 Objetos arqueológicos e históricos hallados en el mar
+1.- Los Estados tienen la obligación de proteger los objetos de carácter arqueológico e histórico hallados en el mar y cooperarán a tal efecto.
+2.- A fin de fiscalizar el tráfico de tales objetos, el Estado ribereño, al aplicar el artículo 33, podrá presumir que la remoción de aquellos de los fondos marinos de la zona a que se refiere ese artículo sin su autorización constituye una infracción, cometida en su territorio o en su mar territorial, de las leyes y reglamentos mencionados en dicho artículo.
+3.- Nada de lo dispuesto en este artículo afectará a los derechos de los propietarios identificables, a las normas sobre salvamento u otras normas del derecho marítimo o a las leyes y prácticas en materia de intercambios culturales.
+4.- Este artículo se entenderá sin perjuicio de otros acuerdos internacionales y demás normas de derecho internacional relativos a la protección de los objetos de carácter arqueológico e histórico.

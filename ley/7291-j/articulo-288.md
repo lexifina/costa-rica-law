@@ -1,0 +1,5 @@
+Artículo 288 Competencia
+1.- Cualquiera de las cortes o tribunales mencionados en el artículo 287 será competente para conocer de las controversias relativas a la interpretación o la aplicación de esta Convención que se le sometan conforme a lo dispuesto en esta Parte.
+2.- Cualquiera de las cortes o tribunales mencionados en el artículo 287 será competente también para conocer de las controversias relativas a la interpretación o la aplicación de un acuerdo internacional concerniente a los fines de esta Convención que se le sometan conforme a ese acuerdo.
+3.- La Sala de Controversias de los Fondos Marinos del Tribunal Internacional del Derecho del Mar establecida de conformidad con el Anexo VI o cualquier otra sala o tribunal arbitral a que se hace referencia en la sección 5 de la Parte XI será competente para conocer de cualquiera de las cuestiones que se le sometan conforme a lo dispuesto en esa sección.
+4.- En caso de controversia en cuanto a la competencia de una corte o tribunal, la cuestión será dirimida por esa corte o tribunal.

@@ -1,0 +1,2 @@
+Artículo 271 Directrices, criterios y estándares
+Los Estados, directamente o por conducto de las organizaciones internacionales competentes, fomentarán el establecimiento de directrices, criterios y estándares generalmente aceptados para la transmisión de tecnología marina sobre una base bilateral o en el marco de organizaciones internacionales y otros foros, teniendo en cuenta en particular los intereses y necesidades de los Estados en desarrollo.

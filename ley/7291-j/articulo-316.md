@@ -1,0 +1,9 @@
+Artículo 316 Entrada en vigor de las enmiendas
+1.- Las enmiendas a esta Convención, salvo las mencionadas en el párrafo 5, entrarán en vigor respecto de los Estados Partes que las ratifiquen o se adhieran a ellas el trigésimo día siguiente a la fecha en que dos tercios de los Estados Partes o 60 Estados Partes, si este número fuere mayor, hayan depositado sus instrumentos de ratificación o de adhesión. Tales enmiendas no afectarán al disfrute de los derechos ni al cumplimiento de las obligaciones que a los demás Estados Partes correspondan en virtud de la Convención.
+2.- Toda enmienda podrá prever para su entrada en vigor un número de ratificaciones o de adhesiones mayor que el requerido por este artículo.
+3.- Respecto de cada Estado Parte que ratifique las enmiendas a que se refiere el párrafo 1 o se adhiera a ellas después de haber sido depositado el número requerido de instrumentos de ratificación o de adhesión, las enmiendas entrarán en vigor el trigésimo día siguiente a la fecha en que haya depositado su instrumento de ratificación o de adhesión.
+4.- Todo Estado que llegue a ser Parte en esta Convención después de la entrada en vigor de enmiendas conforme al párrafo 1 será considerado, de no haber manifestado una intención diferente:
+a) Parte en la Convención así enmendada; y
+b) Parte en la convención no enmendada con respecto a todo Estado Parte que no esté obligado por las enmiendas.
+5.- Las enmiendas relativas exclusivamente a actividades en la Zona y las enmiendas al Anexo VI entrarán en vigor respecto de todos los Estados Partes un año después de que tres cuartos de los Estados Partes hayan depositado sus instrumentos de ratificación o de adhesión.
+6.- Todo Estado que llegue a ser Parte en esta Convención después de la entrada en vigor de enmiendas conforme al párrafo 5 será considerado Parte en la Convención así enmendada.

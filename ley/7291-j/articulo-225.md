@@ -1,0 +1,2 @@
+Artículo 225 Deber de evitar consecuencias adversas en el ejercicio de las facultades de ejecución
+En el ejercicio de las facultades de ejecución contra buques extranjeros previstas en esta Convención, los Estados no pondrán en peligro la seguridad de la navegación ni ocasionarán riesgo alguno a los buques, no los conducirán a un puerto o fondeadero inseguro, ni expondrán el medio marino a un riesgo injustificado.

@@ -1,0 +1,4 @@
+Artículo 230 Sanciones pecuniarias y respeto de los derechos reconocidos de los acusados
+1.- Las infracciones de las leyes y reglamentos nacionales o de las reglas y estándares internacionales aplicables para prevenir, reducir y controlar la contaminación del medio marino, cometidas por buques extranjeros fuera del mar territorial, sólo darán lugar a la imposición de sanciones pecuniarias.
+2.- Las infracciones de las leyes y reglamentos nacionales o de las reglas y estándares internacionales aplicables para prevenir, reducir y controlar la contaminación del medio marino, cometidas por buques extranjeros en el mar territorial, sólo darán lugar a la imposición de sanciones pecuniarias, salvo en el caso de un acto intencional y grave de contaminación en el mar territorial.
+3.- En el curso de los procedimientos por infracciones cometidas por buques extranjeros, que puedan dar lugar a la imposición de sanciones, se respetarán los derechos reconocidos de los acusados.

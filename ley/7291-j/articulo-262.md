@@ -1,0 +1,2 @@
+Artículo 262 Signos de identificación y señales de advertencia
+Las instalaciones o el equipo mencionados en esta sección tendrán signos de identificación que indiquen el Estado en que están registrados o la organización internacional a la que pertenecen, así como las señales de advertencia adecuadas convenidas internacionalmente para garantizar la seguridad marítima y la seguridad de la navegación aérea, teniendo en cuenta las reglas y estándares establecidos por las organizaciones internacionales competentes.

@@ -1,0 +1,4 @@
+Artículo 167 El personal de la Autoridad
+1.- El personal de la Autoridad estará constituido por los funcionarios científicos, técnicos y de otro tipo calificados que se requieran para el desempeño de las funciones administrativas de la Autoridad.
+2.- La consideración primordial al contratar y nombrar al personal y al determinar sus condiciones de servicio será la necesidad de asegurar el más alto grado de eficiencia, competencia e integridad. Con sujeción a esta consideración, se tendrá debidamente en cuenta la importancia de contratar al personal de manera que haya la más amplia representación geográfica posible.
+3.- El personal será nombrado por el Secretario General. Las modalidades y condiciones de nombramiento, remuneración y destitución del personal se ajustarán a las normas, reglamentos y procedimientos de la Autoridad.

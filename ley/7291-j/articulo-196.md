@@ -1,0 +1,3 @@
+Artículo 196 Utilización de tecnologías o introducción de especies extrañas o nuevas
+1.- Los Estados tomarán todas las medidas necesarias para prevenir, reducir y controlar la contaminación del medio marino causada por la utilización de tecnologías bajo su jurisdicción o control, o la introducción intencional o accidental en un sector determinado del medio marino de especies extrañas o nuevas que puedan causar en él cambios considerables y perjudiciales.
+2.- Este artículo no afectará a la aplicación de las disposiciones de esta Convención relativas a la prevención, reducción y control de la contaminación del medio marino.

@@ -1,0 +1,3 @@
+SECCION 10. INMUNIDAD SOBERANA
+Artículo 236 Inmunidad soberana
+Las disposiciones de esta Convención relativas a la protección y preservación del medio marino no se aplicarán a los buques de guerra, naves auxiliares, otros buques o aeronaves pertenecientes o utilizados por un Estado y utilizados a la sazón únicamente para un servicio público no comercial. Sin embargo, cada Estado velará, mediante la adopción de medidas apropiadas que no obstaculicen las operaciones o la capacidad de operación de tales buques o aeronaves que le pertenezcan o que utilice, porque tales buques o aeronaves procedan, en cuanto sea razonable y posible, de manera compatible con las disposiciones de esta Convención.

@@ -1,0 +1,2 @@
+Artículo 126 Exclusión de la aplicación de la cláusula de la nación más favorecida
+Las disposiciones de esta Convención, así como los acuerdos especiales relativos al ejercicio del derecho de acceso al mar y desde el mar, que establezcan derechos y concedan facilidades por razón de la situación geográfica especial de los Estados sin litoral quedan excluidos de la aplicación de la cláusula de la nación más favorecida.

@@ -1,0 +1,2 @@
+Artículo 199 Planes de emergencia contra la contaminación
+En los casos mencionados en el artículo 198, los Estados del área afectada, en la medida de sus posibilidades, y las organizaciones internacionales competentes cooperarán en todo lo posible para eliminar los efectos de la contaminación y prevenir o reducir al mínimo los daños. Con ese fin, los Estados elaborarán y promoverán en común planes de emergencia para hacer frente a incidentes de contaminación en el medio marino.

@@ -1,0 +1,2 @@
+Artículo 285 Aplicación de esta sección a las controversias sometidas de conformidad con la Parte XI
+Las disposiciones de esta sección se aplicarán a cualquier controversia que, en virtud de la sección 5 de la Parte XI, haya de resolverse de conformidad con los procedimientos establecidos en esta Parte. Si una entidad que no sea un Estado Parte fuere parte en tal controversia, esta sección se aplicará mutatis mutandis.

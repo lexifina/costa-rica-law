@@ -1,0 +1,2 @@
+Artículo 206 Evaluación de los efectos potenciales de las actividades
+Los Estados que tengan motivos razonables para creer que las actividades proyectadas bajo su jurisdicción o control pueden causar una contaminación considerable del medio marino u ocasionar cambios importantes y perjudiciales en él evaluarán, en la medida de lo posible, los efectos potenciales de esas actividades para el medio marino e informarán de los resultados de tales evaluaciones en la forma prevista en el artículo 205.

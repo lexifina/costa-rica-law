@@ -1,0 +1,3 @@
+Artículo 13 Elevaciones en bajamar
+1.- Una elevación que emerge en bajamar es una extensión natural de tierra rodeada de agua que se encuentra sobre el nivel de ésta en la bajamar, pero queda sumergida en la pleamar. Cuando una elevación que emerge en bajamar esté total o parcialmente a una distancia del continente o de una isla que no exceda de la anchura del mar territorial, la línea de bajamar de esta elevación podrá ser utilizada como línea de base para medir la anchura del mar territorial.
+2.- Cuando una elevación que emerge en bajamar esté situada en su totalidad a una distancia del continente o de una isla que exceda de la anchura del mar territorial, no tendrá mar territorial propio.

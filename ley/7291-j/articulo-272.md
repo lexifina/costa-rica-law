@@ -1,0 +1,2 @@
+Artículo 272 Coordinación de programas internacionales
+En materia de transmisión de tecnología marina, los Estados tratarán de lograr que las organizaciones internacionales competentes coordinen sus actividades, incluidos cualesquiera programas regionales o mundiales, teniendo en cuenta los intereses y necesidades de los Estados en desarrollo, en particular de aquellos sin litoral o en situación geográfica desventajosa.

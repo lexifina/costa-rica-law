@@ -1,0 +1,2 @@
+Artículo 154 Examen periódico
+Cada cinco años a partir de la entrada en vigor de esta Convención, la Asamblea procederá a un examen general y sistemático de la forma en que el régimen internacional de la Zona establecido en esta Convención haya funcionado en la práctica. A la luz de ese examen, la Asamblea podrá adoptar o recomendar que otros órganos adopten medidas, de conformidad con las disposiciones y procedimientos de esta Parte y de los anexos correspondientes, que permitan mejorar el funcionamiento del régimen.

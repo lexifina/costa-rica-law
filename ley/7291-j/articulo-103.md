@@ -1,0 +1,2 @@
+Artículo 103 Definición de buque o aeronave pirata
+Se consideran buque o aeronave pirata los destinados por las personas bajo cuyo mando efectivo se encuentran a cometer cualquiera de los actos a que se refiere el artículo 101. Se consideran también piratas los buques o aeronaves que hayan servido para cometer dichos actos mientras se encuentren bajo el mando de las personas culpables de esos actos.

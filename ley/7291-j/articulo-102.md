@@ -1,0 +1,2 @@
+Artículo 102 Piratería perpetrada por un buque de guerra, un buque de Estado o una aeronave de Estado cuya tripulación se haya amotinado
+Se asimilarán a los actos cometidos por un buque o aeronaves privados los actos de piratería definidos en el artículo 101 perpetrados por un buque de guerra, un buque de Estado o una aeronave de Estado cuya tripulación se haya amotinado y apoderado del buque o de la aeronave.

@@ -1,0 +1,4 @@
+Artículo 64 Especies altamente migratorias
+1.- El Estado ribereño y los otros Estados cuyos nacionales pesquen en la región las especies altamente migratorias enumeradas en el Anexo l cooperarán, directamente o por conducto de las organizaciones internacionales apropiadas, con miras a asegurar la conservación y promover el objetivo de la utilización óptima de dichas especies en toda la región, tanto dentro como fuera de la zona económica exclusiva. En las regiones en que no exista una organización internacional apropiada, el Estado ribereño y los otros Estados cuyos nacionales capturen esas especies en la región cooperarán para establecer una organización de este tipo y participar en sus trabajos.
+2.- Lo dispuesto en el párrafo l se aplicará conjuntamente con las demás disposiciones de esta Parte.
+(NOTA: Véanse las observaciones de la ley acerca de la Declaración Interpretativa que hace el Gobierno de Costa Rica del párrafo segundo de este artículo )

@@ -1,0 +1,2 @@
+Artículo 31 Responsabilidad del Estado del pabellón por daños causados por un buque de guerra u otro buque de Estado destinado a fines no comerciales
+El Estado del pabellón incurrirá en responsabilidad internacional por cualquier pérdida o daño que sufra el Estado ribereño como resultado del incumplimiento, por un buque de guerra u otro buque de Estado destinado a fines no comerciales, de las leyes y reglamentos del Estado ribereño relativos al paso por el mar territorial o de las disposiciones de esta Convención u otras normas de derecho internacional.

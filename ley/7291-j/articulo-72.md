@@ -1,0 +1,3 @@
+Artículo 72 Restricciones en la transferencia de derechos
+1.- Los derechos previstos en virtud de los artículos 69 y 70 para explotar los recursos vivos no se transferirán directa o indirectamente a terceros Estados o a los nacionales de éstos por cesión o licencia, por el establecimiento de empresas conjuntas ni de cualquier otro modo que tenga el efecto de tal transferencia, a menos que los Estados interesados acuerden otra cosa.
+2.- La disposición anterior no impedirá a los Estados interesados obtener asistencia técnica o financiera de terceros Estados o de organizaciones internacionales a fin de facilitar el ejercicio de los derechos de conformidad con los artículos 69 y 70, siempre que ello no tenga el efecto a que se hace referencia en el párrafo 1.
