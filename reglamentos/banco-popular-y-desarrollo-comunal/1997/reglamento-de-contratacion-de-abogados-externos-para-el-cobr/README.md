@@ -14,3 +14,4 @@ Reglamento de Contratación de Abogados Externos para el Cobro Judicial y Servic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-02 | la propia norma |
+| 2 | 1997-10-28 | Reglamento 3414 (1997-10-28) |
