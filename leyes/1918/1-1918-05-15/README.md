@@ -1,6 +1,6 @@
 # Exonera de impuesto, fiscal o municipal, la importación de ganado vacuno
 
-Ley N° 1 del 1918-05-15. SINALEVI, ficha 2974: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2974&param2=85730&param3=1>.
+Ley N° 1 del 1918-05-15. SINALEVI, ficha 2974: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2974&param2=85743&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1918-05-15 | Ley 1 | 1918-05-15 |
 | 2 de 3 | 1918-07-24 | Ley 4 | 1918-07-24 |
+| 3 de 3 | 1920-08-13 | Ley 68 | 1920-08-13 |
