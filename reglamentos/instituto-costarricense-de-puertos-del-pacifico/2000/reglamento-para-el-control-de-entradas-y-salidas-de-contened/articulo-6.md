@@ -1,0 +1,1 @@
+Artículo 6°—Del ingreso de contenedores para la revisión, desconsolidación y otros. Para el ingreso de contenedores que serán revisados, desconsolidados y otros, se utiliza el formulario denominado "Entrada" (In Gate), con la autorización de la naviera y la aduana y la solicitud de la Agencia Aduanera.
