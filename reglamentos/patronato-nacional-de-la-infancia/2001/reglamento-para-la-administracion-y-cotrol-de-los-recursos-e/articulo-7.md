@@ -1,1 +1,0 @@
-Articulo 7°—Una vez aprobado el proyecto por la Junta Directiva del PANI, la Gerencia Técnica por medio del Coordinador del Programa Fondo de la Niñez y la Adolescencia remitirá toda la documentación necesaria a la Proveeduría Institucional del PANI, para su respectivo trámite.

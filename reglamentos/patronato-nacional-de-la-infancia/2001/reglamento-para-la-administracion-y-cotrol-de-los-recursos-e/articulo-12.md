@@ -1,1 +1,0 @@
-Artículo 12.—El Área Financiero Contable podrá objetar el reintegro de aquellos gastos cuyos comprobantes evidencien irregularidades; además, será la responsable de velar por la exactitud y oportuna presentación de los documentos y hará las observaciones que se consideren pertinentes.

@@ -1,1 +1,0 @@
-Articulo 17.—El Área Financiero Contable realizará arqueos periódicos en los fondos utilizados y en el manejo de los recursos financieros que administran las Juntas de Protección u otras organizaciones sin perjuicio de las auditorias que sean necesarias.
