@@ -1,0 +1,2 @@
+ARTICULO II
+Para efectos de coordinación y ejecución de los Programas y Proyectos específicos que se deriven del presente Acuerdo, la Parte costarricense realizará las acciones que le correspondan por conducto de su Sistema Integrado Nacional de Educación Profesional Técnica para la Competitividad (SINATEC), en tanto que la Parte mexicana realizará las acciones que le correspondan por conducto del Colegio Nacional de Educación Profesional Técnica (CONALEP).

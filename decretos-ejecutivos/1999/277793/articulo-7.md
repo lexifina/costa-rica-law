@@ -1,0 +1,3 @@
+ARTICULO VII
+El personal comisionado por cada una de las Partes continuará bajo la dirección y dependencia de la Institución a la que pertenezca, por lo que no se crearán relaciones de carácter laboral con la Otra, a la que en ningún caso se considerará como patrón substituto.
+El personal enviado por una de las Partes a la Otra se someterá en el lugar de su ocupación a las disposiciones de la legislación nacional vigente en el país receptor, y a las disposiciones, normas y reglamentos de la Institución en la cual se ocupe. Este personal no podrá dedicarse a ninguna actividad ajena a sus funciones, ni podrá recibir remuneración alguna, fuera de las establecidas, sin la previa autorización de las autoridades competentes.

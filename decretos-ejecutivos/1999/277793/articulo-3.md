@@ -1,0 +1,9 @@
+ARTICULO III
+Para los fines del presente Acuerdo, las acciones de cooperación entre las Partes podrán incluir las modalidades siguientes:
+a) apoyar los proyectos de intercambio científico-técnico y académico-cultural en materia de desarrollo e intercambio de información, expertos, material didáctico y todos aquellos elementos que se consideren necesarios para fortalecer sus respectivas capacidades educativas, así como la formación y capacitación docente, asistencia técnica-pedagógica para la evaluación y el diseño de planes de estudio; asesoría en administración gerencial y operacional de los centros educativos; - -
+b) instrumentar programas y proyectos piloto y de carácter experimental en aquellas áreas y temas que resulten de interés común y beneficio mutuo;
+c) efectuar cursos de capacitación técnica especializada y de administración de personal, así como ciclos de conferencias, mesas redondas, seminarios y otras actividades académicas y de difusión dirigidas al personal docente y administrativo. La comunidad estudiantil y el público en general, podrán ser invitados a participar en estas actividades cuando se considere procedente;
+d) realizar estudios conjuntos, así como las encuestas que se consideren necesarios y de interés para lograr una mejor comprensión sobre los problemas y necesidades de la educación técnica en los Estados Unidos Mexicanos y la República de Costa Rica;
+e) emprender aquellas acciones conjuntas que se consideren de utilidad para fortalecer su vinculación con los sectores productivos de ambos países;
+f) facilitar sus respectivas instalaciones (oficinas administrativas, aulas, laboratorios, auditorios, bibliotecas, gimnasios, talleres, equipo, etc.) para la realización de las actividades y programas que emprendan, los que deberán llevarse a cabo sin afectar el desarrollo de las labores administrativas, académicas y de investigación, y
+g) cualquier otra que las Partes pudieran acordar.
