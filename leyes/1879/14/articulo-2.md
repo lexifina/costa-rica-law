@@ -1,0 +1,2 @@
+Art. 2°-El Secretario de Estado en el Despacho de Hacienda, queda encargado de la organización de la aduana que se establecerá en dicho puerto, y del nombramiento de los empleados destinados á su servicio.
+Dado en el Palacio Presidencial, en San José, á los veinte días del mes de setiembre de mil ochocientos setenta y nueve. T. GUARDIA. -El Secretario de Estado en el Despacho de Hacienda y Comercio. -SALVADOR LARA.
