@@ -1,0 +1,1 @@
+Art 6°.- Habrá en la Municipalidad un libro separado en que se copien los libramientos que contra dichos fondos se giren: solo por acuerdo de dicha Corporación deberán hacerse gastos de ellos y solo con el libramiento de ella puede cubrir sus datas el Mayordomo.

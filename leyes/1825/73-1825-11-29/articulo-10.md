@@ -1,0 +1,1 @@
+Art 10°.- Se establecerán en todos los Pueblos Escuelas de primeras letras y las demás clases a que alcancen sus respectivos fondos, las que serán arregladas en la forma más conveniente por su Municipalidades.

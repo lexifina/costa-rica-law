@@ -1,0 +1,1 @@
+Art 3°.- El Mayordomo propondrá a la Municipalidad el Colector o Colectores que necesite para poner en cobro los diversos ramos de su cargo, nombrará el número que esta haya aprobado con el premio que la misma señalará.

@@ -1,0 +1,1 @@
+Art 4°.- Todo cobro de propios y arbitrios debe hacerse con recivos o boletos del Mayordomo, y este por los que haya entregado tomará cuenta del resultado a cada Colector. La Municipalidad establecerá la fórmula de los que deben usarse en cada ramo.

@@ -1,0 +1,1 @@
+Art 2..-La Municipalidad formará matrículas de los contribuyentes o establecerá colectación de los recivos del mayordomo en los ramos que sea posible para formar del cumulo de ellos el cargo anual del mayordomo, debiendo valerse para la execución de las medidas que dicte con este fin de uno de los Regidores semanalmente.
