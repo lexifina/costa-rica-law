@@ -1,5 +1,0 @@
-De las sanciones
-Artículo 54.—Al que incumpliere con lo aquí expuesto y tomando en cuenta los criterios de inspección, además de verse obligado a cubrir con el costo de la inspección, se le sancionará de la siguiente manera:
-a. Al que incumpliere por primera vez: amonestación escrita con indicación de las anomalías y las medidas que debe implantar para corregirlas, otorgandosele un plazo de hasta tres meses para realizar los cambios o modificaciones, una vez realizados deberá comunicarlo por escrito que ha ejecutado el cambio respectivo, si necesitara un plazo adicional deberá solicitarlo por escrito ante la oficina de INCOPESCA más cercana.
-b. Si incumpliere por segunda vez respecto a la misma anomalía: por no realizar las medidas correctivas será objeto de suspensión de la licencia o permiso respectivo por un plazo de dos a cinco meses.
-c. Al que incumpliere por tercera vez: si persistiera la anomalía, a pesar de los dos incisos anteriores, será objeto de cancelación de la licencia o permiso respectivo.

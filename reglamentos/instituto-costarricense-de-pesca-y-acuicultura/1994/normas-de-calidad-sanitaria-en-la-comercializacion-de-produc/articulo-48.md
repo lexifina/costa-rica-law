@@ -1,2 +1,0 @@
-Artículo 48.—Requisitos referentes a la presencia de parásitos:
-Durante la producción y antes de su despacho al consumo humano, los pescados y productos de pescado deben ser sometidos a un control visual detectar y retirar los parásitos visibles. Los pescados manifiestamente parasitados o las partes de los pescados manifiestamente parasitados que sean retirados no deben ser puestos en el mercado para el consumo humano.

@@ -1,4 +1,0 @@
-Artículo 50.—Pruebas organolépticas:
-Cada lote de productos pesqueros frescos deberá ser supervisado por el INCOPESCA, (o institución o profesional en que delegue) para practicar la inspección organoléptica antes de la salida del país para efectos de exportación o antes de la puesta en venta en la importación, con el fin de comprobar si son aptos para el consumo humano. Dicha supervisión estará de acuerdo a pruebas organolépticas aceptadas internacionalmente para el control de productos pesqueros y requisitos mínimos de frescura.
-Si las pruebas organolépticas revelasen que los productos pesqueros no son aptos para el consumo humano, deberán ser retirados del mercado y se desnaturalizarán de manera que no puedan volver a ser destinados al consumo humano.
-En caso de que las pruebas organolépticas arrojen la mínima duda sobre frescura de los productos pesqueros, se podrá recurrir a los controles químicos.

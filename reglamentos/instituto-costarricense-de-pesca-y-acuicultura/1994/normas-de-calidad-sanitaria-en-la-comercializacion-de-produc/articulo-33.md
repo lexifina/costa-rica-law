@@ -1,5 +1,0 @@
-CONDICIONES GENERALES DE HIGIENE
-Artículo 33.—Las condiciones generales de higiene aplicables a los locales y materiales:
-a. Los suelos, paredes, techos y tabiques de los locales y el material e instrumentos utilizados para trabajar con productos pesqueros deberán mantenerse en buen estado de limpieza y funcionamiento de manera que no constituyan un foco de contaminación para dichos productos.
-b. Se deberá exterminar sistemáticamente todo roedor, insecto o cualquier otro parásito en los locales o en los materiales. Los raticidas, insecticidas, desinfectantes, detergentes, preservantes y demás sustancias potencialmente tóxicas deberá almacenarse en habitaciones o armarios cerrados con llave y deberán ser autorizados por el Ministerio de Salud, se utilizarán de forma que no exista riesgo de contaminación de los productos.
-c. Los locales, útiles y material de trabajo deberán utilizarse únicamente para la manipulación de productos pesqueros. No obstante, previa autorización, podrán emplearse, simultáneamente o no, para la preparación de otros productos alimenticios.

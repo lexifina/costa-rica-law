@@ -1,1 +1,0 @@
-Artículo 43.—El material de embalaje no podrá utilizarse más de una vez, con la excepción de ciertos tipos especiales de embalajes de material impermeable, liso, resistente a la corrosión y fácil de lavar y desinfectar, que podrán utilizarse de nuevo tras su limpieza y desinfección.

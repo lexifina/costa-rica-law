@@ -1,1 +1,0 @@
-Artículo 36.—Los productos no podrán almacenarse ni transportarse junto con otros productos que puedan afectar a su salubridad o puedan contaminarlos si no están provistos de un embalaje que garantice una protección satisfactoria.

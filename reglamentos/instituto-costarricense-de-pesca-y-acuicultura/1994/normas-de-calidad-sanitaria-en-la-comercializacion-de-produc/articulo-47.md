@@ -1,2 +1,0 @@
-Artículo 47.—Requisitos para los productos transformados:
-El responsable del establecimiento deberá llevar un registro de los tratamientos aplicados. En función del tipo de tratamiento utilizado, deberá registrarse y controlarse el tiempo y la temperatura de los tratamientos térmicos, la concentración de sal, el pH, el contenido en agua. Los registros se tendrán a disposición de la autoridad competente durante un período al menos igual al período de conservación del producto.

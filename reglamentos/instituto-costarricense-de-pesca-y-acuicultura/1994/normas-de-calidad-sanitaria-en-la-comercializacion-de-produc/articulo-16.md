@@ -1,3 +1,0 @@
-Artículo 16.—Los buques factoría que congelan los productos pesqueros deberán disponer:
-a. Un equipo de refrigeración suficientemente potente para someter los productos a una rápida reducción de la temperatura que permita alcanzar en el interior de los productos una temperatura que impida la rápida descomposición.
-b. Equipo de refrigeración suficientemente potente para mantener los productos pesqueros en las bodegas de almacenamiento a una temperatura que impida la rápida descomposición. Las bodegas de almacenamiento deberán estar dotadas de un sistema de control de la temperatura, situado de tal manera que puede consultarse fácilmente.

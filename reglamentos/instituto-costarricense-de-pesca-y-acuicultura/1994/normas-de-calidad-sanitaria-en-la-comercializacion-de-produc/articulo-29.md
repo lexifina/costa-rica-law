@@ -1,1 +1,0 @@
-Artículo 29.—Existirá un número suficiente de vestuarios con paredes y suelo lisos, impermeables y lavables, lavados y servicios sanitarios. Estos no deberán comunicarse directamente con los locales de trabajo. Los lavados deberán estar dotados de productos para la limpieza y desinfección de las manos y de toallas; los grifos no deberán accionarse con la mano.
