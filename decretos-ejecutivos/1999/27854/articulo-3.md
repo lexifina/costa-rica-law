@@ -1,0 +1,1 @@
+Artículo 3º—Durante el período de publicación del decreto y la fijación del nuevo límite por parte de la Autoridad Presupuestaria, la Junta se regirá por los límites establecidos en el decreto ejecutivo Nº 27528-H.
