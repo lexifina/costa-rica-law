@@ -3,16 +3,16 @@ equipo de la Unión de las Repúblicas Socialistas Soviéticas a la República
 de Costa Rica, firmado en Moscú el 11 de octubre de 1977, cuyo texto es el
 siguiente:
 "PROTOCOLO
-De suministro de maquinaria y equipo de la Unión
+de suministro de maquinaria y equipo de la Unión
 de Repúblicas Socialistas Soviéticas a la República
 de Costa Rica
 El Gobierno de Costa Rica y el Gobierno de la Unión de Repúblicas
 Socialistas Soviéticas,
-Deseando ampliar ulteriormente el comercio entre ambos países y
-Deseando contribuir a la realización práctica de las estipulaciones
+deseando ampliar ulteriormente el comercio entre ambos países y
+deseando contribuir a la realización práctica de las estipulaciones
 del Convenio Comercial firmado entre los dos países el 26 de junio de
 1970,
-Han convenido lo siguiente:
+han convenido lo siguiente:
 ARTICULO 1
 Los organismos y firmas costarricenses, llamados en adelante
 Compradores, comprarán, y las organizaciones soviéticas de comercio
@@ -40,8 +40,8 @@ del Banco Central de Costa Rica u otros bancos estatales de Costa Rica.
 ARTICULO 3
 Los Compradores efectuarán pagos de conformidad con el presente
 Protocolo en la moneda libremente convertible en la siguiente forma:
-a) El 7,5% del valor total del contrato en el transcurso de los
-treinta días siguientes a la fecha de su celebración.
+a) El 7,5% del valor total del contrato en el transcurso de los treinta
+días siguientes a la fecha de su celebración.
 b) El 7,5% del valor total del contrato contra la presentación de los
 documentos de embarque por medio de carta de crédito irrevocable, divisible
 y confirmada, la que debe ser abierta en el Banco para el Comercio Exterior
@@ -89,5 +89,5 @@ Hecho en Moscú, el 19 de octubre de 1977 en dos ejemplares auténticos,
 cada uno en idioma español y en idioma ruso, teniendo ambos textos el mismo
 valor.
 En representación del Gobierno En representación del Gobierno de
-de la República de Costa Rica la Unión de Repúblicas Socialistas
+la República de Costa Rica la Unión de Repúblicas Socialistas
 Soviéticas"
