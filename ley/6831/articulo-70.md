@@ -1,0 +1,1 @@
+Artículo 70- Inaplicable. (La Corte Suprema de Justicia, mediante resolución de las 8:00 horas del 27 de julio de 1983 (expediente N° 0024-83, promovido por Enrique Brenes Oreamuno) declaró inaplicable este artículo, por no ser el mismo de carácter presupuestario y por dictarse en contravención de los artículos 176, 177 y 178 de la Constitución Política.)
