@@ -14,3 +14,4 @@ Reglamento de las Juntas de Crédito Local.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-27 | la propia norma |
+| 2 | 2004-11-18 | Reglamento 4261 (2004-11-18) |
