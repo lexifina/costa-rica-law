@@ -1,1 +1,2 @@
-Artículo 6°—Las funciones de los Agentes de Ventas de los entes comercializadores, se realizaran normalmente fuera de la institución, con excepción a lo establecido en el artículo 7, inciso g, y artículo 12, de este reglamento.
+Artículo 6º—Las funciones de las agencias comercializadoras se realizarán fuera de la Institución.
+(Así reformado por acuerdo tomado en sesión N° 5219 de 3 de octubre del 2002)

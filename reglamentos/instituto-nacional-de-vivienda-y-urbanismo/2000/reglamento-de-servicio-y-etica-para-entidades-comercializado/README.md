@@ -14,3 +14,4 @@ Reglamento de Servicio y Ética para Entidades Comercializadoras del Sistema Aho
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-10 | la propia norma |
+| 2 | 2002-10-03 | Reglamento 5219 (2002-10-03) |
