@@ -1,0 +1,18 @@
+N° 4310
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA.
+Decreta:
+Artículo único: Reformase el artículo 1° de la ley N° 3337 de 31 de julio de 1964, la cual se leerá así:
+“Artículo 1°.- Se autoriza al Poder Ejecutivo para que done a la Municipalidad del cantón central de Liberia, el resto de la finca inscrita en el Registro Público, Partido de Guanacaste, tomo 495, folio 336, número 3864, asiento 2, que es resto de terreno para construir, sito en Liberia, distrito y cantón primeros de la provincia de Guanacaste, que linda: Norte, calle pública, en medio a matadero municipal y Marcos Jirón Fonseca, y Oeste, calle en medio a sucesión de Antonio Muñoz y Luís Rivas, Mide: Cuarenta y nueve hectáreas, cuatro mil cuarenta metros, noventa y dos decímetros cuadrados y se encuentra estimado en cien colones”
+Artículo 2°- En notario que autorice la escritura de donación queda facultado para corregir cualquier diferencia en los linderos y en la cabida de la finca en relación con los datos que brinde el Registro Público, siempre que lo haga con base en un plano reciente, autorizado por un ingeniero y debidamente castrado.”
+Artículo 3°.- Se autoriza a la Municipalidad de Liberia para destinar el referido terreno, a los siguientes fines:
+a) Pate a vivienda económica, y parte a zona industrial planificada, de acuerdo con el plan regulador que adopten conjuntamente la Municipalidad de Liberia y el Instituto Nacional de Vivienda y Urbanismo:
+b) A procurar facilidades para servicios comunales, en un área no menor de un diez por ciento (10%) del terreno a que esta ley se refiere y
+c) A aplicación del cementerio de Liberia, para lo cual traspasará el área que a ese objeto se destine, a la Junta de Protección Social de ese lugar, en un plazo no mayor de seis meses después de entrar en vigencia esta ley”.
+Artículo 4°: La distribución del terreno a que se refiere esta ley, la hará el Instituto Nacional de Vivienda y Urbanismo con la aprobación de la Municipalidad de Liberia.
+Artículo 5°.- El precio de venta de los terrenos que se dediquen a vivienda económica, será el que fije el Departamento de Avalúos de la Tributación Directa, más lo que corresponda proporcionalmente del costo de las obras de urbanización que se proyecten.”
+Artículo 6°: Quienes adquieran lotes para construir dentro del plan de vivienda económica a que se refieren los artículos 3° y 5° de esta ley, se comprometerán, en la escritura de compra, a construir en ellos en un plazo de cuatro años a partir de la fecha de la escritura en ellos en un plazo de cuatro años a partir de la fecha de la escritura y a no traspasar el terreno, por ningún título durante el plazo de cinco años.
+En caso de que el interesado no pudiere cubrir el saldo que quede a deber, o no pudiere construir en el plazo indicado, la Municipalidad queda obligada a devolver las sumas que hubiere pagado, y el interesado no podrá reclamar suma alguna por concepto de mejoras, daños y perjuicios.
+La Municipalidad podrá aceptar de los compradores, que le entreguen un veinticinco por ciento (25%) del precio al firmarse la escritura y el saldo en tres pagos anuales de un 25% del precio al firmarse la escritura y el saldo en tres pagos anuales de un 25% cada uno, sin intereses. La deuda se garantizará con hipoteca de primer grado sobre el lote.”
+Artículo 7°.- Los dineros que la Municipalidad perciba como pago de estos terrenos, los destinará exclusivamente a la urbanización de la misma zona, y deberán ser invertidos dentro de un plazo no mayor de tres años.
+Artículo 8°.- Esta ley rige a partir de su publicación.
+Casa Presidencial.- San José, a los veintidós días del mes de enero de mil novecientos sesenta y nueve.
