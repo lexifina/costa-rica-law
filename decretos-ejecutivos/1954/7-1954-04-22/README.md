@@ -14,3 +14,4 @@ Norma Oficial para Abonos Minerales o Químicos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1954-07-06 | la propia norma |
+| 2 | 1955-08-04 | Decreto Ejecutivo 17 (1955-08-04) |
