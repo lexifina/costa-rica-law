@@ -1,0 +1,2 @@
+Artículo 3º.- Asimismo, autorizase al Poder Ejecutivo a ocupar temporalmente los inmuebles indispensables para conjurar o reparar daños originados en la actividad volcánica o sus consecuencias, y a exigirles con ese mismo fin a los funcionarios y empleados del Estado la prestación de servicios personales cuando lo requieran las labores especificadas en esta ley.
+Si con motivo de la ocupación se produjeren daños en la propiedad, el Estado deberá indemnizarlos a justa tasación de peritos.
