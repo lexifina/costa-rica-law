@@ -14,3 +14,4 @@ Disposiciones de Acatamiento Obligatorio para todas las Jefaturas de Dirección,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-19 | la propia norma |
+| 2 | 2004-10-26 | Directriz 2 (2004-10-26) |
