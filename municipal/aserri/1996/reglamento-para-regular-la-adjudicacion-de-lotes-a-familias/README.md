@@ -14,3 +14,4 @@ Reglamento para Regular la Adjudicación de Lotes a Familias Beneficiarias en Pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-12-05 | la propia norma |
+| 2 | 2004-06-14 | Reglamento municipal 112 (2004-06-14) |

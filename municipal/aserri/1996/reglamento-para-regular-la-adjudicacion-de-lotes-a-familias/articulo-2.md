@@ -1,7 +1,8 @@
 2.—Los núcleos familiares interesados en ser adjudicatarios de lotes en proyectos desarrollados conforme se estipula en el articulado anterior, deberán presentar solicitud satisfaciendo los siguientes requisitos:
 a) Deberán hacer formal solicitud para la adjudicación de lote, la que llenará en forma completa en el formulario que para tal efecto la Municipalidad suplirá, con base en el cual efectuará el estudio socioeconómico respectivo.
 b) Demostrar que ninguno de los integrantes del núcleo familiar poseen bienes inscritos.
-c) Presentar la certificación de la Subcomandancia de Aserrí, que tienen más de 10 años de vivir en el cantón de Aserrí, y no haber vendido lote alguno de su propiedad un año antes de la adjudicación de los lotes por parte de esta Municipalidad.
+c) Presentar la certificación del Registro Civil y del Registro de la Propiedad, en la cual demuestren que tengan como mínimo, 5 años de residir en el cantón de Aserrí y no haber vendido lote alguno de su propiedad, un año antes de la adjudicación de los lotes por parte de esta Municipalidad.
+(Así reformado en sesión N° 112 del 14 de junio del 2004)
 d) Someterse al estudio socioeconómico que demuestre que lo califica como acreedor a vivienda de Interés Social, de conformidad con la Legislación vigente.
 e) Participar en actividades de capacitación, orientación y cualquier otro que programa la Municipalidad, que persiga la convivencia humana y el desarrollo individual y de grupo.
 f) Aceptar las limitaciones legales establecidas en el artículo 4, inciso 4 del Código Municipal, y la Ley del Sistema Financiero Nacional para la vivienda.
