@@ -1,0 +1,3 @@
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+Artículo 1º—Autorízase a la Municipalidad de Upala para que traspase al Instituto Nacional de Seguros (INS), a título gratuito, el inmueble de su propiedad inscrito en el Registro Público de la Propiedad Inmueble, partido de Alajuela, bajo el Sistema de Folio Real matrícula N° 183.877-000; es terreno para construir; está situado en el distrito 1º, Upala, cantón XIII, Upala, provincia de Alajuela; mide doscientos treinta y tres metros noventa y cinco decímetros cuadrados. La adquisición del inmueble por parte del INS tendrá como condición que se destine a instalar y equipar la Estación de Bomberos del cantón de Upala.
