@@ -1,0 +1,6 @@
+Artículo 15.-Observaciones generales:
+a. En general, salvo que no exista otra alternativa, no se permitirá la descarga hacia el mar de aguas pluviales servidas o aguas negras de las edificaciones que se ubiquen en el área restringida. Si esto fuera inevitable, deberá presentarse un proyecto detallado que asegure que no habrá contaminación, ni existe riesgo de que la descarga pluvial se obstruya.
+b. Se deberá contar con la autorización respectiva previo cualquier inicio de obras ante el ICT y la Municipalidad.
+c. Aquellos lotes que tengan colindancia con ríos, quebradas, cárcavas o escorrentías permanentes, deberán de presentar el alineamiento de los mismos dado por la Dirección de Urbanismo del INVU antes de iniciar cualquier construcción.
+d. Los drenajes pluviales, en general, podrán conducirse hacia los surcos de agua, siempre y cuando se mitigue el impacto de las aguas y de estas al océano.
+e. En la línea de frente de la construcción, no se podrán construir vallas sólidas con una altura mayor de un metro. Por sobre esta altura, se podrá colocar únicamente verjas con elementos que permitan una buena visibilidad tales como rejas, mallas, etc. Se establece un porcentaje de permeabilidad del 80%. Se excluye de esta disposición el caso de los muros de retención.
