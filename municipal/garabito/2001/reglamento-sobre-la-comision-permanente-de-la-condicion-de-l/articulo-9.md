@@ -1,0 +1,1 @@
+Artículo 9°—Las integrantes de la Comisión, deberán reunirse por lo menos una vez a la semana para discutir los asuntos y planes de trabajo, las necesidades del cantón, así como cualquier otro aspecto que sea de interés a la Comisión, los cuales deben hacerse constar en un acta, donde se consignará los acuerdos tomados.
