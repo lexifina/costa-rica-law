@@ -1,1 +1,1 @@
-Artículo 157. Todo Juez tiene limitada su jurisdicción al territorio y a la clase de negocios que le estén señalados para ejercerla; y las diligencias que las causas de que conozca exijan en el territorio de otro Juez, sólo podrá practicarlas por medio de éste. De los negocios no sometidos a su jurisdicción, sólo podrá ' el Juez conocer, cuando le fu eré legalmente prorrogada o delegada.
+Artículo 157. (Derogado por el artículo 8° de la Ley de emisión del Código Procesal Civil, N° 7130 del 16 de agosto de 1989)
