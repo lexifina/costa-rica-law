@@ -1,1 +1,0 @@
-Artículo 12.-Los miembros de ambas comisiones deberán ser funcionarios de alto nivel ejecutivo y poder de decisión, de manera que puedan comprometer a la institución que representan, en el campo de acción correspondiente.
