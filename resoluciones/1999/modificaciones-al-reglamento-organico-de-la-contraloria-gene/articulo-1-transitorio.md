@@ -1,2 +1,3 @@
 Transitorio: Hasta tanto no se disponga el traslado de las competencias asignadas en el artículo 29, incisos 6) a 14), del Reglamento Orgánico de la Contraloría General de la República, emitido a las 8 horas del 12 de mayo de 1999 ("La Gaceta" No 103 del 28 de mayo de 1999), a las nuevas unidades que asumirán esas funciones, se mantendrán vigentes los artículos 28, 29 incisos 6) a 14), 30 y 31 del citado cuerpo normativo.
+(DEROGADO mediante el artículo 2º emitido por Resolución de la Contraloría General de la República del 26 de octubre de 1999)
 Rige a partir del 1° de octubre de 1999.
