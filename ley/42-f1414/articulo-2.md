@@ -1,0 +1,2 @@
+Art. 2°-Autorízase igualmente al Poder Ejecutivo para que garantice dicho empréstito sobre las bases expresadas.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los trece días del mes de julio de mil ochocientos ochenta y ocho. -A. ESQUIVEL, Presidente. -ANDRÉS VENEGAS, Secretario. -MANUEL J. JIMENEZ, Secretario.-Palacio Presidencial.-San José, catorce de julio mil ochocientos ochenta y ocho.-Ejecútese-BERNARDO Soto, el secretario de Estado en el Despacho del Interior, P. PÉREZ ZELEDÓN.
