@@ -13,3 +13,4 @@ Reglamento Consejo Asesor División Transporte MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-11 | la propia norma |
+| 2 | 1980-03-11 | SINALEVI (sin norma nombrada) |
