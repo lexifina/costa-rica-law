@@ -1,0 +1,3 @@
+Artículo 5°—Garantías:
+La operación de crédito deberá estar garantizada a satisfacción del Banco, ya sea mediante garantía fiduciaria, prendaria, hipotecaria, cédulas hipotecarías, títulos valores o cualquier otro tipo de garantía que la Institución considera conveniente. En todos aquellos préstamos superiores a ¢ 300. 000,00 se exigirá garantía real. Esta se regirá por la "Tabla de Porcentajes de Responsabilidad y Financia miento sobre Garantía".
+En aquellos casos en que se ofrezca únicamente garantía prendaria deberá ofrecerse adicionalmente garantía fiduciaria colateral a satisfacción del Banco.
