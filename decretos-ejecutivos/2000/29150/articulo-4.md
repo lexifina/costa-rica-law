@@ -1,0 +1,1 @@
+Articulo 4°-El titulo "Genericos", cubre a las ocupaciones indicadas bajo este titulo, en todas las actividades, con excepcion de aquellas ocupaciones que estan especificadas bajo otros titulos. Los salarios estipulados bajo cada titulo cubren a los trabajadores del proceso a que se refiere el titulo respectivo, y no a los trabajadores incluidos bajo el titulo Genericos.
