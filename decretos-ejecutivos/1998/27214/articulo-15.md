@@ -1,0 +1,1 @@
+Artículo 15.—El pago de la tarifa establecida en este decreto, exonera del pago de la tarifa de ingreso a un máximo de cinco personas, los demás miembros del equipo de filmación deberán cancelar la tarifa de ingreso correspondiente.

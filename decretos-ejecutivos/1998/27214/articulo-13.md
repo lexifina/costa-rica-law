@@ -1,0 +1,2 @@
+Artículo 13.—Quedan exentas del pago de esta tarifa, las filmaciones de carácter científico, cultural o educativo, que así determine el Sistema Nacional de Áreas de Conservación, a solicitud del interesado, bajo la condición de entregar una copia de la filmación para ser utilizada por la institución en sus programas de información y educación ambiental.
+También están excluidas de esta tarifa, las filmaciones de aficionados que pretendan únicamente la preservación de un recuerdo sobre la visita al área y que por ello no persigue fines comerciales o lucrativos.
