@@ -1,0 +1,1 @@
+Artículo 8°—Una vez firmado el contrato, el servidor no podrá ejercer la profesión comprendida con dicha exclusividad, ni actividades relacionadas con esta o con su cargo, si no es con la Municipalidad.

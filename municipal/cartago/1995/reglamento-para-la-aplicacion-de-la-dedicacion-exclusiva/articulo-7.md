@@ -1,0 +1,1 @@
+Artículo 7°—El Ejecutivo Municipal deberá aprobar el contrato en un plazo de ocho días hábiles a partir de la fecha de su presentación. En caso contrario, el referido contrato será devuelto a la Oficina de Personal Municipal o Recursos Humanos argumentando las razones por las cuales se rechaza el mismo.

@@ -1,0 +1,1 @@
+Artículo 17.— La Oficina de Personal Municipal o Recursos Humanos debe velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento y en los contratos respectivos sin perjuicio de la intervención que al respecto pueda hacer el Departamento de Auditoria Interna de la Municipalidad o la Contraloría , cuando lo estime conveniente.
