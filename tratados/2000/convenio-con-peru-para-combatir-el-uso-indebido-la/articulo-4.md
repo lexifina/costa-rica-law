@@ -1,0 +1,9 @@
+Artículo IV
+Las Partes Contratantes, de conformidad con la legislación interna de cada una de ellas acuerdan realizar las siguientes acciones conjuntas:
+a) Coordinar y formular estrategias para la prevención, control y represión de la producción y tráfico de estupefacientes, sustancias sicotrópicas y demás drogas ilícitas y sus actividades delictivas conexas, así como de los precursores e insumos químicos frecuentemente utilizados en su elaboración;
+b) Coordinar y formular estrategias conjuntas con fundamento en las condiciones, necesidades y realidades particulares de cada uno de los Países Contratantes para la prevención y control de la producción y tráfico de insumos naturales, otorgando prioridad a la estrategia de desarrollo alternativo, y tomando las medidas requeridas para satisfacer el consumo lícito con fines médicos, científicos, industriales y comerciales;
+c) Coordinar y formular estrategias conjuntas para la prevención del consumo indebido de drogas lícitas e ilícitas y el tratamiento y rehabilitación de drogodependientes y toxicómanos;
+d) Procurar la armonización de sus normas y procedimientos judiciales en la materia, en la medida que lo permitan sus ordenamientos jurídicos internos, particularmente en lo relacionado a la extradición de enjuiciados y condenados por tráfico ilícito de drogas y delitos conexos;
+e) Coordinar posiciones y aunar criterios sobre el enfoque y tratamiento del tema en los foros internacionales pertinentes;
+f) Promover la aplicación y ejecución de los diferentes instrumentos internacionales vigentes sobre la materia, de los cuales ambas Partes contratantes son suscriptores;
+g) Establecer los procedimientos y mecanismos internos necesarios que permitan una adecuada ejecución de los compromisos adquiridos conforme al presente Convenio.

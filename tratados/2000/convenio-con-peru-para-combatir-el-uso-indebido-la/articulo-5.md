@@ -1,0 +1,13 @@
+Artículo V
+Las Partes Contratantes, a solicitud de una de ellas, acuerdan prestarse acciones recíprocas tanto de intercambio de información o personal para capacitación, como de asistencia mutua técnica o científica, en las siguientes áreas:
+a) Programas nacionales en materia de drogas, legislación y jurisprudencia en el tema, así como sentencias condenatorias dictadas contra narcotraficantes y autores de delitos conexos;
+b) Identificación de productores, proveedores y traficantes individuales o asociados, y sus métodos de acción, así como los antecedentes policiales y judiciales que posean sobre narcotraficantes y autores de delitos conexos;
+c) Detección y eventual detención de buques, aeronaves y otros medios sospechosos de transportar ilícitamente drogas o sus materias primas, a fin de que las autoridades nacionales pertinentes puedan adoptar las medidas que consideran necesarias, de acuerdo con las disposiciones internacionales y sus legislaciones internas;
+d) Estudio y evaluación de la situación y tendencias internas de consumo indebido, así como de medidas de prevención aplicadas en sus respectivos territorios;
+e) Entrenamiento y capacitación del personal de los organismos técnicos especializados del otro país, con el fin de lograr el mejoramiento de su participación en la prevención y la lucha contra el tráfico y consumo ilícitos de drogas en sus respectivos territorios;
+f) Importación y exportación entre las Partes Contratantes de insumos naturales y precursores químicos frecuentemente utilizados en la fabricación de drogas;
+g) Desvío para usos ilícitos de precursores e insumos químicos frecuentemente utilizados para la fabricación ilícita de drogas, rutas de comercialización y modus operandi de su tráfico;
+h) Lavado de dinero, así como la adquisición, posesión y transferencia de bienes, derivados de la producción y tráfico ilícitos de drogas o de sus materias primas
+i) Trámite de exhortos y rogatorios librados por autoridades judiciales dentro de los procesos contra traficantes individuales o asociados o contra cualquiera que viole las leyes que combaten la producción y tráfico ilícito o el consumo indebido de drogas;
+j) Comunicación de sentencias ejecutorias dictadas por la autoridad competente en los casos de delito de tráfico ilícitos de drogas, cuando ellas se refieran a nacionales de la otra Parte.
+Las informaciones que recíprocamente se proporcionen las Partes Contratantes en virtud de lo señalado en el presente artículo, deberán contenerse en documentos oficiales de los respectivos Servicios Nacionales Competentes, los que tendrán carácter reservado y no serán destinados a la publicidad.

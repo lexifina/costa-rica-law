@@ -1,0 +1,2 @@
+Artículo II
+Para los efectos del presente Convenio, se entiende por "Servicios Nacionales Competentes" a los organismos oficiales encargados en el territorio de cada una de las Partes Contratantes del planeamiento y ejecución de la política nacional de lucha contra las drogas, que por la República de Costa Rica serán el Centro de Inteligencia Conjunto Antidrogas (CICAD) y el Centro Nacional de Prevención de Drogas (CENADRO), y por la República del Perú será la Comisión de Lucha Contra el Consumo de Drogas (CONTRADROGAS).

@@ -1,0 +1,4 @@
+Artículo III
+Para el logro de los objetivos del presente Convenio, las Partes Contratantes a través de sus respectivos Servicios Nacionales Competentes, desarrollarán acciones conjuntas y acciones recíprocas.
+Las acciones conjuntas serán aquellas que las Partes Contratantes ejecutarán en forma coordinada, con participación de miembros de sus Servicios Nacionales Competentes, tanto en el proceso de formulación como en el de aplicación de las medidas previamente acordadas, que siempre se realizarán respetando la soberanía de ambos países.
+Las acciones recíprocas serán aquellas que las Partes Contratantes se deberán prestar mutuamente a solicitud de la otra, procurando un procedimiento expeditivo y una comunicación fluida entre los Servicios Nacionales Competentes de conformidad con sus legislaciones internas y las disposiciones de las autoridades pertinentes de cada país, así como con los convenios internacionales en los cuales ambos Estados sean parte.
