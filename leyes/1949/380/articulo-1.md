@@ -1,4 +1,6 @@
+(Derogado)
 N° 380
+(Esta norma fue derogada por el artículo 51 del Estatuto de Servicio Civil, ley N° 1581 del 30 de mayo de 1953)
 JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
 Considerando;
 1° Que la ley N° 90 de 2 de julio de 1948 contiene conceptos oscuros en cuanto a su aplicación, no ofreciendo campo suficiente para comprender situaciones especiales de los empleados del Poder Ejecutivo, ni permitiendo a la Oficina de Selección de Personal actuaciones definidas en cuanto a sus funciones se refiere; y
