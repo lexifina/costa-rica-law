@@ -1,0 +1,1 @@
+Art. 2. Este decreto se imprimirá, circulará y publicara para si cumplimiento. –Dado en la ciudad de San José à los cuatro dias del mes de agosto de mil ochocientos cuarenta y seis. -José Maria Alfaro, Al Ministro de relaciones y gobernación.
