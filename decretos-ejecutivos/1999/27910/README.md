@@ -14,3 +14,4 @@ Adhesión de la República de Costa Rica a la Convención para el arreglo pacíf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-14 | la propia norma |
+| 2 | 1999-05-14 | SINALEVI (sin norma nombrada) |
