@@ -1,4 +1,6 @@
+(Derogado)
 N° II
+(Esta norma fue declarada nula por el artículo 1° aparte h) de la ley N° 41 del 21 de agosto de 1920, "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 EL SENADO DE LA REPÚBLICA DE COSTA RICA
 En uso de las facultades que le confiere la Constitución de la República,

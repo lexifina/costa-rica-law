@@ -1,4 +1,6 @@
+(Derogado)
 N°. 6
+(Esta ley fue derogada por el inciso h) de la ley N° 41 del 21 de agosto de 1920)
 EL SENADO DE LA REPÚBLICA DE COSTA RICA
 En uso de las facultades que le confiere la Constitución de la República,
 DECRETA:

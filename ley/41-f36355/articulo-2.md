@@ -1,0 +1,17 @@
+Artículo 2°.-Conforme al séptimo considerando de este decreto, se exceptúan del artículo anterior y se declara la validez legal de:
+a)-La circulación de monedas de plata, cobre y níquel, acuñadas en virtud del decreto N° 41 de 7 de setiembre de 1917;
+b )-La circulación de billetes de oro y de plata de (¢ 2-00, ¢ 1-00, ¢ 0-50 y ¢ 0-25, emitidos con arreglo a los decretos N° 3 de 23 de junio de 1917 y N° 6 de 5 de octubre de 1918;
+c)-La emisión e inversión de billetes del Banco Internacional de Costa Rica, autorizada por decreto N° 6 de 5 de octubre de 1918;
+d)-La circulación de billetes permitida por la Secretaría de Hacienda por acuerdos N° 215 de 28 de junio por valor de (¢ 650, 000.00, N° 235 de 10 de julio por valor de ¢ 100,000-00 y N° 255 de 25 de julio por valor de ¢ 1 25,000-00, ambos meses del año de 1919;
+e)-La circulación actual de billetes de los Bancos de emisión del país por causa de sustitución de billetes nuevos por billetes viejos retirados de la circulación y las emisiones de los Bancos Mercantil y Anglo Costarricense, autorizadas por acuerdos de la Secretaría de Hacienda Nos. 78 y 145 de 4 de abril y 12 de junio de 1917, respectivamente;
+f)-La emisión de Cédulas de Exportación de Café, Billetes de Exportación y Bonos de Conversión de la deuda interna, autorizados por decretos N° 7 de 8 de diciembre de 1917, Nos. 32 y 33 de 14 y 22 de noviembre de 1918 y N° 3 de 14 de diciembre de 1918;
+g)-Los procedimientos y fallos de los Tribunales de Justicia dictados con arreglo a las leyes y disposiciones que se tenían como tales en la época en que se dictaron. Exceptúanse los procedimientos y fallos de las autoridades militares en las cansas criminales de que conocieron por delitos diferentes de los expresados en el artículo 38 de la Constitución Política de 1871, los cuales se tienen por nulos y sin valor alguno;
+h)-Las disposiciones que se hayan dado en forma de leyes, decretos, acuerdos o resoluciones que favorezcan al Fisco, pero sólo en cuanto le aprovechen;
+i)-Los pagos hechos a empleados o servidores del Estado siempre que hayan sido efectuados con sujeción a las reglas del Presupuesto del año en que se hicieron;
+j)-Los pagos hechos por razón de suministros al Estado, con tal de que tales suministros hayan redundado efectivamente en provecho del Estado;
+k)- Los contratos celebrados entre particulares en el supuesto de la existencia de las leyes dictadas durante. dicho régimen, que no afecten la entidad del Estado en sus rentas, recursos o de otra manera cualquiera;
+l)-Los actos del Poder Ejecutivo que impliquen reconocimiento de funcionarios diplomáticos y consulares acreditados en el país durante el período a que esta ley se refiere;
+ll) - Los actos ejecutivos y administrativos que sean objeto de una declaratoria expresa de validez por parte del Poder Ejecutivo dentro de los seis meses siguientes a la fecha en que entre ,a regir esta ley;
+m)-La ley N° 5 de 31 de julio de 1917 que adiciona el artículo 12 de la Ley Orgánica de Tribunales, y el decreto N° 4 de 21 de agosto de 1917, que crea fondos para el Asilo de Corrección de Menores;
+n)- Los decretos de pensión dados en el período administrativo a, que se concreta esta ley a favor de servidores del Estado o deudos de los mismos;
+ñ)-Los actos del Poder Ejecutivo referentes a permisos para aceptar condecoraciones, títulos honoríficos y funciones diplomáticas y consulares, y los de emancipación de menores y cartas de naturalización.

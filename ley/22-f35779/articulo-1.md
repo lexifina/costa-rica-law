@@ -1,6 +1,7 @@
-N§ 22
-LA CAMARA DE DIPUTADOS DE LA
-REPUBLICA DE COSTA RICA
+(Derogado)
+N° 22
+(Esta norma fue derogada por el artículo 1° de la ley N° 41 del 21 de agosto de 1920)
+LA CAMARA DE DIPUTADOS DE LA REPUBLICA DE COSTA RICA
 En uso de las facultades que le confiere
 la Constituci¢n de la Rep£blica,
 DECRETA:

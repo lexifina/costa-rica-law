@@ -1,4 +1,6 @@
+(Derogado)
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+(Esta norma fue declarada nula por el artículo 1° aparte h) de la ley N° 41 del 21 de agosto de 1920, "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco")
 POR CUANTO EL SENADO HA DECRETADO LO SIGUIENTE:
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 N° 5
