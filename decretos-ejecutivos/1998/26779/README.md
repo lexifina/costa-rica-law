@@ -14,3 +14,4 @@ Reglamento Policial para los Oficiales de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-26 | la propia norma |
+| 2 | 2000-05-05 | Decreto Ejecutivo 28651 (2000-05-05) |
