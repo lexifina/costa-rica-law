@@ -1,0 +1,2 @@
+Del funcionamiento de las Asociaciones y de su Patrimonio
+Artículo 59.—Para su funcionamiento, las asociaciones podrán adquirir toda clase de bienes, celebrar contratos de cualquier tipo y realizar toda clase de actividades lícitas, dirigidas a la consecución de sus fines y para su ejecución deberán observar las normas establecidas por la Ley, los reglamentos y las disposiciones emanadas por las autoridades competentes del lugar.

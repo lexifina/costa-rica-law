@@ -1,0 +1,1 @@
+Artículo 44.—Los miembros directivos y demás asociados que infrinjan las disposiciones del artículo 24 de la Ley perderán su calidad de asociados. Los acuerdos respectivos deberán ser ratificados por la asamblea general.

@@ -1,0 +1,1 @@
+Artículo 92.—Corresponderá también a la Dirección, coordinar el funcionamiento de las asociaciones, por medio de la Confederación, dentro del Plan Nacional de Desarrollo de la Comunidad, lo mismo que la acción de los organismos gubernamentales con dichas asociaciones, como un medio necesario para impulsar el desarrollo comunal, regional o nacional.

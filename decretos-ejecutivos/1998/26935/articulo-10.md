@@ -1,0 +1,1 @@
+Artículo 10.—En ausencia del Director General, éste será sustituido por el funcionario que él designe, previa comunicación al Ministro de Gobernación y Policía y al Consejo Nacional de Desarrollo de la Comunidad.

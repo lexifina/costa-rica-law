@@ -1,0 +1,2 @@
+Artículo 24.—A nadie se puede obligar a formar parte de una asociación y por tanto, son absolutamente nulas las cláusulas del estatuto en que se establezcan limitaciones a la libertad de asociarse o retirarse de la organización. La condición de asociado se pierde por muerte, expulsión o renuncia expresa.
+El ejercicio de la facultad de libre separación no exonera a la persona saliente de cubrir las obligaciones, de cualquier tipo, que tenga pendientes con la asociación.

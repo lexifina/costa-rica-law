@@ -1,0 +1,3 @@
+CAPITULO V
+De las uniones, federaciones y la confederación
+Artículo 63.—Las asociaciones de desarrollo cuya área jurisdiccional esté comprendida dentro del territorio que abarca un cantón o zona, podrán integrarse en uniones cantonales o zonales, siempre que haya consenso y participación por lo menos de más de la mitad de las asociaciones comprendidas dentro del mismo cantón o zona. La unión con otras asociaciones no hace perder a ninguna de ellas su propia individualidad y es nula toda cláusula que les coarte la libertad irrestricta de asociarse a la unión. Los límites de las uniones lo conformarán los límites de las asociaciones afiliadas.

@@ -1,0 +1,1 @@
+Artículo 18.—La inscripción del acto respectivo tiene efectos constitutivos. Existirá responsabilidad personal de los miembros de la junta directiva que ejecuten actos sin la debida inscripción, los cuales no producirán efectos en perjuicio de terceros.

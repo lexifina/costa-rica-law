@@ -1,0 +1,3 @@
+De la Asamblea General
+Artículo 29.—La asamblea general de asociados es el órgano máximo de las asociaciones de desarrollo de la comunidad y estará constituida por todas las personas inscritas en el libro de asociados, que tengan por lo menos, tres meses de haber sido inscritos por acuerdo de la junta directiva respectiva.
+Tratándose de organizaciones de segundo u otros grados, la Asamblea General estará constituida por todos los delegados de las organizaciones integrantes, que serán nombrados por sus juntas directivas en el número, condiciones y facultades que determinen este Reglamento y sus respectivos estatutos.

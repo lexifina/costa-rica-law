@@ -1,0 +1,1 @@
+Artículo 56.—Todas las filiales o grupos de trabajo tendrán derecho a elegir a un delegado que las represente ante la junta directiva de la asociación, a cuyas sesiones podrá concurrir con voz pero sin voto. Sólo podrán pertenecer a las filiales, quienes vivan en el territorio del vecindario respectivo y estén inscritos en el registro de asociados de la asociación

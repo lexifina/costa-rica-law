@@ -1,0 +1,1 @@
+Artículo 57.—Para el cumplimiento de sus fines, las asociaciones de desarrollo integral podrán promover el establecimiento de asociaciones específicas o crear grupos de trabajo por acuerdo de la junta directiva para el cumplimiento de labores específicas, entre ellas, la administración de salones comunales.

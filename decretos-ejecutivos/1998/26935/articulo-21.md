@@ -1,0 +1,1 @@
+Artículo 21.—Para efectos de su nominación, las asociaciones de desarrollo integral deberán agregar a esta frase, el nombre de la localidad o región que abarcan sus actividades. En cuanto a las asociaciones especificas, éstas deberán usar la palabra "Asociación", seguida de una frase que indique la obra concreta o el fin especifico que persiguen.

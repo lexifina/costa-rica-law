@@ -1,0 +1,1 @@
+Artículo 89.—Corresponderá a la Dirección determinar, de acuerdo con el artículo 31 de la Ley, cuáles asociaciones son representativas de la comunidad correspondiente. Hecha esa determinación, se denegará la inscripción en el Registro de cualquiera otra que solicite tal inscripción.

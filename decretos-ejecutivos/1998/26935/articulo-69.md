@@ -1,0 +1,1 @@
+Artículo 69.—Recibida la solicitud, la Dirección Nacional dentro de un plazo no mayor a quince días hábiles, estudiará la documentación presentada y si ésta se ajusta a las normas establecidas en la Ley y este Reglamento, procederá a dar el visto bueno para que continúe el proceso constitutivo.

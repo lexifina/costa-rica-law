@@ -1,0 +1,1 @@
+Artículo 25.—La junta directiva podrá decretar la desafiliación de un asociado en los casos del articulo anterior, o cuando considere que en alguna forma éste daña las actividades de la asociación. El acuerdo respectivo debe acatar el debido proceso, proteger el derecho de defensa y ser ratificado por la asamblea general.

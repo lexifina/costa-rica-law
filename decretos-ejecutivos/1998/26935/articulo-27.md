@@ -1,0 +1,2 @@
+Artículo 27.—Toda solicitud para asociarse debe ser resuelta por la junta directiva que la recibe en un plazo de un mes calendario. En caso de 10 obtener respuesta, se considerará que la solicitud fue acogida favorablemente.
+En cualquiera de los casos, si se deniega el derecho de asociación sea a una persona física o a una jurídica, debe ser en forma razonada y tal decisión tiene recurso de revocatoria ante la junta directiva y de apelación en subsidio ante la próxima asamblea general que celebre la asociación.

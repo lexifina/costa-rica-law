@@ -1,0 +1,1 @@
+Artículo 79.—El Congreso Nacional de Asociaciones deberá realizarse cada cuatro años. La organización será responsabilidad de la junta directiva de la Confederación Nacional de Asociaciones de Desarrollo. Deberán organizarse congresos regionales, como etapa previa del Congreso Nacional, para fortalecer el trabajo de las federaciones en las regiones o provincias.

@@ -1,0 +1,1 @@
+Artículo 23.—Se considerarán asociados los asistentes al acto de constitución de la asociación que hayan firmado el acta respectiva, y los que posteriormente hayan sido aceptados mediante acuerdo emanado de la junta directiva. Sus nombres deberán aparecer en el libro de asociados, con indicación de la fecha del acuerdo de admisión o el de cancelación, siesta ha sido decretada.

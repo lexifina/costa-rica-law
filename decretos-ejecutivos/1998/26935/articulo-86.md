@@ -1,0 +1,1 @@
+Artículo 86.—En todos aquellos casos en que una asociación en proceso de disolución posea bienes, la Dirección Nacional tendrá la facultad de nombrar un comité administrador de dichos bienes, según regulaciones que establecerá para tal efecto.

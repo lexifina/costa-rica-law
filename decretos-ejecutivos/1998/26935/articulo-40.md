@@ -1,0 +1,1 @@
+Artículo 40.—La junta directiva está facultada para contratar al personal administrativo o técnico que considere necesario, para desarrollar eficientemente las actividades y proyectos de la asociación.

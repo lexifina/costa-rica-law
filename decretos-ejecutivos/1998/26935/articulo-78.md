@@ -1,0 +1,1 @@
+Artículo 78.—Podrán participar también en el Congreso Nacional de Asociaciones en calidad de invitados especiales, representantes de otros sectores o movimientos afines y de organismos que colaboran con el movimiento de desarrollo comunal, incluidos los funcionarios de DINADECO que el Director Nacional designe.

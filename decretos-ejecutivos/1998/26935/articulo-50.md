@@ -1,0 +1,2 @@
+De la fiscalía
+Artículo 50.—La fiscalía es el órgano encargado de la supervisión de la organización. Estará compuesta por el número de miembros que indique el estatuto de la organización, y en el caso de que esté integrada por más de una persona una de ellas fungirá como coordinadora por designación de su propio seno. La fiscalía será nombrada por la asamblea general por el mismo período de la junta directiva y deberá cumplir los mismos requisitos establecidos para ser directivo. El cargo es revocable, personal e indelegable.

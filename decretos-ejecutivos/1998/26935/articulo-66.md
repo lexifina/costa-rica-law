@@ -1,0 +1,1 @@
+Artículo 66.—Las uniones cantonales o zonales, las federaciones provinciales o regionales y la Confederación, se regirán en lo aplicable y en lo no previsto en el presente capítulo, por las normas relativas a las asociaciones de desarrollo integral establecidas en este reglamento y a sus propios estatutos, en cuanto a constitución, funcionamiento y disolución.

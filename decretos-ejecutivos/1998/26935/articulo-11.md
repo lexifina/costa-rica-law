@@ -1,0 +1,3 @@
+CAPITULO IV
+De las asociaciones para el desarrollo de la comunidad
+Artículo 11.—Las asociaciones para el desarrollo de la comunidad son organismos comunitarios de primer grado, con una circunscripción territorial determinada. Son entidades de interés público, aunque regidas por las normas del derecho privado, y como tales, están autorizadas para promover o realizar un conjunto de planes necesarios para desarrollar social, económica y culturalmente a los habitantes del área en que conviven, colaborando para ello con el Gobierno, las municipalidades y cualesquiera organismos públicos y privados. De esta misma forma se incorporan a las estrategias y planes de desarrollo regional y a la descentralización.

@@ -1,0 +1,2 @@
+Artículo 96.—La Confederación Nacional, en coordinación con la Dirección Nacional, establecerá un Sistema Nacional de Formación y Capacitación, para lo cual se crearán el Centro Nacional de Formación y los centros regionales y subregionales de capacitación.
+Los centros serán los entes encargados de aplicar la política de educación y capacitación definida en el Plan Nacional de Desarrollo de la Comunidad.

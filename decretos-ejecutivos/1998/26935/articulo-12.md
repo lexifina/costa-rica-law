@@ -1,0 +1,3 @@
+Artículo 12.—Las asociaciones de desarrollo de la comunidad serán de dos tipos:
+a) Integrales: son asociaciones que representan a personas que viven en una misma comunidad y para cuya constitución es necesario que se reúnan por lo menos cien de ellas, mayores de quince años.
+b) Específicas: son asociaciones cuya finalidad es desarrollar objetivos específicos que favorezcan las condiciones económicas, sociales y culturales de una comunidad. Para su constitución es necesario que se reúnan por lo menos cincuenta personas, mayores de quince años. También podrán constituirse asociaciones específicas de carácter sectorial a nivel cantonal.
