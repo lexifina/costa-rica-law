@@ -1,0 +1,2 @@
+Artículo 3°-
+Ninguna de las Partes queda comprometida a entregar sus propios ciudadanos. Respecto de ellos se comprometen ambas Repúblicas á perseguir y Juzgar conforme sus leyes los crímenes y delitos cometidos por nacionales de una Parte contra las leyes de la otra, mediante la oportuna demanda de esta ultima que se presente acompañada de los objetos, documentos, antecedentes, declaraciones y demás informes necesarios y siempre que se trate de alguno de los delitos antes enumerados.
