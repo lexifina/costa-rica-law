@@ -1,0 +1,1 @@
+Art. 6. Los padres de familia, personas de quienes dependan los alumnos de la escuela, no podrán sacarlos de ella sin anuencia de la Direccion de Estudios prestada por motivos de mucha entidad. Los que contravinieren a este artículo incurrirán en la pena que el art. 4° contiene.
