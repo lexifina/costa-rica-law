@@ -14,3 +14,4 @@ Constituye la Comisión para la Emergencia del Volcán Arenal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-08-08 | la propia norma |
+| 2 | 1968-09-03 | Decreto Ejecutivo 145 (1968-09-03) |
