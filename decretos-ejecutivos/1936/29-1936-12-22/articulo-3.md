@@ -1,0 +1,1 @@
+Artículo 3°—Para los efectos del inciso a) del articulo 1° de la ley N° 57 de 23 de febrero de 1935, se entenderán como Necesidades Reales del Intercambio Comercial, todas aquellas cuyo origen, existencia y validez, resulten comprobadas a entera satisfacción de la Junta.

@@ -1,0 +1,1 @@
+Artículo 11.—La Junta, cuando juzgue que sea indispensable, exigirá al exportador que le rinda garantías de que habrá de hacer ingresar al país el producto neto del valor de su embarque, de acuerdo con lo que al efecto disponen les incisos b) y c) del artículo 1° de la ley N° 57.

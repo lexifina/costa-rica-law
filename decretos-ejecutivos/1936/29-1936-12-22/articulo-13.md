@@ -1,0 +1,1 @@
+Artículo 13.—Por lo menos un mes antes de terminar el año, natural, la Junta de Control entregará a la Junta Directiva General del Banco Nacional de Costa Rica, para su aprobación, un presupuesto de gastos para el año próximo.

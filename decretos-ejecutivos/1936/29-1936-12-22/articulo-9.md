@@ -1,0 +1,1 @@
+Artículo 9°—Las solicitudes para adquirir divisas extranjeras con el fin de ser destinadas a cubrir gastos de viajes al exterior, obligaciones de familia, gastos de educandos u otras de igual índole, podrán ser autorizados por la Junta de Control, de acuerdo con el inciso a) del artículo 1° de la ley N° 57.
