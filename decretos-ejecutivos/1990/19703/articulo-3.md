@@ -1,0 +1,1 @@
+Artículo 30—El Ministerio de Justicia y Gracia permitirá, siempre que no se altere el normal funcionamiento de Centro Penitenciario, que la Municipalidad de Puntarenas realice en la Isla de San Lucas los estudios que le permitan iniciar el proyecto modelo turístico.
