@@ -1,5 +1,4 @@
-Artículo 23.-
-1.- Las carteras ministeriales serán:
+Artículo 23.- 1.- Las carteras ministeriales serán:
 a) Presidencia;
 b) Relaciones Exteriores y Culto;
 c) Gobernación y Policía;
@@ -16,7 +15,8 @@ i) Obras Públicas y Transportes;
 j) Educación Pública;
 k) Salud;
 l) Trabajo y Seguridad Social;
-m) Cultura, Juventud y Deportes;
+m) Cultura, Juventud y Deportes*;
+*(NOTA: Según el dictamen C-023 de 31 de enero 2007, de la Procuraduría General de la República, este inciso se encuentra derogado parcialmente en forma tácita por la Ley No. 7800 de 30 de abril de 1998, en lo que respecta a "Deportes", en este caso debe leerse "Cultura y Juventud").
 n) Planificación Nacional y Política Económica;
 ñ) Ciencia y Tecnología.
 (Así adicionado el inciso ñ por el artículo 104 de la Ley de Promoción del Desarrollo Científico y Tecnológico y Creación del MICIT (Ministerio de Ciencia y Tecnología), Nº 7169 del 26 de junio de 1990)
