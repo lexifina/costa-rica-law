@@ -1,0 +1,1 @@
+Artículo 3°.- La estimación de la faja de terreno y de las construcciones es de ¢ 17.800.00 (diecisiete mil ochocientos colones), que corresponde al total de la suma a pagar de conformidad con el avalúo N° 11.805 AvE de la Sección de Avalúos Especiales de la Tributación Directa.
