@@ -1,1 +1,0 @@
-Artículo 108.—Cancelación del timbre. La cancelación del timbre a fin de inutilizarlo se hará por el Tribunal u oficina que deba recibir los documentos, y en su defecto por el profesional que los confeccione.

@@ -1,1 +1,0 @@
-Artículo 19.—Ejecuciones de sentencia. En las ejecuciones de sentencia dictadas en los procesos a que se refiere el artículo trasanterior, si hubiere contención, los honorarios no serán inferiores al 50% de las tarifas indicadas en el artículo 17.

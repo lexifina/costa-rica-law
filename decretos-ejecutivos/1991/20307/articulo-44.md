@@ -1,7 +1,0 @@
-Artículo 44.- Los honorarios por la acción civil resarcitoria son independientes de los que correspondan al trámite de la causa penal. El abogado del actor civil cobrará honorarios por esta acción de un 60% de la tarifa que establece el artículo 17, tomando como base la suma acogida en sentencia por concepto de daños y perjuicios. Si no se llegare a la etapa de sentencia, la suma respectiva se reducirá proporcionalmente al estado etapa en que se encuentre el proceso.
-Si por cualquier motivo no hubiere condenatoria en esos extremos, los honorarios serán de un mínimo de diez mil colones. Los honorarios del abogado de la parte demandada civil se fijarán de conformidad con la labor profesional realizada y la cuantía del asunto, sin que estos puedan ser inferiores a diez mil colones. Para determinar los honorarios que corresponden al profesional por cada etapa de la acción civil, se aplicarán las siguientes reglas:
-a) Una tercera parte por la presentación de la acción;
-b) Una tercera parte por su tramitación; y
-c) Una tercera parte por la sentencia definitiva.
-En la atención de cualquier asunto penal, para poder cobrar sumas superiores al monto de los mínimos anteriormente establecidos, se deberá suscribir inicialmente con el cliente un contrato que fije el monto de los honorarios de acuerdo con el artículo 9°.
-Cuando el profesional en derecho solo tramite la excarcelación, sin asumir la defensa del imputado, por dicha gestión cobrará un mínimo de diez mil colones.

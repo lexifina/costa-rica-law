@@ -1,1 +1,0 @@
-Artículo 4°.—Revisión de honorarios por el Colegio. El Colegio de Abogados podrá revisar la cuantía de los honorarios, aunque exista contrato de servicios profesionales y fijarlos en la suma que corresponda, de acuerdo con la equidad y la complejidad del mismo, salvo que el asunto este sometido a resolución de los Tribunales de Justicia.

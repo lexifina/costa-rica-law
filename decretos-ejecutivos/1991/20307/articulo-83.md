@@ -1,2 +1,0 @@
-Artículo 83.—Los traspasos de vehículos automotores, se harán mediante escritura pública. La fijación de honorarios profesionales se hará sobre el valor del bien declarado por las partes contratantes, en caso de ser inferior al valor fiscal asignado por la Dirección General de la Tributación Directa, será este el que regirá el cálculo de honorarios, de conformidad con el artículo 70 de este arancel.
-(Así reformado por el artículo único del Decreto Ejecutivo N° 22308 de 15 de junio de 1993).

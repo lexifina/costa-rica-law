@@ -1,1 +1,0 @@
-Artículo 82.—División material de propiedades. La división material de propiedad entre codueños pagará como honorarios de notariado la mitad de la tarifa general conforme con la estimación de los lotes, con un mínimo de ¢ 1.000,00 por cada uno.

@@ -1,4 +1,0 @@
-Artículo 23.—Concurso de acreedores y quiebras. En concursos de acreedores, quiebras y procesos afines o relacionados con aquellos, los honorarios de abogado se regulan así:
-a) Administración por intervención judicial y convenio preventivo: Los honorarios de abogado del curador serán iguales a los del curador del concurso o quiebra. (5% sobre el activo real conforme con los artículos 926 del Código Civil y 883 del Código de Comercio).
-b) Asesoramiento: Por asesoramiento y en su caso la petición de quiebra, administración por intervención judicial o convenio preventivo, los honorarios de abogado serán de una tercera parte del curador de la quiebra.
-c) Legalización de créditos: Los honorarios serán de un 25% de la tarifa corriente sobre la cantidad reclamada, sin que pueda ser inferior a cinco mil colones.

@@ -1,1 +1,0 @@
-Artículo 5°.—Propiedad de los honorarios. Los honorarios corresponden al profesional que presta sus servicios. Queda prohibido al profesional participar de sus honorarios a personas que no lo sean, excepto que se trate de estudiantes o egresados de Derecho que laboren para él.

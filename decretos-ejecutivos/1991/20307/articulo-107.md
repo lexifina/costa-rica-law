@@ -1,1 +1,0 @@
-Artículo 107.—Certificados de prenda. Mientras no se dicte norma en contrario, los certificados de prenda pagarán el timbre sobre la cuantía de la obligación según la tarifa que indica el artículo 104.

@@ -1,2 +1,0 @@
-Artículo 87.—Modificación de créditos. Por la modificación de créditos no indicada en otra parte, siempre que no se aumente su cuantía, se cobrarán honorarios no menores de ¢ 1.500,00 si fueren en escritura especial a ese efecto, pues si estuviere contenida en otro acto o contrato principal los honorarios no serán inferiores a ¢1.000,00.
-La cancelación parcial de créditos, sin recibo de suma se tendrá como una modificación de ellos para los efectos anteriores.

@@ -1,1 +1,0 @@
-Artículo 77.—Cabida de fincas. La modificación de cabida de fincas, aumentándola o disminuyéndola, pagará como honorarios la mitad de la tarifa general conforme con su estimación, con un mínimo de ¢ 1.500,00 si se confeccionare en un acto especial, pero si fuere accesorio de otro acto o contrato, el mínimo será de ¢ 1.000,00.

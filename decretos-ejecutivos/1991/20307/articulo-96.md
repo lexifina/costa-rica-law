@@ -1,1 +1,0 @@
-Artículo 96.—Reunión de fincas. Por la reunión de fincas en escritura especial, los honorarios mínimos serán de ¢ 1.500,00; y si fuere accesoria de otro acto o contrato los honorarios no serán inferiores de ¢ 500,00.

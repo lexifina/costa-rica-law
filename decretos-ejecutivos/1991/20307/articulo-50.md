@@ -1,1 +1,0 @@
-Artículo 50.—Por la asistencia profesional en la constitución e inscripción de sindicato u otro tipo de personas jurídicas no reguladas específicamente en otro artículo, se cobrará un honorario mínimo de quince mil colones.

@@ -1,1 +1,0 @@
-Artículo 98.—Testamentos. Por la confección de testamentos abiertos los honorarios mínimos serán de ¢ 4.000,00, y por la cubierta de testamento cerrados y su razón en el protocolo, los honorarios no serán inferiores a ¢ 2.000,00.

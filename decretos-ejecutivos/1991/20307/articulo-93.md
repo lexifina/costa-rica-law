@@ -1,1 +1,0 @@
-Artículo 93.—Recepción de prueba. Por la recepción de prueba, ya sea por comisión de los Tribunales de Justicia o por otros motivos, se pagarán honorarios ¢ 1.500,00 por cada plano o fracción de plana.

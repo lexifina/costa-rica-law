@@ -1,1 +1,0 @@
-Artículo 97.—Servidumbres y medianería. La constitución de servidumbres o medianería en documento especial pagarán un mínimo de ¢ 2.000,00 de honorarios. Como accesorios de otro acto o contrato los honorarios no serán menores de ¢ 800,00. La renuncia o cancelación de tales cargas o limitaciones causarán honorarios mínimos de ¢ 800,00.

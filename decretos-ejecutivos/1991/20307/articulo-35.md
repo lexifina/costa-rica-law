@@ -1,1 +1,0 @@
-Artículo 35.—La atención de procesos sobre faltas o contravenciones, los honorarios se determinarán tomando en cuenta el número y gravedad de las infracciones, la cantidad de trabajadores involucrados, la complejidad del caso y otros factores del proceso, pero en ningún caso esos honorarios podrán ser inferiores a cinco mil colones.

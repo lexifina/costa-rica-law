@@ -1,1 +1,0 @@
-Artículo 74.—Adicionales. Salvo lo dispuesto en el artículo 68 anterior, las escrituras adicionales o complementarias que no aumenten la cuantía del acto o contrato principal devengarán honorarios no menores de ¢ 1.500,00; pero si contuvieren tal aumento, pagarán sobre este la tarifa respectiva.

@@ -1,1 +1,0 @@
-Artículo 78.—Cancelaciones y renuncias. La cancelación o renuncia de condiciones, restricciones, derechos, reservas, cargas o gravámenes, no indicadas en otra parte, como acto especial devengarán un honorario mínimo de ¢ 1.500,00 y de ¢ 1.000,00 si fueren accesorias.

@@ -1,1 +1,0 @@
-Artículo 85.—Lotes de finca a nombre del propietario. La segregación de lotes en cabeza de su dueño pagará la cuarta parte de la tarifa general por la estimación de cada lote, con un mínimo de ¢ 1.000,00 por cada uno.

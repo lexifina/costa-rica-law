@@ -1,1 +1,0 @@
-Artículo 95.—Reproducciones. Los segundos o ulteriores testimonios así como certificaciones de instrumentos públicos expedidas con posterioridad a estos causarán honorarios mínimos ¢ 1.500,00 cada reproducción.

@@ -1,2 +1,0 @@
-Artículo 90.—Poderes. La constitución, ampliación o sustitución de poderes que no sean parte de otro acto o contrato devengarán honorarios no menores de ¢ 2.500,00; y por su revocación los honorarios no serán inferiores a ¢ 1.000,00.
-El poder para firmar y retirar cédulas hipotecarias en forma independiente causará honorarios m¡nimos de ¢ 1.500,00; pero si fuere accesorio los honorarios serán de ¢ 1.000,00.
