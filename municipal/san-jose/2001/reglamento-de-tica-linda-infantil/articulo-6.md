@@ -1,0 +1,1 @@
+Artículo 6°—El padre o encargado que aporte datos falsos en la boleta de inscripción o documentación anexa, dará por hecho la descalificación automática por la Subcomisión de Reinado en el momento que sea demostrada la anomalía.

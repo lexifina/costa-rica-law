@@ -1,0 +1,1 @@
+Artículo 2°—Todas las participantes deben de aportar la boleta de inscripción, debidamente llena y con los datos del padre o encargado, a saber; nombre y cédula de identidad. Deberá adjuntar copia del certificado de nacimiento, así como el permiso firmado por sus padres o responsables legales.

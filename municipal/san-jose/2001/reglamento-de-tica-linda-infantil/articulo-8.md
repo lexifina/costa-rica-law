@@ -1,0 +1,1 @@
+Artículo 8°—Del total de las niñas inscritas, se elegirán a 1 finalistas, quienes fungirán como "hermanas" de las 12 finalistas Certamen Tica Linda, ganando el derecho de participar con ellas en Final y algunas otras actividades sociales.

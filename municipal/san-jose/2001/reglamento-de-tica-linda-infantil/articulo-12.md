@@ -1,0 +1,1 @@
+Artículo 12.—Las sesiones de ensayo serán totalmente privadas; no se admitirá bajo ningún concepto el ingreso de acompañantes de las participantes u otros al recinto donde estos se efectúen, excepto por un padre o encargado

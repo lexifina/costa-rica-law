@@ -1,0 +1,1 @@
+Artículo 23.—La Subcomisión de Reinado deberá hacer del conocimiento de los padres de las participantes, el presente Reglamento para cuyo efecto se les entregará conjuntamente con la boleta de inscripción.

@@ -1,0 +1,1 @@
+Artículo 4°—La inscripción de candidatas se realizará del 1° al 31 de octubre de 2001, en los sitios en los que oportunamente se dará a conocer, llenando la boleta de inscripción que tiene un costo de 2.500,00 (Dos mil quinientos colones exactos) por unidad.

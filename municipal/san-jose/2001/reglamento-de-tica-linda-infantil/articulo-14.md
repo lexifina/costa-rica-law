@@ -1,0 +1,1 @@
+Artículo 14.—Las niñas candidatas deben demostrar una conducta respetuosa y cordial en todo momento, de forma tal que prive un ambiente de amistad, armonía y cordialidad en todas las actividades del evento acatando las indicaciones emanadas de sus instructores y de la Subcomisión de Reinado de la Comisión de Festejos Populares de la Municipalidad de San José.

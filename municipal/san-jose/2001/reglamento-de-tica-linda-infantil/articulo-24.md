@@ -1,0 +1,1 @@
+Artículo 24.—La Subcomisión de Reinado y la Asesoría Legal de la Comisión de Festejos Populares deberán efectuar una reunión general con los padres y las finalistas, en la cual se les entregará y explicará el presente reglamento. Dicha audiencia tendrá carácter para todos los efectos de notificación.
