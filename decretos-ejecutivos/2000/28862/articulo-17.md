@@ -1,0 +1,3 @@
+Artículo 17.—Trámite de la solicitud de transportes. Una vez presentada la solicitud de transportes de conformidad con los requisitos citados en el artículo anterior, el departamento de Transportes dentro del término de las ocho horas siguientes a su presentación, salvo casos de extrema necesidad o emergencia debidamente comprobadas, le dará el siguiente trámite:
+El Departamento de Transportes deberá verificar que la solicitud y la fórmula correspondiente cumpla con todas las formalidades y requisitos requeridos.
+Deberá atender las fórmulas de solicitudes de Transportes en orden de presentación, una vez autorizada la correspondiente solicitud procederá a la asignación del vehículo con su respectivo conductor y se notificará al solicitante.

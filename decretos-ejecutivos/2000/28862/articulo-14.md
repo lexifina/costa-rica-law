@@ -1,0 +1,1 @@
+Artículo 14.—Derechos de circulación. El Departamento de Transportes deberá solicitar vía oficio en la primera semana del mes de diciembre al Departamento de Tesorería el pago de los impuestos respectivos, esto con el fin de que al inicio de cada año los vehículos cuenten con los derechos de circulación al día.

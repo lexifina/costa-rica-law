@@ -1,0 +1,1 @@
+Artículo 12.—Custodia de los cupones de combustibles. La custodia de los cupones de combustible que adquiera la Institución estarán bajo la responsabilidad de la Tesorería, la cual deberá contar con la cantidad necesaria que permita el abastecimiento en todo momento de los vehículos propiedad de la Junta Administrativa Registro Nacional.

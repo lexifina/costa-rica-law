@@ -1,0 +1,1 @@
+Artículo 7°—Asignación de vehículos con el conductor. La asignación se realizará sólo para atender los casos de servicios regulares de la Institución que necesitan las diferentes Direcciones y sus respectivos Departamentos, esta asignación será potestad exclusiva del Departamento de Transportes y se realizará conforme a las disposiciones que se dictan en este Reglamento.

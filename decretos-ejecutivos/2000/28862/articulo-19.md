@@ -1,0 +1,6 @@
+TÍTULO V
+De los conductores
+Artículo 19.—Conductores. Los vehículos propiedad de la Junta Administrativa del Registro Nacional solo podrán ser conducidos por funcionarios que ostenten el cargo de Operador de Equipo Móvil o que estén debidamente acreditados por el Departamento de Transportes.
+a) Cuando exista faltante de conductores para atender los servicios de transportes, este Departamento podrá coordinar con cualquier Unidad de la Institución que facilite un funcionario que este debidamente acreditado y registrado como colaborador.
+b) Para acreditar un funcionario como conductor deberá cumplir con los requisitos legales que exige la Ley de Tránsito, así como con las pruebas teóricas y de manejo que se indican en el artículo 6 inciso aa), además de tener las mismas obligaciones y responsabilidades que los demás conductores. Mientras haga uso del vehículo estará bajo las órdenes del Departamento de Transportes para efectos de que cumplir con la normativa vigente en todos sus ámbitos.
+c) En cuanto a las plazas de Operador de Equipo Móvil, sólo podrán estar ubicadas en el Departamento de Transportes. Bajo ninguna circunstancia deberá tener asignado este tipo de plazas otros Departamentos de la Institución.
