@@ -1,1 +1,0 @@
-Artículo 5°-Los propietarios de fincas rústicas no mayores de cinco hectáreas, que carezcan de otros medios de vida, podrán obtener gratuitamente, previa comprobación de estos hechos, en el Departamento de Agricultura, los materiales indispensables para la destrucción de sus hormigueros.
