@@ -1,0 +1,1 @@
+Artículo 2°—Modifíquese la última frase del segundo párrafo, del articulo 3°, de la resolución de esta Dirección, de las N° 13-02, de las diez horas del trece de marzo de dos mil dos, publicada en La Gaceta N° 64 del 3 abril 2002, para que se lea "o porque más del cincuenta por ciento de su capital pertenezca a socios comunes".
