@@ -1,3 +1,5 @@
-ARTICULO 94.- Fabricación ilegal de armas.
-Se les aplicará una pena de prisión de dos a cinco años a quienes
-fabriquen o exporten armas o municiones sin el permiso correspondiente.
+Artículo 94.—Fabricación, exportación e importación ilegales. Se les aplicará pena de prisión de dos a seis años a quienes fabriquen, exporten o importen armas, municiones o pólvora, en cualquiera de sus presentaciones, sin el permiso correspondiente del Departamento de Armas y Explosivos.
+Se impondrá una pena de dos a cinco años de prisión a los representantes, apoderados, gerentes o encargados del negocio, cuyo personal realice cualquiera de las acciones tipificadas en este artículo, siempre y cuando se compruebe que tuvieron conocimiento de esas actuaciones y no las detuvieron. Lo anterior no impedirá aplicar otra norma, si se demuestra una participación más directa en la comisión del ilícito.
+Será reprimido con pena de prisión de tres a ocho años quien fabrique, comercie o exporte armas prohibidas y material bélico.
+Las sanciones antes descritas se aplicarán siempre que el hecho no se encuentre penado más severamente en otra disposición legal.
+(Así reformado por el artículo 1 de la ley N° 8201 de 18 de diciembre del 2001)
