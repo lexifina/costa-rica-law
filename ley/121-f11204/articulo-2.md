@@ -1,0 +1,1 @@
+Art. 2. Corresponden á dicho Comandante los derechos de actuacion que causen los expedientes de que conociere, como única retribucion del cargo que por el presente decreto se le comete. Dado en la ciudad de san José á los cuatro dias del mes de agosto de mil ochocientos cuarenta y ocho.-José Maria Castro.-Al Ministro de hacienda y guerra Señor Don Manuel José Carazo."
