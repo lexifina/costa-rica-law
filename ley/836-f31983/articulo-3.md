@@ -1,0 +1,1 @@
+Articulo 3°-Para que la Comisión antes mencionada llene satisfactoriamente sus funciones, se promulgara por el Poder Ejecutivo un Reglamento de esta ley, el cual deberá ser recomendado por aquella, de acuerdo con principios técnicos.
