@@ -1,0 +1,1 @@
+Artículo 3º.- Si los fondos cantonales fueran insuficientes para el cumplimiento de todos los gastos que demandaran los distritos para sus respectivas localidades, se harán dichas erogaciones empezando por las de mayor apremio, y haciendo de primera aquellas que se refieren a obras de sanidad , vías públicas, educación y ornato, por su orden.
