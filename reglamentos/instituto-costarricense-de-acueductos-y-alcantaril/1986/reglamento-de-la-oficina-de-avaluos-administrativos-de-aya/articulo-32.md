@@ -1,1 +1,1 @@
-Artículo 32.-Debidamente aprobado el dictamen pericial, se enviará éste a la Dirección Jurídica, junto con el expediente administrativo que se formó al efecto.
+Artículo 32.-Emitido el acuerdo por la Junta Directiva, se remitirá Departamento de Expropiaciones de la División Jurídica, para que proceda con la notificación y la publicación en los casos que corresponda.

@@ -1,1 +1,1 @@
-Artículo 29.-Las indemnizaciones por concepto de reposición podrán ser hasta de un 15% del monto fijado en sentencia como indemnización y únicamente procederá este extremo, cuando de los autos se infiera fehacientemente, que hay mérito para concederla.
+Artículo 29.-En los casos en que para realizar los trabajos, se precise temporalmente de una área mayor, distinta de la que ocupará en definitiva la franja la que se ejerce la servidumbre, o en lotes para bodegas u otros menesteres, se entenderá que la indemnización versará por concepto de posesión temporal.
