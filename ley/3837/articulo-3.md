@@ -1,0 +1,1 @@
+Artículo 3º.- La administración del Colegio estará a cargo de una Junta Administrativa, nombrada por la Municipalidad de Coto Brus, de conformidad con lo dispuesto por el artículo 43 de la Ley Fundamental de Educación.
