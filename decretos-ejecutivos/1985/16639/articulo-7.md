@@ -1,0 +1,1 @@
+Artículo 7°-El CONAPOPO se reunirá ordinariamente por lo menos una vez cada dos meses y extraordinariamente, cada vez que sea convocado por su Presidente. El CONAPOPO, establecerá sus propios procedimientos y normas de trabajo que deberán incluirse en un Reglamento Interno.

@@ -1,0 +1,1 @@
+Artículo 9°-Le corresponderá al Comité Técnico de Población, coordinar y promover el proceso de programación entre las distintas instituciones involucradas en las actividades de población en apoyo al CONAPOPO.
