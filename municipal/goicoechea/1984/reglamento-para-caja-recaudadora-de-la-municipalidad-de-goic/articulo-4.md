@@ -1,0 +1,1 @@
+Artículo 4°.- El cajero revisa la consecutividad de la numeración del recibido o poner recibido en el Control Diario (cuando sea mecanizado), revisa las operaciones aritméticas, sella firma, recauda y entrega el original cancelado al contribuyente.

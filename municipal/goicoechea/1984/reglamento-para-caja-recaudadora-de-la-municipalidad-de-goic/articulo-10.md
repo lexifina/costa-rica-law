@@ -1,0 +1,1 @@
+Artículo 10°.- Todo cajero que funcione como tan en una caja recaudadora de la Municipalidad de Goicoechea, cerrará la caja delante del tesorero municipal y posteriormente este revisará el cierre delante del cajero.
