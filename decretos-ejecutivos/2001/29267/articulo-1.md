@@ -977,10 +977,12 @@ Leyes y decretos de creación y modificaciones:
 -Ley 31 de 9 de octubre de 1931 (crea cantón Pérez Zeledón, colindante con esta unidad administrativa, describe límites).
 -Ley 2188 de 18 de diciembre de 1957 (título de ciudad a la villa Paraíso).
 -Ley 3887 de 26 de mayo de 1967 (límites del distrito Pejibaye del cantón Jiménez, colindante con este cantón).
+NOTA DE SINALEVI: Mediante Decreto Ejecutivo N° 31871 de 24 de mayo de 2004, se crea el distrito Llanos de Santa Lucía, quinto del cantón Paraíso, segregado del distrito Paríso.
 Distritos:
-302 01 PARAÍSO: Ciudad: 09°50'25" LAT. N./ 83°52'03" LONG. O. ALTITUD: 1 325 m.
-Barrios: Barro Hondo, Cruz Roja, Cucaracho, Chiverre, Estación, Joya, Llanos de Santa Lucía, Pandora, Piedra Grande, Salvador, Solares, Soledad, Veintiocho de Diciembre.
+302 01 PARAÍSO*: Ciudad: 09°50'25" LAT. N./ 83°52'03" LONG. O. ALTITUD: 1 325 m.
+Barrios: Barro Hondo, Cruz Roja, Cucaracho, Chiverre, Estación, Joya, Llanos de Santa Lucía*, Pandora, Piedra Grande, Salvador, Solares, Soledad, Veintiocho de Diciembre.
 Poblados: Alto Birrisito, Birrisito, Chiral, Luisiana, Páez (parte), Sanchirí, Ujarrás, Villa Isabel.
+*(Mediante Decreto Ejecutivo N°31871 de 24 de mayo de 2004, se crea el distrito Llanos de Santa Lucía, quinto del cantón Paraíso, el cual tendrá a la Villa Llanos como cabecera, contando con los siguientes poblados: Ayala, Páez (parte), Salvador.
 302 02 SANTIAGO: Villa: 09°52'15" LAT. N./ 83°48'04" LONG. O. ALTITUD: 1 084 m.
 Poblados: Acevedo, Ajenjal, Arrabará, Birrís (este), Cúscares, Flor, Lapuente, Mesas, Mesitas, Nueva Ujarrás, Pedregal, Piedra Azul, Puente Fajardo, Río Regado, Talolinga, Yas.
 302 03 OROSI: Villa: 09°47'55" LAT. N./ 83°51'24" LONG. O. ALTITUD: 1 051 m.
