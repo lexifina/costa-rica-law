@@ -1,0 +1,103 @@
+Nº 25167-MINAE
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGIA,
+En el ejercicio de las facultades que les confiere el artículo 140,
+inciso 3) de la Constitución Política y de conformidad a lo establecido
+en el Convenio sobre Diversidad Biológica, la Convención sobre el
+Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestre
+(CITES), Ley Forestal Nº 7575 del 13 de febrero de 1996 y la Ley Nº 7317
+y la Ley de Conservación de la Vida Silvestre del 30 de octubre de 1992.
+Considerando:
+1º.- Que es deber del Estado el orientar la protección y el
+aprovechamiento racional de los Recursos Naturales en forma tal que se
+garantice su permanencia y calidad, en beneficio de los habitantes.
+2º.- Que con fundamento en los artículos 1 y 3 de la Ley de
+Conservación de la Vida Silvestre Nº 7317, la vida silvestre está
+conformada por la fauna continental e insular que vive en condiciones
+naturales, temporales o permanentemente en el territorio nacional y la
+flora que vive en condiciones naturales en el país; y únicamente pueden
+ser objeto de apropiación particular y de comercio mediante las
+disposiciones contenidas en los tratados públicos, en los convenios
+internacionales y en la presente Ley y su reglamento, artículos 3 y 36 al
+50.
+3º.- Que de conformidad a lo establecido en la Ley de Conservación de
+la Vida Silvestre Nº 7317 y de la Ley Forestal, el Estado tiene el deber
+de conservar las especies silvestres y sus diferentes hábitat para evitar
+su extinción.
+4º.- Que el artículo 6 inciso e de la Ley Nº 7575, Ley Forestal,
+indica que es competencia de la Administración Forestal del Estado:
+establecer vedas de las especies forestales en vías o peligro de
+extinción, o que pongan en peligro de extinción otras especies de
+plantas, animales, u otros organismos, de acuerdo con los estudios
+técnicos respectivos y conforme a otras disposiciones del ordenamiento
+jurídico vigente. No se aplicará la veda a plantaciones forestales.
+5º.- Que el Ministerio del Ambiente y la Energía, es el órgano
+competente en materia de planificación, desarrollo y control de la flora
+y la fauna silvestre y por lo tanto, tiene la responsabilidad de asegurar
+un manejo adecuado de la misma. Igualmente será el encargado de promover
+y ejecutar las investigaciones en el campo de la protección y
+conservación de la vida silvestre.
+6º.- Que la Lapa Verde (Ara Ambigua) constituye una de las aves más
+impresionantes de Costa Rica y que se encuentra en peligro de extinción,
+en caso de continuar la deforestación en la zona norte del país.
+7º.- Que la Lapa Verde tiene una distribución mundial limitada. Se
+encuentra únicamente en los bosques de la bajura Atlántica de
+Centroamérica y en el norte de Colombia.
+8º.- Que según los estudios científicos, la lapa verde anida en hoyos
+naturales, principalmente en árboles grandes de almendro (Dipteryx
+panamensis), ubicados en la zona Atlántica del país.
+9º.- Que en Costa Rica el hábitat óptimo para la sobrevivencia ha sido
+reducido en un sustancialmente hábitat que se encuentra entre el río de
+San Carlos y el río Sarapiquí.
+10.- Que según los estudios científicos respectivos, durante la
+estación de reproducción, las lapas se alimentan casi exclusivamente del
+fruto del almendro.
+11.- Que se estima existen únicamente entre 25 y 35 parejas
+reproductivas de lapas verdes en Costa Rica. Asimismo los ciclos de
+reproducción de las mismas frecuentemente son afectados, ya sea por la
+acción del uso irracional del árbol de anidamiento o debido a los
+cazadores que sacan los pichones del nido para venderlos como mascotas.
+12.- Que de continuar con la extracción irracional del árbol de
+almendro se perderá el hábitat de la especie y por lo tanto la misma se
+extinguirá
+13.- Que Costa Rica ha suscrito y ratificado múltiples tratados y
+convenciones internacionales que protegen el ambiente, especialmente la
+Vida Silvestre, entre ellos se destaca el Convenio sobre Diversidad
+Biológica. Que en este mismo campo, el tema de la biodiversidad es uno de
+los puntos fundamentales de la Alianza Centroamericana para el Desarrollo
+Sostenible y por ende la protección a las especies en peligro de
+extinción.
+14.- Que el artículo 50 de la Constitución Política, establece el
+derecho a gozar de un ambiente sano y ecológicamente equilibrado, lo cual
+implica la necesaria protección de las especies en vías de extinción por
+parte del Estado.
+15.- Que todas las especies que componen la vida silvestre según
+definición de la Ley de Conservación de la Vida Silvestre tienen el
+derecho a la subsistencia como especies.
+16.- Que de acuerdo con el artículo 25 de la Ley de Conservación de
+Vida Silvestre y al artículo 65 de su Reglamento se establece que la lapa
+verde se encuentran en la lista de especies en vías de extinción o
+amenazadas.
+17.- Que la gestión ambiental de nuestro país, así como la política
+del desarrollo sostenible, tienen como prioridad proteger nuestra
+biodiversidad, para lo cual se deberán hacer los esfuerzos necesarios
+para que ninguna especie de fauna, flora, así como los ecosistemas
+naturales en los que habitan desaparezcan por acción directa o indirecta
+del hombre.
+18.- Que la presente generación tiene la obligación y responsabilidad
+con las futuras generaciones, de evitar, sin importar su esfuerzo, la
+extinción de la vida silvestre.
+19.- Que la lapa verde se encuentra en el apéndice 1 de la Convención
+Internacional para el Comercio de Especies Silvestres en peligro de
+extinción, ratificada por Costa Rica.
+20.- Que las leyes Forestal y de Conservación de la Vida Silvestre, le
+imponen al Estado el deber de conservar los hábitat y las especies, para
+evitar su extinción.
+Decretan:
+Artículo 1º.- Declarar una restricción para el aprovechamiento
+maderable de arboles de Almendro (Dipteryx panamensis), basados en el
+artículo 7, inciso a) de la Ley de Conservación de la Vida Silvestre y en
+el artículo 6, inciso e) de la Ley Forestal, en las zonas comprendidas
+entre el río San Carlos y el río Sarapiquí. Por el lado norte el río San
+Juan (frontera Costa Rica - Nicaragua), por el lado oeste longitud 84º15,
+por el lado sur latitud 10º33 y por el lado este longitud 83º53.
