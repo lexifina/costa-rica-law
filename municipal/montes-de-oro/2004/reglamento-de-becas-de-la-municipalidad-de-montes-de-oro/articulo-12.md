@@ -1,0 +1,1 @@
+Artículo 12.—La Administración Municipal en coordinación con la Tesorería Municipal, emitirá la nómina de pago, en base al listado general que le suministrará la Comisión de Becas, para que se emita el cheque respectivo y se cancele en efectivo a cada beneficiario.

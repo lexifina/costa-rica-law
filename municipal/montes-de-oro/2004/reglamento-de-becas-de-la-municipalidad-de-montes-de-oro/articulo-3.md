@@ -1,0 +1,1 @@
+Artículo 3º—Los estudiantes deberán presentar una solicitud de beca, la cual contendrá como mínimo los siguientes datos: nombre y apellidos del solicitante o beneficiario, edad, dirección, año que cursa, nombre de la institución educativa donde cursa los estudios.
