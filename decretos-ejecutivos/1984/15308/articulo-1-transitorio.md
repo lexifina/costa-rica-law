@@ -1,0 +1,2 @@
+Transitorio.-Las personas físicas o jurídicas que hubieren suscrito contratos forestales con el Estado antes de la vigencia del presente Decreto, computarán los porcentajes de las cuotas pendientes de diferimiento, tomando como base el monto de cincuenta mil colones (¢50.000,00) por hectárea, a que se refiere el artículo 1°.
+Dado en la Presidencia de la República .- San José a los dieciséis días del mes de febrero de mil novecientos ochenta y cuatro.
