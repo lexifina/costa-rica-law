@@ -1,0 +1,1 @@
+Artículo 2°—Lo establecido en el artículo anterior procederá sin perjuicio de que continúen los procedimientos de expropiación conforme a Derecho, hasta que se fije definitivamente el monto de la indemnización.

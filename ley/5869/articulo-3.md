@@ -1,0 +1,1 @@
+Artículo 3°—El ICE podrá dar en arrendamiento a sus expropietarios aquellos terrenos que no necesite de inmediato para sus obras y éstos pagarán un canon del 2% anual calculado sobre el monto del avalúo fijado.
