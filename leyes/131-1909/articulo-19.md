@@ -1,0 +1,2 @@
+Artículo 19.-Las sesiones ordinarias ó extraordinarias serán presididas por el presidente. Si éste no concurriere, por el vicepresidente, y en ausencia de ambos, por el regidor propietario de más edad.
+A efecto de preestablecer la precedencia de los vocales regidores, cada uno de éstos deberá, en la primera sesión ordinaria, manifestar su edad, y la Municipalidad, en vista de esos datos, señalar el orden en que podrán ocupar la presidencia accidental.

@@ -1,0 +1,1 @@
+Artículo 23.-Ningún regidor podrá tomar parte en la discusión y votación de asuntos en que esté personal y directamente interesado, ó en que esté de igual modo interesado su cónyuge, un socio suyo ó alguno de sus parientes, dentro de los grados especificados por el artículo 8º.

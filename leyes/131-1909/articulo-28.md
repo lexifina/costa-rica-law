@@ -1,0 +1,1 @@
+Artículo 28.-Los regidores municipales y síndicos respectivos de nuevos cantones creados recientemente, cesarán en sus funciones el treinta y uno de diciembre del corriente año, aun cuando un decreto especial les hubiera señalado mayor término para el ejercicio de sus funciones.
