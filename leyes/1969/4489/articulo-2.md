@@ -1,0 +1,1 @@
+Artículo 2°-Se faculta al Poder Ejecutivo para que, en caso de ser necesario, otorgue la fianza o garantía solidaria del Estado en los préstamos que obtenga el SNAA, mediante la autorización que esta ley le otorga.
