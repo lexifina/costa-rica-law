@@ -14,3 +14,4 @@ Establece las Reservas Indígenas de Sibuju Norte, de Chase y de Alto Pacuare
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-08-20 | la propia norma |
+| 2 | 1977-09-20 | Decreto Ejecutivo 7736 (1977-09-20) |

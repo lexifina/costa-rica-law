@@ -1,5 +1,7 @@
-Artículo 5°—Agrégase a la Reserva Indígena de Chirripó la finca "Chirripó-Corina" (finca 4 Chirripó), situada en la hoja del Instituto Geográfico Nacional, Barbilla 3545 IV y localizada por los puntos cuyos rumbos, distancias y coordenadas son:
-Partiendo de un punto en el río Chirripó, coordenadas N 220 900, E 613 350, se sigue con un rumbo S 14° Q2' E y una distancia de 206,16 metros al río Zent en coordenadas N 220 700, E 613 400, se continúa aguas abajo por el río Zent hasta un punto en coordenadas N 216 700, E 615 200. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+Artículo 5°—Agrégase a la Reserva Indígena de Chirripó la finca "Chirripó-Corina" (finca 4 Chirripó), situada en las hojas del Instituto Geográfico Nacional, Barbilla 3545 IV y Matina 3546 III localizada por los puntos cuyos rumbos, distancias y coordenadas son:
+(Así reformado el párrafo anterior mediante el artículo 4° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977).
+Partiendo de un punto en el río Chirripó, coordenadas N 220 900, E 613 350, se sigue con un rumbo S 14° 02' E y una distancia de 206,16 metros al río Zent en coordenadas N 220 700, E 613 400, se continúa aguas arriba(*) por el río Zent hasta un punto en coordenadas N 216 700, E 615 200. De este punto se sigue con los siguientes rumbos, distancias y coordenadas:
+(*)(Así reformada la frase anterior por el artículo 3° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977).
 N 78 26 W | 4 491.10 | 217 600 | 610 800
 N 84 55 W | 4 517.74 | 218 000 | 606 300
 N 05 43 E | 502.49 | 218 500 | 606 350
