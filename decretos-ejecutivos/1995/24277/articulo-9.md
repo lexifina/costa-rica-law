@@ -1,0 +1,1 @@
+Artículo 9°—Para efectuar el control migratorio de los trabajadores extranjeros, la Policía podrá ingresar a los centros de trabajo en horas laborales y revisar planillas, cédulas de identidad y de residencia, tarjetas de asistencia y toda la documentación relacionada con el pago de planillas y salarios.

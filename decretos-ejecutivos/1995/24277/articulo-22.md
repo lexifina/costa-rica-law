@@ -1,0 +1,1 @@
+Artículo 22.—Los deberes y obligaciones de la Policía de Migración están determinados por lo dispuesto en el Estatuto de Servicio Civil y su Reglamento, de la Ley General de Policía, la Ley de Migración y Extranjería y el Reglamento Interior de Trabajo de la Dirección General de Migración y Extranjería.

@@ -1,0 +1,1 @@
+Artículo 30.—Para el buen desempeño de sus funciones la Policía está autorizada a portar armas y esposas como equipo de trabajo reglamentario. Todos deben portar un carné y placa de identificación que los acredite como Policía de Migración y mostrarlos en todas sus actuaciones o cuando sea requerido por los particulares.

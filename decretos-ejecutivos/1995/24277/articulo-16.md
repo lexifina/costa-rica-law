@@ -1,0 +1,1 @@
+Artículo 16.—En las fronteras, la Policía además de exigir la presentación del manifiesto de pasajes y los pasaportes, salvoconducto, u otra autorización de ingreso o egreso al país, deberán chequear a las personas en la respectiva oficina de migración e inspeccionar el medio de transporte en su interior, lo mismo que en los medios de transporte marítimo, aéreo y fluvial.
