@@ -1,0 +1,1 @@
+Artículo 39.—Toda solicitud de prórroga del playo, o novación de deuda que no responda a lo establecido en los dos artículos anteriores, deberá someterse a consideración del Comité de Crédito para que éste resuelva.

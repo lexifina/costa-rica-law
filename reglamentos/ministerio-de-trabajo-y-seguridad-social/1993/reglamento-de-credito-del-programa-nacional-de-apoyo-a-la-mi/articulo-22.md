@@ -1,0 +1,1 @@
+Artículo 22.—La persona a quién el Comité apruebe un crédito, tendrá un plazo de un mes para su debida formalización, ampliable por otro tanto a solicitud fundamentada suficientemente por el solicitante y aprobada por e! Comité.

@@ -1,0 +1,1 @@
+Transitorio II.—Las unidades ejecutoras que a la techa de entrada en vigencia el presente Reglamento hayan operado bajo el "sistema de morosidad cero", contarán con un plazo no mayor de sesenta días naturales para ajustar sus sistemas internos con lo dispuesto en este Reglamento.

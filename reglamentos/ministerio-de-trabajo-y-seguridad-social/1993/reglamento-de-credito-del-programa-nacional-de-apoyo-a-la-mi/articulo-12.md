@@ -1,0 +1,2 @@
+Artículo 12.- Cuando el porcentaje de morosidad de una unidad ejecutora supere alguno de los límites indicados en los incisos t) y h) del artículo anterior, deberá informar de inmediato al Programa exponiendo en forma fundamentada la estrategia que está llevando a cabo para solucionar tal circunstancia.
+En caso de que no se proceda de ésta forma, la unidad ejecutora se someterá a lo establecido en el capítulo de Sanciones.

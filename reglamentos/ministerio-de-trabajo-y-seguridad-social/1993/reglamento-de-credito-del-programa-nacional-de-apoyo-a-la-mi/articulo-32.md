@@ -1,0 +1,1 @@
+Artículo 32.—El margen de intermediación máximo que pueden devengar las unidades ejecutoras será de diez punto en caso de financiarse a microempresa y de siete puntos en caso de financiarse pequeña empresa. En todo caso cada unidad ejecutora reservará un punto del margen de intermediación para la creación del Fondo Contra Deudas Incobrables.

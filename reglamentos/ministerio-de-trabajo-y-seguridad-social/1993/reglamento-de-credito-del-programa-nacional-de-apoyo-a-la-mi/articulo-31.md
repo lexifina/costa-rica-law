@@ -1,0 +1,1 @@
+Artículo 31 .—La tasa máxima de interés para el beneficiario final, en caso de financiarse microempresa, será igual a la tasa de interés cobrada por la unidad ejecutora, definida en el artículo 30, más diez puntos. En caso de financiarse a la pequeña empresa será igual a la tasa de interés cobrada a la unidad ejecutora, definida en el artículo 30, más siete puntos.

@@ -1,0 +1,4 @@
+CAPITULO IV
+De las sanciones
+Artículo 41.—Cuando alguna unidad ejecutora otorgue un crédito indebidamente, el Programa, finalizado el debido proceso, prevendrá a la unidad que cometió la irregularidad para que en el plazo de un mes contado a partir de la comunicación de la prevención, reintegre en forma total el monto del préstamo mal otorgado más un diez por ciento de dicho monto a título de daños y perjuicios.
+Si vencido el plazo del mes, la unidad ejecutora no reintegró la suma total prevenida, la Dirección dictará una resolución ordenando la suspensión de los desembolsos destinados a dicha unidad, correspondiéndole a ésta sólo la recuperación de la cartera, y otorgando un plazo prudencial para la cancelación de la suma prevenida vencido el cual, el Banco Fiduciario procederá a ejecutar las garantías dadas por la unidad ejecutora contumaz, y se separará a ésta del Programa, resolviéndose su contrato.

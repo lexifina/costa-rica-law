@@ -1,0 +1,10 @@
+Artículo 11 .—Son obligaciones de las unidades ejecutoras:
+a) Identificar y seleccionar a los empresarios.
+b) Analizar, formular, aprobar y dar el seguimiento a los créditos otorgados.
+c) Realizar por sí o coordinadamente con organismos especializados, todas las acciones de capacitación, asistencia técnica, y asesoría de los empresarios y sus empresas.
+d) Realizar las gestiones de cobro y recuperación de los recursos mediante los trámites administrativos y judiciales que fueren necesarios.
+e) Reportar al Programa, dentro de los cinco primeros días hábiles de cada mes, la relación de los préstamos otorgados en el mes inmediato anterior, junto con el correspondiente estado y los datos específicos de cada uno, así como los indicadores socioeconómicos. Para este efecto el Programa suministrará a cada unidad ejecutora los formatos especiales y los sistemas de cómputo necesarios para el manejo de la información. En este sentido cada unidad ejecutora deberá coordinar con el Programa y el Banco la incorporación de los programas de cómputo. El envío de la información deberá realizarse en forma impresa y/o mediante diskette o modem.
+f) Mantener la cartera crediticia con un porcentaje de morosidad financiera menor al seis por ciento. A los efectos de este inciso, el porcentaje de morosidad financiera será igual al monto total de amortización morosa sobre el capital total a recuperar, por cien.
+g) Para efectos del inciso anterior, se considerará una operación morosa aquella que se encuentre atrasada en el pago de su amortización e intereses más de treinta días naturales, según su plan de pagos.
+h) Mantener la cartera crediticia con un porcentaje de morosidad de cartera menor del veinte por ciento. A los efectos de este inciso el porcentaje de morosidad de cartera será igual al número de operaciones morosas sobre el total de operaciones vigentes, por cien, y
+i) Coadyuvar con el Programa en todas las acciones complementarias que sean necesarias, dando especial énfasis a la capacitación, asistencia técnica, comercialización e integración de los empresarios.

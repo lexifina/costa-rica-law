@@ -1,0 +1,3 @@
+Artículo 34.—Toda unidad ejecutora cobrará al microempresario una contribución equivalente al tres por ciento del préstamo.
+Esta suma podrá ser pagada por el empresario directamente o descontada del crédito y .se distribuirá en dos fondos, así: el cincuenta por ciento para el Fondo contra Deudas Incobrables administrado por la propia unidad, y el restante cincuenta por ciento se trasladará al Plan Nacional de Garantías del Programa.
+Al pequeño empresario se le cobrará una contribución equivalente al uno punto cinco por ciento del préstamo, que será destinada al Fondo contra Deudas Incobrables.

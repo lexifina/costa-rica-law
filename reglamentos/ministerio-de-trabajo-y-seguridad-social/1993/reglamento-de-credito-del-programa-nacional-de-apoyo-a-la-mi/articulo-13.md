@@ -1,0 +1,1 @@
+Articulo 13.—El Banco, definirá las fechas de formalización de los créditos por parte de las unidades ejecutoras y calculará las lasas de interés moratorio que correspondan para las unidades que incurran en mora, de acuerdo con lo establecido en el Código de Comercio Costarricense.

@@ -1,0 +1,4 @@
+CAPITULO I
+De los sujetos de crédito
+Artículo 2°-Serán sujetos de los créditos que se concedan con los recursos del FODESAF todos los microempresarios cuya actividad se desarrolle en el territorio nacional, preferentemente en zonas marginales según el mapa de pobreza definido por el Ministerio de Planificación Nacional y Política Económica, y que signifique un importante impulso en la generación de empleo, el desarrollo de la productividad y una seria estrategia, de disminución de la pobreza, según estudios que demuestren un efectivo impacto social y económico por parte de la actividad empresarial en los niveles de pobreza de las zonas donde opera el Programa.
+Asimismo los pequeños empresarios serán sujetos de crédito solamente mediante la incorporación de recursos adicionales de fuentes externas al presupuesto del FODESAF, debiendo en ambos casos reunir las condiciones que se establecen en los artículos siguientes.

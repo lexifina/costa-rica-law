@@ -1,0 +1,1 @@
+Artículo 17.—Para los efectos del artículo anterior, la unidad ejecutora abrirá una cuenta corriente especial en la que se depositarán los recursos conforme sean recaudados, indicando en forma escrita al Programa el número de dicha cuenta y reflejando los movimientos de ingresos y salidas de recursos.

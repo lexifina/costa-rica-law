@@ -1,0 +1,2 @@
+Artículo 30.—La tasa de interés para las unidades ejecutoras será igual al promedio simple entre la Tasa de Inflación Anualizada y la Tasa Básica a seis meses del Banco Central de Costa Rica más dos puntos en caso de financiarse microempresa.
+En caso de financiar pequeña empresa, será igual al promedio simple mencionado más cinco puntos. Dicha tasa será fijada por el Programa el primer día hábil de cada mes, la cual regirá durante dicho mes, y se comunicará al Banco Fiduciario.

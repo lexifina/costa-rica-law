@@ -1,0 +1,1 @@
+Artículo 26.—El monto máximo de crédito ala Microempresa será de un millón de colones (₡1.000.000,00), y el monto máximo de crédito para Pequeña Empresa será de dos millones quinientos mil colones (₡2.500.000,00).

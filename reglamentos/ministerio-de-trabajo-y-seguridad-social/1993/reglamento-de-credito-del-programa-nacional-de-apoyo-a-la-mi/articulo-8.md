@@ -1,0 +1,1 @@
+Artículo 8°—La cobertura de las unidades ejecutoras será establecida por el Programa, previo estudio, dando preferencia a aquellas organizaciones que puedan atender de manera eficiente las zonas prioritarias indicadas en el artículo dos.

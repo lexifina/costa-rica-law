@@ -1,0 +1,1 @@
+Artículo 27.—Los plazos máximos de cancelación de los créditos que se aprueben en los comités serán de hasta dieciocho (18) meses para Capital de Trabajo y de hasta treinta (30) meses para Activo Fijo.

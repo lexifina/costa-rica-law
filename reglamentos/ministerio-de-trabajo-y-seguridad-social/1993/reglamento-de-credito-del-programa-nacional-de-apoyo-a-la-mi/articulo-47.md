@@ -1,0 +1,1 @@
+Artículo 47.—EI Programa dará seguimiento permanente a la ejecución del mismo, evaluando la actuación de cada unidad ejecutora. Para el cumplimiento de este fin, la unidad deberá rendir los informes que solicite el Programa y ofrecer la información oportunamente.

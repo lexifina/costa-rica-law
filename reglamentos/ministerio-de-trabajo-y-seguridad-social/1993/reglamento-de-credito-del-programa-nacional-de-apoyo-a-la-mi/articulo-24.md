@@ -1,0 +1,1 @@
+Artículo 24. —Del total de recursos del Programa el cien por ciento proveniente del FODESAF serán destinados únicamente al financiamiento de la microempresa y para los pequeños empresarios el monto a colocar será aportado según la finalidad y disponibilidad de otros recursos del Programa nacionales o internacionales.

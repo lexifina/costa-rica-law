@@ -1,0 +1,1 @@
+Transitorio I.—Las unidades que a la fecha de entrada en vigencia del presente Reglamento se encuentren con morosidad de cartera superior al margen permitido por el artículo 11, gozarán de un plazo de sesenta días naturales para reducir dicho porcentaje irregular, vencido el cual sin que se haya regularizado su situación, se procederá de conformidad con el artículo 41.

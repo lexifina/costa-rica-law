@@ -1,0 +1,1 @@
+Artículo 37. —Para autorizar la ampliación de un crédito otorgado a un usuario éste debe estar aL día en el pago de sus cuotas habiendo cancelado como mínimo la mitad del préstamo, y demostrar un comportamiento puntual en el pago de sus amortizaciones.

@@ -1,0 +1,1 @@
+Artículo 45.—Si en el plazo establecido en el artículo anterior la unidad ejecutora no ha cumplido, la Dirección dictará una resolución ordenando al Banco la ejecución de las garantías y ordenando la separación de la Unidad incumpliente del Programa, resolviéndose su contrato,

@@ -1,0 +1,1 @@
+Artículo 16.—Ninguna unidad ejecutora podrá manejar en caja o en inversiones transitorias recursos del Programa, a excepción de los recursos destinados al Fondo Contra Deudas Incobrables. El dinero recaudado por la unidad ejecutora deberá ser depositado en el Banco los cinco primeros días hábiles del mes siguiente a aquél en que se efectuó la recaudación.

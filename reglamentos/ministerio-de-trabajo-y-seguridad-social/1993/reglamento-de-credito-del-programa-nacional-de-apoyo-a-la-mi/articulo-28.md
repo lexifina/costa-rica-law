@@ -1,0 +1,3 @@
+Artículo 28. —Para las operaciones crediticias se podrá conceder período de gracia de hasta por tres meses, el cual se fijará de acuerdo con el propio proyecto. Los períodos de gracia se aplicarán solamente al pago del principal, por lo que durante la vigencia de éste se deberán pagar los interes correspondientes en forma mensual y sobre los -saldos del principal adeudado.
+El período de gracia no extiende el plazo de gracia concedido.
+En todos, los casos el pago del principal e intereses deberá realizarse en forma mensual a excepción de financiarse actividades de agricultura y ganadería, en cuyo caso el pago de los intereses podrá realizarse en forma trimestral y el pago del principal al vencimiento del plazo concedido.
