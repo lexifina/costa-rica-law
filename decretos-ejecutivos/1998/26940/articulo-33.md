@@ -1,4 +1,4 @@
-Artículo 33.—Corresponde al Gerente Administrativo Financiero las siguientes funciones:
+Artículo 33.—Corresponde al * Subgerente Administrativo Financiero las siguientes funciones:
 a) El nombramiento y remoción del personal administrativo, conforme con las políticas emitidas por el Consejo Directivo y el Presidente Ejecutivo según la ley y los reglamentos;
 b) Presentar un informe de labores relacionado con su área de acción al Consejo Directivo cada tres meses;
 c) Constituir el medio de enlace entre la Presidencia Ejecutiva y las unidades y equipos de nivel operativo del Área a su cargo, asumiendo la responsabilidad por la ejecución de las políticas y los planes institucionales;
@@ -18,3 +18,4 @@ n) Supervisar, controlar y evaluar la gestión de la administración de las Empr
 o) Participar activamente en la formulación de las políticas, planes y
 p) Supervisar constantemente el que la Ley Constitutiva, reglamentos, normas, instructivos, acuerdos de Consejo Directivo y directrices, se apliquen oportuna y correctamente por los órganos internos y proponer a la Presidencia Ejecutiva las modificaciones de ajuste que el marco institucional legal requiera;
 q) Los demás actos que por ley, reglamento, acuerdos de Consejo Directivo, correspondan a la administración del IMAS.
+(* Así reformada su nominación por Artículo 2° de Decreto Ejecutivo N° 28593 del 12 de abril del 2000)
