@@ -1,0 +1,2 @@
+Artículo 2°-De acuerdo con el inciso 5) del artículo 62 de la ley N° 1552 de 23 de abril de 1953, la Oficina del Café propondrá al Banco Central de Costa Rica el descuento de documentos de crédito garantizados con prenda sobre el café que tenga bajo control en sus bodegas, en las condiciones más favorables posibles para que se logre la efectiva estabilización de los precios.
+Dado en la Casa Presidencial.- San José, a los trece días del mes de febrero de mil novecientos cincuenta y cuatro.
