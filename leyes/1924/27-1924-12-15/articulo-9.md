@@ -1,1 +1,0 @@
-Artículo 9° ─ La aplicación de fondos pertenecientes a una Comisión en gastos que no la aprovechan directamente, con salvedad de lo dispuesto en el párrafo primero del artículo 7°, será penada, en quienes la acuerden y ejecuten, con inhabilitación perpetua para el desempeño de cargos u oficios públicos.

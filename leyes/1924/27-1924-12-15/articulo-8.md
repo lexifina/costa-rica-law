@@ -1,1 +1,0 @@
-Artículo 8° ─ La Contaduría y Tesorería municipales serán las de las Comisiones. Las cuentas se llevarán en los mismos libros, con la debida separación, y ambas informarán semanalmente a cada Comisión acerca del movimiento de fondos. Un estado mensual de estas cuentas será publicado en el Órgano Oficial.

@@ -1,1 +1,0 @@
-Artículo 28° ─ La planta de empleados de cada servicio, ─ con sus correspondientes dotaciones, ─ será publicada en el Órgano Oficial. Corresponde a la Municipalidad, por medio del funcionario que al efecto señale y de acuerdo con el Reglamento de esta ley, el contralor del tiempo devengado por trabajadores en obras o en atenciones de los Servicios Públicos.
