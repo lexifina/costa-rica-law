@@ -1,0 +1,2 @@
+Artículo 2°.-El periodo de vigencia de los salarios mínimos que indica el párrafo primero del artículo 16 de la ley citada quedará reducido por esta vez al lapso comprendido entre el 1° de diciembre de 1950 y el 30 de setiembre inclusive de 1952.
+El término fijado por el párrafo segundo de ese mismo artículo, para que el Consejo Nacional de Salarios haga las determinaciones correspondientes se amplía hasta el 1°de noviembre de 1950.
