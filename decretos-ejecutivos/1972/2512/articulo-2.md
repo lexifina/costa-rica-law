@@ -1,0 +1,2 @@
+Artículo 2°-El artículo anterior es aplicable a los diarios y publicaciones periódicas. Serán excluidos de esta reducción de tarifa, cualquiera que sea la regularidad de su publicación, los impresos comerciales, como los catálogos, prospectos, propaganda impresa en hojas sueltas o incluida en los diarios y publicaciones periódicas.
+Igualmente la reducción de tarifas se concede a los libros y revistas de autores y editores nacionales a las partituras de música y a los mapas cuando sean despachados por los propios editores.
