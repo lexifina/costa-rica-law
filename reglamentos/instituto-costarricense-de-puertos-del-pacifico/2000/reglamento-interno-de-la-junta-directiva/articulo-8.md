@@ -1,0 +1,1 @@
+Artículo 8°—A las Sesiones de Junta Directiva asistirán obligatoriamente, con voz pero sin voto, el Gerente General, el Auditor General y el Jefe del Departamento Legal. El Sub Gerente General o cualquier otro funcionario que asista será únicamente a instancias del Presidente Ejecutivo o de la propia Junta Directiva.

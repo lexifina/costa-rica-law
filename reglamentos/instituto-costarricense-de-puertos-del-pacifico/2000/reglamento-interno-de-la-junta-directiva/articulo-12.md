@@ -1,0 +1,1 @@
+Artículo 12.—Cuando el día miércoles sea declarado asueto o feriado, la Sesión se celebrará el día anterior pero la Junta Directiva podrá disponer que se celebre otro día o en su defecto que la misma no se lleve a cabo.

@@ -1,0 +1,1 @@
+Artículo 10.—Los Acuerdos y resoluciones que dicte la Junta Directiva serán ejecutados por medio del Gerente General conforme a la Ley Orgánica de INCOP, debiendo rendir un informe mensual sobre la ejecución de los mismos.

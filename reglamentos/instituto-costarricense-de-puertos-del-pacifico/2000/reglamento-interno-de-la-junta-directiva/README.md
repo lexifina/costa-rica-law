@@ -1,0 +1,16 @@
+# Reglamento (2000-03-03)
+
+Reglamento Interno de la Junta Directiva.
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 2000-03-03
+- Ente emisor: Instituto Costarricense de Puertos del Pacífico
+- Publicación: La Gaceta N° 45 del 2000-03-03
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44708&param2=47141&param3=1 (ficha 44708)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2000-03-03 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 9°—Las Actas serán firmadas por el Presidente Ejecutivo o por la persona que haya presidido, por la Secretaria y por aquellos Miembros de Junta Directiva que hayan hecho constar su voto negativo.
