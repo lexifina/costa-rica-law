@@ -1,0 +1,4 @@
+Artículo 10.- Para la tramitación de los asuntos corrientes y la
+representación judicial y extrajudicial de la Caja, su junta Directiva
+nombrará cada dos años un Gerente, que tendrá las facultades y
+obligaciones que señala la ley número 15 de 5 de noviembre de 1936.
