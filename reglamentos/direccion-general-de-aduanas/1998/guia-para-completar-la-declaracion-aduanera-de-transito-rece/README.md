@@ -14,3 +14,4 @@ Guía para Completar la Declaración Aduanera de Tránsito, Recepción y Depósi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-04 | la propia norma |
+| 2 | 1998-05-04 | Ley 8 |
