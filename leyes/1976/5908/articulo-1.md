@@ -1,4 +1,4 @@
-ASAMBLEA LEGISLATIVA
+ASAMBL EA LEGISLATIVA
 N° 5908
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
@@ -25,8 +25,10 @@ Sobre la base del citado Convenio Intergubernamental se celebra el siguiente Con
 ARTICULO I
 Monto, finalidad y cláusula de transporte:
 1°—De acuerdo con las condiciones estipuladas en el presente Contrato, Kreditanstalt se compromete a conceder al Prestatario un préstamo hasta
-DM 29.000,000.00
-(Veintinueve millones de Deutsche Mark).
+DM 39.000,000.00
+(Treinta y nueve millones de Deutsche Mark).
+Dividido en una primera parte de DM 29.000,000.00 (Veintinueve millones de Deutsche Mark) y una segunda parte de DM 10.000,000.00 (Diez millones de Deutsche Mark).
+(Así reformado este punto por el artículo 1° de la Ley N° 6532 de 23 de octubre de 1980).
 2°— El préstamo se utilizará exclusivamente para pagar los costos en moneda extranjera que resulten de la ampliación del Puerto de Limón (en lo sucesivo "Proyecto"). Los bienes y servicios a financiar con cargo al préstamo serán determinados por acuerdo especial entre Kreditanstalt y el Prestatario.
 3°—El Prestatario se compromete a garantizar la financiación total del Proyecto. La cobertura de los gastos no financiados con este préstamo deberá ser demostrada ante Kreditanstalt, cuando éste lo solicite.
 4°—No deberán financiarse con los fondos de este préstamo impuestos y demás tasas públicas a cargo del Prestatario, así como derechos de importación.
@@ -35,56 +37,64 @@ ARTICULO II
 Desembolso.
 1°—El préstamo se desembolsará de acuerdo con el avance del Proyecto y a solicitud del Prestatario. El procedimiento de desembolso y particularmente la prueba que deberá presentar el Prestatario en ocasión del desembolso para demostrar la debida utilización de las cuotas del préstamo, se determinarán por acuerdo especial entre Kreditanstalt y el Prestatario.
 2°—Si el préstamo no hubiere sido totalmente desembolsado hasta el 31 de diciembre de 1980, Kreditanstalt podrá denegar cualquier desembolso o desembolso ulterior.
-3°—con la aprobación de Kreditanstalt, el Prestatario tendrá derecho a renunciar a cuotas del préstamo aun-no solicitadas.
+3°—Con la aprobación de Kreditanstalt, el Prestatario tendrá derecho a renunciar a cuotas del préstamo aun-no solicitadas.
+4°—Kreditanstait desembolsará la segunda parte del préstamo recién cuando laprimera parte haya sido desembolsada en su totalidad.
+(Así adicionado el párrafo anterior por el artículo 1° de la Ley N° 6532 de 23 de octubre de 1980).
 ARTICULO III
 Comisión de compromiso, intereses y reembolsos
 1°—El Prestatario pagará una comisión de compromiso de 1/4% anual (un cuarto por ciento anual) sobre el saldo del préstamo aun no desembolsado. Esta comisión se calculará a partir de los tres meses después de la firma del presente Contrato hasta el día del cargo de los desembolsos.
-2°—El préstamo devengará intereses del 2% anual (dos por ciento anual).
+2°—La primera parte del préstamo devengará intereses del 2% (dos por ciento) anual, la segunda parte del 4.5% (cuatro y medio por ciento) anual.
 Los intereses se calcularán a partir del día del cargo de los desembolsos hasta el día del abono de los reembolsos en la cuenta de Kreditanstalt mencionada en el párrafo 11.
+(Así reformado el punto anterior por el artículo 1° de la Ley N° 6532 de 23 de octubre de 1980).
 3°—La comisión de compromiso y los intereses son pagaderos por semestres vencidos, el 30 de junio y el 31 de diciembre de cada año. El primer pago por concepto de comisión de compromiso vencerá junto con el primer pago por concepto de intereses.
 4°—El préstamo se reembolsará en la siguiente forma:
-El 30 de junio de 1986 ……………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1986………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1987 ……………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1987………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1988 ……………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1988 ……………………………………………….. | DM | 707, 300.00
-El 30 de junio de 1989 ……………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1989 ……………………………………………….. | DM | 707, 300.00
-El 30 de junio de 1990 ……………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1990…………………………………………………. | DM | 707, 300.00
-El 30 de junio de 1991……………………………………………………….. | DM | 707, 300.00
-El 31 de diciembre de 1991………………………………………………….. | DM | 707, 300.00
-El 30 de junio de 1992………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1992………………………………………………….. | DM | 707, 300.00
-El 30 de junio de 1993……………………………………………………….. | DM | 707, 300.00
-El 31 de diciembre de 1993…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1994………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1994 ………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1995………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1995…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1996………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1996…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1997………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1997…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1998………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1998…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 1999………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 1999…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2000………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 2000…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2001 ………………………………………………………… | DM | 707,300.00
-El 31 de diciembre de 2001…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2002………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 2002…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2003………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 2003…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2004………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 2004…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2005………………………………………………………… | DM | 707, 300.00
-El 31 de diciembre de 2005…………………………………………………… | DM | 707, 300.00
-El 30 de junio de 2006………………………………………………………… | DM | 708,000.00
-| DM | 29.000,000.00
+| Primera parte DM | Segunda parte DM | Cuota total a reembolsar DM
+El 31 de diciembre de 1984 | | 322.000 | 322.000
+el 30 de junio de 1985 | | 322.000 | 322.000
+el 31 de diciembre de 1985 | | 322.000 | 322.000
+el 30 de Junio de 1986 | 707.300 | 322.000 | 1.029.300
+el 31 de diciembre de 1986 | 707.300 | 322.000 | 1.029.300
+el 30 de junio de 1987 | 707.300 | 322.000 | 1.029.300
+el 31 de diciembre de 1987 | 707.300 | 322.000 | 1.029.300
+el 30 de junio de 1988 | 707.300 | 322.000 | 1.029.300
+el 31 de diciembre de 1988 | 707.300 | 322.000 | 1.029.300
+el 30 de junio de 1989 | 707.300 | 322.000 | 1.029.300
+el 31 de diciembre de 1989 | 707.300 | 322.000 | 1.029.300
+el 30 de junio de 1990 | 707.300 | 322.000 | 1.029.300
+el 31 de diciembre de 1990 | 707.300 | 322.000 | 1.029.300
+el 30 de junio de 1991 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1991 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1992 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1992 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1993 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1993 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1994 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1994 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1995 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1995 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1996 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1996 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1997 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1997 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1998 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1998. | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 1999 | 707.300 | 323.000 | 1.030.300
+el 31 de diciembre de 1999 | 707.300 | 323.000 | 1.030.300
+el 30 de junio de 2000 | 707.300 | | 707.300
+el 31 de diciembre de 2000 | 707.300 | | 707.300
+el 30 de junio de 2001 | 707.300 | | 707.300
+el 31 de diciembre de 2001 | 707.300 | | 707.300
+el 30 de junio de 2002 | 707.300 | | 707.300
+el 31 de diciembre de 2002 | 707.300 | | 707.300
+el 30 de junio de 2003 | 707.300 | | 707.300
+el 31 de diciembre de 2003 | 707.300 | | 707.300
+el 30 de junio de 2004 | 707.300 | | 707.300
+el 31 de diciembre de 2004 | 707.300 | | 707.300
+el 30 de junio de 2005 | 707.300 | | 707.300
+el 31 de diciembre de 2005 | 707.300 | | 707.300
+el 30 de junio de 2006 | 708.000 | | 708.000
+| 29.000.000 | 10.000.000 | 39.000.000
+(Así reformado el párrafo 4° por el artículo 1° de la Ley N° 6532 de 23 de octubre de 1980).
 5°—En el caso de que Kreditanstalt no tenga a su disposición las cuotas de reembolso en las fechas de su vencimiento, Kreditanstalt podrá aumentar la tasa de interés para las sumas atrasadas en un 2% anual mientras subsista la mora. Si existieran intereses atrasados, Kreditanstalt se reservaría el derecho de exigir una indemnización por los perjuicios causados por la mora. Esta indemnización no deberá rebasar el monto que resultaría al calcular los intereses sobre los intereses atrasa- dos al tipo de descuento del Deutsche Bundesbank, válido el día de vencimiento, más el 2%.
 6°—Al efecto de calcular la comisión de compromiso, los intereses-y los eventuales recargos de mora, se entenderá que el año es de 360 días y el mes de 30 días.
 7°—El Prestatario tendrá derecho a reembolsar anticipadamente una o varias cuotas siempre que lo avise con 30 días de antelación.
