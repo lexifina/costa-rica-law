@@ -31,3 +31,6 @@ expropiación.
 En caso de expropiación, para todo lo que no se encuentre
 especialmente regulado en este artículo, se aplicarán las disposiciones
 determinadas en la Ley No. 36 del 26 de junio de 1896.
+(NOTA: la ley No.36 del 26 de junio de 1896 aquí aludida fue
+expresamente derogada por la Ley de Expropiaciones No.7495 del 3 de mayo
+de 1995)
