@@ -1,0 +1,1 @@
+Artículo 6°—En los casos que el establecimiento comercial explote varias actividades, como bar y salón de baile, el horario se determinará conforme a la actividad principal del mismo, no pudiendo gozar de dos horarios distintos de apertura y cierre.

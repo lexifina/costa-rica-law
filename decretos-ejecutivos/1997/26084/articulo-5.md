@@ -1,0 +1,1 @@
+Artículo 5°—En caso de duda sobre la clasificación o categorización, se determinará su clasificación con fundamento en los Registros de Patentes de la Municipalidad respectiva, donde consta la actividad o el giro mercantil principal del correspondiente negocio.

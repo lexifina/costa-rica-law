@@ -1,0 +1,1 @@
+Artículo 9°—En los casos de negocios comerciales que por la actividad que desarrollan proceden a la apertura del negocio antes de la hora legal de apertura para el expendio de licores, la Municipalidad fiscalizará que antes de la hora permitida no se expenda licor, debiendo al efecto tomar las medidas que garanticen el cumplimiento del horario señalado en la ley N" 7633.

@@ -1,0 +1,1 @@
+Artículo 10.—A los efectos del artículo 3° de la ley No 7633, corresponde exclusivamente a las Municipalidades de cada cantón ordenar el cierre de los negocios, lo que se realizará mediante telegrama a las delegaciones policiales de su cantón.

@@ -1,0 +1,1 @@
+Artículo 11.—Tratándose de las sanciones que establece la ley, las Municipalidades deberán establecer los mecanismos de coordinación con las instituciones que consideren necesarias, para hacer prevalecer el orden público y la tranquilidad de los ciudadanos.
