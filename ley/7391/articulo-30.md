@@ -1,1 +1,2 @@
-Artículo 30.- El auditor presentará su informe al consejo de administración de la cooperativa y remitirá copia al comité de vigilancia, al organismo al cual esté afiliada la cooperativa y a la Auditoría General de Entidades Financieras.
+Artículo 30.-El auditor presentará su informe al consejo de administración de la cooperativa y remitirá copia al comité de vigilancia, al organismo al cual esté afiliada la cooperativa y a la Superintendencia General de Entidades Financieras (*).
+(*)(Así modificado el nombre del ente contralor bancario por el artículo 176 de la Ley Orgánica del Banco Central de Costa Rica No.7558 de 3 de noviembre de 1995)
