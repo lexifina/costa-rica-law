@@ -1,0 +1,1 @@
+Artículo 3° El Consejo Nacional de Deportes, cumpliendo los requisitos que señala el artículo 11 de la ley N° 3656 del 6 de enero de 1966, entrará a discutir y clasificar la solicitud para en definitiva aprobar o rechazar la importación libre de derechos.

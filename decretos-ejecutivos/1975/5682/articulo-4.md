@@ -1,0 +1,1 @@
+Artículo 4°─ Aprobada la exoneración por el Consejo Nacional de Deportes, el Director General de Educación Física y Deportes, enviará la recomendación al Ministerio de Hacienda, comunicando el acuerdo con indicación del número y fecha de la sesión del Consejo Nacional de Deportes en que se acordó la exoneración.

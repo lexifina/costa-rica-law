@@ -1,0 +1,1 @@
+Artículo 2°─ Estas asociaciones presentarán su solicitud de exoneración de impuestos en papel sellado de un colón al Director General de Educación Física y Deportes, quien a su vez estudiada la solicitud deberá presentarla al Consejo Nacional de Deportes para su trámite, rindiendo junto con su informe la recomendación sobre la exoneración solicitada.
