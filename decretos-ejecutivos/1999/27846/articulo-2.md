@@ -1,0 +1,2 @@
+Artículo 2°—El actual inciso d) del artículo 2° del Reglamento para el Análisis de los Proyectos Mineros a Gran Escala , Decreto Ejecutivo N° 26610-MINAE(*), del 18 de diciembre de 1996, en adelante se distinguirá con la letra c).
+(*)(NOTA DEL SINALEVI: El Reglamento para el Análisis de los Proyectos Mineros a Gran Escala al que hace referencia este artículo corresponde al decreto ejecutivo N° 26110 del 18 de diciembre de 1996)
