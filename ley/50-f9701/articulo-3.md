@@ -1,0 +1,2 @@
+Art. 3°-Autorízase al Poder Ejecutivo para celebrar con el concesionario el contrato respectivo, en el cual se establecerá el monto de las mensualidades, las obligaciones del mismo concesionario, y el tiempo en que debe quedar establecida la fábrica.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los once días del mes de agosto de mil ochocientos ochenta y cinco. -JN. M. CARAZO, Presidente. -VICENTE C. SEGREDA, 1er Secretario.-JUAN J. ULLOA G., 29
