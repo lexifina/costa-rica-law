@@ -1,1 +1,0 @@
-Artículo 9°-Con el fin de intensificar las relaciones económicas entre los dos países y facilitar el desarrollo de la producción de artículos que tengan base de colocación en uno y otro mercado, las Altas Partes Contratantes dejan constancia de su interés en la formulación de consorcios industriales o comerciales Costarricenses -Mexicanos .

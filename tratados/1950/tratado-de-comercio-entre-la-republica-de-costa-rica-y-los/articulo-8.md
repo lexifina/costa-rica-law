@@ -1,1 +1,0 @@
-Artículo 8°-Las Altas Partes Contratantes convienen en fomentar el desarrollo de las empresas navieras nacionales que hagan servicio entre los dos países y en otorgarse el tratamiento de la nación más favorecida en todo aquello que se relacione con la navegación y facilidades portuarias.
