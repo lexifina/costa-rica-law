@@ -1,6 +1,6 @@
 # Ley de rifas, premios y recompensas e impuesto de consumo de cigarrillos
 
-Ley N° 34 del 1940-12-21. SINALEVI, ficha 4940: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4940&param2=113433&param3=1>.
+Ley N° 34 del 1940-12-21. SINALEVI, ficha 4940: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=4940&param2=113434&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 9 | 1940-12-21 | Ley 34 | 1940-12-21 |
 | 2 de 9 | 1940-12-21 | SINALEVI | 1940-12-21 |
 | 3 de 9 | 1947-08-21 | Ley 1030 | 1947-08-21 |
+| 4 de 9 | 1949-01-12 | Ley 341 | 1949-01-12 |
