@@ -1,0 +1,1 @@
+Art 5° Corresponderá a la 1° Sala del Supremo Tribunal de Justicia el conocimiento del recurso de súplica y el de queja contra los jueces de 1° Instancia en materia verbal, quedando así reformado los artículos 70 y 73 de la ley reglamentaria de juicios verbales emitida el 28 de julio de 1869.

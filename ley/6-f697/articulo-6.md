@@ -1,0 +1,1 @@
+Art 6° Mientras dure el recargo de trabajo en la Sala de 2° Instancia y siempre que este recargo ocurra en cualquiera de los dos Salas del Supremo Tribunal, la obligación de redactar las sentencias y autos que deban dictarse, es no solo propia de su respectivo Presidente, sino también de cada uno de los Magistrados que componen la Sala.
