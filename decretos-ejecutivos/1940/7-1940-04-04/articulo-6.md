@@ -1,0 +1,1 @@
+Artículo 6°-El título de propiedad se extenderá por la Junta protocolizándose por un Notario la resolución definitiva correspondiente y será inscrita en el registro de la Propiedad. El Notario debe hacer constar, con vista del expediente respectivo, que el solicitante ha cumplido las exigencias del artículo 4°.

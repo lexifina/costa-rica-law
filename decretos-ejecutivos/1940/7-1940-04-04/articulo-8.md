@@ -1,0 +1,1 @@
+Artículo 8°-Los lotes que se adquieran por compra no estarán sujetos a las prohibiciones que contiene el artículo anterior. La base para las ventas la fijará la Junta, previa consulta que en cada caso hará a la Secretaría de Fomento.
