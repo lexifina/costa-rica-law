@@ -14,3 +14,4 @@ Reglamento para el Control Nacional de Fraccionamiento y Urbanizaciones.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-07-20 | la propia norma |
+| 2 | 1982-04-26 | Reglamento 3332 (1982-04-26) |
