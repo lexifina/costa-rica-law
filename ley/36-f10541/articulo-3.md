@@ -1,0 +1,1 @@
+Art 3° El balance general de la cuenta anual del Tesoro Público, estará tomado a más tardar el día último de marzo siguiente, en conformidad con los balances de las oficinas corresponsales, con las rectificaciones a que estos dieren lugar, a juicio de la Secretaría de Hacienda.
