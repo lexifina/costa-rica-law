@@ -1,0 +1,1 @@
+Artículo 5º.- Se declara oficial el mapa que, de esta circunscripción, prepare -en su oportunidad- el Instituto Geográfico Nacional, basado en la descripción del artículo segundo. Además, se faculta a este Instituto para la adecuación de los límites, en los casos que ofrezcan duda.
