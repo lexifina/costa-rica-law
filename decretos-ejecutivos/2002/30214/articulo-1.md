@@ -24,7 +24,7 @@ Centro Nacional de Drogas | 560,4
 Centro Univ. Para el Desarrollo del Trópico Seco (Así modificado mediante artículo 1° del Decreto ejecutivo N° 31065 de 4 de febrero de 2003). | 283.8
 Colegio de San Luis Gonzaga (Así REFORMADO PARCIAL Y EXPRESAMENTE, por el artículo 1° del Decreto Ejecutivo N° 31287 de 01 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 145.51
 Colegio Universitario de Alajuela | 917,7
-Colegio Universitario de Cartago ( Así modificado por el Decreto ejecutivo N° 31012 del 04 de febrero de 2003). | ¢ 722.7
+Colegio Universitario de Cartago ( Así REFORMADO PARCIAL Y TACITAMENTE por el artículo 1 del Decreto Ejecutivo N° 31335-H de 28 de julio de 2003, publicado en La Gaceta N° 168 del 02 de setiembre de 2003.) | ¢ 768.4
 Colegio Universitario de Limón (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 271.5
 Colegio Universitario de Puntarenas | ¢ 446.2
 Comisión de Energía Atómica | 33,0
@@ -37,7 +37,7 @@ Compañía Nacional de Fuerza y Luz | 30.791,3
 Consejo de Salud Ocupacional | 74,2
 Consejo de Seguridad Vial (Así modificado por decreto ejecutivo N° 31138 de 7 de abril de 2003) | 5.983,0
 Consejo Nacional de Concesiones | 674,0
-Consejo Nacional de Investigaciones Científicas y T. | 344,1
+Consejo Nacional para Investigaciones Científicas y T. | 344,1
 Consejo Nacional de Producción | 8.607,6
 Consejo Nacional de Rehabilitación (Así modificado por decreto ejecutivo N° 31162 de 5 de mayo de 2003) | 782,3
 Consejo Nacional Persona Adulto Mayor | 1.213,0
