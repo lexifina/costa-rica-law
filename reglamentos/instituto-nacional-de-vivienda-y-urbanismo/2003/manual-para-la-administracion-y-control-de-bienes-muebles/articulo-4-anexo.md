@@ -1,0 +1,1 @@
+(Véase La Gaceta N° 146 de 31 de julio de 2003 pagina 38, Lista de Ubiación Física de las Diferentes Áreas, Direcciones, Procesos y Unidades Ubicadas dentro de los Edificios INVU, como Áreas fuera de la Institución según el Programa de la Unidad de Activos.)
