@@ -14,3 +14,4 @@ Reglamento para Emisión de Títulos Valores de Deuda Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-01 | la propia norma |
+| 2 | 1999-09-06 | SINALEVI (sin norma nombrada) |

@@ -1,0 +1,1 @@
+Artículo 6º—Tanto los intereses como la amortización se cancelarán previa comunicación del Banco Central de Costa Rica a la Dirección de Crédito Público del Ministerio de Hacienda, para el respectivo respaldo presupuestario.
