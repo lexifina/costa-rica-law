@@ -1,0 +1,1 @@
+Art 8°.- Entre tanto se establecen los respectivos Gefes de Departamento los Alcaldes primeros o los que exersan el mando político subalterno en las Cabeceras conforme la Constitución Española presidirán las Juntas de Departamentos y los que tangan los mismos oficios en las cabeceras de distrito presidirán las juntas de distrito.
