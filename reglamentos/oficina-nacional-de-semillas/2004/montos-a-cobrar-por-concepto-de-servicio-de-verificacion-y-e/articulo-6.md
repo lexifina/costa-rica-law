@@ -1,0 +1,1 @@
+6º—El pago de servicio de verificación de estándares de calidad se realizará al momento de tramitar el registro de importación en la Oficina Nacional de Semillas y será requisito indispensable para el respectivo desalmacenaje.
