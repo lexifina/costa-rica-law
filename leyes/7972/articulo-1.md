@@ -1,5 +1,5 @@
 N° 7972
-LA SAMBLEA LEGISLATIVA DE LA RPÚBLICAA DE COSTA RICA
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA ICA
 DECRETA:
 CREACIÓN DE CARGAS TRIBUTARIAS SOBRE LICORES, CERVEZAS Y
 CIGARRILLOS PARA FINANCIAR UN PLAN INTEGRAL
@@ -20,10 +20,10 @@ Hasta quince por ciento (15%) | Un colón con treinta y cuatro céntimos(¢1,34)
 Más de quince por ciento (15%) y hasta treinta por ciento (30%) | Un colón con cincuenta nueve céntimos (¢1,59) ciento
 Más de treinta por ciento (30%) | Un colón con ochenta y cuatro céntimos (¢1,84)
 Este impuesto no se aplicará a las bebidas de producción nacional destinadas a la exportación.
-(Así reformado por el artículo 1° de la Ley N° 8399 de 19 de diciembre de 2003, publicada en La Gaceta N° 21 de 30 de enero de 2004).
+(Así reformado por el artículo 1° del la Ley N° 8399 de 19 de diciembre de 2003, publicada en La Gaceta N° 21 de 30 de enero de 2004).
 NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asímismo sobre la actualización de este impuesto veáse el Transitorio Unico de la ley referida.
-NOTA: Los montos de este impuesto fueron actualizados mediante la resolución N°. DGT-06 de las ocho horas del 2 de abril de 2004, publicada en La Gaceta N° 79 de 23 de abril de 2004, de la siguiente forma:
+NOTA: Los montos de este impuesto fueron actualizados mediante la resolución N°. DGT-09 del 5 de julio de 2004, publicada en La Gaceta N° 144 de 23 de julio de 2004, de la siguiente forma:
 Porcentaje de alcohol por volumen | Impuesto (colones por mililitro de alcohol absoluto)
-Hasta 15% | 1,51
-Más de 15% y hasta 30% | 1,80
-Más de 30% | 2,08
+Hasta 15% | 1.55
+Más de 15% y hasta 30% | 1.85
+Más de 30% | 2.14
