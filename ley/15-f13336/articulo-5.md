@@ -1,0 +1,1 @@
+Art. 5°-En compensación de los anteriores servicios que la Compañía presta al Gobierno de Costa- Rica, se establece que por parte de esta República no se cobrará más que diez pesos por todo derecho de puerto á cada uno de los vapores de la expresada Compañía, por cada vez que toquen en el puerto de Limón; aplicándose dicha suma á los gastos de hospital y faro conforme á la ley.
