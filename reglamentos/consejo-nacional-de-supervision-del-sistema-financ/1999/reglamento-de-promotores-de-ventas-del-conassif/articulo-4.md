@@ -1,0 +1,2 @@
+Artículo 4. De la responsabilidad por la actuación de los promotores
+Si como resultado de la labor de los promotores se produjeran perjuicios para los afiliados o para terceros, la Operadora responderá solidariamente con el promotor, independientemente de la modalidad de contratación que se haya utilizado para los servicios de promoción. Igual responsabilidad tendrá cuando permita la labor de promotores no inscritos.
