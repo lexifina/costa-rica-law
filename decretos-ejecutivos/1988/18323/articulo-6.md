@@ -1,9 +1,9 @@
-ARTÖCULO 6§.-Rige a partir de su publicaci¢n.
-Transitorio.-El Ministerio de Salud y la Caja Costarricense
-de Seguro
-Social, por medio de los establecimientos a su cargo, deber n
-extender el
-carn‚ de salud respectivo a aquellos ni¤os nacidos con
-anterioridad
-fecha de publicaci¢n del presente Decreto.
-
+Artículo 6º.-Se consideran personas no aptas para el manejo y
+aplicación de plaguicidas.
+a) Los menores de 18 años.
+b) La mujeres embarazadas o en período de lactancia.
+c) Las personas declaradas mentalmente incapaces.
+ch) Quienes padezcan de retraso mental.
+d) Personas con enfermedades con las vías aéreas superiores e inferiores.
+e) Personas con enfermedades crónicas, hepáticas y renales.
+f) Personas analfabetas.

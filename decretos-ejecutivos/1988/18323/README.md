@@ -13,3 +13,4 @@ Reglamenta Disposiciones Personas que Laboren con Plaguicidas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-08 | la propia norma |
+| 2 | 1988-08-08 | SINALEVI (sin norma nombrada) |

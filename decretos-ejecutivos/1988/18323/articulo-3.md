@@ -1,7 +1,4 @@
-ARTÖCULO 3§.-La presentaci¢n de ese documento ser necesaria
-cuando
-el ni¤o requiera atenci¢n en cualquier establecimiento de salud,
-p£blico
-o privado, y el mismo ser requisito para la matr¡cula anual de
-los
-escolares.
+Artículo 3º.-Los médicos que realicen los exámenes médicos
+preexposición y periódico, cualquiera sea su frecuencia, deben ser
+especialistas en Medicina de Trabajo y/o con entrenamiento específico en
+toxicología de plaguicidas.
