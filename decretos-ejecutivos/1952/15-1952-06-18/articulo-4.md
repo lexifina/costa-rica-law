@@ -1,0 +1,1 @@
+Articulo 4°-En la fabricación de composte deberán seguirse estrictamente las indicaciones técnicas del sistema respectivo, a fin de obtener mejor calidad del abono, y evitar totalmente la propagación de moscas.

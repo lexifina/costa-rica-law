@@ -1,0 +1,2 @@
+Articulo 5°-Queda prohibida la acumulación de despojos par más de veinticuatro horas, a menos que se cubran debidamente can un capa de tierra, paja a serrín secos, de un espesor minima de veinticinco centímetros o se echen en un deposito debidamente tapado que impida el acceso directo de las moscas a los mismos.
+Cuando se evidencie que los depósitos están en un franco proceso de descomposición, deberá procederse de inmediato a cubrirlos can una capa de tierra de sesenta centímetros mínimo.

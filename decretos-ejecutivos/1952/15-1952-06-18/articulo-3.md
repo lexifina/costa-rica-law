@@ -1,0 +1,2 @@
+Articulo 3°-Las fabricas de composte se dividen en fabricas Urbanas y fabricas Rurales. Las primeras solo podrán ubicarse en lugares situados de 500 a1000 metros de distancia del perímetro de la población respectiva, a juicio de la autoridad que conceda el permiso.
+Las fabricas Rurales solo podrán ubicarse en lugares situados a cincuenta metros de distancia, como minima, del perímetro de las poblaciones en la misma ruta de los vientos prevalecientes, y en forma tal que no perjudiquen al vecindario, a juicio de las autoridades sanitarias.
