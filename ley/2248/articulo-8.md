@@ -1,1 +1,2 @@
-Artículo 8º.- Cuando un servidor docente o administrativo del Magisterio Nacional muriere antes de cumplirse el tiempo legal para obtener una pensión ordinaria, sus causahabientes recibirán, por una sola vez, el monto de un sueldo por cada cuatro años o fracción que hubiere servido el causante.
+Artículo 8º.-Cuando falleciere un servidor cubierto por las disposiciones de esta ley, antes o después de cumplir el mínimo requerido para la jubilación extraordinaria, sus causahabientes tendrán derecho a la pensión sucesoria completa.
+(Así reformado por el artículo 1° de la ley N° 7028 del 23 de abril de 1986)

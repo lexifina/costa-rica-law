@@ -1,0 +1,2 @@
+Artículo 31.- El pago de las dietas de los miembros de la Junta, así como el pago de los salarios del personal necesario para su funcionamiento y los gastos requeridos correspondientes, se harán con cargo al fondo que el efecto establece el artículo 20 de esta ley, del cual, y a este efecto, sólo deberá destinarse el equivalente al uno por mil (1/1000).
+(Así adicionado por el artículo 2° de la ley N° 7028 del 23 de abril de 1986)

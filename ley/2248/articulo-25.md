@@ -1,1 +1,2 @@
-Artículo 25.- Los derechos, beneficios y otras concesiones que tiene esta ley, deberán ser respetadas, cuando se emita una Ley General de Pensiones y Jubilaciones para el Sector Público.
+Artículo 25.- Los derechos, beneficios y otras concesiones que tiene esta ley, deberán respetarse. Cuando se emitiere una ley general de pensiones y jubilaciones del sector público, deberán respetarse los derechos, beneficios y otras concesiones que otorga esta ley, según las disposiciones del Convenio Básico de Educación Centroamericana, ratificado por ley número 3726 del 16 de agosto de 1966.
+(Así reformado por el artículo 1° de la ley N° 7028 del 23 de abril de 1986)
