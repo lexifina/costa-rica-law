@@ -1,0 +1,9 @@
+Nº 32017-J
+EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DE JUSTICIA Y GRACIA
+Con fundamento en los artículos 140, incisos 3), y 18), y 146 de la Constitución Política, 28 de la Ley General de la Administración Pública y la Ley de Creación del Registro Nacional, N° 5695 de 28 de mayo de 1975, reformada por leyes N° 5950 de 27 de octubre de 1976 y 6934 de 28 de noviembre de 1983.
+Considerando:
+1º—Que mediante Decreto Ejecutivo Nº 31143-J publicado en el Diario Oficial La Gaceta Nº 90 de fecha martes trece de mayo del año dos mil tres, se autorizó y entró en vigencia el Reglamento de Concurso Público para la Selección y Nombramiento del Auditor y Subauditor Interno del Registro Nacional.
+2º—Que no obstante lo anterior, la Contraloría General de la República mediante oficio DI-CR-477 de fecha 30 de octubre del dos mil tres, remite el oficio de su dependencia DI-CR-476 de idéntica fecha, conforme los cuales y en atención de la Ley General de Control Interno, Ley Nº 8292, en concordancia con la letra del Reglamento de Organización y Funciones de la Auditoría Interna, aprobado por la Junta Administrativa del Registro Nacional, mediante acuerdo firme Nº 20-98, establecen en su integridad que, el Jerarca de la Auditoría Interna es la Junta Administrativa, en virtud de lo cual, los nombramientos del Auditor y Subauditor Internos los realizará dicho órgano colegiado, investidos de esa potestad por imperativo de raíz legal y reglamentaria, conforme la norma que se invoca.
+Por tanto:
+DECRETAN:
+Artículo 1º—Se deroga el Decreto Ejecutivo Nº 31143-J publicado en el Diario Oficial La Gaceta Nº 90 de fecha martes trece de mayo del dos mil tres, mediante el cual se autoriza el Reglamento de Concurso Público para la Selección y Nombramiento del Auditor y Subauditor Interno del Registro Nacional.
