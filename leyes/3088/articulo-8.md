@@ -1,1 +1,0 @@
-Artículo 8º.- La Dirección General de Artes y Letras queda expresamente encargada de adjudicar los premios literarios y periodísticos "Magón", "Aquileo J. Echeverría" y "Joaquín García Monge", establecidos por leyes números 2901 y 2994. El Poder Ejecutivo reglamentará este artículo.

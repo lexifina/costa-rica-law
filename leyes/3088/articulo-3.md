@@ -1,1 +1,0 @@
-Artículo 3º.- La Orquesta Sinfónica Nacional, la Editorial Costa Rica, el Museo Nacional y todas las entidades públicas que en el futuro llegaren a establecerse con fines de índole similar, deberán prestar la cooperación necesaria a la Dirección General de Artes y Letras.
