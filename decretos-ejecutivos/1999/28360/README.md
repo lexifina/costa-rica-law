@@ -14,3 +14,4 @@ Transferencias de Utilidades Exceptuadas de Límites Gasto Entidades Públicas p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-28 | la propia norma |
+| 2 | 1999-12-28 | Ley 8 |
