@@ -1,1 +1,0 @@
-Artículo 10.—Para los efectos de lo estipulado en el párrafo final del artículo anterior, la Tesorería Municipal remitirá al Concejo bimestralmente, la lista de becados que no hayan retirado el beneficio económico.
