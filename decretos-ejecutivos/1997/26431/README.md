@@ -15,3 +15,4 @@ Reglamento a la Ley Orgánica del Ministerio de Agricultura y Ganadería
 | --- | --- | --- |
 | 1 | 1997-11-05 | la propia norma |
 | 2 | 1998-09-13 | Decreto Ejecutivo 27414 (1998-09-13) |
+| 3 | 2000-08-12 | Decreto Ejecutivo 28861 (2000-08-12) |
