@@ -1,0 +1,1 @@
+Artículo 2°.- El equipo a que se refiere el artículo anterior, únicamente puede ser utilizado para lograr una mayor eficiencia en la operación de los vehículos de servicio público que el señor Zacarías Madrigal Chavarría tiene como concesionario del servicio de transporte remunerado de personas entre San José y Quepos.
