@@ -1,0 +1,1 @@
+Artículo 2º—Adiciónese a las exclusiones detalladas en el inciso b) del artículo 2° del Decreto Ejecutivo Nº 28639-H, las subpartidas "'Derechos de autor" e "Impresión y Encuadernación", en el programa Producción y Difusión de la Editorial Costa Rica.
