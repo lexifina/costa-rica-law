@@ -1,0 +1,1 @@
+Artículo 3º—Los recursos originados en el préstamo a que se refiere esta ley, se destinarán a la concesión de créditos a los Bancos Comerciales del Estado, para que éstos, a su vez, financien actividades agrícolas, ganaderas, industriales y cooperativistas, éstas cuando se refieran a las mismas materias indicadas en este artículo.
