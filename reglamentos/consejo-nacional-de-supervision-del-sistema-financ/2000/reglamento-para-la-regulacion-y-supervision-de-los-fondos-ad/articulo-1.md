@@ -13,6 +13,7 @@ FONDOS ADMINISTRADOS MEDIANTE CONTRATOS DE
 FIDEICOMISO QUE SEAN SIMILARES A LOS FONDOS
 DE INVERSIÓN, PLANES DE CAPITALIZACIÓNO
 FONDOS DEK PENSIÓN
+(NOTA DE SINALEVI:: El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 4°, del acta de la sesión 173-2000, celebrada el 28 de agosto del 2000, complementó lo dispuesto en este Reglamento, lo cual puede consultarse en el Sistema).
 CAPITULO I
 Delimitación de los fideicomisos similares a los fondos de
 inversión, planes de capitalización o fondos de pensión
