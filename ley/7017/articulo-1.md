@@ -7450,3 +7450,4 @@ d) Los tiralíneas (partida 90.16);
 e) Los juguetes del Capítulo 97.
 2. Sin perjuicio de las disposiciones de la Nota 1 de este Capítulo, los
 artí
+(NOTA: El Decreto Ejecutivo No. 28230 modifica los Derechos Arancelarios a la Importación de Calamares)
