@@ -1,0 +1,1 @@
+Art 16°. – Las mujeres inscritas como prostitutas no podrán ser juzgadas por vagancia en razón de su condición, sino en el caso de que penadas con arreglo a lo dispuesto por este reglamento, reincidieren de cualquier modo en la práctica de actos que reclamen la represión de la autoridad de policía.

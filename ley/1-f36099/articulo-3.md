@@ -1,0 +1,1 @@
+Art 3° El nombramiento del director general de este departamento corresponde al Poder Ejecutivo el de Directores locales, de jefes de Policía de Higiene y de Agentes auxiliares, a las Municipalidades respectivas.

@@ -1,0 +1,1 @@
+Art 20° Mientras no haya establecimiento dedicados al tratamiento de las mujeres que padezca de enfermedades venéreas, las respectivas Municipalidades harán arreglos convenientes con las administraciones de los hospitales que existan en las capitales de provincias y comarcas a fin de que se cure y atienda en ellos a las mujeres que se aíslen por las autoridades de higiene.
