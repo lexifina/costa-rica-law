@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de Comercio Interior también podrá autorizar la exportación de atún cuando no haya acuerdo oportuno entre las plantas procesadoras y los pescadores con respecto al precio o con respecto a las modalidades de pago pero tomando en cuenta, siempre, que las necesidades del consumo nacional sean satisfechas.

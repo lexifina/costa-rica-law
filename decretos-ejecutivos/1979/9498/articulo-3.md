@@ -1,0 +1,1 @@
+Artículo 3°-Cuando las plantas procesadoras ofrezcan comprar atún a pescadores a precios inferiores en un 10% al ultimo precio cotizado por la American Tuna Sales Association (A.T.S.A.) de acuerdo con las informaciones actualizadas que llevará la Dirección General de Comercio Interior, tal depende autorizará la exportación.
