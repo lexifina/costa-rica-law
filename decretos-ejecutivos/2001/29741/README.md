@@ -14,3 +14,4 @@ Declara de interés público las actividades del ministerio de relaciones exteri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-08 | la propia norma |
+| 2 | 2002-01-22 | Decreto Ejecutivo 30136 (2002-01-22) |
