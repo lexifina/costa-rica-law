@@ -1,0 +1,1 @@
+—Art. 2° Para deducir la alcabala en las ventas de fincas cuyo pago parcial ó total se hace en café, se tomará por base el precio corriente de este fruto en la plaza respectiva, al tiempo del contrato y segun el lugar de la entrega.
