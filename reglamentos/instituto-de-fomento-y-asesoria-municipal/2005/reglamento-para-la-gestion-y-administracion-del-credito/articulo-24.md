@@ -1,0 +1,1 @@
+Artículo 24.—Los documentos de préstamo para estudios de preinversión, asuntos de trámite expedito y ampliaciones, contendrán, lo dispuesto en el primer párrafo del Artículo 23, y además un presupuesto y la respectiva justificación.

@@ -1,0 +1,3 @@
+Artículo 49.—Si al concluir el proyecto existiere un saldo, la municipalidad, concejo municipal de distrito u otra organización municipal autorizada, mediante acuerdo del concejo podrá solicitar a la Junta Directiva del IFAM la autorización para disponer de dicho remanente en un plazo de 30 días naturales a partir del informe mencionado en el artículo anterior.
+El uso de esos recursos deberá estar relacionado con el propósito original del proyecto. La municipalidad, concejo municipal de distrito y otra organización municipal autorizada, gestionará ante las unidades administradoras del crédito, el criterio técnico respectivo y lo adjuntará a la solicitud.
+Vencido el indicado plazo, el IFAM liquidará el préstamo por la suma desembolsada a la fecha.

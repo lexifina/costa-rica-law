@@ -1,0 +1,1 @@
+Artículo 41.—Periódicamente, previa solicitud de las dependencias administradoras del crédito del IFAM, la municipalidad, concejo municipal de distrito u otra organización municipal autorizada, deberá presentar informes de avance de ejecución del proyecto.

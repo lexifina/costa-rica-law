@@ -1,0 +1,3 @@
+Artículo 55.—Como condiciones para el otorgamiento de readecuaciones o permisos se establecen las siguientes:
+a) Solo se tramitarán readecuaciones a préstamos cuando los recursos que se liberan sean utilizados para atender requerimientos de inversión para el mismo.
+b) El monto de los intereses del préstamo dejados de percibir durante el plazo de la readecuación se continuarán calculando sobre el monto del saldo principal, se acumularán y se le cobrará a la municipalidad, concejo municipal de distrito u otra organización municipal autorizada como una cuota adicional junto con las cuotas ordinarias del préstamo por el resto del plazo de pago que le resta a la obligación.

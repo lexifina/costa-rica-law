@@ -1,0 +1,2 @@
+Artículo 3º—El IFAM podrá otorgar el financiamiento para la compra de saldos de deudas contraídas por las municipalidades, concejos municipales de distrito y otras organizaciones municipales autorizadas con otras entidades financieras, preferiblemente cuando el destino de esos préstamos, sea coincidente con la naturaleza de los proyectos que financia el Instituto.
+A este financiamiento se le dará un tratamiento acorde con lo establecido en la política de crédito o bien con lo que expresamente disponga al efecto la Junta Directiva.

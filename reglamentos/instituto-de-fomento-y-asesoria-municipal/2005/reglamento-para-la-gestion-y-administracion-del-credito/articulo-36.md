@@ -1,0 +1,1 @@
+Artículo 36.—En los proyectos que se financien en el primer y cuarto trimestre del año, se le permitirá a las entidades prestatarias presupuestar solamente el crédito, comprometiéndose éstas a incluir el aporte y los intereses en el primer presupuesto extraordinario que tramite ante la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 6º—Las dependencias administradoras del crédito, formularán en el último trimestre de cada año una propuesta para establecer el plan de inversiones para el siguiente año, el cual deberá ser aprobado por la Junta Directiva.

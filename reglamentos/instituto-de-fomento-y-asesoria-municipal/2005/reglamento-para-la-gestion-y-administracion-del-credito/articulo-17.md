@@ -1,0 +1,1 @@
+Artículo 17.—Si el IFAM previo convenio con la municipalidad, concejo municipal de distrito u otra organización municipal autorizada, realizara los estudios de factibilidad, el prestatario cubrirá los costos de acuerdo a lo pactado en dicho convenio.

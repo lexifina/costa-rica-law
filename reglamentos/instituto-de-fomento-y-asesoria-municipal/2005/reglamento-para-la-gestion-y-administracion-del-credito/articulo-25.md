@@ -1,0 +1,1 @@
+Artículo 25.—Para que se le tramite un documento de préstamo, la municipalidad, concejo municipal de distrito u organización municipal autorizada, debe presentar ante la Presidencia o Dirección Ejecutivas una copia de la autorización para emprestar, extendida por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 18.—Cuando sea preciso realizar estudios de preinversión, éstos podrán ser financiados, por medio de convenio, en forma parcial o total, siempre y cuando se disponga de recursos presupuestados en la Institución en la cartera de “Fondos de preinversión” de conformidad con lo establecido en la Política de Crédito.
