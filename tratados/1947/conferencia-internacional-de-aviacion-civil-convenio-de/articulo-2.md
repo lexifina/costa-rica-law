@@ -1,0 +1,5 @@
+ARTICULO II
+Sección I
+Los Estados contratantes aceptan que este Convenio deroga todas las obligaciones y acuerdos existentes entre ellos que sean incompatibles con sus disposiciones, y se comprometen a no contraer tales obligaciones o entrar en tales acuerdos. Un Estado contratante que haya contraído cualesquiera otras obligaciones incompatibles con este Convenio tomará medidas inmediatas para lograr la terminación de esas obligaciones. Si una línea aérea de un Estado contratante ha contraído tales obligaciones incompatibles, el Estado de su nacionalidad hará cuanto esté a su alcance para lograr su terminación inmediata. En todo caso, procederá a hacer que se terminen tan pronto como pueda tomarse legalmente dicha acción después que entre en vigor este Convenio.
+Sección 2
+Sujetos a las disposiciones de la Sección anterior, cualquier Estado contratante podrá concertar acuerdos relativos a servicios aéreos internacionales que no sean incompatibles con este Convenio. Cualquier acuerdo de esta índole se registrará inmediatamente en el Consejo, que lo hará público a la brevedad posible.

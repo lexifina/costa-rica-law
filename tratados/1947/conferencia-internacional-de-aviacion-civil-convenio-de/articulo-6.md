@@ -1,0 +1,2 @@
+ARTICULO VI
+Mientras entra en vigor la antedicha Convención, cuanta referencia a la misma se haga en el presente Convenio, excepto las de la Sección 3 del artículo IV y las del Artículo VII, se considerarán como referencias al Convenio Provisional de Aviación Civil Internacional redactado en Chicago el 7 de diciembre de 1944; y las referencias al Organismo Internacional de Aviación Civil, a la Asamblea y al Consejo, se considerarán como referencias al Organismo Provisional Internacional de Aviación Civil, a la Asamblea Interina y al Consejo Interino, respectivamente.
