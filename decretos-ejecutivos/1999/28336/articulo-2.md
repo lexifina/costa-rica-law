@@ -1,0 +1,1 @@
+Articulo 2°-EI Estado y sus instituciones, asi como las municipalidades, empresas publicas y privadas, podran brindar y fomentar en la medida de sus posibil1dades, toda la ayuda necesaria para sarantizar los espacios, instalaciones y programas de actividades destmadas al ejercicio de los derechos de los menores de edad, en el Parque Metropolitano La Sabana Padre Chapui.

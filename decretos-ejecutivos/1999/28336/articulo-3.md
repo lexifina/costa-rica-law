@@ -1,0 +1,1 @@
+Articulo 3°-EI Ministerio de Cultura, Juventud y Deportes y sus órganos desconcentrados, podrán suscribir convenios de cooperación con el Instituto Costarricense del Deporte y la Recreación, a fin de organizar y mantener un programa pennanente de actividades recreativas, deportivas y artisticas en el Parque Metropolitano La Sabana Padre Chapui.
