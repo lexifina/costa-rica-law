@@ -1,0 +1,7 @@
+CIRCULAR Nº 10-2004
+ASUNTO: Debido uso del correo electrónico
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS QUE CUENTEN CON CORREO ELECTRÓNICO SE LES HACE SABER QUE:
+El Consejo Superior en sesión Nº 98-2003, celebrada el 18 de diciembre de 2003, artículo LXV, dispuso comunicarles que el artículo 1º del “Reglamento de Procedimientos de las Comunicaciones por medios electrónicos de las Oficinas Judiciales” literalmente dice:
+“Artículo 1º—De acuerdo a la sesión Nº 19-2000 celebrada el 15 de mayo del 2000, artículo XV, las oficinas administrativas y despachos jurisdiccionales, quedan facultadas para comunicar por medios electrónicos, los acuerdos y decisiones adoptadas por Corte Plena y el Consejo Superior, así como cualquier otra comunicación oficial. A esos efectos, deberán tomar las medidas necesarias para utilizar este mecanismo como su principal medio de comunicación”.
+En razón de lo anterior, con el fin de dar estricto cumplimiento de lo que establece ese artículo y de aligerar el trámite en documentos sometidos a conocimiento de la Corte Plena y del Consejo Superior, deberán remitir a la Secretaría General todas sus comunicaciones e informes, única y exclusivamente por correo electrónico, cuenta electrónica secre_corte@poder-judicial.go.cr. Solo se hace la excepción en aquellos asuntos en que a los oficios originales se les deben acompañar de expedientes o diligencias de interés.
+San José, 9 de febrero del 2004.
