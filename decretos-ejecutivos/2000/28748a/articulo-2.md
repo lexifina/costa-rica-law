@@ -1,0 +1,2 @@
+ARTÍCULO 2º
+Los ciudadanos de cualquiera de las Partes Contratantes que sean portadores de un pasaporte válido diplomático o de servicio y que formen parte de una misión diplomática, oficina consular o una organización internacional en el territorio de la otra Parte Contratante, así como los miembros de sus familias que vivan con ellos en el mismo hogar y que sean portadores de un pasaporte válido diplomático o de servicio, pueden entrar a, permanecer en y salir del territorio de la otra Parte Contratante sin visa, por la duración de su nombramiento.

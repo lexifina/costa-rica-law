@@ -1,0 +1,2 @@
+ARTÍCULO 3º
+Los ciudadanos de las Partes Contratantes de los artículos 1º y 2º pueden ingresar al territorio de la otra Parte Contratante o salir del mismo en cualquier paso de frontera que esté abierto para el tránsito internacional de pasajeros, siempre y cuando cumplan con los requisitos de las leyes y los reglamentos de la Parte Contratante sobre tal entrada, movimiento y permanencia de extranjeros.
