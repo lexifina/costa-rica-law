@@ -14,3 +14,4 @@ Modifica al Instituto Nacional de Estadísticas y Censos límite de gasto presup
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-09 | la propia norma |
+| 2 | 2003-06-03 | Decreto Ejecutivo 31239 (2003-06-03) |

@@ -11,3 +11,4 @@ Considerando:
 5º—Que el límite fijado al INEC en el artículo 1° del Decreto Ejecutivo N° 30214-H, no contempla los gastos que conlleva la ejecución de encuestas indicados en el punto 3 anterior, por lo que resulta necesario ampliar el límite de gasto presupuestario de dicha institución. Por tanto,
 Decretan:
 Artículo 1º—Modificase el artículo 1° del Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002, para fijar en ¢1.100,2 millones el límite de gasto presupuestario del Instituto Nacional de Estadísticas y Censos para el año 2003.
+(Véase la modificación que hace el decreto ejecutivo N° 31239 de 3 de junio de 2003 a este artículo)
