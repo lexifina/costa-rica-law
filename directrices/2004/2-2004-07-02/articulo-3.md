@@ -1,0 +1,1 @@
+3º—Si alguna de las empresas importadoras de las citadas mercancías incumple cualquiera de las condiciones aquí estipuladas, se le dejará sin efecto el reconocimiento de la exención bajo el procedimiento aquí definido.
