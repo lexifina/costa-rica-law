@@ -1,0 +1,1 @@
+Artículo 3°—A todos los efectos del caso téngase al Consejo de Seguridad Vial del Ministerio de Obras Públicas y Transportes como la dependencia administrativa que tendrá la competencia necesaria para asumir, fijar y establecer las políticas, programas y proyectos relacionados con la aplicación del presente Decreto.
