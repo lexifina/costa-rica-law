@@ -1,4 +1,6 @@
 No 11541
+(Mediante el artículo 1 del decreto ejecutivo N°12765 del 02 de julio de 1981, se deja sin efecto este Decreto..., "salvo en cuanto a la finca N°34388, inscrita al tomo 2327, folio 525, asiento 5, de aproximadamente 2 440 hectáreas, ...").
+(Mediante artículo 1° de la Ley N° 6794 de 25 de agosto de 1982, se ratifica como Ley de la República este Decreto).
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
 De conformidad con lo dispuesto por los artículos 2°, inciso b) y 22 de la Ley Forestal, No 4465 de 25 de noviembre de 1969, lo establecido por la ley No 6084 de 24 de agosto de 1977, y
