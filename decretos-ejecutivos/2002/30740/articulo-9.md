@@ -1,0 +1,2 @@
+Artículo 9º—Labores para la rendición de cuentas: Como parte de las actividades de seguimiento y de rendición de cuentas, se dispondrá de informes de avance mensuales, que comparen lo programado contra lo logrado en la realidad.
+Adicionalmente, el Coordinador Ejecutivo deberá establecer los mecanismos internos de programación y de coordinación que resulten necesarios y convenientes, para asegurar la interiorización de los alcances previstos.

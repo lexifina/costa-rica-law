@@ -1,0 +1,4 @@
+Artículo 7º—El Coordinador Ejecutivo trabajará de manera coordinada con el Director Nacional de Pensiones y contará con el apoyo técnico de una firma consultora, para la realización de las actividades propias de la consolidación organizativa de la DNP, así como de un experto en sistemas de información, que se encargará del plan de implementación del SIG.
+Adicionalmente, el Coordinador Ejecutivo contará con la asistencia permanente de la Asesora Técnica del sub componente de Pensiones del Contrato de Préstamo 1030/OC-CR.
+El Director Nacional de Pensiones mantendrá bajo su responsabilidad tanto la operativa normal de la DNP como la realización de los arreglos internos y la emisión de directrices necesarias para la ejecución del Plan.
+Tanto los honorarios de la firma consultora como los del experto en informática, serán cubiertos con fondos del Contrato de Préstamo 1030/OC-CR.
