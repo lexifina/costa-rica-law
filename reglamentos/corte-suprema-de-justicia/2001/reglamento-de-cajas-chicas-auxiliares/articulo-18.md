@@ -1,0 +1,2 @@
+Articulo 18.—Arqueos.
+El encargado del manejo de la Caja Chica Auxiliar deberá efectuar el último día de cada mes un arqueo, el cual deberá contar con el visto bueno del jefe de la oficina, remitiéndolo al Departamento Financiero Contable con copia a la Auditoria Judicial a más tardar el tercer día del mes siguiente. Este arqueo corresponde enviarlo independientemente si hubo erogación o movimiento alguno durante ese mes.

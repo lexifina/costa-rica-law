@@ -1,0 +1,2 @@
+Articulo 26.—Arqueos y evaluaciones.
+Periódicamente y en forma sorpresiva la Tesorería Judicial efectuará arqueos de las Cajas Chicas Auxiliares del Poder Judicial. Las UARS y SUB- UARS a las de la zona de su competencia. Si se detectara alguna irregularidad se informará a la Dirección Ejecutiva, a la Auditoria Judicial y al Tribunal de la Inspección Judicial. Asimismo, sin previo aviso, la Auditoria efectuará evaluaciones que considere pertinentes a dichos fondos.
